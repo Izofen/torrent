@@ -1,27 +1,3 @@
-###  Публикация: 1324580   (422930) от 10.09.2019
-
-Тачки 2 / Cars 2 (2011) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молния МакКуин и его друг Мэтр отправляются в международное путешествие — когда МакКуин получает шанс участвовать в соревнованиях для самых быстрых машин в мире, Мировом Гран-При. Этапы этих престижных гонок заведут друзей в Токио, на набережные Парижа, на побережье Италии, и на улицы туманного Лондона.Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: Приключения, КомедияРежиссер: Джон Лассетер, Брэд ЛьюисПеревод: ДублированныйСубтитры: Русские , АнглийскиеПродолжительность: 01:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7E30A4B22A0ADFF223CB462828C9C125167151C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064785   (422950) от 21.10.2016
 
 Ледниковый период: Столкновение неизбежно / Ice Age: Collision Course (2016) BDRip [H.264/1080p-LQ]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:C7E30A4B22A0ADFF223CB462828C9C125167151C
 ```bash
 magnet:?xt=urn:btih:662F05445D041282B4AB8A587F7A101574AC96EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:662F05445D041282B4AB8A587F7A101574AC96EB
 magnet:?xt=urn:btih:497B1BBBFFF6C2CB8F9C4116180C48146BACFD33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:497B1BBBFFF6C2CB8F9C4116180C48146BACFD33
 ```bash
 magnet:?xt=urn:btih:05F7022E7F0F0B65F6F0014E42DE4024BF6FC8FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +99,8 @@ magnet:?xt=urn:btih:05F7022E7F0F0B65F6F0014E42DE4024BF6FC8FF
 magnet:?xt=urn:btih:8B8A48492794A8A76AF9B1248FBD9272CD666A6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +124,8 @@ magnet:?xt=urn:btih:8B8A48492794A8A76AF9B1248FBD9272CD666A6E
 ```bash
 magnet:?xt=urn:btih:ACE7EC3AF4E88CE45C7781E5C6F51203A778B97B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +151,8 @@ My Little Pony в кино (Мой маленький пони) / My Little Pony
 magnet:?xt=urn:btih:245C4F4E426C7FE8C7ED33A17A85252F3299872C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:245C4F4E426C7FE8C7ED33A17A85252F3299872C
 ```bash
 magnet:?xt=urn:btih:8165517DCF4951DAE7B3BFAB112ED2D90A99B8B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +203,8 @@ magnet:?xt=urn:btih:8165517DCF4951DAE7B3BFAB112ED2D90A99B8B8
 magnet:?xt=urn:btih:197614AA7C85DFAB47665C7FBA0F18FD336EA77B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:197614AA7C85DFAB47665C7FBA0F18FD336EA77B
 ```bash
 magnet:?xt=urn:btih:A547D2895DD231CE6C8A00EC9C01160CD35CBC69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +256,8 @@ magnet:?xt=urn:btih:A547D2895DD231CE6C8A00EC9C01160CD35CBC69
 magnet:?xt=urn:btih:192579EB00754B1EF76839586DFFCDFB20A4EDFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +281,8 @@ magnet:?xt=urn:btih:192579EB00754B1EF76839586DFFCDFB20A4EDFC
 ```bash
 magnet:?xt=urn:btih:030C1EEF674DC5ED38F3B429B1CEA1523360F07A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +308,8 @@ magnet:?xt=urn:btih:030C1EEF674DC5ED38F3B429B1CEA1523360F07A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +333,8 @@ magnet:?xt=urn:btih:030C1EEF674DC5ED38F3B429B1CEA1523360F07A
 ```bash
 magnet:?xt=urn:btih:100FBC839DC1ACBB30ABBA5C67E34D34297C7515
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +360,8 @@ magnet:?xt=urn:btih:100FBC839DC1ACBB30ABBA5C67E34D34297C7515
 magnet:?xt=urn:btih:76B5AD78B0D7C364B1C046C02AC2E6E67561F092
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +385,8 @@ magnet:?xt=urn:btih:76B5AD78B0D7C364B1C046C02AC2E6E67561F092
 ```bash
 magnet:?xt=urn:btih:88B303D0BB80D2B07CE3CD42DFC3E48F739E6FE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +412,8 @@ magnet:?xt=urn:btih:88B303D0BB80D2B07CE3CD42DFC3E48F739E6FE6
 magnet:?xt=urn:btih:4A5889921189CD2116E4D8B011DBCA65FDDFE7C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +437,8 @@ magnet:?xt=urn:btih:4A5889921189CD2116E4D8B011DBCA65FDDFE7C7
 ```bash
 magnet:?xt=urn:btih:2EEE4EA4A73C6F22D77B08EA9E6846DDC444A6F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +464,8 @@ magnet:?xt=urn:btih:2EEE4EA4A73C6F22D77B08EA9E6846DDC444A6F2
 magnet:?xt=urn:btih:93A98AAA57DB2E1A6445197461AE72D3D4E37E1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +489,8 @@ magnet:?xt=urn:btih:93A98AAA57DB2E1A6445197461AE72D3D4E37E1C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +516,8 @@ magnet:?xt=urn:btih:93A98AAA57DB2E1A6445197461AE72D3D4E37E1C
 magnet:?xt=urn:btih:6C4780E1B129DF5A1D596B698FE03A89A24EDD55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +541,8 @@ magnet:?xt=urn:btih:6C4780E1B129DF5A1D596B698FE03A89A24EDD55
 ```bash
 magnet:?xt=urn:btih:4BBBB88E6B2D6D453E82C174E3F35AD6B189E782
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +568,8 @@ magnet:?xt=urn:btih:4BBBB88E6B2D6D453E82C174E3F35AD6B189E782
 magnet:?xt=urn:btih:02AC5E3F1EC007DD6810A94B7A83AC85EDA60ACB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +593,8 @@ magnet:?xt=urn:btih:02AC5E3F1EC007DD6810A94B7A83AC85EDA60ACB
 ```bash
 magnet:?xt=urn:btih:3B61AC7E23CE3CD3DC517950800AC744D2DF397C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +620,8 @@ magnet:?xt=urn:btih:3B61AC7E23CE3CD3DC517950800AC744D2DF397C
 magnet:?xt=urn:btih:3AD646C557B79D2E987076D379AC2703F10705B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +645,34 @@ magnet:?xt=urn:btih:3AD646C557B79D2E987076D379AC2703F10705B5
 ```bash
 magnet:?xt=urn:btih:FC2BF2573E7F52F091BD30B026B937AA11A050BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063226   (429779) от 18.10.2016
+
+Принцесса Лебедь: Пират или принцесса? / The Swan Princess: Princess Tomorrow, Pirate Today! (2016) WEB-DL [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда родители уезжают на лето, юная любительница приключений принцесса Алиса остается под присмотром королевы Уберты, которая пытается воспитывать ее в лучших монарших традициях. Но принцесса скучает и мечтает сдать удалым пиратом. Вместе с лордом Роджерсом, лягушонком Джин-Бобом и черепашкой Спедом она отправляется в полное удивительных приключений, опасностей (   Читать дальше...   )Производство: США, Nest Family EntertainmentЖанр: Мультфильм, семейныйРежиссер: Ричард РичАктеры: Лора Бэйли, Юрий Ловенталь, Максин Блу, Келлен Гофф, Гарднер Джаэс, Клэйтон Джеймс, Катрин Лавин, Джозеф Медрано, Дженнифер МиллерПеревод: Профессиональный многоголосый (iTunes)Субтитры: Русский (Forced), русские, украинские, английские – вшитые, отключаемыеПродолжительность: 01:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AA2D281C1D4C01DFCC84AAC8DB76F331CA3718D
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

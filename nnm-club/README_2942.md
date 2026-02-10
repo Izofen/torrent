@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:11D2DDD80A24F81BBC898D878C5444BD91A3A2C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Necronomicon / Книга Мертвых: Потерянные души (P) [Ru]
 ```bash
 magnet:?xt=urn:btih:3213A52A4C3DE17D8823B32B5352CBC6CC973B74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Simon and Garfunkel - The Concert In Central Park, 1981 (2004) DVD5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Simon and Garfunkel - The Concert In Central Park, 1981 (2004) DVD5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Simon and Garfunkel - The Concert In Central Park, 1981 (2004) DVD5
 magnet:?xt=urn:btih:4FECE42FE6565A3A98704D2BB3BBD356C4227B51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Treasures of the Deep / Сокровища глубин (P) [Ru] 2009 | Fyrrion
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +194,8 @@ Treasures of the Deep / Сокровища глубин (P) [Ru] 2009 | Fyrrion
 magnet:?xt=urn:btih:EFAD321A37D3CB132880BD5033FDFFD80F3C1792
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ magnet:?xt=urn:btih:EFAD321A37D3CB132880BD5033FDFFD80F3C1792
 magnet:?xt=urn:btih:9C0F3E443D421392A97069BC90DB18320AB7A4AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ magnet:?xt=urn:btih:9C0F3E443D421392A97069BC90DB18320AB7A4AE
 ```bash
 magnet:?xt=urn:btih:A123BA8511ED70C1684295582374A481AA815E4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +274,8 @@ magnet:?xt=urn:btih:A123BA8511ED70C1684295582374A481AA815E4E
 magnet:?xt=urn:btih:9D46D6B404F0D990E7CC325260B3BEAD705E7059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ magnet:?xt=urn:btih:9D46D6B404F0D990E7CC325260B3BEAD705E7059
 ```bash
 magnet:?xt=urn:btih:AF955A40220BF0D3BE10005113F3238D0AC1CF1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ Softlim EstimaKit 2011 – программа для автоматическо�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ VA - The Golden Age Of American Rock 'n' Roll (1991-2009) [MP3|320 кб/с]<Rock
 ```bash
 magnet:?xt=urn:btih:ABBEE181625B23F3BC3C213CFA57C9D4D8D9219B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:ABBEE181625B23F3BC3C213CFA57C9D4D8D9219B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:ABBEE181625B23F3BC3C213CFA57C9D4D8D9219B
 ```bash
 magnet:?xt=urn:btih:F67F72137DB92798EA3E237E6746D01D44FEB589
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:F67F72137DB92798EA3E237E6746D01D44FEB589
 magnet:?xt=urn:btih:5AE4CDC828738A603A2568044E288FB99B19C358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:5AE4CDC828738A603A2568044E288FB99B19C358
 ```bash
 magnet:?xt=urn:btih:1C41910ED9B1574A636C6CBCA79FE995B03DFC92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:1C41910ED9B1574A636C6CBCA79FE995B03DFC92
 magnet:?xt=urn:btih:1D47E5D173AA33BCFE22EACD9626F7A340C66C46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:1D47E5D173AA33BCFE22EACD9626F7A340C66C46
 ```bash
 magnet:?xt=urn:btih:200B728D1B8FBDBE055FC44FF4745768BA6D2885
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:200B728D1B8FBDBE055FC44FF4745768BA6D2885
 magnet:?xt=urn:btih:DAD3D4651D5D1A3A97F09C6E58F96BA7DE8D400E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:DAD3D4651D5D1A3A97F09C6E58F96BA7DE8D400E
 magnet:?xt=urn:btih:CFDC4AF333463294A35BDED079FE398D4DDABE3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:CFDC4AF333463294A35BDED079FE398D4DDABE3B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:CFDC4AF333463294A35BDED079FE398D4DDABE3B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +649,8 @@ ABBA - Number Ones (2006) DVD9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ ABBA - Number Ones (2006) DVD9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ ABBA - Number Ones (2006) DVD9
 ```bash
 magnet:?xt=urn:btih:9579ED05E62C02A402F4C8C259C6FFE446BE6475
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

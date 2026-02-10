@@ -1,3 +1,32 @@
+###  Публикация: 932866   (508326) от 30.08.2015
+
+VA - Lounge At The Seashore 21 (2015) [MP3|320 кб/с]<Lounge, Electronic, Deep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oddxperienc - 4 Fingers (Original Mix) (05:09)
+02. Hnny - Cheer Up, My Brother (Original Mix) (05:09)
+03. Steven Solveig - Crossing Mars (Original Mix) (05:55)
+04. Jose Padilla - Day One (Telephones Remix) (07:11)(   Читать дальше...   )Жанр: Lounge, Electronic, DeepПродолжительность: 01:13:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C66989B99FD3DD6A56A56B633E717B3D633F8258
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932561   (508327) от 30.08.2015
 
 VA - Trance Maniacs Party: Melody Of Heartbeat 151 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
@@ -21,6 +50,8 @@ VA - Trance Maniacs Party: Melody Of Heartbeat 151 (2015) [MP3|320 кб/с]<Tran
 ```bash
 magnet:?xt=urn:btih:230435804F0EDFC5588A7D7E25001316C3C8FDE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +79,8 @@ VA - Trance Maniacs Party: Melody Of Heartbeat 150 (2015) [MP3|320 кб/с]<Tran
 ```bash
 magnet:?xt=urn:btih:DB9CC3AABA218395BC8EACD39112C241815060BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +115,8 @@ VA - Шоферской хитовичок в дорогу Vol. 5 (2012) [MP3|25
 magnet:?xt=urn:btih:4B092CAFE48D4F7F697ED055BD279B9AD8F3AF8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +149,8 @@ VA - Отдыхай под классный музон (2012) [MP3|256 кб/с]<
 ```bash
 magnet:?xt=urn:btih:BB0C3020188F4987BA5496A95040796E312B8D0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +185,8 @@ VA - Молодежный летний хит (2012) [MP3|256 кб/с]<Pop, Danc
 magnet:?xt=urn:btih:BB3CDFF8FCC3437E81EAFC54B572AD42B1985F2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +220,8 @@ VA - Клубные Новинки Vol.121 (2012) [MP3|320 кб/с]<Club, Dance>
 magnet:?xt=urn:btih:8740FDF4DD9C548EF8A2E23DC545864FF416E352
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +248,8 @@ VA - не Громкие новинки недели 26 (2019) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:15097ED1B9308DB13B64B9DE7BFBE3A805719A58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +278,8 @@ VA - Electrozombies Dance House (2019) [MP3|320 Kbps] <House, Electro>
 magnet:?xt=urn:btih:18D4B50BF5842D4BEC5EAD360BE428F33E5F269E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +306,8 @@ VA - German Top 100 Single Charts 08.07.2022 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:78440F1C454C7118C76EDFDAE6AA7F5543FD4B1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +336,8 @@ VA - Russian Dance Pop & Club House [Compiled by Zebyte] (2015) [MP3|256-320 к�
 magnet:?xt=urn:btih:73A714FA3413D2D9B800827AD61E26F0F0F449CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +364,8 @@ VA - Hed Kandi Dusk Till Disco (2015) [MP3|256 кб/с]<Disco, Nu-Disco>
 ```bash
 magnet:?xt=urn:btih:52B057A000822F913DF7A1A3FB37BFCC80FE438E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +394,8 @@ VA - Ibiza DJ Compilation Summer 2016 (2015) [MP3|320 кб/с]<Funky, Club House
 magnet:?xt=urn:btih:44828A0FF74C9006CD565A86696CD95D4A7F3359
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +422,8 @@ VA - Extra House (episode 5) (2015) [MP3|320 кб/с]<Deep House, Club House>
 ```bash
 magnet:?xt=urn:btih:009B955DD803B1437E29314C1CBA229EA0BB3B5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +452,8 @@ VA - TOP 20 Energy Trance - Melody Center (2015) [MP3|320 кб/с]<Harmonic, Emo
 magnet:?xt=urn:btih:739981F217B5D432754294615640C51AEEA49C19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +480,8 @@ VA - The Ultimate Acoustic Covers Playlist [In The Mood] (2015) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:A2D128233861608D3FE7D964EFB26CBD5809B052
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +510,8 @@ VA - Sunset Soul (Ministry Of Sound) (2015) [MP3|320 кб/с]<Funky, Club House>
 magnet:?xt=urn:btih:7E300C6A8405D4DAF87B9E82BBF2A2A40ED1BDDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +538,8 @@ VA - Beatport Top 100 Techno July [edited by ZIMIANDR] (2015) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:ADFDF5A7E5CD292083B12DCE859F7357FE56BA26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +568,8 @@ VA - Chill Acoustic Pop Playlist Eighteen Smooth and Chilled Tracks [In The Mood
 magnet:?xt=urn:btih:DA2B123F94889C29CD81B47764624E27F265AFB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +596,8 @@ VA - A Chill House Affair Vol. 5 (60 Fantastic Summer Tunes) (2015) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:13A3F263154849BEC5EBA9B5F8E47CE585A8DFA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +626,8 @@ VA - Poolside Ibiza: Kolombo, Autograf (2015) [MP3|320 кб/с]<Electronica, Tec
 magnet:?xt=urn:btih:0AD7EF368747BF89C545122E7C7F61AAA0E919D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +654,8 @@ VA - A Chill House Affair Vol. 3 (60 Fantastic Summer Tunes) (2015) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:EC3101603210EA896863C970B10811E926067218
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +684,8 @@ VA - A Chill House Affair Vol. 4 (60 Fantastic Summer Tunes) (2015) [MP3|320 к�
 magnet:?xt=urn:btih:62DF90915121341FE89061C42862BDEA222C9B2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +712,8 @@ VA - A Chill House Affair Vol. 2 (2015) [MP3|320 кб/с]<Deep House, Chill Hous
 ```bash
 magnet:?xt=urn:btih:2DA778497E3036ADD9AD658BF91CC9CD2FC88343
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +748,8 @@ VA - Record Super Chart № 254 (18.08.2012) [MP3|320 кб/с]<Club, Dance>
 magnet:?xt=urn:btih:A93165BA5951E83D4DD0A8C4E3B6E2277507E008
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -706,38 +783,7 @@ VA - Любимой Женщине... (2CD) (2012) [MP3|256 кб/с]<Шансо�
 magnet:?xt=urn:btih:E5F4BCC7097B2372270CA2049586310FC9530DB1
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538183   (510573) от 22.08.2012
-
-VA - In Da Club Vol.65 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510573.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Reverse - Endless Journey (Original Mix)
-002. Moonbeam feat. Avis Vox - Star Way (Big Room Original Mix)
-003. Markus Schulz Presents Dakota - Katowice (Mr Pit Remix)
-004. Rex Mundi - Valley Of Dreams (Original mix)
-005. Norin & Rad vs. Recurve - The Gift (Original mix)
-006. Myon feat. Shane 54 & Carrie Skipper - Vampire (Club Mix)
-007. Orjan Nilsen - Between The Rays (Original)
-008. Miroslav Vrlik feat. Martin Jurenka - Join Together (Hoyaa Rising Remix)
-009. Rainbow Addict - Solar Spin (Not Okay Mix)
-010. Nash & Pepper - Aftersun (Mike Foyle Full Moon Remix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 01:53:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BF3AE7E6E17E643DFF44CDB154D1D5BA551DAB2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

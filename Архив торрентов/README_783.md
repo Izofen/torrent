@@ -28,6 +28,8 @@ Upon A Burning Body - Red. White. Green. (2012) [MP3|~245 кб/с (V0)]<Metalcor
 magnet:?xt=urn:btih:A3035EDC57753ABA97B00B7DBBE743786839F60D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -58,6 +60,8 @@ Gary Boyle - Electric Glide (1993) [FLAC|Lossless]<Jazz-Rock>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +96,8 @@ Murder Bay - Never Was An Angel (2012) [MP3|320 кб/с]<Hard Rock>
 magnet:?xt=urn:btih:4F304FDCE09864CCFC58FDD70C6BF695930F2224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +131,8 @@ St. Prostitute - Here Come The Prostitutes (2012) [MP3|320 кб/с]<Hard Rock, S
 magnet:?xt=urn:btih:3D1E15482C4F7698833F33462B8DFFF8F51D1CF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +159,8 @@ iO and Goshva - Lazy Time EP (2012) [MP3|320 кб/с]<Tech House>
 ```bash
 magnet:?xt=urn:btih:4ECCAC36300CA620D80923700835CDC4F8F540AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +190,8 @@ magnet:?xt=urn:btih:4ECCAC36300CA620D80923700835CDC4F8F540AF
 magnet:?xt=urn:btih:D460370FFDE8D0D6E5600DFAB4F7F8A0C7F2296B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +215,8 @@ magnet:?xt=urn:btih:D460370FFDE8D0D6E5600DFAB4F7F8A0C7F2296B
 ```bash
 magnet:?xt=urn:btih:37E1A98867791D6D2BAF27893C541E8A2DF2643F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -230,6 +244,8 @@ Wise Disk Cleaner - программа для быстрого и легкого
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +270,8 @@ Auslogics Disk Defrag - бесплатная программа, призван�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +295,8 @@ Inked - журнал о тату и искусстве татуирования,
 ```bash
 magnet:?xt=urn:btih:6247864161878A504F307AA352F924A480605E52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +326,8 @@ magnet:?xt=urn:btih:6247864161878A504F307AA352F924A480605E52
 magnet:?xt=urn:btih:85701B4C8AA224A95AB421364890449885A1669B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +351,8 @@ magnet:?xt=urn:btih:85701B4C8AA224A95AB421364890449885A1669B
 ```bash
 magnet:?xt=urn:btih:4AF54851348062021C14FDEC746BB0EA143968F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +387,8 @@ Simple Man - Galactic Prophecy (2012) [MP3|320 кб/с]<Psychedelic / Progressiv
 magnet:?xt=urn:btih:1070F48FAE4F547C08BE9201B2765600AEF5AD18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +412,8 @@ magnet:?xt=urn:btih:1070F48FAE4F547C08BE9201B2765600AEF5AD18
 ```bash
 magnet:?xt=urn:btih:6429FA4D2EF71FB4900762D525D1FAACD259B001
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +440,8 @@ magnet:?xt=urn:btih:6429FA4D2EF71FB4900762D525D1FAACD259B001
 magnet:?xt=urn:btih:0812A3D95CC092D4755914558232403BF080C8FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +465,8 @@ magnet:?xt=urn:btih:0812A3D95CC092D4755914558232403BF080C8FD
 ```bash
 magnet:?xt=urn:btih:139F60FAE4ED471A5B2007F15315F3DBC1C50A88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +501,8 @@ VA - Klubnye novinki Vol.63 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
 magnet:?xt=urn:btih:719F36395203B65D967D9ECBE148AA41454B8B69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +526,8 @@ magnet:?xt=urn:btih:719F36395203B65D967D9ECBE148AA41454B8B69
 ```bash
 magnet:?xt=urn:btih:2E625B07DED260986845B6AF44F4FC72FE4EC5E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +557,8 @@ magnet:?xt=urn:btih:2E625B07DED260986845B6AF44F4FC72FE4EC5E8
 magnet:?xt=urn:btih:FE6F611020512ED4510D8B854DB036108428ECAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +583,8 @@ magnet:?xt=urn:btih:FE6F611020512ED4510D8B854DB036108428ECAE
 magnet:?xt=urn:btih:83F9BBABBDAC9A25685178C5E35DA2FAE33889BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +608,8 @@ magnet:?xt=urn:btih:83F9BBABBDAC9A25685178C5E35DA2FAE33889BE
 ```bash
 magnet:?xt=urn:btih:DACF661DBD1713A622088FAEC9F4641585FFE839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +644,8 @@ VA - Minimalistic Groover (2012) [MP3|320 кб/с]<House, Minimal>
 magnet:?xt=urn:btih:72D024CF12747555C703E6D4E3CDE54EA24716B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +672,8 @@ magnet:?xt=urn:btih:72D024CF12747555C703E6D4E3CDE54EA24716B6
 magnet:?xt=urn:btih:EC0C48971206ED8581887579DDD4B6BB56B8CEF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +698,8 @@ magnet:?xt=urn:btih:EC0C48971206ED8581887579DDD4B6BB56B8CEF8
 magnet:?xt=urn:btih:4B5805A0AD4F9F54BC7998DD6D712866D6845E35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -675,6 +723,8 @@ FAR Manager - мощнейший известный всем консольны�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -708,6 +758,8 @@ FAR Manager - мощнейший известный всем консольны�
 ```bash
 magnet:?xt=urn:btih:0800A7C828E83C26AF821CCE18313F4B7BC0FC46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

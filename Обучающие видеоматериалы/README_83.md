@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:9B80A857F56B0BFB736641C983C84A0C49EB57CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Udemy, Terry Mc Gonigle | Английский для собеседований
 magnet:?xt=urn:btih:98690F4740FCBCB6091C20C7C9FB7405274419EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Udemy, Martin Yanev | ChatGPT Software Mastery: Build, Deploy & Sell AI Apps (20
 ```bash
 magnet:?xt=urn:btih:A59DD259ADEDB7470C92EFB6AEF3AFD8C5ED9C1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:A59DD259ADEDB7470C92EFB6AEF3AFD8C5ED9C1E
 magnet:?xt=urn:btih:F0A87A8A79C6987D483EDD23B250C4CC70B01A22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Udemy, Stefan Mitrovic | Ai Youtube Masterclass: Unleash the Passive Income (202
 ```bash
 magnet:?xt=urn:btih:E622CB936A4E3612157403A9EF78CBED76EDCEE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ Contrse, Дарья Калугина | Интенсив по фуд-фотогр
 magnet:?xt=urn:btih:1449C322E6F92B18C8913ADD6A4E6803B197D980
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ Udemy, Maamir Houssam Eddine | 3d visualization , 3ds max, V-ray, Ps: 3D render 
 magnet:?xt=urn:btih:A18BE64C30B0B2FAE1DAC46558965B0CDD4CA2BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:A18BE64C30B0B2FAE1DAC46558965B0CDD4CA2BB
 ```bash
 magnet:?xt=urn:btih:AE090CCE48283BA2CFBA89C60D4721D6D8B87963
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ Thinknetica Pro, Кирилл Храпков  | Проектирование Б�
 magnet:?xt=urn:btih:6CA6912EAECB072CAB9396315C79DB6D152A2066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ magnet:?xt=urn:btih:6CA6912EAECB072CAB9396315C79DB6D152A2066
 ```bash
 magnet:?xt=urn:btih:D28BA8621C773C9AE20B4AB1F0635AF5688D8137
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +300,8 @@ Udemy, Василий Швалев | Ultimate QGIS: с нуля до экспе�
 magnet:?xt=urn:btih:49D8DE7BA3958BCA45E12FE4A94757672FF60D81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ DevOops - конференция от JUG Ru Group, посвященная пр�
 ```bash
 magnet:?xt=urn:btih:DF2378802B114DC8286341596EC24AAAF5C00345
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ Udemy, Derek Smith | The Complete English Idioms Course - Master English Idioms 
 magnet:?xt=urn:btih:48B85B923BA2E340B4357EDBF42FE96B10A75483
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ DotNext — крупнейшая и старейшая конференция д
 ```bash
 magnet:?xt=urn:btih:71E0003217E1431090616AB082042D83B2ACB37E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ The Gnomon Workshop, Simon Littlejohn | Creating an FX Production Shot in Houdin
 magnet:?xt=urn:btih:03269AEECFB05D7194DA46488DB1094DDF971943
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ Udemy, Brad Merrill | Modern Productivity — Superhuman Focus In A Distracted W
 magnet:?xt=urn:btih:9F430CE8CD782E55A9ED6267D0CB1615679569B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ The Gnomon Workshop, Timucin Ozger | Controlled Building Demolition FX in Houdin
 ```bash
 magnet:?xt=urn:btih:796855A7AA5EF1D911EB3A9E7B54CBFD965BF8DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ Robby Branham | Creating Volumetric Effects with Houdini (2019) WEB-DL [EN]
 magnet:?xt=urn:btih:8742D087756218676EAAEDBAAF6342BDCD7E8505
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:8742D087756218676EAAEDBAAF6342BDCD7E8505
 magnet:?xt=urn:btih:5384981D13EED6BDBFA973F131E2CFCF602A514B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:5384981D13EED6BDBFA973F131E2CFCF602A514B
 ```bash
 magnet:?xt=urn:btih:00DE893DCFC9DBE130F53252C3C0DB1EE47DD1C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:00DE893DCFC9DBE130F53252C3C0DB1EE47DD1C6
 magnet:?xt=urn:btih:CC69C616B5FE8F3214F598909EE63AA7672CA95E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:CC69C616B5FE8F3214F598909EE63AA7672CA95E
 magnet:?xt=urn:btih:D724DC872044075FCE8983DECCA21D0FF8153CB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:D724DC872044075FCE8983DECCA21D0FF8153CB3
 ```bash
 magnet:?xt=urn:btih:7151202E0F9ADC173C280838CA7F17BDCFAB744C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:7151202E0F9ADC173C280838CA7F17BDCFAB744C
 magnet:?xt=urn:btih:3AF8C2E7D690CC7BE71113B8B380B518531A1BE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ magnet:?xt=urn:btih:3AF8C2E7D690CC7BE71113B8B380B518531A1BE6
 magnet:?xt=urn:btih:B434DE030C1358E789E03E769C6E3BBFFA2EC2C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ Systems.Education, babok-school.ru, Зоя Степчева, Анна Вичуг
 ```bash
 magnet:?xt=urn:btih:F3BA27119C83976930A5C30550A0C38EA20FACC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

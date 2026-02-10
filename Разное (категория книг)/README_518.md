@@ -1,3 +1,29 @@
+###  Публикация: 1391102   (781782) от 18.06.2020
+
+Павел Андреев | Астрология. Все тайны натальной карты (2019) [EPUB]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Павел Андреев – профессиональный астролог, руководитель собственной астрологической лаборатории LabLife, специалист по математическим методам прогноза. Занимается астрологией более 10 лет, имеет образование в этой области и высшее образование в области прикладной информатики. Павел специализируется на астрологии финансов, подборе персонала, а также коррекции судьбы. (   Читать дальше...   )Жанр: Практическая эзотерикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDC27C9FBC14EADECE5CF06B040DA4321F90B7BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390934   (781783) от 18.06.2020
 
 Книжная серия | Мастера психологии [13 книг] (2015-2020) [EPUB]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:2E4D90DF30E7E4C3B654B08931A14972C0367340
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:2E4D90DF30E7E4C3B654B08931A14972C0367340
 magnet:?xt=urn:btih:A9A163BE8D926B212DE5A97A6D956081B52C7753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:A9A163BE8D926B212DE5A97A6D956081B52C7753
 magnet:?xt=urn:btih:4C9F4ECE9D946CB86461CDC4DD3D7B3479BD0D06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:4C9F4ECE9D946CB86461CDC4DD3D7B3479BD0D06
 ```bash
 magnet:?xt=urn:btih:F0C02014E1193889D1DA9827A595169EAE1C6095
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:F0C02014E1193889D1DA9827A595169EAE1C6095
 magnet:?xt=urn:btih:2D668614E77B42D10AAA0D3BA307A033DD8D05B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:2D668614E77B42D10AAA0D3BA307A033DD8D05B1
 magnet:?xt=urn:btih:2A3FE629539D8EC5FC6D12CB55AAD29AC3C20549
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:2A3FE629539D8EC5FC6D12CB55AAD29AC3C20549
 ```bash
 magnet:?xt=urn:btih:6783D66A1955834DCA4E86BE267434952329E27D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:6783D66A1955834DCA4E86BE267434952329E27D
 magnet:?xt=urn:btih:914B1AE881EAA8730A4407BA7A50083FD6DFA0F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:914B1AE881EAA8730A4407BA7A50083FD6DFA0F4
 ```bash
 magnet:?xt=urn:btih:09FB99A5EF0C3DD08B33C35B3F1B572A174B6E8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:09FB99A5EF0C3DD08B33C35B3F1B572A174B6E8F
 magnet:?xt=urn:btih:81F5DEABD52C342F7AAD642CD8BD91196DBC3709
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:81F5DEABD52C342F7AAD642CD8BD91196DBC3709
 ```bash
 magnet:?xt=urn:btih:62549BB12ED969A027DFAF89293BCA8D7528243D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:62549BB12ED969A027DFAF89293BCA8D7528243D
 magnet:?xt=urn:btih:5BF22186FDFEA24789DE2322A9B3490CCFC938A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:5BF22186FDFEA24789DE2322A9B3490CCFC938A6
 ```bash
 magnet:?xt=urn:btih:2AEB89B3D43187B77A563DDA88261FE3C66F30A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:2AEB89B3D43187B77A563DDA88261FE3C66F30A0
 magnet:?xt=urn:btih:76A498127D7D3D8C7BB02096E505299A923A8132
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:76A498127D7D3D8C7BB02096E505299A923A8132
 magnet:?xt=urn:btih:7537125045141F2705C0937A333BC1A8E8A0330F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:7537125045141F2705C0937A333BC1A8E8A0330F
 ```bash
 magnet:?xt=urn:btih:B112A4A9D8B42F556D1981CCD352F46C6828335E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +475,8 @@ magnet:?xt=urn:btih:B112A4A9D8B42F556D1981CCD352F46C6828335E
 magnet:?xt=urn:btih:55A1396B5378868BAB5451118465C85B79FAA8A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +504,8 @@ magnet:?xt=urn:btih:55A1396B5378868BAB5451118465C85B79FAA8A9
 magnet:?xt=urn:btih:64C8AB069C0DE2B9C5DAEC27AC70FFF72DCF03DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +531,8 @@ magnet:?xt=urn:btih:64C8AB069C0DE2B9C5DAEC27AC70FFF72DCF03DC
 ```bash
 magnet:?xt=urn:btih:00337751E3071E163CCF2109CABAA96E89E2AB0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +560,8 @@ magnet:?xt=urn:btih:00337751E3071E163CCF2109CABAA96E89E2AB0F
 magnet:?xt=urn:btih:2A3C86A81012CF5E167EDA1E9351F467BEB580E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +585,8 @@ magnet:?xt=urn:btih:2A3C86A81012CF5E167EDA1E9351F467BEB580E1
 ```bash
 magnet:?xt=urn:btih:15DC8E3B0F49333331E93D1CB58FA3C5F8F8572E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +614,8 @@ magnet:?xt=urn:btih:15DC8E3B0F49333331E93D1CB58FA3C5F8F8572E
 magnet:?xt=urn:btih:575E7C187C06C7A19B06BBBB4252BD850F687967
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +639,8 @@ magnet:?xt=urn:btih:575E7C187C06C7A19B06BBBB4252BD850F687967
 ```bash
 magnet:?xt=urn:btih:D729EB2B6CD8158AB596362D1644A1A84565D139
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +667,8 @@ magnet:?xt=urn:btih:D729EB2B6CD8158AB596362D1644A1A84565D139
 magnet:?xt=urn:btih:C1B2024729F8F7BB6EBDF45FA36E94F806116633
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,29 +693,7 @@ magnet:?xt=urn:btih:C1B2024729F8F7BB6EBDF45FA36E94F806116633
 magnet:?xt=urn:btih:5E53DC64D6968910D3CF91764D2C413F6C3F8354
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206158   (782493) от 13.02.2018
-
-Ю.А. Высоцкая | Воскресные завтраки (2015) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идеальное утро! Каждый, наверное, представляет его по-своему. Для Юлии Высоцкой это утро столь желанного выходного дня, когда никуда не нужно спешить. В такой день ты предоставлен самому себе, своим любимым и родным и можешь сделать из утренней еды целое событие, считает Юлия и предлагает читателям интересные, яркие и запоминающиеся рецепты для воскресного завтрака (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5A61239E20C6F327FC3512864D59886ABF57D13
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Puffin Browser Pro – быстрый браузер нового поколен
 magnet:?xt=urn:btih:361B83007CC656C14DDD879DAC1280E06650D2C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Lightricks Motionleap (Enlight Pixaloop) (Mod By AlexaLiza) v1.3.9 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:570538093DE717536ABD2E30B2B089F27E546CE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Quick PDF Scanner + OCR Pro - Удобный сканер прямо в ваше
 magnet:?xt=urn:btih:10AF343B7A024F66949C06DA84324AC5BD00970B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ aniPet Aquarium Live Wallpaper — хорошие живые обои для в�
 ```bash
 magnet:?xt=urn:btih:400CAA8D9E43FDE060C0C5A764EA996E56108595
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Cool Reader 3.1.2-69 [Ru/Multi]
 magnet:?xt=urn:btih:E025E53F59FE7F8F9A992A400E0B46DFA630D1EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Voice Aloud Reader – весьма удобное приложение для �
 magnet:?xt=urn:btih:44B61EDAE52241B34C641CBDD7A0AEA750C3304F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Aqua Map Marine - Boating GPS v20.4 [En]
 ```bash
 magnet:?xt=urn:btih:C930237CBB44502EF82C7D29E8CAD4B720FBD81D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ BubbleUPnP v3.6.6.1 Pro [Ru] - for DLNA / Chromecast / Smart TV
 magnet:?xt=urn:btih:55A5E2EBD5D90CA6D3786562394A488F8270FE97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ tinyCam Monitor PRO v15.3.4 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5335BB833F1DFEE9F7838D2D8AA41D6357D3200A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:5335BB833F1DFEE9F7838D2D8AA41D6357D3200A
 magnet:?xt=urn:btih:82897DEDA150EEB2265D364E2E354F1B3B94E0CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Randomer - программа, с помощью которой Вы может�
 ```bash
 magnet:?xt=urn:btih:1433A231E130482DD26A4118EA5E6041774108C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:1433A231E130482DD26A4118EA5E6041774108C1
 magnet:?xt=urn:btih:B16A1FCA002DECC48FE63C9B53B7A6839B8BF05B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:B16A1FCA002DECC48FE63C9B53B7A6839B8BF05B
 ```bash
 magnet:?xt=urn:btih:110EB368760CC4DEC8A53B75B678C3575383AC9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Weather Channel предоставляет вам самую важную и т�
 magnet:?xt=urn:btih:AD3DFF729210204912F18BD1567A2FB510406126
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ ZenMate предоставляет вам услуги виртуальной ч
 ```bash
 magnet:?xt=urn:btih:39B594491BC0492CA9C2678D96ED44D0BD46C276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Super Backup Pro: SMS&Contac - это программа для быстрого
 magnet:?xt=urn:btih:F3B3DE88B93A7998AE8527E6790A3EEEDEBD75F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:F3B3DE88B93A7998AE8527E6790A3EEEDEBD75F9
 ```bash
 magnet:?xt=urn:btih:7B2CC9891F0541E685FA219181A2C8E51ADC973D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:7B2CC9891F0541E685FA219181A2C8E51ADC973D
 magnet:?xt=urn:btih:C851FC8B7D1CDC75839D0687E0A8D3854D4E4FC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:C851FC8B7D1CDC75839D0687E0A8D3854D4E4FC1
 ```bash
 magnet:?xt=urn:btih:AD8F3A577A986FFB8FE12A6089B10780F6E132FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:AD8F3A577A986FFB8FE12A6089B10780F6E132FE
 magnet:?xt=urn:btih:BF98C2B88345DCD62CA8B54A3A69CE3BC428B7B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:BF98C2B88345DCD62CA8B54A3A69CE3BC428B7B7
 ```bash
 magnet:?xt=urn:btih:6785551AB0EB4BFDF9A4C52A97F1369CF78215FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ SeeTV.tv v1.03 Ad-Free [Ru/Ua/En]
 magnet:?xt=urn:btih:C8C414060C385DDBD6F3D8CD8B18CA85C1A92B43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Aquarium Live Wallpaper v1.7 (Mod Ad Free) [En] - Живые обои с акв�
 ```bash
 magnet:?xt=urn:btih:D1ADBD20F1D94D93FC868127DFCD2F93AC4141D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:D1ADBD20F1D94D93FC868127DFCD2F93AC4141D3
 magnet:?xt=urn:btih:EBE4667FF768A1DDC6A872EA3D2F7A48EEEA568F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:EBE4667FF768A1DDC6A872EA3D2F7A48EEEA568F
 magnet:?xt=urn:btih:3E5287DA20627DF722A8E63F5002C54059C21C07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ YMusic - YouTube Music Player & Downloader v3.7.10 [Multi]
 ```bash
 magnet:?xt=urn:btih:9892A0DD4DF9D7EF9C171079CBBE79484EDB0DA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

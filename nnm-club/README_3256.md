@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:12EF380374CAA05C43B1AA8AFF570BB725161ABA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Soldiers of Anarchy / Солдаты анархии [Ru] (L/1.1.2.178) 2002
 magnet:?xt=urn:btih:53FC0EEAABB6951DDF16055E866415436078CADA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:53FC0EEAABB6951DDF16055E866415436078CADA
 ```bash
 magnet:?xt=urn:btih:EFC16EC932B73C4D5CD7B66FF4F2A7A843857F21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Lakon Rokum — смелый и выразительный шрифт, выпо�
 magnet:?xt=urn:btih:6225C1CEC09B44A53D9173851AD30EFDC12C6740
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:6225C1CEC09B44A53D9173851AD30EFDC12C6740
 ```bash
 magnet:?xt=urn:btih:2EF1F4A9B627421E73D189DD192F1D65D8E7673E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ karpov.courses, Виктор Кузнецов | Инженер данных (202
 magnet:?xt=urn:btih:A3691110C672514378FC929056562FD022B395EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Cat Quest - замуррчательная РПГ, чье действие пр�
 ```bash
 magnet:?xt=urn:btih:77D535959E85820509652B7A0FCF3FF1F68270F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Hard ML - это не стандартный курс по машинному о
 magnet:?xt=urn:btih:B7DEEBC4E47CAF07821E6284F60F23570C6E0611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:B7DEEBC4E47CAF07821E6284F60F23570C6E0611
 magnet:?xt=urn:btih:71FEEDB096C40E3CBB502585506AF464C60B28D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:71FEEDB096C40E3CBB502585506AF464C60B28D9
 ```bash
 magnet:?xt=urn:btih:2F89629B4ED7CB57BD7AE92A0B9F63E9AB79B307
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Cult of Luna — шведская пост-метал-группа из Умео
 magnet:?xt=urn:btih:5164CF6CE2F3EAC46A61DA2AE6BA526A0E3BE482
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ The Dark History of the Reincarnated Villainess | Tensei Akujo no Kurorekishi | 
 ```bash
 magnet:?xt=urn:btih:ADC6CF5BB679F05741D97D368BA69E0A0231868F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Seelen UI имеет обширную библиотеку (пресетов).Я
 magnet:?xt=urn:btih:873B5C0DD4FA7B641D6FC490F3BEBE9C1A054DC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:873B5C0DD4FA7B641D6FC490F3BEBE9C1A054DC2
 ```bash
 magnet:?xt=urn:btih:C640C3AF3812364E4D050B623C747D6AAA864447
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:C640C3AF3812364E4D050B623C747D6AAA864447
 magnet:?xt=urn:btih:45841B71233CCCB46F94A66EFFD572B6AC1F457F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ Genoir — это современное семейство шрифтов с я
 magnet:?xt=urn:btih:9A5C8149B89D7858FE0724E9660A72AC1A3F1366
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:9A5C8149B89D7858FE0724E9660A72AC1A3F1366
 ```bash
 magnet:?xt=urn:btih:57EE3802ADB239169880AC6D65753A7B29450FBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:57EE3802ADB239169880AC6D65753A7B29450FBC
 magnet:?xt=urn:btih:D934D96080E9233F9B0406C3A0D9E0FB4184D2E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ TBS GARTEK CONDENSED способен удовлетворить ваши тек
 ```bash
 magnet:?xt=urn:btih:AA7E8AE66FC0733095ED55147EE3F354D11AF7A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ Acres - The Host (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, Altern
 magnet:?xt=urn:btih:57A6585CD6F8E193482A5188F196EBC6E486A6F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ magnet:?xt=urn:btih:57A6585CD6F8E193482A5188F196EBC6E486A6F8
 ```bash
 magnet:?xt=urn:btih:4124C0731632BD93626B9984C2CF44999F843C05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ Playingtheangel - любовь побеждает смерть (2025) [FLAC 24/4
 magnet:?xt=urn:btih:802FD7628BE3C3AE6080BBE40420A857B3BC5E77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ Cat Quest II рассказывает историю двух королей, к
 magnet:?xt=urn:btih:6BF0494702743CCA157158BDDBA28D6B58EB9D37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:6BF0494702743CCA157158BDDBA28D6B58EB9D37
 ```bash
 magnet:?xt=urn:btih:1D2BDBC659A21405EDCAF037EBB7E3CC6FC6EAD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ Deaf Havana - We're Never Getting Out (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:E4161169AF4D5039D871CEC46ACDA7F0630BA41D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ Shen Lab - Relaxing Blues (2024) [MP3|320 Kbps] <Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:226ED5FEF6F356B605588DDAAE26BD09BEF4AF50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

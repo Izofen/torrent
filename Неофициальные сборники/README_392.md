@@ -1,3 +1,32 @@
+###  Публикация: 1032631   (644023) от 08.07.2016
+
+VA - Intimate Lounge Moments: Finest Deluxe Bar and Del Mar Music (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cromatic - Sun, Dance and Wine - Afterwork Beach Cafe Mix
+02. Kylie with Robin - Nightflight to Ibiza Beach - Cafe Time Mix
+03. Unlocked Desire - Wicked Game - Hunger to Love You Cut
+04. Chillplaza - White Horse - Aurora Burials Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CF5D02EE940D10DEAAA76896461FE43B441756F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142174   (644266) от 13.06.2017
 
 VA - Rap And Trap Hip (2017) [MP3|320 Kbps] <Rap, Hip-Hop, Trap>
@@ -21,6 +50,8 @@ VA - Rap And Trap Hip (2017) [MP3|320 Kbps] <Rap, Hip-Hop, Trap>
 ```bash
 magnet:?xt=urn:btih:5A6BE2385085004F2F20E19DA4C3202CA89F0BCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Первый молниеносный (2017) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:84E2606E03ACD2D185D0F6C4CC62C4D5FC7F0D84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Summer All Stars NRJ Mix (2017) [MP3|241-320 Kbps] <Pop, Dance, RnB>
 ```bash
 magnet:?xt=urn:btih:C7C96343504B101CD630CC185ED7E1F2D83760FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Dream Electronic: Chill Synthwave (2022) [MP3|320 Kbps] <Electronic, Synthw
 magnet:?xt=urn:btih:9C14160CA672F79BF4338DC4838F1D743AD06D80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - The Land Of Country Music (2022) [MP3|320 Kbps] <Country, Folk Blues>
 ```bash
 magnet:?xt=urn:btih:337AC82D29F2712D9835FC957199C09F36E8D403
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +202,8 @@ magnet:?xt=urn:btih:337AC82D29F2712D9835FC957199C09F36E8D403
 magnet:?xt=urn:btih:B15FC53BBDC513F19DF468B30DFB991E68BA6154
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +231,8 @@ VA - Dинамик. Лето (2017) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:671E748F91039D26C96319FCFA382F401FBB71B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +259,8 @@ VA - Танцевальный рай 38 (2017) [MP3|320 Kbps] <Pop, House, Dance
 ```bash
 magnet:?xt=urn:btih:ABEA1ED1AE92D116D651FF5299DAF9B874472DF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +304,8 @@ VA - MAXI. Лучшие медленные хиты 3CD (2012) [MP3|320 кб/с]
 magnet:?xt=urn:btih:BC4753ECCEB95CE2A0924CDE9034BEAFC3F4A1CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +332,8 @@ VA - Music News vol.177 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:A85F6903053AA7481C12AA5577433D70BC41D7A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +362,8 @@ VA - Record Super Chart 02.04.2022 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:CA8FD5300C9FC8B65323F8B2C57AA246B1A9C4E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +390,8 @@ VA - ЕвроХит Топ 40 Europa Plus 29.03.2019 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:161B06793B00FBD239E8D45CD46DE7A49B11A9A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +421,8 @@ magnet:?xt=urn:btih:161B06793B00FBD239E8D45CD46DE7A49B11A9A1
 magnet:?xt=urn:btih:6550B427ADBD645025EFA2DCE46CFDEA47AD8367
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +451,8 @@ magnet:?xt=urn:btih:6550B427ADBD645025EFA2DCE46CFDEA47AD8367
 magnet:?xt=urn:btih:CD6B7D96531EEEB72179FAB03535211ACC434E10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +479,8 @@ magnet:?xt=urn:btih:CD6B7D96531EEEB72179FAB03535211ACC434E10
 ```bash
 magnet:?xt=urn:btih:3400119998DD53D446C2BA2F24E29233132178BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +509,8 @@ VA - The Official UK Top 40 Singles Chart 29.03.2019 [MP3|320 Kbps] <Pop, Dance,
 magnet:?xt=urn:btih:8029138DBB4DE18966DA8F2CC3288A2B7C9C7342
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +538,8 @@ VA - Дискотека забытых хитов (зарубежная) - 11 (2
 magnet:?xt=urn:btih:251F9C8A0A08527B47B9AEF64EF020DA8C4298EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +566,8 @@ VA - The Most Essential Smooth Jazz (2015) [MP3|320 кб/с]<Jazz, Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:CC541D1DD7D654B25F70DED8C126C5945E16008B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +602,8 @@ VA - Хиты блатной волны (2012) [MP3|256 кб/с]<Шансон>
 magnet:?xt=urn:btih:650FF73B71459B68BE04315A6A2176DBF85BB909
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +630,8 @@ VA - Зарубежная Дискотека ХХ Века - 80 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:A73671C1F25CB5CA290183BEBA8B84CF4691D585
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +666,8 @@ VA - Музыка для хорошей компании Vol.5 (2012) [MP3|256 �
 magnet:?xt=urn:btih:1682520FCDC35424DF18B8AD5469DD3A6AF4EDBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +697,8 @@ VA - The Very Best of Sexy Guitar Lounge Summer Chillout (2012) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:760E3C61843F8ECCB1DAD17395CD75DDE8222D33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -660,6 +733,8 @@ CD-1
 magnet:?xt=urn:btih:19FEE756DD475AFA92D0854361FE1546DF02A8FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +768,8 @@ VA - Летний Кураж Европы Плюс (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:161F2775A4B6FFD9A643DE5161E38A48CBF189C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -720,38 +797,7 @@ VA - Самый Хитовый Сборник (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:C17511ED9F43DCAD7EB44F7F8F7C05C8D0BC3560
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517838   (645582) от 02.07.2012
-
-VA - Убойный Русский Club В Машину (2012) [MP3|192 kbps]<Club|Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Глюк`oza - Хочу мужчину (DFM mix)
-02. Светлана Лобода - На свете (Kerim Muravey & Graver remix)
-03. El Ray - Безлимитная любовь (Dj Denis Rublev & Dj Natasha Baccardi remix)
-04. Stephane Coker - Без Тебя (Dj Nejtrino Club Edit Unreleased)
-05. Michael Yousher - Там где мы будем (you & me) (extended mix)
-06. Steel Deluxe - Сердце открой (Johan K remix)
-07. DJ Miller & Julia Lasker - Raй (Arthur Project Tel-Aviv remix)
-08. Aksioma Project - Без тебя (D'Marzio remix)
-09. DJ Solovey feat. Leila - Всё впереди (Sergey Clash remix)
-10. ViRUS! - ЧЗF(   Читать дальше...   )Жанр: Club|DanceПродолжительность: 07:26:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2C73E0DEFA06FECC1D994B0E5C875D361856014
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

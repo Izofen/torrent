@@ -20,6 +20,8 @@ PhotoSweeper — отличный способ поиска дубликатов
 magnet:?xt=urn:btih:59051EB4D978B9704B7778B7C23F678B20DB2B33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ One Switch - это крошечное приложение, разработа�
 ```bash
 magnet:?xt=urn:btih:543B42B10069A13E1509A65F9414635A5B9EAFC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 magnet:?xt=urn:btih:F21136189E908E3A16252F75490A6DC309B25BE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Infuse - прекрасный способ смотреть практическ
 ```bash
 magnet:?xt=urn:btih:65761A372473597432B3D90F0EA57A87BBBA4F97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Chain Timer 9.7 [Multi/Ru]
 magnet:?xt=urn:btih:7B679BDBF2B871B82D3A5B3EB6E4271BE849D6F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:0D9DB9EBD26D0014AB7349E4E4BD23CDC34A2CEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ YUMI (Your Universal Multiboot Installer) - бесплатная програм�
 ```bash
 magnet:?xt=urn:btih:5DCC594F083ED9F6EF18AF7102F8182129D472CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ SiteSucker умеет загружать (   Читать дальше...   )Т
 magnet:?xt=urn:btih:5FB10BE62FB373D67C672828FCB13B1E1F248E25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ FastStone Capture представляет собой довольно мощн�
 ```bash
 magnet:?xt=urn:btih:21638F45C96EA1F08D16DA20B33E021B2CF3DE60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Money Pro сократит расходы и покажет полную кар�
 ```bash
 magnet:?xt=urn:btih:C7981F5B7E08EE1FF383B2D5C4EBAB0D6DA8E34C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ VA - Sunset To Sunrise 2023 - Mixed by SMR LVE (2023) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:B4C9C3686FDDD8785CD14DC7EDE800361E33A614
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Ultimaker Cura - популярный слайсер для 3d-печати. О�
 ```bash
 magnet:?xt=urn:btih:553219AE454B44E7C48C43DE7C5D6E6CB331EFFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ LightX - это мобильный редактор фото, в котором 
 magnet:?xt=urn:btih:A7A4B68437ED2DA8FDF6D739D1E7FDF0DEC69D8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ PassMark RAMMon - удобная и полезная утилита для по�
 ```bash
 magnet:?xt=urn:btih:27B5D7931E09A9F6408867690977856BE181BB01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Devonthink Pro Office — программное обеспечение для �
 magnet:?xt=urn:btih:496881CA1C3B72F99576271A4FD6D0EA4E688AF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:8F94CB40178948C2D6F23F91B7E1768BE1FF9DA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Pixelmator Pro — это невероятно мощный, красивый и
 magnet:?xt=urn:btih:877A9639BB3756962636350FC799ADFED6C4B234
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Phase One Capture One - один из лучших профессиональн�
 ```bash
 magnet:?xt=urn:btih:7DDD51D1EFBD2A9BA7FBB7418D8EDA831DD6B631
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ FastStone Capture представляет собой довольно мощн�
 magnet:?xt=urn:btih:8D4FE390B50087D9675DDE4D466E6D42444C30BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:8D4FE390B50087D9675DDE4D466E6D42444C30BA
 ```bash
 magnet:?xt=urn:btih:FFA87565780BBF357CB8E08D015646533737E9BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ DrumComputer - это новый специалист по синтетичес�
 magnet:?xt=urn:btih:E88A15D1B18F27D743256B65EB1CDBCD07CD2806
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Shotcut - мощное кроссплатформенное приложение
 ```bash
 magnet:?xt=urn:btih:665A35DC8412EDADD3295028FDE9029ADD50A85E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Dropzone - удобная утилита для автоматизация ру�
 magnet:?xt=urn:btih:A4163E9A83E2CF8E6A3AA5CFFB160810FDF547F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Ghost Buster Pro находит и удаляет файлы из приложе
 ```bash
 magnet:?xt=urn:btih:BDF8645D7042D8254B52BB09C63ECBF80203091E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Magic Disk Cleaner находит и удаляет временные файл�
 magnet:?xt=urn:btih:8BC1D35972474E7834A03546BB6EDD0973862463
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Transcend SSD Scope - удобное приложение для работы с
 ```bash
 magnet:?xt=urn:btih:DD8FB58AD161728DC1B6A4D9FA721AF3477DBC10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

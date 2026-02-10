@@ -1,3 +1,29 @@
+###  Публикация: 1355148   (984864) от 25.01.2020
+
+Тренер (2019) WEB-DLRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм об одном из первых и самых известных тренеров по дзюдо в Советском Союзе Анатолии Семеновиче Рахлине. Он был наставником не только выдающихся спортсменов, но и просто выдающихся людей...Производство: Россия / Красный квадратЖанр: Документальный, спортРежиссер: Андрей ФурманчукСубтитры: ОтсутствуютПродолжительность: 00:59:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCDDDE564570291607E68D147C50B6AC684D853A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 435222   (985341) от 11.01.2012
 
 Гренландия: Дикая природа страны викингов / The Green Land: Wildlife in the Land of Vikings (2005) [720p] HDTVRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:00A2EEC6C1D1C2A72AC7A3CC1F04A6CAAFED64F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:00A2EEC6C1D1C2A72AC7A3CC1F04A6CAAFED64F4
 magnet:?xt=urn:btih:7F88254FF79E83C9A8C08031526F8057152F3BB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ BluScenes: Цветущие сады / BluScenes: Flowering Gardens (2012) [H.26
 ```bash
 magnet:?xt=urn:btih:C1F7006F95DD4D892040282539B743E0FD449FF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:C1F7006F95DD4D892040282539B743E0FD449FF7
 magnet:?xt=urn:btih:44EFE43CA7CEF5CC9408238C9F54C9B1F31C81A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:44EFE43CA7CEF5CC9408238C9F54C9B1F31C81A6
 ```bash
 magnet:?xt=urn:btih:1709957BDDA7E0415ACCACB5F0CB945477211C91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:1709957BDDA7E0415ACCACB5F0CB945477211C91
 magnet:?xt=urn:btih:53C504A2AF28EB921E1A00DD954D8CF04FBBF297
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:53C504A2AF28EB921E1A00DD954D8CF04FBBF297
 ```bash
 magnet:?xt=urn:btih:69EE9B5ECE02E9EBB772D266CB8EB6F790C92699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ CCCP. Обратный отсчёт. Архипелаг Стройлаг (2008) 
 magnet:?xt=urn:btih:57221242D669FB17DAA6144E3A674EE15F20170F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:57221242D669FB17DAA6144E3A674EE15F20170F
 ```bash
 magnet:?xt=urn:btih:12AEB9D7EBD4B7B627F469CE0C71421E3F8852CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:12AEB9D7EBD4B7B627F469CE0C71421E3F8852CF
 magnet:?xt=urn:btih:3CADC21A00EF673AF33549E67A8E0D1D6BF7B0AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:3CADC21A00EF673AF33549E67A8E0D1D6BF7B0AB
 ```bash
 magnet:?xt=urn:btih:4324A664D0319DE79654B5AE7A5CAC26391A1C09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:4324A664D0319DE79654B5AE7A5CAC26391A1C09
 magnet:?xt=urn:btih:4E767DE1C5C780DBDDF4CDCD6AEA5C1CE36F57A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:4E767DE1C5C780DBDDF4CDCD6AEA5C1CE36F57A5
 ```bash
 magnet:?xt=urn:btih:CBA6097051C077EFAED68329DF6091282C3BA4E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:CBA6097051C077EFAED68329DF6091282C3BA4E9
 magnet:?xt=urn:btih:D5C34C2AD6CF35CAB477B38468ECB0A52FE37CD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:D5C34C2AD6CF35CAB477B38468ECB0A52FE37CD3
 ```bash
 magnet:?xt=urn:btih:E8AAC99FCA17333384273CFA33CEBFC9618EC8AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:E8AAC99FCA17333384273CFA33CEBFC9618EC8AF
 magnet:?xt=urn:btih:F0D9D0B201EC58E373B91ECC4C6291F9DAABD945
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:F0D9D0B201EC58E373B91ECC4C6291F9DAABD945
 ```bash
 magnet:?xt=urn:btih:97A600A7CCAA9AC967175E099703DA9E95C78DCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:97A600A7CCAA9AC967175E099703DA9E95C78DCD
 ```bash
 magnet:?xt=urn:btih:AFDC6F56BBAF347C82758F5A1D5341574C01F70E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:AFDC6F56BBAF347C82758F5A1D5341574C01F70E
 magnet:?xt=urn:btih:37BF5CF9230444A292C22CD3E643044DF01A216A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:37BF5CF9230444A292C22CD3E643044DF01A216A
 magnet:?xt=urn:btih:D024E9B475C5FFA0378492AD5D7CBCBFDC926A82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:D024E9B475C5FFA0378492AD5D7CBCBFDC926A82
 ```bash
 magnet:?xt=urn:btih:9EDFCF1C1D1912FDAB4575A5A3183D4A79339401
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:9EDFCF1C1D1912FDAB4575A5A3183D4A79339401
 magnet:?xt=urn:btih:784C23A3CEEC901926CBD7652E3A055772DCC2E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:784C23A3CEEC901926CBD7652E3A055772DCC2E8
 ```bash
 magnet:?xt=urn:btih:11695F8860960D1E40C64D04EA8981F1505C8762
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:11695F8860960D1E40C64D04EA8981F1505C8762
 magnet:?xt=urn:btih:06A2ED12A9C935DDD12C177E14B71F49E312751F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,29 +680,7 @@ magnet:?xt=urn:btih:06A2ED12A9C935DDD12C177E14B71F49E312751F
 magnet:?xt=urn:btih:F873B56FA00BC32297124B8AB3476F40061C1138
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611797   (988070) от 31.01.2013
-
-Без обмана. Чашка бодрости (30.01.2013) IPTVRip
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988070.jpg" />
-</div>
-
-
-###  Подробнее
-
-На банках и упаковках с кофе мы всегда видим надпись "натуральный". Но с зёрнами, которые прибыли к нам из Индии и Эфиопии, в России происходят чудесные метаморфозы…Чем травят себя граждане по утрам, думая, что заряжаются бодростью? Что на самом деле находится внутри капсул для кофемашин? И можно ли сегодня пить растворимый кофе?Жанр: Документальный, ТелепередачаПродолжительность: 00:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EDBB1B7182CCF173B32CD83E1C4C3AD6D27CD2A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

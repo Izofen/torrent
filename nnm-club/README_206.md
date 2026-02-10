@@ -19,6 +19,8 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.07a/dlc) Scene Rune
 magnet:?xt=urn:btih:3ED36EE98197ECCEEAC8F59716E13491575CAE25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Lords of the Fallen представляет совершенно новое э�
 ```bash
 magnet:?xt=urn:btih:56600C0966FD6640EE7791713533E76847FECDB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Zentimo xStorage Manager - (аналог USB Safely Remove) это менедж�
 magnet:?xt=urn:btih:90727DDF34E84B26D77861ECFBEE41815DECFA79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Office Installer - программа предназначена для online �
 ```bash
 magnet:?xt=urn:btih:299762E388656621C1C5B8CC5B707B19C99409F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Shantae Advance Risky Revolution (2025) [Multi] (1.0.2/dlc) Repack Let'sРlay [D
 magnet:?xt=urn:btih:A733CC6613DE2AE186C76CE3911FB86B31B76B5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:A733CC6613DE2AE186C76CE3911FB86B31B76B5C
 ```bash
 magnet:?xt=urn:btih:9C9B13B08156F25D33E9C0EFF7EF6684AC7934C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Google вводит обязательную верификацию для вс�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.7.0/dlc) Repack Wanterlude [Comp
 magnet:?xt=urn:btih:CC30DA458A1F0E282548B5F15DD685808535984F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ magnet:?xt=urn:btih:CC30DA458A1F0E282548B5F15DD685808535984F
 ```bash
 magnet:?xt=urn:btih:587B2F9CBAE9E3FEF9C49324C8EE9FEA7F8CC55C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Purpleschool, Антон Ларичев | Feature-Sliced Design (2025) WEB-DL [R
 magnet:?xt=urn:btih:EA707A0F40314F64122DF57DAFF9A6D566A67C45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ USB Safely Remove 7.1.2.1327 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:510F9F15E2F103571E9F16017FE88B6258AA183F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:510F9F15E2F103571E9F16017FE88B6258AA183F
 magnet:?xt=urn:btih:3039B6153B328ADCA4C57E1B992BF67AB0E62A16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:3039B6153B328ADCA4C57E1B992BF67AB0E62A16
 magnet:?xt=urn:btih:92272808BDF25A08E224591DFB35884787E3D1BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Cent Browser является усовершенствованной верси�
 ```bash
 magnet:?xt=urn:btih:B6B1CD3766B1EB4FCC36D7243F4B13EB239A6CD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Garbage - 11 альбомов (1995 - 2025) 20 CD [FLAC|Lossless|image + .cue|tr
 magnet:?xt=urn:btih:E354A788A0F838FCD48F1E861D87DA2ACC108E22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:E354A788A0F838FCD48F1E861D87DA2ACC108E22
 ```bash
 magnet:?xt=urn:btih:E9AF8D7793949DC945094D47AD047FFB1A7955BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ RimWorld (2018) [Ru/Multi] (1.6.4566/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:BCE208C7DC110CEEA9C7D6E5218DEF0D283AA92E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Haste: Broken Worlds — игра от третьего лица, в котор�
 ```bash
 magnet:?xt=urn:btih:5D2E024F13FA7C4F09B1AFAF549EC6D81D4B2E51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:5D2E024F13FA7C4F09B1AFAF549EC6D81D4B2E51
 magnet:?xt=urn:btih:B1E74EB6955B5EFCD8F3F2728BD29ED24E030094
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:B1E74EB6955B5EFCD8F3F2728BD29ED24E030094
 ```bash
 magnet:?xt=urn:btih:90E4C8B21D15FC129FFFEA7874430E48A30E4DD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:90E4C8B21D15FC129FFFEA7874430E48A30E4DD9
 magnet:?xt=urn:btih:EAE52E8412761D0D39069F27181DF220404945C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:EAE52E8412761D0D39069F27181DF220404945C0
 ```bash
 magnet:?xt=urn:btih:8A952E3A535D6CDCFEBEB13AD50F14ECFC191B47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.3) Repack Wanterlude
 magnet:?xt=urn:btih:933246ED7A6408B08FC5B0387A5ADE4E5B4C5F86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:933246ED7A6408B08FC5B0387A5ADE4E5B4C5F86
 ```bash
 magnet:?xt=urn:btih:2F7D5C111C05F092FD795BB3F67B6B1406F68BBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:2F7D5C111C05F092FD795BB3F67B6B1406F68BBC
 magnet:?xt=urn:btih:248B3FFC2C5230397F27998B01C0578D1419FFA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Rogue Loops — это roguelite-экшн, где семья, оказавшая
 ```bash
 magnet:?xt=urn:btih:E7015FBB2D569676F0DD5A6993D6F1236EB01123
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

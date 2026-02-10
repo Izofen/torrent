@@ -1,3 +1,29 @@
+###  Публикация: 597714   (999976) от 04.01.2013
+
+VA - Модный Зимний Выпуск (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 05:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A9D53EF16B2A07877BB097C2233812353C1230D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 598681   (1000044) от 04.01.2013
 
 VA - Euphoric Emotions Vol.41 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
@@ -27,6 +53,8 @@ VA - Euphoric Emotions Vol.41 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Upl
 ```bash
 magnet:?xt=urn:btih:DFD48D4287AD8292DD27A6C00D23487D7B576A70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -61,6 +89,8 @@ VA - Happy New Year! Инструментальная музыка 2013 [MP3|320
 magnet:?xt=urn:btih:807B7304C24797B81A625E286905069E1C78D51F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +123,8 @@ VA - Дискотека 2013 Dance Club Vol. 98 (2012) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:F6AD70716829AA9BECB735210539094BE5E15F51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +159,8 @@ VA - Новогодний Хит За Хитом 2 (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:D44BB6D24F0213D3EB538AE4C768B5B60783EF01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -160,6 +194,8 @@ VA - Best Of Lounge Music (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 magnet:?xt=urn:btih:0D8A8EDF27ED48FD3850C070CF53818643072687
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +222,8 @@ VA - Громкие новинки Января Vol 1 (2020) [MP3|320 Kbps] <Pop
 ```bash
 magnet:?xt=urn:btih:DC997140A36CC02A0D2A59645F13EFBF129B8E69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +252,8 @@ VA - 100 Hit Tracks Ultimate Driving Songs The Classics (2020) [MP3|320 Kbps] <R
 magnet:?xt=urn:btih:EF16D4870BE792B7563EE817F00CA3320DEAC668
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +280,8 @@ VA - Trance Nation Future Sound: Progressive Edition (2020) [MP3|320 Kbps] <Tran
 ```bash
 magnet:?xt=urn:btih:B8C6E91E23717685E6E6FE0FB6C2609EB9C95500
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +310,8 @@ VA - Сегодня на радио хиты FM Vol.8 (2020) [MP3|320 Kbps] <Pop
 magnet:?xt=urn:btih:6B47A86A6D621DBE868192F196670D2211E890F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +338,8 @@ Steppenwolf - Greatest Hits (2020) [MP3|320 Kbps] <Hard Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:D208CBAE9A3D5E54C74793F66D869D49251E7D2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +368,8 @@ VA - ЕвроХит Топ 40 Europa Plus 10.01.2020 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:21C38904FF3202CE919B0B446C5770E8E4D0F962
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +396,8 @@ VA - Free Spirit: Advanced Rock Collection (2020) [MP3|320 Kbps] <Rock, Alternat
 ```bash
 magnet:?xt=urn:btih:8D5B9247A76AA7906F90FADE1768EE338AC07AD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +426,8 @@ VA - Astral Projection: Techno Edm Liveset (2020) [MP3|320 Kbps] <Techno, Electr
 magnet:?xt=urn:btih:EF314E1D549B0FD742B2B0FECD8BEE3B18272717
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +454,8 @@ VA - Beatport Trance Pack #04 (2020) [MP3|320 Kbps] <Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:17F322F07B689F389787034833448271F27B3F74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +484,8 @@ VA - Record Super Chart 620 (2020) [MP3|320 Kbps] <Pop, House, Dance>
 magnet:?xt=urn:btih:8F98F1FA583FE57CFCA6CE576CDDFEC807953CBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +512,8 @@ VA - German Top 100 Single Charts 10.01.2020 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:5A5FFF4E5DF4CBE4A8EDAC305B812E154627418A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +542,8 @@ VA - Start A New Day: Trance Mix (2020) [MP3|320 Kbps] <Trance, Electro, Progres
 magnet:?xt=urn:btih:ED8AEB0452BF6A4313CE7D1E447109E6979F33C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +570,8 @@ VA - Pansperman: Renegade Techno Master Top 100 (2020) [MP3|320 Kbps] <Techno, E
 ```bash
 magnet:?xt=urn:btih:1CDE973ABBFE5F4130AAB69076FFDE3A6B26E7FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +600,8 @@ VA - Sacred Space: Mushroom Psy Trance Mix (2020) [MP3|320 Kbps] <Psy, Goa Tranc
 magnet:?xt=urn:btih:318DB72BD8A94D4CF7E21593B17F01642A8B2F02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +628,8 @@ VA - The Official UK Top 40 Singles Chart 10.01.2020 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:5576B5D2CB54A2BBF459C6CFE8BCAE58EE2C7740
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +658,8 @@ VA - Vocal Chillout Music: Relax Session (2021) [MP3|320 Kbps] <Chillout, Relax 
 magnet:?xt=urn:btih:661D38818C7B51D09D708D16F1152DBE88DEA339
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +686,8 @@ VA - Rebel Rock Indie (Vol.01) (2021) [MP3|320 Kbps] <Indie, Alternative, Rock>
 ```bash
 magnet:?xt=urn:btih:F45311C8A81BD3AC469C6A888DF516C691CC0CCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +716,8 @@ VA - Epic Trance: Progressive Edition (2021) [MP3|320 Kbps] <Trance, Electro, Pr
 magnet:?xt=urn:btih:A3666985B0CABF4B00931CB5561A9E72E29D20F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +744,8 @@ VA - Uplifting Urban Sounds: Trance Set (2021) [MP3|320 Kbps] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:770ABAD4D4F5EA480205A79E163F3B75C321CAB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -700,32 +774,7 @@ VA - Comfort Zone: Rap Compilation (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:8ECCCEAC0865F485550D1F30C8CBD04631891189
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488853   (1001432) от 13.08.2021
-
-VA - Actual Tech House Session (2021) [MP3|320 Kbps] <Club, Dance, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001432.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Timmy Regisford - Dede (Groove Mix)
-002. Dott. Santafeo - Architeuthis
-003. Batti Seven - Nébular
-004. Tech House - One Soul(   Читать дальше...   )Жанр: Club, Dance, Tech HouseПродолжительность: 10:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21AEDB1EAE84C813074DA1E72212096977E4F72C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

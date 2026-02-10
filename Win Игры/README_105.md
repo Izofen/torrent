@@ -19,6 +19,8 @@ Noreya: The Gold Project - 2D-метроидвания в стиле пиксе�
 magnet:?xt=urn:btih:0B2A798B79857BDBB20C7B3AEA72525E6544F684
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Sable (2021) [Ru/Multi] (4.3) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:7344213C3E20103CA7C6340ABB163FE31C8C1138
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.08/dlc) Repack Wanterlude
 magnet:?xt=urn:btih:8B6BA02F6B36086A69304D5455FEE7E8563248AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Night of the Rabbit (2013) [Ru/Multi] (2.2.325) Repack Let'sРlay [Premium E
 ```bash
 magnet:?xt=urn:btih:BD0CA8457A2285713BBABDD6BCBDEB2DFDBE11ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Deepest Chamber: Resurrection (2021) [Multi] (1.088) License GOG
 magnet:?xt=urn:btih:BDA25BCA37FFA566FD9C5672B4213F4334B9A00E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Company of Heroes 2 (2014) [Ru/En] (4.0.0.23468/dlc) Repack dixen18 [Master Coll
 ```bash
 magnet:?xt=urn:btih:120CC6B50EF55668E22A29A40CA25FEFC2B2D2F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ STAR WARS: Episode I: Jedi Power Battles (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:91CEA4130ADCFC23830BE36F2AD84720E708287F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Uncle Chop's Rocket Shop (2024) [Ru/Multi] (1.4.0:5875/dlc) Repack FitGirl [Delu
 ```bash
 magnet:?xt=urn:btih:23D847AAECE35F19B80B13DC36EE81C24CAFDD39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Perennial Order черпает вдохновение в таких играх, 
 magnet:?xt=urn:btih:99D2C2BB32EE7894BB2A34D7B47E98278CADD588
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Wild Woods - экшн-игра про лесных существ и взаим�
 ```bash
 magnet:?xt=urn:btih:C8300B59AFB32771AD2D1D160A08B2E38D0F08ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ DISORDER (2025) [Ru/Multi] (build 17062976) Repack seleZen
 magnet:?xt=urn:btih:A22B383BA91C723CE8CE6396176B8D7B99A95A14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Eximius представляет собой гибрид шутера от пе�
 ```bash
 magnet:?xt=urn:btih:4052D8FC8922CF84F1EA01AC58AC8BC294F6F500
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Redundant (2025) [Ru/Multi] (Build 17094745) Repack Let'sРlay
 magnet:?xt=urn:btih:4402D7B2FF39E8E9075F50795973D23D4FABC9F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Bartlow's Dread Machine (2020) [Ru/Multi] (Build 5929982) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B8469FF14F5B5E0814341E2E67BC56613D72398C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Vampire Therapist - это не обычный симулятор психоте
 magnet:?xt=urn:btih:C4EDCFB88352D210B0E7F46CD846DF2ED7627CD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Other Me (2025) [Ru/Multi] (build 16992762) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7F35EDE141EFC7B8D291AB8A1820FC87DAEE28F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Sons of The Forest - многопользовательский хоррор о�
 magnet:?xt=urn:btih:A41BCBCDF4B593994902A6A12109A43EBF286119
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Warlords Under Siege - игра, объединяющая жанры страт�
 ```bash
 magnet:?xt=urn:btih:AB25C4D5ABEE6595314EFFE1969171CAF12F8567
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ My Memory of Us – это воспоминание о дружбе между �
 magnet:?xt=urn:btih:2711366D0928289602E0210BBDB829D062692B17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Paranormal Files 12: Fatal Flaw / Паранормальные явления 12
 ```bash
 magnet:?xt=urn:btih:25D6BA001E7F54CD122A2B243FB24596D401F6A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Star Named EOS - не совсем обычная приключенческ
 magnet:?xt=urn:btih:31E3BAD08411AA6ECB2773CECABFF0FB75395B58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Gangs of Neo Tokyo (2025) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D8DF06488878A138EA68E3FB4C5CA1AAECEBAACE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Other Me (2025) [Ru/Multi] (build 16992762) Repack seleZen
 magnet:?xt=urn:btih:16E23AEE73EA6D92F37B06376572DEAE43D0DEE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Tales of Graces f возвращается в красивой версии, в 
 ```bash
 magnet:?xt=urn:btih:6B99913C125B3765C1F0862D686B7208CE1F934A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Final Fantasy VII Remake Intergrade (2021) [Ru/Multi] (1.005/dlc) Repack Wanterl
 magnet:?xt=urn:btih:CDE2EFFE873B1B96102259E597C01330E38F444E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Detective Club: Missing in the Fog (2025) [Multi] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:DE48C6F8305B85A6A351C3DFAF8AF93A207E6500
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

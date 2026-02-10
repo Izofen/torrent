@@ -22,6 +22,8 @@ Bethzaida - Nine Worlds (1996) [FLAC|Lossless|image + .cue] <Death, Black Metal>
 magnet:?xt=urn:btih:79500B46D6A88709C458643CCBF488C728715630
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:79500B46D6A88709C458643CCBF488C728715630
 ```bash
 magnet:?xt=urn:btih:99F216F98D10799AF9FD516986059A02E7BEB807
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ Man Machine Industry - Doomsday Clock (2020) [FLAC|Lossless|WEB-DL|tracks] <Thra
 magnet:?xt=urn:btih:72FAD3C3A447E3CD934700177B192C72BA2FFA24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:72FAD3C3A447E3CD934700177B192C72BA2FFA24
 ```bash
 magnet:?xt=urn:btih:FDB6A55C6BCC610479D7A7A04B74B5A31F9A00E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ NEONIC - 2 Albums (2021-2022) [MP3|320 Kbps] <Synthwave, Darksynth>
 magnet:?xt=urn:btih:071DD5CB8FB5E376495D35EB32BA341834B4628E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:071DD5CB8FB5E376495D35EB32BA341834B4628E
 ```bash
 magnet:?xt=urn:btih:590235EB214E7EF27F749D1585676FC4A6E21E5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +192,8 @@ CD1:
 magnet:?xt=urn:btih:D551E22310B657DC3C075B8A9FC22E5B1145EC4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ uTorrent - это бесплатный клиент для сетей BitTorrent
 magnet:?xt=urn:btih:67B0E0E47B7AACCB6D39F40EEADE46DA991D6742
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ magnet:?xt=urn:btih:67B0E0E47B7AACCB6D39F40EEADE46DA991D6742
 ```bash
 magnet:?xt=urn:btih:F6897184FB20789E3ED84A7C08ACB90D865E3C39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ Shingeki no Kyojin Season 2 | Attack on Titan Season 2 | Атака титано
 magnet:?xt=urn:btih:A2E4E062C1D689FA32D60BD6E4F0453A0F21D98C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:A2E4E062C1D689FA32D60BD6E4F0453A0F21D98C
 ```bash
 magnet:?xt=urn:btih:29345AAECA15546ABF8BC6DF882267396AFF4F5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ Microsoft® Windows® 11 x64 Ru 23H2 4in1 Upd 11.2023 by OVGorskiy
 magnet:?xt=urn:btih:19E41CD9A1BDC66A0691A7880B6F8829B4930E47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:19E41CD9A1BDC66A0691A7880B6F8829B4930E47
 ```bash
 magnet:?xt=urn:btih:0AE3972E0F020326761ABF88A9D50F51A1E02EFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:0AE3972E0F020326761ABF88A9D50F51A1E02EFD
 magnet:?xt=urn:btih:BACF592DAA77D535BBBB106DF5A6EDD37AFA93A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ AnyMP4 iOS Cleaner может помочь вам освободить боль�
 magnet:?xt=urn:btih:8DAF50D9C05155E574F24FD2DBDD2C3EDF9D3737
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:8DAF50D9C05155E574F24FD2DBDD2C3EDF9D3737
 ```bash
 magnet:?xt=urn:btih:B451EA710AE75297E84D5CAF66603E434DE92522
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ If there is such a thing as Michigan punk, it's Werewolf Jones. Musically, the b
 magnet:?xt=urn:btih:92D0A102A859AAB40C2E723FF350BBF69F84D730
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:92D0A102A859AAB40C2E723FF350BBF69F84D730
 ```bash
 magnet:?xt=urn:btih:A62F8FFF1D822B7E935D9BC0CDF245BB1794E141
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ Garrett Smith - Volume III (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:BAFA955C8171A0F32E42B4383DF65B2DABE506C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:BAFA955C8171A0F32E42B4383DF65B2DABE506C4
 ```bash
 magnet:?xt=urn:btih:6157821D2DF1AD5F0B0A4C647DCAA93203E7E83B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ Xenoform - Zombietown (2022) [MP3|320 Kbps] <Alternative Rock, Space Rock, Elect
 magnet:?xt=urn:btih:F53410952D2680C4C6541E6D162A3C387F36E601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ The Invincible — игра от первого лица по мотивам к�
 ```bash
 magnet:?xt=urn:btih:3BC8B616A80EF8D989D1BEEE147C454EE80D9CE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:3BC8B616A80EF8D989D1BEEE147C454EE80D9CE1
 magnet:?xt=urn:btih:1A2C2B794D84ACBD66D5FFBF7F1E06C261A242F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ magnet:?xt=urn:btih:1A2C2B794D84ACBD66D5FFBF7F1E06C261A242F8
 ```bash
 magnet:?xt=urn:btih:A46F83F10089DC1EE3249DD0D0A275FA03A3BB48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ Andy Lindquist - Life's Too Short to Spend It Raining (2022) [FLAC|Lossless|WEB-
 magnet:?xt=urn:btih:43D00E2BEDC1967A78818A475A69FA23F7AEDF96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ Saints Row (2022) [Ru/Multi] (1.6.1.4735700/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:2935FB277EEF57FB0809239C120F6150F1318B34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ AutoSwitchInput Pro 2.2.1 [En]
 magnet:?xt=urn:btih:0E2CFA5661D2B7EC39595B6D71D0B7C76EF557B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ AssetsGen 4.0.1 [En]
 magnet:?xt=urn:btih:84442F6CD7A755D0048C99F5E113CCCF9960BBD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Steinberg Nuendo Pro for Mac 12 v.12.0.70 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5D4D337335DD4538E05A62D20EA5719B10ABE5F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ HitPaw Screen Recorder — популярная программа, разраб
 magnet:?xt=urn:btih:B26C5C3567DCC16267D59EE203755B843452F48A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Aiseesoft HD Converter for Mac 9.2.26 [En]
 ```bash
 magnet:?xt=urn:btih:39E604DAC5489A5B77DC509AC54E592FB7168A04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Sound Siphon делает аудиовыход вашего Mac доступны
 magnet:?xt=urn:btih:315396311A5556D731B4B03BF8987D89098B1264
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Farrago предоставляет лучший способ быстрого в
 ```bash
 magnet:?xt=urn:btih:67C3FA248B24031C5F1A32AEDF6ACBC045A4CDDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ AnyDroid  (AnyTrans for Android) - предназначен для быстро�
 magnet:?xt=urn:btih:7DF84A0E1EE7AFCF22E5A109EC76ABCEFF28387A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Superkey 0.17 [En]
 ```bash
 magnet:?xt=urn:btih:DF310E021294FB24D2CC19F4B000360581486E2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Eassiy Android Data Recovery for Mac 5.1.10 [En]
 magnet:?xt=urn:btih:A0D3D701E6F6B5AC22E25B80E80E9AB2B98DF784
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Service Station Pro 2020.9 [En]
 ```bash
 magnet:?xt=urn:btih:533F40BF700652E4423E2DF95FC757010C87D47B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ Backgrounds 10.0 [En]
 magnet:?xt=urn:btih:2BDA6427EA924D86B08174E9E1558F137DB0AB7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ Trickster – удобный доступ к недавним файлам.
 magnet:?xt=urn:btih:ED3E502F33A1B54BB4ABAEA2CA23C94665130F49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Black Out позволяет быстро скрыть деликатные ча
 ```bash
 magnet:?xt=urn:btih:21D2B3AB357FF9D5568151C9842A47545079A243
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ EazyDraw от Dekorra Optics – графическая программа, со
 magnet:?xt=urn:btih:C5FF1B535070E1803FAD7F8267C9BCAF7B7770EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Tidy Up - приложение предназначено для поиска д
 magnet:?xt=urn:btih:7FAECFA0119995E742BA551C2D7300417AE27B22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ RAR Extractor - Unzip ZIP 7Z 7.3 [En]
 ```bash
 magnet:?xt=urn:btih:D91177A520FB29E49C722D1A8598C9ED6215796A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Nik Complete 5 Collection by DxO v.5.2.0 U2B [Multi/Ru]
 magnet:?xt=urn:btih:EE98DBC5F6A7C5ED5109026612AEA0341F38666E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Memory Pictures 4.3.2 [En]
 magnet:?xt=urn:btih:E721766FFF18085C99CED13454DDBB02DF988D3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Website Watchman 3.3.1 [En]
 ```bash
 magnet:?xt=urn:btih:C7205C365E2C7FD9A5E5C17EF40D4977F13D0D21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ UctoX - это мощное приложение для выставления �
 magnet:?xt=urn:btih:A5413BB28ED43C68E23119EA7021D0990991728F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ ForkLift – это альтернативный файловый менедже
 magnet:?xt=urn:btih:8D2E11F0C137378E0DBD19231EECEF477C2E4B3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ JustStream — отличное приложение, которое может 
 ```bash
 magnet:?xt=urn:btih:B54EE6B1E12E48B2AB23EB478E64C2E5786595A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ Texifier — это редактор LaTeX, предназначенный дл�
 magnet:?xt=urn:btih:8E6FDAA6080FF70069B08A8F2666977A7859DB35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Seasonality Core - превращает ваш Mac в домашнюю мете�
 ```bash
 magnet:?xt=urn:btih:EEC8ACA8BE7C9496134BC0813B74AA12E6870DF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +680,8 @@ Gas Mask — файловый менеджер hosts, предназначенн
 ```bash
 magnet:?xt=urn:btih:C1BEF3331AABB383EEE5BF6C62F3D9CF7B7E9429
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

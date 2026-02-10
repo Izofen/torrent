@@ -21,6 +21,8 @@ Floog - Ambele EP (2018) [FLAC|Lossless|Vinyl|tracks] <Techno, Tech House, Minim
 magnet:?xt=urn:btih:13BCAFC5ACDC2CE072243D66648E4B34D6207AD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Shingo Nakamura - Best of Shingo Nakamura (2017) [MP3|320 Kbps] <House,Progressi
 magnet:?xt=urn:btih:804373691C5308362687EBE031DB403E902FBBC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Scooter - Age Of Love (20 Years Of Hardcore Expanded Edition) (2013) [3CD|FLAC|L
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ VA - Progressive House Spring Essentials (2017) [MP3|320 Kbps] <Progressive Hous
 magnet:?xt=urn:btih:B1062A07EDB3649F9A469AF0136B1BBCBFCA16FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Boris Brejcha - 22 (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal>
 ```bash
 magnet:?xt=urn:btih:D37EEBB41C4B909CB2DA31CBE27016DBEAAC053C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ VA - Dreams Builder 10th Potion (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loun
 magnet:?xt=urn:btih:01CBAEBBD36CB690DE22BCDE26C17A4DE0F22C25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ VA - Turn It Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
 ```bash
 magnet:?xt=urn:btih:10D9619768CA0194A0D96BB12935234BA86B8FD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -204,6 +218,8 @@ VA - Lazy Weekend: Kick Back to the Coolest and Most Chilled-Out Beats (2017) [M
 magnet:?xt=urn:btih:30ECF3F5EADAFDC6261F57B080EE2105A2E71091
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -230,6 +246,8 @@ Mr.Kitty - Time (2014) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, New Wave>
 ```bash
 magnet:?xt=urn:btih:0592DC29264157267DBAE38C5ADC2297E908DE34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -258,6 +276,8 @@ Riz Maslen (Neotropic, Small Fish with Spine) - Discography 20 Releases (1996-20
 magnet:?xt=urn:btih:A42C85505E379EB4DB9ECE88FF35436B5348C657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +304,8 @@ Triplex - Катапульта (2003) [FLAC|Lossless|tracks + .cue] <House, Tran
 ```bash
 magnet:?xt=urn:btih:B34209664F5546223530F09C777703C5E132EA75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +334,8 @@ Roger Shah - Music For Meditation, Yoga & Other Wellbeing Moments (2016) [MP3|32
 magnet:?xt=urn:btih:6DAD877FB2FDAFAABEE6F129490B42575D007CB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +362,8 @@ VA - Outliers​:​1 (2020) Samurai Music [FLAC|Lossless|WEB-DL|tracks] <Drum n
 ```bash
 magnet:?xt=urn:btih:EB183C569404FA393FE75C33C554D38D6D207F87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +392,8 @@ VA - Global Underground: Afterhours (2016) [MP3|320 кб/с] <House, Deep House,
 magnet:?xt=urn:btih:25DC125039AC8F51BDE401E68869B599304482E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +420,8 @@ VA - Milchbar - Seaside Season 8 (Compiled By Blank & Jones) (2016) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:9691F04009F40961856F745C0843B5CF2D0C68E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +450,8 @@ VA - Progressive House Trance 2020 Top 40 Chart Hits, Vol. 2 DJ Mix 3Hr (2020) [
 magnet:?xt=urn:btih:3EFBE45DAD379D31F711C079F5310D9B6310D5B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +478,8 @@ Pessimist - Pessimist Discography 2011 - 2016 (2019) Pessimist Productions [FLAC
 ```bash
 magnet:?xt=urn:btih:312C172BAB92080C8577659275C130586212BC67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +508,8 @@ VA - Ibiza Megamix 2020 [MP3|320 Kbps] <Funky, Club House>
 magnet:?xt=urn:btih:EC9C5E3CDA59F2B7D0EC3DB3D70C826D626A3674
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +536,8 @@ VA - The Best Of Liquid Soul (2018) [MP3|320 Kbps] <Psy-Trance, Progressive>
 ```bash
 magnet:?xt=urn:btih:2D0B8E964AF2AD3B47AB0FABE20F9C5FD4B72D78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +566,8 @@ Accelera Deck - Perfect Nostalgia Beach Rave (2020) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:825B035FCFC3423417C7E86A122D09D89A4006EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +594,8 @@ VA - Electrotastic Vol.21 (Everyone Wants Electro) (2016) [MP3|320 кб/с] <Hou
 ```bash
 magnet:?xt=urn:btih:06E5E16CD37738A0BC2FDD0B6386D73FE9152170
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +624,8 @@ VA - House Progressive Resistant (2016) [MP3|320 кб/с] <House, Progressive Ho
 magnet:?xt=urn:btih:A2EAE4DD564EBBCEAA0B3BCD585FD6186D462A0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +653,8 @@ VA - Alfa Romeo La Meccanica Delle Emozioni (2017) [MP3|320 Kbps] <Balearic, Dow
 magnet:?xt=urn:btih:777526599C9F577D224E7BD5B62663AEF327D667
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +679,8 @@ Label Pack - Future Sound Of Egypt Recordings (FSOE) - 223 Releases (2009 - 2017
 ```bash
 magnet:?xt=urn:btih:A3F35CEDFA56FCEA8BD86686FC73FB4D1413E947
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +709,8 @@ VA - Magic Island: Music For Balearic People Vol.1-7 (Mixed by Roger Shah) (2008
 magnet:?xt=urn:btih:13AEEF7E3CC1FEFCAAE176316A66737E57CE66D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -687,6 +737,8 @@ VA - Ibiza Deep House 2017 Opening (2017) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:DA6C5936D9E557AD49218BCF666E774A569D75A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

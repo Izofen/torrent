@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:18C2929D964E8AB2CA172E0AF4C214EC089F317A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Zero To Mastery Academy (ZTM), Aleksa Tamburkovski | Complete Cybersecurity Boot
 ```bash
 magnet:?xt=urn:btih:9551CDA462B5CFBA1F3E62957A5142744F7EF9D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:9551CDA462B5CFBA1F3E62957A5142744F7EF9D6
 magnet:?xt=urn:btih:88A988B2DAD2C08DF8D8AD92FEB3B126B77698A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ INE | Penetration Testing Student v2 [Learning Path] (2022) WEB-DL [EN / EN Sub]
 ```bash
 magnet:?xt=urn:btih:9384D636BAD6276BFCFCCF37E9367878F00F123F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Udemy, Tom Looman, Epic Games | Unreal Engine 4 Mastery Create Multiplayer Games
 ```bash
 magnet:?xt=urn:btih:04BC04F2586881B3E15CA3F7BFCF89DEDE203FD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Udemy, David Long | Conway's Game of Life with SDL2 and C++ (2022) WEB-DL [EN / 
 magnet:?xt=urn:btih:1D8249B1C10F9D16E456A0710A591FAD0F8928AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:1D8249B1C10F9D16E456A0710A591FAD0F8928AA
 magnet:?xt=urn:btih:5ECDA4012A20D6E0AFC0716AFE591D57C737C86F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ it-black, Виктор Черемных | Администрирование б�
 magnet:?xt=urn:btih:77E1037835A9B0B3DC9C1CC5E54A3D4EDFF1360B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ Astra Linux Team, Александр Соболев, Сергей Третьяк
 ```bash
 magnet:?xt=urn:btih:01DFAA539BB85976572376152938F67FF90DBA39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -258,6 +276,8 @@ magnet:?xt=urn:btih:01DFAA539BB85976572376152938F67FF90DBA39
 magnet:?xt=urn:btih:4C0B10BF27B54BC46AF83CA40036BE7FBCFBB506
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +304,8 @@ magnet:?xt=urn:btih:4C0B10BF27B54BC46AF83CA40036BE7FBCFBB506
 magnet:?xt=urn:btih:1567C7A9ED0DA2334EA58FF45A17BD216BB3BD82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +329,8 @@ magnet:?xt=urn:btih:1567C7A9ED0DA2334EA58FF45A17BD216BB3BD82
 ```bash
 magnet:?xt=urn:btih:FC96BD5F9D48CEF7C580986AE92607E7DCB563FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +360,8 @@ magnet:?xt=urn:btih:FC96BD5F9D48CEF7C580986AE92607E7DCB563FC
 magnet:?xt=urn:btih:79C0DAADE8D07C6E4F12CF837D7FB0EA87B0F6A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +389,8 @@ magnet:?xt=urn:btih:79C0DAADE8D07C6E4F12CF837D7FB0EA87B0F6A9
 magnet:?xt=urn:btih:BFC7C2B5713A8278BE2099414DF28B7F3969B6E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +416,8 @@ Telegram является современным мессенджером с ш�
 ```bash
 magnet:?xt=urn:btih:9202869ABF519775B2E1A47B44FDED9FD2FED99A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +446,8 @@ magnet:?xt=urn:btih:9202869ABF519775B2E1A47B44FDED9FD2FED99A
 magnet:?xt=urn:btih:E931ADCF52B3B2AA40596FEB402614D19BC8A1DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +471,8 @@ PurpleSchool, Stepik, Антон Ларичев | HTML и CSS - полный к�
 ```bash
 magnet:?xt=urn:btih:15F9F24D20E799C0136997D08C09250B049A3601
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +499,8 @@ Stepik, Герман Янгалин | Экспресс-курс по Arduino, э
 magnet:?xt=urn:btih:C6DE5CBFFE6FA222FFAA7CE4AA5E4AB1C461C38A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +524,8 @@ Udemy, Андрей Кудлай | Telegram bot интернет-магазин.
 ```bash
 magnet:?xt=urn:btih:953D7509633CDF4ACCF82BBDDA166A6B235577B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +554,8 @@ magnet:?xt=urn:btih:953D7509633CDF4ACCF82BBDDA166A6B235577B5
 magnet:?xt=urn:btih:256D151E873C601AFCDE52DB83B598F1A65E9DE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +579,8 @@ Welcome to the ultimate Python learning experience! The Python Mega Course is de
 ```bash
 magnet:?xt=urn:btih:A154A9444D1213539F8CB8F9286A394CD4E930A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +609,8 @@ A practice-heavy approach to master React (   Читать дальше...   )�
 magnet:?xt=urn:btih:14189FC9E9270A0A96EEE2A00BF783A948C34EBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +635,8 @@ magnet:?xt=urn:btih:14189FC9E9270A0A96EEE2A00BF783A948C34EBF
 ```bash
 magnet:?xt=urn:btih:074CCA9DE39B97D79E9CDB76C665F93C90DE3460
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +664,8 @@ Zabbix — это готовое программное решение с отк
 magnet:?xt=urn:btih:346C872BAB4943D270EBBA9816CE6589A6095BAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +689,8 @@ NestJS - это быстро растущий Node.js фреймворк, кот
 ```bash
 magnet:?xt=urn:btih:32350379A0B724E9C3B94ACB7B9421543EDE816C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,6 +718,8 @@ Slurm (Слёрм), Всеволод Севостьянов, Павел Сели
 ```bash
 magnet:?xt=urn:btih:D3B67B9CB5A7E96BF245154687A5B6BF9F6C5311
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

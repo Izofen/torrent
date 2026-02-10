@@ -19,6 +19,8 @@ POPUCOM - кооперативный приключенческий платфо
 magnet:?xt=urn:btih:257A7AF6BF8A160040365B54AB1BE143301D2213
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.3.1/dlc) Repack seleZen [Spe
 ```bash
 magnet:?xt=urn:btih:2578EA8DFB9352310A11EA6EC6E7F4843C96E12D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Driftwood (2023) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:8E0DFF8557B8A68F1F3CF6FDF37907066DC5FF87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Driftwood (2023) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:5C115240DB5CCD853554E0F16BFCBAAC46EFB20A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Gatekeeper (2024) [Ru/Multi] (1.0) Repack seleZen
 magnet:?xt=urn:btih:2463D61164F019290422A416B205D6F2CA15366C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Drill Core (2025) [Ru/Multi] (1.199.5.7.17.49506e6/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:86347225F152D9B97937061797AD1745D8323566
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Unravel Two – приключенческая адвенчура в стиле 
 magnet:?xt=urn:btih:09C254178D918227EF14E2ACB5A2F7B415203A5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Mortal Kombat 4 (1997) [En] (2.1) License GOG
 ```bash
 magnet:?xt=urn:btih:C1BD85849D2F197C5BC67D5C28F5E003DF107155
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Redneck Kentucky and the Next Generation Chickens / Куриное побоищ�
 magnet:?xt=urn:btih:ED388EF06AD9CD06C84DEFED9DEEEDB2C814CDBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Our War: Firepower Suppression (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:825F558354A4198760A536C0C76EFCD5DF162114
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Codename: Ocean Keeper (2024) [Ru/Multi] (1.0.4) Repack Let'sРlay
 magnet:?xt=urn:btih:8991570D1F004F5B1DD78138C86F809ACC30466B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ StarMetal Crusaders ставит игрока во главе отряда на�
 ```bash
 magnet:?xt=urn:btih:99F71CA449AB2170E14E66B9B3CA20159408666B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Kick'n Hell помещает игрока в вид от первого лица
 magnet:?xt=urn:btih:A590BC3A95B719718B71925FE7461CB7EE09779A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Rooftops & Alleys - это больше, чем просто паркур и ф�
 ```bash
 magnet:?xt=urn:btih:252CF461E3A9581E54F5E0713BFB69D40DCD9F0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Dust Raiders - это стратегия в декорациях суровой 
 magnet:?xt=urn:btih:072C486318BBA0BFA4AC9EAE04FBFE272CE3E429
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Strike Mission (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:E5E954A06A8511A35F4C61F9452760D572500A82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Ale and Tale Tavern - это кооперативный фэнтезийный �
 magnet:?xt=urn:btih:23138750ED8C78F7D8C8FBF60DE232D2941AFF9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Mad Restaurant People (2018) [Multi] (1.7.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:31407A4B1409B6624187F273BDE6D2D6F1060153
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Grandma, No! (2025) [Ru/Multi] (20250522R) Repack FitGirl [Deluxe Edition]
 magnet:?xt=urn:btih:2BC48FF639692584999F8E4940BF617A31BBC117
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Don't Mess With Bober (2025) [Ru/Multi] (1.0.3) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5593023F04B18FE613F857D9C086821B3FAA263A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Don't Mess With Bober (2025) [Ru/Multi] (Build 19026706) Scene Tenoke
 magnet:?xt=urn:btih:D0A3EAF5695477637A3F600EFCABF71C3854029C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Frog Jump ставит игроков под контроль амфибии с 
 ```bash
 magnet:?xt=urn:btih:FE4F5F5041F36FF08EFA1678AD71C65CC0573C01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ STAR WARS: Episode I: Jedi Power Battles (2025) [Ru/Multi] (1.0) License GOG
 magnet:?xt=urn:btih:CC1B1F0BA770A1D50A947B110BD1EC51AD9F6543
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Entropy Survivors - «роглайк» со стрельбой, где вы уп
 ```bash
 magnet:?xt=urn:btih:77CC67299D38B5B39B45C6A541854A43662E4DA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ POPUCOM - кооперативный приключенческий платфо
 magnet:?xt=urn:btih:324AB8730F7D8B40A2887569CEF4077F9FF8E823
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Leftovers KO! (2025) [Multi] (1.5) License GOG
 ```bash
 magnet:?xt=urn:btih:DBE4E4015E19BBA82EE7A82F50D5C3C97E074613
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

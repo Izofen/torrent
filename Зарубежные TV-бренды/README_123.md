@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:A3052912BE57C014A9DC1648812B30BF86A767A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:A3052912BE57C014A9DC1648812B30BF86A767A0
 ```bash
 magnet:?xt=urn:btih:02F3F818FBB291F67398D662318EA2068F06CBAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Discovery: Инородные тела / Body Invaders (2014) HDTVRip (Сери�
 magnet:?xt=urn:btih:AB9DC97F06F50E55645A8BB53D48B42BE5993CB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:AB9DC97F06F50E55645A8BB53D48B42BE5993CB7
 ```bash
 magnet:?xt=urn:btih:F90BDF76E9E940EF569D7071D8EA79A29C837683
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Discovery Channel представляет тринадцатый сезон с�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Discovery Channel представляет тринадцатый сезон с�
 ```bash
 magnet:?xt=urn:btih:66AFCED9517771AE64D5E6A298D4A7C6E9EDFF70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ NG: Удивительный мир с NAT GEO / NAT GEO Amazing (2010) SATRip [
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ NG: Удивительный мир с NAT GEO / NAT GEO Amazing (2010) SATRip [
 ```bash
 magnet:?xt=urn:btih:4C107887DA792139371F06969B75A3CF8A885550
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Discovery. Пятёрка лучших / Discovery. World's TOP 5 (1-6 выпу�
 magnet:?xt=urn:btih:33955566562D967A31D9572B94EF6AD4DFE035DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ NG: Мегазаводы. Суперавтомобили: Мустанг / Megaf
 ```bash
 magnet:?xt=urn:btih:46F1926BA604E686A00C0D0E036E7E9824E575B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:46F1926BA604E686A00C0D0E036E7E9824E575B1
 magnet:?xt=urn:btih:227DBCC6BAEAFE8E2D9DA366FD3A4DBAC5166976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Discovery: Красота змей / The Beauty Of Snakes (2003/2008) BDRip [720
 magnet:?xt=urn:btih:046CA3074C204DDFCDBEB0FC9B342F5C10BF4306
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:046CA3074C204DDFCDBEB0FC9B342F5C10BF4306
 ```bash
 magnet:?xt=urn:btih:918E0DABFF5FFE064ACBFA37B6AC68E0B42BEED0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ BBC: История хирургии. Обретение лица [4 из 5] / B
 magnet:?xt=urn:btih:8D142E856958C72EB4E2E558E4FF593E377D7B19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ BBC: История Шотландии с Нейлом Оливером. Мол�
 magnet:?xt=urn:btih:1AF03F264FAD594671F61D21C20780EF390CDA25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:1AF03F264FAD594671F61D21C20780EF390CDA25
 ```bash
 magnet:?xt=urn:btih:DA4756D7464012FC72A817AB56239930C296B30D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ BBC: История Шотландии с Нейлом Оливером. Пос�
 magnet:?xt=urn:btih:B256826056265B7C38E5D6353931FBC657C0FD7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ BBC: Жизнь / Life (2009) BDRip [H.264/1080p] (серии 10 из 10)
 ```bash
 magnet:?xt=urn:btih:B18729D4421A0AE1E5985937FA2BAED27CC227A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ BBC: Серенгети / Serengeti (2019) BDRemux [H.264/1080i] (сезон 1, 
 magnet:?xt=urn:btih:F3331448B92C1448084FAF3E094C0B773CB90040
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ BBC: Серенгети / Serengeti (2019) WEB-DL [H.264/1080p] (сезон 1, �
 ```bash
 magnet:?xt=urn:btih:9E4770F06679D7E34E24273C135F23FF949B7637
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ NG. На Марс: история марсохода Персеверанс / Bu
 magnet:?xt=urn:btih:07D50DE41F08C8F334463BC824FFA8F7C8D29C4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Discovery. Битва самогонщиков / Master Distiller (2020) HDTVRip
 ```bash
 magnet:?xt=urn:btih:19E3C807AEDD41C44A4A81BA5DAF526F1117A13D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Discovery. Последние дни динозавров / Last Day Of The Dino
 magnet:?xt=urn:btih:90D4CDAD44700E06EB5C03FE56EEC2E591AE7DFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ BBC: Глобальное потепление: факты / Climate Change: The
 ```bash
 magnet:?xt=urn:btih:0F827E27001E06A43E5A149E7CD35989159919D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ BBC: Винсент Ван Гог. Живопись в словах / Vincent Va
 magnet:?xt=urn:btih:4E3910038D99E6746C152A655C3B323659C29F03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Discovery. Последние дни динозавров / Last Day Of The Dino
 ```bash
 magnet:?xt=urn:btih:40F32AC2113436F4DC943FBD26A6565B35FEE745
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

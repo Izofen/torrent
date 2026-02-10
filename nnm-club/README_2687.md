@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:64B51278EDDEA64BF138F0E14C6592FBA54C3247
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Harakiri For The Sky - Scorched Earth (2025) [FLAC|Lossless|image + .cue] <Post-
 ```bash
 magnet:?xt=urn:btih:2B8E98E2F1E2E2407D99542BE1D32B9E8295F8AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:2B8E98E2F1E2E2407D99542BE1D32B9E8295F8AE
 magnet:?xt=urn:btih:2E3A9E47D02EFAE0D383830E76A37A8866863C8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Carmen McRae - Milestones Of A Jazz Legend (1954 - 1961) 10CD, 2019, The Intense
 ```bash
 magnet:?xt=urn:btih:5BF55E57746EEC57D39B5518E7AD2DE3A5A96A89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ Phear - Save Our Souls (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal
 magnet:?xt=urn:btih:1873E9412E5A9250B252013C6F9499582D52FD71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ magnet:?xt=urn:btih:1873E9412E5A9250B252013C6F9499582D52FD71
 magnet:?xt=urn:btih:BEC53A6583EC9178B970119ABC63AB63FF00AD25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:BEC53A6583EC9178B970119ABC63AB63FF00AD25
 ```bash
 magnet:?xt=urn:btih:5E6EDDD27615E59ADDAED654160628A6840758D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ InfoCity - Азербайджанский ежемесячный журнал о
 magnet:?xt=urn:btih:C1193141364B5ABD9C8A68C39A2CDEE368628257
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:C1193141364B5ABD9C8A68C39A2CDEE368628257
 magnet:?xt=urn:btih:73A8A8421341B70CAF50F7EC209FF60D689D781F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:73A8A8421341B70CAF50F7EC209FF60D689D781F
 ```bash
 magnet:?xt=urn:btih:E6DA6221C6FC4E81A5CF843A276EB644729F4AF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:E6DA6221C6FC4E81A5CF843A276EB644729F4AF5
 magnet:?xt=urn:btih:EA67996BA150FB3E9C3B3378590F8A1ED49E7BD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:F31D8CF486CDA54D23A2232B7045A79BD9EF0750
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ VA - Musical kaleidoscope part 26 Easy listening (2025) [MP3|320 Kbps] <Electron
 magnet:?xt=urn:btih:6E22309A43C521F2782712C55CEA78509FA2C6AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:6E22309A43C521F2782712C55CEA78509FA2C6AE
 ```bash
 magnet:?xt=urn:btih:0A856C914664AB120FE81918B7AF3BFBBB21B6A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ magnet:?xt=urn:btih:0A856C914664AB120FE81918B7AF3BFBBB21B6A1
 magnet:?xt=urn:btih:02A05AA6CBF7DE972224B931911DB18261A8665D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:02A05AA6CBF7DE972224B931911DB18261A8665D
 magnet:?xt=urn:btih:1E8ADE97F7ADDDD5B8576F646A8314DAC0C23863
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ magnet:?xt=urn:btih:1E8ADE97F7ADDDD5B8576F646A8314DAC0C23863
 ```bash
 magnet:?xt=urn:btih:A3CE0484AB43E679C99A90B5D83C43B4884A63A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:A3CE0484AB43E679C99A90B5D83C43B4884A63A0
 magnet:?xt=urn:btih:41104CED5731865D2AA70585BFBB8F5233469891
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:41104CED5731865D2AA70585BFBB8F5233469891
 ```bash
 magnet:?xt=urn:btih:65A2FC539010C8FFC9D69A29DECD5E5920DA4EB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:65A2FC539010C8FFC9D69A29DECD5E5920DA4EB3
 magnet:?xt=urn:btih:FDCAFA76A363526763EED14937A2CAA751F68686
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:FDCAFA76A363526763EED14937A2CAA751F68686
 ```bash
 magnet:?xt=urn:btih:9B96ED08431F4E17DDB2A5CF9CDC66C2D74BF3B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:9B96ED08431F4E17DDB2A5CF9CDC66C2D74BF3B9
 magnet:?xt=urn:btih:6CE5AF5E031CF695890FBBE1BC1E5FC661021B93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:6CE5AF5E031CF695890FBBE1BC1E5FC661021B93
 ```bash
 magnet:?xt=urn:btih:A5303074ED9A451D958A423C6BCCAF0076D05F31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +641,8 @@ magnet:?xt=urn:btih:A5303074ED9A451D958A423C6BCCAF0076D05F31
 ```bash
 magnet:?xt=urn:btih:E8EBE6E9B277A45BC0F5D0CD93C23120E29B96A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +671,8 @@ Prehistoria - Cryptic Halo (2025) [FLAC|Lossless|WEB-DL|tracks] <Power, Speed Me
 magnet:?xt=urn:btih:D050AAEB67C72FE6F8595C86C61BD0A8AE78C949
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ Endbrium — это современный шрифт с засечками, с�
 ```bash
 magnet:?xt=urn:btih:89E9BDD7736E06BDD028BA8E069282A516A3ED99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

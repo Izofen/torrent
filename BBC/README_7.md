@@ -19,6 +19,8 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 magnet:?xt=urn:btih:44DAB50F76799569D1F0C5E4FCCC00C1DBF2CAB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 ```bash
 magnet:?xt=urn:btih:7278DD2E187DAD43ED688EECA6E56D2A3DEA02B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC: Планета Земля 2. Мир чудес / Planet Earth II: A World o
 magnet:?xt=urn:btih:54DD2FBCB7CF41B208908149C1ECA66470902B07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BBC: Археология. Тайная история / Archaeology: A Secret H
 ```bash
 magnet:?xt=urn:btih:A81D314343BC83F57B3D52AF677860D2A9CC0A3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 magnet:?xt=urn:btih:DC802C2FF92B46C8A5B0E239F1BE52CFA60B55ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ BBC: Западня: что сталось с мечтой о свободе? / 
 ```bash
 magnet:?xt=urn:btih:63C686D0599DB96190340EC4C3F989664A5247D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ BBC. Становление континентов / Rise of the Continents (201
 magnet:?xt=urn:btih:DBE0FAA3701801535B0D3EC3B14FA7FCD5FD9174
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:DBE0FAA3701801535B0D3EC3B14FA7FCD5FD9174
 ```bash
 magnet:?xt=urn:btih:C1F92BD3067E98165CD0085362E794B39158409F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ BBC. Великие географические открытия / Voyages of D
 magnet:?xt=urn:btih:278B199AF8A4ED17616B4FA72A14961BDCD6DE74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ BBC: Живой мир. Осьминог в моём доме / BBC Natural Worl
 ```bash
 magnet:?xt=urn:btih:301BE66F3C6FEBA4914A5B592B2C745361BBE04C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ BBC: Горизонт. Что такое реальность? / Horizon. What i
 magnet:?xt=urn:btih:53919D050AC1AC643C9BA04A6D18E1363D8660C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ BBC. Параллельные Вселенные / BBC: Parallel Universes (2002
 ```bash
 magnet:?xt=urn:btih:19DFB7D45623CAC8C3109431B1CE06462E25A709
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ BBC: Мир природы: Болота. В ад и обратно / The Natura
 magnet:?xt=urn:btih:8A31B83512D2600956372CEA7137C0A188C835C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ BBC. Секреты древних. Каменные головы Ольмеко
 ```bash
 magnet:?xt=urn:btih:69CAF26C29F67D27A9DADDCBEBB472CDBC080A59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:69CAF26C29F67D27A9DADDCBEBB472CDBC080A59
 magnet:?xt=urn:btih:BB4F743170D2BF05027FD0FCE97AC3F9666B919D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ BBC: 80 чудес света / Around the World in 80 Treasures (2005) [DVDRip]
 ```bash
 magnet:?xt=urn:btih:C1A63CCEDF3BE644F4CDED353F2674F3D46F627E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ BBC: Чудеса Солнечной Системы / Wonders of the Solar Syste
 magnet:?xt=urn:btih:42C2238C2EC488B9E0B4BA03C16516C008F0C44E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 magnet:?xt=urn:btih:2B7ADC0322673E8EE3FF17BF0F4BC5234A0C8978
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ BBC: Невероятные приключения температуры / From
 ```bash
 magnet:?xt=urn:btih:99CCEADCB5902E332CC2F4ED079CFF55461EC0EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ BBC: Мир природы. Лосось: Серебряный прилив / Th
 magnet:?xt=urn:btih:72A0CB71C8E165EEF6368DD478AA034DBF5F4FEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ BBC: Приключeния Брайана Кокса в пространстве
 ```bash
 magnet:?xt=urn:btih:15905F9E246C93E3B56A0F4C74F29E68F7A525D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DL [H.265
 magnet:?xt=urn:btih:1BCE1D387D45BD49B6EB610D8DEC8EB2188CD641
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ BBC Horizon: Плутон: Восставший из мёртвых / Pluto: Bac
 ```bash
 magnet:?xt=urn:btih:CB8575C826F7BA38080E28026F0A5B65B47CD01D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ BBC: Хиросима / Hiroshima (2005) DVDRip
 magnet:?xt=urn:btih:596B01E422CEB1E007BEF67D21C006A61E8B79FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ BBC: Тайны Бермудского треугольника / The Bermuda Tr
 ```bash
 magnet:?xt=urn:btih:83666EF6CDC30067824E718D6710DEFA1DB70195
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:83666EF6CDC30067824E718D6710DEFA1DB70195
 ```bash
 magnet:?xt=urn:btih:59865B492281142838A1DA3B41EAE74151BD70D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

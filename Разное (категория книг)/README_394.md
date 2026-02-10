@@ -1,3 +1,32 @@
+###  Публикация: 809233   (588387) от 31.07.2014
+
+Шри Рамагаджананда | Метафизические аспекты судьбы, или Выход из заколдованного круга (2005) [DJVU]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взаимосвязь уровня духовной зрелости личности с информационной структурой ДНК.
+Взаимосвязь потребностей, мотивов и установок человека с его кармой...
+Предопределение как реальный закон природы и космоса...
+Вот лишь немногое, что вы узнаете из этой поразительной книги!Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7457A4A06EA22A8844D3C9879C256B409AE8B6F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917820   (588536) от 13.07.2015
 
 Крис Макгофф | Искусство управлять. 46 ключевых принципов и инструментов руководителя (2014) [PDF, EPUB, RTF]
@@ -20,6 +49,8 @@
 ```bash
 magnet:?xt=urn:btih:17EFD38037DFE36E09BBF567ACB7B6246489CAD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +78,8 @@ magnet:?xt=urn:btih:17EFD38037DFE36E09BBF567ACB7B6246489CAD9
 magnet:?xt=urn:btih:9960D4D05C16EAD66CD52E4E1C0A8CE312C38ADA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +105,8 @@ magnet:?xt=urn:btih:9960D4D05C16EAD66CD52E4E1C0A8CE312C38ADA
 magnet:?xt=urn:btih:714B65A24AC4921505E8A4FAFDEDF47050C2BA87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +130,8 @@ magnet:?xt=urn:btih:714B65A24AC4921505E8A4FAFDEDF47050C2BA87
 ```bash
 magnet:?xt=urn:btih:77CBE2AD332377F19D19FF631B6DF6FE8C8BAE64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +159,8 @@ magnet:?xt=urn:btih:77CBE2AD332377F19D19FF631B6DF6FE8C8BAE64
 magnet:?xt=urn:btih:E3A76ECE27E77396340104146BD152B653CD4FA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +185,8 @@ magnet:?xt=urn:btih:E3A76ECE27E77396340104146BD152B653CD4FA8
 magnet:?xt=urn:btih:AE8BCD7863B3B1FB713ADCC4ED4EC90128B428FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +210,8 @@ magnet:?xt=urn:btih:AE8BCD7863B3B1FB713ADCC4ED4EC90128B428FB
 ```bash
 magnet:?xt=urn:btih:A7739103369F941F607EB7BFE4D0E32B24351B3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +239,8 @@ magnet:?xt=urn:btih:A7739103369F941F607EB7BFE4D0E32B24351B3A
 magnet:?xt=urn:btih:0ECC16FEDC3D3F34ECAC1FF339C6258E286708AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +264,8 @@ magnet:?xt=urn:btih:0ECC16FEDC3D3F34ECAC1FF339C6258E286708AA
 ```bash
 magnet:?xt=urn:btih:AB987E38A702F6980A89C87A64AC249D3F1F77BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +294,8 @@ magnet:?xt=urn:btih:AB987E38A702F6980A89C87A64AC249D3F1F77BD
 magnet:?xt=urn:btih:8BFFBC3EF633FAD914C76C8049219ACDEFD9ACEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +320,8 @@ magnet:?xt=urn:btih:8BFFBC3EF633FAD914C76C8049219ACDEFD9ACEE
 ```bash
 magnet:?xt=urn:btih:21571BE674DE3FFDABB4E15093A314AAFBDB8203
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +348,8 @@ magnet:?xt=urn:btih:21571BE674DE3FFDABB4E15093A314AAFBDB8203
 magnet:?xt=urn:btih:21E20B3F75A8BEF7E2E05D9E60D43FFBD5838145
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +373,8 @@ magnet:?xt=urn:btih:21E20B3F75A8BEF7E2E05D9E60D43FFBD5838145
 ```bash
 magnet:?xt=urn:btih:7DF5377F7277617455B00339B5E08A2BA3E11E9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +400,8 @@ magnet:?xt=urn:btih:7DF5377F7277617455B00339B5E08A2BA3E11E9E
 magnet:?xt=urn:btih:36FA5EA095AF30A723DCD89E767CE1CE6C29E486
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +425,8 @@ magnet:?xt=urn:btih:36FA5EA095AF30A723DCD89E767CE1CE6C29E486
 ```bash
 magnet:?xt=urn:btih:04967A93ADFF044CFCA7DEBAB0F1B4A8FF7CE2EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +453,8 @@ magnet:?xt=urn:btih:04967A93ADFF044CFCA7DEBAB0F1B4A8FF7CE2EB
 magnet:?xt=urn:btih:9624D47AF0A6A629C86B8620FB87AFCB4C54A66C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +479,8 @@ magnet:?xt=urn:btih:9624D47AF0A6A629C86B8620FB87AFCB4C54A66C
 magnet:?xt=urn:btih:1794D3A937E879AD0E4AE9F70B3EFE2376C31CFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +504,8 @@ magnet:?xt=urn:btih:1794D3A937E879AD0E4AE9F70B3EFE2376C31CFB
 ```bash
 magnet:?xt=urn:btih:C83E7BD754D5663F678640D40493CACDACAE4CB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +532,8 @@ magnet:?xt=urn:btih:C83E7BD754D5663F678640D40493CACDACAE4CB1
 magnet:?xt=urn:btih:F631E00065783C40317A64A9D551B32B5CE18E82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +559,8 @@ magnet:?xt=urn:btih:F631E00065783C40317A64A9D551B32B5CE18E82
 magnet:?xt=urn:btih:185FE324BF1319B6F76BB0710A2084F4E08CBD59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +585,8 @@ magnet:?xt=urn:btih:185FE324BF1319B6F76BB0710A2084F4E08CBD59
 magnet:?xt=urn:btih:16155E9716AE3D8188F2CC6DC6956A910D93C985
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +610,8 @@ magnet:?xt=urn:btih:16155E9716AE3D8188F2CC6DC6956A910D93C985
 ```bash
 magnet:?xt=urn:btih:9ACC925EEA8BA1B12A9B52EAAF43399A14031EEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +639,8 @@ magnet:?xt=urn:btih:9ACC925EEA8BA1B12A9B52EAAF43399A14031EEF
 magnet:?xt=urn:btih:388141B8351AB9AFCCD94EBE7A559E69FEC87824
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +664,8 @@ magnet:?xt=urn:btih:388141B8351AB9AFCCD94EBE7A559E69FEC87824
 ```bash
 magnet:?xt=urn:btih:A2E5541F2B1D4211A6608CA2E6E1A58E23AA3946
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,29 +692,7 @@ magnet:?xt=urn:btih:A2E5541F2B1D4211A6608CA2E6E1A58E23AA3946
 magnet:?xt=urn:btih:E2A008365B641D4304B3C3ACFCCE28B758DFFB76
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918102   (588634) от 13.07.2015
-
-Брайан Солис | Макротренды в бизнесе. Как стать компанией новой волны, создавая эмоции, привлекающие клиентов (2014) [EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга не просто исследует существующие тенденции и теории — она открывает читателю новый путь к трансформации бизнеса. Ставя на одну ступень потребительский опыт и инновационное лидерство, Брайан Солис подробно объясняет, как повысить эффективность бизнеса и степень вовлеченности потребителей, а также достичь желаемых взаимоотношений между компанией и ее клиентами. (   Читать дальше...   )Жанр: БизнесФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DED519A3C2C6266F4EBE0E2C208E4F2E23DA311
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

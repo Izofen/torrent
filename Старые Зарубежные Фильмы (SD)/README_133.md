@@ -1,27 +1,3 @@
-###  Публикация: 230681   (512678) от 27.08.2010
-
-Рабыни / Die Sklavinnen / Swedish Nympho Slaves / Uncut Version (1977) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: драма, криминал, эротикаРежиссер: Хесус Франко.Актеры: Лина Ромей, Мартин Стедил, Витор Мендес, Эстер Мозер, Пегги Маркофф, Айда Варгас, Хесус Франко, Реймонд Харди, Эрик Фальк, Роман Хубер и др.Перевод: Одноголосый закадровый + АнглийскийПродолжительность: 01:13:29
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 536590   (513491) от 19.08.2012
 
 Зловещий договор / Evilspeak (1981) DVDRip
@@ -42,6 +18,8 @@
 ```bash
 magnet:?xt=urn:btih:F46970E1F9E6BC98D013557F20FED2ED1555481B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:F46970E1F9E6BC98D013557F20FED2ED1555481B
 magnet:?xt=urn:btih:2F2611DEC07411D25E49F7263FE51475FDB09EE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:2F2611DEC07411D25E49F7263FE51475FDB09EE9
 ```bash
 magnet:?xt=urn:btih:E508FDFA0B4278D661D717A3FB6AAAC1ED3A1AE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:E508FDFA0B4278D661D717A3FB6AAAC1ED3A1AE6
 magnet:?xt=urn:btih:230D2F315923CC60C5DF8B625FEAB7A931E3A8E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +123,8 @@ magnet:?xt=urn:btih:230D2F315923CC60C5DF8B625FEAB7A931E3A8E9
 magnet:?xt=urn:btih:312ADAFFDE6D88ADEE0C37115053F4788D8DC28D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +148,8 @@ magnet:?xt=urn:btih:312ADAFFDE6D88ADEE0C37115053F4788D8DC28D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:312ADAFFDE6D88ADEE0C37115053F4788D8DC28D
 magnet:?xt=urn:btih:53D2732A16BEEB306A515E5D07A42B391E30BD2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:53D2732A16BEEB306A515E5D07A42B391E30BD2D
 magnet:?xt=urn:btih:312E745CE5E6F701A69047807DB1DDA11D1BE79E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ magnet:?xt=urn:btih:312E745CE5E6F701A69047807DB1DDA11D1BE79E
 ```bash
 magnet:?xt=urn:btih:86729A11B031A680352ECAEBE9615787CFA95EF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +255,8 @@ magnet:?xt=urn:btih:86729A11B031A680352ECAEBE9615787CFA95EF9
 magnet:?xt=urn:btih:F433FA7A8AFC9132481ABB5C1E48917C3C3DA542
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:F433FA7A8AFC9132481ABB5C1E48917C3C3DA542
 ```bash
 magnet:?xt=urn:btih:0E621E40DE76E7006B997A124BCEEBDDBDB05E35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +308,8 @@ magnet:?xt=urn:btih:0E621E40DE76E7006B997A124BCEEBDDBDB05E35
 magnet:?xt=urn:btih:9CBC339DC670C1B803E04CDE34FDB769F5ECFB00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +335,8 @@ magnet:?xt=urn:btih:9CBC339DC670C1B803E04CDE34FDB769F5ECFB00
 magnet:?xt=urn:btih:14FB7641E12BD19910EA82BAFEE59B2A760B0900
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +361,8 @@ magnet:?xt=urn:btih:14FB7641E12BD19910EA82BAFEE59B2A760B0900
 magnet:?xt=urn:btih:0B6CE91B1F5CC58FDE9DBBD1E5A1782034E220D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:0B6CE91B1F5CC58FDE9DBBD1E5A1782034E220D9
 ```bash
 magnet:?xt=urn:btih:3130220B2B7099D82D8F55F0807317D324453598
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +414,8 @@ magnet:?xt=urn:btih:3130220B2B7099D82D8F55F0807317D324453598
 magnet:?xt=urn:btih:0E3EBB1856EBA2413106F7CA05D361D8CA7EC1B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +439,8 @@ magnet:?xt=urn:btih:0E3EBB1856EBA2413106F7CA05D361D8CA7EC1B9
 ```bash
 magnet:?xt=urn:btih:F0E50068427621D6C08965FCB4CB04B0EE7C7921
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +466,8 @@ magnet:?xt=urn:btih:F0E50068427621D6C08965FCB4CB04B0EE7C7921
 magnet:?xt=urn:btih:62E7EEE99EC98EAA38E29DDF0F198620B1D769CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +491,8 @@ magnet:?xt=urn:btih:62E7EEE99EC98EAA38E29DDF0F198620B1D769CE
 ```bash
 magnet:?xt=urn:btih:0F2C1AF797B55124C385D16E7D3D7DA9B0B7D55E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +518,8 @@ magnet:?xt=urn:btih:0F2C1AF797B55124C385D16E7D3D7DA9B0B7D55E
 magnet:?xt=urn:btih:CB036A8B68898F6D8B0EBA8865E1A90193B8021F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +543,8 @@ magnet:?xt=urn:btih:CB036A8B68898F6D8B0EBA8865E1A90193B8021F
 ```bash
 magnet:?xt=urn:btih:5840E3A3DBA59E54A77DF5E39639BBD030D71CCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +570,8 @@ magnet:?xt=urn:btih:5840E3A3DBA59E54A77DF5E39639BBD030D71CCB
 magnet:?xt=urn:btih:079178DCAD136F52D86EDE462EBCD8728B4F135F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +595,8 @@ magnet:?xt=urn:btih:079178DCAD136F52D86EDE462EBCD8728B4F135F
 ```bash
 magnet:?xt=urn:btih:BC820E369F86ABB6E2AEB61D9C4D47BE0781B38F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +622,8 @@ magnet:?xt=urn:btih:BC820E369F86ABB6E2AEB61D9C4D47BE0781B38F
 magnet:?xt=urn:btih:FFF52E92A78B1713B25DF395FE2E8D10DDF75F89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +647,34 @@ magnet:?xt=urn:btih:FFF52E92A78B1713B25DF395FE2E8D10DDF75F89
 ```bash
 magnet:?xt=urn:btih:6C17B6D6D08C4441DF652064DB9AF5535E23C3B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240887   (518015) от 19.08.2018
+
+8 миллионов способов умереть / 8 Million Ways to Die (1986) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скаддер — детектив в департаменте шерифа. Во время очередного наркорейда он вынужден застрелить человека. Переживая по поводу этого инцидента, Скаддер начинает много пить, и из-за этого его увольняют с работы и распадается его брак. Во время лечения в Обществе Анонимных Алкоголиков он встречает таинственную незнакомку. Пытаясь помочь этой женщине, он погружается (   Читать дальше...   )Производство: США / Producers Sales Organization (PSO)Жанр: Боевик, Триллер, Драма, КриминалРежиссер: Хэл ЭшбиАктеры: Джефф Бриджес, Розанна Аркетт, Александра Пол, Рэнди Брукс, Энди Гарсиа, Лиза Слоун, Криста Дентон, Вэнс Валенсия, Вильфредо Эрнандес, Луиза ЛешинПеревод: Многоголосый закадровый, авторскийСубтитры: ОтсутствуютПродолжительность: 01:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B92948EE748E6AC0CB3EC5D42B7F4DFACAC1C9AC
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@ Udemy, YouRa Allakhverdov | Python разработка - с нуля до пр�
 magnet:?xt=urn:btih:7B52A612F68DC823F3D4E0D3E027D0467642DF4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:7B52A612F68DC823F3D4E0D3E027D0467642DF4D
 ```bash
 magnet:?xt=urn:btih:57AB1EB9E9B6E7B056CCA2E69DA92B22A929FA20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:57AB1EB9E9B6E7B056CCA2E69DA92B22A929FA20
 magnet:?xt=urn:btih:C4106C9A01ECDE5FFE881616FE5ED6340578AA84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ magnet:?xt=urn:btih:C4106C9A01ECDE5FFE881616FE5ED6340578AA84
 magnet:?xt=urn:btih:D83E12F092FACBFE66990A46D43CB61C35F8EFE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ Ashley Borden | 900 Calorie Burn (2015) DVDRip [H.264] [EN]
 magnet:?xt=urn:btih:6BE434CD624AD59E14769ADA568497AA416BD70F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ Jillian Michaels | Extreme Shed & Shred (2011) DVDRip [EN]
 ```bash
 magnet:?xt=urn:btih:D4AA83E589F69A43C91A36AA3D9D6FFC00FE5B88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ magnet:?xt=urn:btih:D4AA83E589F69A43C91A36AA3D9D6FFC00FE5B88
 magnet:?xt=urn:btih:A238E537854C51C85B2DAF7C14B7224A89AA49AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:A238E537854C51C85B2DAF7C14B7224A89AA49AD
 magnet:?xt=urn:btih:82D5FC420B507A6BCD427D79ED43C004524ADC99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ Magento не прост для понимания, потому что явля�
 ```bash
 magnet:?xt=urn:btih:EE5C47AA964E35D0598BBDDED31DFCA60D0D2B35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ Fxphd, Nick Nimble | Houdini Ocean Effects (2014) PCRec [EN, RU]
 magnet:?xt=urn:btih:EC04784F72204A7AF6E020DC8AE7ABAD9E384367
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ Geekbrains | SEO. Оптимизация и продвижение сайтов 
 ```bash
 magnet:?xt=urn:btih:C39FF07CE8440E6F2A2945EC67AADDD96D22F6CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:C39FF07CE8440E6F2A2945EC67AADDD96D22F6CA
 ```bash
 magnet:?xt=urn:btih:BFF81E4C36B85A5360B3EEC820ADB172D29AB3C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ Reflection API. java.lang.Class. Аннотации.
 magnet:?xt=urn:btih:59DEDAC03194FEC20F6E4229056DB500A3AE3DE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ wpa.at.ua | Проверь свою WI-FI сеть на устойчивость
 magnet:?xt=urn:btih:C42DDDF805E87D054BA34D442B09A3781454E4DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ Unreal Sensei | The Unreal Masterclass (2022) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:3B4F7C020F0DB37AF7B42569EED13DFAC06B8772
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +435,8 @@ SMM-менеджер отвечает за связь компании с ауд
 magnet:?xt=urn:btih:F0A8E7E2BC8AA467C59B918E4F6A78A79785D59D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:F0A8E7E2BC8AA467C59B918E4F6A78A79785D59D
 ```bash
 magnet:?xt=urn:btih:822381ED39C43D75B2846B4BC1BE46C0078EA537
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +491,8 @@ Corey Barker | Planet Photoshop by Corey Barker [2008-2011] [EN] PCRec
 magnet:?xt=urn:btih:F03AC5BC2D955390BC397AE5EA6855BA2688510B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ RollBack Rx - это Машина Времени для вашего много�
 magnet:?xt=urn:btih:B7A8CF451044BB2326E907F7380234331B31A145
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ Oleg Lav | Восстановление системы при загрузке �
 ```bash
 magnet:?xt=urn:btih:71EBD939135D70D046E9E8297315E7C2977EA540
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +570,8 @@ Blender Старт. LIGHT
 magnet:?xt=urn:btih:48CB16076BD083544372CD1196E68B9BE19C2684
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ Marco Bucci | 3D Techniques with Digital Painting (2019) PCRec [EN]
 magnet:?xt=urn:btih:7FF2526A70276C0F8F48880B13E257D199B391C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ magnet:?xt=urn:btih:7FF2526A70276C0F8F48880B13E257D199B391C6
 ```bash
 magnet:?xt=urn:btih:75CEC93137D17C27A3532C691FFCDE833D87CF97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +649,8 @@ Oleg Lav | Создание UEFI флешки на основе WINPE с Acronis
 magnet:?xt=urn:btih:22C22D63DA965F01ED2C540101BA0DA7237A17DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ Figma.center, Владимир Чернышов | Дизайн генерато�
 magnet:?xt=urn:btih:DE0DE15B999A31ED41F58D9E2A8D82F3E4CC6767
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ World Of Level Design | UE4 How To Create Custom Decals (2015) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:67C6D4537BC218BA36A88C0E17D98A17891B36BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Selber Machen - немецкий журнал для домашних масте
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ VA - Ballads in Blue (1999) [FLAC|Lossless]<Jazz, Vocal Jazz, Jazz ballads>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -85,6 +89,8 @@ VA - New Russian Electro - Vol.16 (2012) (2012) [MP3|320 kbps]<Electro House,Hou
 magnet:?xt=urn:btih:D4D125AC18F987E9E41E93F5828C9A1A4FB3893D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ Selbst ist der Mann — немецкий журнал для домашних м
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +149,8 @@ Ahmad Jamal - Blue Moon: The New York Session (2012) [FLAC|Lossless]<Post-Bop, P
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +174,8 @@ Ahmad Jamal - Blue Moon: The New York Session (2012) [FLAC|Lossless]<Post-Bop, P
 ```bash
 magnet:?xt=urn:btih:935D94FE849FE5DA17BB316D690B0E774FED86E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +210,8 @@ Soen - Cognitive (2012) [MP3|320 kbps]<Progressive Metal>
 magnet:?xt=urn:btih:69C0F76A18A675C440FC8D9B6616652C90282F62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -230,6 +244,8 @@ VA - Minimal Art v.6 (14.02.2012) [MP3|320 kbps]<Minimal>
 ```bash
 magnet:?xt=urn:btih:A31A56845F226F0F60CFBF35FF477BAF030B57A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +280,8 @@ VA - Minimal Art v.5 (13.02.2012) [MP3|320 kbps]<Minimal>
 magnet:?xt=urn:btih:E524D5FA25AFB867CCCF6044C458466270459980
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +314,8 @@ VA - The Dance Cube XXXI (2011) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:C2007DB91F91EB847386FA45C3E5ED2B119CA51D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -330,6 +350,8 @@ IntroWert - Progressive Reason Episode 070 [06.02.2012] (2012) [MP3|192 kbps]<Pr
 magnet:?xt=urn:btih:957FAF2E3EEAE493C9CB028AB074D56079EB861C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +384,8 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:292015F04280EA22C6B133099E02950FD12BBEB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +420,8 @@ VA - Stay Alive (Compiled by Wega) (2012) [MP3|192-320 kbps]<Psychedelic / Full 
 magnet:?xt=urn:btih:458F62A31FA07C3C2E39E867F4CDC139D09D033E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +445,8 @@ VA - Stax Does the Beatles (2008) [APE|Lossless]<Southern Soul, Jazz Soul>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +481,8 @@ VA - The Best Of Trance & Progressive 19 (2011) [MP3|320 kbps]<Trance, Progressi
 magnet:?xt=urn:btih:F5582C334190A3F7DD03187D299B8B201AAF772E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +506,8 @@ magnet:?xt=urn:btih:F5582C334190A3F7DD03187D299B8B201AAF772E
 ```bash
 magnet:?xt=urn:btih:C92BBBF14D4A51647E52490D96C4D2067F6AEEB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +540,8 @@ Sanathana - Saraswati (2012) [MP3|192-320 kbps]<Psychedelic / PsyAmbient, Electr
 magnet:?xt=urn:btih:4D54CD38EDF12F71D8C065AFA68683E403D25D67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +567,8 @@ VA - Derrick & Tonika, Shyma - Remix EP (2012) [MP3|320 kbps]<Drum & Bass>
 magnet:?xt=urn:btih:451CEEC97E1E446D6402B26E5AB99EE70329FDA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +592,8 @@ magnet:?xt=urn:btih:451CEEC97E1E446D6402B26E5AB99EE70329FDA9
 ```bash
 magnet:?xt=urn:btih:F80CF5E3A22240237880469C61C8260FC80733C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +628,8 @@ VA - Psychology Vol.3 (2012) [MP3|320 kbps]<Psychedelic / Ambient, Psy Chill>
 magnet:?xt=urn:btih:20EFC983498F7E72FA4968BCC5ECD551FAE0A697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +662,8 @@ VA - Record Super Chart № 228 (18.02.2012) [MP3|~142-320 kbps]<House, Trance, 
 ```bash
 magnet:?xt=urn:btih:949BBB3E7E949D069EE0C09BE1893F296608BE1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +698,8 @@ Voices From The Lake Feat. Donato Dozzy & Neel - Voices from the Lake (Album) (2
 magnet:?xt=urn:btih:6AF95E2DBC7B80389EC059CCD0F90EDBD9655091
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -688,6 +732,8 @@ Little G Weevil - The Teaser (2011) [MP3|320 kbps]<Blues>
 ```bash
 magnet:?xt=urn:btih:3F1121A71E490833139AEBE184E8E13CEB3741D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -722,6 +768,8 @@ Semargl - Satanic Pop Metal (2012) [MP3|256 kbps]<Melodic Industrial Metal>
 magnet:?xt=urn:btih:7D2FB02F09F02D864A302E04FD7FB4498750E6B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -746,6 +794,8 @@ magnet:?xt=urn:btih:7D2FB02F09F02D864A302E04FD7FB4498750E6B7
 ```bash
 magnet:?xt=urn:btih:500F2206BBF3D732E947B4ADBE5305DCF8E6C817
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -773,6 +823,8 @@ magnet:?xt=urn:btih:500F2206BBF3D732E947B4ADBE5305DCF8E6C817
 ```bash
 magnet:?xt=urn:btih:AB3E83ACCEF25489CF75622E8C4F017319D36E51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Slayer: The Demon Haunted World - это стратегическая экшен
 magnet:?xt=urn:btih:E5DE487027389B2AD25FEC7CEEDE7A1D0270FA7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Fallout 4 (2015) [Ru/Multi] (1.11.137.0.0/dlc) Repack Let'sРlay [Anniversary Ed
 ```bash
 magnet:?xt=urn:btih:7067B3EA45237BADD95FF438A43380A3A8F086FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Darkest Dungeon 2 - сиквел готической ролевой игры, �
 magnet:?xt=urn:btih:3B984D8A43824CC8B4B896921155E762DE07889E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.7.0/dlc) Repack dixen18 [Complet
 ```bash
 magnet:?xt=urn:btih:F37DDD1F76472E3A872619CF748A2112B55C5115
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ ArcaniA (2010) [Multi] (1.0.0.0) License GOG
 magnet:?xt=urn:btih:9CF692B5BD06856D30B20C6A27CFC202F09E6158
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Vampire's Fall: Origins - пошаговая изометрическая РПГ
 ```bash
 magnet:?xt=urn:btih:B8E8313233D962176FCC6A4C1E90DCC4E9D8D77A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Wytchwood – приключенческая игра, основанная на
 magnet:?xt=urn:btih:E7D014A092C982B5259D736B5A55B1C5F92A7799
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Venetica – игра в жанре CRPG, выпущенная в 2009 году 
 ```bash
 magnet:?xt=urn:btih:EB61A29170B2AB7AFBD4AD20A221BC348016E741
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Tiny Tina's Wonderlands (2022) [Ru/Multi] (10922058/dlc) Repack DjDI [Chaotic Gr
 magnet:?xt=urn:btih:ACCA20DABDA663A20185FAF5A8DA14C676A83018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Square Enix и Tri-Ace представляют последнюю часть с
 ```bash
 magnet:?xt=urn:btih:EDC7C6E4172B79E04A25BF657E75365AC9367F40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Minecraft Legends (2023) [Ru/Multi] (11023230) Repack DjDI [Deluxe Edition]
 magnet:?xt=urn:btih:6F17A09CF118A03B10B57334ACEFCCACB1F8BBEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Hard to Be a God – ролевое приключение в стиле нау�
 ```bash
 magnet:?xt=urn:btih:A91E3E5576ADAFDD0D2210462E0F325B0503A067
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Wartales (2021) [Ru/Multi] (1.0.25233) Repack DjDI
 magnet:?xt=urn:btih:3367B05AF5222DEB136FA9DF5B745DC0283F72A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Fallout 4 (2015) [Ru/Multi] (1.11.137.0.0/dlc) Repack Wanterlude [Anniversary Ed
 ```bash
 magnet:?xt=urn:btih:0AD9D6E2796840F184C0A0294338D97E01BDC5D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Rise Eterna (2021) [Multi] (1.0.0 r8) License GOG
 magnet:?xt=urn:btih:F89EECF218FFD1E37DAC123460409CAB0659B4AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Little Witch in the Woods позволяет окунуться в жизнь д
 ```bash
 magnet:?xt=urn:btih:C39A68D800BA4CB12D3ED9FE3817661CEFA7B5CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Legend of Heroes: Trails in the Sky - ролевой экшн, разраб�
 magnet:?xt=urn:btih:22462C6588A2491028740B6501A0896B9A3A5B97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ For The King II (2023) [Ru/Multi] (1.10.9/dlc) Repack Necros
 ```bash
 magnet:?xt=urn:btih:3EED5D6969A6BE58447489B0775ED4585075B171
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Geneforge 1 - Mutagen - изометрическая ролевая игра в 
 magnet:?xt=urn:btih:F6E235050FB936D84B72F168E1192A5A6F9FDC49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Sengoku Dynasty - захватывающее многожанровое соче
 ```bash
 magnet:?xt=urn:btih:A56E771C01C771B97309116F52823BA0C2674897
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Yendor 2 (сокращенно от Yendorian Tales part 2) - одна из мн
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Hell Clock (2025) [Ru/Multi] (1.2.0_17965/dlc) Repack Necros
 ```bash
 magnet:?xt=urn:btih:90A22939091F10121CDF1FBFFC56A2C548A15DCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Balrum, хардкорная ролевая игра с открытым мир�
 magnet:?xt=urn:btih:BC20025F4ED0E035FB5533396FE0D48A485538E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Hades (2020) [Ru/Multi] (1.38290) Repack Necros
 ```bash
 magnet:?xt=urn:btih:10E93E6DA60510EFED5A1AD5C720F87CC636BF45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Hades II (2025) [Ru/Multi] (1.133066) Repack Necros
 magnet:?xt=urn:btih:A25ECD2309C90B9F358DEB4A0B6A6963D244411B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Hand of Fate 2 — это «ползание по подземельям» в с
 ```bash
 magnet:?xt=urn:btih:B0E01B25B01596043E8FA1C93013C3278B9A3101
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

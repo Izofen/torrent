@@ -19,6 +19,8 @@ Milanoir – приключенческий экшен, выполненный �
 magnet:?xt=urn:btih:46CB1970FD24CE9071A5349D24F6E14FF2761F37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Risky Wings — это интенсивная летающая игра, в ко
 ```bash
 magnet:?xt=urn:btih:09D227ABF318A698A245F90B62C86BA5F424D76F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Risky Wings — это интенсивная летающая игра, в ко
 magnet:?xt=urn:btih:87C23C43951F1FD88324C5555FD67E8546F59DCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Dark Future: Blood Red States - это безумная аркадная гон�
 ```bash
 magnet:?xt=urn:btih:719017AD3B8570123E5C6CECD2B5F1D0ECE69812
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Under Night In-Birth Exe: Late представляет собой нечто с
 magnet:?xt=urn:btih:860FB064E327887C1ED22F59ABF3D7C37D663525
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Mortal Kombat XL – файтинг нового поколения и след�
 ```bash
 magnet:?xt=urn:btih:32167C301DCDB50CEDAD8B4ED74ADC9E9EA66C8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Lock's Quest (2017) [Multi] (20170716) License GOG
 magnet:?xt=urn:btih:15136570382EC68D365221A423021BFC430A656A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Bubsy: Paws on Fire! (2019) [Multi] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:347B7838582A5B383C908CEB41ED204BF0A90AC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Inked - это платформер со множеством головолом
 magnet:?xt=urn:btih:0CCC64CE75ADA35701C129D21910E96491B7AC29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Alien Shooter 2: Золотое издание [Ru] (L) (2007)
 magnet:?xt=urn:btih:9A36F2E3E0AAA8CCAA7ABECF15764A13CF7C4CFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ Oceanhorn: Monster of Uncharted Seas - На одном прекрасном ос
 ```bash
 magnet:?xt=urn:btih:2F57143423F99FD020771B56424664A19052C07C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:2F57143423F99FD020771B56424664A19052C07C
 magnet:?xt=urn:btih:11C6E97DA0200ECD2332F76589F7B4A93D7BE6DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Swords of Ditto — небольшой ролевой боевик, герои �
 ```bash
 magnet:?xt=urn:btih:1C6784842E25B37233A1ACF78F0721C13268D5C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Oddworld: Munch's Oddysee - это третья игра серии, дейст�
 magnet:?xt=urn:btih:3BCB1DE1DFE46E4A8A0165BC255E326CB78E486A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Omensight - это детективный боевик и духовный на�
 ```bash
 magnet:?xt=urn:btih:37A4C5178221674F61C13DF820B670AE7FFAA530
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Cast of the Seven Godsends - Redux (2016) [Ru/Multi] (1.0) License HI2U
 magnet:?xt=urn:btih:5E0015B203886429B10EAFC8F09E58B28E3DC66E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ Black The Fall (2017) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:8F80932B60DB8D780EA59FF55B05582DE6846884
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ Fly and Destroy — Ваша задача как можно дольше выд�
 magnet:?xt=urn:btih:48C6ADE54DAF84F6B93A8ACBD105987DAD03FA11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Outland - это динамичный платформер, в котором и
 ```bash
 magnet:?xt=urn:btih:C13A277CA9AB17F923E909E72F51C331C0780187
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Goat Simulator (2014) [Ru/Multi] (1.5.58533/dlc) License PROPHET
 magnet:?xt=urn:btih:C83C56FBA17C9DFA885850FF63B535CA83F0E6CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Mitsurugi Kamui Hikae - экшн-игра, в которой Вы управля
 ```bash
 magnet:?xt=urn:btih:03F017BB0E81F813E81706E2C79FC9D92CCAD059
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ Neighbours From Hell Compilation (2004) [Ru/Multi] (1.00.13233/1.01a.13237) Lice
 magnet:?xt=urn:btih:FC83D31C3EB790788106F061E07337D8CF501B9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ Haimrik (2018) [Ru/Multi] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:BE330B155A869DC04E51F1BD79B3FB6C0E4DD592
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ Dragon Ball: Xenoverse 2 (2016) [Ru/En] (1.07.00/dlc) Repack Mizantrop1337
 magnet:?xt=urn:btih:5019F289804AA3B6C2F973CC347E2D035A59F1BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ Unravel пленяет домашним теплом и уютом. Каждый
 magnet:?xt=urn:btih:9272F8F184B5E3504DBEAD6118A386B167580064
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Westboro (2017) [Ru/Multi] (1.00) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:8028518B7399A7F258B69CE847C1AEA34EDFCEA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

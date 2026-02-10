@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:DA25D3C43398752503334E966F951B859543F761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ CG Cookie | Основы моделирования 3D-меша в Blender 2.8 /
 magnet:?xt=urn:btih:4DE5400A10680227A7C7A17780772713EA1F228A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ CG Cookie | Создание анимации с ригом в Grease Pencil в 
 magnet:?xt=urn:btih:C48D9FD752B8BDB58594997184BE1CA5A623102E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ CG Cookie | Создание мини-танка для мобильных иг�
 magnet:?xt=urn:btih:750BEE3E14D41619FE6098D12E1229D2992AA46C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ CG Cookie | Создание зацикленного коридора в Blende
 ```bash
 magnet:?xt=urn:btih:1555B8ABA8E898A934D2B9599FD25CA9686E8E1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Udemy, Cubo Class и др. | Unreal Engine 4 Class. Blueprints Part 1-4 (2018) P
 magnet:?xt=urn:btih:B49A25FA454079E21F48657AA08481557C8266C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:B49A25FA454079E21F48657AA08481557C8266C9
 ```bash
 magnet:?xt=urn:btih:C8E9041FD4EAB1311447E18507F47E0BBFF58BA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Packt Publishing, Jonathan A. Daley | Building an Unreal RTS Game: Adding Killer
 magnet:?xt=urn:btih:FC5BCA90E469A14556BB17F85B8DCCA446D9E983
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Epic Games, Mathew Wadstein | UE4 Projects and File Structure (2018) PCRec
 ```bash
 magnet:?xt=urn:btih:A3E8A6710A52CD84F47BCF716B95971BE95066A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:A3E8A6710A52CD84F47BCF716B95971BE95066A5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ The Barre3 система физических упражнений (фитне�
 ```bash
 magnet:?xt=urn:btih:A5EA25B6E77A998C9D8F52A34BDEAF5AA2B4608B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Udemy, Сергей Лукаш | Профессия Junior и Middle SEO спе�
 ```bash
 magnet:?xt=urn:btih:F0839CF22C9BAC25CC2863AA639AFB924597E084
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:F0839CF22C9BAC25CC2863AA639AFB924597E084
 magnet:?xt=urn:btih:1C49F1E6362337006C0FAF8D94566A9BA14AECB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Stepik, Артём Прытков | Tableau Профессионал (2021) WEB-
 ```bash
 magnet:?xt=urn:btih:1427A3E030641133DEEB8C9774BB9441F8FDA4FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ Podlodka, А. Ложечкин и др. | Podlodka Soft Skills Crew - Комму
 magnet:?xt=urn:btih:561C0E8A97A991B050F66EAE57D034ACC3B56DAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ Udemy, Dennis Ivy, Brad Traversy | Django with React | An Ecommerce Website  (20
 magnet:?xt=urn:btih:BE4406E25FAD24D876D73C2CB350DB8DEAD74B6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ Udemy, Michael Ricks | Learn How To Do Amazing Cloth Animation In Unreal Engine 
 ```bash
 magnet:?xt=urn:btih:962E3D3E8DF31F7AA2617E36165E4390AC127F29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:962E3D3E8DF31F7AA2617E36165E4390AC127F29
 magnet:?xt=urn:btih:CA516CD11CF5238E0879712A9C1C2B8E5D92D854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ Unreal Engine, Jerome Platteaux | Lighting with Unreal Engine Masterclass (2017)
 ```bash
 magnet:?xt=urn:btih:ABDACDCC3397E39325B89A387C51DD3F2E9B3D54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ HitFilm Pro - это захватывающая программа для соз
 magnet:?xt=urn:btih:A9454757832E06156691522D339A90895ABAD30F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ CG Cookie | Анимация оружия персонажей от первог
 ```bash
 magnet:?xt=urn:btih:7A6D154CE66773924934B5F2F9A0921D4E745FAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ CG Cookie | Риггинг трансформирующейся винтовки
 magnet:?xt=urn:btih:05EE70461426C54E18FF3D8F2785D915DB23A2DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ CG Cookie | Создание процедурных песчаных дюн в B
 ```bash
 magnet:?xt=urn:btih:C6BA764A9C954537B660F97B4611F4464217BE53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ Pluralsight.com | Мониторинг MySQL с помощью Performance Schem
 magnet:?xt=urn:btih:9615ADE6335C7955B7C925B35F49BD2CE9A365B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:9615ADE6335C7955B7C925B35F49BD2CE9A365B4
 ```bash
 magnet:?xt=urn:btih:1A5719DCD3F3176EBB49430CE54EA2B87E42AE95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +689,8 @@ Domestika, Karmen Loh | Lighting and Color for Digital Portraits in Photoshop (2
 ```bash
 magnet:?xt=urn:btih:5D1929D54AA5DD23AC182D21D6375A4AF2C779C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

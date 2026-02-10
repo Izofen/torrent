@@ -19,6 +19,8 @@ Rosewater (2025) [Multi] (1.00.1) Repack FitGirl
 magnet:?xt=urn:btih:3FE3CB5AB78F6D72F27C13D45FADB542234F91A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Flintlock The Siege of Dawn (2024) [Ru/Multi] (1.1.72-268413/dlc) Repack Let'sР
 ```bash
 magnet:?xt=urn:btih:52FEF628585050A5810593CA64143A4BC4993BD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Tropico 6 (2019) [Ru/Multi] (23/dlc) Repack Let'sРlay [El Prez Edition]
 magnet:?xt=urn:btih:E5FC987F099ED81CD52A8024AB2591AAFF24944B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Lurking Danger (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:288A0F75FFCDE4F200094D87B342A97F1671ED17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Battle Brothers — это пошаговая тактическая ролев�
 magnet:?xt=urn:btih:5D19A57C95FCB759DB5A94F182E965E619D14767
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Somber Echoes - это мрачная фэнтезийная метроидва�
 ```bash
 magnet:?xt=urn:btih:957303DFC61E163A174AFA616EC2B0304CF8BA00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Tekken 8 - продолжение культового файтинга, нап�
 magnet:?xt=urn:btih:FF8844D47EFF6C0E5B6BA06F748F39A38B6BE90A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Legacy of Kain Soul Reaver 1&2 Remastered (2024) [Ru/Multi] (Build 17692767) Rep
 ```bash
 magnet:?xt=urn:btih:89F2DCC352FFCAD4350CD8DF4274995504F13720
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Star of Providence - вертикальный скроллер, действия
 magnet:?xt=urn:btih:8D21FC5A2DE3C6F9B907FB898C66ED27F5148428
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Which Way Up: Galaxy Games - это дружелюбная для всей се�
 ```bash
 magnet:?xt=urn:btih:082492F04BD44A8FF502C0C56C458A4908AA570E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Nature & Life - Drunk On Nectar - это глубокий симулятор п�
 magnet:?xt=urn:btih:1482DD9E25C8CF63A4F50654A38390061D1A3703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Tainted Grail: Conquest - мрачная ролевая игра с пошаго
 ```bash
 magnet:?xt=urn:btih:954F388AA6DB9FDC3293BA5F138EF86CC0173E82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (Bui
 magnet:?xt=urn:btih:D28E98B60ECC0E1C49D960F67882AD7C22F40593
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Thing: Remastered (2024) [Multi] (1.1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:BCB5683DBDE2D2DD118C910EA4C062C967B59599
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Afterimage - это двумерный приключенческий боеви
 magnet:?xt=urn:btih:644E13A381830C5EBCB40366EE16061BEC9C8AA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Miryam: The Polluted Land отправляет игроков в зловеще�
 ```bash
 magnet:?xt=urn:btih:5375D6A65B3D05FA8F94D9997971795ED94B3F69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Icebound Secrets: The Frostwood Bane / Тайны ледяного мира: П�
 magnet:?xt=urn:btih:5E3EFE01DEB04BD38100C601D996A081C300ABCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Inayah - Life after Gods (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:DA721A9F68FFE0E7636C77984C2680EE4B1B1161
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Rain World (2017) [Ru/Multi] (1.10.1/dlc) Repack FitGirl [Deluxe Edition]
 magnet:?xt=urn:btih:8989FD4BBE125E7635B2214F9338B9119FFE9131
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ A TAVERN FOR TEA предлагает примерить на себя роль 
 ```bash
 magnet:?xt=urn:btih:730E95F132EB4BA04BCEC007FA389B3B22237A5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.3/dlc) Repack FitGirl [Deluxe Editio
 magnet:?xt=urn:btih:4F1C7A6A911273822216216D8EF04B115CE6004E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Inayah - Life after Gods (2025) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:D0B02999EA5FBC44B7498DAC02BA9572467516AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Unholy (2023) [Ru/Multi] (30864) Repack Let'sРlay
 magnet:?xt=urn:btih:2A0BBFDB5AEDCED57B007D2815FA7BFD7E893909
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Bаttlеfіеld 4 – это определяющий для жанра, пол�
 ```bash
 magnet:?xt=urn:btih:7BF28C4879FC717D1A79C7C07AA6AA1BED7E24AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Twilight Monk (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:3D7B490D65EE4D774C276F1E12A24917A949AE5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Spyro Reignited Trilogy (2019) [Ru/En] (Build 3849171) Repack Mizantrop1337
 ```bash
 magnet:?xt=urn:btih:D584924EEC1FEE362E26898D159DDB6CB9362174
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Kubuntu 13.10 Saucy Salamander [i386, amd64] 2xDVD
 magnet:?xt=urn:btih:65984FBE939404FF3E9F0BCC22D7C9D435E1D494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ OPNsense is an open source, easy-to-use and easy-to-build FreeBSD based firewall
 ```bash
 magnet:?xt=urn:btih:EAAE2F72B6BA81F0AC1A22FF0839E38DCA00C908
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Debian KFreeBSD 7.2.0 [i386, amd64] (4xDVD)
 magnet:?xt=urn:btih:3620942DBBEB22FCD5A4CB38AC0F9A8779240E3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ KNOPPIX German DELUG edition of Linux Magazine. 8.0.0 [x32, x64] 1xDVD
 magnet:?xt=urn:btih:4396805D8BFF967C79CD5DBCD018EE16A83263BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Debian GNU/Linux 10.6.0 + nonfree Buster [amd64] 4xDVD
 ```bash
 magnet:?xt=urn:btih:5A976CF940FC8B225B44798A9D0C404AE41656B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Debian Edu, также известный как Skolelinux, является д
 magnet:?xt=urn:btih:9F0EE5402F5A9C0DDB58675533AB49DC58CD7E93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Parted Magic — готовое решение для работы с разде
 magnet:?xt=urn:btih:65EF8FF83787C2EA979409702F68AFD586D09063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Debian GNU/Linux 10.6.0 + nonfree Buster [i386] 4xDVD
 ```bash
 magnet:?xt=urn:btih:1A900A6F04D05F9DADADBADD8C901855FC9C7592
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Debian GNU/Linux 10.1.0 + nonfree Buster [i386] 4xDVD
 magnet:?xt=urn:btih:95A9C857B1A19341A81BFF09AE0EF1B503D62AAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ BackBox Linux 4.4 (Анализ безопасности, хакинг) [i386, a
 magnet:?xt=urn:btih:448CE28CA210C40CFD4FBDCB1EBD84BCBFDF15B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ Blender — многоплатформенный графический 3D па�
 magnet:?xt=urn:btih:BBA29CFCBD5260B88E8F7FFC81167692DFD00A28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Runtu XFCE 18.04.3 [x64] 1xCD
 ```bash
 magnet:?xt=urn:btih:D70F0964809C292F2D7951DD5AB7CA767DA0AE15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ Bugtraq II - дистрибутив с широким спектром прим�
 magnet:?xt=urn:btih:D5016044D75D989A57900150474FC84B1A789665
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ CentOS 7.4 (1708) [x86-64] 4xDVD, 2xCD
 ```bash
 magnet:?xt=urn:btih:019A04A1684A8C146C0FC26E09D9FBB6840BCDCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ XigmaNAS — свободная операционная система для �
 magnet:?xt=urn:btih:6C17CE0087EB8A4C859367BAF72EBDA44C266A13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ BlackArch Linux 2019.09.01 [Хакинг, аудит, безопасность] 
 ```bash
 magnet:?xt=urn:btih:E704D04CBDF072A043C8872B97F49638324093D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ Sabayon 15.10 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE) [amd6
 magnet:?xt=urn:btih:9A7C167D7290C744807A53C3E73FABD90D07B8AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ ArcoLinux ранее - ArchMerge дистрибутив, сочетающий в
 ```bash
 magnet:?xt=urn:btih:0D2EFE01B75FBDC70AC2EB9922F535B2E483A6EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ KDE neon User Edition 5.19 LTS(20.04) (сентябрь 2020) [64-bit] 1xDVD
 magnet:?xt=urn:btih:B8A9741E836F388F5DD624FBAE57A6EA6A998E12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ KaOS Linux 2015.10 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:0E177C337F331DC888D545B0F819374A89537DCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +565,8 @@ Cr OS Linux (произносится как Cros Linux) является сво
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ KNOPPIX 8.2 [x32, x64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:D7E179D9D5B3886F8F3719DF04851000FDF2923B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +617,8 @@ Kubuntu 18.04.1 - новая версия бесплатной операцио�
 magnet:?xt=urn:btih:D03BE69BC3037C696F83AEA30D536A1ED68574A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ Parted Magic — готовое решение для работы с разде
 magnet:?xt=urn:btih:57CAEBB378AA34F339DAD33C0240A603BE5129B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ SystemRescueCd — это спасательной диск в системе Li
 ```bash
 magnet:?xt=urn:btih:1A444E67C2C143E27F9542AB30A2C84E1DB20949
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +696,8 @@ Lubuntu — это свободная операционная система н
 ```bash
 magnet:?xt=urn:btih:F3EC99828EB44E02114AE9C6EC501CECF852D887
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

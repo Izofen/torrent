@@ -22,6 +22,8 @@ VA - Matrix Downloaded 006 (2016) [MP3|320 Kbps] <dark electro, ebm, industrial>
 magnet:?xt=urn:btih:D0AD4970F94460D685AD9E3009092F9B18787503
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Electric Cloud (2019) [MP3|320 Kbps] <Synthwave, Synthetic, Electronic>
 ```bash
 magnet:?xt=urn:btih:308DDA0FE0944293B0AD5A96669DF409AB0ED0CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Neon Party: Electro House November Mix (2019) [MP3|320 Kbps] <Club, Dance, 
 magnet:?xt=urn:btih:238B85D969BCB4628B784B7EC66624B569196515
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Katherine Penfold - Sweetest Thing (2019) [FLAC|Lossless|tracks + .cue] <Vocal J
 magnet:?xt=urn:btih:D345C41D09FFA0C057482FE7551E1396247D9DEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:D345C41D09FFA0C057482FE7551E1396247D9DEB
 magnet:?xt=urn:btih:8FFA514F491814481B1E2196CED06BE32FAF9ED7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:8FFA514F491814481B1E2196CED06BE32FAF9ED7
 ```bash
 magnet:?xt=urn:btih:653AA207E6B4E174B6994737F85F8D14B0059444
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ VA - Music Rocket Launcher: Hardstyle Anthems (2019) [MP3|320 Kbps] <Hardstyle, 
 magnet:?xt=urn:btih:53ED939E4A21F966B3C21C663BB8780FAC83260D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ VA - Endles Cycle: Techno Electronic Liveset (2019) [MP3|320 Kbps] <Techno, Elec
 magnet:?xt=urn:btih:892DBE73F835D7B6C1680B73CE48214E2CBB74FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ magnet:?xt=urn:btih:892DBE73F835D7B6C1680B73CE48214E2CBB74FA
 ```bash
 magnet:?xt=urn:btih:0E40A8AFAFC190FA5AE6C7920BCC34F61A72B5D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +275,8 @@ Joey Calderazzo - To Know One (1991) Blue Note [FLAC|Lossless|tracks + .cue] <Po
 magnet:?xt=urn:btih:451D75AC8B9CA2AE83980C9986D7C763898C274D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +304,8 @@ Victor Goines - Joe's Blues (1998) Rosemary Joseph Records [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:70AFD68B65114D64ACAD5ADDD6643506381F9E8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +329,8 @@ magnet:?xt=urn:btih:70AFD68B65114D64ACAD5ADDD6643506381F9E8E
 ```bash
 magnet:?xt=urn:btih:8E43E87293EB828317857A2F10C4A93921F29FB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +357,8 @@ magnet:?xt=urn:btih:8E43E87293EB828317857A2F10C4A93921F29FB9
 magnet:?xt=urn:btih:4E3BCDFF5E7F86C2A1A8238234AE854E7E4A74CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ magnet:?xt=urn:btih:4E3BCDFF5E7F86C2A1A8238234AE854E7E4A74CF
 ```bash
 magnet:?xt=urn:btih:E0B3F2B87F69ADEBE4D43DB15F5B882855786871
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +409,8 @@ magnet:?xt=urn:btih:E0B3F2B87F69ADEBE4D43DB15F5B882855786871
 magnet:?xt=urn:btih:5F3C8AB34444F8B068AEC8B99876EE59642B2751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:5F3C8AB34444F8B068AEC8B99876EE59642B2751
 magnet:?xt=urn:btih:1334F9B94D5EF6179388C3253D21C0A8BB40908C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ magnet:?xt=urn:btih:1334F9B94D5EF6179388C3253D21C0A8BB40908C
 ```bash
 magnet:?xt=urn:btih:D94DB1E98B52E7D5364DD1A0B3459BFC40460A86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ magnet:?xt=urn:btih:D94DB1E98B52E7D5364DD1A0B3459BFC40460A86
 magnet:?xt=urn:btih:0E1954B0C3512CC85D99A691C71DDBA5DEEDDAA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:0E1954B0C3512CC85D99A691C71DDBA5DEEDDAA4
 ```bash
 magnet:?xt=urn:btih:E0CE5ADD4C976BAA060A13FE764589BE543218C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ magnet:?xt=urn:btih:E0CE5ADD4C976BAA060A13FE764589BE543218C1
 magnet:?xt=urn:btih:321CB3E499F7422CBFE9ED5504D4ECFBCFE4B7CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:321CB3E499F7422CBFE9ED5504D4ECFBCFE4B7CE
 ```bash
 magnet:?xt=urn:btih:3DC386397091E29CF0EDB9B67995DC7AE2B45F94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:3DC386397091E29CF0EDB9B67995DC7AE2B45F94
 magnet:?xt=urn:btih:280FC83402FC7234AC71CCB889E4EFF9A72A626F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +628,8 @@ magnet:?xt=urn:btih:280FC83402FC7234AC71CCB889E4EFF9A72A626F
 magnet:?xt=urn:btih:9BB3EF430F9D3C13A04095399928B1B1176661E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +653,8 @@ magnet:?xt=urn:btih:9BB3EF430F9D3C13A04095399928B1B1176661E3
 ```bash
 magnet:?xt=urn:btih:5E1D605CDD5E089632521B6E962AD0847CEAB7CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +680,8 @@ magnet:?xt=urn:btih:5E1D605CDD5E089632521B6E962AD0847CEAB7CC
 magnet:?xt=urn:btih:410AD750869408D1BDF9D27C7F4B44526652A792
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ magnet:?xt=urn:btih:410AD750869408D1BDF9D27C7F4B44526652A792
 ```bash
 magnet:?xt=urn:btih:36E50E690B4E8CCA369E39EE61835CF3D1F904F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

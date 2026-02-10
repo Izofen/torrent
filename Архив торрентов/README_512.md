@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B4C63E352BD693F897A2995F4CA453E5227B6D74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Ace Hood - Starvation (2012) [MP3|320 кб/с]<Southern Rap>
 magnet:?xt=urn:btih:D917089D59474C1C4C00EE4E7EADF2FBF16CFB6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:D917089D59474C1C4C00EE4E7EADF2FBF16CFB6D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:D917089D59474C1C4C00EE4E7EADF2FBF16CFB6D
 ```bash
 magnet:?xt=urn:btih:FEC6375AAEB311CDE41F8DEA7CC9FEAFD30A844C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:FEC6375AAEB311CDE41F8DEA7CC9FEAFD30A844C
 magnet:?xt=urn:btih:B78F28085BA2A1B8FE23C6E7D87295836BAD0542
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:B78F28085BA2A1B8FE23C6E7D87295836BAD0542
 ```bash
 magnet:?xt=urn:btih:2A37699C63029FB10689C0003B843CA3439795B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -183,6 +195,8 @@ magnet:?xt=urn:btih:2A37699C63029FB10689C0003B843CA3439795B4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ Radiant Particles - потрясающие частички живых обое�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ Asus K70AB/X70AB/PRO79AB - оригинальный диск для Windows 7 Dr
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +274,8 @@ Asus K70AB/X70AB/PRO79AB - оригинальный диск для Windows 7 Dr
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ Asus K70AB/X70AB/PRO79AB - оригинальный диск для Windows 7 Dr
 ```bash
 magnet:?xt=urn:btih:3448D0A178FAA101BDA73C24B41B2422BBA8267B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +327,8 @@ magnet:?xt=urn:btih:3448D0A178FAA101BDA73C24B41B2422BBA8267B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ Magic CG - это журнал для художников, концепт-ар�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +385,8 @@ ABViewer – многофункциональное качественное и 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +410,8 @@ Rayman Origins - это классический платформер не то�
 ```bash
 magnet:?xt=urn:btih:D6AE5BC9D5AB1ADC183A9211362E23B7E6B4DC99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +437,8 @@ magnet:?xt=urn:btih:D6AE5BC9D5AB1ADC183A9211362E23B7E6B4DC99
 ```bash
 magnet:?xt=urn:btih:89B360E475C516E0A2E3E824F24D1DD7821D0D12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +466,8 @@ Tango Studio - полноценный Live (GNU / Linux) DVD дистрибут�
 magnet:?xt=urn:btih:1A0AFA9DA9ECC657783D73D6028CF9BA5B8D4C83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +491,8 @@ magnet:?xt=urn:btih:1A0AFA9DA9ECC657783D73D6028CF9BA5B8D4C83
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +523,8 @@ Cryostasis: Sleep of Reason / Анабиоз: Сон Разума [Ru/En] (RePac
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +549,8 @@ Daum PotPlayer - это мультимедийный проигрыватель 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +574,8 @@ Daum PotPlayer - это мультимедийный проигрыватель 
 ```bash
 magnet:?xt=urn:btih:6DF92C0C7472521CB8AD679759BCF16E10373FCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +609,8 @@ Philter - Beyond the Perimeter (2009) [FLAC|Lossless]<Psychedelic / Progressive>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +635,8 @@ Philter - Beyond the Perimeter (2009) [FLAC|Lossless]<Psychedelic / Progressive>
 magnet:?xt=urn:btih:04CAEEA104A1357736F88F69BAD98447865B739D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +660,8 @@ magnet:?xt=urn:btih:04CAEEA104A1357736F88F69BAD98447865B739D
 ```bash
 magnet:?xt=urn:btih:C4B1D3EA5AAD56580758EBFFF14ADE4F1EBAC68E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +688,8 @@ Photo Magician – отличная программа для быстрого �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +715,8 @@ Photo Magician – отличная программа для быстрого �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

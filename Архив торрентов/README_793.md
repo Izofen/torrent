@@ -19,6 +19,8 @@ Diamonds & Dudes - развлекательный интернет-журнал 
 magnet:?xt=urn:btih:930FCAE774A6F249A93138965884958FC17C896F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:930FCAE774A6F249A93138965884958FC17C896F
 magnet:?xt=urn:btih:A26BAA251242F9C9A73CF8B6BFFA059660AA6E27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Scion Versions - Label Pack (7 релизов) (2006-2010) [MP3|320 кб/с]<Dub
 magnet:?xt=urn:btih:690CC24011E180323BA35F902BDC1D50DC6E722D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ RadioMaximus - полнофункциональный проигрыватель
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ RadioMaximus - полнофункциональный проигрыватель
 ```bash
 magnet:?xt=urn:btih:C69A2154FFF4159E88DA544AD146B56F0DF56A90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ Ancestors - In Dreams And Time (2012) [MP3|320 кб/с]<Stoner Doom>
 magnet:?xt=urn:btih:670FF1A783229323AEA9DD7475F8D2BF4DCD5024
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ Conan - Monnos (2012) [MP3|320 кб/с]<Doom Stoner Metal>
 magnet:?xt=urn:btih:8F2E2D62C623A374D04F003D6ACE4D70F1EB7875
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ Inspected Records - Full Label (2011 - 2012) [MP3|320 кб/с]<Dubstep, Grime>
 magnet:?xt=urn:btih:10E473EC2E5BB4809A10EC7BEDE6FBFBA87F01EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:10E473EC2E5BB4809A10EC7BEDE6FBFBA87F01EF
 magnet:?xt=urn:btih:4E98AC9A62C9D461ABE233674F3EC4960C50D2DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ magnet:?xt=urn:btih:4E98AC9A62C9D461ABE233674F3EC4960C50D2DC
 magnet:?xt=urn:btih:22306F8CA08CBFCE43C5E5525369FF186969CCC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ SeaMonkey — проект, основанный на добрых традиц�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +329,8 @@ Andy Caldwell - Universal Truth (2006)
 magnet:?xt=urn:btih:787125422D15909231424CADBE78FFD25868537B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +354,8 @@ magnet:?xt=urn:btih:787125422D15909231424CADBE78FFD25868537B
 ```bash
 magnet:?xt=urn:btih:372ACB7824D56F66E7DD0456B2F1B449A0DF7014
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +382,8 @@ magnet:?xt=urn:btih:372ACB7824D56F66E7DD0456B2F1B449A0DF7014
 magnet:?xt=urn:btih:E8EEF14583F2B33492D0D8FF7743AC57CEA0CCEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +408,8 @@ magnet:?xt=urn:btih:E8EEF14583F2B33492D0D8FF7743AC57CEA0CCEC
 ```bash
 magnet:?xt=urn:btih:8D00FA811F53A0256AF663FA908ED1FEE73CD29A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +440,8 @@ VA - Heroes Of Trance (13.04.2012)Год: 13.04.2012
 ```bash
 magnet:?xt=urn:btih:C863A5DEA79B80E185C0E09A838D8F4DAE1E02C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +476,8 @@ VA - Simply Lounge (2012) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:913FA0DAC1A1B9FC5992B3A1FE20E0600046E12D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +502,8 @@ magnet:?xt=urn:btih:913FA0DAC1A1B9FC5992B3A1FE20E0600046E12D
 magnet:?xt=urn:btih:BD6623588AB13DBE8D9CF29C2BE1128F7C531DDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +527,8 @@ magnet:?xt=urn:btih:BD6623588AB13DBE8D9CF29C2BE1128F7C531DDA
 ```bash
 magnet:?xt=urn:btih:8E06E1B88449F5DD0EEBA3A96762D5F2DC24AF23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +558,8 @@ magnet:?xt=urn:btih:8E06E1B88449F5DD0EEBA3A96762D5F2DC24AF23
 magnet:?xt=urn:btih:FBC632F8894D00C7E9EF1456D09EA2FFEE955AA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +587,8 @@ magnet:?xt=urn:btih:FBC632F8894D00C7E9EF1456D09EA2FFEE955AA2
 ```bash
 magnet:?xt=urn:btih:94320EDE8C242A6021B0F3BE9583B6C4E287FEC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +618,8 @@ magnet:?xt=urn:btih:94320EDE8C242A6021B0F3BE9583B6C4E287FEC2
 magnet:?xt=urn:btih:2F7C9AA010D01E844444441C1554281EC02AB99A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +648,8 @@ magnet:?xt=urn:btih:2F7C9AA010D01E844444441C1554281EC02AB99A
 magnet:?xt=urn:btih:B5090CB7B3BB22696AA54F6041FEB19B1992033F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +677,8 @@ magnet:?xt=urn:btih:B5090CB7B3BB22696AA54F6041FEB19B1992033F
 ```bash
 magnet:?xt=urn:btih:EF22CB313D184DB8AA08D2DA66A18136F80A8489
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -665,6 +713,8 @@ Fomento - To Persevere Is Diabolical (2012) [MP3|~245 кб/с (V0)]<Thrash Metal
 magnet:?xt=urn:btih:C915C478D180620073DC31BE57EF29FB5F3C2A9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -688,6 +738,8 @@ magnet:?xt=urn:btih:C915C478D180620073DC31BE57EF29FB5F3C2A9B
 ```bash
 magnet:?xt=urn:btih:8ED3FE101138D6A3B7F1552F368B9D79756C26C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

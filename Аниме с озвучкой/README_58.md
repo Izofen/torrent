@@ -22,6 +22,8 @@ Stranger Mukoh Hadan | Sword of the Stranger | Меч чужака [2007, Movie]
 magnet:?xt=urn:btih:65C89B600EEB89D494E421601FC709B49A96F61A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Girls und Panzer Gekijouban | Girls und Panzer der Film | Девушки и Та
 magnet:?xt=urn:btih:EA2258998D7AE0F28B5436A4EB01E923E1EA3346
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ OVA, сюжет которой рассказывает о битве проти
 ```bash
 magnet:?xt=urn:btih:03A76FAC130106A9DDAE8FA408DF5957CF36A920
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Haiyore! Nyaruko-san F | Ползучий Хаос! Няруко-Сан [ТВ-1]
 magnet:?xt=urn:btih:CBBB67AF8D2C9283912A3D006ADDD313383F3BF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Haiyore! Nyaruko-san W | Ползучий Хаос! Няруко-Сан [ТВ-2]
 ```bash
 magnet:?xt=urn:btih:63A6FCFE29225B308A363406B862F8AD0525C750
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Keijo!!!!!!!! / Кэйджо!!!!!!!! [2016, TV, 12 ep] HDTV 720p Raw+Rus
 magnet:?xt=urn:btih:E1F47D3C671B0DAB1147FA47DEDC706BD953D133
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Maken-ki! / Не проиграю! [2011, TV, 12 ep] BDRip 720p Hi10p raw + rus
 magnet:?xt=urn:btih:FB60F0FFEEDBE055B3B4D9E45A7D38ADBE013351
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Gekijouban Soushuuhen Overlord | Overlord: Fushisha no Ou & Shikkoku no Eiyuu | 
 ```bash
 magnet:?xt=urn:btih:71020520716F03496C8EA84CB888B28222B9478C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ B Gata H Kei / Размер - второй, характер - извращен�
 magnet:?xt=urn:btih:2AC9CF36EAC3A8E1C03101C32F1E9A7EDF3F7C64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Baccano! / Шумиха! [2007, TV, 13] BDRip 720p raw + rus
 magnet:?xt=urn:btih:AA7AFF234E7B4A310AB26B553A2414DCCCB22289
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Zero kara Hajimeru Mahou no Sho | Grimoire of Zero | Книга Магии дл�
 ```bash
 magnet:?xt=urn:btih:867FF1D1AAEFF6D1721528CB18C4FC60B0C7A8CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ Netoge no Yome wa Onnanoko ja Nai to Omotta? | And You Thought There Is Never a 
 magnet:?xt=urn:btih:7D6E1A73A2B3F1F6BC8DB80123674BC87DA4D863
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ Cross Ange: Tenshi to Ryuu no Rondo | Cross Ange: Rondo of Angel and Dragon | К
 magnet:?xt=urn:btih:8657996F28792A1BD71892CFC2A507D93852A749
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Gochuumon wa Usagi Desuka? / Кролика заказывали? [TV-2] [2015, 
 ```bash
 magnet:?xt=urn:btih:0EBCA2BA23BBEE2DFB59100FD4220B31FC00DF7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ Mirai Nikki | The Future Diary | Дневник Будущего [2011, TV, 26 e
 magnet:?xt=urn:btih:DF331DEC29706CCB55863C8EDF90FCF07F103473
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Kill la Kill | Убей или Умри [2011, TV, 24 ep + SP] BDRip 1080p 10-bi
 ```bash
 magnet:?xt=urn:btih:3FD282DBB0D930E780671627E5C0BF770EE49C35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ Shoujo Shuumatsu Ryokou | Girls' Last Tour | Девушки в Последне�
 magnet:?xt=urn:btih:1B724F92F2528E5144BD5B1B59E7906669E1ABC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ Heisei Tanuki Gassen Ponpoko | Pom Poko | Помпоко: Война танук�
 ```bash
 magnet:?xt=urn:btih:053D9F2F6D29D019E41DC9D7176024E957FDE70F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Bougyaku Sareta Tamashii no Jukyou | Corpse Party: Tortured Souls | Вечери
 magnet:?xt=urn:btih:1A39EF8006B899CFD7F6ECF9064228677A969090
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ Teizokurei Daydream | Ghost Talker's Daydream | Мечты вульгарног�
 magnet:?xt=urn:btih:48D5C205A98A033DB6730BF0F1409EADA9D19B9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ Ansatsu Kyoushitsu / Assassination Classroom / Класс убийц [ТВ-1] [2
 ```bash
 magnet:?xt=urn:btih:480DE6A244749596913DA136C656079341A97885
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ Burn Up Scramble | Burn Up Scramble | Спецотряд Burn Up [2004, TV] DVDR
 magnet:?xt=urn:btih:24A9581AEEF124CB4F747E01C1CDE2C14B78656C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ Burn Up W | Burn-Up W - On the Case & In your Face | Разгон! Дубль-в
 magnet:?xt=urn:btih:BDF77F82738BC6AE543DAB3053250D5C9E9190E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Burn Up | Burn Up! | Разгон! [1991, OVA] DVDRip 480p raw+rus
 ```bash
 magnet:?xt=urn:btih:F92B29A00A88F625A42390C4349C58ED035CD2D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ Yuru Yuri 2 / Yuruyuri 2 / Cвободу Лесбиянкам 2 [2012, TV, 12] H
 magnet:?xt=urn:btih:F1AE2DA41B41C4FD5B623EC1D38E03555C0989CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ Kaze no tani no Naushika / Nausicaa from the Valley of the Wind / Навсика
 ```bash
 magnet:?xt=urn:btih:E248910C45F52581E901AF001B8E91E3FD26CC05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

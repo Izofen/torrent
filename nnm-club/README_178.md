@@ -19,6 +19,8 @@ Fast Screen Recorder — это программное обеспечение д
 magnet:?xt=urn:btih:8D44519C4875A5572779864A845F19E72D2CF4D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ A Shelter Full of Cats приглашает геймеров в уютный м�
 ```bash
 magnet:?xt=urn:btih:A0EC8C85ECB84008CA8C9D9EADB7D41E09D70C2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ VA - Русская 30-ка хитов 17 (Новые русские песни)
 magnet:?xt=urn:btih:1A7E126C5D20270020F8D149F46B21A20268D659
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:1A7E126C5D20270020F8D149F46B21A20268D659
 magnet:?xt=urn:btih:FE0807F0E9760B608381DDE72AB139E5C81E5A5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Zoochosis (2024) [Ru/Multi] (1.6.8) Repack Other s
 ```bash
 magnet:?xt=urn:btih:22525D1DD04F088B4872C87E998B8A819C95CD46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ REPOSE (2025) [Multi] (1.1.0.4) License GOG
 magnet:?xt=urn:btih:06BF490A698334D2A76D548D035A5B23D9A4CB0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ PhotoDiva - программа для ретуши портретных фото
 magnet:?xt=urn:btih:BD4BC0BF5FA1200D9EDAF79E65ECC6B74D31B377
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:BD4BC0BF5FA1200D9EDAF79E65ECC6B74D31B377
 ```bash
 magnet:?xt=urn:btih:6916E15B7F3A7181B51662A78077507C35B25477
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:6916E15B7F3A7181B51662A78077507C35B25477
 magnet:?xt=urn:btih:A2702C6D2A4B5921DB6051C2EED8F445D658BAB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:A2702C6D2A4B5921DB6051C2EED8F445D658BAB0
 ```bash
 magnet:?xt=urn:btih:9569E82C19729ABEC873CCC37095EA919F1FC4EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:97966FA8E0FF7C1130B352734F2D7465BE102231
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:97966FA8E0FF7C1130B352734F2D7465BE102231
 magnet:?xt=urn:btih:0CB34BD5C158EAC681F1F128582300031EE1F071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ ElectroBox - Electronics v50 Mod by Viktor245 [Multi]
 ```bash
 magnet:?xt=urn:btih:E7A410A58747E12DD6B1CAD0200D63B9AFC6D8D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ VA - 80s Music - 150 Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:334594C3C694708939AB8D62B79CA27110E473EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:334594C3C694708939AB8D62B79CA27110E473EB
 ```bash
 magnet:?xt=urn:btih:92F4BECE41AF964EFEA6DE5E979BE6CB082ED994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:92F4BECE41AF964EFEA6DE5E979BE6CB082ED994
 magnet:?xt=urn:btih:1ABDCC0BC448088E26D61350A5ADF4DAD08D083E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ Words – это лучшее приложение для изучения сл�
 ```bash
 magnet:?xt=urn:btih:53FC05A78A819E80D5F70D3AC4C879206288DB3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:53FC05A78A819E80D5F70D3AC4C879206288DB3A
 magnet:?xt=urn:btih:03ECB4F35A8072ACB7D30DF2013E5B3FCF63F910
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:03ECB4F35A8072ACB7D30DF2013E5B3FCF63F910
 ```bash
 magnet:?xt=urn:btih:8E18B3C8CC9CCB584287E5CE2E573FD101D0CA66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ Winxvideo AI  - это набор инструментов для масштаб
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Winxvideo AI  - это набор инструментов для масштаб
 ```bash
 magnet:?xt=urn:btih:5829FC36AF4992E9B61B23592169D16E2C0315D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ IsMyLcdOK - небольшая бесплатная программа для о
 magnet:?xt=urn:btih:E83B2285F3131BEE1415F015DDB1A1B1CA7EE65F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:E83B2285F3131BEE1415F015DDB1A1B1CA7EE65F
 ```bash
 magnet:?xt=urn:btih:1D17B13F4E9D974424174FBF1C945E275395523C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ Advanced Renamer хоть и бесплатная (   Читать дальше
 magnet:?xt=urn:btih:C4AD6085E1C528995F62B285AF3CCE16F8B7A8EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Dave the Diver - это казуальная приключенческая RPG 
 ```bash
 magnet:?xt=urn:btih:2834D2D74D2AB3CD8E4B2E1C440851E9F3A37589
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +681,8 @@ HCL Notes (ранее IBM Notes/Domino, старое название — Lotus 
 ```bash
 magnet:?xt=urn:btih:834D9CDFAF3A44125668FA5A59C908CFF5D9B386
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

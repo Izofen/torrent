@@ -19,6 +19,8 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 magnet:?xt=urn:btih:2896E2EF1BB058EBCE281D49C3F0C4FE1835D18B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ FacePic — приложение AI Face, приложение для легко
 ```bash
 magnet:?xt=urn:btih:28EFF3DD58A2FD68C144D65991CDEC7D24E418E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ AI Photo Editor Pro - Polish v1.693.239 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:08C13BA941789E0552E05608AD9D3A27287CAFEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Smart AudioBook Player Pro v11.6.2 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0294A94277BB6BE8D31C7AA46E82AE5720D96A5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ ProShot v8.32.3 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:B9DB622851B136356EA41405D30D8D6A5C593967
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ ToonApp карикатура фоторедактор лучшее прилож�
 ```bash
 magnet:?xt=urn:btih:1B67FC982B57781CD223FBCE508E1331971F8037
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:1B67FC982B57781CD223FBCE508E1331971F8037
 magnet:?xt=urn:btih:7F0564F5DE92984BCA4CB05D70751812124D3538
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:7F0564F5DE92984BCA4CB05D70751812124D3538
 ```bash
 magnet:?xt=urn:btih:53BC21BEEEF29E9D984D9184098C56F11A93CDE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:53BC21BEEEF29E9D984D9184098C56F11A93CDE8
 magnet:?xt=urn:btih:21A7D9CC1C5C016B9171BA4061E390C918C04F4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ SIP клиент для Android. Не теряет связь с серверо�
 ```bash
 magnet:?xt=urn:btih:FA74510FEC81DD607375A9CE74B8E78641932550
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Tacticool v0.945 [Ru/En]
 magnet:?xt=urn:btih:6FAA2D938F094F6800FD4B39EF853243F3FB7D0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ VIP MP3 Player (ZK.FM Player) v4.1 (96) Mod [Ru]
 ```bash
 magnet:?xt=urn:btih:95D599F59FAF0B2D9AD77908BAE853F225C76557
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ iGO R3 Here (NavTeq) Европа 2018.Q3 (.fbl, .fda, .fjw, .fjv (Russia), .fpa
 magnet:?xt=urn:btih:143B18F63D649446750884227E6C8F7E5D5AB547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ FreeFlix TV Pro v1.0.3 Mod [En]
 magnet:?xt=urn:btih:6DE5B61642CEB26F1491E3EC3824F464EDCF570D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ WordBit v1.3.5 [Ru/En] - Английский язык (на блокировк�
 ```bash
 magnet:?xt=urn:btih:5D996D6ADBC92A717A00A6EE723E1CE24EFB49CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:5D996D6ADBC92A717A00A6EE723E1CE24EFB49CE
 magnet:?xt=urn:btih:C38C8F84926110129391CEF9445CDDF71EFA13C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:C38C8F84926110129391CEF9445CDDF71EFA13C3
 magnet:?xt=urn:btih:777B779204F06003ED3EAA88C3BE1ABD84E1ACD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ mPro.Скорая помощь v2.2.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:45F50DEF59C778F9E4E53CB48E4CF6C898D318F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ AnTuTu Benchmark 6.3.1 [Rus]
 magnet:?xt=urn:btih:D1EE9C856EB36B3A366AE284A5591544F1844586
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Digital clock & world weather 2.00.01 [Multi]
 ```bash
 magnet:?xt=urn:btih:1B80EBECB757916B45800F076712F638F98220E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ GSM Spy Finder 16.01 (AdFree) [Ru-Multi]
 magnet:?xt=urn:btih:EDC2127DA87F761BA445D34587E90E4C15EF8365
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:EDC2127DA87F761BA445D34587E90E4C15EF8365
 magnet:?xt=urn:btih:5ED999AF52D3BA52CFACF1BEA0BC36424F157B4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ AnExplorer PRO File Manager v4.0.4 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BB11D491673CFA7C2672D609E3A5396BF1FED997
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:BB11D491673CFA7C2672D609E3A5396BF1FED997
 magnet:?xt=urn:btih:4C912E81C5F11DEA49CFE70FC41D278309C068F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Root Call SMS Manager 1.8.1 [Ru] Full
 magnet:?xt=urn:btih:69023A14CA1AD75167863BF2BD6FC4DC36E1BCC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ Automatic Call Recorder – приложение, позволяющее авт�
 ```bash
 magnet:?xt=urn:btih:AFEE306170003F745B7319AC403E75DE69599FFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -28,6 +28,8 @@ Kenny G - The Classic Christmas Album (2012) [MP3|320 кб/с]<Smooth Jazz, Inst
 magnet:?xt=urn:btih:90C2E769CB8E096D676C3BC5CAE09F8FB7E39418
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ Johnny Meyer - The Swinging Accordeon (1993) [FLAC|Lossless]<Bop, Swing>
 ```bash
 magnet:?xt=urn:btih:2F8BFE96F7222DF56387579019A23B47AD516623
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ Nicolas Masson, Roberto Pianca, Emanuele Maniscalco - Third Reel (2013) [FLAC|Lo
 magnet:?xt=urn:btih:FE9D16B4896D4040377231525115C78BA182B970
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +133,8 @@ J. Curly Speegle - Soul-A My Rock-A (2012) [FLAC|Lossless]<Blues-Rock>
 magnet:?xt=urn:btih:BB0B5B28F7FDFE530134B6FA437DF05776197F92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +161,8 @@ CD1 - Mister Blues Genius:
 ```bash
 magnet:?xt=urn:btih:4F277B4E765143D761066C27B920591EA2427EAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +191,8 @@ McCoy Tyner - Time For Tyner (1968) 2006, Toshiba-EMI [FLAC|Lossless|tracks + .c
 magnet:?xt=urn:btih:077A675E0EE720F8C5FE0C76E39CFB9D007C4B38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +219,8 @@ Lee Morgan - Volume 3 (1957) 2007, Blue Note [FLAC|Lossless|tracks + .cue] <Hard
 ```bash
 magnet:?xt=urn:btih:B4AED70A8FCBDA5955918F6BCB23345451D306A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +249,8 @@ Yusef Lateef - The Diverse Yusef Lateef (1970) 2006, Rhino [WavPack|Lossless|ima
 magnet:?xt=urn:btih:FEE7AED19455F25F8C5F5031E17D7BA9B2D0787C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +278,8 @@ T-Square - Human (1993) Sony Music[FLAC|Lossless|image + .cue] <Jazz Fusion>
 magnet:?xt=urn:btih:B527B9438398B96012D0AB9F8D8F41AF6A307399
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +306,8 @@ Big Bad Family (1994) Finalmix Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion
 ```bash
 magnet:?xt=urn:btih:268FE340E57C5534C4F48ACABAB61CE3FDDE238D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +337,8 @@ Joss Stone - The Best Of Joss Stone 2003-2009 (2011) [MP3|320 кб/с]<Soul, Neo
 magnet:?xt=urn:btih:177CA6435984AD3A0D9A406BA655493BED2732A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +365,8 @@ Mitch Laddie Band - Live In Concert (2014) Live [FLAC|Lossless|image + .cue] <Bl
 ```bash
 magnet:?xt=urn:btih:DC393814DFF22D7FB9F91D9FBBB2FF11E6589192
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +395,8 @@ Larry Miller - Live'N'Loud (2005) Live [FLAC|Lossless|image + .cue] <Blues Rock>
 magnet:?xt=urn:btih:217EED0266167836F0F4196BEA9F5B6A98B4DF30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +423,8 @@ Johnny Smith - Favorites (1959) Remaster, 2016, Warner[FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:CC31CD53E9755EEA3BE64A5C4E89929418DD8768
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +453,8 @@ Frank Morgan - Listen to the Dawn (1994) Verve[FLAC|Lossless|tracks + .cue] <Pos
 magnet:?xt=urn:btih:7A5B6BD824CD30DBBA008142D18802A2248E96D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +481,8 @@ Keb' Mo' - Keb' Mo' (1994) SACD, 2011 Mobile Fidelity Sound Lab [FLAC|tracks +cu
 ```bash
 magnet:?xt=urn:btih:8AB8CBDA67CA662308B33C5DCB0A251676708882
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +517,8 @@ Duke Ellington - Piano In The Foreground (1999) [FLAC|Lossless]<Jazz, Swing, Pia
 magnet:?xt=urn:btih:4FAA417F91D747986299202C9D03FAE6211E1209
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +545,8 @@ Sly & The Family Stone - There's A Riot Goin' On (1971) 24k Gold Disc, 2013, Epi
 ```bash
 magnet:?xt=urn:btih:8A90AD8805A238A07F739DAAED49E0E3D71740F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +575,8 @@ Acoustic Alchemy - The Best of Acoustic Alchemy (2013) [FLAC|Lossless]<Instrumen
 magnet:?xt=urn:btih:36FEF9DAAAB55D458F5140B1C3E2A490E996AE89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +604,8 @@ Jef Gilson - Malagasy (1972) Reissue, 2014, Jazzman [FLAC|Lossless|tracks + .cue
 magnet:?xt=urn:btih:FF8C83FA6F649A014937519D0B8F678A292CBD9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +630,8 @@ The Frank Wright Quartet - Church Number Nine (1970) 2002, Black Keys[FLAC|track
 ```bash
 magnet:?xt=urn:btih:63E234D503DD2F2C69E46F46B822FBD800800FED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +660,8 @@ CD1:
 magnet:?xt=urn:btih:D1E85C78B27DC673597F4A0170ACEE761DC48166
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +688,8 @@ Arnett Cobb - Live (1982) Remaster, 2015, Timeless Records[FLAC|tracks+.cue] <Ma
 ```bash
 magnet:?xt=urn:btih:7304E7FC40B5FF062367D0CBDF3B36482E33EB98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -672,6 +718,8 @@ The Lenny Hambro Quintet - The Nature Of Things (1956) Remaster, 2015, Sony Musi
 magnet:?xt=urn:btih:C81467E5FD31C3B965A72E648FED1218B5E08E8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +747,8 @@ Wes Montgomery - Wes's Best (1960-e) 2019, Resonance Records [FLAC|Lossless|trac
 magnet:?xt=urn:btih:AF6174D5019B2934EA3B3855094706D39BDA78CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -725,6 +775,8 @@ VA - Tea Time Moments Vol 1 (Finest Relaxing Smooth Jazz Music) (2017) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:E06A9585EC4262A22047A6B178861C3D83B5C6AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 976213   (969437) от 17.01.2016
+
+Битва экстрасенсов. Сезон №16. Выпуск №16 (Виктория Райдос) (2016.01.16) DVB [H.264]
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о Виктории Райдос - победительнице 16 сезона шоу. Как она открыла в себе дар, чем он ей помогал или мешал и другие подробности из жизни самого сильного экстрасенса этого сезона.Телекомпания: Жанр: Реалити ШоуПродолжительность: ~ 01:10:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF57A2951CA15FE51EE929B943F0E84A034023FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976479   (969442) от 17.01.2016
 
 Воскресный вечер с Владимиром Соловьевым (17/01/2016) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:4777A7063056F12522D3C0D9727140B68255F257
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:4777A7063056F12522D3C0D9727140B68255F257
 magnet:?xt=urn:btih:8A3D4EC43E7CC6777C001608A5D3DCAA6D9D4C72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:8A3D4EC43E7CC6777C001608A5D3DCAA6D9D4C72
 ```bash
 magnet:?xt=urn:btih:345BFFEE9536C49E08005F3FA4E9BB1AC83E6766
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:345BFFEE9536C49E08005F3FA4E9BB1AC83E6766
 magnet:?xt=urn:btih:74A52D4A92A0EC455483FF72F3B5EE323BD4E04A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:74A52D4A92A0EC455483FF72F3B5EE323BD4E04A
 ```bash
 magnet:?xt=urn:btih:C21DFDA635FC35CA880E893A4034CE7509D79424
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:C21DFDA635FC35CA880E893A4034CE7509D79424
 magnet:?xt=urn:btih:00AEF66AAE86CDE471D4F4A83037D2B02BE4BF5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:00AEF66AAE86CDE471D4F4A83037D2B02BE4BF5C
 ```bash
 magnet:?xt=urn:btih:ACE175C6B6FAE7C89B8FD286BD76DCB43B103404
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:ACE175C6B6FAE7C89B8FD286BD76DCB43B103404
 magnet:?xt=urn:btih:B738C4B302325CEFB056E675B71D26A50038064E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:B738C4B302325CEFB056E675B71D26A50038064E
 ```bash
 magnet:?xt=urn:btih:3B1BCFDABABA5D07839AF96C4816118E0C6FD5D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:3B1BCFDABABA5D07839AF96C4816118E0C6FD5D6
 magnet:?xt=urn:btih:FF2610E35FE805FF72E5533530B512D45AB72F7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:FF2610E35FE805FF72E5533530B512D45AB72F7F
 ```bash
 magnet:?xt=urn:btih:23D7B957BF5D87874F3A8015559D455EC9730A50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:23D7B957BF5D87874F3A8015559D455EC9730A50
 magnet:?xt=urn:btih:DD6D684FE1FCD0C750DB0A71288CDC4A22F3D053
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:DD6D684FE1FCD0C750DB0A71288CDC4A22F3D053
 ```bash
 magnet:?xt=urn:btih:D8CBA552C5F88D98B42235CEDB99146F87783F8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:D8CBA552C5F88D98B42235CEDB99146F87783F8D
 magnet:?xt=urn:btih:AF2DCBAE0015BFC577E63425DE6760D2E9DB98A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:AF2DCBAE0015BFC577E63425DE6760D2E9DB98A9
 ```bash
 magnet:?xt=urn:btih:9CD1807B3EF600918CC76FDEDDD39861402AAA42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:9CD1807B3EF600918CC76FDEDDD39861402AAA42
 magnet:?xt=urn:btih:5078BE77497DD75A131BC706CC417F6BBA87B031
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ NG: Тайны истории. Александр Македонский / Myste
 ```bash
 magnet:?xt=urn:btih:A96A1FD5FF4248F38C057CE8BA83A69E0C3066E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:A96A1FD5FF4248F38C057CE8BA83A69E0C3066E1
 magnet:?xt=urn:btih:D0E63BE37C96CA5E22047E19BB176994F5C422EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:D0E63BE37C96CA5E22047E19BB176994F5C422EF
 ```bash
 magnet:?xt=urn:btih:28877649DDDD7A7F7218DFD1744502599D2F0053
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:28877649DDDD7A7F7218DFD1744502599D2F0053
 magnet:?xt=urn:btih:60A8FD7DE4E0FCD818897B123D387F40D4F0D974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:60A8FD7DE4E0FCD818897B123D387F40D4F0D974
 ```bash
 magnet:?xt=urn:btih:72EC61A57EA4C52E21812E844946DDAAB73AAD8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:72EC61A57EA4C52E21812E844946DDAAB73AAD8C
 magnet:?xt=urn:btih:5ECA00F9226801D28D0EF5E37B3BD2F9CEECCFC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:5ECA00F9226801D28D0EF5E37B3BD2F9CEECCFC8
 ```bash
 magnet:?xt=urn:btih:E64090D89ECE3F4D27C8D4C8C7E552797955464C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:E64090D89ECE3F4D27C8D4C8C7E552797955464C
 magnet:?xt=urn:btih:104C67DE6AFFD5CC6CCA8769474C9D9F8BE024A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,29 +673,7 @@ magnet:?xt=urn:btih:104C67DE6AFFD5CC6CCA8769474C9D9F8BE024A2
 magnet:?xt=urn:btih:24211BE0E388F0BD05838445FFD61F9E8EA516E2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975166   (971573) от 15.01.2016
-
-Реальная мистика / Реальна містика (2015) SATRip [UKR/RUS] (выпуски 1-19 из 19)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971573.jpg" />
-</div>
-
-
-###  Подробнее
-
-На телеканале "Украина" – премьера нового проекта документального расследования – "Реальная мистика". Программа ставит перед собой амбициозную задачу: найти рациональное объяснение, на первый взгляд, совершенно загадочных и мистических событий. Ее героями станут простые зрители, столкнувшиеся с необъяснимыми явлениями в своей жизни.Производство: Україна, ТРК УкраїнаЖанр: ТелепередачаЯзык озвучки: Украинский/РусскийПродолжительность: каждый выпуск ~00:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:165FEC0AEE4A6EF674512EC131D93E7A8D67D7D7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -28,6 +28,8 @@ Revox - M100 Audio CD (2010) [FLAC|Lossless]<Audiofile, Test>
 magnet:?xt=urn:btih:F88D4ABECEEFD376DC738D40FD1CC4BD4AFAA4CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -61,6 +63,8 @@ Reference Recordings - 30th Anniversary Sampler (2006) [FLAC|Lossless]<Audiofile
 magnet:?xt=urn:btih:14BDDCCCF58DFD54DEF7E9DEAC94495A71FF8B58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -88,6 +92,8 @@ Brian Tyler - Ready or Not / Я иду искать (Original Motion Picture Sou
 magnet:?xt=urn:btih:6459EC20B29C9D32EAE310F6FB7D8B90937B6FF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -111,6 +117,8 @@ Simon Viklund and VA - Payday: The Game Soundtrack, Payday 2: Official Soundtrac
 ```bash
 magnet:?xt=urn:btih:69F17F67E53E209356CA5972ED01F857B964FDE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +153,8 @@ Legacy Audio - Sampler 1 (2012) [FLAC|Lossless]<Audiofile, Test>
 magnet:?xt=urn:btih:A1F1A848CFC918D3343BAA09DA052C60C6D18FAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +187,8 @@ Max Greger - Max Greger Plays The Best Of Glenn Miller (1992) /2004 Polydor (UA)
 ```bash
 magnet:?xt=urn:btih:84C78F1AA7599A82B309DE6E207FFC168D3187CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +223,8 @@ Audison - Music Expression Vol. 1 (2008) [FLAC|Lossless]<Audiofile, Test>
 magnet:?xt=urn:btih:EB0D3BF28F1E69F165D48A340D36FE82D65570A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +251,8 @@ Brian Tyler - Ready or Not / Я иду искать (Original Motion Picture Sou
 ```bash
 magnet:?xt=urn:btih:F30891C3B1899422CD06F4EB111F863C91B63DE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +281,8 @@ Nicholas Britell - The King / Король (Original Score from the Netflix Film
 magnet:?xt=urn:btih:A524B2DD25B7210AC4DEE7ADDA5EB647B076CCE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +309,8 @@ Nicholas Britell - The King / Король (Original Score from the Netflix Film
 ```bash
 magnet:?xt=urn:btih:0F3FB6A51FDFC40FF5400ED90827D3863864DD5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +345,8 @@ Naim - The Sampler 6 (2006) [FLAC|Lossless]<Audiofile, Test>
 magnet:?xt=urn:btih:F656350197FE3D8EC4B8D86E9B7003C0D9A6F62E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +377,8 @@ Renaud de Vergnette основал компанию Triangle в 1981 году. �
 magnet:?xt=urn:btih:11B1EA4162531D2DDAF38BA4453F722684C6810B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +404,8 @@ Manish Vyas - Atma Bhakti (2015) [MP3|320 кб/с] <New Age, World, Mantra>
 ```bash
 magnet:?xt=urn:btih:D4FAE2AD55CB4E04DCB4ACB46619A48194949272
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +440,8 @@ Apples From Mars - Apple Number One (2013) [MP3|256 кб/с]<New Age, Chillout, 
 magnet:?xt=urn:btih:7E2B12B96DC95ED9066C21C53534649D2E211F01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +474,8 @@ CD1 - Разговор со счастьем73. Вступление к к-ф '�
 ```bash
 magnet:?xt=urn:btih:E543924FF3FABDADD0740E67A7F25F13C768BC4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +510,8 @@ Robin Meloy Goldsby - Magnolia (2013) [MP3|320 кб/с]<New Age, Instrumental, R
 magnet:?xt=urn:btih:F0BE53629B4523D04CA063C08325014AB9F810EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +544,8 @@ Oliver Scheffner - Summer Lounge (2012) [MP3|320 кб/с]<New age>
 ```bash
 magnet:?xt=urn:btih:0CA5604CCD0073CFBF82423BDC19CFD7CF489EAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +580,8 @@ Glen Campbell - Ghost On The Canvas (2011) [MP3|320 кб/с]<Country>
 magnet:?xt=urn:btih:D66E7808C40B05FC8D3753D758E1BCF83E35DBBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +614,8 @@ magnet:?xt=urn:btih:D66E7808C40B05FC8D3753D758E1BCF83E35DBBA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +650,8 @@ CD 101. Sail Along Silvery Moon 	(02:24)
 magnet:?xt=urn:btih:F6F960A1DA38C446ED02EC1A141078F993C2F62E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +678,8 @@ VA - Mystic Spirits vol. 3, 2CD (2001) [FLAC|Lossless|image + .cue] <Folk, Ambie
 ```bash
 magnet:?xt=urn:btih:57FD464C36681C1CBF217544BE2A5FFFD89BC4C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -666,6 +708,8 @@ VA - Mystic Spirits Vol. 2, 2CD  (2000) [FLAC|Lossless|image + .cue] <Ambient, F
 magnet:?xt=urn:btih:2B64E2AC6234555751FCD9B19D90194E8ED42018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -692,6 +736,8 @@ Jean Michel Jarre - The Concerts In China (1982) 2CD, Remastered, 2014, Sony Mus
 ```bash
 magnet:?xt=urn:btih:4B84852C41120785BCC4F0540F28254A04160C71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -726,6 +772,8 @@ George Feyer - George Feyer Plays George Gershwin (1991) /Vanguard Classics/ [FL
 magnet:?xt=urn:btih:C2D25B89A0BE688E9749C74284906FE96ACD4548
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -758,6 +806,8 @@ Dallas Wind Symphony - Pomp & Pipes! - Frederick Fennell, Paul Riedo (organ) (19
 magnet:?xt=urn:btih:7A4805AF364D7B39254FEDAA86891783594F11F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -781,6 +831,8 @@ VA - Ultimate Classical Guitar - The Essential Masterpieces (2008) 5CD, Box Set 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

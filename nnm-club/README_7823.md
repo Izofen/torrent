@@ -20,6 +20,8 @@ Screen Wonders 1.8.0 [Multi/Ru]
 magnet:?xt=urn:btih:D78A2D668DD1FCE6E012E416673AD85370D7A44D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:D78A2D668DD1FCE6E012E416673AD85370D7A44D
 ```bash
 magnet:?xt=urn:btih:1B1E4286ED76339DE3677A3C4D2E4AC2B766492F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Kumano - Kumano (1980) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
 magnet:?xt=urn:btih:372DB944D556369AB015C09BA57EFD72E7911B92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Micke Bjorklof & Blue Strip - Colors of Jealousy (2023) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:331043A5FD49AE205C33ED182E489E3CC02901D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:331043A5FD49AE205C33ED182E489E3CC02901D6
 ```bash
 magnet:?xt=urn:btih:7AF112EE44259336951EB5BD78E11BDC14D673B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ Mork - Dypet (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 magnet:?xt=urn:btih:7B974C507E33EF6E7703F095037C13640DFC0D80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:7B974C507E33EF6E7703F095037C13640DFC0D80
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:7B974C507E33EF6E7703F095037C13640DFC0D80
 ```bash
 magnet:?xt=urn:btih:219045AAD4E99B703436B2EC29B3220BAFE0228E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ The Lurking Fear - Death, Madness, Horror, Decay (2021) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:C3E9D5DD791DC1AE2B0547ED6DAAA939026E3699
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:C3E9D5DD791DC1AE2B0547ED6DAAA939026E3699
 ```bash
 magnet:?xt=urn:btih:127D48BA85F03197C9B183C4F1DC6D7FE72ADC4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:127D48BA85F03197C9B183C4F1DC6D7FE72ADC4C
 magnet:?xt=urn:btih:9F1F8B4EECCABAF4C622D748303C08203A171F4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ QuickLens 2.7 [En]
 ```bash
 magnet:?xt=urn:btih:A9D4524CB42D85A77CA961D36F1A07F78A2D8EE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:A9D4524CB42D85A77CA961D36F1A07F78A2D8EE6
 magnet:?xt=urn:btih:34A06481FE7BA9D8E2319300D58236F61BB7A2A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:34A06481FE7BA9D8E2319300D58236F61BB7A2A1
 ```bash
 magnet:?xt=urn:btih:A0E735D53FF1C38DCCDEFAC80442B69227E9E1AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ IronBourne - IronBourne (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:4B934423BD41E45C2F862D5D9F79819CE3AB2894
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ Noumena - Anima (2020) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 magnet:?xt=urn:btih:3598B056D8EF448A24A2BAA7E92694EE145E71C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ DirEqual - это инструмент сравнения папок, котор
 ```bash
 magnet:?xt=urn:btih:90597AB493BA46E02CDD91F6546FCE082CB1A26C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:90597AB493BA46E02CDD91F6546FCE082CB1A26C
 ```bash
 magnet:?xt=urn:btih:E96CFAB289AF9EC4FFB3A3A2A3126A79A00BF4CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ Ashley Sherlock - Just A Name (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:2314D8AFDAB949E1ACFBC2896A5D07A9E453F988
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +543,8 @@ Eddie Higgins Trio - Portraits Of Love (2009) Venus Records [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:B1F0230C7C76E06D30CC26273B7A25E963AD1513
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +573,8 @@ Nervochaos - Chthonic Wrath (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 magnet:?xt=urn:btih:6C0764B483AB906BF2D8E613C8C32379B352564B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ Audacity - свободный, простой в использовании зв
 magnet:?xt=urn:btih:D92DF2DA2498FC0C99E14430E37370182F274984
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ magnet:?xt=urn:btih:D92DF2DA2498FC0C99E14430E37370182F274984
 ```bash
 magnet:?xt=urn:btih:91883DCD074701F05B72DA310A3B9FC45248A4A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ Hot Lips Page - After Hours In Harlem (1940 - 1941) 1998, HighNote [FLAC|Lossles
 magnet:?xt=urn:btih:A874B30A5FB5F2F45C6AC3E1C3AB1371D36EB94E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +680,8 @@ magnet:?xt=urn:btih:A874B30A5FB5F2F45C6AC3E1C3AB1371D36EB94E
 magnet:?xt=urn:btih:628C881027506794646FAC0C46F2A5F052C688D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ Udemy, Aleksey Zhadan, Лев Мотовских | AWS. Обучение раб�
 ```bash
 magnet:?xt=urn:btih:7FBA68F8AD15D307312166F6A67501FF8F152F99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

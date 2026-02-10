@@ -19,6 +19,8 @@ Icecream Video Editor - простой редактор видео для Window
 magnet:?xt=urn:btih:1E11008912AE1A7DDCEA8ADD4A83141869CE7D2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ XYplorer – удобный мультивкладочный файловый м
 magnet:?xt=urn:btih:69C1F9A33AEB0203E32D106888A9B2799C82467E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ GoodSync - программа из серии высоконадежного, у
 ```bash
 magnet:?xt=urn:btih:44D0AACB43EBBCDE7475561F04B3AE841804DCB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:06469FC8201E94CF4FCB11B0FD223FEFCB2E703D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Waves Complete V14 2023.02.07 VST, VST 3, AAX, STANDALONE (x64) RePack by R2R [E
 ```bash
 magnet:?xt=urn:btih:BA00B2DE54CE7F305DB09D737292C7B11C8F9CA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Duplicate Cleaner - мощный и профессиональный инстр�
 magnet:?xt=urn:btih:CBFA2D92C32B2229A07252FD50863E3C02BD5DB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:CE3A7AE89AFC167008FBAA352575BB074F9CE5F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ O&O DiskImage позволяет создавать резервные копи�
 magnet:?xt=urn:btih:EC5F3448E11ABF9ED4796C6154DE4950D64DC53D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ EarthView — это динамические обои для рабочего �
 ```bash
 magnet:?xt=urn:btih:0B27CFCA18587CF0950D17404EA009FF0E67F27C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Advanced Renamer хоть и бесплатная (   Читать дальше
 magnet:?xt=urn:btih:53BE888AC63289D8A94B0CC60229E2A266F6B978
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ ISO Workshop – небольшая программа для работы с о
 ```bash
 magnet:?xt=urn:btih:2E72D685FDBC18A610E75A6E60A7A1CEB39898B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Root Explorer или Root Проводник - это отличное прил�
 magnet:?xt=urn:btih:EE7E5355B079C2E9E072910A4203337F98C64D32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:CC8FAFD014FA858394C6ACE6E586C44A6EEF8AA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:35C3D77BF72F8D0F6C87CCCE9604E49EF7DCB45F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Directory List & Print – менеджер каталогов, предназн
 ```bash
 magnet:?xt=urn:btih:BCA5060ACD39575E5909AFDFFCBD6792309E6541
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Media Player Classic - BE – универсальный проигрывате�
 magnet:?xt=urn:btih:7B5C959E5DF83556DF38228DD975369BA5D8BB29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ nthLink — мощный и бесплатный VPN способный обхо
 ```bash
 magnet:?xt=urn:btih:2032EE9BA646A1AD78C6D01CFC9B4DBBDE31B108
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ YouTube ReVanced - это реинкарнация проекта YouTube Vanced
 magnet:?xt=urn:btih:F915AD5C6C3BDB22E4ACAC0170AB905EA6839DDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:5D22334E50E2E418DA804E29034D32C9E99BAB13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Complete Internet Repair 9.1.3.6120 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:8BF944B108FF6189676B86771A2CA9E3748B4F8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 ```bash
 magnet:?xt=urn:btih:2F21C756459D5D36D2A51FFCAFEE7919D62E0800
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Smart Launcher - лаунчер являющийся одним из самых 
 magnet:?xt=urn:btih:DDD63542803A908FE9587F9305FE6FD54EB4C7D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Windows 11 Manager - это универсальная утилита специ
 ```bash
 magnet:?xt=urn:btih:B11DC1BAA646F9297F1828104A531CC925E598F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Auslogics Anti-Malware предлагает дополнительную защ�
 magnet:?xt=urn:btih:123F6F2A6C2272E9D3BA1EE8EA3356FA2991E042
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ WhatsApp Messenger - это кроссплатформенное приложе�
 magnet:?xt=urn:btih:B29DFBDF434418BA2A8F312C3E1F96716A27579E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ HyperSnap — инструмент для захвата изображения,
 ```bash
 magnet:?xt=urn:btih:110E322F46340F85D38FA7A84C7259B6F17128DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Ninja Gaiden Sigma 2 Plus (2013) [PSVita] [USA] [HENkaku] [Unofficial] [Ru]
 magnet:?xt=urn:btih:9FDF07A5E7AB3E40D78BE42B4B90028168C47F27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:9FDF07A5E7AB3E40D78BE42B4B90028168C47F27
 ```bash
 magnet:?xt=urn:btih:3444F642AA9EB84AFB13B5E3A0503DF897AAF3B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:3444F642AA9EB84AFB13B5E3A0503DF897AAF3B1
 magnet:?xt=urn:btih:B900A178441DC9DB818DECED25919D1E1853286C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:B900A178441DC9DB818DECED25919D1E1853286C
 magnet:?xt=urn:btih:0264A62082F6029A71E97B06B6406FDFCEEE370C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:0264A62082F6029A71E97B06B6406FDFCEEE370C
 ```bash
 magnet:?xt=urn:btih:C766715CD09EE12F7DEA59FEACD5C0989D7C82BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:C766715CD09EE12F7DEA59FEACD5C0989D7C82BC
 magnet:?xt=urn:btih:690BEB575528BCB4E5F6F2D5786F4D5401BDE47E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:690BEB575528BCB4E5F6F2D5786F4D5401BDE47E
 ```bash
 magnet:?xt=urn:btih:3BA0A6A274D04D5986346A47E1C5FFDAB646F711
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:3BA0A6A274D04D5986346A47E1C5FFDAB646F711
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:3BA0A6A274D04D5986346A47E1C5FFDAB646F711
 ```bash
 magnet:?xt=urn:btih:A51FBB1D83F3A07733A691FB76B20E8E039AE638
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:A51FBB1D83F3A07733A691FB76B20E8E039AE638
 magnet:?xt=urn:btih:5B492B8F9D8D0CD256B51C70E3AF01EA2798D3F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Auto Shutdowner 1.3 + Portable [Ru/En]
 magnet:?xt=urn:btih:850E03F994A71D92D4E518647A74CB9535316F9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:850E03F994A71D92D4E518647A74CB9535316F9F
 ```bash
 magnet:?xt=urn:btih:9841FF5D7BB2670845492EA37D9E684F162CAF06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:9841FF5D7BB2670845492EA37D9E684F162CAF06
 magnet:?xt=urn:btih:C4FC5E648A9CE78274AC39EB57DF9788D39C8F94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:C4FC5E648A9CE78274AC39EB57DF9788D39C8F94
 magnet:?xt=urn:btih:E22765F2A87DBFFB3BDE5ACF2F0F237C1344F4C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Glary Disk Cleaner - бесплатный инструмент от компан
 ```bash
 magnet:?xt=urn:btih:2D5BACA3C4AFF3B41903E33EC5AA465332553477
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ Udemy, Krishna Lodha | Web GIS development course (2022) WEB-DL [EN / EN Sub]
 magnet:?xt=urn:btih:DE6181E9E083FE05E96E3F2A2272D51726144471
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:DE6181E9E083FE05E96E3F2A2272D51726144471
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip
 ```bash
 magnet:?xt=urn:btih:0F3E0272C3BA86025E6BD5840801208C3A46E1B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:0F3E0272C3BA86025E6BD5840801208C3A46E1B2
 magnet:?xt=urn:btih:B2AD7FE5ED48D635BD8EE644CDD4FA443FC56AE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ Code Geass: Fukkatsu no Lelouch | Code Geass: Lelouch of the Resurrection | Ко
 magnet:?xt=urn:btih:6EEBBCFD41593739326FCD4DF49639752B763836
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ Evoland Dilogy (2013-2015) [Ru/En] (1.1.2490/1.0.9135) Repack R.G. Механи�
 ```bash
 magnet:?xt=urn:btih:34AECF282EF6DEFA3A004A20C957A33DB6EBD2D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:34AECF282EF6DEFA3A004A20C957A33DB6EBD2D0
 magnet:?xt=urn:btih:379F20F9813AEA7B0C5A36CC8718DC4417058205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:379F20F9813AEA7B0C5A36CC8718DC4417058205
 magnet:?xt=urn:btih:B46D212F9AB2C22110D4A05D87EC3C8EAF05E6F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:B46D212F9AB2C22110D4A05D87EC3C8EAF05E6F2
 ```bash
 magnet:?xt=urn:btih:19ADAA13F7AF86349A4FABAEC941559D77348092
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +661,8 @@ Eagles - Eagles (1972) remastered 2021, Mobile Fidelity  [DSD64 2.0|1bit/2822,4k
 magnet:?xt=urn:btih:6717DFD27773E9C9843C0B6F7522EF647B2778CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ Gioma - Dj Remix (2016) WEBRip [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:D7CBBEB57F0EF02221D9A751BDECC1CE66EC8381
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

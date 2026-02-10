@@ -19,6 +19,8 @@ Sasaki to Miyano | Sasaki and Miyano | Сасаки и Мияно [2022, TV, 12 
 magnet:?xt=urn:btih:24B7FF514693DC86596763E9D0D2D3CBF5495FE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:24B7FF514693DC86596763E9D0D2D3CBF5495FE7
 magnet:?xt=urn:btih:A4B5F500C6CDBBBB9AD47F4B6012FE829F51014E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Haite Kudasai, Takamine-san | Please Put Them On, Takamine-san | Пожалуй�
 ```bash
 magnet:?xt=urn:btih:74E65916BB22EE67EC3036436629F4C572BDB757
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Sousou no Frieren TV-2 | Фрирен, провожающая в последн�
 magnet:?xt=urn:btih:04E50518496B407C03FC80A8B1202BD5008B6170
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Nanatsu no Taizai: Ensa no Edinburgh | The Seven Deadly Sins: Grudge of Edinburg
 ```bash
 magnet:?xt=urn:btih:3BE267CD4B2E6AFE82100686C2F582E3336E3B91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Gekijouban Nanatsu no Taizai: Hikari ni Norowareshi Mono-tachi | The Seven Deadl
 magnet:?xt=urn:btih:99C0F23BC03357F145DA83FB945D89A851E8F8BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Nanatsu no Taizai: Fundo no Shinpan | The Seven Deadly Sins: Dragon's Judgement 
 ```bash
 magnet:?xt=urn:btih:E6E2E08BBFF9B2A724BA2FB65C1DB7777F3B34AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Nanatsu no Taizai: Kamigami no Gekirin | The Seven Deadly Sins: Wrath of the God
 magnet:?xt=urn:btih:E45884BF43636BF61512A6C5EB1B7B9B0E84A925
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Gekijouban Nanatsu no Taizai: Tenkuu no Torawarebito | The Seven Deadly Sins the
 ```bash
 magnet:?xt=urn:btih:BC8B651CD83FE2BA0E7E968055CA80CA39DA2CD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Nanatsu no Taizai: Imashime no Fukkatsu | The Seven Deadly Sins: Revival of the 
 magnet:?xt=urn:btih:3C228FA8FBDD743FBFAAAEAFAFC0BF8013F0A94D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Nanatsu no Taizai: Seisen no Shirushi | The Seven Deadly Sins: Signs of Holy War
 magnet:?xt=urn:btih:67E55341E5BE6CEDF2C604A7458F3E1D3B5C99A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Nanatsu no Taizai | The Seven Deadly Sins | Семь смертных грехо
 ```bash
 magnet:?xt=urn:btih:2C90AA9DEC3DF911C7A956AFD5B35F905BD2AD92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Nanatsu no Taizai OVA | The Seven Deadly Sins OVA | Семь смертных г
 magnet:?xt=urn:btih:0ED072FEC92F44D7236608C7A6A73CBFFB5D893D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Seikai no Senki III | Banner of the Stars III | Звёздный флаг 3 [200
 ```bash
 magnet:?xt=urn:btih:E0056AF078AEA31D2526E28EB6C42A75FA342F6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Seikai no Senki II | Banner of the Stars II | Звёздный флаг 2 [2001,
 magnet:?xt=urn:btih:5AAC2A03D3CD559B5E918AD0A7FCE6DEACCCAB02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Seikai no Monshou Tokubetsu Hen | Crest of the Stars Movie | Звёздный г
 ```bash
 magnet:?xt=urn:btih:F7636B994C9BB9A8E4C6D4A45783ABB296DB7775
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Seikai no Senki Tokubetsu Hen | Banner of the Stars Movie | Звёздный ф�
 magnet:?xt=urn:btih:3986C2B0436D5EE70B45F6ED13B7D010B7A208D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Astarotte no Omocha! | Astarotte's Toy! | Игрушка Астаротты [201
 ```bash
 magnet:?xt=urn:btih:B457583A7703375891DCE4CD7051DCAD04725CBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Isekai Meikyuu de Harem o | Harem in the Labyrinth of Another World | Гарем
 magnet:?xt=urn:btih:584D35342736E7F81D1C137F284A11E4C185FB17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:584D35342736E7F81D1C137F284A11E4C185FB17
 ```bash
 magnet:?xt=urn:btih:BA96135FDF8256F133905DA2DF1F8725D6A4073D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:BA96135FDF8256F133905DA2DF1F8725D6A4073D
 magnet:?xt=urn:btih:523B5207D15D0BF831019D70BCB92F9F7AA83FE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Slayers Try | Рубаки Try [1997, TV, 26 эп.] DVDRip 576p 10-bit raw+rus
 ```bash
 magnet:?xt=urn:btih:19EBD72B8BDDE512835867C04CB928C93CF81F28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ Slayers Next | Рубаки Next [1996, TV, 26 эп.] DVDRip 576p 10-bit raw+rus
 magnet:?xt=urn:btih:88CED73E07CE06A5587D401F70A4E2CEB65590C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Slayers | Рубаки [1995, TV, 26 эп.] DVDRip 576p 10-bit raw+rus
 ```bash
 magnet:?xt=urn:btih:949A3106C72DDDE52FCB906DA9E4A975DB7DAFCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ Slayers Gorgeous | Великолепные Рубаки [1998, Movie] BDRip 720
 magnet:?xt=urn:btih:A6F1E6D1E6681A8DEC9685BBA4C03D01F687024E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Slayers Excellent | Превосходные Рубаки [1998, OVA, 3 эп.] B
 ```bash
 magnet:?xt=urn:btih:BDF4BA5AF0E4778FFAF5FA3CEF83B896FB11FC6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ A Long Journey to an Uncertain End – смесь квеста и приключ
 magnet:?xt=urn:btih:196BA8773B6EAFA776E440ABA0D752A9BCB73D20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Drake Hollow (2020) [Ru/Multi] (1.3) License GOG
 ```bash
 magnet:?xt=urn:btih:ACC857CA2BBC8E7589E910717E00F0A194A5955E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Livestream: Escape from Hotel Izanami – смесь хоррора и прик�
 magnet:?xt=urn:btih:2E2F477E0B03894E09004ADF481FEDCD59C2E743
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Spellcaster University (2021) [Multi] (1.04) License GOG
 ```bash
 magnet:?xt=urn:btih:392D585B20EB5AF607C1961D0BA1D1DF4BD97425
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Before Your Eyes (2021) [Multi] (1.2.6.9) License GOG
 magnet:?xt=urn:btih:D3E1AB3067EFBDC83436CB072C4D973590033564
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Farworld Pioneers (2023) [Ru/Multi] (1.0.0) Scene Razor1911
 ```bash
 magnet:?xt=urn:btih:565391E828C18C88659E724465BF2BF1E1506D05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Yakuza 6: The Song of Life (2021) [Multi] (1.009a/dlc) License GOG
 magnet:?xt=urn:btih:FC0690BF8E51A8CB11999D548205D50DABC85316
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Undead Horde 2: Necropolis - это затягивающая с первых м�
 ```bash
 magnet:?xt=urn:btih:8CA2AEC4B2DB76C96FAA9866EB4B8DFDE58EC5BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Fireball Wizard - это приключения в Колдунии, волше�
 magnet:?xt=urn:btih:5BFCD6491EECAD4D5385ABD7CC719DB0F1493E16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Unwording - это не просто набор головоломок, а на�
 ```bash
 magnet:?xt=urn:btih:669D81347DD9BCA8325B29D25E01CF31206C44C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Yakuza 5 Remastered (2021) [Multi] (1.006a) License GOG
 magnet:?xt=urn:btih:99C01D346FC057D60C1E02BB513A8937CC13D959
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Forgotten Fields представляет собой инди-приключен
 ```bash
 magnet:?xt=urn:btih:15CA3C8ACAF864807D8310986CFCE8F509E2C398
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Yakuza 0 (2018) [Multi] (1.015a) License GOG
 magnet:?xt=urn:btih:0364E8FE016BFCD10B87DFA190C8CE956AEE641F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ JYDGE (2017) [Ru/Multi] (1.2.1.4) License GOG
 ```bash
 magnet:?xt=urn:btih:EFE09F7AA01B3B386FE540C17676D9E2C767292E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Yakuza Kiwami (2019) [Multi] (1.011a) License GOG
 magnet:?xt=urn:btih:6EF2E3293F3F243044B37626CC47BB8DB1EDF31D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Neon Chrome (2016) [Ru/Multi] (1.1.12/dlc) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:70FDDCB592A2BC7B2CAB27FCB7A9405B101E6255
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Tesla vs Lovecraft (2018) [Ru/Multi] (1.0.7/dlc) License GOG
 magnet:?xt=urn:btih:C88295A086D94E99268C17A05580B81983827370
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Yakuza Kiwami 2 (2019) [Multi] (1.004a/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:253EF4DF246D0942B5B4D0589BDFCA10D7FA5219
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Yakuza 3 Remastered – это обновленная игра, ставшая �
 magnet:?xt=urn:btih:4ABDC2D3B16CD52D6F96EA6635CC0362DEC49454
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Yakuza 4 Remastered (2021) [Multi] (1.003a) License GOG
 ```bash
 magnet:?xt=urn:btih:44C681C14B025CA8DC68F776DB0C9849EB907C2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Spriters: Hopes Blooming Dawn - это игра в стиле RPG, в котор
 magnet:?xt=urn:btih:74B5823AD387E782623FFC35E4136D05A08DA147
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Crossroads 3: What Was Lost (2023) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:94B2EA7AD0EBF9DFEAEA797266E684109317F53E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Aliens: Dark Descent (2023) [Ru/Multi] (93991/dlc) Scene Rune
 magnet:?xt=urn:btih:EBF85D6703154E195C82DDB904CAB83D04580085
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Case of the Golden Idol - это детективная приключенч
 ```bash
 magnet:?xt=urn:btih:05DA63A587E4C1C38262592C0420556D2D17D36B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Trepang2 (2023) [Ru/Multi] (2168) Repack DjDI [Banger Edition]
 magnet:?xt=urn:btih:F703E21FDEB002476329D36EC0A3CD36BBDB9D87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Mystery Case Files 25: The Dalimar Legacy / За семью печатями 25:
 ```bash
 magnet:?xt=urn:btih:CBA36AFA3FA152EBBBFF422C5F63173C436540EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

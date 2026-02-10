@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A3E4F1B7EA5F5530E89040DE0ED20C53B39EFD5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:A3E4F1B7EA5F5530E89040DE0ED20C53B39EFD5A
 magnet:?xt=urn:btih:DCD334B6E2FD61E022688C8968F04F3540EC0A9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:DCD334B6E2FD61E022688C8968F04F3540EC0A9D
 magnet:?xt=urn:btih:0CF0D1C7ED4A47C7804C9A9DE1F31473EF0A821C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:0CF0D1C7ED4A47C7804C9A9DE1F31473EF0A821C
 magnet:?xt=urn:btih:8139493D37DCB0DF4A817CB1D1F05F38972E571B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:8139493D37DCB0DF4A817CB1D1F05F38972E571B
 ```bash
 magnet:?xt=urn:btih:D800C524370B3688C744E294A425247C24B0D872
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Scooter - Live at Rock Am Ring festival (2022) WEB-DL [H.265/2160p] [hand made u
 magnet:?xt=urn:btih:C272E5C9378B04C952A048CF280F6DEDF7944741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ SpellForce: Conquest of Eo (2023) [Ru/Multi] (01.10.31934/dlc) Repack FitGirl [B
 magnet:?xt=urn:btih:8BB154A77F67F88F9397930FE1AA8B53713266B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:8BB154A77F67F88F9397930FE1AA8B53713266B3
 ```bash
 magnet:?xt=urn:btih:417B7C62B67E5ACB2CFF5FEBFB1B486EF8D0E590
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ VA - Trance: The Vocal Session 2025 Playlist by ZYX Music (2025) [MP3|320 Kbps] 
 magnet:?xt=urn:btih:C4E12BC4ACDA450FDD22B04B0642C124EE01A0E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ Oxygen Not Included (2019) [Ru/Multi] (U55-663500-SCR/dlc) Repack Other s
 magnet:?xt=urn:btih:3928611775B990E938F817A4FA5D1AF402FE03AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:3928611775B990E938F817A4FA5D1AF402FE03AA
 ```bash
 magnet:?xt=urn:btih:EFE72290179BE763CE403AB7034E22CAF731DDFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ Scooter - Live in Moscow (2000) VHSRip [H.264/1080p-LQ] [hand made upscale AI]
 magnet:?xt=urn:btih:6641B9A610E2B725187450919679DC32282E5A69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ Avicii - Avicii Forever (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance, Clu
 magnet:?xt=urn:btih:528AEB23D7250CD6F7EBE8F8B15CC32EBC1613DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ Nicki LaFoille | Сумка с разделителем (2025) WEBRip [EN, RU]
 ```bash
 magnet:?xt=urn:btih:59DA4B0AF01AF665B6147055C7407AD32984A622
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:59DA4B0AF01AF665B6147055C7407AD32984A622
 magnet:?xt=urn:btih:D2818B8C83F509DFD526925A6209B194A19EE406
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:D2818B8C83F509DFD526925A6209B194A19EE406
 ```bash
 magnet:?xt=urn:btih:ADE86222E24E08FFA18298DB76BB63539E63F17B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:ADE86222E24E08FFA18298DB76BB63539E63F17B
 magnet:?xt=urn:btih:7570937BE13762E47BC6DB3925D20D99D6311B88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:7570937BE13762E47BC6DB3925D20D99D6311B88
 ```bash
 magnet:?xt=urn:btih:F93949F30F61B511B3C6D57BEE8014B21EC41EC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ OCCT 14.0.12 Portable [En]
 magnet:?xt=urn:btih:36F73F053C8202C7BFFC5323373BFF5D0754BBC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:36F73F053C8202C7BFFC5323373BFF5D0754BBC8
 ```bash
 magnet:?xt=urn:btih:98229373ACCDA57C8A4C33425337976BE7817A4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +555,8 @@ Everspace 2 (2021) [Ru/Multi] (1.4.47960/dlc) Repack FitGirl [Complete Edition]
 magnet:?xt=urn:btih:978AA283998132CD6EBC6C3E190E9992870D5CA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:978AA283998132CD6EBC6C3E190E9992870D5CA4
 ```bash
 magnet:?xt=urn:btih:DE3BC8836A6AE033E2441F14070F0F365D085660
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:DE3BC8836A6AE033E2441F14070F0F365D085660
 magnet:?xt=urn:btih:3B328CEF83B6299267AF7F6D09252111C628779B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ Kingsman: Секретная служба / Kingsman: The Secret Service (2014) 
 ```bash
 magnet:?xt=urn:btih:821DBFAF99F6539DDFF50F80975D82D37EEFD1BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:821DBFAF99F6539DDFF50F80975D82D37EEFD1BA
 magnet:?xt=urn:btih:ABDC310012C3251B9E24CE8D8254A12B3C414A2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ magnet:?xt=urn:btih:ABDC310012C3251B9E24CE8D8254A12B3C414A2F
 ```bash
 magnet:?xt=urn:btih:66A159D6E8E8CDA4F408C2073A73901698AE7F2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1094522   (929204) от 18.01.2017
+
+VA - Beatport Trance Pack (17.01.) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Tech Trance, Energy, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Matt Bukovski - Agni (Extended Mix)  7:33
+02.  Sied Van Riel & Estigma - Bow (Extended Mix)  7:05
+03.  Cold Blue - Until We Collide (Original Mix)  6:19
+04.  Jorn Van Deynhoven - Space Girl  3:25(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Melodic, Tech Trance, Energy, ProgressiveПродолжительность: 08:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39E6C58CB5D09A2EF49E25D1ADF0D145CD55397D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094406   (929285) от 18.01.2017
 
 VA - Caderas Great Day Hits (2017) [MP3|320 Kbps] <Mambo, Salsa, Dembow, World, Afro-Beat, Latin Pop, Trap, Reggaeton>
@@ -21,6 +50,8 @@ VA - Caderas Great Day Hits (2017) [MP3|320 Kbps] <Mambo, Salsa, Dembow, World, 
 ```bash
 magnet:?xt=urn:btih:612889BB15B491A981429F5D959DF05024B96496
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Звездная вечеринка. Выпуск № 8 (2017) [MP3|256 Kbp
 magnet:?xt=urn:btih:68E41BDB0F3AFEBEC677F1960FF0D7DBC128B801
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +109,8 @@ VA - Danza Kuduro Dedicated Parade (2017) [MP3|320 Kbps] <Reggae, Calypso, Dance
 magnet:?xt=urn:btih:46129D2FE5F46E87B6F1D36C6B25EA405455B01F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +134,8 @@ VA - XXXXL Дискотечный 50/50 (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:9A68374B30F2ED0A4777F48CB6AD85904BBCC8CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +164,8 @@ VA - Winter Fitness Hits Times (2017) [MP3|217-320 Kbps] <Club, Vocal, Nu Disco,
 magnet:?xt=urn:btih:368A8C11E3AAC3939CA6D233CFD61079D1C26D23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +192,8 @@ VA - Зимний шансон года. Версия № 5 (2016) [MP3|256 Kbps
 ```bash
 magnet:?xt=urn:btih:DE84914F5B9F59B5DD2EF996D755D797E3C12A70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +228,8 @@ Plexus (39 releases)(2011-2013) [MP3|320 кб/с]<Electronic, Ambient, Trance, C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +258,8 @@ VA - Свежий Русский Хит от ALEXnROCK часть 1 (2020) [MP3|
 magnet:?xt=urn:btih:C0F063500391A65111EBDC199267A37738303AA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +286,8 @@ VA - Русский Рок. Лучшее 2016 (2017) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:EE65D55CCC5E7F6EB3B872C66F19A791A43657D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +316,8 @@ VA - Deep House Collection Vol.104 (2017) [MP3|192-320 Kbps] <Deep House, Club H
 magnet:?xt=urn:btih:A80F3BF89FD89AA6219E4EA1C929A65A80E27016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +344,8 @@ VA - Pop-Rock Ballad: Love Stories (2017) [MP3|239~320 Kbps] <Pop, Rock, Lyric>
 ```bash
 magnet:?xt=urn:btih:C5E76588012B6774574894B39886C9574A36ADEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +374,8 @@ VA - Молодежная 100-ка. Сборник популярной музы
 magnet:?xt=urn:btih:E0B1634F16D5D5E31DAF3B3C919E83736AEA29FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +402,8 @@ VA - Record Russian Mix Top 100 January (2017) [MP3|320 Kbps] <Club House, Pop-D
 ```bash
 magnet:?xt=urn:btih:031ABCC56072F1E2AB00734B8339D2741DEDFA37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +432,8 @@ VA - Indian Romance (2020) [MP3|192 Kbps] <Native American, New age, World music
 magnet:?xt=urn:btih:F6EDC5C7192CD7244D1639769C0F1A175D56E844
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +460,8 @@ Shakin' Stevens - From Christmas To Christmas (The Best) (2020) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:EE7497658D1DA396767972FA9C068C00CAE3C304
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +490,8 @@ VA - Дискотека 80-90 годов по - новому от Виталия
 magnet:?xt=urn:btih:AE3654B984BBE48881EC9F151A629993EBD20304
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +518,8 @@ VA - Душевная музыка на радио Шансон. Сборник 
 ```bash
 magnet:?xt=urn:btih:18AF395D8E3DB7A9D886A2C06C290647F7485E02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +548,8 @@ VA - Best Chillout Vol.24 (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
 magnet:?xt=urn:btih:D9464E541491D3D9D5E88481DC95E24B8B613FCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +576,8 @@ VA - Live For Today: Classic Rock 9 (2016) [MP3|320 кб/с] <Classic Rock>
 ```bash
 magnet:?xt=urn:btih:3D584A4633384A00E1CFBE74D99A2C103E5CA075
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +606,8 @@ VA - Эх, Разгуляй! Новогодний выпуск радио Шан
 magnet:?xt=urn:btih:B85FFCBF852C275E17D56ED73EEE01E10A496C25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +634,8 @@ VA - Шансон года. Лучшие блатные хиты Часть № 
 ```bash
 magnet:?xt=urn:btih:CA5BC0FB8D6EEA85A2FD0A5DEB8900F5460A6549
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +664,8 @@ VA - Полный отрыв. Зимние хиты. Сборник № 4 (2017)
 magnet:?xt=urn:btih:B0CB5C1D1222060E020505BDF73B78A2F4D42014
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +692,8 @@ VA - The Planetary Influence: Territory Of Dubstep (2017) [MP3|320 Kbps] <Dubste
 ```bash
 magnet:?xt=urn:btih:A394B017B8D8E6C07400FD6549A0E5289E1D6C25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +722,8 @@ VA - Top 100 шансон зимний (2017) [MP3|256 Kbps] <Шансон>
 magnet:?xt=urn:btih:DE7556DE817EACA5C3BAE72DC2CD490D819F5360
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -674,32 +751,7 @@ magnet:?xt=urn:btih:DE7556DE817EACA5C3BAE72DC2CD490D819F5360
 magnet:?xt=urn:btih:4B42B98061F018AA932ADF8633EC368864A9556C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094337   (930904) от 17.01.2017
-
-VA - Убойные хиты на Шансоне. Версия № 9 (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930904.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Руслан Грабовий - Отзвенели Купола 3:58
-002. Т.Буланова & К.Костомаров - С Этого Дня 3:18
-003. Александр Кузнецов & Регион 42 - Осинники 3:08
-004. Людмила Розум - Я Люблю Тем Живу 3:07(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8E773D1344BB050051FA9496136CBF20E46D982
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

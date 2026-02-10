@@ -19,6 +19,8 @@ Creedence Clearwater Revival - The Complete Studio Albums (1968-1972) Compilatio
 magnet:?xt=urn:btih:84FDB81C5A53CD923A3844C9679750F0C9E7CA6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Scorpions - Fly To The Rainbow (1974) Remastered 2023 [FLAC 24/96|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:BB50A8CD2EA6E1B3FD333639814107B4F16A0865
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Scorpions - In Trance (1975) Remastered 2023 [FLAC 24/96|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:A79CBDED38B9429478A18AE58D87942B24C06064
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Scorpions - Virgin Killer (1976) Remastered 2023 [FLAC 24/96|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:44809E5CF877F2735F204F2D52117ADB7C9DAF5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Michael Jackson - Bad (Remastered) (1987) 2012 [FLAC 24/96|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:B2779AAAA50329C9E2297874308AEB9CB1790FF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Michael Jackson - Thriller (1982) 2008 [FLAC 24/176.4|Lossless|WEB-DL|tracks] <S
 ```bash
 magnet:?xt=urn:btih:B1D7F7EAE34CFDEBA52179C93E0675BFD3A6FA0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Mark Knopfler - The Boy (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:A65A87E4405F263045A917F2BA0616798D6F625D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ Pabllo Vittar - Batidao Tropical Vol. 1-2 (2021-2024) [FLAC 24/44.1,48|Lossless|
 magnet:?xt=urn:btih:5FD438D0F6924C7C91BE239FB07968E13C8CF964
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ Windy
 ```bash
 magnet:?xt=urn:btih:BB35FE422F49D940805A9B051118BFA291114C7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +282,8 @@ Scott Stapp — (урожденный Энтони Скотт Флиппен; 8 
 magnet:?xt=urn:btih:E6E40C39139F5B3CD9B537D75BB206FC49AC94BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +310,8 @@ Art of Anarchy — американская хард-рок супергрупп
 ```bash
 magnet:?xt=urn:btih:87A7F4451CF54FB2D3DB77C7A603D88919FB4430
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +340,8 @@ Bonnie Tyler - In Berlin (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Pop R
 magnet:?xt=urn:btih:A70887F04C1795619755E481BB6910ABD2853A05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +368,8 @@ The Ghost Inside - Searching for Solace (2024) [FLAC 24/48|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:F4D3A31E95105D146CAA9EAD32F2D1689C316B4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +398,8 @@ My Dying Bride — дэт-дум-метал-группа из Англии, ос
 magnet:?xt=urn:btih:847D0567323FD06FB4B96585F1D0A986E59A12B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +426,8 @@ Pearl Jam - Dark Matter (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:01CC63D8BD4986E5B1A18D7278F64E42BB2BE43B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +456,8 @@ Sexual Music Collection, Romantic Love Songs Academy - Midnight Jazz Confessions
 magnet:?xt=urn:btih:15491E4A13B56BD32BCE5C61500D67A1A9D5E6CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +484,8 @@ A4 Bright Eyes(   Читать дальше...   )Жанр: Pop, DiscoПродо
 ```bash
 magnet:?xt=urn:btih:07EC8D2C89127596138BE1695609EE8CF166CB91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +514,8 @@ Mark Knopfler - One Deep River (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Rock
 magnet:?xt=urn:btih:E63A1708C568094E0BFBACE037333B5FA8FD41C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +542,8 @@ Five Finger Death Punch  (с англ. — «Смертельный удар
 ```bash
 magnet:?xt=urn:btih:83FA8ECD7604578E00BFA8BA1886F0A447926B74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +572,8 @@ Guano Apes — альтернативный рок-квартет из Гётт�
 magnet:?xt=urn:btih:4460A371B31DC2FF4D462F7C943A889DEDF07AE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +600,8 @@ Bad Wolves — американская супер-группа, играюща�
 ```bash
 magnet:?xt=urn:btih:498E04B8F6D9FED231EC3F098F4041C010A18544
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +630,8 @@ Dire Straits - On Every Street (1991) SACD, Remastered, 2024, Mobile Fidelity So
 magnet:?xt=urn:btih:D631088071F9B4D3B555516DC6F3A65A7B3D1237
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +658,8 @@ Sum 41 — канадская рок-группа из города Эйджак
 ```bash
 magnet:?xt=urn:btih:0BAC64F7915A47CE9989B7080A05AD955659E633
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +688,8 @@ De-Phazz - Pit Sounds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu Jazz, Tri
 magnet:?xt=urn:btih:EBF7D09FFEB2089D3336AB48D311F7C4C3D924F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +717,8 @@ Sheryl Crow - Evolution (2024) Deluxe [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop R
 magnet:?xt=urn:btih:DD23D9D51BEC5997D03CDC4D15779CF8DC385E8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ Disc 1: Machine Head (2024, Remix & Remaster):
 ```bash
 magnet:?xt=urn:btih:5934A58F57BC3540433E2AB22754E044F56D9F4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

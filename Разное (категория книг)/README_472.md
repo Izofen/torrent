@@ -1,3 +1,29 @@
+###  Публикация: 895276   (700995) от 05.05.2015
+
+Голиб Саидов, Юлиан Соловьев | Пицца (2015) [FB2]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга из цикла «Ресторан на дому», ориентирована не только на домашних хозяек, но и посвящена всем тем, кто любит настоящую пиццу, но не имеет возможности, регулярно посещать рестораны и пиццерии.Жанр: КулинарияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEFEEA72934C73ED406C11C5E1829ED9AA4E2699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287861   (701068) от 08.03.2019
 
 Сергей Хохлов | Мужчины: инструкция по применению. Всем мужикам надо только одно, и это не секс… (2019) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:89D92C69FB7B2640C0124D5BD1ABCABA31EEB430
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:89D92C69FB7B2640C0124D5BD1ABCABA31EEB430
 magnet:?xt=urn:btih:113D8A895F854A7BDA5F42AF50F54E3E088ADC8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:113D8A895F854A7BDA5F42AF50F54E3E088ADC8D
 ```bash
 magnet:?xt=urn:btih:E512F7336422197F48706562F5654A5BA4B5B9AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:E512F7336422197F48706562F5654A5BA4B5B9AF
 magnet:?xt=urn:btih:643EABC3CC7E8B68A39239AC303F80DA6CB2DD8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:643EABC3CC7E8B68A39239AC303F80DA6CB2DD8D
 magnet:?xt=urn:btih:9CF7F307E689E04DD7DEEE805C606B4FBCC6A18E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:9CF7F307E689E04DD7DEEE805C606B4FBCC6A18E
 ```bash
 magnet:?xt=urn:btih:FD354F62BB8B9505460116DF8A91B5C79F449D23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:FD354F62BB8B9505460116DF8A91B5C79F449D23
 magnet:?xt=urn:btih:1A67F54FAA34A276C8C7FD44D6068F8FBFCC18B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:1A67F54FAA34A276C8C7FD44D6068F8FBFCC18B8
 magnet:?xt=urn:btih:5C41DEB9DA3F71F45934AED5E85B83138C0A5E0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:5C41DEB9DA3F71F45934AED5E85B83138C0A5E0D
 ```bash
 magnet:?xt=urn:btih:03C337EEEA616A70C986FAC6622A9BB2CD57776D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:03C337EEEA616A70C986FAC6622A9BB2CD57776D
 magnet:?xt=urn:btih:C2C89627C5EAFA6B730E5B284BE69D0D1888BC03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:C2C89627C5EAFA6B730E5B284BE69D0D1888BC03
 ```bash
 magnet:?xt=urn:btih:01CE3C46C9E5695607BB36E947E7F02F58474F98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:01CE3C46C9E5695607BB36E947E7F02F58474F98
 magnet:?xt=urn:btih:4D2B3D10CF76019FD3C1A2BD8D5C09C7130852F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:4D2B3D10CF76019FD3C1A2BD8D5C09C7130852F2
 ```bash
 magnet:?xt=urn:btih:32029421830D99FE66A94632BC3C4871E03CBBE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:32029421830D99FE66A94632BC3C4871E03CBBE5
 magnet:?xt=urn:btih:18E8E79D5F094A55D368B7D89CEA892075DBE26E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +422,8 @@ magnet:?xt=urn:btih:18E8E79D5F094A55D368B7D89CEA892075DBE26E
 magnet:?xt=urn:btih:176A17EAE6957A8ADAB2A612F50A537441E05287
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +447,8 @@ magnet:?xt=urn:btih:176A17EAE6957A8ADAB2A612F50A537441E05287
 ```bash
 magnet:?xt=urn:btih:8F5B3A1F04748061988B9033C551D4B0C0F6535F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +476,8 @@ magnet:?xt=urn:btih:8F5B3A1F04748061988B9033C551D4B0C0F6535F
 magnet:?xt=urn:btih:DFC46496DDD5436EB3DABE82B6F214135182808C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +501,8 @@ magnet:?xt=urn:btih:DFC46496DDD5436EB3DABE82B6F214135182808C
 ```bash
 magnet:?xt=urn:btih:D336BEE2DB1EEB5E4320B04C7F7E9A158B4B96BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +530,8 @@ magnet:?xt=urn:btih:D336BEE2DB1EEB5E4320B04C7F7E9A158B4B96BE
 magnet:?xt=urn:btih:E7FE1873C2E9B9E7B9FA36E2071B91D333931CC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +555,8 @@ magnet:?xt=urn:btih:E7FE1873C2E9B9E7B9FA36E2071B91D333931CC1
 ```bash
 magnet:?xt=urn:btih:6481A15FF4BB981B22E2F5040D75DF060EC8E46C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +582,8 @@ magnet:?xt=urn:btih:6481A15FF4BB981B22E2F5040D75DF060EC8E46C
 magnet:?xt=urn:btih:DB0FFCA46AB1FEC1D8F438C09FC51E21E9431028
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +607,8 @@ magnet:?xt=urn:btih:DB0FFCA46AB1FEC1D8F438C09FC51E21E9431028
 ```bash
 magnet:?xt=urn:btih:6E342B7767140E26AE300357DD38769234E1EAFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +634,8 @@ magnet:?xt=urn:btih:6E342B7767140E26AE300357DD38769234E1EAFD
 magnet:?xt=urn:btih:35A94DB723FC106342F6901682A008E3C4C9D5F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +659,8 @@ magnet:?xt=urn:btih:35A94DB723FC106342F6901682A008E3C4C9D5F9
 ```bash
 magnet:?xt=urn:btih:B84C545844D7F53D5B088A49F8EADAEDB770BE48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,30 +686,7 @@ magnet:?xt=urn:btih:B84C545844D7F53D5B088A49F8EADAEDB770BE48
 magnet:?xt=urn:btih:184A748A8DDF7F1358C895E77A76D79C07340EC3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533554   (703216) от 25.02.2022
-
-Николай Беляев| Идеология римского католицизма (2014) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник исследовательских работ русского православного богослова Николая Яковлевича Беляева (1В43-1894) — доктора богословия и профессора Казанской Духовной академии.
-Будучи специалистом в сравнительном богословии профессор Н.Я. Беляев был одним из крупнейших знатоков истории западных вероисповеданий, в особенности римского католицизма. Работы, помещенные в сборнике, (   Читать дальше...   )Жанр: сборник, религиоведение, политология, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:983995F549FFEF8E95E2659E5CE93146D1CC3AF5
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

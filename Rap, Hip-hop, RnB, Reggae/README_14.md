@@ -1,3 +1,32 @@
+###  Публикация: 1328044   (368005) от 28.09.2019
+
+Влади - Другое слово (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368005.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Увлечение повально
+2. У цветного фонтана
+3. Купидон
+4. Кардиохирург(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:195756F6B10DC6EF1167A35463E568BDA669C93B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575647   (373094) от 11.09.2022
 
 John Legend - LEGEND (2022) 2xCD [FLAC 2.0|44/24|tracks|WEB-DL] <R&B, Soul, Pop>
@@ -21,6 +50,8 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:02BEFA8134D29D414E9330CC5129B57B5394E451
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ Alicia Keys - Here (2016) Deluxe Edition [FLAC|Lossless|image + .cue] <R&B, Soul
 magnet:?xt=urn:btih:E061E4EF12A23DD6EDF3D6E7D83CEB84D35386BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ Anacondaz - Я тебя никогда (2018) [MP3|320 Kbps] <Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:D487652445DD35383D9D59B5F43883CA01A047C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ magnet:?xt=urn:btih:D487652445DD35383D9D59B5F43883CA01A047C3
 magnet:?xt=urn:btih:6B28BB225DB3FEA04093CEE3B9D5BC0F7795A11A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +167,8 @@ Billy Milligan - 6 Albums (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-ho
 magnet:?xt=urn:btih:6C0B09080816D704028C948FF7FEBB012C076935
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +195,8 @@ magnet:?xt=urn:btih:6C0B09080816D704028C948FF7FEBB012C076935
 ```bash
 magnet:?xt=urn:btih:60D53E5BC8C96BDBC29C0A204BE97273435641AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -186,6 +227,8 @@ Bob Marley & the Wailers - Legend (2012 (1984)) [FLAC 2.0 192/24 |WEB-DL]<Reggae
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +255,8 @@ Bob Marley & the Wailers - Legend (2012 (1984)) [FLAC 2.0 192/24 |WEB-DL]<Reggae
 ```bash
 magnet:?xt=urn:btih:C39ADE4F93A826C58ADD3B106D2A2E2B00032011
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +285,8 @@ Plc - Новый (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:151EB9E8B41089FFBA004D5A811EE7FA26FCC082
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +313,8 @@ magnet:?xt=urn:btih:151EB9E8B41089FFBA004D5A811EE7FA26FCC082
 ```bash
 magnet:?xt=urn:btih:FF16A81B4412787676F4838C18FFB92D984BE252
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +343,8 @@ Ram & Kommo - Starscream (2022) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Nu Metal
 magnet:?xt=urn:btih:35EF09FB3DCA6F5606ECFC2B4529AB0EDB619E30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +371,8 @@ Uratsakidogi - Black Hop (2018) bonus track edition [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:6D77969C4B320E8863815C31D3BE5017D852BC3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +401,8 @@ Noize MC - Коррозия хип-хопа (2017) Single [MP3|320 Kbps] <Rap, H
 magnet:?xt=urn:btih:7F471349D1D686744A03BEF8787112392E64FFE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +429,8 @@ VA - Chillhop Essentials - Fall (2017) [FLAC|Lossless|Web-DL|tracks] <Chillhop, 
 ```bash
 magnet:?xt=urn:btih:2DD6A84A6DFE470BB36E9B9CECDAD29E14A15276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +459,8 @@ Cypress Hill - Elephants on Acid (2018) [FLAC|Lossless|tracks + .cue] <Rap, Hip-
 magnet:?xt=urn:btih:16BA03FEB72E87E835F1ED7933DB04FDB9133863
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +487,8 @@ magnet:?xt=urn:btih:16BA03FEB72E87E835F1ED7933DB04FDB9133863
 ```bash
 magnet:?xt=urn:btih:6599CBBA4A5695C3405DF1B8696840087F4AB115
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +517,8 @@ magnet:?xt=urn:btih:6599CBBA4A5695C3405DF1B8696840087F4AB115
 magnet:?xt=urn:btih:F00F10E590BEC35B512C3055B5DFC621947F90F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +545,8 @@ Pra(Killa'Gramm) - УЛИЦА ГОВОРИТ (2020) [MP3|320 Kbps] <Hip-Hop, Rap
 ```bash
 magnet:?xt=urn:btih:40D368957596C1646C3EB3A4682397740A6682EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +575,8 @@ magnet:?xt=urn:btih:40D368957596C1646C3EB3A4682397740A6682EA
 magnet:?xt=urn:btih:DCFE73D6EDECD4713F425449C477873598E35FDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +603,8 @@ magnet:?xt=urn:btih:DCFE73D6EDECD4713F425449C477873598E35FDF
 ```bash
 magnet:?xt=urn:btih:D54AA06DB1EFC8A576959CFF5E9CFFE70CC250E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +633,8 @@ magnet:?xt=urn:btih:D54AA06DB1EFC8A576959CFF5E9CFFE70CC250E4
 magnet:?xt=urn:btih:C0F84C86507B0FB796BF73191A0580CC72956787
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +662,8 @@ Mr.Fables - Melodic Snaps Vol. 2 (2020) [FLAC|Lossless|Web-DL|tracks] <Instrumen
 magnet:?xt=urn:btih:747C3C03941E3A669703A1FC0371448B88922F12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +690,8 @@ magnet:?xt=urn:btih:747C3C03941E3A669703A1FC0371448B88922F12
 ```bash
 magnet:?xt=urn:btih:550A1CB2278E754157213A58BE09AACC549C1757
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +726,8 @@ Bahh Tee - Осенний Блюз (2011) [MP3|320 kbps]<Rap, Hip-Hop, Lirycs>
 magnet:?xt=urn:btih:6E82AE7823BC40DBCE5D2CB55BE0F4C17362C618
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,32 +755,7 @@ magnet:?xt=urn:btih:6E82AE7823BC40DBCE5D2CB55BE0F4C17362C618
 magnet:?xt=urn:btih:5A297CC4636C0A9B0DEA20231DB0E4E7AD0DA66A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325343   (414184) от 14.09.2019
-
-Fort Minor - The Rising Tied (2005) Limited Edition [FLAC|Lossless|tracks + .cue] <Hardcore Hip-Hop, Cut-up/DJ>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction (0:43)
- 02. Remember The Name (feat. Styles Of Beyond) (3:50)
- 03. Right Now (feat. Black Thought Of The Roots & Styles Of Beyond) (4:15)
- 04. Petrified (3:40)(   Читать дальше...   )Жанр: Hardcore Hip-Hop, Cut-up/DJПродолжительность: 01:02:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8EB824EFD81D1D5A77994C112852409BA55E377
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

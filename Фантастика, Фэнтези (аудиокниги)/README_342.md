@@ -1,3 +1,29 @@
+###  Публикация: 943057   (447224) от 04.10.2015
+
+Пол Бэттейджер | Ледяной ад (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это просто рассказ. Из антологии "Пиратское фэнтези". Когда-то, несколько лет назад планировалась коллективная работа, сборник. Он вроде так и не вышел, и я подумал, чего добру пылиться, рассказ хороший... В общем, те же пираты, но на льду. На Земле оледенение.Жанр: ФентезиПродолжительность: 00: 55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423F001F47E8553B9469615AA57E21A52FB33518
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409321   (447485) от 16.09.2020
 
 Bregnev и др. | Страшные истории [Сборник № 2] (2019 - 2020) [OGG]
@@ -18,6 +44,8 @@ Bregnev и др. | Страшные истории [Сборник № 2] (2019 
 ```bash
 magnet:?xt=urn:btih:062F5B128745C99C6EAD4683F7AC8B3D046A9A08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:062F5B128745C99C6EAD4683F7AC8B3D046A9A08
 magnet:?xt=urn:btih:EB8D59E6C89F1700156A1DD10F36032D23C68772
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:EB8D59E6C89F1700156A1DD10F36032D23C68772
 magnet:?xt=urn:btih:429FA4FDBFAB21A1CE0CFBA8C3962DAA88EC1EDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:429FA4FDBFAB21A1CE0CFBA8C3962DAA88EC1EDB
 ```bash
 magnet:?xt=urn:btih:716464160ADB7376FD761934F4C920054281B52E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:716464160ADB7376FD761934F4C920054281B52E
 magnet:?xt=urn:btih:86B720E6179FD88CFD9F476028F52B5661603ED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:86B720E6179FD88CFD9F476028F52B5661603ED3
 magnet:?xt=urn:btih:FA2AF74295860F769833042D12C447B0A0AC5D8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:FA2AF74295860F769833042D12C447B0A0AC5D8E
 ```bash
 magnet:?xt=urn:btih:438A99EC883D3E9B0E38B449C83D8FC1CD02F05C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:438A99EC883D3E9B0E38B449C83D8FC1CD02F05C
 magnet:?xt=urn:btih:3536A05CE2D17C76583279BA787EB6C8A9E3CF23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:3536A05CE2D17C76583279BA787EB6C8A9E3CF23
 ```bash
 magnet:?xt=urn:btih:148FC784CC33A9DAB5866EA21F672DA12C0C93EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +289,8 @@ magnet:?xt=urn:btih:148FC784CC33A9DAB5866EA21F672DA12C0C93EB
 magnet:?xt=urn:btih:7B9F245446719D792097B21AD5F6F61DE516A2C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +315,8 @@ magnet:?xt=urn:btih:7B9F245446719D792097B21AD5F6F61DE516A2C8
 ```bash
 magnet:?xt=urn:btih:39C751C30960A5CDA2C5E07D7AC4AC8DC848F870
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +343,8 @@ magnet:?xt=urn:btih:39C751C30960A5CDA2C5E07D7AC4AC8DC848F870
 magnet:?xt=urn:btih:6541EFE2C94F4397BFD10E961463F145966E1EE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +368,8 @@ magnet:?xt=urn:btih:6541EFE2C94F4397BFD10E961463F145966E1EE3
 ```bash
 magnet:?xt=urn:btih:3B0CB397F25B97DC3D40FEA9362C5C23989CEF2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +395,8 @@ magnet:?xt=urn:btih:3B0CB397F25B97DC3D40FEA9362C5C23989CEF2B
 magnet:?xt=urn:btih:730D727C15C1ABB6BB419CB62F4FB7C93E47B4EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:730D727C15C1ABB6BB419CB62F4FB7C93E47B4EC
 ```bash
 magnet:?xt=urn:btih:6824D7F0636F08B79D69FEB0F762C7F2E3E0F551
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +448,8 @@ magnet:?xt=urn:btih:6824D7F0636F08B79D69FEB0F762C7F2E3E0F551
 magnet:?xt=urn:btih:A493A8510AF0FDC69B8C25FA54C51AA323B51BF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +474,8 @@ magnet:?xt=urn:btih:A493A8510AF0FDC69B8C25FA54C51AA323B51BF4
 magnet:?xt=urn:btih:B2955C3F960471874AC0D80F5F443D910CFBDB6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +499,8 @@ magnet:?xt=urn:btih:B2955C3F960471874AC0D80F5F443D910CFBDB6D
 ```bash
 magnet:?xt=urn:btih:62883B8084CE7134BF72F1A399BA3A8CCC6F480D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +528,8 @@ magnet:?xt=urn:btih:62883B8084CE7134BF72F1A399BA3A8CCC6F480D
 magnet:?xt=urn:btih:3A94BD9631631C49B5616481C2336FE1E59EE3EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +556,8 @@ magnet:?xt=urn:btih:3A94BD9631631C49B5616481C2336FE1E59EE3EF
 magnet:?xt=urn:btih:D379414656AA9EE1996583C0CF9AEC2657017494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +582,8 @@ magnet:?xt=urn:btih:D379414656AA9EE1996583C0CF9AEC2657017494
 ```bash
 magnet:?xt=urn:btih:412B10A1AF34420D35DFDFBF8E5714CD63BF6AC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +612,8 @@ magnet:?xt=urn:btih:412B10A1AF34420D35DFDFBF8E5714CD63BF6AC0
 magnet:?xt=urn:btih:4E14F8EFBD158F74CC6A593820F099378E589014
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +637,8 @@ magnet:?xt=urn:btih:4E14F8EFBD158F74CC6A593820F099378E589014
 ```bash
 magnet:?xt=urn:btih:143C15CA79B670616A02FE0ECD4DD81EB6C203CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +664,8 @@ magnet:?xt=urn:btih:143C15CA79B670616A02FE0ECD4DD81EB6C203CD
 magnet:?xt=urn:btih:A440E4857AFBCF4900B81D8419C78855469F3D06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,29 +690,7 @@ magnet:?xt=urn:btih:A440E4857AFBCF4900B81D8419C78855469F3D06
 magnet:?xt=urn:btih:B43AF0A4EF574ECA451551EF520E111C5A4CBE7A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551774   (450275) от 25.09.2012
-
-Владислав Крапивин | Полосатый жираф Алик [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450275.jpg" />
-</div>
-
-
-###  Подробнее
-
-История про то, как несколько ребят после трагических случаев на Земле оказались жителями затерянного во вселенной Пояса астероидов. Как они стремились вернуться домой и для этого построили из потоков Мирового света парусный корабль…Жанр: фантастика, приключения
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE4536F2440AB6F8C64382CCFA538C4DBDA6897D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

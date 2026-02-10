@@ -20,6 +20,8 @@ Robot Rescue Revolution (2013) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PS
 magnet:?xt=urn:btih:15C85F22DCDDBD159F7F42160D5E6CC95E8A550E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Super Mario Odyssey (2017) [Switch] [EUR] 8.1.0 [NSP] [eShop / 1.3.0] [Ru/En]
 magnet:?xt=urn:btih:0D7F4455FF7EE481B8468DFC592CA369EFC111FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ L.A. Noire (2017) [PS4] [EUR] 6.72 [HEN] [License / 1.04] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8565BD8065A35A37606020D57BCD73F412C64DE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ Battle Chasers: Nightwar - это красочная ролевая игра с 
 magnet:?xt=urn:btih:F755910EC49C80DD423F31AC997BFCA1B00C7F66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Shadows of the Damned - новый проект легендарных япон�
 ```bash
 magnet:?xt=urn:btih:2666F603CF9EF2706146F83F1D58A61976A775CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ G.I. JOE The Rise of Cobra (2009) [PS3] [EUR] 2.76 [Cobra ODE / E3 ODE PRO ISO] 
 magnet:?xt=urn:btih:C76EED231A18FC1E1493C68C77C96ABFE47EB218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Tomb Raider является перезапуском серии и расска
 ```bash
 magnet:?xt=urn:btih:B201C9F21603F317A7ED4790161C01D1E6DB2898
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ EA SPORTS MMA - файтинг с уникальной реалистичнос�
 magnet:?xt=urn:btih:805E4ECFB6D65F4D12496B87FF5EF7AD49E0C17E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Monsters vs. Aliens (2009) [PS3] [EUR] 2.52 [Cobra ODE / E3 ODE PRO ISO] [Licens
 ```bash
 magnet:?xt=urn:btih:94628AB7AA52EDEEB8CC433E99AAF0FD53FC9B40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Inversion (2012) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [Ru]
 magnet:?xt=urn:btih:3C7D03A9894B7341CBEFBD4275C9A312562F18C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Days of Thunder: NASCAR Edition – гоночная игра, являющая�
 ```bash
 magnet:?xt=urn:btih:58B915A72CC56626EAF81FD77E2D87B9D7A1F95B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ NASCAR Unleashed позволит игрокам вывести своего г�
 magnet:?xt=urn:btih:236A892420BADC74A39E4D7AC459BB5A4C8435F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Spider-Man: Edge of Time – экшен про Человека Паука, де
 ```bash
 magnet:?xt=urn:btih:BCB8AEDEB63D4E66EE1051079F7E6DC0CCAC0863
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Brave: The Video Game / Храбрая сердцем (2012) [Xbox360] [RegionFr
 magnet:?xt=urn:btih:88CDB1B1EC4A325A2A1524928ED4ECEF90343C49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Madden NFL 16 продолжает серию симуляторов амери�
 ```bash
 magnet:?xt=urn:btih:F7B3AB8647E6819822D5EF8B1260BB9822D95B6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ LEGO Jurassic World / LEGO Мир Юрского периода (2015) [Xbox360]
 magnet:?xt=urn:btih:68EA01D9DAC54DA767E3AB620E8E6FCBB1AD4554
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Lollipop Chainsaw – зомби-экшен от Suda 51, главную рол�
 magnet:?xt=urn:btih:1DE84F94FEAB31272A091B1A906B68404AB4B9CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ G-Force является трехмерным экшен-платформеро�
 ```bash
 magnet:?xt=urn:btih:BD46B3CC2AE396570AD3B9387AD19F265EB8F51F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Syndicate [PS3] [RUS] [PAL] (2012)
 magnet:?xt=urn:btih:00D706D2EFF6F573418A4386BC6A826E9704848E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Disney Universe - приключенческая экшен игры, в кот�
 ```bash
 magnet:?xt=urn:btih:33B306567287156C92D7652C9529FFAD92FBB3D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Kung Fu Panda (2008) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] 
 magnet:?xt=urn:btih:693A1C66F68CCAA75C83D05EAECDC34A8393F9CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Final Fantasy XIII (2009) [PS3] [ASIA] 3.21 [Unofficial] [Ru/Jp] | R.G. RED
 ```bash
 magnet:?xt=urn:btih:7C8D43ECB7CA3CFC56B7654D279AA2568FDB1463
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Ben 10: Galactic Racing - фееричные Галактические гонк
 magnet:?xt=urn:btih:87FC4A85DC6B187237390E3DEC87EAA80FDBE554
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Silent Hill HD Collection (2012) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] 
 ```bash
 magnet:?xt=urn:btih:AD7FDCA9DD540275F7A543D612951BA0B4BCF230
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ James Cameron’s Avatar: The Game (2009) [PS3] [EUR] 3.01 [Cobra ODE / E3 ODE P
 magnet:?xt=urn:btih:FC8D13217F93E3A6F3B4DC0FC0EF01B51AB849D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ MotoGP 22 (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.08 / DLC] [Multi]
 ```bash
 magnet:?xt=urn:btih:D5D684E0DD9D159FB523AA9DA36E319E3BFA721C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

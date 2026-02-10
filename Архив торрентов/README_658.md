@@ -28,6 +28,8 @@ Spotlight mix Moguai:
 magnet:?xt=urn:btih:3678B38707735F40D87041ADB55EE6F4F338D0A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ magnet:?xt=urn:btih:3678B38707735F40D87041ADB55EE6F4F338D0A5
 magnet:?xt=urn:btih:6F5CA23D02E26EA23D1968F51E5A733E6BD31A1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -83,6 +87,8 @@ Severiano Deejay ft K-Flow & Rella Roxx - Unspoken Feelings (2011) [H.264/720р]
 ```bash
 magnet:?xt=urn:btih:D89CDBDA7630E84C8ECF517717307861DAE5EAC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -112,6 +118,8 @@ magnet:?xt=urn:btih:D89CDBDA7630E84C8ECF517717307861DAE5EAC0
 magnet:?xt=urn:btih:31170F7A0D16019DB41C4E58977EDF45E2C31EC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -137,6 +145,8 @@ magnet:?xt=urn:btih:31170F7A0D16019DB41C4E58977EDF45E2C31EC6
 magnet:?xt=urn:btih:91496B9B77D721CBE688F30FAD12FE6581852A80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -160,6 +170,8 @@ magnet:?xt=urn:btih:91496B9B77D721CBE688F30FAD12FE6581852A80
 ```bash
 magnet:?xt=urn:btih:2122260204E466413D843470E01DE7E05D98D22E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +206,8 @@ VA - Black Box One (2012) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:0F09AD1E47890CF648B511AECBE277536070E63D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +231,8 @@ magnet:?xt=urn:btih:0F09AD1E47890CF648B511AECBE277536070E63D
 ```bash
 magnet:?xt=urn:btih:95C0DAC7A9D1690AA8F7F3AA7CDAEDE543A3FD1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +267,8 @@ VA - Лучшая 200ка МузТВ 3 Русский (2012) [MP3|128 kbps]<Pop>
 magnet:?xt=urn:btih:2B6C8C27B9C685CD06037E22C62054D45F7A8CD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +292,8 @@ magnet:?xt=urn:btih:2B6C8C27B9C685CD06037E22C62054D45F7A8CD6
 ```bash
 magnet:?xt=urn:btih:3F8D09B5D21A65409A24F6CC926CEB151864E86C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +327,8 @@ Battlerage - True Metal Victory (2011) [MP3|320 kbps]<Heavy Metal>
 magnet:?xt=urn:btih:3FC27872CF8A78CD8D6210FAC362D87287DE9752
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +352,8 @@ magnet:?xt=urn:btih:3FC27872CF8A78CD8D6210FAC362D87287DE9752
 ```bash
 magnet:?xt=urn:btih:32451E26123F4D8C70864347D8A447E1000B1024
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +388,8 @@ VA - Струны блатного радио (2012) [MP3|256 кб/с]<Шанс�
 magnet:?xt=urn:btih:9ADFB79B2F5F5CB57034F47A9174F1BBDDB12DCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +423,8 @@ Avalon - Children of the World (2006) [MP3|320 кб/с]<New age>
 magnet:?xt=urn:btih:54F827D4C86CB830BC24531F7497A8D109E6E968
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +449,8 @@ magnet:?xt=urn:btih:54F827D4C86CB830BC24531F7497A8D109E6E968
 magnet:?xt=urn:btih:9ADCB8F9D177B9E1516F62FD80226FF4AE029C07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +474,8 @@ magnet:?xt=urn:btih:9ADCB8F9D177B9E1516F62FD80226FF4AE029C07
 ```bash
 magnet:?xt=urn:btih:CE0E57DF71CF4266CC6158D9795E04E23A406D43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +510,8 @@ Xandria - Neverworld's End (2012) [MP3|192 кб/с]<Gothic Metal>
 magnet:?xt=urn:btih:F11DCD9058ACE5ABDA05F68F207C8EB6A8DF7F82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +541,8 @@ David Christoph - Enable Soul (2012) [MP3|320 kbps]<Techno>
 magnet:?xt=urn:btih:92F2417C0AD558916DB04964615A6F02A4D8C655
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +569,8 @@ magnet:?xt=urn:btih:92F2417C0AD558916DB04964615A6F02A4D8C655
 magnet:?xt=urn:btih:9E8CA4168605FC5A4D1FCA8332DF9429B8BEEE8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +594,8 @@ magnet:?xt=urn:btih:9E8CA4168605FC5A4D1FCA8332DF9429B8BEEE8B
 ```bash
 magnet:?xt=urn:btih:C9A113356DDC1934E29E0BE41908D92656D69EB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +630,8 @@ Matisse & Sadko - February 2012 Promo mix (22-02-2012) (2012) [MP3|320 кб/с]<
 magnet:?xt=urn:btih:074EC89B22C36A22AE38945528761420684E35A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +655,8 @@ Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -фа
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +688,8 @@ November's Flame - На Обочине Больного Мира (ЕР) (2012) [
 magnet:?xt=urn:btih:29FE15E1DD9E417875218DB2ADED1CE08AA6A9F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,6 +716,8 @@ Fox Stone - Deep EP (2011) [MP3|320 кб/с]<Dubstep, Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:95E9515ED2FABDF588C1D6716540A97F22F90DB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -699,6 +747,8 @@ Southell (Италия) - Alcohol Fueled, Weed Inspired (2011) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:E39BBA26B64823453E049AACA06C782896EAD6BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -732,6 +782,8 @@ Hard Rock Sofa - February 2012 Podcast (18-02-2012) [MP3|320 кб/с]<Electro Ho
 ```bash
 magnet:?xt=urn:btih:434CECCDA5D150FAFFD0661F739A946373184539
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:FB14DD8F40C5C855C289C7B4EDFF99B7B28F8683
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:FB14DD8F40C5C855C289C7B4EDFF99B7B28F8683
 ```bash
 magnet:?xt=urn:btih:A794B81065AED5A933BD806C29C03C01B69F87D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:A794B81065AED5A933BD806C29C03C01B69F87D8
 magnet:?xt=urn:btih:3D605C6F5EAD7151EB479A19D0E21B6B362395B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:3D605C6F5EAD7151EB479A19D0E21B6B362395B0
 ```bash
 magnet:?xt=urn:btih:7C8F60B2E1A019309F31A58D8F397A7F56138644
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:7C8F60B2E1A019309F31A58D8F397A7F56138644
 magnet:?xt=urn:btih:E9B114A062389FF9DE63BA4428E01E2F9FDA1869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:E9B114A062389FF9DE63BA4428E01E2F9FDA1869
 magnet:?xt=urn:btih:B5A30C11CB1A2A75C15716C8993BA58D5F494E44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:B5A30C11CB1A2A75C15716C8993BA58D5F494E44
 ```bash
 magnet:?xt=urn:btih:E7121E5D4178305ECA4D5507D81733E90D6343CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Animalistic! - Age of Furor (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Mod
 magnet:?xt=urn:btih:EC2AEE4900EFBB844D366719D254A48AEB3AB751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Steve Harris - British Lion (2012) Japanese Edition [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:3E1D38A1ADCE7FB81B6AEFF26E2CD0C84539671C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:3E1D38A1ADCE7FB81B6AEFF26E2CD0C84539671C
 ```bash
 magnet:?xt=urn:btih:429D6A2DBDD8909FE961812A8BCDD9F0D759317C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ Justin Bieber - Swag (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:EC59917669C803551BAF671BD9EB2C7631C241D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ Simple Plan: Дети в толпе / Simple Plan: The Kids in the Crowd (2025) 
 ```bash
 magnet:?xt=urn:btih:F38506135E1AFAE38A4BC9679183C8EF40376A02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:F38506135E1AFAE38A4BC9679183C8EF40376A02
 magnet:?xt=urn:btih:73AA7E5253E29CCA009A6EFE7FC0EA8493FFD826
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ Rosetta Stone: Изучение языков 8.33.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:935562E1117DA2F903D0653ABBFC27BE375F8A3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ Krita – профессиональный бесплатный растровы
 magnet:?xt=urn:btih:8C6F6880C16B5CE5011104422CD449BEED42FDD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:8C6F6880C16B5CE5011104422CD449BEED42FDD6
 ```bash
 magnet:?xt=urn:btih:50FECD961EA5BAC2EB34ACF697FC4199AB3E674F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:50FECD961EA5BAC2EB34ACF697FC4199AB3E674F
 magnet:?xt=urn:btih:9B6849795DABE76448FE1CE458151CFE7B26914C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ Automate It: Factory Puzzle (2025) [Ru/Multi] (1.0.0.6) Repack FitGirl [Supporte
 ```bash
 magnet:?xt=urn:btih:60BBDCAF775B19517F90EE9877D806B8CC1CE903
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:60BBDCAF775B19517F90EE9877D806B8CC1CE903
 magnet:?xt=urn:btih:19F62CC3A944FA7513B0AB3E9CC598AD36EC1BB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:19F62CC3A944FA7513B0AB3E9CC598AD36EC1BB4
 ```bash
 magnet:?xt=urn:btih:CF39AB666366F849F355AC1FBA2F30F16F1E59A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ Barakamon | Баракамон [2014, TV, 12 из 12 эп.] BDRip 1080p HEVC 10-
 magnet:?xt=urn:btih:A40670BDD86FD45FF8C144CF998F0EA7E0E359AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:A40670BDD86FD45FF8C144CF998F0EA7E0E359AE
 ```bash
 magnet:?xt=urn:btih:1B1342DF33921E5B7737946B6171487264384DD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:1B1342DF33921E5B7737946B6171487264384DD9
 magnet:?xt=urn:btih:C81C4888A87187611EBA349A8C6BFA9DF47B1336
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:C81C4888A87187611EBA349A8C6BFA9DF47B1336
 ```bash
 magnet:?xt=urn:btih:FBDDC09177F38ED8B05DA9AA7473A60E23D69088
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:FBDDC09177F38ED8B05DA9AA7473A60E23D69088
 magnet:?xt=urn:btih:8690164733ED0EE980E1629D0EB12F6F922C237C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ MediaHuman YouTube to MP3 Converter 3.9.14 (1407) RePack (& Portable) by elchupa
 ```bash
 magnet:?xt=urn:btih:C195BB50AC662332256FC23CD1D45BC69DF950C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

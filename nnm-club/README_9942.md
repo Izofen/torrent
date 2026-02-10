@@ -1,54 +1,3 @@
-###  Публикация: 1181613   (321910) от 08.11.2017
-
-Марианна Сорвина | Забытое убийство (2017) [MP3, Михаил Росляков]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Исторический детективИздательство: В основе исторического детектива – реальные события, произошедшие в Инсбруке в ноябре 1904 года. Всего один день и одна жертва! Но случившееся там получило широкий резонанс. Мы вглядываемся в эту трагедию из дня нынешнего и понимаем, что мир тогда вступал в совершенно иную эпоху – в драматичный и жертвенный XX век, в войнах которого погибли миллионы. Инсбрукские (   Читать дальше...   )Продолжительность: 15:22:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD91F0A972D7C60426B2FA9E295E2E91A8CCBFC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181498   (321911) от 08.11.2017
-
-Бесогон ТВ. Пернатые сенаторы (03.11.2017) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторская Программа Никиты Михалкова Бесогон TV на канале Россия 24 выходит 1 или 2 раза в месяц.
-Цель этого авторского канала, - поделится мыслями и опровергнуть домыслы появляющиеся в сети и не отражающие истинного мнения автора передачи, - Никиты Михалкова о том или ином событии.
-Темы выпусков самые разные, но доминируют политика и общество.
-(   Читать дальше...   )Квентин Тарантино, Юрий Быков и травля за сериал Спящие, Слава Тарощина, Олег Кашин, Марина Юденич, Сергей Лукьяненко, Виктор Шендерович, Лев Гумилев, Антон Чехов, Дина Сорокина и интервью Голосу Америки, Ельцин-центр, Евгений Волк и схема контактов, Валентина Матвиенко, пернатые и камниТелекомпания: Россия 24Жанр: Телепередача, общественно-политическая программаПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D98F13695A5E8AB2FD8DDF3DE5FEB5E9E3779355
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181958   (321912) от 08.11.2017
 
 Татьяна Беспалова | Вяземская Голгофа (2016) [FB2, EPUB]
@@ -69,6 +18,8 @@ magnet:?xt=urn:btih:D98F13695A5E8AB2FD8DDF3DE5FEB5E9E3779355
 ```bash
 magnet:?xt=urn:btih:E2EB78B5B454A92E416A47D2CABFB7ACBD916871
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +45,8 @@ magnet:?xt=urn:btih:E2EB78B5B454A92E416A47D2CABFB7ACBD916871
 magnet:?xt=urn:btih:5098DDBE1860DF531DB122C39CA9C35F406A37E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +70,8 @@ magnet:?xt=urn:btih:5098DDBE1860DF531DB122C39CA9C35F406A37E5
 ```bash
 magnet:?xt=urn:btih:FE851558518244ACD10EC244736E1D0A1CDECECB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +97,8 @@ magnet:?xt=urn:btih:FE851558518244ACD10EC244736E1D0A1CDECECB
 magnet:?xt=urn:btih:539F16BBC13636E7D1162B2FF20C7E20E6A4AAFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +122,8 @@ magnet:?xt=urn:btih:539F16BBC13636E7D1162B2FF20C7E20E6A4AAFE
 ```bash
 magnet:?xt=urn:btih:4EFDE24DBD9062DF64EB7A4E51C746EFDE9B8221
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +149,8 @@ magnet:?xt=urn:btih:4EFDE24DBD9062DF64EB7A4E51C746EFDE9B8221
 magnet:?xt=urn:btih:14DD3FB7EAB8BF908664E9E1AFCC6844FEE34EF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +174,8 @@ Virgin Australia Supercars Championship. Сезон 2017. ITM Auckland SuperSpri
 ```bash
 magnet:?xt=urn:btih:96B5855F58761EB28333EA7476FBE0E23CDB92EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +204,8 @@ Subset - SRS (The Collection) (2017) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
 magnet:?xt=urn:btih:4130D6ADD0192261C20AEADA3A1996A138389601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +229,8 @@ magnet:?xt=urn:btih:4130D6ADD0192261C20AEADA3A1996A138389601
 ```bash
 magnet:?xt=urn:btih:58E70BF7771F632B56B82B515CC18CF60460E510
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +256,8 @@ Monster Energy Nascar Cup Series-2017, Этап 32 - Hollywood Casino 400, Kansa
 magnet:?xt=urn:btih:76FFE4EA3037A87B7558C01B24497BA6913E9E35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +282,8 @@ PDF-компрессор предназначен для сокращения р
 ```bash
 magnet:?xt=urn:btih:6F8EF6D1CC4446E3F878BB40B331AE35EE36D0FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +312,8 @@ Big Head Todd & The Monsters - New World Arisin' (2017) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:768E051CC1AE0AB80B00196018F861F012A41081
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +338,8 @@ Monster Energy Nascar Cup Series-2017, Этап 34 - AAA Texas 500, Texas Motor 
 magnet:?xt=urn:btih:8CA8504E5DC29E7382BC6ACA29A2E3B06411E5BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +363,8 @@ magnet:?xt=urn:btih:8CA8504E5DC29E7382BC6ACA29A2E3B06411E5BB
 ```bash
 magnet:?xt=urn:btih:54C0244A1BE0300962EA489EBE885A686073BBB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +391,8 @@ Flume - новое приложение для просмотра контент
 magnet:?xt=urn:btih:1245A280CE9939F3C995CD090316136B3DBCAAD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +416,8 @@ magnet:?xt=urn:btih:1245A280CE9939F3C995CD090316136B3DBCAAD4
 ```bash
 magnet:?xt=urn:btih:4F28975DB354074CFF8A0CADFEE10A46986A8211
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +444,8 @@ magnet:?xt=urn:btih:4F28975DB354074CFF8A0CADFEE10A46986A8211
 magnet:?xt=urn:btih:81D94FECDC40C95065F7AA4356E547B62BA7615B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +469,8 @@ magnet:?xt=urn:btih:81D94FECDC40C95065F7AA4356E547B62BA7615B
 ```bash
 magnet:?xt=urn:btih:3CD576C8E53E82A8B8739A6C789E84706EBAE3F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +497,8 @@ magnet:?xt=urn:btih:3CD576C8E53E82A8B8739A6C789E84706EBAE3F5
 ```bash
 magnet:?xt=urn:btih:FE52638DD5312232A40B7443FC2EC59329303477
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +527,8 @@ Black Sabbath - Live... Gathered In Their Masses (2013) BDRip [720p]
 magnet:?xt=urn:btih:C43D77A43AFB8BB1ED088938092F1F2EA1D8C45B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +552,8 @@ magnet:?xt=urn:btih:C43D77A43AFB8BB1ED088938092F1F2EA1D8C45B
 ```bash
 magnet:?xt=urn:btih:FB39D7CB07A7AC6033FA601B799207F62CD5C5BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +579,8 @@ magnet:?xt=urn:btih:FB39D7CB07A7AC6033FA601B799207F62CD5C5BD
 magnet:?xt=urn:btih:8C2281124B8AA94C9275AF1A7F58CB4AFB19BFFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +604,8 @@ magnet:?xt=urn:btih:8C2281124B8AA94C9275AF1A7F58CB4AFB19BFFC
 ```bash
 magnet:?xt=urn:btih:DE8F0CF7CF651C735AB485111D2CE78BA9215A17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +633,63 @@ Manimal - Trapped In The Shadows (2015) [MP3|320 кб/с]<Power, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:1F247CFAABDB56F8492EFB60DFA9CEC8962F06DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958743   (321971) от 22.11.2015
+
+Э. Шим | Лето на Корбе (1951) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы про деда Макеича, про рыбалку и охоту.Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B10B95AAF374E89D56D14B7225DB0A167BE8623C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958840   (321972) от 22.11.2015
+
+Tweetbot for Twitter 2.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый, кто активно использует Twitter с помощью устройств от Apple, давно знает, что нет ничего лучше приложения Tweetbot.
+
+Tweetbot - клиент Twitter для Mac. Этот полнофункциональный клиент имеет фантастическую поддержку нескольких учетных записей и списков. Он также имеет мощные фильтры, несколько видов столбцов, и многое другое.
+(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 ноября 2015Разработчик: Tapbots LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A328D900122EE5044E86C30F4FB64F769C16F2ED
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

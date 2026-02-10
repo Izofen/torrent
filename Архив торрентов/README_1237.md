@@ -19,6 +19,8 @@ iCollections 6 v6.7.2 [Multi]
 magnet:?xt=urn:btih:8AEF131B9B63AEF823D76F26B004FF64BDF25755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ LaunchBar - функциональная замена Spotlight на Mac. Пос
 magnet:?xt=urn:btih:EB497CA65BA55D4AC3B9ABA5F691B7E95DC83345
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Adobe Illustrator 2023 27.1.1.196 RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:474ADCE87895E86AA77A5BAC1917596FDC08DE33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Andre 3000 & Madlib - Otis Benjamin 2.0 (MadStacks) (2019) [FLAC|Lossless|Web-DL
 magnet:?xt=urn:btih:5138865DB83124575F82E13859D9680A58BA8976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ AnyMP4 DVD Ripper - приложение для копирования DVD-фи�
 magnet:?xt=urn:btih:55BA76B7E3170200B0E034119D0A4AAE2FAFD72C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ NCH WavePad Mater 11.45 [En]
 ```bash
 magnet:?xt=urn:btih:CDD35A359D49B7C29B349DBB441D6AA0B0AD8725
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Duplicate Photos Fixer Pro является удобным приложение�
 magnet:?xt=urn:btih:E8808325EFB3A66D51DCF73EDA15B48BDB9D7E54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Aiseesoft Mac Video Converter Ultimate - мощная программа для 
 magnet:?xt=urn:btih:09CFE0BC0FA6D4B00039533F06F81C8E8792504F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ SSH Config Editor Pro 1.11.5 [En]
 ```bash
 magnet:?xt=urn:btih:8652FD023F0556D21F9CB355C901751FBE64B63A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Cookie - (   Читать дальше...   )Тип издания: macOS Softw
 magnet:?xt=urn:btih:A6099C84F784EFA16388103D761FEB20C005CE5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ SideNotes - это боковая панель, которая заполнит 
 ```bash
 magnet:?xt=urn:btih:6FFBADAC71520228935E0E8222AF9E2F3D151445
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ Atmosphere - Whenever (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Rap>
 magnet:?xt=urn:btih:80B47DCC402A108AB48249C6F11A88F84EE57941
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ Smultron - простой и элегантный текстовый редак�
 magnet:?xt=urn:btih:590ED9A5ADD5397E3F9EA748DDFA48751CB01BB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ Microsoft Office 2021 for Mac LTSC v16.68 VL [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A605B75753D42755C83585EBAB74453D16FBEE97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ A.S.M. (A State of Mind) - Color Wheel (2019) [FLAC|Lossless|Web-DL|tracks] <Hip
 magnet:?xt=urn:btih:9296F1A4BF6050B1EA3D79C3A5CBECFB74BAEAE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ iPulse 3.1.4 [En]
 ```bash
 magnet:?xt=urn:btih:D596F0C290C73FFAFC7B6DCDAC999ED9A367862F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ BusyCal - программа на Mac OS X, которая поможет вам
 magnet:?xt=urn:btih:9B4F84FFC6F48B5351A72415EA83BB7FE6939E76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:4D9D8E3EB51CFF8B982CA314ED0266EE33235D72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ Mia for Gmail 2.4.0 [Multi/Ru]
 magnet:?xt=urn:btih:81DF81FF9BE2C994239792AAEF9C5E84BA68B1F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ Stats - это приложение с открытым исходным код�
 ```bash
 magnet:?xt=urn:btih:8C92C82D982D8A8744471B4619771D2E7F9A4A9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ PaintCode 3 v3.5.1 [En]
 magnet:?xt=urn:btih:B5A604E86787967F5D953BD097D356A87190E8A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ Lanark Artefax - Live - No Bounds Festival 2019 (2019) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:023A877284D6982F3D4214C9FD736A4599C5516D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ Noir — это расширение для Safari, которое автома�
 magnet:?xt=urn:btih:51AB48D05403F51E90869044E900D7816B2D68E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:51AB48D05403F51E90869044E900D7816B2D68E9
 ```bash
 magnet:?xt=urn:btih:1A420F7782CC9BB0E18545FBE2FC6007B5354460
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ Office 2013-2021 C2R Install + Lite 7.5.0.1 ++ Portable by Ratiborus [Multi/Ru]
 magnet:?xt=urn:btih:3E8AF82F96F39588BE89A112C2D8C9FC72E09AF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ GoodNotes 5 v5.7.54 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F8BA1704D4494CFE4D4DF256024F9FF5875F1425
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

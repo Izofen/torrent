@@ -28,6 +28,8 @@ VA - Points of Interest (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On
 magnet:?xt=urn:btih:ABCC7948F018442598E864A8FFACEA907D13CCEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ Scion Versions - Label Pack (7 релизов) (2006-2010) [MP3|320 кб/с]<Dub
 ```bash
 magnet:?xt=urn:btih:690CC24011E180323BA35F902BDC1D50DC6E722D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -86,6 +90,8 @@ Ectima - No Way Out (2009) [FLAC|Lossless]<Psy-Trance, Progressive Trance>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +120,8 @@ Ancestors - In Dreams And Time (2012) [MP3|320 кб/с]<Stoner Doom>
 ```bash
 magnet:?xt=urn:btih:670FF1A783229323AEA9DD7475F8D2BF4DCD5024
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +152,8 @@ Conan - Monnos (2012) [MP3|320 кб/с]<Doom Stoner Metal>
 magnet:?xt=urn:btih:8F2E2D62C623A374D04F003D6ACE4D70F1EB7875
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +179,8 @@ magnet:?xt=urn:btih:8F2E2D62C623A374D04F003D6ACE4D70F1EB7875
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +204,8 @@ SeaMonkey — проект, основанный на добрых традиц�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +240,8 @@ VA - Return To Eternya (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
 magnet:?xt=urn:btih:0C9F5D6C933181244B2ABE354C631CA09F610D34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +265,8 @@ magnet:?xt=urn:btih:0C9F5D6C933181244B2ABE354C631CA09F610D34
 ```bash
 magnet:?xt=urn:btih:5C702ED0CF2351F5A3DC804980EE601EAB45096B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +294,8 @@ magnet:?xt=urn:btih:5C702ED0CF2351F5A3DC804980EE601EAB45096B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +327,8 @@ VA - Heroes Of Trance (13.04.2012)Год: 13.04.2012
 magnet:?xt=urn:btih:C863A5DEA79B80E185C0E09A838D8F4DAE1E02C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +352,8 @@ Working For A Nuclear Free City - Jojo Burger Tempest (2010) [MP3|320 кб/с]<S
 ```bash
 magnet:?xt=urn:btih:9D67188AB1F825358B233D38F8569C790D11B1E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +388,8 @@ VA - Chaos Machine Vol.2 (Compiled By Urban Freaks) (2012) [MP3|320 кб/с]<Tra
 magnet:?xt=urn:btih:810F0A85457C36B5286E1D62A0177EF06CD40C49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +413,8 @@ magnet:?xt=urn:btih:810F0A85457C36B5286E1D62A0177EF06CD40C49
 ```bash
 magnet:?xt=urn:btih:8E06E1B88449F5DD0EEBA3A96762D5F2DC24AF23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +444,8 @@ magnet:?xt=urn:btih:8E06E1B88449F5DD0EEBA3A96762D5F2DC24AF23
 magnet:?xt=urn:btih:FBC632F8894D00C7E9EF1456D09EA2FFEE955AA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +474,8 @@ magnet:?xt=urn:btih:FBC632F8894D00C7E9EF1456D09EA2FFEE955AA2
 magnet:?xt=urn:btih:B5090CB7B3BB22696AA54F6041FEB19B1992033F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +503,8 @@ magnet:?xt=urn:btih:B5090CB7B3BB22696AA54F6041FEB19B1992033F
 ```bash
 magnet:?xt=urn:btih:EF22CB313D184DB8AA08D2DA66A18136F80A8489
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +539,8 @@ Fomento - To Persevere Is Diabolical (2012) [MP3|~245 кб/с (V0)]<Thrash Metal
 magnet:?xt=urn:btih:C915C478D180620073DC31BE57EF29FB5F3C2A9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +564,8 @@ magnet:?xt=urn:btih:C915C478D180620073DC31BE57EF29FB5F3C2A9B
 ```bash
 magnet:?xt=urn:btih:773F9EFF200248887A49C923734F336F2C5C5475
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +600,8 @@ VA - Фестиваль лучших хитов 50/50 (2012) [MP3|256 kbps]<Pop 
 magnet:?xt=urn:btih:547ACA1E955CE5258C9ABF92033A304126DC1946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +625,8 @@ magnet:?xt=urn:btih:547ACA1E955CE5258C9ABF92033A304126DC1946
 ```bash
 magnet:?xt=urn:btih:80D3F87F4FEA88CA90E60831AB514EC09CEFE5FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +652,8 @@ magnet:?xt=urn:btih:80D3F87F4FEA88CA90E60831AB514EC09CEFE5FE
 magnet:?xt=urn:btih:493DA62E5A8C48CA357E7E7B5F31DC253F47F442
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +678,8 @@ magnet:?xt=urn:btih:493DA62E5A8C48CA357E7E7B5F31DC253F47F442
 magnet:?xt=urn:btih:B9F8B3A04BA2114C883DD296F9F5CA0D47F65571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +703,8 @@ magnet:?xt=urn:btih:B9F8B3A04BA2114C883DD296F9F5CA0D47F65571
 ```bash
 magnet:?xt=urn:btih:FAB62AE471ED1E224FD1FEE1F8B09C2079C7E33F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -686,6 +734,8 @@ magnet:?xt=urn:btih:FAB62AE471ED1E224FD1FEE1F8B09C2079C7E33F
 magnet:?xt=urn:btih:6A2A674B0881C3DF01D555F9BAB90EA99B182011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -709,6 +759,8 @@ magnet:?xt=urn:btih:6A2A674B0881C3DF01D555F9BAB90EA99B182011
 ```bash
 magnet:?xt=urn:btih:CFE4BE29C69A7EBFE86DCC7B5C4728FDC5427DEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

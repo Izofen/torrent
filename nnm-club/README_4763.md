@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:2E2F0BBD53B4EEADFB7BBA66F7D9054B99B3E652
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:2E2F0BBD53B4EEADFB7BBA66F7D9054B99B3E652
 magnet:?xt=urn:btih:03C1D288C76352C45D5DA4068D2D5F342FD8BF43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ TG Pro — контроль температуры и вентиляторов �
 ```bash
 magnet:?xt=urn:btih:C16E7B6D8800E87D1A419528DC4DB6F0B6359D0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ Stars On 45 - The Best Of (2005) [FLAC|Lossless|tracks + .cue]<Pop, Disco>
 magnet:?xt=urn:btih:C6E94A93CAECB98DC260B1A451DEB812098A53F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Affinity Designer — самое быстрое, удобное и точное 
 magnet:?xt=urn:btih:D6CCA1A9287108CFC340E043C3EB7E1EFBE73500
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Fallout 4 - это продолжение знаменитой постапок�
 magnet:?xt=urn:btih:E09B1779E8F41EBB79122F7C280B58C9EA3FF441
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:E09B1779E8F41EBB79122F7C280B58C9EA3FF441
 ```bash
 magnet:?xt=urn:btih:D6511FF6536CA0945596456203BF3361A5888FD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ VENUS - Obscured Until Observed (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pr
 magnet:?xt=urn:btih:CC92C544B1C485316530255A0FB57004EDF0DBAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:CC92C544B1C485316530255A0FB57004EDF0DBAB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ Haste The Day - Best Of The Best (2012) Solid State Records [FLAC|Lossless|track
 magnet:?xt=urn:btih:A338658303DFB58B0B3CE8B476E4B954987A1D5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ VA - Goa (2015) [MP3|320 кб/с] <Progressive, Trance>
 magnet:?xt=urn:btih:0CEBA971AB7E34DE82317882B6CB2FCE4126D384
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ Fairy Gone / Пропавшие феи [2019, TV, 24 ep] WEBRip 1080p Rus
 ```bash
 magnet:?xt=urn:btih:4E5E8255520EC83CD9974541EFFE036715463CE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ NIUBI Partition Editor (Repack & Portable) – программа для про�
 ```bash
 magnet:?xt=urn:btih:5107974438B8D5AD66B6508B10A086346409E245
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ A Mountain Of One & Ricardo Villalobos - Ricardo Villalobos reimagines: Stars Pl
 magnet:?xt=urn:btih:B400DB32A541AA2EB1501475FD1A66B76D0370CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:B400DB32A541AA2EB1501475FD1A66B76D0370CD
 ```bash
 magnet:?xt=urn:btih:33D9C8CF4D5B38C7589D04C80E84FDC7CA48EFD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:33D9C8CF4D5B38C7589D04C80E84FDC7CA48EFD4
 magnet:?xt=urn:btih:1B26B0AA9941E65BE89DC851D1A953BB3AB389D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ magnet:?xt=urn:btih:1B26B0AA9941E65BE89DC851D1A953BB3AB389D2
 ```bash
 magnet:?xt=urn:btih:880AF54D6279E90D24DF7D1A5912CDBD4219CD28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ Claudia Doffinger - Monochrome (2018) QFTF Records [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:41C1012C9098CFFC432BE0CD52D66C85A8AEA8A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:41C1012C9098CFFC432BE0CD52D66C85A8AEA8A9
 ```bash
 magnet:?xt=urn:btih:3FC7B4396AAE9BF2FA7828207E5854FA7B0C69B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +544,8 @@ Saint Deamon - League of the Serpent (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:B2123614A37A1DB4ACA156505EDC98A0616CDF8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:B2123614A37A1DB4ACA156505EDC98A0616CDF8D
 ```bash
 magnet:?xt=urn:btih:C07B884308A5181182FEBDC6E07514A43B0B9245
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ magnet:?xt=urn:btih:C07B884308A5181182FEBDC6E07514A43B0B9245
 magnet:?xt=urn:btih:C089AA394923FD7AD5975E7606920FB0AF901C5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ magnet:?xt=urn:btih:C089AA394923FD7AD5975E7606920FB0AF901C5F
 ```bash
 magnet:?xt=urn:btih:D03EB5CCEDD929C67E7830C0787C5DF5232EDD45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +651,8 @@ magnet:?xt=urn:btih:D03EB5CCEDD929C67E7830C0787C5DF5232EDD45
 magnet:?xt=urn:btih:437B1D218D9C8B4C4FF3E957E84CA2C276385B45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +676,8 @@ Half-Life 2: Orange Box - новый продукт от компании Valve,
 ```bash
 magnet:?xt=urn:btih:8814090FA63B897333C1F62A235BE1C87117B20F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +705,8 @@ Cowboys & Frenchmen - Bluer Than You Think (2018) Outside in Music [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:F4155A1C63FAF406F7967F25F726147DABD144E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:CD425B9ACE05243BDE07AC694BA04AE11F1483D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:CD425B9ACE05243BDE07AC694BA04AE11F1483D7
 magnet:?xt=urn:btih:B5649CBE41E781F4C4CB7BE2822B0A629E7BE97B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:B5649CBE41E781F4C4CB7BE2822B0A629E7BE97B
 ```bash
 magnet:?xt=urn:btih:4AFE0EB9790DD316EDE64DA187753C7C36246310
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Pichugin Organizer - это легкий и удобный в использов
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Pichugin Organizer - это легкий и удобный в использов
 ```bash
 magnet:?xt=urn:btih:70D473F9CB57EF49D6D6300AB30B749F81132840
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:70D473F9CB57EF49D6D6300AB30B749F81132840
 magnet:?xt=urn:btih:DBF1990FC96707AB88D485B8154437E36FBF9B0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:DBF1990FC96707AB88D485B8154437E36FBF9B0D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:DBF1990FC96707AB88D485B8154437E36FBF9B0D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:DBF1990FC96707AB88D485B8154437E36FBF9B0D
 ```bash
 magnet:?xt=urn:btih:B7717149E1853045CDC8964B22B02474A4592CED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ Heather Nova - 14 Альбомов (1990 - 2011) [FLAC|Lossless]<Alternative/Ind
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +330,8 @@ Terraria — компьютерная инди-игра в жанре Action-adv
 magnet:?xt=urn:btih:FEF4CC30B757213E2AD087AB0E52455FD68B2EF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +358,8 @@ magnet:?xt=urn:btih:FEF4CC30B757213E2AD087AB0E52455FD68B2EF0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ ACDSee Pro - профессиональная программа для рабо
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +410,8 @@ From Dust - новый проект Эрика Чани. Проект, неск�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ From Dust - новый проект Эрика Чани. Проект, неск�
 magnet:?xt=urn:btih:A07893746CE093C55553F025EEF808B6C7B34881
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ magnet:?xt=urn:btih:A07893746CE093C55553F025EEF808B6C7B34881
 ```bash
 magnet:?xt=urn:btih:2B8456D659D1673319DD330D8F5BD0DFF0873EF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ AIDA64 Extreme - утилита является очень мощным инс�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ AIDA64 Extreme - утилита является очень мощным инс�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +549,8 @@ AIDA64 Extreme - утилита является очень мощным инс�
 magnet:?xt=urn:btih:AF41F030AA947210132E424CDA6752CD65F5F4CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +579,8 @@ magnet:?xt=urn:btih:AF41F030AA947210132E424CDA6752CD65F5F4CA
 magnet:?xt=urn:btih:B79B2FB55DDF2A723708B3B0ED214AB8C518EA7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +604,8 @@ magnet:?xt=urn:btih:B79B2FB55DDF2A723708B3B0ED214AB8C518EA7F
 ```bash
 magnet:?xt=urn:btih:C0D7266A02320E6AE21E3BE8F99EF890ED0A1C4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +640,8 @@ Toyah - Prostitute (1988) [FLAC|Lossless]<Avantgarde, Synth-pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +666,8 @@ Toyah - Prostitute (1988) [FLAC|Lossless]<Avantgarde, Synth-pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +691,8 @@ Toyah - Prostitute (1988) [FLAC|Lossless]<Avantgarde, Synth-pop>
 ```bash
 magnet:?xt=urn:btih:9978698C36443E55D56AB2A532B0ACA8644773C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -669,6 +719,8 @@ magnet:?xt=urn:btih:9978698C36443E55D56AB2A532B0ACA8644773C6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

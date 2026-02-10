@@ -19,6 +19,8 @@ Windstorm: Start of a Great Friendship - Remastered (2024) [Multi] (0.7.3) Repac
 magnet:?xt=urn:btih:EAAEFE61C9D34F9E4725A85A86344CDD4F98835C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Windstorm: Start of a Great Friendship - Remastered (2024) [Multi] (0.7.3) Scene
 ```bash
 magnet:?xt=urn:btih:3EF02AD7A7B23920A47CE93BAD2C7742D02471DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Tour de France 2024 (2024) [Multi] (01.04.03.846/dlc) Repack FitGirl
 magnet:?xt=urn:btih:63452ADF7AD6DB7A14284119C37A4BC8EC45F077
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Tennis Manager 2024 – как насчет того, чтобы покорит�
 ```bash
 magnet:?xt=urn:btih:07A0B5FC5CC024EFD0CB560D6EE1991E0AF613E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Tennis Manager 2024 – как насчет того, чтобы покорит�
 magnet:?xt=urn:btih:EE5E77DADD1E58D0659013B84286832953D0D93F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ AEW: Fight Forever разработана компанией YUKE's Co, Ltd., с
 ```bash
 magnet:?xt=urn:btih:CFF18845F62A353B2778407DA7BD4C725EB1EC4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Battle vs Chess (2011) [Ru/Multi] (1.2/dlc) License GOG [Grandmaster Premium Edi
 magnet:?xt=urn:btih:2A4A895A924FBA4A500C1AE3FA048C6DEE32C5AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Golf With Your Friends (2020) [Ru/Multi] (258/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:AF26896585042D69B73FE59623A91443D6333A1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ BMX Streets - это увлекательный симулятор фриста�
 magnet:?xt=urn:btih:8EE537EB39104A856954D3B486BD77FB48D4719E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ FIFA 16 – первая игра в серии FIFA, в которой учас
 ```bash
 magnet:?xt=urn:btih:9AC821F79F504C327DA4FEF94C6983D291C2F43F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ FIFA 16 – первая игра в серии FIFA, в которой учас
 magnet:?xt=urn:btih:F8741C4FB9A0ADE9C51DC04C086218152DB5506D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Handball 17 – это возможность сыграть в професси
 ```bash
 magnet:?xt=urn:btih:F0FB9B0F49694A7251780B9FE01B351A88BA6FB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Project Hunt - приближенный к реализму симулятор �
 magnet:?xt=urn:btih:BF8BA9EF34283A830AD553CCB4D327EFE599C532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Tactic Boxing – откройте двери стилизованного ми�
 ```bash
 magnet:?xt=urn:btih:92C16B5605D5B841477AD011A1E67D395EC46C41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Out of the Park Baseball 25 празднует четверть века сов�
 magnet:?xt=urn:btih:17665912CCA5CF26E8953E2A658F6ED52935A65C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ We Are Football 2024 (2024) [Multi] (3.00hf) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:72A8F378E196CD3211F29DC693AFBD06148BB5D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Out of the Park Baseball 25 празднует четверть века сов�
 magnet:?xt=urn:btih:39FEF56C2BACD151BA3EDD0521F7D9D28398D180
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Billiards Pyramid (L) [En] (2011)
 ```bash
 magnet:?xt=urn:btih:2C9DAA6C30627A7DDEA1658BA7FC43A8488A0D59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Major League Baseball 2K12 – новая игра в серии симулят�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ NBA 2K11 продолжает популярную серию виртуальн
 ```bash
 magnet:?xt=urn:btih:15BD47940577C213AC53EE49B0D885A5844ED123
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Punch Club 2: Fast Forward - это двухмерный экшен-файтин
 magnet:?xt=urn:btih:9ABDBEFE767F0DB2FA9157EF73C1193DDD18FB58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ RIDE 5 (2023) [Multi] (20240124/dlc) Scene Rune [Special Edition]
 ```bash
 magnet:?xt=urn:btih:0D8408CF6EC0D24D26B726FC7D5D1BF55BF83EB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Pro Cycling Manager 2023 (2023) [Multi] (1.9.0.443) Scene Skidrow
 magnet:?xt=urn:btih:4184572A50CDEDDA05F47CA76991C5B4383E289E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Fritz 19 SE (2023) [Multi] (1.0) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:06B0BFA258C9D49942463C357D2289ADE01DC350
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Goalgetter / Torschutzenkonig (2023) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:0EF5C82C1E984839E75E23A1A2DFB7AD5060EC44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Waifu Fighter - Family Friendly переносит игроков в уника�
 ```bash
 magnet:?xt=urn:btih:BDF4035AAF13458A9159057D9745EAF4A3216882
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

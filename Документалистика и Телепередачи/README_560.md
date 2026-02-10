@@ -1,3 +1,29 @@
+###  Публикация: 1213696   (768101) от 17.03.2018
+
+Экстрасенсы. Битва сильнейших (Экстрасенсы ведут расследование) (17.03.2018) WEBRip [H.264/720p-LQ] (сезон 10, выпуск 05(133))
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный триллер-детектив с участием самых загадочных экстрасенсов России! Это не шоу, а демонстрация реальной мощи ясновидения. Сильнейшие экстрасенсы «Битвы» вновь выходят на защиту людей от мистических вмешательств. В новом сезоне проекта «Экстрасенсы: Битва сильнейших» самые мощные ясновидящие помогут тем, кто отчаялся узнать правду. Александр Шепс, Виктория (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-шоуПродолжительность: 01:11:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72B4FE2E44660AB00B1B421549B9F9E68EAC4E01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213487   (768107) от 17.03.2018
 
 Александр Великий (Александр Македонский) / Alexander der Große / Alexander the Great (2014) HDTVRip (2 серии из 2)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:56109F797560A8F9317FDA74955B3E2F7EFA2391
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:56109F797560A8F9317FDA74955B3E2F7EFA2391
 magnet:?xt=urn:btih:8DEB4E95D0CBBC57DDB740B8AA7C5960D33D5006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:8DEB4E95D0CBBC57DDB740B8AA7C5960D33D5006
 ```bash
 magnet:?xt=urn:btih:7AF93A59E9220697A2FA485403F890BA1991407C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:7AF93A59E9220697A2FA485403F890BA1991407C
 magnet:?xt=urn:btih:A9BBA3DB22EC5730958622B226E5E95C1730CC31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:A9BBA3DB22EC5730958622B226E5E95C1730CC31
 magnet:?xt=urn:btih:23009C29FA6F8E82732C642C8A8A9CC28DAF6048
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:23009C29FA6F8E82732C642C8A8A9CC28DAF6048
 ```bash
 magnet:?xt=urn:btih:80522CFCD4D1A232FFE8F858E3A21BB8621A7BF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:80522CFCD4D1A232FFE8F858E3A21BB8621A7BF7
 magnet:?xt=urn:btih:43B70C0D73DF33329FBCB6317A8353553ECEC357
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:43B70C0D73DF33329FBCB6317A8353553ECEC357
 ```bash
 magnet:?xt=urn:btih:AED3B3EB1B7A9970766BAAC1DBA69B1101CD0408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:AED3B3EB1B7A9970766BAAC1DBA69B1101CD0408
 magnet:?xt=urn:btih:E2DD1A08DD17305596B6EF023224434112177A61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:E2DD1A08DD17305596B6EF023224434112177A61
 magnet:?xt=urn:btih:7843BC8FE570EEF32DB8E27258495E897F6FBFB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:7843BC8FE570EEF32DB8E27258495E897F6FBFB1
 ```bash
 magnet:?xt=urn:btih:2F076A538622CC381E40548E4C5D84C7DAD18DA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:2F076A538622CC381E40548E4C5D84C7DAD18DA6
 magnet:?xt=urn:btih:A90166A0F9B14915802778281FEA838CD0225375
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:A90166A0F9B14915802778281FEA838CD0225375
 magnet:?xt=urn:btih:D5E7134D8BFF29106D0346521034A6062C45F76E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:D5E7134D8BFF29106D0346521034A6062C45F76E
 ```bash
 magnet:?xt=urn:btih:62B8D05F2EE57927667E3E8D0DB3F60B3E448DBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:62B8D05F2EE57927667E3E8D0DB3F60B3E448DBF
 magnet:?xt=urn:btih:59217F21C05EAD777B83714C3E6715A905F27D76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:59217F21C05EAD777B83714C3E6715A905F27D76
 ```bash
 magnet:?xt=urn:btih:ACFDB72E277921B1CF2AE6B894C4E5BA445F1F00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:ACFDB72E277921B1CF2AE6B894C4E5BA445F1F00
 magnet:?xt=urn:btih:AC3B75DC7CEC02E8C7A79D8AFD13FB1D97C6D7D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:AC3B75DC7CEC02E8C7A79D8AFD13FB1D97C6D7D4
 ```bash
 magnet:?xt=urn:btih:DF4DBD1795DCDA7317BBECC29D270C0487CD8DBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:DF4DBD1795DCDA7317BBECC29D270C0487CD8DBD
 magnet:?xt=urn:btih:B595F986A996FA9067D43AE77F1C979C2FBFD3A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:B595F986A996FA9067D43AE77F1C979C2FBFD3A4
 ```bash
 magnet:?xt=urn:btih:20795A3D4CC567E49560E1A0059417825DA7A4A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:20795A3D4CC567E49560E1A0059417825DA7A4A8
 magnet:?xt=urn:btih:D6E3FCFC4D650FE16DBDEF67EADCB88CD9A13D63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:D6E3FCFC4D650FE16DBDEF67EADCB88CD9A13D63
 ```bash
 magnet:?xt=urn:btih:AEF10B01D0987827EDB16E2FB3660BCB50340665
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:AEF10B01D0987827EDB16E2FB3660BCB50340665
 magnet:?xt=urn:btih:2FCA065BFECC1E2CD45B32E2733747DAD5E25617
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:2FCA065BFECC1E2CD45B32E2733747DAD5E25617
 ```bash
 magnet:?xt=urn:btih:BC4DF6007BA750B7D17C15770FEEE5C750FBC2EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:BC4DF6007BA750B7D17C15770FEEE5C750FBC2EA
 magnet:?xt=urn:btih:B7F27353DC7B46C7D1B96F5188796402AC863E76
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392945   (768896) от 28.06.2020
-
-Заключённый №1: Восхождение Дэнни Трехо / Inmate #1: The Rise of Danny Trejo (2019) WEB-DLRip [H.264/720p-LQ] [MVO] [AD]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Актёр Дэнни Трехо, его друзья, родные и коллеги рассказывают, как он проделал удивительный путь от осуждённого правонарушителя до звезды Голливуда...Производство: Канада / Abrupt Films, Score G Production FilmsЖанр: Документальный, биографияРежиссер: Бретт ХарвиАктеры: Дэнни Трехо, Craig Balkam, Jhonnie Harris, Донал Лог, Чич Марин, Max Martinez, Мишель Родригес, Роберт Родригес, Даниэль Трехо, Гилберт ТрехоПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:43:53Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E6571A80FA727B2A4D3B8F89D007BAB76F1D811
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

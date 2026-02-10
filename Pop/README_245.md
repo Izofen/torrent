@@ -1,3 +1,148 @@
+###  Публикация: 1222927   (680784) от 01.05.2018
+
+Kylie Minogue - Golden (2018) Deluxe [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing
+02. Stop Me From Falling
+03. Golden
+04. A Lifetime To Repair(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6480251E79EB406E8FD0B6F17B2F20E4C6268B46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222978   (680920) от 01.05.2018
+
+Leroy Gomez & Santa Esmeralda - 4 Albums (1977-1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Родился в городе Cape Cod, штат Массачусетс. В возрасте 14 лет уже сформировал свою собственную группу. После работы с местными группами и освоив вокал и саксофон был привлечен на тур с Tavares по США, Канаде и Европе, где влюбился в Париж и решил сделать его своим домом. Первый солист группы Santa Esmeralda. Альбом "Don`t Let Me Be Misunderstood" получил (   Читать дальше...   )Список альбомов:
+1977 - Santa Esmeralda Starring Leroy Gomez - Don't Let Me Be Misunderstood
+1978 - Leroy Gomes - Gipsy Woman
+1978 - Leroy Gomez - Number One Man(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 02:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B90F3C18214810AD9E34CDF5954CC927ACF43E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222862   (681081) от 01.05.2018
+
+VA - Ultimate... Party Anthems (2018) 4CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Ronson Feat. Bruno Mars - Uptown Funk
+02. R. Kelly - Ignition (Remix)
+03. Meghan Trainor - All About That Bass
+04. P!nk - Get The Party Started(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:19:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B9F532DCCF7E24D2363472E5E232B422074110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222790   (681083) от 01.05.2018
+
+VA - Mallorca Megaparty 2018 - Die WM Party! (2018) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stadionrocker - Los gehts
+02. Finn mit ohne Sinn - Party ohne Alkohol
+03. Kristina Martin - Regenbogen
+04. Feierwut - Kampftrinken auf Mallorca(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:22:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70AD6E3074EC34918F48CA9378E434F964231AE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135591   (681103) от 19.05.2017
+
+Persia - Persia (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Comme Ci Comme Ca (5:06)
+02. Hotcakes (3:34)
+03. Love Hit Us Like A Stonebolt (4:36)
+04. Need Another Night With You (4:12)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:33:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D5A302F5459A5E400468969652694FB357A5807
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 796802   (681176) от 16.06.2014
 
 Lana Del Rey - Ultraviolence [Deluxe Edition] (2014) [FLAC|Lossless]<Indie Pop>
@@ -21,6 +166,8 @@ Lana Del Rey - Ultraviolence [Deluxe Edition] (2014) [FLAC|Lossless]<Indie Pop>
 ```bash
 magnet:?xt=urn:btih:C192EFA692DFB5304E7E8E0BE051E55B2B01FE9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ Boogymann - Delight (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
 magnet:?xt=urn:btih:CDAD5E6A956601595FD4FBDC4A6E04F853497589
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +224,8 @@ VA - Schlager Total - Die Hits aus den Discotheken 2019 DJ Dance Mixe (2019) [MP
 ```bash
 magnet:?xt=urn:btih:C4FF211D33A0E3ADC7E599011103D2A854E8ED08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +254,8 @@ Valverde Brothers - After Midnight (1978) LP [MP3|320 Kbps] <Electronic, Disco, 
 magnet:?xt=urn:btih:57BAB83B1F6EC00A7D727F475237E2396556DD35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +282,8 @@ Alle Farben - Music Is My Best Friend (2016) [MP3|320 кб/с] <Electronic, Pop,
 ```bash
 magnet:?xt=urn:btih:2173B1D8F660D96EBEEAFC44C536782AC773903B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +312,8 @@ Cher - 200% Platinum Hits (1999) Unofficial Release [APE|Lossless|image + .cue] 
 magnet:?xt=urn:btih:618717D804A3B4BF98B055784F3D18E436309809
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +340,8 @@ magnet:?xt=urn:btih:618717D804A3B4BF98B055784F3D18E436309809
 ```bash
 magnet:?xt=urn:btih:C8727D78D22224CC045AD837BC8749DCFCBC62C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +370,8 @@ Broods - Conscious (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 magnet:?xt=urn:btih:199A582331B2F03553B38C53BB82CCAB8C22A403
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +399,8 @@ Cash Cash - Blood, Sweat & 3 Years (2016) [MP3|320 кб/с] <Electronic, Pop, Ho
 magnet:?xt=urn:btih:2C332517D2B07541E53C24C7E02AA39C87DBB8C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +427,8 @@ Francesco Gabbani - Magellan (2017) [FLAC|Lossless|tracks] <Pop Rock, Europop>
 ```bash
 magnet:?xt=urn:btih:D62710C2B6A429658E436A5741A251B6EEEA5DA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +463,8 @@ magnet:?xt=urn:btih:D62710C2B6A429658E436A5741A251B6EEEA5DA8
 magnet:?xt=urn:btih:FB0DB8745BB31E8D1424D015AE6C08876CF629F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +491,8 @@ magnet:?xt=urn:btih:FB0DB8745BB31E8D1424D015AE6C08876CF629F6
 ```bash
 magnet:?xt=urn:btih:4284803FA5FFA6AB76863A4C8AD746AF76012418
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +521,8 @@ Grand Fantastic Strings - La Reine De Saba (1977) 45 RPM, LP [MP3|320 Kbps] <Pop
 magnet:?xt=urn:btih:BE4DF5099DADDAF0887793799095A5B4789B83DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +550,8 @@ Masterboy - немецкая eurodance-группа, образованная в
 magnet:?xt=urn:btih:2763D33214622E6B1EB1B987B0E6561221238614
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +578,8 @@ Crystal Grass With Kristi B. - Love Train (1978) LP [MP3|320 Kbps] <Electronic, 
 ```bash
 magnet:?xt=urn:btih:4EA623B01681171E47B1AD8A978A84740707A92A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +614,8 @@ Amy Macdonald - Life In A Beautiful Light (2012) [MP3|~247 кб/с (V0)]<Pop, Fo
 magnet:?xt=urn:btih:7D8F6BCFBC8CFE4F1802892EAEF7682F4E015A82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +642,8 @@ magnet:?xt=urn:btih:7D8F6BCFBC8CFE4F1802892EAEF7682F4E015A82
 ```bash
 magnet:?xt=urn:btih:045419C606F5CAF34587E32542D64097394812FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +672,8 @@ Abbe - Rainbows (1980) LP [MP3|320 Kbps] <Electronic, Disco>
 magnet:?xt=urn:btih:FF24A57AC7E69AED8BA72ED54B021BBF8D248B65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +700,8 @@ Cyndi Lauper - Twelve Deadly Cyns... And Then Some (1994) [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:D05E43065F45E9C4AEC16C4C59574A68BD2966B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +730,8 @@ CD 01:
 magnet:?xt=urn:btih:894853C671316E4626E170D8D4B25D6812E8D49D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,140 +759,7 @@ Kristy & Jimmy McNichol - Kristy & Jimmy McNichol (1978) LP [MP3|320 Kbps] <Elec
 magnet:?xt=urn:btih:C3C1B2841163644CF2E34A60E99A4B3343D172C1
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289887   (684324) от 17.03.2019
-
-David Cassidy - Rock Me Baby (1972) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684324.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Rock Me Baby 3:25
-A2. Lonely Too Long 3:19
-A3. Two Time Loser 3:15
-A4. Warm My Soul 2:54(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:217DBC4CF7260CDBB13199525345C80C9888C5C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289886   (684325) от 17.03.2019
-
-Orchester Anthony Ventura - Fantastic Dance Party (1978) LP [MP3|320 Kbps] <Pop, Disco, Easy Listening, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ha!Ha! Said The Clown / Peggy Sue (3:31)
-02. Rivers Of Babylon / Hang On Sloopy (4:58)
-03. Oh, Carol / Zusammenleben (4:09)
-04. Mr. Tambourine Man (3:07)(   Читать дальше...   )Жанр: Pop, Disco, Easy Listening, SchlagerПродолжительность: 00:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D705E2C937F13FFBBE9AC75F8712967ACD0534CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289740   (684330) от 17.03.2019
-
-VA - Let's Dance - Party Pur (2019) [FLAC|Lossless|WEB-DL|tracks] <Euro-dance, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fyah George - Chant
-02. DJ Jazzy James feat. Lara Gee - Where Is My Horse Gone (Funky Western Mix)
-03. Alex Zind - Calling Home
-04. MC Duro - Supergirl (Radio Edit)(   Читать дальше...   )Жанр: Euro-dance, PopПродолжительность: 02:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B72E5A27747B2752EC828E1AE1BC79FF5A7216
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289910   (684334) от 17.03.2019
-
-VA - Schlagerland - Das DJ Festival (2019) [MP3|320 Kbps] <Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684334.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Wolfgang Petry - Wo sind denn all die Helden (Stereoact Remix)
-02. Anna Maria Zimmermann - Himmelblaue Augen (Franz Rapid Mix)
-03. De Lancaster meets Bella Vista feat. Onkel J. - So wie im Film (United DJs Remix)(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD60D6006F3E38EF38F15BC6010BEAC71D73A63F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289837   (684337) от 17.03.2019
-
-VA - Ballermann Partyhits 2019 - Das Werden Die Hits Des Sommers (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684337.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Honk! - Joana
-02. Mia Julia - Nr. 1
-03. Tobee - Cordula Grün(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:05:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4DB3AA1D7581312325A3E7FF9D582741437306A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@ The Gunstringer – оригинальная игра, управление в �
 magnet:?xt=urn:btih:973FC320D1D68FFF502D157777FC544F125103D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ SPAGHETTI WESTERN SHOOTER - аркадный тир в котором, чтоб�
 magnet:?xt=urn:btih:D8AF1E79B572E3B10821BFD13B0CAF121A56D959
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Another Super Mario Bros. [Wii] [NTSC] [ENG,ESP,FRA] (2011)
 ```bash
 magnet:?xt=urn:btih:2A8672F2FBE53344F9345282D616F2C859B3D2D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:2A8672F2FBE53344F9345282D616F2C859B3D2D2
 magnet:?xt=urn:btih:36058A6485CDAE16AA93CA8CB141F1302713451B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Worms Ultimate Mayhem является совмещением двух друг�
 magnet:?xt=urn:btih:56340BB06D21E9238427138B30CE6EC7EEDC61E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:56340BB06D21E9238427138B30CE6EC7EEDC61E9
 ```bash
 magnet:?xt=urn:btih:1C1B0389F58C3C84F183FB4F02A4E7BADC97337D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:1C1B0389F58C3C84F183FB4F02A4E7BADC97337D
 magnet:?xt=urn:btih:74779B0599B73DEC875EA59FA1F06903A2DCE296
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ magnet:?xt=urn:btih:74779B0599B73DEC875EA59FA1F06903A2DCE296
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:74779B0599B73DEC875EA59FA1F06903A2DCE296
 ```bash
 magnet:?xt=urn:btih:D7BDB177BD00A218116353F5C7710CD20C567426
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:D7BDB177BD00A218116353F5C7710CD20C567426
 ```bash
 magnet:?xt=urn:btih:EDEFDAE0A952EC41912D9D72B14EE3E157DFDA75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +300,8 @@ magnet:?xt=urn:btih:EDEFDAE0A952EC41912D9D72B14EE3E157DFDA75
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:EDEFDAE0A952EC41912D9D72B14EE3E157DFDA75
 ```bash
 magnet:?xt=urn:btih:695B0241A1C7C369385F2EC8ABA15A2FA53FA619
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +359,8 @@ Forza Motorsport 4 Car Pack [Disk 2 / Rip] [PAL / RUSSOUND]
 magnet:?xt=urn:btih:360D123B9561C8DE11AD33B717AE9CD20972BAFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +390,8 @@ magnet:?xt=urn:btih:360D123B9561C8DE11AD33B717AE9CD20972BAFF
 magnet:?xt=urn:btih:D01580E09E50E106DE5B52BAE76CB400FDFB4501
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +419,8 @@ magnet:?xt=urn:btih:D01580E09E50E106DE5B52BAE76CB400FDFB4501
 magnet:?xt=urn:btih:92C3FB5E9AA50B51C238E28C885A02A624CEF1AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +447,8 @@ Mortal Kombat Armageddon Wii- невероятно жестокий и зрел�
 magnet:?xt=urn:btih:C4728587CAC4FDE7A6AA0D4865D0E396C9DCCAC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +472,8 @@ magnet:?xt=urn:btih:C4728587CAC4FDE7A6AA0D4865D0E396C9DCCAC3
 ```bash
 magnet:?xt=urn:btih:82BE5DE396778940D3FD5FBA4D51774D0722A540
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +500,8 @@ flOw является необычной игрой, в которой игро�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +527,8 @@ flOw является необычной игрой, в которой игро�
 ```bash
 magnet:?xt=urn:btih:AA693FEBDDF5E61C2C0CA7451FD94935D7C29623
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +557,8 @@ magnet:?xt=urn:btih:AA693FEBDDF5E61C2C0CA7451FD94935D7C29623
 magnet:?xt=urn:btih:6C006A54C42DE09D16B899AFF4913F08E08E326E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +583,8 @@ Harley Davidson: Road Trip - эксклюзив для консоли Wii. Ва�
 magnet:?xt=urn:btih:7D9FB242E9CFB8B2B0F280B20104BC36A220C157
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +608,8 @@ Fruit Ninja позволит вам вжиться в роль ниндзи-са
 ```bash
 magnet:?xt=urn:btih:529FE5A8F12641A0433F524D3598AC2E48203737
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +649,8 @@ Angry Birds — отличнейшая аркадная игра, в котор�
 magnet:?xt=urn:btih:A181BFC2C383279D5967A78C78357BAEF3ED1328
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +675,8 @@ SPRay - это захватывающая история о принце по и
 magnet:?xt=urn:btih:A40B19E3F421FFD39E67E0F41BAFFA4D0B70BCE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +700,8 @@ ATV Offroad Fury Blazin Trails - это гонки на квадроциклах
 ```bash
 magnet:?xt=urn:btih:80E738A6C123256DABC13B60E2D1B36F37732CBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -678,6 +728,8 @@ Surf's Up [XBOX360] [Ru] [GOD] [Freeboot] (2007)
 ```bash
 magnet:?xt=urn:btih:ECE687F47B51F2582A8B3FA465C972631600AE4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

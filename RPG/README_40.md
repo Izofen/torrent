@@ -19,6 +19,8 @@ Path of the Midnight Sun смешивает японскую ролевую иг
 magnet:?xt=urn:btih:DD219E6E8E857246CB74E0076939E9DC0BF7512C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Ys Origin (2012) [En] (2024-01-08) License GOG
 ```bash
 magnet:?xt=urn:btih:3D7EEAC22A39CC32777B7300F7B11FC48474935F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dragon Quest Treasures - ролевое приключение, в центре 
 magnet:?xt=urn:btih:D67FDCF4C7B5E3E21E8A3147FA8EFB443FAF44E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Space Rangers / Космические рейнджеры (2002) [Ru] (1.6) Repa
 ```bash
 magnet:?xt=urn:btih:08E511703BDDB255701E0EFFF46B19F810DBB420
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Above Snakes (2023) [Ru/Multi] (1.4.4/dlc) Repack Other s [Collectors Edition]
 magnet:?xt=urn:btih:D8E348050C19857A9768D8DB47EAA711D1556B3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Vagrus - The Riven Realms – ролевая игра с элементами с
 ```bash
 magnet:?xt=urn:btih:6DCAA5892C06DE16D1E5A69CA69B8CC7F6D874FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Fates of Ort - изометрическая ролевая игра с элем�
 magnet:?xt=urn:btih:34A53E4F812D75ACC13FFC7E6BF4FCD8466677E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Sea of Stars - динамичное ролевое приключение, ра�
 ```bash
 magnet:?xt=urn:btih:2F117431B9B2682F99E6B18A14C61793ECB2842E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Gray Zone (2022) [Ru/Multi] (1.12) Scene Tenoke
 magnet:?xt=urn:btih:23388584C03FF6B2B802CCA05A5ABA9D84E5A93F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Dragon Ball Z: Kakarot – долгожданное продолжение се�
 ```bash
 magnet:?xt=urn:btih:81E1415BF8A11CA066F423AE56AF485F972968B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Final Fantasy VII Rebirth (2025) [Ru/Multi] (1.003/dlc) Repack Wanterlude
 magnet:?xt=urn:btih:ECEC71C52B69813FD2AC8C2ABABA74AC82B3E196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Six Ages: Ride Like the Wind – текстовый квест с элемент
 ```bash
 magnet:?xt=urn:btih:F674623A266EEF20D67166120992DA9F36A97201
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Six Ages 2: Lights Going Out (2023) [En] (1.0.4) License GOG
 magnet:?xt=urn:btih:53DBA14881C16D56877450DF278B537D30C6BC17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Gone Rogue можно назвать иммерсивным симуляторо
 ```bash
 magnet:?xt=urn:btih:9B1742661E1EDE82EE6BA11A4A94F396ED6963AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Darkwood - это игра о выживании, исследовании и с
 magnet:?xt=urn:btih:CB987DCB3C402E5352D41C8430CA3FDCCB7F06CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Small Saga (2023) [En] (20231130) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:0100DD204C2960664A7DE89BF14BC39A59A93300
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Dungeons of Sundaria – ролевая кооперативная видеои�
 magnet:?xt=urn:btih:C7A19DD140061B0CA2D109FA307FC1E0ECB21A7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Merchant of the Six Kingdoms - это игра, которая позволяе�
 ```bash
 magnet:?xt=urn:btih:0F35E2C3E82224EF6CE86F02C0136BBE546D9D8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Dungeons of Sundaria – ролевая кооперативная видеои�
 magnet:?xt=urn:btih:8B4FAF28F875D2A8AD6AE72ED17E73C5F353F53D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Shadows Over Loathing - это приключенческая RPG в жанре 
 ```bash
 magnet:?xt=urn:btih:1E8234478073D5DA9C3A6AB73CDA6EAC47ECC9A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ You Will Die Here Tonight - ролевой экшен с пошаговыми э
 magnet:?xt=urn:btih:EE7A24D6DFC8D9C0135E91F7EE3834799582E552
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Trinity Fusion – это выполненный в 2.5D научно-фанта
 ```bash
 magnet:?xt=urn:btih:58D0AA660455A21606A6F1818B5E11F358D63A44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Asterigos: Curse of the Stars (2022) [Ru/Multi] (1.08rc1/dlc) License GOG
 magnet:?xt=urn:btih:5DB4AD1019302903FE052CAE67F2AD7236F86DAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Cygnus Enterprises (2023) [Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:6ED9C24D26E84D94F631F4F66CA0BF1A3CCE6713
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Legend of Keepers представляет собой хитроумную см�
 magnet:?xt=urn:btih:29E3E52C47EBD6CB78F87A0D05D1E193987F2362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Wo Long: Fallen Dynasty – это ролевой экшен от третьег
 ```bash
 magnet:?xt=urn:btih:B002BBB81B9ECC47DC74BF9EA8F35288A9A41049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Danheim - Domadagr (2021) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Nordic Folk,
 magnet:?xt=urn:btih:4B33AA09B8D90D50C07D90854B3939E54AC7EF39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Liam Bradbury - This Blue Planet (2017) [FLAC|Lossless|WEB-DL|tracks] <Easy List
 magnet:?xt=urn:btih:901CBE63079BF9F8E2EF205CC086461F9E59E3DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ Liam Bradbury - Piano Covers Vol. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Instru
 ```bash
 magnet:?xt=urn:btih:BCBC4AEA25AF3858D6F8A076F8D095820AE04500
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ magnet:?xt=urn:btih:BCBC4AEA25AF3858D6F8A076F8D095820AE04500
 magnet:?xt=urn:btih:AE851397AC72C5BEF0E12CA68C8617D3937AE8B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -132,6 +140,8 @@ magnet:?xt=urn:btih:AE851397AC72C5BEF0E12CA68C8617D3937AE8B7
 ```bash
 magnet:?xt=urn:btih:953DA6B7C89098FB2F3BE1F60D8480CBFD00DE7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +176,8 @@ Willie Nelson - The Very Best Of Willie Nelson (2008) [MP3|320 кб/с]<Country>
 magnet:?xt=urn:btih:8231BA27DF0AEA1947DB7D07B4CED57325FBFCF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +211,8 @@ VA - Celtic Spirit (2001) [MP3|320 кб/с]<New Age, Celtic Music, Ambient, Loun
 magnet:?xt=urn:btih:C10A0A42E50312BEB246EFFFA80775FEA5DBFC3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +236,8 @@ magnet:?xt=urn:btih:C10A0A42E50312BEB246EFFFA80775FEA5DBFC3A
 ```bash
 magnet:?xt=urn:btih:751BF11E08C2AE9B98C3B36E16DD244A742ADFC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +272,8 @@ Wardruna - Runaljod - gap var Ginnunga (2009) [FLAC|Lossless]<Neofolk / Ambient>
 magnet:?xt=urn:btih:36BA13DE3511E335529292B9DEE64571D6CBB2D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +306,8 @@ VA - Earthtone Collection Vol.1-3 (1998-2000) [MP3|320 кб/с]<New age, Relax>
 ```bash
 magnet:?xt=urn:btih:2055BF33637DBD3DB222EE5B2CCF665181D51004
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +342,8 @@ Nicole feat: Brulé - Passion Spirit (2001) [MP3|192 кб/с]<Native American, N
 magnet:?xt=urn:btih:1378A7B602606DB1ED3FEA9D8F9FBD079302D1DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +376,8 @@ VA - Drumming Planet (2003) [MP3|320 кб/с]<Ethnic, Folk, Worldbeat>
 ```bash
 magnet:?xt=urn:btih:1890E0AFC78126C2BA07606E018C193B3DAEC077
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +412,8 @@ Amanecer Ecuador - The Wolf Spirit (2008) [MP3|320 кб/с]<New age, Native amer
 magnet:?xt=urn:btih:C614B8EA6509652092E0D1F15106E9627E504758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +447,8 @@ The Corrs - Original Album Series (5CD Box Set) (2011) [MP3|320 кб/с]<Folk-ro
 magnet:?xt=urn:btih:C0AE39EC5745C30C5909FF8F880088DF4D7CA59E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +481,8 @@ Milho Khorhaya - Chants and Songs (2008) [MP3|125-224 кб/с]<Native American, 
 ```bash
 magnet:?xt=urn:btih:FE78C405C4BA3FE3D932EF67726DF48F82D8FBD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +518,8 @@ CHAVEneeZ - Great Spirit (2006) [FLAC|Lossless]<Native American Ethno, New Age>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +552,8 @@ VA - Sgt. Pepper's Lonely Heart Club Band - Original Sound track (1978) [APE|Los
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +588,8 @@ Mato Grosso - Native Indian's Music (2006) [MP3|320 кб/с]<Native American, Pa
 magnet:?xt=urn:btih:743D14347AD3E09C04738C19586263EAA04D521E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +620,8 @@ Dan Gibson's Solitudes - Forest Piano (1996) [APE|Lossless]<New Age, Nature Soun
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +654,8 @@ No-Man - 18 albums (1993-2012) [FLAC/APE|Lossless] <Progressive Rock, Ambient, A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +690,8 @@ VA - Diablo 3 (2012) [MP3|320 кб/с]<OST>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,6 +718,8 @@ Willie Nelson - Workin' Man (Willie Sings Merle) (2025) [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:AA3C8BB74A800A74453DA2E5FF364DCC310C330C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -704,6 +748,8 @@ CD1 - I.E.M. (1996): (00:38:38)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -738,6 +784,8 @@ VA - Rock Of Ages OST (2012) [MP3|320 кб/с]<Soundtrack>
 magnet:?xt=urn:btih:A4219DC9404055B394BF29B0A8741261A03A9CAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -765,6 +813,8 @@ Jon Richards - The Sacred Tree (2012) [FLAC|Lossless|image + .cue] <New Age>
 magnet:?xt=urn:btih:0279908A35900E11DEAFA800A62447A75E7065BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -791,6 +841,8 @@ VA - Mosaic - the Very Best New Age Music VA - Mosaic - the Very Best New Age Mu
 ```bash
 magnet:?xt=urn:btih:C76B7C44E9F56EA5BCB77ED0A265985383858483
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

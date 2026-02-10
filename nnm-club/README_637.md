@@ -19,6 +19,8 @@ The Siege and the Sandfox - это стелс-метроидвания в еди
 magnet:?xt=urn:btih:AF2108DD8E86D7D31A5866511299CC7595E1BFDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Directory Opus — альтернативный файловый менедже�
 magnet:?xt=urn:btih:28AF453FA2D7ADFA5344BF8C5A29E03AE67CB257
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ FxSound (ранее DFX Audio Enhancer) - отличное приложение,
 ```bash
 magnet:?xt=urn:btih:47643F04D88E69AAC81FBF499647C5954BEE0245
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:47643F04D88E69AAC81FBF499647C5954BEE0245
 magnet:?xt=urn:btih:F864CA08BFAC651E1642E4CBF9F34966DE19A005
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:F864CA08BFAC651E1642E4CBF9F34966DE19A005
 ```bash
 magnet:?xt=urn:btih:C693AEBB497E840A58155816D2C353445094ED36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:C693AEBB497E840A58155816D2C353445094ED36
 magnet:?xt=urn:btih:42FE776F47F31F8E72658ADF123274FE07A42D18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Terraforming Mars – официальная адаптация популярн
 ```bash
 magnet:?xt=urn:btih:B256A0452C7BDAF1BAB96FEA1745B48268F3D264
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ AOMEI Partition Assistant – мощная программа для работ�
 magnet:?xt=urn:btih:F396889FE9EFCF916766E55068358D697533D296
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.5.257/dlc) Repack FitGirl [D
 ```bash
 magnet:?xt=urn:btih:8D2EA46A0FCB0556992CF4B1C6D7F49A927E1CF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:8D2EA46A0FCB0556992CF4B1C6D7F49A927E1CF9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:8D2EA46A0FCB0556992CF4B1C6D7F49A927E1CF9
 ```bash
 magnet:?xt=urn:btih:2B84FCBAF230ADE35AB06D3C4501E074584F417C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Skelethrone: The Chronicles of Ericona (2024) [Ru/Multi] (1.5.5.0/dlc) Repack Le
 magnet:?xt=urn:btih:32920CBF2E10398A903E1EE290F1865896224E52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:32920CBF2E10398A903E1EE290F1865896224E52
 ```bash
 magnet:?xt=urn:btih:AD6C324082711E306267C1E2A98BAC785AE4DA98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Deliberalize - The Allure of Deceit (2025) [MP3|320 Kbps] <Death Metal>
 magnet:?xt=urn:btih:E0498FFAB6AE3B181D31016ECEE68BFCA1DF7538
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Disembodiment - Spiral Crypts (2025) [MP3|320 Kbps] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:2DC9BF797A2C0536BB816027670493748A1690EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ Slaughter to Prevail — российская дэткор-группа, осн�
 magnet:?xt=urn:btih:318497F6114A7D202D9D796F776F4AD04A8F687E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:318497F6114A7D202D9D796F776F4AD04A8F687E
 magnet:?xt=urn:btih:A9330EDFEB0BA37274282F1E933A85174FCA2A8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ Rain World (2017) [Ru/Multi] (1.10.4/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:55F91FE33132486F011BA18B0714EAA857365D62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ Democracy 4 (2020) [Ru/Multi] (1.67/dlc) License GOG
 magnet:?xt=urn:btih:5A7D8359B0E83FD0EA17447D576DFAA49DC520BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:5A7D8359B0E83FD0EA17447D576DFAA49DC520BE
 ```bash
 magnet:?xt=urn:btih:1E2AB72FE7E02BE0DF8F93D265D798550CF4BE74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ Zoria: Age of Shattering – тактическая групповая стра�
 magnet:?xt=urn:btih:9C71EDA01258EBB12FA1AF3A85C26B463E43AC81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ The Killing Antidote - шутер от третьего лица с элемен
 ```bash
 magnet:?xt=urn:btih:50378C03E3E89ECF28A2A41F2169BF71F63E8A04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ Fabled Lands - ролевое приключение в духе старой ш
 magnet:?xt=urn:btih:DE7FCC97DC0D566DF1D454289ECCE3FE13B6817B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:DE7FCC97DC0D566DF1D454289ECCE3FE13B6817B
 ```bash
 magnet:?xt=urn:btih:CCB5B8AD58C0F3C567719DDFF25E9870A5C0DE33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Peglin (2022) [Ru/Multi] (1.1.10) License GOG
 magnet:?xt=urn:btih:E5B8E795C0999A6F6B0DE478DDE89F31A2C87D72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:E5B8E795C0999A6F6B0DE478DDE89F31A2C87D72
 ```bash
 magnet:?xt=urn:btih:28173B62123F529D514DC8838A613B7DE68BA022
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

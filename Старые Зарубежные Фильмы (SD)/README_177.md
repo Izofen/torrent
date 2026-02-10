@@ -1,27 +1,3 @@
-###  Публикация: 1523104   (753382) от 10.01.2022
-
-Золотые копи / Гора Сапог / La Collina degli stivali / Boot Hill (1969) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дикий Запад. Времена золотой лихорадки. Банда Финча, нанятая крупными владельцами приисков, гоняется за мелкими золотоискателями, отстреливая их по одному и отбирая их наделы. Но однажды они сталкиваются с крутым парнем, не желающим просто так отдавать свою землю...Производство: Италия, B.R.C. Produzione S.r.l., Cronocinematografica S.p.a., San MarcoЖанр: комедия, вестернРежиссер: Джузеппе КолицциАктеры: Теренс Хилл, Бад Спенсер, Вуди Строуд, Эдуардо Чианнелли, Джордж Истмен, Глауко Онорато, Альберто Дэлль’Акква, Наццарено Дзамперла, Виктор Буоно, Лайонел СтэндерПеревод: любительский одноголосыйСубтитры: английскиеПродолжительность: 01:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E637C5ACC769134564E9CC3617B3FDE6D99C29D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523230   (753515) от 10.01.2022
 
 Сердце скряги / The Miser's Heart (1911) DVDRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:5E637C5ACC769134564E9CC3617B3FDE6D99C29D
 ```bash
 magnet:?xt=urn:btih:B3F0270327AFF2CB2689EE507F17588E55640454
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +48,8 @@ magnet:?xt=urn:btih:B3F0270327AFF2CB2689EE507F17588E55640454
 magnet:?xt=urn:btih:7BA50DC60352FA5C52E0080D6B12E6408BBD4141
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +73,8 @@ magnet:?xt=urn:btih:7BA50DC60352FA5C52E0080D6B12E6408BBD4141
 ```bash
 magnet:?xt=urn:btih:03D9AB182DE13CC23D66A80BFB0AE23A21B1E24F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +100,8 @@ magnet:?xt=urn:btih:03D9AB182DE13CC23D66A80BFB0AE23A21B1E24F
 magnet:?xt=urn:btih:8D40EABEB36351E931C5BC9B9443060671352FD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +125,8 @@ magnet:?xt=urn:btih:8D40EABEB36351E931C5BC9B9443060671352FD0
 ```bash
 magnet:?xt=urn:btih:BCEF3228A81114EE319FD10DD63F248FFCCE0E5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +152,8 @@ magnet:?xt=urn:btih:BCEF3228A81114EE319FD10DD63F248FFCCE0E5B
 ```bash
 magnet:?xt=urn:btih:FAC1C133149621B4ED12D4CC7DA38885A63A0EDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +182,8 @@ magnet:?xt=urn:btih:FAC1C133149621B4ED12D4CC7DA38885A63A0EDF
 magnet:?xt=urn:btih:CAE6F895B27807C71FCD1E230BF963AA584A02D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +207,8 @@ magnet:?xt=urn:btih:CAE6F895B27807C71FCD1E230BF963AA584A02D6
 ```bash
 magnet:?xt=urn:btih:B10C1426962B3A8AAB246985738107593A0C4B11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +234,8 @@ magnet:?xt=urn:btih:B10C1426962B3A8AAB246985738107593A0C4B11
 magnet:?xt=urn:btih:5F14E45868116FF239463AE4A9CB567E9EE047E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +259,8 @@ magnet:?xt=urn:btih:5F14E45868116FF239463AE4A9CB567E9EE047E2
 ```bash
 magnet:?xt=urn:btih:8C2D46865F7A580C358AEE380BED141491EECD8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +286,8 @@ magnet:?xt=urn:btih:8C2D46865F7A580C358AEE380BED141491EECD8A
 magnet:?xt=urn:btih:952F7E788FE4D66DE2934E8D1383A3B9036CBCC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +311,8 @@ magnet:?xt=urn:btih:952F7E788FE4D66DE2934E8D1383A3B9036CBCC9
 ```bash
 magnet:?xt=urn:btih:4629F7FD3C07C3E29B18BDE912D7C872059B1F6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +338,8 @@ magnet:?xt=urn:btih:4629F7FD3C07C3E29B18BDE912D7C872059B1F6D
 magnet:?xt=urn:btih:07DB6AC159A436952E568B4F85B0511840D0B79E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +364,8 @@ magnet:?xt=urn:btih:07DB6AC159A436952E568B4F85B0511840D0B79E
 magnet:?xt=urn:btih:DE5EAB3CE4BB95310747658F1F985909464A1655
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +389,8 @@ magnet:?xt=urn:btih:DE5EAB3CE4BB95310747658F1F985909464A1655
 ```bash
 magnet:?xt=urn:btih:959EC966E09957FE97E6BDB9A922D46A11F2B229
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +419,8 @@ magnet:?xt=urn:btih:959EC966E09957FE97E6BDB9A922D46A11F2B229
 magnet:?xt=urn:btih:289C4406359A11D05C31FF8AD31ADDDD9642D8E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +444,8 @@ magnet:?xt=urn:btih:289C4406359A11D05C31FF8AD31ADDDD9642D8E9
 ```bash
 magnet:?xt=urn:btih:8C86C9897DCEC8FF7C015690D39A8082155172DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +471,8 @@ magnet:?xt=urn:btih:8C86C9897DCEC8FF7C015690D39A8082155172DA
 magnet:?xt=urn:btih:89C01F31BF160C247D8DD372A09C3A74048AD8AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +497,8 @@ magnet:?xt=urn:btih:89C01F31BF160C247D8DD372A09C3A74048AD8AD
 magnet:?xt=urn:btih:688C3FF2AF5B15865E40008412A41F316841600A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +522,8 @@ magnet:?xt=urn:btih:688C3FF2AF5B15865E40008412A41F316841600A
 ```bash
 magnet:?xt=urn:btih:16D717281B3FDE1208918ABCDE8425BCC1C87727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +550,8 @@ magnet:?xt=urn:btih:16D717281B3FDE1208918ABCDE8425BCC1C87727
 magnet:?xt=urn:btih:7EC3C4A87F7E92E3AB00A62398C433AC67B013A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +575,8 @@ magnet:?xt=urn:btih:7EC3C4A87F7E92E3AB00A62398C433AC67B013A9
 ```bash
 magnet:?xt=urn:btih:F216FF62E686556EC5586FB0466ACA9C8BBB0B38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +605,8 @@ magnet:?xt=urn:btih:F216FF62E686556EC5586FB0466ACA9C8BBB0B38
 magnet:?xt=urn:btih:CC79331784DF4706615D5F8CA212A26F4B3E2BCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +631,8 @@ magnet:?xt=urn:btih:CC79331784DF4706615D5F8CA212A26F4B3E2BCE
 magnet:?xt=urn:btih:BC1D41F84CBF118AB9E264AF7C9DD6F5D096CED8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +656,35 @@ magnet:?xt=urn:btih:BC1D41F84CBF118AB9E264AF7C9DD6F5D096CED8
 ```bash
 magnet:?xt=urn:btih:F81B2CBE98B0A8FE121A48BB94A26428A233576D
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018053   (758957) от 18.05.2016
+
+Декамерон / The Decameron / Il Decameron (1970) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по мотивам сборника новелл Джованни Боккаччо «Декамерон» (Decamerone di Giovanni Boccaccio. Cognominato Principe Galeotto, 1351-1353).
+Художник Джотто странствует по дорогам Италии эпохи зарождающегося Ренессанса в поисках гармонии и истины. Джотто становится свидетелем самых разных жизненных историй и жадно вбирает в себя во впечатления от изменяющейся, (   Читать дальше...   )Производство: Италия, Франция, Германия (ФРГ) / Artemis Film, Les Productions Artistes Associés, Produzioni Europee Associati (PEA)Жанр: драма, мелодрама, комедия, история, экранизацияРежиссер: Пьер Паоло ПазолиниАктеры: Франко Читти, Нинетто Даволи, Йован Йованович, Винченцо Амато, Анджела Луче, Джузеппе Дзигайна, Мария Габриэлла Майон, Винченцо Кристо, Пьер Паоло Пазолини, Джорджо ИовинеПеревод: Профессиональный многоголосый (Кармен Видео)Язык субтитров: Русский, английскийПродолжительность: 01:51:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AADFEFB013547A3EF8BF9196C5E700198BBE3EEE
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

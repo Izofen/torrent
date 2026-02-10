@@ -1,3 +1,30 @@
+###  Публикация: 1298902   (601548) от 29.04.2019
+
+Дейл Карнеги | Как найти выход из любой конфликтной ситуации (2017) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601548.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматривается природа конфликтов и способы их разрешения. Вы узнаете, как выявить источник конфликта, урегулировать конфликт, сохранив при этом отношения, научиться смотреть на вещи глазами других людей, создать атмосферу взаимного доверия и прийти к взаимному согласию.
+Для широкого круга читателей.Жанр: ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B422F0432993F21D9221DFB66EEDE16F990DAC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298888   (601572) от 29.04.2019
 
 Д. Одинцов | Готовим: плов, манты, самса, шурпа, долма (2012) [PDF]
@@ -19,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:DF9E8D22BE63045B715E660730CFB97BA4E5CB82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@ magnet:?xt=urn:btih:DF9E8D22BE63045B715E660730CFB97BA4E5CB82
 magnet:?xt=urn:btih:F87BFDCB60A915219F84B171F44E6372A929B394
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:F87BFDCB60A915219F84B171F44E6372A929B394
 magnet:?xt=urn:btih:B8BDBF582B153BE2E179BC89F772395DB09BDD0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:B8BDBF582B153BE2E179BC89F772395DB09BDD0A
 ```bash
 magnet:?xt=urn:btih:90A7249EE53B5F7E2936E5392D9CD9F23485CD64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +152,8 @@ magnet:?xt=urn:btih:90A7249EE53B5F7E2936E5392D9CD9F23485CD64
 magnet:?xt=urn:btih:073B149CEE32E780D80DE0C8D501BB008670FB63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +177,8 @@ magnet:?xt=urn:btih:073B149CEE32E780D80DE0C8D501BB008670FB63
 ```bash
 magnet:?xt=urn:btih:2BC04267B9EF6CEFDE41D36B18AF13709D40260D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +205,8 @@ magnet:?xt=urn:btih:2BC04267B9EF6CEFDE41D36B18AF13709D40260D
 magnet:?xt=urn:btih:B493091FD4EB2A9CDD4EE3E6DB16C378F366E4EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +230,8 @@ magnet:?xt=urn:btih:B493091FD4EB2A9CDD4EE3E6DB16C378F366E4EC
 ```bash
 magnet:?xt=urn:btih:45B7F134444CFABD668301280B209C23B32D38AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:45B7F134444CFABD668301280B209C23B32D38AD
 magnet:?xt=urn:btih:668BF834352150D3F28E185672809EDF4F3762A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ magnet:?xt=urn:btih:668BF834352150D3F28E185672809EDF4F3762A2
 ```bash
 magnet:?xt=urn:btih:BD690D63AC7EB50E7B5A6A87C5DF11FF73D05E87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +309,8 @@ magnet:?xt=urn:btih:BD690D63AC7EB50E7B5A6A87C5DF11FF73D05E87
 magnet:?xt=urn:btih:927738F4E8D9647738B24C1AD764579D498EAAF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +334,8 @@ magnet:?xt=urn:btih:927738F4E8D9647738B24C1AD764579D498EAAF1
 ```bash
 magnet:?xt=urn:btih:7D2F240DB4555C3E18273AA9064ADF69FF05FFD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +363,8 @@ magnet:?xt=urn:btih:7D2F240DB4555C3E18273AA9064ADF69FF05FFD8
 magnet:?xt=urn:btih:991201108C197ECAED5EC8822FB5C8913E23520A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +388,8 @@ magnet:?xt=urn:btih:991201108C197ECAED5EC8822FB5C8913E23520A
 ```bash
 magnet:?xt=urn:btih:43BF799C12C488D20AD5A45884E04A8C6D9718FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +417,8 @@ magnet:?xt=urn:btih:43BF799C12C488D20AD5A45884E04A8C6D9718FB
 magnet:?xt=urn:btih:280A9B35BC09EDC2398110838EDA29C143E36E9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +442,8 @@ magnet:?xt=urn:btih:280A9B35BC09EDC2398110838EDA29C143E36E9C
 ```bash
 magnet:?xt=urn:btih:6AD48B7CDCA790A2EFD93E2EE3857002F1EF311B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +471,8 @@ magnet:?xt=urn:btih:6AD48B7CDCA790A2EFD93E2EE3857002F1EF311B
 magnet:?xt=urn:btih:032F006532EDCB1395F88FF5B1F57BAF824D2FA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +497,8 @@ magnet:?xt=urn:btih:032F006532EDCB1395F88FF5B1F57BAF824D2FA7
 magnet:?xt=urn:btih:4669000961B0C2D3E6F96EB3467CA845743DA3DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +522,8 @@ magnet:?xt=urn:btih:4669000961B0C2D3E6F96EB3467CA845743DA3DA
 ```bash
 magnet:?xt=urn:btih:5397F7A222AE8D695EC59B9F97D62211EE3D3F30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +550,8 @@ magnet:?xt=urn:btih:5397F7A222AE8D695EC59B9F97D62211EE3D3F30
 magnet:?xt=urn:btih:FE9C0464F0EEBD5BE69A2A4C72771601AB7C20BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +575,8 @@ magnet:?xt=urn:btih:FE9C0464F0EEBD5BE69A2A4C72771601AB7C20BE
 ```bash
 magnet:?xt=urn:btih:248274E83ED4E896FA3873346D3768F9F7103F7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +602,8 @@ magnet:?xt=urn:btih:248274E83ED4E896FA3873346D3768F9F7103F7B
 magnet:?xt=urn:btih:A5EE6A5F7F4E073268BC52997170503F33376527
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +627,8 @@ magnet:?xt=urn:btih:A5EE6A5F7F4E073268BC52997170503F33376527
 ```bash
 magnet:?xt=urn:btih:C2282ECBBE06CBA95D48175245A2A328486651B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +654,8 @@ magnet:?xt=urn:btih:C2282ECBBE06CBA95D48175245A2A328486651B4
 magnet:?xt=urn:btih:6CF9B9D522205923A8F36A8078A1BA983A358F3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,29 +680,7 @@ magnet:?xt=urn:btih:6CF9B9D522205923A8F36A8078A1BA983A358F3E
 magnet:?xt=urn:btih:C11EB854F979F866B12FB607EF3611182177BD7C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148715   (602927) от 08.07.2017
-
-Имам Мухйи-д-дин Абу Закарийа бин Шараф ад-Димашки аш-Шафии ан-Навави | Поминания Аллаха - Аль-Азкар [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наилучшее состояние раба — когда он поминает своего Господа. Сказано Всевышним: «Поминайте Меня, и Я буду помнить о вас».Мусульманские ученые, понимая важность зикра, составили множество сборников мольб и поминаний, но наибольшее признание среди мусульман получила книга имама ан-Навави «Аль-Азкар» («Поминания Аллаха»). Среди арабов и по сей день существует поговорка (   Читать дальше...   )Жанр: ИсламФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62780AC0A142847CA36F1760CF83377CA3BF10B6
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

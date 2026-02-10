@@ -1,3 +1,29 @@
+###  Публикация: 1046349   (553119) от 26.08.2016
+
+Человек и закон (26.08.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крым, лето, диверсанты. Кто организовал, чего добились и каким был сценарий терактов. Сценарий несбывшихся трагедий. Хотя жертвы все равно были. Медали вопреки. Больше, чем могли. Победители, проигравшие, отсутствующие. Сложная Олимпиада, сложные судьбы. Герои не в отпуске. Те, кто не прошел мимо. В обычной жизни побил все рекорды: добежал, доплыл, поймал. Вторая (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТелепередачаПродолжительность: 00:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E484CD9303DD14A2AC5F70BEE6849E34D723A8BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046369   (553122) от 26.08.2016
 
 Большинство. РИО-2016; Победа или поражение? (26.08.2016) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:3D3CC695F9889B14F068A1E5D43E5E73EA3EB87C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:3D3CC695F9889B14F068A1E5D43E5E73EA3EB87C
 magnet:?xt=urn:btih:5FE142B0B81AC2E9337E24217F22418D51A8F015
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:5FE142B0B81AC2E9337E24217F22418D51A8F015
 ```bash
 magnet:?xt=urn:btih:1A299F5858BA09BFED72631DED55D61C2ED66C69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:1A299F5858BA09BFED72631DED55D61C2ED66C69
 magnet:?xt=urn:btih:4AABFF7AF3798D84110520855E55996B885E494B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:4AABFF7AF3798D84110520855E55996B885E494B
 ```bash
 magnet:?xt=urn:btih:9B31D5F9FF39BB7865ECAB20128A6533F2F21E63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:9B31D5F9FF39BB7865ECAB20128A6533F2F21E63
 magnet:?xt=urn:btih:58F39F7AED4161FC7A432B2ECC823892296253DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:58F39F7AED4161FC7A432B2ECC823892296253DF
 ```bash
 magnet:?xt=urn:btih:D7C99E02D30921937EC8B889C0FC6D7129B47F49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:D7C99E02D30921937EC8B889C0FC6D7129B47F49
 magnet:?xt=urn:btih:8FC74355FF251E7F4B5CDD02C8973C0CF99196F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:8FC74355FF251E7F4B5CDD02C8973C0CF99196F2
 ```bash
 magnet:?xt=urn:btih:B7DBBD32DD7056D34B224964C85C89305BAD3163
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:B7DBBD32DD7056D34B224964C85C89305BAD3163
 magnet:?xt=urn:btih:5F8636E7ED515AEF37F7B2E2D73F2CB7F143A1EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:5F8636E7ED515AEF37F7B2E2D73F2CB7F143A1EC
 ```bash
 magnet:?xt=urn:btih:D09184CECE5CEEFE073DBE086E1DB65F82CB6F46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:D09184CECE5CEEFE073DBE086E1DB65F82CB6F46
 magnet:?xt=urn:btih:25DD3F615544A42B5A2E807668D7494BA7837622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:25DD3F615544A42B5A2E807668D7494BA7837622
 magnet:?xt=urn:btih:566781AA7A200A29F89B4F6450DFE875824B49B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:566781AA7A200A29F89B4F6450DFE875824B49B1
 ```bash
 magnet:?xt=urn:btih:0E654E55C805ABE43FE7D85243E4C8D8BE7F5981
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +412,8 @@ National Geographic. Правда о зомби / The Truth Behind Zombies (2010
 magnet:?xt=urn:btih:00519D3EBA1C191071F99A07ACA5D694FA1CF6D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:00519D3EBA1C191071F99A07ACA5D694FA1CF6D5
 ```bash
 magnet:?xt=urn:btih:0D33C1C27E04691D91DE787BFD3909A3B3341D29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:0D33C1C27E04691D91DE787BFD3909A3B3341D29
 magnet:?xt=urn:btih:41AA03A0D4B4E99A9696CB6DD73644AD950C6B4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:41AA03A0D4B4E99A9696CB6DD73644AD950C6B4B
 ```bash
 magnet:?xt=urn:btih:CBDFDFA193E376CB136FFEB5612CA9DDFF13B721
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:CBDFDFA193E376CB136FFEB5612CA9DDFF13B721
 magnet:?xt=urn:btih:ADDF4AE0FAD7F17B9735BE08331E6B317D792387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:ADDF4AE0FAD7F17B9735BE08331E6B317D792387
 ```bash
 magnet:?xt=urn:btih:94370366365EC0B271DF30C5959CF31B11498A6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:94370366365EC0B271DF30C5959CF31B11498A6F
 magnet:?xt=urn:btih:E7EF93E0EF55418F45A04E790B79230519DAE755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:E7EF93E0EF55418F45A04E790B79230519DAE755
 ```bash
 magnet:?xt=urn:btih:3A1A762EA6025E41AD06B6448040DBD24DB660CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:3A1A762EA6025E41AD06B6448040DBD24DB660CB
 magnet:?xt=urn:btih:73C1880AE5C31E68F3DFE58EFBEEBD07B05913B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:73C1880AE5C31E68F3DFE58EFBEEBD07B05913B3
 ```bash
 magnet:?xt=urn:btih:A73C97799D20881FC6B4CE0B057BC761908841C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:A73C97799D20881FC6B4CE0B057BC761908841C4
 magnet:?xt=urn:btih:CD6FCFE1BCFB83DD35B1EBDB286F684D140DB6DB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236436   (554411) от 17.07.2018
-
-Тайна Ипатьевского подвала. Предательство Европы (2018) DVB [H.264/1080i-LQ]
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ганина Яма – так называют в народе лес в двадцати с лишним километрах от Екатеринбурга. Когда-то здесь было 30 шахт, в которых добывали руду для Верх-Исетского завода. Здесь же в июле 1918 года с помощью огня, керосина и серной кислоты были уничтожены тела последнего российского императора Николая II, его жены, детей и последних верных поданных. Даже через 100 лет (   Читать дальше...   )Телекомпания: Россия / ООО "Град"Жанр: Документальный, История, БиографияСубтитры: отсутствуютПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29D62E932CAF3D0DB8BC002C56A5BD46F4EE8A6B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

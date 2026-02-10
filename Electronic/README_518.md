@@ -22,6 +22,8 @@ CD1
 magnet:?xt=urn:btih:AAB3903ADAB1BB49629967E944F5210B874BCBCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Ambient Lounge 14 (2012) Globe [FLAC|Lossless|tracks+.cue] <Downtempo, Trip
 ```bash
 magnet:?xt=urn:btih:B434985AC99BF374A528052825109943A94D5DD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Ambient Lounge 16 (2013) Globe [FLAC|Lossless|tracks+.cue] <Downtempo, Trip
 magnet:?xt=urn:btih:158E3D0D880D5097C4A3199E0CF9FA57541C945A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ VA - Ambient Lounge 15 (2012) Globe [FLAC|Lossless|tracks+.cue] <Downtempo, Trip
 magnet:?xt=urn:btih:458113C1F424EA18588DDF0531FB4A1BABC5A36C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ Maduk - Go Home (2019) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:A627529CBAFCDD6637AF0CB88E57329B3E5FB285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ VA - Yossi Amoyal Presents Fluere II (2020) Sushitech Records [FLAC|Lossless|tra
 magnet:?xt=urn:btih:33DF84EF6D6B7E7825A8B6C4D9932F0AD21BCCA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ Memro - Colony (2013) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:6FBEBBFF35C407DFCC86B94EC57E3D558318E669
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ VA - Yossi Amoyal Presents Fluere IV (2020) Sushitech Records [FLAC|Lossless|tra
 magnet:?xt=urn:btih:CF430AB01E4CD668469BD0680872B7B27D931311
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ Owl City - Coco Moon (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electronic,
 ```bash
 magnet:?xt=urn:btih:50B6B2FC96DC86E3E697378281041FD74B0E954A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ VA - Lounge & Coffee, Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill
 magnet:?xt=urn:btih:6631048DA2F769F553A4152A203CDABE6FF0D7C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ VA - Raz Nitzan - 30 Vocal Trance Hits (2023) [MP3|320 Kbps] <Trance, Vocal Tran
 ```bash
 magnet:?xt=urn:btih:677CDDACD82347EA97526C9FCF85C8CEB4A037EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +338,8 @@ Beborn Beton - Darkness Falls Again (2023) Deluxe Edition [MP3|320 Kbps] <Synthp
 magnet:?xt=urn:btih:16BE90A226DF9DEB61B68D69DAD19A9C737495A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ Fever Ray - Radical Romantics (2023) [FLAC|Lossless|tracks + .cue] <Synth Pop, E
 ```bash
 magnet:?xt=urn:btih:E7205251B366FF01E6C1BFBBF21503E89FE6B0DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ Special Request - Discography 24 Releases (2013-2021) Houndstooth [FLAC|Lossless
 magnet:?xt=urn:btih:A4982A6F4D24CC96BF335AEF3DC04D4673405C53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ VA - Dream Cafe (Chill Out Classics) (2004) Sony Music Media [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:0A85CDBEEB5002C0CFE95F011C67B719D367D109
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ VA - Black Hole Trance Music 02-21 (2021) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:EC791D2252BF86099E176D1C4F4D0942408D87BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +483,8 @@ VA - Global Trance Masters Vol.2 (2021) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:9745F55E5364F3FD3726F7D73ADEDF9EA312D92E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +508,8 @@ AK & Dario Lessing - All You Need Is Time (2021) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:ECA553A3FA9623D070E791AB29814805337B1996
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +538,8 @@ VA - Global Trance Masters Vol.1 (2021) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:4D39C7862D00BBF2E643A59C144364A9BF48D649
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +566,8 @@ VA - The World Series Of Trance Vol.1 (2021) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:B390EB7D3A9E365BE5068240001D66E2DF678A8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +596,8 @@ LAU - Believer (Deluxe Album) (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Sy
 magnet:?xt=urn:btih:4A134E499D61CA20DDFC49A18C5A571DB36C8B94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +624,8 @@ VA - Aly & Fila - FSOE Top 20: February (2021) [MP3|320 Kbps] <Trance, Uplifting
 ```bash
 magnet:?xt=urn:btih:BEE81BEF205265F2D0D1D27B9158416280226AC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +654,8 @@ VA - Remixes EP (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 magnet:?xt=urn:btih:A4EC79D85C692E68CD029E71DF92F85152EFE156
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +682,8 @@ Blank & Jones - Get Down (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downte
 ```bash
 magnet:?xt=urn:btih:92446583B8335F0DAE6C233681C4235207462E6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +712,8 @@ Aphex Twin (AFX, Caustic Window, GAK, Bradley Strider, Mike & Rich, Polygon Wind
 magnet:?xt=urn:btih:0464C9EF7FBA2C3F11AA798F184C548F7D81BBCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +740,8 @@ Michael Belletz (Mnemonic, The Last Gambit, Architrav, L.iet & Kurt Bogenholtz) 
 ```bash
 magnet:?xt=urn:btih:F71E2B84E73A7AD456F2E12D6E82C674BF98A3F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

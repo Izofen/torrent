@@ -1,3 +1,31 @@
+###  Публикация: 1503066   (822569) от 17.10.2021
+
+Артем Каменистый | Альфа-Ноль (Книга 4). Чужая территория (2021) [MP3, Игорь Ященко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хочешь, чтобы алмаз стал бриллиантом? Значит надо его огранить. Вот и пришлось искать «огранщика», а так как я «алмаз непростой», то и мастер мне требуется особый.
+
+Тот, который способен справиться с такой задачей, всем хорош, но, увы, не без минусов. Обитает он на высокой горе, и гостей встречает своеобразно. Простолюдин ты или сын префекта – ему без разницы. И (   Читать дальше...   )Жанр: LitRPG, боевое фэнтези, героическое фэнтезиПродолжительность: 12:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:734734BE783D08130FAAEEAD7B4DAD2D4607E3C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116641   (822607) от 20.03.2017
 
 Игорь Пронин | Наполеон-2. Стать Богом (2017) [MP3]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:F0AC78A8A7195E2F91E60AA3F44DFF90494F2188
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +75,8 @@ magnet:?xt=urn:btih:F0AC78A8A7195E2F91E60AA3F44DFF90494F2188
 magnet:?xt=urn:btih:6C568398DF7A7DC46C74AF70361EBBF1358C1445
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +100,8 @@ magnet:?xt=urn:btih:6C568398DF7A7DC46C74AF70361EBBF1358C1445
 ```bash
 magnet:?xt=urn:btih:08619597E6BBC6199A429E7E07A0F77E69BC4F8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +127,8 @@ magnet:?xt=urn:btih:08619597E6BBC6199A429E7E07A0F77E69BC4F8D
 ```bash
 magnet:?xt=urn:btih:47F435423371D9D97513B33C6CA85B63AED8762C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +157,8 @@ magnet:?xt=urn:btih:47F435423371D9D97513B33C6CA85B63AED8762C
 magnet:?xt=urn:btih:59A21F2C84CE18CA849341F49C8CF06D6AD7C3C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +184,8 @@ magnet:?xt=urn:btih:59A21F2C84CE18CA849341F49C8CF06D6AD7C3C2
 ```bash
 magnet:?xt=urn:btih:18D5C1CAC245D0B2565F51CBAD22126247518194
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +213,8 @@ magnet:?xt=urn:btih:18D5C1CAC245D0B2565F51CBAD22126247518194
 magnet:?xt=urn:btih:3CCFBE5D0401160218AEB6F330A0ABBEB2A495D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +239,8 @@ magnet:?xt=urn:btih:3CCFBE5D0401160218AEB6F330A0ABBEB2A495D9
 magnet:?xt=urn:btih:237E380766C11B2EC08E9CF0B67B66FDA2AC9DDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +264,8 @@ magnet:?xt=urn:btih:237E380766C11B2EC08E9CF0B67B66FDA2AC9DDA
 ```bash
 magnet:?xt=urn:btih:79B1D188C5811812EF1A5FF7D43BAA61323C0F55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +293,8 @@ magnet:?xt=urn:btih:79B1D188C5811812EF1A5FF7D43BAA61323C0F55
 magnet:?xt=urn:btih:A0AE6B60B8892905B6A938F1D87ADF4857F54B6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +321,8 @@ magnet:?xt=urn:btih:A0AE6B60B8892905B6A938F1D87ADF4857F54B6D
 magnet:?xt=urn:btih:E18591E6AF78EFC10A2553EA97010592B3B5D81E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +346,8 @@ magnet:?xt=urn:btih:E18591E6AF78EFC10A2553EA97010592B3B5D81E
 ```bash
 magnet:?xt=urn:btih:4CAA4C5670CF28DDC64F0F7A42D3BD135826D09F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +373,8 @@ magnet:?xt=urn:btih:4CAA4C5670CF28DDC64F0F7A42D3BD135826D09F
 magnet:?xt=urn:btih:E09697291DB174EB67491692EED75F651AB74BFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +398,8 @@ magnet:?xt=urn:btih:E09697291DB174EB67491692EED75F651AB74BFA
 ```bash
 magnet:?xt=urn:btih:B1419916A8D3EE8189B75FEE41C83FA81E570FDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +426,8 @@ magnet:?xt=urn:btih:B1419916A8D3EE8189B75FEE41C83FA81E570FDC
 magnet:?xt=urn:btih:794C477C160A06987672CDDBD59EB395D301C028
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +452,8 @@ magnet:?xt=urn:btih:794C477C160A06987672CDDBD59EB395D301C028
 magnet:?xt=urn:btih:2D3BB972E586007B338BD6C859E622FB21F1D945
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +477,8 @@ magnet:?xt=urn:btih:2D3BB972E586007B338BD6C859E622FB21F1D945
 ```bash
 magnet:?xt=urn:btih:F3E356BF11EEA7C13AFB61AC475225C8CEACCDB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +505,8 @@ magnet:?xt=urn:btih:F3E356BF11EEA7C13AFB61AC475225C8CEACCDB5
 magnet:?xt=urn:btih:2842FC8AAF4B2C4763987FE42FF0503AC226FEFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +532,8 @@ magnet:?xt=urn:btih:2842FC8AAF4B2C4763987FE42FF0503AC226FEFA
 magnet:?xt=urn:btih:706113D00960E2C1CB60DBD8840171D796B9FE66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +557,8 @@ magnet:?xt=urn:btih:706113D00960E2C1CB60DBD8840171D796B9FE66
 ```bash
 magnet:?xt=urn:btih:AE363F54B6156DC8E47A3D1564F212A1C208B7AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +584,8 @@ magnet:?xt=urn:btih:AE363F54B6156DC8E47A3D1564F212A1C208B7AA
 magnet:?xt=urn:btih:60B237C27B0541287F0902EF90F7F31E664C9524
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +609,8 @@ magnet:?xt=urn:btih:60B237C27B0541287F0902EF90F7F31E664C9524
 ```bash
 magnet:?xt=urn:btih:A7C9DE886C12ADF89E47B387C663D4FFA91A879C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +636,8 @@ magnet:?xt=urn:btih:A7C9DE886C12ADF89E47B387C663D4FFA91A879C
 magnet:?xt=urn:btih:9A4C5718825A959AB2645C57A920BAE34EFB71ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +661,8 @@ magnet:?xt=urn:btih:9A4C5718825A959AB2645C57A920BAE34EFB71ED
 ```bash
 magnet:?xt=urn:btih:F6708CCB76DE3F7864374E2E90F4217C185D5A01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,29 +688,7 @@ magnet:?xt=urn:btih:F6708CCB76DE3F7864374E2E90F4217C185D5A01
 magnet:?xt=urn:btih:3C1046196D05AAFB03FBDF3B0DF807B731EC00B0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381659   (824472) от 08.05.2020
-
-Алекс Орлов | Золотой пленник (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Питер Фонтен, племянник богатого купца, мечтает избавиться от дядиной опеки. Пока он учится, чтобы продолжить торговые традиции, но видит себя героем и путешественником. Ему семнадцать лет и он отправляется с торговым караваном, чтобы постичь тонкости торгового ремесла, однако его судьбу изменяет встреча с бандой головорезов – бой на дороге, плен и рабство. Перепродажа (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтезиПродолжительность: 11:33:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1552B5FB24E207E326FC8A9B8CA54F285CFF90E5
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

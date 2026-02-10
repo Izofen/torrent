@@ -1,3 +1,30 @@
+###  Публикация: 1292632   (642809) от 31.03.2019
+
+Венди Бернард | Японское вязание на спицах (2019) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Японские узоры сейчас на волне популярности среди вязальщиц во всем мире. Но есть одно «но»: насколько они привлекательны, настолько же и сложны! С изящной японской схемой справится не всякая мастерица, а начинающие и вовсе теряются при виде сложных и незнакомых обозначений на схемах.
+Эта инновационная книга дает вязальщицам самого разного уровня ключ к чтению японских (   Читать дальше...   )Жанр: Домоводство, рукоделиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB39A92DEDDBA9C6DA1D9878EAE15C58C6D09308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292634   (642816) от 31.03.2019
 
 Наталья Васив | Вязание на машине. Самое полное и понятное пошаговое руководство для начинающих (2018) [PDF]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:AF41A586B3C360406EC9F6B688EE57AC7CB6F8C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +71,8 @@ magnet:?xt=urn:btih:AF41A586B3C360406EC9F6B688EE57AC7CB6F8C0
 ```bash
 magnet:?xt=urn:btih:276BB220B0F69AC17F8BFFF047ECAA55CA0ED9A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +100,8 @@ magnet:?xt=urn:btih:276BB220B0F69AC17F8BFFF047ECAA55CA0ED9A5
 magnet:?xt=urn:btih:38D34B4ED345CD6C5F4308615AF4EECEBEA9EA82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +128,8 @@ magnet:?xt=urn:btih:38D34B4ED345CD6C5F4308615AF4EECEBEA9EA82
 magnet:?xt=urn:btih:167180181BCA66E29C69FF63834EF8E5ED2DB26B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +154,8 @@ magnet:?xt=urn:btih:167180181BCA66E29C69FF63834EF8E5ED2DB26B
 magnet:?xt=urn:btih:D0CDAC0DDB29BC53204C2F447A3705606A0613B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +179,8 @@ magnet:?xt=urn:btih:D0CDAC0DDB29BC53204C2F447A3705606A0613B5
 ```bash
 magnet:?xt=urn:btih:EBD192A2D1D785C1FD1BA32A21337B07436E4446
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +208,8 @@ magnet:?xt=urn:btih:EBD192A2D1D785C1FD1BA32A21337B07436E4446
 magnet:?xt=urn:btih:84BD65E2EA13BB1345E47559FB220329B4E399A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +233,8 @@ magnet:?xt=urn:btih:84BD65E2EA13BB1345E47559FB220329B4E399A4
 ```bash
 magnet:?xt=urn:btih:C10743C986A82A68874621C0955A9B17E01952A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +263,8 @@ magnet:?xt=urn:btih:C10743C986A82A68874621C0955A9B17E01952A6
 magnet:?xt=urn:btih:49B46B42F420F49473FBAB2790132CDF88A11301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +289,8 @@ magnet:?xt=urn:btih:49B46B42F420F49473FBAB2790132CDF88A11301
 magnet:?xt=urn:btih:688019253BAC60E05C055B871262AE0EC6362AD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +314,8 @@ magnet:?xt=urn:btih:688019253BAC60E05C055B871262AE0EC6362AD2
 ```bash
 magnet:?xt=urn:btih:7D3D791F33AFDE78F1ED420A230C3A98253EDE0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +343,8 @@ magnet:?xt=urn:btih:7D3D791F33AFDE78F1ED420A230C3A98253EDE0F
 magnet:?xt=urn:btih:3ABC19F6D4CA4B6AB85B8C1DBAA423056D8505A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +369,8 @@ magnet:?xt=urn:btih:3ABC19F6D4CA4B6AB85B8C1DBAA423056D8505A2
 magnet:?xt=urn:btih:4EE419768354E1F2B5B931EA826326C9F25177EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +394,8 @@ magnet:?xt=urn:btih:4EE419768354E1F2B5B931EA826326C9F25177EF
 ```bash
 magnet:?xt=urn:btih:782A05267F50647C12F6DEC62A88E5915367260E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +423,8 @@ magnet:?xt=urn:btih:782A05267F50647C12F6DEC62A88E5915367260E
 magnet:?xt=urn:btih:220CED2754B9DD08C731AC64803D37393861213F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +448,8 @@ magnet:?xt=urn:btih:220CED2754B9DD08C731AC64803D37393861213F
 ```bash
 magnet:?xt=urn:btih:7FBC66053DFE69AD47BE6BF86D8272CBA192A5F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +479,8 @@ magnet:?xt=urn:btih:7FBC66053DFE69AD47BE6BF86D8272CBA192A5F2
 magnet:?xt=urn:btih:6FD8DD17A7902925F8F00587980FEBC04B22444D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +504,8 @@ magnet:?xt=urn:btih:6FD8DD17A7902925F8F00587980FEBC04B22444D
 ```bash
 magnet:?xt=urn:btih:B403E41357308E5C542D9B91D766BAF65A6470E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +533,8 @@ magnet:?xt=urn:btih:B403E41357308E5C542D9B91D766BAF65A6470E4
 magnet:?xt=urn:btih:4EBD4196C6DDD5BA4449803ECF36158E7F60E231
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +558,8 @@ magnet:?xt=urn:btih:4EBD4196C6DDD5BA4449803ECF36158E7F60E231
 ```bash
 magnet:?xt=urn:btih:7F2A06D1755528AB96D01B49E7C4AD58A3F29CE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +585,8 @@ magnet:?xt=urn:btih:7F2A06D1755528AB96D01B49E7C4AD58A3F29CE7
 magnet:?xt=urn:btih:702AA4780CEC6A8389524B7B3A375CA859104389
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +610,8 @@ magnet:?xt=urn:btih:702AA4780CEC6A8389524B7B3A375CA859104389
 ```bash
 magnet:?xt=urn:btih:D0A240B42CB6445CAEB08F41A6E68FDAA9231977
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +637,8 @@ magnet:?xt=urn:btih:D0A240B42CB6445CAEB08F41A6E68FDAA9231977
 magnet:?xt=urn:btih:6E1A9400EF61D55CD0E8A1AF5207E8CC8B3F16F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +662,8 @@ magnet:?xt=urn:btih:6E1A9400EF61D55CD0E8A1AF5207E8CC8B3F16F5
 ```bash
 magnet:?xt=urn:btih:4F32E73C905F63DFE5A0C69F448DFE568BD08E7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,29 +689,7 @@ magnet:?xt=urn:btih:4F32E73C905F63DFE5A0C69F448DFE568BD08E7E
 magnet:?xt=urn:btih:7CCB8D1EC0913F79A5C621918702761EF35EFA69
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 680054   (644382) от 16.07.2013
-
-Луи Буйе | О Библии и Евангелии (1988) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644382.jpg" />
-</div>
-
-
-###  Подробнее
-
-"О Библии и Евангелии" Луи Буйе - краткая, но значительная работа по библейскому богословию. Позволяет увидеть Библию как единое целое и проследить этапы Библейского Откровения.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D9287370E375B5E1DA991E4C30810E1BE88E85
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

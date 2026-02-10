@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:106DD7C5E2B8BF926F006149BF5200C3E26D3A0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Duplicate File Finder - утилита, которая находит дубли
 ```bash
 magnet:?xt=urn:btih:0B47559F1B74BA3E90787709BA6E84B0409DDEB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Royal Blood - Back To The Water Below (2023) [FLAC 24/44.1|WEB-DL|tracks] <Alter
 magnet:?xt=urn:btih:ADA9A4E6AAD8B9F2EC9DDC13CFB20AAB6BFF8491
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:ADA9A4E6AAD8B9F2EC9DDC13CFB20AAB6BFF8491
 magnet:?xt=urn:btih:2186830E79BAD6734885A11AE660719FA22D3638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:2186830E79BAD6734885A11AE660719FA22D3638
 ```bash
 magnet:?xt=urn:btih:55ACE4056D8A798DEB11DF6F315221942F40EDF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Deserta - Don’t Dare Stop (2023) [Mp3|320kbps] <hard rock>
 magnet:?xt=urn:btih:F0094A295E65EB6968F12B4521CB39DA8EAA01DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:F0094A295E65EB6968F12B4521CB39DA8EAA01DA
 magnet:?xt=urn:btih:DCF43F182AE154540C84EC40356C8CE5B1FAC316
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:DCF43F182AE154540C84EC40356C8CE5B1FAC316
 ```bash
 magnet:?xt=urn:btih:40EB4BDC37DD41FD2DC761584F94F40E6848972B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ DxO ViewPoint — программное решение, посвященное 
 magnet:?xt=urn:btih:5F58778980BE17A318D664701370CD7A11809AE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:5F58778980BE17A318D664701370CD7A11809AE7
 ```bash
 magnet:?xt=urn:btih:45944E1FF7F1A6515E5D1C6F1FAD908775D0FEA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ VA - Augmented 010  Dowden x Mango (2023) [FLAC|Lossless|WEB-DL|tracks] <Minimal
 magnet:?xt=urn:btih:FD497A1EFF899DCC4DCB4E11AA78FF3E14C8DB6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:FD497A1EFF899DCC4DCB4E11AA78FF3E14C8DB6B
 magnet:?xt=urn:btih:2CD6AE2BDA53691663811EE48BC7F9B3B513C501
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:2CD6AE2BDA53691663811EE48BC7F9B3B513C501
 ```bash
 magnet:?xt=urn:btih:C8D70436FAF08BEC8363CAFD3B8C9CB6765C7840
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ Sun Dweller - High Ride (2023) [MP3|320 Kbps] <Heavy Rock, Stoner, Grunge, Blues
 magnet:?xt=urn:btih:665CA676CBD3AA9BB3D4AA4430A6EC2E84B95D22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:665CA676CBD3AA9BB3D4AA4430A6EC2E84B95D22
 ```bash
 magnet:?xt=urn:btih:3565471A207C36F9B6B42B75419A2C00CCA397E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:3565471A207C36F9B6B42B75419A2C00CCA397E3
 magnet:?xt=urn:btih:A9243E6D6CB2B95A17136A18AAA3BCA832F43D29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:A9243E6D6CB2B95A17136A18AAA3BCA832F43D29
 ```bash
 magnet:?xt=urn:btih:B5EA91880345A91301F33BB284C89CE568271AC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ The House of Da Vinci 3 (2022) [Ru/Multi] (1.0.1) License GOG
 magnet:?xt=urn:btih:512E602A2B97915391CA0C820D7A1A58F3061422
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:512E602A2B97915391CA0C820D7A1A58F3061422
 ```bash
 magnet:?xt=urn:btih:0DB43285CCB98EF5691AB0E49E94B4462F6E130B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ LibreOffice — мощный офисный пакет, полностью со�
 magnet:?xt=urn:btih:0882F1F8B7597B88BEE78A9801345AE9310DE33B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:0882F1F8B7597B88BEE78A9801345AE9310DE33B
 ```bash
 magnet:?xt=urn:btih:F07AAEB1A8357A8C2216615418DD8644E643637F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +584,8 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 magnet:?xt=urn:btih:6A24AE8B4FBEE659A7C8F597C007C7DD12534B69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:6A24AE8B4FBEE659A7C8F597C007C7DD12534B69
 ```bash
 magnet:?xt=urn:btih:33AAFC7004E50B8DF9F81FFA07F3E4E8B76B1B45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:33AAFC7004E50B8DF9F81FFA07F3E4E8B76B1B45
 magnet:?xt=urn:btih:4926D30C6AFE33E7788646356E2F475EB73BF9C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:4926D30C6AFE33E7788646356E2F475EB73BF9C3
 magnet:?xt=urn:btih:5FFCC1100615004EB49B0A12707FB7A5EE9C9D57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ Woodworker's Journal — журнал по столярному делу пре�
 ```bash
 magnet:?xt=urn:btih:3F8048CC798D34F080287CEA242BEF68B05D4E90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

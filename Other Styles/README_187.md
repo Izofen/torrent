@@ -28,6 +28,8 @@ VA - Танго большого города (2003) [FLAC|Lossless]<Tango>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ VA - Тango Mania (2003) [FLAC|Lossless]<Tango>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ Primal Instinct - Heart of The Rainforest (1997) [MP3|320 kbps]<New age, World m
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +127,8 @@ David Nevue - Whisperings: The Best of David Nevue 1985-2000 (2001) [FLAC|Lossle
 magnet:?xt=urn:btih:CAABA327964EFDEC96CF65AE875874624031605E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +155,8 @@ David Nevue - Awakenings: The Best of David Nevue 2001-2010 (2012) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:C5B4B70AD4610F2335E4E67564344FBEE250E169
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +191,8 @@ Network Music Ensemble - Spa Relaxation (2011) [MP3|320 kbps]<Chill Out, Relax>
 magnet:?xt=urn:btih:2B14DBABFFB0C2827328C095171CCF605DCF5C70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +219,8 @@ Akira Kosemura - Buddhists (2016) 1631 Recordings [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:E0FC40799EA14285704FBBE93ED62C95B50FE10F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +255,8 @@ Andrea Bocelli - Passione (2013) [FLAC (tracks+.cue)|Lossless]<Vocal, Ballad>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +290,8 @@ VA - Tangos de Amor (2002) [FLAC|Lossless]<Tango>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +323,8 @@ Quincy Jones / Ray Brown Orchestra - Music From The Adventurers /OST/ (1970) [MP
 ```bash
 magnet:?xt=urn:btih:90637152FADAE04E9ECEB52914D3513A06CE23CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +359,8 @@ Deus Ex: Human Revolution (by Michael McCann) (2011) [FLAC|Lossless]<OST>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +387,8 @@ Atom Music Audio - Abyss (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic O
 ```bash
 magnet:?xt=urn:btih:B1FC6BC209E176F62D764504DC4A25F1B890DC91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +417,8 @@ Atom Music Audio feat. Alexa Ray - From the Ashes (2019) [MP3|320 Kbps] <Soundtr
 magnet:?xt=urn:btih:298AF03D0AACE722C082D0391B36D75F9AD124CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +445,8 @@ Atom Music Audio - Thunderbolt (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, 
 ```bash
 magnet:?xt=urn:btih:35DDE08BA698ACEF5928ACF6C974F33DAEEB6ED3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +475,8 @@ Atom Music Audio - Spirit (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic 
 magnet:?xt=urn:btih:19B4365735C0915B9ABEE02C9EFF235E2A960AB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +504,8 @@ Atom Music Audio - Sinner: Antihero Themes (2019) [MP3|320 Kbps] <Soundtrack, In
 magnet:?xt=urn:btih:C3C9E5AC7315AD3EDE5718E1BFC5EE2B0DF27C9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +532,8 @@ Atom Music Audio - Wild Planet (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, 
 ```bash
 magnet:?xt=urn:btih:73D18BD764A57DF68F71AEACC6D894A736715C1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +568,8 @@ VA - Немецкое танго 30-40-х годов (2002) [APE|Lossless]<Tango
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +603,8 @@ VA - Romantic Instrumentals. Candle In The Wind (2CD) (1998) [MP3|320 кб/с]<I
 magnet:?xt=urn:btih:F53BA7E4A39C7F6C708BC76678EC93ABB6B43A47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +636,8 @@ Snatam Kaur - Liberation's Door (2009) [MP3|320 kbps]<mantra, spiritual, meditat
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +672,8 @@ VA - Angel Prayer (2012) [MP3|320 кб/с]<New age, Celtic>
 magnet:?xt=urn:btih:803DE539DD392EEB4F4B3DDF7BA435F084FB50C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +707,8 @@ Cerrone - Brigade Mondaine (1978) [FLAC|Lossless]<Electronic Pop>
 magnet:?xt=urn:btih:9B420EBE9E0354475BFA66DA10449DF39D079944
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -691,6 +735,8 @@ Leonard Cohen - Popular Problems (2014) [FLAC|Lossless]<Contemporary folk, Soft 
 ```bash
 magnet:?xt=urn:btih:E595AC3E693FD766F63A049757B867C37C352168
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -725,6 +771,8 @@ Chakra's Dream - 27 albums (2002 - 2009) [MP3|128-320 кб/с]<New age, Meditati
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -758,6 +806,8 @@ Kaoru Kukita - Unplugged Ghibli (2007) [MP3|192-320 kbps]<OST, Instrumental>
 magnet:?xt=urn:btih:088428F1BBE62810EDBF544EC218C70D578B6413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -790,6 +840,8 @@ Narada Artists - Grand Piano: Narada Anniversary Collection [2CD] (1997) [MP3|32
 ```bash
 magnet:?xt=urn:btih:CE8119F0FDD2C21D7E3CA77966AC43D46E56089F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

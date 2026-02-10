@@ -22,6 +22,8 @@ Danheim - Domadagr (2021) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Nordic Folk,
 magnet:?xt=urn:btih:4B33AA09B8D90D50C07D90854B3939E54AC7EF39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:4B33AA09B8D90D50C07D90854B3939E54AC7EF39
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:4B33AA09B8D90D50C07D90854B3939E54AC7EF39
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:4B33AA09B8D90D50C07D90854B3939E54AC7EF39
 magnet:?xt=urn:btih:78E2BEF5C1C89F9BD16E8FAEB44B8868D0AE0FA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:78E2BEF5C1C89F9BD16E8FAEB44B8868D0AE0FA7
 ```bash
 magnet:?xt=urn:btih:19768F01B1384084603429D90B34A83C7A9FF893
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:19768F01B1384084603429D90B34A83C7A9FF893
 magnet:?xt=urn:btih:2A489FA9E4EE935CD770BE44FC5C320710F4F3FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:2A489FA9E4EE935CD770BE44FC5C320710F4F3FD
 magnet:?xt=urn:btih:AC0B60D5D905630414048B920D63799A3DFD4C60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ BBC. Преступники Британии: разбойники, пираты
 ```bash
 magnet:?xt=urn:btih:93A86AB48E7EAFC38F0337B532B467257FBF48FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Joe Bonamassa - B.B. King's Blues Summit 100, Vol. III (2025) EP [FLAC 24/44.1|L
 magnet:?xt=urn:btih:F799995C8C975BCC2F78EAA80AC2940C139A785C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:F799995C8C975BCC2F78EAA80AC2940C139A785C
 ```bash
 magnet:?xt=urn:btih:4E16849CF2B7ECFF01FDB74D31B022336382C507
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ TapScanner — сканер документов, это простой скан
 magnet:?xt=urn:btih:46BE36AED5A354B04D493AB5212EEC9F051D2DBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:46BE36AED5A354B04D493AB5212EEC9F051D2DBF
 ```bash
 magnet:?xt=urn:btih:7674689214594774DF9BFB66E3CDB4E7BE5E7AD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:7674689214594774DF9BFB66E3CDB4E7BE5E7AD2
 magnet:?xt=urn:btih:2CAA8E4448469E7D66FD6C643FD84D5093CB42C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:2CAA8E4448469E7D66FD6C643FD84D5093CB42C1
 ```bash
 magnet:?xt=urn:btih:668619D6F70872FEBC017CE83D0F4A79E46CD768
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ Anna Zueva - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Easy Listening, 
 magnet:?xt=urn:btih:1E528AB63ED7E6FE49F695B0893AF16BDB84E2F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ Reyvi - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:1AE909AF1AA7307F88C2700BB2CF89523F857004
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ Romantic Dreams - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Italodisco,
 magnet:?xt=urn:btih:A155683C60A3DDE3157160E4C229781C79BA5752
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ VA - No name compilation part 9 Electronic, Other (2025) [MP3|320 Kbps] <Electro
 ```bash
 magnet:?xt=urn:btih:9F24A18D3877941553A79C8A3639302B2C21EB8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ VA - No name compilation part 10 Instrumental, Other (2025) [MP3|320 Kbps] <Elec
 magnet:?xt=urn:btih:2BEB5AC35478A044EEC2D23B31DA77EC3EF2014D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:2BEB5AC35478A044EEC2D23B31DA77EC3EF2014D
 ```bash
 magnet:?xt=urn:btih:4CCB79EAE6485B3237F5CFE6F759436AA9BEE87A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:4CCB79EAE6485B3237F5CFE6F759436AA9BEE87A
 magnet:?xt=urn:btih:87C7580E2713F0331ED81A98C19C4E122E705D9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ magnet:?xt=urn:btih:87C7580E2713F0331ED81A98C19C4E122E705D9E
 ```bash
 magnet:?xt=urn:btih:86485C878B56CFF8E27162DADEB1EEE9A4DEE041
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ magnet:?xt=urn:btih:86485C878B56CFF8E27162DADEB1EEE9A4DEE041
 magnet:?xt=urn:btih:F3370DB2C0E7288AE796C419D4353A2F962CB6C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:F3370DB2C0E7288AE796C419D4353A2F962CB6C1
 magnet:?xt=urn:btih:2AD99AA917EA3D9C90C189257FAA102BD4AD5C49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:2AD99AA917EA3D9C90C189257FAA102BD4AD5C49
 ```bash
 magnet:?xt=urn:btih:B71A4CA2EE75E305AB644ED3DE596C679E50D265
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:B71A4CA2EE75E305AB644ED3DE596C679E50D265
 ```bash
 magnet:?xt=urn:btih:EF2241FA0D44CFCD4168B1652A8EE97C9ECB068D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

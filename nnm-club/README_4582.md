@@ -22,6 +22,8 @@ VA - Ritter Butzke: 10 Years (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <T
 magnet:?xt=urn:btih:F59C018779C13996D7D00FF0FDB614CD95ADF3C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Christmas - проект для создания поздравительной 
 ```bash
 magnet:?xt=urn:btih:59EB06A70A6075F3961C0A6C9871A3B2ECDC82A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:59EB06A70A6075F3961C0A6C9871A3B2ECDC82A9
 magnet:?xt=urn:btih:69DF37853D5B08F0E701ED878589F49FD69EB2EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ TG Pro — контроль температуры и вентиляторов �
 ```bash
 magnet:?xt=urn:btih:54E8A6924E8F242DA3787F4C6BD775A89F477B37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ VA - Unknown 80's (part X) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop,
 magnet:?xt=urn:btih:3C32118FC2BB2836A8C42ECEDC667CBD79B1BF4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Gothic 3 / Готика 3 (2006-2008) [Ru/En/Ge] (1.75.20108.14/2.1.17414.8/dlc)
 ```bash
 magnet:?xt=urn:btih:952BBDBBAD8E579675FD4E49FD7B290B78AD6287
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +191,8 @@ VA - Новогодняя Дискотека 50/50 (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:38319654B8A2E6B694182F2C2FA9B13B1CE7BB93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ Free 2.4 [En]
 ```bash
 magnet:?xt=urn:btih:AD4AE530E737B088E9A0A2898EDA462A058395C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:AD4AE530E737B088E9A0A2898EDA462A058395C0
 magnet:?xt=urn:btih:F2102BF0D9153636AD72275B85884641F28C9B99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:F2102BF0D9153636AD72275B85884641F28C9B99
 magnet:?xt=urn:btih:036D589D3A8F8177D715B81FACAA9B4CA3146C83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ Bazaart: Photo Editor & Graphic Design 2.3.3 (472) Mod by Youarefinished [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:58C73E1B405AFC0CC8E5BB81DA8910FF1097A580
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:58C73E1B405AFC0CC8E5BB81DA8910FF1097A580
 magnet:?xt=urn:btih:E624CFA65EC3AE7C9F64E22989A35C6138D9BF1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) HDRip
 ```bash
 magnet:?xt=urn:btih:EB9DA15843481C12895455149161A86BBBDCCE73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ Gothic / Готика (2011) [Ru/En/Ge] (1.08k/1.1e/dlc) Lossless Repack R.G. Or
 magnet:?xt=urn:btih:7AA163F30C80E6372DAE94E35323DD646D713CD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:7AA163F30C80E6372DAE94E35323DD646D713CD3
 ```bash
 magnet:?xt=urn:btih:7DCEA45510F07CD7E87B576A7F5A5F635B8EA129
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:7DCEA45510F07CD7E87B576A7F5A5F635B8EA129
 magnet:?xt=urn:btih:68C2FD2A116A4ACA931EA23F1E8E8D65F8F49CE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:68C2FD2A116A4ACA931EA23F1E8E8D65F8F49CE8
 ```bash
 magnet:?xt=urn:btih:76D931EAEF6BD39A4FED56DD7C393D2F0CCAF146
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ Magoshare Data Recovery - одно из самых мощных приложен
 magnet:?xt=urn:btih:1F2505A3C6358B323925447D66C3C97D7E8EADAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ ESET Smart Security - новая версия комплексного анти�
 ```bash
 magnet:?xt=urn:btih:05CF486CA378B986C2AAF1CFA2DCA71DC1D5C474
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ VA - Amnesia Ibiza-Underground 9 (2009) 2CD [FLAC|Lossless|tracks + .cue] <Elect
 magnet:?xt=urn:btih:CB9F9488DBFE014B68E8D1BD9F1FC949348BC44B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:CB9F9488DBFE014B68E8D1BD9F1FC949348BC44B
 ```bash
 magnet:?xt=urn:btih:082B9A26C4C44905ECECE3CEA3A0C0608D2669A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ VA - Space Holidays Vol. 13 (2021) 4CD [MP3|320 Kbps] <Synthpop, Spacesynth>
 magnet:?xt=urn:btih:5FDBC441CD7715BE95E811AE6768BCD3CC545FCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ Video Converter Movavi 19 v19.0 [Multi/Ru]
 magnet:?xt=urn:btih:55A9E43282F28E6A78326F209CAE3FC1EF3AB5BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +644,8 @@ magnet:?xt=urn:btih:55A9E43282F28E6A78326F209CAE3FC1EF3AB5BF
 ```bash
 magnet:?xt=urn:btih:94CC9CDF623B0FD4CE204164C8396AFBF872DBD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +671,8 @@ magnet:?xt=urn:btih:94CC9CDF623B0FD4CE204164C8396AFBF872DBD9
 magnet:?xt=urn:btih:4A5966E6972C9207B9B1E8CF3B17C26F43258563
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ One-Punch Man / Ванпанчмен [2015, TV, 12 из 12 + 1 из 6 SP] HDTV 7
 ```bash
 magnet:?xt=urn:btih:95D31C94F37A941DEA932000612B46B3ED49B64D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

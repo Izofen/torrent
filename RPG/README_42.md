@@ -19,6 +19,8 @@ Disciples: Освобождение - это история в жанре "тё�
 magnet:?xt=urn:btih:2CBEB7EDEAC17CA0C5A54EF36F64540D2A56100F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Might And Magic. Heroes 6 [Ru/En] (RePack/1.8.0/2 DLC) 2011 l R.G. Shift
 ```bash
 magnet:?xt=urn:btih:A0FF3D1F69CAD0F897B2851BF18D71A51ACB5166
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Mass Effect 3 будет реагировать на каждое принято
 magnet:?xt=urn:btih:1847FC9C37436AFA53D3D0DB63069A263398BDF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Divinity: Original Sin 2 / Divinity: Original Sin II (2017) [Ru/En] (3.6.31.2130
 ```bash
 magnet:?xt=urn:btih:A92B7D6D54ECF942532881DC1F5C32B4F5BB2D41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ The Void / Тургор. Голос цвета (2009) [Ru/Multi] (1.0) License G
 magnet:?xt=urn:btih:5C2F0054EA35B0C906631C833B912CCA52CE8692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Immortals Fenyx Rising - ролевая игра в открытом мире, �
 ```bash
 magnet:?xt=urn:btih:80FB877352C5E8142366485D2A02754E808E4722
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Sailing Era может заинтересовать любителей виде�
 magnet:?xt=urn:btih:54239D86989FAE39AD46F2824661F42CD5B0B21F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ StarCrawlers — это сплав из классического Dungeon Crawl
 ```bash
 magnet:?xt=urn:btih:E6792362C5027D127C17838335D830436FEA14B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ VIKINGS WOLVES OF MIDGARD™: Рагнарек. Легенда гласит, ч�
 magnet:?xt=urn:btih:1C5247D6C40B6E26446CF8172D9C3A2112DA21A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Below – процедурно генерируемое приключение �
 ```bash
 magnet:?xt=urn:btih:DCCA03394AE8D691655A9C4CFAB08F72E8A705CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Sword of the Stars: The Pit (2013) [En] (1.6.2/dlc) License GOG [Osmium Edition]
 magnet:?xt=urn:btih:85929EEEF2F3CB7B10F7776B9EA06B3F3E1E0FD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ BLACKTAIL (2022) [Ru/Multi] (1.3) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3F09E9089DD3EDC40F4AE0A7424537689574512A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Salt and Sacrifice - хардкорный экшн-платформер, вдо�
 magnet:?xt=urn:btih:6E0EF1E095BC1373EE21D833E5FBF55A4A802B92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Shadows Heretic: Kingdoms (2014) [Ru/En] (1.0.0.8183) Repack R.G. Механик
 ```bash
 magnet:?xt=urn:btih:4C8E42D706DADF77302A6259C2891EF7240CED3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ DYSMANTLE (2021) [Ru/Multi] (1.3.0.55/dlc) Scene Rune
 magnet:?xt=urn:btih:2A48E4756B42A8266188902AF110D271A3AECA64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Alluna and Brie (2019) [En] (1.0) Scene TinyIso
 ```bash
 magnet:?xt=urn:btih:1783551C4091B0A8D47C1421F3A45C175711384E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Colony Ship: A Post-Earth Role Playing Game - пошаговая ролевая 
 magnet:?xt=urn:btih:ACF8A8E056192111D6054F1F55162DC0F4C507AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Lillusion - это ролевая игра с традиционной 2D-гра
 ```bash
 magnet:?xt=urn:btih:F020448D7FBA1D4C21E46FA388E4D5750AD26BFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ Racine (2023) [Multi] (1.0.1) License GOG
 magnet:?xt=urn:btih:3E99E6613CDF36FC92CEE814DBCFE0D1CB2EB388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ Company of Crime – это игра с пошаговыми тактическ�
 ```bash
 magnet:?xt=urn:btih:3DB4BE40BE290DEE9ECB41FEC274E396FAB84C3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ Fading Afternoon (2023) [Ru/Multi] (20231009) Scene Tenoke
 magnet:?xt=urn:btih:B6B52C579A23DB565FD583A0A3611DFCA8DF4758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ Little Goody Two Shoes - увлекательное приключение в ж
 ```bash
 magnet:?xt=urn:btih:F1AD5C794B31C1DEF6D14799FCFB4F7206B9CCB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ Salt and Sacrifice (2023) [Multi] (1.0.1.0) Repack Other s
 magnet:?xt=urn:btih:5DAB1A8BBF07292BEB8655D5825AA555F24960B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ A Quest That Became Legend (2023) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:3EFE673421F3087E4E6E5B135A5DAD85DB3D313A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ Gray Zone – RTS шутер с элементами RPG. Это одиссея 
 magnet:?xt=urn:btih:B30E0E31652485994F272DE7F6973C8C772C1CB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Lovecraft’s Untold Stories - это экшен-роглайт с элемен�
 ```bash
 magnet:?xt=urn:btih:13446BB378831EA6CC12BBC4814EDA685A173701
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

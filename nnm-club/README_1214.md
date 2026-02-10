@@ -19,6 +19,8 @@ Sam and Max: The Devil's Playhouse - ремастированное приклю
 magnet:?xt=urn:btih:CCD818412EDA0C7CBD3B60364574F68DF8522615
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Graph Messenger — это продвинутое приложение для о
 magnet:?xt=urn:btih:A1D17798E0A7C311DE5368DFFD299952388A5A3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:A1D17798E0A7C311DE5368DFFD299952388A5A3E
 magnet:?xt=urn:btih:32B7212EB90331C603507E78693B54FA4B0E0459
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Garry's Mod - физическая песочница. В отличие от о
 ```bash
 magnet:?xt=urn:btih:7424F5ABEE071EEB21484241C16CE5A641471532
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Tangerine Dream - Machu Picchu (Maxi EP) (2012) [MP3|320 кб/с]<Electronic mus
 magnet:?xt=urn:btih:0F640F1885F84D41157C02E7C494293538D92B6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Tangerine Dream - One Night In Africa (2013) [MP3|320 кб/с]<Traditional Elect
 magnet:?xt=urn:btih:5D257812B45FA5A0A324498D22A224A1BF907BF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:5D257812B45FA5A0A324498D22A224A1BF907BF1
 ```bash
 magnet:?xt=urn:btih:15A2E157DCBE900C5F5311CD33C6FE0C3B454755
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ Tangerine Dream - The Island of the Fay (2011) [MP3|320 kbps]<New age, Ambient>
 magnet:?xt=urn:btih:D9AF039FAA9D8395E94A8F49A0F88275EFF094AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:D9AF039FAA9D8395E94A8F49A0F88275EFF094AE
 ```bash
 magnet:?xt=urn:btih:E7385BA17FA1B3BD1E890FA2275B9CFEB21EEC1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:E7385BA17FA1B3BD1E890FA2275B9CFEB21EEC1D
 magnet:?xt=urn:btih:52BB11365B69C87DBD4B7F70FDA7D7E10CDA2F2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:52BB11365B69C87DBD4B7F70FDA7D7E10CDA2F2F
 ```bash
 magnet:?xt=urn:btih:6C4946F789314F08AC5B3776600351F0B55904E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:6C4946F789314F08AC5B3776600351F0B55904E9
 magnet:?xt=urn:btih:B7606FCE5221F3B5D08C839B23A91F6F1FAD4763
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:B7606FCE5221F3B5D08C839B23A91F6F1FAD4763
 ```bash
 magnet:?xt=urn:btih:2C177234C8FFE8D609908181B4227C659D97A84F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (Build 16179329/dlc) Repack seleZen 
 magnet:?xt=urn:btih:DAC3D5C4CFFA9D2BF5120B33CDC034515DC9817C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:DAC3D5C4CFFA9D2BF5120B33CDC034515DC9817C
 ```bash
 magnet:?xt=urn:btih:9B9405C2BAE8D9DB3417A08F373D13642E05519D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ PurpleSchool, Антон Ларичев | Продвинутый Golang (2024) W
 magnet:?xt=urn:btih:4D1C82FEE7FB10F92F673AE1EB1F15E0207BDF56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ PurpleSchool, Антон Ларичев, Игорь Орлов | Основы Go
 magnet:?xt=urn:btih:81C2BCF793DD718562E8B2FD9ED90F07FBD03C5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:81C2BCF793DD718562E8B2FD9ED90F07FBD03C5C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ Kaspersky Small Office Security обеспечивает комплексную 
 magnet:?xt=urn:btih:CD1B81FE8FC0EAAE7C81CA603098750F58396448
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:CD1B81FE8FC0EAAE7C81CA603098750F58396448
 magnet:?xt=urn:btih:B74A5AAD442084F1A33F5BA8D0E8C4E46FC1DC72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:B74A5AAD442084F1A33F5BA8D0E8C4E46FC1DC72
 ```bash
 magnet:?xt=urn:btih:9BEED0A3FDA48D6D2771A5748D4EC652C359638A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ Bleach: Sennen Kessen Hen - Soukoku Tan | Bleach: Thousand-Year Blood War - The 
 magnet:?xt=urn:btih:9BC1BE7C42ADDF76CB0C7D5874A6E6540D55190E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ magnet:?xt=urn:btih:9BC1BE7C42ADDF76CB0C7D5874A6E6540D55190E
 ```bash
 magnet:?xt=urn:btih:2ED33E971DCC721C5EFC49742D4BD10795E3EC3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:2ED33E971DCC721C5EFC49742D4BD10795E3EC3B
 magnet:?xt=urn:btih:F611B0D90E6CF324540E929329B5B7474BCEF73C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ magnet:?xt=urn:btih:F611B0D90E6CF324540E929329B5B7474BCEF73C
 ```bash
 magnet:?xt=urn:btih:4C9A5CA7EFAAF9C84B72A62A06DB92277E3A09A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:4C9A5CA7EFAAF9C84B72A62A06DB92277E3A09A7
 ```bash
 magnet:?xt=urn:btih:D19E062FDF1EEC661516ABAEC00E5663C11C8BFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

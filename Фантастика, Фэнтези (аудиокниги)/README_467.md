@@ -1,3 +1,30 @@
+###  Публикация: 1504610   (811828) от 23.10.2021
+
+Владимир Сазанов | Двуединый (Книга 1) (2021) [MP3, Игорь Ломакин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой появился на свет в результате эксперимента по созданию уникальных воинов. Эксперимент привёл к многим смертям и был признан провальным. Но был тот, кто выжил и стал Двуединым.
+После долгих лет, проведённых взаперти в стенах родительского поместья, герой оказывается в большом мире, где правят магия и боевые искусства. Использовать его способности хотят (   Читать дальше...   )Жанр: Боевое фэнтези, героическое фэнтезиПродолжительность: 16:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:156FD4E304DB1E3C57012E54270A67BC59E58619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 777505   (812087) от 15.04.2014
 
 Роман Злотников | Последний рейд (2014) [MP3]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:AEA7CF909DB1AD09B7DF17300BC6645EADED0C4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +71,8 @@ magnet:?xt=urn:btih:AEA7CF909DB1AD09B7DF17300BC6645EADED0C4B
 ```bash
 magnet:?xt=urn:btih:E9F302CB1091C443C864027CD08ACF6A0B30B5E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:E9F302CB1091C443C864027CD08ACF6A0B30B5E4
 magnet:?xt=urn:btih:8C5FCD88BCDA2F1877FFD8BC006F89A341615821
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:8C5FCD88BCDA2F1877FFD8BC006F89A341615821
 ```bash
 magnet:?xt=urn:btih:A8399720C5494F45F31ABFAF5074374AAB86C3F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +152,8 @@ magnet:?xt=urn:btih:A8399720C5494F45F31ABFAF5074374AAB86C3F1
 magnet:?xt=urn:btih:8F4AAA42C61475E3654E20659DEE23444435E0FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +178,8 @@ magnet:?xt=urn:btih:8F4AAA42C61475E3654E20659DEE23444435E0FA
 magnet:?xt=urn:btih:EE282822DB94E215E1536AA822EB89637AA8FC02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +203,8 @@ magnet:?xt=urn:btih:EE282822DB94E215E1536AA822EB89637AA8FC02
 ```bash
 magnet:?xt=urn:btih:6A79BEBD72929E7CD32F6690651274CAA6A4B747
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +232,8 @@ magnet:?xt=urn:btih:6A79BEBD72929E7CD32F6690651274CAA6A4B747
 magnet:?xt=urn:btih:6852C0F26CCA8B187F125AEBBFA69065F39024CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:6852C0F26CCA8B187F125AEBBFA69065F39024CC
 ```bash
 magnet:?xt=urn:btih:BE1A815F44351871BD4AE7DCB64D91FBD2FDF657
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +285,8 @@ magnet:?xt=urn:btih:BE1A815F44351871BD4AE7DCB64D91FBD2FDF657
 magnet:?xt=urn:btih:4CCBAB0944734C314713E42032400C86F163634F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +311,8 @@ magnet:?xt=urn:btih:4CCBAB0944734C314713E42032400C86F163634F
 magnet:?xt=urn:btih:267F7CE49D54A6CEA528BF140AFFDB8A077FBD8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +336,8 @@ magnet:?xt=urn:btih:267F7CE49D54A6CEA528BF140AFFDB8A077FBD8F
 ```bash
 magnet:?xt=urn:btih:4C76E89B539A88698694F7A7F5A8D8C9BA460FF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +365,8 @@ magnet:?xt=urn:btih:4C76E89B539A88698694F7A7F5A8D8C9BA460FF6
 magnet:?xt=urn:btih:D87BD4FFBD854D5C1A41740F48BEFC3B78B8B5A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +393,8 @@ magnet:?xt=urn:btih:D87BD4FFBD854D5C1A41740F48BEFC3B78B8B5A1
 magnet:?xt=urn:btih:52B5334499BAD570177E626B45C908994F79B3DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +420,8 @@ magnet:?xt=urn:btih:52B5334499BAD570177E626B45C908994F79B3DE
 magnet:?xt=urn:btih:DF6F9D57D5F167F8F648082EB1160DB2E1776CD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +445,8 @@ magnet:?xt=urn:btih:DF6F9D57D5F167F8F648082EB1160DB2E1776CD1
 ```bash
 magnet:?xt=urn:btih:31EC1F79A3CC6185D4CD30288E4D1E1772CE609D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +472,8 @@ magnet:?xt=urn:btih:31EC1F79A3CC6185D4CD30288E4D1E1772CE609D
 magnet:?xt=urn:btih:632346FC25430440E671B8018882BF4191919EC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +497,8 @@ magnet:?xt=urn:btih:632346FC25430440E671B8018882BF4191919EC9
 ```bash
 magnet:?xt=urn:btih:A73EB8123B58E9AC1F17AE650216E3758A76EF2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +524,8 @@ magnet:?xt=urn:btih:A73EB8123B58E9AC1F17AE650216E3758A76EF2D
 magnet:?xt=urn:btih:CEFBD5EDE5BC10DE44AD61B46EC1DBD1E2EA78B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +549,8 @@ magnet:?xt=urn:btih:CEFBD5EDE5BC10DE44AD61B46EC1DBD1E2EA78B4
 ```bash
 magnet:?xt=urn:btih:F9E4B9770A36774688C5ABDA576D446DCB613E57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +576,8 @@ magnet:?xt=urn:btih:F9E4B9770A36774688C5ABDA576D446DCB613E57
 magnet:?xt=urn:btih:63225864E99CA5C78E55171B2F351CDCC2F3CB7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +601,8 @@ magnet:?xt=urn:btih:63225864E99CA5C78E55171B2F351CDCC2F3CB7E
 ```bash
 magnet:?xt=urn:btih:97139FFF5DF5D3027F277D6B7874C7DA364F0288
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +628,8 @@ magnet:?xt=urn:btih:97139FFF5DF5D3027F277D6B7874C7DA364F0288
 magnet:?xt=urn:btih:BFAC7E4C6CD4901F02158496E95D8F3E0E691C70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +653,8 @@ magnet:?xt=urn:btih:BFAC7E4C6CD4901F02158496E95D8F3E0E691C70
 ```bash
 magnet:?xt=urn:btih:F286AAADEA612862A3F3A6407A0423323F7A87E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,30 +680,7 @@ magnet:?xt=urn:btih:F286AAADEA612862A3F3A6407A0423323F7A87E1
 magnet:?xt=urn:btih:4376EB096EB74DD4C3965A59B413338B0F9391AB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197562   (815432) от 07.01.2018
-
-Юрий Максимов | Зиккурат (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815432.jpg" />
-</div>
-
-
-###  Подробнее
-
-2479 год. Земля получает сигнал от инопланетной цивилизации с приглашением посетить планету, а также с техинформацией и чертежами сверхсветового звездолета. В полет отправляются шесть человек – представителей различных народов и рас Земли.
-И вот, первый контакт человечества с внеземными «братьями по разуму» состоялся. Однако миролюбивые гуманоиды-сангхиты не просто (   Читать дальше...   )Жанр: Фантастика, ПриключенияПродолжительность: 11:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72187DE72A6E1F871E12420C26FF051BA167F223
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

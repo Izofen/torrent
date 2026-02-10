@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:975BEAF77188AB1FA34D3D048D0EAE1D590F7BE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Lord Belial - Rapture (2022) [FLAC|Lossless|image + .cue] <Black Metal>
 magnet:?xt=urn:btih:B9946D2843F63EDEF52522E1A1FF406E2B00EF57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:B9946D2843F63EDEF52522E1A1FF406E2B00EF57
 ```bash
 magnet:?xt=urn:btih:39B291418552B9EF4453FDA04A4CD579AD77AD49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:39B291418552B9EF4453FDA04A4CD579AD77AD49
 magnet:?xt=urn:btih:21E6CCF52D3B22C819ECD83C881C1FBC98C3F25F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:21E6CCF52D3B22C819ECD83C881C1FBC98C3F25F
 ```bash
 magnet:?xt=urn:btih:A32044D8E282A10C0AB2AE6A25808BA4FCFE0E27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Winter - 3 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
 magnet:?xt=urn:btih:68D62BAF922CDE5E309CE01A7AFAB8ABC1EE40DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:68D62BAF922CDE5E309CE01A7AFAB8ABC1EE40DC
 ```bash
 magnet:?xt=urn:btih:0F91F1EE15873C5E6EA529D0704C8B4A05053E6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:0F91F1EE15873C5E6EA529D0704C8B4A05053E6D
 magnet:?xt=urn:btih:45664D8B1AD520A1B2C2FBEDFA27D85097B6F614
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ Geek Uninstaller - удобный, маленький и надежный, не 
 ```bash
 magnet:?xt=urn:btih:87C5F045FF919A93C792EC7E764F44FF02B0A917
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ The first module covers source control and project initiation, including creatin
 magnet:?xt=urn:btih:5223D6B5B6435B5C1AA18E2F4C3E6379CE4DE51A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:5223D6B5B6435B5C1AA18E2F4C3E6379CE4DE51A
 ```bash
 magnet:?xt=urn:btih:534CCF6289DF87633939C1CB14AEE039B868E206
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:534CCF6289DF87633939C1CB14AEE039B868E206
 magnet:?xt=urn:btih:083310DE6485EA22C7218FF5E28F8B7CA9575E3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:083310DE6485EA22C7218FF5E28F8B7CA9575E3E
 ```bash
 magnet:?xt=urn:btih:6E014FBD8C928E6991FB7209B916BF77C0DBCFBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ Blue System - Hello America (1992) [OGG Vorbis|480 Kbps] <Electronic, Euro House
 magnet:?xt=urn:btih:4697F0C9B0B68821306171D22BE5E75DA7B059D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ Blue System - Backstreet Dreams (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro H
 magnet:?xt=urn:btih:D3FF47974EC6587E0C71875DD9BAFBEE545CA1DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ Vit Registry Fix Pro - мощная программа для очистки р�
 ```bash
 magnet:?xt=urn:btih:421418C6776A59ED42413715C8F4AC4CBBCCFF57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ The Airmen of Note - Openers! (2014) Department of the Air Force [FLAC|Lossless|
 magnet:?xt=urn:btih:A9E237EF260C7202E5B236DCDB52A9233C77FB5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:A9E237EF260C7202E5B236DCDB52A9233C77FB5C
 ```bash
 magnet:?xt=urn:btih:F2B1E9E5BC03E97B1283EECE9CBC507799B9F322
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ Alt SwitchER прекрасная альтернатива таким прогр
 magnet:?xt=urn:btih:91E5EE7CD6A0F59A824974B2B16602DC85A913C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ MotoGP. Этап 20. Гран-при Валенсии. Квалификация 
 magnet:?xt=urn:btih:EA38141A4B38908D73D1D33C328796CDB850E0FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:EA38141A4B38908D73D1D33C328796CDB850E0FE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:EA38141A4B38908D73D1D33C328796CDB850E0FE
 ```bash
 magnet:?xt=urn:btih:13BF62E4C2B6A25A2FD6D9FDAAD9E357DF2674A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ Sodom - 40 Years At War: The Greatest Hell Of Sodom (2022) [FLAC|Lossless|image 
 magnet:?xt=urn:btih:F319958AC324F323B5CAC6D711EB4F2559666348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ The Airmen Of Note - The 2021 Jazz Heritage Series (2021) Department of the Air 
 ```bash
 magnet:?xt=urn:btih:73082B2C79326D1B13EFD2F28C22CD4D5B96BA16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +678,8 @@ Saint - Heaven Fell (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:C0FF8C804DCA8434FDF6E648F12A6332518F546F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:C0FF8C804DCA8434FDF6E648F12A6332518F546F
 ```bash
 magnet:?xt=urn:btih:8897A230A406E62D23BD072F5F5C3D5EFCE3E74D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

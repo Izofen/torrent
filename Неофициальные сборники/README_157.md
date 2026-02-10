@@ -22,6 +22,8 @@ VA - Взаимные Лайки: Русский Сборник Популярн
 magnet:?xt=urn:btih:EF6A131235D9D92452FC2AA573EB45E524E27124
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Vintage Jazz Deluxe (2017) [MP3|320 Kbps] <Jazz, Blues>
 ```bash
 magnet:?xt=urn:btih:89270B9FC0598AA103BD41CFCA24BD8B108186D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Hit Music от Мяу: Зима (2017) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:A2787B3BCD97968F8006466AD0686A30CD2646CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ VA - По волне моей памяти 2: Том29 (Compiled by Виктор
 magnet:?xt=urn:btih:2AE02510D65AED03BA453DA3AFCB876DFE5C3140
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ VA - С музыкой, в Новый Год!!! (2010) [MP3|256-320 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:4D9D5A14B05256C96B0FB9ADB06EBFA0EB1A53BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ VA - По волне моей памяти 2: Том28 (Compiled by Виктор
 magnet:?xt=urn:btih:3FC6ACC2D458A6E09D60E7F8F629CA27D8B7C3A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ VA - Cyberatonica: Ultimate Synthwave and Syntpop (2017) [MP3|192-320 Kbps] <Syn
 ```bash
 magnet:?xt=urn:btih:B46D4314B3B158B16B286081A34D5739530190AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ VA - Reggaeton: Latin Direct Radio Show (2017) [MP3|320 Kbps] <Latin, Reggaeton,
 magnet:?xt=urn:btih:116EBEF8AE469DD54A275AE1F1AD5A23B650A0C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ VA - Top 50 Brazil (2017) [MP3|~203-283 Kbps] <Latino>
 ```bash
 magnet:?xt=urn:btih:1FCFDC030F86F691E5268BB99F07CAA4641D7030
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ VA - Новая сотка от Европы Плюс. Версия 50/50 (2016)
 magnet:?xt=urn:btih:A009B8DF29BB7FD4A9430DF1D4FC5341E32E195C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ VA - Tropical Trance (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:66911F66AEF630FC3E2BACB33C9A36E93D4328EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +338,8 @@ VA - Гуляночка блатного радио Шансон Часть 8 (2
 magnet:?xt=urn:btih:3473C20290F6364622B976213CEAACB1EAC27F02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ VA - Club Dance Ambience Vol.96 (2016) [MP3|252320 Kbps] <Dance, Club House, Hou
 ```bash
 magnet:?xt=urn:btih:0CF3AD4443259FCC019FE4094B98191560AA4F61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ VA - Зимний шансон года Часть 2 (2016) [MP3|256 Kbps] <Ша
 magnet:?xt=urn:btih:1D89DF90252A94CCA3429EDC2AC114196B26C191
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ VA - Clear Deep House (2016) [MP3|320 Kbps] <Deep House, Electro>
 ```bash
 magnet:?xt=urn:btih:7E5C90615C23670603DC57651E7D3EAF4966E504
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ VA - Осенняя свежая 30-тка Vol 5 (2019) [MP3|320 Kbps] <Pop, Dan
 magnet:?xt=urn:btih:7C8357061B4C59E3E29B070FCFC885F0FF28E499
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ VA - Street Workout (2019) [MP3|320 Kbps] <Hip-Hop, Rap, Other>
 ```bash
 magnet:?xt=urn:btih:A6B0F332F448B4C3F996D4F6E04F4AAC61106A1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ Moscowallica - A Russian Tribute to MetallicA '2000
 magnet:?xt=urn:btih:34DDC2FAB0B9E3E46FFFC99354C5D31017F3BD81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +540,8 @@ VA - Шансон 2018 [MP3|320 Kbps] <Шансон>
 ```bash
 magnet:?xt=urn:btih:65C3B5883D353AEE9D39FAFF0867C6F417312E67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +570,8 @@ VA - Empire Records - Enigma Alive 4 (2018) [MP3|320 Kbps] <Chillout, Downtempo.
 magnet:?xt=urn:btih:DA3EB59AF9438FD15D0134BC72DC93FF80FDBF89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +598,8 @@ VA - Счастливый случай. Сборник хитов от Русс�
 ```bash
 magnet:?xt=urn:btih:D6C44D390A755734C5993D2A999C126934F73FA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +628,8 @@ VA - The Best Dancing Hits of The 90’s years (2017) [MP3|320 Kbps] <Eurodance>
 magnet:?xt=urn:btih:90B9FDB5C50DE48F71BF8E7469CCA4F0FD158C42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +656,8 @@ VA - Road Blues: Top 50 Songs (2017) [MP3|320 Kbps] <Rock Blues, Folk Rock>
 ```bash
 magnet:?xt=urn:btih:4DEC81214089F36ED0138A94EA4DF01DE62050AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +686,8 @@ VA - Лучшие хитовые треки в стиле Chillout, New Age & Am
 magnet:?xt=urn:btih:43EB1A3F7F3B5785F5C67E2D6EBCAF24B18B01F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +715,8 @@ VA - Best Meditation Music 50 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instru
 magnet:?xt=urn:btih:4B63B8238873A2DA28B7C1EC252421ABC57D76A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ VA - Empire Records - Club Hit (2016) [MP3|268-320 Kbps] <Club, Dance>
 ```bash
 magnet:?xt=urn:btih:31C871935E95BBD5BCADC9EB7D4FE887191E8604
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Dale Cooper Quartet and the Dictaphones - Parole De Navarre (2006) [FLAC|Lossles
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ David Arkenstone - Ocean Dreams (2006) [FLAC|Lossless]<New Age>
 ```bash
 magnet:?xt=urn:btih:4CB1BEE4BD64E20E8DE869D6E72D59E3C396438E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ Deep Forest & Rahul Sharma - Deep India (2013) [APE|Lossless]<Ambient, World, Ne
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +121,8 @@ Deep Forest & Rahul Sharma - Deep India (2013) [MP3|320 кб/с]<New age, World>
 magnet:?xt=urn:btih:248D185379726E61B5EA85C9CD6A13B808048279
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +150,8 @@ VA - Крид: Наследие Рокки  / Creed (Original Motion Picture Sou
 magnet:?xt=urn:btih:3CD443B1C8A3A4591FDDA9D65322D9C7F8F66478
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +178,8 @@ magnet:?xt=urn:btih:3CD443B1C8A3A4591FDDA9D65322D9C7F8F66478
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +211,8 @@ David Arkenstone - Journey of the Whales (2006) [FLAC|Lossless]<New Age>
 ```bash
 magnet:?xt=urn:btih:7DC179FCF3879BF10797D631060E21EDF3E9DD87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +247,8 @@ Dum Dum Girls - Too True (2014) [MP3|192 кб/с]<Indie Pop>
 magnet:?xt=urn:btih:F3801C2349FCD96E2070C4F204EC076277620F0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +282,8 @@ Pucaramanta - Sound of the spirits (2010) [MP3|~190 кб/с (V2)]<Native America
 magnet:?xt=urn:btih:D439EBB0390D647F8B82AC433BC82CEDFA65AD28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +310,8 @@ VA - Birds of Prey / Хищные птицы (Потрясающая истор�
 ```bash
 magnet:?xt=urn:btih:311378A72E690E63E71DF6D75707451E779CD6A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +340,8 @@ VA - Birds of Prey / Хищные птицы (Потрясающая истор�
 magnet:?xt=urn:btih:74DAA493A30EB4F046789261BD6BF3130376FEDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +368,8 @@ VA - Birds of Prey / Хищные птицы: Потрясающая истор�
 ```bash
 magnet:?xt=urn:btih:11081F2F8024B90F4C36DC10BCA6AE62639DDDF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +398,8 @@ VA - 100 Greatest Modern Country Songs (2020) [MP3|320 Kbps] <Country>
 magnet:?xt=urn:btih:C4179D6A10AD2C5D64426BD3A7976C995C6A1E88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +426,8 @@ Bear McCreary - See / Видеть: Season 1 (Apple TV+ Original Series Soundtra
 ```bash
 magnet:?xt=urn:btih:E1C0307C71E69C4EC76E52B75765098B743424FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +462,8 @@ magnet:?xt=urn:btih:E1C0307C71E69C4EC76E52B75765098B743424FB
 magnet:?xt=urn:btih:AA0694AB2185CE9F47D9307C3D8B0BF75045D6F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +487,8 @@ magnet:?xt=urn:btih:AA0694AB2185CE9F47D9307C3D8B0BF75045D6F0
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +523,8 @@ VA - Instrumental Dreams (2013) [FLAC|Lossless]<Instrumental>
 magnet:?xt=urn:btih:608EC59E54E23CA31A2E048B2064C4CD45FAFA1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +557,8 @@ Mike Howe - 4 albums (2009-2013) [MP3|320 кб/с]<New age, Relax, Acoustic guit
 ```bash
 magnet:?xt=urn:btih:A778DCFD88EF8BBA95638066509FE4629F4BE59E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +593,8 @@ Eleni Karaindrou - 2 альбома ECM Records (1991 & 2008) [FLAC|Lossless]<Co
 magnet:?xt=urn:btih:E39508F72EC560FADD382F5231C69D290C809DF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +627,8 @@ Kevin Kern - Summer Daydreams (1998) [FLAC|Lossless]<New Age, Piano>
 ```bash
 magnet:?xt=urn:btih:30C6217CF2454888489542443C5EB458C7E8EA24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +663,8 @@ Eleni Karaindrou - The Suspended Step Of The Stork (1992) [FLAC|Lossless]<Soundt
 magnet:?xt=urn:btih:81B9C0546FFCCE31BF97B9D4DCD7CE7FEECF1E0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +691,8 @@ VA - Quentin Tarantino's The Hateful Eight / Омерзительная вось
 ```bash
 magnet:?xt=urn:btih:714B0B750589E2691BD649F6609AAD757B92E413
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -682,6 +726,8 @@ David Arkenstone - Healing Waters (2006) [FLAC|Lossless]<New Age>
 magnet:?xt=urn:btih:B66A0434245A166BA580B86028632A28826978BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -708,6 +754,8 @@ magnet:?xt=urn:btih:B66A0434245A166BA580B86028632A28826978BC
 ```bash
 magnet:?xt=urn:btih:1720B062A974FF1FF948667554E119641A194BE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -736,6 +784,8 @@ Shinnobu - The Enigma V (Masterminds) (2018) [FLAC|Lossless|WEB-DL|tracks] <New 
 magnet:?xt=urn:btih:7A9D49C8E8CA5497C891F6CA87CCDB7D3F423CBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -762,6 +812,8 @@ Medwyn Goodall - The Elixir of Life (2020) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 ```bash
 magnet:?xt=urn:btih:A1A546C97191DE2E1C41B3B56C7842E8877143A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

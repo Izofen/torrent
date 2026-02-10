@@ -20,6 +20,8 @@ Liar Liar | Лжец Лжец [2023, TV, 12 эп.] BDRip 1080p raw
 magnet:?xt=urn:btih:2EF90FCE6E0C85E538C0E46014AC8018210A8E9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Lv1 Maou to One Room Yuusha | Level 1 Demon Lord and One Room Hero | Однуш�
 magnet:?xt=urn:btih:C4A486169107C109D1FD3BCEEB1ACF2A59973953
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Oshi no Ko | Звёздное дитя [ТВ-1] [2023, TV, 11 эп.] BDRip 1080p
 ```bash
 magnet:?xt=urn:btih:933E02BCA1BAE7148C3FE33E81F2753455806698
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Tenpuru | Храм [2023, TV, 12 эп. + 2 SP] BDRip 1080p raw
 magnet:?xt=urn:btih:AC2459A6406B6231C077F63FF3FB580582F37FF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Watashi no Oshi wa Akuyaku Reijou. | I'm in Love with the Villainess | Я влю
 magnet:?xt=urn:btih:9B751494B6DB31F3B4D46FA4E39C44C72FF2B546
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Masamune-kun no Revenge R | Masamune-kun's Revenge R | Месть Масамун
 ```bash
 magnet:?xt=urn:btih:25DCBB0C70EFF2F14633E301AED6CB74A0C4049C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ The Klutzy Witch | Rakudai Majo: Fuuka to Yami no Majo | Ведьма-неуда
 magnet:?xt=urn:btih:FC7ACAEC9FB6E2D8E958F567FEA54A382D3E49B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Ars no Kyojuu | Giant Beasts of Ars | Гигантские звери Арса [
 ```bash
 magnet:?xt=urn:btih:AB652EC3D80A320A2A26D3048BDA1AAFF2357837
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Nanatsu no Maken ga Shihai Suru | Reign of the Seven Spellblades | Семь гл
 magnet:?xt=urn:btih:4C45DF20C3B076B425129C2ACAAF6F24BBBFF397
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Maou Gakuin no Futekigousha II | The Misfit of Demon King Academy II | Непр�
 ```bash
 magnet:?xt=urn:btih:F292A244DDB5B244752F8987DB3BF898AE95AF99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Level 1 Dakedo Unique Skill de Saikyou Desu | My Unique Skill Makes Me OP Even a
 magnet:?xt=urn:btih:2F0262933C0B58CF987D73569B2266266D8F0BE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Tensei Kizoku no Isekai Boukenroku: Jichou o Shiranai Kamigami no Shito | Пут
 magnet:?xt=urn:btih:66250C4DDFFBB3E692025A0AA5DC6678FAE44B1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Horimiya | Хоримия [2021, TV, 13 эп.] BDRip 1080p raw
 ```bash
 magnet:?xt=urn:btih:D7DB178814B7EA41100FD974A89C81ED3D4D1DF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Gekijouban Psycho-Pass: Providence | Психопаспорт: Провиден�
 magnet:?xt=urn:btih:18D202496F435F8F47B90E5DD220C520741467C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Tondemo Skill de Isekai Hourou Meshi | Campfire Cooking in Another World with My
 ```bash
 magnet:?xt=urn:btih:4ED51F5884B33C7C45C28A21497DE58B49B42902
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Tsundere Akuyaku Reijou Liselotte to Jikkyou no Endou-kun to Kaisetsu no Kobayas
 magnet:?xt=urn:btih:1549DFA8E7540261DFCA4EF9DC9CD8177EA38227
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Princess Principal: Crown Handler | Принцесса-шпионка: Укро�
 ```bash
 magnet:?xt=urn:btih:ED93ECF9A810E20ADFB33C177458CC2DFE37B2A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Megami no Cafe Terrace | The Cafe Terrace and Its Goddesses | Богини ка�
 magnet:?xt=urn:btih:A3131B026EB35031FF2AD595287C08D55B500DE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Kono Subarashii Sekai ni Bakuen o! | Konosuba: An Explosion on this Wonderful Wo
 ```bash
 magnet:?xt=urn:btih:52640635C5BA485072B4F1DCBC95E0FC66DD3460
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Isekai de Cheat Skill o Te ni Shita Ore wa, Genjitsu Sekai o mo Musou Suru: Leve
 magnet:?xt=urn:btih:1B95055F12AA67C9F1928CDC5C7FE85D8A009FD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Onii-chan Dakedo Ai Sae Areba Kankeinai yo ne! | Мой «комплекс бр�
 ```bash
 magnet:?xt=urn:btih:B1BED24023FDEE4F6F41A526EC3D051F031BE35D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Shuumatsu no Walkure II | Record of Ragnarok II | Повесть о конце �
 magnet:?xt=urn:btih:EEF85F05769DFD61150CEE6B4B2806B83DB28841
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Buta no Liver wa Kanetsu Shiro / Heat the Pig Liver / Разогревай св�
 magnet:?xt=urn:btih:5F0A5541D01B87B7DE745E31243CC673C939E0E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Ao no Orchestra Season 2 | The Blue Orchestra 2 | Синий оркестр [Т�
 ```bash
 magnet:?xt=urn:btih:459846DE4708355FF540FAB67F71366EAA4D0C41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Ninja to Gokudou | Ninja vs. Gokudo | Ниндзя и якудза [2025, TV, 1 
 magnet:?xt=urn:btih:D3BA656E6030801730126D2B6233C67D0CAD9CB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Jashin-chan Dropkick: Seikimatsu Hen | Дропкик злого духа (2023)
 ```bash
 magnet:?xt=urn:btih:52AD029B48D273354BF8DA9D9D408EE465A6857F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

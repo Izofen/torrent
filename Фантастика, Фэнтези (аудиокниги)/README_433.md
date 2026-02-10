@@ -1,3 +1,29 @@
+###  Публикация: 1022975   (726370) от 04.06.2016
+
+Никита Аверин, Игорь Вардунас | Революция (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что делать, если мир стоит на краю гибели и Конца света не избежать? Если ты можешь полагаться только на себя и собственные силы, ведь никому нельзя доверять? Война между корпорациями «Хронос» достигает своего апогея, и каждому из участников битвы предстоит сделать свой выбор, свой ход на грандиозной шахматной доске, в которую превратилась планета. У кого хватит (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 08:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33C05FD76D7A0DE8CB7BE8272AA6B6EB5740EB15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022976   (726418) от 04.06.2016
 
 Никита Аверин, Игорь Вардунас | Реконструкция (2016) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:1DA763927DA81766FAD89013DBD6FA64BCE42BA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:1DA763927DA81766FAD89013DBD6FA64BCE42BA8
 magnet:?xt=urn:btih:0532B197B7A198A29B2C9CA2F3418E5E8D42E855
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:0532B197B7A198A29B2C9CA2F3418E5E8D42E855
 magnet:?xt=urn:btih:4592EFB6180B487C3AC3F09BDF7DE2D9099EBEDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:4592EFB6180B487C3AC3F09BDF7DE2D9099EBEDE
 ```bash
 magnet:?xt=urn:btih:194DF6D07F64CFF53234E925E1EB218A6FE6237F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:194DF6D07F64CFF53234E925E1EB218A6FE6237F
 magnet:?xt=urn:btih:865453B499C8F46A3CB2B70ED94270712B3EDD25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:865453B499C8F46A3CB2B70ED94270712B3EDD25
 magnet:?xt=urn:btih:20232F3BCBAB9B992D2D59C83FA8E08A0ADF2D7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:20232F3BCBAB9B992D2D59C83FA8E08A0ADF2D7B
 magnet:?xt=urn:btih:E2BF46742E06A785E5395C742B4FBDA8B1B62A14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:E2BF46742E06A785E5395C742B4FBDA8B1B62A14
 ```bash
 magnet:?xt=urn:btih:ADAD21DC15EB57F22509178FD7BDBD3D266624A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:ADAD21DC15EB57F22509178FD7BDBD3D266624A4
 magnet:?xt=urn:btih:D056E22BF19F8F05CBAC89A7CC553B164EB761D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:D056E22BF19F8F05CBAC89A7CC553B164EB761D7
 ```bash
 magnet:?xt=urn:btih:F0D1FD32284C145C348A1D8D53CE87AECB833C73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:F0D1FD32284C145C348A1D8D53CE87AECB833C73
 magnet:?xt=urn:btih:F5D5B5AA99848CB7319FDE9576A5CB397E9297DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:F5D5B5AA99848CB7319FDE9576A5CB397E9297DD
 ```bash
 magnet:?xt=urn:btih:ECC7A12A1BD6994D08CBE77F48913CC216F7869B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:ECC7A12A1BD6994D08CBE77F48913CC216F7869B
 magnet:?xt=urn:btih:FF69C7E81859EB5EAEE7B35233FC24783524F0AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:FF69C7E81859EB5EAEE7B35233FC24783524F0AC
 ```bash
 magnet:?xt=urn:btih:10C27E54DF24801A104E1A2ED29A4A02928A5674
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:10C27E54DF24801A104E1A2ED29A4A02928A5674
 magnet:?xt=urn:btih:B3A6277939392E7E0A0CB76A3C72818738747835
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:B3A6277939392E7E0A0CB76A3C72818738747835
 magnet:?xt=urn:btih:CBF9E7DE05CFA1DFF655E728065570A0892B07C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:CBF9E7DE05CFA1DFF655E728065570A0892B07C1
 ```bash
 magnet:?xt=urn:btih:F43F77CC931B18FB3A74AEE0217321051A85DBC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:F43F77CC931B18FB3A74AEE0217321051A85DBC4
 magnet:?xt=urn:btih:D914535C3D0CC7B351FBA8EC7E64589150526B8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:D914535C3D0CC7B351FBA8EC7E64589150526B8A
 magnet:?xt=urn:btih:ABC63E2C4353C555E9061355D4ABAB38DA988719
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:ABC63E2C4353C555E9061355D4ABAB38DA988719
 ```bash
 magnet:?xt=urn:btih:B9CA4412F6FA612E926BAB57E2091988DA3CABFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:B9CA4412F6FA612E926BAB57E2091988DA3CABFD
 magnet:?xt=urn:btih:508B75C12375F8434175082F96D6B8626CE0089E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:508B75C12375F8434175082F96D6B8626CE0089E
 ```bash
 magnet:?xt=urn:btih:501597E0E9FFD1566F016096BB99E9C9EDBE70C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:501597E0E9FFD1566F016096BB99E9C9EDBE70C2
 magnet:?xt=urn:btih:FE7BFBB48217610C83707E650649828199DCD7D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:FE7BFBB48217610C83707E650649828199DCD7D0
 ```bash
 magnet:?xt=urn:btih:8D88A1F6A7C1F912F4DF970A628F92AE80E2CA1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,29 +680,7 @@ magnet:?xt=urn:btih:8D88A1F6A7C1F912F4DF970A628F92AE80E2CA1E
 magnet:?xt=urn:btih:2AF2920579B4228DD7FE0C524F111C6ECDC98984
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022044   (728933) от 02.06.2016
-
-The Descendant | Юноша в саду (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728933.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 сентября 1862 года стало самым кровавым днём в истории Америки. Именно тогда во время Гражданской войны США состоялось сражение между федеральной армией и силами Конфедерации возле реки Энтитем-Крик, что рядом с городом Шарпсбург, штат Мэриленд. А вчера Флаттершай напевала что-то весёлое себе под нос, поливая сад. И эти события связаны между собой.Жанр: Драма, фантастикаПродолжительность: 02:00:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC5103556734CFBFC0593641B9ECBC9CCEEDDBB7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

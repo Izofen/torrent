@@ -21,6 +21,8 @@ The Swapper (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [Multi]
 magnet:?xt=urn:btih:E87652BF9DD117505FD84454B6913F5AEEBB5397
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Disney Infinity 2.0 (2014) [PS3] [EUR] 4.60 [Cobra ODE / E3 ODE PRO ISO] [Licens
 magnet:?xt=urn:btih:5E47925371AD4B42F050D3FBC8FCD29716AD1472
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ flOw — это видеоигра разработанная Йеновой Ч�
 ```bash
 magnet:?xt=urn:btih:525E8AA9A8FFCE46CF2DC8C7C48F308E4441B9D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ New Super Mario Bros. U
 magnet:?xt=urn:btih:6D6C8D4EC634DCEFC6ADE3010F0166696A0330EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Hyrule Warriors (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack / 1.9.0] [Multi
 ```bash
 magnet:?xt=urn:btih:06229EEE45320455FF4C3F444A00410EDAAC0DCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:06229EEE45320455FF4C3F444A00410EDAAC0DCA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Beat Saber (2018) [Other] [USA] 9.0 [License] [En] [VR]
 ```bash
 magnet:?xt=urn:btih:D4B793C4E40E58C5580A8A8FE797B12C41F1C440
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Farming Simulator 15 - это открытый мир и улучшенная г
 magnet:?xt=urn:btih:96CBF8FF7573AD1F476B865434EA19396F1A8170
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Call of Duty: Ghosts (2013) [PS3] [EUR] 4.40 [OFW / CFW] [DLC] [Repack] [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:F67483D8241BE3FA7197A5B34C2167EF39622750
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Rio [Wii] [PAL] [Multi 5] (2011)
 magnet:?xt=urn:btih:DC01DA46DE6E72609425158B941D783E85FBD3DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Super Time Force Ultra – это наполненный действием пл
 ```bash
 magnet:?xt=urn:btih:99F0D4AFE29B2D6CBE8DDB3A930EC7B845FACBDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Affordable Space Adventures (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [Mu
 magnet:?xt=urn:btih:13F44A18781D699FCF90DE272B7FAC66136EF4D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Cabela's Dangerous Hunts 2013 [PS3] [USA] [4.21] [Cobra ODE / E3 ODE PRO ISO] (2
 ```bash
 magnet:?xt=urn:btih:7BFC95C1F3DECECBDF64259B318470EB92564048
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Disney Epic Mickey 2: The Power of Two (2013) [PSVita] [EUR] 3.60 [NoNpDrm] [Lic
 ```bash
 magnet:?xt=urn:btih:C2CEC34009346F67AFFCF894C1A546FB8E8538FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ Project Zero: Maiden of Black Water - леденящий душу хоррор, 
 magnet:?xt=urn:btih:5FCC3081CE6F33AC084E89D5F9742DD33870B1CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ Rayman Legends (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Multi]
 ```bash
 magnet:?xt=urn:btih:0892535D46EF3E608ACC8FAAA5D63ACE0F94FFBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ Mario vs. Donkey Kong: Tipping Stars (2015) [WiiU] [USA] 5.3.2 [Loadiine GX2] [e
 magnet:?xt=urn:btih:20607473B3521D3FD55A0F28E8A1A14D43DAAACE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ The Wonderful 101 (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack] [Multi]
 ```bash
 magnet:?xt=urn:btih:05DD05D04BB446D5953994973A0ECE4BFFBCCC97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ PSN minis - яркие, увлекательные, простые в освое
 magnet:?xt=urn:btih:98A698EC8B2B1DD1C6B53E9032F65A49BB350B41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ Earth Defense Force Insect Armageddon (2011) [PS3] [USA] 3.56  [Cobra ODE / E3 O
 magnet:?xt=urn:btih:483559243DD8A5F495B1F0F78EB7FE97CF5974BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ Tom Clancy’s EndWar (2008) [PS3] [EUR] 2.60 [Cobra ODE / E3 ODE PRO ISO] [Lice
 ```bash
 magnet:?xt=urn:btih:95A69442CCC98A1C5C581759D7926FFF856D3CB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ Donkey Kong Country: Tropical Freeze — это новейший и первый
 magnet:?xt=urn:btih:A4C64D68B80DAEC382CE37CA7D2A061A05E683E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ Splatoon предлагает взглянуть на шутеры с новой
 ```bash
 magnet:?xt=urn:btih:0C695D9C3E7BE604CE755A2CC199923AF865D634
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ Pikmin 3 (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack] [Multi]
 magnet:?xt=urn:btih:DA3B2E328498A453600ABF8ECBACA0CEC1C63F13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ Batman: Arkham Origins Blackgate.
 magnet:?xt=urn:btih:185183CE7F427ACD47BCA2FCFA58EDE5028E8674
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ KKnD: Krossfire - одна из лучших стратегий на перво�
 ```bash
 magnet:?xt=urn:btih:994CE87AA352D2E942D186FAC0C519FC0CC36CAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

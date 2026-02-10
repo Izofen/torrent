@@ -22,6 +22,8 @@ VA - Select Mix Essentials Vol. 193 (2023) [MP3|320 Kbps] <Disco, Synthpop, Rap,
 magnet:?xt=urn:btih:BD2CD01598E9CED817E012DBBB2AB3CADE8D2449
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:BD2CD01598E9CED817E012DBBB2AB3CADE8D2449
 ```bash
 magnet:?xt=urn:btih:35E564C7CB7B35B8D9687F0A4D2C60AD767D0C29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:35E564C7CB7B35B8D9687F0A4D2C60AD767D0C29
 magnet:?xt=urn:btih:D47F57F437E87B9F2357460F6A650E429F0E33C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ xLine  – приложение, позволяющая визуализиров
 ```bash
 magnet:?xt=urn:btih:88312CB93F55F632A3A5878AE8EB2DB323DE61EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Duplicate File Finder - утилита, которая находит дубли
 magnet:?xt=urn:btih:51E79BDC4E2C1196DBA11502FFDAD8196BC8C275
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:51E79BDC4E2C1196DBA11502FFDAD8196BC8C275
 ```bash
 magnet:?xt=urn:btih:A36D98C3565FCE818587397B084F7DF5666C4443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ Mercy Shot - Brace For Impact! (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' He
 magnet:?xt=urn:btih:FF0DD0B8ABD611948C046F4C0E3CADC1C298B11D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ DaisyDisk - утилита которая весьма необычным обр
 ```bash
 magnet:?xt=urn:btih:F14BCCE5345023C76FB1B78E57E6ABEE7D5A6273
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ Fange - Privation (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Sludge, Death
 magnet:?xt=urn:btih:18B7CAB07D21D3C650DF05427F800751CC6167CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ Pressure Points - Remorses To Remember (2010) [FLAC|Lossless|image + .cue] <Prog
 magnet:?xt=urn:btih:90A4B7D16A324C37962AC026C4403CF68C127E45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ magnet:?xt=urn:btih:90A4B7D16A324C37962AC026C4403CF68C127E45
 magnet:?xt=urn:btih:2F278ECBF4798873E635EA5FBB1C59188A78DCDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:2F278ECBF4798873E635EA5FBB1C59188A78DCDF
 ```bash
 magnet:?xt=urn:btih:37C13277A40D156259E125114D0D9158E9849536
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ The Weight of Atlas - The Art of Letting Go Pt:I (2021) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:B1E4912B64F400791353CD81CB9FF23A8C00771E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:B1E4912B64F400791353CD81CB9FF23A8C00771E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ magnet:?xt=urn:btih:B1E4912B64F400791353CD81CB9FF23A8C00771E
 magnet:?xt=urn:btih:CB6A696AB725D5EF4419ADE9D3F9A3983D84FF48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:CB6A696AB725D5EF4419ADE9D3F9A3983D84FF48
 ```bash
 magnet:?xt=urn:btih:4835A8A6EE3D3BEE30562F8C3BFD4FA15865A505
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ magnet:?xt=urn:btih:4835A8A6EE3D3BEE30562F8C3BFD4FA15865A505
 magnet:?xt=urn:btih:87E5B8B2E0DF77A1B1E056CAA240AB5058CA185A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ Visceral Games | Артбук по игре Dante's Inferno / Dante's Inferno - 
 ```bash
 magnet:?xt=urn:btih:BBCBB70DA8D921C1F0F18BCE32E5AB73B6386D52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ magnet:?xt=urn:btih:BBCBB70DA8D921C1F0F18BCE32E5AB73B6386D52
 magnet:?xt=urn:btih:669A046F17B0F6201CD28D52EE35BB220D35F6A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ Days - Countdown for Menu Bar 1.9.1 [En]
 ```bash
 magnet:?xt=urn:btih:C97B330F47DC2FCC8301E8ADB236F8927633550A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +567,8 @@ For Giants - There, There (2021) [MP3|320 Kbps] <Progressive Metal, Djent, Instr
 magnet:?xt=urn:btih:C7A165D8AAB33DC46F61A6B57E63297C7FCA44AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ magnet:?xt=urn:btih:C7A165D8AAB33DC46F61A6B57E63297C7FCA44AE
 magnet:?xt=urn:btih:FCAEE055C54573D7B19EB89D03C5FBB2D3E0EE23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ Boku ga Aishita Subete no Kimi e | To Every You I've Loved Before | Каждом
 magnet:?xt=urn:btih:73B314A56BB614998A2D95BB2EFA946DA48FADA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ RTG. Природный парк «Оленьи Ручьи» (2013) HDTV [H.264/
 ```bash
 magnet:?xt=urn:btih:A91C3DBB3267C8AC7CE7B828705478A8345707B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:1408C9FF888F99435306CB203CF5195F18BB1ADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ TreeSize Professional - мощное и гибкое средство визуа
 ```bash
 magnet:?xt=urn:btih:3F2E46166F448C0AACCF7979F585854A77D9C58B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

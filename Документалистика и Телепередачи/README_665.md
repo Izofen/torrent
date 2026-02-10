@@ -1,3 +1,29 @@
+###  Публикация: 1101467   (895894) от 06.02.2017
+
+Военная приемка. Электронные секреты «Ратника» (05.02.2017) HDTVRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все, кто интересуется армией, знают, что такое «Ратник». Новую боевую экипировку, принятую на вооружение Министерством обороны, многие называют русскими боевыми доспехами будущего. Но ведь «Ратник» – это не только форма, но и огромное количество электронных систем, которые, например, позволяют управлять взводом солдат в режиме онлайн. Это множество электронных датчиков, (   Читать дальше...   )Телекомпания: ЗвездаЖанр: Телепередача, ДокументальныйПродолжительность: 00:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A93D9CC1E0B7359476B864969AB6445FEE40F0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100912   (895901) от 06.02.2017
 
 Раскрывая невидимую вселенную / Invisible Universe Revealed (2015) WEBRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:7DD967C96F8BFAAB18B61A4DC94BE5B426E876D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:7DD967C96F8BFAAB18B61A4DC94BE5B426E876D0
 magnet:?xt=urn:btih:0B96A82347F4D74B1AFEB6BDD14150D357565D34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:0B96A82347F4D74B1AFEB6BDD14150D357565D34
 ```bash
 magnet:?xt=urn:btih:BAAEBED8B4343C491AB9E40412FBC8470B9F25AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:BAAEBED8B4343C491AB9E40412FBC8470B9F25AC
 magnet:?xt=urn:btih:92B1E003B8AB50FEA0D0BFA32844835CBD40E151
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:92B1E003B8AB50FEA0D0BFA32844835CBD40E151
 ```bash
 magnet:?xt=urn:btih:6C80C054E7A45AD63A8ABAE4E9B9A76FA27D536E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:6C80C054E7A45AD63A8ABAE4E9B9A76FA27D536E
 magnet:?xt=urn:btih:51B99DA3747CCCA483C145B4F1807C270A0864F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:51B99DA3747CCCA483C145B4F1807C270A0864F8
 ```bash
 magnet:?xt=urn:btih:473FC7F61330691048F85CEA20356FB0D7DDB575
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:473FC7F61330691048F85CEA20356FB0D7DDB575
 magnet:?xt=urn:btih:7C4F8481232D1AD38766D03803257967E5311A08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:7C4F8481232D1AD38766D03803257967E5311A08
 magnet:?xt=urn:btih:1E78DD13F654FE960716B299D42792F801302BBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +278,8 @@ magnet:?xt=urn:btih:1E78DD13F654FE960716B299D42792F801302BBC
 ```bash
 magnet:?xt=urn:btih:45ED6452CC703904A651DE95D82C1E9BC14F342B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:45ED6452CC703904A651DE95D82C1E9BC14F342B
 magnet:?xt=urn:btih:C632C9F9C64971EBBE100DF1F9486CC5BA7738D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:C632C9F9C64971EBBE100DF1F9486CC5BA7738D1
 ```bash
 magnet:?xt=urn:btih:727F9AF053239F8721574709C572C536C80CD218
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:727F9AF053239F8721574709C572C536C80CD218
 magnet:?xt=urn:btih:2F4E1969DFEEF4769F8D45ECCC38AE9569D68BF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:2F4E1969DFEEF4769F8D45ECCC38AE9569D68BF1
 ```bash
 magnet:?xt=urn:btih:C58A778D3A9A0CC8A74105CB154CAD133DF313E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:C58A778D3A9A0CC8A74105CB154CAD133DF313E9
 magnet:?xt=urn:btih:120D1FD8D2814957593F42BD97E896B6BC2B80C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:120D1FD8D2814957593F42BD97E896B6BC2B80C3
 ```bash
 magnet:?xt=urn:btih:7BE09B75B422CFDE8B8B87176FD48EA425608584
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:7BE09B75B422CFDE8B8B87176FD48EA425608584
 magnet:?xt=urn:btih:762E087628E98D445D028F5B03E0A945ED1C63DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:762E087628E98D445D028F5B03E0A945ED1C63DF
 magnet:?xt=urn:btih:78E6A57F6924953455D4B2226E5655C272D20D42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +513,8 @@ magnet:?xt=urn:btih:78E6A57F6924953455D4B2226E5655C272D20D42
 ```bash
 magnet:?xt=urn:btih:E7F31677BE09C04D0BECACED77ADC992E6483731
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:E7F31677BE09C04D0BECACED77ADC992E6483731
 magnet:?xt=urn:btih:7E91462E8234AFF772E65541D764709FFFDF76B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:7E91462E8234AFF772E65541D764709FFFDF76B4
 ```bash
 magnet:?xt=urn:btih:8173805CF51904C98A721E4624EC748350E4319E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:8173805CF51904C98A721E4624EC748350E4319E
 magnet:?xt=urn:btih:A47A31B04B07559FA172C22A0E22C3EAEFC4EB50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:A47A31B04B07559FA172C22A0E22C3EAEFC4EB50
 ```bash
 magnet:?xt=urn:btih:63F8C748E521E23865A25C16938EDBFA9BA619BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:63F8C748E521E23865A25C16938EDBFA9BA619BC
 magnet:?xt=urn:btih:4BC2D8C3B332A11EE781EF085C4D57CB10C1CB8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,29 +671,7 @@ magnet:?xt=urn:btih:4BC2D8C3B332A11EE781EF085C4D57CB10C1CB8C
 magnet:?xt=urn:btih:64139F72399ACBE51DDFF35181B9D4E800645D09
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993299   (897564) от 04.03.2016
-
-Вечерний Ургант. Сезон №9. Выпуск №25 (2016.03.04) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6585B4C18B68A6350D1ED0B4D55C78CC447C0A37
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

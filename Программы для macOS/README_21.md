@@ -19,6 +19,8 @@ HitPaw Video Enhancer помогает масштабировать видео �
 magnet:?xt=urn:btih:5AB6666103AA6C07685848C261F353B21D49FAD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ DxO PureRAW 3 for Mac v.3.9.0 [Multi]
 magnet:?xt=urn:btih:D55133DC2CF8F47FF764400BFD1FC70F87D4C042
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Blackmagic Design Fusion Studio 18.6.4 [En]
 magnet:?xt=urn:btih:35CC5D1818F45DD83B5BEB953FAF4E49203FC378
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Eon Timer 2.9.11 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:82CA13B66ADA6B3D6136F84501C703BD1E16C5BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ SpamSieve 3.0.1 [En]
 magnet:?xt=urn:btih:2111311B5C035757972B288FA964AA12E8A193E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ OnlySwitch предоставляет серию тумблеров/перекл
 ```bash
 magnet:?xt=urn:btih:FDCCD7E3A60C4382A78F8CDE8FEC0AACC015AF9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ MP3 Encoder позволяет конвертировать различные �
 magnet:?xt=urn:btih:B293954D5BA91B6C60C6C4EC71F14D128EA9BCE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Ethernet Status - LAN Status  5.7 [En]
 ```bash
 magnet:?xt=urn:btih:1E7554FAF8D699356BBCE383C24A049F22457170
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Folder scanner - визуально анализирует диск / папку
 magnet:?xt=urn:btih:A8820C73DD6035B87E094F2433C2151164781B52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Pro Audio Converter  - мощный конвертер аудио файлов
 ```bash
 magnet:?xt=urn:btih:921DA12C1A4F3CEDA8A0BF004EBA9D61F97BDB07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ Yandex Music Unofficial for Mac 1.8.1 [Multi/Ru]
 magnet:?xt=urn:btih:A486C8F65F2455621E0DE588320B50A703C2F79B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Little Snitch 5.7.3 [Multi]
 ```bash
 magnet:?xt=urn:btih:1AC4A7123109E8E54B15CC5153C1E7D16DF1033F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ Tagr - редактор метатегов. Tagr поможет вам орга�
 magnet:?xt=urn:btih:6B8F3B0E878515FDCC6EA7B541A4F4B7C82A2189
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ MacPilot 15 v.15.0.3 [En]
 ```bash
 magnet:?xt=urn:btih:DEB3D30BE98879ACE0A2A30D3DE65305F68849EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ Weather Widget Live Full for Mac 5.1.1 [Multi/Ru]
 magnet:?xt=urn:btih:85131ADD8B2BC9A97106B4F771DBB572C43A8155
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ Speedio: Internet Speed Test 3.9 [Multi]
 magnet:?xt=urn:btih:E6132FE9A037249289CA03BFF214B7BEB91B2D33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ iON: Internet Status 5.7 [Multi]
 ```bash
 magnet:?xt=urn:btih:4D43163591E0EC8757EB3B4EB1669D37841E372E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ TransData: Internet Data Speed 3.2 [Multi]
 magnet:?xt=urn:btih:23A35F0FFC073A1AC3A4FFA9D28399DDBF909954
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ Butler – менеджер, который дает доступ к прило�
 ```bash
 magnet:?xt=urn:btih:A2D00A298C99590B84DD35BB0AD84303105BF0C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ EzyCal - это продуктивный график строки состоя�
 magnet:?xt=urn:btih:CE6C8B9A488C1E2C779F7B630ECB280ECCA42E3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ Clipsy записывает в буфер обмена историю скопи
 ```bash
 magnet:?xt=urn:btih:D2717603073BE008BE600E99850BF485DA761CA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ Cover Desk 1.7 [Multi]
 magnet:?xt=urn:btih:2B665A06EC7F7A4AB8CDB413F6FB939BA23C40E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ Linguist - быстро перевести текст с любого языка
 magnet:?xt=urn:btih:EDF59C9BD20257A4DC6AC66AE7C83E006F31C090
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ Aiseesoft Mac Video Converter Ultimate - мощная программа для 
 ```bash
 magnet:?xt=urn:btih:516620F0E0608273071374CF6C7307EE915A2324
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ Alarm Clock Pro представляет собой многофункциона
 magnet:?xt=urn:btih:3AE998BF6669EE507105EF7FDAB43AF9FBBB261B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ FonePaw iOS Transfer for Mac 6.0.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:40E8013F96A8874DE85C39080B0C46D2F5A7314E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

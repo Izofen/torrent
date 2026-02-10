@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Godsmack - IV (2006) Reissue, 2024, Universal Records [FLAC 24/96|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:7877EC77C7DE4C21FAF358A1217C8DE8E223AFF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Asia - XXX (2012) Japan Edition [FLAC|Lossless]<Progressive Rock>
 magnet:?xt=urn:btih:5AD50813801FD4958EA6E0323E88DE7CEFBC7837
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:5AD50813801FD4958EA6E0323E88DE7CEFBC7837
 magnet:?xt=urn:btih:E5E85082A8DDCA83E6220EAFAEE93952CC1C8577
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:E5E85082A8DDCA83E6220EAFAEE93952CC1C8577
 ```bash
 magnet:?xt=urn:btih:61B028EA52ED59A84BFD1823E7E3429FBD610A45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Evergrey — Шведская прог-металлическая команда
 magnet:?xt=urn:btih:5DE003F1807FADA4E8EEF5E526F72605AF7FBBF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Tetris Forever посвящён сорокалетию не имеющей се�
 ```bash
 magnet:?xt=urn:btih:420867558D58BEB2728F1741CDF0BB4276AB365F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:420867558D58BEB2728F1741CDF0BB4276AB365F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:420867558D58BEB2728F1741CDF0BB4276AB365F
 ```bash
 magnet:?xt=urn:btih:BC80C45744F3AE4E00484A4446D0E1E97592EBEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:BC80C45744F3AE4E00484A4446D0E1E97592EBEA
 magnet:?xt=urn:btih:328C8F146D8871DC1EE1CA6339C8C310F66D7C3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ Tavern Talk бросает вас в самое сердце фэнтезийн�
 magnet:?xt=urn:btih:768D6A8F65BC12F29CCC821A91A2C8301689B6C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:768D6A8F65BC12F29CCC821A91A2C8301689B6C9
 ```bash
 magnet:?xt=urn:btih:B5F1FF24A4E38FDAE0BF84161926F222953E0DCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:B5F1FF24A4E38FDAE0BF84161926F222953E0DCE
 magnet:?xt=urn:btih:A5B955B91B9C8505BDD306A0854DBFA940997562
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:FEFB3C484D63D43A1DBD0C3A5EF6857EEA28E558
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:FEFB3C484D63D43A1DBD0C3A5EF6857EEA28E558
 magnet:?xt=urn:btih:0FE61587C7743437F92A889F11BEA09848F0A0A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ Black Book / Черная Книга (2021) [Ru/Multi] (build 12000953) Repack d
 ```bash
 magnet:?xt=urn:btih:0FF7D5DDF79435AB4DE543A59317D1885A2C554D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:0FF7D5DDF79435AB4DE543A59317D1885A2C554D
 magnet:?xt=urn:btih:8C721A2393B09F1E4F7CB85499C98D3BF796A6CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ Sker Ritual – фантастический боевик, который мож
 ```bash
 magnet:?xt=urn:btih:6AB717BC8EF36A9134CE538A8103807377B6BA36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ Download Master эффективно решает 3 главных пробле�
 magnet:?xt=urn:btih:021AD7A253320F78548D2634759CFB6F8FFD140D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:021AD7A253320F78548D2634759CFB6F8FFD140D
 ```bash
 magnet:?xt=urn:btih:0AB91CB0B11F1EA7AAF21D4D5CDBF5EC80C54CAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:0AB91CB0B11F1EA7AAF21D4D5CDBF5EC80C54CAE
 magnet:?xt=urn:btih:A4B254D6C46F995201C6562D5AD199D7127EA67E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:A4B254D6C46F995201C6562D5AD199D7127EA67E
 ```bash
 magnet:?xt=urn:btih:6A61AE1DD63300CDE5E0BBBF5E2778EDE45E4AD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ S.T.A.L.K.E.R. 2 подошел к запретной зоне
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ S.T.A.L.K.E.R. 2 подошел к запретной зоне
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ art of rally - раллийная игра от создателя игры Abso
 magnet:?xt=urn:btih:A7A7D5B3064CF05A1FAAC0665B9BABC3629D085D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:A7A7D5B3064CF05A1FAAC0665B9BABC3629D085D
 ```bash
 magnet:?xt=urn:btih:84FF74AAD1571D75E5F2A444509A228C8BF54331
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

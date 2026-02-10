@@ -21,6 +21,8 @@ RustDesk Remote Desktop – программное обеспечение для
 magnet:?xt=urn:btih:9DB945DD9A736E41C2E9151EB046C0E26AF0C7EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:0634E24BA598A38A46BA8B0C345F4EE3AF834F0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Notepad++ - бесплатный редактор текстовых файло�
 magnet:?xt=urn:btih:D741F2498FBD1428FC808882AA9C5C18DF5A5ED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:F1ABAFE0684D413EEEE34D54726D9928408F4250
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:0ED732F2F7BA677E8C3970D33E55218804FFF2A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ MassTube — очень простая в использовании прогр�
 ```bash
 magnet:?xt=urn:btih:DB6C13527CF4DE52A46137730500C52E2385A033
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Allavsoft Video Downloader Converter - это мощный видео загру
 magnet:?xt=urn:btih:BD49B6BF36B2A44BA3AE4F03F8D6FFB34DC13F4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ InnoExtractor - это приложение, которое поможет ва�
 ```bash
 magnet:?xt=urn:btih:5976DD7E23A158FAC325E4092205D4EF21A5AFEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ DVDFab – мощный, многофункциональный программ
 magnet:?xt=urn:btih:30BAFB1DBD64A0C73A309FA7CA5388F48155D342
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:C8F5336F49FF54506D41D966AB5BBC5E74613CAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ RadioMaximus 2.33.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:AAA805C9E4641005DF3E12F47BCBF8C4C4211317
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:88B20B933E4DCA4F4601ACB6F3B15BA9262F043D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:A1AA02B4FA34771959AD2229600FDD244699E1FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Psiphon - это новый инструмент обхода интернет-�
 magnet:?xt=urn:btih:132F2D6FA7167C6829550DE4F85512D9A3A62EF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Office Installer - программа предназначена для online �
 ```bash
 magnet:?xt=urn:btih:EF28238B15CEA854EF75F972AD914A37E0F3E61E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:6A93289C2E8BDF1E184EB2E18F4F710A5767650B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:0EDFC037BD95ED9BAC1F13B1990930D422BCBCBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ MediaHuman YouTube Downloader 3.9.18 (1711) [Multi/Ru]
 magnet:?xt=urn:btih:9200561F3FDF354B7C32448F9C444BA582CCCE32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:55E04CFE77E849AC16FAFB9E3205EBE002AB69A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ iTubeGo YouTube Downloader 10.9.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:C170C159296CE29F99749BE389FD9DDE16E525F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ MSI Afterburner - утилита для разгона видеокарт люб
 ```bash
 magnet:?xt=urn:btih:9821F4066A48D2246A890249D618CF36D902B34C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ MathType - это мощный интерактивный инструмент, 
 magnet:?xt=urn:btih:ADE9B71E5086FD253D25EB974CC02E69FB115A09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:F7485970C89508CCD128CA3D653D703AEF59DFC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ MediaHuman YouTube Downloader 3.9.18 (1711) RePack (& Portable) by elchupacabra 
 magnet:?xt=urn:btih:342EDD1510726843CD3975FB085D39F00E8ABEAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:667ADC30A62B6325CD580097CB32052ADC91CC87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:1BCDBB7EE6243EA31678C77CA665326B43D536CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

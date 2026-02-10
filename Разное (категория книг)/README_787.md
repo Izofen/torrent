@@ -1,3 +1,29 @@
+###  Публикация: 1617366   (1035266) от 06.03.2023
+
+Дмитрий Гриц | Адвокат бизнеса: 20 юридических консультаций понятным языком (2019) [FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основные задачи предпринимателя в России, особенно на старте, – это выжить, найти клиентов, удержать и развить свой бизнес. Юридические аспекты при этом обычно уходят на второй план, во многом потому, что кажутся слишком сложными и непонятными. Однако базовая юридическая грамотность нужна всем, ведь именно из-за правовых ошибок можно потерять много денег, а то и (   Читать дальше...   )Жанр: ЮриспруденцияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13316040EF2378DCA841B9654663386B709EA81A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443531   (1035391) от 29.01.2021
 
 Иван Забавников | PRO ХЛЕБ и не только. Тонкости забавной выпечки (2020) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:39816AFC8ED9FFCD95BA90A0EC96163BD532FC70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:39816AFC8ED9FFCD95BA90A0EC96163BD532FC70
 ```bash
 magnet:?xt=urn:btih:D2AA89958F16BCCB5EA988ADC24BC45EE06302F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:D2AA89958F16BCCB5EA988ADC24BC45EE06302F4
 magnet:?xt=urn:btih:F9D0CD55C1D135195E34448BB59A0D611EBD1176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:F9D0CD55C1D135195E34448BB59A0D611EBD1176
 ```bash
 magnet:?xt=urn:btih:893316C483509B0D2F519A7C9367884B738198D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:893316C483509B0D2F519A7C9367884B738198D3
 magnet:?xt=urn:btih:DA7C8A81BA61B68E00CD907D3280F675C89D4C46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:DA7C8A81BA61B68E00CD907D3280F675C89D4C46
 ```bash
 magnet:?xt=urn:btih:917587AE9065DCFD50FED4C8401DA996BE926862
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:917587AE9065DCFD50FED4C8401DA996BE926862
 magnet:?xt=urn:btih:14E6334F0A05B757238E89826D6682431657460B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:14E6334F0A05B757238E89826D6682431657460B
 ```bash
 magnet:?xt=urn:btih:C7AE52CEC0AF512BDB44F3135E604AF7927FBE24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:C7AE52CEC0AF512BDB44F3135E604AF7927FBE24
 magnet:?xt=urn:btih:E26B0ADCD25A677E8EDB3D74117EB9660D7B0EAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:E26B0ADCD25A677E8EDB3D74117EB9660D7B0EAA
 ```bash
 magnet:?xt=urn:btih:10981F93A192144DE03AE8A577E0777DDEC840A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:10981F93A192144DE03AE8A577E0777DDEC840A4
 magnet:?xt=urn:btih:B69CB6D2A0F3E8BFCF712B570CC4CA543CA1C2A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:B69CB6D2A0F3E8BFCF712B570CC4CA543CA1C2A2
 ```bash
 magnet:?xt=urn:btih:1DDD0A70C5699952BAFCE856FA92D037F0B63133
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:1DDD0A70C5699952BAFCE856FA92D037F0B63133
 magnet:?xt=urn:btih:87785F6251379F6C09E43C0D9A557D7A62CA775D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:87785F6251379F6C09E43C0D9A557D7A62CA775D
 magnet:?xt=urn:btih:42E79920A9E9AF687FEA6848C6AC5DFF490D1F36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:42E79920A9E9AF687FEA6848C6AC5DFF490D1F36
 ```bash
 magnet:?xt=urn:btih:6A490E48BF8ED1C7D037632A13F069B5B1E20458
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:6A490E48BF8ED1C7D037632A13F069B5B1E20458
 magnet:?xt=urn:btih:A6B22254698CD32D34ADF1762B84BC652CDE2E49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:A6B22254698CD32D34ADF1762B84BC652CDE2E49
 ```bash
 magnet:?xt=urn:btih:7F7A10200B8A9AEC120EACF2ACF674ED91229184
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:7F7A10200B8A9AEC120EACF2ACF674ED91229184
 magnet:?xt=urn:btih:5D07263797E139D8B88E83597F4E752120620A13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +524,8 @@ magnet:?xt=urn:btih:5D07263797E139D8B88E83597F4E752120620A13
 magnet:?xt=urn:btih:B59C884D48BECB12AB0FC9D70D935E260DACEA13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:B59C884D48BECB12AB0FC9D70D935E260DACEA13
 ```bash
 magnet:?xt=urn:btih:2C7AE2A523F94A57E2C2632C065C071DB3D0940C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:2C7AE2A523F94A57E2C2632C065C071DB3D0940C
 magnet:?xt=urn:btih:873EE1D756D87EE10AB5A2C70134EC55F411B0E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:873EE1D756D87EE10AB5A2C70134EC55F411B0E2
 magnet:?xt=urn:btih:B2538E07FEA4F0D82785CE390F83D030C87EA4B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:B2538E07FEA4F0D82785CE390F83D030C87EA4B2
 ```bash
 magnet:?xt=urn:btih:BFE81582D9071461742C63430EA1A01DFC7F404F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:BFE81582D9071461742C63430EA1A01DFC7F404F
 magnet:?xt=urn:btih:C86D9288A58DFB95B53ACFA981CD9B7312B6A8A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,29 +683,7 @@ magnet:?xt=urn:btih:C86D9288A58DFB95B53ACFA981CD9B7312B6A8A4
 magnet:?xt=urn:btih:FA39581CF031D9722FAE73AEC1284263BDFEF50F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442499   (1036535) от 25.01.2021
-
-Лола А. Экерстрём | Lagom. Секрет шведского благополучия (2017) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лагом, жизненная философия шведов, с каждым днем становится все более популярным. Шведы – одна из самых счастливых наций в мире. В чем же секрет их благополучия и процветания? Лола А. Экерстрём, автор этой книги, уверена: достичь состояния счастья шведам помогает именно лагом, принцип равновесия и золотой середины. Осознав его суть и слегка скорректировав свои повседневные (   Читать дальше...   )Жанр: Психология, Саморазвитие, Личностный ростПеревод: Юрий ГольдбергФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0088C383AB96E6D2F2C05BEA35EBE9052CEC7B29
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

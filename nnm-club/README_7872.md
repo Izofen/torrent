@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:9EF415B756A8554E0EC4A5E241D85AA792721985
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:9EF415B756A8554E0EC4A5E241D85AA792721985
 ```bash
 magnet:?xt=urn:btih:E7302F8E8372B13A37F116D761F00201E75AD281
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ FSNotes - это менеджер текстовых заметок для macOS
 magnet:?xt=urn:btih:89B2B5B64B4BF060C404D3A0A5E26D6310721E2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:89B2B5B64B4BF060C404D3A0A5E26D6310721E2F
 ```bash
 magnet:?xt=urn:btih:FA9C03B1943E2C92D7475AA1F03F76F9CE45C14E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Written-By – Victor SmolskiЖанр: Heavy Metal, Neo-ClassicalПродолж�
 magnet:?xt=urn:btih:1FA4CB799A893D0DEBAAB02DDA471655B99BC528
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ RizomUV – одна, если не самая лучшая программ д�
 ```bash
 magnet:?xt=urn:btih:DBBF2BA0E9093DDA24F5722442041D070C3DA0B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Sweet Oblivion - Relentless (2021) Japanese Edition [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:740B41A82A852E1159569A01DCA3298A896464FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Riverside - Riverside 20: The Shorts & The Longs (2021) 2CD, Remastered, Compila
 ```bash
 magnet:?xt=urn:btih:748F68D0FC3184ED43E44CB93430EFC378036989
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Moloch - Upon The Anvil (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical, Brutal 
 magnet:?xt=urn:btih:130216C4ED30BC63F81A63FC203EEA9C4E42ED08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:130216C4ED30BC63F81A63FC203EEA9C4E42ED08
 magnet:?xt=urn:btih:0BBBB305B7DF6A2BB6D248D5497A0339DF93582E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:0BBBB305B7DF6A2BB6D248D5497A0339DF93582E
 ```bash
 magnet:?xt=urn:btih:D40B58D288F80E2F6EA1F1CA3EF89D8A6B4B99C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ Killer Be Killed - Killer Be Killed (2014) [FLAC|Lossless|tracks + .cue] <Thrash
 magnet:?xt=urn:btih:3BC8E5221ECF940C602ECBBDA4D1E375864FECD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ Auto Bild Sportscars представляет спортивные автомо�
 ```bash
 magnet:?xt=urn:btih:62590682EE9B506E12AD77D3DE46CAF110F865F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:62590682EE9B506E12AD77D3DE46CAF110F865F9
 magnet:?xt=urn:btih:1C6058B64A22581D67B4FE4DBBDB8B768F26B2C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:1C6058B64A22581D67B4FE4DBBDB8B768F26B2C1
 ```bash
 magnet:?xt=urn:btih:A497D8B6B55299D3DA498241F538B377998B6E57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:A497D8B6B55299D3DA498241F538B377998B6E57
 magnet:?xt=urn:btih:DB3985D7DA9CC074923A1613491C94E08BB23241
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:DB3985D7DA9CC074923A1613491C94E08BB23241
 ```bash
 magnet:?xt=urn:btih:827EB04D2FC5059CABFBC948A44C372172EA3838
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ Paul Boddy & The Slidewinder Blues Band - Nosy Neighbors (2023) [FLAC|Lossless|W
 magnet:?xt=urn:btih:B5EF7545D6349ED05F05F245AF53FF1023319B81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ Midnight Phantom - L.A. Nights (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 magnet:?xt=urn:btih:DF5FD3EACE7CAF5BE881D94908D1EF66E1642B72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ Daniel[i] - Terra Amica I (2020) Pyramid Blood Recordings [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:AE1B80A3D6837E0F328DB97A3D16E2E38E2F8188
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +562,8 @@ Leaflet - Something Beyond (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Roc
 magnet:?xt=urn:btih:BE13EF07FFB0DEA510586E3FF9605E066374CBE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:BE13EF07FFB0DEA510586E3FF9605E066374CBE3
 ```bash
 magnet:?xt=urn:btih:7F94566181E88C4AEB161497ACB2F539EEBBAEFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:7F94566181E88C4AEB161497ACB2F539EEBBAEFF
 magnet:?xt=urn:btih:64F93A246D35F952505C451A266B5522963410BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ RJ TextEd - мощный текстовый редактор с большим �
 ```bash
 magnet:?xt=urn:btih:3D324E49AC526439AF00B92A47EE585A4C28E788
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +669,8 @@ The International Pop Orchectra & Chorus - At Last 26 Non-Stop Hits For Dancing 
 magnet:?xt=urn:btih:6CFB31D2F76A796152E51685451FA51826BA5BE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ magnet:?xt=urn:btih:6CFB31D2F76A796152E51685451FA51826BA5BE2
 ```bash
 magnet:?xt=urn:btih:65457A742A25909DFFB5EE657F6D55A26AB1A67C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

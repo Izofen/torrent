@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:C02D67CF02AECBA73624E7758D840D9AFF9D22BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:C02D67CF02AECBA73624E7758D840D9AFF9D22BA
 ```bash
 magnet:?xt=urn:btih:63957FCE02B3BF94F06876AEDD3FB02BB5E2007E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:63957FCE02B3BF94F06876AEDD3FB02BB5E2007E
 magnet:?xt=urn:btih:A42B1B3A1C8A4DB4493447CDC26ABF6112482D81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:A42B1B3A1C8A4DB4493447CDC26ABF6112482D81
 ```bash
 magnet:?xt=urn:btih:F856D7B5296FB4338D41DF1AE13ED2DEC0F1110C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:F856D7B5296FB4338D41DF1AE13ED2DEC0F1110C
 magnet:?xt=urn:btih:2791F6D1339B97F089EA8330E6F6ADF716477919
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:2791F6D1339B97F089EA8330E6F6ADF716477919
 ```bash
 magnet:?xt=urn:btih:4FB59A150916549AC72DAE25C7821BA88D98907C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:4FB59A150916549AC72DAE25C7821BA88D98907C
 magnet:?xt=urn:btih:52F92AFDEFAF316E68E709AA5833AD6B7510DFA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Only Lead Can Stop Them (2024) [Ru/Multi] (1.16) License GOG
 ```bash
 magnet:?xt=urn:btih:CA82BC5286B803E14A245507C75567BD9E2FED64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:CA82BC5286B803E14A245507C75567BD9E2FED64
 magnet:?xt=urn:btih:7D773BE3EC1E5657521D52A9D0CC382F3F914D4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:7D773BE3EC1E5657521D52A9D0CC382F3F914D4F
 magnet:?xt=urn:btih:79C56F753CE347869C01D496BFFC64E5FF26AD87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ Keep Driving (2025) [En] (1.0.0.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A55854612E0B7DD22B63BADC4B1720AE182E8A8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:A55854612E0B7DD22B63BADC4B1720AE182E8A8B
 magnet:?xt=urn:btih:421A2D97E4A2AAB9EB0018C866FAABB6EA17F688
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:421A2D97E4A2AAB9EB0018C866FAABB6EA17F688
 ```bash
 magnet:?xt=urn:btih:667E15417A2D81B2E7F5C653A83FA469FAEC999B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:667E15417A2D81B2E7F5C653A83FA469FAEC999B
 magnet:?xt=urn:btih:C5F3F4C4C3F64FFFCB308CAA901AE3CB2322779F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:C5F3F4C4C3F64FFFCB308CAA901AE3CB2322779F
 ```bash
 magnet:?xt=urn:btih:F99CFDD67CD0C988334EFA0206D3D1D77CEAD003
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:F99CFDD67CD0C988334EFA0206D3D1D77CEAD003
 magnet:?xt=urn:btih:94E91C28F41027AEA7C75BE1190338E71A4AE63C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ Cоветский научно-фантастический фильм 1983 го
 ```bash
 magnet:?xt=urn:btih:9002A7B1B2FC91E600185C013953DE0BFA41DB54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ Adobe Photoshop 2025 - новая версия программы для обр�
 magnet:?xt=urn:btih:7195E51A9E807E8A8F2388046ED396AD839608E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:7195E51A9E807E8A8F2388046ED396AD839608E2
 ```bash
 magnet:?xt=urn:btih:EEF18CD8343218F488269EA41F50430F072B9991
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ DOOM + DOOM II (2024) [Ru/Multi] (2676) Repack Decepticon
 magnet:?xt=urn:btih:34DBCCCDD40BE346B39B3B4CF8A999E495DF8508
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:34DBCCCDD40BE346B39B3B4CF8A999E495DF8508
 ```bash
 magnet:?xt=urn:btih:EDED3C3737232A896BBB65C3EF50B0DD121E41C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ Launcher for zapret 1.8 [Ru]
 magnet:?xt=urn:btih:4FF3DEA5BC36A4B5E7B1A8FFB07B2F5EC22AB973
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ DevilutionX – фактически новый игровой движок дл
 ```bash
 magnet:?xt=urn:btih:7BA9FBDEEE5F028F938F509CDBF7747DFB967D66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ House Of Lords - 16 альбомов (1988 - 2024) 17 CD [FLAC|Lossless|image + 
 magnet:?xt=urn:btih:1A838D706892F53F25A626F0E1BEFDE7FD3E1A49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ Immortals of Aveum, сочетающая в себе шутер от перво�
 magnet:?xt=urn:btih:0E3FD21A2DD8004FB489ECA85B608DEF388EA49F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:0E3FD21A2DD8004FB489ECA85B608DEF388EA49F
 ```bash
 magnet:?xt=urn:btih:202D9A526B67A14D95A06772FDDEDD06AEAB7080
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

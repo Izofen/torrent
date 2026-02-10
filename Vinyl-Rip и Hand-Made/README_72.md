@@ -22,6 +22,8 @@ VA - Best Hit Of Japan (Shungo Sawada/Akira Fukuhara Quintet) (19??) [FLAC 2.0|4
 magnet:?xt=urn:btih:A907E39A90C84424D2D2F3DF477F72BC0FF9228E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Breaking Benjamin — американская альтернативная ро
 magnet:?xt=urn:btih:19D080D0B3674103960C95AD979E7057B0A61E50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Side 1A1.Жанр: Rock, Classical CrossoverПродолжительность: 
 ```bash
 magnet:?xt=urn:btih:3C0E6F50AD5D2C963D3827305630B4FF73C53D96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:3C0E6F50AD5D2C963D3827305630B4FF73C53D96
 magnet:?xt=urn:btih:B3D2ED7E392126831C16D57FF494B94D8616FEC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:B3D2ED7E392126831C16D57FF494B94D8616FEC8
 ```bash
 magnet:?xt=urn:btih:35BB934EC2AF75F7DBC56404EE85A75F7C9BD876
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ The Beatles - Вкус мёда (1986) WavPack|192/32|tracks|Vinyl-Rip] <Beat, R
 magnet:?xt=urn:btih:B8016860C410274BB321059A7AAFF06967012F1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ T.Rex - Electric Warrior (1971) 2020 [DSD 128|tracks|Vinyl-Rip] <Glam Rock>
 ```bash
 magnet:?xt=urn:btih:0DBDC4F8C6D58B0F07C260EC5A5D07E2AC791A05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ Chimaira (kaɪˈmɪərə) — американская грув-метал гр�
 magnet:?xt=urn:btih:15E93F0FDC99144E2A0CFE9E34A0F3F797E6DE39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ A4. Let Me Go (3:52)(   Читать дальше...   )Производство
 ```bash
 magnet:?xt=urn:btih:3750246EDB63CFBE915CF22E4B28727E61A0E093
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ magnet:?xt=urn:btih:3750246EDB63CFBE915CF22E4B28727E61A0E093
 magnet:?xt=urn:btih:5B42223412DC3B121F461FD29E0A8AEBF1ACF7F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ Led Zeppelin - Led Zeppelin II (1969) [FLAC 2.0 24/192|tracks(Vinyl-Rip)]<Blues 
 ```bash
 magnet:?xt=urn:btih:1B4ADAF8FA9FC66C1424E026D030BD04EE0979ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +338,8 @@ A4. Ласточка (3:51)(   Читать дальше...   )Жанр: Рок�
 magnet:?xt=urn:btih:DA81DF2A22CC0BC1268C2A7116831EC7F6A1E316
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ Side 1:
 ```bash
 magnet:?xt=urn:btih:8ABE2B3FAE979738E819F01AD605CAD9AD7FE355
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ The Beatles - Abbey Road (1969) [FLAC 2.0 24/192|tracks(Vinil-Rip)]<Pop Rock>
 magnet:?xt=urn:btih:EADE00AC4898961D3DE902F3404227D83613B06B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ Scorpions - Blackout (1982) [FLAC 2.0 24/192|tracks(Vinyl-Rip)]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E7EDA1EB2ACBA3F8DEB7DD72295FEEC0A2FC80DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ A3 The John Ellis Highland Country Band - Caledonian Corn(   Читать дал
 magnet:?xt=urn:btih:B05D72EB7B75A711A35A8914CE25D852B6CC0286
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ magnet:?xt=urn:btih:B05D72EB7B75A711A35A8914CE25D852B6CC0286
 ```bash
 magnet:?xt=urn:btih:1C23CB8332257A2FD67739CD2514978D4E684B7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ A3 Improvisation on "Schonster Herr Jesu", Op. 55 for cello and organ(   Чит�
 magnet:?xt=urn:btih:607B33E9CF1A42CA95129DA5027E0C7FB9D76B93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +540,8 @@ Pink Floyd - Wish You Were Here (1975) [FLAC 2.0|192/24|tracks|MB-Rip] <Rock>
 ```bash
 magnet:?xt=urn:btih:2F712AA407395474641C275A3A9F3AE812E8DFC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +570,8 @@ B1 Lena(   Читать дальше...   )Жанр: Prog Rock, Space RockПро
 magnet:?xt=urn:btih:73A434B27EE213E93933408911C18ED97D696D83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +598,8 @@ A4 Stay With Me(   Читать дальше...   )Жанр: Blues Rock, Ballad�
 ```bash
 magnet:?xt=urn:btih:393696120A072AC574012AEE0372B80B8E3A6414
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +628,8 @@ Pink Floyd - The Wall (1979) 2LP remaster /2012, EMI Records/ [FLAC 2.0 24/96|im
 magnet:?xt=urn:btih:8CBA510ACDC3DE4FAC7D964D4A873FCACF8E4B2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +656,8 @@ A4.Закрой За Мной Дверь, Я Ухожу(   Читать даль
 ```bash
 magnet:?xt=urn:btih:43EE38CD4C6E351B07E9BCCC13FE941F63162726
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +686,8 @@ A4. Трудовая пчела (6:12)(   Читать дальше...   )Жан
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +713,8 @@ Tempest поставили перед собой задачу донести с�
 ```bash
 magnet:?xt=urn:btih:6E947E88F3B70B38407E60B17E797932E3A969BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -692,6 +742,8 @@ A4 Shadow On My Wall(   Читать дальше...   )Жанр: Blues Rock, Po
 ```bash
 magnet:?xt=urn:btih:1BD1BE2956AA503135084D0027CAC3006092CDE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

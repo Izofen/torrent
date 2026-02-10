@@ -19,6 +19,8 @@ Glary Utilities - функциональный набор системных т�
 magnet:?xt=urn:btih:3142D97A5064116EB9CBC9582DFF7F2612F089A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Perished - Seid (2003) [FLAC|Lossless|image + .cue] <Black Metal>
 magnet:?xt=urn:btih:B92755C6999098167E7FFAEDBD7AC0089957135C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Devonthink Pro Office — программное обеспечение для �
 magnet:?xt=urn:btih:E1D42EAE307F3D8E179682830A913D559C2C14AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Textra SMS v4.62 Pro [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:160E431F867D15D1BADBEC5535DA562FC1C305FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Grainne Duffy - Dirt Woman Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 magnet:?xt=urn:btih:2EB4516E54D7525F3869545E6CEA8C8FB53096A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:2EB4516E54D7525F3869545E6CEA8C8FB53096A7
 ```bash
 magnet:?xt=urn:btih:D0FACDC9740707B5404344C29F47BAA8C3712FB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:D0FACDC9740707B5404344C29F47BAA8C3712FB0
 magnet:?xt=urn:btih:80E98460E3BDE935B1E96C37062926A9C881F908
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ orbit.industries (2022) [Ru/Multi] (1.1.9717.0) License GOG
 ```bash
 magnet:?xt=urn:btih:B7BA9440A42E4EB002DB303B3D50ED718B94FD3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Linda Jo Rizzo - Forever (2023) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 magnet:?xt=urn:btih:17F1CF6DACD3AED0642B2A7D6AEB957947313D83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ Busuu - популярный и востребованный проект для
 ```bash
 magnet:?xt=urn:btih:53EF48DF13394D39AA00AFD7151CFF05F96847B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ UctoX - это мощное приложение для выставления �
 magnet:?xt=urn:btih:24E88AB35C16B20FD1AE3496DB349EE4BE174EDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ KeePass Password Safe - удобный менеджер паролей. Хран
 magnet:?xt=urn:btih:4B005D558342C67F1E4B870EB0D9DD1E2167F0B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:4B005D558342C67F1E4B870EB0D9DD1E2167F0B9
 ```bash
 magnet:?xt=urn:btih:FFFE14077ACFADB4E60CCB85E00E7E99E3A70EBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ Blud Red Roses - Fall to the Hate (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 magnet:?xt=urn:btih:3395CAAF095E3BA9F05D227C0763500C6B42A1D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:3395CAAF095E3BA9F05D227C0763500C6B42A1D2
 ```bash
 magnet:?xt=urn:btih:ECED2C66EBBF2B452DE38A5DE08C4CE1C89F1714
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:ECED2C66EBBF2B452DE38A5DE08C4CE1C89F1714
 ```bash
 magnet:?xt=urn:btih:FE34CA6E0E3FF6ACFFC222B4626057F9B9BD86E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ Dexter Gordon - Our Man In Paris (1963) 1986, Toshiba-EMI [FLAC|Lossless|tracks 
 magnet:?xt=urn:btih:A9D49E959C19A93AD321C23951A5CFA432B24133
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ AHTOH SKALD (Anton Gruzinsky) - Enigma Of Time (2022) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:B96E67121FE7959992838F81A6A7ACFBE8F3CFFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ Kuturlat - Necroritual (2005) [APE|Lossless|image + .cue] <Black Metal>
 magnet:?xt=urn:btih:6A2CC0DDCCF26F8D297AA71059164E8E04F84ED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:6A2CC0DDCCF26F8D297AA71059164E8E04F84ED0
 magnet:?xt=urn:btih:FC6831CECA4E151210E026A6B3192FC6A6F80754
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:FC6831CECA4E151210E026A6B3192FC6A6F80754
 ```bash
 magnet:?xt=urn:btih:25A25CE24D87D8AFE342487B68E3FD03C3969E1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ Beast Eagle - Beast Eagle (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:677E9789BA2446FC8AE53E4B2749D8DE8D624FAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ Dais Dark - Poweramp v3 Skin 1.3.6 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3A3A2EACEABCBF325C72436C207C635502421665
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:3A3A2EACEABCBF325C72436C207C635502421665
 magnet:?xt=urn:btih:FE44B03F396D56AE272BAA31359D146553381BC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:FE44B03F396D56AE272BAA31359D146553381BC7
 ```bash
 magnet:?xt=urn:btih:B7BC87B5BD65ADFDBF909929AAC61804AFD3689D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +697,8 @@ magnet:?xt=urn:btih:B7BC87B5BD65ADFDBF909929AAC61804AFD3689D
 ```bash
 magnet:?xt=urn:btih:E23D20743828FE2C33AB1F81AD4FEE3C961DDD80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

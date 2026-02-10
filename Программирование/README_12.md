@@ -19,6 +19,8 @@ Avi Tsadok | The Ultimate iOS Interview Playbook (2023) [PDF][EN]
 magnet:?xt=urn:btih:A0EB47AE0684CF62A24FEF9F3536D5E2BCCCC00C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ David Canton Nadales | Build Your Own Metaverse with Unity (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:51B57A50912948FB28AAFC7875BF1AB26B4C6F02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:51B57A50912948FB28AAFC7875BF1AB26B4C6F02
 magnet:?xt=urn:btih:C83997713BD2B79D80A331ED922744CF2B1F1B44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Packed with clear explanations, visualizations, and examples, the book covers al
 magnet:?xt=urn:btih:7652112F8FB0C6C25A7BD9098ECA0F3FAA04C5F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Milo Yip | A Study Path for Game Programmer / Путь разработчика 
 ```bash
 magnet:?xt=urn:btih:AEDADD2339562E0CF1C2C8FFF918B5B0EF626A8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:AEDADD2339562E0CF1C2C8FFF918B5B0EF626A8B
 magnet:?xt=urn:btih:2DB1EB7136DEEC1C82080B20BB49708454B8EA36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:2DB1EB7136DEEC1C82080B20BB49708454B8EA36
 ```bash
 magnet:?xt=urn:btih:6D91100773C4417C220D6DB7078AEF0D645E2407
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Data structures deal with how the data is organised and held in the memory, when
 magnet:?xt=urn:btih:F1207B243C3EE150A13BBCFFCE5811EBEDC09137
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:F1207B243C3EE150A13BBCFFCE5811EBEDC09137
 ```bash
 magnet:?xt=urn:btih:BD45C962F504D27223570CEC6F59806B53ECB695
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:BD45C962F504D27223570CEC6F59806B53ECB695
 magnet:?xt=urn:btih:CA045C43C10AC1055FB6FEBF7D1DF8DA02D711DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:CA045C43C10AC1055FB6FEBF7D1DF8DA02D711DA
 ```bash
 magnet:?xt=urn:btih:0ABE2E49A9B2EC2AAFC57677FEDB28419EEDB1C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:0ABE2E49A9B2EC2AAFC57677FEDB28419EEDB1C2
 magnet:?xt=urn:btih:7DFF6392B2A84E567DDB5E5906ABFE8F4974F0F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Deepti Chopra | Flutter and Dart (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:84EEEC56EFA6AA1AA844C7E953C5EFB6847BB1A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Mark Simon | Getting Started with SQL and Databases (2023) [PDF][EN]
 magnet:?xt=urn:btih:E13BCA46FB5405E144408F47494740EC1C07B0CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:E13BCA46FB5405E144408F47494740EC1C07B0CB
 ```bash
 magnet:?xt=urn:btih:227F2BA62D936ACDA896E09D2D34E6313CC9B30B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:227F2BA62D936ACDA896E09D2D34E6313CC9B30B
 magnet:?xt=urn:btih:C51CEDF5B4E011D74C6D371B1EC59ED51410376B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Otavio Santana, Karina Varela | Persistence Best Practices for Java Applications
 ```bash
 magnet:?xt=urn:btih:E4140E3B9A27C0F11D9EE2EA92243F1AB7E85B8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Anshul Saxena | Financial Modeling Using Quantum Computing (2023) [PDF][EN]
 magnet:?xt=urn:btih:B691DC4C7CD60246637D66C9D68AC160C9C85AAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:B691DC4C7CD60246637D66C9D68AC160C9C85AAF
 ```bash
 magnet:?xt=urn:btih:999FB6096684EC5073795FDECB9ED5138A4E8837
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Paul McFedries | HTML, CSS, & JavaScript All-in-One For Dummies (2023) [PDF][EN]
 magnet:?xt=urn:btih:74017917C95166EEEBA3B10B9A53BEECE5F32582
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Alexandre F Malavasi Cardoso | Enterprise Applications with C# and .NET (2023) [
 magnet:?xt=urn:btih:CA8413DDC0DA0037E9EFA9EAA0F16ABB98D24DB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ Burak Serdar | Effective Concurrency in Go (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:BBAFEC0311B67D22EEFB764A11E8734607A8405B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ Som Prakash Rai | Core Java: Made Simple (2023) [PDF][EN]
 magnet:?xt=urn:btih:4E77F4B140916A397307407B4CEB0503F2D60AA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Marcelo Guerra Hahn, Araks Tigranyan, John Asatryan | Expert C++, 2nd Edition (2
 magnet:?xt=urn:btih:A4971FF48DE4AD01D967029C9784514728B1AA20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Matt Frisbie | Professional JavaScript for Web Developers, 5th Edition (2023) [P
 ```bash
 magnet:?xt=urn:btih:0AACE089FDD267F1FF20A89BFA532AA04EEBF27D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:0AACE089FDD267F1FF20A89BFA532AA04EEBF27D
 ```bash
 magnet:?xt=urn:btih:62D43BF4962D53AD619CB1C0BAF900F1A0A0494B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

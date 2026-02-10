@@ -1,52 +1,3 @@
-###  Публикация: 606454   (994958) от 21.01.2013
-
-Иконки - Иконки в стиле Mac OS X/Big Mac Os X Icons
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иконки для оформления своего рабочего места в стиле Mac OS.
-Раздача содержит файлы с иконками Mac OS X, Leopard.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C0539E1602E59C8DBFF9F3B6CEE415105BC69AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599755   (999075) от 07.01.2013
-
-Иконки - Grunge Ico by Verrone
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник иконокРазрешение файлов: 256/256
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6023D5EAD6AC67FA429E1F88CD1B9557A6588F33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 598799   (999575) от 05.01.2013
 
 Иконки - Pharaoh PNG Style by KSV
@@ -67,6 +18,8 @@ Pharaoh PNG Style by KSVРазрешение файлов: ~  256X256
 ```bash
 magnet:?xt=urn:btih:97E08327760975DFDB17CA7CAAE22929B212FC1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +45,8 @@ magnet:?xt=urn:btih:97E08327760975DFDB17CA7CAAE22929B212FC1C
 magnet:?xt=urn:btih:4FDA1E95EE77953064DE95D1A3A88AA3AAA801C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +71,8 @@ magnet:?xt=urn:btih:4FDA1E95EE77953064DE95D1A3A88AA3AAA801C3
 magnet:?xt=urn:btih:49C1B5183045130F6FA2595B3AFC4F3B8D80455E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +96,8 @@ magnet:?xt=urn:btih:49C1B5183045130F6FA2595B3AFC4F3B8D80455E
 ```bash
 magnet:?xt=urn:btih:432BB83B79A1702C1F6730FF7422E3B79E399854
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +125,8 @@ magnet:?xt=urn:btih:432BB83B79A1702C1F6730FF7422E3B79E399854
 magnet:?xt=urn:btih:B2F0313F6C5F04335091F3EC161163D715812628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +150,8 @@ magnet:?xt=urn:btih:B2F0313F6C5F04335091F3EC161163D715812628
 ```bash
 magnet:?xt=urn:btih:BE6FCBEC8DF8208459FC3537A0FA09E4E9225D63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +177,8 @@ magnet:?xt=urn:btih:BE6FCBEC8DF8208459FC3537A0FA09E4E9225D63
 magnet:?xt=urn:btih:1027716F25DE6E95B963089D62B3C81E62129D05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +202,8 @@ magnet:?xt=urn:btih:1027716F25DE6E95B963089D62B3C81E62129D05
 ```bash
 magnet:?xt=urn:btih:18FF130A1BBDED4284A33BA41052FA2DEACF09CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

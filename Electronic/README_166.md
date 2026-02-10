@@ -22,6 +22,8 @@ Mi-Sex - 5 Studio Albums (1979-2016) Collection [MP3|320 Kbps] <New Wave, Pop Ro
 magnet:?xt=urn:btih:4BC9D3BD6740E99A7E05526CF7BD9C1003419B8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Future Sounds. EDM 2019 (2018) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:401B4293114F541E049F713B6C140C3B724F71C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Trance Pure (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:A9715E786AE798AF1B078B7869879F1EDCB4C5FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Little Big - GO BANANAS (2019) EP [MP3|320 Kbps] <Rave, Electronic>
 ```bash
 magnet:?xt=urn:btih:0AEB48B7D04795B330D82830F173AA5BF3C20AC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Post Workout Stretching: Music Chillout After Your Workout (2017) [MP3|320 
 magnet:?xt=urn:btih:B881829AC85BECFF7778077CF3AD454854012C4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Lustmord - Maschinenfest (October 2 2011) (2017) Vaultworks [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:218E69E323A1A2BCC16AAF7E400E3F5FC5B86420
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Transcendental Ambience: Chilled and Relaxing Music Playlist (2017) [MP3|32
 magnet:?xt=urn:btih:B392D2F2AFDB60CDBDCF9E772DDDCE23A815A9FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - The Best Of Suanda True (Mixed by Tom Exo) (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:1C8FB7FDC4EB2BD0F883BCBFF0F54F7A02800930
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Amsterdam. The End Of Year Album (Mixed by Three Drives) (2017) [MP3|320 Kb
 magnet:?xt=urn:btih:7A0791B3BD42E6A169346F78BBA8816BAB46ECF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Cold Blue - Winter (2019) [FLAC|Lossless|WEB|tracks] <Trance>
 ```bash
 magnet:?xt=urn:btih:AA25727DE90BDCBC51B58887D53175B4DA117B43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Markus Schulz - Global DJ Broadcast - Top 20 November (2019) [MP3|320 Kbps]
 magnet:?xt=urn:btih:1BAE4D99BB41E1361FD935CA66A43D02AD0627ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Love Of Lounge Vol 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downte
 ```bash
 magnet:?xt=urn:btih:00321603A67D546FB83139B9B845625C9018A4C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Winter Chillout Lounge 2018: Smooth Lounge Sounds For The Cold Season (2018
 magnet:?xt=urn:btih:67B2421109D57631200C30D90D926A498E8A9977
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ VA - The VERSE Uplifting Trance Journey (Mixed by Philip Langham) (2018) [MP3|32
 magnet:?xt=urn:btih:FD5B0F90602F72002FFF0CE90ED6F60DF60477C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +426,8 @@ VA - Ori Uplift & Redchild – Uplifting Only 303 (2018) [MP3|320 Kbps] <Trance,
 ```bash
 magnet:?xt=urn:btih:B64C72906856847B2539255B2421523D72B2B792
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +456,8 @@ VA - Progressive Trance Vol. 5 (2018) [MP3|320 Kbps] <Trance, Progressive Trance
 magnet:?xt=urn:btih:34924ABA0170887B2F5E1E6781A830D07807A607
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +484,8 @@ Nova - 2 Albums (1982, 1983) LP [MP3|320 Kbps] <Electronic, Synth-pop, Space>
 ```bash
 magnet:?xt=urn:btih:AB25C962BB721C2E96F37B17CF328A0B91086024
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +514,8 @@ Orbital - Live At the Eventim Hammersmith Apollo (02-12-2017) (2017) Live Here N
 magnet:?xt=urn:btih:554261542AB415E804A7BE6CE7339AF051C81964
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +542,8 @@ Miwon - Discography 4 Albums (2004-2017) City Centre Offices, n5MD [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:E0AE5A83344B4D94389D9A21E99CCA68E3B0ACE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +572,8 @@ Fingers In The Noise - 11 Releases (2011-2017) [FLAC|Lossless|tracks+.cue, track
 magnet:?xt=urn:btih:7F482C3017643BB7911520753B9932C586DBC397
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +600,8 @@ Tale of Us - Endless Remixes (2017) Deutsche Grammophon [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:11340B7E20CF9B4396F872B825D224E3981772EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +630,8 @@ VA - Records54 Presents: Your Favorite Coffeehouse 4 Chillout and Lounge (2017) 
 magnet:?xt=urn:btih:2651008B521B837ADA89E16A3C902ACCFF536033
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +658,8 @@ VA - Future Sound Of Egypt: Best Of (2017) [MP3|320 Kbps] <Trance, Uplifting Tra
 ```bash
 magnet:?xt=urn:btih:E06C3C5BB3B7817FCB98148D065EF9A06FB6FFB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +688,8 @@ VA - Sexy Lounge Sunset (2019) [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:98E2D030DD23DA3C405A1FF06FAED2D1417B634A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +717,8 @@ VA - Womanizer Lounge (Erotic Chillout For Sexy Bedroom Moments) (2019) [MP3|320
 magnet:?xt=urn:btih:F503726A60F0AA903C2024E31C6DC88EA8EBF344
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ VA - Total Disco House, Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-D
 ```bash
 magnet:?xt=urn:btih:06B7F42DF38810C9796D4700B5799E82E62A5B1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

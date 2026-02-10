@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:342DB1AC113FEAAFF49066F60F1358FBC7E28370
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:342DB1AC113FEAAFF49066F60F1358FBC7E28370
 ```bash
 magnet:?xt=urn:btih:04C9A0CBE0CE49C8506B1A1842364E686593914F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:04C9A0CBE0CE49C8506B1A1842364E686593914F
 magnet:?xt=urn:btih:7BDDEBC73FC5452ED0BAE45D5CAFA3586D72C131
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:7BDDEBC73FC5452ED0BAE45D5CAFA3586D72C131
 ```bash
 magnet:?xt=urn:btih:E29B09E6B4B123B9AE3CFCC27175B2ABDF40F8F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:E29B09E6B4B123B9AE3CFCC27175B2ABDF40F8F2
 magnet:?xt=urn:btih:B9788FE06AC3F9563E704756BF6C81E74425F734
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:B9788FE06AC3F9563E704756BF6C81E74425F734
 ```bash
 magnet:?xt=urn:btih:B59426554CCE5E0987D83501C409B92D0EF40C94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:B59426554CCE5E0987D83501C409B92D0EF40C94
 magnet:?xt=urn:btih:4094DA6FD8EF976E90D629FEA8F1443E3E35D8A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:4094DA6FD8EF976E90D629FEA8F1443E3E35D8A8
 ```bash
 magnet:?xt=urn:btih:F7EB0C8873470423689EF294E1C7B245C9915F17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ MotoGP. Этап 10 из 22. Гран-при Нидерландов. Гонка 
 magnet:?xt=urn:btih:C6DD7FC02BD4AF46446AD41809799040A022BF6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ MotoGP. Этап 10 из 22. Гран-при Нидерландов. Сприн�
 ```bash
 magnet:?xt=urn:btih:617088A6DE02C827523073AA867D69C11B5167E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ MotoGP. Этап 10 из 22. Гран-при Нидерландов. Квали�
 magnet:?xt=urn:btih:EA5EFA07F596BAEC2B4D65E51E858E28CB715604
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:EA5EFA07F596BAEC2B4D65E51E858E28CB715604
 ```bash
 magnet:?xt=urn:btih:D5F3E39639302BB890B59285178DBAF4BB540565
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ MotoGP. Этап 09 из 22. Гран-при Италии. Спринт (21.06.2
 magnet:?xt=urn:btih:231BF75C0D329A3A629D3268091D6002AC492022
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ MotoGP. Этап 09 из 22. Гран-при Италии. Квалификац�
 magnet:?xt=urn:btih:8BACAB091942C88BC37086433B92794AC1124D28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ MotoGP. Этап 09 из 22. Гран-при Италии. Гонка (22.06.202
 ```bash
 magnet:?xt=urn:btih:D65B06D8B16E190E7624EAAF32A49AFFC504C078
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:D65B06D8B16E190E7624EAAF32A49AFFC504C078
 magnet:?xt=urn:btih:5FF7B021CF70ACE2844C6FCBA2F09A7ABDD2626A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:5FF7B021CF70ACE2844C6FCBA2F09A7ABDD2626A
 ```bash
 magnet:?xt=urn:btih:667BB0C95909DCB72E8A7BDC9103851A03867FCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:667BB0C95909DCB72E8A7BDC9103851A03867FCB
 magnet:?xt=urn:btih:0393E61AC2B7F344AD4C671AE8877138FAA5507F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:0393E61AC2B7F344AD4C671AE8877138FAA5507F
 magnet:?xt=urn:btih:0FE2D80588FB3730BA8B409D10BDA0B4A03C7177
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:0FE2D80588FB3730BA8B409D10BDA0B4A03C7177
 magnet:?xt=urn:btih:771326AFE4BED5165783564C676011C9CD26FCA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:771326AFE4BED5165783564C676011C9CD26FCA9
 ```bash
 magnet:?xt=urn:btih:95ACCA2E9E4C6E9F2C76777BF90D2B28F1A00493
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:95ACCA2E9E4C6E9F2C76777BF90D2B28F1A00493
 magnet:?xt=urn:btih:A3023290AF6BC9EE1AF868D277CEC8FD111F5068
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:A3023290AF6BC9EE1AF868D277CEC8FD111F5068
 magnet:?xt=urn:btih:9019B78C82FDCCC8B9AC4DECF65564BEA6FEA53A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ MotoGP. Этап 08 из 22. Гран-при Арагона. Гонка (08.06.2
 ```bash
 magnet:?xt=urn:btih:DFD6B9DE3F8EBA54AE833B05B0DEB73AD90A477B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +668,8 @@ MotoGP. Этап 08 из 22. Гран-при Арагона. Спринт (07.06
 magnet:?xt=urn:btih:A8459174439FEE239B71F75FC535897661D9A692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ MotoGP. Этап 08 из 22. Гран-при Арагона. Квалифика�
 ```bash
 magnet:?xt=urn:btih:BC7B5F2EEC99F1DFDD25A16B75863C902ED70F01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

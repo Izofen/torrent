@@ -19,6 +19,8 @@ Discovery: Поиск пришельцев. Урожай пришельцев / 
 magnet:?xt=urn:btih:8484B76A16EDC303B3A299DE5C260A79A5B30F7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC. В поисках бессмертия / The Immortalist (2016) HDTV [H.264
 ```bash
 magnet:?xt=urn:btih:197502664A8668220818FCED46368DA0E6EFD443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Discovery: Один день в Освенциме / One Day In Auschwitz  (2015
 magnet:?xt=urn:btih:321C1E24B7D77D7C19DFF5AF3CDF00CB6655A187
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:321C1E24B7D77D7C19DFF5AF3CDF00CB6655A187
 ```bash
 magnet:?xt=urn:btih:5C3764553EE2FD1F505459CB589F0EC2E33DDD26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 magnet:?xt=urn:btih:415DD84C74A3B11DE4EA86F42E25FC8CC0790D0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 ```bash
 magnet:?xt=urn:btih:6796E6A6903708D9466DE64AE2611726BE1B84D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 magnet:?xt=urn:btih:EB6EDA36E09D617043E04810CB9FBAD2B8198740
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 ```bash
 magnet:?xt=urn:btih:FE738706D8D9505361A01E5DB95BC7D02A6F56CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:FE738706D8D9505361A01E5DB95BC7D02A6F56CB
 magnet:?xt=urn:btih:DA0AFF88C8928D5A66F64B72151DFDDE98767845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:DA0AFF88C8928D5A66F64B72151DFDDE98767845
 ```bash
 magnet:?xt=urn:btih:DB1F66B543670666DD9CEA0FD6AE6EA2EE46CC9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:DB1F66B543670666DD9CEA0FD6AE6EA2EE46CC9C
 magnet:?xt=urn:btih:98442B4EAB80A3737C42F8CA4E3A44A102963E71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Discovery: Грандиозное ограбление / Mega Heist (2009) SATRi
 ```bash
 magnet:?xt=urn:btih:3890589DFD1175D26CA0166EDB96619B1FF9ADE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ PBS: Мир Дикой Природы / Wild World (2010) DVB (1 сезон, с�
 magnet:?xt=urn:btih:68199C250D2204EEC8393D77F19234CD6ABF31A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ PBS: Мир Дикой Природы / Wild World (2011-2012) DVB (2-й сез�
 ```bash
 magnet:?xt=urn:btih:ACE6E88A8A594DBB676466098B53595B486C0338
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 magnet:?xt=urn:btih:F74D70D8D49AB5701D4C8045B5AE1E9C48515C33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ Discovery: Вселенная Стивена Хокинга: Инопланет�
 ```bash
 magnet:?xt=urn:btih:DB92594675F093D2F7B5950A98794EA8CCBFD2DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ BBC: Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 6
 magnet:?xt=urn:btih:3244B667CCCE94F0A003DB70D66831F2DF17E9AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:3244B667CCCE94F0A003DB70D66831F2DF17E9AC
 ```bash
 magnet:?xt=urn:btih:608CD9440D05854CF24D4D1633D7081484EDA5D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ NGW. Гигантские змеи. Удавы / Monster Constrictors (2019) HDT
 magnet:?xt=urn:btih:C1AC745EB80605E2A862BD8C160FB7A88EF5690B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ NGW. Акулы-каннибалы / Cannibal Sharks (2019) HDTVRip [H.264/1080p
 ```bash
 magnet:?xt=urn:btih:FF45F6CA915873BFFFA356B9DFC0A9CF95EBD8DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Discovery. Розетта: столкновение с кометой (В пог
 magnet:?xt=urn:btih:69E4458B97AD70D2CA7F3D51CF60B989268BF12E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:69E4458B97AD70D2CA7F3D51CF60B989268BF12E
 ```bash
 magnet:?xt=urn:btih:92F77C7E39C305603FAE8A465B08F3628D7F2A3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ BBC. Horizon: Сколько людей может жить на Земле? / H
 magnet:?xt=urn:btih:D157ACE33BABC268C1BF0CEE382DA0E13836DB2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:D157ACE33BABC268C1BF0CEE382DA0E13836DB2B
 ```bash
 magnet:?xt=urn:btih:3AC91EAF450F0AD342127887C5CCCD20ADD12707
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ NG. Игры разума / Brain Games (2014) SATRip [сезон 3, серии 
 magnet:?xt=urn:btih:471CA5DBF2FB9C76C45689264645F164DE0C1951
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ BBC: Планеты. Ледяные миры / Nova: The Planets: Ice Worlds (20
 ```bash
 magnet:?xt=urn:btih:90E9BACD23DE0CDE11BF6022F372C55BD9E8A791
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Snow Ash - это карточная торгово-приключенческа
 magnet:?xt=urn:btih:8954B1ACAF5DC480BF9647A398213A49ED6B2DD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ DuneCrawl - это игра в жанре экшен-приключение с �
 ```bash
 magnet:?xt=urn:btih:BE076AEC0C43A319A8ADE71B5B94FAE029456F0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Ancient Farm (2026) [Ru/Multi] (1.0.6) Scene Tenoke
 magnet:?xt=urn:btih:5B3BA40C58FC5DD4BF2F4250863B66041508A5DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Ancient Farm (2026) [Ru/Multi] (1.0.8) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5542A9162110E27F42DF9E37C2517E139BBCB13B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Pathologic 3 (2026) [Ru/En] (RC 60905-st/dlc) Repack seleZen
 magnet:?xt=urn:btih:0E4B990EB66CEB293977F199365C3C8075E2D1CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Pathologic 3 (2026) [Ru/En] (RC 60905-st/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B7C37630E88AEA01B1616905CA2FA5E591EEB023
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Snow Ash - это карточная торгово-приключенческа
 magnet:?xt=urn:btih:8E2A6D82279F5DF74BC2FBC5011FAA90D9521519
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Pathologic 3 (2026) [Ru/En] (RC 60905-st/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1A258F72DC0A8F3E4170EE5193BD1DF03B2D709B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Pathologic 3 (2026) [Ru/En] (1.0.1) License GOG
 magnet:?xt=urn:btih:B8FFE277C113493F76D6B48D95FD191FDCCBEC9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Pathologic 3 (2026) [Ru/En] (RC 60905-st/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:AFD3134401F658AB183FD50C680A575E4DCA9779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Snow Ash - это карточная торгово-приключенческа
 magnet:?xt=urn:btih:16228BBC31F960A241D2EFB1B04FF4F42C660D6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Quarantine Zone: The Last Check - симулятор сотрудника кар
 ```bash
 magnet:?xt=urn:btih:490F45389DA7A803E0A6C13718ABFE46A9599E42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Quarantine Zone: The Last Check - симулятор сотрудника кар
 magnet:?xt=urn:btih:73AF7DF2D8FEC1279F9825C98A2DD39E6518DC80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Quarantine Zone: The Last Check - симулятор сотрудника кар
 ```bash
 magnet:?xt=urn:btih:B10571685E15D1F28C1766FEA962E4BD9833D74F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Realm Racer - аркадный гоночный проект, главная ц�
 magnet:?xt=urn:btih:5C7A707846E299C3F568552B6CC8F349A8AAD6CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ DeadCore Redux (2025) [Ru/Multi] (1.0.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:306B5BCAB1CD3D2C6486644363F044AEF2B81CD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Skulker - медитативное приключение, геймплей ко
 magnet:?xt=urn:btih:DCE21D9938CCF7750B578B3F6FC4F2D4B8BDE255
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ BrokenLore: UNFOLLOW – это сюрреалистический хоррор 
 ```bash
 magnet:?xt=urn:btih:B363B4EC6671DBB28C4451BDE50308D28FBD3643
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ DuneCrawl - это игра в жанре экшен-приключение с �
 magnet:?xt=urn:btih:A51CE7B2D32597C496D6ECABBE7ED992BFF6EB21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Quarantine Zone: The Last Check - симулятор сотрудника кар
 ```bash
 magnet:?xt=urn:btih:62183A8D38374ECFB92CD5858E70BBDFC12E29A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ BrokenLore: UNFOLLOW – это сюрреалистический хоррор 
 magnet:?xt=urn:btih:4363FCAB5A8E893A80E29184F519E918F0BC4478
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Noosphere (2025) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:E45B6E3C1F9AA41EE6666ABB3083E0C23EC3F5AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ BrokenLore: UNFOLLOW – это сюрреалистический хоррор 
 magnet:?xt=urn:btih:BB029EDA30E4FAAD4A3EEBE81DF6B612A561358C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ SHE WAS 98 (2026) [Ru/Multi] (Build 21510625) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B5A4406EE29D5C80B4F95967948201255E8258F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ The Jokers Game - криминальное состязание в которо�
 magnet:?xt=urn:btih:FDE10D2FF8B94F0FC4BC466956979A59B22AFE42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Burkina Faso: Radical Insurgency отправляет оперативника �
 ```bash
 magnet:?xt=urn:btih:718FCBE7FA9AF6EFCED36E6617AAA44F460F06F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ Xubuntu Custom 22.04 LTS с доп. пакетами [amd64] 1xDVD
 magnet:?xt=urn:btih:96B9BC2D879A2BC3214A35774286B997B8B4C225
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:96B9BC2D879A2BC3214A35774286B997B8B4C225
 ```bash
 magnet:?xt=urn:btih:37740AB574A37B793F76F8B3FF4EF8FE47735811
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:37740AB574A37B793F76F8B3FF4EF8FE47735811
 ```bash
 magnet:?xt=urn:btih:8FCE1AD17DA4139D2A3C5C0F8BE4EC96D05BDB8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Disc 1:
 magnet:?xt=urn:btih:7EA596474AD2E4AF7A7FAF5A77D7619E135A8522
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Dato поддерживает все языковые стандарты и яз
 ```bash
 magnet:?xt=urn:btih:729B73906DFF731718C197395BD25C528D86CCAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:729B73906DFF731718C197395BD25C528D86CCAB
 magnet:?xt=urn:btih:6DD72E7E939148F022B31F7182122F528CD0BE77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:6DD72E7E939148F022B31F7182122F528CD0BE77
 ```bash
 magnet:?xt=urn:btih:F02A3302FCCC0839EF075783D8A0117554BBF0A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:F02A3302FCCC0839EF075783D8A0117554BBF0A1
 magnet:?xt=urn:btih:4456D170D21582DD744E447FEE76C651F00B22E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ Astalon: Tears of the Earth (2021) [Ru/Multi] (1.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:F8438097A2FC4130223F09B339B1791BB8D5F4F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:F8438097A2FC4130223F09B339B1791BB8D5F4F0
 ```bash
 magnet:?xt=urn:btih:D0EE249B87A81D5257BB8C39443FECA2B220F374
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ Harm - a song you can't feel anymore (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-
 magnet:?xt=urn:btih:CCF00185C4D5B0834F32318B26A99E415B4EDAC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ The Necromancers - 3 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Do
 ```bash
 magnet:?xt=urn:btih:35E4E24CFA45F5484AD8261A64F90069F7D5866D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:35E4E24CFA45F5484AD8261A64F90069F7D5866D
 magnet:?xt=urn:btih:6A08690A9D49D980ECC69B7B4B3666E068ECD31C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:6A08690A9D49D980ECC69B7B4B3666E068ECD31C
 magnet:?xt=urn:btih:778844FB2432D9098DBC8AAF5EF868C4D129B97B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ magnet:?xt=urn:btih:778844FB2432D9098DBC8AAF5EF868C4D129B97B
 magnet:?xt=urn:btih:1448055083239D0CE04F499F2ECC41A266CCE33E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:1448055083239D0CE04F499F2ECC41A266CCE33E
 ```bash
 magnet:?xt=urn:btih:D7F7F985A9B4DD11FDEAD91918DEE4DC5875294D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ TunesKit Audio Capture для Mac - это самое умное и просто
 ```bash
 magnet:?xt=urn:btih:128196E7BFFCD22A3AFB57277A123F2644EEDB1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ Stallion - Rise And Ride (2014) [FLAC|Lossless|image + .cue] <Heavy, Speed Metal
 magnet:?xt=urn:btih:B7A679F6847BD36CBD6AAEB202FB11421B69D0E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +518,8 @@ Coastwise - 2 Albums (2022-2023) [MP3|320 Kbps] <Hard Rock>
 magnet:?xt=urn:btih:922C83DA4DF2BD3F840158502010A7AA49B41DE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +543,8 @@ MediaHuman YouTube Downloader 3.9.9.82 (1905) RePack (& Portable) by elchupacabr
 ```bash
 magnet:?xt=urn:btih:9D47CC6039D3F5387452223B5A01A8465C4EC8FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ magnet:?xt=urn:btih:9D47CC6039D3F5387452223B5A01A8465C4EC8FB
 magnet:?xt=urn:btih:85939E1F1C14B10D58ECE2517B2699E9869E9FDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ magnet:?xt=urn:btih:85939E1F1C14B10D58ECE2517B2699E9869E9FDD
 magnet:?xt=urn:btih:DA79F6465682CED1B0940AA59B5CFF0B3CA2123D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ magnet:?xt=urn:btih:DA79F6465682CED1B0940AA59B5CFF0B3CA2123D
 ```bash
 magnet:?xt=urn:btih:B5B2A00B9D1D1FE3EE15FDF61FC1FF30433594A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ Irist - 2 Albums (2020-2022) [MP3|320 Kbps] <Sludge, Groove, Post Metal>
 magnet:?xt=urn:btih:5043F0B5999A990441D8EE90D2E50E31B1D610FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ Perfectly Clear WorkBench позволяет всего за пару клико
 ```bash
 magnet:?xt=urn:btih:FC8E195C79708F60EABF0667A4D9B6D177F55415
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +706,8 @@ magnet:?xt=urn:btih:FC8E195C79708F60EABF0667A4D9B6D177F55415
 ```bash
 magnet:?xt=urn:btih:4DF423985ACF95FA8F58C7D5F32F9EC08649DF6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

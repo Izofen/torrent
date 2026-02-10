@@ -19,6 +19,8 @@ Star Leaping Story – помогите девушке в белом халат�
 magnet:?xt=urn:btih:3A7EEDBD834E12C22B96DBC9169D395E1CA917B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Deepest Chamber: Resurrection (2021) [Multi] (1.08) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:F74A7C9D2C08F2FD586FF3D633F74493811257A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Flashback 2 отправляет геймеров в умопомрачител�
 magnet:?xt=urn:btih:EF67C46595E247A72E361F0EBE0F1A5BF5A09174
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ KoroNeko – откройте двери для нашей предельно р
 ```bash
 magnet:?xt=urn:btih:9DBEBE77D1BDE8195C039B2CB1006F8FA601457C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Chocolate Factory - это не обычный симулятор магната
 magnet:?xt=urn:btih:98C9BF3FAC66851B75B1A5D7038116C7CC9D604C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Metal Gear Rising: Revengeance – сюжетное ответвление от 
 ```bash
 magnet:?xt=urn:btih:193D91A3B45FA5C0C873E0A176A5AD39F525C3F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ MotoGP 24 возвращается, чтобы взреветь моторами
 magnet:?xt=urn:btih:500BD21E9C08AE4B9ECCAA8F5B17B981FC235ECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Scars of Mars (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4CF1148C3AD87BF188EF824B45A3D37689C3F751
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Circuit Superstars - гоночный симулятор, представлен
 magnet:?xt=urn:btih:558EDCEB55157B94C5C47E93891FA3BA70618A3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Nancy Drew: Mystery of the Seven Keys (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7A98005446125591C4DF5E2F9A1D23B1805C09B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Frozen Synapse 2 предлагает классический для страт
 magnet:?xt=urn:btih:269687001B92C5CD0B97298E2AE652F537185AAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ My Horse: Bonded Spirits ставит вас на место маловероя�
 ```bash
 magnet:?xt=urn:btih:9FAC8D1583F0EED384990200413920A6EAE57EF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Psychopath Massacre (2024) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:FD7C2F197481A991D96D164F748681D2C15E5D12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Flame Keeper (2023) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A657393AF99A2F95DE1B08DA59D997168F230910
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Baggage Inspector (2024) [Multi] (1.0) Repack FitGirl [VR]
 magnet:?xt=urn:btih:64A0AB559B8C94DBD4D8873E88035582CF537D18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Forge Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F46FA9B9A7F4C174E2E8AD508529B48BBBB22F1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Astor: Blade of the Monolith вставьте себя на место Асто�
 magnet:?xt=urn:btih:1CE04665C7A07BACC713BA91521F20FD30649EAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Crystal Caves HD – переиздание классического плат�
 ```bash
 magnet:?xt=urn:btih:5AFE7C726768324B228281196494FBD463FE98AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ The Black Pool (2023) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:D695F4F1AC396273946A3C766F677A3C32ECBA17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Fish Game (2023) [En] (00.02.79) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:E2E9A228328341C7E5862ED8C78FF3F5EF540644
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Cookie Cutter (2023) [Ru/Multi] (1.0) License GOG
 magnet:?xt=urn:btih:1A10221E5989D042B8DE8E08F28F8D1E482516EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Monster Bash HD - приключенческий экшн, главным гер
 ```bash
 magnet:?xt=urn:btih:B94E0F96F00030604306C728EAE1ADE00B2E1B79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ CRUELTY – что может быть лучше ужаса от японски
 magnet:?xt=urn:btih:9CDC89DED1CEC56C43457AFEA80F1609E5996CD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ magnet:?xt=urn:btih:9CDC89DED1CEC56C43457AFEA80F1609E5996CD1
 ```bash
 magnet:?xt=urn:btih:75EFF579A48C1D05AFE61828D71DAAC9656A12B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Mountains of Madness (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:96A9582525B45644D9AD385F68DE38A3EBCFFA43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:3FAD629E883B104FD4C3A6746E7E55A55854FEC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

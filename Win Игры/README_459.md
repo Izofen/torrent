@@ -1,27 +1,3 @@
-###  Публикация: 1282364   (745327) от 12.02.2019
-
-The Forgotten Fairytales: The Spectra World (2017) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как преподаватель фольклора, Вы слышали множество мифов и легенд, но Вы не были готовы, когда неизвестный появился на вашем пороге и проклял всю Вашу семью, превратив их в камень! Теперь Вам предстоит отправиться в таинственный мир сказок и легенд из рассказов своей бабушки и остановить злую царицу, стоящую за всем этим хаосом. Но все же тут что-то не так. Что заставило (   Читать дальше...   )Тип издания: UnofficialРазработчик: EleFun GamesЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C57392B617C3A065AADE6229AFFC89EC051AC98A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216996   (745765) от 02.04.2018
 
 Ostalgie: The Berlin Wall (2018) [Ru/En] (1.0.6.c) License PLAZA
@@ -42,6 +18,8 @@ Ostalgie: The Berlin Wall (2018) [Ru/En] (1.0.6.c) License PLAZA
 ```bash
 magnet:?xt=urn:btih:3D553D84886B0EFF9C366D860A21EF1D47B03F4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1) Repac
 magnet:?xt=urn:btih:6ED1E411C00BFB0484DC6C88CC6FD246E0452F81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Crest - an indirect god sim (2018) [En] (1.2/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:F19159C58FAE0E287C8680CF7DFD16EBDEEF6D3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Demonheart (2017) [En] (1.41) Repack Other s [Chapter 1-4]
 magnet:?xt=urn:btih:6367E3AB936085468DCF31DD8F53C08B53C9B6CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Jagged Alliance возвращается! Превосходное сочета�
 ```bash
 magnet:?xt=urn:btih:7EEBF4038E94611A0D887F7B7FBCCEA71A34022A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Kingdom Rush Origins – это третья игра в завоевавшей 
 magnet:?xt=urn:btih:8552A4BE87D4CFBE2AAA32BB655666AA188295AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Victor Vran - это изометрический ролевой экшен с �
 ```bash
 magnet:?xt=urn:btih:12A8C7FA7854F212D3444BE8F92344B6A4B72312
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Biker Garage: Mechanic Simulator позволит вам стать профес
 magnet:?xt=urn:btih:78CCAD286B4703B2D59D98F9074F7204D9ED8779
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Edge of Reality 8: Lost Secrets of the Forest (2022) [En] (1.0) Unofficial [Coll
 ```bash
 magnet:?xt=urn:btih:B7E4DFE2915E31A887B17613A910732237AF6624
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Little Town Hero (2020) [Multi] (1.0) License TiNYiSO
 magnet:?xt=urn:btih:D88C4C5A4F853F6B6BAB0E7E3DC01053DA771D35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Fishing: Barents Sea (2018) [Ru/Multi] (1.3.4-3618/dlc) Repack xatab (обнов
 ```bash
 magnet:?xt=urn:btih:63E21942EDF1836785687802DD5B1B3478961CE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Bonfire Stories: The Faceless Gravedigger (2017) [En] (1.0) Unofficial [Collecto
 magnet:?xt=urn:btih:2E1BFD0E1FFC242AC69E2D9E02B6AC3BB28ADBFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ Adam - Lost Memories (2020) [En] (2.0.1) License CODEX
 ```bash
 magnet:?xt=urn:btih:DB0A2673E0DCC317B0248492FFBFAC21B4F04B56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Mafia II / Мафия 2 (2011)  [Ru/Multi] (1.0.0.1/upd5/dlc) License GOG [Direc
 magnet:?xt=urn:btih:DE1E4F495560561D12BE0B4871C99B9992DEA1F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ Evil Cogs (2018) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:6865B9B2B6B6F4E43FDDE3F383EC19FFA78C2350
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ The Signal From Tölva (2017) [En] (1.0.51) License HI2U
 magnet:?xt=urn:btih:E4F320AD759DB2B740D2AB28944E04F568B43DF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ DESPOILER (2018) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:C762D09D94CBBE6524273C6CF569C2F29A8CE3CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ Obduction (2016) [Ru/Multi] (1.7.2) Repack Covfefe
 magnet:?xt=urn:btih:7DC88347500E2219974392DA1D392997B9F217F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ Baldur's Gate II: Enhanced Edition (2013) [En/Multi] (2.2.66.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:32D43BE82F461D09557C9FB5261C1D9F37383907
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Rise & Shine совмещает в себе аркадный шутер с ис�
 magnet:?xt=urn:btih:0BA1DD3DBDAE545370819BB513D6EF3F0657B2C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ Alekhine's Gun (2016) [Ru/Multi] (1.02) Repack Other s
 ```bash
 magnet:?xt=urn:btih:DDA33345B0290EB8C573271B6A9E70D31E1136A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ Mars Horizon (2020) [Ru/Multi] (1.4.1.0) Repack Other s
 magnet:?xt=urn:btih:3D1A60BD65DAE455122762574FD17B775A2DF8F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ Facility 47 (2015) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:CD565009AD64987E3EFDAD4C1F7C7CE77938DD45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ Alekhine's Gun (2016) [Ru/Multi] (1.02) License CODEX
 magnet:?xt=urn:btih:C5A86ED20B1B1DF09521CD8A1571DDC247B40980
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ Dreadful Tales: The Space Between / Жуткие истории: Кто таит
 ```bash
 magnet:?xt=urn:btih:431B1AA8582E8363DBCD03897789EE311D3B71C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396268   (748037) от 14.07.2020
+
+On The Road - Truck Simulator (2019) [Ru/Multi] (1.1.3.49) Repack Other s
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748037.jpg" />
+</div>
+
+
+###  Подробнее
+
+On the Road - реалистичный симулятор грузовиков для ПК от разработчика Toxtronyx. В вашем распоряжении около 6500 км автомагистрали и более 600 км проселочных дорог, включая подробные развязки автомагистралей. Игрок может побывать в разных городах Германии, таких как Гамбург, Бремен, Берлин, Кельн, Дортмунд, Мюнхен с уникальными дорожными дизайнами и достопримечательностями. (   Читать дальше...   )Тип издания: RepackРазработчик: toxtronyx interactive GmbHЖанр: Simulator, 3DЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C2A62E2AA8E873FF1B3D46DBA49AC3D85D44168
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

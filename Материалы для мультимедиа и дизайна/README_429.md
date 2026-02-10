@@ -1,3 +1,139 @@
+###  Публикация: 1486024   (1004967) от 29.07.2021
+
+Растровый клипарт - Design Bundles - Cute Animals Collection - 20 Premium Graphics [PNG, JPG, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот набор включает 20 сборников клипарта.Формат: PNG, JPG, PSDРазрешение файлов: 3600x3600-10000x10000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E50A329C211C73352B38966C7D187F08239FA5AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485858   (1005089) от 28.07.2021
+
+Векторный клипарт - Set of different insects on background of white wooden wallpaper [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Насекомые
+4 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B9AC8BD09FAA516620A090ED146B99492C715CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485969   (1005093) от 28.07.2021
+
+Векторный клипарт - Wildlife and marine dwellers cartoon fish watercolor illustrations [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Мультяшные морские обитатели
+4 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:606609BF1FBF8A84BFD67F6C6707060BF1FEAFF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485941   (1005101) от 28.07.2021
+
+Растровый клипарт - Сборник клипарта #44 [PNG, TIF]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 208x640-4800x3243
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE8B21278F1AE5BC968D7066249254E3FF96158
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485939   (1005103) от 28.07.2021
+
+Векторный клипарт - Watercolor Christmas characters and elements collection illustrations [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новогодний
+12 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FD2C00AF0329F4DD08AFD178F27FEB862B7D2E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1485518   (1005268) от 26.07.2021
 
 Сборник - Creative Fabrica - Rolled Paper Flower Templates SVG Cut [AI, EPS, SVG, PNG]
@@ -18,6 +154,8 @@
 ```bash
 magnet:?xt=urn:btih:96DAF63EE2F92C12B83444BBA40A52BC80EB6635
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +183,8 @@ magnet:?xt=urn:btih:96DAF63EE2F92C12B83444BBA40A52BC80EB6635
 magnet:?xt=urn:btih:9DB446049D90CFBF46F453F35FB7481C71782A03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +211,8 @@ magnet:?xt=urn:btih:9DB446049D90CFBF46F453F35FB7481C71782A03
 magnet:?xt=urn:btih:BECA507CC5F0CF53DAF7F164AD34CB238089E4DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +236,8 @@ magnet:?xt=urn:btih:BECA507CC5F0CF53DAF7F164AD34CB238089E4DC
 ```bash
 magnet:?xt=urn:btih:29F21DABB23A60CC80B2FEBF79F06F65E53D2CF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +263,8 @@ magnet:?xt=urn:btih:29F21DABB23A60CC80B2FEBF79F06F65E53D2CF1
 magnet:?xt=urn:btih:5AE750B91045531159571E5CC150A4A449C0482A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +288,8 @@ magnet:?xt=urn:btih:5AE750B91045531159571E5CC150A4A449C0482A
 ```bash
 magnet:?xt=urn:btih:A7651B4923784D694F15D6641B95BA56751DF9A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +315,8 @@ magnet:?xt=urn:btih:A7651B4923784D694F15D6641B95BA56751DF9A9
 magnet:?xt=urn:btih:6E75317AC3BD11C9C500631063103B893F7DCE11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +340,8 @@ magnet:?xt=urn:btih:6E75317AC3BD11C9C500631063103B893F7DCE11
 ```bash
 magnet:?xt=urn:btih:8AAFE679BA0AB2C4FF0229674BD65C868651A308
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +367,8 @@ magnet:?xt=urn:btih:8AAFE679BA0AB2C4FF0229674BD65C868651A308
 magnet:?xt=urn:btih:2C36DEDB5DC6AB9A351A5991C28AF832FAC45C4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +392,8 @@ magnet:?xt=urn:btih:2C36DEDB5DC6AB9A351A5991C28AF832FAC45C4B
 ```bash
 magnet:?xt=urn:btih:C992D587135D9EAC98AC386835784FE06CCBD6F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +419,8 @@ magnet:?xt=urn:btih:C992D587135D9EAC98AC386835784FE06CCBD6F9
 magnet:?xt=urn:btih:F17D37EDD0600B9AD2CB3C4D6C6A8CEF3EB84C74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +444,8 @@ magnet:?xt=urn:btih:F17D37EDD0600B9AD2CB3C4D6C6A8CEF3EB84C74
 ```bash
 magnet:?xt=urn:btih:344057A0B846B5E221FF959CF6A1B17EF0151262
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +471,8 @@ magnet:?xt=urn:btih:344057A0B846B5E221FF959CF6A1B17EF0151262
 magnet:?xt=urn:btih:A85EB23439ABBE44C1451418B22ACE9B789153DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +496,8 @@ magnet:?xt=urn:btih:A85EB23439ABBE44C1451418B22ACE9B789153DF
 ```bash
 magnet:?xt=urn:btih:C62AFAA97677CE22C2D39B5CBBCEA8F2766642F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +523,8 @@ magnet:?xt=urn:btih:C62AFAA97677CE22C2D39B5CBBCEA8F2766642F5
 magnet:?xt=urn:btih:4F1299230F4EF1931F14EF7E7BF3FC18C0D31D7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +548,8 @@ magnet:?xt=urn:btih:4F1299230F4EF1931F14EF7E7BF3FC18C0D31D7D
 ```bash
 magnet:?xt=urn:btih:3DC48E14818411BF6CE29859D70E7CA49EE64EC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +575,8 @@ magnet:?xt=urn:btih:3DC48E14818411BF6CE29859D70E7CA49EE64EC6
 magnet:?xt=urn:btih:88B2FBEABA5FC9701DADDA3B89BB09F6A8F59C85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +600,8 @@ magnet:?xt=urn:btih:88B2FBEABA5FC9701DADDA3B89BB09F6A8F59C85
 ```bash
 magnet:?xt=urn:btih:B7BE44F82E7091AA456D9E35F52E61EA34B4843A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +627,8 @@ magnet:?xt=urn:btih:B7BE44F82E7091AA456D9E35F52E61EA34B4843A
 magnet:?xt=urn:btih:A1B5C889A0359DA9CA9289A456C859DBD7ECFBAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +652,8 @@ magnet:?xt=urn:btih:A1B5C889A0359DA9CA9289A456C859DBD7ECFBAA
 ```bash
 magnet:?xt=urn:btih:4438F4D0B55EAEB7F3A6334CAECD80A20C35D888
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,125 +679,7 @@ magnet:?xt=urn:btih:4438F4D0B55EAEB7F3A6334CAECD80A20C35D888
 magnet:?xt=urn:btih:E4047CFDD17C89ACC71968ED4E009B3173AC4B2D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483679   (1006648) от 15.07.2021
-
-Растровый клипарт - Сборник клипарта #33 [PNG, TIF, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIF, JPGРазрешение файлов: 214x227-5787x3858
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D8DA4BCF10E6F0D74E12E66518993F20D66DF2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483678   (1006649) от 15.07.2021
-
-Растровый клипарт - Сборник клипарта #32 [PNG, TIF]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 223x1606-4996x6000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ED91D840E47C488640DE50B0DA9A528A19F56B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483677   (1006653) от 15.07.2021
-
-Растровый клипарт - Сборник клипарта #31 [PNG, TIF, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIF, JPGРазрешение файлов: 223x1604-5087x3281
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D849FCBA5568B7FBC90A8747A3FAA68A0411DAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483671   (1006656) от 15.07.2021
-
-Растровый клипарт - Сборник клипарта #25 [PNG, TIF, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIF, JPGРазрешение файлов: 213x640-5368x3530
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33098A39EC6D23AD82423E5650A2ED58175189CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483674   (1006657) от 15.07.2021
-
-Растровый клипарт - Сборник клипарта #28 [PNG, TIF]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 228x444-8000x2838
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17681144392A53FEAA1ED075C5DAA7499C03B65A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

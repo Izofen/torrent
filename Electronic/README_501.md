@@ -22,6 +22,8 @@ Faint - Label-Pack 28 Releases (2016-2021) [FLAC|Lossless|WEB-DL|tracks] <Ambien
 magnet:?xt=urn:btih:7D26AAE0096649C985768DA01B7A63CD045FF2E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Cafe Del Mar Ibiza - Made Of Sunsets (2021) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:F8439A859E5A80E805DF294173116850FB766ED8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Matters Of The Heart (2021) Behind The Sky Music [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:B32EABF42CE53167F2393C4363DC0F8F24207913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Summer In Space Vol. 4 (2021) 2CD, Compilation [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:B9473A9784F9EEED3FA4C04140D21D0D79BBC53E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Balmorhea - The Wind (2021) [FLAC|Lossless|tracks + .cue] <Modern Classical, Pos
 magnet:?xt=urn:btih:B7BD86A46FCA02D0F800A92CEA3CE8C4953B667A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Summer In Space Vol. 4 (2021) [MP3|320 Kbps] <Spacesynth>
 ```bash
 magnet:?xt=urn:btih:656292704BD8E34F10948C40DE2C09E93B8114B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Oliver Schories - Paradigm (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tec
 magnet:?xt=urn:btih:78AB600F60DF3C2FF48C99D583DD2E8A6FB6F1CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -209,6 +223,8 @@ Bot1500 - Discography 9 Releases (2016-2021) Analogical Force, Furthur Electroni
 ```bash
 magnet:?xt=urn:btih:89E19F2F062A337D1DAD6C95CD074E2A41BAF9A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +253,8 @@ Microlith | Rhys Celeste - Discography 13 Releases (2014-2021) CPU Records, mind
 magnet:?xt=urn:btih:070A14523F2F2FEBCF6A3F797EB7D86D567A3434
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +281,8 @@ VA - Female Vocal Trance 2021 [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:E7E81201D779976DE5F31F031374ED67DD0C4159
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +311,8 @@ Eli & Fur - Found In The Wild (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep Ho
 magnet:?xt=urn:btih:685BB2DABAEE4D3403FE01F88445CD526F2F4A02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +339,8 @@ Liebknecht (Daniel Myer & Rinaldo Bite) - Discography 8 Releases (2017-2021) Har
 ```bash
 magnet:?xt=urn:btih:D384C90AAB5D819E20C478323B791A0B15E67C1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +369,8 @@ Gimmik - Discography 15 Releases (1997-2021) Worm Interface, Toytronic, n5MD [FL
 magnet:?xt=urn:btih:5790BC017DA3EEDC3AA0729DCD702B6665167AF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +397,8 @@ Mause - Run/Stop EP & Remixes (2021) Massage Brain Cult [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:1F4816753AF1FB09EB8B7A0594A850758496F346
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +427,8 @@ Nutronixx - Planet Of Love (2020) [FLAC|Lossless|tracks + .cue] <Synth-pop, Euro
 magnet:?xt=urn:btih:442D50AC52AD0D50D1914622018209F5589EE1A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +455,8 @@ Morphology - Discography 29 Releases (2010-2021) Zyntax Motorcity, Abstract Form
 ```bash
 magnet:?xt=urn:btih:658859ACD50B00F6B0C905BA75804D6EBF7452BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +485,8 @@ De-Phazz - Discography 42 Releases (1997-2020) Mole Listening Pearls, Phazz-a-de
 magnet:?xt=urn:btih:E41927135A32CD2697C3A1E33822D52EF23555B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +513,8 @@ Smyglyssna - Departures (2001) Vertical Form [FLAC|Lossless|Vinyl|tracks] <Leftf
 ```bash
 magnet:?xt=urn:btih:C0AF92963152CDA6FD6EB6FB5831801D015F7BA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +543,8 @@ DVS NME - The Electro Manifesto (2021) [FLAC|Lossless|WEB-DL|tracks] <Electro, I
 magnet:?xt=urn:btih:BBE720C426DA90E64A35AD92D1C9E173E9E1DB92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +571,8 @@ Shaded Explorer - Harmonic Growth (2020) Pregnant Void [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:09E119883015477D6048CAE57B8B6370E1617D0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +601,8 @@ VA - opensource.code (2002) Source Records [FLAC|Lossless|tracks+.cue] <Techno, 
 magnet:?xt=urn:btih:EB8EB3DE22CFE9505E0FDDBEB7C87EF1F968B3FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +626,8 @@ Christian Löffler (Christian Loffler) - Discography 36 Releases (2009-2021) Ki 
 ```bash
 magnet:?xt=urn:btih:DD1C238A057B145692C48C216226AA2DDB53749C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +656,8 @@ Max Corbacho - Discography 27 Releases (1998-2021) [FLAC|Lossless|tracks+.cue, t
 magnet:?xt=urn:btih:0CF4E9F76286E62CFA3938554F812B818F81C217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +681,8 @@ Gas - Discography 21 Releases (1996-2020) Mille Plateaux, Kompakt [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:E56DD6BC5DBAF9775A8E59616F785A6353A8DD82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -663,6 +711,8 @@ XqST - ∀∃ (2020) Isla [FLAC|Lossless|WEB-DL|tracks] <Tribal, Experimental, A
 magnet:?xt=urn:btih:F5F30B21706114068DB8490D690034BCCD0D2C84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -689,6 +739,8 @@ Silent Season - Label-Pack 90 Releases (2007-2021) [FLAC|Lossless|tracks+.cue, t
 ```bash
 magnet:?xt=urn:btih:6F1CA34584250A3FBA85BC3C00D2069A73F5FDD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

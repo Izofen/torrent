@@ -22,6 +22,8 @@ Princess Connect! Re:Dive / PriConne / Связь принцесс! Новое �
 magnet:?xt=urn:btih:5BC5B662BF115513755788C66FAA6EB402CEEBD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Sennen Joyuu | Millennium Actress | Актриса тысячелетия [2001,
 magnet:?xt=urn:btih:3D24CE1DC7EF7E4DC2776160B9BDCED8434DC480
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Inu-Oh | Inu-Ou | Ину-о: Рождение легенды [2022, Movie] BDRem
 ```bash
 magnet:?xt=urn:btih:B50E1209485FD3468DE73D0841597D06E3EF53E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Vinland Saga | Сага о Винланде [ТВ-1] [2019, TV, 24 из 24] BDRe
 ```bash
 magnet:?xt=urn:btih:23683C8D30A1DA410CD3ABFE199B20FFA23FD581
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Maou Gakuin no Futekigousha | The Misfit of Demon King Academy | Непризн�
 magnet:?xt=urn:btih:8343B6EFCCAB23AFEF0409457894613320645B57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Prima Doll / Прима-кукла [2022, TV, 12] BDRemux 1080p raw
 ```bash
 magnet:?xt=urn:btih:C57ED71769AE02B983F69AE991482BD5BEC36C28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Tenki no Ko | Weathering with You | Дитя Погоды [Movie] DVD9 480p raw+
 magnet:?xt=urn:btih:2E3B60DB0CE4EC66785DF9D953750879FC7B3E34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ Tenki no Ko | Weathering with You | Дитя Погоды [Movie] DVDRemux 480p 
 magnet:?xt=urn:btih:4B58541B2F3F62C7F4E5F37241BB8CE8BB7D9F21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Grand Blue Season 2 | Grand Blue Dreaming Season 2 | Необъятный оке
 ```bash
 magnet:?xt=urn:btih:21466F3966983DCBFB14D938126B0F6C5F209E03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:21466F3966983DCBFB14D938126B0F6C5F209E03
 magnet:?xt=urn:btih:B18B2F78239D441EC77BC457021135A17F68A8D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ Girls und Panzer: Saishuushou | Girls und Panzer das Finale | Девушки и 
 ```bash
 magnet:?xt=urn:btih:8AFFFAC46069DF8B58AADB4AA8DC5718356C2CD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ Girls und Panzer: Saishuushou | Girls und Panzer das Finale | Девушки и 
 magnet:?xt=urn:btih:6E96BD3A5EA936216FD5DC4C33FB5C8505BB5A49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ Gekijouban Chainsaw Man: Reze Hen / Chainsaw Man the Movie: Reze Arc / Чело�
 ```bash
 magnet:?xt=urn:btih:060B7C75B13373699B56E2B0B8DAE12FD326543F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ Shinseiki Evangelion Gekijouban: Shi to Shinsei | Neon Genesis Evangelion: Death
 magnet:?xt=urn:btih:9A0BB76FA06A0AD5DF499A8A4B2FF15F7E1FB55C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ Kaze no Tani no Nausicaa | Nausicaa from the Valley of the Wind | Навсика
 ```bash
 magnet:?xt=urn:btih:8DC41F167E52B738C35905B24A30D92B13DBEBF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ Kaze no Tani no Nausicaa | Nausicaa from the Valley of the Wind | Навсика
 magnet:?xt=urn:btih:07DDCCB77A78921819086C8120AFA696E7FBC3D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ Soutai Sekai | The Relative Worlds | Относительные миры [2017, 
 magnet:?xt=urn:btih:1E8B9C7FF84E6F58204631E95B04D7DB8A338929
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ Phantom Yuusha Densetsu: Return The Sky | Фантом: Легенда о хра
 ```bash
 magnet:?xt=urn:btih:D6A75982F09D0BF15A7A688675BD463484178807
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ Kimi no Na wa | Your Name | Твоё имя [2016, Movie] UHD BDRemux HEVC 10-bi
 magnet:?xt=urn:btih:96227403B3219BE2EA0310E3DF9BCE8DC9EA24DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ No Game No Life Zero | Нет Игры - Нет Жизни: Начало [2017, 
 magnet:?xt=urn:btih:614689326DD96FECDAE8CD70FF3B8EA7B5864F6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ Sound & Fury | Sturgill Simpson Presents Sound & Fury | Звук и ярость
 ```bash
 magnet:?xt=urn:btih:E709F353C7002610BC38B2AC22293629934C5738
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ Kari-gurashi no Arietti / The Secret World of Arrietty / Ариэтти из с�
 magnet:?xt=urn:btih:744F030D58E3C5AD46952B052BD0577C038CBD96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ Toki wo Kakeru Shoujo / The Girl Who Leapt Through Time / Девочка, пок
 ```bash
 magnet:?xt=urn:btih:B36EDD83B7B6AF6AB6B92FB70875848DFAEF5673
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ Kumo no Mukou, Yakusoku no Basho / Beyond the Clouds, The Promised Place / За 
 magnet:?xt=urn:btih:A5966BD6B24515E274FE7E48A1F2973A07BDD0C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ Japanese Anime Classic Collection / Коллекция классики япон
 magnet:?xt=urn:btih:907C41095A4FF4B5D7A499409BEC54DCA4367CDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ Min Diao Ju Yi Wen Lu | Bureau of Paranormal Investigation | Сводки бюр
 ```bash
 magnet:?xt=urn:btih:55A77B78F03164DEFB8D2A6F179803DEB28F88A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

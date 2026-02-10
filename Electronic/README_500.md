@@ -22,6 +22,8 @@ World Circuit - Desolate Snow Roads (2021) Fantasy Enhancing [FLAC|Lossless|WEB-
 magnet:?xt=urn:btih:7452196127F3D74627EF71A01DA9D395EA7BFAFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - SUMMER HITS 2021 [FLAC|Lossless|WEB-DL|tracks] <Deep House, Future House, D
 ```bash
 magnet:?xt=urn:btih:C9C19DABCB9D20651ED2DABFB4B6252692B1EB12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Methyl Lily - Methyl Lily (2021) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient>
 magnet:?xt=urn:btih:F9FCF72BEA473A81F5317D370FB5DEACAD58C683
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ All India Radio | Antecedent - Discography 87 Releases (1999-2021) Inevitable Re
 ```bash
 magnet:?xt=urn:btih:69167DE367C349F69C364832BD32155BA5DB30D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ T.Power | Shy FX & T Power | Atomic Dog | Marc Royal - Discography 40 Releases (
 magnet:?xt=urn:btih:B5E94E263A797EBCDDBF5FE1B31052B6EDA123E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ BCee & Charlotte Haining - Life As We Know It (2020) [FLAC|Lossless|Web-DL|track
 magnet:?xt=urn:btih:D8566E24416F2C3B736F75AE78245EE28DDC3241
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ Antiform - City In Exile (2009) [Flac|Lissless]<Drum & Bass, Hip Hop, Breaks, Ro
 ```bash
 magnet:?xt=urn:btih:2FC598E129C63D2135AB382BB5C487A4523EFDF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ John Williams - Rodrigo: Concierto de Aranjuez_Villa-Lobos : Guitar Concerto (19
 magnet:?xt=urn:btih:CE19C16826713B74C2AA53FD54EFD35FD5C831FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +248,8 @@ Om Unit - The Mahakala VIP's (2021) Bandcamp Exclusive [FLAC 2.0|44.1/24|tracks|
 ```bash
 magnet:?xt=urn:btih:07B71295415CFB47F6436212F948590AEE3456E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +278,8 @@ Before Tigers - Missing My Future (2021) 79Ancestors [FLAC 2.0|44.1/24|tracks|WE
 magnet:?xt=urn:btih:9D821F1E21C21C34EA6DCA3549B380FB4D0B0F78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +306,8 @@ Ben Frost - Discography 33 Releases (2001-2021) [FLAC|Lossless|tracks+.cue, trac
 ```bash
 magnet:?xt=urn:btih:EC59B8061C5D8E5035A165D34130A3D96C305600
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +336,8 @@ Krystian Shek | Tosa Inu - Discography 40 Releases (2003-2021) [FLAC|Lossless|tr
 magnet:?xt=urn:btih:B9CC7B194FCC258DAF89E0EBABC2B6841DB57A79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +364,8 @@ AlimkhanOV A. - We Are The Universe (2021) [MP3|320 Kbps] <Spacesynth, Synthdanc
 ```bash
 magnet:?xt=urn:btih:160B79F44EFBEF0DDC4858D62396221ED87DF8B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +394,8 @@ VA - Twisted (10 Year Anniversary) (2007) Twisted Records [FLAC|Lossless|tracks+
 magnet:?xt=urn:btih:90482D2591138B70788CB558ACD2DEFE8F175E19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +422,8 @@ Evade Robots - Voids (2021) Low Recordings [FLAC|Lossless|WEB-DL|tracks] <Breaks
 ```bash
 magnet:?xt=urn:btih:10A27A0CB4C86344C0AC79326576F2DDA6163D77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +452,8 @@ Porter Ricks - Biokinetics (2012) (Reissue 1996) Type [FLAC|Lossless|tracks+.cue
 magnet:?xt=urn:btih:51E72930DD20B10054D599EC5A96C1D685D0870A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +480,8 @@ Barker & Baumecker - Transsektoral (2012) Ostgut Ton [FLAC|Lossless|tracks+.cue]
 ```bash
 magnet:?xt=urn:btih:E472AB13E0560AE406647813F3358E15494C794F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +510,8 @@ Eluvium (Matthew Robert Cooper, Martin Eden) - Discography 30 Releases (2003-202
 magnet:?xt=urn:btih:1CC900752377C5BCEA7C98D1E0EBEFC8E9BBB206
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +538,8 @@ beatfarmer - The Light (2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
 ```bash
 magnet:?xt=urn:btih:A0B3764D6F24E93FE9092452BA237398DFD61E67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +568,8 @@ VA - Chilled Orient: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Ba
 magnet:?xt=urn:btih:7C4DBCFE214FD2BAC9E1B03C7D570263C1297742
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +596,8 @@ VA - Acoustic Guitar Hits 2021 [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lo
 ```bash
 magnet:?xt=urn:btih:B829179034E3EF78612BBD7DF7544E2F665E5DA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +626,8 @@ VA - Adykt (2021) Dyadik [FLAC|Lossless|WEB-DL|tracks] <IDM, Leftfield, Glitch, 
 magnet:?xt=urn:btih:0D01472113A1692504E7BC373D45555B397D3A8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +654,8 @@ Ryan Lee West (Rival Consoles, Aparatec) - Discography 20 Releases (2007-2021) E
 ```bash
 magnet:?xt=urn:btih:AF0E25593036F1DE336425AA85CC9E60D5C29BBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +684,8 @@ magnet:?xt=urn:btih:AF0E25593036F1DE336425AA85CC9E60D5C29BBC
 magnet:?xt=urn:btih:DF0B0C031DD057BA0A4A7D9491693C4CF32F9882
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +713,8 @@ VA - Matters Of The Heart (2021) Behind The Sky Music [FLAC 2.0|48/24|tracks|WEB
 magnet:?xt=urn:btih:71CED093C286A9FBF4A91F1F5102795B4283671F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -691,6 +741,8 @@ VA - Monday Dreamin' (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Hous
 ```bash
 magnet:?xt=urn:btih:0657FA7B165457ED9AEEF73041EF4E8780AC93C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

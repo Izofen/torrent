@@ -1,3 +1,29 @@
+###  Публикация: 1524174   (746361) от 14.01.2022
+
+Владислав Хапров | Чёрный космос – чёрный флаг (2021) [MP3, Игорь Князев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через тысячу лет наше время и даже наше ближайшее будущее будет для людей такой же туманной историей как для нас морские походы викингов, кругосветное плавание Френсиса Дрейка или пиратские набеги на Маракайбо и Панаму Генри Моргана. И через тысячу лет наверняка учёные будут так же изучать первые космические полёты, первые полёты к планетам Солнечной системы и первые (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 15:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B578ADBF8EB9A307DB206B4F9576CDEEABBEEB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524187   (746368) от 14.01.2022
 
 Сергей Недоруб | Борланд (Книга 1). Песочные часы (2021) [MP3, Олег Шубин]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:1057F00421D8526E7FB00C77B022BFD76B74856A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:1057F00421D8526E7FB00C77B022BFD76B74856A
 magnet:?xt=urn:btih:F0EADC2F3443B08D91D652164F5D6F476CB5FF5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:F0EADC2F3443B08D91D652164F5D6F476CB5FF5D
 ```bash
 magnet:?xt=urn:btih:B8D4D18796307713EE22A05FD5E518A10C50CC6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:B8D4D18796307713EE22A05FD5E518A10C50CC6F
 magnet:?xt=urn:btih:EC65E4A37AD6A043E5AA9C8E5531CB58AE05CECD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:EC65E4A37AD6A043E5AA9C8E5531CB58AE05CECD
 magnet:?xt=urn:btih:50EDB7CC838B68BDE98CB0A319A08F15C3BB3CBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:50EDB7CC838B68BDE98CB0A319A08F15C3BB3CBB
 ```bash
 magnet:?xt=urn:btih:9628A60DC1F0752551E7042BA37147801F5525BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:9628A60DC1F0752551E7042BA37147801F5525BF
 magnet:?xt=urn:btih:C9AEFA59994FA19A4201CBD07AF2CDD08550A700
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:C9AEFA59994FA19A4201CBD07AF2CDD08550A700
 magnet:?xt=urn:btih:732CC2D57B939C47AD1B6A607EB32DCDFF083CEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:732CC2D57B939C47AD1B6A607EB32DCDFF083CEC
 ```bash
 magnet:?xt=urn:btih:2ACD25A37D2B479012D78A0E3EA6D5EC296F557E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:2ACD25A37D2B479012D78A0E3EA6D5EC296F557E
 magnet:?xt=urn:btih:B70577BCC57874D6A126864414A9CC7C04337698
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:B70577BCC57874D6A126864414A9CC7C04337698
 ```bash
 magnet:?xt=urn:btih:8A0401EE28145ECA6C5CFA8395D98BD4EC4856A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:8A0401EE28145ECA6C5CFA8395D98BD4EC4856A4
 magnet:?xt=urn:btih:E73BA0303E4B76A42012418E9C08C4A9E6BCE01F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:E73BA0303E4B76A42012418E9C08C4A9E6BCE01F
 ```bash
 magnet:?xt=urn:btih:EEC3BE06C62E38EE953C2FF40B210A6086AB2E97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:EEC3BE06C62E38EE953C2FF40B210A6086AB2E97
 magnet:?xt=urn:btih:711504498A7942C7E7D70A56F5C990A96CB3156D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:711504498A7942C7E7D70A56F5C990A96CB3156D
 ```bash
 magnet:?xt=urn:btih:95B02682B562F102E837217D36C13D832E399820
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:95B02682B562F102E837217D36C13D832E399820
 magnet:?xt=urn:btih:9A2B5579CE7AEC6C3360F36F26820AE983190F84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:9A2B5579CE7AEC6C3360F36F26820AE983190F84
 ```bash
 magnet:?xt=urn:btih:08C78A0308C80A71083817B9D68469A115C12599
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:08C78A0308C80A71083817B9D68469A115C12599
 magnet:?xt=urn:btih:B4D9554492D2FD8A827E432ADB71C659570BF474
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:B4D9554492D2FD8A827E432ADB71C659570BF474
 ```bash
 magnet:?xt=urn:btih:883BA4482EC7792E18C1B0585296194C3A2DF9BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:883BA4482EC7792E18C1B0585296194C3A2DF9BE
 magnet:?xt=urn:btih:CE0D4695265EBB7B5DC140C6614A3CF478251336
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:CE0D4695265EBB7B5DC140C6614A3CF478251336
 ```bash
 magnet:?xt=urn:btih:DBE0F8D96FCB79EDE4E06322E42378258FD5F74F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:DBE0F8D96FCB79EDE4E06322E42378258FD5F74F
 magnet:?xt=urn:btih:058529431B7492976F09E535012986D3670197A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:058529431B7492976F09E535012986D3670197A2
 magnet:?xt=urn:btih:1A334819E5B6A0BB5A3FB90826C30D4545D4103C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:1A334819E5B6A0BB5A3FB90826C30D4545D4103C
 ```bash
 magnet:?xt=urn:btih:D1BD3E154C85F59C87DE3BED15538DEB35FCD11D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,30 +679,7 @@ magnet:?xt=urn:btih:D1BD3E154C85F59C87DE3BED15538DEB35FCD11D
 magnet:?xt=urn:btih:4414B91D7F3B6BA9B3738B4B57BF896454DD2005
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216206   (750726) от 30.03.2018
-
-Антон Емельянов, Сергей Савинов | Первый поход (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир Карика похож на игру: тут можно получать уровни, развиваться, воскресать в случае неудач. Но стоит допустить ошибку, и ты легко умрешь по-настоящему.
-Если сначала Коту все только казалось непростым, то теперь он в этом уверен на сто процентов. Практически каждый в отряде смог преподнести сюрприз, и ни один из них не оказался приятным. Тем не менее, сейчас приходит (   Читать дальше...   )Жанр: Боевое фэнтези, LitRPG, ПопаданцыПродолжительность: 14:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B66131AB3DB9A425B70038EC29A8F643766C82B0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1115600   (825686) от 18.03.2017
-
-Аисты / Storks (2016) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аисты приносят детей… или, во всяком случае, раньше приносили. Теперь же они занимаются доставкой посылок для огромного сайта интернет-продаж. Джуниор, лучший аист в курьерской компании, должен пойти на повышение, но он случайно активирует машину для создания детей и получает очаровательную, но совершенно незапланированную девочку.
-
-Пытаясь доставить эту «посылку» (   Читать дальше...   )Производство: США / Warner Bros. Pictures, Warner Bros. AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Николас Столлер, Даг СвитлэндПерсонажи: Энди Сэмберг, Кэти Краун, Келси Грэммер, Дженнифер Энистон, Тай Бурелл, Антон Старкман, Кигэн-Майкл Ки, Джордан Пил, Дэнни Трехо, Стив ГликманПеревод: Дублированный (Лицензия BD CEE)Субтитры: Русские (Форс.+Полные), Английские (Full+SDH)Продолжительность: 01:26:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:673A10C74E678C02AC499258A1802779E37C37AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 880980   (825900) от 24.03.2015
 
 Хранитель Плотины / The Dam Keeper (2014) WEB-DL [1080p] [VO]
@@ -45,6 +19,8 @@ magnet:?xt=urn:btih:673A10C74E678C02AC499258A1802779E37C37AB
 ```bash
 magnet:?xt=urn:btih:5761CAE5A1767845596593B06964A1694550D67E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +46,8 @@ magnet:?xt=urn:btih:5761CAE5A1767845596593B06964A1694550D67E
 magnet:?xt=urn:btih:0A012EF0A2766122C266958A20A04A2EDF511E32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +71,8 @@ magnet:?xt=urn:btih:0A012EF0A2766122C266958A20A04A2EDF511E32
 ```bash
 magnet:?xt=urn:btih:CE103D4C03C5B623AB94229BC0F07F5F1C1ED3E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +98,8 @@ magnet:?xt=urn:btih:CE103D4C03C5B623AB94229BC0F07F5F1C1ED3E0
 magnet:?xt=urn:btih:E3E6ACF5398757B91C0AB514924EA8E0D02EF46A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +123,8 @@ magnet:?xt=urn:btih:E3E6ACF5398757B91C0AB514924EA8E0D02EF46A
 ```bash
 magnet:?xt=urn:btih:5CD40E147626BE09FA4ECB3F86D7A261CB40A6EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +151,8 @@ magnet:?xt=urn:btih:5CD40E147626BE09FA4ECB3F86D7A261CB40A6EB
 magnet:?xt=urn:btih:ECD9815E4213FB0D51A289C8272B59A094FD0DD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +176,8 @@ magnet:?xt=urn:btih:ECD9815E4213FB0D51A289C8272B59A094FD0DD4
 ```bash
 magnet:?xt=urn:btih:EE22973DAD0BCFE2856BB84FE8EC62BD4DB0458D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +203,8 @@ magnet:?xt=urn:btih:EE22973DAD0BCFE2856BB84FE8EC62BD4DB0458D
 magnet:?xt=urn:btih:CDE5B9F7CB19052B2D5FD7909533B5F95C419EC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +228,8 @@ magnet:?xt=urn:btih:CDE5B9F7CB19052B2D5FD7909533B5F95C419EC2
 ```bash
 magnet:?xt=urn:btih:68881FA7B6BD66A2BC80C568713D07711E9B12F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +255,8 @@ magnet:?xt=urn:btih:68881FA7B6BD66A2BC80C568713D07711E9B12F0
 magnet:?xt=urn:btih:2CCF81C5FB53A2FB40166734898C18EAC3A0E50A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +280,8 @@ magnet:?xt=urn:btih:2CCF81C5FB53A2FB40166734898C18EAC3A0E50A
 ```bash
 magnet:?xt=urn:btih:2D872247255DFFB997AA70BE11BC05564427E267
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +307,8 @@ magnet:?xt=urn:btih:2D872247255DFFB997AA70BE11BC05564427E267
 magnet:?xt=urn:btih:5F153A9CA79ED684FFA9F93EA74D0AA22D517B72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +332,8 @@ magnet:?xt=urn:btih:5F153A9CA79ED684FFA9F93EA74D0AA22D517B72
 ```bash
 magnet:?xt=urn:btih:60F0C55A35AB4B35DCB80D7380C7D960D559C1B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +359,8 @@ magnet:?xt=urn:btih:60F0C55A35AB4B35DCB80D7380C7D960D559C1B8
 magnet:?xt=urn:btih:CCB2A1BB04A481026E37088527E44532C9B73CDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +384,8 @@ magnet:?xt=urn:btih:CCB2A1BB04A481026E37088527E44532C9B73CDB
 ```bash
 magnet:?xt=urn:btih:D757EAEC88079900656AFF5F69334C12AF90DA11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +411,8 @@ magnet:?xt=urn:btih:D757EAEC88079900656AFF5F69334C12AF90DA11
 magnet:?xt=urn:btih:F5DE4ADBDE66487DBC0395D8800BF7C6566B3C3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +436,8 @@ magnet:?xt=urn:btih:F5DE4ADBDE66487DBC0395D8800BF7C6566B3C3E
 ```bash
 magnet:?xt=urn:btih:7DC928AA3C55D199BE7E0AEA09AD3211FFA37B53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +465,8 @@ magnet:?xt=urn:btih:7DC928AA3C55D199BE7E0AEA09AD3211FFA37B53
 magnet:?xt=urn:btih:BC348D947B3842EC348F2E43CDA4F5FCA2A5A73F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +490,8 @@ magnet:?xt=urn:btih:BC348D947B3842EC348F2E43CDA4F5FCA2A5A73F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +517,8 @@ magnet:?xt=urn:btih:BC348D947B3842EC348F2E43CDA4F5FCA2A5A73F
 magnet:?xt=urn:btih:DCB1FA794D9D9590F3CE0F5F473E9F8001ED9BFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +542,8 @@ magnet:?xt=urn:btih:DCB1FA794D9D9590F3CE0F5F473E9F8001ED9BFF
 ```bash
 magnet:?xt=urn:btih:4AE716E964C8AD3E268927BBD23ED540D4B33869
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +572,8 @@ magnet:?xt=urn:btih:4AE716E964C8AD3E268927BBD23ED540D4B33869
 magnet:?xt=urn:btih:5CC262B974061CB84E1365A086407DFE7FBB6DF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +597,8 @@ magnet:?xt=urn:btih:5CC262B974061CB84E1365A086407DFE7FBB6DF6
 ```bash
 magnet:?xt=urn:btih:49868A026EA77A653B5C8A2EBD0AA3770D58166C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +624,8 @@ magnet:?xt=urn:btih:49868A026EA77A653B5C8A2EBD0AA3770D58166C
 magnet:?xt=urn:btih:0A7198786B6DB5E1837100214BCDBA702B607B25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +649,34 @@ magnet:?xt=urn:btih:0A7198786B6DB5E1837100214BCDBA702B607B25
 ```bash
 magnet:?xt=urn:btih:60D4AC01B1B81242491782A23C7191B67E47C29E
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315009   (830879) от 04.05.2020
+
+Моана / Moana (2016) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесстрашная Моана, дочь вождя маленького племени на острове в Тихом океане, больше всего на свете мечтает о приключениях и решает отправиться в опасное морское путешествие. Вместе с некогда могущественным полубогом Мауи им предстоит пересечь океан, сразиться со страшными чудовищами и разрушить древнее заклятие.Производство: США / Hurwitz Creative, Walt Disney Animation Studios, Walt Disney PicturesЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Рон Клементс, Джон Маскер, Дон ХоллПеревод: Дублированный, авторскийСубтитры: русские, английскиеПродолжительность: 01:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3B6A9A0B1BCDF6EDBB8D1A65FD5E581D1DC5048
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

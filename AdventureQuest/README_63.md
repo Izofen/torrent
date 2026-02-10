@@ -19,6 +19,8 @@ Bye Sweet Carole (2025) [Ru/Multi] (1.0.6) Repack Let'sРlay
 magnet:?xt=urn:btih:8A09A443B7495088987D8F867255A7C84D715200
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Creepy Tale: Some other place – это мрачная история, раск
 ```bash
 magnet:?xt=urn:btih:1EDAE6A91E41D76882B7F62898A5BA91F7B74F76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Paradise Killer (2020) [En] (1.3.0) License GOG [Perfect 25 Edition]
 magnet:?xt=urn:btih:B324B1DE94456B82808304A94D4720766AFD429F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Lost in Darklight - это увлекательная интерактивная
 ```bash
 magnet:?xt=urn:btih:55A95A0751A7735E782A08C374E12F64B26ECD7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Serial Cleaners - сиквел игры про профессиональног�
 magnet:?xt=urn:btih:ED83401B83891D40080BDF5F415E0402E9DFFAB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Sherlock Holmes The Awakened дает возможность игроку выс
 ```bash
 magnet:?xt=urn:btih:5E553961CE21119063541284F25D4F5531B47E48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Chernobyl: Origins (2023) [Ru/Multi] (Build 10809098/dlc) Repack Other s
 magnet:?xt=urn:btih:AA8FCFB0440589D08084E19F78C694BE95E1B04E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Bramble: The Mountain King – это приключенческий хорро�
 ```bash
 magnet:?xt=urn:btih:1DA137A438D62E19E687FD0D31AD6D729E8262F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Between (2023) [Ru/En] (1.1.3.200423) Scene Tenoke
 magnet:?xt=urn:btih:B7D5203096A482346C4254EF7ED7EC657EAEA41A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Project Nightmares Case 36: Henrietta Kedward (2021) [Ru/Multi] (1.06) License G
 ```bash
 magnet:?xt=urn:btih:756C337FFC84F9F66BE6863A4891B31AF20ACBCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ I Know This Place..? (chapter I) приглашает игроков в мист
 magnet:?xt=urn:btih:F7476B4699D140DFC697A11B6EE1B6B076E113C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Unbeatable Path - это леденящий душу хоррор от пе�
 ```bash
 magnet:?xt=urn:btih:57B398A898880F964BBC4FFC0098B7E5DA1983DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ New Tales from the Borderlands (2022) [Multi] (10415597/dlc) Repack DjDI [Deluxe
 magnet:?xt=urn:btih:1A18C38E6FE5300924EA4439B15E31B570E82F65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Deliver Us The Moon - это научно-фантастический трил�
 ```bash
 magnet:?xt=urn:btih:0B3810525D0FA0EB5F3C02755B5A25C9C38826DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Sherlock Holmes The Awakened дает возможность игроку выс
 magnet:?xt=urn:btih:DB5EF4429FC85A2F09DA279EC371A91EBA758EA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Sherlock Holmes The Awakened (2023) [Multi] (10918242) Scene FairLight
 ```bash
 magnet:?xt=urn:btih:007147F572BA05EB9CCFEEFA2A01CE0F1D90F94C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Road 96: Mile  (приквел к Road 96) — это сюжетная игра 
 magnet:?xt=urn:btih:ED80CA3831A59F5063847AA2552400501A4C9375
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Sarah 2 - Das Geheimnis der Einhornfohlen / Девочка и единорог (
 ```bash
 magnet:?xt=urn:btih:BA49F64552FDB45635177499A90FEA6A331892E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Venba рассказывает историю молодой мамы, кото�
 magnet:?xt=urn:btih:A26C143ED6C798A7E0421A4AED89A6AEA8EBCDF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Stillness of the Wind (2019) [Ru/Multi] (1.1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:B7824570115AECAA95523B9DA6BC81CF48CB5A99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Lumo, волшебный платформер повышенной степен�
 magnet:?xt=urn:btih:9EB6B44363DBB0C7F831703C04E068EBB99C8D14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Conquests of Camelot: The Search for the Grail, Conquests of the Longbow: The Le
 ```bash
 magnet:?xt=urn:btih:46BC53B859BFCB85B73FFEBD6BEE12202BAA3A4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Knock on the Window – это атмосферный хоррор с эстет
 magnet:?xt=urn:btih:6D4B54CB703858AE0334D73CADDE06FCE3EC49AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Sushi Ben (2025) [Ru/Multi] (1.5.250918.5) Repack FitGirl [VR]
 ```bash
 magnet:?xt=urn:btih:1A6CE2E634EA48430DB67A21EE9E4BB4AF59FFF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Agatha Christie - Death on the Nile / Агата Кристи - Смерть н�
 magnet:?xt=urn:btih:79911EB3E3626FB3807AA422C15ED14C2CB898DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ DE-EXIT - Eternal Matters - приключение, в котором предс
 ```bash
 magnet:?xt=urn:btih:271A8611309A88E104F522884DD5F4DF55FC267D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ SlimCleaner - программа для очистки и оптимизации
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ SlimCleaner - программа для очистки и оптимизации
 ```bash
 magnet:?xt=urn:btih:126288E602F29B453C098300F4D7C4BF03D20E32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ Freakangel - Let It All End (2012) [MP3|320 kbps]<Industrial, EBM, Dark Electro>
 magnet:?xt=urn:btih:8AC69F3904860AD86755514FE38C7D05E8131B37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ AIDA64 (старое название Everest) - утилита является
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Anvi Smart Defender 1.0 RC2 [english]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -159,6 +169,8 @@ Tommy Bolin and Friends - Great Gypsy Soul (2012) [MP3|320 кб/с]<Hard rock, B
 magnet:?xt=urn:btih:B90E0BD920B6DEF130DE9BDC0BD9DBF60BC0DC6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +204,8 @@ Escape With Romeo - Samsara (2012) [FLAC|Lossless]<Synth Pop, Dark Wave, Gothic>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +231,8 @@ Codec Pack All in 1 это один из самых лучших пакетов 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +267,8 @@ Ernesto - Discovery Mission (2012) [FLAC|Lossless]<Spacesynth>
 magnet:?xt=urn:btih:3416188F0CF69797F75D311040B18F2E8C12E23A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +294,8 @@ magnet:?xt=urn:btih:3416188F0CF69797F75D311040B18F2E8C12E23A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +320,8 @@ magnet:?xt=urn:btih:3416188F0CF69797F75D311040B18F2E8C12E23A
 magnet:?xt=urn:btih:2D6D2F2C6789F8128F040E3DCB4BD96FC88DF256
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +345,8 @@ Notepad++ - это бесплатный редактор текстовых фа
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +376,8 @@ Notepad++ - это бесплатный редактор текстовых фа
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +401,8 @@ Notepad++ - это бесплатный редактор текстовых фа
 ```bash
 magnet:?xt=urn:btih:F944475663154DD59334ED23A4CE6CACC9BDD4FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +435,8 @@ Aztec Magic Ball [5.0+jailbreak]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +460,8 @@ Playboy — легендарный журнал для мужчин. Экскл�
 ```bash
 magnet:?xt=urn:btih:4D74DAC6819624A910792157903272CD8771417D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +487,8 @@ magnet:?xt=urn:btih:4D74DAC6819624A910792157903272CD8771417D
 magnet:?xt=urn:btih:443246E21482DA4DE1A7E9E686E60A670C5EA850
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +512,8 @@ ICE Book Reader Professional - это мощная читалка электро
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +539,8 @@ IsMyLcdOK 1.71 Portable [Multi/Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +564,8 @@ IsMyLcdOK 1.71 Portable [Multi/Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +597,8 @@ IsMyLcdOK 1.71 Portable [Multi/Русский]
 magnet:?xt=urn:btih:B40019643ADE539D77A4E248A9CA36016F86E889
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +624,8 @@ Race Of Champions - The Official Game [3.2+jailbreak]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +649,8 @@ Corel AfterShot Pro 1.0.1.10 [Multi]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +676,8 @@ jv16 PowerTools - одна из лучших программ для работ�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +701,8 @@ FileMenu Tools - программа настраивает пункты конт
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -681,6 +731,8 @@ Prince of Persia® Classic [4.3+jailbreak]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

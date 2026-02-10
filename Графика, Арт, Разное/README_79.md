@@ -1,51 +1,3 @@
-###  Публикация: 928167   (523237) от 15.08.2015
-
-Картинки - Landscapes / Пейзажи [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цветочные поля, луга, горные долины, водопады и др. природные ландшафты.Формат: JPGРазрешение файлов: 1920х1080 — 7360х4912
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE63CA2B8B395E19630B3D7FEBA6DB141728C58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927254   (523245) от 15.08.2015
-
-Картинки - Пейзажи [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Картинки с пейзажамиФормат: JPGРазрешение файлов: 1680x1120 - 17100x5000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:774C554B9261BD28ECE23C43965B354D6A78E633
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927748   (523277) от 15.08.2015
 
 Обои - Коллекция обоев FullHD 1920х1080 #33 [JPG]
@@ -66,6 +18,8 @@ magnet:?xt=urn:btih:774C554B9261BD28ECE23C43965B354D6A78E633
 ```bash
 magnet:?xt=urn:btih:A981A16945BD051F3D2D7EC58C924DAC40ABEDF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +47,8 @@ magnet:?xt=urn:btih:A981A16945BD051F3D2D7EC58C924DAC40ABEDF8
 magnet:?xt=urn:btih:439C3DEAC458692B1D82C2AE8C61FECCE095E41D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +72,8 @@ magnet:?xt=urn:btih:439C3DEAC458692B1D82C2AE8C61FECCE095E41D
 ```bash
 magnet:?xt=urn:btih:8E71A8ACF64ACE52CD87F6E7B4B9F1A53F760AFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +99,8 @@ magnet:?xt=urn:btih:8E71A8ACF64ACE52CD87F6E7B4B9F1A53F760AFE
 magnet:?xt=urn:btih:FF0329EF1BEB610E89E26A16A73470AD74CD2307
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +124,8 @@ magnet:?xt=urn:btih:FF0329EF1BEB610E89E26A16A73470AD74CD2307
 ```bash
 magnet:?xt=urn:btih:5DCD8A0D1862542096B9491FEF769A94437B82B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +151,8 @@ magnet:?xt=urn:btih:5DCD8A0D1862542096B9491FEF769A94437B82B3
 magnet:?xt=urn:btih:8C1973B4EE6B45100614C9AE835B6DB8FE13668F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +176,8 @@ magnet:?xt=urn:btih:8C1973B4EE6B45100614C9AE835B6DB8FE13668F
 ```bash
 magnet:?xt=urn:btih:222C247D7E593644E6EAFBB94262DAFB3E879BED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +203,8 @@ magnet:?xt=urn:btih:222C247D7E593644E6EAFBB94262DAFB3E879BED
 magnet:?xt=urn:btih:706CB349CCFE1E77540FBD927BC7D454590151DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +228,8 @@ magnet:?xt=urn:btih:706CB349CCFE1E77540FBD927BC7D454590151DF
 ```bash
 magnet:?xt=urn:btih:B9175AFCB50310932B485C4D26703D829603B7FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +255,8 @@ magnet:?xt=urn:btih:B9175AFCB50310932B485C4D26703D829603B7FD
 magnet:?xt=urn:btih:78212B9F7A25B9EC13424249E16AA019E1836DCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +281,8 @@ magnet:?xt=urn:btih:78212B9F7A25B9EC13424249E16AA019E1836DCC
 magnet:?xt=urn:btih:E6025190AF97E2785A9612D33A39E692BF115E4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +306,8 @@ magnet:?xt=urn:btih:E6025190AF97E2785A9612D33A39E692BF115E4D
 ```bash
 magnet:?xt=urn:btih:811E587816BB7B7B2E7067AE82DF8ACEDD72B9A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +334,8 @@ magnet:?xt=urn:btih:811E587816BB7B7B2E7067AE82DF8ACEDD72B9A5
 magnet:?xt=urn:btih:BB7EC98F8E76F5C6C2DB44C33E39AC878DAF99A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +359,8 @@ magnet:?xt=urn:btih:BB7EC98F8E76F5C6C2DB44C33E39AC878DAF99A5
 ```bash
 magnet:?xt=urn:btih:C9534468BC10F25E90508B3A38C268C7659F8080
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +387,8 @@ magnet:?xt=urn:btih:C9534468BC10F25E90508B3A38C268C7659F8080
 magnet:?xt=urn:btih:D38EE7814C884DB3EA98C7E88B3157BB842A27CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +413,8 @@ magnet:?xt=urn:btih:D38EE7814C884DB3EA98C7E88B3157BB842A27CE
 ```bash
 magnet:?xt=urn:btih:CEBEB5118A6CDFAF376A869ECC1B8C21AAB717AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +441,8 @@ magnet:?xt=urn:btih:CEBEB5118A6CDFAF376A869ECC1B8C21AAB717AD
 magnet:?xt=urn:btih:F1B0366C0CB2473B0822B96C93527863675D2B5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +467,8 @@ magnet:?xt=urn:btih:F1B0366C0CB2473B0822B96C93527863675D2B5A
 ```bash
 magnet:?xt=urn:btih:51B67135FC6A989E8602DBA27304A4B6DD28ECF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +495,8 @@ magnet:?xt=urn:btih:51B67135FC6A989E8602DBA27304A4B6DD28ECF0
 magnet:?xt=urn:btih:CE30AEB087493F922242C71B0391A9B987EB379F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +521,8 @@ magnet:?xt=urn:btih:CE30AEB087493F922242C71B0391A9B987EB379F
 ```bash
 magnet:?xt=urn:btih:474BF402AFB63F2C0EA7B510D6DEB85D4DED37F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +549,8 @@ magnet:?xt=urn:btih:474BF402AFB63F2C0EA7B510D6DEB85D4DED37F5
 magnet:?xt=urn:btih:3CF947E31EA406195A0E87DE566FCB3C8D35B85F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +575,8 @@ magnet:?xt=urn:btih:3CF947E31EA406195A0E87DE566FCB3C8D35B85F
 ```bash
 magnet:?xt=urn:btih:6702640ECCC223A9C2FBED70865B68B307B93A2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +603,8 @@ magnet:?xt=urn:btih:6702640ECCC223A9C2FBED70865B68B307B93A2C
 magnet:?xt=urn:btih:03AFD6DB37C06909CC029D1E4DEAD38DCF5F4900
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +629,62 @@ magnet:?xt=urn:btih:03AFD6DB37C06909CC029D1E4DEAD38DCF5F4900
 ```bash
 magnet:?xt=urn:btih:02F6DB79B81821951B3E6D5FDC1C81889E844471
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313210   (528106) от 07.07.2019
+
+Картинки - Old pics of Poole and Bournemouth [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это коллекция из примерно 11 100 старых фотографий Пула и Борнмута в Дорсете, Великобритания, собранных за 10 лет.
+Они были собраны из различных общедоступных источников, таких как ebay, коллекции фотографий на Flickr, ныне несуществующий веб-сайт streetofbournemouth.co.uk, группы Facebook и многие другие.
+Самые ранние фотографии были сделаны в 1860 году, а последние (   Читать дальше...   )Формат: JPGРазрешение файлов: 400x266-6891x4290
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE361C67CE109397C912125E51DFBE0525CD2010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927168   (528506) от 13.08.2015
+
+Обои - Абрикосы, персики и нектарины - принимайте, люди, витамины! 50 обоев 4К [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сочные солнечные персики, абрикосы и нектарины для здоровья вашего компьютера ). Примерно половину обоев составляют "фрукты на белом фоне", можно использовать для творчества.Формат: JPGРазрешение файлов: 3840х2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFF5E0AF6CCA33BA4320A88EF64D1F9060EB155B
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ BBC Horizon: Остановить мужские самоубийства / Stop
 magnet:?xt=urn:btih:44DC450ECBC73F7238815D24F6CC604F55380E88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NGW: Дикие острова гигантов / Savage Island Giants (2016) HD
 ```bash
 magnet:?xt=urn:btih:839C934071D97B91BC99B5EAC7AAC2C835CA69F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NGW: Огромная акула-молот / Mega Hammerhead (2016) HDTV [H.264
 magnet:?xt=urn:btih:2F0F0A153A8B0CCCA22B9469D1088BF68D514FDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NG. Суперсооружения. Мегазаводы. Суперавтомо
 ```bash
 magnet:?xt=urn:btih:E616A867911F84D094E21D999EFF72B8C962BF93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BBC. Древний Египет: Жизнь и смерть в Долине Ц�
 magnet:?xt=urn:btih:032D62E8938FDD784226CA55A69CF01F997C0CD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NG: Взгляд изнутри. Крупнейший круизный лайн�
 ```bash
 magnet:?xt=urn:btih:D9B43490581C738904FC13B0BECC22107F8DA3E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Discovery Channel приглашает совершить запредельно
 magnet:?xt=urn:btih:3FFFFFEE4D174C68FEBDB13D341B620CE9C0CC6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ BBC: Утерянные города Египта / Egypt's Lost Cities (2011) [
 ```bash
 magnet:?xt=urn:btih:A85A05B362521CB7C81E30B9603334FFEE61CE29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ BBC. Все о космосе / The Complete Cosmos (1998) DVDRip [1, 2 сери
 magnet:?xt=urn:btih:007A8EF5FC1DF8F3B66571B3AA5496167EE80DD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:007A8EF5FC1DF8F3B66571B3AA5496167EE80DD0
 ```bash
 magnet:?xt=urn:btih:D0D8197975020AC7FDADA18E4A0F0C7D77C7161A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:D0D8197975020AC7FDADA18E4A0F0C7D77C7161A
 magnet:?xt=urn:btih:6A85AE877DD412511B40B964907320EC6D295177
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ NG: Просто магия / General Magic (2018) SATRip
 ```bash
 magnet:?xt=urn:btih:6C041E965333EB125A5A142406717E45EE5C25B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ NG. Грандиозные переезды - Перенос древнего Е
 magnet:?xt=urn:btih:D0A6BB5E8714318A65A4C7FD427F4EF770963796
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ BBC. Horizon. Как развить творческие способности?
 ```bash
 magnet:?xt=urn:btih:4025330FD53D925B40CBC6CE55798259E5C3A44D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ BBC. Horizon: Возможно ли создать звезду на Земле?
 magnet:?xt=urn:btih:E6A818C8B2F579CEDC1144AC58DC43555D4502DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Discovery. Как устроена Вселенная / How the Universe Works (
 ```bash
 magnet:?xt=urn:btih:EC5DC32CF6D0D7FDA12C387CFB8D614E0988B17C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ NG: Инстинкт выживания: Пустыни / Primal survivor: Deser
 magnet:?xt=urn:btih:DCB15280CF78213FB67FD13A374D1F494A58E7D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ NG: Инстинкт выживания: Китай. Яростная река /
 ```bash
 magnet:?xt=urn:btih:0C493BBE26CCF8DE9D4E4BA42515A971D466EA89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Animal Planet: Хищник в городе: лев на свободе / Urban 
 magnet:?xt=urn:btih:FDD3DE88296E48E8B163543AA973FB799E4FFC21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:FDD3DE88296E48E8B163543AA973FB799E4FFC21
 ```bash
 magnet:?xt=urn:btih:A9F8094AA87DFF2B0D176A6E10425D96812560F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ NG: Разгадка египетских тайн / Egypt unwrapped (2008) HDTV
 magnet:?xt=urn:btih:F90A1254D64A72591385A7E9116699279158883C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ NG. Откуда берутся диктаторы (Корни диктатур�
 ```bash
 magnet:?xt=urn:btih:8B5F1077E6F43D71E8BFB2C5E393317C43B856DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:8B5F1077E6F43D71E8BFB2C5E393317C43B856DE
 magnet:?xt=urn:btih:E945EF2902FFF506124952EB564AF42F81F5DBD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ National Geographic. Возмездие / Avenging Evil (2018) HDTVRip [H.264/72
 ```bash
 magnet:?xt=urn:btih:BEE870B02792646EE8152969CDAD85877E825C35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ Discovery: Остров с Беаром Гриллсом / The Island with Bear 
 magnet:?xt=urn:btih:5B722CDF1FE530CB9F9ABF616C0084E21DBCAC3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ National Geographic. Возмездие / Avenging Evil (2018) HDTVRip
 ```bash
 magnet:?xt=urn:btih:D019C92C55A11180AFFA1DF986E175D75C28DFD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

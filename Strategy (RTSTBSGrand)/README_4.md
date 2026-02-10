@@ -19,6 +19,8 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.4.127/dlc) Repack seleZen
 magnet:?xt=urn:btih:758BBBF6707BB170575C4F5C6166513286E4C760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ StarCraft: Brood War (1998) [Ru] (1.16.1/dlc) Repack Ranger
 ```bash
 magnet:?xt=urn:btih:A9AE378988E74107FDA2DD5C98FA70231845547E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ HUMANKIND (2021) [Ru/Multi] (1.0.27.4539/dlc) Repack dixen18
 magnet:?xt=urn:btih:AF6714A9D6ABAE17518063A13C088313BC6FEFAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:AF6714A9D6ABAE17518063A13C088313BC6FEFAF
 ```bash
 magnet:?xt=urn:btih:263AD522CD15CA9FB2128C700082A307D4B67AD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Horizon — это пошаговая космическая стратегич�
 magnet:?xt=urn:btih:C40606F9CE88C577F970CCB2C25F44AD5AF683A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:C40606F9CE88C577F970CCB2C25F44AD5AF683A0
 ```bash
 magnet:?xt=urn:btih:13E623634764FDC0BE0B1837001D8BBD7B2D3FDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:13E623634764FDC0BE0B1837001D8BBD7B2D3FDF
 magnet:?xt=urn:btih:ED2AB3B67DB79B37DA1DC0244D951FF386FE6B4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Strategic Command WWII: World at War - это ваш шанс изменить �
 ```bash
 magnet:?xt=urn:btih:C67875321C02E85BE4F91FBCB8CF5E317C2058CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Strategic Command: World War I (2019) [Multi] (1.15.00/dlc) License GOG
 magnet:?xt=urn:btih:44DC31460E766854CE3D343A70A4DFFE654B11CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Stargate: Timekeepers (2024) [Ru/Multi] (1.02.59) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6A0B5ABBE3ABDE46969392CA8F9EC48B0970690D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Sid Meier's Alpha Centauri™ (1999) [En] (1.1/dlc) License GOG [Planetary Pack]
 magnet:?xt=urn:btih:4689B481A9B9F009AA1FFC44EAFEDE2F82936B9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Warcraft I: Remastered (2024) [Ru/Multi] (1.0.0.2137) Scene Razor1911
 ```bash
 magnet:?xt=urn:btih:4384435BE7245CC07C9B957EC8D220ABD9762F81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Ara: History Untold (2024) [Ru/Multi] (1.1.0/dlc) Scene Rune
 magnet:?xt=urn:btih:A8619B5ADF61A583B56C7970841212AEB68E27AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Warcraft II (2): Remastered (2024) [Ru/Multi] (1.0.0.2157) Scene Razor1911
 ```bash
 magnet:?xt=urn:btih:FE9275B2549BADDD8307EE5032C3F46E3667C2B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Dead Season (2024) [Ru/Multi] (1.0.0.7) License GOG
 magnet:?xt=urn:btih:CBD0B13C38EDD0B161D1392E6F1D8DBBDBF35CF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Strategic Command WWII: War in Europe (2016) [Multi] (1.30.00.01) License GOG
 ```bash
 magnet:?xt=urn:btih:9E410815452436B52256B8C0F811B9C20C041B18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Empire of the Ants (2024) [Ru/Multi] (1.02.19732) Repack FitGirl
 magnet:?xt=urn:btih:F8C4D357CDB6EF82BC3F1AECA28AF089B4340AF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Cold Zero: No Mercy / Cold Zero: Финальный отчет (2003) [Ru/En] (1
 ```bash
 magnet:?xt=urn:btih:EE6029AC5F8BED73FBB41067B0B68F469EC8C9B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Empire of the Ants (2024) [Ru/Multi] (1.02.19732/dlc) Repack seleZen
 magnet:?xt=urn:btih:02598873B9350C3CF9AF277F73B91624AF3CA9F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Call to Arms - Gates of Hell: Ostfront – стратегия в реально�
 ```bash
 magnet:?xt=urn:btih:4E1AB26E5ACDA27ADF9D28A8C620D67E1238216E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Call to Arms - Gates of Hell: Ostfront – стратегия в реально�
 magnet:?xt=urn:btih:7E081A2A18154FC1153600790611D603B5081291
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Unity of Command II (2019) [Ru/Multi] (Update 29/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3E1CA48DA8D4DF19E70F0DDF2B16B48142F3D421
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Europa Universalis IV (4) (2013) [Multi] (1.37.5.0/dlc) License GOG
 magnet:?xt=urn:btih:DF3F5DB55D643765903C37640F5DFB26948C2F9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Strategic Command: American Civil War - долгожданное продолж�
 ```bash
 magnet:?xt=urn:btih:B36D5AD3E7735AB6671BB3B9C6EC9E8DCB6F8353
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Dead Season (2024) [Ru/Multi] (0.9.5.0) Scene FAiRLiGHT
 magnet:?xt=urn:btih:8C330CD7E9DE26958D9B83AF6E9179E3DE9E5412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Ara: History Untold (2024) [Ru/Multi] (1.0.2.105/dlc) Repack Pioneer [Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:5ECA02A431E4CDA017FB1A7696D1362106AF16C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

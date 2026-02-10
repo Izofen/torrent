@@ -19,6 +19,8 @@ Aethra's Chronicles (RePack) [En] 1994 | Pilotus (RG Games)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Bunny Bricks [En] (RePack) 1993 | Pilotus (RG Games)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Sniper Elite: Berlin 1945 (2005) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:3FEA5844957DD8CE980FB09E449DAD6AEA11F8DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Combat Chess (1997) [En] (3.0) License GOG
 magnet:?xt=urn:btih:E07BAEFD0FCE5E421B853F59FD6272E2700FB0A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:E07BAEFD0FCE5E421B853F59FD6272E2700FB0A1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ The Journeyman Project 2: Buried in Time (1995) [En] (1.0) License GOG
 magnet:?xt=urn:btih:410D802BDE443F722A1A3651BDBDD67E80341632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Birthright: The Gorgon's Alliance / Право на жизнь: Союз Гор�
 ```bash
 magnet:?xt=urn:btih:305E40152CD92D26DC075694A8F8FA136C5BBB72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ FireStarter (2004) [En] (1.0) License GOG
 magnet:?xt=urn:btih:00EB1CBB0F9E9E7996D4F79F84EC3A2E585C471A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Pharaoh + Cleopatra (1999) [En] (2.1.0.15/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:23126A7E3FAF3CA0E20AE73218CDFA8226871AAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ The Journeyman Project 1: Pegasus Prime (1997) [En] (1.0) License GOG
 magnet:?xt=urn:btih:C8892788555FF5FC81332839D66F0396183AC59E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ HeadHunter / Охотник за головами (2001) [Ru/Multi] (0.5.8.2) Re
 ```bash
 magnet:?xt=urn:btih:EC6AF9182E2767ECB9F1D7258F20BEEFAD2A3AF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Serious Sam: The Second Encounter / Serious Sam. Второе пришестви
 magnet:?xt=urn:btih:DF5E6916CF119FAD13C2777B21A67880CB80A7CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 ```bash
 magnet:?xt=urn:btih:A8CF760C915B4937F3A5081E7C620A81C5AB29C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Blades of Time (2012) [Ru/Multi] (1.0/dlc) License GOG [Limited Edition]
 magnet:?xt=urn:btih:2DDD12D4C1ADAF868F40311421D4C7BF5CED90A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Apocalypse: Party's Over - безбашенный и отвратительны�
 ```bash
 magnet:?xt=urn:btih:937EA1CCC6A39857CF55D9C582222CAE8B54EB6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ The Settlers 2: 10th Anniversary (2006) [Multi] (11757) License GOG
 magnet:?xt=urn:btih:BA912D16E845F2D9012765F974E9ED59F865AFD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Farm Manager 2018 (2018) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:312F2D7731F1D2A4F3951E3F74321DB916870AF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Star Trek: Armada 2 - стратегическая игра, разработа�
 magnet:?xt=urn:btih:7765264314CEE66BFF2CACBD6B7E7EEED6F0723D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Star Trek: Armada - официальная игра по мотивам знам
 ```bash
 magnet:?xt=urn:btih:76051E520BA934B67453CD83E704273CE401F99F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ Star Trek: Starfleet Command III (2002) [En] (1.01.534_rdna_fix) License GOG
 magnet:?xt=urn:btih:42D3395AB7F807A4195272521F556AEB1253ABE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ World War II Combat: Road to Berlin / Дорога на Рейхстаг (2006) 
 ```bash
 magnet:?xt=urn:btih:FF7DFC2E66F6F96701D284674A1C98B09312A911
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ Total Overdose: A Gunslinger's Tale in Mexico (2005) [En] (1.00) License GOG
 magnet:?xt=urn:btih:0ADAD0AF984CF00CA73215250EB19F60FE8E05A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ Praetorians (2003) [En] (1.04) License GOG
 ```bash
 magnet:?xt=urn:btih:C433055671E6515BE3B8AC18F2A1590DCFA6F53F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ Asterix & Obelix XXL Dilogy / Asterix & Obelix XXL 1 & 2  (2004-2005) [Ru/Multi]
 magnet:?xt=urn:btih:2958DDF69D2573969DF5133447C6C0889FF491B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Rune Classic / Руна (2000) [Ru/Multi] (1.10/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:C639E13977CBFEF1606EF5EB0D17C26DBDEAC73E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +672,8 @@ Crystal Key 2:The Far Realm / Evany: Key to a Distant Land / Кристальн�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

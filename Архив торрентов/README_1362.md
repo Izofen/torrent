@@ -19,6 +19,8 @@ URI Handler – Open With Picker 1.8 [En]
 magnet:?xt=urn:btih:C827CF3F3ADD5FEC9BC55658DE29C4B0474807BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ PhotoChef 1.2 [En]
 ```bash
 magnet:?xt=urn:btih:A8D2BE7570C7CBBCB996623C8239A66C0131F937
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Soulver предназначен для «быстрой математики» 
 magnet:?xt=urn:btih:DD5620F00FE810C42D4EB6358AEA7EE2EDD9FE9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Magic Sort List поставляется с нашим революционны�
 magnet:?xt=urn:btih:B2B3D77715E76367D40F403F99FDFB0136BDE904
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ SyncTime - самое простое решение для синхрониза�
 ```bash
 magnet:?xt=urn:btih:AD215F2081520CF17DBCFADDFF898BFEC2A9D0C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Mirillis Action! 4.38.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:97918917EF8D504D947B08D5582834EA912920EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Duplicate Photos Sweeper - очень простой и легкий в испо
 ```bash
 magnet:?xt=urn:btih:78BD51930D3AA09E77CA6517FABAE5A902B810E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ IconJar 2.7 [En]
 magnet:?xt=urn:btih:27B64FC62D26549CEE0AE2BBDEAD5A777897C058
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 ```bash
 magnet:?xt=urn:btih:F1B8879664D0E60432A5EA03909C0F7D8311AA69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ Duplicate Files Sweeper помогает вам тщательно сканир�
 magnet:?xt=urn:btih:7DDE7C70E7A875AE0340E0CF58C5E57774E1F2B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ Sumatra PDF — мощная, небольшая программа с прос�
 magnet:?xt=urn:btih:A9F451378A91A901FB16A753245D37CA016FB8A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:2A94912294B72B9F7CE2F4CDF2C71BFAE6BF91C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ MediaHuman YouTube Downloader 3.9.9.86 (2509) RePack (& Portable) by elchupacabr
 magnet:?xt=urn:btih:16DEA8FC6DC889CC15BEC6F5A61263F7DE0672AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:16DEA8FC6DC889CC15BEC6F5A61263F7DE0672AB
 ```bash
 magnet:?xt=urn:btih:864820F8F5D6153CAB34CA5DA43E3D2B18E154F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ Perfectly Clear WorkBench позволяет всего за пару клико
 magnet:?xt=urn:btih:211738EBB6571DD9A8C3C368708F5384D83278D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:C1E110D4943B9CB46F575F8092EB0B4157E63068
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ EssentialPIM - это отмеченное различными наградам
 magnet:?xt=urn:btih:E838A2854B365B3A2E9AB3F2F141716D2A792B90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ CherryTree - функциональная программа, которая п�
 ```bash
 magnet:?xt=urn:btih:FDF31B64664A898ADA6223FC5339A2ADABE9CEEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ Mozilla Thunderbird –  легкая и безопасная бесплатна
 magnet:?xt=urn:btih:A4BD2245ED1223C5E0F56256FAA9DDA2D3566A9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 ```bash
 magnet:?xt=urn:btih:6BEDBB1F953CE9790CBC18730DD5104685D75180
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ Icecream Screen Recorder – простая программа для запис
 magnet:?xt=urn:btih:926C014129E0CB01C786C85B804AA80928257582
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Update 11.2022 by OVGorskiy 1DVD
 ```bash
 magnet:?xt=urn:btih:BC13421ADE6C56CA8731C6BF280C0572842A3C98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ GoldWave - звуковой редактор, предназначенный д�
 magnet:?xt=urn:btih:FC09F4232A47B5C189CEA1F06D7BD4DD79A7DF8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ App Builder позволяет создавать приложения для с
 magnet:?xt=urn:btih:CAB90C8DB0F7D20F4E1B732E32D7C569002942EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Chasys Draw IES — бесплатная программа, представл�
 ```bash
 magnet:?xt=urn:btih:9512DB436EA9496C3E6A86E69553E34235CAD3AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +682,8 @@ Text Edit Plus — это простой, но мощный текстовый �
 ```bash
 magnet:?xt=urn:btih:B06B759D1A1A3670B9B4F2DAC6B28FF8FA7C73A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

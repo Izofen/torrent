@@ -1,3 +1,29 @@
+###  Публикация: 1010471   (803956) от 24.04.2016
+
+Андрей Купцов | Странная история оружия. Артиллерия: маршалы СССР против России - Адольф Гитлер против Германии (2003) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803956.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: В книге обосновывается гипотеза о том, что приход Гитлера к власти и заговор Тухачевского - взаимосвязанные события, которые не дали СССР и Германии сформировать военный союз против Европы и США. Анализ книг В.Шелленберга ("Лабиринт") и В.Суворова ("Ледокол") показывает, что и стягивание советских войск, и опережающий германский удар (   Читать дальше...   )Жанр: Публицистика, ИсторияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6524EE2C0E66057F46CB9596EEEE264C7768B3FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010013   (803961) от 24.04.2016
 
 Нонна Савинова | Еноты и самый круглый блин (2016) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:921283665872C5AF125883999DF106A68487B9CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:921283665872C5AF125883999DF106A68487B9CD
 magnet:?xt=urn:btih:576D9C64670CAE29911FBC11D8EAEF7A64536A65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:576D9C64670CAE29911FBC11D8EAEF7A64536A65
 ```bash
 magnet:?xt=urn:btih:53FC33918A92BBB9C518B21013ECB2B77C089377
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:53FC33918A92BBB9C518B21013ECB2B77C089377
 magnet:?xt=urn:btih:256761D916FF154B1ED1B062A89856D7127F94FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:256761D916FF154B1ED1B062A89856D7127F94FE
 ```bash
 magnet:?xt=urn:btih:07413E84CAE59BED3E018BC2D425E8371B21F926
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:07413E84CAE59BED3E018BC2D425E8371B21F926
 magnet:?xt=urn:btih:A79744FB2A33E5304DE3D895546287DAF83B121D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:A79744FB2A33E5304DE3D895546287DAF83B121D
 magnet:?xt=urn:btih:9515226C5CB42CE94A432D3CF16650660E3733C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:9515226C5CB42CE94A432D3CF16650660E3733C5
 ```bash
 magnet:?xt=urn:btih:85ACF53F2126A46F6D21C3B99C839D05B5508372
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:85ACF53F2126A46F6D21C3B99C839D05B5508372
 magnet:?xt=urn:btih:706ADAE3AB83B3334347B753327903E29BFB075A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:706ADAE3AB83B3334347B753327903E29BFB075A
 magnet:?xt=urn:btih:4AAA6A781AF4891723C5E98011516B7CE00B7966
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:4AAA6A781AF4891723C5E98011516B7CE00B7966
 ```bash
 magnet:?xt=urn:btih:19E77C41A5536337397479085B5561CF12A1F66E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:19E77C41A5536337397479085B5561CF12A1F66E
 magnet:?xt=urn:btih:7653479E1431018AE59A4C5BC9C83BE56CED293E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:7653479E1431018AE59A4C5BC9C83BE56CED293E
 ```bash
 magnet:?xt=urn:btih:ED9959D68CF55AD9FAD8754E2B4C75B5D008D487
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:ED9959D68CF55AD9FAD8754E2B4C75B5D008D487
 magnet:?xt=urn:btih:54ABE7992B378C6FE4D4872F09F1D24F171A6140
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:54ABE7992B378C6FE4D4872F09F1D24F171A6140
 ```bash
 magnet:?xt=urn:btih:52F82290F1A650D5004584B584812E4C129D5D11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:52F82290F1A650D5004584B584812E4C129D5D11
 magnet:?xt=urn:btih:7726DBFD04085487C12C4F24F68C0CB80BE0877E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:7726DBFD04085487C12C4F24F68C0CB80BE0877E
 ```bash
 magnet:?xt=urn:btih:B4D7507B61CD2BBC464D1F16705F55A984E4D06B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:B4D7507B61CD2BBC464D1F16705F55A984E4D06B
 magnet:?xt=urn:btih:9512E214A3ECD5E58D1D8905E569E5996D133AC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:9512E214A3ECD5E58D1D8905E569E5996D133AC3
 ```bash
 magnet:?xt=urn:btih:9E2D638456FA2F980D4AEA925B4B833933157890
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:9E2D638456FA2F980D4AEA925B4B833933157890
 magnet:?xt=urn:btih:2768A2EBA85E12D8A852C8EAD238D49960543C6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:2768A2EBA85E12D8A852C8EAD238D49960543C6E
 ```bash
 magnet:?xt=urn:btih:4511306F703C9E7F7EDD69C48700D03F64D66536
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:4511306F703C9E7F7EDD69C48700D03F64D66536
 magnet:?xt=urn:btih:5022C86D03C69CCEDF8874386EDAD13A58035D01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:5022C86D03C69CCEDF8874386EDAD13A58035D01
 ```bash
 magnet:?xt=urn:btih:7EE5EB34A1D25502BFB6E51EFC55C1E15DF36E0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:7EE5EB34A1D25502BFB6E51EFC55C1E15DF36E0F
 ```bash
 magnet:?xt=urn:btih:29CC2EDAD79D579D1797D245CA8589E099B56434
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,29 +682,7 @@ magnet:?xt=urn:btih:29CC2EDAD79D579D1797D245CA8589E099B56434
 magnet:?xt=urn:btih:B1870C8F9C14DC68B298EE95B97C237AE09F4BCC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198698   (805914) от 12.01.2018
-
-Таша Эйрих | Инсайт. Почему мы не осознаем себя так хорошо, как нам кажется (2018) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805914.jpg" />
-</div>
-
-
-###  Подробнее
-
-В современном мире, полном иллюзий и самообмана, взаимодействовать с другими людьми и добиваться успеха день ото дня становится все сложнее, ведь каждый из нас живет в своей реальности и эти реальности часто конфликтуют друг с другом. Как избавиться от заблуждений относительно себя и научиться смотреть правде в глаза? Таша Эйрих направит читателя на путь, который (   Читать дальше...   )Жанр: Зарубежная психология, Саморазвитие / личностный ростФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FC811779C9F586EDC2892BCC6D13775BB832756
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

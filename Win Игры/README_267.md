@@ -19,6 +19,8 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack FitG
 magnet:?xt=urn:btih:D4E390F0380C8923F0105491AD2F23313AE506BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Plants vs. Zombies: Replanted (2025) [Multi] (1.2.1173.0) Repack Necros
 ```bash
 magnet:?xt=urn:btih:B6BE1BFE07728AAC1049EEAB371A334950213BFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ It’s a Wrap! - бросающий вызов 2D-платформер с эле
 magnet:?xt=urn:btih:26040EA86675F5488A521E3DDB730FBE1074F72F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Metal Eden – научно-фантастический адреналинов�
 ```bash
 magnet:?xt=urn:btih:A0A2AC120EA0678D3484C0393960E2151D897CF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Dispatch (2025) [Ru/Multi] (1.0.14864/dlc) Repack Other s [Digital Deluxe Editio
 magnet:?xt=urn:btih:EA2741383A34D6AC843A5FB90FF90A7C15B9F6B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Onirism (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:95502885601C731261D7E82D243D795DBF2C29D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Lady Mabel Mysteries: Death on Board (2025) [En] (1.0) Unofficial [Collector's E
 magnet:?xt=urn:btih:FF0732185C1EFAB2795B8A235AD0E26614A68976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Agatha Christie - Hercule Poirot: The London Case (2023) [Ru/Multi] (1.0) Scene 
 ```bash
 magnet:?xt=urn:btih:7C7AFE3D789B8AC18BCFCB67CE613DFE84A60A26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Apartament 1406: Horror — это напряженная игра ужасов,
 magnet:?xt=urn:btih:C315DFFABF3C0D4EB713369108D2E01D36B802F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Charrua Soccer - это аркадная игра, наполненная экш
 ```bash
 magnet:?xt=urn:btih:AC8C9ABFBACBDB177A42B839F7BC88EBEA826245
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Let'sРlay [Ultimate 
 magnet:?xt=urn:btih:4DDA3369800275F9440988ED928081B992AEDA07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Plants vs. Zombies: Replanted - это ремастер оригинальной
 ```bash
 magnet:?xt=urn:btih:BD7CCDECC0B1AA93895C90E8C8DBBC57ABD6ADC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Fire Shark (2023) [En] (7) License GOG
 magnet:?xt=urn:btih:F64C12F8B05236B6EE9E0A5876FBA66CFB42AC6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Hellfire (2023) [En] (5) License GOG
 ```bash
 magnet:?xt=urn:btih:E87D4459D708CC82FEF72DB21C4D82E415E9948B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Slap Fight (2023) [En] (5) License GOG
 magnet:?xt=urn:btih:E55AF25598D9CCEA75E3B414C7DBD4D836BC667F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Blasphemous 2 (2023) [Ru/Multi] (1.0.5-cs43681) Repack Other s
 ```bash
 magnet:?xt=urn:btih:AA1465B511C0018AF5F20A2A47001DD906D7C589
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Last Labyrinth (2019) [Ru/Multi] (1.0.1) Repack Other s
 magnet:?xt=urn:btih:C819792C193CF5A4DA4113414397B4E662B7A37D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ WildTrax Racing заставляет виртуальных гонщиков в�
 ```bash
 magnet:?xt=urn:btih:2ADD6740F988E691D408B47616571361D926B000
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Shining Resonance Refrain - это ролевая игра в жанре экш�
 magnet:?xt=urn:btih:88E3EEAEF4CC57AF987B68DECAB7543D8709A2A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Orbo's Odyssey (2023) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:E43689F76137817DCA4840557795D39FB1017E76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Lynked Banner of the Spark (2025) [Ru/Multi] (Build 87707/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:66D5C737FF4B1B38741C4CF21ADA0CE30CF10CD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Death in the Water 2 (2023) [Ru/Multi] (1.1.10) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:8A6D5B0FB1CFC843362C41744201A91933EDDD2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Dungeon 100 (2023) [Ru/Multi] (1.03) Scene Tenoke
 magnet:?xt=urn:btih:538D95182BC09476A82AA57DFF9CC7AE36279387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Ultimate Fishing Simulator (2018) [Ru/Multi] (2.3.23.08:181/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:7F523100F048766B580E634C57CE405722B06D33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Lost Lands 8: Sand Captivity / Затерянные земли 8: Песчаны
 magnet:?xt=urn:btih:E558F0DEC77AE487B3C8C0067F062FDF91F37A16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Frank and Drake (2023) [Multi] (1.0.1) Scene Tenoke [Special Edition]
 ```bash
 magnet:?xt=urn:btih:7DE066518432FF2869D12769AFCAAD6AA4D26D89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

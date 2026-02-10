@@ -19,6 +19,8 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (1.3.1) Scene Tenoke
 magnet:?xt=urn:btih:86BEF0525E09F6B793B85D224F782402E5B3C69A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ JustAxe – красочный платформер, который поможе
 ```bash
 magnet:?xt=urn:btih:1915B34132A7B23284B1CA02506A27863D6AFA47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Over Islands – помогите местным жителям мира, кот
 magnet:?xt=urn:btih:87EE24BCD02E4C4EFB102096A17EA56A9B079FEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Messenger - это классический экшн-платформер, �
 ```bash
 magnet:?xt=urn:btih:1AFAFF22B14649D4D698B2B89E791C0F00A650D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Undying (2021) [Ru/Multi] (1.0.2.41413/dlc) Repack FitGirl [Premium Edition - Se
 magnet:?xt=urn:btih:7A8B2E8B2985570ABF0905C45CD77F5A57542FC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Bloodstained: Ritual of the Night – это смесь готического �
 ```bash
 magnet:?xt=urn:btih:2C2801AF13643CC97917F4F0F73785025A866A76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Chornobyl Liquidators - симулятор ликвидатора Чернобы
 magnet:?xt=urn:btih:D35ED5DCE917F4B619AC007B16643EBF392EDC66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Star Named EOS - не совсем обычная приключенческ
 ```bash
 magnet:?xt=urn:btih:96B91A9EFD4954053084821BAA0C5B79DEFA252A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ No Man's Sky (2016) [Ru/Multi] (5.00.1/dlc) Repack Other s [VR]
 magnet:?xt=urn:btih:19E3F16F228E27DDD1D92BAEC6860A0DEAE972A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Gestalt: Steam and Cinder – платформер, выполненный в а
 ```bash
 magnet:?xt=urn:btih:5CBC197EF9EE321CF6789B34640F8309F1017DE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:5CBC197EF9EE321CF6789B34640F8309F1017DE4
 magnet:?xt=urn:btih:343E94BBF00CBDE2EB2F832A1778365C60A51B9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Resurrection of mind (2024) [Ru/En] (Build 15055615) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2ACF01DFEDBC0083ECC40964DE3EEDA10043C6D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (1.0.2) Repack Other s
 magnet:?xt=urn:btih:B7D04D5A7EC280CDFB5043BE80A8DA9E9ED5842B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ House Party (2017) [Ru/Multi] (1.3.3.12714/dlc) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:38AB338D885F9DA8194848497403311A3AA907CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Messenger - это классический экшн-платформер, �
 magnet:?xt=urn:btih:8F46718758E1CAFDEF010E82C3404072D4478570
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ A Day Out – станьте настоящим детективом и пост
 ```bash
 magnet:?xt=urn:btih:8878F44EB544E10F0A82F09CB30BF7F4BAFFC266
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Nickelodeon All-Star Brawl 2 - продолжение оригинальной �
 magnet:?xt=urn:btih:9648D1C0063D1D70360B28DE9120DCCB58F922E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Suppress Academician (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:BB4C755CDBE13F64A922ADD660E49EDC03252650
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Champion Shift – скорее берите разношерстных мифи
 magnet:?xt=urn:btih:C48052B475A1A3F07952D21DEDA804286C726F8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Barrhell – в этой быстроразвивающейся и сложно�
 ```bash
 magnet:?xt=urn:btih:4384BA6B6A9258E02990DEB8E97D613733AB30E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Weko The Mask Gatherer - это не обычная прогулка по пар
 magnet:?xt=urn:btih:EEB2F735C36D560B2B8C406822D0DCDEAA4A7B6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Rising Lords представляет смесь стратегии с карт�
 ```bash
 magnet:?xt=urn:btih:403145CDFEB3286644C4ED4BC2A3F2E5F22430F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Linkito бросает вас в мир мозговых головоломок,
 magnet:?xt=urn:btih:1D098F78D6A7F70756B082BBF0A31D8E3895ABF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Artisan TD бросает вас на ринг стратегий, но с из�
 ```bash
 magnet:?xt=urn:btih:B9EF10D5D5C6CABA10F971DCD94C2E84126CE40F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Hannah’s Day (2024) [Ru/En] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:6F9C365B910F2F1E3831A183756C580EB544770C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Our Adventurer Guild - ролевая игра, где вы переместит
 ```bash
 magnet:?xt=urn:btih:6E670606A25DCEADDF3E5614B7BCC3F0741D8E57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

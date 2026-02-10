@@ -19,6 +19,8 @@ Nanomon Virtual Pet - это возможность завести неболь�
 magnet:?xt=urn:btih:CCCFA23008D2A4ED1D2314FEA12D8894EF97B010
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Crown Gambit - сюжетная тактическая игра, в которо
 ```bash
 magnet:?xt=urn:btih:2F4BFA7ED7AB5F9226A72BE7CFB8F1F894315AEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Boxville (2022) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:ED78109628AA034AB6B02893C21CED62F85A8CB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Medieval Dynasty (2020) [Ru/Multi] (2.4.0.3/dlc) Repack FitGirl [Ultimate Editio
 ```bash
 magnet:?xt=urn:btih:17B2361DEB763177EA846059E32A231843198A0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Liminal Shift - это уникальная атмосферная игра в �
 magnet:?xt=urn:btih:79B6C74D328EC96AFE934379CF17623D9806ABB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Hidden Legacy: Dark Heirloom (2025) [Multi] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:E3C7832A36C4FCD3663A1992DF6B4591D33DF28A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Argonauts Agency 9: God of the Storm / Агентство Аргонавты 9: 
 magnet:?xt=urn:btih:F31ED41DF07F5520A5E2520CA62151549DFE710E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Aliens vs. Predator (2010) [Ru] (2.27u7/dlc) Rip EXROW [Expanded Edition]
 ```bash
 magnet:?xt=urn:btih:7D3CD094867E30FEC75732CC185EAA8C68B4BBCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Gex Trilogy: Gex, Enter the Gecko, Deep Cover Gecko (2025) [Multi] (1.1) License
 magnet:?xt=urn:btih:ABEDD68B556B779A4AEA5E2DC2B60071F20D5B9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ NEDRA (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B0A9B67652340CDAF4277968AC943AA95EED4BEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыл�
 magnet:?xt=urn:btih:BFB132E1C27CA09FA114BF48D8B4450D4211C46C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Fate Seeker 2 - продолжение первой части слэшера, �
 ```bash
 magnet:?xt=urn:btih:1AF042B4D629FA66C2D4C869E750498E6DEAD0D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Timberborn (2021) [Ru/Multi] (0.7.10.2-5762fd5-gw) License GOG [Early Access]
 magnet:?xt=urn:btih:1C82AE562162C6110DBEB56C61424CDFCDFA5263
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Crusader Kings 3 - глобальная стратегия, значительн
 ```bash
 magnet:?xt=urn:btih:45912022A08EF8B6EEC33E311E892C20DFF67343
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Escape from the 70's (2022) [Ru/En] (Build 8771485) Repack Other s
 magnet:?xt=urn:btih:ABA10AE07CEB6108D7BF65994EC195F80200AE57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Little Nightmares: Enhanced Edition (2025) [Ru/Multi] (BuildID 18639334) Repack 
 ```bash
 magnet:?xt=urn:btih:165A25884F2ED24C1CE6851457CE086C7981D329
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ NEDRA (2025) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:B0E58D38BE6397911C78D624D2B2D21A60C7B234
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Dustborn - дорожное приключение, вдохновленное �
 ```bash
 magnet:?xt=urn:btih:261381B904000F00D1DBBFAB77B95E74BE0403C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ System Shock 2: 25th Anniversary Remaster (2025) [Multi] (Mod HotFix) Scene Rune
 magnet:?xt=urn:btih:04BF66758660DE4E7F28E5A6234E9FE36628ABDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Monster Train 2 (2025) [Ru/Multi] (Build #11691) Repack FitGirl [Supporter Pack]
 ```bash
 magnet:?xt=urn:btih:6982F983FB5E5C4C022D3A35E9D7D0A80EEE17A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Teardown – симулятор проведения ограбления в р�
 magnet:?xt=urn:btih:165DBC4A960FD6C5F398FACFC3F9B4760CED614A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Capcom Fighting Collection 2 (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FD529A83D9E4FF624EE46BB1C7DE6527C4D05A7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Warhammer 40,000: Rogue Trader – это изометрическая роле�
 magnet:?xt=urn:btih:A181E08EF7EC052DAA40188126B528364DBF9919
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Banquet for Fools (2024) [En] (3.02) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:1F35D13489E2AA52AAB8BE03FEA695026400CBD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Serious Sam 3: BFE — это великолепное возвращение в
 magnet:?xt=urn:btih:8DB1B80A8435C323A15C0C19B6DFF2EC4DBBDFA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ WWE 2K25 представляет вам непревзойденный сост
 ```bash
 magnet:?xt=urn:btih:91B2533B39232F16A93F24E013CB9EE2B4BC18A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

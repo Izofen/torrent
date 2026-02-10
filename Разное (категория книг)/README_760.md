@@ -1,3 +1,31 @@
+###  Публикация: 598521   (999980) от 04.01.2013
+
+Алекс Стюарт | Выдохните лишний вес [2006] [PDF]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Бороться с лишним весом нелегко, особенно когда не помогают ни изнурительные диеты, ни регулярные тренировки. Да и способен на это не каждый. Не желая напрягаться, мы продолжаем верить в чудо, которое позволит нам поглощать шоколад и одновременно расстаться с ненавистными килограммами.
+
+В книге собраны лучшие дыхательные методики, основанные на холистическом принципе, то есть позволяющие не только сбросить вес, но и улучшить внешний облик, повысить энергию и укрепить здоровье, забыть о стрессах. Эти практичные, легкие в применении и эффективные программы помогут вам сотворить чудо. Так что сделайте глубокий вдох… «выдохните лишний вес» и наслаждайтесь жизнью, наполненной гармонией и равновесием.Жанр: ЗдоровьеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB7A59CFE2FB039EC3C2D77602A0AF7811FA9F71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 597699   (1000121) от 03.01.2013
 
 Книжная серия | Актерская книга (28 книг) [2006-2011] [RTF, FB2, DJVU, PDF]
@@ -20,6 +48,8 @@
 ```bash
 magnet:?xt=urn:btih:69A5E5A54ADB305D94F78B4268A92E51775F909B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +75,8 @@ magnet:?xt=urn:btih:69A5E5A54ADB305D94F78B4268A92E51775F909B
 magnet:?xt=urn:btih:4EFB431E203EB7AE536DC825FDBF5CA09B88A864
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +100,8 @@ magnet:?xt=urn:btih:4EFB431E203EB7AE536DC825FDBF5CA09B88A864
 ```bash
 magnet:?xt=urn:btih:E338B2ADB527A00E575C84DD0B01DCED69B087A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +127,8 @@ magnet:?xt=urn:btih:E338B2ADB527A00E575C84DD0B01DCED69B087A0
 magnet:?xt=urn:btih:46762399C359EB6C1125C67D6F79F8D4038A5080
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +152,8 @@ magnet:?xt=urn:btih:46762399C359EB6C1125C67D6F79F8D4038A5080
 ```bash
 magnet:?xt=urn:btih:536A6CAD0E229465E2349B4ABCE7BD2018EB1B3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +179,8 @@ magnet:?xt=urn:btih:536A6CAD0E229465E2349B4ABCE7BD2018EB1B3C
 magnet:?xt=urn:btih:3242D42F2B126080901F2164CE9BF05A330E3C63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +205,8 @@ magnet:?xt=urn:btih:3242D42F2B126080901F2164CE9BF05A330E3C63
 ```bash
 magnet:?xt=urn:btih:14754D071C33A909EA77B6F494E09BCA1BCF7253
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +234,8 @@ magnet:?xt=urn:btih:14754D071C33A909EA77B6F494E09BCA1BCF7253
 magnet:?xt=urn:btih:2759C735EB1025099F75D7C510057A817CD34142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +259,8 @@ magnet:?xt=urn:btih:2759C735EB1025099F75D7C510057A817CD34142
 ```bash
 magnet:?xt=urn:btih:3D4902B45F2470FAC35CB3394E9E3D624322F7AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +288,8 @@ magnet:?xt=urn:btih:3D4902B45F2470FAC35CB3394E9E3D624322F7AA
 magnet:?xt=urn:btih:4664953C38F38A0EFF278D251F988D40856B123A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +314,8 @@ magnet:?xt=urn:btih:4664953C38F38A0EFF278D251F988D40856B123A
 ```bash
 magnet:?xt=urn:btih:1676EFA1CE8DF65252CEB79287178552565856DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +342,8 @@ magnet:?xt=urn:btih:1676EFA1CE8DF65252CEB79287178552565856DD
 magnet:?xt=urn:btih:A6844C10EA8B75AE13995DD8EB1D127C9C2601FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +367,8 @@ magnet:?xt=urn:btih:A6844C10EA8B75AE13995DD8EB1D127C9C2601FD
 ```bash
 magnet:?xt=urn:btih:9B8982864EF3F6B37CDA26C17EB8BDCFFD6D3F90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +394,8 @@ magnet:?xt=urn:btih:9B8982864EF3F6B37CDA26C17EB8BDCFFD6D3F90
 magnet:?xt=urn:btih:C8560C587C527C283AA180F7552B2FF60545A264
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +420,8 @@ magnet:?xt=urn:btih:C8560C587C527C283AA180F7552B2FF60545A264
 magnet:?xt=urn:btih:7DD0377390648CB16BF5AA6CB379601BFF00B2C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +445,8 @@ magnet:?xt=urn:btih:7DD0377390648CB16BF5AA6CB379601BFF00B2C8
 ```bash
 magnet:?xt=urn:btih:D2980DFF042D65B8FD946CC3DB9D71016DB1536D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +474,8 @@ magnet:?xt=urn:btih:D2980DFF042D65B8FD946CC3DB9D71016DB1536D
 magnet:?xt=urn:btih:ED77464F95F95F56C9C47F9EB11DF778EC98C85C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +499,8 @@ magnet:?xt=urn:btih:ED77464F95F95F56C9C47F9EB11DF778EC98C85C
 ```bash
 magnet:?xt=urn:btih:340316FA32ADABEAA54642E886237C12F52E8D21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +533,8 @@ magnet:?xt=urn:btih:340316FA32ADABEAA54642E886237C12F52E8D21
 magnet:?xt=urn:btih:F943D27C2014142C002476FD942C9DC53CC0D767
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +558,8 @@ magnet:?xt=urn:btih:F943D27C2014142C002476FD942C9DC53CC0D767
 ```bash
 magnet:?xt=urn:btih:AB2CB4E182940FBA3F0CE6BEAC7FF61C4856F4FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +585,8 @@ magnet:?xt=urn:btih:AB2CB4E182940FBA3F0CE6BEAC7FF61C4856F4FA
 magnet:?xt=urn:btih:EA60F376480E8A5D0C983E6B30C333C976A04519
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +610,8 @@ magnet:?xt=urn:btih:EA60F376480E8A5D0C983E6B30C333C976A04519
 ```bash
 magnet:?xt=urn:btih:2C44CFA58A14687CF54BA34BAE321B29EF219BA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +638,8 @@ magnet:?xt=urn:btih:2C44CFA58A14687CF54BA34BAE321B29EF219BA4
 ```bash
 magnet:?xt=urn:btih:BE3C2BEF243EF2843A5AA1AA5E49AC4338A147BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +668,8 @@ magnet:?xt=urn:btih:BE3C2BEF243EF2843A5AA1AA5E49AC4338A147BD
 magnet:?xt=urn:btih:A069F8C85CFCAFBEFF686D3FB0192640AEBBB148
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,29 +694,7 @@ magnet:?xt=urn:btih:A069F8C85CFCAFBEFF686D3FB0192640AEBBB148
 magnet:?xt=urn:btih:AC8DA1978C2B3DC28DD4870F244EA2C2E4347304
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352637   (1000789) от 15.01.2020
-
-Беа Джонсон | Дом без отходов. Как сделать жизнь проще и не покупать мусор (2019) [EPUB]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Беа Джонсон – активистка движения «ноль отходов» (Zero Waste). Ее семья из четырех человек и собаки оставляет только одну банку отходов в год и экономит до 40 процентов бюджета. В этой книге автор делится своим опытом и подробно описывает, как организовать быт в соответствии с правилом пяти «О»: отказаться от ненужного; ограничить необходимое; опять использовать (   Читать дальше...   )Жанр: ДомоводствоФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AA9ADCFE445AFAA0AC7FA0DB920A200E3080528
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

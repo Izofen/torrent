@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:8568DCC5BEC871A59E6E26ED383330227C951870
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:8568DCC5BEC871A59E6E26ED383330227C951870
 ```bash
 magnet:?xt=urn:btih:F7CCAED497C074F611A30332AB46ADE36AB71BF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:F7CCAED497C074F611A30332AB46ADE36AB71BF4
 magnet:?xt=urn:btih:4BE2FC268D69D1AD04CC5A6A623E2F91B90F6D0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Geekbrains | Objective C. Уровень 1 Программирование по
 ```bash
 magnet:?xt=urn:btih:AEDA0B739C8A5AB874247FFB037A620E2EA3C4F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Digital Tutors | Основы компьютерной графики/ Learn the
 magnet:?xt=urn:btih:1FD8780F3B99EE94ECB970700BD559A2680B182E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ ProfiT | Мой первый сайт за 2 недели (2015) WEBRip
 magnet:?xt=urn:btih:01B2D0A0B8A7C68619C788487B74688F6DDBC858
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Geekbrains | Основы программирования (2014) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:12E87AA3521CDB31563440EA38DBF7BFCD0E74A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:12E87AA3521CDB31563440EA38DBF7BFCD0E74A5
 magnet:?xt=urn:btih:2BC4DA095D85275778FEF0C278C15F92357BEFBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ Udemy, Wenliang Du | Cryptography: A Hands-on Approach (2022) WEB-DL [EN / EN Su
 magnet:?xt=urn:btih:F50525A29AE267BB91BF1BA2DEDF1B1971A42A43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ Udemy, Никита Хохлов | Python ООП - С нуля до Профи" 
 ```bash
 magnet:?xt=urn:btih:7FABF3CB3C1DA4CAD476C3A0CDFC192E9D1F41C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ e-Legion & Google | Онлайн-школа android-разработчиков (
 ```bash
 magnet:?xt=urn:btih:BE21615CF2C2A13C274EBCCC05E76D221F4A9667
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ Larry Jordan |  Final Cut Pro X Workflow and Editing - Final Cut Pro X Рабо�
 magnet:?xt=urn:btih:5CA0F9775DAFD8A8BDE78149C43612C1D904EA5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ Udemy.Рудь И | Планирование и установка Skype for Bus
 ```bash
 magnet:?xt=urn:btih:A033D5CDB5E99FF155D22AC5C531223BA061C2D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:A033D5CDB5E99FF155D22AC5C531223BA061C2D4
 magnet:?xt=urn:btih:38783393E76B33EFC3FA96C8894EC6CCFE9DD7F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:38783393E76B33EFC3FA96C8894EC6CCFE9DD7F0
 ```bash
 magnet:?xt=urn:btih:64A3956B3680E54F5A05C0AE016AE19B4E4D6E40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ magnet:?xt=urn:btih:64A3956B3680E54F5A05C0AE016AE19B4E4D6E40
 magnet:?xt=urn:btih:206F190B9E120B7D9AB631A927014201DCD9E5E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ magnet:?xt=urn:btih:206F190B9E120B7D9AB631A927014201DCD9E5E1
 magnet:?xt=urn:btih:948BE04B70173E2D83C72EB575E8A221189F3A57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ Jeffrey Way | Laravel 5. Основы / Laravel 5. Fundamentals (2015) PCRec [H.
 ```bash
 magnet:?xt=urn:btih:456B7B7B3A3034261A5B6047E80BFE46C516F667
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ Udemy, Aleksandr Ponov | Автоматизация тестирования+П�
 magnet:?xt=urn:btih:7AF4602B3197413FFF4920E95AE5914C0032E9E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ Geekbrains | Java. Уровень 0 (2015) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:CC27A627A03F392E185999EA982A08A8A4EF2A42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ Geekbrains | Основы программирования (2015) PCRec [H.264/7
 ```bash
 magnet:?xt=urn:btih:C2F2CFF42DDC1C573D6B40321C8AEB85C7BD8D4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +594,8 @@ Stepik, Артем Егоров | Объектно-ориентированно�
 magnet:?xt=urn:btih:961879E0B5943C06B9937F14855C4EFA1A0123A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:961879E0B5943C06B9937F14855C4EFA1A0123A1
 ```bash
 magnet:?xt=urn:btih:108EAE9354AF7BA520252EE061885E863CA3C9BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +650,8 @@ Slurm (Слёрм), Артём Мурадов | Алгоритмы: roadmap дл
 magnet:?xt=urn:btih:259B16DDEC97DC18DA4C840671A18537BC0B2A1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ magnet:?xt=urn:btih:259B16DDEC97DC18DA4C840671A18537BC0B2A1F
 magnet:?xt=urn:btih:459B8BFF14676ED49C0E07C29FC8A8BD821BC07E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ Flutter - это новый framework от Google по кросс-платфор
 ```bash
 magnet:?xt=urn:btih:0598BC5740A73F2C35C5BEBE94736E1CA03CB2A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Iron Storm / Коммандос: В тылу врага (2002) [Ru/Multi] (1.041
 magnet:?xt=urn:btih:B9786C0B63BA1A5C4BA49C55A539AB01ABAC736A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Jagged Alliance 2: Wildfire / Jagged Alliance 2: Возвращение в Ар�
 ```bash
 magnet:?xt=urn:btih:C7580D405874D61FF5E7A0CE88A07E5AD244D0DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Campus [Ru] (RePack) 2007 | CCG
 magnet:?xt=urn:btih:84CDF05221B43E746D0AEE94C202314104CEB89B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 ```bash
 magnet:?xt=urn:btih:4C6EEDA32D8F6FBAD041A096DB4357BB8B0DDB6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Red Alert 3 - Uprising представляет собой глобальное 
 magnet:?xt=urn:btih:DE822F68AD7D5326D229DEA9CDDDABB6D0FFB669
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Star Wars™: Dark Forces (1995) [Multi] (1.0.2) License GOG
 magnet:?xt=urn:btih:90D74114EDB585C4A074EAE80C994DF301FEB7F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ The Lion King, красочный платформер, посвященный �
 ```bash
 magnet:?xt=urn:btih:9E1FD9851F7225AE1C0A98DD8E4128A09F52C84A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Trevor Chan's Capitalism II / Капитализм 2 (P) [Ru] 2001
 magnet:?xt=urn:btih:D4A1E33F8D74CAA1C2037D20AE8AD29EFED8EFD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Red Alert 3 - Uprising представляет собой глобальное 
 ```bash
 magnet:?xt=urn:btih:51F22865475845F2ED46B2F040B88AF99305DAEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Spider-Man: Friend or Foe [Ru] (P) 2007
 magnet:?xt=urn:btih:AB54E1ADDE7094010FEF616BD1538B6F281EC9BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Command & Conquer 3: Tiberium Wars — компьютерная игра в жа
 ```bash
 magnet:?xt=urn:btih:DF80539C8DBC771EE87408333734A7736E916691
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Command & Conquer 3: Kane’s Wrath / Ярость Кейна (2008) [Ru] (1.02)
 magnet:?xt=urn:btih:8C7A4B3B2703062FAD4A7D80DE5F80AA8F7C741A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Empire Earth 3 (2007) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:56436AB164FE7B580B20384653E625A59A95E629
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Parkan: Iron Strategy / Parkan: Железная стратегия (2001) [Ru/E
 magnet:?xt=urn:btih:1500BD0000F0D72B76FCDF4FFDD6F71C73B18D15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Drakkhen (1989) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:B50980D886DCC0F34B47A7931227CAE428917FF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Midnight Club 2 [Ru/En] (RePack) 2003 | VANSIK
 magnet:?xt=urn:btih:1157A28236A207257BDACFBEFFAB8C2F715E3579
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Armed Assault - это стопроцентное продолжение Operati
 ```bash
 magnet:?xt=urn:btih:F4BB750EC6423048E27FE0F4893C363D385E4FA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Metal Fatigue - стратегия в реальном времени, кото�
 magnet:?xt=urn:btih:CA1ACB0AD636EC9704CCA81C8B2692CCCD73E546
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Neighbours From Hell Compilation (2004) [Ru/Multi] (1.00.13233/1.01a.13237) Lice
 ```bash
 magnet:?xt=urn:btih:FC83D31C3EB790788106F061E07337D8CF501B9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Mob Rule Classic / Street Wars: Constructor Undergroud (1999) [En] (2.0) License
 magnet:?xt=urn:btih:C8E1B4C4AA73DC967E80808E7B219736BCD558A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Prince of Persia / Принц Персии (2008) [Ru] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:0A6272E40C17FB9795F384C8C4B794E8B44AB2C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Prince of Persia: The Sands of Time / Принц Персии: Пески вре
 magnet:?xt=urn:btih:77FC28D539C83F694F59903A7534FF6B6A033616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Nosferatu: Wrath of Malachi (2003) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:1B8FE07C6FDDBC94A498DE3F141325FD44327085
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Carmageddon Антология [Ru/En] (RePack) 1997-2000 | R.G. ILITA
 magnet:?xt=urn:btih:1EB8E69B62B781316A0FB3217F3B51AECA1090CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Unreal (2000) [En] (226/dlc) License GOG [Gold]
 magnet:?xt=urn:btih:7F4B20CCCFE53E0E9786EDCC7BC24AAEBA14ED7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Post Mortem (2003) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:1E221A322A8CA2438A87F1F541737BB36C7E2B26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

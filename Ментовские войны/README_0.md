@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4CBC239E78C59A6EE49CF3A0C23673F89D775EF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:4CBC239E78C59A6EE49CF3A0C23673F89D775EF4
 ```bash
 magnet:?xt=urn:btih:82CDCB0261C119F19F0EDD89C01900E7B7E14B10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:82CDCB0261C119F19F0EDD89C01900E7B7E14B10
 ```bash
 magnet:?xt=urn:btih:26C8AE000C98379C64916C450E4FD62254B4DB3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

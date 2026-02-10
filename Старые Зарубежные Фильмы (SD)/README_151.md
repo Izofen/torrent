@@ -1,28 +1,3 @@
-###  Публикация: 1149384   (600979) от 10.07.2017
-
-Ровно в 3 часа / Three O'Clock High (1987) DVDRip [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старшеклассник Джерри Митчел опаздывает на занятия. Он еще не знает, что в школе появился опасный новичок — злобный и агрессивный Бадди Ревелл, громила и хулиган. Знакомство мальчишек заканчивается не самым приятным образом: Бадди вызывает Джерри на поединок, который должен состояться ровно в три часа.
-   Джерри в панике: драка может закончиться для него весьма печально, (   Читать дальше...   )Производство: СШАЖанр: КомедияРежиссер: Фил ДжоануАктеры: Кэйси Семашко, Энн Райан, Ричард Тайсон, Стэйси Глик, Джонатан Уайз, Митч Пиледжи, Роберт Аписа, Э. Кэтерин Керр, Джон Ротмен, Джеффри Тэмбор ...Перевод: Профессиональный многоголосый, авторскийСубтитры: ОтсутствуютПродолжительность: 01:25:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:780EA2C121E7B012206D3D631F679E9252F517B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149157   (601027) от 10.07.2017
 
 Грэндвью, США / Grandview, U.S.A. (1984) DVDRip [VO]
@@ -43,6 +18,8 @@ magnet:?xt=urn:btih:780EA2C121E7B012206D3D631F679E9252F517B9
 ```bash
 magnet:?xt=urn:btih:1A5078460429733A614B4AB6EEFC3998EC600BE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +45,8 @@ magnet:?xt=urn:btih:1A5078460429733A614B4AB6EEFC3998EC600BE9
 magnet:?xt=urn:btih:DFB1CDCF10F9E17FDDB4589F63BB06702EBA3E9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +70,8 @@ magnet:?xt=urn:btih:DFB1CDCF10F9E17FDDB4589F63BB06702EBA3E9D
 ```bash
 magnet:?xt=urn:btih:8A5741A47179CE855B89C96D37BBDBB1842CDC34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +98,8 @@ magnet:?xt=urn:btih:8A5741A47179CE855B89C96D37BBDBB1842CDC34
 magnet:?xt=urn:btih:676FF7BAF5FF90DF2D324CA8E99497DCF6C1C0D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +123,8 @@ magnet:?xt=urn:btih:676FF7BAF5FF90DF2D324CA8E99497DCF6C1C0D1
 ```bash
 magnet:?xt=urn:btih:624FEF8F8FBDB3358004E3B0D33A81A6F1315702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +150,8 @@ magnet:?xt=urn:btih:624FEF8F8FBDB3358004E3B0D33A81A6F1315702
 magnet:?xt=urn:btih:06C4B2BA3D823E48E23BECC892103AB86AFA3758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +175,8 @@ magnet:?xt=urn:btih:06C4B2BA3D823E48E23BECC892103AB86AFA3758
 ```bash
 magnet:?xt=urn:btih:FD5208F60EE6BFFF5311F5DE57E84060C0FFA36A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +203,8 @@ magnet:?xt=urn:btih:FD5208F60EE6BFFF5311F5DE57E84060C0FFA36A
 magnet:?xt=urn:btih:FCAF00A2568A2E7597EF26C0FE31BDA4D32609A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +228,8 @@ magnet:?xt=urn:btih:FCAF00A2568A2E7597EF26C0FE31BDA4D32609A2
 ```bash
 magnet:?xt=urn:btih:CDE72BECB30A04D068056E9FF637FC49F6387FEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +255,8 @@ magnet:?xt=urn:btih:CDE72BECB30A04D068056E9FF637FC49F6387FEE
 magnet:?xt=urn:btih:0BF0A710E205713F3D49D47C262A9FDE5F6E2403
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +280,8 @@ magnet:?xt=urn:btih:0BF0A710E205713F3D49D47C262A9FDE5F6E2403
 ```bash
 magnet:?xt=urn:btih:5A6E844DAC069F34FE9FF3113DBD84B07855C1EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +307,8 @@ magnet:?xt=urn:btih:5A6E844DAC069F34FE9FF3113DBD84B07855C1EE
 magnet:?xt=urn:btih:7E1A3BA543818C52C83CB90003A1FDF52A284F44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +332,8 @@ magnet:?xt=urn:btih:7E1A3BA543818C52C83CB90003A1FDF52A284F44
 ```bash
 magnet:?xt=urn:btih:19FE1E9B6E20087F38BAAF1CFA81F971AADEB9FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +359,8 @@ magnet:?xt=urn:btih:19FE1E9B6E20087F38BAAF1CFA81F971AADEB9FA
 magnet:?xt=urn:btih:30D8A740301A98F9C742E822E9FDD833039F0858
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +384,8 @@ magnet:?xt=urn:btih:30D8A740301A98F9C742E822E9FDD833039F0858
 ```bash
 magnet:?xt=urn:btih:6771936DD3539DB4F838E6B0559256AB8A56F47D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +411,8 @@ magnet:?xt=urn:btih:6771936DD3539DB4F838E6B0559256AB8A56F47D
 magnet:?xt=urn:btih:014D25C87A370B5BB931389E05887764759E8E9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +436,8 @@ magnet:?xt=urn:btih:014D25C87A370B5BB931389E05887764759E8E9B
 ```bash
 magnet:?xt=urn:btih:0E9B1851191841C351D65F28AB5E152447672D2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +463,8 @@ magnet:?xt=urn:btih:0E9B1851191841C351D65F28AB5E152447672D2D
 magnet:?xt=urn:btih:4261B866EF816CB20A626B567EF4BBFFD2E85587
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +488,8 @@ magnet:?xt=urn:btih:4261B866EF816CB20A626B567EF4BBFFD2E85587
 ```bash
 magnet:?xt=urn:btih:705924448A8E0C8179F2696E9C29ECAD63A43481
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +516,8 @@ magnet:?xt=urn:btih:705924448A8E0C8179F2696E9C29ECAD63A43481
 magnet:?xt=urn:btih:9F269EBB5A0D95CB16102DA726D5567D960DE8FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +541,8 @@ magnet:?xt=urn:btih:9F269EBB5A0D95CB16102DA726D5567D960DE8FA
 ```bash
 magnet:?xt=urn:btih:7B96802D26220E13C71604F03E2B98F2BDCE9F85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +569,8 @@ magnet:?xt=urn:btih:7B96802D26220E13C71604F03E2B98F2BDCE9F85
 magnet:?xt=urn:btih:5208A59EAA508EE9D004CEFF00BAEB75AC982E50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +594,8 @@ magnet:?xt=urn:btih:5208A59EAA508EE9D004CEFF00BAEB75AC982E50
 ```bash
 magnet:?xt=urn:btih:53EDCFC362BA8D76F1AFBF1173D45E1A66FEADBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +621,8 @@ magnet:?xt=urn:btih:53EDCFC362BA8D76F1AFBF1173D45E1A66FEADBA
 magnet:?xt=urn:btih:CA456529C9B0F66AE196CC30D7D9200B7AC605DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +647,34 @@ magnet:?xt=urn:btih:CA456529C9B0F66AE196CC30D7D9200B7AC605DD
 ```bash
 magnet:?xt=urn:btih:7A5130DA5969015E5E91FF09AF726AEA0BF675BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148315   (604274) от 05.07.2017
+
+Удар по системе / A Shock to the System (1990) WEBRip [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грэхэм Маршалл окрылен идеей получить заслуженное повышение по службе… Но судьба улыбнулась другому. В погоне за успехом иногда приходится убивать. По плану Маршалла убийство жены — это только начало. То, что произойдет потом, взволнует и удивит Вас. Вы узнаете, на что еще способен человек ради достижения своей цели. Неужели план Маршалла осуществится?Производство: СШАЖанр: Триллер, криминалРежиссер: Ян ЭглсонАктеры: Майкл Кейн, Элизабет МакГоверн, Питер Ригерт, Свузи Кёрц, Уилл Пэттон, Дженни Райт, Джон МакМартин, Барбара Бэксли, Хэвиленд Моррис, Филип Мун ...Перевод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:27:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D88DE03D4FC2CC400BA4760E1875A4788A4B39E
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

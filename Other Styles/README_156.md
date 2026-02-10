@@ -22,6 +22,8 @@ Mystica - Best Of Gregorian Voices (2016) [MP3|320 кб/с] <New Age>
 magnet:?xt=urn:btih:9EA4E4652D200F07245EE82CAFCB363319D6267B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Devaldi - Petrichor (2016) [MP3|320 Kbps] <Electronic, Relaxing>
 ```bash
 magnet:?xt=urn:btih:A63CA6E483D9F290E0B82677C179384B1F015CA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ Moderator - The World Within (2015) [FLAC|Lossless|WEB-DL]<Trip-Hop, Jazzy hip-h
 magnet:?xt=urn:btih:2052D2FDCA25FC282CFE8FD9A420711D844440B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -104,6 +110,8 @@ Ensiferum - One Man Army (2015) Limited Edition 2CD [FLAC|Lossless]<Viking, Folk
 ```bash
 magnet:?xt=urn:btih:D3F3672957439BBD87A96984EF21D66FA38E5CBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -138,6 +146,8 @@ VA - The Indian Road. The Best Of Native American Flute Music Vol.1 (2002) [MP3|
 magnet:?xt=urn:btih:F6660DE656688DF1588BAA4837F56B8DE69041BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +181,8 @@ magnet:?xt=urn:btih:F6660DE656688DF1588BAA4837F56B8DE69041BB
 magnet:?xt=urn:btih:7D1A6A6A359631A9B178008AEF2B304C144366C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +211,8 @@ Hayseed Dixie - Killer Grass (2010) [FLAC|Lossless]<Bluegrass>
 magnet:?xt=urn:btih:68B8BAC4C1493C785DF7E0555CD067F46B5340CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +239,8 @@ David Arkenstone - Citizen of the World (1999) [FLAC|Lossless]<New Age>
 ```bash
 magnet:?xt=urn:btih:B0143BDFD0624F1FEB95F033E8C66A1E7AF0F581
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +269,8 @@ Troika (David Arkenstone) - Shaman (2000) [FLAC|Lossless]<New Age>
 magnet:?xt=urn:btih:58C4F966F89DF960DAF2147DA5640FA9AA38ED3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +294,8 @@ Gregorian - Best Of 1990-2010 (2011) [MP3|320 kbps]<New Age>
 ```bash
 magnet:?xt=urn:btih:AF34006CC0C96683C19A53C94647A73C73FA7885
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +330,8 @@ Caravelli - 54 альбома (1965-2011) [MP3|128-320 кб/с]<Instrumental, Ea
 magnet:?xt=urn:btih:5143BCAA53CC8283A5D662BD412017FACA753837
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +364,8 @@ magnet:?xt=urn:btih:5143BCAA53CC8283A5D662BD412017FACA753837
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +400,8 @@ Existence & Margot Reisinger - Planetary Healing (2008) [MP3|320 kbps]<New Age, 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +428,8 @@ Jozef Van Wissem - When Shall This Bright Day Begin (2016) [MP3|320 кб/с] <Fo
 ```bash
 magnet:?xt=urn:btih:70361A1C7F88CBA512AE8BB25645106AD0C858A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +464,8 @@ Andre Moss - My Spanish Rose (2008) [MP3|320 кб/с]<Instrumental>
 magnet:?xt=urn:btih:D7D95184029F94CEE065155F26886C5A781376A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +498,8 @@ Olivier Deriviere - Remember Me (2013) [FLAC|Lossless]<Soundtrack>
 ```bash
 magnet:?xt=urn:btih:DE01CA3C62C6D9A80496FF563D98E00A6DD58B8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +534,8 @@ Enaid (Diane & David Arkenstone) - Avalon. A Celtic Legend (2002) [FLAC|Lossless
 magnet:?xt=urn:btih:63DCC8A1C296C71C18CF1F71E1181E0CBD89A23F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +565,8 @@ Rebecca Brandt - 2 Альбома (2012 - 2014) [FLAC|Lossless]<Alternative, Con
 magnet:?xt=urn:btih:637CAE3EDE0A63A2C89AE40FBB8EE81BD2E98E60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +593,8 @@ Enigma - Alchemist (2008) [FLAC|Lossless|image + .cue] <New Age, Abstract>
 ```bash
 magnet:?xt=urn:btih:658F07003EED42B27A0A43329F1DF3D33865055C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +623,8 @@ J.S. Epperson - Solfeggio Suite (2011) [FLAC|Lossless|tracks] <New Age>
 magnet:?xt=urn:btih:FE40C1AE1BC7609DD8FEC19046B89F7F95E639B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +652,8 @@ Wychazel - In Search of Lemuria (2017) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:622372BAF9DCC34049FD50CF0A1BAF1455CA4733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +680,8 @@ Paul Sills - Electric Storm (2017) [MP3|320 Kbps] <New Age, Relax>
 ```bash
 magnet:?xt=urn:btih:98A44756C24E527C207095F575DD0FC323331AE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -672,6 +716,8 @@ magnet:?xt=urn:btih:98A44756C24E527C207095F575DD0FC323331AE6
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -705,6 +751,8 @@ magnet:?xt=urn:btih:98A44756C24E527C207095F575DD0FC323331AE6
 magnet:?xt=urn:btih:8302B024EA118FFBC7AF8AC7CBFD3A5B916AAE80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -732,6 +780,8 @@ Slow Leaves - Enough About Me (2017) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
 magnet:?xt=urn:btih:51290CE84072D29B5D905755392961CA95405F8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -758,6 +808,8 @@ Slow Leaves - Beauty Is So Common (2014) [FLAC|Lossless|WEB-DL|tracks] <Folk Roc
 ```bash
 magnet:?xt=urn:btih:DCE4962E8A909350FAB19ADC4C134ED8BE08696C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

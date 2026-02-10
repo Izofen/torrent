@@ -1,27 +1,3 @@
-###  Публикация: 1461629   (1021656) от 10.04.2021
-
-Farm Frenzy Refreshed / Весёлая Ферма: Возвращение (2021) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Strategy/Manager/Business (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красочный увлекательный симулятор от GameOn Production и Alawar. Попробуйте свои силы в управлении животноводческой фермой, и пусть трудности вас не пугают. Маленькими шагами, от кормления строптивых животных до сбора свежих яиц и приготовления вкусной выпечки, вы превратите скромное домашнее хозяйство в процветающий агробизнес.Тип издания: UnofficialРазработчик: GameOn ProductionЖанр: Strategy, BusinessЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA0D520440368FE7E61F30F7732912FBA4126C44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461347   (1021672) от 10.04.2021
 
 Serious Sam 4 (2020) [Ru] (1.01) Unofficial [Русификатор]
@@ -42,6 +18,8 @@ Serious Sam 4 (2020) [Ru] (1.01) Unofficial [Русификатор]
 ```bash
 magnet:?xt=urn:btih:7468B7C19A43C39AEC8A3A0954B41EC30E41FA3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Crisis in the Kremlin / Кризис в Кремле (2017) [Ru/En] (1.0/dlc) Re
 magnet:?xt=urn:btih:96CEE8A3CD6498AA0A3F89BF22BD9565AFE48F93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Children of Morta (2019) [Ru/Multi] (1.2.55/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:54B353AF6DE0B8A5BD8A89D51BA23ABC003AFE2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Scarlet Hood and the Wicked Wood — это приключенческая сю�
 magnet:?xt=urn:btih:8A09D0F448BED87338746C1F62C8C7B13DE1642E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Mystery Trackers 19. Forgotten Voices (2021) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:3730BEB6870C6445A222A01BA749B5D23BDBD250
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Nevertales 10: Faryon / Несказки 10: Фарион (2021) [Ru] (1.0) Unof
 magnet:?xt=urn:btih:C1AA54898925E7C6E4FF47E709A370106671DF0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Remothered: Broken Porcelain (2020) [Ru/Multi] (2.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:D0DEEF50B67FB3F52A22C993B353EC1F89208F64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Loop Hero (2021) [Ru/Multi] (1.0.12) Repack Other s
 magnet:?xt=urn:btih:69E6B0F9C7FA5F5F7F95CAFD10A4EE725CC092CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Lost Words — атмосферное повествовательное при�
 ```bash
 magnet:?xt=urn:btih:9246005148ED5A9CF87755DCD56E05B9E7555BA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Crash Bandicoot 4: It’s About Time (2021) [Ru/Multi] (1.0.03202023) Repack Oth
 magnet:?xt=urn:btih:1B3E34260BDAF868F6C5E0DA13355EE54363F1AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ ENCODYA (2021) [Ru/Multi] (1.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:EB575C3A8DA3CA9B20632C758EE8EE10EC3575B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Mystery Tales 14: Master of Puppets / Загадочные истории 14: М
 magnet:?xt=urn:btih:369CC9BDB26D61D5888EF3EE2268CA76B2CE62E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ Fear for Sale 9: The Dusk Wanderer / Страх на продажу 9: Блуж�
 ```bash
 magnet:?xt=urn:btih:29B44D1EF30B6BA8B5520B5459C235B1E4F9A4CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ The Uncertain: Light At The End — игра в приключенческом �
 magnet:?xt=urn:btih:591E12FDD465D996DC9C580AFF414E15DCB16192
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ They Are Billions (2019) [Ru/Multi] (1.1.4.10) License GOG
 ```bash
 magnet:?xt=urn:btih:4A0FD2AA6CBD3901864B29930FA9C19EED8EFB12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ Mech Mechanic Simulator (2021) [Ru/Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:B8B03FB03DEE401998E6816CCBEF593B678D8FD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ Raji: An Ancient Epic — это action-adventure, которая отправи
 ```bash
 magnet:?xt=urn:btih:87A4CEA75A32C41D9A13B6DE2D614EE5C71378EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ Crash Bandicoot™ 4: Это вопрос времени представляе�
 magnet:?xt=urn:btih:D4624917265114609C6BEA26B093A861F430D3F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ Vampyr (2018) [Ru/Multi] (1.1.7/dlc) Repack SpaceX
 ```bash
 magnet:?xt=urn:btih:8A3EB5A2B591614A4E5590B32D13C67C2BAB7C3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Cyberpunk 2077 – приключенческая ролевая игра, де�
 magnet:?xt=urn:btih:C3C18363E02E39AE229450E00F15C7722DE6FA73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ Adeptus Titanicus: Dominus — адаптация трехмерной поша�
 ```bash
 magnet:?xt=urn:btih:2C4096D8572A0CBAC6EA951AEE6A5CC49C756D3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ An Evil Existence (2020) [En] (1.0) Repack Other s
 magnet:?xt=urn:btih:2DCA886C73FF093A6840EBE4C4ACE3CDAD1D9895
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ From the Darkness — это хоррор-игра от первого лица,
 ```bash
 magnet:?xt=urn:btih:ABB99096D1C3FF5E4393EB002D7E2B8A57B60AFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ Kingdom Hearts HD 2.8 – сборник из трех игр: HD-переизд
 magnet:?xt=urn:btih:2DDD6FAB5C686DA910A28868A90CCF3444F2CBBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ KINGDOM HEARTS HD 1.5 + 2.5 ReMIX — это потрясающий HD-рема�
 ```bash
 magnet:?xt=urn:btih:5944CA6239B74518EEC4E4669364D48F766036C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459174   (1023379) от 31.03.2021
+
+Kingdom Hearts Melody of Memory (2021) [Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kingdom Hearts: Melody of Memory – ритм-игра, являющаяся спин-оффом jRPG серии Kingdom Hearts. Она содержит 140 известных Диснеевских композиций и саундтреки KH. Вместе с героями серии, а также знаменитыми персонажами из мультфильмов, вы отправитесь по различным мирам, сражаясь с армиями Бессердечных. Игра предлагает несколько режимов, включая возможность соревнования (   Читать дальше...   )Тип издания: LicenseРазработчик: Square EnixЖанр: Action, RPG, jRPGЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Немецкий, Японский и другиеЯзык интерфейса: Английский, Немецкий, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C481CBC3CE3E5155ABCCF01FB1B4F93B11B78542
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:F5E62CE87A55B97EBB81D62A0107E4223E8CCCD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ VA - BIG Trance 2012.2 (2012) [MP3|320 кб/с]<Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:C29C6FB2509251E34098B065D1C99D88ECBDF67B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -86,6 +90,8 @@ VA - AVA Recordings Collected Vol. 1 (2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:A659E7306D6FE8B777E3B4083217F213AD3E748B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +125,8 @@ Ani DiFranco - ? Which Side Are You On ? (2012) [FLAC|Lossless]<Folk Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +150,8 @@ Ani DiFranco - ? Which Side Are You On ? (2012) [FLAC|Lossless]<Folk Rock>
 ```bash
 magnet:?xt=urn:btih:3A4079DBD508B9EE9A9803AF8D65354F96CFD015
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +177,8 @@ magnet:?xt=urn:btih:3A4079DBD508B9EE9A9803AF8D65354F96CFD015
 magnet:?xt=urn:btih:C575A97843B62F1F5146F25363C371EE82638BDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +202,8 @@ magnet:?xt=urn:btih:C575A97843B62F1F5146F25363C371EE82638BDC
 ```bash
 magnet:?xt=urn:btih:40854B818E125F9C96456B2C65B38C92D6E7A9CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +232,8 @@ magnet:?xt=urn:btih:40854B818E125F9C96456B2C65B38C92D6E7A9CE
 ```bash
 magnet:?xt=urn:btih:DE4B7BEC4C1CCA6330558CEE67ADAE93036C529E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +268,8 @@ Marc O' Tool - Serious (2012) [MP3|320 кб/с]<House>
 magnet:?xt=urn:btih:8D375DB91F53988CC43A72B8DE8BAD5E98102F0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +293,8 @@ magnet:?xt=urn:btih:8D375DB91F53988CC43A72B8DE8BAD5E98102F0A
 ```bash
 magnet:?xt=urn:btih:83F6D9E72CF43AE846C540403D8DAA72FC6FC724
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +320,8 @@ magnet:?xt=urn:btih:83F6D9E72CF43AE846C540403D8DAA72FC6FC724
 magnet:?xt=urn:btih:AEF709D5887B90C588B59E0202901BA6AB2D3DBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +345,8 @@ magnet:?xt=urn:btih:AEF709D5887B90C588B59E0202901BA6AB2D3DBA
 ```bash
 magnet:?xt=urn:btih:DD2DBC94B19192964E8B37EBDF7E6F52C84FA978
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +376,8 @@ magnet:?xt=urn:btih:DD2DBC94B19192964E8B37EBDF7E6F52C84FA978
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +401,8 @@ magnet:?xt=urn:btih:DD2DBC94B19192964E8B37EBDF7E6F52C84FA978
 ```bash
 magnet:?xt=urn:btih:158AFBC712F1653A2641D70572761700AF21AA63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ magnet:?xt=urn:btih:158AFBC712F1653A2641D70572761700AF21AA63
 magnet:?xt=urn:btih:12F3CC2BB8EEC5309CCB65D390E22FDD943C8BEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ magnet:?xt=urn:btih:12F3CC2BB8EEC5309CCB65D390E22FDD943C8BEA
 ```bash
 magnet:?xt=urn:btih:B0DDB115C99275DABB7A042553D12CC68C0973B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +480,8 @@ magnet:?xt=urn:btih:B0DDB115C99275DABB7A042553D12CC68C0973B5
 magnet:?xt=urn:btih:4EC276ECD85BE2801770F6E3D60C8C22644342FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +505,8 @@ magnet:?xt=urn:btih:4EC276ECD85BE2801770F6E3D60C8C22644342FC
 ```bash
 magnet:?xt=urn:btih:CDEB4D10D04C6CF724120F58B854983EBD990C7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ Overkill - The Electric Age (2012) Nuclear Blast Records [FLAC|Lossless]<Thrash 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +566,8 @@ Overkill - The Electric Age (2012) Nuclear Blast Records [FLAC|Lossless]<Thrash 
 ```bash
 magnet:?xt=urn:btih:6FC7043E5C2EE5D118C6EF7B765FAC152F710E7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +593,8 @@ magnet:?xt=urn:btih:6FC7043E5C2EE5D118C6EF7B765FAC152F710E7B
 magnet:?xt=urn:btih:2B5F04D26E6E9B04F1A009F48373AF2E6FE99DF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +618,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +645,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:E017E19633E7AB18D5F7D0647D00FFD2BD62045A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +681,8 @@ Susan Justice - Eat Dirt (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:B2E87BBFFAE9B3C7E5E3D707BC927FD8C8729828
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +711,8 @@ DeCoDeR Pack содержит только декодеры и фильтры д
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -686,6 +736,8 @@ DeCoDeR Pack содержит только декодеры и фильтры д
 ```bash
 magnet:?xt=urn:btih:5A9586EB58E28D07D5978BF4631E347B129C5876
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

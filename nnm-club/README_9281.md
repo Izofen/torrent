@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:347E200D01AB235B6FF85D497CF22AE86ED76646
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ MediaHuman YouTube Downloader - удобное приложение с помо�
 magnet:?xt=urn:btih:69775C9FDC7AC89F2561233679E3F7EDDB0A7A10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Xara Web Designer Premium 16.0.0.55162 [En]
 ```bash
 magnet:?xt=urn:btih:A706EB80672B7E1DDF5429E58369087659058E76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:A706EB80672B7E1DDF5429E58369087659058E76
 magnet:?xt=urn:btih:24330FA0974BA8766261433FF9E481E152FF9B92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Jean-Michel Jarre - Equinoxe Infinity (2018) Columbia [FLAC|Lossless|tracks+.cue
 magnet:?xt=urn:btih:F65EC407DA217DBA89BEF748EED9477BFA40ACB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:F65EC407DA217DBA89BEF748EED9477BFA40ACB7
 magnet:?xt=urn:btih:7A33CDBC6F95F690F3E627D834C8DF36AE82F8DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Haunted Hotel 18: Room 18 (2019) [En] (1.0) Unofficial [Collector's Edition]
 magnet:?xt=urn:btih:7F046A1D2470524F41891475F50FC94927C21E3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:7F046A1D2470524F41891475F50FC94927C21E3C
 ```bash
 magnet:?xt=urn:btih:A876ECE4E6D79DABD6B2EE6A35FAE0CE81EE782B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ Quiet Riot - Hollywood Cowboys (2019) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:5CFC25CB0DEBF6EA67175A5BFB2BAA88BEE2BBA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ Zdob si Zdub - Bestiarium (2019) [MP3|320 Kbps] <Folk Rock>
 magnet:?xt=urn:btih:6E0EA40A19FB4A552B06EFCE5B76E3249A3D3CB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ Rob Reger | Артбук по миру Странной Эмили / The Art of 
 ```bash
 magnet:?xt=urn:btih:5901144C24F4C4B3EF4F1F238917B7EA7DF85E9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ Dance:
 magnet:?xt=urn:btih:E59521A82F6B0B55D3E01C81390E373A5071D320
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:E59521A82F6B0B55D3E01C81390E373A5071D320
 magnet:?xt=urn:btih:3D4888A56B1B4B6EADCF434D3379E15B1A8404BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:3D4888A56B1B4B6EADCF434D3379E15B1A8404BC
 ```bash
 magnet:?xt=urn:btih:193DCCCBF4F2FAABA648CF1E1459A8EBC940D100
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ Snooks Eaglin - The Complete Imperial Recordings (1995) [MP3|320 кб/с]<Blues>
 magnet:?xt=urn:btih:77CF040830873B6F9121AB53B1BDBB314D463CE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:77CF040830873B6F9121AB53B1BDBB314D463CE9
 ```bash
 magnet:?xt=urn:btih:1501B0926F9E3401EA823C2D55B16B8456103AAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ VA - Techno Club Vol. 48 (Mixed By Talla 2XLC & Menno De Jong) (2015) [MP3|320 �
 magnet:?xt=urn:btih:E55677CC85B035867CE70A9C2FC3C1122144D313
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:E55677CC85B035867CE70A9C2FC3C1122144D313
 ```bash
 magnet:?xt=urn:btih:6A0F3117ACAE933DCD46B89DEDC56B455779FF70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ magnet:?xt=urn:btih:6A0F3117ACAE933DCD46B89DEDC56B455779FF70
 ```bash
 magnet:?xt=urn:btih:C17F14A239B0B854A88A72692ADC9CB0EACB7EB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ VA - We Love Trance Vol. 2 (Mixed By Jam Da Bass & Rene Ablaze) (2015) [MP3|320 
 magnet:?xt=urn:btih:1DA78DBFB8BECE8E954DC44715CE37E323282D1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ magnet:?xt=urn:btih:1DA78DBFB8BECE8E954DC44715CE37E323282D1D
 ```bash
 magnet:?xt=urn:btih:559A73A48FF14D47BC21F19C902FB4ED63AC026B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ VA - The Remixes Volume One (2015) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:96DA6AF4E4EE051569F47A1A196C418618405101
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ magnet:?xt=urn:btih:96DA6AF4E4EE051569F47A1A196C418618405101
 ```bash
 magnet:?xt=urn:btih:3EC6B0921EBE3A85D2961035492B07AEF35DE4A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +653,8 @@ VA - Timeline 2015 (Mixed by Poshout) (2015) [MP3|320 кб/с]<Progressive Tranc
 magnet:?xt=urn:btih:7F029975DEA62902C42F07FD2CCB14A0FD75DB29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ VA - Recoverworld Radio 003 (Mixed by Rich Smith) (2015) [MP3|320 кб/с]<Tranc
 magnet:?xt=urn:btih:A8785FB0C1FB8261F6DEC9E4D85B84C201AD96CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ magnet:?xt=urn:btih:A8785FB0C1FB8261F6DEC9E4D85B84C201AD96CF
 ```bash
 magnet:?xt=urn:btih:4A3B3584025B694E0386D3456E55DA93E1DC1A17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

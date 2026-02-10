@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:497E3679572A77CDAE7572F8027C67429DCEAE9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Goat Simulator 3 (2022) [Ru/Multi] (1.1.4.3_410056/dlc) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:F43EE7E38BA834A32A2EC644E15066C6D399117F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:F43EE7E38BA834A32A2EC644E15066C6D399117F
 magnet:?xt=urn:btih:9082BABD09AB0EEEA4637E56EA4A45145E35CC8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Castle of Secrets - это мрачное психологическое при�
 magnet:?xt=urn:btih:B5DC456B96F20DC1E3AF354BA4B9BC6E051E61F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Maxim School, Максим Куксов | Гамбит Хэллоуин (2023) W
 ```bash
 magnet:?xt=urn:btih:6EB6516C0A3FCF0D8044279E64B6A2068ED29184
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ VA - Самые лучшие хиты 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:8FC5BAF163C0589670D55DF94D4A8D3BE2B6E247
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ Maxim School, Максим Куксов | Контргамбит Альбина 
 magnet:?xt=urn:btih:60A8CB5E287A0156442EA3CFC0821253177A181B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ ExamDiff - мощная и легкая в использовании прогр
 ```bash
 magnet:?xt=urn:btih:A00EE215B65E7211ED87F9CA74CBA161DE57747B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Web Video Caster® позволяет смотреть на вашем ТВ ви
 magnet:?xt=urn:btih:0F5B13980B13E3393F057D066C916FA1E989CA40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:0F5B13980B13E3393F057D066C916FA1E989CA40
 ```bash
 magnet:?xt=urn:btih:11DFB9AEB1EE45355095C0B5ADBF3EC63A270EFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:11DFB9AEB1EE45355095C0B5ADBF3EC63A270EFE
 magnet:?xt=urn:btih:04F38E6D43C9E5A1715D5CB208B777916F5FFB74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Exiland Backup - простая программа резервного копи
 ```bash
 magnet:?xt=urn:btih:635FD8C8CB60791FA28D9D3586C7E747DEE406C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:635FD8C8CB60791FA28D9D3586C7E747DEE406C1
 magnet:?xt=urn:btih:6CDB3CF168AB40EF3FB2E64A160952F41EC92256
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:6CDB3CF168AB40EF3FB2E64A160952F41EC92256
 ```bash
 magnet:?xt=urn:btih:EDFABC1BDB90174EA458CE95AE54282886552AC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:EDFABC1BDB90174EA458CE95AE54282886552AC6
 magnet:?xt=urn:btih:862457FFAD2264CFE52892127B8C69C905554F8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:862457FFAD2264CFE52892127B8C69C905554F8F
 ```bash
 magnet:?xt=urn:btih:E6896727101AEDC13F52F61F43E20D9D17C3D89A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ Stone 4 Souls (2025) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:FB378DE0A6100DDCCA0C84D5C6F45E3A5EF132D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:FB378DE0A6100DDCCA0C84D5C6F45E3A5EF132D9
 magnet:?xt=urn:btih:F86BA3B35ABA985F18F279BDCF40A1B842DF2557
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ Vambrace: Dungeon Monarch (2025) [Multi] (Build 28889904) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:6ABF53D402778772DD28726C9F4F95549AA53C81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ Queen - Heavy (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Glam
 magnet:?xt=urn:btih:5D14C2BE295BB45DA107310FD6FE648BC7870773
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:5D14C2BE295BB45DA107310FD6FE648BC7870773
 ```bash
 magnet:?xt=urn:btih:13B915A95F59C761AC413FAF7F3F013718F39CA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ magnet:?xt=urn:btih:13B915A95F59C761AC413FAF7F3F013718F39CA7
 magnet:?xt=urn:btih:40FDBD21B8DBCBBEA19C98B8D6B74709A96BBC2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:40FDBD21B8DBCBBEA19C98B8D6B74709A96BBC2E
 ```bash
 magnet:?xt=urn:btih:D85275EEDB3A3D93FC31C50CE44F292173889613
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ magnet:?xt=urn:btih:D85275EEDB3A3D93FC31C50CE44F292173889613
 magnet:?xt=urn:btih:0757454D5940B4FE23B52BE0D4DBB8FC1D1DD938
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ Calibre - простая и удобная программа для управ�
 magnet:?xt=urn:btih:B0E067836C610C79EFC16F6EFD36094791F743AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ magnet:?xt=urn:btih:B0E067836C610C79EFC16F6EFD36094791F743AF
 ```bash
 magnet:?xt=urn:btih:C7CCC80ADFACD444C4C1DE3375E4BCCED9FD9D3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

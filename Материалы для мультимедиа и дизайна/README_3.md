@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:79C8EC81EBA838CDA9E7859C376991F5A53C63B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Sagewold - это современный геометрический шрифт
 magnet:?xt=urn:btih:1EA8D600414484A111281203802DBAED12AEB885
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Audex - это смелый геометрический шрифт с плав�
 ```bash
 magnet:?xt=urn:btih:06721C4358950114EE1AF2E5471C9C4E65AE234C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:06721C4358950114EE1AF2E5471C9C4E65AE234C
 magnet:?xt=urn:btih:2BA6A10421077C7712A7C6B0045FE287DB2E61A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:2BA6A10421077C7712A7C6B0045FE287DB2E61A4
 magnet:?xt=urn:btih:E0416F8BABB94EB8C8504B1841E939FA528E6958
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:E0416F8BABB94EB8C8504B1841E939FA528E6958
 ```bash
 magnet:?xt=urn:btih:C1B49556FA9D9DB6B4175BC6B44A9B678E0B43AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:C1B49556FA9D9DB6B4175BC6B44A9B678E0B43AA
 magnet:?xt=urn:btih:35892B9F61BA0DBAA572962CBA3005DEFE22A7EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:35892B9F61BA0DBAA572962CBA3005DEFE22A7EE
 magnet:?xt=urn:btih:3BF9092E8C3D8A720A4823DB53E240E04B96E711
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ Yoshimitsu (Tekken 8)Формат: STL
 ```bash
 magnet:?xt=urn:btih:A59113DE3378280E4017B4FFA16246688145F144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:A59113DE3378280E4017B4FFA16246688145F144
 magnet:?xt=urn:btih:1E5F039CD2623CDE1C3340F324ADCA12E2F6ABCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:1E5F039CD2623CDE1C3340F324ADCA12E2F6ABCD
 ```bash
 magnet:?xt=urn:btih:9EC9A310BDA30ECA3ECB16AA53455B2914615E3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:9EC9A310BDA30ECA3ECB16AA53455B2914615E3E
 magnet:?xt=urn:btih:B0C81D18487069F4EAF4092D1703954AE487CB9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ OV Cotin — вневременной шрифт с засечками, имею
 ```bash
 magnet:?xt=urn:btih:9CC9A3D59728E0DF0D765BFB73DDF575BA70AB13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:9CC9A3D59728E0DF0D765BFB73DDF575BA70AB13
 magnet:?xt=urn:btih:D8AF4A42DB0BC922ACD72BD5DB2642549228A0D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:D8AF4A42DB0BC922ACD72BD5DB2642549228A0D4
 magnet:?xt=urn:btih:935C402D5A0E69657A838622074FF6C82078A40F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:935C402D5A0E69657A838622074FF6C82078A40F
 ```bash
 magnet:?xt=urn:btih:E006E54084BB2E7AB4B3155F5D6DDE5478F2B5DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:E006E54084BB2E7AB4B3155F5D6DDE5478F2B5DC
 magnet:?xt=urn:btih:782D0478BB1486595391A135E00E8D4130E7B50E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ Noto - это глобальная коллекция шрифтов для пи
 ```bash
 magnet:?xt=urn:btih:1BE4B624F1BDA1F040F572F1B715DD4D5F742365
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:1BE4B624F1BDA1F040F572F1B715DD4D5F742365
 magnet:?xt=urn:btih:34B68C0D251AD916AF9C358090F921A1E5F43E22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:34B68C0D251AD916AF9C358090F921A1E5F43E22
 ```bash
 magnet:?xt=urn:btih:7A9A03FB444E5663BD52CDA67EF2B783E6C745DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:7A9A03FB444E5663BD52CDA67EF2B783E6C745DD
 magnet:?xt=urn:btih:31F19D7F2750D3916CF7C16E79126CE9569BF408
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ Chihiro & Haku из знаменитого аниме "Унесенные при
 ```bash
 magnet:?xt=urn:btih:27336807A9B4D3687639F9042B1471F6974BF712
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ AfroHits поможет вам ускорить рабочий процесс и
 magnet:?xt=urn:btih:BCDEFC32A9D09DD3C14A9679E5BA842252795664
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:BCDEFC32A9D09DD3C14A9679E5BA842252795664
 ```bash
 magnet:?xt=urn:btih:7F5876BE8AC11ABFF58D92AD9A23B3F85E645418
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ Werkdruck — это шрифт с засечками из старых добр
 magnet:?xt=urn:btih:4F49459064DE5692B1A6D32456EE244065CA918B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:4F49459064DE5692B1A6D32456EE244065CA918B
 ```bash
 magnet:?xt=urn:btih:0C741D1C383234F1614101264DAABB969A0DBD75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

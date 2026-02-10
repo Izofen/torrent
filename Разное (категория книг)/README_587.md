@@ -1,3 +1,29 @@
+###  Публикация: 768187   (861740) от 19.03.2014
+
+Михаил Щетинин | Дыхательная гимнастика Стрельниковой. Дыши правильно, укрепляй здоровье (2014) [PDF]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+В течение жизни у любого человека может нарушиться правильный стереотип дыхания. Тогда на помощь ему приходит гимнастика Стрельниковой, которая повышает сопротивляемость к стрессу, снижает общее психоэмоциональное напряжение, ликвидирует головные боли, связанные с переутомлением, улучшает сон и уменьшает раздражительность, повышает работоспособность, нормализует показатели обмена веществ, укрепляет иммунитет, восстанавливает микроциркуляцию крови, активирует энергетические процессы на уровне клетки, помогает надолго сохранить молодость и здоровье.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A73E013F5615EBE54A2DE79E492C8E15A04BDC29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 768225   (861741) от 19.03.2014
 
 Отто Вейнингер | Пол и характер (2011) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:290941BC8A7D9A921EB75A10E50D5796669A6928
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:290941BC8A7D9A921EB75A10E50D5796669A6928
 magnet:?xt=urn:btih:33C91474A4AE32BC70145DC430BD0D2371F8079F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:33C91474A4AE32BC70145DC430BD0D2371F8079F
 ```bash
 magnet:?xt=urn:btih:4F3D0849233A2BE34BA76A4D963709EB323FBF49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ Black Dog Media Ltd. | The Complete Landscape Photography Manual / Полное 
 magnet:?xt=urn:btih:476ADAE0EC3DADC2C339A062B273E094B24157E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:476ADAE0EC3DADC2C339A062B273E094B24157E8
 ```bash
 magnet:?xt=urn:btih:A93FFAD6B6FC07F9A3B647D6471771BFCE678AD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:A93FFAD6B6FC07F9A3B647D6471771BFCE678AD3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:A93FFAD6B6FC07F9A3B647D6471771BFCE678AD3
 magnet:?xt=urn:btih:55F24E0E4C41793FBC6D8BE49790698A8B4F5DAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:55F24E0E4C41793FBC6D8BE49790698A8B4F5DAE
 ```bash
 magnet:?xt=urn:btih:5F2BCBD065A62BBC0D23DEE5AE5E8B5F63EB2F45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:5F2BCBD065A62BBC0D23DEE5AE5E8B5F63EB2F45
 magnet:?xt=urn:btih:D4FA8D1695B033350BB1009277E68324B311DF27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:D4FA8D1695B033350BB1009277E68324B311DF27
 magnet:?xt=urn:btih:07BC1335DBA035AD8FDDD6944D79376B2D9C8F23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:07BC1335DBA035AD8FDDD6944D79376B2D9C8F23
 ```bash
 magnet:?xt=urn:btih:14A3E7C043E913E222E3C0B0BA56CEE3008CFB86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:14A3E7C043E913E222E3C0B0BA56CEE3008CFB86
 magnet:?xt=urn:btih:05C5B9F6432B2F3ECA479B7E7AD18A187021CBAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:05C5B9F6432B2F3ECA479B7E7AD18A187021CBAC
 ```bash
 magnet:?xt=urn:btih:46715056052FE6C536468E5B74DE081D0FB80CBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +393,8 @@ magnet:?xt=urn:btih:46715056052FE6C536468E5B74DE081D0FB80CBA
 magnet:?xt=urn:btih:624D082D602E362295BE2AC80669F4FD5478B797
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:624D082D602E362295BE2AC80669F4FD5478B797
 ```bash
 magnet:?xt=urn:btih:5507596CCF28077EF91D3D4C090CBECA178C40E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +449,8 @@ Black Dog Media Ltd. | The Complete GoPro Manual / Полное руководс
 magnet:?xt=urn:btih:D0A15E195189D647DF0B1FFC34AF36DC3AB49816
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +474,8 @@ magnet:?xt=urn:btih:D0A15E195189D647DF0B1FFC34AF36DC3AB49816
 ```bash
 magnet:?xt=urn:btih:CC6DDD4440E84E130D2E3A0E188847848FE55947
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +504,8 @@ magnet:?xt=urn:btih:CC6DDD4440E84E130D2E3A0E188847848FE55947
 magnet:?xt=urn:btih:E24402AB1DC8DAD2E6CFF6B8B3684C92F4BADFA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +530,8 @@ magnet:?xt=urn:btih:E24402AB1DC8DAD2E6CFF6B8B3684C92F4BADFA2
 ```bash
 magnet:?xt=urn:btih:D1BFDC63E89F0D8A07993D6D0F0E8872F69B22A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +558,8 @@ magnet:?xt=urn:btih:D1BFDC63E89F0D8A07993D6D0F0E8872F69B22A8
 magnet:?xt=urn:btih:DAF98879C750400098D16044198945D66BAD3563
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +583,8 @@ magnet:?xt=urn:btih:DAF98879C750400098D16044198945D66BAD3563
 ```bash
 magnet:?xt=urn:btih:77054FC6DC8C17DDCB5ED2033816E15AFA7FE18A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +610,8 @@ magnet:?xt=urn:btih:77054FC6DC8C17DDCB5ED2033816E15AFA7FE18A
 magnet:?xt=urn:btih:0294661B7563CE7275C6594F56C76AEBBB8A925E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +636,8 @@ magnet:?xt=urn:btih:0294661B7563CE7275C6594F56C76AEBBB8A925E
 magnet:?xt=urn:btih:B280BF5BC8033CCE76AD57456247E30E1FE891EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +661,8 @@ magnet:?xt=urn:btih:B280BF5BC8033CCE76AD57456247E30E1FE891EC
 ```bash
 magnet:?xt=urn:btih:ECED7125E9C363E3EC5F01DB6FA39B13426EC1BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,31 +690,7 @@ magnet:?xt=urn:btih:ECED7125E9C363E3EC5F01DB6FA39B13426EC1BD
 magnet:?xt=urn:btih:114A9038ECA391D499A5FBC5133E8A0A1EBD6A5C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108387   (862017) от 25.02.2017
-
-Илсе Санд | Страх близости. Как перестать защищаться и начать любить (2017) [EPUB, FB2, MOBI]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человеческая психика устроена милосердно: мы забываем слишком неприятные и болезненные ситуации и эмоции, чтобы жить нормально. Однако нормально – не значит счастливо. За высоким забором сложно увидеть красоту мира и трудно завязать знакомство с новыми людьми.
-
-Датский психотерапевт Илсе Санд на примерах из жизни объясняет, как разные варианты психологической защиты (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, практическая психологияФормат: EPUB, FB2, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66884EC89DDD31D0235D406D6D420742B1D4E36E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - Urban Sports Music, Vol. 3 (2019) [MP3|320 Kbps] <House, Progressive House>
 magnet:?xt=urn:btih:91130C5E9476C30EB0D861B301F7CDE03DF11339
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Toro Y Moi - Smartbeats (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimen
 ```bash
 magnet:?xt=urn:btih:4DAC689F93D0621D2C9AF322A752B63F5E513AB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Nathan Micay - Blue Spring (2019) LuckyMe [FLAC|Lossless|WEB-DL|tracks] <Experim
 magnet:?xt=urn:btih:E30195178D218057310A7E316B213AA915468C0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Buddah's Chill  Vol.8 (Buddha Asian Bar Lounge) (2017) [MP3|320 Kbps] <Chil
 ```bash
 magnet:?xt=urn:btih:E79A029D0BBA85B277527272FA3850551036B6B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Meemo Comma - Sleepmoss (2019) Planet Mu [FLAC|Lossless|WEB-DL|tracks] <Ambient,
 magnet:?xt=urn:btih:F8E0792E2BB0756A44CFAC197A26DE9818D98605
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ Foresense - Weerhaak (2019) Antilounge Den Haag [FLAC|Lossless|WEB-DL|tracks] <I
 magnet:?xt=urn:btih:D90A4118E7123EBB70651BC8BC7C3359B19F0B82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ Lisa Gerrard - The Black Opal (2009) [FLAC|Lossless]<Ambient>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ Cristian R - New Frequency (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tec
 magnet:?xt=urn:btih:E2A288976A5226A6A1C797DEA671CAF952130BAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ VA - Neon Electronic Chillout Lounge (Shades Of Erotic Ibiza Moments & Cafe Rela
 ```bash
 magnet:?xt=urn:btih:2FA7893709580349C1846CB1D94BCFDBA4BB4B58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ VA - S.L.O.W. Collection Vol.2-Chill Out Selection (2017) [MP3|320 Kbps] <Chillo
 magnet:?xt=urn:btih:98C6395AA7DA490220564D9EE52787860D804808
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ VA - Wind In The Field (Downtempo Series) Vol.010 (2017) [MP3|320 Kbps] <Downtem
 ```bash
 magnet:?xt=urn:btih:74542A925B9209D1CE680A9C900B61EA7E53DE7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +338,8 @@ VA - Jack The PlaceUp (2016) [MP3|320 Kbps] <Funky, Club House>
 magnet:?xt=urn:btih:BCA6455BA934C98DEB1FDFC811C1BDCED46E668D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ VA - The Sound Of Trice (Mixed By Vigel) (2016) [MP3|320 Kbps] <House, Electro H
 ```bash
 magnet:?xt=urn:btih:BAA55AE6F6A3E2BF9D9A6B7082C561DC4B0948DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ VA - Italo Lounge Clubbing Vol.1 (2017) [MP3|320 Kbps] <Balearic, Lounge, Downte
 magnet:?xt=urn:btih:C5EF685508E5FDE48CC1D4ADE3AA3EF7D6FB0848
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ VA - JustRomantic (2007) 2CD [FLAC|Lossless|tracks + .cue] <Downtempo>
 ```bash
 magnet:?xt=urn:btih:2EACE3D4F3989DA0D166AEA78B5FA5F274AFAF65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ The Crystal Method - Divided By Night (2009) [FLAC|lossless]<Breakbeat/Electroni
 magnet:?xt=urn:btih:60AD1E7FB336D7AAB333E217BCD5287E2E06B58F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ Ultravox - The Voice:The Best Of Ultravox (1997) [FLAC|Lossless|image + .cue] <N
 ```bash
 magnet:?xt=urn:btih:AF2E0AD9515F007C7735DFD438C75F62F86A4E65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ VA - Suanda Music Radio Top 10 January 2016 (Mixed by Roman Messer) (2016) [MP3|
 magnet:?xt=urn:btih:476FE18CC46487416377A0A0110F51D72B656943
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +537,8 @@ Sibewest - Cyberlove (2020) IMMINENT [FLAC|Lossless|WEB-DL|tracks] <Future Garag
 ```bash
 magnet:?xt=urn:btih:5ECA458B48DD330B779F6C29AA3E50B1A6BBD180
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +567,8 @@ Killstarr - Worlds Apart (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synth
 magnet:?xt=urn:btih:C5FDF3B1031630C15A3904A076907FB5BF540F54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +595,8 @@ Vladislav Delay - Rakka (2020) Cosmo Rhythmatic [FLAC|Lossless|WEB-DL|tracks] <E
 ```bash
 magnet:?xt=urn:btih:8E715BB0BEE5105432612E9A12F5446B4FFF85CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +625,8 @@ VA - Lifting Makes You Strong Check into the Gym (2020) [MP3|320 Kbps] <House, T
 magnet:?xt=urn:btih:1D8725EC070A18897B7CC93680976BF684AA717A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +650,8 @@ Label Pack - Crystalclouds Recordings - 78 Releases (2007 - 2016) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:120546DE9DAD303999FE436913607C0316F17F4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +680,8 @@ Satin Jackets - Panorama Pacifico (2016) [FLAC|Lossless|tracks + .cue] <House, N
 magnet:?xt=urn:btih:F8045905C07F8D4039FC7B49E733A220DD9B60F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +709,8 @@ Atiq & EnK - Embracing The Unknown (2014) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ex
 magnet:?xt=urn:btih:FBA45804DC78B1E00F9E34D7D2F97D18ED53C3F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -687,6 +737,8 @@ VA - Happy Valentine's Day (2016) [MP3|320 кб/с] <Lounge, ChillOut, Easy List
 ```bash
 magnet:?xt=urn:btih:E68893957EEA601E0BAD4D6EBE69F949FEB03706
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1556732   (558095) от 10.06.2022
+
+Игорь Чиркунов | Сага об орке (Книга 1). Начало (2022) [MP3, Александр Чайцын]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начало – фантастический роман Игоря Чиркунова, первая книга цикла «Сага об орке», жанр героическое фэнтези, приключения, боевое фэнтези. «и только тот мог с правом называться морским конунгом, кто никогда не спал под закопчённой крышей и никогда не пировал у очага». Мечтаешь стоять на носу драккара, вглядываясь в выплывающий из тумана монастырь святого Кутберта? (   Читать дальше...   )Жанр: Боевое фэнтези, Историческое фэнтезиПродолжительность: 12:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB2C945E4CBBB17F0898A0D3B807A1AB5008E97C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556730   (558100) от 10.06.2022
 
 Борис Романовский | «Арчи» Книга 4. Кровавые Доспехи (2022) [MP3, Дмитрий Кузнецов]
@@ -21,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:5B9E3CA110686FF53E824C2132D2F670DFE0B37A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +76,8 @@ magnet:?xt=urn:btih:5B9E3CA110686FF53E824C2132D2F670DFE0B37A
 magnet:?xt=urn:btih:E7F905DD9221950ED459C999992D3B05EA6D586D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +101,8 @@ magnet:?xt=urn:btih:E7F905DD9221950ED459C999992D3B05EA6D586D
 ```bash
 magnet:?xt=urn:btih:953A9FBECF67042BE9786677EED6DAFE64556237
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +128,8 @@ magnet:?xt=urn:btih:953A9FBECF67042BE9786677EED6DAFE64556237
 magnet:?xt=urn:btih:1C6AF5C8D77C9E2802B9A8B4EC630BA68AC0D121
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:1C6AF5C8D77C9E2802B9A8B4EC630BA68AC0D121
 ```bash
 magnet:?xt=urn:btih:8012A11BFC20BBB3375381C8F849164915B4B1E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +182,8 @@ magnet:?xt=urn:btih:8012A11BFC20BBB3375381C8F849164915B4B1E8
 magnet:?xt=urn:btih:E9CA6D489794363A3FF1C58F0C062A5A7BFA89C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:E9CA6D489794363A3FF1C58F0C062A5A7BFA89C0
 ```bash
 magnet:?xt=urn:btih:CCE4201079A517B818CE69997A905B2049A9C5A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +235,8 @@ magnet:?xt=urn:btih:CCE4201079A517B818CE69997A905B2049A9C5A9
 magnet:?xt=urn:btih:3F6F72618E99CFF981ABD2862BD0870C5DEE87C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:3F6F72618E99CFF981ABD2862BD0870C5DEE87C9
 ```bash
 magnet:?xt=urn:btih:A3DF0321D90AC3BD24988E7A460CDA1E94DCF3DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:A3DF0321D90AC3BD24988E7A460CDA1E94DCF3DA
 magnet:?xt=urn:btih:402073A974AFBC9F3BB01537494277679431FE4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:402073A974AFBC9F3BB01537494277679431FE4A
 ```bash
 magnet:?xt=urn:btih:3D3809A0A6C5C5A97F076A004AD9826C27EE4F07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:3D3809A0A6C5C5A97F076A004AD9826C27EE4F07
 magnet:?xt=urn:btih:54D8A6F19A458536940DF37903B8E8F55FB31FC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:54D8A6F19A458536940DF37903B8E8F55FB31FC8
 ```bash
 magnet:?xt=urn:btih:4C283A2432E4AFB8456951ABF491E91F6CC57A02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +393,8 @@ magnet:?xt=urn:btih:4C283A2432E4AFB8456951ABF491E91F6CC57A02
 magnet:?xt=urn:btih:69E2D291D82525678813A5CEE94F91EA33FCE3E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:69E2D291D82525678813A5CEE94F91EA33FCE3E3
 ```bash
 magnet:?xt=urn:btih:A7990D67419F33707610B2DAE1686EFE916ACFEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:A7990D67419F33707610B2DAE1686EFE916ACFEC
 magnet:?xt=urn:btih:0B398FC100D1E638311FABAB1CD7348297CA1931
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:0B398FC100D1E638311FABAB1CD7348297CA1931
 magnet:?xt=urn:btih:C46A191AFD8DA5B74C5FC12029C12388344C48A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:C46A191AFD8DA5B74C5FC12029C12388344C48A8
 ```bash
 magnet:?xt=urn:btih:7BD204505CD5924C23EA8911ADA03E7FE2E616B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:7BD204505CD5924C23EA8911ADA03E7FE2E616B8
 magnet:?xt=urn:btih:858C1C53CA53DA92E7DCE7CAF264015DEE6B075E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:858C1C53CA53DA92E7DCE7CAF264015DEE6B075E
 ```bash
 magnet:?xt=urn:btih:798F2D073E218F1BEB196CD04BD4CA6C96AC768D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:798F2D073E218F1BEB196CD04BD4CA6C96AC768D
 magnet:?xt=urn:btih:9F0D36E3510C3343E7D541809DA8DD375BEA6AAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:9F0D36E3510C3343E7D541809DA8DD375BEA6AAF
 ```bash
 magnet:?xt=urn:btih:E19EA1866E6A2BE4BBA69B5A3EBCA224E6011481
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:E19EA1866E6A2BE4BBA69B5A3EBCA224E6011481
 magnet:?xt=urn:btih:C9A26B709821E601E7B1463CF7FC48623BE873B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:C9A26B709821E601E7B1463CF7FC48623BE873B3
 ```bash
 magnet:?xt=urn:btih:8502EE7499C615540A852D99717C9F1028A0EAF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,30 +683,7 @@ magnet:?xt=urn:btih:8502EE7499C615540A852D99717C9F1028A0EAF8
 magnet:?xt=urn:btih:F27C69BD5A2B91665865DFBE4D7ABC9C073A7DAC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235156   (560338) от 11.07.2018
-
-Наталья Жильцова | Ведьма темного пламени (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Академия Чёрного дракона».
-Наталья Жильцова – популярный автор в жанрах героического и романтического фэнтези. Представляем аудиоверсию первой книги её нового цикла «Академия чёрного дракона». Так называется заведение, где обучается главная героиня – молодая ведьма Лиана Тиррель. Не сказать, что она входит в число успешных адептов, скорее, твёрдая (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 07:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07364BE8D82270D0ADE658AC50786FACC82961AC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

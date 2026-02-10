@@ -22,6 +22,8 @@ Danny Bensi & Saunder Jurriaans - LA 92 / Лос-Анджелес 92 (Original N
 magnet:?xt=urn:btih:5B11B9ABBF47E778CA6CBC7E1FB778E979C287C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Mumford & Sons - 20 Albums (2008-2016) 7 Albums, 13 EP & Singles [FLAC|Lossless]
 ```bash
 magnet:?xt=urn:btih:C265B41CA9F1833C697020BAFD9CD19603DB2536
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Marcin Przybylowicz, Mikolai Stroinski & Piotr Musial - The Witcher 3 Wild Hunt 
 magnet:?xt=urn:btih:F688084F44105D9D556DE23B30CBC0C8ACFF55A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:F688084F44105D9D556DE23B30CBC0C8ACFF55A0
 ```bash
 magnet:?xt=urn:btih:656997ACFECE84400AA9CDC1AAFAECC847352167
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Marcin Przybylowicz and Mikolai Stroinski - The Witcher 3 Wild Hunt (Original So
 magnet:?xt=urn:btih:81CE68DDC81912008F612950CDD209F523916EE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ Marcin Przybylowicz - The Witcher 3 Wild Hunt - Hearts Of Stone (Original Soundt
 magnet:?xt=urn:btih:1D5E594E28C7C75E42DAB1DBB063761FDC3A9AF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ Mick Douglas - Healing Sound of the Rain (2016) [FLAC|Lossless|WEB-DL|tracks] <N
 magnet:?xt=urn:btih:2F415FC1A7FFD4B8EE59B25B49778DBCAA793E5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ Llewellyn - Native American Gold (2016) [FLAC|Lossless|WEB-DL|tracks] <New age, 
 ```bash
 magnet:?xt=urn:btih:BC9409050F962C4D88283ECB1B48022195A66813
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +248,8 @@ Paul Leonard-Morgan - Warhammer 40,000: Dawn of War III (Official Game Soundtrac
 magnet:?xt=urn:btih:86E20B84EAF725CB0694318F862F6C788D854EFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +276,8 @@ Hans Zimmer, Lorne Balfe - Genius / Гений (National Geographic Original Ser
 ```bash
 magnet:?xt=urn:btih:4890C61467294260D8E3AD9664081E18CC158588
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +306,8 @@ The Romantic Strings Orchestra - Thanks For The Memory (1995) [MP3|320 Kbps] <In
 magnet:?xt=urn:btih:650CE1BEE4DFB411DF518F67ACA4E42A5F71633B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +334,8 @@ Danny Elfman - The Circle / Сфера (Original Motion Picture Soundtrack) (201
 ```bash
 magnet:?xt=urn:btih:7FC445D549101F0DE1C7E78C225E3F9F901F1476
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +364,8 @@ CherryVata - Daybreak (2017) [FLAC|Lossless|WEB-DL|tracks] <Future Beats, Nu Jaz
 magnet:?xt=urn:btih:7386FE3F8F18F6BA2DDB2C30AEC12C077C33E45F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +392,8 @@ Hans Zimmer, Lorne Balfe - Genius / Гений (National Geographic Original Ser
 ```bash
 magnet:?xt=urn:btih:4CBF4BE260E3E07A5A54991CE2EE61E2FAB4250C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +422,8 @@ Audiomachine - Magnus & Magnus: B-Sides (2015) 2 CD [MP3|320 Kbps|CBR] <Soundtra
 magnet:?xt=urn:btih:44FB400650DF13FA8E73D1E26D6ECA3314A5A88D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +450,8 @@ Danny Elfman - The Circle / Сфера (Original Motion Picture Soundtrack) (201
 ```bash
 magnet:?xt=urn:btih:1B19F18175FCB25147DFB7F1FD47496863691D17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +480,8 @@ Really Slow Motion - Battle Angel (2016) [MP3|320 Kbps] <Soundtrack, Instrumenta
 magnet:?xt=urn:btih:BD9BA818019F1611A0D9486CB171FF49E22AE6F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +508,8 @@ Mandy Hoffman - The Lovers / Любовники (Original Motion Picture Soundtr
 ```bash
 magnet:?xt=urn:btih:CC029DB42DF1E1FACD4685232BC14AF8F878A683
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +538,8 @@ Daniel Pemberton - Mal De Pierres / From The Land Of The Moon / Иллюзия �
 magnet:?xt=urn:btih:45BDC8FAA24475A1BB872C109DB48965368A6F1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +566,8 @@ magnet:?xt=urn:btih:45BDC8FAA24475A1BB872C109DB48965368A6F1B
 ```bash
 magnet:?xt=urn:btih:A513F90EE009DC39A6B8E6AAF714CE29DAF2A2E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +596,8 @@ Mandy Hoffman - The Lovers / Любовники (Original Motion Picture Soundtr
 magnet:?xt=urn:btih:4AD17FD3368519A9C313E061DC867BF8EBC8384F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +624,8 @@ Daniel Pemberton - Mal De Pierres / From The Land Of The Moon / Иллюзия �
 ```bash
 magnet:?xt=urn:btih:4AA6006CE1AC69FC937B34D9880542C3E5012B9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ magnet:?xt=urn:btih:4AA6006CE1AC69FC937B34D9880542C3E5012B9C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +686,8 @@ VA - Aroma Therapy. Complete 10 CD Collection (2006) [FLAC|Lossless|tracks] <Rel
 ```bash
 magnet:?xt=urn:btih:EE7AFDEB9D4EDE11417394F7BF229AC319F9F3D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,6 +716,8 @@ Patty Griffin - Patty Griffin (2019) [FLAC|Lossless|tracks + .cue] <Folk, Countr
 magnet:?xt=urn:btih:40A8F1D4A01213F0E1D55AE954CA457902E6A360
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ Montgomery Gentry - Here's To You (2018) [FLAC|Lossless|tracks + .cue] <Folk, Co
 ```bash
 magnet:?xt=urn:btih:CC778595E97BC036E41EBB4003CCAA2E06F4A9C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

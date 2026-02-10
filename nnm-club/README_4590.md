@@ -22,6 +22,8 @@ Joker's IV - Pink World (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam Hard Rock>
 magnet:?xt=urn:btih:B54ECB3544EA525BC8BADEC7813913B016168E8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:B54ECB3544EA525BC8BADEC7813913B016168E8E
 ```bash
 magnet:?xt=urn:btih:8EDB6D87D584F062567068EB9D1998C63A9BE27B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:8EDB6D87D584F062567068EB9D1998C63A9BE27B
 magnet:?xt=urn:btih:A9D6E2EBE5AA67A1DBDA30EABE705C8C49B0D6C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:A9D6E2EBE5AA67A1DBDA30EABE705C8C49B0D6C6
 ```bash
 magnet:?xt=urn:btih:62AC4665C3017A063B09535B4208B36FAB5E85F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:62AC4665C3017A063B09535B4208B36FAB5E85F7
 magnet:?xt=urn:btih:6A524B6B54DAD40300283DEF8BDF15A31AB2E769
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:6A524B6B54DAD40300283DEF8BDF15A31AB2E769
 ```bash
 magnet:?xt=urn:btih:EC81C7501CFA86EB34E71403661E27B9493D0502
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Heretic Brazil - Gilgamesh (2023) [MP3|320 Kbps] <Progressive Metal>
 magnet:?xt=urn:btih:EF9C61DB0A4FF8CEF32465DBC118099459465AB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ TaskPaper - простое приложение для создания и ве�
 magnet:?xt=urn:btih:9720FBE40829AB1B361EAD6298A3DDAB5A9150BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:9720FBE40829AB1B361EAD6298A3DDAB5A9150BE
 ```bash
 magnet:?xt=urn:btih:0EFBD1D2EF701BF15580347E42DD84DE227A93C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:0EFBD1D2EF701BF15580347E42DD84DE227A93C0
 ```bash
 magnet:?xt=urn:btih:4FDCF09DBCDA5199B6212B6D2820C1D0C83776AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:4FDCF09DBCDA5199B6212B6D2820C1D0C83776AC
 magnet:?xt=urn:btih:5F1A1A5A786B25FF2C73E8AFF2BC5B7A04ED0F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ Magic-Kyun! Renaissance / Магия-кюн: Ренессанс [2016, TV, 13 и
 ```bash
 magnet:?xt=urn:btih:69FDECD1422C83759E86E57C12E2F6F96043C50A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ Ken Hensley
 magnet:?xt=urn:btih:A21A3A2989158AC36AE37D8135C1D0F16D3B874A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:A21A3A2989158AC36AE37D8135C1D0F16D3B874A
 magnet:?xt=urn:btih:AE069E4EA0B62C152B21B1F4AD1EDAA57F27CCA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:AE069E4EA0B62C152B21B1F4AD1EDAA57F27CCA0
 ```bash
 magnet:?xt=urn:btih:0DAB52D643C218DCE31B510AC7AB985641678DF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ VA - Pulse (Compiled by Serge Kraplya) (2021) [AAC|~319 Kbps] <Chill Out, Downte
 magnet:?xt=urn:btih:9E1F9AF6C23B9B34DA1FAB9185901DA22FF2EB42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:9E1F9AF6C23B9B34DA1FAB9185901DA22FF2EB42
 magnet:?xt=urn:btih:E93CABB00894C0D9287F5E3A3902C5343913B2A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:E93CABB00894C0D9287F5E3A3902C5343913B2A2
 ```bash
 magnet:?xt=urn:btih:9FF0DBD30081659E7C87DD57AE6F35F1262A0FC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +510,8 @@ VA - Goa Psy Trance - 2018 Top 40 Hits Psychedelic Fullon Trance Progressive Tec
 magnet:?xt=urn:btih:8556AAD8938579FF0AB9EBB51FD75A8C516F6746
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:8556AAD8938579FF0AB9EBB51FD75A8C516F6746
 magnet:?xt=urn:btih:5C9ABCB5C7ED3FB315E66CEECE19EAF051DA0E57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ PBS. Первые цивилизации / First Civilizations (2018) HDTVRip [H
 ```bash
 magnet:?xt=urn:btih:A6899FB923C56E9D8BE4B1739AF099CBA9590408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:A6899FB923C56E9D8BE4B1739AF099CBA9590408
 magnet:?xt=urn:btih:5D8D7ABEDF6F2967DC8C73CB7E8BAFB590DCF044
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:5D8D7ABEDF6F2967DC8C73CB7E8BAFB590DCF044
 ```bash
 magnet:?xt=urn:btih:4EDD4A0665DFED3D63572ADFB669048A4C118CF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:4EDD4A0665DFED3D63572ADFB669048A4C118CF0
 magnet:?xt=urn:btih:472A3110731D4008AD6DE79F4556991A44E73227
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ magnet:?xt=urn:btih:472A3110731D4008AD6DE79F4556991A44E73227
 magnet:?xt=urn:btih:A83F5D990D2E0F3DA09A45A171ABD055056E1ACD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ magnet:?xt=urn:btih:A83F5D990D2E0F3DA09A45A171ABD055056E1ACD
 ```bash
 magnet:?xt=urn:btih:4EE7B7170748FCAA2E0E5F6E8B62F2589CBE69C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

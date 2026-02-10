@@ -20,6 +20,8 @@ Nomad Coders | YouTube CloneCoding (2021) WEB-DL [En]
 magnet:?xt=urn:btih:1D56DFE0B54E1F0ADED2DED58E313A59C5A70DA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ ArtStation, Bailey Facer | Violent Seduction – Tempeste Set Creation (2021) WE
 magnet:?xt=urn:btih:D022C29D19E31F614D9FF9C0E953D3004B165127
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ RealPython | Data Collection & Storage (2019) WEB-DL [En]
 ```bash
 magnet:?xt=urn:btih:A7006CBF09DF2B95167287A2B4184428AB837C42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ CG Cookie | Создание анимированного игрового Sci-F
 magnet:?xt=urn:btih:F72C9BB89178FCB9973E5665FCE693F7269432CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Pluralsight.com | Оптимизация запросов MySQL и настро�
 magnet:?xt=urn:btih:7BE0CF915D32C04F1A77668A627CA84F9C096D70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Pluralsight.com | Индексирование MySQL для производит
 ```bash
 magnet:?xt=urn:btih:F1F4F46E88584370FECDE1A325C238B57F7E4C41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ SOLID, Connascence, Cohesion и Coupling — практики, который п
 magnet:?xt=urn:btih:9065B264ECB5AC029042C2234B2665BE29C5E82D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:9065B264ECB5AC029042C2234B2665BE29C5E82D
 ```bash
 magnet:?xt=urn:btih:74F903EB770BDA0CECF20E2EFCE017E96A74E13A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:74F903EB770BDA0CECF20E2EFCE017E96A74E13A
 magnet:?xt=urn:btih:534AC8BBCAC4B74E84AD794B97AEE8860CB7EFEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ OTUS | Математика для Data Science. Базовый курс (2020) 
 ```bash
 magnet:?xt=urn:btih:495AE708B3528CF4F73137B1DC211235F3FB949D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ OTUS | Android-разработчик. Базовый курс (2019) PCRec [H.2
 magnet:?xt=urn:btih:E434863AF9E7193E0C8E1F8187095CE4567E0348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ OTUS | РНР для начинающих программистов (2020) PCRe
 ```bash
 magnet:?xt=urn:btih:F250682CB4B3FB088344B30F23D0118D7C0A8573
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ CG Cookie | Создание и анимация низкополигональ�
 magnet:?xt=urn:btih:25AE9FEED62426276D1C7C0C3F57DAD4E9E1B46C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ CG Cookie | Анимация пламени с помощью Grease Pencil в B
 ```bash
 magnet:?xt=urn:btih:F94025030500A8641C45E5D223F5C25683F00D68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:F94025030500A8641C45E5D223F5C25683F00D68
 magnet:?xt=urn:btih:9E7BEEBB5B2D3C610F30449DAC391BAE7D435948
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:9E7BEEBB5B2D3C610F30449DAC391BAE7D435948
 magnet:?xt=urn:btih:344162678958F877D789A4A324CFDB7DFFEBE2D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:344162678958F877D789A4A324CFDB7DFFEBE2D5
 ```bash
 magnet:?xt=urn:btih:F5E1E873272005C554AB26A0D1191EFD7B12C6C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:F5E1E873272005C554AB26A0D1191EFD7B12C6C1
 magnet:?xt=urn:btih:9B8B327653FF95B00EE3302A53CBCA1C1F33D0F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:9B8B327653FF95B00EE3302A53CBCA1C1F33D0F1
 magnet:?xt=urn:btih:CAA596573F59A60572AB1F548DD3228B6BF5F604
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ Pluralsight.com | JavaScript Promises и Асинхронное программ
 ```bash
 magnet:?xt=urn:btih:EA7BDDCCBE0AAC2E62FB1FC1F3887B93829D4BCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ CG Cookie | Основы анимации в Blender 2.8 / Fundamentals of Anima
 magnet:?xt=urn:btih:8AFE4B28AAACB25FE0FA04539E2FDD8325CBE2E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ CG Cookie | Производственный дизайн в Blender 2.8 и  Eev
 ```bash
 magnet:?xt=urn:btih:AF582EB09EE099DEB5F430555C66977922AED984
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ CG Cookie | Понимание данных Blender / Understanding Blender Data
 magnet:?xt=urn:btih:101153489B09AAC9E596470800FED4C84F391A81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:101153489B09AAC9E596470800FED4C84F391A81
 ```bash
 magnet:?xt=urn:btih:4D720FCCC6A0B01BACB7886705092026A918D7B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:4D720FCCC6A0B01BACB7886705092026A918D7B4
 magnet:?xt=urn:btih:E43AC6387F3DC9C7382708A385C620046D1A2E8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ magnet:?xt=urn:btih:E43AC6387F3DC9C7382708A385C620046D1A2E8C
 ```bash
 magnet:?xt=urn:btih:3F8F59851816BAE8B3DF6AE50E6FFB231CCDC8AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

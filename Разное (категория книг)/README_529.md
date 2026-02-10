@@ -1,3 +1,30 @@
+###  Публикация: 1177801   (791170) от 02.06.2020
+
+Л.И. Воробьева (ред.) | Книга о вкусной и здоровой пище (1988) [DJVU]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга — справочное пособие по приготовлению домашней пиши — содержит современные данные науки о питании, полезные сведения о пищевых продуктах, рецепты приготовления закусочных, первых, вторых, сладких блюд и изделий из теста. Специальные разделы отведены домашнему консервированию, а также лечебному и детскому питанию.
+Книга рассчитана на широкий круг читателей. (   Читать дальше...   )Жанр: КулинарияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD7CE3A11DCCD3967A7CC53B940023F1931F7CE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387657   (791189) от 02.06.2020
 
 Книжная серия | Лучшее от Psychologies: Познать себя [7 книг] (2019) [EPUB]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:98F9139312026C4D38652CAA14E03A2678B15378
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:98F9139312026C4D38652CAA14E03A2678B15378
 magnet:?xt=urn:btih:CCFEC06AD66377D21E3F7B49F5B9A4E406D6C101
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:CCFEC06AD66377D21E3F7B49F5B9A4E406D6C101
 ```bash
 magnet:?xt=urn:btih:A92834E8499DD304FC7E3225131EC75D689AD19D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:A92834E8499DD304FC7E3225131EC75D689AD19D
 magnet:?xt=urn:btih:528A05C27295BCC07252489FAAB90AFD80B933B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +149,8 @@ magnet:?xt=urn:btih:528A05C27295BCC07252489FAAB90AFD80B933B9
 ```bash
 magnet:?xt=urn:btih:E781C7A92287AD4206E950770D9796D2B71D2193
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +177,8 @@ magnet:?xt=urn:btih:E781C7A92287AD4206E950770D9796D2B71D2193
 magnet:?xt=urn:btih:397A1F26E679A13B4993B2DB9979D02E0B1AE15B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +203,8 @@ magnet:?xt=urn:btih:397A1F26E679A13B4993B2DB9979D02E0B1AE15B
 magnet:?xt=urn:btih:21B2363556289E5BC87C360F30F812065213B512
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +228,8 @@ magnet:?xt=urn:btih:21B2363556289E5BC87C360F30F812065213B512
 ```bash
 magnet:?xt=urn:btih:FC4ADBC476F6B16C367555BAEB55897D8DD97B9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:FC4ADBC476F6B16C367555BAEB55897D8DD97B9C
 magnet:?xt=urn:btih:B0B645B6476867ABE63532D737189FD65964F976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +283,8 @@ magnet:?xt=urn:btih:B0B645B6476867ABE63532D737189FD65964F976
 magnet:?xt=urn:btih:D93F97F921B528ECFA51D9C4B230EC9AC35248D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +308,8 @@ magnet:?xt=urn:btih:D93F97F921B528ECFA51D9C4B230EC9AC35248D8
 ```bash
 magnet:?xt=urn:btih:6C8FA4D4B57E98EC1817C0D8B434DE33D230723C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +337,8 @@ magnet:?xt=urn:btih:6C8FA4D4B57E98EC1817C0D8B434DE33D230723C
 magnet:?xt=urn:btih:26122F2898DCC085C14133C26259F11F7E945E38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +362,8 @@ magnet:?xt=urn:btih:26122F2898DCC085C14133C26259F11F7E945E38
 ```bash
 magnet:?xt=urn:btih:A64678742616C11BD88C7C3B6F4E5FA3EF7F97A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +389,8 @@ magnet:?xt=urn:btih:A64678742616C11BD88C7C3B6F4E5FA3EF7F97A0
 magnet:?xt=urn:btih:911F53482BEB6DB478040099395D42EDAD161FA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +414,8 @@ magnet:?xt=urn:btih:911F53482BEB6DB478040099395D42EDAD161FA8
 ```bash
 magnet:?xt=urn:btih:43F82D47A541E3BE10D06033A7BA5FBBB054751D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +441,8 @@ magnet:?xt=urn:btih:43F82D47A541E3BE10D06033A7BA5FBBB054751D
 magnet:?xt=urn:btih:848107405F6F8411DFD92A05BD2838F404D04E64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +466,8 @@ magnet:?xt=urn:btih:848107405F6F8411DFD92A05BD2838F404D04E64
 ```bash
 magnet:?xt=urn:btih:1DF719AC2D0DF1F70E19AEEC09CBF7B620F29DBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +494,8 @@ magnet:?xt=urn:btih:1DF719AC2D0DF1F70E19AEEC09CBF7B620F29DBF
 magnet:?xt=urn:btih:441FA499E71725436E79B18B3065AFDAFFF0DE3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +519,8 @@ magnet:?xt=urn:btih:441FA499E71725436E79B18B3065AFDAFFF0DE3E
 ```bash
 magnet:?xt=urn:btih:573381700370730CC1013813628B61319B0D6225
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +546,8 @@ magnet:?xt=urn:btih:573381700370730CC1013813628B61319B0D6225
 magnet:?xt=urn:btih:5691B030CC414E714D259DD405C98D5C4FD4C614
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +571,8 @@ magnet:?xt=urn:btih:5691B030CC414E714D259DD405C98D5C4FD4C614
 ```bash
 magnet:?xt=urn:btih:5AF81D0C5EE80993BDA09F364192BA4AF3486C5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +600,8 @@ magnet:?xt=urn:btih:5AF81D0C5EE80993BDA09F364192BA4AF3486C5D
 magnet:?xt=urn:btih:B9E2F8D5B97D9617D6FE4ED2F441BABFCE7F4A15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +628,8 @@ magnet:?xt=urn:btih:B9E2F8D5B97D9617D6FE4ED2F441BABFCE7F4A15
 magnet:?xt=urn:btih:760E1C1EC01AA5DE7D7DF43562F9634365CE97E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +653,8 @@ magnet:?xt=urn:btih:760E1C1EC01AA5DE7D7DF43562F9634365CE97E4
 ```bash
 magnet:?xt=urn:btih:8EE04FFF8B0FBE15425631BE53AC8EDD6FD3ED7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,29 +680,7 @@ magnet:?xt=urn:btih:8EE04FFF8B0FBE15425631BE53AC8EDD6FD3ED7F
 magnet:?xt=urn:btih:892CB8D72B3A946526308773358838C4C29AB7BF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123375   (792327) от 07.04.2017
-
-Александр Бирюков | Анатомия любви и фальшивок (2014) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга не о любви. Да-да, твои глаза не врут. Скучно и писать, и читать о любви после миллионов научных трудов и художественных произведений. Книга как раз о её противоположности - фальшивках, подделках под любовь, с помощью которых манипулятор заставляет жертву плясать под свою дудку и откачивает ресурсы, начиная от денег и заканчивая эмоциями. Именно это и есть (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:016C27FCA94D5734614947889943D43C23AF4486
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

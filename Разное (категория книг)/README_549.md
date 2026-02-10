@@ -1,3 +1,29 @@
+###  Публикация: 1117183   (820143) от 21.03.2017
+
+Дмитрий Кот | Продающие тексты. Модель для сборки. Копирайтинг для всех (2017) [FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820143.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: Дмитрий Кот – один из самых известных копирайтеров, бизнес-тренер, директор Агентства продающих текстов, автор бестселлера «Копирайтинг: как не съесть собаку. Создаем тексты, которые продают».Книга для всех, кто пишет продающие тексты.Чем она отличается от десятка других книг по копирайтингу? Она дополняет их. Помогает систематизировать приемы и подходы: (   Читать дальше...   )Жанр: МаркетингФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20733B6149CEB10725CF051D13DEBE8A7D4776CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905351   (820313) от 04.01.2018
 
 Лора Вандеркам | Книга о потерянном времени. У вас больше возможностей, чем вы думаете (2015) [PDF, EPUB, FB2]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:7E43FA93311FD37B52BE249CCBE36A77165E83BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:7E43FA93311FD37B52BE249CCBE36A77165E83BB
 magnet:?xt=urn:btih:44733E2A1242EB727586EC70BACD4EE0DAA3E732
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:44733E2A1242EB727586EC70BACD4EE0DAA3E732
 ```bash
 magnet:?xt=urn:btih:38D07CE313917A14F2C5A23AD65FEDFC0412B489
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:38D07CE313917A14F2C5A23AD65FEDFC0412B489
 magnet:?xt=urn:btih:FDA92286DFEB0AB84D4839A4D5820B0BE33B4F01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:FDA92286DFEB0AB84D4839A4D5820B0BE33B4F01
 ```bash
 magnet:?xt=urn:btih:97A4578CF0407CBB57A7E135C7448ACEF018DDB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:97A4578CF0407CBB57A7E135C7448ACEF018DDB2
 magnet:?xt=urn:btih:68C6F058F81CB8D17C9952713D314EB95ACEDCA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:68C6F058F81CB8D17C9952713D314EB95ACEDCA9
 ```bash
 magnet:?xt=urn:btih:95E9D64EB931EBF56B0EC2762A7BC4DEF1C5FC01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:95E9D64EB931EBF56B0EC2762A7BC4DEF1C5FC01
 magnet:?xt=urn:btih:D22C6D3877D5C83D6A62A2078AA68EDE23C8F2C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:D22C6D3877D5C83D6A62A2078AA68EDE23C8F2C3
 ```bash
 magnet:?xt=urn:btih:13C80E195C93C96CF4B546F957E10CF2E20C4554
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:13C80E195C93C96CF4B546F957E10CF2E20C4554
 magnet:?xt=urn:btih:2FFA466A0104D2B4AAA6112952CF3B442FC1433F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:2FFA466A0104D2B4AAA6112952CF3B442FC1433F
 ```bash
 magnet:?xt=urn:btih:FD04A9AAEA467C77BAB09B192CA24EC63A8188C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:FD04A9AAEA467C77BAB09B192CA24EC63A8188C2
 magnet:?xt=urn:btih:43B72B8EB432E65248E772FAB9B9B287678BBDD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:43B72B8EB432E65248E772FAB9B9B287678BBDD3
 ```bash
 magnet:?xt=urn:btih:A71F9381A6E5D766794AA2783B573FFEE8933DF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:A71F9381A6E5D766794AA2783B573FFEE8933DF2
 magnet:?xt=urn:btih:255A0352BDA1C029B8D819951EBC7966375F2F00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:255A0352BDA1C029B8D819951EBC7966375F2F00
 ```bash
 magnet:?xt=urn:btih:BC57FB342AF4523128C65B87121CD7061C3A97CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:BC57FB342AF4523128C65B87121CD7061C3A97CA
 magnet:?xt=urn:btih:446AF438ED8379480115F446FAD7F3835BD467E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ World Bible Translation Center (изд.) | Библия. Современный 
 magnet:?xt=urn:btih:D1BA0A24D95E394B72E2C6CE5C4E66CBC9777227
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:D1BA0A24D95E394B72E2C6CE5C4E66CBC9777227
 ```bash
 magnet:?xt=urn:btih:AAE4E4CD304AD7B9309E1B59095EC31EAE819C44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:AAE4E4CD304AD7B9309E1B59095EC31EAE819C44
 magnet:?xt=urn:btih:0B72ED2EF5175B5DBB6824C70994317972AEC341
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:0B72ED2EF5175B5DBB6824C70994317972AEC341
 magnet:?xt=urn:btih:D9689D46785E03EDB11D33C61070C0BCD8213F47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:D9689D46785E03EDB11D33C61070C0BCD8213F47
 ```bash
 magnet:?xt=urn:btih:E065809B83B7A08CEE6AEFB74BC7A57F576B1162
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:E065809B83B7A08CEE6AEFB74BC7A57F576B1162
 magnet:?xt=urn:btih:C8B01477D09671794DB781FADB8934B5C1657795
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:C8B01477D09671794DB781FADB8934B5C1657795
 ```bash
 magnet:?xt=urn:btih:5F7BB08F2C51A31CAC4B15BE1A7EB962384A8171
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:5F7BB08F2C51A31CAC4B15BE1A7EB962384A8171
 magnet:?xt=urn:btih:6D557AB563A4697C68F3F5E97688E16101F51B51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:6D557AB563A4697C68F3F5E97688E16101F51B51
 magnet:?xt=urn:btih:65AF6C90CE6D72D008B01275577583B1CA0885AC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196591   (822195) от 03.01.2018
-
-Джейми Оливер | Выбор Джейми. Блюда из риса (2016) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822195.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Джейми и друзья» – новая книжная серия, основанная на рецептах, отобранных для читателей всемирно известным британским шеф-поваром Джейми Оливером. Телеведущий, сторонник здорового питания, ресторатор и общественный деятель, Джейми Оливер заслужил доверие, уважение и любовь миллионов профессионалов и начинающих любителей готовить всех возрастов. Каждая книга содержит (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8A50C339C49FB916BD3512BA67157AD5D054544
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1061789   (446143) от 11.10.2016
+
+Познер. Интервью с Сергеем Шнуровым (10.10.2016) HDTVRip [720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446143.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Познер» - это программа-интервью. Владимир Познер задает вопросы политикам, общественным деятелям, деятелям культуры, искусства, науки, спорта. Беседа может быть как привязана к актуальным событиям недели, так и не связана с последними событиями.В этом выпуске: На вопросы Владимира Познера отвечает музыкант, лидер группы «Ленинград» Сергей Шнуров. Почему он пошел работать на телевидение, которое часто критикует, и что дает ему участие в ток‐шоу «Про любовь»? Считает ли он себя независимым человеком? Как он оценивает свое творчество и социальное значение песни в современном мире? Что думает о российском обществе и (   Читать дальше...   )Телекомпания: 1 канал HDЖанр: ТелепередачаПродолжительность: 00:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40F50BB656DCA07484898CAAC0797092435639D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163960   (446207) от 07.09.2017
 
 Деньги или позор (2017.09.07) SATRip (выпуск 8)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:676A6C91DBEE7A1383CF31022944BEC7825415E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:676A6C91DBEE7A1383CF31022944BEC7825415E1
 magnet:?xt=urn:btih:EDC5914732D27F106EA6B2D432E85ADBA5D6BC16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:EDC5914732D27F106EA6B2D432E85ADBA5D6BC16
 ```bash
 magnet:?xt=urn:btih:B00E65E1A215ABC42EBB05C5206CB7AC3FD687D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:B00E65E1A215ABC42EBB05C5206CB7AC3FD687D0
 magnet:?xt=urn:btih:A314C08EC46B69780D3DC5F46D58BFA099C3CEDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:A314C08EC46B69780D3DC5F46D58BFA099C3CEDC
 ```bash
 magnet:?xt=urn:btih:CD7D654A8E4FC36AB36F487958C13957FBF29387
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:CD7D654A8E4FC36AB36F487958C13957FBF29387
 magnet:?xt=urn:btih:DAAB90BC8DF5FF919F1E14493FC284C6E00AA961
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:DAAB90BC8DF5FF919F1E14493FC284C6E00AA961
 ```bash
 magnet:?xt=urn:btih:7FBE145E44D14F9A182EF62F00C5CECB1FDC2CF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:7FBE145E44D14F9A182EF62F00C5CECB1FDC2CF2
 magnet:?xt=urn:btih:886E329D6317DB8C90DCD6E865A12D50C4270C4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:886E329D6317DB8C90DCD6E865A12D50C4270C4B
 ```bash
 magnet:?xt=urn:btih:6FC310E6FEA12EC5DC6DD85BC8D12FDB4267F8C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:6FC310E6FEA12EC5DC6DD85BC8D12FDB4267F8C4
 magnet:?xt=urn:btih:F59928884102F1A45C9BB8AD3993497BD9BC272A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:F59928884102F1A45C9BB8AD3993497BD9BC272A
 ```bash
 magnet:?xt=urn:btih:4999DE2ACD87A58A64713C1290276A105B745BDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:4999DE2ACD87A58A64713C1290276A105B745BDE
 magnet:?xt=urn:btih:1909DC563F43248D07DF3F7AE1F3D4AC11830302
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:1909DC563F43248D07DF3F7AE1F3D4AC11830302
 ```bash
 magnet:?xt=urn:btih:6E5F7E07F533AA3DE920FD0656B8ABF85AF9D5E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:6E5F7E07F533AA3DE920FD0656B8ABF85AF9D5E5
 magnet:?xt=urn:btih:44F8481D4E00B62253E33530A7CEDD29A831C940
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:44F8481D4E00B62253E33530A7CEDD29A831C940
 ```bash
 magnet:?xt=urn:btih:45D02E45BDF1F62E84F44D32171C321163A2AC93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:45D02E45BDF1F62E84F44D32171C321163A2AC93
 magnet:?xt=urn:btih:47E30418DF93D70486874B49EA2CE2D0B81C9A96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ magnet:?xt=urn:btih:47E30418DF93D70486874B49EA2CE2D0B81C9A96
 ```bash
 magnet:?xt=urn:btih:86DA5FA2E1AC5EE69CFB954997D9F09DB4064BCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:86DA5FA2E1AC5EE69CFB954997D9F09DB4064BCA
 magnet:?xt=urn:btih:F48BD65BC4AAA8C588794B369DA36EF58602D63E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +513,8 @@ magnet:?xt=urn:btih:F48BD65BC4AAA8C588794B369DA36EF58602D63E
 ```bash
 magnet:?xt=urn:btih:A43964E4C5208A462BAA47C7CF1F706163718B1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:A43964E4C5208A462BAA47C7CF1F706163718B1B
 magnet:?xt=urn:btih:EB80840F15C3124F282001F09E9A0C2D2F98A400
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +565,8 @@ magnet:?xt=urn:btih:EB80840F15C3124F282001F09E9A0C2D2F98A400
 ```bash
 magnet:?xt=urn:btih:FD0821CFE625CC28CAAAE7705C02A6A579087ADD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +592,8 @@ magnet:?xt=urn:btih:FD0821CFE625CC28CAAAE7705C02A6A579087ADD
 magnet:?xt=urn:btih:C1E11A3FCD48A61EA2C50632F787551C423C7089
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +617,8 @@ magnet:?xt=urn:btih:C1E11A3FCD48A61EA2C50632F787551C423C7089
 ```bash
 magnet:?xt=urn:btih:4A240A3B752260C516ED341EBCF25AC261FDBF72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +644,8 @@ magnet:?xt=urn:btih:4A240A3B752260C516ED341EBCF25AC261FDBF72
 magnet:?xt=urn:btih:73CBD958F6DB41DAB7CEAB9BB2548545A0D83D89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,29 +670,7 @@ magnet:?xt=urn:btih:73CBD958F6DB41DAB7CEAB9BB2548545A0D83D89
 magnet:?xt=urn:btih:61D505886FBC4906ADB862CC489060E55A36ACE3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247885   (447947) от 17.09.2018
-
-Мы кружим в ночи, и нас пожирает пламя / In girum imus nocte et consumimur igni (1978) DVDRip [FR / RU Sub]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последняя режиссёрская работа французского философа Ги Дебора представляет собой тревожные размышления о состоянии современного ему общества, дополненные автобиографическими мотивами - повествованием о своей молодости, Леттристком и Ситуационистском Интернационалах и о Париже, который "в последний раз пылал столь сильно".Производство: Франция, Simar FilmsЖанр: Документальный, политика, искусствоРежиссер: Ги Дебор (и диктор)Перевод: ОтсутствуетЯзык озвучки: ФранцузскийСубтитры: Русские (отдельным файлом)Продолжительность: 01:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86D45FED6ABC8EC18B5308259D217C5C47A50631
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

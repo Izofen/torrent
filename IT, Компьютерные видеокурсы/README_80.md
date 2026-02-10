@@ -22,6 +22,8 @@ What makes this course different is we take the time to understand *why* we're d
 magnet:?xt=urn:btih:3FD1BC37D59A8FE5B0F69682B8A19E8DF60D2BD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Skillbox, Артём Кожуховский | Базы данных для ра�
 ```bash
 magnet:?xt=urn:btih:52090AC034087CC0A05861514E24B115FBBAC903
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ TypeScript увеличивает эффективность и надёжнос
 magnet:?xt=urn:btih:CE5276CD28573DE04F08022CF6546077AC4AAE98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Udemy | Машинное обучение: кластеризация и кла�
 ```bash
 magnet:?xt=urn:btih:9F317934814928FF40CCD88D4EFE06D6AAABC925
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ ITVDN | Основы использования Git (2016) PCRec [H.264/720p]
 magnet:?xt=urn:btih:764506F7DB6E31A1574EF6C2CDBF29CC3C70F68E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ ITVDN | SQL Практикум (2015) PCRec [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:9511D93FCBD3BCB27EFB10BFF9C5254C7EFBEEED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Javabegin | Новый пошаговый курс Angular + Java/Spring + Hiber
 magnet:?xt=urn:btih:61F3BB46BD912D927BDF25566C42BCA1E0694717
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:61F3BB46BD912D927BDF25566C42BCA1E0694717
 ```bash
 magnet:?xt=urn:btih:E3A1279C680A7F8461D36E25F1928E776FBCB789
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Skillbox | Профессия С# разработчик (2020) PCRec
 magnet:?xt=urn:btih:41CF3A8EBA72D4F4CB7B2725D4264F507C7182AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Udemy | Веб разработка - с нуля до профессионал�
 ```bash
 magnet:?xt=urn:btih:5CC86DE27B4E9EA27FD18FACA16B6905A18FDCF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ Udemy | Data Science на Python 3 с нуля (2020) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:33051F2E2519907322F9C8E93D546DB8A1105889
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ Udemy | Машинное обучение: нейросети и глубоко�
 magnet:?xt=urn:btih:7A9B72E938BA90CB409246AF544662DAAFA21CF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:7A9B72E938BA90CB409246AF544662DAAFA21CF1
 ```bash
 magnet:?xt=urn:btih:023F7E1B913976FC93A094BB3FE0B9C78D9AD236
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ ITVDN, Юрий Боцман | .NET Developer (2021) WEB-DL [AD]
 magnet:?xt=urn:btih:4B2D24012F235C94BBC3E16FAD0911E7D947F46F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ Joker 2021 - международная Java-конференция. Спике�
 ```bash
 magnet:?xt=urn:btih:B2F513E79B52AA4A2030CACBF227CBB9A8A6D8BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ Node.js - серверная платформа, работающая на ос�
 magnet:?xt=urn:btih:32DCCAFD53BF04C203D7E28A96813A09698C2B50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ Udemy | Основы SQL: SELECT, JOIN, DML, DDL, TCL, DCL (2020) PCRec [H.264/7
 ```bash
 magnet:?xt=urn:btih:74DEC49B1B46D7062F949D24A297D301FCB7D19D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:74DEC49B1B46D7062F949D24A297D301FCB7D19D
 magnet:?xt=urn:btih:DFF9C351D2D7179E061B2FB449A5F41D8F49AF83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ Itproger | Полное изучение языка Python (2018) PCRec [H.264/1
 magnet:?xt=urn:btih:BE4513147704A14DC5D17305E1A87D866F886349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ Particular Software, Udi Dahan | Advanced Distributed Systems Design (2021) PCRe
 ```bash
 magnet:?xt=urn:btih:B30B8B9F8318093335B3524F4861E96D2F11191F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ Udemy | PHP 5.5 Zend Certification - PHP Security (2016) PCRec [H.264/720p-LQ] [
 magnet:?xt=urn:btih:1B4882E7E829EA914417E591E8345E3D2A788E3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ Udemy | PHP 5.5 Zend Certification (OOP) (2016) PCRec [H.264/720p-LQ] [EN]
 magnet:?xt=urn:btih:431635F008547934DBBF30D4C72B9AE474C038C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:431635F008547934DBBF30D4C72B9AE474C038C1
 ```bash
 magnet:?xt=urn:btih:90D641039ED25A32855B55980086D6DCE44E6D5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ Stepik, Никита Шультайс | Пакет SQL курсов (2021) WEB-D
 magnet:?xt=urn:btih:C4D47E947C274CEE5DC18C6E0159E1BA96DB7F2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ React - одна из самых интересных и популярных б
 magnet:?xt=urn:btih:D99566A634E90C59820B008E0D1E1E4E4CFF92B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:D99566A634E90C59820B008E0D1E1E4E4CFF92B4
 ```bash
 magnet:?xt=urn:btih:9B1E2263D12CC41A1157EFFDCF924189309F1D57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

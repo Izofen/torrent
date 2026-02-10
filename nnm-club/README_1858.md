@@ -19,6 +19,8 @@ BikeComputer Pro - возможно, одно из лучших приложен
 magnet:?xt=urn:btih:6CF05822100D6381FE364E4EBC515DC9FC1A11C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:6CF05822100D6381FE364E4EBC515DC9FC1A11C6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BananaDefenderBlocker - программный продукт от BananaBrain, 
 magnet:?xt=urn:btih:46E03EC803E1D4E056A0FFBE7851FE4069D721B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Beat Hazard 3 (2024) [Ru/Multi] (1.016) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:16852BDE4339BC3D8E598C045C9E98990B06110A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Boeing признает вину в мошенничестве и сговоре
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Boeing признает вину в мошенничестве и сговоре
 ```bash
 magnet:?xt=urn:btih:467D18588D07E7ECEDC3F1315419D93717DB5260
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:467D18588D07E7ECEDC3F1315419D93717DB5260
 magnet:?xt=urn:btih:3403AF9370FA2E2EF808F2515146A41C9F8F0C20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Dungeons of Hinterberg - это не типичный данж-кролл. Ко�
 ```bash
 magnet:?xt=urn:btih:266FCC9B7787BD31662762B9AB5560118C776085
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:266FCC9B7787BD31662762B9AB5560118C776085
 magnet:?xt=urn:btih:DE148206906BE41AC2320F98BF2963BEED31A3A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Borderlands 3, всеми любимый «шутер с базиллионам�
 ```bash
 magnet:?xt=urn:btih:8064491B3433333CCB78FEA7FF79F1703193C6F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:8064491B3433333CCB78FEA7FF79F1703193C6F5
 magnet:?xt=urn:btih:D4A6257EBA66C8794E51D7257A43B47770DCCAB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:D4A6257EBA66C8794E51D7257A43B47770DCCAB7
 ```bash
 magnet:?xt=urn:btih:6B8F5D916C511E0ABF2BA46A734CBCF57F76EC6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:6B8F5D916C511E0ABF2BA46A734CBCF57F76EC6A
 magnet:?xt=urn:btih:8A5025FC18ACBAD1C343A934860AF5A4FADEADA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Forza Horizon 5 – продолжение популярной гоночной
 magnet:?xt=urn:btih:69AF920A005371F5471FCFE1F7F82137D04F4E43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Harvest Days: My Dream Farm (2022) [Multi] (1.0.0-dsp/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:8F3912DCAE0B47C7B73EC1A7041C38FB5269A10A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:8F3912DCAE0B47C7B73EC1A7041C38FB5269A10A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:8F3912DCAE0B47C7B73EC1A7041C38FB5269A10A
 magnet:?xt=urn:btih:D686CD1B1AF53C933441FE7EA9BE4D92A46C3D98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:D686CD1B1AF53C933441FE7EA9BE4D92A46C3D98
 ```bash
 magnet:?xt=urn:btih:3673EB9007941C4BCE25CEC71C052C03A0DFD2F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:3673EB9007941C4BCE25CEC71C052C03A0DFD2F6
 magnet:?xt=urn:btih:6BA860E2A435BF26F077122BCE7229765E4DAF55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:6BA860E2A435BF26F077122BCE7229765E4DAF55
 ```bash
 magnet:?xt=urn:btih:CC41787EC6C71B173EC7C08BF5975F24E92B4445
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:CC41787EC6C71B173EC7C08BF5975F24E92B4445
 magnet:?xt=urn:btih:5E3233546E15E73CD0FDC062E106F0090AB9D6E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:5E3233546E15E73CD0FDC062E106F0090AB9D6E1
 ```bash
 magnet:?xt=urn:btih:0B887AB20C3D4C52B7885149B40ED17B9B9451B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ NewPipe v0.27.2 Free + Mod by Alex.Strannik  [Ru/Multi]
 magnet:?xt=urn:btih:DCC50F8D9B1ACF669BC427B26BAF190312B9B627
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:DCC50F8D9B1ACF669BC427B26BAF190312B9B627
 ```bash
 magnet:?xt=urn:btih:BEBDFCA623BB36ACA788F609417329719AED88C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:BEBDFCA623BB36ACA788F609417329719AED88C4
 magnet:?xt=urn:btih:B255BFD054697B02E8D4C9599AD05116BAF96C81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ The Legend of Heroes: Trails through Daybreak (2023) [Multi] (1.3.5/dlc) License
 ```bash
 magnet:?xt=urn:btih:41D5FA5F561FF49E5B0512B98BC54A90407C4413
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

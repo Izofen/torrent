@@ -1,3 +1,29 @@
+###  Публикация: 1447796   (1031628) от 14.02.2021
+
+Клэр Макфолл | Нарушители (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Истинная любовь способна на невозможное, даже бросить вызов сверхъестественным силам и обмануть саму судьбу. После ужасной железнодорожной катастрофы, в которой погибла юная Дилан, проводник между мирами живых и мертвых Тристан доставляет девушку на тот свет. Молодые люди полюбили друг друга и сумели вернуться в реальный мир, где могут находиться, только пока их (   Читать дальше...   )Жанр: Зарубежное фэнтези, МистикаПродолжительность: 07:34:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB6FCA9EEDDD87186BDC44421EAE4E7DE3384EA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620892   (1031632) от 22.03.2023
 
 Дмитрий Найдёнов | Николай II (Книга 6). Индустриализация страны (2022) [MP3, Игорь Ломакин]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:FF385DC760235CD19E329184D6B5D083F0917983
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:FF385DC760235CD19E329184D6B5D083F0917983
 magnet:?xt=urn:btih:BC5C883FA8EBB5A754B1D6954B5F7C6491F79076
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:BC5C883FA8EBB5A754B1D6954B5F7C6491F79076
 ```bash
 magnet:?xt=urn:btih:40A474A0039CA82FE830DDF3DC9A08E94D822D6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:40A474A0039CA82FE830DDF3DC9A08E94D822D6D
 magnet:?xt=urn:btih:D08E0D1258A9F8121DFBE8F320967EC1A228ED67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:D08E0D1258A9F8121DFBE8F320967EC1A228ED67
 ```bash
 magnet:?xt=urn:btih:E767381FBE8A9729DCB307D435898057F8674680
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:E767381FBE8A9729DCB307D435898057F8674680
 magnet:?xt=urn:btih:D13ABF032B8031C7FDC9CCD605CDF3B7A2DD0EEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:D13ABF032B8031C7FDC9CCD605CDF3B7A2DD0EEE
 ```bash
 magnet:?xt=urn:btih:7E0E6FC8F3DC60D095F9404CFAE83B9F1070BB27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:7E0E6FC8F3DC60D095F9404CFAE83B9F1070BB27
 magnet:?xt=urn:btih:8253645C9601B1DCF1C10C1A0BEA3CC3F782F978
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:8253645C9601B1DCF1C10C1A0BEA3CC3F782F978
 magnet:?xt=urn:btih:8AB3830A7E45523C997F98DFA2077B2D2CA624A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:8AB3830A7E45523C997F98DFA2077B2D2CA624A7
 ```bash
 magnet:?xt=urn:btih:D44FC1220640883CAEF89DBF662829DA69E03462
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:D44FC1220640883CAEF89DBF662829DA69E03462
 magnet:?xt=urn:btih:BA9BC3D50CF682A85C5E02D61B5BB25B1AF4458A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:BA9BC3D50CF682A85C5E02D61B5BB25B1AF4458A
 ```bash
 magnet:?xt=urn:btih:AE8C91C73F799643439DA65C0938475D6735FDF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:AE8C91C73F799643439DA65C0938475D6735FDF8
 magnet:?xt=urn:btih:BA0A48D618DBF30BA41F6EDE8809922D2A0197E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:BA0A48D618DBF30BA41F6EDE8809922D2A0197E0
 magnet:?xt=urn:btih:11EE3F22A669BF8454BAB3FD831965D34CF42906
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:11EE3F22A669BF8454BAB3FD831965D34CF42906
 ```bash
 magnet:?xt=urn:btih:A87DBF17D1A8F67E9311A770876CD727DD96EFEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:A87DBF17D1A8F67E9311A770876CD727DD96EFEE
 magnet:?xt=urn:btih:1D0CE3137585F4AA367B8D01CAB546D935A0B8B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:1D0CE3137585F4AA367B8D01CAB546D935A0B8B5
 ```bash
 magnet:?xt=urn:btih:0610236EB30F3D518CE3D540EEAA5FD425C66D52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:0610236EB30F3D518CE3D540EEAA5FD425C66D52
 magnet:?xt=urn:btih:8C18CDD83681DEBFAF561797A28D17B459D2F430
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:8C18CDD83681DEBFAF561797A28D17B459D2F430
 magnet:?xt=urn:btih:7B97AA776DFB0C7F861F0396D5A7D49FD56FD9AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:7B97AA776DFB0C7F861F0396D5A7D49FD56FD9AD
 ```bash
 magnet:?xt=urn:btih:E934A44871AB4EBBABC939BDCB0934792848D3DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:E934A44871AB4EBBABC939BDCB0934792848D3DB
 magnet:?xt=urn:btih:E21C79AA0C13DE69B1AE90DB1BD48591C5B65066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:E21C79AA0C13DE69B1AE90DB1BD48591C5B65066
 magnet:?xt=urn:btih:2319FE6CFFC7996B9CCEAF3B3425BE07145D2934
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:2319FE6CFFC7996B9CCEAF3B3425BE07145D2934
 ```bash
 magnet:?xt=urn:btih:DE1A8BA5F3B93DFDE5CF54143756B8467AC09AD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:DE1A8BA5F3B93DFDE5CF54143756B8467AC09AD1
 ```bash
 magnet:?xt=urn:btih:4931D0DFEA999D914E05D316D77EE049CA0624A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,29 +685,7 @@ magnet:?xt=urn:btih:4931D0DFEA999D914E05D316D77EE049CA0624A4
 magnet:?xt=urn:btih:B9D9D4C2D7C813CF2DFA712836B9D818DE993C4D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619491   (1032903) от 16.03.2023
-
-Виктор Глебов | Некромант (Книга 5). Красные врата (2022) [MP3, Юрий Гуржий]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Некромант Эл пересекает разорённые армией Синего Паука земли Вайтандара.Жанр: фантастика, фэнтезиПродолжительность: 07:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB2B6B159FF435B302CB1F1576EED68B2F6F9DA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

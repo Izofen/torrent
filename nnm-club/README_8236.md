@@ -19,6 +19,8 @@ Warhammer 40,000: Dawn of War II (2010-2011) [Ru/En] (2.6.0.62/3.19.1.49/dlc) Li
 magnet:?xt=urn:btih:2DA60623764CB1C6014D4009CE52950DECE95E6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Windows 11 22H2 (22621.1992) x64 (3in1) by Brux [Ru/En]
 magnet:?xt=urn:btih:E86B0155C00E092447A6E3D8F2FE9783A4CBE36B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:E86B0155C00E092447A6E3D8F2FE9783A4CBE36B
 ```bash
 magnet:?xt=urn:btih:82FAF8881F761F5E738260E92385C7AB2613FFE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:82FAF8881F761F5E738260E92385C7AB2613FFE2
 magnet:?xt=urn:btih:F7861DA86E5C0ACD7B02E0181FD72FDF7179E3CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Fontexpert - полнофункциональная программа для п
 ```bash
 magnet:?xt=urn:btih:491287E7A212F504F8594D585367BBDDFEB18F4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ ru-ru_windows_10_business_editions_version_22h2_updated_june_2023_x64_dvd_c20565
 magnet:?xt=urn:btih:5FD5CAB6501EDA7D04D0BC3E39D8933F007C3320
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:5FD5CAB6501EDA7D04D0BC3E39D8933F007C3320
 ```bash
 magnet:?xt=urn:btih:A74A800AF681FABD3512BB2E0407AA71D3856F0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:A74A800AF681FABD3512BB2E0407AA71D3856F0F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:A74A800AF681FABD3512BB2E0407AA71D3856F0F
 ```bash
 magnet:?xt=urn:btih:21C6AE527519832CFAB4606663E637F16D7782FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:21C6AE527519832CFAB4606663E637F16D7782FD
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:21C6AE527519832CFAB4606663E637F16D7782FD
 ```bash
 magnet:?xt=urn:btih:AEB1BAA76B4F4A6EB144430D61AA50F855001ABB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:AEB1BAA76B4F4A6EB144430D61AA50F855001ABB
 magnet:?xt=urn:btih:EEF7744E9697A7D343736ADD984A0A303541460A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:EEF7744E9697A7D343736ADD984A0A303541460A
 ```bash
 magnet:?xt=urn:btih:F3652AC840301E8280FF8687533587F13AF4D5A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:F3652AC840301E8280FF8687533587F13AF4D5A0
 magnet:?xt=urn:btih:66950E932392ECBE1561C912A873F90B5F029897
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:66950E932392ECBE1561C912A873F90B5F029897
 magnet:?xt=urn:btih:E5125782F5132E272D6D52162CBECA53F87F8FFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:E5125782F5132E272D6D52162CBECA53F87F8FFC
 ```bash
 magnet:?xt=urn:btih:9CF88434920D1168E380F696E17C83727E7F7C85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Stepik, Герман Янгалин | Экспресс-курс по Arduino, э
 magnet:?xt=urn:btih:C6DE5CBFFE6FA222FFAA7CE4AA5E4AB1C461C38A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:C6DE5CBFFE6FA222FFAA7CE4AA5E4AB1C461C38A
 ```bash
 magnet:?xt=urn:btih:A73CD2652AFA83B3F9833C137FE8F46F001C7DFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:A73CD2652AFA83B3F9833C137FE8F46F001C7DFF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Bleach: Sennen Kessen Hen | Bleach: Thousand-Year Blood War | Блич [ТВ-2, 
 ```bash
 magnet:?xt=urn:btih:151CA3A98F4485FE136642938408248AFD6E925E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:151CA3A98F4485FE136642938408248AFD6E925E
 magnet:?xt=urn:btih:1B85EAE61195AF27FB4244687D29512BBE35FE9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Microsoft Office 2013 SP1 – лучший пакет прикладных пр�
 magnet:?xt=urn:btih:43DCFE1F5C315B773AC80FEF67C704F23222D59D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:43DCFE1F5C315B773AC80FEF67C704F23222D59D
 ```bash
 magnet:?xt=urn:btih:D1B495ED82845FFEB58470E55CA1BEA85ADB7268
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:D1B495ED82845FFEB58470E55CA1BEA85ADB7268
 magnet:?xt=urn:btih:0C6FE2BBE953990144384D49E2A7918F4E07436D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Dr. Nirali Dabhi, Dr. Dharmendra Patel, Dr. Atul Patel | Web Development Toolkit
 magnet:?xt=urn:btih:EF73760ECD1B5CC1446D43493229162B02DAEE1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:EF73760ECD1B5CC1446D43493229162B02DAEE1C
 ```bash
 magnet:?xt=urn:btih:9F1B704388D36FEC6E8FCF8CE82B48E2CA0DD6F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

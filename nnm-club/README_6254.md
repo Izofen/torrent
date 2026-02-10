@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:624DD4859438D76475757233B361022A2609F3FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:624DD4859438D76475757233B361022A2609F3FE
 magnet:?xt=urn:btih:DC2C84D7A1040F11E60D589176AAA42C0EDC46E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:DC2C84D7A1040F11E60D589176AAA42C0EDC46E4
 ```bash
 magnet:?xt=urn:btih:0C654E73EE25A1C912E0E9F5303E01F92F1C50C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:0C654E73EE25A1C912E0E9F5303E01F92F1C50C8
 magnet:?xt=urn:btih:AAE681A4D69EC719CC76B96B92EBAC37A11C91AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:AAE681A4D69EC719CC76B96B92EBAC37A11C91AE
 ```bash
 magnet:?xt=urn:btih:E05190BA5A49462B2EEDFA62F537F76D788E28C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:E05190BA5A49462B2EEDFA62F537F76D788E28C2
 magnet:?xt=urn:btih:2795B9AFF96454F552D04A65FF82C6F57936F6CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:2795B9AFF96454F552D04A65FF82C6F57936F6CA
 ```bash
 magnet:?xt=urn:btih:B3255E8D55D19F59AB2CD0D602AC6C075A5442D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:B3255E8D55D19F59AB2CD0D602AC6C075A5442D6
 magnet:?xt=urn:btih:9ACE5953114D0DD3D48B8D7CAB57BCEF67BA94D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:9ACE5953114D0DD3D48B8D7CAB57BCEF67BA94D3
 magnet:?xt=urn:btih:3D44182331A145C9E746A52173F7D157008D5C21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ KLayout - это программа, которая интуитивна пон�
 ```bash
 magnet:?xt=urn:btih:20E3644ED552461F451C9A90D2DB31BF9BEBDBAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:20E3644ED552461F451C9A90D2DB31BF9BEBDBAD
 magnet:?xt=urn:btih:88C32A1FF16381ACF0E2831501A0DC3F80903DA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ All code examples in the course are written in Java but that's doesn't mean you 
 magnet:?xt=urn:btih:387B5DBA87FE8FD7D2F2107323922DA2D7494ED6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:387B5DBA87FE8FD7D2F2107323922DA2D7494ED6
 ```bash
 magnet:?xt=urn:btih:1B42914D5A7D92B4ACA27DFCE5703711D454EF46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Visual Studio Code – визуальный редактор кода от ко�
 magnet:?xt=urn:btih:AD60CABFE80B44AAF8EE71AB41DA24EE816B753B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Great North Shelter - это самый странный Национальны�
 ```bash
 magnet:?xt=urn:btih:88A6D976A927510E910A93646D06D179F887F402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:88A6D976A927510E910A93646D06D179F887F402
 magnet:?xt=urn:btih:C4FF471AD9B9ED9242B6AEA3BB81BD23784B3907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 magnet:?xt=urn:btih:2E9FFE595D728C7EE1DCD86ADF0862FD6F7B60B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Google начал удалять из функции «Сохраненные» 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Google начал удалять из функции «Сохраненные» 
 magnet:?xt=urn:btih:22F8FB0BB07C16E6F7F0577C4372421483ECDF2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:FF8CD206BC4FECF25C0FE139D4F2F53BB1A85F0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:FF8CD206BC4FECF25C0FE139D4F2F53BB1A85F0B
 magnet:?xt=urn:btih:06E5999D803EECC4BC8E7CF3E1FBC810A338E05A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:06E5999D803EECC4BC8E7CF3E1FBC810A338E05A
 ```bash
 magnet:?xt=urn:btih:1814A252BE1111621E94A58E912F8097EB4D6DCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Freemake Video Converter - это бесплатное универсально�
 magnet:?xt=urn:btih:A38109E5BE396752B9264DC628EEA6AB891A6AEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ CPU-Z способен показать различную информацию 
 magnet:?xt=urn:btih:45BCE9E9D709430E3BB1D7C9F17FC0294FC313C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:45BCE9E9D709430E3BB1D7C9F17FC0294FC313C9
 ```bash
 magnet:?xt=urn:btih:3351FC1DF7169377D158CE24CD64BFBE7AD82390
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +678,8 @@ Corona Benchmark основан на ядре рендеринга Corona 10. О
 ```bash
 magnet:?xt=urn:btih:8CA187827AC4E4D14B0EDBF77213531F53182CFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

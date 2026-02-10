@@ -19,6 +19,8 @@ Text Editor Pro 28.4.2 + Portable + Bonus [Multi/Ru]
 magnet:?xt=urn:btih:B61D88174CB469344745639EF2D2EAB816BECDA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ WPS Office - очень полезное, офисное приложение д
 ```bash
 magnet:?xt=urn:btih:8773E5395AF52D14259704C36AE709C043AD93D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ darktable — фоторедактор, предназначенный для о
 magnet:?xt=urn:btih:1F9091896845EA5078C203C342E481BE25FAEC90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ FBackup — это свободно распространяемое прогр�
 ```bash
 magnet:?xt=urn:btih:BB25DB8585E061F88B355E09EBEC5963FE602A26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Draw.io 23.1.5+ Portable [Multi/Ru]
 magnet:?xt=urn:btih:E30F1FB4DC6E0B9A7C26D3B866E8E5644C806AA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ FreeFileSync - это утилита, которая была разработа
 ```bash
 magnet:?xt=urn:btih:AECDF46FAC1C4E20040BA02B4D5EAE57E28971A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Topaz A.I. Gigapixel — это приложение, использующее �
 magnet:?xt=urn:btih:97E4C3BF2F9120510FE0C3FE68A40FC56C31FB60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ AIDA64 1.98 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:AAEA8E56047966B808E9CCBC10108F75BD925067
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:AAEA8E56047966B808E9CCBC10108F75BD925067
 magnet:?xt=urn:btih:C6723ADDE23D612EDE6A12611466A5FF5ADD818E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ OneCommander V3 — это современный файловый менедж�
 ```bash
 magnet:?xt=urn:btih:11F7539143A454EBF4AB27F1E036C184093D146A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ PhpStorm – это интегрированная среда разработк
 magnet:?xt=urn:btih:F32D4DDC4634B96DEAE6A343A8E9046355A44165
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ CCleaner - один из самых известных и популярных �
 ```bash
 magnet:?xt=urn:btih:BC2AA560326A29FF652F9FA3C83AA10629068EC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Adobe Illustrator for Mac 2024 v.28.2 [Multi/Ru]
 magnet:?xt=urn:btih:0731FA3C4636010FC7462CBF7D44B020B9FDF0F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ VMware Workstation — популярная программа для созда
 ```bash
 magnet:?xt=urn:btih:69E24D2C3CD22C283F81DE761962730E11F0E7E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ PhotoRoom v4.8.5 b1292 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:42F6ED8E838FCFD9C38C7C32637360112F2F0282
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ QownNotes – менеджер заметок, позволяющий четко
 ```bash
 magnet:?xt=urn:btih:400E7264BD66A4443CE2F0CDC8B40E7270166F64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Ventusky: Прогноз погоды v31.0 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:B4B72B28665C1024C12E569CD053E984419FFB8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ XYplorer – удобный многовкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:9727B489C5054268BEE9DF8BC02F4F8CA7C8B1EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ DesktopDigitalClock - простые и красивые цифровые час
 magnet:?xt=urn:btih:14DD6518C52C5C15DAECC92DF787B7FC7E3D9CB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Devious Machines - Everything Bundle 02.2024 VST, VST3, AAX (x64) [En]
 magnet:?xt=urn:btih:4BA6A6D5B3CFC1709A3D4B4DC710942BC484CC75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:4BA6A6D5B3CFC1709A3D4B4DC710942BC484CC75
 ```bash
 magnet:?xt=urn:btih:053EDF5AC66EE3A880F3D8A3CB9493C7118AF420
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ PowerDirector - самое быстрое и передовое программ
 magnet:?xt=urn:btih:A74B3A52B6D27DE1ADD354F6017E1DE43D8A9B1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ Fork 2.40 [En]
 ```bash
 magnet:?xt=urn:btih:6FADF13BEA44A053CBAE544F4EA286D679D95858
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ NCH DreamPlan Plus for Mac 9.09 [En]
 magnet:?xt=urn:btih:8E8F508CF638DDE7277A7C63DBE593F8ACE859F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ GoodTask — это элегантная и мощная «напоминалк�
 magnet:?xt=urn:btih:4110D1F16FF7E2ABB9D27BDB5B993636C48644D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Bike Outliner for Mac 1.18.1 [En]
 ```bash
 magnet:?xt=urn:btih:6AB51E02C2E23CAFF9A7086DE34EDDC7ABFDD402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

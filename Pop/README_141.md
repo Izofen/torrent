@@ -1,3 +1,61 @@
+###  Публикация: 954677   (339466) от 08.11.2015
+
+Secret Service - Disco Collection (2001) [MP3|320 кб/с]<Synthpop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh Susie (03:37)
+02. Cry Softly (Time Is Mourning) (03:31)
+03. Ten O'Clock Postman (03:38)
+04. Let Us Dance Just A Little Bit More (04:25)(   Читать дальше...   )Жанр: Synthpop, DiscoПродолжительность: 01:11:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2658F0F0542E8C03AC950AEC9B2F533AFF14A836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954613   (339478) от 08.11.2015
+
+Lara Fabian - Ma vie dans la tienne (2015) [MP3|320 кб/с]<Pop, Classical>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quand je ne chante pas
+ 02. Ma vie dans la tienne
+ 03. Le desamour
+ 04. S'il ne reste qu'un ami(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 00:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB8518A595AC4389EBB115EAE2F69B85EAB2D377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 580184   (339492) от 26.11.2012
 
 Глюк'oZа (Глюкоза) - 4 альбома (2003-2011) [MP3|320 кб/с]<Pop>
@@ -18,6 +76,8 @@
 ```bash
 magnet:?xt=urn:btih:73AC9036188BE5BF216CC00BEBBE1D1B60B03AE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +106,8 @@ VA - 90s Megamix Vol.2: Die Grossten Hits Der 90er (2020) [MP3|320 Kbps] <Euroda
 magnet:?xt=urn:btih:95210DC675E08B7E82FA02108998E0AEE1A01AB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +134,8 @@ Gazebo - Reset (2015) [MP3|~245 кб/с (V0)]<Italo Disco, Synthpop>
 ```bash
 magnet:?xt=urn:btih:B6B60BA42DD80A031A27FF2BE2A5C5B00F2B1924
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +164,8 @@ VA - 1981 The Collection (Time Life) (1993) 2CD [FLAC|Lossless]<Pop, Rock, Jazz,
 magnet:?xt=urn:btih:BF88C19502EE8BB082037544D27AF1D476590CA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +192,8 @@ VA - 90s Megamix Vol.1: Die Grossten Hits Der 90er (2020) [MP3|320 Kbps] <Euroda
 ```bash
 magnet:?xt=urn:btih:9E790B79C17EA9CC625081AEF2BF52B033DC3886
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +222,8 @@ CD - 1:
 magnet:?xt=urn:btih:0442B744D41625B9481C4B0FE9AD1A19FC70DD83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +250,8 @@ Sabrina - Disco Collection (2002) [MP3|320 кб/с]<Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:4F4A6C9DA0E76B1BB3FE1084D550B5C7699AE268
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +280,8 @@ Bjork - Vulnicura Strings (2015) [FLAC|tracks+.cue]<Pop, Experimental, Acoustic>
 magnet:?xt=urn:btih:773F67186A9FAA6BC8B39C391EAFBC7050B232DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +308,8 @@ magnet:?xt=urn:btih:773F67186A9FAA6BC8B39C391EAFBC7050B232DE
 ```bash
 magnet:?xt=urn:btih:59D7592428B47312C00E55C09AFDBD86CF2349DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +338,8 @@ Anouk - Greatest Hits (2015) 2CD [MP3|320 кб/с]<Pop Rock, Soft Rock>
 magnet:?xt=urn:btih:5877B2E1BA49B2A5A164C3C25CF7FB5D8CEED397
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +366,8 @@ Anouk - Greatest Hits (2015) 2CD [FLAC|image+.cue]<Pop Rock, Soft Rock>
 ```bash
 magnet:?xt=urn:btih:159C55B6DAB3990D8CF78F090E9E22FD664475C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +396,8 @@ Il Quadro di Troisi - Il Quadro di Troisi (2020) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:BF4E880B25D90300F7625CAC5CA1596A58842267
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +424,8 @@ Interface - Plastic Age (2020) Unofficial [FLAC|Lossless|tracks + .cue] <Synthpo
 ```bash
 magnet:?xt=urn:btih:BD3D52F15A6ED092F678DC03F33128AF7FD29752
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +454,8 @@ Gene Farrow - Move Your Body (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 magnet:?xt=urn:btih:1C17A25E4D72F28B2F09C8E6002B5C15CE2308D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +482,8 @@ Bogart - ...Again (1981) LP [MP3|320 Kbps] <Pop, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:94B17473320719F0DB9A8F1A3A9628518C227B3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +512,8 @@ The Universal Robot Band - американская музыкальная гр�
 magnet:?xt=urn:btih:5BE2F4F97F563FD97BD6D0EDE201E0CC088469B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +540,8 @@ magnet:?xt=urn:btih:5BE2F4F97F563FD97BD6D0EDE201E0CC088469B6
 ```bash
 magnet:?xt=urn:btih:AE06316CE4C761146BCCAC7A36713972FB1CC118
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +570,8 @@ VA - Radio Mania Vol. 1-2 (2016) [MP3|320 Kbps] <EuroDance, EuroDisco>
 magnet:?xt=urn:btih:2CD061C69B33E8E87FEA641EB2012BC3FC7F7E80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +598,8 @@ magnet:?xt=urn:btih:2CD061C69B33E8E87FEA641EB2012BC3FC7F7E80
 ```bash
 magnet:?xt=urn:btih:2EA4B987378A17F180728F14617A6B6C06BA5A1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +628,8 @@ VA - Golden Pop Ballads '97 Volume 1 (1997) [FLAC|Lossless|image + .cue] <Pop, B
 magnet:?xt=urn:btih:55557D7D885EF4146383C050CE11D4335A8DD81E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +656,8 @@ magnet:?xt=urn:btih:55557D7D885EF4146383C050CE11D4335A8DD81E
 ```bash
 magnet:?xt=urn:btih:93455A50053B4F01586D9466BF8D88954A2B57AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +686,8 @@ magnet:?xt=urn:btih:93455A50053B4F01586D9466BF8D88954A2B57AC
 magnet:?xt=urn:btih:7FA9AB51BF96B66B0A1E9750784C6FA1D1CDF7FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +714,8 @@ magnet:?xt=urn:btih:7FA9AB51BF96B66B0A1E9750784C6FA1D1CDF7FC
 ```bash
 magnet:?xt=urn:btih:204EE21CAEA7B620EE7A08D9C10F12B12EA6644F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,59 +744,7 @@ VA - New Italo Disco Top 25 Compilation, Vol.10 (2018) [MP3|320 Kbps] <Italo-Dis
 magnet:?xt=urn:btih:78999D63DF733B7D70CD09F3642E71066998F21A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419105   (341850) от 27.10.2020
-
-VA - Now 100 Hits The Legends (2020) [MP3|320 Kbps] <Pop, Rock, RnB>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. George Michael - Faith 3:10
-02. Elton John - Sacrifice 5:06
-03. Tina Turner - The Best 5:30
-04. Amy Winehouse - Rehab 3:30(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 6:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5FD9513941D5E59CED7C014922055E2B1A4C4C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180205   (341966) от 03.11.2017
-
-Maroon 5 - Red Pill Blues (2017) Deluxe Edition [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341966.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Best 4 U
-2. What Lovers Do (Feat. SZA)
-3. Wait
-4. Lips On You(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:407882739C32D914AA327771F00410497B32C5FA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

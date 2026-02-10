@@ -20,6 +20,8 @@ SpamSieve 2.9.47 [Multi/Ru]
 magnet:?xt=urn:btih:525C6A89769D6B6414FE45056ED17AF4DC14C694
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ HiBit Uninstaller - идеальное решение для удаления п
 ```bash
 magnet:?xt=urn:btih:20A9C13DCC7014B0A84129820872F377A16A100D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ MainStage 3 позволит вам взять Mac с собой на сцену
 magnet:?xt=urn:btih:6CDBBAE84C24B9CA1D36BF0FCF27D80A2D007A57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Telegram — это облачный мессенджер для мобильн�
 ```bash
 magnet:?xt=urn:btih:377DFA134B96C246C19018BDEBC1D852F7C42083
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ O&O Defrag Professional – инструмент дефрагментации д
 magnet:?xt=urn:btih:183DD59E9EA40283412E2EA7ABB980D5CA5E64EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Sublime Merge - клиент системы контроля версий, ко�
 ```bash
 magnet:?xt=urn:btih:8A38806944CAD5BD16A72B3BCB4A1D0C40AF9409
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ LosslessCut — простой видеоредактор для нарезки 
 magnet:?xt=urn:btih:EBEE7783A946F78E2B07F920F8B17BD5213A4BE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Magic Battery 7.0.0 [En]
 ```bash
 magnet:?xt=urn:btih:A471569BA0A30D3E6898AC2904E4C8580B0AC9DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ VA - Chillhop Essentials - Winter (2019) [FLAC|Lossless|Web-DL|tracks] <ChillHop
 magnet:?xt=urn:btih:809331867DF80B7767AB42A62BD4F1463F106297
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ Pixelmator Pro — это невероятно мощный, красивый и
 ```bash
 magnet:?xt=urn:btih:847222F06F601DD76546ADE169294B603DB04B1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ Dropshare - приложение строки меню для Drag & Drop заг
 magnet:?xt=urn:btih:597152D29838E8D229756F08786CA2FD9FB6BA92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ System Toolkit - приложение «все-в-одном» для монит
 ```bash
 magnet:?xt=urn:btih:96243419CDD42A3D6595116C5B75292B4891AF19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:96243419CDD42A3D6595116C5B75292B4891AF19
 magnet:?xt=urn:btih:BDED672DCC6D0D9F9E2D0497683D9AD4C4B5ED5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ GoodSync - программа из серии высоконадежного, у
 magnet:?xt=urn:btih:6565F2D6144B6A23D09E2CDB72251A0549949E2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:6565F2D6144B6A23D09E2CDB72251A0549949E2B
 ```bash
 magnet:?xt=urn:btih:9C696A18BD047AB00E521A668528991339701FDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ cDock 4 v4.5.0 [En]
 magnet:?xt=urn:btih:2072E84C518C8DA0C0F8686A2656342AE55DCB10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ eM Client - мощный клиент электронной почты. Пом�
 ```bash
 magnet:?xt=urn:btih:6D6021EC487DFF6696B825556E55227C7F76AEE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ ScreenToGif — удобный бесплатный инструмент, с п�
 magnet:?xt=urn:btih:48186BD0BBC129693F2CA8D05A3E2CE1ECFACDA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ GOM Player Plus - мультимедийный плеер со множеств�
 ```bash
 magnet:?xt=urn:btih:5A4100845EC2CA4C7FAB8E1F7CD4B33E6B812467
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ uTorrent Pro 3.6.0 Build 46904 Stable Portable by FC Portables [Multi/Ru]
 magnet:?xt=urn:btih:5094FBC47178BCDAE1D08F47D144DA651476D3BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ A Better Finder Attributes позволить изменить дату созд
 ```bash
 magnet:?xt=urn:btih:15C12C68B684AF42EF6A9E85B469B23CE150B423
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ Cardhop 1.3.3 [Multi]
 magnet:?xt=urn:btih:397D21D8C8BA64251468212CD49BC8415927DB0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ R-Studio Network  9.3 Build 191251 (x64) RePack (& Portable) by TryRooM [Multi/R
 ```bash
 magnet:?xt=urn:btih:DA2B5D93CA86A58A933D1A64489114E01042CFEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ WinCatalog - это простая в использовании програм�
 magnet:?xt=urn:btih:A98054D50ACF38E9F813D80C0702F028E74E38DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ Auslogics File Recovery — простая и эффективная в испо
 magnet:?xt=urn:btih:467A6E4E2B5E0F4F8664829E545699E83BCBA83B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ Kerio Control — это комплексное решение в области
 ```bash
 magnet:?xt=urn:btih:556DA9BA1D263C15EB2C4CE7E2DE0C5597D6B80D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

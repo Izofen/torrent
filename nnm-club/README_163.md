@@ -22,6 +22,8 @@ FM - Brotherhood (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:706E8AAA685F1B5EE62191114B1CE80058598FD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Primal Fear - Domination (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Po
 magnet:?xt=urn:btih:645889080E8A2C6727F713F7998093D8D26743A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:645889080E8A2C6727F713F7998093D8D26743A9
 ```bash
 magnet:?xt=urn:btih:A041212EBA29E0320C219124C90853E0F815E145
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:A041212EBA29E0320C219124C90853E0F815E145
 ```bash
 magnet:?xt=urn:btih:85B170482C3A69505154C76FC6E4CBBF628F5360
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ Disc 1:
 magnet:?xt=urn:btih:955944DF7986FF6D793D4902B8DF234984FC0300
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ Julien-K - DRK|MODE (2025) [MP3|320 Kbps] <electronic rock>
 ```bash
 magnet:?xt=urn:btih:682561FCF22FD0D2864994B168FE07CCA485F59C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +192,8 @@ VA - Armin van Buuren - A State Of Trance 1241 (2025) [MP3|320 Kbps] <Trance, Pr
 magnet:?xt=urn:btih:9956DE26982E5AD3726EE5FF22CDBD79810B345C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ magnet:?xt=urn:btih:9956DE26982E5AD3726EE5FF22CDBD79810B345C
 magnet:?xt=urn:btih:0D9F1B3B628DF8F00BA5FA12C750A453B2CEC018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ magnet:?xt=urn:btih:0D9F1B3B628DF8F00BA5FA12C750A453B2CEC018
 ```bash
 magnet:?xt=urn:btih:DDFC3452F3FD90B10656371525310461B9D9F865
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +274,8 @@ Primal Fear — немецкая пауэр-метал группа, основ�
 magnet:?xt=urn:btih:F85FA408BA947121BF9C3BE5025A93E9015FA43F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 magnet:?xt=urn:btih:F4F5FEF629EC25F632A03F2223A7066551A64377
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28324) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:E563ABD0A6ABC0710C02ADC9AE99DAF2C1E1257F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +355,8 @@ Reyvi - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:7A3C96500EE2A7241E96742C90B1ECDEA91EF65C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:7A3C96500EE2A7241E96742C90B1ECDEA91EF65C
 ```bash
 magnet:?xt=urn:btih:9D8CC34A32877981C2D0CD3E17F5B624EED1C2E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +410,8 @@ magnet:?xt=urn:btih:9D8CC34A32877981C2D0CD3E17F5B624EED1C2E8
 magnet:?xt=urn:btih:BEDCB91DD9194BC485C054F7F899B78B6DB11C7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:79FF75A7CAF8866F4101ACB7F8032BF41DB17B29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ Fyntra — современный акцидентный шрифт с засе�
 magnet:?xt=urn:btih:C0663B06409D616775097C99F02DAEAFE3E8D767
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:D3EA6B1BE2F8F922DC6E6D52986FC1C9C616FB03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ Auslogics Disk Defrag Pro - это профессиональная версия
 magnet:?xt=urn:btih:F934E17772ECFD9FBA7F976C41BC834AA92CDDBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:F934E17772ECFD9FBA7F976C41BC834AA92CDDBC
 magnet:?xt=urn:btih:D5AED77919B7AE040FFBB388843071A77AEB2F3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ Auslogics Disk Defrag Pro - это профессиональная версия
 ```bash
 magnet:?xt=urn:btih:C25A463FCDB5182B053B75AC6232334F4E468F12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +595,8 @@ VA - Miss Monique & her friends (2025) [MP3|320 Kbps] <Progressive House, Melodi
 magnet:?xt=urn:btih:2C0A904EB693EB221A74EDFE7F8312C15F58843A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ Scusso — это не просто шрифт с индивидуальност
 ```bash
 magnet:?xt=urn:btih:77C6228DD69125E43F4C760567E2FA24A5664A4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +651,8 @@ b]Лечение:
 magnet:?xt=urn:btih:430E0F84E4CE7492055C4E7BF29F9079B3E9DC83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ Auslogics Disk Defrag Ultimate - это профессиональная вер�
 magnet:?xt=urn:btih:EC9EF5C73B378E4FFE0596418DC3A0D8CFBDA000
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ magnet:?xt=urn:btih:EC9EF5C73B378E4FFE0596418DC3A0D8CFBDA000
 ```bash
 magnet:?xt=urn:btih:AE150C2FCB2F8D8E874194E6D51B6C5762D07E48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

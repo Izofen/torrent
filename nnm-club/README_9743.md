@@ -1,54 +1,3 @@
-###  Публикация: 1076491   (312027) от 26.11.2016
-
-VA - Любимая волна на Europa Plus 10 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312027.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Fileum Feat. Kalle Johansson - My Father Said 3:21
-002.Andy Rey - Любви Ноль 3:52
-003.Frans - Young Like Us 3:32
-004.Анита Цой - Без Вещей 3:31(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3F6CA0921E50B42769B52819DB0A4A4DE4488B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260332   (312028) от 07.11.2018
-
-Opera 56.0.3051.99 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAA505E6A945CD5CED9B3944860E5AD4B841B910
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076823   (312029) от 26.11.2016
 
 Вести в субботу с Сергеем Брилевым (26.11.2016) SATRip
@@ -69,6 +18,8 @@ magnet:?xt=urn:btih:AAA505E6A945CD5CED9B3944860E5AD4B841B910
 ```bash
 magnet:?xt=urn:btih:DB3917C332970BEBDDA28E372235AD74F85405D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +48,8 @@ magnet:?xt=urn:btih:DB3917C332970BEBDDA28E372235AD74F85405D3
 magnet:?xt=urn:btih:CAB9BA98B8421EEDE9B99447C0A9D05E4A778799
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +73,8 @@ magnet:?xt=urn:btih:CAB9BA98B8421EEDE9B99447C0A9D05E4A778799
 ```bash
 magnet:?xt=urn:btih:80840A6811A236D25EDFCE6B61CB4E2BD0B80C04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +103,8 @@ VA - Fifth Dimension vol. 1-7 (2012-2016) [MP3|320 Kbps] <Electronic, Synthpop, 
 magnet:?xt=urn:btih:CD690D42489FD4F93E8DF89599305055D94FC02F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +131,8 @@ VA - Автомобильный №5 (2016) [MP3|256-320 Kbps] <Шансон>
 ```bash
 magnet:?xt=urn:btih:D7816FB80472F1D2E5226A79C945411CDEE9588F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +161,8 @@ CD 1:
 magnet:?xt=urn:btih:DACD0017472134D79E007335AC0F3D45F001AB94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +187,8 @@ magnet:?xt=urn:btih:DACD0017472134D79E007335AC0F3D45F001AB94
 magnet:?xt=urn:btih:5F071A1D9CC217598ABB9532B358E46A53E365A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +212,8 @@ magnet:?xt=urn:btih:5F071A1D9CC217598ABB9532B358E46A53E365A4
 ```bash
 magnet:?xt=urn:btih:3F27F3B032F783B144F05F09BC0F3509EA4F61C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +242,8 @@ Londonbeat - Londonbeat (1994) [FLAC|Lossless|tracks + .cue] <Euro House, Synth-
 magnet:?xt=urn:btih:2100546297CA3E09AD95A20EF533D89E41C86D99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +268,8 @@ magnet:?xt=urn:btih:2100546297CA3E09AD95A20EF533D89E41C86D99
 magnet:?xt=urn:btih:EB64A3BD98A3AE8B7737A2B4905D9E729DAFE00C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +293,8 @@ magnet:?xt=urn:btih:EB64A3BD98A3AE8B7737A2B4905D9E729DAFE00C
 ```bash
 magnet:?xt=urn:btih:EC6AA9C78216C033D09DD2D5D11F3348A6DA8326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +323,8 @@ Screamin' Jay Hawkins - Cow Fingers & Mosquito Pie (1991) Compilation [APE|Lossl
 magnet:?xt=urn:btih:AE76153255A19BC945343EC369A9773C936B845B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +351,8 @@ VA - German Top 50 Official Dance Charts 25.11. (2016) [MP3|256 Kbps] <Pop, Danc
 ```bash
 magnet:?xt=urn:btih:0A1A91A609D41B43866E782DA90EFD9D351552A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +381,8 @@ VA - Радио Рекорд - Record Club за 24.11.2016 [MP3|320 Kbps] <Elect
 magnet:?xt=urn:btih:B6D82A2631DF684E290E5CAAA9C0F3A098BEC726
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +408,8 @@ magnet:?xt=urn:btih:B6D82A2631DF684E290E5CAAA9C0F3A098BEC726
 ```bash
 magnet:?xt=urn:btih:97B2F0EF8574C9E35567D9FBAEB214A838EDFE4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +438,8 @@ ABBA - The Visitors (1981) [FLAC |192/24|image + .cue|Vinyl-Rip |Lossless] <Euro
 magnet:?xt=urn:btih:2DCC71031D99D59963D0DC92C96B3C895D0D8313
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +466,8 @@ Parasite Inc. - Dead and Alive (2018) [FLAC|Lossless|image + .cue] <Melodic Deat
 ```bash
 magnet:?xt=urn:btih:05980A47C6C3BA794EB8D385AC5AE045F26C2301
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +496,8 @@ magnet:?xt=urn:btih:05980A47C6C3BA794EB8D385AC5AE045F26C2301
 magnet:?xt=urn:btih:4197B4DE6E220A5A4C1775D09186D4C8B0DAD5CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +521,8 @@ magnet:?xt=urn:btih:4197B4DE6E220A5A4C1775D09186D4C8B0DAD5CD
 ```bash
 magnet:?xt=urn:btih:54FAB8E3DE05FAC68A085694A60BA56DEC3BD479
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +551,8 @@ Daniel Lanois - For the Beauty of Wynona (1993) American Edition [FLAC|Lossless|
 magnet:?xt=urn:btih:82B93EDFF0994112F375E88A4C3F6425A749FFBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +580,8 @@ Nailed To The Cross(   Читать дальше...   )Производство:
 magnet:?xt=urn:btih:193C22AAA43B5D187A3946C6B7C0A5A3460774A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +607,8 @@ magnet:?xt=urn:btih:193C22AAA43B5D187A3946C6B7C0A5A3460774A1
 magnet:?xt=urn:btih:9CA601622FC4C5CB2A134C2B2F0F283990C13DB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +633,8 @@ magnet:?xt=urn:btih:9CA601622FC4C5CB2A134C2B2F0F283990C13DB4
 magnet:?xt=urn:btih:8D676B548ABFC88D7F7DEFE019F81D022BDBD859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +658,60 @@ Comodo IceDragon 62.0.2.18 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6397CEB65A8EA876308CF6D913EB99DEDF8E926A
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183124   (312055) от 12.11.2017
+
+Воскресный вечер с Владимиром Соловьевым (2017.11.12) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американцы сначала объявляют всюду, что надо встретиться, а потом говорят - нет мы не готовы, не получается встретиться. Западная пресса говорит - это поражение Путина. Только не понятно почему, мы не просили о встрече. Потом Трамп говорит, что мы отлично побеседовали и тогда Америка сходит с ума с криком - Трамп ты что себе позволяешь?! Ты не веришь нашей разведке?! (   Читать дальше...   )Телекомпания: РоссияЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 02:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94DD50B6CE5DF9F5B572E8DA1D0D5E27BF1B845F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260451   (312056) от 07.11.2018
+
+Wise Program Uninstaller 2.2.8.128 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утилита для удаления установленных в системе программ. Позволяет воспользоваться для удаления как стандартными средствами системы, так и собственными инструментами. Имеется инструмент удаления записей об уже деинсталлированных программах, возможность быстрого доступа к записи выбранной программы в реестре, а также поиск подробностей о приложении в Google.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD2E46FE130482F4949FD3F71D1724A63B2914D
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

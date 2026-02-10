@@ -1,3 +1,38 @@
+###  Публикация: 576358   (363554) от 17.11.2012
+
+VA - MAXI. Лучшие хиты для убойной вечеринки (2012) [MP3|320 кб/с]<Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That's Right - Innamorati (Radio Edit)
+02. Оксана Ковалевская - А Девочке Хочется
+03. Alex Megane - Turn Me On (Radio Edit)
+04. Allexinno feat. Starchild - Joanna (Radio Edit)
+05. Paul Van Dyk feat. Plumb - I DonСЌt Deserve You (Radio Edit)
+06. Xilent - Touch Sound
+07. Dirty Deejays - In The Club (Radio Edit)
+08. Inna - J'Adore (Radio Edit)
+09. YarosLOVE - Again
+10. DJ Kuba & Ne!tan ft. Heidi Anne - Be My Baby (Radio Edit)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 04:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EDA85CD512CEF3D786611226AFCD8957D18B6E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328482   (363589) от 30.09.2019
 
 VA - Technobird: Selection Of Electronic Music (2019) [MP3|320 Kbps] <Techno, Electronic>
@@ -21,6 +56,8 @@ VA - Technobird: Selection Of Electronic Music (2019) [MP3|320 Kbps] <Techno, El
 ```bash
 magnet:?xt=urn:btih:59161C4CC5DF55E6B92D00608EADBED6105C2FEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +85,8 @@ VA - Fow Above: Electro House Edm Mix (2019) [MP3|320 Kbps] <Electro House, Club
 ```bash
 magnet:?xt=urn:btih:BB0A5E61063C14A35DFCE80E7B173E67A0FDA5ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -79,6 +118,8 @@ CD 01:
 magnet:?xt=urn:btih:186CBA827B82EB572FE4A243BC239C752429B32D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -105,6 +146,8 @@ VA - Extra Trance: Bonus [01] (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:6507A22E28726B590481C544348C5289C5963A35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +191,8 @@ VA - Plexus Relax Sector (2011-2012) [MP3|320 кб/с]<Chill Out, Ambient, Psy C
 magnet:?xt=urn:btih:9D0E1394861789633BC7207DD9CF53F95AA1D0F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +226,8 @@ VA - Звёздный удар от Русского радио. Сборник 
 magnet:?xt=urn:btih:661A7DFA64CED3A377277AC5D8AA4E496495D699
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +255,8 @@ VA - Music News vol.216 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:69548052DCEEAFF7AE59E4593096D0A1B8A5B985
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +283,8 @@ VA - Permanent Rock Blues (2018) [MP3|320 Kbps] <Rock, Rock Blues>
 ```bash
 magnet:?xt=urn:btih:600F5F96C790E2DDC5C3A0EA991D81B3E8670C0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +319,8 @@ VA - До 19 и старше 27 Русский (2012) [MP3|128 кб/с]<Pop>
 magnet:?xt=urn:btih:D2B20DAA01074E62335B13B916AF47E27A2A89EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +353,8 @@ VA - Танцы До Упаду (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:CB3C2D04398DF94E86FAFE22F4D854C8D8D70515
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +389,8 @@ VA - Звездный осенний хит 24 Зарубежный (2012) [MP3|
 magnet:?xt=urn:btih:F5EE441FF8B1AFEF6F28F78A1B77CD20BDEB8F40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +423,8 @@ VA - Хитовая жажда 50/50 (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:95B542B50AA0CBF7D46CAED1FDADE6A727AD2164
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +459,8 @@ VA - Осенняя Московская Дискотека (2012) [MP3|256 кб
 magnet:?xt=urn:btih:AF67862DBB5CD82096F37B67A92BCFFAAD18D3F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +491,8 @@ VA - Exotic Wafture #31 (2012)
 ```bash
 magnet:?xt=urn:btih:91484132C41DD158041F3B6887D05896C4335655
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +527,8 @@ VA - Зажигательная Dance Тусовка. Зарубежный (2012
 magnet:?xt=urn:btih:E209517CBD0E8036CA3C1EE09D16393A986BD3E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +562,8 @@ VA - Осенняя Музыкальная сенсация (2012) [MP3|128 кб
 magnet:?xt=urn:btih:A305DFF485A96F0FF4025EA5DC95B79A500C105B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +595,8 @@ VA - Oceanic Trance Volume 9 (2012)
 magnet:?xt=urn:btih:1B784D35A4343C4F339F9FC83CCA88257FA1789D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +624,8 @@ magnet:?xt=urn:btih:1B784D35A4343C4F339F9FC83CCA88257FA1789D
 magnet:?xt=urn:btih:273A5821E4D669E445E478E35BDDA1EC559C037B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +652,8 @@ VA - Relax To House Vol. 4 (2016) [MP3|319-320 Kbps] <Deep House, Club House, Vo
 ```bash
 magnet:?xt=urn:btih:FC7833DC729A052D091D28568FD739CC62A694B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +685,8 @@ VA - Trancern 38.2: Official Compilation (November 2012) (2012)
 magnet:?xt=urn:btih:6472F9950096D0AF36EB2DB94129BD9EFE3C769C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +713,8 @@ magnet:?xt=urn:btih:6472F9950096D0AF36EB2DB94129BD9EFE3C769C
 ```bash
 magnet:?xt=urn:btih:5B3CE99B038AB2684E6CFE098FA7DCA591C61B03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -666,6 +743,8 @@ VA - Afternoon Acoustic Playlist (2016) [MP3|320 Kbps] <Downtempo, Chillout, Ins
 magnet:?xt=urn:btih:D0592CE3D97538AC63F69F4EF6E46A13EDD2541A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -692,6 +771,8 @@ VA - Музыкальные новинки mp3 50/50 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:4DCEAAEFDA4FEFDFBDFDF1DDC9C9FBF835AAC437
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -720,6 +801,8 @@ VA - Осенний хит-отрыв. Русский выпуск (2016) [MP3|2
 magnet:?xt=urn:btih:EAC53A48087F84D3F1CB79F50D606267266705B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -747,32 +830,7 @@ magnet:?xt=urn:btih:EAC53A48087F84D3F1CB79F50D606267266705B4
 magnet:?xt=urn:btih:B189B62412C02C6C7874425EBCA3B8D0DF9B63B4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070783   (364568) от 08.11.2016
-
-VA - BacauHouseMafia Vol.14 (2016) [MP3|320 Kbps] <Vocal Trance, Progressive House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364568.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.2 Tall Keith, Ricky Ricardo Ft. Ginelle Yvonne - Everybody's Free (Noel Sanger) 6:00
-002.2nd Phase - Propel The Light (Original Mix) 6:52
-003.4U - Long Ride (Original Mix) 5:15
-004.22Bullets - Sounds Like This (Extended Mix) 3:20(   Читать дальше...   )Жанр: Vocal Trance, Progressive House, Deep HouseПродолжительность: 17:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9088F092D0E2F6BEDFD4AA91468953E82BA76781
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

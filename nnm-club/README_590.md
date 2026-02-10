@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:C77F89F359680EEC5260EF960D06CCC97E915C1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:C77F89F359680EEC5260EF960D06CCC97E915C1C
 ```bash
 magnet:?xt=urn:btih:322DE4738B3282CC7EF1B833816A6840CC334FA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:322DE4738B3282CC7EF1B833816A6840CC334FA2
 magnet:?xt=urn:btih:D92CE298914C0B3DBABD43E64FBD40F28B3F1B24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:D92CE298914C0B3DBABD43E64FBD40F28B3F1B24
 ```bash
 magnet:?xt=urn:btih:2B72BD3EE8865CA1390E5542E9DA3EFB2B68197F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:2B72BD3EE8865CA1390E5542E9DA3EFB2B68197F
 magnet:?xt=urn:btih:832A248CF0170EB7E9BE4F5C0DD55941E6A87822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ OCCT 14.0.13 Portable [En]
 ```bash
 magnet:?xt=urn:btih:E2A24D2946783733B154C31D8842FBE10E5796A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:E2A24D2946783733B154C31D8842FBE10E5796A8
 magnet:?xt=urn:btih:71C92821F94AAEE4EAD9C2EB44FEDD7BD462DCDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:71C92821F94AAEE4EAD9C2EB44FEDD7BD462DCDB
 ```bash
 magnet:?xt=urn:btih:1B62AABB226E87C6F1CBE17D33585ABBC1270BC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:1B62AABB226E87C6F1CBE17D33585ABBC1270BC1
 magnet:?xt=urn:btih:87D29D87364DF83C18A2E3BE306040B52503916E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:87D29D87364DF83C18A2E3BE306040B52503916E
 ```bash
 magnet:?xt=urn:btih:F4158388EA9A6ED226AF87F7FF8D7D55A4AFFBB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Risk of Rain 2 (2020) [Ru/Multi] (1.3.9/dlc) Repack Pioneer
 magnet:?xt=urn:btih:2D386B19A7C710BDD5F6766C019C27C4900F6E22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Revo Uninstaller Pro 5.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0A53D5D436C10D258F58BF7AFB1A347731FDA049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ SpellForce: Conquest of Eo (2023) [Ru/Multi] (01.10.31971/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:7455CF4A0F00A6563783437E38872F946583C244
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:7455CF4A0F00A6563783437E38872F946583C244
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:7455CF4A0F00A6563783437E38872F946583C244
 magnet:?xt=urn:btih:D0F91CC2E31A8299180109011463E8311FC00981
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:D0F91CC2E31A8299180109011463E8311FC00981
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Captain Blood / Приключения Капитана Блада (2025) [Ru/Mu
 magnet:?xt=urn:btih:66D5BEDF78684A0E9D00274166FEF59976A97FE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ CYGNI: All Guns Blazing (2024) [Ru/Multi] (1.000.004) License GOG
 ```bash
 magnet:?xt=urn:btih:D35CB3C2FF61142E7D79BFFC80525117E0CE28F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:D35CB3C2FF61142E7D79BFFC80525117E0CE28F7
 magnet:?xt=urn:btih:957B35F33C4164C9DA3EFDE88ECA63DD495223AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Ashampoo Driver Updater обеспечивает обновления для ш�
 magnet:?xt=urn:btih:24510098769EFB72B886A05CF356335D20376DAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:42DA2B3569BCCD9A92C57E40672F4C902B042046
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:42DA2B3569BCCD9A92C57E40672F4C902B042046
 magnet:?xt=urn:btih:D1E957BDF33719520B81307D266F1E7EEFA9850D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ inZOI - игра в жанре симулятора жизни, в которо�
 ```bash
 magnet:?xt=urn:btih:A023C264D66EF87C63DB1F07BA35FE040B34B7BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:A023C264D66EF87C63DB1F07BA35FE040B34B7BD
 magnet:?xt=urn:btih:3FCD00D80822176EFBEF53D06A267D5B2C80BCB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:3FCD00D80822176EFBEF53D06A267D5B2C80BCB3
 magnet:?xt=urn:btih:2E1AA84430A341DEDE528DDFACC1E3EC7E5C66E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Contraption Maker - головоломка, опирающаяся на зако
 ```bash
 magnet:?xt=urn:btih:338AFAD47A97EE4EC3B5D704535273CF4D153E1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

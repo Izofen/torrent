@@ -1,3 +1,29 @@
+###  Публикация: 1093675   (933950) от 15.01.2017
+
+Первая передача на НТВ. Автомобильная передача (2017.01.15) HDTV [H.264/1080i] (выпуск 276)
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933950.jpg" />
+</div>
+
+
+###  Подробнее
+
+« Первая передача» — новый проект для автомобилистов и про автомобилистов. Ведущий «Первой передачи» — Виктор Травин, президент Коллегии правовой защиты автовладельцев. Уже много лет этот известный журналист защищает права автолюбителей. В автомире для него нет секретов и закрытых дверей. Всех, кто не представляет своей жизни без автомобиля, и тех, кто только задумывается (   Читать дальше...   )Телекомпания: НТВ HDЖанр: АвтопередачаРежиссер: Роман ИовицаСубтитры: ОтсутствуютПродолжительность: ~ 00:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75D848919E3B4A6AAAC43DE75D149DDF67FBFE01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093682   (933951) от 15.01.2017
 
 Воскресное время - Первый канал (15.01.2017) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:577F7B6B3B8F4E69CF457F5C4FFED4B93CBA97F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:577F7B6B3B8F4E69CF457F5C4FFED4B93CBA97F0
 ```bash
 magnet:?xt=urn:btih:6422C2734A14BB4A416CA76B8ED38E27C655E273
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:6422C2734A14BB4A416CA76B8ED38E27C655E273
 magnet:?xt=urn:btih:E3E25BFFF63894E3BBA418AC9DE03B2CB26014FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:E3E25BFFF63894E3BBA418AC9DE03B2CB26014FA
 ```bash
 magnet:?xt=urn:btih:42B0DC5BCF55803DE8DEF58A4FBBB0A12BF95908
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:42B0DC5BCF55803DE8DEF58A4FBBB0A12BF95908
 magnet:?xt=urn:btih:1DCD619A1A1F1757DC4014F8274D5B2D612B35E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:1DCD619A1A1F1757DC4014F8274D5B2D612B35E5
 ```bash
 magnet:?xt=urn:btih:4E1EADCBBEA71C54D7130B3ED367FD4831071300
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:4E1EADCBBEA71C54D7130B3ED367FD4831071300
 magnet:?xt=urn:btih:F9BAB29664A61661B1A4DDCE6746F5EFE2FF1F7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:F9BAB29664A61661B1A4DDCE6746F5EFE2FF1F7D
 ```bash
 magnet:?xt=urn:btih:35F57AEA1EB42D3A8B8AA8EB64F5BBF7C8C9AE9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:35F57AEA1EB42D3A8B8AA8EB64F5BBF7C8C9AE9E
 magnet:?xt=urn:btih:180F9E9641F1ED6F081747CD677BC8BB89858863
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:180F9E9641F1ED6F081747CD677BC8BB89858863
 ```bash
 magnet:?xt=urn:btih:7B05E6D08B1A1E4FAB5499DEBD48A206A35DC678
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:7B05E6D08B1A1E4FAB5499DEBD48A206A35DC678
 magnet:?xt=urn:btih:D7BBB24A0F7BDE7E1D2B4E5916D26CDBD7F1A0AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:D7BBB24A0F7BDE7E1D2B4E5916D26CDBD7F1A0AF
 ```bash
 magnet:?xt=urn:btih:6DEBD87A19E77AF76D5EC31657CA4D9F7FF3266F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:6DEBD87A19E77AF76D5EC31657CA4D9F7FF3266F
 magnet:?xt=urn:btih:DC885C1473C03371F04E93A58EB0A3FADEBF0F7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:DC885C1473C03371F04E93A58EB0A3FADEBF0F7D
 ```bash
 magnet:?xt=urn:btih:F8C0EBFA93E470E47F755A14D2A3A86DBC8C04EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:F8C0EBFA93E470E47F755A14D2A3A86DBC8C04EF
 magnet:?xt=urn:btih:0A317267062B2DCA958D6C40C0E30D8B7B31C12B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:0A317267062B2DCA958D6C40C0E30D8B7B31C12B
 ```bash
 magnet:?xt=urn:btih:19B2439283BD85465EEFFA9814F88B0250B8686D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:19B2439283BD85465EEFFA9814F88B0250B8686D
 magnet:?xt=urn:btih:F2E8825308F4F283CDA7E90BE0B1AF6C69EBB4D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ Top Gear (англ. Top Gear) — популярная английская те
 ```bash
 magnet:?xt=urn:btih:42B3FBC783EA76F30738DC637DC9DBA23165629B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +522,8 @@ Top Gear (рус. Высшая передача) — популярная анг
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +547,8 @@ Top Gear (рус. Высшая передача) — популярная анг
 ```bash
 magnet:?xt=urn:btih:6E6DC10B57212E6C6DBEC3DD4ED9291154082CA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:6E6DC10B57212E6C6DBEC3DD4ED9291154082CA4
 magnet:?xt=urn:btih:C9061C5C841FFECE8500877958F52F85E5766704
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:C9061C5C841FFECE8500877958F52F85E5766704
 ```bash
 magnet:?xt=urn:btih:6380A03FA0134E7033613C4381104CD2895DAE9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:6380A03FA0134E7033613C4381104CD2895DAE9D
 magnet:?xt=urn:btih:0ECD6B140CD247A4C1233A3461EB963E78BE3CCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:0ECD6B140CD247A4C1233A3461EB963E78BE3CCE
 ```bash
 magnet:?xt=urn:btih:BD6F26EDF66F35E8CB4D6EEC4EC47298783C35BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:BD6F26EDF66F35E8CB4D6EEC4EC47298783C35BB
 magnet:?xt=urn:btih:3A608436A0664F21A9CA8939B9EF0AB625186F75
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093420   (935235) от 14.01.2017
-
-Марсианская тетрадь Сергея Королева (2017) HDTVRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Личности в истории
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935235.jpg" />
-</div>
-
-
-###  Подробнее
-
-За 20 лет прошлого века человечество сделало такой прорыв в освоении космоса, который мы не покрыли даже за полвека. И все это — благодаря Сергею Королеву. Авторы фильма побывали в доме Сергея Королева, который он получил в награду от Советского правительства. Он работал не для того, чтобы жить, а жил для того, чтобы работать. Ради работы он пожертвовал здоровьем (   Читать дальше...   )Телекомпания: 1 канал HDЖанр: ДокументальныйПродолжительность: 00:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54FD9A459D3702D7AD0187C14595F3B3826CF417
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

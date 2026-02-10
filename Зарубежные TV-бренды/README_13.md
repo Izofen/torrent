@@ -20,6 +20,8 @@ Viasat History: BBC: Железные дороги в годы Первой ми
 magnet:?xt=urn:btih:BA5CE39F595881665F784992802C4D0A6522E72A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:BA5CE39F595881665F784992802C4D0A6522E72A
 ```bash
 magnet:?xt=urn:btih:854F1D9BCC1517683C0D3DA829E52A242D679402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Discovery: Мятеж: / Mutiny: Survival On The Oceans (2017) HDTVRip [H.264/72
 magnet:?xt=urn:btih:2D3FEA27BD919235A01EF01657B05500BC9DCFA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:2D3FEA27BD919235A01EF01657B05500BC9DCFA4
 ```bash
 magnet:?xt=urn:btih:1DAEDB2EF4E33FDD34BA21C6D4B77DF19A4E8A9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ NG: История Эмиратов / History of the Emirates (2019) HDTV [H.264
 magnet:?xt=urn:btih:37E81E563FD45009C6F823927D42A0B3D67BE3DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ NGW: Дикая Аляска: Арктическое лето / Wild Alaska. Arc
 ```bash
 magnet:?xt=urn:btih:147D8F74B0D235B54A43E6589DF766DACC0F1E84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ NG: Службы безопасности портов: Гамбург / Port Se
 magnet:?xt=urn:btih:45480C307B95CA06F98B25D18FB677A520823D9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:45480C307B95CA06F98B25D18FB677A520823D9C
 ```bash
 magnet:?xt=urn:btih:4F993E454B9417F12DF5A93A82E422BB57C28014
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:4F993E454B9417F12DF5A93A82E422BB57C28014
 magnet:?xt=urn:btih:F873C76D670FDF1E06FBB1EF93E04FF0A5F6A472
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Animal Planet: Летающие челюсти. Прогулка с белыми
 ```bash
 magnet:?xt=urn:btih:04F479629FF2A5B5465BA3EBCA5321586F66CFDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ NGW: Дикие дельфины / Wild Dolphins (2017) HDTV [H.264/1080i-LQ]
 magnet:?xt=urn:btih:2024014A776B4CA20DED7FAD73940D97483B4FA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ BBC. Эйнштейны от природы / Animal Einsteins (2021) DVB  [H.26
 ```bash
 magnet:?xt=urn:btih:4C19C70F6171CF5523A948793F278223E113DE1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Animal Planet: Беловежская пуща: первозданный лес 
 magnet:?xt=urn:btih:38BECA198928E522C51D82A281A0AC920772BD32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:38BECA198928E522C51D82A281A0AC920772BD32
 ```bash
 magnet:?xt=urn:btih:76EAF2A607EFD1138282055DD0224C084324B3D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ NG: Дикая природа России / Wild Russia (2009) HDTVRip [H.264/7
 magnet:?xt=urn:btih:DB2F25E39B865A58D6E3551F7408E5823CBDB31E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ NG: Доисторические монстры Гитлера / Hitler's Jurass
 ```bash
 magnet:?xt=urn:btih:886A650D1842F49BE90AFE544BFD489ECA674E7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ NG: Суперсооружения: Саграда Фамилья / Megastructur
 magnet:?xt=urn:btih:7CF495BAA2C59F0F26B61E46E8B569A65A153B58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ magnet:?xt=urn:btih:7CF495BAA2C59F0F26B61E46E8B569A65A153B58
 ```bash
 magnet:?xt=urn:btih:FDE68504C58EE7C44BD2B7005682D74DAE707081
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:FDE68504C58EE7C44BD2B7005682D74DAE707081
 magnet:?xt=urn:btih:9A729578AE16DE91CAE96C2A497EC7918FB8FA7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 ```bash
 magnet:?xt=urn:btih:1D0DECF16B882096EC6C10CE63E3619F16207332
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ NG: Загадка Кероса / Keros: The mystery of the broken figurines (20
 magnet:?xt=urn:btih:3778FDA93C9654104DED9D046094D035753DF9FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ magnet:?xt=urn:btih:3778FDA93C9654104DED9D046094D035753DF9FA
 ```bash
 magnet:?xt=urn:btih:AA4CC81CCD27D18EE9C68F4F6835534015ADA95D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 magnet:?xt=urn:btih:6EF69AFAC83630137B59F5C98B6BDF77E3385BCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ NG: Расследования Авиакатастроф / Спецвыпуск
 ```bash
 magnet:?xt=urn:btih:E0CD2C335556FF0D08CA66619328C333EFCB8DF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ BBC: Зачем нам Луна? / Do We Really Need the Moon? (2012) SATRip
 magnet:?xt=urn:btih:74A7551043D13E1DDFC1FD8BFE8892D4ECE86E0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ magnet:?xt=urn:btih:74A7551043D13E1DDFC1FD8BFE8892D4ECE86E0F
 ```bash
 magnet:?xt=urn:btih:C830D30682E184463532D917EEDD24DF8D296900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

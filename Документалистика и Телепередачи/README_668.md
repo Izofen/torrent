@@ -1,3 +1,29 @@
+###  Публикация: 992436   (900698) от 02.03.2016
+
+88-я церемония вручения премии «Оскар» / The 88th Annual Academy Awards (2016.02.28) DVB
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущий 88-й церемонии "Оскар" - популярный американский комик Крис Рок. Фильм Алехандро Гонсалеса Иньярриту "Выживший" собрал максимальное количество номинаций на "Оскар"- 12. Следом за ним идет лента Джорджа Миллера "Безумный Макс: Дорога ярости" с десятью номинациями. Семь номинаций у ленты "Марсианин". Мультфильм (   Читать дальше...   )Телекомпания: США, Academy of Motion Picture Arts and Sciences (AMPAS)Жанр: ТелепередачаПеревод: Русско-украинский многоголосый закадровый (А.Винницкая, А.Скичко, Ю.Физир, Я.Лодыгин)Продолжительность: 05:05:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1045ED918AB697389E85F23EAC2000191A371311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992554   (900718) от 02.03.2016
 
 Живая история: Спецназ. Направление «А» (2010) DVB
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:3E383D578F1EEF3DD582F1BC09A4168BE1DBEB47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:3E383D578F1EEF3DD582F1BC09A4168BE1DBEB47
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:3E383D578F1EEF3DD582F1BC09A4168BE1DBEB47
 ```bash
 magnet:?xt=urn:btih:32B8C7831DDB1C50254A1BD3AC04241FCB648794
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:32B8C7831DDB1C50254A1BD3AC04241FCB648794
 magnet:?xt=urn:btih:AA57547DE905B023B174E3F9C20E5E05DC8596E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:AA57547DE905B023B174E3F9C20E5E05DC8596E4
 ```bash
 magnet:?xt=urn:btih:C4ABE14D2A597F1722EF331230DC86824821B821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:C4ABE14D2A597F1722EF331230DC86824821B821
 magnet:?xt=urn:btih:EA11FE6EE46762437400ECFD89E35CB913E55EF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:EA11FE6EE46762437400ECFD89E35CB913E55EF9
 ```bash
 magnet:?xt=urn:btih:4B93BCD6DBB6E02DA90B14FFCEB1196BC028153B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:4B93BCD6DBB6E02DA90B14FFCEB1196BC028153B
 magnet:?xt=urn:btih:69066190786DB8E6BF0AE000D5C3762E6EF10C7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:69066190786DB8E6BF0AE000D5C3762E6EF10C7D
 ```bash
 magnet:?xt=urn:btih:EEFB5FEC3E5DA1E6F62DDA9ECDD639EEF75C3A78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:EEFB5FEC3E5DA1E6F62DDA9ECDD639EEF75C3A78
 magnet:?xt=urn:btih:3D1C9F64008E3407DD35C6DF24885E99C0B7679E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:3D1C9F64008E3407DD35C6DF24885E99C0B7679E
 ```bash
 magnet:?xt=urn:btih:A3475AAC5A35EFE8CC7C2341E05EF27D42C37F72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:A3475AAC5A35EFE8CC7C2341E05EF27D42C37F72
 magnet:?xt=urn:btih:6DB2F72C2192906CA35695469DF7D9E285F196A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:6DB2F72C2192906CA35695469DF7D9E285F196A3
 ```bash
 magnet:?xt=urn:btih:C38BEF979C3AD31362062C97160DB7A4B1F68571
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:C38BEF979C3AD31362062C97160DB7A4B1F68571
 magnet:?xt=urn:btih:687D660CBA65A4BB42E082D87A95CBD459AAAEEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:687D660CBA65A4BB42E082D87A95CBD459AAAEEB
 ```bash
 magnet:?xt=urn:btih:78EC89C18D71DB0B386D584389A66285E86E4BA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:78EC89C18D71DB0B386D584389A66285E86E4BA5
 magnet:?xt=urn:btih:25E2B67649DCBF16919E6D5D2A7D75FAED1C4074
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:25E2B67649DCBF16919E6D5D2A7D75FAED1C4074
 magnet:?xt=urn:btih:A73F1AFA4D9DDDF0D8A35138F9B456B6B73D82F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:A73F1AFA4D9DDDF0D8A35138F9B456B6B73D82F2
 ```bash
 magnet:?xt=urn:btih:3886A9E5665625F4B7B601B063F4D91C1FBA9D5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:3886A9E5665625F4B7B601B063F4D91C1FBA9D5A
 magnet:?xt=urn:btih:72929B31416AD42C25FBDFE2B378B2C0769411FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:72929B31416AD42C25FBDFE2B378B2C0769411FD
 ```bash
 magnet:?xt=urn:btih:BBC5466138C3D7F3A3817E65BFF43D7CFC088D74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:BBC5466138C3D7F3A3817E65BFF43D7CFC088D74
 magnet:?xt=urn:btih:05926A27368AD21FF79BEF9EEBE9C4262B8AAC9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:05926A27368AD21FF79BEF9EEBE9C4262B8AAC9F
 ```bash
 magnet:?xt=urn:btih:25F239ED917C0844B198F0F5CD8F7B7547219094
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:25F239ED917C0844B198F0F5CD8F7B7547219094
 magnet:?xt=urn:btih:DA5148F76FC788A6C01EC26456E9C3414576E115
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:DA5148F76FC788A6C01EC26456E9C3414576E115
 ```bash
 magnet:?xt=urn:btih:AD880761C26AD499FAAE2083741FFCF733CBD8A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:AD880761C26AD499FAAE2083741FFCF733CBD8A1
 magnet:?xt=urn:btih:DB7AD20091DF6CD67127AE0D9467FA0B003FD89D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100332   (901798) от 03.02.2017
-
-Первая студия (03.02.2017) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прямой информационный канал — эксперты, политики и политологи о главных событиях страны и мира.В этом выпуске: Каждый день новости, поступающие с Донецка, становятся всё тревожнее и тревожнее. Сегодня ночью обстреляли Донецк из систем залпового огня, есть погибшие среди мирных жителей. Потому что обстреливают жилые и спальные районы, где живут мирные жители. Мы не знаем, что это за люди и зачем они это делают, да и люди ли они? С этим срочно надо что-то делать, то, что делают, (   Читать дальше...   )Телекомпания: Первый каналЖанр: Политическое ток-шоуПродолжительность: 01:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0225542667BD95EF4C0F144D4C6F4C46B15F5C1
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

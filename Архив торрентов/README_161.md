@@ -19,6 +19,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:7677D278DF51FB45616478F4FB8C66D82B30834F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ DjVu Reader & Viewer (читалка дежавю на русском языке
 magnet:?xt=urn:btih:82C388129095EA6E88E4CFB008EDFF20B3D2BCB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ DaVinci Resolve — единственное в мире решение для �
 ```bash
 magnet:?xt=urn:btih:CB8E752A2E09E11ABC2BEA4B0AAB3FD471C078E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ CCleaner - утилита для чистки мусора в операцион
 magnet:?xt=urn:btih:45126A35853F8DA60D89CEFACBD28AF5BC95670E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ KineMaster - Video Editor & Maker v7.5.7.34030.GP Mod by Shadow_Patcher [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:6A83C78E47CCFF168B15DC4ECB8F4227BDC73EAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ GIF Maker - GIF Editor - видеоредактор, что создан для 
 magnet:?xt=urn:btih:693797CDDF00D7ECBAEA3F239B32981C15CDE291
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:9108F02DD530D4D75064875AA822CCEE5E16F2A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Visual Studio Enterprise 2019 - Интегрированное комплекс�
 magnet:?xt=urn:btih:38C05899923BEE1F5980EDCAB09BB872D71812F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Exif Pilot - EXIF редактор используется для просмо�
 ```bash
 magnet:?xt=urn:btih:66456E9D964F95C00758D6694C58B420BC1D0AF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:B7B0387ED687D2642B5772CB5998F156292E61D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Opera One 114.0.5282.185 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CE22FFB7D58680ABE9C35A136697F1A22799F397
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Paint.NET - Простой, но мощный и удобный редактор
 magnet:?xt=urn:btih:B037BFBD30ABC9E575BC8CDC63CF1F7372FCAE81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ XnView MP - мощное многофункциональное приложен
 ```bash
 magnet:?xt=urn:btih:CA53C80680D06A5A876569898E30F217775C2069
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Visual Studio 2022 Professional представляет собой универ
 magnet:?xt=urn:btih:30E1E3F06C86FC40B6327264C517DADEA74ECEA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Glary Utilities - комплексный набор инструментов д�
 ```bash
 magnet:?xt=urn:btih:DD97F41C44AC9C8EBDA11ED5153B04DDD98476FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Advanced Renamer хоть и бесплатная (   Читать дальше
 magnet:?xt=urn:btih:C3F3F1F6473A099DE93C9A3268937170B5A60FB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ MediaInfo — позволит узнать техническую информ�
 ```bash
 magnet:?xt=urn:btih:57879D9246F366F2B6A19837BD45C1E8797C1D5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:A127ECCBB3671F65DCB6DFD1394C0EE5B43DD062
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ XYplorer – удобный многовкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:98F0B4E13BCAB87FBED33CB42F6153150107B7BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ FileZilla - популярный кроссплатформенный FTP кли
 magnet:?xt=urn:btih:2BE5E17E1B0CC2C493A5E9A53A47146FD174A94B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:2BE5E17E1B0CC2C493A5E9A53A47146FD174A94B
 ```bash
 magnet:?xt=urn:btih:8C11A8483BAFD929662BA657DF6A49B3A31D2FD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ Aiseesoft Screen Recorder 3.0.92 RePack (& Portable) by elchupacabra (x64) [Mult
 magnet:?xt=urn:btih:0BF655B2373BDEE514026F28BE8D6E81433B4911
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ TikTok - социальное приложение для тех кто пред
 ```bash
 magnet:?xt=urn:btih:DCD0DD5938EA4EC7A97E29EC3F4262E06F112E11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ FileZilla Server представляет собой очень простой, 
 magnet:?xt=urn:btih:782AB7A89442DE18C7FA8F6748D371930FA8F17F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ EssentialPIM - это отмеченное различными наградам
 ```bash
 magnet:?xt=urn:btih:C82AC0290AA4B3D2C005D5110DE09A81F8D6142E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +675,8 @@ Linkin Park - From Zero (2024) [MP3|~245 Kbps (V0)] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:D822A2DFC54B18149A4F39A4F207B5B31C2C8CCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

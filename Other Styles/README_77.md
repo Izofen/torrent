@@ -28,6 +28,8 @@ CD1:
 magnet:?xt=urn:btih:F13B0B97FCE45961AF35EB34413B72B4E595B039
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -61,6 +63,8 @@ VA - Веселої забави! ч.1 (2011) [MP3|256 кб/с]<Folk-Pop>
 magnet:?xt=urn:btih:CCEA559E37370FBFB01794350D1F94E3F7EA5C70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +96,8 @@ Shaman's Dream - African Dream (2006) [MP3|320 кб/с]<New Age, Worldbeat, Medi
 ```bash
 magnet:?xt=urn:btih:FE876DF0E7477BE7965717D1461AEFD39971BF44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +132,8 @@ William Jackson - Celtic Experience (Haunting Themes From Scotland & Ireland)   
 magnet:?xt=urn:btih:0AD0ECEB8CD27B271ADD3FD040B1FC229FFAA523
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +160,8 @@ VA - Сестры (музыка к фильму) (2001) [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:E2D42CA5B4958AE89E25D88E40E2ABBEF7D3C7A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +190,8 @@ Enigma - Love Sensuality Devotion: Greatest Hits & Remixes (2001) 2016 Remastere
 magnet:?xt=urn:btih:6E3B744D8EFDE4A04DE73F0250D5DB98AE5B531B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +218,8 @@ magnet:?xt=urn:btih:6E3B744D8EFDE4A04DE73F0250D5DB98AE5B531B
 ```bash
 magnet:?xt=urn:btih:59045AFFE964C75629B06EB508B90685E8D2E698
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -234,6 +248,8 @@ Blackmore's Night - All Our Yesterdays (2015) [MP3|320 кб/с]<Folk, Rock>
 magnet:?xt=urn:btih:2BC9F5415D10838FFE17E36FF3DCFAE9A8CA3CCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +277,8 @@ M83 - Oblivion (Original Motion Picture Soundtrack) (2013) [FLAC|Lossless] <Left
 magnet:?xt=urn:btih:7EAE96D459D97A55C98194849C41ACCD37846399
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +305,8 @@ Shantel - Viva Diaspora (2015) [FLAC|Lossless|WEB-DL]<Ethnopop, Balkan Pop, Elec
 ```bash
 magnet:?xt=urn:btih:38C4B03866225D2BA8897F275CEC05C06C6F7429
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +337,8 @@ Devakant - 4 альбома (1993-2014) [MP3|320 кб/с]<New age, World, Relax,
 magnet:?xt=urn:btih:F5BC24663E34CBE60D086DBCDDB0480AD371FF2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +365,8 @@ VA - A Love Song For Bobby Long (2004) Original Motion Picture Soundtrack [MP3|3
 ```bash
 magnet:?xt=urn:btih:FAA1078488DC9208194BF3AD68C08BDD6ADF04DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +395,8 @@ Kevin Crawford - Carrying the Tune (2012) [FLAC|Lossless|tracks + .cue] <Traditi
 magnet:?xt=urn:btih:84AE47314DB865EB6C6C190DEEB66BEC9D420D26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +423,8 @@ Delerium - Mythologie (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Downtempo, 
 ```bash
 magnet:?xt=urn:btih:4B84199596F51A3E9B7D5F205D35C814336166C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +453,8 @@ Frank Duval - Meine Schonsten Erfolge (1991) [FLAC|Lossless|image + .cue] <New A
 magnet:?xt=urn:btih:85C5FA205753853786127FAC12EB5560B864F4F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +481,8 @@ Erik Koskinen - America Theatre (2014) [MP3|320 Kbps] <Country Blues, Americana>
 ```bash
 magnet:?xt=urn:btih:30F9715A8F06D3C78B61F5858C718C86C0DA583F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +511,8 @@ Borneo - Heart of Borneo - Spa and Relaxation (Instrumental) (2016) [MP3|320 Kbp
 magnet:?xt=urn:btih:235307197848DB4AC6672433E85CC0AE2C4A1CCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +539,8 @@ Didier Merah - Eden (2016) [MP3|320 Kbps] <New Age, Piano>
 ```bash
 magnet:?xt=urn:btih:F34932858189272A1E0AB9BAA46383480D99932C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +569,8 @@ VA - New Age Dimension (2017) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:8B21ECB421FE0B518E9503F200A34A503950D8B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +597,8 @@ Club di relax mentale - Esperienza rilassante (2017) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:09CB18AD8C261B2CEFDC979C0A0E2DFEF1501F67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +627,8 @@ Various Artists - Sucker Punch (2011) Original Motion Picture Soundtrack [FLAC|L
 magnet:?xt=urn:btih:9FF51F01CA0081DB47248FFFC06026A0131BE2D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +655,8 @@ Atom Music Audio - Singularity (2019) [MP3|320 Kbps] <Soundtrack, Synthwave, Cyb
 ```bash
 magnet:?xt=urn:btih:E98330CCDA20BAAD47E478C569CC8976368E3455
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +685,8 @@ Billy Vaughn - 3 альбома (1987-2005) [FLAC|Lossless]<Instrumental | Orche
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +713,8 @@ Atom Music Audio - Legion (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic 
 ```bash
 magnet:?xt=urn:btih:17FA50C4D820A7E6B1655E07F21D121D536BEAEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -695,6 +743,8 @@ Angel Olsen - Whole New Mess (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk, D
 magnet:?xt=urn:btih:F8A95A9BA77FD2752CA18B15FAE2508AC81FF257
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -721,6 +771,8 @@ magnet:?xt=urn:btih:F8A95A9BA77FD2752CA18B15FAE2508AC81FF257
 ```bash
 magnet:?xt=urn:btih:7584B39C019C4EE66E853BA90ACC209968C8AA08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

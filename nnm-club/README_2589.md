@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:FC820D0E34C007C1E7098F87FF41061A6B45C7A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - The Best Of Italo Disco - Unreleased Tracks (2008) 2 CD [OGG Vorbis|480 Kbp
 magnet:?xt=urn:btih:F7E475C4DE17C764BE95B2F731213DD0FC448F87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:F7E475C4DE17C764BE95B2F731213DD0FC448F87
 magnet:?xt=urn:btih:1E678761739D12C0D1829E3ABD51819FF95D0BCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:1E678761739D12C0D1829E3ABD51819FF95D0BCC
 ```bash
 magnet:?xt=urn:btih:B8620C10A8A89F1A3B1F5EC4AC52672F736A22FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:B8620C10A8A89F1A3B1F5EC4AC52672F736A22FC
 magnet:?xt=urn:btih:9897879DB24BCCEAA6A8963145FE4AA1B2045B51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:9897879DB24BCCEAA6A8963145FE4AA1B2045B51
 ```bash
 magnet:?xt=urn:btih:4A8138E52EEF5EF64FB8A2C46EFFF684FBDC03DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Fautive — динамичный и живой шрифт с засечками,
 magnet:?xt=urn:btih:23D6CB060BC713F375817DC8E788301AD067B24F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:23D6CB060BC713F375817DC8E788301AD067B24F
 magnet:?xt=urn:btih:E6BBBE4A6349C9862DC60CA7AD3002E1957AA249
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:E6BBBE4A6349C9862DC60CA7AD3002E1957AA249
 ```bash
 magnet:?xt=urn:btih:CAD030B0424B762A38F375EE787FDCDFAE065B68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Orbital - Radiccio (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno, Electronic>
 magnet:?xt=urn:btih:2C58D228655000B17C4AF509F8C7394484535487
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:2C58D228655000B17C4AF509F8C7394484535487
 ```bash
 magnet:?xt=urn:btih:4C4DCB9710534D087B609DF690EEB447DB4E041B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:4C4DCB9710534D087B609DF690EEB447DB4E041B
 magnet:?xt=urn:btih:A39F2B061F9C8D8EA66BE115EC6D88320BB38453
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:A39F2B061F9C8D8EA66BE115EC6D88320BB38453
 ```bash
 magnet:?xt=urn:btih:0B2010A98E2B75E56E9FCD0121438D608FCC161F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Essence обеспечивает гладкий, минималистский с
 magnet:?xt=urn:btih:EBE5AB3FBC10BAD016AFF5C21745E62A42F70E03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:EBE5AB3FBC10BAD016AFF5C21745E62A42F70E03
 ```bash
 magnet:?xt=urn:btih:B70F43930163A00C89ABD42BDA8620AB3864225C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:B70F43930163A00C89ABD42BDA8620AB3864225C
 magnet:?xt=urn:btih:4E48C2B31A0AD8FD651C28DF578245EF07B218E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 09 (2025) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:03C1DAEE0C06BBB65C759E315CE8C7B3C27DBD76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ VA - Nothing But... Trancetopia, Vol. 24 (2025) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:A0E1726FC1C9BBF591A8FE376B83FB7345774D87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ Markus Schulz - Global DJ Broadcast World Tour, MAD Club Wynwood Miami (2025-04-
 ```bash
 magnet:?xt=urn:btih:2E23340C4C0C5CFCEA4F887EC7D4FE087C09222C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ Shari Puorto - Hold On (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country, Roc
 magnet:?xt=urn:btih:5C25A4978858DF3CF7E098881701D96A0AEE9CCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ B1. Replica(   Читать дальше...   )Жанр: Death Metal, Groove, In
 ```bash
 magnet:?xt=urn:btih:1634BEE1E7A644DF8A7A6686DBE07CBB0A70BBFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +597,8 @@ Fleshy Waves of Probability - bandcamp
 magnet:?xt=urn:btih:135297A8508066EF9E2E0FFA60ED41E752384D59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +626,8 @@ Stealth - Metal Force (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Speed M
 magnet:?xt=urn:btih:C372666E204844613EC505F8D4C53A4E39118408
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +652,8 @@ magnet:?xt=urn:btih:C372666E204844613EC505F8D4C53A4E39118408
 ```bash
 magnet:?xt=urn:btih:6353994385919CF8BD472224F4304BFC152B3865
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +682,8 @@ Wildmen Bluesband - Troubled Soul (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:7604A094B4D4AB3CA0113A31137C91FFA0562EEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +710,8 @@ Wildan Kusnadi - Highway (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:1ED8B4F4100F806824C33339920048D2A2DD3894
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

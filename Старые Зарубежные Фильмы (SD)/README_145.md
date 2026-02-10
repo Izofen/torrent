@@ -1,28 +1,3 @@
-###  Публикация: 920780   (578681) от 23.07.2015
-
-Близнецы / Twins (1988) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неожиданный оборот принимает генетический эксперимент, во время которого новорожденных близнецов, которые, кстати, совершенно непохожих друг на друга, разлучают на долгие годы. Но несчастные братья наконец встречаются…
-Джулиус, образованный, но совершенно не знающий жизни гигант с добрым сердцем и Винсент, коротышка с неистребимой жаждой денег и женщин. В компании (   Читать дальше...   )Производство: США / кинокомпания Universal PicturesЖанр: Комедия, КриминалРежиссер: Айван Райтман /Ivan Reitman/Актеры: Арнольд Шварценеггер, Дэнни ДеВито, Келли Престон, Хлоя Уэбб, Бонни Бартлетт, Трей Уилсон, Маршалл Белл, Дэвид Карузо, Хью О’Брайен, Нехемия ПерсоффПеревод: Многоголосый закадровый, одноголосый закадровыйСубтитры: нетПродолжительность: 01:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9191B04D0F4A4A8C3F1D743C5718B11BBD9BE2ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554175   (578863) от 29.05.2022
 
 Кандагарский бандит / The Brigand of Kandahar (1965) BDRip [H.264]
@@ -43,6 +18,8 @@ magnet:?xt=urn:btih:9191B04D0F4A4A8C3F1D743C5718B11BBD9BE2ED
 ```bash
 magnet:?xt=urn:btih:F0CA760C6B459902622D8E66DA19D0484DBF9AD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +45,8 @@ magnet:?xt=urn:btih:F0CA760C6B459902622D8E66DA19D0484DBF9AD4
 magnet:?xt=urn:btih:E69319441835A5FD0CC94D8549B5A39596DF90AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +70,8 @@ magnet:?xt=urn:btih:E69319441835A5FD0CC94D8549B5A39596DF90AE
 ```bash
 magnet:?xt=urn:btih:F3ED5397CB33B12D8E064BD09E3539259A85DB63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +97,8 @@ magnet:?xt=urn:btih:F3ED5397CB33B12D8E064BD09E3539259A85DB63
 magnet:?xt=urn:btih:B9D9386CCDEC8FDE2484E112DAAB2B9857E66C41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +122,8 @@ magnet:?xt=urn:btih:B9D9386CCDEC8FDE2484E112DAAB2B9857E66C41
 ```bash
 magnet:?xt=urn:btih:94D2CF42410171296BED0985CAE49FEDDD57BAA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +149,8 @@ magnet:?xt=urn:btih:94D2CF42410171296BED0985CAE49FEDDD57BAA1
 magnet:?xt=urn:btih:FB9749785632EE162826459ECF2A45C1799353AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +174,8 @@ magnet:?xt=urn:btih:FB9749785632EE162826459ECF2A45C1799353AD
 ```bash
 magnet:?xt=urn:btih:E92907E2FD4D13D6012F459719B5634C16762330
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +202,8 @@ magnet:?xt=urn:btih:E92907E2FD4D13D6012F459719B5634C16762330
 magnet:?xt=urn:btih:0628A6DD460E97AAE4EB30922F631E218C989F1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +228,8 @@ magnet:?xt=urn:btih:0628A6DD460E97AAE4EB30922F631E218C989F1B
 ```bash
 magnet:?xt=urn:btih:10BC843003B825DDBEC926B71591A1934EE2D4D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +259,8 @@ magnet:?xt=urn:btih:10BC843003B825DDBEC926B71591A1934EE2D4D0
 magnet:?xt=urn:btih:AC14825DEEAEBD8AEBCA9C512FFF3C6A25E5224D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +284,8 @@ magnet:?xt=urn:btih:AC14825DEEAEBD8AEBCA9C512FFF3C6A25E5224D
 ```bash
 magnet:?xt=urn:btih:110B8010B08F93F46AB0728FB67E7DCDBF39CAA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +311,8 @@ magnet:?xt=urn:btih:110B8010B08F93F46AB0728FB67E7DCDBF39CAA7
 magnet:?xt=urn:btih:460E03E1417DECC45F8E323F98B9BA13F00DF738
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +336,8 @@ magnet:?xt=urn:btih:460E03E1417DECC45F8E323F98B9BA13F00DF738
 ```bash
 magnet:?xt=urn:btih:4D0D0CB2D7B6E05522447745E25CE2B3AF5043FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +365,8 @@ magnet:?xt=urn:btih:4D0D0CB2D7B6E05522447745E25CE2B3AF5043FC
 magnet:?xt=urn:btih:DEBF5C1B9E8357053D6C60C573435C12183E1FF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +392,8 @@ magnet:?xt=urn:btih:DEBF5C1B9E8357053D6C60C573435C12183E1FF1
 magnet:?xt=urn:btih:ACD14F386E228ACB857E78763CA87F539585D75A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +417,8 @@ magnet:?xt=urn:btih:ACD14F386E228ACB857E78763CA87F539585D75A
 ```bash
 magnet:?xt=urn:btih:206295475C7C0B7CD8FDDB39B1E2DF5B4388E1E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +444,8 @@ magnet:?xt=urn:btih:206295475C7C0B7CD8FDDB39B1E2DF5B4388E1E3
 magnet:?xt=urn:btih:45B9AB1C4051601A2E76FDF4FF63A198456176CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +469,8 @@ magnet:?xt=urn:btih:45B9AB1C4051601A2E76FDF4FF63A198456176CA
 ```bash
 magnet:?xt=urn:btih:9EB69AA3C11A05B2F36066D5007020A1F8C4CD69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +496,8 @@ magnet:?xt=urn:btih:9EB69AA3C11A05B2F36066D5007020A1F8C4CD69
 magnet:?xt=urn:btih:D83B16E58215C66B70902C4F84F66F3AA9ADD316
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +521,8 @@ magnet:?xt=urn:btih:D83B16E58215C66B70902C4F84F66F3AA9ADD316
 ```bash
 magnet:?xt=urn:btih:38C7AE79A49CFAAC16A0F76A01FC8E965C5899F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +548,8 @@ magnet:?xt=urn:btih:38C7AE79A49CFAAC16A0F76A01FC8E965C5899F3
 magnet:?xt=urn:btih:6B2A96FA0B5CEB84A27EEA76362892F13D49479F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +574,8 @@ magnet:?xt=urn:btih:6B2A96FA0B5CEB84A27EEA76362892F13D49479F
 magnet:?xt=urn:btih:7D9F2E5FD564C746D2924CC7AF13CBDB8EB383C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +599,8 @@ magnet:?xt=urn:btih:7D9F2E5FD564C746D2924CC7AF13CBDB8EB383C0
 ```bash
 magnet:?xt=urn:btih:750A0427DF627C23D49AC0A86E7DD0D61E711942
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +628,8 @@ magnet:?xt=urn:btih:750A0427DF627C23D49AC0A86E7DD0D61E711942
 magnet:?xt=urn:btih:4C29CEC57AC6AF7551046B72FF6D7A5683CEDD5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +653,35 @@ magnet:?xt=urn:btih:4C29CEC57AC6AF7551046B72FF6D7A5683CEDD5F
 ```bash
 magnet:?xt=urn:btih:A9FC5461CCB8D32E59063C43C1BB7A15A2953337
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358307   (583654) от 04.07.2011
+
+Время цыган / Дом для повешения / Dom za vesanje (1988) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удостоенный приза за режиссуру в Каннах, фильм является безусловным шедевром кино, обо всех достоинствах которого в объеме аннотации рассказать невозможно. Перхана, обладающего способностью взглядом передвигать предметы, воспитывает бабушка, сама наделенная даром лечить людей без лекарств. Есть у Перхана еще дядя, безнадежный игрок, не знающий, что такое удача, и (   Читать дальше...   )Производство: Великобритания, Италия, ЮгославияЖанр: Драма, фэнтези, комедия, криминалРежиссер: Эмир Кустурица / Emir KusturicaАктеры: Давор Дуймович, Бора Тодорович, Любица Аджович,
+ Хусния Хашимович, Синоличка Тройкова, Забит Мехмедов, Эльвира СалиПеревод: Дубляж, к/ст. М.Горького, 1991Продолжительность: 02:22:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A973B3F2CDAFBA08A821C26BF05AC5F386CED5BB
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

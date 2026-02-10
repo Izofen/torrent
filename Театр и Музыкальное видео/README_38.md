@@ -19,6 +19,8 @@ Scooter - Video collection - Chapter 1 (1994 - 1997) DVDRip [H.264/1080p-LQ] [ha
 magnet:?xt=urn:btih:AAC3DAD53AB6E80B4DDE0A1E582009B8C0AE8CFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:AAC3DAD53AB6E80B4DDE0A1E582009B8C0AE8CFB
 magnet:?xt=urn:btih:E14080E0BB6998B84E7357824F94D1BA48A3EAE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Lovebites brings the second album with 10 new tracks. Mixing and mastering by Mi
 ```bash
 magnet:?xt=urn:btih:181D829DC4C36A53AF4F48C29A851A1FD48B4E70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Paul Van Dyk - Volume - The best of Paul Van Dyk (2009) DVDRip [H.264/1080p-LQ] 
 ```bash
 magnet:?xt=urn:btih:74A9A33FFA212D694AEEC0327F07040499642226
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Paul Van Dyk - Music Discovery Project (The Planets Reloaded) (2009) WEBRip [H.2
 magnet:?xt=urn:btih:2F2284DC17AF3798628AD359C7795E8EC319C0E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:2F2284DC17AF3798628AD359C7795E8EC319C0E8
 ```bash
 magnet:?xt=urn:btih:1BC263A01171A6F1049D6DF6A23C879E48DE05CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:1BC263A01171A6F1049D6DF6A23C879E48DE05CA
 magnet:?xt=urn:btih:F69C3B7201A20F3427CE0136B0137745AF05CAAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:F69C3B7201A20F3427CE0136B0137745AF05CAAB
 ```bash
 magnet:?xt=urn:btih:5D7E467994F7EF10BE9AE19838ADFD18BE943C2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:5D7E467994F7EF10BE9AE19838ADFD18BE943C2D
 magnet:?xt=urn:btih:E3E0DA8B4B57AC8AA65B285E2249B205BE35381C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:E3E0DA8B4B57AC8AA65B285E2249B205BE35381C
 ```bash
 magnet:?xt=urn:btih:F747DB56F0F372C5CED8F8A38104F95A3086B298
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ Pet Shop Boys – Performance (1991) DVDRip [H.264/1080p] [Handmade Upscale AI]
 magnet:?xt=urn:btih:1733D721BE2D1361998978B8B595AF938E873F73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ Scooter - Live in Hamburg (2012) WEBRip [H.264/1080p] [hand made upscale AI]
 ```bash
 magnet:?xt=urn:btih:0CBE758BA43907011C6EE7612EA2A15FC7F4FBC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:0CBE758BA43907011C6EE7612EA2A15FC7F4FBC3
 magnet:?xt=urn:btih:521B7A3DD3FEE025D7CB2E47554C6210A27F81BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:521B7A3DD3FEE025D7CB2E47554C6210A27F81BC
 magnet:?xt=urn:btih:53A9580479AC40E88689AB5011CCB94E8EB48609
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:53A9580479AC40E88689AB5011CCB94E8EB48609
 ```bash
 magnet:?xt=urn:btih:E21FC45A6C5E77BC54A342BDB728B6AB68D2B1E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:E21FC45A6C5E77BC54A342BDB728B6AB68D2B1E7
 ```bash
 magnet:?xt=urn:btih:4669268989BB1ED015D38D1AA756B3F69FBA1A48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +464,8 @@ Till Lindemann - 2023 Tour Live (2023) CamRip [H.264/1080p]
 magnet:?xt=urn:btih:86996D37596F7A6A614B3A9A27DE186FE265315F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ magnet:?xt=urn:btih:86996D37596F7A6A614B3A9A27DE186FE265315F
 ```bash
 magnet:?xt=urn:btih:F0D898A6F285CE6BDDB5CFDD81D1FBAA2834314A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +516,8 @@ magnet:?xt=urn:btih:F0D898A6F285CE6BDDB5CFDD81D1FBAA2834314A
 ```bash
 magnet:?xt=urn:btih:A8286F25C8DCAF6570FAB5FACFCA43BB6210CECE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +547,8 @@ magnet:?xt=urn:btih:A8286F25C8DCAF6570FAB5FACFCA43BB6210CECE
 magnet:?xt=urn:btih:260DD9F8032C25C10B85131F1DC8369A75CE7449
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +576,8 @@ magnet:?xt=urn:btih:260DD9F8032C25C10B85131F1DC8369A75CE7449
 magnet:?xt=urn:btih:52E69D4416A80044C3FF0740ED5BD22D88641F7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +601,8 @@ Prepare for an explosive journey through a blistering setlist with Duran Duran's
 ```bash
 magnet:?xt=urn:btih:985A845DF4FB92260AB545145B758E34F3F7BA6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +628,8 @@ magnet:?xt=urn:btih:985A845DF4FB92260AB545145B758E34F3F7BA6B
 magnet:?xt=urn:btih:A2BA215E2D07E58F0EF85BAEBF442F8DE847F8F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +653,8 @@ magnet:?xt=urn:btih:A2BA215E2D07E58F0EF85BAEBF442F8DE847F8F6
 ```bash
 magnet:?xt=urn:btih:CE2E707027A7DB6CE50CE7AF91A9647B31D9C710
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +684,8 @@ magnet:?xt=urn:btih:CE2E707027A7DB6CE50CE7AF91A9647B31D9C710
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -669,6 +719,8 @@ Progressive Rock - Rock Legends (2003) DVDRip
 ```bash
 magnet:?xt=urn:btih:7FBD2FBC4CD93B5C0201F22B34668703FD1FE51E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1459367   (1023282) от 01.04.2021
+
+Каста - Чернила осьминога (2021) Deluxe Edition [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023282.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Пароль от почты
+2. Не то
+3. Годы неправды (feat. Рем Дигга)
+4. Нипонимони(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:26:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC9E0216D590356A0D652A7B69BD5F7CEF0E7D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457116   (1024613) от 25.03.2021
 
 Pueblo Vista & VA - Hello Spring : MMXX : Lo-Hop Anthology (2020) [FLAC|Lossless|tracks] <Hip-Hop, Instrumental, Chill>
@@ -21,6 +50,8 @@ Pueblo Vista & VA - Hello Spring : MMXX : Lo-Hop Anthology (2020) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:DD099D402174C581D530553215FAFAEC5E3F53B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ Moderator - Midnight Madness (2021) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Trip
 magnet:?xt=urn:btih:9BB9C91719F86C5B0F4A04797E157ED02A476485
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ magnet:?xt=urn:btih:9BB9C91719F86C5B0F4A04797E157ED02A476485
 ```bash
 magnet:?xt=urn:btih:CD549A3687A52C0D31ED211FD175AB796EA5DA85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Chillhop Essentials Spring 2021 (2021) [FLAC|Lossless|WEB-DL|tracks] <Hip-H
 magnet:?xt=urn:btih:EF3658404C5490BDEAFAF2A0F8B66850958C5092
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ magnet:?xt=urn:btih:EF3658404C5490BDEAFAF2A0F8B66850958C5092
 ```bash
 magnet:?xt=urn:btih:9C95D2E2753137A06C2E9C7B1D73F67B0A0D9084
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ L'indécis (L'indecis) - Second Wind (2019) [FLAC|Lossless|Web-DL|tracks] <Chill
 magnet:?xt=urn:btih:687D0E3DC3D9F425C02B08B231D1B79A01957861
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ magnet:?xt=urn:btih:687D0E3DC3D9F425C02B08B231D1B79A01957861
 ```bash
 magnet:?xt=urn:btih:B26072DB3FD0A23B0D006E75067353C2E46BDCB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ The Notorious B.I.G. - Music Inspired By Biggie: I Got A Story To Tell (2021) [F
 magnet:?xt=urn:btih:C6CD5165A4209882CA22A3E9E758F72BA6A26102
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ Alai Oli - Человек, который пытается переехать и
 ```bash
 magnet:?xt=urn:btih:424CCDCE35939E069FB13DFBCF384E772FD43316
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ Aarigod - Forest Lore (2021) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumenta
 magnet:?xt=urn:btih:D2E40B539AED5368EE57FD6D626079D22C79E47E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ Insane Clown Posse - The Great Milenko (1997) 20th Anniversary Edition, Remaster
 ```bash
 magnet:?xt=urn:btih:3582F0697FC8D6F11D61909C26C29CF1164FEE3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ Insane Clown Posse - Riddle Box (1995) 20th Anniversary Edition, Remastered, 201
 magnet:?xt=urn:btih:9019FD23A6C4F7DF720E71F8F9B2B4D4B547AE32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +399,8 @@ VA - Rap Songs To Shout In The Car (2021) [MP3|320 Kbps] <Rap>
 magnet:?xt=urn:btih:EA3B56F7BBC7F738B4A722A121C69EFF92F24EC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +425,8 @@ Serhat Durmus - My Feelings (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tr
 magnet:?xt=urn:btih:8E9DC94A0814E54B3794BBA39149739376B8DB81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +450,8 @@ Onyx - Coming Outside (2021) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:985A8CF89E2FF220AB3630FC163EA4AB35505A70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +480,8 @@ ndls404 - Kung-Fu (2020) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumental>
 magnet:?xt=urn:btih:DBB09EFCDEDC75536472D2572753344E715511D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +508,8 @@ Psalm Trees & Guillaume Muschalle - We Must Believe in Spring (2021) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:E6507D71AEBCF53D4586540669D0317AC20E1F05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +538,8 @@ clipping. - Visions Of Bodies Being Burned (2020) [FLAC|Lossless|tracks + .cue] 
 magnet:?xt=urn:btih:76504C4E6BB18077912BC80E9D783CDD292F72AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +566,8 @@ Anacondaz - Перезвони мне +79995771202 (2021) [MP3|320 Kbps] <Rap, H
 ```bash
 magnet:?xt=urn:btih:0183746BBD73C2950104E47F202509C0B8053FF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +596,8 @@ VA - Chillhop Essentials Winter (2022) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 magnet:?xt=urn:btih:A84AF64683D71A75612CA87A7AEE732F387F6110
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +624,8 @@ Odessa Kane - Cuetes And Balisongs (2012) EP [FLAC|Lossless|WEB-DL] <Hip-Hop, Un
 ```bash
 magnet:?xt=urn:btih:ACF2C5AEF45458BD99171F157A7709DA5D25434E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +654,8 @@ Odessa Kane - Left to Bear Arms (2015) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, U
 magnet:?xt=urn:btih:488E464D0B054C6C636E8E6BFE570737FC3E0067
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +682,8 @@ Ka - Behind The Scenes (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Abstract H
 ```bash
 magnet:?xt=urn:btih:0E148F6C0E24BECA56A4CFD5CD7FD28EE8599B55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +712,8 @@ Onyx - 100 MAD (2019) [FLAC 2.0|24/48|tracks|WEB-DL] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:7935191B882E7FDC33A76957F6E9D4228029D3FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,29 +738,7 @@ magnet:?xt=urn:btih:7935191B882E7FDC33A76957F6E9D4228029D3FC
 magnet:?xt=urn:btih:D9D5BAA6B7581D9E10D94F2A2C3B24D5CEF31F4D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445590   (1033522) от 06.02.2021
-
-Звонкий - Shine (2019) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine (03:12)Жанр: Rap, Hip-HopПродолжительность: 00:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35C31F552DB1FE5F4B4FD5F13CA35DCF04AFC752
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

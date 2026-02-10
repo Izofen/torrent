@@ -1,3 +1,29 @@
+###  Публикация: 903650   (656367) от 01.06.2015
+
+Г. А. Кизима | Что и когда сажать, защищать и удобрять. Календарь садовода до 2019 года (2015) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгосрочный календарь известного садовода с полувековым стажем Г. Кизима – незаменимый помощник садоводам и огородникам. В нем указаны основные работы для каждого месяца, а также рассказано о том, когда и что сеять, сажать и пересаживать; чем и когда удобрять и подкармливать; чем, когда и как защищать от болезней и вредителей; как использовать фазы лунного цикла (   Читать дальше...   )Жанр: Эзотерика, Сад и ОгородФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E725E09EEB1DD39C127181707CD0E9211B882DA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903642   (656377) от 01.06.2015
 
 Сергей Петрушин | Почему любят одних, женятся на других, а живут с третьими (2015) [FB2, EPUB]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:F87A811BDA8808C8CE1A45269AAE3DC06872B8A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:F87A811BDA8808C8CE1A45269AAE3DC06872B8A7
 magnet:?xt=urn:btih:882C2FE93140BE2BF5F3036A41D4F8A97E4C6E15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:882C2FE93140BE2BF5F3036A41D4F8A97E4C6E15
 ```bash
 magnet:?xt=urn:btih:10FE2215D24ED0D4906907C416277C8982C1D463
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:10FE2215D24ED0D4906907C416277C8982C1D463
 magnet:?xt=urn:btih:9CCB333263F810EDB0C8F3A88F3AE87C16FAB9A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:9CCB333263F810EDB0C8F3A88F3AE87C16FAB9A2
 ```bash
 magnet:?xt=urn:btih:98DFF225F8BA084FCF33B7FCC42F3933C6EB4B46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:98DFF225F8BA084FCF33B7FCC42F3933C6EB4B46
 magnet:?xt=urn:btih:C8F829C1913977A8C80E2191055D386176D50BAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:C8F829C1913977A8C80E2191055D386176D50BAC
 ```bash
 magnet:?xt=urn:btih:FB598BAB6D91603F581BDC18E937166A9286C33B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:FB598BAB6D91603F581BDC18E937166A9286C33B
 magnet:?xt=urn:btih:5BCF522B8526FB19A5B60C532E54C84AEFEA9205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:5BCF522B8526FB19A5B60C532E54C84AEFEA9205
 ```bash
 magnet:?xt=urn:btih:A46703DCB59823E589B43753C386286D92059FD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:A46703DCB59823E589B43753C386286D92059FD1
 magnet:?xt=urn:btih:EE684C060D313FF7B07A5A9608DB70E2745EFDDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:EE684C060D313FF7B07A5A9608DB70E2745EFDDF
 ```bash
 magnet:?xt=urn:btih:C02DB5543DAE4A702102C64D39393C3C1BA95A40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:C02DB5543DAE4A702102C64D39393C3C1BA95A40
 magnet:?xt=urn:btih:C9E72034B1C6F4315D2A1DBF01B6FE725B257106
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:C9E72034B1C6F4315D2A1DBF01B6FE725B257106
 ```bash
 magnet:?xt=urn:btih:7218526D8B483E249FE5D1C1F459235A4310C958
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:7218526D8B483E249FE5D1C1F459235A4310C958
 magnet:?xt=urn:btih:5C4A37E5E93A5C3F61B5E869A6440FA02B157613
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:5C4A37E5E93A5C3F61B5E869A6440FA02B157613
 ```bash
 magnet:?xt=urn:btih:CF8D9EE892B44E892444501F0B4405B14EB5CFF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:CF8D9EE892B44E892444501F0B4405B14EB5CFF1
 magnet:?xt=urn:btih:D44F715A71B35BB0212F975E1DE0205060283D1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:D44F715A71B35BB0212F975E1DE0205060283D1F
 ```bash
 magnet:?xt=urn:btih:991F969F5BAFEAA0D659A079276FA0870AF5A265
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:991F969F5BAFEAA0D659A079276FA0870AF5A265
 magnet:?xt=urn:btih:595645F3C066C5B58538A07FB24629DD65E882F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:595645F3C066C5B58538A07FB24629DD65E882F9
 magnet:?xt=urn:btih:F7C11FDBB26399CF2DDA20BB6E6E004906BB78F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:F7C11FDBB26399CF2DDA20BB6E6E004906BB78F2
 ```bash
 magnet:?xt=urn:btih:48D8A54B229A344F148B03946E4D8C6F9DFB1084
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:48D8A54B229A344F148B03946E4D8C6F9DFB1084
 magnet:?xt=urn:btih:BDAFD4215DD76A730B786B50EB330D27007A9DC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:BDAFD4215DD76A730B786B50EB330D27007A9DC4
 ```bash
 magnet:?xt=urn:btih:F7E2D9B403F39019D7DE7C4E61846AA4FDB491FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:F7E2D9B403F39019D7DE7C4E61846AA4FDB491FD
 magnet:?xt=urn:btih:702A65BCFB8D7C747892BF90DC2AE8D7CE98D737
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:702A65BCFB8D7C747892BF90DC2AE8D7CE98D737
 ```bash
 magnet:?xt=urn:btih:99EB0C1B4F9002397C63E9A2E7F14C6BF4C48304
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,29 +681,7 @@ magnet:?xt=urn:btih:99EB0C1B4F9002397C63E9A2E7F14C6BF4C48304
 magnet:?xt=urn:btih:7360B9DB91682F6982116E3A80FF60AB455D785F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225476   (657957) от 18.05.2018
-
-Священник Виктор Кузнецов | Мученики нашего времени. Иеромонах Нил (Савленков), Игорь Тальков, митрополит Николай (Ярушевич) и другие (2009) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Священники и миряне, претерпевшие смерть ради Веры и Отечества - наши маяки во тьме падшего мира. Замучившие, убившие их изверги, являются исполнителями, слугами сатанинских сил. Мученическая смерть праведников, к сожалению, не становится в наше апостасийное время не только широко оповещаемой сенсацией, но даже мало-мальски известным событием. Жёсткий заговор молчания (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08854661AC66E8A342194F371C7B3DAFDCA4E407
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

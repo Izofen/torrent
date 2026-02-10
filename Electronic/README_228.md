@@ -22,6 +22,8 @@ Richard Clayderman - Movie Favourites (2017) [FLAC|Lossless|tracks] <Easy Listen
 magnet:?xt=urn:btih:04328B8F179328651AA30A046CB02B7BC35F0105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Rahul Sharma & Richard Clayderman - Milap (2017) [FLAC|Lossless|tracks] <Easy Li
 ```bash
 magnet:?xt=urn:btih:2370C8C1B839B9F0B8025020B596D7470A44C89F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Fashion In Profession Vol 1 (2017) [MP3|320 Kbps] <Funky, Club House>
 magnet:?xt=urn:btih:6BED3562F4AB1937AE18D9994835ADC0B411CC2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - For New Music Lovers & Dancers (2017) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:B843A7DA3B9890710476349B61AA69D3F67E714D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +144,8 @@ VA - Dessous Classics Volume 2 (2012) [MP3|320 кб/с]<Deep House, Downtempo>
 magnet:?xt=urn:btih:C483312A31101F0358D80D0C67F082DB9A8174A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +172,8 @@ VA - Pure Salinas. Lounge & Deep House Edition Vol. 4 (2012)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +208,8 @@ VA - Disco Sensation (2012) [MP3|320 кб/с]<Funky, Club House, Deep House>
 magnet:?xt=urn:btih:485A6E2AA561727ED9F10DD80272E089D479AA4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +242,8 @@ Dave Ross - Dance Machine (2012) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:5C745EF1A732C9487CB8F3F58C9051725E866BCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +278,8 @@ VA - African Chillout: Mystic Oriental Sunset Lounge Dreams (2012) [MP3|320 кб
 magnet:?xt=urn:btih:C8C69BDE70B0A73AA1AF9C10121C305B4009D92D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +309,8 @@ Giyo - Play your joker (2012) [MP3|320 кб/с]<abstract, downtempo, trip-hop, U
 ```bash
 magnet:?xt=urn:btih:42472190F31941A176230E58F9375C13E84747C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +345,8 @@ VA - Dancefloor FG Ete Summer 2012 (2012) [MP3|~245 кб/с (V0)]<House, Dance, 
 magnet:?xt=urn:btih:EA3F337103BE41CDDC100CE74CA2FDA4189A9E82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +373,8 @@ VA - Kontor Sports: Nonstop Powermix 2020.04 (2020) [MP3|320 Kbps] <House, Elect
 ```bash
 magnet:?xt=urn:btih:D8F5AD27AADD53CEF295B48CA7563BAD8693D68B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +403,8 @@ VA - Kontor Sports: Nonstop Powermix 2020.05 (2020) [MP3|320 Kbps] <House, Elect
 magnet:?xt=urn:btih:DB5B8A91665F6614F9D8AEB324D50FFD91C6502E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +431,8 @@ Simon Le Grec - 25 Years Anniversary (Unique Music) (2020) Compilation [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:4865F253A1809AFF9AF07683ACCB2A5985B17EF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +467,8 @@ Odesza - Summers Gone (2012) [MP3|320 кб/с]<Ambient,Chillwave, Electronic>
 magnet:?xt=urn:btih:095F47A086B2A29868D111D16F977B6DD3DFDD7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +495,8 @@ Ulver - Flowers Of Evil (2020) [FLAC|Lossless|tracks + .cue] <Dark Ambient, Alte
 ```bash
 magnet:?xt=urn:btih:27EE9E9B6F09D234B3FFED02786E2B027E60476D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +525,8 @@ Fatih Tuter - Beehive (2020) Shimmering Moods Records [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:433B4E7C813556329F1B5E31485BE29E1CF28DD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +553,8 @@ VA - Garden Of Eden Vol.1 (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
 ```bash
 magnet:?xt=urn:btih:F59B0A51E091F87D09C8111B6F66028145B7786E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +583,8 @@ VA - Costa - Vocal Trance Hits (2022) [MP3|320 Kbps] <Uplifting Trance>
 magnet:?xt=urn:btih:9557A71E53517A3BF48929449AC7157F114DFFE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +612,8 @@ Oblivion - Secrets Of Time (The 4-th Album) (2021) [OGG Vorbis|485 Kbps] <Synthp
 magnet:?xt=urn:btih:F82C285FF4383A9408558960EC76CE45BBF4E248
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +640,8 @@ Pet Shop Boys - Disco (1986) [OGG Vorbis|485 Kbps] <Synthpop, Electro>
 ```bash
 magnet:?xt=urn:btih:0E8389F300DF216DC8BAFCBED5830EC17037AB84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +676,8 @@ VA - World Club Tour Amsterdam: The Amsterdam Club Sound Collection (2012) [MP3|
 magnet:?xt=urn:btih:8F4E99C4278918EDB0A8488E06DD8D2ABDC9F452
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +704,8 @@ VA - Floating Leaves: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 ```bash
 magnet:?xt=urn:btih:CD7D2C8B3DA6C880DE19912F23261D7989EAB0A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -688,6 +734,8 @@ Laserdance - Future Generation (1987) [OGG Vorbis|485 Kbps] <Synthpop, Electroni
 magnet:?xt=urn:btih:EE88F6FCC81E00E8AB5907AE2B3D326FBE1EDDD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -715,6 +763,8 @@ Timecop1983 - Night Drive (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synt
 magnet:?xt=urn:btih:AA3D6D3E7B24F28228EB2589D7D829D3B1224567
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -741,6 +791,8 @@ Andrea Parker - Discography 18 Releases (1995-2011) Touchin' Bass, Mo Wax [FLAC|
 ```bash
 magnet:?xt=urn:btih:312F56B6B2182CFE937787D98EFAFE3195220086
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Optimizer - утилита расширенной настройки, котор
 magnet:?xt=urn:btih:22FBFA584A07CD49506F1B9E077714A0E7A23812
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ IceCream Ebook Reader Pro 6.49 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4464EB515D25222D2C9318CB2E79059BAD534644
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Topaz Video AI 5.0.3 RePack (& Portable) by TryRooM [En]
 magnet:?xt=urn:btih:56D0EDA0932781F4D686F59A26BA133A51C4AE7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ MediaHuman YouTube to MP3 Converter 3.9.9.91 (0503) RePack (& Portable) by elchu
 magnet:?xt=urn:btih:915CB9A1135C221C7A5C3D788154181D5CDDC2D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Adobe Animate, пришедший на смену Flash Professional - это м
 ```bash
 magnet:?xt=urn:btih:610212B1EFAB8688AC22583DB2C33B9BDF832EA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ WinScan2PDF - позволяет сканировать документы и с
 magnet:?xt=urn:btih:04CA27BF8289D7239ACA8F3EF04A7564C2FBD2FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ R-Wipe & Clean - программа для невосстановимого уд
 magnet:?xt=urn:btih:9497F2751A1C7B4516584DDE24DAC6AC725061B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Affinity Designer — самое быстрое, удобное и точное 
 ```bash
 magnet:?xt=urn:btih:C81A7866312747E4A425877379D544C99771B16F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Topaz A.I. Gigapixel — это приложение, использующее �
 magnet:?xt=urn:btih:51385D9FE9A4AA6D4DDDD1F31E4A066C46ED20F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:5F68151B83C2E75E962DDE86E949F60EE178D9AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ reaConverter Pro - мощный инструмент для тех, кто им�
 magnet:?xt=urn:btih:C046F95F064B9D3DF8C10D862A78C8C87D117AF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ MediaHuman YouTube Downloader 3.9.9.91 (0503) RePack (& Portable) by elchupacabr
 ```bash
 magnet:?xt=urn:btih:87B9ECFD6AD6D217BA35880461A557C156F0A17E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ TreeSize Professional 9.1.4.1881 (x64) [Multi/Ru]
 magnet:?xt=urn:btih:F51E1CE0ACF4EFC768364930EAC9D8D0A740DDD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Affinity Photo — обеспечивает более высокую скоро
 ```bash
 magnet:?xt=urn:btih:B6042F51A63CB34C18E65B0426F6058523AB1033
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Viber - десктопная версия популярного мобильн�
 magnet:?xt=urn:btih:B2F66D862C2D606C7B620D5E4981D1F27F032FFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:B2F66D862C2D606C7B620D5E4981D1F27F032FFD
 ```bash
 magnet:?xt=urn:btih:B6E7370D38A3AEEAB1292FD2CB0A6C8C43D13ECC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ AIMP 5.30 Build 2549 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:6F65129EAFDB2846633DBED775CB854E72390D47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ TreeSize Professional - мощное и гибкое средство визуа
 ```bash
 magnet:?xt=urn:btih:80F552B155243796EACEB18A67C12CC44D31359A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ AIMP – проигрыватель, включающий в себя множе
 magnet:?xt=urn:btih:6517D5D19D701E44FF5990FD5CB424F077625BAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ FileMenu Tools настраивает пункты контекстного ме
 ```bash
 magnet:?xt=urn:btih:4C795FD4677F8E014D3CA27E7525C36AC5354493
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Visual Studio Code – визуальный редактор кода от ко�
 magnet:?xt=urn:btih:9CE18B52517732230ADF2C3963AA6184E537F162
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ DiskDigger - маленькая утилита, с которой можно в�
 ```bash
 magnet:?xt=urn:btih:234FA43A3A0D72E8403DF3F4E47B41F821CC2C38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ R-Studio Network 9.4 Build 191310 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:1349F84ECD2BE9679DB8FAEEC2DE167DCFEE36C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ Auslogics Disk Defrag Pro - это профессиональная версия
 ```bash
 magnet:?xt=urn:btih:92C95E60F08BB1E73940A2E7ABD3B5B89A785B2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:92C95E60F08BB1E73940A2E7ABD3B5B89A785B2D
 magnet:?xt=urn:btih:C209140E10382AFD7DAC94396A11A9B17237A321
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Topaz Video AI 5.0.3 (x64) + All Models Portable by FC Portables [En]
 ```bash
 magnet:?xt=urn:btih:AF79468962D77AA6896AA64531C595DBF4043D02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

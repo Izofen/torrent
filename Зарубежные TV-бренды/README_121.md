@@ -22,6 +22,8 @@ BBC: Загадки истории. Мифы и герои / BBC: In Search Of M
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Discovery: Могучие корабли. Кентуки / Mighty Ships. USS Ken
 magnet:?xt=urn:btih:01CCAA03582E2B7B518DC227494754533AE504E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ NGW: Настоящая чёрная пантера / The Real Black Panther (20
 ```bash
 magnet:?xt=urn:btih:354BB43491BD801DDE8AA0A8E09E4FA5F62A44A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ BBC: Планеты. Марс / The Planets: Mars (2019) IPTVRip [H.264]
 magnet:?xt=urn:btih:5A93F7D4A5F53EDB24EA655069AC78FDC9390A87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ History Channel: Вселенная. Наше место в галактике �
 ```bash
 magnet:?xt=urn:btih:28C14F76C70A425193860E28081A3EC74DA2A1D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:28C14F76C70A425193860E28081A3EC74DA2A1D9
 magnet:?xt=urn:btih:69B91C4C058B04483CE09DACBA42F4EB1C06A231
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:69B91C4C058B04483CE09DACBA42F4EB1C06A231
 ```bash
 magnet:?xt=urn:btih:38B527990FCA7FDECF96679134AA8E50BE80E90C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ BBC: Живой мир: Бегемоты - жизнь в воде / Natural Worl
 magnet:?xt=urn:btih:4D7F71BAED8D9C1329F917D987B084FCD6901126
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ NG: Расследования авиакатастроф: Посадка на �
 ```bash
 magnet:?xt=urn:btih:A29CE1E9608D1AC38F078D1360FAC87D903EF79E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:A29CE1E9608D1AC38F078D1360FAC87D903EF79E
 magnet:?xt=urn:btih:3292DF6C69CC9B345444855E41A68F83A3B0BA13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ National Geographic: Расследования авиакатастроф. См
 ```bash
 magnet:?xt=urn:btih:42DC89A8DA44A1DC29837A7DC3C12D109E7F2F3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:42DC89A8DA44A1DC29837A7DC3C12D109E7F2F3B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:42DC89A8DA44A1DC29837A7DC3C12D109E7F2F3B
 ```bash
 magnet:?xt=urn:btih:33D425960C9A8797B738FBDDC3932FF5E30930E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ NG: Табу: Зарождение эротического кино / Taboo. Th
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ NG: Запреты. Опознавательные знаки / Taboo. Marks of 
 ```bash
 magnet:?xt=urn:btih:D3D9C7C831FA38CEE258DA9EC152358B6E5D86FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ NG: Апокалипсис: Вторая мировая война: Развяз
 magnet:?xt=urn:btih:EBA11B797D1F177E18463E5E43518D0BEA183E15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ NG: Запреты. Вуду / Taboo. Voodoo (2002) SATRip
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ NG: Запреты. Изгои общества / Taboo. Outcasts of society (20
 magnet:?xt=urn:btih:BAE696F1A5FC1C24E946B619CD5B7AE24249ADFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ NG: Запреты. Инициации / Taboo. Initiation (2004) SATRip
 ```bash
 magnet:?xt=urn:btih:C45FC27C5850AC1A648F210AA13EBF706821E0A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ History Channel: Вселенная. Немезида: злобный двойн
 magnet:?xt=urn:btih:2EE7B331EB3732860A129FE537C16472CE7FDBBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ History Channel: Вселенная. Как космос изменял ход �
 ```bash
 magnet:?xt=urn:btih:4B12CA143C979FE196F6B23F1EA516B657A3A8D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ History Channel: Древние пришельцы (3 сезон: 16 серий 
 magnet:?xt=urn:btih:5B92F331835BB944A441B8A35BCAB5892F1919DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ NG: Запреты. Проституция / Taboo: Prostitution (2010) SATRip
 ```bash
 magnet:?xt=urn:btih:C7111812F624D20C90957D642E33E28B0DCAD8BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ NG. Осушить океан: корабли-призраки Атлантик�
 magnet:?xt=urn:btih:C651836074F6050FE2626D4B8039A1EDFCA6E535
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ NG: Запреты. Экстремальная кухня / Taboo. Extreme Cuisi
 magnet:?xt=urn:btih:97ACE0B244481A92496207BE91169A376DC0A3C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ NG: Запреты. Кровавые Обычаи / Taboo. Blood Rites (2004) TV
 ```bash
 magnet:?xt=urn:btih:D85AC908930A3A1AB6FBB769F1FDD37EE6CFAEFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

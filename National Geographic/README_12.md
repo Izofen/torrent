@@ -19,6 +19,8 @@ NG. Нотр Дам: гонка против ада / Notre-Dame. Race Against t
 magnet:?xt=urn:btih:16007300D9AAC01B18DBBD5190E48120FFF5F13A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NGW: Чудаки животного мира. Обезьяны носачи / F
 ```bash
 magnet:?xt=urn:btih:3DFD5AC5BADCBDB717B595064C7CABC0DDCD6C6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:3DFD5AC5BADCBDB717B595064C7CABC0DDCD6C6E
 magnet:?xt=urn:btih:CDAD7F9E5AB67181EACDC209D2BF7B84A5831A95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NG: Земля: Биография Планеты / Earth: Making of a Planet (2
 ```bash
 magnet:?xt=urn:btih:F2721F286D8AF6C75B335800424A181BF417783B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NGW: Остров муссонов. Королева Яла / Island of the Mons
 magnet:?xt=urn:btih:CAA60015D1414312E688CFC7C37EC30AAA8828C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NG. Вся правда о ледяном человеке / Iceman Autopsy (201
 ```bash
 magnet:?xt=urn:btih:980FCD6848C0121F32BA8FD07039BA8D10AD1D73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ NG. Миссия на Марс / Ultimate Mars Challenge (2012) HDTV [H.264/1080
 magnet:?xt=urn:btih:0817100A290B07306C4AB5E432A3A435CA0D3CEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NGW: Остров муссонов. Слоненок Лока / Island of the Mo
 ```bash
 magnet:?xt=urn:btih:77DAF465DC10B0484556767D7496F3FC8614DA0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ NG. 2000-е: Величайшие трагедии / The 2000s Greatest Tragedie
 magnet:?xt=urn:btih:BE155F07907729EBE858F5D1DFDFDBD2FF80DAB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ NG. Дикая Скандинавия / Wild Nordic (2019) HDTV [H.264/1080i] (�
 ```bash
 magnet:?xt=urn:btih:45C87BFFCBE702AA83047CC069A696142DDE979D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ NG. Черные фараоны: империя золота / Black Pharaohs of
 magnet:?xt=urn:btih:97AC13C99510FE5CAC7BB7BAC1844735E124B08F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ NG: Самые странные в мире / World's Weirdest (2011-2016) HDTVR
 ```bash
 magnet:?xt=urn:btih:967C6BF0888C606A0D946AD0365AFCC0DCA19740
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ NG. 9/11: Один день из жизни Америки / 9/11: One Day in Am
 magnet:?xt=urn:btih:F8A28E552A64405534BB4E283CA0029E1CBB16EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ NG. Титаник: 20 лет спустя с Джеймсом Кэмероно�
 ```bash
 magnet:?xt=urn:btih:2FD57F5AEDCA72976273F62A6A6D89CE60209BFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ NG. Годы опасной жизни / Years of Living Dangerously (2016) DVB 
 magnet:?xt=urn:btih:DD61D544840A84AD2B0BC2CF7050C443096A3417
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ NGW: В неизвестность с Джеком Рэнделлом / Out Ther
 ```bash
 magnet:?xt=urn:btih:07D33967290FEF543CAD46398BA839E06813E868
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ NGW: Замбези / The Zambezi (2010) HDTVRip [H.264/720p-LQ] (эпизоды
 magnet:?xt=urn:btih:8CD57015D11550AE48F701258EECC88AAEE56793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ NG. Черные фараоны: империя золота / Black Pharaohs of
 ```bash
 magnet:?xt=urn:btih:42BE7CE6801E0CC0B640A95F5D7F2EBD063E9C54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ NG. Линии Наска: Древние тайны / Nasca Lines. Ancient Secr
 magnet:?xt=urn:btih:2B4D8D09B357090A7E7874A514A5B810DB7555C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ NG. Экстремальный Китай. Горы Сыгунян / Extreme Chi
 magnet:?xt=urn:btih:F0C0B39A9D0C20D00B6BD83F5B1B01BDFFEB1B97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ NG. Шаньдун: страна Конфуция / Shandong. Land of Confucius 
 ```bash
 magnet:?xt=urn:btih:ACFFA59EE63A7E5229F8A42263AC27067EBB6620
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ NGW: История одной гиеновой собаки / A Wild Dog's Tale
 magnet:?xt=urn:btih:56F5231025CD67D961777EC527D00FE1F1098914
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ NGW: Когда акулы нападают / When sharks attack (2017) HDTV [H.
 ```bash
 magnet:?xt=urn:btih:63E1A5D9AAC78879B19E0AC30D54EFBA63363D3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ NG: Ловец комет: Миссия "Розетта" (Розетта: пос
 magnet:?xt=urn:btih:35A9996542E91B0C8D633C19AC77E4F4C039D8A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ NGW: Дикие болота / Wild Swamplands (2013) HDTVRip [H.264/720p-LQ] (�
 magnet:?xt=urn:btih:BD7719E24C6349F5AD8CCDD03F60188CC6EC2875
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ NG: Жизнь в других мирах. Голубая луна / Extraterres
 ```bash
 magnet:?xt=urn:btih:6039D3CE26C485FD51B368EEE240EFE01FC47E63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

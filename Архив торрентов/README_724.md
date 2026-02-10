@@ -26,6 +26,8 @@ VA - Trance World Vol. 14 (Mixed by Shogun) (2012)
 magnet:?xt=urn:btih:13B54018BAC4A2B2F95D5F4E966965B5144D7DB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -53,6 +55,8 @@ magnet:?xt=urn:btih:13B54018BAC4A2B2F95D5F4E966965B5144D7DB7
 ```bash
 magnet:?xt=urn:btih:C17B27CFD6CF69B03A15669FA3C1B3EFF6958B2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -87,6 +91,8 @@ Vince Watson - Every Soul Needs A Guide (2012) [MP3|320 кб/с]<House, Electron
 magnet:?xt=urn:btih:9F8BCBD57B142501E3781AAAA71ED73E1434F926
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +124,8 @@ VA - 50 Miami Tunes 2012 (2012)
 magnet:?xt=urn:btih:5654D84DF8E3F8D30B051AFAB021526B9936A8C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +153,8 @@ magnet:?xt=urn:btih:5654D84DF8E3F8D30B051AFAB021526B9936A8C5
 ```bash
 magnet:?xt=urn:btih:478F899330CCBBE2E1D36C5E334C3D5ACB997FDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +184,8 @@ magnet:?xt=urn:btih:478F899330CCBBE2E1D36C5E334C3D5ACB997FDB
 magnet:?xt=urn:btih:D8443D69EA3460205ACC796405819217753BF161
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +213,8 @@ NG. Акула по кличке Николь / Shark Nicole / Great White Odyss
 magnet:?xt=urn:btih:A198B60127B00876E26487F16043F00FB79394FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +239,8 @@ magnet:?xt=urn:btih:A198B60127B00876E26487F16043F00FB79394FE
 ```bash
 magnet:?xt=urn:btih:86177043CF001C0D34274BA14A0FE2B86CEF2382
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +270,8 @@ magnet:?xt=urn:btih:86177043CF001C0D34274BA14A0FE2B86CEF2382
 magnet:?xt=urn:btih:123C74433C210EA4EC96D1E9C95CF22FBD0DA7E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +299,8 @@ magnet:?xt=urn:btih:123C74433C210EA4EC96D1E9C95CF22FBD0DA7E6
 ```bash
 magnet:?xt=urn:btih:AACC8EFAC9BD51EC37C4F571DF1ADFCDE1A941C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +331,8 @@ Bvdub - Serenity (2012) [MP3|320 кб/с]<Ambient, Dub Techno>
 magnet:?xt=urn:btih:FAAEB741B00682BCFC8D1568A4E8A01F95E146F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +358,8 @@ magnet:?xt=urn:btih:FAAEB741B00682BCFC8D1568A4E8A01F95E146F1
 ```bash
 magnet:?xt=urn:btih:0BFF59617DCDE55E8C75189BC1EE02FA576E69A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +387,8 @@ magnet:?xt=urn:btih:0BFF59617DCDE55E8C75189BC1EE02FA576E69A3
 magnet:?xt=urn:btih:9B9540E2D169D03AD8CBEAA074E196FCBE8A944D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +412,8 @@ magnet:?xt=urn:btih:9B9540E2D169D03AD8CBEAA074E196FCBE8A944D
 ```bash
 magnet:?xt=urn:btih:E48711D671C5FC5A9579987A497791BCD9A35660
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +440,8 @@ magnet:?xt=urn:btih:E48711D671C5FC5A9579987A497791BCD9A35660
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +470,8 @@ magnet:?xt=urn:btih:E48711D671C5FC5A9579987A497791BCD9A35660
 ```bash
 magnet:?xt=urn:btih:C1933FD7DA8051CDA2DB6FA365B78B46EF9BBD51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +506,8 @@ Peter White - Here We Go (2012) [MP3|~245 кб/с (V0)]<Smooth Jazz, Jazz-Guitar
 magnet:?xt=urn:btih:265F64228529D9179A70FAD1B8E3950161C3FCD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +531,8 @@ magnet:?xt=urn:btih:265F64228529D9179A70FAD1B8E3950161C3FCD7
 ```bash
 magnet:?xt=urn:btih:2E643FFEF74AD71D9EFD0F1E1F0FDFC3108056A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +562,8 @@ magnet:?xt=urn:btih:2E643FFEF74AD71D9EFD0F1E1F0FDFC3108056A2
 magnet:?xt=urn:btih:D48616F821A119FA8C2176BE2755252098C40987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +591,8 @@ magnet:?xt=urn:btih:D48616F821A119FA8C2176BE2755252098C40987
 ```bash
 magnet:?xt=urn:btih:30068BC2D0BE5951BCCDFA8C617D53CD8FBA0A7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +627,8 @@ John O'Callaghan - Unfold (The Remixes Extended Versions) (16.03.2012) [MP3|320 
 magnet:?xt=urn:btih:1202DB49905DE15449F189F868D49B87B80C4EFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +652,8 @@ magnet:?xt=urn:btih:1202DB49905DE15449F189F868D49B87B80C4EFA
 ```bash
 magnet:?xt=urn:btih:A3738F811202FB6F7B56571ABD031B24A7D36F7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +688,8 @@ Mixed By Ruben De Ronde CD1:
 magnet:?xt=urn:btih:D235C12EFF6F3FA6576F684C00F9C06BE43788F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +713,8 @@ magnet:?xt=urn:btih:D235C12EFF6F3FA6576F684C00F9C06BE43788F4
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -692,6 +740,8 @@ magnet:?xt=urn:btih:D235C12EFF6F3FA6576F684C00F9C06BE43788F4
 magnet:?xt=urn:btih:400B1B0D555C054C5F9BFB23DD8D81BFBA9C42E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -715,6 +765,8 @@ Superstars — профессиональная рестлинг шоу от м�
 ```bash
 magnet:?xt=urn:btih:730CECF2BD27C3F9CDE13447DA1B784D1349C8F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

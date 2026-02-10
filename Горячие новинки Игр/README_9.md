@@ -19,6 +19,8 @@ Radiolight (2025) [Ru/Multi] (0.9) Repack Necros
 magnet:?xt=urn:btih:C5F2C90AD3CA5AFD9CB140A530F3FC3FB06BFB2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Farthest Frontier (2022) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D08A59B9ED9EFC364D2EC06234099D9448D6B4A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dreams of Another - это экшен-игра с исследованием о�
 magnet:?xt=urn:btih:A6815BC2F8C4A34CEA878B4711919F874A895854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Crime Detective Red Flags - игра, вдохновлённая реально�
 ```bash
 magnet:?xt=urn:btih:D1450F4C7C395672FB880C8627B0DC7C5F21E9D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.1.0/dlc) Repack FitGirl [Deluxe Edition]
 magnet:?xt=urn:btih:CE1A7C820C7D7A98E5196BE7049CCCAC94061A49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.2.0/dlc) Repack seleZen [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:A3376C3D2A41108C52072C7E0AEA53F9C2F257B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.2.0/dlc) Repack seleZen [Digital Deluxe E
 magnet:?xt=urn:btih:6FEDC67095F4A286FC701059475F260A91612BEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Lonesome Guild - это одиночный ролевой боевик с в
 ```bash
 magnet:?xt=urn:btih:5F322D2323579FE0B6716B1804595A5A10351647
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Lonesome Guild - это одиночный ролевой боевик с в
 magnet:?xt=urn:btih:49421E085A9EF6E4475AC6C723FFF42C022EE4C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.2.0/dlc) Repack Decepticon [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:52FCC8892101DCF1540940D5EC2CEB7CF720EAEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Outer Worlds 2 - долгожданное продолжение титул�
 magnet:?xt=urn:btih:6F44F165E62CD9E8A535287AE1AC6C82FBBDC009
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ BALL x PIT - динамичный фэнтезийный рогалик, где 
 ```bash
 magnet:?xt=urn:btih:A0AB72E493A3CFA9390F2C551DDFD5BB85B3F16F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Orbyss - головоломка, построенная на логике и о�
 magnet:?xt=urn:btih:485AC8CF8F49BDA8E72213946F1ABC51490A1F3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Hoomanz! — это милое и забавное стелс-приключен
 ```bash
 magnet:?xt=urn:btih:C708DC3B7D49ACA661DCA5C8AF51770CB53BB1A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.2.0/dlc) Repack FitGirl [Digital Deluxe E
 magnet:?xt=urn:btih:92085450D16543F469B457B231EE4EDB3830077A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Outer Worlds 2 - долгожданное продолжение титул�
 ```bash
 magnet:?xt=urn:btih:FF8813B846E4BECC24ED1263B79D383729B26EF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Outer Worlds 2 - долгожданное продолжение титул�
 magnet:?xt=urn:btih:BCB465E6C97AE8ADA6E7B1C6A911592A88C66566
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Thief's Shelter - это игра, где мир отражает разруша
 ```bash
 magnet:?xt=urn:btih:A4ADFB0E095048AB6814F7F6493E8DD3DA1C2C8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ PowerWash Simulator возвращается! Красота в чистоте! 
 magnet:?xt=urn:btih:2159983C66D1512551C14AD043B28EB7CBB21743
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Little Nightmares III - это новая часть серии, предста�
 ```bash
 magnet:?xt=urn:btih:25B7A235C0D2DD618AB1AB913B10D981CCD1CCB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Plus Ultra: Legado - это 2D-метроидвания, основанная н
 magnet:?xt=urn:btih:8E94AC97F24104BB1E5AB8F13B0638B24DB5C5C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Painkiller - это современное переосмысление куль
 ```bash
 magnet:?xt=urn:btih:C49C86871E3EAA1B604C854B22C7003ED50DEB99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Bench (2025) [Ru/Multi] (Build 20633602) Repack Necros
 magnet:?xt=urn:btih:E0B38BDA573842AAEB6A6757C5175394A94266FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Remains and The Residue — линейная приключенческая 
 ```bash
 magnet:?xt=urn:btih:F653E020EB3880386B56C63CEA12AB4A04529349
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Asterix & Obelix - Mission Babylon (2025) [Ru/Multi] (Build 20404417) Repack Let
 magnet:?xt=urn:btih:1DCB53ED285AE0B6F40B1BA10F9C2185D48C1E84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Dementium: The Ward (2025) [Multi] (1.1.5) Repack Necros
 ```bash
 magnet:?xt=urn:btih:53F34414309EA92031E60B52E17BB87E276D172D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

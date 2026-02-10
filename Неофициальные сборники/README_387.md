@@ -1,3 +1,38 @@
+###  Публикация: 519353   (637501) от 06.07.2012
+
+VA - Sexy Trance #41 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matisse & Sadko - Amulet [07:06]
+ 02. Miikka Leinonen pres. Cinereal - Another Day (Original Mix) [06:24]
+ 03. Marcus Maison & Will Dragen - Another Dimension (Original) [06:45]
+ 04. Lange vs. Gareth Emery - Another You Another Me (Rafael Frost Remix) [07:26]
+ 05. M.I.K.E. - Back In Time (Orjan Nilsen Refix) [07:44]
+ 06. Mark Eteson - Blackboard (Original Mix) [06:09]
+ 07. Mark Eteson feat. Audrey Gallagher - Breathe On My Own (Daniel Kandi remix) [06:29]
+ 08. Michael Jay Parker - Canberra [08:23]
+ 09. Marcel Woods - Champagne Dreams (W&W Remix) [05:57]
+ 10. Liquid Soul - Devotion (Protoculture Remix) [08:06](   Читать дальше...   )Жанр: Uplifting Trance, Trance, Vocal TranceПродолжительность: 03:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C50D122C56C1740FB6AA84949224B42EC41214F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293332   (637569) от 03.04.2019
 
 VA - Hardstyle Dance Party (2019) [MP3|320 Kbps] <Hard Dance, Electro>
@@ -21,6 +56,8 @@ VA - Hardstyle Dance Party (2019) [MP3|320 Kbps] <Hard Dance, Electro>
 ```bash
 magnet:?xt=urn:btih:708F03ADCDE7FEE758D16DE84C3F22ADF2BE36EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +86,8 @@ VA - Uplifting And Vocal Trance Party (2017) [MP3|320 Kbps] <Uplifting, Vocal Tr
 magnet:?xt=urn:btih:1310E16221074A3868F43E895846935BE0299790
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +114,8 @@ magnet:?xt=urn:btih:1310E16221074A3868F43E895846935BE0299790
 ```bash
 magnet:?xt=urn:btih:1B629C0B8A3E15F44E426E27AABF6747F982F250
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -106,6 +147,8 @@ Hits of My Soul - сборник красивой и качественной э
 magnet:?xt=urn:btih:95FAC84CA082E74A73617834C83636A3094502F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -132,6 +175,8 @@ Tony Esposito - Super Hits Collection (2015) [MP3|320 кб/с]<Pop, Jazz Fusion,
 ```bash
 magnet:?xt=urn:btih:966683DF8730FF101546DB6EB039842FC7110A76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +205,8 @@ VA - Шальные ноты Радио шансон Блатной суперс
 magnet:?xt=urn:btih:4F33DB8FC4CF8377D0E96AD8681DCA2F275664A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +231,8 @@ VA - Promo DJ Top 100 Remixes Summer (2015) [MP3|128-320 кб/с]<House, Progres
 ```bash
 magnet:?xt=urn:btih:A4D2DC6215956A23FFC8FB959322A196D1E772CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +261,8 @@ VA - Молодежный Сборник Хитов 50x50 (2016) [MP3|256 Kbps] 
 magnet:?xt=urn:btih:7C391892A4CA6CD8321FAA09E9FA018389428954
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +289,8 @@ VA - Русский хит. Летний выпуск №3 (2016) [MP3|256 Kbps]
 ```bash
 magnet:?xt=urn:btih:0B2B69852DBA0C37FC265DCA66D4A33224830583
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +319,8 @@ VA - Yoga Cafe: Finest Buddha and Relaxation World Tunes (2016) [MP3|320 Kbps] <
 magnet:?xt=urn:btih:F01906CF8C0D6DCAD2064653D2522EA64367D0B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +347,8 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:9EA7DDE7C07B99CEF43AC28CF5AEC364A26B57D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +377,8 @@ VA - Singing in the Car Fresh Hits Acoustic Covers Folk Afternoon Acoustic (2016
 magnet:?xt=urn:btih:441CFC760C71907C0BE3461D19352C4D0EAEF075
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +405,8 @@ VA - Peaceful Sounds for Deep Sleep (2016) [MP3|320 Kbps] <Downtempo, Chillout, 
 ```bash
 magnet:?xt=urn:btih:6F00A885A1E2E2D02DD96131864F6B8A07DFE372
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +435,8 @@ VA - Singapore Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:B3063A0330F2C8A2F42A18CFD8863A809228C4DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +463,8 @@ VA - Club Dance Ambience Vol.77 (2016) [MP3|320 Kbps] <House, Electro House, Clu
 ```bash
 magnet:?xt=urn:btih:4E24FC112AABF245595176F0A83D94CBB04D713A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +493,8 @@ VA - Strandhouse Rugensommer (2016) [MP3|320 Kbps] <Funky, Deep House, Tech>
 magnet:?xt=urn:btih:246BBA06181A16F055BAA131A8A676D43EA511CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +521,8 @@ VA - Kiss FM Top 40: Июнь (2017) [MP3|320 Kbps] <House, Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:8DB67998D69D9A09718B643EEE6449D42DB7CBE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +551,8 @@ Rus:
 magnet:?xt=urn:btih:090F77FF8DDB06758F1CE535A27E36FB517BF4F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +579,8 @@ VA - Deep House Collection Vol.198 (2019) [MP3|320 Kbps] <House, Deep House, Pro
 ```bash
 magnet:?xt=urn:btih:0E84D1E6FCC617CF81620451BEB227867735A283
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +609,8 @@ VA - Зайцев.Нет - Лучшие Новинки Июня 2017 [MP3|320 Kb
 magnet:?xt=urn:btih:6DC0A57364208E52C77DAB9A70B3DE52C3D0ED5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +637,8 @@ VA - Hot Synthpop Romantic Mix (2022) [MP3|320 Kbps] <Synthpop, Pop, Dance, Lyri
 ```bash
 magnet:?xt=urn:btih:59E75EA1441EBB6E904240EE4C1ACDAAD879FE56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +673,8 @@ VA - Top 50 В Машину! От Радио Record Зарубежный (2012) 
 magnet:?xt=urn:btih:36197686D7012EBB3153ABAF9A6356F489EA5FAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +701,8 @@ VA - Super Хиты Зарубежного Рока (2018) [MP3|256-320 Kbps] <R
 ```bash
 magnet:?xt=urn:btih:7FFA132541355ECF6716CFA0619C1EE9CB6E41FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +731,8 @@ VA - Глянцевые Звёзды: Русский Попсовый Сборн
 magnet:?xt=urn:btih:B81E3FBADB2818A56B7D377B57916DBC89BDC63E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -677,32 +760,7 @@ VA - Самые Скачиваемые Треки ВКонтакте Весна 
 magnet:?xt=urn:btih:D2A9B4E932A9BE7DA2D833F852479B530D51C1FC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542155   (638941) от 06.04.2022
-
-VA - Cyber Monday (Vol.01) (2022) [MP3|320 Kbps] <Electronic, Synthwave, Synthspace>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638941.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приготовьтесь к увлекательному путешествию, организованному Cyber Monday, вашим надежным звуковым гидом в мире электронной музыки - это потрясающая новая коллекция треков, предназначенная для создания завораживающих атмосферных гобеленов теперь в вашем распоряжении. Внутри вы найдете мягкие биты, широкий выбор яркой и теплой перкуссии, пузырящиеся и каскадные басы, (   Читать дальше...   )001. Club Bizarre - Redite
-002. Random Atlas - Schwarze Substanz
-003. Nathan Fake - Vanavond
-004. Raland - State One(   Читать дальше...   )Жанр: Electronic, Synthwave, SynthspaceПродолжительность: 12:22:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A1706D997EFA4DCAAA0207E7A0A2F45FFB7D7C8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

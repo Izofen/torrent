@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:4625854501E5E596FD35A2A5CAF66496EAA22668
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:4625854501E5E596FD35A2A5CAF66496EAA22668
 ```bash
 magnet:?xt=urn:btih:F6C77DB9361C43C3125759FBCDDA8CBA0216117E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:F6C77DB9361C43C3125759FBCDDA8CBA0216117E
 magnet:?xt=urn:btih:3F2761CA90FE46F7A06C903814A34C163E48951E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:3F2761CA90FE46F7A06C903814A34C163E48951E
 ```bash
 magnet:?xt=urn:btih:DD535381B46CFAC1BCAA08E0FC95D31C5D36B671
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +139,8 @@ magnet:?xt=urn:btih:DD535381B46CFAC1BCAA08E0FC95D31C5D36B671
 magnet:?xt=urn:btih:45B2493C43674DA033A15C4C7755AA5A92797469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ magnet:?xt=urn:btih:45B2493C43674DA033A15C4C7755AA5A92797469
 ```bash
 magnet:?xt=urn:btih:7791C8D516D3E8493ABD8F8487E7139F5140DEBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +197,8 @@ magnet:?xt=urn:btih:7791C8D516D3E8493ABD8F8487E7139F5140DEBC
 magnet:?xt=urn:btih:B510F517595ACABD18BE3A44845F5DF52EBF6319
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ magnet:?xt=urn:btih:B510F517595ACABD18BE3A44845F5DF52EBF6319
 ```bash
 magnet:?xt=urn:btih:7FB7D66032DA1721CB99199475E7E9DCB8E0715F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +256,8 @@ magnet:?xt=urn:btih:7FB7D66032DA1721CB99199475E7E9DCB8E0715F
 ```bash
 magnet:?xt=urn:btih:688F00F31EF447BD60C758BA3D081766709AF120
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +291,8 @@ CD1	(00:46:00)
 magnet:?xt=urn:btih:1ED0513A4260A3E7C68B1785BA78FAFD7A02C827
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +319,8 @@ magnet:?xt=urn:btih:1ED0513A4260A3E7C68B1785BA78FAFD7A02C827
 ```bash
 magnet:?xt=urn:btih:679F29A46BABB626F3E6012D43B58B8535390FC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +349,8 @@ Celine Dion - D'Eux (1995) [FLAC|Lossless|tracks + .cue] <Chanson>
 magnet:?xt=urn:btih:B3B417C437CD9B7693648BC061C54F041364CA5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +377,8 @@ magnet:?xt=urn:btih:B3B417C437CD9B7693648BC061C54F041364CA5C
 ```bash
 magnet:?xt=urn:btih:C2A48CC364FBAF4EC31A8B48C1831378353F9876
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +407,8 @@ Souchon - C'Est Deja Ca (1993) [FLAC|Lossless|tracks + .cue] <Chanson>
 magnet:?xt=urn:btih:187028D84B17554BD6553895E15DAB61840A36D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +435,8 @@ magnet:?xt=urn:btih:187028D84B17554BD6553895E15DAB61840A36D7
 ```bash
 magnet:?xt=urn:btih:D58DCF59BEB9559BF69BCB1C231F54AFD0E96921
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +465,8 @@ VA - Памяти А. Северного (1995) 2CD [MP3|320 Kbps] <Шансон
 magnet:?xt=urn:btih:2F627FD2451E115E04D32DFF34783CE810FB034D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +493,8 @@ VA - Александр Галич•Я выбираю свободу (2009) [MP
 ```bash
 magnet:?xt=urn:btih:C99603F688B328E66EF39221BFC894489775F8A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +523,8 @@ magnet:?xt=urn:btih:C99603F688B328E66EF39221BFC894489775F8A8
 magnet:?xt=urn:btih:85F9B22E1DB3CF0476B549899CCD88BB5DAAA596
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +551,8 @@ magnet:?xt=urn:btih:85F9B22E1DB3CF0476B549899CCD88BB5DAAA596
 ```bash
 magnet:?xt=urn:btih:4A92EA39DFF5F1DA502AA572BD6B7881BB16EDA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +581,8 @@ VA - Русская блатная дискотека 4 (2008) [FLAC|Lossless|tr
 magnet:?xt=urn:btih:4213497BCE1CB053D57BDC9D19163A309E6BF338
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +610,8 @@ VA - Шансон под водочку 2 (2002) [FLAC|Lossless|tracks + .cue]<�
 magnet:?xt=urn:btih:DADEFE521261A9A48ACA0DE755F5AA75FCE326DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +635,8 @@ magnet:?xt=urn:btih:DADEFE521261A9A48ACA0DE755F5AA75FCE326DC
 ```bash
 magnet:?xt=urn:btih:835A000DE2826DF7F43555B43F8BD46B95455B73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +665,8 @@ magnet:?xt=urn:btih:835A000DE2826DF7F43555B43F8BD46B95455B73
 magnet:?xt=urn:btih:BA0D7244628E94AFE0664BD6E1F90532A52499DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +693,8 @@ VA - Александр Галич•Я выбираю свободу (2009) [FL
 ```bash
 magnet:?xt=urn:btih:381118DC5A110D211B591FA5AD025D790E460000
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -675,6 +723,8 @@ magnet:?xt=urn:btih:381118DC5A110D211B591FA5AD025D790E460000
 magnet:?xt=urn:btih:92AA20F27F6E534C5C4CBF4E31ADA3F93552387D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -702,6 +752,8 @@ magnet:?xt=urn:btih:92AA20F27F6E534C5C4CBF4E31ADA3F93552387D
 ```bash
 magnet:?xt=urn:btih:D24F4A2BF2AA7724106BADC5166FCDDD4FCAEF23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

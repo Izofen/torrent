@@ -19,6 +19,8 @@ QuarkXPress 2023 v19.2.1.55827 [Multi/Ru]
 magnet:?xt=urn:btih:2A777AFDEFD709F38C78A0993E8E3B8171C384B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ FloEFD – представляет собой пакет инструменто
 ```bash
 magnet:?xt=urn:btih:52CCA2BC9C882012913CDF11AAFB11CE1D9F21E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Autodesk DWG TrueView - удобная программа для просмот�
 magnet:?xt=urn:btih:6D60DDB3AEBFCBEC9B3457B126DE05893453EF0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ IRONCAD - это доступное и мощное программное об�
 magnet:?xt=urn:btih:24689352129627531505B29BB71BD778A575949C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ X-Mouse Button Control позволяет создавать профили уп
 ```bash
 magnet:?xt=urn:btih:A641585B41348FDAE741859162A80BBBC97F2598
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ BlueStacksTweaker поможет: получить root права, убрать
 magnet:?xt=urn:btih:63AF93BFD72FC3877D5978F6B6BBDF385DB02D4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Fujikura Data connection 12 series 1.0.3.0 + Manual [En]
 ```bash
 magnet:?xt=urn:btih:481C5468F00D032E364F6D975A4E07E64714AA9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ VectorWorks Design Suite 2023 SP4 [En]
 magnet:?xt=urn:btih:9205994DF69D3C1E24811E56FEE3DD2F3968F541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ EarthView — это динамические обои для рабочего �
 ```bash
 magnet:?xt=urn:btih:822626B82D8531407C02C79DC8C9CF25BF5C5A9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ GoLand - это IDE от JetBrains, нацеленная на создание �
 magnet:?xt=urn:btih:962D3787699788596A93F8BECD892B5D47533B1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ OriginPro - пакет программ фирмы OriginLab Corporation для 
 ```bash
 magnet:?xt=urn:btih:636A383379DC1C5E54193AA8200B4C1056E7B4C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ JetBrains DataGrip – новейшее программное обеспече�
 magnet:?xt=urn:btih:A553B50D9491104C58D543493C58B5972357913B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ CLion — умная IDE, предназначенная для разработ
 ```bash
 magnet:?xt=urn:btih:B8B523BA85B74165AD786F0974A04BDE93765C96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ RubyMine — умная и удобная интегрированная сре�
 magnet:?xt=urn:btih:2C56A89FC5963EFB334821CC1B20844E2F29F344
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ OrCAD Capture PSpice Lite 17.2 [En]
 magnet:?xt=urn:btih:924DBE1716A8A152B747CFA456FA217679D5B8C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Simulia Abaqus 6.13-1 [En]
 ```bash
 magnet:?xt=urn:btih:D14425C7C1ECACA4780728B22428142AA599935B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ SIMetrix/SIMPLIS 8.40 [En]
 magnet:?xt=urn:btih:6D1F62613CB75773F164A7D6E65219B8C80AD098
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Micro-Cap 12.2.0.5 [En]
 magnet:?xt=urn:btih:EA5A91ABFFDA8F7D135C00B6F44BA3664642752B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Adaptive Server Enterprise — реляционная система управ�
 ```bash
 magnet:?xt=urn:btih:59D5F9685425A3EC1D27EF248FB4BE23AECE060C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Circuit Design Suite помогает проектировать схемы с �
 magnet:?xt=urn:btih:A231C2F9728869E286F1FFBAC96DD8C56AC2A25E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Altium CircuitStudio — это простое и мощное программ�
 ```bash
 magnet:?xt=urn:btih:BF98E6DF65A0663946983295E0A9D0C24CD80114
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Pulsonix - интегрированная среда разработки с и�
 magnet:?xt=urn:btih:03CFFCD029198424C12B1695BF2ADE215289D71A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ AWR Design Environment 17.02R Build 17492 Rev2 [En]
 ```bash
 magnet:?xt=urn:btih:3579568A10A50DC32620DD941C298B0EB252F567
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ LeoCAD 23.03 [En]
 magnet:?xt=urn:btih:C619712F60E7EEE7463E152155CE791407439F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ NHV BOOT 2023 Набор инструментов для восстановле�
 magnet:?xt=urn:btih:C893FB6DE725AF6562C93D41878C839BE51279EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ CADopia - это мощная программа автоматизирован�
 ```bash
 magnet:?xt=urn:btih:D8DA5F90719FEF2E6B1AFF578040B5DE44397C38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

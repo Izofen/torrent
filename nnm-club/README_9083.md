@@ -21,6 +21,8 @@ IconFly проста в использовании. Просто перетащ�
 magnet:?xt=urn:btih:64D8F013B82D4C34A918C06A788D4F0D4A96CCEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:64D8F013B82D4C34A918C06A788D4F0D4A96CCEE
 ```bash
 magnet:?xt=urn:btih:AD016EF4D02F9DB9231E39BBE03656098A84F347
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Minoru Muraoka - Harlem Nocturne: Bamboo Flute Miracle Sounds (1967) 2012, Nippo
 magnet:?xt=urn:btih:6F9E9799D7A88226F7C82D37893B782DFC7BC180
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Norio Maeda & Jiro Inagaki - This Is Jazz-Rock (1968) 2008, Nippon Columbia [FLA
 ```bash
 magnet:?xt=urn:btih:AB603F5A6CEACBD49C9A3EDA86EA217939178747
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ Jordi Sabatés amb Toti Soler - Jordi Sabatés amb Toti Soler (1973) [FLAC|Lossl
 magnet:?xt=urn:btih:9C39D6EA6C3E8C830E432FF05A74C0097E68C6C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ Gil Evans - Priestess (1977) 1983, Antilles [APE|Lossless|image + .cue] <Jazz Fu
 ```bash
 magnet:?xt=urn:btih:A3F52BAF02BC3883392F3E8FF53997562ED79D9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +192,8 @@ Franco D'Andrea - Solo 8: Classic Jazz (2002) Philology [FLAC|Lossless|image + .
 magnet:?xt=urn:btih:2E05EC654FEF56C5A1C8F7FE00654BE866D6BE42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ magnet:?xt=urn:btih:2E05EC654FEF56C5A1C8F7FE00654BE866D6BE42
 magnet:?xt=urn:btih:39001589586B2A1CE702CC34D6911F96D29D22A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:39001589586B2A1CE702CC34D6911F96D29D22A7
 ```bash
 magnet:?xt=urn:btih:7EF5E519CB2AF9F40455679E0D385A6432FF203E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:7EF5E519CB2AF9F40455679E0D385A6432FF203E
 ```bash
 magnet:?xt=urn:btih:E66B0A3B58217BC8CDCC11E8A970ED533D5DD912
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ FuckYouBill 2009 это полностью переработанная сбор
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +329,8 @@ FuckYouBill 2009 это полностью переработанная сбор
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +354,8 @@ FuckYouBill 2009 это полностью переработанная сбор
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +390,8 @@ Foreigner - Double Vision (1978) [MP3|320 kbps]<Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +415,8 @@ Foreigner - Double Vision (1978) [MP3|320 kbps]<Rock>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +443,8 @@ Foreigner - Double Vision (1978) [MP3|320 kbps]<Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +468,8 @@ Foreigner - Double Vision (1978) [MP3|320 kbps]<Rock>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +497,8 @@ Cтранноватые истории из жизни нескольких че
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +523,8 @@ Cтранноватые истории из жизни нескольких че
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +548,8 @@ Cтранноватые истории из жизни нескольких че
 ```bash
 magnet:?xt=urn:btih:6C422BA3806B94617100E8EB7AF0EFD56F331381
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +579,8 @@ VA - Billboard 2013 Year End Hot 100 Songs (2013) [MP3|320 кб/с]<Pop, Dance, 
 magnet:?xt=urn:btih:21233ACE2143BFAE5856046503E393A7393DA05F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +604,8 @@ magnet:?xt=urn:btih:21233ACE2143BFAE5856046503E393A7393DA05F
 ```bash
 magnet:?xt=urn:btih:4F202B8CCFB01815DBF486E9EE3D3E869F6BF360
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +632,8 @@ magnet:?xt=urn:btih:4F202B8CCFB01815DBF486E9EE3D3E869F6BF360
 magnet:?xt=urn:btih:2F431CA5DFB2D792C927359567B9FBA174A7A754
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +658,8 @@ magnet:?xt=urn:btih:2F431CA5DFB2D792C927359567B9FBA174A7A754
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +687,8 @@ magnet:?xt=urn:btih:2F431CA5DFB2D792C927359567B9FBA174A7A754
 magnet:?xt=urn:btih:238A9B5683944A0BA942E3F25A48760A76A8EEEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +712,8 @@ Hoshi wo ou kodomo / Children Who Chase Lost Voices from Deep Below / Ловцы
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

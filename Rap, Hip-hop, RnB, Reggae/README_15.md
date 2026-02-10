@@ -1,3 +1,32 @@
+###  Публикация: 1325343   (414184) от 14.09.2019
+
+Fort Minor - The Rising Tied (2005) Limited Edition [FLAC|Lossless|tracks + .cue] <Hardcore Hip-Hop, Cut-up/DJ>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction (0:43)
+ 02. Remember The Name (feat. Styles Of Beyond) (3:50)
+ 03. Right Now (feat. Black Thought Of The Roots & Styles Of Beyond) (4:15)
+ 04. Petrified (3:40)(   Читать дальше...   )Жанр: Hardcore Hip-Hop, Cut-up/DJПродолжительность: 01:02:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8EB824EFD81D1D5A77994C112852409BA55E377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167618   (415037) от 21.09.2017
 
 Артем Лоик - Крысолов (2017) 2CD [MP3|320 Kbps] <Rap>
@@ -21,6 +50,8 @@
 ```bash
 magnet:?xt=urn:btih:A7ED74DBCFD48E38F5528324ADD88D6398382B53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ magnet:?xt=urn:btih:A7ED74DBCFD48E38F5528324ADD88D6398382B53
 magnet:?xt=urn:btih:888B1A8BD83E68B1ACDE88CA28EE81EAD29B634E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ magnet:?xt=urn:btih:888B1A8BD83E68B1ACDE88CA28EE81EAD29B634E
 ```bash
 magnet:?xt=urn:btih:5D14D882BCB764784DDFAA43A6C207D00F5A3876
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ Jahmal TGK, Регион снега - Бархатный сезон (2020) [MP3|
 magnet:?xt=urn:btih:17A59C34B8EDABC878D4A17413A8AA2832CBC394
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ Public Enemy - What You Gonna Do When The Grid Goes Down? (2020) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:796871CC6C49D86F184ED77688FE95DF89ADA592
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ Nekby - Алхимия (2015) [MP3|320 кб/с]<Rap, Hip-hop>
 magnet:?xt=urn:btih:DA15F01AA581C2CFEA6738477C44417F3C4E4468
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ The Dualers - Palm Trees and 80 Degrees (2019) [MP3|320 Kbps] <Funk, Ska, Reggae
 ```bash
 magnet:?xt=urn:btih:976FD33CB0405BBD7E04A137CD20CB43D35A5B7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ magnet:?xt=urn:btih:976FD33CB0405BBD7E04A137CD20CB43D35A5B7E
 magnet:?xt=urn:btih:9F199BFC78A6FEC2A2FFCC7D5C71A6208FD9116A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ magnet:?xt=urn:btih:9F199BFC78A6FEC2A2FFCC7D5C71A6208FD9116A
 ```bash
 magnet:?xt=urn:btih:3B01ACEF434E56C9348363E5B7D28EB2466426B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ Juicy J - Stay Trippy (2013) Best Buy Exclusive [FLAC|Lossless|tracks + .cue] <H
 magnet:?xt=urn:btih:6C66B2748E39C6C4E20ACEB91D5AA3C834909F08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ Ka - The Night's Gambit (2013) [FLAC|Lossless|tracks + .cue] <Hip Hop, Conscious
 ```bash
 magnet:?xt=urn:btih:72944F5C83272ACA5221A5AAC3E0D66DAF195B2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ magnet:?xt=urn:btih:72944F5C83272ACA5221A5AAC3E0D66DAF195B2D
 magnet:?xt=urn:btih:468F418149B959B379A29983B57B976C24D45645
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ magnet:?xt=urn:btih:468F418149B959B379A29983B57B976C24D45645
 ```bash
 magnet:?xt=urn:btih:7430110ABF39F2075749402BB043342D04DA732E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ magnet:?xt=urn:btih:7430110ABF39F2075749402BB043342D04DA732E
 magnet:?xt=urn:btih:2FD17CAB2F1CD354B0954D7935E1E9D74DE62CA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +457,8 @@ Sagath - Тёмное добро (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:4981E5640D6B1C1E5D0F206C066982FA999E2F63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +482,8 @@ The Platters - The Original Platters The Very Best Of (1987) [MP3|192 kbps]<Rhyt
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +512,8 @@ VA - Chillhop Essentials - Fall (2016) [FLAC|Lossless|Web-DL|tracks] <Instrument
 magnet:?xt=urn:btih:C846ACFC7CA027FA9D69395B0ECD3B3E47B1CEF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +540,8 @@ Kaisa - K.M.K. (2010) Bonus Edition [MP3|320 Kbps] <Rap>
 ```bash
 magnet:?xt=urn:btih:C14067DE5B48A68728B70183CDD2D897322BDBCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +570,8 @@ Apollo Brown & Skyzoo - The Easy Truth (2016) [FLAC|Lossless|tracks] <Hip Hop>
 magnet:?xt=urn:btih:63A53EA45F59F78D715781A6E11B35CE21A4F995
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +598,8 @@ magnet:?xt=urn:btih:63A53EA45F59F78D715781A6E11B35CE21A4F995
 ```bash
 magnet:?xt=urn:btih:A8B5A9355E2D27D49E40DEA9AF30C1452B89D397
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +628,8 @@ Young Thug - So Much Fun (2019) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop>
 magnet:?xt=urn:btih:CC9F135B898F7B5CE095EB69B184727A481CD1BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +656,8 @@ Jahmal TGK - Superda (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:4228DBE0713FFEF2FA4D5B1A80C1AF28AB98485E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +686,8 @@ Beyonce (Beyoncé) - Renaissance (2022) [FLAC 2.0|44/24|tracks|WEB-DL] <R&B, Pop
 magnet:?xt=urn:btih:F0FA91E68BB360CE26D5B11E632DA01DA6EDC0E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +714,8 @@ magnet:?xt=urn:btih:F0FA91E68BB360CE26D5B11E632DA01DA6EDC0E1
 ```bash
 magnet:?xt=urn:btih:2C3502980ED73713AD05A1A10471182EB0DF30BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,32 +744,7 @@ Pra(Killa'Gramm) - 39 ROOTS (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
 magnet:?xt=urn:btih:96A05B58BF1C6AD677067704829BCF339425DAC6
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056677   (468323) от 01.10.2016
-
-L'One - Гравитация (2016) [MP3|320 Kbps] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468323.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Выход в открытый космос
-2. Дорога ft. Jasmine
-3. Ракета ft. Влади & Баста
-4. Огонь и вода(   Читать дальше...   )Жанр: RapПродолжительность: 00:54:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:393BEBF91953F2713E759E92D2544D792048370F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

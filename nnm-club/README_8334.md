@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:9C2BD600B16B236B2791689FA32417E6896E4E3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ City Fixx - Fire Your Guns (1990) Compilation, 2022, Steelheart Memories, The "L
 magnet:?xt=urn:btih:C5D0826BFDBC05A1DE1020828C72FFF3C83E6152
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Sweep — фильтрующий эффект.
 magnet:?xt=urn:btih:0798260DB396ECD6C32940E66A48F7941AC4EC93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ GO Weather EX — великолепный динамический фон с к
 magnet:?xt=urn:btih:D2AB46F717C80441B0454B7FA27B8FDC42868B45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 magnet:?xt=urn:btih:5EAFF77287C726D9144DEF13ECCAA5E82C4E0B9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ Disco Alliance :
 magnet:?xt=urn:btih:A126526E95E35A27A54824531F0177D96CE084D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:A126526E95E35A27A54824531F0177D96CE084D5
 ```bash
 magnet:?xt=urn:btih:934A26B37D0DA915AC3214409A2E771F591078B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Bootstrap Studio - мощная программа для создания кр�
 magnet:?xt=urn:btih:BDAA3DFBE339C95ED40754866838F66CB881874F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:BDAA3DFBE339C95ED40754866838F66CB881874F
 ```bash
 magnet:?xt=urn:btih:1E89AF806181C65F639FD7099F5986C0AB47C539
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ simplewall 3.6.4 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:55B091FD416D8D876BDFCF878CE03F872CBA4EDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:55B091FD416D8D876BDFCF878CE03F872CBA4EDA
 ```bash
 magnet:?xt=urn:btih:E0434F45879E096A00EC25973E65B3E2647E30DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ Dr. Stone: Ryuusui | Доктор Стоун (спэшл) [2022, Special, 1 эп
 magnet:?xt=urn:btih:2FEE17F076C4692F53A4235FEA02FE4A1201292D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ WhatsApp вслед за Telegram стал предлагать россияна
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ WhatsApp вслед за Telegram стал предлагать россияна
 ```bash
 magnet:?xt=urn:btih:CE79E8EC6B77E2B9E08BB36AAF4D06C3FE1DCB26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ Winxvideo AI  - это набор инструментов для масштаб
 magnet:?xt=urn:btih:14175678EAEA8DF0C48269259A856E43C4F370CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:14175678EAEA8DF0C48269259A856E43C4F370CD
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ Super Mario Bros. Remastered (2025) [Ru/Multi] (1.0.1) Repack dixen18
 magnet:?xt=urn:btih:6450F61335414FA1B2EE364793A6AA37C3015CD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ Knightica - сочетает в себе жанры стратегии и сим
 ```bash
 magnet:?xt=urn:btih:4B9CD71B895BBA2444B1A68F040B9DC683B6CD66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ Trailer Park Tycoon: Raccoon Ranch (2025) [Ru/En ] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:1D5A921F0A77734C6101B271DFD054318E4BD487
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ Roman Triumph объединяет самые лучшие черты градо
 ```bash
 magnet:?xt=urn:btih:F9D2FCAEE63CE537632DB3B3E2D4AAE6D0C26B85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ Those Who Rule (2025) [En] (1.4.2) License GOG
 magnet:?xt=urn:btih:B5E9941ADC84A27E6BCD8D13EE5CF87E0022E8A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ The Outer Worlds 2 - долгожданное продолжение титул�
 ```bash
 magnet:?xt=urn:btih:BCB465E6C97AE8ADA6E7B1C6A911592A88C66566
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ Thief's Shelter - это игра, где мир отражает разруша
 magnet:?xt=urn:btih:A4ADFB0E095048AB6814F7F6493E8DD3DA1C2C8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ PowerWash Simulator возвращается! Красота в чистоте! 
 ```bash
 magnet:?xt=urn:btih:2159983C66D1512551C14AD043B28EB7CBB21743
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ Little Nightmares III - это новая часть серии, предста�
 magnet:?xt=urn:btih:25B7A235C0D2DD618AB1AB913B10D981CCD1CCB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ Plus Ultra: Legado - это 2D-метроидвания, основанная н
 ```bash
 magnet:?xt=urn:btih:8E94AC97F24104BB1E5AB8F13B0638B24DB5C5C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

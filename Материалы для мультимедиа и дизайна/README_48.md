@@ -19,6 +19,8 @@ Clarika — это геометрический шрифт без засечек
 magnet:?xt=urn:btih:E14E5FF0E7AE9A23E01D7E986AF2F1A0AFAE4A4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:E14E5FF0E7AE9A23E01D7E986AF2F1A0AFAE4A4C
 magnet:?xt=urn:btih:60E7DFD333EC2EC30F10E4BC327BDC96A9313236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:60E7DFD333EC2EC30F10E4BC327BDC96A9313236
 ```bash
 magnet:?xt=urn:btih:093807C24E3AFBE85BE0CCBE15B896ABA41C4826
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:093807C24E3AFBE85BE0CCBE15B896ABA41C4826
 magnet:?xt=urn:btih:97F7F9B78C64FE1E09065042DAC920806FFF8A76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:97F7F9B78C64FE1E09065042DAC920806FFF8A76
 ```bash
 magnet:?xt=urn:btih:622F3CCF3543D532FCA162C978A813303E00A6FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:622F3CCF3543D532FCA162C978A813303E00A6FA
 magnet:?xt=urn:btih:F7172500A5F3BC83B73B72ED4EFF0BD517DCB2AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:F7172500A5F3BC83B73B72ED4EFF0BD517DCB2AF
 ```bash
 magnet:?xt=urn:btih:399DE2E601F8D6CD3C3D5AC528AF0AC1BCD93196
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:399DE2E601F8D6CD3C3D5AC528AF0AC1BCD93196
 magnet:?xt=urn:btih:2C6E90BD0880851709651E52B390AE9E70509E17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:2C6E90BD0880851709651E52B390AE9E70509E17
 ```bash
 magnet:?xt=urn:btih:154D3AAA252DC0BDF8126D415994757411786F48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Badnick — одно из наших крупнейших семейств шр�
 magnet:?xt=urn:btih:F539C0AA26E243EB118598C3EC87827DD54B332E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:F539C0AA26E243EB118598C3EC87827DD54B332E
 ```bash
 magnet:?xt=urn:btih:7DE82F55572415DEF3103C3B101B6CA67D525E55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:7DE82F55572415DEF3103C3B101B6CA67D525E55
 magnet:?xt=urn:btih:2E13674E653A522D6E3A08F9966F7BBFEB8370EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:2E13674E653A522D6E3A08F9966F7BBFEB8370EF
 ```bash
 magnet:?xt=urn:btih:F129C83029DBE122B6A085BBCCB4EA6737ED494C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:F129C83029DBE122B6A085BBCCB4EA6737ED494C
 magnet:?xt=urn:btih:A34799D39D752558C91E8D6A500D8BD10B129B92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:A34799D39D752558C91E8D6A500D8BD10B129B92
 ```bash
 magnet:?xt=urn:btih:4352BCB3275B3E1DB922AC75AC34587749D1CDF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:4352BCB3275B3E1DB922AC75AC34587749D1CDF2
 magnet:?xt=urn:btih:5B7C9DA3813223975F10B1B149FA5FAD8FE8A6D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:5B7C9DA3813223975F10B1B149FA5FAD8FE8A6D5
 ```bash
 magnet:?xt=urn:btih:C904DA6986FB96EFC01E5D3584CF27914258E5B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Sildetas — элегантный шрифт с высокой контраст�
 magnet:?xt=urn:btih:DF1561BD25D80C4AB97B3E2EE289A019BDC5F5F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:DF1561BD25D80C4AB97B3E2EE289A019BDC5F5F6
 ```bash
 magnet:?xt=urn:btih:3A5ECC8F48755016F9113D02F0B00D7D549D0192
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:3A5ECC8F48755016F9113D02F0B00D7D549D0192
 magnet:?xt=urn:btih:36F4A2F222C8A19EE9F11725753CD04C3EA41DCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:36F4A2F222C8A19EE9F11725753CD04C3EA41DCF
 ```bash
 magnet:?xt=urn:btih:E4505504FE3ED149170FE6A5B1EE889215880A9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ Liquiform — это набор из 50 карт смещения Photoshop и 1
 magnet:?xt=urn:btih:FF15AD14139202323AF89BA06F4FFA5ED6745067
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:FF15AD14139202323AF89BA06F4FFA5ED6745067
 ```bash
 magnet:?xt=urn:btih:4343260D78B3590DF13B0C4FD6DF4D67813F26ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ Tactical — это всего лишь шрифт, пропитанный те�
 magnet:?xt=urn:btih:40779B6C5F333BCF9BE2816968194157E235EA57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:40779B6C5F333BCF9BE2816968194157E235EA57
 magnet:?xt=urn:btih:4133586E653D831BC1E203A083F7B4C9DFBAD088
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:4133586E653D831BC1E203A083F7B4C9DFBAD088
 ```bash
 magnet:?xt=urn:btih:A9776A95A0A0821D21F142087271FA205B4CF2A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,138 +1,3 @@
-###  Публикация: 1580303   (330878) от 01.10.2022
-
-Vanilla Fudge - Vanilla Zeppelin (2005) Remastered, 2022, Golden Robot Records [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330878.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Rock and Roll
-2.Immigrant Song
-3.Ramble On
-4.Dancing Days?(   Читать дальше...   )Жанр: Psychedelic Rock, Stoner RockПродолжительность: 01:02:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:216D30ACCB88F1E9683556A509C13598E2B802A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580236   (330879) от 01.10.2022
-
-Infidel Rising - A Complex Divinity (2022) [FLAC|Lossless|WEB-DL|tracks] <Power, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. State Of Dysphoria
-02. All The Fear
-03. Silence Of The Night
-04. Ov Wormwood(   Читать дальше...   )Жанр: Power, Progressive MetalПродолжительность: 01:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0906BDA2C73C62349A7178E41909AF56C87E2363
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580249   (330880) от 01.10.2022
-
-The Dead Daisies - Radiance (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Face Your Fear
-02. Hypnotize Yourself
-03. Shine On
-04. Radiance(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61942DB5847505B38A5DE032968DE49ECC1FA76F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580358   (330881) от 01.10.2022
-
-Quantum Twilight - Hypersonic Demolition (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Surrender [00:04:38]
-02. Champions [00:05:11]
-03. Intergalactic Onslaught [00:06:53]
-04. Beyond The Walls [00:07:14](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15BA73F4437887EFF61ABCB980AC39AFE186B693
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580297   (330882) от 01.10.2022
-
-Marenna - Voyager (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breaking The Chains
-02. Out Of Line
-03. Gotta Be Strong
-04. Wait(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B519DC953ADE492A4A6941BA95D019947EA46EEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580448   (330883) от 01.10.2022
 
 Живая еда с Сергеем Малозёмовым (01.10.2022) SATRip [H.264]
@@ -153,6 +18,8 @@ magnet:?xt=urn:btih:B519DC953ADE492A4A6941BA95D019947EA46EEF
 ```bash
 magnet:?xt=urn:btih:FD5D51D156494AAD50FB4066BFE64B4891DF0F84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +44,8 @@ magnet:?xt=urn:btih:FD5D51D156494AAD50FB4066BFE64B4891DF0F84
 ```bash
 magnet:?xt=urn:btih:E57DB124A120D7735ED7AC59E60D9CAD1EFEE12B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +74,8 @@ Lord of Confusion - Evil Mystery (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych Sto
 magnet:?xt=urn:btih:C4CC2586C351FF4A51F4C892D44F63AC1919B8B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +103,8 @@ magnet:?xt=urn:btih:C4CC2586C351FF4A51F4C892D44F63AC1919B8B2
 magnet:?xt=urn:btih:972ABFB1219615CB39DBF925A262E702283A5D69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +129,8 @@ Robot God - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Sto
 ```bash
 magnet:?xt=urn:btih:3392CF7603FB7C0E9B2E772FE8D9418B9BAC1824
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +159,8 @@ Autopsy - Morbidity Triumphant (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 magnet:?xt=urn:btih:D3A503A485D429795388D84612435AAE079C67AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +187,8 @@ Roadhouse - Roadhouse (1991) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A8C8E0F84C8AF8C128C96F5A6D8C29E44252A45A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +217,8 @@ Imaginaerium - The Rise Of Medici (2022) [FLAC|Lossless|WEB-DL|tracks] <Progress
 magnet:?xt=urn:btih:FE8506E2157BB396B35E5AA3809D97154A4C7354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +244,8 @@ magnet:?xt=urn:btih:FE8506E2157BB396B35E5AA3809D97154A4C7354
 magnet:?xt=urn:btih:C2EC0B0B75D3187BD35A6CDC24C2C35D94D01A71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +269,8 @@ magnet:?xt=urn:btih:C2EC0B0B75D3187BD35A6CDC24C2C35D94D01A71
 ```bash
 magnet:?xt=urn:btih:61EAFC65291B0077CA372DEEA2A0E8503D97E7F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +296,8 @@ KMSAuto Lite - KMS-активатор для операционных систе
 magnet:?xt=urn:btih:176AE8E96A1CA85C4ACA8961EF8AB33726FFB153
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +322,8 @@ magnet:?xt=urn:btih:176AE8E96A1CA85C4ACA8961EF8AB33726FFB153
 ```bash
 magnet:?xt=urn:btih:A2FE4E41E3EEF40E90AF17DEA640740046936C20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +351,8 @@ magnet:?xt=urn:btih:A2FE4E41E3EEF40E90AF17DEA640740046936C20
 magnet:?xt=urn:btih:AD222C79B66B7D558619A278135E47560FB68A5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +376,8 @@ magnet:?xt=urn:btih:AD222C79B66B7D558619A278135E47560FB68A5D
 ```bash
 magnet:?xt=urn:btih:7ADC8AF6E7CD5A52DB6691D43207F6B2EE89F49E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +405,8 @@ magnet:?xt=urn:btih:7ADC8AF6E7CD5A52DB6691D43207F6B2EE89F49E
 magnet:?xt=urn:btih:0A662BC893B119FD5B39251A5C4363E6D1575750
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +431,8 @@ magnet:?xt=urn:btih:0A662BC893B119FD5B39251A5C4363E6D1575750
 magnet:?xt=urn:btih:52E4CB113768BA476D4EB278C3BD547BF70DD114
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +456,8 @@ magnet:?xt=urn:btih:52E4CB113768BA476D4EB278C3BD547BF70DD114
 ```bash
 magnet:?xt=urn:btih:08DE3BA773AB09F13FB437EBDE866912248698F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +486,8 @@ magnet:?xt=urn:btih:08DE3BA773AB09F13FB437EBDE866912248698F7
 magnet:?xt=urn:btih:7BF1FCCE896E603B49D73EBE833255768482FB25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +513,8 @@ magnet:?xt=urn:btih:7BF1FCCE896E603B49D73EBE833255768482FB25
 magnet:?xt=urn:btih:38AE09B11C6212ACF9D21CB74BE9D6D6FB9B6036
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +539,8 @@ magnet:?xt=urn:btih:38AE09B11C6212ACF9D21CB74BE9D6D6FB9B6036
 magnet:?xt=urn:btih:6D95598960436D533C41969A03008BB3CB4E9508
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +564,145 @@ magnet:?xt=urn:btih:6D95598960436D533C41969A03008BB3CB4E9508
 ```bash
 magnet:?xt=urn:btih:FA07D29D95D89B8CA4CA8B192083A7CBBF55F4D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956012   (330904) от 13.11.2015
+
+Шеф Адам Джонс / Burnt  (2015) CamRip [EN]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330904.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета - история некогда знаменитого шеф-повара, который из-за своего пагубного пристрастия теряет собственный ресторан в Париже, пониженный в рейтинге до унизительных двух звезд. Решив не сдаваться, он вновь собирает свою команду, перестраивает лондонский ресторан и надеется получить три звезды.Производство: США, Double Feature Films, Weinstein Company, Weinstein Company, The, 3 Arts EntertainmentЖанр: драма, комедияРежиссер: Джон УэллсАктеры: Брэдли Купер, Сиенна Миллер, Омар Си, Даниэль Брюль, Риккардо Скамарчио, Ума Турман, Эмма Томпсон, Сэм Кили, Мэттью Риз, Стивен Кэмпбелл МурПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A1481FA62328C99A29AA7C805FEA084452628A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956015   (330905) от 13.11.2015
+
+Сурганова и Оркестр - #МИРУМИР (2015) [AAC|256 кб/с]<Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330905.jpg" />
+</div>
+
+
+###  Подробнее
+
+После многих экспериментов группа возвращается к обычному составу и презентует свой одиннадцатый альбом #МИРУМИР. «В альбоме много танцев, пластики и ритмики, есть и рок-баллады, и лирика, и танцевальные римейки – весь наш музыкальный #мир. Он получился очень большим и разношерстным, но свое главное кредо мы сохранили: говорить о серьезных, философских вещах легко (   Читать дальше...   )01. Гонки
+02. Сердце Юла
+03. #МируМир
+04. Сердце(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B813388E94129CA9815498D4EC84E1DA2785F9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956140   (330907) от 13.11.2015
+
+Comedy Woman  (2015.11.13) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Развлекательное шоу, в котором пресловутая женская логика оказывается как нельзя кстати. Девушки с выдающимся юмором и не менее выдающимися формами не позволят заскучать самому закоренелому снобу и накажут смехом даже законченного шовиниста. Сomedy Woman - место, в котором приятно побывать и не стыдно об этом вспомнить! Особенно зажигательные танцы, очень смешные (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-ШоуПродолжительность: ~ 00:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E538E840F97BF9B585F3069FB9CC0655E510CE93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956208   (330909) от 13.11.2015
+
+Проекты - VideoHive - Funky Fashion Promo - 720537 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу, превью к фильму.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FDC7982060595BB7FB99713364DC896ED483E1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955811   (330911) от 13.11.2015
+
+VA - Cafe Del Mar: ChillWave (2015) [MP3|320 кб/с]<Electronic, Lounge, Deep>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Furns - Forever Yours (05:19)
+02. Artificial - Sal (04:01)
+03. Dromes - Never Going Out (06:05)
+04. IanEwing - Beauty (03:24)(   Читать дальше...   )Производство: Cafe Del Mar MusicЖанр: Electronic, Lounge, DeepПродолжительность: 00:57:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B38F7B77FC929D277E20047D5CC6F7A09C1670C
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

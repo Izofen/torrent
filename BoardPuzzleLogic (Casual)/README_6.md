@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:422CF0CD31B2083E74F750409121EC140869A68F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Filament — это спокойная головоломка с увлекат�
 ```bash
 magnet:?xt=urn:btih:B3850841385235250C772B9A886CB07C4E461610
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ MahJong Suite - это высококачественная коллекция �
 magnet:?xt=urn:btih:A97E5067C47EAB332B410087B49A4BF4EBD730B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Reigns (2016) [Ru/Multi] (1.25) License GOG [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:945DE5150E0BA3557FF2D5E5029AB277BD7D1EE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ UNO (2016) [Ru/Multi] (1.0/upd1/dlc) Repack Other s
 magnet:?xt=urn:btih:1D6042222C7BE69A68C9954C4B1D46C3467F7566
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ SolSuite 2016 – крупнейшая, постоянно дополняема�
 ```bash
 magnet:?xt=urn:btih:4DD0D543E31E6B3AF69F5DC7C1CDB3E144E110E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Rewind - головоломка от первого лица с элемента
 magnet:?xt=urn:btih:BB9E8E3BBF896E18BAB3ADCEBB740D5A03FD9A0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ SHENZHEN I/O – это достаточно сложный симулятор, 
 ```bash
 magnet:?xt=urn:btih:97C389F3C595BA2B75C2E1AD5C7D87E42D7106DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Rooms: The Unsolvable Puzzle / Rooms. Неразрешимая загадка (2
 magnet:?xt=urn:btih:7D4402DC72C34B7AD32B792CDBBDF0C2F2D1CB88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Forgotten Tales: Day of the Dead / Забытые истории. День ме�
 ```bash
 magnet:?xt=urn:btih:C373452B3C8817C6FE521B5EB7EC5340E73D7F58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Emily is Away (2015) [Ru/En] (1.2) Unofficial
 magnet:?xt=urn:btih:E3D2C8177FBD15A90CF3097EC2440096478E89FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Entropy Rising - игра от первого лица, основанная н�
 magnet:?xt=urn:btih:A9A5E1E5C1F363535E0A4B1F82642AA6797DBD5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Coyote's Tale: Fire and Water / Байка Койота. Огонь и вода 
 ```bash
 magnet:?xt=urn:btih:5FE33EE33D0E25BBD5D6C8291D737DDA61DAF8C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:5FE33EE33D0E25BBD5D6C8291D737DDA61DAF8C2
 magnet:?xt=urn:btih:F0BE05532240DB5D4DB1C7A969E119B3D5D0802C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ One Upon Light (2016) [Ru/Multi] (1.0) License TiNYiSO
 magnet:?xt=urn:btih:C51CFFF8C55B7872D1ECE2E2E8ADDD1ADD165F09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Hitman GO: Definitive Edition - переиздание игры Hitman GO, ко�
 ```bash
 magnet:?xt=urn:btih:7CC009FDD2BC306CF8BA2B7EBC467C6849D910D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Reel Deal Slots Adventure III World Tour (L) [En] 2011
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Bejeweled 3 (2010) [En] (1.0.8.6128) Repack вовава
 ```bash
 magnet:?xt=urn:btih:2E5B04DFE8633A258D10465EE522700065F6BB44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Jewel Keepers: Easter Island / Хранители сокровищ: остров
 magnet:?xt=urn:btih:5B4ECAEADCD4AD6447FEF6E6A9D93527D99F69F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ She Remembered Caterpillars - игра-загадка в тревожной эс
 ```bash
 magnet:?xt=urn:btih:C22769A060A8EDC10F06175A76FFD6FD51A96A5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ The Witcher Adventure Game (2014) [Ru/Multi] (1.2.3) SteamRip Let'sРlay
 magnet:?xt=urn:btih:04390518A1A959923E6CC2C46EEA616C2D4F097D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ The Witcher Adventure Game – цифровая версия настольно�
 ```bash
 magnet:?xt=urn:btih:253DAD1F3A0B34552E5A42245C75AAA9D67662A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ Magic: The Gathering - Duels of the Planeswalkers 2014 – новая часть
 magnet:?xt=urn:btih:FD1788835E6836CF48C6EF80A26B1287BFA80E1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Magic 2015 - Duels of the Planeswalkers (2014) [Ru/Multi] (13.11.14/dlc) Unoffic
 ```bash
 magnet:?xt=urn:btih:D2AFF44AAFBE8D4E3D24149848C720D06CEB31A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ Poly Bridge (2015) [Ru/Multi] (1.0) Repack R.G. Механики
 magnet:?xt=urn:btih:29110A034DCF91D6D3450D370BAE7504CA5B7020
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:29110A034DCF91D6D3450D370BAE7504CA5B7020
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

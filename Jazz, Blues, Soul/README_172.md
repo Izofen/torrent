@@ -22,6 +22,8 @@ Azula Queen Quartet - Blues Sem Fronteiras (2023) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:3B683B6241B56F55FD97020E275B49C08DD9D977
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Phil Woods, Gene Quill, Sahib Shihab, Hal Stein - Four Altos (1957) 1991, Origin
 ```bash
 magnet:?xt=urn:btih:10F491C467C6373EC5CFF3C4FDA6E40E8461632F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Corey Congilio - A Good Place To Start (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:8DCCDB2251CFB8DB374A692660CBC875A4B3CAA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Big Chief Monk Boudreaux & Spyboy Jwan Boudreaux - Slip Don't Fall (2025) [FLAC 
 ```bash
 magnet:?xt=urn:btih:EADA369F2E4E85A96E02FC34C67EDE684B6C6E6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Acid Jazz Funk (Vol.4) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, 
 magnet:?xt=urn:btih:AF91334B0F0E4E27F57AEAACC47D6474F402C372
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Timmy Stax - Bay Area Jazz and Soul Lake Merritt Jazz and Soul Revue (2025) [FLA
 ```bash
 magnet:?xt=urn:btih:89F78D6093E06B1D5A84ECA68B29A50E65D9C158
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Satin Groove - More Saxxy (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusio
 magnet:?xt=urn:btih:B53F0F79760827EA168A2C627FB5F7DC3752E9F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ Hugo Race ft. Michelangelo Russo - John Lee Hooker's World Today (2017) [MP3|320
 magnet:?xt=urn:btih:DFB1808F969CD9BA5EBF40CAEDE99A6C8D2A14C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ Martin Scorsese Presents: The Blues - A Musical Journey (5 CD set) (2003) [FLAC|
 ```bash
 magnet:?xt=urn:btih:FC541BF2214DB6BF6E35D38B72592DB3CB9602E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +279,8 @@ James Cotton (1 июля 1935 - 16 марта 2017) входит в десятк
 ```bash
 magnet:?xt=urn:btih:E0F2642DF9A86756B18965CA8B5593D343FBFF8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +310,8 @@ Tony Spinner (родился 9 июня 1963 года в Кейп-Жирардо
 magnet:?xt=urn:btih:61C086B43B21DB5D1189CE91296D38BBC0533253
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +338,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:6BCC5877961896D7840850A8C8C50C700532DF1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +368,8 @@ VA - Series Retro Planet: The Best Of Retro Music (1999) Unofficial Release [FLA
 magnet:?xt=urn:btih:1D86563068B94E001F1F5CFFED09EBD649E560D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +396,8 @@ Tommy Castro - одна из ключевых фигур современног�
 ```bash
 magnet:?xt=urn:btih:0A3ED0C09FFC9B1D828D1E5FC351B40A56AF13FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +426,8 @@ Chris Duarte - 15 Albums (1994 - 2023) 15CD [FLAC|Lossless|image + .cue|tracks +
 magnet:?xt=urn:btih:94A87D8DC045A755CCBCE0DFE1789A7F7A661483
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +454,8 @@ Ally Venable - самая юная из блюз-роковых исполнит
 ```bash
 magnet:?xt=urn:btih:86E125BD5099906A42F388EB34DCF6DBEBFE2022
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +484,8 @@ Van Morrison - Moving On Skiffle (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:D5FB57A148324A3B2C10658F7F74236B68330688
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +512,8 @@ B.B. King - Reflections (2003) Reissue, 2015, Universal Music [FLAC 2.0|192/24|W
 ```bash
 magnet:?xt=urn:btih:6CBB4C63741F1B2BBE86875D2A39C158A4A16197
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +542,8 @@ Van Morrison - Moving On Skiffle (2023) [FLAC 2.0|96/24|WEB-DL|tracks] <Rock, Bl
 magnet:?xt=urn:btih:D789B924EAA33BA10B299A1DB434D9F82E72065D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +570,8 @@ John Haydock - Brush With The Blues, Town Full Of Blues, Brand New Blues (2022) 
 ```bash
 magnet:?xt=urn:btih:B5750915B96639240376BDD873254741C0E6F4D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +600,8 @@ Martin Taylor & David Grisman - I'm Beginning To See The Light (1999) Acoustic D
 magnet:?xt=urn:btih:9B1CE6A1D94EFF0786DC3ED757AEBAA9BFD01F29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +628,8 @@ The Cadillac Kings - Crash And Burn (2023) [FLAC|Lossless|WEB-DL|tracks] <Rockin
 ```bash
 magnet:?xt=urn:btih:B08CECBBB24260BAE899D7719A1C8C0F9BCAB950
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +658,8 @@ Lonnie McIntosh (18 июля 1941 года - 21 апреля 2016 года), и�
 magnet:?xt=urn:btih:0A76AD410DF443EAC40C780D6862D14E2F62E204
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +686,8 @@ Tempra Rose - Blues Of The Soul (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 ```bash
 magnet:?xt=urn:btih:409A08FD22F34C5C076A1F4F54C7B7182A6A4B1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,6 +716,8 @@ Lindsey Buck - The Laundry and the Ecstasy (2025) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:434FE44E240AC5D6A35169E7AF60174D45156FA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ Jay Hooks - Tequila & Bullets (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:C7CBCB0E3A92055940F2A228D87C4A2E53022E11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

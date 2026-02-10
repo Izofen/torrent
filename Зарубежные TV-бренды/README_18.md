@@ -19,6 +19,8 @@ NG: Секреты истории - Эксперименты ЦРУ: Контр�
 magnet:?xt=urn:btih:8F810C3B463A41410A289BEC2375A99DF44ADB2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Discovery: Последние тайны "Титаника" / Last Mysteries of 
 ```bash
 magnet:?xt=urn:btih:BD21786C16A529E375FAEE71409A3FC751345C33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:BD21786C16A529E375FAEE71409A3FC751345C33
 magnet:?xt=urn:btih:45B938EDFCFC8C5777A638AEDCCD04B8E18C14F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:45B938EDFCFC8C5777A638AEDCCD04B8E18C14F9
 ```bash
 magnet:?xt=urn:btih:E5B9A73775639B5069C35CD64052C82064B174A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Discovery: В поисках Святого Грааля / In Search of the Holy
 magnet:?xt=urn:btih:8D518E41497C80D86E0D85F836C77C35A5F4838B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Discovery: Тайны катакомб Ватикана / Mystery Of The Lost Ca
 ```bash
 magnet:?xt=urn:btih:5E81B554FB9F87140A5664561600C3F245545EDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:5E81B554FB9F87140A5664561600C3F245545EDF
 magnet:?xt=urn:btih:121ECB2A47A813768288B9445B2403FBBB070074
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:121ECB2A47A813768288B9445B2403FBBB070074
 ```bash
 magnet:?xt=urn:btih:1CD90A392E7CE75E5548518F6666A6D388C4567A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ BBC Horizon: Плутон: Восставший из мёртвых / Pluto: Bac
 magnet:?xt=urn:btih:CB8575C826F7BA38080E28026F0A5B65B47CD01D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:CB8575C826F7BA38080E28026F0A5B65B47CD01D
 ```bash
 magnet:?xt=urn:btih:A61FB83FF773FFB3361F7B1752785A1B89178F35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:A61FB83FF773FFB3361F7B1752785A1B89178F35
 magnet:?xt=urn:btih:86E046D81153C7FB03A11B6B134E2B3C16863AD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:86E046D81153C7FB03A11B6B134E2B3C16863AD1
 ```bash
 magnet:?xt=urn:btih:E5AB6A08267C135CE6298D5878925718F4B30483
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:E5AB6A08267C135CE6298D5878925718F4B30483
 magnet:?xt=urn:btih:355BA1CA38B9EA52E7B6D07C648964A695DC3E6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ BBC: Хиросима / Hiroshima (2005) DVDRip
 ```bash
 magnet:?xt=urn:btih:596B01E422CEB1E007BEF67D21C006A61E8B79FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 magnet:?xt=urn:btih:54B74300D141DA529E0CC43829F172398CFAE7CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ NG: Земля: Биография Планеты / Earth: Making of a Planet (2
 ```bash
 magnet:?xt=urn:btih:D04EA6E423577B909145E60DBABB48E67423AC36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ NG. 700 Акул / 700 Sharks (2018) WEB-DL [H.264/1080p]
 magnet:?xt=urn:btih:5EF4D6D0479B7B97FE323891F8CCA2AD59D1CBBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ NG. Самая огромная акула-бык / World's Biggest Bull Shark (
 ```bash
 magnet:?xt=urn:btih:ADAA2A4A3B69AEEE8EB488019EACBF4BD009FA26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ NG: Самые опасные животные: От пустыни до сав�
 magnet:?xt=urn:btih:9E0B855CF8A6CC2A450F04EBB4A336478B743F0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ NG. Путешествия с Гордоном Рамзи / Gordon Ramsay - Unch
 ```bash
 magnet:?xt=urn:btih:E3F2E59BA725FB92AF5CE3F7248B0281735E7F6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ NG. Линии Наски: Раскрытые тайны / Nasca Lines: Unlockin
 magnet:?xt=urn:btih:62AD487F0C2016AE7DEB06A9470A5EA7918BA421
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ NG. Затонувшие сокровища нубийских фараонов 
 ```bash
 magnet:?xt=urn:btih:A4502BD30AB00DDF5C8D873571BAF727E5774852
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ magnet:?xt=urn:btih:A4502BD30AB00DDF5C8D873571BAF727E5774852
 magnet:?xt=urn:btih:8D9778BA56E53CAE23A1BFD5656D2AD6EA61993C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 ```bash
 magnet:?xt=urn:btih:A9AB66CE2B3ECB9C4772FB68069636637B029659
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ PBS: Американский опыт: Осуждение Роберта Опп
 magnet:?xt=urn:btih:DCABE69F65ACD66BE0D3A665676CFC0514D970AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ magnet:?xt=urn:btih:DCABE69F65ACD66BE0D3A665676CFC0514D970AE
 ```bash
 magnet:?xt=urn:btih:4C4C70CBE7EC348138EBF0C35E1C89885384BE8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

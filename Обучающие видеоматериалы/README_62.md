@@ -21,6 +21,8 @@ Slurm (Слёрм), Александр Лукьянченко, Георг Гаа
 magnet:?xt=urn:btih:12C43AF9AB0DC69BB235A1CB4C92ED5CB02FF2CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ JS‑разработку здесь рассматривают в разных 
 ```bash
 magnet:?xt=urn:btih:7D82911A6A72AE2EA3E4AC92F2CF292C78216F99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Skillbox, Анна Шепелева, Нина Олейникова  | Анали
 magnet:?xt=urn:btih:53D3D23C9802F7BCAD7794489B12CCECBDB12FAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Learn Squared, Steven Cormann | 3D Matte Painting (2019) WEB-DLRip [RU, EN]
 ```bash
 magnet:?xt=urn:btih:C8F1AE5A8C1131CC31E9F0D598937B6D6F1BCCE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ VFX, что означает визуальные эффекты, — это т�
 magnet:?xt=urn:btih:42F355922CECDD996CFA2ED753B2E14C0925E8F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Udemy, Vicki Lau | VFX Compositing with Nuke: Invisible Visual Effects (2022) WE
 magnet:?xt=urn:btih:DCB0AD46C8A2E6ED3C610F205333117947EDF858
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Udemy, Christ Raharja | The Future of App Development: Text to App AI Generation
 ```bash
 magnet:?xt=urn:btih:0A791D5E4FCC781D09A59265679E2A7D5263756E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:0A791D5E4FCC781D09A59265679E2A7D5263756E
 magnet:?xt=urn:btih:8A60B75423D7C639E7088EC467B94FB00F532C53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ Dream and travel, Сергей Позлевич | Курс по съемке и 
 magnet:?xt=urn:btih:4ECC7BFB632A656D1F190A4263A6C0CC6B8026C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:4ECC7BFB632A656D1F190A4263A6C0CC6B8026C8
 magnet:?xt=urn:btih:2C24D78997A199C92BB6EA0033AE05556859960C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:2C24D78997A199C92BB6EA0033AE05556859960C
 ```bash
 magnet:?xt=urn:btih:B4D8EB72F5BAD363798C5EC723E299C5186905CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ SMM: Вконтакте, Facebook, Instagram, YouTube
 magnet:?xt=urn:btih:CA4DC48EE8B109C5E59D99202E703129ACF4B3FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ Lynda.com | Foundations of Programming: Code Efficiency (2013) PCRec [H.264/720p
 ```bash
 magnet:?xt=urn:btih:12BF49E0FE02204428099AEE438D88F51C2F8F91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ ProfIT | PHP7 - что нужно знать уже сейчас (2015) PCRec [H
 magnet:?xt=urn:btih:4C8BB6B11EB739858BE9AB8C1C09ECE6A38166BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +408,8 @@ magnet:?xt=urn:btih:4C8BB6B11EB739858BE9AB8C1C09ECE6A38166BD
 magnet:?xt=urn:btih:28B2DB730E6B1349714D6CF0E6B2D3FA1A2E8A8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ Profileschool, Никита Чесноков | Моушн дизайн (2022) PC
 ```bash
 magnet:?xt=urn:btih:2E5B49A84DDCCE71DD81C27E4B0CE20C255B0452
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +463,8 @@ Slurm (Слёрм), Роман Панин | Основы информацион�
 magnet:?xt=urn:btih:B7167AE28D9078E6DC6F111348C9C01F238EF942
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +491,8 @@ magnet:?xt=urn:btih:B7167AE28D9078E6DC6F111348C9C01F238EF942
 ```bash
 magnet:?xt=urn:btih:57361CC38016351E9E4C43D1CCDD211E7D2D0253
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +521,8 @@ P.S. Вот такое большое описание...Жанр: Рисова�
 magnet:?xt=urn:btih:26B64D3F2E5A41B15D6FEB55F1E94B7C15AE6B4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +550,8 @@ Why you need this course(   Читать дальше...   )Производст
 magnet:?xt=urn:btih:A26B45FCF235760ABA9D171A84903B197EC47F4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +577,8 @@ Nuke Compositing для 3D-художников — идеальный курс 
 ```bash
 magnet:?xt=urn:btih:686C637616B8CC3257B7690C6F46739BA2BD5E99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +607,8 @@ Slurm (Слёрм), Иван Чувашов | DWH на основе GreenPlum (2
 magnet:?xt=urn:btih:0AEA5E14F8801660056CE65EC56D9426DD5A4022
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +636,8 @@ Thinknetica Pro, Алексей Матюшкин | Разработка на Eli
 magnet:?xt=urn:btih:EE2C81A2F0642E814F66CCDF962301B5BB537928
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +664,8 @@ JUG Ru Group | FrontendConf 2022 - Профессиональная конфер
 magnet:?xt=urn:btih:5BA9F6CA5B9A1F4DA733BAC9D386CB3D0819E7BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +689,8 @@ Udemy, Francis Gorman | AI Security Essentials (2023) WEB-DL [AD] [RU, EN / EN S
 ```bash
 magnet:?xt=urn:btih:C2B9D9678C26D2E626A2F0FC51A9BA4FFBAA8A64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,6 +718,8 @@ Udemy, Arijit Datta | Nuke Full Comprehensive Course For Absolute Beginners Part
 ```bash
 magnet:?xt=urn:btih:F9D23C74E97CB674E5C652587BA0376137619F27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

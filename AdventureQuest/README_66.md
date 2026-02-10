@@ -19,6 +19,8 @@ Art of Murder: Cards of Destiny / Смерть как искусство 3: Ка
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The House of Da Vinci (2017) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F5A7E7645BDA726A9F9B61E806E2465944EC8AD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Black Mirror (2017) [Ru/Multi] (1.0) Repack xatab
 magnet:?xt=urn:btih:699FD374FCC4C7A4356FF1181F657E3E90E51842
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The 9th Gate (2018) [En/Ch] (1.1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:56B127AE03860E96538103708445F14F65ED9C01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Beholder (2016) [Ru/Multi] (1.0.20161118) Repack Dok2
 magnet:?xt=urn:btih:4D36ED1025697817910248E9C159E292A8CE3F13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Republique – затягивающее стелс-экшен приключен
 ```bash
 magnet:?xt=urn:btih:E0A0569151F241A6A560D0B4FE185160C85D662D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Republique – затягивающее стелс-экшен приключен
 magnet:?xt=urn:btih:D3E8D916D64504DD952B58E3BC7453252F968B38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Emily Wants To Play (2015) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:ED7E41F2EDA43994EE9AD083F057367DE0DC73E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Outlast (2013) [Ru/Multi] (1.0.12046.0/dlc) Repack Other s
 magnet:?xt=urn:btih:B6FFFC922BA0FFEB73920BEA9546C6E298514F95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ The Wolf Among Us (2013) [Ru] (1.0.0.1) Repack xatab [Episodes 1-5]
 ```bash
 magnet:?xt=urn:btih:27229CB3490D771E2274F60AEADF9AFCD8711242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ STASIS – это приключенческая игра «укажи и щел
 magnet:?xt=urn:btih:197353F3B6FE8E4FF2DAB95EDCCF1C1BAD897FA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Lost Horizon 2 продолжит историю, начатую в предыд
 ```bash
 magnet:?xt=urn:btih:0CFDE3710806E9F7DCD4DCE89752234A6CA9F83B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Mind: Path to Thalamus – головоломка с видом от перво�
 magnet:?xt=urn:btih:73A6086334816887C0324CB6EFA4B62B0E4F0F06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Lost Horizon / Затерянный горизонт (2010) [Ru/En] (08.12.2015)
 ```bash
 magnet:?xt=urn:btih:F03CC527B638F038072F0662807894BE4934908A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ To the Moon (2011) [Multi] (1.0.0.1/dlc) License GOG
 magnet:?xt=urn:btih:65F8E4D228ADE2D5B4FA32C4F8D32EAD787A6E75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Her Majesty's SPIFFING — забавная приключенческая point
 ```bash
 magnet:?xt=urn:btih:883CC1374C2CCEBEE1C942D9429F9D0E8F460849
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ That Dragon, Cancer – интерактивный пересказ реальн
 magnet:?xt=urn:btih:DE0AA3B3640ED1A9A6BB9861B9AAEAD6D23EF639
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ The Walking Dead: Season One (2012) [Multi] (1.0.0.26/dlc) License GOG [A Tellta
 ```bash
 magnet:?xt=urn:btih:D56152CFB0271B3EC6B787079998051681F41BCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ The Descendant — это приключенческая игра в сетти�
 magnet:?xt=urn:btih:23275557C30503549673E85250631FFA84DD18E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ A Stroke of Fate: Operation Valkyrie / Архивы НКВД: Охота на ф
 ```bash
 magnet:?xt=urn:btih:FD0BEA85926BDDAAB174473690888BF02E3DDD2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ Tales from the Borderlands – эпизодическое приключение
 magnet:?xt=urn:btih:B4D3686255E79707F60803027BE0A3265E073D88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ Forgotton Anne (2018) [Ru/Multi] (1.0/u2) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:C3143637E375D15CCCF70B40961032104C431255
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ Between Me and The Night — из тех игр, что донельзя дуа�
 magnet:?xt=urn:btih:B8465A2F14E0F3161B2F3500F2CCA9D802934F63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ Slender: The Arrival - профессиональный ремейк жутко�
 ```bash
 magnet:?xt=urn:btih:9368C0B56FBEE8917FBC5C59F85286E3CC6A9C30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ Pathologic 2 (2019) [Ru/En] (1.5.29823/dlc) Repack xatab
 magnet:?xt=urn:btih:F4416DDD3EB836C3B936894D18E7059EF78C2B9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Tales of Monkey Island: Collector's Edition / Tales of Monkey Island: Колле
 ```bash
 magnet:?xt=urn:btih:60C312FD0DE8D459A83A0D8C1D1721B5744C6685
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

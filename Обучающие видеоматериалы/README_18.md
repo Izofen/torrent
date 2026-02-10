@@ -19,6 +19,8 @@ OTUS, Виталий Юшкевич | Архитектор высоких наг
 magnet:?xt=urn:btih:6D11D53A5A4828A2974F1C7D61650C1862BA1C5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Java-разработчик - это специалист, который с п�
 ```bash
 magnet:?xt=urn:btih:A67DE51351F11E955DB009F8CB65F4ABC268BA6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:A67DE51351F11E955DB009F8CB65F4ABC268BA6C
 magnet:?xt=urn:btih:FDE62AB16845F15EB878ABACEDFF886E177FF10F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ StableDif, Олег Конюков | Курс по ComfyUI. От основ, д�
 magnet:?xt=urn:btih:566A9419C113733AEB6E86C3E11B2B0EC62D3C05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Freshlife28, Антон Петряков | Практикум осознанно
 ```bash
 magnet:?xt=urn:btih:70C3C469220BEF97D83A647C82E62CBF0F668370
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ Freshlife28, Антон Петряков | Худеем без спорта и �
 magnet:?xt=urn:btih:DEAF4E5D2FD8933E92E2BB0ED266F93E6EEF92E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ Freshlife28, Антон Петряков | Худеем со спортом (202
 ```bash
 magnet:?xt=urn:btih:7A0986109F3D4DC6C472E27857A7DF7792FCCCD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ magnet:?xt=urn:btih:7A0986109F3D4DC6C472E27857A7DF7792FCCCD1
 magnet:?xt=urn:btih:17878116B465C9D27D59277BD44535ADE986E1CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ magnet:?xt=urn:btih:17878116B465C9D27D59277BD44535ADE986E1CC
 ```bash
 magnet:?xt=urn:btih:BB5DAA6DE488218FD3B9497C656C0A3DC13E31E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +275,8 @@ magnet:?xt=urn:btih:BB5DAA6DE488218FD3B9497C656C0A3DC13E31E8
 magnet:?xt=urn:btih:EC97C2B01EEB8A11654BB6F8725C7757BC383956
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +304,8 @@ chemelova.design, Кристина Чемелова | Курс по стройк
 magnet:?xt=urn:btih:B8711E9B9BC5FA4DDD27739D316010DFCFA1C58A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +329,8 @@ magnet:?xt=urn:btih:B8711E9B9BC5FA4DDD27739D316010DFCFA1C58A
 ```bash
 magnet:?xt=urn:btih:3CD558EBC53DE2CA38C1F6C85C47607B5C34C3AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +359,8 @@ magnet:?xt=urn:btih:3CD558EBC53DE2CA38C1F6C85C47607B5C34C3AE
 magnet:?xt=urn:btih:1566B17D459DB6AAB97048CF27150626DAA526F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +388,8 @@ magnet:?xt=urn:btih:1566B17D459DB6AAB97048CF27150626DAA526F7
 magnet:?xt=urn:btih:C90D1B6A3B27526DB9EB23684ED1C1F6C7DA6AC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +416,8 @@ magnet:?xt=urn:btih:C90D1B6A3B27526DB9EB23684ED1C1F6C7DA6AC9
 magnet:?xt=urn:btih:BD63A6B38E848147189E54BB3DC4B70F7B61965B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +443,8 @@ Thehousefx, Will Wallace |  Destruction Training with Thinking Particles (2014) 
 magnet:?xt=urn:btih:4A9A777032129C21E972A4EC1AC1C97D084B7B0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +468,8 @@ magnet:?xt=urn:btih:4A9A777032129C21E972A4EC1AC1C97D084B7B0D
 ```bash
 magnet:?xt=urn:btih:5AC54523D0F0FA6AD960E0A7CD6C5F56B4C1C781
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +496,8 @@ magnet:?xt=urn:btih:5AC54523D0F0FA6AD960E0A7CD6C5F56B4C1C781
 ```bash
 magnet:?xt=urn:btih:D278706E68D281251CED1D98825F2EF7C1337892
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +526,8 @@ HTML Academy | PHP. Профессиональная веб-разработка
 magnet:?xt=urn:btih:0211FFAE87CF576A126ED88C466C4B730C85400D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +554,8 @@ Ruslan Sharipov | Изи навыки - (UX) (2024) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:74823D5A92FA8F59E72F6B6D21CF3AB8EB5FE85D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +584,8 @@ Psy2.0 | Начинающий практик - путь к уверенному 
 magnet:?xt=urn:btih:C7D373EB2F2D813CD96EFB1936DA4783038936ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +611,8 @@ Django - это среда Python для веб-разработки. Он им�
 magnet:?xt=urn:btih:0AA9E9A104B08A375DC805F3862CEAEECBA00A1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +637,8 @@ Guitardo, Александр Литвак | Фортепиано 30 за 30. 1 �
 magnet:?xt=urn:btih:4C2B0106CA8B85378FA440F6D3C5DE3576DEE7FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +662,8 @@ Udemy, Yassine Larayedh | Master Simulations Using Geometry Nodes in Blender (20
 ```bash
 magnet:?xt=urn:btih:147B7ABC47E39971B600E5A0CAEBE7ECF4765A6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +692,8 @@ magnet:?xt=urn:btih:147B7ABC47E39971B600E5A0CAEBE7ECF4765A6C
 magnet:?xt=urn:btih:3B6BE4930C51C96F20E1D67E785934007E437EAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +719,8 @@ Telegram — не просто мессенджер. Это мощный инс�
 ```bash
 magnet:?xt=urn:btih:2B1A480E750C172D4570213C9C3172D6A4E88E9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

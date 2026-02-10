@@ -1,3 +1,148 @@
+###  Публикация: 1148054   (605633) от 04.07.2017
+
+Cliff Wedge - Back To The 80's (2009) 2CD [FLAC|Lossless|image + .cue] <Italo-Disco, Italodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch Me (Radio Edit) (3:25)
+02. I Open Up My Eyes (Radio Edit) (3:44)
+03. Survive (Radio Edit) (3:25)
+04. No One Like U (Radio Edit) (3:46)(   Читать дальше...   )Жанр: Italo-Disco, ItalodanceПродолжительность: 01:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CD43074F7F927CD27F9C8296F22E7D82124C779
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147997   (605635) от 04.07.2017
+
+VA - Rec Top vol. 2 Моя Москва (1995) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Маликов Дмитрий - Прощай, моя блондинка [04:11]
+02. Валерия - Моя Москва [03:29]
+03. Овсиенко Татьяна - Школьная пора [03:38]
+04. Анка - По Парижу [03:03](   Читать дальше...   )Жанр: PopПродолжительность: 01:05:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85237283D19418A01C2236130DDDB8DD36C1886E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 805687   (606043) от 17.07.2014
+
+Батыр (Батырхан Шукенов, ex. A'Studio) - Душа (2013) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Взлетай
+02. Детство
+03. Душа
+04. Дождь(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F23635394525C1A34449BD116E198B91D45EE172
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546451   (606105) от 24.04.2022
+
+Mariah Carey - #1's (1998) Compilation, 2022, Columbia - Legacy [FLAC 2.0|44.1/24|WEB-DL|tracks] <Hip Hop, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweetheart
+02. When You Believe (from "The Prince of Egypt")
+03. Whenever You Call
+04. My All(   Читать дальше...   )Жанр: Hip Hop, Funk, Soul, PopПродолжительность: 01:12:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C968FCA99D3774D8CB1748AF930E3056C5A5833E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546511   (606270) от 24.04.2022
+
+VA - DMC Dance Mixes 291 Dubs (2021) [MP3|320 Kbps] <Electronic, Dubstep, Dance, Nu-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back N Fourth - Best Friend (Dub Edit)
+02. Billy Da Kid X Selekio X Mila Falls - Gossip (Dub Mix)
+03. Clean Bandit X Topic Feat. Wes Nelson - Drive (Mistajam Extended Dub)
+04. Harpoon Feat. Lauren Laimant - Supernova (Random Soul Extended Instrumental Remix)(   Читать дальше...   )Жанр: Electronic, Dubstep, Dance, Nu-DiscoПродолжительность: 01:17:54 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C0DE138986204D23F3106D4E94C0100E747D5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546504   (606273) от 24.04.2022
 
 VA - DMC Dance Mixes 291 Pop (2021) [MP3|320 Kbps] <House, Dance-pop, Drum n Bass, Progressive House>
@@ -21,6 +166,8 @@ VA - DMC Dance Mixes 291 Pop (2021) [MP3|320 Kbps] <House, Dance-pop, Drum n Bas
 ```bash
 magnet:?xt=urn:btih:BB6168D4F8FA563687CEB07252E8EFADCFAD8553
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ CD1:
 magnet:?xt=urn:btih:12F25584CD23972A6BCF3403FEC975882B1963ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +224,8 @@ VA - Eurovision Song Contest Tel Aviv (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:824AA0B5AA9DDB24169801433819A5E926E4CE9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +254,8 @@ Everything but the Girl - Amplified Heart (1994) [FLAC|Lossless|tracks + .cue] <
 magnet:?xt=urn:btih:1DAA33F9764D12BC175C11E1B0EBE636E21C9BDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +282,8 @@ Renee Harris - I'm A Music-Machine (1978) LP [MP3|320 Kbps] <Disco>
 ```bash
 magnet:?xt=urn:btih:D2A7F89D2D0A9B18759D91C8E1C6DEB9D9184CC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +312,8 @@ magnet:?xt=urn:btih:D2A7F89D2D0A9B18759D91C8E1C6DEB9D9184CC0
 magnet:?xt=urn:btih:02E8B8DFCB3347D51147FC7389E38AA29D9B43B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +340,8 @@ VA - Ballermann Stars - Mallorcastyle Opening Hits 2019 (Mallorca Schlager im XX
 ```bash
 magnet:?xt=urn:btih:005FB4AC7E558F4E8AA6199AD9C7E5F05137D9FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +370,8 @@ CD 01:
 magnet:?xt=urn:btih:F39DD0F20B84B96CAD1FEAC6AA3B52AED049C068
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +399,8 @@ Savage Garden - The Singles (2015) [FLAC|tracks+.cue]<Pop, Pop-Rock>
 magnet:?xt=urn:btih:44BB928F4377313A32D0C451AC04BB1AC598F010
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +427,8 @@ VA - В десяточку! лето98 (1998) [FLAC|Lossless|image + .cue]<Pop>
 ```bash
 magnet:?xt=urn:btih:D7D20D06F379AA0B938C96A35B710A2CB6AEC05C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +459,8 @@ CD 01
 magnet:?xt=urn:btih:ECA9FCB23C009769D277DF2EB15F22E5D411744B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +487,8 @@ CD 01
 ```bash
 magnet:?xt=urn:btih:7C7526FE2FE4DFC32E36CADE5E2782B6B3CECFD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +517,8 @@ Savage Garden - The Singles (2015) [MP3|320 кб/с]<Pop, Pop-Rock>
 magnet:?xt=urn:btih:04C3C728E63AB6B86686EB8333B96E377FC6F155
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +545,8 @@ magnet:?xt=urn:btih:04C3C728E63AB6B86686EB8333B96E377FC6F155
 ```bash
 magnet:?xt=urn:btih:DCF5976589A9BD310544711E3EB6A65861A6F7C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +575,8 @@ VA - Hit Rocket (1977) LP [MP3|320 Kbps] <Electronic, Disco, Electro, Pop Rock>
 magnet:?xt=urn:btih:EC91E0140D64DB0A7FC52F25F828E12FB717C7FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +603,8 @@ VA - Super Disco Еxclusive Remix [Vol.1-5] (2022) DJ Lexsus [MP3|320 Kbps] <Dan
 ```bash
 magnet:?xt=urn:btih:196BFD2CA1CFBBD37C5E88E5877327F05C9B71BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +633,8 @@ One Way - Fancy Dancer (1981) Reissue, 2008, Dizzare Records [FLAC|Lossless|trac
 magnet:?xt=urn:btih:EA13BA6A28B7568C4C0C5648AFFD02DE16B7F314
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +661,8 @@ E-Type - Best Of (2009) [FLAC|tracks + .cue]<Eurodance>
 ```bash
 magnet:?xt=urn:btih:7E49496431E026A8349385FEB5EFC5AA68F54DFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +691,8 @@ Sabine Sauvant & Compagnie - To The Music Hit-Makers (1978) LP [MP3|320 Kbps] <E
 magnet:?xt=urn:btih:50A8B45A8656585CAA33A7CE5B98D22FB33999A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +719,8 @@ magnet:?xt=urn:btih:50A8B45A8656585CAA33A7CE5B98D22FB33999A8
 ```bash
 magnet:?xt=urn:btih:D1D49305B5CB57F77AEDA4AE0A267964FA055B8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,146 +749,7 @@ Tricia - Radiate (2013) [MP3|320 Kbps] <Pop, Pop Rock>
 magnet:?xt=urn:btih:9A6E8E50E6D1A4FC1F510B88B4CF359485A701CD
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912877   (608774) от 27.06.2015
-
-Synti Time (Синти Тайм) - Навстречу Мечте (2013) [MP3|320 кб/с]<EuroDisco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Жду тебя
-02. Навстречу мечте
-03. Игра любовь
-04. Время для двоих(   Читать дальше...   )Жанр: EuroDisco, SynthpopПродолжительность: 00:29:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A721949677578A62587A4F08E8A1C01199E56D9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912888   (608918) от 27.06.2015
-
-Азамат Биштов - Сто причин (2011) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Водка-горькая вода [03:40]
-02. Обманула [03:15]
-03. Голубая ночь [03:26]
-04. Мое сердце [03:10](   Читать дальше...   )Жанр: PopПродолжительность: 00:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91326441BED99AA8CDC4739356BCD0C443842D63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524955   (609053) от 20.07.2012
-
-Дюна - The Best 2CD (2012) [MP3|320 кб/с]<Рор>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РорПродолжительность: 01:04:23
-
-01. Синяя река
-02. Это приказ
-03. Сердце
-04. Караганда
-05. Чай, банан и сайра
-06. Волшебный ливень
-07. Солнечный ветер
-08. Наверно старость(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2E438D85E15D649CFE77E5544EDA2BF26114921
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525000   (609244) от 20.07.2012
-
-VA - Hits 2012 (2012) [FLAC|Lossless]<Pop, Rok, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_609244.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Michel Telo - Ai Se Eu Te Pego (2:45)
-2. Sak Noel - Paso (The Nini Anthem) (3:17)
-3. Qwote Feat. Pitbull & Lucenzo - Throw Your Hands Up (Dancar Kuduru) Sagi Abitbul Remix Edit (4:33)
-4. R.I.O. feat. U-Jean - Turn This Club Around (3:18)(   Читать дальше...   )Жанр: Pop, Rok, R&BПродолжительность: 02:31:01
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146652   (609490) от 02.07.2017
-
-The Human League - Greatest Hits (1995) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't You Want Me [03:55]
-02. Love Action (I Believe in Love) [03:48]
-03. Mirror Man [03:48]
-04. Tell Me When [04:39](   Читать дальше...   )Жанр: PopПродолжительность: 01:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20F5CE8E25061C80850F3C79B0EDB289C542BA2F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

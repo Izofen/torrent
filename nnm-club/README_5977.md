@@ -20,6 +20,8 @@ Blender Studio, Simon Thommes | Geometry Nodes from Scratch (2022) PCRec [EN / E
 magnet:?xt=urn:btih:9B635FA3F75BCAEEA910B107CA6C8DFA56998BA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ MacGourmet Deluxe для Mac OS - отличное приложение для �
 ```bash
 magnet:?xt=urn:btih:668E79FB6D12A5E4DC7B8C4071B11A39DBCD994D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:668E79FB6D12A5E4DC7B8C4071B11A39DBCD994D
 magnet:?xt=urn:btih:50D463A7D1E9FD0DB3267C407A40CB64A06DAA3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:50D463A7D1E9FD0DB3267C407A40CB64A06DAA3C
 ```bash
 magnet:?xt=urn:btih:F3E9B9547926CEE396232C18A8FDD9AA6AD81197
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Rebelway, Saber Jlassi | Introduction to Houdini For FX Weeks 1 – 6 (2018) WEB
 magnet:?xt=urn:btih:7BDA79C1A5085C04A663491A0906B32DFFB897E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ VA - Blue Notes & Jazzy Grooves (2020) [AAC|~319 Kbps] <Chillout, Trip-hop, Loun
 ```bash
 magnet:?xt=urn:btih:DEC377D2903850BF24B4F43E503AE5E57EC2C039
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:DEC377D2903850BF24B4F43E503AE5E57EC2C039
 magnet:?xt=urn:btih:7132EB7031755B1E14CA270D6A240FF12AB69F3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ Capture One - один из лучших профессиональных кон
 magnet:?xt=urn:btih:3EA5C275D2CCBB1C7DA4BE9F30E1AF2AA11928DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ Snappy Driver Installer Origin (SDI Origin) - главная ветвь порт
 ```bash
 magnet:?xt=urn:btih:9E9EB5427AB1167A75F5B1BFB3C48D332592BF3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ VA - Echelon, vol. 1 (2020) [AAC|~291 Kbps] <Rap, Hip Hop>
 magnet:?xt=urn:btih:DFB5051E6E690452F3F6F37F79CE0CAFEDCAF947
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:DFB5051E6E690452F3F6F37F79CE0CAFEDCAF947
 magnet:?xt=urn:btih:596830D4AB76CBDA7EB97450EEF0C7CA89262C53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:596830D4AB76CBDA7EB97450EEF0C7CA89262C53
 ```bash
 magnet:?xt=urn:btih:D782391C43D2D202ED2EB70772AE0D3CC38720C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ The Smashing Pumpkins - CYR (2020) [AAC|~318 Kbps] <Alternative, Rock>
 magnet:?xt=urn:btih:344ABC7F79CD0251CFCE45CA88931891A9D2CB17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ Athlantis - 02.02.2020 (2020) [FLAC|Lossless|image + .cue] <Power Metal>
 magnet:?xt=urn:btih:DF04C774B4A908385CC464E6078AD140F4AB6EB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:DF04C774B4A908385CC464E6078AD140F4AB6EB5
 ```bash
 magnet:?xt=urn:btih:5FBB1AC27E13914D2A0B61E53B17078C03C94539
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:5FBB1AC27E13914D2A0B61E53B17078C03C94539
 magnet:?xt=urn:btih:A2038F2F15D41C901C30D1D1CB5719A69CD90EB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ SideNotes - это боковая панель, которая заполнит 
 ```bash
 magnet:?xt=urn:btih:E1858A4F7BF0D3FEB7F6D0D35CD3A779E0803EF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:E1858A4F7BF0D3FEB7F6D0D35CD3A779E0803EF9
 magnet:?xt=urn:btih:EB14D2BF3044BA486B0D5DF5BEBD093877CFDB01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:EB14D2BF3044BA486B0D5DF5BEBD093877CFDB01
 ```bash
 magnet:?xt=urn:btih:5F75A5A7ED44A69C5112FDDFF228EBBC36D29685
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:5F75A5A7ED44A69C5112FDDFF228EBBC36D29685
 magnet:?xt=urn:btih:947643177BEC0F5661DF7BCF3E835DAD42B6F53E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:947643177BEC0F5661DF7BCF3E835DAD42B6F53E
 ```bash
 magnet:?xt=urn:btih:1D43E43D23695114D494F052C2BCD9D0DAB780D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:1D43E43D23695114D494F052C2BCD9D0DAB780D5
 magnet:?xt=urn:btih:E46A4D444EDD68DDDB0A104945CB3FD5F8C25F79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:E46A4D444EDD68DDDB0A104945CB3FD5F8C25F79
 magnet:?xt=urn:btih:B0B39B0B2583A140C6B0DD818D265FDA44D4C0BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:B0B39B0B2583A140C6B0DD818D265FDA44D4C0BF
 ```bash
 magnet:?xt=urn:btih:62A90A78AF0F952A88C96B4D3A9AB409B1C46216
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ deezer
 magnet:?xt=urn:btih:A94ED34647B6340A25D77D41CFEF361F4EE39DCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ ProcessKO 6.11 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2188F7A0A6072B0EFD2318CD66A0CF5FC63B0733
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

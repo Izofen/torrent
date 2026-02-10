@@ -1,57 +1,3 @@
-###  Публикация: 1075433   (321417) от 22.11.2016
-
-Ira Sullivan - Horizons (1967) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.E Flat Tuba G [04:59]
- 02.Norwegian Wood [05:06]
- 03.Everything Happens To Me [05:46]
- 04.Adah [04:58](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CEB9BDA743993617BC91562EE6031C5DBF0ED28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075290   (321418) от 22.11.2016
-
-Фигурное катание. Гран-при сезона 2016-2017 "Кубок Китая-2016". Показательные выступления (20.11.2016) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321418.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 ноября 2016, воскресенье. 09:30 МСК
-5-й Этап серии Гран-при сезона 2016-2017
-"Кубок Китая-2016", Пекин (Китай)
-(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 02:05:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2B544C5A2CCED4E96518225F5AC4C01CD538EC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420953   (321419) от 03.11.2020
 
 VA - Громкие новинки Ноября (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -75,6 +21,8 @@ VA - Громкие новинки Ноября (2020) [MP3|320 Kbps] <Pop, Danc
 ```bash
 magnet:?xt=urn:btih:8778FCCF86278CD042683EE1BC4A03F5BF8C32CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +51,8 @@ CD1:
 magnet:?xt=urn:btih:43F497708CDEC2905D80A1433F9523F68DD2B09B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +76,8 @@ Total Commander 9.51 Podarok Edition + Lite [Ru/Uk]
 ```bash
 magnet:?xt=urn:btih:19ED9A0E94E78C75A6212E69DD0252EAB975EAEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +106,8 @@ magnet:?xt=urn:btih:19ED9A0E94E78C75A6212E69DD0252EAB975EAEE
 magnet:?xt=urn:btih:2B60AFEE403B1DB0BEE3AAE1BABF96A2C085F2A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +131,8 @@ magnet:?xt=urn:btih:2B60AFEE403B1DB0BEE3AAE1BABF96A2C085F2A6
 ```bash
 magnet:?xt=urn:btih:21D82637781546B5AB54F88BC5AAE89CF8C1BBBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +158,8 @@ Windows 10 1909 (18363.1139) x64 Home + Pro + Enterprise (3in1) by Brux v.10.202
 magnet:?xt=urn:btih:20DE94D2659C976D83A79CCB34260B92855CA83A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +183,8 @@ magnet:?xt=urn:btih:20DE94D2659C976D83A79CCB34260B92855CA83A
 ```bash
 magnet:?xt=urn:btih:45CFCFDBC6BA00F78B1F414DF133D89176ACE958
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +210,8 @@ magnet:?xt=urn:btih:45CFCFDBC6BA00F78B1F414DF133D89176ACE958
 magnet:?xt=urn:btih:7F32690463B84A1E9A1E14E6D14A167EC83AB078
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +235,8 @@ magnet:?xt=urn:btih:7F32690463B84A1E9A1E14E6D14A167EC83AB078
 ```bash
 magnet:?xt=urn:btih:83DE50AE6CFDF6717E273776180D533320EA5381
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +265,8 @@ magnet:?xt=urn:btih:83DE50AE6CFDF6717E273776180D533320EA5381
 magnet:?xt=urn:btih:4C90410C1FEBBDFA09939E0CDBDBB4EA428624F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +290,8 @@ magnet:?xt=urn:btih:4C90410C1FEBBDFA09939E0CDBDBB4EA428624F0
 ```bash
 magnet:?xt=urn:btih:C5951C1F85A9A996139EF0F256A6F0B3CB89F356
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +317,8 @@ magnet:?xt=urn:btih:C5951C1F85A9A996139EF0F256A6F0B3CB89F356
 magnet:?xt=urn:btih:D5BB45CB9BDFB935E7A2E577DABC82E5417EEB18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +343,8 @@ magnet:?xt=urn:btih:D5BB45CB9BDFB935E7A2E577DABC82E5417EEB18
 magnet:?xt=urn:btih:ED592D02F707B3FB56AE0ABDB326E03A3103054B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +368,8 @@ magnet:?xt=urn:btih:ED592D02F707B3FB56AE0ABDB326E03A3103054B
 ```bash
 magnet:?xt=urn:btih:33B0A3B44AD362AFDDBCAF302A4E004EB231B16E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +398,8 @@ magnet:?xt=urn:btih:33B0A3B44AD362AFDDBCAF302A4E004EB231B16E
 magnet:?xt=urn:btih:4E4030B3359B77F7FD98942BF29F9EBF0C3FB0A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +423,8 @@ magnet:?xt=urn:btih:4E4030B3359B77F7FD98942BF29F9EBF0C3FB0A1
 ```bash
 magnet:?xt=urn:btih:9799FE8A623C157E88B18C50E2BFE39B1DCCC26F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +453,8 @@ VA - The Remixed Dance Sensations (2017) [MP3|320 Kbps] <Eurodance, Eurodisco, E
 magnet:?xt=urn:btih:2E80B35BB612940F88B85116E4AB379DACCFC393
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +478,8 @@ magnet:?xt=urn:btih:2E80B35BB612940F88B85116E4AB379DACCFC393
 ```bash
 magnet:?xt=urn:btih:7899BFBC18C5BA2B87970C4B063BE114C72FFA67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +505,8 @@ magnet:?xt=urn:btih:7899BFBC18C5BA2B87970C4B063BE114C72FFA67
 magnet:?xt=urn:btih:44EFA75B19DAD099FE0B4DE091460F0AF08DF71E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +530,8 @@ magnet:?xt=urn:btih:44EFA75B19DAD099FE0B4DE091460F0AF08DF71E
 ```bash
 magnet:?xt=urn:btih:2F428215C989DF3AACECDBA23451C94979CCF9DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +557,8 @@ magnet:?xt=urn:btih:2F428215C989DF3AACECDBA23451C94979CCF9DA
 magnet:?xt=urn:btih:1D8C115A651D2FFD4D2570C52887AAA65E36F35B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +582,8 @@ Surfblocker - программа, значительно упрощающая о
 ```bash
 magnet:?xt=urn:btih:63CF0B0E234488F6093A2542227736CA46A45571
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +609,8 @@ magnet:?xt=urn:btih:63CF0B0E234488F6093A2542227736CA46A45571
 magnet:?xt=urn:btih:E0861C06C009399A6FB94177A9D438EA0A8ACDC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +634,63 @@ magnet:?xt=urn:btih:E0861C06C009399A6FB94177A9D438EA0A8ACDC7
 ```bash
 magnet:?xt=urn:btih:0161E66006509BD3FED5F039BE84005B32BFEEA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181920   (321443) от 08.11.2017
+
+WinTools.net Premium 17.10.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321443.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinTools.net – набор инструментов для оптимизации операционной системы Windows. В состав программы входят компоненты для полного удаления нежелательных программ и «мертвых» ссылок реестра, а также для контроля процессов, настройки системы, интернет-соединений и интерфейса. Кроме того, имеются утилиты для надежного хранения конфиденциальной информации.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:277321908A1C9614B40661B0A7500C210BBC8BE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181589   (321444) от 08.11.2017
+
+Павел Воля - Лучшее от ALEXnROCK (2017) [MP3|320 Kbps] <Поп, Рэп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люблю творчество этого парня и то что он делает и в юморе и в музыке. В сборник вошли лучшие треки артиста. Филосовские и смысловые текста наполненные позитивным юмором, и крутые аранжировки. Да прибудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK01 Новое
+02 Наша Russia
+03 Мама, мы все стареем (& Город 312)
+04 Радужная песня(   Читать дальше...   )Жанр: Поп, РэпПродолжительность: 01:22:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AECBB04757484C499780C76E9169FCB1A308A0F5
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

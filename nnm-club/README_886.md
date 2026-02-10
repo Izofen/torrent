@@ -19,6 +19,8 @@ Icebound Secrets: The Frostwood Bane (2025) [Multi] (1.0) Unofficial
 magnet:?xt=urn:btih:74FC73ED536E79D81AEE2AA28AC1A870CA33EB46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:74FC73ED536E79D81AEE2AA28AC1A870CA33EB46
 magnet:?xt=urn:btih:85F1E15E71F8F28BBD8D43C940D4EF3394D5A365
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Sonic Academy - ANA 2 2.5.5 VSTi, VSTi 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:146410F4DF8DAAE3D55E24130FB0736C3963BDD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:146410F4DF8DAAE3D55E24130FB0736C3963BDD5
 magnet:?xt=urn:btih:5292089E99DDF12D8181639C24317C744EAC76A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ RegCool 2.032 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6BA80184E0669FC83A4FA9046B7B0326628F9CCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:1A5C2579B466F8DC588C3078F8ECEFFB22F9B93C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Polarr v6.11.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:996CBAC5383870752F7E1472010C6E9E934B360F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:996CBAC5383870752F7E1472010C6E9E934B360F
 ```bash
 magnet:?xt=urn:btih:6EBCAEEF80BA1B87917B04635ECC9261C9F09A1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ VA - Compilation Part 150 Electronic (2025) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:F39991D01D822C96722F60F507B638B6C73CAD04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:F39991D01D822C96722F60F507B638B6C73CAD04
 magnet:?xt=urn:btih:5DD75164F52BA75B040D951BDB08ED2F30719C60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ Brave - защищенный браузер на базе Chromium, постро
 ```bash
 magnet:?xt=urn:btih:B99A83D0A7426AA1F529776A688B122D7CB0871D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:B99A83D0A7426AA1F529776A688B122D7CB0871D
 magnet:?xt=urn:btih:600200DC659332FDDE19118593A358919141FF45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:600200DC659332FDDE19118593A358919141FF45
 ```bash
 magnet:?xt=urn:btih:D90D7D1B9AF50C3B1B8B230C62A6ED8B3D4BEBFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:D90D7D1B9AF50C3B1B8B230C62A6ED8B3D4BEBFE
 magnet:?xt=urn:btih:5AF717A510076DA440F3723698CA62080E534D8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:3B29D08FCE70C326EA2789D81D61C478E5421850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:3B29D08FCE70C326EA2789D81D61C478E5421850
 magnet:?xt=urn:btih:36D826951934AAB25B9882DFD3CEC9AC850532BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:36D826951934AAB25B9882DFD3CEC9AC850532BA
 magnet:?xt=urn:btih:B20A3160154848FA1E5D4AEC961523366DE9146A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:B20A3160154848FA1E5D4AEC961523366DE9146A
 ```bash
 magnet:?xt=urn:btih:D58C53C7F0F4576B13083A0A489C9FDB64572834
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:D58C53C7F0F4576B13083A0A489C9FDB64572834
 magnet:?xt=urn:btih:2D3475DF2860F4C7D0AA2CAADF19DBD1FDFA8F58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:2D3475DF2860F4C7D0AA2CAADF19DBD1FDFA8F58
 magnet:?xt=urn:btih:C21A3A8E8B071100A3E6CA545B18706E83908058
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:C21A3A8E8B071100A3E6CA545B18706E83908058
 ```bash
 magnet:?xt=urn:btih:DE0D7D2F90BA208DDB102954E5D7947BE156B231
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:DE0D7D2F90BA208DDB102954E5D7947BE156B231
 magnet:?xt=urn:btih:4CB6348FEDE60255EAC3566FD27736AFC3596DB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ Material Pods: батарея AirPods v6.63 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3A744EAE2618297D8D92B9999FDE7237F864FC3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ Presswerk (   Читать дальше...   )Язык интерфейса: А
 magnet:?xt=urn:btih:946C8C2700A57A240AD8917D9E1BEFB120BCF753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ magnet:?xt=urn:btih:946C8C2700A57A240AD8917D9E1BEFB120BCF753
 magnet:?xt=urn:btih:AB28338BE403FB4EA328462A9B2385EE64508E62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ magnet:?xt=urn:btih:AB28338BE403FB4EA328462A9B2385EE64508E62
 ```bash
 magnet:?xt=urn:btih:6A53C5F948919825C813E276D8B7C0D9C83B745E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

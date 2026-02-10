@@ -19,6 +19,8 @@ Vellum (2025) [En] (1.2.0) Repack Necros
 magnet:?xt=urn:btih:397B9D0DDC1AD7484653FFA1CD3624028B141E02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Microtopia - это игра-автоматизация, в которой вы 
 ```bash
 magnet:?xt=urn:btih:AB714DB33DE84FECBB54C3315AF08F6526973DD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Onirism (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:D0A4B5C789A9B1D7897600D04D2056BFDE2B2C86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Death Roads: Tournament (2023) [Ru/Multi] (1.0.9.127) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:346C2F56F858D87EA17BC8589BBBDED171F19CB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Rogue Hex - это карточная roguelite 4X-стратегия, в кот
 magnet:?xt=urn:btih:64B6242155D9FADB7EEAFE20FC02643FD962C697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ GODBREAKERS (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl [Juice Edition]
 ```bash
 magnet:?xt=urn:btih:B1B3069B29BC9E778C9E2980DE8142D445E1C566
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Gunfire Reborn - это приключенческая многоуровнев�
 magnet:?xt=urn:btih:94D7626192B327C0950007F0CE32BC8ACA3D4B84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Phantom Squad погружает вас в хаос тактического б�
 ```bash
 magnet:?xt=urn:btih:B5D9C61157DCA54037C4F42989F35240204F3682
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ ILA A Frosty Glide (2025) [Ru/Multi] (1.0.0.4) Repack FitGirl
 magnet:?xt=urn:btih:94F48039717AC8A6B860002BB0984CF1DE5165FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (2.1.1) Repack Necros
 ```bash
 magnet:?xt=urn:btih:73D7549B9A6150EB1F77AE0F2CD1096E7647E037
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Escape Simulator 2 - это продолжение самого продавае
 magnet:?xt=urn:btih:E25CF56D9AE5DD77A628C70F9B985039DEEFC984
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.0/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:07C26DF26086B0B09DABE927A5132176282480F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Nine Sols - это нарисованный от руки 2D экшен-плат
 magnet:?xt=urn:btih:C785BECFCF687CBA30485FB15FC846F32C26E3F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Dwarf Fortress (2022) [En] (53.02) Repack Necros
 ```bash
 magnet:?xt=urn:btih:9B41F041D268E5AE8EF79252937059D99BF87A6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Alien Shooter 2 - Легенда это масштабное продолжен�
 magnet:?xt=urn:btih:EA554296A49702D5C8293D00A34BC188EA14FC9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Realms of Madness - это фэнтезийная игра в реальном �
 ```bash
 magnet:?xt=urn:btih:E2AC3BA22EB048268B55FF054133AD34A5B2CB61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ THW-Simulator 2012 [Ger] (L) 2012 | ALiAS
 magnet:?xt=urn:btih:DC1FE5728164CAA0560D5CDB4B0ADC675DA76F26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:DC1FE5728164CAA0560D5CDB4B0ADC675DA76F26
 ```bash
 magnet:?xt=urn:btih:A162F77C2116F20B03C071DD3792CA245712FD65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:A162F77C2116F20B03C071DD3792CA245712FD65
 magnet:?xt=urn:btih:2A8CFF08C63CD6E6813692302487C9FED2280CD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Legendary Tales возвращаются с новой историей-прик
 ```bash
 magnet:?xt=urn:btih:57065886E5A3519DF9187D4EB1AB26C74DA4C2AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Citadel Arcanes (P) [En] 2012
 magnet:?xt=urn:btih:356A0999C19761C6DAE97C942544BB02BD5275DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CF450D0F8C8C698C8756E6D12653FE12073C48A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:CF450D0F8C8C698C8756E6D12653FE12073C48A7
 magnet:?xt=urn:btih:F8FFB855A1C069CB3D87FC17E209E77FA8BFE86D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.0/dlc) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:2EF369930146EDDBA0B2CCA4140799E0436967C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ Need for Speed Heat - это гоночная игра в открытом ми�
 magnet:?xt=urn:btih:B4CEBBDC6F01EA67EE364BAF99C2F0C5A8E8DCB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Trailmakers (2019) [Ru/Multi] (213.503.082.0/dlc) Repack Necros [Ultimate Editio
 ```bash
 magnet:?xt=urn:btih:1886809F63B75DF193367070A62F86E5E5E24522
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

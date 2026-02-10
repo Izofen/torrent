@@ -19,6 +19,8 @@ Songs of Conquest (2022) [Ru/Multi] (1.6.3/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:FA2CAA35993590DA3458F7B38B73E763426CCBD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:FA2CAA35993590DA3458F7B38B73E763426CCBD0
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:FA2CAA35993590DA3458F7B38B73E763426CCBD0
 magnet:?xt=urn:btih:B74700D51E9BD280E2F43DF042AB7070AF23D7F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ ByeByeDPI v1.5.7 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D1CD8869032FE55D8DD945E52620D43ED405713A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Grand Theft Auto V (5) Enhanced (2025) [Ru/Multi] (1.0.889.15) Scene Rune
 magnet:?xt=urn:btih:FA5A5A0A2E0E791DD3CE052D9651FFAAFABE12F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:FA5A5A0A2E0E791DD3CE052D9651FFAAFABE12F8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Everspace 2 (2021) [Ru/Multi] (1.4.48188/dlc) Repack Let'sРlay [Complete Editio
 ```bash
 magnet:?xt=urn:btih:6AAA7CDA444479A6D496D22A57DB49ECEBAAFA23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ The Essence - Есенин (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:4EADE0E737E5EE04AAF26E85C86FA7AF37C0E0D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Money — это пакет премиум 3D иконок. Подходит д�
 ```bash
 magnet:?xt=urn:btih:8A0E5759FEF663513EFFDDEF2A49360B97A068CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:8A0E5759FEF663513EFFDDEF2A49360B97A068CE
 magnet:?xt=urn:btih:C609788495751CE65F348E40E01909385F07C7A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:C609788495751CE65F348E40E01909385F07C7A0
 ```bash
 magnet:?xt=urn:btih:BA062419FC8CC49C0A479CA00F7374F97D329EA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Side A:
 magnet:?xt=urn:btih:A7F131B968D96B719760A18DCDED3DE1FC0687B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:A7F131B968D96B719760A18DCDED3DE1FC0687B2
 ```bash
 magnet:?xt=urn:btih:2912199DE301F011A0D79FCC99A6D1D7A3172AEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ AirBrush: ИИ Фоторедактор v7.10.0 Mod by PieMods [Ru/Multi]
 magnet:?xt=urn:btih:CB2A2516AA4B1A26D80A285F9C0D681973A18CEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:CB2A2516AA4B1A26D80A285F9C0D681973A18CEC
 ```bash
 magnet:?xt=urn:btih:60392E2A098CF5B78447F7753A471EEC908CC250
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ The Essence - Есенин (2025) [MP3|320 Kbps] <Pop Rock>
 magnet:?xt=urn:btih:38AA5A1E7758155A42C4E845353D959FC0547AED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:38AA5A1E7758155A42C4E845353D959FC0547AED
 ```bash
 magnet:?xt=urn:btih:069EF9D30B6EB10397B2FD1971D2CFD553B0A5EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:069EF9D30B6EB10397B2FD1971D2CFD553B0A5EA
 magnet:?xt=urn:btih:4EF4D7A7737D595DD363B8B93E86909AC9CAEF7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:4EF4D7A7737D595DD363B8B93E86909AC9CAEF7D
 ```bash
 magnet:?xt=urn:btih:A79002CA89993671A9B090EFFCB2F045FBAB8390
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ VA - Classical Music Golden Age (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 magnet:?xt=urn:btih:1494993B7E5051742F64A65DF4164F7ED9533BDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:1494993B7E5051742F64A65DF4164F7ED9533BDD
 magnet:?xt=urn:btih:298CA24CA5A540E64C19F6811053B1165E13E7D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ City Enigma (2025) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:FA49D9AA8F60D5140E405B2362CA9B731E82E27B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ VA - Music News For Forum vol.108 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:DDC982FE3BF77AF0EF9A15F0F37FFA49F016F32D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:DDC982FE3BF77AF0EF9A15F0F37FFA49F016F32D
 ```bash
 magnet:?xt=urn:btih:85DDDDD722F31933D707E28C47747B097DA6F422
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +661,8 @@ Marc de Loutchek - 2 Albums (2007,2010) [FLAC|Lossless|WEB-DL|tracks] <Русс�
 magnet:?xt=urn:btih:37D8802054DE82324C72886456870C003408493A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ magnet:?xt=urn:btih:37D8802054DE82324C72886456870C003408493A
 ```bash
 magnet:?xt=urn:btih:401A3A6DF32251F214AB17DF1EC0234D0907FEEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

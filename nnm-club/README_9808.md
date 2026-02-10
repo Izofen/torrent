@@ -1,54 +1,3 @@
-###  Публикация: 583354   (315249) от 01.12.2012
-
-Александр Самохвалов | Бонус [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальное произведение - взгляд на альтернативное прошлое и альтернативное будующее одновременно. ГГ из будущего попадает в тело своего прадеда, военного летчика в момент начала Великой Отечественной войны. Оба сознания, прадеда и ГГ дополняют друг друга. Знания и тренировки на симуляторах будущего позволяют ГГ проявить свои сверхспособности в воздушных боях.Жанр: Фантастика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E53236CD71A7DCA5D265A37146AA11B0CDB88F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 728890   (315256) от 30.11.2013
-
-VA - Intelligent Toys: We Make Music (2010) [FLAC|Lossless|WEB-DL]<Dub Techno, IDM, Experimental, Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dub Techno, IDM, Experimental, Techno, Ambient |Продолжительность: 01:22:33
-
-34. aAirial - Anne H (5:31)
-35. Maps And Diagrams - The Adventures Of Roderick Random (4:38)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:511E311BA6BAEB40919C5D22988C05C187A180D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 583165   (315257) от 01.12.2012
 
 Кирпич / Brick (2005) BDRip
@@ -71,6 +20,8 @@ magnet:?xt=urn:btih:511E311BA6BAEB40919C5D22988C05C187A180D0
 ```bash
 magnet:?xt=urn:btih:3FFE8FB472E5A3FD3EAD0857902CDF517300D93A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +47,8 @@ magnet:?xt=urn:btih:3FFE8FB472E5A3FD3EAD0857902CDF517300D93A
 magnet:?xt=urn:btih:9597773DA36CF9BD51D03E48A904D4ACA9EAD521
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +72,8 @@ magnet:?xt=urn:btih:9597773DA36CF9BD51D03E48A904D4ACA9EAD521
 ```bash
 magnet:?xt=urn:btih:C1F0CC979ADD7E93FF2BD26CDA730FD7ECDE35C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +99,8 @@ magnet:?xt=urn:btih:C1F0CC979ADD7E93FF2BD26CDA730FD7ECDE35C2
 magnet:?xt=urn:btih:92E9023E00E11A62A3A3545AD007E86892E2D1BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +125,8 @@ magnet:?xt=urn:btih:92E9023E00E11A62A3A3545AD007E86892E2D1BB
 magnet:?xt=urn:btih:8AA1A7029F8EDC2EF4948A1F59DD508C52E5C9A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +150,8 @@ Hot Wheels: Track Attack [Wii] [PAL] [Multi 5] (2010)
 ```bash
 magnet:?xt=urn:btih:CAC77B34838C42C3BE4F6578E69AF042C5F430B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +178,8 @@ magnet:?xt=urn:btih:CAC77B34838C42C3BE4F6578E69AF042C5F430B9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +205,8 @@ magnet:?xt=urn:btih:CAC77B34838C42C3BE4F6578E69AF042C5F430B9
 magnet:?xt=urn:btih:35C7DF4AA4A8698FE80311D9184299504CBEFB19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +231,8 @@ Choujikuu Seiki Orguss | Super Dimension Century Orguss | Оргусс [1983, TV
 ```bash
 magnet:?xt=urn:btih:E230A294D104EB718ADDE40A84222BDACCDB695D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +261,8 @@ Workout Music Tv - 40 Best Pop Remixes 2020 For Running [MP3|320 Kbps] <Pop, Dan
 magnet:?xt=urn:btih:FAC18D2E5072D36C6FA50390543725EDE0034917
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +290,8 @@ CD- 1:
 magnet:?xt=urn:btih:ED92232D1C24A526E468F5FFC0DBE76233B1049C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +318,8 @@ WhatsApp Messenger - кроссплатформенный мобильный м�
 magnet:?xt=urn:btih:403AFDF37EA8849D74A9973F2A0DF9167C99D3D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +343,8 @@ magnet:?xt=urn:btih:403AFDF37EA8849D74A9973F2A0DF9167C99D3D8
 ```bash
 magnet:?xt=urn:btih:83FDF1662D7832AADEF37F3DE5CA821818AD27CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +370,8 @@ magnet:?xt=urn:btih:83FDF1662D7832AADEF37F3DE5CA821818AD27CF
 magnet:?xt=urn:btih:6831B8A341E3E291973A11F27C1C481F31C9AA09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +395,8 @@ Slimjet 28.0.3.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CE0A7A372767168A1FEB4C8A13375B0636DBA035
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +422,8 @@ magnet:?xt=urn:btih:CE0A7A372767168A1FEB4C8A13375B0636DBA035
 magnet:?xt=urn:btih:A1FA7579CE55552691F7F6D9DB92F9A78852D248
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +447,8 @@ magnet:?xt=urn:btih:A1FA7579CE55552691F7F6D9DB92F9A78852D248
 ```bash
 magnet:?xt=urn:btih:AD090701C4E39B121B19019692E78E5BE7A85328
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +474,8 @@ magnet:?xt=urn:btih:AD090701C4E39B121B19019692E78E5BE7A85328
 magnet:?xt=urn:btih:AAE27442D102B30C5D0C42C952C2B6B7BD681014
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +499,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:0BF5B65B971E4897FB11683DD63F4B9221B88B39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +526,8 @@ magnet:?xt=urn:btih:0BF5B65B971E4897FB11683DD63F4B9221B88B39
 magnet:?xt=urn:btih:D8EC01DEE93BA568E37920065292301E4BE809A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +551,8 @@ Viber для Windows позволяет бесплатно отправлять 
 ```bash
 magnet:?xt=urn:btih:D31AE96F20A23C42F69C1FCC7F579A7CE5CDA2C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +581,8 @@ VA - Zumba & Fitness 2020 [MP3|320 Kbps] <Electro House>
 magnet:?xt=urn:btih:EC20AC2F0248510B4BEC66F335FB91EC55C8B4B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +607,8 @@ magnet:?xt=urn:btih:EC20AC2F0248510B4BEC66F335FB91EC55C8B4B4
 magnet:?xt=urn:btih:E670518A85A329DCF8C7ADD2FEC667F9D8EE034E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +632,66 @@ magnet:?xt=urn:btih:E670518A85A329DCF8C7ADD2FEC667F9D8EE034E
 ```bash
 magnet:?xt=urn:btih:922F583AB8ABB17C2189A12221BB5ECC7FDD99C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421967   (315311) от 06.11.2020
+
+Pole Dance Zone - Erotic Pole Dance Music 2020 [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pole Dance Chillout Music (4:03)
+02. Alluring Look (3:27)
+03. Warm Up Stretching (4:03)
+04. Hot Private Dance (3:31)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFC7A4293CE42FE80C8AC50EF1F34F8AE2ED22E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421934   (315312) от 06.11.2020
+
+Electro Lounge All Stars - Erotic & Sensual Lounge Bar 2020 [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot Lounge and Chillout (7:42)
+02. Velvet Sensations (7:45)
+03. Sensuality Bar (3:43)
+04. Chill Out Sensation (7:43)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:21:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E63379B6EB6EB7BD4492B2BC969BD9717D464B9A
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

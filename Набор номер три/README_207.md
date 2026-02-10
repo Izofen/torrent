@@ -19,6 +19,8 @@ Microsoft Windows Universal StartSoft 35-36 2016 [Ru]
 magnet:?xt=urn:btih:2058EF59D7C5EBB90E7469F1756F0FA5736E2F1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Neverwinter Nights (2005) [En] (1.6.9.0/dlc) License GOG [Diamond Edition]
 ```bash
 magnet:?xt=urn:btih:8B4989C686BFF1B26F5433159A740EEEC35B043A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:8B4989C686BFF1B26F5433159A740EEEC35B043A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Windows 10 Enterprise v1909.449 x64 by molchel [Ru]
 ```bash
 magnet:?xt=urn:btih:F2CAC3CC43E733C3B4DFE7587F19693E2AF9E1A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Agnitum Outpost Firewall - персональный брандмауэр, защ
 magnet:?xt=urn:btih:F42C12A4CFAA341CC608D82EDFD9370584FD77B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:F42C12A4CFAA341CC608D82EDFD9370584FD77B9
 ```bash
 magnet:?xt=urn:btih:01A0A1BBEF34CF9DBEFD4530F785A4D638C70C3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Assassin's Creed: Syndicate / Assassin's Creed: Синдикат (2015) [Ru/Mult
 magnet:?xt=urn:btih:E64B1DE8CD0A31D418E792A635AAF2079DC13F4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Acronis True Image — это интегрированный пакет прог
 ```bash
 magnet:?xt=urn:btih:28A61CB3F68B196A3AF298BE7D1DF59600B3AB6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Adobe Premiere Pro CC 2015 - профессиональная программа
 magnet:?xt=urn:btih:A4B8DAB3E32C3BCAD178EB098B94EABBC10D80A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Advanced SystemCare PRO обеспечивает автоматический в
 ```bash
 magnet:?xt=urn:btih:574D81C469342B15636C7EAA9B71AC4BA4D17B9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Acronis True Image - комплексное приложение для всех
 magnet:?xt=urn:btih:26384CB38C0D8BE8E7D111645D295A5CF9365539
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:26384CB38C0D8BE8E7D111645D295A5CF9365539
 ```bash
 magnet:?xt=urn:btih:9849C6A090D104DDD5E2C6186E6F69A9E471DE4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Assassin's Creed Odyssey / Assassin’s Creed: Одиссея (2018) [Ru/Multi] 
 magnet:?xt=urn:btih:606B5B2015D76DFD13E3D93A5E0F9711BA65529E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:82A62C2C70223ACB9384F4437C8D7F2CD452D9F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:82A62C2C70223ACB9384F4437C8D7F2CD452D9F2
 magnet:?xt=urn:btih:DE53AD4706A3E6F115D5BBFE654E6F8F2C3F3983
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ A Way Out (2018) [Ru/Multi] (1.0) License CPY
 ```bash
 magnet:?xt=urn:btih:900BB85E31BD0421C67333A3C2CABE58D51967B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Need for Speed The Run (2011) [Ru] (1.1.0.0/dlc) Repack xatab
 magnet:?xt=urn:btih:3D12C1F0565B67C084812B8D08FF8ED0721E76B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:3D12C1F0565B67C084812B8D08FF8ED0721E76B8
 ```bash
 magnet:?xt=urn:btih:DD0C2D8C2A4494A3CA9C0A58D20FAB4F973C0EC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ Little Nightmares – это мрачная сказка, которая зас�
 magnet:?xt=urn:btih:B0619333F06A0DAB9DD12BBF53B73917D6A55DA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Microsoft® Windows® 10 Ent 1709 RS3 x86-x64 RU-en-de-uk by OVGorskiy® 11.2017
 magnet:?xt=urn:btih:BE748A30C83634C5EBD14F2C60401816236A39B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:BE748A30C83634C5EBD14F2C60401816236A39B1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ Motion. Анимация для Final Cut
 magnet:?xt=urn:btih:9AD72E20E45B1FBA3C8DD7D9EE8BDCB48D9C1612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ LittleBigPlanet 3 / Little Big Planet 3 [PS3] [EUR] [Ru] [Multi 12] [4.65] (2014
 magnet:?xt=urn:btih:3DE9CEC03078AB9299D3F364CB1D7DDAFBD3662D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ SolveigMM Video Splitter - редактор для MPEG-2, AVI, WMV, ASF, MP4, M
 ```bash
 magnet:?xt=urn:btih:2327824DDF6BD7355FDEC9985E2B85B355572BF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ Windows 7 SP1 х86-x64 by g0dl1ke 20.11.11 [Ru]
 magnet:?xt=urn:btih:AEAEC2C2B84BC32EC842CC6DA1ECF714AAA8C37F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Gorky 17 / Горький-18: Мужская работа (1999) [Ru] (1.0) Unof
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

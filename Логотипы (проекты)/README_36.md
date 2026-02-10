@@ -19,6 +19,8 @@ Dark Roze Logo Reveal - простой, стильный и элегантный
 magnet:?xt=urn:btih:3CC57D14BB82F3E0ECCE9AE7AAC0CE637B108C15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:3CC57D14BB82F3E0ECCE9AE7AAC0CE637B108C15
 ```bash
 magnet:?xt=urn:btih:116418D1B2948C448B92FC8E2568407EAD459A7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Crystalius - Cube Logo - в течение 3-4 минут вы сможете п
 magnet:?xt=urn:btih:F9F56CAA7C750A0F8D65D2FC026E8B47A7C6B8B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:F9F56CAA7C750A0F8D65D2FC026E8B47A7C6B8B9
 ```bash
 magnet:?xt=urn:btih:D65B8B05ABEAB72CCF0248737B48B16CF917A240
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Petals Logo Reveal - очень легко редактируемый проек
 magnet:?xt=urn:btih:820E4409CFBB54664CCCB6A24A61A871AB0BCE3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Brushed Logo Reveal - проект, который подходит для пр�
 ```bash
 magnet:?xt=urn:btih:E6D97602E9BC1D31F976FAE4AAA2729355617E40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Clean Logo V03 Water Ripples - проект для показа вашего л�
 magnet:?xt=urn:btih:8690CA22A5CCEB570D74E20DED8FB7B0A326BF56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Earth Cosmo Logo - шаблон After Effects, анимации своего л�
 ```bash
 magnet:?xt=urn:btih:AE7E34EB7E8098CA33F0364461507E525A3BEA4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:AE7E34EB7E8098CA33F0364461507E525A3BEA4D
 magnet:?xt=urn:btih:DCFB1CCF3896C4060E99DE31199176588269C793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Logo Light Reveal 2 - стильный, световой показ логоти
 magnet:?xt=urn:btih:23793D0CE56CA39126F41C3E30773C32C23B861F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ magnet:?xt=urn:btih:23793D0CE56CA39126F41C3E30773C32C23B861F
 ```bash
 magnet:?xt=urn:btih:AEA6F11CEBD9ACFD4FDA20977EC706D9A188A161
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:AEA6F11CEBD9ACFD4FDA20977EC706D9A188A161
 magnet:?xt=urn:btih:74CBEA00C345FEBAEB59A2518D37759B18BDBABF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:74CBEA00C345FEBAEB59A2518D37759B18BDBABF
 ```bash
 magnet:?xt=urn:btih:5A50A59E2B803D76CCD8F4710860A606E844695D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:5A50A59E2B803D76CCD8F4710860A606E844695D
 magnet:?xt=urn:btih:C73F42B596F8F1D2BAB5C9C44077382181C8DD0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:C73F42B596F8F1D2BAB5C9C44077382181C8DD0E
 ```bash
 magnet:?xt=urn:btih:806A02F67801314770F76AEB3C47A68DFCF54AF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Logo Reveals 5 - это чистый шаблон After Effects со стиль�
 magnet:?xt=urn:btih:02390C9D0AE5B8B7016D9E8D78DBB6814F1FF16B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:02390C9D0AE5B8B7016D9E8D78DBB6814F1FF16B
 ```bash
 magnet:?xt=urn:btih:41A54EF90068992DE34EE5329E742BF57F70E7E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:41A54EF90068992DE34EE5329E742BF57F70E7E9
 magnet:?xt=urn:btih:0E0AAC3D806596FCCFC2F318730DAB638C55FBDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Metal Wings Logo - проект для создания плавной, реал
 ```bash
 magnet:?xt=urn:btih:B34E3F99F80682B9078F99ADF292999C8D2815EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ Abstract Colorful Ribbons Logo - проект для демонстрации л
 magnet:?xt=urn:btih:6B7ADD5ACD09D899E5E505950CEA9754C7097343
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ Neon Glass Audio React Logo - Это впечатляющий звуковой �
 ```bash
 magnet:?xt=urn:btih:6299E0C3CCBB0574FB0DF82FB11989C6CFC64551
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ Golden Elegance Logo - это проект премиум класса, в ко�
 magnet:?xt=urn:btih:36959DC91EF381C6E25C3C083E5C3F79F3C62653
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ Logo Reveals 2 - это чистый шаблон After Effects с минима�
 ```bash
 magnet:?xt=urn:btih:998636224342CC32291A3D536F65131E1B2EB2D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ magnet:?xt=urn:btih:998636224342CC32291A3D536F65131E1B2EB2D9
 magnet:?xt=urn:btih:DBA8FFE5E98C23CBE33CF4F331A2BD13667B2289
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ magnet:?xt=urn:btih:DBA8FFE5E98C23CBE33CF4F331A2BD13667B2289
 magnet:?xt=urn:btih:D6B88D6917A2393FBFC2028ACA7DF42076A5A071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ magnet:?xt=urn:btih:D6B88D6917A2393FBFC2028ACA7DF42076A5A071
 ```bash
 magnet:?xt=urn:btih:9418DBC18B8AD4B86F7B31F151B10CEA3DA13266
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

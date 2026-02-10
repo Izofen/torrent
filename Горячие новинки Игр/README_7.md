@@ -19,6 +19,8 @@ Forgotten Seas – станьте властителем морей или за�
 magnet:?xt=urn:btih:8BFDCAF37115FC1DB5F884ADED606E637B6CDE0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Forgotten Seas – станьте властителем морей или за�
 ```bash
 magnet:?xt=urn:btih:AD4FDCE9D2E68FF47F65D6F7A3FE7647F0E7FDC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dispatch (2025) [Ru/Multi] (1.0.14753/dlc) Repack Wanterlude [Digital Deluxe Edi
 magnet:?xt=urn:btih:0A8F3DF78A26B4C83DCC4DF140E57734600D8D88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Painkiller - это современное переосмысление куль
 ```bash
 magnet:?xt=urn:btih:C973B6F55C4032C5F9D19C7E0C0E8E265885F4FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Painkiller - это современное переосмысление куль
 magnet:?xt=urn:btih:3D77FB8BEC4B92E8822979F0C06D27E0E263C7BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack sele
 ```bash
 magnet:?xt=urn:btih:CFC88D8A60FEE3951C6F3B916DD1A950768ED904
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack FitG
 magnet:?xt=urn:btih:D4E390F0380C8923F0105491AD2F23313AE506BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Dispatch (2025) [Ru/Multi] (1.0.14864/dlc) Repack Other s [Digital Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:EA2741383A34D6AC843A5FB90FF90A7C15B9F6B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Onirism (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 magnet:?xt=urn:btih:95502885601C731261D7E82D243D795DBF2C29D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Plants vs. Zombies: Replanted - это ремастер оригинальной
 ```bash
 magnet:?xt=urn:btih:BD7CCDECC0B1AA93895C90E8C8DBBC57ABD6ADC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Outer Worlds 2 - долгожданное продолжение титул�
 magnet:?xt=urn:btih:5BC80049E34FE034781D99B586754072D25AC960
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Outer Worlds 2 - долгожданное продолжение титул�
 ```bash
 magnet:?xt=urn:btih:43F03D7428AD44D57CA9D0C7362F1540D1249A1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Plants vs. Zombies: Replanted - это ремастер оригинальной
 magnet:?xt=urn:btih:DDDAC6028935099E26AD86F05C2F9BF595A0DFB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.2.0/dlc) Scene Rune [Digital Deluxe Editi
 ```bash
 magnet:?xt=urn:btih:B9D6223A9DF8EFD77E1052FDDF419CA85B83B907
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Arcane Path (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:9E0AF157D4655DBEA644EB9FA229F7398FAA108A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Lone Soul - это рогалик в жанре hack-and-slash, сочетающ
 ```bash
 magnet:?xt=urn:btih:8628A79F143D3B401EB0F9037FA72CBEEB756372
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.2.0/dlc) Repack Other s [Digital Deluxe E
 magnet:?xt=urn:btih:BDAE34627FF8902C76F7455ED707B9418F4D7346
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Farthest Frontier (2025) [Ru/Multi] (1.0.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:67BC9814DD6CB2A0B0A1116DFAC7AB70F5037354
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Bleak Haven - это игра в жанре survival horror, в которой �
 magnet:?xt=urn:btih:225E49872F813F62F852C0C59D901358BA6C4758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Outer Worlds 2 - долгожданное продолжение титул�
 ```bash
 magnet:?xt=urn:btih:8D6F927161274B2568552B3FB836EB1ABE8A8DFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ GODBREAKERS (2025) [Ru/Multi] (Build 20302905/dlc) Repack Let'sРlay [Juice Edit
 magnet:?xt=urn:btih:2E441E787BD42C3B6E6C740B1C32235596D3A095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Lost Eidolons: Veil of the Witch (2024) [Ru/Multi] (1.0.6/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:53A88350711F4F1A33C1030418129879F399CD1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Mushroom Hunter World (2025) [Ru/Multi] (1.0.2) Repack FitGirl
 magnet:?xt=urn:btih:DE514534891E476656F19E005694B3DF4A25E7BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ EMOTIONLESS: The Last Ticket - психологический хоррор от 
 ```bash
 magnet:?xt=urn:btih:6B745243582BD9D71369CDB91027B155FC985CDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ EMOTIONLESS: The Last Ticket - психологический хоррор от 
 magnet:?xt=urn:btih:0DA46D97636B3B506E5320C6FA71A83A8282B152
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Onirism (2025) [Ru/Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:7FF3C70B810070C8E962A47C0313BB4415FB8D38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:ADC3D0758BE272324321E7D3779BB52221DFE70C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ YAATA SMS 1.44.10.21936 Mod by papasha55, unz1p, solokot, Uksus17, Mare12 [Ru/En
 magnet:?xt=urn:btih:DF510E55C022A865BBF8C8BDC92F634C609A7526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:DF510E55C022A865BBF8C8BDC92F634C609A7526
 ```bash
 magnet:?xt=urn:btih:C254A8962EFE5EF7392F8F5887D70313E356F57F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Car Radio v1.1.3 [En] - for Android Stereo Head Units
 magnet:?xt=urn:btih:28FAFE7901F3700F09413C389003D89281FA593F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Tingles ASMR v3.4.1 [Ru/En] - звуки для сна и расслаблени
 ```bash
 magnet:?xt=urn:btih:876F09A40B61EB535A724C85D23AEE5874E4F99D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Picture Mushroom v2.0 [Ru/Multi] - Mushroom ID
 magnet:?xt=urn:btih:72BF177C5CD127BEC8E37892A65004E3747912AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Picture Bird v2.1 [Ru/Multi] - Bird Identifier
 magnet:?xt=urn:btih:9F6246F39F0796629FBA1936C5907AE908685B76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Rock Identifier v1.2 [Ru/Multi]
 magnet:?xt=urn:btih:06F9C44844E6A304008BD60EEB5EB9EE8D0C45EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Atlas Напоминания v1.8.1 Pro [Ru]
 ```bash
 magnet:?xt=urn:btih:6758E5D7186ACFD8D67B98FA4F1069A75966B9DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ VOA Learning English - специальная программа Voice of Americ
 magnet:?xt=urn:btih:EDAEDF5D9F8D849D01FBBE9887CCB816AF6EB3A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ BackCountry Navigator TOPO GPS - Отличный навигатор, с кот�
 ```bash
 magnet:?xt=urn:btih:AC54D98252AFCAA0FD1C836DB3B35A80DBF3BE32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Cinema HD TV v2.3.6.1 Mod [En]
 magnet:?xt=urn:btih:03BDAD99DA131C7C6C770EF7A7AEFA501173BBCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Radardroid Pro v3.73 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:212D16E96110081D407630031C4204B726C2D891
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ First Coloring book \ Первая книжка-раскраска v3.0.2 [Ru/Mu
 magnet:?xt=urn:btih:6E8E5E8592445FCB95539E8BF2FE03318EE785A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Map Marker v2.19.1 [Ru/Multi] - создание собственных мето
 ```bash
 magnet:?xt=urn:btih:0E4B28DFD446DACA9319E1B822D0CF8A27F3873C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:0E4B28DFD446DACA9319E1B822D0CF8A27F3873C
 ```bash
 magnet:?xt=urn:btih:E9A9E1EEE28A048DE353E79798CB67D3CEC86505
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ Piano Ear Training Pro - тренажер для слуха
 magnet:?xt=urn:btih:FBC2F7295B185235DBBC7C05CFAC787B087F2641
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ WiFi Analyzer Pro v3.2.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E76987200CC7E51148A095B3816F88ACCC74312D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ Perfect Player - IPTV/Медиа плеер с интерфейсом ТВ пр�
 magnet:?xt=urn:btih:9A9A52E09A063F06F8541AD75D269260E2E571F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ Vanced YouTube Music v4.18.50 [Ru]
 ```bash
 magnet:?xt=urn:btih:5A3306AF0AFC7F514A1072C3406EAD74B8CA22FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ Legend of Solgard v2.17.4 [Ru/En]
 magnet:?xt=urn:btih:FD8EBECA4D95FEF67DEFC5F041A7E693E8F3E082
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ Into The Badlands: Champions — этот мир построен на кров�
 ```bash
 magnet:?xt=urn:btih:077B4D0C1BF59425CB5160CD1BC137679186CA44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ Avast Cleanup v5.5.0 Premium [Ru] - очистка, ускорение и опт
 magnet:?xt=urn:btih:6D9047971DDB0B2721C33A8E379893AF15BD5A6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ C AVG Cleaner ваше устройство Android будет работать 
 ```bash
 magnet:?xt=urn:btih:FAF92B504562B4C8FFF91C8ACBFECF7121307CB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ FIRST STRIKE – Первый удар - это захватывающий ст�
 magnet:?xt=urn:btih:13C4673E33B577E5F44F4AAE091C3725E76BFCB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ ToonApp - карикатура фоторедактор лучшее прило�
 ```bash
 magnet:?xt=urn:btih:1353EFBBC03B316108145A9F40D90AEAAFE0ADF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ Ummy Video Downloader - отличный инструмент для скачи�
 magnet:?xt=urn:btih:00E93F6AEA429D1DC4E89CAD1AA05324E75970A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:7A20986510DD94EE9A5C782330516069D7D8E453
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Telegram — это приложение для обмена сообщения�
 ```bash
 magnet:?xt=urn:btih:4BE2E46FD85B5314C489AF04EDC543CB89249155
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ VA - Christmas Stocking Filler Pt. 2 (2000) [FLAC|Lossless|tracks + .cue] <Leftf
 magnet:?xt=urn:btih:16BEFCCCF189F2F432C4B5B20AB36754B5B04CAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:16BEFCCCF189F2F432C4B5B20AB36754B5B04CAC
 ```bash
 magnet:?xt=urn:btih:235AAADB47656726A2960B573B8B9786786DB561
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:235AAADB47656726A2960B573B8B9786786DB561
 magnet:?xt=urn:btih:4B6A24EC77296BE9C5DDA3431EBD04882872B014
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Telegram — это приложение для обмена сообщения�
 ```bash
 magnet:?xt=urn:btih:887F46154E9E31D73C914237700ED2AB37E4B168
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ RadioMaximus 2.21.7 RePack (& Portable) by elchupacabra [Ru/En]
 magnet:?xt=urn:btih:029F100D17069F1200E3CA84B383B54E8A20ABD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:0F19D053971CF7FD9A36380E2F735FE1E8225374
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ TechTool Pro — диагностику заказывали?
 ```bash
 magnet:?xt=urn:btih:AFD1CDEFBEB71EE5A4C1F23AA4AC2FE3DAD2EF0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ Clean Cut Kid - Felt (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock, Indie Pop
 magnet:?xt=urn:btih:41D4CD85D1C5F206330F270FEBB77C8E912101BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ VA - Compilation 10 (2010) [MP3|320 kbps]<Industrial / EBM / Dark Electro / Rhyt
 magnet:?xt=urn:btih:7CAAE4D0031840EAEAE4E2EE6620CC06922B695F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ Geek Uninstaller - удобный, маленький и надежный, не 
 ```bash
 magnet:?xt=urn:btih:466715E6EDF1DB2E08C990F34F6690090835B65F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ DCommander для Mac - двухпанельный файловый менедж
 magnet:?xt=urn:btih:0DA28AF55C4EA136A703F4418D57E99699EEC77B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:7D12173017C332BCA07CA0D12B59597D02ACAF4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ Sly5thAve - The Invisible Man: An Orchestral Tribute To Dr. Dre (2017) [FLAC|Los
 magnet:?xt=urn:btih:F2B3DEF8612DB694F56AA9551E3E33C3FE50EAD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ Uconomix uMark PDF Watermarker Professional - программа, которая
 ```bash
 magnet:?xt=urn:btih:4A650DC8998A9D842910EB539F452A1DC2A196E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ VFX Suite также включает в себя (   Читать дальше
 magnet:?xt=urn:btih:98B4E0D55A3E460E1552024D84884B8FCD8C6F41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ VEGAS Movie Studio 16 отличается максимальным удобст
 magnet:?xt=urn:btih:6F4968181BAD353BE4D16F28AAFCFCBB40EDD159
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ Stand Up (2017.12.10) WEB-DLRip (сезон 7, выпуск 11: Дайджест
 ```bash
 magnet:?xt=urn:btih:E682E019BCE05E426CFC726E5201E2201BCFA273
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ Markus Schulz & Dakota - The Nine Skies (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:530E2A1DADCE47D82F84BB800BF37D7BBF776A9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ Juicy J - Rubba Band Business (2017) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 magnet:?xt=urn:btih:73F3FD00ADE4CDBD63B8943889E5E6609E4D64B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:73F3FD00ADE4CDBD63B8943889E5E6609E4D64B7
 magnet:?xt=urn:btih:771D31A8DF960E65CF5732B2676EE30C47B458E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:1B14589F941637EF7396341980B7DC434EFFAA2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +669,8 @@ KeyKey — учимся слепому набору
 magnet:?xt=urn:btih:8D1FA3BAD4FFB824697B47B59E7F6DD6524AF61D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ Statik Selektah - 8 (2017) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, East Coast Ra
 ```bash
 magnet:?xt=urn:btih:0074355C460B35FC1CEC2DBF959C6865BC2F4A64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

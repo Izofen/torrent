@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:96F758EEE5952CB2B38EA917D7CEBB5F5A3B8A8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:96F758EEE5952CB2B38EA917D7CEBB5F5A3B8A8D
 ```bash
 magnet:?xt=urn:btih:8254486A5336925A1016F03DA539186677A0D580
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:8254486A5336925A1016F03DA539186677A0D580
 magnet:?xt=urn:btih:16E6BD0B44702EBED0F0AF9423AA2A8A95F12FB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:16E6BD0B44702EBED0F0AF9423AA2A8A95F12FB3
 ```bash
 magnet:?xt=urn:btih:25059FB4B4DD0B9660297C821EB3E980AAF11434
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:25059FB4B4DD0B9660297C821EB3E980AAF11434
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Senua's Saga: Hellblade 2 - продолжение ролевого экшена
 ```bash
 magnet:?xt=urn:btih:44D2EB6B42C01F258807F36A9E1C020D0EB7693A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ VK объявила о прекращении поддержки мессенд�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ VK объявила о прекращении поддержки мессенд�
 ```bash
 magnet:?xt=urn:btih:3D48A5DA16ABA824E455B2E696EAADB960402D8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:3D48A5DA16ABA824E455B2E696EAADB960402D8B
 magnet:?xt=urn:btih:8116CE4BB7EBDFAFADB0158FD1D896BA8EB11940
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:8116CE4BB7EBDFAFADB0158FD1D896BA8EB11940
 ```bash
 magnet:?xt=urn:btih:2E0BDB72A8ADD76C2805E628D59734BEC2A4802C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:2E0BDB72A8ADD76C2805E628D59734BEC2A4802C
 ```bash
 magnet:?xt=urn:btih:18E79281589E2DAE28FD8F59ED06E98101619002
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:18E79281589E2DAE28FD8F59ED06E98101619002
 magnet:?xt=urn:btih:F5EFE0D0B5E84DEF04EF587BF0D09DF3F4B6EC53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:F5EFE0D0B5E84DEF04EF587BF0D09DF3F4B6EC53
 ```bash
 magnet:?xt=urn:btih:38A1A7E668549AE923DB476FEA9EE4F0F9058C18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Updated to reflect questions found on the most recent ESL tests, this book (3rd 
 magnet:?xt=urn:btih:4B273F64343477922F28BBE357591CE3312FFFEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:4B273F64343477922F28BBE357591CE3312FFFEE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:4B273F64343477922F28BBE357591CE3312FFFEE
 magnet:?xt=urn:btih:6F69E833D499E420A70A947ACC76ED6C6953C201
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:6F69E833D499E420A70A947ACC76ED6C6953C201
 ```bash
 magnet:?xt=urn:btih:59B3EEB5276B750B8174E7C739642F270713D07F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Files Inspector Pro 4.0 [Multi/Ru]
 magnet:?xt=urn:btih:E8BF1D74ACBC19F82C47C668CD61632679D9F3BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ n7player Music Player - весьма впечатляющий своими во�
 magnet:?xt=urn:btih:D3612214A9BC10EC4E2951E6DCBA8CF53174CF33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:D3612214A9BC10EC4E2951E6DCBA8CF53174CF33
 ```bash
 magnet:?xt=urn:btih:FA3FEACC9CFDDF4C03A1542EA769ACB434DF1017
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ FotoJet Photo Editor - позволяет каждому стать экспер
 magnet:?xt=urn:btih:FF63600ABB19810E519038C3B95B5F5EB60410B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:FF63600ABB19810E519038C3B95B5F5EB60410B4
 ```bash
 magnet:?xt=urn:btih:C6D781AFA58C9C50FBE36698814C6CE71456923B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:C6D781AFA58C9C50FBE36698814C6CE71456923B
 magnet:?xt=urn:btih:FD1657A799BE37566327501B46E02A44FD650C06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:FD1657A799BE37566327501B46E02A44FD650C06
 ```bash
 magnet:?xt=urn:btih:82DC3495E845F7820AB48FA52771341E3D81031B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:82DC3495E845F7820AB48FA52771341E3D81031B
 magnet:?xt=urn:btih:DAB8FAA28B5D37DAFE8EE9164F7CED179101F8F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:2C3D33D770C0AE684C606401C23FEB37A54A416F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

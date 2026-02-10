@@ -19,6 +19,8 @@ Beat Cop (2017) [Ru/Multi] (1.1.744) License GOG
 magnet:?xt=urn:btih:F563EAF2214A2653E8C767B717BD64FA75466FE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Tacoma (2017) [Ru/Multi] (121417) License GOG
 ```bash
 magnet:?xt=urn:btih:7CECDFCB3A61B6466B5A60C1D3C3CBB1DFB85670
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Drift Zone (2017) [Multi] (1.0) License PLAZA
 magnet:?xt=urn:btih:845BB33AD5B1FDC973111DC70CBC15373005256A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Phoning Home (2017) [Ru/Multi] (1.3) License PLAZA
 ```bash
 magnet:?xt=urn:btih:75EB253F9659CAA862DF8CBC8FDCDBB0B368B407
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Lost Grimoires 3: The Forgotten Well / Утерянные гримуары 3: З
 magnet:?xt=urn:btih:DE5D720E86FEF923F351F299F4B83501969A8883
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Dreadful Tales 2: The Fire Within / Жуткие истории 2: Огонь в
 ```bash
 magnet:?xt=urn:btih:BE46763466ACF78AFF06023E1FFDAE68B426E005
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Emily Wants to Play Too - игра жанра survival horror о парне из
 magnet:?xt=urn:btih:AAEC3B9598835F8420B58476B6D485957BEE95AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Pandora: First Contact (2013) [Multi] (1.6.7/dlc) License GOG [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:5850BA495EDA2B8C1ED3762F8DF1AD4D0FDF7314
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Sherlock Holmes: Nemesis / Шерлок Холмс против Арсена Л�
 magnet:?xt=urn:btih:18D2DD9A95801F5BF22495E0F978767A32A5DAF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ We Happy Few - экшен-приключение, сценой которому 
 ```bash
 magnet:?xt=urn:btih:77B6A83F1B85CDEA8C95F4CF403FAF68820CCF3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Brukel (2019) [Ru/Multi] (1.0.2) Repack Other s
 magnet:?xt=urn:btih:4964430258A36757A98474DB7CB65DD0B0DCBC44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Fairy Godmother Stories: Cinderella (2019) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:96398D990FFACCA62ADF535F761DBF53C4FA4419
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ MinecraftEdu (2011) [Ru/Multi] (1.7.10 Build 22) License [Minecraft Classroom Ed
 magnet:?xt=urn:btih:688B4E969746683FF42CEE3FA20EE00124D0ED3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Expeditions: Viking (2017) [Ru/Multi] (1.0.7.3/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:A595EB552E48A635B1DFC093FE6035C997E13DDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Hello Neighbor - это интерактивный ужастик, в котор
 magnet:?xt=urn:btih:9F4CC5079004B8EB86BF9D56721F04D929E0F137
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Narcos: Rise of the Cartels — жестокий боевик с элемент�
 ```bash
 magnet:?xt=urn:btih:41800F197BE04263060AD8FCA3625FEA6CAF6CD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ EBONY (2019) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:53506A64AB48F617896F96D6A71C59633B23F241
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Whispered Secrets 10: Dreadful Beauty / Нашептанные секреты 10
 ```bash
 magnet:?xt=urn:btih:0AFA1B3826DBE0D636D049C503C1851B96A7190C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Hello Neighbor - это интерактивный ужастик, в котор
 magnet:?xt=urn:btih:F6F42D8B8D6E6EF9F97FA6D42AD5971F96F9251B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Surge (2017) [Ru/En] (42876/dlc) Repack R.G. Механики [Complete Edit
 ```bash
 magnet:?xt=urn:btih:865EFA5C1148675FF313B8093B08456965CC22D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Rise of the Tomb Raider расскажет о первой экспедиции 
 magnet:?xt=urn:btih:B6C1C28D1F04B2237AE64910453E5F88925CF621
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Red Comrades 3: Return of Alaska. Reloaded / Петька и Василий Ив
 ```bash
 magnet:?xt=urn:btih:FF8030D92AF2AF908F35B277D2FFE48633B5F77D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Tom Clancy's Splinter Cell: Conviction (2010) [Ru/En] (1.04/dlc) Repack Seraph1
 magnet:?xt=urn:btih:365D9B9AD65053D4852342B7DEC9B6F6AF316012
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Spirits of Mystery 12: Whisper of the Past (2018) [En] (1.0) Unofficial [Collect
 ```bash
 magnet:?xt=urn:btih:544ECB30318C6E0A11B6265DDCDD4D6979407A36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Sherlock Holmes: The Awakened / Шерлок Холмс и секрет Ктул
 magnet:?xt=urn:btih:886430CACF8906F811C8BCA5E6F6506CC159671C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Dead Reckoning 8: Lethal Knowledge / Точный расчет 8: Смертел
 ```bash
 magnet:?xt=urn:btih:EEC862CB97B88BD51BA09354D79CBC337ECCF663
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

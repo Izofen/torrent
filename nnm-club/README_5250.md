@@ -22,6 +22,8 @@ Lesbian Bed Death - The Witching Hour (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard
 magnet:?xt=urn:btih:08F60BBB8CB33E28DF9F63E4124A6682C51BE56E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:08F60BBB8CB33E28DF9F63E4124A6682C51BE56E
 ```bash
 magnet:?xt=urn:btih:4100DE43AC918B2ABC820E064C344D024FA329F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Clip Studio Paint EX (ранее Manga Studio EX) - это ведущее в м�
 magnet:?xt=urn:btih:1BD78406505D206802BE8CF21088566CA6D24FCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:904E392E6EB4CC838EB317F26A6CB829BD99C1E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ VA - Romeo & Juliette (Gerard Presgurvic) (2000) [FLAC|Lossless|tracks + .cue] <
 magnet:?xt=urn:btih:44DAD106A6D128F05307B060E79DBD0C8D329BD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:44DAD106A6D128F05307B060E79DBD0C8D329BD4
 magnet:?xt=urn:btih:15E699B9DE8FBCD57095E2F03A536EC5CFE9E535
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:1553DAE2006B1F9DF0F42160861A1C0EA8949111
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Q-Dir позволяет получать быстрый доступ к час�
 ```bash
 magnet:?xt=urn:btih:50B9CC90980E314AA1D3EFB1E67164329FD16F6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:50B9CC90980E314AA1D3EFB1E67164329FD16F6B
 magnet:?xt=urn:btih:DEE3ABA4D99850F0F826B7DD2C5A2BAD36CFA3F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:DEE3ABA4D99850F0F826B7DD2C5A2BAD36CFA3F6
 ```bash
 magnet:?xt=urn:btih:651DEDCDE7344EB74104046135414CB6FC47225A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:651DEDCDE7344EB74104046135414CB6FC47225A
 magnet:?xt=urn:btih:9C74AE57460F10F0B91D1C55EB3D6F5CD1522356
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:9C74AE57460F10F0B91D1C55EB3D6F5CD1522356
 ```bash
 magnet:?xt=urn:btih:60B0A5F8AA87AACABB9C075357B35417E6988696
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ Affinity Designer — самое быстрое, удобное и точное 
 magnet:?xt=urn:btih:F43E78A6A5D6A0D1B91634C0AA886F176BF9469E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:E51ACABF4AE905AD29A01EDE01C09E62C8F81964
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ Schoolism, Craig Mullins | Painting Sci-Fi from Start to Finish (2020) PCRec [EN
 magnet:?xt=urn:btih:841238C219CE8EC645FA44743D7BDED1D041AF78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:841238C219CE8EC645FA44743D7BDED1D041AF78
 ```bash
 magnet:?xt=urn:btih:AF1F0072ADE76CB7296B0A7501D4D30F8D021BDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:AF1F0072ADE76CB7296B0A7501D4D30F8D021BDE
 magnet:?xt=urn:btih:C9E81B18DAB0737B64AB52196E5D45C2D513BF56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ Yuragi-sou no Yuuna-san | Yuuna and the Haunted Hot Springs | Юна из гос
 magnet:?xt=urn:btih:D4DB81D9A33A64575CDFE64FAAB4FEC60D1F63F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:D4DB81D9A33A64575CDFE64FAAB4FEC60D1F63F1
 ```bash
 magnet:?xt=urn:btih:3E1B28C3C9B70367112F1078483A85AF900D39AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ VA - Яростный стройотряд (Repress 2007) [FLAC|Lossless]<Retro,
 magnet:?xt=urn:btih:F3D74031BF404213C690F60D12C434589523A4B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ I БЛОК
 ```bash
 magnet:?xt=urn:btih:73F9839B32EC7DE04FAACF31BE46CCE7D67761FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ Negative — финская глэм-рок-группа, основанная �
 magnet:?xt=urn:btih:82DBE18EB7CD94DC5496D2003782CE9E21B1C26F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ VA - 100 Greatest 2020 Songs [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:FD76DED1C42106CD0327C95592B0015076A91AC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +647,8 @@ magnet:?xt=urn:btih:FD76DED1C42106CD0327C95592B0015076A91AC9
 ```bash
 magnet:?xt=urn:btih:DD1D514AFE50BDA32C52B699170F0B91817DEBB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +677,8 @@ magnet:?xt=urn:btih:DD1D514AFE50BDA32C52B699170F0B91817DEBB8
 magnet:?xt=urn:btih:3B59F1F4D793EDA5A71233E0355818406E765BC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ Su Ta Gar - Alarma (2022) [FLAC 2.0|88/24|tracks|WEB-DL] <Heavy Metal, Speed Met
 ```bash
 magnet:?xt=urn:btih:507A8C35B0DE72DA39D8E83BC0225739856F13E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

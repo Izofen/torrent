@@ -1,3 +1,29 @@
+###  Публикация: 1328121   (365868) от 29.09.2019
+
+Роджер Желязны | Рыцарь Теней (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мерлин проникает в Крепость Четырёх Миров, чтобы в конце концов решить загадку колдуна-преследователя. В активную игру вступают основные силы Вселенной — Огненый Путь и Логрус, знаки Порядка и Хаоса. Мерлин проходит подтеневой мир, спасает друзей и оживляет призраков. Он отказывается от предложенного выбора...Жанр: Классика фэнтезиПродолжительность: 08:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AABCD48DE19CB9CCBD87523DA7539FCCFF709B48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327867   (366038) от 29.09.2019
 
 Джон Беллэрс | Тайна дома с часами (2018) [MP3]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:F4DAA88048D73DA438769942CBB6578506399E85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:F4DAA88048D73DA438769942CBB6578506399E85
 magnet:?xt=urn:btih:181509008733958ED48DC68A43F06EF468FE835A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:181509008733958ED48DC68A43F06EF468FE835A
 ```bash
 magnet:?xt=urn:btih:CB2E2849230D4CD44AC880578188DA1B236D80E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:CB2E2849230D4CD44AC880578188DA1B236D80E2
 magnet:?xt=urn:btih:DFCA05B8A98EAEA4BD9F1D1950BCF95FFAC9EA4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:DFCA05B8A98EAEA4BD9F1D1950BCF95FFAC9EA4B
 magnet:?xt=urn:btih:9BBBBC0D9A9326B62D8EEADC11AEDA3827307626
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:9BBBBC0D9A9326B62D8EEADC11AEDA3827307626
 ```bash
 magnet:?xt=urn:btih:B06C284D65F15520347B9E4E2DBEEE67165B76AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:B06C284D65F15520347B9E4E2DBEEE67165B76AD
 ```bash
 magnet:?xt=urn:btih:0C241994E65E704ADDD566CFA91475219D439075
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +235,8 @@ magnet:?xt=urn:btih:0C241994E65E704ADDD566CFA91475219D439075
 magnet:?xt=urn:btih:F0785491F48D9559F78B26485B28AF5F4454987A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +262,8 @@ magnet:?xt=urn:btih:F0785491F48D9559F78B26485B28AF5F4454987A
 magnet:?xt=urn:btih:D35C29D7012614A3F1DFA86887D70D29AAC7C8CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:D35C29D7012614A3F1DFA86887D70D29AAC7C8CC
 ```bash
 magnet:?xt=urn:btih:A4913594A3CFBCB757D0D9AC2720D5D1ED4913A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +314,8 @@ magnet:?xt=urn:btih:A4913594A3CFBCB757D0D9AC2720D5D1ED4913A3
 magnet:?xt=urn:btih:4EEA30BF8F99E07EFA8509C0448C07383AC06AEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:4EEA30BF8F99E07EFA8509C0448C07383AC06AEA
 ```bash
 magnet:?xt=urn:btih:CF3C22A4197105B37D8FA9756BD8572AFB7199C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:CF3C22A4197105B37D8FA9756BD8572AFB7199C2
 magnet:?xt=urn:btih:2A8073FD0E3B10079CEC38CA6E4186AEC6CE89CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:2A8073FD0E3B10079CEC38CA6E4186AEC6CE89CC
 ```bash
 magnet:?xt=urn:btih:DB97F337DEA8BBE4949F41DAC8A2247756B48BA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:DB97F337DEA8BBE4949F41DAC8A2247756B48BA4
 magnet:?xt=urn:btih:1BAED53EB132BC43F1128D7AC615FF7D328A383D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:1BAED53EB132BC43F1128D7AC615FF7D328A383D
 magnet:?xt=urn:btih:3E98E635F8660007CF5763EA835CECB0356D2F9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:3E98E635F8660007CF5763EA835CECB0356D2F9F
 ```bash
 magnet:?xt=urn:btih:2FD63DE11C966E04A96510CEE3635A313F4B8E5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:2FD63DE11C966E04A96510CEE3635A313F4B8E5A
 magnet:?xt=urn:btih:CE094304344E166F031B89F9ED5E6190E818F432
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +524,8 @@ magnet:?xt=urn:btih:CE094304344E166F031B89F9ED5E6190E818F432
 magnet:?xt=urn:btih:D818EA5FD43085E795EFD8466CBCF4C528DF9196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:D818EA5FD43085E795EFD8466CBCF4C528DF9196
 ```bash
 magnet:?xt=urn:btih:8F9EEBE0F01773BFFCD474D8622ED7C2F5EE9716
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:8F9EEBE0F01773BFFCD474D8622ED7C2F5EE9716
 magnet:?xt=urn:btih:37D9744D532148DD6666EF8BCF61A75BC396853E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:37D9744D532148DD6666EF8BCF61A75BC396853E
 ```bash
 magnet:?xt=urn:btih:4F8E03B0382CEA1A04EEBEF4BB1690D3496D95D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:4F8E03B0382CEA1A04EEBEF4BB1690D3496D95D9
 magnet:?xt=urn:btih:24EBF43EF57217E1A4178B130E09617C5B11C4F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:24EBF43EF57217E1A4178B130E09617C5B11C4F0
 ```bash
 magnet:?xt=urn:btih:FC2DB9AD9C66274DB5F87AE32356E6F04D3F787D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,29 +684,7 @@ magnet:?xt=urn:btih:FC2DB9AD9C66274DB5F87AE32356E6F04D3F787D
 magnet:?xt=urn:btih:310E947BA924220A739B206AB4B71197645CB9C1
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416069   (369242) от 15.10.2020
-
-Александр Башибузук | По ту сторону игры (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все почти банально. Если есть искусственный интеллект, то рано или поздно он сойдет с ума. Искусственный интеллект на то и интеллект, чтобы хоть раз попробовать сыграть в свою игру. А то, что при этом некоторые застряли в чужом теле и в виртуальном пространстве, его не особо волнует. Хотел острых впечатлений – получай по полной. А все началось с того, что внук подарил (   Читать дальше...   )Жанр: Боевая фантастика, Попаданцы, Виртуальные мирыПродолжительность: 09:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:598262865F440F9DA805342211841F76406605A0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

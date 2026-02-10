@@ -19,6 +19,8 @@ Super Mario Maker 2 (2019) [Switch] [USA] 10.0.4 [NSP] [License / 3.0.1] [Ru/Mul
 magnet:?xt=urn:btih:BD0C32B21DBD36C3BA2ADAB2F28D230817956971
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Sonic and the Black Knight (2009) [Wii] [PAL] [License] [En]
 ```bash
 magnet:?xt=urn:btih:B86E676B25A29A509624E9C9BAFFB4E69E5E0219
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ F1 2012 содержит все официальные команды, гонщ�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Tetris, одна из самых известных видеоигр за всю
 ```bash
 magnet:?xt=urn:btih:E57F10C3CE4D8024F0A594DD5CDAC4ED3BBF4A6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Borderlands 2 (2014) [PSVita] [USA] 3.60 [HENkaku] [Repack / 1.09 ] [En]
 magnet:?xt=urn:btih:CBC004199B0C584FA27518C8B2C2D118460D68C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ The Walking Dead Survival Instinct (2013) [Xbox360] [RegionFree] [FreeBoot] [Uno
 ```bash
 magnet:?xt=urn:btih:00CA9FA56F49A5FB8BB161117571505CBE36F2EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Cartoon Network. Punch Time Explosion XL (2011) [PS3] [USA] 3.72 [Cobra ODE / E3
 magnet:?xt=urn:btih:66465DDDF0740C9FBEDB75EF6CB4378B243D26ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Killer Is Dead (2013) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [Ru] | R.G.
 ```bash
 magnet:?xt=urn:btih:B2CC55742FCB5330F22632BAD5B737410C31FBBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Borderlands 2 [Xbox360] [ENG] [Region Free] [LT+ 2.0] (2012)
 ```bash
 magnet:?xt=urn:btih:10155F68A0CA9D7B2815683D6E15C8F5881E168B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ Andoma выпускает приложение под названием Showtim
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ Severed (2016) [WiiU] [USA] 5.3.2 [Loadiine GX2] [eShop] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D5C5894985E99D41CF437931F5C488624DFB4A01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ Resident Evil 5 + DLC (2009) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [Ru]
 magnet:?xt=urn:btih:9E480ECE8E66865E8F2754037B99EBD0B6CF6721
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ Catherine (2011) [PS3] [EUR] 3.41 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [Ru]
 ```bash
 magnet:?xt=urn:btih:5050A70B9C8F6E779D38AB52F16878472CD7AA31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ Ben 10 Ultimate Alien: Cosmic Destruction (2010) [PS3] [EUR] 3.50 [Cobra ODE / E
 magnet:?xt=urn:btih:71CF6E23E633A55DC1A0AADDF2736042C43214FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ Ninja Gaiden Sigma 2 (2009) [PS3] [USA] 2.80 [CFW] [Cobra ODE / E3 ODE PRO ISO] 
 ```bash
 magnet:?xt=urn:btih:838F48794E986E7550F16A4E46EC8228279F147C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ Stuntman: Ignition (2007) [PS3] [USA] 1.82 [Cobra ODE / E3 ODE PRO ISO] [License
 magnet:?xt=urn:btih:8E07CA8E0673D94623121CBC1AD57A6C224170ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ Transformers: Rise Of The Dark Spark связывает вселенные Cyber
 ```bash
 magnet:?xt=urn:btih:4731E5744CDC6A8DFFBBBCDEB9E802FCD650318A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ Titan Quest — ролевой экшен в стиле Diablo, разработ
 ```bash
 magnet:?xt=urn:btih:B981134B6045E6F24CCB8DA8B138F7502D4C01A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ Paper Mario: Color Splash (2016) [WiiU] [USA] 5.3.2 [Loadiine GX2] [License] [En
 magnet:?xt=urn:btih:8161986426AA4F2128D4D22975FAF13FCFE32E9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ Terminator Salvation: The Videogame / Терминатор: Да придет с
 ```bash
 magnet:?xt=urn:btih:3B627FBB4D12B4936E380DA2B50FAB5294A12DD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ DOOM (2016) [PS4] [EUR] 5.05 [HEN] [License / 1.12] [Ru/Multi]
 magnet:?xt=urn:btih:97F80FCB3A095A2D348C2F4356566A8D67BF4013
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:97F80FCB3A095A2D348C2F4356566A8D67BF4013
 ```bash
 magnet:?xt=urn:btih:5322B357D7080D24ABAC22CE7518AF8C088ED8AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ Dragon Age: Origins Awakening / Dragon Age: Начало Пробуждение 
 magnet:?xt=urn:btih:3873DA88E2D5B27EE42CA18E919CCD4459CD6ABF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ FIFA 16 – это инновации во всем. Окунитесь в сб�
 magnet:?xt=urn:btih:492A1C4AAEFA3259D5CD25AF4526E08DA62F08B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ Pro Evolution Soccer 2016 / PES 2016 (2015) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE
 magnet:?xt=urn:btih:EFAA348B85FC7CDA1AA475972556741EC9895D83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ Detroit: Become Human / Detroit: Стать человеком (2018) [PS4] [EUR
 ```bash
 magnet:?xt=urn:btih:CB4230B2405E44FB8A532E3CA4B53A93DD5A8A97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

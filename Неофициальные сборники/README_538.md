@@ -1,3 +1,32 @@
+###  Публикация: 1008712   (813946) от 19.04.2016
+
+Андрей Дубов - Начинается путь (2016) [MP3|320 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аленушка
+02. Белый парус
+03. Вестница прошлого
+04. Дальняя дорога(   Читать дальше...   )Жанр: ShansonПродолжительность: 00:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AF590FC6762C1B75C7861D38D45C0E0666D8855
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 777003   (814090) от 14.04.2014
 
 Simply Red - 25 Best Songs (2014) [MP3|~245 кб/с]<Pop, Soul>
@@ -21,6 +50,8 @@ Simply Red - 25 Best Songs (2014) [MP3|~245 кб/с]<Pop, Soul>
 ```bash
 magnet:?xt=urn:btih:F4E80FB1305D96C739DDEC406C429D1D9F4FADAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -51,6 +82,8 @@ VA - The Official UK Top 40 Singles Chart (13-04-2014) [MP3|320 кб/с]<Pop, Da
 magnet:?xt=urn:btih:B7BF6326E6326176F0724C8F84ECAC0F3606B548
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -77,6 +110,8 @@ VA - Club Dance Dependence vol.5 (2017) [MP3|320 Kbps] <Club , Dance , Mash Up>
 ```bash
 magnet:?xt=urn:btih:439AE47C6E098234D78949FD6E36C08728161707
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -105,6 +140,8 @@ Blues Company - 30 most slow Blues 2CD (2017) [MP3|320 Kbps] <Blues>
 magnet:?xt=urn:btih:39CC0DC07C9D8FB1702FA186842C7F2B890FDFC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -131,6 +168,8 @@ VA - Hard Rock Classics (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:F16D70DFD5BF3112655E1C4D94F9DD7B8D9283C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -159,6 +198,8 @@ VA - Чартова дюжина. Итоги 2017 (2018) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:5285544E4EFF92171D712ABA2251CA74FA953B8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -185,6 +226,8 @@ VA - Best Funk Of All Time (2020) [MP3|320 Kbps] <R&B, Soul & Funk>
 ```bash
 magnet:?xt=urn:btih:28B909D183BCD8454C2B7F11594A229F3EBD240A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +256,8 @@ VA - Romantic Soul Music (2020) [MP3|320 Kbps] <Soul & Funk, R&B>
 magnet:?xt=urn:btih:E40D330FC5B9B0F0AB62E779586D539B98F864A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +284,8 @@ VA - Kraftsport Mix (2020) [MP3|320 Kbps] <Rock,  Hip Hop, Other>
 ```bash
 magnet:?xt=urn:btih:B16779F8EEC608BF369822F889955A45566DD1D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +314,8 @@ VA - Chillout Hits Vol.3 (2017) [MP3|320 Kbps] <Chillout, Chilltrap>
 magnet:?xt=urn:btih:6990C6B097B509C6304918E8383B21B4918C0DD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +342,8 @@ VA - Private Lounge - Spring Session (2017) [MP3|320 Kbps] <Lounge, Chillout, De
 ```bash
 magnet:?xt=urn:btih:BCB80BE60616C210EABD1C3E2AF62C569FCC83B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +372,8 @@ VA - Feel Good Dance (2020) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:EDC16D6E00441E8B01013BF0AF3641A729489A09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +400,8 @@ VA - Beatport Trance Pack (23.03.) (2017) [MP3|320 Kbps] <Trance, Uplifting Tran
 ```bash
 magnet:?xt=urn:btih:A015355608B7879D6AEA4932FF52D2005AD97D2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +430,8 @@ VA - Tech House Vol. 3 (2017) b84 Version [MP3|320 Kbps] <Techno, Tech-House>
 magnet:?xt=urn:btih:A988F97CA96E9E66AC5A712461A5445024C69B71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +458,8 @@ VA - Tech House Vol. 2 (2017) b84 Version [MP3|320 Kbps] <Techno, Tech-House>
 ```bash
 magnet:?xt=urn:btih:F9BC74CA49D9548FF3AE91C0F54AF357CFAA9241
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +488,8 @@ VA - Classical in Jazz: 15 New Jazz Version of Classical Masterpieces (2016) [MP
 magnet:?xt=urn:btih:FC9256C339D31E2A3450D4289098E26274B6629A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +516,8 @@ VA - Record Super Chart #518 (2018) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:71A857CDB99E3F2D3A6D5D63BA9A494525D27E75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +546,8 @@ VA - Лучшие диджеи мира (2021) [MP3|320 Kbps] <Club House, Dance
 magnet:?xt=urn:btih:67E2316A075FE8F16CD3B431DC239EE450D9A3BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +574,8 @@ VA - Riviera Jazz Lougin (2016) [MP3|320 кб/с] <Jazz>
 ```bash
 magnet:?xt=urn:btih:D8CB91FE4548C772DED474AD6A041EF057DBF5AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +604,8 @@ magnet:?xt=urn:btih:D8CB91FE4548C772DED474AD6A041EF057DBF5AD
 magnet:?xt=urn:btih:28935FD51E43492D19091EBB537E5BCD395309CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +632,8 @@ magnet:?xt=urn:btih:28935FD51E43492D19091EBB537E5BCD395309CE
 ```bash
 magnet:?xt=urn:btih:DA2B572333FC521ECCD522D9D0DF0A3A87191064
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +662,8 @@ VA - Ночь в дороге (2016) [MP3|256 кб/с] <Shanson>
 magnet:?xt=urn:btih:8B8F48565FA32B2379E61CCE6A74F1E36AE8207F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +690,8 @@ VA - Resident Advisor Top 50 Charted Tracks March (2016) [MP3|320 кб/с] <Tech
 ```bash
 magnet:?xt=urn:btih:EBC7CD469E82F5B114114637733B18327D4A1B73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +720,8 @@ VA - Uplifting Spring Addiction (2016) [MP3|320 кб/с] <Trance>
 magnet:?xt=urn:btih:30B363BB0B69AD49EF50F90F8358EDFA090AB6F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,32 +749,7 @@ VA - Дискотека 80-90 годов по-новому. Зарубежный
 magnet:?xt=urn:btih:45826C08B705C8923A0295E8D0E0B8DB120B1B76
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 776897   (816505) от 13.04.2014
-
-VA - Lounge At The Seashore 9 (2014) [MP3|320 кб/с]<Lounge, Chill Out, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816505.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. New Edge - Solstice (feat. Iva from White Slaver)
-002. Koan - Tears of Thunder Spirit - Blue Mix
-003. Tycho - Dye
-004. Adil Ahanu - Long Desert Ride(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:17:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5C3B7908136F124F0B59DEA28650044CE3D8028
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

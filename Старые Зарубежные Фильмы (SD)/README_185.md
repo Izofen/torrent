@@ -1,27 +1,3 @@
-###  Публикация: 1509736   (794036) от 13.11.2021
-
-Соблазнительница / The Temptress (1911) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794036.jpg" />
-</div>
-
-
-###  Подробнее
-
-На вечеринке художников и музыкантов в доме скрипача Василия (sic!) и его возлюбленной Эйлин,  Клео де Беллвиль знакомится со скрипачем, впечатляется им и решает заполучить талантливого музыканта. Она соблазняет глупого молодого человека. Позже Клео сообщает Василию, что ее дядя собирается лишить ее наследства, и раскрывает ему план, с помощью которого она может покончить (   Читать дальше...   )Производство: США, The Essanay Film Manufacturing CompanyЖанр: Драма, короткометражный, немое киноРежиссер: Нет сведенийАктеры: Лотти БрискоПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:14:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDA97D54D429A94B6C52EA3A7FD778C66FA9AB18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274129   (794121) от 06.01.2019
 
 Белая башня / The White Tower (1950) DVDRip [H.264] [VO]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:FDA97D54D429A94B6C52EA3A7FD778C66FA9AB18
 ```bash
 magnet:?xt=urn:btih:2CC6EE11E57477C631D8CB13833361DF83775358
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:2CC6EE11E57477C631D8CB13833361DF83775358
 magnet:?xt=urn:btih:2E5AAAD0EFBAD02623C4E46D21CDFC92936F2AED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:2E5AAAD0EFBAD02623C4E46D21CDFC92936F2AED
 ```bash
 magnet:?xt=urn:btih:F3C6391BBB8F755C2C666E20DF3B8CC06373DB3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:F3C6391BBB8F755C2C666E20DF3B8CC06373DB3D
 magnet:?xt=urn:btih:E119292CFAD304341CF2883A4B5E62AC090C5ABA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:E119292CFAD304341CF2883A4B5E62AC090C5ABA
 ```bash
 magnet:?xt=urn:btih:3BD4B63991639DCC020EBC0C538BE1B647894CAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:3BD4B63991639DCC020EBC0C538BE1B647894CAD
 magnet:?xt=urn:btih:FBA334A6490094024B3C3B518EBD2B5DFE817AE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:FBA334A6490094024B3C3B518EBD2B5DFE817AE7
 ```bash
 magnet:?xt=urn:btih:F5986B4E5DE3C2D0D63FEB82C35857524C9F7991
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:F5986B4E5DE3C2D0D63FEB82C35857524C9F7991
 magnet:?xt=urn:btih:00B66CA3025D7739B979CE586F3934815A2D7901
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:00B66CA3025D7739B979CE586F3934815A2D7901
 ```bash
 magnet:?xt=urn:btih:C805CCBE1DABF940E3F84719536D61F908FF9AA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:C805CCBE1DABF940E3F84719536D61F908FF9AA1
 magnet:?xt=urn:btih:CF87F263E344C54165CAAC1E64D6CBEBDD4FBFD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ magnet:?xt=urn:btih:CF87F263E344C54165CAAC1E64D6CBEBDD4FBFD6
 magnet:?xt=urn:btih:6913B795B900488306D6F738E719BDCDCAC179C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +304,8 @@ magnet:?xt=urn:btih:6913B795B900488306D6F738E719BDCDCAC179C8
 ```bash
 magnet:?xt=urn:btih:F61B7CB6A125AD4D776B3ED25A7B728B43CC1E1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +332,8 @@ magnet:?xt=urn:btih:F61B7CB6A125AD4D776B3ED25A7B728B43CC1E1C
 magnet:?xt=urn:btih:3A26DE976FC051B362CAE44173E43988B6001462
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +359,8 @@ magnet:?xt=urn:btih:3A26DE976FC051B362CAE44173E43988B6001462
 magnet:?xt=urn:btih:F4FCBD98C2B379F8428139C38C893846A1C1E205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +384,8 @@ magnet:?xt=urn:btih:F4FCBD98C2B379F8428139C38C893846A1C1E205
 ```bash
 magnet:?xt=urn:btih:AC09EF6D0FA55F7F0F2721197BE2F46FF947E56A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:AC09EF6D0FA55F7F0F2721197BE2F46FF947E56A
 magnet:?xt=urn:btih:302AA392857563CFDF7CB57809C2EBFF191123E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +436,8 @@ magnet:?xt=urn:btih:302AA392857563CFDF7CB57809C2EBFF191123E4
 ```bash
 magnet:?xt=urn:btih:D3E01C36EEF71514C90BD5D752FC7A445A01147A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:D3E01C36EEF71514C90BD5D752FC7A445A01147A
 magnet:?xt=urn:btih:134B4737007FF23D649F1541A997C9DEA5A42858
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +488,8 @@ magnet:?xt=urn:btih:134B4737007FF23D649F1541A997C9DEA5A42858
 ```bash
 magnet:?xt=urn:btih:82983B0064197465D4D2FCF5BDF1C06E0DD14C3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +515,8 @@ magnet:?xt=urn:btih:82983B0064197465D4D2FCF5BDF1C06E0DD14C3A
 magnet:?xt=urn:btih:2572F9FB7BC5A8788A70C0006661D50219F3AC03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +540,8 @@ magnet:?xt=urn:btih:2572F9FB7BC5A8788A70C0006661D50219F3AC03
 ```bash
 magnet:?xt=urn:btih:4EE674BA85CF613F1B2B37440397470CFCF40973
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +567,8 @@ magnet:?xt=urn:btih:4EE674BA85CF613F1B2B37440397470CFCF40973
 magnet:?xt=urn:btih:978F91270F702303B251465E3BC76D8E0A7EAD8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +592,8 @@ magnet:?xt=urn:btih:978F91270F702303B251465E3BC76D8E0A7EAD8C
 ```bash
 magnet:?xt=urn:btih:417A08CD8B18EB8D02106D339BAE3CA0C97005D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +620,8 @@ magnet:?xt=urn:btih:417A08CD8B18EB8D02106D339BAE3CA0C97005D7
 magnet:?xt=urn:btih:89E6ED220AACAE69F096803E53D55F4DE18DC5E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +645,34 @@ magnet:?xt=urn:btih:89E6ED220AACAE69F096803E53D55F4DE18DC5E1
 ```bash
 magnet:?xt=urn:btih:91EBA18938EFAB43F991070EEE7C04AAE3AC8836
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507804   (798262) от 05.11.2021
+
+Мэри Пикфорд. Природа женщины / The Female of the Species (1912) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четверо поселенцев из разорённого шахтёрского городка — женщина с мужем и сестрой и молодая девушка — вынуждены отправиться в опасное путешествие через пустыню. Муж главной героини умирает вскоре после того, как она узнаёт, что у него есть чувства к их молодой спутнице. Три женщины продолжают свой путь, но тяготы пустыни и жажда мести неумолимо наращивают напряжение (   Читать дальше...   )Производство: США, Biograph CompanyЖанр: Драма, короткометражный, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Чарльз Уэст, Клер Макдауэлл, Мэри Пикфорд, Дороти БернардПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A71B9D9F990862271828B7FC8D4FFD2B571BD320
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

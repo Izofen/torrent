@@ -19,6 +19,8 @@ Scratches: Director's Cut / Шорох: Последний визит (2007) [Ru
 magnet:?xt=urn:btih:213976E198E2F0F4B86E3D2A2455B0A85CAFB8C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Stranglehold — высокотехнологичный компьютерный
 magnet:?xt=urn:btih:1CCF7F92AFB82E38E1E00650DBE41D823D862A9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Evil Dead: Hail to the King (2001) [Ru/En] (1.0.0.0) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:6A90F1347CD31C79C36F7B8746A964652AC9227B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Onimusha: Warlords / Onimusha: Путь самурая [Ru/En/Jp] (Repack/1.2) 2
 magnet:?xt=urn:btih:0981193CF686EA73F7FA57518FFC5A4F51B73BC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Psychonauts (2005) [Ru/Multi] (1.1.603.0/dlc) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:4A2EB169D8570522D39A8E305C24D474584D0AD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Evil Dead: Regeneration (2005) [Ru/En] (1.0) Repack R.G. Revenants
 magnet:?xt=urn:btih:B7C6EA121D12E46B0625129D87356534C09753D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Vampire: The Masquerade - Bloodlines (2004) [Multi] (1.2/10.2) License GOG
 ```bash
 magnet:?xt=urn:btih:DEF1628922EECBBF49E0C401DC7B25B4118B8C11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Rugby 20 (2020) [Multi] (1.0.0) License HOODLUM
 magnet:?xt=urn:btih:577E50CB60172958A5193E1C1C8D4A36B717F9A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Meet the Robinsons / В гости к Робинсонам (2007) [Ru] (1.0) Lic
 ```bash
 magnet:?xt=urn:btih:1B4F4EB461A4267EFACB6DFD9AD4181913B1B849
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Re-Volt [En/Multi8] (RePack/1.2a12.1225) 1999 | R.G. Revenants
 magnet:?xt=urn:btih:CA0A3E26188AE0472324871FDF6B6CA2E98A6E82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ MediEvil 2 навсегда стала одной из тех игр, котор
 magnet:?xt=urn:btih:48B2E7E85AAD8E1716F44D5280C0531EA94321E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Zoo Tycoon [Ru/En] (P) 2001 | 7Wolf
 ```bash
 magnet:?xt=urn:btih:7782EA1E4FE7F2A11B74A3385D0149C7584D2A00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ Shadow Watch [Ru] (P) 2000
 magnet:?xt=urn:btih:C3E9BD886909CAD22C58143144DB972DFD139CB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Call to Power 2 (2000) [En] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:53BD52A183354A0699B0D6F3241B172047B750E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Jade Empire (2005) [Ru] (1.00) Repack xatab [Special Edition]
 magnet:?xt=urn:btih:0F5AF4AD6A1A6E30865A96774A93AA76BF25F54E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Secret Files: Tunguska (2009) [En] (1.02) License GOG
 ```bash
 magnet:?xt=urn:btih:A11848A15CE221BA58BD9A87A63C0E4C47A7DEEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ Back to the Future — компьютерная игра в жанре квес�
 magnet:?xt=urn:btih:FF5251B3C632A42FEAA2960DCC71148B9E9A151F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Shadoworlds (1992) [En] (0.9.1) License GOG
 ```bash
 magnet:?xt=urn:btih:F9A896E437CAF6B75502306E431647EB45165029
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ West of Dead (2020) [Ru/Multi] (1.11.8.29/dlc) License GOG [Path of the Crow Del
 magnet:?xt=urn:btih:4A6836C4BCAAB01D2449D6A4119B75BC06F4E21D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Breath of Fire IV (2003) [Ru/En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9E78594089D6C3341E421976410FDE986F2DA21D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ Breath of Fire IV (4) (2003) [Ru/En] (1.0) Repack R.G. Revenants
 magnet:?xt=urn:btih:0F0016A517C648A40AB7D25EFD61CBCB90307A54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Breath of Fire IV (4) (2003) [En] (1.0) License DEViANCE
 ```bash
 magnet:?xt=urn:btih:01F1FE16B33C50328255E457F3306CCABB3118A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Olympus 2207 (2014) [Ru] (1.2) Mod NebesaGames
 magnet:?xt=urn:btih:0584719AAD6EE2E56CADD0A5BF4392A29C45A9B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Slipways берёт жанр космической грандиозной ст�
 ```bash
 magnet:?xt=urn:btih:CE2F8F32ACAD0D768C05E2D744C7E9ED63D25759
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:CE2F8F32ACAD0D768C05E2D744C7E9ED63D25759
 magnet:?xt=urn:btih:C013EA518B6AEA2396EE69A8CA491B6A255C4EE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Nancy Drew: Curse of Blackmoor Manor / Нэнси Дрю: Проклятье п�
 ```bash
 magnet:?xt=urn:btih:F3F74EDC0AD3FCA46CB06580DAB4655F1768CFDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

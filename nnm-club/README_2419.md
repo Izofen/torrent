@@ -19,6 +19,8 @@ WinRAR - один из самых известных архиваторов. Т�
 magnet:?xt=urn:btih:1A3A0A6A67E2FABD16F7739534E09367A5A4818E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:1A3A0A6A67E2FABD16F7739534E09367A5A4818E
 ```bash
 magnet:?xt=urn:btih:ACD89B8C9DB3C137EF18E2A0FD1FEA336DBFFC56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:ACD89B8C9DB3C137EF18E2A0FD1FEA336DBFFC56
 magnet:?xt=urn:btih:7E449F42B36EC686EDA712D5554A616DA1ACB10A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:7E449F42B36EC686EDA712D5554A616DA1ACB10A
 magnet:?xt=urn:btih:5013CA4187DE4F300D492BA74330F186DE9E2F2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:5013CA4187DE4F300D492BA74330F186DE9E2F2A
 ```bash
 magnet:?xt=urn:btih:99F11354D84D4D503765F88F67D765FDD7D36E5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:99F11354D84D4D503765F88F67D765FDD7D36E5F
 magnet:?xt=urn:btih:02392ABD57DCCE7ACE7D1888340B2BF5C7C8BBCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:02392ABD57DCCE7ACE7D1888340B2BF5C7C8BBCA
 magnet:?xt=urn:btih:BA5C3BE6414B52A56C7085B3D25A4DD6047787CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Tailwind CSS — это новый интересный CSS-фреймворк, 
 ```bash
 magnet:?xt=urn:btih:A5054ECA88F63F8E13A19449AF29C621C5250D56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:A5054ECA88F63F8E13A19449AF29C621C5250D56
 magnet:?xt=urn:btih:C51D321E2B1036883D09F2C07073B3EC267A740A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Rob Chapman, Peter Holmes | Observability with Grafana (2024) [PDF][EN]
 magnet:?xt=urn:btih:07D5BF64BD1A82E1196FFDD854C0C3A16D806143
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:07D5BF64BD1A82E1196FFDD854C0C3A16D806143
 ```bash
 magnet:?xt=urn:btih:95BFC127E5FBB7656AA2DB14C318C0E0E55B9806
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:95BFC127E5FBB7656AA2DB14C318C0E0E55B9806
 magnet:?xt=urn:btih:5B09D6319A61166A4B5261B7229EF4FD858DED50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:5B09D6319A61166A4B5261B7229EF4FD858DED50
 magnet:?xt=urn:btih:A9D4EB6EFC37F7F92A238FC597039C50C13D0C79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:A9D4EB6EFC37F7F92A238FC597039C50C13D0C79
 ```bash
 magnet:?xt=urn:btih:43C4C8D4B954A757E6D1E8283300F303A5F3FBA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:43C4C8D4B954A757E6D1E8283300F303A5F3FBA9
 magnet:?xt=urn:btih:F4DEED18E572A179AF2189FECE719760B01B556D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:F4DEED18E572A179AF2189FECE719760B01B556D
 ```bash
 magnet:?xt=urn:btih:DCC4FD5BE569B729BC1C30129420EB76E0EC35F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:DCC4FD5BE569B729BC1C30129420EB76E0EC35F2
 magnet:?xt=urn:btih:B64DE91C45C238A5A05C45EE08293D675BC3AD72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:B64DE91C45C238A5A05C45EE08293D675BC3AD72
 ```bash
 magnet:?xt=urn:btih:69C9C1753462A6FD6E101ECC64256BE6F5C025D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ BBC. Шедевры мировой архитектуры / Adventures in Archit
 magnet:?xt=urn:btih:F94D18F1231D1D39A2A2E8EDDEC6C9CA6B270270
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ FxSound (ранее DFX Audio Enhancer) - отличное приложение,
 ```bash
 magnet:?xt=urn:btih:E5AE85FCD6E94A176CAE0EF01C0E1571F0A57E33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ CrossOver создаётся компанией CodeWeavers на основе и
 magnet:?xt=urn:btih:25BC807C88334867D62D62FA8B6F8CF21617713B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:25BC807C88334867D62D62FA8B6F8CF21617713B
 ```bash
 magnet:?xt=urn:btih:AD9D329AAC8C54A732A5C15E58074137D9948B60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:AD9D329AAC8C54A732A5C15E58074137D9948B60
 magnet:?xt=urn:btih:E5A60372FD9BF12DEA863DFE2DDD6C0636F2A39D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:E5A60372FD9BF12DEA863DFE2DDD6C0636F2A39D
 ```bash
 magnet:?xt=urn:btih:81E92BC0364DF6A55C2C4D651B0651FE8F21A03C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:81E92BC0364DF6A55C2C4D651B0651FE8F21A03C
 magnet:?xt=urn:btih:4029FCAEE51D01EE72F426672654A33A09A0F611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:4029FCAEE51D01EE72F426672654A33A09A0F611
 ```bash
 magnet:?xt=urn:btih:589DCA5D739545A25E90E2DA5131F4E015BA9C91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

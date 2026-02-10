@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:2FA1CDE36E3726B17AD5B88F7391E8F1EBF40323
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Frontend-разработчик создаёт интерфейсы, с кото
 ```bash
 magnet:?xt=urn:btih:C5B79A1180984C30DC6C599F37D9F5E9F24984D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ Rotating Navigation Animation(   Читать дальше...   )Произво�
 magnet:?xt=urn:btih:CD14FF472677063753CBAEE737837EA314005077
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Jay Lay рассказывает о своем подходе в обработ�
 ```bash
 magnet:?xt=urn:btih:847EB2681A5FBDB1BA91BD543BAB62A98ADC71F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:847EB2681A5FBDB1BA91BD543BAB62A98ADC71F9
 magnet:?xt=urn:btih:528E6F09C0335D548EB4CE6EFECEE34ECDD7291C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Udemy | Настройка и управление Windows Server 2016 S2D (2018
 ```bash
 magnet:?xt=urn:btih:0C2D8987427DDA31914CCE1D9E772BEBA3A94B95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ CGMA, Clinton Crumpler | 3D UE4 Modular Environments - Модульные окр
 magnet:?xt=urn:btih:C23F62C5AC272DF38A22FB5168FC22CB378A02FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Liveclasses, Дмитрий Шатров | Affinity Photo: быстрый ста
 ```bash
 magnet:?xt=urn:btih:9BB3CDBF720D92F443122E13CE380CFD609F2C0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Grant Warwick | Mastering Lighting Lessons 1-4 (2016) PCRec [En, Ru]
 magnet:?xt=urn:btih:9D82242463CC82D2EB72D4124326B4659376C871
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ Udemy | Администрирование Azure Active Directory (2019) PCRec [
 ```bash
 magnet:?xt=urn:btih:C21616B9DD169CD2D39CB6E97C6FF5ACB922CA5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ MZed, Ollie Kenchington | Углубленное изучение и овлад�
 magnet:?xt=urn:btih:CC8060601DA23D1514373C9E4974A8AF32139075
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ Udemy, Dmitry Soshnikov | Алгоритмы Синтаксического Ан
 magnet:?xt=urn:btih:2D25BE8A82FC846E92CF7A32E28ABD305BFEBE82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ Udemy | Поиск и устранение неисправностей Exchange
 ```bash
 magnet:?xt=urn:btih:D0D2DF3E961AD0BA38B48A3E07F52B700DA00C55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ Udemy, Dmytro Mezhenskyi | Производительный бэкэнд GraphQL
 magnet:?xt=urn:btih:23858B6B7C88EAEB3AA51911826B9BADC5CFD542
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ Udemy | Высокая доступность Exchange Server (2017) PCRec [H.26
 ```bash
 magnet:?xt=urn:btih:E37A5A29E4C4882975515A2E0DE90190A9D97552
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ Photocasa, Андрей Васильев | Чистый цвет = Чистый 
 magnet:?xt=urn:btih:145E030A828DFA0BC799FCABCFB1E231AF33DCCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ JUG Ru Group | PiterPy 2023. Конференция для тех, кто пиш
 ```bash
 magnet:?xt=urn:btih:03790CA8ADB7C5CB9ECAD41AF6958DA12F0FB261
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:03790CA8ADB7C5CB9ECAD41AF6958DA12F0FB261
 magnet:?xt=urn:btih:048BDE20EA386400CAD566B59506C14B40D91816
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ George Moller | 100+ React Infographics (2023) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:BC855918B54539F0E8F81C5B49990F2E8BE435C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ Amigoscode, Nelson | Microservices and Distributed Systems Updated 3 (2022) WEB-
 magnet:?xt=urn:btih:6B76C8D7ABF59C7995A877A80112DBD40DA6B85C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:6B76C8D7ABF59C7995A877A80112DBD40DA6B85C
 ```bash
 magnet:?xt=urn:btih:B92B7C15C9CE8F9DA00B5171E535C35A52550B41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +589,8 @@ World of Psychology, Наталья Приймаченко | Тайм-менед
 magnet:?xt=urn:btih:356FE9FBDAC4411A01D38AA12647E21C1C6BDADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ Scott Robert Lim | Scott Robert Lim Complete Pack (2021) PCRec [EN]
 magnet:?xt=urn:btih:B414C40FD2867F03DA2C99091E19AA9D9895E7B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +644,8 @@ Legal Design – это наиболее эффективная модель о�
 ```bash
 magnet:?xt=urn:btih:CE920C2161C3C7574DF8EC9901E84BEB0943E8F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ Houdini даёт отличнейшие VFX инструменты, а Arnold о
 magnet:?xt=urn:btih:F36F95B849384408B2AB299E84BDFC9792FCA24D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ Lynda.com | CSS: Gradients (2013) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:771BA7C56FE094ED19ECE31FF7B9955CCC1C1E42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,54 +1,3 @@
-###  Публикация: 415127   (326617) от 25.11.2011
-
-Братья Гримм | Лучшие сказки братьев  Гримм [2010] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326617.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данное, великолепно иллюстрированное, коллекционное издание вошли самые популярные сказки известных сказочников братьев Гримм, которые понравятся как взрослым, так и детям.
-Содержание:
-Белоснежка и семь гномов
-Бременские музыканты(   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D76381337B1C56BDADA13515BA76A4782C10305
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 842931   (326638) от 20.11.2014
-
-Подшивка журналов | The Family Handyman №552-554 (октябрь-декабрь 2014) [PDF] [En]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326638.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Family Handyman - зарубежный журнал для домашних мастеров: советы по ведению домашнего хозяйства, обустройство приусадебного участка, навыки обращения с рабочим инструментом, мелкий ремонт, идеи по оформлению интерьера, и т.д.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73590A4EEA0368E1A189A5F9303B13046DE5886D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957618   (326645) от 18.11.2015
 
 VA - Autumn New Chillout Traxx (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -72,6 +21,8 @@ VA - Autumn New Chillout Traxx (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lou
 ```bash
 magnet:?xt=urn:btih:F043351CF9CB8888B6801A8FC91E12977A3FE66C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +48,8 @@ magnet:?xt=urn:btih:F043351CF9CB8888B6801A8FC91E12977A3FE66C
 magnet:?xt=urn:btih:4657061F98285A6FC921DEFF92324439B4EB5796
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +73,8 @@ magnet:?xt=urn:btih:4657061F98285A6FC921DEFF92324439B4EB5796
 ```bash
 magnet:?xt=urn:btih:2DDE23046D8A081459A4C4F5A8BBF664F2234BD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +100,8 @@ magnet:?xt=urn:btih:2DDE23046D8A081459A4C4F5A8BBF664F2234BD2
 magnet:?xt=urn:btih:AC418FA76C6B1167831BA41A8D2F58A6BC25A5E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +126,8 @@ magnet:?xt=urn:btih:AC418FA76C6B1167831BA41A8D2F58A6BC25A5E5
 magnet:?xt=urn:btih:594D4CBBA064B87C57C035634BD0911FF4AAB530
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +151,8 @@ magnet:?xt=urn:btih:594D4CBBA064B87C57C035634BD0911FF4AAB530
 ```bash
 magnet:?xt=urn:btih:35839323D48B3F61C6D54D19408A40F52701E5B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +181,8 @@ Wayra - Dreams of the Wind (2006) DVDRip
 magnet:?xt=urn:btih:F8DABDA655E3453777C00EAB719D7C8A27E81B78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +206,8 @@ magnet:?xt=urn:btih:F8DABDA655E3453777C00EAB719D7C8A27E81B78
 ```bash
 magnet:?xt=urn:btih:973A44176340A6F50946984BC590F7FF5249983A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +235,8 @@ magnet:?xt=urn:btih:973A44176340A6F50946984BC590F7FF5249983A
 magnet:?xt=urn:btih:C5360AEA1D344C73C01CAAC5AA359785BE11B7BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +260,8 @@ magnet:?xt=urn:btih:C5360AEA1D344C73C01CAAC5AA359785BE11B7BF
 ```bash
 magnet:?xt=urn:btih:5A8047F285B76B1E5D7201D547B6FFAE920C26BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +288,8 @@ magnet:?xt=urn:btih:5A8047F285B76B1E5D7201D547B6FFAE920C26BF
 ```bash
 magnet:?xt=urn:btih:0EFB15251390BCB764978262B7E26F590AF7E489
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +318,8 @@ VA - Ангел снов (Эхо Души) (2011) [MP3|320 кб/с]<Шансон
 magnet:?xt=urn:btih:204C4B81ED6ADA8D61332A6B9E0FC6EB5C0246D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +345,8 @@ B	Синтез-Труппа Игоря Гранова -	ДастарханЖан
 ```bash
 magnet:?xt=urn:btih:FFD2A22AB7EA781B043B1A1DDD71E329E0B89FCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +375,8 @@ VA - Electro Swing Elite Compilation (2015) [MP3|320 кб/с]<Electronic, Broken
 magnet:?xt=urn:btih:2FC320463DDCFD981E80F032B03883835630F115
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +403,8 @@ magnet:?xt=urn:btih:2FC320463DDCFD981E80F032B03883835630F115
 ```bash
 magnet:?xt=urn:btih:08474CF4CF1B3EBB2D8A081915152AAD9333270C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +433,8 @@ Tchaikovski - Piano Concerto No. 1 in B flat minor, Op. 23
 magnet:?xt=urn:btih:6C16B7E2659B06FA8C92B9909E215CAF1C0A9101
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +458,8 @@ Sergey Nevone & Simon O'Shine - Ethereal Rhapsody (2015) Single [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:76D94276EDA54ABAAC0F71272314060CD37F9C80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +485,8 @@ Free Studio 6.5.11.1117 [Multi/Ru]
 magnet:?xt=urn:btih:8F3EA6C0A4F826CCF72A63BD868E11097BEA5464
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +510,8 @@ Avira Free Antivirus - бесплатный антивирус, антишпио
 ```bash
 magnet:?xt=urn:btih:EEB664FCE8C59AE44EA007BDE2550AEA52A1C6D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +537,8 @@ magnet:?xt=urn:btih:EEB664FCE8C59AE44EA007BDE2550AEA52A1C6D4
 magnet:?xt=urn:btih:276D268B16B06EC51673C483A2E26F41C0940A92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +562,8 @@ magnet:?xt=urn:btih:276D268B16B06EC51673C483A2E26F41C0940A92
 ```bash
 magnet:?xt=urn:btih:C182223CC01A42F2B024A84553BD150502D6E79A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +589,8 @@ magnet:?xt=urn:btih:C182223CC01A42F2B024A84553BD150502D6E79A
 magnet:?xt=urn:btih:47755C2BE90C6B36FF70D5DB7470223DEBA9E5D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +615,8 @@ magnet:?xt=urn:btih:47755C2BE90C6B36FF70D5DB7470223DEBA9E5D5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +645,64 @@ FactoryNoise AG - 4 альбома (2005-2006) Touhou Instrumental /Doujin/ [FLA
 ```bash
 magnet:?xt=urn:btih:762668C9ABCCE51AD0FF19E3DCFC5898A77D56D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957549   (326705) от 18.11.2015
+
+Kylie Minogue - Kylie Christmas (2015) Deluxe Edition [FLAC|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's the Most Wonderful Time of the Year
+02. Santa Claus Is Coming to Town (feat. Frank Sinatra)
+03. Winter Wonderland
+04. Christmas Wrapping (with Iggy Pop)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C52C9DA35302738C4CB82EF7261650DB3EA68E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957635   (326706) от 18.11.2015
+
+iPulse 3.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326706.jpg" />
+</div>
+
+
+###  Подробнее
+
+iPulse - Утилита для мониторинга работы Mac OS.
+Благодаря настраиваемым датчикам iPulse пользователь сможет следить за нагрузкой на ЦП, использованием оперативной памяти, свободным местом на жестких дисках, сетевой активностью и другими показателями системы. Однако, в отличие от других аналогичных приложений iPulse занимает совсем немного места на рабочем столе, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 ноября 2015Разработчик: The IconfactoryПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D841C1D7370F3CD35742EDA3AF78062B1038074
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

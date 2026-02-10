@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A4F4D6F7DC699FB6ADA161EEAC1616FBB4A7AFD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Meute - Jubel (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 ```bash
 magnet:?xt=urn:btih:686990AD9A876C28A2C75D79F6ABB0A6C2F616DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Angelo Perlepes' Mystery - Spelled By Fire (2025) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:CDA5AEA672A250902178477E039131B2C27C1D25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Emilia Quinn - Dented Halos (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:2C385AE439AC675AD481178DC47DF18577647994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Mors Principium Est - Darkness Invisible (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:8A03821DECD737EEC3C222112BACB2840DEEC25F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ The Vintage Caravan - Portals (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard
 ```bash
 magnet:?xt=urn:btih:DD204C2FB956F41ED2F606CE6E8C1C384256A51B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ magnet:?xt=urn:btih:DD204C2FB956F41ED2F606CE6E8C1C384256A51B
 magnet:?xt=urn:btih:CCF56A3ED9067A93FE4CB4CFAD42A1068DDCD01F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +220,8 @@ magnet:?xt=urn:btih:CCF56A3ED9067A93FE4CB4CFAD42A1068DDCD01F
 magnet:?xt=urn:btih:037C14C7345F92B4C0CB9D7FBF185D42067861EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ magnet:?xt=urn:btih:037C14C7345F92B4C0CB9D7FBF185D42067861EA
 ```bash
 magnet:?xt=urn:btih:A3C9AF2F4DA9A5C675D454D5EF16E92CE73BE451
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +275,8 @@ Kylie Minogue - Tension Tour//Live 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:9C66347AC28456C2A6C7802CF118C709061FF63B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +302,8 @@ InnoExtractor - это приложение, которое поможет ва�
 magnet:?xt=urn:btih:318E91263AB7DDE4D165B016D65D274C00A315E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ magnet:?xt=urn:btih:318E91263AB7DDE4D165B016D65D274C00A315E0
 magnet:?xt=urn:btih:30003DF12F423D0F9AC0BF6F916BA939B01C98C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:30003DF12F423D0F9AC0BF6F916BA939B01C98C5
 ```bash
 magnet:?xt=urn:btih:5C705885646AEC996124BA05E4CB37924AA67D6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +383,8 @@ Van Halen - Compilation (1978-2012) [MP3|320 Kbps] <Hard rock, Arena rock, Glam 
 magnet:?xt=urn:btih:3CBD1353FD73F5E86A3D57FD016F1EEA0BE7DC92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ magnet:?xt=urn:btih:3CBD1353FD73F5E86A3D57FD016F1EEA0BE7DC92
 magnet:?xt=urn:btih:2498E3A8C1718D9515B5E0A9A0DD4913AE8B0A7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ Guaruja Neue - это неогротескный шрифт с дополнит�
 ```bash
 magnet:?xt=urn:btih:DE24B9C69F08DF991C3F208D2A68D89F17754F42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +464,8 @@ Sofia Bellini - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Italodisco, I
 magnet:?xt=urn:btih:5E4B3C1C56D97777A1A33EC24997888C616B0668
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +491,8 @@ magnet:?xt=urn:btih:5E4B3C1C56D97777A1A33EC24997888C616B0668
 magnet:?xt=urn:btih:E5A0D04F748D64CAE88D3C05110FFF472C53D85B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ magnet:?xt=urn:btih:E5A0D04F748D64CAE88D3C05110FFF472C53D85B
 magnet:?xt=urn:btih:BB780712297336FDDFC73C6B032BE3B6C6D2E77A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ magnet:?xt=urn:btih:BB780712297336FDDFC73C6B032BE3B6C6D2E77A
 ```bash
 magnet:?xt=urn:btih:E9AB499D65C1FB16B300A1579D45BB84990DE299
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ DGM Fette - это шрифт полу-возрождения от Breite Fette 
 magnet:?xt=urn:btih:46CCC293EE4CDAD3EB873CDA9D46104C22979D4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ magnet:?xt=urn:btih:46CCC293EE4CDAD3EB873CDA9D46104C22979D4B
 magnet:?xt=urn:btih:DC9ADFD84ADD227BFC43724385A3151CAECB3582
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ magnet:?xt=urn:btih:DC9ADFD84ADD227BFC43724385A3151CAECB3582
 ```bash
 magnet:?xt=urn:btih:7A90C94D04AB8B04245B08221EC665631ABB32C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ Rage - A New World Rising (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Me
 magnet:?xt=urn:btih:CF61B5D6502D75CED0CDD3799F02B01450E9A7F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ magnet:?xt=urn:btih:CF61B5D6502D75CED0CDD3799F02B01450E9A7F7
 magnet:?xt=urn:btih:229C5DA6D9618F5DFE52CAF555129E1E191B0AE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ Rum BabaФормат: STL, LYS
 ```bash
 magnet:?xt=urn:btih:582331EB4C5646786740B7DBDF0C340DF75EE877
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

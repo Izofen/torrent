@@ -22,6 +22,8 @@ VA - Funky Groove Relax (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
 magnet:?xt=urn:btih:FD579777AFBE1A305AF56FB4082018BD9E5FBB69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - Mittelalter Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:6A1E05884828BFBBBD5ECE34E729505D87016154
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:6A1E05884828BFBBBD5ECE34E729505D87016154
 ```bash
 magnet:?xt=urn:btih:69C0675D5B5D47803D5844FDF5A0A5AB3F5BEADB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ VA - Nu Funk Vol 10 (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
 magnet:?xt=urn:btih:67201C850B1A263F7FBD592195245A5E833E512A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ VA - Ambient Relaxation (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electronic, 
 ```bash
 magnet:?xt=urn:btih:B8CEF4312EA43C996F32DA7C8841AF312C66D4EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:B8CEF4312EA43C996F32DA7C8841AF312C66D4EF
 magnet:?xt=urn:btih:9998E8D5E5167F25290EB2E3B81D01A26951E5E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ magnet:?xt=urn:btih:9998E8D5E5167F25290EB2E3B81D01A26951E5E6
 ```bash
 magnet:?xt=urn:btih:89DADA0B5D75AD34A93645B3762BE8E635A65CEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -204,6 +218,8 @@ magnet:?xt=urn:btih:89DADA0B5D75AD34A93645B3762BE8E635A65CEE
 magnet:?xt=urn:btih:966466DD79E95B25CDFFEEB4D1D05E16AA6B469E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:966466DD79E95B25CDFFEEB4D1D05E16AA6B469E
 magnet:?xt=urn:btih:34CE8B324E9F18F05F753ADBB2E07D692887BCE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:34CE8B324E9F18F05F753ADBB2E07D692887BCE0
 ```bash
 magnet:?xt=urn:btih:9CF6CB00B215A2C7CC585BDD3AD714ED4FA835DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +299,8 @@ Ghost Brigade - метал-группа из Ювяскюля, Финлянди�
 magnet:?xt=urn:btih:632E934776AC7C54D18B00736CE482D66E4EC978
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:632E934776AC7C54D18B00736CE482D66E4EC978
 magnet:?xt=urn:btih:7DA2447B104A6A07364812F9E2105C2B3768710A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:7DA2447B104A6A07364812F9E2105C2B3768710A
 ```bash
 magnet:?xt=urn:btih:6715F7028AE4EAA0FE52133FB4855CFAB3C9EAF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:6715F7028AE4EAA0FE52133FB4855CFAB3C9EAF0
 magnet:?xt=urn:btih:DAD24574A068FD43B2206F73FA064DCF1174737C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:DAD24574A068FD43B2206F73FA064DCF1174737C
 ```bash
 magnet:?xt=urn:btih:3AEF99241314341D3C087B30631E62FB801EFC9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ magnet:?xt=urn:btih:3AEF99241314341D3C087B30631E62FB801EFC9A
 magnet:?xt=urn:btih:0A20F869EF6A94D88826FD125B577E6406FB8DE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:0A20F869EF6A94D88826FD125B577E6406FB8DE7
 ```bash
 magnet:?xt=urn:btih:E497902489EBE06195F0A87501CC731BD31BDD5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ VA - Jus' Blues 25th Anniversary Legends Collection (2025) [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:7E6D4A09ABC7636FB0FDAF698B725DA861468B7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ magnet:?xt=urn:btih:7E6D4A09ABC7636FB0FDAF698B725DA861468B7F
 ```bash
 magnet:?xt=urn:btih:548A6D60FC77B7419A936364ECB154CDDE081EB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:548A6D60FC77B7419A936364ECB154CDDE081EB1
 magnet:?xt=urn:btih:0E596B5FABA9D8800A5EA488A7DB776F54FEFCB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:0E596B5FABA9D8800A5EA488A7DB776F54FEFCB1
 ```bash
 magnet:?xt=urn:btih:51A8AE6DA942CF43F3008895D50BC0AE0DF362E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ Megami no Cafe Terrace | The Cafe Terrace and Its Goddesses | Богини ка�
 magnet:?xt=urn:btih:62B9069ED68D69376A5204F606D264CCD62CD285
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:62B9069ED68D69376A5204F606D264CCD62CD285
 ```bash
 magnet:?xt=urn:btih:92CA5DE00CE526F09C6DAA23F2A0FBD71845D130
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:92CA5DE00CE526F09C6DAA23F2A0FBD71845D130
 magnet:?xt=urn:btih:B7516E21DD764E23B88E0207B3702ED1F565F779
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ magnet:?xt=urn:btih:B7516E21DD764E23B88E0207B3702ED1F565F779
 ```bash
 magnet:?xt=urn:btih:EFBACB9C3E4FCA34BCFD0C4C58464568625F30CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +696,8 @@ VA - Compact Jazz - Best of the Jazz Vocalists (1992) CD, Compilation [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:BB17FA7D86674D69945EF19872ADAA833865B3BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

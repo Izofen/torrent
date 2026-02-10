@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:774FAA510D8717C81B885437E3E819F20A4B022D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:774FAA510D8717C81B885437E3E819F20A4B022D
 ```bash
 magnet:?xt=urn:btih:4179741A97B87EA885D55FCF5E5921639B626C84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Kozmik Landing - Distant Land (2019) [MP3|320 Kbps] <Psychedelic Rock>
 magnet:?xt=urn:btih:171336B2934C55E24CA3147288516D2F2D99F405
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ VA - Winter Chillout Lounge 2021 (2021) [AAC|~333 Kbps] <Lounge, Chill Out, Down
 magnet:?xt=urn:btih:EA54967BBB2C7C9DE13E89F8F0A542654BA788C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Process Lasso Pro - небольшая утилита, позволяющая в
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +162,8 @@ Sweet - Give Us A Wink (Alternative Mixes & Demos) (2022)  [MP3|320 Kbps] <Rock,
 magnet:?xt=urn:btih:C6D48EA698D068C8F1A5CF6125EC2778F07D706B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:C6D48EA698D068C8F1A5CF6125EC2778F07D706B
 magnet:?xt=urn:btih:0F9BD137AFBDCCDD72E93747F66E0EDD12150D80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:0F9BD137AFBDCCDD72E93747F66E0EDD12150D80
 ```bash
 magnet:?xt=urn:btih:AB1E9D52B3E1746926CF390B290A7197CBC076C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ Heartless Bastards - Arrow (2012) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alt
 magnet:?xt=urn:btih:42D7510495B63DEE283A9AA080E0F6E0DA345961
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ VA - Arabian Nights (2019) [AAC|~314 Kbps] <Chill Out, Downtempo, Organic House>
 magnet:?xt=urn:btih:BEE006EA78D51F194840652567E1D7FE3ECAA7EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:BEE006EA78D51F194840652567E1D7FE3ECAA7EF
 ```bash
 magnet:?xt=urn:btih:9AD89A0266EE380703DC4819D33BD681B6CC83BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +333,8 @@ VA - Markus Schulz presents Coldharbour Day 2012 on Ah.fm (2012) [MP3|320 кб/�
 magnet:?xt=urn:btih:0DCA982414A6333F07C99507BEBF48BCEF0F01B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +360,8 @@ magnet:?xt=urn:btih:0DCA982414A6333F07C99507BEBF48BCEF0F01B7
 ```bash
 magnet:?xt=urn:btih:8E11A8B86C244D2D35894B4041E64361E6274D94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +390,8 @@ Disk 1
 magnet:?xt=urn:btih:252E4E80A8F934581EB883F168F2D8FD6F919FCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +416,8 @@ magnet:?xt=urn:btih:252E4E80A8F934581EB883F168F2D8FD6F919FCD
 magnet:?xt=urn:btih:9A767545C8C3B5677B6DCE6ED96071656745CF0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +441,8 @@ magnet:?xt=urn:btih:9A767545C8C3B5677B6DCE6ED96071656745CF0B
 ```bash
 magnet:?xt=urn:btih:CF018ECE0C583CDC35A1085B8523E99B9CE6A009
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +471,8 @@ Molina, Talbot, Lofgren, Young - All Roads Lead Home (2023) [FLAC|Lossless|track
 magnet:?xt=urn:btih:5B209B71474836F5CA6F0736C7084747C05D9309
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +499,8 @@ VA - The Official UK Top 40 Singles Chart 29.11.2019 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:00139F46FDC5104A0D60EC02056D1C3EA8BFBD7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +529,8 @@ Eternity's End - Unyielding (2018) Japanese Edition [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:16FDA52558A49497BB949EC7F35BC46CD10932F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +556,8 @@ magnet:?xt=urn:btih:16FDA52558A49497BB949EC7F35BC46CD10932F3
 magnet:?xt=urn:btih:1729153D9D41A4132ED578282CAB9FC75290B5EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +581,8 @@ Elle — французский женский журнал о моде, кра�
 ```bash
 magnet:?xt=urn:btih:F5EFD6D0DE16F6BB6399618285FC1FD4A5B3CE4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +608,8 @@ magnet:?xt=urn:btih:F5EFD6D0DE16F6BB6399618285FC1FD4A5B3CE4A
 magnet:?xt=urn:btih:FDA2CC1C6E2C7AD436F54518B29477ADDD33DDE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +634,8 @@ magnet:?xt=urn:btih:FDA2CC1C6E2C7AD436F54518B29477ADDD33DDE7
 magnet:?xt=urn:btih:F8D2376C017BCF1057C03559522F6B5C82D4EF7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +659,8 @@ magnet:?xt=urn:btih:F8D2376C017BCF1057C03559522F6B5C82D4EF7D
 ```bash
 magnet:?xt=urn:btih:BCDF27D5720D4AB7CCE59DD843DE77248C476946
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +695,8 @@ VA - Новая Игрушка 15 (2004) [FLAC|Lossless]<Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,6 +723,8 @@ VA - Winter Chillout Lounge 2021: Smooth Lounge Sounds For The Cold Season [FLAC
 ```bash
 magnet:?xt=urn:btih:3E78F2D216D923B0B42231F63DF0FB67373D9F7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

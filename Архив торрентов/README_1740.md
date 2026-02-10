@@ -19,6 +19,8 @@ AnyDroid  (AnyTrans for Android) - предназначен для быстро�
 magnet:?xt=urn:btih:8746BB78426510C0E6F4664D6B7190757A674E75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ SnapMotion имеет два режима:
 magnet:?xt=urn:btih:40CA1B69D192F711BFB5FF7038554BADFED7303B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ FSNotes - это менеджер текстовых заметок для macOS
 ```bash
 magnet:?xt=urn:btih:983E32C25C0532C95DE0078E52FCED0D4E5F7D36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:510FF35A81B118FD31F37544EC0527EC29B56FAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ EdgeView 3 - это новейший просмотрщик изображени
 ```bash
 magnet:?xt=urn:btih:8EFA6B562C8279B092FB4C977D384D07DB2A5E6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ OCCT 7.3.1 Final Portable [Multi/Ru]
 magnet:?xt=urn:btih:25C8742D2A948B8B9DF804356B6F5B5B5C4A94A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ GPU Shark - небольшая бесплатная и очень простая
 ```bash
 magnet:?xt=urn:btih:51F9D0052CD0A089611D6DC5702C920CC70CBA18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ USB Image Tool - бесплатная и очень простая в испол
 magnet:?xt=urn:btih:FC396BF2501C3CB1E06646BDB1859259D0F688AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ PDFCreator –  бесплатная программа для конверти�
 ```bash
 magnet:?xt=urn:btih:21835498B1C3B97F21A25FEAA0D28DC487DD1795
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 magnet:?xt=urn:btih:D2522D524E92C82F1E01E93BD4382C0D6F53135F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Mozilla Thunderbird –  легкая и безопасная бесплатна
 ```bash
 magnet:?xt=urn:btih:9850DF2E34B68E69B71E5B2BFC5AD982F9A019CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Duplicate Cleaner - мощный и профессиональный инстр�
 magnet:?xt=urn:btih:26F33DAA794A63EFEA76425BA626C97166653A90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ FastFlix - это простой и дружественный графичес�
 magnet:?xt=urn:btih:4878B88F078727B4EA48FE3E308F51501BF772A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Find.Same.Images.OK — это программа для поиска одина
 ```bash
 magnet:?xt=urn:btih:644C2571C3D6FA65CDB2DCC11AC27F6AF6B8EE62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Pixelmator Pro — это невероятно мощный, красивый и
 magnet:?xt=urn:btih:3C5D5D842B255A6936B4E38B1DD8C357008AFBD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ SideNotes - это боковая панель, которая заполнит 
 ```bash
 magnet:?xt=urn:btih:BDA9C1CF0BFA602C7E9EC311B2D361D506D3837F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Smart Driver Manager - это быстрый, простой и безопасн
 magnet:?xt=urn:btih:4E7DDD168BAECFAF91460CBF6D23FCF89AB27B81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:44B933F3A9C7D8D059B680E22821DB09C814F6ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Desktop Calendar – бесплатный календарь рабочего с
 magnet:?xt=urn:btih:11EDD0A2AC75BDB7ADBC29B5AD4CC3463E280A2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 ```bash
 magnet:?xt=urn:btih:8E17154A0E0B632265CF5CA65FD59C0F40DF1DD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ ON1 Effects 2021.1 v15.1.0.10035 CR2 [Multi/Rus]
 magnet:?xt=urn:btih:9ECA375E5D99C2DE670AD781FA75E93D8B3ACE75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:4E2111CF03A4135B3E8E1604C17ECA5BAAA0A613
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Sanz - Let Us Die (2022) [MP3|320 Kbps] <Electronic, Synth-pop, Rock>
 magnet:?xt=urn:btih:2099322EDB5280ACEA7E54707DD3DF045E02EBB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Wondershare Recoverit - профессиональное приложение, �
 magnet:?xt=urn:btih:8C47281DEDBDBCCF0E849335FCA7F16E6A7B7A2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ FontViewOK 8.21 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2E1DD15FAD69DC914E7E78F12C89E7FEEBDCBF6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +682,8 @@ Quelle Chris & Chris Keys - Innocent Country 2 (2020) [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:5C29661090E299154B594AF04DDC14EEC5D528DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

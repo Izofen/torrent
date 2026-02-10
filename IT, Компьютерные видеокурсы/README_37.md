@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:9CB7E4DCDB717D72F0C3F6F300A5AEE8CEE409A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:9CB7E4DCDB717D72F0C3F6F300A5AEE8CEE409A6
 magnet:?xt=urn:btih:42C21F52EEFF73CF3899C243C7646499001CA8E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:42C21F52EEFF73CF3899C243C7646499001CA8E7
 ```bash
 magnet:?xt=urn:btih:97D6E5E67B9AC5143AE189BA446C54ABF73098A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:97D6E5E67B9AC5143AE189BA446C54ABF73098A1
 ```bash
 magnet:?xt=urn:btih:E629B34AC40A6450C9FCFF1AD5C474F49BFB3A9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Udemy, Imran Teli | DevOps Beginners to Advanced | Decoding DevOps with Projects
 magnet:?xt=urn:btih:D6EA931FD96027746D212F627A4DD6B033D5F4CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ KodeKloud, Mumshad Mannambeth | DevOps Pre-Requisite Course (2022) WEB-DL [EN / 
 ```bash
 magnet:?xt=urn:btih:0785DAD2183074F12D2FB3620531E64785948613
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ KodeKloud, Mumshad Mannambeth, Vijin Palazhi | Learning Linux Basics Course & La
 magnet:?xt=urn:btih:7A6655D3EF9D60FA625992E40C26CB31B3A06B8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ DefenderUI значительно повышает удобство исполь
 ```bash
 magnet:?xt=urn:btih:739839F47759919689E8E869DB772C1BE2557546
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:739839F47759919689E8E869DB772C1BE2557546
 magnet:?xt=urn:btih:E67004ED0C195CEB8E71526069648D67095D97E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:E67004ED0C195CEB8E71526069648D67095D97E5
 ```bash
 magnet:?xt=urn:btih:2F805ED3AED5032D36158866E7030430E19D41B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ Udemy, Mefodiy Kelevra | Wifi Pentesting | Взлом Wifi - Новый взгл
 magnet:?xt=urn:btih:68BEFD0DE0B3DBF7B5A2266A4F02F51F9CB44E01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ Udemy, Mefodiy Kelevra | Мастер Класс по шифрованию | Ver
 magnet:?xt=urn:btih:8F4C740BAE3E5D0B8319290B95A3D0C129EC6ADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ Udemy, Журавлёв Сергей | C++ Основы многопоточно
 ```bash
 magnet:?xt=urn:btih:5B55B9CE60736B28B1C507D9F6FAC040C5DD2BC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ Bash (от Bourne-again SHell) - интерпретатор команд, кот
 magnet:?xt=urn:btih:C3B26F669448A4D4BF3E1B4EC0BB76C0446F53B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ Lynda.com | Создание веб-приложений с помощью Ajax 
 ```bash
 magnet:?xt=urn:btih:0E0651A4DEA2A5D375AEE7BA8D8471EE9AC8AA0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ NestJS - это тот фреимворк, созданный для облег�
 ```bash
 magnet:?xt=urn:btih:009BDFD568603E35284A92DF4F9865F2ACD137A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ SEO Conference | Материалы VI Международной SEO Conference
 magnet:?xt=urn:btih:273C3D66208BCFFBF7F03BD07773F6F5233F2B9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ DevOps: непосредственно про процессы и культур
 magnet:?xt=urn:btih:FCBFE955CBADC1013F761C6BE94590D8E3C21448
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ HolyJS 2021 Moscow (2-5 ноября 2021) - большая конференци
 ```bash
 magnet:?xt=urn:btih:3E70009C4881952B57804BB14BF415A36E4BCF36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:3E70009C4881952B57804BB14BF415A36E4BCF36
 ```bash
 magnet:?xt=urn:btih:702AC31A5058C234F334BC905A580C80B86912CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +570,8 @@ JustNote Team, Дмитрий Гомонов | Курс по ремонту но
 magnet:?xt=urn:btih:9EBDB52BA30356A301DEA5FCB302559E26EE3361
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ magnet:?xt=urn:btih:9EBDB52BA30356A301DEA5FCB302559E26EE3361
 magnet:?xt=urn:btih:AD31CC6630CF0A6A1D2B2CF222B138B17A9ADE9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ Plastik | Университет Кибербезопасности и Анон�
 ```bash
 magnet:?xt=urn:btih:EED4B92279DC37DFB41CF20F9A9B46B47F34B1BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +649,8 @@ magnet:?xt=urn:btih:EED4B92279DC37DFB41CF20F9A9B46B47F34B1BA
 magnet:?xt=urn:btih:C2318EB74E501411FE7A8176648209007BF33939
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ Udemy, Eduard Kozlov | Эффективная разработка модуле�
 ```bash
 magnet:?xt=urn:btih:BB5D5F8FFB0E620F0190440894D700188CF10BE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +703,8 @@ Udemy, Журавлёв Сергей | C++ | STL | Библиотека стан
 ```bash
 magnet:?xt=urn:btih:648CB6AC046A9720E1373B258834144C5F11E8B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

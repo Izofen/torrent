@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:90AFFB59BC68E0429ED3B35319D3439BE1D903BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:90AFFB59BC68E0429ED3B35319D3439BE1D903BF
 ```bash
 magnet:?xt=urn:btih:0066004BAC39933F80A431E3704EE40C30CE4A52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ VA - Markus Schulz - Global DJ Broadcast - Year in Review (2017) [MP3|320 Kbps] 
 magnet:?xt=urn:btih:F6D8D570667812425E58C61889A1112A99C17FFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:F6D8D570667812425E58C61889A1112A99C17FFC
 ```bash
 magnet:?xt=urn:btih:8481670526FD439E2B5C628FC5CC3B1EF6AE9A5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:8481670526FD439E2B5C628FC5CC3B1EF6AE9A5B
 magnet:?xt=urn:btih:11D4F5A99B6266F5BC55F65C88B9CA3B211816E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:11D4F5A99B6266F5BC55F65C88B9CA3B211816E1
 ```bash
 magnet:?xt=urn:btih:CB11E69537EA1D665AA710F9871176573E3ACAF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:CB11E69537EA1D665AA710F9871176573E3ACAF1
 magnet:?xt=urn:btih:B68B7B41AB549294CC258B78313C5320A105CF2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:B68B7B41AB549294CC258B78313C5320A105CF2B
 ```bash
 magnet:?xt=urn:btih:0ABC1D3940BC07384CFD501E8B2B9A6505A4150E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:0ABC1D3940BC07384CFD501E8B2B9A6505A4150E
 magnet:?xt=urn:btih:AF95E8B42ADA9B88997AA21A5CECCD1631E34CF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:AF95E8B42ADA9B88997AA21A5CECCD1631E34CF0
 magnet:?xt=urn:btih:3A17A35ED9D99B240E74E59E4B8695B0959AE51C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:3A17A35ED9D99B240E74E59E4B8695B0959AE51C
 ```bash
 magnet:?xt=urn:btih:D34F862616182B5DA442B64F91016183D02EB2B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ Heavy Metal Kings - Black God White Devil (2017) [FLAC|Lossless|Web-DL|tracks] <
 magnet:?xt=urn:btih:50B440FF12B0C63B3FD33F90545D7F4740F6556D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:50B440FF12B0C63B3FD33F90545D7F4740F6556D
 ```bash
 magnet:?xt=urn:btih:902F62E8AEF19404A3736ACC09A6A65FC247F81B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:902F62E8AEF19404A3736ACC09A6A65FC247F81B
 magnet:?xt=urn:btih:921644A5E7C02A6D1C1C2230960E6BC99C90015F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:921644A5E7C02A6D1C1C2230960E6BC99C90015F
 ```bash
 magnet:?xt=urn:btih:F7C040DFD06BFD47A82A2990933B974598B9E430
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:F7C040DFD06BFD47A82A2990933B974598B9E430
 magnet:?xt=urn:btih:601C529E558B65BC7D1EF6BFA19417562D98E0C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:601C529E558B65BC7D1EF6BFA19417562D98E0C6
 ```bash
 magnet:?xt=urn:btih:694ACD600C47167177D08DE17F1F8FF2E40E2C97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:694ACD600C47167177D08DE17F1F8FF2E40E2C97
 magnet:?xt=urn:btih:EAB7731331B454F8F948D0071274A8980214A44B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:EAB7731331B454F8F948D0071274A8980214A44B
 ```bash
 magnet:?xt=urn:btih:A97B06FC9DF615E4B82F5FBAAE7F89054B62F34D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ CD1 - Exposure:
 magnet:?xt=urn:btih:52539EB067FB404AA4E3F5696B6EE4C10E0F9729
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ The Lift (2018) [Ru/En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A27BF9280F15B144A10EF8D9517866234F4E433B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:A27BF9280F15B144A10EF8D9517866234F4E433B
 magnet:?xt=urn:btih:9DA9D996FA091B885597D8DF73E329AA0837EACB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:9DA9D996FA091B885597D8DF73E329AA0837EACB
 ```bash
 magnet:?xt=urn:btih:245D99DE3A464ABF1E16B71B984B85BE3B992B93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ Fictorum (2017) [En] (2.0.4) Repack Other s
 magnet:?xt=urn:btih:A26687DDB8100A683D8A8754813BF92371EF7BA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:A26687DDB8100A683D8A8754813BF92371EF7BA7
 ```bash
 magnet:?xt=urn:btih:A0F764BE9BF7FF4FE9F8301171FE269B55BB7322
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:A0F764BE9BF7FF4FE9F8301171FE269B55BB7322
 ```bash
 magnet:?xt=urn:btih:165DA24A708786E469167F684F758EE6BFC82C52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

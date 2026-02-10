@@ -19,6 +19,8 @@ Giga Wing 2 (Yasushi Kaminishi) (DC) (2001) [MP3|320 кб/с]<Score>
 magnet:?xt=urn:btih:D1FAC99EE515C5EECF9D1CF644B8215BB76EA02D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Moreza - Fragrance (2019) [MP3|320 Kbps] <New age, Nuevo Flamenco, Chillout>
 ```bash
 magnet:?xt=urn:btih:797DCAF72F5D0FA2A4E5DBE4E6947405FC56E3D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Kitaro - Tenku (1986) Remastered, 1997, DOMO [FLAC|Lossless|image + .cue] <New A
 magnet:?xt=urn:btih:ED3F4DBA4E106D0389388AA5DB6C1B54BBF75115
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ CD1 - 01:19:56 | CD2 - 01:19:21 | CD3 - 01:19:54Треклист CD1:
 ```bash
 magnet:?xt=urn:btih:9520A6FA9789EBE829EAFCBCD7A5F24EC499CF68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Thomas Newman - Зеленая миля / The Green Mile (1999) [MP3|320 kbps] <
 magnet:?xt=urn:btih:E2C01B78C3A18B4920C1CCF980E1B5256E5634C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ VA - Unwind Piano Music (2016) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
 ```bash
 magnet:?xt=urn:btih:EBE9492F99E16BD99632939E601A29301DDC1577
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Ryuichi Sakamoto, Alva Noto, Bryce Dessner - Выживший / The Revenant (Or
 magnet:?xt=urn:btih:4FBD64A16D359348D07EA3088B9489677AE035FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ VA - Deadpool Reloaded / Дэдпул (More Music from the Motion Picture) (2016
 ```bash
 magnet:?xt=urn:btih:F25627D329DCE2B49A0CBAAE3F515696543E79B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ VA - Deadpool Reloaded / Дэдпул (More Music from the Motion Picture) (2016
 magnet:?xt=urn:btih:0882EFB38857A41C2527E4357123E542D32748BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ Ryuichi Sakamoto, Alva Noto, Bryce Dessner - Выживший / The Revenant (Or
 magnet:?xt=urn:btih:9649590417B07F47C6DE54738E2BF645B9DE4111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +307,8 @@ magnet:?xt=urn:btih:9649590417B07F47C6DE54738E2BF645B9DE4111
 ```bash
 magnet:?xt=urn:btih:2C850668E356E5C44A2414231A141E615CE80C3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +337,8 @@ magnet:?xt=urn:btih:2C850668E356E5C44A2414231A141E615CE80C3D
 magnet:?xt=urn:btih:C7B8F84B598BB4759680FA366D5BA7EBA6549511
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +365,8 @@ Tommy Emmanuel - Midnight Drive (1997) [FLAC|Lossless|image + .cue] <Instrumenta
 ```bash
 magnet:?xt=urn:btih:F417EC29D4C55D6345AA711CCCA8679049665DF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +395,8 @@ VA - Guitarras Virtuosas (2006) [MP3|320 kbps]<Instrumental, Flamenco>
 magnet:?xt=urn:btih:2D1583A8CF14DCF44C4604E520D876BDD86233CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +423,8 @@ Anne Dudley - Искушение / Benedetta (2021) [MP3|320 Kbps] <Score>
 ```bash
 magnet:?xt=urn:btih:FFAFDE707F5E172BD4EA27E287E02725B7440368
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +453,8 @@ At The Movies - The Soundtrack Of Your Life - Vol. 2 (2022) [FLAC|Lossless|image
 magnet:?xt=urn:btih:3A4AFB13F1A5B788BC2E16FDFC63D0F9096E47A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +481,8 @@ The Native American Chanters - Native American Chants & Dances - The Native Amer
 ```bash
 magnet:?xt=urn:btih:F19B7D047E3F75E5CF7EC742116A97521996F116
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +511,8 @@ Hide-Hide - Реминисценции звука (2011) [FLAC|Lossless|tracks] 
 magnet:?xt=urn:btih:EEDE42E8FB539B717D53359163659F7FDD1A2922
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +539,8 @@ VA - Diving Dreams - The Coral Sea (2005) [APE|Lossless|image + .cue] <New Age, 
 ```bash
 magnet:?xt=urn:btih:B5DDDB1E6BCFBE7FA966AD7EBC364BDA25687423
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +569,8 @@ Christophe Goze - A Day In Ibiza (2009) [APE|Lossless|image + .cue] <Easy Listen
 magnet:?xt=urn:btih:F9D4636EC248A5C352CA068FA4487FB99CA34088
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +597,8 @@ Vittorio Del Monaco - Histoires D'amour (1991) (2CD) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:E335E7072BDF2A8B8C12F863E9D238A353A6443E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +627,8 @@ CD 1
 magnet:?xt=urn:btih:33CE513529C012C13A8168D6F452CEDAD8E6BB91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +655,8 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 9 (1994) [FLA
 ```bash
 magnet:?xt=urn:btih:F96E499538262FF9B90571E3F36F0B56A306081C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +685,8 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 5 (1990) [FLA
 magnet:?xt=urn:btih:C807FC1A5FD955CBA403183BF156487354C1EDF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +714,8 @@ Scotch On The Rocks - The Songs Of Anfield Road (2002) [FLAC|Lossless|image + .c
 magnet:?xt=urn:btih:2035890401F2CFA411BE311B28BF8787FC466EB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -692,6 +742,8 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 6 (1990) [FLA
 ```bash
 magnet:?xt=urn:btih:F43C24CC7767FC64943BB14D2807763F45A5639F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

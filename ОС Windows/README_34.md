@@ -1,3 +1,29 @@
+###  Публикация: 857041   (954286) от 07.01.2015
+
+Windows Embedded 8.1 with Update [November 2014] - Оригинальные образы от Microsoft MSDN [Ukr]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 8.1 — это еще большие возможности персонализации и новые, великолепные приложения и службы. Windows Embedded 8.1 Industry является новым продуктом в линейке так называемых «вертикальных» продуктов, к которым относится, также, Windows Embedded POSReady. Основное отличие от POSReady – ядро Windows 8.1Язык интерфейса: Український
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:768A21E9E24ECD87F333191D95E2FAD5A83FC851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359860   (961716) от 14.02.2020
 
 Windows PowerShell 5.1 [Ru]
@@ -18,6 +44,8 @@ Windows PowerShell 5.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:32F26C86FD3249F3F1C917AAB2FF4F46B9EA2E3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ Recovery USB-Flash for Lenovo IdeaPad 100-15IBY / Windows 8.1 (х64) [Ru]
 magnet:?xt=urn:btih:676241CB7AD6D89C82E91BEF655ABB5B49974EA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ Microsoft BackOffice Server - интегрированный набор серв
 ```bash
 magnet:?xt=urn:btih:6988C2769A5A8963A38C4A66012578062BB0AF03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +127,8 @@ Microsoft Windows NT Server 4.0 Build 1381 Service Pack 1 [En]
 magnet:?xt=urn:btih:FD605FECAD03EFB19D81B496111FB5AC52663E1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +154,8 @@ Windows 2000 (также называемая Win2k, W2k или Windows NT 5.0) 
 magnet:?xt=urn:btih:639EECD9FB58D1E52B7D2BDD6967E5727FE8BF2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +180,8 @@ Microsoft Small Business Server 2000 - новый комплекс програ�
 magnet:?xt=urn:btih:6A7E94F3E62DEBF2351A15F53F5A4BA81C7E7A91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ Windows 7 с интегрированным пакетом обновления 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +233,8 @@ Microsoft Windows 10.0.18362.592 Version 1903 (January 2020 Update) - Ориги
 magnet:?xt=urn:btih:79B4DFD5A9728B5A1116C413157DDF30E8315420
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +259,8 @@ Microsoft Windows 10.0.18363.592 Version 1909 (January 2020 Update) - Ориги
 ```bash
 magnet:?xt=urn:btih:C5301151B98F8ACD6D3740C6D925F453A29CD3DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +287,8 @@ Microsoft Windows 10.0.18363.592 Version 1909 (January 2020 Update) - Ориги
 magnet:?xt=urn:btih:8C20163EE94793793ABE98A6FB00B7E574D67B7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +313,8 @@ Windows Server 2019 LTSC 1809 Build 17763.973 (Updated January 2020) Ориги�
 magnet:?xt=urn:btih:118BE9329A4B68A5305FAE8B1BB32DB4B2184350
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +338,8 @@ Windows Server SAC - канал Semi-Annual Channel идеально подхо�
 ```bash
 magnet:?xt=urn:btih:4629D209CDBC7BEE38BB4E3C82050E221010C073
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +366,8 @@ Microsoft Windows 10.0.17763.973 Version 1809 (January 2020 Update) - Ориги
 magnet:?xt=urn:btih:226680A4E9861792057BF0CC0FEFC4AB3D1DA4C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +393,8 @@ Microsoft Windows 10.0.18362.592 Version 1903 (January 2020 Update) - Ориги
 magnet:?xt=urn:btih:2A2B883E9AA53F0B05988549DF70615EE12AC12B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +418,8 @@ Windows Server SAC - канал Semi-Annual Channel идеально подхо�
 ```bash
 magnet:?xt=urn:btih:74287E00A4E349FCE85E0C4C7BC4E81D47833E0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +445,8 @@ Microsoft Windows 10.0.17763.973 Version 1809 (January 2020 Update) - Ориги
 ```bash
 magnet:?xt=urn:btih:CD8D7342CB0D4BC1C69A2260E21FD26C568364F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +474,8 @@ Recovery Partition for ASUS K54C (X54C) / Windows 7 Home Basic (х64) SP1 [ру�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +499,8 @@ Windows Server – ведущая серверная операционная с
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +527,8 @@ Microsoft Windows 10.0.17763.2061, Version 1809 (Updated July 2021) - Ориги
 magnet:?xt=urn:btih:3D5B28CCD81FEF4D59F4C3EECB22E1810F83B85C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +552,8 @@ Windows Server SAC - канал Semi-Annual Channel идеально подхо�
 ```bash
 magnet:?xt=urn:btih:90583BFB316E614995471913034729596251A84F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +580,8 @@ Microsoft Windows 10.0.19042.1110, Version 20H2 (Updated July 2021) - Ориги
 magnet:?xt=urn:btih:890C5B214E3F278519D422B41688166D39BD0B3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +606,8 @@ Microsoft Windows 10.0.19041.1110, Version 2004 (Updated July 2021) - Ориги
 ```bash
 magnet:?xt=urn:btih:9F011063C7607DF212013DC37DE6FC58CD832FE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +634,8 @@ Windows 10 21H1 (Build 19043.1110) (60in2) x86/x64 by Sergei Strelec [Ru]
 magnet:?xt=urn:btih:3E79E74B7C07FB34BA349379E4329684D2D029CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +660,8 @@ Windows 8.1 6.3 (Build 9600.20069) (24in2) x86/x64 by Sergei Strelec [Ru]
 ```bash
 magnet:?xt=urn:btih:02B2C15C54270D991FD7A985A4942857226F0F6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,30 +688,7 @@ Microsoft Windows 10.0.19043.1052, Version 21H1 (Updated June 2021) - Ориги
 magnet:?xt=urn:btih:13061C96EE841C7BB3339787AC1D545445DB545F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479017   (1009901) от 21.06.2021
-
-Microsoft Windows 10.0.19043.1052, Version 21H1 (Updated June 2021) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.1052.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD075624D4171E000F2DFE0D2CA22204081CE790
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

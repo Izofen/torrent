@@ -22,6 +22,8 @@ Stepik, Анатолий Карпов и др. | Big Data for Data Science (2021
 magnet:?xt=urn:btih:74B023A77AEA9705B59263638DEB0577F4F2831A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Infosec - единственный провайдер обучения по во
 magnet:?xt=urn:btih:3D80367F4B60C37C4228037B8031C3A3E3D7C029
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:3D80367F4B60C37C4228037B8031C3A3E3D7C029
 ```bash
 magnet:?xt=urn:btih:49A55F1ECD30C5A970573FA5076477749B6C1D9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ SciOne | Дамп YouTube-канала SciOne (2014-2021) WEB-DL
 magnet:?xt=urn:btih:3FAEFF18B47571719E232D9428A7906E93EC6F43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ TalkPython, Michael Kennedy | Consuming HTTP Services in Python Course (2020) PC
 ```bash
 magnet:?xt=urn:btih:40982A7865F2A59C94B2AB808A07EBC3F372F883
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:40982A7865F2A59C94B2AB808A07EBC3F372F883
 magnet:?xt=urn:btih:E59AB74D71382C642DDD6C3F40D7AB0C904F0354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ Next.js - это готовый к работе фреймворк с подде
 magnet:?xt=urn:btih:DF8FD15FACA7CA6281DEB63A838010D753713472
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ Udemy, Bryan Cairns | Qt 6 Core Beginners with C++  (2021) PCRec [En / En Sub]
 ```bash
 magnet:?xt=urn:btih:CF9D2CD102277C76EA2666FC5503ADDE8443CE84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ Udemy, Robert Petras | SwiftUI Masterclass 2021 - iOS 14 App Development & Swift
 magnet:?xt=urn:btih:AAC0112E0C1BD4E0ECD8C3EE197CB4515440E5DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ TalkPython, Michael Kennedy и др. | #100DaysOfCode in Python Course (2020) PC
 magnet:?xt=urn:btih:FA36DFAA1794D961CE93B83A2ECDAC5B763D5750
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ TalkPython, Michael Kennedy | Async Techniques and Examples in Python Course (20
 ```bash
 magnet:?xt=urn:btih:639A2E3C7AEB6990D23E6422D8E32987D2D60B12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ Udemy, Abhishek CSEPracticals и др. | Part B - Networking Projects - Implemen
 magnet:?xt=urn:btih:7EE2201CEB13DB04DEAB2BFC71B2435B2DAECD6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ TalkPython, Michael Kennedy | Building Data-Driven Web Apps with Flask and SQLAl
 ```bash
 magnet:?xt=urn:btih:24DEE82366B758313F67D0ADE140714ADBC91F39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ Udemy, Abhishek CSEPracticals и др. | Part A - Networking Projects - Implemen
 magnet:?xt=urn:btih:0EA238E5906043D284B48E68393355EFF4662B48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ TalkPython, Michael Kennedy | Building Data-Driven Web Apps with Pyramid and SQL
 ```bash
 magnet:?xt=urn:btih:F0DED849F4D566E2A22389665417993171EB8163
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ Infostart, Николай Бондаренко | 1С:Предприятие дл
 magnet:?xt=urn:btih:02A3168AE8FC6D51B7801EC49D68C869EF793216
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ Udemy, Anton Golosnichenko | Vanilla JavaScript с нуля на практик�
 magnet:?xt=urn:btih:0CA85D8FE83747F3995D642D3FF3175B00031F66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ Udemy, Andrei Neagoie и др. | JavaScript Web Projects: 20 Projects to Build Y
 ```bash
 magnet:?xt=urn:btih:DC585E229BE9FDB951DD108551A7063CBD660E40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ Udemy, Anton Golosnichenko | Vanilla JavaScript [2021] - создаем клон
 magnet:?xt=urn:btih:E611AC8D80094862555BB853632482ABB9032222
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ Udemy, Edwin Diaz | PHP MVC Framework CodeIgniter Tutorial for Beginners Project
 magnet:?xt=urn:btih:0FCB12BF42B14843C5C7A53560360096EEB3F8BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ SkillBox, Дмитрий Куповых и др. | Профессия Режис
 magnet:?xt=urn:btih:6998476F7844DB283AEF444FF9BB51B7024CB2DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ Udemy, Andrei Dumitrescu | Ethical Hacking and Network Security from Scratch 202
 ```bash
 magnet:?xt=urn:btih:3E9F9A4E5895F906EEADFF61295D1E52323FD75F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +618,8 @@ Udemy, TCM Security, Heath Adams | Practical Ethical Hacking - The Complete Cour
 magnet:?xt=urn:btih:7D6B487706FB3540A637611DBCE42404409DCC03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ Udemy, Andrei Dumitrescu | Linux Administration: Build 5 Hands-On Linux Projects
 ```bash
 magnet:?xt=urn:btih:0CE7806C18BDC3A98A02951CFC2C821F93CE6041
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +675,8 @@ UralSOFT | Видеокурс Создание сборки Windows 7 UralSOFT (
 magnet:?xt=urn:btih:7B068E90BDFD6B5BE151B214722716C3F1571724
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ Udemy, Igor Ovchinnikov | Project Management With MS Project - Scheduling Master
 ```bash
 magnet:?xt=urn:btih:A243693D78240B7BEAFAFD079DDB16A4BEF56463
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Green Labyrinth - Shadow of My Past (2014) [MP3|320 Kbps] <Symphonic Metal, Fema
 magnet:?xt=urn:btih:05C8B51515BC5E074FEEE6DC6360EB8335F7C40B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Mutant Year Zero: Road to Eden — то, что нужно, чтобы удов�
 magnet:?xt=urn:btih:A0C5E0AF64EF954B4FC9BA7A7D2647B625A6FAB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ ExamDiff - мощная и легкая в использовании прогр
 ```bash
 magnet:?xt=urn:btih:86B88061E52F9C5BAC439EC005E92FE47B252605
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:86B88061E52F9C5BAC439EC005E92FE47B252605
 ```bash
 magnet:?xt=urn:btih:EADC4F6F1FD27883FC88A97329A64AECA535905A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ VA - Chillout Adventures, Pt. 2 (2021) [AAC|~317 Kbps] <Ambient, Chill Out, Down
 magnet:?xt=urn:btih:F9ABD5BEF8AE192B392B83819779BAF8D28E04D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Airtool 2 v.2.5.1 [En]
 magnet:?xt=urn:btih:11F0EA68774CA0D48B12A6E8A8542024B6D885EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ LOST EMBER (2019) [Ru/Multi] (1.0.0.11965) Repack Other s
 ```bash
 magnet:?xt=urn:btih:D0E46AACCAD2F57ED6C14B708CC653687321C6E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ VA - Chillout Adventures, Pt. 4 (2021) [AAC|~330 Kbps] <Ambient, Chill Out, Down
 magnet:?xt=urn:btih:795616356D81F8742F8C3DF14EFF71B9DDC365C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:795616356D81F8742F8C3DF14EFF71B9DDC365C3
 magnet:?xt=urn:btih:B7297F321BB627A5557474952331328DF4FBFEBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:B7297F321BB627A5557474952331328DF4FBFEBA
 ```bash
 magnet:?xt=urn:btih:1708033BD67B9AF3818350DEEC41E0DC632EFACE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ GlueMotion был создан, чтобы сэкономить время и п
 magnet:?xt=urn:btih:DEF292E649E072E6FD03A9A6166771CE06EBE8D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:DEF292E649E072E6FD03A9A6166771CE06EBE8D5
 ```bash
 magnet:?xt=urn:btih:080B301586B0FBE321F5C84BA247521C540AC162
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:080B301586B0FBE321F5C84BA247521C540AC162
 magnet:?xt=urn:btih:83919A1F16F53A3C66721405123ECDBED7D63BE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ Bartender - утилита для простой организации икон
 magnet:?xt=urn:btih:9B5A340F1FDB04D00CF98C59798C544120928A9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:9B5A340F1FDB04D00CF98C59798C544120928A9B
 ```bash
 magnet:?xt=urn:btih:6A6BA8F0F8912F91C3AF645676697B7DA9E5CA67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:6A6BA8F0F8912F91C3AF645676697B7DA9E5CA67
 magnet:?xt=urn:btih:D1A37B8E31811413AF2F2111BFD03E4290D693C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:D1A37B8E31811413AF2F2111BFD03E4290D693C4
 ```bash
 magnet:?xt=urn:btih:87EC93E16EFA0DB1113444B9978182A891BFFD5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ VA - Big Bass: Drum Sound Musical Collection Vol.01 (2020) [MP3|320 Kbps] <Drum 
 magnet:?xt=urn:btih:5DBDC0CF23332D9EB5ED57AEF3C0EBA55AAF5FF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ Native SQLite Manager — это удобный менеджер баз данн
 ```bash
 magnet:?xt=urn:btih:A1789EE11FEAD44CCDC0682BC0E74AC774034FFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:A1789EE11FEAD44CCDC0682BC0E74AC774034FFC
 magnet:?xt=urn:btih:D9FB4617039F03FAF7B5EE79D016BEE69B25945D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ One Piece Movie 1 / Ван-Пис: Фильм первый [2000] raw
 magnet:?xt=urn:btih:7AFE6164A5CD5EBC389260A8146D7ED558486454
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ Conan (2007) [Xbox360] [RegionFree] FreeBoot [License] [Ru]
 ```bash
 magnet:?xt=urn:btih:552D5BFF802BB8951824920F768602A31F09CB62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ Rouge - 1 Album, 5 Singles & EPs (1985-1988) (ex. Arabesque) [MP3|320 Kbps] <Ele
 magnet:?xt=urn:btih:61432EB00C9F73EFD34619B18A5A617E234B9EBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ Melt - Replica of Man (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal>
 ```bash
 magnet:?xt=urn:btih:7E12ACD4E6EBEB916FEED024EABC82B50D48D073
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:7E12ACD4E6EBEB916FEED024EABC82B50D48D073
 magnet:?xt=urn:btih:81A08490122E9FAE02DBF926622668726085D448
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ Find Any File не содержит никаких подменю с настр�
 ```bash
 magnet:?xt=urn:btih:1B838125BC9885D36943FD488010E97BE74456FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

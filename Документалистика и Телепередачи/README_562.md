@@ -1,3 +1,29 @@
+###  Публикация: 1017041   (769689) от 15.05.2016
+
+Территория зла. Бежать или остаться… (2016) DVB
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769689.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Территория зла. Бежать или остаться…» Вадима Фефилова — история москвича, который неожиданно для себя и близких вдруг отправился в опаснейшие районы Ирака. Зачем герой пустился в рискованное путешествие, кого он там повстречал и ответы на какие вопросы искал в иракских горах и пустыне?Телекомпания: Россия, AO «Телекомпания НТВ»Жанр: ДокументальныйПродолжительность: 00:44:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B062254A1A1A27083BE56654A139C97CD155E1BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016874   (769692) от 15.05.2016
 
 Научный детектив. Пахнет жареным (15.05.2016) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:10DA5EB7265C3B4126297BC9855D508525EBE3CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:10DA5EB7265C3B4126297BC9855D508525EBE3CF
 magnet:?xt=urn:btih:447337F0E2B7D5176C0B6655061F2EAA634908B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:447337F0E2B7D5176C0B6655061F2EAA634908B7
 ```bash
 magnet:?xt=urn:btih:7138804FF8E0A88FBFB8A9F1E0C6B0E273C5762B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:7138804FF8E0A88FBFB8A9F1E0C6B0E273C5762B
 magnet:?xt=urn:btih:16ADFA9587B8FD66AE54D0AAFAE8F50B73D7089B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:16ADFA9587B8FD66AE54D0AAFAE8F50B73D7089B
 ```bash
 magnet:?xt=urn:btih:53D9DC67B743251AE2CBF13CE65A740C08BD9F2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:53D9DC67B743251AE2CBF13CE65A740C08BD9F2E
 magnet:?xt=urn:btih:82F8E3A8469160A9669FE5AFD5B5E6DF1F72BA95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:82F8E3A8469160A9669FE5AFD5B5E6DF1F72BA95
 ```bash
 magnet:?xt=urn:btih:5A806F07C4CFA661988A2D806801D0DDED793CCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:5A806F07C4CFA661988A2D806801D0DDED793CCE
 magnet:?xt=urn:btih:8660AA0E996F56DC330748CD4FA21221F0E3119B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:8660AA0E996F56DC330748CD4FA21221F0E3119B
 ```bash
 magnet:?xt=urn:btih:9B2A7767DCA1C68FBD74E54D6C4CEF5B5FA85B15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:9B2A7767DCA1C68FBD74E54D6C4CEF5B5FA85B15
 magnet:?xt=urn:btih:A02B9FA658C490E08C274C36F672BF0321B7A299
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:A02B9FA658C490E08C274C36F672BF0321B7A299
 ```bash
 magnet:?xt=urn:btih:BF2A14FE8C77F37745374159B766363BD01B6A39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:BF2A14FE8C77F37745374159B766363BD01B6A39
 magnet:?xt=urn:btih:C89F971DAC8722AAD78EF6194E271B0AA3E7D027
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:C89F971DAC8722AAD78EF6194E271B0AA3E7D027
 ```bash
 magnet:?xt=urn:btih:1FD756982552AA56739F0AA98A516F9042D74247
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:1FD756982552AA56739F0AA98A516F9042D74247
 magnet:?xt=urn:btih:4273D1C1D33F406AC23C000867FFA54D145ACD50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:4273D1C1D33F406AC23C000867FFA54D145ACD50
 ```bash
 magnet:?xt=urn:btih:BF5664F809E85C19C2B0DA6C8DF396A7A598C828
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ NG. Таинственные гориллы / Mystery Gorilla (2009) HDTVRip [H.
 magnet:?xt=urn:btih:57C38930389FF0AB69EA1E273FEC2487E3CD2A85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:57C38930389FF0AB69EA1E273FEC2487E3CD2A85
 ```bash
 magnet:?xt=urn:btih:7D9FF34C0723BEFD4A52DB9C78FB33D9ED63857D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:7D9FF34C0723BEFD4A52DB9C78FB33D9ED63857D
 magnet:?xt=urn:btih:05C1972A6A0439AAA32255753D611CCB5E771F98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:05C1972A6A0439AAA32255753D611CCB5E771F98
 magnet:?xt=urn:btih:59CFC06D849B8660E74E5E73CEDDF7843D4C9282
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:59CFC06D849B8660E74E5E73CEDDF7843D4C9282
 ```bash
 magnet:?xt=urn:btih:AA38FC53CAA2EDE56FB35DB3C9AA0557246B7A66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:AA38FC53CAA2EDE56FB35DB3C9AA0557246B7A66
 magnet:?xt=urn:btih:67A0E1AAE3E95ECC5B572727A495E76871F48E4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:67A0E1AAE3E95ECC5B572727A495E76871F48E4E
 magnet:?xt=urn:btih:9C9FB8BC14972D405B69E90FD8120657E27A5331
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:9C9FB8BC14972D405B69E90FD8120657E27A5331
 ```bash
 magnet:?xt=urn:btih:713E47A29BD390EDE53095C4EC0F2EB7EE01D05C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:713E47A29BD390EDE53095C4EC0F2EB7EE01D05C
 magnet:?xt=urn:btih:B4517841AA941C695B3C066FC69734755B0C6E32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,30 +674,7 @@ magnet:?xt=urn:btih:B4517841AA941C695B3C066FC69734755B0C6E32
 magnet:?xt=urn:btih:175B274D338770D31460C7878D80A66F62A1FFD6
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608295   (771437) от 25.01.2019
-
-Владимир Высоцкий. Письмо Уоррену Битти (2013) SATRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771437.jpg" />
-</div>
-
-
-###  Подробнее
-
-При жизни Владимира Высоцкого по Центральному телевидению СССР не было показано ни одного его концертного выступления или интервью. В фильме - уникальные кадры, изначально предназначались для одного-единственного зрителя.
-В мае 1979 года Владимиром Высоцким было записано видеописьмо, адресованное американскому актёру Уоррену Битти. Предполагалось, что в результате (   Читать дальше...   )Жанр: Документальный, биография, история, культура, искусство, авторская песняРежиссер: Александр Ковановский, Игорь РахмановПродолжительность: 00:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFC1F51D9E8C53EF8EC7F993833F1EB135242E32
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

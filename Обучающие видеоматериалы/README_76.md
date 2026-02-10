@@ -22,6 +22,8 @@ Node Микросервисы / Node Microservices
 magnet:?xt=urn:btih:5D79A34FF87B5B5A4407F2223D3B3BA26D08A514
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Josh W Comeau | The Joy of React (2023) WEB-DL [EN]
 magnet:?xt=urn:btih:EF0B99F12EE625D0820A6C3FADB694B75A43FD64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ HashiCorp Vaultэто инструмент с открытым исходным 
 magnet:?xt=urn:btih:3A59DFB139E10E1849B7EC8E81386DF3ABA91A8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Slurm (Слёрм), Денис Наумов, Антон Рязанцев | Pytho
 magnet:?xt=urn:btih:8D29B993691D4BC63DA32D8A0A450CAFD4EDBCEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Slurm (Слёрм), Пётр Щербаков | Микросервисы: про
 ```bash
 magnet:?xt=urn:btih:1C9E3EFA9E8F5947492F309743E8E6854BC1925C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:1C9E3EFA9E8F5947492F309743E8E6854BC1925C
 magnet:?xt=urn:btih:8F5D3A02378B0B69B6512545A74E54D451EBBA5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Udemy, Creativity Unleashed | Blender Environments Megacourse: Create 3D Environ
 ```bash
 magnet:?xt=urn:btih:AAA5AAE05B1D45F8D1D787143A988B159D530EF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:AAA5AAE05B1D45F8D1D787143A988B159D530EF5
 magnet:?xt=urn:btih:EF128DD5F3604A8D25D2734B571B251E80440F45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ magnet:?xt=urn:btih:EF128DD5F3604A8D25D2734B571B251E80440F45
 magnet:?xt=urn:btih:279B377B2DA8E95C693DE9BE2E5778D2DDA066D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ JS-разработчики соберутся в онлайне, чтобы о�
 magnet:?xt=urn:btih:35501C1D122314031B8C6362879A6D6727DB97D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:35501C1D122314031B8C6362879A6D6727DB97D8
 ```bash
 magnet:?xt=urn:btih:97502094BEF42527017CADCBAA12E74D1B61D36D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:97502094BEF42527017CADCBAA12E74D1B61D36D
 ```bash
 magnet:?xt=urn:btih:EB0D3C4492D1C4A576078FCFE17ADE0C41E180E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ UNIVER S - КУРС ПО СВЕТУ!! Именно этот курс НАУЧИ�
 magnet:?xt=urn:btih:D61EC04B770AA5E4464F7659BAA9A3E232F03B61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ Udemy, Илья Фофанов | Алгоритмы и структуры дан
 ```bash
 magnet:?xt=urn:btih:0DC5D8CD06A69F4933F3B823FDFBD7CEA63EEBBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ Skillbox, Артём Володкин, Андрей Неляпин, Михаил
 magnet:?xt=urn:btih:A1F272C48CF3AFB560DCE900AF89ABA2DDCC0195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +437,8 @@ Changellenge, Семен Бохер и др. | Excel для карьеры и п
 magnet:?xt=urn:btih:5FEA5693DCD46C8F2EABC784F052E9CC69CE81F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ Udemy, Никита Ильин | Польский язык: С нуля до Б1
 ```bash
 magnet:?xt=urn:btih:1EB6DE549A0712AF16E9113B03C1485E94AE884E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +491,8 @@ magnet:?xt=urn:btih:1EB6DE549A0712AF16E9113B03C1485E94AE884E
 magnet:?xt=urn:btih:0EF8FA72C99627F082B5F1B4391A6CC6309999BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +518,8 @@ magnet:?xt=urn:btih:0EF8FA72C99627F082B5F1B4391A6CC6309999BA
 ```bash
 magnet:?xt=urn:btih:F820BF2EF7D801ADB1CF6541A993B8F7F2D9F88A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +548,8 @@ magnet:?xt=urn:btih:F820BF2EF7D801ADB1CF6541A993B8F7F2D9F88A
 magnet:?xt=urn:btih:5D358CAA17EB244FB980A7D01DE51301A65C4248
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +576,8 @@ magnet:?xt=urn:btih:5D358CAA17EB244FB980A7D01DE51301A65C4248
 magnet:?xt=urn:btih:2D9CF84506D8C90B276172BFA2AAB01286D5E020
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +602,8 @@ Udemy, Александр Сокирка (Alexandr Sochirca) | Весь WordPres
 magnet:?xt=urn:btih:895F1EA10203B369274D4CCA70195817D731994A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ Udemy, Александр Сокирка (Alexandr Sochirca) | Весь WordPres
 ```bash
 magnet:?xt=urn:btih:74F5701C70D7269E7007415681490898494F74F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +657,8 @@ magnet:?xt=urn:btih:74F5701C70D7269E7007415681490898494F74F2
 magnet:?xt=urn:btih:CF760B2354BDB053353B7D74D7B9AB0508F5AD73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ Max Net Entertainment | Аэробика без одежды/Totally Nude Aerobi
 ```bash
 magnet:?xt=urn:btih:B507B8F2C2C1D07817CF29E376F31A030709B7E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +711,8 @@ GeekBrains, Александра Чижова и др. | Анализ данны
 ```bash
 magnet:?xt=urn:btih:AFD2F9308FB0BAA9027E2BE66F51B18F854F3462
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

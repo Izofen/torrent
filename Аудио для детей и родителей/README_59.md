@@ -22,6 +22,8 @@ VA - Детские песни. 200 песен (2011) [MP3|128-256 kbps]<Дет�
 magnet:?xt=urn:btih:0F276DF8BD2BDC4A130E0D0609B35BC5F9F77D62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:0F276DF8BD2BDC4A130E0D0609B35BC5F9F77D62
 magnet:?xt=urn:btih:638BE196073227D50644A97553DE56EBA2765CD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:638BE196073227D50644A97553DE56EBA2765CD7
 ```bash
 magnet:?xt=urn:btih:6C89E39E18D21EA840B0995B0DAF75B60004BB5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +109,8 @@ magnet:?xt=urn:btih:6C89E39E18D21EA840B0995B0DAF75B60004BB5E
 magnet:?xt=urn:btih:4F2896AB2C5C26D8AEB7AB32C2ECA752302825B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ VA - Livin'G presents: Happy Box, Happy Kids, Happy Time. Music Box, Baby Box, v
 ```bash
 magnet:?xt=urn:btih:F7D66EEED40622A24CD05B92D8F100E8205D3512
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +167,8 @@ VA - Поп-рок-хиты в стиле колыбельных для малы
 magnet:?xt=urn:btih:64094396F4E44063D141E634E12BFBCBAB0509F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ magnet:?xt=urn:btih:64094396F4E44063D141E634E12BFBCBAB0509F1
 ```bash
 magnet:?xt=urn:btih:263D763BEAE3AB26AF448C9E8648A8CCB562EB1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -206,6 +220,8 @@ magnet:?xt=urn:btih:263D763BEAE3AB26AF448C9E8648A8CCB562EB1A
 ```bash
 magnet:?xt=urn:btih:29C8A3B43627E7C1A24A84ACFFC9D52CC9DD127F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -234,6 +250,8 @@ Baby Einstein - Baby Santa Holiday Classics (2000) [MP3|192 kbps]<Классич
 magnet:?xt=urn:btih:77CAB27B2DA66010E604654B5F9DE322F8BE2745
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -257,6 +275,8 @@ magnet:?xt=urn:btih:77CAB27B2DA66010E604654B5F9DE322F8BE2745
 ```bash
 magnet:?xt=urn:btih:7D634E7171DF48BED93CFECE3B6C181ED211164A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +305,8 @@ magnet:?xt=urn:btih:7D634E7171DF48BED93CFECE3B6C181ED211164A
 magnet:?xt=urn:btih:82F32ECA5957DB459354D25EFE76F875CE6BB5BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +333,8 @@ magnet:?xt=urn:btih:82F32ECA5957DB459354D25EFE76F875CE6BB5BE
 magnet:?xt=urn:btih:FD8DF99897F641B0D2277F403C14E6FB40A393CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +358,8 @@ magnet:?xt=urn:btih:FD8DF99897F641B0D2277F403C14E6FB40A393CC
 ```bash
 magnet:?xt=urn:btih:EF2904090C8D778791BEE24ED26EFE464CEE1B58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +385,8 @@ magnet:?xt=urn:btih:EF2904090C8D778791BEE24ED26EFE464CEE1B58
 magnet:?xt=urn:btih:747792E67E9ADCC2AD0412A1C5E5F956F83CC6B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +410,8 @@ magnet:?xt=urn:btih:747792E67E9ADCC2AD0412A1C5E5F956F83CC6B2
 ```bash
 magnet:?xt=urn:btih:0AD6027159F87A44A752FFB38D1A371209179866
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +440,8 @@ VA - Країна дитинства (2007) [MP3|128 kbps]<Песенки для
 magnet:?xt=urn:btih:98F146CF7201BC4BE540A340ACE36AB6EE65D6B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +469,8 @@ magnet:?xt=urn:btih:98F146CF7201BC4BE540A340ACE36AB6EE65D6B9
 magnet:?xt=urn:btih:A5369BD12B2B91A767A097CE3BE503537FA3E7D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +494,8 @@ magnet:?xt=urn:btih:A5369BD12B2B91A767A097CE3BE503537FA3E7D3
 ```bash
 magnet:?xt=urn:btih:46D92895A5E438CDA41701688AD69040A7E6EF6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +522,8 @@ magnet:?xt=urn:btih:46D92895A5E438CDA41701688AD69040A7E6EF6B
 magnet:?xt=urn:btih:26F92D01A0412F3871BFCE3B886827296AB9CA4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +547,8 @@ magnet:?xt=urn:btih:26F92D01A0412F3871BFCE3B886827296AB9CA4D
 ```bash
 magnet:?xt=urn:btih:6EF1E9D33838F1AB78028763ED8E211386B4314B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +577,8 @@ magnet:?xt=urn:btih:6EF1E9D33838F1AB78028763ED8E211386B4314B
 magnet:?xt=urn:btih:9E95E7FCE3A91933202BA6636F311D23DC14B0D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +602,8 @@ magnet:?xt=urn:btih:9E95E7FCE3A91933202BA6636F311D23DC14B0D2
 ```bash
 magnet:?xt=urn:btih:50BFF3E8C8E79C7B77793DEDA072E09F42B319B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +629,8 @@ magnet:?xt=urn:btih:50BFF3E8C8E79C7B77793DEDA072E09F42B319B4
 magnet:?xt=urn:btih:A30EE06C74C83C102706B1D41F13908C4CF21E15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +655,8 @@ magnet:?xt=urn:btih:A30EE06C74C83C102706B1D41F13908C4CF21E15
 magnet:?xt=urn:btih:1E87FAC3E064DE9CBDE7EDE94DFEFDA5DD901A82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +680,8 @@ magnet:?xt=urn:btih:1E87FAC3E064DE9CBDE7EDE94DFEFDA5DD901A82
 ```bash
 magnet:?xt=urn:btih:9B1CDB6B4C6C428FB25B0524B80D40C71AE46983
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +709,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:9E9E7EB9A9D5D5F67901446A9F6A3723697FB306
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

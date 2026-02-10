@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:0B9E8796B6334F70F433594D95457EB5ADBABA96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:0B9E8796B6334F70F433594D95457EB5ADBABA96
 magnet:?xt=urn:btih:D81D32AC197DB458A167FF4AB453B3A1535F5A0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:D81D32AC197DB458A167FF4AB453B3A1535F5A0D
 ```bash
 magnet:?xt=urn:btih:65D685BE652C1F61B026EE5E80074A83F1DFC3B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ Dragonsclaw - Prophecy (2011) [MP3|320 kbps]<Heavy Metal / Power Metal>
 magnet:?xt=urn:btih:A1968B2FF6F2E0DD1194E35203675ACF2AC33358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:A1968B2FF6F2E0DD1194E35203675ACF2AC33358
 ```bash
 magnet:?xt=urn:btih:409DE2D8929741FCC1C92FAD99F540C0D44C6C99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:409DE2D8929741FCC1C92FAD99F540C0D44C6C99
 magnet:?xt=urn:btih:387E2FAC7846A4CCC8BC454CF6096753CB589EB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:387E2FAC7846A4CCC8BC454CF6096753CB589EB3
 magnet:?xt=urn:btih:72A6BC8E6B8D099358DF556B1F4AA842262EE2A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:72A6BC8E6B8D099358DF556B1F4AA842262EE2A9
 ```bash
 magnet:?xt=urn:btih:B94083AB37A0181DDD0E57546D6BA583C1A96BEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ Red Seas Fire - Red Seas Fire (2011) [MP3|320 kbps]<Progressive Metal / Hardcore
 ```bash
 magnet:?xt=urn:btih:7C357526ADBB118C29DC5FC425F5FC6C6AC5F8C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +277,8 @@ Wolfsbane - Wolfsbane Save the World (2012) [MP3|320 kbps]<Heavy Metal>
 magnet:?xt=urn:btih:F86255B8167ED075EAC6E5EEB3E192B623AD0114
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +312,8 @@ Dada Life - January 2012 Mix (31-01-2012) [MP3|192 kbps]<House>
 magnet:?xt=urn:btih:E0F0A3A70E1A6919FD8BAB7444BC164A900446D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ magnet:?xt=urn:btih:E0F0A3A70E1A6919FD8BAB7444BC164A900446D9
 ```bash
 magnet:?xt=urn:btih:3DD940C606E9C6D33D3DD4ED3C1F84BA8A252E44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ magnet:?xt=urn:btih:3DD940C606E9C6D33D3DD4ED3C1F84BA8A252E44
 magnet:?xt=urn:btih:BE4442C9ABFC60D9DD40540173CB397D62FF6B3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +393,8 @@ magnet:?xt=urn:btih:BE4442C9ABFC60D9DD40540173CB397D62FF6B3B
 magnet:?xt=urn:btih:810F25A26981CDFE3347B2CF74AE9F6A18EAFAA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +418,8 @@ magnet:?xt=urn:btih:810F25A26981CDFE3347B2CF74AE9F6A18EAFAA0
 ```bash
 magnet:?xt=urn:btih:3A89109B4C2FD40E2835DB8DF0185DDFC9C164AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +453,8 @@ Aggression - Viocracy (2012) [MP3|320 kbps]<Thrash Metal>
 magnet:?xt=urn:btih:435D3B3B4937C960DDA200B79AED1E658ACC5CCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +486,8 @@ VA - Музыкальный проект Выпуски 1-2 (2012)
 magnet:?xt=urn:btih:D840768ED60564F857F7A3B8DCDCE8C81D1A941D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ magnet:?xt=urn:btih:D840768ED60564F857F7A3B8DCDCE8C81D1A941D
 ```bash
 magnet:?xt=urn:btih:BC991A5178D833BDA4761F154584107A9B1FA091
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +547,8 @@ Syrrenfor - Inside my mind (2012) [MP3|320 kbps]<Instrumental,Electronic,Progres
 magnet:?xt=urn:btih:0EF224854C9909692088C6A41516CD695764782E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +573,8 @@ magnet:?xt=urn:btih:0EF224854C9909692088C6A41516CD695764782E
 ```bash
 magnet:?xt=urn:btih:547E1BC330C86A9CB2CEF0418121E6E54C00B7A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +603,8 @@ magnet:?xt=urn:btih:547E1BC330C86A9CB2CEF0418121E6E54C00B7A7
 magnet:?xt=urn:btih:981A06830C7EE84ECF7355C53A91842A71D715AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +628,8 @@ magnet:?xt=urn:btih:981A06830C7EE84ECF7355C53A91842A71D715AC
 ```bash
 magnet:?xt=urn:btih:44D43F32A931DB5E5CE2D51E3CEE9DE2954042B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +655,8 @@ magnet:?xt=urn:btih:44D43F32A931DB5E5CE2D51E3CEE9DE2954042B3
 magnet:?xt=urn:btih:63695D1EF65FF4391CD2FAD32B899ED6F1A5FF08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +680,8 @@ magnet:?xt=urn:btih:63695D1EF65FF4391CD2FAD32B899ED6F1A5FF08
 ```bash
 magnet:?xt=urn:btih:F7FFF994CD910DB53BA2C48324C41A640101EE53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,6 +716,8 @@ Like Wendy - Rainchild (1999) [FLAC|Lossless]<Progressive Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -691,6 +741,8 @@ NG: Последняя рысь Испании / Spain's Last Lynx (2005) SATRip
 ```bash
 magnet:?xt=urn:btih:720C787A54439C48753F16F82BD83B832A123518
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

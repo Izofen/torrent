@@ -26,6 +26,8 @@ VA - Trance Parade Vol.2 (17.04.2012)
 magnet:?xt=urn:btih:4D64CFC25903F489C7DD8BD0D244642BF5519D86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ magnet:?xt=urn:btih:4D64CFC25903F489C7DD8BD0D244642BF5519D86
 magnet:?xt=urn:btih:DA59451AA5B590C3317310BE71A563937641F97B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ Media Player Classic HomeCinema - удобный во всех планах му
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ Media Player Classic HomeCinema - удобный во всех планах му
 magnet:?xt=urn:btih:E2F4E7B86FC7A36D80BB7684DDD74E916F6DF77F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:E2F4E7B86FC7A36D80BB7684DDD74E916F6DF77F
 ```bash
 magnet:?xt=urn:btih:950326F2F08360741F1C1519623FCC080C29E381
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:950326F2F08360741F1C1519623FCC080C29E381
 ```bash
 magnet:?xt=urn:btih:9370391A9A86B9AB1BDFA2A04167B77DEE9B7549
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Freedom Festival 2011 Back To The Roots (2012) [MP3|~245 кб/с (V0)]<Psyc
 magnet:?xt=urn:btih:F295BCA861384B0F5352AC4351A5813E393B59E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -209,6 +223,8 @@ Recursion - Transcendence In Impermanence (2011) [MP3|320 кб/с]<Technical Dea
 magnet:?xt=urn:btih:6FE6D734F05AE52755EDDF3F937583E25D079C43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +248,8 @@ magnet:?xt=urn:btih:6FE6D734F05AE52755EDDF3F937583E25D079C43
 ```bash
 magnet:?xt=urn:btih:92518BE3490619F9A535D333980A1F5F89E640D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +279,8 @@ magnet:?xt=urn:btih:92518BE3490619F9A535D333980A1F5F89E640D3
 magnet:?xt=urn:btih:85446EA393D5F260F67B911793F76A89A6A0E2ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +305,8 @@ magnet:?xt=urn:btih:85446EA393D5F260F67B911793F76A89A6A0E2ED
 magnet:?xt=urn:btih:417F324EEA7F72B3D8A8655B8083C7A79165FBBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +330,8 @@ magnet:?xt=urn:btih:417F324EEA7F72B3D8A8655B8083C7A79165FBBB
 ```bash
 magnet:?xt=urn:btih:30662E3A43BA7C7C56EF3CD6B9565D06C702E476
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +358,8 @@ magnet:?xt=urn:btih:30662E3A43BA7C7C56EF3CD6B9565D06C702E476
 magnet:?xt=urn:btih:0C94494C604B560581CE15777CFFFB1E6611DEEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ magnet:?xt=urn:btih:0C94494C604B560581CE15777CFFFB1E6611DEEA
 ```bash
 magnet:?xt=urn:btih:CC3851C8BD6C571706D28464FA47AF9050CFAA7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +410,8 @@ magnet:?xt=urn:btih:CC3851C8BD6C571706D28464FA47AF9050CFAA7A
 magnet:?xt=urn:btih:12994C838F98ECDAE5AC6B9633F4ABC581B4DF07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ Media Player Classic HomeCinema - удобный во всех планах му
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ Jaguar - одна из знаменитых марок в мире, котора
 ```bash
 magnet:?xt=urn:btih:39FC8CC5D9143C75061778EB824EE9FBA945CE25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +492,8 @@ magnet:?xt=urn:btih:39FC8CC5D9143C75061778EB824EE9FBA945CE25
 magnet:?xt=urn:btih:4105A9DB6102AFE3D70D498DD7F02B2B60C737DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ magnet:?xt=urn:btih:4105A9DB6102AFE3D70D498DD7F02B2B60C737DC
 ```bash
 magnet:?xt=urn:btih:1425638E3918B4AE6EC5838B45B2EFFAD5109044
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +553,8 @@ Hour 1:
 magnet:?xt=urn:btih:4792333634E693AF7863D00AB0299E15E412D737
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +583,8 @@ magnet:?xt=urn:btih:4792333634E693AF7863D00AB0299E15E412D737
 magnet:?xt=urn:btih:4FFAB0E16511A0B8AA08E5033A1C2E2AD8813753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +608,8 @@ magnet:?xt=urn:btih:4FFAB0E16511A0B8AA08E5033A1C2E2AD8813753
 ```bash
 magnet:?xt=urn:btih:E3F7662C3F68301A8E979385FD5A1932E51F7CAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +639,8 @@ magnet:?xt=urn:btih:E3F7662C3F68301A8E979385FD5A1932E51F7CAE
 magnet:?xt=urn:btih:6AD53D88FE35477F2BDE8BE097DE7A0B7693578C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +666,8 @@ Psychotic Homicidal Dismemberment - Displaying Her Decapitated Corpse (2011) [MP
 ```bash
 magnet:?xt=urn:btih:52ADB6587A6A0AF02563AA0DD3F8ABED8FB20A7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +697,8 @@ magnet:?xt=urn:btih:52ADB6587A6A0AF02563AA0DD3F8ABED8FB20A7A
 magnet:?xt=urn:btih:60E87049D4EEEC29E3C573DE6B32DD9785D2180B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -675,6 +725,8 @@ Cosmithex - Shipment EP (2012) [MP3|320 кб/с]<Trance / Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:C670528825E907EFB4134BA3DAA96BD7B4C43F64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

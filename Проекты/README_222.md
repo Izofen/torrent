@@ -19,6 +19,8 @@ Garden of Love - A Wedding Day - красивое слайд-шоу в саду 
 magnet:?xt=urn:btih:2101C63471CD6D1CB74DF551752A735FA557BD05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Hello Nature - Floral Pack v2 - Благодаря  комментариям и 
 ```bash
 magnet:?xt=urn:btih:3867C22FC6917E8B8A44C559630594EF4F39EC7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Simplex Infographic Bundle - Этот проект является коллек
 magnet:?xt=urn:btih:1D0F0545A47E3C1983F1A37A803C11052AA1972D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Broadcast Sports Events - большой пакет анимационных э�
 ```bash
 magnet:?xt=urn:btih:A9EC9229E1282332E9CC1A060E68F33C14852C08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:A9EC9229E1282332E9CC1A060E68F33C14852C08
 magnet:?xt=urn:btih:78EE57E7BE9BC930AF7BA6E837FF5E836CFECC41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:78EE57E7BE9BC930AF7BA6E837FF5E836CFECC41
 ```bash
 magnet:?xt=urn:btih:B8B33258814896193698A123AAFF51BA5C9B9AFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Sports Broadcast Pack - шаблон для трансляции с 9 спорт
 magnet:?xt=urn:btih:00C2D432E6F5602253D24B7285FC2C1D1BA715E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:00C2D432E6F5602253D24B7285FC2C1D1BA715E0
 ```bash
 magnet:?xt=urn:btih:C90A5BBA81031D36C38FC33029D86C1362C4AB5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:C90A5BBA81031D36C38FC33029D86C1362C4AB5A
 magnet:?xt=urn:btih:49A79CB5BDA0AA017BAF6AF742BC8DE2DD8A3256
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:49A79CB5BDA0AA017BAF6AF742BC8DE2DD8A3256
 ```bash
 magnet:?xt=urn:btih:FE3F10DB48EDFD1644969CE4ECCDE9538C737420
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:FE3F10DB48EDFD1644969CE4ECCDE9538C737420
 magnet:?xt=urn:btih:AFFE1E0C9D46C4086F7C9DD8CFDBDDAD222D7BE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Colourful Football Opener - красочный проект для соревн�
 ```bash
 magnet:?xt=urn:btih:C02ADB111679C4D0F000655F892F5ABC4A5B8E65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Thriller - темный и "задумчивый" проект с последо
 magnet:?xt=urn:btih:762D576EF25A3EB06C497FE59F12987E5B75BF88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Dynamic Openers - динамичная, модная открывалка для
 ```bash
 magnet:?xt=urn:btih:07076B1495A2CBEBE1321B69783ACCEF486C5A6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:07076B1495A2CBEBE1321B69783ACCEF486C5A6A
 magnet:?xt=urn:btih:E46F2FA92D538D7D4E18EED154672CB93C16B9CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:E46F2FA92D538D7D4E18EED154672CB93C16B9CA
 ```bash
 magnet:?xt=urn:btih:4DE524B5E503ACF6CE9A7C6CB16133BDEBF821D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Inspiring Quotes Opener - представляет собой пакет наз�
 magnet:?xt=urn:btih:C271204B9C3DE092036E0D7BA916280C4E06E238
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:C271204B9C3DE092036E0D7BA916280C4E06E238
 ```bash
 magnet:?xt=urn:btih:BD48F10DE2EE6A0962E7246D0257855A5A204136
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ Energy Logo Reveal - яркий , энергичный, красочный пр�
 magnet:?xt=urn:btih:A621645C113A3B895B0F284AE59738F7F3B04F83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ Watermark - пакет под названием "Водяной знак", с �
 ```bash
 magnet:?xt=urn:btih:19C4BF4DD5EC97A1B963FC6370EB589965F3098F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:19C4BF4DD5EC97A1B963FC6370EB589965F3098F
 magnet:?xt=urn:btih:8FDB20274F71399FFB0775F342D91610F27C610B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ magnet:?xt=urn:btih:8FDB20274F71399FFB0775F342D91610F27C610B
 ```bash
 magnet:?xt=urn:btih:091C8C2A6A55C661C5E22E586025C474166C36B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ magnet:?xt=urn:btih:091C8C2A6A55C661C5E22E586025C474166C36B7
 magnet:?xt=urn:btih:F23BF24926047EAB8157C4562688FD406F486EF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ Equation - проект под названием равнение, предст
 ```bash
 magnet:?xt=urn:btih:F5D14A9F59ED124655F66A70EB47FE8EE505C178
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ magnet:?xt=urn:btih:F5D14A9F59ED124655F66A70EB47FE8EE505C178
 magnet:?xt=urn:btih:4E7F63E0A6094CEED60E2C034F190F729F133A40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Shape Animation Logo Reveal - это 5 вариантов стильного п�
 ```bash
 magnet:?xt=urn:btih:593AF338EA7A867353F533B6CE59DFB46D529E3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:BC1BA6BD4407BCBD151E81AE9EF34F23D50A0017
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Screenshot Touch – это удобное и простое приложени�
 ```bash
 magnet:?xt=urn:btih:3BDBBFC6DE67312E352BDB7A903D6DCEF4F524C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:3BDBBFC6DE67312E352BDB7A903D6DCEF4F524C7
 magnet:?xt=urn:btih:E1BF3DF2841A37A8C3B6598BF5C9202C15129A6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:E1BF3DF2841A37A8C3B6598BF5C9202C15129A6D
 ```bash
 magnet:?xt=urn:btih:7D39C3F6AE13CB3002711AC416AEC632EB8F9759
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:7D39C3F6AE13CB3002711AC416AEC632EB8F9759
 magnet:?xt=urn:btih:350C73D2B5B473F8289C6DB420C36A7E62ED9917
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:350C73D2B5B473F8289C6DB420C36A7E62ED9917
 ```bash
 magnet:?xt=urn:btih:3C7DFFE40A46AC9E38682316E328845DA8D242E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Kraftur был тщательно спроектирован для обогащ
 magnet:?xt=urn:btih:706B802D817B83C2C781387A47E4BE9807BB41CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ The Hungry Lamb: Traveling in the Late Ming Dynasty / Epiao: Ming Mo Qianli Xing
 ```bash
 magnet:?xt=urn:btih:4BC6FCF5ADC58BBD62193722CA74122DF2166E45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Tex Murphy: The Pandora Directive (1996) [Multi] (1.02) License GOG
 magnet:?xt=urn:btih:B97966C8E16FB10E2C11D11F6BF220FE7DEE7516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Papers, Please (2013) [Ru/Multi] (1.4.11.124) Repack EXROW
 magnet:?xt=urn:btih:FC5B69103DAC4AD3A5210DA3F9AF8E8F6FAD426F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Tex Murphy: Under a Killing Moon (1994) [Multi] (1.01) License GOG
 ```bash
 magnet:?xt=urn:btih:7BEE977EA12231AB6669AB85AF755E65EE02BB7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ CD1:
 magnet:?xt=urn:btih:50D83588765E15BB30DF71D7EF9B14EC9BBAB64B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Smart AudioBook Player Pro v11.4.9 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:84CD91335F43436866D1A8BBFB6398BE30891A01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ VA - Global Pop Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:0A8C900CE45BE8CC10F1A378E2D52466711AA148
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:0A8C900CE45BE8CC10F1A378E2D52466711AA148
 magnet:?xt=urn:btih:4150DF08809BA73EC59D375059C94D1A27C7EE8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:4150DF08809BA73EC59D375059C94D1A27C7EE8B
 ```bash
 magnet:?xt=urn:btih:D3E7F536395071E21EF8BFB0BA9288A045D7BEF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:D3E7F536395071E21EF8BFB0BA9288A045D7BEF3
 magnet:?xt=urn:btih:B3F2E6AB271430EA08444488027BF8D598A14D59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:B3F2E6AB271430EA08444488027BF8D598A14D59
 ```bash
 magnet:?xt=urn:btih:4CEDF0C0A2A767154C435593C81845F263B889E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:4CEDF0C0A2A767154C435593C81845F263B889E6
 magnet:?xt=urn:btih:70E26A2FCEA3B95D9DA09A2BB7443245318C7F98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:70E26A2FCEA3B95D9DA09A2BB7443245318C7F98
 ```bash
 magnet:?xt=urn:btih:C97078BDF631234A0C6352C069BDE479EAF3FE9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:C97078BDF631234A0C6352C069BDE479EAF3FE9C
 magnet:?xt=urn:btih:ED9423773811CA37F4950E94E6DF600BB33D2462
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:ED9423773811CA37F4950E94E6DF600BB33D2462
 ```bash
 magnet:?xt=urn:btih:5AC88B71C1553CFE97BF200844FB72DAC9E6E4ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ Disc One:
 magnet:?xt=urn:btih:49908A16C05E9350B55E31575DF292FE910BCB7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ Tommy Baldwin - Nappy Headed White Boy (2025) [FLAC 24/96|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:B67D0DF76ADE93FEED1DA63008DDA2C2456B725B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +660,8 @@ Steve Marriner - Hear My Heart (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 magnet:?xt=urn:btih:9C7ACCE9512AAF5086CFD74D138F7258DF5CB05E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ The Slime - Crab-Walk to Oblivion (2025) [MP3|320 Kbps] <Thrash Metal, Crossover
 ```bash
 magnet:?xt=urn:btih:AD161A21E0CE681CD6648D8578FC75AC739D66C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

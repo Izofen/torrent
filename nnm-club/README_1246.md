@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:D5B71BEA7DED327170D6BA25DEA0D2976470DD99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:D5B71BEA7DED327170D6BA25DEA0D2976470DD99
 magnet:?xt=urn:btih:5A3F4155C6A42BD5F0AF5FAF2331333C0F7010C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:5A3F4155C6A42BD5F0AF5FAF2331333C0F7010C2
 ```bash
 magnet:?xt=urn:btih:2EE380758F0A62029BCD2FB1EF3712434D25CB98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:2EE380758F0A62029BCD2FB1EF3712434D25CB98
 magnet:?xt=urn:btih:A2658EEC566FC9E951D85821C7316DB437B03101
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ VA - Remixes 2025 (2024) [MP3|320 Kbps] <Club, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:BF138919850D53B9CCF71E2FB3843BC95D4C12D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:BF138919850D53B9CCF71E2FB3843BC95D4C12D4
 magnet:?xt=urn:btih:11CA5C252B3E9FD2973EED5ABD8DF4819E0CCCC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:11CA5C252B3E9FD2973EED5ABD8DF4819E0CCCC5
 ```bash
 magnet:?xt=urn:btih:D5F8FA6C3E679F568F0FB347A94D752CBEBC4C2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:D5F8FA6C3E679F568F0FB347A94D752CBEBC4C2D
 magnet:?xt=urn:btih:5322B8A3B26F9EF30E5182C54CC1BA159C5D45CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:5322B8A3B26F9EF30E5182C54CC1BA159C5D45CB
 ```bash
 magnet:?xt=urn:btih:9384D7448F135A765101570E2E74D9AF069EA374
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Red Dead Redemption - компьютерная игра в жанре action-adv
 magnet:?xt=urn:btih:942CE3D42A4E19AA77317BBCE1841A79D5C5E0A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Alan Wake 2 / Alan Wake II (2023) [Ru/En] (1.2.7/dlc) Repack Other s [Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:71C59D05E1CB6A5BB7EC66C62B6C3E2AFF542BFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:71C59D05E1CB6A5BB7EC66C62B6C3E2AFF542BFF
 magnet:?xt=urn:btih:2641CE3217C94B8499554946F26543DECF534019
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:2641CE3217C94B8499554946F26543DECF534019
 ```bash
 magnet:?xt=urn:btih:FB239BC1F441AD4F7DBF8453C76657D0E9E703CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:FB239BC1F441AD4F7DBF8453C76657D0E9E703CF
 magnet:?xt=urn:btih:3F19133D107006C9A90F2F6EDD3DFF271F164AA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:3F19133D107006C9A90F2F6EDD3DFF271F164AA6
 ```bash
 magnet:?xt=urn:btih:769A594505806655567FD1366E4C36DDDEB438D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:769A594505806655567FD1366E4C36DDDEB438D0
 magnet:?xt=urn:btih:06B6EC9F651B57281BEC03CE01A09070FDF74A8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:06B6EC9F651B57281BEC03CE01A09070FDF74A8D
 ```bash
 magnet:?xt=urn:btih:FA7675EC028D6B11F83E06A731BB2B0279279875
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:FA7675EC028D6B11F83E06A731BB2B0279279875
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:FA7675EC028D6B11F83E06A731BB2B0279279875
 ```bash
 magnet:?xt=urn:btih:147392998D479E6101C883FC8514F3FE69938E23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:147392998D479E6101C883FC8514F3FE69938E23
 magnet:?xt=urn:btih:AE5289619793EA37C6ED307888EED6B385D934D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:AE5289619793EA37C6ED307888EED6B385D934D4
 ```bash
 magnet:?xt=urn:btih:648682033141CCBD56DF16F9D8C33AB7237D72E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:648682033141CCBD56DF16F9D8C33AB7237D72E1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Maou 2099 / Demon Lord 2099 / Повелитель демонов 2099 [2024, TV
 ```bash
 magnet:?xt=urn:btih:4244E8480452FB74357F54586559CC1F94D0A135
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ VA - 500 лучших хитов русского рока (2014) [MP3|224 Kbps]
 magnet:?xt=urn:btih:B8998B541DCC6C0485239AE014376E4143D9F9A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:B8998B541DCC6C0485239AE014376E4143D9F9A4
 magnet:?xt=urn:btih:3286E1998447C0985FAB05312C150F6399DCB605
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:3286E1998447C0985FAB05312C150F6399DCB605
 ```bash
 magnet:?xt=urn:btih:73ED4922D3D3D7C9884C0E30C75276AF5A92E736
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,148 @@
+###  Публикация: 1245848   (467880) от 08.09.2018
+
+MAGIC! - Expectations (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Expectations (02:49)
+02. Core (03:35)
+03. More of You (03:54)
+04. Kiss Me (03:24)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4F3368225ED69453D2CC8A212BFDA20C8778275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245872   (467883) от 08.09.2018
+
+Ronnie Jones - Games (1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Video Games (7:43)
+02. We Make The Music (4:09)
+03. You Don't Know Like I Know (4:03)
+04. Montego Bay (3:52)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18609BCAC853C0427721CC9751A8B133914DC09C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058541   (468116) от 01.10.2016
+
+Ани Лорак - Разве ты любил (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Удержи мое сердце
+02. Ты еще любишь
+03. Уходи по-английски (feat. Григорий Лепс)
+04. Греши и кайся(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB31E6583DAC470C6C76BD9ADBF073DB32BCB0A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320664   (468901) от 19.08.2019
+
+Наталия Гулькина и Маргарита Суханкина - Просто мираж (2005) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Просто мираж (3:42)
+02. Ночь (3:38)
+03. Я не могу без тебя (3:23)
+04. Давлю на тормоза (3:16)(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C632613BC0DA6F56A01756877CFB2E8CEA5D38A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320543   (468905) от 19.08.2019
+
+Digital Emotion - 2 Albums, 4 Singles & EPs (1984-2019) Collection [MP3|320 Kbps] <Electronic, Hi NRG, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Голландская евродиско-группа, изначально состоявшая из Гленна Ван Дер Хоффа и Стива Гуде. Успех первых синглов и необходимость съёмки видео и сценических выступлений привели к появлению симпатичных фронтменов: Жана Франсуа Коломбо и двух девушек: Кики Де Бир и Мирны Балрак. Впрочем, судя по немногочисленным фото, они постоянно менялись.Список альбомов:
+1984 - Digital Emotion
+1985 - Outside In The Dark
+1986 - Jungle Beat(   Читать дальше...   )Жанр: Electronic, Hi NRG, DiscoПродолжительность: 02:05:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:563847EF027D87307125B9379C0D3724523FB208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1058290   (469194) от 01.10.2016
 
 Here Come The Mummies - Cryptic (2013) [MP3|320 Kbps] <Funk, Rhythm & Blues, Soul>
@@ -21,6 +166,8 @@ Here Come The Mummies - Cryptic (2013) [MP3|320 Kbps] <Funk, Rhythm & Blues, Sou
 ```bash
 magnet:?xt=urn:btih:1E87D873FF68259F667462364CF04138AA7E150F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +195,8 @@ Kish Mauve - Black Heart (2009) [MP3|320 Kbps] <Alternative Pop, Electropop, Ele
 ```bash
 magnet:?xt=urn:btih:6FF5B51A97EDF7DBC911E2F70847E073118A5969
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -78,6 +227,8 @@ Carly Rae Jepsen - Curiosity (EP) (2012) [FLAC|Lossless]<Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -104,6 +255,8 @@ VA - Love Songs (2017) [FLAC|Lossless|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:07FDDD23C8A96CAACBC572B65979A46FCF128B5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -132,6 +285,8 @@ VA - DJ Empire presents: A Tribute To Giorgio Moroder (2000) Compilation [FLAC|L
 magnet:?xt=urn:btih:0C0D24B1BBC0281E4156897A7D525968E7DF976C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -158,6 +313,8 @@ VA - Hustle! Reggae Disco: Kingston-London-New York (2002) 2017, Reissue [FLAC|L
 ```bash
 magnet:?xt=urn:btih:E0300FF9D2BBF42B1D62B8D494CBF199C7FB5A68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -186,6 +343,8 @@ Nation In Blue - Discography (2016-2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco
 magnet:?xt=urn:btih:2A2B6E6BAB68F21E18AA5E209639944F524DB5F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +371,8 @@ Brenda Mitchell - Don't You Know (1978) [MP3|320 Kbps] <Electronic, Funk-Soul, D
 ```bash
 magnet:?xt=urn:btih:A1A9C236B5261A4B47BDF453D250865C646B1278
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +401,8 @@ Citizen King - Mobile Estates (1999) [FLAC|Lossless|tracks + .cue] <Hip Hop, Pop
 magnet:?xt=urn:btih:A25CB6748C37039DB1F732E123CBC6B1B60F1D3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +429,8 @@ VA - After Work Party (2016) [MP3|320 Kbps] < Indie Dance, Funky, Club>
 ```bash
 magnet:?xt=urn:btih:99FE9DAE5F1215E3D7795FD344F6C014FD1139C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +459,8 @@ magnet:?xt=urn:btih:99FE9DAE5F1215E3D7795FD344F6C014FD1139C7
 magnet:?xt=urn:btih:FC203676868FCB25D1F761344F4D83AFBB79EC12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +487,8 @@ magnet:?xt=urn:btih:FC203676868FCB25D1F761344F4D83AFBB79EC12
 ```bash
 magnet:?xt=urn:btih:9333CB15DB023CFC082B36A94E7F15C2FF4A45BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +517,8 @@ magnet:?xt=urn:btih:9333CB15DB023CFC082B36A94E7F15C2FF4A45BC
 magnet:?xt=urn:btih:421D510734CEE4358CF186BBF9DC7A483A95F3D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +545,8 @@ Craig David - Following My Intuition (2016) Deluxe Edition [MP3|320 Kbps] <Pop, 
 ```bash
 magnet:?xt=urn:btih:6D935654E7C3A11B149FB3978850F5D577636013
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +575,8 @@ Southern Exposure - Headin' South (1979) LP [MP3|320 Kbps] <Electronic, Disco, F
 magnet:?xt=urn:btih:357896C001852F37DC61AB5C4496EF36C2A612A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +604,8 @@ Kim Wilde - Aliens Live (2019) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:BCBDFD491485C8D753219673DE7DF87B083494F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +632,8 @@ magnet:?xt=urn:btih:BCBDFD491485C8D753219673DE7DF87B083494F2
 ```bash
 magnet:?xt=urn:btih:505FAC2FC196631D598F91166391D5D622589D8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +668,8 @@ magnet:?xt=urn:btih:505FAC2FC196631D598F91166391D5D622589D8B
 magnet:?xt=urn:btih:3A0902C665B937A74A9A9EF1F607E7D9E74651C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +696,8 @@ Linda Jo Rizzo - Magic Moments: My 35th Anniversary (2020) Single Collection [FL
 ```bash
 magnet:?xt=urn:btih:AE3E0C86498B532CDD65E60FEE53B395C7563054
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +726,8 @@ magnet:?xt=urn:btih:AE3E0C86498B532CDD65E60FEE53B395C7563054
 magnet:?xt=urn:btih:50801769562051E492819DE444078A310DDE00D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,147 +755,7 @@ Strutt - Time Moves On (1975) Reissue CD, 2001, Victor [MP3|320 Kbps] <Funk, Sou
 magnet:?xt=urn:btih:678CB22FED902D3004D5FAAFF2C5D2C24B2EF48C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 258418   (473621) от 15.09.2012
-
-Barbra Streisand - 2 альбома (1980, 2005) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473621.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Guilty" - самый популярный альбом певицы (продано более 20 миллионов экземляров).
-Через 25 лет был выпущен альбом "Guilty Pleasures" который стал тоже весьма популярен.
-И конечно обе эти работы объединяет совместная работа с Barry GibbАльбомы:
-1980 - Guilty
-2005 - Guilty PleasuresЖанр: PopПродолжительность: 01:29:43
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 248224   (473718) от 15.09.2012
-
-Arabesque - Deluxe (Twin Best) - Japan (1998) 2CD[FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello Mr. Monkey
-02. Fly High Little Butterfly
-03. Someone Is Waiting For You
-04. Buggy Boy(   Читать дальше...   )Жанр: Disco |Продолжительность: 01:14:06 + 01:10:25
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245248   (473746) от 05.09.2018
-
-Boney M - Let It All Be Music-The Party Album (2009) 2CD [FLAC|Lossless|image + .cue]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Felicidad (Margherita) 4:33
-02. Happy Song 4:18
-03. Kalimba De Luna4:31
-04. Dreadlock Holiday 4:52(   Читать дальше...   )Жанр: DiscoПродолжительность: 02:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C29C21A15BAE1B549EDFD75B358102EC1623387
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546423   (473853) от 15.09.2012
-
-VA - 101 Voices (2012) 5CD [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Farnham - You're The Voice [05:03]
-02. Roxette - It Must Have Been Love [04:18]
-03. Meat Loaf - I'd Do Anything for Love (But I Won't Do That) [05:42]
-04. Cyndi Lauper - Time After Time [03:59]
-05. Sinead O'Connor - Nothing Compares 2 U [05:10]
-06. Annie Lennox - Why [04:52]
-07. Tina Turner - What's Love Got To Do With It [03:47]
-08. Jennifer Rush - The Power of Love [04:26]
-09. Heart - Alone [03:40]
-10. Bonnie Tyler - Total Eclipse of the Heart [04:28](   Читать дальше...   )Жанр: PopПродолжительность: 06:26:57
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245250   (473862) от 05.09.2018
-
-Toto Cutugno - L'Italiano (1983) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'Italiano
-02. Solo noi
-03. Soli
-04. Donna, donna mia(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6878F384EA601ABD5FF018F77CC528131347E7C7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

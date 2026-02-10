@@ -28,6 +28,8 @@ Cyndi Lauper - She's So Unusual (1983) [FLAC 2.0 96/24|image (vinylRip)]<Contemp
 magnet:?xt=urn:btih:08DE481F3E2E6CD4D024C9271EC82EFECC054612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ magnet:?xt=urn:btih:08DE481F3E2E6CD4D024C9271EC82EFECC054612
 ```bash
 magnet:?xt=urn:btih:04EDE047D20A25C8D40C182E5528C885AD093370
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ LP1
 magnet:?xt=urn:btih:7AE7649474E6938373977D5CCE373FB407794CDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +124,8 @@ magnet:?xt=urn:btih:7AE7649474E6938373977D5CCE373FB407794CDA
 magnet:?xt=urn:btih:E0FCC7D753A8217534AD6EB0310235F119E4555E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +149,8 @@ Korn - 8 альбомов (1995-2010) [FLAC 2.0 24/192 |image + .cue (Vinyl-Rip)
 ```bash
 magnet:?xt=urn:btih:529269659F8620015C01834221DB0789AD68489F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +185,8 @@ magnet:?xt=urn:btih:529269659F8620015C01834221DB0789AD68489F
 magnet:?xt=urn:btih:59F11D3809F12B11A717AA8B625753B45D77E5AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +218,8 @@ magnet:?xt=urn:btih:59F11D3809F12B11A717AA8B625753B45D77E5AB
 magnet:?xt=urn:btih:50E47BB3F14C7D20D010F20289394098C533FAD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +250,8 @@ MaximЖанр: Breakbeat, Big Beat, DubstepПродолжительность: 0
 magnet:?xt=urn:btih:F99E88650870CE602217B3F436EF4FB6FB9DFCA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +276,8 @@ The Cranberries - 5 альбомов (1993-1999, 2012) [FLAC 2.0 24/192 |image +
 magnet:?xt=urn:btih:6E2A1F65E223090CB68905398BACEA62AF0D4CB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +301,8 @@ magnet:?xt=urn:btih:6E2A1F65E223090CB68905398BACEA62AF0D4CB5
 ```bash
 magnet:?xt=urn:btih:B425FAEE41CF5FDE429FC176AA2755AD8CE431AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +331,8 @@ A3 And When The Night Comes(   Читать дальше...   )Жанр: Electro
 magnet:?xt=urn:btih:F40978C9707A4FF25CDC49EFAB29533FEA6CBB31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +359,8 @@ A4 He's Coming(   Читать дальше...   )Жанр: Free Jazz, Contempor
 ```bash
 magnet:?xt=urn:btih:C0A8860950B8B00202F9E8DCB7B0A1BF801CC830
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +389,8 @@ B1 Oxygene (Part 17)(   Читать дальше...   )Жанр: ElectronicПр
 magnet:?xt=urn:btih:465CCBC0CF458A6A011CEA5FC3FB0CCA22D1F5A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +417,8 @@ A4. Good Night 6:08(   Читать дальше...   )Жанр: RockПродо�
 ```bash
 magnet:?xt=urn:btih:BF43C2C09D2D5DE4AE1B6045BDB9D3DD1740964C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +447,8 @@ A4 Люди Скажут, Что Мы Влюблены = People Will Say We're I
 magnet:?xt=urn:btih:5F12E1FE17E559E2B0A036339AC8F848B74453F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +473,8 @@ Late - Saw, Sine, Square / Voices From The Night (2009) Disfigured Dubz [FLAC 2.
 ```bash
 magnet:?xt=urn:btih:AA4EA71509EE4AD523827D514A747D8E284248C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +503,8 @@ A4 Freeze-out(   Читать дальше...   )Жанр: Folk Rock, Indie Rock
 magnet:?xt=urn:btih:70A368D7970F9441F2D9960A3C6F1EE279A0BB38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +531,8 @@ magnet:?xt=urn:btih:70A368D7970F9441F2D9960A3C6F1EE279A0BB38
 ```bash
 magnet:?xt=urn:btih:88C75194C4C43E1B67A1ECEC93AA87BFF5D0407E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +561,8 @@ A3 Contrapunctus 3 (No. 3)(   Читать дальше...   )Жанр: Classica
 magnet:?xt=urn:btih:2E03C8D4C8E31BD6103BB2013F47BB16FDB38C67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +589,8 @@ A2.1 Allegro(   Читать дальше...   )Жанр: Classical, BaroqueПр
 ```bash
 magnet:?xt=urn:btih:6F44E0BE346DD97196F02438510A01DA24385EE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +619,8 @@ A3 Танец Анитры / Anitras's Dance(   Читать дальше...   )
 magnet:?xt=urn:btih:13A67462BC9BE8EFDE94623495A684805E25CF81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +647,8 @@ A4 Прелюдия Из Сюиты №1 Для Виолончели(   Чита
 ```bash
 magnet:?xt=urn:btih:21480DE1E677ECB37545423534545BAA5F3B1E58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +677,8 @@ A3 Allegro(   Читать дальше...   )Жанр: Classical, BaroqueПро
 magnet:?xt=urn:btih:5236157746BB91CE3AFF3CE651C42D4B7DFA30AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +706,8 @@ A2 Adagio /  Allegro(   Читать дальше...   )Жанр: Classical, Bar
 magnet:?xt=urn:btih:4708F9F7766C376C67139FD645986D2FFE5259A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -683,6 +731,8 @@ Manowar - 11 альбомов (1982-2012) (FLAC 2.0|96,192/24|FLAC|VinylRip] <He
 ```bash
 magnet:?xt=urn:btih:44CB4D5FCEF9FABD55633CC36D5E82B6B86BD0A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -710,6 +760,8 @@ A4 They'll Get You Anyway = Z Blata Do Louze(   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:21A076D554BE6AE5FAB761F7D08FE619BC73C6FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

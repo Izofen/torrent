@@ -19,6 +19,8 @@ Dead Cells — это экшн-платформер в жанре Rogue-lite и 
 magnet:?xt=urn:btih:A76E92E516A33E046FEE3EC09823C2DC7E260B5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MUD: FIM Motocross World Championship – единственная игра, в 
 ```bash
 magnet:?xt=urn:btih:EE91B5E6650BB9ADC8D04E3633B30516DEFEA3C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Spyro Reignited Trilogy (2019) [Switch] [EUR] 8.1.0 [NSP] [Unofficial / 1.01] [R
 magnet:?xt=urn:btih:CB488AA12BFEDC9156415EA8D14427205790EDD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Meow Motors (2019) [Switch] [EUR] 8.1.0 [NSZ] [License / 1.0.1] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:85C6CE93C810C1AE542B76DDBC8A398241199D96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ The Legend of Zelda: Link's Awakening (2019) [Switch] [EUR] 9.0.1 [License / 1.0
 magnet:?xt=urn:btih:3A9C2A8A97AE0FEBF6790DF1E152CA9F2ACD3D21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Dante's Inferno (2010) [PS3] [EUR] 3.01 [Cobra ODE / E3 ODE PRO ISO] [License / 
 magnet:?xt=urn:btih:4DA40A1B4455E9D28A1B67B1F1B27AE4AE9A9AED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ The Legend of Zelda: Breath of the Wild (2017) [Switch] [Region Free] 4.1.0 [XCI
 magnet:?xt=urn:btih:F22075875E018222FD590988B2E1FB0FB5189751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Battalion Wars возвращается! Серия, триумфально де
 ```bash
 magnet:?xt=urn:btih:D4BC0D0437EFC4B297A5E041080B4511E9DEB1E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Vice City Stories, миссии все новые!
 magnet:?xt=urn:btih:258C00705C7A9D10B43E45615D897356903A847B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Just Dance 2020 (2019) [Wii] [USA] [License] [En]
 ```bash
 magnet:?xt=urn:btih:74A1308F9835BE3F1604A8BE32A894DFE2A7F555
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:74A1308F9835BE3F1604A8BE32A894DFE2A7F555
 magnet:?xt=urn:btih:8F3E4B4EFDEDBF5D0CCFA58BABF4AEEA25F2447D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Lucha Libre AAA: Heroes del Ring основана на Мексиканской 
 magnet:?xt=urn:btih:E17248C1F27546233F68DB6D7ADAAD201D89AA4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Tomb Raider: Anniversary [Wii] [PAL] [Multi 5] (2007)
 ```bash
 magnet:?xt=urn:btih:DC199415F8609F210A90BCAD94C3EC61A9BDCE46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ ATLUS решила внести кардинальные перемены в с�
 magnet:?xt=urn:btih:65ECCD3992CB77BD54EB87C0E7A8A6FCD9CBD84E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Score International Baja 1000: World Championship Off Road Racing (2008) [PS3] [
 magnet:?xt=urn:btih:EC882AED17444B109D056B676C0A4BF2559F34DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Happy Feet Two: The Videogame является второй частью вес�
 ```bash
 magnet:?xt=urn:btih:C7CE3FE89E859A7255B5146F0D0BA88BDAA5DD6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ Far Cry Vengeance  — компьютерная игра, разработанн
 magnet:?xt=urn:btih:DF2DBE3A0E3B7B2ADF4DD5BE807F9C154EA21EBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ TNA iMPACT! - игра созданная по мотивам сверхпопу
 magnet:?xt=urn:btih:306AB873F2164E0E1A56497B043A9EFDDEB2C960
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ Zenquaria Virtual Aquarium - это симулятор жизни аквариу
 ```bash
 magnet:?xt=urn:btih:05583F2BCA4D067148B8CEDAC0FE0DF0D0419CF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ James Bond 007™: Blood Stone — взрывной экшен от третье
 magnet:?xt=urn:btih:B1EF0967F7623092562717B574CC5CBB28E65953
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ Resident Evil 4 (2019) [Switch] [USA] 8.1.0 [NSZ] [Unofficial / 1.0.1] [Ru/En]
 ```bash
 magnet:?xt=urn:btih:321875E322CA58F23F656478A91DCAA50CA72BA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ Yoshi's Crafted World (2019) [Switch] [USA] 8.1.0 [NSP] [License / 1.0.1] [Ru/Mu
 magnet:?xt=urn:btih:ADEA7F2BEFA588FA996869691D310FE614C86D4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ Kill la (   Читать дальше...   )Тип издания: LicenseРа�
 ```bash
 magnet:?xt=urn:btih:647D53860E077D5A801BE53932677195DC18CAC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ Mario Party 10 для Wii U принесет новые игровые карт�
 magnet:?xt=urn:btih:7828D29A69BE5E187440CF51A9DEEE5C46451E4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ Resident Evil 5 (2019) [Switch] [USA] 8.1.0 [NSZ] [Unofficial / DLC / 1.0.1] [Ru
 ```bash
 magnet:?xt=urn:btih:8366A28DB6452D9F243D54555E074A14323B3DCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +690,8 @@ Super Neptunia RPG (2019) [Switch] [USA] 8.1.0 [NSZ] [Unofficial / DLC / 1.03] [
 ```bash
 magnet:?xt=urn:btih:2D45DEAAE5A31BDDB33EEFBF519FB73B6ED97C52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:90CD81942D3096EF8E94261814401B1C56596BBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:90CD81942D3096EF8E94261814401B1C56596BBE
 magnet:?xt=urn:btih:E81EB84F7ADDD88B08A3841B5E34ED280E38333B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:E81EB84F7ADDD88B08A3841B5E34ED280E38333B
 ```bash
 magnet:?xt=urn:btih:A364F80B00E010E598980F299C35A4440C6C743F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:A364F80B00E010E598980F299C35A4440C6C743F
 magnet:?xt=urn:btih:141351E97CF13B38B63E0DC524E7B9AC81FBAE7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:141351E97CF13B38B63E0DC524E7B9AC81FBAE7E
 ```bash
 magnet:?xt=urn:btih:F5F2EFC41038243157C258670D1BA2E2152EB0D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:F5F2EFC41038243157C258670D1BA2E2152EB0D6
 magnet:?xt=urn:btih:4A2F880466C98233B3887B39974A3717707E2B23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:4A2F880466C98233B3887B39974A3717707E2B23
 ```bash
 magnet:?xt=urn:btih:979D06EC193FE9CACF376E5F15613C8DBDD57E35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:979D06EC193FE9CACF376E5F15613C8DBDD57E35
 magnet:?xt=urn:btih:011D1D9E382028E44642F67263B6EAF30396830E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:011D1D9E382028E44642F67263B6EAF30396830E
 ```bash
 magnet:?xt=urn:btih:DDB23AFA7CAEEE2D16C1FBDE6443E845B080B069
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ RTG. Прогулка по Геленджику (2013) HDTV [H.264/1080i]
 magnet:?xt=urn:btih:407BA97A5E7CB8982E15728726ADA23D0171426C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ RTG. Прогулка по Выборгу (2013) HDTV [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:C9A4B402FD57F386F9C91AF860A5F4932813D4B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ RTG. Прогулка по Краснодару (2014) HDTV [H.264/1080i]
 magnet:?xt=urn:btih:3C6F92BD04E79961FD99ECEF575EE1A442625536
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:3C6F92BD04E79961FD99ECEF575EE1A442625536
 ```bash
 magnet:?xt=urn:btih:7FB4F83F2FF716E7D6CA1E1B1ACAB11A0A5335C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ RTG. Природный парк «Вепсский лес» (2013) HDTV [H.264/
 magnet:?xt=urn:btih:139D3FBFE821294D8BFDDE953BAB9731444BC4D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:139D3FBFE821294D8BFDDE953BAB9731444BC4D5
 ```bash
 magnet:?xt=urn:btih:E984F9DF3B9CFBF5952BF5D8AC9C548AEB322EEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ RTG. Курская магнитная аномалия (2014) HDTV [H.264/1080i
 magnet:?xt=urn:btih:A410379013337DB148BFAFB69AD9C3951C96526B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ RTG. Краснодар - город цветов (2013) HDTV [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:9B77D5F4E4592D230D1F5B434D2DEBB8ED30C20D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ RTG. Каменные загадки долины реки Малая Лаба (
 magnet:?xt=urn:btih:40E8456AA1FF7FD43EB5CEC8E9E7EDC689C71D75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:40E8456AA1FF7FD43EB5CEC8E9E7EDC689C71D75
 ```bash
 magnet:?xt=urn:btih:ADA1500413DF8111F40C265E74CC7CB081C65587
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:ADA1500413DF8111F40C265E74CC7CB081C65587
 magnet:?xt=urn:btih:FFF71B31DA14CBC86332FE9ABED0E679AC57BF79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:FFF71B31DA14CBC86332FE9ABED0E679AC57BF79
 ```bash
 magnet:?xt=urn:btih:0A4AE1692D2AD5126368C88F52855AB755F2BA10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ RTG. Саблинские пещеры (2013) HDTV [H.264/1080i]
 magnet:?xt=urn:btih:73800171DE8C5D156C42718A990F7A361A824288
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ RTG. Прогулка по Ленинградскому зоопарку (2013) 
 ```bash
 magnet:?xt=urn:btih:AD9493ECD786566327ADDA07544B94509A67C114
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:AD9493ECD786566327ADDA07544B94509A67C114
 magnet:?xt=urn:btih:F6CAEB312ADCA211FDC69FE70E44532FCD774796
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:F6CAEB312ADCA211FDC69FE70E44532FCD774796
 magnet:?xt=urn:btih:A44085364337D2EA34C9F8C579D098B90972F792
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ RTG. Город Юрьевец (2013) HDTV [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:153D8B4A3BDE88424893161A50A383F3F6AF051A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

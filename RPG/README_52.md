@@ -19,6 +19,8 @@ Lightning Returns. Final Fantasy XIII – увлекательная ролев�
 magnet:?xt=urn:btih:A16CBE186BE18FE300C799A59960B118C3C0818C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Lightning Returns. Final Fantasy XIII – увлекательная ролев�
 ```bash
 magnet:?xt=urn:btih:32254F44159A5C12CEEDBFEC367F02DF64F39A6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Nox (2000) [En] (1.2) License GOG
 magnet:?xt=urn:btih:A49CC6742991C426339CF3C0F005AEF6A4C968DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Outer Worlds — новая однопользовательская нау�
 ```bash
 magnet:?xt=urn:btih:529A3352ACA042B2F50C46F2040BA31339C81109
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Incredible Adventures of Van Helsing II / Van Helsing 2: Смерти воп
 magnet:?xt=urn:btih:12F79468324673B43209C32C86E724DADB1A98E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ World of Final Fantasy (2017) [Multi] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:4358472D8EBAAB47AA696B6FE31AA6FE55FBDFD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Jade Empire (2005) [Ru/En] (1.00) License GOG [Special Edition]
 magnet:?xt=urn:btih:CA093B177B23C70A3D659A4DCF523DB406DD63FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Nioh: Complete Edition — полное издание приключенчес�
 ```bash
 magnet:?xt=urn:btih:B941024EB3A9B8D735EC88DE55F0F9ACD332072F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Albion (1995) [Multi] (1.38) License GOG
 magnet:?xt=urn:btih:D554E5C55BBA8A718BADADDB1C377B88657BFA27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Sacred / Князь тьмы (2004) [Ru/En] (2.28/dlc) License GOG [Gold Edition
 ```bash
 magnet:?xt=urn:btih:052296F774E6879CC7B3093BA1A35F87827E6F13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Monster Hunter Stories 2 Wings of Ruin (2021) [Ru/Multi] (1.6.1/dlc) Repack Let'
 magnet:?xt=urn:btih:2036F075D54930137A43D195FF04CCD0E7E4B75E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Dragon Age: Origins / Эпоха Дракона: Начало (2009) [Ru/En] (1.
 ```bash
 magnet:?xt=urn:btih:AE68D0FE876FB161ACFD9E16D35B682D95D9EFCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Mount and Blade: With Fire and Sword / Mount & Blade: Огнём и мечом: 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Pillars of Eternity (2015) [Ru/En] (3.7.0.1280/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:A52910E6C3D6B3B4967520B78BA553689E268D82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Fallout 3 (2009) [Ru] (1.7.0.3/dlc) Repack xatab [Game of the Year Edition]
 magnet:?xt=urn:btih:1720D6998932CB56B312DB25AACEEBC0DC03854E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Blackguards 2 - сиквел пошаговой ролевой стратеги�
 ```bash
 magnet:?xt=urn:btih:6DA7B17E7EA7E47A957F72D048713293B0E2F9CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Dungeon Souls (2016) [En] (1.0) Repack Other s
 magnet:?xt=urn:btih:3C1A59B4D8C17BA839C2F8F7BFA97D685F4088D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Dragon Quest Heroes﻿ – это первый полномасштабный р
 ```bash
 magnet:?xt=urn:btih:96AC8C9F8D9DEE2702037C6115D96DB898403B58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ Ni no Kuni Wrath of the White Witch™ Remastered (2019) [Ru/En] (1.0) Repack xa
 magnet:?xt=urn:btih:2C1E97D404B7217E749687CBF51BCCB21F7C52B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ Tales of Zestiria — японская РПГ, разрабатываемая с
 ```bash
 magnet:?xt=urn:btih:0861EBB6B3DC428E8AA3FD7168809E54CEA09107
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ Blackguards (2014) [Ru/Multi] (1.6/dlc) License GOG [Special Edition]
 magnet:?xt=urn:btih:4621407B123302159FFE31E671196C2746647E60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ Middle-earth: Shadow of War / Средиземье: Тени войны (2017) [
 ```bash
 magnet:?xt=urn:btih:2EC6B67CD3D915B75C57F5BFACB6AC6A97C0CB54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ I am Setsuna (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 magnet:?xt=urn:btih:0E75CE4BECD82D25103702734551547BBF9C1AB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ Sword Art Online: Lost Song (2018) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:77E2339A9644C2F524DEAD1C84B42B25046B74EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ Pillars of Eternity (2015) [Ru/Multi] (3.7.0.1280/dlc) Repack R.G. Catalyst
 magnet:?xt=urn:btih:FE2468F9E9928CE6B715A82252CE4F1B581B2721
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Galaxy of Pen and Paper (2017) [En/Br] (1.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:48F39BC2EF5630FD8E1FDB07441174A07CF011DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

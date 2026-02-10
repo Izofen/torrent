@@ -19,6 +19,8 @@ Gravity Circuit (2023) [Multi] (1.2.1) License GOG
 magnet:?xt=urn:btih:6522C2C1532227AD0887EA20A425844BEC04896E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NieR Replicant ver.1.22474487139... – обновленная версия NieR
 ```bash
 magnet:?xt=urn:btih:C9CDD12F99A10CCCD2C99DAD346EFDD1E184E055
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Kill Knight / Рыцарь Бездны (2024) [Ru/Multi] (1.0.0.108) Scene Rune
 magnet:?xt=urn:btih:04B824EB7EF018B21B8BEDF56C04626DC0811484
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Prison Alone (2024) [Ru/Multi] (1.0.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:CFACF0BCCD0200126DB45083DFB9656B29A026DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ To the Stars (2024) [Multi] (1.2.53) License GOG
 magnet:?xt=urn:btih:1E8A8341A218EC4957E4E4963CECBF7E645E0383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Prison Alone (2024) [Ru/Multi] (1.0.2) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:8279CBFD6F411B0AE62D8CEDB3778251571DD03E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (28.16.0) Repack Decepticon
 magnet:?xt=urn:btih:5CC37D8BF90ED0902F133565A657D8CC026A65AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Dread Dawn (2024) [Ru/Multi] (2024.10.1.1000) Scene Rune
 ```bash
 magnet:?xt=urn:btih:214220F1C88E1B735E7C8FCE91780E1A0A4C02D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Starfield - первая более чем за 25 лет новая игров�
 magnet:?xt=urn:btih:B875AB8F81DBE9EF3D20E30C6BA14F28DD36B53F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Ara: History Untold (2024) [Ru/Multi] (1.0.2.105/dlc) Repack Pioneer [Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:5ECA02A431E4CDA017FB1A7696D1362106AF16C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Invincible представляет собой приключенческу�
 magnet:?xt=urn:btih:E06287E658DDE9E373B090691E1C0D3E0F54A4B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Rogue Waters - это тактическая пошаговая игра в ду
 ```bash
 magnet:?xt=urn:btih:07EA433FEBC3427713D53DF24D38658FAAB9E96D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Rogue Waters - это тактическая пошаговая игра в ду
 magnet:?xt=urn:btih:CDA3D45733BCD226A8EE142E3BC6D19C3F3B4071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Planternauts (2024) [Ru/Multi] (1.0) Repack FitGirl [Early Access]
 ```bash
 magnet:?xt=urn:btih:8A3864D1B22D1F134F15B26A52E75CD69F79448A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Chernobylite (2019) [Ru/Multi] (49411/dlc) Repack Other s [Deluxe Edition]
 magnet:?xt=urn:btih:01904A2F1F02C6D8E6590913472A3DB7262EE271
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ DreadHaunt (2023) [Ru/Multi] (1.0.0.20) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9C69B734C1BC968D274499FBE4F3318D85594403
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Pneumata (2024) [Multi] (1.05) License GOG
 magnet:?xt=urn:btih:8FE1808FD81937A5483BA41B3CD27E9CBD8AE157
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Murder On Space Station 52 - это остросюжетное мистичес�
 ```bash
 magnet:?xt=urn:btih:F720DEF5AE6EFD4E2A995C8C19EB7F8280845910
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Nigate Tale – приключение, события которого прои
 magnet:?xt=urn:btih:1A0166D9316CD7E5F1030130D72D3E97A029C70F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Tribal Hunter (2022) [Ru/Multi] (1.0.2.4) License GOG
 ```bash
 magnet:?xt=urn:btih:CF82C5B9A549BAD87B9788128D831725A579F792
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Resolutiion - это динамичная игра в жанре action-adventur
 magnet:?xt=urn:btih:B6B5E0F64E407F9F05AC4DCB915C0F88677DE6B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Valfaris: Mecha Therion является продолжением игры Ва�
 ```bash
 magnet:?xt=urn:btih:4432E8B46B6B6754B56C28CB7BEDCF3688990D43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ magnet:?xt=urn:btih:4432E8B46B6B6754B56C28CB7BEDCF3688990D43
 magnet:?xt=urn:btih:7B1EE41E0704A74A2A620301A26A072AE72C087D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Trap for the Heir – что вы скажете насчет исследова
 ```bash
 magnet:?xt=urn:btih:5F9C34D49C4FF27497A08FF179CBEB75CA209D53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Chained Together (2024) [En] (1.8.6) Repack Pioneer
 magnet:?xt=urn:btih:6BFF1F2B336D9F8990F6BA08B0593E8953C11CC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Dwarven Realms - это ориентированная на действия 3D 
 ```bash
 magnet:?xt=urn:btih:7957448F825706424E7C410860B37E8B7AE4F933
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

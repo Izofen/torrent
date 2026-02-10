@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D1BD4E4FD306635C4298324E45C3D6602C246C1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:D1BD4E4FD306635C4298324E45C3D6602C246C1E
 ```bash
 magnet:?xt=urn:btih:52AE094F191D835AD752B18D8596D4EB9DE0D939
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NetLimiter - программа, решающая проблему контро�
 magnet:?xt=urn:btih:BC3989DE5F433965B83E4D9350AD9C5D0DC22CA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:BC3989DE5F433965B83E4D9350AD9C5D0DC22CA0
 ```bash
 magnet:?xt=urn:btih:244E716D66146EC9870523D0D584318CF05F923B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NetLimiter - программа, решающая проблему контро�
 magnet:?xt=urn:btih:35FDC75860AE16AC30FD90F43E2F96464DB4D401
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:35FDC75860AE16AC30FD90F43E2F96464DB4D401
 ```bash
 magnet:?xt=urn:btih:140AC925FE4766C4E6E1C176FD5777445A294AA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:140AC925FE4766C4E6E1C176FD5777445A294AA6
 magnet:?xt=urn:btih:47ED95F09198BE692235455A6D7C04735A071728
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:47ED95F09198BE692235455A6D7C04735A071728
 ```bash
 magnet:?xt=urn:btih:97D2E870B8C12DB1C4D2C4EAAAB9DF51964B3C1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Tahira: Echoes of the Astral Empire – это эпизодическая стр
 magnet:?xt=urn:btih:6BDF44D431351D2B5E31309387342C1BD5BA4429
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:6BDF44D431351D2B5E31309387342C1BD5BA4429
 ```bash
 magnet:?xt=urn:btih:47C068C2C566594A5857AFDAE8A2BCEB2A5D87B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:47C068C2C566594A5857AFDAE8A2BCEB2A5D87B1
 ```bash
 magnet:?xt=urn:btih:0D1C8142DD14B48DFABCD2A71BCFFD57EAAFC201
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Tommy Flanagan - Something Borrowed, Something Blue (1978) 1990, Original Jazz C
 magnet:?xt=urn:btih:336D5CC1A83FA3E2F4402599B8AEBA007E32A247
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:336D5CC1A83FA3E2F4402599B8AEBA007E32A247
 ```bash
 magnet:?xt=urn:btih:525C600B22F42CDAAF220684299F38B286941837
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ VA - Spaceout: Synthspace Electronic Mix (2023) [MP3|320 Kbps] <Electronic, Synt
 magnet:?xt=urn:btih:1736AADD763BED841E84CB26F8D1FF38286635A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:1736AADD763BED841E84CB26F8D1FF38286635A6
 ```bash
 magnet:?xt=urn:btih:F4AB9DC9C7B9B2E20F31260ECBF097EB14D9F5D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ Icecream Video Converter Pro 1.33 [Multi/Ru]
 magnet:?xt=urn:btih:65B0DE23A61B7B6803EF7644E33F02F4308F2E4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:65B0DE23A61B7B6803EF7644E33F02F4308F2E4C
 ```bash
 magnet:?xt=urn:btih:0991BB5C5CEFACA973F532537D4F8DD473699B22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:0991BB5C5CEFACA973F532537D4F8DD473699B22
 magnet:?xt=urn:btih:56531C0DDBDE59E1D81CCFBA16EC2A12C1768B39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:56531C0DDBDE59E1D81CCFBA16EC2A12C1768B39
 magnet:?xt=urn:btih:47D228BD36564CE140342E4223882F83457109C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:47D228BD36564CE140342E4223882F83457109C6
 ```bash
 magnet:?xt=urn:btih:F421A9951D9AB4D5C7F6A60DE9683E08BDE0F405
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ Coco Montoya - Writing On The Wall (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:E4075CBDB03786BAEBA0BA319B4E834BE562806B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Dwarven Skykeep - стратегическая игра, в которой по�
 ```bash
 magnet:?xt=urn:btih:E96912F35239A9D1E0A6135B991214684E3CDF58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ Icecream Video Editor - простой редактор видео для Window
 magnet:?xt=urn:btih:1E11008912AE1A7DDCEA8ADD4A83141869CE7D2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ XYplorer – удобный мультивкладочный файловый м
 ```bash
 magnet:?xt=urn:btih:69C1F9A33AEB0203E32D106888A9B2799C82467E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ GoodSync - программа из серии высоконадежного, у
 magnet:?xt=urn:btih:44D0AACB43EBBCDE7475561F04B3AE841804DCB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:44D0AACB43EBBCDE7475561F04B3AE841804DCB2
 ```bash
 magnet:?xt=urn:btih:DD578809022ECBBC2A531736D8C8838EFB073CC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

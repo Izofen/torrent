@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C3ADE9FF419AA44092280EA556F3B45B3169F1C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ FireStarter [Ru] (RePack) 2003 | Pilotus
 ```bash
 magnet:?xt=urn:btih:A99E7981DED0D700F9F09ED63BCF28E5DF345DC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ World War Zero / Iron Storm / Коммандос: В тылу врага [En] (L
 magnet:?xt=urn:btih:0BD53F5E19B9AB7C4343F8DBBB3D9C3C547B9CC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Darkened Skye [Ru] (RePack) 2002 | Pilotus
 ```bash
 magnet:?xt=urn:btih:2039B7AE69F5BE193B3EBD73E256C6A3EF4F295E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Tomb Raider 4: The Last Revelation [En] (L) 1999
 magnet:?xt=urn:btih:D2239B751F10048814017A3684477A00CBCDBE37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Robin Hood: The Legend of Sherwood / Робин Гуд: Легенда Шерв�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Gunlok [Ru] (RePack) 2000 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Rocko's Quest / Grouch [Ru] (RePack) 2001 | Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Morpheus [Ru] (P) 1998
 magnet:?xt=urn:btih:9F6CDCBA1F130F2931263C867D5C6DDFEA6043CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Witchaven [En] (RePack) 1995 | Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Civilization 2 Test of Time (Rip) [Ru] 1999 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Marc Ecko's Getting Up: Contents Under Pressure [Ru/En] (Lossless RePack) 2006 |
 ```bash
 magnet:?xt=urn:btih:85E46C6FDBD124AB4E98C1046BEFDBF15BDD55F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Angels vs Devils [Ru] (L) 2004
 ```bash
 magnet:?xt=urn:btih:4430AE5B40B10ED5B54FA3445D80FF32C01D20BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Crime Life: Gang Wars / Crime Life: Уличные войны [Ru/En] (Lossless 
 magnet:?xt=urn:btih:FF3BEFB085509B4F1D7A93F41B289C5D48BFBDB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Full Spectrum Warrior [Ru] (RePack) 2004 | Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Robocop / Робокоп [Ru] (L) 2003
 magnet:?xt=urn:btih:D48112C14550C3FBB0A7C194D539698E7FDDAB80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Alice - это необычный 3D-шутер от 3-го лица, основ
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ Realms of Arkania Антология [En/Ru] (RePack) 1992-1996 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Carmageddon TDR2000 / Кармагеддон. Колеса смерти [Ru] (Re
 ```bash
 magnet:?xt=urn:btih:E1BB2C40757D52BFE0B700D845327315B717B2F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ Dead Mountaineer Hotel / Отель "У погибшего альпиниста"
 magnet:?xt=urn:btih:DC36E45418C59209C834A68FD5CF0B4269A71B49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Terminator 3: War of The Machines / Терминатор 3: Война маши�
 ```bash
 magnet:?xt=urn:btih:A976BDB23DA2181599DEB0F4FE29F03CBE5402C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ Ballerburg / Баллербург [Ru] (RePack) 2002 | Pilotus
 magnet:?xt=urn:btih:4D331D539B6C09C46C3D49CCA740E12C8DB1FC61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Tom Clancy's Splinter Cell: Pandora Tomorrow [Ru] (RePack) 2004 | Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ SCAR: Squadra Corse Alfa Romeo / SCAR: Спортивная команда Ал�
 magnet:?xt=urn:btih:B66FEE2ADD826DED3F324F13E2F6B0D8DEF6B9CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ Nightlong: Union City Conspiracy [Ru] (RePack) 1998 | Kirill Games
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +683,8 @@ Prince Of Qin [Ru/En] (P) 2004
 ```bash
 magnet:?xt=urn:btih:CEA05B67A1A5885AF7DE7C8E1C7C8A415479DDA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

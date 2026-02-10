@@ -1,28 +1,3 @@
-###  Публикация: 919206   (583686) от 18.07.2015
-
-Лига справедливости: Боги и монстры / Justice League: Gods and Monsters (2015) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знакомый многим мир комиксов DC изменился… В нарисованном городке все так же обитают знаменитые герои - Бэтмен, Чудо-Женщина и Супермен, вот только жители больше не любят фантастических персонажей. И, по правде сказать, есть за что.
-В этой версии реальности Супермен является отпрыском Генерала Зода, поэтому он отличается особой жестокостью и имеет психически неуравновешенный (   Читать дальше...   )Производство: США |  DC Entertainment, Warner Bros. Animation, Warner PremiereЖанр: Рисованная анимация, боевик, фантастикаРежиссер: Сэм ЛьюПеревод: Любительский многоголосый, закадровый (ZM-SHOW)Субтитры: Английские (вшитые отключаемые)Продолжительность: 01:15:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E39C135A8924CCC065ACAFD06466E7B60EEC705
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919202   (583833) от 18.07.2015
 
 Лига справедливости: Боги и монстры / Justice League: Gods and Monsters (2015) BDRip [H.264/720p]
@@ -44,6 +19,8 @@ magnet:?xt=urn:btih:1E39C135A8924CCC065ACAFD06466E7B60EEC705
 ```bash
 magnet:?xt=urn:btih:03C830AF67C8122A44C1E79482438F595ED43ABC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +46,8 @@ magnet:?xt=urn:btih:03C830AF67C8122A44C1E79482438F595ED43ABC
 magnet:?xt=urn:btih:8B985267DCFCBCCC1717D7F2359CBD3C47C85F3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +71,8 @@ magnet:?xt=urn:btih:8B985267DCFCBCCC1717D7F2359CBD3C47C85F3C
 ```bash
 magnet:?xt=urn:btih:918D99E3B683FFE88F2AD5553BD77F2905B69E39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +98,8 @@ magnet:?xt=urn:btih:918D99E3B683FFE88F2AD5553BD77F2905B69E39
 magnet:?xt=urn:btih:6CD075C2F8CC65BE0444F419C195FDF1A1B1BFCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +123,8 @@ magnet:?xt=urn:btih:6CD075C2F8CC65BE0444F419C195FDF1A1B1BFCF
 ```bash
 magnet:?xt=urn:btih:A92AD4DEC12D29E7BCB2DA4C49E4CC895A87842C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +150,8 @@ magnet:?xt=urn:btih:A92AD4DEC12D29E7BCB2DA4C49E4CC895A87842C
 magnet:?xt=urn:btih:D56EF3248DCAB34E22BD543569AB3A85FF309B3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +175,8 @@ magnet:?xt=urn:btih:D56EF3248DCAB34E22BD543569AB3A85FF309B3C
 ```bash
 magnet:?xt=urn:btih:9814F4CFE226676618C056E3E9A78C2C89CEBE0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +202,8 @@ magnet:?xt=urn:btih:9814F4CFE226676618C056E3E9A78C2C89CEBE0F
 magnet:?xt=urn:btih:326C7A2BCE5B8E7496D5B6903EAC33480B701475
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +227,8 @@ magnet:?xt=urn:btih:326C7A2BCE5B8E7496D5B6903EAC33480B701475
 ```bash
 magnet:?xt=urn:btih:DB06C2472B7C0BF59932E5AB119356E81037F218
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +254,8 @@ magnet:?xt=urn:btih:DB06C2472B7C0BF59932E5AB119356E81037F218
 magnet:?xt=urn:btih:1F14EFC96B10571ECEB18F8285440690D024B529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +279,8 @@ magnet:?xt=urn:btih:1F14EFC96B10571ECEB18F8285440690D024B529
 ```bash
 magnet:?xt=urn:btih:918EB956837FCE0E612D2A3BFB606081FAE65F43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +306,8 @@ magnet:?xt=urn:btih:918EB956837FCE0E612D2A3BFB606081FAE65F43
 magnet:?xt=urn:btih:D48BC1987F2C64027CEE802BBDDD13D43BF8647B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +331,8 @@ magnet:?xt=urn:btih:D48BC1987F2C64027CEE802BBDDD13D43BF8647B
 ```bash
 magnet:?xt=urn:btih:45979E62A60F43C2B62A4D9A2561FFBD02A5B06D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +358,8 @@ magnet:?xt=urn:btih:45979E62A60F43C2B62A4D9A2561FFBD02A5B06D
 magnet:?xt=urn:btih:24FB4761DABB343316DEAEA46A8CCF7BCB6043AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +384,8 @@ Angry Birds в кино / The Angry Birds Movie (2016) BDRip [H.264/1080p-LQ]
 magnet:?xt=urn:btih:418E02681AA57477A88DD1C5D776D549AA3DB2A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +409,8 @@ magnet:?xt=urn:btih:418E02681AA57477A88DD1C5D776D549AA3DB2A3
 ```bash
 magnet:?xt=urn:btih:72EF1CA13EDD63C0F61D06AC76D31486396C8487
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +437,8 @@ magnet:?xt=urn:btih:72EF1CA13EDD63C0F61D06AC76D31486396C8487
 magnet:?xt=urn:btih:F2CD3F3A26E9431FD47FB46E04E62F382E682FE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +462,8 @@ magnet:?xt=urn:btih:F2CD3F3A26E9431FD47FB46E04E62F382E682FE4
 ```bash
 magnet:?xt=urn:btih:4C70BB19ED0102BBBB3FEFB6CC4AA1002196AC78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +489,8 @@ magnet:?xt=urn:btih:4C70BB19ED0102BBBB3FEFB6CC4AA1002196AC78
 magnet:?xt=urn:btih:E7E64E72446345440E0604B3F23735396D7EBCEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +514,8 @@ magnet:?xt=urn:btih:E7E64E72446345440E0604B3F23735396D7EBCEA
 ```bash
 magnet:?xt=urn:btih:389D2D4BB856242E0016FC2662AF91FF1FB1D433
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +541,8 @@ magnet:?xt=urn:btih:389D2D4BB856242E0016FC2662AF91FF1FB1D433
 magnet:?xt=urn:btih:AD9908D26BE0708959A5B4EE54301C623C4E76DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +566,8 @@ magnet:?xt=urn:btih:AD9908D26BE0708959A5B4EE54301C623C4E76DE
 ```bash
 magnet:?xt=urn:btih:0B62EF1E2CBD347C54AC0DED8900C073257F9732
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +593,8 @@ magnet:?xt=urn:btih:0B62EF1E2CBD347C54AC0DED8900C073257F9732
 magnet:?xt=urn:btih:F5AF0F4394906F9889AD3F261DE987C83F6A30B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +619,8 @@ magnet:?xt=urn:btih:F5AF0F4394906F9889AD3F261DE987C83F6A30B0
 magnet:?xt=urn:btih:D2D0EDDFAE22949603D2AE925D5F8730F35D91FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +644,34 @@ magnet:?xt=urn:btih:D2D0EDDFAE22949603D2AE925D5F8730F35D91FD
 ```bash
 magnet:?xt=urn:btih:19058839C5CD17B65B492C6263FCED0C9C6ABA18
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915345   (592207) от 05.07.2015
+
+Дом / Home (2015) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инопланетная раса бувов во главе с капитаном Смеком захватывает Землю, чтобы укрыться от своих смертельных врагов и обрести новый дом. Руководствуясь благими намерениями, бувы начинают переселять расу людей, но одной находчивой девушке по имени Тип удаётся сбежать. В бегах она встречается с изгнанным бувом по имени О, который случайно уведомил врагов о своём местонахождении.Производство: США, DreamWorks AnimationЖанр: Мультфильм, Фантастика, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Тим ДжонсонПерсонажи: Джим Парсонс, Рианна, Стив Мартин, Дженнифер Лопез, Мэтт Джонс, Брайан Степанек, Эйприл Стрюбинг, Стивен Кеарин, Лиза Стюарт, Эйприл УинчеллПеревод: Дублированный (Лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (Forced, Full), украинский (Forced, Full), английский (Full)Продолжительность: 01:33:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FFB0916F4D939C40DAA2AC91955F9307E488347
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

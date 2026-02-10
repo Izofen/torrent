@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:ACBAAED8EA5A179B05F6E3B907991E2A7F959005
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ The Vision Mastermixers - Christmas Party Megamix (2000) [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:BBFDEF9C655FCC16897BB53C6BA497DA0603ED6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Supermax - Electricity (1983) Unofficial Release, Russia, 2014 [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:F0D2F5E8F3040B3CFEF3466EA8C382AEFD65AD3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -107,6 +113,8 @@ Ksenona - Далеко-далеко (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:5CCD6B13246147123735AB6B4D2B2A39930DBBE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -133,6 +141,8 @@ VA - New Pop Classics (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:1272C8CA4DF15637658D1509D31891A391691F79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -161,6 +171,8 @@ magnet:?xt=urn:btih:1272C8CA4DF15637658D1509D31891A391691F79
 magnet:?xt=urn:btih:4B449273ACB9C5092A5E67D320B40E9922367CF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +199,8 @@ Selena Gomez - Revival (2015) [OGG Vorbis|480 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:17D82959A2E28A82A626E587936842D95A75514F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +229,8 @@ Belinda Carlisle - A Place On Earth · The Greatest Hits (1999) 2 CD [OGG Vorbis
 magnet:?xt=urn:btih:714980479131A990B04E7126E96E6AB8E4C8CD07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +257,8 @@ Sarah Connor - Bounce (2004) [OGG Vorbis|480 Kbps] <Europop, Hip Hop, Pop>
 ```bash
 magnet:?xt=urn:btih:73077E07E83D5BF571CA2FC4973B09DFBAE38D4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +287,8 @@ Spargo - 2 Albums (1980, 1981) LP [MP3|320 Kbps] <Electronic, Disco>
 magnet:?xt=urn:btih:08D24ED0A9F97C75112D884EE831507C911821FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +315,8 @@ magnet:?xt=urn:btih:08D24ED0A9F97C75112D884EE831507C911821FE
 ```bash
 magnet:?xt=urn:btih:6CD8AA1C01F5689A4E71AC84F6366E69E6690DC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +345,8 @@ VA - Deep Strips (2018) [MP3|320 Kbps] <Funky, Dance, Nu Disco, Deep House>
 magnet:?xt=urn:btih:22EA2ABB248FB5C481915CD5C314037E5B43FA38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +373,8 @@ VA - I Saw You Dancing (2001) Приложение к журналу Stereo & Vi
 ```bash
 magnet:?xt=urn:btih:555B70F111FD3A1D06F07BAD7E3BF06CA0400E64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +403,8 @@ VA - The World's Best Ever Beer Song's 10th Anniversary (2008) [FLAC|Lossless|tr
 magnet:?xt=urn:btih:3CB7903A784377701AB6069453541FED9A983E9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +431,8 @@ CD1-CLUB MIX:
 ```bash
 magnet:?xt=urn:btih:3362FCA80CCD696EE8433A2FCB7D2BB5696881CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +461,8 @@ Margaret Singana - Tribal Fence (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul,
 magnet:?xt=urn:btih:F9AE32EB31A19C31C4534330F620C2D1BBC78FD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +489,8 @@ VA - ZYX Italo Disco Spacesynth Collection 5 (2019) 2CD, Compilation [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:D11FCFD93807A4B5AF4B8FCFCBB9575F01C32B61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +519,8 @@ VA - ZYX Italo Disco Spacesynth Collection 4 (2018) 2CD, Compilation [FLAC|Lossl
 magnet:?xt=urn:btih:9E10D74C49A389946998B0F2A6B0AF1484C008CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +547,8 @@ Backstreet Boys - Backstreet's Back (1997) Unofficial Release [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:E30EE39CB981457BBBD0BA017484481B9F231469
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +577,8 @@ Mylene Farmer - Cendres De Lune (1987) [FLAC|Lossless|tracks + .cue] <Chanson, S
 magnet:?xt=urn:btih:C091FB7318D3AF867070704B9CAE968B96867463
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +605,8 @@ VA - Hot Parade Winter 2016 (2015) [MP3|320 кб/с] <Dance, House, Pop>
 ```bash
 magnet:?xt=urn:btih:4E1B07708B38D272F171E716096A5E272FA8D5CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +635,8 @@ VA - Rock'n'Roll Christmas (2011) [FLAC|Lossless|image + .cue] <Pop, Oldies>
 magnet:?xt=urn:btih:C057CBE4818746EAD09BB2FA8A7007931FAF8478
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +663,8 @@ VA - Rock'n'Roll Christmas (Unknown) [FLAC|Lossless|image + .cue] <Pop, Oldies>
 ```bash
 magnet:?xt=urn:btih:EF4B28184A18F868CB65627BAA7F841FBE91F15D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +693,8 @@ The Beloved - Happiness (2020) Special Edition, RM.RE. [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:71C06FE18407C660F9C184BDF6D3D07647478E52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,6 +721,8 @@ Slang - Slang (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Space Rock, Disco
 ```bash
 magnet:?xt=urn:btih:B12729EE8554A840F79CE477A1A04044021F833F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -706,6 +756,8 @@ V.A. - Суперхиты дискотеки 90-х - Золотые баллад
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

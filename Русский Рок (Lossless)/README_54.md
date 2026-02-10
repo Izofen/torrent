@@ -1,3 +1,32 @@
+###  Публикация: 1316746   (505016) от 27.07.2019
+
+Наутилус Помпилиус (Nautilus Pompilius) - Серебряный век (2015) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_505016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Титаник
+02. Дыхание
+03. Утро Полины
+04. На берегу безымянной реки(   Читать дальше...   )Жанр: RockПродолжительность: 01:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:062C9CB7D5B9BE3B4837C7272A10F8BECFF65680
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 232759   (506198) от 03.09.2010
 
 Виктор Зинчук - 6 альбомов (1994-2005) [FLAC|Lossless]<Neoclassical, Instrumental Rock>
@@ -28,6 +57,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +85,8 @@
 ```bash
 magnet:?xt=urn:btih:FB494B4C86D4684EB1BBFE7E5FD2FD146D9762B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -88,6 +121,8 @@ Dark Princess - The World I've Lost (2012) [FLAC|Lossless]<Gothic Metal, Female 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +149,8 @@ Dark Princess - The World I've Lost (2012) [FLAC|Lossless]<Gothic Metal, Female 
 ```bash
 magnet:?xt=urn:btih:25B691549B70140E6FED82591362C38E5618BBF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +185,8 @@ V.A. - A Tribute to Чёрный Обелиск XXV (2012) [FLAC|Lossless]<Heavy
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +213,8 @@ V.A. - A Tribute to Чёрный Обелиск XXV (2012) [FLAC|Lossless]<Heavy
 ```bash
 magnet:?xt=urn:btih:5D31E9272D7E821A75442F3CAB436C48BEB6A665
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +243,8 @@ magnet:?xt=urn:btih:5D31E9272D7E821A75442F3CAB436C48BEB6A665
 magnet:?xt=urn:btih:A4E3E9167517CE604F627CD679A7D5F216508176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +271,8 @@ magnet:?xt=urn:btih:A4E3E9167517CE604F627CD679A7D5F216508176
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +301,8 @@ magnet:?xt=urn:btih:A4E3E9167517CE604F627CD679A7D5F216508176
 magnet:?xt=urn:btih:428DC0878B8FB70B4892B8D298C04E8A58A6F9A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +329,8 @@ magnet:?xt=urn:btih:428DC0878B8FB70B4892B8D298C04E8A58A6F9A5
 ```bash
 magnet:?xt=urn:btih:5C4271EB8693414652A0AA09E88DBBBCE3B56C9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +359,8 @@ magnet:?xt=urn:btih:5C4271EB8693414652A0AA09E88DBBBCE3B56C9D
 magnet:?xt=urn:btih:213033E47911C2463A62A6EFBF5CA233E8B97AF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +384,8 @@ magnet:?xt=urn:btih:213033E47911C2463A62A6EFBF5CA233E8B97AF2
 ```bash
 magnet:?xt=urn:btih:8201214D201267B848FB67BBC1145C6E89E78C74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +414,8 @@ magnet:?xt=urn:btih:8201214D201267B848FB67BBC1145C6E89E78C74
 magnet:?xt=urn:btih:6F9B55ED77CE8EBB72345DDC7C4C943831F76F60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +442,8 @@ magnet:?xt=urn:btih:6F9B55ED77CE8EBB72345DDC7C4C943831F76F60
 ```bash
 magnet:?xt=urn:btih:5940DFCAA37E5DE8042E92A7434A47B71019C1E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +472,8 @@ magnet:?xt=urn:btih:5940DFCAA37E5DE8042E92A7434A47B71019C1E5
 magnet:?xt=urn:btih:04DD7D723DA702B6FC222F5837D391286A0E17EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +500,8 @@ magnet:?xt=urn:btih:04DD7D723DA702B6FC222F5837D391286A0E17EC
 ```bash
 magnet:?xt=urn:btih:B0C13F5DEF5AE9A6A29CC52946699D54B4F02149
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +536,8 @@ magnet:?xt=urn:btih:B0C13F5DEF5AE9A6A29CC52946699D54B4F02149
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +564,8 @@ Neorhythm - Anthropo (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Death, Math Me
 ```bash
 magnet:?xt=urn:btih:E636B72C52CCC73BC552F7C1AA514E392E4E0405
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +594,8 @@ magnet:?xt=urn:btih:E636B72C52CCC73BC552F7C1AA514E392E4E0405
 magnet:?xt=urn:btih:FAB779B35549E570C3DC6CEB929000EBCC447E9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +622,8 @@ magnet:?xt=urn:btih:FAB779B35549E570C3DC6CEB929000EBCC447E9E
 ```bash
 magnet:?xt=urn:btih:E1141CBD269ED6E78574917DE4FB87529AD17610
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +652,8 @@ magnet:?xt=urn:btih:E1141CBD269ED6E78574917DE4FB87529AD17610
 magnet:?xt=urn:btih:F2E0269C6508D3B9713918686C76F5631984F09C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +680,8 @@ magnet:?xt=urn:btih:F2E0269C6508D3B9713918686C76F5631984F09C
 ```bash
 magnet:?xt=urn:btih:B26B13971BE82A28A1C5870E4DD938263C04CD9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +710,8 @@ magnet:?xt=urn:btih:B26B13971BE82A28A1C5870E4DD938263C04CD9B
 magnet:?xt=urn:btih:440C2044AFDFB579D146E4E062EB2B5151CF2B49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +738,8 @@ magnet:?xt=urn:btih:440C2044AFDFB579D146E4E062EB2B5151CF2B49
 ```bash
 magnet:?xt=urn:btih:7CAE90BCC4404F5640F13C8219E4206544C48CFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -691,32 +768,7 @@ magnet:?xt=urn:btih:7CAE90BCC4404F5640F13C8219E4206544C48CFF
 magnet:?xt=urn:btih:3C257021CA5DAAA4AA4A602D35EC664FA7734765
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241617   (518993) от 18.08.2018
-
-БГ (Борис Гребенщиков) - Время N (2018) [FLAC|lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Время N (03:23)
-02. Темный Как Ночь (03:34)
-03. Сякухачи (05:14)
-04. На Ржавом Ветру (03:01)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1271E093617314EB56F1B84524CA99889F2A0EB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

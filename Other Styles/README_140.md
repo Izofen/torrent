@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:7C97F49CC7D9D89EC37415D8A18C1000FA899438
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Nick Cave & Warren Ellis - Hell or High Water / Любой ценой (Original 
 ```bash
 magnet:?xt=urn:btih:3B6089A73942D97E7935B6E0FB370AAD026222C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Mogwai - Kin (2018) Original Motion Picture Soundtrack [FLAC|Lossless|tracks + .
 magnet:?xt=urn:btih:15A0C139755CCEBA8747434C407B4544FA8C4872
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Alex Lucas & Olan Mill - Tramuntana (2016) [MP3|320 Kbps] <New Age, Instrumental
 ```bash
 magnet:?xt=urn:btih:160A13A15B43FCDD1D79B95B09133433FD2DEB25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Eguana & Qeight - The Book of Changes (2021) [MP3|320 Kbps] <Electronic, Downtem
 magnet:?xt=urn:btih:5444F526FF5F7C5AC0C21A813519F71CECC04944
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Sax Project - Saxo and Movies (2011) 3CD [MP3|320 Kbps] <Easy Listening, Sax>
 ```bash
 magnet:?xt=urn:btih:1D970678FC89FCD425B99DABC5D89154D22D22B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Jon Thebur - Sansula (2017) [MP3|320 Kbps] <New age, Relax>
 magnet:?xt=urn:btih:0042972EB5B3FBBEAD846A7532803E87BEBC7D1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Terry Lee Nichols & Rebekah Eden - We Have Only Come to Dream (2018) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:2398322E9AC0ADF03889D79E185D9EE196D9A8DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - From Russia With Song: 20 Greatest Russian Hits (2000) [MP3|320 Kbps] <Pop,
 magnet:?xt=urn:btih:4E4CA21831370071CA988322FE9BA4D9EAC68BF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:4E4CA21831370071CA988322FE9BA4D9EAC68BF2
 ```bash
 magnet:?xt=urn:btih:D1CB53B577B0CB4B9DA73408EDF0B59F1ED27A31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ LEYA - Flood Dream (2020) [FLAC|Lossless|tracks + .cue] <Avant - Folk, Chamber M
 magnet:?xt=urn:btih:8981BF670AFDDB11217456623A52C5D5291E8C9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ New Sun Pops Orchestra - Guitar Mood (1976) 2 Альбома, LP [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:7B0EE62643A855F09AC04254B6B7AD355BABD3C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Padma Previ - Saraswati (2012) [FLAC|Lossless|image + .cue] <Meditative, Mantras
 magnet:?xt=urn:btih:87410EE0D3D63784A675897A0558B2899139D8E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Padma Previ - Goddess Chants (2008) [FLAC|Lossless|image + .cue] <New Age>
 ```bash
 magnet:?xt=urn:btih:A612A52EE519974B4688A2D3D0F0F230B786F57D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Ghost in the Shell / Призрак в доспехах (Music Inspired by 
 magnet:?xt=urn:btih:7CD333C869FAD0E1A65D5BE63165445032CE37D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Ghost in the Shell / Призрак в доспехах (Music Inspired by 
 ```bash
 magnet:?xt=urn:btih:7B2307FAD3A666E4D2E066594E357E4E5468FE2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Cerrone - Brigade Mondaine: Original Soundtracks (1978-1980) 2014, Because Music
 magnet:?xt=urn:btih:18B59C6C227A3FE2F7E89653750333B38FBE774E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Harp Twins (Camille and Kennerly) - 3 альбома (2013 - 2015) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:6AC39E462D08E47AA149216A8085C804A1DF66A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ Ryan Farish - United (2017) [MP3|320 Kbps] <Electronic, Downtempo, New Age>
 magnet:?xt=urn:btih:F6EC8DCCF04EFB94386C97D3A4D953EDAC3F2D81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Harry Gregson-Williams - Live by Night / Закон ночи (Original Motion Pi
 ```bash
 magnet:?xt=urn:btih:9499C45AFB520F3C744E7AA5C5AA76069BFD6007
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Harry Gregson-Williams - Live by Night / Закон ночи (Original Motion Pi
 magnet:?xt=urn:btih:D02D9777F18AA69564907CF58EAAEAFDAC9BA1ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ magnet:?xt=urn:btih:D02D9777F18AA69564907CF58EAAEAFDAC9BA1ED
 ```bash
 magnet:?xt=urn:btih:2D35702142F16C5E065AE87647AC47C7C80B1795
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ Jonny Greenwood - Phantom Thread / Призрачная нить (2018) Soundtra
 magnet:?xt=urn:btih:6D669D862BDAD91849EA63D485F473AB343AEF21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ Mike Lazarev - Dislodged (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, M
 ```bash
 magnet:?xt=urn:btih:ECFBF0B7039CCF736D8A79E5819FAB0EFA413067
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ Padma Previ - Divine Visions (2007) [FLAC|Lossless|image + .cue] <New Age>
 magnet:?xt=urn:btih:CB44DDE609B07F66D0B50079EB6BC44FD0C759F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ David Arkenstone - Deep Sleep (2017) [MP3|320 Kbps] <New Age, Meditative>
 ```bash
 magnet:?xt=urn:btih:05A861CF123BBA58EE8B00ECC252D42EBFDE8DB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

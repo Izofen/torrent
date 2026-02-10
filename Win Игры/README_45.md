@@ -19,6 +19,8 @@ Farm Manager World (2024) [Ru/Multi] (1.0.20250421.417) Repack FitGirl
 magnet:?xt=urn:btih:D3F895FF348C7E276185690B99D9ECB06DA21F4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Len's Island (2021) [Ru/Multi] (1.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:21851684A33D1467F231F5D57A04E2739CF20DD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Fallout 3 - это сочетание шутера от первого лица,
 magnet:?xt=urn:btih:F23881582348D54682E5AAB3DEDAF9EA12E95B88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Snow Plowing Simulator (2024) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:E0E78FC7B2E388715AD1E01EA36974494D821161
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Svarog's Dream выделяется как увлекательная РПГ, п
 magnet:?xt=urn:btih:649061F0C31A4D244EFD4C3AC767B4D08440521E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ High On Life (2022) [Ru/Multi] (Build 12527950/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2DF293F65823287A6E3D5F9A0BDADC00E7934DAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Void Sails (2025) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:9DD4BF4292D1210062E545C761161CD1041CF3BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Augmented Empire (2025) [Multi] (22089) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:81146A5DE5C3371E0305CDD9E052105E4EB4009F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Victoria 3 - прямой сиквел одноименной игры, где �
 magnet:?xt=urn:btih:95071C041798D361873C473CBFAD1FD22BF743B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Yao-Guai Hunter - это уникальный рогалик с элемента
 ```bash
 magnet:?xt=urn:btih:4E3C7F99D28B0DFA2D87FD9FC802B58B8BF47BE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Goat Simulator 3 (2022) [Ru/Multi] (1.1.4.3_410056/dlc) Repack EXROW
 magnet:?xt=urn:btih:F43EE7E38BA834A32A2EC644E15066C6D399117F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Castle of Secrets - это мрачное психологическое при�
 ```bash
 magnet:?xt=urn:btih:B5DC456B96F20DC1E3AF354BA4B9BC6E051E61F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Stone 4 Souls (2025) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:FB378DE0A6100DDCCA0C84D5C6F45E3A5EF132D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Vambrace: Dungeon Monarch (2025) [Multi] (Build 28889904) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:6ABF53D402778772DD28726C9F4F95549AA53C81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Reality Rash начинается после того, как корпорати
 magnet:?xt=urn:btih:A60FF77765C0EFE770033802260952A60FEA867D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Brownie's Adventure (2024) [En] (8.0) License GOG
 ```bash
 magnet:?xt=urn:btih:3F7B69F20531923D36290AF69DC98B6DC59951F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Stray – приключенческая игра от третьего лица
 magnet:?xt=urn:btih:87F926BBDC0937E74B9FA1EAD1952E35AADA03EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Grimstar – это стратегия в реальном времени с с�
 ```bash
 magnet:?xt=urn:btih:E82F23DDB64BFA242F715312FBE9B2F67F4B64B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Stolen Realm смешивает пошаговую тактику с данже�
 magnet:?xt=urn:btih:9F9C82F0F24410762271907D10A8880E634D8D64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Pools (Бассейны) – игра, разработанная в жанре 
 ```bash
 magnet:?xt=urn:btih:10057239DD0FD115FB4CE5390014B30F48607E4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Hearts of Iron 4 (IV) – отличный военный симулятор, в
 magnet:?xt=urn:btih:AB84625A2A9AD86A8395F2E31E090A16D53A1A78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ DARK – ролевой стелс-боевик в антураже мира, г
 ```bash
 magnet:?xt=urn:btih:60FB28A94A09EA43B08D66B174B44DAFB3C5ABA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Shadows of Doubt (2024) [Ru/Multi] (40.03.1/dlc) License GOG
 magnet:?xt=urn:btih:75D1F9FB1807ED0B2433CBAE7F23C3823FA4F6A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Masterplan Tycoon - это самый минималистичный симул�
 ```bash
 magnet:?xt=urn:btih:D8ECA74BAB4B6CD4CEF4F8B48791E4B5224E951C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (1.1/dlc) Repack seleZen
 magnet:?xt=urn:btih:619E4011F6A10E5AC0D8A884B9CB2B2CDC37388E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Nine Sols - это насыщенная сюжетом двухмерная иг
 ```bash
 magnet:?xt=urn:btih:18B29F52B208C00A7BE56E57548E908F23D52701
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 993299   (897564) от 04.03.2016
+
+Вечерний Ургант. Сезон №9. Выпуск №25 (2016.03.04) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6585B4C18B68A6350D1ED0B4D55C78CC447C0A37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993044   (897578) от 04.03.2016
 
 Вечерний Ургант. Сезон №9. Выпуск №24 (2016.03.03) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:FCA358B8C5533B0491BD1D9569E206813F6BD7DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:FCA358B8C5533B0491BD1D9569E206813F6BD7DA
 magnet:?xt=urn:btih:AB84E83F9B59B0D2EFEC03D08D43A44132EBD205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:AB84E83F9B59B0D2EFEC03D08D43A44132EBD205
 ```bash
 magnet:?xt=urn:btih:BD5AEE9FD980EEA4AA5AC701C80E242A92161FEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:BD5AEE9FD980EEA4AA5AC701C80E242A92161FEE
 magnet:?xt=urn:btih:C54AFD1DC45A6BEF687F18DAF563D9071B372A3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:C54AFD1DC45A6BEF687F18DAF563D9071B372A3F
 ```bash
 magnet:?xt=urn:btih:8EEFECC758F557A5F0CA62E96D915B5C075F4CC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:8EEFECC758F557A5F0CA62E96D915B5C075F4CC1
 magnet:?xt=urn:btih:2B746784AA8BCB580327B6A1D6C7D3C77A4FF9DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:2B746784AA8BCB580327B6A1D6C7D3C77A4FF9DA
 magnet:?xt=urn:btih:8EA10EC298AADADC895D46BF7D7A80F7E0971804
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +226,8 @@ magnet:?xt=urn:btih:8EA10EC298AADADC895D46BF7D7A80F7E0971804
 ```bash
 magnet:?xt=urn:btih:274995AC324A5C33F47263825FE01C8F309E0B2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:274995AC324A5C33F47263825FE01C8F309E0B2C
 magnet:?xt=urn:btih:38305DD68EFC93087905CE5E455B3859DF8B0F6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:38305DD68EFC93087905CE5E455B3859DF8B0F6C
 ```bash
 magnet:?xt=urn:btih:CABEBF39C3A60456D626226F07824E75E0D566FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:CABEBF39C3A60456D626226F07824E75E0D566FD
 magnet:?xt=urn:btih:B8FC168EACA1443964C445AF9676436374F639C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:B8FC168EACA1443964C445AF9676436374F639C1
 ```bash
 magnet:?xt=urn:btih:EE9E75A8C1452F960E1AD1BD34662F61FEA3A139
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:EE9E75A8C1452F960E1AD1BD34662F61FEA3A139
 magnet:?xt=urn:btih:AEB9AED8FD082397F6001BBC7364CAB82DF541A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:AEB9AED8FD082397F6001BBC7364CAB82DF541A9
 ```bash
 magnet:?xt=urn:btih:5D1626957966EE164C6EB694E533497C38C0C4FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:5D1626957966EE164C6EB694E533497C38C0C4FB
 magnet:?xt=urn:btih:9A8529FC4BED062A752B4615D86BA50F8A7725C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:9A8529FC4BED062A752B4615D86BA50F8A7725C9
 ```bash
 magnet:?xt=urn:btih:4AE08AF8A16977E89F03499430C1D4CE71A4FEEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:4AE08AF8A16977E89F03499430C1D4CE71A4FEEF
 magnet:?xt=urn:btih:27579E79E82F308A50B0F741EB0C4CBEA6F57B07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:27579E79E82F308A50B0F741EB0C4CBEA6F57B07
 ```bash
 magnet:?xt=urn:btih:3D955A01641B1BDB5CB629DA1D9EE7DFD01CB575
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:3D955A01641B1BDB5CB629DA1D9EE7DFD01CB575
 magnet:?xt=urn:btih:3875B4F28C806021DE48402A04C8BB71A8596BDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:3875B4F28C806021DE48402A04C8BB71A8596BDA
 ```bash
 magnet:?xt=urn:btih:1C529D457CF3B4951A7579F1EAC58203AA389FBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:1C529D457CF3B4951A7579F1EAC58203AA389FBA
 magnet:?xt=urn:btih:0FE390154837A3F4079D47DD2056F6FCB980A4A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:0FE390154837A3F4079D47DD2056F6FCB980A4A2
 ```bash
 magnet:?xt=urn:btih:B182E82F60522D706401DF4DDDE11E746E316644
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:B182E82F60522D706401DF4DDDE11E746E316644
 magnet:?xt=urn:btih:804CEECC9CA25AF8200E3BFEBA7B32AF77A6EDD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:804CEECC9CA25AF8200E3BFEBA7B32AF77A6EDD2
 ```bash
 magnet:?xt=urn:btih:4A74DFA79823E051FC5564950A240C13167FD20C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,29 +680,7 @@ magnet:?xt=urn:btih:4A74DFA79823E051FC5564950A240C13167FD20C
 magnet:?xt=urn:btih:430D5892731BB804A26D88C616D6218A62689AA7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100518   (899240) от 04.02.2017
-
-Своя игра (04.02.2017) SATRip
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899240.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре принимают участие 3 игрока. Их основная цель — отвечать на вопросы и зарабатывать как можно большее число очков. В начале игры у каждого из игроков на счету  очков. Каждое очко в игре равняется 1 рублю. Суть игры заключается в том, что три участника отвечают на вопросы различной стоимости, пытаясь опередить друг друга. игра состоит из четырёх раундов — трёх (   Читать дальше...   )Телекомпания: НТВЖанр: Интеллектуальное шоуПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56A6CB26A13BED795332725E834E3D06C5E174B0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

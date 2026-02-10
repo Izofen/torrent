@@ -19,6 +19,8 @@ InstallShield 2019 R2 Premier Edition 25.0.0.676 [En]
 magnet:?xt=urn:btih:633DA3B81A0A938FDA534C5CD4CD1971C97F5F4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Rabbit Junk - Apocalypse for Beginners (2022) [FLAC|Lossless|WEB-DL|tracks] <Ind
 ```bash
 magnet:?xt=urn:btih:3F134070D69E31CD01E548C594B599419CAF48E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Soreption - Monument Of The End (2018) [WavPack|Lossless|image + .cue] <Technica
 magnet:?xt=urn:btih:7C9E7150E9B36C6EDB18D585B79E30BBF3B63ECF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:7C9E7150E9B36C6EDB18D585B79E30BBF3B63ECF
 ```bash
 magnet:?xt=urn:btih:1AEE4555617A8BFAA878F4B3518AD872364C1483
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:1AEE4555617A8BFAA878F4B3518AD872364C1483
 magnet:?xt=urn:btih:7815D085A75E1DD3DDA15D452040DF873E1C9024
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:7815D085A75E1DD3DDA15D452040DF873E1C9024
 ```bash
 magnet:?xt=urn:btih:2AA3B477063048A4DCF15B431E62471A9AB0279E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:2AA3B477063048A4DCF15B431E62471A9AB0279E
 ```bash
 magnet:?xt=urn:btih:5F3D84F8C4D26E225035BDFBC957C2C45675A466
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Betty Buckley - Hope (2018) Palmetto+ [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 magnet:?xt=urn:btih:35F88908F4884AB7E9ED0EF932BE8DC639D58895
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:35F88908F4884AB7E9ED0EF932BE8DC639D58895
 ```bash
 magnet:?xt=urn:btih:48199B55CBC50171854C94299CB55D2DA238CF6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ VA - Digiseeds (Compiled by Ambientium) (2015) Ultimae Records [FLAC|Lossless|WE
 magnet:?xt=urn:btih:B118C50744C7C93329D0D1692A5F137D13C9EDE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:B118C50744C7C93329D0D1692A5F137D13C9EDE4
 ```bash
 magnet:?xt=urn:btih:EA7684E8605577CCA42CD86746A754CBCA615765
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:EA7684E8605577CCA42CD86746A754CBCA615765
 magnet:?xt=urn:btih:C66C82B640985245D8F6DB46012F209A9F521D9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:C66C82B640985245D8F6DB46012F209A9F521D9C
 ```bash
 magnet:?xt=urn:btih:1E13021898BBD91EEE7F3244B164909665922338
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ Wilderun - Epigone (2022) [FLAC|Lossless|tracks + .cue] <Symphonic Progressive, 
 magnet:?xt=urn:btih:0F35C1BFB7F03F85A3CDE54B84CD8098FFA5B3A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ Tom Harrell - Something Gold, Something Blue (2016) HighNote [FLAC|Lossless|trac
 magnet:?xt=urn:btih:CADD3D70048708CB16D1E302C453907EE2F6BD33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ magnet:?xt=urn:btih:CADD3D70048708CB16D1E302C453907EE2F6BD33
 ```bash
 magnet:?xt=urn:btih:6A5BE3543883B7414D5B82693C5AE05A5D016F82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +461,8 @@ Golgotha - Mors Diligentis (2022) [MP3|320 Kbps] <Doom, Death Metal>
 magnet:?xt=urn:btih:37B0762A9A98A86B073ECBF9512E1042A9A5C52D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:37B0762A9A98A86B073ECBF9512E1042A9A5C52D
 magnet:?xt=urn:btih:CEABED5296BCC94B786CE4BDE0A032D3C032467F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ magnet:?xt=urn:btih:CEABED5296BCC94B786CE4BDE0A032D3C032467F
 ```bash
 magnet:?xt=urn:btih:3E139BFD22E43263DA00BE1325629BC774606E14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ Gil Evans - The Individualism of Gil Evans (1963, 1964) 2003, Universal [APE|Los
 magnet:?xt=urn:btih:E9475B530BD49D1E6B3B3132B13EBABF7B0ECE43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:E9475B530BD49D1E6B3B3132B13EBABF7B0ECE43
 magnet:?xt=urn:btih:303276BD98A65DCBE98761568CBE6305147F6416
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ magnet:?xt=urn:btih:303276BD98A65DCBE98761568CBE6305147F6416
 ```bash
 magnet:?xt=urn:btih:A90D1DA9FA79F0A887895CACE5D65AD7DB35D056
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ Siberian Heat & Elen Cora - Number One (2011) [MP3|160 Kbps] <Disco, Synth-pop>
 magnet:?xt=urn:btih:2A1B0CA77068AADD408597FFBBB2BFFFE6E315D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ magnet:?xt=urn:btih:2A1B0CA77068AADD408597FFBBB2BFFFE6E315D7
 ```bash
 magnet:?xt=urn:btih:B55A4FE1E34871132A591CF847709B982CF55091
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +679,8 @@ Plirom - Путь в вальгаллу (2022) [MP3|320 Kbps] <MetalCore>
 magnet:?xt=urn:btih:39C67B3131988E16C6B3A875085E4636E5CEAD98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ A4. Don't Stop The Music :: 06:05(   Читать дальше...   )Жанр: R
 ```bash
 magnet:?xt=urn:btih:2D71B7134D3CD9715CE8D997A43FAC4DA0BDDA34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

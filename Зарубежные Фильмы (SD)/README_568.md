@@ -1,3 +1,29 @@
+###  Публикация: 1379300   (840538) от 28.04.2020
+
+Неизбранные дороги / The Roads Not Taken (2020) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840538.jpg" />
+</div>
+
+
+###  Подробнее
+
+День, обещавший Лео лишь рутину, становится точкой пересечения множества судеб. Богемная жизнь, непростая карьера музыканта на Манхэттене, безумная любовь, рождение дочери и бегство на греческий остров, полный соблазнов. Сегодня всё это как будто происходит вновь…Производство: Великобритания, Швеция, США / Adventure Pictures, BBC Films, British Film InstituteЖанр: ДрамаРежиссер: Салли ПоттерАктеры: Хавьер Бардем, Элль Фэннинг, Сальма Хайек, Бранка Катич, Лора Линни, Дмитрий Андреас, Катя Муллова-Брайнд, Милена Чарнтке, Дебора Уэстон, Аарон ДжошуаПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:25:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41995B0F05789946B29543A8FC0C576D8EAD94B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379317   (840544) от 28.04.2020
 
 Британский психопат (Отмщение) / Avengement (2019) BDRip [H.264]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:A0509A8E59D536E32C172073C21E46C79FC968A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:A0509A8E59D536E32C172073C21E46C79FC968A0
 ```bash
 magnet:?xt=urn:btih:8C868B383EA77DF6AFD9B7BFFD05A7A734B2FA56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:8C868B383EA77DF6AFD9B7BFFD05A7A734B2FA56
 magnet:?xt=urn:btih:F021AC7B9C2CA74D5D249971467A6111468C970E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:F021AC7B9C2CA74D5D249971467A6111468C970E
 magnet:?xt=urn:btih:E9D715EFA1E1E18EA2F3326050742B1B70B000CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:E9D715EFA1E1E18EA2F3326050742B1B70B000CB
 ```bash
 magnet:?xt=urn:btih:BF9305FB91239C8DA0C46F68FE917BD7FD3D389F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:BF9305FB91239C8DA0C46F68FE917BD7FD3D389F
 magnet:?xt=urn:btih:BFB596E79AB76B357BB692C1FD798290D824234B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:BFB596E79AB76B357BB692C1FD798290D824234B
 ```bash
 magnet:?xt=urn:btih:51C2E71BEDAD4DCD4FE834C3948A9306293C039D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:51C2E71BEDAD4DCD4FE834C3948A9306293C039D
 magnet:?xt=urn:btih:F826A1A4619872EF6B0EFC2D0667567BA3796C41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:F826A1A4619872EF6B0EFC2D0667567BA3796C41
 ```bash
 magnet:?xt=urn:btih:9753FE01F183859C492897CA8C5A6FB2FD6F0A8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:9753FE01F183859C492897CA8C5A6FB2FD6F0A8F
 magnet:?xt=urn:btih:045968A010F5D4B47A54C95AB92222F5BA91AE99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:045968A010F5D4B47A54C95AB92222F5BA91AE99
 ```bash
 magnet:?xt=urn:btih:726D247298EBDD29A7255144AB167FA9DC676D28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:726D247298EBDD29A7255144AB167FA9DC676D28
 magnet:?xt=urn:btih:3E6A94D0037C7BD52B4F3F1555EFDAB4D11EDE6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:3E6A94D0037C7BD52B4F3F1555EFDAB4D11EDE6D
 ```bash
 magnet:?xt=urn:btih:C233CB985574ABBEE671436119458EA74D7A46DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:C233CB985574ABBEE671436119458EA74D7A46DD
 magnet:?xt=urn:btih:4D0C5F226B14133ED7B6B1CDF13664ADB1C3A485
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:4D0C5F226B14133ED7B6B1CDF13664ADB1C3A485
 ```bash
 magnet:?xt=urn:btih:D0BFEF09D9AEB0FD8ECB354D96E5594C263F9C54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:D0BFEF09D9AEB0FD8ECB354D96E5594C263F9C54
 magnet:?xt=urn:btih:A505CB39EE7D7DC58FC481F15DE40C0A73909907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:A505CB39EE7D7DC58FC481F15DE40C0A73909907
 ```bash
 magnet:?xt=urn:btih:7BC76268465C4B7E3E0868FE2DB8DB6309C1CE86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:7BC76268465C4B7E3E0868FE2DB8DB6309C1CE86
 magnet:?xt=urn:btih:F76542CF9DECD4424C8970F533A02ECE8E23B8D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:F76542CF9DECD4424C8970F533A02ECE8E23B8D9
 magnet:?xt=urn:btih:745524ABB6DD69DFD217DC6CB6A0CECBCE225891
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:745524ABB6DD69DFD217DC6CB6A0CECBCE225891
 ```bash
 magnet:?xt=urn:btih:D61E71A5181BAE9268FD54B8D761C9292D5B1B4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:D61E71A5181BAE9268FD54B8D761C9292D5B1B4C
 magnet:?xt=urn:btih:5A226F02F211052C42CD4DAAF05DFD12E3E0E2A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:5A226F02F211052C42CD4DAAF05DFD12E3E0E2A9
 ```bash
 magnet:?xt=urn:btih:A539BCF26F0D4445D374EFCD73AC716D4714D647
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:A539BCF26F0D4445D374EFCD73AC716D4714D647
 magnet:?xt=urn:btih:42D7DCA4FEC340D8F5B8AB9F816A22CA30D733E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:42D7DCA4FEC340D8F5B8AB9F816A22CA30D733E6
 ```bash
 magnet:?xt=urn:btih:8E7CF48467C17486F1A0C345433E9D80696EA801
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,29 +672,7 @@ magnet:?xt=urn:btih:8E7CF48467C17486F1A0C345433E9D80696EA801
 magnet:?xt=urn:btih:8834021E7340315EA51D10A03CAC9278EB8C05D8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003840   (841282) от 04.04.2016
-
-Пылающая равнина / The Burning Plain (2008) HDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сильвия страдает от грехов прошлого… Юная Марианна пытается спасти разбитую вдребезги любовь своих родителей… Джина и Ник пылают в страсти тайного порочного романа… Как переплетаются нити жизней этих людей, разделенных во времени и пространстве? Тайная мистика судьбы.Производство: США, АргентинаЖанр: Мелодрама, драма, криминалРежиссер: Гильермо АрриагаАктеры: Шарлиз Терон, Ким Бейсингер, Хоаким де Альмейда, Дженнифер Лоуренс, Хосе Мария Язпик, Тесса Иа, Диего Х. Торрес, Дж.Д. Пардо, Дэнни Пино, Бретт КалленПеревод: Профессиональный многоголосый (Парадиз-ВС)Субтитры: ОтсутствуютПродолжительность: 01:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BA5F269A0D29327198EA730133A59C6195B8876
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

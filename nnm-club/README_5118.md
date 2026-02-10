@@ -22,6 +22,8 @@ VA - Уголовочка от радио Шансон. Часть 4 (2015) [MP3
 magnet:?xt=urn:btih:D768BA3F85FAA4AF21238E7770BE9364DC96B5ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Always Alive Recordings - Best Of 2015 (Mixed By Daniel Kandi) (2015) [MP3|
 ```bash
 magnet:?xt=urn:btih:BF42A8CBC3FCEB2E16C887A03A08E213FC70935C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Andrea Motis, Joan Chamorro, Orquestra Simfonica del Valles - Live at Palau De L
 magnet:?xt=urn:btih:ED70B93341370B1C383849788EBBA97E1255BADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Her Blood In My Veins - Veliota (2015) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambie
 ```bash
 magnet:?xt=urn:btih:6FE37D916D0C56F529BD3C514E3F21B366C1CA5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - The Many Faces Of Elvis (2015) 3CD, Compilation [FLAC|Lossless|tracks + .cu
 magnet:?xt=urn:btih:C2D0C52D37414D1C38D625B764A2F74258909656
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ VA - Majesty Trance: Psy Goa Party (2015) [MP3|320 кб/с] <Psychedelic, Psy Tr
 magnet:?xt=urn:btih:6AC7F79EED5F0DE955A3941D0AD2C0FDE9F10C7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ magnet:?xt=urn:btih:6AC7F79EED5F0DE955A3941D0AD2C0FDE9F10C7B
 ```bash
 magnet:?xt=urn:btih:E7F25981D0A7FA801832C850B6FC11117FAC6506
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ magnet:?xt=urn:btih:E7F25981D0A7FA801832C850B6FC11117FAC6506
 magnet:?xt=urn:btih:2C0DC27C964566E39569F8FAF5D1B490A03A3B18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:2C0DC27C964566E39569F8FAF5D1B490A03A3B18
 ```bash
 magnet:?xt=urn:btih:BF8BAA55E8914B0429D308064E065A8834EAD84D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +274,8 @@ Maria Schneider Orchestra - The Thompson Fields (2015) ArtistShare[FLAC|tracks+.
 magnet:?xt=urn:btih:D2415EAA8B66D62400BD6FF4C2F2D919A7C9D65B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ magnet:?xt=urn:btih:D2415EAA8B66D62400BD6FF4C2F2D919A7C9D65B
 ```bash
 magnet:?xt=urn:btih:3D0C5251C19478ACA4EA7AB1557E8A406849CBFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +329,8 @@ Slaughter Brute - Systematic Transmutations (2012) Beasts Studio records [FLAC|L
 magnet:?xt=urn:btih:EAC7BFB9239EA0F92D4D58CB61BD68B4B1DD3FED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +355,8 @@ magnet:?xt=urn:btih:EAC7BFB9239EA0F92D4D58CB61BD68B4B1DD3FED
 magnet:?xt=urn:btih:5426B600B69FA0B97E016E43C28C52DAF9FA0BF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:5426B600B69FA0B97E016E43C28C52DAF9FA0BF0
 ```bash
 magnet:?xt=urn:btih:F030A0CEC843C7B86553EAF3F35F1F81C7529810
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +410,8 @@ VA - Private Beach (Chillout Edition) (2015) [MP3|320 кб/с] <Downtempo, Chill
 magnet:?xt=urn:btih:6433FFC07F51D7A62735CF8B319C954661B61CE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +439,8 @@ VA - Groovedelicious 40 Deep and Tech House Sounds, Vol 1 (2015) [MP3|320 кб/�
 magnet:?xt=urn:btih:66ACD73CCBC26221E8F028E95FCCE3155EA2C60D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +467,8 @@ magnet:?xt=urn:btih:66ACD73CCBC26221E8F028E95FCCE3155EA2C60D
 magnet:?xt=urn:btih:C02F684683369E6AFE0416502B2FAB6FA801E954
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +492,8 @@ magnet:?xt=urn:btih:C02F684683369E6AFE0416502B2FAB6FA801E954
 ```bash
 magnet:?xt=urn:btih:C960AC14DDCFDB3A6FB43B2BD72265E18FC136FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +519,8 @@ magnet:?xt=urn:btih:C960AC14DDCFDB3A6FB43B2BD72265E18FC136FE
 magnet:?xt=urn:btih:EE03F3DD8B66D335138F88A3DD07D795C932B40D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:EE03F3DD8B66D335138F88A3DD07D795C932B40D
 ```bash
 magnet:?xt=urn:btih:AC83249142F6A8704245664E50B7824177210304
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +574,8 @@ The Lenny Hambro Quintet - Message From Hambro (1955) 2015, Sony Music[FLAC|trac
 magnet:?xt=urn:btih:E9295995FE83FCF1BFE20BB72FC01AD6DCFCA090
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:E9295995FE83FCF1BFE20BB72FC01AD6DCFCA090
 ```bash
 magnet:?xt=urn:btih:D8D563A32A2C7FD0E1620E5B378E46889D741E9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +628,8 @@ magnet:?xt=urn:btih:D8D563A32A2C7FD0E1620E5B378E46889D741E9A
 magnet:?xt=urn:btih:BF139E78ED95E171F8371EE49E32548D7C661991
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +653,8 @@ magnet:?xt=urn:btih:BF139E78ED95E171F8371EE49E32548D7C661991
 ```bash
 magnet:?xt=urn:btih:6913B10C83347AA943EA4EBAB7B3AAAD2A591C55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +680,8 @@ magnet:?xt=urn:btih:6913B10C83347AA943EA4EBAB7B3AAAD2A591C55
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ magnet:?xt=urn:btih:6913B10C83347AA943EA4EBAB7B3AAAD2A591C55
 ```bash
 magnet:?xt=urn:btih:89572A402C84DBB95D3864934889331DE1BD8F14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

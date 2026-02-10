@@ -22,6 +22,8 @@ Sam KDC - Late Night Innominate, Volume One (2015) Auxiliary [FLAC|Lossless|WEB-
 magnet:?xt=urn:btih:D27C442282B8394B6667C58C573A748C6823C32F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Armin van Buuren - A State Of Trance Episode 938 (2019) [MP3|320 Kbps] <Pro
 ```bash
 magnet:?xt=urn:btih:3D37F0B106C160FEF92A24D475170089CF46E82A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Force Intel - Label Pack 5 Releases (2010-2012) Mille Plateaux [FLAC|Lossless|tr
 magnet:?xt=urn:btih:F1A85042FA6F1070B5791EFCA303FF0157ECC9C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Best Of Dance 2019 (Presented by Spinnin' Records) [MP3|320 Kbps] <Progress
 ```bash
 magnet:?xt=urn:btih:96D5B31931C472131EF015E9AAE77BDF12A67200
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Trance Miami (2019) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:0B106CAEAFDAE30FFE7A6E4E6EC5F4523C3BE9D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Anjunadeep 07 (Mixed by Jody Wisternoff & James Grant) (2015) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:60A0503A116BB07ECABEA41DFB295FB9252B2697
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Lenzman - Earth Tones (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 magnet:?xt=urn:btih:9AA85935F6898B45209D47549D5500458A2D1848
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Trance 2020 (2019) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:B9B46F5ACEE10CEE02D768FB9A86EE3FC0E45AED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Best of Deep House 2017 (Deluxe Version) (2017) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:D49FE6D9F2AB9128FBA6B0032230C30FE8527E79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ VA - Grotesque 300 (Mixed by RAM, Marco V & Darren Porter) (2017) [MP3|320 Kbps]
 magnet:?xt=urn:btih:11A47FDCBA8500399A567257A78A6BE4E2297A77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +310,8 @@ Neel & Filippo Scorcucchi present LF58 - Late Night Innominate, Volume Two (2017
 ```bash
 magnet:?xt=urn:btih:5513A8EF2368852F1B80CE16123DFA8F1A7F68A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +340,8 @@ VA - Ice Dreams: December Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 magnet:?xt=urn:btih:D8FD3EA8F75DF308C61CDA9B642A8FE1E2B1608E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +368,8 @@ VA - Nothing But... The Future Of Trance Vol.05 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:07EF57B393AD81E64F2371F32177023B045B4E9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +398,8 @@ VA - Trance - The Vocal Session 2020 (2019) [MP3|320 Kbps] <Trance, Vocal Trance
 magnet:?xt=urn:btih:EA37D96CE9961A7DF1227C497D9A37F96183293B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +426,8 @@ VA - 25 Best Christmas Songs Ever For Fitness & Workout (2019) [MP3|320 Kbps] <F
 ```bash
 magnet:?xt=urn:btih:0FD47FEBFD7771C42B7C46AB51B9E05B0882CE02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +456,8 @@ Airwave - Touareg (Remastered Deluxe Edition) (2019) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:FE105D3E49F78327B27B1F91EDBF6845736A000D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +483,8 @@ Esoteric Sob - Discography 11 Releases (2009-2016) From A Tree, 33 Recordings [F
 ```bash
 magnet:?xt=urn:btih:C6614667F5895105D8C5409FF382B13F424E9F5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +513,8 @@ Steve Brian - Wanderlust (2018) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 magnet:?xt=urn:btih:1DDD4E9BEDCCE7E8D586A664648196AE0183CDF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +541,8 @@ VA - UKF Drum & Bass 2017 (2017) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:05A135BC9C2E9FEFF43B8BF293FA1FF2E73A6F0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +571,8 @@ Floating Machine - Nowhere (2017) Arctic Dub Records [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:7E89A52D417C246F31B50FE3C5D24429508F8FDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +599,8 @@ VA - Best Of EDM Party 2019 (2018) [MP3|320 Kbps] <House, Electro House, BigRoom
 ```bash
 magnet:?xt=urn:btih:5BFB97087CF46F25755315812E93B29DA1869B39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +629,8 @@ VA - Techno Trance 2019: Top 40 Hits Deep House (2018) [MP3|320 Kbps] <Techno Tr
 magnet:?xt=urn:btih:B149AAD48F3095B78C4961944B4DF759E5E7F837
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +657,8 @@ VA - Goa 2018 Vol.4 (2018) [MP3|320 Kbps] <Psytrance, Psychedelic Trance>
 ```bash
 magnet:?xt=urn:btih:DB9E66323DBA28A30C6D08B2B867040E1717E8C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +687,8 @@ Dictaphone - Discography 6 Releases (2002-2018) City Centre Offices, Denovali Re
 magnet:?xt=urn:btih:12F346947333CBF97187B96EEA9404A58326403D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +713,8 @@ Underworld - Drift Episode 1 (2018) Smith Hyde Productions [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:75D04A360071CCA1514841ED6FBCB237B768BDB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -692,6 +742,8 @@ subtractiveLAD - Within And Without (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambien
 ```bash
 magnet:?xt=urn:btih:54700A4EDDA124B167180BBBBCC610651E4F9DCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

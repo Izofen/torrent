@@ -1,3 +1,30 @@
+###  Публикация: 978320   (963228) от 23.01.2016
+
+Петр Заспа | Торпедой - пли! (2016) [MP3]
+
+>>След.
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наше время. Гордость Северного флота, российская атомная подводная лодка «Дмитрий Новгородский» уходит в поход – на дежурство в среднюю Атлантику. Поход как поход, если бы не присутствие на борту военспеца с хитрой аппаратурой. Высшее командование распорядилось провести в море некий секретный эксперимент. И провели…
+Холодное лето 1942 года, в разгаре Вторая мировая. (   Читать дальше...   )Жанр: Боевая фантастика, попаданецПродолжительность: 12:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE9027812992186CEA39D222FDD1478A8CEC12F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978201   (963347) от 23.01.2016
 
 Саймон Грин | Восход голубой луны (2015) [MP3]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:21BB90D6E47A32580817F1BC481F894EFAAC80C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +71,8 @@ magnet:?xt=urn:btih:21BB90D6E47A32580817F1BC481F894EFAAC80C5
 ```bash
 magnet:?xt=urn:btih:585F463EEA4643EB07B7529C7B1D9A4A664CE065
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +100,8 @@ magnet:?xt=urn:btih:585F463EEA4643EB07B7529C7B1D9A4A664CE065
 magnet:?xt=urn:btih:73D6577369D1E9E09119C96EEF634CA8AD39FEE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +126,8 @@ magnet:?xt=urn:btih:73D6577369D1E9E09119C96EEF634CA8AD39FEE2
 magnet:?xt=urn:btih:DA4C9E93F3AAB817C5ABE9B30C2C0E6057775BFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +151,8 @@ magnet:?xt=urn:btih:DA4C9E93F3AAB817C5ABE9B30C2C0E6057775BFB
 ```bash
 magnet:?xt=urn:btih:6A987EF2B6129C335DDBF10B8BD177847CA9BD37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +180,8 @@ magnet:?xt=urn:btih:6A987EF2B6129C335DDBF10B8BD177847CA9BD37
 magnet:?xt=urn:btih:D87D3162E12D52137935840A14E3313EEC003318
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +208,8 @@ magnet:?xt=urn:btih:D87D3162E12D52137935840A14E3313EEC003318
 magnet:?xt=urn:btih:E64BC31EEF2D0EDE8C74896E273A80220573C163
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +235,8 @@ magnet:?xt=urn:btih:E64BC31EEF2D0EDE8C74896E273A80220573C163
 magnet:?xt=urn:btih:77622449AF90ECEDCDA4C5A420E52615C5CB0D8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +261,8 @@ magnet:?xt=urn:btih:77622449AF90ECEDCDA4C5A420E52615C5CB0D8C
 magnet:?xt=urn:btih:E495B2C6EC592340DB485049D02F5C6BC3764462
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +286,8 @@ magnet:?xt=urn:btih:E495B2C6EC592340DB485049D02F5C6BC3764462
 ```bash
 magnet:?xt=urn:btih:44BD28935F6B7E177D1E49D5C86C1E3CC3DD15B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +314,8 @@ magnet:?xt=urn:btih:44BD28935F6B7E177D1E49D5C86C1E3CC3DD15B3
 magnet:?xt=urn:btih:F0A0EA190A7C7134B2FEFDF9B307536B859631FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +339,8 @@ magnet:?xt=urn:btih:F0A0EA190A7C7134B2FEFDF9B307536B859631FA
 ```bash
 magnet:?xt=urn:btih:84A50A5E764683679F61C70C630936C0FF56D1A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +366,8 @@ magnet:?xt=urn:btih:84A50A5E764683679F61C70C630936C0FF56D1A4
 magnet:?xt=urn:btih:0F6D6C2458C39EFE8860D73F124AF401A06196EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +391,8 @@ magnet:?xt=urn:btih:0F6D6C2458C39EFE8860D73F124AF401A06196EA
 ```bash
 magnet:?xt=urn:btih:BACEB3FD31F44D2A807B021811F9C7434795B805
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +418,8 @@ magnet:?xt=urn:btih:BACEB3FD31F44D2A807B021811F9C7434795B805
 magnet:?xt=urn:btih:E13174A89A2EF56801ED67E9B8ED4E94679A2526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +443,8 @@ magnet:?xt=urn:btih:E13174A89A2EF56801ED67E9B8ED4E94679A2526
 ```bash
 magnet:?xt=urn:btih:7D54137205992F9B431B4C929E9F283A5BB1274D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +470,8 @@ magnet:?xt=urn:btih:7D54137205992F9B431B4C929E9F283A5BB1274D
 magnet:?xt=urn:btih:7A870402C610E03D955E200B0F60C9D47991581F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +495,8 @@ magnet:?xt=urn:btih:7A870402C610E03D955E200B0F60C9D47991581F
 ```bash
 magnet:?xt=urn:btih:94D7973C17B0AE5E96CE1A8D374B6A1660D0F7C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +522,8 @@ magnet:?xt=urn:btih:94D7973C17B0AE5E96CE1A8D374B6A1660D0F7C6
 magnet:?xt=urn:btih:DE21ED884A1496DB6C0715322C602B0CB8E70D44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +548,8 @@ magnet:?xt=urn:btih:DE21ED884A1496DB6C0715322C602B0CB8E70D44
 magnet:?xt=urn:btih:7E2025C836CD554520B52F0505F0635F22C49ACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +573,8 @@ magnet:?xt=urn:btih:7E2025C836CD554520B52F0505F0635F22C49ACC
 ```bash
 magnet:?xt=urn:btih:08099BF7C630EF97B06C6507B06AD7D73289BA1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +601,8 @@ magnet:?xt=urn:btih:08099BF7C630EF97B06C6507B06AD7D73289BA1D
 magnet:?xt=urn:btih:05D720730DAB91537151E433FCF2FEE6896FA7C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +626,8 @@ magnet:?xt=urn:btih:05D720730DAB91537151E433FCF2FEE6896FA7C0
 ```bash
 magnet:?xt=urn:btih:5DA4F989408F1F49A60E77CBAFD12C9CB295CF55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +653,8 @@ magnet:?xt=urn:btih:5DA4F989408F1F49A60E77CBAFD12C9CB295CF55
 magnet:?xt=urn:btih:55C8EB6D029BC6F4A6600D7A31FA206B2649A035
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,30 +679,7 @@ magnet:?xt=urn:btih:55C8EB6D029BC6F4A6600D7A31FA206B2649A035
 magnet:?xt=urn:btih:61D6DDCDFDEC1C4B0073AE164945B82FE3950A13
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618996   (968322) от 15.02.2013
-
-Андрей Земляной | Воины Сарда [2013] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый фантастический боевик от автора бестселлера "Драконы Сарда"! Долгожданное продолжение саги о звездных воинах, бросивших вызов галактической империи.
- Бежать из тюрьмы, откуда побег невозможен. Одолеть непобедимых киборгов-убийц. Переиграть имперские спецслужбы, не знавшие поражений уже сотни лет. Возглавить восстание, заведомо обреченное на провал. (   Читать дальше...   )Жанр: Фантастика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:265B57A4158E35BBBA0A3582A3A8481C6BC0E932
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

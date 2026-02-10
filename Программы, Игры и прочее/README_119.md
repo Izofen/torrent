@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3B6853B4DDE821E862CBCA079ED5E9F6168784D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ AirPlay/DLNA Receiver PRO v2.6.9 [En] - мощный приёмник медиа
 ```bash
 magnet:?xt=urn:btih:CC2FA42187A2E43322C69FB690A6243BE4A4BC74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:CC2FA42187A2E43322C69FB690A6243BE4A4BC74
 magnet:?xt=urn:btih:CA2F35DA842A9F63F18120248D04881E03633594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:CA2F35DA842A9F63F18120248D04881E03633594
 ```bash
 magnet:?xt=urn:btih:F994B899611B816E16722C1F3213B686AA8109F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Garmin TopoActive помогает активно проводить время 
 magnet:?xt=urn:btih:EC3E8092A7BD32729C6D3FE3881886905F6E24F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Schematic является простой и удобной в обращени�
 ```bash
 magnet:?xt=urn:btih:BDF0BA4F7F9D98B63001D5897E0A3F9999794640
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Garmin: Basarsoft NavCity Turkey 2015 T1 [En]
 magnet:?xt=urn:btih:1C5CD7400C571362F08D5FE5BB5FB8266B2EAE94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ IELTS® Speaking Pro v4.0 [En]
 ```bash
 magnet:?xt=urn:btih:95D527CEDF5B0E128BC97EDCB695728726E05513
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:95D527CEDF5B0E128BC97EDCB695728726E05513
 magnet:?xt=urn:btih:E03A7A1A14EFB1EBE609AF1BD86C0B0EEC37A5BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Garmin: City Navigator Middle East & Northern Africa NT 2016.10 [En]
 magnet:?xt=urn:btih:82D00BD090D169A570C609379A3E8333C172E13B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:82D00BD090D169A570C609379A3E8333C172E13B
 ```bash
 magnet:?xt=urn:btih:29BBC895EA05ABCDCB681110C012B94528403B8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Garmin: City Navigator East & West Africa NT 2016.10 [En]
 magnet:?xt=urn:btih:0628814619EC0B78DF1FEF91B97119A6426A773D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Garmin: TOPO Norway Experience PRO v3 [No]
 ```bash
 magnet:?xt=urn:btih:A7A3EE9026438E1004C8A5BA8B5A7ED46EEDF602
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:A7A3EE9026438E1004C8A5BA8B5A7ED46EEDF602
 magnet:?xt=urn:btih:C2BF794B2C34D16CE62193477E924E3F05C29D7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Garmin: City Navigator Thailand 2015.10 (Dual + Thai) [En/Th]
 ```bash
 magnet:?xt=urn:btih:E2320CD9E43B6F83A1C1A9443204FE772C724F04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Swamp Attack - защитите свое жилище-хижину от напа
 magnet:?xt=urn:btih:8BA64A3BF2B5B5FFBC2D93E6A0C0B97B1F565FA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Call Of ModernWar:Warfare Duty – Великолепный экшн на наш
 ```bash
 magnet:?xt=urn:btih:9DE5F18A9E145F27C5A755C90536BDE079797CFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Major GUN - шутер-тир от первого лица в котором н�
 magnet:?xt=urn:btih:9269EFA4DB79BE83B6707BD4B6ECFD032DFA7E37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Tasker 4.7u1m [Ru/Multi]
 magnet:?xt=urn:btih:5542A5E179FA5DC026C4DFF9FC9D068C7F1769B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ MIT GEOMATICS LTD представила новый формат карт для
 ```bash
 magnet:?xt=urn:btih:325763D6C9B4D56F558FE439D8E787C5F956C6A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:325763D6C9B4D56F558FE439D8E787C5F956C6A2
 magnet:?xt=urn:btih:EA27194582F542BC60298BC8A55B64D171263CF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ World of Goo - увлекательная аркадная головоломк�
 ```bash
 magnet:?xt=urn:btih:331E2E6AAB444E1B5F74B2BAF8C6E2192D67E6BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Angry Birds 5.1.0 [Ru]
 magnet:?xt=urn:btih:ED82ABD6A69F62D695898BC56FABB307E5917C66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Fotoo — Digital Photo Frame — красивая цифровая фотора
 ```bash
 magnet:?xt=urn:btih:AB3DFAA789833A2F7B2278F40705546C175EE738
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ PowerDVD Mobile является инновационным все в одном
 magnet:?xt=urn:btih:257684E1AB23F6A5CBE9CBF47B8F60A07EFE2CB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Runtastic GPS Бег 5.11 [Ru]
 ```bash
 magnet:?xt=urn:btih:3FB6AA533FC0F3C1BA1340098311D9454CEFF9D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

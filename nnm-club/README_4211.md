@@ -27,6 +27,8 @@ Edge of Sanity - Kur-Nu-Gi-A (2012) [FLAC|Lossless]<Death Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ Edge of Sanity - Kur-Nu-Gi-A (2012) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:B3AA71D339E0E4F6AC66DEF461D094E248AE4925
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -79,6 +83,8 @@ Marc Hartman (Chillson, Marco Moli, Red Chameleon, Solar Music Club, The Soul Cr
 magnet:?xt=urn:btih:965D896451C4A4303C5E49094CDC71437374C6EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:965D896451C4A4303C5E49094CDC71437374C6EF
 ```bash
 magnet:?xt=urn:btih:0C574CF89B8426D341BF0083A39DE35C936BC0CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ magnet:?xt=urn:btih:0C574CF89B8426D341BF0083A39DE35C936BC0CB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:0C574CF89B8426D341BF0083A39DE35C936BC0CB
 ```bash
 magnet:?xt=urn:btih:58B41635F529C8D614C3B39869E5BCFE4AE26235
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:58B41635F529C8D614C3B39869E5BCFE4AE26235
 magnet:?xt=urn:btih:82C9D62F613A2256CA4081AA12EB8FFFB40ABE28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ magnet:?xt=urn:btih:82C9D62F613A2256CA4081AA12EB8FFFB40ABE28
 ```bash
 magnet:?xt=urn:btih:0AC32CEEC74DD52F00CD2D28FF253CDB4DB852D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -234,6 +250,8 @@ Rick Wade - Never Ending Reflections (2011)
 ```bash
 magnet:?xt=urn:btih:8E144C9067ABB37702B297AA763D6B4222EDF52D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +286,8 @@ VA - Русские Новинки Vol.47 from AGR (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:780141333BAE204B8E53658A4EE20C03AD8F2D17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +311,8 @@ magnet:?xt=urn:btih:780141333BAE204B8E53658A4EE20C03AD8F2D17
 ```bash
 magnet:?xt=urn:btih:4CAB89C3637ED4A5FCA3CD1DB8ED1497AABB0F98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +343,8 @@ magnet:?xt=urn:btih:4CAB89C3637ED4A5FCA3CD1DB8ED1497AABB0F98
 magnet:?xt=urn:btih:338DE82BE2755E8FB3F2CA6A2A5C9F9AC1618076
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +371,8 @@ magnet:?xt=urn:btih:338DE82BE2755E8FB3F2CA6A2A5C9F9AC1618076
 magnet:?xt=urn:btih:3677DF9C61DF1DC37EE7D6B215954C6B163FC672
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +396,8 @@ Nero Burning ROM — передовое программное обеспече�
 ```bash
 magnet:?xt=urn:btih:9577A7CA836457E2B2DB08DEDC2CEC53F0386D5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +424,8 @@ magnet:?xt=urn:btih:9577A7CA836457E2B2DB08DEDC2CEC53F0386D5B
 magnet:?xt=urn:btih:211708E70783818EE410503DEDD1C8AF1AF8EA1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +450,8 @@ Windows 8.1 6.3 (Build 9600.20246) (24in2) x86/x64 by Sergei Strelec [Ru]
 ```bash
 magnet:?xt=urn:btih:0BE61C70BB7E07604A28A4B1465EA1DE6B3A409A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +478,8 @@ Carly v48.02 Premium [Ru] - OBD2 car scanner (обновляемая)
 magnet:?xt=urn:btih:B5423306D10A35CFBC7B5F34D404AD1F95777586
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +503,8 @@ magnet:?xt=urn:btih:B5423306D10A35CFBC7B5F34D404AD1F95777586
 ```bash
 magnet:?xt=urn:btih:EA6EDBF750A78BD5539BF05D0E3F3369A0DF29A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +530,8 @@ magnet:?xt=urn:btih:EA6EDBF750A78BD5539BF05D0E3F3369A0DF29A7
 magnet:?xt=urn:btih:9E3C19B9B3A3ED7B5D861B91EA7031883773D88B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +556,8 @@ magnet:?xt=urn:btih:9E3C19B9B3A3ED7B5D861B91EA7031883773D88B
 magnet:?xt=urn:btih:BBCEABB8E7FF412D07212CE1A82D08718D7DE51B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +581,8 @@ magnet:?xt=urn:btih:BBCEABB8E7FF412D07212CE1A82D08718D7DE51B
 ```bash
 magnet:?xt=urn:btih:C012866723714E5752ABFE4CB474C44BE572BB8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +611,8 @@ magnet:?xt=urn:btih:C012866723714E5752ABFE4CB474C44BE572BB8E
 magnet:?xt=urn:btih:556F20E5AAC8899D6483F66AD0F1E9F83DCA1C66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +636,8 @@ magnet:?xt=urn:btih:556F20E5AAC8899D6483F66AD0F1E9F83DCA1C66
 ```bash
 magnet:?xt=urn:btih:06560AAA110AB3AF1D99FC1C5EC03BB901C62960
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +663,8 @@ magnet:?xt=urn:btih:06560AAA110AB3AF1D99FC1C5EC03BB901C62960
 magnet:?xt=urn:btih:03E3CF511259340A4FCF7DD49C261282767B41CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +688,8 @@ magnet:?xt=urn:btih:03E3CF511259340A4FCF7DD49C261282767B41CE
 ```bash
 magnet:?xt=urn:btih:4F52BCDB98D4E14BE2BD59152C2F6A069872B2E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +723,8 @@ VA - Клубные Новинки Vol.67 from AGR (2012) [MP3|320 кб/с]<Club
 ```bash
 magnet:?xt=urn:btih:991E5D0287EA3BB2FB906DABBB6F23392ED80E7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -28,6 +28,8 @@ VA - MAXI. Летний танцевальный Fresh (2012) [MP3|320 кб/с]<
 magnet:?xt=urn:btih:2D3D194DF069309BF1777244108779DC46BBACF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ magnet:?xt=urn:btih:2D3D194DF069309BF1777244108779DC46BBACF3
 ```bash
 magnet:?xt=urn:btih:9F823BF9D3DF6A2515785088740CE4E2D25BD7F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -85,6 +89,8 @@ Royal Thunder - CVI (2012) [MP3|320 кб/с]<Psych Stoner Southern Hard Rock / F
 magnet:?xt=urn:btih:64016AA12097A2A8F5563BB928B3ECF4F5B41DDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -113,6 +119,8 @@ magnet:?xt=urn:btih:64016AA12097A2A8F5563BB928B3ECF4F5B41DDA
 ```bash
 magnet:?xt=urn:btih:C6CD622B9A74E338363E3455BB5DE565A16B6D61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +155,8 @@ magnet:?xt=urn:btih:C6CD622B9A74E338363E3455BB5DE565A16B6D61
 magnet:?xt=urn:btih:3BA30E2F67BE6B7BAAC817ED4C05433847EACF25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +180,8 @@ magnet:?xt=urn:btih:3BA30E2F67BE6B7BAAC817ED4C05433847EACF25
 ```bash
 magnet:?xt=urn:btih:8E119A2CB376DE2807DFD2841C9BADAB944D370E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +207,8 @@ magnet:?xt=urn:btih:8E119A2CB376DE2807DFD2841C9BADAB944D370E
 ```bash
 magnet:?xt=urn:btih:43E6B9662F6C53F86DC3F8F6D6776F1332650B16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +242,8 @@ Carach Angren - Where The Corpses Sink Forever (2012) [FLAC|Lossless]<Symphonic 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +267,8 @@ Carach Angren - Where The Corpses Sink Forever (2012) [FLAC|Lossless]<Symphonic 
 ```bash
 magnet:?xt=urn:btih:05AD6004F64FDCCF43EF108EF6070F2104483AA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +303,8 @@ magnet:?xt=urn:btih:05AD6004F64FDCCF43EF108EF6070F2104483AA5
 magnet:?xt=urn:btih:05460367CB243D90234E1E9E5CDE3D33020AA041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +330,8 @@ Steg the Slug [En] (RePack) 1993 | RG Games (Pilotus)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +355,8 @@ Steg the Slug [En] (RePack) 1993 | RG Games (Pilotus)
 ```bash
 magnet:?xt=urn:btih:3E1B6CF0D2DF4780FE99383CEEC79DC53E45A031
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +382,8 @@ magnet:?xt=urn:btih:3E1B6CF0D2DF4780FE99383CEEC79DC53E45A031
 magnet:?xt=urn:btih:22757CEF058CAA0D22F5C0D6C2695CA114153A89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +407,8 @@ magnet:?xt=urn:btih:22757CEF058CAA0D22F5C0D6C2695CA114153A89
 ```bash
 magnet:?xt=urn:btih:FC95E7E5A4612AFBB0136ED34394670DA8352991
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +434,8 @@ Yendor 2 (сокращенно от Yendorian Tales part 2) - одна из мн
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +459,8 @@ Fire and Ice [En] (RePack) 1994 | RG Games (Pilotus)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Rampart [En] (RePack) 1992 | RG Games (Pilotus)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ Rampart [En] (RePack) 1992 | RG Games (Pilotus)
 ```bash
 magnet:?xt=urn:btih:F5A4D36852E8752DA8248F545898FC1442D88301
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +538,8 @@ Forbes является главным деловым журналом в мир
 magnet:?xt=urn:btih:3CA8EECA50F50B95AF6D6BB37DB74FC537E39A38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +563,8 @@ Eddie Higgins Solo Piano - Standards By Request 1st Day & 2nd Day (2 CD) (2008) 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +590,8 @@ Eddie Higgins Solo Piano - Standards By Request 1st Day & 2nd Day (2 CD) (2008) 
 magnet:?xt=urn:btih:2F979CB1F42C7FA37574ED70A032B4B376C2CD8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +615,8 @@ VA - Инструментальная музыка (2012) vol. № 52 [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:7A6D3053025617FAF24BAC7CD616E25A09354D27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +642,8 @@ magnet:?xt=urn:btih:7A6D3053025617FAF24BAC7CD616E25A09354D27
 magnet:?xt=urn:btih:E93E5F5221883E418B9C92A8A511923A7B6A6AE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +668,8 @@ magnet:?xt=urn:btih:E93E5F5221883E418B9C92A8A511923A7B6A6AE5
 ```bash
 magnet:?xt=urn:btih:4F95761AEC150B0A96A8624D7FDBBE97797A573B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +704,8 @@ VA - Tribute in Bossa To The Beatles (2010) [FLAC|Lossless]<Pop, Bossa>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -679,6 +729,8 @@ VA - Tribute in Bossa To The Beatles (2010) [FLAC|Lossless]<Pop, Bossa>
 ```bash
 magnet:?xt=urn:btih:22707BC8180157089A5EAC8BAB3FE994D478CFCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Lacey -  простой инструмент для поиска и скачив
 magnet:?xt=urn:btih:EEC3546CB997AB54B32DB9756856A4A20D987C04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:20B31E62FD74689D4A970EE592430B9BB6FB59E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Chromium-Gost — это модификация стандартного бра�
 magnet:?xt=urn:btih:EB3A87E569A02FE22956CC258987134944B2D58A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Attribute Changer - простенькая утилита для удобног�
 ```bash
 magnet:?xt=urn:btih:D0D647EDC4B14E44E8FD355E8E6437E238C8AC4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:8B554BDA99AFBAEEB8865680E8B00AF7E38B2F71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:78A6AEA945D875AF31B8B13991CF9C8D8BCCFC85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Malware Hunter - отмеченный наградами продукт, кот�
 magnet:?xt=urn:btih:B7CC8E92B71720A8CCEEF97332D66845A0F40BA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:5A9026257C8FF0D39CC0120FEFD0803F6F0C7201
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Sumatra PDF — мощная, небольшая программа с прос�
 magnet:?xt=urn:btih:3E172135126894E9A08634586835E22F9417D200
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Universal USB Installer – портативная программа для с�
 ```bash
 magnet:?xt=urn:btih:8866FDB9DEA99A955C6BAE8B5D35F7756B41CC97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Clipboard Master — удобный и всеобъемлющий инструм
 magnet:?xt=urn:btih:7FFE7713B3BBD9F8D8CC6A6DC2AAFEB08088CC04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Floorp Browser – это модифицированная версия Firefox,
 ```bash
 magnet:?xt=urn:btih:15B048020BB68B7AD4E4E6C975DB41E75FB0703A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ RAM Saver Pro - инструмент для профессионального �
 magnet:?xt=urn:btih:18B61E6E50C464C21786FC352CE3BCABB594DD25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 ```bash
 magnet:?xt=urn:btih:DF84D09E3313E5CBE283F0DCCDD9C7691D37BDF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Download Master эффективно решает 3 главных пробле�
 magnet:?xt=urn:btih:03EA28CD390AF3D8082F81D802F533FF39E248D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:76DA4B726A0EF273065EF2C0D561D2451095BC12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Kerio Control — это комплексное решение в области
 magnet:?xt=urn:btih:DED17D6B96C841E2F07FC6E965B84AD5B895A374
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:EC546C7D1A6B2B7A45B335B984B8880DF3F1FB23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Antivirus Removal Tool - портативный набор официальны�
 magnet:?xt=urn:btih:1B7AD2C6C4D55AC415B203DDDD58BA8B8F284536
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ uTorrent Pro 3.6.0 Build 47008 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:8886E4F580B040BA1D3955B42FB15D3F1D74599B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Reg Organizer® - это многофункциональная программ
 magnet:?xt=urn:btih:F369AC7B8148BCB40E29A1E4596FC2407A590B42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Visual Studio 2022 Professional представляет собой универ
 ```bash
 magnet:?xt=urn:btih:FCE0C7F5A208796EC89B4AB5B22499C843DDB0CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ KeePass Password Safe - удобный менеджер паролей. Хран
 magnet:?xt=urn:btih:7754097F7CB69877F9E38E932E112310C9C75AA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Windows 10 Debloater – небольшая утилита для тонкой �
 ```bash
 magnet:?xt=urn:btih:BAEF8A25783A56BD9D1ABB806724A83C039D2533
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ Psiphon - это новый инструмент обхода интернет-�
 magnet:?xt=urn:btih:E7DD51E6DAC084B85A14B7C3E87389F65CBC40F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ uTorrent Pack 1.2.3.82 Repack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:592CA0820C316EE837D7CCA6FFF1DDE9A254351C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

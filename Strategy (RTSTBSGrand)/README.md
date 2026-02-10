@@ -20,6 +20,8 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack seleZen
 magnet:?xt=urn:btih:B7CC51921A22CC597FDC218B31DC603DA26A0519
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack FitGirl [Ultimate Bundle]
 ```bash
 magnet:?xt=urn:btih:16BE895C1B4B183D161658409C884B0866854D03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack Pioneer [Steam Edition]
 magnet:?xt=urn:btih:17F62672111E6BDB4EB9723EF53A90F89120529A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack Other s [Ultimate Bundle]
 ```bash
 magnet:?xt=urn:btih:DA707B903BEDCC2DCF2D793AF88D36A59AD3F21F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Ara: History Untold - это эволюция жанра глобальной и
 magnet:?xt=urn:btih:D25017218BBDF6ADF8A69D17FD936C312527B438
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:D25017218BBDF6ADF8A69D17FD936C312527B438
 ```bash
 magnet:?xt=urn:btih:807F26909559CFD247EFCD5EC95944F330149696
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Northgard (2018) [Ru/Multi] (3.7.56.42549/dlc) Repack Let'sРlay [The Viking Age
 magnet:?xt=urn:btih:A2330DC8A708F1A43ABB2261F485B2810EFC120B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:4764EFBC5FC882C922213FE4CCDD9491298680DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Steel Division 2 (2019) [Ru/Multi] (165547/dlc) Repack seleZen [Total Conflict E
 magnet:?xt=urn:btih:C7D77D4931D1E1488875E8143F8B7CA500BA3E21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Wingspan - стратегическая карточная игра про пт�
 ```bash
 magnet:?xt=urn:btih:6B7F2B7B9CCB5695A471D2BD648BF49D4D58CA14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ WARNO (2024) [Ru/Multi] (166262/dlc) License GOG
 magnet:?xt=urn:btih:55F38BEF20E5D2B3600A03E225B4A713FCCC6049
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Songs of Silence погружает игроков в фантастически
 ```bash
 magnet:?xt=urn:btih:E701B6C0CE92F0AEBFBB2849CCAEAD32A9BE97B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Steel Division 2 (2019) [Ru/Multi] (165547/dlc) Repack FitGirl [Total Conflict E
 magnet:?xt=urn:btih:A8D28CB7C6D48828840262318743A7CCAE5BB1DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Crusader Kings 3 - глобальная стратегия, значительн
 ```bash
 magnet:?xt=urn:btih:FFF26D05B9A09AD57B26687542C0653A53B1C4F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Crusader Kings 3 - глобальная стратегия, значительн
 magnet:?xt=urn:btih:7340AD817FF7D9D85E64A6C175E3E4E80AA9C711
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Hearts of Iron 4 (IV) – отличный военный симулятор, в
 ```bash
 magnet:?xt=urn:btih:8DA5F2FA62E66EFFBD28E59F8A37D3E0550D8994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Steel Division 2 (2019) [Ru/Multi] (166508/dlc) License GOG [Total Conflict Edit
 magnet:?xt=urn:btih:A1B1E811565DB88BEC5D1392FDD26668039DF76D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ AI War 2 (2019) [En] (5.714/dlc) License GOG [Titan Edition]
 ```bash
 magnet:?xt=urn:btih:CDB1B194FB626D9BEB8A64B6317F60B9AA81B20C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Crusader Kings 3 - глобальная стратегия, значительн
 magnet:?xt=urn:btih:A67B0C6C7DB1FB27A29F85C0573D8FEB40038C3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Crusader Kings 3 - глобальная стратегия, значительн
 ```bash
 magnet:?xt=urn:btih:0648A64174BC8E3D6681AFA5B344BC4A36DF4366
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Crusader Kings 3 - глобальная стратегия, значительн
 magnet:?xt=urn:btih:44625DF213E09A54CD68F791CDB1CA4DA1A95346
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Steel Division 2 (2019) [Ru/Multi] (165547/dlc) Repack Let'sРlay [Total Conflic
 ```bash
 magnet:?xt=urn:btih:0AE8B1F34A59EA0400C6CB0312F992FA01EC5B00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Terraforming Mars – официальная адаптация популярн
 magnet:?xt=urn:btih:3DD4BE8454DCCE0C74A304A7BC40E2BACDA41619
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Northgard (2018) [Ru/Multi] (3.7.30.42250/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:FA9E233A35B69527807F30918A201C9A099CBCC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Galaxy Trucker (2019) [Ru/Multi] (3.6.908/dlc) License GOG [Extended Edition]
 magnet:?xt=urn:btih:218E1D11A05A9DF903519D93B6FC7F3F3B961BD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Emperor of the Fading Suns – это глобальная пошаговая с
 ```bash
 magnet:?xt=urn:btih:079C0852C84086A0D07969E7CEF2AA7767AD5B5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

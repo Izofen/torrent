@@ -19,6 +19,8 @@ BBC: Величайшие явления природы / Nature's Great Events 
 magnet:?xt=urn:btih:E48084B2857045ECB51617B83E286CC2BC3250B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:E48084B2857045ECB51617B83E286CC2BC3250B4
 ```bash
 magnet:?xt=urn:btih:247A443495A6714297DF4645C0EAB29E2F734BA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Microsoft Office 2021 for Mac LTSC v.16.83 VL [Multi/Ru]
 magnet:?xt=urn:btih:4E93A226A12B31AE75F970A57956E3D1DB891965
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:4E93A226A12B31AE75F970A57956E3D1DB891965
 ```bash
 magnet:?xt=urn:btih:09419598FE3766959DB67F5B0778FB816A102E2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:09419598FE3766959DB67F5B0778FB816A102E2B
 magnet:?xt=urn:btih:3D84B68B63E489E2E300B8EED711D6A7477B3702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ XCOM 2: Long War of the Chosen (2021) [Ru/Multi] (1.1.0 HF3) Repack/Mod firstlas
 magnet:?xt=urn:btih:78C4AEA3E80F816161182524007D689737BE499F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:78C4AEA3E80F816161182524007D689737BE499F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Northgard — стратегия, вдохновленная скандинав�
 magnet:?xt=urn:btih:187EA0D890255E401BF1D61EB37421A065E0B680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Slurm (Слёрм), Павел Калашников | Linux для разраб�
 ```bash
 magnet:?xt=urn:btih:149A3733BF8B51660A00FF67D37FE4D228312E19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Creative Shrimp, Gleb Alexandrov | Cinematic Lighting in Blender (2022) PCRec [E
 magnet:?xt=urn:btih:C86E8B47DAB54A79BF4412A4EB999E3C0196FC92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:C86E8B47DAB54A79BF4412A4EB999E3C0196FC92
 ```bash
 magnet:?xt=urn:btih:2B58BC1A006A52A6F9DAD52E620A23BE5A330BBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ Windows 10 x64 Rus by OneSmiLe [19045.4170]
 magnet:?xt=urn:btih:E19A3F2BEA7E79C63F37F796FDAEAA4E9989D633
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:E19A3F2BEA7E79C63F37F796FDAEAA4E9989D633
 ```bash
 magnet:?xt=urn:btih:820F5608CABE63FBD9EE92626B5650E731B20B17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:820F5608CABE63FBD9EE92626B5650E731B20B17
 magnet:?xt=urn:btih:10C94BA1A8A5753D599165126CBEB8DB13137480
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:10C94BA1A8A5753D599165126CBEB8DB13137480
 ```bash
 magnet:?xt=urn:btih:8E2512AD7AA7E3CC1FFF4066BFB7F71E9CE405A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ Windows 11 x64 Rus by OneSmiLe [22631.3296]
 magnet:?xt=urn:btih:30FD483B6BD8ABEF580F94AFB30A72A173146ABC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:30FD483B6BD8ABEF580F94AFB30A72A173146ABC
 ```bash
 magnet:?xt=urn:btih:9721DB6DE4D4195BAB500AB0DE185F8416915E5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7.iso
 magnet:?xt=urn:btih:1505C8AEB6EFBEFCA786D6DFA6D01D208170EAAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ Zorin OS - дистрибутив на базе Ubuntu, разработанны
 magnet:?xt=urn:btih:0C2CA39652C5710D8E979D4C7E4B3988FF5786AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:A1514058A5D68AF892C38B020D6F46C8B2E9EBBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ magnet:?xt=urn:btih:A1514058A5D68AF892C38B020D6F46C8B2E9EBBE
 magnet:?xt=urn:btih:34A9B21FA79C7DB4460B8644127E451BF3E0164A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:34A9B21FA79C7DB4460B8644127E451BF3E0164A
 ```bash
 magnet:?xt=urn:btih:9707CE4A38A67D0061185D9C64EF46679ACE8F8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ VA - А любовь жива (1980) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
 magnet:?xt=urn:btih:2EBC25FE439715ECCCBDF461F3A7B6D610E0486A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:8E7144703ECBDBD5C5FC557AC79B217D15DD7D0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ Cutting Crew - All For You - The Virgin Years 1986-1992 (2024) 3xCD, Compilation
 magnet:?xt=urn:btih:CC3FA745E897B3DC39B6B84395A29B34E59310F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ The Beatles - Magical Mystery Tour, Yellow Submarine (Волшебное таи�
 ```bash
 magnet:?xt=urn:btih:96C5536862A076106547220FC45BFBE996D92805
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Transmute - менеджер закладок и их синхронизации
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ S.V.A.L.K.E.R. Бесславные придурки (4 серии из 4) (2009
 ```bash
 magnet:?xt=urn:btih:E6680A120971681C5315830435A5BFA04D4D2D4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Warlock: Master of the Arcane - новая стратегическая игра
 magnet:?xt=urn:btih:F05E32058203A35434B67DD4627159B16864D8D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:F05E32058203A35434B67DD4627159B16864D8D5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Warlock: Master of the Arcane - новая стратегическая игра
 magnet:?xt=urn:btih:EF765DD14629B7601ED15FAA6A1F100D492AC1F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:EF765DD14629B7601ED15FAA6A1F100D492AC1F4
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:EF765DD14629B7601ED15FAA6A1F100D492AC1F4
 magnet:?xt=urn:btih:7DE79E595CFF0B0033D1DFB5F660D45AE486ECED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:7DE79E595CFF0B0033D1DFB5F660D45AE486ECED
 ```bash
 magnet:?xt=urn:btih:4A2257B642B29FA018F6D35D396DB36596F7B922
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ VA - A State Of Trance Radio Top 20 May (2012)
 magnet:?xt=urn:btih:6CD8C277F645AEFEDECCDE909BA3660B1F0BC5F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:6CD8C277F645AEFEDECCDE909BA3660B1F0BC5F7
 ```bash
 magnet:?xt=urn:btih:C71FEE80AC04A8FEAF416180CE4C30138E5D4280
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +300,8 @@ VA - Exploration Of Dreams (2012) [MP3|320 кб/с]<Psychedelic / Full On>
 magnet:?xt=urn:btih:41469C280A603B5FACAFF48264C0E34E5382958C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +327,8 @@ magnet:?xt=urn:btih:41469C280A603B5FACAFF48264C0E34E5382958C
 magnet:?xt=urn:btih:7D6E1F1BCB6565A02B3A3AA6B7975A6445BA9161
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:7D6E1F1BCB6565A02B3A3AA6B7975A6445BA9161
 ```bash
 magnet:?xt=urn:btih:302C6DDDD7623FD80A5A43077D1BBAC939AEEBBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +386,8 @@ VA - Zero Point Energy (2012) [MP3|320 кб/с]<Psychedelic / Dark Progressive, 
 ```bash
 magnet:?xt=urn:btih:C2A649A08DA1FC08D9F2A977D8F2480EDCD522EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +422,8 @@ VA - Молодежный Хит from AGR (2012) [MP3|320 кб/с]<Pop, Club, Da
 magnet:?xt=urn:btih:D1D7F3219AAD7E454F2DB0DAA4BC3E1D284BAFF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +451,8 @@ magnet:?xt=urn:btih:D1D7F3219AAD7E454F2DB0DAA4BC3E1D284BAFF4
 ```bash
 magnet:?xt=urn:btih:C3E0AE79B3F9138EB376EC972119302FF811BF2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +484,8 @@ Bong-Ra - Monolith LP (PRSPCTRVLT01, 2012) [MP3|320 кб/с]<Drum'n'Bass, Darkst
 ```bash
 magnet:?xt=urn:btih:8BEB5A20770FE5DB4C092670FCB530C8131B1DDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +520,8 @@ VA - Kiss From A Rose vol.1-2 (2009) [MP3|192 kbps]<Gothic Rock, Metal>
 magnet:?xt=urn:btih:B7ABC86C150A2BED40EB3D96566933903207519C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +545,8 @@ magnet:?xt=urn:btih:B7ABC86C150A2BED40EB3D96566933903207519C
 ```bash
 magnet:?xt=urn:btih:3FA13C493B775DD3B42E2A5529F196A22D504DF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +572,8 @@ magnet:?xt=urn:btih:3FA13C493B775DD3B42E2A5529F196A22D504DF4
 magnet:?xt=urn:btih:4BCA31CE680C3A5578394E0C8BADBA53B1D81DF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +598,8 @@ VA - Massiv Satisfaction (2011) [MP3|320 кб/с]<Euro Dance, Pop Dance>
 ```bash
 magnet:?xt=urn:btih:5ACA6430A918DA288B0AB7E4315C08472AD1DD2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +633,8 @@ Radioactive Project - Fullon Fever (2012) [MP3|320 кб/с]<Psychedelic / Full O
 magnet:?xt=urn:btih:A0C37BA91E5DC2B73BFA64B8ED39922934F701C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +665,8 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:F486875F7504E929F4E490FC90E0965F1B1D74C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +701,8 @@ VA - Vocal Trance Volume 30 (09.05.2012) [MP3|320 кб/с]<Vocal Trance>
 magnet:?xt=urn:btih:EA70F07B731682EF40FEBE243C3EC35BDBE7F2A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,6 +726,8 @@ magnet:?xt=urn:btih:EA70F07B731682EF40FEBE243C3EC35BDBE7F2A5
 ```bash
 magnet:?xt=urn:btih:5B3652923D8966BE0785F158658E9230B2B1EEC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -704,6 +754,8 @@ magnet:?xt=urn:btih:5B3652923D8966BE0785F158658E9230B2B1EEC5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

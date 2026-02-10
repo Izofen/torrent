@@ -21,6 +21,8 @@ VLC Media Player - Представляет собой мощный медиац
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ WordHane сочетает в себе словесные игры в угада�
 ```bash
 magnet:?xt=urn:btih:C1371FEC6814AADB5E1531BBB33848E27D7FC4E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:C1371FEC6814AADB5E1531BBB33848E27D7FC4E6
 ```bash
 magnet:?xt=urn:btih:E656B1EEFC7E081D09041320AEC377CDB612C960
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Black Sabbitch - Unrest In The West (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard-R
 magnet:?xt=urn:btih:65D5E1D3114F8E37A7912C08C6B45A6F00AC3DD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Hyperspeed: Alien Combat and Role-Playing Adventure (RePack) [En] 1991 | RG game
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Hyperspeed: Alien Combat and Role-Playing Adventure (RePack) [En] 1991 | RG game
 ```bash
 magnet:?xt=urn:btih:7B2F3ADD6296D1CE20D52399310111E8987462F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Garrison - The Final Chapter (2025) [FLAC|Lossless|tracks] <AOR, Arena Rock>
 magnet:?xt=urn:btih:A9B953906BF51526E7184105CCCF42018D6F4B1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ The Beatles - Anthology Collection (2025) 8CD Boxset [FLAC|Lossless|tracks + .cu
 magnet:?xt=urn:btih:49D0FA3144560C63EBF90CF4C8853314E2218720
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ Christmas Stickers Pack — это веселая и очаровательна�
 ```bash
 magnet:?xt=urn:btih:903F2AF4B4131D33981CE0408478EA6FB3F1CC2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:903F2AF4B4131D33981CE0408478EA6FB3F1CC2C
 magnet:?xt=urn:btih:8F027C6060F5C93D6B0B87063473E0F5462E62D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:8F027C6060F5C93D6B0B87063473E0F5462E62D4
 magnet:?xt=urn:btih:97B2C9BD9934CFFEE1D64946C20FAFFB719F86B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:97B2C9BD9934CFFEE1D64946C20FAFFB719F86B5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ Disc 1:
 magnet:?xt=urn:btih:351C18110105A8C1A7E6E4672D37370629F5F4A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:351C18110105A8C1A7E6E4672D37370629F5F4A2
 ```bash
 magnet:?xt=urn:btih:EF395545CA727357E311DB10E69EB4C0DB32BFD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:EF395545CA727357E311DB10E69EB4C0DB32BFD3
 magnet:?xt=urn:btih:8BF4EDB52FA1E7A1AE589328944416D077CAD5C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:8BF4EDB52FA1E7A1AE589328944416D077CAD5C4
 ```bash
 magnet:?xt=urn:btih:D14610A483C984A6B802C98D493E4DE5222F213D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ WinCatalog - это простая в использовании програм�
 magnet:?xt=urn:btih:26893AC47963232EB7F7D64EB49D4EC2CDE3C19A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:26893AC47963232EB7F7D64EB49D4EC2CDE3C19A
 ```bash
 magnet:?xt=urn:btih:F3918F434061D529C8C3EF0FFB870DC4639D699E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ Taskito - это приложение для управления задачам
 magnet:?xt=urn:btih:30973FBE2BBBD649359DA2E3BDADDAE8646430F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:30973FBE2BBBD649359DA2E3BDADDAE8646430F5
 ```bash
 magnet:?xt=urn:btih:13BD2DAC3ABA4020643DBE0920800F984E5F68C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +564,8 @@ VA - Maxi. Mega Italo Disco (2012) [MP3|320 kbps]<Dance|Pop|Disco>
 magnet:?xt=urn:btih:36A56706A0DEED7364CEE3EEF0A79CB99F89A879
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:36A56706A0DEED7364CEE3EEF0A79CB99F89A879
 ```bash
 magnet:?xt=urn:btih:543987924CDA889121F58A0ACE8370291641196C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +618,8 @@ magnet:?xt=urn:btih:543987924CDA889121F58A0ACE8370291641196C
 ```bash
 magnet:?xt=urn:btih:5B210AFE7A22C5B43096976B996AF099AB0D5C09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ Trilogy Soldiers - Ноосфера (2012) [MP3|320 кб/с]<Hip-Hop>
 magnet:?xt=urn:btih:A9BD8F25AC6F109EF6EE33CCD20E4FA7D63B907F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +680,8 @@ magnet:?xt=urn:btih:A9BD8F25AC6F109EF6EE33CCD20E4FA7D63B907F
 magnet:?xt=urn:btih:46CC15F7FA895606F38354D2C19CEFF2408E9891
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ N/A2007-2012Жанр: House, Progressive HouseПродолжительность
 ```bash
 magnet:?xt=urn:btih:B9BBA0B00FE0127B857B2DA1005D0BB83AB29F68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

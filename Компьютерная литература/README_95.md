@@ -19,6 +19,8 @@ Mastering AutoCAD 2017 and AutoCAD LT 2017 является главным ру�
 magnet:?xt=urn:btih:6D27E7AC26BBCB01484F89048641CCE9C69842A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:6D27E7AC26BBCB01484F89048641CCE9C69842A7
 ```bash
 magnet:?xt=urn:btih:F9219E43398C6AF3D32320EA4C815D7173D96A0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:F9219E43398C6AF3D32320EA4C815D7173D96A0C
 magnet:?xt=urn:btih:749552F8AF60C5F7F5576598A8DAC2A524EB0164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:749552F8AF60C5F7F5576598A8DAC2A524EB0164
 ```bash
 magnet:?xt=urn:btih:5E041765A4B057A3003B06B144F8A98EC6276C98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Express является золотой (   Читать дальше...   )Ж�
 magnet:?xt=urn:btih:398B08008757C886A6728BC51417D62ADDED251A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ A.M. Елизаров и др. | Веб-технологии для матема
 magnet:?xt=urn:btih:6295BDD716AED7ACF904C7AF37858792E422B4D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Sam Newman | Monolith to Microservices: Evolutionary Patterns to Transform Your 
 ```bash
 magnet:?xt=urn:btih:9A953B8DE6C8F4137723269488833A3110B801CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:9A953B8DE6C8F4137723269488833A3110B801CE
 ```bash
 magnet:?xt=urn:btih:70A345C85E2966690872DA3DE411D16213EBBF28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:70A345C85E2966690872DA3DE411D16213EBBF28
 magnet:?xt=urn:btih:8780381980C7427CB5B47C6F6E356CB100A7751C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:8780381980C7427CB5B47C6F6E356CB100A7751C
 ```bash
 magnet:?xt=urn:btih:392D81F0FD97237264E8E9FA23AEC86EFD7ACF34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:392D81F0FD97237264E8E9FA23AEC86EFD7ACF34
 magnet:?xt=urn:btih:95BD401F5C8EB99694F845177C43C02B65FA654A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:95BD401F5C8EB99694F845177C43C02B65FA654A
 ```bash
 magnet:?xt=urn:btih:66B8EFE6C047F9CB838281BE2858B23970F5DE41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:66B8EFE6C047F9CB838281BE2858B23970F5DE41
 magnet:?xt=urn:btih:424A4988DDDBD528A960D11857774AD71BFC66EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ The Python Data Science Handbook дает понимание широких во
 ```bash
 magnet:?xt=urn:btih:D91BD42457FD774E5C0A7B42C404E723B7B2FDC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Pro HTML5 with CSS, JavaScript, and Multimedia учит основам сцен�
 ```bash
 magnet:?xt=urn:btih:C348498B11D1EFF8D3D031499D6D2EA935BE824F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ ng-book 2. Углубленная, полная и обновленная кни
 magnet:?xt=urn:btih:AEEF0162653142FD865C6519C986A32170799961
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:AEEF0162653142FD865C6519C986A32170799961
 ```bash
 magnet:?xt=urn:btih:F6DE23441145E28DD32F430DC3A1E1E66CFA4E04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:F6DE23441145E28DD32F430DC3A1E1E66CFA4E04
 magnet:?xt=urn:btih:3F8CF006BA50EA3F58C3288C39C911E7FCB3CB39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:3F8CF006BA50EA3F58C3288C39C911E7FCB3CB39
 magnet:?xt=urn:btih:36DE1A953A5F2D26392EDB9F12AE1A0B0C9876F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:36DE1A953A5F2D26392EDB9F12AE1A0B0C9876F3
 ```bash
 magnet:?xt=urn:btih:385AB654BEE0566E0C226BA70B6E8D32746B90FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:385AB654BEE0566E0C226BA70B6E8D32746B90FC
 magnet:?xt=urn:btih:2697ACB3F1E786E9DC535A2F99BD70477169FDF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:2697ACB3F1E786E9DC535A2F99BD70477169FDF4
 magnet:?xt=urn:btih:1044240A7926DE7E10EC592D83D11E9758BC2221
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:1044240A7926DE7E10EC592D83D11E9758BC2221
 ```bash
 magnet:?xt=urn:btih:5A531B96597260ECADCD9F4D5FC10A2957001906
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ EEVEE - это PBR-рендер (Physically Based Rendering) в реальном
 magnet:?xt=urn:btih:26F5C27374BB8347C5CCB30F729C00F5F66AD81C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ Cycles — это движок рендеринга, который впервы
 magnet:?xt=urn:btih:3C96205C693FA789951C24D41EC2542E87AED80A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:3C96205C693FA789951C24D41EC2542E87AED80A
 ```bash
 magnet:?xt=urn:btih:A1B689003A970C4A05F54ACD63C06D7FB6E55FAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

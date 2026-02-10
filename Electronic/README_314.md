@@ -22,6 +22,8 @@ VA - Ibiza Morning Chill Vibes (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 magnet:?xt=urn:btih:33A67C7E7143C950DD463F26997EDC9252518540
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Midnight Lounge Vol.39 Samba De Verao (2017) [MP3|320 Kbps] <Downtempo, Chi
 ```bash
 magnet:?xt=urn:btih:D47107669CFEBDFF64EF9FD9FE253257E7561E92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Get On Your Surfboard: Summer (2017) [MP3|320 Kbps] <Progressive, Electro, 
 magnet:?xt=urn:btih:CE74F432EDE81C235699E2E4837C1CC1BE210E51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Swedish House Mafia - Paradise Again (2022) [MP3|320 Kbps] <Bass House, Disco Ho
 ```bash
 magnet:?xt=urn:btih:A4E4B115E0644D7534A52C7C21AAA42F8C2DF0AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Beautiful Lounge Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge
 magnet:?xt=urn:btih:CB3BFE0C75144EDD4BAFF2E896FC55F026A7AE04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Swedish House Mafia - Paradise Again (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, 
 ```bash
 magnet:?xt=urn:btih:4A66DA5DE1B5926F236DF38E9D081834A025CB92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Chillout Spring Gems 2022: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:3DC737B4501B86FB899C881FA2560FC4A603702A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ Compilerbau - Discography (2000-2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, 
 ```bash
 magnet:?xt=urn:btih:36F39A1C347878DC1439746D85089C5FD89A0217
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ Hocico - HyperViolent (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, El
 magnet:?xt=urn:btih:A579CAF18AC44F788631C830C2DD9ED871192B25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ VA - Special Treats Of Chill & Deep House (2015) [MP3|320 кб/с]<Downtempo, Ch
 magnet:?xt=urn:btih:F3810275496479EC9029DE0CCF3C8A4CF91C521E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +306,8 @@ VA - Chillout King Ibiza (Club Del Mar) (2015) [MP3|320 кб/с]<Downtempo, Chil
 ```bash
 magnet:?xt=urn:btih:78C2F4473448D54A7A30EB9A0582868ECE8A1569
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +336,8 @@ Stimulus Timbre - Life's Most Wonderful Place (2015) [MP3|320 кб/с]<Chillout,
 magnet:?xt=urn:btih:6B24BC2A45DB0FEBA17367A91F365C06C3425288
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +364,8 @@ DJ Smash - Twenty Three (Special Burger King Edition) (2011) Special Edition [FL
 ```bash
 magnet:?xt=urn:btih:0FEEFE82D4A614AB7DE66823DCF0FFD30ECEB602
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +394,8 @@ The Chemical Brothers - No Geography (2019) [FLAC|Lossless|tracks + .cue] <Elect
 magnet:?xt=urn:btih:3B860A0E08D86CC2AA3609D0A3996877F806296C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +422,8 @@ VA - Be Free 5 Years (2018) Be Free Recordings [FLAC|Lossless|WEB-DL|tracks] <De
 ```bash
 magnet:?xt=urn:btih:7235ACE3404DBFA835C339CE54D8BE8372263041
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +452,8 @@ Pushkin - Sertra Line (2019) [FLAC|Lossless|tracks + .cue] <Electronic, IDM, Tec
 magnet:?xt=urn:btih:E3621B8D112217FB03C89A3129533D030726E8CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +480,8 @@ VA - Amsterdam Trance Sessions Vol. 5 (2016) [MP3|320 Kbps] <Trance, Uplifting T
 ```bash
 magnet:?xt=urn:btih:F247EF78257DC98337DC4CE00A009E2EC528727B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +513,8 @@ VA - Best Of Deep House (50 Most Wanted) (2012) [MP3|320 кб/с]<House>
 magnet:?xt=urn:btih:827F4F92EFC364A8329F854675843399CEA2C5A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +541,8 @@ Interference Of Frequencies - The Orphic Continuum (2016) [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:CEB448BE96E1CF5105705DE40A43C78C4EB498D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +571,8 @@ Tish - Shadows EP (08-07-2012) [MP3|320 кб/с]<Tech House>
 magnet:?xt=urn:btih:A3058FE76BC99F3A1C685C2E893DF45ACFFBC93B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +599,8 @@ Steve Gibbs - Adrift (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Class
 ```bash
 magnet:?xt=urn:btih:F74DE6FDAB5FF639537AD1818D0465318B522CA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +629,8 @@ Singles:(   Читать дальше...   )Жанр: EBM, IndustrialПродо�
 magnet:?xt=urn:btih:9D556A870B5E08F40AAF63C466E85E3BC76166A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +657,8 @@ The Crystal Method - The Trip Out (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Breakbe
 ```bash
 magnet:?xt=urn:btih:AD0AFDD75A7478EE406603EA4C458F5C3C6F60B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +687,8 @@ Paris France Transit - Paris France Transit (1982) Unofficial Release, 1996, Qui
 magnet:?xt=urn:btih:2D743AB196FCB4EE1CC802A6C55BA07694FBE7C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +716,8 @@ VA - Pure Synthwave Vol. 1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retr
 magnet:?xt=urn:btih:FD7D0451D7164EDF6AE67512AB0F14FB90421C26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ Nango Manchay - Under Our Sun (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Do
 ```bash
 magnet:?xt=urn:btih:0F2755EAAF99D3F358F55183B6F97E9E8526B6F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

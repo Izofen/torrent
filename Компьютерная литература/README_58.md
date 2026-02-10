@@ -19,6 +19,8 @@ Matthijs Hollemans / Мэттис Холлеманс| The iOS Apprentice (5th ed
 magnet:?xt=urn:btih:42663028C35763C4264E33591E0697347647B85E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Java-программистам необходим фреймворк Spring. Э
 ```bash
 magnet:?xt=urn:btih:8020D984E9E87E02B264F23AA64B10606BF07F5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:8020D984E9E87E02B264F23AA64B10606BF07F5F
 magnet:?xt=urn:btih:9A3D7F8A772D114B85D8B7EAF0A22538264AE4C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:9A3D7F8A772D114B85D8B7EAF0A22538264AE4C2
 ```bash
 magnet:?xt=urn:btih:3D74CD19B0DCB59B19C2FAE1AA30846D689512A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:3D74CD19B0DCB59B19C2FAE1AA30846D689512A4
 magnet:?xt=urn:btih:75E32623B5276B9452925CF350C5308D3D9D53CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:75E32623B5276B9452925CF350C5308D3D9D53CB
 magnet:?xt=urn:btih:F8D3752DDBA4EDE6E31F4C0142048454E9476B93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:F8D3752DDBA4EDE6E31F4C0142048454E9476B93
 magnet:?xt=urn:btih:D28540FCAE24D2C1C990C8CE06BF97B23774D7C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:D28540FCAE24D2C1C990C8CE06BF97B23774D7C6
 ```bash
 magnet:?xt=urn:btih:2CE7E56F820581F8B245042298C79212B203F04D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Blender - это бесплатная графическая программа 
 magnet:?xt=urn:btih:F11A0902ED3F3BEB1905F58D7A4489D7FF08C4A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:F11A0902ED3F3BEB1905F58D7A4489D7FF08C4A9
 ```bash
 magnet:?xt=urn:btih:03413FA6CC85869E8C1F3AFCD5268BAEF7F56CA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:03413FA6CC85869E8C1F3AFCD5268BAEF7F56CA8
 ```bash
 magnet:?xt=urn:btih:7DAC97A0DE370143042E255B5B8E1B841439DED5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ ASP.NET MVC 4 framework(   Читать дальше...   )Формат: PDF
 magnet:?xt=urn:btih:222FD2D122CE736D33BE8EF812264D9DA7008A7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:222FD2D122CE736D33BE8EF812264D9DA7008A7D
 magnet:?xt=urn:btih:6E3639E74ADD5E4E2AA33D60BBFA511FCB2ADFCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ HTML, CSS и JavaScript в простых шагах инструктируют 
 magnet:?xt=urn:btih:C3F4CAFC5DE72FF7285FE52B161539510EFCE667
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:C3F4CAFC5DE72FF7285FE52B161539510EFCE667
 ```bash
 magnet:?xt=urn:btih:240736556ACE4ACDF23CFFDD26DA6A5D861A8D2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:240736556ACE4ACDF23CFFDD26DA6A5D861A8D2B
 magnet:?xt=urn:btih:2402E85EC47E4438FF6C124073745D33CB8996FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:2402E85EC47E4438FF6C124073745D33CB8996FC
 ```bash
 magnet:?xt=urn:btih:047FA4634B4ED01EE1EC9B473A2407EF855DB9E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:047FA4634B4ED01EE1EC9B473A2407EF855DB9E0
 magnet:?xt=urn:btih:71444058C3BFB026D60D6AD0EA3599AA69915646
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:71444058C3BFB026D60D6AD0EA3599AA69915646
 ```bash
 magnet:?xt=urn:btih:C9A187E1B35667692D743B96269F60C91D75E5C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:C9A187E1B35667692D743B96269F60C91D75E5C6
 ```bash
 magnet:?xt=urn:btih:A6C2487B548688ED18D5D2B851BDABB5EB1B4E95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +565,8 @@ Scott Kelby | The Adobe Photoshop CS6 Book for Digital Photographers [2012] [PDF
 magnet:?xt=urn:btih:FC573929F8332C3DEA6EA4682B35C88D14E1A02F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:FC573929F8332C3DEA6EA4682B35C88D14E1A02F
 ```bash
 magnet:?xt=urn:btih:B42C2F3073224E0CC8F7248ADF3FDFBCE8D05D3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +617,8 @@ magnet:?xt=urn:btih:B42C2F3073224E0CC8F7248ADF3FDFBCE8D05D3E
 magnet:?xt=urn:btih:03292515ED5D3F5C6891F29E82098D207ED85F3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:03292515ED5D3F5C6891F29E82098D207ED85F3B
 ```bash
 magnet:?xt=urn:btih:1BAA977D438525B98AFC60D8524DFACA5A53660F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +669,8 @@ Matt Butcher, Matt Farina / Мэтт Батчер, Мэтт Фэрина  | Go i
 magnet:?xt=urn:btih:56A4736F18FAD61D625E438BE6E7390A58FE7A3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ Nicholas Zakas / Николас Закас | Understanding ECMASCRIPT 6 / Пон
 ```bash
 magnet:?xt=urn:btih:E4635BA134076E314B150F5D5143A98724D4D986
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Weird West (2022) [Ru/Multi] (1.78819/dlc) Repack Decepticon [Definitive Edition
 magnet:?xt=urn:btih:8E03A15415E0391995A75CA45006F7B94802422C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Lizards Must Die / Русы против ящеров (2023) [Ru/En] (20240204/d
 ```bash
 magnet:?xt=urn:btih:BF9A54BD1A091E586B226BC0DD27F1C58BC9FE76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ River Town Factory – а что вы скажете на то, чтобы от�
 magnet:?xt=urn:btih:0489AB7F4FA17BDB4FD2CADF99EB7E2FA1CC0CD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Legendary Hoplite использует сеттинг, вдохновленно�
 ```bash
 magnet:?xt=urn:btih:575E15430D0F8CB72847E841532962ED70C24A81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Heroes of Eternal Quest – окунитесь с головой в настоя
 magnet:?xt=urn:btih:9EF3CDB570B3DF05CDCB70F324DFC4B7E94CEE22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Darkest Dungeon 2 - сиквел готической ролевой игры, �
 ```bash
 magnet:?xt=urn:btih:B82CC83B6BC524EF2AF203DF70129B51D1B0C4CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Dungeon Siege: Legends of Aranna / Осада подземелья: Легенд
 magnet:?xt=urn:btih:9887982EAE798CAD6241D68A93B09EA46674E614
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Long Gone Days – ролевая игра о современном мире и
 ```bash
 magnet:?xt=urn:btih:10284043BF945C282180C2F269BB1302DCDA464F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Floating Life 2 воплощает инновационный дух инди-р
 magnet:?xt=urn:btih:1151D90396F7DC0B822E04BF7BD09DA5EB77D31B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Elder Scrolls V: Skyrim Anniversary Edition — это улучшенное 
 ```bash
 magnet:?xt=urn:btih:FB148CB90CB8688E035EDB6461FCD666A0F1A172
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Lunacid относится к жанру Dungeon Crawler. В инди-проек
 magnet:?xt=urn:btih:9A7FB6BD56F58468E7585A7F82E6E70114327B7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Cris Tales - прекрасная инди-игра, сделанная с бо�
 ```bash
 magnet:?xt=urn:btih:5092A9A676B3B3C0321BA13FEC2223D802DEBDE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Star Explorers рассчитана на любителей космоса и п
 magnet:?xt=urn:btih:844A1AA039CD4A94C57F76104187BB232C4E651A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Boyfriend Dungeon - динамичный рогалик с элементами 
 ```bash
 magnet:?xt=urn:btih:C2527DC84C58077466DAB852B6840631F5B2A8E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Gloomhaven – тактическая пошаговая РПГ с элемен�
 magnet:?xt=urn:btih:CCE7BFB9B61586AF0B8804EAEEF260CA253EBD77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Heroes of Eternal Quest – окунитесь с головой в настоя
 ```bash
 magnet:?xt=urn:btih:25CC0D02702248824035332CFCCF14F5D7BC6C95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Monster Hunter Rise (2022) [Ru/Multi] (16.0.2.0/dlc) Scene Razor1911
 magnet:?xt=urn:btih:586C47B24FEAF8466980CFBBA0716D9FA024DBD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ GRAVEN (2021) [Ru/Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:2AD65E73927FF22EC43AC9BA4AA9CAEEC8A15263
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Eternights - это игровой проект, который рассказы
 magnet:?xt=urn:btih:A7A1F9F31026E963CA0875ADD767A41E266A50D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Nienix: Cosmic Warfare (2023) [Ru/Multi] (1.0501) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A8D5E8B753AA4B63A0DB6FE0E4DDA48207DEFD6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Sovereign Syndicate (2024) [En] (1.0.25) Scene Tenoke
 magnet:?xt=urn:btih:299F4D8BF00F1F3683F47E8A05FF9DC6884011F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Above Snakes (2023) [Ru/Multi] (1.4.5) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:577326A6E99C5BD6B39926B63C20478AC3759277
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.1) Scene Rune
 magnet:?xt=urn:btih:98B31D626C45068ACF65D39493573198D1A2B75D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Above Snakes (2023) [Ru/Multi] (1.4.5) License GOG
 ```bash
 magnet:?xt=urn:btih:65AEB697031CDA379444A6F086474A837B71F99D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Kingsvein - это тактическая RPG в духе олдскульных
 magnet:?xt=urn:btih:045E2F4CCED061B62BFB4C2BFCE940A84526B5B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Affogato - это ролевая игра с уникальной механик
 ```bash
 magnet:?xt=urn:btih:DD0AE6ED59E43E7B0ABA9A6BB43C981225D5A5E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

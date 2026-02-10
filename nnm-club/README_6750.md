@@ -19,6 +19,8 @@ Icecream Screen Recorder – простая программа для запис
 magnet:?xt=urn:btih:42832B3B0D02665468FEA5290E817A468A5CAC7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:42832B3B0D02665468FEA5290E817A468A5CAC7B
 magnet:?xt=urn:btih:3CABEEC189E6D98D583BA9F29EECD326E4D2B05F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:3CABEEC189E6D98D583BA9F29EECD326E4D2B05F
 ```bash
 magnet:?xt=urn:btih:6713FA214E8925AFF7C7452E9C042FA81B459F88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7
 magnet:?xt=urn:btih:F7DFD105FD50B5FD6F5E7205312C1D52E43AD7E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:F7DFD105FD50B5FD6F5E7205312C1D52E43AD7E0
 ```bash
 magnet:?xt=urn:btih:56BB15FABC9EA0568272EE53FE7D5AF34B61EAA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ El Matador (2006) [Ru/Multi] (1.1) License GOG
 magnet:?xt=urn:btih:E56F1C56B251BE9D20ED89538612461BB3333028
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:E56F1C56B251BE9D20ED89538612461BB3333028
 ```bash
 magnet:?xt=urn:btih:5F1063F3F02320C73B3FD831BAE8DF72D9ED24FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:5F1063F3F02320C73B3FD831BAE8DF72D9ED24FE
 magnet:?xt=urn:btih:3AFD6BBCD348BE014E6C73AB840FD0C3285E985B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:3AFD6BBCD348BE014E6C73AB840FD0C3285E985B
 ```bash
 magnet:?xt=urn:btih:90B608F9E576DDFDF8E9FEC7D7DC4A93524C886F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:90B608F9E576DDFDF8E9FEC7D7DC4A93524C886F
 magnet:?xt=urn:btih:53C2A4F65F133F6E4A4CCD1624D550A69ECB553E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:53C2A4F65F133F6E4A4CCD1624D550A69ECB553E
 ```bash
 magnet:?xt=urn:btih:F5DAD7B1A2F7A4C9752DF05407FCE07D892B8DFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Asking Alexandria - Where Do We Go From Here? (2023) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:6F38F5482A185AC781FE853CE4107D2E132A6A8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:6F38F5482A185AC781FE853CE4107D2E132A6A8D
 magnet:?xt=urn:btih:658FB4C560446743FE49850F2F5204D91DA3B0F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:658FB4C560446743FE49850F2F5204D91DA3B0F8
 magnet:?xt=urn:btih:1943478C9B37333A355788B9325D3BFFFD2A04E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ PowerDirector - самое быстрое и передовое программ
 ```bash
 magnet:?xt=urn:btih:55301B38C7D209A5BFADCD4BDCB5D64831FD5BDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:55301B38C7D209A5BFADCD4BDCB5D64831FD5BDE
 magnet:?xt=urn:btih:B7DCC730A328D1CFF5D6ECFFD60CDA54233EBBD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:B7DCC730A328D1CFF5D6ECFFD60CDA54233EBBD3
 ```bash
 magnet:?xt=urn:btih:3CB5D6196DD0ED33DAB5C687715B90007DA72C2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:3CB5D6196DD0ED33DAB5C687715B90007DA72C2C
 magnet:?xt=urn:btih:02B71D30BDCC037EED9189E23B10E2C91746D10E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:02B71D30BDCC037EED9189E23B10E2C91746D10E
 ```bash
 magnet:?xt=urn:btih:F1924DFAF20527ECA4216B04FE2E162C101743F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:F1924DFAF20527ECA4216B04FE2E162C101743F7
 magnet:?xt=urn:btih:525B32E70ABD5C4D9EA86343DFE19C485E59095E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ New Tales from the Borderlands (2022) [Switch] [EUR] 14.1.2 [eShop] [En]
 ```bash
 magnet:?xt=urn:btih:300028F0D6715817E2314EFBD8FEEA6102E59FCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:300028F0D6715817E2314EFBD8FEEA6102E59FCB
 magnet:?xt=urn:btih:523F765E8C82E1D945B240758CD2ECD9EA60EA95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Railroad Tycoon 3 / Железнодорожный магнат (2003) [Ru] (1.0
 ```bash
 magnet:?xt=urn:btih:F09F9BD5F75396AE9DBB220C1410B6DE252696E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:F09F9BD5F75396AE9DBB220C1410B6DE252696E2
 magnet:?xt=urn:btih:ADB466C7D63ECDEBFFE27617171B4F10DFA68150
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:ADB466C7D63ECDEBFFE27617171B4F10DFA68150
 magnet:?xt=urn:btih:0CE13BDCE616F761203D5055CFCCDBDAB834A289
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ TUNIC (2022) [Switch] [EUR] 14.1.2 [eShop] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B021FB7CD284B355547C5B08861118E356F7880E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

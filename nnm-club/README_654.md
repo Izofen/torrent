@@ -19,6 +19,8 @@ Minecraft в кино / A Minecraft Movie (2025) WEB-DL [H.265/2160p] [4K, HDR10
 magnet:?xt=urn:btih:FF2D11049D56F6BC4AFCD44C72792C0D345EDB6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:FF2D11049D56F6BC4AFCD44C72792C0D345EDB6C
 magnet:?xt=urn:btih:58C4F659B49AE5C3377AFEB8235E95DABFDB900D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:58C4F659B49AE5C3377AFEB8235E95DABFDB900D
 ```bash
 magnet:?xt=urn:btih:2F8A2B895520D95CFDD9AD7D45E9BFEB5262BB1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:2F8A2B895520D95CFDD9AD7D45E9BFEB5262BB1F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:2F8A2B895520D95CFDD9AD7D45E9BFEB5262BB1F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:2F8A2B895520D95CFDD9AD7D45E9BFEB5262BB1F
 magnet:?xt=urn:btih:C2F1F0E06517E0C5C55FD5DC10FE11B6D8664D5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Microtopia (2025) [Ru/Multi] (1.0.9d) License GOG
 ```bash
 magnet:?xt=urn:btih:073FF63310B4021102E93F9906A51582BA8FB403
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:073FF63310B4021102E93F9906A51582BA8FB403
 magnet:?xt=urn:btih:77463964A89858CE15B1AAE4268E07F6F4C1F636
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:77463964A89858CE15B1AAE4268E07F6F4C1F636
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:77463964A89858CE15B1AAE4268E07F6F4C1F636
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:77463964A89858CE15B1AAE4268E07F6F4C1F636
 ```bash
 magnet:?xt=urn:btih:248C94A7BFC266917F2A258B98915D6D930632A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:248C94A7BFC266917F2A258B98915D6D930632A4
 magnet:?xt=urn:btih:F1C14DF0DFB2E2EB5026AD3C7BEB29C52501ABA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:F1C14DF0DFB2E2EB5026AD3C7BEB29C52501ABA3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:F1C14DF0DFB2E2EB5026AD3C7BEB29C52501ABA3
 ```bash
 magnet:?xt=urn:btih:84435688AE0AA02CEC04BAC999295DB392147230
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:84435688AE0AA02CEC04BAC999295DB392147230
 magnet:?xt=urn:btih:A063E91C776357185339943DC2A3F05AF84B7F78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:A063E91C776357185339943DC2A3F05AF84B7F78
 ```bash
 magnet:?xt=urn:btih:28D5436A1F94FA9616E21E09800BFF652E89D1DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Sunday Club — это сочетание тёплой ностальгии и �
 magnet:?xt=urn:btih:835D7D0747DD798523AF3AD26B9C8F71264EAE2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:835D7D0747DD798523AF3AD26B9C8F71264EAE2A
 ```bash
 magnet:?xt=urn:btih:5E76BABD357EE3088B34A5954249D8574C040F18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Kerry Brooks | Яркие портреты цветными карандашам
 magnet:?xt=urn:btih:F4387BD4125DB62F2E7148B391D81C15471E8CF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ FacePic — приложение AI Face, приложение для легко
 ```bash
 magnet:?xt=urn:btih:29968C505EC1EBD1DC577FA0C14A0E0585AFEED2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ DreadOut Remastered Collection (2025) [Ru/Multi] (2.2.18f/1.0.8) Repack Let'sРl
 magnet:?xt=urn:btih:2389EA39BBEFA8B72521771FF0159ABD8BDA0C67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:2389EA39BBEFA8B72521771FF0159ABD8BDA0C67
 ```bash
 magnet:?xt=urn:btih:58806AD178F7E257C63689E44E60FB5960CA5D43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:58806AD178F7E257C63689E44E60FB5960CA5D43
 magnet:?xt=urn:btih:F9A7E84834BAA617AAE90742B8F83F8493D8FC18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:F9A7E84834BAA617AAE90742B8F83F8493D8FC18
 ```bash
 magnet:?xt=urn:btih:2B2BD4FD0043BD531DBA7C723CB61206FDB84B8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ Gmail, Yahoo, Hotmail, FastMail, Apple, GMX, Outlook, AOL или Exchange - Aqua
 magnet:?xt=urn:btih:242ADBAD86ACF5C9E839DE8B8C8B7F26C0A9DDDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:242ADBAD86ACF5C9E839DE8B8C8B7F26C0A9DDDA
 ```bash
 magnet:?xt=urn:btih:B627C583DA82F42021C2CCA302563690DB368EA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

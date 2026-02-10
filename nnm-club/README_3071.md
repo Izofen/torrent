@@ -26,6 +26,8 @@ VA - 15 Top Trance Hits 03 (2012)
 magnet:?xt=urn:btih:F83ED9FE71638CC02CA0563F9724452D6AE650C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -57,6 +59,8 @@ Astronaut Ape - The Mirror (2012) [MP3|320 кб/с]<Ambient, Downtempo, PsyChill
 magnet:?xt=urn:btih:F522685858D38F78BF5DD375E397FB58DE80FA97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -82,6 +86,8 @@ magnet:?xt=urn:btih:F522685858D38F78BF5DD375E397FB58DE80FA97
 ```bash
 magnet:?xt=urn:btih:3E3C698DF1855FF6A487C318E5493FD4A4430302
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -111,6 +117,8 @@ magnet:?xt=urn:btih:3E3C698DF1855FF6A487C318E5493FD4A4430302
 magnet:?xt=urn:btih:E0AA15800720AFC5A731569CF00F3FE2ED99D4FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +147,8 @@ magnet:?xt=urn:btih:E0AA15800720AFC5A731569CF00F3FE2ED99D4FD
 magnet:?xt=urn:btih:B75E855EF6A44E4CE14B033BA80F20BB83E3C10B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +172,8 @@ magnet:?xt=urn:btih:B75E855EF6A44E4CE14B033BA80F20BB83E3C10B
 ```bash
 magnet:?xt=urn:btih:55FCD74B42509CA27C08CFDB5B90B91DC78D649E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +208,8 @@ VA - Trance Symphony Volume 8 (23.03.2012) [MP3|320 кб/с]<Uplifting Trance, T
 magnet:?xt=urn:btih:4C89B4AE54254CF37C6FA44106BBE70B037F2E13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +237,8 @@ magnet:?xt=urn:btih:4C89B4AE54254CF37C6FA44106BBE70B037F2E13
 ```bash
 magnet:?xt=urn:btih:AF3BDAC2A13AC35E87D61F17925D593316885A9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +273,8 @@ VA - XXXL Супер Танцевальный 50\50 Весна (2012) [MP3|256 �
 magnet:?xt=urn:btih:68F56C38DEA52AA543BD72D97F227FE89B81E626
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +308,8 @@ VA - Весенний музыкальный бум 50/50 (2012) [MP3|256 кб/�
 magnet:?xt=urn:btih:B80B9414FC94009F019523E9042E02418F9DF75E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +333,8 @@ magnet:?xt=urn:btih:B80B9414FC94009F019523E9042E02418F9DF75E
 ```bash
 magnet:?xt=urn:btih:3A904B7C5DCA3BD8363D4630E17E9E4437882B7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +360,8 @@ magnet:?xt=urn:btih:3A904B7C5DCA3BD8363D4630E17E9E4437882B7C
 magnet:?xt=urn:btih:A492DD088E8DC54D05E7A624CB0EA08563E817AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +386,8 @@ Tales From The Dragon Mountain: The Strix (P) [Ge] 2011
 magnet:?xt=urn:btih:7AA0DD79EC93C849608DE8E5620F9B681F7F97BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +411,8 @@ magnet:?xt=urn:btih:7AA0DD79EC93C849608DE8E5620F9B681F7F97BF
 ```bash
 magnet:?xt=urn:btih:C1FC7615434DFCCA674295402A6A3718FB8BAA4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +447,8 @@ Kammerer - Enter The Cheesedragon (2012) [MP3|320 кб/с]<Lounge, Nu Jazz, Trip
 magnet:?xt=urn:btih:254DB41750285A4B3CB450C9F89D12C58DFDC03B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +476,8 @@ magnet:?xt=urn:btih:254DB41750285A4B3CB450C9F89D12C58DFDC03B
 ```bash
 magnet:?xt=urn:btih:009F90EFA49A689249997DB8DC6EA28440EAD6A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +512,8 @@ VA - MAXI. Electro Тебе в тачку (2012) [MP3|320 кб/с]<Club, Electro
 magnet:?xt=urn:btih:3953D8FC1D88BBB8F7F150D4978F750BBAF4ED52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +537,8 @@ magnet:?xt=urn:btih:3953D8FC1D88BBB8F7F150D4978F750BBAF4ED52
 ```bash
 magnet:?xt=urn:btih:CA7738EE8F72194CD86E9F73A9C9E9F3E28F7341
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +564,8 @@ AIDA64 (бывший Everest) - утилита является мощным с�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +589,8 @@ AIDA64 (бывший Everest) - утилита является мощным с�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +616,8 @@ Kaspersky Offline Update 12.0.0.374 (h) [Русский] / (12.0.0.374 h)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +642,8 @@ Kaspersky Offline Update 12.0.0.374 (h) [Русский] / (12.0.0.374 h)
 magnet:?xt=urn:btih:36919D1530BAEF2B2B64418BA636F05E97BBFDCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +667,8 @@ magnet:?xt=urn:btih:36919D1530BAEF2B2B64418BA636F05E97BBFDCA
 ```bash
 magnet:?xt=urn:btih:812FA47CAE82C84C5F8CE98778E95163D20CA8AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +697,8 @@ magnet:?xt=urn:btih:812FA47CAE82C84C5F8CE98778E95163D20CA8AB
 ```bash
 magnet:?xt=urn:btih:C7457C14233AAECCDDBCBAC5EDC20B814C59E4C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -685,6 +733,8 @@ VA - Science Of Dance (2011) [MP3|320 кб/с]<Psychedelic / Full On, Psy-Prog>
 magnet:?xt=urn:btih:9105B893EA333AA238C10A78E9A06296A6F9FFEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -712,6 +762,8 @@ magnet:?xt=urn:btih:9105B893EA333AA238C10A78E9A06296A6F9FFEA
 ```bash
 magnet:?xt=urn:btih:4E7198630885A3EB8ADAFA54BA6F96AF1CE69E2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5911FCA0C2016DEE17C5875C4F17C08E357C899F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Dying Light: The Beast (2025) [Ru/En] (1.2.0/dlc) Repack Decepticon [Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:69A2B769C277E9BC3DA9620B07AC7E45A8AC63C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:69A2B769C277E9BC3DA9620B07AC7E45A8AC63C4
 magnet:?xt=urn:btih:611DD7C1AB498BFEB50647B85E7857AFA5783BBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:611DD7C1AB498BFEB50647B85E7857AFA5783BBA
 ```bash
 magnet:?xt=urn:btih:B6A8874F099D581B9CD14533AE82017C523BCD6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Sakamoto Days (2025) | Дни Сакамото [Часть 2] [2025, TV, 11 эп
 magnet:?xt=urn:btih:0F994DCAEB9CD30DA1F55417C8F85EB28535B65E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Medieval Dynasty (2021) [Ru/Multi] (2.4.1.1/dlc) Repack Let'sРlay [Ultimate Edi
 ```bash
 magnet:?xt=urn:btih:0D17A19B3E4248630C23B2BCE5758F92D0AA89A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:0D17A19B3E4248630C23B2BCE5758F92D0AA89A5
 magnet:?xt=urn:btih:C11339DDD496051DF926547B63F7DFE760DF3F1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Ravenswatch - хардкорное приключение, в котором п�
 magnet:?xt=urn:btih:A3E36CCE6918D65544C6F64BE30AEEF67132176A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ House Builder (2021) [Ru/Multi] (Build 15-09-2025/dlc) Repack FitGirl [Pack and 
 ```bash
 magnet:?xt=urn:btih:95D2CF6654D0BC446E3663F22701B1C950369CD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Rutube объяснил: пиратский контент на хостинг �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Dying Light: The Beast (2025) [Ru/Multi] (1.2.0/dlc) Repack seleZen [Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:68274B244807BF8C76402717191D87A722DB9386
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:68274B244807BF8C76402717191D87A722DB9386
 magnet:?xt=urn:btih:8B5BD533244167D103C274ED6C0C50248E1BB3BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Firefighting Simulator Ignite (2025) [Ru/Multi] (1.0005.28457.87919/dlc) Repack 
 ```bash
 magnet:?xt=urn:btih:9ACABC378E91049B41E4AF8D0FF37DC59F50869B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:9ACABC378E91049B41E4AF8D0FF37DC59F50869B
 magnet:?xt=urn:btih:7200F0E1956B27D89E279F14AEAB6AA2AD9CE02C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:7200F0E1956B27D89E279F14AEAB6AA2AD9CE02C
 ```bash
 magnet:?xt=urn:btih:9A1BADB990473396DB48228E0811999534F2A752
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Lost Skies (2025) [Ru/Multi] (1.0.79) Repack seleZen
 magnet:?xt=urn:btih:3DDB9D63E58CABAAD3B542CE764700BBD57482D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:3DDB9D63E58CABAAD3B542CE764700BBD57482D2
 magnet:?xt=urn:btih:5C2F5C78837C92B17AA25AAACBB6B56EC62C3B7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:5C2F5C78837C92B17AA25AAACBB6B56EC62C3B7A
 ```bash
 magnet:?xt=urn:btih:7222F54CA5479B04DEA9FE1C3E3C896FC5C34455
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Paradise Lost  — метал-группа из Великобритании, о
 magnet:?xt=urn:btih:0BA298A1C235004C788CBF26E74AC348E715FC56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ The Sims 4 (2014) [Ru/Multi] (1.118.242.1030/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:E22F358D1E8425001E85D41AC992080CEF9E3BB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ No Man's Sky научно-фантастический космический с
 magnet:?xt=urn:btih:D5520D102BEF650DE7D345BCA01DC1505D813DE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:D5520D102BEF650DE7D345BCA01DC1505D813DE9
 ```bash
 magnet:?xt=urn:btih:C5FE126CA04802DA6B737F4E4D9F17B56A05DA5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Parkitect (2018) [Ru/Multi] (1.11f3/dlc) License GOG
 magnet:?xt=urn:btih:89BB04ED2E84AF9132CC67A58F7A9ECF7DF29D5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:89BB04ED2E84AF9132CC67A58F7A9ECF7DF29D5C
 ```bash
 magnet:?xt=urn:btih:49A4DC58A88082948B03A7BDE6809DD35208E86E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (10.2.0.1/dlc) Repack Let'sР
 magnet:?xt=urn:btih:71495358EF10DA3B44F2BF35BD7F8501B2A93501
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Forever Skies (2023) [Ru/Multi] (1.0.3 Build #41195/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:6486C20D46E35E54FBBBDAC31F4354AEBA1004F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

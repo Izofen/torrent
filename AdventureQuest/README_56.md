@@ -19,6 +19,8 @@ Lunacy: Saint Rhodes — хоррор на выживание от первог�
 magnet:?xt=urn:btih:FC2A6AFB6A605C124F8AD2619F249E32AAC8A063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Scrap - это независимый шутер с видом от трет
 ```bash
 magnet:?xt=urn:btih:C4481C6F4C41E0E4E6497A633CFB247600C8DCEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (1.726.0.0) Scene Rune
 magnet:?xt=urn:btih:F2E05E250CF306B75168FEE04B106B60E8368526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:F2E05E250CF306B75168FEE04B106B60E8368526
 ```bash
 magnet:?xt=urn:btih:D400C09EC2912398A3C1E409C8F9D3E48CC0FBCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Lunacy: Saint Rhodes - хоррор на выживание от первого 
 magnet:?xt=urn:btih:969FEBAB5504C968BA881D0C69993616B33E8E41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Welcome to Kowloon — хоррор от первого лица, в котор�
 ```bash
 magnet:?xt=urn:btih:9636AE5964F3AFAB8EBC381AE8CCC211DD33714E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Five Nights at Freddy’s: Security Breach - очередной эпизод в 
 magnet:?xt=urn:btih:F1F8D6D7C695412545B57C5D600CBB3AA7BBB9D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Frozen Garden - хоррор от третьего лица, вдохнов�
 ```bash
 magnet:?xt=urn:btih:DC4530F3DE7AD6C72DF82C5DDE254A54F875C5CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Unholy (2023) [Ru/Multi] (30649) Repack Other s
 magnet:?xt=urn:btih:F166542872863FEC0C6ED325CC76F5874CE0BF60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ My Friendly Neighborhood погружает юзеров на роль прос�
 ```bash
 magnet:?xt=urn:btih:5E0272898E1123EF97596A1A70F7AFF9F9696E36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Please, Forgive Me (2023) [Ru/En] (1.4) Repack Other s
 magnet:?xt=urn:btih:9146B71F351638037961119F75B8605C311A4536
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Life is Strange Remastered Collection - интерактивное приклю�
 ```bash
 magnet:?xt=urn:btih:0DCC3473651F1B50F125167F1C8FB9ECDF32FBDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ OXENFREE 2: Lost Signals продолжает историю о мрачных �
 magnet:?xt=urn:btih:53B7D7C9A5FE08AD0E4DD87E52A358CC5B0AD278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Kena: Bridge of Spirits – сказочное приключение в оча�
 ```bash
 magnet:?xt=urn:btih:C36B75DA4326B54D2355D3BD579EB654E17513E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Man of Medan – это первая игра в антологии кинема
 magnet:?xt=urn:btih:439021874FB1A9F627FA02112DF07363BE0EBF68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:439021874FB1A9F627FA02112DF07363BE0EBF68
 ```bash
 magnet:?xt=urn:btih:9DFA6831B38DBA52F71C4B7F163E129273155BF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ GYLT (2023) [Ru/Multi] (1.1.1.5) Scene FairLight
 magnet:?xt=urn:btih:33C63ACFEB295C174A698E8C84A7CE61983586A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Stay Out of the House предлагает пережить настоящий �
 ```bash
 magnet:?xt=urn:btih:D356C10AAE0800C1C9D2ADC7F1405D1C55A933AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ To Hell With The Ugly (2023) [Multi] (1.1.0) License GOG
 magnet:?xt=urn:btih:813A56BD35E91AF3012389630F11761FCB6487E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Shore (2021) [Ru/Multi] (19.02.2022) Scene CODEX
 ```bash
 magnet:?xt=urn:btih:035ACB762F4E1429FB33A5A559DA530E31DB66E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Tartarus Key (2023) [En] (01.01b) License GOG
 magnet:?xt=urn:btih:CE44695C59A01682F72A87B096E6B05C8EF51AB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Sludge Life 2 - это продолжение сюрреалистическог
 ```bash
 magnet:?xt=urn:btih:95245C0795821D0B615C61C7750CD6AE11DBDF89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Drake Hollow (2020) [Ru/Multi] (1.3) License GOG
 magnet:?xt=urn:btih:ACC857CA2BBC8E7589E910717E00F0A194A5955E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Livestream: Escape from Hotel Izanami – смесь хоррора и прик�
 ```bash
 magnet:?xt=urn:btih:2E2F477E0B03894E09004ADF481FEDCD59C2E743
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Before Your Eyes (2021) [Multi] (1.2.6.9) License GOG
 magnet:?xt=urn:btih:D3E1AB3067EFBDC83436CB072C4D973590033564
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Unwording - это не просто набор головоломок, а на�
 ```bash
 magnet:?xt=urn:btih:669D81347DD9BCA8325B29D25E01CF31206C44C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

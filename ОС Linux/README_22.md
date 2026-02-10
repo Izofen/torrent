@@ -1,29 +1,3 @@
-###  Публикация: 604694   (995981) от 18.01.2013
-
-CentOS 5.9 [i386 + x86-64] (4xDVD)
-
->>След.
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вчера, через неделю после выхода RHEL 5.9, вышел релиз CentOS 5.9. CentOS (англ. Community ENTerprise Operating System) — дистрибутив Linux, основанный на пакетной базе коммерческого Red Hat Enterprise Linux компании Red Hat и полностью совместимый с ним. Разработчики CentOS используют исходный код Red Hat для создания окончательного продукта, очень близкого к Red Hat Enterprise Linux и доступного для скачивания. CentOS использует  yum для скачивания и установки обновлений из репозитория CentOS Mirror Network.
-
-В CentOS 5.9 включены все новые функции RHEL 5.9. Например, OpenJDK 7, Samba 3.6, драйверы для Microsoft Hyper-V. В Postfix добавлена поддержка MySQL; добавлен пакет ant17 (Ant 1.7.0), но сохранена также версия Ant 1.6.5.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605023   (996008) от 18.01.2013
 
 Pear Linux 6.1 R2 [i386, amd64] (2xDVD)
@@ -48,6 +22,8 @@ Pear OS - французский дистрибутив Linux, основанн�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +51,8 @@ Liberte Linux 2012.3 является первым дистрибутивом Li
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +76,8 @@ EuroLinux 8.3 [совместим с Red Hat Enterprise Linux] [amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:46437B3BE66C0DC9988A8CDA9CD0454746265AB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +105,8 @@ Kali Linux 2021.2 (ex. BackTrack) [amd64, i386, arm] 6xDVD, 3xCD Аудит бе
 magnet:?xt=urn:btih:C07679F086883407B74D6A4117D217A7F5A8D99A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +131,8 @@ Linux Mint 20.2 Uma (XFCE, Mate, Cinnamon) [64bit] 4xDVD
 magnet:?xt=urn:btih:D7EACEE02232A9F2E3C5A7FAC3CFB99254FD0839
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +156,8 @@ SUSE Linux Enterprise Desktop Server Workstation 15.3 [x86_64, aarch64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:17C836D30C674FF19F7C68A1F527DECDC25A2F76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +185,8 @@ Debian GNU/Linux 10.10.0 + nonfree Buster [amd64] 4xDVD+1xCD
 magnet:?xt=urn:btih:DD172DDB3362684C8C1CF61B62671544BB79A217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +213,8 @@ Debian GNU/Linux 10.10.0 + nonfree Buster [i386] 4xDVD+1xCD
 magnet:?xt=urn:btih:C27059ED0631A5AC2191553CADD275C2F7F27071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +240,8 @@ antiX Linux 19.4 Grup Yorum [i386, x86_64] 6xСD + 2xDVD
 magnet:?xt=urn:btih:CDD665398394CB68AC977A19229016011415CF63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +266,8 @@ Debian Edu, также известный как Skolelinux, является д
 magnet:?xt=urn:btih:9A9FD1D6E6ADE9387F39EC2225C32305C0520F74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +291,8 @@ Calculate Linux - удобный, быстрый и функциональный
 ```bash
 magnet:?xt=urn:btih:CE91C50067330CCD46DF2E66A9D05B136B37B65C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +321,8 @@ Parrot - это всемирное сообщество разработчико
 magnet:?xt=urn:btih:8B2FE746D0859FDD07033E2D19D236996BA9D07C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +347,8 @@ Debian GNU/Linux 10.9.0 + nonfree Buster [i386] 4xDVD+1xCD
 magnet:?xt=urn:btih:697F3D5EF33B82AE3B85BEDC09FC2BF45257AB92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +372,8 @@ Debian GNU/Linux 10.9.0 + nonfree Buster [amd64] 4xDVD+1xCD
 ```bash
 magnet:?xt=urn:btih:D339A5848473775F7CDA893745004E755DF6A32F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +402,8 @@ Mathlinux включает в себя большое количество (   
 magnet:?xt=urn:btih:50A83939787051C1E8827981AE3CC6C824377C2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +427,8 @@ Mageia 8 [x86-64] 4xDVD
 ```bash
 magnet:?xt=urn:btih:808F36992824061B386216C0EA63D6ACA9E63A4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +454,8 @@ Mageia 8 [i586] 2xDVD
 magnet:?xt=urn:btih:09A64C17849D7CE5461F1082D5DA3A3D3998140C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +479,8 @@ Wifislax - это Linux-дистрибутив с набором предуст�
 ```bash
 magnet:?xt=urn:btih:DC42E2AA4AB1DDEB46675C568BF2671A1BBA6217
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +506,8 @@ Debian Edu, также известный как Skolelinux, является д
 magnet:?xt=urn:btih:2B9A1BBA748FFD6A4D861B1B39D7F3265812C303
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +531,8 @@ Debian GNU/Linux 10.8.0 + nonfree Buster [i386] 4xDVD+1xCD
 ```bash
 magnet:?xt=urn:btih:038C00DD1E80D3A21B913A3A2E55899B5DB5BEFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +558,8 @@ Debian GNU/Linux 10.8.0 + nonfree Buster [amd64] 4xDVD+1xCD
 magnet:?xt=urn:btih:21B274F7BD0AF60864AA8DA7C49D04DFD69BC8B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +583,8 @@ magnet:?xt=urn:btih:21B274F7BD0AF60864AA8DA7C49D04DFD69BC8B7
 ```bash
 magnet:?xt=urn:btih:8960800D235229F8A107D454600ACEA0EA93D605
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +612,8 @@ EN-OS — это современный, удобный и производит�
 magnet:?xt=urn:btih:9A80D514F53859986C0EFF2CCB74DC1947DCF749
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +640,8 @@ Astra Linux Special Edition 1.6.16 [amd64] 3xDVD
 magnet:?xt=urn:btih:513CBEAA6A9E50E0E5597593AF9773D9760B13AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +665,8 @@ ALT Linux 10.2.1 СП [amd64] 3xDVD
 ```bash
 magnet:?xt=urn:btih:95913679B04ACF00CE393B9BAD41D92D64C6A3C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

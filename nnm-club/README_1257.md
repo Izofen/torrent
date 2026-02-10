@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3BFD3C4EEB0E3C4AB89564E8503BE0F7240F7FE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:3BFD3C4EEB0E3C4AB89564E8503BE0F7240F7FE9
 ```bash
 magnet:?xt=urn:btih:8A30E0C2937884B99E9E0CD80E19CCA9CE630F76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Youtube Downloader HD - бесплатная и предельно проста�
 magnet:?xt=urn:btih:48C11691F99AEBE64A1F91D687C732578547FFE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Skylum Aperty 1.1.0.761 RePack (& Portable) by elchupacabra [Multi]
 magnet:?xt=urn:btih:F3B7C65F1BD7D4C1189A95445A179F12A37A2EDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:F3B7C65F1BD7D4C1189A95445A179F12A37A2EDA
 ```bash
 magnet:?xt=urn:btih:4A94DC923DD8D087757289B0238488C90E56CB4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:4A94DC923DD8D087757289B0238488C90E56CB4C
 magnet:?xt=urn:btih:A359E40978DDB461479BC7D6D3E10EE0C14C180E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:A359E40978DDB461479BC7D6D3E10EE0C14C180E
 magnet:?xt=urn:btih:DD0D449BA133E247527B6699E58DBC05AAF51FAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:DD0D449BA133E247527B6699E58DBC05AAF51FAD
 ```bash
 magnet:?xt=urn:btih:0E79A69D0A6CCAE139232597E02C3C64DC75BA10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:0E79A69D0A6CCAE139232597E02C3C64DC75BA10
 magnet:?xt=urn:btih:F7B28CFEC235B90FA9D7CB1113CCF1374BE691AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:F7B28CFEC235B90FA9D7CB1113CCF1374BE691AC
 ```bash
 magnet:?xt=urn:btih:ABA8027AE620BDA8F40275A1B85F129804AE0F7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Shin Tennis no Ouji-sama: U-17 World Cup Semifinal | Новый принц те�
 magnet:?xt=urn:btih:22C245F5861FB1AC0C47290A69D57FD5C5D2BAE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Castlevania: SotN v1.0.4 [En]
 ```bash
 magnet:?xt=urn:btih:AC5189506378C29E8A822B4F9438716A9552D23A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ O&O DiskImage Professional позволяет создавать резервн�
 magnet:?xt=urn:btih:6AD61E82F126B58F0D52783DCC26E0778256BBAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Homo Machina - это игра-головоломка, вдохновленна�
 magnet:?xt=urn:btih:614C12F63733BE7470DCE660181AA65374675E33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:614C12F63733BE7470DCE660181AA65374675E33
 ```bash
 magnet:?xt=urn:btih:4ABA6F9278527FCCAE3F1B8882DA6F40E52D17F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:4ABA6F9278527FCCAE3F1B8882DA6F40E52D17F9
 magnet:?xt=urn:btih:E909274C91DF945B27B305F86944F1E715A7FADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:E909274C91DF945B27B305F86944F1E715A7FADF
 ```bash
 magnet:?xt=urn:btih:B72000A8A6641FA1E87F496945D4C2DA5DB419C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:B72000A8A6641FA1E87F496945D4C2DA5DB419C6
 magnet:?xt=urn:btih:8E5A05B339326F93D0C1004BAFA46E50891BFD09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ GadgetPack (ex 8GadgetPack) 38.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BD2F089A9A1AA84578571553BCB13181E63E67C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Tasuketsu: Fate of the Majority | Tasuuketsu | Правило большинст
 magnet:?xt=urn:btih:6C762AD083DDB5131EE5E7FC3FAA0E768D7EE9C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:6C762AD083DDB5131EE5E7FC3FAA0E768D7EE9C9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:6C762AD083DDB5131EE5E7FC3FAA0E768D7EE9C9
 magnet:?xt=urn:btih:62F12A4E19CB9520482EA4763160C9BD13B1A33F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Luminar Neo – это отдельный редактор, который вк�
 magnet:?xt=urn:btih:15752FC3CEEED4F4421AFDB129E281E8DA9F7EFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ R-Studio Network 9.4 Build 191420 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FD6048DB387B5218CDDAD940A4F8125F981A4562
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Aлиcия — cтapшaя дoчь знaтнoй ceмьи Уильямc, кoтopa�
 magnet:?xt=urn:btih:2397D652553914D9651369B4BB786F144EA112FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:2397D652553914D9651369B4BB786F144EA112FF
 ```bash
 magnet:?xt=urn:btih:E4BB14000B17EB49DD070E7CA82D3F699B68AB1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,31 @@
+###  Публикация: 1213486   (767300) от 18.03.2018
+
+Новая русская философия Ивана Охлобыстина (05.03.2018) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767300.jpg" />
+</div>
+
+
+###  Подробнее
+
+В своей авторской программе известный актер, кинорежиссер, сценарист, писатель Иван Охлобыстин отвечает на вопросы зрителей со всего света. Это вопросы о любви, об империи, вере, об искусстве и о личном-житейском. Нестандартные ответы на самые неожиданные вопросы. Выходит несколько раз в месяц.
+
+В этом выпуске программы  ее ведущий  Иван Охлобыстин поучаствовал в выборе (   Читать дальше...   )Производство: Россия, НАО «Царьград медиа»Жанр: Телепередача, авторская передачаСубтитры: ОтсутствуютПродолжительность: 00:31:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B245A794A48B43F9E933D89EB5DBFD8CFC9D7FE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213769   (767342) от 18.03.2018
 
 Чудо техники с Сергеем Малозёмовым (18.03.2018) SATRip
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:AF75951A82F284DC467DC37B53432C78DFFB00C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +76,8 @@ magnet:?xt=urn:btih:AF75951A82F284DC467DC37B53432C78DFFB00C7
 magnet:?xt=urn:btih:AA86570AEEF5E6AB6F42E584CD44E01DF65EA160
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +101,8 @@ magnet:?xt=urn:btih:AA86570AEEF5E6AB6F42E584CD44E01DF65EA160
 ```bash
 magnet:?xt=urn:btih:BE84EF9EF18DF96E97DC843D7B2D0C46A019E95D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +128,8 @@ magnet:?xt=urn:btih:BE84EF9EF18DF96E97DC843D7B2D0C46A019E95D
 magnet:?xt=urn:btih:4EF4944D973C1F33CA5AECFC8ECBB4BC8EEC2B37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +153,8 @@ magnet:?xt=urn:btih:4EF4944D973C1F33CA5AECFC8ECBB4BC8EEC2B37
 ```bash
 magnet:?xt=urn:btih:6CA73C7C16E74D6440476795AFF6DB2548976CF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +180,8 @@ magnet:?xt=urn:btih:6CA73C7C16E74D6440476795AFF6DB2548976CF8
 magnet:?xt=urn:btih:EDDEFBDCC8564E5209A036B010AB271C90213527
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +205,8 @@ magnet:?xt=urn:btih:EDDEFBDCC8564E5209A036B010AB271C90213527
 ```bash
 magnet:?xt=urn:btih:14958CA80668FB0C095A5C018DD89001056A4FF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +234,8 @@ magnet:?xt=urn:btih:14958CA80668FB0C095A5C018DD89001056A4FF0
 magnet:?xt=urn:btih:2A117DCE418A09E8277A65EA2BF495326F33FBAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +259,8 @@ magnet:?xt=urn:btih:2A117DCE418A09E8277A65EA2BF495326F33FBAB
 ```bash
 magnet:?xt=urn:btih:EB6E2D045607AD0BD8D3D0EEF672A585425F95C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +286,8 @@ magnet:?xt=urn:btih:EB6E2D045607AD0BD8D3D0EEF672A585425F95C0
 magnet:?xt=urn:btih:6A6C73FD9D1EC58E0008270791EC44783CED40D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +312,8 @@ magnet:?xt=urn:btih:6A6C73FD9D1EC58E0008270791EC44783CED40D0
 magnet:?xt=urn:btih:5BCFA5DA63C33099CF5FC442889E630AC77B6339
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +337,8 @@ magnet:?xt=urn:btih:5BCFA5DA63C33099CF5FC442889E630AC77B6339
 ```bash
 magnet:?xt=urn:btih:74F96B89B467DF385BF9B4A81E7072A8C8CE6D7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +365,8 @@ magnet:?xt=urn:btih:74F96B89B467DF385BF9B4A81E7072A8C8CE6D7A
 magnet:?xt=urn:btih:5FB13FF7B8481D3BFCE567B292FCF6A41970C011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +390,8 @@ Travel: Музейные тайны / Mysteries at the Museum (2014) HDTVRip [H.
 ```bash
 magnet:?xt=urn:btih:629CC4F456E93A9EE46B9F5F69B2153DEC75BAA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +417,8 @@ The Rolling Stones. Концерт на Кубе / The Rolling Stones: Havana Mo
 magnet:?xt=urn:btih:5CBB3AF638758AFE40624C2C851185F04CE1D399
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +442,8 @@ Travel: Музейные тайны / Mysteries at the Museum (2014) HDTVRip [H.
 ```bash
 magnet:?xt=urn:btih:55C65D527A4357C801E4649399B326E20B9BD02D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +469,8 @@ magnet:?xt=urn:btih:55C65D527A4357C801E4649399B326E20B9BD02D
 magnet:?xt=urn:btih:F04ABA747F60D73DC8135E48FA4E909B3404F893
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +494,8 @@ Travel: Музейные тайны / Mysteries at the Museum (2016) HDTVRip [H.
 ```bash
 magnet:?xt=urn:btih:CB30E742F0B2B8504BFB05D1C636CEAA3E298326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +521,8 @@ magnet:?xt=urn:btih:CB30E742F0B2B8504BFB05D1C636CEAA3E298326
 magnet:?xt=urn:btih:3FBD3D116BD019E490C0C2A356345B311E707BE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +546,8 @@ magnet:?xt=urn:btih:3FBD3D116BD019E490C0C2A356345B311E707BE7
 ```bash
 magnet:?xt=urn:btih:A3D1A987EDBAF962BD79807209EC37F8DA440508
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +573,8 @@ magnet:?xt=urn:btih:A3D1A987EDBAF962BD79807209EC37F8DA440508
 magnet:?xt=urn:btih:BBF5791BA6E204B9F6447B0CF162D87540DC23F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +598,8 @@ magnet:?xt=urn:btih:BBF5791BA6E204B9F6447B0CF162D87540DC23F6
 ```bash
 magnet:?xt=urn:btih:E329D43F4B83925425FBC2DD1A3C5C98ED2C4E8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +626,8 @@ magnet:?xt=urn:btih:E329D43F4B83925425FBC2DD1A3C5C98ED2C4E8C
 magnet:?xt=urn:btih:95E201802860B0590E8C66CA53A71254455152C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +651,8 @@ magnet:?xt=urn:btih:95E201802860B0590E8C66CA53A71254455152C6
 ```bash
 magnet:?xt=urn:btih:E0CD69F979FB1E1510CEDBC41CFAA20C82CD85FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,29 +679,7 @@ magnet:?xt=urn:btih:E0CD69F979FB1E1510CEDBC41CFAA20C82CD85FD
 magnet:?xt=urn:btih:D01E49DEECDB588017F6701E2664F0A3F0B0908F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213696   (768101) от 17.03.2018
-
-Экстрасенсы. Битва сильнейших (Экстрасенсы ведут расследование) (17.03.2018) WEBRip [H.264/720p-LQ] (сезон 10, выпуск 05(133))
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный триллер-детектив с участием самых загадочных экстрасенсов России! Это не шоу, а демонстрация реальной мощи ясновидения. Сильнейшие экстрасенсы «Битвы» вновь выходят на защиту людей от мистических вмешательств. В новом сезоне проекта «Экстрасенсы: Битва сильнейших» самые мощные ясновидящие помогут тем, кто отчаялся узнать правду. Александр Шепс, Виктория (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-шоуПродолжительность: 01:11:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72B4FE2E44660AB00B1B421549B9F9E68EAC4E01
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

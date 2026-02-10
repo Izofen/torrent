@@ -23,6 +23,8 @@ https://t.me/izofen
 magnet:?xt=urn:btih:5471E72D4D95CAF749F7C21B55BC2681DF7761C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ magnet:?xt=urn:btih:5471E72D4D95CAF749F7C21B55BC2681DF7761C7
 magnet:?xt=urn:btih:2AD185DFC685E23818A14D0F701C5E166E35E607
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ Gorillaz - The God of Lying ft. Joe Talbot (Studio Recreation) (2025) WEB-DL  [H
 magnet:?xt=urn:btih:10A86DD74AC013C87AD79B5DE47922AAD9D30612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Gorillaz - The Happy Dictator ft. Sparks (Official Visualiser)Жанр: Indie, T
 ```bash
 magnet:?xt=urn:btih:E1A34B29E37AF71F5798CA132A2AAA95AB688D5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:E1A34B29E37AF71F5798CA132A2AAA95AB688D5D
 magnet:?xt=urn:btih:147606E91C6555A244D94552985BE60718EB558D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:147606E91C6555A244D94552985BE60718EB558D
 ```bash
 magnet:?xt=urn:btih:9AB95E84AA4DCA60E038D6E7B382B9E06462FF01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +191,8 @@ magnet:?xt=urn:btih:9AB95E84AA4DCA60E038D6E7B382B9E06462FF01
 magnet:?xt=urn:btih:F0E8268ECED3F4DFFDC5E50592DC1746CA30F0BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ Whitney Houston - Концерт в Южной Африке / Whitney Houston - 
 ```bash
 magnet:?xt=urn:btih:C8F0EA4A996212D8984AFD7002E91BC75D9AF597
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ magnet:?xt=urn:btih:C8F0EA4A996212D8984AFD7002E91BC75D9AF597
 magnet:?xt=urn:btih:B61F2DA4F645043D9899154F4758EDDACEE9FF03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ Laibach feat Bijelo Dugme - Die Kanone (2025) WEB-DL [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:AE58F2695AA1FFD8E58A835182BD93AE6FC992D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +299,8 @@ NEMOPHILA - японская женская метал/рок группа, ос
 magnet:?xt=urn:btih:68FB096C7B0F08762827869493C63F9B9DD59404
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:68FB096C7B0F08762827869493C63F9B9DD59404
 magnet:?xt=urn:btih:2EF46DED75AB917AD9D0D79E4B53EDF2F72A283F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:2EF46DED75AB917AD9D0D79E4B53EDF2F72A283F
 ```bash
 magnet:?xt=urn:btih:B654895929B0E6F40BBD840F6321E58957A75673
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:B654895929B0E6F40BBD840F6321E58957A75673
 magnet:?xt=urn:btih:0B09467F1CCDDE985DFD3ECE69467C99B0E1F190
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ STAYC - I Want It (On the Spot) (2025) WEBRip [H.265/2160p] [60fps]
 ```bash
 magnet:?xt=urn:btih:0B2FDBC0E3CC77839345F53E927EBBBE813FCEF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ HeeJin (ARTMS) - Algorithm (2023) WEBRip [H.265/2160p] [60fps]
 magnet:?xt=urn:btih:C0CC34264F01B59116051E426F3CBB47CFBE05FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ NewJeans - Attention (Performance) (2022) WEBRip [H.265/2160p] [60fps]
 ```bash
 magnet:?xt=urn:btih:851E22A593097DD0B077146B49FCC53CE2391AFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ Billie - Domino - Butterfly effect (2024) WEBRip [H.265/2160p] [60fps]
 magnet:?xt=urn:btih:9DE06BC7899447E1E60F0EBFD63B4E2275534711
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ KiiiKiii - Dancing Alone (2025) WEBRip [H.265/2160p]
 ```bash
 magnet:?xt=urn:btih:3A10C75BCA635315E48078E3A2BF24B2B40A44CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ Roger Waters: This Is Not a Drill - Live from Prague (2025) Blu-ray [H.264/1080p
 magnet:?xt=urn:btih:2DD7CA2FCE7E0ED21717FD76554E1C6EB2A304B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:2DD7CA2FCE7E0ED21717FD76554E1C6EB2A304B6
 ```bash
 magnet:?xt=urn:btih:5E420B45A5AC41AEDBA0D384C1F5AC9AF5E8306B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:5E420B45A5AC41AEDBA0D384C1F5AC9AF5E8306B
 magnet:?xt=urn:btih:D0D5388F9860B07F22DABB7D65E963F5F0067FD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:D0D5388F9860B07F22DABB7D65E963F5F0067FD5
 ```bash
 magnet:?xt=urn:btih:CA57C59E845A13FCD9707B4B6DB65BB48A10756E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:CA57C59E845A13FCD9707B4B6DB65BB48A10756E
 magnet:?xt=urn:btih:AF7FAC67DE8A8F05D86CB8E8C87ADABDDD6D1DC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ magnet:?xt=urn:btih:AF7FAC67DE8A8F05D86CB8E8C87ADABDDD6D1DC9
 magnet:?xt=urn:btih:FDB743BA78BA49EC19F94A5D35A564FDE6F5FC48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ magnet:?xt=urn:btih:FDB743BA78BA49EC19F94A5D35A564FDE6F5FC48
 ```bash
 magnet:?xt=urn:btih:AF10A06B6AC73F211BA0DD46D00A8B0A78D509A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

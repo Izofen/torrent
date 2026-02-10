@@ -19,6 +19,8 @@ Liveclasses, Андрей Журавлев | Повышение резкости
 magnet:?xt=urn:btih:FE0766B2C42C87D9FA105CB6DA249E8AF2AAF802
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ DefenderUI значительно повышает удобство исполь
 ```bash
 magnet:?xt=urn:btih:739839F47759919689E8E869DB772C1BE2557546
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:739839F47759919689E8E869DB772C1BE2557546
 magnet:?xt=urn:btih:E67004ED0C195CEB8E71526069648D67095D97E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:E67004ED0C195CEB8E71526069648D67095D97E5
 ```bash
 magnet:?xt=urn:btih:2F805ED3AED5032D36158866E7030430E19D41B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Udemy, Creativity Unleashed | Complete Blender Megacourse: Beginner to Expert - 
 magnet:?xt=urn:btih:4D990BFA9040261C57F7B70460C7C12CF6E75777
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Udemy, Creativity Unleashed | Complete Blender Megacourse: Beginner to Expert - 
 magnet:?xt=urn:btih:B4415DCB2237194DA58CC9B5DD5BA06E069FD52B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Udemy, Creativity Unleashed | Complete Blender Megacourse: Beginner to Expert - 
 ```bash
 magnet:?xt=urn:btih:7CD1D85F9511B142189D2E2F3C6D643893F0522C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ designonline, Александр Шуняев | Постановка PRO осв�
 magnet:?xt=urn:btih:602A1E961749B0070E9D573B13633E4CEB53668B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Dystlab, Виталий Артемов | Видеокурс ''Основы ди�
 ```bash
 magnet:?xt=urn:btih:2B8E8782F15B43C8685515CC1081ED31B9287890
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:2B8E8782F15B43C8685515CC1081ED31B9287890
 magnet:?xt=urn:btih:60480CD02ACCEBF0BA0C5F4611704556E27DAAFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Skillbox | Как открыть и развивать веб-студию (2018
 ```bash
 magnet:?xt=urn:btih:11E5F772CECF75CED440FC1222D8077C9263ED3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ Udemy, Mefodiy Kelevra | Wifi Pentesting | Взлом Wifi - Новый взгл
 magnet:?xt=urn:btih:68BEFD0DE0B3DBF7B5A2266A4F02F51F9CB44E01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:68BEFD0DE0B3DBF7B5A2266A4F02F51F9CB44E01
 ```bash
 magnet:?xt=urn:btih:33735D8A190887419A990CE24C893E0A1B97767E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ Udemy, Mefodiy Kelevra | Мастер Класс по шифрованию | Ver
 magnet:?xt=urn:btih:8F4C740BAE3E5D0B8319290B95A3D0C129EC6ADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ Udemy, Журавлёв Сергей | C++ Основы многопоточно
 ```bash
 magnet:?xt=urn:btih:5B55B9CE60736B28B1C507D9F6FAC040C5DD2BC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ Bash (от Bourne-again SHell) - интерпретатор команд, кот
 magnet:?xt=urn:btih:C3B26F669448A4D4BF3E1B4EC0BB76C0446F53B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ Udemy, JumpEng School | NEW! Английский для Айтишников (2
 ```bash
 magnet:?xt=urn:btih:B98906250C2C0F34AF75FB3CC500338B46BDEB7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ Lynda.com | Создание веб-приложений с помощью Ajax 
 magnet:?xt=urn:btih:0E0651A4DEA2A5D375AEE7BA8D8471EE9AC8AA0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ NestJS - это тот фреимворк, созданный для облег�
 ```bash
 magnet:?xt=urn:btih:009BDFD568603E35284A92DF4F9865F2ACD137A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ SEO Conference | Материалы VI Международной SEO Conference
 magnet:?xt=urn:btih:273C3D66208BCFFBF7F03BD07773F6F5233F2B9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ DevOps: непосредственно про процессы и культур
 ```bash
 magnet:?xt=urn:btih:FCBFE955CBADC1013F761C6BE94590D8E3C21448
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ magnet:?xt=urn:btih:FCBFE955CBADC1013F761C6BE94590D8E3C21448
 magnet:?xt=urn:btih:EF05D14912E930752956C66F451B39A58F39551E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ HolyJS 2021 Moscow (2-5 ноября 2021) - большая конференци
 ```bash
 magnet:?xt=urn:btih:3E70009C4881952B57804BB14BF415A36E4BCF36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:3E70009C4881952B57804BB14BF415A36E4BCF36
 ```bash
 magnet:?xt=urn:btih:688E98FA232020E4438A3839BDF71FF45618B169
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ magnet:?xt=urn:btih:688E98FA232020E4438A3839BDF71FF45618B169
 magnet:?xt=urn:btih:702AC31A5058C234F334BC905A580C80B86912CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ The Gnomon Workshop, Kat Unsworth | Modeling a Stylized Character for Games (202
 ```bash
 magnet:?xt=urn:btih:7A691FF69A1F0D820725A7529C4AD110FA3FE2D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

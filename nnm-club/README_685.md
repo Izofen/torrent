@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:6EB7E72E221734DCFFEAF0C841954E669D5E3A61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:6EB7E72E221734DCFFEAF0C841954E669D5E3A61
 ```bash
 magnet:?xt=urn:btih:DF64049187D82983E5084A56A94173A80D74CFCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:DF64049187D82983E5084A56A94173A80D74CFCA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:DF64049187D82983E5084A56A94173A80D74CFCA
 ```bash
 magnet:?xt=urn:btih:2B950C24B5FE4F0AE663C94A74FDDB41E29EE8FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Avium (2024) [Ru/Multi] (Patch 43/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:4D46DA3902E8EFA671F2A6FFEF82E26993AD39D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:4D46DA3902E8EFA671F2A6FFEF82E26993AD39D1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:4D46DA3902E8EFA671F2A6FFEF82E26993AD39D1
 magnet:?xt=urn:btih:8B8A1EA58D5C1FBBB40BE1E3243CF15076E8B7B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Minecraft в кино / A Minecraft Movie (2025) WEB-DL [H.264/720p] [MVO]
 ```bash
 magnet:?xt=urn:btih:11B142F1F7A74C0D9B879249C1142C3D1C9F3568
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:11B142F1F7A74C0D9B879249C1142C3D1C9F3568
 magnet:?xt=urn:btih:DD85BED025C88880811BC7DECC92EA8EC5719E8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:DD85BED025C88880811BC7DECC92EA8EC5719E8C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Diplomacy is Not an Option (2022) [Ru/Multi] (1.0.53r) Repack FitGirl
 magnet:?xt=urn:btih:596DA09827F0BE41FB4CB4A458FC9D8D3BFC9632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:596DA09827F0BE41FB4CB4A458FC9D8D3BFC9632
 ```bash
 magnet:?xt=urn:btih:9320FE85C46197A21BBD9742D925E266CE144FFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0x/dlc) Repack Let'sР
 magnet:?xt=urn:btih:EC2DADBCC6B89E674B6A2A44849B6445D8E79FEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:EC2DADBCC6B89E674B6A2A44849B6445D8E79FEA
 ```bash
 magnet:?xt=urn:btih:9B79A2EF6777A5E6370CE95890C81563715A0289
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:9B79A2EF6777A5E6370CE95890C81563715A0289
 magnet:?xt=urn:btih:789BFC1703AB48E2817D03BCB2734F188830A935
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:789BFC1703AB48E2817D03BCB2734F188830A935
 ```bash
 magnet:?xt=urn:btih:35672F40EDA3D8CD1384349A50D9DE871848B8DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ CD1-3 It's So Easy 3:15(   Читать дальше...   )Жанр: Hard RockП
 magnet:?xt=urn:btih:F5CC2888D145527A0C048467BDA64CE16E2321E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Ino-Head Gargoyle | Горгулья из парка Инокасира (2012) [
 ```bash
 magnet:?xt=urn:btih:E4BC5FC561435BCF7FBA40FC02F13B583193C99B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:E4BC5FC561435BCF7FBA40FC02F13B583193C99B
 magnet:?xt=urn:btih:7FF2CF46A630CC87357834033F714FA71B9104EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (build 16505703) Repack seleZ
 ```bash
 magnet:?xt=urn:btih:72572706997214463CC8DB362E1656C5B72BB2EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Sakuranbo Syndrome - Cupid no Itazura II | Шалость купидона: Ви
 magnet:?xt=urn:btih:2F0471481E7C43D17A5AD93E73B75AAB7813F9F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:2F0471481E7C43D17A5AD93E73B75AAB7813F9F9
 ```bash
 magnet:?xt=urn:btih:ABD17028373E57160F16B74989CFB88611298F0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Yakusoku no Neverland | Обещанный Неверленд (2016) [20 том�
 magnet:?xt=urn:btih:5D61C37E6F110826E1BEF8A7A40E7848D185C31F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:5D61C37E6F110826E1BEF8A7A40E7848D185C31F
 ```bash
 magnet:?xt=urn:btih:CA4C6FC96C2EC9269C067E18BC5515E750E375F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ Platinum End | Платиновый предел (2015) [14 томов, 28 гл�
 magnet:?xt=urn:btih:B39B17C1EAE8AD593A6A04FA49F9E7EE0C0CC0A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:B39B17C1EAE8AD593A6A04FA49F9E7EE0C0CC0A7
 ```bash
 magnet:?xt=urn:btih:17655A9750E7E91D01BD3E5CC6AFD02A3975D09C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Neon Abyss сочетает динамичный сюжет в стиле «ст
 magnet:?xt=urn:btih:67023D92506EB8CE9C4C11A0BBC09E9A5AF9E648
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Grim Guardians: Demon Purge (2023) [Multi] (1.0) Scene TiNYiSO
 ```bash
 magnet:?xt=urn:btih:EC7120948EB14037DB14B22050314D628AB50068
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Void Scrappers расскажет об извечном противостоян
 magnet:?xt=urn:btih:3380D8B538A0123A0D1A905078EC6D7C8C265090
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Terminus: Zombie Survivors - пошаговая игра на выживание
 ```bash
 magnet:?xt=urn:btih:0348FA4CBDD7506D014C93460DCA3065736FEF78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ SENRAN KAGURA SHINOVI VERSUS (2016) [Multi] (6) License GOG [18+]
 magnet:?xt=urn:btih:B22C8AD36A591B3D70E8D1BF43C0A5BB4E57E253
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Clone Drone in the Danger Zone – увлекательная аркада, в �
 ```bash
 magnet:?xt=urn:btih:F0ABBCBF39EB079A80BC87F4E9B12202407523B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The friends of Ringo Ishikawa – это сплав из RPG, beat 'em up и с�
 magnet:?xt=urn:btih:7608F9318BCD895F77339461882A2DC85A0B041E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Mortal Kombat 11 – продолжение культовой серии фай
 ```bash
 magnet:?xt=urn:btih:3714EDFD2580FC0C3B3C9186B6EF5EEA86BB26D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Baby Storm (2023) [Multi] (2.12.4) License GOG
 magnet:?xt=urn:btih:6C0DCE2FB4DB2E1BC05112668795529034899DE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Nitro Racers (2022) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:46BFF8A8146F0223EE91DFCB35506CFE6909EF98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Swordship переносит игроков в футуристический м
 magnet:?xt=urn:btih:9B24D99F7A04848F613132EE6AE6E1D3D2CBE667
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Secret Agent (1992) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:6535BF87F9BDB3B7719AE565C9B627757B88F966
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Starless использует научно-фантастический сетт
 magnet:?xt=urn:btih:3F1EBC5C39E3B0BDEE896779A7DB5CDDEA28A352
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Nobody Saves the World (2022) [Ru/Multi] (31300/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:A56A114EF3E3ADBC32D985A3D6D2B96CEAA847BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Bandits: Phoenix Rising / Бандиты: Безумный Маркс (2002) [Ru
 magnet:?xt=urn:btih:49BCB6088C35195C8C73D69F35E64BFF743CF6B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Koa and the Five Pirates of Mara (2023) [Multi] (1.2.1s) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:37D4CC1449A29073D838541227326E010AD3FF77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Rhythm Sprout: Sick Beats & Bad Sweets - это увлекательная ри�
 magnet:?xt=urn:btih:4EA615BEAD1C107FABE224BEAFA5296DF3B748AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ LEGO DC Super-Villains (2018) [Ru/Multi] (1.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:BBE49B8C6BFC94EE5E80A7FB4C456AE9C938290F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Edge Of Galaxy – стратегия с непрямым управлением
 magnet:?xt=urn:btih:DF0A08B991B5AF4DAAACB753A0E3F77D7545AAA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Shing! - трехмерный экшен-рогалик, построенный 
 ```bash
 magnet:?xt=urn:btih:EA3ABDFB3DA2DFA4292BEFFD2D87E62FB2DED34A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Mari & Bayu: The Road Home – кооперативное 2D-приключен�
 magnet:?xt=urn:btih:141630019555B77A0DC059DD0494D512A1F828D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Black Skylands (2021) [Ru/Multi] (1.0.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:BA4DE3D76EF7DB1111CFBC4CC40AB1D783424AB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Asterix & Obelix XXXL: The Ram From Hibernia (2022) [Ru/Multi] (1.03.2) License 
 magnet:?xt=urn:btih:602E19F437B25510660B510DA88D64FA731B6D47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Nickelodeon All-Star Brawl (2021) [Multi] (1.0.5) License CODEX
 ```bash
 magnet:?xt=urn:btih:06E30A3C736A2E32B8100815481B3024558932CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Solar Ash (2021) [Ru/Multi] (1.03.44179) License CODEX
 magnet:?xt=urn:btih:2550935EF11CAAC1B8ACC8F20D97FE7F75147AD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Deathtrap (2015) [Ru/Multi] (1.0.5) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:5305EC673F221242968B5F7BF652D049329B9ABB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -27,6 +27,8 @@ Ten Years After - Ten Years After (1967) [APE|Lossless]<Blues Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -59,6 +61,8 @@ Morgan Page - In The Air (2012) [MP3|320 кб/с]<Progressive House>
 ```bash
 magnet:?xt=urn:btih:71633CCDA35D3D6AD75874080557ECB2E9E95154
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +97,8 @@ VA - Cool Emotions Compiled by Easy Coutiel 4CD (2012) [MP3|320 кб/с]<Lounge,
 magnet:?xt=urn:btih:DCC0826777B361084B76E909265217DF1B809F26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +122,8 @@ magnet:?xt=urn:btih:DCC0826777B361084B76E909265217DF1B809F26
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +156,8 @@ Job For A Cowboy - Demonocracy (2012) [MP3|320 кб/с]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:FC7C02CADA6961B0DDEE2DA192D86195F3F8CA5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +192,8 @@ Tyrant Of Death - Re Connect (2012) [MP3|320 кб/с]<Math Metal>
 magnet:?xt=urn:btih:78AFDA66A43A3654F579E8F1BE72D1BA31FDC5D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +227,8 @@ VA - Dancefloor Fever Winter (2012) [MP3|320 kbps]<Club | Dance | House>
 magnet:?xt=urn:btih:825E1625A6C6B36836C4F9932A9CFBDA89E42A6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +255,8 @@ FireAlpaca – простой в освоении и достаточно фун
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +280,8 @@ FireAlpaca – простой в освоении и достаточно фун
 ```bash
 magnet:?xt=urn:btih:18835299C8C4D072589C416A1DD3313341A0D276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +312,8 @@ magnet:?xt=urn:btih:18835299C8C4D072589C416A1DD3313341A0D276
 magnet:?xt=urn:btih:E07DE3A8D6FF39EAB83BE7A30ECB76D0C7141D86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +337,8 @@ magnet:?xt=urn:btih:E07DE3A8D6FF39EAB83BE7A30ECB76D0C7141D86
 ```bash
 magnet:?xt=urn:btih:2D43B85A6C6F7E35B9F19331DA5ECB8F25A6E6D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +366,8 @@ magnet:?xt=urn:btih:2D43B85A6C6F7E35B9F19331DA5ECB8F25A6E6D4
 magnet:?xt=urn:btih:F3C1193EEE2B032C26FACADA2FA8122C95BA77C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +391,8 @@ magnet:?xt=urn:btih:F3C1193EEE2B032C26FACADA2FA8122C95BA77C5
 ```bash
 magnet:?xt=urn:btih:7E3E82E8B47825F03D6E2BDB76BBA57C72046C0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +427,8 @@ magnet:?xt=urn:btih:7E3E82E8B47825F03D6E2BDB76BBA57C72046C0F
 magnet:?xt=urn:btih:F1470F49DB7A1510234BDB60791E7F13C7CDEC40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +452,8 @@ magnet:?xt=urn:btih:F1470F49DB7A1510234BDB60791E7F13C7CDEC40
 ```bash
 magnet:?xt=urn:btih:A8884846BC893584AF8774E3724D6B64BCC77831
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +480,8 @@ magnet:?xt=urn:btih:A8884846BC893584AF8774E3724D6B64BCC77831
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +516,8 @@ VA - Танцевальное Движжение 50/50 (2012) [MP3|224 kbps]<Clu
 magnet:?xt=urn:btih:157D2DD5DA748D386172462B7D5FF7E134736FC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +551,8 @@ VA - Wellness Hotels (2012) [MP3|320 кб/с]<Downtempo, ChillOut, Lounge>
 magnet:?xt=urn:btih:966B649CA72D5B46E331093F147A54FCD13CC923
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +576,8 @@ magnet:?xt=urn:btih:966B649CA72D5B46E331093F147A54FCD13CC923
 ```bash
 magnet:?xt=urn:btih:638E2B36BBD194462CA2A742ACCDDCA39416B348
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +607,8 @@ Mariko Makino - On the Beach (2005) [MP3|320 кб/с]<New age, Relax>
 magnet:?xt=urn:btih:93FA2233151C4ED8678F1A1D9D6074C8153C8DFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +633,8 @@ Desultor - Masters Of Hate (2012) [MP3|320 кб/с]<Progressive Death>
 ```bash
 magnet:?xt=urn:btih:CA3EA4730D959004C2798207AB67EB43999EA279
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +669,8 @@ VA - С Нами Не Соскучишься 50/50 (2012) [MP3|256 kbps]<Pop | D
 magnet:?xt=urn:btih:131980E89AAA23C820A4A1BD415798AE3AA5C883
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +698,8 @@ magnet:?xt=urn:btih:131980E89AAA23C820A4A1BD415798AE3AA5C883
 ```bash
 magnet:?xt=urn:btih:2FD6E8860A56B8342E31FC14A46A09BFEC65C841
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -688,6 +734,8 @@ VA - Klubnye novinki Vol.62 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
 magnet:?xt=urn:btih:78C3C39845331D6981D135CB2640B53ADC384490
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -713,6 +761,8 @@ Sarcophagy - The Summoning (2012) [MP3|320 кб/с]<Brutal Death>
 ```bash
 magnet:?xt=urn:btih:4EEAC44FEA239D1DA42B971E9A0F07CFE50BC9E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -746,6 +796,8 @@ VA - Клубная хитовая волна (2012) [MP3|160-320 кб/с]<Club>
 ```bash
 magnet:?xt=urn:btih:1268BCA0176A29BEAF49FF0591309A4B306A4437
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

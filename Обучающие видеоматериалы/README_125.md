@@ -19,6 +19,8 @@ Liveclasses, Саша Чалдрян | Основы коллажа (2019) WEB-DL
 magnet:?xt=urn:btih:36D441532CD2FF67BEBB8D4F5D03C3128B76A0C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:36D441532CD2FF67BEBB8D4F5D03C3128B76A0C5
 magnet:?xt=urn:btih:6B76A58221B18C05D368683E14DE80A402631E6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Skillshare, Yassine Larayedh | Create Realistic Looking Forests & Mountains in B
 ```bash
 magnet:?xt=urn:btih:C13EF64EB71C23EDB4B9EDB55E5C7C1713093273
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Meg Bitton | CLASSIC PHOTOSHOP EDITS VOLUME III (2019) WEB-DL [EN]
 magnet:?xt=urn:btih:1B00E7E2EFD53034CADF3BB9C386538B61FC5FC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Pyro II Flames & Sparse Pyro — это курс, призванный помо�
 ```bash
 magnet:?xt=urn:btih:C22C56E95856B6CFD659248EECFD2DD387C3EFA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Artmeup, Кристина Бриль | Текстурная живопись (20
 magnet:?xt=urn:btih:C511EB117594099110E9EBA4D63903A5DCCD72D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:C511EB117594099110E9EBA4D63903A5DCCD72D7
 ```bash
 magnet:?xt=urn:btih:91D59266B4137E5D8222B85EDA25BA38ED9E0CF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ Fluidart, Екатерина Гаврилова | Онлайн курс «Сов
 magnet:?xt=urn:btih:3EEA8B2E3405396D829A6B8CF3C6E929F525639D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ MasterClass , Terence Tao | Teaches Mathematical Thinking (2022) WEB-DL [EN / EN
 magnet:?xt=urn:btih:CCD47F24B3BE8E1C365E72911EEAE1A3FAA4249A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ Artilike, Галина Гомзина | Акварельный интенсив 
 ```bash
 magnet:?xt=urn:btih:A44A3C98115535DCAC67065343DD11F03426C650
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:A44A3C98115535DCAC67065343DD11F03426C650
 magnet:?xt=urn:btih:8190FC144374E0537B5E19A5AAC899F365649E9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ magnet:?xt=urn:btih:8190FC144374E0537B5E19A5AAC899F365649E9B
 magnet:?xt=urn:btih:C3BCB5D884B3F01ECE179FB1A866D80FDBC0BAA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ PSY2.0, Михаил Филяев, Екатерина Пыхарева и др. 
 ```bash
 magnet:?xt=urn:btih:77995478849E8F06ED4C859554A315FAE95883B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ Humanity-Life, Владлен Статный | Оперативная психо
 magnet:?xt=urn:btih:725D828F250B857EA45EED83E0A28F058655EBF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ A самое главное, вы (   Читать дальше...   )Прои�
 ```bash
 magnet:?xt=urn:btih:460FAE52CDF468304019BAA20C264C193E52AAA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ ituroki.info, Jamalov Elchin | IP телефония 3CX (2022) WEB-DL [AD] [RU]
 magnet:?xt=urn:btih:CD9DD1C9ED96915F46DAA9DDEB943212E2BBADC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +465,8 @@ Udemy, Luke Priddy | English Grammar Complete | All English Sentence Patterns (2
 magnet:?xt=urn:btih:BC36B4C4736B0825675B665A954602E678E60ED2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +491,8 @@ HSCAKE | Китайский для начинающих (2022) WEB-DL [AD] [RU]
 ```bash
 magnet:?xt=urn:btih:92BF1BC380F4CAB70E3EB0AF2DF2C04CAA567691
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +521,8 @@ Udemy, Pikuma.com, Gustavo Pezzi | Learn Assembly Language by Making Games for t
 magnet:?xt=urn:btih:86FCE2F67C5943BBE4CCC8A5C906D10E517E8838
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +550,8 @@ Profit, Степанцев Альберт | Вебинар «Асинхронн�
 magnet:?xt=urn:btih:72B1AF16D9B245D911AE90C9F0190B6F7CDDF157
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +575,8 @@ Proprofiling, Алексей Филатов | Скрытые внушения в
 ```bash
 magnet:?xt=urn:btih:D7FAC32BA0F8BFBBF070918F5558308493048563
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +605,8 @@ Linguatrip, Веня Пак | Произношение 2022 (2022) WEB-DL [AD] [
 magnet:?xt=urn:btih:A70F21824D4B14771876C11852E3529FDEBB37A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +633,8 @@ magnet:?xt=urn:btih:A70F21824D4B14771876C11852E3529FDEBB37A2
 magnet:?xt=urn:btih:80097B875A093FC5D70040C136380F83EC80A210
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +658,8 @@ Udemy, Matthew Blackwood | Rigging Vehicles with Rigid Body Physics in Blender 3
 ```bash
 magnet:?xt=urn:btih:E0EE9A376927EABAE4AB9F35692AB8512F5AE821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +687,8 @@ Udemy, Nexttut, Hamidreza Afshari | Texturing a Complete Scene in Substance 3D P
 magnet:?xt=urn:btih:B261378257117962B7AC8FE05D05ABC5F2EBD2EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +714,8 @@ magnet:?xt=urn:btih:B261378257117962B7AC8FE05D05ABC5F2EBD2EE
 ```bash
 magnet:?xt=urn:btih:D66FBF14C5CDCA6D513661C27E0CCA7C077FE6F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

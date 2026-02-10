@@ -22,6 +22,8 @@ Peng Jing - A Good Day (2004) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Ins
 magnet:?xt=urn:btih:8C422EA87B244F556B8EDEE26FB4AB4A9BC948AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Electronic Medicine - Binaural Meditation, Relaxing Deep Yoga Flow and Heal
 ```bash
 magnet:?xt=urn:btih:EA9939298770A04060B1DEC3DF0A2F50ADAEDA88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Isaloc grammh (2008) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
 magnet:?xt=urn:btih:AAFABDE9B308E607EA2DBE752E9B7F3B465EC8D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Klayton - The Dunes (Original Motion Picture Score) (2020) (2020) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:C56B34299D8931881686E8E7B7CF398673608C72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Klayton - The Dunes (Original Motion Picture Score) (2020) [MP3|320 кб/с]<Sou
 magnet:?xt=urn:btih:8F8AF7B93E0B3068DEE213359954180C07288B56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Benjamin Wallfisch - The Invisible Man / Человек-невидимка (Orig
 ```bash
 magnet:?xt=urn:btih:2B74524DAC46F84CCE7EB749F7743784A5AF1C99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:2B74524DAC46F84CCE7EB749F7743784A5AF1C99
 magnet:?xt=urn:btih:6B7E635338EEF2EDBBABCCAA32B9E81BDD1C4569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Voidoid - The Greatest Movie Anthems of All Time (2018) [MP3|320 кб/с]<Soundt
 ```bash
 magnet:?xt=urn:btih:6F63F9ADFA0404E980F5FDEE1B0D348E630C4344
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:6F63F9ADFA0404E980F5FDEE1B0D348E630C4344
 magnet:?xt=urn:btih:3D443E8F13FDC5A330878B497B07E4816E666FFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Benjamin Wallfisch - The Invisible Man / Человек-невидимка (Orig
 ```bash
 magnet:?xt=urn:btih:2886131B078C56912139153582BBE1D9AF109798
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Andrew Swarbrick - The Runaways (Original Motion Picture Score) (2020) [MP3|320 
 magnet:?xt=urn:btih:61CC71626731D16294E0251C88E73903A64DA81D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Voidoid - The Greatest Movie Anthems of All Time (2018) [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:EAA089D2277BE7815CA22BB2F76215634D5C6722
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Aldo Shllaku - Triumph (Original Motion Picture Soundtrack) (2019) [FLAC|Lossles
 magnet:?xt=urn:btih:2030577BCFA0D52E0A3D609F3A01D3268CEAA4F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Andrew Swarbrick - The Runaways (Original Motion Picture Score) (2020) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:3990566FAD3BE209A28410F9922F1DE888DAC99E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Aldo Shllaku - Triumph (Original Motion Picture Soundtrack) (2019) [MP3|320 кб
 magnet:?xt=urn:btih:3455CF0C7DE2BDEEB1181AFE36876CF7B358AD88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Nick Ingman & Prague Philarmonia - Classic Love At The Movies (1999) S&V #10/200
 ```bash
 magnet:?xt=urn:btih:72ACE64C3A297EF60A8B093AAF98DEE651F986A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Mars Lasar - Jazz from Mars (2016) [MP3|320 кб/с] <New Age, Ambient, Electron
 magnet:?xt=urn:btih:640E117891F9AE17A709BEA750120CEFABF78BCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ African Head Charge - Songs Of Praise (1990) [MP3|320 кб/с] <Reggae, Dub>
 ```bash
 magnet:?xt=urn:btih:4641D8E68F7D1ACD785CBEFBB2937F9DAE2F1B8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ Head Splitter - Cyberpunk 2077 Fanmade Soundtrack (2019) [MP3|320 кб/с] <Soun
 magnet:?xt=urn:btih:6B23881A7F868FC8FD80B78F8F637034DA6160EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Head Splitter - Cyberpunk 2077 Fanmade Soundtrack (2019) [FLAC|Lossless|tracks] 
 ```bash
 magnet:?xt=urn:btih:1D2B9195F1948D59401D85FA74E48B08AD312119
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Various Artists - Mulheres Apaixonadas, Vol. 1 (2003) [FLAC|Lossless|tracks + .c
 magnet:?xt=urn:btih:4A27A2552653821179B500A3858E68827AA027AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +631,8 @@ Metal Fortress (Mike Morasky) - Team Fortress 2 Final Remix (2020) [MP3|320 кб
 magnet:?xt=urn:btih:79EE645FFE5B452A654BE4799FBB2B48E7EB873A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +659,8 @@ VA - Star Wars Headspace (2016) [MP3|320 кб/с] <Electronic, Soundtrack>
 ```bash
 magnet:?xt=urn:btih:F428762AD90767312BCD54CA6783A3694E233E17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +695,8 @@ Messiah Project - (2 альбома) (2012-2013) [MP3|320 кб/с]<Enigmatic,New
 magnet:?xt=urn:btih:91FA69BDED22330654311DAA8AFAA26244423D20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,6 +724,8 @@ Louis Landon - Provocative Piano (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumen
 magnet:?xt=urn:btih:75B545FCA1A3A06066C720DFA9035ACEB71F3C19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -702,6 +752,8 @@ Nick Skachkov - Baba Yaga: Terror of the Dark Forest / Яга. Кошмар тё
 ```bash
 magnet:?xt=urn:btih:EFAD2AFE36D6A679D0225379D648CD73C371EE6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Landlord’s Super – интересный симулятор, перенося
 magnet:?xt=urn:btih:C4F9A1E341B07BAA7CD6E214BE84876966FC7B33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Wizardry: Proving Grounds of the Mad Overlord - это полный 3D-риме�
 ```bash
 magnet:?xt=urn:btih:0B53E47198CD1869F83DD5461BBAB9E36ADE6AA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Heroes of Eternal Quest – окунитесь с головой в настоя
 magnet:?xt=urn:btih:082EA33DCC5C57E6D100065FFA8082FA9102442F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Cavalry Girls - захватывающий шутер с видом сверху
 ```bash
 magnet:?xt=urn:btih:E0188C966C560D93BB691A96CCB35C6A0143DB07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Rise Eterna War (2024) [Multi] (20240813 2) License GOG
 magnet:?xt=urn:btih:5779841EE1404F51ECF57DE116CB500F9B002840
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Elemental Exiles / Странники стихий (2024) [Ru/Multi] (1.0) Scene
 ```bash
 magnet:?xt=urn:btih:2C909E1D268766182FE99D04EEF9F749082A8A3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Yohane the Parhelion - NUMAZU in the MIRAGE - (2024) [Multi] (1.0.14/dlc) Scene 
 magnet:?xt=urn:btih:41A7EB231CB28B45D1C1AA11BC12A64986762AEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Hellcard выполнен в той же стилистике, что и ори�
 ```bash
 magnet:?xt=urn:btih:1979287BDF3EFFD489B2F0725E440FCAE64F79FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Trinity Trigger предлагает геймерам потрясающее п�
 magnet:?xt=urn:btih:F2D860B7D4D60F8DCCC918F139B318F1EEE186DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Yog-Sothoth's Yard - это ролевой симулятор строитель
 ```bash
 magnet:?xt=urn:btih:881EB5AB424F358F9CE5ABD2B580425309316AF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ For The King II (2023) [Ru/Multi] (1.2.15/dlc) Scene Rune
 magnet:?xt=urn:btih:8063B752341A5CA2F37FFAD0620DC4C991440680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Old School RPG – встречайте нашу увлекательную фэ
 ```bash
 magnet:?xt=urn:btih:82B0779EFC4F7C7F9405E12F9EDD507FF96F1937
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ In Woods - это игра-выживание в стиле Roguelike, дейс�
 magnet:?xt=urn:btih:524357095DA00EB416B5F1D7D01E3528EB534859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Hero's Adventure - это ролевая адвенчура с открытым 
 ```bash
 magnet:?xt=urn:btih:A41E649912B237D5E6A2002A6D0242D57F504D1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Shoulders of Giants представляет собой научно-фанта�
 magnet:?xt=urn:btih:62D36B31FE1DC7670CF053E5051F77EB590F1B5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:62D36B31FE1DC7670CF053E5051F77EB590F1B5E
 ```bash
 magnet:?xt=urn:btih:866E296D060DA07E4AC89558E68725B6FE3B89A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Last Case of Benedict Fox - это захватывающее и мрачн�
 magnet:?xt=urn:btih:C988146E3B3509F8C7EA804234AD2DF0FBCD9064
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Tale of Immortal, песочница с открытым миром, глубо�
 ```bash
 magnet:?xt=urn:btih:09466F81F005565EC0435D9CDE7F040F6084AFD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Old School RPG – встречайте нашу увлекательную фэ
 magnet:?xt=urn:btih:A132C67E4D2AE89678734086D3156C2FC9F69B31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ One More Night – перед вами довольно насыщенная Р�
 ```bash
 magnet:?xt=urn:btih:E82538DB0C2893C5CD4C51E31FD22C9F9AB07FC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Atlas Fallen (2023) [Ru/Multi] (1.118888/dlc) Scene Rune
 magnet:?xt=urn:btih:D85E7B59BC657BB576B7E7EA9540D5857772AF84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Artifact Seeker погружает вас в 3D Roguelike RPG, где Аврор
 ```bash
 magnet:?xt=urn:btih:8F60E7DB396EE13EF10A69DE07BBEFC4127BEB86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Space Prison бросает вас в холодную реальность га
 magnet:?xt=urn:btih:613D4C70D3EEE67FEA970E77B3DCD6866197F4CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ That Time I Got Reincarnated as a Slime ISEKAI Chronicles (2024) [Multi] (1.01/d
 ```bash
 magnet:?xt=urn:btih:25F7700E57F0F891489EA35DE20F1738332F90CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Deathbound - действие игры разворачивается в сре�
 magnet:?xt=urn:btih:B21EB2D092118BB5248EACFFFAD7DDB141924CEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Thaumaturge - изометрическая ролевая игра с глу
 ```bash
 magnet:?xt=urn:btih:314408D0D32415418EF8924FE98315573DEE041E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

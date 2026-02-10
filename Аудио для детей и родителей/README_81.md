@@ -22,6 +22,8 @@ VA - Super Hit. Летняя дискотека. Часть 1 (2012) [MP3|224 к
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ VA - Super Hit. Летняя дискотека. Часть 1 (2012) [MP3|224 к
 ```bash
 magnet:?xt=urn:btih:F78E3AB9DA9FEAEA099F9BC0276C58EEC0873900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:F78E3AB9DA9FEAEA099F9BC0276C58EEC0873900
 magnet:?xt=urn:btih:AC1C602BC993DA5923307DE67216C34018327902
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:AC1C602BC993DA5923307DE67216C34018327902
 ```bash
 magnet:?xt=urn:btih:6544CFF1322DD6D7C45335F6A9BBF90FE4535897
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Raimond Lap - Klasyka Bobasa (2005) [MP3|320 кб/с]<Классическая �
 magnet:?xt=urn:btih:18FA378CE0F20DA068CBFC999C5412E35210F423
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:18FA378CE0F20DA068CBFC999C5412E35210F423
 ```bash
 magnet:?xt=urn:btih:4DFD7F40826F459D5B4D51525F5B28EF2B96504E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:4DFD7F40826F459D5B4D51525F5B28EF2B96504E
 ```bash
 magnet:?xt=urn:btih:3151C0144C33B90F83803D947ED7C97D94B0CC3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ Raimond Lap - Madry bobas (2008) [MP3|320 kbps]<Детская музыка>
 magnet:?xt=urn:btih:4D58647D164F051D6504B8E2946198EFC6588D24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ Raimond Lap - Usypianki bobasa (2005) [MP3|320 кб/с]<Детская музы�
 magnet:?xt=urn:btih:367650C8087076901B53ACD81F0565D58732D242
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:367650C8087076901B53ACD81F0565D58732D242
 ```bash
 magnet:?xt=urn:btih:5EE27C68261BE233EEAD64C0EB1F753873C70ADD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:5EE27C68261BE233EEAD64C0EB1F753873C70ADD
 magnet:?xt=urn:btih:86EF49B093DA4F8310B7E0C6C98CD0F5AF4EA4A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:86EF49B093DA4F8310B7E0C6C98CD0F5AF4EA4A3
 ```bash
 magnet:?xt=urn:btih:63C2EC06E4AB3752BFAF07701A72D71D5ED36723
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ Raimond Lap - Muzyka bobasa 3 (2003) [MP3|320 кб/с]<Детская музык
 magnet:?xt=urn:btih:55C18B301131ACD16EAB08AAD630990A287AE311
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ Raimond Lap – Muzyka bobasa 1 (2002) [MP3|320 кб/с]<Детская музы
 ```bash
 magnet:?xt=urn:btih:EB3CE0CECB42D9E0CC9D6EF315550910CA1AEAB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ Raimond Lap - Muzyka bobasa 2 (2003) [MP3|320 кб/с]<Детская музык
 magnet:?xt=urn:btih:2EEBFF65370D23E5CA8C1A27D4406B8542D12915
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:2EEBFF65370D23E5CA8C1A27D4406B8542D12915
 ```bash
 magnet:?xt=urn:btih:4C24924619B5A1C18887DDF9A10F38873F76387C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ VA - Ultimate Disney [3 Альбома] (2004) [MP3|320 kbps]<Детская м�
 magnet:?xt=urn:btih:2E2AB6EBDDB8E215F0AB1205752147A37FC0BA06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:2E2AB6EBDDB8E215F0AB1205752147A37FC0BA06
 ```bash
 magnet:?xt=urn:btih:92712CA9870907D19957ED36FC320CF56B33D48D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:92712CA9870907D19957ED36FC320CF56B33D48D
 magnet:?xt=urn:btih:0E1D74685811998A363A31CE52027F55E7AC6587
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:0E1D74685811998A363A31CE52027F55E7AC6587
 ```bash
 magnet:?xt=urn:btih:FD07A754ECC5089741D8F270C750D4DC7EE7BD26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:FD07A754ECC5089741D8F270C750D4DC7EE7BD26
 magnet:?xt=urn:btih:457BB4F9ADA3783F226660EEE634B6C435B35B66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ magnet:?xt=urn:btih:457BB4F9ADA3783F226660EEE634B6C435B35B66
 magnet:?xt=urn:btih:603FFC893748782870BAB95A772B221CA0EBCC8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:603FFC893748782870BAB95A772B221CA0EBCC8C
 ```bash
 magnet:?xt=urn:btih:299C996114849455400399E6020B639EEC69F918
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ magnet:?xt=urn:btih:299C996114849455400399E6020B639EEC69F918
 magnet:?xt=urn:btih:838BC2516E777D592DFBD7FD032FBBCD25263DB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ magnet:?xt=urn:btih:838BC2516E777D592DFBD7FD032FBBCD25263DB3
 magnet:?xt=urn:btih:60F8A8ABDF5E324843B27F08E10968CB1C37B4D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ magnet:?xt=urn:btih:60F8A8ABDF5E324843B27F08E10968CB1C37B4D4
 ```bash
 magnet:?xt=urn:btih:5CA70B97EB83A1507E7015ABF879DB12CC1ACB60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

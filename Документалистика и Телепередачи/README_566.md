@@ -1,3 +1,30 @@
+###  Публикация: 1015010   (775796) от 09.05.2016
+
+Парад Победы, посвященный 71-ой годовщине Победы в ВОВ 1941-1945г., Владивосток (2016.05.09) SATRip
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Военный парад, посвященный 71-й годовщине Победы в Великой Отечественной войне.
+Каждый год 9 мая во многих странах мира отмечают День Победы над немецко-фашистскими захватчиками. Но нигде этот праздник не празднуют с таким размахом, как в России. В 2016 году отмечается 71 год со Дня Победы.Жанр: Документальный, военный парадСубтитры: ОтсутствуютПродолжительность: 01:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:971EE91461D301F023F8D4B34A7A41140AF56214
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015032   (775798) от 09.05.2016
 
 Парад Победы, посвященный 71-ой годовщине Победы в ВОВ 1941-1945г., Екатеринбург (2016.05.09) SATRip
@@ -19,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:A4FD4781EE2AFEA59BCA63D4AECF1AA6A40368E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@ magnet:?xt=urn:btih:A4FD4781EE2AFEA59BCA63D4AECF1AA6A40368E7
 magnet:?xt=urn:btih:28B32A7D53500435B96319CC0CD33BC3AD704122
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +100,8 @@ magnet:?xt=urn:btih:28B32A7D53500435B96319CC0CD33BC3AD704122
 ```bash
 magnet:?xt=urn:btih:7CF1056932D868DCB1CD2CB215AA60CF1BB83E16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +128,8 @@ magnet:?xt=urn:btih:7CF1056932D868DCB1CD2CB215AA60CF1BB83E16
 magnet:?xt=urn:btih:22C4A0331426A24E1EB5CF55286FBCD9B5210110
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +153,8 @@ Eвгений Малкин. Русский среди "Пингвинов" (2016
 ```bash
 magnet:?xt=urn:btih:D23647A555676339A676F09272924D2EDE6BCB47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +181,8 @@ magnet:?xt=urn:btih:D23647A555676339A676F09272924D2EDE6BCB47
 magnet:?xt=urn:btih:D987F53F4F3AD9B7F166C876E8FEF0D5E1390AEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +207,8 @@ magnet:?xt=urn:btih:D987F53F4F3AD9B7F166C876E8FEF0D5E1390AEA
 magnet:?xt=urn:btih:C3B5429CC8FC3867F8D05EA8106B086B86DE1EAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +232,8 @@ magnet:?xt=urn:btih:C3B5429CC8FC3867F8D05EA8106B086B86DE1EAC
 ```bash
 magnet:?xt=urn:btih:92B8891C29A57C5A89A65207E5AB4360D3E301E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +260,8 @@ magnet:?xt=urn:btih:92B8891C29A57C5A89A65207E5AB4360D3E301E2
 magnet:?xt=urn:btih:22B4B900F4DD3A72C05B9868AB0E6BB8C2A9B889
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +287,8 @@ magnet:?xt=urn:btih:22B4B900F4DD3A72C05B9868AB0E6BB8C2A9B889
 magnet:?xt=urn:btih:E31AE601BE75DF558C75EB3EEC65C40114D2A29A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +312,8 @@ magnet:?xt=urn:btih:E31AE601BE75DF558C75EB3EEC65C40114D2A29A
 ```bash
 magnet:?xt=urn:btih:BCFD5EF60C6CCBC21F62C0B12BB1FD22663E8B48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +342,8 @@ magnet:?xt=urn:btih:BCFD5EF60C6CCBC21F62C0B12BB1FD22663E8B48
 magnet:?xt=urn:btih:CADF0C9F2AEDD8287353F54B034EF68993437BC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +367,8 @@ magnet:?xt=urn:btih:CADF0C9F2AEDD8287353F54B034EF68993437BC8
 ```bash
 magnet:?xt=urn:btih:D6F759CE3B9EAEFFAF9CB560E08A580B6816F3C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +394,8 @@ magnet:?xt=urn:btih:D6F759CE3B9EAEFFAF9CB560E08A580B6816F3C5
 magnet:?xt=urn:btih:2772DDD3D3F6E43351D9A5435D0C144761C6D857
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +419,8 @@ magnet:?xt=urn:btih:2772DDD3D3F6E43351D9A5435D0C144761C6D857
 ```bash
 magnet:?xt=urn:btih:F21C7050555FA89F35090CBDCFC512C35C5A750A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +447,8 @@ magnet:?xt=urn:btih:F21C7050555FA89F35090CBDCFC512C35C5A750A
 magnet:?xt=urn:btih:5C955A76ED5010B732D271A3B88B67D31DD69202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +474,8 @@ magnet:?xt=urn:btih:5C955A76ED5010B732D271A3B88B67D31DD69202
 magnet:?xt=urn:btih:C7CA011111D7E3B31419BEC48CF7844FBEB14542
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +499,8 @@ magnet:?xt=urn:btih:C7CA011111D7E3B31419BEC48CF7844FBEB14542
 ```bash
 magnet:?xt=urn:btih:37D0A07FAA3709F72E7A8DCFA0507038C7022156
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +527,8 @@ magnet:?xt=urn:btih:37D0A07FAA3709F72E7A8DCFA0507038C7022156
 magnet:?xt=urn:btih:18F45A7ADCF3E47286846564E526F755FDBADF58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +554,8 @@ magnet:?xt=urn:btih:18F45A7ADCF3E47286846564E526F755FDBADF58
 magnet:?xt=urn:btih:EDA0B87AAB49D16B4DC488AA374DFDE3816FD153
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +579,8 @@ magnet:?xt=urn:btih:EDA0B87AAB49D16B4DC488AA374DFDE3816FD153
 ```bash
 magnet:?xt=urn:btih:DDA24A0CEB70E0618196944EE1775DBE7C9AE173
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +606,8 @@ magnet:?xt=urn:btih:DDA24A0CEB70E0618196944EE1775DBE7C9AE173
 magnet:?xt=urn:btih:AE0D26ADB034E7CA81A3380CBE98AE6EC713BAAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +631,8 @@ magnet:?xt=urn:btih:AE0D26ADB034E7CA81A3380CBE98AE6EC713BAAC
 ```bash
 magnet:?xt=urn:btih:3BA3773CB0B4CE9354A0DDE14D8CF8EE7694FE53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +658,8 @@ magnet:?xt=urn:btih:3BA3773CB0B4CE9354A0DDE14D8CF8EE7694FE53
 magnet:?xt=urn:btih:3A533EDC00C5DDECF6CC8511CD19535E4BEA1F24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,29 +684,7 @@ magnet:?xt=urn:btih:3A533EDC00C5DDECF6CC8511CD19535E4BEA1F24
 magnet:?xt=urn:btih:2E76C6A930C56A69BFB3DADBCCDC3826BB9C57F8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014764   (776160) от 08.05.2016
-
-Генерал Граве. Modus vivendi (2005) DVB
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иван Платонович Граве - специалист в области баллистики, конструктор-артиллерист, изобретатель боевой ракеты на бездымном порохе. С 1942 г. генерал-майор инженерно-технической службы, лауреат Сталинской премии. Гораздо менее его знают как прародителя знаменитой "Катюши".Телекомпания: Россия, ГрандСтоун-М, Телеком-ПроектЖанр: Документальный, БиографияПродолжительность: 00:25:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8024582243F8DC4F756B81442220BFBE5A686D1
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

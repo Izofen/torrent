@@ -1,3 +1,29 @@
+###  Публикация: 1109204   (860992) от 26.02.2017
+
+Лучше всех (2017.02.26) SATRip (сезон 2, выпуск 3)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое детское телевизионное шоу талантов, куда приглашаются юные участники от трех до 12 лет. Если ваш ребенок проявляет экстраординарные способности, то его ждут в нашем шоу!Телекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 01:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:805B999A8E5975E98AC95CDE5E6735B3039A87E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497823   (861249) от 24.09.2021
 
 Массовый солярис / Saycet - Mass Solaris (2021) WEBRip [VP9/2160p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:6D55A786B2505AD62745319398C72804F67E84B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:6D55A786B2505AD62745319398C72804F67E84B9
 magnet:?xt=urn:btih:705B1A3DA4453D4765F2E529A7C0FAF94FC5AF71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:705B1A3DA4453D4765F2E529A7C0FAF94FC5AF71
 ```bash
 magnet:?xt=urn:btih:3DEC5CAB99C1E375A2E791304BDC26E80488CC2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:3DEC5CAB99C1E375A2E791304BDC26E80488CC2C
 magnet:?xt=urn:btih:6BDEB8C9E84EDDD817F9399A9B681875335CE626
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:6BDEB8C9E84EDDD817F9399A9B681875335CE626
 ```bash
 magnet:?xt=urn:btih:031CFCCCDBF219B424171000612CF7BC61F39095
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:031CFCCCDBF219B424171000612CF7BC61F39095
 magnet:?xt=urn:btih:DC56E077AE719472B58EA35B301849D52F7E2C7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:DC56E077AE719472B58EA35B301849D52F7E2C7C
 ```bash
 magnet:?xt=urn:btih:526D4CA2382862169237CA54276FEF9362953DC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:526D4CA2382862169237CA54276FEF9362953DC6
 magnet:?xt=urn:btih:77AE7677A9157660B2667079A385F08F16A0FA7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:77AE7677A9157660B2667079A385F08F16A0FA7C
 ```bash
 magnet:?xt=urn:btih:7AAB66D1808E68E674B46FBA9D9629E4B5461528
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:7AAB66D1808E68E674B46FBA9D9629E4B5461528
 magnet:?xt=urn:btih:742A2C14AEFB3E1DE1B4732AE7E3EB909D9A761D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:742A2C14AEFB3E1DE1B4732AE7E3EB909D9A761D
 ```bash
 magnet:?xt=urn:btih:A101082F03C3AFA12F414D9551249288F3F93888
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ MDT. The Movie (2016) WEB-DLRip [H.264/720p-LQ]
 magnet:?xt=urn:btih:C843D6144B5B60F14CCA4C1A3C94966639D78F61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:C843D6144B5B60F14CCA4C1A3C94966639D78F61
 ```bash
 magnet:?xt=urn:btih:640E2D630C4B93DC12216B28456F411FD4682215
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:640E2D630C4B93DC12216B28456F411FD4682215
 magnet:?xt=urn:btih:75D381F7B74BA2C8607D0EF438B6637770A45B05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:75D381F7B74BA2C8607D0EF438B6637770A45B05
 ```bash
 magnet:?xt=urn:btih:00DAD4F0133E367E2C0AE9E2B30C36FD12CC959F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:00DAD4F0133E367E2C0AE9E2B30C36FD12CC959F
 magnet:?xt=urn:btih:AB87C0DBF92556BAF07AB501BD8A8FFD2CEFF432
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:AB87C0DBF92556BAF07AB501BD8A8FFD2CEFF432
 ```bash
 magnet:?xt=urn:btih:92995C4EBE0E48019538A9C9669319B05E676F6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:92995C4EBE0E48019538A9C9669319B05E676F6A
 magnet:?xt=urn:btih:A93D9F315A75321FD68E43A97E512D2A3F027A60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:A93D9F315A75321FD68E43A97E512D2A3F027A60
 ```bash
 magnet:?xt=urn:btih:2F048BDF0011C7C9A143E3746B0013988F11F8E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:2F048BDF0011C7C9A143E3746B0013988F11F8E2
 magnet:?xt=urn:btih:3001AF27341F96885F25783386200FBBBE774F4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +567,8 @@ magnet:?xt=urn:btih:3001AF27341F96885F25783386200FBBBE774F4C
 ```bash
 magnet:?xt=urn:btih:BF2DBD207886DCD2F2E8F230390A39EE6D9CA71E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:BF2DBD207886DCD2F2E8F230390A39EE6D9CA71E
 magnet:?xt=urn:btih:D759B51F6D6BC6BF9F50767024387C52F325CC88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:D759B51F6D6BC6BF9F50767024387C52F325CC88
 ```bash
 magnet:?xt=urn:btih:A7074CD6EF1E397EFE22AA427EFA7E379558810E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:A7074CD6EF1E397EFE22AA427EFA7E379558810E
 magnet:?xt=urn:btih:25C6C5F2AE84F56FDC7717382E5A56D933974BBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,29 +672,7 @@ magnet:?xt=urn:btih:25C6C5F2AE84F56FDC7717382E5A56D933974BBB
 magnet:?xt=urn:btih:B899BAB9706756FF7E1DF1529278698E24525571
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497303   (863057) от 23.09.2021
-
-Эволюция / Evolution (1923) WEBRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм представляет собой научно-популярный фильм об эволюции жизни на планете Земля. Интересен тем, что снят еще в эпоху немого кино. С тех пор научная концепция о происхождении и эволюции жизни в целом не изменилась. Так что  интерес тут не биологический, а исторический, киноведческий.Телекомпания: США, Бельгия / Inkwell Studios, Out of the Inkwell Films, Red Seal PicturesЖанр: Документальный, ПриродаРежиссер: Ovide Decroly, Макс ФляйшерПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6581F63810C1D0A36EC04BD6532FEEEDA6C29214
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

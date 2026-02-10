@@ -19,6 +19,8 @@ Dystopika, градостроитель, разработанный студие
 magnet:?xt=urn:btih:159701F37D488C11A62B85E1C49ACD8F4AABF9DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Deadzone: Rogue - это roguelite-шутер от первого лица, де
 magnet:?xt=urn:btih:7B4A9398DBA6D9430416F5985D3B79B979C309EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:7B4A9398DBA6D9430416F5985D3B79B979C309EC
 ```bash
 magnet:?xt=urn:btih:1C5B63136638B92163A498F3FF6DE799E37B15C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:1C5B63136638B92163A498F3FF6DE799E37B15C0
 magnet:?xt=urn:btih:6A77D0F07210B0A1E35BECA6D408E1453431DB7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:6A77D0F07210B0A1E35BECA6D408E1453431DB7B
 ```bash
 magnet:?xt=urn:btih:18AACE53C2719EBEFC43CB13DD078BFD7F2D475A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Emperor - Emperor (1993) EP, Released, 2017, Candlelight Records [FLAC|24/96|tra
 magnet:?xt=urn:btih:AD41EDF9054CB68CD6C582C4F0D36ED3498A52A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:AD41EDF9054CB68CD6C582C4F0D36ED3498A52A9
 ```bash
 magnet:?xt=urn:btih:06159A0D6E45D244DD183D13A322CE65731FEC29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:06159A0D6E45D244DD183D13A322CE65731FEC29
 magnet:?xt=urn:btih:B91F6F51465D9CAC5A95252EC3B5072CE5054FFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:B91F6F51465D9CAC5A95252EC3B5072CE5054FFC
 ```bash
 magnet:?xt=urn:btih:CD803B7299AD900604A2E3F61306F932F1900667
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ Exhumed - To The Dead (2022) [APE|Lossless|image + .cue] <Death Metal, Grindcore
 magnet:?xt=urn:btih:6AFEC4901603B9E3EF7A593045155817DD294270
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:6AFEC4901603B9E3EF7A593045155817DD294270
 ```bash
 magnet:?xt=urn:btih:8BBD026304B7FB3DA66D6C19E2C5DED095827E33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:8BBD026304B7FB3DA66D6C19E2C5DED095827E33
 magnet:?xt=urn:btih:2A0A005C7A794F59A0C11CFC035DAF9D7568244E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:2A0A005C7A794F59A0C11CFC035DAF9D7568244E
 ```bash
 magnet:?xt=urn:btih:E73F7F359E4DE3DB3BFA76769F44B18A3E7CA610
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:E73F7F359E4DE3DB3BFA76769F44B18A3E7CA610
 ```bash
 magnet:?xt=urn:btih:04FBF8A43DF9EC21E0A00A3CA25CD569C39B9F0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:04FBF8A43DF9EC21E0A00A3CA25CD569C39B9F0C
 magnet:?xt=urn:btih:17F4E3448ED8D5DA1925AFAD7A353FE97DD0C5F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:17F4E3448ED8D5DA1925AFAD7A353FE97DD0C5F2
 magnet:?xt=urn:btih:8B78D63B3713B21DD841BC963CE1FE4FFD2A3F31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:8B78D63B3713B21DD841BC963CE1FE4FFD2A3F31
 ```bash
 magnet:?xt=urn:btih:6BF02DAD336E56F33980F9BA1226EAAB08FAE0E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:6BF02DAD336E56F33980F9BA1226EAAB08FAE0E3
 magnet:?xt=urn:btih:C72EA66C6B0ED90743D2EF53C9DDE43D34D9E186
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:C72EA66C6B0ED90743D2EF53C9DDE43D34D9E186
 ```bash
 magnet:?xt=urn:btih:48F9AE3B45719B6123FBF0933043C010B7591F17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:48F9AE3B45719B6123FBF0933043C010B7591F17
 magnet:?xt=urn:btih:AD9EFDD7593C47430F828A47211581DD31D0906A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:AD9EFDD7593C47430F828A47211581DD31D0906A
 ```bash
 magnet:?xt=urn:btih:88343C80F9DE6E1C0B35B90FCE027E1752CCC87B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ magnet:?xt=urn:btih:88343C80F9DE6E1C0B35B90FCE027E1752CCC87B
 magnet:?xt=urn:btih:B7B92B66D7A6F3BAB89E79052CC19DE54877AA9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:B7B92B66D7A6F3BAB89E79052CC19DE54877AA9C
 magnet:?xt=urn:btih:9D241EC29FFD39CA71A12A03A06A72384949EACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:9D241EC29FFD39CA71A12A03A06A72384949EACC
 ```bash
 magnet:?xt=urn:btih:DD1328AD40B8CBC1868E32F3BAD287A1708C3FB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ Blackbraid - Blackbraid III (2025) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Bl
 magnet:?xt=urn:btih:485DE18EE74C030CD8399B490365F5DDEA85AE78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:485DE18EE74C030CD8399B490365F5DDEA85AE78
 ```bash
 magnet:?xt=urn:btih:AF68FAB55C90BE1900BD467D58B541C4399CD3FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

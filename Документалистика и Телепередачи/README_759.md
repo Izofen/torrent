@@ -1,3 +1,29 @@
+###  Публикация: 1445222   (1033725) от 05.02.2021
+
+Вечные Помпеи / Unsterbliches Pompeji / Eternal Pompeii (2019) HDTVRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033725.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этот день произошла одна из самых известных катастроф в истории человечества - в 79 году н.э. римский порт Помпеи был погребён под пеплом вулкана Везувия, а многие жители погибли. Здесь идеально сохранился слепок древнеримской жизни. Город стал символом целой эпохи, но его история не заканчивается ужасной гибелью. Мы узнаем, что случилось после того страшного извержения (   Читать дальше...   )Производство: Германия / Doc.station MedienproduktionЖанр: Документальный, ИсторияРежиссер: Sabine BierПеревод: Одноголосый профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAF6AE5DA2E2C5BBCB1D68668066F64FF170C2DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445045   (1033734) от 05.02.2021
 
 Цеховики. Опасное дело (2010) IPTVRip [H.264] (серии 1-2 из 2)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:666AB6620B51E45130FD90CE283809A9BEA41899
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:666AB6620B51E45130FD90CE283809A9BEA41899
 magnet:?xt=urn:btih:4FB3B359AA6289F145992462522E85825E2DCD1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:4FB3B359AA6289F145992462522E85825E2DCD1D
 ```bash
 magnet:?xt=urn:btih:38048A663D92A0BFAAAC061FA88CA0EED61795D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:38048A663D92A0BFAAAC061FA88CA0EED61795D9
 magnet:?xt=urn:btih:9E22503FE312286A401C526F2424276ADA650790
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:9E22503FE312286A401C526F2424276ADA650790
 magnet:?xt=urn:btih:A835CB1F30CB3B62A321E25C5A81EF52A82A8D72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:A835CB1F30CB3B62A321E25C5A81EF52A82A8D72
 ```bash
 magnet:?xt=urn:btih:5417012F11E4B4E7E78E379CBD350D719E8736CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:5417012F11E4B4E7E78E379CBD350D719E8736CD
 magnet:?xt=urn:btih:CF2E1C9D25026B9BEE89F664B2DACCDFC3B26708
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:CF2E1C9D25026B9BEE89F664B2DACCDFC3B26708
 ```bash
 magnet:?xt=urn:btih:09D7A0927C745A5AA93739F6DF6692917A59B372
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:09D7A0927C745A5AA93739F6DF6692917A59B372
 magnet:?xt=urn:btih:B5BD216EE5DCDC1CFD0BAC5810A741697F99AAF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:B5BD216EE5DCDC1CFD0BAC5810A741697F99AAF0
 magnet:?xt=urn:btih:FC17B9169250964D1EECBE0DC2D85D4CB7F57224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:FC17B9169250964D1EECBE0DC2D85D4CB7F57224
 ```bash
 magnet:?xt=urn:btih:5460914F834A5362A03BAA7D112156194374418C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:5460914F834A5362A03BAA7D112156194374418C
 magnet:?xt=urn:btih:93D2A73C8D7D4EF33A9E4EECE0BA163565E25E2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:93D2A73C8D7D4EF33A9E4EECE0BA163565E25E2D
 ```bash
 magnet:?xt=urn:btih:EDE6A25D0DE52B587B9033FA40D974C8F62F36E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:EDE6A25D0DE52B587B9033FA40D974C8F62F36E6
 magnet:?xt=urn:btih:DB11EEF4A206F9FCFC96E4CC305DE0991AD3C107
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:DB11EEF4A206F9FCFC96E4CC305DE0991AD3C107
 ```bash
 magnet:?xt=urn:btih:9B494F01B03647520189E4B6C25B29EECB95F9B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:9B494F01B03647520189E4B6C25B29EECB95F9B6
 magnet:?xt=urn:btih:5397EC8636291CF5DEC3DFDD128C0E13CF2C8498
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:5397EC8636291CF5DEC3DFDD128C0E13CF2C8498
 ```bash
 magnet:?xt=urn:btih:333D926CBB35C7A3F8D7FC4A6CBFEA6A3A3DCCF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:333D926CBB35C7A3F8D7FC4A6CBFEA6A3A3DCCF8
 magnet:?xt=urn:btih:E3EB48ED7FC7B56A6C1E7FAE5EEAEE8E4221AB23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:E3EB48ED7FC7B56A6C1E7FAE5EEAEE8E4221AB23
 ```bash
 magnet:?xt=urn:btih:44B8030CD61BA0303E528334D1253CB04FC802C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:44B8030CD61BA0303E528334D1253CB04FC802C2
 magnet:?xt=urn:btih:8170FCA8B995D307D945C98251B10CAAD411D91E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:8170FCA8B995D307D945C98251B10CAAD411D91E
 magnet:?xt=urn:btih:CAF6B6B87F4641719E51462FDF9F66EC8419CEF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:CAF6B6B87F4641719E51462FDF9F66EC8419CEF7
 ```bash
 magnet:?xt=urn:btih:C7FEBB8CE83159E385980E304C0F872A18C19D3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:C7FEBB8CE83159E385980E304C0F872A18C19D3B
 magnet:?xt=urn:btih:7ADC8E2D4CBE27038AE3F42D7EC173B96372F8BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:7ADC8E2D4CBE27038AE3F42D7EC173B96372F8BE
 ```bash
 magnet:?xt=urn:btih:527DE46DF7DB4190B51D41AF8F6C8F2775BFC2EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,30 +674,7 @@ magnet:?xt=urn:btih:527DE46DF7DB4190B51D41AF8F6C8F2775BFC2EB
 magnet:?xt=urn:btih:AE55CE5CAD1E42687B0E1BE39F2427BF3EAEB180
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617714   (1034366) от 10.03.2023
-
-Диагноз: Жизнь (2022) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм о врачах Донбасса. Они не мечтали оказаться на передовой, не планировали рисковать своими жизнями ради спасения жизней других, но в их дома, в их больницы пришла война. Уезжать или остаться? Большинство остались. Почему? Неужели дело в клятве Гиппократа?..
-В коротких новеллах герои делятся своими переживаниями: чего боятся, о чем мечтают, как (   Читать дальше...   )Телекомпания: Россия | НТВЖанр: ДокументальныйСубтитры: РусскиеПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:470874FE3AB69C177929FA526CDBDA2A672C5842
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

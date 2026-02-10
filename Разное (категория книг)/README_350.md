@@ -1,3 +1,29 @@
+###  Публикация: 928987   (520411) от 18.08.2015
+
+Федор Евсевский | Библия бармена. Все о напитках. Барная культура. Коктейльная революция (2014) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая продвинутая книга о напитках, барах и коктейлях. Виски, текила, коньяк, водка, вино... - узнайте абсолютно всё о всех напитках и об их марках. Научитесь готовить исключительные смешанные напитки: от классики до революционных творений лондонских миксологов. Узнайте анекдоты и интересные истории, которые сопутствовали созданию таких смешанных напитков, как "Кровавая (   Читать дальше...   )Жанр: Кулинария, напитки, алкогольФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A9E8104D38E0AA4F81D6CB87815B324A436EA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929054   (520496) от 18.08.2015
 
 Кен Робинсон | Образование против таланта (2012) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:5D6B64E4A155CB4F301F2CEC766F21A7201779BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:5D6B64E4A155CB4F301F2CEC766F21A7201779BA
 magnet:?xt=urn:btih:CBDB071E341041CFDBE936379656DCB754796EB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:CBDB071E341041CFDBE936379656DCB754796EB0
 ```bash
 magnet:?xt=urn:btih:5CDC79663A37BB177B3C605B62D46115AF7588F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:5CDC79663A37BB177B3C605B62D46115AF7588F0
 magnet:?xt=urn:btih:FB9D840E1F4C3D83383D46489A4BC9DC3BA0DF25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:FB9D840E1F4C3D83383D46489A4BC9DC3BA0DF25
 ```bash
 magnet:?xt=urn:btih:C8FDDBB239F15E82074E52642F4F9A60548C346E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:C8FDDBB239F15E82074E52642F4F9A60548C346E
 magnet:?xt=urn:btih:0E4152A7BD1D5A6421A2D33C2BAAB4A0F95C5086
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:0E4152A7BD1D5A6421A2D33C2BAAB4A0F95C5086
 magnet:?xt=urn:btih:EA306F88DB917C56017E80EE3D6AB6ECCE5F4321
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:EA306F88DB917C56017E80EE3D6AB6ECCE5F4321
 ```bash
 magnet:?xt=urn:btih:D18BFA0FCDBA29F29EEA017EB3E166BDDB562666
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:D18BFA0FCDBA29F29EEA017EB3E166BDDB562666
 magnet:?xt=urn:btih:B134D3538670E1B632149D4871D6D42A62318E39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:B134D3538670E1B632149D4871D6D42A62318E39
 magnet:?xt=urn:btih:2878B199B9846AC912853815B24069A9B58CBEAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:2878B199B9846AC912853815B24069A9B58CBEAD
 ```bash
 magnet:?xt=urn:btih:EDEFE49E973430317D997BCA444B30AED7BE3B80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:EDEFE49E973430317D997BCA444B30AED7BE3B80
 magnet:?xt=urn:btih:A48E40F1780766CA184E18BAC0F1B3245647773F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:A48E40F1780766CA184E18BAC0F1B3245647773F
 ```bash
 magnet:?xt=urn:btih:AB82DDAB14A407803DCEF9779C0B50A865C18765
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:AB82DDAB14A407803DCEF9779C0B50A865C18765
 magnet:?xt=urn:btih:0FB1EB24D18F0A54CCB3F21EA7EC2FBB197844B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:0FB1EB24D18F0A54CCB3F21EA7EC2FBB197844B9
 ```bash
 magnet:?xt=urn:btih:87087371AE68AC1DAEC371984AB2187FFB6BB8FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:87087371AE68AC1DAEC371984AB2187FFB6BB8FA
 magnet:?xt=urn:btih:F80C8DBCE39C69562114939398D3E03A7CA01926
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:F80C8DBCE39C69562114939398D3E03A7CA01926
 ```bash
 magnet:?xt=urn:btih:F5B5102CC078DA77DD9A7269803F795732156720
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +497,8 @@ Aceastà carte de rugàciuni este tipãrità cu prilejul Anului comemorativ al S
 magnet:?xt=urn:btih:545485157EC6B644972F42ABFBF5CF5E5158E703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:545485157EC6B644972F42ABFBF5CF5E5158E703
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:545485157EC6B644972F42ABFBF5CF5E5158E703
 magnet:?xt=urn:btih:359C4EF40B6DD786D417B6ECC61C6CA7586BA98E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:359C4EF40B6DD786D417B6ECC61C6CA7586BA98E
 ```bash
 magnet:?xt=urn:btih:4F48665270F504CD3ED83946753C9685B0C83867
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:4F48665270F504CD3ED83946753C9685B0C83867
 magnet:?xt=urn:btih:396924407E458AE3758762E91E7491EA0A7383D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:396924407E458AE3758762E91E7491EA0A7383D2
 ```bash
 magnet:?xt=urn:btih:902E8A21AC4E7434625BEE87FB479B2FD77CFB69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:902E8A21AC4E7434625BEE87FB479B2FD77CFB69
 magnet:?xt=urn:btih:D16450E8F7D4677063A2E7DE023484D269471B9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,30 +685,7 @@ magnet:?xt=urn:btih:D16450E8F7D4677063A2E7DE023484D269471B9D
 magnet:?xt=urn:btih:1823E8B5A3A43577A16950809542E668B89DC81C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928705   (521703) от 17.08.2015
-
-Ирина Телегина | Большая психологическая игра, или Игра не в тренинге (2013) [FB2, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521703.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ситуациях, когда нужны концептуальные изменения, достойная альтернатива тренинговому методу – это Большая психологическая игра (БПИ).
-В книге представлен авторский подход к пониманию Большой психологической игры, ее специфики, структуры. Даны методические рекомендации по организации, проведению и созданию такого рода игр. Особое внимание уделено описанию собственного (   Читать дальше...   )Жанр: Личностный ростФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1A28336B38E885F5404AC15C6D7EBB4E5C87B03
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

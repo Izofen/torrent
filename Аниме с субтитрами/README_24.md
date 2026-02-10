@@ -19,6 +19,8 @@ Sankaku Mado no Sotogawa wa Yoru | The Night Beyond the Tricornered Window | Н�
 magnet:?xt=urn:btih:AE57EA6DD242ED370D5F3BEDF2DF20F813113D01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Ani ni Tsukeru Kusuri wa Nai! 2 | В случае с братом медицин
 magnet:?xt=urn:btih:FF128F68057A4581EA4D7B3D3EDE58B4CBAA3456
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Haikyuu!! To the Top (2020) | Волейбол [ТВ-4, часть II] [2020, TV
 ```bash
 magnet:?xt=urn:btih:7FBD19BFDB8D9F39EF9D7B440C355CAFA9B51FBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Kami-tachi ni Hirowareta Otoko | By the Grace of the Gods | Избранный �
 magnet:?xt=urn:btih:BE99A2A29C9F0DE95A37B8B6DEB599CBB63CFC22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Juuni Taisen | 12 войн [2017, TV, 12] WEBRip 720p raw
 ```bash
 magnet:?xt=urn:btih:8F16B3829B4E0364532E15A2532242FFB93E4E49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Chuubyou Gekihatsu Boy | Outburst Dreamer Boys | Сумасшедшие ребя
 magnet:?xt=urn:btih:447BECCDE857F52AF9E2D2B280107BA5049B69CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Uchi no Shishou wa Shippo ga Nai | My Master Has No Tail | У моего мас�
 ```bash
 magnet:?xt=urn:btih:EFE140E9739FB7DD38A2E4B835095F2B0BCD9CF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Dies Irae | Судный день [2017, TV, 11 + SP] HDTV 720p raw
 magnet:?xt=urn:btih:BA1E5D93CCEB186739A25A3226047AD2550F3F1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Dynamic Chord | Динамический аккорд [2017, TV, 12] WEBRip 720p
 magnet:?xt=urn:btih:4147EF4C07399EB07FA7D87DD3FD3D157B98BE65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Jigoku Shoujo: Yoi no Togi | Hell Girl: Fourth Twilight | Адская дево�
 ```bash
 magnet:?xt=urn:btih:49F2ACF1798E904B713B1D19BBDF287BECEB3BDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Yakunara Mug Cup mo Niban Kama / Let's Make a Mug Too 2 / Давайте тож�
 magnet:?xt=urn:btih:F2CE4C6A8777A0115C70F8469979C8980B37C0DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Shuumatsu no Izetta / Izetta: The Last Witch / Izetta, Die Letzte Hexe / Изе�
 ```bash
 magnet:?xt=urn:btih:5E7E82AA2AEF746687A9B62244BB706EFC496628
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Two Car: Racing Sidecar | Две машины [2017, TV, 12] WEBRip 720p raw
 magnet:?xt=urn:btih:69C260799CFCB612A0360720A7B90A6EBDA1C201
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Taisou Zamurai | Самурай-гимнаст [2020, TV, 11] WEBRip 720p raw
 ```bash
 magnet:?xt=urn:btih:D8076508FFF54ED6904DDD45A7BCB5DAD7EC5E7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Inuyashiki | Inuyashiki Last Hero | Инуяшики [2017, TV, 11 эп.] WEB-DL
 magnet:?xt=urn:btih:225F27A0A1E103406CECFFD24BB53ABAEDFBB6E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Konohana Kitan / Сказания о Конохане [2017, TV, 12] HDTV 720p r
 ```bash
 magnet:?xt=urn:btih:E2C3750D285836E0CA6E0F4044C8872882488809
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Ou-sama Game The Animation / King's Game The Animation / Королевская 
 magnet:?xt=urn:btih:627A3CF8DEE3F90E0F8D5A8970585C83F25BFDA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Futoku no Guild / Immoral Guild / Развращённая гильдия [2022,
 ```bash
 magnet:?xt=urn:btih:105A9318EA34657F5BA014D2B6460A870B0709F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Bocchi the Rock! / Одинокий рокер! [2022, TV, 12] WEBRip 720p raw
 magnet:?xt=urn:btih:ECA0D4030D214B52927FECEA0AF88F29E36B5B04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Fuufu Ijou, Koibito Miman. | More Than a Married Couple, But Not Lovers | Бол
 ```bash
 magnet:?xt=urn:btih:A09F8BB4B4EAFAF24EDD6EDF11D7CC8575A38B18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:A09F8BB4B4EAFAF24EDD6EDF11D7CC8575A38B18
 magnet:?xt=urn:btih:02EA5A6D677077C2BB18380B834DE1F415B9EF2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Hoshi no Samidare | Lucifer and the Biscuit Hammer | Люцифер и биск�
 ```bash
 magnet:?xt=urn:btih:7BCCAB955F9471BB6A6779648779B8BD818DDB50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Berserk: Ougon Jidai Hen - Memorial Edition | Берсерк: Золотой в�
 magnet:?xt=urn:btih:C0C13EA35AB57FFC505BAF3D53D78F2961A87E82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Shinmai Renkinjutsushi no Tenpo Keiei | Магазинчик начинающе�
 ```bash
 magnet:?xt=urn:btih:108A93A7E56B5DF86178CA6FE8AFBC149CD2C5C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ Koukyuu no Karasu | Raven of the Inner Palace | Ворона в гареме [20
 magnet:?xt=urn:btih:24F28B6E7810E323B5DC4CD91B44CB874CDA4267
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Pocket Monsters Sword & Shield | Покемон: Меч и Щит [2019, TV, 136
 ```bash
 magnet:?xt=urn:btih:35D16A7FDBAB910B6E3FDC5DF3B70B8431AC3F8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

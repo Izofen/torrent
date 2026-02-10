@@ -19,6 +19,8 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.24.2/dlc) Repack Wanterlude [Relo
 magnet:?xt=urn:btih:B39D3C79BF0039CBDB8EE218EFDA7C55B50EF641
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Tunguska: The Visitation (2021) [Ru/Multi] (1.94-5/dlc) Repack Let'sРlay [Enhan
 ```bash
 magnet:?xt=urn:btih:02A1F0E86CB81E74286CD842A33064D4BE542668
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Factorio - это игра о создании автоматизированн�
 magnet:?xt=urn:btih:8086D526174F84A2126A0B0DBE4EB7319B8D40C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Tyrant's Realm (2025) [Ru/Multi] (Build 19545604) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:43A3D49B83472245FE6C9E7A57CAA1397B622055
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Metal Eden – научно-фантастический адреналинов�
 magnet:?xt=urn:btih:7281EE50F1283253E03C668CAE5673A28113B3FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Nordic Ashes: Survivors of Ragnarok – динамическое приключ�
 ```bash
 magnet:?xt=urn:btih:4EAE8987B7D0C2FDB752EF86EE4BA6E1B1CFE8A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Fallen City Brawl (2025) [En] (1.05) License GOG
 magnet:?xt=urn:btih:26D5467B92D6B351A1143BD589FB81056902EEDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ No Man's Sky (2016) [Ru/Multi] (6.03) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:2FF010C7A37AD2EE3FB4D977EB9984E9BA110523
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Kaptain Brawe: A Brawe New World – первая часть приключен�
 magnet:?xt=urn:btih:1065C27DD9BBDCC595A898BB49ACA38F7BC6322A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Steel Division 2 (2019) [Ru/Multi] (165547/dlc) Repack Let'sРlay [Total Conflic
 ```bash
 magnet:?xt=urn:btih:0AE8B1F34A59EA0400C6CB0312F992FA01EC5B00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Satisfactory - это игра от первого лица в открытом 
 magnet:?xt=urn:btih:4B4F247EEFA5FF0BFD4E0EEE7C9441C9DFCC6154
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:4B4F247EEFA5FF0BFD4E0EEE7C9441C9DFCC6154
 ```bash
 magnet:?xt=urn:btih:06AD071A996BD3AFD3DA07B1AFBEF4125C055593
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ CarX Street (2024) [Ru/Multi] (1.8.0/dlc) Repack Let'sРlay [Deluxe edition]
 magnet:?xt=urn:btih:67CCF6587CA48278681C2139D2702EBE8F4D12A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Metal Gear Solid Delta: Snake Eater (2025) [Ru/Multi] (1.1.3/dlc) Repack Wanterl
 ```bash
 magnet:?xt=urn:btih:C0A37E5DC808F9F0B7281E90327561CF28982BE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ MX vs ATV Legends (2022) [Ru/Multi] (4.9/dlc) Repack Let'sРlay [Ultimate Editio
 magnet:?xt=urn:btih:0501A03AC35734034317671E6F34C76240181411
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Unseen Fears 7: Inner Darkness / Невидимые страхи 7: Тьма
 ```bash
 magnet:?xt=urn:btih:524E0F15A6097DD6A53386CA5AA909D50BB9565A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ TRAIL OUT (2022) [Ru/Multi] (5.1/dlc) Repack Let'sРlay [Complete]
 magnet:?xt=urn:btih:1C035A253A93EDD272864861881E2B9C52C4450D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Sims 4 (2014) [Ru/Multi] (1.117.244.1020/dlc) Repack Wanterlude [Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:3FA5006D8D59B04D03FF69E289D924D3102085EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Mindseye (2025) [Ru/Multi] (5302548/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:2F71AD229A75B4537BFF1CB71FCFC6E22D9F3471
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.889.22) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:DA43EA89C635EB03C4D7D02DE09513AD684C4C76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Last Ski Trip (2025) [Ru/Multi] (3.0) Scene Tenoke
 magnet:?xt=urn:btih:62D860C0074E492DFCE1132C2176F954C4B1A25D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Last Ski Trip (2025) [Ru/Multi] (3.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3B01CEB15C6F399E1E7D055109778291D964E94D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Sword of the Sea (2025) [Ru/Multi] (build 19645438) Repack seleZen
 magnet:?xt=urn:btih:730A7C9C296A0736F3B2D4A57F1EC2009FF2C79B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Vending Machine Business Simulator приглашает геймеров в ми
 ```bash
 magnet:?xt=urn:btih:8F2E6D38BDDEBC2A2FEB2B23F5CE936EFF924AE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Dead Take начинается с поисков пропавшего друга
 magnet:?xt=urn:btih:27EE798543B37EFEA80C5020B395809A186C2EB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ STAY (2018) [Ru/Multi] (1.0.3.9) Repack Other s
 ```bash
 magnet:?xt=urn:btih:649006425821C4E9BFC2C71F77B793FD741B332E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

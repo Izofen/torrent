@@ -1,3 +1,29 @@
+###  Публикация: 987594   (926140) от 17.02.2016
+
+Открытая студия.  «Самоубийственная политика Украины» (17.02.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_926140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Украинские радикалы продолжают блокировать фуры с российскими номерами. Охоту на наших водителей они начали еще на прошлой неделе. Для этого в одиннадцати областях Незалежной на дорогах выставили блок-посты. По машинам, которые пытались прорваться через кордоны, боевики открывали стрельбу. За неделю в транспортный плен попало около шестисот фур из России. Вернуться (   Читать дальше...   )Телекомпания: 5 канал, РоссияЖанр: общественно-политическое ток-шоуПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29409965FF64609849A6CE5B8C62B898295BC42A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987384   (926153) от 17.02.2016
 
 Вести в 20-00. Большие Вести. Россия HD (16.02.2016) HDTVRip [720p-LQ]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:417BDBD11B9128E1C84B857E905715EC343AB8B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:417BDBD11B9128E1C84B857E905715EC343AB8B9
 magnet:?xt=urn:btih:3145FF131C61DA7EB59F97415555E833BE508AE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:3145FF131C61DA7EB59F97415555E833BE508AE0
 magnet:?xt=urn:btih:6C708944BB86EF68FD04536CF6C362D2CC19B20C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:6C708944BB86EF68FD04536CF6C362D2CC19B20C
 ```bash
 magnet:?xt=urn:btih:701C7806010BC4738158F591E959158DA62C6A05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:701C7806010BC4738158F591E959158DA62C6A05
 magnet:?xt=urn:btih:E9CC759E1D41CDA1AD74DAE9FFFF7BC66A411995
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:E9CC759E1D41CDA1AD74DAE9FFFF7BC66A411995
 ```bash
 magnet:?xt=urn:btih:49BFDC858F104307DD10A4772AE1C524FFA8C3D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:49BFDC858F104307DD10A4772AE1C524FFA8C3D7
 magnet:?xt=urn:btih:C65A0CBD7AF51572CBDA917C2AFA9AA7C18DF082
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:C65A0CBD7AF51572CBDA917C2AFA9AA7C18DF082
 ```bash
 magnet:?xt=urn:btih:82D69890A12ACFCAE04883D7E4CBCB5DA70DA116
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:82D69890A12ACFCAE04883D7E4CBCB5DA70DA116
 magnet:?xt=urn:btih:AB8F87C0DA4D6F1875C23B0A5362ADA2B17EDEFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:AB8F87C0DA4D6F1875C23B0A5362ADA2B17EDEFF
 ```bash
 magnet:?xt=urn:btih:70D99B6F8828733F96D84C28628D121F2B284D44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:70D99B6F8828733F96D84C28628D121F2B284D44
 magnet:?xt=urn:btih:F78BC592E7D8C2DC016A229963BD0173B9629321
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:F78BC592E7D8C2DC016A229963BD0173B9629321
 ```bash
 magnet:?xt=urn:btih:8AC3059E393C756C84E3D0552F6877E279C6B727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:8AC3059E393C756C84E3D0552F6877E279C6B727
 magnet:?xt=urn:btih:9DD879065DB56AD97FEC37FFBF4CF28DEA3EF868
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:9DD879065DB56AD97FEC37FFBF4CF28DEA3EF868
 ```bash
 magnet:?xt=urn:btih:E90AFF031B98225165D07F052DB5DDA5D8657A14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:E90AFF031B98225165D07F052DB5DDA5D8657A14
 magnet:?xt=urn:btih:587F34CD53DF4F39FBBC85B0D3198E9004F6DA61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:587F34CD53DF4F39FBBC85B0D3198E9004F6DA61
 ```bash
 magnet:?xt=urn:btih:638D09DC26D2D6B06977D809D62231E3AA724E74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:638D09DC26D2D6B06977D809D62231E3AA724E74
 magnet:?xt=urn:btih:817B1959EE0F4C49BDD08D05D248B2F989A6B739
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:817B1959EE0F4C49BDD08D05D248B2F989A6B739
 ```bash
 magnet:?xt=urn:btih:D61AFC32D0E93A11F429B506D18F753269E13AF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:D61AFC32D0E93A11F429B506D18F753269E13AF6
 magnet:?xt=urn:btih:06DACB4EABB2191F97C9CB3323F1008981DF6DD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:06DACB4EABB2191F97C9CB3323F1008981DF6DD6
 ```bash
 magnet:?xt=urn:btih:AD5E0EE52AC0BD73166C065C455B340A95FB2CA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:AD5E0EE52AC0BD73166C065C455B340A95FB2CA8
 magnet:?xt=urn:btih:BEB09701F7F5880E3C80A8896129F211F5DEADC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:BEB09701F7F5880E3C80A8896129F211F5DEADC7
 ```bash
 magnet:?xt=urn:btih:9CDB12C5E76A3F34A213F3E39409F7841166C4F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:9CDB12C5E76A3F34A213F3E39409F7841166C4F7
 magnet:?xt=urn:btih:E09F2B1BE8559CCA57F80270B11780C778A96C88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:E09F2B1BE8559CCA57F80270B11780C778A96C88
 ```bash
 magnet:?xt=urn:btih:A4CCC068F274CF56DD4FA37D6CB405B0973794FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:A4CCC068F274CF56DD4FA37D6CB405B0973794FD
 magnet:?xt=urn:btih:944FC1FB189889EE06157EE5565624A5C154C767
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986914   (928552) от 15.02.2016
-
-Орел и решка. Кругосветка (2016.02.15) SATRip (сезон 12: Антверпен)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928552.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 12-м сезоне трэвел-шоу «Орел и решка» отправляется в настоящее путешествие вокруг света! Впереди 40 стран и 270 дней пути от Гринвича до Гринвича без права возвращаться домой! Восемь человек - восемь характеров и восемь чемоданов! И никто из них теперь не спрячется за камерой. Теперь все участники на виду! Как работает съемочная группа, как отдыхает, с какими проблемами (   Читать дальше...   )Телекомпания: ПятницаЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86B441AE3BC8936A9D966CD3495130B8BF969E88
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

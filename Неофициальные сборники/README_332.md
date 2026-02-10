@@ -1,3 +1,32 @@
+###  Публикация: 1044971   (561398) от 22.08.2016
+
+VA - Disco Дача. Лучшее (2016) [MP3|128-320 Kbps] <Pop, Disco, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bill Halley - We're Gonna Rock Around The Clock
+02. Chilly - Doll Queen
+03. Christie - Yellow river
+04. Demis Roussos - Souvenirs(   Читать дальше...   )Жанр: Pop, Disco, DanceПродолжительность: 07:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BCF2D58807FD224A08151303C9A614BF5200440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556318   (561510) от 08.06.2022
 
 VA - Music News vol.193 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -21,6 +50,8 @@ VA - Music News vol.193 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:5682EEA506399F0A27233623DEBBA857C5FF91B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ CD1:
 magnet:?xt=urn:btih:E1CBDFD786B98E89C400C3D9D164D32D7E09818E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +107,8 @@ VA - The Italian Smooth Jazz All-Starz (2016) [MP3|320 Kbps] <Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:41DC37339AE6CCFFB9D6276F0BDAB07F287095C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +137,8 @@ VA - Авто Хит на радио Шансон 6 (2016) [MP3|256 Kbps] <Ша�
 magnet:?xt=urn:btih:5E48314162FD4BE16468BDD0D8C672E65C1437B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +165,8 @@ Whitesnake - The Platinum Collection (2019) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6D31EF92924620DBA55F7A165E406DA0599705F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +195,8 @@ VA - The Summer Popular Dance Album (2017) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:8C975234D76BDBEEBE0F58293B5969CCAAEF36E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +223,8 @@ VA - Sex On The Beach (2016) [MP3|233-320 Kbps] <Dance, Club, House>
 ```bash
 magnet:?xt=urn:btih:B2F538A5DB1AB08D96F03A190592AD80DC88CA25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +253,8 @@ VA - Классный muzon. Выпуск 10 (2016) [MP3|256 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:33A89131DDC0B11BE55AF0E6D89C0C1164F690A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +281,8 @@ VA - The Latest Summer Hits (2016) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:CBB0BDA32F07F02A5960F4ADF473AB7CE4370425
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +311,8 @@ VA - The World Of Jazz Soul (2019) [MP3|320 Kbps] <Jazz, Blues, Lyric>
 magnet:?xt=urn:btih:FC3D9C5A37C101809CDBBF6CE6EE18F207D339ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +339,8 @@ VA - Club Dance Ambience Vol.83 (2016) [MP3|320 Kbps] <Dance, Club, Club House, 
 ```bash
 magnet:?xt=urn:btih:0463769933C8D350B4FF2F1F8824F9A4009D8A93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +369,8 @@ VA - Beatport Trance Pack (21.08.) (2016) [MP3|320 Kbps] <Trance, Melodic, Energ
 magnet:?xt=urn:btih:1FE042797B94DFBE331C7FF9E7288A0D94561BAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +397,8 @@ VA - Desert Sky: Chill Selection (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lou
 ```bash
 magnet:?xt=urn:btih:E4898DE483CCA64DE244523DFC797ABCF749BFB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +427,8 @@ VA - Beatport Trance Pack (20.08.) (2016) [MP3|320 Kbps] <Trance, Progressive, M
 magnet:?xt=urn:btih:46E61D91339CBDAE52C2A3E0122476F6F7E04532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +455,8 @@ VA - не Громкие новинки недели 17 (2019) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:239F45201A3119D32B57C47643FA2FBD83A6F11A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +485,8 @@ VA - World Times 70s Greatest Hits (2018) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:58F3D8613DC36AD5DE5DB118630A07881AEB2CC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +513,8 @@ VA - Ibiza Trance (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:BFB9684C08C40C8C4B7D1BD0EA4D5A1B406EF599
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +550,8 @@ Dream Dance
 magnet:?xt=urn:btih:8BFFA9CCF3E8F4B77BF899D5298FF312D296C3AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +578,8 @@ VA - Chill Time (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Electronic>
 ```bash
 magnet:?xt=urn:btih:7D162A4FF8CD5C9414E8A34E3DF9592D5D4F1B1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +614,8 @@ VA - Никакой коммерции просто отличная музык�
 magnet:?xt=urn:btih:D9EF0806CE0FDD8EB9746CE1DF53E49C965B6176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +642,8 @@ VA - Russian Mega Boom (2016) [MP3|256 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:90797F91B0A3F4FE8EF5786B7B5B06718B191138
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +672,8 @@ VA - World Amount Club House (2016) [MP3|320 Kbps] <House, Electro House, Future
 magnet:?xt=urn:btih:F6EF9396599036E0498605061C57FB13CD524D63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +701,8 @@ VA - Trance Collection Vol.50 (2016) [MP3|320 Kbps] <Trance, Melodic, Energy, Pr
 magnet:?xt=urn:btih:8EDDA346D74209A5AEEBAE0C7FF1D957A914E678
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +729,8 @@ VA - Танцевальный Ритм 7 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:874AE8640267F8D85E2A3D865FE1C6C5B701BECE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -688,38 +765,7 @@ VA - Шедевры инструментальной музыки #43 (2012) [MP
 magnet:?xt=urn:btih:12E2B307C27E4D0C8C775494E7B2861FC5C7B0C1
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529992   (562678) от 02.08.2012
-
-VA - Моя женщина. Песни для души (2012) [MP3|256 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562678.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Тимур Темиров - Моя женщина (4:27)
- 2. Виктор Петлюра - Фотоснимок (4:12)
- 3. Михаил Михайлов И Татьяна Михайлова - Мы Верили В Любовь (3:47)
- 4. Гарик Кричевский - Не Виновата (5:22)
- 5. Демидыч - Золотая Рыбка (4:08)
- 6. Анатолий Корж - Алена (3:22)
- 7. Елена Ваенга - Фиолетовая Тень (3:25)
- 8. Ирина Круг - Не жалею (5:22)
- 9. Елена Ваенга - Курю (5:36)
- 10. Денис Майданов - 1000 Лет (4:00)(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:20:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69CE96CE750623652A152198D20A02806EB56CD7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

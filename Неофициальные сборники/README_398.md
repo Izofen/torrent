@@ -1,3 +1,32 @@
+###  Публикация: 1291898   (650616) от 27.03.2019
+
+VA - Guardians Of The Sea (2019) [MP3|320 Kbps] <Drum And Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650616.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gоldiе - Hоrizоns
+002. M-Zinе - Imрricаtе
+003. Sоul Intеnt - Thе Tidе (Originаl Mix)
+004. Dеер Stеаlth - Imреriаl Shоrеs (Originаl Mix)(   Читать дальше...   )Жанр: Drum And BassПродолжительность: 08 :49 :59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D078E61F0B040C261F2A47B03EEC9B996BDC589
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540843   (650670) от 31.03.2022
 
 Kavinsky - Reborn Extra (2022) by Gertrudda [MP3|320 Kbps] <Synthwave, Electro Pop, French House>
@@ -21,6 +50,8 @@ Kavinsky - Reborn Extra (2022) by Gertrudda [MP3|320 Kbps] <Synthwave, Electro P
 ```bash
 magnet:?xt=urn:btih:59645AC2FDA1EC3951BF8340FE28C37DEB8B280A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Electric Synthicate Volume 1-4 (2020-2022) [MP3|320 Kbps] <Synthwave, Retro
 magnet:?xt=urn:btih:CEDFB3C3DE89C5F05A59529945E542EC205F9A02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +109,8 @@ VA - Caramel Deep House (2019) [MP3|320 Kbps] <Deep House, Electro>
 magnet:?xt=urn:btih:C4CF22A5A4DFE237B2B28D7DE8AB8C402A0F0487
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +137,8 @@ VA - Options Remake Of Tracks March -C- (2019) [MP3|320 Kbps] <Tropical, Progres
 ```bash
 magnet:?xt=urn:btih:12FDDF87AE471D52E51F174C5D0311D04C674B09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +173,8 @@ VA - Музыка для катания на велосипеде - iBike Real R
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +201,8 @@ VA - Музыка для катания на велосипеде - iBike Real R
 ```bash
 magnet:?xt=urn:btih:4640DCE7113A496FEC46F623486955B90F03508E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +237,8 @@ VA - Рок Искры Классические Хиты (2012) [MP3|256 kbps]<R
 magnet:?xt=urn:btih:F2D4117D384FA6A1017A85776169013AC29F052B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +272,8 @@ VA - Europa Plus Включи Весь Мир! Лето (2012) [MP3|128 kbps]<Po
 magnet:?xt=urn:btih:35607C7D17A872FA3E9B82D09E54C51F59634601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +300,8 @@ VA - Русская Дискотека ХХ Века - 30 (Ласковый Ма
 ```bash
 magnet:?xt=urn:btih:356A4D26E493150B0B567EC9CF709963A1237C06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +336,8 @@ VA - Парад хитов русского рока (2012) [MP3|256 кб/с]<Ro
 magnet:?xt=urn:btih:B8DD5ECE4FB146F7CE5649982F7A7C7547982B84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +364,8 @@ VA - Alterportal HITS 15 Vol. 80 -   April (2015) [MP3|128-320 кб/с]<Alternat
 ```bash
 magnet:?xt=urn:btih:BEA4C4C4DCE1F25560EBC6BA7A4158CA0E886357
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +394,8 @@ VA - Car Audio. Первый летний (Sound Clinic - Special Edition) (2015
 magnet:?xt=urn:btih:1F453DB9BF54295B1638BC8BB5BE7CFEAEAA3E40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +423,8 @@ Ronnie James Dio - We Rock (2016) (Compilation) 2CD [MP3|320 Kbps] <Rock, Hard R
 magnet:?xt=urn:btih:BA227495C248268644EA5E9C238C6DAA12C4A797
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +451,8 @@ VA - Огонек (2016) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:AE3FB16DA7BAFD8613B14C882285BE0068EBB843
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +487,8 @@ VA-Русский рок. Фреш (2012) [MP3|192 kbps]<Rock>
 magnet:?xt=urn:btih:4357EC1A976629233CC2B0C7A985132D14351202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +515,8 @@ VA - Alterportal HITS 15 Vol. 81 -  May (2015) [MP3|128-320 кб/с]<Alternative
 ```bash
 magnet:?xt=urn:btih:4C523A4A09683D3478F459C487251F953B35CDC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +545,8 @@ VA - Extra Trance (episode 2) (2015) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:66B1997D7BC4760ABF477D6D7EFB1A04BCDAA6B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +573,8 @@ Cliff Richard - The Hits (2015) [MP3|320 Kbps] <Pop, Rock, Rock'n'Roll>
 ```bash
 magnet:?xt=urn:btih:CA911321009335C5ED7A5C5B9A39601B12C5ABFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +609,8 @@ VA - Хит-парад Союз Лето!!! 50/50 (2012) [MP3|256 kbps]<Pop>
 magnet:?xt=urn:btih:1AA1FAF5932D9C28C8D0C384C35410158BF29C88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +643,8 @@ VA - Русская Дискотека 8 (2012) [MP3|256 kbps]<Pop|Dance>
 ```bash
 magnet:?xt=urn:btih:BB54169A3A6D49533FB0AC1DA95B8BF45D787FB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +679,8 @@ VA - Самые лучшие песни года (2012) [MP3|256-320 кб/с]<Po
 magnet:?xt=urn:btih:FDB0F0DBAF14E8FA4B6F07790DDC078A3C917D84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +707,8 @@ VA - Русская Дискотека ХХ Века - 29 (2010) [MP3|320 Kbps]<
 ```bash
 magnet:?xt=urn:btih:2A219E8EA1750051890E39F6245A8E842D16BFCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +737,8 @@ VA - Hits Disco and Pop Dance - Part III (2016) [MP3|256 Kbps] <Pop, Disco>
 magnet:?xt=urn:btih:D58D28CDFA37960CEC5EBD70BD052F571F3687DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -687,6 +762,8 @@ CD1:Жанр: Pop, R&B, DanceПродолжительность: 02:24:38
 ```bash
 magnet:?xt=urn:btih:0A63DC0CBFCD5766D9F8A9E943EED30E5F2AD55E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -715,32 +792,7 @@ VA - Hits Disco and Pop Dance - Part IV (2016) [MP3|256 Kbps] <Pop, Disco>
 magnet:?xt=urn:btih:52560CE8E018862409992767184EA19BE3832DB4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031719   (651649) от 04.07.2016
-
-VA - 120 European EDM: July Mix (2016) [MP3|320 Kbps] <Dance, Electro, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651649.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. First State Feat Sarah Howells - Skies On Fire
-002. Rudy Mc & Alivo Feat. Splitten - Home (Extendet Mix)
-003. James Marley Feat. Nathan Brumley - Summer Won't Wait (Extended Mix)
-004. Felix Jaehn Feat. Lost Frequencies & Linying - Eagle Eyes(   Читать дальше...   )Жанр: Dance, Electro, HouseПродолжительность: 10:00:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E547C5A9FA8845A217D3FAC0142D7A81FBC14BF7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:A76355F26EC25A34D556FF4B227332D02DF28301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Photo Pos Pro - популярный фоторедактор. В версии 3
 ```bash
 magnet:?xt=urn:btih:5B89D1C147611AA905F117078E408403BD45124A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Cover Commander позволяет создавать профессиональ
 magnet:?xt=urn:btih:DC250A600825EABEA77E5D95FDCC5BEC29B5C146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Adobe Photoshop 2025 - новая версия программы для обр�
 magnet:?xt=urn:btih:A123283D90273EB9DE38EDF7B2A05956E1BD7ADA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:F4C841697C8EF5E5129ABE869F674A4F61B3959E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Polarr Photo Editor Pro 5.11.11 [Multi/Ru]
 magnet:?xt=urn:btih:7A1B9DA23D5F55B084CBB56C41E2ACAFC92CE671
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Adobe Photoshop 2025 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:A9531BB29515B2D807FED4A386B437E8DE4B6756
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:C4E57CFE1A5E5CAAF1C28EB2BFE47EE681FF35ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ ID Photos Pro — профессиональный инструмент для �
 ```bash
 magnet:?xt=urn:btih:B6C6F167B43AC310E91BADD1472DEAF737CA01D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Adobe Photoshop Lightroom Classic 2025 14.5.0.4 Portable by 7997 [Multi/Ru]
 magnet:?xt=urn:btih:5FDA69BBEC258D1730B4ADD59F9C40D469BC86AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:5FDA69BBEC258D1730B4ADD59F9C40D469BC86AE
 ```bash
 magnet:?xt=urn:btih:39A76C8C28C94198085D195D88DDB3E8A782151A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ ON1 Resize AI 2026 — ведущее в отрасли программное �
 magnet:?xt=urn:btih:B62FF7478E8410C7CB9745C0CCA4752363DE20A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:4431756343449D9AD5153F001913A64958D908EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ ScreenToGif — удобный бесплатный инструмент, с п�
 ```bash
 magnet:?xt=urn:btih:3BFC3491BC5C6CF4C36B30485ECA1328C8593178
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ SkinFiner — это программа для редактирования по
 magnet:?xt=urn:btih:DA9CBBEFD11B008E7B3C3F4BFA8CAB593D273512
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ ON1 Resize AI 2026 — ведущее в отрасли программное �
 magnet:?xt=urn:btih:CAECE88730FC1CD52E87C0712A1FA74F7F3D372E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ CoolUtils Total Image Converter преобразует изображения в
 ```bash
 magnet:?xt=urn:btih:446677636798E2E9DF13B744EE8B7297CE34836D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Adobe Illustrator — это принятое в качестве отрасле
 magnet:?xt=urn:btih:04E3ED7B6ACD1547D096FEFB8CC8A553E5CE4978
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ PicPick - приложение, объединяющее в себе возмо�
 magnet:?xt=urn:btih:591A8C9DB4AD16E18ABA0D5E46A5222C107E2DAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ FreeVimager 9.9.26 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1C6EDE718B7671C11F08DBE1A42D60CF11FAEAB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ PhotoLine - простая в обращении программа, предс�
 magnet:?xt=urn:btih:E01DD91AD2A3B33B3089AF839800409096EDE1DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Nik Collection by DxO 8.1.101 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:17F37750C8556FE5C0314BE02AB8777D2F54DA14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Clip Studio Paint EX (ранее Manga Studio EX) - это ведущее в м�
 magnet:?xt=urn:btih:097DD2D93B4C0358CEEA50394A304C7494123BF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ Moho Pro – мощная программа для создания качес�
 ```bash
 magnet:?xt=urn:btih:FEB41D6257D481056EA49B5D61DF1355BFFAE07D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ IconCool Studio Pro - обновленная версия программы д�
 magnet:?xt=urn:btih:18F748F5C73318804C92E15DC4719917D31865E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Cyberlink PhotoDirector Ultra — многофункциональный ред�
 ```bash
 magnet:?xt=urn:btih:F2A9199968C43FE9E24724B4753534B551B055F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:0A3CED8E468414FD5A086FBDBE2497AE28C5BF3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:0A3CED8E468414FD5A086FBDBE2497AE28C5BF3E
 magnet:?xt=urn:btih:E83F9B7157BBB36DF3EE8997C7F53332136DD4AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:E83F9B7157BBB36DF3EE8997C7F53332136DD4AC
 ```bash
 magnet:?xt=urn:btih:E1EF7900C57761E11F397BFEC602E73115D69211
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:E1EF7900C57761E11F397BFEC602E73115D69211
 magnet:?xt=urn:btih:2D7C47EB7AFAF86A0EF883B7280CB82D7DF0E1AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:2D7C47EB7AFAF86A0EF883B7280CB82D7DF0E1AC
 ```bash
 magnet:?xt=urn:btih:96E056928CE09C8AC8A733869E7ABC73E235DB5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ magnet:?xt=urn:btih:96E056928CE09C8AC8A733869E7ABC73E235DB5E
 magnet:?xt=urn:btih:FC30165CA4831E15750A4BDB446A6874C0841685
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ magnet:?xt=urn:btih:FC30165CA4831E15750A4BDB446A6874C0841685
 ```bash
 magnet:?xt=urn:btih:BFE843642EEF286C8F0C2FF7C90CC2F9FAABF711
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ magnet:?xt=urn:btih:BFE843642EEF286C8F0C2FF7C90CC2F9FAABF711
 magnet:?xt=urn:btih:E788DFE2964BA9C4EE070DDAEA26D9B5169CEEB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ Joe Dassin - Oh, Champs-Elysees - Seine Grossen (1992) [FLAC|tracks+.cue]<Chanso
 ```bash
 magnet:?xt=urn:btih:0642783FC034AC61CFDE2B299F97E2988BB9A3FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ Dalida - Les Geants De La Chanson (2016) [FLAC|Lossless|tracks + .cue] <Chanson,
 magnet:?xt=urn:btih:6C417301707DE35B86A73DBB5BAE0B72360512EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ magnet:?xt=urn:btih:6C417301707DE35B86A73DBB5BAE0B72360512EB
 ```bash
 magnet:?xt=urn:btih:388A9E8342BE1EB69D0ED0930B382FE0B5B0E25C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +338,8 @@ magnet:?xt=urn:btih:388A9E8342BE1EB69D0ED0930B382FE0B5B0E25C
 magnet:?xt=urn:btih:06A06BA9282496D7E6D38E0B5C385E4BD4272446
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ magnet:?xt=urn:btih:06A06BA9282496D7E6D38E0B5C385E4BD4272446
 ```bash
 magnet:?xt=urn:btih:24330FA0974BA8766261433FF9E481E152FF9B92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ magnet:?xt=urn:btih:24330FA0974BA8766261433FF9E481E152FF9B92
 magnet:?xt=urn:btih:8FFF30BCBC2185D2BE18BDAC332ACD59EE5858AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ magnet:?xt=urn:btih:8FFF30BCBC2185D2BE18BDAC332ACD59EE5858AB
 ```bash
 magnet:?xt=urn:btih:7229924EF876B0BCDC6235C0424492C009B5C762
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ Helene (Hélène) Rolles - Hélène (2016) [FLAC|Lossless|WEB-DL|tracks] <Chanso
 magnet:?xt=urn:btih:AAD1D9CE65A5897E26676C17871E2B99C77694F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ Helene (Hélène) Rolles - A force de solitude (1997) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:07C8D64DC45CE820516B0F4F7EA656E8FF467834
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ magnet:?xt=urn:btih:07C8D64DC45CE820516B0F4F7EA656E8FF467834
 magnet:?xt=urn:btih:FDCF5EA54EE8A8CE6E947D8097390B9E8549B07F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +540,8 @@ VA - Afisha Hold Music (2004) [FLAC|tracks+.cue]<Chanson, Ballad, Schlager>
 ```bash
 magnet:?xt=urn:btih:8A5AB22436B79F3C6ECB210FD212A32F9E656C28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +570,8 @@ Helene (Hélène) Rolles - Le miracle de l'amour (1994) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:5A349903A43C475482858DBA84D5395CEA27C652
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +598,8 @@ Helene (Hélène) Rolles - Je m’appelle Hélène (1993) [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:FE642B19B7A3DB6F4779DF5C2D3F283E692F76D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +628,8 @@ Helene (Hélène) Rolles - Toi... émois (1995) [FLAC|Lossless|WEB-DL|tracks] <C
 magnet:?xt=urn:btih:BDB16564B7BA264E4FE298DA3CCE4DE80EC2900B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +653,8 @@ VA - Коллекция из серии: Настроение шансон 33 CD
 ```bash
 magnet:?xt=urn:btih:275D2BE3FF8920D535D470D1AD6D4FE204A0B07C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +682,8 @@ magnet:?xt=urn:btih:275D2BE3FF8920D535D470D1AD6D4FE204A0B07C
 ```bash
 magnet:?xt=urn:btih:F08BAB7169D6B97A5F2B429AFF9DB85675B74F33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ magnet:?xt=urn:btih:F08BAB7169D6B97A5F2B429AFF9DB85675B74F33
 magnet:?xt=urn:btih:3C530068D21C21311189E24AB0E2D49196568470
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ magnet:?xt=urn:btih:3C530068D21C21311189E24AB0E2D49196568470
 ```bash
 magnet:?xt=urn:btih:0A7F031BF3457C0E9F3060604AB052395C3AB2A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

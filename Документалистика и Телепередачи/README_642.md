@@ -1,3 +1,29 @@
+###  Публикация: 1498238   (859888) от 25.09.2021
+
+Альпийская прогулка 2 / Alpine Stroll 2 (2020) WEBRip [VP9/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправьтесь в кинематографическое FPV-путешествие вслед за лыжниками по красивым альпийским пейзажам США.Производство: СШАЖанр: Документальный, видовойРежиссер: Николя ГайярПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBE54302B9076011FA4C797672ACDA5B2C01D8A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 963137   (859954) от 17.04.2020
 
 Габриэль Суарез - бой с автоматом Калашникова / Kalashnikov Rifle Gunfighting - Gabe Suarez (2008) DVDRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:9B62C31C32065D0726C5A6FEBDC852DC0CFD68AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ Discovery Channel. Военный архив: под грифом «Топ-10» 
 magnet:?xt=urn:btih:1E23FC93DBCF1DC46F4D50430BCA8EED362C2697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:1E23FC93DBCF1DC46F4D50430BCA8EED362C2697
 ```bash
 magnet:?xt=urn:btih:D2783E1831E0D831244828078C189505196E82D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:D2783E1831E0D831244828078C189505196E82D0
 magnet:?xt=urn:btih:1BCA20AFB9D019D25F8CDA9287822FEF38E8203A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:1BCA20AFB9D019D25F8CDA9287822FEF38E8203A
 magnet:?xt=urn:btih:9C365E3903244FCE92BCB042D2B9983665F4C5D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:9C365E3903244FCE92BCB042D2B9983665F4C5D4
 ```bash
 magnet:?xt=urn:btih:7031CD22ED140098D5CD355CF1A620638897F6F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:7031CD22ED140098D5CD355CF1A620638897F6F5
 magnet:?xt=urn:btih:26A7BE437C3E5A224453C915FFC9932C1CA689D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:26A7BE437C3E5A224453C915FFC9932C1CA689D8
 magnet:?xt=urn:btih:F2A415ED19DE002F2B95522CF5418908DDD10617
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:F2A415ED19DE002F2B95522CF5418908DDD10617
 ```bash
 magnet:?xt=urn:btih:19205C870D5501914F3C9CC851974F934E039DEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:19205C870D5501914F3C9CC851974F934E039DEB
 magnet:?xt=urn:btih:07379AD3CA30020FBFC990FF14B65819762504A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:07379AD3CA30020FBFC990FF14B65819762504A6
 magnet:?xt=urn:btih:3CEA144A721783715DE34D1709E295F2A38A3FCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:3CEA144A721783715DE34D1709E295F2A38A3FCB
 ```bash
 magnet:?xt=urn:btih:06F8DD22D5607E992376A069DE15D86DCCA71E04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:06F8DD22D5607E992376A069DE15D86DCCA71E04
 magnet:?xt=urn:btih:E5A9DAA0F0E66F826B22285F09E3EB1C418D10F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:E5A9DAA0F0E66F826B22285F09E3EB1C418D10F9
 magnet:?xt=urn:btih:475D595A79EFB37E3146F9B2B3876C84C79228A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:475D595A79EFB37E3146F9B2B3876C84C79228A7
 ```bash
 magnet:?xt=urn:btih:8CE8B575A4BF6BE9C497CDB1649AC602F5EE67C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:8CE8B575A4BF6BE9C497CDB1649AC602F5EE67C0
 magnet:?xt=urn:btih:89E5DEBB25B3913C8EAFF2C92409D3E30C865FF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:89E5DEBB25B3913C8EAFF2C92409D3E30C865FF5
 magnet:?xt=urn:btih:300F2951F7DF3BBFEF007BFD2C84BF125E50666F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:300F2951F7DF3BBFEF007BFD2C84BF125E50666F
 ```bash
 magnet:?xt=urn:btih:7FB74E081A0BC23C4F5F10C3E353DCB7277C4CDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:7FB74E081A0BC23C4F5F10C3E353DCB7277C4CDA
 magnet:?xt=urn:btih:718F6B88DFAE6E6251A631C9ACEE94B77C570A22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:718F6B88DFAE6E6251A631C9ACEE94B77C570A22
 ```bash
 magnet:?xt=urn:btih:24566DC5FFDA80C26CE25433BC022B5C839B5C0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:24566DC5FFDA80C26CE25433BC022B5C839B5C0F
 magnet:?xt=urn:btih:138B42F67C32FB32762959C0D54BC892E9B00815
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:138B42F67C32FB32762959C0D54BC892E9B00815
 ```bash
 magnet:?xt=urn:btih:7A6C4C6A5B229AFF56323F77D30543D1FB4A8211
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:7A6C4C6A5B229AFF56323F77D30543D1FB4A8211
 magnet:?xt=urn:btih:D6FA5BA0B754B813751342653CAA29F7C0030B44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:D6FA5BA0B754B813751342653CAA29F7C0030B44
 ```bash
 magnet:?xt=urn:btih:57500C0EA8DEEDA3BAC524CF6706D7B74219A793
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:57500C0EA8DEEDA3BAC524CF6706D7B74219A793
 magnet:?xt=urn:btih:AE30734F804F2D2FDF46182B4278546DAE7ED91F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109204   (860992) от 26.02.2017
-
-Лучше всех (2017.02.26) SATRip (сезон 2, выпуск 3)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое детское телевизионное шоу талантов, куда приглашаются юные участники от трех до 12 лет. Если ваш ребенок проявляет экстраординарные способности, то его ждут в нашем шоу!Телекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 01:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:805B999A8E5975E98AC95CDE5E6735B3039A87E8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

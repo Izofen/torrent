@@ -19,6 +19,8 @@ Avidemux - небольшой, простой редактор для работ
 magnet:?xt=urn:btih:AD8DE8BC243D8BE022FCB01FB25E8C7B1F9F64B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - Музыка Победы (2025) [MP3|320 Kbps] <Военная песня>
 magnet:?xt=urn:btih:FB477A261FDFBC1CC85E5C453B487B8D5CB21892
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:FB477A261FDFBC1CC85E5C453B487B8D5CB21892
 ```bash
 magnet:?xt=urn:btih:4413C0BBBB606923E7D9B61C1E5F62078A0EE2FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Human Fast Food предлагает геймеру погрузиться в о
 magnet:?xt=urn:btih:C918E15E857DAA979BBBE1F7B589EDF1753B45E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Onimusha: Warlords (2019) [Ru/Multi] (Build 17777991) Repack FitGirl
 magnet:?xt=urn:btih:2BD5FF0AE949FDA7E5667CD15B4A326DE02C34B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Timelie v1.0.2 Mod by LITEAPKS [Ru]
 ```bash
 magnet:?xt=urn:btih:D8DF4CA7C2EE7418FBB718C48371C8B80D01C3C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:D8DF4CA7C2EE7418FBB718C48371C8B80D01C3C0
 magnet:?xt=urn:btih:F6A0FC6465CE2BAF1693FE5F58DB6174AC44178D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:F6A0FC6465CE2BAF1693FE5F58DB6174AC44178D
 magnet:?xt=urn:btih:C0759AC5497C311FA31799E2A28C6F7A372882E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:C0759AC5497C311FA31799E2A28C6F7A372882E4
 magnet:?xt=urn:btih:7DE2FD447C393FF76D9727EF0CA96468CFE0D0AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ DLNow Video Downloader - быстрое, полезное, практичное 
 ```bash
 magnet:?xt=urn:btih:545C607CD4C389A580FBA96E1211D19F3EEF7858
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ FreeTube использует собственный HTTP-API YouTube с наб�
 magnet:?xt=urn:btih:892DAAB28C513393E5BF86B20FF95A8796E6E331
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:892DAAB28C513393E5BF86B20FF95A8796E6E331
 magnet:?xt=urn:btih:9548FD12FA95E92035D95C5BCBE09A9B513A54DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:9548FD12FA95E92035D95C5BCBE09A9B513A54DB
 ```bash
 magnet:?xt=urn:btih:B2AB7565DC5F801D7237A30E237550F6567F98AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:B2AB7565DC5F801D7237A30E237550F6567F98AD
 magnet:?xt=urn:btih:1A588F7B64E065616AEFEB74927EDAC035E30DEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:1A588F7B64E065616AEFEB74927EDAC035E30DEC
 ```bash
 magnet:?xt=urn:btih:7AC8CC2BEAD791EB282DCF473E5CD1A06B86479D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:7AC8CC2BEAD791EB282DCF473E5CD1A06B86479D
 magnet:?xt=urn:btih:9DBA10FE4EA3918418018979C854E069BDA8949B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:9DBA10FE4EA3918418018979C854E069BDA8949B
 magnet:?xt=urn:btih:586709D0527D1628A4710108F4C63D5C9FBD10CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ MEMORIAPOLIS (2024) [Ru/Multi] (1.0.26) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:C8D3D1C7A3DB80FC5038C21C128F6F235F595FC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:C8D3D1C7A3DB80FC5038C21C128F6F235F595FC4
 magnet:?xt=urn:btih:DFB62F4327360D05836D91AC3F53A7AB7793F3ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Rain World (2017) [Ru/Multi] (1.10.3/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:ED9A4E5668EC56C98845A7B829C7C9565AE40789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Mother Hub (2025) [En] (16) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:11EB7CDD346A4330AD9357642B7C5DBA4CADF3A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:11EB7CDD346A4330AD9357642B7C5DBA4CADF3A6
 magnet:?xt=urn:btih:34022FCBAB5FB33D838DA303A91955C1D5BF6A53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Vestiges: Fallen Tribes - это уникальное сочетание стр�
 ```bash
 magnet:?xt=urn:btih:317C331810CDC9C261AFBAC66E1EE5F40C9276CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:317C331810CDC9C261AFBAC66E1EE5F40C9276CB
 magnet:?xt=urn:btih:CB372700D381D8FE33ABCDD9822D5115FFEA0571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (2.00.128634) Repack FitGirl [Soundt
 magnet:?xt=urn:btih:D5DB777EBF81CAA11A959C5F7B5C1C09B5776F2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:1C06AC18A35B5116475573F7A3C8AE9588C8C698
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

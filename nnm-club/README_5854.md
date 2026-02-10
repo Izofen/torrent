@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:ACF690F1D1431F2ADD72BB9767C0C67EA7AF47A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Dogstar - Somewhere Between the Power Lines and Palm Trees (2023) [FLAC 24/48|Lo
 magnet:?xt=urn:btih:88924F057B3962335161189CF7F1997E653AC8FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:88924F057B3962335161189CF7F1997E653AC8FD
 magnet:?xt=urn:btih:69A2296D309EC7E1E6F9E68DCB6AFD690600CE96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:69A2296D309EC7E1E6F9E68DCB6AFD690600CE96
 ```bash
 magnet:?xt=urn:btih:D5F7CC0AE4AA2D6D03B2D4DC375F81A01337540E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Scar Symmetry — шведская мелодик дэт-метал группа
 magnet:?xt=urn:btih:FEB566CF7549519A280FE23102EB2B5BF8698DA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:FEB566CF7549519A280FE23102EB2B5BF8698DA2
 ```bash
 magnet:?xt=urn:btih:EBDBE6B01AD2ED7103B133A25C14361626652D95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:EBDBE6B01AD2ED7103B133A25C14361626652D95
 magnet:?xt=urn:btih:CD6E2B41759D2B61BA209254F45862D23B8D3C1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Hollow Knight 1.2.2-Final (Unofficial port) Mod by Skaizek & Dan Cooper [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:40FE3050B1DF5D8BD6FBF1F667A7C26761328E52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:358C8ACFDA8F3F769186079D1A406B60C62CF79B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:358C8ACFDA8F3F769186079D1A406B60C62CF79B
 magnet:?xt=urn:btih:9CFBB5056B1EAB06C36B2EEBBA4C6B26D8D312F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:9CFBB5056B1EAB06C36B2EEBBA4C6B26D8D312F9
 ```bash
 magnet:?xt=urn:btih:34EEA0429E733AE1E8FA3B99F0C216DD99E34553
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:34EEA0429E733AE1E8FA3B99F0C216DD99E34553
 magnet:?xt=urn:btih:488EA29B2824467072B00F183D906B493BE4211E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:488EA29B2824467072B00F183D906B493BE4211E
 ```bash
 magnet:?xt=urn:btih:C73CD368F5D32B1F5190C13675442F98B65E506F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:C73CD368F5D32B1F5190C13675442F98B65E506F
 magnet:?xt=urn:btih:5250E2F21B13D4C4A64A8823BE34634C25900A40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:5250E2F21B13D4C4A64A8823BE34634C25900A40
 ```bash
 magnet:?xt=urn:btih:2B17589E751D5CD781B453FE8279D24F2F422F8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:2B17589E751D5CD781B453FE8279D24F2F422F8E
 magnet:?xt=urn:btih:905D6471A3B9AF3462390A7629FB65ACE4AAC7CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:905D6471A3B9AF3462390A7629FB65ACE4AAC7CA
 ```bash
 magnet:?xt=urn:btih:C14DA4D60A0BF04093C5011B86DC524DE061D991
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:C14DA4D60A0BF04093C5011B86DC524DE061D991
 magnet:?xt=urn:btih:E53665D662845606C1B897C49CC6B4F980CFED1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:E53665D662845606C1B897C49CC6B4F980CFED1B
 ```bash
 magnet:?xt=urn:btih:2787D7412A30476000D2C3B2E33D1F93657FCF5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ Hanged Ghost - Cold Grave Sensation (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, 
 magnet:?xt=urn:btih:9BBBF82C3543A0BF31F01CB2B9E1C6A575CEBC28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:9BBBF82C3543A0BF31F01CB2B9E1C6A575CEBC28
 ```bash
 magnet:?xt=urn:btih:7C2425A9785082B668C621001910F2A666D86A68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ Wondershare Filmora - удобный видеоредактор, содержа�
 magnet:?xt=urn:btih:49AC6E395AA87CFD83E7449CE9543A8B8E9DEA27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:49AC6E395AA87CFD83E7449CE9543A8B8E9DEA27
 ```bash
 magnet:?xt=urn:btih:7912C94778C051F116D2A15C1A8D1D7C6C65D524
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:7912C94778C051F116D2A15C1A8D1D7C6C65D524
 magnet:?xt=urn:btih:9054376D4AC1D5D4A0B43C85802CE5074B34BD4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:D480E9803EE0574E6BD7C9F5D3740236556ECBB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:D480E9803EE0574E6BD7C9F5D3740236556ECBB6
 ```bash
 magnet:?xt=urn:btih:20FF8278DE7A8B0365EE0DF5668C8AF1E8E95FA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

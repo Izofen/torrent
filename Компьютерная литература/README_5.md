@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:7B1A66AFCE1F6C1C24AB3C0C2218BDC4CFFF9E0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:7B1A66AFCE1F6C1C24AB3C0C2218BDC4CFFF9E0C
 ```bash
 magnet:?xt=urn:btih:FED530F1BC5054152D9C8ED1D792AA04F99475C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:FED530F1BC5054152D9C8ED1D792AA04F99475C5
 magnet:?xt=urn:btih:ADC8D9C13514828FA319F4B38585D09986DB4072
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:ADC8D9C13514828FA319F4B38585D09986DB4072
 ```bash
 magnet:?xt=urn:btih:F567382A65F16D7C242C07B38AEF1DA5505597DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Morten Barklund | React in Depth (2024) [PDF][EN]
 magnet:?xt=urn:btih:EDFD7686A79B207DDC154BF0009D10A0ADA5DD4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ JavaScript играет ключевую роль в современной ра
 ```bash
 magnet:?xt=urn:btih:F26A3417AF43FAB85EBBFEDFAA9954512E5275DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:F26A3417AF43FAB85EBBFEDFAA9954512E5275DF
 magnet:?xt=urn:btih:0F443A32A2A08D006A378A7BBFBDF1E06E3E06B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:0F443A32A2A08D006A378A7BBFBDF1E06E3E06B5
 ```bash
 magnet:?xt=urn:btih:86C66203303377182FD0C18648AED2DD81ED1096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:86C66203303377182FD0C18648AED2DD81ED1096
 magnet:?xt=urn:btih:DA7FEFF6F15412812DAFE2BA0E6B22A12BFB27DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:DA7FEFF6F15412812DAFE2BA0E6B22A12BFB27DD
 ```bash
 magnet:?xt=urn:btih:191D57454222FC9499A349C5F7A4FD934B2B53FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:191D57454222FC9499A349C5F7A4FD934B2B53FF
 magnet:?xt=urn:btih:C56D8142182A142E651B3C2EA6C6E1E5A0137E4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:C56D8142182A142E651B3C2EA6C6E1E5A0137E4B
 ```bash
 magnet:?xt=urn:btih:C5F04380AC9ABC3B6D6FF9647379AB4D90496BE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:C5F04380AC9ABC3B6D6FF9647379AB4D90496BE7
 magnet:?xt=urn:btih:FBDF76E4D7C149BB9E31B707DC58EFCBA53BB534
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:FBDF76E4D7C149BB9E31B707DC58EFCBA53BB534
 ```bash
 magnet:?xt=urn:btih:74AD952A087173D8D0B648E57056D33934BF8C21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:74AD952A087173D8D0B648E57056D33934BF8C21
 magnet:?xt=urn:btih:A98D01006E16F7621A97CEE230AD32C89C97AFFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Stepik, Александр Чумилин | Основы этичного хак
 ```bash
 magnet:?xt=urn:btih:63A1961E6DFFF281F1866925948F136D450A61F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Writing asynchronous code can be challenging, with a variety of possible interfa
 magnet:?xt=urn:btih:DE1B2F79E328A08117B9209F4D229559A58DED7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Move into iOS development by getting a firm grasp of its fundamentals, including
 ```bash
 magnet:?xt=urn:btih:645F812A674867689329E60584232BBC5828C992
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:645F812A674867689329E60584232BBC5828C992
 magnet:?xt=urn:btih:3354CBEA77B02A60F5DEFD6E398DD162E166FB44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:3354CBEA77B02A60F5DEFD6E398DD162E166FB44
 ```bash
 magnet:?xt=urn:btih:E29D4C745CA2F1387E2FE575F3B00EC88F4F40F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:E29D4C745CA2F1387E2FE575F3B00EC88F4F40F3
 magnet:?xt=urn:btih:B8201D5045E19419E5DB788EDB5DFB3533BDC1C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ SolidWorks 2010: Основные элементы SolidWorks [2009] [DJVU]
 ```bash
 magnet:?xt=urn:btih:44AC455A0208D878A060E74F9734EC6F29CF5886
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ SolidWorks | Оформление чертежей по ЕСКД [2005] [DJVU]
 magnet:?xt=urn:btih:AC2DA2B6FDC5D93B843C5BB7E971978EE0D57BD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:AC2DA2B6FDC5D93B843C5BB7E971978EE0D57BD7
 ```bash
 magnet:?xt=urn:btih:BFF014144F7349B3D5B3306B12CEB150425DBAF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:BFF014144F7349B3D5B3306B12CEB150425DBAF3
 magnet:?xt=urn:btih:D6A5192337752C9D112171B104E317F46BAB6A35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Huseyin Babal | gRPC Microservices in Go (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:A307F8546003AD7BB4D515BBBE07444F8BDAFD1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

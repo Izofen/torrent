@@ -1,3 +1,31 @@
+###  Публикация: 1841477   (1047985) от 11.12.2025
+
+Маша Соколова | Приготовить просто. Полезные завтраки, обеды и ужины на каждый день (2021) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047985.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Хочу питаться правильно, но…» — эти «но» я слышу от большинства своих учеников, подписчиков или знакомых. Одних останавливают мысли, что здоровая еда — это пресно и безвкусно, другие представляют, что не смогут найти нужных ингредиентов или будут вынуждены платить за них вдвое больше.
+А ЕСЛИ Я СКАЖУ, ЧТО ПП — ЭТО НЕ ТОЛЬКО ПРАВИЛЬНО, НО И ПРОСТО?
+Представлю проверенное (   Читать дальше...   )Жанр: КулинарияИздательство: БомбораФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:354145DBCD3A7E954AEBC1C229EE503BBCCEE771
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841756   (1048208) от 13.12.2025
 
 Барри Пирсон, Нил Томас | Краткий курс МВА. Практическое руководство по развитию ключевых навыков управления [5-е издание] (2007) [PDF]
@@ -19,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:ABC3FB75FBEA09801BC03A3AABA6CE6CD48FFDE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +74,8 @@ magnet:?xt=urn:btih:ABC3FB75FBEA09801BC03A3AABA6CE6CD48FFDE5
 magnet:?xt=urn:btih:71BDB33FCA7537261D3C31AB2B0C97DCCCD9845A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +99,8 @@ magnet:?xt=urn:btih:71BDB33FCA7537261D3C31AB2B0C97DCCCD9845A
 ```bash
 magnet:?xt=urn:btih:87400D3961FB80E6C23B056D20F7415758C565C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +128,8 @@ magnet:?xt=urn:btih:87400D3961FB80E6C23B056D20F7415758C565C9
 magnet:?xt=urn:btih:61D1695C2EB764A43F7F5CB019478B78B3FBD5B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +153,8 @@ magnet:?xt=urn:btih:61D1695C2EB764A43F7F5CB019478B78B3FBD5B6
 ```bash
 magnet:?xt=urn:btih:C948A709149611836FC5C6C4F7869F359F135440
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +180,8 @@ magnet:?xt=urn:btih:C948A709149611836FC5C6C4F7869F359F135440
 magnet:?xt=urn:btih:34C6D67F1F78D6E76BF2E4327ECEBB6EA1DEFA25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +205,8 @@ magnet:?xt=urn:btih:34C6D67F1F78D6E76BF2E4327ECEBB6EA1DEFA25
 ```bash
 magnet:?xt=urn:btih:9D0E97755D380F797FAA94D9944F18F2880B0FA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +232,8 @@ magnet:?xt=urn:btih:9D0E97755D380F797FAA94D9944F18F2880B0FA9
 ```bash
 magnet:?xt=urn:btih:5E09146751982A827E1CB116BD742C7737F3227A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +261,8 @@ magnet:?xt=urn:btih:5E09146751982A827E1CB116BD742C7737F3227A
 magnet:?xt=urn:btih:04E55287A58CBEC33749BDF2DAC82135EC95A534
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +289,8 @@ magnet:?xt=urn:btih:04E55287A58CBEC33749BDF2DAC82135EC95A534
 magnet:?xt=urn:btih:3AAB35A7AE850A4073DA65BC23812403B319C5A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +314,8 @@ magnet:?xt=urn:btih:3AAB35A7AE850A4073DA65BC23812403B319C5A6
 ```bash
 magnet:?xt=urn:btih:9B74CDC01FC81796B3A5CDBBF9B8B233416F0C22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +341,8 @@ magnet:?xt=urn:btih:9B74CDC01FC81796B3A5CDBBF9B8B233416F0C22
 ```bash
 magnet:?xt=urn:btih:79186FA52D7774EDE021D9CC794097E7EBB363B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +370,8 @@ magnet:?xt=urn:btih:79186FA52D7774EDE021D9CC794097E7EBB363B8
 magnet:?xt=urn:btih:5C3C972C5E3F03294BC105E24EECA30F551CEC39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +395,8 @@ magnet:?xt=urn:btih:5C3C972C5E3F03294BC105E24EECA30F551CEC39
 ```bash
 magnet:?xt=urn:btih:47B4624760CBACA91E9FC80F309818695ADD69F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +423,8 @@ magnet:?xt=urn:btih:47B4624760CBACA91E9FC80F309818695ADD69F5
 magnet:?xt=urn:btih:8533E346253FFE8736B71FB3C8FD9D29086E83D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +450,8 @@ magnet:?xt=urn:btih:8533E346253FFE8736B71FB3C8FD9D29086E83D8
 magnet:?xt=urn:btih:CAE6FCFD35DA533DD72990CD07C77E802440B2EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +475,8 @@ magnet:?xt=urn:btih:CAE6FCFD35DA533DD72990CD07C77E802440B2EF
 ```bash
 magnet:?xt=urn:btih:962ABC92EA0CF5741FD9010C2D6E23E12B587209
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +504,8 @@ magnet:?xt=urn:btih:962ABC92EA0CF5741FD9010C2D6E23E12B587209
 magnet:?xt=urn:btih:B73ADD160F92595D2019035A30D0E7446672DDD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +529,8 @@ magnet:?xt=urn:btih:B73ADD160F92595D2019035A30D0E7446672DDD0
 ```bash
 magnet:?xt=urn:btih:293266543E6CF7095FC74F3EF35C31F424F8A2B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +558,8 @@ magnet:?xt=urn:btih:293266543E6CF7095FC74F3EF35C31F424F8A2B7
 magnet:?xt=urn:btih:AAF1360BEB3F672AB9AAF5D7B59AD47612E31126
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +584,8 @@ magnet:?xt=urn:btih:AAF1360BEB3F672AB9AAF5D7B59AD47612E31126
 magnet:?xt=urn:btih:5E414581F41EADB8F6F70FC10B9A3E009FF6CF1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +609,8 @@ magnet:?xt=urn:btih:5E414581F41EADB8F6F70FC10B9A3E009FF6CF1B
 ```bash
 magnet:?xt=urn:btih:71ECB08AB599A7FB6ADDAC0F4ECB909F9FDBEF27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +638,8 @@ magnet:?xt=urn:btih:71ECB08AB599A7FB6ADDAC0F4ECB909F9FDBEF27
 magnet:?xt=urn:btih:0DE163DAD9919E970EF8193B5032216FAE497F1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +666,8 @@ magnet:?xt=urn:btih:0DE163DAD9919E970EF8193B5032216FAE497F1A
 magnet:?xt=urn:btih:601D78AFE87E3270D6DA5B02E0222F5C48EB9427
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,30 +692,7 @@ magnet:?xt=urn:btih:601D78AFE87E3270D6DA5B02E0222F5C48EB9427
 magnet:?xt=urn:btih:6EE828DC896C2E38ABD54C4A3E549E678E3A5623
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842896   (1049068) от 17.12.2025
-
-Людмила Мартьянова | Профайлинг  в действии. Характеристика собеседника за 10 минут (2023) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Существуют различные типы людей, и важно научиться их распознавать. Шаг за шагом анализируя тех, кто встречается на вашем пути, вы сможете защитить себя и извлечь выгоду из любой ситуации. Книга, которую вы держите в руках, поможет прокачать навыки в общении, разобраться в ролях и личностях, исследовать мотивы и даст эффективные инструменты для работы с людьми.
- (   Читать дальше...   )Жанр: Саморазвитие / личностный ростИздательство: АСТФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A3FE62FE2DEEBB0CD57F5566CEDA870D20C38EF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

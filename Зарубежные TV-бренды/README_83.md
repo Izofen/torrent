@@ -19,6 +19,8 @@ BBC. Пингвин: Шпион под прикрытием / Penguins. Spy In T
 magnet:?xt=urn:btih:242C9114A7E46EA3A45ACE857E4AD2C58E7E80EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Discovery. Техногеника. Самосвал БЕЛАЗ 75710 Больш�
 ```bash
 magnet:?xt=urn:btih:B92D04AE74CCC5CB41250223BA97BC8D6C634CD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ BBC: Мир природы. Роковой цветок / The Natural World. The
 magnet:?xt=urn:btih:DC4533623B0EEF5DC3CF67F067ABA180002D76F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ National Geographic. Королева леопардов / Leopard Queen (2010) 
 ```bash
 magnet:?xt=urn:btih:11463C1E62BEA59B73915096E43AEE6258B04A6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ NGW: Планета хищников. Идеальные убийцы / Planet C
 magnet:?xt=urn:btih:52F236B2C32223B5C0BAA11CFAA33191B8F7C492
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ NG: Дайан Фосси. Секреты в тумане / Dian Fossey. Secrets
 magnet:?xt=urn:btih:918C85DFA9885B0368C10A020C9FE531A2A9F581
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ NGW: Смертоносная Африка. Саванна / Africa's Deadly Kin
 ```bash
 magnet:?xt=urn:btih:F94AE46B2BDEA7E9E88BC5262D21F66923643F88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:F94AE46B2BDEA7E9E88BC5262D21F66923643F88
 magnet:?xt=urn:btih:32807EEC6FC8B01751B4F7988A482ED5A4DE3BAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 magnet:?xt=urn:btih:A1694879C77378FBD71765D7A041E18171FA521A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ BBC. Вся правда о характере / The Truth About Personality (20
 ```bash
 magnet:?xt=urn:btih:307ED792318F7A81A323E33E23B5B0E54FB86181
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Discovery. Техногеника. Реактор ВВЭР - 1200. Самый м
 magnet:?xt=urn:btih:BC29F49090D64F71C63C115FA7722A8122D542DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Discovery. Техногеника. Центр подготовки космон�
 magnet:?xt=urn:btih:A23068CDCD88BD61E5906A13AB7E2B796FA7129E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ History Channel: Охота за трансильванским золотом /
 ```bash
 magnet:?xt=urn:btih:D7767D01123F4D8C7017CE920CF5B4B60C808CD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ NG: Забытые персонажи Библии / Lost Face of the Bible (201
 magnet:?xt=urn:btih:3F1A234B5DBF352FD4E4EC4569DCF039EB25D478
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Animal Planet: Рожденные свободными / From Cubs to Kings (201
 magnet:?xt=urn:btih:CD540FA47ABD42F7E9822192D135132CCF9C938D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ BBC: Тайная жизнь птиц / Secret Life of Birds (2010) BDRemux [H.2
 ```bash
 magnet:?xt=urn:btih:434B3575161F6EFC097B8A78F364F8D5C399D2FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Discovery: Смертельное собеседование / Deadliest Job Int
 magnet:?xt=urn:btih:94D1ECDF0FE3332B669875F83BCBBB990C546E92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Discovery: Смертельный улов / Deadliest Catch (2017) HDTVRip [H.2
 magnet:?xt=urn:btih:E0EA3FD69502CE5A7B1898ED0CB52A90D6686A82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ BBC: Таинственный Мир Материалов / The Mysterious World
 ```bash
 magnet:?xt=urn:btih:F8A2F655ECD6C743E1D7268CFC7431642B4D5535
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ BBC. Тайны взросления / The Secret Life of Growing Up (2016) SATR
 magnet:?xt=urn:btih:82CE70A0EC689C4580B2150751C334A67E9EB31C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ BBC. Зелёная планета / The Green Planet (2022) WEBRip [H.265/2160p
 ```bash
 magnet:?xt=urn:btih:BAB7D1C428F5BEFFB6509B1567C62DDC44C804A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ BBC: Horizon. Что было до Большого взрыва / What Happened
 magnet:?xt=urn:btih:A25A0F6A237323EB144EB92FAFD24F57CC721F43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:A25A0F6A237323EB144EB92FAFD24F57CC721F43
 ```bash
 magnet:?xt=urn:btih:A1652CF07E31FA0532D32AC50D317166D062CF6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:A1652CF07E31FA0532D32AC50D317166D062CF6A
 magnet:?xt=urn:btih:D254333821AAD9DADC56AF64AB27EA10AED2346F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ NG: Проект: Динозавр / T.Rex: Autopsy (2015) HDTV [H.264/1080i]
 magnet:?xt=urn:btih:DE9496B3A4FB4BDA95001735534A086F9D73D7D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Discovery: Поездка налегке / Free Ride (2016) HDTV [H.264/1080p-LQ
 ```bash
 magnet:?xt=urn:btih:E1BA3B1C88AB54096BA852BF4C75D2ABE87361D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

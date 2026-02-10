@@ -19,6 +19,8 @@ Luxury Slides, проект, который поможет Вам в рекла�
 magnet:?xt=urn:btih:9DEFD7A6987FAFB08A244CACAEF6AAAFE85E459C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Resort Luxury Slides - роскошный эффектный проект в з�
 ```bash
 magnet:?xt=urn:btih:A73B6B851EDFCB2CD04F194FD7EB83DC5486BCA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Simple Promo - проект для создания корпоративной �
 magnet:?xt=urn:btih:DC8DCF3B448BFE5B68F01C293162260077AF0A26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Hotel Fact-sheet Showcase - предлагает мощный видео-инс�
 magnet:?xt=urn:btih:BE4137AD84493AF3AAB3C5BCD50148B69BACC7DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Elegant Architecture Promo - проект, который можно испол�
 ```bash
 magnet:?xt=urn:btih:0FBFCDE30E94AFE703AEBE453CF9E4A11C6B0184
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Fashion Video Gallery - Проект для полноценного 3 мину�
 magnet:?xt=urn:btih:A6303A109A2E50D02A9256173B43FCCA205FD2BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ RevoStock - Techno Panels - 707274 [AEP]
 magnet:?xt=urn:btih:D81AE18ED574BDE87E3D208FDA1A2A10BD02A54E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:D81AE18ED574BDE87E3D208FDA1A2A10BD02A54E
 ```bash
 magnet:?xt=urn:btih:0659D0BF0CA56B620EFF67F83D52E8D6FD58D69F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Schema - футуристическое, современное слайдшоу
 magnet:?xt=urn:btih:043BC921FB0ACA0C1241DE7DCFA5E0A53DF9A850
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Destroyerz // Sport Promo - проект для создания презент�
 magnet:?xt=urn:btih:F37AEB5ED85A946326A724FAC9B9DC7A28D4B8A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Luxury Hotel Slides - С помощью этого набора вы сможе�
 ```bash
 magnet:?xt=urn:btih:384BDFEDE895F782FAF0B041E7AE479455740371
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:384BDFEDE895F782FAF0B041E7AE479455740371
 magnet:?xt=urn:btih:9AB18CF6A55FFA5D6B08E464438B0E5B157EEF4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Cooking TV - Clean Broadcast Pack - пакет анимации для сопр�
 ```bash
 magnet:?xt=urn:btih:71743C4355E846BBB287AF7AD677065EA7BCD76E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Event Promo - проект для создания корпоративной п
 magnet:?xt=urn:btih:E70676B323065E39EF819F8799335BB41F60397D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Cinematic Newspaper Intro - представляет собой мощный и 
 ```bash
 magnet:?xt=urn:btih:6CDD1C61554D5582E29AE9EAD69D05D0B29AB058
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Cinema/Movie Broadcast Package - стильный кинематографиче
 magnet:?xt=urn:btih:231F642457FC423836DE65905373EE7480A0D61A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Luxury Awards Package - это профессионально разработа
 ```bash
 magnet:?xt=urn:btih:8CD665850B2919222AF599FCA486E53C09509002
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Real Estate Slideshow KIT - С помощью этого набора вы см�
 magnet:?xt=urn:btih:419A787848D53F39159E84BA43FC05006B2FE99A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Connected Mosaic Pack - проект для создания презентац�
 ```bash
 magnet:?xt=urn:btih:82D31105D8869A011A38B7DE2C5DEA76A7AD7B89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:82D31105D8869A011A38B7DE2C5DEA76A7AD7B89
 magnet:?xt=urn:btih:8085D661DB6F542C4DFF95750996CC4430B7D561
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:8085D661DB6F542C4DFF95750996CC4430B7D561
 magnet:?xt=urn:btih:F24F714D46389597F3D2399EFBCE51C8DA054C88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:F24F714D46389597F3D2399EFBCE51C8DA054C88
 ```bash
 magnet:?xt=urn:btih:CC2415B81F0E5E31008995C3888BE9DE25966D03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:CC2415B81F0E5E31008995C3888BE9DE25966D03
 magnet:?xt=urn:btih:EAD7F71AF42966BF4C0D90B1D93E2553D950B028
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:EAD7F71AF42966BF4C0D90B1D93E2553D950B028
 ```bash
 magnet:?xt=urn:btih:FE897A098F01343900350BE28B366A9C4157A288
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:FE897A098F01343900350BE28B366A9C4157A288
 magnet:?xt=urn:btih:FB04CF5D9168222AA3AB73B0EB7AA75F557620E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Real Estate Promo - шаблон имеет современный и чисты
 ```bash
 magnet:?xt=urn:btih:E8C7D0125D6821A0CB4EAC616C45FEF644F4D7AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

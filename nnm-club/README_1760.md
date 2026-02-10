@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@
 magnet:?xt=urn:btih:931CBE78FBCB851845CB063DFEADA9F4204E2BDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:931CBE78FBCB851845CB063DFEADA9F4204E2BDA
 magnet:?xt=urn:btih:BAAE71DE9B761AAC323AE7707190F2DAFA68A148
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:BAAE71DE9B761AAC323AE7707190F2DAFA68A148
 ```bash
 magnet:?xt=urn:btih:7E3EAAE613EEB0F2D65AA1872F9D7ABE1181F536
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:7E3EAAE613EEB0F2D65AA1872F9D7ABE1181F536
 magnet:?xt=urn:btih:0B478F3EBE9CF220ECB1B2ECF47C1097A9BA169F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:0B478F3EBE9CF220ECB1B2ECF47C1097A9BA169F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:0B478F3EBE9CF220ECB1B2ECF47C1097A9BA169F
 magnet:?xt=urn:btih:73C5B7CBC116DED8DE316C6144A2D46943511387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:73C5B7CBC116DED8DE316C6144A2D46943511387
 ```bash
 magnet:?xt=urn:btih:97B186B322D438A783874A5DBB552E8F4F82A0D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:97B186B322D438A783874A5DBB552E8F4F82A0D5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:97B186B322D438A783874A5DBB552E8F4F82A0D5
 ```bash
 magnet:?xt=urn:btih:D854E1146C8A0669A7425A131B5AD7ABCECC1CCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:D854E1146C8A0669A7425A131B5AD7ABCECC1CCE
 magnet:?xt=urn:btih:B1E13EAC5F42C103EECFCA0CAB5D2BE641DFFA45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:B1E13EAC5F42C103EECFCA0CAB5D2BE641DFFA45
 magnet:?xt=urn:btih:97D1DD0BFE3BA7753444BA202B8236F26054E038
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:97D1DD0BFE3BA7753444BA202B8236F26054E038
 ```bash
 magnet:?xt=urn:btih:ED1927034FA71F6CCFC3F530D80EE21D4E3BC104
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Duran Duran - Is There Something I Should Know? (1983) Remaster, 2024, Rhino [FL
 magnet:?xt=urn:btih:5AE7C807336439386083507D8BE2D934938BE73A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ VA - Metalheads (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Metal>
 ```bash
 magnet:?xt=urn:btih:057B1E4095B5041A3A8F53EC857F36A811B1CDF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ Scarlet Rebels - Let Me In (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:BEE2E5513505409DA818A13B517BD7EF95528494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:BEE2E5513505409DA818A13B517BD7EF95528494
 magnet:?xt=urn:btih:8F5334C1F49619C98A3BAA010EF54BF45EE56C43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:8F5334C1F49619C98A3BAA010EF54BF45EE56C43
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ Asenblut - Entfesselt (2024) [FLAC|Lossless|image + .cue] <Melodic Viking Death 
 magnet:?xt=urn:btih:778212B3239D6B4B73905A6306F5161E075CD682
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:778212B3239D6B4B73905A6306F5161E075CD682
 magnet:?xt=urn:btih:693B22A59989BD8AF327B32AF0B39C5A228FDFAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:693B22A59989BD8AF327B32AF0B39C5A228FDFAF
 ```bash
 magnet:?xt=urn:btih:43FA439B0EA7A4ECB05665F11E318820445FAFAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:43FA439B0EA7A4ECB05665F11E318820445FAFAA
 ```bash
 magnet:?xt=urn:btih:8CBC7AA8B196FE2C40DDD976BE522163D091F32B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ Timo Tolkki's Avalon (a.k.a. «Avalon») — финский метал-опер�
 magnet:?xt=urn:btih:FEB79C698F24747D622268B9E4A85E8441857C57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ Shark Island - Memento Mori Live On The Strip (2024) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:AE931E6F4DCE488CA520D3A9CE31A924BCDE66EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +673,8 @@ TaTa Golosa (Romina Contiero) - Fotonovela Y Otras Historias (2009) [FLAC|Lossle
 magnet:?xt=urn:btih:0C3A9B30B92004D5E9C9B02BB4E3B1261013BB6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ magnet:?xt=urn:btih:0C3A9B30B92004D5E9C9B02BB4E3B1261013BB6F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

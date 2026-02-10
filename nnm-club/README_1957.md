@@ -20,6 +20,8 @@ EssentialPIM - это отмеченное различными наградам
 magnet:?xt=urn:btih:C215B449D24DA264A031D62E241BB40FF1BF9797
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ R.E.M. - R.E.M.'s Top Forty Playlist (according to Berry, Buck, Mills and Stipe)
 magnet:?xt=urn:btih:3A1EB0FF5D26208B89C1D91149CC14EF1CC7FC4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ MediaHuman YouTube Downloader 3.9.9.92 (0629) RePack (& Portable) by TryRooM [Mu
 magnet:?xt=urn:btih:3B2D792C4620BF969548BF6835AC483AEB60B7F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ WinToUSB — лучший Windows To Go (WTG) Creator, который позво
 ```bash
 magnet:?xt=urn:btih:01E3D7266C9FEC363FAAEA2773A60D6EAA522BA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:01E3D7266C9FEC363FAAEA2773A60D6EAA522BA4
 magnet:?xt=urn:btih:513E9C87F6833EDCC5A34ED206BDE0AA04CD2076
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:513E9C87F6833EDCC5A34ED206BDE0AA04CD2076
 magnet:?xt=urn:btih:4C2AF7EAC68C53053B3FCE703C9CA91DD0E57F56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:4C2AF7EAC68C53053B3FCE703C9CA91DD0E57F56
 ```bash
 magnet:?xt=urn:btih:D9A1777A81C36E2CE47ED969925B15BAB68D7407
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:D9A1777A81C36E2CE47ED969925B15BAB68D7407
 magnet:?xt=urn:btih:AA78682CB4354BA0F02D0C662F3156E7E3A3757F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 magnet:?xt=urn:btih:7ACAF9C37ED3CDA95845C615D40BA409A2E9F641
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ CherryTree - функциональная программа, которая п�
 ```bash
 magnet:?xt=urn:btih:DD2FB4B489EB87C30F2C62D7C53224E787E813CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:264EF71B8E7DBFEE0B8979581909DAB2F1B5853D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Opera One 111.0.5168.55 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:8FBE08751B9C35D75FBA2C0E7EE119AC9F8AF853
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:8FBE08751B9C35D75FBA2C0E7EE119AC9F8AF853
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:8FBE08751B9C35D75FBA2C0E7EE119AC9F8AF853
 ```bash
 magnet:?xt=urn:btih:0787889B6AC36D4429D3F73AFAD0339AB4EF1F98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:0787889B6AC36D4429D3F73AFAD0339AB4EF1F98
 magnet:?xt=urn:btih:545C494F495D875F47ED4062F73CBA1DDB8F371C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:545C494F495D875F47ED4062F73CBA1DDB8F371C
 magnet:?xt=urn:btih:C729980517FF9CF17F60EF80636D8A138D613D8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ Aggro Dr1ft (2023) WEB-DL [H.264] [AVO] [PR]
 ```bash
 magnet:?xt=urn:btih:12B1EE68D08D46CFB2BADE5024B9C9C3B5054F73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Windows Update Viewer 0.6.1.0 + Portable [Multi]
 magnet:?xt=urn:btih:98A454CA33919005661FF7DFD90AD2F96B7311AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ NonVisual Desktop Access (NVDA) — свободная с открытым ис�
 ```bash
 magnet:?xt=urn:btih:B5A005213274AF8FB65D15D03ED15A59F4870AE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ WinX VideoProc Converter - усовершенствованная версия, 
 magnet:?xt=urn:btih:778AE45C1E332491C83B1945DAA4288402EF442F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:778AE45C1E332491C83B1945DAA4288402EF442F
 magnet:?xt=urn:btih:BF1905B3DECD9AD8701A2E31E96FB37E9B0B267B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Icecream PDF Editor PRO - программа для поистине прост�
 ```bash
 magnet:?xt=urn:btih:32BA14834001BA116F91439167B9C8F9991214DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ Winxvideo AI  - это набор инструментов для масштаб
 magnet:?xt=urn:btih:F9CA1A90B04453A07B092E7C5285B8B084463550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:C002690ED90E695614B58A059536E940A459E103
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:C002690ED90E695614B58A059536E940A459E103
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Fast Video Cutter Joiner - программа 2-в-1 для быстрой ре�
 ```bash
 magnet:?xt=urn:btih:62289D0D9AE2781760B728AE4255E6DD988548AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

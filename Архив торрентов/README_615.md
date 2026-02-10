@@ -19,6 +19,8 @@ Play List Syncronizer beta 0.3.6.0 [русский.английский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Play List Syncronizer beta 0.3.6.0 [русский.английский]
 magnet:?xt=urn:btih:20EA69009C76EAAD123EC654FECD8EA635D37F20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Languid - Official Discography (2010-2012) 5 альбомов [MP3|320 kbps] <Ab
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ VA - Клубные Новинки Vol.32 (2012) [MP3|320 kbps]<Club, Dance>Сд
 magnet:?xt=urn:btih:C9927017D6D3AE8D527B37E5CE95F5EC034931CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:C9927017D6D3AE8D527B37E5CE95F5EC034931CE
 ```bash
 magnet:?xt=urn:btih:F52C215C4940011DB4FE9C40D80828DF7FAA4E13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +167,8 @@ Tragodia - Theomachy (2012) [MP3|192-320 kbps]<Gothic Metal>«Сделай св�
 magnet:?xt=urn:btih:55C4A635596CA36643FC7BFD68950D87834CFCDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ magnet:?xt=urn:btih:55C4A635596CA36643FC7BFD68950D87834CFCDC
 ```bash
 magnet:?xt=urn:btih:FBAD4DB48E4FABF6653D7FA0013EECD5E5B97CDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ magnet:?xt=urn:btih:FBAD4DB48E4FABF6653D7FA0013EECD5E5B97CDB
 magnet:?xt=urn:btih:CC8BEBD1705F36A31FE139E5CD2839A0E1605869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ Gauge - журнал для автолюбителей, желающих изм�
 ```bash
 magnet:?xt=urn:btih:2E35F161348478FCE088A0AA032DBE256B298A56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:2E35F161348478FCE088A0AA032DBE256B298A56
 ```bash
 magnet:?xt=urn:btih:C0BEC9CD5CF8196D3D1C8F0912020D22FDEBE00E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ magnet:?xt=urn:btih:C0BEC9CD5CF8196D3D1C8F0912020D22FDEBE00E
 ```bash
 magnet:?xt=urn:btih:25067DB84FEE370584974B8194F95B24DC96B09E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +337,8 @@ VA - До 18 И Старше От Европы Плюс 42 50/50 (2012) [MP3|56 
 magnet:?xt=urn:btih:74E6C5D07D562F85931E425192CC65F4CC8FE50B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +365,8 @@ magnet:?xt=urn:btih:74E6C5D07D562F85931E425192CC65F4CC8FE50B
 ```bash
 magnet:?xt=urn:btih:5334D6406FF19ADE95737F5735B5255A913E091B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +395,8 @@ magnet:?xt=urn:btih:5334D6406FF19ADE95737F5735B5255A913E091B
 magnet:?xt=urn:btih:1A638A879E02B2E3E7527BAF4B5D1FF1735CE326
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ magnet:?xt=urn:btih:1A638A879E02B2E3E7527BAF4B5D1FF1735CE326
 magnet:?xt=urn:btih:D7418546D0775DEDE57F3E52D9D6C63C0CFF2BB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +449,8 @@ magnet:?xt=urn:btih:D7418546D0775DEDE57F3E52D9D6C63C0CFF2BB6
 ```bash
 magnet:?xt=urn:btih:FD2ACFB12AED306073ED1A64A2A724DFCA3F2E63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +480,8 @@ magnet:?xt=urn:btih:FD2ACFB12AED306073ED1A64A2A724DFCA3F2E63
 magnet:?xt=urn:btih:D3AD7287D5348AA62F84DF3101E4F34E7EE51CFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +506,8 @@ magnet:?xt=urn:btih:D3AD7287D5348AA62F84DF3101E4F34E7EE51CFD
 magnet:?xt=urn:btih:1E6CBEDCEA743DBAC8C43094E0DA0E26ED42DFC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +531,8 @@ Lil Wayne - Sweat (2012) WEBRip 720p
 ```bash
 magnet:?xt=urn:btih:5189C45C42FFBA7C0A42E4DF2A7BFB0232EF36EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +562,8 @@ magnet:?xt=urn:btih:5189C45C42FFBA7C0A42E4DF2A7BFB0232EF36EF
 magnet:?xt=urn:btih:53766405A752D6040F10626667CCE123800BD0A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +587,8 @@ magnet:?xt=urn:btih:53766405A752D6040F10626667CCE123800BD0A6
 ```bash
 magnet:?xt=urn:btih:3AAA3162B4088558379DFBE3E29B3692D1A8E779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +623,8 @@ VA - Зарубежные Новинки Vol.26 (2012) [MP3|320 kbps]<Pop>
 magnet:?xt=urn:btih:6453D38BD029BF6E0DA81F38F5C688587D795992
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +657,8 @@ Malefique - Flashlights  (Part 1) (2012) [MP3|320 kbps]< Abstract beats / Experi
 ```bash
 magnet:?xt=urn:btih:6EE1A970DF62381B79C67092AD6148366E089399
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +693,8 @@ VA - Зимняя BestOfKa DFM 17 50/50 (2012) [MP3|128 kbps]<Pop>
 magnet:?xt=urn:btih:3122E07A70ECD9224B447AB74B822B93FD0C3360
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -680,6 +728,8 @@ Carsten Rosenlund - Distant Shores (celtic music made of dreams and longing) (20
 magnet:?xt=urn:btih:E89485F7E9F47181F6D6E709752610BA6322F278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -707,6 +757,8 @@ magnet:?xt=urn:btih:E89485F7E9F47181F6D6E709752610BA6322F278
 ```bash
 magnet:?xt=urn:btih:2F4BED26300F2FBB0BED3D7BC2908A955286DD45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

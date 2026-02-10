@@ -1,3 +1,140 @@
+###  Публикация: 1310601   (544223) от 27.06.2019
+
+Векторный клипарт - Vector Professions #23 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Профессии
+50 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75440B2B78ED3705CCB180111AF66BBFB51E9A8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049122   (544258) от 04.09.2016
+
+Шаблоны - GraphicRiver - Abstract Smoke Photo Template [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Abstract Smoke - шаблон для Вашего творчества.
+Дайте вашим фотографиям удивительный абстрактный взгляд.Формат: PSDРазрешение файлов: 2480x3508 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C88BAB3BEF98F2292F965D6B361D8B87593D0966
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310725   (544273) от 27.06.2019
+
+Векторный клипарт - Seamless Floral Borders 100 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Бесшовные цветочные разделители.
+3 AI +TIFF PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23A3C04216745278A1861B698807D000C667FDCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310590   (544275) от 27.06.2019
+
+Векторный клипарт - Vector Frames Collection #40 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Рамки
+50 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:699FB7F20E443245330DFDEFD630EB6FB3409F27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310730   (544362) от 27.06.2019
+
+Растровый клипарт - Nature stock photo set [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивая природа, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3508x2480-6000x4242
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CC371059C4704C0C27C5E51A3F18BBF2E3010CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310589   (544363) от 27.06.2019
 
 Векторный клипарт - Vector Frames Collection #39 [AI]
@@ -20,6 +157,8 @@
 ```bash
 magnet:?xt=urn:btih:85FD614AF38B497A00C4487A94ECAB269A22DB72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +186,8 @@ magnet:?xt=urn:btih:85FD614AF38B497A00C4487A94ECAB269A22DB72
 magnet:?xt=urn:btih:6EB3AF0310CF553AD3DFC483F4621CCDC9A7A873
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +213,8 @@ magnet:?xt=urn:btih:6EB3AF0310CF553AD3DFC483F4621CCDC9A7A873
 ```bash
 magnet:?xt=urn:btih:09FE6E6494C34DB343B3D74B85BBD3B0B2834E45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +242,8 @@ magnet:?xt=urn:btih:09FE6E6494C34DB343B3D74B85BBD3B0B2834E45
 magnet:?xt=urn:btih:D4E3E408233DD6DA5702C0D017038DD74EB70074
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +269,8 @@ magnet:?xt=urn:btih:D4E3E408233DD6DA5702C0D017038DD74EB70074
 ```bash
 magnet:?xt=urn:btih:2C4322344CC73E7025C4939B45CF4FAA1B861C7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +298,8 @@ magnet:?xt=urn:btih:2C4322344CC73E7025C4939B45CF4FAA1B861C7B
 magnet:?xt=urn:btih:A1D9F8808C1E3F43D04F7C3AD1B36A07462CEE23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +325,8 @@ magnet:?xt=urn:btih:A1D9F8808C1E3F43D04F7C3AD1B36A07462CEE23
 ```bash
 magnet:?xt=urn:btih:558F1D6BD722603B01A603E848D716665196E060
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +354,8 @@ magnet:?xt=urn:btih:558F1D6BD722603B01A603E848D716665196E060
 magnet:?xt=urn:btih:0BCB86547F8BC64D8EB0B1CB813605218145FF9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +381,8 @@ magnet:?xt=urn:btih:0BCB86547F8BC64D8EB0B1CB813605218145FF9E
 magnet:?xt=urn:btih:542BDE4FBC36E238ABF4C20B6EB9EE71A8745C64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +407,8 @@ Illustrator - Vector Art - этот экшен фотошоп преобразу
 ```bash
 magnet:?xt=urn:btih:29B1D9659B3D0B814E3F9C21BFDB7FBBCC06CC55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +436,8 @@ magnet:?xt=urn:btih:29B1D9659B3D0B814E3F9C21BFDB7FBBCC06CC55
 magnet:?xt=urn:btih:F43A492D81563AB3826A0D39BC2E5EC1EBE2508E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +464,8 @@ magnet:?xt=urn:btih:F43A492D81563AB3826A0D39BC2E5EC1EBE2508E
 magnet:?xt=urn:btih:82A4011D061C75E44DAC3E4B4078E4B9EDF6DD25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +489,8 @@ magnet:?xt=urn:btih:82A4011D061C75E44DAC3E4B4078E4B9EDF6DD25
 ```bash
 magnet:?xt=urn:btih:BB7C65499C383CCEA430430771077B76E4E1AB07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +516,8 @@ magnet:?xt=urn:btih:BB7C65499C383CCEA430430771077B76E4E1AB07
 magnet:?xt=urn:btih:03772F1971DE794173CE9FEBFC8B1866D5B50E52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +541,8 @@ magnet:?xt=urn:btih:03772F1971DE794173CE9FEBFC8B1866D5B50E52
 ```bash
 magnet:?xt=urn:btih:9E8EAB13C5F126606DA490799E45191721900A74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +571,8 @@ magnet:?xt=urn:btih:9E8EAB13C5F126606DA490799E45191721900A74
 magnet:?xt=urn:btih:BC1496D61C1E6AB5CC12FCCD1FC70F27B7345721
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +596,8 @@ magnet:?xt=urn:btih:BC1496D61C1E6AB5CC12FCCD1FC70F27B7345721
 ```bash
 magnet:?xt=urn:btih:5F522C1EFED8C6830E90D81458743A9F62950AF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +625,8 @@ magnet:?xt=urn:btih:5F522C1EFED8C6830E90D81458743A9F62950AF4
 magnet:?xt=urn:btih:B6F489E892B816FF7C92DFC51BFEED0CD211F8F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +653,8 @@ magnet:?xt=urn:btih:B6F489E892B816FF7C92DFC51BFEED0CD211F8F0
 magnet:?xt=urn:btih:305D51D3853BF77C0EC895512730E0549913CBAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +678,8 @@ magnet:?xt=urn:btih:305D51D3853BF77C0EC895512730E0549913CBAA
 ```bash
 magnet:?xt=urn:btih:6D9B4FAF279D0DEFF2C484C8C53BB30C3EA59266
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,127 +705,7 @@ magnet:?xt=urn:btih:6D9B4FAF279D0DEFF2C484C8C53BB30C3EA59266
 magnet:?xt=urn:btih:90098B34ECB69F40E1C54FB1CEF6C6AE7B4EFBEC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049335   (544540) от 04.09.2016
-
-Экшены - GraphicRiver - Animated Smoke Photoshop Action [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Animated Smoke - добавляет на фото удивительный и реалистичный эффект дыма. Вы можете добавить статический дым, и затем  этот дым анимировать. Отлично работает с любой фотографией.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19CF87EC4925ED83672CD8D8E7D6297190D690F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049138   (544547) от 04.09.2016
-
-Векторный клипарт - Bright backgrounds [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544547.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 фонов в векторе. Многие оценят их по достоинству.
-15 AI | + JPG PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33882F9CF2995C4D50F33397B52009AC2A917554
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049132   (544618) от 04.09.2016
-
-Векторный клипарт - Fashion Accessories Set [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544618.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 наборов аксессуаров одежды  в векторе. Многие оценят их по достоинству.
-11 EPS | + JPG PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70902E0B34532B6592BED6050ECB16507A5D3975
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049343   (544705) от 04.09.2016
-
-Экшены - GraphicRiver - Blades Photoshop Action [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blades - экшен для Вашего творчества.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62CCFBEE05D853E6D433FCE24C491B8C5782BCB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049131   (544709) от 04.09.2016
-
-Экшены - GraphicRiver - AfterBurn Photoshop Action [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544709.jpg" />
-</div>
-
-
-###  Подробнее
-
-AfterBurn - экшен для Вашего творчества.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:010F241B29E82C4B948A7E0A811CAB3894139B43
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

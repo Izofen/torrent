@@ -1,3 +1,29 @@
+###  Публикация: 743585   (974546) от 09.01.2014
+
+Михаил Зубакин | Французская кухня (2003) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Каждый человек, наверное, хоть раз задавался вопросом, почему французские гастрономические идеи завоевали мир. В этой книге вы не только найдете на него ответ, но, последовав советам, предлагаемым автором-составителем, убедитесь на практике, что кулинария для французов - искусство.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:174E6D9B5B000F2A97B80157051CEDAEC5520151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 743711   (974555) от 09.01.2014
 
 Геннадий Герасимов | Общество потребления: мифы и реальность (1984) [DJVU]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:B865F031D37A1E89FF327C0782A0A901BB8D02AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:B865F031D37A1E89FF327C0782A0A901BB8D02AB
 magnet:?xt=urn:btih:B65613BEC4BD7E16F730B508EA53010742494140
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:B65613BEC4BD7E16F730B508EA53010742494140
 ```bash
 magnet:?xt=urn:btih:0295E5632C90BBE062738E1C145F3F5B7C849476
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:0295E5632C90BBE062738E1C145F3F5B7C849476
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:0295E5632C90BBE062738E1C145F3F5B7C849476
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +186,8 @@ magnet:?xt=urn:btih:0295E5632C90BBE062738E1C145F3F5B7C849476
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +211,8 @@ magnet:?xt=urn:btih:0295E5632C90BBE062738E1C145F3F5B7C849476
 ```bash
 magnet:?xt=urn:btih:9B7DB833E571ECC9C57B659D59887992280ED848
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +239,8 @@ magnet:?xt=urn:btih:9B7DB833E571ECC9C57B659D59887992280ED848
 magnet:?xt=urn:btih:5C7BAED89A68916C043B30758C6220358E89C4A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +264,8 @@ magnet:?xt=urn:btih:5C7BAED89A68916C043B30758C6220358E89C4A6
 ```bash
 magnet:?xt=urn:btih:73F84B09C30A9768C7DB446E180C79792FAA99C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +292,8 @@ magnet:?xt=urn:btih:73F84B09C30A9768C7DB446E180C79792FAA99C2
 magnet:?xt=urn:btih:E184A5712BC299F9B34F4BDC820D98991B05DE9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +317,8 @@ magnet:?xt=urn:btih:E184A5712BC299F9B34F4BDC820D98991B05DE9A
 ```bash
 magnet:?xt=urn:btih:AD3E25FEE45D8DDE80E5832F8E955A4973F0499A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +344,8 @@ magnet:?xt=urn:btih:AD3E25FEE45D8DDE80E5832F8E955A4973F0499A
 magnet:?xt=urn:btih:9E3FFB8943C4451C372A3E9887CB1AB319DC1E2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +369,8 @@ magnet:?xt=urn:btih:9E3FFB8943C4451C372A3E9887CB1AB319DC1E2D
 ```bash
 magnet:?xt=urn:btih:595177A5BC37D944FFBE3C34E5A03DFFD204D5BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +396,8 @@ magnet:?xt=urn:btih:595177A5BC37D944FFBE3C34E5A03DFFD204D5BA
 magnet:?xt=urn:btih:BC89FFB21055AD2E9B8037AB518A04ADA2B555B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +422,8 @@ magnet:?xt=urn:btih:BC89FFB21055AD2E9B8037AB518A04ADA2B555B0
 magnet:?xt=urn:btih:85850EA3416FB5606CC5075FBD7C47DC53017DA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +447,8 @@ magnet:?xt=urn:btih:85850EA3416FB5606CC5075FBD7C47DC53017DA5
 ```bash
 magnet:?xt=urn:btih:48551B7C8D38C5BF69F144A970CE74AA8A7C92C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +475,8 @@ magnet:?xt=urn:btih:48551B7C8D38C5BF69F144A970CE74AA8A7C92C7
 magnet:?xt=urn:btih:E1E8CAE6825E48318CDC0E371BD800573C1ABD5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +502,8 @@ magnet:?xt=urn:btih:E1E8CAE6825E48318CDC0E371BD800573C1ABD5E
 magnet:?xt=urn:btih:D6FB41B6A726D0E2CF73CF9B521EEACF366204DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +527,8 @@ magnet:?xt=urn:btih:D6FB41B6A726D0E2CF73CF9B521EEACF366204DB
 ```bash
 magnet:?xt=urn:btih:3343D0E64DB1A63FD7801A291BDD9D3D052D63F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +556,8 @@ magnet:?xt=urn:btih:3343D0E64DB1A63FD7801A291BDD9D3D052D63F5
 magnet:?xt=urn:btih:4F3A977B2368B6B2C66DA1BDCE3FA99501AE6FCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +583,8 @@ magnet:?xt=urn:btih:4F3A977B2368B6B2C66DA1BDCE3FA99501AE6FCE
 magnet:?xt=urn:btih:A2F6DB06CFAED3EA2F4D05E0D94DE652398A57E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +608,8 @@ magnet:?xt=urn:btih:A2F6DB06CFAED3EA2F4D05E0D94DE652398A57E9
 ```bash
 magnet:?xt=urn:btih:2CE2F4F5A4E1A6DEB65AC14B359B4B0483201011
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +636,8 @@ Zabert Sandmann | Суши [2001] [PDF]
 magnet:?xt=urn:btih:831E3DD2DA29E8BD62CE5571336B863CF1D84274
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +661,8 @@ magnet:?xt=urn:btih:831E3DD2DA29E8BD62CE5571336B863CF1D84274
 ```bash
 magnet:?xt=urn:btih:209E444F928CAC39F475E51F7A96CE3FD5C9CE26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,30 +690,7 @@ magnet:?xt=urn:btih:209E444F928CAC39F475E51F7A96CE3FD5C9CE26
 magnet:?xt=urn:btih:80C030839AC15F345ACC6D6A8B54C7B341E0439B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 439169   (975224) от 19.01.2012
-
-Sergelin | Мебельных дел мастер. Часть 7 [2012] [PDF]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-В книге вы найдете подробное руководство как изготовить самую нужную мебель в домашних условиях.
-Работа с конкретным заказчиком дает помимо прочего еще и идеи для творчества, причем порой настолько неожиданные, что при самостоятельном рисовании в голову не пришли бы. Что же придумал мебельных дел мастер на этот раз?2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8073DE14CE9FB861FC724521FD742066B2F6649A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

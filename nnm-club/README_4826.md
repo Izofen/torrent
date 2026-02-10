@@ -19,6 +19,8 @@ Lungo предотвращает засыпание Mac и затемнение 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Lungo предотвращает засыпание Mac и затемнение 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Lungo предотвращает засыпание Mac и затемнение 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Lungo предотвращает засыпание Mac и затемнение 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Lungo предотвращает засыпание Mac и затемнение 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Sexy Girls Pack Wallpapers (08.12.12) [Wallpapers 16+]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ VA - Black Hole Trance Music 12-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Tran
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Hannibal - Metamorphose (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Groove, Thr
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Hannibal - Metamorphose (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Groove, Thr
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ BEHEMOTH наделали много шума, проведя живой стр�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ BEHEMOTH наделали много шума, проведя живой стр�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ BEHEMOTH наделали много шума, проведя живой стр�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ Willis Jackson With Jack McDuff - Together Again! (1959 - 1961) 2003, Prestige [
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ VA - German Top 100 Single Charts 21.12.2018 (2018) [MP3|256 Kbps] <Pop, Hip-Hop
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ VA - German Top 100 Single Charts 21.12.2018 (2018) [MP3|256 Kbps] <Pop, Hip-Hop
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ VA - German Top 100 Single Charts 21.12.2018 (2018) [MP3|256 Kbps] <Pop, Hip-Hop
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ VA - German Top 100 Single Charts 21.12.2018 (2018) [MP3|256 Kbps] <Pop, Hip-Hop
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ Eldritch - Innervoid (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Power-Me
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ Eldritch - Innervoid (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Power-Me
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ Sadao Watanabe with The Great Jazz Trio - I'm Old Fashioned (1976) Remaster, 201
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ Sadao Watanabe with The Great Jazz Trio - I'm Old Fashioned (1976) Remaster, 201
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ Sonny Fortune - With Sound Reason (1970) Remaster, 2014, Warner[FLAC|tracks+.cue
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ Sonny Fortune - With Sound Reason (1970) Remaster, 2014, Warner[FLAC|tracks+.cue
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +651,8 @@ A4. Madrigal (01:27)(   Читать дальше...   )Жанр: Progressive De
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +676,8 @@ A4. Madrigal (01:27)(   Читать дальше...   )Жанр: Progressive De
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +705,8 @@ A4. Madrigal (01:27)(   Читать дальше...   )Жанр: Progressive De
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

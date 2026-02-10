@@ -1,3 +1,32 @@
+###  Публикация: 1112920   (840024) от 10.03.2017
+
+VA - Весна пришла. Лучшие хиты. Версия № 11 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840024.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Виолетта Литвиненко - Найдет 3:00
+002. Oxford (Ox4d) - Тебя Я Больше Не Люблю 3:36
+003. Зара - Без Многоточий 3:36
+004. Supernova - Я И Мои Девочки 3:09(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3727207B5ACC1BDB5335067B7E437ABEE5E19E8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004126   (840088) от 05.04.2016
 
 VA - Весенний Mix. Клубная туса (2016) [MP3|320 кб/с] <Club, Dance>
@@ -21,6 +50,8 @@ VA - Весенний Mix. Клубная туса (2016) [MP3|320 кб/с] <Clu
 ```bash
 magnet:?xt=urn:btih:44A58CFBC0DAF55406C7F00EAA9258926F0472EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Megahits Best Of (2016) [MP3|320 кб/с] <Pop, Dance, Club>
 magnet:?xt=urn:btih:7061961F7B48853FDB397610880D054DB0EA750B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Отдыхаем с лучшими хитами. Звездная тусо�
 ```bash
 magnet:?xt=urn:btih:DA6E932CBD065E9948099B73C87A7491009C506B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Любимые песни шансона (2017) [MP3|256 Kbps] <Шансо�
 magnet:?xt=urn:btih:976A47F146ABE948CD54B6ABBF66D6A47284DDCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Ресторан Кураж для друзей. Выпуск № 7 (2017) 
 ```bash
 magnet:?xt=urn:btih:FF7CD767111F6AB4C91A16699B929489A9E6DEBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Лучшая дискотека от Европы Плюс выпуск №
 magnet:?xt=urn:btih:251C2AE11438C0C09DE1DEEFA181D2639410C165
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Вечеринка в стиле радио Шансон. Часть № 4 
 ```bash
 magnet:?xt=urn:btih:6A46894C9FEE56376766FB88159A134AF98C70B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Natural Lounge Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:C4EA4CDB614754D9776E5EB0FF837C0458CECEED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Весенний Прорыв Шансона (2016) [MP3|256 кб/с] <Shan
 ```bash
 magnet:?xt=urn:btih:C78203C5AC95B0F9F8F892021D68063936AA71F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Отдыхаем душой на Шансоне. Часть № 5 (2017) [M
 magnet:?xt=urn:btih:4897463BDFE66E88D1CEAA99718C364CDFBBB68E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Luxemusic Dance Super Chart Vol.62 (2016) [MP3|320 кб/с] <House,  Electr
 ```bash
 magnet:?xt=urn:btih:920246FD4ED97DC664C338F4CA6BFDBDD71C7F8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Положительный заряд от Хит FM выпуск № 2 (20
 magnet:?xt=urn:btih:1BD5C068D48EF4FBBCC06E7B9B1BBDCB711C8F7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - На волне позитива. Сборник № 4 (2017) [MP3|256 Kbps
 ```bash
 magnet:?xt=urn:btih:475E69F7500C9288292167844C77F728F99662D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Lobby Bar Lounge Vol.2: 20 Midnight Lounge Tunes (2016) [MP3|320 кб/с] <
 magnet:?xt=urn:btih:C965434D781BB4D32C43244E775434F205CD0E7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ VA - Deep Love Session (Mixed By Mark Bonk) (2016) [MP3|320 кб/с] <House>
 ```bash
 magnet:?xt=urn:btih:905D955E0579DCDD4FE437004015DF513BE32B92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ VA - Progressive Beats 008 (2016) [MP3|320 кб/с] <Trance, Progressive House>
 magnet:?xt=urn:btih:D453D9ACAC42545A2ADC12B7C035D4ACC1DB7558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +512,8 @@ VA - Как Это Было. Популярные Хиты 80-Х 90-Х. Выпу
 magnet:?xt=urn:btih:307CD8DEEF5D0BE5E2CDD0B286221175E466B6B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +537,8 @@ VA - Как Это Было. Хиты 80-х от Ретро Fm (2010) [MP3|256 k
 ```bash
 magnet:?xt=urn:btih:7CA52075B21BE17EF321B058C044F06BA661C04F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +567,8 @@ Bonfire - 100% Bonfire (2020) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:3D1EB7B60E14D8ADE7BCB022513B3C3D005465C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +592,8 @@ Va - Дискотека От Руки Вверх (2011) [MP3|256 kbps]<Pop/Dance
 ```bash
 magnet:?xt=urn:btih:739725E0C86E78E1069735F8470D67696090B409
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +622,8 @@ VA - Осень на Love Radio (2021) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:0D3D56CAA77C826577ADEA933696C3F41EC13B46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +650,8 @@ VA - не Громкие новинки недели 65 (2020) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:0779DD73FE22A838070215A31DFC3C6E599B7418
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +680,8 @@ Within Temptation - Angel A Best Of (2016) Compilation [MP3|320 кб/с] <Gothic
 magnet:?xt=urn:btih:D63A3E41B63E8F365F232EDF8FE2CD523ADB69DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +708,8 @@ Jimi Hendrix - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:19BB29BA4DB2DE03342E5C72F46965E05DE73701
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,32 +738,7 @@ VA - Relax Piano Music: Instrumental Collection (2017) [MP3|320 Kbps] <Downtempo
 magnet:?xt=urn:btih:FE04426F96834D7594FCB04F087244AB3123DC64
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003686   (841378) от 04.04.2016
-
-VA - Tropical Fantasy Reggae Mix April (2016) [MP3|320 кб/с] <Reggae, Jungle>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841378.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sizzla - Dem Ago Suffer
-002. Skalette O'Hara - Barbwire
-003. Bazzookas - Haha
-004. Fat Melon Man - Wet Dream(   Читать дальше...   )Жанр: Reggae, JungleПродолжительность: 09:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:060F20E6E654492D2EF922A9282C5242DE9675E5
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

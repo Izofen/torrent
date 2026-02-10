@@ -28,6 +28,8 @@
 magnet:?xt=urn:btih:ADB4D44C13B3C6FDBAF1D5AB9AC864FC5CAB39C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ magnet:?xt=urn:btih:ADB4D44C13B3C6FDBAF1D5AB9AC864FC5CAB39C0
 ```bash
 magnet:?xt=urn:btih:9096AC2320203E6780C06F4505A33F5AB676429F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ magnet:?xt=urn:btih:9096AC2320203E6780C06F4505A33F5AB676429F
 magnet:?xt=urn:btih:2AC99BE6C6838EE1631E625528A307819EA77B11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +132,8 @@ magnet:?xt=urn:btih:2AC99BE6C6838EE1631E625528A307819EA77B11
 ```bash
 magnet:?xt=urn:btih:64E36C2CDDB3E26176EA2E32D92F48BCB66213AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +168,8 @@ magnet:?xt=urn:btih:64E36C2CDDB3E26176EA2E32D92F48BCB66213AC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +202,8 @@ magnet:?xt=urn:btih:64E36C2CDDB3E26176EA2E32D92F48BCB66213AC
 ```bash
 magnet:?xt=urn:btih:86AEF5C509D9F5A656C6369F0B944A4730DD0ED1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +238,8 @@ magnet:?xt=urn:btih:86AEF5C509D9F5A656C6369F0B944A4730DD0ED1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +272,8 @@ Garou - Version Integrale (2010) [FLAC|Lossless]<Pop, France Chanson>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +308,8 @@ VA - Стихи, ставшие песней. Любовь хулигана. С�
 magnet:?xt=urn:btih:68DACED74C548F3C709DB5A90D0882CC6C86DBE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +342,8 @@ magnet:?xt=urn:btih:68DACED74C548F3C709DB5A90D0882CC6C86DBE8
 ```bash
 magnet:?xt=urn:btih:90228237D94869C430320C24DB86700B0770C443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +378,8 @@ VA - Песни о Великой войне (2005) [MP3|320 kbps]<Военна�
 magnet:?xt=urn:btih:3CB88DE276DC71EF101ED472EB6B8EF70F236F18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +412,8 @@ VA - Песни о Великой войне (2005) [APE|Lossless]<Военна�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +448,8 @@ VA - Песни военных лет - Дорогой Победы (2004) [FLAC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +482,8 @@ VA - Мы Вас помним, Вы заслужили (2010) [MP3|320 kbps]<В�
 ```bash
 magnet:?xt=urn:btih:2A938ECE888B95B427DE916FE1E9FF4B96C2A43C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +518,8 @@ magnet:?xt=urn:btih:2A938ECE888B95B427DE916FE1E9FF4B96C2A43C
 magnet:?xt=urn:btih:56E604918D2171BD4A0430620E749480E10DA69D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +552,8 @@ magnet:?xt=urn:btih:56E604918D2171BD4A0430620E749480E10DA69D
 ```bash
 magnet:?xt=urn:btih:153CC1ED1DD8A921A6C3B21DCE45F35F93097016
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +588,8 @@ VA - Песни нашей Родины - Коллекция (6CD) (2008) [MP3|3
 magnet:?xt=urn:btih:E43D220A8F814E5D88961BB28D1397C08F93809D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +622,8 @@ VA - Песни нашей Родины - Коллекция (6CD) (2008) [FLAC|
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +658,8 @@ VA - Для всех, кто служит (2006 - 2008) (2CD)[MP3|320 кб/с]<�
 magnet:?xt=urn:btih:91E4548D5C653271074C9A71FF2296950017FE37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +692,8 @@ VA - Мы Вас помним и чтим (2010) [MP3|320 kbps]<Ретро, во
 ```bash
 magnet:?xt=urn:btih:AB17CD5B4FE75242F83823D742EFB9D19CA4D266
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -688,6 +728,8 @@ Edith Piaf - 3 CD originals (3CD Set) (2003) [FLAC|Lossless]<Chanson>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -714,6 +756,8 @@ VA - Песни Великой Отечественной войны (2000) [MP3
 ```bash
 magnet:?xt=urn:btih:28F3F729BC64DD2C1A7DDB9D339013A88BE3D89E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -748,6 +792,8 @@ VA - Поклонимся Великим Тем Годам (2010) [MP3|320 kbps]
 magnet:?xt=urn:btih:0C27672EF71BEC6EA4A9C81C7873BB7C348B537C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -780,6 +826,8 @@ VA - Война закончилась давно (2005) [MP3|320 kbps]<Воен
 ```bash
 magnet:?xt=urn:btih:9A62019B66D859122432A9E10DDC3853D71867D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -814,6 +862,8 @@ VA - Поклонимся великим тем годам (2008) [MP3|320 kbps]
 magnet:?xt=urn:btih:87862396DE7DA7C3B063743978CE8D374C177CBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -846,6 +896,8 @@ VA - Мы военной разведки спецназ (2005) [MP3|256 кб/с
 ```bash
 magnet:?xt=urn:btih:C946968E1A7BCA6594087F635C5C2685D2BF1470
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

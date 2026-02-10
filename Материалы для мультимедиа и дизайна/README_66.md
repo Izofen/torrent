@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:6F72AC1CEA9400290D919694B8C11C104DEA8929
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:6F72AC1CEA9400290D919694B8C11C104DEA8929
 ```bash
 magnet:?xt=urn:btih:0DED7771A202E1C8BDA1B32B35DAA83353078165
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Rieches - Graffiti Urban Font — изящный, элегантный и пла
 magnet:?xt=urn:btih:7E74779FC41DDDBC9BB4B8366C7814AA7F6AA758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Gouffas - Retro Fun Font — изящный, элегантный и плавн�
 magnet:?xt=urn:btih:70FD4F5C8E2AC0ADBC2BF5ABD4D424FBF8D1E021
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:70FD4F5C8E2AC0ADBC2BF5ABD4D424FBF8D1E021
 ```bash
 magnet:?xt=urn:btih:D48A062FA077B623E128DDA038CD1DC785477734
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:D48A062FA077B623E128DDA038CD1DC785477734
 magnet:?xt=urn:btih:D5D24E6FC2009DC724E93ACFA56D16CFA2F7F081
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:D5D24E6FC2009DC724E93ACFA56D16CFA2F7F081
 ```bash
 magnet:?xt=urn:btih:A7B02085B4DF752365802A437C5BA532CCAB084C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:A7B02085B4DF752365802A437C5BA532CCAB084C
 ```bash
 magnet:?xt=urn:btih:1A0434C1F4B4F759F23D4105D2344C05F01E9325
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:1A0434C1F4B4F759F23D4105D2344C05F01E9325
 magnet:?xt=urn:btih:490AA3D016D04F7A47DEAA7D01086C3D683A2431
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:490AA3D016D04F7A47DEAA7D01086C3D683A2431
 ```bash
 magnet:?xt=urn:btih:D31B4B7D6B9D89B4D91015DEA52AD724CB7F4FBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:D31B4B7D6B9D89B4D91015DEA52AD724CB7F4FBA
 magnet:?xt=urn:btih:EEE3506F375C0492CD952D4D213F193F64C99389
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:EEE3506F375C0492CD952D4D213F193F64C99389
 ```bash
 magnet:?xt=urn:btih:76BBF91DFAC54C69955A61850DDCB4BC9B05D6C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ Gatsby Gilmour — изысканный шрифт в стиле ар-деко, 
 magnet:?xt=urn:btih:159329F6184D82939A64774864462E0C7DD8E092
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +379,8 @@ Archine Eamore | Fancy Classic Serif от Denustudios интересный шр�
 ```bash
 magnet:?xt=urn:btih:9B27A86D42B5F910412941642870FF274BB71817
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ magnet:?xt=urn:btih:9B27A86D42B5F910412941642870FF274BB71817
 magnet:?xt=urn:btih:A515D91B81398188DD6C7BD84900B4CAB45E62FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:A515D91B81398188DD6C7BD84900B4CAB45E62FE
 ```bash
 magnet:?xt=urn:btih:75D5E9A03091A945171D0B9810578E7A53307E7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +464,8 @@ Tomato Drunk — смелый ретро-шрифт с засечками с з�
 magnet:?xt=urn:btih:2FD09A1015133DA3F8F8359EF23229598E98F44F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +490,8 @@ magnet:?xt=urn:btih:2FD09A1015133DA3F8F8359EF23229598E98F44F
 magnet:?xt=urn:btih:1689DB989D4F41C24A580BA2A88F35C17D7C02B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:1689DB989D4F41C24A580BA2A88F35C17D7C02B4
 ```bash
 magnet:?xt=urn:btih:8EED2189A317FF0FBCA069A3A8F8F0A8493138D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:8EED2189A317FF0FBCA069A3A8F8F0A8493138D3
 magnet:?xt=urn:btih:58653DAEF6EEBF1FF22411E5DFD40204868237D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ magnet:?xt=urn:btih:58653DAEF6EEBF1FF22411E5DFD40204868237D3
 ```bash
 magnet:?xt=urn:btih:408D9B6039614DC4EF51481E2D69B00272162474
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +600,8 @@ Magiore — шрифт без засечек с дружелюбным хара�
 magnet:?xt=urn:btih:4136FA0E19F3F298F3E91BB5BA91FE14A9A0123C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ Adhd Sans — это визуальный эксперимент, который
 ```bash
 magnet:?xt=urn:btih:EA51E54C24ED45D2D28F0C9AFD290ED39C58B12A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +656,8 @@ Mathieu вдохновлялся пропорциями, текстурой и �
 magnet:?xt=urn:btih:3C11A39D975A9C7E6A97F548FFF9FD69F8D8FF5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +684,8 @@ magnet:?xt=urn:btih:3C11A39D975A9C7E6A97F548FFF9FD69F8D8FF5B
 magnet:?xt=urn:btih:F29D87C3CE46DC02ED90305076EF4A72A7B98BBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ Realise Slab — семейство шрифтов с засечками, кот
 ```bash
 magnet:?xt=urn:btih:35B40888554ACA00E4954DE3A00665E06065EBCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

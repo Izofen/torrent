@@ -22,6 +22,8 @@ VA - Quiet Nights Of Quiet Stars (The World's Most Beautiful Melodies) (1997) [F
 magnet:?xt=urn:btih:886C4DBE4EABA0FF502CFBA80FF42035D80F0BD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Alexandre Desplat - The Shape of Water / Форма воды (Original Motion Pi
 ```bash
 magnet:?xt=urn:btih:EC86A91D3D6EC9A2258455AF7C8CA6A502C86ECA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Sungha Jung - Mixtape (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Instr
 magnet:?xt=urn:btih:671B59FD91DCCD9563E6C83CE48580782A4FD751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Sungha Jung - Two Of Me (2015) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Acou
 ```bash
 magnet:?xt=urn:btih:E6F96DD773EFA4E4D6C1C093761CB4DB331B73FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Sungha Jung - Monologue (2014) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Acou
 magnet:?xt=urn:btih:3305034946685D2A44C82AA2AA7590E09B21C52C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ SunSquabi - Odyssey (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic Hydro Fu
 ```bash
 magnet:?xt=urn:btih:CB3D8F6E77A360017A1B86FA38D0B71834C739CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Richard Clayderman - Hi-Res Best (2016) [FLAC|24/192|Lossless|WEB-DL|tracks] <Ea
 magnet:?xt=urn:btih:7A25A56DE10746453B212C884667FBCE03CC2CA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Liquid Mind - Liquid Mind XII: Peace (2018) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:250A529EA8D34DC73A89B3D1423FBAED3A60CDE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Andreas Vollenweider - White Winds (1984) [FLAC|Lossless|image + .cue] <Electron
 magnet:?xt=urn:btih:4378BF5DBAD56BFC72695CFDC8CB2A08141A7C4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Finvarra - Finvarra (2013) [FLAC|Lossless|tracks + .cue] <Folk, World, Country, 
 ```bash
 magnet:?xt=urn:btih:7C129CE82B254DC37528CC016CBC9723F6193A47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - The Best Christmas Album In The World...Ever! 2021 (2021) [MP3|320 Kbps] <C
 magnet:?xt=urn:btih:B67DB638690343CEC5544BCAB38C4B3FA7FD34EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Myristica - Star-Filled Skies (2016) [MP3|320 кб/с] <New Age, Neoclassical, R
 ```bash
 magnet:?xt=urn:btih:A6E87871642FD6051D41BFAC0C936C1EED669BDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ The London Studio Orchestra and Singers - For Lovers Only: Great Romantic Themes
 magnet:?xt=urn:btih:7E31275D7CFFA818832A8C5559FF51DDE3F383F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ magnet:?xt=urn:btih:7E31275D7CFFA818832A8C5559FF51DDE3F383F9
 ```bash
 magnet:?xt=urn:btih:5CE40FBD19A034C58BAC2BF6B89A8E726378E5A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ James Last - Classics From Russia (1996) [FLAC|Lossless|tracks + .cue] <Instrume
 magnet:?xt=urn:btih:2EDC8C2DD8817D18A045DF3D517C0DE4B3B7990B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ James Last - Russland Zwischen Tag Und Nacht (1989) [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:CE830DB42AF232EA07DDBC6E5A248982EA249428
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - The World Of Jeeves And Wooster (1992) [FLAC|Lossless|tracks] <OST>
 magnet:?xt=urn:btih:36DE92B135E9CE3C04D088071E3C5ECF0519C4F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ First Aid Kit - Ruins (2018) [FLAC|Lossless|tracks] <Indie Folk, Country Folk, A
 ```bash
 magnet:?xt=urn:btih:66CA868B2E161D981C585A091E6303E0AF5C9FC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - Intimate Piano: Canadian Sunset (1999) [FLAC|Lossless|image + .cue] <Instru
 magnet:?xt=urn:btih:5C8FEDC6C2E584E08DAFAAEFAF99E497358A6B71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - Intimate Piano - Body & Soul (1999) [FLAC|Lossless|image + .cue] <Instrumen
 ```bash
 magnet:?xt=urn:btih:383AD32493426188965237095B41157FA79499D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Carlos Garo - Entrance To The Parallel Universe (2015) [FLAC|Lossless|tracks] <N
 magnet:?xt=urn:btih:51807E2FDA5F9D69B5FB69FDB5E477AA3A27E474
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +631,8 @@ Shakti Loka - Deep Black (2020) [MP3|320 Kbps] <Ethnic, Trip-hop, Mantras>
 magnet:?xt=urn:btih:ED61821B47E771064111CD186A14E584C316A43C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +659,8 @@ magnet:?xt=urn:btih:ED61821B47E771064111CD186A14E584C316A43C
 ```bash
 magnet:?xt=urn:btih:F2D3304EA28538539524EBA2008FB99F15585A84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +692,8 @@ Clannad (Кла́ннад) — ирландская музыкальная гр�
 magnet:?xt=urn:btih:1ED50D7A15E5D5F8E5B641A6843E8AA292A09E11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,6 +721,8 @@ David Wilson (22.09.1945) - американский скрипач и музы�
 magnet:?xt=urn:btih:F8E743EDCD306FD7A40051A6D88750F3754A5F37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +749,8 @@ Samuel Sim, VA - The Halcyon / Алкион (Original Music from the Television 
 ```bash
 magnet:?xt=urn:btih:6BD4C6087B1DFB671FD77D3C3149DCF68C102555
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

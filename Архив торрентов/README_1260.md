@@ -19,6 +19,8 @@ Camtasia for Mac — эффективное приложение для созд
 magnet:?xt=urn:btih:787B8E9B728ABA88447CE113C8ED48BE91C43E32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Opera 93.0.4585.64 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BCCD5FF5E7C444A7D1600E427708627327BD40CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Alfred PowerPack 5.0.6 [En]
 ```bash
 magnet:?xt=urn:btih:85D50EF6E1CCBC0C8ED4210381634A2713E0FBE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ BELOFF [dp] 2020.12.1
 magnet:?xt=urn:btih:6D679BE9890142BC514AAA55B9369ABE9C2C2EB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Mac FoneLab iOS Unlocker 1.0.32 [En]
 ```bash
 magnet:?xt=urn:btih:8C00B7E3FBCF01DACC49731AFDD472166333D6FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Allavsoft Video Downloader Converter - профессиональный инст
 magnet:?xt=urn:btih:4A45584B30FAF6788D18A10BEBBB8182F2223F7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:4A45584B30FAF6788D18A10BEBBB8182F2223F7C
 ```bash
 magnet:?xt=urn:btih:73A31890C7683A9E68EDC25A550A9A4D925BA844
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Suicide Squad: Special Ops / Отряд самоубийц: Спецназ - В 
 magnet:?xt=urn:btih:99F8967090DD0D81327340CBCF0791031C2DE8FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:0F6A412F5907603B71D9B54866B674ADEC8CB754
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Slimjet 37.0.3.0 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:DCF1B0257B36DB15E7FAB433E7E901F91F940169
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:CC9DB456CBB36B1F96A34E17E168430F8C0F55B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Internet Status 4.9 [En]
 magnet:?xt=urn:btih:C4C4EBF0E27B04F30499120A9AB7689267EB5E6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ FinePrint - это многофункциональный драйвер для 
 magnet:?xt=urn:btih:7713F89130456C0EFE049204EF2FB611E78C8E95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:F932147DD1BBCC0982F95752FB010641ACDC71AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ True Burner - удобное в использовании программно�
 magnet:?xt=urn:btih:F65683991A740E852C85B47A90E7F3762780B962
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ WinUtilities - системный набор для настройки Ваше�
 ```bash
 magnet:?xt=urn:btih:98F5DCEDAE482465B930A5B3C041FE8CD2724532
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:98F5DCEDAE482465B930A5B3C041FE8CD2724532
 magnet:?xt=urn:btih:E190355D60A4A407A5924C2D852FE89BB2BD4E1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ InterBase - это мощная, не требующая администрир�
 ```bash
 magnet:?xt=urn:btih:216EE9285A2080FACE4D49062FE7CEA9F4034F88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ GoodSync - программа из серии высоконадежного, у
 magnet:?xt=urn:btih:130810E669C1EAF06074D4538F0209F0E8549D6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Chromium – веб-браузер с открытым исходным кодо
 magnet:?xt=urn:btih:D73FAAD4D7DB3DB8B306EF99A40CA19BA4558839
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ RAW Converter 2 v2.5.1 [En]
 ```bash
 magnet:?xt=urn:btih:377DD3D62DE5E697A7A7671D409EDF438C75748E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ Secret Folder - Прячет данные с вашего компьютера �
 magnet:?xt=urn:btih:DB58C8094BA90BEF4CBDBAB3B79A6BE794E21B2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ OmniPlayer Pro для Mac - это универсальный медиаплее
 ```bash
 magnet:?xt=urn:btih:9A143D95DFEE07B6699B3B0D536C51CEF37EDD4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ DxO PhotoLab 3 ELITE Edition 3.1.0 (build 27) [Multi]
 magnet:?xt=urn:btih:C717482961510D0DD5B44B6C820B2CAB7AA3C242
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ Downie поддерживает более 1,000 популярных сайто
 magnet:?xt=urn:btih:300B9F01B1A25A3DAA0D06C3D1A7DC8C6135870A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Export for iTunes -  экспортируйте свои плейлисты и �
 ```bash
 magnet:?xt=urn:btih:02586BC412DC03A3BF9EA5E90C4F02F7B50CE65C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

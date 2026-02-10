@@ -19,6 +19,8 @@ Discovery: Современные Шерлок Холмсы / In the Mind of Cri
 magnet:?xt=urn:btih:84BC935505E740539B2162F29778F96777FADA0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ History Channel: Древние пришельцы / Ancient Aliens (2023) WEB-D
 ```bash
 magnet:?xt=urn:btih:B12844E9B32D3A4D431578F109C174299651E3CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ History Channel. Тайны древности. Варвары: Монголы /
 magnet:?xt=urn:btih:0B496CB4EF21DC0B70158637A9E533E671F93AF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:0B496CB4EF21DC0B70158637A9E533E671F93AF3
 ```bash
 magnet:?xt=urn:btih:B51A014B786A9C7B891045E1A365D81E36286E01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:B51A014B786A9C7B891045E1A365D81E36286E01
 magnet:?xt=urn:btih:5F436D96EEE2CF98C33CEB010FC48DAE010C8778
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:5F436D96EEE2CF98C33CEB010FC48DAE010C8778
 ```bash
 magnet:?xt=urn:btih:F61F09822BB4F8F7AF673FD0C3F40EE6CAC618FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:F61F09822BB4F8F7AF673FD0C3F40EE6CAC618FF
 magnet:?xt=urn:btih:81E02E25595820AF80CB6E07416FDAD98AD790A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ BBC: Приключeния Брайана Кокса в пространстве
 ```bash
 magnet:?xt=urn:btih:15905F9E246C93E3B56A0F4C74F29E68F7A525D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ NG. Охотники за вирусами / Virus Hunters (2020) IPTV [H.264/10
 magnet:?xt=urn:btih:9CF33CD29F28303D2BE18F223F2178182B2F6DA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Discovery. Взрывая историю / Blowing up History (2022) HDTV [H.264
 ```bash
 magnet:?xt=urn:btih:80EAE21B946A61BB2729DAB05028232D596C931D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:80EAE21B946A61BB2729DAB05028232D596C931D
 magnet:?xt=urn:btih:B389D91B3C3CCA4396D8D24BD04ECD8A4F41D127
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:B389D91B3C3CCA4396D8D24BD04ECD8A4F41D127
 ```bash
 magnet:?xt=urn:btih:4F74620F44CE9AFC1983F3BD303966E83A4C32D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Discovery: Покушение на Гитлера / Virtual History: The Secret 
 magnet:?xt=urn:btih:132AB64EF76E7BEF686C15DCC5CA881A346310D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Discovery. Тутанхамон: столетие тайн / King Tut: A Century
 ```bash
 magnet:?xt=urn:btih:D73B66F2CAC004EC42689E19A66E80492720D12E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ NG: Безграничный / Без границ: с Крисом Хемсво
 magnet:?xt=urn:btih:FF15A8ACEC0D101C12CF935DC6239B7446CA71D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Discovery: Ниндзя. Демоны ночи / Unsolved History. Ninjas (2004)
 ```bash
 magnet:?xt=urn:btih:013EAFA761A26B3EC9C7C2E3D1C99377CC93960B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:013EAFA761A26B3EC9C7C2E3D1C99377CC93960B
 magnet:?xt=urn:btih:C24F388A9494CE147C12FAD34BEECE17F6D9894E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DL [H.265
 ```bash
 magnet:?xt=urn:btih:1BCE1D387D45BD49B6EB610D8DEC8EB2188CD641
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:1BCE1D387D45BD49B6EB610D8DEC8EB2188CD641
 magnet:?xt=urn:btih:D989A106DBEE4A5BE758B8A047BFEA4E88228C85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ magnet:?xt=urn:btih:D989A106DBEE4A5BE758B8A047BFEA4E88228C85
 ```bash
 magnet:?xt=urn:btih:6B9FF3689466620DB1F3B9DC14DCCA839B958F3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ NG: 11 сентября - хроника террора / Inside 9/11 (2007) TVR
 magnet:?xt=urn:btih:5D9B9DF21431BF836B21309D8D43885E940E79FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ PS: уложил в размер DVD9 сохранив качество изна
 magnet:?xt=urn:btih:59DAF67DD0A12D0EA1120D53325A0F9E7DA7807B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:59DAF67DD0A12D0EA1120D53325A0F9E7DA7807B
 ```bash
 magnet:?xt=urn:btih:49452AB7608B25F524997544A32CAC7B765D1D5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:49452AB7608B25F524997544A32CAC7B765D1D5A
 magnet:?xt=urn:btih:C99BC542E5064F8E8AAF8FC6BF96676DFEA12D4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ History Channel: Древние пришельцы / Ancient Aliens (2021) WEB-D
 magnet:?xt=urn:btih:8E65FA27564A6A56CEC72573BE57A35F0AFAF75D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Discovery. Потерянный город Тутанхамона / Tut's Lost C
 ```bash
 magnet:?xt=urn:btih:F74F740ED836BA1733776B0010C719F353805CE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ LiveTcpUdpWatch — это инструмент для Windows, который �
 magnet:?xt=urn:btih:1EB9D21D25DB570D8B67141982469ECAF24E4823
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Wu10Man - бесплатная программа для отключения и
 ```bash
 magnet:?xt=urn:btih:523D305DF28F9F944DB5EE52F3027EF17E549DEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Task Manager DeLuxe - утилита для предоставления пол�
 magnet:?xt=urn:btih:5728D84D7CBBC27DF730F7B8704C61F955DA3B1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:A87367B32F9C1642C7C9DD3F062689D022055CE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ TaskSchedulerView - простенькая портативная (не треб
 magnet:?xt=urn:btih:FC498C6BD684895CAA00D74AEE6FD033B7B401B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Driver Reviver – это приложение, которое проскани�
 ```bash
 magnet:?xt=urn:btih:B737FBE53EF245212913851A471A2A1E452D2579
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Revo Uninstaller Pro 5.1.7 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:3CC293A328B2ED6CB57990CB7CF030C6FABA2BD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:A9C726973C621802219FE7C5B94223BCD89ACB86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ CPUID HWMonitor - утилита предназначена для монито�
 magnet:?xt=urn:btih:72F15F7CE1A607FAF89410F7A7BA08A6991068F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ CleanMyPC очищает компьютер от ненужных файлов, 
 ```bash
 magnet:?xt=urn:btih:7A5F57A5732F29A98E6BC9EAF8FFDC6FE35C29BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Glary Utilities - функциональный набор системных т�
 magnet:?xt=urn:btih:1CB9BA37973B8BFFFBDB30CA271BBD0B859A9D78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ W10Privacy - программа для изменения настроек си�
 ```bash
 magnet:?xt=urn:btih:E4A8BB1E34204798778C5F109A532AD457D8AA12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Revo Uninstaller Free 2.6.2 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:A6BCCAC3DA30D1B70A39FF1760FF29CE6B1AF713
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Registry Clean Expert - программа для сканирования ре�
 ```bash
 magnet:?xt=urn:btih:4497510CB21CAC9A748556EC6F59EBDCD95D7BE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ PrivaZer - полезная утилита, которая поможет вам
 magnet:?xt=urn:btih:0C13F2C35359832F55621295F6FA390E1815F324
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:C4B87707013E1DDD5BB014A9B24D91A911FD76EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ PrivaZer - полезная утилита, которая поможет вам
 magnet:?xt=urn:btih:D85515631973CFC48EE769DD0855C9309D5E58D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Ashampoo WinOptimizer - новая линейка пакета программ,
 ```bash
 magnet:?xt=urn:btih:3F0385A06CA1C2D021ED7BD4CB31CBDD5A7D4E8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Any RAR Password Recovery предоставляет 3 расширенных р
 magnet:?xt=urn:btih:30280F512CDC5BE57B87C0A6ACDFF6CE133DB187
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ WinUtilities - системный набор для настройки ваше�
 ```bash
 magnet:?xt=urn:btih:272A5E2E112A4E4550EDE6F5EBF3C00EB911FBC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Startup Delayer - выручит в том случае если на вашем
 magnet:?xt=urn:btih:1EE20699E38D95E673B77138D016ECF96C7C438B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ OpenGL Extensions Viewer — программа для вывода информ
 ```bash
 magnet:?xt=urn:btih:54092203FBFC43576D5C9DACFA266B5A28838EEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Task Killer - Убийца процессов. Думаю всем, кто ра�
 magnet:?xt=urn:btih:BF629DCF189B73E72C89980C376ABDCA948B9762
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ Task Killer - Убийца процессов. Думаю всем, кто ра�
 ```bash
 magnet:?xt=urn:btih:72CCB333E502533CC063AB80E55750F637327745
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ ScanMyReg - это самая удобная и простая в использ
 magnet:?xt=urn:btih:5708A2CDED8BE6296598EBB8B5C14A2D58F02812
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Ashampoo UnInstaller 16.00.02 RePack (& Portable) by elchupacabra [Ru/En]
 ```bash
 magnet:?xt=urn:btih:66594D977542000C6140272D025B47FC40EDF8C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

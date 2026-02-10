@@ -1,3 +1,29 @@
+###  Публикация: 1500165   (842349) от 05.10.2021
+
+Игорь Валериев | Ермак (Книга 6). Контртеррор (2021) [MP3, Игорь Князев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_842349.jpg" />
+</div>
+
+
+###  Подробнее
+
+За время своего пребывания в новом мире Аленин многого достиг. Подполковник Генерального штаба, георгиевский и владимирский кавалер, награжден всеми боевыми орденами, возможными в его чине, начальник Аналитического центра – новой спецслужбы, лично подчиненной императору Всероссийскому. Он получает в свои руки такие инструменты, как разведка, контрразведка, аналитический (   Читать дальше...   )Жанр: Боевая фантастика, историческая фантастика, попаданцыПродолжительность: 12:27:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEF39F0CA9DF2AD8BE23BF2C8651BEA6300B0ADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500329   (842469) от 05.10.2021
 
 Свободина Виктория | Эра андроидов (2020) [MP3, Алла Човжик]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:BCD058A7610589C8AA8C8B123601D54038051EBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:BCD058A7610589C8AA8C8B123601D54038051EBF
 magnet:?xt=urn:btih:26F054E4DBF03ED074B8812CF46ECCE3EAD6F26D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:26F054E4DBF03ED074B8812CF46ECCE3EAD6F26D
 ```bash
 magnet:?xt=urn:btih:6060473AD8BA8B964FEDFA5A162DEA46E3CAA1A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:6060473AD8BA8B964FEDFA5A162DEA46E3CAA1A1
 magnet:?xt=urn:btih:FF03A8817EA886352450BA49F831389707D059E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:FF03A8817EA886352450BA49F831389707D059E8
 magnet:?xt=urn:btih:F8E383953690794BF966925B00F5AC0F7DDA07B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:F8E383953690794BF966925B00F5AC0F7DDA07B8
 ```bash
 magnet:?xt=urn:btih:A1652328E6133C3533016F9D457EF7B57DB426E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:A1652328E6133C3533016F9D457EF7B57DB426E5
 magnet:?xt=urn:btih:DCF14FAC3C981EDD0EEC66013DF7CB23EBE9D757
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:DCF14FAC3C981EDD0EEC66013DF7CB23EBE9D757
 magnet:?xt=urn:btih:2EB7B86C8D26D6FEDFCDC922DC8B3C923D9DC71E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:2EB7B86C8D26D6FEDFCDC922DC8B3C923D9DC71E
 ```bash
 magnet:?xt=urn:btih:4ACA50B9EE1CCA74A3AF50321C94580998FECB95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:4ACA50B9EE1CCA74A3AF50321C94580998FECB95
 magnet:?xt=urn:btih:F89453122BDE11573814411429D347202FCDC6F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:F89453122BDE11573814411429D347202FCDC6F8
 ```bash
 magnet:?xt=urn:btih:BFBB4DCB09C16EF508F0DB72343DABE254B4FD07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:BFBB4DCB09C16EF508F0DB72343DABE254B4FD07
 magnet:?xt=urn:btih:79327980CB18BB57C590854D198A59517D2BE88C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:79327980CB18BB57C590854D198A59517D2BE88C
 ```bash
 magnet:?xt=urn:btih:624AD100C32E983833ED5FFB981D0DFF74B574A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:624AD100C32E983833ED5FFB981D0DFF74B574A4
 magnet:?xt=urn:btih:09AECD451D8C24E1395AFA1311E5F5D287939B51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:09AECD451D8C24E1395AFA1311E5F5D287939B51
 ```bash
 magnet:?xt=urn:btih:E67AA5B9AEC6550971672A161067337D9CF52B7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:E67AA5B9AEC6550971672A161067337D9CF52B7D
 magnet:?xt=urn:btih:4ADC7355E363247D489DE526D79900EEF8F560FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:4ADC7355E363247D489DE526D79900EEF8F560FD
 ```bash
 magnet:?xt=urn:btih:C7A774DF77252B84FCCFFB2565B9E73E52CB3FE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:C7A774DF77252B84FCCFFB2565B9E73E52CB3FE5
 magnet:?xt=urn:btih:88F5C2515C9AB27A325C422C13034E0085B3AEC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:88F5C2515C9AB27A325C422C13034E0085B3AEC7
 ```bash
 magnet:?xt=urn:btih:E25A2C7A263811B82B12F7D061988F9FF698DA84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:E25A2C7A263811B82B12F7D061988F9FF698DA84
 magnet:?xt=urn:btih:0A8CD64B1206EE7282CF1D4E02A316796E1BE5D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:0A8CD64B1206EE7282CF1D4E02A316796E1BE5D2
 magnet:?xt=urn:btih:A6A640877FF97B44DF2871666E91EA1B00238604
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:A6A640877FF97B44DF2871666E91EA1B00238604
 ```bash
 magnet:?xt=urn:btih:DDE2D0CCDA8BBD447D35029A8301004EAA69052E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:DDE2D0CCDA8BBD447D35029A8301004EAA69052E
 magnet:?xt=urn:btih:1F321DBA93C6C63344A616FB21AF8CE4D1B73D6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:1F321DBA93C6C63344A616FB21AF8CE4D1B73D6F
 ```bash
 magnet:?xt=urn:btih:5F066F100B7EBC4A15F3DD37EEC4D1F92B97AF0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,29 +681,7 @@ magnet:?xt=urn:btih:5F066F100B7EBC4A15F3DD37EEC4D1F92B97AF0B
 magnet:?xt=urn:btih:33E8CBD8EF07703CF05668D29504EF50EC1FFDE4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003100   (844742) от 02.04.2016
-
-Евгений Прошкин | Драйвер заката (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844742.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Скоро не будет ни кино, ни театра, ни книг, ни газет», – утверждал один работник телевидения, и его мечта сбылась, впрочем, телевидение тоже исчезло. Наступила эпоха морфоскриптов – интерактивных снов, в которых пользователь может прожить любую судьбу и героически погибнуть, а утром снова отправиться на работу. Авторы морфоскриптов – люди с особым складом ума, зачастую (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 12:24:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8406982848E01E3117232E7BB81FFB4492CEB0FE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

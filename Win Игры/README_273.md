@@ -19,6 +19,8 @@ Tales of Vogar - Lost Descendants - это созданная на базе RPG 
 magnet:?xt=urn:btih:1BC1B15D837DE8EBFA698C2E4B26EA600B80F069
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Park Beyond (2023) [Ru/Multi] (1.0) Scene Fairlight
 ```bash
 magnet:?xt=urn:btih:A73FCDD390B535FF2BBB12D1CFEC4109C9547DF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ SpongeBob SquarePants: Battle for Bikini Bottom - Rehydrated (2020) [Ru/Multi] (
 magnet:?xt=urn:btih:AD2D4A5126D3014A3E5A67CAADA62AF4A5E5E3E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ SpongeBob SquarePants: The Cosmic Shake (2023) [Ru/Multi] (1.0.3.0) Repack dixen
 ```bash
 magnet:?xt=urn:btih:F4C0D0278BC1B630B714CD39685EA12D9F246229
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Impaler является динамичной стрелялкой, где по�
 magnet:?xt=urn:btih:EB4CEF4A0145528997E1B83FCA60198CA23A119B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Hand of Doom (2023) [En] (1.0.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:015EB2B6AE8C0C4E1B5B01CE9B473947C3D009B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Chronicles of Galdurvale (2023) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:993948CEC6A16F7F6D61BCD4A23DBC4CAE83AB14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Academia : School Simulator (2017) [Ru/Multi] (1.0.44) License GOG
 ```bash
 magnet:?xt=urn:btih:4A1540A61382915CFC67235953993443197212B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Frozen Shelter (2023) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:4600FA163C41310180D8EB61440D876979E2665E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ System of Souls (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:9CDB317A910781437A20B761AAD00DC1C384DFCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Mask of the Rose - это увлекательная визуальная нов
 magnet:?xt=urn:btih:59200F4FE0C287E614CC4CA7C56EB61F45D7B4A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Dordogne (2023) [Ru/Multi] (1.12.15) Scene Rune
 ```bash
 magnet:?xt=urn:btih:6AAFE541675F6780916E037B4A0BECDE6C036060
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Contra Anniversary Collection (2019) [En] (1.1.0) License GOG
 magnet:?xt=urn:btih:562C3A009E876CF8655B345D57EA321325B9E94F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Project Lazarus (2023) [Ru/Multi] (7.0) Scene DARKSIDERS
 ```bash
 magnet:?xt=urn:btih:A4248A534DE3DB94FF80AB23F887DD4B6308C504
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Deadly Delivery — хоррор от первого лица. Ваша цель
 magnet:?xt=urn:btih:7F3C4228F2A5913FC7481119033E9A39D4380E3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Amnesia: The Bunker - хоррор от первого лица от созда�
 ```bash
 magnet:?xt=urn:btih:ECE2B18C44759378E350A1B2843B9BCFD1EDFA3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Harmony: The Fall of Reverie - это увлекательная приключ�
 magnet:?xt=urn:btih:3B5C97484DEB674729628A813237699815A3A4FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ MotoGP 23 (2023) [Multi] (1.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:799440E0B742F665F218AD62C61E6F6CD9B33CCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Loop8: Summer of Gods (2023) [Multi] (1.0.2/dlc) Scene Tenoke
 magnet:?xt=urn:btih:883BFB08D4D915AD37C7E2F3B74BCE259450D6B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Scorn - атмосферный приключенческий хоррор от 
 ```bash
 magnet:?xt=urn:btih:1323E14E52F8B0B1492265CBF13DD57900A4221C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Basements n' Basilisks: Storms of Sorcery - это смесь из класси�
 magnet:?xt=urn:btih:E0387740D8339C869403DD84B2199C74B93240DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Tank Mechanic Simulator (2020) [Ru/Multi] (1.4.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:7200764981C458FBF984BC1C61F138C796D5A0DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Voodoo Detective (2022) [En] (0.0.31) License GOG
 magnet:?xt=urn:btih:A3A2DCF9D659D819031C2FD27C96971B26C9BFE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ We Love Katamari REROLL+ Royal Reverie - это обновленная верс�
 ```bash
 magnet:?xt=urn:btih:BD1FC9C434A3CC312B2EA914E77742D0C58A2CE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Bastard Bonds - это тактическая ролевая игра с пер�
 magnet:?xt=urn:btih:ADD1C47E1CB4ABD7DFAF3AE5F323FF0913739783
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Legend of Radiance - это хардкорный ролевой экшен, гд
 ```bash
 magnet:?xt=urn:btih:6DCB97A238F3AA51823152E390757150F2EFEB03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

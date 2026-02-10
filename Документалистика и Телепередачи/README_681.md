@@ -1,3 +1,29 @@
+###  Публикация: 989122   (919184) от 21.02.2016
+
+Рожденный летать. Александр Беляев (2009) DVB
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919184.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Советский Жюль Верн", как называли Александра Беляева современники, автор более 20 повестей и романов, среди которых "Голова профессора Доуэля" (1938), "Человек-амфибия" (1926), "Остров погибших кораблей" (1926), "Изобретения профессора Вагнера" (1926-30), "Звезда КЭЦ" (1936), "Последний человек из (   Читать дальше...   )Телекомпания: Студия спецпроектов и экспериментальных программЖанр: ДокументальныйПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AF0D58232CAC1D6CFE618A306E2219338611603
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988797   (919185) от 21.02.2016
 
 Раскрывая мистические тайны. Проклятие группы "Мираж" (2016) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:A31AA10278FB8F54018F7F6EC1B343541ABC56B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:A31AA10278FB8F54018F7F6EC1B343541ABC56B6
 magnet:?xt=urn:btih:AF1D73EBFBA8F6E3617714EA9261204A4997689D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:AF1D73EBFBA8F6E3617714EA9261204A4997689D
 ```bash
 magnet:?xt=urn:btih:EC06D72B9A0D3A4CA0D63D05AFEA5F6076EB8B88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:EC06D72B9A0D3A4CA0D63D05AFEA5F6076EB8B88
 magnet:?xt=urn:btih:EBDBAA9DD5D276067D68B07C291A22595E8DEE5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:EBDBAA9DD5D276067D68B07C291A22595E8DEE5E
 ```bash
 magnet:?xt=urn:btih:CB221DA8E50D93D71E212B734BA0FD0E8B1C954E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:CB221DA8E50D93D71E212B734BA0FD0E8B1C954E
 magnet:?xt=urn:btih:9AC3132A1C3E60696D9187F958139DC550C38F4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:9AC3132A1C3E60696D9187F958139DC550C38F4E
 ```bash
 magnet:?xt=urn:btih:79FE01F1B945B384EB89A9737244D150F8FB73E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:79FE01F1B945B384EB89A9737244D150F8FB73E5
 magnet:?xt=urn:btih:416A494DEA2649F7A754E6349082406B989FCAAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:416A494DEA2649F7A754E6349082406B989FCAAE
 magnet:?xt=urn:btih:A570DEA9D152DCB7F04C6435B8128AC156A7C6B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +278,8 @@ magnet:?xt=urn:btih:A570DEA9D152DCB7F04C6435B8128AC156A7C6B6
 ```bash
 magnet:?xt=urn:btih:9E07966C3EBD9BE4BD1A460C346FBB6CA988A03C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:9E07966C3EBD9BE4BD1A460C346FBB6CA988A03C
 magnet:?xt=urn:btih:1F8412F08D4BF8D26CA198395E7828CCFD148C66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:1F8412F08D4BF8D26CA198395E7828CCFD148C66
 ```bash
 magnet:?xt=urn:btih:61EE1E009C5466A8B4881BA5C849A3CAEEA9AA7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:61EE1E009C5466A8B4881BA5C849A3CAEEA9AA7F
 magnet:?xt=urn:btih:EA99D09FA8ED70FF17CD4811B52085DD7DAA9A0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:EA99D09FA8ED70FF17CD4811B52085DD7DAA9A0F
 ```bash
 magnet:?xt=urn:btih:27C4782C069E0811364078C9EA42BD34BA515C6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:27C4782C069E0811364078C9EA42BD34BA515C6A
 magnet:?xt=urn:btih:8EF8E1B4AC4A33EDE21BF65D2AB156987E788FE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:8EF8E1B4AC4A33EDE21BF65D2AB156987E788FE9
 ```bash
 magnet:?xt=urn:btih:9A38ED0CECE1E23498A50ECBABCDE6EEDAFE35DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +467,8 @@ Cатояма: Таинственный Водный Сад Японии / Satoy
 magnet:?xt=urn:btih:0C65C349B3FB44F701F4F6E9287D9D7B2D63A9CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:0C65C349B3FB44F701F4F6E9287D9D7B2D63A9CE
 ```bash
 magnet:?xt=urn:btih:E3AF1F9796A44341FC964F19017C893D3313F96C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:E3AF1F9796A44341FC964F19017C893D3313F96C
 magnet:?xt=urn:btih:2D38E394A2E86A209D4DD8A8AEF9E61A27D941D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:2D38E394A2E86A209D4DD8A8AEF9E61A27D941D8
 magnet:?xt=urn:btih:9D94CE82A919C961339D753F5986AA866447BCF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:9D94CE82A919C961339D753F5986AA866447BCF7
 ```bash
 magnet:?xt=urn:btih:8F875DB4BB921C5C71BB4469A636A48C3BF7EFB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:8F875DB4BB921C5C71BB4469A636A48C3BF7EFB3
 magnet:?xt=urn:btih:9667EFC7D6C628C6F9C8A359168E0AD7108B184B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:9667EFC7D6C628C6F9C8A359168E0AD7108B184B
 ```bash
 magnet:?xt=urn:btih:387DB995A201863D4AF2E1A54155CE7D358DBFCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:387DB995A201863D4AF2E1A54155CE7D358DBFCD
 magnet:?xt=urn:btih:F2DFEF85812DE4695A0FE231FC4244CAE1475AC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:F2DFEF85812DE4695A0FE231FC4244CAE1475AC8
 magnet:?xt=urn:btih:FA25B2543854DE3E6F0D10E45596B8047CB3A5C1
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988413   (920684) от 20.02.2016
-
-Фотолюбитель. Дневник и фотоальбом немецкого офицера (2004) DVDRip
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920684.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Фотолюбитель» - киноэкспликация дневника и фотоальбома немецкого офицера, служившего в тылу Восточного фронта. В фильме нет ни одного чужого слова - только имитированный голос героя да свидетельства его фотоаппарата. Жутковатая история обыкновенного фашиста, который был по-своему неглуп («Если эту жизнь большевики называли раем, я не хочу знать, что такое ад» - (   Читать дальше...   )Телекомпания: Россия, Студия «Гранат»Жанр: Документальный, война, историяПродолжительность: 00:26:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A4E889F4349BF7BC7F3FD96EA7280933FF9D94F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

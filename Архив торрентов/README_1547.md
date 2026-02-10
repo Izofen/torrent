@@ -19,6 +19,8 @@ Smooze одушевляет ваш скролл и добавляет функц
 magnet:?xt=urn:btih:76A7FDBA950B796E31C651C8C325E7F7D3DE0F4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Smultron - простой и элегантный текстовый редак�
 magnet:?xt=urn:btih:7A5613383CDE66C0512246F75A009E36A97A4BD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:7A5613383CDE66C0512246F75A009E36A97A4BD2
 ```bash
 magnet:?xt=urn:btih:5C7C73C99EDB398F0E3E4452C90DADA6EDE66DCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:5C7C73C99EDB398F0E3E4452C90DADA6EDE66DCE
 magnet:?xt=urn:btih:1CD2E6E986B5AEEC4F80A1F8448B4EECCBA93E53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:1CD2E6E986B5AEEC4F80A1F8448B4EECCBA93E53
 ```bash
 magnet:?xt=urn:btih:40957B46F2296225FE32B4660CF2E59C2E653489
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Valentina Studio - это идеальный инструмент управле
 magnet:?xt=urn:btih:E4C6CDA6D804F9B44EB10D689256488FC7EAFB64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ App Tamer 2.8 [En]
 ```bash
 magnet:?xt=urn:btih:37B11149392715DCCF2558DE7CA07B26D7450A2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ OmniFocus Pro 3.4.4 [Multi/Ru]
 magnet:?xt=urn:btih:151405C5A9B741F6384F1D9B923764FBEF5D68CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Native SQLite Manager — это удобный менеджер баз данн
 magnet:?xt=urn:btih:8AC44ED661919AF5390438E6D3F714E621BEA320
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:CCC67A1243415F6807710140A59B592E195D2A5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ ReSharper – это расширение для Microsoft Visual Studio, пом
 magnet:?xt=urn:btih:21047A10975613F38A1A5E028EDA08B921BE15F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Magic Disk Cleaner находит и удаляет временные файл�
 magnet:?xt=urn:btih:D35F6BAD2F65D6D02919C57A403E38F8C5E7B925
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Understand - это инструмент статического анализа
 ```bash
 magnet:?xt=urn:btih:3D25EFFC0B69D9254C65873BBC5E1C82D6E92E3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ VMware Fusion: удобная и мощная виртуальная машин�
 magnet:?xt=urn:btih:E9E117442CB4E11C422A01CDC62FE4CCA4841F45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ File Cabinet Pro - файловый менеджер строки меню Mac O
 ```bash
 magnet:?xt=urn:btih:64EDA4B0114D34B3FEDE190C369C2B337A3512DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:64EDA4B0114D34B3FEDE190C369C2B337A3512DC
 magnet:?xt=urn:btih:35EBFA288FF8A67B1D1BCC08C6FF785EAE43B553
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ SnagIt предлагает неограниченные возможности 
 magnet:?xt=urn:btih:A9511B6FDB1E3F710606FC9B5179CEE26F108B0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Navicat Premium - это инструмент для администриров�
 ```bash
 magnet:?xt=urn:btih:9263C0027C69B5F8A5C599CA51E1EB55B65A4A93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:9263C0027C69B5F8A5C599CA51E1EB55B65A4A93
 magnet:?xt=urn:btih:8C7F0DFBF1EA7D264ED06EED1BA0F2FBE98AA294
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:E5189A17B0AF0ECDD20637DAAC6BA3C6E9A12EA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ uTorrent Pro. 3.5.5 (build 44939) Portable by SanLex [Multi/Ru]
 magnet:?xt=urn:btih:0E003A02421A76F3B3B56CF187A2DD5853586BA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ GParted - мощный и бесплатный инструмент, котор�
 magnet:?xt=urn:btih:3A683BCBCC299CC5BA1F67442737DF19A9D69BC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Ant Download Manager - быстрый и простой загрузчик лю�
 ```bash
 magnet:?xt=urn:btih:A6799CEFFF996072851B63692156B87DCAA59C3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:A6799CEFFF996072851B63692156B87DCAA59C3A
 magnet:?xt=urn:btih:FC6418E9F49807E4E911AA1F0543CDE254FFAED2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ DIGI Clock - отличный способ персонализировать в
 magnet:?xt=urn:btih:94328F22DA07BD7C8FD30F0C42F1A987A3BD9DA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ VIP Notes - программа-блокнот, что несмотря на св
 ```bash
 magnet:?xt=urn:btih:5414A4659C74E10F53DCC0AC56B04D76E1BB63E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

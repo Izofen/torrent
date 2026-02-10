@@ -1,3 +1,32 @@
+###  Публикация: 1214858   (763069) от 23.03.2018
+
+Down Low - The 4th Level (2001) [MP3|320 Kbps] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro	(1:21)
+02. Wouldn't It Be Good	(3:53)
+03. Don't You	(3:30)
+04. La Serenissima	(3:35)(   Читать дальше...   )Жанр: RapПродолжительность: 01:01:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C47AACB02DDBA0CE5883DB3C0A88BAA09368552
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214703   (763169) от 23.03.2018
 
 Мот - Какие люди в Голливуде (Или премия "Оскар" с субтитрами) (2018) EP [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -21,6 +50,8 @@
 ```bash
 magnet:?xt=urn:btih:D015CEBDF77732AC76D22C0CC01B5C20B4E96627
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ MATRANG - DA (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:A936B4CE3C260E47DF9B95166D98DA48BFB34F76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ Toni Braxton - Sex & Cigarettes (2018) [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul>
 ```bash
 magnet:?xt=urn:btih:7DF5D1C74B357872FFDCC33DD89BBE4A9C700D2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ magnet:?xt=urn:btih:7DF5D1C74B357872FFDCC33DD89BBE4A9C700D2B
 magnet:?xt=urn:btih:D3BE68C482DF1E622D61B59BDF1506D444CB25BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ magnet:?xt=urn:btih:D3BE68C482DF1E622D61B59BDF1506D444CB25BF
 ```bash
 magnet:?xt=urn:btih:D724D3682AA28543C8836C1077B81D2725ABC769
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ Rag'n'Bone Man - Human (2017) [MP3|320 kbps] <R'n'B, Soul, Indie>
 magnet:?xt=urn:btih:64BD58C5BF3D76C478C6ADC4B7EEB5BA71F8C743
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ SERPO & DJ MTR - На осколки (2017) EP [MP3|320 Kbps] <Hip-Hop, Reggae, 
 ```bash
 magnet:?xt=urn:btih:51DB225515EE48FBBEDDD7992810F2CB2E9BB69C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ magnet:?xt=urn:btih:51DB225515EE48FBBEDDD7992810F2CB2E9BB69C
 magnet:?xt=urn:btih:6FB7E7134B33A3713024DB5071E3548D4A43749A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ MiyaGi & Эндшпиль - HAJIME Part.1 (2016) [MP3|256-320 кб/с] <Rap, Hip
 ```bash
 magnet:?xt=urn:btih:6DD1D58B83BED1CD7BC0444A50D33661F84C1113
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ Krec - Атом (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:03543358513CEE9DCA39EF8CD0BCB7B1967D9086
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ Onyx - Black Rock (2018) [MP3|320 Kbps] <Hardcore Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:5556E7B2CD3A984E3BF2F95546C09BC8AC828048
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ DMX - 10 Albums (1998 - 2010) [MP3|320 kbps]<Rap, Hip-Hop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ Scarlxrd - FANTASY VXID; SUMMER. (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:96CC187E771224B4DDB10F22F0C7882B580E9C06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ SQWOZ BAB - BODY LANGUAGE (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:84B9C915BE24B6410A2D5FE96F40674CB8F4862E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ DA108 - Это всё не то... (Чужие 2005-2011) (2020) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:DC54315C63603A7316285FEA5BDB539AC84E5B9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ Fardi - Черный сад, часть 2 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:43E629E940F82EF15EFF8B2CAFA07CC6FB566759
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +514,8 @@ magnet:?xt=urn:btih:43E629E940F82EF15EFF8B2CAFA07CC6FB566759
 ```bash
 magnet:?xt=urn:btih:1CE893B03B9165842DABF93E1A6CD311AAAB37A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ magnet:?xt=urn:btih:1CE893B03B9165842DABF93E1A6CD311AAAB37A5
 magnet:?xt=urn:btih:91010D33893FE0A8C913E7109B5DACD308829CBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +572,8 @@ VA - Old School Rap Classics (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
 ```bash
 magnet:?xt=urn:btih:0B7CA622FD458C40FE8CD4729A32C9F390A49F4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +602,8 @@ Run The Jewels - RTJ4 (2020) [FLAC 2.0|48/24|tracks|WEB-DL]  <Hip - Hop>
 magnet:?xt=urn:btih:2EA1324611A46EF8F06F1098F5582C25845072B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +630,8 @@ Horus & Зараза - Вопрос времени (2020) [MP3|320 Kbps] <Rap, H
 ```bash
 magnet:?xt=urn:btih:147835870F9ECC93AD4540DA718B28317236C79C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +660,8 @@ Redo - RANKED (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:72428D6497A78AB3FEAC7557F3D0D5E62D2C53FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +688,8 @@ alyona alyona - Пушка (2019) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:2F5C2392E76B0B54C67E163AC8AE26FC6AE14D45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +718,8 @@ INSTASAMKA - MONEYDEALER (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:0D01D64562C02ABD45EE036D69A53E993196634C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,32 +747,7 @@ magnet:?xt=urn:btih:0D01D64562C02ABD45EE036D69A53E993196634C
 magnet:?xt=urn:btih:5FE64F73D848050053D59383FFC79690BD8817CA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511209   (789301) от 20.11.2021
-
-Паша Техник - 264.1 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ногти (prod. by fd vadim) [02:50]
-02. Я е**л в рот (prod. by fd vadim) [03:00]
-03. Суперсила (prod. by low pulse) [03:03]
-04. Тварь (prod. by fd vadim) [02:29](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:25:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57400C94D6F7A44BFBF147358FB18CCF9C5BD52D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

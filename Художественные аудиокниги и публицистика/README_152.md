@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C8CA13032C5E77BB575812C81F5F6ABDB71B2A71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:C8CA13032C5E77BB575812C81F5F6ABDB71B2A71
 ```bash
 magnet:?xt=urn:btih:3BB0606094C5E0BDCB481A90C58053A7A109C13A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:3BB0606094C5E0BDCB481A90C58053A7A109C13A
 magnet:?xt=urn:btih:5C4083AF1950F9FC126DFBDDA91C33B5278A9174
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:5C4083AF1950F9FC126DFBDDA91C33B5278A9174
 magnet:?xt=urn:btih:54A58E315E9C361F54C77006D469CBC4DA3ABD62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:54A58E315E9C361F54C77006D469CBC4DA3ABD62
 ```bash
 magnet:?xt=urn:btih:634D7C59431F80A29CE7250B7DF319442DB9F2A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:634D7C59431F80A29CE7250B7DF319442DB9F2A2
 magnet:?xt=urn:btih:AB35665B94052FDF30E8DCEE4511A5967A0D5962
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Lanpirot | Позывной Хоттабыч (Книга 7). Аватар Х. Ч
 ```bash
 magnet:?xt=urn:btih:C3589058FA6D3ACA9259EEC2F2A148B1C7E81776
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Lanpirot | Позывной Хоттабыч (Книга 8). Исчадие Кр
 magnet:?xt=urn:btih:08AEEF4B063411BC560AB84FBC0AB3FAA7CC0F8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Lanpirot | Позывной Хоттабыч (Книга 6). Аватар Х (20
 ```bash
 magnet:?xt=urn:btih:5C1B6C335B2A522595A3F2F6BF2260665E7BCF65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Lanpirot | Позывной Хоттабыч (Книга 5). Кто к нам с
 magnet:?xt=urn:btih:5E536F7A09C79E4E2BC9F841C12D3767224D28EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Lanpirot | Позывной Хоттабыч (Книга 4). Спасти лей
 ```bash
 magnet:?xt=urn:btih:0B06B8C0CF084E5CEB2D80238437C9F19FF982B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:0B06B8C0CF084E5CEB2D80238437C9F19FF982B6
 magnet:?xt=urn:btih:8F58D53767E4AAE9F8CCA251167C12EBCB243688
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:8F58D53767E4AAE9F8CCA251167C12EBCB243688
 ```bash
 magnet:?xt=urn:btih:E2B1F18495104D48F67A535F5EE6B2D1361B5E62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:E2B1F18495104D48F67A535F5EE6B2D1361B5E62
 magnet:?xt=urn:btih:337725C0C24C98E2E1A6B0E03B68F663FA7A5CF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:337725C0C24C98E2E1A6B0E03B68F663FA7A5CF6
 ```bash
 magnet:?xt=urn:btih:57D3F6F9F491EB9551BF71B1B41AB2FEF4553F02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:57D3F6F9F491EB9551BF71B1B41AB2FEF4553F02
 magnet:?xt=urn:btih:37EF934D80CFF9F05279C7B8927905130584E232
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Lanpirot | Нахаловка (Книга 2) (2025) [MP3, Вадим Ерофе�
 ```bash
 magnet:?xt=urn:btih:3407F5746DD7CE2EA5E23C36D2B8FA82843FDEAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:3407F5746DD7CE2EA5E23C36D2B8FA82843FDEAA
 magnet:?xt=urn:btih:C2DBFF2C0EA1B12A5014490C78773D4D4808FB2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:C2DBFF2C0EA1B12A5014490C78773D4D4808FB2A
 ```bash
 magnet:?xt=urn:btih:F18DB5B1B8BAD0391990A231EC9A9B1C274ADD0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:F18DB5B1B8BAD0391990A231EC9A9B1C274ADD0D
 magnet:?xt=urn:btih:53795AF8604097466DD18493BBAF77817E6D1227
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:53795AF8604097466DD18493BBAF77817E6D1227
 ```bash
 magnet:?xt=urn:btih:B60422713906CFEF043F6344C875745077E4240A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:B60422713906CFEF043F6344C875745077E4240A
 magnet:?xt=urn:btih:787422D4DE6F377C07A3DEF5B72DDD397873E38A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:787422D4DE6F377C07A3DEF5B72DDD397873E38A
 ```bash
 magnet:?xt=urn:btih:B368645C93B7089291DAF6B3B21FFA635A158D0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:B368645C93B7089291DAF6B3B21FFA635A158D0B
 magnet:?xt=urn:btih:72D5272145E24C437E40049CFB2EEBA21FE167B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:72D5272145E24C437E40049CFB2EEBA21FE167B6
 magnet:?xt=urn:btih:58A674E65C4415CB50F7769B2C6ECE975FA0ADA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:58A674E65C4415CB50F7769B2C6ECE975FA0ADA9
 ```bash
 magnet:?xt=urn:btih:12F921C8ECF5823C2E3A8F1AF0AC10AF57947B5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

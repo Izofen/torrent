@@ -19,6 +19,8 @@ Modern Tweaker - программная оболочка для твиков Win
 magnet:?xt=urn:btih:DF8E555948D527F933A5FFAAB3484D5C68E110C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Wise Duplicate Finder Pro 2.1.1.61 [Multi/Ru]
 magnet:?xt=urn:btih:70BBDF0AFE8BEFE143DE594345E7F6CC6D8F6586
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ TeraCopy – утилита улучшает процесс копировани
 ```bash
 magnet:?xt=urn:btih:C4D1A5462FF274DF84BEA5AB51E4EFDC629BF51B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Process Lasso позволяет вручную или автоматическ�
 magnet:?xt=urn:btih:3CCA7781D26ED62DF12E9F799C59066D26C8F82F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Revo Uninstaller Pro 5.4.3 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:9A6A9A418C837E3B06BBCCABB5B82A12083654F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Revo Uninstaller Pro 5.4.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7809B7FF7CFB352F7318BF8DD04B2F251DBF6BBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Windows Manager - это универсальная утилита для Micros
 magnet:?xt=urn:btih:C12C75AAC296F690F52E4ACE505407911A7C0D6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Revo Uninstaller Pro 5.4.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:73919660E8B173E6B806BAF5F115F9E6B1331C70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Zentimo xStorage Manager - (аналог USB Safely Remove) это менедж�
 magnet:?xt=urn:btih:65840A167218B150DE2AEC9C53595A6B6B29FA8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Duplicate File Remover – мощная утилита для поиска и о
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Ashampoo WinOptimizer 18.00.18 [Multi/Ru]
 magnet:?xt=urn:btih:44C1F2392E386216696F48C4A504242145B698AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Auslogics Duplicate File Finder поможет Вам избавиться от 
 ```bash
 magnet:?xt=urn:btih:C380F5F1D67FFA76AFE9B50866BDBA2443FEBD21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Reg Organizer® - это многофункциональная программ
 magnet:?xt=urn:btih:3511F5602B19F122B712BF567DB1E699F6DB3910
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:B7774091FBA32672AFE60BD61F045E6C698A14AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Windows Manager - это универсальная утилита для Micros
 magnet:?xt=urn:btih:8E4C274F8BDD109D93045AF2F71B192429BB75F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Auslogics Duplicate File Finder поможет Вам избавиться от 
 ```bash
 magnet:?xt=urn:btih:CA717517D7434C327B87876D608748FC4DFADD74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ EasyBCD - менеджер загрузки операционных систе�
 magnet:?xt=urn:btih:D4FF05C37BE078637DE2EE95BA3437F2AF00746C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Driver Easy - системный инструмент, который позво
 ```bash
 magnet:?xt=urn:btih:A6DD61FFEC3F91946E9474559D084F1831CE84D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Password Recovery Bundle – пакет программ, позволяющая
 magnet:?xt=urn:btih:3300313D43885558F9935DE2A81100E2E1B75F14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ R-Wipe & Clean - программа для невосстановимого уд
 magnet:?xt=urn:btih:24052564E93804E3186E93E404BE0A241F4EE8ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:F7C2F6C87AB378AA9C961670F593F49C0AD5881F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ BackUp Maker может создать резервную копию любой 
 magnet:?xt=urn:btih:50541E92904EF464EB8B166BF8FB7E165D1DCF4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ ASCOMP Secure Eraser — программа для полного удалени
 ```bash
 magnet:?xt=urn:btih:0E924D9DD0D3F8E4EEF87B3F1177CC1AD7FDE3AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Synchredible - синхронизирует, копирует и сохраня�
 magnet:?xt=urn:btih:7CC62166059305F69CA4D98C1276F7556117E4FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Advanced SystemCare PRO - это мощный пакет для оптимиза
 magnet:?xt=urn:btih:804C2BF5D3CBFF8DCC830A673F73483342E4260F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Smarty Uninstaller - простой в использовании инструм
 ```bash
 magnet:?xt=urn:btih:2C214CC65F6D455E254D9263BC9BB90957AB2494
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

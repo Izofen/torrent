@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:35D190E3259E6EB9C2AB4A2A16BD5126672C0FB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ CYGNI: All Guns Blazing (2024) [Ru/Multi] (1.01) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E0055F269A801C1C755EFF50193BBE41BC10D241
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Squirrel with a Gun (2024) [Multi] (1.0.2.14) Scene Doge
 magnet:?xt=urn:btih:E81AAD17770DA45E616DC39C3AB3EF1CF80FD9E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:E81AAD17770DA45E616DC39C3AB3EF1CF80FD9E4
 ```bash
 magnet:?xt=urn:btih:864C4C889B56938801F13D47DDE70575DDEBBF38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Speedtest - это приложение предназначено для опр
 magnet:?xt=urn:btih:122A5D7A1B55ECACFE29017E06B2408EEB497B41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Picsart AI Photo Editor, Video v25.7.2 Final Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:81CA697A2DBDD65FD55DB289597E17187AE23598
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:81CA697A2DBDD65FD55DB289597E17187AE23598
 magnet:?xt=urn:btih:A80734A4CCE68358822BB178403C6B17FCB2B7B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Fast Screen Recorder — это программное обеспечение д
 magnet:?xt=urn:btih:B2DE04B700F1810161493700E5CE75DE6AD09D8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ Bewitching Sinners бросает вас в хаотичный фантасти�
 ```bash
 magnet:?xt=urn:btih:F83BD9FF67AD54BB37702BEE4E5EB07DC6041B5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ WonderFox DVD Video Converter — удобный конвертер всех н�
 magnet:?xt=urn:btih:D6726E9CDFE6DDC7CB40BE408AD606AF79A8F0A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ MAGIX Samplitude Music Studio X8 19.2.0.24218 (x64) [Multi]
 magnet:?xt=urn:btih:BB1ED8609052D1061F5009A97EA3E61E552F7014
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Mp3tag предоставляет пользователям мощный и п�
 ```bash
 magnet:?xt=urn:btih:19C6F163787192DC60007968E1633662DF9E859C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ VA - Music News For Forum vol.018 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:4B09EDBF7CACEA3BCB69BEEFED5190081B696D42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Winxvideo AI  - это набор инструментов для масштаб
 ```bash
 magnet:?xt=urn:btih:93F999D71EA81C5B288988598A97803ED42B1B94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ VA - Dark Arabic Bass House (Ethnic Deep House Mix) (2024) [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:C14D153DA954D08E8C3F3B3CA259F906B5ABE942
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Auslogics Driver Updater – программа представляющая с�
 ```bash
 magnet:?xt=urn:btih:1CE492E5E9FF958962293ABC3BD468E39B5410EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:1CE492E5E9FF958962293ABC3BD468E39B5410EE
 magnet:?xt=urn:btih:B06725786FB191D941A09D171F6CFF259F05FC0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Auslogics Driver Updater – программа представляющая с�
 ```bash
 magnet:?xt=urn:btih:5AA96A9D516166025B25D5D88A1A6096E1996CB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ VA - compilation  part 117  Electronic Assorted compilation (2024) [MP3|320 Kbps
 magnet:?xt=urn:btih:E98ACE2888AF82AA90060765CBA459CB14EA1D86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Opera One 113.0.5230.55 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:616B40C504A41DC7C4EA7A74246959D410C6CCDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:616B40C504A41DC7C4EA7A74246959D410C6CCDA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:616B40C504A41DC7C4EA7A74246959D410C6CCDA
 ```bash
 magnet:?xt=urn:btih:B89FACEAE6E78C0133AE2D0EF9D60843E9C542F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:B89FACEAE6E78C0133AE2D0EF9D60843E9C542F1
 magnet:?xt=urn:btih:9709F3F9B5A99BC94EF82B425AB940A267386B01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ Photo Studio — не просто приложение для редактир�
 ```bash
 magnet:?xt=urn:btih:D13A6FE4608F224538A13BEC3B99B07E5756048D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ Kdenlive - бесплатный нелинейный видеоредактор,
 magnet:?xt=urn:btih:EBE421C06E52EC955250A79A26F4384483A8F562
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Danball Senki | Little Battlers Experience | LBX - Битвы маленьких
 ```bash
 magnet:?xt=urn:btih:9A02C8E5DF18CF09A8C6198636EC047F757F0D89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

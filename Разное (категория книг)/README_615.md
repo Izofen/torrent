@@ -1,3 +1,29 @@
+###  Публикация: 871886   (877384) от 23.02.2015
+
+Элла Мартино | Кулинарные секреты итальянской мамы. Рецепты и традиции (2012) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Элла Мартино - талантливая, жизнерадостная и энергичная блондинка, автор нашумевшего бестселлера "Вкус Тосканы", хозяйка популярного блога об Италии и ее кухне, в особенности которой ее посвящает самая настоящая итальянская мама! Благодаря "Кулинарным секретам итальянской мамы" российским читателям впервые станут известны рецепты, по которым готовили только коренные жители солнечной страны - да и то лишь те, кто умел беречь семейные традиции… Из поколения в поколение хозяйки передают многолетний (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:531D7CEA27185520C94651B45A8B58854BE32C8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 765108   (877454) от 10.03.2014
 
 Амиран Сардаров | Мужчина всегда прав (2014) [FB2]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:6F8916423B8A0D0B41FAF0551AAC1BB0A3B55884
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:6F8916423B8A0D0B41FAF0551AAC1BB0A3B55884
 magnet:?xt=urn:btih:92B925E8DFC6E3130E16D202034553F403164D83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:92B925E8DFC6E3130E16D202034553F403164D83
 ```bash
 magnet:?xt=urn:btih:347E014A182A093840314C4546B6683BCF1887B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:347E014A182A093840314C4546B6683BCF1887B4
 magnet:?xt=urn:btih:A259228964C45A46374E9AFEF7A0183AB1A3E4AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:A259228964C45A46374E9AFEF7A0183AB1A3E4AC
 ```bash
 magnet:?xt=urn:btih:12774BB7D8AF12B7F1851056A579D8E943EAD9AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:12774BB7D8AF12B7F1851056A579D8E943EAD9AC
 magnet:?xt=urn:btih:040F463914A01604A735EFBA199A2B3713A175E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:040F463914A01604A735EFBA199A2B3713A175E8
 ```bash
 magnet:?xt=urn:btih:1046D9326573A9000AA5E71E3582B29AB6F4D79C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:1046D9326573A9000AA5E71E3582B29AB6F4D79C
 magnet:?xt=urn:btih:5820187DD54D1C92334FBAC42413A368EF916755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:5820187DD54D1C92334FBAC42413A368EF916755
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:5820187DD54D1C92334FBAC42413A368EF916755
 magnet:?xt=urn:btih:44532958E17A7AC7C58BFD7125F5FE6EFA86BC64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:44532958E17A7AC7C58BFD7125F5FE6EFA86BC64
 ```bash
 magnet:?xt=urn:btih:76482CDA1F8F21EB6622712FCA43244EEE43D24D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:76482CDA1F8F21EB6622712FCA43244EEE43D24D
 magnet:?xt=urn:btih:7AE9E725F2C3590CC7F6021ACC33F8BE5CD29954
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:7AE9E725F2C3590CC7F6021ACC33F8BE5CD29954
 magnet:?xt=urn:btih:77208D03DE48BF92EBA0A715B0FCD7A8F50A57EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:77208D03DE48BF92EBA0A715B0FCD7A8F50A57EE
 ```bash
 magnet:?xt=urn:btih:0DD9A283DD7BEC6911143250F41D3D3F6FE0DB04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:0DD9A283DD7BEC6911143250F41D3D3F6FE0DB04
 magnet:?xt=urn:btih:CD2AAEAE98693A7BFA2E16919F873E067A0BF12F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:CD2AAEAE98693A7BFA2E16919F873E067A0BF12F
 magnet:?xt=urn:btih:AFC79F5B3DFC23EAB02A06146A461D04C2BE8B23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:AFC79F5B3DFC23EAB02A06146A461D04C2BE8B23
 ```bash
 magnet:?xt=urn:btih:2599C9A5812BCC17D0A0AFEBE943BD9C381AEC01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:2599C9A5812BCC17D0A0AFEBE943BD9C381AEC01
 magnet:?xt=urn:btih:D2C7B0F8594E97D11529E3541E049B80E50D6168
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:D2C7B0F8594E97D11529E3541E049B80E50D6168
 magnet:?xt=urn:btih:9E1633D4226D579C7C71AF1D1B110AB3283C353B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:9E1633D4226D579C7C71AF1D1B110AB3283C353B
 ```bash
 magnet:?xt=urn:btih:C18C15E5D7D2A72F9A5F49DD2299FBDFE524CA5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:C18C15E5D7D2A72F9A5F49DD2299FBDFE524CA5B
 magnet:?xt=urn:btih:84CF0EBA8AEB39B7C346C57F951079D8D744A2F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:84CF0EBA8AEB39B7C346C57F951079D8D744A2F5
 ```bash
 magnet:?xt=urn:btih:900BCAC2F99FAFD6A2C00307F2A7B98FDE938A8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:900BCAC2F99FAFD6A2C00307F2A7B98FDE938A8E
 magnet:?xt=urn:btih:0BD91EF2562075F43D1836F73B6DEE3E1B5E0697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:0BD91EF2562075F43D1836F73B6DEE3E1B5E0697
 ```bash
 magnet:?xt=urn:btih:1593DCDEB0D24335BF2088332E8C67AFAC983587
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,29 +682,7 @@ magnet:?xt=urn:btih:1593DCDEB0D24335BF2088332E8C67AFAC983587
 magnet:?xt=urn:btih:70EC396D0B70FCBFE93B6D040FB752A4B1BC2DDB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104926   (878225) от 16.02.2017
-
-А. М. Аршаруни | Бехаизм (1930) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ha первом всесоюзном партсовещании по антирелигиозной пропаганде на Советском Востоке в декабре 1929 г. делегаты из Азербайджана и Туркмении справедливо указывали на отсутствие у нас марксистской литературы о бехаизме. А между тем бехаизм в указанных советских республиках имеет распространение даже среди некоторой части пролетариата, главным образом, среди отсталых (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881E4313AB53F8A2C0B1A9BA4AADA99AF7EAD2E6
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

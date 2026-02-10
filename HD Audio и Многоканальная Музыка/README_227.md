@@ -1,3 +1,32 @@
+###  Публикация: 1415819   (371435) от 14.10.2020
+
+Л. Субраманиам/L. Subramaniam - Время Должно Измениться/Time Must Be   Changed (1990) Recorded 1988 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Fusion, Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371435.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Мисс Мелодия = Miss Melodia
+A2 Следи За Своими Шагами = Follow Your Steps
+A3 Время Должно Измениться = Time Must Be Changed
+B1 Ганга = Ganga(   Читать дальше...   )Жанр: Fusion, Contemporary JazzПродолжительность: 00:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96CB03520E81C42643907E2D5BF7B2060C838DF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 719362   (371489) от 11.11.2013
 
 Blackfield - Blackfield IV (2004) [DTS 5.1|44.1/16|.wav+.cue (DVD-Audio)] <art rock, pop rock, progressive rock>
@@ -21,6 +50,8 @@ Blackfield - Blackfield IV (2004) [DTS 5.1|44.1/16|.wav+.cue (DVD-Audio)] <art r
 ```bash
 magnet:?xt=urn:btih:153A677E00E5CB92318C5E7C0D8BB68AE8131FF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ Inside The Music: New Age (2001) [DTS 5.1|44.1/16|wav+.cue|DVD-Audio] <new age>
 magnet:?xt=urn:btih:378118D83235952AF405E6735CB603643CB21189
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ A4. Hypnotic Reality (3:51)(   Читать дальше...   )Производ�
 ```bash
 magnet:?xt=urn:btih:28A04B4CBBA2C61FA374EF435B0324396B7E4409
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ A4. Twentieth Century Fox (2:32)(   Читать дальше...   )Произв
 magnet:?xt=urn:btih:4EE4C3463260518783618A23B2960ECA6298FDE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +163,8 @@ This Mortal Coil - It'll End In Tears (1984) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]
 ```bash
 magnet:?xt=urn:btih:F6AA6D921F9BA64051DF912A12BAD6695F30985B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -153,6 +192,8 @@ Dan Spătaru/Дан Спатару – Песни Из Кинофильма «П
 ```bash
 magnet:?xt=urn:btih:9CD317CEB5BC8B3619D40C2771E4BFFB989D7CDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +223,8 @@ Concerto in C minor BWV1062
 magnet:?xt=urn:btih:555FE2D2DDD5ECA2E2A1567AFBA20AFE89DDC569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +251,8 @@ magnet:?xt=urn:btih:555FE2D2DDD5ECA2E2A1567AFBA20AFE89DDC569
 ```bash
 magnet:?xt=urn:btih:B0B9EE225700663909ADEA543A1933DE4975754B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +281,8 @@ VA - Шедевры инструментальной музыки части 1 -
 magnet:?xt=urn:btih:D73A71FB3328BCB5F9E052B853B1ECA49C126D6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +309,8 @@ VA - Бумер - 2 (2006) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)]<Original Sound
 ```bash
 magnet:?xt=urn:btih:CAF1630512B22B5A3B0C4375BBA87CB05F14185F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +339,8 @@ magnet:?xt=urn:btih:CAF1630512B22B5A3B0C4375BBA87CB05F14185F
 magnet:?xt=urn:btih:ACC1CB55A6EA91B7A9FFFE0CE3183EA54990A86B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +367,8 @@ A4 Ва-Банк - Максималист = Maximalist(   Читать даль�
 ```bash
 magnet:?xt=urn:btih:FB40DB677524F1F1F8DAA0B20AE52A8BAE3F0F2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +397,8 @@ Mr. Tambourine Man
 magnet:?xt=urn:btih:358880C8009362C10586FE4DC93E1E5826FA08BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +425,8 @@ magnet:?xt=urn:btih:358880C8009362C10586FE4DC93E1E5826FA08BA
 ```bash
 magnet:?xt=urn:btih:58B6824B5AE132B1C5DE346D91FA0155CDD32013
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +455,8 @@ A4. Азбука Морзе (4:20)(   Читать дальше...   )Жанр: 
 magnet:?xt=urn:btih:8C17B31487749AA733E92EA929CC704A65804826
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +483,8 @@ magnet:?xt=urn:btih:8C17B31487749AA733E92EA929CC704A65804826
 ```bash
 magnet:?xt=urn:btih:F09940735D84F1A49E0FD1EF3951DC9C9BA281A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +513,8 @@ A1 Ai No Banka
 magnet:?xt=urn:btih:62046206D8BC624EE55326F6E99665A95C91B372
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +542,8 @@ Yello - Toy (2016) [DSD 2.0|2822,4/1|image|Vinyl-Rip] <Pop>
 magnet:?xt=urn:btih:F7A87B6CD10F54A36CFEA380C1FCA96B20E93C3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +570,8 @@ Bob Dylan - Limited Edition Catalog Box Set (2003 Remaster) (1963-2001) [DST 5.1
 ```bash
 magnet:?xt=urn:btih:3B87EBF1B71E006B83E95C5A338FF6F1381E5EBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +606,8 @@ Los Angeles Guitar Quartet - LAGQ Latin (2002) [DSD 2.0 / DST 5.1|1bit/2822,4kHz
 magnet:?xt=urn:btih:9B31BDBB53DB02025D22045494D8E840C16FD5FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +640,8 @@ Bon Jovi - This Left Feels Right (2003) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<х
 ```bash
 magnet:?xt=urn:btih:107E3308643813FECE94E98DCCE52340665F24B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +676,8 @@ Los Angeles Guitar Quartet - Spin (2006) [DSD 2.0 / DST 5.1|1bit/2822,4kHz|SACD-
 magnet:?xt=urn:btih:E48B53F6E901AA76112535629AA05EC8E27217C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +709,8 @@ Meat Loaf - Bat Out Of Hell (1977) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<Hard Ro
 ```bash
 magnet:?xt=urn:btih:5F9882744F3AC91240F8CAA9762B6D16AEE5DF1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +745,8 @@ Los Angeles Guitar Quartet - LAGQ’s Guitar Heroes (2004) [DST 5.1, 2.0 1bit/28
 magnet:?xt=urn:btih:599FB8A3785DF5DF0A7FF4FBD4BAF654A104FFD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -703,38 +780,7 @@ Kodo - Mondo Head (2001) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<World music>
 magnet:?xt=urn:btih:16F302003D0FA60D914F2D5E554933E8BDFC54D0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570577   (387342) от 07.11.2012
-
-Steve Strauss - Just Like Love (2005) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<Acoustic Guitar>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Like Love
-02. Angel
-03. Youngstown
-04. Old Crow
-05. Dead Man’s Handle
-06. Jennie Mae
-07. Brother Mule
-08. Sunday Best
-09. The Dirt
-10. Lord Franklin(   Читать дальше...   )Жанр: Acoustic GuitarПродолжительность: 00:64:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:924836D0767049A6BA00D4958ACAB9BFC90AC248
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

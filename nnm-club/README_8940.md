@@ -19,6 +19,8 @@ Cossacks 3 / Казаки 3 (2016) [Ru/Multi] (1.2.2.57.4328/dlc) License CODEX
 magnet:?xt=urn:btih:A39149119A678D7BE69DA14176B96AA9A2CA6FEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:A39149119A678D7BE69DA14176B96AA9A2CA6FEA
 ```bash
 magnet:?xt=urn:btih:28CDEFF962ECE2C8550F2EDD2D34350579A222CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Ice Skating Santa - Санта Клаус хочет пожелать всем �
 magnet:?xt=urn:btih:4C1FAD5B6F97800F813BCC465CCD826BC1109B82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:4C1FAD5B6F97800F813BCC465CCD826BC1109B82
 ```bash
 magnet:?xt=urn:btih:72DB09728C5770EC5D1CA189CF7C6BABBC252FD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Phantasmat 5: Behind the Mask / Фантазмат 5: Под маской (2015)
 magnet:?xt=urn:btih:BF59A7D00D2C48A8AE35214750A8098AA5FDA2D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:BF59A7D00D2C48A8AE35214750A8098AA5FDA2D2
 ```bash
 magnet:?xt=urn:btih:09E2BF5E5EA3B8EB9AA2688153939045EEE49521
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Christmas Card - Самый простой способ поздравить с�
 magnet:?xt=urn:btih:FEA8B131900B69E5F6CF608D83F5B362D6C1F6CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:FEA8B131900B69E5F6CF608D83F5B362D6C1F6CC
 ```bash
 magnet:?xt=urn:btih:5E3EF9C4F82123D4A360D5969EF00FE258139CA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Winter Slideshow - это проект для слайд-шоу, который 
 magnet:?xt=urn:btih:54AEA4DACBC5D32F49C76C300BE09850766B1E6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:54AEA4DACBC5D32F49C76C300BE09850766B1E6C
 ```bash
 magnet:?xt=urn:btih:CB80E9B5DDE06B25A0F5F8497AF8866CB7E13ADA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:CB80E9B5DDE06B25A0F5F8497AF8866CB7E13ADA
 magnet:?xt=urn:btih:94C8F3B2F4169148EAFCFD0071530E4F94B44D36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:94C8F3B2F4169148EAFCFD0071530E4F94B44D36
 ```bash
 magnet:?xt=urn:btih:0F03EFB89C9670C9F43FC06EDDB4AA485C7522A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Scrivener сочетает в себе возможности текстовог
 magnet:?xt=urn:btih:0AE9230EE75D180BA2EE1C2E25F3FC71C1BB5370
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Haunted Hotel 10: The X Collector's Edition / Проклятый отель 10. 
 ```bash
 magnet:?xt=urn:btih:191094EC0348A22FB282EDCB1DFB4EFAEB2204DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Ashampoo Snap 9 - это идеальное решение для снятия �
 magnet:?xt=urn:btih:FE9CC0391E595A505CBA6500B86106B8A2913C65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:FE9CC0391E595A505CBA6500B86106B8A2913C65
 magnet:?xt=urn:btih:90BA0F0EDEC997A737544A2083978E64193D6315
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:90BA0F0EDEC997A737544A2083978E64193D6315
 ```bash
 magnet:?xt=urn:btih:C352862352C1298353FF3DB76071F4C374B1D31C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Schiller - Zeitreise (Das Beste von Schiller) (2016) [MP3|320 Kbps] <Ambient, Do
 magnet:?xt=urn:btih:34D3F341D03AD37E9D45163F3C2BDEA6AAEE532A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Glass Mask TV 2005 / Стеклянная маска [ТВ-2] [2005, TV, 51] SDT
 magnet:?xt=urn:btih:550E46413D9AC18506089CF3626D1B39E69E3A7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:550E46413D9AC18506089CF3626D1B39E69E3A7C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:550E46413D9AC18506089CF3626D1B39E69E3A7C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:550E46413D9AC18506089CF3626D1B39E69E3A7C
 magnet:?xt=urn:btih:6691355358CEFAE2A64F34850FB4B1E5A9F8C460
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:6691355358CEFAE2A64F34850FB4B1E5A9F8C460
 ```bash
 magnet:?xt=urn:btih:472EBFA444DC5689E61B34EFB5950B22542C67E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:472EBFA444DC5689E61B34EFB5950B22542C67E5
 magnet:?xt=urn:btih:48DDBAB1843761B0667ADE9519A2A1A328B5D0DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ AVS Video Converter - видео конвертер с расширенными 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ AVS Video Converter - видео конвертер с расширенными 
 ```bash
 magnet:?xt=urn:btih:6702B0C55E4425FDA01D83BB57A8709E66770648
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1148715   (602927) от 08.07.2017
+
+Имам Мухйи-д-дин Абу Закарийа бин Шараф ад-Димашки аш-Шафии ан-Навави | Поминания Аллаха - Аль-Азкар [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наилучшее состояние раба — когда он поминает своего Господа. Сказано Всевышним: «Поминайте Меня, и Я буду помнить о вас».Мусульманские ученые, понимая важность зикра, составили множество сборников мольб и поминаний, но наибольшее признание среди мусульман получила книга имама ан-Навави «Аль-Азкар» («Поминания Аллаха»). Среди арабов и по сей день существует поговорка (   Читать дальше...   )Жанр: ИсламФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62780AC0A142847CA36F1760CF83377CA3BF10B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297752   (603018) от 24.04.2019
 
 Екатерина Астанкова | Корейская кухня (2019) [PDF]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:0C45334923074B4322F27CF9A0BB53633B32A59E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:0C45334923074B4322F27CF9A0BB53633B32A59E
 magnet:?xt=urn:btih:983200832CC8ED054C75EC6AFFC5E920E3D7B564
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:983200832CC8ED054C75EC6AFFC5E920E3D7B564
 ```bash
 magnet:?xt=urn:btih:4C04EA8BB05EE853CBCA3136A95C45C5C2E79EC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:4C04EA8BB05EE853CBCA3136A95C45C5C2E79EC6
 magnet:?xt=urn:btih:A5BC5F89B3DE4C2175C48E97784BB29FC51DDA44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:A5BC5F89B3DE4C2175C48E97784BB29FC51DDA44
 ```bash
 magnet:?xt=urn:btih:2DAFEF9D152EE6B065C054769C0770BBDC614A7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:2DAFEF9D152EE6B065C054769C0770BBDC614A7C
 magnet:?xt=urn:btih:D302B3CC312530EBBFC81B758DD0185ACDEF46C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:D302B3CC312530EBBFC81B758DD0185ACDEF46C4
 ```bash
 magnet:?xt=urn:btih:B2B76AB32460E2180E98D6829D2F2E31EC759AC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:B2B76AB32460E2180E98D6829D2F2E31EC759AC1
 magnet:?xt=urn:btih:2E53DB54872E1705AD65B91B595258A35BF4119B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:2E53DB54872E1705AD65B91B595258A35BF4119B
 magnet:?xt=urn:btih:900EEFAC9C279A1A10580400CAD918F7020BE209
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:900EEFAC9C279A1A10580400CAD918F7020BE209
 ```bash
 magnet:?xt=urn:btih:132044EC40B78C15EE91604260147C32767B4208
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:132044EC40B78C15EE91604260147C32767B4208
 magnet:?xt=urn:btih:A6CBA6C830272C10A030B99C50C58AE6E79C0D6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:A6CBA6C830272C10A030B99C50C58AE6E79C0D6A
 ```bash
 magnet:?xt=urn:btih:935326C8675224647AC197E895E4CA8B0D526A27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:935326C8675224647AC197E895E4CA8B0D526A27
 magnet:?xt=urn:btih:16F83A3C4ED25905364225604459B15D086E87ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:16F83A3C4ED25905364225604459B15D086E87ED
 magnet:?xt=urn:btih:9CCED4EECABF357DD59049DD8E3ED30B9CDBF307
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:9CCED4EECABF357DD59049DD8E3ED30B9CDBF307
 ```bash
 magnet:?xt=urn:btih:520FD2EF559E23505B811E3A69CF25555CB0942F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:520FD2EF559E23505B811E3A69CF25555CB0942F
 magnet:?xt=urn:btih:900BDF7E3DF38916A917105C53B4F6B3E9CB1FDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:900BDF7E3DF38916A917105C53B4F6B3E9CB1FDA
 magnet:?xt=urn:btih:FA33BCACC221732A5B26E4369BF30CECC7A6610B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:FA33BCACC221732A5B26E4369BF30CECC7A6610B
 ```bash
 magnet:?xt=urn:btih:A962B01E29090745797DC99E6DD098387EC26824
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:A962B01E29090745797DC99E6DD098387EC26824
 magnet:?xt=urn:btih:72E7583939B0C84F23940F2D1269DBC868F81859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:72E7583939B0C84F23940F2D1269DBC868F81859
 ```bash
 magnet:?xt=urn:btih:A29A06D97D0F8D1D268BA2A927579206A2814D87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:A29A06D97D0F8D1D268BA2A927579206A2814D87
 magnet:?xt=urn:btih:365D0B1ED5FA48A3A74AE550770D1D4E9141D38B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:365D0B1ED5FA48A3A74AE550770D1D4E9141D38B
 ```bash
 magnet:?xt=urn:btih:5B4D42A948E8A1A5127C5AEE1255E69BF03AEB64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:5B4D42A948E8A1A5127C5AEE1255E69BF03AEB64
 magnet:?xt=urn:btih:2B54E5BAE530CB7CFC24B7D6E012C7B291EB1A42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:2B54E5BAE530CB7CFC24B7D6E012C7B291EB1A42
 ```bash
 magnet:?xt=urn:btih:5A21B24C929F4185095DB50B5F29CC95A33B5729
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,29 +684,7 @@ magnet:?xt=urn:btih:5A21B24C929F4185095DB50B5F29CC95A33B5729
 magnet:?xt=urn:btih:93E89266A622C64F0FC13D9F1386F1848F6C291B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297302   (604022) от 22.04.2019
-
-Нагиса Тацуми | Ничего лишнего. Минимум вещей, максимум счастья (2019) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зачем перекладывать вещи с места на место, если можно просто избавиться от лишнего? Нагиса Тацуми, автор бестселлеров про уборку, уверена, что, научившись проще относиться к вещам, вы не только освободите пространство, но и окружите себя именно тем, что любите. Множество практических советов и техник помогут разобраться в одежде, игрушках, книгах и документах, а (   Читать дальше...   )Жанр: Психология, ДомоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91E726485364B8582E92BC367F291DEFF24F2719
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

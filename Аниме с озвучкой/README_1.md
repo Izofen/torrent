@@ -19,6 +19,8 @@ Tian Guan Ci Fu | Heaven Official's Blessing | Благословение неб
 magnet:?xt=urn:btih:19AE79BA5B74801DA2D7458AEFE8BBA3F49B0CB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Ninja to Koroshiya no Futarigurashi | NinKoro | Ниндзя и ассасин �
 ```bash
 magnet:?xt=urn:btih:F92DB91FC156D30B261AB40D2827BD6A8B17858D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:F92DB91FC156D30B261AB40D2827BD6A8B17858D
 magnet:?xt=urn:btih:87541FD62433E853C4ED4BB3C102D83B759FD80A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Apocalypse Hotel | Апокалипсис: Отель [2025, TV, 12 из 12 эп
 ```bash
 magnet:?xt=urn:btih:B24A501C11084945A131D82668B287E6FF0A0214
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Ballpark de Tsukamaete! | Catch Me at the Ballpark! | Ловец бейсбол�
 magnet:?xt=urn:btih:9E775DA4700D36CD193963419712E7CC8090A45E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:9E775DA4700D36CD193963419712E7CC8090A45E
 ```bash
 magnet:?xt=urn:btih:FE5395C5900F433F93EC3CB7ACBEA265131A56F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:FE5395C5900F433F93EC3CB7ACBEA265131A56F2
 magnet:?xt=urn:btih:957A21865608F76699342B97AAE4620736010C00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:957A21865608F76699342B97AAE4620736010C00
 magnet:?xt=urn:btih:D66E5457511FD0D8CE46B9044857A025C7C9EA47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:D66E5457511FD0D8CE46B9044857A025C7C9EA47
 ```bash
 magnet:?xt=urn:btih:EC63A80003CB8AFA8BC6CA4710664E3381326FE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Katainaka no Ossan, Kensei ni Naru | From Old Country Bumpkin to Master Swordsma
 magnet:?xt=urn:btih:373BA92EDCC6BAD906872FC23359ACBC4345F86C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Ore wa Seikan Kokka no Akutoku Ryoushu! | Я злoй лoрд мeжгaлaктич
 ```bash
 magnet:?xt=urn:btih:9109C7C64DB9B720F1D454AD4A73A0EDAC8885A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:9109C7C64DB9B720F1D454AD4A73A0EDAC8885A7
 magnet:?xt=urn:btih:C6B58117B5EB40110FB717A69CA3F76293FAA2CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Isshun de Chiryou Shiteita no ni Yakutatazu to Tsuihou Sareta Tensai Chiyushi, Y
 ```bash
 magnet:?xt=urn:btih:497DF086B6B2BD57C3E6CC091207B65A1404F4A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:497DF086B6B2BD57C3E6CC091207B65A1404F4A5
 magnet:?xt=urn:btih:C70B3B860FDB58654770A5A002225818C2E42E55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Gimai Seikatsu | Days with My Stepsister | Жизнь со сводной сес
 ```bash
 magnet:?xt=urn:btih:7BE91537E545B5B28B2A197E56F72C21A5E5F34B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:7BE91537E545B5B28B2A197E56F72C21A5E5F34B
 magnet:?xt=urn:btih:4A2F9D632859AC2BFDAB0BFE5E6EB73DD6854D6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:4A2F9D632859AC2BFDAB0BFE5E6EB73DD6854D6A
 ```bash
 magnet:?xt=urn:btih:6A10E5988CBDA884B98675949B1EF0F48575669A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:6A10E5988CBDA884B98675949B1EF0F48575669A
 magnet:?xt=urn:btih:3269C2FCBDD4C84799D3B79ACE267D0C0A9D2F85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Beyblade Burst QuadStrike | Бейблэйд Взрыв — Квадроудар
 ```bash
 magnet:?xt=urn:btih:783E08BE99D262B21D783CA20734CD8B3A6ED275
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Ginga Tetsudou no Yoru | Night on the Galactic Railroad | Ночь на Гала
 magnet:?xt=urn:btih:BF74E0373A547F2B335F2E8D539AE5A2737E781A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Tonari no Totoro / My Neighbor Totoro / Мой сосед Тоторо [1988] BD
 ```bash
 magnet:?xt=urn:btih:CB0E10AAE221D4CB1D61B7CED2F95AF52B0C5244
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ Devil May Cry | Adi Shankar's Devil May Cry | И дьявол может пла�
 magnet:?xt=urn:btih:5179C426982094991CD6BE2805E0C8E317270C53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:5179C426982094991CD6BE2805E0C8E317270C53
 ```bash
 magnet:?xt=urn:btih:D3644BE18E4A1C6F399F090B5CC2D7385195E43E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ NEET Kunoichi to Nazeka Dousei Hajimemashita | Somehow, I Started Living With a 
 magnet:?xt=urn:btih:F7E1D93D86A55F84132060C5E5119C721DC10408
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ Undead Unluck | Нежить и Неудача [2023, TV, 24 из 24] BDRip 1080
 magnet:?xt=urn:btih:CC52091494A2298CC6F724C871AB7BA6E28BBA82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Ragna Crimson | Рагна Багровый [2023, TV, 24 из 24] BDRip 1080p H
 ```bash
 magnet:?xt=urn:btih:59DBB3E1936007FE230D6978962C740B1F5B5C10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

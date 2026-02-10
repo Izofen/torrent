@@ -1,3 +1,30 @@
+###  Публикация: 931848   (510780) от 27.08.2015
+
+Легенда "Интердевочки" (2015) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510780.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Интердевочка" вышла на экраны четверть века назад. Этот фильм – прорыв, революция, провокация – как только его не называли. Но все сходятся в одном – он стал событием конца 80-х.
+"У меня нет режиссерского образования, одна интуиция", – говорил о себе один из самых успешных российских режиссеров Петр Тодоровский. Прославившись как создатель фильмов (   Читать дальше...   )Телекомпания: Медиа КонструкторЖанр: ДокументальныйПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B30D6449F47D4CD25325699A7813704EE82AF771
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315899   (510847) от 22.07.2019
 
 Высадка на Луну: потерянные материалы / Moon Landing: The Lost Tapes (2019) HDTVRip [H.264/1080p-LQ]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:5C2D383886F4845D27835BD9450EF8B24D3540EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@ magnet:?xt=urn:btih:5C2D383886F4845D27835BD9450EF8B24D3540EC
 magnet:?xt=urn:btih:CC4B379B15FBFBD1E7C82108F4ECD4CFF0FF1ACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ magnet:?xt=urn:btih:CC4B379B15FBFBD1E7C82108F4ECD4CFF0FF1ACC
 ```bash
 magnet:?xt=urn:btih:D01972AFBC14DEA320543B2DD2A1BB529A319946
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:D01972AFBC14DEA320543B2DD2A1BB529A319946
 magnet:?xt=urn:btih:F4045CB1D6578C057C3B47485DF432CEF11BAC61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +150,8 @@ magnet:?xt=urn:btih:F4045CB1D6578C057C3B47485DF432CEF11BAC61
 ```bash
 magnet:?xt=urn:btih:BD1B3A4602BCF6CE43CFDEF312A360937E1DB369
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +177,8 @@ magnet:?xt=urn:btih:BD1B3A4602BCF6CE43CFDEF312A360937E1DB369
 ```bash
 magnet:?xt=urn:btih:0F9E624BA8DF3398B650B59D3F8D700957BF7E47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +206,8 @@ magnet:?xt=urn:btih:0F9E624BA8DF3398B650B59D3F8D700957BF7E47
 magnet:?xt=urn:btih:689A6C8BC4C239E96949A27097B61BE574AB83D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +231,8 @@ magnet:?xt=urn:btih:689A6C8BC4C239E96949A27097B61BE574AB83D8
 ```bash
 magnet:?xt=urn:btih:B62AFD76EF2C38A7CA63D44CE4C3B2A030D906DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +258,8 @@ magnet:?xt=urn:btih:B62AFD76EF2C38A7CA63D44CE4C3B2A030D906DD
 magnet:?xt=urn:btih:1C60A983B717CA7EBB9D929B364402619D07BDAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +284,8 @@ magnet:?xt=urn:btih:1C60A983B717CA7EBB9D929B364402619D07BDAC
 ```bash
 magnet:?xt=urn:btih:46B1CE187A141D7A71A7BBE711E20472485377EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +313,8 @@ magnet:?xt=urn:btih:46B1CE187A141D7A71A7BBE711E20472485377EF
 magnet:?xt=urn:btih:FEB3CA11C106230B15088F200562019D00401B10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +339,8 @@ magnet:?xt=urn:btih:FEB3CA11C106230B15088F200562019D00401B10
 magnet:?xt=urn:btih:20567827939F3DB5C0B2AC4FE67D177B44217AD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +364,8 @@ magnet:?xt=urn:btih:20567827939F3DB5C0B2AC4FE67D177B44217AD0
 ```bash
 magnet:?xt=urn:btih:B437D9620891447B94496E44A4CD64780820FBA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +392,8 @@ magnet:?xt=urn:btih:B437D9620891447B94496E44A4CD64780820FBA6
 magnet:?xt=urn:btih:67B362426496CCD070051E66BD1E8CCE3D96D853
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +418,8 @@ magnet:?xt=urn:btih:67B362426496CCD070051E66BD1E8CCE3D96D853
 magnet:?xt=urn:btih:2A910AE8544937100A1C8FEF9841F464E8649EC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +443,8 @@ magnet:?xt=urn:btih:2A910AE8544937100A1C8FEF9841F464E8649EC6
 ```bash
 magnet:?xt=urn:btih:75D1016D5E02F65D78E3062A40CC937DBA60C1FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +473,8 @@ Liam Gallagher: 48 Hours at Rockfield (2022) WEB-DL [H.264/1080p] [EN / En Sub]
 magnet:?xt=urn:btih:A0048DDEF6C17FC946AF03D2BBCA12E7296538E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +499,8 @@ magnet:?xt=urn:btih:A0048DDEF6C17FC946AF03D2BBCA12E7296538E7
 magnet:?xt=urn:btih:89CA47A8DEF5EF6FD9D6ACE14721CA3EB277B8E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +524,8 @@ magnet:?xt=urn:btih:89CA47A8DEF5EF6FD9D6ACE14721CA3EB277B8E2
 ```bash
 magnet:?xt=urn:btih:3669A0CCFD74CAA8B2BB9EF5542F299F092A9F6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +553,8 @@ magnet:?xt=urn:btih:3669A0CCFD74CAA8B2BB9EF5542F299F092A9F6A
 magnet:?xt=urn:btih:EC6FED6B11AFB4076E2485423DF935E757300629
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +579,8 @@ NG. Суперсооружения Третьего рейха: война с С
 ```bash
 magnet:?xt=urn:btih:A8F9C4DFBB04D21E2B0F790F45C987F1929988DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +608,8 @@ magnet:?xt=urn:btih:A8F9C4DFBB04D21E2B0F790F45C987F1929988DA
 magnet:?xt=urn:btih:35126A40B2A034A031A852B900A73C887FEF27D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +633,8 @@ magnet:?xt=urn:btih:35126A40B2A034A031A852B900A73C887FEF27D4
 ```bash
 magnet:?xt=urn:btih:2E7CE06E0EFE4BCBC409AD68A044BE55FED163E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +660,8 @@ magnet:?xt=urn:btih:2E7CE06E0EFE4BCBC409AD68A044BE55FED163E1
 magnet:?xt=urn:btih:D70D8F2C15042D6E963376C17719DDF537A9DA2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,29 +686,7 @@ magnet:?xt=urn:btih:D70D8F2C15042D6E963376C17719DDF537A9DA2A
 magnet:?xt=urn:btih:AD4800279489A84369B9E679742B1410D0176F48
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931228   (513007) от 25.08.2015
-
-Пищевая революция. Дыня (2015) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откровенные признания фермеров и разоблачения продавцов бахчевых культур. Как ароматные дыни превращают в овощ-мумию и можно ли эти плоды сегодня назвать безопасными? Эксперты в студии расскажут, зачем дыни купают в формалине и насколько это опасно для рядового москвича? Почему этот плод нельзя мыть холодной водой и хранить в холодильнике? И что должно насторожить (   Читать дальше...   )Телекомпания: Москва 24Жанр: ТелепередачаПродолжительность: 00:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C6C49E12DE30934AD51DC00DEB1191B1DC62A8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

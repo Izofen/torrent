@@ -1,3 +1,31 @@
+###  Публикация: 1330028   (345446) от 08.10.2019
+
+Стивен Кинг | Оно (Книга 1). Тень прошлого (2019) [MP3, Игорь Князев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из самых масштабных романов Стивена Кинга, вошел в десятку лучших произведений автора, а также попал в списки «100 самых великих книг столетия»
+
+В маленьком провинциальном городке Дерри много лет назад семерым подросткам пришлось столкнуться с кромешным ужасом – живым воплощением ада. Прошли годы… Подростки повзрослели, и ничто, казалось, не предвещало новой (   Читать дальше...   )Жанр: Мистика, УжасыПродолжительность: 23:09:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F283E35C896A298A87B4E149CFAE44BF439DC5E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578439   (345527) от 23.09.2022
 
 Ян Бадевский | Корректировщик (Книга 4). Волхв (2022) [MP3, Евгений Лебедев]
@@ -21,6 +49,8 @@
 ```bash
 magnet:?xt=urn:btih:E2D925988EC1EA919711CA261EB0A695FF3DEE95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +78,8 @@ magnet:?xt=urn:btih:E2D925988EC1EA919711CA261EB0A695FF3DEE95
 magnet:?xt=urn:btih:60D3D93CEF8F003490590A06D6B4E97C8F3EAB6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +104,8 @@ magnet:?xt=urn:btih:60D3D93CEF8F003490590A06D6B4E97C8F3EAB6A
 magnet:?xt=urn:btih:5872B4A88265BA26C0C347EB50685677A643700A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +129,8 @@ magnet:?xt=urn:btih:5872B4A88265BA26C0C347EB50685677A643700A
 ```bash
 magnet:?xt=urn:btih:3F58ED7D0AB5D5B2C0A16977880B8B77CA12050F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +157,8 @@ magnet:?xt=urn:btih:3F58ED7D0AB5D5B2C0A16977880B8B77CA12050F
 magnet:?xt=urn:btih:009057FECE8BF743450A4F5558DEE5A729A7DDD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +182,8 @@ magnet:?xt=urn:btih:009057FECE8BF743450A4F5558DEE5A729A7DDD0
 ```bash
 magnet:?xt=urn:btih:D7DFB3011A24BF49066E3309132CD2BD9E0FC80B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +209,8 @@ magnet:?xt=urn:btih:D7DFB3011A24BF49066E3309132CD2BD9E0FC80B
 magnet:?xt=urn:btih:5246C80D2C5026841964BDBACC4EAA35CA87213B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +234,8 @@ magnet:?xt=urn:btih:5246C80D2C5026841964BDBACC4EAA35CA87213B
 ```bash
 magnet:?xt=urn:btih:7A5EA7E6230C4BA7428A26D9BDBDDA60164A592B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +261,8 @@ magnet:?xt=urn:btih:7A5EA7E6230C4BA7428A26D9BDBDDA60164A592B
 magnet:?xt=urn:btih:81E8FA4DEB7D2614D6202C272060BF3C2CA97335
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +286,8 @@ magnet:?xt=urn:btih:81E8FA4DEB7D2614D6202C272060BF3C2CA97335
 ```bash
 magnet:?xt=urn:btih:A9764AB43CA9B95B81B763C00365796DAABC24BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +314,8 @@ magnet:?xt=urn:btih:A9764AB43CA9B95B81B763C00365796DAABC24BE
 magnet:?xt=urn:btih:F2FBDBAD332A2596420C2433B89CF0B8D22E649F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +341,8 @@ magnet:?xt=urn:btih:F2FBDBAD332A2596420C2433B89CF0B8D22E649F
 magnet:?xt=urn:btih:52CD7BBA451B30C341E51B66C3BD0C7054FACD77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +366,8 @@ magnet:?xt=urn:btih:52CD7BBA451B30C341E51B66C3BD0C7054FACD77
 ```bash
 magnet:?xt=urn:btih:B0BE1496149CE323D57E55370B68C73D15A2B88D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +394,8 @@ magnet:?xt=urn:btih:B0BE1496149CE323D57E55370B68C73D15A2B88D
 magnet:?xt=urn:btih:84C66CFBEEDBF529095EDFA7763CC61084715914
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +419,8 @@ magnet:?xt=urn:btih:84C66CFBEEDBF529095EDFA7763CC61084715914
 ```bash
 magnet:?xt=urn:btih:EC53C29C280F82765162F37D0D2E92EA01215994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +448,8 @@ magnet:?xt=urn:btih:EC53C29C280F82765162F37D0D2E92EA01215994
 magnet:?xt=urn:btih:87A7CFB3B9963F5C5B2C603A951050435E03F409
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +473,8 @@ magnet:?xt=urn:btih:87A7CFB3B9963F5C5B2C603A951050435E03F409
 ```bash
 magnet:?xt=urn:btih:0097F775367E2CBC2A5DDE0B36D5F32B2CFA002C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +500,8 @@ magnet:?xt=urn:btih:0097F775367E2CBC2A5DDE0B36D5F32B2CFA002C
 magnet:?xt=urn:btih:F15622B01CF7232F51483BDB8FE9F7694B7BAD7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +525,8 @@ magnet:?xt=urn:btih:F15622B01CF7232F51483BDB8FE9F7694B7BAD7C
 ```bash
 magnet:?xt=urn:btih:897055A26772B8DEF0FD291B04516E3557C509E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +552,8 @@ magnet:?xt=urn:btih:897055A26772B8DEF0FD291B04516E3557C509E5
 magnet:?xt=urn:btih:F7712219FBEDF7E67FF02E89933883900D89835D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +577,8 @@ magnet:?xt=urn:btih:F7712219FBEDF7E67FF02E89933883900D89835D
 ```bash
 magnet:?xt=urn:btih:8A1BFCFFF0A88BD98340203D3866CD3A793D4858
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +606,8 @@ magnet:?xt=urn:btih:8A1BFCFFF0A88BD98340203D3866CD3A793D4858
 magnet:?xt=urn:btih:902D458F53F38BBC8E64442F8C8A4CE76347D395
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +631,8 @@ magnet:?xt=urn:btih:902D458F53F38BBC8E64442F8C8A4CE76347D395
 ```bash
 magnet:?xt=urn:btih:458E4E7B9683289B2D8CE7D785AB0B460AF87616
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +659,8 @@ magnet:?xt=urn:btih:458E4E7B9683289B2D8CE7D785AB0B460AF87616
 magnet:?xt=urn:btih:D8724ADFF0EBC166D0C993B4677AA12389DE8EA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,29 +685,7 @@ magnet:?xt=urn:btih:D8724ADFF0EBC166D0C993B4677AA12389DE8EA3
 magnet:?xt=urn:btih:E7D708846F91DBF29B19C3BD9402FD43CEC6E8B2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179285   (349052) от 31.10.2017
-
-Алёна Чубарова | Смежная Зона (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие романа "Смежная Зона" происходит в будущем. Человечество, благополучно решив все межнациональные и экономические проблемы, вступило во времена благоденствия. И тут оказалось, что при отсутствии внешней угрозы, главный враг человека проявился внутри него. Таинственная и странная болезнь, названная учеными "Мир Внутренней Комы", распространяется (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 08:13:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A724BEE057507E8A6577132F2C4F5FB44D3F389
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

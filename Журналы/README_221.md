@@ -1,27 +1,3 @@
-###  Публикация: 839324   (342504) от 09.11.2014
-
-Журнал | Школа кулинара №23 (ноябрь 2014) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342504.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Школа кулинара» – сборник рецептов, присланных читателями и проверенных профессионалами. Салаты и закуски, супы, горячие блюда, рыбные блюда, выпечка и десерты, напитки и всё это вкусно, а главное просто, ведь к каждому рецепту прилагается пошаговая инструкция и фото с конечным результатом.Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A178D3565F45DDD8F5AEAB3C44DC177A129A3C6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180070   (342523) от 03.11.2017
 
 Журнал | Моя прекрасная дача №22 (ноябрь 2017) [PDF]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:A178D3565F45DDD8F5AEAB3C44DC177A129A3C6A
 ```bash
 magnet:?xt=urn:btih:67C48184F96A1926634BD587B7AE50A982E1670A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:67C48184F96A1926634BD587B7AE50A982E1670A
 magnet:?xt=urn:btih:785D3E562019C3618A1936F56B9AC155A3A836E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:785D3E562019C3618A1936F56B9AC155A3A836E6
 ```bash
 magnet:?xt=urn:btih:10010368045A0C4AB05BEF612076FBAF637D80A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:10010368045A0C4AB05BEF612076FBAF637D80A3
 magnet:?xt=urn:btih:7D354FFB2B7AF52F22B9F66F861B8D6D9191E8FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:7D354FFB2B7AF52F22B9F66F861B8D6D9191E8FF
 ```bash
 magnet:?xt=urn:btih:9E64E04D5C19911076795E88AC9E0013FF978E5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:9E64E04D5C19911076795E88AC9E0013FF978E5E
 magnet:?xt=urn:btih:C944A3014768C86A3897CB7D345E6F3ADF644E2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:C944A3014768C86A3897CB7D345E6F3ADF644E2C
 ```bash
 magnet:?xt=urn:btih:F9B7B2E1B824B6D87ABB523F0C26362E78D722E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:F9B7B2E1B824B6D87ABB523F0C26362E78D722E3
 magnet:?xt=urn:btih:0BF456CB70BEFE33F7583D60C7D4D2CD8D8D74FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:0BF456CB70BEFE33F7583D60C7D4D2CD8D8D74FB
 ```bash
 magnet:?xt=urn:btih:21BE2DB777B47E14A94865305C04E0E52CBA5A86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:21BE2DB777B47E14A94865305C04E0E52CBA5A86
 magnet:?xt=urn:btih:DF32FE35C3CEAF5A95349F3271D9F4B3EABB0BAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ magnet:?xt=urn:btih:DF32FE35C3CEAF5A95349F3271D9F4B3EABB0BAC
 ```bash
 magnet:?xt=urn:btih:8B49253FE03500D484DB4BC1024AD3DABE427699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +306,8 @@ magnet:?xt=urn:btih:8B49253FE03500D484DB4BC1024AD3DABE427699
 magnet:?xt=urn:btih:939AB8C2DE72880DA2BA3EB444CAE727D94A8B73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +331,8 @@ magnet:?xt=urn:btih:939AB8C2DE72880DA2BA3EB444CAE727D94A8B73
 ```bash
 magnet:?xt=urn:btih:446DEE6A962F4176DBE7878D0CF950346C486E5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +358,34 @@ magnet:?xt=urn:btih:446DEE6A962F4176DBE7878D0CF950346C486E5E
 magnet:?xt=urn:btih:FB773DE07C4E5FBF16C331E6F74C049EEAE1B301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580542   (343143) от 25.11.2012
+
+Подборка журналов | Вязание для взрослых. Спицы/Крючок №№1 - 10 +Спецвыпуски [2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_343143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российско-аргентинский журнал по вязанию крючком и спицами. Это ежемесячный журнал по вязанию. Изделия проиллюстрированы фотографиями, подробными описаниями по выполнению работы, точными выкройками и схемами узоров.Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:FB773DE07C4E5FBF16C331E6F74C049EEAE1B301
 ```bash
 magnet:?xt=urn:btih:E53C0C384A718AC187B9D04B194AD87096AB80B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:E53C0C384A718AC187B9D04B194AD87096AB80B3
 magnet:?xt=urn:btih:A0DCFD9FB719397D8071DAA85E427795D4B4F9EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ magnet:?xt=urn:btih:A0DCFD9FB719397D8071DAA85E427795D4B4F9EF
 ```bash
 magnet:?xt=urn:btih:D468B54001F633B9E87CE6E8BB6A6553245E83EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:D468B54001F633B9E87CE6E8BB6A6553245E83EE
 magnet:?xt=urn:btih:10D90E5BEC4358862291801DED6DC412C75BF9E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ magnet:?xt=urn:btih:10D90E5BEC4358862291801DED6DC412C75BF9E9
 ```bash
 magnet:?xt=urn:btih:F880274005277EF732DC8AA421951BD27D1CA272
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:F880274005277EF732DC8AA421951BD27D1CA272
 magnet:?xt=urn:btih:2C12C1A7EB9562DBFC0FDF5B67B8FF2B7E89CAAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ magnet:?xt=urn:btih:2C12C1A7EB9562DBFC0FDF5B67B8FF2B7E89CAAA
 ```bash
 magnet:?xt=urn:btih:93FFBA34EE1C2B2A21F14D9EDD919F0A60C3F731
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:93FFBA34EE1C2B2A21F14D9EDD919F0A60C3F731
 magnet:?xt=urn:btih:AE122CFE34E2CF0CDC307D1C3C0997A326474A9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ magnet:?xt=urn:btih:AE122CFE34E2CF0CDC307D1C3C0997A326474A9F
 ```bash
 magnet:?xt=urn:btih:7E12EEE08FA930FA53AA52510D66FA991F559707
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ magnet:?xt=urn:btih:7E12EEE08FA930FA53AA52510D66FA991F559707
 magnet:?xt=urn:btih:FE4C96F39D5D18CC5BF0E2B7EEF5C5404D81E422
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ magnet:?xt=urn:btih:FE4C96F39D5D18CC5BF0E2B7EEF5C5404D81E422
 ```bash
 magnet:?xt=urn:btih:EB355050F62B6A79EAA77A1F237D38CEA2A7F6F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

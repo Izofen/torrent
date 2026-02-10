@@ -22,6 +22,8 @@ Human Production Music & Jon Spanyol - New York Jazz (2025) [FLAC 24/48|Lossless
 magnet:?xt=urn:btih:4F3A94040495F24F472990B46C3C6A8EC9B09D72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Shannon Ames - Bohemian Dreams (2004) [FLAC|Lossless|image + .cue] <Folk-Rock>
 ```bash
 magnet:?xt=urn:btih:348364C29A936DC1AABF1066B10BCE54E3E1B564
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Naima Quartet - Evergreen (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Voca
 magnet:?xt=urn:btih:160A0756E4105CBEC09EFBA7017008D68386BF17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Heiri Kanzig & Michael Zisman - Lost & Found (2025) [FLAC 24/48|Lossless|WEB-DL|
 magnet:?xt=urn:btih:93BFF4EA68CC304FADE33FD5C909B689A89FC38E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ magnet:?xt=urn:btih:93BFF4EA68CC304FADE33FD5C909B689A89FC38E
 magnet:?xt=urn:btih:79916072401C835A089B3D723B231C024C0E94BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ Linux Format — первый ежемесячный журнал, целико�
 ```bash
 magnet:?xt=urn:btih:A8125CCC0580E2ECA72B03BB112CDD457CDD45C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:A8125CCC0580E2ECA72B03BB112CDD457CDD45C7
 magnet:?xt=urn:btih:2A6C361CC25101721A3366EB5D727BA6F3FC9E3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:2A6C361CC25101721A3366EB5D727BA6F3FC9E3A
 ```bash
 magnet:?xt=urn:btih:B33D3CBF6C206212107524836635AC9CE4369660
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:B33D3CBF6C206212107524836635AC9CE4369660
 magnet:?xt=urn:btih:DA55E2D87CECF7D1CFE467804762FC68254CFBFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:784631641C82BDA353E74EC3522BD8E41FA308A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ Nice — игривый ретро-шрифт, который излучает �
 magnet:?xt=urn:btih:36B1EE5D8FE664E4AF1E8B54E1D9A78C72444540
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:6011376A592632EA1B92D94F46BB18FCF19377E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:6011376A592632EA1B92D94F46BB18FCF19377E2
 magnet:?xt=urn:btih:A95693C020C8F94E568566FD678658170FEA7803
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:A95693C020C8F94E568566FD678658170FEA7803
 ```bash
 magnet:?xt=urn:btih:935B118671B4A284FD5A0FC34DD661A8647ECE4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ VA - Kontor Top of the Clubs (2025) [MP3|320 Kbps] <Dance, Club, House, Electron
 magnet:?xt=urn:btih:B88EC39F652CE95459416D1D907D2E371A9B39CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:B88EC39F652CE95459416D1D907D2E371A9B39CA
 ```bash
 magnet:?xt=urn:btih:3617D1F3E21EA33E17C0EF6122A4670A1816650A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:3617D1F3E21EA33E17C0EF6122A4670A1816650A
 magnet:?xt=urn:btih:CB5C1893311A80F96BDBFAD9167B1F0ACF595E79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:CB5C1893311A80F96BDBFAD9167B1F0ACF595E79
 ```bash
 magnet:?xt=urn:btih:858B8272D8D58E2725A7134916C83545F8D82402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ Happy Color — самая популярная и излюбленная бес
 magnet:?xt=urn:btih:A15AEC79A4D7AAF86F16D246BD0D78AE519E55E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:218641D1B1580D1B835D8F2EF755F374093BE46E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ Dana Fuchs, стоящая по обе стороны баррикад блюз-
 ```bash
 magnet:?xt=urn:btih:5A7315EA45A11ADA654CDC969DF8AF36F395309C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ Sante DICOM Editor — ведущее в отрасли приложение п�
 magnet:?xt=urn:btih:4C38660AC4B789AA759A6C8A0D838E56CB7211AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ TigerCat — это специальный шрифт, который приме
 ```bash
 magnet:?xt=urn:btih:AF17F66F4898CD1F1F41643EB2EB18F96FF93F90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ Sante DICOM Viewer Pro не является «еще одним средств�
 magnet:?xt=urn:btih:FC4435B2884CF7CF9195E6AC8E04661DABB62EBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ Topaz Gigapixel AI — это приложение, использующее с�
 magnet:?xt=urn:btih:3C1B83117D206295878EDE39ABD3FB935B0DB71D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:6FAF2D605C5424C617AE090284E6F2CCB3095246
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

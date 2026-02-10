@@ -1,27 +1,3 @@
-###  Публикация: 799861   (642285) от 28.06.2014
-
-Леди и разбойник / The Lady And The Highwayman (1989) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по самому знаменитому из романов Барбары Картленд!!! История любви и опасных приключений леди Пантеи и ее спасителя и защитника - "благородного разбойника", готового пожертвовать ради своей возлюбленной жизнью... Затаите дыхание и погрузитесь в мир романтической любви и увлекательных приключений, в мир, где героиня чиста и прекрасна, герой силен (   Читать дальше...   )Производство: Великобритания / Gainsborough PicturesЖанр: Мелодрама, Приключения, ИсторическийРежиссер: Джон ХьюАктеры: Эмма Сэммс, Хью Грант, Клер Блум, Лизетт Энтони, Майкл Йорк, Джон Миллз, Йен Бэннен, Оливер Рид, Кристофер Кейзнов, Роберт Морли, Бернард Майлз, Гордон Джексон, Гарет Хант, Стефани Питт, Флойд Беван, Вейн Майклс, Ламья Дерваль, Форбс Коллинз, Лиз Фрайзер, Джеймс Бут, Томми Дагган, Джон Баскомб, Джулия Вердин, Дженнифер Крокстон, Рой БойдПеревод: Многоголосый закадровыйПродолжительность: 01:29:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54B4EBE340ECA88CAEB91D2059F540E6CCEC91D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227848   (642487) от 28.05.2018
 
 А ну-ка, девочка, разденься! / Geh, zieh dein Dirndl aus (1973) DVDRip [H.264]
@@ -43,6 +19,8 @@ magnet:?xt=urn:btih:54B4EBE340ECA88CAEB91D2059F540E6CCEC91D7
 ```bash
 magnet:?xt=urn:btih:D024B6E393AF1481A8E316ADC5F817685F88674A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +46,8 @@ magnet:?xt=urn:btih:D024B6E393AF1481A8E316ADC5F817685F88674A
 magnet:?xt=urn:btih:616D4C72E669435CD05BE0DEFEBB01C6D4411F47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +71,8 @@ magnet:?xt=urn:btih:616D4C72E669435CD05BE0DEFEBB01C6D4411F47
 ```bash
 magnet:?xt=urn:btih:8E0D1F2B30AF013DEEFC65134FCA3039F223F0B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +98,8 @@ magnet:?xt=urn:btih:8E0D1F2B30AF013DEEFC65134FCA3039F223F0B7
 magnet:?xt=urn:btih:4408A7399B8998233F9A5041B34184F79FEBB066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +123,8 @@ magnet:?xt=urn:btih:4408A7399B8998233F9A5041B34184F79FEBB066
 ```bash
 magnet:?xt=urn:btih:7360026C348AD75D5A1095810FCC8341C0074C5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:7360026C348AD75D5A1095810FCC8341C0074C5B
 magnet:?xt=urn:btih:50224B22105C998C1B41873ABFE81CD6157DBA11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:50224B22105C998C1B41873ABFE81CD6157DBA11
 ```bash
 magnet:?xt=urn:btih:0A06B38BC0B1FBE33A94BE589DA75C3DB42919BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:0A06B38BC0B1FBE33A94BE589DA75C3DB42919BF
 magnet:?xt=urn:btih:7A59EA8BBFE19BC5C4FC2D8D935123250F141FC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ magnet:?xt=urn:btih:7A59EA8BBFE19BC5C4FC2D8D935123250F141FC8
 ```bash
 magnet:?xt=urn:btih:0897DBD374ACBBBE5729BB99A7EA29EA88578A83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:0897DBD374ACBBBE5729BB99A7EA29EA88578A83
 magnet:?xt=urn:btih:22C85D108DAC3F853CC1438650953E8ED0686991
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ magnet:?xt=urn:btih:22C85D108DAC3F853CC1438650953E8ED0686991
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +306,8 @@ magnet:?xt=urn:btih:22C85D108DAC3F853CC1438650953E8ED0686991
 magnet:?xt=urn:btih:87FD7AB29ACACB1FA0BFDECD8E94D2EAB5DD2C8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +331,8 @@ magnet:?xt=urn:btih:87FD7AB29ACACB1FA0BFDECD8E94D2EAB5DD2C8E
 ```bash
 magnet:?xt=urn:btih:ACA0298C5E05F8218BC26E5277EC01BB94A48D5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +358,8 @@ magnet:?xt=urn:btih:ACA0298C5E05F8218BC26E5277EC01BB94A48D5D
 magnet:?xt=urn:btih:30E910B844289FED1E139907F16660397BB20610
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +383,8 @@ magnet:?xt=urn:btih:30E910B844289FED1E139907F16660397BB20610
 ```bash
 magnet:?xt=urn:btih:84045FDB38A59909B7507C0B84B244935F8F09E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +410,8 @@ magnet:?xt=urn:btih:84045FDB38A59909B7507C0B84B244935F8F09E0
 magnet:?xt=urn:btih:ECC5112B54A447332C390D646A9AFEB4C22E69AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +435,8 @@ magnet:?xt=urn:btih:ECC5112B54A447332C390D646A9AFEB4C22E69AE
 ```bash
 magnet:?xt=urn:btih:FE48CDDE49B117A4619E3108B42B9405A022918B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +462,8 @@ magnet:?xt=urn:btih:FE48CDDE49B117A4619E3108B42B9405A022918B
 magnet:?xt=urn:btih:CA84D834C85B31847DAC16617AD8E3407079F8BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +487,8 @@ magnet:?xt=urn:btih:CA84D834C85B31847DAC16617AD8E3407079F8BB
 ```bash
 magnet:?xt=urn:btih:56334ACE2A9F9AD76C4E68B0FC7C8284A6816A11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +514,8 @@ magnet:?xt=urn:btih:56334ACE2A9F9AD76C4E68B0FC7C8284A6816A11
 magnet:?xt=urn:btih:D56669CBFF4A357333FB0065E10D342C05D377BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +539,8 @@ magnet:?xt=urn:btih:D56669CBFF4A357333FB0065E10D342C05D377BF
 ```bash
 magnet:?xt=urn:btih:A63235B3C908B90044935127B9E811BB2808B7F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +566,8 @@ magnet:?xt=urn:btih:A63235B3C908B90044935127B9E811BB2808B7F0
 magnet:?xt=urn:btih:9F34979D0A481ED9C83AB191FD06A5E42DB7401B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +591,8 @@ magnet:?xt=urn:btih:9F34979D0A481ED9C83AB191FD06A5E42DB7401B
 ```bash
 magnet:?xt=urn:btih:53AFE9BB27C0403B89B6494D39D2CDFE1184D1FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +618,8 @@ magnet:?xt=urn:btih:53AFE9BB27C0403B89B6494D39D2CDFE1184D1FF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +643,34 @@ magnet:?xt=urn:btih:53AFE9BB27C0403B89B6494D39D2CDFE1184D1FF
 ```bash
 magnet:?xt=urn:btih:7339743CEC2E51F56A753931756D2C14D3E5A4DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905698   (647450) от 07.06.2015
+
+Нагрудный знак 373 / Badge 373 (1973) IPTVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полицейский детектив в одиночку ищет убийцу напарника даже после того, как его отстранили от дела. Этот боевик основан на реальном опыте полицейского.Производство: США, Paramount PicturesЖанр: Криминал, Триллер, ДрамаРежиссер: Ховард Коч / Howard W. KochАктеры: Роберт Дювалл, Верна Блум, Генри Дэрроу, Эдди Иган, Фелипе Лучиано, Тина Кристиани, Марина Дарелл, Чико Мартинес, Хосе Дюваль, Луис КозентиноПеревод: Многоголосый закадровыйПродолжительность: 01:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1511C99BFA603F6E0EF1D024A0A8FE59E13F5DB3
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Next.js - готовый к production framework для React - самой по�
 magnet:?xt=urn:btih:197970F7E1F9B0098B3D1275E2F539B460AC1C2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:197970F7E1F9B0098B3D1275E2F539B460AC1C2D
 magnet:?xt=urn:btih:E7337612B83A57E4AB318702D8F41899FA01F7E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Color Grading Central: Davinci Resolve 11 Tutorial - Один из лучших 
 ```bash
 magnet:?xt=urn:btih:FC15DA727B3FF0241FFE2295D7392210EB559ACD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:FC15DA727B3FF0241FFE2295D7392210EB559ACD
 magnet:?xt=urn:btih:2A20945B29E7DE2D40727B606109992C342C1BF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:2A20945B29E7DE2D40727B606109992C342C1BF0
 magnet:?xt=urn:btih:EF74B786A0CCF9A629538BF98CC5A7DA5269B76F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:EF74B786A0CCF9A629538BF98CC5A7DA5269B76F
 ```bash
 magnet:?xt=urn:btih:60478AC877A280137955B7DA00D4AB3D853884E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:60478AC877A280137955B7DA00D4AB3D853884E0
 magnet:?xt=urn:btih:05999883E13D85344A4BBB3218B3CBFA4637831E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:05999883E13D85344A4BBB3218B3CBFA4637831E
 ```bash
 magnet:?xt=urn:btih:BA4146B8411E0DCE754F018D043E6B723635998D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ The Gnomon Workshop, Josh Docherty | Modeling For Film & TV Hard-Surface Vehicle
 magnet:?xt=urn:btih:BFC04AD66FC367C166A8C96D73CB9A11950AA464
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ Boosty, Антон Назаров | Осознанная Меркантильн�
 magnet:?xt=urn:btih:5BE8FB76C86E072C40A1735744F0A8BCF2904624
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:5BE8FB76C86E072C40A1735744F0A8BCF2904624
 ```bash
 magnet:?xt=urn:btih:0045783AA60138D6C8792017C5EF2298B7B6BCF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ Boosty, Антон Назаров | Осознанная Меркантильн�
 magnet:?xt=urn:btih:8CAA8683DC37933F2D935A8C4B3F5A021A27897F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:8CAA8683DC37933F2D935A8C4B3F5A021A27897F
 ```bash
 magnet:?xt=urn:btih:9C9BDA2B060AE9C9D780298C6AA287E5CA507D3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:9C9BDA2B060AE9C9D780298C6AA287E5CA507D3E
 magnet:?xt=urn:btih:DC708E0B9CA20113324354C8156C6332E4CF1660
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ PlayThis, Артём Мироненко | Набор Профессионала 
 magnet:?xt=urn:btih:ECCB6B4D9A461971A5743652BA7A2A6E2DE856FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ Udemy | Игры со словами на C# (2018) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:31ED3982F0EA89E941A320CD30BD24EBD07567E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ magnet:?xt=urn:btih:31ED3982F0EA89E941A320CD30BD24EBD07567E5
 magnet:?xt=urn:btih:9A5C30222B3AD9148ECB3F7FA9FC2BF8BA237144
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:9A5C30222B3AD9148ECB3F7FA9FC2BF8BA237144
 ```bash
 magnet:?xt=urn:btih:5734849001C599AF4AD8DEB702FE4DEF867E2B64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:5734849001C599AF4AD8DEB702FE4DEF867E2B64
 magnet:?xt=urn:btih:A225A5863E9D1E4C1EF7F55FD53CAD1E3CE3D873
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ magnet:?xt=urn:btih:A225A5863E9D1E4C1EF7F55FD53CAD1E3CE3D873
 ```bash
 magnet:?xt=urn:btih:B9BF83F77E9BF3D5F3F90199A6F0EC25B38139AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ magnet:?xt=urn:btih:B9BF83F77E9BF3D5F3F90199A6F0EC25B38139AD
 magnet:?xt=urn:btih:8538BD351AEED2BE97F2BA35D052C4B52B42D84A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +601,8 @@ magnet:?xt=urn:btih:8538BD351AEED2BE97F2BA35D052C4B52B42D84A
 magnet:?xt=urn:btih:18BDF4F72177D560B0A13372815DF41412D0830A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +629,8 @@ Udemy, Andrei Dumitrescu | Linux Security: The Complete Iptables Firewall Guide 
 magnet:?xt=urn:btih:263B4CB8C79C517DBEC2A0084CCD4CA8C0345767
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ Serberg | Видеоурок "Восстановление Windows в счита
 ```bash
 magnet:?xt=urn:btih:46EDEB8214EDA5B555A318B3E4D3572DE7820A75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +681,8 @@ Seelentera | Ajax vs Node.JS (2014) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:FEB955EAD403A6994E5FC4410CA11406A7777ABD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ SmartMe University | Разработка API с Node.js (2015) PCRec [H.264/720
 ```bash
 magnet:?xt=urn:btih:FB9757B8199D589E1835B29B2E24773B1224B606
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

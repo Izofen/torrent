@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:DA6C746650CEFBFA26517FDD699E271D8E5E770D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:DA6C746650CEFBFA26517FDD699E271D8E5E770D
 magnet:?xt=urn:btih:FA854975C773B6098FD6AF509831E15F3CCF2680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:FA854975C773B6098FD6AF509831E15F3CCF2680
 ```bash
 magnet:?xt=urn:btih:C5822F0C0DDAFF1460F7EB87588AC2ACD5548B1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ VA - 50 Ultimate House Tracks: Workout Edition (2018) [MP3|320 Kbps] <House, Fun
 magnet:?xt=urn:btih:33A1C51D8B254380A06E199762A4B0EA72842E05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:33A1C51D8B254380A06E199762A4B0EA72842E05
 magnet:?xt=urn:btih:25F54A547586386C8A96FFCDAF4A43B5FE40E648
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:25F54A547586386C8A96FFCDAF4A43B5FE40E648
 ```bash
 magnet:?xt=urn:btih:D1CB073FFB51880911BC98B2CB35BA07D0E7AB6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Spartaque - Supreme 299 with Spartaque (Live at Ekho Club) (2018) [MP3|320 Kbps]
 magnet:?xt=urn:btih:5E5C2B72187CDA15F1F3932209C6F3D5FEE0F9EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:5E5C2B72187CDA15F1F3932209C6F3D5FEE0F9EA
 ```bash
 magnet:?xt=urn:btih:8730BC6DB90704FEC8FE4677BAA6D7415323403B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ magnet:?xt=urn:btih:8730BC6DB90704FEC8FE4677BAA6D7415323403B
 magnet:?xt=urn:btih:6BDF04B703A6F03D479AB33B4779AE7519623E78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:6BDF04B703A6F03D479AB33B4779AE7519623E78
 ```bash
 magnet:?xt=urn:btih:3ECACB81C053973EAF2A5E6889B9C0E2806DF604
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ Svartby - Swamp, My Neighbour (2015) [FLAC|Lossless|image + .cue] <Folk Black Me
 magnet:?xt=urn:btih:98CDDEE542C5AB811738632EA49B3721FD8BB673
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +329,8 @@ magnet:?xt=urn:btih:98CDDEE542C5AB811738632EA49B3721FD8BB673
 ```bash
 magnet:?xt=urn:btih:C29CAEE1C688494603F60C47F01964CCB0FB97C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +359,8 @@ Markus Schulz:
 magnet:?xt=urn:btih:C6A697AC1B688BD75ABB0C07D9A90BA3D9749199
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +387,8 @@ Dorothy Donegan - Dorothy Donegan (1975) 1994, Four Leaf Clover Records [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:D99240A2331FF3DF51E0B044849F1CAC62C5875E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +417,8 @@ magnet:?xt=urn:btih:D99240A2331FF3DF51E0B044849F1CAC62C5875E
 magnet:?xt=urn:btih:95DC72D3C9261A4616AF3A60233FA89A80CEBDFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +446,8 @@ magnet:?xt=urn:btih:95DC72D3C9261A4616AF3A60233FA89A80CEBDFF
 magnet:?xt=urn:btih:A798D8F00847C81249B79265D559215983B454B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +472,8 @@ magnet:?xt=urn:btih:A798D8F00847C81249B79265D559215983B454B6
 magnet:?xt=urn:btih:BDA7553AF993B047D2700E31DF03B533A1F6876B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +497,8 @@ magnet:?xt=urn:btih:BDA7553AF993B047D2700E31DF03B533A1F6876B
 ```bash
 magnet:?xt=urn:btih:86AF16840F03F18A9C028A3D8F20D6A2C1606E33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +526,8 @@ magnet:?xt=urn:btih:86AF16840F03F18A9C028A3D8F20D6A2C1606E33
 magnet:?xt=urn:btih:DB50FCB93559F83DA88101AD9C01BD59A97FA4B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +551,8 @@ magnet:?xt=urn:btih:DB50FCB93559F83DA88101AD9C01BD59A97FA4B2
 ```bash
 magnet:?xt=urn:btih:FBA6216EB1B22E690BF2DD3E81E287BBEEFBD368
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +578,8 @@ magnet:?xt=urn:btih:FBA6216EB1B22E690BF2DD3E81E287BBEEFBD368
 magnet:?xt=urn:btih:D47BE2F23AE7FF82AC7CF376962C7D22048BE337
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +604,8 @@ magnet:?xt=urn:btih:D47BE2F23AE7FF82AC7CF376962C7D22048BE337
 magnet:?xt=urn:btih:91B49C185B43930AEC72A63FBDF3FB32AE685FD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +629,8 @@ magnet:?xt=urn:btih:91B49C185B43930AEC72A63FBDF3FB32AE685FD3
 ```bash
 magnet:?xt=urn:btih:10FA482D16155C61C7B30CB0667463E3A75C6268
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +659,8 @@ magnet:?xt=urn:btih:10FA482D16155C61C7B30CB0667463E3A75C6268
 magnet:?xt=urn:btih:82FFE458745D0A25C6D4166364DD68A29477B69A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +688,8 @@ Satan - Cruel Magic (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:82523608786FEF36A8E37F9777B495D4894FDD73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +716,8 @@ magnet:?xt=urn:btih:82523608786FEF36A8E37F9777B495D4894FDD73
 ```bash
 magnet:?xt=urn:btih:F9AAA42C920EB8988ECC9250F3F1C702B5918C8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

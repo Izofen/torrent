@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:46709F4BC0B46DB9A30B30B0B835DBE269F8AF98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:46709F4BC0B46DB9A30B30B0B835DBE269F8AF98
 magnet:?xt=urn:btih:556316F06250929B97EE067CC973C7E7898241B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:556316F06250929B97EE067CC973C7E7898241B8
 magnet:?xt=urn:btih:6EBCAEEF80BA1B87917B04635ECC9261C9F09A1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:6EBCAEEF80BA1B87917B04635ECC9261C9F09A1E
 ```bash
 magnet:?xt=urn:btih:D58C53C7F0F4576B13083A0A489C9FDB64572834
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:D58C53C7F0F4576B13083A0A489C9FDB64572834
 ```bash
 magnet:?xt=urn:btih:B8540D47078573234C681F41DBF232E70C1141B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:B8540D47078573234C681F41DBF232E70C1141B2
 magnet:?xt=urn:btih:194E499DB5C6AC840A2C51C94EAD9866D48BDF7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:194E499DB5C6AC840A2C51C94EAD9866D48BDF7C
 magnet:?xt=urn:btih:D0E2C5B0E709B38E88BE8A7450336B6B81D10FE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:D0E2C5B0E709B38E88BE8A7450336B6B81D10FE2
 ```bash
 magnet:?xt=urn:btih:39672FA8B1CBF9C305B99BAC8A10EDD0ED68AD86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:39672FA8B1CBF9C305B99BAC8A10EDD0ED68AD86
 magnet:?xt=urn:btih:F307394DF29C0529A5C5E9C7AE9232C08F9381BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:F307394DF29C0529A5C5E9C7AE9232C08F9381BA
 ```bash
 magnet:?xt=urn:btih:9CD15345914844D1FF5A61E3026661DA2928B138
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ Pro версии шрифта поддерживают кириллицу.Фор
 magnet:?xt=urn:btih:C33E8EFBCE9CC7200D853A816A4B79508AD1A0D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:C33E8EFBCE9CC7200D853A816A4B79508AD1A0D1
 magnet:?xt=urn:btih:0BC2283B11678EFA5AF5F8B166E3A2B7F52DDCA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:0BC2283B11678EFA5AF5F8B166E3A2B7F52DDCA6
 ```bash
 magnet:?xt=urn:btih:F76A62E9FA01BA5EE797A7946D6A82C3D271D3F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:F76A62E9FA01BA5EE797A7946D6A82C3D271D3F4
 magnet:?xt=urn:btih:6C7C123A59CE84D1485245C2E3063BC5C822C58A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:6C7C123A59CE84D1485245C2E3063BC5C822C58A
 ```bash
 magnet:?xt=urn:btih:E8CF9CCD0EBFEB428EFBD574D0A8105D7114ECAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:E8CF9CCD0EBFEB428EFBD574D0A8105D7114ECAF
 magnet:?xt=urn:btih:76C27E162770C3760142EBE2E125FAEE3633EE57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ magnet:?xt=urn:btih:76C27E162770C3760142EBE2E125FAEE3633EE57
 magnet:?xt=urn:btih:B4BAC15463796AFC1928F590216515769D714379
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:B4BAC15463796AFC1928F590216515769D714379
 magnet:?xt=urn:btih:61609A467AFCA46A72432430EBFDD32A763D351B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:61609A467AFCA46A72432430EBFDD32A763D351B
 ```bash
 magnet:?xt=urn:btih:A28DC285DFF3C5665DE74E0282008E3F7CFB594F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ Aquawax FX был разработан Франческо Кановаро ка�
 magnet:?xt=urn:btih:C4D7306907CE7CB5A09C421B68482B1D1EAD393D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ Carika — это элегантный шрифт с засечками, при�
 ```bash
 magnet:?xt=urn:btih:E6A696A62AA5274C8C3C8B3503591A97BE4F1012
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ OHHO (разновидность Elegant Serif) — модный и соврем
 magnet:?xt=urn:btih:D62099D5123390BB4DDCA71AC9D274815F8DADF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ magnet:?xt=urn:btih:D62099D5123390BB4DDCA71AC9D274815F8DADF8
 magnet:?xt=urn:btih:E42376D243A843EDE5E1CBA7D392CA2392D5C2E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ magnet:?xt=urn:btih:E42376D243A843EDE5E1CBA7D392CA2392D5C2E5
 ```bash
 magnet:?xt=urn:btih:01C36A45A4C58A6F6FEE13442997364935A9A6BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ Granblue — это красивое семейство шрифтов, подд
 magnet:?xt=urn:btih:F2B26156D2D01FF1A71F94358B76412B7FE6C541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ Ballinger X-Condensed - наследственная ДНК видна в щед
 ```bash
 magnet:?xt=urn:btih:1E0EF40CF4576A2D6510E121FBB18602CE2549AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

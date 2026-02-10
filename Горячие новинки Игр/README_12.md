@@ -19,6 +19,8 @@ Europa Universalis V (2025) [Ru/Multi] (1.0.6/dlc) Repack Necros
 magnet:?xt=urn:btih:AAE5BE21FD03D4F629AB91E5E0F21001805880BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Wall World 2 (2025) [Ru/Multi] (1.0.8.351) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:C9C208A2A1D993A1593C9C52255909E3A75D9773
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Winds of Arcana: Ruination (2025) [Ru/Multi] (1.101) Repack Let'sРlay
 magnet:?xt=urn:btih:F8E33F8EA82EFD61D541182CEAC0B2FFED22642A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Winter Survival сочетает классические игровые мех�
 ```bash
 magnet:?xt=urn:btih:8AE40BF85AC6ABAAF6C6C90B97FFE4EF2839BB48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Beneath - это шутер на выживание от первого лиц
 magnet:?xt=urn:btih:FB5A882537FC4253A7FFECDD22D55ADB4E518ADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Forestrike - игра про боевые искусства в жанре rogue
 ```bash
 magnet:?xt=urn:btih:418108743C9C848B9414AACE81786051B9429F86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Possessor(s) - это стремительный сайд-скроллер с б
 magnet:?xt=urn:btih:2557B9CF4CDA900DFCA44B3EC3B661B4C47EA64D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ SpongeBob SquarePants: Titans of the Tide (2025) [Ru/Multi] (1.2.0.0/dlc) Licens
 ```bash
 magnet:?xt=urn:btih:3C24B121E7A9AFAF4C6CE7D980DD9C92B0883971
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Tales of Old: Dominus (2025) [Ru/Multi] (1.0.261025) Repack FitGirl
 magnet:?xt=urn:btih:6E90D9F985B05022E04DD3DE22BDFE4EA4772C31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Kriophobia (2025) [Multi] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:D943D108CC953D37B2572587AEFFA69A17DB0AEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Winds of Arcana: Ruination (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:EF6E30FDFBBA85800A8C254AFBBA71977285C041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Reentry - это симулятор космических полётов, ос�
 ```bash
 magnet:?xt=urn:btih:E870C43FBE33DD7222C94AAA9D8F93D9B500BC99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Reentry - это симулятор космических полётов, ос�
 magnet:?xt=urn:btih:D53F3AC492B13D3C4AD4AC011E2D68F8F0EEDDD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Rue Valley (2025) [Ru/Multi] (1.0.0v2) Repack Other s [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:F5BD2314E1D76CC75D8EF5F8DF429DDB9D237ED9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Outlaws + Handful of Missions: Remaster (2025) [Multi] (1.1.1748) License GOG
 magnet:?xt=urn:btih:7928C2D49E0FB6A0B3BEA3C7ED3A0ED4FAAC762B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Goblin Dungeon (2025) [Ru/Multi] (Build 20909598/dlc) Repack Let'sРlay [Eternal
 ```bash
 magnet:?xt=urn:btih:586C043651C6630D6F3D6FE5FC7C13C247C18B1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Syberia - Remastered (2025) [Ru/Multi] (20251104) License GOG
 magnet:?xt=urn:btih:1904A1DD23563F0F3BF2A0F9BCE09ED14398A2B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Demeo x Dungeons and Dragons Battlemarked предлагает погрузит�
 ```bash
 magnet:?xt=urn:btih:F219BBC17AEB42E5452E7D28F5C6FFF69DE7635F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20876369) Repack Necros
 magnet:?xt=urn:btih:18F109A0A020C4A8004FB6783CD719ABEACC1DAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Total Chaos (2025) [Ru/Multi] (1.0.03) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:01BF2ECE3B03FDFE0B188A875BBFF6FBA41C2757
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Project Motor Racing - это не просто симулятор гоночн�
 magnet:?xt=urn:btih:443CE1F5A148AE2CED5E13C33E624C81D2CD3B1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Bigfoot Life (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:728E9D080C363BAAA3A0974B085415E4AAEC39A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Constance - это двумерный приключенческий экшен 
 magnet:?xt=urn:btih:311388E1A5EAB2D70816C2C58BC59BE037C98EDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Slyders (2025) [Ru/Multi] (1.0.12) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:80BE9AC0134FD012528A6B8D11E68297EF3D32AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Rue Valley (2025) [Ru/Multi] (1.0.0v2/dlc) License GOG [Digital Deluxe Edition]
 magnet:?xt=urn:btih:E3B046A0B48DE27A9A82DBA450927A1996D79DE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Rue Valley (2025) [Ru/Multi] (1.0.0v2/dlc) Repack FitGirl [Digital Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:2B518E307F3BDBB0C4435F15CB419BCA9F0F1D20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

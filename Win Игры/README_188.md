@@ -19,6 +19,8 @@ Ghost of Tsushima (2024) [Ru/Multi] (14380324/dlc) Scene Rune [Director's Cut]
 magnet:?xt=urn:btih:21AEC18812DE9BBB797F3936D7B46485C560ED86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:21AEC18812DE9BBB797F3936D7B46485C560ED86
 ```bash
 magnet:?xt=urn:btih:EF9D405E6F53461E0038B44D469EADCB069C7F1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ AEW: Fight Forever разработана компанией YUKE's Co, Ltd., с
 magnet:?xt=urn:btih:CFF18845F62A353B2778407DA7BD4C725EB1EC4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Last Faith рассказывает о герое, который решил
 ```bash
 magnet:?xt=urn:btih:6DF60D08DE0B50F8A8FF0EDA7635C8DF0CF4CF94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Super Catboy – занимательный и максимально динам
 magnet:?xt=urn:btih:588A52A9603B634F4C340ED052DB48D31A253BDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Crow Country (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0146B3CC8E97E76EBF3051238DB1AC7C6FB86FA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Cursed Tape - инди-хоррор от первого лица с эффе
 magnet:?xt=urn:btih:D9590DC1EFE05B45C54C8C87A9A4072D9BAF5082
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Desolate Hope - это приключенческий квест, котор
 ```bash
 magnet:?xt=urn:btih:8E0016C00C4A77217B074A577702F462F5906B97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Land Beneath Us - рогалик с пошаговой системой бо
 magnet:?xt=urn:btih:3EA3A602054911DE1C44A3F5CB24FF197C26FB66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ What the Fog (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:EF95F68F53DD62F9B1C43A061FC48D34DA1C76CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10) Repack dixen18
 magnet:?xt=urn:btih:D4DA08291001B9F654A7F3701A0C76BEE205C28C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ We Need To Go Deeper - это игра в жанрах симулятор, ин�
 ```bash
 magnet:?xt=urn:btih:65E4ECDF84FB632EB490A53FC803BC4440BF57DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Whispered Secrets 15: Cruise of Misfortune (2024) [En] (1.0) Unofficial [Collect
 magnet:?xt=urn:btih:04FD123B4FB95004AF36E73C8A68E9FEE02C3D42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Echoes of the Plum Grove - иммерсивный симулятор с упор
 ```bash
 magnet:?xt=urn:btih:F89F1E08C9346D3AD2862C02241C08EA69447C24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Cursed Tape - инди-хоррор от первого лица с эффе
 magnet:?xt=urn:btih:66863D9E8BF8C355DEAAD256F599CDC25801D378
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ A Highland Song - это приключенческая игра, разрабо
 ```bash
 magnet:?xt=urn:btih:ACF5C11C1331C72509F7768A0EF4584D4FFD21C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Astral Ascent переносит геймеров в современный фе
 magnet:?xt=urn:btih:1B428E0D630994113795D550FBC0822A5E115F78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Hollow Cocoon - это приключенческая хоррор игра от
 ```bash
 magnet:?xt=urn:btih:E31956215E9B8BAA6CA2CDDE72C315B6CAA48D81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Soviet Soldier ставит вас на место солдата красной
 magnet:?xt=urn:btih:3205B6B6B4E75542DC5AEF886121603CE091E493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Hollow Cocoon - это приключенческая хоррор игра от
 ```bash
 magnet:?xt=urn:btih:C3EBC84893EDE60D1FA48480E0F29FF12F4EC1DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Poltergeist Watcher вдохновленная классическими фил
 magnet:?xt=urn:btih:14F924F9782A773682F6C7274B341A740182B5C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Heavy Storm Shadow (2024) [Ru/Multi] (1.043) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B151519069EA4C06A14CFC1477ED481183B76199
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Astro Pig – в этом незабываемом лоу-файновом пр�
 magnet:?xt=urn:btih:52C625306E525C7A1D3C7CF48EA494FE591B4572
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Class of Heroes 2G: Remaster Edition (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0BA8581FDAD30BC320FEDC34167FEC7DD685D8DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Little Kitty, Big City позволит узнать обо всех трудн�
 magnet:?xt=urn:btih:409BA173D05F250B791C16CE66E257BE5B54D23C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Braid (2024) [Multi] (0.444) Repack FitGirl [Anniversary Edition]
 ```bash
 magnet:?xt=urn:btih:58ADB898CB057FEACA0721889ED4B7068845CA6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

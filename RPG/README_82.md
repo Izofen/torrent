@@ -19,6 +19,8 @@ Bloodstained: Ritual of the Night - это смесь готического х�
 magnet:?xt=urn:btih:28BBD2334715A86FF42C390F54BBA928DD644DDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Perseus: Titan Slayer - Free Trial - это возможность погруз�
 ```bash
 magnet:?xt=urn:btih:F4ADDA1D715FC744DA05EF9D393829019FCB6140
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Torchlight III (2020) [Ru/Multi] (6056074/dlc) Repack xatab
 magnet:?xt=urn:btih:50E9444D4D4A6D7A98AE1057B1CC39207D9EAFAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ SpellForce: Conquest of Eo (2023) [Multi] (01.00.26984) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:06E5C474B121A88F21825534D2A4B8D5246C906D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Guild of Dungeoneering – минималистический и довольн�
 magnet:?xt=urn:btih:D3760ECF9ADD65245EE85C72B78EA75E7CA5A489
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Perseus: Titan Slayer - Free Trial - это возможность погруз�
 ```bash
 magnet:?xt=urn:btih:E809F71B2E8C5C5EF3CBB9DD4B7D86BD636CB1B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Anima: Gate of Memories (2016) [Multi] (20171122) License GOG
 magnet:?xt=urn:btih:EDED40F42611EC922A34B48E2024F1B64261D8C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Ringborn - это сюжетная RPG, действие которой разв
 ```bash
 magnet:?xt=urn:btih:036EB1FF73CB4A1BD9BAD450467AEF5FA9130ECB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Exiled Kingdoms (2018) [Ru/Multi] (1.2.1124) License GOG
 magnet:?xt=urn:btih:531DEC3CA58320C6AC61DA380B48D0889B4DA42C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Star Ocean - The Last Hope (2017) [Ru] (1.1.12212) Repack xatab [4K & Full HD Re
 ```bash
 magnet:?xt=urn:btih:082C16A9111063F9898F51C9E45AD4575D9D6F60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Risen (2009) [Ru/Multi] (1.0a) License GOG
 magnet:?xt=urn:btih:988F8FB5E9D83039A19993DCFF5A09C994E4BC13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ ATONE: Heart of the Elder Tree (2023) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:F0B249D197A89F8F3FD26CB01ABA21DBF13B9F23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Blue Reflection: Second Light (2021) [Multi] (1.02/dlc) License CODEX
 magnet:?xt=urn:btih:552CF8FA3C08F00AF4286A06C7EB500E1022EF3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Hero Siege - это игра в жанре Hack 'n' Slash с элементам�
 ```bash
 magnet:?xt=urn:btih:7089CE68E0E6FFA84F9CD818514E2991D70611BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Divinity 2 (II): Developer's Cut (2012) [Ru/En] (1.4.700.38) License GOG
 magnet:?xt=urn:btih:2D96A43195C51ED679CD899C31EE29F88CC2AEF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Gray Zone (2022) [Ru/Multi] (1.9) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:AF34AC32C50805A993F0131D0C88127C015AC1B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Demons Roots (2023) [Multi] (1.01/dlc) License GOG
 magnet:?xt=urn:btih:B49CA9A509F2812587F4C595E9FE9E4CC3E0E841
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ One Piece Odyssey может порадовать фанатов культов�
 ```bash
 magnet:?xt=urn:btih:0E6217B9599BE1EE5EC7CF143F6B8AA00A465F2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Two Worlds 2 (2010) [Ru/En] (2.0.6/dlc) License GOG [Epic Edition]
 magnet:?xt=urn:btih:62E5E2B2DA9825E44803DF1992F675CB52EF8583
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Shadows of Doubt (2024) [Ru/Multi] (41.04) Repack Necros
 ```bash
 magnet:?xt=urn:btih:F46CF6B929D81870208762778C1D60B2DAEC0FDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Quartet погружает в мир, в котором вас ждут неве
 magnet:?xt=urn:btih:E5EB41F83A1AFD2EF0F620338F8B1AF8095C5F26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Shana - Priestess of Tona - это 18+ автобатлер-рогалик, гд
 ```bash
 magnet:?xt=urn:btih:84AD08556C3405D048106C123C18FEB4D213797B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Eschalon: Book III - финальная часть трилогии, в кото
 magnet:?xt=urn:btih:FE5A79C084DFA0CDA740C76571EF41A1FB8934FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Shin Megami Tensei III Nocturne HD Remaster (2021) [Multi] (20657000/dlc) Repack
 ```bash
 magnet:?xt=urn:btih:329852A6C1AE07A9182222FB6AA98E0787050DC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Geneforge 3 - это приключенческая ролевая инди-иг
 magnet:?xt=urn:btih:3CE162F175B9E1BD1DE3DD8CBF40D6A1AB7C4F61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Geneforge 4: Rebellion - это приключенческая ролевая и
 ```bash
 magnet:?xt=urn:btih:7BDE4411F9B78E7A221F5408DE59966E93F78CA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

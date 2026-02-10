@@ -1,3 +1,29 @@
+###  Публикация: 1463375   (1020387) от 18.04.2021
+
+Русский рейд (2019) BDRip [H.264/1080p-LQ] [US Transfer]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рейдеры подготовили идеальный план по захвату завода: инсайдеры, подробные чертежи территории, завязки на высшем уровне, компромат на собственников, хакерская поддержка. На их стороне внезапность и прекрасно подготовленная команда головорезов. Но захват оборачивается кровавой ловушкой, ведь банду нападающих ведет человек со своим представлением о целях рейда. Его (   Читать дальше...   )Производство: Россия / OKKO Studios, Radragon, SSB FilmsЖанр: Боевик, криминалРежиссер: Денис КрючковАктеры: Иван Котик, Александр Красовский, Илья Антоненко, Владимир Минеев, Никита Кологривый, Софья Озерова, Кирилл Сарычев, Дмитрий Кривочуров, Андрей Семенов, Алексей МаксименковПеревод: Не требуется (Русский) - Лицензия BD USAСубтитры: Английские (Full)Продолжительность: 01:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A758E255BAACF79BC3098815D6435BCE136C2FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463402   (1020414) от 18.04.2021
 
 #c_училища (2020) WEB-DL [H.264/1080p-LQ]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:17C7305F6DF7F923C5DD335BBC001A4D2D33F5FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:17C7305F6DF7F923C5DD335BBC001A4D2D33F5FD
 magnet:?xt=urn:btih:6CE484A5A3F9023A39D7331FF0C9F4C8BB278F4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:6CE484A5A3F9023A39D7331FF0C9F4C8BB278F4A
 ```bash
 magnet:?xt=urn:btih:CC4145D96AF8554CF548299B77F0AA6C6EAE6180
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:CC4145D96AF8554CF548299B77F0AA6C6EAE6180
 magnet:?xt=urn:btih:FE32F0918F4F2741A08444261BFB7F957A8C7C17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:FE32F0918F4F2741A08444261BFB7F957A8C7C17
 ```bash
 magnet:?xt=urn:btih:A65CBF7A26CA82E5FD3F6F6E7BD736E89A065B1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:A65CBF7A26CA82E5FD3F6F6E7BD736E89A065B1B
 magnet:?xt=urn:btih:003E8FC9CFD8ADD24CA2D60D84F93A5A4B90AD0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:003E8FC9CFD8ADD24CA2D60D84F93A5A4B90AD0D
 ```bash
 magnet:?xt=urn:btih:DB49FB0C554F57C1BBE52A12C109370B0A69091D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:DB49FB0C554F57C1BBE52A12C109370B0A69091D
 magnet:?xt=urn:btih:2D616D102B3A5D5D3D00EFD5F6A2E10FBE068FE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:2D616D102B3A5D5D3D00EFD5F6A2E10FBE068FE6
 ```bash
 magnet:?xt=urn:btih:D1220EC367C48DB51CB04EEBD80094BDD40121E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:D1220EC367C48DB51CB04EEBD80094BDD40121E3
 magnet:?xt=urn:btih:381D776CCDABC4D8C6297BF1AC1E47D339B2F983
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:381D776CCDABC4D8C6297BF1AC1E47D339B2F983
 ```bash
 magnet:?xt=urn:btih:7EE8F425974400B6B948090715F4ECE646670E60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:7EE8F425974400B6B948090715F4ECE646670E60
 magnet:?xt=urn:btih:68C5CDBB7FB05D8F71674BB3BC9387AB91A92F53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:68C5CDBB7FB05D8F71674BB3BC9387AB91A92F53
 ```bash
 magnet:?xt=urn:btih:CD7F37103A33BB35E4982B3BCF09E38BA006027F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:CD7F37103A33BB35E4982B3BCF09E38BA006027F
 magnet:?xt=urn:btih:CD564EAB268AE2A4BDB9A504A888A6CE46F90901
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:CD564EAB268AE2A4BDB9A504A888A6CE46F90901
 ```bash
 magnet:?xt=urn:btih:6780408CAA55CB71C9E86F332D724825813B8A0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:6780408CAA55CB71C9E86F332D724825813B8A0E
 magnet:?xt=urn:btih:9F73A18575C4726F877DAFEEA933EF856AC2479A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ magnet:?xt=urn:btih:9F73A18575C4726F877DAFEEA933EF856AC2479A
 ```bash
 magnet:?xt=urn:btih:F670C89C248A35422B61132594513A4CF099D92A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:F670C89C248A35422B61132594513A4CF099D92A
 magnet:?xt=urn:btih:3DEBED1D8FD5CD77EB8C9B26D65BDDD996E285CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +513,8 @@ magnet:?xt=urn:btih:3DEBED1D8FD5CD77EB8C9B26D65BDDD996E285CB
 ```bash
 magnet:?xt=urn:btih:12707D451F6BDD98F1C619D705F84C8D3AB5351A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:12707D451F6BDD98F1C619D705F84C8D3AB5351A
 magnet:?xt=urn:btih:AD8E81A57DB5944689068CE04A6526346B2C86A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +565,8 @@ magnet:?xt=urn:btih:AD8E81A57DB5944689068CE04A6526346B2C86A1
 ```bash
 magnet:?xt=urn:btih:2947BA8D357E1C48CDD6FC77AED0894BACB4EEC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +592,8 @@ magnet:?xt=urn:btih:2947BA8D357E1C48CDD6FC77AED0894BACB4EEC7
 magnet:?xt=urn:btih:2F1BAB165F01C6B2DC12C8F860628F8E26156C41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +617,8 @@ magnet:?xt=urn:btih:2F1BAB165F01C6B2DC12C8F860628F8E26156C41
 ```bash
 magnet:?xt=urn:btih:301B4F96AC7DCC3DABD854F05E9E9BD5EF9A5D5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:301B4F96AC7DCC3DABD854F05E9E9BD5EF9A5D5D
 magnet:?xt=urn:btih:55C4F2AE6DDD4236EDA1F7DF418A6B6ED6DB9B93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,29 +671,7 @@ magnet:?xt=urn:btih:55C4F2AE6DDD4236EDA1F7DF418A6B6ED6DB9B93
 magnet:?xt=urn:btih:3E3FCCF92BC8361465F20E998979DA1093C410C1
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460290   (1022506) от 05.04.2021
-
-Светлячок (2021) WEBRip [H.264/1080p-LQ] [PR]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Света Василькова — мамин «Светлячок» — переезжает из крошечной деревни в город, чтобы учиться в элитной школе. Появление странной новенькой в красной шапке, которая кажется чересчур улыбчивой и наивной, сразу меняет привычную жизнь класса. Будущая элита общества вынуждена взглянуть на себя со стороны и обнаружить не самые лучшие черты. К этому готовы не все, и в (   Читать дальше...   )Производство: Россия / Киностудия им. М. ГорькогоЖанр: ДрамаРежиссер: Мария КравченкоАктеры: Арина Фёдорова, Андрей Грызлов, Анна Глаубэ, Татьяна Казючиц, Марк Попов, Сергей Стёпин, Виталия Корниенко, Алина Воскресенская, Сергей Беляев, Анна ЯкунинаПеревод: Не требуется (Русский) "START"Субтитры: ОтсутствуютПродолжительность: 01:28:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:933259F6C8CB80155732A6AF1AED44B8640CBF34
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

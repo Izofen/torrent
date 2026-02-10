@@ -27,6 +27,8 @@ Juno Reactor - From The Land Of The Rising Sun Inside The Reactor II (2011) [MP3
 magnet:?xt=urn:btih:804D1F369B082C4F7FA7A4CD59040B75719C9449
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ magnet:?xt=urn:btih:804D1F369B082C4F7FA7A4CD59040B75719C9449
 ```bash
 magnet:?xt=urn:btih:9D2D67F2F128A2040E042708A64B03C401473173
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -85,6 +89,8 @@ magnet:?xt=urn:btih:9D2D67F2F128A2040E042708A64B03C401473173
 magnet:?xt=urn:btih:A2E03FFFAFBBCA0B30608BDC789E17FA04A98030
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -113,6 +119,8 @@ magnet:?xt=urn:btih:A2E03FFFAFBBCA0B30608BDC789E17FA04A98030
 magnet:?xt=urn:btih:4745316548871AEA23E2BB567D5B4880529853F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +146,8 @@ magnet:?xt=urn:btih:4745316548871AEA23E2BB567D5B4880529853F5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -161,6 +171,8 @@ PixelJunk Eden - необычная игра-платформер, третья 
 ```bash
 magnet:?xt=urn:btih:5D07B979363F2C639C987D8E1B15B6E2B8BA5A2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +200,8 @@ magnet:?xt=urn:btih:5D07B979363F2C639C987D8E1B15B6E2B8BA5A2D
 magnet:?xt=urn:btih:3BF859DF238B8046EF7B890BB1135F5BD0312909
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +226,8 @@ magnet:?xt=urn:btih:3BF859DF238B8046EF7B890BB1135F5BD0312909
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +251,8 @@ magnet:?xt=urn:btih:3BF859DF238B8046EF7B890BB1135F5BD0312909
 ```bash
 magnet:?xt=urn:btih:4EF997D5C5DDB0EC4290AC25F7587004C0BDF967
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +287,8 @@ VA - Clubber vol.1 (2012) [MP3|320 kbps]<Club, Club House>
 magnet:?xt=urn:btih:67F24599566DAB82DB3816B8CCDAC14D690084AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +315,8 @@ magnet:?xt=urn:btih:67F24599566DAB82DB3816B8CCDAC14D690084AE
 ```bash
 magnet:?xt=urn:btih:262A6103C31D59D7A01E72649A747A58D28CEB0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +345,8 @@ magnet:?xt=urn:btih:262A6103C31D59D7A01E72649A747A58D28CEB0F
 magnet:?xt=urn:btih:6153EE6711A59262FB12CD6ECFA52D2878332B79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +370,8 @@ magnet:?xt=urn:btih:6153EE6711A59262FB12CD6ECFA52D2878332B79
 ```bash
 magnet:?xt=urn:btih:2ED91EC2778F98D5144FFFE26EAA44543C57067B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +406,8 @@ Fury 'N' Grave - Diabolism Of Conversation (2011) [MP3|192-320 kbps]<Progressive
 magnet:?xt=urn:btih:4764E4415A130CD9672477A4D054249723C82261
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +434,8 @@ magnet:?xt=urn:btih:4764E4415A130CD9672477A4D054249723C82261
 ```bash
 magnet:?xt=urn:btih:9803CA8D6DF8DEDE1CE3A3FCD8DB520E95B063D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +470,8 @@ VA - Chart Top10 (04.02.2012) [MP3|320 kbps]<Electro House>
 magnet:?xt=urn:btih:F14CFA19748BD7E8E6B8F8F0A602CC1BB065C9AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +501,8 @@ Elvin Jones - On The Mountain (1975) [FLAC|Lossless]<Fusion, Contemporary Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +527,8 @@ Elvin Jones - On The Mountain (1975) [FLAC|Lossless]<Fusion, Contemporary Jazz>
 magnet:?xt=urn:btih:8E3CA3BDDBBFC6533E819ACAEB9AF382C0BF291B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +552,8 @@ magnet:?xt=urn:btih:8E3CA3BDDBBFC6533E819ACAEB9AF382C0BF291B
 ```bash
 magnet:?xt=urn:btih:B449176F77E2100001ADACC2D7E1EFD3AEE3EA7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +588,8 @@ Greetje Kauffeld - Heaven's Open (2012) [MP3|320 kbps]<Jazz, Vocal Jazz>
 magnet:?xt=urn:btih:6BAA8485920B37C959E237998CE9C6D82AF0FBE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +616,8 @@ magnet:?xt=urn:btih:6BAA8485920B37C959E237998CE9C6D82AF0FBE9
 magnet:?xt=urn:btih:9A6FAA9FBCBD3D2ED5E74350D2D2CD27905C0276
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +641,8 @@ magnet:?xt=urn:btih:9A6FAA9FBCBD3D2ED5E74350D2D2CD27905C0276
 ```bash
 magnet:?xt=urn:btih:0E6011C9F3E8E5D3F45A5F929D49C749B291B296
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +677,8 @@ Crane - Refuge (2011) [MP3|320 kbps]<Hard Rock>
 magnet:?xt=urn:btih:480E0FB2226E3FB21ACBFD317D569DF5F59342D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +706,8 @@ magnet:?xt=urn:btih:480E0FB2226E3FB21ACBFD317D569DF5F59342D5
 magnet:?xt=urn:btih:277B05F244AF74F7D57768D674FE77D99FBB836C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -683,6 +731,8 @@ magnet:?xt=urn:btih:277B05F244AF74F7D57768D674FE77D99FBB836C
 ```bash
 magnet:?xt=urn:btih:D9786E2C8E6373138228DB18372931D0A34B5840
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -716,6 +766,8 @@ magnet:?xt=urn:btih:D9786E2C8E6373138228DB18372931D0A34B5840
 ```bash
 magnet:?xt=urn:btih:86A55CECB7825658F31BB3E87E657AEFCF53FC58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

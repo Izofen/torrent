@@ -1,3 +1,32 @@
+###  Публикация: 1029025   (686114) от 24.06.2016
+
+VA - Vintage Reggae Cafe Vol 5 (2016) [MP3|320 кб/с] <Reggae>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sublime Reggae Kings - Thinking out Loud (4:00)
+02. General Soundbwoy - The Scientist (3:52)
+03. Shelly Sony - Man Down (4:30)
+04. Urban Love & Rolla - Firestone (3:51)(   Читать дальше...   )Производство: Music BrokersЖанр: ReggaeПродолжительность: 00:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D8C730E7D4A482002BB0D7EE938192C109D2304
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289495   (686235) от 16.03.2019
 
 Alborosie meets The Wailers United - Unbreakable (2018) [FLAC|Lossless|tracks + .cue] <Reggae, Dub>
@@ -21,6 +50,8 @@ Alborosie meets The Wailers United - Unbreakable (2018) [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:F20AE5FBF01676A121E0012F53EB08CCF26E76B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Vintage Reggae Cafe Vol 4 (2015) [MP3|320 кб/с] <Reggae>
 magnet:?xt=urn:btih:931C35918EEDBB19821F13203E1472530C45A609
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:7F1A8E14787C93812227A5BC8E98C4098D4D9077
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ magnet:?xt=urn:btih:7F1A8E14787C93812227A5BC8E98C4098D4D9077
 magnet:?xt=urn:btih:61C17BF373C696F11C4F6B57B630FD34DA20CF52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Chillhop Essentials Summer (2016) [FLAC|Lossless|Web-DL|tracks] <Hip Hop, J
 ```bash
 magnet:?xt=urn:btih:C8A5CAA8CC486A54F50FB21635E09EBC21A8C91D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ magnet:?xt=urn:btih:C8A5CAA8CC486A54F50FB21635E09EBC21A8C91D
 magnet:?xt=urn:btih:0C51ECA70CBF28251345613FF4D973441ED3077B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ POR.NORAP - Бронетрусы (2019) [MP3|320 Kbps] <Comedy Rap, Electronic>
 ```bash
 magnet:?xt=urn:btih:94EA98DE3571FFFC728E5D25C4F8C45878307B19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ Horus - Прометей роняет факел (2018) [MP3|320 Kbps] <Rap>
 magnet:?xt=urn:btih:BCA0E6CE1C88E7315A1742ED67E3C29AD77CF362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ Sting & Shaggy - 44/876 (2018) [MP3|320 Kbps] <Reggae, Pop>
 ```bash
 magnet:?xt=urn:btih:4BFCCFAE87FEFC59F3F740A7CC581B81BC3D74AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ magnet:?xt=urn:btih:4BFCCFAE87FEFC59F3F740A7CC581B81BC3D74AD
 magnet:?xt=urn:btih:A63E51B3AE78ED5B2137B36129919DB5DDE9E1BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ Felt - Felt 4 U (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
 ```bash
 magnet:?xt=urn:btih:33AAF488DDF2EA5D134F72F24FD73AAAC5E6FFCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ NLE Choppa - Top Shotta (2020) [MP3|320 Kbps] <Rap, Hip-Hop, Trap>
 magnet:?xt=urn:btih:E133D77D3CE7A1FC014EC05E7E0267F9C189A61D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ Lil Pump - Harverd Dropout (2019) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:95EEC64A7D3406887D56ABE5AFABB9C64E6930DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ Trueтень & Алексей Сулима - Калейдоскоп (2020) [MP3|
 magnet:?xt=urn:btih:D88EA0A180D1E50B7E2BF1C6373DFF572FF5FE19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ Becko - Inner Self (2020) [MP3|320 Kbps] <Rap, Rapcore, Nu Metal>
 ```bash
 magnet:?xt=urn:btih:6BC2EC510EAED3C0A8C9878966805CB3E6B1A67F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ The Gaslamp Killer - Heart Math (2020) [MP3|320 Kbps] <Abstract, Hip-Hop, Instru
 magnet:?xt=urn:btih:533143C535BF91DCF3BBAE2060FBAAF65632A9E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +514,8 @@ Groove Da Praia - Transformations (2016) [FLAC|Lossless|WEB-DL|tracks] <Reggae, 
 ```bash
 magnet:?xt=urn:btih:636AA12D006919C632659CCAEC5FFA4C4C887775
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ Groove Da Praia - The Groove Girls (2018) [FLAC|Lossless|WEB-DL|tracks] <Reggae,
 magnet:?xt=urn:btih:BE81CE273124045DC1DB103B2D60E37FE2AC7435
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +572,8 @@ Logic - No Pressure (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:145368FC3D8766F901B7FA330843070CE9CD5CF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +602,8 @@ ST1M x Black Bros. - King Is Back 3 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:ABE6DEE1C797489180230F921A426511DFE7756C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +631,8 @@ magnet:?xt=urn:btih:ABE6DEE1C797489180230F921A426511DFE7756C
 magnet:?xt=urn:btih:9CF0097E4BFC2E81F97D08306763CE5473F5E75A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +658,8 @@ KUNTEYNIR - Дорога в облака (2020) [MP3|320 Kbps] <Rap, Hip-Hop, Un
 ```bash
 magnet:?xt=urn:btih:B803C9B41D12AB78C9DA4475440CD40E65E64864
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +688,8 @@ magnet:?xt=urn:btih:B803C9B41D12AB78C9DA4475440CD40E65E64864
 magnet:?xt=urn:btih:E29B0747E3C1E0317BDF2A442617816B63C2F9D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +716,8 @@ JEEMBO - BLACK BOX (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:05505A7D99050337BCA7477E8FC4A2C83508FBF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -669,31 +746,7 @@ VELIAL SQUAD - Black Mass III (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:C88E2B7273F42E71D62D47B2A245DD1B820E545B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400420   (719261) от 05.08.2020
-
-МАРКЕТИНГ - Из онлайна в сон (2020) [MP3|320 Kbps] <Rap, Hip-Hop, Drum 'n' Bass>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зум [00:03:24]
-02. Башня Мегафона [00:02:46]
-03. Из онлайна в сон [00:03:08]Жанр: Rap, Hip-Hop, Drum 'n' BassПродолжительность: 00:09:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E143CD676A563AF4B1F4C05FC8B2283B8CEF0EE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

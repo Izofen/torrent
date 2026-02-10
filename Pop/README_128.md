@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:C16654DB449AAF862D3D6AAAC06872ABB7422308
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ People's Choice - We Got The Rhythm (1976) LP [MP3|320 Kbps] <Disco, Funk>
 ```bash
 magnet:?xt=urn:btih:1C14EBCB8AF0E800C29DE73EF3203707780E5CE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Disco Heaven (2018) [MP3|320 Kbps] <Disco, Nu Disco>
 magnet:?xt=urn:btih:31401E6E10B4B83CEF4F2445E3E93024CB9573DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Pia Mora - ... Perchè no?... (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Jazz>
 ```bash
 magnet:?xt=urn:btih:90B08D938AC93360EB60C51CF4270BE193C5E4F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:90B08D938AC93360EB60C51CF4270BE193C5E4F0
 magnet:?xt=urn:btih:EC65A93A281C49D1E4064D87C79EB070D5889BB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:EC65A93A281C49D1E4064D87C79EB070D5889BB0
 ```bash
 magnet:?xt=urn:btih:3C22A4F5B2C6003994054C117171406B5AEA4A9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:3C22A4F5B2C6003994054C117171406B5AEA4A9F
 magnet:?xt=urn:btih:8A1CB4DACA62D61E3F9EC6EDD1B8A92319DCC9AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Ballermann Apres Ski Megamix 2020 (2019) [MP3|320 Kbps] <Pop, Schlager>
 ```bash
 magnet:?xt=urn:btih:26B3F19B77642FE35D01CB6B67109C188753CC0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Eros Ramazzotti - Eros Duets (2017) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:B7FE326474B5319B02C98B343902710FF592D8E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:B7FE326474B5319B02C98B343902710FF592D8E3
 ```bash
 magnet:?xt=urn:btih:C2FC0467186B204E85B6A6346D7264A7033E36C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Mirko Hirsch - Lost In Alphaville (2018) LP [MP3|320 Kbps] <Electronic, New Ital
 magnet:?xt=urn:btih:E54D978EBFBD9FA630082DDF89755693FB6E4075
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Harold Faltermeyer - Harold F (1988) CD [MP3|320 Kbps] <Electronic, Pop, Synth-p
 ```bash
 magnet:?xt=urn:btih:2AA1B6388CD59806C2691DDD3898AA19F3947BCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ magnet:?xt=urn:btih:2AA1B6388CD59806C2691DDD3898AA19F3947BCD
 magnet:?xt=urn:btih:AB682C6520A13C0DB53074DE5F36F6BCA42F8F20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Elvis Vs Spankox - Re:Versions (2008) [MP3|320 Kbps] <Electronic, Rock>
 ```bash
 magnet:?xt=urn:btih:BB9B402B262DDD8D72560E967C022A93CE0FB79B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Army Of Lovers - Les Greatest Hits (1996) [FLAC|tracks+.cue]<Leftfield, Euro Hou
 magnet:?xt=urn:btih:DD7576F7F59C25EEEA6B66AA2438CF564230BAC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Disco 80's Fresh Hits & Remixes (2015) [MP3|320 кб/с]<Italo Disco, Eurod
 ```bash
 magnet:?xt=urn:btih:FD9ECE7DA441142B506D651C1ECFC6DEF72A22FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Bad Boys Blue - Top Hits Collection (2017) Compilation [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:AB8F6970F4587B5A3D17132DD959E478E9BD91B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Savoy (Paul Waaktaar-Savoy of A-ha) - See The Beauty In Your Drab Hometown (2018
 ```bash
 magnet:?xt=urn:btih:0450C1397BD5ACE2224BA5BE4BFC7A22F5AB2AEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ Everything But The Girl - Adapt or Die. Ten Years of Remixes (2005) [FLAC|image+
 magnet:?xt=urn:btih:A1F3F901E1A2D20E2D96353C0EBAC73A081A9A42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - Tony Hendrik: Bad Boys BlueS & Disco Projects (2003) 2CD, Unofficial [FLAC|
 ```bash
 magnet:?xt=urn:btih:C01518AF05E24696938D1CB5ABA3E63196BA42C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ magnet:?xt=urn:btih:C01518AF05E24696938D1CB5ABA3E63196BA42C9
 magnet:?xt=urn:btih:05F07DFB8C6EF30FEBB236F197EF1D02EB70BF8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ VA - Dance Party 2018 (2018) [MP3|320 Kbps] <Dance, Club, Tropical>
 ```bash
 magnet:?xt=urn:btih:96D466547CBA4D8E45F92D10AD364189F5B4F9F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ Chante Moore - The Rise of the Phoenix (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop
 magnet:?xt=urn:btih:46A8A2633EFDB3F541A883F488B2C3E1140ED894
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ Rick Astley - The Best Of Me (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:6F64F09C71529C8B5F14F6F8E8B6CE6085397F0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ Andre Morgunoff & Keyorchestra - The Very Best Of (2007) [FLAC|Lossless|tracks +
 magnet:?xt=urn:btih:5CB0D9CB88FC4240CF005DA2BBACF6A7DEEEC029
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ Chameleon - Superdoop (1981) LP [MP3|320 Kbps] <Electronic, Disco, Space-Age>
 ```bash
 magnet:?xt=urn:btih:C0597318C9288C41E912EB1514D4245A79EFC4BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

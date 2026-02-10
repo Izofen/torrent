@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:AF0DFA22975CDB61C4D49E77280D1BF77F530D9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:AF0DFA22975CDB61C4D49E77280D1BF77F530D9D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ VA - Music News vol.226 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:877D58B35CEC6DCDD8DF3340B069FA9D0498453A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:877D58B35CEC6DCDD8DF3340B069FA9D0498453A
 ```bash
 magnet:?xt=urn:btih:11F0146A84035EFDB762C6A1FD30639A3204ED1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Optimage - это продвинутый инструмент оптимизац
 magnet:?xt=urn:btih:0BB858AA9EE4A581035F648756C9703185322C00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:0BB858AA9EE4A581035F648756C9703185322C00
 ```bash
 magnet:?xt=urn:btih:A430E21618AEF1D5443641CE9C0D6AE0A9A3EEE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:4F8C39DBEA79FA3A3B215D5A7F008D39BEE9DFE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:4F8C39DBEA79FA3A3B215D5A7F008D39BEE9DFE4
 ```bash
 magnet:?xt=urn:btih:ACDBC68A29AAF77D53E7DC74AF9396E1EE3FB208
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ AnyDesk 7.1.16 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:5A0AD9BE64A828C4198C0BADFF5A714AD56E172F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:5A0AD9BE64A828C4198C0BADFF5A714AD56E172F
 ```bash
 magnet:?xt=urn:btih:CFF876D168FEF7F20FEB4F10C4E5A0C233D60299
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:CFF876D168FEF7F20FEB4F10C4E5A0C233D60299
 magnet:?xt=urn:btih:D09C32D899698692A0704F222CFEB75A4EBA417D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Isonzo (2022) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:824D0CD61C8C906B168A51CA1F77F377ED05E04E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:824D0CD61C8C906B168A51CA1F77F377ED05E04E
 magnet:?xt=urn:btih:3ECED3C048A76125FA40A9B76D73C099882F5BFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:3ECED3C048A76125FA40A9B76D73C099882F5BFA
 ```bash
 magnet:?xt=urn:btih:BDFB43D6A755B8EF88809B973FBB99D507D0797B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ VA - В машине с музыкой Vol.316 (2022) MP3 [320 Kbps] <Pop, Dance
 magnet:?xt=urn:btih:94B623423179FD0EAC43F1F793D0476B5A083112
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:94B623423179FD0EAC43F1F793D0476B5A083112
 ```bash
 magnet:?xt=urn:btih:90AF325EFA370E1B3628A1D76CE747AA2E14A4BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ James Last - Ocean Drive (Easy Living) (2001) [FLAC|Lossless|image + .cue] <Inst
 magnet:?xt=urn:btih:3172019C98896181DCB48F576BED5D1A4CC76596
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ Revenge of ILCOIN (2023) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A67B904AA64D79AC5C8B85D003B299E6BC3D1AFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:A67B904AA64D79AC5C8B85D003B299E6BC3D1AFE
 magnet:?xt=urn:btih:C8CBC38CE6E14AE12F2DA7E71690968E341DAA55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ Terminal 81 (2023) [Ru/Multi] (1.2.7) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:542E7652388D43C16C4892AED9A29DFFA5D8E9F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:542E7652388D43C16C4892AED9A29DFFA5D8E9F4
 magnet:?xt=urn:btih:1013ACEAAB1E484F042A0187E14A1561FAEF43A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:1013ACEAAB1E484F042A0187E14A1561FAEF43A3
 ```bash
 magnet:?xt=urn:btih:BEBE16896413BD6AD145393D208286B155EDE4BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:BEBE16896413BD6AD145393D208286B155EDE4BE
 magnet:?xt=urn:btih:7F1CCB58DFA29D487142FE1E0D6B906B188C8052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:7F1CCB58DFA29D487142FE1E0D6B906B188C8052
 ```bash
 magnet:?xt=urn:btih:A8E523F99DBA51DB610AC6E6CD4092DB5AA7076F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Rare Ltd | Артбук по игре Battletoads / The Art of Battletoads (2022
 magnet:?xt=urn:btih:4495CC5D1F35B2D07C7FE011CCF68748BE616146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:4495CC5D1F35B2D07C7FE011CCF68748BE616146
 ```bash
 magnet:?xt=urn:btih:B098AE0C355433792CD7EA673C25892DE277F90F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -28,6 +28,8 @@ Eric Marienthal - It's Love (2012) [FLAC|Lossless]<Smooth Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -61,6 +63,8 @@ Jacques Loussier - The Best of Play Bach (1985) [FLAC|Lossless]<Chamber Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -84,6 +88,8 @@ Sharrie Williams - Out Of The Dark (2011) [APE|Lossless]<Blues, Soul, Gospel>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +122,8 @@ Joey DeFrancesco - 40 (2011) [APE|Lossless]<Jazz,Hard Bop,Post-Bop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +158,8 @@ VA - Electric Blues (2010) [MP3|224 kbps]<Blues>
 magnet:?xt=urn:btih:A64FD9D3D71B3C183CCD067CDEF8E6CFD43AFE5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +192,8 @@ Yukiko Matsuyama - Creme Brulee (2009) [WavPack|Lossless]<World Fusion, Smooth J
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +228,8 @@ Marc Reece - Breakin' out (2002) [FLAC|Lossless]<Blues Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +259,8 @@ Milt Jackson - Night Mist (1980) [FLAC|Lossless]<Post-Bop, Mainstream Jazz>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +295,8 @@ Regina Carter - 2 альбома (2003-2006) [FLAC|Lossless]<Post-Bop, Mainstrea
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +329,8 @@ Peter Herbolzheimer Rhythm Combination & Brass - Bandfire (1998) [FLAC|Lossless]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +365,8 @@ George Shearing - More Grand Piano (1987) [FLAC|Lossless]<Bop, Cool>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +399,8 @@ Three Generation Trio - LIVE! in Jazz Club Pinokio (1995) [APE|Lossless] <Jazz, 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +435,8 @@ David Benoit - Every Step of the Way (1988) [FLAC|Lossless]<Smooth Jazz, Pop Jaz
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +467,8 @@ Chick Corea - Summer Night Live (1994) [FLAC|Lossless]<Post-Bop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +503,8 @@ Steve Freund - I'll Be Your Mule (2001) [FLAC|Lossless]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +537,8 @@ Annie Sellick (feat. Joey DeFrancesco) - No Greater Thrill (2003) [FLAC|Lossless
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +573,8 @@ Johan Clement Trio - Trio (1990) [FLAC|Lossless]<Mainstream Jazz, Post-Bop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +607,8 @@ Jimmy Raney - The Complete Jimmy Raney In Tokyo (1988) [FLAC|Lossless]<Bop, Cool
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +643,8 @@ Tuck Andress - Hymns, Carols And Songs About Snow (1991) [FLAC|Lossless]<Crossov
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +678,8 @@ Ramsey Lewis - Don't It Feel Good (1975) [FLAC|Lossless]<Funk, Soul>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +712,8 @@ William DeVaughn - Be Thankful For What You Got (1993) [FLAC|Lossless]<Jazz, Sou
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +741,8 @@ The Torch - 2006Жанр: Blues, Blues-rock, SoulПродолжительнос�
 ```bash
 magnet:?xt=urn:btih:01A1789200BAF6127838E6561F4BCBFB3D446760
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -733,6 +777,8 @@ Aaron Bell Trio - After The Party's Over (1999) [FLAC|Lossless]<Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -764,6 +810,8 @@ Count Basie & His Orchestra - Basie In Europe (1989) [FLAC|Lossless]<Big Band>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -798,6 +846,8 @@ Didier Lockwood - Tribute To Stephane Grappelli (2000) [FLAC|Lossless]<Jazz, Fus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -828,6 +878,8 @@ Atomic Fireballs - Birth of the Swerve (1998) [FLAC|Lossless]<Swing, Neo-Swing>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

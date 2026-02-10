@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:53BE5164D3D85DBBEBC48E7C4C28427D95453AB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:53BE5164D3D85DBBEBC48E7C4C28427D95453AB3
 ```bash
 magnet:?xt=urn:btih:D0692E961F4E4F374EA1D9D93D890D388317A26F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ OTT Онлайн прямое телевидение, в котором вы н�
 magnet:?xt=urn:btih:11D597E3068582F071D4331492373E5C9170650F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:11D597E3068582F071D4331492373E5C9170650F
 ```bash
 magnet:?xt=urn:btih:22FAB7FD493DB226D875EE0263E789FD9E572B61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Screenshot Touch – это удобное и простое приложени�
 magnet:?xt=urn:btih:70FA1FBE7D2A604996485DA80D16112F1060F3E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:70FA1FBE7D2A604996485DA80D16112F1060F3E2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ WiFi Analyzer v6.8 (b106) Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:A23663D48689E3CF1ACF6DA20559C2E8380FB1B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ FacePic — приложение AI Face, приложение для легко
 ```bash
 magnet:?xt=urn:btih:9F475E1443071D11DA48B8EC5DE6ABBE966EE8C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Rock Identifier - Stone ID v2.3.56 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:48566462CA6E6F202ACD48905750467DB1A78F2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:48566462CA6E6F202ACD48905750467DB1A78F2A
 ```bash
 magnet:?xt=urn:btih:809704A9B83125444B95E07F9218E1C60EDFE350
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ LazyMedia Deluxe это Android TV приложение, которое можн
 magnet:?xt=urn:btih:53ADE9FFFFEC48DA3F7555A59A5377D532E81042
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:53ADE9FFFFEC48DA3F7555A59A5377D532E81042
 ```bash
 magnet:?xt=urn:btih:9E5C386BA639E1D0B1E175EEEA226C9E485FA278
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ BZ Напоминания и Дни Рождения PRO v3.10.2 Mod by Viktor24
 magnet:?xt=urn:btih:4B43DB2A0C8062507DD15127F84A805E2B4D28AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Auto Reply: автоответчик v6.1 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:BD877CABE4700C4F4C4CE625932A06FC9EC82CD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +382,8 @@ magnet:?xt=urn:btih:BD877CABE4700C4F4C4CE625932A06FC9EC82CD6
 ```bash
 magnet:?xt=urn:btih:4E16849CF2B7ECFF01FDB74D31B022336382C507
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ TapScanner — сканер документов, это простой скан
 magnet:?xt=urn:btih:46BE36AED5A354B04D493AB5212EEC9F051D2DBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:46BE36AED5A354B04D493AB5212EEC9F051D2DBF
 ```bash
 magnet:?xt=urn:btih:2CAA8E4448469E7D66FD6C643FD84D5093CB42C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:2CAA8E4448469E7D66FD6C643FD84D5093CB42C1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Background Eraser (InShot Inc.) v2.30.91 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BC42CBCFE888EA8DD5B26A6CB2DC9A751954297E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ Android-версия популярной идентификации проце�
 magnet:?xt=urn:btih:45AD697A130730E2E883EB638605BD221881E742
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:45AD697A130730E2E883EB638605BD221881E742
 ```bash
 magnet:?xt=urn:btih:DE208E29D725BCADF0325A9F959631D6CD570C3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 magnet:?xt=urn:btih:FF1C4F41AB0AE266FD3FEA6447E32B2C6913BA8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ MobiOffice - это полнофункциональный офисный пак
 ```bash
 magnet:?xt=urn:btih:131432A0E623CC526EA2A2356314BBA06C88945C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:131432A0E623CC526EA2A2356314BBA06C88945C
 magnet:?xt=urn:btih:1D6A58E8C4FC5D15879C5333A0B33F14C8172ED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ Taskito - это приложение для управления задачам
 magnet:?xt=urn:btih:30973FBE2BBBD649359DA2E3BDADDAE8646430F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ FacePic — приложение AI Face, приложение для легко
 ```bash
 magnet:?xt=urn:btih:9A06CEF7BC6E5A8FE3A2B78C119CE05A3E6D3368
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

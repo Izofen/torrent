@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:F5030942EADD90B97F4F3F37187BE324271F4ECF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:F5030942EADD90B97F4F3F37187BE324271F4ECF
 ```bash
 magnet:?xt=urn:btih:772732243C20AFCAC35FF80CF32D1E3024944958
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:772732243C20AFCAC35FF80CF32D1E3024944958
 magnet:?xt=urn:btih:21FBB0133907E49E0A8452F5DD7123CF5A5DB84E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:21FBB0133907E49E0A8452F5DD7123CF5A5DB84E
 ```bash
 magnet:?xt=urn:btih:FD3630071C2A13A11C885E8D4B1A5F4F9B20AE27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Lord Of The Lost - OPVS NOIR Vol. 1 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:5A8B71AB14A0173864EA973647BE2BE992A8CFE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:5A8B71AB14A0173864EA973647BE2BE992A8CFE4
 ```bash
 magnet:?xt=urn:btih:FE3E99FB99B8575FBEF8E7072D4E3CC291A4FCBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Liv Sin - Close Your Eyes (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 magnet:?xt=urn:btih:6D128B29E081F4C5C0A3196835F303AF10FB0421
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:6D128B29E081F4C5C0A3196835F303AF10FB0421
 ```bash
 magnet:?xt=urn:btih:570E9BD0CA1FE3A3E1FB4E1F87CE670D31B5FCA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:570E9BD0CA1FE3A3E1FB4E1F87CE670D31B5FCA7
 magnet:?xt=urn:btih:7CBE7B141D6298E079E06E2FC5F7B5C429037ED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:7CBE7B141D6298E079E06E2FC5F7B5C429037ED1
 ```bash
 magnet:?xt=urn:btih:1B374A09F2EDD15A765DAD8BCE63AEFA527EAD44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:1B374A09F2EDD15A765DAD8BCE63AEFA527EAD44
 magnet:?xt=urn:btih:FD3C8D78D8AF03F7F83A8EEABD07F151E477EA69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:FD3C8D78D8AF03F7F83A8EEABD07F151E477EA69
 ```bash
 magnet:?xt=urn:btih:7958C635994B4D8615E4545F0535E38D8C97FCD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ B2 - Like A Perpetual Funeral(   Читать дальше...   )Жанр: Doom,
 magnet:?xt=urn:btih:7F593CED2C587AC2E79F1DA820378594F985D6CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:7F593CED2C587AC2E79F1DA820378594F985D6CB
 ```bash
 magnet:?xt=urn:btih:D8B3F7BAC1AED78A35F7B8B3A3339F7261031975
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:D8B3F7BAC1AED78A35F7B8B3A3339F7261031975
 magnet:?xt=urn:btih:6E08BC7CBA9DEAA1E9C9587ABFC88BCB924A788B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:6E08BC7CBA9DEAA1E9C9587ABFC88BCB924A788B
 ```bash
 magnet:?xt=urn:btih:6A11A1C7261D90578C278843CF95444E6DD5F079
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:6A11A1C7261D90578C278843CF95444E6DD5F079
 magnet:?xt=urn:btih:0C838719CCEB946CF5F734D66F887992D46FAFD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:0C838719CCEB946CF5F734D66F887992D46FAFD5
 ```bash
 magnet:?xt=urn:btih:E1F5412E3D2FBA5E12A15E8B52665FA58CA20D24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:E1F5412E3D2FBA5E12A15E8B52665FA58CA20D24
 ```bash
 magnet:?xt=urn:btih:C8C0A7332C2499921907F4363BFB57FFC7B3D454
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:C8C0A7332C2499921907F4363BFB57FFC7B3D454
 magnet:?xt=urn:btih:70E9912ADB5D4124D684A0D81ECC247B72151C51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:70E9912ADB5D4124D684A0D81ECC247B72151C51
 magnet:?xt=urn:btih:4B0DC441E4F778B07E4168AE10A7ED0A705F2428
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:4B0DC441E4F778B07E4168AE10A7ED0A705F2428
 ```bash
 magnet:?xt=urn:btih:4097B4242AAA1C662236BFB796E8E3C1A4467788
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ VA - Funky House Summer 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, S
 magnet:?xt=urn:btih:06B18E11455B160A13E5F1E72BC6D29C8D8AF4BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:06B18E11455B160A13E5F1E72BC6D29C8D8AF4BC
 ```bash
 magnet:?xt=urn:btih:133206BDA03A8BD18EA71BC5825253FCD4BE1C2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ magnet:?xt=urn:btih:133206BDA03A8BD18EA71BC5825253FCD4BE1C2B
 magnet:?xt=urn:btih:8A01A4B0406BB37C820DC67F04DE6D70FACFF89A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:8A01A4B0406BB37C820DC67F04DE6D70FACFF89A
 ```bash
 magnet:?xt=urn:btih:049A5D7B4A6376A471030385128F299FF5401202
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:FFD576AB343D59FAEECB3659DB07AE397FAB6637
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ Craig Chaquico - Acoustic Highway (1993) [MP3|128 кб/с]<Acoustic Guitar>
 magnet:?xt=urn:btih:5993D641AF8F2B5CA8029F887B950A12B15C7799
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -82,6 +86,8 @@ VA - Markus Schulz Pres Los Angeles 12 (Unmixed Vol 1) (2012)
 magnet:?xt=urn:btih:B23F5F3CF10BEEECF770122AB0D7442ABF45D078
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -105,6 +111,8 @@ magnet:?xt=urn:btih:B23F5F3CF10BEEECF770122AB0D7442ABF45D078
 ```bash
 magnet:?xt=urn:btih:F892687A64CB3C2BAF0386A6D3041C7324B2BEF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +139,8 @@ magnet:?xt=urn:btih:F892687A64CB3C2BAF0386A6D3041C7324B2BEF8
 ```bash
 magnet:?xt=urn:btih:7E126DEFED3D924F670C9DC0F8B30E6B413BDE97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -159,6 +169,8 @@ Opera - всемирно известный браузер. Очень скор�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +196,8 @@ Realms of Chaos [En] (RePack) 1995 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ Realms of Chaos [En] (RePack) 1995 | Pilotus
 magnet:?xt=urn:btih:1F740D812FEB36B1B219D603263E70B73C4DE183
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ magnet:?xt=urn:btih:1F740D812FEB36B1B219D603263E70B73C4DE183
 ```bash
 magnet:?xt=urn:btih:49813C43AF92719F22574095F697EB4C29C581B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ Dance party. Dance! Dance! - That's The Way Aha Aha We Like It (2012) [MP3|320 �
 magnet:?xt=urn:btih:47989CEF1F8CB0F42F87E486682CE1265E2C28F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +307,8 @@ magnet:?xt=urn:btih:47989CEF1F8CB0F42F87E486682CE1265E2C28F2
 magnet:?xt=urn:btih:079D674A273B2C0F58DDBBD12E6C8B7835AD43A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +333,8 @@ magnet:?xt=urn:btih:079D674A273B2C0F58DDBBD12E6C8B7835AD43A1
 magnet:?xt=urn:btih:0B7690D4CE08DBF1506B03D938051E9861CA4FF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +358,8 @@ magnet:?xt=urn:btih:0B7690D4CE08DBF1506B03D938051E9861CA4FF1
 ```bash
 magnet:?xt=urn:btih:5AF610A8ACA4BA95A960602EF50EAC757615A46B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +394,8 @@ Fear and loathing in las vegas - Dance & Scream (2010) [MP3|320 кб/с]<post-ha
 magnet:?xt=urn:btih:42F9B96C93BE497CF53595E20867F0BA0A236918
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +420,8 @@ Armin van Buuren - A State Of Trance Episode 560 (2012) [MP3|256 кб/с]<Trance
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +462,8 @@ CD1
 ```bash
 magnet:?xt=urn:btih:C402173958E1B8C89721E4F79DA992A7591D181E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +506,8 @@ Pawel Dobrowolski - drumsПеревод: ОтсутствуетЯзык субт
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +532,8 @@ Pawel Dobrowolski - drumsПеревод: ОтсутствуетЯзык субт
 magnet:?xt=urn:btih:E6149FFDAD89555637F9D9099B1C31FFDA40BAC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +557,8 @@ Loona - Policia (2012) [H.264/1080р] WEBRip
 ```bash
 magnet:?xt=urn:btih:9D38CA72C43B65B2CB59C607A8BFC4497112CFEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +587,8 @@ magnet:?xt=urn:btih:9D38CA72C43B65B2CB59C607A8BFC4497112CFEB
 magnet:?xt=urn:btih:6676A39C20C4B6D25FDB3F5A6645C244FCD1C9D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +613,8 @@ magnet:?xt=urn:btih:6676A39C20C4B6D25FDB3F5A6645C244FCD1C9D3
 magnet:?xt=urn:btih:9920B5D58ED2CBD0169F3072B3BFF88653060419
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +638,8 @@ Deep Zone - I Love My DJ (2012) [H.264/1080р] WEBRip
 ```bash
 magnet:?xt=urn:btih:D3A1348BF19778ED56B7A11E98603A9A67043E45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +673,8 @@ VA - Greenpeace Rocks (1993) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Rock>
 magnet:?xt=urn:btih:C9E87678BC198A6DFA01F7A24CF5AE702FF29CE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +699,8 @@ magnet:?xt=urn:btih:C9E87678BC198A6DFA01F7A24CF5AE702FF29CE9
 magnet:?xt=urn:btih:07EBB359D3EE89B830235DE955AA035FC3C100EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,6 +724,8 @@ magnet:?xt=urn:btih:07EBB359D3EE89B830235DE955AA035FC3C100EC
 ```bash
 magnet:?xt=urn:btih:4D5E9FEBEAE7463DC7915A562C05AF5686F034EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -702,6 +752,8 @@ magnet:?xt=urn:btih:4D5E9FEBEAE7463DC7915A562C05AF5686F034EE
 ```bash
 magnet:?xt=urn:btih:CB532F998BC9B2567E51A9C1F2790EB0E64A0BD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

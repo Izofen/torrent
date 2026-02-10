@@ -19,6 +19,8 @@ Book Collector 20.3.1 [En]
 magnet:?xt=urn:btih:D0D37FCAE8825693D0706ACB33112AAF617B030C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Dropzone - удобная утилита для автоматизация ру�
 magnet:?xt=urn:btih:24D951F8E161ABB43FD89B3026404BF9C8DA1A10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ MultiMode - это приложение, которое позволяет ва�
 ```bash
 magnet:?xt=urn:btih:8B6AD77A3A3A7BF5975BB2CB567A20300746BFBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Scherlokk является утилитой для быстрого поиска
 magnet:?xt=urn:btih:7949F2BFD3E2F087C8FE065D025478CC4273C29C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ DoYourData File Eraser для Mac может помочь вам безопас�
 ```bash
 magnet:?xt=urn:btih:10C77A3CD17C53F369AC39B6157EF98DB4797C98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Flyingbee Reader делает работу с pdf на Mac проще, чем к
 magnet:?xt=urn:btih:6B15B8D728F9E06CD9170DDFC80DC1C389AC9C27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Zoommy поможет вам найти отличные бесплатные с
 ```bash
 magnet:?xt=urn:btih:F60CE67394C28DDF9392B444EACBACA18505D887
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Noizio - это приложение, которое заглушит уличн
 magnet:?xt=urn:btih:00CD2D33378B6070C789EAB00D39824B67991110
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Salon Software для Mac - это приложение, разработанн�
 ```bash
 magnet:?xt=urn:btih:C82FE968BE2C4D2322A708F0C8F3D525BF3CAB99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ DateBook - это простое приложение для ведения еж
 magnet:?xt=urn:btih:C5A9665A4683AEDABCE5422C73863983CFC87F05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Clipboard mini - это полнофункциональное приложен�
 magnet:?xt=urn:btih:83084A98B764B8CB56F1D4C900EB12B1F195D5F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Mirror for Roku TV 2.8.1 [En]
 ```bash
 magnet:?xt=urn:btih:F7897F86BFDF9C0EE43B72C1FCB379B3856682E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ FontLab - профессиональный редактор шрифтов. Пр
 magnet:?xt=urn:btih:0CDB36368640C95EAD3C5FABB94FCC92FE60A023
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Waltr Pro разработан, чтобы упростить преобразо
 ```bash
 magnet:?xt=urn:btih:7FE4C9ED6D30E5721E4F5ABA944104992EF7684D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ NeoFinder Business 8.1.2 [Multi]
 magnet:?xt=urn:btih:4C5C82AE420743D45B4F8D1EB9B5EB6DB90B0697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Magic Media Marker - это инструмент для автоматизаци
 magnet:?xt=urn:btih:F9C389F05AE79EEDF33B5896DEF361516F0B24C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ AnyRec Video Converter — это универсальное решение, к�
 ```bash
 magnet:?xt=urn:btih:165C738A4160C54A92210F2ADDDE160FFBCEE5F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Paw (HTTP & REST Client) 3.3.5 [En]
 magnet:?xt=urn:btih:6B3D24AE5A2EA4E290A8CD73D26598617DE47E36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ CD DVD Label Maker 2.6.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C66DA369CDDAD2B09471C98CE564A5A3FF1835C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Home Business Card — это конструктор визитных карто
 magnet:?xt=urn:btih:E3E8C3E9E33A5D19F67D9ADBCED073192AD0AC59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Gemini поможет быстро найти и удалить одинаков
 ```bash
 magnet:?xt=urn:btih:5279463C54304E268E66F47B115E7805CA706990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ DSLR Assistant 3.9.1 [En]
 magnet:?xt=urn:btih:35EC032C55C1C228A8EFEE61298A30A35CF4D57C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Mirror for Grundig TV 3.5.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:23B41858EE1634BD32F3206B0086B91927D6CC3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ BetterZip 5 v5.0.3 CR2 [Multi]
 magnet:?xt=urn:btih:12760E346364363F792C647650858B7DD9EEC8C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Aiseesoft Mac Blu-ray Player - удобный в работе, медиа про
 magnet:?xt=urn:btih:5CD6EF9B88C20BE883CE88E22A34799E9722BAA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Record It Pro - очень практичный, профессиональны�
 ```bash
 magnet:?xt=urn:btih:68BA3331827A64B1BB08C5DDC4BCD66FE5CAAC7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

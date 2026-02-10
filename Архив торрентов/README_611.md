@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B62172D322845CD2A4EC7E2EF3E0DE7D2C4CD9D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:B62172D322845CD2A4EC7E2EF3E0DE7D2C4CD9D9
 ```bash
 magnet:?xt=urn:btih:E7FBEED7D37A802BB83E11D656FBA7D29418604D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:E7FBEED7D37A802BB83E11D656FBA7D29418604D
 magnet:?xt=urn:btih:960288DE3DC8E971A25ECBA42A9E127BF480B22A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:960288DE3DC8E971A25ECBA42A9E127BF480B22A
 magnet:?xt=urn:btih:7818031C05257F6C62EC1D83C03624C254FF858E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:7818031C05257F6C62EC1D83C03624C254FF858E
 ```bash
 magnet:?xt=urn:btih:453A307AD4755B5A8B7EC453792C1FD8CE640E0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Toots Thielemans - Man Bites Harmonica (1958) [MP3|320 kbps]<Jazz>
 magnet:?xt=urn:btih:D484419EC0749B59ED316AF7C97C7C6E33DE5591
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:D484419EC0749B59ED316AF7C97C7C6E33DE5591
 magnet:?xt=urn:btih:4907BC8FD5E56A99BA1D29B28DA32C7E61E00252
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:4907BC8FD5E56A99BA1D29B28DA32C7E61E00252
 ```bash
 magnet:?xt=urn:btih:E3C4A8A8ABE64253FA1F15D71445EDCB65C99F6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +249,8 @@ DJ Kocmoc - Electro Sensation vol.16 (4.02.2012) [MP3|320 kbps]<Electro House, E
 magnet:?xt=urn:btih:A1C195B7BA7E41AE155B6B66C026425342605A1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ magnet:?xt=urn:btih:A1C195B7BA7E41AE155B6B66C026425342605A1A
 ```bash
 magnet:?xt=urn:btih:DA93FE11FD262DB0F33952725D533F0D9E5A3D5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +305,8 @@ magnet:?xt=urn:btih:DA93FE11FD262DB0F33952725D533F0D9E5A3D5C
 magnet:?xt=urn:btih:9C8541F6EF63AD13F44F037D752D8205A3209BAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +335,8 @@ magnet:?xt=urn:btih:9C8541F6EF63AD13F44F037D752D8205A3209BAA
 magnet:?xt=urn:btih:8E00DAB8466F287A8023BE9C7727BA494222A086
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +361,8 @@ magnet:?xt=urn:btih:8E00DAB8466F287A8023BE9C7727BA494222A086
 magnet:?xt=urn:btih:CEB2E0D87868DFAF04A58672D4CB5B30C39B3A25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +386,8 @@ magnet:?xt=urn:btih:CEB2E0D87868DFAF04A58672D4CB5B30C39B3A25
 ```bash
 magnet:?xt=urn:btih:1B069B978096234C16C4748865B02A990B2806ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +415,8 @@ magnet:?xt=urn:btih:1B069B978096234C16C4748865B02A990B2806ED
 ```bash
 magnet:?xt=urn:btih:94FADEA464EE65EFAA39B351E274468E4A7B66D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +446,8 @@ magnet:?xt=urn:btih:94FADEA464EE65EFAA39B351E274468E4A7B66D2
 magnet:?xt=urn:btih:3FADB0043679FF8FF8FF3A6E7610225E2C00126C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +476,8 @@ magnet:?xt=urn:btih:3FADB0043679FF8FF8FF3A6E7610225E2C00126C
 magnet:?xt=urn:btih:FDDC0B329DA774F3D6933FE5499699AE1AB6925D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +504,8 @@ magnet:?xt=urn:btih:FDDC0B329DA774F3D6933FE5499699AE1AB6925D
 ```bash
 magnet:?xt=urn:btih:2B967EC5BA2EB1A8D4FA321D3000A233BBACE966
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +534,8 @@ magnet:?xt=urn:btih:2B967EC5BA2EB1A8D4FA321D3000A233BBACE966
 ```bash
 magnet:?xt=urn:btih:092E3D268D083CA40564D0687B0EC0A8602BFA85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +567,8 @@ Clark Terry - Clark Terry's Big B-A-D Band-Live At Buddy's Place (1992) [FLAC|Lo
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +593,8 @@ Clark Terry - Clark Terry's Big B-A-D Band-Live At Buddy's Place (1992) [FLAC|Lo
 magnet:?xt=urn:btih:34CFA4723094DA57D191894204CB72F36781F942
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +618,8 @@ magnet:?xt=urn:btih:34CFA4723094DA57D191894204CB72F36781F942
 ```bash
 magnet:?xt=urn:btih:3D9A30A1BDBB1AE692A02FC0E1DBFFC2F075121D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +654,8 @@ IntroWert - Progressive Reason Episode 069 [30.01.2012] (2012) [MP3|192 kbps]<Pr
 magnet:?xt=urn:btih:70D5E4ED8F6F2E5821740B095C686FF9808AF6EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +684,8 @@ magnet:?xt=urn:btih:70D5E4ED8F6F2E5821740B095C686FF9808AF6EC
 magnet:?xt=urn:btih:B368A9E782ED9551C1B5428A0A7E3EB853952071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +709,8 @@ Bnice - Cancer (2012) WEBRip 1080p
 ```bash
 magnet:?xt=urn:btih:FEA8D7F3BF087BA151C2F202D84C833CA4998F8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -694,6 +744,8 @@ magnet:?xt=urn:btih:FEA8D7F3BF087BA151C2F202D84C833CA4998F8F
 ```bash
 magnet:?xt=urn:btih:A61ABD37DDBF18B12D83CCD27000C499B6E84F4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

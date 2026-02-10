@@ -1,3 +1,148 @@
+###  Публикация: 1466503   (1018424) от 30.04.2021
+
+Modern Boots - Tell Me the Reason (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Synth-Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tell Me the Reason You Said Goodbye (Extended Vocal Fantasy Mix) 6:19
+02. A Lonely Romance 6:22
+03. Boulevard of My Dreams (Extended Vocal Fantasy Mix) 7:42
+04. Tears of a Broken Heart (Extended Vocal Fantasy Mix) 5:37(   Читать дальше...   )Жанр: Italo-Disco, Synth-PopПродолжительность: 01:15:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F27F988110CAA8F55290F511269C34225254BE01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466484   (1018431) от 30.04.2021
+
+Чёртово колесо инженера Ферриса - Тьматематика (2021) [MP3|320 Kbps] <Power Pop, Dance Punk>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018431.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Тьматематика
+2. Синяки и шишки
+3. Давай попробуем наоборот
+4. Девушка без девиаций(   Читать дальше...   )Жанр: Power Pop, Dance PunkПродолжительность: 00:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46ADB37BE1EA3A360D764E014E307871C5A2B61A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466482   (1018435) от 30.04.2021
+
+Amy Shark - Cry Forever (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Wolves (02:53)
+02. Everybody Rise (03:11)
+03. Worst Day of My Life (03:01)
+04. C'MON (feat. Travis Barker) (03:40)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:152A724D542523A60571BFB6E342638BDB71789A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466342   (1018554) от 29.04.2021
+
+VA - Disco 80's Maxi Club Hits, Vol.1 (Remixes & Rarities) (2011) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Albert One - Heart On Fire (Special Maxi Mix) (5:34)
+02. Baltimora - Living in the Background (Maxi Mix) (6:06)
+03. David Lyme - You Are My Desire (Maxi Mix) (5:57)
+04. Den Harrow - You Have a Way (Maxi Mix) (5:52)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 00:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63CE55083CD51F4F613F2C772A0A07A955F44EB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466344   (1018558) от 29.04.2021
+
+VA - Disco 80's Maxi Club Hits, Vol.2 (Remixes & Rarities) (2012) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sabrina - Boys Boys Boys (Special Long Club Mix) (8:44)
+02. Digital Emotion - Go Go Yellow Screen (Maxi Remix Version) (8:34)
+03. Baltimora - Key Karimba (Remix Maxi Version) (5:59)
+04. Den Harrow - Big Love (Maxi Remix) (6:06)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 01:07:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5409777243F9CEB44467F94AAFD0A42377C0023
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466350   (1018568) от 29.04.2021
 
 VA - Disco 80's Fresh Hits & Remixes (2015) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
@@ -21,6 +166,8 @@ VA - Disco 80's Fresh Hits & Remixes (2015) [FLAC|Lossless|WEB-DL|tracks] <Italo
 ```bash
 magnet:?xt=urn:btih:75356CF79EF1EC6705CCFB2D4C46F4C37A5DF53E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ Maggie Reilly - Past Present Future: The Best Of (2021) [FLAC|Lossless|image + .
 magnet:?xt=urn:btih:4E6D82BD1F41308EE6F81C0E15003EC736F5A8A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +224,8 @@ Caprice - Russia (1980) [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
 ```bash
 magnet:?xt=urn:btih:07A281C972ABA7423C0976A7E678EBF9F22EC573
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +254,8 @@ magnet:?xt=urn:btih:07A281C972ABA7423C0976A7E678EBF9F22EC573
 magnet:?xt=urn:btih:DBFFCC97F03D2DBCA91039217A4D9F5F4E0188DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +282,8 @@ VA - Top Music Hits for Working Out At Home (2021) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:33C76AA9F29CEE0EEA655CFD10C118375FD361B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +312,8 @@ Tom Jones - Surrounded By Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, 
 magnet:?xt=urn:btih:20A9D121180D3F9B027934E4BDF3A17A47517606
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +340,8 @@ Chlovechig - Песенки о птичках (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:C7C7DB12A59AF79E18B85A84F762826CD5C749A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +370,8 @@ Lory Bonnie Bianco - My Star 2.0 (2019) [FLAC|Lossless|image + .cue] <Pop>
 magnet:?xt=urn:btih:79F1EC8BE6E0402EECF6DE740428B6ACAF1DA0B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +395,8 @@ Till Lindemann - Любимый город (2021) Single [MP3|320 Kbps] <Retro>
 ```bash
 magnet:?xt=urn:btih:17FD242AA22695CB6F41693F7F80FAE428939411
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +425,8 @@ magnet:?xt=urn:btih:17FD242AA22695CB6F41693F7F80FAE428939411
 magnet:?xt=urn:btih:4A09BA75CF547D42358A37E7D8B1EE81F60F95E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +453,8 @@ VA - Не потеряй мою любовь (2007) [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:DE955E0A5AE2B6C2E6B3333079720DE489AC312E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +483,8 @@ VA - Букет песен о любви (2005) [FLAC|Lossless|tracks + .cue]<Р
 magnet:?xt=urn:btih:77AAC64DB0AFF46C6AB4027692E63C1E765D84D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +511,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:65487555D604B478DCB379919CA2D25B9FECFB33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +541,8 @@ Aqua - Greatest Hits (2009) Speciel Edition [FLAC|Lossless|WEB-DL|tracks] <Euro-
 magnet:?xt=urn:btih:3078E613C3CCF4B51C7DF22018D120FEB3C281A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +569,8 @@ VA - Pop Ballads Greatest Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:33B2BFF3622CBB64217AF54073013579BDA7ADCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +599,8 @@ Bonnie Tyler - Goodbye to the Island (1981) Reissue, 2010, 7T's Records [FLAC|Lo
 magnet:?xt=urn:btih:ACC4A5436984637A0675F8818FF59377D46779E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +627,8 @@ Imelda May - 11 Past The Hour (2021) [FLAC|Lossless|image + .cue] <Pop, Pop Rock
 ```bash
 magnet:?xt=urn:btih:1306ACEC58C7DE10E4E60526C0F1C6408F677BFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +657,8 @@ Mantus - Midnight Energy (1979) LP [MP3|320 Kbps] <Electronic, Disco, Hi-NRG>
 magnet:?xt=urn:btih:F721335EC81495AF8801FD061E3DBABB702119AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +685,8 @@ Citizen Gang - Citizen Gang (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk So
 ```bash
 magnet:?xt=urn:btih:2FD82BC90B914EBF74C0B86974006BC6C60B0A4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +715,8 @@ Digitalo - Gentleman (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Dis
 magnet:?xt=urn:btih:4EEBA575A8BE536CB3181A23E979B6DA6F6CD99B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,140 +744,7 @@ VA - Beat Unlimited (1994) [FLAC|Lossless|image + .cue] <Pop, Dance, Reggae-Pop,
 magnet:?xt=urn:btih:583EE23B692C104F543EAD376FC2F548FE8E192A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463685   (1020294) от 19.04.2021
-
-Barbados Climax - 2 Albums (1978, 1980) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Итальянская диско-группа во главе с продюсером - аранжировщиком и автором песен Джанкарло Тромбетти. Выпустили два этих альбома.01. California U.S.A. (8:25)
-02. Making Love With You (5:00)
-03. Samos (3:37)
-04. Las Vegas Climax (8:46)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 01:06:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DEF793A0D9A56CD7AC6DEBFAF36F4C6B01979E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463732   (1020303) от 19.04.2021
-
-Soulya ID - Only One We're Need Is Love (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:43)
-02. Vampirella's Song (Remastered) (5:27)
-03. Everybody (Remastered) (5:19)
-04. When I'll See The Sea (Mix 2021) (4:25)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:701955253C318DEEB5746066087F01407C99E73D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463741   (1020306) от 19.04.2021
-
-VA - MMA Workout 2021 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meduza - Piece Of Your Heart (02:32)
-02. Bree Runway - ATM (03:07)
-03. Hedegaard - Don't Fuck With Me (02:37)
-04. Meduza - Lose Control (02:48)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDC07920C00A8E74920CA36CDA14587FD712F5CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463600   (1020311) от 19.04.2021
-
-Ankie Bagger - Where Were You Last Night (1990) [FLAC|Lossless|image + .cue] <Italo-Disco, Europop, Italodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Were You Last Night (4:12)
-02. I Was Made For Loving You (4:02)
-03. There's No Reason (3:39)
-04. Dance The Night Away (3:43)(   Читать дальше...   )Жанр: Italo-Disco, Europop, ItalodanceПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:911B80C953E957F9CF747AC9F58BC1CB7174BE04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463305   (1020467) от 18.04.2021
-
-Александр Малинин - Лунная соната (1994) [FLAC|Lossless|tracks + .cue] <Ballad, Pop, Chanson>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020467.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Тост (3:37)
-2. Белая гвардия (4:24)
-3. Свадьба со смертью (4:40)
-4. Когда я уйду (3:47)(   Читать дальше...   )Жанр: Ballad, Pop, ChansonПродолжительность: 01:08:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C158FD53D5C6D89FDC9EBB22230483CE65A9347
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

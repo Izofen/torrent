@@ -19,6 +19,8 @@ Might and Magic: Heroes VI / Might & Magic: Heroes VI / Герои меча и �
 magnet:?xt=urn:btih:BA755C8618BAEAEEBCECB855ACA903F5B964A5B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Spotify: музыка и подкасты v9.0.16.572 LiteMod by Balatan [Ru/En]
 magnet:?xt=urn:btih:A4DA515ADC784991F8BEB6E4A810F3B8D3376AB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:A4DA515ADC784991F8BEB6E4A810F3B8D3376AB0
 ```bash
 magnet:?xt=urn:btih:C2EB77F310BB4E88FCFECA0AFFCE71B24623AFFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Dee Snider - 12 albums (1992-2021) [FLAC|Lossless|image + .cue | tracks +.cue] <
 magnet:?xt=urn:btih:DEE6892D918381935CD326DB49FFF1E17CBD1A13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Final Fantasy VII Rebirth (2025) [Multi] (build 17035252/dlc) Repack FitGirl [Di
 ```bash
 magnet:?xt=urn:btih:3F4CD2ABA6E90C359D18C65DC57692A6CEF3F065
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:3F4CD2ABA6E90C359D18C65DC57692A6CEF3F065
 magnet:?xt=urn:btih:194C3A5B5F205095ACCF1FBEFF9D0BFB64F773E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:194C3A5B5F205095ACCF1FBEFF9D0BFB64F773E0
 ```bash
 magnet:?xt=urn:btih:1C12DB7C2132E929B18C3C9ED910CEF9A15FAE77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:1C12DB7C2132E929B18C3C9ED910CEF9A15FAE77
 magnet:?xt=urn:btih:AC28850D76FD9EADEC6D309BB2B4B025976520A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:AC28850D76FD9EADEC6D309BB2B4B025976520A8
 magnet:?xt=urn:btih:0E2064D460B7008677A5ED17D757B2405071EFEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:0E2064D460B7008677A5ED17D757B2405071EFEB
 ```bash
 magnet:?xt=urn:btih:1B4A7C73C7FFF526F32CD8C661BD80389897BCD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ Part 1 (Discoteka):
 magnet:?xt=urn:btih:2C510AE13E539895CCAD98B90F052043CE134D23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Warren Eagles | FF201 Advanced Resolve 11 (2014) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:A82165D89E26C39EC65D0B38BB8E33B973CF6E3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ VA - Space Odissey (2025) [MP3|320 Kbps] <Synthetic, Space, Electronic>
 magnet:?xt=urn:btih:C567FC3C23C96E8DC6A5758CBF5B388B7CCDA4AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ Digiarty AIArty Image Matting — это инновационное програ
 ```bash
 magnet:?xt=urn:btih:C1A30613679779C96B226018D8F616236E073F33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ VA - Winter Cafe Bar (2025) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 magnet:?xt=urn:btih:2A9EB3332DCA35F673557F6A0B0BE40789E1A91B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:2A9EB3332DCA35F673557F6A0B0BE40789E1A91B
 ```bash
 magnet:?xt=urn:btih:8A4AFC654A8396EDB032E244427243DFC77F0D39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ Far manager — бесплатный файловый менеджер с под
 magnet:?xt=urn:btih:7BEFB0DB58ABD215FE4A5C53EB3F2677BD0D2299
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:7BEFB0DB58ABD215FE4A5C53EB3F2677BD0D2299
 ```bash
 magnet:?xt=urn:btih:AF4639F839F6AED96DA4A47338C91ABC5F40D87E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:AF4639F839F6AED96DA4A47338C91ABC5F40D87E
 magnet:?xt=urn:btih:41B0D087248DF44220599C295E68B873D46F8980
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:41B0D087248DF44220599C295E68B873D46F8980
 ```bash
 magnet:?xt=urn:btih:6124ADEE4499296BB27DCD5797D7A1BEAB1C468F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ U.D.O. - 36 albums, 88 CD (1987-2025) [FLAC|Lossless|image + .cue | tracks + .cu
 magnet:?xt=urn:btih:0760AF39D5FB3F85153CA503CE29E6F06C24AD00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:0760AF39D5FB3F85153CA503CE29E6F06C24AD00
 ```bash
 magnet:?xt=urn:btih:861A37533101E54AE3E17328DBC91F79AD93DACA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ Nunholy - это остросюжетная ролевая игра, в кото
 magnet:?xt=urn:btih:7C971525F7A5FE2A5A80B18AEB59B35F2F3791A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (Build 17026604 Patch 5/dlc) Repack 
 magnet:?xt=urn:btih:C3CE1E65014F2823A9E521425BFDCF0C6A758058
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:C3CE1E65014F2823A9E521425BFDCF0C6A758058
 ```bash
 magnet:?xt=urn:btih:88306FF43599B0E6B22A9D044C31587F3B34A0B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +691,8 @@ Ventoy - это инструмент с открытым исходным код
 ```bash
 magnet:?xt=urn:btih:222EEFBDADBD3242CE306A668E653CDDE66132C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

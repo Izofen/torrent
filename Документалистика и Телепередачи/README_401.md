@@ -1,3 +1,29 @@
+###  Публикация: 1049207   (544917) от 04.09.2016
+
+Сто к одному (04.09.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8DE88575EBC45D75A69A7E598AFEFBF4042839A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049354   (544918) от 04.09.2016
 
 Особая статья. Узбекистан. после Ислама  (04.09.2016) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:1D4A92C7E42A9B62B8B9B6EE819AC81DAF3B9E49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:1D4A92C7E42A9B62B8B9B6EE819AC81DAF3B9E49
 magnet:?xt=urn:btih:89C75351A3A993EA25E4593514CB05BCC490A63F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:89C75351A3A993EA25E4593514CB05BCC490A63F
 magnet:?xt=urn:btih:C4F028D7530EFF79BC81A52A8CC74DB0B26619FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:C4F028D7530EFF79BC81A52A8CC74DB0B26619FA
 magnet:?xt=urn:btih:7E73B6415A39284579687E9065D18AF9CA9719D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:7E73B6415A39284579687E9065D18AF9CA9719D8
 ```bash
 magnet:?xt=urn:btih:E7871E4A31778B126BA87AED6AF0E54E6A754B74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:E7871E4A31778B126BA87AED6AF0E54E6A754B74
 magnet:?xt=urn:btih:65B0751B2FFA3ABB858E11B1A6A83DC43E55C272
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:65B0751B2FFA3ABB858E11B1A6A83DC43E55C272
 ```bash
 magnet:?xt=urn:btih:A6A202EC3A5921FE614C2A9F8A2ABBCF8A8C5B44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:A6A202EC3A5921FE614C2A9F8A2ABBCF8A8C5B44
 magnet:?xt=urn:btih:13815A91F5CC1DC7914A9002030A490DE10BB722
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:13815A91F5CC1DC7914A9002030A490DE10BB722
 ```bash
 magnet:?xt=urn:btih:AC60AF3B41E652D17500F5584AA3C9F4B9D0528F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:AC60AF3B41E652D17500F5584AA3C9F4B9D0528F
 magnet:?xt=urn:btih:787CABA1F36A47A99CC40331B71648714AD2D221
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:787CABA1F36A47A99CC40331B71648714AD2D221
 ```bash
 magnet:?xt=urn:btih:1B685C989705F1B2804BCA9E3DD010FCE09E0F06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:1B685C989705F1B2804BCA9E3DD010FCE09E0F06
 magnet:?xt=urn:btih:2E33495534746B136ADFE70191E71F28A8DE9D76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:2E33495534746B136ADFE70191E71F28A8DE9D76
 ```bash
 magnet:?xt=urn:btih:212B9A1BD8A6755FA688FF2C3A5A90D3C1BE188C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:212B9A1BD8A6755FA688FF2C3A5A90D3C1BE188C
 magnet:?xt=urn:btih:78EDDA801216FBAFF33ED8F878A7F0C5F7B266AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:78EDDA801216FBAFF33ED8F878A7F0C5F7B266AB
 ```bash
 magnet:?xt=urn:btih:0CA75C2BD133318385529C49244AA37EDDC7EEB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:0CA75C2BD133318385529C49244AA37EDDC7EEB0
 magnet:?xt=urn:btih:E0FA2296CE1334E036BA70AC85B320811B3360D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:E0FA2296CE1334E036BA70AC85B320811B3360D3
 ```bash
 magnet:?xt=urn:btih:3B79BE12BD9F3E6E5901B8C4382FBF02A2B46847
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:3B79BE12BD9F3E6E5901B8C4382FBF02A2B46847
 magnet:?xt=urn:btih:B7C3E03CA8721F0048F4831D05A730570974398D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:B7C3E03CA8721F0048F4831D05A730570974398D
 ```bash
 magnet:?xt=urn:btih:B0DE5964B1479C7E1CBA7969D5491EFE4A9D2CE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:B0DE5964B1479C7E1CBA7969D5491EFE4A9D2CE6
 magnet:?xt=urn:btih:49135A8CC4921A12205D1E07C176D21FF5E0E201
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:49135A8CC4921A12205D1E07C176D21FF5E0E201
 magnet:?xt=urn:btih:FE16EE482E76E297F6076F14ED202F3F723D8BF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:FE16EE482E76E297F6076F14ED202F3F723D8BF4
 ```bash
 magnet:?xt=urn:btih:0ED5C304FBA20C6B8B1AD734C80E02D003176C94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:0ED5C304FBA20C6B8B1AD734C80E02D003176C94
 magnet:?xt=urn:btih:77C7857AAD9EC5DF4445819E4796C8E9E4A93789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:77C7857AAD9EC5DF4445819E4796C8E9E4A93789
 ```bash
 magnet:?xt=urn:btih:994E03B144F2D0FD9A811AB40877073D3133FE24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:994E03B144F2D0FD9A811AB40877073D3133FE24
 magnet:?xt=urn:btih:AD74E6182455D0391D3F21389DDE9AB27C08C1B2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048991   (545747) от 03.09.2016
-
-Право знать! (03.09.2016) SATRip
-
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545747.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Право знать!" – общественно-политическое ток-шоу без купюр и без протокола, о людях и событиях, которые меняют нашу жизнь.Телекомпания: ТВ-ЦентрЖанр: ТелепередачаПродолжительность: 01:08:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D0293CAC3BF0D9DFAD1FBDBD927059BEBEE64A7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

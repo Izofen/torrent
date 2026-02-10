@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C68A51D8D88E593F08371CD4D02FF126359DF6EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C68A51D8D88E593F08371CD4D02FF126359DF6EE
 ```bash
 magnet:?xt=urn:btih:BC36E853D5F7C4F603BD88CB964494B4F4F1568A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:BC36E853D5F7C4F603BD88CB964494B4F4F1568A
 magnet:?xt=urn:btih:38AEFF11FF945EB09F9BBB12FC8AC396D5EAEAD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Unreal Engine 5 – популярный игровой движок, котор
 ```bash
 magnet:?xt=urn:btih:FF3B92481FAE8A5DDA4528529F66F262AADA8278
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Maximilian Schwarzmuller | React Key Concepts: Consolidate your knowledge of Rea
 magnet:?xt=urn:btih:BDD740ABE6BB1F932B2DDE90AA28D071315F70F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Stephen Chin и др. | DevOps Tools for Java Developers (2022) [PDF][EN]
 magnet:?xt=urn:btih:D576D958A0E4D52F725A0B03306FE13F6D99FB55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Ashwin Pajankar | Python Unit Test Automation, 2nd Edition (2021) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:188A29F2BC8A5BC37883E7E0A037EB0C3643FE72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Victor Hugo Garcia | Getting Started with Angular: Create and Deploy Angular App
 magnet:?xt=urn:btih:35F612106AE0F4BF350B9D4271FE8840A9879056
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:35F612106AE0F4BF350B9D4271FE8840A9879056
 ```bash
 magnet:?xt=urn:btih:FF55D1E84E1824654ADA77102079E923DCE53FE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Dr. Deepali R Vora и др. | Python Machine Learning Projects (2023) [PDF][EN]
 magnet:?xt=urn:btih:899C0FB6D4C28F936D915E10C06A53331AE3EBF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Maya Shavin | Frontend Development Projects with Vue.js 3 (2023) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:DF49A446DDA802F13EFD56DC9D8ABDF99DFFAFFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Machine Minds AI | Building Javascript Apps with Chat GPT (2023) [PDF] [EN]
 magnet:?xt=urn:btih:4FCEBB2DF9CA1DB7B6EB455465DD579DFF51856C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Joseph Hocking | Unity in Action, 3rd Edition (2022) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:412296D86E8BA0C96E6CE37156D9DC3A1E65D5CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Next.js - это масштабируемый и высокопроизводи�
 magnet:?xt=urn:btih:70E28714DED0DA3A3BEF26C1846C41B2857CA87B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Victor G Brusca | Advanced Unity Game Development (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:CDE5B3FD00DD0E8B3613112497CA0691A5DCEADB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ CPython, самая популярная реализация Python, абстр
 magnet:?xt=urn:btih:F871CF6C147E0B7522379DFB4BC51E2EF2FE21F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Blaine Bateman | The Pandas Workshop (2022) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:AA8B27250F6082F7C3566F92D9B12A13308ABF13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Sarah Guthals | GitHub For Dummies, 2nd Edition (2023) [PDF][EN]
 magnet:?xt=urn:btih:0D1BE2FB81B368C518C56B2B29CB1D04C62D6D1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Kolawole Mangabo | Full Stack Django and React (2023) [PDF] [EN]
 magnet:?xt=urn:btih:C2D3D9C7F28749854A75C56D1D2679FCA933B625
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Alex Nuijten,  Patrick Barel | Modern Oracle Database Programming (2023) [PDF] [
 ```bash
 magnet:?xt=urn:btih:58E2711E565C162B2249761D62B60EA42BDCE20B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Maxwell Flitton | Rust Web Programming - Second Edition (2023) [PDF] [EN]
 magnet:?xt=urn:btih:2672B05312F32B7C959D99A0D0048B2031644D4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:2672B05312F32B7C959D99A0D0048B2031644D4D
 magnet:?xt=urn:btih:B85D306014FDE04EE01FB6A2397BB59441DD4E41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:B85D306014FDE04EE01FB6A2397BB59441DD4E41
 ```bash
 magnet:?xt=urn:btih:B6F66B34C12DBC479EA993E22E863416AE99C875
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ Sourabh Mishra | Practical Highcharts with Angular, 2nd Edition (2023) [PDF] [EN
 magnet:?xt=urn:btih:48A42756C0E6FA12AEE168A9A96917C4DEA3132F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:48A42756C0E6FA12AEE168A9A96917C4DEA3132F
 magnet:?xt=urn:btih:0EF68C44CFD0B2A709317358AAC722FD5BD9056A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ magnet:?xt=urn:btih:0EF68C44CFD0B2A709317358AAC722FD5BD9056A
 ```bash
 magnet:?xt=urn:btih:6BC5E0EEEA45AA8226BF1B061B0FEDD263E71178
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

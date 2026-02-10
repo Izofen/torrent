@@ -19,6 +19,8 @@ CGMA, Kurt Kupser | Texturing and Shading for Games (2017) PCRec
 magnet:?xt=urn:btih:859947F9DB78146AAEC7E1451B61BC131BD4728A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Chung Kan | Hard Surface 3D Modeling for Production (2015) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:B92FBCAF3DE29010B95925AB0097EE331F7595FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Skillbox, Михаил Колодочка | Программирование д�
 ```bash
 magnet:?xt=urn:btih:D224515435D2CD77E3E6999E05EE972F2E1EB20D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Chung Kan | Real-Time Creation For Games Production (2015) PCRec [EN, RU]
 magnet:?xt=urn:btih:35C6F330953CC55BD4154FF92694EB2119C73A09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ kobezzza.channel, Андрей Кобец | Мастер класс по реш�
 ```bash
 magnet:?xt=urn:btih:727F0594C94A492E982C53E22C3589986920CA37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Justin Marshall | Topology Tools in TopoGun 2.0 (2016) PCRec [En, Ru]
 magnet:?xt=urn:btih:B62698667614548C7C87793E930FB76959D8A5AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Chung Kan | Quick UV Mapping For Production (2015) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:C9A39F017AA7F83DF6588ADBC69DEB0527F933C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Udemy, Максим Новак | Универсальные коллекции �
 magnet:?xt=urn:btih:14E0E5C91D3AEAD7D03F124D20EAAECB4370954D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:14E0E5C91D3AEAD7D03F124D20EAAECB4370954D
 ```bash
 magnet:?xt=urn:btih:38CFDB43C54EBBEBDAB767C7554CB52276CB2CDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:38CFDB43C54EBBEBDAB767C7554CB52276CB2CDF
 ```bash
 magnet:?xt=urn:btih:60EE46C6A52F72E3A68338B4F9CBE96BB03507ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:60EE46C6A52F72E3A68338B4F9CBE96BB03507ED
 magnet:?xt=urn:btih:A08041C92BEC83064A0F8A045E6FA0E6210262DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Learn Squared, John Sweeney | Cinematic Concept Design (2017) WEB-DLRip [RU, EN]
 ```bash
 magnet:?xt=urn:btih:FE0B2962883324D4D16F3FF731C33C498BFB7E48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:FE0B2962883324D4D16F3FF731C33C498BFB7E48
 magnet:?xt=urn:btih:5FBA4028477B741EAAE513DC1592278ADB1A1A1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:5FBA4028477B741EAAE513DC1592278ADB1A1A1A
 ```bash
 magnet:?xt=urn:btih:FCDB13641C771D8E149E123B8B6259639454972C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ Stepik, Александр Бондарев | Revit 2024: Создание се�
 magnet:?xt=urn:btih:4B52E103D887F1AC8B92BFB2E14EE4B06B8BB3AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:4B52E103D887F1AC8B92BFB2E14EE4B06B8BB3AE
 magnet:?xt=urn:btih:D608F997E8E9AB6B210885CE5E08E9D964752EF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:D608F997E8E9AB6B210885CE5E08E9D964752EF7
 ```bash
 magnet:?xt=urn:btih:65D228C8BDF6C68FD0C586726E37B5CF97AEB14F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ Stepik, Александр Бондарев | Revit 2024: Основы созд�
 magnet:?xt=urn:btih:0ABB7318188358B3407D3189BDE887348C507D9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ Gumroad, Alex Hanneman | NUKE: Advanced CG Compositing and Look Development NK60
 ```bash
 magnet:?xt=urn:btih:D9C95A8E97F8E6D64DD7A2AEB5CC0B0337F1B6A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ magnet:?xt=urn:btih:D9C95A8E97F8E6D64DD7A2AEB5CC0B0337F1B6A8
 magnet:?xt=urn:btih:A3A2EEE84EA694FA968DA94753E24DD426E5A6D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ Lynda.com | Изучение ECMAScript 6 / Learning ECMAScript 6 (2017) PCRec [
 ```bash
 magnet:?xt=urn:btih:DB8B397D74E8029929A03472B156C3A1B289B480
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +597,8 @@ Compositing Academy, Alex Hanneman | Fundamentals of CG VFX Compositing in Nuke 
 magnet:?xt=urn:btih:943082BFD9FEE46223FAE2F9C4CD4B45878AF741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ Compositing Academy, Alex Hanneman | Methods of 3D VFX Compositing Nuke Mastercl
 ```bash
 magnet:?xt=urn:btih:96B0A985891CE98973D0258FB020536B7E929718
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +651,8 @@ Udemy, Reuben Ward | Создание игры в жанре "Королевск
 magnet:?xt=urn:btih:51B722229A72EC41E996E6F08E7F6E6002C5096E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ magnet:?xt=urn:btih:51B722229A72EC41E996E6F08E7F6E6002C5096E
 ```bash
 magnet:?xt=urn:btih:E689B22549A28E9013EB786253D6DB495C670E42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +706,8 @@ magnet:?xt=urn:btih:E689B22549A28E9013EB786253D6DB495C670E42
 ```bash
 magnet:?xt=urn:btih:85A68C11117A1709014AFD5C9655270923E4D62B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

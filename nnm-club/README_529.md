@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:F2F5347C5AAE0188B5721CB9FC316B9C1D67AE1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:F2F5347C5AAE0188B5721CB9FC316B9C1D67AE1D
 ```bash
 magnet:?xt=urn:btih:36CD8FFAD2750A6A3E1FD090A96477047DB0617F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:36CD8FFAD2750A6A3E1FD090A96477047DB0617F
 magnet:?xt=urn:btih:874813471EDC5F5E8FB7BE9C500471148E40B6AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:874813471EDC5F5E8FB7BE9C500471148E40B6AE
 ```bash
 magnet:?xt=urn:btih:EDEC87D1504ED8E48F86D692B61108DCABDCCE77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Activation Program 1.12 b05  Portable by Ratiborus [En]
 magnet:?xt=urn:btih:9BF462CA972C6EAA3978F1D70FF87EC06B332355
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:9BF462CA972C6EAA3978F1D70FF87EC06B332355
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Chains of Freedom (2025) [Ru/Multi] (1.0.3) License GOG
 magnet:?xt=urn:btih:8FDA2474B249F690B8920D85B7F43E33D2BD5CEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Dustwind: Resistance - это тактическая одиночная игра
 ```bash
 magnet:?xt=urn:btih:A5E9BC7B9DC8EB1D72270D8590A59FF9028BABE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:A5E9BC7B9DC8EB1D72270D8590A59FF9028BABE8
 magnet:?xt=urn:btih:11EE59B690FD470A46FDE006F416BA3D18EAFDDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Saikyou no Ousama, Nidome no Jinsei wa Nani o Suru? / The Beginning After the En
 ```bash
 magnet:?xt=urn:btih:0658C7E89BB1D0F22883D823E98EECDA24E9EF32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:0658C7E89BB1D0F22883D823E98EECDA24E9EF32
 magnet:?xt=urn:btih:D03DF386A05D2BEE80435FC78308F45DA269B26D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:F7E75B640F90D4A47F6B4D5B07FC069B99539793
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:F7E75B640F90D4A47F6B4D5B07FC069B99539793
 magnet:?xt=urn:btih:CA66FF03C67DEF603EA3834E52711CF9FD7C50D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Laire Sans имеет 40 стилей обычных, сжатых и накло
 ```bash
 magnet:?xt=urn:btih:7EDD98894930D41162A5201FF6DEF02D442E782F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:7EDD98894930D41162A5201FF6DEF02D442E782F
 magnet:?xt=urn:btih:D20758CC421D87590A89AD9856819721AE66E05C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:D20758CC421D87590A89AD9856819721AE66E05C
 ```bash
 magnet:?xt=urn:btih:84BDC5329AE5330E8C468B97191E7CD2573C784F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:84BDC5329AE5330E8C468B97191E7CD2573C784F
 magnet:?xt=urn:btih:1C83BE1694FCBE2E91A2754F4D745D8082C1B1F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.5/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:61C3758BF8F1249E149473641FFE20FF03302ED0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:61C3758BF8F1249E149473641FFE20FF03302ED0
 magnet:?xt=urn:btih:31708820FEF885488118A07692E331C53EB38CCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:31708820FEF885488118A07692E331C53EB38CCE
 ```bash
 magnet:?xt=urn:btih:8E3675042B35CB0E5CFE908A1FD64ED916FB5EAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ VA - Music News For Forum vol.101 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:2EAED5F2AD1F6B198A3259714D102E7D9BE49BA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:2EAED5F2AD1F6B198A3259714D102E7D9BE49BA9
 ```bash
 magnet:?xt=urn:btih:9500226DEE46D91C0B82145341BAF1CF95B083DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:9500226DEE46D91C0B82145341BAF1CF95B083DE
 magnet:?xt=urn:btih:656756FBA1A5AB9090AD979291C51740997D2122
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:656756FBA1A5AB9090AD979291C51740997D2122
 ```bash
 magnet:?xt=urn:btih:3C30C553E7B1BC840462A7EF68F78C87F185E3FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Kulebra and the Souls of Limbo (2025) [Multi] (1.0.13) Repack FitGirl [Deluxe Ed
 magnet:?xt=urn:btih:3265880E3D17B742EE4A5486EBE1F51DC08832DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:3265880E3D17B742EE4A5486EBE1F51DC08832DB
 ```bash
 magnet:?xt=urn:btih:DCC2C67194128BC1199F478AF0415313EBF28908
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

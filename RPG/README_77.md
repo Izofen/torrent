@@ -19,6 +19,8 @@ Tales of Zestiria (2015) [Ru/Multi] (1.4.0.0/dlc) Repack R.G. Catalyst
 magnet:?xt=urn:btih:C42274C1369DB97CE070535144161166A1B7D1D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Dragon's Dogma: Dark Arisen (2016) [En/Multi] (1.0.10.6911) Repack R.G. Origami
 ```bash
 magnet:?xt=urn:btih:8ABD8D0AB8DC9CE69512491468E09065B5EFACC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Cyberpunk 2077 приключенческая ролевая игра, дейс�
 magnet:?xt=urn:btih:3EDF261FE85A5CB7138C04E446183750AF05765A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ God Eater 2: Rage Burst является самостоятельным допо
 ```bash
 magnet:?xt=urn:btih:8345E35A30EC5EC02AC1C76D508E411FC8C7B9D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Wasteland Remastered (2020) [Ru/Multi] (1.07) Repack Other s
 magnet:?xt=urn:btih:0EE8B0C0C7699FF84C1513DCC28829FC35D9680D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ God Eater 2: Rage Burst является самостоятельным допо
 ```bash
 magnet:?xt=urn:btih:C1ECB4BFE6617174C75029C3C4604494929DB767
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Titan Quest - Anniversary Edition, мифический набор, из кот�
 magnet:?xt=urn:btih:F0FAD7F7F7C9B4CAF0AC82E884420A2DFEF36943
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Stygian: Reign of the Old Ones (2019) [Ru/Multi] (1.1.6/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A70BD5186FC365796FA5E4DAEFFAED01B39B1888
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Guild of Dungeoneering - минималистический и довольно 
 magnet:?xt=urn:btih:DA1275560779A46C7E8A6A1066544B609BDB7EEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Torn Tales – ролевая игра, в которой вам предсто�
 ```bash
 magnet:?xt=urn:btih:AE3B57D53899A9DF6535625C3D71D34386E367CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Nioh (2017) [Ru/En] (1.21.06/dlc) Repack xatab [Complete Edition]
 magnet:?xt=urn:btih:2F5A99FDCA874FA507F354105FEB6065917FD42E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ ARK: Survival Evolved (2017) [Ru/Multi] (306.41/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:E205ED9DD4BCC71B8187E11857B269FBF89CA505
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Transistor — научно-фантастическая игра в жанре 
 magnet:?xt=urn:btih:5720BCE7BD7BF1873EFB562DB83DA0003F80ADE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Sword of the Stars: The Pit [En] (L) 2013 | COGENT
 ```bash
 magnet:?xt=urn:btih:56F66D7977B6F182654190BE271F584C4344467E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Darkest Dungeon — сложная пошаговая ролевая roguelike-�
 magnet:?xt=urn:btih:865BC18F8DF179A441A63389501B8D3517C7CC76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Fallout 2 - культовая ролевая игра, справедливо �
 ```bash
 magnet:?xt=urn:btih:437430D1A419AE4C54A84B25B35ECA83F4839E22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Mount & Blade: With Fire and Sword / Mount & Blade. Огнем и мечом - �
 magnet:?xt=urn:btih:00DC29D9325A94B5F7743FDA8696153179628A2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Divine Divinity / Divine Divinity. Рождение легенды (2002) [Ru/En
 ```bash
 magnet:?xt=urn:btih:3C15DCAB2EB7D3A4E2731F42DF83F1BB0E9B03D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Beyond Divinity / Beyond Divinity: Оковы судьбы (2004) [Ru/En] (1.506
 magnet:?xt=urn:btih:590B4803CD511D42F8580E656214F6393A575730
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Inquisitor / Инквизитор (2012) [Ru/En] (1.10.17) Repack R.G. Меха�
 ```bash
 magnet:?xt=urn:btih:C2BC83B9D436267F27871ED8BBD0D88D8BC567C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Conglomerate 451 представляет собой ролевую игру в 
 magnet:?xt=urn:btih:BBC5540CA0695B2BE3CB1D07CB6368D7D796E5BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Icewind Dale Dilogy (2000-2002) [Ru/En] (1.42/02.01.016/dlc) Repack R.G. Catalys
 ```bash
 magnet:?xt=urn:btih:E4670585C1354EA82913133D1A87DD81C7C837B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ Risen [Ru/En/Multi7] (L) 2009 | PROPHET
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ Risen 3: Titan Lords (2015) [Ru/Multi] (3.0.30.0/dlc) License PLAZA [Enhanced Ed
 ```bash
 magnet:?xt=urn:btih:A46C63E96670544C14FA2B109853513FBDF3B2BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ DivineDivinity - это настоящая классика ролевого ж�
 magnet:?xt=urn:btih:031B62E8766D3420CAE56EFE4AD8320B51693423
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Costume Quest — это приключение на тему Хеллоуина
 ```bash
 magnet:?xt=urn:btih:C46A239E0523524C7C57DB2996050EA84436E6FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

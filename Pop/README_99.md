@@ -22,6 +22,8 @@ Fancy - D.I.S.C.O. (1999) [FLAC|Lossless|image + .cue] <Euro-Disco, Eurodance>
 magnet:?xt=urn:btih:D223E415F68D12ABC4AFC8B872187E9CAB6C4781
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ Cascada - It's Christmas Time (iTunes Version) (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:88A12E9C80632E41673AC4A4C50526E30CB886F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +85,8 @@ Rouge - 1 Album, 5 Singles & EPs (1985-1988) (ex. Arabesque) [MP3|320 Kbps] <Ele
 ```bash
 magnet:?xt=urn:btih:61432EB00C9F73EFD34619B18A5A617E234B9EBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ magnet:?xt=urn:btih:61432EB00C9F73EFD34619B18A5A617E234B9EBD
 magnet:?xt=urn:btih:CFA087181C43D4FC37D88CA61FAA0146F2090FF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +143,8 @@ Marco Mengoni - Atlantico (2018) [FLAC|Lossless|tracks + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:510CE3FDE9E54CBC26A646AA7C5EC2DDE8D7170D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +173,8 @@ VA - Pop Music from the 00s (2018) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:0541750C0F18ABA1D8F9CDCBC7F948A2CD3D81BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +201,8 @@ Beth Adams - Always Christmas (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Christm
 ```bash
 magnet:?xt=urn:btih:E4F3EA801A9DC0A3E08ECCA109C7744B79818A17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +234,8 @@ CD01:
 magnet:?xt=urn:btih:8A935C34B67D2FDC538ABC5A898C1822E839D09F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +262,8 @@ VA - Best Road Trip 10's Pop Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Roc
 ```bash
 magnet:?xt=urn:btih:5BDBB06EE2BC7F1921A4EF4EE2C6ECA027A45146
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +292,8 @@ magnet:?xt=urn:btih:5BDBB06EE2BC7F1921A4EF4EE2C6ECA027A45146
 magnet:?xt=urn:btih:4E2A0AEE48E4FACE66722BE0B1174DE837733381
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +320,8 @@ Michael Jackson - Number Ones (2003) [FLAC|Lossless|tracks + .cue] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:5E6AB19D2B2D9D7C090190FBAE1A3F35CE8235FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +350,8 @@ magnet:?xt=urn:btih:5E6AB19D2B2D9D7C090190FBAE1A3F35CE8235FB
 magnet:?xt=urn:btih:BFAA6AFCE5144413EE73C2BAB1822200574CE3E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +378,8 @@ VA - Perfect Ballads (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Ballads>
 ```bash
 magnet:?xt=urn:btih:F6D3A62FFB3DC5A01589D6F62EE1943FDCF829BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +408,8 @@ Pino Daniele - Che Dio Ti Benedica (1993) [FLAC|Lossless|tracks + .cue] <Pop, Ro
 magnet:?xt=urn:btih:2939B46F9A1BD5CB960AACB4B980AB810FA4062A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +436,8 @@ Duncan Sisters - The Duncan Sisters (1979) [MP3|320 Kbps] <Electronic, Disco, Fu
 ```bash
 magnet:?xt=urn:btih:182B88753134D65FD08A003A2126A0D4DBDDC4AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +468,8 @@ Right Said Fred - Британская поп-группа, созданная �
 magnet:?xt=urn:btih:32A57F4448FE55C4FB1DFAED2C12C4792651DB50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +496,8 @@ VA - 80's Super Hits (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
 ```bash
 magnet:?xt=urn:btih:770CB8DB5982CA2EEEEF5A43683833B34ED587EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +526,8 @@ Martha Reeves - Gotta Keep Moving (1980) LP [MP3|320 Kbps] <Funk/Soul, Disco>
 magnet:?xt=urn:btih:48DED53A4F86B7D08F76F9E19B78E0CB15AF2913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +554,8 @@ Nessa Barrett - hell is a teenage girl (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop
 ```bash
 magnet:?xt=urn:btih:DB181D2C125B18AF04569F2732EE290739C26D45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +584,8 @@ Rocky Pamplin - Rock (1979) LP [MP3|320 Kbps] <Funk/Soul, Disco>
 magnet:?xt=urn:btih:368981ABAED5CB9CA47022AF8DCCEDC0EC7189EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +612,8 @@ Sophie Ellis-Bextor - HANA (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:67B3802A7F42F718D473DB7FA682B10760F542F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +642,8 @@ Reflex - 20 лет - Лучшее и новое (2023) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:2EA5F0EAE8C21C0932DC545E338F4933B663B8BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +670,8 @@ magnet:?xt=urn:btih:2EA5F0EAE8C21C0932DC545E338F4933B663B8BF
 ```bash
 magnet:?xt=urn:btih:F7467F4C5F522D4563B60F4B92EDA4392118FA53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +700,8 @@ Lime - All Studio Albums (1981-2002) Collection [MP3|320 Kbps] <Electronic, Hi N
 magnet:?xt=urn:btih:3F9B24952DB245445697A766AF6F17867DF33A53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -681,6 +729,8 @@ VA - Никита Богословский•Три года ты мне сни�
 magnet:?xt=urn:btih:949FCF46A1FCDA9A0AB0C52868A89CC09201BF0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -707,6 +757,8 @@ Cher - It's a Man's World (1995) Deluxe Edition, Remaster, 2023, Warner Records 
 ```bash
 magnet:?xt=urn:btih:5969663C3083AF60BD52317E90201A4B83B38B6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

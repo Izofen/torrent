@@ -22,6 +22,8 @@ Vega - Battlelines (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 magnet:?xt=urn:btih:1F3BC4B6498F8A257742894B2B624E47743A252E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:1F3BC4B6498F8A257742894B2B624E47743A252E
 ```bash
 magnet:?xt=urn:btih:88745445D90EAAA9A3ED3B1E42B822DFBD70199D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ A4 Dance With Me(   Читать дальше...   )Жанр: Pop, Pop RockПр�
 magnet:?xt=urn:btih:2E03226C41056FEB0CB904CFB334615685CA32D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Dragonheart - The Dragonheart's Tale (2023) [FLAC|Lossless|WEB-DL|tracks] <Power
 ```bash
 magnet:?xt=urn:btih:F2F8FAE8D1C5D36DA38D745A57B6805B79395933
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Montra - Against All Odds (2023) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock, H
 magnet:?xt=urn:btih:319739D29A06E8C9048AFB4D07F3DD7AC0B6BEB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Craver - Torch Of Wisdom (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy 
 ```bash
 magnet:?xt=urn:btih:1786B343AB66CF7CB09249E0982E9495FD019342
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Sylosis - A Sign of Things to Come (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <M
 magnet:?xt=urn:btih:4F40DB2D234DDFE877038FD88B47979941FC58EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ magnet:?xt=urn:btih:4F40DB2D234DDFE877038FD88B47979941FC58EC
 ```bash
 magnet:?xt=urn:btih:93C57F64D8C4923E6A85C2D5124FEA9D8B5EA9A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +248,8 @@ Cathalepsy - Blood & Steel (2023) [FLAC|Lossless|image + .cue] <Power Metal>
 magnet:?xt=urn:btih:156FFA0DFB1F3B668094FE999F0427BA2B8AA5AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ magnet:?xt=urn:btih:156FFA0DFB1F3B668094FE999F0427BA2B8AA5AF
 ```bash
 magnet:?xt=urn:btih:EBF428557048359B3E7C0AEE74766FF252F8906D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +303,8 @@ Sylosis - A Sign of Things to Come (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 magnet:?xt=urn:btih:ED032E71B23AFCB34C665C94163A64FD3D0C92D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +332,8 @@ Dormanth - IX Sins (2018) [FLAC|Lossless|image + .cue] <Death Metal, Melodic Dea
 magnet:?xt=urn:btih:75A59ED4A7FFE741EAC30EBDBF1A69E3434ADD11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +357,8 @@ magnet:?xt=urn:btih:75A59ED4A7FFE741EAC30EBDBF1A69E3434ADD11
 ```bash
 magnet:?xt=urn:btih:632E52CBD5A514C3DDD027C48C9C2A1B86F0931F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +385,8 @@ magnet:?xt=urn:btih:632E52CBD5A514C3DDD027C48C9C2A1B86F0931F
 magnet:?xt=urn:btih:7E87FB61312E039E88900716CFC42FE545231A49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +410,8 @@ magnet:?xt=urn:btih:7E87FB61312E039E88900716CFC42FE545231A49
 ```bash
 magnet:?xt=urn:btih:12062A2181FB568B4F5CB8D8212C323C2F83B1F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +437,8 @@ magnet:?xt=urn:btih:12062A2181FB568B4F5CB8D8212C323C2F83B1F8
 magnet:?xt=urn:btih:B6E0E5CC23958650F3DABC94265FA18A80ECF233
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:B6E0E5CC23958650F3DABC94265FA18A80ECF233
 ```bash
 magnet:?xt=urn:btih:E158BFABB77A8249CFBFE2BD99734B66425905CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ Aiseesoft DVD Creator - это одна из лучших профессиона
 magnet:?xt=urn:btih:FBC3BB6B36DBAB5494D2795BA028B19FC99BF652
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:FBC3BB6B36DBAB5494D2795BA028B19FC99BF652
 ```bash
 magnet:?xt=urn:btih:9E2E68B03E4E768219050682643F29C60F290625
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:9E2E68B03E4E768219050682643F29C60F290625
 magnet:?xt=urn:btih:D47D7BE72795273450D85137E9A7C0AFAB5CB67A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ magnet:?xt=urn:btih:D47D7BE72795273450D85137E9A7C0AFAB5CB67A
 ```bash
 magnet:?xt=urn:btih:BB0D313F7707FF7A0B281A5542CC244D3B8B36D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 magnet:?xt=urn:btih:0B18F199A156BB2AC6057A9897DCE31DD9731609
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ Laravelcreative.ru | Laravel 9: Базовый подробный курс (2023
 ```bash
 magnet:?xt=urn:btih:511A31B7D756E91D32217BD8804628F31834ACA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:511A31B7D756E91D32217BD8804628F31834ACA3
 magnet:?xt=urn:btih:1020BD88FCB2D7F0DF90D50D52F90AB2D1805655
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ magnet:?xt=urn:btih:1020BD88FCB2D7F0DF90D50D52F90AB2D1805655
 magnet:?xt=urn:btih:01C66F9D7651DD9983EDED9D5A1D015C872BE8FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ magnet:?xt=urn:btih:01C66F9D7651DD9983EDED9D5A1D015C872BE8FD
 ```bash
 magnet:?xt=urn:btih:F5FD9733483971A6CA2E20C8DC1E272CBEABE9FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

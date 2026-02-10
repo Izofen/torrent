@@ -23,6 +23,8 @@ SEGA Mega Drive Ultimate Collection — это увлекательное пут
 magnet:?xt=urn:btih:5FC02DD209DF8BF68E9886644C0B4D52EAD216C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Barbie Horse Adventures: Riding Camp [Wii] [PAL] [Multi 2] (2008)
 ```bash
 magnet:?xt=urn:btih:1CD2C4BF39810527A5D2D44D3CB23797D92C37C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Yaiba является часть ответвлением основной ли
 magnet:?xt=urn:btih:43DADC51A28C7BCD4082813057EAEA249DADEADB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Sam & Max: Season Two (Beyond Time and Space) [Wii] [PAL] [Multi 5] (2010)
 ```bash
 magnet:?xt=urn:btih:45E08BE4AB7219235E571CA808261C600B19AF88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Culdcept DS  (2008) [NDS] [JPN] [Unofficial] [En]
 magnet:?xt=urn:btih:8817C0B5D242F91B2C8C587DFAA177BFBB5745F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Wheelman (2009) [PS3] [EUR] 2.60 [Cobra ODE / E3 ODE PRO ISO] [License] [En/Mult
 ```bash
 magnet:?xt=urn:btih:40A86BEB1725D0E21855B1CA20D74CD817D12AAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Spore Hero [Wii] [PAL] [Multi 7] (2009)
 magnet:?xt=urn:btih:877950E0A91B8B6D67B355977FA67A83CC21864A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ The Adventures of Tintin: The Secret of the Unicorn [PS3] [MOVE] [EUR] [Russound
 magnet:?xt=urn:btih:2222B4C08AA9860C4F13E41B23554F31DD27BCF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ LEGO Star Wars: The Complete Saga [PS3] [EUR] [En] [1.93] [Cobra ODE / E3 ODE PR
 ```bash
 magnet:?xt=urn:btih:F9E92E3FBD52D0E380208AE72966B734F4ABC380
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ Sam & Max: Season One [Wii] [PAL] [Multi 5] (2008)
 magnet:?xt=urn:btih:9D623F573B022827AF24A48B6926CC44025FBDD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ Call of Duty: Advanced Warfare (2014) [Xbox360] [RegionFree] 16537 [FreeBoot] [L
 magnet:?xt=urn:btih:4F7F0C5410C051049A42F51890F17EF3E4A804E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Alien Shooter (2016) [PS3] [EUR] 4.21+ CFW [Repack] [Ru/En]
 ```bash
 magnet:?xt=urn:btih:1DBA72C5E3D81B79093A82F132E72B80015BD377
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Hitman Trilogy HD (2013) [PS3] [USA] 4.21 [Cobra ODE / E3 ODE PRO ISO] [Unoffici
 magnet:?xt=urn:btih:E86DB637A38660F227E2FB79103A107BB20402B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ Fight Night Champion (2011) [PS3] [EUR] 3.60 [Cobra ODE / E3 ODE PRO ISO] [Repac
 magnet:?xt=urn:btih:31BCDC84F7BFDA83F8D18265A5AFFCDF3F6AAC9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ Madden NFL 16 - это очередная часть популярной сер
 ```bash
 magnet:?xt=urn:btih:78D20D21F88033217707769AECF166B53DCEBCFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ Teenage Mutant Ninja Turtles: Smash-Up [Wii]  [PAL] [Multi 5] (2009)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ Fight Night Champion (2011) [PS3] [EUR] 3.60 [Cobra ODE / E3 ODE PRO ISO] [Licen
 ```bash
 magnet:?xt=urn:btih:56B9EF32F5DF1F39566007FB08634E52F5DDB0A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ Madagascar 3 является приключенческой аркадной и
 magnet:?xt=urn:btih:712F1C47D880E0AE68359437C24C42B851453C21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ Winter Blast: 9 Snow & Ice Games - максимально возможная к�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ Halo 3: ODST самостоятельное дополнение к третье
 magnet:?xt=urn:btih:8ACDDD8FCF54B8A3C871ED57500D7A34D939E01C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ Chibi-Robo: Clean Sweep! (2009) [NDS] [JPN] [Unofficial] [En]
 ```bash
 magnet:?xt=urn:btih:125EBBAA863DE754B1B49CAD64CE397E5CBF771F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ PS3Lock 0.7 RU Edition (2016) [PS3] [Unofficial/Repack] [Ru/Multi]
 magnet:?xt=urn:btih:9E4F97C85B2BCEE63CB846718DD8EF2219856579
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ Tekken 1, 2, 3 [PS1] [Eng] (1994-1997)
 magnet:?xt=urn:btih:FBE51B70C9E4DF11EB18D6821EE03F4627CDA636
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ Grease Dance создана по мотивам фильма Grease (Бриол�
 ```bash
 magnet:?xt=urn:btih:ECDAF75193F416A703BFE5480BBCA752CFB28873
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ Game of Thrones / Игра престолов [Ru] (2012) [XBOX360] [Freeboot]
 magnet:?xt=urn:btih:9A97C392F10D0B222E3AC99B9431C5E41634C7EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:9A97C392F10D0B222E3AC99B9431C5E41634C7EB
 ```bash
 magnet:?xt=urn:btih:97990C00FEEDFE5E0406BC46B68E53E00000D46E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

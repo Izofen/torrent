@@ -19,6 +19,8 @@ Sin Slayers возвращается на Steam спустя некоторое 
 magnet:?xt=urn:btih:36F10546C87F27B755F6C65A978E1AE9E6F4B887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Deathbulge: Battle of the Bands (2023) [En] (1.2.2) License GOG
 ```bash
 magnet:?xt=urn:btih:D296E9B3F0FD220289144DA0B168D70BC6D3CA3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dungeon Defenders – интересная игра, которая сочета
 magnet:?xt=urn:btih:ACA50E3247A48603A462C530D719EF2330D87BA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Dragon Quest Monsters: The Dark Prince (2024) [Multi] (1.0.1) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:687414FD41210347EDAB1FB4FB12706085321FB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Banishers: Ghosts of New Eden - это увлекательная Action-RPG, к
 magnet:?xt=urn:btih:EF984C488D18B3EC2E2BE324EB0071E55D31F0AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Owlcat Games, 18 000 спонсоров с Kickstarter, дизайнер пов�
 ```bash
 magnet:?xt=urn:btih:172C545A50C55BBA2010CA90B210507E431D636F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Glorious Companions (2019) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:E56285594EF266F7671312ACC8AD21E495A5ABB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Tokyo Clanpool (2024) [Multi] (0.30) License GOG
 ```bash
 magnet:?xt=urn:btih:BEA46AEA3BE4E7D9C4BFD5EFA4DB54B3D5DCF595
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ V Rising (2024) [Ru/Multi] (1.0.10.2-r83846-b3/dlc) Repack Decepticon
 magnet:?xt=urn:btih:FDF25B9A33AD4DF05C9126D7AFF1C258905913DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Legend of Heroes: Trails to Azure продолжает историю Лло
 ```bash
 magnet:?xt=urn:btih:B6EBA58DBB6D7D6247170F902A8509FE418F90C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Iron Oath – это ролевая фэнтезийная игра с та�
 magnet:?xt=urn:btih:F36D6975AF2D19AAC149233AB692EABE9237F3DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Diablo II: Resurrected – это обновленная спустя двадц
 ```bash
 magnet:?xt=urn:btih:48CA6BE9BB9F4FE1FCF7FD998DB080067E6D53E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Neptunia Game Maker R:Evolution переносит игроков в альте�
 magnet:?xt=urn:btih:C713BC218180531BF87E700FB359B03FBA8E30BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Atelier Ryza 3: Alchemist of the End & the Secret Key (2023) [Multi] (1.7.0.0/dl
 ```bash
 magnet:?xt=urn:btih:236F4AC50CD51B549E126C6771F75CF44BC2A0E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Crown Wars: The Black Prince (2024) [Ru/Multi] (Build 16501847/dlc) Repack Let's
 magnet:?xt=urn:btih:32B01560D888E5B0E15C5E58B49FC875AC2DDAE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ SubTerra возвращается с десятками новых объект�
 ```bash
 magnet:?xt=urn:btih:4970DCF41F7648E7DCDA3D4ECF75C2632691C6AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Barony повествует об обретшем вечное существо�
 magnet:?xt=urn:btih:D1D764FFC42844192BB19AEF3B8DD315192F7FC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Rogue Citadel (2024) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:AF9D7739FC7163B1298D2A6BD52382B645B321F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Keylocker | Turn Based Cyberpunk Action (2024) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:4690AB34541C5A7A8B517D3413C3CBED829890A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Sir Whoopass: Immortal Death (2022) [En] (1334) License GOG
 ```bash
 magnet:?xt=urn:btih:371F15DB3399467D37F2AA9C487731687847A538
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Banishers: Ghosts of New Eden (2024) [Ru/Multi] (1.5.0.0/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:DDD846FF66160776AD87D59FCB0A852474BFFB83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Archons - это Roguelite, Survivor-игра, в которой вы управ
 ```bash
 magnet:?xt=urn:btih:B692D5B7FB7A496B58DAD58A7ED8CA89D7CB2343
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.4.63.0) Repack seleZen
 magnet:?xt=urn:btih:2A6C136B7041C8DBEDD8DE0093B6DEED03722F6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Sea of Stars - динамичное ролевое приключение, ра�
 ```bash
 magnet:?xt=urn:btih:6F9446C0CB712E16FF0FFACE3B3B49DD24E3BAC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Bad 2 Bad: Apocalypse (2024) [Ru/Multi] (Build 16701862/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:A0C8C46BA9F4DD3BEDCD06F3BC5B263B01DA4674
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Alder's Blood: Prologue (2020) [En] (1.0.20a) License GOG
 ```bash
 magnet:?xt=urn:btih:A5D1223428E6DA579E82498677A556634E477E0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

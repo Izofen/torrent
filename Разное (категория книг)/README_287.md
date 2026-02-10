@@ -1,3 +1,29 @@
+###  Публикация: 1167810   (412470) от 22.09.2017
+
+Кадирбай Рятов | Секреты развития: Как, чередуя инновации и системные изменения, развивать лидерство и управление (2016) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Успех предпринимательской деятельности в современных условиях все возрастающей конкуренции во многом зависит от динамичного и планомерного развития организации. Новая книга К. Рятова, автора монографии «Функциональный менеджмент: Как из хаоса создать порядок, преодолеть неопределенность и добиться успеха» (М.: Альпина Паблишер, 2014), предлагает научно обоснованный (   Читать дальше...   )Жанр: О бизнесе популярно, Управление, Подбор персоналаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D08CF1B34B416CE34C4156023AC419B1CC6FC893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167800   (412475) от 22.09.2017
 
 Руслан Абдулов | Как найти любимое дело? (2015) [FB2, EPUB]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:A5BF8B7FF9FD7AF545B09D1124369123055ED55B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:A5BF8B7FF9FD7AF545B09D1124369123055ED55B
 magnet:?xt=urn:btih:BD5378F74D4D7DDF7815F04911BD71368B40F3FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:BD5378F74D4D7DDF7815F04911BD71368B40F3FB
 ```bash
 magnet:?xt=urn:btih:C6E25582989D875C9C0F2474DFA6D82140DC54D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +128,8 @@ magnet:?xt=urn:btih:C6E25582989D875C9C0F2474DFA6D82140DC54D8
 magnet:?xt=urn:btih:7A4DDCDA4794F97E90498E9FF5269E5B450EB57B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +155,8 @@ magnet:?xt=urn:btih:7A4DDCDA4794F97E90498E9FF5269E5B450EB57B
 ```bash
 magnet:?xt=urn:btih:4191A788659FEDD5468E46D77A890A5365831731
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +185,8 @@ magnet:?xt=urn:btih:4191A788659FEDD5468E46D77A890A5365831731
 magnet:?xt=urn:btih:F8B80E425137544A9201FFC7EE4B5A7721194B08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +213,8 @@ magnet:?xt=urn:btih:F8B80E425137544A9201FFC7EE4B5A7721194B08
 magnet:?xt=urn:btih:3FBFF74C636E1FF6E048A4CB27E1E571C4B03552
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +238,8 @@ magnet:?xt=urn:btih:3FBFF74C636E1FF6E048A4CB27E1E571C4B03552
 ```bash
 magnet:?xt=urn:btih:4CE432C7CD9F93BD64F2284B24FD18FB326C5C82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +265,8 @@ magnet:?xt=urn:btih:4CE432C7CD9F93BD64F2284B24FD18FB326C5C82
 magnet:?xt=urn:btih:90D18987ACCEAE564D49F228738552AF084F3E66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +290,8 @@ magnet:?xt=urn:btih:90D18987ACCEAE564D49F228738552AF084F3E66
 ```bash
 magnet:?xt=urn:btih:587862CB15750CBEDD7E3686561F91F65DD5F4F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +317,8 @@ magnet:?xt=urn:btih:587862CB15750CBEDD7E3686561F91F65DD5F4F6
 magnet:?xt=urn:btih:63310DE7B96EB2779C43EECFBE831CE645D7D452
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +342,8 @@ magnet:?xt=urn:btih:63310DE7B96EB2779C43EECFBE831CE645D7D452
 ```bash
 magnet:?xt=urn:btih:D7079ABB4B7FC4D0A69DE813557AD638420343C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +369,8 @@ magnet:?xt=urn:btih:D7079ABB4B7FC4D0A69DE813557AD638420343C6
 magnet:?xt=urn:btih:8C09F1BDC6AB279ABB0E640D5C06C21B521538A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +395,8 @@ magnet:?xt=urn:btih:8C09F1BDC6AB279ABB0E640D5C06C21B521538A2
 magnet:?xt=urn:btih:45CA91F6D49368106107A7C6F300D89DCC44E6C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:45CA91F6D49368106107A7C6F300D89DCC44E6C7
 ```bash
 magnet:?xt=urn:btih:DAC8B9A152CE3A5725A08D765A373B1C725E54C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +449,8 @@ magnet:?xt=urn:btih:DAC8B9A152CE3A5725A08D765A373B1C725E54C8
 magnet:?xt=urn:btih:A0101118CEB0261198560EA5BC11E694887FE475
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +475,8 @@ magnet:?xt=urn:btih:A0101118CEB0261198560EA5BC11E694887FE475
 ```bash
 magnet:?xt=urn:btih:40289AA04DC5485A12DBD50E6D9572B3BF4E1B77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +503,8 @@ magnet:?xt=urn:btih:40289AA04DC5485A12DBD50E6D9572B3BF4E1B77
 magnet:?xt=urn:btih:CFFD15D020F796EF582B208EB468FC90A2424522
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +528,8 @@ magnet:?xt=urn:btih:CFFD15D020F796EF582B208EB468FC90A2424522
 ```bash
 magnet:?xt=urn:btih:3C88FB181EE5A986B42397E123D5CE29AD26222F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +557,8 @@ magnet:?xt=urn:btih:3C88FB181EE5A986B42397E123D5CE29AD26222F
 magnet:?xt=urn:btih:D46FE35FD6A2A6EC243FA5AE84D2EA1A5A45BC22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +585,8 @@ magnet:?xt=urn:btih:D46FE35FD6A2A6EC243FA5AE84D2EA1A5A45BC22
 magnet:?xt=urn:btih:98924483096B081790259CD45490B0A00A62E0EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +611,8 @@ magnet:?xt=urn:btih:98924483096B081790259CD45490B0A00A62E0EC
 magnet:?xt=urn:btih:C0D366E40A9E3AEC9DF09000A37DD0826F73A044
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +636,8 @@ magnet:?xt=urn:btih:C0D366E40A9E3AEC9DF09000A37DD0826F73A044
 ```bash
 magnet:?xt=urn:btih:BA6DA60D3D1BEDD92DF0F6E06E8461E13EBFFC2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +665,8 @@ magnet:?xt=urn:btih:BA6DA60D3D1BEDD92DF0F6E06E8461E13EBFFC2E
 magnet:?xt=urn:btih:5A1003776D87A2E2C2A485CD5C36EDEA0987F109
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,29 +691,7 @@ magnet:?xt=urn:btih:5A1003776D87A2E2C2A485CD5C36EDEA0987F109
 magnet:?xt=urn:btih:3C9E1C259C4865293E6DB91B0F06EAD6BCC71146
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948168   (413633) от 19.10.2015
-
-Юлия Бразовская | Блины (2014) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что может быть вкуснее русских блинов! Кружевные, сдобные, с припёком, с яблоком, с капустой, с форелью – блины могут быть самые разные! Если вы хотите порадовать родных к Масленице или удивить своих домашних вкусным ужином – то эта книга для вас! В нашей книге эксперт и опытный кулинар Юлия Бразовская подготовила для вас рецепты традиционных и оригинальных блинов. (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EC5CDFBB02CAA92F1885446F6B5BB921C4A537D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

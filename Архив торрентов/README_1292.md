@@ -19,6 +19,8 @@ Stats - это приложение с открытым исходным код�
 magnet:?xt=urn:btih:7195AED7DAA06C47A9ADDD6604B13001470A0E02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ CCleaner - утилита для чистки мусора в операцион
 magnet:?xt=urn:btih:B10822F9B3C57F199935F51D725C68F4040DCD9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ VPN Russia - VPN сервера в России 1.176 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:3FE718838C12835D062B546AC3C8FA9425EAA8FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Java Runtime Environment (JRE) - программное обеспечение �
 magnet:?xt=urn:btih:EE49B21CB98E98A8F1131AC2E1538CF369A2F182
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Fishing Knots Pro / Рыбацкие узлы Pro v8.0.9 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B514EC5E1AD94829D6499DD4371793FE722032BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:8EB77EF4CFDB221EF42DF623CC856BC0A2C783FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Imagine - это бесплатный просмотрщик изображен�
 ```bash
 magnet:?xt=urn:btih:C955D875007F6906C50AE5E6B68932F29A1F34DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Fitify: Фитнес тренировки дома 1.58.1 Mod by Balatan [Ru/En]
 magnet:?xt=urn:btih:862D778EE7D000A9864900BA65B850E0897D95DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Nitro Pro – программа, которая является альтерн
 ```bash
 magnet:?xt=urn:btih:9080715C3FC43D34DBC1879438AD7F1252D2D612
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Strawberry - музыкальный плеер и органайзер музы�
 magnet:?xt=urn:btih:C4AACC0DDAF616970638600D7A6F66CEE923BD54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:CEA10867A1C3DCAE2C175845E1AB39110045285B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ GeoGebra — мультиплатформенная программное об�
 ```bash
 magnet:?xt=urn:btih:CA26AFB6388062B82DCEE4F315FAF321FCA5F708
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Music Tag Editor - редактор музыкальных тегов помож
 magnet:?xt=urn:btih:B898F02A2F6DAEBB862255C0F6C25AF9BE98698C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Sublime Text не является свободным или открытым п
 ```bash
 magnet:?xt=urn:btih:1DC05EBE7F8FFB078E258B5F1FEE5EDCD5A2FC62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ iNet показывает устройства, подключенные к ва
 magnet:?xt=urn:btih:6F9F9601362AAF726E19642B4C403165B3C34518
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ n-Track Studio Suite 10.0.0 Intel/ARM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2D96FDF6749D8BD8857D6DDBF8E9A96BBBBB677B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ iShowU Studio предоставляет эффективные инструме
 magnet:?xt=urn:btih:C4DABF447BAFBBFE97AA0593D59D75F9EE636F19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Farmer's Life (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:0098A79B10EC71126DE455839D4DA0502ADD52B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 magnet:?xt=urn:btih:C3EDBB8CE083A4D9AECC636EAFA7ADA617F0D430
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:58F98FBB933434E81BFE6B8E19D89138BE703348
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ Beyond Compare — мощнейшая программа для сравнени
 magnet:?xt=urn:btih:ED12BDA1A4911027A977E618354F7010CCA14B0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Sense flip clock & weather v6.34.2 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E4A9B20F36811DC41207C4F002885522F274DDB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ Sense V2 Flip Clock & Weather v6.35.4 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:B624D59CE12702F57F861ECDF4981CD83432C5A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ DxO PhotoLab Elite 7.0.2 build 83 RePack by KpoJIuK [Multi]
 ```bash
 magnet:?xt=urn:btih:C9A6D9D01A7F21402BB9F072FB5F0419C5B67748
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ AIDA64 - является мощным средством для идентиф�
 magnet:?xt=urn:btih:90AA9803D948A1C6BF7D24136387F43A237A298E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Windows Firewall Control - утилита, с помощью которой, в�
 ```bash
 magnet:?xt=urn:btih:C371A111B306B347111220AAB75EDA46635A35A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

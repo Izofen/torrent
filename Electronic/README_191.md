@@ -22,6 +22,8 @@ VA - One Night In Amsterdam: Chill Out Downtempo Session (2016) [MP3|320 Kbps] <
 magnet:?xt=urn:btih:5479F4BB0B0CA1EFC72E6030F451F530979C8629
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Dreams and Fantasies: 20 Magic Electronic Tunes Vol.1 (2016) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:F0BFFF77508A190088A93EF8B1DFF8AF4074E32B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Into the Sunset: Chill and Lounge Experience by Lighthouserec (2016) [MP3|3
 magnet:?xt=urn:btih:0A5529A7FF31E6106D26B1890A40EF53C30CAF25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Fine Dining: A Dedicated Lounge Music Selection (2016) [MP3|320 Kbps] <Bale
 ```bash
 magnet:?xt=urn:btih:0252232C1EF03D5146401F9BC3203E76F06CD36A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ David Guetta - Listen Again (2015) [MP3|320 кб/с]<House, Progressive House>
 magnet:?xt=urn:btih:2BC9BFB8AC1E2E5DCECB58070DB7CC71B7A31371
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Erasure - Always - The Very Best of Erasure (Deluxe Version) (2015) (3CD) [MP3|3
 ```bash
 magnet:?xt=urn:btih:820531D73C7E66152CDAC69D3617F397ACD9D1C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Battle of the Future Buddhas - The Light Behind The Sun (2019) [FLAC|Lossless|WE
 magnet:?xt=urn:btih:059B915ACF2A2F6A7AD1757D98022FE309B5B8DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ VA - Lounge Melodies Vol.1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:FEEEF06E4926CDE8E8794A86A2B5A122C4014A5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +252,8 @@ Nommo Ogo - Discography 12 Releases (2000-2017) [FLAC|Lossless|tracks+.cue, trac
 ```bash
 magnet:?xt=urn:btih:4AB5225FB97A6B43AE85AD1F5180F5207AFA9290
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +282,8 @@ Arc Of Doves - Discography 7 Releases (2009-2017) [FLAC|Lossless|tracks + .cue] 
 magnet:?xt=urn:btih:EC0B518D389EBE343623A72EDDA31E24A5CC0285
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +310,8 @@ Indigo Egg - Discography 5 Releases (1996-2018) ...txt [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:AB72F161674E2FB288D7676B93FEBCD4E90F510F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +340,8 @@ Soulstructure - Time & The Truth (2018) [FLAC|Lossless|WEB-DL|tracks] <Drum & Ba
 magnet:?xt=urn:btih:2C4C7DE604DD3093FED5D63FA63B32D9FDD7AF90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +368,8 @@ VA - The Awakening - Transmission - O2 Arena Prague (2018) [MP3|320 Kbps] <Tranc
 ```bash
 magnet:?xt=urn:btih:66EB93B4FAC71A85A9B0ABA52BF1327AC9D52BB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +398,8 @@ Alphaxone & Xerxes the Dark - Aftermath (2018) Cryo Chamber [FLAC|Lossless|WEB-D
 magnet:?xt=urn:btih:9B6CF94CA69D73A86EDA5355C9C25FBEF56830D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +426,8 @@ Parallel Worlds & Dave Bessell - Dystopia (2018) DiN [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:01CB3C89660118626B08017E56ACA474252E56AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +456,8 @@ Derek Carr - The Digital Space Race (2008) Psychonavigation Records [FLAC|Lossle
 magnet:?xt=urn:btih:A667BA268549EEF526D9B5E1726B1F3D81795F34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +485,8 @@ VA - Grotesque Reworked & Remixed (Mixed By RAM) (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:5B72633E2A373B3699F601F0A16699C4D7CAD44C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +512,8 @@ Aeden - Once Upon A Time EP (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:1808ADEBC0B75144E104ED31DB1A840366F7E742
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +542,8 @@ VA - Ori Uplift & Nick Turner - Uplifting Only 248 (2017) [MP3|320 Kbps] <Trance
 magnet:?xt=urn:btih:8D1E59FC895C8852A291B8B32ABA9C95B7B80707
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +570,8 @@ KGproject - Cold Eyes (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:88A13FCEEB59EA16C820854AD5F5F6DE8C38E616
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +600,8 @@ VA - Dark Rest Vol. 3 (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:7EC9EB50C3489351A2F31C8A3A2D49E1B2214E68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +628,8 @@ Depeche Mode - Songs of Faith and Devotion - The 12" Singles (2020) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:1A3DE926F6B000A60D3B2FD6C673F961651F948B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +664,8 @@ VA - Pool Loungue Emotional & Sensual Grooves (2012) [MP3|320 кб/с]<Deep Hous
 magnet:?xt=urn:btih:51939E46A41813459B95DD435E4458F787BECFA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +692,8 @@ Armin van Buuren - Live @ Amsterdam Music Festival, Netherlands (2020-11-07) [MP
 ```bash
 magnet:?xt=urn:btih:D2F6C563BFEDB8B8CDAE8C3648DCB22CABF81F45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -674,6 +722,8 @@ VA - Wine & Sunset Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:C8770CC6079305DB098BD69C815DC981DE21EE71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -700,6 +750,8 @@ VA - Bass Music 2016 - 30 Top Hits Best Of Drum & Bass, Dubstep, Rave Music Anth
 ```bash
 magnet:?xt=urn:btih:2AA8B0DFBEEBD92C3F23A9A19AD0E24B203EF72E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

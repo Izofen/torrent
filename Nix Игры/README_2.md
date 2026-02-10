@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:2AA7E10708918778950A6FE4B3CBA50BFCAE46B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Killing Floor - кооперативный хоррор-шутер на выжи
 ```bash
 magnet:?xt=urn:btih:72BF9A6B9C60FC02CCDCB39A86FDF72D5D8A8718
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Human Resource Machine - игра-головоломка для гиков. На
 magnet:?xt=urn:btih:9452540B0F5BB4B2F7349FCEF93263812AAA0E23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:9452540B0F5BB4B2F7349FCEF93263812AAA0E23
 ```bash
 magnet:?xt=urn:btih:57EB1C804B892444CB7BF339970030A320D0C830
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ OlliOlli2: Welcome to OlliWood - вторая часть приключений 
 magnet:?xt=urn:btih:C307629F07F2FEEADAF33D4E7823A45DDE19E2D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:C307629F07F2FEEADAF33D4E7823A45DDE19E2D7
 ```bash
 magnet:?xt=urn:btih:DEEBF96A7A39540BB87A510470EEB694229333C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ War Thunder – это военная MMO игра, посвященная бо�
 magnet:?xt=urn:btih:0D90EA9AAC6E0F02D5F67DFE80D873B30B565F7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:0D90EA9AAC6E0F02D5F67DFE80D873B30B565F7C
 ```bash
 magnet:?xt=urn:btih:7F370F26F5EF5151DFBE6EE282991A7DBD54940B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Valley - приключенческий экшен с видом от перво
 magnet:?xt=urn:btih:D4155C11DAFF42C20EC98BE7F7FEEF6F9A691468
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Pavilion – таинственное приключение, в сердце к
 ```bash
 magnet:?xt=urn:btih:BA2048DC95B59CD4D4E171FBD9292826829C986C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:BA2048DC95B59CD4D4E171FBD9292826829C986C
 magnet:?xt=urn:btih:42CA5EECF8F8081FC774D6B9EC3790802E3480BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ LASTFIGHT: возвращение 3D-боя в режиме 2х2! Подбери
 ```bash
 magnet:?xt=urn:btih:18E8E4C768BFF245629418ECC9B08E60642F43C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Armello – это масштабная приключенческая игра,
 magnet:?xt=urn:btih:6C97200C4132FB33C8EF07E5484817ADEAA7CB6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:6C97200C4132FB33C8EF07E5484817ADEAA7CB6C
 magnet:?xt=urn:btih:BC3F8C4A2E44DB6450F9831679DBED0794F900DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:BC3F8C4A2E44DB6450F9831679DBED0794F900DA
 ```bash
 magnet:?xt=urn:btih:49175ED8075EEABB73818D88347157CEF72F4B08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Wheels of Aurelia – это интерактивная игра-книга в �
 magnet:?xt=urn:btih:E100734DD8FA2A0CB4F3721BE76E2B0DEC29CC47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:E100734DD8FA2A0CB4F3721BE76E2B0DEC29CC47
 magnet:?xt=urn:btih:0F38B07E584A0897BB9F42C089B1C60EED4BC11D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:0F38B07E584A0897BB9F42C089B1C60EED4BC11D
 ```bash
 magnet:?xt=urn:btih:7E221575356A8BFA4416B4A8FE62141D6AA6DA1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Realpolitiks — грандиозная стратегия, в которой в
 magnet:?xt=urn:btih:282ABF82C03605A91937F7BF1B8570A3CE96C32F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:282ABF82C03605A91937F7BF1B8570A3CE96C32F
 ```bash
 magnet:?xt=urn:btih:9485B209589DF45CC0A048FD895FAF9445E3D188
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:9485B209589DF45CC0A048FD895FAF9445E3D188
 magnet:?xt=urn:btih:6F546C81C6AA6D6A406DBCA33A4C4730E551D593
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:6F546C81C6AA6D6A406DBCA33A4C4730E551D593
 ```bash
 magnet:?xt=urn:btih:F2E22FDC8676648F35B51EE17FACDB90BD81A4DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Reverie Knights Tactics - изометрическая пошаговая RPG с
 magnet:?xt=urn:btih:F9E482BF751EB8F2F66B735D4A88635ABD72076B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Drox Operative 2 - космическая экшен-РПГ о войне ино
 ```bash
 magnet:?xt=urn:btih:1CBADC7ADB5D41F12DF4E23B8943B38D776A09E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ Rise & Shine совмещает в себе аркадный шутер с ис�
 magnet:?xt=urn:btih:94FF27B8B344ABEAA97986728BC3EA3213A14DCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Halcyon 6: Lightspeed Edition — переработанная и дополне
 ```bash
 magnet:?xt=urn:btih:946C27821D296C6CC011C4DDD9615449891FFEE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

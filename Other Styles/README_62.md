@@ -22,6 +22,8 @@ Constance Demby - Spirit Trance (2004) [FLAC|Lossless|tracks + .cue] <NewAge>
 magnet:?xt=urn:btih:7D5245C61519C01704976B7E658DB8EB00F2B9F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Constance Demby - Faces of the Christ (2000) [FLAC|Lossless|tracks + .cue] <NewA
 ```bash
 magnet:?xt=urn:btih:67BCD102FD0796A839FC42D11DD8C786684B5E4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Constance Demby - Sanctum Sanctuorum (2003) [FLAC|Lossless|tracks + .cue] <NewAg
 magnet:?xt=urn:btih:6F1BACB0D4DCE1F28F69510B93D1C652ABC09374
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Santiano - 3 Альбома (2012 - 2015) [FLAC|Lossless|tracks + .cue | image +
 ```bash
 magnet:?xt=urn:btih:809052115E21D05F8B7FEA7F79BB194CFF215FF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Ennio Morricone - The Very Best Of (2000) [WavPack|Lossless|image + .cue] <Score
 magnet:?xt=urn:btih:FFEC71659A8BB8552300EC50CF0B22E19EB8EBE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Gianni Marchetti - Le Notti Porno Nel Mondo N. 2 (Original Motion Picture Soundt
 ```bash
 magnet:?xt=urn:btih:EEA477C5C6EFD2B63D96D07E5C2787F2FB3D10AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Romantic Collection: Instrumental Vol.1-3 (2000-2002) [MP3|320 Kbps] <Instr
 magnet:?xt=urn:btih:CE7176922BAB738F6B76D655091168DA3BD41E56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Steve Orchard - Zanzibar (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:4CE118D3F72C821BCE2A371ECBD737E721DC72E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Galactic Agents - Human Contact (2002) [MP3|320 Kbps] <New Age, Worldbeat, Nativ
 magnet:?xt=urn:btih:4DB93F8494A91EE2237C09C8C81001EDBF156057
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Modern Sound Orchestras - Moonlight Sonata (1992) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:34D6168E09DD3E8C76D042FA513DFE32951B6BF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Darshan Ambient - Lingering Day: Anatomy of a Daydream (2017) [FLAC|Lossless|WEB
 magnet:?xt=urn:btih:2E0A4E9525C473BEF0497674C3D1EF05AB442C21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Aeoliah - Sacred Mantras (2017) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:D5DDEF204DF14D193DCE80A841DA75707C814591
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Александр Зацепин: Песни из к-ф 31 июня (1996)
 magnet:?xt=urn:btih:B9AFC9085C91DFC6A759C88BE42DB5854D052813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Junichi Kamiyama - The Best Musics for Recovery from Fatigue and to Get Healthy 
 ```bash
 magnet:?xt=urn:btih:F67394FE2439EAC76E47F8CC38C21FBA99E126F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Constance Demby - Light of This World (1987) [FLAC|Lossless|tracks + .cue] <NewA
 magnet:?xt=urn:btih:8B4B05C7B2008C2A160E76BB1740CC300B5DF386
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Constance Demby - Sunborne (1980) [FLAC|Lossless|tracks + .cue] <NewAge>
 ```bash
 magnet:?xt=urn:btih:95830E67178A34019F0110B8DFB4904531335AD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Constance Demby - Skies Above Skies (1978) [FLAC|Lossless|tracks + .cue] <NewAge
 magnet:?xt=urn:btih:3EABAFEE5B7AD9561BDA8B0F0FA4C03507C42668
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +515,8 @@ Constance Demby - Attunement (2000) [FLAC|Lossless|tracks + .cue] <NewAge>
 magnet:?xt=urn:btih:AC8FF65AD57F7C8D71142FA8F8865F7FD7BB86B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +543,8 @@ Constance Demby - Sonic Immersion (1996) [FLAC|Lossless|tracks + .cue] <NewAge>
 ```bash
 magnet:?xt=urn:btih:F3E2B4D0B6847C10BBCD3367004B2981A2C63447
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +579,8 @@ VA - The Worlds Most Beautiful Flute Music. Instrumental Dreams (2004) [MP3|320 
 magnet:?xt=urn:btih:421FBFDB7B6E009E4CAAA0C47D2E605C7C23696E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +607,8 @@ Dominique German - God's Peace (2016) [MP3|320 Kbps] <New Age, Piano>
 ```bash
 magnet:?xt=urn:btih:61B95F51CE9FBEBA8346DE95873F39B97A1567FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +637,8 @@ magnet:?xt=urn:btih:61B95F51CE9FBEBA8346DE95873F39B97A1567FE
 magnet:?xt=urn:btih:576BD06B45BEB90F2B4B51DC707D6644616483FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +665,8 @@ Carpenter Brut - Blood Machines / Кровь машин (Original Motion Picture
 ```bash
 magnet:?xt=urn:btih:B61F5EE09EE4177150AA268BCC8021DE937BD98C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +695,8 @@ Paul Mauriat - The Ultimate Paul Mauriat (2013), (3CD) [OGG Vorbis|485 Kbps] <Cl
 magnet:?xt=urn:btih:3F426B14B04B9476B79D4B9CE68FB7B09F967306
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -674,6 +722,8 @@ Covarino/Incorvaia - Chiodi (2018) [FLAC|Lossless|tracks + .cue] <Acoustic, Ambi
 ```bash
 magnet:?xt=urn:btih:3065B6AA03A1E71BCA4B08EA307F95AFC3391F58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -701,6 +751,8 @@ Enigma - Le Roi Est Mort, Vive Le Roi! (1996) [OGG Vorbis|485 Kbps] <New Age, Am
 ```bash
 magnet:?xt=urn:btih:419659B5305E843B52266522C5B2D2273178233A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

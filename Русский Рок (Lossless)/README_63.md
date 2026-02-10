@@ -1,3 +1,32 @@
+###  Публикация: 1398300   (736190) от 25.07.2020
+
+Коррозия металла - Языческие Боги (2002) [FLAC|Lossless|image + .cue] <Thrash, Punk, Oi>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01	Человек-Динамит-Камикадзе (Music By – Макс С Болтом) 2:20
+02	Веселящий Газ	3:06
+03	Языческие Боги (Music By – Макс С Болтом) 4:28
+04	Хайль Фюрер	3:57(   Читать дальше...   )Жанр: Thrash, Punk, OiПродолжительность: 00:54:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A1734A0F4FD1377AF9D384EF4FEBD426E13CEB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527335   (736901) от 28.01.2022
 
 СЛОТ - Два разных XX. The Best (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal>
@@ -21,6 +50,8 @@
 ```bash
 magnet:?xt=urn:btih:2E205AD8920906C0FACCEF10C94F7C06D2C4682F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -50,6 +81,8 @@ magnet:?xt=urn:btih:2E205AD8920906C0FACCEF10C94F7C06D2C4682F
 magnet:?xt=urn:btih:DC7996A32BA62E6700D2B1D0933ECFECA0D45C1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +109,8 @@ magnet:?xt=urn:btih:DC7996A32BA62E6700D2B1D0933ECFECA0D45C1F
 ```bash
 magnet:?xt=urn:btih:F7EC4FCB9D8344541306F0328B95C543BF506606
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -104,6 +139,8 @@ magnet:?xt=urn:btih:F7EC4FCB9D8344541306F0328B95C543BF506606
 magnet:?xt=urn:btih:4A845BE977AB7AA99EDA75875EA2F9B69B5127DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +167,8 @@ Project NT - Веселые песни о Жизни и Смерти (2019) WEB-
 ```bash
 magnet:?xt=urn:btih:1E96F36019B52945ED86D7495225C9F52D889673
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +197,8 @@ magnet:?xt=urn:btih:1E96F36019B52945ED86D7495225C9F52D889673
 magnet:?xt=urn:btih:7ADE406DCA8E688F436477751AA2F19F88452602
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +225,8 @@ magnet:?xt=urn:btih:7ADE406DCA8E688F436477751AA2F19F88452602
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +255,8 @@ CD 1
 magnet:?xt=urn:btih:9E4196CBFBAC53A54471587DFECF78F8102D63BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +283,8 @@ CD - 1 - Каннибал:
 ```bash
 magnet:?xt=urn:btih:8D575761A407A07B3ACF57EFA56E5D7B4154996C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +313,8 @@ CD - 1 - "Орден Сатаны" (Demo • 1988):
 magnet:?xt=urn:btih:278A641B0B20A2ABB0E563306362B0E439C3840F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +341,8 @@ magnet:?xt=urn:btih:278A641B0B20A2ABB0E563306362B0E439C3840F
 ```bash
 magnet:?xt=urn:btih:BF32487E734CE9189D49AEC1EEE5C58A8B78BB6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +371,8 @@ magnet:?xt=urn:btih:BF32487E734CE9189D49AEC1EEE5C58A8B78BB6A
 magnet:?xt=urn:btih:B285E195CB05FFC228998F5396517667A554AE8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +399,8 @@ magnet:?xt=urn:btih:B285E195CB05FFC228998F5396517667A554AE8A
 ```bash
 magnet:?xt=urn:btih:77C53BA102EEC7DB551A2248BA22704EF02B93CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +429,8 @@ Animal ДжаZ - Хранитель весны (2015) [FLAC|Lossless]<Rock>
 magnet:?xt=urn:btih:6B88844A539AA2A72E1A2EED3888C02BF656D065
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +457,8 @@ magnet:?xt=urn:btih:6B88844A539AA2A72E1A2EED3888C02BF656D065
 ```bash
 magnet:?xt=urn:btih:A6491958A9F07E60440278166ED3E12E30DDC4E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +493,8 @@ magnet:?xt=urn:btih:A6491958A9F07E60440278166ED3E12E30DDC4E0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +521,8 @@ magnet:?xt=urn:btih:A6491958A9F07E60440278166ED3E12E30DDC4E0
 ```bash
 magnet:?xt=urn:btih:359B3EAD53DE2C2CAD984CFE91E6B7FDBC59B1DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +551,8 @@ magnet:?xt=urn:btih:359B3EAD53DE2C2CAD984CFE91E6B7FDBC59B1DB
 magnet:?xt=urn:btih:20B7C0738BC782BD231A63518A8E4F615BD6D296
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +579,8 @@ magnet:?xt=urn:btih:20B7C0738BC782BD231A63518A8E4F615BD6D296
 ```bash
 magnet:?xt=urn:btih:201D8FB9F8271DA68150ABD34323EAD89EF1F5CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +609,8 @@ Kauan - музыкальный проект из Челябинска. Прое�
 magnet:?xt=urn:btih:5C8F95D58EB8A3939D5132293A452C5A69B7B2E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +635,8 @@ magnet:?xt=urn:btih:5C8F95D58EB8A3939D5132293A452C5A69B7B2E8
 ```bash
 magnet:?xt=urn:btih:4F8E2492FCB5454D4D7CDD028A7920106FE4907E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +665,8 @@ magnet:?xt=urn:btih:4F8E2492FCB5454D4D7CDD028A7920106FE4907E
 magnet:?xt=urn:btih:63CA8656EC5D4A9E589B8E42A5FDB978073C65B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +693,8 @@ magnet:?xt=urn:btih:63CA8656EC5D4A9E589B8E42A5FDB978073C65B8
 ```bash
 magnet:?xt=urn:btih:9708967D7FA718F35735E7A5E8DF1A957D5F507C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +723,8 @@ magnet:?xt=urn:btih:9708967D7FA718F35735E7A5E8DF1A957D5F507C
 magnet:?xt=urn:btih:6152385CC93D2D090F279AF16C758562E06B1E99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -675,32 +752,7 @@ magnet:?xt=urn:btih:6152385CC93D2D090F279AF16C758562E06B1E99
 magnet:?xt=urn:btih:0795000D80B49D5431A91208A33A8B6838BE640E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214903   (761289) от 24.03.2018
-
-Lumen - Забытое и найденное (2018) [FLAC|Lossless|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Домой
-02. Пули
-03. Вечность
-04. Самый главный человек(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5A1D9A6C52239DD391E72504AA069D447B696B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

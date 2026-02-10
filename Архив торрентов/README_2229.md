@@ -1,27 +1,3 @@
-###  Публикация: 1259234   (323030) от 02.11.2018
-
-Google Earth Pro 7.3.2.5495 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир, в котором мы живем, теперь у вас под рукой! Корпорация Google выпустила новую версию программного пакета под названием Google Earth. Приложение предназначено для работы с одноименным сервисом, который позволяет просматривать спутниковые снимки планеты Земля в 3D-режиме, используя для этого технологию OpenGL. Присутствуют функции для поиска по адресам, по объектам. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D415EFBC8114BFBCDE09015C10268F86B7A52A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958645   (323090) от 21.11.2015
 
 Microsoft Office 2013 SP1 Standard 15.0.4771.1001 RePack by KpoJIuK [Ru]
@@ -42,6 +18,8 @@ Microsoft Office 2013 SP1 – лучший пакет прикладных пр�
 ```bash
 magnet:?xt=urn:btih:100785ADC57F9CE87EC88C3B875AB8B651E6939B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:100785ADC57F9CE87EC88C3B875AB8B651E6939B
 magnet:?xt=urn:btih:37811DAC7C7E88C0F5FA6C717CA86F250016A197
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:37811DAC7C7E88C0F5FA6C717CA86F250016A197
 ```bash
 magnet:?xt=urn:btih:F475D7B002527ACC38A3FEE24C29E59B2F677FC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ EagleGet - простой менеджер закачек, позволяющи�
 magnet:?xt=urn:btih:C43728D22494EFD3F73750725D1229EE040491EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 magnet:?xt=urn:btih:D1E3BEE845EC4DD0D84E0A8F157FC746DF169E92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +152,8 @@ Armin van Buuren - A State of Trance 790 (2016) [MP3|320 Kbps|image + .cue] <pro
 magnet:?xt=urn:btih:A4C69D315C032739A90904F33ADC490A602F3EC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +177,8 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:7C26CF64F87B1F83E5BD6DF2E34125E2FF852C83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +204,8 @@ MKVToolnix - функциональный набор инструментов д
 magnet:?xt=urn:btih:E8ACD39311374B02D85D3D494C11D903EEC0A2EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +229,8 @@ PeaZip — бесплатный архиватор и графическая о�
 ```bash
 magnet:?xt=urn:btih:58766AB4CEFFD457A3B0234236FF1DB9C88539FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +256,8 @@ Paint.NET - Простой, но мощный и удобный редактор
 magnet:?xt=urn:btih:0224B3ECEBEF90ABA8AD5AAC33741FBC5EDDD8AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +281,8 @@ The Evil Within 2 (2017) [Ru/Multi] (1.03/u1) License CODEX [patch]
 ```bash
 magnet:?xt=urn:btih:365B859B0538000CFC9D55BFC22E5AFA70626D85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +308,8 @@ SamDrivers 17.11 - LAN [Multi/Ru]
 magnet:?xt=urn:btih:3DF7BC727E5E632F22E3229E17BAD40BCCD49388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +333,8 @@ Opera 49.0.2725.34 Stable RePack (& Portable) by D!akov [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5714D7119A47936DC2FB0367413EB19C1FB3EF50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +360,8 @@ Path Finder - один из лучших файловых менеджеров, 
 magnet:?xt=urn:btih:4818BE97B2C46600A6F4C9EC01EADD9CC2B29918
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +385,8 @@ magnet:?xt=urn:btih:4818BE97B2C46600A6F4C9EC01EADD9CC2B29918
 ```bash
 magnet:?xt=urn:btih:2036391C8408AE587CE1D70802C358EC3E731D86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +412,8 @@ Sexy Women Wallpapers (27.11.12) [Wallpapers 16+]
 magnet:?xt=urn:btih:B93B59D734E027DD8E1E87E3C551497EADE4AAB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +437,8 @@ Women Wallpapers (27.11.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:508FDB8AC4F01F05225115A207612B7ABDB228BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +467,8 @@ VA - L'Histoire des Big Bands (1-10 CD) (2006) [MP3|320 кб/с]<Jazz, Swing, Bo
 magnet:?xt=urn:btih:AD13D2110C5D7B464A4A165B6F210A6ACE822652
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +492,8 @@ Sexy Girls Pack Wallpapers (27.11.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:96C6DB03619E9352F150D60C00FC95707E489255
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +521,8 @@ Luminar первый в мире редактор фотографий, кото
 magnet:?xt=urn:btih:C6FC6E17BC42F0035744187954EFA27D30BC5ED7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +546,8 @@ AMD Catalyst Display Drivers 15.11.1 Beta [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7505AEDA2634358F607D80F258204AE0331F486B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +573,8 @@ magnet:?xt=urn:btih:7505AEDA2634358F607D80F258204AE0331F486B
 magnet:?xt=urn:btih:4B79601A11DF9F629560642624D55FC19367DA97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +598,8 @@ magnet:?xt=urn:btih:4B79601A11DF9F629560642624D55FC19367DA97
 ```bash
 magnet:?xt=urn:btih:C3A18E4CEE2E458B20B98868529AA9728929F15C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +625,8 @@ magnet:?xt=urn:btih:C3A18E4CEE2E458B20B98868529AA9728929F15C
 magnet:?xt=urn:btih:AA31312E40C76399B04396EC24AC56957FE1BF44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +650,37 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:47465964948C6D00B7CB0B1CB01B1F6C8AA04304
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074681   (323303) от 21.11.2016
+
+Holymen - En Od Milvado (2007) [FLAC|Lossless|tracks + .cue] <Psy-Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The World Without End [07:41]
+02.  Red Queen [06:41]
+03.  What Is Reality [07:20]
+04.  Keter [06:39](   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:05:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EE079A66C3E6DF57C67928DFCC599E0671DAABE
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1042269   (579358) от 12.08.2016
+
+День Позора (2011) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм, рассказывающий о мало известных подробностях и обстоятельствах атаки японских вооруженных сил на военную базу Тихоокеанского флота США в Перл-Харборе на Гавайях 7 декабря 1941 года.Телекомпания: Россия, МБ-ГруппЖанр: ДокументальныйПродолжительность: 00:28:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5318CAA778DF25F5635237BE71D9202C07CFD25E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042501   (579407) от 12.08.2016
 
 Лесные братья. Литовский раскол (2004) DVB
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:383D31C24AE6FDACF549478A28AD47EC759A88AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:383D31C24AE6FDACF549478A28AD47EC759A88AA
 magnet:?xt=urn:btih:08D7744B92CD32F1454036B97177454662179C1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:08D7744B92CD32F1454036B97177454662179C1E
 ```bash
 magnet:?xt=urn:btih:DABBF058D5DDBD8D792838B2C6CF1C9FF90942B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +128,8 @@ magnet:?xt=urn:btih:DABBF058D5DDBD8D792838B2C6CF1C9FF90942B7
 magnet:?xt=urn:btih:5A872B41FF0498D067576B9357654FDA6472251F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +153,8 @@ Nat Geo Wild. Дикое меню / Wild Menu (2014) HDTV [H.264/1080i] [26 се
 ```bash
 magnet:?xt=urn:btih:7BBA2F5447CCE84F7B2FC4964C5F299A67A2BF3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:7BBA2F5447CCE84F7B2FC4964C5F299A67A2BF3E
 magnet:?xt=urn:btih:E39E2D12CB94E4D6D3A0D88915C8124E31BCD3E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:E39E2D12CB94E4D6D3A0D88915C8124E31BCD3E3
 ```bash
 magnet:?xt=urn:btih:C989A982E3A321EC08886D1C36078E00FB6C08BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:C989A982E3A321EC08886D1C36078E00FB6C08BB
 magnet:?xt=urn:btih:D5C7CE0D554FBB567894C321048DEAD167916638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:D5C7CE0D554FBB567894C321048DEAD167916638
 ```bash
 magnet:?xt=urn:btih:577FE38770D31CD1D1D9A27B63D48A32EF2C0BBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:577FE38770D31CD1D1D9A27B63D48A32EF2C0BBA
 magnet:?xt=urn:btih:6067A5CA72D9626D1E50DEB16E3BF25F94111B75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:6067A5CA72D9626D1E50DEB16E3BF25F94111B75
 ```bash
 magnet:?xt=urn:btih:3AB1FD95721CC7FDDCEC81140D214188B9A9F406
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:3AB1FD95721CC7FDDCEC81140D214188B9A9F406
 magnet:?xt=urn:btih:63E00025C293448896E7E95F60FC43773DB2BB55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:63E00025C293448896E7E95F60FC43773DB2BB55
 ```bash
 magnet:?xt=urn:btih:9A1DB1D64605333C79377476499BBDD68A47B24C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:9A1DB1D64605333C79377476499BBDD68A47B24C
 magnet:?xt=urn:btih:762661851E71435E1A6EDED7703096A7AE37A193
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:762661851E71435E1A6EDED7703096A7AE37A193
 magnet:?xt=urn:btih:570F672945C504DBF022A02D022992F931346556
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:570F672945C504DBF022A02D022992F931346556
 ```bash
 magnet:?xt=urn:btih:1046C5928B5B79E7BB118C3561AB0800C53ED395
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:1046C5928B5B79E7BB118C3561AB0800C53ED395
 magnet:?xt=urn:btih:4C86E849B157EF7A47187405B8299167DA678D3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:4C86E849B157EF7A47187405B8299167DA678D3E
 ```bash
 magnet:?xt=urn:btih:62A40B617AAAA51EFF2100DB188E17CA8012678D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:62A40B617AAAA51EFF2100DB188E17CA8012678D
 magnet:?xt=urn:btih:10A5805C175852F649D34433ACA0DA5728A4C73D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:10A5805C175852F649D34433ACA0DA5728A4C73D
 ```bash
 magnet:?xt=urn:btih:C88E417743624A65B80D6EA74F3FB56E3CC942F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:C88E417743624A65B80D6EA74F3FB56E3CC942F0
 magnet:?xt=urn:btih:105D33DA4BAB73E40F81D7479C84A08C6418D759
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:105D33DA4BAB73E40F81D7479C84A08C6418D759
 magnet:?xt=urn:btih:011A90DC540E896CAA7D4450AAD8EEDED24DDE28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:011A90DC540E896CAA7D4450AAD8EEDED24DDE28
 ```bash
 magnet:?xt=urn:btih:C119C8C76DB4B55348F6D4C75FD7B3323A3B38DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:C119C8C76DB4B55348F6D4C75FD7B3323A3B38DB
 magnet:?xt=urn:btih:59D41732FD19C061A82E177FA73370C07F44BC76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:59D41732FD19C061A82E177FA73370C07F44BC76
 magnet:?xt=urn:btih:F3B8FE6F4B268CB9D30BC1E0E75E11116FCC3465
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042136   (580537) от 11.08.2016
-
-Курортный роман с властью (2007) DVB
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мало кто знает, что в истории нашей страны был момент, когда столкнулись амбиции первого секретаря Ставропольского крайкома КПСС Михаила Горбачева и первого секретаря Краснодарского крайкома КПСС Сергея Медунова – того самого, чье имя получило знаменитое дело о хищениях на курортах Краснодарского края. Могло ли так статься, что в гору бы пошел Медунов, а не Горбачев? (   Читать дальше...   )Телекомпания: Россия, ООО Телекомпания "МИРА-Продакшн"Жанр: ДокументальныйПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E1092BE3D8F5E50D5AC740CC493A8DCDF27D810
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

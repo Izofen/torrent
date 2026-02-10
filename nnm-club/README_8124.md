@@ -22,6 +22,8 @@ VA - Il Caffe Italiano Firenze (Italian Lounge Espresso Music) (2016) [AAC|~318 
 magnet:?xt=urn:btih:799206FE586F5FE7606CD60F358E7FCE23FF4FAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Davvi - Compilation (2023) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:714D5BA0004AA2AFB2338435C37567727603A29C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:34BB7306F3DDD3760343215E725AD767FE8AA179
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:34BB7306F3DDD3760343215E725AD767FE8AA179
 magnet:?xt=urn:btih:FC9A6615E31213089F644C64EDF5D9230CA53B1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:FC9A6615E31213089F644C64EDF5D9230CA53B1B
 magnet:?xt=urn:btih:D9C86A750C97724B067FE96BDA457037697905D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:D9C86A750C97724B067FE96BDA457037697905D2
 ```bash
 magnet:?xt=urn:btih:CEF289B41D1C920EE9FE5D08C36955F3235C8A7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:CEF289B41D1C920EE9FE5D08C36955F3235C8A7C
 magnet:?xt=urn:btih:01DADFEF5FFC1EE32A1D93BC0BB04D5E9220DB19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ Data Extractor позволяет извлекать данные, содерж�
 magnet:?xt=urn:btih:FF70DD551467E4C4B3208133EC4045508E6E43D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ SyncBird Pro - это файловый менеджер iPhone, который �
 ```bash
 magnet:?xt=urn:btih:C29E6D37148B86EAEF74DCCDF487EFFFC3166E7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ Betelzeus - Shedding the Skin (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom
 magnet:?xt=urn:btih:901B241E32A0E75C37316759929C830B80C6BDA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:901B241E32A0E75C37316759929C830B80C6BDA6
 ```bash
 magnet:?xt=urn:btih:9E439694E240252664C006031447BEC2550C51FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +327,8 @@ VA - Советская Психоделика 1970-80х (1988) [MP3|320 Kbps] <
 magnet:?xt=urn:btih:B05ED77879487C6F1D8D9AEF36056B00EB21A646
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ Icecream Video Converter 1.27 [Multi/Ru]
 magnet:?xt=urn:btih:EBC74CC0AEE46F1FC443257F7E6BFB9A415FD995
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ The Swindle – это игра в стиле стимпанк, в которо�
 ```bash
 magnet:?xt=urn:btih:FAE9BE56EA1517DD714C29536145FA88CBFA20D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +407,8 @@ magnet:?xt=urn:btih:FAE9BE56EA1517DD714C29536145FA88CBFA20D9
 magnet:?xt=urn:btih:AF31EFF4B0BCFC9570F20265BABF80636779B928
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ Text Scanner - это мощный инструмент сканирования
 ```bash
 magnet:?xt=urn:btih:1FE269DED1F042AAD1A904420542DE33839D425C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ VA - Hangover Lounge Grooves, Vol. 1 (2012) [AAC|~337 Kbps] <Lounge, Chill Out, 
 magnet:?xt=urn:btih:3777C5431F33F05480FA13722D53BC1E2483EA45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ magnet:?xt=urn:btih:3777C5431F33F05480FA13722D53BC1E2483EA45
 ```bash
 magnet:?xt=urn:btih:3289DF577E689C4DFEA195EFE5E771AE2D814500
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +518,8 @@ Archon Angel - II (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Progressive
 magnet:?xt=urn:btih:D1775D74A7F04E8DA5DE781F88ECF2195FC39397
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +547,8 @@ VA - 80s Disco - The Ibiza Gold Collection (2000) 2 CD [OGG Vorbis|480 Kbps] <El
 magnet:?xt=urn:btih:A05578E8342AB3AC02D0E834A1CB3C559513B1D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ magnet:?xt=urn:btih:A05578E8342AB3AC02D0E834A1CB3C559513B1D0
 ```bash
 magnet:?xt=urn:btih:A74AEB5F79D5B3B9BC85C8F8A6106BFEFF690353
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +601,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:1EDC55E30AAD899856F11DC0E973562231FBCA66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +626,8 @@ magnet:?xt=urn:btih:1EDC55E30AAD899856F11DC0E973562231FBCA66
 ```bash
 magnet:?xt=urn:btih:5DBF11318333EBB4DD1DA8FC90876AA929AD00EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +656,8 @@ EditReady 2.7 [En]
 magnet:?xt=urn:btih:9299C63692C89CA5E6F15BAD43CAF07FCF51BF82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ magnet:?xt=urn:btih:9299C63692C89CA5E6F15BAD43CAF07FCF51BF82
 ```bash
 magnet:?xt=urn:btih:FD9A963F67832C5AB5511E07A0CAE639CE77DF1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +709,8 @@ Strawberry - музыкальный плеер и органайзер музы�
 ```bash
 magnet:?xt=urn:btih:91EF24E1A2E4243F9D72BA3BD8EB57F011583A7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

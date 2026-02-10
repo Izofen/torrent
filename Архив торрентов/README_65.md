@@ -21,6 +21,8 @@ RustDesk Remote Desktop – программное обеспечение для
 magnet:?xt=urn:btih:847D1B6B205F1E253B2178AF6605E09527E8ACF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Image Uploader - бесплатная программа для Windows c отк
 ```bash
 magnet:?xt=urn:btih:33B53FCA13D045BB015C0AD42CD00C3D0C081F4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Driver Booster сканирует и определяет устаревшие �
 magnet:?xt=urn:btih:3584807622357DE2FA822D4C6E5A9DFC203D3AF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:3584807622357DE2FA822D4C6E5A9DFC203D3AF3
 ```bash
 magnet:?xt=urn:btih:C38B2E36DAA58DC1A4ADF5417A8B0C0E83733202
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Microsoft Activation Scripts (MAS) 3.2 portable [En]
 magnet:?xt=urn:btih:2A86AD8D98F7EDD6B1450BC1A33C763F17A8A7CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Corona Renderer - это популярный рендер-движок для 3
 ```bash
 magnet:?xt=urn:btih:5ADE0AB5E98FB7873223BE92B79337A1CB5E3F0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Smart AudioBook Player Pro v11.2.9 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:865DAF9F1844E4053EFA2C5809E6B0E1BCB08096
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Cockos Reaper является одной из самых продвинутых
 ```bash
 magnet:?xt=urn:btih:6CE9407A108A2205977D802BF226344A1A570CE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ DLNow Video Downloader - быстрое, полезное, практичное 
 magnet:?xt=urn:btih:3082AE941048FCA09714BE9535A38C1F75A124B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:1134C5A4E340BD20F3BE04D783F754BE6DCC9458
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:E8AF7036E325A162FB06B08057CAB09B380588AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ NewPipe x SponsorBlock x Return YouTube Dislike v0.27.7 Mod by baalajimaestro  [
 ```bash
 magnet:?xt=urn:btih:FC2C8DA48D7A4E452C2396736963299817FB3E18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Psiphon - это новый инструмент обхода интернет-�
 magnet:?xt=urn:btih:85F781F710D586189D2977ACF8486B8289EB7307
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ TweakPower – представляет собой единый графичес
 ```bash
 magnet:?xt=urn:btih:4B42C7D5A8A301E38428081335554CF6A77008AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ HDRezka TV — это неофициальный клиент для просм�
 magnet:?xt=urn:btih:2FC1B4ECE699C5E058FF48A297ADD970BCBE8657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:2FC1B4ECE699C5E058FF48A297ADD970BCBE8657
 ```bash
 magnet:?xt=urn:btih:5D587879248D0DA78FF80B8D298087FFB363CCED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ SoundHound — ваше лучшее музыкальное приложение
 magnet:?xt=urn:btih:97ACBF675A2992D3DFF57DE2237B77D2AB2B1430
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ TuneIn объединяет спортивные события, музыку, �
 ```bash
 magnet:?xt=urn:btih:F6A7407D89E6CC2B5A2E115C27D49B7AF7E3290F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ Lighting calculations / Расчеты освещения v6.1.3 Mod by Balatan 
 magnet:?xt=urn:btih:76459DD4CB9BF1D385811AE3A94B6F778EE7834F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ Electrical Cost / Стоимость электроэнергии v6.1.2 Mod by 
 ```bash
 magnet:?xt=urn:btih:EAF1291498CE2A27E42EDB49C0D22E26B115EC7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ Vanced — это модифицированная версия YT, котора
 magnet:?xt=urn:btih:B45F0DBC1A8C28CE7D3383140020B5A7669490EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ magnet:?xt=urn:btih:B45F0DBC1A8C28CE7D3383140020B5A7669490EC
 ```bash
 magnet:?xt=urn:btih:2C67547E97B1BD182B337E898D457CCE6410F027
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ magnet:?xt=urn:btih:2C67547E97B1BD182B337E898D457CCE6410F027
 magnet:?xt=urn:btih:6772F17A1D538B168EB26202B170807A8C7B8D10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ Speedtest - это приложение предназначено для опр
 ```bash
 magnet:?xt=urn:btih:91FF69A79C553C97A73A3CFC1DD98D0C800446D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ UsbTreeView - маленькая портативная утилита, реал
 magnet:?xt=urn:btih:832EFA3898FAFCEABA040768355AB47E6CDFF0FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Windows Manager - это универсальная утилита для Micros
 ```bash
 magnet:?xt=urn:btih:AB388A9E21FD13AFE403E7C6FE9E09101AB65954
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

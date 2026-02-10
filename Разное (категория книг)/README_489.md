@@ -1,3 +1,31 @@
+###  Публикация: 1525969   (738742) от 23.01.2022
+
+Тоби Мидоус | Как создать модный бренд. Все нюансы от игроков fashion-индустрии (2020) [PDF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красочно иллюстрированная книга Тоби Мидоуса расскажет о том, как создать свой успешный бренд модной одежды, обуви или аксессуаров. В ней освещены технические и юридические вопросы: регистрация, налогообложение, производство, взаимодействие с клиентами и байерами через разные каналы – онлайн и офлайн.
+
+Здесь вы также найдёте 15 реальных историй успеха – отличный (   Читать дальше...   )Жанр: Дизайн, Лидерство, Мотивация, Организационный менеджмент, Стартапы и создание бизнесаПеревод: Екатерина ПетроваФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CBB5770F75D6AF981DB82EE187820AC5B1C2D99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526237   (738767) от 23.01.2022
 
 Гаранс Доре | Любовь. Стиль. Жизнь (2016) [PDF, FB2, EPUB, MOBI]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:1247AB88F3C04BDBB06B8DEE780E223ACDCD76C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:1247AB88F3C04BDBB06B8DEE780E223ACDCD76C5
 magnet:?xt=urn:btih:C09B6EF434ABC6738B99ECE94E75D65E4965A744
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +99,8 @@ magnet:?xt=urn:btih:C09B6EF434ABC6738B99ECE94E75D65E4965A744
 magnet:?xt=urn:btih:AF666D03824287BD4D5CCF967D96020B93BC4E09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +124,8 @@ magnet:?xt=urn:btih:AF666D03824287BD4D5CCF967D96020B93BC4E09
 ```bash
 magnet:?xt=urn:btih:7AB9573612C7390D5210772DB07DD974BDAB6C3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +153,8 @@ magnet:?xt=urn:btih:7AB9573612C7390D5210772DB07DD974BDAB6C3F
 magnet:?xt=urn:btih:BB1DC0DD9109B436490EBC977F48BA9C425ABBED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +178,8 @@ magnet:?xt=urn:btih:BB1DC0DD9109B436490EBC977F48BA9C425ABBED
 ```bash
 magnet:?xt=urn:btih:EFC89C54C717E7B3DE08AB32010A9F87BD70BACE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +205,8 @@ magnet:?xt=urn:btih:EFC89C54C717E7B3DE08AB32010A9F87BD70BACE
 magnet:?xt=urn:btih:8E1D7A6E5A1E828B2EC3F1742744416C260A594C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +231,8 @@ magnet:?xt=urn:btih:8E1D7A6E5A1E828B2EC3F1742744416C260A594C
 magnet:?xt=urn:btih:C262BF67273FB27C0C3B681FC4C087AC0B3B8F1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +256,8 @@ magnet:?xt=urn:btih:C262BF67273FB27C0C3B681FC4C087AC0B3B8F1D
 ```bash
 magnet:?xt=urn:btih:754D78121AD395095F4986EDDCFDC498A04F09D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +286,8 @@ magnet:?xt=urn:btih:754D78121AD395095F4986EDDCFDC498A04F09D8
 magnet:?xt=urn:btih:0B4230E2630C0E1F65947C5B4108F2D9F248568A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +314,8 @@ magnet:?xt=urn:btih:0B4230E2630C0E1F65947C5B4108F2D9F248568A
 magnet:?xt=urn:btih:BF138D180618EC5A54292AB0A059377156FA0DAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +340,8 @@ magnet:?xt=urn:btih:BF138D180618EC5A54292AB0A059377156FA0DAD
 magnet:?xt=urn:btih:31BF18C4F76124E5E7BBEB12852FB74C16DCFA17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +365,8 @@ magnet:?xt=urn:btih:31BF18C4F76124E5E7BBEB12852FB74C16DCFA17
 ```bash
 magnet:?xt=urn:btih:7B0EE71D0A42DFADEE0A9F37542B9563C2AE312F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +394,8 @@ magnet:?xt=urn:btih:7B0EE71D0A42DFADEE0A9F37542B9563C2AE312F
 magnet:?xt=urn:btih:2CA6A0A3D5C89BCC67ED77076047A98CF968E0BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +419,8 @@ magnet:?xt=urn:btih:2CA6A0A3D5C89BCC67ED77076047A98CF968E0BF
 ```bash
 magnet:?xt=urn:btih:0A7EED8CE2279F88D9E281874BA2951869129CD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +448,8 @@ magnet:?xt=urn:btih:0A7EED8CE2279F88D9E281874BA2951869129CD8
 magnet:?xt=urn:btih:F3CED8C8741433480F733C4C98AB23A0F28678A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +473,8 @@ magnet:?xt=urn:btih:F3CED8C8741433480F733C4C98AB23A0F28678A5
 ```bash
 magnet:?xt=urn:btih:48BC4858AD2429AB8E69A51F0EE469120AC537CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +500,8 @@ magnet:?xt=urn:btih:48BC4858AD2429AB8E69A51F0EE469120AC537CC
 magnet:?xt=urn:btih:1022A10B3272E9183511748335F7A3E39A6E6AA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +525,8 @@ magnet:?xt=urn:btih:1022A10B3272E9183511748335F7A3E39A6E6AA6
 ```bash
 magnet:?xt=urn:btih:C0A7891115E3317E6F9FB5422CFAF3D1FB088082
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +552,8 @@ magnet:?xt=urn:btih:C0A7891115E3317E6F9FB5422CFAF3D1FB088082
 magnet:?xt=urn:btih:914ED06FD33216426EE15F9BD1BBAA1335441EDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +577,8 @@ magnet:?xt=urn:btih:914ED06FD33216426EE15F9BD1BBAA1335441EDF
 ```bash
 magnet:?xt=urn:btih:857122864810DBF224E528FD0210D2C646F9234D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +604,8 @@ magnet:?xt=urn:btih:857122864810DBF224E528FD0210D2C646F9234D
 magnet:?xt=urn:btih:FF9EA25FDA1B882B2455C6B4E51861210B04C806
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +629,8 @@ magnet:?xt=urn:btih:FF9EA25FDA1B882B2455C6B4E51861210B04C806
 ```bash
 magnet:?xt=urn:btih:6A8AE890F9C45DC1642AFB8A345264318F2ABB91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +656,8 @@ magnet:?xt=urn:btih:6A8AE890F9C45DC1642AFB8A345264318F2ABB91
 magnet:?xt=urn:btih:2CF4892B91744A191179B4D17AA612DDF38E66BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,29 +682,7 @@ magnet:?xt=urn:btih:2CF4892B91744A191179B4D17AA612DDF38E66BA
 magnet:?xt=urn:btih:71AB6CAD8A2503683EF202A5584082DC58F82A14
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283109   (740195) от 16.02.2019
-
-Krause Publications | 2017 Standard Catalog of World Paper Money. General Issues. 1368-1960 16th Edition (2016) [PDF] [En]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стандартный каталог банкнот мира регулярного выпуска Krause с 1368 по 1961 годы, 16-е издание. Это копия официального электронного каталога Krause. Информация удобно упорядочена по странам и выпускам банкнот, что обеспечивает быстрый поиск. Текущее версия каталога содержит более 12000 изображений банкнот, размещённых на 1328 страницах. Каталог также содержит дополнительную (   Читать дальше...   )Жанр: БонистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AED39BF5F9567436E7EB1E1E188AEC79494E885
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

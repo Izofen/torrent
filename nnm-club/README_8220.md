@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:B2704AC59F41EAE131372DEB19B7EF5FAE8D8498
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ WinZip — самая первая и одна из самых популярн�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ dj Alex Spark - Made In Russia (30.04.2012)
 magnet:?xt=urn:btih:64E233E611C02D77426FC745ECFE5E643DD5A8FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:64E233E611C02D77426FC745ECFE5E643DD5A8FE
 magnet:?xt=urn:btih:77801F9797CDC4D3C169DE3588FD4F3898B09406
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:77801F9797CDC4D3C169DE3588FD4F3898B09406
 ```bash
 magnet:?xt=urn:btih:2ACF96582E65E7BA9A0B0FCE7AAA49FF8BEB69BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:2ACF96582E65E7BA9A0B0FCE7AAA49FF8BEB69BA
 magnet:?xt=urn:btih:8BCBFD77AAB62B637FCD09A7A648B408F5E10334
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:8BCBFD77AAB62B637FCD09A7A648B408F5E10334
 ```bash
 magnet:?xt=urn:btih:873007F51677FA09296FB9D5B18683752AF9B35B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:873007F51677FA09296FB9D5B18683752AF9B35B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ SAM CoDeC Pack – В кодек-паке собраны самые качест
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +305,8 @@ Skelator - Agents Of Power (2012) [MP3|320 кб/с]<Epic Power/Heavy Metal>
 magnet:?xt=urn:btih:B7AC82155268853C6C9F653DF80C8A9A72777A88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +334,8 @@ Acheode - Anxiety (2012) [MP3|320 кб/с]<Technical Death / Mathcore>
 magnet:?xt=urn:btih:AF741D5DE80E534FEEA40A1A474AC494779F0367
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +360,8 @@ magnet:?xt=urn:btih:AF741D5DE80E534FEEA40A1A474AC494779F0367
 magnet:?xt=urn:btih:11AAF014A028DF46FCE6EC893EB035BB2FD47821
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +385,8 @@ magnet:?xt=urn:btih:11AAF014A028DF46FCE6EC893EB035BB2FD47821
 ```bash
 magnet:?xt=urn:btih:1E13ACFBA9AA631280EFFC1D5B677C78F1027EC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +419,8 @@ Sepalcure - Sepalcure (2011)
 magnet:?xt=urn:btih:157A78A25CCBD3F629B989401CA21F882F3D0D8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +444,8 @@ magnet:?xt=urn:btih:157A78A25CCBD3F629B989401CA21F882F3D0D8C
 ```bash
 magnet:?xt=urn:btih:4216A6B21675D6D97839B91F4D6A72F5B3D64ECF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +471,8 @@ VA - Club Night May (2012) [MP3|320 кб/с]<Pop,Dance, Club>
 magnet:?xt=urn:btih:1887DB0CA5910AFFA2A43E8EB8CE75099D0BB88A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +496,8 @@ magnet:?xt=urn:btih:1887DB0CA5910AFFA2A43E8EB8CE75099D0BB88A
 ```bash
 magnet:?xt=urn:btih:9AA07D58F036D05CD2DB5CC68E844A5EA7C74526
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +532,8 @@ Scars 19 - Реальность из кошмарных снов (2009)[MP3|320 
 magnet:?xt=urn:btih:8A4B271D647C4C8C26971DB8BA94C917CB2EBE01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +566,8 @@ Sacred Gate - When Eternity Ends (2012) [MP3|320 кб/с]<Traditional Heavy Meta
 magnet:?xt=urn:btih:566F826D6208946287A0F0D8E2E071BC58D4CF8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +591,8 @@ magnet:?xt=urn:btih:566F826D6208946287A0F0D8E2E071BC58D4CF8D
 ```bash
 magnet:?xt=urn:btih:5F6941F295CBBF2A481554E1BAB006301D223908
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +618,8 @@ magnet:?xt=urn:btih:5F6941F295CBBF2A481554E1BAB006301D223908
 magnet:?xt=urn:btih:D94C86BF483B74776A4A8BA5433FC4BE321529C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +643,8 @@ magnet:?xt=urn:btih:D94C86BF483B74776A4A8BA5433FC4BE321529C5
 ```bash
 magnet:?xt=urn:btih:1589DE5BD511621F45D982F3185353C9162C2F5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +675,8 @@ Bud Spencer - People Are Curious But From The Outside (2012) [MP3|320 кб/с]<P
 ```bash
 magnet:?xt=urn:btih:4B6CF191088C50841C2951B04EB3240DFFB96799
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +709,8 @@ Godgory - 4 альбома (1996-2001) [FLAC|Lossless]<Doom Metal, Melodic Death
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -684,6 +734,8 @@ Godgory - 4 альбома (1996-2001) [FLAC|Lossless]<Doom Metal, Melodic Death
 ```bash
 magnet:?xt=urn:btih:C642301925F6655DFFCD0EBC4E99DE4146C1EF9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

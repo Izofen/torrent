@@ -19,6 +19,8 @@ Luminar Neo 1.6.1 [Multi]
 magnet:?xt=urn:btih:B95A23AEBB7E1AD8A6F55BA27F948354CE51FED6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:5CF4A9131B99F7129FE65108F9AD18AC518537D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:5CF4A9131B99F7129FE65108F9AD18AC518537D4
 magnet:?xt=urn:btih:A67F78C694213CD4E9C08735DF95A62F787CEC45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ VideoProc - новая усовершенствованная версия пр�
 ```bash
 magnet:?xt=urn:btih:25EDD72E44479C37C9C1902AAE83F7EFD359539C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Perfectly Clear WorkBench позволяет всего за пару клико
 magnet:?xt=urn:btih:2DA153FF96FA7CC0F834928B07F36FA7AE1108CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Adobe Photoshop Express 11.4.156 Mod by PieMods [Ru/Multi]
 magnet:?xt=urn:btih:0D08EC3AAC0BFA7989284F9D8C7862C51D7DD8EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ iStatistica Pro - подробный монитор системных ресу�
 ```bash
 magnet:?xt=urn:btih:3466305F9B03421F73A50D70F75427B9829E68DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ DearMob iPhone Manager разработан для более безопасно
 magnet:?xt=urn:btih:8D45FF065018A7B6323B8CD01E4F2B7B8E1CE65F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Cockos Reaper является одной из самых продвинутых
 ```bash
 magnet:?xt=urn:btih:8793FC1CC8472CFCB231CDF94F4E988441985727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ KiCad – уникальный в своем роде программный п�
 magnet:?xt=urn:btih:B2A2FF1D360EF62E610861E2BE833E66F7561213
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ FotoJet Collage Maker – это отличный и простой в испо�
 ```bash
 magnet:?xt=urn:btih:F2A734B973032549F88FF1A8F9C4C4795A03FCDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ MEmu позволит играть в любимые игры на персон�
 magnet:?xt=urn:btih:C6DF8D974ACF4431DE086C7F8F0B7028C73D4A9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ VueScan - программа предназначена для замены ст
 magnet:?xt=urn:btih:0DEED850812D7B678E46471685A6D6EE2AC2632B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ TweakPower – представляет собой единый графичес
 ```bash
 magnet:?xt=urn:btih:A33D274B87EDB181DF6BC83E44147459F26372B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ FotoJet Photo Editor - позволяет каждому стать экспер
 magnet:?xt=urn:btih:F1F1E23270F3FE07E8D18C531855F04AD6DAECC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:489033A1B4AA8E49E7E79DFA9E8AB4BB34CE7CA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Media Player Classic Home Cinema - удобный во всех планах м�
 magnet:?xt=urn:btih:677ACE73F07A6C6CB8E515549C793FFA0BED3853
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ FotoJet Designer - это графический редактор, основн�
 ```bash
 magnet:?xt=urn:btih:802095DB30A008F544720419DCEC147BC74AAC13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ DiskDigger - маленькая утилита, с которой можно в�
 magnet:?xt=urn:btih:D13C893B61B64FDC799429ACC216ECA3E73D64D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ OnlySwitch предоставляет серию тумблеров/перекл
 magnet:?xt=urn:btih:9BD6E9B7166D78C22FF3DB17A8094675270BE5CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ VideoProc Converter 4K 5.3 [Multi]
 ```bash
 magnet:?xt=urn:btih:E8BA7B5A786FA9CD1F2008F4B432A424293098F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ OmniFocus Pro 3.14.3 [Multi/Ru]
 magnet:?xt=urn:btih:2FA7D9DC527847742D9E0023DF6BF21B89D481BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ TunesKit Screen Recorder 2.2.0 [En]
 ```bash
 magnet:?xt=urn:btih:22E777D92E69C4DD4ED36F7C27C34F7E521A6B02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ Windows Update Viewer 0.5.25.0 + Portable [En]
 magnet:?xt=urn:btih:3567C2E6B4D4FEE7ED7EAF52FFC503125B5F746A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Statistica - подробный монитор системных ресурсо
 ```bash
 magnet:?xt=urn:btih:3FB8D9354A1505E3B840D884277BA1C2EF669641
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +675,8 @@ Aiseesoft Mac Video Enhancer - новый продукт от компании A
 ```bash
 magnet:?xt=urn:btih:DC4B36994072EB6B9D18CB50C351C8F4A04AD93E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

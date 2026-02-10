@@ -28,6 +28,8 @@ The Overtones - Gambling Man (2012) [MP3|~245 кб/с (V0)]<Pop, Doo-Wop, Vocal 
 magnet:?xt=urn:btih:E100DAE951A84554D4AD74CFBF14F6373BB00AB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ Chilly - We Are The Popkings ... And Other Hits Of (2011) [MP3|320 кб/с]<Elec
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ Cherry Laine - Greatest Hits (2000) [MP3|256 кб/с]<Disco>
 magnet:?xt=urn:btih:8C698E2D97B255E6E3E0D28ECEF63D1D0C4E1A1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +123,8 @@ magnet:?xt=urn:btih:8C698E2D97B255E6E3E0D28ECEF63D1D0C4E1A1A
 ```bash
 magnet:?xt=urn:btih:E7FB5CDF7AF1D207BAC2E795488E599FBF897826
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +159,8 @@ CD-1
 magnet:?xt=urn:btih:14CD2BCC3A2891766B7C5255A68684353626F12D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +194,8 @@ magnet:?xt=urn:btih:14CD2BCC3A2891766B7C5255A68684353626F12D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +223,8 @@ magnet:?xt=urn:btih:14CD2BCC3A2891766B7C5255A68684353626F12D
 magnet:?xt=urn:btih:823A11CFF34D4D96BEDC76D767E78B4C365B9648
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +248,8 @@ Sandra - 18 Greatest Hits (1992) (Japan press) [FLAC|Lossless]<Pop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +284,8 @@ Fancy - Locomotion (2001) [FLAC|Lossless]<EuroDisco>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +319,8 @@ CD 1:
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +347,8 @@ C 1984 года Eros Ramazzotti выпустил 11 студийных альб�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +383,8 @@ East 17 - Dark Light (2012) [MP3|320 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:9C90C77BD9B6781A9E05C43F45896A3F2BC821D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +412,8 @@ Mireille Mathieu - Mon credo (Best Of) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop
 magnet:?xt=urn:btih:3C532A8DF5505679ED3E74C05FED6E3C4FE05191
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +437,8 @@ magnet:?xt=urn:btih:3C532A8DF5505679ED3E74C05FED6E3C4FE05191
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +466,8 @@ VA - ZYX Italo Disco New Generation Vol. 27 (2025) 2CD, Compilation [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:911D7322F2F4A711817AFE09C04C39C13D32B2FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +502,8 @@ magnet:?xt=urn:btih:911D7322F2F4A711817AFE09C04C39C13D32B2FD
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +536,8 @@ Alex Band - We've All Been There [Deluxe Edition] (2010) [MP3|320 кб/с]<Alt. 
 ```bash
 magnet:?xt=urn:btih:D8370A649AEE91003C5ACE58A50E65253E5FF843
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +572,8 @@ Alice de Selys - In A Heartbeat (2012) [MP3|320 кб/с]<Pop, Lounge>
 magnet:?xt=urn:btih:B1230ADA773366ABF365B405DE610B55B45FFE7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +606,8 @@ Georgia Gibbs - The Complete Original Hits Of Georgia Gibbs (2007  (1950-1958)) 
 ```bash
 magnet:?xt=urn:btih:2F4C37046F2FDD534284FBC0672A8A522DF2151F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +642,8 @@ Duffy - Endlessly (2010) [MP3|320 кб/с]<Pop, Soul>
 magnet:?xt=urn:btih:355DEB371587CDA94FAC730D75A745FD67D1C692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +677,8 @@ Florence + The Machine - MTV Unplugged (2012) [m4a|~276  кб/с]<Acoustic, Indi
 magnet:?xt=urn:btih:9C35ACF7C228D1EA497EB84E8F9C0B40B04F6690
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +705,8 @@ VA - Рождественский романс (2015) [MP3|320 Kbps] <Роман
 ```bash
 magnet:?xt=urn:btih:C3A2DC5C8107EA3B913E83C6AEC4FEAD8C106507
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -691,6 +735,8 @@ magnet:?xt=urn:btih:C3A2DC5C8107EA3B913E83C6AEC4FEAD8C106507
 magnet:?xt=urn:btih:FFB990D49DC4B671FA059C5D2AE14301D2A5F798
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -717,6 +763,8 @@ Teach In - See The Sun (1977) Remastered 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop
 ```bash
 magnet:?xt=urn:btih:0457A4A718E26296299CAA54EC9B3E6BB2BEC316
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -745,6 +793,8 @@ AlimkhanOV A. - Black (The 4th Album) (2024) [MP3|320 Kbps] <Italo-Disco, Euro-D
 magnet:?xt=urn:btih:5A64BEC4D256BF702D6D4122F2442F683DD3BD45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -771,6 +821,8 @@ magnet:?xt=urn:btih:5A64BEC4D256BF702D6D4122F2442F683DD3BD45
 ```bash
 magnet:?xt=urn:btih:3B2D692915D17FA6932653B49B6822B9A20BC22E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

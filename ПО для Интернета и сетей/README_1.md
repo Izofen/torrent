@@ -19,6 +19,8 @@ Allavsoft Video Downloader Converter - это мощный видео загру
 magnet:?xt=urn:btih:D08DC452C39365041C0E1EB9DEB60364E42D863E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Cent Browser является усовершенствованной верси�
 ```bash
 magnet:?xt=urn:btih:D56E595E204F685B4E6F92B90312410349BF8DF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Cent Browser является усовершенствованной верси�
 magnet:?xt=urn:btih:B6B1CD3766B1EB4FCC36D7243F4B13EB239A6CD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ YouTube Video Downloader Pro 6.16.2 [En]
 ```bash
 magnet:?xt=urn:btih:661C947A0ADEBA560D7EFEF423D42573F1FAD392
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Element X — это приложение для обмена сообщения
 magnet:?xt=urn:btih:1F078993A4A94830E009E5DD557F785B557B9000
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ RarmaRadio - программа для прослушивания и запис�
 ```bash
 magnet:?xt=urn:btih:EB9E71DE93171C4DA54F165544DBCF7B9700816E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Pale Moon - веб-браузер, созданный на базе популя
 magnet:?xt=urn:btih:D88F03AB810079169B400C06E0EF76262FDDECA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Slimjet 47.0.1.0 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:BDF4E7A6E8C819CFC1075E22B08679602743A7A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Uptooda (бывш. Image Uploader) – бесплатная программа �
 ```bash
 magnet:?xt=urn:btih:CA14B19FDC90C2AE44427FFC8D85CEC85B7D1FEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ FreeTube использует собственный HTTP-API YouTube с наб�
 magnet:?xt=urn:btih:26254A3EED354735F05A94D57FBA727F98BA9DAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:4C95D6A8F6AD07377F6992647D766F58B048879F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Floorp Browser – это модифицированная версия Firefox,
 magnet:?xt=urn:btih:B2578BEEDCF7D6DCF9A53D729A83DD0258073D25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Torrent File Editor 1.0.0 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8AE035C0D107AF84BA00C4D6B37FB5E2C732803A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ RadioMaximus 2.33.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:A277B48C53E0AAD8BC8D35AEEBCC3FBF204EA353
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:73E37F20033F4FCF20A043985060B949FE92D2DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ TapinRadio - интернет радио от компании RaimerSoft (ра�
 magnet:?xt=urn:btih:1BF7BE88F975460D6B33C8A03B54D342E9DB642E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ VCap Downloader (VCapDL) – это универсальное программ�
 ```bash
 magnet:?xt=urn:btih:FD9B6AD54E0E4CD9891A55C2A7A0201911D97C7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ DLNow Video Downloader - быстрое, полезное, практичное 
 magnet:?xt=urn:btih:FF0725B1169AFC7018429CF700349194636EA138
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:FF0725B1169AFC7018429CF700349194636EA138
 ```bash
 magnet:?xt=urn:btih:E9A15F61D247646404D4F3EFA19F530CFC0BC716
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ The Bat! – общепризнанная система обработки эл
 magnet:?xt=urn:btih:D6BF93DEC2162AA0338F403C23529169321E0DF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Uptooda (бывш. Image Uploader) – бесплатная программа �
 ```bash
 magnet:?xt=urn:btih:59086CFCEB02397CD89C07F28873DA029B0B786C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Recordify — этопрограммное обеспечение на базе 
 magnet:?xt=urn:btih:642460B8648A40AB138FE77E126C2FD7383B6930
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Opera One 122.0.5643.92 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:303B826991310DD68335A08468396B16B0F83008
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ Chromium-Gost — это модификация стандартного бра�
 ```bash
 magnet:?xt=urn:btih:110B7D496761AAE8386CBC22D6007D67F1714DCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Universal Media Server поддерживает все основные опер
 magnet:?xt=urn:btih:CBF44F2B46DB7AD3CCE2B39377447EEC1E025FFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Cent Browser является усовершенствованной верси�
 ```bash
 magnet:?xt=urn:btih:0DF8E628BF6132C72C7E9EAF9E5E358054026097
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

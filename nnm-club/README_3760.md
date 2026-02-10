@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B076FF384064E3F8F5942CD40F50F95C469EBD00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ UFO - The Misdemeanor Tour - Live At The Oxford Apollo (1985) Reissue, 2025, HNE
 magnet:?xt=urn:btih:D40626E134C89E927ED0D8F829235CDC4659C9A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:D40626E134C89E927ED0D8F829235CDC4659C9A6
 magnet:?xt=urn:btih:EFDE7581EBAB1329F9BAAFF6963536607F50472A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Cherry Audio - Trident 1.0.10 Standalone, VSTi, VSTi 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:8DC97771F1C381478780289B0AB5DF0CCE973A99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ UJAM - BEATMAKER 3 3.0.2 VSTi, VSTi 3, AAX (x64) RePack by TCD [En]
 magnet:?xt=urn:btih:DF20A164D9ADFC9897EA1B538B41D5DFF7DE9FCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:DF20A164D9ADFC9897EA1B538B41D5DFF7DE9FCC
 ```bash
 magnet:?xt=urn:btih:04DA34F230A182C3AD3A1951990AA0054DC1D8CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:04DA34F230A182C3AD3A1951990AA0054DC1D8CF
 magnet:?xt=urn:btih:FCE514D18EAB222208D7C4FC0AE2782D32115F78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:FCE514D18EAB222208D7C4FC0AE2782D32115F78
 ```bash
 magnet:?xt=urn:btih:D8A130E3D30AB0C4FD0AE6B4AAF8076D5E49A9C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:D8A130E3D30AB0C4FD0AE6B4AAF8076D5E49A9C8
 magnet:?xt=urn:btih:1DCD596CAFE8BFA4474E706DC363FEDE843039FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:1DCD596CAFE8BFA4474E706DC363FEDE843039FE
 magnet:?xt=urn:btih:82F89D0C8854DCCEFBC0A690A774A76518517C39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:82F89D0C8854DCCEFBC0A690A774A76518517C39
 ```bash
 magnet:?xt=urn:btih:12F9B371E6664347093B871978A240834991C3A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:12F9B371E6664347093B871978A240834991C3A0
 magnet:?xt=urn:btih:88FD329104B818EB38EF47698F0494F90785C8AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:88FD329104B818EB38EF47698F0494F90785C8AA
 ```bash
 magnet:?xt=urn:btih:D8630226E27367374DC09E0F5F0F9271663F3AFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ Donald Byrd Sextet With Yusef Lateef & Barry Harris - Complete Recordings (1955)
 magnet:?xt=urn:btih:C8453562763BE536CAD4E9D9B5EA3A7F65E00D96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:C8453562763BE536CAD4E9D9B5EA3A7F65E00D96
 ```bash
 magnet:?xt=urn:btih:24F74FB512C25E6A201C14E63862B785D3561AAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ Voight Kampff - Substance rêve (2018) [FLAC|Lossless|WEB-DL|tracks] <Technical 
 magnet:?xt=urn:btih:DE88ABFF9EAD1488D2AFBB28289E7780A780E1DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:DE88ABFF9EAD1488D2AFBB28289E7780A780E1DD
 magnet:?xt=urn:btih:4057FB16E0DEC2EBEB4662310C4C2C914EDCD272
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ A Better Finder Attributes позволить изменить дату созд
 magnet:?xt=urn:btih:786F68249EAEC4C3D38DAE23B9D4AC24CAA2EBCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:786F68249EAEC4C3D38DAE23B9D4AC24CAA2EBCF
 ```bash
 magnet:?xt=urn:btih:5A8D37E172CA22C066DA4BFFA2C91BEDF4060BCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ Barry Harris - At The Jazz Workshop (1960) 2006, Riverside [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:08867DE1CC186167DECA0B7F11BD60E7F73B5275
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:08867DE1CC186167DECA0B7F11BD60E7F73B5275
 ```bash
 magnet:?xt=urn:btih:AF9E52DC34F57DC7285700D18E8945E51A865411
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ Barry Harris Trio - Preminado (1960, 1961) 1990, Original Jazz Classics [FLAC|Lo
 magnet:?xt=urn:btih:52FC7E1889ED2F3D3D4ECDEC503DED591EED5893
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:52FC7E1889ED2F3D3D4ECDEC503DED591EED5893
 ```bash
 magnet:?xt=urn:btih:B9F5E859753BC089F084ACE8D72AC3D238DFAC35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +643,8 @@ Voight Kampff - More Human than Human (2012) [FLAC|Lossless|image + .cue] <Techn
 magnet:?xt=urn:btih:A1330F846E0473699AC83621C8482204E398E494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ magnet:?xt=urn:btih:A1330F846E0473699AC83621C8482204E398E494
 magnet:?xt=urn:btih:E3F8DA7B9B60641763385C4DC15CF7515A7740A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ magnet:?xt=urn:btih:E3F8DA7B9B60641763385C4DC15CF7515A7740A5
 ```bash
 magnet:?xt=urn:btih:7CBD6C3CB40B791675991737B35393965BFAC21D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

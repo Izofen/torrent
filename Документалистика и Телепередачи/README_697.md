@@ -1,3 +1,30 @@
+###  Публикация: 983267   (943351) от 06.02.2016
+
+Русский удар (2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеканал РЕН ТВ расскажет, как готовятся русские суперсолдаты: от древнерусских воинов до элитных бойцов спецназа, которых уважают даже враги. Впервые зрители увидят тренировки засекреченной структуры «К-9» и получат доступ к эксклюзивным интервью бывших сотрудников ГРУ – только в фильме «Русский удар» на РЕН ТВ.
+Универсальный солдат – не вымышленный герой голливудского (   Читать дальше...   )Телекомпания: РЕН-ТВЖанр: ДокументальныйПродолжительность: 01:23:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7437D468546E58093AD13DF9EC8328831CB4AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983421   (943521) от 06.02.2016
 
 Один в один! Битва сезонов (2016.02.06) SATRip (сезон 1, выпуск 1)
@@ -19,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:9089EA05501DF7FFC8A03C05671A3F43AA005C0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@ magnet:?xt=urn:btih:9089EA05501DF7FFC8A03C05671A3F43AA005C0B
 magnet:?xt=urn:btih:E9DD918122EB87275C7727BEA1A2AFFDB45E9F8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ magnet:?xt=urn:btih:E9DD918122EB87275C7727BEA1A2AFFDB45E9F8D
 ```bash
 magnet:?xt=urn:btih:03DFA5C94DAC788E58322915B090EC6054C89B50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +126,8 @@ magnet:?xt=urn:btih:03DFA5C94DAC788E58322915B090EC6054C89B50
 magnet:?xt=urn:btih:7B5AC4B96D66D29D1318EF9E3764E3E2684F2924
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +151,8 @@ magnet:?xt=urn:btih:7B5AC4B96D66D29D1318EF9E3764E3E2684F2924
 ```bash
 magnet:?xt=urn:btih:E0E76AC3DC284798D11FC3FBF6350097C9823759
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +178,8 @@ magnet:?xt=urn:btih:E0E76AC3DC284798D11FC3FBF6350097C9823759
 magnet:?xt=urn:btih:68D2410EC23DF4A375C98C1FF8065EE5CB3FE83A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +203,8 @@ magnet:?xt=urn:btih:68D2410EC23DF4A375C98C1FF8065EE5CB3FE83A
 ```bash
 magnet:?xt=urn:btih:E927AEF4AF632B8BC01FA29A21552DA696926CDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +230,8 @@ magnet:?xt=urn:btih:E927AEF4AF632B8BC01FA29A21552DA696926CDE
 magnet:?xt=urn:btih:47AECC927DBDC4EAD398E286B02FAC51CB71F732
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +255,8 @@ magnet:?xt=urn:btih:47AECC927DBDC4EAD398E286B02FAC51CB71F732
 ```bash
 magnet:?xt=urn:btih:D23B4B8669ACCB4D5567FF27ED04218D8B26ADD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +282,8 @@ magnet:?xt=urn:btih:D23B4B8669ACCB4D5567FF27ED04218D8B26ADD2
 magnet:?xt=urn:btih:AD651C8A8726775B73F4775798D765255D4A6FC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +307,8 @@ magnet:?xt=urn:btih:AD651C8A8726775B73F4775798D765255D4A6FC1
 ```bash
 magnet:?xt=urn:btih:D44276D741E9CA223A11CFDFE9EF9E0E840DF778
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +334,8 @@ magnet:?xt=urn:btih:D44276D741E9CA223A11CFDFE9EF9E0E840DF778
 magnet:?xt=urn:btih:E9348D4FCAEA86CE20AADFE66AC66D11467A71CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +360,8 @@ magnet:?xt=urn:btih:E9348D4FCAEA86CE20AADFE66AC66D11467A71CA
 magnet:?xt=urn:btih:313A437287EDFAE114143CFA2450B6BEF8F8C9A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +385,8 @@ magnet:?xt=urn:btih:313A437287EDFAE114143CFA2450B6BEF8F8C9A5
 ```bash
 magnet:?xt=urn:btih:861E01671FB321575B622E68E98FEB9528FFF7C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +413,8 @@ magnet:?xt=urn:btih:861E01671FB321575B622E68E98FEB9528FFF7C6
 magnet:?xt=urn:btih:30CBFE72D40D00F5CD710E0BE04A00B63EFD9565
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +438,8 @@ magnet:?xt=urn:btih:30CBFE72D40D00F5CD710E0BE04A00B63EFD9565
 ```bash
 magnet:?xt=urn:btih:C7B47E76F0B1CE33DA41D5492B357F147247978E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +465,8 @@ magnet:?xt=urn:btih:C7B47E76F0B1CE33DA41D5492B357F147247978E
 magnet:?xt=urn:btih:DBAA5ED744D12971A87A02FCFC580096D0FEEB6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +490,8 @@ magnet:?xt=urn:btih:DBAA5ED744D12971A87A02FCFC580096D0FEEB6B
 ```bash
 magnet:?xt=urn:btih:5589BFEF73DFCEA2ECAF379A6FDC55019C08A3D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +517,8 @@ magnet:?xt=urn:btih:5589BFEF73DFCEA2ECAF379A6FDC55019C08A3D2
 magnet:?xt=urn:btih:EAD0F193CADDB466E5D9CB45E39699E3F27C258A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +542,8 @@ magnet:?xt=urn:btih:EAD0F193CADDB466E5D9CB45E39699E3F27C258A
 ```bash
 magnet:?xt=urn:btih:46D355269E07C47CBBA1E41A3B7727EAF97F5FB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +569,8 @@ magnet:?xt=urn:btih:46D355269E07C47CBBA1E41A3B7727EAF97F5FB9
 magnet:?xt=urn:btih:BC5020D250BAE452E90CC36B07843C31FE309410
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +594,8 @@ magnet:?xt=urn:btih:BC5020D250BAE452E90CC36B07843C31FE309410
 ```bash
 magnet:?xt=urn:btih:35C628BE748B7B6828C8B740EC6CF620ABFE5E30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +621,8 @@ magnet:?xt=urn:btih:35C628BE748B7B6828C8B740EC6CF620ABFE5E30
 magnet:?xt=urn:btih:9E195904E50B8A53351B3EAF77702EB2A096061F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +646,8 @@ magnet:?xt=urn:btih:9E195904E50B8A53351B3EAF77702EB2A096061F
 ```bash
 magnet:?xt=urn:btih:A11820D0B1DD40A9B49F6679C448E02547F0670D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,29 +673,7 @@ magnet:?xt=urn:btih:A11820D0B1DD40A9B49F6679C448E02547F0670D
 magnet:?xt=urn:btih:4609DED845A7C59E8C7A57EAE00E1F4DBC6F7DAF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983430   (944044) от 06.02.2016
-
-Центральное телевидение (06.02.2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня мы вылавливаем новости в телеэфире и Интернете, обсуждаем в очередях и в блогах, обмениваемся ссылками на интересные видеоролики и фото и не делим новости на «официальные» и «из жизни». Чтобы вызвать цепную реакцию, любая тема должна отвечать единственному требованию — быть интересной. Тот же принцип положен в основу нового воскресного проекта НТВ «Центральное (   Читать дальше...   )Телекомпания: НТВЖанр: ДокументальныйПродолжительность: 00:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7542E3D52943317EDE0AE9980449629736A86D9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

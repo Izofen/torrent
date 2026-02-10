@@ -19,6 +19,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 magnet:?xt=urn:btih:FCFCB862484210DB19A4EE137C674BBC73F4B469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:FCFCB862484210DB19A4EE137C674BBC73F4B469
 ```bash
 magnet:?xt=urn:btih:491CFFBDB0BB31D8304D103B208DA999FCEBF80F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ EarthView — это динамические обои для рабочего �
 magnet:?xt=urn:btih:9577C9D1D377EA67C944CF3CD99D3A71862E5356
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:9577C9D1D377EA67C944CF3CD99D3A71862E5356
 ```bash
 magnet:?xt=urn:btih:2DA3F388994E5E89C24F63772ED2380B7AAF230C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:2DA3F388994E5E89C24F63772ED2380B7AAF230C
 magnet:?xt=urn:btih:DC38064C185C2DB2F9B4B6CB27783F58C4D32AEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:DC38064C185C2DB2F9B4B6CB27783F58C4D32AEA
 ```bash
 magnet:?xt=urn:btih:116CD9CC57DB275BF179C8C2BA0B22EB509F20A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Mr. Moscow - 9 Albums (2021-2024) [MP3|320 Kbps] <Italo-Disco, Synth-Pop>
 magnet:?xt=urn:btih:1F0E6DA9657864C24618B6699FF4202A6EB27E2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:1F0E6DA9657864C24618B6699FF4202A6EB27E2E
 ```bash
 magnet:?xt=urn:btih:AB311655C7142AFDA9532844919E5A6EB3E75797
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ VA - The Essentials: Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Class
 magnet:?xt=urn:btih:1AF2326726B6851A68C764EE22335A44BDF07760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ Babylon A.D. - Rome Wasn't Built In A Day (2024) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:CE1742733BD0B04913DC25DE6F6F51F484683968
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:CE1742733BD0B04913DC25DE6F6F51F484683968
 ```bash
 magnet:?xt=urn:btih:9D5F3B54B8FBA773481E19C4FE8BC63A6DB2E064
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:9D5F3B54B8FBA773481E19C4FE8BC63A6DB2E064
 magnet:?xt=urn:btih:24922D86B4BCDEAAB4307A7662BE25E6D9107426
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:24922D86B4BCDEAAB4307A7662BE25E6D9107426
 ```bash
 magnet:?xt=urn:btih:D45E6D1C1F82D40C69CDB561BD9CF82ACF7E2438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:D45E6D1C1F82D40C69CDB561BD9CF82ACF7E2438
 magnet:?xt=urn:btih:BAD2B4CAA1F33D92EA546E535C64A677E316D69A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:BAD2B4CAA1F33D92EA546E535C64A677E316D69A
 ```bash
 magnet:?xt=urn:btih:7B43CE1446C7AE4F8753774501EBD7FE37B3018B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ Eguana - Destiny, Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psychill
 magnet:?xt=urn:btih:18A5CFAB03C42B16BDE094F89EC241EF9084AD21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ VA - Déepalma Ibiza 2024 (2024) [MP3|320 Kbps] <House, Deep House, Progressive 
 magnet:?xt=urn:btih:DCD10DB6C8E8E20B13D3A77704212920A4D51CE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ Tokubetsu Hen Hibike! Euphonium: Ensemble Contest Hen | Sound! Euphonium: Specia
 magnet:?xt=urn:btih:73EE85E09EF38F9E01FFAA3D4460BD932E1E55EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ Gekijouban Hibike! Euphonium: Chikai no Finale | Sound! Euphonium: The Movie - O
 ```bash
 magnet:?xt=urn:btih:8DA40B4A7199E206CEF7794349B74336E9E3306A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ VA - Шансон премьера 2023 август (Новые песни. Н�
 magnet:?xt=urn:btih:A3AB74EB646DC92DB9EACBCC227678FF4382818A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:A3AB74EB646DC92DB9EACBCC227678FF4382818A
 magnet:?xt=urn:btih:7439ADB7F1BF7515D9FF288A6440DABFC520159B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ Gekijouban Hibike! Euphonium: Todoketai Melody | Играй, эуфониум! �
 magnet:?xt=urn:btih:6B26AB1EFE3266204B586C525E05802C7783CDB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:309A3543C4C2C76E7199572EDE55AB850DFD5EB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ VA - Big City Afternoon Chill Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Loung
 magnet:?xt=urn:btih:3441CFFF3F59FFEB0236AE651A5C2C7F52CA4739
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ Spyro Gyra - Catching The Sun (1980) 1994, BMG Music [FLAC|image+.cue]<Smooth, J
 magnet:?xt=urn:btih:27EA06C666821BB1CEECFA54A85FC03D22049824
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:27EA06C666821BB1CEECFA54A85FC03D22049824
 ```bash
 magnet:?xt=urn:btih:58BC1EC513255DE085B5FA2D6F66CFA52267DD2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

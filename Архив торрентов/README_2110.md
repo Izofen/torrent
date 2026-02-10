@@ -19,6 +19,8 @@ Firefox - очень интересный продукт, который при�
 magnet:?xt=urn:btih:936660DE48D7D4F4F98DBB0449ECD5EFD9AC642B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:936660DE48D7D4F4F98DBB0449ECD5EFD9AC642B
 ```bash
 magnet:?xt=urn:btih:18E25434959ADE9B2D6E87535634C5BB7299667C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:18E25434959ADE9B2D6E87535634C5BB7299667C
 magnet:?xt=urn:btih:6D32D15C2D46BE6FFD5442C8F9261646A0E03772
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:6D32D15C2D46BE6FFD5442C8F9261646A0E03772
 ```bash
 magnet:?xt=urn:btih:7B9F58417701720EBA7829F87D727BC190EB17A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:7B9F58417701720EBA7829F87D727BC190EB17A8
 magnet:?xt=urn:btih:DF290131F00B7CA508FE04FA8C84564A2EED89D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ Stand Up (2017.11.19) WEB-DLRip (сезон 7, выпуск 8)
 ```bash
 magnet:?xt=urn:btih:F7B33A00F468EF98DAC94BBBBE185BA9EF39309D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Stand Up (2017.11.19) HDTV [H.264/1080i-LQ] (сезон 7, выпуск 8)
 magnet:?xt=urn:btih:E3C731CD32429A6F7E748EA13075027E22977C2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:E3C731CD32429A6F7E748EA13075027E22977C2C
 magnet:?xt=urn:btih:B534CFB98669C61E2866955BE1ED4F852F2B6DA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ VidCoder 2.62 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B6024D74BADD3C284179E1643969FA16741A6060
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ Downie поддерживает более 1,100 популярных сайто
 magnet:?xt=urn:btih:5795FE862E69E4A5EB80DFC1A5DA6D70BB9FFBC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ Inner Sync (aKa Cymatics) - Old Skool Trance Anthems (2015) [MP3|320 кб/с]<Tr
 magnet:?xt=urn:btih:974866C86A9CE7C9BB09BC3A0081BDAE209231B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ Block auto-update 1.1 Portable [En]
 magnet:?xt=urn:btih:92941E1A6ECCFECADE4A53F15D2016D11C7C1DF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:92941E1A6ECCFECADE4A53F15D2016D11C7C1DF1
 ```bash
 magnet:?xt=urn:btih:A2999EF9CC93F45860BBCE32F65CC082302137D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:A2999EF9CC93F45860BBCE32F65CC082302137D1
 magnet:?xt=urn:btih:BFFC744D7A42B2854233B65416D0B287BD20629C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ XMedia Recode - отличная утилита, цель которой - по�
 ```bash
 magnet:?xt=urn:btih:57E159350AFCEAE7717230EF73973F697699F59F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ CD1:
 magnet:?xt=urn:btih:F648AC08DEFB2CBBEAABCB3F88C056797E62AFEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ Uninstaller sensei - приложение для полного удаления
 magnet:?xt=urn:btih:B9BA6B20B54407A1AA9995555E3BAC533A2AE34F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ WinUtilities - системный набор для настройки ваше�
 ```bash
 magnet:?xt=urn:btih:2E266B69FF151EC4273BB8556AFFEBC71B5E36D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +516,8 @@ Doo превращает ваши напоминания в карты, кото
 magnet:?xt=urn:btih:138A6F9896DE2864E86F7EE9009C73B7A057CBBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:138A6F9896DE2864E86F7EE9009C73B7A057CBBC
 ```bash
 magnet:?xt=urn:btih:7CAA96C02ABCD7D0C4DA3ED61DCEB796D4DBBAEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:7CAA96C02ABCD7D0C4DA3ED61DCEB796D4DBBAEE
 magnet:?xt=urn:btih:0475BF82F71086BA5E0F87BB6DA6EE43DCD1939D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ magnet:?xt=urn:btih:0475BF82F71086BA5E0F87BB6DA6EE43DCD1939D
 ```bash
 magnet:?xt=urn:btih:3687418BC3F951CA97C8107394BA194C008FCEE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +621,8 @@ magnet:?xt=urn:btih:3687418BC3F951CA97C8107394BA194C008FCEE4
 magnet:?xt=urn:btih:34D5449CD7511ED197414B0DEE36FD69D3CA3943
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ oCam Screen Recorder - бесплатная программа, позволяю
 ```bash
 magnet:?xt=urn:btih:E0071C9432AA9746B54592997E0CA67F79EDD482
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +673,8 @@ The Lord of the Rings: Middle-earth Defense - – это не просто иг�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ The Lord of the Rings: Middle-earth Defense - – это не просто иг�
 ```bash
 magnet:?xt=urn:btih:714C421FF1E2C6BC6EAC614E60378E281A59C750
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

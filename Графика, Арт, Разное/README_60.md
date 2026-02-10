@@ -1,52 +1,3 @@
-###  Публикация: 1323598   (435815) от 04.09.2019
-
-Desktop Wallpapers Full HD. Part (507) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09E27D24F5E1DD418CFA5A0B1E2565832AB22559
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945116   (435835) от 09.10.2015
-
-Картинки - Wallpaper Macro Selection Set2 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть картинок в стиле макро съёмки.
-Подборка TRECA & MOXOMOR akaФормат: JPGРазрешение файлов: 1920х1080 - 8736х5824
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E22D2425AF0485DEFFB186902B53367556CC76A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945243   (435836) от 09.10.2015
 
 Обои - Wallpapers Mix [JPG]
@@ -67,6 +18,8 @@ magnet:?xt=urn:btih:E22D2425AF0485DEFFB186902B53367556CC76A2
 ```bash
 magnet:?xt=urn:btih:9703E1A52D9299F6203544A44A878F7D40FCD2AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +45,8 @@ magnet:?xt=urn:btih:9703E1A52D9299F6203544A44A878F7D40FCD2AA
 magnet:?xt=urn:btih:423C837545C44560766C441886A474D91AE7F5ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +70,8 @@ magnet:?xt=urn:btih:423C837545C44560766C441886A474D91AE7F5ED
 ```bash
 magnet:?xt=urn:btih:D201B07A826D35AAEB734D75F0A975DC1985211D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +97,8 @@ Artworks by Владимир Казак.
 magnet:?xt=urn:btih:9DC9EA06B83B26801617593915AC7A9F7A3B1BF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +122,8 @@ magnet:?xt=urn:btih:9DC9EA06B83B26801617593915AC7A9F7A3B1BF4
 ```bash
 magnet:?xt=urn:btih:C1B85A39AD8BEF5FB47816AD86FE0DC5CB9D6ED6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +149,8 @@ Best HD Wallpapers Pack (30.09.12) [Wallpapers]
 magnet:?xt=urn:btih:264F389DFB4DA28CE10796D6F377DD3B2DD621EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +174,8 @@ magnet:?xt=urn:btih:264F389DFB4DA28CE10796D6F377DD3B2DD621EA
 ```bash
 magnet:?xt=urn:btih:237BA91F16D4860C8E7F2DD18180D225917414D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +201,8 @@ magnet:?xt=urn:btih:237BA91F16D4860C8E7F2DD18180D225917414D9
 magnet:?xt=urn:btih:B91F15BB63EFBCE4AE3176644DEC5210A630EB4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +226,8 @@ magnet:?xt=urn:btih:B91F15BB63EFBCE4AE3176644DEC5210A630EB4A
 ```bash
 magnet:?xt=urn:btih:F177B11BD74A697A3650E2CE6A85BDCE2EF7BA9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +253,8 @@ magnet:?xt=urn:btih:F177B11BD74A697A3650E2CE6A85BDCE2EF7BA9F
 magnet:?xt=urn:btih:70E7114BA3165A19D465811614143D349394556A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +278,8 @@ magnet:?xt=urn:btih:70E7114BA3165A19D465811614143D349394556A
 ```bash
 magnet:?xt=urn:btih:60573FC8E29D26CCE9BAB79E835E7AF8A1F3594C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +305,8 @@ magnet:?xt=urn:btih:60573FC8E29D26CCE9BAB79E835E7AF8A1F3594C
 magnet:?xt=urn:btih:6AB5BC6D56422D403D702B89DF111966FF5D8563
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +330,8 @@ magnet:?xt=urn:btih:6AB5BC6D56422D403D702B89DF111966FF5D8563
 ```bash
 magnet:?xt=urn:btih:070BD578C4F34BE34C88D39558470D941D70FD3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +357,8 @@ magnet:?xt=urn:btih:070BD578C4F34BE34C88D39558470D941D70FD3E
 magnet:?xt=urn:btih:87CB0E1DE71382A3CB3B2A01B9C7FE7F06464737
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +382,8 @@ magnet:?xt=urn:btih:87CB0E1DE71382A3CB3B2A01B9C7FE7F06464737
 ```bash
 magnet:?xt=urn:btih:CAB55470F089BEF4057849A057CFDE220F33A29A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +409,8 @@ magnet:?xt=urn:btih:CAB55470F089BEF4057849A057CFDE220F33A29A
 magnet:?xt=urn:btih:5640BCF72C7D82099138E3F4D901315E03137553
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +434,8 @@ magnet:?xt=urn:btih:5640BCF72C7D82099138E3F4D901315E03137553
 ```bash
 magnet:?xt=urn:btih:FC19C26BEC7CFA2F392F1EF10619EE372C41DD97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +461,8 @@ magnet:?xt=urn:btih:FC19C26BEC7CFA2F392F1EF10619EE372C41DD97
 magnet:?xt=urn:btih:D24779B11DA462DB2005191A6A3C02F6CBCF745C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +486,8 @@ magnet:?xt=urn:btih:D24779B11DA462DB2005191A6A3C02F6CBCF745C
 ```bash
 magnet:?xt=urn:btih:FFD70751F8078BF69F59AA5718417AED7EB99BEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +513,8 @@ magnet:?xt=urn:btih:FFD70751F8078BF69F59AA5718417AED7EB99BEF
 magnet:?xt=urn:btih:B9B0F9B75E585796A332C12F137313D7473FA3FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +538,8 @@ magnet:?xt=urn:btih:B9B0F9B75E585796A332C12F137313D7473FA3FA
 ```bash
 magnet:?xt=urn:btih:4BE368D10789FF6F183C72898E60A5D034B3CB90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +565,8 @@ magnet:?xt=urn:btih:4BE368D10789FF6F183C72898E60A5D034B3CB90
 magnet:?xt=urn:btih:3E276EB22D5D6AD4813381332417EE8C6D5CC8D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +591,8 @@ magnet:?xt=urn:btih:3E276EB22D5D6AD4813381332417EE8C6D5CC8D3
 magnet:?xt=urn:btih:0F5A6D53602F533AA63FB19732C1643C70F0A680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +616,60 @@ magnet:?xt=urn:btih:0F5A6D53602F533AA63FB19732C1643C70F0A680
 ```bash
 magnet:?xt=urn:btih:6602C54980C7AA9D762F8CC24C513EBF32A89647
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944632   (440232) от 07.10.2015
+
+Обои - Amazing Mountain Lakes HD Wallpapers 2 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои на тему горных озёрФормат: JPGРазрешение файлов: 1920x1200 - 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3A20423FE36E489A1AA67378C0D1C2064480F1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248581   (442042) от 20.09.2018
+
+Картинки - Deeezy - 20 Free Landscape Photos [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные фото пейзажей. Материал раздается с официальной документацией.Формат: JPGРазрешение файлов: 2955 x 4644 - 5184 x 3456
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E52B0EE4AB89A418A3068262279494D199477110
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:557CF93F0B48DC13C47A31E8A82BA7E857B4E741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:557CF93F0B48DC13C47A31E8A82BA7E857B4E741
 ```bash
 magnet:?xt=urn:btih:0E32D35E815219A32618E75E1B69F26FA69EA9FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:0E32D35E815219A32618E75E1B69F26FA69EA9FD
 magnet:?xt=urn:btih:35AFACE673328BDFBA81518342086CE01D28956B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:35AFACE673328BDFBA81518342086CE01D28956B
 ```bash
 magnet:?xt=urn:btih:68A2F2366828A6EAAC7E699DC5241EC531514C57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:68A2F2366828A6EAAC7E699DC5241EC531514C57
 magnet:?xt=urn:btih:053A515020818F949570491629D61C2DA9ECB94E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:053A515020818F949570491629D61C2DA9ECB94E
 ```bash
 magnet:?xt=urn:btih:8026D53D87B074BA632F97E311F7576DB8A35F72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:8026D53D87B074BA632F97E311F7576DB8A35F72
 magnet:?xt=urn:btih:965848580B17D079C123A272ADB5FE48196FAADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ VA - Про жуликов и воров (2012) [MP3|320 Kbps] <Chanson>
 magnet:?xt=urn:btih:109A3CDE7667C57B765B99845E23CFF4BCA3DD57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ magnet:?xt=urn:btih:109A3CDE7667C57B765B99845E23CFF4BCA3DD57
 ```bash
 magnet:?xt=urn:btih:AF071B127EE128221FDC05894AED0995B70683DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ VA - Двойное удовольствие - 2 (2024) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:33E41C74DA9C565E12C386020882759E3D7137F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ VA - Гуляй, душа! (Душевные песни) (2024) [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:EB4F5AEBF92275FA6D082D1A89692E739467861A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +338,8 @@ magnet:?xt=urn:btih:EB4F5AEBF92275FA6D082D1A89692E739467861A
 magnet:?xt=urn:btih:C8AFFF1F710A79BE0744DEA74B850210D161471F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ magnet:?xt=urn:btih:C8AFFF1F710A79BE0744DEA74B850210D161471F
 ```bash
 magnet:?xt=urn:btih:9F74B7D75D5AE8E5C189B8F5E5B6A9D8A512976F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ magnet:?xt=urn:btih:9F74B7D75D5AE8E5C189B8F5E5B6A9D8A512976F
 magnet:?xt=urn:btih:DBD5D651B94E2C555134D0C0FBF477CFD2E5B475
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ magnet:?xt=urn:btih:DBD5D651B94E2C555134D0C0FBF477CFD2E5B475
 ```bash
 magnet:?xt=urn:btih:13C5936BD4E5305A126A8A3F5F0841FF30F14C7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ magnet:?xt=urn:btih:13C5936BD4E5305A126A8A3F5F0841FF30F14C7D
 magnet:?xt=urn:btih:F566DCACDDF4FA3CB664F09E781EEAF9D7A26C67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ magnet:?xt=urn:btih:F566DCACDDF4FA3CB664F09E781EEAF9D7A26C67
 ```bash
 magnet:?xt=urn:btih:F96B992DA4AAEB1395F95119749376B189EFE215
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ magnet:?xt=urn:btih:F96B992DA4AAEB1395F95119749376B189EFE215
 magnet:?xt=urn:btih:3B2A6916AFBD2B8CA375CADD7135C10614F88144
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +540,8 @@ magnet:?xt=urn:btih:3B2A6916AFBD2B8CA375CADD7135C10614F88144
 ```bash
 magnet:?xt=urn:btih:6EBDCDC8D336BECDA244E12D6152172B8BF35489
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +570,8 @@ magnet:?xt=urn:btih:6EBDCDC8D336BECDA244E12D6152172B8BF35489
 magnet:?xt=urn:btih:3A544BD528397BAC0DE9F5B370A341C1C9073A53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +598,8 @@ magnet:?xt=urn:btih:3A544BD528397BAC0DE9F5B370A341C1C9073A53
 ```bash
 magnet:?xt=urn:btih:2451860BE24B782CBA03C0F39E51A5779A25035C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +628,8 @@ magnet:?xt=urn:btih:2451860BE24B782CBA03C0F39E51A5779A25035C
 magnet:?xt=urn:btih:89A9BE24A35A0C4ABE13F8AF4CB0F8D15F1F001E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +656,8 @@ magnet:?xt=urn:btih:89A9BE24A35A0C4ABE13F8AF4CB0F8D15F1F001E
 ```bash
 magnet:?xt=urn:btih:5B87EB3AC31CB21CDD3331FCF10438E84B777369
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +686,8 @@ magnet:?xt=urn:btih:5B87EB3AC31CB21CDD3331FCF10438E84B777369
 magnet:?xt=urn:btih:BDFB000C05F708A6909A257F1F90B725A1A6765C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +715,8 @@ VA - Новый хит- 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон,
 magnet:?xt=urn:btih:66C1A2980830A951ED82F8FD8173CF75BA7738DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ VA - Новый Хит Весна (2024) (2024) [FLAC|Lossless|WEB-DL|tracks] <�
 ```bash
 magnet:?xt=urn:btih:CF1C06E9DD89C42A2170319CBD3FD86D4C652B2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

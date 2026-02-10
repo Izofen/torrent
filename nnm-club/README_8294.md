@@ -22,6 +22,8 @@ Kujakuou / Peacock King / Spirit Warrior / Заклинатель Кудзяку
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Kujakuou / Peacock King / Spirit Warrior / Заклинатель Кудзяку
 ```bash
 magnet:?xt=urn:btih:2427E373BC412ECBD5FC52849FAE378231BD215B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -80,6 +84,8 @@ Cosmic Gate - Wake Your Mind (2011)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Cosmic Gate - Wake Your Mind (2011)
 ```bash
 magnet:?xt=urn:btih:22C3978B90E97B160D24DCE9F0E31B7CB1EF9996
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +137,8 @@ magnet:?xt=urn:btih:22C3978B90E97B160D24DCE9F0E31B7CB1EF9996
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ Warlock: Master of the Arcane - новая стратегическая игра
 ```bash
 magnet:?xt=urn:btih:9B10F4DE8D82FC32B986F73CBD04B31FB04A791A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +200,8 @@ Francisco Garcia - Romantic Guitar Hits (3CD) (1993) [MP3|320 кб/с]<Instrumen
 magnet:?xt=urn:btih:F7CF1B7A34F678AFF61D597E38F40CF3FFE7B573
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +228,8 @@ magnet:?xt=urn:btih:F7CF1B7A34F678AFF61D597E38F40CF3FFE7B573
 magnet:?xt=urn:btih:882C532C729A6F3546285E9C56F2ACF1ED8EC307
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +253,8 @@ Kaido Player 7 v.7.1.37.12
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +281,8 @@ Kaido Player 7 v.7.1.37.12
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +306,8 @@ Kaido Player 7 v.7.1.37.12
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +333,8 @@ Kaido Player 7 v.7.1.37.12
 magnet:?xt=urn:btih:05202E5F0A758DEE800FC8CF3B4EED0904629340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +358,8 @@ magnet:?xt=urn:btih:05202E5F0A758DEE800FC8CF3B4EED0904629340
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +385,8 @@ magnet:?xt=urn:btih:05202E5F0A758DEE800FC8CF3B4EED0904629340
 magnet:?xt=urn:btih:30D90E49322E738AA6CA87DC3DBCB52AEF9C4CB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +411,8 @@ magnet:?xt=urn:btih:30D90E49322E738AA6CA87DC3DBCB52AEF9C4CB5
 magnet:?xt=urn:btih:3B31D158397BE631E1CFD21982E1E7AE6A7DD8BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ magnet:?xt=urn:btih:3B31D158397BE631E1CFD21982E1E7AE6A7DD8BD
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +465,8 @@ magnet:?xt=urn:btih:3B31D158397BE631E1CFD21982E1E7AE6A7DD8BD
 ```bash
 magnet:?xt=urn:btih:09D90F0DDD708F90A3F61239070DB9D5CCE5C2AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +501,8 @@ Paradise Lost — метал группа из Великобритании, о�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +526,8 @@ Paradise Lost — метал группа из Великобритании, о�
 ```bash
 magnet:?xt=urn:btih:2E4B5A209C227B9646BDAE6A4CCFDFEBA48E16CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +553,8 @@ magnet:?xt=urn:btih:2E4B5A209C227B9646BDAE6A4CCFDFEBA48E16CD
 magnet:?xt=urn:btih:601BA99B36C9A8E33D17AB79908AC2E47A9194C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +578,8 @@ Windows Tweaker (ранее известная под названием Windows
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +606,8 @@ Windows Tweaker (ранее известная под названием Windows
 magnet:?xt=urn:btih:FF99A7867A42F7E2521D96B89B8A79943D20D87B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +631,8 @@ Bubblenauts: The Hunt for Jolly Rogers Treasure (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:71DCCEE8EE7B49F9151A053682C45F24E875FF52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +658,8 @@ Laser Squad Nemesis — пошаговая тактическая стратег
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +684,8 @@ Laser Squad Nemesis — пошаговая тактическая стратег
 magnet:?xt=urn:btih:310BC496471FDDFD0C5F51BC296906711D8FBE85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ Death Rally [En] (RePack) 1996
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

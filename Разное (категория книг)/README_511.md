@@ -1,3 +1,29 @@
+###  Публикация: 1125145   (773534) от 13.04.2017
+
+Генриетта Гётте | Николаевская Римско-католическая церковь Святого Иосифа (2009) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Краткая история католического храма св. Иосифа в г. Николаеве (Украина), построенного в 1794 году на средства прихожан, рассказанная дочерью последнего органиста Лео Гётте - в годы репрессий верного свидетеля Христа.Жанр: ИсторияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3136EF73E617C4F81F0992D7E961F3D9CB4CEC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 885763   (773555) от 06.04.2015
 
 Марина Ильинская | Как учиться и не испортить зрение (2014) [FB2]
@@ -18,6 +44,8 @@ Must-have для родителей, которые заботятся о зре
 ```bash
 magnet:?xt=urn:btih:66E5BA7DEDC975B9E0214A71C62F3BDC5630B8F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:66E5BA7DEDC975B9E0214A71C62F3BDC5630B8F9
 magnet:?xt=urn:btih:6F3EA866CDA64FC52A460B8B3FA1FB0F0B850E6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:6F3EA866CDA64FC52A460B8B3FA1FB0F0B850E6A
 magnet:?xt=urn:btih:9DC4EA4514FFC1345A9ACC2838728EB30E95CDDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:9DC4EA4514FFC1345A9ACC2838728EB30E95CDDB
 ```bash
 magnet:?xt=urn:btih:9EC9C517F597FCD7F5A11C784C0D02576A57DD7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:9EC9C517F597FCD7F5A11C784C0D02576A57DD7D
 magnet:?xt=urn:btih:39B5455DCCD3C2EB4E576CADFA791BD301E1AA66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:39B5455DCCD3C2EB4E576CADFA791BD301E1AA66
 ```bash
 magnet:?xt=urn:btih:EEBE4C7491E572AEC42B54BB15EF929F747AA942
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:EEBE4C7491E572AEC42B54BB15EF929F747AA942
 magnet:?xt=urn:btih:CB6CF82DD7399E9DA342C5B17C4AB5CF5FD0A5B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:CB6CF82DD7399E9DA342C5B17C4AB5CF5FD0A5B4
 ```bash
 magnet:?xt=urn:btih:9E5E235D892848AE884F79547618761B326B4589
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:9E5E235D892848AE884F79547618761B326B4589
 magnet:?xt=urn:btih:27D3881F1117F444A6A7BDBB89E766F9C30EBDB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:27D3881F1117F444A6A7BDBB89E766F9C30EBDB8
 ```bash
 magnet:?xt=urn:btih:7E7D4EB8D2CDE111745B42088858A417FE66DB27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:7E7D4EB8D2CDE111745B42088858A417FE66DB27
 magnet:?xt=urn:btih:BF3D8B336DB4104A2D16FD6166779F60FC74D885
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:BF3D8B336DB4104A2D16FD6166779F60FC74D885
 magnet:?xt=urn:btih:5A4AA0FBAA4B7CE022D140D302492DD6E61D1F57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:5A4AA0FBAA4B7CE022D140D302492DD6E61D1F57
 ```bash
 magnet:?xt=urn:btih:5316978170E042E264F6E889DCF4F66895734D44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:5316978170E042E264F6E889DCF4F66895734D44
 magnet:?xt=urn:btih:A7DF23E379269C7A48AE0CC19478BDBCAB1B21BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:A7DF23E379269C7A48AE0CC19478BDBCAB1B21BE
 ```bash
 magnet:?xt=urn:btih:F9B0E40FBFBDB695A9E1E66AE72E2FC3AE866AE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:F9B0E40FBFBDB695A9E1E66AE72E2FC3AE866AE2
 magnet:?xt=urn:btih:92FE337E9C952AC34443E2247D44F97561171E5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:92FE337E9C952AC34443E2247D44F97561171E5A
 ```bash
 magnet:?xt=urn:btih:1B409F6E71A5844E858E2F3A894E286537F326CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +499,8 @@ magnet:?xt=urn:btih:1B409F6E71A5844E858E2F3A894E286537F326CA
 magnet:?xt=urn:btih:440DA4D6ABC6A005D4E4CE7AF6C3871478CCC725
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +524,8 @@ magnet:?xt=urn:btih:440DA4D6ABC6A005D4E4CE7AF6C3871478CCC725
 ```bash
 magnet:?xt=urn:btih:6BD7D1CBB5CA97A6F2CB91429F3567AB8F5D54CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:6BD7D1CBB5CA97A6F2CB91429F3567AB8F5D54CD
 magnet:?xt=urn:btih:A44432495BE8AE7D90626DC8E95B8F61DD63F1DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:A44432495BE8AE7D90626DC8E95B8F61DD63F1DB
 ```bash
 magnet:?xt=urn:btih:B1814FD709542ADEC942D9F022134ACC147FAF7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:B1814FD709542ADEC942D9F022134ACC147FAF7E
 magnet:?xt=urn:btih:DA57913D955B7D1FDE790778882D621A120F4A72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:DA57913D955B7D1FDE790778882D621A120F4A72
 ```bash
 magnet:?xt=urn:btih:6C6B834972DF87CCDA0DB9C869F03A61EB1E4A85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:6C6B834972DF87CCDA0DB9C869F03A61EB1E4A85
 magnet:?xt=urn:btih:A6967113C50FEFA074E4B8855A2C8BD42BFBF145
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,30 +681,7 @@ magnet:?xt=urn:btih:A6967113C50FEFA074E4B8855A2C8BD42BFBF145
 magnet:?xt=urn:btih:C1D9FB7CBAAA6B196D3B0D8C27891058CBE7D265
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015038   (775456) от 09.05.2016
-
-Александр Андрианов | Проснись! Действуй прямо сейчас (2016) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга – история победы: над обстоятельствами, ощущением безвыходности и собственной никчемности, ленью и вредными привычками!
-Александр Андрианов, автор книги, был человеком, которому не за что было уважать себя, и от этого он еще больше себя ненавидел и разрушал. Нелюбимая работа изматывала его, превращала каждый день в пытку. Семейная жизнь заставляла его нервничать (   Читать дальше...   )Жанр: ПсихологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD1C56A2D0B26015987B714BB1B8DD3E2339040C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

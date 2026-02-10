@@ -19,6 +19,8 @@ Floorp Browser – это модифицированная версия Firefox,
 magnet:?xt=urn:btih:6607E8DC4A54D1C9DB1C8E0A03642F785066B155
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:6607E8DC4A54D1C9DB1C8E0A03642F785066B155
 ```bash
 magnet:?xt=urn:btih:4DA0B6EE894455332AF9369BC704FDDC517241D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ v2rayN — это универсальный инструмент VPN и про�
 magnet:?xt=urn:btih:9BC21C08BFA6D654C1574789142D44E5709070BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ WinPing - небольшая бесплатная портативная (не �
 ```bash
 magnet:?xt=urn:btih:381295E6CE242D8CACA824D4F8D52BA9E6654BC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ AmanVPN - качественное программное решение как 
 magnet:?xt=urn:btih:7475824DAB786B8744EB1479333D32655517283B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:70886001F68EE060D07A3DA7ADFCEB3A0300DE11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ iTubeGo YouTube Downloader 10.9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:DC69F0C4D0F2932EA5D83991BB8EE9843ED40187
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:E07B153E183DD32C49F917780DDFE15260D0BA6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ MyLanViewer — программа для сканирования и монит
 magnet:?xt=urn:btih:3696E5854DED06703843B7862367F437B99B094D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:DD262BF37F5295A829D2E90499E426A7920ABD0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Pale Moon - веб-браузер, созданный на базе популя
 magnet:?xt=urn:btih:14A9808C9820BD06B5CF5C34BDCF064A90A85544
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Mailbird — очень интересный почтовый клиент. Пр
 ```bash
 magnet:?xt=urn:btih:A80F73A3F19031D82EF7A545CEC3B26778A5DEEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Discord - мессенджер для текстовой, голосовой и 
 magnet:?xt=urn:btih:EA85E98812C7CB715B65B887179ADF6C190E382B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ uTorrent (AdFree) 3.5.5 Build 46552 Stable Portable by A1eksandr1 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:8BDF2E446B8F6FDC4537281C4B10B8A2E0ECEB7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ uTorrent Pro 3.5.5 Build 46552 Stable Portable by A1eksandr1 [Ru/En]
 magnet:?xt=urn:btih:4ECC3E290FB32BBA8E2317B0C1E9481D387F16E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Iridium Browser 116.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:92701A0F4F38090A28FB4FCF0589B0F1C45B8D14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ FreeTube использует собственный HTTP-API YouTube с наб�
 magnet:?xt=urn:btih:B1810F6D4E634D8C8D46F306FB28940573FF69F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Tribler - своеобразный торрент-клиент, позволяю
 ```bash
 magnet:?xt=urn:btih:51B597139A22EB7E61BFE0580437C0AD2672E459
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ SlimBrowser – браузер, построенный на базе Mozilla Fir
 magnet:?xt=urn:btih:4A31D187AC42490EDFAF9DDF6F7BA5CC76708DD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Twinkstar - китайский браузер на базе Chromium. В Twinkst
 ```bash
 magnet:?xt=urn:btih:0558DA70FDBD7B20E81CA5E227CBDDB569D8D9BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:54BEBE329919CA5BE8AD2B6FFFABFB33D9FFFC08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 magnet:?xt=urn:btih:0067DDC0ED50594FD142662C9C98FF616EF8CDBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ MediaHuman YouTube Downloader 3.9.17 (2110) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:C1717C843B9AB7E24EA452C0645391F2B7E53027
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 magnet:?xt=urn:btih:E4E0A5AE67BB43B602F6D70E417FC677D6D75E1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:E4E9A171BEE07EDEB9BB4BEC6B22AB49D0F08298
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ MediaHuman YouTube Downloader 3.9.17 (2210) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BBBB078828E8E8D094874B7730D3E01BB46E86AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

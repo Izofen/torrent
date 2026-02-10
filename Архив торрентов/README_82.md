@@ -20,6 +20,8 @@ Multi Commander - мощный многооконный менеджер фай�
 magnet:?xt=urn:btih:4E63F2FDE894A202B1E6544B29E6731362DBFEF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ AnyDesk 9.5.1 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9638FBEE5B35BF2B27619B6BF18FEA62B8113621
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:85900DF185687765F5398B27BB9174796EFE4E76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ ExtraDisks - это набор инструментов для создания 
 ```bash
 magnet:?xt=urn:btih:16733D2A1A5CC5BEAC8720C7A6A2D09A9CF8125A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Smart AudioBook Player Pro v11.2.2 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:39EB6ED2E338A49C0DEB9FCABF9FA01DDFDD082E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Polarr v6.11.2 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:8FA5A40D9833885D4AD897EC3FC0F568BB9AB8D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:AA4EBF596C2440C750C401132E20D6EED1F0048F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ SoundSwitch — легко переключаемся между звуковы�
 magnet:?xt=urn:btih:5D845BE34078886E78805555ED0C74E1C408881C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ PDF24 Creator - бесплатная программа, которая позв
 magnet:?xt=urn:btih:440FE3E69C94DDD3679F91E93285A430A623259E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:99C3C418B9ABD6E6228C31FC6BA173D31EF302A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ MassTube Plus — очень простая в использовании про
 magnet:?xt=urn:btih:20D02D672DC815F6942851DE06B1E2FC1794C111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:49FE74CAB4F5824A37AE66541B7A9896768EF2CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Windows 7 SP1 7601.27670 x64 3in1 by OneSmiLe [10.04.2025] [Ru]
 magnet:?xt=urn:btih:84516D3AFBB418A49E4F287E50D851206A4EF52A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Aomei Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:ADA539BDF968463515E054511F8ECFBEF19C2034
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ TapScanner — сканер документов, это простой скан
 magnet:?xt=urn:btih:7280AB651EE120456D4FBC2CB323299FA0A1C6AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ PhotoDirector v20.0.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E14631D9ECAE8A4E9CE71B3AD34546FF2B716F55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ Tablacus Explorer - удобный в работе и простой в испо
 magnet:?xt=urn:btih:3D82F28485CD5467FB0596C58DC80327F9BDFA41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:3A52CD1BA35D9CBA52CF5D4891B0808F53734394
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Visual Studio Enterprise 2019 - Интегрированное комплекс�
 magnet:?xt=urn:btih:0F187F348DD521573D2E4D7CFE936B51C431E865
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Squid - рукописные заметки v4.3.0 Mod by Alex.Strannik [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:73EC4ACBC0CBBAA635F29770DA69207497FC35A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 magnet:?xt=urn:btih:789E33C968340AA83988514DD075DB493DD37746
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ UltraSearch Professional находит файлы и папки на локал
 ```bash
 magnet:?xt=urn:btih:220BD9C4D5DA58E5A94AC2BDEA64BA5288FA89D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:220BD9C4D5DA58E5A94AC2BDEA64BA5288FA89D7
 magnet:?xt=urn:btih:67CAAA84AB96E3DAF7D01731666D3406DD48355A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:892B6083503330EA12F5783917B067706697CDBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ eWeather HDF - это точный прогноз погоды от двух м�
 magnet:?xt=urn:btih:2BA911537E4B9B5A732E2D87B0ABE649065748CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:63D5755DADD5C9AB95B4BFE0EE5BEB983596E70A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

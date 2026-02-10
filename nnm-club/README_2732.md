@@ -22,6 +22,8 @@ John Haydock - Change in the Weather (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 magnet:?xt=urn:btih:D1DF6C2BA59BFABB6E8B72EAEED7233EBD7B97BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:D1DF6C2BA59BFABB6E8B72EAEED7233EBD7B97BA
 ```bash
 magnet:?xt=urn:btih:5E163F33A9D67C41BEE5FE0F6B68447D15E65672
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - Abora Progressive: Best of 2021-2024 (Mixed by Ori Uplift) (incl. Original 
 magnet:?xt=urn:btih:9654EEF71E2F77D14C9C609FB6495A90E6F963B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Roadhouse Dogs - Duggan's Conversation Bar (2025) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:0473C73C89C21926F26B94C57A71966F4BF9D49D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Markus Schulz - Global DJ Broadcast New Year's Rehab (2 Hour Indie Dance Mix) (2
 magnet:?xt=urn:btih:278943E7D12C0D0DD6E93317E14EAB9A768E3462
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:278943E7D12C0D0DD6E93317E14EAB9A768E3462
 magnet:?xt=urn:btih:F08959DB23B77A800A1A039ADC88CCB325AD5B54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:F08959DB23B77A800A1A039ADC88CCB325AD5B54
 ```bash
 magnet:?xt=urn:btih:FB601C4ABCDCCC17F33DE1BB5DBD5E3138E4E6C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ Reog - Reog (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
 magnet:?xt=urn:btih:7143FEB21D227CF656E896FCD4697168526412C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:3EA50288E9AE9B4C68E7010A0A49E18DB0800957
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ Aureus — тщательно подобранная коллекция прес
 magnet:?xt=urn:btih:2D9C56B399E4E79C3A654C4C0761D8A622E5B62D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:2D9C56B399E4E79C3A654C4C0761D8A622E5B62D
 ```bash
 magnet:?xt=urn:btih:0A67BA9FEA2CE568A0F7710D614388C5A911814B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ CudaText — абсолютно бесплатный мультиплатфор�
 magnet:?xt=urn:btih:1F3DB36A2F5ED5AB59052C05D61094CB8A82A1A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:1F3DB36A2F5ED5AB59052C05D61094CB8A82A1A4
 magnet:?xt=urn:btih:8E0BA11F361E28BF3209524C79BB36C4C7BF88DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:8E0BA11F361E28BF3209524C79BB36C4C7BF88DA
 ```bash
 magnet:?xt=urn:btih:1F5BABF003A9751F3F426B2EB63C898B7149FF59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ DJJireh - Heavenly Trance Vol. 2 (2014) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:48417255EA15AD13E3403697EA33681806EE47B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:48417255EA15AD13E3403697EA33681806EE47B5
 magnet:?xt=urn:btih:E80472F6CA9D2390C7EF46B833555B1A057F544F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ magnet:?xt=urn:btih:E80472F6CA9D2390C7EF46B833555B1A057F544F
 ```bash
 magnet:?xt=urn:btih:0FC6698125FB775CD5D32BF20BE77214FCFBA075
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ VA - I Love Disco France 80's (2013) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Ita
 magnet:?xt=urn:btih:D9872004CCA3FF6B5663E2BD023216078808CF0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ VA - Pop International Hits (Bossa Nova Lounge Jazz Covers) (2025) [FLAC|Lossles
 magnet:?xt=urn:btih:FB566380E082D87BC6E2A1403922570C350122E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:FB566380E082D87BC6E2A1403922570C350122E4
 ```bash
 magnet:?xt=urn:btih:4368E01F08A77756D087EBE22ABE911FD374CF73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ magnet:?xt=urn:btih:4368E01F08A77756D087EBE22ABE911FD374CF73
 magnet:?xt=urn:btih:E1832EFA3564F5A354990573A328B05651673E88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ magnet:?xt=urn:btih:E1832EFA3564F5A354990573A328B05651673E88
 magnet:?xt=urn:btih:9A4EAE76BE46F8CD97E2B6AE7A0454AA3A32D0A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ magnet:?xt=urn:btih:9A4EAE76BE46F8CD97E2B6AE7A0454AA3A32D0A2
 ```bash
 magnet:?xt=urn:btih:FE334B08C1186C64CC0CB1348DB6D4AD15DA22CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +649,8 @@ VA - Nahawand: Best of 2024 (2025) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:684C1BDE9E817A67D6ED4C0C887CEF5B0DF73D37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ Enchanted Steel - Might and Magic (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Me
 magnet:?xt=urn:btih:C56F0BCAFA63AE54F38AF5B9D453DC3B74AE44C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:C56F0BCAFA63AE54F38AF5B9D453DC3B74AE44C4
 ```bash
 magnet:?xt=urn:btih:0F7455BAF9DB918AAA3B3566D386BE6851A76E54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 982804   (945477) от 05.02.2016
+
+Дафна дю Морье | Монте Верита (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уже несколько десятилетий книги известной английской писательницы Дафны Дю Морье (1907 – 1989) пользуются огромным успехом во всем мире. Писательница – мастер психологического портрета и увлекательного, захватывающего сюжета – создает в своих произведениях таинственную, напряженную атмосферу. За свою долгую жизнь она написала множество романов, рассказов, несколько (   Читать дальше...   )Жанр: Мистическая новеллаПродолжительность: 03:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA5D6D41E1C46D3B05B40650B1EA6E97A81ABCD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 282031   (946001) от 13.01.2011
 
 Андрей Белянин, Галина Черная | Каникулы оборотней (2010) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:2C1015347884FBECDBE7EC78DB95E9DAF7C20CC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:2C1015347884FBECDBE7EC78DB95E9DAF7C20CC1
 magnet:?xt=urn:btih:9AF344199FA458E2CF5F8429F8131192582245E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:9AF344199FA458E2CF5F8429F8131192582245E6
 ```bash
 magnet:?xt=urn:btih:1A073D8FE67BF878328853D1CA9ED975052726D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:1A073D8FE67BF878328853D1CA9ED975052726D7
 magnet:?xt=urn:btih:25C4BDE6EE6D9E667FCEAB0240359B7837A0C6FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:25C4BDE6EE6D9E667FCEAB0240359B7837A0C6FC
 ```bash
 magnet:?xt=urn:btih:6D8533DE97E4EB3D5973DBAF7FEFB73B3A956014
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:6D8533DE97E4EB3D5973DBAF7FEFB73B3A956014
 magnet:?xt=urn:btih:2E91FAB76D14C80568E2DD4E56136A27C1F49476
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:2E91FAB76D14C80568E2DD4E56136A27C1F49476
 ```bash
 magnet:?xt=urn:btih:937BF25805FCB8ADE5E4B20B792D7FFEF7805E89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:937BF25805FCB8ADE5E4B20B792D7FFEF7805E89
 magnet:?xt=urn:btih:6A8179B0DFC7828E1BDE2DACC4CDA2D95C0B979C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:6A8179B0DFC7828E1BDE2DACC4CDA2D95C0B979C
 ```bash
 magnet:?xt=urn:btih:F120B82B808ECD83F1A4D8CAD06A06E65E685A6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:F120B82B808ECD83F1A4D8CAD06A06E65E685A6F
 magnet:?xt=urn:btih:33688E626D5C6CF1248946CD91207FD1E1A8C3A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:33688E626D5C6CF1248946CD91207FD1E1A8C3A8
 ```bash
 magnet:?xt=urn:btih:CFB6289AE050B3B4ADF659AFA202C90DFB2508CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:CFB6289AE050B3B4ADF659AFA202C90DFB2508CD
 magnet:?xt=urn:btih:0EB13F1BB0B121FD31D2F7A84CBC444186F5D614
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:0EB13F1BB0B121FD31D2F7A84CBC444186F5D614
 ```bash
 magnet:?xt=urn:btih:235FF0A6C862E5CA7E96F978444EA514ED75422E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:235FF0A6C862E5CA7E96F978444EA514ED75422E
 magnet:?xt=urn:btih:BF3BBBA69F1BD5F3C3A62E34C43905836B539070
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:BF3BBBA69F1BD5F3C3A62E34C43905836B539070
 ```bash
 magnet:?xt=urn:btih:7A71CF5499292A3FFC38E6D519BF2B19C8D800D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:7A71CF5499292A3FFC38E6D519BF2B19C8D800D7
 magnet:?xt=urn:btih:9821DBA4CD979CDEC3435A325B97FC1505FF633B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:9821DBA4CD979CDEC3435A325B97FC1505FF633B
 ```bash
 magnet:?xt=urn:btih:7D91AAA0EC60212E62944B5931CC554AABFF93C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:7D91AAA0EC60212E62944B5931CC554AABFF93C8
 magnet:?xt=urn:btih:A44BCA3E3AA9903628EB74AF3C8F875E7A0EBB66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:A44BCA3E3AA9903628EB74AF3C8F875E7A0EBB66
 ```bash
 magnet:?xt=urn:btih:1C70FF7FEC78E22F7FA3F920C4750B80190161FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:1C70FF7FEC78E22F7FA3F920C4750B80190161FA
 magnet:?xt=urn:btih:E9638976A0307CD6E19FEE23FE53A8CE789F53CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:E9638976A0307CD6E19FEE23FE53A8CE789F53CA
 magnet:?xt=urn:btih:F2E08AB88B8013370964182202966213CF74CC21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:F2E08AB88B8013370964182202966213CF74CC21
 ```bash
 magnet:?xt=urn:btih:49AEB2241BB79C13A721C853580A831C9715EC8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:49AEB2241BB79C13A721C853580A831C9715EC8C
 magnet:?xt=urn:btih:2A3C74C203E326D80B753B4251573283202A6E7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:2A3C74C203E326D80B753B4251573283202A6E7D
 ```bash
 magnet:?xt=urn:btih:370011FC2B874FF59DCB55C1BB533BE07A97CE84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,29 +684,7 @@ magnet:?xt=urn:btih:370011FC2B874FF59DCB55C1BB533BE07A97CE84
 magnet:?xt=urn:btih:5894BC4BCAB0F92F65F35AE3C04B12B494B7B126
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361544   (951993) от 21.02.2020
-
-Сергей Лукьяненко | Диптаун [3 книги из 3] (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Диптаун – это виртуальный город, созданный скорее волей случая, нежели гением человечества. Тем не менее, он живёт и развивается, обрастая собственными кафе и ресторанами. Здесь даже без труда можно найти работу, а уж о высочайшей степени развития развлекательной индустрии можно даже умолчать, столь высок её уровень…Жанр: ФантастикаЯзык озвучки: РусскийПродолжительность: 33:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E60AB447042D06BD11EF167562A11C80493571DB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

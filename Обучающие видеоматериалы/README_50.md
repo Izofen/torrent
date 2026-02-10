@@ -21,6 +21,8 @@ Microsoft Office Word на протяжении многих лет являет
 magnet:?xt=urn:btih:4C27A67DE4EDC33E59B66D9CF2DD52F10368605D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:4C27A67DE4EDC33E59B66D9CF2DD52F10368605D
 ```bash
 magnet:?xt=urn:btih:BA4A53CE0E3DA0AD6F32C5354868FC4D0FB6218D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Podlodka | Podlodka Techlead Crew #1-5 (2021-2023) WEB-DL [RU] [Обновляе
 magnet:?xt=urn:btih:6F0AF3AFFB071DB137C8A3E6709DAFFD895D6B6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:6F0AF3AFFB071DB137C8A3E6709DAFFD895D6B6B
 ```bash
 magnet:?xt=urn:btih:A19486277E74AC0B14EE16E6571B563AD79B4B7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Udemy, Bhrugen Patel | Full Stack React Bootcamp with .NET API [2023] [10 Projec
 magnet:?xt=urn:btih:430F60A77517927F72E1512272B6D1FE4AC874AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Adobe Lightroom: Практика обработки фотографий» – 
 ```bash
 magnet:?xt=urn:btih:B36CC92628E6F28EEDBA233EFFB170D4D0E2CF2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Tamara Williams Academy, Tamara Williams | The Art of Beauty Masterclass (2023) 
 magnet:?xt=urn:btih:7F1556382A2F8F4C63346459B03387F6840440B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:7F1556382A2F8F4C63346459B03387F6840440B6
 ```bash
 magnet:?xt=urn:btih:2DEC079A4EBF17CBBF74CE7E561D2C4BB80C9B46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Fstoppers, Elia Locardi | Photographing the World 5 - Japan (2023) PCRec [EN]
 magnet:?xt=urn:btih:EC462B26A7D3D52B84B9235D73AC8E3BB7D53E6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Zero To Mastery Academy (ZTM), Jesse Zhou | Three.js Bootcamp: Zero to Mastery (
 ```bash
 magnet:?xt=urn:btih:7D42DE48BA87FFE52075F4A2708BD749BD78FE3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ Udemy, Krishna Lodha | Web GIS development course (2022) WEB-DL [EN / EN Sub]
 ```bash
 magnet:?xt=urn:btih:DE6181E9E083FE05E96E3F2A2272D51726144471
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:DE6181E9E083FE05E96E3F2A2272D51726144471
 magnet:?xt=urn:btih:CDD6CB535EDEA7423F55F93096036A411FDF6A47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:CDD6CB535EDEA7423F55F93096036A411FDF6A47
 ```bash
 magnet:?xt=urn:btih:C95F82EDD72ACBF6D5C70C51A04260986843218D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ Enterclass, Сергей Курбатов | Тихая река (2023) WEB-DL [A
 magnet:?xt=urn:btih:43B5D15CA87154BFF6BAB272371D2D082B5014B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ Bloop Animation, Dillon Gu | Курс по анимации в Blender 2.83 / Bl
 ```bash
 magnet:?xt=urn:btih:74201EF719C558661617D8C3DFC9FB563D4F7723
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:74201EF719C558661617D8C3DFC9FB563D4F7723
 magnet:?xt=urn:btih:73C43747E2E94C45E71B4F70F537CFCB3A1DB60C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ CGMA, Dylan Mellott | Weapons and Props for Games (2017) PCRec
 ```bash
 magnet:?xt=urn:btih:8DE0D4EAB97C08F59395FD8FBEBD9346E5A4F103
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:8DE0D4EAB97C08F59395FD8FBEBD9346E5A4F103
 magnet:?xt=urn:btih:18B29B1278E0660E46997C71B4EFDB75AC76268D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ CGMA, Pete Zoppi | Создание персонажа для фильмов/с�
 magnet:?xt=urn:btih:65F0350B89F2A16A37FCE7F00B3E8683451A2414
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:65F0350B89F2A16A37FCE7F00B3E8683451A2414
 ```bash
 magnet:?xt=urn:btih:C25D7E51012AA27EBD2867324DF0CA8D240F4751
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +565,8 @@ magnet:?xt=urn:btih:C25D7E51012AA27EBD2867324DF0CA8D240F4751
 magnet:?xt=urn:btih:4CAFB0482FEDA6FD03BA9B97A814744EE23B00ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ Michael Pavlovich | Intro To ZBrush 4R7 Part 3 (2015) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:5B34C111400533B7AF81DE2F9A8C67553C9295ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +621,8 @@ Michael Pavlovich | Intro To ZBrush 4R7 Part 1 (2015) PCRec
 magnet:?xt=urn:btih:EC66EEC049DE8D3F57CC3CD3BCE50DAE5969A586
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +647,8 @@ HTML Academy | Профессиональный онлайн-курс JavaScript
 magnet:?xt=urn:btih:C1B164914F1B2AB471C99CBC800EA111A0CADFA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ magnet:?xt=urn:btih:C1B164914F1B2AB471C99CBC800EA111A0CADFA7
 ```bash
 magnet:?xt=urn:btih:25A1099047DC9FFA3CF39CFD8E516EE7C8F1620D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +700,8 @@ magnet:?xt=urn:btih:25A1099047DC9FFA3CF39CFD8E516EE7C8F1620D
 ```bash
 magnet:?xt=urn:btih:BBE6D1AB97C00D8BE4C0F466312B9246D6BFC7A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

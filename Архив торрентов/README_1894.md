@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:7C994918A8238D7150FC9EA3F367B4CD9C1DDAF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ Katana - Storms of War (2012) [MP3|320 кб/с]<Heavy Metal>
 magnet:?xt=urn:btih:0790DF635F2A5A6E247745443CF0BDB60DE6B9D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:0790DF635F2A5A6E247745443CF0BDB60DE6B9D9
 ```bash
 magnet:?xt=urn:btih:E42A16D9B60A42F33AD476FF85334D1BA598E533
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ Adrosoft Steady Recorder - маленькая и очень полезная у�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Adrosoft Steady Recorder - маленькая и очень полезная у�
 ```bash
 magnet:?xt=urn:btih:18F17DA0015EFCA2C04CE155F82770E43B7904E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ M.O.B - Every Single Day (2012) [H.264/720р] WEBRip
 magnet:?xt=urn:btih:EE5AEAD0943F7A735701FE14A3ED741EEF3A63FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:EE5AEAD0943F7A735701FE14A3ED741EEF3A63FC
 magnet:?xt=urn:btih:280551D32B58099D8DE51F4C4177EBD4D9CD3D78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:280551D32B58099D8DE51F4C4177EBD4D9CD3D78
 ```bash
 magnet:?xt=urn:btih:5B4B189BF8BCA4591F2C18842C0A6F7E10BD43CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ A criminal ring kidnaps women and sells them to wealthy clients. When they kidna
 magnet:?xt=urn:btih:8BECCFE7EB06256E812448DFA98BF164DA1D7720
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:8BECCFE7EB06256E812448DFA98BF164DA1D7720
 ```bash
 magnet:?xt=urn:btih:DE09EDD6CFD32F541B4DC3B30A48C5C4FC64B96D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ Yesterday Live - это наш шутливый ответ америкнско�
 magnet:?xt=urn:btih:71B1DD8C5BFE76BFFAAB991FEC7149BFC479F8E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:71B1DD8C5BFE76BFFAAB991FEC7149BFC479F8E8
 ```bash
 magnet:?xt=urn:btih:E03ABC2A10A88D7F9B19DADB6AD7578A36E587F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ VA - High Five - 5 Years of Blue Tunes Records (2011) [FLAC|Lossless]<Psychedeli
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +386,8 @@ Lisa Marie Presley - Storm & Grace (Deluxe Edition) (2012) [MP3|320 кб/с]<Pop
 magnet:?xt=urn:btih:2A0E9D2FADD6BB8F0AFAB7660F87F10352D5C10B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +412,8 @@ magnet:?xt=urn:btih:2A0E9D2FADD6BB8F0AFAB7660F87F10352D5C10B
 magnet:?xt=urn:btih:70592D9130986CD9DC1A39862881C76417743923
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +437,8 @@ magnet:?xt=urn:btih:70592D9130986CD9DC1A39862881C76417743923
 ```bash
 magnet:?xt=urn:btih:FEF0DB75F0712A2C601D3FC669652E38D275BBAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +473,8 @@ magnet:?xt=urn:btih:FEF0DB75F0712A2C601D3FC669652E38D275BBAF
 magnet:?xt=urn:btih:CC1AED0809EDDBF61BA900B54D13DBEBAF45CF30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +502,8 @@ magnet:?xt=urn:btih:CC1AED0809EDDBF61BA900B54D13DBEBAF45CF30
 magnet:?xt=urn:btih:E68C8BA2114F9AD44A6640F3A59B0BA293A11B63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +529,8 @@ NG. Запреты: Знаки Принадлежности / NG. Taboo: Signs o
 magnet:?xt=urn:btih:615E5E40F5041EF3A8DC02AC2AE6F2F3C9EC7E8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +554,8 @@ Photo Collage Max Pro предназначен для создание колл�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +582,8 @@ Photo Collage Max Pro предназначен для создание колл�
 magnet:?xt=urn:btih:DB017FA4DB2BA27D45A7926363F04449FBA8C30F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +609,8 @@ magnet:?xt=urn:btih:DB017FA4DB2BA27D45A7926363F04449FBA8C30F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +645,8 @@ V.A. - Offworld Transmissions volume 2 (2012) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:74EFC0A0D0FA0D95B90A145531B2D30E9F9DCD83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +670,8 @@ Dj Layla feat Sianna - I'M Your Angel (2012) [H.264/1080р] WEBRip
 ```bash
 magnet:?xt=urn:btih:E34004502EC6D3203DB33D1E1A84A1D1E9D8C0CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +703,8 @@ VA - BIG Vocals 2012.3 (16.05.2012)
 ```bash
 magnet:?xt=urn:btih:E49FFA0BC1BD2D8437F7DA2307E36ED612883FC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -688,6 +738,8 @@ magnet:?xt=urn:btih:E49FFA0BC1BD2D8437F7DA2307E36ED612883FC3
 ```bash
 magnet:?xt=urn:btih:00CB572441201230F05608EB641FCEA49C43807E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:2F41648AB7362AA3B60ED64262E2AC3D5F3A4A10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ ABBYY FineReader Pro для Mac распознает документы на ( 
 magnet:?xt=urn:btih:5F458CF17A2C492EEF7AA4B4BB0B142EFDFE42ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Windows Firewall Control - утилита, с помощью которой, в�
 ```bash
 magnet:?xt=urn:btih:64AF8720E28ACC32D9B253368D948CD3D3D48F2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Live синхронизирует все и работает в режиме р�
 magnet:?xt=urn:btih:524E6E0A90FBA3A59D43CE7163EA4344765D7BE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Microsoft Visual C++ Redistributable Package – это распространя
 ```bash
 magnet:?xt=urn:btih:A194959BC0219353FA393CC9F1BF9D717152DF7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Opera 96.0.4693.20 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:952557A8582B41FEAF023F008D0D58FFFA6B2D70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.36.32323.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:A2DCA881311C9F94105B3487AB2EC90ECB11382B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ DAEMON Tools Lite - программа для работы с образами �
 magnet:?xt=urn:btih:62E721FBDC57AADF5E22F19BA58EC9AB79A4FC44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ WinRAR - один из самых известных архиваторов. Т�
 magnet:?xt=urn:btih:1BDEBFA9F2B3EAC18EFC058F171EB405EC8A842E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Balabolka 2.15.0.837 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4984538444290C32EF3E0CC9D5D886B99E2FEB07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ WhatsApp Messenger - кроссплатформенный мобильный м�
 magnet:?xt=urn:btih:1818B07B3CE6703974B679BB5A17FF7262D66A1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Blender - бесплатный редактор трехмерной графи�
 magnet:?xt=urn:btih:78DB8780F362657B525B034AC0A8A4E51531B938
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ OCCT 11.0.21 Final Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E02F181D25A14016F966769C97C2693BD3FFD2B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ WhatsApp Messenger - кроссплатформенный мобильный м�
 magnet:?xt=urn:btih:A2A85C3231AF6498F53961A6259ED1D5B9DEE09E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 magnet:?xt=urn:btih:3292FEA43E9B7F4062B6165C5CF3C49AB75CB2C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ WhatsApp Messenger - это кроссплатформенное приложе�
 ```bash
 magnet:?xt=urn:btih:BB2B9E02F05558A22BA4DFD0F4D2FCF50E71461B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:BB2B9E02F05558A22BA4DFD0F4D2FCF50E71461B
 magnet:?xt=urn:btih:E38EF5747F30B9BFF4B2FA2A54A6185FDF9C2158
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:E38EF5747F30B9BFF4B2FA2A54A6185FDF9C2158
 magnet:?xt=urn:btih:020F0DA19029574A6F4AEF277314CCE5CA5DB8C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ Paint.NET - Простой, но мощный и удобный редактор
 ```bash
 magnet:?xt=urn:btih:BB33236CD71E4B4408DC68598631D91F0FEB5B76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:BB33236CD71E4B4408DC68598631D91F0FEB5B76
 magnet:?xt=urn:btih:12D59D68C1F94E60EDDC6548E6D3809898A81A2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:F1CCD2EC03D150897CC9A89EC90247999BE75E6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ Camtasia Studio - утилита для записи изображения с �
 magnet:?xt=urn:btih:4B0A662132ED035CFCB2BB1F4511C292BE0CA8EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ Total Commander 10.52 (18.02.2023) Portable by MiG [Ru/En]
 magnet:?xt=urn:btih:0E09CF1A291C99E295BB81F80C2C02D07BED6720
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ XtraTools — это универсальный инструмент для оп
 ```bash
 magnet:?xt=urn:btih:4A5A08C35E0179DF69A6133984CBD4132496CB38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ Optimizer рекомендуется использовать после све�
 magnet:?xt=urn:btih:424A0F82B2FD4072F496941A49260CF20EBCC144
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ Rainlendar Pro — календарик для рабочего стола с п
 ```bash
 magnet:?xt=urn:btih:03679E5809FD5B6188D2DEE1F1C9D642F1F32FE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

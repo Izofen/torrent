@@ -23,6 +23,8 @@
 magnet:?xt=urn:btih:A65B971EAEA03A74ECC4A8CEAAD20BE9E6FFC7A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -56,6 +58,8 @@ VA - Музыкальный Эксклюзив от Europa Plus (2012) [MP3|256 
 magnet:?xt=urn:btih:4C5AA24387EC62389D3857D747A053B213307345
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -79,6 +83,8 @@ magnet:?xt=urn:btih:4C5AA24387EC62389D3857D747A053B213307345
 ```bash
 magnet:?xt=urn:btih:C34A3E4F992DAB8A3230D5B3494153522271A862
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -113,6 +119,8 @@ Demon Hunter - True Defiance (2012) [MP3|320 кб/с]<Modern Metal / Melodic Met
 magnet:?xt=urn:btih:F28BBF38D281CB8B467C64696B62C65D3C8E5248
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -136,6 +144,8 @@ magnet:?xt=urn:btih:F28BBF38D281CB8B467C64696B62C65D3C8E5248
 ```bash
 magnet:?xt=urn:btih:D64D83D96C7EBA492D4C2B749A60201849D0F44E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +180,8 @@ Curtis Stigers - Let's Go Out Tonight (2012) [MP3|~245 кб/с (V0)]<Vocal Jazz,
 magnet:?xt=urn:btih:81BE20F60ECDB47A5A3F626AAADBBCB0E6A86301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +214,8 @@ VA - Record Trancemission vol.1 (Mixed by DJ Feel) (29.03.2012) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:9BF0F7B18045B897E558A55114517E05149FA402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +250,8 @@ Mindwave - Concept Of Freedom (2012) [MP3|320 кб/с]<Psychedelic / Progressive
 magnet:?xt=urn:btih:234497A2A5F2D62B3F0D2F4F5C5D92A6C0053C4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +280,8 @@ magnet:?xt=urn:btih:234497A2A5F2D62B3F0D2F4F5C5D92A6C0053C4F
 magnet:?xt=urn:btih:CC797D37FE2FC8AEEDE784D00542F405F309F66E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +309,8 @@ magnet:?xt=urn:btih:CC797D37FE2FC8AEEDE784D00542F405F309F66E
 ```bash
 magnet:?xt=urn:btih:C7E3D404B0FAF72E078780687009945B15645AB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +344,8 @@ VA - Beach Atmosphere (2010) [FLAC|Lossless]<Psychedelic / Progressive>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +369,8 @@ VA - Beach Atmosphere (2010) [FLAC|Lossless]<Psychedelic / Progressive>
 ```bash
 magnet:?xt=urn:btih:FFC3A244F5E6363ED2FF73CAADEF9A81764EBD3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +405,8 @@ VA - Deeper Lounge Line (2012) [MP3|320 kbps]<Chillout | Lounge>
 magnet:?xt=urn:btih:56B19B573EF16512B8164418E9556F09CB23A189
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +430,8 @@ magnet:?xt=urn:btih:56B19B573EF16512B8164418E9556F09CB23A189
 ```bash
 magnet:?xt=urn:btih:CE88649CB98C0A450BE55BFBA0446680EBB9D601
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +457,8 @@ magnet:?xt=urn:btih:CE88649CB98C0A450BE55BFBA0446680EBB9D601
 magnet:?xt=urn:btih:74C7123F3A89AAF9942C134D7DCC8FD6C7C36539
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +483,8 @@ Alcohol 52% - широко известная программа для эмул
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +508,8 @@ Alcohol 52% - широко известная программа для эмул
 ```bash
 magnet:?xt=urn:btih:3E7D7BF076B342ED3FF46328A0ED3446E5E53ABB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +544,8 @@ VA - Mojo Presents - Sticky Soul Fingers - A Rolling Stones Tribute (2012) [MP3|
 magnet:?xt=urn:btih:E6C6684C36819FF5126D26E89844DD7C01BC4299
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +569,8 @@ magnet:?xt=urn:btih:E6C6684C36819FF5126D26E89844DD7C01BC4299
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +605,8 @@ Carmen Maria Vega - Du Chaos Naissent Les Etoiles (2012) [MP3|320 кб/с]<Frenc
 magnet:?xt=urn:btih:CA233DC01781FD3FBDDE0AC1B46B634CCFE841A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +639,8 @@ HostsMan позволяет производить следующие дейст
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +675,8 @@ Florence + The Machine - MTV Unplugged (2012) [m4a|~276  кб/с]<Acoustic, Indi
 magnet:?xt=urn:btih:9C35ACF7C228D1EA497EB84E8F9C0B40B04F6690
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +701,8 @@ magnet:?xt=urn:btih:9C35ACF7C228D1EA497EB84E8F9C0B40B04F6690
 magnet:?xt=urn:btih:528A94EFD735D4720EF83A9EFF74FB2288181670
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -680,6 +726,8 @@ Brainville (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:6E8C79B25FD335BD5ED18E0191E61F076972475F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -706,6 +754,8 @@ magnet:?xt=urn:btih:6E8C79B25FD335BD5ED18E0191E61F076972475F
 ```bash
 magnet:?xt=urn:btih:12EFC40C5DFBDC2E14906644E9677606B809EA96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -739,6 +789,8 @@ VA - Milchbar Seaside Season 4 Compiled by Blank & Jones (2012) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:ACAA8F6F7F282F8435318D928933226B05D8351B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

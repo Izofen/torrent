@@ -1,3 +1,30 @@
+###  Публикация: 1370929   (893585) от 29.03.2020
+
+Первая передача на НТВ. Автомобильная передача (29.03.2020) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Падение бесхозной стены на машины и последствия заезда школьника-водителя.
+«Первая передача» — это познавательный проект про автомобилистов и для автомобилистов — для тех, что хочет из простого автолюбителя стать автопрофессионалом!Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F622E3F7CC57935D1A2FA1D320969549067CCCE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993098   (893590) от 06.03.2016
 
 Марш к фюреру (Марш для вождя) / Der Marsch zum Fhrer (1940) DVDRip
@@ -19,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:335571CF8C44DA4482E54D2AEBA708B7580184D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@ magnet:?xt=urn:btih:335571CF8C44DA4482E54D2AEBA708B7580184D2
 magnet:?xt=urn:btih:001FDA584D2065A07F6EF2BE120451EE160B49BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ magnet:?xt=urn:btih:001FDA584D2065A07F6EF2BE120451EE160B49BF
 ```bash
 magnet:?xt=urn:btih:34A890504EC02418030A1983C2E7F31D56EB783B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:34A890504EC02418030A1983C2E7F31D56EB783B
 magnet:?xt=urn:btih:27150839D4B419A7D3C2279D197B96AB2E794154
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +150,8 @@ magnet:?xt=urn:btih:27150839D4B419A7D3C2279D197B96AB2E794154
 ```bash
 magnet:?xt=urn:btih:72CC0AF1A5F5DB7486091C9810FD3D706A0ACC69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +177,8 @@ magnet:?xt=urn:btih:72CC0AF1A5F5DB7486091C9810FD3D706A0ACC69
 magnet:?xt=urn:btih:CF98683F2F7AC040597A13177D120AFA4F8EADE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +202,8 @@ magnet:?xt=urn:btih:CF98683F2F7AC040597A13177D120AFA4F8EADE6
 ```bash
 magnet:?xt=urn:btih:C2DECFF165EF8432E808924F9DEFF3B1B2C75F3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +229,8 @@ NG. Одиссея Нефертити / Nefertiti's Odyssey (2007) HDTV [H.264/1
 magnet:?xt=urn:btih:6A37F3DDE5EC6250C1CA1A2012137DD70932C441
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +254,8 @@ magnet:?xt=urn:btih:6A37F3DDE5EC6250C1CA1A2012137DD70932C441
 ```bash
 magnet:?xt=urn:btih:11044824BCD9F977CF3625ADEC2F0432E4856CC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +281,8 @@ magnet:?xt=urn:btih:11044824BCD9F977CF3625ADEC2F0432E4856CC2
 magnet:?xt=urn:btih:67661653783123097014344A664D7C73F1D2D146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +306,8 @@ magnet:?xt=urn:btih:67661653783123097014344A664D7C73F1D2D146
 ```bash
 magnet:?xt=urn:btih:0DF429B18864C96EF5200E66FB3E5FAE986FA540
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +333,8 @@ magnet:?xt=urn:btih:0DF429B18864C96EF5200E66FB3E5FAE986FA540
 magnet:?xt=urn:btih:E9BE1F2A83BA34D550F9EE4EE62D5AC064BB01FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +358,8 @@ magnet:?xt=urn:btih:E9BE1F2A83BA34D550F9EE4EE62D5AC064BB01FE
 ```bash
 magnet:?xt=urn:btih:C9E50954EC95159B3907BC78D0CC5ACFC2CE30B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +385,8 @@ magnet:?xt=urn:btih:C9E50954EC95159B3907BC78D0CC5ACFC2CE30B3
 magnet:?xt=urn:btih:B4DF2D4EA6D1F515BA7BFD2BF473E32B6B070EA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +410,8 @@ magnet:?xt=urn:btih:B4DF2D4EA6D1F515BA7BFD2BF473E32B6B070EA9
 ```bash
 magnet:?xt=urn:btih:769E1DF3B5D5576C95077409789DF4E890ADA821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +437,8 @@ magnet:?xt=urn:btih:769E1DF3B5D5576C95077409789DF4E890ADA821
 magnet:?xt=urn:btih:C88EDA874876BFA3F88E8516AB48D20287300325
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +462,8 @@ magnet:?xt=urn:btih:C88EDA874876BFA3F88E8516AB48D20287300325
 ```bash
 magnet:?xt=urn:btih:864C1E50C9F9FB3D26CEEA96233781382081DF82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +489,8 @@ magnet:?xt=urn:btih:864C1E50C9F9FB3D26CEEA96233781382081DF82
 ```bash
 magnet:?xt=urn:btih:57E156B677E5400CBC6752904E5C20BD85344BB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +518,8 @@ magnet:?xt=urn:btih:57E156B677E5400CBC6752904E5C20BD85344BB0
 magnet:?xt=urn:btih:8186E638D8BD43A34F172FB4582152AAB302CD74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +543,8 @@ magnet:?xt=urn:btih:8186E638D8BD43A34F172FB4582152AAB302CD74
 ```bash
 magnet:?xt=urn:btih:9A5D51B4089EDE955F03829128DF9E497942DCD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +570,8 @@ magnet:?xt=urn:btih:9A5D51B4089EDE955F03829128DF9E497942DCD8
 magnet:?xt=urn:btih:F27B0FC67BF1525C997188D2E40F009E3922D576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +595,8 @@ magnet:?xt=urn:btih:F27B0FC67BF1525C997188D2E40F009E3922D576
 ```bash
 magnet:?xt=urn:btih:7B439BFDAC1050B630D3E4695CE852861D32875C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +622,8 @@ magnet:?xt=urn:btih:7B439BFDAC1050B630D3E4695CE852861D32875C
 magnet:?xt=urn:btih:3486F49D7A83349C8D8992CE0DD6A1C8244A8591
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +647,8 @@ magnet:?xt=urn:btih:3486F49D7A83349C8D8992CE0DD6A1C8244A8591
 ```bash
 magnet:?xt=urn:btih:571A43E13A9B84DB1F4A21C770B66958B630F0BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,29 +674,7 @@ magnet:?xt=urn:btih:571A43E13A9B84DB1F4A21C770B66958B630F0BB
 magnet:?xt=urn:btih:06F594EE3459277C168F435F99DE6EAF011E985E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994030   (894129) от 06.03.2016
-
-Особая статья. Кто обогатился на майдане  (06.03.2016) SATRip
-
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждая программа будет посвящена наиболее острым и актуальным журналистским статьям и расследованиям недели. В студию приглашается журналист и герой конфликтной публикации. Программа дает каждой из сторон возможность высказаться, и отстоять свою точку зрения.В этом выпуске: На этой неделе мы обсуждаем ситуацию, связанную с коррупцией на Украине. Как получилось, что политики, пришедшие во власть, в одночасье стали олигархами? Ведь экономический кризис на Украине подвёл к черте бедности рекордный процент населения и заставил урезать расходы. Зато администрация президента Петра Порошенко финансовых проблем, похоже, не знает. Выяснилось, (   Читать дальше...   )Телекомпания: ОАО «ТРК ВС РФ «ЗВЕЗДАЖанр: ТелепередачаПродолжительность: 00:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B49CA3BDE8628F304EEC98C0A766B974A065E883
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

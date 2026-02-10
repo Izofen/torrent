@@ -21,6 +21,8 @@ GitHub Actions представляет собой средство автома
 magnet:?xt=urn:btih:12E249DE76EC0B6D2E434A520342812570F6A9EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:12E249DE76EC0B6D2E434A520342812570F6A9EC
 ```bash
 magnet:?xt=urn:btih:DDF859413FAE11BF8A2BF59C85591F9908C719C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Udemy, Bogdan Stashchuk | CSS - Полный Курс по CSS (2024) WEB-DL [RU
 magnet:?xt=urn:btih:45028430A5505E5E058242FBCD085BB6BC4A8574
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Patreon, Timur Shemsedinov | Технологический стек Node.js (20
 ```bash
 magnet:?xt=urn:btih:FBEFEA76812348FFECF940B285B8E61FC619E04A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ OTUS , Алексей Кулиничев, Роман Помазанов, Ива�
 magnet:?xt=urn:btih:AEABAB241CB7A3F5965BB7286C81EEB357D61B78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Udemy, Andre LaMothe | Fast and Furious Game Development with JavaScript and AI 
 ```bash
 magnet:?xt=urn:btih:21A2693637F0925E2280E79E85DD086A06C51722
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Udemy, Piotr Jura | Master Nuxt 3 - Full-Stack Complete Guide (2023) WEB-DL [EN 
 magnet:?xt=urn:btih:639AE0591A902AA9C7846EE8D4D823FA726F330D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:639AE0591A902AA9C7846EE8D4D823FA726F330D
 magnet:?xt=urn:btih:3CA60E59A96568E567D5DE296E10129887E053E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Enterclass, Анна Хопта | Белое на белом (2023) WEB-DL [AD] 
 ```bash
 magnet:?xt=urn:btih:274E7839974D709C3EDA95DA4361AF039CD1C9B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ Artilike, Жанна Губина | Акварельный видеокурс - 
 magnet:?xt=urn:btih:857F5D1F1C923FA630476B96FD96E59BF16DFFF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:857F5D1F1C923FA630476B96FD96E59BF16DFFF9
 ```bash
 magnet:?xt=urn:btih:34628DEC533CC9F265F96A50133600C6B0935D70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ Udemy, John Smilga | NextJS & OpenAI - 2024 Edition (2023) WEB-DL [EN / EN Sub]
 magnet:?xt=urn:btih:35CECAC957F685D82674DA6DD0A7F57DEB930211
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:35CECAC957F685D82674DA6DD0A7F57DEB930211
 ```bash
 magnet:?xt=urn:btih:4D8E0FB4A00EB8F928763D49258AED85BF17211E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ Skillbox, Виктория Вишнякова | Как правильно пит
 magnet:?xt=urn:btih:D2B354FB4EA8228B108D5C1FB49EF395385A4413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ PurpleSchool | Прохождение собеседования (2023) WEB-DL [
 magnet:?xt=urn:btih:8DF2BC4E73C5CA41FA4F592D2A604777DE6834B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ Udemy, Nata Vacheishvili | React Native: Mobile App Development (CLI) [2024] (20
 ```bash
 magnet:?xt=urn:btih:F2A54298BCBE8276390ADD42EB7D866EAEC26580
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ Stepik, Дмитрий Фокеев | Веб дизайн в Figma с нуля �
 magnet:?xt=urn:btih:4F3A6342484D2206C1C317B44E20C626980BB2C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ Udemy, Лиана Климович | UI Design с нуля (2023) WEB-DL [AD] [R
 magnet:?xt=urn:btih:583AAF223089C4DB408902907FDD1378427434DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ Udemy, D&A Programming | Программирование в Scratch с 6 лет
 ```bash
 magnet:?xt=urn:btih:8FF914864F673DEAA48CA197E3D29CA2A8669637
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ lectoroom, Елена Базанова | Подсолнухи акварелью
 magnet:?xt=urn:btih:F6ACCA85B4266D016C980AA129F57A4FEFEAFBBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:F6ACCA85B4266D016C980AA129F57A4FEFEAFBBC
 magnet:?xt=urn:btih:03AD0F8BF042E3E1750807E0349356167D539CDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ Gary Simon | Advanced FrontEnds (2023) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:EAF39EC3037FA7D450221414CF1ED25AF1CCE2CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ Cоздавать и оформлять каналы
 magnet:?xt=urn:btih:7E15F7D3CCED4A380E6D47C5D01F836F0E78B6B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +644,8 @@ Udemy, Bogdan Stashchuk | Kubernetes - Полный Курс по Kubernetes (20
 ```bash
 magnet:?xt=urn:btih:C761E6BEBF2562AAF69F62335FAC34B67E536B69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ Color school, Анна Давидян | Фотография в интерьер
 magnet:?xt=urn:btih:BCA239D5DF9819DD904DBC681444BCBE8A28B527
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ Udemy, Frantz Merine | OBS Studio - Learn how to become a Virtual Event Producer
 ```bash
 magnet:?xt=urn:btih:196933611D20146BDC9109641C55A5EBF42AD440
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

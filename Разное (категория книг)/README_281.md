@@ -1,3 +1,31 @@
+###  Публикация: 1170023   (401520) от 29.09.2017
+
+Юрий Галенович | Россия: взгляд из Китая (2017) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_401520.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1689 г. в Нерчинске был заключен мирный договор между Россией и Китаем, впервые определивший границу между государствами и положивший начало российско-китайским отношениям.
+За прошедшие сотни лет между нашими странами были как периоды дружбы, так и противостояния, доходившего до вооруженного столкновения.
+Кто сейчас Китай для России – друг или враг? Как официальные (   Читать дальше...   )Жанр: История, ПолитикаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4868631A4E6775BC8C8B82999744E6D94CC991CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169895   (401560) от 29.09.2017
 
 Священник Павел Флоренский | Все думы - о Вас. Письма семье из лагерей и тюрем. 1933 - 1937 гг. (2004) [PDF, FB2]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:740F629FF3A2C89F84CE43666A54E5E59FF713AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:740F629FF3A2C89F84CE43666A54E5E59FF713AB
 magnet:?xt=urn:btih:68A92C51F49F1AF372E5E08D1517BD16BB190AE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +98,8 @@ magnet:?xt=urn:btih:68A92C51F49F1AF372E5E08D1517BD16BB190AE0
 ```bash
 magnet:?xt=urn:btih:B7D0E299B9837BAB59FACAB3B904A961BE751F3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +125,8 @@ magnet:?xt=urn:btih:B7D0E299B9837BAB59FACAB3B904A961BE751F3B
 magnet:?xt=urn:btih:93B90F630B1E23D580699C31D8803D22A53372F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +151,8 @@ magnet:?xt=urn:btih:93B90F630B1E23D580699C31D8803D22A53372F1
 magnet:?xt=urn:btih:9CFF7C95C2823C97937813E54510893211F3B3D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +176,8 @@ magnet:?xt=urn:btih:9CFF7C95C2823C97937813E54510893211F3B3D0
 ```bash
 magnet:?xt=urn:btih:A97B51E185A335D5296A12AC7417C9D1F4D1B064
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +204,8 @@ magnet:?xt=urn:btih:A97B51E185A335D5296A12AC7417C9D1F4D1B064
 magnet:?xt=urn:btih:F2989BDCA0180C9CEA5DF2F10BD79D8B940DEF6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +230,8 @@ magnet:?xt=urn:btih:F2989BDCA0180C9CEA5DF2F10BD79D8B940DEF6C
 ```bash
 magnet:?xt=urn:btih:4840532BAE902E8822C3B161C393FDBE41C6270F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +258,8 @@ magnet:?xt=urn:btih:4840532BAE902E8822C3B161C393FDBE41C6270F
 magnet:?xt=urn:btih:CC556F9CAB3BDB37DD3415A20D2D334DA59F0060
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +284,8 @@ magnet:?xt=urn:btih:CC556F9CAB3BDB37DD3415A20D2D334DA59F0060
 magnet:?xt=urn:btih:C8081734C9BDB556CD97843DAF17BD8FDB375E09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +309,8 @@ magnet:?xt=urn:btih:C8081734C9BDB556CD97843DAF17BD8FDB375E09
 ```bash
 magnet:?xt=urn:btih:0819B6E8FFFAD3F4CA513610663CB6C3B6A5A91D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +337,8 @@ magnet:?xt=urn:btih:0819B6E8FFFAD3F4CA513610663CB6C3B6A5A91D
 ```bash
 magnet:?xt=urn:btih:78A90DC8CC73F17A1A200E5F51F1BAE67F5F9C14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +367,8 @@ magnet:?xt=urn:btih:78A90DC8CC73F17A1A200E5F51F1BAE67F5F9C14
 magnet:?xt=urn:btih:F0D7249517A385489A063554850D7B4B35967DFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +392,8 @@ magnet:?xt=urn:btih:F0D7249517A385489A063554850D7B4B35967DFE
 ```bash
 magnet:?xt=urn:btih:46C0C8AB2B58140D272732D447FF36C9F51ABC6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +419,8 @@ magnet:?xt=urn:btih:46C0C8AB2B58140D272732D447FF36C9F51ABC6F
 magnet:?xt=urn:btih:D7F8D81572A227819C0E1611A76ECB471A80D277
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +444,8 @@ magnet:?xt=urn:btih:D7F8D81572A227819C0E1611A76ECB471A80D277
 ```bash
 magnet:?xt=urn:btih:A9275BB88D4DD7740BE44E629AF81F9C5D084537
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +473,8 @@ magnet:?xt=urn:btih:A9275BB88D4DD7740BE44E629AF81F9C5D084537
 magnet:?xt=urn:btih:8119102E99BB92FD74D3BA471D69D33FC4D6D441
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +499,8 @@ magnet:?xt=urn:btih:8119102E99BB92FD74D3BA471D69D33FC4D6D441
 magnet:?xt=urn:btih:727549E8131F8BD46C895D9A8555FC53A8A31F83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +524,8 @@ magnet:?xt=urn:btih:727549E8131F8BD46C895D9A8555FC53A8A31F83
 ```bash
 magnet:?xt=urn:btih:02845304E877504043D4AA5339E64BB9700CE834
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +552,8 @@ magnet:?xt=urn:btih:02845304E877504043D4AA5339E64BB9700CE834
 magnet:?xt=urn:btih:E4D4810485355F44E35A3515869A7C4660B4B279
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +579,8 @@ magnet:?xt=urn:btih:E4D4810485355F44E35A3515869A7C4660B4B279
 magnet:?xt=urn:btih:45E7BE9FEFA7B5E24D8EED82EE48296D50074898
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +605,8 @@ magnet:?xt=urn:btih:45E7BE9FEFA7B5E24D8EED82EE48296D50074898
 magnet:?xt=urn:btih:C6B8AB24B92E10FC82ECD6C25416F167D9B0F22C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +630,8 @@ magnet:?xt=urn:btih:C6B8AB24B92E10FC82ECD6C25416F167D9B0F22C
 ```bash
 magnet:?xt=urn:btih:3AD61FAB85106AEA1E0EEA991E7BF0465BAFA440
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +658,8 @@ magnet:?xt=urn:btih:3AD61FAB85106AEA1E0EEA991E7BF0465BAFA440
 magnet:?xt=urn:btih:2736F2BA1E9EABE939601BB071CB8282388FE290
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,29 +685,7 @@ magnet:?xt=urn:btih:2736F2BA1E9EABE939601BB071CB8282388FE290
 magnet:?xt=urn:btih:A4BAF94BD73D7B77D9D1685A4628C8B725DFCD6E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169457   (403144) от 27.09.2017
-
-Борис Сырков | Прослушка. Предтечи Сноудена (2013) [FB2, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разоблачения сотрудника американских спецслужб Эдварда Сноудена покажутся детским лепетом по сравнению с фактами, изложенными в этой книге. В ней перед читателем в строгом хронологическом порядке предстает мировая история разведки средствами связи. Детально прослеживается, как из экзотической разновидности разведывательной деятельности, какой она была в начале прошлого (   Читать дальше...   )Жанр: История, СпецслужбыФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA2249DBE2D06DC97BFD73D7D09BA172AA3AC4ED
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

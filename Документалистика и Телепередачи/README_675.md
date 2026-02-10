@@ -1,3 +1,29 @@
+###  Публикация: 990955   (910041) от 26.02.2016
+
+Вести в 20-00. Большие Вести. Россия HD (26.02.2016) HDTVRip [720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910041.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире - смотрите в последних выпусках новостей телеканала «Россия».В этом выпуске: Причина трагедии на шахте — взрыв метана. Спасательная операция в Воркуте. Недруги за бугром уже готовятся к осенним выборам в России. Владимир Путин на коллегии ФСБ определил для страны главные внешние и внутренние угрозы. За несколько часов до перемирия. Кто откажется сложить оружие, с теми борьба будет продолжена.Телекомпания: Россия HDЖанр: ТелепередачаПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D9BEB2844BD65942F005C8F87500920E60FFA4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098202   (910042) от 29.01.2017
 
 Первая передача на НТВ. Автомобильная передача (2017.01.29) SATRip (выпуск 277)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:850CAC4EBC6845723ED59FA66ED1CCB30047458F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:850CAC4EBC6845723ED59FA66ED1CCB30047458F
 ```bash
 magnet:?xt=urn:btih:6F39287CFAB80FE71FB6B7E7230A00EBF17FD79F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:6F39287CFAB80FE71FB6B7E7230A00EBF17FD79F
 magnet:?xt=urn:btih:48371EFDFB3B7665C40649795128F914F1FC9E54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:48371EFDFB3B7665C40649795128F914F1FC9E54
 magnet:?xt=urn:btih:7DE4DA00E4ED0A144031293F29B37D4D7B112363
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:7DE4DA00E4ED0A144031293F29B37D4D7B112363
 ```bash
 magnet:?xt=urn:btih:80F4C18BF93CE11951F793B36831074181CAE5F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:80F4C18BF93CE11951F793B36831074181CAE5F5
 magnet:?xt=urn:btih:19FCC74E48AC5E366BC85934DDECD5D30C28C4FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:19FCC74E48AC5E366BC85934DDECD5D30C28C4FA
 magnet:?xt=urn:btih:01CD3749B2DF8AD7ADC9BFD0555C845EB6FF2B05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:01CD3749B2DF8AD7ADC9BFD0555C845EB6FF2B05
 ```bash
 magnet:?xt=urn:btih:C64B7448DE41CB5AFE3C72EAC3264E80AB87B2AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:C64B7448DE41CB5AFE3C72EAC3264E80AB87B2AA
 magnet:?xt=urn:btih:2CD5A97E1F4643DF091E8F0D9CB2F642CBF08372
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:2CD5A97E1F4643DF091E8F0D9CB2F642CBF08372
 ```bash
 magnet:?xt=urn:btih:E10D5165BC444F7666FD3BBD63ED9D43E289E148
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:E10D5165BC444F7666FD3BBD63ED9D43E289E148
 magnet:?xt=urn:btih:5C8984059BA0554144272682EF51900A260B6D45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:5C8984059BA0554144272682EF51900A260B6D45
 magnet:?xt=urn:btih:93EF0A1783DC84C4C73FCC4D683E41D6CE331CE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:93EF0A1783DC84C4C73FCC4D683E41D6CE331CE5
 ```bash
 magnet:?xt=urn:btih:0CAEA8E1A20682B3306E80872E05E5E99B3ED6F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:0CAEA8E1A20682B3306E80872E05E5E99B3ED6F0
 magnet:?xt=urn:btih:497DC1DB41C76B568C27500995B90B0791E2FA3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:497DC1DB41C76B568C27500995B90B0791E2FA3E
 ```bash
 magnet:?xt=urn:btih:7EE0FC604AF89E3BE8D9639FAC4E7ED5A3072490
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:7EE0FC604AF89E3BE8D9639FAC4E7ED5A3072490
 magnet:?xt=urn:btih:3A115DAA1AF3113FF140C783DE6F9579041C0859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:3A115DAA1AF3113FF140C783DE6F9579041C0859
 ```bash
 magnet:?xt=urn:btih:FB3ED6C9F1836A98DFE0F541A10700215492AB77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:FB3ED6C9F1836A98DFE0F541A10700215492AB77
 magnet:?xt=urn:btih:5D8DDFB01CC25AD6E0BA87D4959437168B4FD514
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:5D8DDFB01CC25AD6E0BA87D4959437168B4FD514
 ```bash
 magnet:?xt=urn:btih:DA60FD80AAA91109C5DD376F8F30DB136D7CE9C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:DA60FD80AAA91109C5DD376F8F30DB136D7CE9C0
 magnet:?xt=urn:btih:03094C21FE8F9CC0A30F4A519F97B8B44739C6D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:03094C21FE8F9CC0A30F4A519F97B8B44739C6D0
 ```bash
 magnet:?xt=urn:btih:23E6923892DF6C339B8853BBD64834595BB83782
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:23E6923892DF6C339B8853BBD64834595BB83782
 magnet:?xt=urn:btih:2CA931412F86525793A99DADEA46A90163A5E3ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:2CA931412F86525793A99DADEA46A90163A5E3ED
 magnet:?xt=urn:btih:C3C61718E2B97329627AE3F58C4443BCC21A4761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:C3C61718E2B97329627AE3F58C4443BCC21A4761
 ```bash
 magnet:?xt=urn:btih:FE0D9D316B7C5747746F18202C6F364FDE98854F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:FE0D9D316B7C5747746F18202C6F364FDE98854F
 magnet:?xt=urn:btih:DC8E51AE284B3E7CBD9BEBD58ED0FA05BD461CC0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989898   (911863) от 25.02.2016
-
-Красный лед / Red Ice (2014) SATRip
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глобальное потепление влияет на климат всей Земли, но на полюсах его последствия особенно заметны. Несмотря на удаленность полярных зон от прочих регионов, таяние льдов и вечной мерзлоты сказывается на инфраструктуре городов и на животном мире, вызывает природные катаклизмы и замедляет движение Гольфстрима. Ситуация может приобрести красный уровень опасности. Климатические (   Читать дальше...   )Телекомпания: США, Intuitive Productions and SomadromeЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D476D826DB203C512FE359771C71F58759F885C4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

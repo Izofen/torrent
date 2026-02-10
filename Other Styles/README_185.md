@@ -22,6 +22,8 @@ Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the 
 magnet:?xt=urn:btih:55577E204176F458A41F231A55DDD0243735E190
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the 
 ```bash
 magnet:?xt=urn:btih:ECF648C077CEA0BCFAC4997BCD2A10D1728F5773
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Jim Brickman - Timeless (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, In
 magnet:?xt=urn:btih:DAA9F20CDB5A3DA01BFBB800DD8229BB0BF57CB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Colin Stetson - Color Out of Space / Цвет из иных миров (Original
 ```bash
 magnet:?xt=urn:btih:CB2639E5D519B05B1F562D495CD52489C09C2E62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Colin Stetson - Color Out of Space / Цвет из иных миров (Original
 magnet:?xt=urn:btih:E3CA784237E2D3AEDA543F285DE71233F4FC53AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Variations Of Silence (2009) p*dis [FLAC|Lossless|tracks + .cue] <Instrumen
 ```bash
 magnet:?xt=urn:btih:5BCAA3E43093AB7D2BD546C10383EE07F11C366D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Jim Brickman - Pure (2006) Japanese Edition [FLAC|Lossless|image + .cue] <New Ag
 magnet:?xt=urn:btih:11A681FD06DC66BC753FFA7C4051FEBAC4592440
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Angelo Badalamenti - Twin Peaks (1990) [FLAC|Lossless|tracks] <Soundtrack>
 ```bash
 magnet:?xt=urn:btih:8D51D3D8981C616A6EBAA59F79B85978B7385D0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +260,8 @@ CD1 Влюбленные в любовь76. In The Chapel In The Moonlight
 magnet:?xt=urn:btih:694A12A031A637F1F6CFDEE8E5C06483977403A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +295,8 @@ VA- Охотники за привидениями / Ghostbusters (1984) [FLAC|L
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +320,8 @@ Eric Serra - The Fifth Element / Пятый элемент (Complete Score) (2CD
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +356,8 @@ Kevin Laliberte - Siesta: Soothing Spanish Guitar (2005) [FLAC|Lossless]<Acousti
 magnet:?xt=urn:btih:224E8CC7EBE414668A6EF6591A6542AF3BD25993
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +384,8 @@ Deep Forest - World Mix (1992) 1994 Columbia [FLAC|Lossless|tracks + .cue] <Hous
 ```bash
 magnet:?xt=urn:btih:244CFE89F4F011A1E699164FFFD5AC92B2DFD728
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +414,8 @@ VA - Los clasicos argentinos Tango - Vol.05 (1996) [MP3|128 кб/с] <Tango>
 magnet:?xt=urn:btih:25192D518830E346FAC8D6C605BA0841B02D0260
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +442,8 @@ Michele McLaughlin - 2 albums (2008, 2010) [MP3|320 кб/с]<New Age, Celtic, Pi
 ```bash
 magnet:?xt=urn:btih:3C5500E92C0C301C2735762E3B807D1673E7E97A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +474,8 @@ Anne Sofie von Otter - Home for Christmas (1999)
 magnet:?xt=urn:btih:F1681F315F618BFFCCCF70522FE892C62B8D0501
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +502,8 @@ David Arkenstone - Dream Palace. Pan Pipes with String Orchestra (2005) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:96C920EEA9CE8E329EF940052F75B8518E73F096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +538,8 @@ Iron Horse - Take Me Home. The Blugrass Tribute To Guns N' Roses (2007) [MP3|192
 magnet:?xt=urn:btih:1B721C6D84EFB61EDA4DE6BA83E10882C0C19EF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +572,8 @@ David Arkenstone - Caribbean Dreams (2004) [FLAC|Lossless]<New Age, Tropical>
 ```bash
 magnet:?xt=urn:btih:8B5496D327693E38F26BA5DB55AC145CA28B7A3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +608,8 @@ David Arkenstone - Atlantis (2004) [FLAC|Lossless]<New Age>
 magnet:?xt=urn:btih:DF4E603E167396EEFD7DD09D96990FF0A59BC935
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +643,8 @@ States - Paradigm (LP) (2013) [FLAC|Lossless]<Indie Pop, Electropop, Alternative
 magnet:?xt=urn:btih:39817909E537DE250A799B613F63C77DD2970B16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +676,8 @@ Neil H - Secrets of Faeries (2003) [MP3|320 кб/с]<New age, Relax>
 ```bash
 magnet:?xt=urn:btih:6ECA6B0F9C9D6B84AD4CB9C33C3FAE665F7A1AA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,6 +712,8 @@ Disc 1:
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -700,6 +746,8 @@ Ratnabali Adhikari - Shiva Lounge (2005) [MP3|256 кб/с]<World, New age, Medit
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -734,6 +782,8 @@ David West Band - Pickin' On Creedence Clearwater Revival. A Tribute (1999) [MP3
 magnet:?xt=urn:btih:B98A518FC5DEB4FEB03D86F623BD10C2E520B55F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -760,6 +810,8 @@ Jim Brickman - Interstellar (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:78D6947401DC6314606BDA7371A23DBD642FE422
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

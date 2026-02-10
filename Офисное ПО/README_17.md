@@ -19,6 +19,8 @@ DjVu Shell Extension Pack x32/x64 7.0 (r24267) [Английский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Haihaisoft PDF Reader 1.4.5.0 [Мульти / Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ QuickBooks Pro выглядит и работает, как и следовал�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Altarsoft PDF Reader 1.2 Portable [Multi/Rus]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Wondershare PDFelement - программа для общего редактир
 magnet:?xt=urn:btih:30CA18D6AD9CB811C604C9175A71566540EE207C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ MyLifeOrganized простой и в то же время мощный инст�
 ```bash
 magnet:?xt=urn:btih:B33EC613BA141FE19BCF440851976ABB579C8551
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Foxit Phantom - приложение для просмотра, редактир
 magnet:?xt=urn:btih:B88E5FE3AEFF74D6EB9170719EF624E01450AE9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Microsoft Office 2010 — один из лучших наборов офисны
 ```bash
 magnet:?xt=urn:btih:25ACF70430BF36DF563FE9E4CA85EAC75B0CD46E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Microsoft Office 2010 — один из лучших наборов офисны
 magnet:?xt=urn:btih:9B5328A011A1511F268B611BF2F82FC8ABE5EFD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Document Express 7.0 Desktop [En]
 magnet:?xt=urn:btih:1CDE87C7D61BBD7C59AA341DD4790D70ECF67F7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Flip PDF Professional - профессиональная версия нашей
 ```bash
 magnet:?xt=urn:btih:306B74AF0B596311967D8177AE5C92C876D87F64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ yEd Graph Editor – бесплатное программное обеспеч�
 magnet:?xt=urn:btih:2ABF5AE245E732CAF3B44ED3006D7A4712EB993A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Best PDF Tools - это универсальное программное обе
 ```bash
 magnet:?xt=urn:btih:E660FDBBAA4166237971628C9F2CBE1983578E0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Microsoft Office Word 2007 SP3 Enterprise 12.0.6798.5000 Portable by Spirit Summ
 magnet:?xt=urn:btih:A5B0301452628C248081794F9E005F1B19AAA86C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Bullzip PDF Printer - это виртуальный многофункциона
 ```bash
 magnet:?xt=urn:btih:370ABA51AB16693D4471ADDC4A5C5E80C9D39EC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ ABBYY FineReader PDF 15.0.114.4683 Corporate [Multi/Ru]
 magnet:?xt=urn:btih:7A705EB39F68A99835BDD40990BBD7DFBDF8DA77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ PDF Candy Desktop — универсальный инструмент, кото�
 magnet:?xt=urn:btih:7608FDFCF4C2DDDFC5BFBFA6F9239688EAC177DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:7608FDFCF4C2DDDFC5BFBFA6F9239688EAC177DB
 ```bash
 magnet:?xt=urn:btih:A81266EB8F42715F78760548B05BC8C5A396F111
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Zotero — программа позволяющая собирать цитат
 magnet:?xt=urn:btih:42E421CB3F4BD9ED7F927EE1B46228AFCF00A01A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Icecream PDF Converter Pro 2.89 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8101D970313D9ADDE0A79A01FA146FC1A1356B12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ AVS Document Converter - предназначена для просмотра и
 magnet:?xt=urn:btih:DB538AC7C65DDF3A71B4DEB08447A9E7FF47FF58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ PDF Shaper Professional 13.0 RePack (& Portable) by Dodakaedr [Ru/En]
 ```bash
 magnet:?xt=urn:btih:4802C118E8BF8CE22D61D844D3E973BEC25E4FFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Efficient Efficcess — персональный информационный м
 magnet:?xt=urn:btih:4449EEC7DA748EE05BCBE5AA98DB56B00F1F799B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Efficient Sticky Notes Pro 5.60 Build 559 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5F9FED42135C0A1159468310D51027A264F82A5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ VueScan - программа предназначена для замены ст
 magnet:?xt=urn:btih:A8C3E77380031C8FDBDE579C16D9D3895DE21E63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:B8517D7E786C3C44660EEC0D9459239E030B8972
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

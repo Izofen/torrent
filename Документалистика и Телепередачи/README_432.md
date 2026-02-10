@@ -1,3 +1,29 @@
+###  Публикация: 1551209   (590715) от 14.05.2022
+
+По следу монстра (14.05.2022) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590715.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Двойная жизнь». В Екатеринбурге много лет орудовал маньяк. Почти 15 лет преступник приносил людям боль и страдания. Почему полиция не могла его остановить? И как мать жертвы шла по следу монстра?Жанр: Документальный, криминал, расследованиеСубтитры: РусскиеПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B490563E861A8904F787554B54571C48FA8A23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551174   (590739) от 14.05.2022
 
 Своя игра (14.05.2022) WEBRip [H.264/1080p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:FF22FA25B1571DADDF673DB020B3A04596883507
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:FF22FA25B1571DADDF673DB020B3A04596883507
 magnet:?xt=urn:btih:A7FD8B7CFFA98120DED8A996BB447B1B5DEEADCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:A7FD8B7CFFA98120DED8A996BB447B1B5DEEADCF
 ```bash
 magnet:?xt=urn:btih:DE1EBCBD0A8B02A7855457D9DDFF80B6857C824E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:DE1EBCBD0A8B02A7855457D9DDFF80B6857C824E
 magnet:?xt=urn:btih:DB9C27239F050F618813597982A3E9F2DD53F45C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:DB9C27239F050F618813597982A3E9F2DD53F45C
 ```bash
 magnet:?xt=urn:btih:C2126C216556716B13F955234B8018E6D97DAFD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:C2126C216556716B13F955234B8018E6D97DAFD3
 magnet:?xt=urn:btih:152C793B9E85840887D79996F06512086CF31544
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:152C793B9E85840887D79996F06512086CF31544
 ```bash
 magnet:?xt=urn:btih:9C47BCD8B9BFBF618449F02F02650D94D7E9F618
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:9C47BCD8B9BFBF618449F02F02650D94D7E9F618
 magnet:?xt=urn:btih:D5FA4DE4F7C79B7E04F0067A97EC36E069922E8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:D5FA4DE4F7C79B7E04F0067A97EC36E069922E8D
 magnet:?xt=urn:btih:412345CF702815EBD49FDFC4CB2B5ABB598BAEC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:412345CF702815EBD49FDFC4CB2B5ABB598BAEC5
 ```bash
 magnet:?xt=urn:btih:4F0C7B876814D43573DD36C2DCFE4A55CD1ED2F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:4F0C7B876814D43573DD36C2DCFE4A55CD1ED2F5
 magnet:?xt=urn:btih:16B64E9E8F34BC0FC6EF412FDBF7CD43738B3C8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:16B64E9E8F34BC0FC6EF412FDBF7CD43738B3C8F
 magnet:?xt=urn:btih:CC677C211EE10EDBD92E8A2344530C61861B4550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:CC677C211EE10EDBD92E8A2344530C61861B4550
 ```bash
 magnet:?xt=urn:btih:9ABAD2DB6F244EC42B6234E2A4BB18A7CA2F9D9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:9ABAD2DB6F244EC42B6234E2A4BB18A7CA2F9D9D
 magnet:?xt=urn:btih:D752100B517D7040947BF68981A7FC7129BA716E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:D752100B517D7040947BF68981A7FC7129BA716E
 ```bash
 magnet:?xt=urn:btih:438044A2D21CD91A04416457BDD7AD7F2FC5042B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:438044A2D21CD91A04416457BDD7AD7F2FC5042B
 magnet:?xt=urn:btih:3CB00CB9DE2C9220DE5F6F89255D14865C231590
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:3CB00CB9DE2C9220DE5F6F89255D14865C231590
 ```bash
 magnet:?xt=urn:btih:7BB9AD078F9EF3300BB9007C489194DF66D9E0B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:7BB9AD078F9EF3300BB9007C489194DF66D9E0B3
 magnet:?xt=urn:btih:B1A07F9C23B863FC7A151827009D7AAE05B38BBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:B1A07F9C23B863FC7A151827009D7AAE05B38BBC
 magnet:?xt=urn:btih:DBB2670F553F205ABDB31387B9394C719EAB188F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:DBB2670F553F205ABDB31387B9394C719EAB188F
 ```bash
 magnet:?xt=urn:btih:2014410FA8C4AF6F11E287D05E491C7F182EB961
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:2014410FA8C4AF6F11E287D05E491C7F182EB961
 magnet:?xt=urn:btih:BE0406945D1C3AB3DABE25D9361C0300E6503553
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:BE0406945D1C3AB3DABE25D9361C0300E6503553
 ```bash
 magnet:?xt=urn:btih:575B10C6AFE825C8AE763FB598A806801E76B90F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:575B10C6AFE825C8AE763FB598A806801E76B90F
 magnet:?xt=urn:btih:0C12D0B42EFB5A81CD41082254547748719CC2D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:0C12D0B42EFB5A81CD41082254547748719CC2D8
 ```bash
 magnet:?xt=urn:btih:E6FFF68D9D8F7C41E05761B7401F8246064CB6B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,29 +673,7 @@ magnet:?xt=urn:btih:E6FFF68D9D8F7C41E05761B7401F8246064CB6B7
 magnet:?xt=urn:btih:451E1B64566AAD2FB78A5BE2B2645E62D7C117C0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915548   (591836) от 06.07.2015
-
-Военная тайна с Игорем Прокопенко (2015.07.04) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591836.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйПродолжительность: 03:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EEA2F361F100637663837F188259E5C116696B6
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1059689   (461827) от 04.10.2016
+
+Осторожно, мошенники! Решала всемогущий (2016.10.04) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наверное, каждый хоть раз становился жертвой мошенников: будь то игра в "моментальные" лотереи, приобретение ненужных, а иногда и вредных пищевых добавок или общение с вымогателями денег по телефону, для пополнения мобильного счёта бедного чада, оставшегося без связи. В помощь нежелающим наступать на старые грабли зрителям на канале "ТВ Центр" (   Читать дальше...   )Производство: РоссияТелекомпания: ТВЦЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: ~ 00:23:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB35ED204AB3E3B3B5B14CABEE94E4FF9648F6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059298   (461830) от 04.10.2016
 
 Путешествие из Петербурга в Москву: особый путь (2014) WEBRip (6 серий из 6)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:DA6EB8F1D46BC1011B351F5526D61CE0C3C44F78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:DA6EB8F1D46BC1011B351F5526D61CE0C3C44F78
 magnet:?xt=urn:btih:7EFC3C1A635832F0C84D51029CEDB1860856A50D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:7EFC3C1A635832F0C84D51029CEDB1860856A50D
 ```bash
 magnet:?xt=urn:btih:26DEFB07279AAECABB4A6C30CA5010007C8D7694
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:26DEFB07279AAECABB4A6C30CA5010007C8D7694
 magnet:?xt=urn:btih:2CD44EC2E61A9011EF7D15284224C3227806F84C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:2CD44EC2E61A9011EF7D15284224C3227806F84C
 ```bash
 magnet:?xt=urn:btih:9EFEDD8B8DCE40C3EE5A3C67D71B4323CE60C411
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:9EFEDD8B8DCE40C3EE5A3C67D71B4323CE60C411
 magnet:?xt=urn:btih:D53EF3556FB4DC56B1B937417CBF27627A13FFED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:D53EF3556FB4DC56B1B937417CBF27627A13FFED
 ```bash
 magnet:?xt=urn:btih:C30F99FB1BA471BB7F698C03682B4CAAC431F10C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:C30F99FB1BA471BB7F698C03682B4CAAC431F10C
 magnet:?xt=urn:btih:653432B805399679326A557A985CE9DE7A223032
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:653432B805399679326A557A985CE9DE7A223032
 ```bash
 magnet:?xt=urn:btih:81DC4C51D7B3FDDE4A35D331F079103E1FE8F6F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:81DC4C51D7B3FDDE4A35D331F079103E1FE8F6F5
 magnet:?xt=urn:btih:93456FB504000C7B76D6EAAA44C774BA9FC5DAF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:93456FB504000C7B76D6EAAA44C774BA9FC5DAF2
 ```bash
 magnet:?xt=urn:btih:3D75A6FAD863D3C4879861088E2861291D9FF697
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:3D75A6FAD863D3C4879861088E2861291D9FF697
 magnet:?xt=urn:btih:BA2AD44416751B4C44457FD0F8062EF898916D69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:BA2AD44416751B4C44457FD0F8062EF898916D69
 ```bash
 magnet:?xt=urn:btih:B460A5D20F0BCA36F2540D933495B643DD0ECEF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:B460A5D20F0BCA36F2540D933495B643DD0ECEF8
 magnet:?xt=urn:btih:3342C181CB7C6F3E2FEEADAE627398B147D454CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:3342C181CB7C6F3E2FEEADAE627398B147D454CB
 magnet:?xt=urn:btih:AF206F02E2146E1894348156CDB5C4ECA00F68CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:AF206F02E2146E1894348156CDB5C4ECA00F68CA
 ```bash
 magnet:?xt=urn:btih:1D13CB77FD0FA342CB5426BADFB43775D6AA6774
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:1D13CB77FD0FA342CB5426BADFB43775D6AA6774
 magnet:?xt=urn:btih:F7A74BD4A457A1BE56AF12C66C501A9960F0B8A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:F7A74BD4A457A1BE56AF12C66C501A9960F0B8A7
 magnet:?xt=urn:btih:39AF6A2EF4E0C37B5E66CB458B2FCD3F617A3D91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:39AF6A2EF4E0C37B5E66CB458B2FCD3F617A3D91
 ```bash
 magnet:?xt=urn:btih:F12715683ECDE39A8CC3BE13F36169DD30918EC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:F12715683ECDE39A8CC3BE13F36169DD30918EC8
 magnet:?xt=urn:btih:E3F0E7013341DB4C7BF8EE3EC6913DD4A2A53AAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:E3F0E7013341DB4C7BF8EE3EC6913DD4A2A53AAE
 ```bash
 magnet:?xt=urn:btih:5D75CCACF64098A1607CBC15FC84F97C7DE7BA31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:5D75CCACF64098A1607CBC15FC84F97C7DE7BA31
 magnet:?xt=urn:btih:F218F4446DFED9B12B965D178FE7F72C80B04A6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:F218F4446DFED9B12B965D178FE7F72C80B04A6E
 ```bash
 magnet:?xt=urn:btih:46AD67EF7A0EDD113BEF28F0E2A1E71B15D1EB5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:46AD67EF7A0EDD113BEF28F0E2A1E71B15D1EB5D
 magnet:?xt=urn:btih:1095BE04109724BAB0A273FA1908E526C2211B84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:1095BE04109724BAB0A273FA1908E526C2211B84
 magnet:?xt=urn:btih:8C4E84D540BBD80C04E840CEDAA23349C50490FF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321196   (463143) от 22.08.2019
-
-Суд над победой (2019) SATRip
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463143.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 августа - 80 лет со дня подписания договора о ненападении между СССР и Германией. В проекте рассказаны неизвестные подробности лета 1939-го. Почему 22-го августа на берлинском аэродроме Темпельхоф команду «взлёт» ожидали два самолёта? Что там делал Сидней Коттон - прототип знаменитого Джеймса Бонда, и кого именно он должен был доставить 23 августа в Лондон? Зачем (   Читать дальше...   )Производство: Россия, ДИП АО «ТВ ЦЕНТР»Жанр: Документальный, война, историяРежиссер: Александр ГоряиновПродолжительность: 00:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13FB1451C33054CE1A0C8A5E73B1DB6CD38B3593
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

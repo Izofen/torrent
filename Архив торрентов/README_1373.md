@@ -19,6 +19,8 @@ Adobe Photoshop – многофункциональный графически�
 magnet:?xt=urn:btih:3F34BDF6332F2C91219FA9FB6E1FC22CCAAB6D1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:0D8E4A3506ADAD3A78F17D47A89EF38571E72FBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ AOMEI Backupper – программа для создания резервно�
 magnet:?xt=urn:btih:80DE56E61EF87CE74C9B118F6902E0E33ED0B67A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ SD Maid v5.6.1 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1D6AB9CF29A1A1B88ED98CC8FB38407C3785588B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 magnet:?xt=urn:btih:7F8461224FD99C7444A7B120A67E15678A176993
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ WinToUSB — лучший Windows To Go (WTG) Creator, который позво
 ```bash
 magnet:?xt=urn:btih:DDC26485941BDD9874F97AE7E61F9492FFD03F19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Office 2013-2021 C2R Install  7.4.8 ++ x64 Portable by Ratiborus [Multi/Ru]
 magnet:?xt=urn:btih:8A5DD116D5113999BEFA4E656E98DD8100FB2F1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Rufus - небольшая утилита помогает отформатир�
 ```bash
 magnet:?xt=urn:btih:499208159A39E3E69D3A5DCA2F96A8523E044216
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ WinToUSB - позволяет устанавливать и запускать �
 magnet:?xt=urn:btih:6B30A8A7B302BC7CE5ABE9076E3185D134668659
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ ProfiCAD - программа, которая будет очень полезн
 ```bash
 magnet:?xt=urn:btih:2930AD4F4E7C022C191E53B4F32FDF3E0D295411
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ YUMI (Your Universal Multiboot Installer) - бесплатная програм�
 magnet:?xt=urn:btih:AC654653517A594A4810058E27A9F8FFF4CEB14C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:29C362213809A70146C759C1BDE631E663B112B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Listen Audiobook Player v5.1.1 (957) Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:921A93FA0D517453E2FA4A6F0D8C2D7AE7A7CC82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ RogueKiller Anti-Malware можно использовать бесплатно 
 ```bash
 magnet:?xt=urn:btih:0F537CF382EFF914CF47E95A8AE113B6834C68D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:0FDBF1DDF4CBBE9155F8A195E044F4AF88FA7385
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Nox App Player 7.0.5.0001 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8D212B82055808DE1E1E4DE1ED811D9BB2043340
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ CpuFrequenz - небольшой инструмент для точного оп
 magnet:?xt=urn:btih:308EEF0606DFAD8E70870CE1E816152ADDABFCD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Universal USB Installer – портативная программа для с�
 ```bash
 magnet:?xt=urn:btih:F95CE81DCB0E17A90DFF7762FD4FB5562AAC95E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:26541115B61080860B60311939F3A4DE35245518
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Cover Commander позволяет создавать профессиональ
 ```bash
 magnet:?xt=urn:btih:2AFC1034F5E882193B8C9388AECD01A94D21E6B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Viber, вне зависимости от того каким устройств
 magnet:?xt=urn:btih:AED7921460E2B81DBE95FE810C333D6D06D1F3CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ NetLimiter - программа, решающая проблему контро�
 ```bash
 magnet:?xt=urn:btih:EBE77CFCA2B24F5A0CF4DA31F5291573357CFDB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ NVCleanstall - портативная утилита от интернет-по�
 magnet:?xt=urn:btih:78CADFA6E65F459C129D382604011E6BAAF4008C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Malware Hunter - отмеченный наградами продукт, кот�
 magnet:?xt=urn:btih:5AB343044FF5B5146E077DC56F3F6956CD183358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ LibreOffice — мощный офисный пакет, полностью со�
 magnet:?xt=urn:btih:D6CF8ACE52404F570A3496D832C1B67BEDE2EBA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Simple Sticky Notes — простая в понимании программа 
 ```bash
 magnet:?xt=urn:btih:8FD6022EF9E88F0A13721933681921CB504905B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

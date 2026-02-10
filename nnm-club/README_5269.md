@@ -22,6 +22,8 @@ Blatant Disarray - High Time for a War Crime (2020) [FLAC|Lossless|tracks + .cue
 magnet:?xt=urn:btih:875834F1FEF8A1BA6F3D13D9797AD1EFC18A0212
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:875834F1FEF8A1BA6F3D13D9797AD1EFC18A0212
 magnet:?xt=urn:btih:0552D2081E76DD99C608060AD4C334B31FBCB9DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ NetShred X - утилита не просто для удаления кэша �
 ```bash
 magnet:?xt=urn:btih:E675A8929DA006AEE509DF07F469DF95ACDAAF5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:E675A8929DA006AEE509DF07F469DF95ACDAAF5D
 magnet:?xt=urn:btih:1320249E4E879666518FC8F1CD6FAC1093722F61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:1320249E4E879666518FC8F1CD6FAC1093722F61
 ```bash
 magnet:?xt=urn:btih:571B92103F28FBF39D3BB43410981C01D3C17292
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Alice Cooper - Compilation (1969-2025) [MP3|320 Kbps] <Shock rock, Hard rock>
 magnet:?xt=urn:btih:A2BDDF0273BB346C339564B5B68706DA8B6E1EE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Metadata Converter - это интуитивно понятный редакто
 ```bash
 magnet:?xt=urn:btih:329A153395C0178649345502B27CCFD43B670CD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ BusyContacts приносит в управление контактами те 
 magnet:?xt=urn:btih:F9226EE1354D82AA30F142319B6C491A5DAAF046
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ Speedtest - это приложение предназначено для опр
 ```bash
 magnet:?xt=urn:btih:EFF2152D4F956DE8F535534A965BEBAE2CA01800
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:EFF2152D4F956DE8F535534A965BEBAE2CA01800
 magnet:?xt=urn:btih:AD8AE77F76235169E4A8450E368FAE1D35538559
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:AD8AE77F76235169E4A8450E368FAE1D35538559
 ```bash
 magnet:?xt=urn:btih:DE274EFBC06A846D85E306E664BA109FF2878374
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ Dropzone - удобная утилита для автоматизация ру�
 ```bash
 magnet:?xt=urn:btih:6C93E22D46BB33E23AEF419698380E853E56CCD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ Candice Ivory - When The Levee Breaks: The Music of Memphis Minnie (2023) [FLAC|
 magnet:?xt=urn:btih:4C4CB7B9385EDA21C14A9565876B1470EE42CACD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ ProFind 1.8.9 [En]
 ```bash
 magnet:?xt=urn:btih:CE5ACD8C5F3516706ECFA3FB92C520F56553A3ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ BusyCal - программа на Mac OS X, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:4F59D5DB596A39BA7408FD23D409EE3951B6948F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ John Di Martino's Romantic Jazz Trio - Lovegame - Tribute to LADY GAGA (2012) Ja
 magnet:?xt=urn:btih:B78A75C9BDA784638D25559F1FEFDE9293CF6F88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ magnet:?xt=urn:btih:B78A75C9BDA784638D25559F1FEFDE9293CF6F88
 magnet:?xt=urn:btih:0A9899ACECC307D3E5681363AAF92D3327A356F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:0A9899ACECC307D3E5681363AAF92D3327A356F6
 ```bash
 magnet:?xt=urn:btih:E6911FDBCB840C042FED065A569B9137827EEC85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ Elmedia Player PRO (   Читать дальше...   )Тип издания: m
 magnet:?xt=urn:btih:E9A22876F0CD210197F4D51115C45CEB73E985D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ Far Cry New Dawn (2019) [Ru] (1.0.5/dlc) Repack Other s [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:4450CE45AAB56AA4B37798025A80564290A764AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ AIMP – проигрыватель, включающий в себя множе
 magnet:?xt=urn:btih:39088105C9587039A65E972509E118A81DD04828
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:39088105C9587039A65E972509E118A81DD04828
 ```bash
 magnet:?xt=urn:btih:DCD4CDFF4BF222696E68D192F2A84D68E26A3104
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:DCD4CDFF4BF222696E68D192F2A84D68E26A3104
 magnet:?xt=urn:btih:48303D712C5273B6FC7DE6D7A2DE6D9CB5A00692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ NetLimiter - программа, решающая проблему контро�
 ```bash
 magnet:?xt=urn:btih:F5F75B5A14EB1214EB1E20029941D8FE0860AF4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ Tropico 6 (2019) [Ru/En] (1.11/dlc) Repack xatab [El Prez Edition]
 magnet:?xt=urn:btih:38039ECD26EEA5D2B9030A8849142F5E299B79F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:38039ECD26EEA5D2B9030A8849142F5E299B79F7
 ```bash
 magnet:?xt=urn:btih:E003CDFD8919A85152007BABD22EA591A965C3B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

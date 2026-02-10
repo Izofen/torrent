@@ -19,6 +19,8 @@ MKVToolnix - функциональный набор инструментов д
 magnet:?xt=urn:btih:64DCA3DC1631FDC53389FB158FF9015C6B9709DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:64DCA3DC1631FDC53389FB158FF9015C6B9709DF
 ```bash
 magnet:?xt=urn:btih:9568F604D980B806612B463ADCE2E1B94B5FB503
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Image Uploader - бесплатная программа для Windows c отк
 magnet:?xt=urn:btih:95E586D1315975790FB8437EE2D863C0DE5237C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Thunderbird — это бесплатная почтовая программа,
 ```bash
 magnet:?xt=urn:btih:D56C302C744C48041F6F51555BC60E9CC88218C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Adobe Illustrator CC 2018 – это принятое в качестве отр
 magnet:?xt=urn:btih:AC4226BA49FA19F1BC806765C1E446291F4D4244
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Adobe InDesign CC 2018 - профессиональный продукт для 
 ```bash
 magnet:?xt=urn:btih:3175B7608ABF79EC0194464403C826223890DB95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Adobe Acrobat XI Pro — это не просто популярный конв�
 magnet:?xt=urn:btih:7868DAE40D267E32019BF8E99C3BF30F0D19EF0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:7868DAE40D267E32019BF8E99C3BF30F0D19EF0E
 ```bash
 magnet:?xt=urn:btih:2A5ADF208BF13508AF1B6D6C80FDF8EDD21D6C7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ VA - Chillhop Daydreams (2018) Chillhop Records [FLAC|Lossless|Web-DL|tracks] <H
 magnet:?xt=urn:btih:4A21009643F8713564885D1459AC0AEE09027B2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:4A21009643F8713564885D1459AC0AEE09027B2D
 magnet:?xt=urn:btih:44D77E91300B040324C6077BDFCE4E963C6CB964
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:44D77E91300B040324C6077BDFCE4E963C6CB964
 ```bash
 magnet:?xt=urn:btih:D7E00AAEF048C8D81C3E08F73FFD49EF2520E20D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:D7E00AAEF048C8D81C3E08F73FFD49EF2520E20D
 magnet:?xt=urn:btih:E7865A3EB8C0DB84560D0E6CB5A74ADEB240F0CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ Undermathic - Moments And Places (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, 
 ```bash
 magnet:?xt=urn:btih:D73703CD92AAE23E7A53842DF3024D2443AAB233
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ Circus Maximus - Isolate (2007) Japan Edition [FLAC|Lossless|image + .cue] <Prog
 magnet:?xt=urn:btih:CF115152E0AE71E97D7B384D8FB39936D8DD4ECE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ MAGIX Vegas PRO — профессиональная программа для �
 ```bash
 magnet:?xt=urn:btih:140CB42FD9680E27388EE37F0FF38E896862BFBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ Format Factory - многофункциональный конвертер ра�
 magnet:?xt=urn:btih:3F2FF9CCFA0C99FEECE01788AA5A0B024146AA1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ FastStone Capture представляет собой довольно мощн�
 ```bash
 magnet:?xt=urn:btih:C8253CC9BE731AFE629A4F7AA10E18401335EF0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:C8253CC9BE731AFE629A4F7AA10E18401335EF0B
 magnet:?xt=urn:btih:EFFFF34AB838AC9252DA576EE89A4B8A803182EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 magnet:?xt=urn:btih:445FA64FEE2DC6A96C12EA454B82387027A30553
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ iMazing: отличная альтернатива iTunes
 magnet:?xt=urn:btih:37D5D16EBB63CAE2652B8FF44965E71F8F5C221A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ Artweaver 6 - это полнофункциональный инструмент
 magnet:?xt=urn:btih:E80C4E3D302E9BD552F86B53E9652CFA3667A2E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ Wise Registry Cleaner 9.5.3.623 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5603B1E00AD7208E2574415CE7B9169403E83EAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ Thomas Wander, Harald Kloser - Midway / Мидуэй (Original Motion Picture So
 magnet:?xt=urn:btih:66323F5CD0CB34AAF773A878A83CDA3BFBCC7C0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ Adobe InDesign CC — ведущее приложение для дизайна 
 ```bash
 magnet:?xt=urn:btih:7234B7257A0709F31F76616601E9F5ABA537BBCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +664,8 @@ Adobe Acrobat Reader DC — совершенно новое приложение
 magnet:?xt=urn:btih:9C40A77F61984AED18B980578BBB9000169F4184
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:9C40A77F61984AED18B980578BBB9000169F4184
 ```bash
 magnet:?xt=urn:btih:F7D5AE2AF600FA87ABFBEB6AD9B44CAE802B3E9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

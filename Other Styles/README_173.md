@@ -28,6 +28,8 @@ Disc: 1
 magnet:?xt=urn:btih:F6128760D8A2BB36324A8476A09E3E2F1FB2869F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ Julio Palacios - The Beatles (2010) [MP3|224 кб/с]<Instrumental>
 ```bash
 magnet:?xt=urn:btih:802EA253CC702CC079E744F052AFF4DA6F9FE949
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ Bruce Becvar - Time Dreams (1994) [MP3|320 кб/с]<New age, Guitar>
 magnet:?xt=urn:btih:3C10630860918B8F0DF81B659CD85BC842D08F0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +126,8 @@ Ruaidhri - Celtic Landscapes (2013) [FLAC|Lossless|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:BEBD96D91C99D97FEB25AE231B90077967669380
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +162,8 @@ Jean-Marc Staehle - Anti-Stress Music (2004) [MP3|192 kbps]<New Age, Relax>
 magnet:?xt=urn:btih:61BFC504D7F175626EAE5E4083B94DC98C26EB06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +196,8 @@ Idir - Deux Rives, un Reve (2002) [FLAC|Lossless]<International>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +232,8 @@ Vali - Forlatt (2004) [MP3|224 kbps]<Dark Neofolk>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +266,8 @@ Hans Zimmer - Интерстеллар / Interstellar (Original Motion Picture S
 ```bash
 magnet:?xt=urn:btih:6CACA6076583ECFF4FF95D0980904571732F3FED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +302,8 @@ Hans Zimmer - Интерстеллар / Interstellar (Original Motion Picture S
 magnet:?xt=urn:btih:7D48F6EB69A32B5CB8E19A22BC3D48C628AE2438
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +336,8 @@ Cliff Martinez - Far Cry 4 (Original Game Soundtrack) (2014) 2CD Edition [MP3|32
 ```bash
 magnet:?xt=urn:btih:598894B205E5EA8421853E99C5BC0048E52F43A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +372,8 @@ CD 1
 magnet:?xt=urn:btih:71C532230F900C80117055F61129F09168AB26DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +400,8 @@ Dagda - 6 альбомов (1999-2010) [MP3|320 кб/с]<New age, Meditative, Ce
 ```bash
 magnet:?xt=urn:btih:CC198B0733CC4CDC4C727AC1E4C7A9B4122C0760
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +430,8 @@ Eric Chiryoku - 3 альбома (2006-2012) [MP3|320 кб/с]<New Age, Easy Lis
 ```bash
 magnet:?xt=urn:btih:A43D3AE12D4267637AC30272C3E67BEF616B5C98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +466,8 @@ VA - Accordion Top Tunes (2003) /A Play Collection/ [FLAC|Lossless]<Instrumental
 magnet:?xt=urn:btih:F4A67AFD3D4BCC17E0D51B9963D4CC40AC8F4479
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +494,8 @@ George Streicher - Howard Lovecraft and the Frozen Kingdom / Говард и З�
 ```bash
 magnet:?xt=urn:btih:E1A54048F14D194ED368C54169C08D0B7DDD075A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +530,8 @@ Robert Fripp - November Suite: Soundscapes - Live at Green Park Station (1997) [
 magnet:?xt=urn:btih:B962EA50094C4F962B5C954DE75AB09E67B0CCF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +558,8 @@ R. Carlos Nakai & Will Clipman - Awakening The Fire (2013) [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:9595991F6F46694EDDCFFE4B5A1A4EF0D96215E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +593,8 @@ David Arkenstone - Spirit of the Rain Forest (2004) [FLAC|Lossless]<New Age>
 magnet:?xt=urn:btih:B5CB40456ED12E17EBB501B05A13FEFC6444BC54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +621,8 @@ Tom Holkenborg aka Junkie XL - Дэдпул / Deadpool (Original Motion Picture 
 ```bash
 magnet:?xt=urn:btih:FCBE5587CEEB0E72B0CA9DF3286AE8CC00A1C172
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +657,8 @@ magnet:?xt=urn:btih:FCBE5587CEEB0E72B0CA9DF3286AE8CC00A1C172
 magnet:?xt=urn:btih:DAF0BD26E68F52FD3A82D11480B0A680984D1980
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +691,8 @@ Spirit Dance - Meditation (2013) [MP3|320 кб/с]<Folk, Native american, New ag
 ```bash
 magnet:?xt=urn:btih:AC949A42DA641EC74665760AFB08D5328183446A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -685,6 +727,8 @@ VA - Moonlight Piano - Lover's Rhapsody (1996) [FLAC|Lossless]<Instrumental | Ea
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -718,6 +762,8 @@ Cashback|Сдача (2008) [MP3|320 kbps]<Soundtrack>
 magnet:?xt=urn:btih:57D5E58CF0E01099703862EAB4D7A3F9EE1007BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -744,6 +790,8 @@ Tom Holkenborg aka Junkie XL - Дэдпул / Deadpool (Original Motion Picture 
 ```bash
 magnet:?xt=urn:btih:4BA873D8DFB92F99667F6B461A0694E56BDE26FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -772,6 +820,8 @@ magnet:?xt=urn:btih:4BA873D8DFB92F99667F6B461A0694E56BDE26FD
 magnet:?xt=urn:btih:550CED02A67C54DC93C7B20ADD8994A52548DD97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -798,6 +848,8 @@ Enis Rotthoff - Guns Akimbo / Пушки Акимбо (Original Motion Picture S
 ```bash
 magnet:?xt=urn:btih:3C754EA5C94D8A374ECB07A4C655ABD3A0F79802
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

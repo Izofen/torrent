@@ -19,6 +19,8 @@ The Dawning Clocks of Time Remake – ремейк инди-игры, перен
 magnet:?xt=urn:btih:8B7F8933BAFB78C378B10CA6A1BD3AE29918E07C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Ducky: The Brave – сыграйте за милого утенка Даки, �
 ```bash
 magnet:?xt=urn:btih:566BFAFBA782FDC196A99AB909CF98BE5C4E69E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Blacksad: Under the Skin (2019) [Ru/Multi] (20270705) License GOG
 magnet:?xt=urn:btih:F3D8236A30B4A0733DEC6E5A944F84AA2BE82D52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Crow Country (2024) [Multi] (20240525) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:928290767C53543F650D5A1C306A6C0747D767C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Until Then – после судьбоносной встречи жизнь М�
 magnet:?xt=urn:btih:495DC92190BA7191127A8E688881A7A6AA10C92D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Agatha Christie: Evil Under the Sun / Агата Кристи: Зло под С�
 ```bash
 magnet:?xt=urn:btih:AA6B2B6BDBDA60E4F8CD7EF038F992C8BD203446
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Apollo Justice: Ace Attorney Trilogy представляет новичка-а�
 magnet:?xt=urn:btih:3C875633CAECB8BEA00D66504CB3766BD54CFCBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Under the Waves – это повествовательная приключен
 ```bash
 magnet:?xt=urn:btih:016936C9B28DC0733EE066578917C03D3CF7AED2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Nobody Wants to Die с головой окунает вас в Нью-Йорк �
 magnet:?xt=urn:btih:5C03C5A0EBEB6938BFB6A4EB6CD32ED7EAD652BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Suzerain (2020) [En] (3.0.9/dlc) Scene Tenoke [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:72278E4797E7BF50B444369DFFFAAF1976DC0943
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Nobody Wants to Die с головой окунает вас в Нью-Йорк �
 magnet:?xt=urn:btih:E01CCCA1B733BE851976B7F264B0ABAEAEDE6B75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Grouls (2024) [En] (0.5) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:54E22F9DDABE903E479B87BAF0FC080F5DA551DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Amber Alert (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:F9E9E968D6AB4D806463C78EFDC5D8CDDBF55619
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Supernatural (2024) [Ru/Multi] (1.2.1) Scene FAiRLIGHT
 ```bash
 magnet:?xt=urn:btih:9DF69BCAD564087F46421E5BAEED1317C140DB0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Antichamber – необычная головоломка, где игрок м�
 magnet:?xt=urn:btih:7971EA9D3F45597D7724F00E1C38A397DD4AE1AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Yuppie Psycho (2019) [Ru/Multi] (2.7.5) License GOG [Executive Edition]
 ```bash
 magnet:?xt=urn:btih:D7ECC51E78AF0177D34F146A4564C14435548702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ KAKU: Ancient Seal предлагает стать на место Каку, г�
 magnet:?xt=urn:btih:3BDAEDE317AFADA077A71685D8522F2006AC8EDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Layers of Fear 2 призвана продолжить традиции по в�
 ```bash
 magnet:?xt=urn:btih:6E21F05B28350BF4E15B1BA4809176B871DA6290
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Layers of Fear (2023) [Ru/Multi] (1.6.1/dlc) License GOG [Deluxe Edition]
 magnet:?xt=urn:btih:3A4762B82EEE5070EE4DF22606D554433725A596
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ KAKU: Ancient Seal предлагает стать на место Каку, г�
 ```bash
 magnet:?xt=urn:btih:111131ACE2477704C73B0060B5818E2A95116669
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Madhouse Madness: Streamer's Fate (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:07E989D2BE1B05947B7880A14CD79F6BCB2A374B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Last Alchemist погружает в мир, где сталкиваются
 ```bash
 magnet:?xt=urn:btih:CA0C3DF4FE6E6F8007D6FD537BC050535A88BFDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Daymare: 1994 Sandcastle - это сюжетный хоррор от треть�
 magnet:?xt=urn:btih:25392B818F5B0B0A215A03106E16175810574D13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Heirs – на самом деле наследство может быть ра
 ```bash
 magnet:?xt=urn:btih:9B3CB9B3DBFC7DD4CDB08BEF7EA02A97B9E6CAF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Heirs – на самом деле наследство может быть ра
 magnet:?xt=urn:btih:86F307349D4FF4512424FAB04994AA236160A4E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Eternal Escape: castle of shadows (2024) [Ru/Multi] (1.0) Scene TiNYiSO
 ```bash
 magnet:?xt=urn:btih:24FF2B3390D02F8E5A4304DC666339B8BC3C30AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

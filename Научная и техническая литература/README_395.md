@@ -1,3 +1,56 @@
+###  Публикация: 1142188   (644475) от 13.06.2017
+
+Н.А. Тюнин, А.В. Родин (ред.) | Программный ремонт сотовых телефонов Samsung и Motorola (2008) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга является логическим продолжением первой книги издательств "Ремонт и Сервис 21" и "СОЛОН-Пресс" (серия Ремонт, выпуск 93) по теме программного ремонта сотовых телефонов. В этом издании приводятся материалы по инженерному программированию и ремонту более 120 моделей телефонов Samsung и около 100 - Motorola.
+В книге рассматриваются программные (   Читать дальше...   )Жанр: Радиосвязь, электроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47734AD2521292B49037F25128C73D158C68DDAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 96824   (644569) от 30.03.2019
+
+Ю.Б.Филиппович | Основы биохимии [1999] [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однотомный учебник по биохимии.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7337F17DDFC1A81D829595338BA55C4A3DEBB6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541655   (644651) от 03.04.2022
 
 Кирби Ройтер | Диалектическая поведенческая терапия ПТСР: тренинг навыков (2021) [PDF]
@@ -18,6 +71,8 @@
 ```bash
 magnet:?xt=urn:btih:1226766B68FC56BADCDB1A4129645E29847B355E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +97,8 @@ magnet:?xt=urn:btih:1226766B68FC56BADCDB1A4129645E29847B355E
 ```bash
 magnet:?xt=urn:btih:3E39C8DD916A4511C8AA4C556B219EB2C28589ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +125,8 @@ magnet:?xt=urn:btih:3E39C8DD916A4511C8AA4C556B219EB2C28589ED
 magnet:?xt=urn:btih:013BC62F2BD6BBA7997900246B1FAA6651ABA297
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +151,8 @@ magnet:?xt=urn:btih:013BC62F2BD6BBA7997900246B1FAA6651ABA297
 ```bash
 magnet:?xt=urn:btih:04D7CD45750C7448A9D22077D9425424C36C298E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +179,8 @@ magnet:?xt=urn:btih:04D7CD45750C7448A9D22077D9425424C36C298E
 magnet:?xt=urn:btih:6D39A8DBEA426B8306223A712D3B0E6D81BF8DFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +205,8 @@ magnet:?xt=urn:btih:6D39A8DBEA426B8306223A712D3B0E6D81BF8DFC
 ```bash
 magnet:?xt=urn:btih:7C65E67D8A2637DE5EB9E27E3DA14EAB102D967E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +234,8 @@ magnet:?xt=urn:btih:7C65E67D8A2637DE5EB9E27E3DA14EAB102D967E
 magnet:?xt=urn:btih:98CBAF8F11252AC697D9F5A277E9C3BB4826C62E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +259,8 @@ magnet:?xt=urn:btih:98CBAF8F11252AC697D9F5A277E9C3BB4826C62E
 ```bash
 magnet:?xt=urn:btih:DE42FD8E79BAEBC4EC85193C616745BA4BFDD422
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +286,8 @@ magnet:?xt=urn:btih:DE42FD8E79BAEBC4EC85193C616745BA4BFDD422
 magnet:?xt=urn:btih:68415683F0CA74B6AB2DF6571E10DEF91F89A8B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +311,8 @@ magnet:?xt=urn:btih:68415683F0CA74B6AB2DF6571E10DEF91F89A8B8
 ```bash
 magnet:?xt=urn:btih:A713EEF5A16EBB2A44028E94FBB411255EB2B591
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +338,8 @@ magnet:?xt=urn:btih:A713EEF5A16EBB2A44028E94FBB411255EB2B591
 magnet:?xt=urn:btih:48EDE5A4A1B5626BB474F70DA2AA5E7AC931601F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +363,8 @@ magnet:?xt=urn:btih:48EDE5A4A1B5626BB474F70DA2AA5E7AC931601F
 ```bash
 magnet:?xt=urn:btih:2468B2CED8B85ADF64BE18C6DE4F65EF1DB574B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +390,8 @@ magnet:?xt=urn:btih:2468B2CED8B85ADF64BE18C6DE4F65EF1DB574B3
 magnet:?xt=urn:btih:49DE0DC61DA358696AA4C5594B3AD8F07CCDB88C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +415,8 @@ magnet:?xt=urn:btih:49DE0DC61DA358696AA4C5594B3AD8F07CCDB88C
 ```bash
 magnet:?xt=urn:btih:F2B4A7FBC5C96827EBFDBC0E5AEB871CA052B8D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +442,8 @@ magnet:?xt=urn:btih:F2B4A7FBC5C96827EBFDBC0E5AEB871CA052B8D0
 magnet:?xt=urn:btih:DB08CE6BECA1A1C5C1FD1F5278CCFE2C87614172
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +467,8 @@ magnet:?xt=urn:btih:DB08CE6BECA1A1C5C1FD1F5278CCFE2C87614172
 ```bash
 magnet:?xt=urn:btih:D1CE00A4BF3370272CDD927F4A5C361BD433F355
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +494,8 @@ magnet:?xt=urn:btih:D1CE00A4BF3370272CDD927F4A5C361BD433F355
 magnet:?xt=urn:btih:76ED10E3DC4BCE07FB934B7A15A540D1994CC0B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +519,8 @@ magnet:?xt=urn:btih:76ED10E3DC4BCE07FB934B7A15A540D1994CC0B1
 ```bash
 magnet:?xt=urn:btih:0C33DB93AA8DBF364F93F192CDBA2CF961623BB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +546,8 @@ magnet:?xt=urn:btih:0C33DB93AA8DBF364F93F192CDBA2CF961623BB9
 magnet:?xt=urn:btih:07D4A8816E970392058B8B84430DDBB2690674E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +572,8 @@ magnet:?xt=urn:btih:07D4A8816E970392058B8B84430DDBB2690674E4
 magnet:?xt=urn:btih:95F06BD2CDC0534060DD61DCCA876FB8405CE677
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +597,8 @@ magnet:?xt=urn:btih:95F06BD2CDC0534060DD61DCCA876FB8405CE677
 ```bash
 magnet:?xt=urn:btih:8BE44A7022ACC893565F6A7A7ADB8828C936754C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +625,8 @@ magnet:?xt=urn:btih:8BE44A7022ACC893565F6A7A7ADB8828C936754C
 magnet:?xt=urn:btih:847EB7B48ED817DD7FEDD917588F1D8885F727A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +650,8 @@ magnet:?xt=urn:btih:847EB7B48ED817DD7FEDD917588F1D8885F727A7
 ```bash
 magnet:?xt=urn:btih:4450FC9215F6F58DAF0916109DAA4F5CF29F5525
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,53 +679,7 @@ magnet:?xt=urn:btih:4450FC9215F6F58DAF0916109DAA4F5CF29F5525
 magnet:?xt=urn:btih:E770DFCF2A8BCC06BA0F0DB843D0CFB551826F79
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906175   (645531) от 08.06.2015
-
-Антонио Форчеллино | Микеланджело. Беспокойная жизнь (2011) [PDF, DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645531.jpg" />
-</div>
-
-
-###  Подробнее
-
-В своей блестящей книге Антонио Форчеллино показывает новые грани жизни и творчества Микеланджело. Собственные глубокие искусствоведческие познания и опыт реставратора помогают ему точнее и полнее раскрыть методы работы резцом и технику фресковой живописи великого мастера, глубже проникнуть в его богатый внутренний мир. Автор опирается на все доступные источники, (   Читать дальше...   )Жанр: история, исторические персоныФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C555050E0EE7A24ECF153A72D724B2E8A22020D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906042   (645540) от 08.06.2015
-
-Наталья Дьякова, Максим Чепелкин | Приложение к "Истории России". Границы России в XVII-XX веках (1995) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторы на основании документов рассматривают процесс образования границ России и Российской Федерации с XVII в. по наше время.Жанр: Отечественная историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD5E0BE96EB4AC88F00E6B20E2F459D54DD63B13
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

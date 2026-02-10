@@ -27,6 +27,8 @@ VA - Autour De Minuit - In Love (2012) [MP3|320 кб/с]<Classics Jazz>
 magnet:?xt=urn:btih:DC265363A93315F58755E1CEC8A7D32F1E2E1F1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ Duke Ellington - Indigos (1998) [FLAC|Lossless]<Jazz, Swing, Big Band>
 magnet:?xt=urn:btih:792FA6C51060B6BC90C02F076C61B6112D3E7B9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -86,6 +90,8 @@ Kurt Elling - SuperBlue (2021) [FLAC|Lossless|tracks + .cue] <Vocal Jazz,Funk>
 ```bash
 magnet:?xt=urn:btih:EAAAE470E025A89EB0453F6DDCC85AA854FEAFD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -114,6 +120,8 @@ Cory Weeds - What is There to Say (2021) [FLAC|Lossless|WEB-DL|tracks] <Post-Bop
 magnet:?xt=urn:btih:CEBA2E0367FEEDD9B1625620A1040D0EEB521E36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +149,8 @@ VA - Ultra-Lounge Part 2: The Tiki Sampler (1999) Capitol Records[FLAC|tracks+.c
 magnet:?xt=urn:btih:29949498B4D28D0DC645633FC898DDF478F08A9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +177,8 @@ VA - The Complete Felsted Mainstream Collection (1958, 1959) 5CD, 2011, Solar Re
 ```bash
 magnet:?xt=urn:btih:E48039DDAC6918BA662F07F6921121BEA3FB8E88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +213,8 @@ Chris Botti - The Best Tunes For Languid Evenings (2010) [FLAC|Lossless]<Smooth 
 magnet:?xt=urn:btih:61765BF10CC9DF12F68B7E4672FDC6AABCC6CA69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +241,8 @@ Eddie Condon featuring Wild Bill Davison 1951 - 1952 - Dr. Jazz Series, Vol. 5 (
 ```bash
 magnet:?xt=urn:btih:F2370CFCA2FB016C8C4386461A9BF01FC47EDF38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -255,6 +271,8 @@ Marc Miralta - New York Flamenco Reunion (1997) 2000, Nuevos Medios S.A.[FLAC|tr
 magnet:?xt=urn:btih:3CB569C74A1FBD446132E697C77A54BC3A521185
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +299,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:A00478CBDB13BF8378898DB5BB300D5E6CB4A98C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +329,8 @@ Michele D'Amour and the Love Dealers - Wiggle Room (2018) [FLAC 2.0|96/24|tracks
 magnet:?xt=urn:btih:368CA4A4EFB8A9D82AFA71F1E74629AD8C3BCCDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +357,8 @@ VA - Texas Guitar Killers (1995) [MP3|320 кб/с] <Blues>
 ```bash
 magnet:?xt=urn:btih:4D1CFAD3AFEDA08CDF7FB812E6ABE8650FF74809
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +387,8 @@ De-Phazz - Jelly Banquet (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Acid Jaz
 magnet:?xt=urn:btih:C023B047D5A72CF11184B9E3253B9BCF2C94F3E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +415,8 @@ Martin Salemi - About Time (2021) Igloo [APE|Lossless|tracks + .cue] <Post-Bop, 
 ```bash
 magnet:?xt=urn:btih:7D7156BC2C1A82BC9DCBEC038D1C1CC7D33F4F97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +448,8 @@ Chris Buck & The Big Horns - Postcards From Capricorn (2013) [FLAC|Lossless]<Roc
 magnet:?xt=urn:btih:70F804633C5F527210DE5B11397A51729EC29BAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +476,8 @@ Hal Singer With Charlie Shavers - Blue Stompin' (1957) 1994, Original Jazz Class
 ```bash
 magnet:?xt=urn:btih:DB9BACE4297F0F1029A2E175F5CAC340586D42C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +512,8 @@ House of Dues - Cross That Line (2013) [FLAC|Lossless]<Blues>
 magnet:?xt=urn:btih:D15FC8BB183636A02BE1450AEB372F174C6777D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +540,8 @@ Erika Paul - Jazz Just For Kids (2021) Jazz Q [FLAC|Lossless|tracks + .cue] <Voc
 ```bash
 magnet:?xt=urn:btih:6A790F36904E1547F33996659E0C4C2E53E6B8D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +570,8 @@ Brian Bromberg - The Magic of Moonlight (2023) [FLAC|Lossless|WEB-DL|tracks] <Sm
 magnet:?xt=urn:btih:2355A27B9A8553551D882D3F8142611C7D9D0C54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +598,8 @@ Terrace Martin & Curly - Curly (2023) [MP3|320 Kbps] <Jazz, Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:06F85D134A2CF84EC363EEA3149DAD3043E9A940
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +628,8 @@ Andre Previn & David Rose - Like Blue (1959) 2010, Hallmark [FLAC|Lossless|track
 magnet:?xt=urn:btih:1E196AA8BED0E85A62CDE8B2231FEFC4FD3198BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +656,8 @@ Alexandra Shakina - Mood Indigo (2021) Japanese Edition [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:FDBC8529A7B3F0C9DAADCFE7F1DCF7A40596F7A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +686,8 @@ The Mount Fuji Doomjazz Corporation - Егор (Egor) (2012) [FLAC|Lossless|trac
 magnet:?xt=urn:btih:5AF66B8EAA7A50E7BBD6D9D14CD43FB55153CE38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +714,8 @@ VA - The Rat Pack: 50 Original Recordings (2007) [FLAC|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:80EC5B26B1BC4CF46F5AA63D7957482845E6083E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -696,6 +744,8 @@ Alexandra Shakina - All The Way (2020) Venus Records [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:D3898403C0C1B5FCE87942BD7086C96E5401FB00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -722,6 +772,8 @@ Frank Wess, Kenny Burrell, Joe Newman - Jazz For Playboys (1956, 1957) 2000, Sav
 ```bash
 magnet:?xt=urn:btih:D7AB2F42713F35027D62A369DB53D7BF0B0080E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

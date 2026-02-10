@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1C4B1B32F77FB7ACFD894F1EAB9143C00513E110
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:1C4B1B32F77FB7ACFD894F1EAB9143C00513E110
 ```bash
 magnet:?xt=urn:btih:F608DC7604AA1C8E924B50C87E1FF9809F33DE90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:F608DC7604AA1C8E924B50C87E1FF9809F33DE90
 magnet:?xt=urn:btih:35CC0F6767E34996F2639EF082AD7CC7F9987E4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:35CC0F6767E34996F2639EF082AD7CC7F9987E4A
 ```bash
 magnet:?xt=urn:btih:7E14FF99FEE3776F24BA7A9149BAA60A43411CF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:7E14FF99FEE3776F24BA7A9149BAA60A43411CF9
 magnet:?xt=urn:btih:D062C248DEF20A18D91B8EA97503A19CD03D1BA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:D062C248DEF20A18D91B8EA97503A19CD03D1BA1
 ```bash
 magnet:?xt=urn:btih:3595B1AC5B6B33989C87C06776FD31C5D09A1F81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Chanto Suenai Kyuuketsuki-chan | Li`l Miss Vampire Can`t Suck Right | Вампи
 magnet:?xt=urn:btih:4EC60E1FAE67F71BA57759AC50A105335792E781
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:4EC60E1FAE67F71BA57759AC50A105335792E781
 ```bash
 magnet:?xt=urn:btih:0F65263350B8611F7B2AAB6695FF9D8A1C7AD7F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:0F65263350B8611F7B2AAB6695FF9D8A1C7AD7F5
 magnet:?xt=urn:btih:1DBF095C1AB861831993D88735D37ADFD5F0BFE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:1DBF095C1AB861831993D88735D37ADFD5F0BFE1
 ```bash
 magnet:?xt=urn:btih:722A274D248C3190FC6D06D914C434460DA553D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ Crowne - Wonderland (2025) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
 magnet:?xt=urn:btih:FBECBDA1FEA0FA714CC20479D9BA76D64821F1ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:FBECBDA1FEA0FA714CC20479D9BA76D64821F1ED
 ```bash
 magnet:?xt=urn:btih:52ADF784521D79424CE30188CDFEFFA06FC54C2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ Catfish John Tisdell - Win or Lose (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 magnet:?xt=urn:btih:69B937350418321385CE7E7EE44D3D7031CF0867
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:69B937350418321385CE7E7EE44D3D7031CF0867
 ```bash
 magnet:?xt=urn:btih:F41E2FFB6CC9B22B1527884766E772AC404B22D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ Black Barrel & The Bad Men - Bad Men, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:9B33F33DF7C8F572FCADF823EE2C45B73E11945D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ Bidu Sous - On the Blues Road (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:C46374716CE78D00248C52FFBEE7E1655EEDB4D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ Ben Hemming - The Meaning Of All Things (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 magnet:?xt=urn:btih:64A172E132462DDE0F2ED6171D04D0209EAE7875
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ BB & the Bullets - High Tide (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:FEFCF7316072C627843A6DB622A18A75BF9B31E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ magnet:?xt=urn:btih:FEFCF7316072C627843A6DB622A18A75BF9B31E0
 ```bash
 magnet:?xt=urn:btih:10138635D28DFDC789DB1E1498743EA90DF6C983
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:10138635D28DFDC789DB1E1498743EA90DF6C983
 magnet:?xt=urn:btih:D872FE1418BBF583EDC52951F96798DCFE640F68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:D872FE1418BBF583EDC52951F96798DCFE640F68
 ```bash
 magnet:?xt=urn:btih:93C0EFB159B8A27FF6EDAD85C91E439CABF7204B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:93C0EFB159B8A27FF6EDAD85C91E439CABF7204B
 magnet:?xt=urn:btih:5350D2B6213D9FA50BB536845E8E84D7D16ED01D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:5350D2B6213D9FA50BB536845E8E84D7D16ED01D
 ```bash
 magnet:?xt=urn:btih:A5CEA7D303C2628DF3827ACA6A0AE0232D143470
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:A5CEA7D303C2628DF3827ACA6A0AE0232D143470
 magnet:?xt=urn:btih:18A83952E2FAD3378459F1DEB42030455AB91C87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ magnet:?xt=urn:btih:18A83952E2FAD3378459F1DEB42030455AB91C87
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ magnet:?xt=urn:btih:18A83952E2FAD3378459F1DEB42030455AB91C87
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

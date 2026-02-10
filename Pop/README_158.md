@@ -1,3 +1,156 @@
+###  Публикация: 1169270   (403812) от 26.09.2017
+
+Bagarre - Circus (1982) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lemonsweet (6:32)
+02. Little Ladies (4:31)
+03. Circus Is Gone (4:31)
+04. Dirty Love (4:53)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:980ABBF2D411F4B7FCA3B08B2B1FA35D5EE20DF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169226   (403945) от 26.09.2017
+
+Татьяна Снежина - Я не могу без тебя (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мой старый дом (4:58)
+02. На далёкой станции (5:37)
+03. Ночь пришла (5:32)
+04. Млечного пути мостик (7:14)(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDBD4A5BBFFFAC8B49A62E9CD41A3ED955C553C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169228   (404052) от 26.09.2017
+
+Чика из Перми - Dream Of Chika (2014) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Of Chika (3:22)
+02. Я каждый день бухаю (3:52)
+03. Брандо (4:18)
+04. Роллы (3:02)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:814078CB0987B90EAE569C010E3D8DB7B1B82EDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562697   (404588) от 21.10.2012
+
+VA - Ti Amo Vol 1 & Vol 2 - The Ultimate Italian Treasures (2012) [MP3|320 кб/с]<Italian pop, Canzone, Oldies>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Umberto Tozzi - Non va che volo [04:37]
+02. Fausto Leali - Amore dolce, amore amaro, amore mio [05:01]
+03. Loretta Goggi - Maledetta primavera [04:13]
+04. Gianni Bella - Non si puo morire dentro [04:04]
+05. Renato E I Profeti - Io perche', Io per chi [03:36]
+06. Raf - Inevitabile follia [02:15]
+07. Pino Daniele - Quando [03:38]
+08. Al Bano & Romina Power - Liberta' [04:23]
+09. Pierangelo Bertoli - Eppure Soffia [02:50]
+10. Johnny Dorelli - Mamy Blue [03:50](   Читать дальше...   )Жанр: Italian pop, Canzone, OldiesПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F8A33D014B61370C9EE66777A30743E64D6140C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169016   (404778) от 25.09.2017
+
+Леонид Агутин - Дискография (1994-2016) [MP3|320 Kbps] <Pop, Latin Pop, Romantic Pop Rock>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Леонид Николаевич Агутин – российский певец, поэт-песенник, муж певицы Анжелики Варум.
+В 1994 году появился первый официальный альбом - "Босоногий мальчик", ставший революцией в популярной музыке и принесшей Леониду Агутину всенародную любовь и признание профессионалов.
+И, в результате, в 1995-м Агутин становится лауреатом премии - "Овации" и (   Читать дальше...   )1994 - Босоногий мальчик
+1995 - Декамерон
+1998 - Летний дождь
+2000 - Леонид Агутин feat Анжелика Варум - Служебный романЖанр: Pop, Latin Pop, Romantic Pop RockПродолжительность: 21:21:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:825EEA75B9AE1F6ED8A44B05082C525A23EA2E5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168751   (404987) от 25.09.2017
 
 VA - House Disco Soul (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
@@ -21,6 +174,8 @@ VA - House Disco Soul (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
 ```bash
 magnet:?xt=urn:btih:9C22D4C0D240AE12AE3081A86BFC6E8BC8D3831E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +204,8 @@ D.C. LaRue, настоящее имя - Дэвид Чарльз Леро, род
 magnet:?xt=urn:btih:1DBD5FF70DB1716C461CBE626E0E239DE43FE595
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +232,8 @@ Fifth Harmony - Fifth Harmony (2017) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:960C8177023CCB42A58DFBE23EEF814BB0257C82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +268,8 @@ VA - Platinum 80s (2002) [FLAC|Lossless]<Pop, Rock, Soul, Disco>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +302,8 @@ VA - One Shot 80 Vol.1-18 (1998-2006) [MP3|320 кб/с]<Disco, Pop>
 ```bash
 magnet:?xt=urn:btih:B9646F06617754C0943A9D4B6FAA6681DFA73205
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +338,8 @@ VA - British Rock N' Roll Anthology (1956-1964) 5 CD's Box Set (2009) [MP3|320 �
 magnet:?xt=urn:btih:190661A9B788AFBC9EF1F0E2F9FF2C805B5ED743
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +372,8 @@ Body Heat - No! Mr. Boom Boom (1998) [MP3|320 кб/с]<Disco, Hi NRG>
 ```bash
 magnet:?xt=urn:btih:6CC4AD4555B40577EF1F2E0CAD47028380B0ACE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +408,8 @@ Baby's Gang - Child Disco (1989) [MP3|192 кб/с]<Italo-Disco>
 magnet:?xt=urn:btih:0A47F38083F7FC6F9D9A3ADECB1610B5F42661BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +443,8 @@ Silent Circle - The Maxi-Singles Collection (2006) [MP3|320 кб/с]<Italo-Disco
 magnet:?xt=urn:btih:AC31AC68A1CCC192F244D5907753A362DD4C253A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +472,8 @@ Patricia Kaas - Patricia Kaas (2016) Warner Music [FLAC 2.0|44.1/24|tracks|WEB-D
 magnet:?xt=urn:btih:37C38F1ACBFAA8B34666EAFBECE63FE3B76E0499
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +497,8 @@ Secret Service - Secret Mission (2020) Single [FLAC|Lossless|WEB-DL|tracks] <Pop
 ```bash
 magnet:?xt=urn:btih:023329AA6983093AB15AFDFF7333306ED0894160
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +527,8 @@ VA - Love Pop Songs (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:8580267B8D1AE9D9111B5032D0C386D74A587760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +555,8 @@ Franco Orlandini & Roberto Colombo - Bubble Gum (1978) LP [MP3|320 Kbps] <Electr
 ```bash
 magnet:?xt=urn:btih:C4FF3C5CE78A03B36B8908281F282152B0C96CEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +585,8 @@ VA - 90s Dance Hits, Vol.4 (2019) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:3B52B8BC92D02BAA7CBFFA10AD6C9F1A93FA2145
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +613,8 @@ VA - 90s Retro Dance Grooves (2019) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:60D94EEDED4CE0E37ED7993F8FBEAC4172C2C280
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +643,8 @@ Uranium - 2 Singles (1979) [MP3|320 Kbps] <Electronic, Space Disco>
 magnet:?xt=urn:btih:07FCC2CA2E67F3E1AA479F3F15FAB7E6E6F082AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +671,8 @@ Flamenco Group - The House Of The Rising Sun (1978) LP [MP3|320 Kbps] <Electroni
 ```bash
 magnet:?xt=urn:btih:5406EC895FF7DBB79EFC2A3A75D0DD1C3B3D5E60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +701,8 @@ Caro - 2 Albums (1980, 1983) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco, New
 magnet:?xt=urn:btih:9288FFA2D66E326F026A42A40B83FFADF880AF89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +729,8 @@ Blue System - Deja Vu (1991) [OGG Vorbis|485 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:7520DE0C519A18612C6865EBCF85751F2C600B90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +759,8 @@ Hot Bush - Hot Bush (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 magnet:?xt=urn:btih:FCD78A6A644E5AA625400B22508029D1DB6BF09D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,140 +788,7 @@ C. C. Catch - Greatest Hits (2018) [MP3|320 Kbps] <Euro-Disco>
 magnet:?xt=urn:btih:716C07DF1DD18B36E9062D91058C8ABDB0262DAE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252752   (407968) от 06.10.2018
-
-Frederic Mirage - Atlantic (1979) LP [MP3|320 Kbps] <Electronic, Space-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальный альбом, в отличии от гуляющего по сети пиратского сборника с одноименным названием и перебитыми заголовками треков.01. Atlantic (4:53)
-02. Birth Of A Planet (6:03)
-03. Future Dance (5:42)
-04. Power Sense (3:30)(   Читать дальше...   )Жанр: Electronic, Space-DiscoПродолжительность: 00:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35F84F7EF40DD7D95539A04EEC9A12E6295CDE77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252711   (407980) от 06.10.2018
-
-VA - School Days - The Ultimate Collection (2018) 5CD [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407980.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01. Human League - Don't You Want Me
-02. Soft Cell - Tainted Love
-03. Madness - Baggy Trousers(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 05:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF3C20AE2CA6A32678517142C9FDA75377855F8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252781   (407998) от 06.10.2018
-
-The D-Lights - She's Coming From Mars! (2014) LP [MP3|320 Kbps] <Electronic,  Disco, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбом, записанный Frederic Mirage в 1980 году и увидевший свет лишь в 2014-м.01. From Time To Time (5:07)
-02. Listen To The Moonpig (4:01)
-03. Blue Gras (3:38)
-04. Triple Water (4:02)(   Читать дальше...   )Жанр: Electronic,  Disco, Synth-popПродолжительность: 00:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81EB4C7CA6EDACD93C1FBFD4B4B1C41F89C3E3B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067133   (408121) от 28.10.2016
-
-James Arthur - Back from the Edge (2016) Deluxe Edition [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408121.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Back from the Edge
-2. Say You Won't Let Go
-3. Prisoner
-4. Can I Be Him(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF3CCDAEE78C89172B5AB3089709F31462D69FC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949229   (408154) от 22.10.2015
-
-VA - So Fresh The Hits Of Winter 2015 (2015) [FLAC|tracks]<Pop, Dance, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. WALK THE MOON - Shut Up and Dance [3:20]
-02. Grace feat. G-Eazy - You Don't Own Me [3:21]
-03. Rachel Platten - Fight Song [3:24]
-04. James Bay - Let it Go [4:22](   Читать дальше...   )Жанр: Pop, Dance, R&BПродолжительность: 01:15:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4D3C7FEF1532FB2E7850E8B406DF66591D6AC16
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

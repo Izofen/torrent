@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:6C8BFE68AC532A1AEC3AA78B80AFB3B14E602177
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Hannah Jadagu - Aperture (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:025EA9F2E6D749F8E6AA9B5226954A53FF219906
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - All Out Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:68404E2FE612F95D6C2A30DA70825ED8C468AA5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Vesuvian - Emergence (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Melodic De
 magnet:?xt=urn:btih:B8AAC554AB8B414E2B8D66CECDB286A69FBD91F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:B8AAC554AB8B414E2B8D66CECDB286A69FBD91F6
 ```bash
 magnet:?xt=urn:btih:1C70793F2B4574A9F0522FE6F9FB576F2E0C206E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ EtreCheck Pro 6.4.4 [En]
 magnet:?xt=urn:btih:FAC10966043718E2FBFEA03AE462AF9F84C6A7C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:FAC10966043718E2FBFEA03AE462AF9F84C6A7C2
 ```bash
 magnet:?xt=urn:btih:6ECCC268CE05268E2782A57CAA76E794EB91088B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:6ECCC268CE05268E2782A57CAA76E794EB91088B
 magnet:?xt=urn:btih:90742BE3944EA3FF192DBD78A9472CB93DC4822E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:90742BE3944EA3FF192DBD78A9472CB93DC4822E
 ```bash
 magnet:?xt=urn:btih:EB3565B738440F203D94DCDB5B01D6AD5FAAC03D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ Pistol Pete Wearn - Blues, Ballads & Barnstormers (2023) [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:4637286751FB68E9EA0087703058DC72E4D2D0A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ Mitti имеет понятный, интуитивно простой поль�
 magnet:?xt=urn:btih:409E294498C9BA6E39AC5834E71BDB4D3CF2776E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:409E294498C9BA6E39AC5834E71BDB4D3CF2776E
 ```bash
 magnet:?xt=urn:btih:94FADE9B35038F5C4FC093C66D77CD38065AB10D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:94FADE9B35038F5C4FC093C66D77CD38065AB10D
 magnet:?xt=urn:btih:3FB4BFC97EAF8A577EFDA105AA4095B40589D1A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ Bugsnax (2020) [PS4] [USA] 5.05 [HEN] [License / 2.08] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8A7D5B152BF4BE4D3DB6A77F13534DF114624BC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ Chernobylite — научно-фантастическая ролевая игр
 magnet:?xt=urn:btih:14BA6E9C4579DFCC94095426F0005EA68751C637
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ Book Track - это приложение для каталогизации и о
 ```bash
 magnet:?xt=urn:btih:883AFB5EF361273746E803F9106A18AF3095CC3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ Ubuntu*Pack 22.04 KDE / Kubuntu (март 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:EB674431DADF96F73AEF3573DA85E60D74693F6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ VA - 00s Finest Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:234246A05CA13CFC81BF553372A58AFB637B7C83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ Joe Henderson - Page One (2017) [FLAC|192/24|Lossless|WEB-DL|tracks] <Jazz>
 ```bash
 magnet:?xt=urn:btih:6EA7DCE29F8116A0E9C0AA68CF43C3DD60639721
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +540,8 @@ Duke Ellington - Top Jazz (1959) 1990, Valentine Records [APE|Lossless|image + .
 magnet:?xt=urn:btih:3C969D8AC5195F3A826B07196154479966521B4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ Glary Disk Cleaner - бесплатный инструмент от компан
 magnet:?xt=urn:btih:BFA0237B172D197666FAE6BE61E5F64DA1471A03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ EazyDraw от Dekorra Optics – графическая программа, со
 ```bash
 magnet:?xt=urn:btih:94BA9E75F49541CFEB0571DCBFDA9FA35D5E9195
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:94BA9E75F49541CFEB0571DCBFDA9FA35D5E9195
 magnet:?xt=urn:btih:3F40C204712D11EF46AFCA8D07DF3E3F0948734D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +647,8 @@ magnet:?xt=urn:btih:3F40C204712D11EF46AFCA8D07DF3E3F0948734D
 magnet:?xt=urn:btih:05B43353ADF539493C5630728193764116DB367F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ magnet:?xt=urn:btih:05B43353ADF539493C5630728193764116DB367F
 ```bash
 magnet:?xt=urn:btih:9BEBB95CA4CB8C90DDB19DB70D707AE8BCFFD923
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +699,8 @@ NIUBI Partition Editor – программа для простого и над�
 ```bash
 magnet:?xt=urn:btih:0868F445EE630532DB9A4D73E8D78831A5F77AE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

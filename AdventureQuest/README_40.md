@@ -19,6 +19,8 @@ Yet Another Fantasy Title (YAFT) - это изометрический роле�
 magnet:?xt=urn:btih:AE5FBD4AAAD7FD088EDEA4751616E293DAB99CAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Die Again – инди-экшен, использующий несколько �
 ```bash
 magnet:?xt=urn:btih:01C9B506C8FAE40B36751FE585BD5851BB6DD44C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Five Nights at Freddy's: Security Breach - хоррор-выживастик, г
 magnet:?xt=urn:btih:1D620FC440409E13CCE7C0132ED00E9D9644E9CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Harold Halibut - созданная вручную нарративная игр
 ```bash
 magnet:?xt=urn:btih:DDF0892DF3AD34E7AD90570F84242CB1FE3852CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Yet Another Fantasy Title (YAFT) - это изометрический роле�
 magnet:?xt=urn:btih:F1039FBFB00E4C84868F84E54DC4BEB57A4E53EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Deber - это короткая платформенная игра, в кото
 ```bash
 magnet:?xt=urn:btih:1CE7D1369A9503DB6C4F5BE01E9B23FAC2BCC1C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Shadow Corridor 2 переносит игроков в кошмарный мир
 magnet:?xt=urn:btih:36E10A1DEF4292DE1E3ACFB0FBE12EA59B259A8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ One Last Breath рассказывает историю о отчаянии, н�
 ```bash
 magnet:?xt=urn:btih:08D4E1BB2AB3FBBAFB4012D65DDF62112834F8FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Children of the Sun бросает вас с головой в жестокую 
 magnet:?xt=urn:btih:EB19EBAB708A95DB250289EC260C5CB51DD8C02E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ A Divine Guide To Puzzle Solving бросает вас в мир богов в �
 ```bash
 magnet:?xt=urn:btih:7F19DE4753E925F44B0B93FF5826A10EC586DF42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Children of the Sun бросает вас с головой в жестокую 
 magnet:?xt=urn:btih:772DF4DF07B479F775498BD8B65F33FC1025C4E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ White Day 2: The Flower That Tells Lies – первый эпизод прикл
 ```bash
 magnet:?xt=urn:btih:1E68FABD109C96FB6CB32C591C9DB8E08F233AF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Nightmare House (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:D156D6E7DFB1BA267308E10A4AF928214E48F916
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Turbo Kid представляет собой метроидванию с дву
 ```bash
 magnet:?xt=urn:btih:DB93143A09B11DE563F60E1146B7C55D8296816F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ MythForce сочетает в себе все эти элементы в увл�
 magnet:?xt=urn:btih:B1622C261A33DDE24502A59DB0FC394C8603C628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ White Day 2: The Flower That Tells Lies – первый эпизод прикл
 ```bash
 magnet:?xt=urn:btih:D87E041CAF687BFA5F348F2F1D77E921702A261A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Children of the Sun бросает вас с головой в жестокую 
 magnet:?xt=urn:btih:AC592AFE0E50BAE512D2194BAE20FED5FB031B46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Frogmonster (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E78B39EAC229F92910B5CDA804453FD84C1E7BA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Yet Another Fantasy Title (YAFT) - это изометрический роле�
 magnet:?xt=urn:btih:A25A87391E7628283DDFF241CB08700DA775B104
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Ereban: Shadow Legacy в быстро развивающемся стелс-пл
 ```bash
 magnet:?xt=urn:btih:97D4272434600BBDDBB328FE7559E2145BC49E77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Cursed Legacy - это сверхъестественное расследо
 magnet:?xt=urn:btih:5731180FC31E51E9B504A865E514C8145871FB72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Ereban: Shadow Legacy в быстро развивающемся стелс-пл
 ```bash
 magnet:?xt=urn:btih:B63837B5594C6CF30DAA819D563B0119990543EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Children of the Sun бросает вас с головой в жестокую 
 magnet:?xt=urn:btih:AFC948260D43677A7872C2FD82512474676FD622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Dark Days – перед вами классический сверхъесте�
 ```bash
 magnet:?xt=urn:btih:8FF60AE286F138BF471AF749A327F560FBB8E36E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Paradise Marsh (2022) [Multi] (1.0) Scene Tenoke [Soundtrack Edition]
 magnet:?xt=urn:btih:A99D44C2466F635E269293ADDE419E1D18A85C8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Excavation of Hob's Barrow (2022) [En] (1.05) License GOG
 ```bash
 magnet:?xt=urn:btih:B017E40DD10C6F0DEAF449BD64F41DA065C4CE02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

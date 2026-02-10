@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4A10C14855461E4179C797807225935792E9A9C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Phantasmat 5: Behind The Mask (2015) [En] Unofficial [Collector's Edition / Ко
 ```bash
 magnet:?xt=urn:btih:E294E62EF6927478ED06CF98BEBF7FBBA16BC236
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Enigma Dubz - The Journey So Far/Part One (2015) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:A779DEF93F1F84B2D417B39C2C31E802F07FB51D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Nemo & Jaymon - Wanderings (2015) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Te
 magnet:?xt=urn:btih:F0F445A093AD8AA31E4870942426DF43A7FB36C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:F0F445A093AD8AA31E4870942426DF43A7FB36C2
 ```bash
 magnet:?xt=urn:btih:BF8BF9F50B7140FCF524D7913CA13CE959ED7E9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Ennio Morricone - The Man And His Music (2002) 2CD, 2005, Warner Classics [MP3|3
 magnet:?xt=urn:btih:CDF08A9588CBE59050B68BF3F497120E0CF41946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Christmas Stories 4: Puss in Boots (2015) [En] Unofficial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:DFA417895F99F0916B818FB98CE88DA2CD91446F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:DFA417895F99F0916B818FB98CE88DA2CD91446F
 magnet:?xt=urn:btih:CEC94D7C9BF4B9D777B49945270E27DA2376BF0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:CEC94D7C9BF4B9D777B49945270E27DA2376BF0B
 ```bash
 magnet:?xt=urn:btih:AF3E529E6BA9761FF8D984492D197C6003ABB76F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:AF3E529E6BA9761FF8D984492D197C6003ABB76F
 magnet:?xt=urn:btih:2438FE339E7C08CBB5A4AE78BA51DD401C108AEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:2438FE339E7C08CBB5A4AE78BA51DD401C108AEA
 magnet:?xt=urn:btih:D3D2753C8C5DEE52FAFAD5257F926664F2194321
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:D3D2753C8C5DEE52FAFAD5257F926664F2194321
 ```bash
 magnet:?xt=urn:btih:6E0E58102B9EF8CB31115AA86288A3FD91D9AF72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ Elvis Presley - Elvis 56 (1996) Compilation, Remastered [FLAC|Lossless|tracks + 
 magnet:?xt=urn:btih:88098D7637002AEF00C7C2B0B15C99A3658FCE38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:88098D7637002AEF00C7C2B0B15C99A3658FCE38
 ```bash
 magnet:?xt=urn:btih:42CFE81D941AFE9AB40BF2FEF0FDFFE8BB05D47E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:42CFE81D941AFE9AB40BF2FEF0FDFFE8BB05D47E
 magnet:?xt=urn:btih:0823B34F4FEB7F8564C69D295FC55E95F5E03056
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:0823B34F4FEB7F8564C69D295FC55E95F5E03056
 magnet:?xt=urn:btih:7D962216F960F93989AC2FDC6C86A724D52876A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ VA - The Silence Was Warm, Vol. 2 (2008) [FLAC|Lossless|tracks + .cue] <Ambient,
 ```bash
 magnet:?xt=urn:btih:84C4AAD6C3A163721F4A30F675EB0CFEB39C547B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:84C4AAD6C3A163721F4A30F675EB0CFEB39C547B
 magnet:?xt=urn:btih:B68B0310790B1B689D4E4706C819CB664304F946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:B68B0310790B1B689D4E4706C819CB664304F946
 ```bash
 magnet:?xt=urn:btih:E881BEF0683E9EBD7E31E3EC18BB2B79D4F6F04A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ Troels Hammer - Trans/For/Mation (2015) Deluxe [FLAC|Lossless|tracks] <Piano, Lo
 magnet:?xt=urn:btih:0064EB4C8020D3E1940E19B8096A53C4C1B5651A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:0064EB4C8020D3E1940E19B8096A53C4C1B5651A
 magnet:?xt=urn:btih:9A2121D5BBE602373A871379BBE05572DB00F130
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:9A2121D5BBE602373A871379BBE05572DB00F130
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:9A2121D5BBE602373A871379BBE05572DB00F130
 magnet:?xt=urn:btih:098B55670FD0B1B58F1EAB00299A9C978D5F54F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:098B55670FD0B1B58F1EAB00299A9C978D5F54F9
 ```bash
 magnet:?xt=urn:btih:03354B17C3CE79F7020DEEB937CFD1F11C4A4446
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:03354B17C3CE79F7020DEEB937CFD1F11C4A4446
 magnet:?xt=urn:btih:AB7F621D26855B45EE98FF6966384B79D63EBEA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:AB7F621D26855B45EE98FF6966384B79D63EBEA0
 ```bash
 magnet:?xt=urn:btih:12B053D8C509587B68D6293934BFBF98BED97EF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

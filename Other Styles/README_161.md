@@ -22,6 +22,8 @@ Richard Laurence - A Busy Couple of Years (2016) [MP3|320 кб/с] <Classical, N
 magnet:?xt=urn:btih:6F4D6AA5B019071EEEAC418C9C5240115F75F3E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Golana - Feather On The Wind (2000) [FLAC|Lossless|image + .cue] <New Age, Inter
 magnet:?xt=urn:btih:E8A64B838E7C3A7DDDCE6C8CC46CF8196B0A5FB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ Keiichi Okabe - NieR Orchestral Arrangement Album - Addendum (2020) Soundtrack /
 ```bash
 magnet:?xt=urn:btih:D029FCD30A538693A768A904B3D6BAD71B747955
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ Ennio Morricone - Collected (2014) 3CD Box Set [MP3|320 кб/с]<Soundtrack, Ins
 magnet:?xt=urn:btih:8738D6B1C3F3229CC0016BCD762BF04CB7451A20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ Alexander Ryabtsev (Александр Рябцев) - Europe: Space Theme Vol. 
 ```bash
 magnet:?xt=urn:btih:93CFB1D28204DB0152A3B1565C50E32ED6273B2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +170,8 @@ Omnia - 8 альбомов (2001-2007) [MP3|192-256 кб/с]<Folk, Medieval, Cel
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +206,8 @@ Omnia - 8 альбомов (2001-2007) [MP3|192-256 кб/с]<Folk, Medieval, Cel
 magnet:?xt=urn:btih:327CB973334272A2EB102EDB4A01C61ADA260CF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +240,8 @@ The Magnetic Fields - 69 Love Songs (1999) [FLAC|Lossless|3xCD]<Synth-pop, Indie
 ```bash
 magnet:?xt=urn:btih:18ADDFFBCE0C6BB0A9360C27F8296A22AC1FB003
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +278,8 @@ Luc St-Pierre - Thief - Original Soundtrack (2014) [MP3|320 кб/с]<Score>
 magnet:?xt=urn:btih:1E38444691E8BA9808BA337BA22E83670CC9DB17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +311,8 @@ magnet:?xt=urn:btih:1E38444691E8BA9808BA337BA22E83670CC9DB17
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +343,8 @@ David Arkenstone - Spirit of Tibet (2002) [FLAC|Lossless]<New Age>
 ```bash
 magnet:?xt=urn:btih:3CBF0005152843689F1D1ECABE7CB76541173D25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +379,8 @@ Ed Smith - Siesta: Relaxing Spanish Guitar (2007) [MP3|320 кб/с]<Instrumental
 magnet:?xt=urn:btih:236AF208CF28EE20530CD8EC46302E5A631FB7F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +413,8 @@ magnet:?xt=urn:btih:236AF208CF28EE20530CD8EC46302E5A631FB7F5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +449,8 @@ Paul Michael Meredith - Daybreak (2000) [FLAC|Lossless]<New age, Relax, Nature s
 magnet:?xt=urn:btih:16F91DE8BB18BE34A17D4B7304483743BCB283A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +480,8 @@ magnet:?xt=urn:btih:16F91DE8BB18BE34A17D4B7304483743BCB283A1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +516,8 @@ Enaid & Einalem - Celtic Nights (1996) [FLAC|Lossless]<New age, Celtic, Nature s
 magnet:?xt=urn:btih:3668C7085332DE2BD6767D0610B68DB9683C9363
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +551,8 @@ Esoteric - Angel Voices (2003) [MP3|320 кб/с]<New ega, Meditative, Relax>
 magnet:?xt=urn:btih:4D442ABDEFF7B796BF65C3E1B24338AEAC4ADDE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +580,8 @@ Chronotope Project - Passages (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <New-A
 magnet:?xt=urn:btih:DBCE8F70C7A64C10AF975E9F18E72FDFED67BB63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +608,8 @@ Greg Maroney - Quiet Piano Improvisations, Vol. 2 (2017) [MP3|320 Kbps] <New Age
 ```bash
 magnet:?xt=urn:btih:E69C6D0BF856CB53F48CA4F29B293DDEE19BDAE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +644,8 @@ Enaid & Einalem - Celtic Nights (1996) [MP3|320 кб/с]<New age, Celtic, Nature
 magnet:?xt=urn:btih:42520CC498AC40E3A89AB32BE920A5C3DEE580E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +672,8 @@ VA - Super Instrumental Vol.1 (2001) Величайшие хиты XX века [
 ```bash
 magnet:?xt=urn:btih:6AA3881FA977DD2FB1D2AD79E0F3A54520B23BE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -660,6 +702,8 @@ VA - Ethnic Music The Indians' Collection (2013) [MP3|320 Kbps] <Native American
 magnet:?xt=urn:btih:6A36A54AB0989C9256FE9A754CE3D99DFED47652
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -686,6 +730,8 @@ Richard Clayderman & James Last - Together At Last (1991) [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:AC58E2699462652A3241498D32FD2EC4E4E4EAC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -714,6 +760,8 @@ Cris Velasco & Sascha Dikiciyan - The Long Dark Soundtrack (2017) [MP3|320 Kbps]
 magnet:?xt=urn:btih:7F2F6B62D08BDFC6C5DCB79A5380F80504174240
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -741,6 +789,8 @@ VA - Война (2002) [FLAC|Lossless|image + .cue] <Rock, Soundtrack>
 magnet:?xt=urn:btih:053A0FF2DE26F1493B317278A9D9E73167CCD7D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -767,6 +817,8 @@ Stephen Rhodes - Indian Meditation (2016) [MP3|320 кб/с] <New age, Meditation
 ```bash
 magnet:?xt=urn:btih:DF4D5E8AF0017F80AA4402857067A30071363481
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

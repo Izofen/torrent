@@ -20,6 +20,8 @@ WinMerge является весьма полезной для определе�
 magnet:?xt=urn:btih:48100A6AF14A1E3EBE01B3F99F944149ACCA03EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:48100A6AF14A1E3EBE01B3F99F944149ACCA03EE
 ```bash
 magnet:?xt=urn:btih:A84ACA18C1D0BD1C9F59E60E47407F20DA169C0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ iPulse 3 v3.0.5 [En]
 magnet:?xt=urn:btih:8ABE76AF98942348C6CC00685BE23263EC84C00C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:8ABE76AF98942348C6CC00685BE23263EC84C00C
 ```bash
 magnet:?xt=urn:btih:2F249B1AED4E9D2F3D63E987152845DFA179ED6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ FanControl – свободно распространяемый продукт,
 magnet:?xt=urn:btih:B64EEC1C354C9179248E6EEE320026CA0E99D63C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ uTorrent 3.5.5 Build 45852 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A154636ECFCD6C0921F047129EE31C353AFD2C8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ FoldersSynchronizer - популярная и полезная утилита, �
 magnet:?xt=urn:btih:5BF69ED4B0E21157EC6563830CF3458A9BC5D7FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ PictureThis - Plant Identification v3.68 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B25659A08B2A7FC21062AD41E08DC028C151715E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ CCleaner - утилита для чистки мусора в операцион
 magnet:?xt=urn:btih:5EBCFDEBDACBAA0D47D965CEDEB33E459246E90E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Skype - бесплатная программа для текстового, г�
 magnet:?xt=urn:btih:F50DDFCF373D6C96137DD0F7B41C6CD09DF246F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Skype предназначен для личного и делового общ�
 ```bash
 magnet:?xt=urn:btih:E1F8F6D53DC3E0B179846D0676479A04DDF7442F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ PopClip появляется на экране при выделении мыш�
 magnet:?xt=urn:btih:AC6503F84C665015E219D99D1ECEFADF1C55AA72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:AC6503F84C665015E219D99D1ECEFADF1C55AA72
 magnet:?xt=urn:btih:6E66F49E2E207D49C74A4CDFE4E9A93F4C483E2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Rectangle - это приложение для управления окнами
 ```bash
 magnet:?xt=urn:btih:5546A9B816A26C62702C3D71C671AC2D3A00AA8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ SnapMotion имеет два режима:
 magnet:?xt=urn:btih:85B17F68BD55463A14F9C2A1198F1ACA51F1B623
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ TH-U - это самая большая в мире коллекция в еди
 ```bash
 magnet:?xt=urn:btih:FF4B21BBEC9AE5B91519D95BECB06132658B69B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ PowerDirector - самое быстрое и передовое программ
 magnet:?xt=urn:btih:87C3A6E9DDD26D4392DC077E9C3D411731E55834
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ PDF Reader Pro - это приложение для редактирования
 ```bash
 magnet:?xt=urn:btih:228D9221FB7F90BC70BD97A68EC7CADAB6A91732
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ YouTube Downloader - удобная программа-загрузчик для
 magnet:?xt=urn:btih:B55CEEB962848437B2C6B885A4521EF0152D2125
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Path Finder - один из лучших файловых менеджеров, 
 ```bash
 magnet:?xt=urn:btih:40DB726CE52DD5185DF2A7477403769F0C36C489
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:40DB726CE52DD5185DF2A7477403769F0C36C489
 magnet:?xt=urn:btih:2950AB4B3BE935A5ED2857C65893B5197678DB3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Display Tester v4.58 Mod by Balatan, serborkr  [Ru/En]
 ```bash
 magnet:?xt=urn:btih:2ADEDC9D4DDBE4043A4319D36660BA6E6AC3D10F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ VueScan - программа предназначена для замены ст
 magnet:?xt=urn:btih:772E3C5C02D5939734EC0F52E78263D4382E5101
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ Windows 8.1 with Update [9600.19893] AIO 36in2 (x86-x64) by adguard (v20.12.09) 
 ```bash
 magnet:?xt=urn:btih:8FC625A39FB7117651AE05E28E86FBA9C008E094
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Honeyview - быстрый и удобный просмотрщик графич
 magnet:?xt=urn:btih:1AB5F1FC951DFA78156FE5FE63EB25A4C831F88F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Outline для Маc идеален для студентов, преподав�
 ```bash
 magnet:?xt=urn:btih:DDB934AF9714BF4BA832A88736303180B628C09C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

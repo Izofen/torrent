@@ -22,6 +22,8 @@ Main Street Blues - Fading To Blue (2015) [MP3|320 Kbps] <Electric Blues>
 magnet:?xt=urn:btih:07221ECB5DE6814B8DC713B866AB21C32BC91E8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:07221ECB5DE6814B8DC713B866AB21C32BC91E8F
 ```bash
 magnet:?xt=urn:btih:C04C0628356FCC15F6202B5CF27918EDC1F54985
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:C04C0628356FCC15F6202B5CF27918EDC1F54985
 magnet:?xt=urn:btih:BAD2C86709A6F955DF213C397A926EB43101DCF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:BAD2C86709A6F955DF213C397A926EB43101DCF0
 ```bash
 magnet:?xt=urn:btih:A2B7184D94896B664ADE4CF2556EDF13A294DE01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:A2B7184D94896B664ADE4CF2556EDF13A294DE01
 magnet:?xt=urn:btih:F8D3D3F7C4D386693A4348E27C444FE912E251A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:F8D3D3F7C4D386693A4348E27C444FE912E251A8
 magnet:?xt=urn:btih:66D5BA7B339CEA424FC139A8E77F45C4B4C5E0C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Microsoft Visual C++ 2015 Redistributable Package 14.0.23506 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BF052F05D44A9A615A7F85052B6EFA7925801F09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ TAMUSIC - 116 альбомов (2005-2015) Touhou Vocal, KanColle, Anime, Game A
 magnet:?xt=urn:btih:B5B289B9A5038616E6AD555689D7269415FFBA25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:B5B289B9A5038616E6AD555689D7269415FFBA25
 ```bash
 magnet:?xt=urn:btih:2C40824DEAFDC6AC8B7DE0188453D4545AAD6B60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:2C40824DEAFDC6AC8B7DE0188453D4545AAD6B60
 magnet:?xt=urn:btih:A2C7BE07C3D3DB4ED9A9827C32F2EDA746BFCE28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:A2C7BE07C3D3DB4ED9A9827C32F2EDA746BFCE28
 ```bash
 magnet:?xt=urn:btih:AF802D613560B24D4A2D89C07CCDD3CFCBD90AD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ CommFort — клиент-серверная программа, предназ�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ CommFort — клиент-серверная программа, предназ�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ Blair Witch (2019) [Ru/Multi] (1.0/upd6) Repack Other s
 magnet:?xt=urn:btih:A1A945BA58DEB90201DD7B288421B5A419480AD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Bully (2008) [Ru] (1.2) Repack R.G. UniGamers [Scholarship Edition]
 ```bash
 magnet:?xt=urn:btih:25D53413053FC4D1D69185271C8A3EE99615709F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ Generation Zero (2019) [Ru/Multi] (Build 20191028/dlc) Repack =nemos=
 magnet:?xt=urn:btih:06DC94E4BCF8F48743DE5D11484665B19CA32BC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Pathologic 2 (2019) [Ru/En] (1.5.29823/dlc) License GOG
 magnet:?xt=urn:btih:0F8E04FFE0AA604E179F64C8CC44AFCA964D8C6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ XIII век. Злодей захватил власть в Муромском к
 ```bash
 magnet:?xt=urn:btih:8AD5BE7084350C199C8A58FE36ED0EF474C46BDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ Bon Jovi Music Box (2002)(   Читать дальше...   )Жанр: Rock, Alt
 magnet:?xt=urn:btih:FEE7A217AAF20159BCFCBA07CC5FBAAAA6CAC3CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:FEE7A217AAF20159BCFCBA07CC5FBAAAA6CAC3CD
 magnet:?xt=urn:btih:7697FC4FD150B55339B73DA57BDD60D4CE0D3F3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ Subnautica - это ролевая игра от создателей Natural Se
 ```bash
 magnet:?xt=urn:btih:51157D5A7D2C7E9C95C758C54BEB256F168FBE81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:51157D5A7D2C7E9C95C758C54BEB256F168FBE81
 magnet:?xt=urn:btih:667C1AE515438EE85CD99DD01684120136AE64D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:667C1AE515438EE85CD99DD01684120136AE64D5
 ```bash
 magnet:?xt=urn:btih:51070F259875CA888EDC74B4D5069E6FDA484FC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:51070F259875CA888EDC74B4D5069E6FDA484FC3
 magnet:?xt=urn:btih:51887FF5294ACEA96017B47EE939AFEA0F798548
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ Centralia: Homecoming (2019) [Ru/Multi] (1.8/dlc) Repack Other s
 magnet:?xt=urn:btih:0877E9BF505B0F0B9B5616CA2485311BB1C313D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Photo Measures - лучший и самый простой способ сохр
 ```bash
 magnet:?xt=urn:btih:05F1250C756526FFC18DDAC51393C6AA50815650
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

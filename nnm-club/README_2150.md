@@ -19,6 +19,8 @@ Oracle Linux (прежде известная как Oracle Enterprise Linux, Un
 magnet:?xt=urn:btih:22A793E2F4CB7CE7AA5ABBFD33FC6FD3579544E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:22A793E2F4CB7CE7AA5ABBFD33FC6FD3579544E5
 ```bash
 magnet:?xt=urn:btih:BF53DBDE2E8E0E8B5003302F0AE69D8D08286398
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:BF53DBDE2E8E0E8B5003302F0AE69D8D08286398
 magnet:?xt=urn:btih:87667AA355DCA0ED3B7014CCF701CF20744C8F2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:87667AA355DCA0ED3B7014CCF701CF20744C8F2D
 magnet:?xt=urn:btih:3A7FD37849D62D87D8F308858225CE1E9C7F83EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:3A7FD37849D62D87D8F308858225CE1E9C7F83EB
 ```bash
 magnet:?xt=urn:btih:1F02744BC4D83CAA5500F508DBC345CDD1C0E824
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Linux для дома 22.21 [DX12] [Mint 21] [amd64] 1xDVD
 magnet:?xt=urn:btih:61C5CBFE3F776F80BB85B10AA2C721F9C9F0487D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:61C5CBFE3F776F80BB85B10AA2C721F9C9F0487D
 magnet:?xt=urn:btih:D8734DA7F3FEA62F49AE777B3E66329323FBF28C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:D8734DA7F3FEA62F49AE777B3E66329323FBF28C
 ```bash
 magnet:?xt=urn:btih:DAED2679507D92CCB5E59B87D141372CA438E7A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:DAED2679507D92CCB5E59B87D141372CA438E7A7
 magnet:?xt=urn:btih:611C2D07AEE2C78FE427D84AADBDEB7FFE62809C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:611C2D07AEE2C78FE427D84AADBDEB7FFE62809C
 ```bash
 magnet:?xt=urn:btih:E63A1DBF220182DB3162D005A702A2544710E022
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Ninja Kamui | Ниндзя Камуи [2024, TV, 13 из 13] WEBRip 1080p raw+ru
 magnet:?xt=urn:btih:8AC7F2F02920408C91EDDFC323A93718C5C241E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Autodesk Inventor – содержит полный набор гибких ин
 ```bash
 magnet:?xt=urn:btih:7648EEB6760E30010ED5DDB43917DA07862E37A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:7648EEB6760E30010ED5DDB43917DA07862E37A6
 magnet:?xt=urn:btih:8D5B2F1E1ADD838C6092B2597944752E1BE32DC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:8D5B2F1E1ADD838C6092B2597944752E1BE32DC4
 ```bash
 magnet:?xt=urn:btih:B2AEC116BD836A2F55CA0B539D147EB8009BD55A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Soviet Soldier ставит вас на место солдата красной
 magnet:?xt=urn:btih:3205B6B6B4E75542DC5AEF886121603CE091E493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:3205B6B6B4E75542DC5AEF886121603CE091E493
 ```bash
 magnet:?xt=urn:btih:856091D2B89A25E2727BE3F6F3289D7601A69582
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:856091D2B89A25E2727BE3F6F3289D7601A69582
 magnet:?xt=urn:btih:45DC26B5B89B3225642354BB2418A6D8BDBC0300
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:45DC26B5B89B3225642354BB2418A6D8BDBC0300
 ```bash
 magnet:?xt=urn:btih:AEB31E7DEC26207681AFD590451981EAAC439F9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Hollow Cocoon - это приключенческая хоррор игра от
 magnet:?xt=urn:btih:C3EBC84893EDE60D1FA48480E0F29FF12F4EC1DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:C3EBC84893EDE60D1FA48480E0F29FF12F4EC1DF
 ```bash
 magnet:?xt=urn:btih:ED9621F3857EA69E93E7DAB51EED0316A3EECF24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:ED9621F3857EA69E93E7DAB51EED0316A3EECF24
 magnet:?xt=urn:btih:AB0B078D379D8C329FA4FDD31F86EBCD518BFE88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ FX Player Pro - универсальный медиаплеер который �
 ```bash
 magnet:?xt=urn:btih:120F4817A801F3DFD0A661266DE0F3DE44DFABBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:120F4817A801F3DFD0A661266DE0F3DE44DFABBE
 magnet:?xt=urn:btih:3A0F00D9239D5AE4D14EF6EBD1B978F1A144120F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:E3C53F62B8ED19777BFA90DC586E7EBBA6E16372
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ Abstruct - это официальное приложение для обоев,
 magnet:?xt=urn:btih:D8FB37A8BE1C19B197BC917AAEA7143BBACC81DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:6CAAFF3C4ADB1B1B93D36A27EF1FCAEFA4927191
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

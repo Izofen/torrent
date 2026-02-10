@@ -22,6 +22,8 @@ Jan James - Time Bomb (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:A1836138DA70BB63503AA1D374FEB3672CD5D915
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:A1836138DA70BB63503AA1D374FEB3672CD5D915
 magnet:?xt=urn:btih:4A3463CF29E3D27FC018A3BD84BB6D7E3723A7F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Smart Disk Image Utilities - это мощный инструмент для с�
 ```bash
 magnet:?xt=urn:btih:795B2486D863D38EBC3D6BC4917E7C077C6C3469
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Nedrugh - Depersonalize (2023) [FLAC|Lossless|image + .cue] <Black Metal>
 magnet:?xt=urn:btih:2F478E89C05F2A2954677B78DA72A0FAD29B274C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ VA - Mystic Chill, vol. 2 (2020) [AAC|~323 Kbps] <Psychill, Downtempo, Ambient>
 magnet:?xt=urn:btih:FF66F5A0A03313DB9A4259CB5743A71347CE714F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 magnet:?xt=urn:btih:552AEB39DC192A58E983262B9EE0FD628BB609DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:552AEB39DC192A58E983262B9EE0FD628BB609DC
 ```bash
 magnet:?xt=urn:btih:971F8D0B214386FD026C75E9D210CFC25830A680
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Crack Jaw - Nightout (1985) Limited Edition, Numbered, Reissue, Remastered, 2015
 magnet:?xt=urn:btih:9D2692DE4D05677F9648E67722596D61D6E752E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:9D2692DE4D05677F9648E67722596D61D6E752E6
 ```bash
 magnet:?xt=urn:btih:5B965ACDD848A860BC9A5C02D36A0CAFD700C84D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:5B965ACDD848A860BC9A5C02D36A0CAFD700C84D
 magnet:?xt=urn:btih:D4836492304E510FF9799037EE59A6AFC5C2FBCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:D4836492304E510FF9799037EE59A6AFC5C2FBCD
 ```bash
 magnet:?xt=urn:btih:F26500E5BDCB2B2A2AF4ACD91CC50C6CD7811B0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ MenuBar Stats - системный монитор, очистка памяти �
 magnet:?xt=urn:btih:6173D962A24625F9A4BFD622D3AE2A8381CDEE1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ DesktopDigitalClock - простые и красивые цифровые час
 magnet:?xt=urn:btih:AF4A05190BE5FD73F8F7F4A4793C1E307C8F81A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:AF4A05190BE5FD73F8F7F4A4793C1E307C8F81A8
 ```bash
 magnet:?xt=urn:btih:64219465B9AA1CE8363E8242B49C11F50506A2A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:64219465B9AA1CE8363E8242B49C11F50506A2A8
 magnet:?xt=urn:btih:5C305000A89793485585968E3387E1729C60A564
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ FinalShot 1.9.2 [En]
 ```bash
 magnet:?xt=urn:btih:94A2968701A008B1120C9AC12531E131575AF6B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ DRmare Tidal Music Converter — это универсальный загруз�
 magnet:?xt=urn:btih:C7909BFE72217E870D49AF820D680DD35AC93CA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ HDCleaner – многофункциональный программный пр
 ```bash
 magnet:?xt=urn:btih:D9133B619AF749F1F630931F741E38572D012935
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 magnet:?xt=urn:btih:6DDEC391717B70F7CC4E2450CE25772C56B65FBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:6DDEC391717B70F7CC4E2450CE25772C56B65FBA
 ```bash
 magnet:?xt=urn:btih:ED0A4FA38FFECA77423CD02D0A714916636D48EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:ED0A4FA38FFECA77423CD02D0A714916636D48EF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ magnet:?xt=urn:btih:ED0A4FA38FFECA77423CD02D0A714916636D48EF
 ```bash
 magnet:?xt=urn:btih:08A16385184E16C048A673F4B3D1A0C31BC55CC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ Bruce Gaitsch - How Fragile We Are (2023) Japanese Edition [FLAC|Lossless|image 
 magnet:?xt=urn:btih:EDAAAEF1302E888EF46160273393B84C6CAEF6FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:EDAAAEF1302E888EF46160273393B84C6CAEF6FC
 magnet:?xt=urn:btih:3D5F9EE2790B2A126B8D446FFB6C4F003A7B040E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ start - это уникальный лаунчер для macOS, позволя�
 ```bash
 magnet:?xt=urn:btih:BBE03DCC69BDD34236B5EBD37DA9E4F2EDB17A28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +694,8 @@ VA - Soft Rock Sunset Easy Classics (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, S
 ```bash
 magnet:?xt=urn:btih:62E53E052C61B3F3E6AFB65ADFAE578AF576673D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

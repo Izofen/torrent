@@ -19,6 +19,8 @@ Ultimaker Cura - популярный слайсер для 3d-печати. О�
 magnet:?xt=urn:btih:B24A8C96F8A18C47C1758E0AFAFEFC808864806A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Atlantis Word Processor 4.3.9.2 Repack (& Portable) by elchupacabra [Ru/En]
 ```bash
 magnet:?xt=urn:btih:ACA3F6D6178E1E5CB0EE0CF6C6D8192522744A15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ WinMerge является весьма полезной для определе�
 magnet:?xt=urn:btih:9F032E2993B335858F51D01E457BF02C61F558CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Aiseesoft Screen Recorder 2.9.50 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:242158E590D4463E9ACC744F7EBB92A15589E3D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Soft Organizer - утилита для полного удаления нену�
 magnet:?xt=urn:btih:2E57C520700AA31023A1D9E24C18747F9F2C6286
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Waterfox — это браузер, основанный на исходном �
 ```bash
 magnet:?xt=urn:btih:0365984F3AF8CA529335EAF70ED2014D267E7FCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Q-Dir позволяет получать быстрый доступ к час�
 magnet:?xt=urn:btih:DC700B5A0F633D4687B0517680ACB0A917AFDE03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:1A325A7326EEFF78D411EDB5F789EC7487766B56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:4A5DA9D204821D928A4782883D655641BB887D74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Skype предназначен для личного и делового общ�
 ```bash
 magnet:?xt=urn:btih:61C47E2376C35C63C5AD0D725FCC5B6C3886BA3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Wondershare PDFelement - программа для общего редактир
 magnet:?xt=urn:btih:8A3FFA7202436A23C773EA0224CCA74EF0C2BC7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:6096EA4C072CA534E3B8300DD60E0A7E2A1E52E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Wise Care 365 – программный пакет, предназначенн�
 magnet:?xt=urn:btih:BD7C473BE6D219537C0EC03930A26A9143C0B385
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:1C51A4A817D5421F7C994E48DCFF835A9C2BD1DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ FireAlpaca - это достаточно простой, но удобный г�
 magnet:?xt=urn:btih:D1FAA3C32EF3ED51CE0046B9FF4F52F91A092ED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ AMD Radeon Software Adrenalin Edition представляет собой нов
 ```bash
 magnet:?xt=urn:btih:FFE594249C92874F76D70F171402F4D594F8EEC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Exif Pilot - EXIF редактор используется для просмо�
 magnet:?xt=urn:btih:CFA7F90C59493CA1ED010F588358190B7D33B638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Audacity - свободный, простой в использовании зв
 ```bash
 magnet:?xt=urn:btih:87A6DCEF3DE0BFBB0D9BF42BBDEE2EC8E7A75754
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Opera One 109.0.5097.68 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:0CD820D0138C55E1D462126962E40E44699F3235
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ FolderSizes 9.6.480 Enterprise [En]
 ```bash
 magnet:?xt=urn:btih:1BB0BF61395B9F0586FB26F4045D6559507E90B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Pale Moon - веб-браузер, созданный на базе популя
 magnet:?xt=urn:btih:234CBE94993673164EFAF8FB8E7D4CF977BD78F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ WPS Office - очень полезное, офисное приложение д
 ```bash
 magnet:?xt=urn:btih:0011D26BDAEC9300BF0CC8F4B6D7BB490BBE1448
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Audacity - свободный, простой в использовании зв
 magnet:?xt=urn:btih:4E0543768F01D73B085684559CD93AF266B99F93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Duplicate Cleaner - мощный и профессиональный инстр�
 magnet:?xt=urn:btih:C65F0CC32BC75042D47A32179642EF566407B70E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Topaz A.I. Gigapixel — это первое и единственное при�
 ```bash
 magnet:?xt=urn:btih:360D8F5A67193E3C7ADD5A9CDC6D97A02EDA4533
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +675,8 @@ Foxit PDF Editor Pro (ранее известный как Foxit PhantomPDF Busi
 ```bash
 magnet:?xt=urn:btih:46F26F53B3390A74C44D6591EB800F70C8089A31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

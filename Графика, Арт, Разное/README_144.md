@@ -1,51 +1,3 @@
-###  Публикация: 617580   (971959) от 12.02.2013
-
-Современная фотография - Photos from Владимир Солдатов (Fantasy Cosplay) [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы фотографа Владимира Солдатова.Разрешение файлов: от 402x604 до 2953x4169.Формат: JPG.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89F533D91C547C0AA850FA4BD4061B6AD9E23F74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975594   (972101) от 15.01.2016
-
-Картинки - Fireworks [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Картинки на тему фейерверковФормат: JPGРазрешение файлов: 1920x1440 - 6894x4596
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C186A50D8968D00BFFE4E5CA55C204B61B96B41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975591   (972110) от 15.01.2016
 
 Обои - Дороги 8 [JPG]
@@ -66,6 +18,8 @@ magnet:?xt=urn:btih:7C186A50D8968D00BFFE4E5CA55C204B61B96B41
 ```bash
 magnet:?xt=urn:btih:37E40AF3F6162909C4F8F164F57D58172E07F1C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +45,8 @@ Wallpapers - Весна красна [JPEG]
 magnet:?xt=urn:btih:147987EB3B3FB2C66146BE08BA75A417E2A9C8B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +70,8 @@ magnet:?xt=urn:btih:147987EB3B3FB2C66146BE08BA75A417E2A9C8B3
 ```bash
 magnet:?xt=urn:btih:F45049CDA90F623C77B317CF1EE8CEA38CD459EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +102,8 @@ Wallpapers - Обои HD: Сборник №2 [JPEG]
 magnet:?xt=urn:btih:9629360DC37DF0F59B989B4BCE8EA505E8204FA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +129,8 @@ Wallpapers - Обои с военной техникой [JPEG]
 magnet:?xt=urn:btih:3A04FC91B6A4155E46ABB614DE11B304748E5744
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +154,8 @@ magnet:?xt=urn:btih:3A04FC91B6A4155E46ABB614DE11B304748E5744
 ```bash
 magnet:?xt=urn:btih:36A1CA047CC3B13B602A9501A09CCC3BF1A062BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +181,8 @@ magnet:?xt=urn:btih:36A1CA047CC3B13B602A9501A09CCC3BF1A062BD
 magnet:?xt=urn:btih:F84F18D76392AC735E1AB080436803B9F32CAFE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +206,8 @@ magnet:?xt=urn:btih:F84F18D76392AC735E1AB080436803B9F32CAFE1
 ```bash
 magnet:?xt=urn:btih:B21829BC0F7B35A7407F9DB5882CC54DF040A69A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +233,8 @@ magnet:?xt=urn:btih:B21829BC0F7B35A7407F9DB5882CC54DF040A69A
 magnet:?xt=urn:btih:093981FA2F199EC8AF993D040D929F1AA58B2CB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +258,8 @@ magnet:?xt=urn:btih:093981FA2F199EC8AF993D040D929F1AA58B2CB0
 ```bash
 magnet:?xt=urn:btih:1DCC98318BF53646C9288757F5795ED490E8F276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +286,8 @@ magnet:?xt=urn:btih:1DCC98318BF53646C9288757F5795ED490E8F276
 magnet:?xt=urn:btih:C4CB84B8C0B963C0A592A0A051D2B38CBFFE0D27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +311,8 @@ magnet:?xt=urn:btih:C4CB84B8C0B963C0A592A0A051D2B38CBFFE0D27
 ```bash
 magnet:?xt=urn:btih:A0A86CB438BCA03E502FBB25C397BC0EB8D06D0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +338,8 @@ magnet:?xt=urn:btih:A0A86CB438BCA03E502FBB25C397BC0EB8D06D0B
 magnet:?xt=urn:btih:67FAAD4263184F49CECF8C703D69760FC753699B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +363,8 @@ magnet:?xt=urn:btih:67FAAD4263184F49CECF8C703D69760FC753699B
 ```bash
 magnet:?xt=urn:btih:17C593855683D58FB1BC119A4F9FFA2D11D3175F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +390,8 @@ magnet:?xt=urn:btih:17C593855683D58FB1BC119A4F9FFA2D11D3175F
 magnet:?xt=urn:btih:72BDF104C8AA2930F21597B4E174FB9ED3B3A87B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +415,8 @@ magnet:?xt=urn:btih:72BDF104C8AA2930F21597B4E174FB9ED3B3A87B
 ```bash
 magnet:?xt=urn:btih:2DE4886C5E54EAE89CE668C1DC353CF6B55A8B49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +442,8 @@ magnet:?xt=urn:btih:2DE4886C5E54EAE89CE668C1DC353CF6B55A8B49
 magnet:?xt=urn:btih:C5775119A4B3FC97405B12BBCC63A246C771C199
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +467,8 @@ magnet:?xt=urn:btih:C5775119A4B3FC97405B12BBCC63A246C771C199
 ```bash
 magnet:?xt=urn:btih:F113F87C191AD0132D6E50A0CDE20F64F7419E5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +494,8 @@ magnet:?xt=urn:btih:F113F87C191AD0132D6E50A0CDE20F64F7419E5F
 magnet:?xt=urn:btih:9C65775B0FFB9B249DA0117DE0436FCD42F25C1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +519,8 @@ magnet:?xt=urn:btih:9C65775B0FFB9B249DA0117DE0436FCD42F25C1F
 ```bash
 magnet:?xt=urn:btih:851CF5663F6516AED8E0B219442BDA5A4BC731F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +549,8 @@ magnet:?xt=urn:btih:851CF5663F6516AED8E0B219442BDA5A4BC731F4
 magnet:?xt=urn:btih:2FA2FCF4A55BBC6E0A34BC62F0AF2E7DC9E4498E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +574,8 @@ Cities & buildings Wallpapers [1366x768].Разрешение файлов: 1366
 ```bash
 magnet:?xt=urn:btih:AE474D356FD799593CCC0A2D69D0C133F5FCD407
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +601,8 @@ Wallpapers - Computer Desktop Wallpapers Collection 607 [JPEG]
 magnet:?xt=urn:btih:3706E37F9CE653A7561BDED03437F461A814930B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +626,60 @@ Wallpapers - Обои день Святого Валентина [JPEG]
 ```bash
 magnet:?xt=urn:btih:08C67BA4726015D218D327941A6E373EDFDE8383
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973874   (977783) от 10.01.2016
+
+Картинки - Топографические карты России, Украины, Европы [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исторические, археологические, средневековые карты России, Украины, ЕвропыФормат: JPGРазрешение файлов: 1596-1204, 7000-5479
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2973E94F949C625F8E426E8A7AC85E917560B8B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 615162   (978390) от 07.02.2013
+
+Компьютерная графика - Работы художника Saphire Nishi [JPEG]
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличное творчество голландского художника-дизайнера 3D моделей.Разрешение файлов: от 478х768 до 1024х768Формат: JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E4BFBF4233713F8A874FE8F94F1782E4701826E
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ OpenAI запустила новую модель искусственного �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ OpenAI запустила новую модель искусственного �
 ```bash
 magnet:?xt=urn:btih:5CC79601B3B596011444C5D796926C3C729B9797
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:5CC79601B3B596011444C5D796926C3C729B9797
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:5CC79601B3B596011444C5D796926C3C729B9797
 ```bash
 magnet:?xt=urn:btih:309007AD8F2EB0290882E1764A7875C8A0965559
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:309007AD8F2EB0290882E1764A7875C8A0965559
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Windows 11 v24H2 26100.2894, включающая в себя 5 редакций
 ```bash
 magnet:?xt=urn:btih:093185FC4079880403674C5DBFBE83F697953291
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258 834/dlc) Repack West4it
 magnet:?xt=urn:btih:F96722F5818944952F831F3337A0168E133D7893
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Grand Theft Auto: Vice City Nextgen Edition (2025) [Ru/Multi] (1.1) Mod Revoluti
 ```bash
 magnet:?xt=urn:btih:2A47A69716038E04BA611230142E4A8DDF230B03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:2A47A69716038E04BA611230142E4A8DDF230B03
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Java – объектно-ориентированный язык програм
 magnet:?xt=urn:btih:279FF4D86852D8BE10F55E1FFAA73CE1943CB405
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:279FF4D86852D8BE10F55E1FFAA73CE1943CB405
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:279FF4D86852D8BE10F55E1FFAA73CE1943CB405
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:279FF4D86852D8BE10F55E1FFAA73CE1943CB405
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ YouTube начал показывать зрителям  абсурдно дл�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Launcher for zapret 1.7 [Ru]
 magnet:?xt=urn:btih:EED42047990281ABBF2D64FE406628F060813394
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ uTorrent Pack 1.2.3.97 Repack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:7F1557E1208A156C6F4501470B73B653BA3F6F75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Windows 10 v22H2 19045.5371 и Windows 10 Корпоративная LTSC v21H2 
 ```bash
 magnet:?xt=urn:btih:C288AD6B03B682879AD45B89E30D32100186BCEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Microsoft® Windows® 10 Enterprise x64 LTSC 2021 21H2  by OVGorskiy 01.2025 [RU
 magnet:?xt=urn:btih:652BD303F5DA3EDFB0EC5424B5433E77F54C492E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Nvidia потеряла миллиарды от рыночной стоимос�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.1.4) Scene Rune [Updat
 magnet:?xt=urn:btih:EF8D72D58766D965D8164DDA2269EF8E54A41C1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:EF8D72D58766D965D8164DDA2269EF8E54A41C1B
 ```bash
 magnet:?xt=urn:btih:FAD15D1BAA824E52A41DB0CC2162A66EE2173068
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ iso - можно использовать в Zalman и Ventoy
 magnet:?xt=urn:btih:0A7E090FB712724D8CA9C1BD41A2B9EEE5FD7776
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Launcher for zapret 1.6 [Ru]
 magnet:?xt=urn:btih:FC4898275991B5969A46E420A062FE2B4269F4B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:FC4898275991B5969A46E420A062FE2B4269F4B9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

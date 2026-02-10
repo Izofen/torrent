@@ -19,6 +19,8 @@ Desktop Calendar – бесплатный календарь рабочего с
 magnet:?xt=urn:btih:1BE1BA2D2B7C5876AB8FC62B2F7BC47603A85A38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:1BE1BA2D2B7C5876AB8FC62B2F7BC47603A85A38
 ```bash
 magnet:?xt=urn:btih:8482D050CCCF55D35D8A990917C5A263BB00E6F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Balabolka 2.15.0.893 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:40226DA1DD2EB45B2E90CC5855AA3D3742F0AD74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:40226DA1DD2EB45B2E90CC5855AA3D3742F0AD74
 ```bash
 magnet:?xt=urn:btih:F71E53016E703ADF2A91EF72A30E91D4A8F5B5EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:F71E53016E703ADF2A91EF72A30E91D4A8F5B5EC
 magnet:?xt=urn:btih:D59CE021C25082B7E41DCE52DB546E3CD511D529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:D59CE021C25082B7E41DCE52DB546E3CD511D529
 ```bash
 magnet:?xt=urn:btih:B92889FDB1676140E892F9BA2307D265C7F4C045
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:AD1CC677DD15E9B3C99258AFD2A959D410CF4ADD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:AD1CC677DD15E9B3C99258AFD2A959D410CF4ADD
 ```bash
 magnet:?xt=urn:btih:28616E6CAE3DEE86F4B6B6AB350FB7093894AE6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:28616E6CAE3DEE86F4B6B6AB350FB7093894AE6A
 magnet:?xt=urn:btih:A787D1F84DEC5D60F9CB62C58356A8EC7493661B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:A787D1F84DEC5D60F9CB62C58356A8EC7493661B
 ```bash
 magnet:?xt=urn:btih:C171DDF1BB4E435C1A8240A8C888F22CEC831929
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Kangoku Gakuen | Школа-тюрьма (2011) [28 томов, 278 глав + �
 magnet:?xt=urn:btih:C3005429DE0A91BACB1BA93A7A9CA8B5A1CD404B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Oshi no Ko | Звёздное дитя (2020) [16 томов, 166 глав + 8 �
 ```bash
 magnet:?xt=urn:btih:BA43D3F31C126C8061DD04BCD9082D8D61D80E86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Donna Summer - Cats Without Claws (1984) 40th Anniversary Edition, 2025, Driven 
 magnet:?xt=urn:btih:DE3603A513220CB671C9F5056059B627B8C0FECE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Jujutsu Kaisen | Магическая битва (2018) [30 томов, 272 гл
 ```bash
 magnet:?xt=urn:btih:8A9203D7829A0290ADE63D21FEC57AC746C9261B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ VA - Record Super Chart 19.04.2025 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:CFE832774B42921A1718C8924A7590C434F441F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:CFE832774B42921A1718C8924A7590C434F441F4
 ```bash
 magnet:?xt=urn:btih:05893BE74AAB6A3A3D0A3A79D7461355175BB004
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:05893BE74AAB6A3A3D0A3A79D7461355175BB004
 magnet:?xt=urn:btih:FA0CFC7A63F20F2BF7C776A5327166BDD1E493C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:FA0CFC7A63F20F2BF7C776A5327166BDD1E493C3
 ```bash
 magnet:?xt=urn:btih:4178388E737F4DCF2B7BDCD1ACFA43636A556B9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:4178388E737F4DCF2B7BDCD1ACFA43636A556B9E
 magnet:?xt=urn:btih:79DC4DA2D5130BC7A895144326354335CCA7D3CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:79DC4DA2D5130BC7A895144326354335CCA7D3CB
 ```bash
 magnet:?xt=urn:btih:74679425ECF2E9F0FD6C9071BB401349267B604F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:74679425ECF2E9F0FD6C9071BB401349267B604F
 magnet:?xt=urn:btih:9B1931CDC0C0C2BAD89451CE4E4F01F2B1D1BDC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ Shoujo the Wild's | Шальные девчонки (2011) [1 сезон, 260 г
 ```bash
 magnet:?xt=urn:btih:FCF6830E8C4B783F3B2120CC4C457C68B24CFCC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 magnet:?xt=urn:btih:9E9C619980AF4859178F84D46531666ACF691887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:9E9C619980AF4859178F84D46531666ACF691887
 ```bash
 magnet:?xt=urn:btih:CD251B43A04952EB2225E9B94DD936A81CBDBF90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Jennie, Dua Lipa - Handlebars (2025) WEBRip [H.265/2160p] [AI Remaster]
 magnet:?xt=urn:btih:8CFC582600C36218FE6F9EB5A9FC0D4B9D4F6621
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:8CFC582600C36218FE6F9EB5A9FC0D4B9D4F6621
 ```bash
 magnet:?xt=urn:btih:FF622DA692F34A4546755A04921B264065D1EF13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ Udemy, Глеб Михайлов | Data Science с Глебом Михайлов
 magnet:?xt=urn:btih:7093FECC5557BD79EC9A96C97EEF6B15508E6F81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:7093FECC5557BD79EC9A96C97EEF6B15508E6F81
 magnet:?xt=urn:btih:97302F39C2941020F33B7A389EFFEDECE9886929
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Python стабильно входит в ТОП-10 наиболее попул�
 ```bash
 magnet:?xt=urn:btih:9463D5A03ED628E1905F60C69ABDDE8EB074334D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Udemy, Alex Marshal | Java для начинающих 2020. С нуля до Ju
 magnet:?xt=urn:btih:0D7CC55F3E9C9F5A764B818EF508B9FF1BF119CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:0D7CC55F3E9C9F5A764B818EF508B9FF1BF119CB
 magnet:?xt=urn:btih:0B0D9A4C3055675A6AF50EEFA907B1787CB68BE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Udemy, Nikita Sergeev | Как создать свой онлайн курс: с
 ```bash
 magnet:?xt=urn:btih:F976F8784075B5E9F656C1F2AEC6D9D6B0D78260
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Podlodka Teamlead Crew | Коммуникации в команде и проц�
 magnet:?xt=urn:btih:A4BC7E1AA2FD876280C4D0FBC6BA843D2944F816
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:A4BC7E1AA2FD876280C4D0FBC6BA843D2944F816
 magnet:?xt=urn:btih:2A313C25E20F2968BD64FD5527833FE781AF04E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:2A313C25E20F2968BD64FD5527833FE781AF04E9
 ```bash
 magnet:?xt=urn:btih:BFB9A5490FACEBF45CC793F86563A864DCBC9BD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ SmartData — это техническая конференция для дат
 magnet:?xt=urn:btih:C9BAF04D055DB1D835E371D3A9AD637337C58CA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ JUG Ru Group | C++ Russia 2021. Конференция для C++ разрабо
 ```bash
 magnet:?xt=urn:btih:7807586B89DEFA928D358D1850AD16D529D32D9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ OTUS, Сурен Хоренян | Python-разработчик. Базовый 
 magnet:?xt=urn:btih:60E86FECC4C7780E3B1FE4E2BD4DCAF65126EC6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ VideoTech - это техническая конференция, посвяще
 ```bash
 magnet:?xt=urn:btih:08F56ECE8DD62A49A1C30762C3A9D16931B51514
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ DotNext - это десятки докладов от экспертов мир�
 magnet:?xt=urn:btih:44687B47BADC3C2B16EFD0086D955B64A1E38AE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ Mobius - это техническая конференция для коман�
 magnet:?xt=urn:btih:6E6D7E61EBF8BF4BF0E19A566BD1C809B88B3C90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ Udemy, Darrin Lile | Blender 2.8 UV Mapping (2019) PCRec [EN / EN Sub]
 ```bash
 magnet:?xt=urn:btih:187AFB659DC157CDF99587032EFFFF85F16EAFB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +461,8 @@ Udemy, Krista King | Станьте Мастером Математическо�
 magnet:?xt=urn:btih:5AAEC843A42E1D8C59DB7120E558ED9EA5BD20F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ Udemy, Murtez Alrohani | Модульное тестирование Node.js / N
 ```bash
 magnet:?xt=urn:btih:2D29E769AEEA17EACC784D6862C44D4F5E48312F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +518,8 @@ SQL Server – универсальная платформа для управл
 magnet:?xt=urn:btih:30671B374841175900A4C0B4FD6B289CB52581DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ Udemy, Роман Панёв | Kotlin с нуля + разработка при�
 ```bash
 magnet:?xt=urn:btih:5A9C9CE798EBEF681FA71084FAA8A477A2158D4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ Udemy, Nikolay Naydenov | Head anatomy and sculpting exercises course (2022) PCR
 ```bash
 magnet:?xt=urn:btih:78C1FD8B5874D81C5F9AA959F2B2E3F90DDCABA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +602,8 @@ magnet:?xt=urn:btih:78C1FD8B5874D81C5F9AA959F2B2E3F90DDCABA8
 magnet:?xt=urn:btih:8F00E5CE0D87805E69FE6756B1E974A6BA6A9C93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ Udemy, Anton Golosnichenko | Хуки React на практике [2021] (2021) 
 ```bash
 magnet:?xt=urn:btih:0234D542D78539AE8680B1AC537082B1DCA12C11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ VideoSmile, Михаил Бычков | Супер 2D моушн-графика 
 magnet:?xt=urn:btih:4723936CF0130D04D0CCE84159170BEBCDE6FB20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ Udemy, Камилла Мукатаева | Основная грамматика
 ```bash
 magnet:?xt=urn:btih:6D40511D0467C63489C8812835663C489D33C6A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +706,8 @@ Softwaretesting, Арсений Батыров | Автоматизация те
 ```bash
 magnet:?xt=urn:btih:DAC7FBEACD898F97029BD6413B5176306EDB420E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

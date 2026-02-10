@@ -21,6 +21,8 @@ Shinigami Bocchan to Kuro Maid (2023) | The Duke of Death and His Maid (2023) | 
 magnet:?xt=urn:btih:5536CB766BCCAAC4DCAE0F57F22BD59B14455A51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:5536CB766BCCAAC4DCAE0F57F22BD59B14455A51
 ```bash
 magnet:?xt=urn:btih:80B5EBDA49AC802CDFE082D201E45AB4E247DCD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Mix: Meisei Story 2nd Season - Nidome no Natsu, Sora no Mukou e | Микс: Ис
 magnet:?xt=urn:btih:90ECE47DBEBF310334338BA249DAB791A587743C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:90ECE47DBEBF310334338BA249DAB791A587743C
 ```bash
 magnet:?xt=urn:btih:4A588598E646DEFDB7A9808B3BAFDD942314943D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Horimiya: Piece | Horimiya: The Missing Pieces | Хоримия [ТВ-2] [2023, 
 magnet:?xt=urn:btih:439489E7E0F5BD703CAEA679C0715D84540D24C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Black Geyser: Couriers of Darkness v.1.2.56 (2022) [Multi/Ru] [macOS Native game
 ```bash
 magnet:?xt=urn:btih:6C7A1D3271A278D2EACFC3B9A2480289FEB83338
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:6C7A1D3271A278D2EACFC3B9A2480289FEB83338
 magnet:?xt=urn:btih:27B60DA9ED22052E703B81404DAC2B59F0B3E661
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:27B60DA9ED22052E703B81404DAC2B59F0B3E661
 magnet:?xt=urn:btih:5EA4041794BF61FA23DE18C5FCBC868D98B62999
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:5EA4041794BF61FA23DE18C5FCBC868D98B62999
 ```bash
 magnet:?xt=urn:btih:D28BA8621C773C9AE20B4AB1F0635AF5688D8137
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Udemy, Василий Швалев | Ultimate QGIS: с нуля до экспе�
 magnet:?xt=urn:btih:49D8DE7BA3958BCA45E12FE4A94757672FF60D81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:49D8DE7BA3958BCA45E12FE4A94757672FF60D81
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ DevOops - конференция от JUG Ru Group, посвященная пр�
 magnet:?xt=urn:btih:DF2378802B114DC8286341596EC24AAAF5C00345
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:DF2378802B114DC8286341596EC24AAAF5C00345
 ```bash
 magnet:?xt=urn:btih:70BEBE0E43C523EA31C057A588ACFA4FD72A901E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:70BEBE0E43C523EA31C057A588ACFA4FD72A901E
 magnet:?xt=urn:btih:AE315DFD028CEFE15A6E1792D2EA6F0775A9CECE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:AE315DFD028CEFE15A6E1792D2EA6F0775A9CECE
 ```bash
 magnet:?xt=urn:btih:1EB803D9216C63D1654B40CA4A82D165C66EFAEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ Upscayl 2.8.6 [En]
 magnet:?xt=urn:btih:627ACFFA90B3B04C329286BB4BEBC7A6E565E3A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ Udemy, Derek Smith | The Complete English Idioms Course - Master English Idioms 
 ```bash
 magnet:?xt=urn:btih:48B85B923BA2E340B4357EDBF42FE96B10A75483
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:48B85B923BA2E340B4357EDBF42FE96B10A75483
 magnet:?xt=urn:btih:92E9891A4A12E857E344EA13C2CAEBA156BD5F92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:92E9891A4A12E857E344EA13C2CAEBA156BD5F92
 ```bash
 magnet:?xt=urn:btih:12126720215F8F012F01E79793999D2947A262D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:12126720215F8F012F01E79793999D2947A262D0
 magnet:?xt=urn:btih:F2CF668B77B9B696D8DEDE6245F48AF59DB1A5B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 magnet:?xt=urn:btih:37394B01EBB71355A4AE2F502F4A9C472B76A36A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ DotNext — крупнейшая и старейшая конференция д
 ```bash
 magnet:?xt=urn:btih:71E0003217E1431090616AB082042D83B2ACB37E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:71E0003217E1431090616AB082042D83B2ACB37E
 magnet:?xt=urn:btih:53990888B31BE9E1679123CE51DABE80FEFB045A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:53990888B31BE9E1679123CE51DABE80FEFB045A
 ```bash
 magnet:?xt=urn:btih:11004B3BA4AF6A359A2797B9E67EA5AA43FD7163
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ The Gnomon Workshop, Simon Littlejohn | Creating an FX Production Shot in Houdin
 magnet:?xt=urn:btih:03269AEECFB05D7194DA46488DB1094DDF971943
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Floorp Browser – это модифицированная версия Firefox,
 ```bash
 magnet:?xt=urn:btih:6293FC74CE263985200B6ADDCB0066D5C9EEB1B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Double - Dou3le (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
 magnet:?xt=urn:btih:43E49459C9F86AA009C36602FFD67DE53C65A8CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Double - Blue (1985) 1st German Press [APE|Lossless|image + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:68F447531D3AA88EC9D48779DB45423A37FE1278
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Bryan Ferry - Boys And Girls (1985) 1st German Press [APE|Lossless|image + .cue]
 magnet:?xt=urn:btih:09E35676629DEB9CF7D590DC8B295CF08FF5063E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Black - Wonderful Life (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:AC67BE73C321F822597C2BB720252FD735A8511D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Madonna - Madonna (1983) 1st German Press [APE|Lossless|image + .cue] <Pop>
 magnet:?xt=urn:btih:9958801FD918C28A16F0611AB65713AB4FE3A042
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Silent Circle - № 1 (1986) 1st German Press [APE|Lossless|image + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:142F90C48E32112F64262B840725AF366E0DDAE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:142F90C48E32112F64262B840725AF366E0DDAE8
 magnet:?xt=urn:btih:8A921C5954BB1A0E7C647DC982CFDF2E3D6C74E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Sirena (ex-Sister Siren) - Innocent Killah (2011) [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:E02074956A329893BC99A4216BB0068846797877
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:E02074956A329893BC99A4216BB0068846797877
 magnet:?xt=urn:btih:024C9948437B702584B33974F1B93826858F51C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:024C9948437B702584B33974F1B93826858F51C9
 ```bash
 magnet:?xt=urn:btih:6F3E8A7004065A15E9CE074FA581C9A559529CA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ MY-RO - Краса Руси (2025) [MP3|320kbps] <Pop>
 magnet:?xt=urn:btih:A965679515BCE70803A9CBEE49D6EA0314F7C5E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ magnet:?xt=urn:btih:A965679515BCE70803A9CBEE49D6EA0314F7C5E4
 ```bash
 magnet:?xt=urn:btih:588CE6116A31473E0A684582A36C5FC76A760015
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ magnet:?xt=urn:btih:588CE6116A31473E0A684582A36C5FC76A760015
 magnet:?xt=urn:btih:83BB19FBE07E0B11C73A3985DE144CBD6718093F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Kohl's Cares For Kids: Songs Of The Season 2001 (2001) CD, Compilation [FLA
 ```bash
 magnet:?xt=urn:btih:85AC6B997CF4B06B01903538053595AEFDC68F4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ magnet:?xt=urn:btih:85AC6B997CF4B06B01903538053595AEFDC68F4C
 magnet:?xt=urn:btih:90FC0A5718226BD65695AEBC9AAED0D597A55A04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ magnet:?xt=urn:btih:90FC0A5718226BD65695AEBC9AAED0D597A55A04
 ```bash
 magnet:?xt=urn:btih:2091D1236D160CC205A4463752EDA84F097F7A9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Marc De Loutchek - Chansons russes et Tsiganes russes. Vol 2 (2007) [MP3|320 Kbp
 magnet:?xt=urn:btih:FE86FBB1E3B5A4FAC0D484F2EF84B52214B9875B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Grupo Bryndis - Tu Amor Secreto (1995) [FLAC|Lossless|WEB-DL|tracks] <Latin, Cum
 ```bash
 magnet:?xt=urn:btih:362D6876A67CFA17F709D188DDEE03A8BB07325C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ magnet:?xt=urn:btih:362D6876A67CFA17F709D188DDEE03A8BB07325C
 magnet:?xt=urn:btih:A334478F8362E7392A227BC5071AF00AB4EA45F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - Global Pop Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:0A8C900CE45BE8CC10F1A378E2D52466711AA148
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ magnet:?xt=urn:btih:0A8C900CE45BE8CC10F1A378E2D52466711AA148
 magnet:?xt=urn:btih:D7806685C1583283D3971AFF117E13070C506F02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ magnet:?xt=urn:btih:D7806685C1583283D3971AFF117E13070C506F02
 ```bash
 magnet:?xt=urn:btih:66F4D340FECCA05C0A349754079986CE256815E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ magnet:?xt=urn:btih:66F4D340FECCA05C0A349754079986CE256815E9
 magnet:?xt=urn:btih:7762C833403EA2D06809E298713EB105F069EF0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ magnet:?xt=urn:btih:7762C833403EA2D06809E298713EB105F069EF0A
 ```bash
 magnet:?xt=urn:btih:1349326BD2E75EE7B62C236B0572C2CE7EA46DAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ VA - That Ole Devil Called Love (2016) 2 x CD, Compilation [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:7CFD4473443CB9AF0D93BBF754024E22242E73DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ magnet:?xt=urn:btih:7CFD4473443CB9AF0D93BBF754024E22242E73DB
 ```bash
 magnet:?xt=urn:btih:71AD82647D2D43D9DC317655D61E98BA81BF5553
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Thronebreaker: The Witcher Tales / Кровная вражда: Ведьмак. 
 magnet:?xt=urn:btih:F5E000E9840C20EE48983CEDCA607E5139C1BA35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Rogue: Genesia – классическая ролевая видеоигра с
 ```bash
 magnet:?xt=urn:btih:1314FEE42FC048B352B1705D2660B0C392CB58F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Witcher / Ведьмак (2007) [Ru/Multi] (1.5) Repack Wanterlude [Enhanced
 magnet:?xt=urn:btih:C37B257FDF79C4B24637D616C55522E5AB3AAA6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы короле�
 ```bash
 magnet:?xt=urn:btih:F31093C42E7CB398CEF2CED579E96C72DC96492F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Rogue Waters - это тактическая пошаговая игра в ду
 magnet:?xt=urn:btih:ED6037F0C7034C6D8A6B08BBD2D57315E5AB131A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ StarCrawlers Chimera (2021) [En] (1.3.1) License GOG
 ```bash
 magnet:?xt=urn:btih:CD10E4DFA511E47C47421107083EBC922FCAF2E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0w/dlc) Repack Wanterl
 magnet:?xt=urn:btih:34E620FDBD8FE5F911EA645D4BC4BA61D14DCEBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land (2025) [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:828523D309DE2BD938397AAE94D0751423F41387
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Vampire: The Masquerade - Redemption (2000) [Ru/En] (1.1) License GOG
 magnet:?xt=urn:btih:1B672DE64497531BEF3D97E0F6A247CAE1F513C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Dread Tomb - многопользовательская кооперативна
 ```bash
 magnet:?xt=urn:btih:EE00F204E56E9DA5D8E370ADE70B1BE3ADA783DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Reignbreaker - динамичный roguelike, действие которого
 magnet:?xt=urn:btih:41CD40C31056752F6CFE9C39CBDA47BE9B8FB79C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Mortal Darkness (2025) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:053D281BB4C10CC71147834FE8FC7A33F4942641
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Grand Fantasy Heroes (2025) [En] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:417DEFF4A3E8CA9D315654BE761907F2F6A9B915
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Wantless Solace at World’s End (2024) [Ru/En] (1.0.1000) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:F0E5539A873FD65995E1CFB60DE37C2ACD5B0079
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Gone Rogue можно назвать иммерсивным симуляторо
 magnet:?xt=urn:btih:8A46B9BC09338FAAC3D903F33651727508A90027
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Dance of Cards (2023) [Ru/Multi] (1.1.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:C98DE5AF911630A61272ED833E765CFCA5720861
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ One Lonely Outpost (2023) [En] (0.9.11a022-c4afe) Repack FitGirl
 magnet:?xt=urn:btih:6381F85ABDB83AE237A90E0D8757A1CFBB5745B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Last Flame (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:1A66574191B8D90C5FF65F535613FDF3AFB268BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Broken Roads создана командой настоящих энтузиас
 magnet:?xt=urn:btih:9B756BCD120567BDF5A1E019B5864A97269E9C4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Rise of the Ronin - динамичная ролевая игра, в котор�
 ```bash
 magnet:?xt=urn:btih:DBA0BA14834753CF2A0949FC1058FCDFF538B2FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Vigil: The Longest Night (2020) [Ru/Multi] (0311/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:3E9719CDD9AFAE7FCB7A6B0869747A6303C7B817
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack DjDI [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:A68D985BAB90A66C4BCA9687756EA3BCC222F2B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Blade Abyss (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:5D7903147FABB6F6495FEBC0A4D553CD55C91786
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Wartales - ролевое приключение в открытом мире, �
 ```bash
 magnet:?xt=urn:btih:4E4BB2E354BD1428FB3915DB09CAD0EC3B2079AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0.5-p.27.1/dlc) Repack Le
 magnet:?xt=urn:btih:BD94B95916FFFD6878683FABF97FDFCBD7341DF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ METRO QUESTER: OSAKA (2024) [Multi] (1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:474F71B903B55344687B5F04B0F15F24D754F641
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

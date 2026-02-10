@@ -19,6 +19,8 @@ uTorrent Pro 3.6.0 Build 47084 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 magnet:?xt=urn:btih:F356D64D173D51438843BF8AD616ECD157A9F2A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:AB941A759665112C3FEDEB40A34CDFE3FD14D641
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:AB941A759665112C3FEDEB40A34CDFE3FD14D641
 magnet:?xt=urn:btih:B7C4F2021793BE486378C18E84E6766CDC39351B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ ZBrush – это программа для цифровой скульптур�
 ```bash
 magnet:?xt=urn:btih:773DF6835B5AD0EA94C204DFF565786777FA5046
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ HDCleaner – многофункциональный программный пр
 magnet:?xt=urn:btih:6547EE2C06DC613EF91D6B2C127ED754B3882B27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ FreeFileSync - это утилита, которая была разработа
 ```bash
 magnet:?xt=urn:btih:677DCE1185E2D75D9BF753F7654A26F951818A3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ PeaZip — бесплатный архиватор и графическая о�
 magnet:?xt=urn:btih:3171438AFE5CA90E362B45A79531CBE5274B3D9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Vivaldi 6.7.3329.27 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B371912FC0FA977540F1BC7D2BE225F1F7350435
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Privacy Eraser Free - комплексный инструмент для защ�
 magnet:?xt=urn:btih:F94FBBF6257C2B90BAF4ACE5F439C7AE8D9CD166
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ PrivaZer - полезная утилита, которая поможет вам
 magnet:?xt=urn:btih:247EE369898BF1939351518A198F31F2D2EFCB75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ FileMenu Tools настраивает пункты контекстного ме
 ```bash
 magnet:?xt=urn:btih:2A0BF9BB261F3C477C33AF8E0E0F33874C673443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:DCC76FDB8EF0D077DCD10930C4769D367154B89B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:4176AAAE026418849662C3528293F35DDBFF7E61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ K-Cycles - это пользовательская сборка Blender с вы�
 magnet:?xt=urn:btih:426237B0D5EB4EBFC358F010DED16C1DD8BDFF3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:FD13BD5CD73179441CC1DAE442BD273B54AA0101
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Wise Care 365 – программный пакет, предназначенн�
 magnet:?xt=urn:btih:8079E556624719AD816BCDDDFFC8A5256D6B3A3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Bulk Crap Uninstaller (BCUninstaller) - деинсталлятор програ�
 ```bash
 magnet:?xt=urn:btih:9501AE74BD0F02CF8E265011B9F1044A7FC84AA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ CareUEyes служит для изменения цветовой темпера
 magnet:?xt=urn:btih:B25288F1C13233AAFE9562C4FCA27892938D2351
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ ArchiCAD - это мощное приложение моделирования, 
 ```bash
 magnet:?xt=urn:btih:9FCDEA852ABCC9E51CE1FC948327D4EE3B21230A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Office 2013-2024 C2R Install + Lite 7.7.7.7 ++ r6 Portable by Ratiborus [Multi/R
 magnet:?xt=urn:btih:A243A4BF38581BF8FC0B2822E0D6B96DECE900EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:FCFCB862484210DB19A4EE137C674BBC73F4B469
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ EarthView — это динамические обои для рабочего �
 magnet:?xt=urn:btih:9577C9D1D377EA67C944CF3CD99D3A71862E5356
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:309A3543C4C2C76E7199572EDE55AB850DFD5EB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ Antivirus Removal Tool - портативный набор официальны�
 magnet:?xt=urn:btih:9C68B69AF5A5B068F992AF178134D5611BB2C30A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ WinTools.net – набор инструментов для оптимизаци
 ```bash
 magnet:?xt=urn:btih:4EEE24274D4BFA8B27FD0999F27ADEB3EF992440
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +680,8 @@ updated_april_2024_x64_dvd_d986680b.iso.
 ```bash
 magnet:?xt=urn:btih:D3D00D5523A482C35ABD35373B6406570A959B16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

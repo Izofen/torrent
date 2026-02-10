@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8D2A8BD471CAEEF8CE60384D6053FBDAAB0FF46B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:8D2A8BD471CAEEF8CE60384D6053FBDAAB0FF46B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:8D2A8BD471CAEEF8CE60384D6053FBDAAB0FF46B
 magnet:?xt=urn:btih:61CC0E52F0161C8FAA3DBCC11E19A04D83184508
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:61CC0E52F0161C8FAA3DBCC11E19A04D83184508
 ```bash
 magnet:?xt=urn:btih:F87D653D1B14E0E9AA882841EBFFD5DF9D9FF8C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:F87D653D1B14E0E9AA882841EBFFD5DF9D9FF8C0
 magnet:?xt=urn:btih:67F9002D0414A68685EB907DD463E0BE72B8BA9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Uchi no Shishou wa Shippo ga Nai | My Master Has No Tail | У моего мас�
 ```bash
 magnet:?xt=urn:btih:EFE140E9739FB7DD38A2E4B835095F2B0BCD9CF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ VRscans - это новая запатентованная технология 
 ```bash
 magnet:?xt=urn:btih:DAD8F4E536D22FD7EF63B9A84B18F7758D10AB1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ Mistheria - Dreams (2020) [MP3|320 Kbps] <Progressive Rock, New Age, Ambient>
 magnet:?xt=urn:btih:846F16443236E7CCFB41F8E436A7D6A318722791
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ Dies Irae | Судный день [2017, TV, 11 + SP] HDTV 720p raw
 magnet:?xt=urn:btih:BA1E5D93CCEB186739A25A3226047AD2550F3F1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:BA1E5D93CCEB186739A25A3226047AD2550F3F1F
 ```bash
 magnet:?xt=urn:btih:D24DFD58FC79B640DEBECF36718460AC23801E15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ OBS Студия - бесплатное программное обеспече�
 magnet:?xt=urn:btih:B46C7DD875A304BB37443BBD0888DF3FAA77F55A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:B46C7DD875A304BB37443BBD0888DF3FAA77F55A
 ```bash
 magnet:?xt=urn:btih:FDA8D0642115F8CDA2638A24BE3056E008006EC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ The KiCad Team | Мануал для ПО "KiCad" [10 книг] (10.2021) [PDF, 
 magnet:?xt=urn:btih:0BE9C2FFB229879129DF19543F3EA66F98B1D5CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:0BE9C2FFB229879129DF19543F3EA66F98B1D5CE
 magnet:?xt=urn:btih:3897A4C32354545E7A52CDCA5E3B51DBE03AFBBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ Total Movie Converter - многофункциональная программ�
 ```bash
 magnet:?xt=urn:btih:B564413F02CB4C76E292F8267C890C9B4D88E4A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:B564413F02CB4C76E292F8267C890C9B4D88E4A6
 magnet:?xt=urn:btih:4703C5ADECF37984D5C32364EEDD5FA8D3FEF9F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:4703C5ADECF37984D5C32364EEDD5FA8D3FEF9F0
 ```bash
 magnet:?xt=urn:btih:C9AD3B105A80AB9C8F75354C246552379B9D23FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:C9AD3B105A80AB9C8F75354C246552379B9D23FC
 ```bash
 magnet:?xt=urn:btih:958550FC702F5F7C36888D774A0E4677514F1AFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ VA - The Absolute Sound 2011 (2011) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz, Po
 magnet:?xt=urn:btih:2C51D2DCE6E0A597AB442715B6212E3866E3661A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:2C51D2DCE6E0A597AB442715B6212E3866E3661A
 ```bash
 magnet:?xt=urn:btih:55F6EF5E9A6D4F2D44D7E8AC85C0569FBFB39EA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ Stand Up - это взгляд на наши жизненные повседне
 magnet:?xt=urn:btih:2503AFF931B556F90AB09DF35501AAF300974C07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ Glary Tracks Eraser - бесплатный и полезный инструме�
 ```bash
 magnet:?xt=urn:btih:947FA917A5CC39E5217FE9601592F6E277240C06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ VA - Deep and Loud (2016) [MP3|320 Kbps] <Funky, Club House>
 magnet:?xt=urn:btih:A2F7DD32FC1F25F06B0C96AE56DC412C973CB673
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:A2F7DD32FC1F25F06B0C96AE56DC412C973CB673
 magnet:?xt=urn:btih:D325011B21C0256E1BFB9606FFC32CEBB1151DEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ NGW: Море теней / Sea of Shadows (2019) HDTV [H.264/1080i-LQ]
 magnet:?xt=urn:btih:A18B3132A6CCE06528D3F46A467F3900A84C4C1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ magnet:?xt=urn:btih:A18B3132A6CCE06528D3F46A467F3900A84C4C1B
 ```bash
 magnet:?xt=urn:btih:B37F4F779FDBB1C556DD263B69DD676004708B89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Gym Chillout Music Zone - Powerful Gym Beats (2019) [MP3|320 Kbps] <Funky, Club 
 magnet:?xt=urn:btih:F3597C24FBFB95994229FD673BB34829F5EA35E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Chill Out Lounge Cafe Essentials, Chilled Ibiza - Mysterious Sexy Chillout (2019
 ```bash
 magnet:?xt=urn:btih:AA8526A23375D801409222D21F0DC5FA933F941C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ CD1:
 magnet:?xt=urn:btih:9A4CD308F8B8AB4E5D0FA96E08E3983030D6B62A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Cocktail Lounge: Sexy Sounds for Lazy Moments (2016) [MP3|320 Kbps] <Downte
 ```bash
 magnet:?xt=urn:btih:656356D6D957AA813C7A23B92FC15730205B7045
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Bakradze - Restless (2016) LP [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:6A958C55B1B0F93AFCF90AAF4EBFE3EC310276FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Healing Zen Yoga (2019) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:574434C95F1DDA708F7FDB39CDF2C0FDA49E340E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Bikini Beach, Vol. 2 (2019) [MP3|320 Kbps] <Funky, Club House>
 magnet:?xt=urn:btih:7C94B37C6CB2432AA4B573C7AAAF918FE2193010
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Bikini Beach, Vol. 1 (2019) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:82A895812F8A029C0C534FE7C685E56EB936A758
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Trilogy The Best of Chillout (Part One) (2015) [MP3|320 кб/с]<Electronic
 magnet:?xt=urn:btih:ABD89DDBECE080024D58663D93928032703E3930
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Trilogy The Best of Chillout (Part Two) (2015) [MP3|320 кб/с]<Downtempo,
 ```bash
 magnet:?xt=urn:btih:B26C7C5ABE368D6377180E69D23BB43FA310EEF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Trilogy The Best of Chillout (Part Three) (2015) [MP3|320 кб/с]<Downtemp
 magnet:?xt=urn:btih:49F586AAB8C151309183E61C82B90913EC11B27E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Le Fashionista (Downtempo & Deep House) (2014) [MP3|320 кб/с]<Downtempo,
 ```bash
 magnet:?xt=urn:btih:9F7F2C295CB5D5D87C2CC6981E1B1204C4DAF73B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Elkin Sergey - Discography 3 Releases (2015-2018) Plexus Music [FLAC|Lossless|WE
 magnet:?xt=urn:btih:FB1CB0D0B9E85E057D0513DEF818ACEF3E90FC81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Buddha Soul Vol.2 (Super Calm & Chilled Music For Meditation Yoga And Relax
 ```bash
 magnet:?xt=urn:btih:5C5579AC565FB00031D9F6CC473A6CAA31492687
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Disc 1
 magnet:?xt=urn:btih:45E05CC0B755D917AC64AC1893A9A1C22FD204FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Magnifik - Romantik (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco, Soulf
 ```bash
 magnet:?xt=urn:btih:1D9E112B950F756603223589EB0F7ED73DFF981E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Steve Hauschildt - Dissolvi (2018) Ghostly International [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:3AA8F6A78EAB2FE1A9F67B37061528784D367F9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - Progressive Trance Selections Vol.06 (2018) [MP3|320 Kbps] <Trance,Progress
 ```bash
 magnet:?xt=urn:btih:5959457F999701FDEB5D48E44AD6E729F7909C5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - Best Of Ibiza (2017) [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:442CD1576EE6BFD25BA4F9BA0B6AF890490DC313
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - Sound Of The Balearics Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lo
 ```bash
 magnet:?xt=urn:btih:5F565D60556860C83A329E42952815A622B5554D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ VA - Drive & Chill Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:A9EF1314465B316199108943E4CCA5642CDA99AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ VA - Extrema Summer Trance (2017) [MP3|320 Kbps] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:B648DFDA4B14F1FB6B76913396B3DB17064CDB0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ VA - Uplifting Trance Sessions Vol.09 (2018) [MP3|320 Kbps] <Trance,Uplifting Tr
 magnet:?xt=urn:btih:1EFFFD6EE42395A2372198A3CBD499FE39F6A4DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +689,8 @@ Kwartz - Body Sedation (2018) Horo [FLAC|Lossless|WEB-DL|tracks] <Techno, Experi
 magnet:?xt=urn:btih:9BA49CB8F9DFD66AB57FC44B457B48E5C025BBD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +717,8 @@ Trentemøller (Trentemoller) - Discography 56 Releases (2003-2019) In My Room [F
 ```bash
 magnet:?xt=urn:btih:30FD6B54514F08F4CC1D337F9F4D77FE65A5B416
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -702,6 +752,8 @@ VA - Kiss FM Dance Radio Chart 3 (2005) [MP3|320 кб/с]<House>
 ```bash
 magnet:?xt=urn:btih:65BA96458B3D23A678D0C2C094E105B23E8AE257
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

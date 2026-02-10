@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:36BC683FFF4D23904196E425EBA53FD444159BAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:36BC683FFF4D23904196E425EBA53FD444159BAB
 ```bash
 magnet:?xt=urn:btih:BEEAFCFEE26A772E97B721CD1B11C4BB766E6481
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ BBC: Путешествие человека / The Incredible Human Journey   (2
 magnet:?xt=urn:btih:9B7CA6332B977059025987C33C0E96610E4772FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Discovery: Почему? Вопросы мироздания. Можем ли м
 ```bash
 magnet:?xt=urn:btih:3C2CF2AF6A30931714066D6703924D5A3786BB0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:3C2CF2AF6A30931714066D6703924D5A3786BB0A
 magnet:?xt=urn:btih:AE14678FB5C59313C0D77C25B2378597782206A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:AE14678FB5C59313C0D77C25B2378597782206A3
 ```bash
 magnet:?xt=urn:btih:91A2AC9A472A3037D62725FCFA9EEFD532F7F016
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:91A2AC9A472A3037D62725FCFA9EEFD532F7F016
 magnet:?xt=urn:btih:D50E6C26666AE7D404467FF894B1C79D9184F9D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ B джунглях сюрпризы ожидают вас буквально п�
 magnet:?xt=urn:btih:DAD0C92242693B113FF2BDED39C5EBA8879A9DD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ PBS. Снежные макаки Японии / Snow Monkeys (2014) BDRip [H.264
 ```bash
 magnet:?xt=urn:btih:8BDFF48CBC203036533A66E5EFB479464EDDE71E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:8BDFF48CBC203036533A66E5EFB479464EDDE71E
 magnet:?xt=urn:btih:2C1A7A07226D0F081182F08E928F191746147156
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:2C1A7A07226D0F081182F08E928F191746147156
 magnet:?xt=urn:btih:72AF9DD3790052F098E8E826B4369508D43345BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ NG: Чудеса инженерии: Панамский канал / Big Bigger 
 ```bash
 magnet:?xt=urn:btih:6E4635C9C64BC10DFF58F04C5F3C9FC7021E238D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ NG: Осушить океан. Бермудский треугольник / Dra
 magnet:?xt=urn:btih:5737D3FACCE6A52DE2F4A88991398BC6A61492A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:5737D3FACCE6A52DE2F4A88991398BC6A61492A8
 ```bash
 magnet:?xt=urn:btih:BDDACFCF7BE7554EC08C1D9E584B38A2B976FF97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:BDDACFCF7BE7554EC08C1D9E584B38A2B976FF97
 magnet:?xt=urn:btih:15BD6EF3B531E7A906E5DAFEDC92660CBC31DA0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:15BD6EF3B531E7A906E5DAFEDC92660CBC31DA0E
 ```bash
 magnet:?xt=urn:btih:E99A2BBC23C202AA90203AE8860275D4EA82D6C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Discovery: Поля сражений. Борьба с немецкими суб�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Discovery: В мире машин: Трансатлантические испы
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Discovery: Понимание: Пещеры / Understanding: Caves (1998) TVRip
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Discovery: Понимание: Пещеры / Understanding: Caves (1998) TVRip
 magnet:?xt=urn:btih:7C3F8396082CA9B8F9A67666EB9D5AC8582E6ED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:7C3F8396082CA9B8F9A67666EB9D5AC8582E6ED3
 ```bash
 magnet:?xt=urn:btih:7D8B4E33732988D4CBB0BC7E030905D021006BDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Driven to Destruction
 magnet:?xt=urn:btih:442D5379166D3F8F39717F0D9930761C6DDA4D01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Discovery: 10 возможных концов света / 10 Ways The World Wil
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Discovery: Понимание: Сон / Understanding: Sleep (1998) TVRip
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Discovery: Понимание: Эволюция / Understanding: Evolution (2004
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Discovery. Первое лунное поселение / Base Camp Moon (2008) 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

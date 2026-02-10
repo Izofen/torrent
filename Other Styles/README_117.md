@@ -22,6 +22,8 @@ Timothy Wenzel - What We Hold Dear (2017) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:EAC5CC93C49FD00E21A8175B2D8FCEEA12B8DC69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Relaxing Coconut Massage (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:B6836328A4593F649DE0C8B36848E42129EC04EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Winifred Atwell - 4 альбома (1964 - 2009) [MP3|320 kbps]<Easy Listening>
 magnet:?xt=urn:btih:6D6B64A4FA62D54F249E2D1D16AB810C82CF4681
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Wendy Stark - Child of Transference (1999) [MP3|320 Kbps] <New Age, Downtempo, A
 ```bash
 magnet:?xt=urn:btih:5D21304C04C32300FD678206D627B8672E5A8CA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Tim McGraw - Tim McGraw And The Dancehall Doctors (2002) [FLAC|Lossless|tracks +
 magnet:?xt=urn:btih:510A7312CF6310DF4927B5673E6F1693B9FAB52E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Sawyer Brown - Greatest Hits (1990) [FLAC|Lossless|tracks + .cue] <Folk, Country
 ```bash
 magnet:?xt=urn:btih:49A348B7453F2A55A80785F8F2B8CC412360F749
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Tim McGraw - Not A Moment Too Soon (1994) [FLAC|Lossless|tracks + .cue] <Folk, C
 magnet:?xt=urn:btih:5E4BB6AED8D0F8B764664925AFCCF6F761D2D3E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Mindful Meditative Exercise (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:85F1E62DED873FFD258C76948C907967E05F4731
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Anhidema - Conversation with the Cosmos (2014) [MP3|320 кб/с] <New Age, Ambie
 magnet:?xt=urn:btih:ACACB98297AE60CD9F1BDB1D9576EF811D6610FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Brian Bennett - Shadowing John Barry (2015) [FLAC|Lossless|tracks] <Contemporary
 ```bash
 magnet:?xt=urn:btih:CE266EDBE5F53808063014AC2FD856F7506E7487
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Juliana - Earth Goddess (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Vo
 magnet:?xt=urn:btih:3C3543842A0C032F8C674D8BAF026DDA282DD587
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Armik - Romantic Spanish Guitar Vol.2 (2015) [FLAC|Lossless]<Latin, Flamenco>
 ```bash
 magnet:?xt=urn:btih:5F8FA9DB6467FB07219F5E163CE33DC9355A2005
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Kamal - Reiki Whale Song (2001) [FLAC|Lossless|tracks + .cue] <New Age>
 magnet:?xt=urn:btih:1FD36D9FD6C788E07B748EC432011F639BE64F94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Music For Quick Morning Yoga (2020) [FLAC|Lossless|WEB-DL|tracks] <New age>
 ```bash
 magnet:?xt=urn:btih:D967AFC749FE622D8C3D0E9515BAB153BA9538AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Joseph Bishara - The Conjuring 2 / Заклятие 2 (Music from the Motion Pic
 magnet:?xt=urn:btih:5C0472ED1DC3B12614CE9EAFD1D6F974423AEF7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +457,8 @@ Air - Twentyears (2016) [MP3|320 кб/с] <Electronic, Downtempo, Ambient>
 magnet:?xt=urn:btih:E78750FDF6ADD70BEF84BDF6D5AB67C5E4AF0E6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +484,8 @@ Midori - Island Paradise (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:BDF5C16C32A9EA87C0B62A71EB6C4202D994BF14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +514,8 @@ Brian Tyler - The Fate of the Furious / Форсаж 8 (Original Motion Picture 
 magnet:?xt=urn:btih:FF93F0A5BE7C3211C02B4DB05C2E2831D6EB1F18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +542,8 @@ Brian Tyler - The Fate of the Furious / Форсаж 8 (Original Motion Picture 
 ```bash
 magnet:?xt=urn:btih:00441794190AA492295EF805F23210862E3D5F47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +572,8 @@ Cristobal Tapia de Veer - The Girl With All The Gifts / Новая эра Z (Ori
 magnet:?xt=urn:btih:6EB5355700F40F79E758F546926F3CC83E3056EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +600,8 @@ Bear McCreary - Colossal / Моя девушка – монстр (Original Moti
 ```bash
 magnet:?xt=urn:btih:7F0065172329DF0BECD7D7631E439632CADB3D72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +630,8 @@ Bear McCreary - Colossal / Моя девушка – монстр (Original Moti
 magnet:?xt=urn:btih:C43CC723A831BC75C95FE94FF675C1DE23D2139F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +658,8 @@ Cristobal Tapia de Veer - The Girl With All The Gifts / Новая эра Z (Ori
 ```bash
 magnet:?xt=urn:btih:293B7149ACBB9E998A4B29B3D6E5B13C371A31B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +688,8 @@ VA - Super Instrumental 25 (Vol. 23-25) (1996) [FLAC|Lossless|image, tracks + .c
 magnet:?xt=urn:btih:C4E66ABB2198EC3FA015AD9BA52933E092715E7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +717,8 @@ The Pasadena Roof Orchestra - Breakaway (1991) [FLAC|Lossless|image + .cue] <Jaz
 magnet:?xt=urn:btih:03124F4B4561E290135534CBAB846C826C3A7777
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ Jupiter Panic - Earth-like (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronica, So
 ```bash
 magnet:?xt=urn:btih:01BEC82D45E9E399BA21BE16792621463BE9C7E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

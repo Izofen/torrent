@@ -19,6 +19,8 @@ Kona II (2): Brume (2023) [Ru/Multi] (2023-11-24) License GOG
 magnet:?xt=urn:btih:1F3D1EEEB6B217D68B97208FBA89C2CA5EF42B09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Invisible Hand (2021) [En] (1.2.3) License GOG [Deep Pockets Edition]
 ```bash
 magnet:?xt=urn:btih:A03DC771756C58CE3574CDAB73E5D80CA5BA56D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Crab God – это увлекательная подводная крабост
 magnet:?xt=urn:btih:86D29D96F5D837C7B0E8076E84A23376AB51F710
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Windstorm: Start of a Great Friendship - Remastered (2024) [Multi] (0.7.3) Scene
 ```bash
 magnet:?xt=urn:btih:3EF02AD7A7B23920A47CE93BAD2C7742D02471DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Champion Shift – скорее берите разношерстных мифи
 magnet:?xt=urn:btih:1CA35FBF47140C5AB231C3B1788A78A0DDA150B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Gargoyles Remastered - это искусное возрождение класс
 ```bash
 magnet:?xt=urn:btih:A72BC923AE0D45DBD68796C32AE2551500AD173E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Tropico 6 (2019) [Ru/Multi] (22/dlc) Repack dixen18 [El Prez Edition]
 magnet:?xt=urn:btih:7424A7ED90FA577C68C7DA40BD1F04D1B88733E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ JoJo's Bizarre Adventure: All-Star Battle R (2022) [Multi] (2.3.3/dlc) Scene Ten
 ```bash
 magnet:?xt=urn:btih:C6557C386DCA73FD29CCF27B9950504AD02FD7DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.21.67207.27/dlc) Scene Doge
 magnet:?xt=urn:btih:FFA8EB06251AE5AAA9DEBAAA7DD292F32F8833C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Fossilfuel 2 забрасывает игроков в затопленный и�
 ```bash
 magnet:?xt=urn:btih:F94C5F4A91CE5E4C5219974CEE6A0691BE7EB4C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Tropico 6 (2019) [Ru/Multi] (22/dlc) Scene Doge [El Prez Edition]
 magnet:?xt=urn:btih:9360AB6F970A9B13502E67F0C6C4911504D0E479
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Baten Kaitos: Eternal Wings and the Lost Ocean и Baten Kaitos Origins тепе�
 ```bash
 magnet:?xt=urn:btih:B7442F6B6477296502517E352F1B6825AEB1BFE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Vanity Fair: The Pursuit / Игра славы и богатства (2024) [Ru/
 magnet:?xt=urn:btih:C130CCAA50848053E62B8A1C7D25F4990135226D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (1.0.2) Scene FAiRLIGHT
 ```bash
 magnet:?xt=urn:btih:026DD1905B309D5D928B247A300986AA310F8408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Crime Boss Rockay City (2023) [Ru/Multi] (1.0.9.1@143028/dlc) Scene FAiRLIGHT
 magnet:?xt=urn:btih:691ADDD542FBFFD435AC57EDC6009FD993DEB10C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Grand Tactician: The Civil War (1861-1865) (2021) [En] (1.15.1/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:3B42FEB64EB3FDB062DF8B5A04754CB5A5286D97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Nucleares может заинтересовать любителей ориги�
 magnet:?xt=urn:btih:30377AFFA4169CB3951B92832A6E2D804A1801FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Arena Renovation (2023) [Ru/Multi] (1.0.164) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:7B9E72E0E01E7458D46E0BA5924484E51CA47BBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Despair: Blood Curse (2024) [Ru/Multi] (1.02) License GOG [18+]
 magnet:?xt=urn:btih:D262F3539D81996357093C98ECB16ED2A0B7756E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ My Horse: Bonded Spirits ставит вас на место маловероя�
 ```bash
 magnet:?xt=urn:btih:F78AC8ABE9A0E6DC70D738E05E7B34BD188CE0B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ A Tower Full of Cats - это уникальная пазл-адвенчура �
 magnet:?xt=urn:btih:F0A6E46FA9EF70DE73F319EBC2D1B2AAFED093C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ magnet:?xt=urn:btih:F0A6E46FA9EF70DE73F319EBC2D1B2AAFED093C8
 ```bash
 magnet:?xt=urn:btih:B819061E046C6093AA8E32570A6DDC21EEE5441C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Alisa (2021) [Multi] (1.18) License GOG
 magnet:?xt=urn:btih:DF1700A748A30DE8B052C6EA093350C7D1E08CCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Homebody (2024) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:6CBEAA2ECCF0208598F2E86D9D4BE16D31E9DFCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ UnEpic (2011) [Ru/Multi] (1.51.1) License GOG
 magnet:?xt=urn:btih:D06673B7F86CB701169DE5F5142F5AEF3906A7B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ House Builder (2021) [Ru/Multi] (20240619/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:0B8BE7C5B915792990FBCCAF23C51FDCCA279C3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

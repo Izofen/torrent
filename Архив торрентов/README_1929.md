@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:EB4D89BF9C5883F98CE5CC65715FCAB023F9682E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:EB4D89BF9C5883F98CE5CC65715FCAB023F9682E
 ```bash
 magnet:?xt=urn:btih:A7E6321FD0617C45AEF7C37A80EEC7BF5D41ED7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Neodium - Жажда власти (2012) [MP3|256 кб/с]<Heavy Metal>
 magnet:?xt=urn:btih:14D66438AD6729B887B6A830681F6AE30B5667D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:14D66438AD6729B887B6A830681F6AE30B5667D3
 ```bash
 magnet:?xt=urn:btih:DBA868945750C7B28C68C17452E6BCA3C099C2E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:DBA868945750C7B28C68C17452E6BCA3C099C2E0
 magnet:?xt=urn:btih:A71B5282AB9F28A6FAA001239E900C059306CCB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:A71B5282AB9F28A6FAA001239E900C059306CCB3
 ```bash
 magnet:?xt=urn:btih:8D9A18A2DABD7C46D7E012F7DEE73FCA2503613A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:8D9A18A2DABD7C46D7E012F7DEE73FCA2503613A
 magnet:?xt=urn:btih:63F03E7D47318AB388A5ADBE40B7B9F3CC7E5387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:63F03E7D47318AB388A5ADBE40B7B9F3CC7E5387
 magnet:?xt=urn:btih:329D3F3E2CC9838EC962ABB648B8802C32AE74EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:329D3F3E2CC9838EC962ABB648B8802C32AE74EE
 ```bash
 magnet:?xt=urn:btih:A3AA75AFC07CDDC2579404DC9A7CE7809140E640
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ Jaded Heart - Common Destiny (2012) [MP3|256 кб/с]<Hard-n-Heavy>
 magnet:?xt=urn:btih:A8C6A20A55C3D4C47FC98CDB01FC08D078094DD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +301,8 @@ VA - Trance 75 2012 Vol 2 (2012)
 magnet:?xt=urn:btih:F57EEB02A13E43235BD236978D3F310655412ED8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +327,8 @@ magnet:?xt=urn:btih:F57EEB02A13E43235BD236978D3F310655412ED8
 magnet:?xt=urn:btih:D6236F868509552806D8872ABEF7413484F850A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ magnet:?xt=urn:btih:D6236F868509552806D8872ABEF7413484F850A9
 ```bash
 magnet:?xt=urn:btih:CE6ACC7D9CF532C92FDE81CD0C42ECB41AC6C583
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +388,8 @@ Evil Masquerade - Pentagram (2012) [MP3|320 кб/с]<Melodic Heavy Metal, Power 
 magnet:?xt=urn:btih:7904FEDDA1492BB491DADD2C1A07AECA29F6D52B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +418,8 @@ magnet:?xt=urn:btih:7904FEDDA1492BB491DADD2C1A07AECA29F6D52B
 ```bash
 magnet:?xt=urn:btih:50B3465D43705EC648893D3A4778BD61088C534A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ magnet:?xt=urn:btih:50B3465D43705EC648893D3A4778BD61088C534A
 magnet:?xt=urn:btih:0ED6A62024503346A5AD48CA30B1DE3D83AFC26A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +479,8 @@ magnet:?xt=urn:btih:0ED6A62024503346A5AD48CA30B1DE3D83AFC26A
 ```bash
 magnet:?xt=urn:btih:45B3EEEF815E7D66355464A7CBCA43D812648826
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +506,8 @@ ELLE ДЕКОР - самый красивый и полезный журнал �
 magnet:?xt=urn:btih:84AF41E688CAC0972B99F441F7082C6B97054F70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +531,8 @@ magnet:?xt=urn:btih:84AF41E688CAC0972B99F441F7082C6B97054F70
 ```bash
 magnet:?xt=urn:btih:4198E5270E390153DCAEE929EF912F9C003F9EA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +567,8 @@ For Today - Immortal (2012) [MP3|320 кб/с]<Hardcore, Metalcore>
 magnet:?xt=urn:btih:F4257BE76C2FADC072E21FA4C0992873342C6EF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +592,8 @@ Book Of Reflections - 3 Альбома (2004-2012) [MP3|320 кб/с]<Heavy,Power
 ```bash
 magnet:?xt=urn:btih:4FF8D9C7BB673E96FE266F52704FAFB57DF8BCAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +619,8 @@ magnet:?xt=urn:btih:4FF8D9C7BB673E96FE266F52704FAFB57DF8BCAC
 ```bash
 magnet:?xt=urn:btih:9FD5E9C0C3E69587E32A9527B2CE73108746F441
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +650,8 @@ magnet:?xt=urn:btih:9FD5E9C0C3E69587E32A9527B2CE73108746F441
 magnet:?xt=urn:btih:76F6C541FCD91CF84F8945F28DEEB80372E22888
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +675,8 @@ magnet:?xt=urn:btih:76F6C541FCD91CF84F8945F28DEEB80372E22888
 ```bash
 magnet:?xt=urn:btih:7F391BB8FB3738CFFED31D7A21B6F74C281FAEB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +707,8 @@ magnet:?xt=urn:btih:7F391BB8FB3738CFFED31D7A21B6F74C281FAEB3
 magnet:?xt=urn:btih:C07F96E6DF9E7469C8A893EB65B759EBF0B19AB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -682,6 +732,8 @@ magnet:?xt=urn:btih:C07F96E6DF9E7469C8A893EB65B759EBF0B19AB3
 ```bash
 magnet:?xt=urn:btih:1CBF8D655CDEF139CB3C180DD6EAAFC962C63670
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

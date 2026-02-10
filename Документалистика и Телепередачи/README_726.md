@@ -1,3 +1,29 @@
+###  Публикация: 1488121   (1002562) от 09.08.2021
+
+Игра окончена: Каспаров против машины / Game Over: Kasparov and the Machine (2003) WEBRip [EN/RU Sub]
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002562.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фильме рассказывается история о знаменитой победе суперкомпьютера Deep Blue в шахматном матче 1997г., когда впервые в истории компьютер обыграл чемпиона в серии игр. Что это было? Торжество технологий, или грязная игра IBM, разработавшей компьютер, и взлетевшей в стоимости после победы. Ранее Каспаров обыграл Deep Blue, компьютер, специально разработанный для его (   Читать дальше...   )Производство: Канада, Великобритания, Alliance Atlantis Communications, National Film Board of CanadaЖанр: Документальный, спорт, шахматыРежиссер: Викрам ДжайантиПеревод: отсутствуетСубтитры: РусскиеПродолжительность: 01:24:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D248CCF24983A3FAF0171400577D3FDE6D41732
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488136   (1002579) от 09.08.2021
 
 Тинторетто и новая Венеция / Tintoretto. L'artista che uccise la pittura (2020) WEB-DL [H.264/1080p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:185509BF09614966211B890B0060523E6AE35034
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:185509BF09614966211B890B0060523E6AE35034
 magnet:?xt=urn:btih:CC0FC1FA61CFE1916E849FD6F4FA888A6D28B751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:CC0FC1FA61CFE1916E849FD6F4FA888A6D28B751
 ```bash
 magnet:?xt=urn:btih:B80FFE9889FAFEDF01EF92E1218A220DB4974911
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:B80FFE9889FAFEDF01EF92E1218A220DB4974911
 magnet:?xt=urn:btih:16609AE049249EFC744C3D79BC7C787162FF4FEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:16609AE049249EFC744C3D79BC7C787162FF4FEF
 ```bash
 magnet:?xt=urn:btih:6AE96BEA962DF346581CF4DF83ACB55ABE4A7F7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:6AE96BEA962DF346581CF4DF83ACB55ABE4A7F7B
 magnet:?xt=urn:btih:81E0C59C72597FBF11AF6D570051A6B9B7606F20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:81E0C59C72597FBF11AF6D570051A6B9B7606F20
 ```bash
 magnet:?xt=urn:btih:11960EFD3207673FA00C0C16258634D65F8FC36A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:11960EFD3207673FA00C0C16258634D65F8FC36A
 magnet:?xt=urn:btih:2DF117B22F8BA3AD689644F495145FBB2F1FD37B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:2DF117B22F8BA3AD689644F495145FBB2F1FD37B
 ```bash
 magnet:?xt=urn:btih:2CB9AE8D3BE040C4C3B5133DE6E6999E5512F4F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:2CB9AE8D3BE040C4C3B5133DE6E6999E5512F4F6
 magnet:?xt=urn:btih:4AF983750F6171C680959C5C8EDA31BDF5F5E281
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:4AF983750F6171C680959C5C8EDA31BDF5F5E281
 magnet:?xt=urn:btih:D87850FB2C5413B5A9625DB872CA40EC40DA621A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:D87850FB2C5413B5A9625DB872CA40EC40DA621A
 ```bash
 magnet:?xt=urn:btih:94E8D624BF42F1036202C1C45E929D3421EBE952
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:94E8D624BF42F1036202C1C45E929D3421EBE952
 magnet:?xt=urn:btih:4D9369F1AA2770362AB022A729503486C82E1594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:4D9369F1AA2770362AB022A729503486C82E1594
 ```bash
 magnet:?xt=urn:btih:831FE14563B0C3E0FD945B19048746827E216B9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:831FE14563B0C3E0FD945B19048746827E216B9E
 magnet:?xt=urn:btih:1920AF3945FC52D31F52799F426260604B74EB73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:1920AF3945FC52D31F52799F426260604B74EB73
 ```bash
 magnet:?xt=urn:btih:448298056D7BE05055425CBBE3CC7BFA7837E8BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:448298056D7BE05055425CBBE3CC7BFA7837E8BB
 magnet:?xt=urn:btih:6E6C0C4335F74E234D2B693F0FECC278EAD76CC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:6E6C0C4335F74E234D2B693F0FECC278EAD76CC5
 ```bash
 magnet:?xt=urn:btih:D345B622CAA58E49DB686750BAFF2885D42E76FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:D345B622CAA58E49DB686750BAFF2885D42E76FF
 magnet:?xt=urn:btih:3BA8D1E9C4369728475461E998C677CB9D0A5767
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:3BA8D1E9C4369728475461E998C677CB9D0A5767
 ```bash
 magnet:?xt=urn:btih:CCB01D91F18B85E1B9F35A95B718184543FA56B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:CCB01D91F18B85E1B9F35A95B718184543FA56B3
 magnet:?xt=urn:btih:A928BCF0A5A70E1930AE9D7CE0EA8F9B9B8D3EA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:A928BCF0A5A70E1930AE9D7CE0EA8F9B9B8D3EA2
 ```bash
 magnet:?xt=urn:btih:0EE56C0006551BBC2E7EC5A72A96A88BB8DCC3B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:0EE56C0006551BBC2E7EC5A72A96A88BB8DCC3B8
 magnet:?xt=urn:btih:3A548B7B406FCD9C1901245064C26354BF124295
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:3A548B7B406FCD9C1901245064C26354BF124295
 ```bash
 magnet:?xt=urn:btih:47CA3D599E69A894CAE63319E6A98B75E2C95929
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,29 +673,7 @@ magnet:?xt=urn:btih:47CA3D599E69A894CAE63319E6A98B75E2C95929
 magnet:?xt=urn:btih:F8F6BC0D307DACCD405660E0CEA1371D80D84FBE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 633270   (1003374) от 27.11.2025
-
-Тайны советского кино. "Иди и смотри" (2010) SATRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003374.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1986 году состоялась премьера военной драмы Элема Климова "Иди и смотри". Главную роль в этой картине – и первую в богатой ныне фильмографии – сыграл Алексей Кравченко.Вообще-то, актером становиться он не собирался – пришел за компанию с другом. Однако не друг, а именно 14-летний Алеша был утвержден на роль Флеры. У режиссера было только одно условие (   Читать дальше...   )Жанр: Документальный, кинематограф, биография, история, культура, искусствоПродолжительность: 00:25:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8BEC6E0A565600BA8FCF18A369456D47692F6D2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

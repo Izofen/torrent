@@ -22,6 +22,8 @@ VA - Juno Download Deep House Best Of 2015 (2015) [MP3|320 кб/с] <Deep House>
 magnet:?xt=urn:btih:C93E299C3F759B508A7E7A3279DDDDA4292882F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:C93E299C3F759B508A7E7A3279DDDDA4292882F4
 ```bash
 magnet:?xt=urn:btih:3032E34BEBC16D257FABB271B0375983ECE8BB37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - HitZone Best Of Dance (2018) [MP3|320 Kbps] <Dance, Pop>
 magnet:?xt=urn:btih:63690F04D3726FB9A64E72D4F8B45017F39157B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Fresh Pop 4 (2021) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:CF05ADA29D39FAF16EA4DC0F8E8B1851526D6DBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Рождество Новые песни 2020 (2019) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:442842CB56F989402411864277B7013003CBCE0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - The Tropical Party: Ambient Chill House (2019) [MP3|320 Kbps] <Cillout, Amb
 ```bash
 magnet:?xt=urn:btih:15B8EBD1DE7935F20B35CFB83DDAA86D2868C101
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - 60 Minutes. Old School Dance Music vol.12 (mixed by Dj V) (2022) [MP3|320 K
 magnet:?xt=urn:btih:F97AC74B434D873F40A6EDCF1C47A3227A042C0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Music News vol.222 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:4B3F897CA473BE7AFD330E204B0B504DD02C4AB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - The Official UK Top 100 Singles Chart 26.11.2021 [MP3|320 Kbps] <Pop, Dance
 magnet:?xt=urn:btih:DE665C82428A8B6633C29BE5F7EEE75F189641A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Something In My Heart (2019) [MP3|320 Kbps] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:C457A935B91A007F5D40887144A7F89EA1211E98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Beatport Trance Pack (2019) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:9E433F0489F5C6A28E3F85ECFF4ED74E77B98788
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Лучшие Trance треки Ver.11: Classic Vocal Trance (2019) Special 
 ```bash
 magnet:?xt=urn:btih:E2769D049E9A076AFBCC3147FDC243A7325486B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - не Громкие новинки недели 88 (2020) [MP3|320 Kbps] <P
 magnet:?xt=urn:btih:FE384E0FBFDA336D78C75D119BF4C12D5F1A1400
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Planeta Mix Hits 2016. Winter Edition (2015) [MP3|320 кб/с] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:3D385DDE0192219BA20D672AF0A850E02B50B76F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Beatport Trance Pack #02 (2019) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:AABCC33E9347BEFF4396E63B54E6E55CE43679AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Blue Jean Bar Blues (2018) [MP3|320 Kbps] <Blues, Country, Rock Blues>
 ```bash
 magnet:?xt=urn:btih:54F859D1ABC3718DEFF17C7B3CE5CF7D8300111A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Gennoss. Primerom свой взгляд Топ 80 2015 / MP3 / VBR 192-320 
 magnet:?xt=urn:btih:2DF5E531F1AD647243B074F22D2C55AF55E97CC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - Ball Dancing (2015) [MP3|320 кб/с] <Dance, Pop, Club, House>
 ```bash
 magnet:?xt=urn:btih:543D9F23A4DBA9AB60BF6FAF1C377BDBB887DA51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - Любимые ремиксы и каверы. 50+ (2019) от DON Music [M
 magnet:?xt=urn:btih:107D96E8D7F847BA30E70BA5A998B94E78741311
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Unknown - Russian Рopular Сartoon Music For Dancing (1995?) [MP3|320 Kbps] <in
 ```bash
 magnet:?xt=urn:btih:5BC7C0A931A617BD50FA48B84F4EAAC70F74A5A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ VA - Extra House: Bonus [04] (2015) [MP3|320 кб/с] <House, Deep House, Club H
 magnet:?xt=urn:btih:252724B5406A3349DA000EF814A14BF60AAE2296
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +631,8 @@ Part 1 (Discoteka):
 magnet:?xt=urn:btih:7D6DE9B978FD6B22294C8911631FEA3C9D8E5692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +659,8 @@ magnet:?xt=urn:btih:7D6DE9B978FD6B22294C8911631FEA3C9D8E5692
 ```bash
 magnet:?xt=urn:btih:6902524F73149D0689CE6D2C012CD9AD06BA9402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +695,8 @@ VA - Electro Life 20 (by ZiP) (2012) [MP3|320 kbps]<Electro House>
 magnet:?xt=urn:btih:A70AC96BC58E1C1E1D298A58C3C0CBCA36C9EFFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -682,6 +730,8 @@ VA - Milf Lounge: Selected Chillout for Sensual Emotions (2012) [MP3|320 кб/с
 magnet:?xt=urn:btih:8074074E88CAF045E4EB883B673FB1BC1147D0CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -708,6 +758,8 @@ VA - Beatport Chill Electronic: Sound Pack #374 (2021) [MP3|320 Kbps] <Chillout,
 ```bash
 magnet:?xt=urn:btih:04C7898640E8312C11D2E2BD9D5E2D87A42D8C10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

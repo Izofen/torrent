@@ -19,6 +19,8 @@ VueScan - программа предназначена для замены ст
 magnet:?xt=urn:btih:E8EC4C09E45D582270C2558DE6F48BC5E840A215
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Glary Utilities - функциональный набор системных т�
 magnet:?xt=urn:btih:7A6309B0F77D6E269514469AA8E192333FA31096
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Any Burn - небольшая бесплатная утилита для раб�
 ```bash
 magnet:?xt=urn:btih:83478B89D5174A3EA6A3786F2951C1F2FD5D638F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ iTubeGo YouTube Downloader 10.8.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:E751FB6C8F84AB0755FD45160B37CE5C2FD08A1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ AOMEI Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:B98C1F86DEAB8C4246A9A783A40F705BD53F1102
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ AnyDesk 9.6.1 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:AE84F23458042158D081B9AEA2D042AB098D1103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:AE84F23458042158D081B9AEA2D042AB098D1103
 ```bash
 magnet:?xt=urn:btih:3410227D1160B6F366053C58FA4C8EB9C2A36AEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Wise Force Deleter 1.5.7.59 [Multi/Ru]
 magnet:?xt=urn:btih:096D9E4E297A197EF84CBEF0BE8BFB3E143D4860
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Auslogics Registry Defrag - программа для дефрагментаци
 magnet:?xt=urn:btih:715947D5A9C275808652C1641CF8610F75572600
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ priPrinter - это виртуальный принтер, который вы �
 ```bash
 magnet:?xt=urn:btih:A5F0E03F26BDF0239CFD9B86C957B4044F16E037
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Balabolka 2.15.0.905 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:DA548551C059DCDCCD955DD5D7822C24766203BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:DD030B5606CF6F87FE0D34D8A58C19F0D27DC69D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ R-Studio Network 9.5 Build 191603 RePack (& Portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:FC84ABFF268962F7B3BC35B93EDC93F4CA672D5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ NirLauncher Package - универсальный пакет из более че
 ```bash
 magnet:?xt=urn:btih:D69AF472720C0D36F9F0F616A26BD6609FC54BD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Windows Slimmer поможет вам в удалении ненужных ко�
 magnet:?xt=urn:btih:2E2BE617BB18D18BBE223BAFBC3B63DD1D03376D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:68AD79027C51E7A17B89B08CFCABE1E1C15624C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:6AF1270795E9B6AE6D4AD9E89701E5595F3220E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ RustDesk Remote Desktop – программное обеспечение для
 magnet:?xt=urn:btih:80548A26B94E76AFA14E92C1C41E98AA6FA39D01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ R-Studio Network 9.5 Build 191603 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:65D0243F588E45DE55EE2CD7A0FE0801B102AE36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Auslogics File Recovery — простая и эффективная в испо
 magnet:?xt=urn:btih:E10588BD1C55D88801049BEDF0F572AFD18C95CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Apowersoft Video Download Capture 6.6.0.0 RePack by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2C917D8BCA46D3225E0B57AA389FABB218C32A80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Auslogics Duplicate File Finder поможет Вам избавиться от 
 magnet:?xt=urn:btih:6C52DC3AEEE7785C0077412927957B8B0C9E24A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Auslogics SSD Optimizer - специальный инструмент, разр�
 ```bash
 magnet:?xt=urn:btih:0E983F7203CEDBFEAF3F349793681A2E1EB1A514
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Windows Slimmer поможет вам в удалении ненужных ко�
 magnet:?xt=urn:btih:EBB54E6701745B506B01FA12B20B5AE768C888FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Futuremark 3DMark 2.32.8426 for Enterprise RePack by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:B6196F2ABD2B9FD440773F585CA79EEEA7E3A842
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:9F14D2C66E9570695A2C4D84B0B88010D6DF8257
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

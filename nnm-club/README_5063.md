@@ -22,6 +22,8 @@ Airbourne (Воздушно-десантное) - австралийская р�
 magnet:?xt=urn:btih:E590999BE0238B1967921AB2680B4A3C96CE1ADD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ White Shadows – это кинематографичный платформер
 magnet:?xt=urn:btih:E3CD39C6B2E1DC38B85A62AC710D80230093754D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:E3CD39C6B2E1DC38B85A62AC710D80230093754D
 ```bash
 magnet:?xt=urn:btih:10006C80435A1E99402727DCC9071CDEB0028203
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Kiwi for Gmail 2.0 - клиент для Gmail, объединяющий в се
 magnet:?xt=urn:btih:46334589C5FF9B9CD48B968403BC277AE82EF449
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:46334589C5FF9B9CD48B968403BC277AE82EF449
 ```bash
 magnet:?xt=urn:btih:27827104B3F079AEE25780A6B04CDCA782739C08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:27827104B3F079AEE25780A6B04CDCA782739C08
 magnet:?xt=urn:btih:2173D093A7AA82351D31F63A95E55769C75A2645
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ DFX Audio Enhancer — звуковой плагин для улучшения �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 magnet:?xt=urn:btih:870332ABE3171C9782B2E4C363127E199AF1301F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Hazel – это ваш личный уборщик, который органи
 ```bash
 magnet:?xt=urn:btih:0FF9C5FA62FD4BD007816022345A72D37506845A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Spotify имеет громадный каталог музыки, поддер�
 ```bash
 magnet:?xt=urn:btih:A701AF661BFB11C6A72B6018CA95E5D585A84445
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Desk поддерживает большинство популярных пла
 magnet:?xt=urn:btih:45B958ADCF31D765E361B23B0CBF985667F088FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:45B958ADCF31D765E361B23B0CBF985667F088FC
 ```bash
 magnet:?xt=urn:btih:336753107B3F4CFEC33DE93CA4084844B78D6473
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:336753107B3F4CFEC33DE93CA4084844B78D6473
 magnet:?xt=urn:btih:E99B47461B3F9FA20141BDD733BAF2F35208B4DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:E99B47461B3F9FA20141BDD733BAF2F35208B4DC
 ```bash
 magnet:?xt=urn:btih:682E26BA1E2E85D1BBCC2133B7B11CA46A351671
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:682E26BA1E2E85D1BBCC2133B7B11CA46A351671
 magnet:?xt=urn:btih:BFFA795D2A6EC67D4C12FB765D74BFD070D44CC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ IM+ All-in-One Mobile Messenger Мультипротокольный клиен�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ IM+ All-in-One Mobile Messenger Мультипротокольный клиен�
 ```bash
 magnet:?xt=urn:btih:74B0848DEED07AE5E7548E392E8D06D16EAA060C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:74B0848DEED07AE5E7548E392E8D06D16EAA060C
 magnet:?xt=urn:btih:1F1983D1A2828CA6B0336462B961ECFE3490B816
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ Downie – это простейший видео-загрузчик. Подде
 magnet:?xt=urn:btih:81637D4110BAA6FF4FE099E337D27DEAB4EBCD49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:81637D4110BAA6FF4FE099E337D27DEAB4EBCD49
 ```bash
 magnet:?xt=urn:btih:296586D72B3E0CE16504D2B9E8BB8DDEA051285D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ magnet:?xt=urn:btih:296586D72B3E0CE16504D2B9E8BB8DDEA051285D
 magnet:?xt=urn:btih:ADD3817FE7A5C52E14421A228724F1CE44D2EE7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ Windows 11 21H2 (22000.376) x64 Home + Pro + Enterprise (3in1) by Brux [Ru]
 ```bash
 magnet:?xt=urn:btih:7BA313B068B3F7354624107BBD3BD2D31651C284
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +617,8 @@ Hammerfall: Gates of Dalhalla (2012) [1080p] Blu-Ray
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ DetkiTV - Песни для детей (2018) [MP3|320 Kbps] <Детские п�
 magnet:?xt=urn:btih:AA48F840898E7F055A242D025D9A3FCFE8E01EB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ magnet:?xt=urn:btih:AA48F840898E7F055A242D025D9A3FCFE8E01EB5
 ```bash
 magnet:?xt=urn:btih:9DB4E051161788307AF3D75CD419D498A978CD39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +698,8 @@ magnet:?xt=urn:btih:9DB4E051161788307AF3D75CD419D498A978CD39
 ```bash
 magnet:?xt=urn:btih:42C004BA9F174611AC13FE55BB2D2B5CB4B84EF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

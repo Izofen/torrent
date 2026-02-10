@@ -1,3 +1,29 @@
+###  Публикация: 1466155   (1018784) от 28.04.2021
+
+Грехи моего отца / Sins of My Father (Pecados de mi padre) (2009) BDRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Себастьян – сын одного из самых жестоких наркобаронов Пабло Эскобара, представляя документальный фильм «Грехи моего отца» сказал, что цель картины – рассказать об этой жуткой истории, «свидетелем которой мне, к несчастью, довелось быть». Несмотря ни на что, Себастьян вспоминает о своём отце с любовью и даже с определённым пониманием. С болью повествует он о его трагическом (   Читать дальше...   )Производство: Аргентина, Колумбия, Arko Vision, Red Creek ProductionsЖанр: Документальный, расследованиеРежиссер: Николас ЭнтельПеревод: Двуголосый закадровый, профессиональный (Студия ПозитиВ)Субтитры: АнглийскиеПродолжительность: 01:28:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:437249AB1CB4BF49B06B990588B9951901667CC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1464776   (1018893) от 27.04.2021
 
 Из-под полы. Тайная империя дефицита (2018) IPTVRip [H.264]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:765FE4A1C7092B1ED557C159CBCDBC256233936C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:765FE4A1C7092B1ED557C159CBCDBC256233936C
 magnet:?xt=urn:btih:6F28635DF2AE1391377CC842A0F7D25DD8091961
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:6F28635DF2AE1391377CC842A0F7D25DD8091961
 magnet:?xt=urn:btih:61A9667FF4DBD758195EC7837D9C7C26B980E394
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:61A9667FF4DBD758195EC7837D9C7C26B980E394
 ```bash
 magnet:?xt=urn:btih:471F094B10FAE28D5772F9AE659137FC1DF977B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:471F094B10FAE28D5772F9AE659137FC1DF977B1
 magnet:?xt=urn:btih:27F4CBEC5036D32FA697D4FF7F5A14ABE38B78D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:27F4CBEC5036D32FA697D4FF7F5A14ABE38B78D8
 magnet:?xt=urn:btih:7A6A680A8A56B6A8D3881CC5946C59BC31C4290D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:7A6A680A8A56B6A8D3881CC5946C59BC31C4290D
 ```bash
 magnet:?xt=urn:btih:30083A246EBAE898B88848DA5AA9136319657972
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:30083A246EBAE898B88848DA5AA9136319657972
 magnet:?xt=urn:btih:13466F4354B96A9A568CE0C34E4085D31A52AA8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:13466F4354B96A9A568CE0C34E4085D31A52AA8B
 ```bash
 magnet:?xt=urn:btih:05CED1151B4113016FA25128E2DA18AE2BE0360D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:05CED1151B4113016FA25128E2DA18AE2BE0360D
 magnet:?xt=urn:btih:308CF8F68D18C35B2FE1D2C95B5FF0369E8228B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:308CF8F68D18C35B2FE1D2C95B5FF0369E8228B6
 ```bash
 magnet:?xt=urn:btih:D6FBC4919011514E6A265581B0E9B8A627EED7DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:D6FBC4919011514E6A265581B0E9B8A627EED7DE
 magnet:?xt=urn:btih:6C4E895E66B7DED6241BC17D7E37A3E3265BFAAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:6C4E895E66B7DED6241BC17D7E37A3E3265BFAAA
 ```bash
 magnet:?xt=urn:btih:988C1712D2A035AF0E3BF458A20F5870AE78778B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:988C1712D2A035AF0E3BF458A20F5870AE78778B
 magnet:?xt=urn:btih:81ACE096A4C4A0D03BAB324E59D751C54482504B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:81ACE096A4C4A0D03BAB324E59D751C54482504B
 ```bash
 magnet:?xt=urn:btih:AFC308FAFA471D4D6B45DA64B1922D5741DE88E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:AFC308FAFA471D4D6B45DA64B1922D5741DE88E3
 magnet:?xt=urn:btih:8181B77DCA86CD4761699081A8C2AC4D2122F3E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:8181B77DCA86CD4761699081A8C2AC4D2122F3E5
 ```bash
 magnet:?xt=urn:btih:A9B9A3D5ECA4C85E267392CD4A2170AAD719A15D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:A9B9A3D5ECA4C85E267392CD4A2170AAD719A15D
 magnet:?xt=urn:btih:9761EF0F5BE258DB42591AFB38670B6223DDAECD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:9761EF0F5BE258DB42591AFB38670B6223DDAECD
 ```bash
 magnet:?xt=urn:btih:518E53A04B4DC6BF8C618D074B6B2A38575ECA2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:518E53A04B4DC6BF8C618D074B6B2A38575ECA2B
 magnet:?xt=urn:btih:4BE689A5AB9832E73A2B3A4A0352DCB95D725128
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:4BE689A5AB9832E73A2B3A4A0352DCB95D725128
 ```bash
 magnet:?xt=urn:btih:919CB9E5018418848839EC0CD429F3F7EDB4ED48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:919CB9E5018418848839EC0CD429F3F7EDB4ED48
 magnet:?xt=urn:btih:76990FBF09D8F2AC66E8EF7A94B6452D5C1B8C2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:76990FBF09D8F2AC66E8EF7A94B6452D5C1B8C2F
 ```bash
 magnet:?xt=urn:btih:6BF26FC76F615BF370E2F1D2293ECD8C06D9A7FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:6BF26FC76F615BF370E2F1D2293ECD8C06D9A7FD
 magnet:?xt=urn:btih:0D55CE174366BC712FCDF6EB8441DD881222335C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,29 +673,7 @@ magnet:?xt=urn:btih:0D55CE174366BC712FCDF6EB8441DD881222335C
 magnet:?xt=urn:btih:393F4E1693CA43B2C46DCEFD8AF4CD383BBBC206
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464811   (1019645) от 23.04.2021
-
-По следу монстра (23.04.2021) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вертолеты, бронемашины, автоматчики: в августе 2016-го в одной из мордовских деревень шла почти войсковая операция. Правоохранители должны были обезвредить особо опасного преступника. История этого монстра началась задолго до трагической развязки, и все в ней оказалось не по-деревенски сложно. Зимой местных жителей потрясло хладнокровное убийство матери двоих сыновей. (   Читать дальше...   )Производство: Россия | "Киностудия Лига"Жанр: Документальный, криминал, расследованиеСубтитры: РусскиеПродолжительность: 00:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F81D9551F1F7A73F3D056A0E07C428DA524A52A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

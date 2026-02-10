@@ -19,6 +19,8 @@ Listen Audiobook Player v5.2.11 (1026) Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:41EA1B577C2893C58B32012BA8B08CCAE58654B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MAGIX Vegas PRO — профессиональная программа для �
 ```bash
 magnet:?xt=urn:btih:42C7E7A0C28C8A581F091E741482BF7818A0BC1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Reg Organizer® - это многофункциональная программ
 magnet:?xt=urn:btih:C61BD45334C0DF04B12526CB5B53BF0CA6285337
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:C61BD45334C0DF04B12526CB5B53BF0CA6285337
 ```bash
 magnet:?xt=urn:btih:12AF062A34B8DA6D75B984114AE12337A6224D4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Gallery - Photo Gallery, Album (XGallery) v1.8.9 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:69D519D9381FEA8FA88D4ABD72AA2315AEB4E76B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:A5AA0960C1C99D7ED2728EAB9D5973C86C224DF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ FxSound (ранее DFX Audio Enhancer) - отличное приложение,
 magnet:?xt=urn:btih:2C9E00D16CF215D2524B81A691AF5C8B5A6A7580
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:DD2D325C0C6CB9A1EEBB66A1E6954560FB5EAF85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Tixati — это полноценный и бесплатный клиент с
 magnet:?xt=urn:btih:6E06B6EC48059BAB33304A05A6587086A1CBD8A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:CBAC982CDC85841ED0CF747093E175B4D2580066
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:6C8DE1511CD6EED0F86F4C8C9F20CD2CDFB4C80F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Vivaldi 7.1.3570.39 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:504191A33F7683AC1395891FF88574D102DBE202
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ MobiOffice - это полнофункциональный офисный пак
 magnet:?xt=urn:btih:4F729C28D11D95DA256FB8797529E69A3C6D8720
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ OCCT 13.1.13 Portable [En]
 ```bash
 magnet:?xt=urn:btih:5BD7E43FC712F766AB4FA2F5817E9DC934783B2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Karing - Утилита прокси с простым и мощным инте�
 magnet:?xt=urn:btih:0EA2B360CF92529872DF5B3D3A3509F4D1E75CC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:0E87F5D4AB1E5AE5C6EC50F031E3BEE28A94AFAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ CCleaner - утилита для чистки мусора в операцион
 magnet:?xt=urn:btih:1A141B8C44083CF7B18D9C597671FD6303DCB27C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:2033EDE131106C35EC6D9D4F40A42A3C404EAD0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ WeNote: заметки блокнот планер v6.25 Mod by PieMods [Ru/Mult
 magnet:?xt=urn:btih:B99AFB1110E4CF375CD98A7BDA105EB7A01B2959
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ NewPipe v0.27.5 Free + Mod by Alex.Strannik  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A34779D292889D30FE51D2A5A5BEBDCAE8EDCAEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Hekasoft Backup & Restore — это комплексное решение дл�
 magnet:?xt=urn:btih:735361B7395AF57BB3F227979F7D65BCF4280628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:FEAB6ADA579F76DB1EE78C5F50727D55912CD625
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Ventoy - это инструмент с открытым исходным код
 magnet:?xt=urn:btih:E23F4BDC12334169942FA19A862179460B62849B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ DaVinci Resolve — единственное в мире решение для �
 ```bash
 magnet:?xt=urn:btih:8D87DFBDFF16259F58B013B0F0E693D017CA0CA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ The Bat! – общепризнанная система обработки эл
 magnet:?xt=urn:btih:60631AAF698E211C2FBFCD87CA38D0E4C475B828
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ XYplorer – удобный многовкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:BAA03FC6F78D3567E021A75B0D4DD9721F6A6C48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

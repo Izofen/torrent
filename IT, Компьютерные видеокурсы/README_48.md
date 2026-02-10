@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:98F6F75C89D94D8B78974991E072FC7FF367A052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:98F6F75C89D94D8B78974991E072FC7FF367A052
 ```bash
 magnet:?xt=urn:btih:F00C3A7521D48A55526B241DBB198DD6E267CC1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Lynda.com | Building Templates in Word - Работаем с шаблонами 
 magnet:?xt=urn:btih:2253109B449E7B9CEC7392F6752BA88BC5550CD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:2253109B449E7B9CEC7392F6752BA88BC5550CD8
 ```bash
 magnet:?xt=urn:btih:88FBF4ADD4F0CB9BDDC6766458880131E6563699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Lynda.com | Access 2010: Forms and Reports in Depth - Access 2010: Формы и
 magnet:?xt=urn:btih:095C32304831D4CFD90B1782C610A4AA2C251FA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ ITVDN | C# Универсальные шаблоны (2016) PCRec
 ```bash
 magnet:?xt=urn:btih:82EA8003D7896AC6C9622DC0E1AEB22B5695F5B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:82EA8003D7896AC6C9622DC0E1AEB22B5695F5B9
 magnet:?xt=urn:btih:ADFAFDDB1AF26DF2FDF7F229017BB6A36633D64A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:ADFAFDDB1AF26DF2FDF7F229017BB6A36633D64A
 magnet:?xt=urn:btih:37A1FAA8EBBD28105814F815EBA19FC6F6096C1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Geekbrains | Swift (2015) PCRec [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:6CF0E0E8106B32DCA3908C17778CCA4904F551AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Cypress - очень современный фреймворк на основе
 ```bash
 magnet:?xt=urn:btih:CC2F35A900BC0AAC1AE8E7DCC78203D80FF80111
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ Uber Clone | Swift 5 | Firebase | No Storyboards | iOS 13
 magnet:?xt=urn:btih:91234B9AC488DDB308BFBD0482C17A26149E00A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ Udemy, Alex Horea | Программирование на Java с JavaFx: Соз
 ```bash
 magnet:?xt=urn:btih:BCB3921B2C4C033F6DCD063A7AD3C601BA692692
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ Udemy, Ryan Dhungel | React Redux Ecommerce - Освой MERN Stack Веб-Ра�
 magnet:?xt=urn:btih:1A36D59DDD12E08B8335633D0F4702609D68F44B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:1A36D59DDD12E08B8335633D0F4702609D68F44B
 ```bash
 magnet:?xt=urn:btih:9DA6D49CEF399E98B6ACB453E67E362912DDEE32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ Master-CSS | One Page Scroll сайт (2015) PCRec [H.264/720p]
 magnet:?xt=urn:btih:BA279CBF0613F56A7685AB2376EBB70D750DAAE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:BA279CBF0613F56A7685AB2376EBB70D750DAAE7
 magnet:?xt=urn:btih:296B8A3F09E98D64D1328DA4C919D56061088A80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ Udemy, Denis Astahov | Kubernetes с Нуля для DevOps Инженеров (
 magnet:?xt=urn:btih:A731A2BD3ACAFB071A641748E43809497B00793F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ Apache ActiveMQ - это брокер сообщений с открытым и�
 ```bash
 magnet:?xt=urn:btih:B62237069F64AB6DA580D778FD7A5B11C135FCA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +517,8 @@ Docker и Kubernetes - одни из самых востребованных т�
 magnet:?xt=urn:btih:D95B964AA869E2D8FD13E56B55ECFC308E1B12E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:D95B964AA869E2D8FD13E56B55ECFC308E1B12E2
 ```bash
 magnet:?xt=urn:btih:EDA60ED53EEBC01A0B14199F597BBBD9D4D419F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +574,8 @@ magnet:?xt=urn:btih:EDA60ED53EEBC01A0B14199F597BBBD9D4D419F5
 magnet:?xt=urn:btih:2D5D4214DF30B74DA08894FECA19EF1A9B7768F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +601,8 @@ magnet:?xt=urn:btih:2D5D4214DF30B74DA08894FECA19EF1A9B7768F7
 magnet:?xt=urn:btih:5C6E16C1E2F31666C4F8679FA70125DA59B3590D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ magnet:?xt=urn:btih:5C6E16C1E2F31666C4F8679FA70125DA59B3590D
 ```bash
 magnet:?xt=urn:btih:2AED8E783F0380A9C032DAC59A7022482D9A742D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +657,8 @@ Render.ru | Интерактивная Архитектура (2014) PCRec
 magnet:?xt=urn:btih:528FB66B45B2B2E2FF7E517AE397BC72A11D09D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +683,8 @@ magnet:?xt=urn:btih:528FB66B45B2B2E2FF7E517AE397BC72A11D09D3
 magnet:?xt=urn:btih:6E2BE1601CB8745BADAA94624D93BAD35C811929
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ Ultimate Courses, Todd Motto | Angular Basics (v14) (2022) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:F9B9E47CCBF1D7D056B15DC1E15A476C28342FC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

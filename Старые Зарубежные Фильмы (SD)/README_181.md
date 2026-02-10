@@ -1,27 +1,3 @@
-###  Публикация: 1014117   (776691) от 06.05.2016
-
-Черный дождь / Black Rain (1989) HDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двум нью-йоркским полицейским попадает в руки безжалостный убийца, принадлежащий к японской мафии-якудза. Партнерам предстоит эскортировать преступника в Осаку, где его ждет суд. Но на японской земле злодею удается скрыться. Герои вместе с японским детективом бросаются на его поиски и оказываются втянутыми в кровавую войну гангстерских кланов.Производство: СШАЖанр: Боевик, триллерРежиссер: Ридли СкоттАктеры: Майкл Дуглас, Энди Гарсиа, Кэн Такакура, Кейт Кэпшоу, Юсаку Мацуда, Сигэру Кояма, Джон Спенсер, Гуц Исимацу, Юя Утида, Томисабуро Вакаяма, Миюки ОноПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 02:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF70BEF9ABA01A76385AF977E208203F6206239E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014156   (776726) от 06.05.2016
 
 Чужая нация / Alien Nation (1988) BDRip [H.264]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:CF70BEF9ABA01A76385AF977E208203F6206239E
 ```bash
 magnet:?xt=urn:btih:B27F38C8DBFA327EF279B16C3348E8921543AE3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +46,8 @@ magnet:?xt=urn:btih:B27F38C8DBFA327EF279B16C3348E8921543AE3F
 magnet:?xt=urn:btih:82E3BEE225AEFCE4FACF2B637753E12855DF1567
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +71,8 @@ magnet:?xt=urn:btih:82E3BEE225AEFCE4FACF2B637753E12855DF1567
 ```bash
 magnet:?xt=urn:btih:722A3F7E9A9C15144173643773A63D288C3AC26B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +98,8 @@ magnet:?xt=urn:btih:722A3F7E9A9C15144173643773A63D288C3AC26B
 magnet:?xt=urn:btih:009EC34F0FCC61D967D267659D249CFDC3532154
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +123,8 @@ magnet:?xt=urn:btih:009EC34F0FCC61D967D267659D249CFDC3532154
 ```bash
 magnet:?xt=urn:btih:F3E82F1108D8CB61F17547C0FBA1E531D5095151
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:F3E82F1108D8CB61F17547C0FBA1E531D5095151
 magnet:?xt=urn:btih:FBF18090701062E3C298A4CF05B59E5ACD1B031E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:FBF18090701062E3C298A4CF05B59E5ACD1B031E
 ```bash
 magnet:?xt=urn:btih:D2BCAFC27A2012D153075EEACE818EB415B602C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:D2BCAFC27A2012D153075EEACE818EB415B602C3
 magnet:?xt=urn:btih:34F582E42B697C484856ABCAFAC7AB51BD015715
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ magnet:?xt=urn:btih:34F582E42B697C484856ABCAFAC7AB51BD015715
 ```bash
 magnet:?xt=urn:btih:B864CFDA70D96FA5CB52A6C254668E29DD99870B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +255,8 @@ magnet:?xt=urn:btih:B864CFDA70D96FA5CB52A6C254668E29DD99870B
 magnet:?xt=urn:btih:B0A278DCA1438C2AC62D477F6E2B7AFFB48F24A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:B0A278DCA1438C2AC62D477F6E2B7AFFB48F24A2
 ```bash
 magnet:?xt=urn:btih:B9F6191FBFF879916351D1D5F3CC3E486A60BDC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +307,8 @@ magnet:?xt=urn:btih:B9F6191FBFF879916351D1D5F3CC3E486A60BDC3
 magnet:?xt=urn:btih:255655933BA2470B00D056035A264709B9129F3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +333,8 @@ magnet:?xt=urn:btih:255655933BA2470B00D056035A264709B9129F3A
 magnet:?xt=urn:btih:809B0F665D0E26F21CC293A0DEB86856948ED202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +358,8 @@ magnet:?xt=urn:btih:809B0F665D0E26F21CC293A0DEB86856948ED202
 ```bash
 magnet:?xt=urn:btih:C31C027ECB128917057F2A05BA456F82D4D3A7E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:C31C027ECB128917057F2A05BA456F82D4D3A7E3
 magnet:?xt=urn:btih:316EA7315ABF523F2CC2062D3A6068622BDE314C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:316EA7315ABF523F2CC2062D3A6068622BDE314C
 ```bash
 magnet:?xt=urn:btih:DC1FBF7B53515799BE0933387A24ED9BD313BABD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +438,8 @@ magnet:?xt=urn:btih:DC1FBF7B53515799BE0933387A24ED9BD313BABD
 magnet:?xt=urn:btih:375CAB79A9C5BEC37D6EEADF8A2C311805D5AC0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:375CAB79A9C5BEC37D6EEADF8A2C311805D5AC0F
 ```bash
 magnet:?xt=urn:btih:D7497077D47447ABDBCFFBCD4547A884C6BF5BE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +490,8 @@ magnet:?xt=urn:btih:D7497077D47447ABDBCFFBCD4547A884C6BF5BE5
 magnet:?xt=urn:btih:0BEAB3C0260C351CD435868CBFAC3215CBAC7D06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +515,8 @@ magnet:?xt=urn:btih:0BEAB3C0260C351CD435868CBFAC3215CBAC7D06
 ```bash
 magnet:?xt=urn:btih:A0B6602C011E683069A8B189A2F98DF8BC99023A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +543,8 @@ magnet:?xt=urn:btih:A0B6602C011E683069A8B189A2F98DF8BC99023A
 magnet:?xt=urn:btih:2FF2358D9F0010057873F18BC4B49CC88C72F404
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +568,8 @@ magnet:?xt=urn:btih:2FF2358D9F0010057873F18BC4B49CC88C72F404
 ```bash
 magnet:?xt=urn:btih:E7F2C7F3FCF3305DB19EDE5D04E6FC626520C09D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +595,8 @@ magnet:?xt=urn:btih:E7F2C7F3FCF3305DB19EDE5D04E6FC626520C09D
 magnet:?xt=urn:btih:D3985B6643177E1A26541967C90B11174B828C19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +621,8 @@ magnet:?xt=urn:btih:D3985B6643177E1A26541967C90B11174B828C19
 magnet:?xt=urn:btih:45E434109FB08EB8991255B3F38B1A7591338FFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +646,34 @@ magnet:?xt=urn:btih:45E434109FB08EB8991255B3F38B1A7591338FFC
 ```bash
 magnet:?xt=urn:btih:5B362AA35635A1438368BCCD9BB21AEE336D6C0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 240587   (780150) от 20.02.2018
+
+Дядя Адольф, по прозвищу Фюрер / Zio Adolfo, in arte Fuhrer (1978) DVDRip [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит в Германии времён становления фашизма и прихода к власти Гитлера. Фильм в жанре эксцентричной комедии рассказывает историю о двух братьях-близнецах. Один из них по имени Герман является фокусником и приближённым Гитлера. Другой — анархист и антифашист Густав, который пытается совершить покушение на фюрера.Производство: Италия, Dania Film, Medusa DistribuzioneЖанр: КомедияРежиссер: Франко Кастеллано, Джузеппе МоччиаАктеры: Адриано Челентано, Клаудио Бигальи, Франсуа Бастьен, Джузеппе Диаманти, Паола Орефиче, Грациэлла Гальвани, Бруно Ди Луия, Дэна Девин, Дино Эмануэлли, Джузеппе КастелланоПеревод: Двухголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:29:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A6909DC2812AD02B7B91C1B2BCF2183A89FA10E
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

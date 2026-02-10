@@ -1,3 +1,29 @@
+###  Публикация: 1035904   (624488) от 18.07.2016
+
+Дмитрий Верхотуров | Ядерная война. Все сценарии конца света (2016) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_624488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еще недавно казалось, что человечество навсегда избавилось от ужаса ядерной войны и тотального уничтожения. Однако теперь прежние страхи оживают вновь. В последние годы всё чаще говорят о возвращении угрозы атомного Апокалипсиса. Обвиняя Россию в «бряцании ядерным оружием», Запад готовится к нанесению «упреждающего удара». И уроки холодной войны сегодня актуальны (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F69063EB7686D08D15DBCB79942CAC0B6810CAE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035979   (624575) от 18.07.2016
 
 Анонимный автор | Секретный футболист. Изнанка футбольного мира (2016) [EPUB, FB2, MOBI]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:14B0777DA4E3FE6A943F687E21B509B22B2F7781
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:14B0777DA4E3FE6A943F687E21B509B22B2F7781
 magnet:?xt=urn:btih:BAA083285F8150E49D3DFDD0F6BCB429D2B81478
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:BAA083285F8150E49D3DFDD0F6BCB429D2B81478
 ```bash
 magnet:?xt=urn:btih:8C102CA26E0F71005C5DD80B8032F15788AD5151
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:8C102CA26E0F71005C5DD80B8032F15788AD5151
 magnet:?xt=urn:btih:65C895F4A2C6338BBE4B275A9C56F6500A2A11B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:65C895F4A2C6338BBE4B275A9C56F6500A2A11B3
 ```bash
 magnet:?xt=urn:btih:309BE71F8D0C11B7E14614DA64833AF490C3E4D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:309BE71F8D0C11B7E14614DA64833AF490C3E4D9
 ```bash
 magnet:?xt=urn:btih:7526E958457F2D43D6308AB84F8CD3AB9A115BD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +209,8 @@ magnet:?xt=urn:btih:7526E958457F2D43D6308AB84F8CD3AB9A115BD6
 magnet:?xt=urn:btih:2B13B51614017106BEAC439C6EB88753E186CA35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +237,8 @@ magnet:?xt=urn:btih:2B13B51614017106BEAC439C6EB88753E186CA35
 magnet:?xt=urn:btih:810220311A6AFE8EC12249B3A1A512ABFC1324D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +263,8 @@ magnet:?xt=urn:btih:810220311A6AFE8EC12249B3A1A512ABFC1324D1
 ```bash
 magnet:?xt=urn:btih:A9A9CE0CB10FA086E3B622388ED0681962E5FFB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +292,8 @@ magnet:?xt=urn:btih:A9A9CE0CB10FA086E3B622388ED0681962E5FFB5
 magnet:?xt=urn:btih:FCECF7E966480F5988EB4ACD2E183E0F60C6E29F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +317,8 @@ magnet:?xt=urn:btih:FCECF7E966480F5988EB4ACD2E183E0F60C6E29F
 ```bash
 magnet:?xt=urn:btih:2C46CF5D64A49B94E76984D032609FA9F0805733
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +345,8 @@ magnet:?xt=urn:btih:2C46CF5D64A49B94E76984D032609FA9F0805733
 magnet:?xt=urn:btih:65EFB04BA7A3362CD6F45E90205A8A7473507660
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +372,8 @@ magnet:?xt=urn:btih:65EFB04BA7A3362CD6F45E90205A8A7473507660
 magnet:?xt=urn:btih:D7E01BC58B41B3EA669AA904219EB1DBCCD3D412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +397,8 @@ magnet:?xt=urn:btih:D7E01BC58B41B3EA669AA904219EB1DBCCD3D412
 ```bash
 magnet:?xt=urn:btih:3CD18B6502E24C1C1C3D2A1925630AC065973DDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +427,8 @@ https://href.li/?https://www.baronbarclay.com/category/bridge-column
 magnet:?xt=urn:btih:D5C259982CCCDB19AE122BD7C4A699FC6E851F49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +455,8 @@ magnet:?xt=urn:btih:D5C259982CCCDB19AE122BD7C4A699FC6E851F49
 magnet:?xt=urn:btih:4F96340767CA0D36923D0079D89D3695BE7FF1FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +481,8 @@ magnet:?xt=urn:btih:4F96340767CA0D36923D0079D89D3695BE7FF1FE
 magnet:?xt=urn:btih:B415168571FA6B94DAFC0266549C2BDA56BEB710
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +506,8 @@ magnet:?xt=urn:btih:B415168571FA6B94DAFC0266549C2BDA56BEB710
 ```bash
 magnet:?xt=urn:btih:F9AB188DA866D9B75A311923198A6315A3E1CF1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +535,8 @@ magnet:?xt=urn:btih:F9AB188DA866D9B75A311923198A6315A3E1CF1E
 magnet:?xt=urn:btih:8A731C2725595AE7D8C47610B2CA4CD2129619E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +560,8 @@ magnet:?xt=urn:btih:8A731C2725595AE7D8C47610B2CA4CD2129619E6
 ```bash
 magnet:?xt=urn:btih:2D15D54BED4284B66AA71B7E440778032173E37D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +588,8 @@ magnet:?xt=urn:btih:2D15D54BED4284B66AA71B7E440778032173E37D
 magnet:?xt=urn:btih:4CF1BD5B3B50D26BDF878469D0E6BF026A052FC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +615,8 @@ magnet:?xt=urn:btih:4CF1BD5B3B50D26BDF878469D0E6BF026A052FC5
 magnet:?xt=urn:btih:0A675009AF4A63873439862FD60D80756A0D3146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +641,8 @@ magnet:?xt=urn:btih:0A675009AF4A63873439862FD60D80756A0D3146
 ```bash
 magnet:?xt=urn:btih:8DEEEBAFD02A4CA18B2E08A9144F4FB069A28B7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +670,8 @@ magnet:?xt=urn:btih:8DEEEBAFD02A4CA18B2E08A9144F4FB069A28B7F
 magnet:?xt=urn:btih:09AF0532E907B1615F6302AE5930B32A78EA850D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,29 +697,7 @@ magnet:?xt=urn:btih:09AF0532E907B1615F6302AE5930B32A78EA850D
 magnet:?xt=urn:btih:49354B101AECA162D736C86FE70B4885A28EA541
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229519   (626162) от 06.06.2018
-
-Михаил Веллер | Огонь и агония (2018) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга Михаила Веллера – ироничная по форме и скандальная по существу – о том, почему классика уродует сознание интеллигенции, как пили шампанское герои золотого периода советской культуры, где найти правду о войне и кто такой великий русский поэт Владимир Высоцкий.Жанр: Публицистика, Современная русская литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E877447EE4D62656D2F554B84664C05D0DFB2AD
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

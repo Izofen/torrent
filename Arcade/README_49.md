@@ -19,6 +19,8 @@ Orcs Must Die! 3 (2021) [Ru/Multi] (1.1.0.0/dlc) License CODEX
 magnet:?xt=urn:btih:602CCAF7C59BB8B89F009D05C567094D4610BEB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Blightbound (2021) [Ru/Multi] (1.1-128893/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:130CDD7EB9EE2B5EB7B1D813F06F6FB676751B6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ OK K.O.! Let's Play Heroes (2017) [Ru/Multi] (1.0.0.157) License CODEX
 magnet:?xt=urn:btih:5EFA7F3F21F5BAAE337FC18F311BA043224A0C0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ My Singing Monsters Playground (2021) [Ru/Multi] (2020.3.20.4310246) License TiN
 ```bash
 magnet:?xt=urn:btih:A6EECBB28085C86658F390D93AAACB1B7566C04C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Lightbringer - это причудливый 3D-платформер с эп
 magnet:?xt=urn:btih:584FF50D103399CD7DED5C91240A51C9F5CECDB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Ori and the Blind Forest (2016) [Ru/Multi] (1.0) Repack R.G. Origami [Definitive
 ```bash
 magnet:?xt=urn:btih:8B5273ACFE23AF0B1C6383EE0FF7976602A49DBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Apocalypse Hotel (2016) [En] (1.0) Repack Other s
 magnet:?xt=urn:btih:61DAEDFDDEF0B7B8C4B527F268A1C44409F173E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Sonic Forces (2017) [Ru/Multi] (1.04.79.d2f5cadd/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:7A8B7B953A18903BDDE5CCFD35758B88F324D032
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Hidden Dragon - 2.5D платформенный экшн в духе Ninja Gaide
 magnet:?xt=urn:btih:5CAB6C1D82F9D8BD63787DFE69859628D844B8B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Treasures of the Aegean (2021) [Multi] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:9A075503F31CEB4C680D5372FDBAD9DE2179B68F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ LEGO Pirates of the Caribbean / LEGO Пираты Карибского моря 
 magnet:?xt=urn:btih:EF344D6D4EAC69110EBAC4B7F602C649BE17D45A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Zombies on a Plane – новая увлекательная игра на вы�
 ```bash
 magnet:?xt=urn:btih:CD1C9E4EF552020F853DE593D4D57ED70B88433E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Sonic Forces (2017) [Ru/Multi] (1.04/dlc) License CPY
 magnet:?xt=urn:btih:541A35EF64D5D5A4D3BA4133BCBE4684063C9D40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Human: Fall Flat - это уморительно смешной платформ
 ```bash
 magnet:?xt=urn:btih:F72C6EDB8589CA8409316C2BACD7911AEABAFD74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Abyss Odyssey (2014) [Ru/En] (1.14) Repack Mizantrop1337
 magnet:?xt=urn:btih:B4F5EF140BA940B5E20813E9406C4968A66F77DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ LEGO The Hobbit (2014) [Ru/En] (1.0.0.21750) Repack xatab
 ```bash
 magnet:?xt=urn:btih:ABBB6996B6709AE9283AC8F389E74C3A23CFFB62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ The Collider 2 (2016) [En] (1.0) Repack Other s
 magnet:?xt=urn:btih:DD295A5FA892C822C45EB49CB7B2DCC5E192D64D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Trial by Viking - это ролевой экшен-платформер, сме�
 ```bash
 magnet:?xt=urn:btih:74BCD7ED371A715205BE59AEF972A52C9A6DD925
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Dead or Alive 5: Last Round — это доработанная версия з�
 magnet:?xt=urn:btih:95B11D321736978AB2592962D3575CA7531272C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Jet Lancer - это игра про неистовые схватки в воз�
 ```bash
 magnet:?xt=urn:btih:70A0C9833FA7C16F20CB578B3254D7D50BFFCF79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Kill to Collect - рогалик в киберпанковом стиле для
 magnet:?xt=urn:btih:5AEBB4F28CEF8E63171DF74A6CDE5E6C26C65360
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Lumini (2015) [Ru/Multi] (1.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:FF6B4FC1A4B34B0168C602C620A2536A549C7453
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Full Metal Furies (2018) [Ru/Multi] (1.0.0-22R) License PLAZA
 magnet:?xt=urn:btih:879F2B94E3C7E30EF4882A86E78A9E025F820415
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Street Fighter V (2016) [Ru/Multi] (3.002/dlc) Repack =nemos= [Arcade Edition]
 ```bash
 magnet:?xt=urn:btih:B040ADD501154DAF62A5A6C3BB7A0B4B48DEB119
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Demons with Shotguns - кровавый шутер для 1-4 человек с 
 magnet:?xt=urn:btih:14E211D32A299D4B92DC2B4DCF22D161A6833A03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Curved Space — динамичный аркадный шутер с двумя 
 ```bash
 magnet:?xt=urn:btih:0C05CAA3D03D73A32AD443765C1D970BD2698229
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

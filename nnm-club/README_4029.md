@@ -22,6 +22,8 @@ VA - Ablazing Winter Sessions 2024 [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:BD030616E704915B04185F8FAD94830E6C420AB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:BD030616E704915B04185F8FAD94830E6C420AB8
 ```bash
 magnet:?xt=urn:btih:BCAA48815B5AC04D5C34CB53157BB3F2B9C55988
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:BCAA48815B5AC04D5C34CB53157BB3F2B9C55988
 magnet:?xt=urn:btih:B38584001BF73C0CD38B52A70B5926E78E9D826C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:B38584001BF73C0CD38B52A70B5926E78E9D826C
 ```bash
 magnet:?xt=urn:btih:7B937C5D40B0CF54720DB22BDF50D2C3F57B64C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Black Rainbows - 4 Albums (2007-2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic
 magnet:?xt=urn:btih:BC1F5532B1BC40124622EA6CDCD3D7363BAA40D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ VA - House M.D. - Original Television Soundtrack (2007) [FLAC|Lossless|tracks + 
 magnet:?xt=urn:btih:B37482F4440E88EE379BA08769242DDC748137A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:B37482F4440E88EE379BA08769242DDC748137A0
 ```bash
 magnet:?xt=urn:btih:96FA3E465440A3D5C2BB96D999FB113B1A1007FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Rainshow - Compilation (2024) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:E77350C2C7AA3163C224BFFF0A1C87F9737A7C63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:E77350C2C7AA3163C224BFFF0A1C87F9737A7C63
 magnet:?xt=urn:btih:9164B49CD1EA650D833FCD50E9D7CA37159A7465
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:9164B49CD1EA650D833FCD50E9D7CA37159A7465
 ```bash
 magnet:?xt=urn:btih:FEBB632D0F98E8E5AD0F1B41C219E7499F91F6CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ John Haydock - Compilation (2024) [MP3|320 Kbps] <Rock, Blues rock>
 magnet:?xt=urn:btih:B7E7AC6488E0D2A0A573DFDA7827419C0D980F41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:B7E7AC6488E0D2A0A573DFDA7827419C0D980F41
 ```bash
 magnet:?xt=urn:btih:23E051BEFAC3E2DD0A41A2DE035BAA0718A8EBDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:23E051BEFAC3E2DD0A41A2DE035BAA0718A8EBDA
 magnet:?xt=urn:btih:9EDCE0F1F130FAD3DCB0CBF8DAC41252149C797E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:9EDCE0F1F130FAD3DCB0CBF8DAC41252149C797E
 ```bash
 magnet:?xt=urn:btih:9428D55F641E61CCE150551871141181A533CC11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ StaxRip - инструмент для кодирования видео "все-
 ```bash
 magnet:?xt=urn:btih:3FE084D23F3D355A66F84DF28ADFB4F29E567CB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ The Voices Factory - The Voices Factory Sings The Beatles (2023) [FLAC|Lossless|
 magnet:?xt=urn:btih:AAB08E2F5B7AA04D2FE547FE3DE0628478137012
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:AAB08E2F5B7AA04D2FE547FE3DE0628478137012
 ```bash
 magnet:?xt=urn:btih:19FD847F4CDF6AE4FF02E3F18006C75484471123
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ Richard Bargel - Compilation (2024) [MP3|320 Kbps] <Blues rock, Blues, Soul>
 magnet:?xt=urn:btih:56308D0DDF2C53AC40D8AAD727F842168B334BC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ RegCool 1.353 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FDF20DBF6D407F5905CA37470F3659D5ED5FCAF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ magnet:?xt=urn:btih:FDF20DBF6D407F5905CA37470F3659D5ED5FCAF6
 magnet:?xt=urn:btih:D3CFA3E49BDB9A0D6FCAA35F459D12FB8F9B8355
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:D3CFA3E49BDB9A0D6FCAA35F459D12FB8F9B8355
 ```bash
 magnet:?xt=urn:btih:9430E4BEC3DDBCE5D37E498CCC53B4CD54421CB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:9430E4BEC3DDBCE5D37E498CCC53B4CD54421CB4
 magnet:?xt=urn:btih:2EA4CA2062E94F82A188F9649611B935C1365ED4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:2EA4CA2062E94F82A188F9649611B935C1365ED4
 ```bash
 magnet:?xt=urn:btih:89202D35BDB18982CEB61360A115C90989E4149A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ Django Novo & Tov Ramstad - The Distance (2023) [FLAC|Lossless|WEB-DL|tracks] <A
 magnet:?xt=urn:btih:1D08F4313C13A9F87B4FB517031489F2D95E489A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ Roadhouse Redeemers - From Gospel to Grit (2024) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:33428C8D5344158C633C03F81095014FF9C2A04E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ magnet:?xt=urn:btih:33428C8D5344158C633C03F81095014FF9C2A04E
 ```bash
 magnet:?xt=urn:btih:F45C26E525DF2893A29889DD56C731AB467BB6BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:A1477766EDA4312AED4676A0F30AE88F0B19B33A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - Esperandote: New Latin Music (2021) [MP3|320 Kbps] <Latin, Pop, Reggaeton>
 magnet:?xt=urn:btih:342A7D8773FCE64233EC7470CE0BC9B6858745A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ SIMSOLID – разработка одноименной американско�
 ```bash
 magnet:?xt=urn:btih:EA73910372AC8BB2C6BC91953916B5B1C960F28F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ Testament - The Very Best Of (2001) [FLAC|Lossless|image + .cue] <Thrash Metal>
 magnet:?xt=urn:btih:259224B53AFD5C643AD267259ABCFB50DFE6F5B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ magnet:?xt=urn:btih:259224B53AFD5C643AD267259ABCFB50DFE6F5B5
 magnet:?xt=urn:btih:B3EF0C23D60A4DCC537ADBD5FCE242E8CCD2864E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:B3EF0C23D60A4DCC537ADBD5FCE242E8CCD2864E
 ```bash
 magnet:?xt=urn:btih:BFF6A696865939FCC1744C4EE2BF2F8625E403CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +192,8 @@ Children Of The Reptile - Heavy Is The Head (2023) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:2F744FFF24FE5EA237B0DCDBEF671F070EE00AF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ IT - Live At ProgDreams VIII (2021) [MP3|320 Kbps] <Neo Prog>
 magnet:?xt=urn:btih:AAEE1799F0795894942B1A4E27379E46D4B6C31E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ Output создает ультрасовременное программное 
 magnet:?xt=urn:btih:D4585A0AA29383A466B46A86548E6FB6673383D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ Dead Girls Rock: Оглядываясь назад на «Мертвых дев�
 ```bash
 magnet:?xt=urn:btih:CA100606234DD7F6DB567F837625830B7AA03C57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -282,6 +302,8 @@ VA - Best Chillout Vol.19 (2016) [MP3|192-320 Kbps] <Downtempo, Chillout, Lounge
 magnet:?xt=urn:btih:592382EEA9EF2BB84A14E76EB104A9DE351C30AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +327,8 @@ R-Studio Network 9.2 Build 191140 RePack (& portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A81838FD0D2A5ADB006100225D01E0FC1A17FF96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +357,8 @@ Hardline - Double Eclipse (1992) Japan [FLAC|Lossless|image + .cue] <Melodic Har
 magnet:?xt=urn:btih:0FC170A5415B44029E90A400EFCE681BF63BFC96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +385,8 @@ magnet:?xt=urn:btih:0FC170A5415B44029E90A400EFCE681BF63BFC96
 magnet:?xt=urn:btih:DEDA21EC48B0C62F6C57905C829EF63F10E23425
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +410,8 @@ magnet:?xt=urn:btih:DEDA21EC48B0C62F6C57905C829EF63F10E23425
 ```bash
 magnet:?xt=urn:btih:0812D268F1A8919C052370500778441F987E5FCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +437,8 @@ magnet:?xt=urn:btih:0812D268F1A8919C052370500778441F987E5FCE
 magnet:?xt=urn:btih:5B402D113CAC67368AE259D13EBA54814F9B68F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:5B402D113CAC67368AE259D13EBA54814F9B68F1
 ```bash
 magnet:?xt=urn:btih:9BFE862C78CA1C8A485655A0579F194EE57A5D15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +492,8 @@ VA - Trance Collection Vol.53 (2016) [MP3|320 Kbps] <Trance, Progressive Trance,
 magnet:?xt=urn:btih:0C5E48E99FF87187EAA53A24ACEB4A01A0FA6D5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +521,8 @@ VA - Ambient Oceania (2021) [MP3|320 Kbps] <Ambient, Downtempo, Meditation, New 
 magnet:?xt=urn:btih:8AD87B449A086169C118CCFF39FBC69E42D875F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ magnet:?xt=urn:btih:8AD87B449A086169C118CCFF39FBC69E42D875F1
 ```bash
 magnet:?xt=urn:btih:E83836ABFDF32175A4E29AA4139F9A2A52133EDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +576,8 @@ VA - Back to Earth #05 (2022) [AAC|~327 Kbps] <House>
 magnet:?xt=urn:btih:A12FF578F3F47259F58B8F6C16D39F2F324533D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +602,8 @@ Extreme Picture Finder - программа для автоматическог�
 magnet:?xt=urn:btih:BB9994B76C5A92BDA327431E8E0C99E92A1B9510
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ magnet:?xt=urn:btih:BB9994B76C5A92BDA327431E8E0C99E92A1B9510
 ```bash
 magnet:?xt=urn:btih:9EE653CB1C428DE86235CC4D94C1FD3274570025
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +656,8 @@ magnet:?xt=urn:btih:9EE653CB1C428DE86235CC4D94C1FD3274570025
 magnet:?xt=urn:btih:5064891AC9550F35843264DDBBBD2061023F69CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ magnet:?xt=urn:btih:5064891AC9550F35843264DDBBBD2061023F69CE
 ```bash
 magnet:?xt=urn:btih:4A1F0798FB059A77A7528F899BC1068C3ABD40B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -660,6 +710,8 @@ Europe - Collection (2022) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:658849567290F4A0E609FDBA276B1A8E2BE789B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

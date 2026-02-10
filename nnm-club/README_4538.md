@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:2CBD6658A37DD8D86481EADB02222D592A07D62D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:2CBD6658A37DD8D86481EADB02222D592A07D62D
 ```bash
 magnet:?xt=urn:btih:93D425FBA05D79FC542F313613F91CF7806FB51C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Compass - A Silent Symphony (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progre
 magnet:?xt=urn:btih:02AFC78EC9D4878BE2CB496D3B3CB72F57F12C6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Greta Van Fleet - Always There (2019) [AAC|~344 Kbps] <Rock, Score>
 ```bash
 magnet:?xt=urn:btih:70779C5227023E33944EEE7F66ED7D05AD7D07BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:70779C5227023E33944EEE7F66ED7D05AD7D07BE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:70779C5227023E33944EEE7F66ED7D05AD7D07BE
 ```bash
 magnet:?xt=urn:btih:FFCECCBFE726755506400DB4A3EF1A7D26216B36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:FFCECCBFE726755506400DB4A3EF1A7D26216B36
 magnet:?xt=urn:btih:6B40696073CA67D54CF9D4419B0F90830DED0081
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ One Click Hide 1.0.0.78 [Ru] (Авторская раздача)
 ```bash
 magnet:?xt=urn:btih:9A0E9A70ED994551696347C5BF8CDE8CE3D57065
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Dare - 8 Albums (1988 - 2016) 8CD [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 magnet:?xt=urn:btih:7713C7796F193170AA8BB469FE187BDDF79E7071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:7713C7796F193170AA8BB469FE187BDDF79E7071
 magnet:?xt=urn:btih:6904143BF28855EE9E32B1E82AE68A973557F4CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:6904143BF28855EE9E32B1E82AE68A973557F4CA
 ```bash
 magnet:?xt=urn:btih:EE8D6BE7B2E9DC7DC5171E7A1542207A6BACC015
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:EE8D6BE7B2E9DC7DC5171E7A1542207A6BACC015
 magnet:?xt=urn:btih:7B05C4303E4B2C1EB85497E6440EBD4C592DBADA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ Aiseesoft AnyCoord for Mac 1.0.26 [Multi]
 ```bash
 magnet:?xt=urn:btih:C60307C98848D9E72CF3DF4B60DD1FC36EA9A7FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ Cisdem Video Player - это видео и аудиоплеер, который 
 magnet:?xt=urn:btih:AAF24FBB9A2D8D0645FCEE2BC7254714BF485CB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:AAF24FBB9A2D8D0645FCEE2BC7254714BF485CB6
 ```bash
 magnet:?xt=urn:btih:0F2E454E25A7FD84037560D4E5AD49D5803EAB97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:0F2E454E25A7FD84037560D4E5AD49D5803EAB97
 magnet:?xt=urn:btih:819C32C66A62FB287D96D5D02EABDDBFB3199FC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:819C32C66A62FB287D96D5D02EABDDBFB3199FC9
 magnet:?xt=urn:btih:9DB6695935DAD0B3E492F7ED4A932D0F912D941B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:9DB6695935DAD0B3E492F7ED4A932D0F912D941B
 ```bash
 magnet:?xt=urn:btih:574F3098B0988832062971E485EC1A714B6ACF76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:574F3098B0988832062971E485EC1A714B6ACF76
 magnet:?xt=urn:btih:5B6F5A3DBB19E2037131B292AC7FB98213236A7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:5B6F5A3DBB19E2037131B292AC7FB98213236A7E
 ```bash
 magnet:?xt=urn:btih:DB3A6D2C7FE88ABC4515DB0A6523ED648906A993
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ Hitten - While Passion Lasts (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy
 magnet:?xt=urn:btih:79BBDD37C8F5D6C4465FCE1D3B9DA71EE93BC5D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ Winter Sports 2011: Go for Gold (2010) [PS3] [EUR] 3.50 [Cobra ODE / E3 ODE PRO 
 ```bash
 magnet:?xt=urn:btih:E8233ADA9988A7544F270C5E82BCE77FC22C4146
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:E8233ADA9988A7544F270C5E82BCE77FC22C4146
 magnet:?xt=urn:btih:BA835D144373CE13DEF78DB4BF9B63D4DA203D06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:BA835D144373CE13DEF78DB4BF9B63D4DA203D06
 magnet:?xt=urn:btih:8368BB5EB3ED3E1B86C4496D9566152F5F179071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:8368BB5EB3ED3E1B86C4496D9566152F5F179071
 ```bash
 magnet:?xt=urn:btih:89D0156A1E9BA37EDE1AB904D58E84D1610C2CF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +685,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:A8DE0B547A24B3D13FFC667C536121492C55DC96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

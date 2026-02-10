@@ -19,6 +19,8 @@ Conway: Disappearance at Dahlia View (2021) [Multi] (1.2.0.1) License GOG
 magnet:?xt=urn:btih:A552DC32D19EBC523FE798E13C7F53D9E0C724A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Destiny Star Girlfriend 3 (2019) [Multi] (1.0.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:E4FEB8E8372A0080191EFEB702DABADDD4857BDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Neva (2024) [Ru/Multi] (1.2.0) Scene SKIDROW
 magnet:?xt=urn:btih:9417AF70DAB99F860204352C538418EBF5B2727D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Long Dark (2017) [Ru/Multi] (2.12.148383 S/2.39.149246 S/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:76750896B82FAD0FEDB4F954A8409F844AC48890
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Resident Evil 3 (2000) [Multi] (1.0hf3) License GOG
 magnet:?xt=urn:btih:502A0F7FFDB5A355CC126F2225F4FB0535BF66A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Neva (2024) [Ru/Multi] (1.2.0) Repack Let'sРlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:00A724317EC57E4B677822AA7B98A8566B927485
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Alan Wake 2 (2023) [Ru/Multi] (1.2.7/dlc) Scene Rune [Deluxe Edition]
 magnet:?xt=urn:btih:1AD18EF2D4C04CC5B8644E576CA9210E80FEC983
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ DETECTIVE - The Motel (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C8C22CD4645D1AFF24B64AB274530E13065897D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ DETECTIVE - The Motel (2024) [Ru/Multi] (1.0) Repack seleZen
 magnet:?xt=urn:btih:E3748EF9CA7B64F67393A85AC88F99F390974972
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Ruined Nurse - это приключенческая адвенчура, соч�
 ```bash
 magnet:?xt=urn:btih:7E37E783C498B6E856F6354D63F0454AA385408F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ A Quiet Place: The Road Ahead - это однопользовательская 
 magnet:?xt=urn:btih:58A8E5A1EB59304EFE3C09B1AA6A171440118E44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Forest (2018) [Ru/Multi] (1.12) Repack dixen18 [VR]
 ```bash
 magnet:?xt=urn:btih:E8AAF9FCB898120227D0DC96FBD77589F3E2284E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ South of the Circle — эмоциональная игра с глубоким 
 magnet:?xt=urn:btih:0B84C662B27754FB068D79D0732A38C1BE67E84A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Resident Evil (1997) [Multi] (1.0 HotFix 3) License GOG
 ```bash
 magnet:?xt=urn:btih:18F397333BCDBA00060046C5E246359DBAC471AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ NDIKA — игра от третьего лица с историей о стр�
 magnet:?xt=urn:btih:74F8F67C7BDC5D064053FF5AFC15B07E45891F69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Unknown 9: Awakening (2024) [Ru/Multi] (Build 16687288/dlc) Repack Let'sРlay [D
 ```bash
 magnet:?xt=urn:btih:D970995DF84210F0E8A41BCCA42E1F9B4ECE6A50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.08) Repack 
 magnet:?xt=urn:btih:9837B011C4B7256F1AB4F1A3E85BCCC95D28216C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Harold Halibut - созданная вручную нарративная игр
 ```bash
 magnet:?xt=urn:btih:2C85735318385417153D29C2C0772DE406903356
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ DEVOUR - кооперативный выживастик от первого л�
 magnet:?xt=urn:btih:CE0F252D8B7638EAFDF1AD810E8657E0ACC2AA3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ magnet:?xt=urn:btih:CE0F252D8B7638EAFDF1AD810E8657E0ACC2AA3C
 ```bash
 magnet:?xt=urn:btih:A8721F9B4A288E09922E8AF71EEF3D8F3311CB1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Forbidden Fantasy - визуальная новелла для взрослых,
 magnet:?xt=urn:btih:E940C24BFF1D10933757D1335E10FAAB30C228DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.08) Repack 
 ```bash
 magnet:?xt=urn:btih:D57798D1D266E70124A5E2A84987EEB409334DFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.06) Repack 
 magnet:?xt=urn:btih:6D7EE3860C4044D654630355B870C8B432496FEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Baby Blues Nightmares - Toddler Horror Game - это игра-ужастик н�
 ```bash
 magnet:?xt=urn:btih:E12A4EBEFCEB186951F24BE5789D95E9A5A73A0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ The Painscreek Killings (2017) [Ru/Multi] (1.1.0) License GOG
 magnet:?xt=urn:btih:25542B38EA56E8F5F6D785F376F53858287F5D50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Moon Mystery (2024) [Ru/Multi] (1.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:550EF7ACB32AC7E3E72269B95FD6FBB269EF0D28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

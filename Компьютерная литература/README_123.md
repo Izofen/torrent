@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:20718120DAA7B157856956578FB178F2CD1C1F06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Solve real-world problems in the fields of phylogenetics, protein design, and (
 magnet:?xt=urn:btih:C695E5A0273384E0E2DFF528AE75480DF79BE210
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Robotic vision represents the cutting edge of modern computing, combining artifi
 ```bash
 magnet:?xt=urn:btih:01BB486B77591E1B7158C68F04FA769FF44DE0FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Whether they're building a startup or scaling an established org, engineering le
 magnet:?xt=urn:btih:E0F9442939925FA2DF30549DA2207B9C18C45B1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:E0F9442939925FA2DF30549DA2207B9C18C45B1F
 ```bash
 magnet:?xt=urn:btih:31F89AFF64106BCFC1F824C9A9F6C87A1A9C40F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:31F89AFF64106BCFC1F824C9A9F6C87A1A9C40F9
 magnet:?xt=urn:btih:765071B4D8816D533319A2CEFCB62E2F259E8C2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:765071B4D8816D533319A2CEFCB62E2F259E8C2C
 ```bash
 magnet:?xt=urn:btih:39F9AD6F76C3F75CD8373A9063267157F12429C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:39F9AD6F76C3F75CD8373A9063267157F12429C8
 magnet:?xt=urn:btih:29BAE9D1AD3F7EB3267ED7FB824A4AA769929E62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ In this updated third edition, Bill Lubanovic acts as your personal guide to Pyt
 magnet:?xt=urn:btih:E4B891304A751A976EDD338A1768E0E4F36BF994
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ As containerized and cloud native applications become foundational to modern sof
 magnet:?xt=urn:btih:0060DB96E6722AFA9242537B84BC6C1D635C47F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ If you're looking to build production-ready AI applications that can reason and 
 ```bash
 magnet:?xt=urn:btih:EF1C6639DB1D0F55C541D1051EE9CD01398079E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ LLMOps: Managing (   Читать дальше...   )Жанр: Computer Systems
 magnet:?xt=urn:btih:964C916C9564305D57DCE6439F2CFFF69C3A4CD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ Focusing on the logic behind essential algorithms such as Breadth First Search (
 ```bash
 magnet:?xt=urn:btih:C77948D65247D41E5EF1E9F463A48C9927E50D49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ In today's workplaces, there's a high demand for know-how on the Python programm
 magnet:?xt=urn:btih:E7F17B156995B8FCD4F7578520A0F665F6B0EC0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:E7F17B156995B8FCD4F7578520A0F665F6B0EC0A
 magnet:?xt=urn:btih:D5346FE337BA186B500C57F844A4B0347990C558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:D5346FE337BA186B500C57F844A4B0347990C558
 ```bash
 magnet:?xt=urn:btih:42AD1146DD57787EFFDD407D55D24CE80AC490A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:42AD1146DD57787EFFDD407D55D24CE80AC490A1
 ```bash
 magnet:?xt=urn:btih:6F21E72C33C6A859075E9566DFD2134C2E69164D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ Transformers are the superpower behind large language models (LLMs) like ChatGPT
 magnet:?xt=urn:btih:B6DFFA9E47B05B701FCA5B79E35C57EF62707100
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ Statistical Analysis with Python For Dummies introduces you to the tool of choic
 ```bash
 magnet:?xt=urn:btih:42E34C3883E5017C8F32EC4A52712BC69ED5612E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ You don’t need to spend weeks—or even months—coding and training your own 
 magnet:?xt=urn:btih:988E3A6B1D1A71788F730DEEE2DA52A31204C667
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ Advanced Forecasting with Python, Second Edition, is a comprehensive and practic
 magnet:?xt=urn:btih:AD96263C0513578142DB7B6EEB58E66A64F4EF8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ Build interactive, data-driven websites with the potent combination of open sour
 ```bash
 magnet:?xt=urn:btih:ED285EE72CAB1A7B32194BD359F50EAAF4145B03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ The book begins with an introduction to RHEL 9's features, architecture, and its
 magnet:?xt=urn:btih:557995A1F61EA5177D892B97FCAA57942658EA49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ The book explains the process for designing and modernizing software application
 magnet:?xt=urn:btih:4A7ACB256B6A2BEB9BD07ADECA5ECA34E2BAA43B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ This book gives novice coders an understanding of the methods and techniques use
 magnet:?xt=urn:btih:A41A1250071F3A466E3D131B9AFA663217087B24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ magnet:?xt=urn:btih:A41A1250071F3A466E3D131B9AFA663217087B24
 ```bash
 magnet:?xt=urn:btih:9F7861015407A0779607B8891DE2559000A3351F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

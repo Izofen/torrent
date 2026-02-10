@@ -19,6 +19,8 @@ Phantom ~Requiem for the Phantom~ / Фантом: Реквием по Призр
 magnet:?xt=urn:btih:D78D090606A79A9FE1367F7C415D385A67248F1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ RahXephon TV / Ра-Зефон [ТВ] Год выпуска: 2002
 ```bash
 magnet:?xt=urn:btih:A432F48AF1C5586492B086452FAFDCA3D6BDE5ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Scryed / Скрайд Год выпуска: 2001
 magnet:?xt=urn:btih:F864544AD290F6CFF34EB82903D9891356FC4EE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Miss Monochrome The Animation / Мисс Монохром [2013, TV, 13] HDTV 72
 magnet:?xt=urn:btih:46E0B00A12195087FE2FF4A26CB7FC7BA7154E82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Tales of Vesperia: The First Strike / Сказания Весперии: Пер�
 magnet:?xt=urn:btih:F89026EBC2D9C5EDFB34500D62A0047202DFFFB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Choujikuu Seiki Orguss 02 | Super Dimension Century Orguss Two: Orguss 02 | Ор
 ```bash
 magnet:?xt=urn:btih:FBC9AE5B08A188B41DC44ABB115DF42B0E49CA05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Choujikuu Seiki Orguss | Super Dimension Century Orguss | Оргусс [1983, TV
 magnet:?xt=urn:btih:E230A294D104EB718ADDE40A84222BDACCDB695D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Kidou Keisatsu Patlabor Reboot / Mobile Police Patlabor: Reboot / Полиция
 ```bash
 magnet:?xt=urn:btih:F6DF06149D0FDC77503402BC52D68178236C8340
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Mini Pato / Mobile Police Patlabor Minimum / Миниатюрная Полици
 magnet:?xt=urn:btih:44EC562407DA13B6E1CED9DB45EDC08C091E2823
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Sewayaki Kitsune no Senko-san | The Helpful Fox Senko-san | Заботливая
 ```bash
 magnet:?xt=urn:btih:99A55FF5E2AE1FF6A13EF6203227756152393980
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Hi no Tori 2772: Ai no CosmoZone | Phoenix 2772: Cosmos Zone of Love | Жар-п
 magnet:?xt=urn:btih:C3DF24325108E160FD473B87B160ECA984E5A84F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Hi no Tori: Uchuu Hen | Phoenix: Space Chapter | Жар-птица: Глава �
 magnet:?xt=urn:btih:29D0867A80582405AD9CF0A92C8EB9126080F665
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Masamune-kun no Revenge | Masamune-kun's Revenge | Месть Масамунэ [
 ```bash
 magnet:?xt=urn:btih:6E292C042EDCA4CADC3ADA1300D76D28C41ABDDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Fullmetal Panic! Invisible Victory | Full Metal Panic! Invisible Victory | Ст�
 magnet:?xt=urn:btih:06B8EC70AAB3B2A3D4E5E87FA3FCBFD3EE950BDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Shoujo Shuumatsu Ryokou | Girls' Last Tour | Девушки в последне�
 magnet:?xt=urn:btih:9DF76F1159266F4C7F7F10ECF752C79DAC449CB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Hi no Tori | Phoenix | Жар-птица [2004, TV, 13 из 13] HDTV 1080p raw
 ```bash
 magnet:?xt=urn:btih:0D4D9E2BC49A5FA4BB9F9998E82A2D3D8E7AF5D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ Hi no Tori: Yamato Hen | Phoenix: Chapter of Yamato | Жар-птица: Гла�
 magnet:?xt=urn:btih:6702339D74F3E0D26798BBEDA76DF5A5D8FE1FCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Hi no Tori: Houou Hen | Phoenix: Karma Chapter | Жар-птица: Глава �
 ```bash
 magnet:?xt=urn:btih:97396A3ADFD5D5923FB2A237144FFF5FA8E70D96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Rain Town | Город дождя [2011, ONA, 1 эп.] BDrip 818p 10bit raw
 magnet:?xt=urn:btih:AA5691436D1E0C315A8566AF1871AFDF26155F00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Project PAPO | Проект ПАПО [2006, OVA, 2 эп.] BDrip 1080 raw
 ```bash
 magnet:?xt=urn:btih:1998C18A5931E2062ED48D6640E7F4E086E7DE5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Ballroom e Youkoso | Welcome to the Ballroom | Добро пожаловать �
 magnet:?xt=urn:btih:DA6B4D63D2B7EA2F0E09C881FE887000C7C076CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ Hinata no Aoshigure | Солнце сквозь дождик [2013, Movie] BDrip
 ```bash
 magnet:?xt=urn:btih:FB55F823D70FE1FF8738E0D2A528515D6F77F822
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Paulette no Isu | Стульчик Полетты [2014, Другое] BDrip 108
 magnet:?xt=urn:btih:D8C21F83B8FB1FF85C941D14DE07ABC280E0C9F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Alice or Alice | Алиса или Алиса [2018, TV, 12 эп. + OVA] BDrip 1
 magnet:?xt=urn:btih:965425C05F95E7F1CABBF94BB25F2A285109F06F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Kannagi | Kannagi: Crazy Shrine Maidens | Каннаги [2008, TV, 13 + SP] BDR
 ```bash
 magnet:?xt=urn:btih:FBA0E79F7F3EE347FC2C263BA1CF17BF95569C60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +680,8 @@ Fumiko no Kokuhaku | Fumiko's Confession | Признание Фумико [2009
 ```bash
 magnet:?xt=urn:btih:59DA10DEBE88DB93570908832DB1B6DB4EE81EA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

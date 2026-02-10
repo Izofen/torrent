@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:301B06337E1DCE5F1F73388432364C800F5D1EF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ darktable — фоторедактор, предназначенный для о
 magnet:?xt=urn:btih:9FB8428885E2DE95E8F022033170F1CD54305A9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:9FB8428885E2DE95E8F022033170F1CD54305A9C
 ```bash
 magnet:?xt=urn:btih:833FBBE45948C3E20B97248227BF7A32ABFC7B3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Speedwhore - The Future Is Now (2015) [FLAC|Lossless|image + .cue] <Black, Thras
 magnet:?xt=urn:btih:F5EC0A356B6765D655945B1A51471BFD80A6C1B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:F5EC0A356B6765D655945B1A51471BFD80A6C1B9
 ```bash
 magnet:?xt=urn:btih:40FB681167412B566D5C8068DC2757115B864C9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ VA - Across the Ocean (Lounge Collection), Vol. 1 (2020) [AAC|~320 Kbps] <Lounge
 magnet:?xt=urn:btih:321801B9714435C3D7C553D6EF301EB78226038C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ Kesha - Gag Order (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:3C3A2C0C2E9D5FFEC7121FA5CB03AF2A18AB8586
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:DD8EDA566A8E3303E1EF45A07EB456CEAB72C301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ SOUND FORGE вот уже более 20 лет задает стандарты �
 ```bash
 magnet:?xt=urn:btih:2CA80486BE5E2181D8311904083CE90B90CE4B01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ National Nightmare - High Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:90E2D4E1C14A44EAAB770A42AE58E9ACE211779F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:90E2D4E1C14A44EAAB770A42AE58E9ACE211779F
 magnet:?xt=urn:btih:0AB3657107C83032739754FBC43AAE34BB26DB47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ Aiseesoft HD Converter for Mac 9.2.26 [En]
 ```bash
 magnet:?xt=urn:btih:39E604DAC5489A5B77DC509AC54E592FB7168A04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:39E604DAC5489A5B77DC509AC54E592FB7168A04
 ```bash
 magnet:?xt=urn:btih:1B38FFF9AA111420C8ECA893F22F79F184A01CDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:1B38FFF9AA111420C8ECA893F22F79F184A01CDE
 magnet:?xt=urn:btih:F2513F0D3CCE0F46EC156A3FA9C6CC4C60F227DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ VA - Sparadise Lounge, Vol.2 (Boutique Spa Chillout Vibes) (2022) [AAC|~297 Kbps
 magnet:?xt=urn:btih:FA8E20C25EA4D38FBF29EE463C5E9159207CCF70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:FA8E20C25EA4D38FBF29EE463C5E9159207CCF70
 ```bash
 magnet:?xt=urn:btih:8DD0D1A2247F504D8C17CEC1F76AAEBC40C37EA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ magnet:?xt=urn:btih:8DD0D1A2247F504D8C17CEC1F76AAEBC40C37EA3
 ```bash
 magnet:?xt=urn:btih:81F0A32AD5955D3DB12FE26A1F4CED153B82A9CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +488,8 @@ The Ducks - High Flyin' (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:E4C0C77C1B918FDE92CAAB3D0B9206679EAED927
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:E4C0C77C1B918FDE92CAAB3D0B9206679EAED927
 magnet:?xt=urn:btih:7BC48F11DC36629FDE2931A8A5AF716ACBF80E9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ Windows 10 Pro VL x64 21Н2 (build 19044.1739) by ivandubskoj 26.05.2022 [Ru]
 ```bash
 magnet:?xt=urn:btih:E006BBE0856FEB9D4F4550E6119D43A93D858695
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ CD1:
 magnet:?xt=urn:btih:244C0B1DCE3C2C2BCBF894845DE3657AD25EAEBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ magnet:?xt=urn:btih:244C0B1DCE3C2C2BCBF894845DE3657AD25EAEBA
 ```bash
 magnet:?xt=urn:btih:D3143BEE147877AA2FD97C4250B9E3DDDB49B15E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ Avalanch - El Dilema De Los Dioses (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, 
 magnet:?xt=urn:btih:810A11AF15BF27AA9E9271989D3DF425F508CB2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:810A11AF15BF27AA9E9271989D3DF425F508CB2A
 magnet:?xt=urn:btih:A9FF09C36B675EC553D7F2A7B37DC2F27DF66EB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ magnet:?xt=urn:btih:A9FF09C36B675EC553D7F2A7B37DC2F27DF66EB0
 ```bash
 magnet:?xt=urn:btih:83C72583916E3EEDCE9FBCF6C3441B71521A6E64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +704,8 @@ VA - Sparadise Lounge, Vol.3 (Boutique Spa Chillout Vibes) (2022) [AAC|~325 Kbps
 ```bash
 magnet:?xt=urn:btih:EB9503E052395085099839B2A08B35DBFC05BACB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ JustNote Team, Дмитрий Гомонов | Курс по ремонту но
 magnet:?xt=urn:btih:9EBDB52BA30356A301DEA5FCB302559E26EE3361
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:9EBDB52BA30356A301DEA5FCB302559E26EE3361
 magnet:?xt=urn:btih:DEAA57D858A87815DE8EF014D4E74AF22884B851
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:DEAA57D858A87815DE8EF014D4E74AF22884B851
 ```bash
 magnet:?xt=urn:btih:65E2DCD547849295FF5240822236BF7FADE035AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:65E2DCD547849295FF5240822236BF7FADE035AA
 magnet:?xt=urn:btih:C2318EB74E501411FE7A8176648209007BF33939
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Udemy, Eduard Kozlov | Эффективная разработка модуле�
 ```bash
 magnet:?xt=urn:btih:BB5D5F8FFB0E620F0190440894D700188CF10BE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ The Gnomon Workshop, Madeleine Scott-Spencer | Введение в ZBrush 2020 /
 magnet:?xt=urn:btih:17DC046DEB14D88C31F49694B81D0ED1A071F15A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Udemy, Журавлёв Сергей | C++ | STL | Библиотека стан
 ```bash
 magnet:?xt=urn:btih:648CB6AC046A9720E1373B258834144C5F11E8B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Udemy, Семен Паничев | С++ GOF Паттерны проектиро�
 magnet:?xt=urn:btih:1A1C8002BD6BE1E98EE33065A9D53837FC3DAFB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ Udemy, Дмитрий . | Java до уровня Junior Developer за 3 мес�
 ```bash
 magnet:?xt=urn:btih:5C5C0C608A18E6FBDD4A2C64E8560BA3FBB5F904
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ Gumroad, Danny Mac | How to Sculpt and Retopologize a Stylized Head in Blender (
 magnet:?xt=urn:btih:E1DD871EB947983E3CF81F70A0BE0FDB071B7896
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ Gumroad, Danny Mac | How to Sculpt and Retopologize a Stylized Head in Blender (
 ```bash
 magnet:?xt=urn:btih:C3C285332796BA118196AFE7385FEA3F89709EC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ MINDMANAGER ИНТЕГРАЦИЯ MINDMANAGER 2019 С ЛИНЕЙКОЙ MICROSOFT 
 magnet:?xt=urn:btih:C52F63C3FF2579BA912C478A4F68821599D66728
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:C52F63C3FF2579BA912C478A4F68821599D66728
 ```bash
 magnet:?xt=urn:btih:7F623450C6FB5E1D1EE205A556FDD20CBC5D6CA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:7F623450C6FB5E1D1EE205A556FDD20CBC5D6CA3
 magnet:?xt=urn:btih:45FD375A100920F3AD6A30D2E593BD3A911CE31F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:45FD375A100920F3AD6A30D2E593BD3A911CE31F
 ```bash
 magnet:?xt=urn:btih:C526116B3275CBC53E39B464D64905F56049B745
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:C526116B3275CBC53E39B464D64905F56049B745
 magnet:?xt=urn:btih:A8C3915B88E3F8C188473E3C450830A24AF7BCE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ MindManager 2020 предлагает несколько режимов для �
 ```bash
 magnet:?xt=urn:btih:14780D8A2C361B3031636674DE20DE8956E32D0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:14780D8A2C361B3031636674DE20DE8956E32D0E
 magnet:?xt=urn:btih:58046319FC7B42D0BC0DD726393CA9DF4B2C8F2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ Udemy, Михаил Чирков | Python: Быстрый старт (2020) PCRe
 ```bash
 magnet:?xt=urn:btih:613457287C8CCE1C8E997B313B52884AA1D399C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ Geekbrains | Контекстная реклама. Привлечение кл�
 magnet:?xt=urn:btih:698D7F682A4F8BB1A02B227431B93C305580B433
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ Udemy, ZTM Academy, Andrei Neagoie | The Complete Web Developer in 2023: Zero to
 magnet:?xt=urn:btih:B5D15470F4A3875186142B41366BB7DD4ABA2EDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ Kafka — это сервис, позволяющий в реальном вре
 ```bash
 magnet:?xt=urn:btih:ABCB39DBBABB132DAD030260FDAE6D471F92299C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ magnet:?xt=urn:btih:ABCB39DBBABB132DAD030260FDAE6D471F92299C
 magnet:?xt=urn:btih:6D7F35872C5901168F35E9B527F81D35C475DBCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ Udemy, Elchin Jamalov | VMware vSphere 6 - полный видеокурс (2021
 magnet:?xt=urn:btih:11AEDFC424F206EADA15DFEBBD22CAD8796A089A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ magnet:?xt=urn:btih:11AEDFC424F206EADA15DFEBBD22CAD8796A089A
 ```bash
 magnet:?xt=urn:btih:71C0086DDE9AE9DBEFD1303228F53054FE43D505
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +703,8 @@ Profileschool | Природные шедевры мастеров (2014) PCRec
 ```bash
 magnet:?xt=urn:btih:438181834B57515C083AE9C9209B48E78A09BA4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

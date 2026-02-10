@@ -1,3 +1,32 @@
+###  Публикация: 1090971   (944859) от 08.01.2017
+
+VA - Dance Of Fire Salamanders (2017) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944859.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ACDC - T.N.T (DJ Zarubin DUB Remix)
+002. Agent Greg & Sean Angel - Sweet Dreams (DJ Sky & DJ Zak Mash-Up)
+003. Breach - Jack (DJ Stylezz & DJ Kirillich Remix)
+004. Charlie Puth feat. Selena Gomez - We Don't Talk (Andrey Exx & Sharapov Radio Remix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 09:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:157B5E1D315E02775A2F06436949C726E4B39ECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091020   (944866) от 08.01.2017
 
 VA - Музыкальные новинки. Only Best Hits. Сборник № 5 (2016) [MP3|256 Kbps] <Pop>
@@ -21,6 +50,8 @@ VA - Музыкальные новинки. Only Best Hits. Сборник № 5
 ```bash
 magnet:?xt=urn:btih:FFF35D48D34A3BD073063AD85B3C92E96EF1A917
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Отрывайся с лучшими хитами. Выпуск № 8 (2016
 magnet:?xt=urn:btih:911F24AC7850A989E302505E1DCC476043CE31FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Winter Bash: Mega Dance Hands Up Party (2020) [MP3|320 Kbps] <Dance House, 
 ```bash
 magnet:?xt=urn:btih:284CD0617947AD77AF44750CB09FCD1C9016437F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - 135 Classic Soul Ballads (2020) [MP3|320 Kbps] <R&B, Soul>
 magnet:?xt=urn:btih:FE01F47CA3F69F90803E425B890846C2AD044F7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Top 100 DJs Alive Sound (2017) [MP3|320 Kbps] <Tech Trance, Electro, Dutch,
 ```bash
 magnet:?xt=urn:btih:AD87C9A90EAECA0F7291ED91437CF5935738BE62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Top 100 EDM Songs & DJ Tracks December (2017) [MP3|320 Kbps] <Electronica, 
 magnet:?xt=urn:btih:C69485C0823B74EBB00AEE3109FD73A3A354AA47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Shazam Хит-парад Russia Top 100 Февраль (2020) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:B030B15F4AA8895EDB5E29A9EF57E5E95005CF44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Ultimate Party Colors January (2017) [MP3|320 Kbps] <Future House, Progress
 magnet:?xt=urn:btih:4A23F0C101FEC991ED5565124D86337E4B518A41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Enormous Digital Reading House (2017) [MP3|320 Kbps] <House, Tech House, Fu
 ```bash
 magnet:?xt=urn:btih:285A493DD3E07A558193CEBC9357F23C99270D4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - GNO: New Disco Funk (2020) [MP3|320 Kbps] <Disco, Nu Disco, Funky House>
 magnet:?xt=urn:btih:7D683000D7D1350A8B1D3B68A36E600E3ACD72A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Power Metal Ballads 21 (2016) [MP3|224 кб/с] <Ballads, Heavy, Sympho, Gl
 ```bash
 magnet:?xt=urn:btih:F191B630B14E2178AE30BF47379CAD9CA5A8FDAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Disco At Chiken (2020) [MP3|320 Kbps] <Disco, Nu Disco, Funky House>
 magnet:?xt=urn:btih:4EDF5D9A491100F55464F31F8BD17A6E3098D6F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - Blues Forever vol.21 - vol.24 (2015) [MP3|320 кб/с] <Blues>
 ```bash
 magnet:?xt=urn:btih:BB6DE579960E0F63F27C708F4B276A18C725F188
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Beatport Trance: Pack Electro Sound #12 (2020) [MP3|320 Kbps] <Trance, Elec
 magnet:?xt=urn:btih:2BF28D700F851645F996F6371A7D8F43E52AEE19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ VA - Beatport Techno: Electro Sound Pack #13 (2020) [MP3|320 Kbps] <Techno, Tech
 ```bash
 magnet:?xt=urn:btih:92A61813E252EFE572E2F61340C188829B699635
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ VA - Кабацкий дым. Суперсборник русского шанс
 magnet:?xt=urn:btih:E0A751F551F22420114A670FAD36B19256EDA89D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +514,8 @@ VA - Smooth & Chilly Valentines (2016) [MP3|320 кб/с] <Smooth Jazz, Lounge>
 ```bash
 magnet:?xt=urn:btih:BCDE026A23813A039BEF3870917618688C493A23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +547,8 @@ magnet:?xt=urn:btih:BCDE026A23813A039BEF3870917618688C493A23
 magnet:?xt=urn:btih:51DCCF579BE8B64A41EFFDF4D9ED62159A53DEB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +576,8 @@ VA - Car Satellite: Full Set EDM (2016) [MP3|320 кб/с] <Electro, House, Tranc
 magnet:?xt=urn:btih:ED577A6A9FF76A59BAFB8145F7C2EEF94B9031F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +604,8 @@ VA - Новогодняя Дискотека Руки Вверх (2017) [MP3|320
 ```bash
 magnet:?xt=urn:btih:C085365D665EA63C39239A9A0A12F8FEF860153E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +640,8 @@ VA - XXXL Зарубежный Хитовичок Сезона (2013) [MP3|256 �
 magnet:?xt=urn:btih:70C3BEB74C688ECB5423F6C1CEC18D83892138B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +668,8 @@ VA - Kontor Top Of The Clubs: The Best of 20 Years (2017) [MP3|320 Kbps] <House,
 ```bash
 magnet:?xt=urn:btih:467852FA36B26BFF68E57EC0387DCB9D86B120E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +698,8 @@ VA - Dance & Club Vol.1 (2017) [MP3|320 Kbps] <Electro, Vocal, Hands Up, Funky, 
 magnet:?xt=urn:btih:C6B7BC3F063863A2281D9EDFFF05655DDD1B2F3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +726,8 @@ VA - Big Love 20 от Love Radio (25.12.2016) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:863B055AB6DADDA6077CC457A21ABB38775C1B62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -679,32 +756,7 @@ VA - Эх, Разгуляй! Новогодний выпуск радио Шан
 magnet:?xt=urn:btih:1F20F27D96434AD2FF167D87A887FE4E616E0DF2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090571   (946054) от 07.01.2017
-
-VA - Стопудовые зимние хиты от Европы Плюс. Часть № 3 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946054.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Анжелика Варум - Мадемуазель Хайд 4:00
-002. Sha Man - Я Люблю Ее 3:44
-003. Инфинити Feat. Гена Дудин - Воланчик 3:18
-004. Monsieur Adi Feat. Verite - Bad Habits 4:02(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9189BE946738D7BF83CE6D6620A745897D90334B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

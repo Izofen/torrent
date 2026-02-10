@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:15775C80E0BCA145F272DB47EDF34E052185CFF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Elegant Logo Animation - элегантный и красивый логотип
 ```bash
 magnet:?xt=urn:btih:35F86EEA733751DB2E07CBE6097F0BC73ED989A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:35F86EEA733751DB2E07CBE6097F0BC73ED989A8
 magnet:?xt=urn:btih:CC645724F2BD81BE58CC966FEC2E99BB8A7F1164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:CC645724F2BD81BE58CC966FEC2E99BB8A7F1164
 ```bash
 magnet:?xt=urn:btih:999FA9DB1A129FF4DE65132B410F77619E22741B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:999FA9DB1A129FF4DE65132B410F77619E22741B
 magnet:?xt=urn:btih:A3B77C58076EC5DB0B43D1C9C6275E6D093AEAB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:A3B77C58076EC5DB0B43D1C9C6275E6D093AEAB0
 ```bash
 magnet:?xt=urn:btih:6941EBEC53F93E209C1419F9631A0A2790228E8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:6941EBEC53F93E209C1419F9631A0A2790228E8C
 magnet:?xt=urn:btih:D9B814B715BC66F9F963DD630EDFCF1B3580ECDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:D9B814B715BC66F9F963DD630EDFCF1B3580ECDA
 ```bash
 magnet:?xt=urn:btih:65E28BE4E3B92767FCE9103F5D5FB9590037EF5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Elegant Logo Reveals Pack 2 - продемонстрируйте ваш лого
 magnet:?xt=urn:btih:3764B9975641283B1430FBB87073776F0662CF17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ LogoBox1 это проект, осуществленный в качестве �
 ```bash
 magnet:?xt=urn:btih:D1CB15C589254DCF66AED4D2BE6205BFC679574F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:D1CB15C589254DCF66AED4D2BE6205BFC679574F
 magnet:?xt=urn:btih:EDC9ABC2BF1B12348DA336F273AD87C3F21B4F19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:EDC9ABC2BF1B12348DA336F273AD87C3F21B4F19
 ```bash
 magnet:?xt=urn:btih:55C912B3AD18F72D04B6B417088A3B924959A1D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Vintage TV Logo - это стилизованный старомодный ша�
 magnet:?xt=urn:btih:8EE4BEC5BBE6AB12C2AFDDD547F0E37D945F144E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Light Logo Reveal - это продвинутый стиль в демонстр
 ```bash
 magnet:?xt=urn:btih:FCC353F6DB60F49D9979D8BB6413A4E63DEB3D36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Architect Logo - Этот шаблон позволяет в деталях вы
 magnet:?xt=urn:btih:627410500908A6C315BD8C52B4A34D6BCEA0F0A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Sci-Fi Logo - красивая и чистая демонстрация лого
 ```bash
 magnet:?xt=urn:btih:FDF265C7401025AA1AC97175A990703D6969F964
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:FDF265C7401025AA1AC97175A990703D6969F964
 magnet:?xt=urn:btih:F448CBDCA01B90B3E1F59DBDA647C799FACA1614
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:F448CBDCA01B90B3E1F59DBDA647C799FACA1614
 ```bash
 magnet:?xt=urn:btih:BCD18687ACE3C18DC2FFCBC8FA8052006746873B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ Geometric Glitch Intro 2 - Футуристический проект для в
 magnet:?xt=urn:btih:ABFA166348FE4AE87B32AED3BC8D9F72C44D53FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ magnet:?xt=urn:btih:ABFA166348FE4AE87B32AED3BC8D9F72C44D53FF
 ```bash
 magnet:?xt=urn:btih:248FBDEA67A4B5F6860009C86804FF3A0FCF7941
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ Watercolor Logo - в этом проекте анимация логотипа �
 magnet:?xt=urn:btih:ECC5DE53EE5AA175DC2FAEF117BFBFE06ED0673F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ Clean Pieces - демонстрация вашего логотипа или н�
 ```bash
 magnet:?xt=urn:btih:DDAA7225FF5B8A3D58AF0CDCC8AAB08EF378F443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ Electric Logo - отличная анимация для логотипов с �
 magnet:?xt=urn:btih:A3B22BD67312C78D6352BD6CD1DF952232B79656
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ magnet:?xt=urn:btih:A3B22BD67312C78D6352BD6CD1DF952232B79656
 ```bash
 magnet:?xt=urn:btih:261AF25AE174D10E08D7D28550B516705A104EC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ magnet:?xt=urn:btih:261AF25AE174D10E08D7D28550B516705A104EC0
 magnet:?xt=urn:btih:A3FCE87C4471FA2525259E5AFFACDF21411DCD9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ magnet:?xt=urn:btih:A3FCE87C4471FA2525259E5AFFACDF21411DCD9A
 ```bash
 magnet:?xt=urn:btih:E5DE8D9A41275BCA9193F51CE4AED05DDD72C3F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1404843   (487023) от 28.08.2020
+
+Стефан Гарнье | Живи как кот (2017) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_487023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коты издавна были объектом нашего обожания, и всё это время мы пытались понять их характер, повадки, привычки, особенности и причуды. Есть какая-то магия в их способности сохранять спокойствие и быть счастливыми – качества, которые мы определённо можем взять себе на заметку. «Примерив» их образ жизни, мы можем взглянуть на мир другими глазами, открыть новые возможности (   Читать дальше...   )Жанр: Домашние животные, Зарубежная деловая литература, Личная эффективностьПеревод: Л. Г. ТретьякФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:947C3C8016F29A303DA805F2BCEB5A959F72F2B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 699733   (487095) от 13.09.2013
 
 Дмитрий Фатин | Собаки специального назначения. Рассекреченные методики подготовки охранных собак (2009) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:1E9545E9164F6876DC806AFDA84F8DCAD88BB8E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:1E9545E9164F6876DC806AFDA84F8DCAD88BB8E9
 magnet:?xt=urn:btih:BB12FEF705EFFBE295D5F5169098C2516F821B7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:BB12FEF705EFFBE295D5F5169098C2516F821B7F
 ```bash
 magnet:?xt=urn:btih:6422C43E91743413C86D3DD5CFF82596DD42BC42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +130,8 @@ magnet:?xt=urn:btih:6422C43E91743413C86D3DD5CFF82596DD42BC42
 magnet:?xt=urn:btih:9396E1BA83A0220165C45F82718218CC350CFD7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +158,8 @@ magnet:?xt=urn:btih:9396E1BA83A0220165C45F82718218CC350CFD7B
 magnet:?xt=urn:btih:19ABC187F44A60DEA2411E07DE2B61F77B7F8A3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +183,8 @@ magnet:?xt=urn:btih:19ABC187F44A60DEA2411E07DE2B61F77B7F8A3A
 ```bash
 magnet:?xt=urn:btih:D2DF1C60823E3A4D602610415CE9AA222276D483
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +212,8 @@ magnet:?xt=urn:btih:D2DF1C60823E3A4D602610415CE9AA222276D483
 magnet:?xt=urn:btih:EFBE20D384A10F0FE2562BC1A81BA15DA7C1848D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +239,8 @@ magnet:?xt=urn:btih:EFBE20D384A10F0FE2562BC1A81BA15DA7C1848D
 magnet:?xt=urn:btih:DBD0A922DB8562B67A604EEEBBA43429559F742A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +264,8 @@ magnet:?xt=urn:btih:DBD0A922DB8562B67A604EEEBBA43429559F742A
 ```bash
 magnet:?xt=urn:btih:62B474259C03DAA6BBD1316C544AB347847FE65B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +293,8 @@ magnet:?xt=urn:btih:62B474259C03DAA6BBD1316C544AB347847FE65B
 magnet:?xt=urn:btih:32D4CF07C3A538822CC5A7948C5A169C4D9684BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +318,8 @@ magnet:?xt=urn:btih:32D4CF07C3A538822CC5A7948C5A169C4D9684BF
 ```bash
 magnet:?xt=urn:btih:65AADF80E3AC619AA3EA5DB445A6804C542986BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +346,8 @@ magnet:?xt=urn:btih:65AADF80E3AC619AA3EA5DB445A6804C542986BA
 magnet:?xt=urn:btih:5A502782FE6F7E54BDB3598611EB857CFE64C9ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +372,8 @@ magnet:?xt=urn:btih:5A502782FE6F7E54BDB3598611EB857CFE64C9ED
 magnet:?xt=urn:btih:4962DFE84D5D6B6E49E8C1ABB6351471271CAF92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +397,8 @@ magnet:?xt=urn:btih:4962DFE84D5D6B6E49E8C1ABB6351471271CAF92
 ```bash
 magnet:?xt=urn:btih:808AAB9737012B925750C0B710E92979D8026588
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +425,8 @@ magnet:?xt=urn:btih:808AAB9737012B925750C0B710E92979D8026588
 magnet:?xt=urn:btih:42532C0A79162B366C674EDD7DFB8878F552A995
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +451,8 @@ magnet:?xt=urn:btih:42532C0A79162B366C674EDD7DFB8878F552A995
 magnet:?xt=urn:btih:CD322914F49C38A263919F1A2AF3F0B0BB7D42AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +476,8 @@ magnet:?xt=urn:btih:CD322914F49C38A263919F1A2AF3F0B0BB7D42AF
 ```bash
 magnet:?xt=urn:btih:46E77F3550FDE37D8E16B3898C1E7C5E84A676A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +505,8 @@ magnet:?xt=urn:btih:46E77F3550FDE37D8E16B3898C1E7C5E84A676A8
 magnet:?xt=urn:btih:BC26AB518F6259FE15502AD2700E5181142E57C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +530,8 @@ magnet:?xt=urn:btih:BC26AB518F6259FE15502AD2700E5181142E57C2
 ```bash
 magnet:?xt=urn:btih:CA72DC92288C44409B3DFE61D4DCB51A601CC6E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +557,8 @@ magnet:?xt=urn:btih:CA72DC92288C44409B3DFE61D4DCB51A601CC6E6
 magnet:?xt=urn:btih:3A1BFB870531A797A02501569033B13FB52C4358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +583,8 @@ magnet:?xt=urn:btih:3A1BFB870531A797A02501569033B13FB52C4358
 magnet:?xt=urn:btih:E9C75738765CFAC8339C9CFCCE316CAA38057C93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +608,8 @@ magnet:?xt=urn:btih:E9C75738765CFAC8339C9CFCCE316CAA38057C93
 ```bash
 magnet:?xt=urn:btih:0D77D6BF4757819222E262C82DE05F67518F4ADC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +638,8 @@ magnet:?xt=urn:btih:0D77D6BF4757819222E262C82DE05F67518F4ADC
 magnet:?xt=urn:btih:7FC9900449532E73630F114CDD7639415D938662
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +666,8 @@ magnet:?xt=urn:btih:7FC9900449532E73630F114CDD7639415D938662
 magnet:?xt=urn:btih:B9832ABAE6A3662E21B5AD7458999917D84A093C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,29 +692,7 @@ magnet:?xt=urn:btih:B9832ABAE6A3662E21B5AD7458999917D84A093C
 magnet:?xt=urn:btih:2709746362FB03365F75DB8D81C5F0D8A6CC50D1
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544591   (489150) от 08.09.2012
-
-В.В.Маклаков (сост.) | Конституции зарубежных государств [2000] [PDF]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник включает переводы официальных текстов Основных законов (Конституций) США, Великобритании, Франции, ФРГ, Италии, Испании, Швейцарии, Японии и Бразилии, а также документов Европейского союза. Он открывается общей вступительной статьей. Кроме того, вступительной статьей снабжена каждая Конституция.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13D1B86AB71F0D942C647FA52EC828F732F8FD3F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

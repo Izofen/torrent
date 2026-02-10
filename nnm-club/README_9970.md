@@ -1,57 +1,3 @@
-###  Публикация: 1259188   (323405) от 02.11.2018
-
-Patti Austin - For Ella (2002) Playboy Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Close for Comfort [3:59]
-02. Honeysuckle Rose [4:14]
-03. You'll Have to Swing It (Mr. Paganini) [4:23]
-04. Our Love Is Here to Stay [5:30](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ADA9263BC773079169F551133C9B30F395D62F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259222   (323406) от 02.11.2018
-
-Joe Satriani - Flying in a Blue Dream (1989) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flying In A Blue Dream (5:23)
- 02. The Mystical Potato Head Groove Thing (5:10)
- 03. Can't Slow Down (4:49)
- 04. Headless (1:30)(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 01:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DAB7AD954117F305B6582391FA010B776E20DC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259194   (323407) от 02.11.2018
 
 Packster - Towards The Brightest Dreams (Ultra Mood Remix) (2018) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
@@ -72,6 +18,8 @@ Packster - Towards The Brightest Dreams (Ultra Mood Remix) (2018) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:1C07188BF3CF0AF024FCED05570672FD8CD6EE76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +48,8 @@ ScreenFlow - создаем свои скринкасты
 magnet:?xt=urn:btih:31E94075B18C269C82D799B9F1DACB88A7311950
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +76,8 @@ VA - Ronski Speed - Evolve (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:59C626CB87B2B03D538548F71F09B43BA382D3A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +106,8 @@ Carol Jiani - Hit 'N Run Lover (1994) CD, Compilation [MP3|320 Kbps] <Electronic
 magnet:?xt=urn:btih:32FEFADC49853FA14161A9FED49CC06B3D5429F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +131,8 @@ magnet:?xt=urn:btih:32FEFADC49853FA14161A9FED49CC06B3D5429F6
 ```bash
 magnet:?xt=urn:btih:76B143A13888ED4A9A608439E87D63C00DA30FB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +158,8 @@ magnet:?xt=urn:btih:76B143A13888ED4A9A608439E87D63C00DA30FB4
 magnet:?xt=urn:btih:26E97043C8297B8EE8F420841BBE012EBADE69D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +183,8 @@ VideoHive - Automotive - 132508 [AEP]
 ```bash
 magnet:?xt=urn:btih:FDB0327FDD38F1F7288BF921E9D1183AFCA07A65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +212,8 @@ Resume Templates представляет собой коллекцию высо
 magnet:?xt=urn:btih:EB0EDC83D2D1ABFB97C1459504AE1A46EBFFAD43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +237,8 @@ magnet:?xt=urn:btih:EB0EDC83D2D1ABFB97C1459504AE1A46EBFFAD43
 ```bash
 magnet:?xt=urn:btih:F0FE84C7F52D051800960C905B1AB4657769CB48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +264,8 @@ magnet:?xt=urn:btih:F0FE84C7F52D051800960C905B1AB4657769CB48
 magnet:?xt=urn:btih:868EB3D4440CFA21FEBEBA909B483125A8648B7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +289,8 @@ magnet:?xt=urn:btih:868EB3D4440CFA21FEBEBA909B483125A8648B7D
 ```bash
 magnet:?xt=urn:btih:DF63538D90AA00047E7FAC569CFC67DD73CBEDCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +319,8 @@ Loretta Lynn - White Christmas Blue (2016) [MP3|320 Kbps] <Country>
 magnet:?xt=urn:btih:B9F32076F80DE26CCAED3720F6CDB768DF8B91A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +346,8 @@ magnet:?xt=urn:btih:B9F32076F80DE26CCAED3720F6CDB768DF8B91A8
 ```bash
 magnet:?xt=urn:btih:3AB4CD832F0C7E41568135562E925A9C0E763355
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +376,8 @@ VA - 50 Top House Tracks For Christmas (Special Collection Of Best House And Dee
 magnet:?xt=urn:btih:8EB95D0B51E4CFCCEED85E60733E1382C5880F17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +401,8 @@ magnet:?xt=urn:btih:8EB95D0B51E4CFCCEED85E60733E1382C5880F17
 ```bash
 magnet:?xt=urn:btih:5EC341885D57E3AB85253C7089BD80D0DB3CF8B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +431,8 @@ VA - Скалолазка и Последний из Седьмой колыбе
 magnet:?xt=urn:btih:473264FAC93E1C2400FCC231A32DF5D6CF73BABB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +460,8 @@ Ligabue - Made in Italy (2016) [FLAC|Lossless|tracks + .cue] <Pop rock, Soft roc
 magnet:?xt=urn:btih:F251BFDC1E9712FF55DAA49386749576B9F812EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +485,8 @@ magnet:?xt=urn:btih:F251BFDC1E9712FF55DAA49386749576B9F812EF
 ```bash
 magnet:?xt=urn:btih:D0161CD03B6FC623BE24623FBA0E080AAA2AC9FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +512,8 @@ magnet:?xt=urn:btih:D0161CD03B6FC623BE24623FBA0E080AAA2AC9FE
 magnet:?xt=urn:btih:2FE549F90DE512C77A2C3C587E84CC402A8FED9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +537,8 @@ magnet:?xt=urn:btih:2FE549F90DE512C77A2C3C587E84CC402A8FED9F
 ```bash
 magnet:?xt=urn:btih:4EB4EA8808D4867EF9BCF1BB3E94E99A71012BCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +564,8 @@ magnet:?xt=urn:btih:4EB4EA8808D4867EF9BCF1BB3E94E99A71012BCD
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +589,8 @@ magnet:?xt=urn:btih:4EB4EA8808D4867EF9BCF1BB3E94E99A71012BCD
 ```bash
 magnet:?xt=urn:btih:29A9320656DE2EAFE7EF164DEC1A6CA7A3AB09B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +619,8 @@ magnet:?xt=urn:btih:29A9320656DE2EAFE7EF164DEC1A6CA7A3AB09B0
 magnet:?xt=urn:btih:4C2F95A6E2ED38976063CC96556BE3C26EC1D8D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +647,60 @@ magnet:?xt=urn:btih:4C2F95A6E2ED38976063CC96556BE3C26EC1D8D1
 ```bash
 magnet:?xt=urn:btih:4115BB0BF5503063E1BF5FDA1987FA8E628141ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582476   (323473) от 09.10.2022
+
+Macrorit Data Wiper 6.3.4 Unlimited Edition RePack (& Portable) by 9649 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Macrorit Data Wiper Unlimited Edition – мощная утилита, которая поможет вам полностью очистить диск. Если вы хотите удалить данные с жесткого диска, форматирования или простого удаления недостаточно, чтобы защитить свои личные данные или корпоративные документы от восстановления. Вам нужен профессиональный инструмент по очистке диска, который полностью сотрет все (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01ED048948F8D6B7655F8276668BD2A065C1023E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582483   (323474) от 09.10.2022
+
+Фёдор Достоевский | Записки из подполья (2003) [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323474.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Подполье» — аллегорический образ. Герой не имеет никакого отношения к революционной деятельности. Он вообще недеятелен, даже уже и не думает о ней. «Подполье» — иное название для атомарности. Ключевая фраза: «Я-то один, а они все». Мысль о личном превосходстве над остальными, как бы ничтожна не была жизнь, как бы не пресмыкался интеллигент, — квинтэссенция этой (   Читать дальше...   )Жанр: Классическая проза, ПовестьПродолжительность: 05:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61B64B8C0F25340803626BF373672FE1ED5B766C
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

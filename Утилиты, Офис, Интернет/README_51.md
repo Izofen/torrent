@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:13155C274DB5CF6B96C0EC3BE7AF9E008F546004
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ IObit Uninstaller - эффективная программа для полно�
 magnet:?xt=urn:btih:22B7C8816B1A462D0B28A049FEF19A59036C1D22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ FontCreator - Редактор шрифтов FontCreator может созда�
 ```bash
 magnet:?xt=urn:btih:97CCA34C13508E93D207851BD563C901EEEAEBDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ WinPing - небольшая бесплатная портативная (не �
 magnet:?xt=urn:btih:381295E6CE242D8CACA824D4F8D52BA9E6654BC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Infix PDF Editor Pro 7.7.0 RePack by KpoJIuK [Ru/En]
 magnet:?xt=urn:btih:3A566F6FA4E586AA3E1F43DA22564B1BD8C79F3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:70886001F68EE060D07A3DA7ADFCEB3A0300DE11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ iTubeGo YouTube Downloader 10.9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:DC69F0C4D0F2932EA5D83991BB8EE9843ED40187
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ RAM Saver Pro - инструмент для профессионального �
 magnet:?xt=urn:btih:ED00104B14F98563BB3CCFF4A49233F5A0399FCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Office Installer - программа предназначена для online �
 ```bash
 magnet:?xt=urn:btih:4146E0391090631FA88E9B1A34F618D7F612680A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Office 2013-2024 C2R Install + Lite 7.7.7.7 ++ r27 Portable by Ratiborus [Multi/
 magnet:?xt=urn:btih:388C4E25271A680E6886C453DD0F88308E479E14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ TreeSize Professional 9.6.1.2156 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:96862B30F210DBC941CCDA0BAF9B99A4249D2D46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ Typora — это лёгкий и удобный редактор для соз�
 magnet:?xt=urn:btih:E78135420EEE4F60DE378DBAA35755FE279C12B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:E07B153E183DD32C49F917780DDFE15260D0BA6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 magnet:?xt=urn:btih:7EE141AECE1DF005984BF319AFF509361F8D7392
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ MyLanViewer — программа для сканирования и монит
 ```bash
 magnet:?xt=urn:btih:3696E5854DED06703843B7862367F437B99B094D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 magnet:?xt=urn:btih:DD262BF37F5295A829D2E90499E426A7920ABD0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ Infix PDF Editor Pro 7.7.0 RePack (& Portable) by TryRooM [Ru/En]
 ```bash
 magnet:?xt=urn:btih:6AFDB0F37831B9DDF3E625E451D27A7D5E3D40D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Pale Moon - веб-браузер, созданный на базе популя
 magnet:?xt=urn:btih:14A9808C9820BD06B5CF5C34BDCF064A90A85544
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Mailbird — очень интересный почтовый клиент. Пр
 ```bash
 magnet:?xt=urn:btih:A80F73A3F19031D82EF7A545CEC3B26778A5DEEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ GPXSee - перед вами программа, которая предлага
 magnet:?xt=urn:btih:AD0202719319918D12D55CD59E7A991907051CF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ WinUtilities - набор утилит WinUtilities Professional для наст
 ```bash
 magnet:?xt=urn:btih:2BCBD895EBD8215255DFA6193254E7653B7A88C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ CPUID HWMonitor - утилита предназначена для монито�
 magnet:?xt=urn:btih:ECDBA4CAD0D9854B311238FEA7C00F89CCE9AB2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Movavi Gecata 6.1.2 (x64) RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5493DA365188A1F39AFF932C24036FE38FBD49CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ Discord - мессенджер для текстовой, голосовой и 
 magnet:?xt=urn:btih:EA85E98812C7CB715B65B887179ADF6C190E382B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ uTorrent (AdFree) 3.5.5 Build 46552 Stable Portable by A1eksandr1 [Ru/En]
 magnet:?xt=urn:btih:8BDF2E446B8F6FDC4537281C4B10B8A2E0ECEB7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Start Menu X 7.33 SpaceX [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2388016BE3CE91B9207E160D16477A1351CE41AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

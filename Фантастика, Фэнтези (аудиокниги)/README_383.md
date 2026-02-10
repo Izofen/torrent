@@ -1,3 +1,29 @@
+###  Публикация: 1043568   (570805) от 17.08.2016
+
+Николай Андреев | Метрополия (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переговоры с Маорой не принесли желаемого результата — снова война. Планету горгов необходимо найти, и возглавит эту экспедицию, конечно, Олесь. В результате поисков найдена новая высокоорганизованная цивилизация; кто они — союзники или враги — ещё предстоит выяснить.Тьма и Свет также вступили в свою схватку, и кто погибнет на этот раз, неизвестно.Жанр: Боевая фантастикаПродолжительность: 12:10:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BD36CAC1CF44320D5794B830AC8448AB0E26BE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 689117   (571547) от 14.08.2013
 
 Алан Дин Фостер | Чужие [Вторая война лейтенанта Рипли] (2013) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:296D7CA24ACF608DE941C3DB14529205DD028294
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:296D7CA24ACF608DE941C3DB14529205DD028294
 ```bash
 magnet:?xt=urn:btih:995A5BA7F7483D8568EFD9EEA76DAF702259845E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:995A5BA7F7483D8568EFD9EEA76DAF702259845E
 magnet:?xt=urn:btih:A49C77E17C830CED1D4E3DC124AC992509B5380B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:A49C77E17C830CED1D4E3DC124AC992509B5380B
 magnet:?xt=urn:btih:CC17345B1B3A2ED868458B3351FC82D58271AC0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:CC17345B1B3A2ED868458B3351FC82D58271AC0D
 ```bash
 magnet:?xt=urn:btih:DF66D25B47E2FBBBF639963E71D27B1C6EB67B76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:DF66D25B47E2FBBBF639963E71D27B1C6EB67B76
 magnet:?xt=urn:btih:3C1BD638DB0548AED1E94DD0CD5327F4B0F5DA1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:3C1BD638DB0548AED1E94DD0CD5327F4B0F5DA1F
 ```bash
 magnet:?xt=urn:btih:6E69FB0F1200B667514CC331AC8FCFCE8DC2A47A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:6E69FB0F1200B667514CC331AC8FCFCE8DC2A47A
 magnet:?xt=urn:btih:8EAF8913117A68E5F74C39FC1D2D0689F24F6D56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:8EAF8913117A68E5F74C39FC1D2D0689F24F6D56
 ```bash
 magnet:?xt=urn:btih:87FA03165BF1B1AE8048A2B9CAE8A23D28340985
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:87FA03165BF1B1AE8048A2B9CAE8A23D28340985
 magnet:?xt=urn:btih:0F2952E1B1368A6816FD8E8370C71F5826AAC7CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:0F2952E1B1368A6816FD8E8370C71F5826AAC7CB
 magnet:?xt=urn:btih:D8808D9A0BB1C199B61CE4FE41DC5D9651B9D641
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:D8808D9A0BB1C199B61CE4FE41DC5D9651B9D641
 ```bash
 magnet:?xt=urn:btih:03156D0F4CD7B304D120ED4EBD6AA40530352A19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:03156D0F4CD7B304D120ED4EBD6AA40530352A19
 magnet:?xt=urn:btih:13DD3D6959FDDC21417A5263B155AFFB9D21584C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:13DD3D6959FDDC21417A5263B155AFFB9D21584C
 magnet:?xt=urn:btih:24C3DD121DBB743EB00F7B139A55A6AF9506B28E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:24C3DD121DBB743EB00F7B139A55A6AF9506B28E
 ```bash
 magnet:?xt=urn:btih:F56FC0794EF5F240E11D9CD8B8343F0ABE278351
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:F56FC0794EF5F240E11D9CD8B8343F0ABE278351
 magnet:?xt=urn:btih:216DF911FA8B40B9ABD43936897645E755AAAB5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:216DF911FA8B40B9ABD43936897645E755AAAB5B
 magnet:?xt=urn:btih:F14371F93B0931CF6E7569B0DB2B566E12F39F38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:F14371F93B0931CF6E7569B0DB2B566E12F39F38
 magnet:?xt=urn:btih:75829858A944707DFD7CBE1DA6907588260FD94F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:75829858A944707DFD7CBE1DA6907588260FD94F
 ```bash
 magnet:?xt=urn:btih:988CA386F885EC9FD7379435E978BE9EE1DE6339
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:988CA386F885EC9FD7379435E978BE9EE1DE6339
 magnet:?xt=urn:btih:5FAA5D44EF2C98C58E85B59F92A27923AA9BF248
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:5FAA5D44EF2C98C58E85B59F92A27923AA9BF248
 magnet:?xt=urn:btih:910751343EE8089E782A6FB9A5982C2E06DAEB64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:910751343EE8089E782A6FB9A5982C2E06DAEB64
 ```bash
 magnet:?xt=urn:btih:B4C0226365141D2A317ABFC22DFF38B7F14F7B10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:B4C0226365141D2A317ABFC22DFF38B7F14F7B10
 magnet:?xt=urn:btih:DF43496726FAE94FB26975B2366A1E2BF30E5565
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:DF43496726FAE94FB26975B2366A1E2BF30E5565
 ```bash
 magnet:?xt=urn:btih:EBF2D34F6C2A878C24FC27576374F0FA43756AEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,29 +683,7 @@ magnet:?xt=urn:btih:EBF2D34F6C2A878C24FC27576374F0FA43756AEB
 magnet:?xt=urn:btih:48F42336C73EDFC15149413A8A08F5AC2D06CD6C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234009   (574423) от 03.07.2018
-
-Елена Звёздная | О тёмных лордах и магии крови (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот роман продолжает известный цикл «Мертвые игры», погружающий читателей в особую атмосферу магии, приключений, соперничества и интриг в древнейшей Академии некромантии. Подготовка к Королевским Мертвым Играм в самом разгаре. Рие, талантливой девушке-артефактору, предстоит освоить свои новые способности, а еще – разобраться с тем, что происходит в ее сердце. Впрочем, (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 08:08:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83CEFB3AAE8E2251D9118D3AB732F32D3F85CDE9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -24,6 +24,8 @@ Tierra Negra - немецкий гитарный дуэт Leo Henrichs and Raugh
 magnet:?xt=urn:btih:87443B3532F8C2D27EAD5B4404FAA5228AAE7069
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ Medwyn Goodall - The Wolfstone (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:A38A72821D8AAEF1C6BB77A24463C774025539D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -78,6 +82,8 @@ Shanti People - Urban Mantras (2015) [MP3|320 Kbps] <New age, Folk, Meditative>
 magnet:?xt=urn:btih:5818760EF3D62AE6812313E2540D8837871F3BB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -104,6 +110,8 @@ Johannes Linstead - Discography (1999-2017) [FLAC|Lossless|tracks + .cue] <Flame
 ```bash
 magnet:?xt=urn:btih:E0E4EE1DEF1A69E57F6FCD8DB9BFC56F85130BCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -132,6 +140,8 @@ Tierra Negra - Discography (1997-2020) [MP3|320 Kbps] <Flamenco, Acoustic Guitar
 magnet:?xt=urn:btih:F5C4345398AAAF6570EBFC85BCC9246CF856FBD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -158,6 +168,8 @@ Shanti People - Krishna is Love (2013) [MP3|320 Kbps] <New age, Folk, Meditative
 ```bash
 magnet:?xt=urn:btih:7F5949C9733F9BFE20F63DC649FDD2FE6FE05D85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -186,6 +198,8 @@ Johannes Linstead - Discography (1999-2017) [MP3|320 Kbps] <Flamenco, Guitar, La
 magnet:?xt=urn:btih:3DAD341FABF92DC4E4F3BEAF3AC5580B59F91575
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +226,8 @@ OST - Вампиры средней полосы (2020) [MP3|320 Kbps] <Саун
 ```bash
 magnet:?xt=urn:btih:0C21F80FF669231B70EFC8952031A86C1910647A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +256,8 @@ Kailash Kokopelli - Collection (2000-2005) 2альбома [MP3|320 Kbps] <Nativ
 magnet:?xt=urn:btih:A20123B4A8EF806953E85CC84CE81728825BCF7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +284,8 @@ VA - Tribal Dreaming (2005) [MP3|320 Kbps] <NewAgе, Tribal-trance, Chillout>
 ```bash
 magnet:?xt=urn:btih:D647B54A8D414895F099EC6663B537804473968B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +314,8 @@ Gandiva - All Your Grace (2020) [FLAC|Lossless|WEB-DL|tracks] <World, Mantras>
 magnet:?xt=urn:btih:732EB8DA94AC57E17857F1F4423A0591C54095F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +342,8 @@ Behzad (Behzad Aghabeigi) - 5 альбомов (1997-2017) [MP3|320 Kbps] <Flame
 ```bash
 magnet:?xt=urn:btih:4C97D8AEB95819004DD1C683171C349B9AC1137C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +372,8 @@ Bryan Lubeck, Johannes Linstead & Tomas Michaud - We Three Strings (2006) [FLAC|
 magnet:?xt=urn:btih:3726B62918410254B2322118AF9EE1BF5EB3F7C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +400,8 @@ Benjamin Wallfisch - Mortal Kombat / Мортал Комбат (Original Motion 
 ```bash
 magnet:?xt=urn:btih:865EDDCAC71B4E34824CB4E4467D16D1517B24E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +430,8 @@ Benjamin Wallfisch - Mortal Kombat / Мортал Комбат (Original Motion 
 magnet:?xt=urn:btih:8B5CE5812DE05A3B3385EACF32E8D250A0041403
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +458,8 @@ Benjamin Wallfisch - Mortal Kombat (Original Motion Picture Soundtrack) (2021) [
 ```bash
 magnet:?xt=urn:btih:791E872225D831DF5A60916000F34612AC79609B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +488,8 @@ Erotic Sex Audio XXX - Hot and Sexy Ringtones (2010) 2CD [MP3|320 Kbps] <Rington
 magnet:?xt=urn:btih:A4A71A29777F620914EF9836D7BCCBCC032DB134
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +516,8 @@ Robbie Robertson - Collection (1994-1998) 2 альбома [MP3|320 Kbps] <Nativ
 ```bash
 magnet:?xt=urn:btih:74CA63657DC91890BB748F824EACF02B8AEE1123
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +546,8 @@ VA - Best Of Green Hill Music: The Piano Collection (2021) [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:67E083FCBA33CF6D901F5960ED7A0AFA2591742F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +574,8 @@ Mariza - Mariza Canta Amalia (2020) [FLAC|Lossless|image + .cue] <Fado, Bossanov
 ```bash
 magnet:?xt=urn:btih:034118732F10F3C347899346F9CE0DB802FFDD2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +604,8 @@ Yuval Ron - Four Divine States of Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Wor
 magnet:?xt=urn:btih:C11C4317C0BB05C58FE57A331E2D1E59AADBE31E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +632,8 @@ Francis Goya - Europe Vol. 5: Latino (2006) [MP3|320 Kbps] <Flamenco, Easy Liste
 ```bash
 magnet:?xt=urn:btih:EB0D66069B3E269E900D59255818D5C7DD2C64DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +662,8 @@ magnet:?xt=urn:btih:EB0D66069B3E269E900D59255818D5C7DD2C64DF
 magnet:?xt=urn:btih:A817F8B23976B2D27E5D91B184B9E89E1332A683
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +690,8 @@ Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Original Motion 
 ```bash
 magnet:?xt=urn:btih:DD6F9B061A998978472BB45B79C61637848BEE8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -672,6 +720,8 @@ Oscar Lopez - Guitar Masters (2002) Compilation [MP3|320 Kbps] <Flamenco, Guitar
 magnet:?xt=urn:btih:0F9CBC2FEDE047D6126D6C2C2D2152812F9EB8A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -698,6 +748,8 @@ Tom Holkenborg (aka Junkie XL) - Godzilla vs. Kong / Годзилла проти
 ```bash
 magnet:?xt=urn:btih:EBB15A744B58F72E42D5115BFDB70BABFBD932CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

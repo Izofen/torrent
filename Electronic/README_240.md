@@ -22,6 +22,8 @@ VA - Voice Hits Vol. 2 (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:655AD45C6F18B9BACE8C2BA0967CC18BFDE9D6CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Crossfit Selection 2 (2020) [MP3|320 Kbps] <Techno, Melodic House>
 ```bash
 magnet:?xt=urn:btih:293A6936EA50D4B73224641330E5D5276B795DD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Black Hole Trance Music 08-22 (2022) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:63610B4976CEA0323C2470CBA4AD81FC4F0557FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ A-Ha - Lifelines (2002) Deluxe Edition, Remastered, 2019, Warner Music [OGG|485 
 ```bash
 magnet:?xt=urn:btih:441E89362247D2F2FBFAA616A4C933B54EB32073
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Vocal Trance Gems - Summer 2022 [MP3|320 Kbps] <Uplifting Trance>
 magnet:?xt=urn:btih:5EFE992350F8C421907DE54C446E6BAB37E0B931
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Alex Cortiz - Deep Deluxe (2015) [MP3|320 кб/с]<Electronic, Deep House>
 ```bash
 magnet:?xt=urn:btih:E8FE8D4DD877A763A5909049994DABBAEB95CD96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Armin van Buuren - A State Of Trance Episode 982 (2020) [MP3|320 Kbps] <Tra
 magnet:?xt=urn:btih:2004A176295C8B81C39C48298B7E3DC22B9B0B3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Koto - Masterpieces (1989) [OGG|485 Kbps] <Synthpop>
 ```bash
 magnet:?xt=urn:btih:31F271FC0B66DC17CAE9666FAABD959F4F86CA27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Eurythmics - We Too Are One (1989) Remastered ,2018, RCA [OGG|485 Kbps] <Synthpo
 magnet:?xt=urn:btih:4ED0B601FEF4DD1373C39FDF455D82CA3B36A0CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Crossfit Selection 1 (2020) [MP3|320 Kbps] <Tech House>
 ```bash
 magnet:?xt=urn:btih:DCDC72592F3B53BC35478FF7512A88D0E822C26B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Azure Ibiza (2020) [FLAC|Lossless|tracks] <Trance>
 magnet:?xt=urn:btih:B12EFC0F88A3A265D8F93554858F270CF37C0A18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Aurosonic - Winter Sessions (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:AEFC87CDCADC09FEFDB316301C6548575D5D9664
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +376,8 @@ Various Artists - Future Bass: Ministry of Sound (2012) [MP3|320 кб/с]<Tech /
 magnet:?xt=urn:btih:0503235AB28FD97ED39D37B1395BD561B6AE9285
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +411,8 @@ Peter Gun - Powder (2012) [MP3|320 кб/с]<Progressive House, Tech House>
 magnet:?xt=urn:btih:470018277345F748424243754902B199E3C6E816
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +440,8 @@ Sparks - Hippopotamus (2017) [FLAC|Lossless|image + .cue] <Synthpop, Pop Rock>
 magnet:?xt=urn:btih:4D2AA3E57A6B99F108B973459E81E29C55446624
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +465,8 @@ Desimal - Discography 9 Releases (2005-2015) Armada, Obsessions, Barcode [FLAC|L
 ```bash
 magnet:?xt=urn:btih:8AB8DD9D112792D338B2D4DE862362F685C6A3A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +495,8 @@ VA - Elles De Graaf - The Long Run - The Best Of (2018) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:AB8DA754D5C3DA607AD55E8CDB0BFA05286B390A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +523,8 @@ VA - Aly & Fila - Future Sound Of Egypt 512 (2017) [MP3|320 Kbps] <Trance,Uplift
 ```bash
 magnet:?xt=urn:btih:AAE2756BB1B973190B8A09357800B0894C440AA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +553,8 @@ VA - Sheridan Grout Presents Escape Vol.1 (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:C69E98A72EFD28373D94B9349E8FA27132252E5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +581,8 @@ Cherie Lily - WERK: The Remix EP (2010) [FLAC|Lossless|tracks + .cue] <Electro H
 ```bash
 magnet:?xt=urn:btih:DB12DB00934ACE1E1FC26EB99A97880D1A883831
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +611,8 @@ Big Giant Circles - The Glory Days (2014) Limited Edition [FLAC|Lossless|tracks 
 magnet:?xt=urn:btih:0000DACC8D482262D8DB0856E3DB913D279F11CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +639,8 @@ C418 - 72 Minutes of Fame (2011) [FLAC|Lossless|tracks + .cue] <House, Breakbeat
 ```bash
 magnet:?xt=urn:btih:A087FC6DA36CB1FCF5ED4C951B97464310AC91EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +669,8 @@ Shadowax - Nikolai Reptile (2019) трип [FLAC|Lossless|WEB-DL|tracks] <Bassli
 magnet:?xt=urn:btih:D98CD96A25130754FB72CF51A6544B9061783899
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +697,8 @@ VA - Armada - Amsterdam Dance Event (2016) [FLAC|Lossless|WEB-DL|tracks] <House,
 ```bash
 magnet:?xt=urn:btih:8464E3128C737DF6FF94F6C998A83D58CB475658
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -679,6 +727,8 @@ Markus Schulz:
 magnet:?xt=urn:btih:A7109F81F242C54F2E7070B9F9282B0BEFC190FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -705,6 +755,8 @@ Cherie Lily - The Dripping Wet EP (2013) [FLAC|Lossless|tracks + .cue] <Electro 
 ```bash
 magnet:?xt=urn:btih:B74E0DF6A2A762A6A6A304AF35EA59689412534B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

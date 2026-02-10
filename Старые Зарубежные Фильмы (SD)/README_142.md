@@ -1,28 +1,3 @@
-###  Публикация: 923997   (560601) от 02.08.2015
-
-Время убивать / Tempo di uccidere (1989) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Африка. Высадившиеся войска занимают боевые позиции в сложных тропических условиях. Неприветливая страна заражена неизлечимыми болезнями и встречает открытой враждебностью местных аборигенов.
-Молодой офицер в походе оказывается втянутым в сложную ситуацию преступления и возмездия, которое способно изменить всю его дальнейшую жизнь…Производство: Италия, Франция / Dania Film, DMV Distribuzione, Ellepi Films, Italfrance Films, Reteitalia, Surf FilmЖанр: Драма, ВоенныйРежиссер: Джулиано МонтальдоАктеры: Николас Кейдж, Рикки Тоньяцци, Патрис-Флора Праксо, Джанлука Фавилла, Жорж Клесе, Робер Лиенсоль, Витторио Амандола, Пао Пей Андреоли, Марио Мадзаротто, Микеле МелегаПеревод: Многоголосый закадровыйЯзык субтитров: РусскийПродолжительность: 01:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E596F382A358AEEAB931FCB0E369FA0D06FE085A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924093   (560647) от 02.08.2015
 
 Скорая помощь / The Ambulance (1990) DVDRip [H.264]
@@ -43,6 +18,8 @@ magnet:?xt=urn:btih:E596F382A358AEEAB931FCB0E369FA0D06FE085A
 ```bash
 magnet:?xt=urn:btih:4E5C195E0A1F6070831B3E84B65876DD88C6ECD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +44,8 @@ magnet:?xt=urn:btih:4E5C195E0A1F6070831B3E84B65876DD88C6ECD5
 ```bash
 magnet:?xt=urn:btih:8D82457E87ACF5A76A2CBCC4346727443CFA21BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +72,8 @@ magnet:?xt=urn:btih:8D82457E87ACF5A76A2CBCC4346727443CFA21BD
 magnet:?xt=urn:btih:B546128F24893A13B5BCD9E050D05A3FB27BED56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +97,8 @@ magnet:?xt=urn:btih:B546128F24893A13B5BCD9E050D05A3FB27BED56
 ```bash
 magnet:?xt=urn:btih:1D45CBEB530D2CD69414A6DA02ACAA36E645F505
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +124,8 @@ magnet:?xt=urn:btih:1D45CBEB530D2CD69414A6DA02ACAA36E645F505
 magnet:?xt=urn:btih:663B78AB99403F2A06E17D0DE53B43EC05DE6681
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +149,8 @@ magnet:?xt=urn:btih:663B78AB99403F2A06E17D0DE53B43EC05DE6681
 ```bash
 magnet:?xt=urn:btih:5153CB0BFBA0E12DF1476F0821B8A32F6CFE7AE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +177,8 @@ magnet:?xt=urn:btih:5153CB0BFBA0E12DF1476F0821B8A32F6CFE7AE3
 magnet:?xt=urn:btih:09D6B7FABACDDAEAEC05D786B199EF1334F3392F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +204,8 @@ magnet:?xt=urn:btih:09D6B7FABACDDAEAEC05D786B199EF1334F3392F
 magnet:?xt=urn:btih:42D0CFA133BFF8C3CD22FBFA398BA6827F61DC84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +229,8 @@ magnet:?xt=urn:btih:42D0CFA133BFF8C3CD22FBFA398BA6827F61DC84
 ```bash
 magnet:?xt=urn:btih:DF835C2BE7EC0B74A6C7F9915D77A81B842719E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +256,8 @@ magnet:?xt=urn:btih:DF835C2BE7EC0B74A6C7F9915D77A81B842719E7
 magnet:?xt=urn:btih:C081403DB37412B4BBCF101294923365713C3916
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +281,8 @@ magnet:?xt=urn:btih:C081403DB37412B4BBCF101294923365713C3916
 ```bash
 magnet:?xt=urn:btih:4143B6F8F3F963B2C4D97D3C6C239DE7067F85D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +308,8 @@ magnet:?xt=urn:btih:4143B6F8F3F963B2C4D97D3C6C239DE7067F85D9
 magnet:?xt=urn:btih:902DD40DDCD5757224837D0381789B7B2471FF03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +333,8 @@ magnet:?xt=urn:btih:902DD40DDCD5757224837D0381789B7B2471FF03
 ```bash
 magnet:?xt=urn:btih:7CEA7E6B1E9AE5C365395CF524358E4A6C0811B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +361,8 @@ magnet:?xt=urn:btih:7CEA7E6B1E9AE5C365395CF524358E4A6C0811B2
 magnet:?xt=urn:btih:B2C256F5BB820B3448DE30039626A1AC13D97500
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +386,8 @@ magnet:?xt=urn:btih:B2C256F5BB820B3448DE30039626A1AC13D97500
 ```bash
 magnet:?xt=urn:btih:F5E186F806F495100F45F76F80E816FF7D2DCAF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +413,8 @@ magnet:?xt=urn:btih:F5E186F806F495100F45F76F80E816FF7D2DCAF3
 magnet:?xt=urn:btih:08468F167B0DE5DFC60923A31349B1D085023597
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +439,8 @@ magnet:?xt=urn:btih:08468F167B0DE5DFC60923A31349B1D085023597
 magnet:?xt=urn:btih:53C9953AEFC3A3F6F72CC79682BCD3D097A44BDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +464,8 @@ magnet:?xt=urn:btih:53C9953AEFC3A3F6F72CC79682BCD3D097A44BDB
 ```bash
 magnet:?xt=urn:btih:25DCCBFAAEAC2F13F3CE18F164AB33123C202092
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +493,8 @@ magnet:?xt=urn:btih:25DCCBFAAEAC2F13F3CE18F164AB33123C202092
 magnet:?xt=urn:btih:0A0180983F4E2A80964C362BB0A0009CB2F75DF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +520,8 @@ magnet:?xt=urn:btih:0A0180983F4E2A80964C362BB0A0009CB2F75DF6
 magnet:?xt=urn:btih:DF95E94ADD9464542E734B978CAB8A9DAA49873E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +545,8 @@ magnet:?xt=urn:btih:DF95E94ADD9464542E734B978CAB8A9DAA49873E
 ```bash
 magnet:?xt=urn:btih:86E36434DFCD6B7DFAE1E203D80955554887E6BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +572,8 @@ magnet:?xt=urn:btih:86E36434DFCD6B7DFAE1E203D80955554887E6BF
 magnet:?xt=urn:btih:F5212FFB4A149D7D8CF343B6105F398CC0F89119
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +597,8 @@ magnet:?xt=urn:btih:F5212FFB4A149D7D8CF343B6105F398CC0F89119
 ```bash
 magnet:?xt=urn:btih:2F2EB87E26B3534CA881BB97346EB6417C141FE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +624,8 @@ magnet:?xt=urn:btih:2F2EB87E26B3534CA881BB97346EB6417C141FE1
 magnet:?xt=urn:btih:5245A647D525FB6A3A635E30B66524D15F354E6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +649,34 @@ magnet:?xt=urn:btih:5245A647D525FB6A3A635E30B66524D15F354E6E
 ```bash
 magnet:?xt=urn:btih:D7CFC5A72B5EE99EF286B213C7BBEB9F0D8D045E
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555777   (566880) от 05.06.2022
+
+Ломка / Cold Turkey (1971) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_566880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на неопубликованном романе Маргарет и Нила Рау "Я отказываюсь от них навсегда". Табачная компания предлагает чек на 25 миллионов долларов любому американскому городу, население которого откажется от курения на 30 дней. Городок Игл Рок в штате Айова принимает этот вызов...Производство: США, DFI, Tandem ProductionsЖанр: комедияРежиссер: Норман ЛирАктеры: Дик Ван Дайк, Пиппа Скотт, Том Постон, Эдвард Эверетт Хортон, Винсент Гардения, Барнард Хьюз, Грэм Джарвис, Джин Степлтон, Барбара КейсонПеревод: профессиональный двухголосый (HTB+ Елена Борзунова и Павел Кипнис)Субтитры: английские SDHПродолжительность: 01:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20BA069202AF816C2138C7D6CDF9FBCD8C049B0C
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1847203   (1051888) от 11.01.2026
+
+Григорий Володин | История Телепата. Газлайтер (Книги 1-21) (2023-2025) [MP3, Никита Петров, Данила Максимов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цикл «История Телепата» Григория Володина, жанр попаданцы в магические миры, бояръ-аниме, альтернативная история. Мир необозримо большой, людей в нем бесконечно много, но каждый для меня как открытая книга. Ибо я сильнейший телепат. И это моя история. Говорят, что телепаты жестоки. Говорят, что телепаты обесценивают чужую волю и искажают сознания. Говорят, что телепаты (   Читать дальше...   )Жанр: Фантастика, попаданцыИздательство: ИДДКПродолжительность: 187:04:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CAEFF20632AA2AA71CEF5473F3289E33FC2C595
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847202   (1051890) от 11.01.2026
 
 Петр Алмазный | Медведев. Телохранитель Генсека (Книги 1-4) (2025) [MP3, Sibiryak]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:62BC90E72959841BCCC1E2112FCBC9FBCDC13823
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:62BC90E72959841BCCC1E2112FCBC9FBCDC13823
 magnet:?xt=urn:btih:F412F24AAE4572409AC5AD1BA0E5AF048BE4E9A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:F412F24AAE4572409AC5AD1BA0E5AF048BE4E9A6
 magnet:?xt=urn:btih:EDFB3A6B40316EC90986639FA4E35C5548ED9A36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:EDFB3A6B40316EC90986639FA4E35C5548ED9A36
 ```bash
 magnet:?xt=urn:btih:BD45D14F518049C0CB83F16C45F8509D2882EF3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:BD45D14F518049C0CB83F16C45F8509D2882EF3E
 magnet:?xt=urn:btih:66067FA5A0DBF6ABC3146B45B95B546B5A47BA6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:66067FA5A0DBF6ABC3146B45B95B546B5A47BA6E
 magnet:?xt=urn:btih:53E4D55FB48C67C012473A7E81084C3002B2713F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:53E4D55FB48C67C012473A7E81084C3002B2713F
 ```bash
 magnet:?xt=urn:btih:FFED7D120A84639D727235489A1B5C8C93C00F46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:FFED7D120A84639D727235489A1B5C8C93C00F46
 magnet:?xt=urn:btih:9F9868F478A0DD0FA0AC08DC27FFAE2B3AFF9536
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:9F9868F478A0DD0FA0AC08DC27FFAE2B3AFF9536
 ```bash
 magnet:?xt=urn:btih:226198974A12D69F9F1D80E78C3A56D297CE6830
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:226198974A12D69F9F1D80E78C3A56D297CE6830
 magnet:?xt=urn:btih:068C4F8DD745B19A7C27DED054A8A46F34633C4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:068C4F8DD745B19A7C27DED054A8A46F34633C4A
 ```bash
 magnet:?xt=urn:btih:72D9C35ED82E4F230921A25264B1764F4929AB9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:72D9C35ED82E4F230921A25264B1764F4929AB9F
 ```bash
 magnet:?xt=urn:btih:E07846C6B907B9697E227190C96C3A2D4C005723
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:E07846C6B907B9697E227190C96C3A2D4C005723
 magnet:?xt=urn:btih:F34DE94F4052B083C682949488FAE46DD1B8344B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +395,8 @@ magnet:?xt=urn:btih:F34DE94F4052B083C682949488FAE46DD1B8344B
 magnet:?xt=urn:btih:E8A738D1C3B3CEE93E4B0463CADBBCC7BDA85708
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:E8A738D1C3B3CEE93E4B0463CADBBCC7BDA85708
 ```bash
 magnet:?xt=urn:btih:C89DD59F5FF66D3CDD3D8D3ED3ED6138A459EF52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +447,8 @@ magnet:?xt=urn:btih:C89DD59F5FF66D3CDD3D8D3ED3ED6138A459EF52
 magnet:?xt=urn:btih:28FB8D723233297608523FEE36E16DC6AF852C1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +472,8 @@ magnet:?xt=urn:btih:28FB8D723233297608523FEE36E16DC6AF852C1C
 ```bash
 magnet:?xt=urn:btih:672440A8C286A7DBA398EF1E9890A951F90CE640
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +500,8 @@ magnet:?xt=urn:btih:672440A8C286A7DBA398EF1E9890A951F90CE640
 magnet:?xt=urn:btih:6302B242B62C367F63E733CB7880FA7AC70D7CE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:6302B242B62C367F63E733CB7880FA7AC70D7CE5
 magnet:?xt=urn:btih:19C61FE393C527181753BF832B16529DA0E04D60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:19C61FE393C527181753BF832B16529DA0E04D60
 ```bash
 magnet:?xt=urn:btih:D8E2B1C8D5E46778D5A2C76220B70FD9566A3699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +580,8 @@ magnet:?xt=urn:btih:D8E2B1C8D5E46778D5A2C76220B70FD9566A3699
 magnet:?xt=urn:btih:B70F4DD77C427D7E5B635BC4D9B8C44C104F1A44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:B70F4DD77C427D7E5B635BC4D9B8C44C104F1A44
 ```bash
 magnet:?xt=urn:btih:D90E20510E1B3E606AE9FD12DB79A10816B3E328
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +635,8 @@ magnet:?xt=urn:btih:D90E20510E1B3E606AE9FD12DB79A10816B3E328
 magnet:?xt=urn:btih:8F7DAEF7B0C12D26E37921CF74FC6E6596C31862
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +662,8 @@ magnet:?xt=urn:btih:8F7DAEF7B0C12D26E37921CF74FC6E6596C31862
 magnet:?xt=urn:btih:9FBC177F20A01DA6BDD3E3C8D4AB97BC5DFBAC9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,30 +688,7 @@ magnet:?xt=urn:btih:9FBC177F20A01DA6BDD3E3C8D4AB97BC5DFBAC9C
 magnet:?xt=urn:btih:13E2D1F18121586F0EAEECAF6A93D9C83C74EF56
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847507   (1052214) от 12.01.2026
-
-Ся Цзя | Далекое лето (Сборник) (2025) [MP3, Владимир Князев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052214.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Далекое лето» – уникальный сборник научно-фантастических рассказов из Китая, напоминающий по тону лучшие произведения Рэя Брэдбери. Ся Цзя соединяет в своих рассказах технологическое будущее с фольклорными корнями, мифами и ностальгией по исчезающему прошлому.
-Андроид-опекун заботится о дряхлом старике – под пристальным и наивным взглядом его сообразительной внучки. (   Читать дальше...   )Жанр: ФантастикаИздательство: Fanzon (Эксмо)Продолжительность: 12:14:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6998148E5EC2F2FEEA087978AF917FBF4B431F37
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

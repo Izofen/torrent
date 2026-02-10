@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:30EB29285AE2BCFD75CEB932984A75AB7CAC317C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:30EB29285AE2BCFD75CEB932984A75AB7CAC317C
 magnet:?xt=urn:btih:357EF317761731EB925DC228714E2A34D8E046DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ REVEIL (2024) [Ru/Multi] (1.0.3f4/dlc) License GOG [Funhouse Edition]
 ```bash
 magnet:?xt=urn:btih:03E71EE8EF80318784B94EAAA980523C30F0EC77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:613FF0DD67C14A673B36AFF45B90AC90370F92CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Hime-sama Goumon no Jikan Desu | Tis Time for Torture, Princess | Время "п
 ```bash
 magnet:?xt=urn:btih:99020F0C8F177C34BBC6239319D3D96340B60304
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:99020F0C8F177C34BBC6239319D3D96340B60304
 magnet:?xt=urn:btih:D4465285C08F0A526CA7B4A308617F7C4DB50C02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:D4465285C08F0A526CA7B4A308617F7C4DB50C02
 magnet:?xt=urn:btih:DEBA9D7AA4F8E51F1579E9D0D1FDE52977AB5130
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:DEBA9D7AA4F8E51F1579E9D0D1FDE52977AB5130
 ```bash
 magnet:?xt=urn:btih:C7206CCBDABFA2FA2C5C469CD404129C620FDDDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:C7206CCBDABFA2FA2C5C469CD404129C620FDDDA
 magnet:?xt=urn:btih:1CF55A066B4CB7ADE6F50D4D456724BE768C51C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:1CF55A066B4CB7ADE6F50D4D456724BE768C51C8
 ```bash
 magnet:?xt=urn:btih:D7E84AB6FC04A842C3977414FB40CF51986FD16A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:D7E84AB6FC04A842C3977414FB40CF51986FD16A
 magnet:?xt=urn:btih:8D7223F004B0CDB4EF4FC8BE7F2E5D4E4913BEAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:8D7223F004B0CDB4EF4FC8BE7F2E5D4E4913BEAC
 magnet:?xt=urn:btih:BBA4C690EBF81D7DDCC2ABDF6A84BD3A6BFA73FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:BBA4C690EBF81D7DDCC2ABDF6A84BD3A6BFA73FA
 ```bash
 magnet:?xt=urn:btih:56C63B9893318682316268BAA0CF66828AFB0B16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:56C63B9893318682316268BAA0CF66828AFB0B16
 magnet:?xt=urn:btih:D23C2238C208A76101A7B4A907C4D08DDF955C11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:D23C2238C208A76101A7B4A907C4D08DDF955C11
 magnet:?xt=urn:btih:D41DB34F23F99C9E42FC653F9563426FF1EA4442
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:D41DB34F23F99C9E42FC653F9563426FF1EA4442
 ```bash
 magnet:?xt=urn:btih:3E3D43FE79AF444E35D37161910C452389F150F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ PicWish — фоторедактор с искусственным (   Чита
 magnet:?xt=urn:btih:ED3CB009382F385CBE0B28644243EC28780DE90E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:ED3CB009382F385CBE0B28644243EC28780DE90E
 ```bash
 magnet:?xt=urn:btih:9682A03191C4B08EBCE827408D3884691FA4D147
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:9682A03191C4B08EBCE827408D3884691FA4D147
 magnet:?xt=urn:btih:B3788DB1268B0AB694AECB9F05852255E068B225
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:B3788DB1268B0AB694AECB9F05852255E068B225
 magnet:?xt=urn:btih:F1EA4A4EB8A9F548E4808946A1AD6638B17AF757
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Microsoft Office предоставляет удобные и простые с�
 ```bash
 magnet:?xt=urn:btih:4C7B194C456AA83D4996FD96020C1C66999A22EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Horizon Forbidden West – продолжение приключения охо�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Book of Demons это гибрид Hack & slash и карточной игры, 
 ```bash
 magnet:?xt=urn:btih:EAA9E99984B494A58E2B2C29B22D9BA4F2073605
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:EAA9E99984B494A58E2B2C29B22D9BA4F2073605
 magnet:?xt=urn:btih:DE55B20D3AAA667752C1C43D6065065A0BB26C5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ CapCut - Video Editor — бесплатный универсальный инс
 magnet:?xt=urn:btih:F197E23C713F9144E380762952FC88649DC758F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Sands of Aura (2021) [Ru/Multi] (1.01.25) License GOG
 ```bash
 magnet:?xt=urn:btih:2BA8A4D4BB822C523B40896865A4D51CCFB35D2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

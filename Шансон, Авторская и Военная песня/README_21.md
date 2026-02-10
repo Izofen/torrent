@@ -22,6 +22,8 @@ VA - Бархатный шансон 2025, Часть 2 (2025) [FLAC|Lossless|WE
 magnet:?xt=urn:btih:79BEBC6DF133761C12B099D4B59A00AD868B40E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Бархатный шансон 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:5CD51CBF8D078891F80DC169E1099A7CD3D7F95B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:5CD51CBF8D078891F80DC169E1099A7CD3D7F95B
 magnet:?xt=urn:btih:4484D1AB2EFC0AE8B87F241CC9EF8E2E380BE544
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Золотые дуэты русского шансона (2010) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:C7E6B6BD9483C67041391FFB3BD62B7925D750DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:C7E6B6BD9483C67041391FFB3BD62B7925D750DD
 magnet:?xt=urn:btih:57DCA70B3588B56E7FF244231982EF60F060D195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Калина красная 19. Песни, спетые сердцем (20
 ```bash
 magnet:?xt=urn:btih:80311BB3DE1D00807ABF6F58C2EC5207AD2B78C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:80311BB3DE1D00807ABF6F58C2EC5207AD2B78C6
 magnet:?xt=urn:btih:AD7BED58EBE7EA9492463B3024A0B6E3A5B37823
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:AD7BED58EBE7EA9492463B3024A0B6E3A5B37823
 ```bash
 magnet:?xt=urn:btih:24BACE8C8BA40A542C96EA72AAD483EC50BFD47C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:24BACE8C8BA40A542C96EA72AAD483EC50BFD47C
 magnet:?xt=urn:btih:A78F9D0FEA5EEDBF0A142D15154519389E621CF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:A78F9D0FEA5EEDBF0A142D15154519389E621CF8
 ```bash
 magnet:?xt=urn:btih:359866900CCCD7AFE6B14730F3F16C214A6DFE83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ magnet:?xt=urn:btih:359866900CCCD7AFE6B14730F3F16C214A6DFE83
 magnet:?xt=urn:btih:2ECF5268904B92C9087EF211788FFF9BC050E8D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ magnet:?xt=urn:btih:2ECF5268904B92C9087EF211788FFF9BC050E8D4
 ```bash
 magnet:?xt=urn:btih:953425B48631E9A7635CE44408851C5FF6B90002
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ magnet:?xt=urn:btih:953425B48631E9A7635CE44408851C5FF6B90002
 magnet:?xt=urn:btih:F1B07E6A38D5E071E5C4C234040EC431EB3B7C5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ magnet:?xt=urn:btih:F1B07E6A38D5E071E5C4C234040EC431EB3B7C5F
 ```bash
 magnet:?xt=urn:btih:42BC6E33DA7420DC32378B90E8ED989757AC1FBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ magnet:?xt=urn:btih:42BC6E33DA7420DC32378B90E8ED989757AC1FBB
 magnet:?xt=urn:btih:C1FC1CEE1500A7B11EF700CFC9F7482C32F3B6A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +457,8 @@ magnet:?xt=urn:btih:C1FC1CEE1500A7B11EF700CFC9F7482C32F3B6A9
 magnet:?xt=urn:btih:2E90E50FCB4E8A65A0B47F8CDB87523304F1F2E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +485,8 @@ VA - Шоферской 16 (2004) [MP3|320 Kbps] <Шансон>
 ```bash
 magnet:?xt=urn:btih:81A3A081C1CFBD9068BF668E8034715DDE9CA795
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +521,8 @@ magnet:?xt=urn:btih:81A3A081C1CFBD9068BF668E8034715DDE9CA795
 magnet:?xt=urn:btih:916229560261119C1F4F38FE854E1F273001E900
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +556,8 @@ magnet:?xt=urn:btih:916229560261119C1F4F38FE854E1F273001E900
 magnet:?xt=urn:btih:4B59F0F95C23679E01D624988306A5352F973A6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +581,8 @@ magnet:?xt=urn:btih:4B59F0F95C23679E01D624988306A5352F973A6E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +617,8 @@ magnet:?xt=urn:btih:4B59F0F95C23679E01D624988306A5352F973A6E
 magnet:?xt=urn:btih:7399BEB28DD1671F0A06A75B65585644E580713E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +645,8 @@ magnet:?xt=urn:btih:7399BEB28DD1671F0A06A75B65585644E580713E
 ```bash
 magnet:?xt=urn:btih:71E3549AD449C778F6053BD51A763C3211F9F189
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +681,8 @@ magnet:?xt=urn:btih:71E3549AD449C778F6053BD51A763C3211F9F189
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +709,8 @@ magnet:?xt=urn:btih:71E3549AD449C778F6053BD51A763C3211F9F189
 ```bash
 magnet:?xt=urn:btih:F5AE99115CEB9CB8FCA6D7F3190E43381D1B8856
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -697,6 +745,8 @@ magnet:?xt=urn:btih:F5AE99115CEB9CB8FCA6D7F3190E43381D1B8856
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -728,6 +778,8 @@ magnet:?xt=urn:btih:F5AE99115CEB9CB8FCA6D7F3190E43381D1B8856
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Karpov.courses | Продвинутая аналитика данных (2023) W
 magnet:?xt=urn:btih:6E7A0D243B20E05A6FA7D6B2F9438A24BEE96C46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Paul Anthony | Техники и приемы для портативного ф
 ```bash
 magnet:?xt=urn:btih:F44E31A74E2075B804BDD93654518C5D9A17D5F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:F44E31A74E2075B804BDD93654518C5D9A17D5F9
 magnet:?xt=urn:btih:786AD43D92114ABEE2A718CB00EFFD1596BC65FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Udemy, 3D Tudor | Blender 4 Geometry Nodes for Beginners (2024) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:D1B889B5E42FE8DAC2BC8DD4A2FDCEF2FBC53766
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:D1B889B5E42FE8DAC2BC8DD4A2FDCEF2FBC53766
 magnet:?xt=urn:btih:F0F1D916B123CBF48A0894854C7F1AC22591C04C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Udemy, Jacob Zirkle | Blender VFX Course: From Beginner To Pro! (2024) PCRec [EN
 ```bash
 magnet:?xt=urn:btih:29A10EC219F7B3EAF1D0C327BB83C6BE4A12E2F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:29A10EC219F7B3EAF1D0C327BB83C6BE4A12E2F3
 magnet:?xt=urn:btih:7FF1F7B192E69447FB1EEA9A30DE278A434024EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ Gumroad, Thiago Klafke | Environment Art Mastery (2023) WEB-DL [EN]
 magnet:?xt=urn:btih:499954237BCF9B1700B91F1C3244E13916B275C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:499954237BCF9B1700B91F1C3244E13916B275C2
 ```bash
 magnet:?xt=urn:btih:3C7447A811F7EB4433A4387F42E77CA1B99BF7E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Udemy, Александр Сокирка | Руководство по WordPress
 magnet:?xt=urn:btih:562FE9FE6F7AAC7B248806D20E46A2391C93A08C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:562FE9FE6F7AAC7B248806D20E46A2391C93A08C
 ```bash
 magnet:?xt=urn:btih:8A44EB9892CAFD499F0168CD6DDBADB06F5ACB72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:8A44EB9892CAFD499F0168CD6DDBADB06F5ACB72
 magnet:?xt=urn:btih:F0CC19C8EFBDF6E4BED928F808F992DD82D80B9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:F0CC19C8EFBDF6E4BED928F808F992DD82D80B9B
 ```bash
 magnet:?xt=urn:btih:2928739446B0A9481D3EAD056924670800816C35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:2928739446B0A9481D3EAD056924670800816C35
 magnet:?xt=urn:btih:B7ADC5BC28FA2D220CFD341F81C22F8EE8EDF13E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +408,8 @@ magnet:?xt=urn:btih:B7ADC5BC28FA2D220CFD341F81C22F8EE8EDF13E
 ```bash
 magnet:?xt=urn:btih:08AACE9E24BC3C8D794C7D08DDA9B96AC25C94D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +438,8 @@ Gumroad, Dan Kenton | Revolver Texturing Tutorial (2023) WEB-DL [EN]
 magnet:?xt=urn:btih:F898F7591FC68727B726D64764872373D8D7A69D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +466,8 @@ magnet:?xt=urn:btih:F898F7591FC68727B726D64764872373D8D7A69D
 ```bash
 magnet:?xt=urn:btih:5E0486BD03BFE282EEDFA5C70C95F5BB5C765F61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +496,8 @@ Balun.Courses, Максим Фатин | Подготовка к алгорит�
 magnet:?xt=urn:btih:70F25292CDDAD0C453076ACD75DBD4DA632CAB02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +525,8 @@ WebForMySelf | Закрытый клуб для веб-мастеров. Под�
 magnet:?xt=urn:btih:2543A818258A478D1F9347DC6E00BAA842CB9490
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +550,8 @@ Slurm (Слёрм), Павел Калашников | Linux для разраб�
 ```bash
 magnet:?xt=urn:btih:149A3733BF8B51660A00FF67D37FE4D228312E19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +577,8 @@ Creative Shrimp, Gleb Alexandrov | Cinematic Lighting in Blender (2022) PCRec [E
 ```bash
 magnet:?xt=urn:btih:C86E8B47DAB54A79BF4412A4EB999E3C0196FC92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +607,8 @@ magnet:?xt=urn:btih:C86E8B47DAB54A79BF4412A4EB999E3C0196FC92
 magnet:?xt=urn:btih:549AF9FF70AE7FAE18324EAB69B830E739B87EB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +635,8 @@ Leonardo — бесценный инструмент для создателей
 magnet:?xt=urn:btih:6B73CF5720428C8699B5B5B6C942CE9C8069BCA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +662,8 @@ magnet:?xt=urn:btih:6B73CF5720428C8699B5B5B6C942CE9C8069BCA1
 ```bash
 magnet:?xt=urn:btih:FEFF9AC905D9755215694C3B6094B451CB9B9372
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +692,8 @@ magnet:?xt=urn:btih:FEFF9AC905D9755215694C3B6094B451CB9B9372
 magnet:?xt=urn:btih:4BCE1870E77974FE2DDA98857721AFC919DA649D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +719,8 @@ magnet:?xt=urn:btih:4BCE1870E77974FE2DDA98857721AFC919DA649D
 ```bash
 magnet:?xt=urn:btih:62CC0F7A19CF93EFF6CD2EB511E7845EA290EADF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

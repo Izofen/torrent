@@ -1,3 +1,67 @@
+###  Публикация: 1375828   (864020) от 15.04.2020
+
+Leeched - To Dull the Blades of Your Abuse (2020) [FLAC|Lossless|tracks] <Sludge Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hound's Jaw [00:02:37]
+02. The Grey Tide [00:05:04]
+03. I, Flatline [00:04:13]
+04. Now It Ends [00:03:23](   Читать дальше...   )Жанр: Sludge Metal, MetalcoreПродолжительность: 00:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3E7223E4F63F3B31B50B9BE346E553DDB7EB061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 645914   (864338) от 19.04.2013
+
+Affiance  - 2 альбома (2010-2012) [FLAC|Lossless]<Melodic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+<<<
+----------------------------------------------------------------------------
+01. Kings Of Deceit (feat. Dustin Davidson of August Burns Red)
+02. You Will Be Replaced
+03. We The Machines
+04. Bohemian (feat. Matty Mullins of Memphis May Fire)
+05. Peace Of Mind
+06. Class Dismissed
+07. Jericho
+08. The Cynic(   Читать дальше...   )Тип издания: ДискографияЖанр: Melodic MetalcoreПродолжительность: 00:47:10 >>>
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 767709   (864369) от 18.03.2014
 
 Damned Nation - Just What the Doctor Ordered (1995) (Japanese Ed.) [FLAC|Lossless]<Heavy Metal>
@@ -28,6 +92,8 @@ Damned Nation - Just What the Doctor Ordered (1995) (Japanese Ed.) [FLAC|Lossles
 magnet:?xt=urn:btih:C89DB0EF6F1701BAD711C63CE3DE2A2AD4A34B38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +120,8 @@ Amon Amarth - Jomsviking (2016) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Met
 ```bash
 magnet:?xt=urn:btih:F1118094C9159F92A66D7474A5118054874D76FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -88,6 +156,8 @@ Who Cares? Demo [1989]
 magnet:?xt=urn:btih:721200F9B20EA0E3DA8FCB5155F8ED87B5D04CD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +184,8 @@ Leather Heart - Comeback (2015) Japanese Edition 2017 [FLAC|lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:E1A52CE5B76913BD8EA04DA06FA00C8974926485
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +215,8 @@ Epica - The Quantum Enigma (2014) 3CD Earbook Edition [FLAC|Lossless]<Symphonic 
 magnet:?xt=urn:btih:464C1B15DADFE0274906C5789C3D5C64E27FE6A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +243,8 @@ Omnium Gatherum - Grey Heavens (2016) Japanese Edition [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:B852B0D9CEE70617CBFC39AA43297240FC73D65D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +273,8 @@ Carcass - Torn Arteries (2021) [FLAC|Lossless|tracks + .cue] <Death Metal>
 magnet:?xt=urn:btih:86988C3B841B8CC5B2EECEFEED7935ED775B9C18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +301,8 @@ Mystic Prophecy - War Brigade (2016) Limited Edition [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:9D122692F395138BF0E0C2B6CFE4DD6AD4A7B518
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +331,8 @@ Arraigo - Fronteras y Horizontes (2012) [FLAC|Lossless|image + .cue] <Folk Metal
 magnet:?xt=urn:btih:AFE45E59AE367C7D333669421E901414E3328AEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +359,8 @@ Joe Stump - Diabolical Ferocity (2021) [FLAC|Lossless|WEB-DL|tracks] <Neo Classi
 ```bash
 magnet:?xt=urn:btih:79B2497BF986C704596B1469BB2725C9D95556FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +389,8 @@ Wolves In The Throne Room - Primordial Arcana (2021) [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:8250C6A8C202D4AE60F45355E56207A1FDF97BED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +418,8 @@ The Agonist - Eye of Providence (2015) [FLAC|Lossless]<Melodic Death Metal, Meta
 ```bash
 magnet:?xt=urn:btih:C1B780B579078C020A7D6C3D042E4D1823B68B37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +454,8 @@ Astral Domine - Arcanum Gloriae (2014) [WavPacK|Lossless]<Symphonic Power Metal>
 magnet:?xt=urn:btih:EB671A3AAE4661825C87C1BB94C50944B886ADC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +487,8 @@ Stamina - Perseverance (2014) [FLAC|Lossless]<Progressive Power Metal>
 ```bash
 magnet:?xt=urn:btih:1455805B1C9892F6F75DD7C3110D6644A209A756
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +523,8 @@ Bonus Tracks(   Читать дальше...   )Жанр: Speed MetalПродо�
 magnet:?xt=urn:btih:DD2B2E000D4CB82D140842E5F5AEE15FE2726F91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +558,8 @@ Metsatoll - Karjajuht (2014) [FLAC|Lossless]<Folk Metal>
 magnet:?xt=urn:btih:55DE53F3C25B6C8EA1567A2EBA9A5B51639BF2AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +586,8 @@ Insomnium - Argent Moon (2021) EP [FLAC|Lossless|image + .cue] <Melodic Death Me
 ```bash
 magnet:?xt=urn:btih:484BF85814CEE99563B308E6F70688E82FED94D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +619,8 @@ Crew - Logistics / Merch – Raapale Osolanus(   Читать дальше...   
 magnet:?xt=urn:btih:FFEEE101B6CAEB5A2AB6D7D083D273AD51697518
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +647,8 @@ Necronautical - Slain In The Spirit (2021) [FLAC|Lossless|image + .cue] <Symphon
 ```bash
 magnet:?xt=urn:btih:1FC6D731DA920D95D1EE908C9F700A15F2446FA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +677,8 @@ Fierce Atmospheres - The Speed of Dreams (2021) [FLAC|Lossless|WEB-DL|tracks] <P
 magnet:?xt=urn:btih:27E153F811CAA6614D3B881B2694725C46C32315
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +705,8 @@ Trivium - The Crusade (2006) [FLAC|Lossless|image + .cue] <Thrash Metal, Metalco
 ```bash
 magnet:?xt=urn:btih:1CAD7432FA3076394DC6A45787371A13FDB553EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +735,8 @@ Vampiria - Among Mortals (2000) [FLAC|Lossless|image + .cue] <Melodic Black Goth
 magnet:?xt=urn:btih:97586E485B5F3EE2C8D15AB5DAB525FB4EB63381
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +763,8 @@ Trail of Tears - Existenita (2007) [FLAC|Lossless|image + .cue] <Gothic Metal, S
 ```bash
 magnet:?xt=urn:btih:C28E49EDF079C7467C6337FA3D70A9E70D46221B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -683,67 +793,7 @@ Evanescence - Lost Whispers (2016) [FLAC|Lossless|WEB-DL|tracks] <Metal, Alterna
 magnet:?xt=urn:btih:A58BF48C66BACC35717F606F04FD7114897D53D5
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 188640   (867824) от 02.04.2010
-
-Avantasia - The Wicked Symphony & Angel Of Babylon - Boxset(2CD) (2010) [FLAC|Lossless]<Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Stargazers (9:31)
-02. Angel Of Babylon (5:28)
-03. Your Love Is Evil (3:54)
-04. Death Is Just A Feeling (5:24)
-05. Rat Race (4:07)
-06. Down In The Dark (4:25)
-07. Blowing Out The Flame (4:50)
-08. Symphony Of Life (4:31)
-09. Alone I Remember (4:46)
-10. Promised Land (4:50)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:58:58
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 767068   (868010) от 16.03.2014
-
-Encrimson'd - Agrarian Menace (2004) [FLAC|Lossless]<Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Red Boar Inn Revolt [07:39]
-02. Piper's Tale [09:09]
-03. Old Man [07:41]
-04. My Feast [07:47]
-05. Amber Shades [06:57]
-06. As Echo Down Fall [07:44]Жанр: Black MetalПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1793D4208C5FB4193C78E07D3FAE89D22C686029
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

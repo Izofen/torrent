@@ -1,27 +1,3 @@
-###  Публикация: 619715   (967439) от 16.02.2013
-
-Марко Макако / Marco Macaco (2012) [720p] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марко Макако работает пляжным охранником на тропическом острове. Он верой и правдой служит своему боссу, мечтая лишь об одном — раскрыть серьезное преступление. Марко проводит собственные расследования по любому поводу и поднимает шумиху по пустякам. Однако вскоре ему по-настоящему повезет: завоевывая расположение красавицы Лулу, Марко раскроет коварный заговор богача (   Читать дальше...   )Производство: Дания, Nice Ninja ProductionsЖанр: Мультфильм, Комедия, СемейныйРежиссер: Жан РабекПерсонажи: Токе Бьярке, Милле Лефельдт, Руне Толсгаард, Джесс ИнгерслевПеревод: ДублированныйПродолжительность: 01:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6925A1773506522D45AE7EDD86BF781D92BB76F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 744887   (967933) от 14.01.2014
 
 Альфа и Омега: Приключения праздничного воя / Alpha and Omega 2: A Howl-iday Adventure (2013) BDRip [720p]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:6925A1773506522D45AE7EDD86BF781D92BB76F9
 ```bash
 magnet:?xt=urn:btih:B70AAF05457A0094AC5990E154457F7117A79BF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:B70AAF05457A0094AC5990E154457F7117A79BF1
 magnet:?xt=urn:btih:364AF125A5F123CB08ABFADF04311B404A6C2424
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:364AF125A5F123CB08ABFADF04311B404A6C2424
 ```bash
 magnet:?xt=urn:btih:CC13848541ED557224C57D04CF656970AC244EE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:CC13848541ED557224C57D04CF656970AC244EE3
 magnet:?xt=urn:btih:BDA842710FF1E2B81FDC1ABA58DB94ADF679CCA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:BDA842710FF1E2B81FDC1ABA58DB94ADF679CCA2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:BDA842710FF1E2B81FDC1ABA58DB94ADF679CCA2
 magnet:?xt=urn:btih:A2BF5315C8CF385601239EF84AA0FC2AAE917471
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:A2BF5315C8CF385601239EF84AA0FC2AAE917471
 ```bash
 magnet:?xt=urn:btih:890213B3E460551E7E0C4031A95A760C016DC930
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:890213B3E460551E7E0C4031A95A760C016DC930
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ magnet:?xt=urn:btih:890213B3E460551E7E0C4031A95A760C016DC930
 ```bash
 magnet:?xt=urn:btih:B203CCDEFEC5A874CE0102192CA1382BE10BA9E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:B203CCDEFEC5A874CE0102192CA1382BE10BA9E2
 magnet:?xt=urn:btih:4BBBA79516CAD54F49E6D7125FC3123A77002489
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:4BBBA79516CAD54F49E6D7125FC3123A77002489
 magnet:?xt=urn:btih:738A37C3444D58CAA90D258896A80FB59AE55E69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:738A37C3444D58CAA90D258896A80FB59AE55E69
 ```bash
 magnet:?xt=urn:btih:0F8486C695300FEE6C204BA189386F074943C3F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +334,8 @@ magnet:?xt=urn:btih:0F8486C695300FEE6C204BA189386F074943C3F9
 magnet:?xt=urn:btih:28A9B7B67CAFFEF601438A2489057F04AB11012F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +359,8 @@ magnet:?xt=urn:btih:28A9B7B67CAFFEF601438A2489057F04AB11012F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:28A9B7B67CAFFEF601438A2489057F04AB11012F
 magnet:?xt=urn:btih:7A6AA305E34468140699C4A062B537C01E96CA68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:7A6AA305E34468140699C4A062B537C01E96CA68
 ```bash
 magnet:?xt=urn:btih:7861D43E8F40D1FA293A47ADAFE46B9D57BCD877
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +438,8 @@ magnet:?xt=urn:btih:7861D43E8F40D1FA293A47ADAFE46B9D57BCD877
 magnet:?xt=urn:btih:BCFB18766F317254F731376B828D6251C2BDB572
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:BCFB18766F317254F731376B828D6251C2BDB572
 ```bash
 magnet:?xt=urn:btih:8148E27B573D8EEB00E54FA3EB549A7B2518A3C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +490,8 @@ magnet:?xt=urn:btih:8148E27B573D8EEB00E54FA3EB549A7B2518A3C0
 magnet:?xt=urn:btih:3FA9C8B884888455068DD64E80AAAF254271FCF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +515,8 @@ magnet:?xt=urn:btih:3FA9C8B884888455068DD64E80AAAF254271FCF7
 ```bash
 magnet:?xt=urn:btih:27E8571C75F4B715B8AEEA2C089733F2232DC1CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +542,8 @@ magnet:?xt=urn:btih:27E8571C75F4B715B8AEEA2C089733F2232DC1CA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +567,8 @@ magnet:?xt=urn:btih:27E8571C75F4B715B8AEEA2C089733F2232DC1CA
 ```bash
 magnet:?xt=urn:btih:430CE3AEA3D92BDC2AABEFDE92219E8BFA1CD021
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +594,8 @@ magnet:?xt=urn:btih:430CE3AEA3D92BDC2AABEFDE92219E8BFA1CD021
 magnet:?xt=urn:btih:978652888F14782F243A2881106647AFE5FD83CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +620,8 @@ magnet:?xt=urn:btih:978652888F14782F243A2881106647AFE5FD83CB
 magnet:?xt=urn:btih:2FA58ADC263FB25C0376D176DFB8628F36A7BAD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +645,34 @@ magnet:?xt=urn:btih:2FA58ADC263FB25C0376D176DFB8628F36A7BAD3
 ```bash
 magnet:?xt=urn:btih:EC03FD8AB8001BABBF1B98C3C03FAB76BC55F602
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355918   (980971) от 28.01.2020
+
+Стражи Арктики / Arctic Justice (2019) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на ЗвероПолюс, где власть находится в лапах больших, сильных и зубастых. Ради собственного превосходства они готовы переделать под себя весь мир. Лишь маленькие, но очень храбрые встанут на защиту не только родного Северного полюса, но и целой планеты. Именно они - настоящие Стражи Арктики.Производство: Индия, Великобритания, Китай, Канада, Япония, Корея Южная, США, AMBI Group, Arctic Justice Movie, Assemblage EntertainmentЖанр: Мультфильм, комедия, приключения, семейныРежиссер: Аарон ВудлиПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:34:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B7327FA2019032EBFFF14337D1A87615E882008
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ Zhandou Wang: Jufeng Zhan Hun 6 | Infinity Nado 6 | Инфинити Надо 6 
 magnet:?xt=urn:btih:9CE4F35C797E4D4D9FFACBE67F6CB3A2455984C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Lycoris Recoil | LycoReco | Ликорис Рикойл [2022, TV, 13 из 13] B
 ```bash
 magnet:?xt=urn:btih:475A0AEF1D3A87BB8A033E915D43853CA3292DD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Vampire Dormitory | Общежитие вампиров [2024, TV, 12 эп.] WEB
 magnet:?xt=urn:btih:58726D3F27C801004E7A997668AA5B34A5CEE157
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Isekai Suicide Squad | Отряд самоубийц: Исекай [2024, TV, 10
 ```bash
 magnet:?xt=urn:btih:697090CCA7463FC2866255777E7BB0A6ED8F1ACB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Okashi na Tensei | Sweet Reincarnation | Сладкая Реинкарнация
 magnet:?xt=urn:btih:C4827CED02E4C00F789B27B7CC4C82B474D0995A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:C4827CED02E4C00F789B27B7CC4C82B474D0995A
 ```bash
 magnet:?xt=urn:btih:A4227891C737D39F064D09153C36140C15DA6DF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Jaku Chara Tomozaki-kun | Bottom-tier Character Tomozaki | Низкоуровн�
 magnet:?xt=urn:btih:CAB063BC61ECDD7ED54BCB4188A2B82F34739B42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Isekai wa Smartphone to Tomo ni. | In Another World With My Smartphone | В др
 ```bash
 magnet:?xt=urn:btih:39B4AE6B1DAB707524D10DC6F5173C372CE80698
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Sousou no Frieren | Frieren: Beyond Journey's End | Провожающая в п
 magnet:?xt=urn:btih:CC99B9810539FEC2AB5602DA6477F2FBDB91B509
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Vampire in the Garden | Вампир в саду [2022, Web, 5 из 5] WEB-DL 10
 ```bash
 magnet:?xt=urn:btih:FB3C04173DBA0B5AA1FA8CD184648E052EE8423C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ NieR:Automata Ver1.1a | Ниер: Автомата [ТВ-1] [2023, TV, 12 из 1
 magnet:?xt=urn:btih:9C280495040676AA4F76C23B9B8FD1FC3F352283
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Jiisan Baasan Wakagaeru | Дедушка и бабушка вновь стали
 ```bash
 magnet:?xt=urn:btih:7492BDFA83C9CA71D847DAE52DA7F80F00D57E4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:7492BDFA83C9CA71D847DAE52DA7F80F00D57E4F
 magnet:?xt=urn:btih:242F3D9BA84E66B605DA2CFF7B5F911E366F63B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Kage no Jitsuryokusha ni Naritakute! 2nd Season | The Eminence in Shadow 2nd Sea
 magnet:?xt=urn:btih:ECEE910C615F41104AE254E0EABC2AC4D3F80D2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Kimitachi wa Dou Ikiru ka | The Boy and the Heron | Мальчик и птица
 ```bash
 magnet:?xt=urn:btih:304A63E427FC0DF674A995A4790A9A65A62DC95B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:304A63E427FC0DF674A995A4790A9A65A62DC95B
 magnet:?xt=urn:btih:934FC63A13FD7FEABDC3AD254BAA7035A1395ECB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:934FC63A13FD7FEABDC3AD254BAA7035A1395ECB
 ```bash
 magnet:?xt=urn:btih:4A498508C4F7985C0246D0F398FEE972ADCA1A0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Kimitachi wa Dou Ikiru ka | The Boy and the Heron | Мальчик и птица
 magnet:?xt=urn:btih:6073293135B922995383E5C28D7AC09023C6C561
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ B Gata H Kei | Yamada's First Time | Второй размер, интим пр�
 ```bash
 magnet:?xt=urn:btih:FB551FD9C9FD030A7F91EAE850A5377B2E6C078B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:FB551FD9C9FD030A7F91EAE850A5377B2E6C078B
 magnet:?xt=urn:btih:335D3F7884533EE583F9D26A3E7B17414E7DB147
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:335D3F7884533EE583F9D26A3E7B17414E7DB147
 magnet:?xt=urn:btih:C729980517FF9CF17F60EF80636D8A138D613D8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:C729980517FF9CF17F60EF80636D8A138D613D8A
 ```bash
 magnet:?xt=urn:btih:BF1905B3DECD9AD8701A2E31E96FB37E9B0B267B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:BF1905B3DECD9AD8701A2E31E96FB37E9B0B267B
 magnet:?xt=urn:btih:C6BD8E5E28AA8E9694D589D2B04A955829AFB3F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:C6BD8E5E28AA8E9694D589D2B04A955829AFB3F5
 magnet:?xt=urn:btih:E3B4B9E1D14C08C4785951ABB954E84451B51F05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:E3B4B9E1D14C08C4785951ABB954E84451B51F05
 ```bash
 magnet:?xt=urn:btih:EB7D559B4F8926A0799E67BD80FB22C843759DF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:EB7D559B4F8926A0799E67BD80FB22C843759DF9
 ```bash
 magnet:?xt=urn:btih:6684F562CC77DBBBC2CEC54F2DDDA4A067515234
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

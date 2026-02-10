@@ -1,3 +1,29 @@
+###  Публикация: 1288041   (699277) от 09.03.2019
+
+Джон Бонне | Вино по правилам и без. Исчерпывающее руководство для любителей вина (2018) [FB2, EPUB, MOBI] [18+]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699277.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вино по правилам и без» – не очередная книга в духе «пейте это, не пейте то». Здесь вы не найдете долгих рассказов о сортах и регионах. Вы не научитесь открывать шампанское саблей или вслепую распознавать красное бургундское. Зато узнаете, что нужно спрашивать у сомелье в ресторане или консультанта в магазине, как открывать вино как профи, куда и сколько наливать, (   Читать дальше...   )Жанр: КулинарияПеревод: Ксения АртамоноваФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:825FDA3AB2033A6A9A4C50849D7689818236EC68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287865   (699280) от 09.03.2019
 
 Светлана Иванова | Ловушки HR-брендинга. Как стать лучшим работодателем для сотрудников и кандидатов (2019) [FB2, EPUB, MOBI]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:C59B9F97E625A949D2034FE26C367E16AC655E54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:C59B9F97E625A949D2034FE26C367E16AC655E54
 magnet:?xt=urn:btih:31EAC379E781E404EF4195395E0848667EDD4EC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:31EAC379E781E404EF4195395E0848667EDD4EC9
 ```bash
 magnet:?xt=urn:btih:240B1042A7EE2F088DD7B17FB44F350A112A4A2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:240B1042A7EE2F088DD7B17FB44F350A112A4A2D
 magnet:?xt=urn:btih:FD6EDD75C52BFF0A637C6740FD1ADDE85BFC0B9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:FD6EDD75C52BFF0A637C6740FD1ADDE85BFC0B9B
 ```bash
 magnet:?xt=urn:btih:27501090105CA051F991C932B9B183FEE21EBB16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:27501090105CA051F991C932B9B183FEE21EBB16
 magnet:?xt=urn:btih:BC6EAAA06FA59F397EE0A06E9CE6D804A3148443
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:BC6EAAA06FA59F397EE0A06E9CE6D804A3148443
 ```bash
 magnet:?xt=urn:btih:0F8622CCA1EF345E2F63D6AF74FEB8F46524D619
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:0F8622CCA1EF345E2F63D6AF74FEB8F46524D619
 magnet:?xt=urn:btih:DB888E3A2F13B6FB42A3E70BBE36F7D92BC32D05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:DB888E3A2F13B6FB42A3E70BBE36F7D92BC32D05
 ```bash
 magnet:?xt=urn:btih:EEA7273580716B53757DFD925D08409F3D21FAD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:EEA7273580716B53757DFD925D08409F3D21FAD1
 magnet:?xt=urn:btih:41B4BFBF3B0D71AC116510B96E3C58632D25B562
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:41B4BFBF3B0D71AC116510B96E3C58632D25B562
 magnet:?xt=urn:btih:411F6987D255DD0D809E1492C84372B04CDC060F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:411F6987D255DD0D809E1492C84372B04CDC060F
 ```bash
 magnet:?xt=urn:btih:04B5E8C28E2D924C60C9A2AAE582399501449A00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:04B5E8C28E2D924C60C9A2AAE582399501449A00
 magnet:?xt=urn:btih:20DE96425A22E6E4F8725EA9F1DDF5C4CEC033CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:20DE96425A22E6E4F8725EA9F1DDF5C4CEC033CF
 ```bash
 magnet:?xt=urn:btih:A45D6D4EB6CFEECB8401987EA804C500D65877A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:A45D6D4EB6CFEECB8401987EA804C500D65877A7
 magnet:?xt=urn:btih:74752B0AA264BB4D1B694C0780F2E9A23962A2AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:74752B0AA264BB4D1B694C0780F2E9A23962A2AB
 ```bash
 magnet:?xt=urn:btih:D9020E0DC06A54203414A965C4A6C8F50E5C1C4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:D9020E0DC06A54203414A965C4A6C8F50E5C1C4E
 magnet:?xt=urn:btih:C28BCF3127C28572D721A670D119B56524661BBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:C28BCF3127C28572D721A670D119B56524661BBF
 ```bash
 magnet:?xt=urn:btih:5388625F229C875263EAE402FA7062056F86D8CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:5388625F229C875263EAE402FA7062056F86D8CD
 magnet:?xt=urn:btih:70C085B9D48D13C43EBC08669ADA6AB8277DB9E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:70C085B9D48D13C43EBC08669ADA6AB8277DB9E0
 ```bash
 magnet:?xt=urn:btih:ED599D6A154EBE67E1D6447602BC51170C53C33E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:ED599D6A154EBE67E1D6447602BC51170C53C33E
 magnet:?xt=urn:btih:C30AEC59584FEBD3F9A0D11D9939DD535D63C652
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:C30AEC59584FEBD3F9A0D11D9939DD535D63C652
 ```bash
 magnet:?xt=urn:btih:EDA80044CEC4291E59634AFC8CABF36A390BACF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:EDA80044CEC4291E59634AFC8CABF36A390BACF2
 magnet:?xt=urn:btih:1E2D693770D0EDC48BF735441B64F47C57D1B23F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:1E2D693770D0EDC48BF735441B64F47C57D1B23F
 ```bash
 magnet:?xt=urn:btih:DD3F385E8E8B702BD91F6B415018A523DFEEB329
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,29 +679,7 @@ magnet:?xt=urn:btih:DD3F385E8E8B702BD91F6B415018A523DFEEB329
 magnet:?xt=urn:btih:0B7E5404B9D89462A138744863A7EDD04D4101E1
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 895276   (700995) от 05.05.2015
-
-Голиб Саидов, Юлиан Соловьев | Пицца (2015) [FB2]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга из цикла «Ресторан на дому», ориентирована не только на домашних хозяек, но и посвящена всем тем, кто любит настоящую пиццу, но не имеет возможности, регулярно посещать рестораны и пиццерии.Жанр: КулинарияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEFEEA72934C73ED406C11C5E1829ED9AA4E2699
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

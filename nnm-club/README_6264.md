@@ -19,6 +19,8 @@ Tenebris Pictura (2023) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:BBB0A5F08CCFE26A4CAEB10B425D1393BCD8F76B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:BBB0A5F08CCFE26A4CAEB10B425D1393BCD8F76B
 ```bash
 magnet:?xt=urn:btih:384C8E13899C6366933C7D7CF9D337FA44849CD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:384C8E13899C6366933C7D7CF9D337FA44849CD3
 magnet:?xt=urn:btih:087519BE4D37D15A408DE1A7189543CE352C5475
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:087519BE4D37D15A408DE1A7189543CE352C5475
 ```bash
 magnet:?xt=urn:btih:E34F56BC1B74547039ABACE1EBA3615ABEC39C92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Queen + Freddie Mercury - Best of [Compiled by Firstlast] (2021) [MP3|192-320 Kb
 magnet:?xt=urn:btih:F3A64823624E7A5D8B7CF3DE217813081D70E5E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:F3A64823624E7A5D8B7CF3DE217813081D70E5E7
 ```bash
 magnet:?xt=urn:btih:0D50D2F7D14CD3B06335BCC4555364A738FB9A4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:0D50D2F7D14CD3B06335BCC4555364A738FB9A4B
 magnet:?xt=urn:btih:CF31D0446236443001C610FBCABDB04DD724B6BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Google Earth Pro 7.3.6.9277 (x64) Portable by FC Portables [Multi/Ru]
 magnet:?xt=urn:btih:C15BDB2E0EEE0A4F8D00F55E8AE8F3FBDBFDF5E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:C15BDB2E0EEE0A4F8D00F55E8AE8F3FBDBFDF5E5
 ```bash
 magnet:?xt=urn:btih:C1D25FB1DCBA16C5189AB839FF6318AA4145B900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ VA - In Mood Styles Dance (2022) [MP3|320 Kbps] <Electropop, Synthpop, Hands Up,
 magnet:?xt=urn:btih:606CE648109DB5B496AC3358226FD479F50DC2C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:606CE648109DB5B496AC3358226FD479F50DC2C6
 ```bash
 magnet:?xt=urn:btih:D6993AB7D88EB66423C23B92E6F4680CA408AA0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ Depeche Mode: Духи в лесу / Spirits in the Forest (2019) BDRip [H.264/1
 magnet:?xt=urn:btih:AD603329DB4FE4C4319F2BBA79AE9D14FC91AC0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:AD603329DB4FE4C4319F2BBA79AE9D14FC91AC0B
 ```bash
 magnet:?xt=urn:btih:5C4257654D53919FE74B2BF56FF88A6CA7F3018B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:5C4257654D53919FE74B2BF56FF88A6CA7F3018B
 magnet:?xt=urn:btih:FA4A23300E1CF7F1FEF26DC8724BFA27CF6FC1FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ W.A. Production & K391 - Put Me On Drums 1.0.1 VST, VST3, AAX (x86/x64) [En]
 ```bash
 magnet:?xt=urn:btih:759164149889294DC5FBD9E1362A5E5E28F0D164
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ VA - Nature's Magic The Voyage of the Whale (1996) [FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:B06002A6E98EA672B1706D40316D0C20BCF84E48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ Viber для Windows позволяет бесплатно отправлять 
 ```bash
 magnet:?xt=urn:btih:54DBDE316A0747AE203489A97A8EC8238C5D9C64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ Total Commander Extended - это x86 и x64 версии Total Commander в о�
 magnet:?xt=urn:btih:482B6755AA35893D82AA6CE649DDC0150ABFD043
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ MEmu позволит играть в любимые игры на персон�
 magnet:?xt=urn:btih:06D7258F90484B52D5F4C2B3B83AC5DDFCED6F2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ Disk Drill - простая и эффективная программа для 
 magnet:?xt=urn:btih:43DAB5F95BD272C9772317BCC333F0189D6E5AFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ Google Earth Pro 7.3.6.9277 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:871BED622B146E0CB558049E2307B53C7ADD98E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ magnet:?xt=urn:btih:871BED622B146E0CB558049E2307B53C7ADD98E4
 magnet:?xt=urn:btih:DB19B314C6A6BF4578CF9EBEB84FD05A1CBA5D3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:DB19B314C6A6BF4578CF9EBEB84FD05A1CBA5D3D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ magnet:?xt=urn:btih:DB19B314C6A6BF4578CF9EBEB84FD05A1CBA5D3D
 magnet:?xt=urn:btih:7C72746E257AA9843A7887622DA3E218D68A921C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ Cyberduck — программа представляет собой беспл�
 ```bash
 magnet:?xt=urn:btih:42F3D1198E4F5F526145BE2B7F36D29988F49ED1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +690,8 @@ Smash Mouth - 6 альбомов + 2 компиляции + 2 сингла (1997
 ```bash
 magnet:?xt=urn:btih:B7AA05C2CBC80DFBE208FFB9BC4FCFF89CF9AF32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

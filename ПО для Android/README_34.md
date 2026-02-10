@@ -20,6 +20,8 @@ PicWish — фоторедактор с искусственным (   Чита
 magnet:?xt=urn:btih:ED3CB009382F385CBE0B28644243EC28780DE90E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:ED3CB009382F385CBE0B28644243EC28780DE90E
 ```bash
 magnet:?xt=urn:btih:9682A03191C4B08EBCE827408D3884691FA4D147
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ CapCut - Video Editor — бесплатный универсальный инс
 magnet:?xt=urn:btih:F197E23C713F9144E380762952FC88649DC758F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Thenx v5.50 [En] Mod by youarefinished
 ```bash
 magnet:?xt=urn:btih:FE8005C6059DB3D5B6E3A7DAD787A413E3A3C43D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Aibi: AI Photo Enhancer-Luminate v1.52.1 Mod by srajawwal09 [Ru/Multi]
 magnet:?xt=urn:btih:9F3C7DF8A61E9609D27E033B092D5056552F7CC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ PrinterShare Mobile Print v12.14.10 Mod by derrin [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8F397CBC268A6A028F82A1A12F87054F750002B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ GIF Maker - GIF Editor - видеоредактор, что создан для 
 magnet:?xt=urn:btih:8F9E39C56B4C667F3158D6932CBD9DCE0FA86BF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Blur Photo v6.2 Mod by Dymonyxx [En]
 magnet:?xt=urn:btih:B115ED57166B403D58984BB0AD4D62CDDE749354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Pencil Photo Sketch - профессиональное приложение дл
 ```bash
 magnet:?xt=urn:btih:1C6B95CCF25C8E619D29D91C5289F805C643056C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:1C6B95CCF25C8E619D29D91C5289F805C643056C
 magnet:?xt=urn:btih:B2E19C1B6825526B0518CC5874ACBFF53664BABE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Photomath v8.36.0 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:04FFFF07FCE51306DBE37272C7DE0BE34B167269
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Background Video Recorder Pro — это приложение, которое п
 magnet:?xt=urn:btih:B7346DEB12BFA37ED1F6669921FB1526D1B93A58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Sports.ru для Android - это вся информация о спорте с
 ```bash
 magnet:?xt=urn:btih:FE3844D86C596F609B51631420B6E2E8BC3FC7A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ ARuler - лучшее и бесплатное приложение на Android 
 magnet:?xt=urn:btih:56D729EF7DE275EEFED127E155FBF276C7A10AF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ UniBook - Аудиокниги v0.9.6 Beta [Ru/En]
 ```bash
 magnet:?xt=urn:btih:6CE7886E68023DE46432FACBD9A67BEC5F7A1080
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ DailyArt - Daily Dose of Art v3.2.2 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:A1D1A9C0392CE01246A424EC0D4ECC67AABF9657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Rutube v29.1.1 Mod by vadj [Ru/En]
 ```bash
 magnet:?xt=urn:btih:6319A5D50B1289926458AE5E8D0A704FDC18816A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:6319A5D50B1289926458AE5E8D0A704FDC18816A
 magnet:?xt=urn:btih:77A2134D4F70CAAD9A56D2E55E86C11EBB6871C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Easy Notes - записная книжка, блокнот бесплатно, �
 ```bash
 magnet:?xt=urn:btih:3678913461BDA4613F86124C570B0AF4AA4F72D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Easy Voice Recorder Pro ваш ежедневный компаньон для з
 magnet:?xt=urn:btih:49ACB896D0D36D3DC76088B231E49C1F9EE834BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Psiphon Pro дает вам беспрецедентный доступ к ва�
 ```bash
 magnet:?xt=urn:btih:B28CD93765FCA9B38BCA9CE70C97FAFC685AFA60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ ToonMe v0.7.3 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:24BB06867C6EC3AE827DE56CFB24075D8DC729CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ WPS Office - очень полезное, офисное приложение д
 ```bash
 magnet:?xt=urn:btih:ACDBE192FE17420C452C47F48F6F2A9194A8C9E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Melon VPN - это быстрый, неограниченный, стабиль�
 magnet:?xt=urn:btih:9066AB74A79EBB83743C39B7BBAB8CC144198443
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ AI ChatBot AI Friend Generator v3.0.5.6 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:2FD3F31D69BE1175747265E10FB40DE627ACA31A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:FF3BC0917BBA776B807814E5895C7C21DF207E07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

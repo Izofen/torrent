@@ -19,6 +19,8 @@ Toki no Tabibito / Time Stranger / Путник, странствующий во
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Kidou Senshi Gundam: Cucuruz Doan no Shima | Mobile Suit Gundam: Cucuruz Doan's 
 magnet:?xt=urn:btih:F7ABDD2A59EB4469C51E22BDCCA8EAE36CF77C87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Yuusha-Ou GaoGaiGar Final | Король храбрецов Гаогайгар: 
 ```bash
 magnet:?xt=urn:btih:B8A1F1E645C4B11086AE283A0E0A57E82162106F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Shinseiki Evangelion Gekijouban: The End of Evangelion | Neon Genesis Evangelion
 magnet:?xt=urn:btih:99FCB9AC5E765B7A72F2841CC4D7A606841C7BE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Boku wa Imouto ni Koi o Suru | Я люблю свою сестрёнку [2005, 
 ```bash
 magnet:?xt=urn:btih:FA645F40ADD7CA9319ACB7B454CDB7E5D9E71A0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu. 2 / Не л�
 magnet:?xt=urn:btih:E013733AE1B54B7DEB2D87D27DC17EF0C2D2F551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Guilty Crown | Корона греха [2011, TV, 22 эп.] BDRip 1080p 10-bit r
 ```bash
 magnet:?xt=urn:btih:B0292AC1C869D0D589C00F798D88CBC298461BD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ KanColle 2 | Kantai Collection 2 - Itsuka Ano Umi de | Коллекционна�
 magnet:?xt=urn:btih:673C7B95DCA23A44B018B26183BB6D4EBA793F75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ AWOL Compression Re-MIX | Самоволка [1998, OVA, 4 эп.] LDRip 480p raw
 ```bash
 magnet:?xt=urn:btih:0114710D04D67A2B411BF8E004D9970D213ED2C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Kuttsukiboshi / Сцепленные звёздочки [2010-12, 2 эп. OVA] D
 magnet:?xt=urn:btih:CEE92FB5AFA8B0362A885EDE22FFBC15BD1540AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ Kakegurui | Compulsive Gambler | Маниакальный игрок [2017, TV, 
 magnet:?xt=urn:btih:C878228847C051A9F2FC47210AD9FE48FBA99351
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ UQ Holder! Mahou Sensei Negima! 2 | Хранитель вечности! Вол�
 ```bash
 magnet:?xt=urn:btih:6A14D498CEDBEEF520BCC878C69E39ACC3A0254A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Kanojo to Kanojo no Neko: Everything Flows | Она и её кот: Всё те�
 magnet:?xt=urn:btih:4001D83CA3979D3EB125D833C24DB5119F5C4F6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Ballroom e Youkoso | Welcome to the Ballroom | Добро пожаловать �
 ```bash
 magnet:?xt=urn:btih:B80EC7E88B38CB06A920BE0F82FCF0D97C39B562
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ Netojuu no Susume / Recommendation of the Wonderful Virtual Life / Рекоме�
 magnet:?xt=urn:btih:EF5A0AFC1BE5780013EC96168AE8A6CCB309BA98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ Ushio to Tora TV | Усио и Тора ТВ (сезон 1 и 2) [2015, TV, 26 +
 ```bash
 magnet:?xt=urn:btih:0B4837C440477A7AAA5B21B8A990C4E43FBF60AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ Gunsmith Cats | Оружейницы [1995, OVA, 3 эп.] BDRip 1080 10bit raw+e
 magnet:?xt=urn:btih:C1F1BD721FB7029F3F4FEEA0D6CE7A2A4ABDE243
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ OVA-эпизод, посвящённый 10-летию манги «Лилии �
 ```bash
 magnet:?xt=urn:btih:B5EE567ECCA3CBAD2477D7E5C79D48809469BA84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ Boku no Kanojo ga Majime Sugiru Shobitch na Ken | My Girlfriend is Shobitch | М
 magnet:?xt=urn:btih:DEDDD59C2BB9BC07B15137B13EDAA2C2DA3B742F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ Battle Athletess Daiundoukai | Battle Athletes Victory | Боевые атлет
 ```bash
 magnet:?xt=urn:btih:2579F4B2BF243EEC2DCE04AA79C676D5998BDB2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ Battle Athletess Daiundoukai | Battle Athletes | Боевые атлеты [1997
 magnet:?xt=urn:btih:1CCE578505653348E068E5AEB09B2796F858177F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ New Game!! | Новая игра! [ТВ-2] [2017, ТВ, 12] HDTV 720p raw
 ```bash
 magnet:?xt=urn:btih:409E496FE786E2F4D1452D030C5BB10C9849C29C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ Kimi no Koe o Todoketai | Я хочу донести твой голос [2017, 
 magnet:?xt=urn:btih:D45F1147E9EA74836249768C785DB78934CC3912
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ Twin Angel Break | Ангельский дуэт: Прорыв [2017, TV, 12 э�
 ```bash
 magnet:?xt=urn:btih:42B4EFDE57FAB6E7CBF7317A7E8565388D87E11C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ Kidou Butouden G Gundam | Mobile Fighter G Gundam | Мобильный воин 
 magnet:?xt=urn:btih:6CC9426EEC7448C06DB2DE81E0BDF3567CBABBFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ Gyakusatsu Kikan | Genocidal Organ | Орган геноцида [2017, Movie] B
 ```bash
 magnet:?xt=urn:btih:C47A6C75BD5E8DE28C57B4854CCAAC490D56DE5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

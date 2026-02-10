@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:4326F720465934DDD4BF6FE50FDA1E15F23B1335
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:4326F720465934DDD4BF6FE50FDA1E15F23B1335
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:4326F720465934DDD4BF6FE50FDA1E15F23B1335
 ```bash
 magnet:?xt=urn:btih:620694156C8567431537173F25723FDB0D78CD3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:620694156C8567431537173F25723FDB0D78CD3F
 magnet:?xt=urn:btih:CC05FFD48B66F90FDBF9EEF8155E87F6A616278D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Trepang2 (2023) [Ru/Multi] (77.00/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:5CCE69822FABCC7D3FFA2F17E418C62E9AB488E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:5CCE69822FABCC7D3FFA2F17E418C62E9AB488E4
 magnet:?xt=urn:btih:9A3283AE63936170CCFFA2AC9814BB04C2F635A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:9A3283AE63936170CCFFA2AC9814BB04C2F635A4
 ```bash
 magnet:?xt=urn:btih:1A3C6C9B05BDF6BE0DF39ACFEB6B3672570957C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:1A3C6C9B05BDF6BE0DF39ACFEB6B3672570957C8
 magnet:?xt=urn:btih:C941EADDAA32C3F14B7508078B99275378BEA7AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ TROUBLESHOOTER: Abandoned Children (2020) [Ru/Multi] (20240719/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B1FFE6BD34D23AEECC95CA841FBC147B369C9F6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:B1FFE6BD34D23AEECC95CA841FBC147B369C9F6B
 magnet:?xt=urn:btih:82E85EC334FC1EB38D31606D3B0590D311E56D3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:82E85EC334FC1EB38D31606D3B0590D311E56D3F
 ```bash
 magnet:?xt=urn:btih:8649856551B36E8AA3690FC819ED40827836E9AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ The Thaumaturge - изометрическая ролевая игра с глу
 magnet:?xt=urn:btih:E2D427BDED2CD944A5C544D175162C9863FB4E80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:E2D427BDED2CD944A5C544D175162C9863FB4E80
 ```bash
 magnet:?xt=urn:btih:DFD1867E9B8C65CDF652FD3997B19205DD3B48A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:DFD1867E9B8C65CDF652FD3997B19205DD3B48A7
 magnet:?xt=urn:btih:ACB1507FC38B16EF627D531733470A5CF45A14BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:ACB1507FC38B16EF627D531733470A5CF45A14BA
 ```bash
 magnet:?xt=urn:btih:418F6EC4426812C72A9CE22AB310B57FAF391DF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:418F6EC4426812C72A9CE22AB310B57FAF391DF6
 magnet:?xt=urn:btih:A1FD82A408F0EB36A2127A83A64FB8A83264A168
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ CyberLink PowerDVD - один из самых мощных на данный м�
 ```bash
 magnet:?xt=urn:btih:C8B130B4B5A7FC425D6F0E39957FA9760CF57268
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:C8B130B4B5A7FC425D6F0E39957FA9760CF57268
 magnet:?xt=urn:btih:C897A2A729421F0BF05039C6FD4E07D75E186216
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:C897A2A729421F0BF05039C6FD4E07D75E186216
 ```bash
 magnet:?xt=urn:btih:0AFD91EF2E15765AD42698806C56F68486CFDF4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:0AFD91EF2E15765AD42698806C56F68486CFDF4C
 magnet:?xt=urn:btih:72835C137CBFC76CDEAAE23486EE91D94374A0E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Aliens: Dark Descent (2023) [Ru/Multi] (98246/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:FC984E3DF23064467D2748A21CC23035A34F4991
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:FC984E3DF23064467D2748A21CC23035A34F4991
 magnet:?xt=urn:btih:F30D8EBF0ADA6B741DAA87FB28E0DA682D6D9ADA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:F30D8EBF0ADA6B741DAA87FB28E0DA682D6D9ADA
 magnet:?xt=urn:btih:92357F1407057BCCD4C4039D7790AF524E2552A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:92357F1407057BCCD4C4039D7790AF524E2552A6
 ```bash
 magnet:?xt=urn:btih:E7404BD6E0CA9571FF1BF569BC4D02FD773B71B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:E7404BD6E0CA9571FF1BF569BC4D02FD773B71B7
 magnet:?xt=urn:btih:541A0DB120DA02F6CF5D629880ADE725511CBED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:541A0DB120DA02F6CF5D629880ADE725511CBED0
 ```bash
 magnet:?xt=urn:btih:E7E8CCFADB318DC6C5C214C1D2AD16BFCD5A12AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

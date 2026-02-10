@@ -19,6 +19,8 @@ NG. Затерянные в джунглях / Lost in the Jungle (2025) WEB-DL 
 magnet:?xt=urn:btih:7E0396BC980C8891E946D0825E09E1563F9B9426
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NG. Затерянные в джунглях / Lost in the Jungle (2025) WEB-DL 
 ```bash
 magnet:?xt=urn:btih:55A299F4F78D4CF0094F4A67797022DA7FA078E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG. В мире дельфинов с Берти Грегори / Dolphins Up Cl
 magnet:?xt=urn:btih:6C58CBFF27032DE16251DA2BAFF75DF4EF3408C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NG. В мире дельфинов с Берти Грегори / Dolphins Up Cl
 ```bash
 magnet:?xt=urn:btih:82682029315FF12B7EB7F05FDAF281DFF902F33F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NG: Тайны мироздания. Искривление времени [1 с
 magnet:?xt=urn:btih:04A90E72E4BFE691541350054EFAF8AE92B16F06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NG. Поднимается буря / Storm Rising (2021) HDTV [H.264/1080i] (с
 ```bash
 magnet:?xt=urn:btih:0F886A6EB259FD6B4F80C760E554C66DE89F940D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ NG: Очевидцы: День «Д» / Eyewitness: D-Day (2019) WEB-DL [H.264/1
 magnet:?xt=urn:btih:11EC919F1236AA030672730FEC26F0053BF35D40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NG. Магия сокровищ Диснея / Magic of the Disney Treasure (202
 ```bash
 magnet:?xt=urn:btih:92DB704ECA349379626A3CE547905688A0521A09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ NG. Последняя тайна Клеопатры / Cleopatra's Final Secret 
 magnet:?xt=urn:btih:5B96C25F8DB9D628A9E0F0510170597F6E83DCDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:5B96C25F8DB9D628A9E0F0510170597F6E83DCDE
 ```bash
 magnet:?xt=urn:btih:33273A02C32BB476A46E0C1F30073FDACD2BCBDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:33273A02C32BB476A46E0C1F30073FDACD2BCBDB
 magnet:?xt=urn:btih:D46667C7BB3A6D351EEBDD5E306239D82970E2B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:D46667C7BB3A6D351EEBDD5E306239D82970E2B8
 ```bash
 magnet:?xt=urn:btih:D7AE87A7853D12B2C39AA9B3D69B86AAE6746F88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2023) 
 magnet:?xt=urn:btih:1B63DD8C13F4EB5CAF1712F946A412C7B58DB856
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ National Geographic. Подземный мир майя: настоящий ко
 ```bash
 magnet:?xt=urn:btih:105A050AA6E52A2A285BF486B886F53007946E9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Nat Geo Wild HD: Животные без правил (Совсем как лю�
 magnet:?xt=urn:btih:A022FDDE8F1302A0E008C5A00F526667747B0E8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ NG: Служба безопасности аэропорта: Первый кл�
 ```bash
 magnet:?xt=urn:btih:77A3FC72F31C73BB022E437ED04D120E4F89BD4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ NGW: Дикий рай Индии / India's Wild Edens (2016) HDTVRip [H.264/720
 magnet:?xt=urn:btih:22C51E9A54D33E64FAAEF0878A21D4B75EE2F352
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ NGW: Выжить несмотря ни на что / Extreme Survivors (2014) H
 ```bash
 magnet:?xt=urn:btih:5F448273AB2E461219C6DA575649302E97306635
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ NGW: Братья сафари / Safari Brothers (2016) HDTV [H.264/1080i-LQ] (�
 magnet:?xt=urn:btih:0C4CA1FB12068B69565C38BA7020024AC2320D0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ NGW: Испытания в дикой природе / Trials of the Wild (2018)
 ```bash
 magnet:?xt=urn:btih:15FE6073D527467A6EEEEB1137A6D86CA9DEEC15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ NG: Майкл Пэйлин в Северной Корее / North Korea: Michae
 magnet:?xt=urn:btih:9AA9391324F1E352B4EEF2B98AC2B5667EE0DAEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ NG: Помпеи. Тайны мёртвых (Последние беженцы �
 ```bash
 magnet:?xt=urn:btih:480ACCC6CC3C6CB4A26BDC4D48544B6A32FC9B04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ NGW: Динорыба / Dinofish (2011) HDTV [H.264/1080i-LQ]
 magnet:?xt=urn:btih:4D81F49EFEB37A2B05C15932AD21C99300958921
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Nat Geo Wild: По следам мифических чудовищ: Кошма�
 ```bash
 magnet:?xt=urn:btih:7D73A5B8B4FE6B39583457AF2C3B9CFB554D14F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ NG. Королевство белых медведей / Kingdom of the Polar Be
 magnet:?xt=urn:btih:EB76E39FC5D0C62BE59E55E19B64549A687E6C50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ NG: Человечество из космоса / Mankind from Space (2015) HDT
 ```bash
 magnet:?xt=urn:btih:F4A6C4200E22CEFB68830B3D4DC1E2211FFBB66E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

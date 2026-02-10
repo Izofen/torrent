@@ -1,27 +1,3 @@
-###  Публикация: 983718   (941697) от 07.02.2016
-
-Спасатель / Lifeguard (1976) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стареющий спасатель не знает, как жить дальше: молодое поколение уже наступает на пятки и готово занять его место...Производство: США / Paramount PicturesЖанр: ДрамаРежиссер: Дэниел ПитриАктеры: Сэм Эллиотт, Энн Арчер, Стивен Янг, Паркер Стивенсон, Кэтлин Куинлен, Шэрон Кларк, Стив Барнс, Ленка Петерсон, Джордж Уоллес, Пол КентПеревод: Многоголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:36:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AC6041BB4605704C33D27FE1D0168897694A7D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 283346   (941716) от 16.01.2011
 
 Однажды укушенный / Once Bitten (1985) DVDRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:5AC6041BB4605704C33D27FE1D0168897694A7D1
 ```bash
 magnet:?xt=urn:btih:727B234F925AB22EECEC5DDFB91491395456A194
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -66,6 +44,8 @@ magnet:?xt=urn:btih:727B234F925AB22EECEC5DDFB91491395456A194
 ```bash
 magnet:?xt=urn:btih:66110A5B2357E61DA7232F458A8B34C436669F83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +72,8 @@ magnet:?xt=urn:btih:66110A5B2357E61DA7232F458A8B34C436669F83
 magnet:?xt=urn:btih:EA00506D4AA88CB3709EC73F473DA2E3FDB76716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +99,8 @@ magnet:?xt=urn:btih:EA00506D4AA88CB3709EC73F473DA2E3FDB76716
 magnet:?xt=urn:btih:3D56258FCF26FC4DE3ACF98433D45E9A711DF1B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +124,8 @@ magnet:?xt=urn:btih:3D56258FCF26FC4DE3ACF98433D45E9A711DF1B1
 ```bash
 magnet:?xt=urn:btih:CBE9E9AE5F1739AECEDB9BD9CDAAC41B6A320067
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +151,8 @@ magnet:?xt=urn:btih:CBE9E9AE5F1739AECEDB9BD9CDAAC41B6A320067
 magnet:?xt=urn:btih:6DC510A90BB91C93AAA2162F22A8F22BCBB82AFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:6DC510A90BB91C93AAA2162F22A8F22BCBB82AFB
 ```bash
 magnet:?xt=urn:btih:A549CF5309882CF274FBC3C33B85EB67AE751BED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +203,8 @@ magnet:?xt=urn:btih:A549CF5309882CF274FBC3C33B85EB67AE751BED
 magnet:?xt=urn:btih:D121899F3F3D8516FC4DF847700D11D28C120072
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:D121899F3F3D8516FC4DF847700D11D28C120072
 ```bash
 magnet:?xt=urn:btih:3D8FDAFA0F4136F197692E25DEE53E1FF248019C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +255,8 @@ magnet:?xt=urn:btih:3D8FDAFA0F4136F197692E25DEE53E1FF248019C
 magnet:?xt=urn:btih:EAA655B14928D3B8967E7EDEEC9A6935159AEAE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:EAA655B14928D3B8967E7EDEEC9A6935159AEAE0
 ```bash
 magnet:?xt=urn:btih:4DFE257E598B6B84A8730881E71052AD18CFFE33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +308,8 @@ magnet:?xt=urn:btih:4DFE257E598B6B84A8730881E71052AD18CFFE33
 magnet:?xt=urn:btih:ED378ED2FDB622AEBC3A0AE250819DD676A3A196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +334,8 @@ magnet:?xt=urn:btih:ED378ED2FDB622AEBC3A0AE250819DD676A3A196
 magnet:?xt=urn:btih:84EF8BC37EFEBF9DE604F78C850941EF3D593764
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +359,8 @@ magnet:?xt=urn:btih:84EF8BC37EFEBF9DE604F78C850941EF3D593764
 ```bash
 magnet:?xt=urn:btih:D3718897EEC730648DBF8778B62142734EC6AC2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +389,8 @@ magnet:?xt=urn:btih:D3718897EEC730648DBF8778B62142734EC6AC2E
 magnet:?xt=urn:btih:3790AB0DC243A0794D146FCACE27357F641482EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +414,8 @@ magnet:?xt=urn:btih:3790AB0DC243A0794D146FCACE27357F641482EF
 ```bash
 magnet:?xt=urn:btih:CA5DE7DDD812813B07FE2F6E1E448BB5E87D06A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +441,8 @@ magnet:?xt=urn:btih:CA5DE7DDD812813B07FE2F6E1E448BB5E87D06A0
 magnet:?xt=urn:btih:CBEA0D4C079BF04AB9C6CB5E251A46243A91972D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +466,8 @@ magnet:?xt=urn:btih:CBEA0D4C079BF04AB9C6CB5E251A46243A91972D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +493,8 @@ magnet:?xt=urn:btih:CBEA0D4C079BF04AB9C6CB5E251A46243A91972D
 magnet:?xt=urn:btih:B264241FBA2AA14A04E5F8C558946CE92E545494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +518,8 @@ magnet:?xt=urn:btih:B264241FBA2AA14A04E5F8C558946CE92E545494
 ```bash
 magnet:?xt=urn:btih:7931E8B2DDEA147413527368AA3CE21B3AAFDC26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +545,8 @@ magnet:?xt=urn:btih:7931E8B2DDEA147413527368AA3CE21B3AAFDC26
 magnet:?xt=urn:btih:D06281F0A57929E602D8AE041AE8F562CA735A7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +570,8 @@ magnet:?xt=urn:btih:D06281F0A57929E602D8AE041AE8F562CA735A7D
 ```bash
 magnet:?xt=urn:btih:E014FF273CBBC72E362E529973AE0D1365D8E7DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +597,8 @@ magnet:?xt=urn:btih:E014FF273CBBC72E362E529973AE0D1365D8E7DE
 magnet:?xt=urn:btih:91B12DB5640AFB5061C8A7B66BDC520FC7840AE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +623,8 @@ magnet:?xt=urn:btih:91B12DB5640AFB5061C8A7B66BDC520FC7840AE2
 magnet:?xt=urn:btih:E2EC0E94531650AEE4BEB8B0CFF4C5DDC24C451C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +648,34 @@ magnet:?xt=urn:btih:E2EC0E94531650AEE4BEB8B0CFF4C5DDC24C451C
 ```bash
 magnet:?xt=urn:btih:9ED33382F250B0991FA2FD78F53590E941DDDBED
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 625931   (945793) от 04.03.2013
+
+Мастер-палач / Majster kat (1966) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие этого исторического фильма происходит в Центральной Европе (XVII в.) на словацкой территории, захваченной турками-османами. На этом фоне разворачивается драматическая история непримиримого соперничества и вражды двух бывших лучших друзей - рыбака Рихарда (Штефан Кветик) и «последнего палача Братиславы» Эмиля (Владо Мюллер). Они любят одну девушку Милисию, (   Читать дальше...   )Производство: ЧехословакияЖанр: ДрамаРежиссер: Пальо БиеликАктеры: Владо Мюллер, Штефан Квитик, Эмилия Вашариова, Петер Дебнар, Иозеф Будский, Зузана Жеребкова, Ольга Адамчикова, Франтишек Дибарбора, Ондрей Ярьябек, Иван Кривосудски, Самюэль Адамчик, Владимир Костович, Божена Слабейова, Эдуард Биндас, Йозеф Адамович, Ян Крамар, Владо Черни, Юлиус Вачек, Славо ЗаградникПеревод: Многоголосый закадровыйПродолжительность: 01:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFA0BB0EDB32C60442DA28239FFAD8A07BF0F0A5
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

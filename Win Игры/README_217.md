@@ -19,6 +19,8 @@ Arcade Tycoon: Simulation Game (2021) [Ru/Multi] (2.0.3) License GOG
 magnet:?xt=urn:btih:DF6BE43B61A5E2CEF506C0463F02A007AD81606E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Lil' Guardsman - это восхитительная и увлекательна
 ```bash
 magnet:?xt=urn:btih:ADF5C1ED7BE50081A9B5EA56898A8909A78295C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ It Happened Here 3: A Storm is Brewing (2024) [En] (1.0) Unofficial [Collector's
 magnet:?xt=urn:btih:A96D68C035A972162AD7C5AB22A7364BB6A2BA2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Hidden Object Secrets 2: The Whitefield Murder (2024) [En] (1.0) Unofficial [Col
 ```bash
 magnet:?xt=urn:btih:2A8081A142BB9E72BC1D71436442DD84A954F32B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Reflections of Life 12: The Shattered Timeline / Отражения жизни 1
 magnet:?xt=urn:btih:4A5D5F7341B0AF3F78B7ACE72B3AA479EADC8BE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Lucky Season: King of Fools / Сезон удачи: Король глупцов
 ```bash
 magnet:?xt=urn:btih:BC41B8DF93A97FEA8321B5880337EE515C33BBEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Wilde Investigations 2: Animal Sanctuary Shuffle (2024) [En] (1.0) Unofficial [C
 magnet:?xt=urn:btih:1683A34356C2101CD123F2864AA6B472D7226C61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Immortal Mantis (2022) [Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:5AE4AFCA93958B0FB76D3A213F803F689AB16AD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ mmortal Mantis: Revenge - хоррор с нелинейным повество�
 magnet:?xt=urn:btih:A5C5D4C59CC926E051BD18908D64BB49C73EFCDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Arcane Path (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:58C5B3C66796D3D329970A034D1DE4781BC690BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Absolum создана с любовью командой мечты, котор
 magnet:?xt=urn:btih:D4544BAFE3CB28DA9816CE9B554B677686D12A27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Yooka-Replaylee - это усовершенствованная версия и�
 ```bash
 magnet:?xt=urn:btih:CAFCB7B514E6E70B4BEFA80F5E6AE75D6D7B1349
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Edge of Reality 9: The Legend of Greenbush (2024) [En] (1.0) Unofficial [Collect
 magnet:?xt=urn:btih:E2FD850C7195C2A6DF6AD9E0AA5AB996B7904DDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Criminal Archives 3: Murder in the Pages / Криминальные архивы
 ```bash
 magnet:?xt=urn:btih:63CEE49B4E6BFF9C375A8B72EE78F26907F91DFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Unseen Fears 6: Fortunes Consequence / Невидимые страхи 6: П
 magnet:?xt=urn:btih:1142ABCBFAA27FCDE04B5CDE18EE4DFFBC676D3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ MUSYNX пришла на компьютеры с мобильных устрой
 ```bash
 magnet:?xt=urn:btih:3A7C7828A09338AB7B84D98170361FDF077C65B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Disgaea 7: Vows of the Virtueless (2023) [Multi] (1.12/dlc) Scene Tenoke [Ultima
 magnet:?xt=urn:btih:2FB52C1E996FF9368D420DEF3129FABC9D895BF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Fi da Puti Samurai погружает геймеров в перестрелки
 ```bash
 magnet:?xt=urn:btih:7E80B41476197702B6E5376DE329A302BDAE56D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Knight Cats 3: Whisper of the Universe (2024) [En] (1.0) Unofficial [Collector's
 magnet:?xt=urn:btih:7974A562B4D86A0E19069569C9A42C3FDB21B484
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Criminal Archives 3: Murder in the Pages (2024) [Multi] (1.0) Unofficial [Collec
 ```bash
 magnet:?xt=urn:btih:FBAE365BCFF9F9D8C04260CE41B76D4F4EE34C58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Robin Hood - Sherwood Builders – это приключенческая рол�
 magnet:?xt=urn:btih:7E1887130D841F66631996EDC775E2EDD1B15B39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:0BCE6041222655554FC6A7A901BEF384FD9EB4CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Mobius Machine бросает игроков в огромный инопл�
 magnet:?xt=urn:btih:EE79CD013EEB9FF18208576F263993C5A335AD14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Classified: France ‘44 - это пошаговая стратегическа�
 ```bash
 magnet:?xt=urn:btih:C795B8E38AA4297CFBB1EA3902D83A5215E24DB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Run Pizza Run (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:7799F70B75A87031543E1BF1B161802FE01F6FD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ SANYA / САНЁК (2024) [Ru/Multi] (3.4) Repack Other s
 ```bash
 magnet:?xt=urn:btih:69E820F81468CD6A12CD41802DE492D5FEB84476
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

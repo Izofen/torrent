@@ -19,6 +19,8 @@ FlatOut (2005) [Multi] (1.1) License GOG
 magnet:?xt=urn:btih:51D38E5DEA9D68187C85693EE472C2299F31300C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Lure of the Temptress (1992) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:6F4708C0E6B160BE8A552A8F54C613FF221D614D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Imperium Galactica (1997) [En] (1.0) License GOG
 magnet:?xt=urn:btih:884B8988BF1424A723B622AE0C4762A190553D28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Druidstone: The Secret of the Menhir Forest (2019) [Ru/En] (1.2.12) License GOG
 ```bash
 magnet:?xt=urn:btih:2C818AF17F4BEE92786DFB4DC2BB1840A2D85DDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Shannara / Шанара (1995) [Ru/En] (1.0) Unofficial
 magnet:?xt=urn:btih:6C5374389394CDAE3BB7AADB61D98279CD649D49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Company of Heroes (2006) [Ru] (1.0) License
 ```bash
 magnet:?xt=urn:btih:9046736EE59AA7F218454902333AAE2C307B4EBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Waxworks (1992) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:FF2B4DE245A2D6C057BB2AE73E8502069904997E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ XIII (2003) [Ru] (1.01) Repack anton210896
 ```bash
 magnet:?xt=urn:btih:C458DD7686D7F8A04398BAFCC34CCD08F8F22BBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Delta Force: Land Warrior / Отряд Дельта: Операция "Спец�
 magnet:?xt=urn:btih:5240F170BFE33C592C95182893E7D10082D3E158
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Delta Force: Black Hawk Down / Delta Force: Операция "Черный Яс�
 ```bash
 magnet:?xt=urn:btih:1CE6421DF4DB454C2504F3775CE95D864699FC78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Traffic Giant - это удивительная игра-симулятор, к�
 magnet:?xt=urn:btih:93C7A51FD62C367211EBC7D16B9321B29F52F600
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Dark Messiah of Might and Magic (2006) [Ru/En] (1.02) License
 ```bash
 magnet:?xt=urn:btih:A21D157716CB3FC716761DB427B81587F422BE60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Ishar Trilogy (1990-1994) [En] (1.0) License GOG
 magnet:?xt=urn:btih:B37E69CE6EFAA6279E023AC8B01531D1154B8E77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Patrician III - это экономическая стратегия. Вы - о�
 ```bash
 magnet:?xt=urn:btih:56159AFD8ACB47563776A69F8B2360110AA0A222
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Freedom Fighters (2003) [Ru/En] (1.0.0.4490481) License GOG
 magnet:?xt=urn:btih:E42B1E9443F0791EBC79B180053F8D452BD143E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ A Golden Wake может заинтересовать любителей ста�
 ```bash
 magnet:?xt=urn:btih:1142055515C93C35768CF3D62B1865E132EEEB57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Tom Clancy's Splinter Cell (2003) [Multi] (2.0.0.12/dlc) License GOG
 magnet:?xt=urn:btih:71A27F11EA19BCCE33D6CA21383DEE3EE3656844
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Birthright: The Gorgon's Alliance / Страна Героев (1997) [Ru] (1.3) 
 ```bash
 magnet:?xt=urn:btih:4BD531019C344172234D7B8F390F0B4881D58935
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Birthright: The Gorgon's Alliance / Право на Жизнь: Союз Гор�
 magnet:?xt=urn:btih:D96A151A24C218B9162C80F9F7C083DAF6FC1EA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Uplink: Hacker Elite (2001) [En] (1.6) License GOG
 ```bash
 magnet:?xt=urn:btih:1C1EE8A343B3172B9D3E7F45C1FF7E88992A001A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Darkest Hour - самостоятельное дополнение для игр
 magnet:?xt=urn:btih:F4003095AC7369DCD82A6BFAAF68BECCF6D11B0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Ecstatica: A State of Mind (1997) [En] (1.0) License
 ```bash
 magnet:?xt=urn:btih:F702B2B71AFFACC42B364041F93D7F393C1E2ED2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Warhammer: Mark of Chaos (2006) [Multi] (2.14/dlc) License GOG [Gold Edition]
 magnet:?xt=urn:btih:379AC3BC96DB59882FF6205BB49D97D8C8390448
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Dracula: Origin раскрывает темные начала прокляти�
 ```bash
 magnet:?xt=urn:btih:F9C2D3575A5B97CB3986101AE9848CD26446C76C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Legion Arena: Cult of Mithras / Легионы Рима: Культ Митры (
 magnet:?xt=urn:btih:78152529C43D3A3F2F9BCED16C391330A318034F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ LEGO Batman: The Videogame (2008) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:18334F411FDB886925E4CF3B8A9F03DC401ECADA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

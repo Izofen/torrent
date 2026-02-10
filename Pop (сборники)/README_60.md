@@ -1,3 +1,32 @@
+###  Публикация: 1151726   (570229) от 20.07.2017
+
+VA - Power FM Hits 2017 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rag'n'bone Man - Human 03:21
+02. Kda Feat. Tinashe - Just Say 03:22
+03. Mahmut Orhan Feat. Sena Sener - Feel 02:54
+04. The Chainsmokers Feat. Halsey - Closer 04:07(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE72038F045188A150714EC9E6067AA347B4FD5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151913   (570357) от 20.07.2017
 
 DJ.Amure - Best Remixes (2017) [MP3|320 Kbps] <Dance, Disco>
@@ -21,6 +50,8 @@ DJ.Amure - Best Remixes (2017) [MP3|320 Kbps] <Dance, Disco>
 ```bash
 magnet:?xt=urn:btih:4522C624EED06DCA3FDA7E982BB7A42F9C8D6C4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -55,6 +86,8 @@ VA - Без тормозов: Super дискотека 10 (2012) [MP3|256 кб/�
 magnet:?xt=urn:btih:9992B071FFC534106E660D9C0291E058357B39EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -88,6 +121,8 @@ VA - Летняя улетная вечеринка (2012) [MP3|256 кб/с]<Pop
 magnet:?xt=urn:btih:4AB1E7103550A0273E50191C184040212FB25ACB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -111,6 +146,8 @@ VA - Союз хитовый Русский (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:7E8D702AB2E7D5B476AC67F5E307E6410E434BCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +176,8 @@ VA - Хит топ 2015. Лирические баллады (2015) [MP3|320 к�
 magnet:?xt=urn:btih:7A14181988DF59ECE5FBEEE2045C70E5A48650EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +204,8 @@ VA - Hit Music: лето (2022) от Мяу [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:9E0F72098ADEF64536A3C48ADE06CC4318DDC057
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +234,8 @@ VA - 60 лучших песен на французском языке (2017) [M
 magnet:?xt=urn:btih:512BA7C0E9749D677AA9ADD349564B1F46193904
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +262,8 @@ VA - World Top 100 DFM (2016) [MP3|128-320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:426DB1E9950435BA0347E8B0BFE7D84137113435
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +292,8 @@ VA - Now Thats What I Call The 80s Hits (2016) [MP3|320 Kbps] <Pop, Disco, R&B, 
 magnet:?xt=urn:btih:149F5F5CF1E26B01CF3F831FE765E32AE4435459
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +320,8 @@ VA - The Greatest 80's Collection (2016) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:1DA02B53CCA462D69AD2CE5146138DEAC3C08E8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +350,8 @@ VA - 100 Хитов Любимой Музыки (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:700CA6F401D12D34B64B9CE619F4A68B7A65201D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +378,8 @@ VA - Super Dance Party Vol.4 (2016) [MP3|320 Kbps] <Dance, Club>
 ```bash
 magnet:?xt=urn:btih:9B56A2A13A62527C6E3C873283344AE9508E0B91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +408,8 @@ VA - Наша летняя соточка №1 (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:C05CE783F2943C13135B7C9BAA0F7A4822B056D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +436,8 @@ VA - Turbo mix World Hits №6 (2016) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:3C4E042D4ED938C03A866D73D3A0D72F2AE22F24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +466,8 @@ VA - Зажги Под Летние Хиты 8 (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:AE5AA5FC35BCA0664A2A363C4FE6F1ACED119D32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +495,8 @@ VA - Муз обоз №5 (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:5B83038C055D5814F38F4467622AAD5B9FB23DBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +520,8 @@ VA - VIP Абсолютно Танцевальный (2011) [MP3|256 kbps]<Pop, 
 ```bash
 magnet:?xt=urn:btih:22407C47F9447448CE4A276E198BCE90A9BB9938
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +550,8 @@ VA - Русское радио. Убойное лето №4 (2016) [MP3|256 Kbp
 magnet:?xt=urn:btih:E0FCD3E74D90D883DA118CDEBDA29FA6E7109D49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +579,8 @@ VA - Super Summer Hits 2016 (2016) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:1247CE0A93879081B8B61C41C757D24682E2E6F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +604,8 @@ VA - Золотые Хиты Дискотек 80-х В Обработке  (2011
 ```bash
 magnet:?xt=urn:btih:FAF150FF3DDA6D1D737EF6ED53FC158D2D006D97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +634,8 @@ VA - Убойное лето №5 Europa Plus (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:56BB8C98DCFAFFE65A2F1BDF2714F164B11E680B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +663,8 @@ VA - Mega Hits. World top №9 (2016) [MP3|128-320 Kbps] <Pop>
 magnet:?xt=urn:btih:555D32EBE86B267D69BEE68F165266737A41D8AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +691,8 @@ VA - Союз Летних Хитов (2016) [MP3|256 Kbps] <Поп, Dance>
 ```bash
 magnet:?xt=urn:btih:52E7ACC00353F2D5C35DA0821C6AF50DCB65F2FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +727,8 @@ VA - 100 Лучших хитов от Русского радио Спецвып
 magnet:?xt=urn:btih:D23F17E22D6933A1F413667807066557809E710A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -679,29 +756,7 @@ VA - Super Dance Party Vol.3 (2016) [MP3|320 Kbps] <Dance, Club>
 magnet:?xt=urn:btih:AF678D0638C62F94ED68BE5E8517C8A05A113778
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361992   (575089) от 11.07.2011
-
-VA - Хит-парад 200 50/50 (2011) [MP3|128 kbps]<Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ПопПродолжительность: 12:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10CA76E83C598B5C8F5C0BC8E668C8E45BA7858E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 magnet:?xt=urn:btih:17997BE9BFFAAFA2D58438EA41E47A1D81A3E63D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:17997BE9BFFAAFA2D58438EA41E47A1D81A3E63D
 ```bash
 magnet:?xt=urn:btih:621D0EB6FD1F3A71FA184A63E65E55C4C6796A5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:621D0EB6FD1F3A71FA184A63E65E55C4C6796A5D
 magnet:?xt=urn:btih:7A6E55C6A881A6CECC66B7AA761B3D99B423B5A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:7A6E55C6A881A6CECC66B7AA761B3D99B423B5A5
 ```bash
 magnet:?xt=urn:btih:D2FEEF65FB43C9BFEA05802DD558081D8E60AF0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:D2FEEF65FB43C9BFEA05802DD558081D8E60AF0F
 magnet:?xt=urn:btih:163AA51ABF7EA043485BBE0223868BFF265BA111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:163AA51ABF7EA043485BBE0223868BFF265BA111
 ```bash
 magnet:?xt=urn:btih:8F12C1D28ECBBFF2E7384245CF23E2E3BEF65ED5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Infuse - прекрасный способ смотреть практическ
 magnet:?xt=urn:btih:574EBDD1A472009043EC04626BBEF6770EF12E1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Android Studio - полностью укомплектованная платф�
 ```bash
 magnet:?xt=urn:btih:159FC26182AF48FCEDC0F71B341CF0453F083FB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:159FC26182AF48FCEDC0F71B341CF0453F083FB5
 magnet:?xt=urn:btih:B2E19C1B6825526B0518CC5874ACBFF53664BABE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:B2E19C1B6825526B0518CC5874ACBFF53664BABE
 ```bash
 magnet:?xt=urn:btih:0CEB4C2236E0673842D5113A3E171FF4213775BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ BBC: Есть, голодать, жить дольше / Eat, Fast and Live Long
 magnet:?xt=urn:btih:35129CCDC0D02AAF1BB02B1EEB090F5B3EAF80D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:35129CCDC0D02AAF1BB02B1EEB090F5B3EAF80D3
 magnet:?xt=urn:btih:5411CE9280AAF05D973D8537ECCC5C23DC58CF4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:5411CE9280AAF05D973D8537ECCC5C23DC58CF4C
 ```bash
 magnet:?xt=urn:btih:59EE125F6A49CF7400437D7C1D77ED836FC6AB77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Skillbox, Андрей Щедрин | Горшечные растения (2022)
 magnet:?xt=urn:btih:0A431E40557E31C12E17A372D4E4D2329844AE84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:0A431E40557E31C12E17A372D4E4D2329844AE84
 magnet:?xt=urn:btih:98B3712AEB0033570644053E6483650E9749D31F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ BBC: Духи ягуара / Spirits of the Jaguar (1996) DVDRemux (серии 1
 ```bash
 magnet:?xt=urn:btih:533D0F3A4B2A1E88FD648329D53999907796FF90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ Advanced SystemCare PRO - это мощный пакет для оптимиза
 magnet:?xt=urn:btih:315FFD157AF0E99DD45BDBCEAC61490983774E57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Discovery: Экспедиция в Арктику / Expedition to the Edge (2020
 ```bash
 magnet:?xt=urn:btih:3D1B9C0598FDF26DDD3AFC42837AE8BBCDD6E609
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:3D1B9C0598FDF26DDD3AFC42837AE8BBCDD6E609
 magnet:?xt=urn:btih:2581200B4EC16EB55F4A08F28AF55FAE5C0ADDE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:2581200B4EC16EB55F4A08F28AF55FAE5C0ADDE3
 ```bash
 magnet:?xt=urn:btih:8C13AB40E59DAC48CD875584F1A0854D7CA4A24C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:8C13AB40E59DAC48CD875584F1A0854D7CA4A24C
 magnet:?xt=urn:btih:FDB4A49FC40E2AD20529A783866C1DA5E3DE21EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:FDB4A49FC40E2AD20529A783866C1DA5E3DE21EB
 ```bash
 magnet:?xt=urn:btih:41634D604559A24A85DE6115D62EA9B1E7E8A512
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:41634D604559A24A85DE6115D62EA9B1E7E8A512
 magnet:?xt=urn:btih:49E74F8EC28391FFD7499325E8B88D53A73EDA69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:49E74F8EC28391FFD7499325E8B88D53A73EDA69
 ```bash
 magnet:?xt=urn:btih:BC9B5827D4031268C3AFA8A866FC412987A49A18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:BC9B5827D4031268C3AFA8A866FC412987A49A18
 magnet:?xt=urn:btih:D6D47CA7D34FACB35DF7D40B86FEF0528BF12876
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:D6D47CA7D34FACB35DF7D40B86FEF0528BF12876
 ```bash
 magnet:?xt=urn:btih:C5240F139D0C3CE95A4E18F9689FAEC14F9A0CDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

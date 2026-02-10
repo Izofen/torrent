@@ -19,6 +19,8 @@ Lkdown — мощный акцидентный шрифт, вдохновлён�
 magnet:?xt=urn:btih:8834628906C7838812014C7532C01345271224BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:8834628906C7838812014C7532C01345271224BE
 ```bash
 magnet:?xt=urn:btih:53738230800A6D2C0F22F375C2F0F2C1FE182D46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Frequency — это современный и минималистичный ш
 magnet:?xt=urn:btih:AA41C9BEEDF182DB6212B82DB72A65B1233EBD20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:AA41C9BEEDF182DB6212B82DB72A65B1233EBD20
 ```bash
 magnet:?xt=urn:btih:4296F0C7BAC8F893B29E7DA0C3FF55B2DA1D9A6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:4296F0C7BAC8F893B29E7DA0C3FF55B2DA1D9A6E
 magnet:?xt=urn:btih:2D9BD596F66461833431563D1BCBD9BEC49205AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ TG Frida Mono представляет собой современный циф�
 ```bash
 magnet:?xt=urn:btih:DF5E94BCE5C8481C596BF678F1BC4269430AC71A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Prestino оснащён несколькими функциями OpenType: ко
 magnet:?xt=urn:btih:E4B56614DE385AF2D9D2FFD78B4747229AEBC818
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Letrismo — это шрифт с засечками, вдохновлённый
 ```bash
 magnet:?xt=urn:btih:95E4265EDC49B4BB73FAEDA9B35C3E85F7BDF399
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:95E4265EDC49B4BB73FAEDA9B35C3E85F7BDF399
 magnet:?xt=urn:btih:D346947A8F8AC5E89B7318D4850586BE1BB2C2DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:D346947A8F8AC5E89B7318D4850586BE1BB2C2DA
 ```bash
 magnet:?xt=urn:btih:6A2E508B2E9CAE8D4A2993E5B37E9EA40BBCEDD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:6A2E508B2E9CAE8D4A2993E5B37E9EA40BBCEDD8
 magnet:?xt=urn:btih:913C1BD9DE7F51126531A1A5AECFF112E9E09F40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:913C1BD9DE7F51126531A1A5AECFF112E9E09F40
 magnet:?xt=urn:btih:13017941209FD0188E75A1EE4D58D8A5C9D62ADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:13017941209FD0188E75A1EE4D58D8A5C9D62ADC
 ```bash
 magnet:?xt=urn:btih:E479D6A9224A0AE1D7E840B6373B2B18DB4964E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Allrounder Baroque — переходный шрифт с засечками и�
 magnet:?xt=urn:btih:E7F0624B4AE9E40F75F90D6A4620058CD7B32D85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:E7F0624B4AE9E40F75F90D6A4620058CD7B32D85
 magnet:?xt=urn:btih:C4CE7193DEE8DBB83F6E67E438871BE429A7880B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:C4CE7193DEE8DBB83F6E67E438871BE429A7880B
 ```bash
 magnet:?xt=urn:btih:E7C79B74885D982700065AE819ACADE0D161D27B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:E7C79B74885D982700065AE819ACADE0D161D27B
 magnet:?xt=urn:btih:58582D1132679A3889B7CA3A939C9EB80544E9F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Thorn & Tale — контрастный шрифт с засечками, соз
 ```bash
 magnet:?xt=urn:btih:4C744FF6224FE6A172608921C4B9D35C776CED98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:4C744FF6224FE6A172608921C4B9D35C776CED98
 magnet:?xt=urn:btih:B34158355B98430DA48459C738E4F2837DCAA49B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ TG Pilgrima Office — это новый цифровой шрифт без за
 ```bash
 magnet:?xt=urn:btih:8A439F543B80CF047B7B41B767F863D190B81B37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ Lodgify — это премиальный и высококачественны�
 magnet:?xt=urn:btih:C9F55110D4E08914219D419D7973DA7EC28A7624
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Confer Sans — это ответ Identity Letters на проблему «ид�
 magnet:?xt=urn:btih:6E5531095409B89B3A6C419382275E103C9DDB7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ Abstract Panoramic Paint представляет собой абстрактн�
 ```bash
 magnet:?xt=urn:btih:3C867657A98FD73F9D83E0995A47AC8453026667
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ Kineks — это современное суперсемейство, разр�
 magnet:?xt=urn:btih:B2012566D9CAB98F7489687F22D379780B69CB01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:B2012566D9CAB98F7489687F22D379780B69CB01
 magnet:?xt=urn:btih:1E5A5801D2353046A41748DDD2FC4EFE44939691
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Raw Rhythm перенесёт вас в самое сердце хауса, ос
 ```bash
 magnet:?xt=urn:btih:D1B9F178D85DDEBDCD00F368FD5DF02890A02A6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

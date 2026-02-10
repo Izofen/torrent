@@ -19,6 +19,8 @@ Warhammer 40,000: Dawn of War II - Retribution - второе отдельное
 magnet:?xt=urn:btih:3D89C2130B92B4954CDF9834D3EC67EB1B1B20F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:3D89C2130B92B4954CDF9834D3EC67EB1B1B20F3
 ```bash
 magnet:?xt=urn:btih:949DAD1CFF94A43056E88966BD97B70B67949FCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:949DAD1CFF94A43056E88966BD97B70B67949FCA
 magnet:?xt=urn:btih:05E78BBB349271E773C346F1B5505389F91C2151
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ ATOM RPG - это постапокалиптическая инди-игра, в
 magnet:?xt=urn:btih:CC27711DD3FFD5E2E2B89C743D84DAF8DCDBBF18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ DuckTales: Remastered - это красочный, нарисованный вр
 ```bash
 magnet:?xt=urn:btih:C519E69E49AC584AAAF60E37E3D62914DCB4B142
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:C519E69E49AC584AAAF60E37E3D62914DCB4B142
 magnet:?xt=urn:btih:DD6CBA1C477A9316FB6B3F921127D6D3CA47B1FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ OddPlanet - небольшая красивая приключенческая �
 ```bash
 magnet:?xt=urn:btih:419FCA8395F90510ACBC1D2A2E21EA13F3D768D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Spelunky (от англ. to spelunk — исследовать пещеры) —
 magnet:?xt=urn:btih:2B71DF808E24AAB014A14EA3C0363D61429EEB6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Might and Magic: World of Xeen является объединением дву�
 ```bash
 magnet:?xt=urn:btih:DC12FFC58E1865CB3046987BFAD9C27E55B4AAEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:DC12FFC58E1865CB3046987BFAD9C27E55B4AAEB
 magnet:?xt=urn:btih:42D51A82F3C496D8B130609980250AFD1E70C6FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:42D51A82F3C496D8B130609980250AFD1E70C6FF
 ```bash
 magnet:?xt=urn:btih:160B3A53B6FB979BA720E7C35BB68A13A6F8A3F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Lords of Xulima – это необычная ролевая игра, дейс�
 magnet:?xt=urn:btih:CBFF5951526015CBDD1606733AA22612B67284FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:CBFF5951526015CBDD1606733AA22612B67284FD
 ```bash
 magnet:?xt=urn:btih:765839CBE00E214F64C5002BB37F8C3F08843929
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:765839CBE00E214F64C5002BB37F8C3F08843929
 magnet:?xt=urn:btih:7551044F3AEA101974D9F2A207CAB78C1DBB1442
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:7551044F3AEA101974D9F2A207CAB78C1DBB1442
 ```bash
 magnet:?xt=urn:btih:2E63B2A054FDE4E105011ABE60EF6A5DE3BE5A7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:2E63B2A054FDE4E105011ABE60EF6A5DE3BE5A7F
 magnet:?xt=urn:btih:3F3FF18CA7FF4340B2621C99C2AB3C2AF9DDB593
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:3F3FF18CA7FF4340B2621C99C2AB3C2AF9DDB593
 ```bash
 magnet:?xt=urn:btih:06C40B633067C2B16A94DBD285F2BBEE30D90B61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ BLACKHOLE («Черная дыра») – суровый сюжетный пла
 magnet:?xt=urn:btih:CAFC70A0B2FBB8EB90F7CD70719CB4A2098326E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:CAFC70A0B2FBB8EB90F7CD70719CB4A2098326E0
 ```bash
 magnet:?xt=urn:btih:D3D161880623AB38A1FDDEFFBE94C0D33A5EEFBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:D3D161880623AB38A1FDDEFFBE94C0D33A5EEFBF
 magnet:?xt=urn:btih:7607247D5681741C42EAE3815F9EE29789B065E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Zombasite, динамический боевик с элементами рол�
 ```bash
 magnet:?xt=urn:btih:10BB867EDEB5D5B5D704F80F153F6DCC7234A3E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:10BB867EDEB5D5B5D704F80F153F6DCC7234A3E3
 magnet:?xt=urn:btih:BA4E392466649D13D9C64365DC8F258043006664
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Immortal Redneck — это шутер с элементами жанра роу
 magnet:?xt=urn:btih:1EF080FE35193E9832261D08E549E7D40337DB54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:1EF080FE35193E9832261D08E549E7D40337DB54
 ```bash
 magnet:?xt=urn:btih:E821C8259FF18F196697511CB551E113EA64F51D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:E821C8259FF18F196697511CB551E113EA64F51D
 magnet:?xt=urn:btih:212FD4D4590922754F42CA89391B1242BDED49CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:212FD4D4590922754F42CA89391B1242BDED49CF
 ```bash
 magnet:?xt=urn:btih:ECDF636DF3FB9FBD20EDF720836A9378EDD07737
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

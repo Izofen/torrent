@@ -1,3 +1,30 @@
+###  Публикация: 575232   (356996) от 19.11.2012
+
+Дэвид Эйри | Логотип и фирменный стиль (2011) [PDF]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_356996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выпущена масса книг с коллекциями логотипов. Однако перед вами издание совсем другого плана — это полноценное руководство для дизайнеров (и их клиентов) которые хотят освоить эту увлекательную, творческую и вместе с тем сложнейшую задачу — разработку корпоративного стиля.
+Автор не просто рассказывает о технологии разработки логотипа и фирменного стиля, но и использует (   Читать дальше...   )Жанр: ДизайнФормат: pdf
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 577676   (357397) от 19.11.2012
 
 С.О.Герасимов, И.М.Журавлев | Орхидеи [1988] [PDF]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:B060CCDDAA03F5DF88148C03889774DF2E7CCF35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@ magnet:?xt=urn:btih:B060CCDDAA03F5DF88148C03889774DF2E7CCF35
 magnet:?xt=urn:btih:3611F4172C7520B05BEDD70C2FFBFD8CD50FA380
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ magnet:?xt=urn:btih:3611F4172C7520B05BEDD70C2FFBFD8CD50FA380
 ```bash
 magnet:?xt=urn:btih:1B65A74EA151BBACD1CCD039C881CFB754164CEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:1B65A74EA151BBACD1CCD039C881CFB754164CEB
 magnet:?xt=urn:btih:C5FC4D80FB2ADDFBD359A3E122082DD3278B581B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +151,8 @@ magnet:?xt=urn:btih:C5FC4D80FB2ADDFBD359A3E122082DD3278B581B
 magnet:?xt=urn:btih:B78CABD7DBF42BDA71C92957DC54D4BF99897317
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +176,8 @@ magnet:?xt=urn:btih:B78CABD7DBF42BDA71C92957DC54D4BF99897317
 ```bash
 magnet:?xt=urn:btih:57A5174FE38115516D8EBBC230E4BDC57CF6486B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +204,8 @@ magnet:?xt=urn:btih:57A5174FE38115516D8EBBC230E4BDC57CF6486B
 magnet:?xt=urn:btih:74E7A98B373C6C0446FABDEB4401ACFC600FEC46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +231,8 @@ magnet:?xt=urn:btih:74E7A98B373C6C0446FABDEB4401ACFC600FEC46
 magnet:?xt=urn:btih:952ED5703B44C6D8AD8484D7421980F61AF3CD7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +256,8 @@ magnet:?xt=urn:btih:952ED5703B44C6D8AD8484D7421980F61AF3CD7F
 ```bash
 magnet:?xt=urn:btih:ADC4EF095B106624EA425EEC43D6442C84A22E39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +284,8 @@ magnet:?xt=urn:btih:ADC4EF095B106624EA425EEC43D6442C84A22E39
 magnet:?xt=urn:btih:1E6C2F319DE9964FB59AD4E7422617F8DC69E71B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +310,8 @@ magnet:?xt=urn:btih:1E6C2F319DE9964FB59AD4E7422617F8DC69E71B
 ```bash
 magnet:?xt=urn:btih:768E7E396546EB3D8C3372F7674870BC3310F585
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +339,8 @@ magnet:?xt=urn:btih:768E7E396546EB3D8C3372F7674870BC3310F585
 magnet:?xt=urn:btih:1C8E3A8FD8A700730E9F66F9890291D82C168624
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +364,8 @@ magnet:?xt=urn:btih:1C8E3A8FD8A700730E9F66F9890291D82C168624
 ```bash
 magnet:?xt=urn:btih:1B8AD6230445217CA45A9028F13FE4A72EBA08D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +394,8 @@ magnet:?xt=urn:btih:1B8AD6230445217CA45A9028F13FE4A72EBA08D0
 magnet:?xt=urn:btih:298455B8BE96189E4737D74CA9070F2787F89617
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +419,8 @@ magnet:?xt=urn:btih:298455B8BE96189E4737D74CA9070F2787F89617
 ```bash
 magnet:?xt=urn:btih:800E73C9EC67DAD0660370C7E1CB4BB110008E65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +447,8 @@ magnet:?xt=urn:btih:800E73C9EC67DAD0660370C7E1CB4BB110008E65
 magnet:?xt=urn:btih:17ED746616FC306A2E5DF8761FF470117F4011B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +474,8 @@ magnet:?xt=urn:btih:17ED746616FC306A2E5DF8761FF470117F4011B5
 magnet:?xt=urn:btih:F8FA7A9AB6D85895428160D1B8743A9C11EEB1C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +499,8 @@ magnet:?xt=urn:btih:F8FA7A9AB6D85895428160D1B8743A9C11EEB1C6
 ```bash
 magnet:?xt=urn:btih:F3E120295070B967B7332152BF8922E318798D72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +527,8 @@ magnet:?xt=urn:btih:F3E120295070B967B7332152BF8922E318798D72
 magnet:?xt=urn:btih:CA9B3C4622423FE00A0AE3154F0E9A62D2314F70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +552,8 @@ magnet:?xt=urn:btih:CA9B3C4622423FE00A0AE3154F0E9A62D2314F70
 ```bash
 magnet:?xt=urn:btih:AE6A4CB12E451B409C9F1B0F6180291160EF6596
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +579,8 @@ magnet:?xt=urn:btih:AE6A4CB12E451B409C9F1B0F6180291160EF6596
 magnet:?xt=urn:btih:F036EB8F32196BEE2DBAEB257CE7D92662E21AC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +604,8 @@ magnet:?xt=urn:btih:F036EB8F32196BEE2DBAEB257CE7D92662E21AC7
 ```bash
 magnet:?xt=urn:btih:8FA1036A869E3AE7AA6077C78EC5F8FE93665AB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +631,8 @@ magnet:?xt=urn:btih:8FA1036A869E3AE7AA6077C78EC5F8FE93665AB0
 magnet:?xt=urn:btih:7C7C5C075ACAA7C4DDD7C3BC09AB2C7711910C7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +656,8 @@ magnet:?xt=urn:btih:7C7C5C075ACAA7C4DDD7C3BC09AB2C7711910C7B
 ```bash
 magnet:?xt=urn:btih:AC9A4E86AE0F67B2A505DAF2B05C5B27ACF1A1E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,30 +683,7 @@ magnet:?xt=urn:btih:AC9A4E86AE0F67B2A505DAF2B05C5B27ACF1A1E3
 magnet:?xt=urn:btih:47AA7F09130B6EF0F034515F71210D79E5030AF3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255383   (358347) от 20.10.2018
-
-А. Попов | Ремонт своими руками. Энциклопедия домашних работ [3 части] (2010) [PDF]
-
->>Разное (категория книг)
->>Строительство и ремонт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто из нас не сталкивался с проблемами при ремонте?
-Это пособие — для домашнего мастера. Оно посвящено актуальным домашним проблемам, решаемым многими из нас. Здесь собраны рекомендации по работе с деревом, металлом, картоном, бумагой и т. д. Книга поможет с ремонтом дома и квартиры, даст советы о том, как самостоятельно отремонтировать потолки, полы, стены и лестницы; (   Читать дальше...   )Жанр: РемонтФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC7A140D0F800AF2AFAB03DB38F5C92815150E54
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

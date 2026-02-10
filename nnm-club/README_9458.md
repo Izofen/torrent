@@ -22,6 +22,8 @@ Catherine MacLellan - Silhouette (2011) [FLAC|Lossless]<Acoustic/Indie/Folk>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Downie – это простейший видео-загрузчик. Подде
 magnet:?xt=urn:btih:97BD4011EEA6C900AAF39408649E83A079FF028F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:97BD4011EEA6C900AAF39408649E83A079FF028F
 ```bash
 magnet:?xt=urn:btih:2E021995326253587320ADDA6DCA63C76F67582E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ iMazing: отличная альтернатива iTunes
 magnet:?xt=urn:btih:E38CE59E187FA0FCEB9C21E638CB069D23BFF4D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Framer Studio построена на Framer.js, является основой
 magnet:?xt=urn:btih:67C36AAA5F7B9AD9291C35058C8BCE6E71A0D8DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:67C36AAA5F7B9AD9291C35058C8BCE6E71A0D8DA
 ```bash
 magnet:?xt=urn:btih:30CAA00D3BE8355EB6023523FB0706EEFAC6FB7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ VA - Electric For Life (Mixed by Gareth Emery) (2016) [MP3|320 Kbps] <Trance, Vo
 magnet:?xt=urn:btih:D316D70A92B4348EFE7A473EB37FC95E69BA94DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ _ash Aria_ - _ash Aria_ (2016) [MP3|320 Kbps] <Alternative Metal, Industrial Roc
 ```bash
 magnet:?xt=urn:btih:59BF61BD10B4742E09B1001818AE95619B73CD06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ Klaus Doldingers Passport - Balance Of Happiness (1990) WEA[FLAC|Lossless|tracks
 magnet:?xt=urn:btih:7F91DCCD6ACCAB81CE6E9A2DDE1CFC37163F28B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ NX-Trance - CY 3000 (2016) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:DB3A469252C64B96B8E7DC47A3CFDDD959D8CD35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ VA - Lounge Season: New Year Party (2016) [MP3|320 Kbps] <Downtempo, Chillout, L
 magnet:?xt=urn:btih:E5D5B98A9D8D97223C52AB2F4C91428430E097C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +329,8 @@ Obzidian - Obliteration Process (2016) [MP3|320 Kbps] <Progressive Thrash, Death
 ```bash
 magnet:?xt=urn:btih:7D09AE5CBD18F0FC8E1CEC4923823AE59D04BFC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +359,8 @@ Mongo Santamaria - Mongo At Montreux (1971) 2012, Atlantic/Warner Japan/WEA/Rhin
 magnet:?xt=urn:btih:739DEBB340B291CA2C7BBE80AED815C84518A9BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +387,8 @@ Mel Torme and The Marty Paich Dek-Tette - The 1956 Torme-Paich Legendary Session
 ```bash
 magnet:?xt=urn:btih:134B3593802B957C02791AE36766B52B3EE3AFC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +417,8 @@ magnet:?xt=urn:btih:134B3593802B957C02791AE36766B52B3EE3AFC1
 magnet:?xt=urn:btih:2502EF5D6948F681C66C1CC2B5A379FE00E04467
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +445,8 @@ Paris Jazz Big Band - Mediterraneo (2002) Cristal Production[FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:76909E3CD5C2FFB559A9B0C117A1BE08BAC9486F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +475,8 @@ VA - Everything Is Chilling House (2016) [MP3|320 Kbps] <Funky, Club House>
 magnet:?xt=urn:btih:E02FEC8E87D76E39CCFA5D36AF24C0A4C6585EFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +504,8 @@ Sonny Rollins - Horn Culture (1973) 1992, Fantasy[FLAC|Lossless|tracks + .cue] <
 magnet:?xt=urn:btih:913B8163B4C11FB1D3F51C4FBC5888C480FBBFB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +531,8 @@ magnet:?xt=urn:btih:913B8163B4C11FB1D3F51C4FBC5888C480FBBFB5
 ```bash
 magnet:?xt=urn:btih:C3148C327E6FAD4B25E459B23E2ED790F0BA9938
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +561,8 @@ magnet:?xt=urn:btih:C3148C327E6FAD4B25E459B23E2ED790F0BA9938
 magnet:?xt=urn:btih:D4B18BE167E2BDD737B23CBAD00B9F063A4E3689
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +586,8 @@ Windows 10 Enterprise v1909.449 x64 by molchel [Ru]
 ```bash
 magnet:?xt=urn:btih:F2CAC3CC43E733C3B4DFE7587F19693E2AF9E1A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +619,8 @@ magnet:?xt=urn:btih:F2CAC3CC43E733C3B4DFE7587F19693E2AF9E1A7
 magnet:?xt=urn:btih:EEE9BB9B6C5D70356328234C835C7174C70E7993
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +644,8 @@ magnet:?xt=urn:btih:EEE9BB9B6C5D70356328234C835C7174C70E7993
 ```bash
 magnet:?xt=urn:btih:1BB9FE1D0F7F0A457AE2886FEBC7951181E47AD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +672,8 @@ Windows 10 (66in1) Sergei Strelec x86/x64 1909 (build 18363.449) [Ru]
 magnet:?xt=urn:btih:B19D903BF4F92EEB5DCB41A71C358BBD6204D742
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +698,8 @@ Ranma 1/2 | Ranma Nibun no Ichi | Ранма 1/2 [1989, TV, 161 из 161] BDRip 
 magnet:?xt=urn:btih:D5713884D4657C463367611B5F032B906BA16835
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,6 +723,8 @@ Agnitum Outpost Firewall - персональный брандмауэр, защ
 ```bash
 magnet:?xt=urn:btih:F42C12A4CFAA341CC608D82EDFD9370584FD77B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

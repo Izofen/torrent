@@ -27,6 +27,8 @@ Kryoburn - Three Years Eclipsed (2010) [MP3|320 kbps]<Industrial Death / Groove 
 magnet:?xt=urn:btih:C3506EA0164806E9D8472C5BF3AFB22A170F4B9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -59,6 +61,8 @@ Cheve - Направление своего пути (2012) [MP3|320 kbps]<Hip-H
 ```bash
 magnet:?xt=urn:btih:EB0292A682B6ADA37DAACF704C94A5E84D62E6FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +97,8 @@ Gera Pkhat - Связки (2011) [MP3|320 kbps]<Rap>
 magnet:?xt=urn:btih:6F77BE5454B8C3A1182264A9F77112D0CE20E5EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +131,8 @@ AquZe (Tokkata) - Морская (2011) [MP3|320 kbps]<Rap>
 ```bash
 magnet:?xt=urn:btih:426380FDC1AB5FAD261E6A94BAECC2697315635F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -159,6 +167,8 @@ VA - In The Mix Winter 2012 (Mixed by Kris O'neil) (23.01.2012) [MP3|320 kbps]<E
 magnet:?xt=urn:btih:1A8651DBB0832FE28F1B4F87B2832EC7DEBBA0FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +201,8 @@ Rappers Unit - Rap В Целом (2011) [MP3|128-320 kbps]<Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:E6BFF537C81078FC087DF986857457F05F7357EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +237,8 @@ VA - Spy Technologies 6 (2012) [MP3|320 kbps]<Drum'n'Bass>
 magnet:?xt=urn:btih:E84F9EDDCD2894724111441812DB58B6B8ACB571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +272,8 @@ RAM - Death (2012) [MP3|320 kbps]<Traditional Heavy Metal>
 magnet:?xt=urn:btih:893EAA41425AF5BFDC79A1CE0024DC3D31A233D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +302,8 @@ Doyeq - Untitled EP (2011) [MP3|320 kbps]<Dub Techno, Ambient, Minimal>
 magnet:?xt=urn:btih:675C5051E8932A586A74B59462FF96FE935BAB26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +327,8 @@ Media Player Classic HomeCinema - удобный во всех планах му
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +354,8 @@ Media Player Classic HomeCinema - удобный во всех планах му
 magnet:?xt=urn:btih:679FFBD765DA77DEDCD4F84751A23385C510C331
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +379,8 @@ Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -фа
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +415,8 @@ VA - Ingredients Records: Choice Cuts Vol.1 (2012) [MP3|320 kbps]<Drum'n'Bass>
 magnet:?xt=urn:btih:46D870B2FAC2A2FF5B7EA75EB4C2CE9BFC83FE57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +449,8 @@ Revelation - Осознание (2011) [FLAC|Lossless]<Gothic Doom Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +482,8 @@ Infernal Overdrive - Last Rays of the Dying Sun (2012) [MP3|320 kbps]<Stoner Roc
 magnet:?xt=urn:btih:1BC48D1DD1BDC977D1FEA95C7261F21271879D9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +507,8 @@ magnet:?xt=urn:btih:1BC48D1DD1BDC977D1FEA95C7261F21271879D9D
 ```bash
 magnet:?xt=urn:btih:5C33FB95D3764FBF82D47C2F80D2826642B21408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +543,8 @@ Mixed by Konstantin Versetty:
 magnet:?xt=urn:btih:E11DF61AEFAD05F672EE5A211A39AC4B0818384D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +569,8 @@ eXquisite CORpsE - Kupuri / Chalice (1994) [MP3|320 kbps]<Tribal/ Techno/ Downte
 ```bash
 magnet:?xt=urn:btih:7B0AE83A17FDF7B66442B1FA1699F9F9A00B5349
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +605,8 @@ VA - The Official UK Dance Top 40 Singles Chart (22-01-2012) [MP3|192 kbps]<Danc
 magnet:?xt=urn:btih:E7347E08C6038DE686908363EB273D9E131B384E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +630,8 @@ magnet:?xt=urn:btih:E7347E08C6038DE686908363EB273D9E131B384E
 ```bash
 magnet:?xt=urn:btih:6A4226580B8198A992F7CE67F3606E17C536D09D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +657,8 @@ magnet:?xt=urn:btih:6A4226580B8198A992F7CE67F3606E17C536D09D
 magnet:?xt=urn:btih:84805D9F8296C442CF2198F6DC7F719AE844BF83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +683,8 @@ magnet:?xt=urn:btih:84805D9F8296C442CF2198F6DC7F719AE844BF83
 magnet:?xt=urn:btih:08E102173B6D6B210C715B3E16BA67DBFB1A5AA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +708,8 @@ magnet:?xt=urn:btih:08E102173B6D6B210C715B3E16BA67DBFB1A5AA9
 ```bash
 magnet:?xt=urn:btih:C7803DBCB1B9171397F8D5592C07F34303AF43C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -698,6 +744,8 @@ magnet:?xt=urn:btih:C7803DBCB1B9171397F8D5592C07F34303AF43C6
 magnet:?xt=urn:btih:C17CF936D67CD286134B391E827929DE3EA6481E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -731,6 +779,8 @@ VA - 100 Degrees Fahrenheit (2012) [MP3|320 kbps]<Drum'n'Bass>
 magnet:?xt=urn:btih:87EE5131177C05F0E4B7350C51510B5C446210BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -763,6 +813,8 @@ VA - Red Hot + Dance (1992) [MP3|192 kbps]<Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:436B92CFD9D4B8BEDF497FB72665E6BEE0FEE144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

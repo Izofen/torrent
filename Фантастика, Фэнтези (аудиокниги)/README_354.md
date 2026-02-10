@@ -1,3 +1,30 @@
+###  Публикация: 1565576   (492588) от 24.07.2022
+
+Таня Свон | Вкус памяти (2021) [MP3, Екатерина Еремкина]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уже несколько веков люди и вампиры живут без войн. Но не все видят счастье в равенстве. Грядёт переворот, который готовился не одно десятилетие.
+Сандра переезжает в столицу, чтобы начать жизнь с чистого листа. Случайность или судьба вкладывает в руки девушки ритуальный клинок, что давно считался пропавшим? Теперь на Сандру открыта охота. Ей придётся научиться выживать, (   Читать дальше...   )Жанр: книги про вампиров, любовное фэнтезиПродолжительность: 09:11:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9F89E1CFE1777E34770DFE9579242B11E034536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404513   (493110) от 25.08.2020
 
 Терри Пратчетт | Дед Хрюкус (2020) [MP3]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:9EFC6D634866CFE02C709E2E25B537819101F9B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:9EFC6D634866CFE02C709E2E25B537819101F9B6
 magnet:?xt=urn:btih:62CC5C3069BE62E053FCB72591CBE1913DF1E242
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:62CC5C3069BE62E053FCB72591CBE1913DF1E242
 ```bash
 magnet:?xt=urn:btih:75E5988393B4D75FF4161E5325706E7450A886B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:75E5988393B4D75FF4161E5325706E7450A886B6
 magnet:?xt=urn:btih:A9BCB94A8FDA86698B4CCD6E0D97D8EFE19A29E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +149,8 @@ magnet:?xt=urn:btih:A9BCB94A8FDA86698B4CCD6E0D97D8EFE19A29E6
 ```bash
 magnet:?xt=urn:btih:07B07EE893CA929D72AA1DE466BE244A328CAFC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +176,8 @@ magnet:?xt=urn:btih:07B07EE893CA929D72AA1DE466BE244A328CAFC9
 magnet:?xt=urn:btih:5EAB6734BD41266DC93306402D00D788892D830C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +201,8 @@ magnet:?xt=urn:btih:5EAB6734BD41266DC93306402D00D788892D830C
 ```bash
 magnet:?xt=urn:btih:260830377E6BD47D1D4498C8390755A3783ADC66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +228,8 @@ magnet:?xt=urn:btih:260830377E6BD47D1D4498C8390755A3783ADC66
 magnet:?xt=urn:btih:7C62D313B6A5CCE2EC06E551F0FC243AE5D66CD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +253,8 @@ magnet:?xt=urn:btih:7C62D313B6A5CCE2EC06E551F0FC243AE5D66CD1
 ```bash
 magnet:?xt=urn:btih:FBE8C2DE5C125C2F2B9836E13DB9D73BE02CDB76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +280,8 @@ magnet:?xt=urn:btih:FBE8C2DE5C125C2F2B9836E13DB9D73BE02CDB76
 magnet:?xt=urn:btih:7A1CAEFDACD54E2BCE802C9F4825C07259353DD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +305,8 @@ magnet:?xt=urn:btih:7A1CAEFDACD54E2BCE802C9F4825C07259353DD4
 ```bash
 magnet:?xt=urn:btih:4D91940EA4A82DF1E75F1BBB65200DE70C32DAF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +333,8 @@ magnet:?xt=urn:btih:4D91940EA4A82DF1E75F1BBB65200DE70C32DAF4
 magnet:?xt=urn:btih:6BC31AB8A9CC7967B251A1335174579A1910C54E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +359,8 @@ magnet:?xt=urn:btih:6BC31AB8A9CC7967B251A1335174579A1910C54E
 magnet:?xt=urn:btih:43C7981F1C68E88A360CCA152E6FEE7D27673795
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +384,8 @@ magnet:?xt=urn:btih:43C7981F1C68E88A360CCA152E6FEE7D27673795
 ```bash
 magnet:?xt=urn:btih:F654D508AA2590E188CD4D55CDB9F7C1F2282DC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +413,8 @@ magnet:?xt=urn:btih:F654D508AA2590E188CD4D55CDB9F7C1F2282DC6
 magnet:?xt=urn:btih:907247298EBF2E81E2D69E2326E116B3C0536E7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +438,8 @@ magnet:?xt=urn:btih:907247298EBF2E81E2D69E2326E116B3C0536E7C
 ```bash
 magnet:?xt=urn:btih:F4819CB552954681C71AA35EBD32811203114519
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +467,8 @@ magnet:?xt=urn:btih:F4819CB552954681C71AA35EBD32811203114519
 magnet:?xt=urn:btih:64B726B6B9ECA8DD2E41D1511226AD57F4560A2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +492,8 @@ magnet:?xt=urn:btih:64B726B6B9ECA8DD2E41D1511226AD57F4560A2B
 ```bash
 magnet:?xt=urn:btih:55D79A6EBE5B8EE81DAB66FE85B41F090D8353BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +519,8 @@ magnet:?xt=urn:btih:55D79A6EBE5B8EE81DAB66FE85B41F090D8353BB
 magnet:?xt=urn:btih:4BCA16BFB338B361B8E89FDDD150B25ABF714142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +544,8 @@ magnet:?xt=urn:btih:4BCA16BFB338B361B8E89FDDD150B25ABF714142
 ```bash
 magnet:?xt=urn:btih:F20676FC0252509D5668BEF5DF0232C48AE736D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +571,8 @@ magnet:?xt=urn:btih:F20676FC0252509D5668BEF5DF0232C48AE736D3
 magnet:?xt=urn:btih:3BE1655E43DF26975F660EAD20B9EF17327E6381
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +596,8 @@ magnet:?xt=urn:btih:3BE1655E43DF26975F660EAD20B9EF17327E6381
 ```bash
 magnet:?xt=urn:btih:59B062D235262C7CE05115122B51372685E7BC1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +624,8 @@ magnet:?xt=urn:btih:59B062D235262C7CE05115122B51372685E7BC1E
 magnet:?xt=urn:btih:90D044CA738F4CD93ABA6FD78426239A083572E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +649,8 @@ magnet:?xt=urn:btih:90D044CA738F4CD93ABA6FD78426239A083572E8
 ```bash
 magnet:?xt=urn:btih:7746C17428D1B1276ECE3835E80F69A54322B5F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,29 +676,7 @@ magnet:?xt=urn:btih:7746C17428D1B1276ECE3835E80F69A54322B5F8
 magnet:?xt=urn:btih:B559D58C98ABCFCB3548770B2D4A39CB714F4B9A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243041   (496019) от 25.08.2018
-
-Марина Эльденберт | Поющая для дракона. Между двух огней (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496019.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, где небо пронзают иглы небоскребов из огнеупорной стали, в мире, который когда-то был сожжен дотла, главенствуют иртханы – повелители драконов. Им подчиняются, их боготворят, им никогда и ни в чем не отказывают. Ну как никогда, я вот умудрилась отказать местру правящей семьи. Знать бы теперь, как сохранить работу, свою жизнь и… себя.Жанр: Любовное фэнтезиПродолжительность: 12:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:725178EE63FEB172437B89F868E07C159B468257
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

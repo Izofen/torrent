@@ -19,6 +19,8 @@ Tony Hawk's Pro Skater 3 + 4 (2025) [Multi] (Build 18871623/dlc) Scene Rune
 magnet:?xt=urn:btih:C1175485ACC042A713F3EB3E3B141BBAD654E9F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C1175485ACC042A713F3EB3E3B141BBAD654E9F3
 ```bash
 magnet:?xt=urn:btih:EBAAE3DBF7DAAFADDA80EE9268F3341BD3C02B66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:EBAAE3DBF7DAAFADDA80EE9268F3341BD3C02B66
 magnet:?xt=urn:btih:BEAA7B528906BE8EA736ABCDC4418E4A66DEFA9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:BEAA7B528906BE8EA736ABCDC4418E4A66DEFA9C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:BEAA7B528906BE8EA736ABCDC4418E4A66DEFA9C
 magnet:?xt=urn:btih:4390F9C2ED2338BF49F84F4E7CFB946EDD4C0BA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Bridge Constructor: The Walking Dead (2020) [Ru/Multi] (1.0r18) License GOG
 ```bash
 magnet:?xt=urn:btih:38E0B92D11BAB77FD0AA50D5B5A6CC09C96CF8E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:38E0B92D11BAB77FD0AA50D5B5A6CC09C96CF8E7
 magnet:?xt=urn:btih:78FB30D91C0F94710663FB67E14C91E03A358A91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Wondershare PDFelement - программа для общего редактир
 magnet:?xt=urn:btih:429033DF2B7D1F5BD79EAED73C7F34F868B56AD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ magnet:?xt=urn:btih:429033DF2B7D1F5BD79EAED73C7F34F868B56AD9
 ```bash
 magnet:?xt=urn:btih:92B8D17BA5735CF69E4872FE2C8ABF44655C24AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Activation Program 1.12 b06 Portable by Ratiborus [En]
 magnet:?xt=urn:btih:883B1334D878EA2653391A274EB061508C5F0A6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:883B1334D878EA2653391A274EB061508C5F0A6D
 magnet:?xt=urn:btih:7AF6314F361ED95DEC362C9E37123CD89B6EE40C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:7AF6314F361ED95DEC362C9E37123CD89B6EE40C
 ```bash
 magnet:?xt=urn:btih:1764B5AD0547CD1C63081A00EFE2A1B11C30F771
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:1764B5AD0547CD1C63081A00EFE2A1B11C30F771
 magnet:?xt=urn:btih:A9354AA48CEF18CAEA962154F293548799245A4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:A9354AA48CEF18CAEA962154F293548799245A4C
 magnet:?xt=urn:btih:412A02D74A4D9654ED74C2A8E77F65968EFD1996
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Star Trucker (2024) [Ru/Multi] (1.0.67.0/dlc) Repack Let'sРlay [Deluxe Bundle]
 ```bash
 magnet:?xt=urn:btih:BF1A3B0FAFAB1A7B5B5040816EB996AEFCEA5392
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:BF1A3B0FAFAB1A7B5B5040816EB996AEFCEA5392
 ```bash
 magnet:?xt=urn:btih:369EF6D85C98F0F0DDC2FF40EDA4A234A729E84C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Purpleschool, Андрей Соколов | Bash скрипты (2025) WEB-DL [R
 magnet:?xt=urn:btih:B4F96F0447981439DDDC4B357578D122BBDBE5F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Warspace 2 (2025) [Ru/Multi] (1.00/dlc) Repack FitGirl [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:4A758F3514D56FB50A03B9676116FC7FE4527509
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:4A758F3514D56FB50A03B9676116FC7FE4527509
 ```bash
 magnet:?xt=urn:btih:716234B1FD2BE7EA452BA0278A83A64988A3A683
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ Balun.Courses, Владимир Балун | Подготовка к Golang со
 magnet:?xt=urn:btih:ACCA310E1631A0A4B452C5790A8B73F985A62D90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:ACCA310E1631A0A4B452C5790A8B73F985A62D90
 ```bash
 magnet:?xt=urn:btih:3713F618063E4E72B9352278F4CC4487B9F2818E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:3713F618063E4E72B9352278F4CC4487B9F2818E
 magnet:?xt=urn:btih:9918D8F6DCA0D303026F8E218241C4C4E87CA3C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:9918D8F6DCA0D303026F8E218241C4C4E87CA3C5
 ```bash
 magnet:?xt=urn:btih:FCC3FFD466970317AE2C7DB3DBE71D780FFCC6C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ Empire of the Ants (2024) [Ru/Multi] (1.04.20550/dlc) Repack LetsPlay [Digital D
 magnet:?xt=urn:btih:D8204B54D9224CD1D0F0126C3BB79046B7DAA676
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ magnet:?xt=urn:btih:D8204B54D9224CD1D0F0126C3BB79046B7DAA676
 magnet:?xt=urn:btih:3A3319B8AA844BB006A601D7730F71244D8118CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:3A3319B8AA844BB006A601D7730F71244D8118CC
 ```bash
 magnet:?xt=urn:btih:B5A3C9B9E4406A1A7F7F5108CDA941BE4554DFAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

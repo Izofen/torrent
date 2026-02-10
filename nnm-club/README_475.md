@@ -22,6 +22,8 @@ VA - Понемногу отовсюду by Yuridar #А-Я (1986-2024) Compilati
 magnet:?xt=urn:btih:C9242B8586C81409718176768BD4D75CC1ED3B90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:C9242B8586C81409718176768BD4D75CC1ED3B90
 ```bash
 magnet:?xt=urn:btih:228F63AE4A443EFFFF7C494EFC26C422C08F15F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ The Spell Brigade - это кооперативная онлайн-игра, в 
 magnet:?xt=urn:btih:7F006AABCE3BCBBD526B857C40DFD628E2C89720
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:7F006AABCE3BCBBD526B857C40DFD628E2C89720
 ```bash
 magnet:?xt=urn:btih:D360AEA6B91AC289A7C444A2A2BCE4026C89146E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:D360AEA6B91AC289A7C444A2A2BCE4026C89146E
 magnet:?xt=urn:btih:AAAA24F03CD5750B373C51713A10D90A30003271
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:AAAA24F03CD5750B373C51713A10D90A30003271
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Lonely Mountains: Snow Riders (2025) [Ru/Multi] (1.2.101/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:85AB2FFCE694D910FDF67C77781580B02F56F632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:85AB2FFCE694D910FDF67C77781580B02F56F632
 ```bash
 magnet:?xt=urn:btih:32F144CAA5FCBCD2E15F07B76B6BA674B56127C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:32F144CAA5FCBCD2E15F07B76B6BA674B56127C4
 magnet:?xt=urn:btih:EE6A664A774EA72993029F197742AD9B3CD79B65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:EE6A664A774EA72993029F197742AD9B3CD79B65
 ```bash
 magnet:?xt=urn:btih:E60B59526507FAF0AA4680FC799AF355814E6739
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:E60B59526507FAF0AA4680FC799AF355814E6739
 magnet:?xt=urn:btih:2C339A86505EC689DFBC9D5058FFEADC3E90149F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:2C339A86505EC689DFBC9D5058FFEADC3E90149F
 ```bash
 magnet:?xt=urn:btih:075E172D52D3F1D67BFA8E49388ECA19590D651B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:075E172D52D3F1D67BFA8E49388ECA19590D651B
 magnet:?xt=urn:btih:78B3F01FCF9837689F53C87E08EA16234D76D9DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:78B3F01FCF9837689F53C87E08EA16234D76D9DF
 ```bash
 magnet:?xt=urn:btih:A1A75F874A23D6CF89FF276C0035FE839BC16ED3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Notification Widget v1.5.182 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:7ECEF7BD0E9D81FD544A83F0069D9077C232067E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:7ECEF7BD0E9D81FD544A83F0069D9077C232067E
 magnet:?xt=urn:btih:C788FDAEEE49436AB98B4F727451AC619E6461C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Smart AudioBook Player Pro v11.4.9 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EEE6C2264FC96391968391FC64E57D62F981854D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:EEE6C2264FC96391968391FC64E57D62F981854D
 magnet:?xt=urn:btih:6AA44466684B61B6C2C56F9F26630F5944A4FCC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:6AA44466684B61B6C2C56F9F26630F5944A4FCC5
 ```bash
 magnet:?xt=urn:btih:E2779316F0180EBD7644F9CD03A67DFC8F094358
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ D16 Group - SilverLine Collection 2025.6 VST, VST 3, AAX (X86/X64) RePack by TCD
 magnet:?xt=urn:btih:B77A3CE7B4901E19302F624B6DB8B371B9625A60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ LANDR - Mastering Plugin Pro 1.1.34 VST 3, AAX (x64) RePack by R2R [En]
 ```bash
 magnet:?xt=urn:btih:5162AB826319F8E67E2BE0D6707C262DAEC40265
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Tonal Balance создан для отображения взаимодейст�
 magnet:?xt=urn:btih:68B7AA067E7DA29118A32CD79D3A912A4CAD6799
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:68B7AA067E7DA29118A32CD79D3A912A4CAD6799
 ```bash
 magnet:?xt=urn:btih:7DAE907593338CC540BAE5AE54C2110A61BF2BEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:7DAE907593338CC540BAE5AE54C2110A61BF2BEB
 magnet:?xt=urn:btih:B0794D8A20568DD5C83C64242C969155395456AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Notification Dots v1.2.68 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:995DC28B0F560F6D5D4DE3AFB144C59882895331
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:995DC28B0F560F6D5D4DE3AFB144C59882895331
 ```bash
 magnet:?xt=urn:btih:F8ABE5DFE9B8DCA0AD87F73A1D6B85B185E13D53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

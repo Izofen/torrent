@@ -19,6 +19,8 @@ ITVDN | ASP.NET WEB API2 (2018) PCRec [H.264/1080p-LQ]
 magnet:?xt=urn:btih:A990B5B8F22771C8842112093B3AC0BC850D7DA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:A990B5B8F22771C8842112093B3AC0BC850D7DA1
 ```bash
 magnet:?xt=urn:btih:5FD4249E9F5B1525E902743D925137F935CCBF50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Allan McKay | FX Technical Director Transformation Module 2 (2015) PCRec
 ```bash
 magnet:?xt=urn:btih:F48E4D1E0057AFDCC533A19C25E008ABF700CC42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:F48E4D1E0057AFDCC533A19C25E008ABF700CC42
 magnet:?xt=urn:btih:0CDC489F9DAA37FDE2298A7292B69EEB5D828166
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Allan McKay | FX Technical Director Transformation Module 4 (2015) PCRec
 ```bash
 magnet:?xt=urn:btih:46C686653DAB8CEF12BCCA4B0B805A6518A14847
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Allan McKay | FX Technical Director Transformation Module 1 (2015) PCRec
 magnet:?xt=urn:btih:189E42CBA80E4E1281AE4EB34AB94B63F2799C56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ Allan McKay | FX Technical Director Transformation Module Extras (2015) PCRec
 magnet:?xt=urn:btih:67A7979B80E8C73FBD011B575E3B228DB8B0661D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:67A7979B80E8C73FBD011B575E3B228DB8B0661D
 ```bash
 magnet:?xt=urn:btih:1B045DA8401E572DFB48F8524FF10CCE5A1942C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:1B045DA8401E572DFB48F8524FF10CCE5A1942C0
 magnet:?xt=urn:btih:68DEF0B610856ACE385277A71CE8AAFBFE892FC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ Skillbox | Профессия Интернет-маркетолог (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:E5AACBD1DDD410C2DFE31193CAC1629E7E408D5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:E5AACBD1DDD410C2DFE31193CAC1629E7E408D5C
 magnet:?xt=urn:btih:CF36BDC3E0A9C375D5F6B744C2F0EF1137E8BAE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:CF36BDC3E0A9C375D5F6B744C2F0EF1137E8BAE2
 magnet:?xt=urn:btih:0087CFF662C41568ED6E65CF7215FEA35AACFF4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ Andrew Gordon | Animation Foundations Gesture (2016) PCRec
 ```bash
 magnet:?xt=urn:btih:2F1994596E8AE16A529306E4040E8E150EF394E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ Skillbox | Excel + Google Таблицы с нуля до PRO (2020) PCRec
 magnet:?xt=urn:btih:1FC12394ADFCF1F60E823E2FF4C96EA9360F9A2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ Skillbox | Дизайнер сайтов на Tilda (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:47327611874B104EB15EC4010AB796CA7E3453F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ Skillbox | Работа в командной строке Bash (2020) PCRec
 magnet:?xt=urn:btih:B760E8CDCAA5A8BEB6BD64E60A78D009A7690952
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ Skillbox | Дизайн мобильных приложений с нуля до
 ```bash
 magnet:?xt=urn:btih:5FF4F97B538AEEE920CFB483A8312E3594194714
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:5FF4F97B538AEEE920CFB483A8312E3594194714
 magnet:?xt=urn:btih:228E7CD96320B8437B7D9498394B10231E2390F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ Skillbox | Дизайнер промосайтов (2019) CamRip
 ```bash
 magnet:?xt=urn:btih:5FC2BD75224A86CB6A0EF4C9F4F013FBDBBEF671
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:5FC2BD75224A86CB6A0EF4C9F4F013FBDBBEF671
 magnet:?xt=urn:btih:E722BE1D68A05C288FF73C55D7B7D8574FA61642
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ magnet:?xt=urn:btih:E722BE1D68A05C288FF73C55D7B7D8574FA61642
 magnet:?xt=urn:btih:554F877378BA051E292959D87F654EB5B90912E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ magnet:?xt=urn:btih:554F877378BA051E292959D87F654EB5B90912E5
 ```bash
 magnet:?xt=urn:btih:8E168757B030F86417652100421F357E07A86A6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:8E168757B030F86417652100421F357E07A86A6D
 magnet:?xt=urn:btih:A2042FA92268FD6C90B6E83C2473C956D47CD619
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ magnet:?xt=urn:btih:A2042FA92268FD6C90B6E83C2473C956D47CD619
 magnet:?xt=urn:btih:E7A7235C4E34A0C4383A9DBCDBFCBB9BDC5154E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ magnet:?xt=urn:btih:E7A7235C4E34A0C4383A9DBCDBFCBB9BDC5154E4
 ```bash
 magnet:?xt=urn:btih:2971DC12BAAAD2C4052E69439471AC2845488F59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:2971DC12BAAAD2C4052E69439471AC2845488F59
 ```bash
 magnet:?xt=urn:btih:4A63C4FFF2814BD03AF0E8CE6AE035FF4659EDE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

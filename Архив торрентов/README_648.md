@@ -26,6 +26,8 @@ CD1:
 magnet:?xt=urn:btih:01711CEF815F024690212AC8E61CEB356D6799AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Rene-Снегом (2012) HDRip [720p]
 ```bash
 magnet:?xt=urn:btih:EAED3B42C8E562FE10AC43A50C9A4081B47B8F52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:EAED3B42C8E562FE10AC43A50C9A4081B47B8F52
 magnet:?xt=urn:btih:EC6C66547B104A88D7BA6E8CAA3FF8F74504AAB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:EC6C66547B104A88D7BA6E8CAA3FF8F74504AAB1
 ```bash
 magnet:?xt=urn:btih:EDD4FEE1999A78EBFB3789F2EEE821DBB4CA41C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +139,8 @@ VA - Ша, Отдыхают Кореша! (2012) [MP3|256 kbps]<Шансон>
 magnet:?xt=urn:btih:00A7784DE2ADF3BB28DE928177428F6984BC7F07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +174,8 @@ VA - Бомба Года Русская (2012) [MP3|256 kbps]<Pop>
 magnet:?xt=urn:btih:BD32900099F127833703B99D15A0D72127CE819B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +204,8 @@ magnet:?xt=urn:btih:BD32900099F127833703B99D15A0D72127CE819B
 magnet:?xt=urn:btih:4BEE88E2208F30F6DFBFC9DE074A1A3B7ECDF05C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +229,8 @@ magnet:?xt=urn:btih:4BEE88E2208F30F6DFBFC9DE074A1A3B7ECDF05C
 ```bash
 magnet:?xt=urn:btih:16630A787BE39E26618727F04541FC317C044FC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +265,8 @@ Ten Years After - Early Years (1967-1971)  (BOOTLEG) (2011) [MP3|320 kbps]<Blues
 magnet:?xt=urn:btih:88B916AE4F54F23CA474A88DD672A298DA88EEAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +293,8 @@ magnet:?xt=urn:btih:88B916AE4F54F23CA474A88DD672A298DA88EEAB
 ```bash
 magnet:?xt=urn:btih:1E806F6FEB29838BC6CE77B951C9F2480A63AA94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +323,8 @@ magnet:?xt=urn:btih:1E806F6FEB29838BC6CE77B951C9F2480A63AA94
 ```bash
 magnet:?xt=urn:btih:241C865D35FBD0A679311C947431EF1124FC7951
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +359,8 @@ Seven Seals - ... of Contradictions (2012) [MP3|320 kbps]<Heavy/Power Metal>
 magnet:?xt=urn:btih:D68B8095C5548FD51A1AD494D83C997BEA751F08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +394,8 @@ UFO - Seven Deadly (2012) [FLAC|Lossless]<Hard Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +419,8 @@ UFO - Seven Deadly (2012) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:E80EA4A83BDA1967E0AA83F08BED6515E93415A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +450,8 @@ magnet:?xt=urn:btih:E80EA4A83BDA1967E0AA83F08BED6515E93415A7
 magnet:?xt=urn:btih:C6296D6B9FAA6624F8CD70495DC754560305DCFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +476,8 @@ magnet:?xt=urn:btih:C6296D6B9FAA6624F8CD70495DC754560305DCFE
 ```bash
 magnet:?xt=urn:btih:98DC195132541E26C36337829EB37350C877FCE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +508,8 @@ magnet:?xt=urn:btih:98DC195132541E26C36337829EB37350C877FCE6
 magnet:?xt=urn:btih:1CA4BAA18841CF1F58F1E1D185938AA3B18C338D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +536,8 @@ magnet:?xt=urn:btih:1CA4BAA18841CF1F58F1E1D185938AA3B18C338D
 magnet:?xt=urn:btih:4B7C9A2D0A316F46D337B1E1A857EBF144C0CFE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +562,8 @@ magnet:?xt=urn:btih:4B7C9A2D0A316F46D337B1E1A857EBF144C0CFE0
 magnet:?xt=urn:btih:EB871F7EBC6C868255762F9942EFECA9F6C282F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +587,8 @@ magnet:?xt=urn:btih:EB871F7EBC6C868255762F9942EFECA9F6C282F5
 ```bash
 magnet:?xt=urn:btih:EB6BC06F6D772619DAD3961A8F0562C6117F7602
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +618,8 @@ magnet:?xt=urn:btih:EB6BC06F6D772619DAD3961A8F0562C6117F7602
 magnet:?xt=urn:btih:EC1414B6E64CE88D73A52E34433C5F1D466A9CCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +643,8 @@ Total Commander - популярный файловый менеджер с пр
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +670,8 @@ Total Commander - популярный файловый менеджер с пр
 magnet:?xt=urn:btih:935D94FE849FE5DA17BB316D690B0E774FED86E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +695,8 @@ Mozilla Firefox - бесплатный, функциональный и попу
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -674,6 +722,8 @@ Mozilla Firefox - бесплатный, функциональный и попу
 magnet:?xt=urn:btih:A228052B3350FC5824A929DE99CBF1BA6C8E28F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +747,8 @@ BurnAware - простая, но могучая программа для зап
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

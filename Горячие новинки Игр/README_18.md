@@ -19,6 +19,8 @@ Crosak (2025) [Ru/Multi] (1.04) Repack FitGirl
 magnet:?xt=urn:btih:5CA335882921AA4E863306403BA6D7AA4FF07F10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Vampiress: Eternal Duet - сайд-скроллинговый экшен, гей
 ```bash
 magnet:?xt=urn:btih:8654ED524D9C897A5C9C5EC4C3368358BCBF459F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ After… Prologue - это сюжетный ужастик с элементам
 magnet:?xt=urn:btih:7302CF3221F2E7F453FC801373DCDBE2D4881D38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ MARVEL Cosmic Invasion - это динамичный 2D-битемап в сти
 ```bash
 magnet:?xt=urn:btih:A4C7B78FF7BB6A9F1DD4034B48D619FB32EFF69A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Flotsam (2019) [Ru/Multi] (1.0.0/1.0.0f5) Repack FitGirl
 magnet:?xt=urn:btih:9A4C0E32B3B2A4EB790B76EF7DC8C15E2EE939BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Death Howl (2025) [Ru/Multi] (1.0.0.1) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:B6BD389975AF10BC01F3C9EC3135365AF3999BF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Ogre King (2025) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:3DB9032EF34ED3CD90D0AA41F862BD5ABD86A1FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Zombie Diner Simulator (2025) [Ru/Multi] (0.65) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:AEB0A735E56B1796904BE97226B29F7A145218A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Ranch Farm and Store Simulator (2025) [Ru/Multi] (1.0) Scene SKIDROW
 magnet:?xt=urn:btih:F87F9BD3CE7711353E3D35827D06FCA4C003CC2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Pawn Planet (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B4F3E334BD76CC18DB9BED2AC0CF5619F130EFE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Pure Badminton переносит скорость, точность и энер
 magnet:?xt=urn:btih:365DD5BE4973622B19246F169783F5F87E3DDC98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ BioMenace Remastered - это переосмысление классическ�
 ```bash
 magnet:?xt=urn:btih:AF871BB5CD92FE5F95BC1A80B0528567926C562A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Ranch Farm and Store Simulator (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 magnet:?xt=urn:btih:9BC4F7BBCAE58B9BF60911B576C90640DD65B16A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Netherworld Covenant - это тёмная фэнтези 3D изометрич�
 ```bash
 magnet:?xt=urn:btih:447D62AA5081A7EC54A9D0CE6D297F9EED63C4DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Cradle (2025) [En] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:A4CE6A73439DE50350D7EF34A862F726686ECB77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Blood: Refreshed Supply (2025) [Multi] (2.0.3116) License GOG
 ```bash
 magnet:?xt=urn:btih:E8289C0241D9F569EE4B338E3134D3591D5BD394
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Utawarerumono: ZAN (2025) [Multi] (21148349/dlc) Scene Tenoke
 magnet:?xt=urn:btih:82263647FC18921A4B0137528DA6CAB135138936
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Vampiress: Eternal Duet - это трехмерная экшен-игра в с�
 ```bash
 magnet:?xt=urn:btih:027A3D773D5D8DCEB39B467DA20F435BC2EEB1E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Electronic Market Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:22DCFF1DC3FBE05C0745B36DFC1DCDF42E205F08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Electronic Market Simulator (2025) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A5254AFF60EDEE16C16517CC5BB5124EC2EAB80D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Bottle Can Float - это расслабляющая игра о спокойн�
 magnet:?xt=urn:btih:85B80DD8A4E62F60ABCEC39B4251C4386392636F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Bottle Can Float - это расслабляющая игра о спокойн�
 ```bash
 magnet:?xt=urn:btih:2F6BB6E065968B2D16AD82EA966749C2A657A55B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Wreckborn - это методичное противостояние косми�
 magnet:?xt=urn:btih:A6AA21B7199F4A9F63B2D1DE58F13F8345C52077
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Terra Invicta (2022) [Ru/Multi] (1.0.25) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:CB5EAC9866415D69B8C9D5129F602D0A347B942C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Terra Invicta (2022) [Ru/Multi] (1.0.25) Repack FitGirl
 magnet:?xt=urn:btih:9776F118535C0AB874D4D66A103CB47F1B2C5DE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Mon Bazou (2021) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:365BCFC6BEDB77B232B98E5701D40C89D46EFFF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

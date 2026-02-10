@@ -19,6 +19,8 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.34.31938.0 [Ru]
 magnet:?xt=urn:btih:5D2C1C37F9E0945BFB3AF5113B682FFF85CDD2AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ FurMark - полезная утилита, позволяющая проводи
 ```bash
 magnet:?xt=urn:btih:AD694418B9CE03D1CC65B7502348B0C0C44237E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ DxO PureRAW 3.5.0 build 19 RePack by KpoJIuK [Multi]
 magnet:?xt=urn:btih:2B15448E6BFC5C460A76EDE7131F30B3165A65F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:0C82D1D58ADC21FC169AE3D817C2FED0A06509AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:0C82D1D58ADC21FC169AE3D817C2FED0A06509AB
 ```bash
 magnet:?xt=urn:btih:89500AD839B3B20164E26F4530890AC64A77415A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ TeamViewer - удобная в использовании программа д�
 magnet:?xt=urn:btih:CA33851B9FD2A0B76288A532A5432E6BD3D58A20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ WebStorm - Легкий, но мощный IDE, прекрасно оборуд�
 ```bash
 magnet:?xt=urn:btih:F6CA3F34E6B9760C3487BCA80C29110BD824E02D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Google Earth Pro 7.3.6.9345 (x64) Portable by FC Portables [Multi/Ru]
 magnet:?xt=urn:btih:BF13B0FC868B323B1DCA2F8C82C25334B62C5E99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ MacCleaner 3 PRO 3.2.1 [En]
 ```bash
 magnet:?xt=urn:btih:1151C3007CAF94251338C6F7C7758CE45286ED58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:1151C3007CAF94251338C6F7C7758CE45286ED58
 magnet:?xt=urn:btih:CACCF6F424143E3BD5FCB758F6B851CBF57D909E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 ```bash
 magnet:?xt=urn:btih:DF666D667ADEDB3C5D5FA15F5965645A03177EE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ AIDA64 - является мощным средством для идентиф�
 magnet:?xt=urn:btih:DF578596F2F3F01FA64448078922FAE5F9557EF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:7ABA8C76A69A4B33648CF3E6D9DA38034F6C8EDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Driver Booster сканирует и определяет устаревшие �
 magnet:?xt=urn:btih:56F92C1AC944A856E9FDA55B3245C16705B6EDD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Omni Toolbox - это обширный набор инструментов дл�
 ```bash
 magnet:?xt=urn:btih:165C054BD13C6DA151E11417288C2264F2E070E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Omni Recover для macOS позволяет восстанавливать уд
 magnet:?xt=urn:btih:CEDBDB08E1DAB1F5E37C7A225B654901A23C7A4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Kaspersky Tweak Assistant - небольшая программа, котора�
 magnet:?xt=urn:btih:4F2E54CCA3C3E27D1313264D3571C7CA7C91AFAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Vivaldi 6.2.3105.43 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EC7098CC74C42B83D453C7BE4D755958721FE91A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Fix My iPhone — это инструмент для восстановлени�
 magnet:?xt=urn:btih:1CD59459E09C9FDA991DD8B463F14E731BA18BA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:4F831507D2F63D2249F109C9E4DF218F3CEA02EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Airmail – это почтовый клиент для операционной
 magnet:?xt=urn:btih:3B9190C5013F988E1947FFA45EDDB7AFA6A3CB9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:E0BE2A1FA26D44ABDBF1149BAFD634730D083BE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ SyncBird Pro - это файловый менеджер iPhone, который �
 magnet:?xt=urn:btih:EA2E5FB1F1D25AC2955DBC0A29E48A9C8D7F0B64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Dynamic Wallpaper Engine позволяет использовать живые 
 ```bash
 magnet:?xt=urn:btih:A48271CFCE583DD542F759E5562AA0553B503F12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ AutoHideDesktopIcons - небольшая и простая в использо�
 magnet:?xt=urn:btih:7355FC94669725FBB3B7FC4297363E6C2EE641A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:1650B1F9B4AFB083D2E522ACD6845D38AE897BC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

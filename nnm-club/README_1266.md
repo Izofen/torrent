@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:E95E82331787BC4B03761A834F60A682E247B19A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Volume² — альтернативный регулятор громкости,
 ```bash
 magnet:?xt=urn:btih:F40EFB9F58B41352091DA47CDC63D888C3C2B70C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:F40EFB9F58B41352091DA47CDC63D888C3C2B70C
 magnet:?xt=urn:btih:CA19B0AB00B98F7917CB40B75DD2DEF97286985B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Raise wa Tanin ga Ii | Yakuza Fiance | Незнакомцы в другой жи
 magnet:?xt=urn:btih:745676055A6756533EB977E27987D19197857949
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.22.68871.33/dlc) Repack Let'sРla
 ```bash
 magnet:?xt=urn:btih:9BB10653A0146915FF6551C8915933E76ED6337D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ VirtualDJ предоставляет больше возможностей, че
 magnet:?xt=urn:btih:E95150F87BFDD1079864D55334D4E451B6B459EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:E95150F87BFDD1079864D55334D4E451B6B459EF
 magnet:?xt=urn:btih:91700E572716FB2B2DA16D5B9BC820E476BCA236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:91700E572716FB2B2DA16D5B9BC820E476BCA236
 ```bash
 magnet:?xt=urn:btih:F4496FE3B023E0081675123D1CC929A316954565
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:F4496FE3B023E0081675123D1CC929A316954565
 magnet:?xt=urn:btih:8D5CC395820E261254F881EF08999FAEF8AB1D59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Kabushikigaisha Magilumiere | Magilumiere Co. Ltd. | Компания Маги-�
 magnet:?xt=urn:btih:C17026223020F0D4FBC09FB31062FC22AB28E467
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Hoshi Furu Oukoku no Nina | Nina the Starry Bride | Нина в королевс
 ```bash
 magnet:?xt=urn:btih:C65F6079FB5E999F7D963FCA3EF96DC7D6CA0F1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:C65F6079FB5E999F7D963FCA3EF96DC7D6CA0F1A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Stardew Valley (2016) [Ru/Multi] (1.6.15.24357.8705766150) License GOG (обно
 ```bash
 magnet:?xt=urn:btih:4017F7CB613059250990BAD13E1C9F9C0CB7698E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:4017F7CB613059250990BAD13E1C9F9C0CB7698E
 magnet:?xt=urn:btih:0C9142FAAD5F6EC6D45F126E3D031199A9B41FB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:0C9142FAAD5F6EC6D45F126E3D031199A9B41FB6
 ```bash
 magnet:?xt=urn:btih:9DF92AC679FBDCF6F146FA325BA4B8E7035BD055
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Diablo II: Resurrected – это обновленная спустя двадц
 magnet:?xt=urn:btih:48CA6BE9BB9F4FE1FCF7FD998DB080067E6D53E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:48CA6BE9BB9F4FE1FCF7FD998DB080067E6D53E1
 magnet:?xt=urn:btih:4C4D216FC15C4DEA20B1AD9AC8A4C77D0E69CA00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Anarchy: Wolf's Law / Анархия: Волчьи законы (2023) [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:0B203C045C171E9A33876BF4FE0EE43F49230A73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:0B203C045C171E9A33876BF4FE0EE43F49230A73
 magnet:?xt=urn:btih:EC8F7ACD95555A75733862F8722415E69D6574A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Alan Wake 2 (2023) [Ru/Multi] (1.2.7/dlc) Scene Rune [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:1AD18EF2D4C04CC5B8644E576CA9210E80FEC983
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:1AD18EF2D4C04CC5B8644E576CA9210E80FEC983
 magnet:?xt=urn:btih:2FB570F33CF983B88C7ED9BBFB3E424120033C57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:2FB570F33CF983B88C7ED9BBFB3E424120033C57
 ```bash
 magnet:?xt=urn:btih:3A05A7C4C6B395E7975D9DB207738E2D38F6F9BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:3A05A7C4C6B395E7975D9DB207738E2D38F6F9BD
 magnet:?xt=urn:btih:2B468C44BD48963594102F9D77ADA1C4589748D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:2B468C44BD48963594102F9D77ADA1C4589748D0
 ```bash
 magnet:?xt=urn:btih:F8E7309AB3A20BD7ADB1FE96E29277392E470239
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Nageki no Bourei wa Intai Shitai | Let This Grieving Soul Retire! | Плачущ
 magnet:?xt=urn:btih:AA75967A70773793F115EE8EB0605DB465D2111B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:AA75967A70773793F115EE8EB0605DB465D2111B
 ```bash
 magnet:?xt=urn:btih:DA5552EDCB02CC4CC80829F866E31066775DC04B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

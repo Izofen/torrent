@@ -19,6 +19,8 @@ SPORE™ Collection (2008) [Ru/En] (1.3.0.22/3.1.0.22/dlc) Repack R.G. Меха�
 magnet:?xt=urn:btih:F4D36BDEFDA5A647D866E844D254F2400F6908D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Prison Architect - симулятор тюремного магната, с по
 ```bash
 magnet:?xt=urn:btih:F7EF7A1E79E8957930D5ABE6C75F3B1BDE97046B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Cities in Motion Dilogy (2011-2013) [Ru/Multi] (1.0.0/1.6.3) Repack R.G. Мех�
 magnet:?xt=urn:btih:0AF6C7A06E0C7B2087A03EDB1FEF8B0FC3AE3D8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Villagers - это прекрасно иллюстрированная и дет
 ```bash
 magnet:?xt=urn:btih:46CCE7AE1AFFC7FCD8D2BF65327988C6EBF68CBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Oil Enterprise (2016) [Ru/Multi] (1.03) Repack Other s
 magnet:?xt=urn:btih:A1F27A2A25907031998156E959F019B3DF838CE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Farming Life (2021) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:A7A571E7655EE3DAB8E8913AFE1D016C5B3BA1EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Transport Fever - это железнодорожная экономическа
 magnet:?xt=urn:btih:A3552F9042AF843DD3A3CC8B54D0597789F359C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Oil Enterprise (2016) [Ru/Multi] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:5C57841CC0C70623CADF3E913ABFCD487CC7FE9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Dice Legacy (2021) [Ru/Multi] (1.2.5) License GOG
 magnet:?xt=urn:btih:DD8A6A19946D56C9DFE2124C288CC87714054093
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Game Tycoon 2 является сиквелом к первой игре в се
 magnet:?xt=urn:btih:4BA22C499E3ACDD057F6B1289C39DECDD884610F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ The Amazing American Circus (2021) [Ru/Multi] (50654) License GOG
 ```bash
 magnet:?xt=urn:btih:700CFA02A1E3E0DEF849AD83105DFC6C2CBC385B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Sheltered - это приключенческая игра, действие к�
 magnet:?xt=urn:btih:232106126F57721435DE5FC71655F7BE4CCC51F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Rebel Inc: Escalation (2021) [Ru/Multi] (1.0.0.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:B134BA3E46A31963EFEFCF925CF02B59FAADB689
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Fear Equation (2016) [En] (2.0.1) License GOG
 magnet:?xt=urn:btih:7B0FED3C6B88C10CEA90AF85318AAC857BE82F1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Lula: The Sexy Empire (1998) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:357F26480306AF2F4E4B16B951372D6D54826ECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Kingdom Two Crowns является новым этапом развития э�
 magnet:?xt=urn:btih:2A59CA52D2E3AAEDD17EA201E293E5D13CD6F22F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Coffee Noir - Business Detective Game (2021) [Multi] (1.01) License GOG
 ```bash
 magnet:?xt=urn:btih:A2192E1E3994F80DC4844B89435E071E7493BED4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Anno 1404 (2010) [Ru/En] (1.3.3645/2.1.5010/dlc) Repack R.G. Механики [G
 magnet:?xt=urn:btih:83C693055094A65BE0EAE245BDD45B3D2B61D8FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Punch Club (2016) [Ru/Multi] (1.1/dlc) Repack ARMENIAC [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:AF19B5FD50278A0A51E78F62117692BD4ADA439E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ Train Fever (2015) [Ru/Multi] (Build 7753/dlc) License GOG
 magnet:?xt=urn:btih:870C4497F7A3DDC2A5DBD04EE741F6F6AEB36CC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ Punch Club (2016) [Ru/Multi] (1.31/dlc) Repack Other s [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:82633A2A6B681CD2742851BB9A02F3B83C7D9D23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ Sheltered 2 — стратегический симулятор выживани
 magnet:?xt=urn:btih:2D33B0FAB429823585CBC0EE7B9B18636551D65F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ Weedcraft Inc изучает индустрию производства, выр
 ```bash
 magnet:?xt=urn:btih:A3D8F6ED2FD754506D4687650B1DDA760A90C6D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ Age Of Gladiators - игру можно охарактеризовать как 
 magnet:?xt=urn:btih:B01FD9FDA0D83B74DEDB08DAC0F55CD4AAFAE485
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ Sheltered 2 расширяет и углубляет идеи оригиналь
 magnet:?xt=urn:btih:D6ACF33EAFD41433F20AFA33C937776C225D0319
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Holy Potatoes! A Weapon Shop?! (2015) [En/Jp] (1.0.8.9828/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:88266F756133BCF33321386B0D5336BA0F074125
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

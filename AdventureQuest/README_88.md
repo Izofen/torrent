@@ -1,27 +1,3 @@
-###  Публикация: 1402879   (695434) от 17.08.2020
-
-Milky Way Prince The Vampire Star (2020) [Ru/Multi] (1.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Визуальная новелла об абьюзе, идеализации и интимности. Проведите лето неблагополучной любви с разветвленными сюжетными линиями, неожиданными поворотами, внезапными изменениями и инновационной механикой, где вы сами выбираете, какие органы чувств задействовать с вашим партнером. В эти моменты вы будете узнвать новое о нем, его личности и его прошлом, что заставит (   Читать дальше...   )Тип издания: LicenseРазработчик: Eyeguys, Lorenzo RedaelliЖанр: Приключение, Визуальные новеллы, ДрамаЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07608501F8913B7BD01E42FB011D0F0460A55C99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269322   (698908) от 09.03.2019
 
 GRIS (2018) [Ru/Multi] (1.0/upd2) License CODEX
@@ -42,6 +18,8 @@ GRIS (2018) [Ru/Multi] (1.0/upd2) License CODEX
 ```bash
 magnet:?xt=urn:btih:835BAA1570F5FD569ADEEE3ED782511BA23DDBE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Matanga (2019) [Ru/En] (1.0) License PLAZA
 magnet:?xt=urn:btih:A1E4B3A5D1D1274C6BE42CE53DCEA9DA984E252F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:A1E4B3A5D1D1274C6BE42CE53DCEA9DA984E252F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Dear Esther: Landmark Edition (2017) [Ru/Multi] (1.0.0.9712) Repack Other s
 magnet:?xt=urn:btih:61E39B70DAD77E0E92690A83AAEB18397F6A4245
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Matanga (2019) [Ru/En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2ACCC780950CB5FDCDBEEE00B00BF3D9D9E5DE04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ The Station - это научно-фантастическое приключе�
 magnet:?xt=urn:btih:6EC07586BFF3EAB85A5F670D77BDC6076E0075B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Sherlock Holmes: Chapter One / Шерлок Холмс: Глава 1 (2021) [Ru/
 ```bash
 magnet:?xt=urn:btih:49D76CE879530A73BF367E4ACC3544151FAD44AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ KURSK — первая документальная приключенческа
 magnet:?xt=urn:btih:836A6860FC3EE5755B381182E237D90E5F23F6E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ KURSK — первая документальная приключенческа
 ```bash
 magnet:?xt=urn:btih:58FFFF51A4905E575683F3531A4058D1890E8F43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:58FFFF51A4905E575683F3531A4058D1890E8F43
 magnet:?xt=urn:btih:BFDD307A1A6A639C0FA28076B94D51F8CC5CA392
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Black Book (2021) [Ru/Multi] (1.0.36/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:4C348F77006855D584886B60B7CDAB3AA42FD28B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Q.U.B.E. (2014) [En] (2.8/dlc) License GOG [Director's Cut]
 magnet:?xt=urn:btih:C2C20363EF9B2C9B18AF05CD94C52756EE7B7FAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ The Journeyman Project 2: Buried in Time (1995) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:410D802BDE443F722A1A3651BDBDD67E80341632
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Resolutiion - это динамичная игра в жанре action-adventur
 magnet:?xt=urn:btih:8121CBD08DDFD48B975288FEABDDB4373745519C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ The Journeyman Project 1: Pegasus Prime (1997) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:C8892788555FF5FC81332839D66F0396183AC59E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ Olav: the story of one boy (2017) [Ru/En] (1.0) Repack Other s
 magnet:?xt=urn:btih:A68941D247F5F5787283C89728B5B13DD18BD4FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ Call of Cthulhu (2018) [Ru/Multi] (1.0/upd2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:853DC821A0947DAAB72EAB845EF2E49728879F67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ Call of Cthulhu – это детектив с элементами психол
 magnet:?xt=urn:btih:E3E25A35B3FE6934E4BBAA95632A7EB563B14F35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ Call of Cthulhu (2018) [Ru/Multi] (1.0/upd2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:133D218A818FAE24A5EB8CB4FFAFB27B8A48EFE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Amberskull (2018) [Ru/Multi] (1.1.2) License PLAZA
 magnet:?xt=urn:btih:059B2F819E4DCC33D0BCD8D23E37DF17DD7A31B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ Solas and the White Winter (2018) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:1FB3F9172CD9441D7DC384DF8D702BCD065AA599
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +566,8 @@ Minecraft: Story Mode предлагает отправиться в попул�
 magnet:?xt=urn:btih:940BA5A90F6D0DE6213590D83D70D3046CFD6FFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +591,8 @@ Subnautica - это ролевая игра от создателей Natural Se
 ```bash
 magnet:?xt=urn:btih:E7F31F8196A3D2E5E5E13A69BD4DD666D34285CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +618,8 @@ Skully (2020) [Ru/Multi] (1.0.161.6416) License HOODLUM
 magnet:?xt=urn:btih:4AEDCF5E65706055C4776E169F84F8C34DE48D1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +643,34 @@ TRTH (Дорога к хадесам) – приключенческая игр�
 ```bash
 magnet:?xt=urn:btih:4BFD4617FCD609C1B87E553354606E42BAF6CD27
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999469   (717242) от 08.06.2016
+
+Day of the Tentacle Remastered (2016) [En/Multi] (1.3.11) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Day of the Tentacle Remastered — одна из легенд золотого века приключенческих игр, подарившего нам Grim Fandango, Monkey Island, Sam & Max и Full Throttle. Явившись в мрачное будущее, наш 2016 год, прямиком из начала 90-х, она готова поразить своим великолепием тех, кто не застал той эпохи, и утешить тех, кто тоскует по ней.Тип издания: LicenseРазработчик: Double Fine ProductionsЖанр: AdventureЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский и другиеЯзык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE529C09893590FBBC8C536C189BF0A7C2307A4
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

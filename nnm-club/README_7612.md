@@ -20,6 +20,8 @@ Eslava состоит из 6 стилей.Формат: OTFПоддержка к
 magnet:?xt=urn:btih:A5EBA2C605D6A69C0192E3D656662D7FD8593881
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:A5EBA2C605D6A69C0192E3D656662D7FD8593881
 ```bash
 magnet:?xt=urn:btih:EF881EC14B26AA0298A22195BD0E0C395761D951
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:EF881EC14B26AA0298A22195BD0E0C395761D951
 magnet:?xt=urn:btih:97919B03CBC152F02C2A0B339F00C7C78AB945AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:97919B03CBC152F02C2A0B339F00C7C78AB945AD
 ```bash
 magnet:?xt=urn:btih:1E2114A4268EC3977801D2AE3136A2ACE56A879A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Slime Rancher 2 (2025) [Ru/Multi] (1.0.3) Repack Necros
 magnet:?xt=urn:btih:47DE12F4A5F9F6E09318A72BECE92ED9AEB8338E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ IMEI совесть
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Windows хороша, но всегда есть, что улучшить. Во�
 magnet:?xt=urn:btih:0C15C8B6543E6B2821EF0081316FCE2958AFA599
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:0C15C8B6543E6B2821EF0081316FCE2958AFA599
 ```bash
 magnet:?xt=urn:btih:E2C1F55CD163DB6A23B5006361824340537AF9E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ doPDF — программа для преобразования докумен�
 magnet:?xt=urn:btih:39E0D8B9B807C92BD70EB9956DCF757E777D2D09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:39E0D8B9B807C92BD70EB9956DCF757E777D2D09
 ```bash
 magnet:?xt=urn:btih:F5A0F47F53343C1AE6D93548D076BD132A71EBEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:F5A0F47F53343C1AE6D93548D076BD132A71EBEF
 magnet:?xt=urn:btih:CA5DDD046266D27ABBF64FAAA2268C648086EBA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:CA5DDD046266D27ABBF64FAAA2268C648086EBA2
 ```bash
 magnet:?xt=urn:btih:5C87285BC3FF14AE69455C66A90B46A0F66460FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:5C87285BC3FF14AE69455C66A90B46A0F66460FF
 magnet:?xt=urn:btih:E712B117E865F6F31301692C6DCE188A35F9D28C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ ZD Soft Screen Recorder - программа для записи видео с �
 magnet:?xt=urn:btih:C860566A157DB88E6E9EF52F0DEED122D3677B9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:C860566A157DB88E6E9EF52F0DEED122D3677B9B
 ```bash
 magnet:?xt=urn:btih:7CB019F3C903E7E357B2445BD58F2E35EEE66200
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ David Matuszek | Quick Functional Programming (2023) [PDF][EN]
 magnet:?xt=urn:btih:E8881C717DF05ED96538783642D1ED67F7E74457
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Adobe Substance 3D Designer 12.1.1 Build 5825 [Multi]
 ```bash
 magnet:?xt=urn:btih:29C8D4E7B363B9B8B58F5E39C7FEE2509E2BD7C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ DiskDigger - приложение для восстановления удалё
 magnet:?xt=urn:btih:560F40D3F45B1A7CDA8F189530E6C7C464ED7749
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:560F40D3F45B1A7CDA8F189530E6C7C464ED7749
 ```bash
 magnet:?xt=urn:btih:3E0C39F48D4C2493818A6F554ACD0F75E61DB8E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 magnet:?xt=urn:btih:EFCE02CF8B610C0F4CE635401876840846E8737C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:EFCE02CF8B610C0F4CE635401876840846E8737C
 ```bash
 magnet:?xt=urn:btih:81ABF32B630DACF9C65F5DA171AAA2E7D2DA0E04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Steps Ahead - Steps Ahead (1983) [FLAC|Lossless|tracks + .cue] <Fusion, Contempo
 magnet:?xt=urn:btih:520C4F76F794430D6468741BC3F33853FFEBEFF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:520C4F76F794430D6468741BC3F33853FFEBEFF4
 ```bash
 magnet:?xt=urn:btih:20933469CA200D7F178C167F83335218C0A35DB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ RAR - это консольное приложение, позволяющее �
 magnet:?xt=urn:btih:EEE4250DF54C2C4C66652644C45DDBBE323FB773
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Skype - бесплатная программа для текстового, г�
 magnet:?xt=urn:btih:E17A083097C1E3F4773E7F7C490269469DD980C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:E17A083097C1E3F4773E7F7C490269469DD980C6
 ```bash
 magnet:?xt=urn:btih:B106ABEBD652CF4B414F0262821A6830C76FE130
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

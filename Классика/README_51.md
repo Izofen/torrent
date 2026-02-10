@@ -28,6 +28,8 @@ Ding Shan-de: Children's Suite
 magnet:?xt=urn:btih:212088637B3830307AE779DB2F5127D4EB857567
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ Concerto for harpsichord, 2 horns, strings & continuo in D major, H. 478, Wq. 45
 ```bash
 magnet:?xt=urn:btih:28B5511DC97F4799E90575FB8130E7DB12C1F76B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ Pyotr Il'yich Tchaikovsky, Symphony No.6 in B minor, op.74 “Pathétique”
 ```bash
 magnet:?xt=urn:btih:A8A241A805C1BEE5D7E0F46D90315F65B9AEDDFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +122,8 @@ Rouge Hot - Oriental Instruments VS Occidental Music (2005-2008) [FLAC|Lossless]
 magnet:?xt=urn:btih:0EFD82DDE58EE3A93D6B866C3BC8E4F13A4EBB0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +157,8 @@ Stile Antico & Fretwork - Tune Thy Musicke to Thy Hart (2012) [FLAC|Lossless]<Sa
 magnet:?xt=urn:btih:FA0C122727F82ADB0F00E17B7F15C787808C607C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +190,8 @@ Liszt - Complete Tone Poems Vol.1 & Vol.2 (Bernard Haitink & London Philharmonic
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +226,8 @@ CONCERTO No.8 in F (RV485)
 magnet:?xt=urn:btih:C1BBE9871DA5286C112C4EB340FBF0BB80354AC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +261,8 @@ magnet:?xt=urn:btih:C1BBE9871DA5286C112C4EB340FBF0BB80354AC2
 magnet:?xt=urn:btih:EE51C57CFAB758F53BF8E2CD409115EDC02519E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +288,8 @@ VA - 100 Best Piano Classics (6CD Box-set) (серия "Best 100") (2008) [FLAC|
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +318,8 @@ Symphony in G minor, K 1 No 27
 magnet:?xt=urn:btih:42842A6B842E324C1E4CE7CCD060EB64CBF49AC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +346,8 @@ Chopin - The Nocturnes (Maria Joao Pires)(2CDs) (1996) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:D4A6CF46D8BC7009B7DF0CF1528A67B0AC2274CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +377,8 @@ magnet:?xt=urn:btih:D4A6CF46D8BC7009B7DF0CF1528A67B0AC2274CD
 ```bash
 magnet:?xt=urn:btih:4BAA694A337D1B89A25A7117524930D11B4155F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +413,8 @@ VA - Лунный Свет (2002) [FLAC|Lossless]<Classical>
 magnet:?xt=urn:btih:6D6F3438D416EBF6CC04440C554CC129BCF3D909
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +441,8 @@ Requiem for soloists, chorus, and orchestra, K. 626
 ```bash
 magnet:?xt=urn:btih:97C22A68ADAE2D116A13FF9BDD22E511B2CAECE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +471,8 @@ Symphony in D major Op. 4/1 (Callen 19)
 magnet:?xt=urn:btih:F9EC286BB709412D5261404E1F33550D0494026B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +500,8 @@ Piano Sonate No.28 in A major, op.101
 magnet:?xt=urn:btih:4165DFC6155DA9234ED7C98F004CFDE12A36A74A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +528,8 @@ Piano Trio in E flat major, Op. 2
 ```bash
 magnet:?xt=urn:btih:0CADB62E1D862EE0616DBAC4422BED2DF7B776DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +561,8 @@ VA - Adagio - Serene Classical Music For A Peaceful Mind (2003) 2CD[FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:553F693234738484FE462A9A17D90695A8189EBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +597,8 @@ Concerto per 2 violini, violoncello archi e continuo in sol minore RV 578
 magnet:?xt=urn:btih:55F9E1BC0EBE904467933566C4895798CA90EE63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +631,8 @@ Disk 01
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +667,8 @@ Concerto in D major rv 392 en re majeur. D-dur
 magnet:?xt=urn:btih:6FB9DB02D35C9BC277030D4BDEA992DE408C295B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +702,8 @@ VA - Essential Organ (2011) [FLAC|Lossless]<Classical>
 magnet:?xt=urn:btih:104FBB34890193F40DF0AB46AB86B94203F4F5D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -686,6 +730,8 @@ VA - Calm Classical Guitar (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ```bash
 magnet:?xt=urn:btih:E7AB941EB0B9DF491AAAAA92401B57FA5C52D9B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -719,6 +765,8 @@ CD-1 Знаменитые Марши32. Teike. Old Comrades - Regimental Band Of
 ```bash
 magnet:?xt=urn:btih:FEB7D2E2B850718F7BD69192C1780E5AEB1F6436
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -759,6 +807,8 @@ Concerto for Flute, Harp and Orchestra in C major KV.299 (297c) – 1778 г.
 magnet:?xt=urn:btih:28633C3113E16ECC2F9F37AB4F4299BC0DA94A10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -791,6 +841,8 @@ Pyotr Ilyich Tchaikovsky - The Seasons (2000) [MP3|320 кб/с]<Classic>
 ```bash
 magnet:?xt=urn:btih:CAEEF98E53F98279A73F7CB849015129D2838F90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

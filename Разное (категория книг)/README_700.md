@@ -1,3 +1,30 @@
+###  Публикация: 978884   (960814) от 25.01.2016
+
+В.В. Солдатов | Об  удобрении  почвы (1908) [PDF]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Общедоступное руководство для крестьян и сельских школ.
+Подробное описание чем,  как  и когда  удобрять почву для получения наибольшего урожая.Жанр: СадоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8CECDE3E98C58C4A7A9BFFBA6370B3EED6D7457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 747899   (960981) от 20.01.2014
 
 Петр Бартенев | Русский Архив [48 томов из 155] (1863-1866) [PDF]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:CB6AFFABE18B609932DA53E0369C811A03D9060D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:CB6AFFABE18B609932DA53E0369C811A03D9060D
 magnet:?xt=urn:btih:96766DB776E8EE7B0045FD361B0E9103F360B010
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ magnet:?xt=urn:btih:96766DB776E8EE7B0045FD361B0E9103F360B010
 magnet:?xt=urn:btih:B6ED43CBE49F07E400419F140B541C81FF171338
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +123,8 @@ magnet:?xt=urn:btih:B6ED43CBE49F07E400419F140B541C81FF171338
 ```bash
 magnet:?xt=urn:btih:196946663A84F90DAF1110A801FBCFBCC8D4A151
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +151,8 @@ magnet:?xt=urn:btih:196946663A84F90DAF1110A801FBCFBCC8D4A151
 magnet:?xt=urn:btih:990A733EAAE871E63B0038F854092C15A74C7B7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +176,8 @@ magnet:?xt=urn:btih:990A733EAAE871E63B0038F854092C15A74C7B7B
 ```bash
 magnet:?xt=urn:btih:CC28EE11E92F7A77DFF8AFF21CAB6595145441E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +203,8 @@ magnet:?xt=urn:btih:CC28EE11E92F7A77DFF8AFF21CAB6595145441E1
 magnet:?xt=urn:btih:72E2150C3F1E7AD50EB12010AA0619B835A29F81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +228,8 @@ magnet:?xt=urn:btih:72E2150C3F1E7AD50EB12010AA0619B835A29F81
 ```bash
 magnet:?xt=urn:btih:AAFE695E47D0A829DFAF1A0E6F33A5FAEC29B419
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +255,8 @@ YouTube – это не только милые видео с котиками. 
 magnet:?xt=urn:btih:22C8412BF757844DE6A692309470DE472643D2D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +280,8 @@ magnet:?xt=urn:btih:22C8412BF757844DE6A692309470DE472643D2D0
 ```bash
 magnet:?xt=urn:btih:A76D3A662AB2F95D149D54CD1B65551F4BCE6792
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +307,8 @@ magnet:?xt=urn:btih:A76D3A662AB2F95D149D54CD1B65551F4BCE6792
 magnet:?xt=urn:btih:092052F28020D5421A24FBE0CA4C83F9363F235E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +332,8 @@ magnet:?xt=urn:btih:092052F28020D5421A24FBE0CA4C83F9363F235E
 ```bash
 magnet:?xt=urn:btih:152AD9952054138AA2EB320E9C6E1C2AF923E60E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +360,8 @@ magnet:?xt=urn:btih:152AD9952054138AA2EB320E9C6E1C2AF923E60E
 magnet:?xt=urn:btih:CA75419A6262D20299A44EB7796165BD487C0BDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +385,8 @@ magnet:?xt=urn:btih:CA75419A6262D20299A44EB7796165BD487C0BDC
 ```bash
 magnet:?xt=urn:btih:C0C234E8CA745F5FC421E2AD5E0D623C9C52B38F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +412,8 @@ magnet:?xt=urn:btih:C0C234E8CA745F5FC421E2AD5E0D623C9C52B38F
 magnet:?xt=urn:btih:80B55E5721231D250C5B4EDCFA4BCE01A3991E14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +437,8 @@ magnet:?xt=urn:btih:80B55E5721231D250C5B4EDCFA4BCE01A3991E14
 ```bash
 magnet:?xt=urn:btih:2A4796590E5B989976D3999A871AC70D7D7F7B6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +464,8 @@ magnet:?xt=urn:btih:2A4796590E5B989976D3999A871AC70D7D7F7B6E
 magnet:?xt=urn:btih:FEABA0D1429F484060633FD7A4ABB9547FCB2A07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +489,8 @@ magnet:?xt=urn:btih:FEABA0D1429F484060633FD7A4ABB9547FCB2A07
 ```bash
 magnet:?xt=urn:btih:4F0051F51E12FAA96665E1B7A21750C32600452C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +516,8 @@ magnet:?xt=urn:btih:4F0051F51E12FAA96665E1B7A21750C32600452C
 magnet:?xt=urn:btih:07946FADC6D2053E71EC57A7914C398969F74914
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +541,8 @@ magnet:?xt=urn:btih:07946FADC6D2053E71EC57A7914C398969F74914
 ```bash
 magnet:?xt=urn:btih:4310749887733031F98A4E6F372BFADBA1D2E8F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +569,8 @@ magnet:?xt=urn:btih:4310749887733031F98A4E6F372BFADBA1D2E8F5
 magnet:?xt=urn:btih:6331785622F4B0D4689976D836DF648F09A060F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +594,8 @@ magnet:?xt=urn:btih:6331785622F4B0D4689976D836DF648F09A060F8
 ```bash
 magnet:?xt=urn:btih:1A3F7E948A22FCBE102B3E6F20206ECAB081392E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +621,8 @@ magnet:?xt=urn:btih:1A3F7E948A22FCBE102B3E6F20206ECAB081392E
 magnet:?xt=urn:btih:143AB971D06AE18D7586C20EDA5E91DCB1883B80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +646,8 @@ magnet:?xt=urn:btih:143AB971D06AE18D7586C20EDA5E91DCB1883B80
 ```bash
 magnet:?xt=urn:btih:96DA6479D139864A647ACE1D87300BD6FBAFA8F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,29 +673,7 @@ magnet:?xt=urn:btih:96DA6479D139864A647ACE1D87300BD6FBAFA8F0
 magnet:?xt=urn:btih:1806334579B86FBDCA210BBECEE791958267AD4A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359858   (963090) от 13.02.2020
-
-Денис Байгужин | Какая на хрен любовь? (2020) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Денис Байгужин – скандально известный свадебный король, который уже восемь лет помогает девушкам кардинально менять свою жизнь. Мир байгужанок – это особенный мир, в котором существуют свои правила. В своей новой книге Денис раскрывает тему любви по-байгужански. Что значит настоящая любовь настоящего мужчины? Что должен делать мужчина, если он по-настоящему влюблен? (   Читать дальше...   )Жанр: Психология, саморазвитие, личностный ростФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA605AD88237719A88031A47C76EC21DE8176B60
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

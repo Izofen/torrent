@@ -19,6 +19,8 @@ Tiny Glade – это спокойный и даже местами медита
 magnet:?xt=urn:btih:466F81B6FEA5728653E88B975FA74C3174A192ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Coral Island – классический симулятор фермы, пер�
 ```bash
 magnet:?xt=urn:btih:374783385EE9A459099C1EB5AC18ABBC1B100593
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Drifter (2025) [Multi] (1.0.9) License GOG
 magnet:?xt=urn:btih:F267578602F5EFA2BA5CAEC08E514FC207225C88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Mirthwood (2024) [Ru/Multi] (1.0.88p1) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:8DB94B0D2788A72504503802204E056F5E2BBC24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Hell is Us - это приключенческий экшен от третье�
 magnet:?xt=urn:btih:74C3A29F6313110C54437332C41AE6F115DB8C9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Summer Pockets: Reflection Blue начинается с того, что про�
 ```bash
 magnet:?xt=urn:btih:C239001A793E016E279B6922A0B0A3598FACEEE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Spiritfall - экшн-платформер с элементами рогали�
 magnet:?xt=urn:btih:C40365A89013F3FE15F2F906A105E8B410746768
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ BROK The InvestiGator (2022) [Ru/Multi] (1.5.3/dlc) Repack FitGirl [Deluxe Editi
 ```bash
 magnet:?xt=urn:btih:048081641416B2139763294B950120FC57CDA56A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Re:Fresh - трехмерная игра-платформер с коллекц�
 magnet:?xt=urn:btih:30538AA013913242D1B4C53CBEFC3C2FCC5C937A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Rusty Rangers (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F0282AFB734E414CBA2C99006AFC99C6ED5E39AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Prison Architect (2015) [Ru/Multi] (1.02 r11056/dlc) Repack Let'sРlay [Total Lo
 magnet:?xt=urn:btih:F341A530F6574DB52D2E7B4705BCED7A076293B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Rogue Hex - это проект, объединяющий элементы ко�
 ```bash
 magnet:?xt=urn:btih:45186DAEAB8FAEF2D650323C0F89F09A78A55053
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Ra Ra BOOM (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:72DEF164072D48A6F014298DB888DC8922968BDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Dark Queen of Mortholme (2025) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:66496BFD86F6816CAE7846B26F29B7B29BF3ABB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Relic Hunters Legend - это быстрая RPG в жанре looter-shooter, �
 magnet:?xt=urn:btih:1623ED38B4D93EEE73C0CDCD4791B83F175AA50F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Secrets of Grindea – интересная игра-приключение, в 
 ```bash
 magnet:?xt=urn:btih:DBBDF7BA369163B743F90BD81137650D1A98C455
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Zoochosis (2024) [Ru/Multi] (1.6.8) Repack FitGirl
 magnet:?xt=urn:btih:3420FB314F38658AE517A63EB4C5FCEEDC5456DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ BlazBlue Entropy Effect - двухмерная приключенческая и
 ```bash
 magnet:?xt=urn:btih:C7938472C9C50F3BD0132A451D32A5B8EE2AC18F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Deliver At All Costs – захватывающий экшен, где разр�
 magnet:?xt=urn:btih:CD8D127B10B224608EAF3F4D18981120E0024CF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Hell is Us - это приключенческий экшен от третье�
 ```bash
 magnet:?xt=urn:btih:CB573B03BAC9CD4FB21C0F1111B59D4BDF2C3853
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Farming Simulator 25 – это увлекательное приключени�
 magnet:?xt=urn:btih:8DA4931B3D0B8F08DD0F262200F5CB9E44E0519C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Gems of War - логическая головоломка в жанре три �
 ```bash
 magnet:?xt=urn:btih:B37D48FA902EFE91722EEC12B6BDAEF56C2F8357
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.4) Repack Let'sРlay
 magnet:?xt=urn:btih:A1A2F98D53B1DA7CFA3995DDFBA0B6B25A61B929
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.15.1.0/dlc) Repack Let'sРlay [Backstage
 ```bash
 magnet:?xt=urn:btih:152F51B1A52C50D7FDAA733B88951613FD0C9FF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ No Man's Sky (2016) [Ru/Multi] (6.02/dlc) Repack dixen18
 magnet:?xt=urn:btih:DCE87AEA371F8F549F56BEB049E477A2E3412C8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Cronos: The New Dawn - это новое слово в жанре survival horro
 ```bash
 magnet:?xt=urn:btih:A468F8BA0348F258BA6A459010EB4EFA3972B564
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

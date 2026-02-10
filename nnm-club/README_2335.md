@@ -19,6 +19,8 @@ BBC: Революции: Идеи, изменившие мир / Revolutions: Id
 magnet:?xt=urn:btih:D3EC5A4A6A3A077E907E8AAF053E3B7AD8593B82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:D3EC5A4A6A3A077E907E8AAF053E3B7AD8593B82
 ```bash
 magnet:?xt=urn:btih:7D3B9B44B132AB9DDB9F52248FEF9C3DD7957510
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:7D3B9B44B132AB9DDB9F52248FEF9C3DD7957510
 magnet:?xt=urn:btih:11E77D88D4C8D1C897AB659B87ED9C0FE3442745
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:11E77D88D4C8D1C897AB659B87ED9C0FE3442745
 ```bash
 magnet:?xt=urn:btih:29BAA39E637F1FD87DE58978DC647418E522258C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:29BAA39E637F1FD87DE58978DC647418E522258C
 magnet:?xt=urn:btih:10D55F40DF3D3FF995471473E06ED5F9C9B3B4D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:10D55F40DF3D3FF995471473E06ED5F9C9B3B4D5
 magnet:?xt=urn:btih:8312FA1343D95DDC3A60C298863A8957660A1813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ BBC: Мир природы. Очковые медведи: Лесные тени
 ```bash
 magnet:?xt=urn:btih:BBBD25AA908E28CC5A75EAA2C1B86FE299EE6B52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Bruce Dickinson - 12 Albums, 15 Singles, 77 CD (1989-2024) [FLAC|Lossless|image 
 magnet:?xt=urn:btih:A74697EF6188E292C80D3DA8BBE03DFE33F85CEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:A74697EF6188E292C80D3DA8BBE03DFE33F85CEB
 magnet:?xt=urn:btih:A069D22443E3183236F6546E8D56A44B5C488E62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:A069D22443E3183236F6546E8D56A44B5C488E62
 ```bash
 magnet:?xt=urn:btih:639EC65B489EB1132D73F885C636D7737CFB0D11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:639EC65B489EB1132D73F885C636D7737CFB0D11
 magnet:?xt=urn:btih:A968FA3EC4A86D9BAB41B778E9FC5FF20F21B55A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Maniac - криминальный экшен в стиле rogue-lite, брос�
 ```bash
 magnet:?xt=urn:btih:9AA8E9647D381E7CCF06F55A8373F587DCAF226D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:9AA8E9647D381E7CCF06F55A8373F587DCAF226D
 magnet:?xt=urn:btih:8937896654240ADBFAA38C750F8FE2CC64512CD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:8937896654240ADBFAA38C750F8FE2CC64512CD4
 magnet:?xt=urn:btih:1C0CD24D7BD6FEE5372A65976D43A6CBCFC37C78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:1C0CD24D7BD6FEE5372A65976D43A6CBCFC37C78
 ```bash
 magnet:?xt=urn:btih:C3419AC98318ED890534B52A2229DE71BD6F35FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:C3419AC98318ED890534B52A2229DE71BD6F35FF
 magnet:?xt=urn:btih:F49B04A7D86841D68E173746C08961BC3051877A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:F49B04A7D86841D68E173746C08961BC3051877A
 ```bash
 magnet:?xt=urn:btih:29ABA0807C459F0EE120D20620957ADA1ACD57B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ Adobe Illustrator for Mac 2024 v.28.4.1 U2B [Multi/Ru]
 magnet:?xt=urn:btih:5D56AD21931AF1DB12B3EF681149A06CBAD34BDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:5D56AD21931AF1DB12B3EF681149A06CBAD34BDC
 magnet:?xt=urn:btih:65E394D8113563FA75214C623883DC7175AE8D9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:65E394D8113563FA75214C623883DC7175AE8D9C
 ```bash
 magnet:?xt=urn:btih:D5679B562712EFF2A63393298CFACC9C858B384B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:D5679B562712EFF2A63393298CFACC9C858B384B
 magnet:?xt=urn:btih:FB5587427557FB1CBCB51B0350B3CBA42AA7DAB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ Outpost: Infinity Siege - это увлекательный научно-фан�
 ```bash
 magnet:?xt=urn:btih:698F49DE06F6980EA1FA148B3207B3429441046D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:698F49DE06F6980EA1FA148B3207B3429441046D
 magnet:?xt=urn:btih:2EDD18ACCECE4F9E265CC60FEC9D41EBCC49196E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:2EDD18ACCECE4F9E265CC60FEC9D41EBCC49196E
 ```bash
 magnet:?xt=urn:btih:EE6AAC8DDE01E1E569D94FF4427D8845E962F7C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ SOUND FORGE вот уже более 20 лет задает стандарты �
 magnet:?xt=urn:btih:EE436CD2387A7EF1FCB1344B439222177084BED7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ BBC: Реальная история научной фантастики / The R
 ```bash
 magnet:?xt=urn:btih:010EF03A1C3D16B9D3690600FBF837E7E9E55120
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

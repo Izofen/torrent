@@ -19,6 +19,8 @@ Massive Chalice – это тактическая стратегия в эпич
 magnet:?xt=urn:btih:7C0C74798471DCF909B704C48F4E19F7AF252966
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Shadowrun: Hong Kong - это новая пошаговая ролевая иг�
 ```bash
 magnet:?xt=urn:btih:8BA7BBF0F342212A17FDF18AA839DFA174054231
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ SpellForce сосредотачивается на элементах RPG и р�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Invisible, Inc. — это генерируемая процедурным об�
 ```bash
 magnet:?xt=urn:btih:D00AA0CECFAD1A3B7373AF4303A50A627A744529
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Steel Division: Normandy 44 — это тактическая стратегия
 magnet:?xt=urn:btih:F346D6CC08E27BE3445C2CE0BC0F8D9B773D3F35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Revolution Under Siege / Герои Гражданской: Красные пр�
 magnet:?xt=urn:btih:996ECC2D8110605E9EAE875488ADFB9AF2DC7ADD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Xenonauts (2014) [En] (1.65) License GOG
 ```bash
 magnet:?xt=urn:btih:8CF726A4AF14185D7D96D1E58557F31D09F785C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Men of War: Assault Squad: Game of the Year Edition / В тылу врага 2: 
 magnet:?xt=urn:btih:288361D8602AD09F9A13788165B9C264BDC0B099
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ Jagged Alliance: Back in Action - это новая часть знаменит�
 magnet:?xt=urn:btih:F4AAD5EE130303C64B6BC262C64850490B94BEB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ Post Human W.A.R – пошаговая тактическая и психоло
 ```bash
 magnet:?xt=urn:btih:E3D6A559DA673334DBE7DC74A853EAB599874003
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ Dead Age — переживите зомби-апокалипсис с поша�
 magnet:?xt=urn:btih:ADFADB3FDEB623FC222B0BC6BC4F17CBD5648519
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Banner Saga 3 — грандиозное завершение захватыва
 ```bash
 magnet:?xt=urn:btih:D0E07C2528855E59B57170BF77541B40F6ABDC49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ The Banner Saga 2 продолжает события предыдущей ча�
 magnet:?xt=urn:btih:5F9179F9BCE822EA04B09D13B96928A5766771B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ Warhammer 40,000: Dawn of War II. Разработанная отмеченно�
 ```bash
 magnet:?xt=urn:btih:46B0AE8ECF2955D675B7C26F9F0B4B1D56B1419D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ Worms World Party Remastered (2015) [Ru/Multi] (1134) Repack Other s
 magnet:?xt=urn:btih:87FDE3A637A97371023364EDDE2D5E111891736E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ The Storm Guard: Darkness is Coming - это пошаговая стратеги
 ```bash
 magnet:?xt=urn:btih:B7FC5EBB9A4EC56D970AC7354D4DBFB6CB77B115
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ Age of Fear: The Undead King (2016) [En] (5.9.5) License SKIDROW
 magnet:?xt=urn:btih:4283A68346436550FA315AF255B91D07E70720EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Space Rangers HD: A War Apart / Космические рейнджеры HD: Р
 ```bash
 magnet:?xt=urn:btih:6041AFC55717DC60A1F4574902AEF9F567C6CBB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Men of War / В тылу врага 2: Лис пустыни (2009) [Ru/En/Fr] (
 magnet:?xt=urn:btih:1BD9D7C2B78C806D83A379720E6C3255E960B602
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.2.5/dlc) Repack R
 ```bash
 magnet:?xt=urn:btih:33CC85A35BD8EFFDEC20CDC40E0C7734DC909E3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ Men of War: Condemned Heroes / Штрафбат [Ru/Multi2] (Steam-Rip/1.00.2) 2
 magnet:?xt=urn:btih:44E81F00CF5EC44BDB010A3281EC7ACBE2F87F75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ Zombie City Defense 2 – тактическая стратегия, в кото
 ```bash
 magnet:?xt=urn:btih:1034C3E312C935C189866044B39530A179D35270
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ Savage Resurrection – возрождение классического мно
 magnet:?xt=urn:btih:EAA2370F40B80712FC83391B349D3C8F0147079B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ Hard West (2015) [Ru/Multi] (1.5/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:565BDCC934ED06F2E5D4CB543B71E470491AD71B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ The Banner Saga 2 продолжает события предыдущей ча�
 magnet:?xt=urn:btih:D09ED55D9542B1B9745CDC6713EB9D632478B6D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Warhammer 40,000: Armageddon: Da Orks - вторая часть в серии в
 ```bash
 magnet:?xt=urn:btih:AE997403D2848B33475882975D72F6E01261C197
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

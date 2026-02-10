@@ -19,6 +19,8 @@ Weird West (2022) [PS4] [USA] 5.05 [HEN] [License / 1.11] [Ru/Multi]
 magnet:?xt=urn:btih:DB69B3CA075F65F01B191EF2957E80F4FA25D717
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Call of Duty: Black Ops II + DLC (2012) [Xbox360] [RegionFree] [FreeBoot] [Unoff
 ```bash
 magnet:?xt=urn:btih:5646B9F0796E6B158716239C46898C455AF38242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Syberia / Сибирь (2002) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [Ru
 magnet:?xt=urn:btih:D16CBF572B8185E8623FB55D63DC3E004ACD3003
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Dead Island (2011) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [Ru] | R.G.DSh
 ```bash
 magnet:?xt=urn:btih:76BCC760A9B7669393C14B724911127860EB3F49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Sniper Elite 5 — новая часть легендарной серии, в �
 magnet:?xt=urn:btih:BDBE4AA0ECEA9990948E898E7425692521431E34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Dungeons & Dragons: Daggerdale (2011) [Xbox360] [RegionFree] [FreeBoot] [Unoffic
 ```bash
 magnet:?xt=urn:btih:4B19652EBF6222F0D3CB2BA4D0EFBBC03D659CD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Shaun White Skateboarding призывает Вас превратить окр�
 magnet:?xt=urn:btih:090797663562E3C2092C17E1F518F962C8B5E688
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Call of Duty возвращается к истокам. Call of Duty®: WWII - 
 ```bash
 magnet:?xt=urn:btih:2A08603003CFBCE7C884377F66437C3E7F4BC491
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Halo 4 продолжает знаменитую серию шутеров Halo 
 magnet:?xt=urn:btih:42E0376C9B4395261D1510B6F2FD9262A3125714
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Aliens: Colonial Marines – новая игра от студии Gearbox, в �
 magnet:?xt=urn:btih:EAAB359F128FA1842A18443033638A1A2E42C725
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Days Gone / Жизнь после (2019) [PS4] [EUR] 9.00 [HEN] [License / 1.80 
 ```bash
 magnet:?xt=urn:btih:3CAAF4733BE1047849D0990B5CBBB38E33F319FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:3CAAF4733BE1047849D0990B5CBBB38E33F319FD
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Need for Speed, одна из ведущих игровых серий возв�
 ```bash
 magnet:?xt=urn:btih:0DDBE269FC972B4940E1EDCA070F98E8B5C35DB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Cars Race-O-Rama (2009) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
 magnet:?xt=urn:btih:76F3CB507EC2CF121899D4EA099E76EBBF782A7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ SpongeBob HeroPants – игра, основанная на полнометра
 ```bash
 magnet:?xt=urn:btih:D14268A5BFF90A4202F1A6A396610B846FB25031
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Tetris 99 (2019) [Switch] [EUR] 8.0.0 [eShop] [Ru/Multi]
 magnet:?xt=urn:btih:D01D3D44C80DE91C1CA41BE0F761C4058B2D383A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Doom 3 BFG Edition (2012) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [Ru]
 ```bash
 magnet:?xt=urn:btih:1B32DD115294F255F8669991FC43884FB5DAAA26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ The Legend of Zelda: Twilight Princess (2006) [Wii] [NTSC] [Unofficial] [Ru/Mult
 magnet:?xt=urn:btih:2DEF08D8A0481B71D727EDBD2C4D82B39881121A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Cars 2: The Video Game / Тачки 2 (2011) [Xbox360] [RegionFree] [FreeBoot] [
 ```bash
 magnet:?xt=urn:btih:605682BCF694B11B577779DB1484578E83199F9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ The Expendables 2 Video Game – аркадная стрелялка, основ
 magnet:?xt=urn:btih:AEC4EEFCC45ACE70301929BDE68C94A3F374775D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Phineas and Ferb: Quest for Cool Stuff (2013) [Xbox360] [RegionFree] [FreeBoot] 
 ```bash
 magnet:?xt=urn:btih:C19D92263AE8ADBE3E9DD5F14848233EF6FA7394
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ Ace Combat: Assault Horizon Limited Edition [PS3] [RUS] [PAL] (2011)
 magnet:?xt=urn:btih:AB041502586B9A3F4406762CC663A6FDB22E4D52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ The Legend of Zelda: Twilight Princess (2006) [Wii] [PAL] [Unofficial] [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:BD8FBFD601594B3CF43F8893C85C0847ED993FD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Final Fantasy IX (2000) [PS1] [USA] [License] [En]
 magnet:?xt=urn:btih:AC7BE823FA3A32C755E870DCA9BFBF8DBE99E58C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Pro Evolution Soccer 2013 (2012) [PS3] [EUR] 4.21 [Cobra ODE / E3 ODE PRO ISO] [
 magnet:?xt=urn:btih:80B23BDD89791A87D41C69A44D2F606FB90D9439
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Aliens vs. Predator (2010) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru] | R.
 ```bash
 magnet:?xt=urn:btih:49163793AA0B31C64C2C8CBD4AE6874A3865896E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

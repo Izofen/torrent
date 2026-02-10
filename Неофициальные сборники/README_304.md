@@ -1,3 +1,32 @@
+###  Публикация: 1315350   (513898) от 19.07.2019
+
+VA - Sin Compromiso: Indie Punk Rock (2019) [MP3|320 Kbps] <Indi, Punk Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513898.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Agar Agar - Lost Dog
+002. Lawrence Arabia - Everything's Minimal
+003. Winter - Everything
+004. Tim Cohen - I Don't Wear Gold(   Читать дальше...   )Жанр: Indi, Punk Rock, AlternativeПродолжительность: 11:06:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86D3408D1DA002118115A1AE9D1B60C8A47F9B4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242586   (513942) от 23.08.2018
 
 VA - Ambient Beautiful (2018) [MP3|320 Kbps] <Ambient, Lounge, Lo Fi>
@@ -21,6 +50,8 @@ VA - Ambient Beautiful (2018) [MP3|320 Kbps] <Ambient, Lounge, Lo Fi>
 ```bash
 magnet:?xt=urn:btih:F82EB8122AA44975DCCA74683C83F9744BBA2279
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Ego Night: Original Mix Electro House (2019) [MP3|320 Kbps] <Electro House,
 magnet:?xt=urn:btih:D98B203FD0CE50811CFDB5AE80FF57C806201B2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Sublime Drum And Bass (2019) [MP3|320 Kbps] <Bass, D&B, Dubstep>
 ```bash
 magnet:?xt=urn:btih:273E279D0347CA882BA05B0DCC540B6D373A6AA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Hot Electro House Party (2018) [MP3|320 Kbps] <Electro Houe, Dance, Club>
 magnet:?xt=urn:btih:F93808D02FB9A276E831AEF2BAF33EEC1F3D523B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Tik Tok Треки выстрелили летом 2022 [MP3|320 Kbps] <Pop
 ```bash
 magnet:?xt=urn:btih:423BA8596F1C971C5F28C9DD5704D40FEB14220E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - 30(14) Новые Песни (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:B7B06358E8BDA478A22618A31E31AE3C4BAB0A66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +225,8 @@ VA - Music News vol.200 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:A751E83C17E742021B3029FB2FD32D0D05DDEA1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +253,8 @@ VA - Dance All Night: Clubbing Electro House (2022) [MP3|320 Kbps] <Club, Dance,
 ```bash
 magnet:?xt=urn:btih:25BC2EC9EF24FEE7B52488A1AC213ED123C4D336
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +284,8 @@ VA - The Official UK Top 40 Singles Chart (12-08-2012) [MP3|320 кб/с]<Pop, Ro
 ```bash
 magnet:?xt=urn:btih:F25EDC5B4B316DCFA519226617274CAB279D8272
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +320,8 @@ VA - USA Hot Top 40 Singles Chart (18.08.2012) [MP3|256 кб/с]<Pop, Dance, Roc
 magnet:?xt=urn:btih:BECC3395A43F7AF767F36E1A38A8886044D7C890
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +348,8 @@ VA - Art Of Deep House (2019) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:D88D0BABB25AE0A0EEB49F3D1D4C891817453639
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +378,8 @@ VA - Ты только мой. Супер сборник популярной м
 magnet:?xt=urn:btih:C78BFCA77C9316D646652CA92220A3FDE76841CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +406,8 @@ VA - Зайцев.нет Лучшие новинки Июля (2019) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:7FC1B34D16A7C871E09A44ADE2D598F96A3E4367
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +436,8 @@ VA - Planet Rap: Enhanced Radio Mix (2019) [MP3|320 Kbps] <Hip-Hop, Rap>
 magnet:?xt=urn:btih:D6E24D7FE814373B12C9CCE277534AF74B9CC56B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +464,8 @@ VA - Roots Reggae (2019) [MP3|320 Kbps] <Reggae, Dub, SKA>
 ```bash
 magnet:?xt=urn:btih:9C62EFAB17440E7272C137B9A09685A81C719C5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +494,8 @@ VA - Summer Beach Party Vol. 01 (2018) [MP3|320 Kbps] <Pop, Dance, RnB>
 magnet:?xt=urn:btih:D6BC55DF5605FBE9D4C6C1E9CF5A61226955B503
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +522,8 @@ VA - Black & Red: Dedication To R&B (2019) [MP3|320 Kbps] <R&B, Soul>
 ```bash
 magnet:?xt=urn:btih:EE2BE10104488492B3F1E15EA1E34C1B9BCBB194
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +552,8 @@ VA - Globalism: July Techno Set (2019) [MP3|320 Kbps] <Techno, Minimal>
 magnet:?xt=urn:btih:E4BB942C414954490119E60B7C247B6D2297A88B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +580,8 @@ VA - Portal: Electro Psychedelic (2019) [MP3|320 Kbps] <Psy Trance, Goa>
 ```bash
 magnet:?xt=urn:btih:78B19A4A2EE3F898A7FD2B9A371534C6FC6FFF57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +610,8 @@ VA - Гигант От Зайцев Net (2015) [MP3|320 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:87BD45BD4B84E3ABF073CAEA5800B8636B20ED4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +638,8 @@ VA - Зачетный хит Русский (2015) [MP3|160-320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:358DC28AF2257C4F773990A1FDD9F16BFE61B17B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +668,8 @@ VA - 60 Minutes. Old School Dance Music vol.9 (mixed by Dj V) (2022) [MP3|320 Kb
 magnet:?xt=urn:btih:82B6ABA59F0538950CF92AF4F4F9DBE7F949193B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +696,8 @@ VA - В машине с музыкой Vol.282 (2022) [MP3|320 Kbps] <Pop, Dance
 ```bash
 magnet:?xt=urn:btih:B86E03B87054788B2437B576D38155DAE2AB5972
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +726,8 @@ VA - В машине с музыкой Vol.281 (2022) [MP3|320 Kbps] <Pop, Dance
 magnet:?xt=urn:btih:9E1E7032D6C2C315A4FDF64379348463004732BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,38 +755,7 @@ VA - Wedding Time (2022) [MP3|320 Kbps] <Pop, Rock, R&B>
 magnet:?xt=urn:btih:C616FD29667F714C2012144226C9CB395152DEE4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535781   (515620) от 17.08.2012
-
-VA - Hit Parade XX Century Instrumental Music (2CD) (1994) [MP3|320 кб/с]<Instrumental, Soundtrack>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515620.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Symphonic Rock Orchestra - The Phantom Of The Opera (4:31)
- 2. S. Taylor - Summertime (2:34)
- 3. The Shadows - Chi May (3:38)
- 4. J. Last - The Lonely Sheepheard (4:21)
- 5. P. Mauriat - Mammy Blue (2:52)
- 6. Jan Morks Quartet - You Don't Know How Much (3:23)
- 7. A. Ventura - Love Story (3:45)
- 8. F. Goya - I Just Call To Say I Love You (3:50)
- 9. Ocarina - Song Of Ocarina (3:37)
- 10. H. Manginy - The Pink Pantera (2:36)(   Читать дальше...   )Жанр: Instrumental, SoundtrackПродолжительность: 00:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26AE0C88842C73C8CDCBFB81FDF52B96E0CFB6A7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

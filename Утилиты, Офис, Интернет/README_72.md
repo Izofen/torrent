@@ -19,6 +19,8 @@ MathType - это интерактивный инструмент, которы�
 magnet:?xt=urn:btih:F945C1EECA19BAE51433D3A144999295733324F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MAX Desktop 25.17.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:91823C2087281F7B5663F04400D04AE545CB2FF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Process Lasso позволяет вручную или автоматическ�
 magnet:?xt=urn:btih:3192F90AFF3BF6091A48400852B38D0FD5417857
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:D81BB37B942AF2C1A996BBC82F0DBD6EF37E0AC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Atlantis Word Processor 5.0.0.9 Repack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:9F3018677870DCA3BE7311BAF347AD7977D0EBEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:91D142FC1C853160DEBD3E7C9575579FF0139110
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ WinCatalog - это простая в использовании програм�
 magnet:?xt=urn:btih:26893AC47963232EB7F7D64EB49D4EC2CDE3C19A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:C1F8D6329E795AD723129DE147363F8C7F72FF4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ DBF Converter — узкоспециализированный программ�
 magnet:?xt=urn:btih:6B1A1AF3CF2F1748631F742323853550523F4FE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ DBF Viewer 2000® - приложение для просмотра и редак
 magnet:?xt=urn:btih:5DBB44E8613B688B31BAA0A40161D21E405D5718
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:2347299F87E663EDEE8D2C7271E3D866E0EA4C66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ uTorrent Pack 1.2.3.99 Repack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:08F473A20F7AAFDCE73B16A63E56381D4BD2E293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ Throne – это программное обеспечение, которое 
 magnet:?xt=urn:btih:1B706CB29F5F9F95BB3E6EB9C14220E881D0C843
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 ```bash
 magnet:?xt=urn:btih:33FAF7AC16AA79E9087D36DD88E2DC8E0E4AE9FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ Camtasia захватывает действия и звуки в любой ч�
 magnet:?xt=urn:btih:48037FF68A3252E3B74B88C531F450CFDDFDF158
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ RegCool 3.0.0.1 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:027B6DA5BA38F2ED385A33E80060D9859BEE2DD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ Geek Uninstaller - удобный, маленький и надежный, не 
 magnet:?xt=urn:btih:09F8E5F0D0FFB079DF1D712AF933735C8873DF21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:5CB3D7CF714F16AD7DB78821D27F861C1BD30B78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ HDCleaner – многофункциональный программный пр
 magnet:?xt=urn:btih:9C1B90CF15746EA98E287F041B0363D7914EE217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ TweakPower – представляет собой единый графичес
 magnet:?xt=urn:btih:C1697C0C249C22A2583D4AA39929018D40D78611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:C660DB68E51D530C8049A6345BEAF3F3B49C121C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:9155100969884C1834D050287AEFBDA6133E2ACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ R-Studio Network 9.5 Build 191645 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:512BBCCDA70026CF82EFB27C80EC38C97050D242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ PDF-XChange Pro — универсальное решение для работ�
 magnet:?xt=urn:btih:8CC14324019448DE3959D192D1E6513865B334B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:E1FDE84AC5A689436DB483AB5CA35FDD9225B6AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:9ED673545DFE565E0CC281C4C5F2122404C8E4E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

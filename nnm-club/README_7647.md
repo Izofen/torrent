@@ -22,6 +22,8 @@ VA - Zenon Records: 20 Years (2023) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 magnet:?xt=urn:btih:502DDE192974898434E445ED6490E89800FF1624
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ DP Animation Maker 3.5.18 RePack (& Portable) by TryRooM [En]
 ```bash
 magnet:?xt=urn:btih:3289E3466EE1387F08C670307F6B8CF377C822C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ NIUBI Partition Editor – программа для простого и над�
 ```bash
 magnet:?xt=urn:btih:756AB70ED39A498D4ADD3E46DBAE5F922974FAD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ Crimson Fire - Fireborn (2016) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 magnet:?xt=urn:btih:0E42E84399A1A2BEDA6CD71A2240C67D8312641B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:0E42E84399A1A2BEDA6CD71A2240C67D8312641B
 ```bash
 magnet:?xt=urn:btih:A6F57C68E2D3C1E2B325BFA71C38725E2AFAAEBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:A6F57C68E2D3C1E2B325BFA71C38725E2AFAAEBF
 magnet:?xt=urn:btih:E984F9DF3B9CFBF5952BF5D8AC9C548AEB322EEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:E984F9DF3B9CFBF5952BF5D8AC9C548AEB322EEB
 ```bash
 magnet:?xt=urn:btih:841359EC954F79504D29ACE8AEEEDC13ED83FF92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ PTE AV Studio Pro - дальнейшее развитие программы Pic
 magnet:?xt=urn:btih:498510E4BD0B97D9BAE0F640B10E733EE3ECDAED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ VA - Nothing But... Trancetopia, Vol. 06 (2023) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:7B554C535CD78D2445099CE1472DB8EAB32DA5B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ King Crimson — британская рок-группа, созданная г
 magnet:?xt=urn:btih:0834F46B9DC73EFB380316F52DD5CF63DC802FD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ Sorcia - Lost Season (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
 ```bash
 magnet:?xt=urn:btih:C4595AC75AE8D68568B564B98139B1B646DB3198
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +328,8 @@ Critical Defiance - No Life Forms (2022) [MP3|320 Kbps] <Thrash Metal>
 magnet:?xt=urn:btih:273990F274D7CE975A6746085AFE8DE7F14D592B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:273990F274D7CE975A6746085AFE8DE7F14D592B
 ```bash
 magnet:?xt=urn:btih:5BA36E023CBD45F7BF182B42F765A4243225CAF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +380,8 @@ Patrician III - это экономическая стратегия. Вы - о�
 magnet:?xt=urn:btih:56159AFD8ACB47563776A69F8B2360110AA0A222
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ RAR - это консольное приложение, позволяющее �
 magnet:?xt=urn:btih:94438E0E97054A066DEB14F996DE17F5412E1C19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ Aiseesoft DVD Creator 5.2.38 [En]
 ```bash
 magnet:?xt=urn:btih:E5C73B5CBB7A795DDCA5075FB0C4F0DFC14F44EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ magnet:?xt=urn:btih:E5C73B5CBB7A795DDCA5075FB0C4F0DFC14F44EF
 magnet:?xt=urn:btih:4ECF1DC26D011C4FC96F2FBD5904265F2069AD5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:4ECF1DC26D011C4FC96F2FBD5904265F2069AD5E
 ```bash
 magnet:?xt=urn:btih:8DEF6A21009EE01E7E2B2F83D5A0E3CC92EB9CEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ magnet:?xt=urn:btih:8DEF6A21009EE01E7E2B2F83D5A0E3CC92EB9CEB
 magnet:?xt=urn:btih:BFA6E980BA10065E54C893351B47B15D20488ADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ Integrity Pro 12.7.7 [En]
 magnet:?xt=urn:btih:4A30B5D1C89AD96FD32CD3ED1E8CD31D80970BEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:4A30B5D1C89AD96FD32CD3ED1E8CD31D80970BEA
 ```bash
 magnet:?xt=urn:btih:6156084C6D2C0FCF06C71085743153DEF04A23B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ magnet:?xt=urn:btih:6156084C6D2C0FCF06C71085743153DEF04A23B1
 magnet:?xt=urn:btih:5BCE5FB38E89AB9B294CDA51B80A727F5207EDEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ Smart Driver Manager - это быстрый, простой и безопасн
 magnet:?xt=urn:btih:69031D05B6D0F6849060D249BA7588701464AF47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ Icecream Video Editor - простой редактор видео для Window
 ```bash
 magnet:?xt=urn:btih:E2EA616EDB059879C223CE59E227829C80D6DD6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:E2EA616EDB059879C223CE59E227829C80D6DD6D
 magnet:?xt=urn:btih:020CCD50D4B3135D57D2F24DF3A20F8033CF796E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ VA - 2Rock Club Hits Vol. 4 (2023) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:4EF72B83AAFCE9E4EC0CBD76E52432EFBA8DBDC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

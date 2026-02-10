@@ -19,6 +19,8 @@ Crime Wave [En] (RePack) 1990 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Crime Wave [En] (RePack) 1990 | Pilotus
 ```bash
 magnet:?xt=urn:btih:3C7272FB5E3686D13D87FAECF0ED2C96EDA8DC1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Spade - On The Fast Lane (2011) [MP3|320 кб/с]<Psychedelic / Full On>
 magnet:?xt=urn:btih:001C374020C899DD10C41868D74ACC17EC883081
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Backup4all - программа, предназначенная для созд�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ Backup4all - программа, предназначенная для созд�
 magnet:?xt=urn:btih:51810C6D62BED1306D1CEDDA5623DF5E2A9600B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:51810C6D62BED1306D1CEDDA5623DF5E2A9600B2
 magnet:?xt=urn:btih:1D4280B5CB33C416F8712552972D2A8845CF5254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ magnet:?xt=urn:btih:1D4280B5CB33C416F8712552972D2A8845CF5254
 ```bash
 magnet:?xt=urn:btih:71CE9A813272634EBD608D6B64BFDA0C94FF6D16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ magnet:?xt=urn:btih:71CE9A813272634EBD608D6B64BFDA0C94FF6D16
 magnet:?xt=urn:btih:59CAB2959960F31BCB93B038EF2FACB89947047A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ Raiden’у всё же удаётся заставить игрока посм�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +283,8 @@ Tritonal - Piercing The Quiet (Extended Mixes) (2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:7FBB17C18E424E819D50CCFE95E1D48B6C98F8E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ magnet:?xt=urn:btih:7FBB17C18E424E819D50CCFE95E1D48B6C98F8E1
 ```bash
 magnet:?xt=urn:btih:D295BD6629D830C6CB374F12B6D5BFE7FAA0ADF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +344,8 @@ Eleftheria Arvanitaki - Mirame (2009) [MP3|320 кб/с]<Pop, Ethnic>
 magnet:?xt=urn:btih:1C6D08F49E12D51893D01F0766529E8A8B19B704
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +377,8 @@ Light Of Night - 2 релиза (2011-2012) [MP3|320 kbps]<Drum & Bass>
 magnet:?xt=urn:btih:B16646770C2B806F1E099DAA3B6DA1F91B91E62A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +406,8 @@ magnet:?xt=urn:btih:B16646770C2B806F1E099DAA3B6DA1F91B91E62A
 ```bash
 magnet:?xt=urn:btih:A65B971EAEA03A74ECC4A8CEAAD20BE9E6FFC7A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +439,8 @@ VA - Break The Rules (2012) [MP3|320 кб/с]<Drum'n'Bass, Jungle, Breakbeat>
 ```bash
 magnet:?xt=urn:btih:1A5C568D93FBDF7752E02C89311C6A5317992E85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +475,8 @@ VA - Biomechanic Knowledge (Compiled By Djane Brahma) (2012) [MP3|320 кб/с]<P
 magnet:?xt=urn:btih:FE4B2DB84905AF85DF2422F7B514FAFDEDB200F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +500,8 @@ magnet:?xt=urn:btih:FE4B2DB84905AF85DF2422F7B514FAFDEDB200F3
 ```bash
 magnet:?xt=urn:btih:C34A3E4F992DAB8A3230D5B3494153522271A862
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +527,8 @@ magnet:?xt=urn:btih:C34A3E4F992DAB8A3230D5B3494153522271A862
 magnet:?xt=urn:btih:87FEF3BA4329149C7344ACE52E13272FCCD55221
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +553,8 @@ ViewFD - очень легкий, компактный файловый мене
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +578,8 @@ ViewFD - очень легкий, компактный файловый мене
 ```bash
 magnet:?xt=urn:btih:D17C8809F2756755EF6364518B83B4F52E18E1AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +614,8 @@ Demon Hunter - True Defiance (2012) [MP3|320 кб/с]<Modern Metal / Melodic Met
 magnet:?xt=urn:btih:F28BBF38D281CB8B467C64696B62C65D3C8E5248
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +639,8 @@ magnet:?xt=urn:btih:F28BBF38D281CB8B467C64696B62C65D3C8E5248
 ```bash
 magnet:?xt=urn:btih:D64D83D96C7EBA492D4C2B749A60201849D0F44E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +675,8 @@ Curtis Stigers - Let's Go Out Tonight (2012) [MP3|~245 кб/с (V0)]<Vocal Jazz,
 magnet:?xt=urn:btih:81BE20F60ECDB47A5A3F626AAADBBCB0E6A86301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +709,8 @@ VA - Record Trancemission vol.1 (Mixed by DJ Feel) (29.03.2012) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:9BF0F7B18045B897E558A55114517E05149FA402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -697,6 +745,8 @@ Marie Fredriksson - Antligen Marie Fredrikssons Basta [1984-2000] (2000) /EMI/ [
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -720,6 +770,8 @@ Mozilla Firefox - очень быстро работающий браузер, �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

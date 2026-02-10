@@ -22,6 +22,8 @@ A4 Just Love Me(   Читать дальше...   )Жанр: Hard RockПродо
 magnet:?xt=urn:btih:BFEBED8B5EB0AAA6D219FDB7F9D961E29262A747
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ A4 Time(   Читать дальше...   )Жанр: Hard Rock, Pop RockПрод
 ```bash
 magnet:?xt=urn:btih:8309D8D21EC3FADFB102F752FB0DD3C6C2DDD7B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ A4 Suzanne(   Читать дальше...   )Жанр: Pop RockПродолжи
 magnet:?xt=urn:btih:7C63C9672ECC9D223D4658C1C8C036907B7EA02C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Архив Популярной Музыки 1-12 (1988-1990) [FLAC 2.0|96/
 ```bash
 magnet:?xt=urn:btih:F1B9A12060A1FA9D892B95D145EAE4122F73D695
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Annihilator — трэш-метал группа, основанная в 1984 �
 magnet:?xt=urn:btih:193B72E44DD9C24FEF082A7C379DDB4D32964E2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ A4 Hear About It Later(   Читать дальше...   )Жанр: Hard RockП�
 ```bash
 magnet:?xt=urn:btih:DA78E60A5E8A89BD5959016B8EA513DA20996B77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ A4 Jennifer(   Читать дальше...   )Жанр: Hard RockПродолж
 magnet:?xt=urn:btih:4EC3E4981565D49CBAD6435161EC100A7D0E8EF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:4EC3E4981565D49CBAD6435161EC100A7D0E8EF7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:4EC3E4981565D49CBAD6435161EC100A7D0E8EF7
 magnet:?xt=urn:btih:11842F6D9B4748E61EC6ADFB614BEECE2D6C6C44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ A4 Gypsy Child(   Читать дальше...   )Жанр: Hard RockПродо�
 ```bash
 magnet:?xt=urn:btih:5126E710D04761AE8D882E63902B6E0B569D43DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ A4 Lucille(   Читать дальше...   )Жанр: Pop RockПродолжи
 magnet:?xt=urn:btih:45EE93A0A33F859513707FD57302B7BD79771D88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ A4. Donna, Donna Mia (3:01)(   Читать дальше...   )Производ�
 ```bash
 magnet:?xt=urn:btih:45463F8CF9286D4B7030D44C00B3B0DC00164888
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Spirit Nation - Spirit Nation (1998) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Elect
 magnet:?xt=urn:btih:1CFF7A380E435B36C5D54008BC8E2BFAEFB79097
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ A3 Sabbath Bloody Sabbath(   Читать дальше...   )Жанр: Hard Rock
 magnet:?xt=urn:btih:8D5E764950E7576496CAF0FD5B7579643155E618
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +427,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:C0E79D3311E59FAD11CF60139C7AFBC47A8FB45D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +458,8 @@ Mudvayne — американская ню-метал-группа из Пеор
 magnet:?xt=urn:btih:15988A681858B2419594CD33AE9736AE52DFC8F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +486,8 @@ A4 Беседа (Conversation)(   Читать дальше...   )Жанр: Jazz
 ```bash
 magnet:?xt=urn:btih:CDD595CA78BD9E44EC0A62DE449957E455688A6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +516,8 @@ A4 Per Amare Cosa Vuoi? = За Да Ме Обичаш, Какво Искаш?(  
 magnet:?xt=urn:btih:8B2D2AA65E2A06C6A9ABBEBD33EA5841AB65538A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +545,8 @@ B1. Flight Of The Rat (7:57)(   Читать дальше...   )Производ
 magnet:?xt=urn:btih:49A5FCFA08692C7D54609C9328EB3046AABD2400
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +573,8 @@ A4 It's A Plain Shame(   Читать дальше...   )Жанр: Rock & Roll, 
 ```bash
 magnet:?xt=urn:btih:1A392C26F32F76170AE5A2889CED2F8F19E0F3A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +604,8 @@ Queen - The Game (1980) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Pop Rock, Classic Roc
 magnet:?xt=urn:btih:4E839A3808BD048268DDE74DFE13BF83483E7895
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +632,8 @@ magnet:?xt=urn:btih:4E839A3808BD048268DDE74DFE13BF83483E7895
 ```bash
 magnet:?xt=urn:btih:90AEA6DA2EC770ACC48605C2C5F5FC73E157DA48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +662,8 @@ Various Artists - Любимые песни из фильмов  /Movie Songs (1
 magnet:?xt=urn:btih:4ECD299A21D9D284D6A4D25CAE019DE1A40EE08F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +690,8 @@ VA - Антология советского киношлягера - Любим
 ```bash
 magnet:?xt=urn:btih:6A80D841D90B62676494D323C24E9D01F0E180ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -672,6 +720,8 @@ VA - Мельница: Песни И. Николаева (1988) [FLAC 2.0 24/96|
 magnet:?xt=urn:btih:06220FFA057ABCADE08BD23862E9BB4D72D0C3FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -698,6 +748,8 @@ A4. Nobody Home (3:54)(   Читать дальше...   )Производств
 ```bash
 magnet:?xt=urn:btih:C66386E6A8D4786D67AF6FC32B3C01129F9B5963
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

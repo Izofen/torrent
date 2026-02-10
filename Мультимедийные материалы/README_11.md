@@ -19,6 +19,8 @@ Chip (Чип) — первый компьютерный журнал в Евро
 magnet:?xt=urn:btih:27A1DADDE997B673BF6CACE675AA0C1F74F12BE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:27A1DADDE997B673BF6CACE675AA0C1F74F12BE5
 ```bash
 magnet:?xt=urn:btih:9B53F3B377D44E77F84A35C3A5964F8DE03CA0D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:9B53F3B377D44E77F84A35C3A5964F8DE03CA0D6
 magnet:?xt=urn:btih:78E403659B352751C4C3C359171E0CA32D50FB10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:78E403659B352751C4C3C359171E0CA32D50FB10
 magnet:?xt=urn:btih:80553CA829267BBCFED91E20575A4040ED5031FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Chip (Чип) — первый компьютерный журнал в Евро
 ```bash
 magnet:?xt=urn:btih:B7537FD34E404C603CC041D00E691D1F6BB567A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:B7537FD34E404C603CC041D00E691D1F6BB567A0
 magnet:?xt=urn:btih:524CF1C0496AFE459E9A60F9D9E191C21F24658A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Javabegin | Разработка iOS приложения c нуля - Swift 4, 
 ```bash
 magnet:?xt=urn:btih:C19023873720FC4E32F8267979174301EE61D7C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Swift - относительно новый язык программирова�
 ```bash
 magnet:?xt=urn:btih:937ECF6FBF401CB42CDFAA6ECA86C58E841027FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ Spring Framework - библиотека или набор инструменто
 magnet:?xt=urn:btih:84D698B14141F22F51B615B1C9A11424915B5FB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ Javabegin | Базы данных и SQL в Java: для новичков (2019)
 ```bash
 magnet:?xt=urn:btih:AA387A2A6DC06B4DF6F96E8DFBC29A151682CBA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ Spring Boot берет на себя всю черновую работу, а в
 magnet:?xt=urn:btih:5E99AD80B72FC68DE1543C7DDC22257FA2720C78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ Chip (Чип) — первый компьютерный журнал в Евро
 ```bash
 magnet:?xt=urn:btih:C924AD79FC98D17C92607E085DDE1930E883509A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ Cordis Media | Продажи – на максимум! [2005] [unpacked]
 magnet:?xt=urn:btih:AFB936FFC6B21D919E085428B7A4D7DC98316B35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:AFB936FFC6B21D919E085428B7A4D7DC98316B35
 magnet:?xt=urn:btih:3494CCD26BE8D082DD496A9BC7D558F22EAA8170
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ Chip (Чип) — первый компьютерный журнал в Евро
 ```bash
 magnet:?xt=urn:btih:6D23091AD31713DEFC0FBCEB31344A9B2137409F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ Javabegin | Профессиональный код на ООП в Java (2019) [
 magnet:?xt=urn:btih:38FBF449D7451C92A8A8625852F7F2EB222C9422
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:38FBF449D7451C92A8A8625852F7F2EB222C9422
 ```bash
 magnet:?xt=urn:btih:4B1316BBFC514EA8BBDF949CFD15E27F7BC257AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +490,8 @@ magnet:?xt=urn:btih:4B1316BBFC514EA8BBDF949CFD15E27F7BC257AF
 magnet:?xt=urn:btih:317F62E7B66108C2FE6C1EC75BFC923E18C5E1AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ TradeLikeaPro | Бинарные опционы для «Чайников» (201
 ```bash
 magnet:?xt=urn:btih:8F23C021AAF5DD4DF60CE9E5A12CEDECA4CA4B9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ magnet:?xt=urn:btih:8F23C021AAF5DD4DF60CE9E5A12CEDECA4CA4B9B
 ```bash
 magnet:?xt=urn:btih:C95FE19537F5AD65332F963410E2E1D7779E35C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ magnet:?xt=urn:btih:C95FE19537F5AD65332F963410E2E1D7779E35C2
 magnet:?xt=urn:btih:39E11309D1AA17934C33D044BACA409AE571D502
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ Chip (Чип) — первый компьютерный журнал в Евро
 magnet:?xt=urn:btih:B2E1C9B0EF62FA8B54C12103F1D01957301B29D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ magnet:?xt=urn:btih:B2E1C9B0EF62FA8B54C12103F1D01957301B29D7
 ```bash
 magnet:?xt=urn:btih:CEAFDEF779EA3192530D80E49CABACAA05D79401
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ AlexSoft | Государственная Третьяковская галер�
 magnet:?xt=urn:btih:B86497CD82256DCB2C3DECD998D28F4A024C0DF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ Python уверенно лидирует в рейтингах популярн�
 magnet:?xt=urn:btih:01601989F439253BD44BA53DF8F4383C914747B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ DVD-диск - приложение к книгеЖанр: Системы про
 ```bash
 magnet:?xt=urn:btih:DC4BCEE4DD958AE54CEA2077A98B69D7027734D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

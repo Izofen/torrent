@@ -1,3 +1,29 @@
+###  Публикация: 635624   (907109) от 27.03.2013
+
+Александр Латса | Мифы о России. От Грозного до Путина. Мы глазами иностранцев [2013] [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Латса, француз, осознанно предпочел жить и работать в России. Он написал удивительную и очень русскую книгу о нашей стране. Своеобразный угол зрения на наш быт, привычки, историю и мысли позволяет по-другому взглянуть на нас самих. Пора перестать заниматься столь любимым самобичеванием и уничижением. Поверьте, после этой смешной, острой и мудрой книги, (   Читать дальше...   )Издательство: АстрельФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14B4326C5CDBD62CD2B86F88BADEE9A08D495231
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368878   (907196) от 21.03.2020
 
 Натали Фи | ЭКОsapiens. Простые правила осознанной жизни (2020) [FB2]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:4728D7631732F55978042F996CD701A60EBC4B64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:4728D7631732F55978042F996CD701A60EBC4B64
 magnet:?xt=urn:btih:CB14FB73ED1EF6FF32A38FBC458FD381B8E62A1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:CB14FB73ED1EF6FF32A38FBC458FD381B8E62A1C
 ```bash
 magnet:?xt=urn:btih:DBCE4FBD2960549A3A9D22B2EBD321982EAF01DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +129,8 @@ magnet:?xt=urn:btih:DBCE4FBD2960549A3A9D22B2EBD321982EAF01DD
 magnet:?xt=urn:btih:038192279A3407A1244FB345A9280C8ADEC2D869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +155,8 @@ magnet:?xt=urn:btih:038192279A3407A1244FB345A9280C8ADEC2D869
 magnet:?xt=urn:btih:9E4262D06618B93EA921FFFC53DED4A12AF50991
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:9E4262D06618B93EA921FFFC53DED4A12AF50991
 ```bash
 magnet:?xt=urn:btih:C3B0B014A846945A4B1B2DA11DB504B27EEBFFC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +209,8 @@ magnet:?xt=urn:btih:C3B0B014A846945A4B1B2DA11DB504B27EEBFFC2
 magnet:?xt=urn:btih:84AA255F18754186D9071171AFBAB3CA6B8CD8A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +234,8 @@ magnet:?xt=urn:btih:84AA255F18754186D9071171AFBAB3CA6B8CD8A0
 ```bash
 magnet:?xt=urn:btih:8847D94C3946CBEBE5AFFE9A75EEEFE35DCE5E18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +261,8 @@ magnet:?xt=urn:btih:8847D94C3946CBEBE5AFFE9A75EEEFE35DCE5E18
 magnet:?xt=urn:btih:50170912EEA09FF31B6291E85BF649208BE572C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:50170912EEA09FF31B6291E85BF649208BE572C5
 ```bash
 magnet:?xt=urn:btih:76BA087E64882B939B87B958CBD4FC5B4153F1B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +314,8 @@ magnet:?xt=urn:btih:76BA087E64882B939B87B958CBD4FC5B4153F1B2
 magnet:?xt=urn:btih:70F6B5238F495F56407645AACE803611C6B0C515
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:70F6B5238F495F56407645AACE803611C6B0C515
 ```bash
 magnet:?xt=urn:btih:0A47FC37EE25A39E80F77F3FDF799CE137FEF795
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:0A47FC37EE25A39E80F77F3FDF799CE137FEF795
 magnet:?xt=urn:btih:6C5826130A594718E45B1AB7FD9FD019B45D3662
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:6C5826130A594718E45B1AB7FD9FD019B45D3662
 ```bash
 magnet:?xt=urn:btih:1619F514876CCF97685EE466194BE4F721DCE8CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:1619F514876CCF97685EE466194BE4F721DCE8CF
 magnet:?xt=urn:btih:065BD46E1A41F0EDC05556E0D61FB016A3367F9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +447,8 @@ magnet:?xt=urn:btih:065BD46E1A41F0EDC05556E0D61FB016A3367F9C
 magnet:?xt=urn:btih:9F7A82491952F97AE0A5930E1CE0CE20715D431E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:9F7A82491952F97AE0A5930E1CE0CE20715D431E
 magnet:?xt=urn:btih:7696C8F7268DFDEA76EFBF1F769856575E5A100B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:7696C8F7268DFDEA76EFBF1F769856575E5A100B
 ```bash
 magnet:?xt=urn:btih:8CF35FB505650BD73051A820524E2E144568AF0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:8CF35FB505650BD73051A820524E2E144568AF0B
 magnet:?xt=urn:btih:57126629252DA329FD43AE682A4AB7C8ED070148
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:57126629252DA329FD43AE682A4AB7C8ED070148
 ```bash
 magnet:?xt=urn:btih:71A504EABBBAD7022CF4C258A08A6AD4AF3BA610
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:71A504EABBBAD7022CF4C258A08A6AD4AF3BA610
 magnet:?xt=urn:btih:63E02BAF4726B29C7F6CDB5E4D2C10EF1296A463
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:63E02BAF4726B29C7F6CDB5E4D2C10EF1296A463
 ```bash
 magnet:?xt=urn:btih:32104CF35504443EDFB935EB8E82378C0F3CFC33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:32104CF35504443EDFB935EB8E82378C0F3CFC33
 magnet:?xt=urn:btih:1A27A119AEFFB3937DEEA4AD287EB7702A020DA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:1A27A119AEFFB3937DEEA4AD287EB7702A020DA2
 ```bash
 magnet:?xt=urn:btih:841165E98100D5441131B4AADB6FAAB62400CAF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,29 +682,7 @@ magnet:?xt=urn:btih:841165E98100D5441131B4AADB6FAAB62400CAF3
 magnet:?xt=urn:btih:F63257D9D9D9EBD9E577F131EDD3BF846248789F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368484   (909240) от 20.03.2020
-
-И. М. Могилевкин | Бизнес и море. Морская торговля и судоходство при капитализме (1982) [DJVU, PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909240.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге показаны экономические и политические перемены, которые произошли в судоходстве за последние десятилетия. В ней исследуются условия производства и реализации продукции на морском транспорте, принципы судоходной политики государств, коренные изменения в международном режиме судоходства, экономические, политические и социальные проблемы сотрудничества в области (   Читать дальше...   )Жанр: История, политология, публицистика, экономикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC7405E94B142FF14AF9FE3C630992DD4C921FBF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Order of Battle – военная пошаговая стратегия, соб
 magnet:?xt=urn:btih:00B0B189E8762E1E553C5561BF9C2C64ABAF6C8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ F.E.A.R. 2: Project Origin — продолжает популярную сер�
 ```bash
 magnet:?xt=urn:btih:48F2CC61D51111359A8C624278ECA0FB79FF631C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Sword Art Online: Lost Song (2018) [Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:77E2339A9644C2F524DEAD1C84B42B25046B74EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Gold Rush: The Game (2017) [Ru/Multi] (1.5.10715/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:584F77DAE8F079A548B66DFF0003C088427F7590
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Borderlands: The Pre-Sequel (2014) [Ru/En] (1.0.7/dlc) Repack Mizantrop1337
 magnet:?xt=urn:btih:08BB5C138356B2E497868505C4A525570C7C219C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Megaton Rainfall (2017) [Ru/Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:F5328429D546B8067384FA95BF1C333CB96E54E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Hollow (2017) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:879826A00DD2695472BAD59FAD2429CA8498553F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Injustice: Gods Among Us Самое полное издание от компа�
 ```bash
 magnet:?xt=urn:btih:5CD94189615F31D1A10042B69E11F0D05CECC842
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Pillars of Eternity (2015) [Ru/Multi] (3.7.0.1280/dlc) Repack R.G. Catalyst
 magnet:?xt=urn:btih:FE2468F9E9928CE6B715A82252CE4F1B581B2721
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Family Mysteries: Poisonous Promises (2019) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:7B9EA2DDBA398FCD0C448BD24879F8F087CF9D3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Fright Chasers: Dark Exposure / Ловцы страхов: Темная сущн
 magnet:?xt=urn:btih:ED7A47DA7E2AE74EF2B684C90348F6EB68ECDCB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Call of Juarez The Gunslinger перенесет вас на просторы л
 magnet:?xt=urn:btih:61017256AE79ACADD8EF78842E58B45AA9BA549C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ magnet:?xt=urn:btih:61017256AE79ACADD8EF78842E58B45AA9BA549C
 ```bash
 magnet:?xt=urn:btih:88473A775759CBD75F0F37481BB1954D3CFB9B02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ World Rally Championship 2010 первая игра из серии гоночн
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Rogue Wizards - красивая пошаговая игра в стиле rogue
 ```bash
 magnet:?xt=urn:btih:3BD02AB8C64866A2C3C43391CC902DD33278792A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Hidden Expedition 10: The Fountain of Youth / Секретная экспеди�
 magnet:?xt=urn:btih:F7F9476CEE2C4795FC38118358EB089D151D3BE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Whispered Secrets 6: Song of Sorrow / Нашептанные секреты 6: �
 ```bash
 magnet:?xt=urn:btih:1911912B77093CA586A522EF4F0011E2BE336841
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Far Cry 3: Трейнер (Trainer/+18) 2012 | FLiNG
 magnet:?xt=urn:btih:E7F1FDE6A0F3E5AE98F9B24E2B630CA826646BB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Galaxy of Pen and Paper (2017) [En/Br] (1.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:48F39BC2EF5630FD8E1FDB07441174A07CF011DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Steel Rats (2018) [Ru/Multi] (1.01/dlc) License GOG
 magnet:?xt=urn:btih:821BBD9B3D0CC11E1CF8B1ABB1721EC03575FCA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Tyranny (2016) [Ru/Multi] (1.2.1.0160/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:F9E4BCB96E6DC4DC5E875E524924D6AACCBCEF02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ TSIOQUE (Чок) - это приключенческая игра Point & Click 
 magnet:?xt=urn:btih:C0B41C11924FDF8EC49295FD53CD663ADD5B9B01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Norman's Night In (2019) [En] (1.0) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:88F9F3E0E5A69B6768459F80B6D743EC49A51466
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Hollow (2017) [Ru/Multi] (1.0) License PLAZA
 magnet:?xt=urn:btih:37FFE975525C9DC457C8695ABFFF95A59A0A9A20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0.0.1/2017.6.29.321) Rep
 magnet:?xt=urn:btih:1EEADDB501A490AB122130E9F489857D9131C5CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Endless Fables 2: Frozen Path / Сказки без конца 2: Ледяная
 ```bash
 magnet:?xt=urn:btih:6F1CCAB3859F7D8206666566C24DF6645E223551
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

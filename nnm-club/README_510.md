@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D454528A17A26B29CFB8834E694C617D6EF3400E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ The Lady & The Dappers - Electro Swing Vol. 3 (2025) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:46DE7C417C5298220FEC4E8E26D95D4F7F1198D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:46DE7C417C5298220FEC4E8E26D95D4F7F1198D5
 ```bash
 magnet:?xt=urn:btih:80E0B026226F59AD4EAB0F8D160B85E39FE12AE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:80E0B026226F59AD4EAB0F8D160B85E39FE12AE4
 magnet:?xt=urn:btih:FE4ADA0344556B590F1689E336DD67F9DE2FE0EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:FE4ADA0344556B590F1689E336DD67F9DE2FE0EC
 magnet:?xt=urn:btih:E6A0C215751037DDF64D4B3356F293978D47C621
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:E6A0C215751037DDF64D4B3356F293978D47C621
 ```bash
 magnet:?xt=urn:btih:BD0190CD3C75C4F9CB53EA88C40BE80FCCE9B3AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:BD0190CD3C75C4F9CB53EA88C40BE80FCCE9B3AF
 magnet:?xt=urn:btih:9EF88EF00B39667AE01FD73368402D1B3FAA0154
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ VA - 100 EDM Hits (2013) [MP3|320 Kbps] <Electro House, Techno, Tech House, Elec
 magnet:?xt=urn:btih:EDDB93219F373FFEC8A31C671597CDE3EC3C58C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:EDDB93219F373FFEC8A31C671597CDE3EC3C58C3
 magnet:?xt=urn:btih:2062269E3CDBAA7C77C488A6746A60E2A71793D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ Brainworx & Plugin Alliance - bx_masterdesk Bundle 2025.6 VST, VST 3, AAX (x64) 
 ```bash
 magnet:?xt=urn:btih:B750BAA37DEE392EECCDC5CC2A32AB70AC32F990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:B750BAA37DEE392EECCDC5CC2A32AB70AC32F990
 magnet:?xt=urn:btih:00D9D035D9748EE2005C411E30EEBF4462D815A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:00D9D035D9748EE2005C411E30EEBF4462D815A4
 ```bash
 magnet:?xt=urn:btih:A3458C37D3B448912AE51C53D16C89F69A15140B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:A3458C37D3B448912AE51C53D16C89F69A15140B
 magnet:?xt=urn:btih:A43E1F9D97AC0865017F84F775EEE2B3DC712025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ Retro Flare передает очарование аналогового нес�
 magnet:?xt=urn:btih:A099F5146FD5BFAED4F52C082AC247C49697A48B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:A099F5146FD5BFAED4F52C082AC247C49697A48B
 ```bash
 magnet:?xt=urn:btih:59124F2ABB273A9E6639230FB0C1E3C59CC30E6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ Soundify Background Music - Electro Swing Cocktail (2025) [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:F38FEAB7251695B5E04D431C3F5601AD581055D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ Electro Swing - Swing Beats 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Ele
 magnet:?xt=urn:btih:AB64B516E695C25B784AA23B60B29D5B818F43C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:2D3EC76A093BE456D886C6B712A428B07C8B4D80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:2D3EC76A093BE456D886C6B712A428B07C8B4D80
 magnet:?xt=urn:btih:B149F820A003A192856A4FD98BDEE2E2CE4F30C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ Stellaris (2016) [Ru/Multi] (4.0.1/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:44BDD9DF0EB0E6F851903717ACF7BAD5777CAB21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +555,8 @@ Maliki: Poison Of The Past (2025) [Multi] (1.3.2) Repack FitGirl
 magnet:?xt=urn:btih:FBE18A68751A95510D547A58DF6B3144832BE15E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:FBE18A68751A95510D547A58DF6B3144832BE15E
 ```bash
 magnet:?xt=urn:btih:867988CEBF68360858C7F90D375711442A632908
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:867988CEBF68360858C7F90D375711442A632908
 magnet:?xt=urn:btih:6E581D959C26E0EAB69B413A32328D3C18AF1A07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:6E581D959C26E0EAB69B413A32328D3C18AF1A07
 magnet:?xt=urn:btih:166747493AAF3E378ADD980D9E00D68E52F1410D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:166747493AAF3E378ADD980D9E00D68E52F1410D
 ```bash
 magnet:?xt=urn:btih:E218C9E54081E6A5F3EE1853536498189ABC3945
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +693,8 @@ magnet:?xt=urn:btih:E218C9E54081E6A5F3EE1853536498189ABC3945
 ```bash
 magnet:?xt=urn:btih:132DC6AD88EA356FD2EE56F7EA5A062D15582838
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

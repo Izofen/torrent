@@ -19,6 +19,8 @@ Masterplan Tycoon - это самый минималистичный симул�
 magnet:?xt=urn:btih:D8ECA74BAB4B6CD4CEF4F8B48791E4B5224E951C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Tavern Manager Simulator - это увлекательный процесс во
 ```bash
 magnet:?xt=urn:btih:010EC76BF9EFA2DA1812D656BABB384E69877E2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Death and Taxes (2020) [Ru/Multi] (1.2.59) License GOG
 magnet:?xt=urn:btih:16907A51D370BDF9EF1D561585992D3DE57D4975
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Anoxia Station - игра об управлении подземной горн�
 ```bash
 magnet:?xt=urn:btih:6668A8876269DD31224B22F4BF60B77D4F5A2B2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Empires of the Undergrowth – это уникальная по своей ме�
 magnet:?xt=urn:btih:E24F9050A056FAFE6092F2B3FB684689C1377C18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ InfraSpace дает возможность юзерам стать мэрами 
 ```bash
 magnet:?xt=urn:btih:2C2C964838E147124961D5E186DE7A97D9F69FE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Caves of Qud – игра в жанре рогалик с необычной с�
 magnet:?xt=urn:btih:7BA94485A3BA67DFA7A2E93DEE780056A950C2A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Sims 4 (2014) [Ru/Multi] (1.115.216.1030/dlc) Repack Other s [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:68D7D3F81FC85659BF11F2C998CE9D6CB9311FD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Farm Together 2 (2024) [Ru/Multi] (Build 18675684/dlc) Repack FitGirl [Soundtrac
 magnet:?xt=urn:btih:29287000301395EFF351CA078213B21F0E60F69C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Immortal Life (2024) [Multi] (1.0.43) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:CCFF63B4332F964071CD47FB2FB39FF9110DB551
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Zombie Cure Lab (2022) [Ru/Multi] (1.0.0) Repack FitGirl
 magnet:?xt=urn:btih:D257D91C4456B54FFC00B6C277901B13B413D9B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Terraformers предлагает вам построить космическу
 ```bash
 magnet:?xt=urn:btih:FC7E805D227127AF2AA041485781D373226EB7D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Kingdoms and Castles позволит совершить грандиозное 
 magnet:?xt=urn:btih:5E843DE187988AE9213F48BC8D92C5DF53D38236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Megaquarium (2018) [Ru/Multi] (4.2.5g/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:3496A9ECEE838CA4956641F45A103D74C953EAB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Workers & Resources: Soviet Republic / Workers and Resources: Soviet Republic (2
 magnet:?xt=urn:btih:DCCB22D9A5246DCD06FBFE1C8ECA61E278BE558F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Microtopia (2025) [Ru/Multi] (1.0.9d) License GOG
 ```bash
 magnet:?xt=urn:btih:073FF63310B4021102E93F9906A51582BA8FB403
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Empires of the Undergrowth – это уникальная по своей ме�
 magnet:?xt=urn:btih:7DFB09EBC8B2FD818614EF4AA05B9CCABE22870E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Anoxia Station — игра об управлении подземной гор�
 ```bash
 magnet:?xt=urn:btih:2F484F414E8794D8C6FD19F5D6EB6F8A328CDA16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Mini Settlers – это минималистичный градостроите
 magnet:?xt=urn:btih:CAA8F7B76FC7E875D5AB09D3776A8BB9A95134A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ LEGO Bricktales (2022) [Ru/Multi] (2.0 r21673) License GOG
 ```bash
 magnet:?xt=urn:btih:14FD92D0353F1B061630F4C6B739AE035654AB5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Yes, Your Grace 2: Snowfall - кинематографичная игра про
 magnet:?xt=urn:btih:1A2360167C328B8FD997A5926FF79554022ABE12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Frostpunk 2 открывает новые грани жанра выживани
 ```bash
 magnet:?xt=urn:btih:2AA4C1869BF715F0968D46BFD5DA29352B37BEB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Citadelum (2024) [Ru/Multi] (2.0.0.17/dlc) License GOG
 magnet:?xt=urn:btih:34D25FC79582ADE34F02FEDED8C4A31C144695A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Builders of Greece (2024) [Ru/Multi] (1.0.0 build 18361871) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F17A840765C17883D8DCFC829DDB44499ECD4C9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Deck of Haunts (2025) [Ru/Multi] (1.01) Repack FitGirl
 magnet:?xt=urn:btih:8767BB32F2C34D1E4EA586D177B5C509287AE5F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ XENOBREAKERS: Classic Tower Defense (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:8D3EA0F1BED2A9D82BE9F5A5AD7D790BAC4EF99E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

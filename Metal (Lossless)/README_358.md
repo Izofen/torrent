@@ -1,3 +1,69 @@
+###  Публикация: 763375   (886854) от 05.03.2014
+
+Therion - Theli (1996) 2014 Reissue [FLAC|Lossless]<Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Preludium (1:44)
+02. To Mega Therion (6:35)
+03. Cults Of The Shadows (5:15)
+04. In The Desert Of Set (5:29)
+05. Interludium (1:47)
+06. Nightside Of Eden (7:32)
+07. Opus Eclipse (3:41)
+08. Invocation Of Naamah (5:32)
+09. The Siren Of The Woods (9:58)
+10. Grande Finale / Postludium (4:06)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:12:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35FF81CC9B5095212974D26E48A2571C459F2671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 763270   (887598) от 05.03.2014
+
+Kriegsmaschine - Enemy of Man (2014) [FLAC|Lossless]<Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. None Shall See Redemption (8:34)
+02. Lies of the Fathers (6:32)
+03. Farewell to Grace (7:44)
+04. Asceticism and Passion (8:45)
+05. To Ashen Havens (7:24)
+06. Enemy of Man (7:35)Жанр: Black MetalПродолжительность: 00:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58EE710F035E65DF420077A80AC0D46EAA05E9B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103101   (887648) от 11.02.2017
 
 Doro - Angels Never Die (1993) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock, Soft Rock>
@@ -21,6 +87,8 @@ Doro - Angels Never Die (1993) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard R
 ```bash
 magnet:?xt=urn:btih:6E7940F35C59BAE019B6B66BADDDB1E935AF5AD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +117,8 @@ Doro - Machine II Machine (1995) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard
 magnet:?xt=urn:btih:6C34D0BA84816AD3CA269DECA4D609C82A80269C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +145,8 @@ Bloodbound - Creatures Of The Dark Realm (2021) [FLAC|Lossless|image + .cue] <Po
 ```bash
 magnet:?xt=urn:btih:9842A32331E9235661549010D4BDEDA67184D356
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +175,8 @@ Messiah's Kiss - Prayer For The Dying (2002) [FLAC|Lossless|image + .cue] <Heavy
 magnet:?xt=urn:btih:35F213F353781509E7C8AC32B5BBC06F8A209E3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +203,8 @@ Rob Halford - The Essential Halford (2015) 2CD Japan [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:8F78BC098FEB023EDBE14249BDC571CFD28E01D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +233,8 @@ Fight - K5 - The War Of Words Demos (2006) Japan [FLAC|Lossless|image + .cue] <H
 magnet:?xt=urn:btih:0DE44A5E0E38B8DE6B0CFEB3B7DC65A5C5BAE939
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +261,8 @@ Fight - A Small Deadly Space (1995) Japan [FLAC|Lossless|image + .cue] <Heavy Me
 ```bash
 magnet:?xt=urn:btih:D79CFF88F82A87B2113DEC8B4965189073EFF2CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +291,8 @@ Gehennah - Too Loud to Live, Too Drunk to Die (2016) [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:A694ED1B48B876EA8C8441D38CCD255EE32844A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +319,8 @@ Fight - Mutations (1994) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:C115C664333FFA3894BE9058E743BF566D970075
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +349,8 @@ Threshold (с англ. - «Порог») — английская рок-гру
 magnet:?xt=urn:btih:6F0737DC6F0A0337F48F12A00253166DAE166BC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +377,8 @@ Leaves' Eyes - (с англ. - «Глаза листьев») — герман
 ```bash
 magnet:?xt=urn:btih:EDD6752908B3C57E3EC5E38FB8CEB7D548087283
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +407,8 @@ Reactory - Collapse to Come (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 magnet:?xt=urn:btih:F9627D5AE29BFA76705D958F8F94C3952A8040F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +435,8 @@ Dead by Monday - Dead by Monday (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 ```bash
 magnet:?xt=urn:btih:9A0C6FE1FFFE22D834BC4595ECA42451BAE49FC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +469,8 @@ Axenstar - Perpetual Twilight (2002) [APE|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:7D8B39326F6FF7BD6B07493C5A679C09D1FF49E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +505,8 @@ Sabaton - Дискография (5 альбомов) (2000-2008) [FLAC|Lossless
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +533,8 @@ Tragedy - Disco Balls to the Wall (2021) [FLAC|Lossless|image + .cue] <Heavy Met
 ```bash
 magnet:?xt=urn:btih:C5416DAC17CC6B9AD9CC0A1408FE5104A1EABC22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +563,8 @@ Eisbrecher - Maximum Monster (2021) [FLAC|Lossless|image + .cue] <Industrial Met
 magnet:?xt=urn:btih:A4086334196BD90D242FD7E4DFE120D9D5F58954
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +591,8 @@ Euge Valovirta - Shooting From The Hip (2021) [FLAC|Lossless|WEB-DL|tracks] <Shr
 ```bash
 magnet:?xt=urn:btih:54C518A0E0B562BACA81747D1514236F14FD9A58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +626,8 @@ Cauldron - Burning Fortune (2011) [WavPack|Lossless]<Traditional Heavy Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +654,8 @@ REBELLION - немецкая Heavy/Power Metal группа, активная с
 ```bash
 magnet:?xt=urn:btih:5031A56DCBF156FA9C89C9A9B192FC6CF713FC1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +684,8 @@ Claymorean - Eulogy For The Gods (2021) [FLAC|Lossless|WEB-DL|tracks] <Epic Powe
 magnet:?xt=urn:btih:4B43FE46435AFFBB64BA9BB67A365842449DDBF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +712,8 @@ Claymorean - Lament Of Victory (2013) [FLAC|Lossless|image + .cue] <Epic Power M
 ```bash
 magnet:?xt=urn:btih:7233D07917C4D739C75D828AAE36358E304FDA3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +742,8 @@ Overkill - The Grinding Wheel (2017) Scene [FLAC|Lossless|tracks] <Thrash Metal>
 magnet:?xt=urn:btih:BEB3FB3690DA8CCBDFFE5F64772859F6D37D8AA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,60 +771,7 @@ Tomy Iommi - Iommi (2000) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:6D821FCB9EF107E27E7FA2FE855FA76200CD031C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102553   (889598) от 10.02.2017
-
-Apofenia - Peste (2016) Demo [FLAC|Lossless|image + .cue] <Death, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Descuartizado 02:43
-02. Peste Nacional 03:21
-03. Putrefacciуn 03:33
-04. Invasores Asesinos 03:27(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:16:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E855D0E737026EED82DCF0950E08AF4D32B2B7FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 869804   (889649) от 16.02.2015
-
-36 Crazyfists - Time And Trauma (2015) [FLAC|Lossless]<Nu Metal / Alt. Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Vanish
-02. 11.24.11
-03. Sorrow Sings
-04. Lightless
-05. Time And Trauma(   Читать дальше...   )Жанр: Nu Metal / Alt. MetalПродолжительность: 00:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DCE92378DCE8CD15CF5E3E1098AD59E57F43B22
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

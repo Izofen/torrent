@@ -19,6 +19,8 @@ VideoShow предлагает отличные функции редактир�
 magnet:?xt=urn:btih:EFE91B05FC762BC9C460D80A7EF1A50257A92F12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Beat Find / Распознавание музыки v1.6.55 Mod by NURIK [Ru/Mul
 magnet:?xt=urn:btih:F9228C2D962FB415F7A43AA18047E4C4AF8A62C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ PhotoRoom v2025.08.05 Mod by Maximoff⁠ [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2C470C596348E7668CA04B6987CCABC9DE82AA42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:2C470C596348E7668CA04B6987CCABC9DE82AA42
 magnet:?xt=urn:btih:5D652E50CB29A17E8972CE0CC0B51F6753A4CDC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Textra SMS v4.79 Pro Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0AA525F229B2C532EF0A191E5D4DDE72D664F268
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Display Tester v5.35.1 Mod by Balatan, AnBo39  [Ru/En]
 magnet:?xt=urn:btih:5E0E5214868B62A3EF4F87BA98A2AC8DDCCA306A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ FolderSync обеспечивает простую синхронизацию ф
 ```bash
 magnet:?xt=urn:btih:FDE90CF08B403FD2CE71DDB0CEE86457B919C4C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:FDE90CF08B403FD2CE71DDB0CEE86457B919C4C3
 magnet:?xt=urn:btih:0C333ABC0AFF8673448503A8F892FF445998B2D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Photo Studio — не просто приложение для редактир�
 ```bash
 magnet:?xt=urn:btih:B6B95C8D408FA63082E5FA07545E19D9C25394BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:B6B95C8D408FA63082E5FA07545E19D9C25394BD
 magnet:?xt=urn:btih:3D3774F7CFA7E24977FB7E7EA5643DC8A56F5E65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ ES File Explorer (File Manager) — это полнофункциональны�
 ```bash
 magnet:?xt=urn:btih:4534D2DCDC735578F8B019E1DA910AEFED0C63F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ Periodic Table / Таблица Менделеева 2025 PRO v3.5.9 Mod by Bala
 magnet:?xt=urn:btih:1C246841E30D6C4A3F80980AB671B1E7F38C2E31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ WeNote: заметки блокнот планер v6.49 Mod by PieMods [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:64CB7F812B4071706A167014C461497F2F63106D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:64CB7F812B4071706A167014C461497F2F63106D
 magnet:?xt=urn:btih:17E18E96C4A484164E6DAFF2C25C1C5B70939FC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ MultiTimer - это простое и универсальное таймер-п
 ```bash
 magnet:?xt=urn:btih:996B04EE41E722522C990ACB9988D036E4E85918
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:996B04EE41E722522C990ACB9988D036E4E85918
 magnet:?xt=urn:btih:CA86C70184B139C2A93F32DD61A8F88B24490E7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Happy Color — самая популярная и излюбленная бес
 ```bash
 magnet:?xt=urn:btih:94BF64A125AF0D312DAEAAFD11F9DF2416B9BD2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Mary’s recipes: рецепты, меню v6.2.0 Mod by Alex.Strannik [Ru/Multi
 magnet:?xt=urn:btih:BAA9F295203AD72B28B4AAFFED75D1459BBDD627
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:BAA9F295203AD72B28B4AAFFED75D1459BBDD627
 ```bash
 magnet:?xt=urn:btih:BC0FE089158E097A9BA5A919000004F9482A7D79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Notification Dots v1.2.79 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:998465C0EEEF56670FEC69259993238D6C4AC375
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ AI Photo Editor Pro - Polish v1.674.229 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C16F71BA849639D676AF900F0AAD5B284787744A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Lighting calculations / Расчеты освещения v6.1.8 Mod by Balatan 
 magnet:?xt=urn:btih:6B9BDAD881F211D12FF30231FB6F88A613C80F08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:6B9BDAD881F211D12FF30231FB6F88A613C80F08
 magnet:?xt=urn:btih:78698E61434587E1AD8E6DB4CDE8250F3697E1A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:78698E61434587E1AD8E6DB4CDE8250F3697E1A3
 ```bash
 magnet:?xt=urn:btih:EDFF922BFADEAD46DA593844E56434BDF6839A39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:EDFF922BFADEAD46DA593844E56434BDF6839A39
 magnet:?xt=urn:btih:FC77CE7A1EB8C3E0CC90E2C5A38B17FC23BB9C99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ BOOKlis: Слушай аудиокниги v2.3.0 Mod by SurvivalHorror [Ru]
 ```bash
 magnet:?xt=urn:btih:BADC99268127D3F9BB7B448AEC5A956D4B805A5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@ To Love-Ru: Trouble - Darkness | To Loveru: Darkness | Любовные Непр
 magnet:?xt=urn:btih:D57BED8EEA9A7D23F2FA22B0CA433D587CCDA042
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Motto To Love-Ru: Trouble | Motto To Loveru | Любовные Неприятн�
 ```bash
 magnet:?xt=urn:btih:E2043B219907A0AC56531466941A164A64A55F08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ To Love-Ru: Trouble - Darkness 2nd | To Loveru: Darkness 2 | Любовные Н
 magnet:?xt=urn:btih:DF70467114FD8E93BB5759D0B961AA6F18AC1CDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Hanasaku Iroha | Hanasaku Iroha: Blossoms for Tomorrow | Азбука Цвето
 ```bash
 magnet:?xt=urn:btih:4EF9412F1DD23E032E09276191CB45FAFAE9ED79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Hanasaku Iroha: Home Sweet Home | Hanasaku Iroha the Movie: Home Sweet Home | А
 magnet:?xt=urn:btih:B91C0C663EC063E18F955151B8BA37F36CE540B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Shinmai Maou no Testament | The Testament of Sister New Devil | Новый За�
 ```bash
 magnet:?xt=urn:btih:EBB1629F6F9249B48B83026339B77992D3D62A3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Shinmai Maou no Testament Burst | The Testament of Sister New Devil Burst | Но
 magnet:?xt=urn:btih:78970A2F0278C1BB8C6F26322A32B4D84664DACE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Shinmai Maou no Testament Departures | The Testament of Sister New Devil Departu
 ```bash
 magnet:?xt=urn:btih:68D24BCDB56D0511CCC1DA0E9512994130A07A0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Bokusatsu Tenshi Dokuro-chan / Убойный ангел Докуро-тян (20
 magnet:?xt=urn:btih:BFD65285B4347775634E734587E504C35424061B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Charlotte | Шарлотта [2015, TV, 13 ep + 1 sp] BDRip 1080p 10-bit raw+rus
 magnet:?xt=urn:btih:D7A9FEA04ADF9659BC7C91CA4ABADAD73FFDB670
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Shingeki no Bahamut: Genesis / Rage of Bahamut: Genesis / Ярость Баха�
 ```bash
 magnet:?xt=urn:btih:85554F1819595432279477B74A08C9E802E774D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ Akame ga Kill! | Убийца Акамэ! [2014, TV, 24 ep + 24 sp] BDRip 1080p 
 magnet:?xt=urn:btih:838664DAE84F07BC640038C6B73561DD18294761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ Gokukoku no Brynhildr | Brynhildr in the Darkness | Брунгильда во Т
 ```bash
 magnet:?xt=urn:btih:FA4B3B7C24AD1E82C883698DF059D0A0049EE77F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Irozuku Sekai no Ashita kara | Iroduku: The World in Colors | Из Завтра�
 magnet:?xt=urn:btih:A56B57DD5C976B619A4F1F5FA785C13D5905DCA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:A56B57DD5C976B619A4F1F5FA785C13D5905DCA2
 ```bash
 magnet:?xt=urn:btih:74005FA969CBB1C1E8CF803C2D23A669F10A0A7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ Hai to Gensou no Grimgar | Grimgar of Fantasy and Ash | Гримгал Мир И
 magnet:?xt=urn:btih:E94EA4EF7AB5ABEEFFAB03E4BCA3591BC3553953
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Owari no Seraph | Seraph of the End: Vampire Reign | Последний Сера
 ```bash
 magnet:?xt=urn:btih:BDD2BBEDBA2EEADDB905D9BE4FBCA9CDA667C3AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Owari no Seraph: Nagoya Kessen Hen | Seraph of the End: Battle in Nagoya | По�
 magnet:?xt=urn:btih:C585F2E69DF9AB4B4777B3190CBA890D9A35FA68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Rinne no Lagrange / Lagrange: The Flower of Rin-ne / Цветок вечност
 ```bash
 magnet:?xt=urn:btih:5B830624A17E23EEE7771757543247E97AE0CA51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ Black Bullet / Черная пуля [2014, TV, 13 ep] BDRip Hi10p 720p Raw+Rus
 magnet:?xt=urn:btih:45EFDD2C05FE4CA52BE7C3F4E1E4132F24452046
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ Burn Up Excess | Burn-Up Excess | Разгон! Перебор [1998, TV] DVDRip
 magnet:?xt=urn:btih:C7B4BE62230DB31C858F9E5E699B715B12067BD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Soul Eater Not! | Пожиратель Душ! Класс НОТ! [2014, TV, 12 
 ```bash
 magnet:?xt=urn:btih:60B1A1916AAB97F64C62FA9B28F072FC630808DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ Shuumatsu no Izetta / Izetta: The Last Witch / Последняя ведьма �
 magnet:?xt=urn:btih:16C9E0B26359815664FC66A3C0E77C7C7E6CAB58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ D.Gray-man / Грэй-мен [2006-2008, TV, 103 из 103] SDTVrip 396p raw + ru
 ```bash
 magnet:?xt=urn:btih:7A1C62B99F922C4C973FC601C71813EB4B698727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Bernard Jou Iwaku. / Miss Bernard Said. / Мисс Бернард сказала
 magnet:?xt=urn:btih:A2666C5698B7E51152A2BA20392314D986B66276
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Girls und Panzer | Girls & Panzer | Девушки и Танки [2012, TV, 12 e
 ```bash
 magnet:?xt=urn:btih:0FECE42911A6BF2CDF02C898A0E0B08314ABED1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

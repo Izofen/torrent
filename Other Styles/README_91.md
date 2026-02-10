@@ -22,6 +22,8 @@ Hans Zimmer - Dunkirk / Дюнкерк (Original Motion Picture Soundtrack) (201
 magnet:?xt=urn:btih:09B6391B532DC859FF29DD1DB3E9A4A741E397DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Cerrone - Brigade Mondaine: Original Soundtracks (1978-1980) 2014, Because Music
 ```bash
 magnet:?xt=urn:btih:81508589C3B6A78750328DE8CED15C181813C080
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Wil Bolton - Under A Name That Hides Her (2012) [MP3|320 кб/с]<Meditative, Am
 ```bash
 magnet:?xt=urn:btih:93AF65E4A428142D768A2F17E29CFE161A0DBD51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -105,6 +111,8 @@ Luca Stricagnoli - Luca Stricagnoli (2015) [MP3|320 кб/с] <Instrumental, Acou
 magnet:?xt=urn:btih:5E32D1DB88B4DA739137E78829EBDEA36999DA84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -131,6 +139,8 @@ David Arnold & Michael Price - Sherlock-Original Television Soundtrack (2012-201
 ```bash
 magnet:?xt=urn:btih:E737FD4F189B973B054C00E83C28BBA897705897
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -159,6 +169,8 @@ Joe Hisaishi - Sonatine (1999) [FLAC|tracks+.cue]<OST>
 magnet:?xt=urn:btih:E828710FD44174ECB809AD7E0A3B6593D6444680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -185,6 +197,8 @@ James Newton Howard - Snow White & The Huntsman (2012) [FLAC|tracks+.cue]<OST>
 ```bash
 magnet:?xt=urn:btih:A3D098ED511B015CD638CF4B885C106951F3A98C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +233,8 @@ Ennio Morricone - The Best World Instrumental Hits (2CD) (2009) [MP3|320 кб/с
 magnet:?xt=urn:btih:63774FD3282C2A93AA2FAC8896919809EE55A4EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +262,8 @@ Blue Flower - Songs Celestial (2017) [FLAC|Lossless|WEB-DL|tracks] <World, Mantr
 magnet:?xt=urn:btih:BC2067B101F7C821A390A80C23889646F3F82FD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +290,8 @@ Andy Jonas (Angel X) - Summer In Your Heart (1996) Maxi-Single [APE|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:91BCC62B104EC74FFB3CD8D860FE6055B63CEA14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +330,8 @@ magnet:?xt=urn:btih:91BCC62B104EC74FFB3CD8D860FE6055B63CEA14
 magnet:?xt=urn:btih:9105CEA4D15D5D2EDC3D42E48C48A787E25121E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +364,8 @@ Erotic Moods - Эротические настроения (2004) [MP3|256 кб/
 ```bash
 magnet:?xt=urn:btih:E8AC90EA649453CB4EE6595A916CB69FD3E415C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +400,8 @@ Medusa - Exploration (2000) [MP3|320 кб/с]<New age,Enigmatic>
 magnet:?xt=urn:btih:AAFDFC63864EEF328D8606DC33132D9E6649BF98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +428,8 @@ Jean Michel Jarre - Cities In Concert Houston Lyon (2014) Live [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:04B5D6E16D10E1C169AD52FCC221461F1CCB762F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +458,8 @@ Ramin Djawadi, VA - Game of Thrones / Игра престолов: Season 1-8 (C
 magnet:?xt=urn:btih:D5FE723375E976B262D49ACE38CEAEDFA5E1567C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +487,8 @@ Ramin Djawadi - Game of Thrones / Игра престолов: Season 8 (Music f
 magnet:?xt=urn:btih:6FAAEB3E9129D16814E9250102FF6826B60ADEA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +514,8 @@ Olga Stankevich - Дискография (2010-2014) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:2A2F6C47C00312DEEA287EDD248BD55C346DC2A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +543,8 @@ Angel X (Andy Jonas) - 8 Relises (1993-2021) [FLAC|Lossless|WEB-DL|tracks|tracks
 ```bash
 magnet:?xt=urn:btih:CA4F757954FCF4EC42D70BDA43A35BF134467074
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +574,8 @@ TagTraumer - Zuviel ist nicht genug (2001) [MP3|320 Kbps] <Enigmatic, New Age>
 magnet:?xt=urn:btih:EAD127F635E61401AF66D2935104CBD2BA1FE0EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +603,8 @@ Vyanah - Zen Relaxation (2019) [MP3|320 Kbps] <New Age, Meditation>
 magnet:?xt=urn:btih:007BD0616FE446106D698AFA5A11DAE3B435ACD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +631,8 @@ Shelby Lynne - Just A Little Lovin' (2008) [FLAC|Lossless|image + .cue] <Folk, C
 ```bash
 magnet:?xt=urn:btih:66FA2B120C8CD5C314CF0916D7CE9102E4D3AC88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +667,8 @@ Ennio Morricone - Once Upon A Time... (2 CD) (2007) [MP3|320 кб/с]<Soundtrack
 magnet:?xt=urn:btih:483B8B611ABC34628E314A01BE99DBCC7A99078A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +695,8 @@ Piano Dreamers - Indie Pop Piano (2015) [MP3|320 кб/с]<New Age, Piano, Classi
 ```bash
 magnet:?xt=urn:btih:6F73CB54EE75B6F9254C1453E20C7E4E43740E21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -679,6 +725,8 @@ Ramin Djawadi - Game of Thrones / Игра престолов: Season 8 (Music f
 magnet:?xt=urn:btih:73A8F9004BD3D07D9C02ADFA08E034A490EC98F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -706,6 +754,8 @@ Michael Giacchino - Star Trek Beyond / Стартрек: Бесконечнос�
 magnet:?xt=urn:btih:78BA5EEEC4903FC8D84EB663643F1AA5EEEB5F0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -732,6 +782,8 @@ Olga Stankevich - Alone With the City (2014) [FLAC 2.0|48/24|WEB-DL|tracks] <Ins
 ```bash
 magnet:?xt=urn:btih:04380B740E6D18E8CB38BA41C8E69E5A5663669F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

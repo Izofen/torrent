@@ -1,3 +1,67 @@
+###  Публикация: 985093   (935564) от 11.02.2016
+
+Frangar - Trincerocrazia (2015) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935564.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Italia Suprema Assoluta
+2. Fare Quadrato (S.P.Q.R.)
+3. Al Cielo
+4. Martello(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3024020854EDB42D65B07B4F1CF20BF4056D524
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 284461   (937105) от 19.01.2011
+
+Sirenia - The Enigma Of Life [Limited Edition] (2011) [APE|Lossless]
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. The End Of It All (4:31)
+02. Fallen Angel (3:59)
+03. All My Dreams (4:42)
+04. This Darkness (4:00)
+05. The Twilight In Your Eyes (4:00)
+06. Winter Land (3:55)
+07. A Seaside Serenade (5:53)
+08. Darkened Days To Come (4:22)
+09. Coming Down (4:38)
+10. This Lonely Lake (3:33)(   Читать дальше...   )Жанр: Symphonic Metal/Gothic MetalПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092923   (937227) от 13.01.2017
 
 Accept - Restless And Live (2017) [FLAC|Lossless|WEB|tracks] <Heavy Metal>
@@ -21,6 +85,8 @@ Accept - Restless And Live (2017) [FLAC|Lossless|WEB|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B627D0A97FC10D135144915F5863D5EC7ECE4D4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +114,8 @@ Ozzy Osbourne - Ordinary Man (2020) Japan Edition [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:6E9DDE91892EC3FC009BB8D49DA4D7A289DEE312
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +150,8 @@ Armored Saint - La Raza (2010) [FLAC|Lossless]<Heavy Metal>
 magnet:?xt=urn:btih:FDD72D5F3D0A778CEDB510979379371316367908
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -109,6 +179,8 @@ Sepultura - Machine Messiah (2017) Limited Edition [FLAC|Lossless|tracks]<Thrash
 magnet:?xt=urn:btih:51AF890D759F19E15E5919FD89200798A0462E54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +207,8 @@ VA - 15 Песен Для Вашей Девушки (2004) [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:DAB2976DB7F78F9D78E7B706C6DB403765776550
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +243,8 @@ Battle Beast - Unholy Savior (2015) Japanese edition [FLAC|Lossless]<Heavy Metal
 magnet:?xt=urn:btih:A25824D999F78469C9B5CC04305EC45A77C61A00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +271,8 @@ Machine Head - The Blackening (2007) [FLAC|Lossless|image + .cue] <Groove Thrash
 ```bash
 magnet:?xt=urn:btih:C561FEF85999FBD40FEE08D80DD5999A4FBF165C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +301,8 @@ Five Finger Death Punch - F8 (2020) [FLAC|Lossless|image + .cue] <Groove Metal, 
 magnet:?xt=urn:btih:E50E6373AC0636DC055CBDA4742101F1123D62CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +329,8 @@ Mundanus Imperium - The Spectral Spheres Coronation (1998) [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:0C39F9BA0126FF342A49C995463D8C7D82356FE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +359,8 @@ Machinemade God - 2 Albums (2006 - 2007) Discography [FLAC|Lossless]<Melodic Dea
 magnet:?xt=urn:btih:019A7284676E3C05523E79C800E74DB7AEB1938F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +387,8 @@ Earth - Full Upon Her Burning Lips (2019) [FLAC|Lossless|tracks + .cue] <Drone M
 ```bash
 magnet:?xt=urn:btih:05D440D5CA477C285CE427E13D3D720860855EB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +417,8 @@ Neaera - Neaera (2020) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal, Metal
 magnet:?xt=urn:btih:BB9B5CDA4D08EC8D73B9B640F246926035CDBA82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +445,8 @@ Blasphemy - Desecration Of Belo Horizonte - Live In Brazilian Ritual - Fifth Att
 ```bash
 magnet:?xt=urn:btih:7C2CFD947E8940ECCAFCD99CFD43826D73F9272E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +475,8 @@ The Red Chord - Clients (2005) [APE|Lossless|image + .cue] <Technical Death Meta
 magnet:?xt=urn:btih:F2377AEC6D07C467227FB2D52AEFB5900CC47F80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +504,8 @@ Flamekeeper - We Who Light The Fire (2019) [FLAC|Lossless|image + .cue] <Epic He
 magnet:?xt=urn:btih:8FAB65E939C57F6C2DF882BE7AA085DB4628C722
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +532,8 @@ Mayfair - Behind… (1993) [APE|Lossless|image + .cue] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:02923240CC99EF9DE56B577088502382ED041A78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +568,8 @@ StormWarrior - Thunder & Steele (2014) [FLAC|Lossless]<Power Metal/Speed/Heavy>
 magnet:?xt=urn:btih:677DD8EA925E29E36A8FA6E8A135FE93CCE0DCF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +597,8 @@ Bane of Winterstorm - The Last Sons of Perylin (2013) [WavPack|Lossless]<Symphon
 ```bash
 magnet:?xt=urn:btih:8E1445FD1360062A614F9A730EC5F2AFCD33B553
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +630,8 @@ Divine Souls - Embodiment (2001) [FLAC|Lossless]<Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:17823232968F799E332FC31BFCDDADF2AF15C194
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +666,8 @@ Manic Depression - Impending Collapse (2010) [APE|Lossless]<Thrash Metal>
 magnet:?xt=urn:btih:8811AC71311327BAFE168FBC8000C45B0C49A2B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +700,8 @@ Dirty Woman - Demon Lover (2009) [FLAC|Lossless]<Heavy / Stoner Metal>
 ```bash
 magnet:?xt=urn:btih:FDCC8B663CA7A4A11644905948EACA2F021CDAAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +736,8 @@ Pan Ram - Rats (1996) (1997 Japan) [FLAC|Lossless]<Progressive Power Metal>
 magnet:?xt=urn:btih:80E88C4591B5F9F18419153E04D86B21009C68C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +767,8 @@ Jack's Family - One Big Disguise (2009) [FLAC|Lossless]<Progressive Power / Goth
 magnet:?xt=urn:btih:215F820F31FC41015CB0480211B4B6DC20F478F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -686,65 +796,7 @@ Ozzy Osbourne - Ozzmosis (1995) X-Cellent only for sale in CIS [FLAC|Lossless|im
 magnet:?xt=urn:btih:CEB21E64FF95AB49FCE381D073312CCF02E4197D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363662   (940928) от 29.02.2020
-
-Ozzy Osbourne - No More Tears (1991) X-Cellent only for sale in CIS [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Tinkertrain 5:57
-02. I Don't Want To Change The World 4:06
-03. Mama, I'm Coming Home 4:12
-04. Desire 5:45(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:871B7A3DB1E29761A066A9E53265E944EE720A62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 752510   (940999) от 02.02.2014
-
-Within Temptation - Hydra (2014) [FLAC|Lossless]<Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Let Us Burn (5:31)
-02. Dangerous (feat. Howard Jones) (4:53)
-03. And We Run (feat. Xzibit) (3:50)
-04. Paradise (What About Us?) (feat. Tarja) (5:20)
-05. Edge Of The World (4:55)
-06. Silver Moonlight (5:17)
-07. Covered By Roses (4:48)
-08. Dog Days (4:47)
-09. Tell Me Why (6:12)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:49:37+00:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2408B8D5BF6CC49808204083A9B70F922944BCC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

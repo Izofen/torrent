@@ -19,6 +19,8 @@ Light Image Resizer - программа для изменения размер�
 magnet:?xt=urn:btih:F55683FD7DB2155F565A979A7B0EF9D11BC50BFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ ApowerREC - это программа которая может записыва
 ```bash
 magnet:?xt=urn:btih:91A1AEA01E75B47F768707A2D4A48C5101AD7899
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Infuse - прекрасный способ смотреть практическ
 magnet:?xt=urn:btih:985ECFF59149A4E52E414903E5920069F8B7E32B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:985ECFF59149A4E52E414903E5920069F8B7E32B
 ```bash
 magnet:?xt=urn:btih:A1FCEAA9F72E512DE4F2CAF16FF18022504B7DB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:A1FCEAA9F72E512DE4F2CAF16FF18022504B7DB7
 magnet:?xt=urn:btih:41249C001995016F6338F0A401BADFE4F9F979A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:41249C001995016F6338F0A401BADFE4F9F979A8
 magnet:?xt=urn:btih:CFB881E3B33DF32BFDE1FB56A0C1E2F3040DCF0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:CFB881E3B33DF32BFDE1FB56A0C1E2F3040DCF0C
 ```bash
 magnet:?xt=urn:btih:D21BEB2B79449B9FD7F8D4502001D3B486C22722
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:D21BEB2B79449B9FD7F8D4502001D3B486C22722
 magnet:?xt=urn:btih:04120E9DEB8A450DD22802B00DFE01FD9DCF3954
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ The Royal Military School Of Music - Gilbert & Sullivan - Selectiohs from "The G
 ```bash
 magnet:?xt=urn:btih:44C7531B9D98C6243DE8F8D2E90C177BF1E0E092
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:44C7531B9D98C6243DE8F8D2E90C177BF1E0E092
 magnet:?xt=urn:btih:9CFF900256A056EA24913169721FD847137B5865
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:9CFF900256A056EA24913169721FD847137B5865
 magnet:?xt=urn:btih:B776F67A847DECAD5CB94EF93E65977061FF6F54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ OCCT 11.0.16 Final Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D655A4FF383F374FC09C6F9830126D577F942E33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:D655A4FF383F374FC09C6F9830126D577F942E33
 magnet:?xt=urn:btih:220A9AE5B91ABA570147936A545753865AA0AFCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:FB6EC3856AD4777068DC077512204266F7235D34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Ungoogled Chromium - версия веб-браузера Chromium без инт
 magnet:?xt=urn:btih:CC7133114636F841C664CA4BE7710118BB4D6A13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:CC7133114636F841C664CA4BE7710118BB4D6A13
 magnet:?xt=urn:btih:E3C6E85E6F30425F65A5B12D05276DEC17A510BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ ForkLift – это альтернативный файловый менедже
 ```bash
 magnet:?xt=urn:btih:BD163F782A8D392C37CC4C0E65C4C8C15F245B09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ VA - Chillhop Essentials Fall (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chi
 magnet:?xt=urn:btih:6EE3580F42454BB26FB2751EE0E1E10D21ECEFA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ Olivia Rodrigo - Guts (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 magnet:?xt=urn:btih:9EF1A984580E5515A3E1B2175BF171A353688540
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:F2E9A7FFFDB354276F0FE39635DDB7553716B355
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ App Builder позволяет создавать приложения для с
 magnet:?xt=urn:btih:6083101EA036F285F2ECD830E2305ABD664E7443
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:6083101EA036F285F2ECD830E2305ABD664E7443
 magnet:?xt=urn:btih:90CBEACF1EE71CB561429A4D110BC1D8BD2A545B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ RadioMaximus 2.30.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A426336B1312495B8BC6CC28594F5FCD6F056262
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:A426336B1312495B8BC6CC28594F5FCD6F056262
 magnet:?xt=urn:btih:0FC27DEE1AE19065C290337BEBB913668A38CD91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:0FC27DEE1AE19065C290337BEBB913668A38CD91
 magnet:?xt=urn:btih:6525BBB7C907B2E572BD2202514E290270F82B02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ Joplin - это бесплатное приложение для создани�
 ```bash
 magnet:?xt=urn:btih:1C5A32057DAEC8DA4F22B3F672D11F1EF32FF212
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

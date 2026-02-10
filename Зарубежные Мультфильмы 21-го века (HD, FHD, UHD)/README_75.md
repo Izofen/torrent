@@ -1,27 +1,3 @@
-###  Публикация: 942617   (451180) от 02.10.2015
-
-Барби: Рок-принцесса / Barbie in Rock 'N Royals (2015) WEB-DL [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь принцессы Кортни переворачивается с ног на голову, когда она меняется местами со знаменитой рок-певицей Эрикой. При отправлении в летний лагерь случается организационная путаница, и принцессу Кортни отправляют в лагерь для поп-певиц, а Эрику — в королевский лагерь. Пока начальники лагерей пытаются устранить беспорядок, Эрика и Кортни приспосабливаются к новой (   Читать дальше...   )Производство: США, Universal StudiosЖанр: Мультфильм, фэнтезиРежиссер: Карен Дж. ЛлойдАктеры: Джейсон О’Мара, Томас Гибсон, Морена Баккарин, Джанкарло Эспозито, Дэвид МакКаллум, Ксандер Беркли, Шон Маэр, Фред Татаскьор, Брюс Томас, Стюарт АлланКарен Дж. ЛлойдПеревод: Многоголосый, профессиональныйПродолжительность: 01:23:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2116A834378EC0F5F62967A0756791C7AE5F085A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 389904   (451248) от 20.09.2011
 
 Том и Джерри и волшебник из страны Оз / Tom and Jerry & The Wizard of Oz (2011) [1080p] BDRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:2116A834378EC0F5F62967A0756791C7AE5F085A
 ```bash
 magnet:?xt=urn:btih:F6FC08F1BEC2295E68CEE08FB04E20E62E8FB571
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:F6FC08F1BEC2295E68CEE08FB04E20E62E8FB571
 magnet:?xt=urn:btih:2D99F83CAE338CCEC6A994673457FE5483F73A71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:2D99F83CAE338CCEC6A994673457FE5483F73A71
 ```bash
 magnet:?xt=urn:btih:57F5A42347CDF4379BDCADBE638427BB0B57D794
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:57F5A42347CDF4379BDCADBE638427BB0B57D794
 magnet:?xt=urn:btih:378B1E22B370F6DC8A15336FE61534B724877534
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:378B1E22B370F6DC8A15336FE61534B724877534
 ```bash
 magnet:?xt=urn:btih:B271E50ACF510A873CDEF307DD9732A182426767
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:B271E50ACF510A873CDEF307DD9732A182426767
 magnet:?xt=urn:btih:C4D79031E79CF41B39AD2A8C08C84442A4F196F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:C4D79031E79CF41B39AD2A8C08C84442A4F196F7
 ```bash
 magnet:?xt=urn:btih:784EEB48D7232B549AEDD3F60438A54345CC7551
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:784EEB48D7232B549AEDD3F60438A54345CC7551
 magnet:?xt=urn:btih:EB1AE0D0ADEE45BD336F29459BCDC8A585EF73A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:EB1AE0D0ADEE45BD336F29459BCDC8A585EF73A4
 ```bash
 magnet:?xt=urn:btih:14C1D3C548ABE74D4ADF7927AEA5F7CCB0AE9DF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:14C1D3C548ABE74D4ADF7927AEA5F7CCB0AE9DF4
 magnet:?xt=urn:btih:5DEA325EB3E66F09D159141644F484AF33A1681F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ magnet:?xt=urn:btih:5DEA325EB3E66F09D159141644F484AF33A1681F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:5DEA325EB3E66F09D159141644F484AF33A1681F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ magnet:?xt=urn:btih:5DEA325EB3E66F09D159141644F484AF33A1681F
 ```bash
 magnet:?xt=urn:btih:C33B4B6505D4BF2E077D5FD074148AFB5CFE128B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +358,8 @@ magnet:?xt=urn:btih:C33B4B6505D4BF2E077D5FD074148AFB5CFE128B
 magnet:?xt=urn:btih:024DC4C0E0EB4700A964EB7997DDFB0D31DA907D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +385,8 @@ magnet:?xt=urn:btih:024DC4C0E0EB4700A964EB7997DDFB0D31DA907D
 magnet:?xt=urn:btih:07BA84EF0C8C4D66F41F7C13074EAB044C8A7EFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:07BA84EF0C8C4D66F41F7C13074EAB044C8A7EFF
 magnet:?xt=urn:btih:5F78931EF765EBA9E36381C0C9CEBE271C29BC0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +436,8 @@ magnet:?xt=urn:btih:5F78931EF765EBA9E36381C0C9CEBE271C29BC0B
 ```bash
 magnet:?xt=urn:btih:A8EE052D3366A4C46A1B7557CE583CFFA97E44EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +465,8 @@ magnet:?xt=urn:btih:A8EE052D3366A4C46A1B7557CE583CFFA97E44EF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +491,8 @@ magnet:?xt=urn:btih:A8EE052D3366A4C46A1B7557CE583CFFA97E44EF
 magnet:?xt=urn:btih:8D6BC73129CC4B239F9081FE320CD2B506ADEAEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +516,8 @@ magnet:?xt=urn:btih:8D6BC73129CC4B239F9081FE320CD2B506ADEAEE
 ```bash
 magnet:?xt=urn:btih:C3D3865D69B8D45C6A5B495E28F13D36B5DC1E2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +544,8 @@ magnet:?xt=urn:btih:C3D3865D69B8D45C6A5B495E28F13D36B5DC1E2E
 magnet:?xt=urn:btih:19ABD4E8CE3617AF0EF415868A381E30D3A80326
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +569,8 @@ magnet:?xt=urn:btih:19ABD4E8CE3617AF0EF415868A381E30D3A80326
 ```bash
 magnet:?xt=urn:btih:D286EB40517EE9284749EF8F9EBD6867AB626CE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +596,8 @@ magnet:?xt=urn:btih:D286EB40517EE9284749EF8F9EBD6867AB626CE6
 magnet:?xt=urn:btih:F47ED6B6399DC55CC49786E47B9142654BFB6E5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +622,8 @@ magnet:?xt=urn:btih:F47ED6B6399DC55CC49786E47B9142654BFB6E5F
 magnet:?xt=urn:btih:97E83434CAB0B45CC35C53A2A1FDBCA542918C60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +647,34 @@ magnet:?xt=urn:btih:97E83434CAB0B45CC35C53A2A1FDBCA542918C60
 ```bash
 magnet:?xt=urn:btih:23C850FBB652A86F9EF60F16AF980795F377A5AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940629   (463899) от 26.09.2015
+
+Легенды ночных стражей / Legend of the Guardians: The Owls of Ga’Hoole (2010) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миром, в котором уже не осталось людей, правят совы… добрые… злые… как и всегда! В волшебном лесу - королевстве сов Тито - на Великом Дереве Га`Хуул, где разумные совы живут в гармонии, наступают мрачные времена. Королевство подвергается страшной опасности со стороны соседних жестоких правителей, и эта опасность грозит уничтожить привычное мироздание...Производство: США / Австралия (Warner Bros. Pictures / Animal Logic)Жанр: Фэнтези, приключения, мультфильмРежиссер: Зак СнайдерАктеры: Джим Стерджесс, Джоэл Эдгертон, Хьюго Уивинг, Эдриэнн ДеФариа, Ричард Роксбург, Дэвид Уэнэм, Хелен Миррен, Мириам Марголис, Сэм Нил, Джеффри РашПеревод: Дублированный, Одноголосый закадровыйЯзык субтитров: русский, английский, французкий, португальский, испанский, вьетнамскийПродолжительность: 01:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7E5A84605B27D127AE3D27D38A6033228BB0239
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

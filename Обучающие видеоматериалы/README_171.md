@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B59CAB648BDF1769A129CF335BE8659B73A94DF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:B59CAB648BDF1769A129CF335BE8659B73A94DF6
 ```bash
 magnet:?xt=urn:btih:1730B324F601CA266214FD86FE4B482CD753D110
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:1730B324F601CA266214FD86FE4B482CD753D110
 magnet:?xt=urn:btih:B3FDDBDAF8546EC356867F8FCF8EF649E29EBA94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:B3FDDBDAF8546EC356867F8FCF8EF649E29EBA94
 magnet:?xt=urn:btih:09C3FA7E22B16E48C08C705D8090C331AD2F973A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ React (или React.js) - это современная популярная Jav
 magnet:?xt=urn:btih:48CB88B28F0E2DCF739BD2E60250AEEE4094F704
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ Sam Nielson | Освещение иллюстраций и концепт-арт
 ```bash
 magnet:?xt=urn:btih:6609D0D407AE52410A991197D093035F5E6344B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ magnet:?xt=urn:btih:6609D0D407AE52410A991197D093035F5E6344B2
 magnet:?xt=urn:btih:9FF671808324EDDBC8BC58779C5607BE941675ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ Udemy | Моделирование и текстурирование ассет�
 ```bash
 magnet:?xt=urn:btih:6B77162174CB748FFAAF1F7817E6FBEA546FD635
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ magnet:?xt=urn:btih:6B77162174CB748FFAAF1F7817E6FBEA546FD635
 magnet:?xt=urn:btih:9DFDAA03E492C29016FA2781E8037C188DEBB81D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ Ashish Dani | Mетт - пейнтинг зимнего пейзажа с эле
 ```bash
 magnet:?xt=urn:btih:4EA499F1E6AD0BE4A02608049A9D12EC476DF6A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:4EA499F1E6AD0BE4A02608049A9D12EC476DF6A6
 magnet:?xt=urn:btih:33CEDDA6B93BBA16D09C17684CF61CD0367CA20A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ Yiihuu, Picasso Horse | TV Channel Packaging Creative Design (2021) PCRec [CN]
 ```bash
 magnet:?xt=urn:btih:94CC0BE2BADD7ADB2A7CF218EA91F2CA404101CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:94CC0BE2BADD7ADB2A7CF218EA91F2CA404101CB
 magnet:?xt=urn:btih:0BB6112FA32CE8FD8EAE4AA47933F7DFE6413EF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ Ryan Hawkins | Фотоколлажирование на основе рефер
 ```bash
 magnet:?xt=urn:btih:9C82AFC227876F46D50AC3D8AA1C381B6D9174C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:9C82AFC227876F46D50AC3D8AA1C381B6D9174C3
 ```bash
 magnet:?xt=urn:btih:061BB0626C261D8586E6F89A54A29490345E225B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ Jeffrey Way | Perfect Workflow in Sublime Text 2 [2012] PCRec [En]
 magnet:?xt=urn:btih:84A6AFC8D9BE0ACF72719A3E448C74B77F1E445A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ Oleg Lav | Загрузка  WinPE 10-8 Sergei Strelec с жесткого ди�
 magnet:?xt=urn:btih:88BA3719F9AF35E331BAD8B726FD7B8BD99600D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ Blender Bros, Josh Gambrell, Ponte Ryuurui | Hard Surface Modeling in Blender 3 
 ```bash
 magnet:?xt=urn:btih:55BE62DD36EDB3E526A2CDDB7AF0185EB7BD34B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ SideFX, Rob Stauffer | Solaris in Houdini 18.5 (2020) PCRec [EN, RU]
 magnet:?xt=urn:btih:8F6592E4D2A3FD90BFA70578A2EBCFBBB056C9FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ Pluralsight, Beau Garcia | Practical Houdini Math Tips (2017) PCRec [EN, RU]
 magnet:?xt=urn:btih:EC3FF434F5DAC13A0C76E0BA457E6FC03A976128
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ CGcircuit, Florian Bard | Disintegration Effect II - The Skull (2020) PCRec [EN,
 ```bash
 magnet:?xt=urn:btih:9E45E8B4B80226B4220E863E0A07CFD58622E93F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ CGcircuit, Chad Vernon | Applied 3d Math (2015) PCRec [EN, RU]
 magnet:?xt=urn:btih:F7342D34310750AD2F2A0096A581F79D7C3E3F2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ SideFX, Simon Verstraete | Realtime FX with Niagara (2020) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:B4500C4B65ED4C865DE70AAD01764134BF9CBC6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ SideFX, Robert Magee | Smashing Wine Glass (2021) PCRec [EN, RU]
 magnet:?xt=urn:btih:362A22E75B939C8B7D7E37268D9763972623184A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ SideFX, Krishna Bala | Staggered Fracture (2020) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:73B46A13CFEE96416D430A876C60278F31701A07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +696,8 @@ magnet:?xt=urn:btih:73B46A13CFEE96416D430A876C60278F31701A07
 ```bash
 magnet:?xt=urn:btih:4AF04563C4CE30B85028AB1AF5BC6B5B91E111CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

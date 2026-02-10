@@ -22,6 +22,8 @@ Autophagy - Bacteriophage (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 magnet:?xt=urn:btih:D3176E02EC8DBABC8AD5ADD8143E9B841542E047
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:D3176E02EC8DBABC8AD5ADD8143E9B841542E047
 ```bash
 magnet:?xt=urn:btih:D6376B1C86907A47AF84C092989897C820015933
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ DirEqual - это инструмент сравнения папок, котор
 magnet:?xt=urn:btih:4F072A7C3CAD26B2F93AAFD120A0FC325EDFE3B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ WidsMob Portrait интеллектуально определяет и укра
 ```bash
 magnet:?xt=urn:btih:A27E2EF6ABE276C112F9D9752E7904B47EA21294
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Ekrom - Uten N​adigst Formildelse (2023) [MP3|320 Kbps] <Black Metal>
 magnet:?xt=urn:btih:C474F0D00E094D76F1CC36EEEA9F8B05F7007BED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:C474F0D00E094D76F1CC36EEEA9F8B05F7007BED
 ```bash
 magnet:?xt=urn:btih:B2568EAB13E56B7C7E387132663FE5FF150CEF4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ Acausal Intrusion - Nulitas (2021) [FLAC|Lossless|WEB-DL|tracks] <Technical Deat
 magnet:?xt=urn:btih:0540E4E78F7BBF5E571E8EB57F908748EA0E1DC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ Leo Parker - 1947 - 1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 magnet:?xt=urn:btih:E98DC432C035924F79DAF05A1A34FA8B5BBDDB13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:E98DC432C035924F79DAF05A1A34FA8B5BBDDB13
 ```bash
 magnet:?xt=urn:btih:518B83A30FF49B046EB0A217E901D31E1CE9385A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ FSNotes - это менеджер текстовых заметок для macOS
 magnet:?xt=urn:btih:B9C0CBE1BD551CDC537371C952E587E77573EF1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:B9C0CBE1BD551CDC537371C952E587E77573EF1A
 ```bash
 magnet:?xt=urn:btih:34A792AD9628277D95779656A6779C2EFB5CD59E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ Martial Solal - The Vogue Recordings, Vol.2 (1955, 1956) 1993, Vogue [FLAC|Lossl
 magnet:?xt=urn:btih:97EAE5593168D3B6ADCD146F594E7376195AB6FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:97EAE5593168D3B6ADCD146F594E7376195AB6FC
 magnet:?xt=urn:btih:1303BE7DC8980CAD870DE3705DAC9055955118BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:1303BE7DC8980CAD870DE3705DAC9055955118BA
 ```bash
 magnet:?xt=urn:btih:31367A5A96A46D98743894BEE6EC78F0403C3846
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ Vanguard - The Power That You Hold (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash 
 magnet:?xt=urn:btih:49161204E65D435D065C2F26F6032F0F5A7D150B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:49161204E65D435D065C2F26F6032F0F5A7D150B
 ```bash
 magnet:?xt=urn:btih:11257D90933BD13D9E9674FC501F224550E1CBA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ Baardvader - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Stoner Ro
 magnet:?xt=urn:btih:AE79E94D712B295BF810BC64D7B71C48DE94629C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:AE79E94D712B295BF810BC64D7B71C48DE94629C
 ```bash
 magnet:?xt=urn:btih:22E44192798E90F2C688EAB22BD2D0F7B9A2CF3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ Drama Noir - A Necromancy Lore (2020) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric
 magnet:?xt=urn:btih:6293DD823B71AFB6D0D694E8F33D6DFDC1CE77D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ Buck Clayton - 1949 - 1953 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 magnet:?xt=urn:btih:16E2FC5AC791322234643167856B9ED33E8AA17E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ Everyone Piano 2.5.5.26 [Multi/Ru]
 magnet:?xt=urn:btih:0096A62896B021089556D7B241C9FEF97AA935DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ Hemmings Motor News: мы существуем с 1954 года, и если в�
 ```bash
 magnet:?xt=urn:btih:61D1C9945B244ADCB9C6E8050A5CCF4B949EB6F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:61D1C9945B244ADCB9C6E8050A5CCF4B949EB6F1
 magnet:?xt=urn:btih:1668FB73766796F7D64EA3843934EC204969FFEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:1668FB73766796F7D64EA3843934EC204969FFEB
 ```bash
 magnet:?xt=urn:btih:11CB8AC884B305C0E4B0EC902066943C8FA12F2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +675,8 @@ Folder scanner - визуально анализирует диск / папку
 magnet:?xt=urn:btih:CCABA11BE75D3A4C2F7B082E2D86289B261B8A7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +704,8 @@ Carrier Wave - Carrier Wave (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom, 
 ```bash
 magnet:?xt=urn:btih:A1014C22B5F51103D87D20F0B9AF00CC98A5CE20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

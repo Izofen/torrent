@@ -1,3 +1,29 @@
+###  Публикация: 1416901   (360532) от 19.10.2020
+
+В. А. Масленников (ред.) | Углубление кризиса колониальной системы империализма после второй мировой войны (1953) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_360532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий сборник — коллективная работа нескольких авторов — ставит своей целью показать великие демократические преобразования в странах Востока, отпавших от капиталистической системы после второй мировой войны (Китайская народная республика, Корейская народно-демократическая республика и Демократическая республика Вьетнам), а также успехи революционной борьбы народов, (   Читать дальше...   )Жанр: История, политология, социология, экономика, правоведение, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2564CEF830C744650A682ADBFAFD06BB23000E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951679   (360701) от 30.10.2015
 
 И. Монахова (ред.) | Посадка растений в саду и выбор посадочного материала (2015) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:23F1176886E62EC263E6347F382671BA6A466F34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:23F1176886E62EC263E6347F382671BA6A466F34
 magnet:?xt=urn:btih:F1E8CEAB192D9639786DDBB7B5B86584EE96A3B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ molitvoslov (изд.) | Полный православный молитвосл
 ```bash
 magnet:?xt=urn:btih:E196F72A8A3CAE5E2E097144125D8A1B858B0CE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:E196F72A8A3CAE5E2E097144125D8A1B858B0CE0
 ```bash
 magnet:?xt=urn:btih:566474815BBB45978E0B62657C53E64CBC47642D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:566474815BBB45978E0B62657C53E64CBC47642D
 magnet:?xt=urn:btih:0FB860C82ED636C1B7D159F91659F549D93E8016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:0FB860C82ED636C1B7D159F91659F549D93E8016
 ```bash
 magnet:?xt=urn:btih:DD7F1CD3FA2671A98F6AE1BA9D26BADD5502C2BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:DD7F1CD3FA2671A98F6AE1BA9D26BADD5502C2BA
 magnet:?xt=urn:btih:39331700B90F9ACA7478DF185C99CACBE622D5D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ Howard I.Chapelle | The Constellation Question [1970] [PDF]
 ```bash
 magnet:?xt=urn:btih:2C3A60D0775B85FBC7BE8D5976251D4240214A62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:2C3A60D0775B85FBC7BE8D5976251D4240214A62
 magnet:?xt=urn:btih:56E787747EE5C07629B47C7F23C86BEF12C6DB97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:56E787747EE5C07629B47C7F23C86BEF12C6DB97
 ```bash
 magnet:?xt=urn:btih:38D8F818CC5AEBB2BB08BE45B8AFF29A5C22AAF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:38D8F818CC5AEBB2BB08BE45B8AFF29A5C22AAF8
 magnet:?xt=urn:btih:962F1DF6BE097776B2E535E2AAEFD5E92FF36DC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:962F1DF6BE097776B2E535E2AAEFD5E92FF36DC6
 ```bash
 magnet:?xt=urn:btih:8EA6A9A8B16EF8804F529C585AC33AFB1B3A838F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:8EA6A9A8B16EF8804F529C585AC33AFB1B3A838F
 magnet:?xt=urn:btih:BE96E993F56657C16BDCEB1EF1B624E3A1C73AAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:BE96E993F56657C16BDCEB1EF1B624E3A1C73AAE
 magnet:?xt=urn:btih:5F3DF5B394EE422C67C5C9E6A039A587EDE1C129
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:5F3DF5B394EE422C67C5C9E6A039A587EDE1C129
 ```bash
 magnet:?xt=urn:btih:CD9C72D85D015B4692EC47077B40FBA4545A2D4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:CD9C72D85D015B4692EC47077B40FBA4545A2D4D
 magnet:?xt=urn:btih:C3E55682A7E54FAF430E9A6AF2A8126285F744EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:C3E55682A7E54FAF430E9A6AF2A8126285F744EE
 ```bash
 magnet:?xt=urn:btih:A488E7E34A8FD03E295ED054A1F6E21C9DCA6577
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:A488E7E34A8FD03E295ED054A1F6E21C9DCA6577
 magnet:?xt=urn:btih:5A5579799F26B50CA3061A1191AA08F1EA4DBF85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:5A5579799F26B50CA3061A1191AA08F1EA4DBF85
 ```bash
 magnet:?xt=urn:btih:23797DAFE4A79C4BB9114C6F0BEF36D7A80F0861
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:23797DAFE4A79C4BB9114C6F0BEF36D7A80F0861
 magnet:?xt=urn:btih:482043B9B53FD07FCC1174C6F953DE1FDE4EAD26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:482043B9B53FD07FCC1174C6F953DE1FDE4EAD26
 ```bash
 magnet:?xt=urn:btih:1A0039449094415D55DB17D280AA21144638B2E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:1A0039449094415D55DB17D280AA21144638B2E4
 magnet:?xt=urn:btih:FF5425DF3DA952BD8568DE6CBCCF3120A813B1AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:FF5425DF3DA952BD8568DE6CBCCF3120A813B1AB
 ```bash
 magnet:?xt=urn:btih:AB89C1FC827B79DF7F57A2D74973C80744D463C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:AB89C1FC827B79DF7F57A2D74973C80744D463C2
 magnet:?xt=urn:btih:75A079961D561DCAD3A050125693E6933E28F8C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,30 +684,7 @@ magnet:?xt=urn:btih:75A079961D561DCAD3A050125693E6933E28F8C8
 magnet:?xt=urn:btih:68175BDA228992E37FD1DCC2F73933B8939F1EB0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255620   (361377) от 19.10.2018
-
-Игорь Прокопенко | Тайны Мирового океана (2018) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Территория нашей Земли на две трети покрыта водой, но и по сей день мы почти ничего не знаем об этом мире, который полон загадок и тайн. Как утверждают ученые — сюрпризы здесь могут быть какие угодно: от доисторических ящеров до мифических людей-амфибий, которые оставили после себя подводные дворцы, над происхождением которых ломают головы археологи.
-В книге собраны (   Читать дальше...   )Жанр: Научно-популярная литература; ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:879C8B79EE3B0C5D704D234323295F7E488094FB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

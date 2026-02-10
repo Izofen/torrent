@@ -21,6 +21,8 @@ Stepik, Илья Фофанов | React - Полное руководство (2
 magnet:?xt=urn:btih:2F12F766EEE47A1E6DD1C5F62B889D540ABA41A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Nightmare Manor (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:BA5E2041FFA6DBB6AB99B651833EEC15EEA396B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Yakuza: Like a Dragon рассказывает о парне по имени И�
 magnet:?xt=urn:btih:91BCE4783D0E9B3E2AF84A5BE8B104CA94419BCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Fusion 18 — это самое современное в мире програ�
 ```bash
 magnet:?xt=urn:btih:8CB94948B8E253DC7248513A927334CF823E488D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Microsoft начала извещать своих российских корп
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Microsoft начала извещать своих российских корп
 ```bash
 magnet:?xt=urn:btih:67B4DD3BA1D201AA652B20A4196FD07D4776586C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:67B4DD3BA1D201AA652B20A4196FD07D4776586C
 magnet:?xt=urn:btih:4E17BAD7B7B4D243FBCA2F6AF01664A739F96FB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ WifiInfoView - небольшая бесплатная утилита, кото�
 magnet:?xt=urn:btih:812E27304AF6F8A0F839301D5EEB9292AF13B300
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Do Not Feed the Monkeys 2099 (2023) [Ru/Multi] (1.0.19) License GOG
 ```bash
 magnet:?xt=urn:btih:FA05EC4DCD8AB2489C8B3A29C3D853728B22FF45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Astute Graphics — сборник плагинов для векторного 
 magnet:?xt=urn:btih:2F8CABC91538CC09E1D50E87235DA8453181ED3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:2F8CABC91538CC09E1D50E87235DA8453181ED3D
 magnet:?xt=urn:btih:2BD8C66A1175952C869A60A9D1BB217F494CF0CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ DirLister v2 beta 4 Portable [En]
 ```bash
 magnet:?xt=urn:btih:15F5260B2C92346CDDBFB9FA64D08458A843A280
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:15F5260B2C92346CDDBFB9FA64D08458A843A280
 magnet:?xt=urn:btih:029BBCF051AE5ABC6C933251AF7F0D1A7059768E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Keyman 16.0.141 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:37314FFAF68E2833828E995A1C91416CA034662D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:37314FFAF68E2833828E995A1C91416CA034662D
 magnet:?xt=urn:btih:D0FD334D3A0BFC8656F52E82232F992499D6F2E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ ZWCAD Architecture — это профессиональное программ�
 ```bash
 magnet:?xt=urn:btih:0BA02D01688BEE938A1D4A87D3B5DEC7FDCB4B39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Splatter Watercolor 2 - новые кисти, новая техника и но
 magnet:?xt=urn:btih:FAB93A692ED921D1AC8D713D1B75869233CFC0F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:FAB93A692ED921D1AC8D713D1B75869233CFC0F7
 ```bash
 magnet:?xt=urn:btih:E3D8E807E5C5A28B4D6DAF824F425E67184DDBAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:E3D8E807E5C5A28B4D6DAF824F425E67184DDBAD
 magnet:?xt=urn:btih:4CFBC04D0BD55E2D90F6C70D9023A45C3F7075F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Nox App Player 7.0.5.8088 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:98CFB66539E2E743D6E913D5A90B9DF79C6CBB1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ XXIII век. Патрульный звездолёт дальней разве�
 magnet:?xt=urn:btih:1590928DCC76346F2077C3DDBFF9FCFC092FBDB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ Green Screen Wizard - это автономная программа для ра
 ```bash
 magnet:?xt=urn:btih:8769B8061DF783E63DCEA84E6C4C5596529428B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:8769B8061DF783E63DCEA84E6C4C5596529428B0
 magnet:?xt=urn:btih:356D71414062C766292CFF82D931A6B59229B8DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ SIV (System Information Viewer) - мощнейшая утилита, показ�
 ```bash
 magnet:?xt=urn:btih:663DB8009D79A62617866AF28A5052B0396574FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:663DB8009D79A62617866AF28A5052B0396574FA
 magnet:?xt=urn:btih:1C3EF5C6552FC75AFABA4146DDBC9A5E996A1EC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 magnet:?xt=urn:btih:F72CB9FF89408B3DCEE674FEA0916F628E41AF83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

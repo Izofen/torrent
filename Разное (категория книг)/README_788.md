@@ -1,3 +1,29 @@
+###  Публикация: 1442499   (1036535) от 25.01.2021
+
+Лола А. Экерстрём | Lagom. Секрет шведского благополучия (2017) [EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лагом, жизненная философия шведов, с каждым днем становится все более популярным. Шведы – одна из самых счастливых наций в мире. В чем же секрет их благополучия и процветания? Лола А. Экерстрём, автор этой книги, уверена: достичь состояния счастья шведам помогает именно лагом, принцип равновесия и золотой середины. Осознав его суть и слегка скорректировав свои повседневные (   Читать дальше...   )Жанр: Психология, Саморазвитие, Личностный ростПеревод: Юрий ГольдбергФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0088C383AB96E6D2F2C05BEA35EBE9052CEC7B29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442533   (1036538) от 25.01.2021
 
 Чик Цицеро, Сандра Табата Цицеро | Талисманы – Таро. Общение с ангелами карт (2020) [EPUB]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:B7BAF38F97FA49BBEA7016CF6D5BF6AB579B6A0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:B7BAF38F97FA49BBEA7016CF6D5BF6AB579B6A0F
 magnet:?xt=urn:btih:A82EE41D8EB3DF02A5CA4B808DCE077B075AB152
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:A82EE41D8EB3DF02A5CA4B808DCE077B075AB152
 ```bash
 magnet:?xt=urn:btih:A69C7D3A350E13364BF546AF53D202411E53B92C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:A69C7D3A350E13364BF546AF53D202411E53B92C
 magnet:?xt=urn:btih:F7458E3A2A23299EA394362DBBE917BA17F7C315
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:F7458E3A2A23299EA394362DBBE917BA17F7C315
 ```bash
 magnet:?xt=urn:btih:6D3999FC1240DD0F90FD1A7CED8A16528D1894AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:6D3999FC1240DD0F90FD1A7CED8A16528D1894AA
 magnet:?xt=urn:btih:66AE90BAF350784B7EC7CBA79087F7024B7071E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:66AE90BAF350784B7EC7CBA79087F7024B7071E4
 ```bash
 magnet:?xt=urn:btih:B38999E8BFEFC203E8E4252219510D37EFB62E5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:B38999E8BFEFC203E8E4252219510D37EFB62E5A
 magnet:?xt=urn:btih:B313EB0A723CCFD927C3E231682C63C2E69DE526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:B313EB0A723CCFD927C3E231682C63C2E69DE526
 ```bash
 magnet:?xt=urn:btih:8A22AA292274E4EB8421A2F61650992ABE2BD98C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:8A22AA292274E4EB8421A2F61650992ABE2BD98C
 magnet:?xt=urn:btih:9E3F60FFC4347E7817562E9E218596A2AA37AF3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:9E3F60FFC4347E7817562E9E218596A2AA37AF3F
 ```bash
 magnet:?xt=urn:btih:7C42B45C82C5A4529D5E3343798FF6B018E83DBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:7C42B45C82C5A4529D5E3343798FF6B018E83DBA
 magnet:?xt=urn:btih:B0FA9EE8D0435C461F9CD78207CAB636EC14349E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:B0FA9EE8D0435C461F9CD78207CAB636EC14349E
 ```bash
 magnet:?xt=urn:btih:C46F9155C0FD76CFA771A0D714DA2C1AE7813C75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:C46F9155C0FD76CFA771A0D714DA2C1AE7813C75
 magnet:?xt=urn:btih:2F687CC938F8DABF42CA27E916F816D460D35A83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:2F687CC938F8DABF42CA27E916F816D460D35A83
 ```bash
 magnet:?xt=urn:btih:80B875E65B9D0DB10A124C6D324287AB058D3866
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:80B875E65B9D0DB10A124C6D324287AB058D3866
 magnet:?xt=urn:btih:D46F0618F987FFE9E13F3460B3DDE8D2D77F51D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:D46F0618F987FFE9E13F3460B3DDE8D2D77F51D4
 ```bash
 magnet:?xt=urn:btih:9AE6518DFFDAC0306A3D3B1F8AFC479A79F3A2A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:9AE6518DFFDAC0306A3D3B1F8AFC479A79F3A2A4
 magnet:?xt=urn:btih:28B6802E4B09CBBF5516999C00B80561D744240F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:28B6802E4B09CBBF5516999C00B80561D744240F
 ```bash
 magnet:?xt=urn:btih:60D0883A52090FB4F8EB948CEC761286C8BF18AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:60D0883A52090FB4F8EB948CEC761286C8BF18AD
 magnet:?xt=urn:btih:ED56FA090B95C28D1B3C44726C2FBB239801799C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:ED56FA090B95C28D1B3C44726C2FBB239801799C
 magnet:?xt=urn:btih:FE541BF6A450AC9481116922564ADAA6426CA3A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:FE541BF6A450AC9481116922564ADAA6426CA3A1
 ```bash
 magnet:?xt=urn:btih:443A09407607640A7DCCAFF0241A99C39FA156B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +632,8 @@ magnet:?xt=urn:btih:443A09407607640A7DCCAFF0241A99C39FA156B9
 magnet:?xt=urn:btih:D5906C144CD7DF4FC6B712A67A6C6904491E0FE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:D5906C144CD7DF4FC6B712A67A6C6904491E0FE0
 ```bash
 magnet:?xt=urn:btih:4F93D3323C686D213BC118ADB9F3AA4CDEDE4A62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,32 +685,7 @@ magnet:?xt=urn:btih:4F93D3323C686D213BC118ADB9F3AA4CDEDE4A62
 magnet:?xt=urn:btih:19C89FE6072541B30C372CF6B86E6F42BEC3F395
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442282   (1036868) от 24.01.2021
-
-Игорь Прокопенко | Наш мозг в эпоху катаклизмов (2021) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы собрали новейшие открытия нейрофизиологии и нейробиологии, которые не просто перевернут ваше представление о работе нашей нервной системы, а буквально позволят вам изменить свою жизнь.
-• Похудеть, не вставая с дивана? Как заставить наш мозг работать на нас.
-• Съешь еще одну конфетку! Зачем нашему мозгу нужно, чтобы мы ели больше сладкого.
-• Почему в следующий (   Читать дальше...   )Жанр: Нейробиология, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61FBFF1FCC7A1933E96F4675FE5E12D95E487B7B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

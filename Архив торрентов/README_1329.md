@@ -19,6 +19,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 magnet:?xt=urn:btih:90EA61A3F7BB048D2B443BEAF50423988D89C133
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ WinCatalog - это простая в использовании програм�
 ```bash
 magnet:?xt=urn:btih:43E25545626008D26D1B929DDA51AAFC54D4DBB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ DropDMG 3.6.5 [Multi]
 magnet:?xt=urn:btih:37299C41EFC7B4B6506A2B556340EEC7FC5C49F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Dropzone - удобная утилита для автоматизация ру�
 ```bash
 magnet:?xt=urn:btih:89BF0D997B39C4E33B40C564A92F31BD397775EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Perfectly Clear WorkBench позволяет всего за пару клико
 magnet:?xt=urn:btih:31E6B151A7600972F39905CE02922E33F0C7E2B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Icecream Slideshow Maker - это приложение для создания �
 ```bash
 magnet:?xt=urn:btih:B6C731407CE899AE6EEA81687842C7E43DF1A704
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Macgo Mac Blu-ray Player - это один из лучших (если не ск
 magnet:?xt=urn:btih:18367444492ACC83CDA8774609F5CB4CDAD11D25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Principle — приложение для Mac OS, которое позволя�
 ```bash
 magnet:?xt=urn:btih:B075CEC785807336165919C6D76CD6DBBCB6407B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Icecream Screen Recorder – простая программа для запис
 magnet:?xt=urn:btih:0D9ABB974BEDC9AA00E329EB41CE9AD2B9527550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Viber для Windows позволяет бесплатно отправлять 
 ```bash
 magnet:?xt=urn:btih:8308537FBB431DAB7D0B44E22595F6D781EE65AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ ExamDiff - мощная и легкая в использовании прогр
 magnet:?xt=urn:btih:A0447F2594BDADDC8BEC454942050F5E3B64581F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ W10 Digital License Activation - инструмент от Ratiborus для ак
 magnet:?xt=urn:btih:B22D2AC8B90DEF34844DDEC661EA9CF3B7F4B9DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ RarmaRadio - программа для прослушивания и запис�
 ```bash
 magnet:?xt=urn:btih:307E728949D930E77A74464A5BA911E6E58467AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Visual Studio Community 2019 - Бесплатная, полнофункцион�
 magnet:?xt=urn:btih:D72356F7019571849C9CE332E93EC904603B7D0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Icecream Video Converter Pro 1.35 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:368F893113C2735D0CD3B1275D486BD58E34472D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ PIDKey Lite предназначена для просмотра, обновле
 magnet:?xt=urn:btih:20D998922A48A4A5F0D0A180ABA7FC8850E7DFE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ PDF Reader Pro - это приложение для редактирования
 magnet:?xt=urn:btih:55493E5399414751CD169175C3E1EC12713B4429
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:D69E6E56DF5CC94F9D5A5217114E81F9AA3B5FBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Office 2013-2021 C2R Install + Lite 7.4.9.1 b01 ++ Portable by Ratiborus [Multi/
 magnet:?xt=urn:btih:CF2E8F99A7DBE1BD1AC4EE2056FF5724FC89DE79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:AF883FF7E9C1A69A3BD2C08C03BE32378DC6EBB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ EmEditor Professional - профессиональная версия мощно
 magnet:?xt=urn:btih:8DA5C3EB5E0C51A8BDD783154F1129619A177496
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Aomei Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:C378328D3C4A92A91DD538D6585259E95139875B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:C378328D3C4A92A91DD538D6585259E95139875B
 magnet:?xt=urn:btih:C2CFC3678CB77B363E586A39773626449D616CDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Brave - защищенный веб-браузер на базе Chromium, по�
 ```bash
 magnet:?xt=urn:btih:1972C08A3E97C34428112DFF144AAFEAEA4B7472
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Windows 11 Manager - это универсальная утилита специ
 magnet:?xt=urn:btih:FD45D9BA4CBE4A496C7F12BC155C5AFC6A5C4A76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ FileMaker Pro - это платформа для разработки и для 
 ```bash
 magnet:?xt=urn:btih:7D575DF6E8C905B8733DF85834DCEA0FA3CA4BC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

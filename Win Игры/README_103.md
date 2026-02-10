@@ -19,6 +19,8 @@ VED - это сюжетное RPG, сочетающее вручную нари�
 magnet:?xt=urn:btih:1EDE5E0581E0CBF12C05B79EC4AB95F97B31F69C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The End of the Sun - это мистическая приключенческа�
 ```bash
 magnet:?xt=urn:btih:9657FEB13927F3A345368810F757B60D569D83B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Silent Hill 2 (2024) [Ru/Multi] (1.1.258 834/dlc) Repack Let'sРlay [Digital Del
 magnet:?xt=urn:btih:AC36D92DCD37DE33E463697AE976E9089CEF9B10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.007.28161) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B905CE65206A129619F6A82BB6A0BB8D86FE1EF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ GTA 3 - Definitive Edition - ремастер культового экшна о
 magnet:?xt=urn:btih:3CB00247F1483DF17BBE035BE5D04A3A5619D136
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Water Park Tycoon (2014) [En] (1.2.4) Scene TiNYiSO
 ```bash
 magnet:?xt=urn:btih:4E60EB79266154A9131C1C28BB78C51FD33EC5D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ GTA: Vice City - Definitive Edition - переиздание культовой 
 magnet:?xt=urn:btih:5403A72518CC206D7F68451FE03322E0051C5651
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Grand Theft Auto San Andreas (2021) [Ru/Multi] (1.113.49697469) Repack Wanterlud
 ```bash
 magnet:?xt=urn:btih:43AFF60481798A490A5F09F601E413F7644B2579
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Gift Collector - это новогодняя хоррор игра от перв
 magnet:?xt=urn:btih:B2C16112A8FBBCB2D0FFE8895B1964183A378540
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Sacred 3 это экшен-аркада для четырех игроков, к
 ```bash
 magnet:?xt=urn:btih:828218B21C11E6301F3C325B46C400D7A092194F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Winter Falling: Battle Tactics предлагает геймерам возгл�
 magnet:?xt=urn:btih:8ACD27EBC18A1E26DAC747D1B9E5F6F6EF066051
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Shotgun King: The Final Checkmate представляет собой альте
 ```bash
 magnet:?xt=urn:btih:ECAD9522827804ABD99AB9612543E7FCA560FA7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Lies We Tell Ourselves (Ложь, которую мы рассказывае
 magnet:?xt=urn:btih:CCBA29D709BA2F90379771614B54E0A29FD29733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Thing: Remastered (2024) [Ru/Multi] (1.1.1609.1391) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:9221AAD2CEE7C70C15F01CD59F2F967628C0944B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Death in the Water 2 (2023) [Ru/Multi] (1.1.15) Repack Let'sРlay
 magnet:?xt=urn:btih:593FC144608E23E2D0139380F99DBCD7969B0E8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Rocket Boots Mania (2018) [Ru/Multi] (1.0.3012) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:00269F73BC62167C8218C20D88BC987309BEAAFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ WonderLang Spanish (2025) [En] (0.9) Repack FitGirl
 magnet:?xt=urn:btih:45524D711C14283BE8304545A87BAE203C9C6215
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Somber Echoes (2025) [Multi] (21558) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:8036B573437052A1BE479996B74DDB9E853F2B7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Brothers: A Tale of Two Sons Remake (2024) [Ru/Multi] (Build 15058792) Repack Le
 magnet:?xt=urn:btih:7379B63D726EB467BDA1ED642BF1A771071CF451
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ NINJA GAIDEN 2 Black (2025) [Ru/Multi] (build 17020908) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:3EE37E4532E213CBFB37BF52940D997A8EC5D117
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.007) Scene Rune
 magnet:?xt=urn:btih:4ACF22400544052BD16CF3743EEFF25948050653
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.08/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:EEAEDF681CD1449CF002E1A465BC7A30670EDD41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ VED — это сюжетное RPG, сочетающее вручную нар�
 magnet:?xt=urn:btih:C9B69F037546983707DB8D39549EF0038F01F909
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Hidden Deep – научно-фантастическая игра, разраб
 ```bash
 magnet:?xt=urn:btih:8BE145F02122A9C0334148B7100C09E8D23C4ADB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Noita - магический боевик с элементами «roguelike» 
 magnet:?xt=urn:btih:4A8618AC33675DAEED009173CF565FCDD808A0FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Dying Light (2021) [Ru/En] (1.49.0hf10/dlc) Repack dixen18 [Definitive Edition]
 ```bash
 magnet:?xt=urn:btih:F146F745F334D1180DE383815E012F624CCF257A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Necronomicon - Constant to Death (2023) [FLAC|Lossless|image + .cue] <Thrash Met
 magnet:?xt=urn:btih:182108671707E84D2DFA64D5966A5572C4F3B0D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:182108671707E84D2DFA64D5966A5572C4F3B0D4
 ```bash
 magnet:?xt=urn:btih:C4403FC65B96AE2E601E8B53627EE20B2D33CA88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ CD 02 - HereticЖанр: Atmospheric Death Metal, Thrash Metal, Dark MetalПро
 magnet:?xt=urn:btih:2B2BE8E91802B58A3A8F58157AA6C5310B4123BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:2B2BE8E91802B58A3A8F58157AA6C5310B4123BD
 ```bash
 magnet:?xt=urn:btih:EEA4A1E04DE5B263290DC177E3A605E5A1ED9BA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ VA - Music News vol.264 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:196D48637CC89859835C9D074031925D4D984134
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ OCCT 12.0.1 Portable [En]
 ```bash
 magnet:?xt=urn:btih:8DE483D72DFFC547335E342A5633073464D0373E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ August Burns Red - Leveler Live (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 magnet:?xt=urn:btih:A2CCE45474FAD8E8EC286C17D1E444002E0F69B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Tidy Up - приложение предназначено для поиска д
 ```bash
 magnet:?xt=urn:btih:7FAECFA0119995E742BA551C2D7300417AE27B22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ Rancho Bizzarro - Four Dead Men (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock
 magnet:?xt=urn:btih:5F90CD821B644ADF00874AF5CACE15447215195A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ Librarian Pro 7 v7.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:3CABEE8D2E49EC15A4456F4C6AADE837E09758D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ WinTools.net – набор инструментов для оптимизаци
 magnet:?xt=urn:btih:5BDE4B5D7F10DC4A8043F9D0DE2FE579D3471238
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:5BDE4B5D7F10DC4A8043F9D0DE2FE579D3471238
 ```bash
 magnet:?xt=urn:btih:C6EA8552903170FD5BD075A21D31BE021764C10D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:C6EA8552903170FD5BD075A21D31BE021764C10D
 ```bash
 magnet:?xt=urn:btih:527C2ED704D4E2A19117A012DFA0DDEC356ECCD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ Carrol McLaughlin - Jazz Harp (1985) 1997, Self-Released [FLAC|Lossless|tracks +
 magnet:?xt=urn:btih:B44CE88410C651E8DB803E5931121891B66F9FB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:B44CE88410C651E8DB803E5931121891B66F9FB9
 ```bash
 magnet:?xt=urn:btih:26AB86BD509F1A53E40E6E2304DFEE54E08A49EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ Rachel Therrien - Mi Hogar (2023) Outside in Music [FLAC|Lossless|tracks + .cue]
 magnet:?xt=urn:btih:17047A5A1CFD2F49DE7958260CDA0132C4362C4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:17047A5A1CFD2F49DE7958260CDA0132C4362C4B
 ```bash
 magnet:?xt=urn:btih:507A413A967B66BE5D4C84901493B5FA576D2F0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ CG Cookie, Kent Trammell | Creating Hair Cards for Realtime Characters in Blende
 magnet:?xt=urn:btih:7ADB2CAF3EEE1089383AF96BDB6136CC4FD9BD17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:7ADB2CAF3EEE1089383AF96BDB6136CC4FD9BD17
 magnet:?xt=urn:btih:E8B578208043B5F134D8C32CC1DB5A9781E5C693
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:E8B578208043B5F134D8C32CC1DB5A9781E5C693
 ```bash
 magnet:?xt=urn:btih:86569EC6AB76D16530C67E8A6E4BAA64545159EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ Altaria - Invitation (2003) Remaster, 2022, Reaper [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:57D0AAF3DF036FFCBB104EB2FE9E60DAD9E9FD71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ Degrees of Truth - The Reins of Life (2016) [MP3|320 Kbps] <Symphonic Progressiv
 ```bash
 magnet:?xt=urn:btih:6F342D3FD3AA414632443A89659E807BF0502015
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +621,8 @@ Maxus - Maxus (1981) [MP3|320 Kbps] <AOR, Melodic Rock>
 magnet:?xt=urn:btih:B5524F4F9234146C5B7F954DC1AACC562E797043
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ magnet:?xt=urn:btih:B5524F4F9234146C5B7F954DC1AACC562E797043
 ```bash
 magnet:?xt=urn:btih:9943284CA480EC3DDE588CE338E55E50E9C4B544
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +673,8 @@ FSNotes - это менеджер текстовых заметок для macOS
 magnet:?xt=urn:btih:9635455DD3B24D73231DBD938D8FF65D4CA0B5DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ magnet:?xt=urn:btih:9635455DD3B24D73231DBD938D8FF65D4CA0B5DC
 ```bash
 magnet:?xt=urn:btih:199DCB7E110F426A231BAE904F779F5F74B00B7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

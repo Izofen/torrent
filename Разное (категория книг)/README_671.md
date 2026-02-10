@@ -1,3 +1,29 @@
+###  Публикация: 1365491   (930424) от 07.03.2020
+
+Джеймс Бидуэлл | Это прорыв! 100 уроков бизнес-инноваций (2019) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инновации меняют наш мир. Как отследить перспективные инновационные тренды и использовать их для развития своего бизнеса? Автор книги – главный акционер и генеральный директор Springwise, агрегатора открытий и интересных разработок. Его команда отбирает изобретения, ориентируясь не столько на их технологическую изощренность и фантастичность перспектив, сколько на (   Читать дальше...   )Жанр: Инновации в бизнесеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78BD05BCF8C4AA14D41BBC3326636661C36B5C22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986071   (930429) от 14.02.2016
 
 Алексей Иванов | Страх в рекламе. Как побудить клиентов к покупке (2016) [FB2]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:C78DD5DEA29E7BED32CCB0D679760FED5CDFF641
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -53,6 +81,8 @@ magnet:?xt=urn:btih:C78DD5DEA29E7BED32CCB0D679760FED5CDFF641
 magnet:?xt=urn:btih:1D2AE5030D1B436D0912F9EDE33D6CDA37B27C2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -77,6 +107,8 @@ magnet:?xt=urn:btih:1D2AE5030D1B436D0912F9EDE33D6CDA37B27C2D
 magnet:?xt=urn:btih:8985B3B3FC9E16971C3EA63F7BAA54037441D67F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +132,8 @@ magnet:?xt=urn:btih:8985B3B3FC9E16971C3EA63F7BAA54037441D67F
 ```bash
 magnet:?xt=urn:btih:727D46E3AA4491943CED96302A035D3C3298AB9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +161,8 @@ magnet:?xt=urn:btih:727D46E3AA4491943CED96302A035D3C3298AB9F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +188,8 @@ magnet:?xt=urn:btih:727D46E3AA4491943CED96302A035D3C3298AB9F
 magnet:?xt=urn:btih:A2E5603454B9E5CADFF21A2236EB28DD699FE9B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +213,8 @@ magnet:?xt=urn:btih:A2E5603454B9E5CADFF21A2236EB28DD699FE9B3
 ```bash
 magnet:?xt=urn:btih:DF331F882AB54A78F8B75E667EA4026F25F151DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +240,8 @@ magnet:?xt=urn:btih:DF331F882AB54A78F8B75E667EA4026F25F151DA
 magnet:?xt=urn:btih:7AC1056A1694E0C2A370DE328410D4C414688A5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +265,8 @@ magnet:?xt=urn:btih:7AC1056A1694E0C2A370DE328410D4C414688A5A
 ```bash
 magnet:?xt=urn:btih:31477A9F4D43A2E9DD61C73462088B79D4237A5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +292,8 @@ magnet:?xt=urn:btih:31477A9F4D43A2E9DD61C73462088B79D4237A5A
 magnet:?xt=urn:btih:44C9A24B2B0B23B01B818006BE617DCE844AF8AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +318,8 @@ magnet:?xt=urn:btih:44C9A24B2B0B23B01B818006BE617DCE844AF8AD
 magnet:?xt=urn:btih:DE0A6A55003C003A6FA53B2020DBB4953DD604EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +343,8 @@ magnet:?xt=urn:btih:DE0A6A55003C003A6FA53B2020DBB4953DD604EF
 ```bash
 magnet:?xt=urn:btih:2CC0D3BDB7E52C47AB9DCB29699B60167DC9DF20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +371,8 @@ magnet:?xt=urn:btih:2CC0D3BDB7E52C47AB9DCB29699B60167DC9DF20
 magnet:?xt=urn:btih:83D87298AAD207D568D81A9C9130F655A627E596
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +398,8 @@ magnet:?xt=urn:btih:83D87298AAD207D568D81A9C9130F655A627E596
 magnet:?xt=urn:btih:B58D0DAE1B0805A1198E946EA063479F3BB58276
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +423,8 @@ magnet:?xt=urn:btih:B58D0DAE1B0805A1198E946EA063479F3BB58276
 ```bash
 magnet:?xt=urn:btih:E044CFB8D3FA95A192B401ED90F1D37A94A91568
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +450,8 @@ magnet:?xt=urn:btih:E044CFB8D3FA95A192B401ED90F1D37A94A91568
 magnet:?xt=urn:btih:C83C62F2C106CD7612182FFE61F371936C1093BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +475,8 @@ magnet:?xt=urn:btih:C83C62F2C106CD7612182FFE61F371936C1093BE
 ```bash
 magnet:?xt=urn:btih:BD9F99774F4D7458B599D8085477891AFDF6CF91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +504,8 @@ magnet:?xt=urn:btih:BD9F99774F4D7458B599D8085477891AFDF6CF91
 magnet:?xt=urn:btih:6DE76F193CADF0DBB3182446E9AA40FE93D847A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +529,8 @@ magnet:?xt=urn:btih:6DE76F193CADF0DBB3182446E9AA40FE93D847A9
 ```bash
 magnet:?xt=urn:btih:B3944063B384C68388837F3EBFC6E65F6C6687CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +556,8 @@ magnet:?xt=urn:btih:B3944063B384C68388837F3EBFC6E65F6C6687CF
 magnet:?xt=urn:btih:40F3C92A8D7EDDA11C162A5E2BD4AC53B08911C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +581,8 @@ magnet:?xt=urn:btih:40F3C92A8D7EDDA11C162A5E2BD4AC53B08911C1
 ```bash
 magnet:?xt=urn:btih:DB1F880F3EB42BCE06BD9839313824E757D6A7B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +608,8 @@ magnet:?xt=urn:btih:DB1F880F3EB42BCE06BD9839313824E757D6A7B1
 magnet:?xt=urn:btih:B7B57D188B6DEE236949741838F83EFD9D7C2488
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +633,8 @@ magnet:?xt=urn:btih:B7B57D188B6DEE236949741838F83EFD9D7C2488
 ```bash
 magnet:?xt=urn:btih:51DB2D4091FB8ED92C68D53EBF30082ACC04D9BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +660,8 @@ magnet:?xt=urn:btih:51DB2D4091FB8ED92C68D53EBF30082ACC04D9BF
 magnet:?xt=urn:btih:ADDA9FCA16109238ACE0848E340C4B09B62C9ED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,29 +686,7 @@ magnet:?xt=urn:btih:ADDA9FCA16109238ACE0848E340C4B09B62C9ED3
 magnet:?xt=urn:btih:7739E00B493C54739D07DA6B20A09FCE8C6AAF5B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985019   (931005) от 14.02.2016
-
-Д. Михновский | Оружием сатиры - против религии. Мастера русской советской графики против религии и суеверий (1963) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая книга представляет собой краткий научно-популярный очерк развития советской антирелигиозной изобразительной сатиры. В ней анализируется опыт мастеров советской графики no созданию плакатов, сатирических рисунков, карикатур, служащих делу борьбы с религиозными пережитками и атеистического воспитания трудящихся. В книге рассказывается о работе над антирелигиозной (   Читать дальше...   )Жанр: История, религиоведение, сатира, искусствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5F85A6D028591B50CBF07E0EFCB171BAAAE43AD
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

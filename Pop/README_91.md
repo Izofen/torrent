@@ -22,6 +22,8 @@ Baby'O - "You've Got It!" (1979) [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 magnet:?xt=urn:btih:5AABADF21EE5F82633E861DFC981AF45F9DBE0BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:5AABADF21EE5F82633E861DFC981AF45F9DBE0BD
 ```bash
 magnet:?xt=urn:btih:89DB01BA950E1598F85864988ECCD58FA8500A90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:89DB01BA950E1598F85864988ECCD58FA8500A90
 magnet:?xt=urn:btih:A43DD85368F524BA331717CD0262D553A9AA64A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Alan Walker - Different World (2018) Japanese Edition [MP3|320 Kbps] <Electronic
 magnet:?xt=urn:btih:983EB964A1D0161292658E65CFBE7CAC4CC1AA39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ Digital Emotion - Moving to the Top / Supernova (2021) Single [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:0A5B69584993C8F151C56C71D4A5C95A88ED29FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -155,6 +165,8 @@ magnet:?xt=urn:btih:0A5B69584993C8F151C56C71D4A5C95A88ED29FA
 magnet:?xt=urn:btih:F7600B585C4F5F086B7FA8188405306D86CC9446
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +193,8 @@ Bjork - Fossora (2022) [FLAC|Lossless|image + .cue] <Pop, Electronic>
 ```bash
 magnet:?xt=urn:btih:59B890FBE5C050C6EF70D5251E0E2369FE89C74A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +223,8 @@ CD1:
 magnet:?xt=urn:btih:EEA5810568E919632F37CA52B1D16D9F81C1340B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +251,8 @@ Yaki-Da - Pride (1995) Japanese Edition [FLAC|Lossless|image + .cue] <Euro House
 ```bash
 magnet:?xt=urn:btih:24646A0BE41E9B08CA9B7F03F7217818EFF195A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +281,8 @@ VA - Now That's What I Call Merry Christmas (2018) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:591E50CB07D170D54B50D150F7D63D2BD7E1E985
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +309,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:11D7FA0969A2BA929CC1323C861C9FFEECE79397
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +339,8 @@ Vanessa Daou - Songs for Solace (2020) Compilation [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:DABA8E9824907C405389595F7552AFD7BF99EC57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +367,8 @@ A La Carte - MusicBox (2003) [FLAC|Lossless|tracks + .cue] <Disco, Euro-Disco>
 ```bash
 magnet:?xt=urn:btih:BCDF925A1922869027286832BBF77BE05B776B90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +397,8 @@ Nel Oliver - Nel Oliver (1980) LP [MP3|320 Kbps] <Disco, Reggae, Funk/Soul>
 magnet:?xt=urn:btih:F07EA126D657A7391E3BDCC8E730E2AC4916A01A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +425,8 @@ VA - Simply the Best 80's (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Other
 ```bash
 magnet:?xt=urn:btih:019C2B8684985180A66CD006A3B081EF067EBF39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +455,8 @@ VA - Winter Party 2016 (2015) [MP3|320 кб/с] <Dance>
 magnet:?xt=urn:btih:E903BB153ED4D47CD918EDCEDC04574C9868755F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +483,8 @@ VA - Superstars In Concert (1986-87-88 The Prince's Trust Concerts) (1996) 3CDSe
 ```bash
 magnet:?xt=urn:btih:C871BD8278D40575A5DABF87AC9E59A165B63A14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +513,8 @@ VA - Tiktock Best Of 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:06C3B8A66E23784D77E7053CEDDCDD4787C03625
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +542,8 @@ Taylor Swift - Midnights (2022) [FLAC|Lossless|tracks + .cue] <Pop>
 magnet:?xt=urn:btih:FAB04906E117F6577554DE6FF8CE44D9AE1A344F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +568,8 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:1F93956C52D57D49BECEF15AD8A93854A4465085
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +598,8 @@ Soraya Arnelas - Universe In Me (2013) [MP3|320 Kbps] <Europop, Eurodance>
 magnet:?xt=urn:btih:7D0FCC3DBDE91255E849489BD2CF79687474B70A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +626,8 @@ KC & The Sunshine Band - A Sunshine Christmas (2015) [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:3C5D8B06487B12EF10D72F84E72C57A0AF6F5CF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +656,8 @@ FiNCH - Rummelbums (2022) [FLAC|24/44.1|tracks|WEB-DL] <Hip-Hop, Eurodance, Pop 
 magnet:?xt=urn:btih:FC6004BB004C55A48AA49E0EE446E46D208A69CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +684,8 @@ magnet:?xt=urn:btih:FC6004BB004C55A48AA49E0EE446E46D208A69CA
 ```bash
 magnet:?xt=urn:btih:D3B5188848D1AADE57B7D5A9954E853D88C185A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -666,6 +714,8 @@ magnet:?xt=urn:btih:D3B5188848D1AADE57B7D5A9954E853D88C185A4
 magnet:?xt=urn:btih:1DEB73EA17A33C7C922FCF59A769B178B0060893
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -692,6 +742,8 @@ Grivina - Танцую одна (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:E9256DC1256C1C9A4AD24184DCB3152CC7C39490
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

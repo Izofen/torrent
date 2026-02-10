@@ -19,6 +19,8 @@ Dispatch - это комедия о рабочем месте супергеро
 magnet:?xt=urn:btih:C68A36C2A226AD9C8CB41C8A9C34482AF1578BCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MediaHuman YouTube Downloader 3.9.17 (2110) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:C1717C843B9AB7E24EA452C0645391F2B7E53027
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Smart Defrag - дефрагментатор, позволяющий довест
 magnet:?xt=urn:btih:4F3262E26DD8B5135CE61365D05401D3FEB1A0B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 magnet:?xt=urn:btih:E4E0A5AE67BB43B602F6D70E417FC677D6D75E1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:14D9BD6CD72425C5EE54934E0B7EF4C1CDFBA85B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ VA - Acid Jazz Funk (Vol.4) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, 
 magnet:?xt=urn:btih:AF91334B0F0E4E27F57AEAACC47D6474F402C372
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:AF91334B0F0E4E27F57AEAACC47D6474F402C372
 ```bash
 magnet:?xt=urn:btih:876D990A6AE0BBBA6CCF5ADDE69D80E83841560E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ OrcaSlicer - популярный слайсер для 3d-печати. Отл�
 magnet:?xt=urn:btih:5A2EC8F8A4CB84CE0BFB894415D8889FAB7CE0AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Double Dragon Revive - это переосмысление оригинальн�
 magnet:?xt=urn:btih:8FEDFA0CFA2799E757880D5B8066EE4D2F632649
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:8FEDFA0CFA2799E757880D5B8066EE4D2F632649
 ```bash
 magnet:?xt=urn:btih:27847BC5536A27D996352ECC28BF2F160580702A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Timmy Stax - Bay Area Jazz and Soul Lake Merritt Jazz and Soul Revue (2025) [FLA
 magnet:?xt=urn:btih:89F78D6093E06B1D5A84ECA68B29A50E65D9C158
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:89F78D6093E06B1D5A84ECA68B29A50E65D9C158
 ```bash
 magnet:?xt=urn:btih:8AB4DE47EA27B56058769558ECBA80365A089666
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Dispatch (2025) [Ru/Multi] (1.0.14753/dlc) Scene Rune [Digital Deluxe Edition]
 magnet:?xt=urn:btih:A4A7939FB42F6820913069ECAB4F96326627B211
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Dispatch (2025) [Ru/Multi] (1.0.14753/dlc) Repack seleZen [Digital Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:FEAC67DF0A78FE73360720495C9A860F55D1F78F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (0.1.26.2.46023.12/dlc)
 magnet:?xt=urn:btih:1BB3417F9FCE109C202D9DC36E3A9C1BABFA10EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Forgotten Seas – станьте властителем морей или за�
 ```bash
 magnet:?xt=urn:btih:8BFDCAF37115FC1DB5F884ADED606E637B6CDE0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Forgotten Seas – станьте властителем морей или за�
 magnet:?xt=urn:btih:AD4FDCE9D2E68FF47F65D6F7A3FE7647F0E7FDC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Dispatch (2025) [Ru/Multi] (1.0.14753/dlc) Repack Wanterlude [Digital Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:0A8F3DF78A26B4C83DCC4DF140E57734600D8D88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Castle Crashers (2012) [Ru/En] (3.0/dlc) Repack Necros
 magnet:?xt=urn:btih:670AB29E3CFD63F3C66B0D0B8E8B354470A6513E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Knightica - сочетает в себе жанры стратегии и сим
 ```bash
 magnet:?xt=urn:btih:C700E062F0DFC49A8D9000122D8932A040D268DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Warcraft II: Remastered (2024) [Ru/Multi] (1.0.0.2157) Repack Necros
 magnet:?xt=urn:btih:B809DCF41679B955474790ABAC225499576570A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:B809DCF41679B955474790ABAC225499576570A2
 ```bash
 magnet:?xt=urn:btih:F0F25D0376A8036E1F3930B95887445F198B1CB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:F0F25D0376A8036E1F3930B95887445F198B1CB2
 magnet:?xt=urn:btih:C918A07EBD16CDBA1D0BD54F1259427F48CBF1C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:E4E9A171BEE07EDEB9BB4BEC6B22AB49D0F08298
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ MediaHuman YouTube Downloader 3.9.17 (2210) [Multi/Ru]
 magnet:?xt=urn:btih:BBBB078828E8E8D094874B7730D3E01BB46E86AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Skandal - это декоративный шрифт в стиле модерн 
 ```bash
 magnet:?xt=urn:btih:2C4E1FC649C50833D346D108D94FCF43CD606DB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

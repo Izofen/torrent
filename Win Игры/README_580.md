@@ -1,27 +1,3 @@
-###  Публикация: 1850679   (1054519) от 
-
-ANNO: Mutationem (2022) [Ru/Multi] (1.2.00.00/dlc) Repack Let'sРlay [Collectors Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в ANNO: Mutationem – мир киберпанка и неоновых огней! В этом приключенческом боевике с элементами RPG вам предстоит оказаться в роли Энн – опытной одиночки с высокими боевыми способностями, которая выполняет ответственное задание в гигантском Метрополисе, полном зловещих мегакорпораций, таинственных радикальных группировок и существ настолько причудливых, (   Читать дальше...   )Тип издания: RepackРазработчик: ThinkingStarsЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: Английский, Японский, Китайский (традиционный, упрощенный)Язык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ED7030495E37A71457BF80688E3E34E3CF9C361
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850907   (1054580) от 
 
 I Hate This Place [Ru/Multi] (1.0.13_15856) Repack Let'sРlay
@@ -42,6 +18,8 @@ I Hate This Place [Ru/Multi] (1.0.13_15856) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:A97060A99895E955251ED88A95A3FB0B5554EE9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Cairn (2026) [Ru/Multi] (1.0.299s_1713/dlc) Repack Wanterlude
 magnet:?xt=urn:btih:9E31AF2737ABF9DB3BB7270087800FC00DB6D96A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Sonic Frontiers (2022) [Ru/Multi] (1.42/dlc) Repack FitGirl [Digital Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:FD307BFE7AECAF77851528F55E6C00802A390FEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Sonic Frontiers (2022) [Ru/Multi] (1.42/dlc) Repack dixen18 [Digital Deluxe Edit
 magnet:?xt=urn:btih:BF0CB62E457022E099D99CFFB114B152480730BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Bridge to Another World 13: Fate of the Seasons (2026) [En] (1.0) Unofficial [Co
 ```bash
 magnet:?xt=urn:btih:D9CDFA237928E88A206E0C50C28FFD8C782AEC2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Cairn (2026) [Ru/Multi] (1.0.299s_1713/dlc) Repack Let'sРlay [Deluxe Edition]
 magnet:?xt=urn:btih:7A6646DFB8EDECCA18BA130AC61207B16BC1E064
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Sonic Frontiers (2022) [Ru/Multi] (1.42/dlc) Repack Wanterlude [Digital Deluxe]
 ```bash
 magnet:?xt=urn:btih:E14E8D007628F6C9435D8114914B6F9E50CEEE8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Sonic Frontiers (2022) [Ru/Multi] (1.42/dlc) Repack Let'sРlay [Digital Deluxe]
 magnet:?xt=urn:btih:0CBA7266FBB4AC5418C5F8606C1E0692D65397CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Occupy Mars это высокотехничный, открытый мир, пе
 ```bash
 magnet:?xt=urn:btih:EE0FD22731E94DB4FF8558099E8F7F37AA250796
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Chinese Frontiers (2025) [Ru/Multi] (2.1.1401) Repack Other s
 magnet:?xt=urn:btih:A6CEEFCA01879820C339713F2571385C7DE46235
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Dead Space (2023) [Ru/Multi] (Build 10602756/dlc) Repack dixen18 [Digital Deluxe
 ```bash
 magnet:?xt=urn:btih:D213231EB8B93A50D2E669D912E2B1FF03A316F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Disco Elysium - это новаторская смесь из сваренног
 magnet:?xt=urn:btih:9D2EE7382CD647ABB876AD401F4E6BD075654F10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ TRAIL OUT (2022) [Ru/Multi] (1.1/dlc) License GOG [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:AC29E32E205FC75EB97F2016762573D92E606148
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Five Nights In Saransk / Пять ночей в Саранске (2025) [Ru/En] 
 magnet:?xt=urn:btih:BBFDF467C7089B62C442FD032324C48FB1AAAEB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ Cairn (2026) [Ru/Multi] (1.0.299s_1713/dlc) Repack Other s [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:79F4DD40263199B56FD38B55DAAC72C99D793397
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ Cairn (2026) [Ru/Multi] (1.0.299s_1713/dlc) Repack FitGirl [Deluxe Edition]
 magnet:?xt=urn:btih:BE5D373CD4ECC09FD778D3489EC4996EF6D1AF34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ Cairn (2026) [Ru/Multi] (1.0.299s_1713) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:F689C952B969FC126EBF149C2C7DE778E0D18F01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ Cairn (2026) [Ru/Multi] (1.0.299/dlc) License GOG
 magnet:?xt=urn:btih:595DF638D8C20DB383FC92095E2A6F35D4BB83D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ I Hate This Place [Multi] (1.0.0.15852) License GOG
 ```bash
 magnet:?xt=urn:btih:04A68B2CBF44AF1A9C3060FDCF7F2BB34BB7B2B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Vampires: Bloodlord Rising (2026) [Ru/Multi] (1.0.1.19431/dlc) License GOG [Earl
 magnet:?xt=urn:btih:849DF37A44B9BB2F01C65C51BF41802034F84FEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ Fear The Timeloop (2026) [Ru/Multi] (1.0.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:CD81D2AA7A7E00DDC330CB4380FB34E96AE5C849
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ Immortals of Aveum, сочетающая в себе шутер от перво�
 magnet:?xt=urn:btih:FB1D2E0234D3034A994696ADFA1CC40B2D91C246
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.18.1029/dlc) Repack Wanterlude [The One 
 ```bash
 magnet:?xt=urn:btih:1B920A2E1126B6F9040B52051C01F66B028434EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ Super Woden: Rally Edge (2026) [Ru/Multi] (Build 21510214) Repack Other s
 magnet:?xt=urn:btih:02415AECCE96271BD6FD4CF2C865440E3DE46DC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ Super Woden: Rally Edge (2026) [Ru/Multi] (Build 21510214) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:350ABD3933C4C6F50936C53D41CD3955D6F288F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851271   (1055012) от 
+
+DYSTHANASIA (2025) [Multi] (1.0.8.1/dlc) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девушка просыпается в холодном, сыром морге. Стены и пол покрыты ещё не высохшими пятнами крови и неузнаваемыми кусками плоти... Жуткие стоны нечеловеческих существ эхом разносятся по воздуху. В этом исследовательском центре, искажённом злом и населённом потусторонними существами, ты можешь бежать, прятаться или использовать инструменты, чтобы попытаться спастись... (   Читать дальше...   )Тип издания: LicenseРазработчик: Madowaku KoboЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Английский, Японский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Японский, Китайский (упрощенный, традиционный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D9F4994008B87ACC66AD7DFF97049A41C60DDD3
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

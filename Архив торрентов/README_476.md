@@ -28,6 +28,8 @@ B4. Аукцыон - Лети, лейтенант (4:21)
 magnet:?xt=urn:btih:8A552D81F519C9C56A51E80CFFEE6C5066CF2436
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -56,6 +58,8 @@ magnet:?xt=urn:btih:8A552D81F519C9C56A51E80CFFEE6C5066CF2436
 magnet:?xt=urn:btih:4C2AFD40951DB211211CF3322BA1A9AD29A54223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -79,6 +83,8 @@ magnet:?xt=urn:btih:4C2AFD40951DB211211CF3322BA1A9AD29A54223
 ```bash
 magnet:?xt=urn:btih:F4195DA4087954C75CEB35BD3363A440F1A9180B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -104,6 +110,8 @@ magnet:?xt=urn:btih:F4195DA4087954C75CEB35BD3363A440F1A9180B
 magnet:?xt=urn:btih:293C2C6A2E01DF9EF33C0AC13FB4FC399302C926
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:293C2C6A2E01DF9EF33C0AC13FB4FC399302C926
 ```bash
 magnet:?xt=urn:btih:97CEEFE0BEE67C5C94C67F10ED18AE866F5CC625
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +166,8 @@ Party Design - Designed Piano Melodies Bundle 3-in-1 MIDI [английский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ Party Design - Designed Piano Melodies Bundle 3-in-1 MIDI [английский]
 ```bash
 magnet:?xt=urn:btih:C532F751DD5A1390ECC0B6AD53D513142DB6FC4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -207,6 +221,8 @@ magnet:?xt=urn:btih:C532F751DD5A1390ECC0B6AD53D513142DB6FC4B
 ```bash
 magnet:?xt=urn:btih:C33B4275BA91AA2920DF6574E16F214A8F88974D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +253,8 @@ Peter Bjargo - The Architecture Of Melancholy (2011) [FLAC|Lossless]<Dark Ambien
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +289,8 @@ Peter Bjargo - The Architecture Of Melancholy (2011) [FLAC|Lossless]<Dark Ambien
 magnet:?xt=urn:btih:F3DF841DE5725DA528BBE896BAFCED6522C1F274
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +324,8 @@ David Michael Cass - Piano Moods: Capture the Spirit (1999) [MP3| 140-159 кб/�
 magnet:?xt=urn:btih:08DF7A1BD80C3252A9C1B5C9FD797C520D56CA52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +349,8 @@ BitTorrent - клиентская программа пиринговой сет
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +376,8 @@ BitTorrent - клиентская программа пиринговой сет
 magnet:?xt=urn:btih:D887C9D39D8F1EE61E95129C569B75F4B4BEF66B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +401,8 @@ magnet:?xt=urn:btih:D887C9D39D8F1EE61E95129C569B75F4B4BEF66B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +430,8 @@ magnet:?xt=urn:btih:D887C9D39D8F1EE61E95129C569B75F4B4BEF66B
 magnet:?xt=urn:btih:B42199B12ECBE687ECFDD3B3C6A7A2CE084EDC96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ magnet:?xt=urn:btih:B42199B12ECBE687ECFDD3B3C6A7A2CE084EDC96
 magnet:?xt=urn:btih:B98BA3C5ABA42D2F79EA12CB9E7C6F1E13950FD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +481,8 @@ Unit One - это спецподразделение датской полици
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +510,8 @@ Unit One - это спецподразделение датской полици
 magnet:?xt=urn:btih:7A467841A944BE0B1FC4EEEA592741668BA43566
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +537,8 @@ Clo - это платформер-головоломка. В игре вы уп�
 ```bash
 magnet:?xt=urn:btih:79564F8056CA556167DC4C75E78ADC0D30F578F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +567,8 @@ magnet:?xt=urn:btih:79564F8056CA556167DC4C75E78ADC0D30F578F2
 magnet:?xt=urn:btih:64F45C2CCDB113F60811C352BF39E27A6B026ACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +596,8 @@ Tarja Turunen & Harus - In Concert - Live at Sibelius Hall (2011) [FLAC|Lossless
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +621,8 @@ Tarja Turunen & Harus - In Concert - Live at Sibelius Hall (2011) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:3E38C278480FA99DE564BC9AEB083247E8832C1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +648,8 @@ BitComet - это функциональный, быстрый и простой
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +673,8 @@ BitComet - это функциональный, быстрый и простой
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +707,8 @@ BitComet - это функциональный, быстрый и простой
 magnet:?xt=urn:btih:EEDCF6EA3A77EEFB3967C900F90392851706D43A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -682,6 +732,8 @@ Alarm from ENOT 1.1 [Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

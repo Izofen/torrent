@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4476B5C3140FC53348958B5229BE6EF818757F12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:4476B5C3140FC53348958B5229BE6EF818757F12
 ```bash
 magnet:?xt=urn:btih:F2187473DB174DBD2A89DDDF90247074721028F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -80,6 +84,8 @@ Jim Reeves - The Legendary Jim Reeves (1988) [FLAC|Lossless]<Country, Nashville 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -105,6 +111,8 @@ Jim Reeves - The Legendary Jim Reeves (1988) [FLAC|Lossless]<Country, Nashville 
 magnet:?xt=urn:btih:648D525256AED12ED6201C010CB7B6F17F0B64C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ magnet:?xt=urn:btih:648D525256AED12ED6201C010CB7B6F17F0B64C6
 magnet:?xt=urn:btih:9AF9B53793F1F23B192A6C44E0E48ED2F837DB84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ BBC: Мир природы. Мамы и детеныши / The Natural World. Wi
 ```bash
 magnet:?xt=urn:btih:9F3F7724E3DF1529683B7ACC073BA123ABF5758C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -186,6 +198,8 @@ Double B - Мы Любим Власть (2012) [MP3|320 кб/с]<Rap>
 magnet:?xt=urn:btih:44C1FDC2AC4D6D7CDBAAC97015BE1DE352D81A84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +233,8 @@ VA - The Technosopher's Stone [WEB] (2011) [FLAC|Lossless]<Psychedelic>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +259,8 @@ VA - The Technosopher's Stone [WEB] (2011) [FLAC|Lossless]<Psychedelic>
 magnet:?xt=urn:btih:1229AC26990FA528EDF6D3792FE2E7D3EB9434E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +284,8 @@ magnet:?xt=urn:btih:1229AC26990FA528EDF6D3792FE2E7D3EB9434E4
 ```bash
 magnet:?xt=urn:btih:DB758C68A557ADDF6E4B18B19A0287DBE13480FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +318,8 @@ Sтранный - Sunrise (2012) [MP3|320 кб/с]<Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:F72705343661905B0C0CF9EBC6340457BB7C46B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +354,8 @@ magnet:?xt=urn:btih:F72705343661905B0C0CF9EBC6340457BB7C46B1
 magnet:?xt=urn:btih:FBF4C4AA0A63712D4CA05C8C273B768CC82237D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +379,8 @@ Media Player Classic HomeCinema – удобный во всех планах м
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +415,8 @@ Media Player Classic HomeCinema – удобный во всех планах м
 magnet:?xt=urn:btih:559046EB3490B84ACE75B7EFDF2255C4B9D61530
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +447,8 @@ Charles Gayle Trio - Streets (2012) [MP3|320 кб/с]<Jazz>
 magnet:?xt=urn:btih:57C2E99909571FAD2B0C543970D5DCC7C2F59B19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +473,8 @@ magnet:?xt=urn:btih:57C2E99909571FAD2B0C543970D5DCC7C2F59B19
 magnet:?xt=urn:btih:93D3961389880567E2571CA004C8FB7015B73A30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +498,8 @@ magnet:?xt=urn:btih:93D3961389880567E2571CA004C8FB7015B73A30
 ```bash
 magnet:?xt=urn:btih:319B03E0D2DA090B0D1EC3211874A48CB1D78930
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +534,8 @@ Panic Inside - Чикаго (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
 magnet:?xt=urn:btih:60354C32D6DC4C8379489382C27E2F1C5E08E493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +568,8 @@ Earl Carter - My Paradise (2007) [FLAC|Lossless]<Smooth Jazz>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +604,8 @@ VA - German TOP50 ODC (05.03.12) (2012) [MP3|256 kbps]<Pop | Dance>
 magnet:?xt=urn:btih:0AC06CE5D17FB61CDDAE37EE49BE3AFAA6B6FF71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +638,8 @@ VA - Timegate 2012 (2011) [MP3|~254 кб/с (V0)]<Psy-Progressive>
 ```bash
 magnet:?xt=urn:btih:B36F2E25555F2211C4E4EBBE667B76E1B5920A36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +674,8 @@ VA - Мозговая Атака (2012) [MP3|256 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:CEEDBE05C30E0CBB67524805186E571B879F58FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +700,8 @@ magnet:?xt=urn:btih:CEEDBE05C30E0CBB67524805186E571B879F58FF
 ```bash
 magnet:?xt=urn:btih:056BF936968256154FE9FE20D87352C69DFF345D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -690,6 +736,8 @@ VA - Tyske Schlager Favoritter (2012) [MP3|320 kbps]<Pop | Dance>
 magnet:?xt=urn:btih:90B0033502F265FC0EAF330F90F44C77A93B8B16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -713,6 +761,8 @@ Media Player Classic HomeCinema – удобный во всех планах м
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -741,6 +791,8 @@ Alexander Dancaless - Boldness Of Dream (2012) [MP3|320 Kbps]<Downtempo, Idm>
 ```bash
 magnet:?xt=urn:btih:2CA17CAAD5A56F24544F5DEC731522747531229B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

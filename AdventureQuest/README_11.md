@@ -19,6 +19,8 @@ Old Skies (2025) [En] (1.1) Repack FitGirl
 magnet:?xt=urn:btih:79A568201EC3D8331B2F6B0ADEF7C75310E3C907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Haunted House Renovator (2025) [Ru/Multi] (1.3.190) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7499BF54783C66B15B9A3B36686D8460EE03ACD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.14.4.1/dlc) Repack FitGirl [Backstage Ed
 magnet:?xt=urn:btih:E110D6B5D38C7DB44312DB18CD57B4CB4A11C344
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Moroi предлагает геймплей, включающий сражени
 ```bash
 magnet:?xt=urn:btih:2406060E712E0E90CACEB3706DFE871599EB254B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Raft: The Final Chapter (2018) [Ru/Multi] (1.1.03 Beta/dlc) Repack Pioneer
 magnet:?xt=urn:btih:301902B58DCA6EA0CFF7CBED099E406E882DD994
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ True Fear: Forsaken Souls (2016) [Ru/Multi] (2.0.12:608) Repack Let'sРlay [Part
 ```bash
 magnet:?xt=urn:btih:7F0690438E22D48196FFCE1EEE7F526470255998
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ True Fear: Forsaken Souls Part 2 – продолжение атмосферно
 magnet:?xt=urn:btih:99550B93F8AA7B557C7D9C470641D97F21CDF259
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Post Trauma (2025) [Ru/Multi] (1.05.02) Repack Let'sРlay [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:7EB5535570F71F94FD3805A6E8E29167675F8DAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ BLACKSHARD предлагает игроку изучение от первог�
 magnet:?xt=urn:btih:B366009F27647BFE808FFD81FE7AC2A1000E6CF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ House of Lost Souls - это атмосферная сюжетная игра о
 ```bash
 magnet:?xt=urn:btih:7DC670E5DE80026CF4432A399A6E4B9B80723E06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (Build 18281736) Repack Let's
 magnet:?xt=urn:btih:4B03C852FFC62F2B30BEC2D476215554C4BA5E8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.14.4.1/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:6BEBC5DD26F0BE426F295433B9B5A949813AD14C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Survivalist: Invisible Strain (2020) [Ru/Multi] (242) Repack FitGirl
 magnet:?xt=urn:btih:3CD4018BB053CE322E7908C224FA8481674963F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Orphans (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4A41C23D80721E1B7F2BE2FECA0154165729C8CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.0) Repack FitGirl [Digital
 magnet:?xt=urn:btih:FA5CBFCA83F80CA010DA634420052507DADD00DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:6A55A5E720566DAA086060EA8899E9672DD9A49A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ In Nightmare - это повествовательная приключенче�
 magnet:?xt=urn:btih:AF6DC6D240E95CEEDF68838D0B7B0AC141ECCE9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ True Fear: Forsaken Souls Part 3 завершает популярную три�
 ```bash
 magnet:?xt=urn:btih:0B493DDE02724561BAC601CFECC807C726947744
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Firmament - новая игра-приключение с загадками о�
 magnet:?xt=urn:btih:9C900DDEA1036A1B8288B77AF59097645E59E093
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Burial (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:19C88EE88387217E6B609352B5647C9A5573D85B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Riven (2024) [Ru/Multi] (1.7.1) Repack Let'sРlay [The Deluxe Edition]
 magnet:?xt=urn:btih:D2AEA7CC6B5FC1FBBB3F5441D6FB980707DC7B83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Firewatch (2016) [Ru/Multi] (1.12) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:F1686744D6D2E8AE082D9461AC918989B7057C33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Empty Desk - первая глава серии Detective Bennett: Solved Ca
 magnet:?xt=urn:btih:819BA89678AB9BEB31F58C39A1A6940B581028B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ South of Midnight (2025) [Ru/Multi] (1.2.0 185 531) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:42065530C951CAE36AEBB9D594A57D22257726C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.37915) License GOG [Digita
 magnet:?xt=urn:btih:5B4BD5622E5A88BEEB05D13BE8A544A7955CBC80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Everdream Valley (2023) [Multi] (5.0423.1455/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:75111A58333DA219AFFDEE2812B57D87AF3D2AA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

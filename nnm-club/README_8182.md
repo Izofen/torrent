@@ -22,6 +22,8 @@ Mirko Hirsch - Flashes in the Night (2021) [AAC|~352 Kbps] <Pop, Disco>
 magnet:?xt=urn:btih:0DF2A09E5CD70682493467B5F97B1B4637209FC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Sketch - это инструмент для векторного дизайна 
 ```bash
 magnet:?xt=urn:btih:39B1D09EDBAA8BDB521AA9121951AE5CA7F2169A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:39B1D09EDBAA8BDB521AA9121951AE5CA7F2169A
 magnet:?xt=urn:btih:4CECEFF8E66C29BD365A2377751896EE520301DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:4CECEFF8E66C29BD365A2377751896EE520301DE
 ```bash
 magnet:?xt=urn:btih:A119B8B43639988BCF870739ADD746DC3078FBFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Legacy Pilots - Helix (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Sy
 magnet:?xt=urn:btih:771B9DB4583CB5FF3600DC9E1DD4811F7C012C99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:771B9DB4583CB5FF3600DC9E1DD4811F7C012C99
 ```bash
 magnet:?xt=urn:btih:E937F4CB76C173FB9AE5608A43FEADBE9A4AE4ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ Sedmina - Melita & Veno Dolenc (1980) Reissue,  2014,  Mellotron Records [FLAC|L
 magnet:?xt=urn:btih:82204A80189259DA4480E4F1A28CF7109DF48AD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ VA - Infinite Fade: Chillout Your Mind (2021) [AAC|~313 Kbps] <Lounge, Chill Out
 magnet:?xt=urn:btih:A8A3659015B710C6880BA07E57DE32A56E271A02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ magnet:?xt=urn:btih:A8A3659015B710C6880BA07E57DE32A56E271A02
 magnet:?xt=urn:btih:EDEB95AB3644B9ED8AFF5C85651A753A0B93A3AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:EDEB95AB3644B9ED8AFF5C85651A753A0B93A3AA
 ```bash
 magnet:?xt=urn:btih:3FA72A51BB64B8A54E35AA624AFC3B47827FB7A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +299,8 @@ VA - EDC Radio Clubbing Sound (2021) [MP3|320 Kbps] <Club House, Techno, Trance,
 magnet:?xt=urn:btih:EFE96F99F144CC1C9EC901D82B69F64A73369799
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ Dynamic Wallpaper Engine позволяет использовать живые 
 ```bash
 magnet:?xt=urn:btih:194F4B0F6035256C5D0F6B33F513406EC5F6D729
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -330,6 +354,8 @@ Demonstealer - The Propaganda Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech
 magnet:?xt=urn:btih:F6187A758D278A2A8E73140AA9D1A6345D653FA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:F6187A758D278A2A8E73140AA9D1A6345D653FA8
 ```bash
 magnet:?xt=urn:btih:760BC2735795CF2DBC52198C029DD3917ED8EFE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:760BC2735795CF2DBC52198C029DD3917ED8EFE4
 magnet:?xt=urn:btih:C948C32B8682E18BB8DC21DB98AD4BAEA276B99D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:C948C32B8682E18BB8DC21DB98AD4BAEA276B99D
 ```bash
 magnet:?xt=urn:btih:67A51D9F21B693EB7C338E8CB90850964AED1615
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ VA - Musica Elegante (2020) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
 magnet:?xt=urn:btih:69558894C8B029148BE9CA69A84DC097F7AF6931
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +491,8 @@ Deathcode Society - Eschatonizer (2015) [FLAC|Lossless|image + .cue] <Symphonic 
 magnet:?xt=urn:btih:67B3B10A778EB3D16228611C5C84457797D653DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ Sketch n Cartoonize - лучшее приложение, чтобы придат
 ```bash
 magnet:?xt=urn:btih:87C1E065E32C0484869A4B17AA2123C9F4145AFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +543,8 @@ magnet:?xt=urn:btih:87C1E065E32C0484869A4B17AA2123C9F4145AFB
 magnet:?xt=urn:btih:9DE9810449359C4A80A490CA8F30C095E46B3A0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ Textify — это крошечная утилита, позволяющая с�
 magnet:?xt=urn:btih:020DFB6AAFD368FA0829D58D854A849F87361B4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ magnet:?xt=urn:btih:020DFB6AAFD368FA0829D58D854A849F87361B4C
 ```bash
 magnet:?xt=urn:btih:0DD706D3793E38F6F857A622051F4CE552AD60CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ Sekta Core - En la Zona del Terror (En Vivo) (2021) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:F3B6A57FF866DED8E4581B8F488B7748FA222BB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +652,8 @@ Austere - Corrosion of Hearts (2023) [FLAC|Lossless|WEB-DL|tracks] <Depressive B
 ```bash
 magnet:?xt=urn:btih:019AA6D88719A231CE47374754045B343AECC61F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +682,8 @@ High Spirits - Another Night (2011) [FLAC|Lossless|image + .cue] <NWoBHM>
 magnet:?xt=urn:btih:79278368024CFE7E7520907C6CFAA5C63940A3E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ Scribble Art Animations — это современный шаблон с нар
 ```bash
 magnet:?xt=urn:btih:35B40A6BE67A7CEB7163A48746117D415CA9346B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

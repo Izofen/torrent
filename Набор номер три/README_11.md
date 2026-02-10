@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:204C9811E607041C3BEA6A6E5D30C7724E71A45E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:204C9811E607041C3BEA6A6E5D30C7724E71A45E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:204C9811E607041C3BEA6A6E5D30C7724E71A45E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:204C9811E607041C3BEA6A6E5D30C7724E71A45E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:204C9811E607041C3BEA6A6E5D30C7724E71A45E
 ```bash
 magnet:?xt=urn:btih:20676F0B193A54BAA8024D61A7041431FF74AFEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ MInstAll v.03.07.2025 By Andreyonohov (ISO) [Ru]
 magnet:?xt=urn:btih:34BC2D137561A078E9D303F6000AFF9FA8094FB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:34BC2D137561A078E9D303F6000AFF9FA8094FB7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:34BC2D137561A078E9D303F6000AFF9FA8094FB7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:34BC2D137561A078E9D303F6000AFF9FA8094FB7
 ```bash
 magnet:?xt=urn:btih:6903DD14F57E89F41ADA5D63235DFFDD49BA86BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:6903DD14F57E89F41ADA5D63235DFFDD49BA86BB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ The Outer Worlds — новая однопользовательская нау�
 ```bash
 magnet:?xt=urn:btih:3256225F9A5DA64F2DF0EC3957E0B27535739B7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Launcher for zapret 2.8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:71A609D05DD4293280AB576064B86EA59602B638
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:71A609D05DD4293280AB576064B86EA59602B638
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:71A609D05DD4293280AB576064B86EA59602B638
 ```bash
 magnet:?xt=urn:btih:C6BC7F5945A16AAC6A7AA2F57CF5A315BC33DAA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:C6BC7F5945A16AAC6A7AA2F57CF5A315BC33DAA9
 magnet:?xt=urn:btih:9DE6F9BF40D4E17C29AC95DDA6D1E7ED8B70EEF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:9DE6F9BF40D4E17C29AC95DDA6D1E7ED8B70EEF3
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:9DE6F9BF40D4E17C29AC95DDA6D1E7ED8B70EEF3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:9DE6F9BF40D4E17C29AC95DDA6D1E7ED8B70EEF3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Medieval Dynasty (2020) [Ru/Multi] (2.4.0.4/dlc) License GOG [Digital Supporter 
 ```bash
 magnet:?xt=urn:btih:F9744DF235034D7223FC8DA8006239B75949E14F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Windows 10 Pro 22H2 19045.5965 x64 by SanLex [Lightweight] [Ru-En] (2025.07.04)
 magnet:?xt=urn:btih:8CD478F416AFC90EF1659E34F8A7D68EA50119F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:8CD478F416AFC90EF1659E34F8A7D68EA50119F3
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:8CD478F416AFC90EF1659E34F8A7D68EA50119F3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258.834/dlc) Repack Other s [Digital
 ```bash
 magnet:?xt=urn:btih:60DF3AC9FA645E3DF2CBEBC98BBB9B5996D55CB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:60DF3AC9FA645E3DF2CBEBC98BBB9B5996D55CB3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:60DF3AC9FA645E3DF2CBEBC98BBB9B5996D55CB3
 magnet:?xt=urn:btih:719F3D25E5064457EA4D58315B4375E09DCAFD61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:719F3D25E5064457EA4D58315B4375E09DCAFD61
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1057827   (473289) от 29.09.2016
+
+Время покажет (29.09.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473289.jpg" />
+</div>
+
+
+###  Подробнее
+
+В студии программы «Время покажет» обсуждают то, что волнует каждого из нас, жителей России. В дискуссии принимают участие как эксперты – политики, политологи, журналисты, предприниматели, так и просто неравнодушные россияне.Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCDF376820E2EF2A7835253C7C0097765454C616
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939790   (473333) от 22.09.2015
 
 Самые шокирующие гипотезы. Страшное место Земли (21.09.2015) SATRip
@@ -21,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:6542FAEA2601FAD68CB097DC5058134FE2B8D8B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:6542FAEA2601FAD68CB097DC5058134FE2B8D8B1
 magnet:?xt=urn:btih:8530DEE152DCD2A583AAB5A4021C81B397C23115
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:8530DEE152DCD2A583AAB5A4021C81B397C23115
 ```bash
 magnet:?xt=urn:btih:7A5EE9F55156C7D1CF75D1A8E94D377AAF7C8CCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:7A5EE9F55156C7D1CF75D1A8E94D377AAF7C8CCD
 magnet:?xt=urn:btih:89CD6C422AADA3D089CD5E0B7A253DF2F092D57B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:89CD6C422AADA3D089CD5E0B7A253DF2F092D57B
 ```bash
 magnet:?xt=urn:btih:140359ED557CDE14DAEF381DD8C0D8A8E5555379
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:140359ED557CDE14DAEF381DD8C0D8A8E5555379
 magnet:?xt=urn:btih:99B867D27A5B9F33528ABF355F5FF72D693156E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:99B867D27A5B9F33528ABF355F5FF72D693156E6
 magnet:?xt=urn:btih:E9BF8A913A32EAA256882B7110F338093B9AFD32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:E9BF8A913A32EAA256882B7110F338093B9AFD32
 ```bash
 magnet:?xt=urn:btih:3C21B94A71886A93795C42A8100D132E6A0158B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:3C21B94A71886A93795C42A8100D132E6A0158B3
 magnet:?xt=urn:btih:50C8AFA8B3404BF0D8F2EC901786C4E21F3B293E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:50C8AFA8B3404BF0D8F2EC901786C4E21F3B293E
 ```bash
 magnet:?xt=urn:btih:DE9C2F53D92DAA8725D1AFB31E3FFC329306B0BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:DE9C2F53D92DAA8725D1AFB31E3FFC329306B0BE
 magnet:?xt=urn:btih:478B0A72438D5CB35E22695A8B68E5005470E1D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:478B0A72438D5CB35E22695A8B68E5005470E1D4
 ```bash
 magnet:?xt=urn:btih:28CEDD4EBFF53DF280A8AAA0B301298B7CD38D91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:28CEDD4EBFF53DF280A8AAA0B301298B7CD38D91
 magnet:?xt=urn:btih:AE60474E04DE8B8D309525B8032D59535C23B60C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:AE60474E04DE8B8D309525B8032D59535C23B60C
 magnet:?xt=urn:btih:AF951BB829A790FF339898642E8F63F184FE6C7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:AF951BB829A790FF339898642E8F63F184FE6C7C
 ```bash
 magnet:?xt=urn:btih:F2EC7311205DDC10CD4E7D93AD3180F45573374B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:F2EC7311205DDC10CD4E7D93AD3180F45573374B
 magnet:?xt=urn:btih:7BAACEFBB816016C5CE3D5D74C0D457D79B4BAAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:7BAACEFBB816016C5CE3D5D74C0D457D79B4BAAC
 ```bash
 magnet:?xt=urn:btih:7841BE4FCD31A731D34EAF7FF07A8F57A6F68775
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:7841BE4FCD31A731D34EAF7FF07A8F57A6F68775
 magnet:?xt=urn:btih:3B6139EB4223C64CDD71EC477595A36353D960A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:3B6139EB4223C64CDD71EC477595A36353D960A6
 ```bash
 magnet:?xt=urn:btih:771C8F491CFE0DD4346A6864429D9FF502B67DC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:771C8F491CFE0DD4346A6864429D9FF502B67DC9
 magnet:?xt=urn:btih:08A0731401330C54F5BAC9218E919EC0CAAB733F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:08A0731401330C54F5BAC9218E919EC0CAAB733F
 ```bash
 magnet:?xt=urn:btih:D1A878C690894306441E3693CB66206D73AEAD2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:D1A878C690894306441E3693CB66206D73AEAD2B
 magnet:?xt=urn:btih:52A23CFA3E41917EA47EF368B78B1CF2CECC45C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +625,8 @@ SOS Фукусима / SOS Fukushima (2011) DVB
 ```bash
 magnet:?xt=urn:btih:9A1A9E7F571DA924F012DD9D4505C52ABDB5400B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:9A1A9E7F571DA924F012DD9D4505C52ABDB5400B
 magnet:?xt=urn:btih:64D98044A5A56A477EE3ABC62514FD2F3DE94A28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:64D98044A5A56A477EE3ABC62514FD2F3DE94A28
 magnet:?xt=urn:btih:C268854B2DA14D2F9E5700CB88CA8F5E8EA49813
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320099   (475184) от 16.08.2019
-
-Живые мертвецы Помпеев / Pompeii's Living Dead (2018) HDTVRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие гипсовые отливки жертв вулкана в Помпеях, сделанные в 1863 году, сильно пострадали с течением времени. Профессор Джианкарло Наполи возглавляет команду, которая реставрирует хрупкие экспонаты.Производство: ИталияЖанр: Документальный, история, исследованияРежиссер: Марцелло АдамоПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB4E4DA64BB538986BC49AD8C5C97D2931285A05
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

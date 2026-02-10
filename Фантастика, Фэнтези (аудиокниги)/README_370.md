@@ -1,3 +1,29 @@
+###  Публикация: 1312454   (532561) от 04.07.2019
+
+Наталья Жильцова | Скрижаль Мораны (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая некромантка Тень чудом остается в живых после битвы великих магов, но на этом ее злоключения только начинаются. Сорваны печати древнего схрона, сильнейший артефакт в руках безумцев из Братства Света, война между Светлыми и Темными не за горами…Бросает нашу героиню из огня да в полымя: то архимаг в заложники возьмет, то светлые эльфы к казни приговорят. И (   Читать дальше...   )Жанр: Любовное фэнтези, Магические академииПродолжительность: 11:24:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1064F2B77D24927E55E7B2E4D7F6A0DE6436147
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155472   (533350) от 03.08.2017
 
 Анна Котавуопио | Песнь койота (2017) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:AF1E4DA3C507C91150C194A53F79FB7BC842B56D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:AF1E4DA3C507C91150C194A53F79FB7BC842B56D
 magnet:?xt=urn:btih:462F4B066633B40FCEC9F6AAB138358B289D7FBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:462F4B066633B40FCEC9F6AAB138358B289D7FBD
 ```bash
 magnet:?xt=urn:btih:74FB7304152421225BE3B18953AC01128EF75C5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:74FB7304152421225BE3B18953AC01128EF75C5F
 magnet:?xt=urn:btih:2A71855B4E370BBE9992751BD1FFBF24E818F50B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:2A71855B4E370BBE9992751BD1FFBF24E818F50B
 ```bash
 magnet:?xt=urn:btih:8C9DF2EBF709D8C6CDB62AEAC0034CE07EE97BC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:8C9DF2EBF709D8C6CDB62AEAC0034CE07EE97BC8
 magnet:?xt=urn:btih:4CC8AE6041BBDC0FBB08B0E2EAFB5A33A9BA8795
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:4CC8AE6041BBDC0FBB08B0E2EAFB5A33A9BA8795
 ```bash
 magnet:?xt=urn:btih:D41EE195CC6FC331FC655DF7295392ADE4C4556D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:D41EE195CC6FC331FC655DF7295392ADE4C4556D
 magnet:?xt=urn:btih:DF234B29E30133C32BCBDDC53DFF092BB9409A00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:DF234B29E30133C32BCBDDC53DFF092BB9409A00
 ```bash
 magnet:?xt=urn:btih:A73C564B2C1E71371E273DAF170A5BA329C08B29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:A73C564B2C1E71371E273DAF170A5BA329C08B29
 magnet:?xt=urn:btih:4A1627C77F98885569C1977D14CB8E08181EE607
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:4A1627C77F98885569C1977D14CB8E08181EE607
 ```bash
 magnet:?xt=urn:btih:F6BB885A34B06C1E695B22DA2646A351D9ADBE3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:F6BB885A34B06C1E695B22DA2646A351D9ADBE3D
 magnet:?xt=urn:btih:EB9CE39B425F5AFDA5F660C5E7D657300588CC01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:EB9CE39B425F5AFDA5F660C5E7D657300588CC01
 ```bash
 magnet:?xt=urn:btih:77FF91AA30A721F122AD7C7574391E7920737FE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:77FF91AA30A721F122AD7C7574391E7920737FE5
 magnet:?xt=urn:btih:9F8BDABC6234BAC1C08D4D85761E2715EB2A916F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:9F8BDABC6234BAC1C08D4D85761E2715EB2A916F
 ```bash
 magnet:?xt=urn:btih:626F955F9E907FC6C7EB978459FF82D25FBC8A37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:626F955F9E907FC6C7EB978459FF82D25FBC8A37
 magnet:?xt=urn:btih:D504FE666DB775BC5BCACDDB25BB9974D1436040
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:D504FE666DB775BC5BCACDDB25BB9974D1436040
 ```bash
 magnet:?xt=urn:btih:2D6BDAD230173F9F7428A02FEEABF3187F7F4723
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:2D6BDAD230173F9F7428A02FEEABF3187F7F4723
 magnet:?xt=urn:btih:C2087654C1EABE0C69250F82E8E493E94E5E69F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:C2087654C1EABE0C69250F82E8E493E94E5E69F5
 ```bash
 magnet:?xt=urn:btih:EB1E370ECB09CCB27121DFE53E34460AF36880B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:EB1E370ECB09CCB27121DFE53E34460AF36880B7
 magnet:?xt=urn:btih:B496CB8D9F98CAFAF36BF3B244FE31B2B1B26202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:B496CB8D9F98CAFAF36BF3B244FE31B2B1B26202
 ```bash
 magnet:?xt=urn:btih:00D79C0EB7A0F22CD07A87E4E8E1DD698A72CF40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:00D79C0EB7A0F22CD07A87E4E8E1DD698A72CF40
 magnet:?xt=urn:btih:D6B5E245F393E3B14018A24A6C7BB114EE05B294
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:D6B5E245F393E3B14018A24A6C7BB114EE05B294
 ```bash
 magnet:?xt=urn:btih:12573434930EA62C1BC48D6173F1DA6710E355D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:12573434930EA62C1BC48D6173F1DA6710E355D9
 magnet:?xt=urn:btih:DC11FA1DEAB1EBED1651DDC9BCCBBA9A97CE3D30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,30 +681,7 @@ magnet:?xt=urn:btih:DC11FA1DEAB1EBED1651DDC9BCCBBA9A97CE3D30
 magnet:?xt=urn:btih:08DD49CFFDC2DE482B1570D6744ECC7BB4BC419A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557878   (537371) от 17.06.2022
-
-Юлия Резник | Грешник (2022) [MP3, Петр Лупенко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Она была женой его сына. Но тогда, в самом начале, Глеб Громов об этом не знал. Сначала было… Нет! Даже не слово. Голос…
-Глубокий, завораживающий, тягучий, словно мед, который они в далеком, подернутом дымкой времени детстве добывали из гнезд диких пчел, сдирая в кровь коленки и рискуя свалиться с дерева. Он как будто в пропасть упал, как только ее услышал. Не разбирая (   Читать дальше...   )Жанр: Современные любовные романы, Эротические романыПродолжительность: 06:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:515D3E638424BC01CE906EF45E64072AD11BF3B8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

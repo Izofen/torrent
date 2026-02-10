@@ -1,3 +1,29 @@
+###  Публикация: 1020851   (743940) от 27.05.2016
+
+Право голоса. "Кого боится Европа?" (27.05.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743940.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Право голоса» - это место для дискуссий и арена для политических баталий. Здесь поднимаются самые острые общественно-политические проблемы страны. В этой студии нет безразличных ораторов и безучастных зрителей. У нас каждый имеет право высказаться и быть услышанным. Мы задаем политикам и чиновникам неудобные вопросы, потому что хотим получить честные ответы. Здесь (   Читать дальше...   )В этом выпуске: В конце июня на саммите ЕС будет представлена новая общеевропейская стратегия внешней политики и безопасности. Руководство ЕС утверждает, что её необходимость вызвана возросшей террористической угрозой и кризисом в отношениях с Россией. При этом ряд европейских экспертов называют это "совмещением несовместимого". Возможно ли обеспечить европейскую безопасность (   Читать дальше...   )Телекомпания: ТВ-ЦентрЖанр: Ток-шоу, дискуссия, политикаПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:381B68F039BE1DB567140855288769D9B4D6DF01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020733   (743942) от 27.05.2016
 
 Вечерний Ургант (2016.05.26) SATRip (cезон 9, выпуск 75)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:F688A22F57FC095D24E5305A96EF5F98ACB95CDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:F688A22F57FC095D24E5305A96EF5F98ACB95CDA
 magnet:?xt=urn:btih:C89109A3A96448B7A2944B839D462D5D670037E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:C89109A3A96448B7A2944B839D462D5D670037E3
 ```bash
 magnet:?xt=urn:btih:E8CB8B9E910B3459EF65D8792E7199E0E1626689
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:E8CB8B9E910B3459EF65D8792E7199E0E1626689
 magnet:?xt=urn:btih:7C7668ADD4C2CB68FAAA42880C4AB9835802C8EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:7C7668ADD4C2CB68FAAA42880C4AB9835802C8EB
 ```bash
 magnet:?xt=urn:btih:830AFA721045693D4ADB2BEB71E151C710EB70B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:830AFA721045693D4ADB2BEB71E151C710EB70B8
 magnet:?xt=urn:btih:51CBD5D159AE495CDA7C003D4D3BEBB2C6DEE2AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:51CBD5D159AE495CDA7C003D4D3BEBB2C6DEE2AB
 ```bash
 magnet:?xt=urn:btih:0FD3DFBE52D1BAC66338F460F8A14F4D94D43E97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:0FD3DFBE52D1BAC66338F460F8A14F4D94D43E97
 magnet:?xt=urn:btih:A88493A3903B5E0822D515F34FC24FE6E3635D7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:A88493A3903B5E0822D515F34FC24FE6E3635D7F
 ```bash
 magnet:?xt=urn:btih:C1875DAD313C080CA9E01FA544EB110AD909CA33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:C1875DAD313C080CA9E01FA544EB110AD909CA33
 magnet:?xt=urn:btih:FF818C8B949372BB820CBBCA15A4B1B6B33D60B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:FF818C8B949372BB820CBBCA15A4B1B6B33D60B7
 ```bash
 magnet:?xt=urn:btih:03A977AC7CAA80D7D8562A5EE0566D3797B17E74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:03A977AC7CAA80D7D8562A5EE0566D3797B17E74
 magnet:?xt=urn:btih:917E84789FA967DED7E5E0E222B2F039992CD106
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:917E84789FA967DED7E5E0E222B2F039992CD106
 ```bash
 magnet:?xt=urn:btih:BF8FA9BA0D80B4ED5E811C1A19ECFB8B640278DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:BF8FA9BA0D80B4ED5E811C1A19ECFB8B640278DE
 magnet:?xt=urn:btih:F54C02DC6F5F4AB5C740360B026D81A08226A297
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +408,8 @@ magnet:?xt=urn:btih:F54C02DC6F5F4AB5C740360B026D81A08226A297
 ```bash
 magnet:?xt=urn:btih:5FE70AEAB3AE57DFA93BC8488B6D32C5ED8C5B15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:5FE70AEAB3AE57DFA93BC8488B6D32C5ED8C5B15
 magnet:?xt=urn:btih:56E55487181AF70B28C85474F4A127F5DD8B959A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ magnet:?xt=urn:btih:56E55487181AF70B28C85474F4A127F5DD8B959A
 magnet:?xt=urn:btih:58A6EA6AC53521489857556627BB68E8AD6965D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +486,8 @@ magnet:?xt=urn:btih:58A6EA6AC53521489857556627BB68E8AD6965D2
 ```bash
 magnet:?xt=urn:btih:7A9E3C3A08FF2F733569BEE0D67F8F9BC84EFB7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:7A9E3C3A08FF2F733569BEE0D67F8F9BC84EFB7C
 magnet:?xt=urn:btih:FAC5AA792DD58CAF5BEE235A0B9B0C5BF811031C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:FAC5AA792DD58CAF5BEE235A0B9B0C5BF811031C
 magnet:?xt=urn:btih:477C4A5D285D0ADF7DE3B7BD185F9D2A9818C1F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:477C4A5D285D0ADF7DE3B7BD185F9D2A9818C1F9
 ```bash
 magnet:?xt=urn:btih:411A3A1503E51FBD220B1BD6ADF2785F62763F45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:411A3A1503E51FBD220B1BD6ADF2785F62763F45
 magnet:?xt=urn:btih:4408D2A0CA6236F9BD1AF6E69F796369B265B755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:4408D2A0CA6236F9BD1AF6E69F796369B265B755
 ```bash
 magnet:?xt=urn:btih:51FE77D74472A115573E89FC9B469359A16D33A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:51FE77D74472A115573E89FC9B469359A16D33A0
 magnet:?xt=urn:btih:11074091226A97B55FD59A57FEF367B10C57A33F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,29 +673,7 @@ magnet:?xt=urn:btih:11074091226A97B55FD59A57FEF367B10C57A33F
 magnet:?xt=urn:btih:F8B920BF1F005248F691645A0A3EAE0BFA298E18
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396590   (745439) от 16.07.2020
-
-Морской круиз. Обратно в Средиземноморье / The Cruise. Return to The Mediterranean (2018) HDTVRip [H.264/1080i] (серии 1-3)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каково это - путешествовать на одном из самых шикарных круизных лайнеров? А сколько усилий нужно приложить команде судна, чтобы 4000 пассажиров были всем довольны? Авторы сериала попытаются приоткрыть завесу тайны.Производство: EU, Wild pictures limitedЖанр: Документальный, путешествияРежиссер: С. Льюис, Р. МакдоналдПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 3 x ~00:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0803EC517E0AC854050D0678ED01B66093C7792
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

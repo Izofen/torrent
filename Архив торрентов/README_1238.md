@@ -19,6 +19,8 @@ Magic Disk Cleaner находит и удаляет временные файл�
 magnet:?xt=urn:btih:5CD36CB4C775DDE823AA7DA097EA42099BC456FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ FastScripts - Утилита для быстрого запуска AppleScript-
 magnet:?xt=urn:btih:1278CAF884E3A2E1CDFA055D291111B4825C15E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Klokki - это отслеживание времени на основе пра
 ```bash
 magnet:?xt=urn:btih:E1BDB5812653858893369808C36F3D6D84541304
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Cocktail - комплекс утилит по всестороннему обс�
 magnet:?xt=urn:btih:2BB61FF0C412A51C1D3128BE7FB2587C754F1473
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ AIDA64 - утилита является мощным средством для 
 ```bash
 magnet:?xt=urn:btih:8B15791A2F636FE3A53906AF19B8703682F1998D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Aiseesoft Mac Blu-ray Player - удобный в работе, медиа про
 magnet:?xt=urn:btih:9772CD6610142DCFD85C9976943F579EA940AF9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ ColorWell обеспечивает мгновенный доступ к стан
 ```bash
 magnet:?xt=urn:btih:FA654CB8B94BC99DC36AB9E414AD3C38DBDF5186
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ DirEqual - это инструмент сравнения папок, котор
 magnet:?xt=urn:btih:62682BF1BF5CD1ABC2E7EEEFAD4F28C2AC61BA8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ OmniReader - полифункциональное приложение для ч
 magnet:?xt=urn:btih:BFD1750DC2CE7E75F5FC5BB9327B334924BAD183
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Network Kit 9.0.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:BEE5B64326E4705690E0A0B77EEC5C5194AA2A81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Codepoint for Mac 1.12 [Multi]
 magnet:?xt=urn:btih:9FC0B7A0B0B02E85CA7292807F1DECDF8810F21E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ CheckBook Pro - это не просто базовый инструмент р�
 ```bash
 magnet:?xt=urn:btih:3E37E2ED94BEC91C418469A03D2154E3E7F77126
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Jettison - размонтирование внешних дисков перед
 magnet:?xt=urn:btih:B0D4F3D7638388BCA3EBA8A9872CF8B386B3F704
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ EdgeView 3 - это новейший просмотрщик изображени
 ```bash
 magnet:?xt=urn:btih:179D90C810039F9C921CBF753092BDFDA3EF0408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ DiskCatalogMaker  - Простая утилита для управления и
 magnet:?xt=urn:btih:434E5F4A1F2EAB26EACC8E85DBDB06E75188DD40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 magnet:?xt=urn:btih:E0B270D54DBA971D723B5ADE1FE199078EEFF568
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ AnyMP4 DVD Creator – профессиональная утилита, кото
 ```bash
 magnet:?xt=urn:btih:8B32F3619145F18AE53293CD28AC18D66FE2D470
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-
 magnet:?xt=urn:btih:B176EA0C808B71A38ECE7C10F9C383EEEE346F6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Folder Tidy 2.8.5 [En]
 ```bash
 magnet:?xt=urn:btih:EEA961237AFD19645753B09C4F0AEABD2A983F38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ EverWeb 3 v3.1 [En]
 magnet:?xt=urn:btih:9A08C0A9B7AFEDF40E62D7BA726648D0A0F2DF19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ AIDA64 - утилита является мощным средством для 
 ```bash
 magnet:?xt=urn:btih:7C4A346EAAED9950DF62012C8448768CF230F649
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ Tor Browser Bundle 12.0.1 [Multi/Ru]
 magnet:?xt=urn:btih:A819054F752A0196F47A90CBEC821AA556FD1973
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Chainsaw Man | Человек-бензопила [2022, TV, 10 из 12] WEBRip 1
 ```bash
 magnet:?xt=urn:btih:EBD200F6EFCEC5BC9EA0D41C5222AB26776D9705
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ Victoria 5.35 Portable [Multi/Ru]
 magnet:?xt=urn:btih:18E54E6B100D31EBBA7E63A92D14EEABB75D6479
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Movavi Video Editor, это один из лучших видео-редакто
 magnet:?xt=urn:btih:7C16F4D5C86E01E2EC7CD51F4B9CB9EF717965DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:7C16F4D5C86E01E2EC7CD51F4B9CB9EF717965DA
 ```bash
 magnet:?xt=urn:btih:FC0172127A47245D56FA096C01B2D2E817F48A01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

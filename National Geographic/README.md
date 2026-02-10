@@ -20,6 +20,8 @@ NG: Выживание в северных лесах / Northwoods Survival (202
 magnet:?xt=urn:btih:88B2E5F7748D60AAF708311FDD338FB4226947B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ NG. Секунды до катастрофы: 11 сентября / Seconds From
 ```bash
 magnet:?xt=urn:btih:F0DDBF22B60A8CBCE91290D2030337CD505D4772
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ NG: День дракона / Day of the Dragon (2024) HDTVRip [H.264] [VO]
 magnet:?xt=urn:btih:9209BE54B17C847A1E279CFF4F6F246E201F1B3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ NG. Лицом к лицу с акулами с Берти Грегори / Shar
 ```bash
 magnet:?xt=urn:btih:403B61678C6124928AA93C842D16C85C0913E1D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ NG. Лицом к лицу с акулами с Берти Грегори / Shar
 magnet:?xt=urn:btih:9B55A4F43DBBD5D69AC9E414F4BA7ECC87698030
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:9B55A4F43DBBD5D69AC9E414F4BA7ECC87698030
 ```bash
 magnet:?xt=urn:btih:7314BF87599EB9FCCC9857684FF77EFB16F83C52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ NG: В поисках Атлантиды / Finding Atlantis (2011) WEB-DL [H.264
 magnet:?xt=urn:btih:41FFC1E39A926B84C77FABD55B738DEFA1283EEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ NG: Дэвид Аттенборо: Океан / Океан с Дэвидом А�
 magnet:?xt=urn:btih:93BB94D81B27EA9962B59E7355CB8523A6A524DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ NG: Дэвид Аттенборо: Океан / Океан с Дэвидом А�
 ```bash
 magnet:?xt=urn:btih:51BDB2A90ECAF1C9E614F8101D456609A1C00976
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ NG: Аутсайдеры / Underdogs (2025) WEBRip [H.264/1080p] (сезон 1, 
 magnet:?xt=urn:btih:C90E705ADC2EEB110D6CD70D732FC7DDF82728F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ NG. Игры разума / Brain Games (2011-2016) IPTVRip [H.264] (сезон�
 ```bash
 magnet:?xt=urn:btih:1111DF3A5BC221878D36A0C2D43FD40127AA805C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ NG: Королевы / Queens (2024) WEBRip [H.264/1080p] (сезон 1, сер�
 magnet:?xt=urn:btih:C477DBC0BE75EDC5243B96160FCB954E6661FD17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:C477DBC0BE75EDC5243B96160FCB954E6661FD17
 ```bash
 magnet:?xt=urn:btih:F0B5E6FA747DBE07BDC64C61F9AE37DF95134483
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:F0B5E6FA747DBE07BDC64C61F9AE37DF95134483
 magnet:?xt=urn:btih:43AC19545D9591BC2576B7E6827EEC7E96EDAEB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ NG: Первозданная природа. Эдем жизни / The Living Ed
 ```bash
 magnet:?xt=urn:btih:541311272EBB0DBABD2357A19CC16934207D9297
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ NG: Известная Вселенная. Есть там Кто-Нибудь? 
 magnet:?xt=urn:btih:EFBC3C0B83E3D0EB6BE4FECB14D01840B6AD4290
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:EFBC3C0B83E3D0EB6BE4FECB14D01840B6AD4290
 ```bash
 magnet:?xt=urn:btih:A23F45080DFABF4336D8DB48086EF2EC78A96C73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ NG: Неизвестный Китай / Lost In China (2009) HDTVRip [H.264/720p
 magnet:?xt=urn:btih:335E4285F3218D22ECD7A74041706A177FD255F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ NG. Приключения настоящего Флика / A Real Bug's Life (
 ```bash
 magnet:?xt=urn:btih:C5BF988886D678FD8ADF3AB18BA2AB226347D728
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ NG. Приключения настоящего Флика / A Real Bug's Life (
 magnet:?xt=urn:btih:4CEEAF687D635AE0AD0473FAFA82C5BAE0375B08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:4CEEAF687D635AE0AD0473FAFA82C5BAE0375B08
 ```bash
 magnet:?xt=urn:btih:50BF565C5349ADB79245D10D37449B1963E800A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:50BF565C5349ADB79245D10D37449B1963E800A3
 magnet:?xt=urn:btih:28123A1D0920388EE7101AEC912FE90D123DC505
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ NG: Конкистадоры: Взлет и падение / Conquistadors: The 
 ```bash
 magnet:?xt=urn:btih:4FE503CDB620999CA9768D0DA2B42F01069D7A58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ NG: Затерянные сокровища Египта / Lost Treasures of Egy
 magnet:?xt=urn:btih:A4E83868FC673C3FF162A39A6305DE104ADEDB92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 magnet:?xt=urn:btih:E9DD4CA9AE4B9E1867EB2814AA759AC295238E02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ OceanXplorers приглашает зрителей на борт передов
 ```bash
 magnet:?xt=urn:btih:9123CC46417AF2A5D7A6E579BDA947FD2B20E741
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

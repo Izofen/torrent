@@ -19,6 +19,8 @@ Global Ops: Commando Libya / Приказано уничтожить: Опера
 magnet:?xt=urn:btih:0C9BCB467F8F5A35BE8D06FBAAC1DAF5D2968FD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:0C9BCB467F8F5A35BE8D06FBAAC1DAF5D2968FD1
 ```bash
 magnet:?xt=urn:btih:7A5AEC7B32A7EC4D2430D0D06DED48E3E82B18D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:7A5AEC7B32A7EC4D2430D0D06DED48E3E82B18D0
 magnet:?xt=urn:btih:DD4ED029CEDEF6D4957417574D331FDFD1943C7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ The Sims Carnival Bumper Blast - аркадная стрелялка. Пока �
 magnet:?xt=urn:btih:4477EB36ADFBF86E7C4BB9146609DDDC1DB5AA95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Space Lines (L) [En] 2012
 ```bash
 magnet:?xt=urn:btih:64F307DA203E18860ECD904C59BABEBFDC27D33A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ My Diary - весьма оригинальная игра про путешес�
 magnet:?xt=urn:btih:D0EA39389D75FA757693FF522ACEA83625503129
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Turtle Odyssey 2 / Одиссея Черепашки 2 (P) [Ru] 2007
 ```bash
 magnet:?xt=urn:btih:11E74CB3E7E7AAA5660B958FBB7B6465DBA68C9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:11E74CB3E7E7AAA5660B958FBB7B6465DBA68C9D
 magnet:?xt=urn:btih:DA9A1ECD249DF5AF6FFB6DEFE8F1D5E99493A87A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:DA9A1ECD249DF5AF6FFB6DEFE8F1D5E99493A87A
 magnet:?xt=urn:btih:A5B624E7E3C75561F616CCB8840380F15D975BBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Billiards Pyramid (L) [En] (2011)
 ```bash
 magnet:?xt=urn:btih:2C9DAA6C30627A7DDEA1658BA7FC43A8488A0D59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:2C9DAA6C30627A7DDEA1658BA7FC43A8488A0D59
 magnet:?xt=urn:btih:5C57FD6002DE8F4A9784EA2F1E3B96D0BC14C6F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:5C57FD6002DE8F4A9784EA2F1E3B96D0BC14C6F3
 ```bash
 magnet:?xt=urn:btih:8CFD694B29A339C37974CA24121B43876B886EFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Depth Hunter - симулятор подводной охоты, позволя�
 magnet:?xt=urn:btih:C1EFDECE3D7A529DB665BD50B0530CB2C71D9202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:C1EFDECE3D7A529DB665BD50B0530CB2C71D9202
 magnet:?xt=urn:btih:1286F3AA294E9D0A965EAE7A02067F5EE55EBB97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Whispers / Шепот (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:9C2D6A75B906D3A60BBC2B9D338CA20690AF73B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:9C2D6A75B906D3A60BBC2B9D338CA20690AF73B4
 magnet:?xt=urn:btih:646FFB16D56F8D749E66C73E4F0A495AEAFDA833
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Delicious 7: Emily's True Love. Premium Edition / Деликатесы Эмил�
 ```bash
 magnet:?xt=urn:btih:EF3FAAF1FDEE416246060E40790CD9E26F967F4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:EF3FAAF1FDEE416246060E40790CD9E26F967F4F
 magnet:?xt=urn:btih:BE75494CDB12537053F33E0F72C5CCD7AF6206CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Katty and Bob: Tropical Rush / Кэти и Боб. Вперед домой (P) [
 ```bash
 magnet:?xt=urn:btih:E41CA8FBA400B50864F8E2DFD2C825A2FAAE2EB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Major League Baseball 2K12 – новая игра в серии симулят�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Jewel Quest Mysteries 4: The Oracle of Ur Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:6151521BCFA777CA99C56DB7D9D2A47031C34D54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Lost Horizon [Ru] (RePack) 2010 | LandyNP2
 magnet:?xt=urn:btih:E95CD534BB627A99533420D8710697E3CB385341
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Ambulance Simulator 2012 (L) [Ge/En] 2012 | TiNYiSO
 ```bash
 magnet:?xt=urn:btih:1FCB843CD73E6ABF328AFDDA5070822263EF98BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ Risen [Ru] (Lossless RePack/1.1/1.2) 2009 | pe4enko
 magnet:?xt=urn:btih:F08F2F840700FC3BD1D3D457DF50A672B6AE0F46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Brink of Consciousness: Dorian Gray Syndrome. Collectors Edition / Край со
 ```bash
 magnet:?xt=urn:btih:9D4251259E3D170C2365EC18685880B9B8389BA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +678,8 @@ Blade Kitten (Р) [Ru] 2010
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

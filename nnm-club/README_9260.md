@@ -22,6 +22,8 @@ VA - Hits Disco and Pop Dance - Part VIII (2016) [MP3|256 Kbps] <Pop, Disco>
 magnet:?xt=urn:btih:999FF7C2023F37159E1B5DEF9EE6779B20282B5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:999FF7C2023F37159E1B5DEF9EE6779B20282B5C
 ```bash
 magnet:?xt=urn:btih:56A5136BA6EC8A35B88FAF809B23E150C991FA43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ Nikonn - Effrosyni (2016) [MP3|320 Kbps] <Ambient, Downtempo, Dream Pop>
 magnet:?xt=urn:btih:3EE7112861B055E63DCB0169E5BE9CB9B4FBFB03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Goa 2017 - 30 Top Best Of Hits Electronic Dance (2016) [MP3|320 Kbps] <Psy,
 magnet:?xt=urn:btih:9027598AFA4ECBC638307C09D892CD3FE0E6D166
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:9027598AFA4ECBC638307C09D892CD3FE0E6D166
 ```bash
 magnet:?xt=urn:btih:D020C1D111E2907E098000BDD0EB0C3CE1DE6A35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:D020C1D111E2907E098000BDD0EB0C3CE1DE6A35
 magnet:?xt=urn:btih:CCAC94E9DDA652491098BD04D83B3A50AD64EC4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:CCAC94E9DDA652491098BD04D83B3A50AD64EC4A
 ```bash
 magnet:?xt=urn:btih:5FB7A78395CB3F5535833EEF13D95E89BB5CED23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:5FB7A78395CB3F5535833EEF13D95E89BB5CED23
 magnet:?xt=urn:btih:36BBBD585EC86883CADA270E81CD40CC9FB13CC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:36BBBD585EC86883CADA270E81CD40CC9FB13CC5
 ```bash
 magnet:?xt=urn:btih:E078DFECD7773C81EDB01704258B557DAAB58504
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ iNet показывает устройства, подключенные к ва
 ```bash
 magnet:?xt=urn:btih:0A6CD029360D979677B50173B3B2E83741DDFE53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ Trixie - Shelter (2006) [MP3|320 Kbps] <Hard Rock, Glam>
 magnet:?xt=urn:btih:EB5DF27F51DAD4710E0DECBE39074F327DB3395E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:EB5DF27F51DAD4710E0DECBE39074F327DB3395E
 ```bash
 magnet:?xt=urn:btih:0DE44790CCDE2A2A15AD084071847FFA164CD378
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:0DE44790CCDE2A2A15AD084071847FFA164CD378
 magnet:?xt=urn:btih:98BEAFBD1DF8B28079616E7FE242CD9B5CCCBB16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:98BEAFBD1DF8B28079616E7FE242CD9B5CCCBB16
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ Sacred Steel - Heavy Metal Sacrifice (2016) [FLAC|Lossless|image + .cue] <Epic P
 magnet:?xt=urn:btih:EB86BF4882E1E04FAEB853CD928C1C52CEACC65B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:EB86BF4882E1E04FAEB853CD928C1C52CEACC65B
 ```bash
 magnet:?xt=urn:btih:2364033FF85E1AC556199B98D34E92484B67BA55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ File Juicer может быть использован (   Читать дал�
 magnet:?xt=urn:btih:F57444BAF8885A874AA12438D0D6240EE6A613A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:F57444BAF8885A874AA12438D0D6240EE6A613A3
 ```bash
 magnet:?xt=urn:btih:6886FD9DDD3CFA1F64D016DD505825AFCF26D80D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:6886FD9DDD3CFA1F64D016DD505825AFCF26D80D
 magnet:?xt=urn:btih:8A7CAFC398B4298C65AEA5BD9CC0C1830489D8BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:8A7CAFC398B4298C65AEA5BD9CC0C1830489D8BF
 ```bash
 magnet:?xt=urn:btih:2203F1F380311E17F78FDBB9161066314BA290DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +564,8 @@ VA - Aesthesia (2010) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone Ambient, Dub
 magnet:?xt=urn:btih:F490F09236E1FA3616C52A974BF8DA4F52C34C70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ VA - Hydrodubium (2014) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Dub 
 ```bash
 magnet:?xt=urn:btih:D63F2DA2B8D5BC561D7784D7D6B3FE59117B9E59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +622,8 @@ VA - Dance Smash Hits Of Yare: Planet EDM (2016) [MP3|320 Kbps] <House, Electro 
 magnet:?xt=urn:btih:DBE7BD23EB663C872478221C86031EA9021E355D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ Bluesville Station - Step On The Gas (2012) [FLAC|Lossless|image + .cue] <Blues 
 ```bash
 magnet:?xt=urn:btih:460D16B1701D0CB29FB648C0A38C979C1F66DBE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +680,8 @@ VA - Ultimate Trance Essentials Sanctum (2016) [MP3|320 Kbps] <Trance, Uplifting
 magnet:?xt=urn:btih:72BA7F55CDF044F062230FBE0E31F9844E5870B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ VA - Classy Dining Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:5A9F89BD3E1678252126CDEA68C9977B2F6D2818
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

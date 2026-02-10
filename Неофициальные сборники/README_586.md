@@ -1,3 +1,32 @@
+###  Публикация: 994462   (889823) от 08.03.2016
+
+VA - Clubничка №100 (2016) [MP3|256 кб/с] <Club , Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_889823.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Damn - R - Butterfly (Radio Edit)
+002. Ahzee - My Passion (Radio Edit)
+003. Mark Wagner Feat. Jasmine Chloe - Better Off Alone (Extended Version)
+004. Randy Garcia & Ruben Moran & Dani Vars - High Energy (Energy Sax Mix)(   Читать дальше...   )Жанр: Club , DanceПродолжительность: 09:20:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F713E3063F0BB1264EB28E55639216ECEE0F778A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994541   (889836) от 08.03.2016
 
 VA - Калина красная. Душевный шансон Выпуск 3 (2014) [MP3|256 кб/с] <Шансон>
@@ -21,6 +50,8 @@ VA - Калина красная. Душевный шансон Выпуск 3 (
 ```bash
 magnet:?xt=urn:btih:CE5979BB039F7B7FAE9DF49E1AECCF335BF0A39B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Vocal Trance Seduction vol 8 (2016) [MP3|320 кб/с] <Trance, Vocal Trance
 magnet:?xt=urn:btih:BA1098FC6A2D4CE1243D3739EF0F43EFA279F613
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Шансон-состояние души 87 (2013) [MP3|256 кб/с] <Ша�
 ```bash
 magnet:?xt=urn:btih:1E78CF6F9F7C423EFAC5CE32DE75CAE0BC2BE408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Тебе любимая! (2016) [MP3|320 кб/с] <Pop, Шансон>
 magnet:?xt=urn:btih:6A8D01610857E237DFE184C69C17C70973229302
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - не Громкие новинки недели 61 (2020) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:B517BE065CDAFA17A8C8E98F1DAD2F4CD3041156
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - 100 Gold Classic Music (2016) [MP3|320 Kbps] <Classical>
 magnet:?xt=urn:btih:F7A68D79233681CD17B657A84EF1E0965F86FC79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - 100 Gold Classic Music Vol.2 (2017) [MP3|320 Kbps] <Classical>
 ```bash
 magnet:?xt=urn:btih:E2254188FDB592D006A327C306B9A0DEB91B1CD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +260,8 @@ VA - Ibiza Lounge Classics Vol 2 (2013) [MP3|320 кб/с]<Downtempo, Chillout, L
 magnet:?xt=urn:btih:FA74EB3BF092574D3258BAA47C9E9331CB69EF86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +288,8 @@ VA - Музыка для двоих (2016) [MP3|192-320 кб/с] <Pop>
 ```bash
 magnet:?xt=urn:btih:ECD58C8A9B7DA529D1F5582219AF40D844258F4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +318,8 @@ VA - Beatport Trance Pack (09.02.) (2017) [MP3|320 Kbps] <Trance, Uplifting Tran
 magnet:?xt=urn:btih:434E0D71E3BA8121190D9135A6650939349F8D25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +347,8 @@ VA - Дискотека на 8 марта (2016) [MP3|256 кб/с-320 кб/с] <
 magnet:?xt=urn:btih:CE47F599498E7D35D2B1309D34E4AFBDAAA05EF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +374,8 @@ VA - 8 Марта. Праздничный хит-парад №1 (2016) [MP3|192
 ```bash
 magnet:?xt=urn:btih:31403D7DEE0D8A41FAA240477A5C3B0E39A5D82D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +404,8 @@ VA - Acoustic Pop Covers (2016) [MP3|320 кб/с] <Pop, Acoustic, Covers>
 magnet:?xt=urn:btih:8D2A0BEBE7A09E33A656A7D3347519D303427CCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +432,8 @@ VA - Blues Memories (2016) [MP3|128-320 кб/с] <Rock Blues, Retro>
 ```bash
 magnet:?xt=urn:btih:0FA42630A22A93A61BDE4CBF114B34FACD4DED31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +462,8 @@ VA - Top 100 Electronic Dance Music and Rave Festival Chart Hits (2016) [MP3|320
 magnet:?xt=urn:btih:1E32AFB5272C1479C7F9587B26A8EAA5EB89C778
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +490,8 @@ VA - TOP 100 Deep House (February) (2016) [MP3|320 кб/с] <Deep House,Club Hou
 ```bash
 magnet:?xt=urn:btih:F5E22E03440144FDCD312FBB29D8669A25DD3A0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +520,8 @@ VA - TOP 100 Club Tracks (February) (2016) [MP3|96-320 кб/с] <Club House, Voc
 magnet:?xt=urn:btih:D2A9FA0D1666A06585051600D7E8D9058EC9B877
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +548,8 @@ Deep Forest - 100% Deep Forest (2020) [MP3|320 Kbps] <Alternative, Enigmatic, Ne
 ```bash
 magnet:?xt=urn:btih:7DA39BD071BEE7C7B56314252E47230314067F69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +578,8 @@ VA - Isle Ibiza 2 Grooves White (2016) [MP3|320 кб/с] <Future House, Tropical
 magnet:?xt=urn:btih:4293611B2300902F4BF0DDBC27E0385B64C415D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +606,8 @@ VA - Душевный шансон Любимая женщина (2016) [MP3|256
 ```bash
 magnet:?xt=urn:btih:AD57CED12045A7CD83B305BF8726726577459E41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +636,8 @@ VA - Electro Life 41 (by ZiP)(2016) [MP3|320 kbps]<Electro House, Progressive Ho
 magnet:?xt=urn:btih:A64E2E323E160717B88E5B8EDDDAA3E7C5054159
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +664,8 @@ VA - Судьба злодейка (2016) [MP3|224-320 кб/с] <Шансон>
 ```bash
 magnet:?xt=urn:btih:7721F87C2EE87F27FAA9FC7A766019F31A7D1BC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +694,8 @@ VA - Star Hit. Самая желанная (2016) [MP3|192 kbps - 256 kbps] <Pop
 magnet:?xt=urn:btih:F0C13D7D33BADDD4F017077D179A4A9B94D88AB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +722,8 @@ VA - Ibiza Dance Sensation (2016) [MP3|320 кб/с] <Soulful, House, Funky, Nu D
 ```bash
 magnet:?xt=urn:btih:E590AE97341FF0617FB7909F1B0820EDDA676031
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -675,32 +752,7 @@ VA - Милым дамам к празднику весны (2016) [MP3|256 кб
 magnet:?xt=urn:btih:856898FAFD325C7494054520C1A3A12714BC781E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994174   (891653) от 07.03.2016
-
-VA - EDM Forever Soundset (2016) [MP3|253-320 кб/с] <House, Funky, Tropical, Soulful, Bigroom, Indietronica>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891653.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. IGMO - Nobody Sleeps 07:13
-002. Jota M - Baila mi acid house ((Latin Party Remix)) 02:47
-003. Low Steppa Feat. Kelli-Leigh - Runnin' (Extended Mix) 03:36
-004. Bleu Toucan - Le chant du cygne (Shinichi Osawa Remix) 05:16(   Читать дальше...   )Жанр: House, Funky, Tropical, Soulful, Bigroom, IndietronicaПродолжительность: 08:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D752E16EC5BA92F6D727C20DD40B2A7ECACA2582
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

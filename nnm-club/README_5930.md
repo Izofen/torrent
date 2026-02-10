@@ -22,6 +22,8 @@ VA - Distant Mountains Lounge: Chillout Your Mind (2020) [AAC|~317 Kbps] <Lounge
 magnet:?xt=urn:btih:DF2F71EE5D4E63A28752DBF559C2B700EC5B497D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Coal and Steel - Miners for Real (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 ```bash
 magnet:?xt=urn:btih:4197AF9DC848109EC03FB9681C46AF2B537A1E69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Mountain Duck позволяет монтировать любой удален�
 magnet:?xt=urn:btih:F383A1D9E197B055D0331DD76C1489BFFF59AD73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Loudblast - Manifesto (2020) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:87EC2F8930E17370D4762C9350B05FB393A147ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Dyecrest - Once I Had A Heart (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal,
 magnet:?xt=urn:btih:C53DDFD907B798ED872ECF3A066C62EC8EDB2DE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Destabilizer - Violence Is The Answer! (2023) [FLAC|Lossless|WEB-DL|tracks] <Thr
 ```bash
 magnet:?xt=urn:btih:4A89FC56061066C5E805A2FB75EB3C42385A9672
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ MenuBar Stats - системный монитор, очистка памяти �
 magnet:?xt=urn:btih:42452D467850AB85D31E0195B3D86169C8944944
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ Dyecrest - Once I Had A Heart (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heav
 magnet:?xt=urn:btih:DE78EBC993EB0397F64D9E698F5FA2D66F7E40CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:F37167A6DD0F3C13282C61C4F0A3262C12157C0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ VA - Slow Down: Ibiza Grooves, vol. 3 (2019) [AAC|~332 Kbps] <Lounge, Ambient, C
 magnet:?xt=urn:btih:06D27442DF0A8FCA416E03A263EF552E8E7415E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +309,8 @@ Duke Ellington - Gold (1940-e - 1960-e) 1993, Gold [FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:064D4AF11CF5917503CA7D58AA51293A9E4F65F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +335,8 @@ Valhalla Delay — это наш взгляд на классический и �
 ```bash
 magnet:?xt=urn:btih:261B795824D0269ADA2BD791B803F0685111E488
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +365,8 @@ Ataraxie - Slow Transcending Agony (2005) [FLAC|Lossless|image + .cue] <Funeral 
 magnet:?xt=urn:btih:492D61420E53EFFC80D813E919F26F8AF7F853BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +394,8 @@ VA - Slow Down: Ibiza Grooves, vol. 2 (2019) [AAC|~328 Kbps] <Lounge, Ambient, C
 magnet:?xt=urn:btih:BAA4943CC6EA55C53B735FCD9B88AB912D933EB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +419,8 @@ magnet:?xt=urn:btih:BAA4943CC6EA55C53B735FCD9B88AB912D933EB4
 ```bash
 magnet:?xt=urn:btih:E8729993CD1B8127621488B3C7F82557F7FEC073
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +446,8 @@ magnet:?xt=urn:btih:E8729993CD1B8127621488B3C7F82557F7FEC073
 magnet:?xt=urn:btih:126525465AB76782C7D9DB955E88A5DCDF8AAB7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +472,8 @@ Dato поддерживает все языковые стандарты и яз
 ```bash
 magnet:?xt=urn:btih:EA97B57169E8571E264DF78C03A22FC7618B70FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +502,8 @@ A4 Harvest(   Читать дальше...   )Жанр: Atmospheric Black Metal,
 magnet:?xt=urn:btih:286D147BF5175D13BBB35059C4C2EEA5C0C1B24C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +528,8 @@ magnet:?xt=urn:btih:286D147BF5175D13BBB35059C4C2EEA5C0C1B24C
 magnet:?xt=urn:btih:064060518EDDD44BBC612E202D77F5AE8195E0CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +553,8 @@ magnet:?xt=urn:btih:064060518EDDD44BBC612E202D77F5AE8195E0CF
 ```bash
 magnet:?xt=urn:btih:ECF10B5AAC1E72EA81B4F1DD14F5CCC1397104A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +583,8 @@ Marc Hartman - Fortune Fairytales (2020) [AAC|~319 Kbps] <Lounge, Ambient, Chill
 magnet:?xt=urn:btih:9AB7368C2BE340581EC60B28355D7F1CCEA70475
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +612,8 @@ VA - all my thoughts, vol. 1 (2020) [AAC|~328 Kbps] <Electronic>
 magnet:?xt=urn:btih:44A830D772E8D40EDA046729F80DD2F533FE864E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +638,8 @@ Christmas Wonderland 13 (2022) [En] (1.0) Unofficial [Collector's Edition]
 magnet:?xt=urn:btih:7B225F06DA72C98D9C5415DB71D23CD53BFCE1DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +663,8 @@ magnet:?xt=urn:btih:7B225F06DA72C98D9C5415DB71D23CD53BFCE1DA
 ```bash
 magnet:?xt=urn:btih:DDE387BA10E3B416CDE03034D755373295272505
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +693,8 @@ magnet:?xt=urn:btih:DDE387BA10E3B416CDE03034D755373295272505
 magnet:?xt=urn:btih:7546F17D537B32B851A8686C690D9AF81EC77571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +719,8 @@ Usher - Отличное средство для создания и веден�
 ```bash
 magnet:?xt=urn:btih:140A64F07EF7AA805252D7D6C11332D6FD612CAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

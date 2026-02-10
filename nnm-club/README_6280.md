@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:3D616EF9C109AADF7D03A4B9C529E626BA14DEC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ BSPlayer - один из тех мультимедийных плееров, ч�
 ```bash
 magnet:?xt=urn:btih:CB94C0C73FADA1996A6543D61CBE81413CCCCBDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:CB94C0C73FADA1996A6543D61CBE81413CCCCBDB
 magnet:?xt=urn:btih:BED44E4071D94A7F87D64F0C692882F996C9EF1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:BED44E4071D94A7F87D64F0C692882F996C9EF1D
 magnet:?xt=urn:btih:6A5BE05F4982E33E4A2F12CC6943E326DEE039BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ QuickTextPaste 8.67 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B146B615CCB5941B7725A947BC5A842A2285DD3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:10EE0B6DF199F56AF07C6B374D59FD0F13EA3A5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:10EE0B6DF199F56AF07C6B374D59FD0F13EA3A5E
 magnet:?xt=urn:btih:0744C1F9D0F1AE5C18D9034BD4468C4F3F435EFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Serious Sam: Siberian Mayhem (2022) [Ru/Multi] (1.05b) License GOG
 ```bash
 magnet:?xt=urn:btih:1B2EFC3686987474F4004A08150DA3AE8ACF9DEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:1B2EFC3686987474F4004A08150DA3AE8ACF9DEE
 magnet:?xt=urn:btih:8A7B55F91DE5A69DF98EC9372EDF632A7425DB22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ The Full Package Remastered — благодаря улучшенной граф
 magnet:?xt=urn:btih:6D7F0CD4B6878A60FBA71D666DBFAC13B6743E6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:6D7F0CD4B6878A60FBA71D666DBFAC13B6743E6D
 ```bash
 magnet:?xt=urn:btih:67858CE838E966C8F1D95ED22FB1F882164B723A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ U.D.O. - Touchdown (2023) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:7C768AA875ECCD119E34C34A8B64C1A7D3D67F4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:7C768AA875ECCD119E34C34A8B64C1A7D3D67F4E
 ```bash
 magnet:?xt=urn:btih:F66A4DD5C71F0B1450C60282D888E02F824DA06D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:F66A4DD5C71F0B1450C60282D888E02F824DA06D
 magnet:?xt=urn:btih:D2524A460711BB89C47B9EDEC402E4A35BF90B02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:D2524A460711BB89C47B9EDEC402E4A35BF90B02
 ```bash
 magnet:?xt=urn:btih:DE567F25C91FEE351E749D0A00643EB3506C270F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:DE567F25C91FEE351E749D0A00643EB3506C270F
 ```bash
 magnet:?xt=urn:btih:B9876AD57417B3189AAB247A215FC496812099C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ ru_windows_10_enterprise_2016_ltsb_x64_dvd_9057886.iso
 magnet:?xt=urn:btih:97770C31C2FF8635C01D407E08880FB153BDECDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:97770C31C2FF8635C01D407E08880FB153BDECDF
 ```bash
 magnet:?xt=urn:btih:C1D5F331E7EB34972E3D6809CDA8E0DF41C5F035
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:C1D5F331E7EB34972E3D6809CDA8E0DF41C5F035
 magnet:?xt=urn:btih:1F8FFD991967BC08FDC6262C0696F77208883D5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:1F8FFD991967BC08FDC6262C0696F77208883D5E
 magnet:?xt=urn:btih:CA112FD3862E64CE1F5E7A6F07C5D71D03873489
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ Dead Man´s Diary (2022) [Ru/Multi] (1.5.54360) Repack Other s
 ```bash
 magnet:?xt=urn:btih:E46DE10B92C48F1FFEC7B18AA3C3297CAA091F12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:E46DE10B92C48F1FFEC7B18AA3C3297CAA091F12
 magnet:?xt=urn:btih:4922D3A7E09DA3BC2C951BAA5F8D9F90E6445D61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:4922D3A7E09DA3BC2C951BAA5F8D9F90E6445D61
 magnet:?xt=urn:btih:05E67BE45D5ABC86AEE8C241DDAAF608222E7401
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:05E67BE45D5ABC86AEE8C241DDAAF608222E7401
 ```bash
 magnet:?xt=urn:btih:25A8B87C87E9E139E8D9CD9AE63F2ED70F0C3EB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ Cygnosic - Demystify (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, EBM>
 magnet:?xt=urn:btih:A51EE4B4648DD3A4FEE761DDFE655C356147A6B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:A51EE4B4648DD3A4FEE761DDFE655C356147A6B2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

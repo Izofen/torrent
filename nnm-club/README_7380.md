@@ -19,6 +19,8 @@ NanoCar Race - гонка, в которой примут участие "авт
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NanoCar Race - гонка, в которой примут участие "авт
 ```bash
 magnet:?xt=urn:btih:DBE316512F1D7AACACD0AFDC150AC3A3BBE74095
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ RPG Knight of the Earthends [Игра] (Android)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ RPG Knight of the Earthends [Игра] (Android)
 ```bash
 magnet:?xt=urn:btih:C7FB7397635BA7B31B52E10F77898508F86F5756
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:C7FB7397635BA7B31B52E10F77898508F86F5756
 magnet:?xt=urn:btih:C71C29C798E960F143C9F452CB0E99FB50EFC961
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Avantasia - Mystery Of A Blood Red Rose (2015) Single [MP3|320 кб/с] <Power M
 magnet:?xt=urn:btih:FF82E5441D99A26C66B99354F27BF4620C3253F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:FF82E5441D99A26C66B99354F27BF4620C3253F1
 ```bash
 magnet:?xt=urn:btih:DEF6E3C5ADB95843646F2746700F59D3641421C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Sphinx - Sphinx (1983) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
 magnet:?xt=urn:btih:BCDF0A56EB67C1966465A446268AF69D0E4C7114
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:BCDF0A56EB67C1966465A446268AF69D0E4C7114
 ```bash
 magnet:?xt=urn:btih:469B2E9830D6AC0410ADC0E5774F12EF22C7D303
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Dream Evil - The Book of Heavy Metal (2004) Limited Special 2CD Edition / 2012, 
 magnet:?xt=urn:btih:27E87DDCCB7C4ECAB3BF9B33009B32E1E12F4632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:27E87DDCCB7C4ECAB3BF9B33009B32E1E12F4632
 ```bash
 magnet:?xt=urn:btih:55D6DA47BC8DC741CEDD7FFA6C544CFE9937408F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ Reb Beach - A View From The Inside (2020) [FLAC|Lossless|image + .cue] <Hard Roc
 magnet:?xt=urn:btih:0A05116B426E7965B371D3DC08DE911805112C18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:0A05116B426E7965B371D3DC08DE911805112C18
 ```bash
 magnet:?xt=urn:btih:67D695607B3526E799452136C1680DF0BD3E1849
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ Peps and Blues Quality - Sweet Mary Jane (1969) Remastered, 1994, Sonet Grammafo
 magnet:?xt=urn:btih:B5A745F6B7486A253F8C2BFA23E87D4259250954
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ VA - Magic December (Lounge Relax Music) (2019) [MP3|320 Kbps] <Balearic, Downte
 ```bash
 magnet:?xt=urn:btih:381648487794C5AB7A6368FBE6BC5929396C85AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ Teleborian - Electric Fortunes (2021) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard
 magnet:?xt=urn:btih:1EE0D7CE5B8667C5A04372A6FD890B3A96A71A8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ The Beloved - Where It Is (2020) Special Edition, RM.RE. [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:5EA04D5EDC7AE7891A32D1C61BE9D7FD76FBF60A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:5EA04D5EDC7AE7891A32D1C61BE9D7FD76FBF60A
 ```bash
 magnet:?xt=urn:btih:939C81DA1BF0ED21B2737402B6B3F6C0C73E81C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:939C81DA1BF0ED21B2737402B6B3F6C0C73E81C4
 magnet:?xt=urn:btih:92769E2228BE50539B92D17A8BD7490342716112
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ DiskCatalogMaker  - простая утилита для управления и
 ```bash
 magnet:?xt=urn:btih:7AD5DAA7F3766A4FBD947763CACCCEDC4839882B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ Grand - Grand (2022) [MP3|320 Kbps] <Rock, AOR, Pop-Rock>
 magnet:?xt=urn:btih:49240D0B15F15FC732A7D2EC7863E768F218689E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ VA - Dream City: Urban Electro House (2019) [MP3|320 Kbps] <Electro House, Dance
 magnet:?xt=urn:btih:09B85029021754D7063E8FFD7BAB67EF192707FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ magnet:?xt=urn:btih:09B85029021754D7063E8FFD7BAB67EF192707FF
 ```bash
 magnet:?xt=urn:btih:0FC13FF4A2F95203A1FBDEE72E54768F7406FEFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ magnet:?xt=urn:btih:0FC13FF4A2F95203A1FBDEE72E54768F7406FEFE
 magnet:?xt=urn:btih:8E407C8098FA73EED26F97542FC8DA785DE4235B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ magnet:?xt=urn:btih:8E407C8098FA73EED26F97542FC8DA785DE4235B
 ```bash
 magnet:?xt=urn:btih:71BB1DFF7BD75DC7399DAD381AFDC5E9B6C69C13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +708,8 @@ Belinda Carlisle - Wilder Shores (2017) [OGG Vorbis|480 Kbps] <Pop, Vocal>
 ```bash
 magnet:?xt=urn:btih:2E3B172DE94EE6A643F3681BCEBF68E953093FCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

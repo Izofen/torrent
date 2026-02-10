@@ -20,6 +20,8 @@ Media Player Classic - Black Edition (MPC-BE) – универсальный п�
 magnet:?xt=urn:btih:415D5B4AB3BC4311CB798348D70855DEA0512A61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ KStars - бесплатное, с открытым исходным кодом, 
 ```bash
 magnet:?xt=urn:btih:E83F20129D4C7E4224874FD544FE9F41ECAEF098
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ NIUBI Partition Editor – программа для простого и над�
 magnet:?xt=urn:btih:2ED44CC8E62936600711D979EBE2EB42A83FCFDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Icecream PDF Editor PRO - программа для поистине прост�
 ```bash
 magnet:?xt=urn:btih:8784A0075E0703B1A310F870FC49AC87C37A4F96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Icecream Screen Recorder – простая программа для запис
 magnet:?xt=urn:btih:7DC2437D4367DA6D9530EEAD64E46758C4E59AA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 magnet:?xt=urn:btih:FE28A7A44C874A06A6969CEC4F410AD68BCEFF3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Kingston SSD Manager — это приложение, предоставляющ
 ```bash
 magnet:?xt=urn:btih:8C15595AA59EA2CD671A31D38E0A0663A0C87364
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ DefenderKiller - удаление Windows Defender (Защитник Windows)
 magnet:?xt=urn:btih:28B1D986883D8CD3907E6AE84BE4342E60E21B14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ SamDrivers 24.00 LAN [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5F04442BCEC14305FD62F3C22CDC5E46B3038318
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Adobe Acrobat Reader — приложение Reader для самых важн�
 magnet:?xt=urn:btih:8FD6B387791419BE9A1269B64D3C647563AF580F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Windows 11 Debloater – небольшая утилита для тонкой �
 ```bash
 magnet:?xt=urn:btih:0D8E585F3E0699F8E4BF526EBF4813714CFAF116
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Macrorit Partition Expert Unlimited Edition – предоставляет мо�
 magnet:?xt=urn:btih:F3D5B8F7DD802617DCAD565AA39F435520ECAB74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:C2279D9EFA7F7BD74D63493E1BFA042E5ACA25E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Kodi (ранее известный как XBMC) — бесплатное и с 
 magnet:?xt=urn:btih:6AD83CAA59DE78AE123BFF8851AB0C3A5376E5C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Modern Tweaker - программная оболочка для твиков Win
 magnet:?xt=urn:btih:455472833FC8DFA041B9051F060AD2B2F0575841
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ EasyUEFI - удобная утилита для редактирования з�
 ```bash
 magnet:?xt=urn:btih:96AF04E5072C46ECAA1DC2B994131D46A9CA182A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ AVZ - Бесплатная быстро работающая антивирус�
 magnet:?xt=urn:btih:F13D65C5594E72AAEC5ACD0111C4F84361E76550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ MobaXterm - это комплекс утилит, в котором есть в�
 ```bash
 magnet:?xt=urn:btih:AEA520AFD407259850F38EA56F8B07E7FFA81417
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Office Tool Plus - функциональная программа для раб
 magnet:?xt=urn:btih:B0790EAF676C84E80A6FC70D9700795FF4FA38C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Windows 11 Debloater – небольшая утилита для тонкой �
 ```bash
 magnet:?xt=urn:btih:D5F8A5C5AA313866E6EBF31E8D31A5167C1AEF66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ MiniTool Power Data Recovery - это инструмент предназнач�
 magnet:?xt=urn:btih:A86AF988204F49CB6D9476F19026BC473A312F68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ RJ TextEd - мощный текстовый редактор с большим �
 ```bash
 magnet:?xt=urn:btih:D6C656CEEF2B90FAB19AE18F93C591B2D696395B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 magnet:?xt=urn:btih:C27E429F263367B3439D19CAA554CA2E1097EF99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ PDFCreator –  бесплатная программа для конверти�
 ```bash
 magnet:?xt=urn:btih:624A486F80C0180FEF577141DF4224C2C83A0903
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ Visual Studio Enterprise 2019 - Интегрированное комплекс�
 magnet:?xt=urn:btih:5C79F50CFCD57701E0C3228513BBB90A770D7469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ QownNotes – менеджер заметок, позволяющий четко
 ```bash
 magnet:?xt=urn:btih:9F4F0A3F0D02A9E19056037EE2496E71DDAC4DB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

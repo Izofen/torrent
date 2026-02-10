@@ -19,6 +19,8 @@ Zombieville USA 3D - это аркадный шутер, в котором чу�
 magnet:?xt=urn:btih:A16B3B0C1F0143975A7018BA70CBB886B239FD8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Farmer's Life (2023) [Ru/Multi] (1.0.29/dlc) Repack FitGirl [Ultimate Bundle]
 ```bash
 magnet:?xt=urn:btih:D0FF06CB8612F24CC0609CC1D26E763E684870F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Cities: Skylines предлагает по-новому взглянуть на 
 magnet:?xt=urn:btih:7DF73AB0531ACF357CABC0917964A59F84BA87D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Sugardew Island: Your Cozy Farm Shop (2025) [Multi] (3781/dlc) Repack FitGirl [S
 ```bash
 magnet:?xt=urn:btih:76748FCF9922EA605148281025D64959CC68D449
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ WARNO (2024) [Ru/Multi] (150731/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:94D2C57F39587A7869A361CDAFDF0387CD14DDD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Chorus of Carcosa (2025 ) [Ru/Multi] (01.08) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:553F5449C389C88B6C746DBDBF3730B34038F20C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Farmer's Life (2023) [Ru/Multi] (1.0.28/dlc) Repack Other s
 magnet:?xt=urn:btih:EC5848A4D7AF958A69387BC6852F53AC605DCAFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Lucky Season 2: End of the Rainbow / Сезон удачи 2: Конец рад�
 ```bash
 magnet:?xt=urn:btih:1F2ADA5C252B2B51E5337011D985C860D9E2B71E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Cities: Skylines предлагает по-новому взглянуть на 
 magnet:?xt=urn:btih:F57A459DCA8F1AB91C9A3C894BFE05E4D5A79CF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (1.0.13/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:0DA584F5A4F654D178964A35D30C98FE94DBB090
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Them and Us - классический хоррор на выживание с �
 magnet:?xt=urn:btih:F49BC1860BACAED6B0A914EC64D36617E368C5E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Nobody Saves the World (2022) [Ru/Multi] (18.01.2023/dlc) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:78112C2FAF2067E2BCDE0F62B64E3137ED25A02F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Myst (2021) [Ru/Multi] (3.0.1) Repack dixen18 [VR]
 magnet:?xt=urn:btih:3C2C53A368286D96A379959E5A56A5C5FFBE25F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Thronebreaker: The Witcher Tales / Кровная вражда: Ведьмак. 
 ```bash
 magnet:?xt=urn:btih:F5E000E9840C20EE48983CEDCA607E5139C1BA35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Chorus of Carcosa (2025 ) [Ru/Multi] (01.08) Repack Other s
 magnet:?xt=urn:btih:A4D04C3B187AE6E50D7D0F0600BDE3FD94789E3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Rogue: Genesia – классическая ролевая видеоигра с
 ```bash
 magnet:?xt=urn:btih:1314FEE42FC048B352B1705D2660B0C392CB58F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Blackthorn Arena: Reforged (2024) [Ru/Multi] (2.01g/dlc) Repack FitGirl
 magnet:?xt=urn:btih:580FBBAA5FFAD886C5EBBC6D834AA2539436C77A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Urban Jungle - это очаровательная и медитативная �
 ```bash
 magnet:?xt=urn:btih:839D996BF6A60B6D81A06265F02AE1EC5686430F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Armored Core VI Fires of Rubicon (2023) [Ru/Multi] (1.08.1/dlc) Repack Wanterlud
 magnet:?xt=urn:btih:2AFC720839177468FA3D0794B673300DB7197ED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Easy Red 2 - шутер от первого лица с элементами с�
 ```bash
 magnet:?xt=urn:btih:1AFB35EE351221494EB70D58DC3940175AFF1BAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ ROBOBEAT (2024) [Ru/Multi] (1.3.10) Repack FitGirl [Deluxe Edition]
 magnet:?xt=urn:btih:3B862F0E1FAC44AE9E925779AC13F72427CDD46A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ House Builder (2021) [Ru/Multi] (Build 20-03-2025/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:41EB52C5C73D3C11339B8C5B6BA70AE967F28A9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Human: Fall Flat – приключенческая головоломка с п
 magnet:?xt=urn:btih:433A20CE473E4E0760728BA8A0E2E8680FA6D9F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Curse of the Sea Rats - двумерная метроидвания, расск�
 ```bash
 magnet:?xt=urn:btih:E303280BA1F27E9F4288FC511B407C9BE188E5E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Myst (2021) [Ru/Multi] (3.0.1) Repack FitGirl [VR]
 magnet:?xt=urn:btih:8D14B012700C5F8904FF4CF0BA8C96D6BC1071E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Invincible представляет собой приключенческу�
 ```bash
 magnet:?xt=urn:btih:68D528ABEA3C5D95E6A61D0704A7594483FDF8A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

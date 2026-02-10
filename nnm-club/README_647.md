@@ -20,6 +20,8 @@ FurMark 2 является преемником почтенного FurMark 1..
 magnet:?xt=urn:btih:431FFC669267D18C765E8C3245FD6AA7A1C3D3E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:431FFC669267D18C765E8C3245FD6AA7A1C3D3E1
 magnet:?xt=urn:btih:BF344595C78DE969550681F91BC60047B704BACB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:BF344595C78DE969550681F91BC60047B704BACB
 ```bash
 magnet:?xt=urn:btih:E8118D770114BF25EF606BD2467BA3459270C3F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:E8118D770114BF25EF606BD2467BA3459270C3F5
 magnet:?xt=urn:btih:D339CBFB95EDA572EC77FF0661BDA6B32C9584B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:D339CBFB95EDA572EC77FF0661BDA6B32C9584B3
 ```bash
 magnet:?xt=urn:btih:C969B0E9186003B4FA41007E6150393B77515DEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:C969B0E9186003B4FA41007E6150393B77515DEE
 magnet:?xt=urn:btih:6E64EAF3A1ED514642B7A99B0A69DB2994ED2B42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:6E64EAF3A1ED514642B7A99B0A69DB2994ED2B42
 magnet:?xt=urn:btih:0DBC9197F232C0483562372ED1A69D6095AF34F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:0DBC9197F232C0483562372ED1A69D6095AF34F5
 ```bash
 magnet:?xt=urn:btih:F8CB068B7F1ADB2F0CA7340CAD160BC697B92851
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:F8CB068B7F1ADB2F0CA7340CAD160BC697B92851
 ```bash
 magnet:?xt=urn:btih:E1136D36AE44D2E59AE0E24BE03038BCDD859020
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Tómarúm - Beyond Obsidian Euphoria (2025) [FLAC|Lossless|image + .cue] <Black 
 magnet:?xt=urn:btih:F7458B588F214FE3ED34AD54AC7AFA1426029639
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:F7458B588F214FE3ED34AD54AC7AFA1426029639
 ```bash
 magnet:?xt=urn:btih:53A871026596D67B3D104E389D6FA4739D5A1256
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:53A871026596D67B3D104E389D6FA4739D5A1256
 magnet:?xt=urn:btih:3A07CCD76B20B0A8BAF58A88328574A189B62495
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:3A07CCD76B20B0A8BAF58A88328574A189B62495
 magnet:?xt=urn:btih:A593868D77BD6EC096F417CC7105986DFAC595B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:A593868D77BD6EC096F417CC7105986DFAC595B8
 ```bash
 magnet:?xt=urn:btih:F4A7E308E2FFA03A6010F9F197092372F913F1B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 magnet:?xt=urn:btih:8D34ECAEAFA9A1CB5755ACFD38B7B90293EA92E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Warhammer 40,000: Gladius (2018) [Ru/Multi] (1.16.0/dlc) Repack FitGirl [Complet
 ```bash
 magnet:?xt=urn:btih:7909A7785A1B0D619E047335457D25E7A2BDA0CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:7909A7785A1B0D619E047335457D25E7A2BDA0CB
 ```bash
 magnet:?xt=urn:btih:2DB7287EBBEDAE415209ED27DE93728A5CDDB482
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 magnet:?xt=urn:btih:3E60E056BE63CD112A07AFD91E09F5D63EF00C34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:482045F12102FEE5FD8A330EC706491F4C19F915
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:482045F12102FEE5FD8A330EC706491F4C19F915
 magnet:?xt=urn:btih:73CF2F3DAA55110E21E77C744F109A0B1195CC74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:73CF2F3DAA55110E21E77C744F109A0B1195CC74
 ```bash
 magnet:?xt=urn:btih:E23966FDFEAF083D65B9410837B7883908F7C4A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:E23966FDFEAF083D65B9410837B7883908F7C4A4
 magnet:?xt=urn:btih:853BABC8E43DFA0687718638B53584381BC19140
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ Guilty Gear Strive: Dual Rulers | Guilty Gear Strive: Двойные прави�
 ```bash
 magnet:?xt=urn:btih:AA36FF4B83E59B62EE7A1186BE0329B03A67C6F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ Minecraft в кино / A Minecraft Movie (2025) WEB-DLRip [H.265/1080p] [10-bit
 magnet:?xt=urn:btih:9E49AE5548FE6A0CC93C58FF369C6DD4D49D5A93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:9E49AE5548FE6A0CC93C58FF369C6DD4D49D5A93
 magnet:?xt=urn:btih:C1CDAB0CA6A077F993FA51E546A0BBD0E5827A92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:C1CDAB0CA6A077F993FA51E546A0BBD0E5827A92
 ```bash
 magnet:?xt=urn:btih:0A13675996273CDF753B891EA1304C1139E18ED4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

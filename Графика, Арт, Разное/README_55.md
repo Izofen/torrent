@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5E2DBD21C06B00520ECA831F2039588CFFB9EB47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:5E2DBD21C06B00520ECA831F2039588CFFB9EB47
 ```bash
 magnet:?xt=urn:btih:A34A04C38979ED3E4551EC1D1F81CD3BE1A9DD7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Herika Noronha
 magnet:?xt=urn:btih:D53089717AB08CBFFF4F6ACE5CE8E55BD82CD461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:D53089717AB08CBFFF4F6ACE5CE8E55BD82CD461
 ```bash
 magnet:?xt=urn:btih:7D55250EB7893B8F625FBA6A0A3C033DD111B35C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:7D55250EB7893B8F625FBA6A0A3C033DD111B35C
 magnet:?xt=urn:btih:0556E9ACB94977425538B34F981004574666460D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:0556E9ACB94977425538B34F981004574666460D
 ```bash
 magnet:?xt=urn:btih:07ED30C6E2D881A60E0F6B22712B01C1EBC3BC5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:07ED30C6E2D881A60E0F6B22712B01C1EBC3BC5C
 magnet:?xt=urn:btih:755E96664A758099626C85CEE937B491129A5C5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Pixiv Artist - Mii~ina
 magnet:?xt=urn:btih:CBE029F1FC2B8E898F4F711E3BB1DD12ADDA7272
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ magnet:?xt=urn:btih:CBE029F1FC2B8E898F4F711E3BB1DD12ADDA7272
 ```bash
 magnet:?xt=urn:btih:31401DF3FCB0112BFEBFF27AEDE069B99C3FB8E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:31401DF3FCB0112BFEBFF27AEDE069B99C3FB8E2
 magnet:?xt=urn:btih:E61B0446640216DFB8B33B4F586D15BD18500C61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:E61B0446640216DFB8B33B4F586D15BD18500C61
 ```bash
 magnet:?xt=urn:btih:CC64C09FFEA572401BC3E1126DCDEF82832658FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:CC64C09FFEA572401BC3E1126DCDEF82832658FB
 magnet:?xt=urn:btih:0388162FD1FA870C39C32CAB9A82AC5EA9BE0EFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:0388162FD1FA870C39C32CAB9A82AC5EA9BE0EFF
 ```bash
 magnet:?xt=urn:btih:E62AD5C5945ED2B43884F6A2D21933D7383A1351
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:E62AD5C5945ED2B43884F6A2D21933D7383A1351
 magnet:?xt=urn:btih:BB0ACF3D2C72B1F178716D3236706FB5612247EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:BB0ACF3D2C72B1F178716D3236706FB5612247EB
 magnet:?xt=urn:btih:ACB0D8F95C1F1B1C60DDB30E6D7494B87BC8589B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,29 +421,7 @@ Frans Mensink
 magnet:?xt=urn:btih:A52910011447E5997C9DD8A3E3E4A33B6BC9A520
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561789   (405724) от 18.10.2012
-
-Иконки ICO Cryo64 Corinthia 3G 2012 [Eng]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_405724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем Вам пакет иконок в сиреневых тонах от D.ARNAEZ и пак бонусных иконок для программ.Название программы: Иконки ICO Cryo64 Corinthia 3GЯзык интерфейса: EngФормат: ICO | 64 px.
-
-## Скачать торент
-```bash
-нет
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +447,8 @@ magnet:?xt=urn:btih:A52910011447E5997C9DD8A3E3E4A33B6BC9A520
 magnet:?xt=urn:btih:77D19A2EB4ECCB0FA7F5948135D8AB04232957A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +472,8 @@ magnet:?xt=urn:btih:77D19A2EB4ECCB0FA7F5948135D8AB04232957A9
 ```bash
 magnet:?xt=urn:btih:9D39412ECB58443191B47E2EC44A0C2D6A4316A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +501,8 @@ magnet:?xt=urn:btih:9D39412ECB58443191B47E2EC44A0C2D6A4316A1
 magnet:?xt=urn:btih:23F2DAF4291F6B05C3D226D456764EE27CF03E9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +528,8 @@ magnet:?xt=urn:btih:23F2DAF4291F6B05C3D226D456764EE27CF03E9B
 ```bash
 magnet:?xt=urn:btih:68B0DBD398EDF44E6467C08A3AB512CFC298AB3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +557,8 @@ magnet:?xt=urn:btih:68B0DBD398EDF44E6467C08A3AB512CFC298AB3D
 magnet:?xt=urn:btih:5971814A0E8332063345BEF825EE9685AFFE4D1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +584,8 @@ magnet:?xt=urn:btih:5971814A0E8332063345BEF825EE9685AFFE4D1C
 ```bash
 magnet:?xt=urn:btih:B20EC259CC97C1C1BBE7E6E53D7CCCC285446FBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +613,8 @@ magnet:?xt=urn:btih:B20EC259CC97C1C1BBE7E6E53D7CCCC285446FBA
 magnet:?xt=urn:btih:B0D1EFEF6D2F911D910456CF4BA870B0F865C7A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +639,8 @@ Nature Wallpapers (17.10.12) [Wallpapers]
 magnet:?xt=urn:btih:D32B8CFB6B16B36FCCB8FC1F44A2D0DA265AA864
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +664,38 @@ magnet:?xt=urn:btih:D32B8CFB6B16B36FCCB8FC1F44A2D0DA265AA864
 ```bash
 magnet:?xt=urn:btih:AC0E788901A7E05DA113D4A3C7F17B18EB5D505B
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561551   (406104) от 17.10.2012
+
+[Wallpapers] WideScreen с нескольких сетей... update_28  (1680х1050-9000х6384)
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эти обои, картинки, фотографии были удалены с рабочих компьютеров УСЁРОВ нескольких сетей.
+Обои размещены в папках по 1000 штук, чтобы просмотрщики графики ворочались побыстрее.
+В основном разрешение 1920х... и еще больше. Очень много красивых фотографий (скорее всего надергали с ЯФ)
+Встречаются к сожалению дубли, все это скачивалось несколькими сотнями USERов, с разными разрешениями, под разными названиями иногда одного и того-же...
+Вкусы у всех разные, поэтому выбирайте кому что нравится и сами создавайте раздачи по темам, по размерам!Разрешение файлов: 1680х1050-9000х6384
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:170A290256D0EB6D5297D6FF6973D64F87D6D733
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

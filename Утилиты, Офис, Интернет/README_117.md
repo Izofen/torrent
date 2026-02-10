@@ -19,6 +19,8 @@ FanControl – свободно распространяемый продукт,
 magnet:?xt=urn:btih:CE142C7E064E704E15B5C7A8ADB2492E84FF5CD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:4517CDD41BDFE3A796D7CFF33A5858962EA4E0BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:075F3D88D1DD7E5D301376B7319FDB5A5FEE3B02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ DiskDigger - маленькая утилита, с которой можно в�
 ```bash
 magnet:?xt=urn:btih:24DE06A46D93393EE9737B455543527141224DB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Acrobat Pro — это полностью обновленная настоль�
 magnet:?xt=urn:btih:B8517D7E786C3C44660EEC0D9459239E030B8972
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Revo Uninstaller Pro 5.4.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3E12C8B05F571A04706A80C927482D485DD83130
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Revo Registry Cleaner Pro - это мощное и эффективное про
 magnet:?xt=urn:btih:AAFA6433EF978D8F85B9E9C5D7C1DFA383E2743A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:561E5DFC6BCA46B8C1CA14615E6F489233628247
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:018FF58567BF65FC5E786367C437D71F24046CE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Hard Disk Sentinel Pro — отличная программа для монит
 ```bash
 magnet:?xt=urn:btih:3AF8A6453EAF1B6F4C848E46E39A2C42EE658850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Acrobat Pro — это полностью обновленная настоль�
 magnet:?xt=urn:btih:E8C7A22E7E6B00C7DFBABDCAEBC054782B27F5DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:296911BEAB7A1BC1DB7F40FEBFE87D19E99F7029
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:0B89E01AB6FE4C10F1DB73A80CB292D351B8D62E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Chromium – веб-браузер с открытым исходным кодо
 magnet:?xt=urn:btih:74692C8A4B494EBE539B7674555E0CEADF2EB2B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +382,8 @@ CrystalMark 3D25 — это программа для 3D-бенчмаркинг�
 ```bash
 magnet:?xt=urn:btih:32807D2DFD93A05C0EA5BBEC5DD07AE20A9718FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Windows Manager - это универсальная утилита для Micros
 magnet:?xt=urn:btih:E834613E8ADD45661C79CA0AD6679138CEB8D095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ USB Safely Remove это надежная и удобная замена 'Без
 ```bash
 magnet:?xt=urn:btih:A39558760AC1577FB179DCB47F339AF678C16718
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ USB Safely Remove 7.2.1.1330 [Multi/Ru]
 magnet:?xt=urn:btih:0D454EC76B1C990BB0BF3B51E067066E900BD113
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:5218E0F58CE4AB75352C3CA424D12A6BE75B462F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:F2536C3BB115AEB5A8FCB2702A44508A6B93C05A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Zentimo xStorage Manager - (аналог USB Safely Remove) это менедж�
 ```bash
 magnet:?xt=urn:btih:BEDCC8FDC94FF29899DD01286CF800F52A520FBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ OCCT 15.0.9 Portable [En]
 magnet:?xt=urn:btih:5CDFA39B35AB6A8201A4E97F6C90DBD77EB0E779
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ Apowersoft Video Download Capture 6.6.2.0 RePack by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2F0C855F1EAC88E8CA2CDF18E27296310844D979
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ Windows Manager - это универсальная утилита для Micros
 magnet:?xt=urn:btih:D25EDAB66105131AEA8D9D21E4BD98402A3449A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ magnet:?xt=urn:btih:D25EDAB66105131AEA8D9D21E4BD98402A3449A1
 ```bash
 magnet:?xt=urn:btih:689907CB9BB403891E1FD0B871A1AB9C590E042A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +673,8 @@ DBF Converter — узкоспециализированный программ�
 ```bash
 magnet:?xt=urn:btih:3B8B36230DB998F05245A3CCA73C0E945A6F4E41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

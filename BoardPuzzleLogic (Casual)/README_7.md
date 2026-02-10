@@ -19,6 +19,8 @@ Wheely (2016) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:E03496933710BCDB14CD6A6D61CC8646BF42FC2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Pixel Puzzles Ultimate — тематическая игра-головолом�
 ```bash
 magnet:?xt=urn:btih:19508B9DF83EDE5374DC5E0FDF897A56E874A24E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Disoriented (2016) [En] (1.0) Repack Other s
 magnet:?xt=urn:btih:8D2CAB9B8986B8094752C57B3CD619B15BAF507E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Quantum Conundrum [Ru/En] (RePack/1.0.8623.0/2 DLC) 2012 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:B61AD4983E35B20ACED3F15593CEC1F11CEA7771
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Armikrog – приключенческая игра с управлением p
 magnet:?xt=urn:btih:A5A14FB4A8234A90091328CE37910CCD0827A80F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Tharsis - научно-фантастическая пошаговая стра�
 magnet:?xt=urn:btih:F92C580C494CE9FD50F99A802CD57EA0E6D7386D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Invention Highway / Как решить проблему (200) [Ru] (1.0) Licens
 ```bash
 magnet:?xt=urn:btih:777327F8F9212172DAE8767293BCE3212F9B1F92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Crazy Machines 2 Happy New Year Bundle Edition [En] (Add-on/1.06) 2013 | TINYISO
 magnet:?xt=urn:btih:609F83EBD180E71D9D294638FD821D781FF8D263
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Indie Game Collection [Ru/En/Multi13] (Repack) 2005 - 2012 | R.G. ILITA
 magnet:?xt=urn:btih:7075B38931624E5604400D20DEE0349486E66467
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Quantum Conundrum [Ru/En] (RePack/1.0.8623.0) 2012 | Audioslave
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Quantum Conundrum [Ru/En] (RePack/1.0.8623.0) 2012 | Audioslave
 magnet:?xt=urn:btih:F9CC949AF9994C3D4A58C07C5195864BC477EC93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:F9CC949AF9994C3D4A58C07C5195864BC477EC93
 magnet:?xt=urn:btih:25F6C4755C1A5EFB00AA22116F5C202360BF9418
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Quantum Conundrum [Ru/En] (Repack/1.0.8623.0/2 DLC) 2012 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:8F9E2E011C8B966DB965EBD834F304FA6EDE7AC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Builder's Journey - это лирическая головоломка, кото
 magnet:?xt=urn:btih:0760AF114D3909E2BF8BA518F0CCC66B319E1CBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Roguelite-игра с карточными элементами, в которо
 ```bash
 magnet:?xt=urn:btih:3B505904C14404CB987CD0CDA0735FC31A828AF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Neurodeck (2021) [Ru/Multi] (1.2.4) License GOG
 magnet:?xt=urn:btih:CBCB266068FDB42857CF91D7873EA55CC2DBD811
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:CBCB266068FDB42857CF91D7873EA55CC2DBD811
 ```bash
 magnet:?xt=urn:btih:3665A9E2509A0FD59C2C5F18153498A4DF7960D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Dorfromantik - это расслабляющая строительная стр
 magnet:?xt=urn:btih:53B1AE7F004D8B759F8CF41527BD20705036ECE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:53B1AE7F004D8B759F8CF41527BD20705036ECE9
 ```bash
 magnet:?xt=urn:btih:9754E3D59F105DD7D6ED364F764BA04C6E727884
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Portable версия настраиваемой бесплатной прогр
 magnet:?xt=urn:btih:EF048E483CD9B27A6FCEF720F192D965F6F8552B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Papers, Please (2013) [Ru/Multi] (1.2.72) License GOG
 ```bash
 magnet:?xt=urn:btih:E797EF809E65E768B66E54E955AAA8A50EA41B89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Abra-Cooking-Dabra (2025) [Ru/Multi] (1.0.13r1) Repack FitGirl
 magnet:?xt=urn:btih:ED6B07D6770298DEC09B8A4A676D921157D74D0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Book Of Changes / Книга Перемен (2007) [Ru] (1.0.0) License
 ```bash
 magnet:?xt=urn:btih:21C5DB7D8716C879BD91D2EF25F70010435CD46E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Cats Hidden Around the World - это не обычная игра со скры
 magnet:?xt=urn:btih:7B7795B5BA1E6911A56CD74F6880300A09C1074C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Gruniożerca Trilogy - это переизданная компиляция тр
 ```bash
 magnet:?xt=urn:btih:796A4BD5714DA33996EC6A15EB6AE19A51489258
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

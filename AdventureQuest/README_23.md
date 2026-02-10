@@ -19,6 +19,8 @@ Caravan Sandwitch переносит на вымышленную пустынн�
 magnet:?xt=urn:btih:3434C661F441C52A45E9741065ABD7839E1377FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Go Home Annie (2024) [Ru/Multi] (build 16636802) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:3F121D3E4D98E0710FB9913DDCCE62ED13FEEA6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ CONSCRIPT — это новый хоррор на выживание в духе
 magnet:?xt=urn:btih:14D24F5F416FBD0D552859DCF32CFE6EFD7D62F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Fatal Midnight (2024) [Ru/Multi] (Build 16185793) Repack Other s
 ```bash
 magnet:?xt=urn:btih:AC8B47C801776D948B969CB610FC6E77EBE021FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.0.0/dlc) Scene Rune [P
 magnet:?xt=urn:btih:3DABF5E74A8D398EFF54C4042B055DAD80CC4E4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Devil's Way (2024) [Ru/Multi] (build 16096646) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:A087D33B75CCF80840DE9296E875DE22087443D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.1.18.0/dlc) Scene Razor1
 magnet:?xt=urn:btih:506AD314D84105F70B3518991E6752054AE9B8F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (
 ```bash
 magnet:?xt=urn:btih:FE06E1BD6C9EB23F020E65A60A97D093CF147C1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Lorn's Lure - это атмосферный сюжетный платформе�
 magnet:?xt=urn:btih:675FAE91E17C1A64E367676AF56F17270C77CC63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.248.905/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:E5B1E556915D0BF6080B75E30F996C4309BC3D8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Little Big Adventure – Twinsen’s Quest (2024) [Ru/Multi] (1.1.2/dlc) Repack 
 magnet:?xt=urn:btih:90C2C971C5C720F1E3445749D8287009ACD0D7B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1128.ffO6.pc/dlc) Repack Let'sРl
 ```bash
 magnet:?xt=urn:btih:5E87BA1D959E5DC631B83D63F121CA997684FD9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Unforeseen Incidents – это классический квест. У инди
 magnet:?xt=urn:btih:69089A314D3ACFD1C9A8B6BBFFDA881AD1BE826B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ A Quiet Place: The Road Ahead - это однопользовательская 
 ```bash
 magnet:?xt=urn:btih:470DF43795CF30213A340E69056193B1875BF398
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.06) Repack 
 magnet:?xt=urn:btih:5C198D2E02CDCADE02E0C8D1F2685D9114A4DFAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Puppet House - это приключенческая хоррор-игра с э
 ```bash
 magnet:?xt=urn:btih:3DFBA8A0DED907964918AB32B12E18DAEC9B5E70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Puppet House - это приключенческая хоррор-игра с э
 magnet:?xt=urn:btih:11F4020E261A78E8F6CDA5DF8B8968F05B58E043
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ A pet shop after dark скрещивает два жанра. Это гибри�
 ```bash
 magnet:?xt=urn:btih:CC414B1BE4BA7DF6FCB915F15D7679AAFC2B8540
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ The Talos Principle 2 (2023) [Ru/Multi] (2.2.0 696260/dlc) Repack Let'sРlay [De
 magnet:?xt=urn:btih:CEEA9FED7274E408DCE515A0E4A026C069A84304
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Marvel’s Guardians of the Galaxy: The Telltale Series (2017) [Ru/Multi] (1.0.1
 ```bash
 magnet:?xt=urn:btih:A13205782986D20A980BDCB852978CD7F678C350
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Deep Inside (2024) [En] (Build 16288203) Repack Other s
 magnet:?xt=urn:btih:3BD508A983E260EED1353CB6B01CCFA9AA892209
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Town of Light повествует о девушке по имени Рен�
 ```bash
 magnet:?xt=urn:btih:A31F6D56CE6C4765514878760E7BE0B58F5CD4C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ KAKU: Ancient Seal предлагает стать на место Каку, г�
 magnet:?xt=urn:btih:9F19E15BD00D6F438B62A18C5FBFDCDAE3AAED50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.5.9) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:97FCA364F7ED091A8C7A343B7C80C85AF130E3F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Beyond The Darkness - это мрачная история, которая ок�
 magnet:?xt=urn:btih:FE7B045C46185E602AE7C040710CE203CE0739D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Be Your Cat (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A281A58A5633D822E8097A7279D50E0BC14EDEE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,51 +1,3 @@
-###  Публикация: 996093   (882705) от 12.03.2016
-
-Картинки - Collection of beautiful images. Release 5 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник красивых картинок.Формат: JPGРазрешение файлов: 1920x1280 - 6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E48DE649C4EA0CF578B7882109FF69541E53A758
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 641585   (882855) от 09.04.2013
-
-Рисованная графика - Artworks by Carlos Cartagena [JPG]
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художника-иллюстратора Carlos Cartagena.Разрешение файлов: от 392x490px до 1200x899.Формат: JPG.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28EC00D146129ABE53675BA1A095111EB5F9303F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995688   (884403) от 11.03.2016
 
 Обои - Amazing Nature Wallpapers. Release 8 [JPG]
@@ -66,6 +18,8 @@ magnet:?xt=urn:btih:28EC00D146129ABE53675BA1A095111EB5F9303F
 ```bash
 magnet:?xt=urn:btih:E09EBE8D62271DB1E9CAEE32F58D6F099E85DDD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +45,8 @@ magnet:?xt=urn:btih:E09EBE8D62271DB1E9CAEE32F58D6F099E85DDD0
 magnet:?xt=urn:btih:F50C2975DA2958EA7C1F147DC86C3A54B1A740AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +70,8 @@ magnet:?xt=urn:btih:F50C2975DA2958EA7C1F147DC86C3A54B1A740AE
 ```bash
 magnet:?xt=urn:btih:5D42A08CE6E3CC20FC9AB39F6A7500E864DA5F3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +97,8 @@ magnet:?xt=urn:btih:5D42A08CE6E3CC20FC9AB39F6A7500E864DA5F3C
 magnet:?xt=urn:btih:67A18C135240DD78C26A774C9DADE28D0E23D2AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +122,8 @@ magnet:?xt=urn:btih:67A18C135240DD78C26A774C9DADE28D0E23D2AC
 ```bash
 magnet:?xt=urn:btih:99A5A2DC0AE9D947A4FE5C8CE5D4F40F4DF7CED4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +150,8 @@ Colt Idol (Колт Айдл) - американский художник, из�
 magnet:?xt=urn:btih:B8735EFF22495736D5CE311BF4A418CB77870339
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +175,8 @@ magnet:?xt=urn:btih:B8735EFF22495736D5CE311BF4A418CB77870339
 ```bash
 magnet:?xt=urn:btih:8DADF5B6313C22CC92D9133A4EB3BABE121DDE68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +203,8 @@ magnet:?xt=urn:btih:8DADF5B6313C22CC92D9133A4EB3BABE121DDE68
 magnet:?xt=urn:btih:FC1A9EFA4C21DE68D31E4F9714E35B207A8FBFC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +230,8 @@ magnet:?xt=urn:btih:FC1A9EFA4C21DE68D31E4F9714E35B207A8FBFC5
 magnet:?xt=urn:btih:3EF77EAA66300F8BC5ABA5464396DE24C6B0CCFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +255,8 @@ magnet:?xt=urn:btih:3EF77EAA66300F8BC5ABA5464396DE24C6B0CCFE
 ```bash
 magnet:?xt=urn:btih:1A2EBF6EB792E39FF8409396957758583A25D259
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +282,8 @@ magnet:?xt=urn:btih:1A2EBF6EB792E39FF8409396957758583A25D259
 magnet:?xt=urn:btih:FC68143FD154247CB652C69A5AA493C9A3C2351C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +307,8 @@ magnet:?xt=urn:btih:FC68143FD154247CB652C69A5AA493C9A3C2351C
 ```bash
 magnet:?xt=urn:btih:6B86B1E0147D98EAADC0F7FB976C39A5CCFB393A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +336,8 @@ Wallpapers - Mixed HD Wallpapers Pack
 magnet:?xt=urn:btih:5BDACE34DB60D18714D96D15DEF388ECA61346E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +361,8 @@ magnet:?xt=urn:btih:5BDACE34DB60D18714D96D15DEF388ECA61346E3
 ```bash
 magnet:?xt=urn:btih:1C3E5CB9B8E8032474B53E3A294C6D1C8CBCC5A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +388,8 @@ magnet:?xt=urn:btih:1C3E5CB9B8E8032474B53E3A294C6D1C8CBCC5A4
 magnet:?xt=urn:btih:D65039720661999BEC64A9AC35E538381E306477
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +413,8 @@ magnet:?xt=urn:btih:D65039720661999BEC64A9AC35E538381E306477
 ```bash
 magnet:?xt=urn:btih:09DAEE89FA9DA1D722652BE6DC87EEA750FEA4A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +440,8 @@ magnet:?xt=urn:btih:09DAEE89FA9DA1D722652BE6DC87EEA750FEA4A6
 magnet:?xt=urn:btih:A33B96E0C88A6B2E57DC692E43D0F05A2A42C8AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +465,8 @@ magnet:?xt=urn:btih:A33B96E0C88A6B2E57DC692E43D0F05A2A42C8AC
 ```bash
 magnet:?xt=urn:btih:B823560ADC4409007630EF7DA4F83B08F8A2E3D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +492,8 @@ magnet:?xt=urn:btih:B823560ADC4409007630EF7DA4F83B08F8A2E3D7
 magnet:?xt=urn:btih:15CCF3E0E405AFA5166E99E27758E634403033C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +517,8 @@ magnet:?xt=urn:btih:15CCF3E0E405AFA5166E99E27758E634403033C7
 ```bash
 magnet:?xt=urn:btih:FABFEA5FC0DBFF307C4337DEA4621DE5B14DBBA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +544,8 @@ magnet:?xt=urn:btih:FABFEA5FC0DBFF307C4337DEA4621DE5B14DBBA2
 magnet:?xt=urn:btih:680BB0778B0FC0E4430835ABBD4C57CAC043AE0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +569,8 @@ magnet:?xt=urn:btih:680BB0778B0FC0E4430835ABBD4C57CAC043AE0A
 ```bash
 magnet:?xt=urn:btih:2F6121935B4359ED0BB88303BE040C02222AD360
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +596,8 @@ magnet:?xt=urn:btih:2F6121935B4359ED0BB88303BE040C02222AD360
 magnet:?xt=urn:btih:45BF8B9090906D5DDA41D825A3141682DEF20E82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +621,60 @@ magnet:?xt=urn:btih:45BF8B9090906D5DDA41D825A3141682DEF20E82
 ```bash
 magnet:?xt=urn:btih:9702FE72A977AAF00AF8238A57ADE3F583FFACC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102335   (890735) от 09.02.2017
+
+Классическое искусство - The Art of Harley Brown [JPG]
+
+>>Графика, Арт, Разное
+>>Классическое искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Харли Браун (Harley Brown) - американский художник, родился в Канаде в 1939 году. В раздаче собраны работы, изображающие американских индейцев пожилого возраста - в основном вождей, а также детей - девочек-индианок.Формат: JPGРазрешение файлов: от 600х824 до 2356х3319
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D34D8927C03D04895459EAA71C83A8DC6605AC8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494219   (890873) от 06.09.2021
+
+Картинки - Цап-царап #3 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890873.jpg" />
+</div>
+
+
+###  Подробнее
+
+В хорошем качестве подборка картинок кошки.Формат: JPGРазрешение файлов: 1920x1079-1920x1920
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EAE9C536B02CE48DC9B8BC09D00FA2255F9DF88
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ uTorrent Pro 3.5.5 Build 46552 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 magnet:?xt=urn:btih:2809170E275C3E2282AA2C4C1827FB525F6E2FE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ DVDFab – мощный, многофункциональный программ
 ```bash
 magnet:?xt=urn:btih:9D3C24FF8E59D016D87D2FC948977DB813848AA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ VPN Inf - быстрый, безопасный и безлимитный VPN
 magnet:?xt=urn:btih:0CE7C4019715CFC1761F466F267E6340F97152BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Qalculate! - это многоцелевой кросс-платформенны
 ```bash
 magnet:?xt=urn:btih:3B64B2864E69A52CDE958AB24C815520C71939AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ YouTube ReVanced - это реинкарнация проекта YouTube Vanced
 magnet:?xt=urn:btih:14BB30AB86A01102D4A2DF4908D1291BB5962172
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:14BB30AB86A01102D4A2DF4908D1291BB5962172
 ```bash
 magnet:?xt=urn:btih:4DF1D9599D6A8E5B9BDC1BA2A42065E41AC3532C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ FX Player Pro - универсальный медиаплеер который �
 magnet:?xt=urn:btih:95E29F0F7308074260B6640BA983590D41E9692F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Icecream PDF Editor PRO - программа для поистине прост�
 ```bash
 magnet:?xt=urn:btih:061AEDF6F8DD598A434A0DF09E51E8B55311301E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 magnet:?xt=urn:btih:430617471D7EBF11D4A3E180CB689AD8B45F6F2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ PDFCreator –  бесплатная программа для конверти�
 ```bash
 magnet:?xt=urn:btih:6B2DD8A57DC4841E35F3C2F3CA00F03037999820
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Adguard – интернет-фильтр для защиты пользоват
 magnet:?xt=urn:btih:3FA03BE2A1F36D965782F7D115F03E28E5AF1B99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Aiseesoft FoneLab for Android — это популярный инструмен
 magnet:?xt=urn:btih:F59CD2F1BEB22817D954B96A8EA47391E52C2286
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Boxy SVG 4.8.0 [En]
 ```bash
 magnet:?xt=urn:btih:5BBE12DCFDEF6859DAD7B5E8F99D87E151165632
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ ru-ru_windows_10_business_editions_version_22h2_x64_dvd_61849fe8
 magnet:?xt=urn:btih:C7FB781E077CF57A8775BD32F7A95DA3674021F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Camtasia for Mac — эффективное приложение для созд
 ```bash
 magnet:?xt=urn:btih:E5CA629EA1779E8E4742DD9214B26E30BCF390B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ LaunchBar - функциональная замена Spotlight на Mac. Пос
 magnet:?xt=urn:btih:8DB36FB7B65A6C141376A0701201C6E164729BAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Apeaksoft DVD Creator for Mac 1.0.52 [Multi]
 ```bash
 magnet:?xt=urn:btih:F659AF91172C2A8E029160EE298CEDB646131E89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Stats - это приложение с открытым исходным код�
 magnet:?xt=urn:btih:DCBFB12C0B032F2EBE43B75D331866264519959E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:DCBFB12C0B032F2EBE43B75D331866264519959E
 ```bash
 magnet:?xt=urn:btih:EE143A8FAE1BDE770F6420E5C5D7F8E5E7956573
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Allavsoft Video Downloader Converter поддерживает загрузку �
 magnet:?xt=urn:btih:BE7A34CEE3336CBFE09F697BD166B127C4CEB738
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Hard Disk Sentinel — отличная программа для монитор
 ```bash
 magnet:?xt=urn:btih:98152088F32CFFB8C37E9C736978203330050952
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Revo Uninstaller Pro 5.0.7 RePack (& Portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:B4609494E993F5C4EC0918800CF3B652A0D0A4C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ BitComet - это функциональный, быстрый и простой
 ```bash
 magnet:?xt=urn:btih:C87136C030D72B5C0CC2657142115E21FA937F82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ CamScanner - Мощное приложение для сканирования. 
 magnet:?xt=urn:btih:1C3F3FFC140BDC05089E318A16BDBC76CE389829
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ YouTube ReVanced - это реинкарнация проекта YouTube Vanced
 magnet:?xt=urn:btih:40989461D7D8E3BD66D362D0E3F6425AA4F9FDBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Gradient - это передовое приложение с лучшими AI-�
 ```bash
 magnet:?xt=urn:btih:0E8CE45CE96E29F176474774BCC4EEA92F556D53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

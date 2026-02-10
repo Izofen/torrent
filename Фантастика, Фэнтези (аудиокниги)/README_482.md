@@ -1,3 +1,29 @@
+###  Публикация: 1376899   (856666) от 19.04.2020
+
+Альфред Бестер | Путевой дневник (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_856666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сбылась великая мечта  человечества – космические корабли бороздят просторы вселенной. И это уже не хрупкие скорлупки отважных первопроходцев, нет, это комфортабельные лайнеры, перевозящие сотни и тысячи пассажиров. И каждый из пассажиров видит вселенную по-своему…Жанр: фантастикаПродолжительность: 00:11:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8DB412AEF75578F1FC0451FC297813C75253AA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376809   (856675) от 19.04.2020
 
 Альбина Нури | Не мой мир (2019) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:1030E0034431CF980C7A8AF08ACA0A2D1ECCF3D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:1030E0034431CF980C7A8AF08ACA0A2D1ECCF3D4
 magnet:?xt=urn:btih:C9C3D8444F1EB9AE1A175B29714E04DAF26D94E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:C9C3D8444F1EB9AE1A175B29714E04DAF26D94E3
 ```bash
 magnet:?xt=urn:btih:12470F183645507F443FC22F527D863077C53F84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:12470F183645507F443FC22F527D863077C53F84
 magnet:?xt=urn:btih:A5D38D1CCA3F1CC58365FF37BE6C19CB2B2C6788
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:A5D38D1CCA3F1CC58365FF37BE6C19CB2B2C6788
 ```bash
 magnet:?xt=urn:btih:07949DC9F503B6E410BAF304703C83E0DDFFE4A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:07949DC9F503B6E410BAF304703C83E0DDFFE4A8
 magnet:?xt=urn:btih:64A57A98B608961F9BA1BCF4E403439627936F07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:64A57A98B608961F9BA1BCF4E403439627936F07
 ```bash
 magnet:?xt=urn:btih:43648EB1D4DEE657443BE376C1F26D0FA1E7F173
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:43648EB1D4DEE657443BE376C1F26D0FA1E7F173
 magnet:?xt=urn:btih:4E758729E6712BB8104D5C9FA96C84FFF879402A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:4E758729E6712BB8104D5C9FA96C84FFF879402A
 magnet:?xt=urn:btih:D747441863F099954593FE21F5E401338E3C1376
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:D747441863F099954593FE21F5E401338E3C1376
 ```bash
 magnet:?xt=urn:btih:F326327441C2ADCBCCB95E1C62F281BE09EBA9D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:F326327441C2ADCBCCB95E1C62F281BE09EBA9D2
 magnet:?xt=urn:btih:A41611B1CE33DD10A29C7E048B63BD4F39C58783
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:A41611B1CE33DD10A29C7E048B63BD4F39C58783
 ```bash
 magnet:?xt=urn:btih:454AD51077B36D6D40EDB1E71FB4F60F4711C0DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:454AD51077B36D6D40EDB1E71FB4F60F4711C0DD
 magnet:?xt=urn:btih:8779385D1F5DDB6B04C9E0450275F6E9F80F025D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:8779385D1F5DDB6B04C9E0450275F6E9F80F025D
 ```bash
 magnet:?xt=urn:btih:3D46C778904AD6C16740AC0006B376103109FCBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:3D46C778904AD6C16740AC0006B376103109FCBC
 ```bash
 magnet:?xt=urn:btih:4D698B0D31DC48AC136CAF834734003022D0CCB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +446,8 @@ magnet:?xt=urn:btih:4D698B0D31DC48AC136CAF834734003022D0CCB3
 magnet:?xt=urn:btih:4C5146B2046ED648D403B5F0F4093287D76597F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:4C5146B2046ED648D403B5F0F4093287D76597F7
 ```bash
 magnet:?xt=urn:btih:FA69A7345A7ADCBE98D4A24913556457762724FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:FA69A7345A7ADCBE98D4A24913556457762724FE
 magnet:?xt=urn:btih:CCC39C2B583BB17850A2AE1F22B75DDC411CD8F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:CCC39C2B583BB17850A2AE1F22B75DDC411CD8F9
 ```bash
 magnet:?xt=urn:btih:18909A6DAE612EFC3DDED03C926B502DFCC6E06D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:18909A6DAE612EFC3DDED03C926B502DFCC6E06D
 magnet:?xt=urn:btih:75148D7490815856F11E37EA0CF182E89DD1A634
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:75148D7490815856F11E37EA0CF182E89DD1A634
 ```bash
 magnet:?xt=urn:btih:AF87CD7F08B259FAC136F65C7D57478C481CA0A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:AF87CD7F08B259FAC136F65C7D57478C481CA0A4
 magnet:?xt=urn:btih:B377EAEBCB4948E11E17345ABA6B3DCA0A796551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:B377EAEBCB4948E11E17345ABA6B3DCA0A796551
 ```bash
 magnet:?xt=urn:btih:E13C5A1DC411A28D22EB2B39AC1006AFC7CA2015
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:E13C5A1DC411A28D22EB2B39AC1006AFC7CA2015
 magnet:?xt=urn:btih:9FF362CE84BA4D9F22CFC4087E0D5B34CE4B9BB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,29 +680,7 @@ magnet:?xt=urn:btih:9FF362CE84BA4D9F22CFC4087E0D5B34CE4B9BB8
 magnet:?xt=urn:btih:1C89E99B1F55CE11568E277CF57EE02B61CC9D74
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108478   (860573) от 26.02.2017
-
-Роджер Желязны | Ночь в одиноком октябре (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из последних прижизненных романов выдающегося американского писателя-фантаста Роджера  Железны (1937-1995), в котором читатель встретится с доктором Франкенштейном и его чудовищем, с Джеком Потрошителем и Шерлоком Шолмсом, а также со многими другими известными персонажами мировой литературы, но главное – с великолепным чувством юмора, никогда не изменявшим писателю. (   Читать дальше...   )Жанр: фантастика, фэнтезиПродолжительность: 07:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAE7568D50B59D73370AA6B7FD291E11EF717A3A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

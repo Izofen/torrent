@@ -19,6 +19,8 @@ Tales of Xillia Remastered (2025) [Ru/Multi] (1.0.2/dlc) Scene Rune
 magnet:?xt=urn:btih:1537DC3E0532CBA43BF9E018447E090E47F18199
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Cash Cleaner Simulator (2025) [Ru/Multi] (1.3.1.628/dlc) Repack Necros
 ```bash
 magnet:?xt=urn:btih:BAE75880D1BC7525B139C86D9462F31C1B5DE0F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Total War: Three Kingdoms - эта игра из популярнейшей ст
 magnet:?xt=urn:btih:2D6222CC7AAE3126B7C300681E9F1259495F562E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ CRABS MUST DIE! - шутер в открытом мире с RPG-замашка�
 ```bash
 magnet:?xt=urn:btih:9D872ADF206C402B7FBB1B087E9053824D58C2CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Stillness of the Wind (2019) [Ru/Multi] (1.1.1) License GOG
 magnet:?xt=urn:btih:B7824570115AECAA95523B9DA6BC81CF48CB5A99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Bridge Constructor Medieval / Bridge Constructor: Средневековье (20
 ```bash
 magnet:?xt=urn:btih:B4C261C6B0A7A0E20EEAE38F1B1F530895F0215E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Bridge Constructor Playground предлагает людям всех возр�
 magnet:?xt=urn:btih:9D36F06815C21A50B38F67579C99B1863EA9DB5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Lumo, волшебный платформер повышенной степен�
 ```bash
 magnet:?xt=urn:btih:9EB6B44363DBB0C7F831703C04E068EBB99C8D14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Full Metal Schoolgirl (2025) [Multi] (1.01/dlc) Scene Tenoke
 magnet:?xt=urn:btih:8CF4BACC64F68D378485D7A88C31330532B89518
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46561/dlc) Repack Dece
 ```bash
 magnet:?xt=urn:btih:78EEF020742F967F36A4B61558115FD699A6CA9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:78EEF020742F967F36A4B61558115FD699A6CA9A
 magnet:?xt=urn:btih:7AC215D9214952B0F6F6B80A06B244EC115066BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ ZEPHON - постапокалиптическая 4X-стратегия от а�
 ```bash
 magnet:?xt=urn:btih:F24570854118F167160BD2AD9E391A15237C124F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ A Building Full of Cats 2 помещает игрока внутрь много�
 magnet:?xt=urn:btih:FDC9498061CFC13B76027E37C6F05ED9DBE07230
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Little Witch in the Woods позволяет окунуться в жизнь д
 ```bash
 magnet:?xt=urn:btih:C39A68D800BA4CB12D3ED9FE3817661CEFA7B5CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Legend of Heroes: Trails in the Sky - ролевой экшн, разраб�
 magnet:?xt=urn:btih:22462C6588A2491028740B6501A0896B9A3A5B97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Knock on the Window – это атмосферный хоррор с эстет
 ```bash
 magnet:?xt=urn:btih:6D4B54CB703858AE0334D73CADDE06FCE3EC49AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ ServiceIT: You can do IT (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:25510096A7307DA25F5DD2667DFEB3052959381A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Campus Life (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7E3C9D1E05B1AF9055D7F08A4A8A2BD7F0C4388B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Monster Care Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:97AD825AAC354522A46CC728CE83F316548938C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Sushi Ben (2025) [Ru/Multi] (1.5.250918.5) Repack FitGirl [VR]
 ```bash
 magnet:?xt=urn:btih:1A6CE2E634EA48430DB67A21EE9E4BB4AF59FFF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Songs of Conquest (2024) [Ru/Multi] (1.7.3/dlc) Repack Necros [Complete]
 magnet:?xt=urn:btih:7F403CD3B8918EAD98010233A21955E46BC9BB2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Moon's Creed (2025) [Ru/Multi] (1.6) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:416894DB91795C775679A6A9D0296AE337B18DE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ LAN Party Adventures (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:05FD59B28E498FA94FB801CCF6D6434B8D72D995
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Agatha Christie - Death on the Nile / Агата Кристи - Смерть н�
 ```bash
 magnet:?xt=urn:btih:79911EB3E3626FB3807AA422C15ED14C2CB898DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Deconstruction Simulator погружает игроков в бизнес по 
 magnet:?xt=urn:btih:B64DD128144D3AEE6D316F50DED6733346B1A2B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Dragon Song Tavern: Cozy and Adventurous (2025) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:1A3F43DED7AAC206F7C8324FAC7B8FA701625C57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

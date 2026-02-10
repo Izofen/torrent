@@ -19,6 +19,8 @@ JETRUNNER (2025) [Ru/Multi] (1.0.4/dlc) Repack Let'sРlay [Founders Edition]
 magnet:?xt=urn:btih:637CFDCFA657EA446E3CBE7643D2168342EA6116
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Monster Energy Supercross 25 - The Official Video Game представляет 
 ```bash
 magnet:?xt=urn:btih:B255813F609CB391FCD1C8C574D722869B8DA15D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Five Nights at Freddy's: Secret of the Mimic - это игра в жанре sur
 magnet:?xt=urn:btih:3DE010C6911D8E44167B10A5EFBD85178D7D01AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ KIBORG (2025) [Ru/Multi] (20 2.50.9_15:1:60) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:2E8D0259196017FDD32B2C0D3FFF171E927854EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Sea of Stars - динамичное ролевое приключение, ра�
 magnet:?xt=urn:btih:645D5042CDBF4E57FFEF8814DD7635FA08A3073B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Ravenswatch - хардкорное приключение, в котором п�
 ```bash
 magnet:?xt=urn:btih:635AE943BA99E4C080A2CD9A6E58949679FD8396
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Crusader Kings 3 - глобальная стратегия, значительн
 magnet:?xt=urn:btih:FFF26D05B9A09AD57B26687542C0653A53B1C4F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ American Truck Simulator (2016) [Ru/Multi] (1.56.1.0s/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0D3442D2FA5CD405119457D482DB9AC7006E7BB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Cat Quest II – это двухмерный ролевой экшн с откр
 magnet:?xt=urn:btih:1E691E6E6E0DA92DCD83672C07A51256769EE0B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ JETRUNNER (2025) [Ru/Multi] (1.0.1-dragon-0694/dlc) Repack FitGirl [Founders Edi
 ```bash
 magnet:?xt=urn:btih:D5268D380E5D68A8EC82F61CFAE2B35D785D1B01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Nordic Ashes: Survivors of Ragnarok – динамическое приключ�
 magnet:?xt=urn:btih:5BCABB1075CDAF917FC06FDCED61B280F8D9BF05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Star Fire Eternal Cycle (2025) [Ru/Multi] (1.26.325) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:AAFF2F4EEA4B1266FE4841EF8244444F9D0CF9D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (1.741703/dlc) Repack seleZen
 magnet:?xt=urn:btih:9F87E72D3117F21A46690E7AF578958E44953E21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Elroy and the Aliens (2025) [Multi] (1.1.3) License GOG
 ```bash
 magnet:?xt=urn:btih:C98B1DC6B9B343D95A8D26A1E9F2E00FA7F35292
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Monster Prom (2018) [Multi] (8.0/dlc) License GOG
 magnet:?xt=urn:btih:C7C5BB89AD8209063707C56264A02A3AD3C1BA2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Kitaria Fables (2021) [Ru/Multi] (1.10/dlc) License GOG [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:093EEE738C340C07F7729C6FD1C308CB9D2004AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ SnowRunner (2020) [Ru/Multi] (38.0/dlc) Repack Wanterlude [4-Year Anniversary Ed
 magnet:?xt=urn:btih:7DD6BD4C42EF74577FA4E3DEE172FD8CD4D15E92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Crusader Kings 3 - глобальная стратегия, значительн
 ```bash
 magnet:?xt=urn:btih:7340AD817FF7D9D85E64A6C175E3E4E80AA9C711
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Beyond Sunset – это яркий неоновый экшн, в котором
 magnet:?xt=urn:btih:9807D5184403E2A3E2D558F24DC621D3AC984FD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Precinct (2025) [Ru/Multi] (1.9.19872) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:C6C2B86D3F30BC3C020C11917A1450E999DE4AFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Cubic Odyssey (2025) [Ru/Multi] (1.0.3.4) Repack Let'sРlay
 magnet:?xt=urn:btih:ACCBD9B0B85640529F7458FECDA0A2D1C70E4516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (Build 889.22 Online 1.71) Repack 
 ```bash
 magnet:?xt=urn:btih:27B3053FFB894BBDD8F7328E1C86491641C46433
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Cyberpunk 2077 приключенческая ролевая игра, дейс�
 magnet:?xt=urn:btih:8CFFD6986D6C1397BC4A433A54414E3025B987D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Midnight Walk (2025) [Ru/Multi] (Build 18854438) Repack Let'sРlay [VR]
 ```bash
 magnet:?xt=urn:btih:B2FD5F8C95056FE3EACD81518A5CA501DDF9BF1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ PATAPON - приключенческая экшен-игра, где игрок�
 magnet:?xt=urn:btih:08C9CE409F8A7F49712C7A49AA2275AF74238780
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Warhammer 40,000: Rogue Trader – это изометрическая роле�
 ```bash
 magnet:?xt=urn:btih:19B9B41FF9FA092E1A886DD991FB8C09D38588EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

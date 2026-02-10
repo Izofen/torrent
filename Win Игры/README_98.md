@@ -19,6 +19,8 @@ Wreckfest (2018) [Ru/Multi] (1.0o/dlc) Repack Wanterlude [Complete Edition]
 magnet:?xt=urn:btih:335B78DAC093BDDDB5D77831941A43E74E18FBB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.5.89.0) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:0BDC4EF30B441FD6651B3EC9D648F2AAB3330406
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Slender Threads (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 magnet:?xt=urn:btih:2E9F46AE07B3BC4DAB6A70CB9229653BAC5E3FE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Deep Rock Galactic – научно-фантастический шутер пр
 ```bash
 magnet:?xt=urn:btih:980FDA808E47615A0E6565940537457E59AD27E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Dream Cage (2025) [Ru/Multi] (1.1.0) Repack FitGirl
 magnet:?xt=urn:btih:B029EAE19066F8D145B7CD542F0AA34027DFCE59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Suicide Squad: Kill the Justice League (2024) [Multi] (1.0.6.0/dlc) Repack FitGi
 ```bash
 magnet:?xt=urn:btih:3B577E4AF363D953AD7CCD216ABA632180058B4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Door Kickers - инновационная стратегия в реальном
 magnet:?xt=urn:btih:1D71F6965C45D1E121134B6BB9BE1577A5F67B6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Cardfight!! Vanguard Dear Days 2 (2025) [Multi] (1.0.2/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4CC061F347DD32792916CF56C43FD632B9801119
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Coma 2B: Catacomb (2024) [Ru/Multi] (1.2.3/dlc) Repack Let'sРlay [Deluxe Ed
 magnet:?xt=urn:btih:77FFE28569B6FF551263C817F8307CEBC859CB84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ BROK the InvestiGator - Natal Tail, A New Christmas (2024) [Ru/Multi] (1.0.7.1) 
 ```bash
 magnet:?xt=urn:btih:B85719738FE67FADF6C813DAC8B982594183EE34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Instruments of Destruction (2024) [Ru/Multi] (1.11c) Repack FitGirl
 magnet:?xt=urn:btih:87F7BA01DBE6F62BB23DA7B4DE8AC005A2EA6A7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ MULLET MADJACK (2024) [Ru/Multi] (1.12b/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:711071139A7624153BAE1F325A7143AFABFA0567
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Alone in the Dark (2024) [Ru/Multi] (1.05b/dlc) Repack Decepticon
 magnet:?xt=urn:btih:A01A2F1C223830FDFDA9CBA39AA19A19B12A4E22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Back Then – это инди-игра с видом от первого лиц�
 ```bash
 magnet:?xt=urn:btih:018F2036F22B4B85A0F20D88869B2BB5DFB53F59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Jet Kave Adventure - хардкорный платформер, заточенн
 magnet:?xt=urn:btih:1DE41007F20C388593C2D064E65A616703F9993B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Tails of Iron – это приключенческая ролевая игра 
 ```bash
 magnet:?xt=urn:btih:A5620DCA3908A6995FB293D31F41BC7B42F8F305
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Jet Kave Adventure - это совершенно исторически нето
 magnet:?xt=urn:btih:772DC9BB41845B3D9463A68689F7359001DC41F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Coma 2B: Catacomb (2024) [Ru/Multi] (1.2.2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:B1D83C462E7A1DCD422A23E313C918BF142CDB7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ The Dark Pictures Anthology - это серия напряжённых кине�
 magnet:?xt=urn:btih:BCA1A66F082AB588CCA1DC8B257D7B03B7E15346
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Stars in the Trash - увлекательный платформер, вдохн
 ```bash
 magnet:?xt=urn:btih:97E692274DC70D379712426F3BF19D405AB98DB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Thronefall (2024) [Ru/Multi] (2.12) Repack Let'sРlay
 magnet:?xt=urn:btih:C8193F30C750CA02B837FFFDE351BC66C2D0988E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Smurfs - Dreams (2024) [Ru/Multi] (1.0.27/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:7D9652E44B5FCA5CB1F321169295BA5AD438D1B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Turbo Overkill (2022) [Ru/Multi] (1.512) License GOG
 magnet:?xt=urn:btih:43AEAD527DBDD43DBDAF81A2214A0B7FD426CD2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Garden In! (2023) [Multi] (1.4.5.4) License GOG
 ```bash
 magnet:?xt=urn:btih:8E2A6108AE8811B96FFB5DC60A5EF7FCAFE4E079
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Fallen Enchantress (2012-2013) [En] (1.32/3.01) License GOG [Ultimate Edition]
 magnet:?xt=urn:btih:1543AD9C094AAA0B91E37B2D738FC13E318B677D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Sumerian Six - это не типичная военная история. Ко�
 ```bash
 magnet:?xt=urn:btih:C0BD73053ED36CAF94FF6259E5300763A863F8C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ KkartSchool, Карина Кино | Создание паттерна (2023) WE
 magnet:?xt=urn:btih:3BBAA05E0853949A3076BAFB3BCB814CC779D9AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Kaplanschool, Алексей Жалибо | Линейный скетчинг 2.
 ```bash
 magnet:?xt=urn:btih:27110FCD75BA84F12B8FA9762D73C0F03C77EB22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Learnsquared, Ash Thorp | HUD Design (2023) WEB-DL [EN]
 magnet:?xt=urn:btih:D72BA537B0BE22A443625D5BCCA87ED0504F49FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ The Gnomon Workshop, Rodrigo Brea | Stylized Environment Creation for Games (202
 magnet:?xt=urn:btih:4E0A0F050ED8372142DEB13A86011A7F43666075
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Revuer, Евгений Дюжакин | Цвет +. Как делать крут
 ```bash
 magnet:?xt=urn:btih:976F21E0936FFB75A2D861BBCC33DB8E74DFBFB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:976F21E0936FFB75A2D861BBCC33DB8E74DFBFB2
 magnet:?xt=urn:btih:58B1BFF733C4D14E9F88E310FD939640071B95DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:58B1BFF733C4D14E9F88E310FD939640071B95DF
 magnet:?xt=urn:btih:CE5B01070A83D905494BBF606B6AB560144227E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:CE5B01070A83D905494BBF606B6AB560144227E9
 magnet:?xt=urn:btih:2967864A3F8FC88C31421A3A4C8EBBB040CE6D72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ Cloudlessons, Елена Минакова, Стас Новиков, Андрей
 ```bash
 magnet:?xt=urn:btih:1D0B7FBF73D26A9FCE73D9E4F79EB39FBC7B4955
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ Podlodka Crew | Записи Java Crew #2 «Микросервисная арх�
 magnet:?xt=urn:btih:2E617740ECE82BC59634546191DE32CFEE9D3C30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:2E617740ECE82BC59634546191DE32CFEE9D3C30
 ```bash
 magnet:?xt=urn:btih:D9F8810F556329E731922D674B70278E2CB40D34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ You can always (   Читать дальше...   )Производство: Ud
 magnet:?xt=urn:btih:7A20AE2335E4BB74FB25E11797093AF796689460
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ The Gnomon Workshop, Giovani Magana | Creating Assets & Architecture for Game En
 magnet:?xt=urn:btih:3B5406DB844CCC2EFB3CA6DEC73D4363169627DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ The Gnomon Workshop, Miguel Perez Senent | Large-Scale Water Fx In Houdini (2023
 ```bash
 magnet:?xt=urn:btih:48CDA4608F7F9966C61107FB274237B0E1FE2F5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +407,8 @@ magnet:?xt=urn:btih:48CDA4608F7F9966C61107FB274237B0E1FE2F5F
 magnet:?xt=urn:btih:A68DF189DFE607D54860BA27579E16EA3025D1B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ The Gnomon Workshop, Madhav Shyam | Introduction to Ziva VFX - Volume 1 (2023) W
 ```bash
 magnet:?xt=urn:btih:CB87ADA3EF0F3235AC305813A6528DDB673E15E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ magnet:?xt=urn:btih:CB87ADA3EF0F3235AC305813A6528DDB673E15E6
 magnet:?xt=urn:btih:3D49DE36068AD269E1C60309BAE7CB398B9297C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ Domestika, Giorgio Macellari | Motion Design with Unreal Engine 5 (2023) WEB-DL 
 magnet:?xt=urn:btih:14493431B2DE38328F1CD3DC591C9CB82A546DCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ magnet:?xt=urn:btih:14493431B2DE38328F1CD3DC591C9CB82A546DCC
 ```bash
 magnet:?xt=urn:btih:A24CD97ECE23B1A09D0E22BD5072E4E8B44E49F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:A24CD97ECE23B1A09D0E22BD5072E4E8B44E49F9
 magnet:?xt=urn:btih:933C2AC0DACA238CB51A7ABE4AA799E4FB2A522B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ magnet:?xt=urn:btih:933C2AC0DACA238CB51A7ABE4AA799E4FB2A522B
 magnet:?xt=urn:btih:BB697C3B065FF391E9622A32AF63692C92B5D520
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ Hudozhnik Online, Дарья Куцаева, Екатерина Бердюгин
 ```bash
 magnet:?xt=urn:btih:47BF75110EFE1C7D5FCCB67CFD1A501A25F281F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ You can always use the latest versions for spring boot, and other dependencies i
 ```bash
 magnet:?xt=urn:btih:0DBA31E123248FA7C23DCFA722E8D33102E5EADF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +649,8 @@ SmartUP, Кирилл Дёмин | Нейросети для соцсетей (2
 magnet:?xt=urn:btih:6C4DE6B4E03ED929195F8AA5FCA712F7F0952853
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ Digital Art Club, Роман Brumel | Анатомия. Легко! И без б
 ```bash
 magnet:?xt=urn:btih:AF8002D2B3DF3426EB8DECF4E19C6EDA2F9BB0EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:AF8002D2B3DF3426EB8DECF4E19C6EDA2F9BB0EA
 ```bash
 magnet:?xt=urn:btih:7F5F9C26830FBAC75AF8DA01918EC58DADC4E6B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

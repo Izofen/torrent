@@ -1,3 +1,29 @@
+###  Публикация: 1143617   (635111) от 18.06.2017
+
+Орел и решка. Перезагрузка (2017.06.18) WEB-DL [H.264/1080p-LQ] (сезон 14: Чикаго)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шесть лет назад команда проекта "Орел и решка" впервые отправилась в большое путешествие по самым интересным городам нашей планеты. За прошедшее время в них столько всего изменилось, что создатели шоу решили приехать сюда снова. "Орел и решка" объявляет перезагрузку! Телезрителей ждет встреча с невиданными чудесами, новыми незабываемыми впечатлениями (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85D8850E542B6A779782A292C3E9DC2B15C58ED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143551   (635114) от 18.06.2017
 
 Засекреченные списки. Осторожно, русские! 10 мифов о российской угрозе (Эфир от 17.06.2017) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:B910DE8C99930ECDB08DEF54364E356ABA66AC4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:B910DE8C99930ECDB08DEF54364E356ABA66AC4E
 ```bash
 magnet:?xt=urn:btih:FA4CFEE80CC693DB2C127963DBF4CFDEAB1A5AD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:FA4CFEE80CC693DB2C127963DBF4CFDEAB1A5AD0
 magnet:?xt=urn:btih:6C6E060E40D4BCC06D889E735E0CA65DFFEB276A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:6C6E060E40D4BCC06D889E735E0CA65DFFEB276A
 ```bash
 magnet:?xt=urn:btih:0D156D8AA9D4816C593413A6CFAE6D06A40A1963
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:0D156D8AA9D4816C593413A6CFAE6D06A40A1963
 magnet:?xt=urn:btih:CFF6319DD938794FC48DA98E730AAEB10C428AA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:CFF6319DD938794FC48DA98E730AAEB10C428AA2
 ```bash
 magnet:?xt=urn:btih:3D5C555DA198F5894CB55079572B6D09C8C90BA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:3D5C555DA198F5894CB55079572B6D09C8C90BA3
 magnet:?xt=urn:btih:147179EA5E5A857CD60CAE6E34A20C5E9102E600
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:147179EA5E5A857CD60CAE6E34A20C5E9102E600
 ```bash
 magnet:?xt=urn:btih:BD5A133E0DCD192875B565FA8D86142B9262814A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:BD5A133E0DCD192875B565FA8D86142B9262814A
 magnet:?xt=urn:btih:79F8BB16BCD2C8B40E5D6CE768D04E7DE106DDCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:79F8BB16BCD2C8B40E5D6CE768D04E7DE106DDCD
 ```bash
 magnet:?xt=urn:btih:84D2228442DCBFF2E1C302EFE432BA849A9A3C1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:84D2228442DCBFF2E1C302EFE432BA849A9A3C1B
 magnet:?xt=urn:btih:9F151DC263114D16F2AFA200EA93AB5ABBDD650C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:9F151DC263114D16F2AFA200EA93AB5ABBDD650C
 magnet:?xt=urn:btih:AA0E96D5A4BBB264AE05EF4DDA8DEBCAF6F5838A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +363,8 @@ BBC. Мир природы. Бабочки / Natural World. Butterflies (2010) H
 ```bash
 magnet:?xt=urn:btih:35CEFEEA83F73E2E236BDC099C75B2E4F4E723CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +391,8 @@ NG: Жизнь среди больших кошек / Living with Big Cats (2007
 magnet:?xt=urn:btih:D10D077FD298080E19069EF7BD8CFE7BF14E25B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:D10D077FD298080E19069EF7BD8CFE7BF14E25B7
 ```bash
 magnet:?xt=urn:btih:62FB858290AF4B901A9EBC379288CBDC96FBFFA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:62FB858290AF4B901A9EBC379288CBDC96FBFFA7
 magnet:?xt=urn:btih:82BAE4396F92CD391E0CCE23F6E57CB570366C42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:82BAE4396F92CD391E0CCE23F6E57CB570366C42
 magnet:?xt=urn:btih:8A360C1FB1548952323EEEF25F5B8474AE99AE1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:8A360C1FB1548952323EEEF25F5B8474AE99AE1F
 ```bash
 magnet:?xt=urn:btih:4BEFD2C61BC1BD742AFFFD700BE7B764DE04E45F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:4BEFD2C61BC1BD742AFFFD700BE7B764DE04E45F
 magnet:?xt=urn:btih:28DE3FD9F19973F776F3D5F153516306827FC0C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:28DE3FD9F19973F776F3D5F153516306827FC0C1
 ```bash
 magnet:?xt=urn:btih:72F96736A659DA6F644BCF4C107AF9BCECF88A4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:72F96736A659DA6F644BCF4C107AF9BCECF88A4A
 magnet:?xt=urn:btih:6E21E79D410D473C94A8C44D6F9B07622A8B7FF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:6E21E79D410D473C94A8C44D6F9B07622A8B7FF0
 ```bash
 magnet:?xt=urn:btih:003228DE1EFE07196464A9B0CD8628DE347939BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:003228DE1EFE07196464A9B0CD8628DE347939BE
 magnet:?xt=urn:btih:48F2AAE6E11EFA7CEB0B7D7F4BACF06C691A0B9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:48F2AAE6E11EFA7CEB0B7D7F4BACF06C691A0B9A
 ```bash
 magnet:?xt=urn:btih:14E1AE9DF748F8CBF96E7AB46B1A9BAD903BF79A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:14E1AE9DF748F8CBF96E7AB46B1A9BAD903BF79A
 magnet:?xt=urn:btih:5B538874239A437B72659F0814FB710D510606F2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908013   (636160) от 13.06.2015
-
-Укротители звука (13.06.2015) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давно известно, что тишина дарит человеку спокойствие и умиротворение. Еще в Древнем Риме, почти две тысячи лет назад, Юлий Цезарь запретил ночную езду на грохочущих колесницах. А королева Англии Елизавета четыре столетия назад не разрешала мужьям бить своих жен после 10 часов вечера, "чтобы их крики не беспокоили соседей"… Борьба за тишину продолжается (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-шоу, развлекательныйПродолжительность: 00:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DF2C5C52B9319C5BD45625C092307526BFC2DD6
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C3431B83C50FD1294AA4670F725D5F262B6E2BBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Windows Server, версия 23H2 - это первый выпуск ежего�
 ```bash
 magnet:?xt=urn:btih:2FA6A75AE9E0E56BB3BDC7D2FFE1F64C0765BE30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ FliFlik KlearMax for Photo — это передовое программное 
 magnet:?xt=urn:btih:B5FC2630A0B71CC24CDC0C280A3A3FDF4E53305E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:B5FC2630A0B71CC24CDC0C280A3A3FDF4E53305E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:B5FC2630A0B71CC24CDC0C280A3A3FDF4E53305E
 magnet:?xt=urn:btih:5DECBB4C7323442C2FFFCFCAD5F3BEDF9E732C9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Windows 11 - это серия операционных систем, разра
 magnet:?xt=urn:btih:047D5C7C9253E4A6AAC5B3CAF38047580656A679
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ magnet:?xt=urn:btih:047D5C7C9253E4A6AAC5B3CAF38047580656A679
 ```bash
 magnet:?xt=urn:btih:FD4DF0BF6BDDDE2163E3F50B4FC15C32544317F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ iTubeGo 9.3.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:08A8E0E522C494C9FBBAD56A1F8E87B3A07F9214
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Gangs of Neo Tokyo (2025) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D8DF06488878A138EA68E3FB4C5CA1AAECEBAACE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:D8DF06488878A138EA68E3FB4C5CA1AAECEBAACE
 magnet:?xt=urn:btih:37391239C5A0722B5A4F38F462FEF6615EACC0CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:37391239C5A0722B5A4F38F462FEF6615EACC0CB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:37391239C5A0722B5A4F38F462FEF6615EACC0CB
 magnet:?xt=urn:btih:D974569B69E319B598C066FB40B228E86D209764
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:FD724C4B2A0AA614C0A7DABF2C0BFC42AA5DEF43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:FD724C4B2A0AA614C0A7DABF2C0BFC42AA5DEF43
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:FD724C4B2A0AA614C0A7DABF2C0BFC42AA5DEF43
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ The Other Me (2025) [Ru/Multi] (build 16992762) Repack seleZen
 magnet:?xt=urn:btih:16E23AEE73EA6D92F37B06376572DEAE43D0DEE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:16E23AEE73EA6D92F37B06376572DEAE43D0DEE5
 ```bash
 magnet:?xt=urn:btih:FFAB5E82A7C86FDD0A4DF10B54759235F0971622
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Windows 10 2022 Update (под кодовым названием "22H2") это 
 magnet:?xt=urn:btih:F5420B2C5FDDF87E52B757BBE5759427B6370CDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ CGMA, David Mooy | Intro to Maya (2020) WEBRip [RU, EN]
 magnet:?xt=urn:btih:44B6D6B4F862B2612E385B3E8233AC7538D32C98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:44B6D6B4F862B2612E385B3E8233AC7538D32C98
 ```bash
 magnet:?xt=urn:btih:48140E58E2374EBF41DEBC8A28146D58E145EF93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Tales of Graces f возвращается в красивой версии, в 
 magnet:?xt=urn:btih:6B99913C125B3765C1F0862D686B7208CE1F934A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ TrafficMonitor - портативная утилита с минималисти
 ```bash
 magnet:?xt=urn:btih:383A90C02F4A13442DAEC262633392D2A1589E60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:383A90C02F4A13442DAEC262633392D2A1589E60
 magnet:?xt=urn:btih:60E4262F069CB4064A29666B2F0CA6502BB9638A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:60E4262F069CB4064A29666B2F0CA6502BB9638A
 magnet:?xt=urn:btih:1631052930A90228C452BA9E5BE2F1DB5B7F19BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:1631052930A90228C452BA9E5BE2F1DB5B7F19BC
 ```bash
 magnet:?xt=urn:btih:B4E8F6E2D83A16933AF163E32BBDD623D0F42BAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +679,8 @@ Grand Secret, Максим Волков, Виктория Жихарева, Ма
 ```bash
 magnet:?xt=urn:btih:2948E5EE6224D7C510D622D2A0749ECB272072EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

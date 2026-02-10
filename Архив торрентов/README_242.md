@@ -19,6 +19,8 @@ ShareX - программа для снятия снимков и видеоза
 magnet:?xt=urn:btih:5404A67EB0DBA3E50AB08661CA4990F2C5490132
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ GoodbyeDPI 0.2.2 Launcher 7.6 [Ru]
 magnet:?xt=urn:btih:9B39F8786BC0690D9903A6111C0EC95FFEF1AE22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ iZotope - RX 11 Audio Editor Advanced 11.1.0 STANDALONE, VST 3, AAX (x64) RePack
 ```bash
 magnet:?xt=urn:btih:AC1216D9734A89725E84D6DBB781E6226ED8D6E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Revo Uninstaller Pro 5.3.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:D41047AB95B2BF6AAD77054EBC7AC9E83D3D2694
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Mozilla Thunderbird –  легкая и безопасная бесплатна
 ```bash
 magnet:?xt=urn:btih:F05CCC21A73791EE4595E9AFC9FB3974244CC390
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ SupRemo 4.11.2.2625 [Multi/Ru]
 magnet:?xt=urn:btih:E262C5F076828F5DC4A1E5CEE3E5CF53927AF05C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:61C4C57685AD2D88F95BDF37EB0245EB31724867
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Wise Care 365 – программный пакет, предназначенн�
 magnet:?xt=urn:btih:44D2CE288C5F8B5F0CED8B69AC9CD0EB9076DA48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Camtasia Studio - утилита для записи изображения с �
 ```bash
 magnet:?xt=urn:btih:658DE161A6591ECEF5023B32F7C45D429EFBE0F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Ultimaker Cura - популярный слайсер для 3d-печати. О�
 magnet:?xt=urn:btih:060C01F6B877F1A4BB8C22BBCF5188D3093A150C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:060C01F6B877F1A4BB8C22BBCF5188D3093A150C
 ```bash
 magnet:?xt=urn:btih:AC1E92D64BA8E01569C71BBA81D47B69CB03B97B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Media Player Classic - BE – универсальный проигрывате�
 magnet:?xt=urn:btih:A8BB15C76955083782E1F639516263272910E5E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ iZotope - Ozone 11 Advanced 11.0.1 VST 3, AAX, NKS (x64) RePack by R2R [En]
 magnet:?xt=urn:btih:47A1872C1DBD746742D7F4DE00C0E523CC8D5058
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ VueScan - программа предназначена для замены ст
 magnet:?xt=urn:btih:3352256E798A8CAEF837FF8B0AF15D0604B3D037
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Cent Browser является усовершенствованной верси�
 ```bash
 magnet:?xt=urn:btih:ED6C0755E8E3240EE4418B49E8C47F863790A445
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Windows Manager - это универсальная утилита для Micros
 magnet:?xt=urn:btih:E5FD0A60D89AFF29696784B21B2F9BDC7576BEA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Adobe Photoshop Lightroom Classic 2024 13.3.1.1 (x64) Portable by 7997 [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:83EEBD9C817FC41D35CCA700BEDCEECF89C3EBDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ EF Commander  — замечательный двухпанельный файл
 magnet:?xt=urn:btih:BB35D85FF47D8A80A2C349FA7FABE791C1128FDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Kdenlive - бесплатный нелинейный видеоредактор,
 magnet:?xt=urn:btih:234334054082C3EBE900F6181DFD9851A7995247
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ UsbTreeView - маленькая портативная утилита, реал
 ```bash
 magnet:?xt=urn:btih:A5644AA608C4BE7EA108F4B0620C79CE4EC8C099
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Sumatra PDF — мощная, небольшая программа с прос�
 magnet:?xt=urn:btih:0926BB5EF69150372339B3F6908C95B5259F3402
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:72950A5F04B70CD48CD90AE1BA8CB9CDFF64E52C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ Draw.io 24.5.1 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:CEADCBB659A8E59AC4B97030701EE71D32BCD92D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Draw.io 24.4.13 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FB7C3CC71959A08E99E9375C36B8106A36C45E42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ PDF24 Creator - бесплатная программа, которая позв
 magnet:?xt=urn:btih:0FD8875E07A991397AF518587461ABE1F122B9B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ KiCad – уникальный в своем роде программный п�
 ```bash
 magnet:?xt=urn:btih:329EEC499D8DB0875D55E284DB51B48E9CA286DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

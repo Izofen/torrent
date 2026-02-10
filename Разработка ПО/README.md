@@ -20,6 +20,8 @@ Microsoft Visual C++ Redistributable — это набор системных б
 magnet:?xt=urn:btih:614CF2A65469C2CA02252C39E3571D0A8BB74ECB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Microsoft Visual C++ Redistributable Package – это распространя
 magnet:?xt=urn:btih:E463479ABA0AA8CECF537201EA70F613983F199C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ isual Studio — это мощное средство разработчика, 
 ```bash
 magnet:?xt=urn:btih:8A5EE96932CBDDAFEAB7CCC534DF9ECBB6A386AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Open Server Panel 6 — это обновлённая версия популя�
 magnet:?xt=urn:btih:545F0B3A526AC8126C4482187D92476D74358689
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Visual Studio — это мощное средство разработчика,
 magnet:?xt=urn:btih:E9D36F6ED6EDCD85C86B27D26C956D0239CA5042
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Microsoft Visual Studio 2026 Enterprise Insiders 18.0.0 (Offline Cache) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:03EE6FA240DDEF6A78C4378B040BF6B47EF71BAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ RubyMine — умная и удобная интегрированная сре�
 magnet:?xt=urn:btih:D168CD5E55DF9E0A029E29F433398E3CA63FF20B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ DataSpell — IDE для Data Science. DataSpell создан специальн
 ```bash
 magnet:?xt=urn:btih:23238CCD3EF3640ECA0906DACA29D14581241C14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ RustRover - это мощная и удобная среда разработк�
 ```bash
 magnet:?xt=urn:btih:9B23BB60CF1B46877857E6FD44621FEF4DE5298D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ IDE GoLand предлагает широкий спектр инструмент
 magnet:?xt=urn:btih:33EB665C2C11F29D784194297FD417C992888A2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ JetBrains WebStorm — это мощная интегрированная сре
 ```bash
 magnet:?xt=urn:btih:36A9CDAEC06152D2917FF0B1B06DC54E3B4411F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Rider — это кросс-платформенная интегрирован�
 magnet:?xt=urn:btih:F1A64B71B21E398041F97728C29DFE124D493C50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ JetBrains PyCharm Professional – это мощная и многофункци
 magnet:?xt=urn:btih:7A53553F90C2D5D970F06D5D4BE425B2B14E43FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ JetBrains CLion — интеллектуальная среда разработ
 ```bash
 magnet:?xt=urn:btih:787EBD05469D0399CFEE7BE325C3FB74DDB9DE9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ JetBrains DataGrip - это инновационное программное о
 magnet:?xt=urn:btih:5AAD5CC7297F3A7D818706A80F7B777A8B69ACF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ JetBrains IntelliJ IDEA Ultimate - это профессиональный ин�
 ```bash
 magnet:?xt=urn:btih:3367F340ED1BAE006B36D39604CBFD25F44EB13C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ PhpStorm – это интегрированная среда разработк
 magnet:?xt=urn:btih:18E7E4D265CA378767DFE6D6CE0FE28822006635
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Visual Studio Enterprise 2019 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:7D7D37904B2DAE3FAC330A1C3D7B1BA38A864DCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ Araxis Merge – это обязательное приложение для р�
 magnet:?xt=urn:btih:ACCFD16FD838A1E969AA63F96FD4910447B8BD20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ Microsoft .NET 9.0.6 Runtime [Ru/En]
 magnet:?xt=urn:btih:392B2D2884783AF3EF709B3AFC41A81FCDAEFB5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ Resource Tuner - это программа для просмотра, редак
 ```bash
 magnet:?xt=urn:btih:CA6C585318D614A0847FB6A89FA41FB86DBC991E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ JetBrains dotUltimate 2024.1.3 [En]
 magnet:?xt=urn:btih:DF5EB9BB1E39A2E4248A6DFD8A1D3DAE591D4823
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ Visual Studio Community - Бесплатная, полнофункциональ
 ```bash
 magnet:?xt=urn:btih:FD9CD92F1E487AD004C256092A8F40395582B794
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ EditPlus – это компактный текстовый редактор д�
 magnet:?xt=urn:btih:981ACF2CBD445C18569EB8326C96EFAEF95373B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ Software Ideas Modeler — это интеллектуальный инстру�
 ```bash
 magnet:?xt=urn:btih:20C9388A81872D142A09A74F3324C0803A6CF846
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +684,8 @@ RubyMine — умная и удобная интегрированная сре�
 ```bash
 magnet:?xt=urn:btih:CC54F8097481C07894CAA1343A97809CA07FFFFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ CD - 1:
 magnet:?xt=urn:btih:8ABB1E1BF905A3A17A2838CC9F53B03F6E1DB294
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:8ABB1E1BF905A3A17A2838CC9F53B03F6E1DB294
 ```bash
 magnet:?xt=urn:btih:AAFA8AEBFFD451ECE01740D94AE664FE3EA479E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - Spacechillers Vol. 3 (Сompiled by Maiia) (2019) Mystic Sound Records [FLAC
 magnet:?xt=urn:btih:D7A5580C275DB87114CA22087E287F2795CFB25E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:D7A5580C275DB87114CA22087E287F2795CFB25E
 ```bash
 magnet:?xt=urn:btih:38AD39A8CCCB52BD113333153602225598F6B643
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Mad Pilot - Нет любви (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 magnet:?xt=urn:btih:61D7B9DA1732A0B8EAEFAE463F4626EFBADE9AEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ Angel - A Woman's Diary - Chapter II (2020) [FLAC|Lossless|image + .cue] <Sympho
 magnet:?xt=urn:btih:8194422AE5F56CBE85E198A52BD887B957724B11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:8194422AE5F56CBE85E198A52BD887B957724B11
 magnet:?xt=urn:btih:5702B57EC5E82BDC8C642D5E7069D99A0BE13985
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:5702B57EC5E82BDC8C642D5E7069D99A0BE13985
 ```bash
 magnet:?xt=urn:btih:7391DFD6167E9FD74D28637E65316F4FA5EE010E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ Def Leppard - On Through The Night (1980) Remastered, 2018, [FLAC|Lossless|WEB-D
 magnet:?xt=urn:btih:EA7372DB1FF48349B86BBA69CEB107FC800A041D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ Maschine – это рабочая станция для создания бит
 magnet:?xt=urn:btih:5018B479C61BECDE122037725F1BD82F8B4A6E57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ Big Sur Cache Cleaner - это отмеченный наградами инст�
 ```bash
 magnet:?xt=urn:btih:940AC47702924261F7C18C48EF429F8789B66CE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ ArchCommander 2.3.1 [Multi]
 magnet:?xt=urn:btih:31157CA9189FE1BB18ADC50357DB18288C4D3067
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:B9588065722B34157ABA9FB6C8E5C2D6813B615D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ Charlie Christian - The Genius Of The Electric Guitar (1939 - 1941) 1987, Columb
 magnet:?xt=urn:btih:2810783C11CCA8C65E170690147D2F511C946FA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ magnet:?xt=urn:btih:2810783C11CCA8C65E170690147D2F511C946FA6
 magnet:?xt=urn:btih:A3C0128EDE77A0BC2FDC38850D66BEB63BC8767C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:A3C0128EDE77A0BC2FDC38850D66BEB63BC8767C
 ```bash
 magnet:?xt=urn:btih:F0BBF64CF0EF348FA1AA2C95082F7DBC43967395
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ Monolink - Amniotic (2019) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Electro
 magnet:?xt=urn:btih:DCDE9531B92FC01A48040751E8A533B447A07C6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ VA - Oxygenesis: Clubbing Techno Mix (2020) [MP3|320 Kbps] <Club, Dance, Tech Ho
 ```bash
 magnet:?xt=urn:btih:A049A43F90E0337EFDCDE08C4AC50688A5191795
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +518,8 @@ magnet:?xt=urn:btih:A049A43F90E0337EFDCDE08C4AC50688A5191795
 magnet:?xt=urn:btih:587B0C6F9209613D3F2BFBD86DB7FD40E5C8AA10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +543,8 @@ magnet:?xt=urn:btih:587B0C6F9209613D3F2BFBD86DB7FD40E5C8AA10
 ```bash
 magnet:?xt=urn:btih:3F78385AF643F5E87C4CDEBF8CD00F770C3D81DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ SFTP Commander — это приложение для передачи файл�
 magnet:?xt=urn:btih:27B0C8C843433EE93A95F28985639E18E2569781
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ magnet:?xt=urn:btih:27B0C8C843433EE93A95F28985639E18E2569781
 ```bash
 magnet:?xt=urn:btih:066AAFA9B7FC1396EE6F944E9753245462B75DA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ magnet:?xt=urn:btih:066AAFA9B7FC1396EE6F944E9753245462B75DA0
 magnet:?xt=urn:btih:ACDBA848949F5A50F47FF805CE0B53328E806100
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ magnet:?xt=urn:btih:ACDBA848949F5A50F47FF805CE0B53328E806100
 ```bash
 magnet:?xt=urn:btih:CBE3F4F9154141B211ABEBCC11505EC68A2C057C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +678,8 @@ Mr R. - Ere Long (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Space Rock, 
 magnet:?xt=urn:btih:75C39971D71374EAA3F11FC43642BC9C9EFA8DED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ Jack J Hutchinson - Back to the Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blue
 ```bash
 magnet:?xt=urn:btih:92751224A4966D37A64FBBB403850DF466277FE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

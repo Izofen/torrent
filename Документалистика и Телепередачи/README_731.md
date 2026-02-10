@@ -1,3 +1,29 @@
+###  Публикация: 1480575   (1008839) от 29.06.2021
+
+Слава королеве / Glory to the Queen (2020) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Истории четырех легендарных советских шахматисток Ноны Гаприндашвили, Наны Иоселиани, Майи Чибурданидзе, Наны Александрия, из Грузии. Эти женщины не только совершили революцию в мире спорта, но и стали иконами мировой шахматной короны.Производство: Грузия, Georgian National Film CentreЖанр: Документальный, история, биография, спортРежиссер: Татиа Схиртладзе, Анна ХазарадзеПеревод: Двуголосый закадровый, профессиональный (Тираж-Дубляж)Субтитры: отсутствуютПродолжительность: 01:21:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4582836A9AC2917871816DF1D2589B9F6FBAD3D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1480423   (1008982) от 28.06.2021
 
 Страшно красивые / Schon kann jeder / Pretty Ugly (2014) DVB
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:E8074A7C8811D568DA5F9EFAD2F7E8E6465B97CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:E8074A7C8811D568DA5F9EFAD2F7E8E6465B97CE
 magnet:?xt=urn:btih:CFC98E9494ED5CFAB55E92247DE8AFB5D0DBB3A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:CFC98E9494ED5CFAB55E92247DE8AFB5D0DBB3A9
 ```bash
 magnet:?xt=urn:btih:BEF1720C0CEDB5CD16181E7C0B2FFADC4E31E975
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:BEF1720C0CEDB5CD16181E7C0B2FFADC4E31E975
 magnet:?xt=urn:btih:D724A76675C7CA1D735DFD4694C02E534D7A905E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:D724A76675C7CA1D735DFD4694C02E534D7A905E
 ```bash
 magnet:?xt=urn:btih:5E3A33D257C57310CA1B29967F0159AFC678B44E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:5E3A33D257C57310CA1B29967F0159AFC678B44E
 magnet:?xt=urn:btih:E4F01A5F4A009CB045FB96CDC97002812F3C0189
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:E4F01A5F4A009CB045FB96CDC97002812F3C0189
 ```bash
 magnet:?xt=urn:btih:2F4BFA2842F67A0761BBF9E4C8C5653D89A5D619
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:2F4BFA2842F67A0761BBF9E4C8C5653D89A5D619
 magnet:?xt=urn:btih:559806967B622999D9042ABA85C710354D40F4C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:559806967B622999D9042ABA85C710354D40F4C5
 magnet:?xt=urn:btih:D17E4A8563C77E92D7981C56E78A9703F6192550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:D17E4A8563C77E92D7981C56E78A9703F6192550
 ```bash
 magnet:?xt=urn:btih:22D2E10DA52CC67F1705E2DF517D12A534CB9416
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:22D2E10DA52CC67F1705E2DF517D12A534CB9416
 magnet:?xt=urn:btih:714799F75C63F3C62C5466377EE7BC3080CA24A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:714799F75C63F3C62C5466377EE7BC3080CA24A2
 ```bash
 magnet:?xt=urn:btih:34BCD262F169B6F27C9BC1FFE8D8A88116D3483E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +368,8 @@ magnet:?xt=urn:btih:34BCD262F169B6F27C9BC1FFE8D8A88116D3483E
 magnet:?xt=urn:btih:D9409EE78B6775F749339CD2CD7A65AF714C3F04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +393,8 @@ magnet:?xt=urn:btih:D9409EE78B6775F749339CD2CD7A65AF714C3F04
 ```bash
 magnet:?xt=urn:btih:BEC93BEE28D2921FF9CAB3B43FA6B67D76EFCD5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +421,8 @@ magnet:?xt=urn:btih:BEC93BEE28D2921FF9CAB3B43FA6B67D76EFCD5E
 magnet:?xt=urn:btih:F9A1C6F61D6204308E123E262DC2E44F9164CF6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +446,8 @@ magnet:?xt=urn:btih:F9A1C6F61D6204308E123E262DC2E44F9164CF6C
 ```bash
 magnet:?xt=urn:btih:A4ACCB7B94EC9B97C3FF32B958022032ECC43E1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:A4ACCB7B94EC9B97C3FF32B958022032ECC43E1E
 magnet:?xt=urn:btih:C0E87041B5181A39C33F40FFAB3B3A50361B625A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:C0E87041B5181A39C33F40FFAB3B3A50361B625A
 ```bash
 magnet:?xt=urn:btih:DCCFEC1BF0D09B760DCB472AE0D4BD50F75BF0CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:DCCFEC1BF0D09B760DCB472AE0D4BD50F75BF0CD
 magnet:?xt=urn:btih:5A92D5760B72EF0D08AC4CE9A84049FF79061685
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:5A92D5760B72EF0D08AC4CE9A84049FF79061685
 ```bash
 magnet:?xt=urn:btih:86AE6A053F0E818DA6E494B473EA656B5D304A96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:86AE6A053F0E818DA6E494B473EA656B5D304A96
 magnet:?xt=urn:btih:C4EDDF02DD1C05B3544CA7E7F050A4DB929E7B01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:C4EDDF02DD1C05B3544CA7E7F050A4DB929E7B01
 ```bash
 magnet:?xt=urn:btih:BE4A041DDFC7ADB7788DB03BDD1F98B29A03FD5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:BE4A041DDFC7ADB7788DB03BDD1F98B29A03FD5C
 magnet:?xt=urn:btih:B7DAB3D3FA3018DA513AE1C15856186F3FA8C4B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:B7DAB3D3FA3018DA513AE1C15856186F3FA8C4B2
 ```bash
 magnet:?xt=urn:btih:61BC34CDBCC7CAF58B9B060D29CC3405E30BFDCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,29 +681,7 @@ magnet:?xt=urn:btih:61BC34CDBCC7CAF58B9B060D29CC3405E30BFDCF
 magnet:?xt=urn:btih:7EF71AB10E4FB3C52F9533A6E91F7FB87DD774BB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478675   (1010160) от 20.06.2021
-
-Своя игра (20.06.2021) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играСубтитры: РусскиеПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3161CE1B13D946E86DCC39D876E7E3DBF2CF49F2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

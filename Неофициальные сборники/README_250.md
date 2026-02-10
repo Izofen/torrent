@@ -1,3 +1,29 @@
+###  Публикация: 947720   (417715) от 17.10.2015
+
+Cher - Good Songs (2015) [MP3|320 кб/с]<Pop, Rock, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Believe (Live)Жанр: Pop, Rock, DanceПродолжительность: 05:21:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1351A84AE08893D925700C23C5D51BE5BD075C7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947665   (417717) от 17.10.2015
 
 VA - My Favourite Hits of 1960 (3CD) (2015) [MP3|320 кб/с]<Funk, Soul, Rhythm & Blues, Pop, Pop Rock, Rock>
@@ -21,6 +47,8 @@ VA - My Favourite Hits of 1960 (3CD) (2015) [MP3|320 кб/с]<Funk, Soul, Rhythm
 ```bash
 magnet:?xt=urn:btih:F3BD7731D5312497A82F1ED7BDC8AE489C4ACE8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +77,8 @@ VA - Зайцев.нет Музыкальные новинки 2 Сентябр�
 magnet:?xt=urn:btih:03C2FF0511545024720C0C6C940B6F8B808B116E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +105,8 @@ VA - Турбомодные осенние хиты (2015) [MP3|256 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:BE7A0A8DD3E5E88396D41296B0A0FC0EBA63DFFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +135,8 @@ VA - Blue Floor: Techno Electronic Mix (2018) [MP3|320 Kbps] <Techno, Electronic
 magnet:?xt=urn:btih:B97D344AF7B7E70B2C6AC000F860F574CE3052BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +163,8 @@ VA - Instrumental Chill Out Relaxing Piano Bar Music Romantic Dinner Party Cool 
 ```bash
 magnet:?xt=urn:btih:C6AB32E401E3F56A3F5CB90CA2D824131E4D7CF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +193,8 @@ VA - Spiritual Transformations (2018) [MP3|320 Kbps] <Psichedelic, Trance>
 magnet:?xt=urn:btih:5C3E6FE1754AED6808CB7D077BD3DC8ECD396637
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +221,8 @@ VA - Options Remake Of Tracks September -C- (2018) [MP3|~ 247 - 320 Kbps] <House
 ```bash
 magnet:?xt=urn:btih:E3DE8FD20B862112FCB7B690B115DC742D40E147
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +251,8 @@ VA - Relaxing Piano Nights (2015) [MP3|320 кб/с]<Downtempo, Chillout, Instrum
 magnet:?xt=urn:btih:98643CDE479188E6A9121D61A0C267FB7FCD64A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +279,8 @@ Diana Ross - Good Songs (2015) [MP3|192 кб/с]<Pop, Disco, Soul, R&B>
 ```bash
 magnet:?xt=urn:btih:920F7233E3F2CF0294821E108E605AAF26EA5ADC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +309,8 @@ VA - Guitar Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:A778D3264FC0A3D849F347423319501CA90D5860
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +337,8 @@ VA - 75 Vocal Trance (2015) [MP3|128-320 кб/с]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:3638545F6CD92648D3ADB2DCE6DC180391977A92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +367,8 @@ VA - Club Dance Ambience Vol.91 (2016) [MP3|320 Kbps] <House, Electro House, Mas
 magnet:?xt=urn:btih:0733E4B5339E7C199297620A78A180C56B58E3A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +395,8 @@ CD1
 ```bash
 magnet:?xt=urn:btih:626C04DB6E99F47BBA23BC11DE92C7C46E89E7BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +425,8 @@ VA - Lounge Cafe Chill House Vibes (2015) [MP3|320 кб/с]<Deep House, Chill Ho
 magnet:?xt=urn:btih:3D76CC2D6832C76CCF823CE00C416C694F5722B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +453,8 @@ VA - Amsterdam Music Festival - The 2015 Compilation (2015) [MP3|320 кб/с]<Tr
 ```bash
 magnet:?xt=urn:btih:7E967185F1F5168405386C995B53E39E75CD7B66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +483,8 @@ Ruth Lorenzo - Planeta Azul (2015) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:819D5AE4316649B189112FD88CB391E212645CEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +512,8 @@ Yello - 100 Best Hits (6CD) (1980-2016) [MP3|320 Kbps] <Electronic, Synth-Pop, D
 magnet:?xt=urn:btih:F49CF7C50D2FCC329EE462E8F141FA4185FC42C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +540,8 @@ VA - Lazy Nights Finest Chillout and Lounge Music (2015) [MP3|320 кб/с]<Downt
 ```bash
 magnet:?xt=urn:btih:DD32862B125C2F6FA52D7ED3F8D0CC11DCE17D31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +576,8 @@ VA - Сборник Советского Рока (2012) [MP3|320 кб/с]<Rock,
 magnet:?xt=urn:btih:63CFED5F340757ADD3BC8F15792E6E5D6FA24119
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +604,8 @@ VA - Твой голос. Русский сборник поп музыки (201
 ```bash
 magnet:?xt=urn:btih:7D91AFFF0E227FAE3CAEBB38C882D00CE6DC9B79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +634,8 @@ VA - Танцевальный экспресс. Клубная дискотек�
 magnet:?xt=urn:btih:CE7C1061DE792B955006A4ED0F532F03865B3B34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +662,8 @@ VA - Умная Электроника (Музыка Поднимающая На
 ```bash
 magnet:?xt=urn:btih:7AB8B4D998A0DAAD14D0767C49540C05667D959E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +692,8 @@ VA - Chillout Vocal Collection (2019) [MP3|320 Kbps] <Chillout, Lounge, Lo-Fi>
 magnet:?xt=urn:btih:D607F0B1EB037F0316FDAE3B3D2DB147E5AE1933
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +720,8 @@ VA - Resonant Reality: Trance Psychedelic Party (2019) [MP3|320 Kbps] <Psychedel
 ```bash
 magnet:?xt=urn:btih:7CDCE65137683F2C02F10B99FE8771D37B585A08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,32 +750,7 @@ VA - Record Super Chart 27.08.2022 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:D5C26B8FD8E5D35B6DA5B0758947541CD74EA4E0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324856   (418987) от 12.09.2019
-
-VA - Ectoplasm: Techno Electronic Set (2019) [MP3|320 Kbps] <Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418987.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Robben Cepeda - Dream Station
-002. Dj Dextro - Razor Sharp (Original Mix)
-003. Vini Pistori - The Magic Coin (Marcus Sur Remix)
-004. Kareem Smith - The Brothers (Original Mix)(   Читать дальше...   )Жанр: TechnoПродолжительность: 10:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C42B12C1530B23242760B5BCDA0B92C07D34C851
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

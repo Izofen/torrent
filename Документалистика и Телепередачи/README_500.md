@@ -1,3 +1,29 @@
+###  Публикация: 1285404   (691614) от 13.03.2019
+
+Обитаемый остров / The Island Diaries (2016-2017) HDTV [H.264/1080i-LQ] (сезоны 1-2, серии 1-26 из 26)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Софи Фурон открывает жизнь на островах по всему миру. Она исследует её на воде, вдоль берега и в самых укромных уголках островов. Софи узнает у обитателей островов, какие трудности их подстерегают, что они едят, о ком заботятся, чем зарабатывают на жизнь и как они отдыхают.Производство: Канада, DBCom MediaЖанр: Документальный, природа, путешествияРежиссер: Николя БушеПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49F6553145A038151059CCA57A655177101F992D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 896634   (691681) от 10.05.2015
 
 Бессмертный полк. Москва (2015.05.09) HDTVRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:B57C71FA4F28A4BE4CD0DB15846E0A14BF009380
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:B57C71FA4F28A4BE4CD0DB15846E0A14BF009380
 magnet:?xt=urn:btih:1C735D392685B48531051E83A3CB6444F7E80AF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:1C735D392685B48531051E83A3CB6444F7E80AF2
 ```bash
 magnet:?xt=urn:btih:F3A742BB7A5E9E60353F512826EB33228510847B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:F3A742BB7A5E9E60353F512826EB33228510847B
 magnet:?xt=urn:btih:54FC056858DD562FC46FEC3A9971F7EF25CE03F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:54FC056858DD562FC46FEC3A9971F7EF25CE03F6
 ```bash
 magnet:?xt=urn:btih:099E2653AFCE13F472A1CD2BC3C04DC82DD52379
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:099E2653AFCE13F472A1CD2BC3C04DC82DD52379
 magnet:?xt=urn:btih:182834BC9733B8A62A41DD7DF9054FEFB707C32D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:182834BC9733B8A62A41DD7DF9054FEFB707C32D
 ```bash
 magnet:?xt=urn:btih:253C7B6A91D34304E791C620FEF5181A82604B4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:253C7B6A91D34304E791C620FEF5181A82604B4C
 magnet:?xt=urn:btih:ECE65C9FD90C4C5B645E6E6190BD558BC9818B9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:ECE65C9FD90C4C5B645E6E6190BD558BC9818B9C
 magnet:?xt=urn:btih:AA8D3128D110C9E5C1F4E87CBC6C61D82E4498FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:AA8D3128D110C9E5C1F4E87CBC6C61D82E4498FE
 ```bash
 magnet:?xt=urn:btih:E2BCD74577FA134DF8F22E7ADF8DE1CD9C063D54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:E2BCD74577FA134DF8F22E7ADF8DE1CD9C063D54
 magnet:?xt=urn:btih:89F9D5BBFBF58644A25E17B446054FD26C1556A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:89F9D5BBFBF58644A25E17B446054FD26C1556A6
 ```bash
 magnet:?xt=urn:btih:47D87B75AE9F18FDFC76A73D2F44D9BAED2223B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:47D87B75AE9F18FDFC76A73D2F44D9BAED2223B3
 magnet:?xt=urn:btih:14A7C39FED5E1EC948A9D66F24FCB3D28B644493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:14A7C39FED5E1EC948A9D66F24FCB3D28B644493
 ```bash
 magnet:?xt=urn:btih:68C4795E73EF75C9F5A175D3C66DE79FE4D73F8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:68C4795E73EF75C9F5A175D3C66DE79FE4D73F8C
 magnet:?xt=urn:btih:1451D7608714EAC4DEE74AC1E1C6F1EF91BB03FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:1451D7608714EAC4DEE74AC1E1C6F1EF91BB03FE
 ```bash
 magnet:?xt=urn:btih:9FA33991AD287E26A8AEACFB39D97275EC2D8AA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:9FA33991AD287E26A8AEACFB39D97275EC2D8AA1
 magnet:?xt=urn:btih:D9669A974E271CB531DD51921BB49FF87FB5A6F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:D9669A974E271CB531DD51921BB49FF87FB5A6F6
 ```bash
 magnet:?xt=urn:btih:24604095412AA9CF96C4C40EFCFA6841BB2439E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:24604095412AA9CF96C4C40EFCFA6841BB2439E8
 magnet:?xt=urn:btih:C0A86484D41E561695C82117B6BE28354639436A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:C0A86484D41E561695C82117B6BE28354639436A
 ```bash
 magnet:?xt=urn:btih:2F9A5F032AA57A04BF424645ECF63C3B5A036B82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:2F9A5F032AA57A04BF424645ECF63C3B5A036B82
 magnet:?xt=urn:btih:B70C1A202D4626191252ECC95CB2A006CDC6D806
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:B70C1A202D4626191252ECC95CB2A006CDC6D806
 ```bash
 magnet:?xt=urn:btih:2AF741D1B57023F10C3E5028AEC860F916B6A8C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:2AF741D1B57023F10C3E5028AEC860F916B6A8C8
 magnet:?xt=urn:btih:C97A6DB1A88938FA4F975D873D1CE38C41188B2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:C97A6DB1A88938FA4F975D873D1CE38C41188B2F
 ```bash
 magnet:?xt=urn:btih:DB5E247A602E48C84E5CC0D800B9506AC291B95B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:DB5E247A602E48C84E5CC0D800B9506AC291B95B
 magnet:?xt=urn:btih:26940C270E885AE8362CE87AD93362CC21D20EB1
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133571   (693143) от 13.05.2017
-
-Горбатые киты / Humpback Whales (2015) BDRip [H.264/1080p] [EN / RU Sub]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Горбатые киты, это - экстраординарное путешествие в сказочный мир одного из самых впечатляющих животных планеты. Съемки велись в красивейших местах Аляски, Гавайев и отдаленных берегов Тонги; во время этого приключения вы узнаете, как общаются киты между собой, как они поют, питаются, играют и заботятся о своем потомстве. Присоединяйтесь к команде путешественников (   Читать дальше...   )Производство: MacGillivray Freeman Films, СШАЖанр: Документальный, ВидовойРежиссер: Грег МакГилливрэйПеревод: ОтсутствуетСубтитры: Русские (uniss), английскиеПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66001D3EAFDEF3C33B152132F735FE98E44B4065
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Modern Sound[s] Orchestra - The Symphonic Album - Live! (2013) [FLAC|Lossless|im
 magnet:?xt=urn:btih:0B0B5C68C7DA70CB889E1C87E1F42E72870DF02C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Andrea Bocelli - Romanza: 20th Anniversary Edition (2016) [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:BAFA7933EEB7117537811A32F07FE70491EDBD78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Great Overtures (1989) [FLAC|Lossless|tracks + .cue] <Classical>
 magnet:?xt=urn:btih:48A77ED8276DBC712B5A1EAA9224D92CFC4DEC65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:48A77ED8276DBC712B5A1EAA9224D92CFC4DEC65
 ```bash
 magnet:?xt=urn:btih:EAE26FC2D633E2C6EDC9D37FF46B2616A911F627
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Organ Concerto in G minor, Op.7/5, HWV 310
 magnet:?xt=urn:btih:68D26EF8F4EF55C852AE09649F72D17614E706E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Lena Natalia - Sundays in Paris (2015) [MP3|320 кб/с]<Classical, Neo-Classica
 ```bash
 magnet:?xt=urn:btih:4075ED0D52FD5744303F0D9B8790D0D20E7ACB74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Symphony No.3 in F major Op.90
 magnet:?xt=urn:btih:DE031EE1FBE14B14794606BDE9DF1A151E231C6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Piano Sonata No. 2 in B flat minor, Op. 35, CT. 202
 ```bash
 magnet:?xt=urn:btih:18D2989DE7F3B22D92818571CE29915A33705067
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Impromptus (4) for piano, D. 899 (Op. 90)
 magnet:?xt=urn:btih:95D2E77BBCDAD398109008801287A6A88E6C25AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Tchaikovski - Piano Concerto No. 1 in B flat minor, Op. 23
 ```bash
 magnet:?xt=urn:btih:6C16B7E2659B06FA8C92B9909E215CAF1C0A9101
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Requiem in D minor, KV 626
 magnet:?xt=urn:btih:0D3FDC66B04562EE9E427A43C56D669ED6B4D680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Piano Sonata in G major, Op. 37
 ```bash
 magnet:?xt=urn:btih:4CACFE47CA204D7DFC12722902486A341B2CD335
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Ravel - Complete Piano Works - (Begona Uriarte, Karl-Hermann Mrongovius) (Vol.1)
 magnet:?xt=urn:btih:F0BAA21B9C7D7F45788DAD82BD4C7ADF55B7A9B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Italian Concerto for keyboard solo in F major, BWV 971
 ```bash
 magnet:?xt=urn:btih:5F7D005F98377C0F47E05DF41E474853D1BEFE94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Anna Netrebko & Rolando Villazon - Duets (2007),Deluxe Limited-Edition, Deutsche
 magnet:?xt=urn:btih:35FDE6A42643EDAC38FB2C25E7B7A097D2111553
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ CD1 Baby's First Classics
 ```bash
 magnet:?xt=urn:btih:64D6888CE52EAA2BCC3971C73DC2E932C9D35BBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Anna Netrebko - Opera Arias (2003)/Wiener Philarmoniker Noseda, Deutshce Grammop
 magnet:?xt=urn:btih:699A68F994AC34EE4E6912677ED59532969CBE1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Tomaso Albinoni.  Sonata (Sinfonie)  cinque, for violin, 2 violas & continuo No.
 ```bash
 magnet:?xt=urn:btih:6C512AE2A11109D5F4204FB7DE65D5C353E1FCD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ Handel - Renee Fleming. Renee Fleming/Orchestra of the Age of Enlightenment. Har
 magnet:?xt=urn:btih:6C838A9E735EB14C433D28023556035AC7B5B9F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Jordi Savall, Hesperion XXI, Le Concert des Nations - Venezia Millenaria (Venice
 ```bash
 magnet:?xt=urn:btih:ACB8311B4856CE35F4E49935039C4B7D62813DE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Zewski - Classic on the rocks (1992) [FLAC|Lossless|image + .cue] <Instrumental,
 magnet:?xt=urn:btih:2658541BFD4673DF095EE17F96F09286F52D4D1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ Royal Philharmonic Orchestra - Rock Classics (1995) Music Digital, 11 852[FLAC|L
 ```bash
 magnet:?xt=urn:btih:BF41534670569EBA8D792C94D99D49B903CBBA7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ Royal Philharmonic Orchestra - Rock Classics 11 851 (1995) [FLAC|Lossless|image 
 magnet:?xt=urn:btih:B0C59A3B8BBFB0F5EF50A7A8DCD8BE17E69C1213
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ Royal Philharmonic Orchestra - Rock Classics 11 853 (1995) [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:777675EED2CB58EEC2BA83F535586BAFA187AD82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ RV 315 "Summer": III. Presto  (02:27)
 magnet:?xt=urn:btih:C2438DCD1D62B8D4168525CE1D2DB9AE7B0E13A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ J.S.Bach - The Authorised Recordings: Sviatoslav Richter (1994) 3CD [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:1C25CDBC2D120F55894326F46533DC3A78B36B97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

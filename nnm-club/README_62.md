@@ -22,6 +22,8 @@ Purvpn 9.3 [En/Farsi]
 magnet:?xt=urn:btih:BB3CBBF94887066434BB09406F4B13A27693427E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Ravenswatch - хардкорное приключение, в котором п�
 ```bash
 magnet:?xt=urn:btih:CE25F6ACADEAAA4C8D48622E7A5BCD9D30D5DAC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ VueScan - программа предназначена для замены ст
 magnet:?xt=urn:btih:A8168BAA6A559BCF53D1DF897F12EBDEA63106CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:6FB7ECA433E29E23368186D369F727CAB99FD02D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Device Info — простое, но мощное приложение для An
 ```bash
 magnet:?xt=urn:btih:5EED5CC41CDD170D49EE51A13B652269A59CA155
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:5EED5CC41CDD170D49EE51A13B652269A59CA155
 magnet:?xt=urn:btih:6CBEF7180AC9DB2A288F4EB3B6C870EC780D36E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ O&O SafeErase - полностью исключает возможность в�
 ```bash
 magnet:?xt=urn:btih:6DC594F7BC6DD5B140EE1FA2E6BFCD237AE36870
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:6DC594F7BC6DD5B140EE1FA2E6BFCD237AE36870
 magnet:?xt=urn:btih:CE6F00D0BA244ABA2F70A169A436A34B737F086C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:CE6F00D0BA244ABA2F70A169A436A34B737F086C
 ```bash
 magnet:?xt=urn:btih:7361E1A6B3F8068A6D729760FE240FD345AF08C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:7361E1A6B3F8068A6D729760FE240FD345AF08C8
 magnet:?xt=urn:btih:65943600F463D361D132F31AA627D7BF351B6CF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:65943600F463D361D132F31AA627D7BF351B6CF7
 ```bash
 magnet:?xt=urn:btih:55569C30298B1A56F3821AB99FF53329D328D847
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ Extreme Picture Finder - средство для автоматического 
 magnet:?xt=urn:btih:E8BE0F1D6705E169BE255EE029BE0AD9C73776A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Wise Disk Cleaner 11.2.6.846 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C9147EDE9002CAE9CE4EE0DAD1B5374E7770E76F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:C9147EDE9002CAE9CE4EE0DAD1B5374E7770E76F
 magnet:?xt=urn:btih:155173AEFCCF14D3AC34FA5135AB0F150F839E29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Lawn Mowing Simulator - симулятор фермера, отправляющ�
 ```bash
 magnet:?xt=urn:btih:B021375979300708380BD34476333BE9F8D916B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:B021375979300708380BD34476333BE9F8D916B8
 magnet:?xt=urn:btih:2AD185DFC685E23818A14D0F701C5E166E35E607
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:2AD185DFC685E23818A14D0F701C5E166E35E607
 ```bash
 magnet:?xt=urn:btih:B0C81D18487069F4EAF4092D1703954AE487CB9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:B0C81D18487069F4EAF4092D1703954AE487CB9A
 magnet:?xt=urn:btih:D475E755F825AE5E08302F3BDB84BE76B7E3E40F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ Windows Manager - это универсальная утилита для Micros
 magnet:?xt=urn:btih:14417CB5A434E74DA5CFC34F441EE6EE2096706A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ ES File Explorer (File Manager) — это полнофункциональны�
 ```bash
 magnet:?xt=urn:btih:52462F217923C361EF480DC7A3947FE33A6917B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ Sense Flip Clock & Weather v8.44.2 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:30D4EC7513BDEDBBC9712D904CA9FC6914FFB7E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ IPTV Pro v9.1.8 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DE0FACB6726E5925C7135404DE877B6DEBCB9D55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ WinTools.net – набор инструментов для оптимизаци
 magnet:?xt=urn:btih:7A4593D95E21AC4D9D940A32C55DB95B8FD8783E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ TRAIL OUT (2022) [Ru/Multi] (5.0/dlc) Repack FitGirl [Complete]
 ```bash
 magnet:?xt=urn:btih:E436B3A4C6024A7058A22E7B5669261290CB2977
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:E436B3A4C6024A7058A22E7B5669261290CB2977
 magnet:?xt=urn:btih:5C1FE8A2670E46403D4E05C195F1216A96824A5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:5C1FE8A2670E46403D4E05C195F1216A96824A5D
 ```bash
 magnet:?xt=urn:btih:BEECF2635B7DC00F0C5BB3691A1E9C3AEF26024F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

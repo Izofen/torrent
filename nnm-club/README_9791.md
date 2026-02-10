@@ -1,54 +1,3 @@
-###  Публикация: 1076256   (314493) от 25.11.2016
-
-VA - Litho Twentyeight (2016) [MP3|320 Kbps] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boy Funktastic - Empire (Original mix) (5:01)
-02. Nicolas Buccafusca - Piping (Original mix) (8:00)
-03. Boy Funktastic - Square (Original mix) (4:20)
-04. Nicolas Buccafusca - Liebre (Original mix) (8:39)(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 03:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9F2CF2BF5CCA40DC7B9B203C35AB346551B70B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 728516   (314494) от 30.11.2013
-
-С.Д. Сказкин | Книга для чтения по истории средних веков. Часть 1. Ранее средневековье (1948) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314494.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Книга для чтения по истории средних веков» (часть I) под редакцией проф. С. Д. Сказкина охватывает раннее средневековье (VI—XI вв.) и предназначена для учащихся VI—X классов средней школы. Книга для чтения содержит 15 отдельных очерков, описывающих в популярном изложении политические события, быт и культуру раннего средневековья. Книга может служить как для самостоятельного чтения учащихся, так и для кружковых занятий. Книга снабжена 51 рисунком.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:415B8608273D0702B8208B3AF95A6F7F45FE67D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076200   (314495) от 25.11.2016
 
 VA - DJ Weapons 4 the Weekend, Vol. 3 (2016) [MP3|320 Kbps] <Tech House, Deep House, Progressive>
@@ -72,6 +21,8 @@ VA - DJ Weapons 4 the Weekend, Vol. 3 (2016) [MP3|320 Kbps] <Tech House, Deep Ho
 ```bash
 magnet:?xt=urn:btih:075DDCF83FBDB699D2FB375396980D75212D5DC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +50,8 @@ VA - Groove Circus Vol.5 (20 Secret Club Weapons) (2016) [MP3|320 Kbps] <Tech Ho
 ```bash
 magnet:?xt=urn:btih:BD58E17474DD9487D0FD9F0A950CDE74F696AF6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -133,6 +86,8 @@ ABBA - ABBA (Sweden) (1975) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Pop Rock, Disco>
 magnet:?xt=urn:btih:2E915AA641C3E25584EB443773267DB89DC80CDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -159,6 +114,8 @@ VA - Destructive Compilation, Vol. 19 (2016) [MP3|320 Kbps] <Tech House, Deep Ho
 ```bash
 magnet:?xt=urn:btih:15184D3C4B16D385884DD609C52BDDD7B6B09157
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +144,8 @@ VA - Best of Silver, Pt. 1 (2016) [MP3|320 Kbps] <Tech House, Deep House, Progre
 magnet:?xt=urn:btih:612918FB0494DEC8631830555212174B29352995
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +169,8 @@ EdgeView 2 - это новейший просмотрщик изображени
 ```bash
 magnet:?xt=urn:btih:FB2B75601BC89B256FD1060E43A7A7B7AB50B2EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +199,8 @@ magnet:?xt=urn:btih:FB2B75601BC89B256FD1060E43A7A7B7AB50B2EF
 magnet:?xt=urn:btih:9F8A94749BA4EB51C0B53D439E650DC098354269
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +224,8 @@ ProFind 1.7.0 [En]
 ```bash
 magnet:?xt=urn:btih:A098E51409CBF1C12279A7B6DF6A6E5FDC8A8934
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +254,8 @@ Roxette - Crash! Boom! Bang! (1994) [OGG Vorbis|480 Kbps] <Rock, Pop>
 magnet:?xt=urn:btih:3274B9666615A82C84D71EA4DF492935AFA623BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +279,8 @@ magnet:?xt=urn:btih:3274B9666615A82C84D71EA4DF492935AFA623BA
 ```bash
 magnet:?xt=urn:btih:AC4CC037A9041592386EC9AABF46B0ABDCC1BB00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +309,8 @@ St. Lucia - Utopia (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Indie>
 magnet:?xt=urn:btih:6675CC20522AD4E7D6E5F21BBAF452D9F4AEEDEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +334,8 @@ magnet:?xt=urn:btih:6675CC20522AD4E7D6E5F21BBAF452D9F4AEEDEE
 ```bash
 magnet:?xt=urn:btih:5522ED055A494A20F13EEAF552B7086DA5CC3FE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +361,8 @@ magnet:?xt=urn:btih:5522ED055A494A20F13EEAF552B7086DA5CC3FE7
 magnet:?xt=urn:btih:3C960665DB4C179BF3E7DEB5F66FC40D2DABBB74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +387,8 @@ magnet:?xt=urn:btih:3C960665DB4C179BF3E7DEB5F66FC40D2DABBB74
 ```bash
 magnet:?xt=urn:btih:B9FDD65F87347B40FAE73CF2FFB1052229ABC7D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +417,8 @@ VA - BRAVO The Hits 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Elec
 magnet:?xt=urn:btih:F20D5F5B06F72ECB50EF94886E4C9D600A51FF32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +442,8 @@ magnet:?xt=urn:btih:F20D5F5B06F72ECB50EF94886E4C9D600A51FF32
 ```bash
 magnet:?xt=urn:btih:8AEAC323EB6819E5056A3337C2F018DCABF6C715
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +469,8 @@ magnet:?xt=urn:btih:8AEAC323EB6819E5056A3337C2F018DCABF6C715
 ```bash
 magnet:?xt=urn:btih:E569F9AF0CDEAC96711991BE1E43618A0C6C18BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +499,8 @@ VA - #WeAreTrance #002-16-12 (Mixed By Frank Dueffel) (2016) [MP3|320 Kbps] <Tra
 magnet:?xt=urn:btih:A73E51064E48D6F449DF524C3FEDB14432CC04A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +528,8 @@ Roxette - Joyride (1991) [OGG Vorbis|480 Kbps] <Rock, Pop>
 magnet:?xt=urn:btih:7C5F6B0E381CC47BBA33C06F50F1FD012DCADDAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +556,8 @@ magnet:?xt=urn:btih:7C5F6B0E381CC47BBA33C06F50F1FD012DCADDAE
 magnet:?xt=urn:btih:BF3CE3488CA04DF92F2FFB62E2729AD24AEC07F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +581,8 @@ magnet:?xt=urn:btih:BF3CE3488CA04DF92F2FFB62E2729AD24AEC07F7
 ```bash
 magnet:?xt=urn:btih:8DE810EFA0E0F139DC1DE9B173FB5DEEBCB3C85C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +611,8 @@ John Handy & Lee Ritenour - Where Go the Boats (1978) 1986, In-Akustik [FLAC|Los
 magnet:?xt=urn:btih:A82F838451EA30B4E0C3CA7EFF604875A63005B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +640,8 @@ Denshi Danshi - Brain Chemistry (2018) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance
 magnet:?xt=urn:btih:A24522F657F8B6B2232E20789D49E950E90F8CED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -671,6 +666,63 @@ magnet:?xt=urn:btih:A24522F657F8B6B2232E20789D49E950E90F8CED
 ```bash
 magnet:?xt=urn:btih:AD0D8DE3F58266CA2645ED473B2A4BAED75965D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259983   (314529) от 06.11.2018
+
+Анатолий Максимов | Разведчик атомного века (2018) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга рассказывает о Владимире Борисовиче Барковском (1913-2003), выдающемся советском разведчике, полковнике внешней разведки, имя которого стоит в одном ряду с именами Рудольфа Абеля, Леонида Квасникова, членов "Кембриджской пятерки". Получив специальную подготовку в разведшколе, в конце 1940 года он был направлен на работу в Великобританию сотрудником (   Читать дальше...   )Жанр: Научно-популярное издание. Серия "Гриф секретности снят"Продолжительность: 11:29:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35C16917AC27761DAAF9AE81CC208331F4DDE217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583114   (314530) от 13.10.2022
+
+Suffer UK - Sorrow We Sow, the Hatred We Know (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infernal Monologue [00:05:31]
+02. Escapism [00:03:53]
+03. Falsehood [00:04:11]
+04. Unhallowed Justice [00:03:13](   Читать дальше...   )Жанр: Beatdown DeathcoreПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7039BA88128281ADFE47DDAD3513F65663CA3DB1
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

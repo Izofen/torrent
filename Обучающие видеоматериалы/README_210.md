@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1B4AACA83F5BEABC66DDF6F6B12F60831ABEB7AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Foxford | Курс программирования на Python для начи�
 magnet:?xt=urn:btih:73599CE30E6FADBC8DB282FABFC7FBE5100D0C1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:73599CE30E6FADBC8DB282FABFC7FBE5100D0C1B
 ```bash
 magnet:?xt=urn:btih:3753E43937D4638B33D634E18B59837EE7BD1712
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Motion Design School | Animated Typefaces with Animography (2021) PCRec [EN]
 magnet:?xt=urn:btih:3D934DB39A80C083DCF21973FF999BC8C159DE3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:3D934DB39A80C083DCF21973FF999BC8C159DE3A
 magnet:?xt=urn:btih:7D33B160A01B95989A507E07414E931A6FE1632B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:7D33B160A01B95989A507E07414E931A6FE1632B
 ```bash
 magnet:?xt=urn:btih:0FE17B0BABDEDDB109AD3BCCA4B49A4F9D9FA80C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ RENDER.CAMP, Даниил Нагаец | Профессиональная Виз
 magnet:?xt=urn:btih:BFF68D1B896DA1C87FF46AD750184FB3CE2200FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ Cubebrush, Tom Paul | Zbrush for Hard Surface Design (2014) PCRec [RU]
 magnet:?xt=urn:btih:5B1934B6FE43BA1A61C13BB81148831E4E1DA284
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Game Art Institute, Adam Skutt | Character Creation For Games (2016) PCRec [RU]
 ```bash
 magnet:?xt=urn:btih:770F77B91C92D446D2D926363D15154AE54359D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ CGMA, CGsociety, Johan Lithvall | Hair creation for games (2018) PCRec [RU]
 magnet:?xt=urn:btih:11713348E07C817E64D0DE1577986730A4191F36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ OTUS | PHP-разработчик. Часть 1 из 5 (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:85761A17958F5D6B0E725D744F672B96DC262960
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ OTUS | PHP-разработчик. Часть 2 из 5 (2020) PCRec
 magnet:?xt=urn:btih:E46FBB652CA9ACD865567EFCA87F52ED6128CA4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:E46FBB652CA9ACD865567EFCA87F52ED6128CA4E
 ```bash
 magnet:?xt=urn:btih:99CA77A4C32024E3B323C453B1A73885C5A00D74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ Udemy, Nikolay Naydenov | Orc Rider and Bull Creature Creation in Zbrush (2019) 
 magnet:?xt=urn:btih:90AED732E51F27C2C1D704374E4A49B5AD4A2CCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ Creative Environment Creation — это курс разработанный д�
 ```bash
 magnet:?xt=urn:btih:2050BC091F96EE7B1426C5B8C33292B3C8852ADB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ Flippednormals, Abraham Leal | Zbrush 2021 for Absolute Beginners (2020) PCRec [
 magnet:?xt=urn:btih:C4A6B14E1843D68DA04EBE707C68EFD23C4BA776
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ FastTrack Tutorials, Emiel Sleegers | Large Game Environment Creation - In-Depth
 magnet:?xt=urn:btih:2E5B868D052D3C86AEFFA947D0201001201D50E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ Digital Tutors, Laura Smith | Animating an Infographic in After Effects (2014) P
 magnet:?xt=urn:btih:A0CFDB31182426DA9E5D9BA815F45040AA9DC9E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ Lynda, William Lidwell | Universal Principles of Design (2017) PCRec
 ```bash
 magnet:?xt=urn:btih:82B471C7BA85F3E506F49ADB0CC1D15941C6C609
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ BaseCode сводит написание читабельного кода к 10
 magnet:?xt=urn:btih:8AC984A0FD2E33E52A3F403D0FB8ED107186D99A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:8AC984A0FD2E33E52A3F403D0FB8ED107186D99A
 ```bash
 magnet:?xt=urn:btih:10201B21407771C50E0C1B8F2925EA3F2F92ADEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:10201B21407771C50E0C1B8F2925EA3F2F92ADEF
 magnet:?xt=urn:btih:D44E05364A582EFA91E145C36ECD609B94A4BDB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ Chris Maynard | Color Theory for CG and VFX Artists (2015) PCRec [En / Ru]
 ```bash
 magnet:?xt=urn:btih:A850BF050ADC56F0CADBC52B9ACC981369FAFE22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ Udemy, Nikolay Naydenov | Female Anatomy for Artists Course (2020) PCRec [En]
 magnet:?xt=urn:btih:835E49588F40C20515511D7AC8D77B5C63FEFF1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ Flutter стремительно захватывает рынок кроссп�
 ```bash
 magnet:?xt=urn:btih:1B5186DB074CB33B1C4755CF936905A600713826
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +695,8 @@ Skillbox, Татьяна Жукова | Управленческий учёт (2
 ```bash
 magnet:?xt=urn:btih:8544D137CF62A1A13DD3C33C5E87D57B10EE15BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

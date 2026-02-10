@@ -22,6 +22,8 @@ Eruption - Ансамбль Ирапшн (1980) [FLAC 2.0 24/192|tracks(Vinyl-Ri
 magnet:?xt=urn:btih:45A5FA839A3BA8784EA5DBFD90310AF74010359B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ A4 The Dooley Family – Sneaking Up On Me(   Читать дальше...   )Ж
 ```bash
 magnet:?xt=urn:btih:DE295B1A4D28869EEC14D76C44A8F616674DF333
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ A4 Andy Summers - Human Shout(   Читать дальше...   )Жанр: Sound
 magnet:?xt=urn:btih:657A90F3016C8779A96FD342306A597CA4BD4795
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ A4 R. Kelly And Public Announcement - She's Got That Vibe(   Читать дал
 ```bash
 magnet:?xt=urn:btih:7A45A5EB61B0B363CE7034430751BCE9E7F1167A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ A4 Белая Береза(   Читать дальше...   )Жанр: PopПр�
 magnet:?xt=urn:btih:45D2B710AFB31D39D9A98F0093BFFB703F667F74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ C4. Афанасий Никитин Буги (3:54)(   Читать дальше
 ```bash
 magnet:?xt=urn:btih:0DFE44147D50044ADDE2F8DD4BFFCCB808B93E63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Jeff Lynne's ELO - Alone In The Universe (2015) [FLAC 2.0 24/96|image (Vinyl-Rip
 magnet:?xt=urn:btih:E180AAD96C0AF6372D39F23596412C68FFF1ED0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ Andrew Lloyd Webber & Tim Rice, Various – Jesus Christ Superstar (A Rock Opera
 magnet:?xt=urn:btih:BEC0ABFDD80805AA4B4CA376CBCBD5DBCEBE1006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +253,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:3E4042834B66FA71CC492D07143A6B8B3141220A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +284,8 @@ Running Wild (с англ. — «Ведущий беспутный обра�
 magnet:?xt=urn:btih:395195E3218167A7611320B7E0C7EA9E5DBF3C8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +312,8 @@ Creedence Clearwater Revival - Легенды Зарубежного Рока (1
 ```bash
 magnet:?xt=urn:btih:25E2C40DF3BC82A883ED351552B1C2174EDB8557
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +342,8 @@ magnet:?xt=urn:btih:25E2C40DF3BC82A883ED351552B1C2174EDB8557
 magnet:?xt=urn:btih:39C95834D4B1AFBFE0B9F2971CFA55BEAE8C506A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +370,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:D9201EA3647D2C001F4D1D38FBE90564F59ED482
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +400,8 @@ A4 Play The Game (The Game)(   Читать дальше...   )Жанр: Classic
 magnet:?xt=urn:btih:0219688D49CED240AA3B3BED93374284BBCE8F08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +428,8 @@ A4 Houses Of The Holy(   Читать дальше...   )Жанр: Hard RockПр
 ```bash
 magnet:?xt=urn:btih:B023AFBE1BDCF28A2386BD86C4C89199AAA0E246
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +458,8 @@ A4 Favourite Love Theme From Tchaikovsky's ''Romeo And Juliet''(   Читать 
 magnet:?xt=urn:btih:3D7D9C72EDC680AB97ED20B924505ED891DD990A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +486,8 @@ Middle Of The Road - Chirpy Chirpy Cheep Cheep, Tweedle Dee, Tweedle Dum and oth
 ```bash
 magnet:?xt=urn:btih:AA03A5BABA5D53E8FA538C3D0221E4EDAFD55035
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +516,8 @@ B2 3. Finale. Alla breve(   Читать дальше...   )Жанр: Classical,
 magnet:?xt=urn:btih:C5F76111173180AF70D7042F6EC9C570DDDD5996
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +544,8 @@ magnet:?xt=urn:btih:C5F76111173180AF70D7042F6EC9C570DDDD5996
 ```bash
 magnet:?xt=urn:btih:C5768FFFB9DE22D4CA26F74B2BC23B6FE0046FA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +574,8 @@ Emperor — норвежская блэк-метал-группа, основа�
 magnet:?xt=urn:btih:6CC8EDBE9CC8A2E1A81A8C3BDD8F5C6ADA895EFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +602,8 @@ Moonspell — португальская метал-группа, основан
 ```bash
 magnet:?xt=urn:btih:AD4FD653BE858657F16EAF3CEBBB7C16D282A735
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +632,8 @@ Mnemic — датская метал-группа, образованная в �
 magnet:?xt=urn:btih:C09456FDADFAF80160FCB36C5A51FCEC1A07BAD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +660,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:71F207E6629AC8C46C0C88C5F6B30D40BCA9CBD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +690,8 @@ Vangelis - Blade Runner (1994) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Electronic, Ne
 magnet:?xt=urn:btih:EA3824C5253A25DA16BF5F765E988682004A1948
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -671,6 +719,8 @@ A4		Lover For Life	4:45(   Читать дальше...   )Жанр: Electronic,
 magnet:?xt=urn:btih:8DFCAC09B0B95719E08F455F57E20928094D910D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +747,8 @@ Wuthering Heights — основанная в 1989 году датская хе�
 ```bash
 magnet:?xt=urn:btih:C2790C2EB12578DDB8E8939DB4CD50EF1643E1ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

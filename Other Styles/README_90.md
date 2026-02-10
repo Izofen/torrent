@@ -22,6 +22,8 @@ Really Slow Motion & Instrumental Core - Angels Among Demons (2015) [MP3|320 Kbp
 magnet:?xt=urn:btih:88417EF5E80CA0E30A0CC34F00E7428C889274B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Lykke Li - Wounded Rhymes (2011) [FLAC|Lossless]<Indie Pop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Enya - The Magic Of Enya (2016) Chinese Dragon Music [FLAC|Lossless|tracks + .cu
 magnet:?xt=urn:btih:E8402F01FE2395F0AD6A057557086968B97D1351
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Jean Michel Jarre - Magnetic Fields (1981) Remastered, 2014, Sony Music [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:DE23FB2DDBB33075B9C3F5C287CD2AE65B97FE5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ VA - Anxiety Free. Clear Peaceful Mind: Deep Relaxation of the Soul (2017) [MP3|
 magnet:?xt=urn:btih:98B6ACB54915E251EA227842230CCA0C5936C6CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Alan Menken & VA - Aladdin / Аладдин (Оригинальный саунд
 ```bash
 magnet:?xt=urn:btih:6ACC0003FD26CBFC92376E77DD2B2C5776E18268
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Alan Menken & VA - Aladdin / Аладдин (Оригинальный саунд
 magnet:?xt=urn:btih:E9EE8F0504D912C3611E673264771590BF21BC5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ Ancient Legacy - New Age Armenia II (2003) [FLAC|Lossless|image + .cue] <New Age
 ```bash
 magnet:?xt=urn:btih:46C82C5ECC4944E3C8F99778F709AE42225E3BC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ Bear McCreary - Godzilla: King of the Monsters / Годзилла 2: Корол�
 magnet:?xt=urn:btih:33C1A4BF0786161C111D3173B2AA96D130020939
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ Alan Menken & VA  - Aladdin / Аладдин (Original Motion Picture Soundtrack
 ```bash
 magnet:?xt=urn:btih:DE81FDA6275B3682A45FF6B262A71F5AF2D44A8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ Bear McCreary - Godzilla: King of the Monsters / Годзилла 2: Корол�
 magnet:?xt=urn:btih:ECA99F830247C60C0155790CBF4349C98906D299
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +338,8 @@ Win Kowa - довольно известный немецкий композит
 ```bash
 magnet:?xt=urn:btih:C1A1D05CF8BA5CBB2B81843079C9BEBB6EC12F9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +374,8 @@ Milva & Astor Piazzolla - Live At The "Bouffes Du Nord" (1984) [FLAC|Lossless]<L
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +408,8 @@ Nelson Riddle & Bob Harris - Lolita / Лолита (Режиссёр Stanley Kub
 ```bash
 magnet:?xt=urn:btih:03E58585C16733D801484100295AD87D8E44CB33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +444,8 @@ David & Steve Gordon - Sacred Spirit Drums (1994) [MP3|320 кб/с]<New Age, Nat
 magnet:?xt=urn:btih:1C56A2BBF02EF28B63AB47D237DD49CD9B374FDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +472,8 @@ Joel Kanning - Ubiquitous Frequency Oscillation (UFO) Vol.1,2 (2009-2017) [FLAC|
 ```bash
 magnet:?xt=urn:btih:141217946456D8B3CF30A13D064CB06BD2051F5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +502,8 @@ Michele McLaughlin - Memoirs (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Pian
 magnet:?xt=urn:btih:6D1F4540FFD130A90827233666B1F51AE188C669
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +530,8 @@ CD4 - Classical ChilloutЖанр: Electronic, Ambient, Pop, Rock, ClassicaПро
 ```bash
 magnet:?xt=urn:btih:3A54CC10C0C8F0D5E4558BCB9B6550CB7A31B8A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +566,8 @@ Ennio Morricone - Lolita / Лолита (Режиссёр Adrian Lyne) (1997) [M
 magnet:?xt=urn:btih:CB0A0C41614EA60C659374A3B6B25F6371E262BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +594,8 @@ FAUN - Midgard (2016) Deluxe Edition [MP3|320 Kbps] <Folk, Pop>
 ```bash
 magnet:?xt=urn:btih:8237C27FA9D84FA5188450C287AE16BADAE9064D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +624,8 @@ Katee Kross - Beautiful Dreamer (2016) [FLAC|Lossless|tracks] <Country>
 magnet:?xt=urn:btih:56BE07D9A2DA62C8B2561ABB4B34EC2F786535C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +652,8 @@ Rachel Laven - Love & Luccheses (2016) [FLAC|Lossless|tracks] <Country>
 ```bash
 magnet:?xt=urn:btih:365EF09242FCC3DCA2EB80629C2051F13C437F76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +682,8 @@ Thomas Lemmer - Pure (2016) [MP3|320 Kbps] <Ambient, Electronic>
 magnet:?xt=urn:btih:F5021C5648F5B1ACBC16869C95E9906902488BD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +710,8 @@ Nawang Khechog - The Tibetan Healing Music (2013) [MP3|320 Kbps] <New Age, Yoga>
 ```bash
 magnet:?xt=urn:btih:614B3443D20ED2BD8212341D7608CE36D801FE67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -692,6 +740,8 @@ Sammy Kershaw - Labor Of Love (1997) [FLAC|Lossless|image + .cue] <Country>
 magnet:?xt=urn:btih:0E6A0D5C1F648FF385275A78DFE83AE6B1E06A6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -718,6 +768,8 @@ Hans Zimmer - Dunkirk / Дюнкерк (Original Motion Picture Soundtrack) (201
 ```bash
 magnet:?xt=urn:btih:E9B57E9D06CFA17781CAACC15FB888616775B333
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

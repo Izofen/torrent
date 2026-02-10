@@ -22,6 +22,8 @@ VA - Best of Winter 2019 (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <Deep 
 magnet:?xt=urn:btih:A3F9E03CE419349831A2D1B5524BE48CA0862259
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - 2020 Workout Starts Now [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:0EC606872FBE9824C5FD6FC7B1D88ADB05AB9EC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Poemme & Stereoscenic Label-Pack - 63 Releases (2014-2021) [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:42E197F931D6D48C5862B2AE12599F22E3C2A18F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ SEX-O-RAMA - Collection (1998-2011) 2альбома [MP3|320 Kbps] <Lounge, Rock
 ```bash
 magnet:?xt=urn:btih:00C7A55CB4D4B17D25D63E52BE315166E18ED541
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Beach Grooves Maretimo Vol. 4 (2021) [FLAC|Lossless|WEB-DL|tracks] <Organic
 magnet:?xt=urn:btih:34A3603F46DB1719EC194CB62E2BE6218AC1177F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ Cult48 - Underground Signals From An Unknown Place (2021) C48 [FLAC|Lossless|WEB
 magnet:?xt=urn:btih:48B4D6DE1F99BA1E72BDF34E5C45C3BC626B74F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +195,8 @@ Solar Quest (SolarQuest, Entropica) - Discography 19 Releases (1994-2020) [FLAC|
 magnet:?xt=urn:btih:52B14FB12DBD9A27116662BB344FF173345A109C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ Wagon Christ - Lovely (1998) Virgin [FLAC|Lossless|tracks+.cue] <Breakbeat, IDM,
 ```bash
 magnet:?xt=urn:btih:2A9D8E94C69DE9C496EC830783A14021AD9B4646
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +252,8 @@ Tentura - Theme Patcher (Remixes) (2014) Uxmal Records [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:427DFBAF7D925F730A42F10CF6311C8F1C267702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ Komarebi - After Effects (2020) Touched Music [FLAC 2.0|44.1/24|tracks|WEB-DL] <
 ```bash
 magnet:?xt=urn:btih:B1D532F59C905F2DD95C10FBA1C6437448B7C42A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +310,8 @@ bvdub - Hard Times, Hard Hearts (2021) AY [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambi
 magnet:?xt=urn:btih:7A4BC96E8F9271F6DE83B77869E6069A42E0A464
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +338,8 @@ Komarebi - Nebulous (2021) Ping Disc [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, Brea
 ```bash
 magnet:?xt=urn:btih:A4084DEE729EAF375B278222C574F451B2444146
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +368,8 @@ Underwater Sleep Orchestra - The Night and Other Sunken Dreams (2021) Cryo Chamb
 magnet:?xt=urn:btih:78FB6CECACC1B808B524F8501DA61253D975165C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +396,8 @@ Aviv Stern - Half Mind (2021) Point Source Electronic Arts [FLAC 2.0|44.1/24|tra
 ```bash
 magnet:?xt=urn:btih:9EDF249FC2607BE8074308A234A733C589256A76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +426,8 @@ C-Land - Contactee’s Journal (2021) Microcosmos Records [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:9D59182006B5EE7B370F0C3A4776BCE02E669C15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +452,8 @@ Oxia - Speicher 34 (2006) [FLAC|Lossless|tracks] <Techno, Minimal Techno>
 ```bash
 magnet:?xt=urn:btih:C086B7335F7765617382500E9AF3563F12E5818F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +482,8 @@ William Fields - Bokuseki (2021) Evel Records [FLAC|Lossless|WEB-DL|tracks] <Exp
 magnet:?xt=urn:btih:61CCC8F489F8B7CA59FA1CB34C128D90E5A4B9AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ Anika - Change (2021) [MP3|320 Kbps] <Electronic, Post-Punk, Experimental Pop>
 magnet:?xt=urn:btih:EA3EAD57C2506C1A860BDDB494397BC69F07EBD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +537,8 @@ Pobedia & Nebyla - Good Morning EP (2012) DDR006 [FLAC|Lossless|tracks] <Dub Tec
 ```bash
 magnet:?xt=urn:btih:67DD97325675188E0AA6DFBD0211B1117C424BB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +567,8 @@ Electrypnose - Crooked House (2021) [FLAC|Lossless|WEB-DL|tracks] <PsyTech House
 magnet:?xt=urn:btih:09490AA9A764F4DB01C317836928B0B7B0DA462D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +595,8 @@ Ambidextrous - Discography 20 Releases (2001-2021) [FLAC|Lossless|tracks+.cue, t
 ```bash
 magnet:?xt=urn:btih:6C0B045AA352EA5DFCA138E54FFBB5CFE9E7DD8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +625,8 @@ Access to Arasaka - Discography 16 Releases (2006-2021) Tympanik Audio, illphabe
 magnet:?xt=urn:btih:7EEAB70A3997CA8E8AAE73222F42233DCC05B73F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +653,8 @@ CD1
 ```bash
 magnet:?xt=urn:btih:A38211E2F147E9AC392FE4467F1B896B3BCD3BB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +683,8 @@ Man With No Name - Interstate Highway (2003) [FLAC|Lossless]<Psy-Trance, Goa Tra
 magnet:?xt=urn:btih:E528FD6307942A2C22C05904B10A4E2384CD696C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +712,8 @@ Frank Bretschneider | Komet - Discography 32 Releases (1996-2021) [FLAC|Lossless
 magnet:?xt=urn:btih:126AD242AB9A8886F8800BF84F58B05E5B897C7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +740,8 @@ Eric "The" Taylor (Resilience, Architects Of Existence) - Discography 7 Releases
 ```bash
 magnet:?xt=urn:btih:FE4826BFC711EB47228972201DC4F8AD2F22C65B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

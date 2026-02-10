@@ -1,3 +1,29 @@
+###  Публикация: 1293743   (633489) от 05.04.2019
+
+Джон Форсайт, Георг Эйферт | Тревога приходит и уходит. 52 способа обрести душевное спокойствие (2019) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый человек переживал состояние тревожности. Вы можете почувствовать тревогу в момент пробуждения утром, по дороге на работу, на вечеринке или перед публичным выступлением. А если тревога мешает вам засыпать, это приводит к усталости и стрессу, что еще больше ее усиливает. Короче говоря, тревога может захватить управление вашей жизнью, если вы ей это позволите. (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF48012F3AA3DCCE4E2BCE62F94E7369D52420DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294000   (633502) от 05.04.2019
 
 Д. А. Заварицкий | 100 фраз на русском жестовом языке. Разговорник для священнослужителей (2015) [PDF]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:9569D00D4017F2ECA4468D2207A37F8A0318C1E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:9569D00D4017F2ECA4468D2207A37F8A0318C1E4
 magnet:?xt=urn:btih:311F061C2D6D4CF561613619A1776AE8A0B75450
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:311F061C2D6D4CF561613619A1776AE8A0B75450
 ```bash
 magnet:?xt=urn:btih:67F740EB264924168EDDD6E137E00F3FB3D23B32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:67F740EB264924168EDDD6E137E00F3FB3D23B32
 magnet:?xt=urn:btih:0E8925FB70E3D63489FB4E1F4DAC38E26FB7278E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:0E8925FB70E3D63489FB4E1F4DAC38E26FB7278E
 ```bash
 magnet:?xt=urn:btih:FFFF2C335BEBDA0F8EB74DD01D2CCC182460EF2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:FFFF2C335BEBDA0F8EB74DD01D2CCC182460EF2B
 magnet:?xt=urn:btih:002A695077E3D8F4E344ED6517C1A9033FDFE479
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:002A695077E3D8F4E344ED6517C1A9033FDFE479
 ```bash
 magnet:?xt=urn:btih:2867951F6C754694898BBDF487172FE88B954CCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:2867951F6C754694898BBDF487172FE88B954CCD
 magnet:?xt=urn:btih:3D81AA1E3CA254D46FD41C8A4652FA101E19C87E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:3D81AA1E3CA254D46FD41C8A4652FA101E19C87E
 ```bash
 magnet:?xt=urn:btih:12F23A4B04E438F8D8E248850F00220DB20EE673
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:12F23A4B04E438F8D8E248850F00220DB20EE673
 magnet:?xt=urn:btih:7895DE17F8DD9BB49B3301F4CD451B18D566A7BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:7895DE17F8DD9BB49B3301F4CD451B18D566A7BE
 ```bash
 magnet:?xt=urn:btih:E4013ADFF181F783E220FE87D99DADFAB19456D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:E4013ADFF181F783E220FE87D99DADFAB19456D3
 magnet:?xt=urn:btih:456534E7A8E7F45C8DE0907D97BD9043B6E4C68D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:456534E7A8E7F45C8DE0907D97BD9043B6E4C68D
 ```bash
 magnet:?xt=urn:btih:1B33AEDB3907DFF5FC902552839163DC6E65AC28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +392,8 @@ magnet:?xt=urn:btih:1B33AEDB3907DFF5FC902552839163DC6E65AC28
 magnet:?xt=urn:btih:968F59F6F9A9B913072B7E8DEE36274E34D2D9C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:968F59F6F9A9B913072B7E8DEE36274E34D2D9C0
 ```bash
 magnet:?xt=urn:btih:51E59EDBDD320E817664D1BAAA4BD6347412E508
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:51E59EDBDD320E817664D1BAAA4BD6347412E508
 magnet:?xt=urn:btih:5F653D162D31B393DDAF86E05E7F95E673B4CEAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:5F653D162D31B393DDAF86E05E7F95E673B4CEAC
 magnet:?xt=urn:btih:C761E509B5A4AC7E9F6A74A62C139C3EC129A484
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:C761E509B5A4AC7E9F6A74A62C139C3EC129A484
 ```bash
 magnet:?xt=urn:btih:F084BE7F53AF9B3703DC1737B565F077A5172026
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +523,8 @@ Schuler and Cosgrove дают вам понять, что изолированн
 magnet:?xt=urn:btih:320174D891D999CAC32AFABAF1BC5FA00C31B78C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:320174D891D999CAC32AFABAF1BC5FA00C31B78C
 ```bash
 magnet:?xt=urn:btih:0ED0A5C9228E51A32ED2B228AA2D6E6947C9CF58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:0ED0A5C9228E51A32ED2B228AA2D6E6947C9CF58
 magnet:?xt=urn:btih:F976F13D00A0D1072DEC83A8B0B43CE9E468C1F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:F976F13D00A0D1072DEC83A8B0B43CE9E468C1F0
 ```bash
 magnet:?xt=urn:btih:7526F232F0734FE176245ABC29FAE5F74872E0F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:7526F232F0734FE176245ABC29FAE5F74872E0F1
 magnet:?xt=urn:btih:17BE1DA2EDFF7785E2A0F5BD1C2C6EA5A86F44EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:17BE1DA2EDFF7785E2A0F5BD1C2C6EA5A86F44EE
 ```bash
 magnet:?xt=urn:btih:B4C13BC9ACC04E76ABE7D99B3AF7D0B29586D689
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,29 +679,7 @@ magnet:?xt=urn:btih:B4C13BC9ACC04E76ABE7D99B3AF7D0B29586D689
 magnet:?xt=urn:btih:9DD8736C8A0D8270535936E5E1433D3ADEDF5458
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228642   (635419) от 01.06.2018
-
-Ю. Ф. Подольский | Делаем заборы, изгороди, калитки из различных материалов (2016) [PDF]
-
->>Разное (категория книг)
->>Строительство и ремонт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ограждение должно составлять единый ансамбль с домом и прочими постройками, неназойливо подчеркивая красоту сада. Белый штакетник или забор в стиле ранчо являются яркими, привлекающими внимание деталями в оформлении сада. Если же ограда не окрашена и под воздействием погоды приобретает природный серый цвет, она практически сливается с окружающей естественной средой. (   Читать дальше...   )Жанр: Строительство, ремонтФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF05D5284B1EE433A0AEAFFA4D3B6E19CB8A671C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

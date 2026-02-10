@@ -22,6 +22,8 @@ Deaf Dealer - Keeper Of the Flame (1986) Reissue, 2023, Cult Metal Classics [FLA
 magnet:?xt=urn:btih:5A493D6A14C50A19B464D543E13B01794028FBCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ King Buffalo - Live At Burning Man (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <P
 ```bash
 magnet:?xt=urn:btih:279DA12BCA1C2A293EDAAA45D1F1D566B4033409
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Ecocide - Metamorphosis (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Meta
 magnet:?xt=urn:btih:B59DC0A1A4D3C85760C891C5F53A8A726F377507
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Gilrs Wallpaper (24.12.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:2CC49F216BB63196B4F34DFD9ADE862F7C90B0BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Bookends позволяет сканировать существующие фа
 magnet:?xt=urn:btih:FF4BF2A3678CBED79B42D71D17EF704790014B6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Amadeus Pro - многотрековый музыкальный редактор
 ```bash
 magnet:?xt=urn:btih:0FF143022B82F09FC8ED4454B38B6E2B60AA2286
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ HQ Wallpapers Perfect Women (22.12.12) [Wallpapers 16+]
 magnet:?xt=urn:btih:04F192D5154D4684D64316D875B4FB9359F841F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Sexy Girls Wallpapers (23.12.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:0CE5A4B86708B8CE36D06DDE6859687BA4BA31C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -230,6 +246,8 @@ VA - Liberation Melody (2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:2573CDF60885FD17C74A0B9BC2A3C9894B0CC6C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ Sexy Girls Pack Wallpapers (24.12.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:9B1E53B64BB980F0EF8E70BF16BECF448BBD5099
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +300,8 @@ magnet:?xt=urn:btih:9B1E53B64BB980F0EF8E70BF16BECF448BBD5099
 magnet:?xt=urn:btih:84F7F241CF044FB7017F98C7D91658ED3C86C9A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ Gilrs Wallpaper Collection (24.12.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:E0A27D8B0F1ACCABCA65BB85B3EDA7051A1997A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ magnet:?xt=urn:btih:E0A27D8B0F1ACCABCA65BB85B3EDA7051A1997A6
 ```bash
 magnet:?xt=urn:btih:EF4EC7F3DD44B9B43611DE598396452167B8DE07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +388,8 @@ VA - Ultra.Trance: 5 (2005) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:C2E4B31119625DEF4FC8092479DC777FA493F615
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +416,8 @@ Don Broco - Live at The Royal Albert Hall (2023) [FLAC 24/48|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:F5029CF3F1D649E586B042FC5BE73EAF9BA07C1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +446,8 @@ VA - Sunday Morning Happy Jazz Vibes Playlist (2023) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:6761AB6B02260F42355D9B7A890382BB5F0F29E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +472,8 @@ Gilrs Wallpaper Collection (23.12.12) [Wallpapers 16+]
 magnet:?xt=urn:btih:9382088CB484392C2FC0318F21DF984E138A9D10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +497,8 @@ magnet:?xt=urn:btih:9382088CB484392C2FC0318F21DF984E138A9D10
 ```bash
 magnet:?xt=urn:btih:BBCDB98027557967BE276829094A44F02109BBDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +533,8 @@ VA - The Club music 2 (2012) [MP3|256 кб/с]<Club,Dance>
 magnet:?xt=urn:btih:A37E06D727E163124E063130C6AA6C4BD8E08C73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +559,8 @@ PhotoRoom - приложение, что будет одинаково поле�
 magnet:?xt=urn:btih:18600532D166625288868AB3C98CFFDA4E20FDD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +584,8 @@ Sexy Girls Wallpapers (22.12.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:1B5C79F92F0F9F63BAC2FDCB53DF101A02149074
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +612,8 @@ Find Any File не содержит никаких подменю с настр�
 magnet:?xt=urn:btih:824D4D2632AFBA06293019B125154B97FB5629B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +637,8 @@ magnet:?xt=urn:btih:824D4D2632AFBA06293019B125154B97FB5629B9
 ```bash
 magnet:?xt=urn:btih:FCB96C49E2158EE452F6874DA375E477EAEE220F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +673,8 @@ Infested - 1000 Doors (2009) [MP3|320 кб/с]<Technical Brutal Death>
 magnet:?xt=urn:btih:581975C71C082B2D80181C5C1EACCDC46A1859FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +702,8 @@ Chris Maragoth - Gatherer of Souls (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <G
 magnet:?xt=urn:btih:221FA57FF04133B79BBD8E3F2BBCBD43785CEBB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -677,6 +727,8 @@ Gilrs Wallpaper Collection (22.12.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:343F7066B6250E74BBCA9AF15C2AA954F3A1F375
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

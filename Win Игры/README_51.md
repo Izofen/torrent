@@ -19,6 +19,8 @@ Deltarune - спин-офф головоломки Undertale, о чем гово
 magnet:?xt=urn:btih:5FA65E4D88DDE34DC710EEB1E6116FFB165CD4BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Anoxia Station - игра об управлении подземной горн�
 ```bash
 magnet:?xt=urn:btih:6668A8876269DD31224B22F4BF60B77D4F5A2B2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dark Souls III продолжит испытывать игроков на пр�
 magnet:?xt=urn:btih:CA17364E31E0C17407711C9493EFEDC3B6C48C1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Rune Factory: Guardians of Azuma представляет восточную н�
 ```bash
 magnet:?xt=urn:btih:CD9D8EF7B2ED58D202F358752CE2630BAF6ECC7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Between Horizons - это крутой 2.5D приключенческий де�
 magnet:?xt=urn:btih:73605D2271F029E93F885040C7CB854E0BB91451
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Felvidek – события этой JRPG-игры разворачиваютс�
 ```bash
 magnet:?xt=urn:btih:2EDF8EE1A42DE073CC97AFCB5759CC7924182137
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Arctico (2022) [En] (2.6w) License GOG
 magnet:?xt=urn:btih:62AB3DAED5DA1080CC157D8CA1409B2D1CF28404
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Galacticare - это ваш шанс спасти галактику, заним
 ```bash
 magnet:?xt=urn:btih:5BEFA60FFF6864A0C383DF83A87719EFCB7BE6CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Nova Drift – экшеновое ролевое приключение с ви�
 magnet:?xt=urn:btih:2398E562F951826646D68066EBFC4D8C7072D1B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Dustborn (2024) [Ru/Multi] (1.14/dlc) Repack LetsPlay
 ```bash
 magnet:?xt=urn:btih:2954B3200C3355E24047E4146DECC619EEDD4448
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.03/dlc) Repack Other s [S
 magnet:?xt=urn:btih:61958DD977126516A081180A5DF20D6F2EEA7FCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Hellslave (2022) [Multi] (1.46) License GOG
 ```bash
 magnet:?xt=urn:btih:C4AA3975327B37B4714B7F2A5EC907617C70D90C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Empires of the Undergrowth – это уникальная по своей ме�
 magnet:?xt=urn:btih:E24F9050A056FAFE6092F2B3FB684689C1377C18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Lies Of P была вдохновлена знаменитой историей 
 ```bash
 magnet:?xt=urn:btih:777CAD81DF0964C44E747C76FCE5EB5CE7E4F5FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Starcom: Unknown Space - это увлекательное сочетание к
 magnet:?xt=urn:btih:2E3D22C2885BF84057B494A5E420BDC83A9E782F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ InfraSpace дает возможность юзерам стать мэрами 
 ```bash
 magnet:?xt=urn:btih:2C2C964838E147124961D5E186DE7A97D9F69FE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Lies Of P была вдохновлена знаменитой историей 
 magnet:?xt=urn:btih:0EED785EEF35C7A80D0AF0061E8BF02CC20E19F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Lysfanga: The Time Shift Warrior бросает вас в битву, котор
 ```bash
 magnet:?xt=urn:btih:E8F9A0C89480813D577B1A4061397A2B86507FEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Yog-Sothoth's Yard - это ролевой симулятор строитель
 magnet:?xt=urn:btih:A7152A8520D54A466085A6592610E1015E2F4469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Dying Light 2: Stay Human (2022) [En] (1.22.4/dlc) Scene Tenoke [Reloaded Editio
 ```bash
 magnet:?xt=urn:btih:DA9D19ABA9406D17CA962AABE2F34A4B96C5DB8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ SlitterHead (2024) [Ru/Multi] (1.02.2-r00065826) Repack Other s
 magnet:?xt=urn:btih:71A2266EB304B944111204F54AD6409F7B29B17E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Moroi находится в Cosmic Engine, персонализированно�
 ```bash
 magnet:?xt=urn:btih:6F7A13A8D132F7AC2A6ACF95B705DC4DF177E0E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Shardpunk: Verminfall - изометрическая игра, геймплей 
 magnet:?xt=urn:btih:357F21369E8671885063C7889F0A5931E1B9479B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Unexplored 2 создаёт для вас огромный, богатый фэ�
 ```bash
 magnet:?xt=urn:btih:A4DB2815A7F96AECE50C134EC70EA947873AAB97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Kingdom Rush Vengeance – это стратегия в реальном вре�
 magnet:?xt=urn:btih:D9E5A40053FF01F7D86A0487D81D2F83347E1734
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Symphony of War: The Nephilim Saga повествует о событиях, к�
 ```bash
 magnet:?xt=urn:btih:5923444DA56DAC8B5FE681B0E53BFB26DE890A17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

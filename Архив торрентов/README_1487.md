@@ -19,6 +19,8 @@ IsMyHdOK 3.91 Portable [Multi/Ru]
 magnet:?xt=urn:btih:E1BFDF2A8E9E5ABFCDC22363C103CD8DB88E2286
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Green Day - Dookie (30th Anniversary 4-Track Demos) (2023) [FLAC|24/192|tracks|W
 magnet:?xt=urn:btih:D692CFBD6DF5ECF0F0A1DCF5E562BFA7D925E209
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:EBEA49D18CDFEAED0B77E98C96C6FCC92AA4DF1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Kaspersky Secure Connection 21.7.7.393a [Ru]
 magnet:?xt=urn:btih:F090C0B0AD940623E89F9643294D60D15AB11D77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ SRWare Iron 115.0.5850.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:16A1FE82A6BEE86723707F6E0D0DB4D666ACCE4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Bandicam позволяет записать определенную облас
 magnet:?xt=urn:btih:D1B135A4C317269352BEE8DBF3031E558602F16C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Brave - защищённый веб-браузер на базе Chromium, по�
 magnet:?xt=urn:btih:1B374D6BE39B9CF581363212EF0510FDE8C7F392
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ PDF Reader Pro - это приложение для редактирования
 ```bash
 magnet:?xt=urn:btih:2AE9B7B3AE620C36AC5BD6D1E38F34579E102BA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Sante DICOM Editor — ведущее в отрасли приложение п�
 magnet:?xt=urn:btih:E605B5F250B90C7D47B4AAD53C9D3B19AE720523
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:E605B5F250B90C7D47B4AAD53C9D3B19AE720523
 ```bash
 magnet:?xt=urn:btih:D1AB340A4FCB08731F998C0A7020644E4BD12E4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ FxFactory Pro включает  фильтры, генераторы и пере
 magnet:?xt=urn:btih:EB2221974E649362C6777CE1EC46EC63C3364D60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Windows хороша, но всегда есть, что улучшить. Во�
 ```bash
 magnet:?xt=urn:btih:00C57AF727129AFE6C2E288CFC8DE8DCAF5B47DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ Within Temptation - Bleed Out (2023) [FLAC|24/96|tracks|WEB-DL] <Metal, Symphoni
 magnet:?xt=urn:btih:2D795D938549D47C8BDFD9E4E3816CDCEE79B29D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ Aomei Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:0D1D57BC6D4AC8843CAE6FA62627AB94968A1196
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ PageEdit изначально разрабатывался как замена �
 magnet:?xt=urn:btih:C8B93BDB932B2218146DACF76148A2BA314D8561
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ NokoPrint v5.0.2 [Ru/Multi]
 magnet:?xt=urn:btih:B2BB533B09CCEEAE1750163AAD5CD55D6EBB99DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ Smart Defrag - дефрагментатор, позволяющий довест
 ```bash
 magnet:?xt=urn:btih:599E8953161952C48B62A7F7DF94FE23DCE65A6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ Bandicam позволяет записать определенную облас
 magnet:?xt=urn:btih:33A8D1A958EDAB052F0B888B058331D14B724A15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ App Builder позволяет создавать приложения для с
 ```bash
 magnet:?xt=urn:btih:FAE4FCC195EE614C1549434436B4EE41060CAEC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ Advanced Renamer хоть и бесплатная (   Читать дальше
 magnet:?xt=urn:btih:918CF366F1A9AC0463D3211D7F01F40F2D171608
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ Transparent clock & weather / Прозрачные часы и погода 6.34
 ```bash
 magnet:?xt=urn:btih:7BFFFC25194ECCC01FD6E543CF6BF7AFBDAEB3DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ Atlantis Word Processor 4.2.2.4 Repack (& Portable) by elchupacabra [Ru/En]
 magnet:?xt=urn:btih:B28B6E1C0D58FEBD990C8DB6695D5252CCFB7560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ RS Проводник - запросто поможет вам в управле
 ```bash
 magnet:?xt=urn:btih:B1E509B9E0E1955A59FB9974EC052D998BC11EB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ Ungoogled Chromium - версия веб-браузера Chromium без инт
 magnet:?xt=urn:btih:F90BF99C2AA95F8995C29030A0321457BCC5CEE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ Sigil — программа представляет собой мощный р
 magnet:?xt=urn:btih:13120FD6130B2AE2892C262DDFE69CD345B79902
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Ventusky: Прогноз погоды v27.1 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F6415D541DABFDDD9CC400E93CCC0DD4FBDB6CF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

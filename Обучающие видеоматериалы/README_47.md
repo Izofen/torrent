@@ -21,6 +21,8 @@ Udemy, Samantha Dabrowski | Become a Graphic Designer in the Film Industry (2023
 magnet:?xt=urn:btih:D69A0A9241CADA0A15D5B9923859EEEC1E7660E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Udemy, Passive Income Gen Z | ChatGPT & DALL-E2 to Create a KDP Storybook for Ch
 ```bash
 magnet:?xt=urn:btih:AE00CB8C9712F081B8046ED2467358D5BA46E846
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Udemy, Rufana Zade | Master Brand Design: Graphic Masterclass - Time-Saving Step
 magnet:?xt=urn:btih:71711D7F2C0E8DDFE867A85BE8845C6B50E6BCD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Udemy, Jesse Lawrence | How to become a music photographer (2023) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:221FACCA5D20BA1E2DB496C779C16F5CC7A1712C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:221FACCA5D20BA1E2DB496C779C16F5CC7A1712C
 magnet:?xt=urn:btih:30CD1737AEDB2CCC71AD6A4CD3F174C45E3F2852
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:30CD1737AEDB2CCC71AD6A4CD3F174C45E3F2852
 magnet:?xt=urn:btih:AF6FD7ED2CB3BD2FEFDF619B58B341BFEB9BF101
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Udemy, Zeon Horizon | 3Ds Max MasterClass : Only 3D course that teaches everythi
 ```bash
 magnet:?xt=urn:btih:136244580422CDA31EA73F8FFF70B93902BEA6C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:136244580422CDA31EA73F8FFF70B93902BEA6C3
 magnet:?xt=urn:btih:70FEB909C65789E77BCCE26FA986E0C43EF681E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ Udemy, Markos Resvanis | Unreal Engine 5 Visual Novel and Narrative Game Design 
 magnet:?xt=urn:btih:79BE45C40CE8F9993A92F7389A3B8D5D517B9735
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ Udemy, Meta Brains | Midjourney for Beginners: Embark on Your Artistic Journey (
 ```bash
 magnet:?xt=urn:btih:55EF83AC75899DF6404025739ACD52EF580EA955
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ Udemy, Benoit GOMES | Level design Masterclass : Theorizing before crafting (202
 magnet:?xt=urn:btih:B4E5321576C785149CAD0F00251BB27400E03528
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ Udemy, Marc Schneider | Mastering Theater Lighting (2023) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:D2B149F0CAEC9FCB7050DE0FF1D298683FEDC4E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:D2B149F0CAEC9FCB7050DE0FF1D298683FEDC4E1
 magnet:?xt=urn:btih:9E8A6D92DBF4D4960EBC24662A932860A53E4173
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ my_revit | Revit interior (2023) WEB-DL [AD] [RU]
 magnet:?xt=urn:btih:AC1A2C9822A27DC033046EE426668E3E13809C3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +408,8 @@ Udemy, Art Studio313 | Master 3D & 2D Hand Painting/Combine Blender & Photoshop 
 magnet:?xt=urn:btih:8B4CE765E1335F4D7E6B6BD98471937A2ADF3BCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ Udemy, Bharat Sharma | Introduction to Sculpting in Blender for Absolute Beginne
 ```bash
 magnet:?xt=urn:btih:9C81C369C63988EBC8E49A7D7BE0A4E86AB9D4CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +461,8 @@ Leonardo.Ai – это мощный инструмент, предоставля
 magnet:?xt=urn:btih:3AC140C39BB5290A6545CBF1DBBCB27C3084618B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ Udemy, Build FX | Master Blender With AI Tools, Blender Addons & Unity (2023) WE
 ```bash
 magnet:?xt=urn:btih:0B018A0D0F675D86FD10ABDD66343F9920A935F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +516,8 @@ magnet:?xt=urn:btih:0B018A0D0F675D86FD10ABDD66343F9920A935F1
 magnet:?xt=urn:btih:6B58E08E20B2F9B514041D2965BB09985E6070E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +543,8 @@ Udemy, Manas Roy | ChatGPT and Adobe Firefly AI Course: Beginner to Pro Level (2
 ```bash
 magnet:?xt=urn:btih:0641E0D6A1064A114B04DDF3A03B4F6ED4837A24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +573,8 @@ Roman Mantra | Mantra PRO Ai. Вебинар по созданию нейроа�
 magnet:?xt=urn:btih:F39063E12A1CA05E9F127397A2C4756902D42284
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +600,8 @@ Daniel Kordan | Photo Editing Masterclass (2023) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:C5F4172BE3A0CC4B32742338EEF42732C2344793
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +630,8 @@ magnet:?xt=urn:btih:C5F4172BE3A0CC4B32742338EEF42732C2344793
 magnet:?xt=urn:btih:5ADDBF84CE10984A13C1733D3B943DBE28BA9F8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +659,8 @@ Hudozhnik Online, Ника Сабрекова | «Цветные каранда�
 magnet:?xt=urn:btih:779F4DE23410A0940D921064D8600924F1CCF69B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +684,8 @@ The employment landscape can be volatile and scary. But with a solid career plan
 ```bash
 magnet:?xt=urn:btih:31E715971CC2CCBB1EC098FE5BDCF97E4DD2FC96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -663,6 +713,8 @@ Gumroad, Polygonpen | Advanced Bottle Modeling and Rendering in Cinema 4D and Re
 ```bash
 magnet:?xt=urn:btih:A449E5BE4C05C18920D783F9DA215D324031A420
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

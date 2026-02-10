@@ -22,6 +22,8 @@ Skillfactory, Михаил Королев | Data Engineering (2023) WEB-DL [RU]
 magnet:?xt=urn:btih:F171DFA5A0DC2A1797A807F02167108ED1A527FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Udemy, Dzianis Matveyenka (DMdev) | Beginner's Guide to Groovy for Java Devs (20
 magnet:?xt=urn:btih:150C8F51AEA1D37E51CC30780C57E10357B0F450
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:150C8F51AEA1D37E51CC30780C57E10357B0F450
 ```bash
 magnet:?xt=urn:btih:3B0D410A7A5CC3034D72281D103AB0D8FDAA0E35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ Filab, Діма Малєєв, Кріс Косик | Engineering Management (2023
 magnet:?xt=urn:btih:28E6E6C14752940AF55F17B09F995F7D0809D5BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:28E6E6C14752940AF55F17B09F995F7D0809D5BB
 magnet:?xt=urn:btih:38340306E52A86B845CCF74C506E1A4206398FBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:38340306E52A86B845CCF74C506E1A4206398FBE
 ```bash
 magnet:?xt=urn:btih:0BD10093455EC7F4244DB2C30F855F923952B8B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ PhotoWhoa, Sam Henderson | 12 Videos For Creating Stunning Fine Art Nude Photogr
 magnet:?xt=urn:btih:D4BC4400039474581AE327170D8C7A24EC9FBF05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ We will learn the fundamentals and mindset behind creating vegetation assets for
 ```bash
 magnet:?xt=urn:btih:51174760C4B55E5AF5449CDD624334EDEB1D7939
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Udemy, Dzianis Matveyenka | JUnit 5 (2022) WEB-DL [RU]
 magnet:?xt=urn:btih:56B2881DDCCF90BC402D66D4FE6CB92CD9AA950F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ THIS COURSE WAS DESIGNED FROM SCRATCH FOR THE CURRENT SOA-C02 EXAM VERSION - EVE
 magnet:?xt=urn:btih:A3C27599BDD1B1A3D705EFFCAFDD1A334D06A517
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ Udemy, Art Studio | Learn Modelling and Animating in Blender (2022) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:ED83D7DD44D044BE4A0E175178D44FE48C2AB12A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ Udemy, Art Studio | Modelling and Animating a Car in Blender (2022) PCRec [EN]
 magnet:?xt=urn:btih:735D87596CA19ED349FD14A725E8FD276F1F5DDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ In order to handle growing development and code complexity and deploy applicatio
 ```bash
 magnet:?xt=urn:btih:8EFCD99CE0C43E77A5948D4870AF219B86CA2155
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ The Network Specialty Exam has been updated to ANS-C01
 magnet:?xt=urn:btih:FDD63C232CF0B83BA17FD785DAB5A66BDB80DBF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ Udemy, Stephen Ulibarri | Blender Sculpting - Rune Sword (2022) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:E96A396DBF30C932F9108C1AF6CFD139C9E925DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:E96A396DBF30C932F9108C1AF6CFD139C9E925DD
 magnet:?xt=urn:btih:2BF7707CA7EF1448B80D47EDAA680CBEE216C8DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ Udemy, Sebastian Glöckner | Der Komplette Excel Kurs - Vom Anfänger zum Profi 
 ```bash
 magnet:?xt=urn:btih:69363E8658B863ED5B82964F5EB8D215A2610F72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +491,8 @@ Stepik, Павел Коган | Google-таблицы. от А до Я (2023) WE
 magnet:?xt=urn:btih:B6273EA12166CAAA24B1446784C1CE34536ADC9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +519,8 @@ magnet:?xt=urn:btih:B6273EA12166CAAA24B1446784C1CE34536ADC9C
 ```bash
 magnet:?xt=urn:btih:1CFA307D1034738EE9D1A97CF8ECB8589692D0A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +549,8 @@ magnet:?xt=urn:btih:1CFA307D1034738EE9D1A97CF8ECB8589692D0A5
 magnet:?xt=urn:btih:AB3D09043E182E5108AF984C89A19E96443043B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +576,8 @@ magnet:?xt=urn:btih:AB3D09043E182E5108AF984C89A19E96443043B9
 ```bash
 magnet:?xt=urn:btih:489D29268A2464832CD962CBB33E553DEFF0509E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +606,8 @@ magnet:?xt=urn:btih:489D29268A2464832CD962CBB33E553DEFF0509E
 magnet:?xt=urn:btih:C50380924AB7E24A1EFA9974DAB2001D08EB5E5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +635,8 @@ magnet:?xt=urn:btih:C50380924AB7E24A1EFA9974DAB2001D08EB5E5C
 magnet:?xt=urn:btih:D57FDCCC8D0188E1240C44B1BC90E04BC1C32794
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +662,8 @@ magnet:?xt=urn:btih:D57FDCCC8D0188E1240C44B1BC90E04BC1C32794
 ```bash
 magnet:?xt=urn:btih:18E0B098FE596556A685348A2A09627A6E978233
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +691,8 @@ IndigoGo, Денис Швец | Онлайн-курс по развитию ва
 magnet:?xt=urn:btih:857BCD978DA24857724F8BCA7655113F04062E8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +719,8 @@ Skypro, Александр Оспищев, Никита Маклахов, Ива
 ```bash
 magnet:?xt=urn:btih:F618BC7BCA3EA350EC48A68870D258503D3A28A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

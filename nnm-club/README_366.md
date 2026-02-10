@@ -19,6 +19,8 @@ Unravel Two – приключенческая адвенчура в стиле 
 magnet:?xt=urn:btih:09C254178D918227EF14E2ACB5A2F7B415203A5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Apple показала первый тизер сериала Pluribus («Плю
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Apple показала первый тизер сериала Pluribus («Плю
 magnet:?xt=urn:btih:37CCD635AEE0E92A2F2571C8C3D2381F1C7FD425
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:37CCD635AEE0E92A2F2571C8C3D2381F1C7FD425
 ```bash
 magnet:?xt=urn:btih:60F52B3043609003B308C1F0AB79EB5DC61C94C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:60F52B3043609003B308C1F0AB79EB5DC61C94C8
 magnet:?xt=urn:btih:9F578971622EBE77CE263C9C7FD990C98DC4B54A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:9F578971622EBE77CE263C9C7FD990C98DC4B54A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:9F578971622EBE77CE263C9C7FD990C98DC4B54A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:9F578971622EBE77CE263C9C7FD990C98DC4B54A
 magnet:?xt=urn:btih:F02B041A928FA33C3A5526F7108FFD0C6EFAA638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:F02B041A928FA33C3A5526F7108FFD0C6EFAA638
 ```bash
 magnet:?xt=urn:btih:C6FEB1E20C642F78B29A574981F65DBF27AE4617
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:C6FEB1E20C642F78B29A574981F65DBF27AE4617
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:C6FEB1E20C642F78B29A574981F65DBF27AE4617
 ```bash
 magnet:?xt=urn:btih:89584E1C914F7F396CDE97E5F5B3862200FF39C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:89584E1C914F7F396CDE97E5F5B3862200FF39C6
 magnet:?xt=urn:btih:E69DA1106F4841857610B57377E8264BD5F02CAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:E69DA1106F4841857610B57377E8264BD5F02CAA
 ```bash
 magnet:?xt=urn:btih:BC987A047AD90E56D7FD936609404F5F10EBC8D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:BC987A047AD90E56D7FD936609404F5F10EBC8D3
 magnet:?xt=urn:btih:516E7BE69FE9364D21BA7414DBB4D4C2E005E4A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Day of the Shell – это динамичная тактическая игра
 ```bash
 magnet:?xt=urn:btih:7AC61B0C5F16975728E66B4397EE568FE5C99D36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:7AC61B0C5F16975728E66B4397EE568FE5C99D36
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:7AC61B0C5F16975728E66B4397EE568FE5C99D36
 ```bash
 magnet:?xt=urn:btih:740F3C152BCAF10322B8B597E7082F063898F0C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Nixvir | Американские Горки: Дураки и Дороги / Rol
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Nixvir | Американские Горки: Дураки и Дороги / Rol
 ```bash
 magnet:?xt=urn:btih:6A1E4DF310EF1F8868B2E26606924E825013111E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ MythForce (2023) [Ru/Multi] (1.2.4.2) Repack Let'sРlay [Digital Deluxe Edition]
 magnet:?xt=urn:btih:659F2F4FDEEE1F04F50C5DBDB40867B6489D1BEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Miami Hotel Simulator (2025) [Ru/Multi] (0.13.345.pa) Repack FitGirl
 magnet:?xt=urn:btih:2291DDBC1A0525AB417C02E13C1C4BD6A7027829
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:2291DDBC1A0525AB417C02E13C1C4BD6A7027829
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:2291DDBC1A0525AB417C02E13C1C4BD6A7027829
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:2291DDBC1A0525AB417C02E13C1C4BD6A7027829
 ```bash
 magnet:?xt=urn:btih:EA7C4E22EBB134785CA967798217183E66C586B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:EA7C4E22EBB134785CA967798217183E66C586B0
 magnet:?xt=urn:btih:8CE0D4CE44ABDF5A6761448122782B2709F4FA48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:8CE0D4CE44ABDF5A6761448122782B2709F4FA48
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

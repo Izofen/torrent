@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:9AF3F002E19CDF2666A58215CDB4051EFA8CF634
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:9AF3F002E19CDF2666A58215CDB4051EFA8CF634
 magnet:?xt=urn:btih:D5DC510C3D55EC3B06433007981D217979A97E1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Apache Spark является ключевым навыком в области 
 magnet:?xt=urn:btih:657B94D5F6194AF9482BAD52014DB5CCA233B3A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Julio Casal | Building Microservices With .NET (2023) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:626692F0C9D31A65FB0B7C0A951A5C7F7020A9D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Blazor - это настоящий прорыв для разработчико�
 magnet:?xt=urn:btih:267A25DFD81D37D5346906D8A1A00B79A05EE66A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ IAmTimCorey, Tim Corey | Web API From Start to Finish (2023) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:4783B46A0ED56CE912726A7F08216D89E58E195B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:4783B46A0ED56CE912726A7F08216D89E58E195B
 magnet:?xt=urn:btih:22513C7F03672AD02CA5594B9201FCC41A37FDEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ As a security or IT professional, you need to know how to check security within 
 ```bash
 magnet:?xt=urn:btih:A0DF3519DDA118E754581B3B62AA4BE9E1E418DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:A0DF3519DDA118E754581B3B62AA4BE9E1E418DC
 magnet:?xt=urn:btih:09D8B4F0B6E24AA1D0C95845FC6F5CC75F932EE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:09D8B4F0B6E24AA1D0C95845FC6F5CC75F932EE2
 ```bash
 magnet:?xt=urn:btih:6B84A5284D4A7D396E48D08C9FB614371F8414E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ xcel VBA – Программирование макросов в Excel. Stepik.
 magnet:?xt=urn:btih:35723365C0E692DF781B9EF4E82CD4975BE8B30D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:35723365C0E692DF781B9EF4E82CD4975BE8B30D
 magnet:?xt=urn:btih:C02150E638B262165D520CCFF497446D5818C395
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ Stepik, Renat Lotfullin | Microsoft Excel - Продвинутый пользо�
 ```bash
 magnet:?xt=urn:btih:80FD9E9AD5C36EF161C3628E097F7946E24164A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ ChatGPT (от англ. Generative Pre-trained Transformer «генератив�
 magnet:?xt=urn:btih:864586A3AB5FB7EE7FD9474BE3134DBE3505F35D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ Kubernetes в настоящее время является одной из с�
 ```bash
 magnet:?xt=urn:btih:9E1CA8B4F57019093E42698C0DBF0D74C4D0DA45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ C# - это язык программирования, используемый 
 magnet:?xt=urn:btih:6AB8BDBDE6D6D1DE2A3AC0161796B3DCD614F1E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ Udemy, Nam Ha Minh | Spring Boot REST APIs Ultimate Course (2023) WEB-DL [EN / E
 ```bash
 magnet:?xt=urn:btih:151C038C68AFF015AB3C9C8FF31C9AFD61684F43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ Udemy, Norbert B. Menyhart | 30+ React Projects, Learn React JS by Building 30+ 
 magnet:?xt=urn:btih:533AA610137E3BEA239D9BC321C08CF6C6C37BD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ Udemy, Marat Zhman | React Animation Project SCSS (2023) WEB-DL [RU]
 magnet:?xt=urn:btih:EDB06A83FD91DE9A501BFFB64E5B941DE82AA533
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ Udemy, Manik (Cloudaffle) | TypeScript Design Patterns And SOLID Principles (202
 magnet:?xt=urn:btih:C6AFCBD87BB60030A893C608032C677D4A3AA15E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ Udemy, Neil Cummings | Build a Microservices app with .Net and NextJS from scrat
 ```bash
 magnet:?xt=urn:btih:50B1F8945FA794AC8B3F5F92FE9AB530E6634D1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ Balun.Courses, Владимир Балун | System Design - 3-х недельн
 magnet:?xt=urn:btih:C20C52537F3A85AA5149BA88B39D255A11BC17FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ Udemy, Joseph Heidari | Understanding Node.js: Core Concepts (2023) WEB-DL [EN /
 ```bash
 magnet:?xt=urn:btih:1E9D9D15030350027D44DC1E85FBFF4B7A66E901
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:1E9D9D15030350027D44DC1E85FBFF4B7A66E901
 magnet:?xt=urn:btih:28435017E565D60AA8C11867C6FB4FA4B8C09AE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ magnet:?xt=urn:btih:28435017E565D60AA8C11867C6FB4FA4B8C09AE4
 magnet:?xt=urn:btih:160293EC4021B9D5431BE4ED53254711E460C270
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ magnet:?xt=urn:btih:160293EC4021B9D5431BE4ED53254711E460C270
 ```bash
 magnet:?xt=urn:btih:4B5CBFF9474EA3E97DFC7A671945D97B5301E3C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

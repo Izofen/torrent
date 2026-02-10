@@ -19,6 +19,8 @@ MKVToolnix - функциональный набор инструментов д
 magnet:?xt=urn:btih:783017111B8D89573EB1E34BA0CE136EF7C35A23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Fast Video Cutter Joiner - программа 2-в-1 для быстрой ре�
 ```bash
 magnet:?xt=urn:btih:78C841A721F0C2E124B9E888BB168E1A9C958616
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:52F6E76412F2F0C1768B22C482018B180E622E48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Capture One - один из лучших профессиональных кон
 ```bash
 magnet:?xt=urn:btih:75AB4908C98E35740BA08078BEAA3BC8C7D952DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:75AB4908C98E35740BA08078BEAA3BC8C7D952DC
 magnet:?xt=urn:btih:152C1F75F42492C1A2F355891CFAAB1D51C83332
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ OsmAnd+ - это приложение с картами всего мира на
 magnet:?xt=urn:btih:9CF28DE8DC7718AD0B65E2734ABB8B924F2ED59C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 ```bash
 magnet:?xt=urn:btih:19C1119766378FEC1C4B48A1542333E505499564
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ TikTok - социальное приложение для тех кто пред
 magnet:?xt=urn:btih:DE265E21DF6A8AF78E91891E54C8D359DCC3EAB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Wondershare UniConverter - простой в использовании виде
 magnet:?xt=urn:btih:05048468D1557EDE3A97F31C2CAB4317E589674D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:3717AF763CF0A1C9F4F9D3A0D25955CBE630CF12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:3717AF763CF0A1C9F4F9D3A0D25955CBE630CF12
 magnet:?xt=urn:btih:B1567C35CF62E63FE5EA440E909FE608F0A7C045
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:B1567C35CF62E63FE5EA440E909FE608F0A7C045
 ```bash
 magnet:?xt=urn:btih:9A1203181F2D7B1ABF17A5165318737C1B9E4F1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ VueScan - программа предназначена для замены ст
 magnet:?xt=urn:btih:3D69E68F6E2EFB78B3E1BCB4A44413EB9EE91C4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:3D69E68F6E2EFB78B3E1BCB4A44413EB9EE91C4E
 ```bash
 magnet:?xt=urn:btih:8411D9D40C4FD9D313234496F59151E76FA5B092
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Ventusky: Прогноз погоды v44.1 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:0171AB65257BB4FD9C350B8CB53198B5BD6FB753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ ExamDiff - мощная и легкая в использовании прогр
 ```bash
 magnet:?xt=urn:btih:A00EE215B65E7211ED87F9CA74CBA161DE57747B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Web Video Caster® позволяет смотреть на вашем ТВ ви
 magnet:?xt=urn:btih:0F5B13980B13E3393F057D066C916FA1E989CA40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:B0E067836C610C79EFC16F6EFD36094791F743AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Windows Slimmer поможет вам в удалении ненужных ко�
 magnet:?xt=urn:btih:5CFF748247FCC61A8FCAF80D9E5E568BAF3F06DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:5CFF748247FCC61A8FCAF80D9E5E568BAF3F06DA
 ```bash
 magnet:?xt=urn:btih:174B72DED28385E5771F17F3391F3AF2D660A256
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ AnyDesk 9.5.6 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:0046D0E52107A62A94A8012A382EAE274153C471
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Everything – это поисковый движок для Windows. Everything
 ```bash
 magnet:?xt=urn:btih:4C15A4F41C8CB7C0D7E51416EF960E1FB5F56066
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ ByeByeDPI v1.5.1 [Ru/Multi]
 magnet:?xt=urn:btih:763593CDAE9008AAA3A3E779E1011D7512B5850F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Adobe Photoshop 2025 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:91DCD796C8D04993C8C297ED4DD83231AE2CA213
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ Shazam (шазам) распознает любую песню за секунд
 magnet:?xt=urn:btih:4942B8EFD292AF8A39E6891F878976C430515B3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ OsmAnd+ является приложением с открытым исходн
 ```bash
 magnet:?xt=urn:btih:2A16E46738C879598953A82503A15BCB5C1AF18A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

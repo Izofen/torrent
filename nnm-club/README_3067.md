@@ -28,6 +28,8 @@ VA - Into The Cosmic Jungle (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Ful
 magnet:?xt=urn:btih:BD93DBA03CB9BD42D5274A5F370A263DD5CEC6FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -56,6 +58,8 @@ magnet:?xt=urn:btih:BD93DBA03CB9BD42D5274A5F370A263DD5CEC6FC
 magnet:?xt=urn:btih:6FF5E2F5797905ED97CCC1B44FD38EE976D35B1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -83,6 +87,8 @@ magnet:?xt=urn:btih:6FF5E2F5797905ED97CCC1B44FD38EE976D35B1E
 ```bash
 magnet:?xt=urn:btih:ABA7FF361DD388ECD94EAEE18A929A0F514DCB16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +123,8 @@ Crossover - Pythagorized (2011) [MP3|320 кб/с]<Industrial/Sympho Black Metal>
 magnet:?xt=urn:btih:0AFE2EC48C9CD60B11942FEC7EB42A297E1D6A3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +156,8 @@ Sleipnir - Bloodbrothers (2010) [MP3|320 кб/с]<Epic Viking Metal>
 ```bash
 magnet:?xt=urn:btih:B2D79D845E3555D147071CBC30BCE21AA14F4988
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +192,8 @@ Dünedain (Dunedain) - Magica (2012) [FLAC|Lossless]<Heavy/Power Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +226,8 @@ VA - The Voice Kids - The Songs (2012) [MP3|320 kbps]<Pop | Dance>
 ```bash
 magnet:?xt=urn:btih:45B6A0D6766D3A7993D835DB5519CBABE358481C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +262,8 @@ VA - XXXL Танцевальный 50/50 Весна (2012) [MP3|256 кб/с]<Pop
 magnet:?xt=urn:btih:9EF0D45CE5EE5331FB0BD8FDE093357C97691B2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +287,8 @@ magnet:?xt=urn:btih:9EF0D45CE5EE5331FB0BD8FDE093357C97691B2E
 ```bash
 magnet:?xt=urn:btih:49259657152DE75F5CA90AE8D9EA4981509D7077
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +323,8 @@ VA - Sound RMX (2012) [MP3|320 kbps]<Club | Dance | House>
 magnet:?xt=urn:btih:08712387B5C91C5A5A78E973A7C5B73386FD959E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +358,8 @@ OverMaster - Madness Of War (2010) [MP3|320 кб/с]<Power Metal>
 magnet:?xt=urn:btih:D8EC9669B208DF8DE8E6C6A9FEEA53CBF428CE9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +390,8 @@ Pybus Groove Quartet - Good Evening (2011) [MP3|192 кб/с]<Jazz, Funk>
 ```bash
 magnet:?xt=urn:btih:3418B4286ADBB410358C360A46F8E56AE1CD8F24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +424,8 @@ Borknagar - Urd (2012) [MP3|192 кб/с]<Black Metal / Progressive Viking/Folk M
 ```bash
 magnet:?xt=urn:btih:A21BBAD42D6D82304EB39EFA7302D9765B4C1751
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +460,8 @@ SRS - Совместный [DNИL, DiZou, Benny] (2012) [MP3|256, 320 кб/с]<R
 magnet:?xt=urn:btih:F021582CD9904FB29AFFBA08EADF2E645C623D8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +485,8 @@ magnet:?xt=urn:btih:F021582CD9904FB29AFFBA08EADF2E645C623D8F
 ```bash
 magnet:?xt=urn:btih:CFF763FB9D51FE7772BEA9C9903999239DB43432
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +515,8 @@ magnet:?xt=urn:btih:CFF763FB9D51FE7772BEA9C9903999239DB43432
 ```bash
 magnet:?xt=urn:btih:23163F83939E5FF186C063FC0DDD96F690842ED1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +551,8 @@ VA - Organic Wick (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
 magnet:?xt=urn:btih:4BEF255561CAF4D4C5A0AC7FC4664C3576434025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +585,8 @@ Various Artists - Tranceffect 17 (2012) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:832469C8237D598969050E9926F9A7634DE8DE68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +621,8 @@ VA - XXXL Клубный Весна (2012) [MP3|192 kbps]<Club | Dance>
 magnet:?xt=urn:btih:244458298CC507A5E3291D285D28A519ECB2AEA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +647,8 @@ magnet:?xt=urn:btih:244458298CC507A5E3291D285D28A519ECB2AEA7
 ```bash
 magnet:?xt=urn:btih:432AAA5F97125DB437A4FEA7B197E74E4ED61429
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +682,8 @@ Janice Finlay - Anywhere But Here (2011) [FLAC|Lossless]<Jazz, Mainstream Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +707,8 @@ BurnAware - простая, но могучая программа для зап
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -690,6 +734,8 @@ BurnAware - простая, но могучая программа для зап
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -713,6 +759,8 @@ BurnAware - простая, но могучая программа для зап
 ```bash
 magnet:?xt=urn:btih:16407446C489124AFE97712CB2A2BE3469F863FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -738,6 +786,8 @@ magnet:?xt=urn:btih:16407446C489124AFE97712CB2A2BE3469F863FA
 magnet:?xt=urn:btih:4578BF2B7C9150B646C6584B836F3B590A94096E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -761,6 +811,8 @@ magnet:?xt=urn:btih:4578BF2B7C9150B646C6584B836F3B590A94096E
 ```bash
 magnet:?xt=urn:btih:AEEC196C490C5CD2A47C4CF6D0B57BA0DFB2491A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

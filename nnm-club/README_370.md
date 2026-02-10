@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:5D8FA4E1D60A2EBD45AD4F1BFE5F736D11AAA36D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ SplitCam - бесплатная программа способная сущес
 ```bash
 magnet:?xt=urn:btih:679D682C788BF109B917A6B376237AB0F88B6142
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:679D682C788BF109B917A6B376237AB0F88B6142
 magnet:?xt=urn:btih:1AF2A601A4931367C3E69D8E4C887D82CC2AA311
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Advanced Renamer хоть и бесплатная (   Читать дальше
 ```bash
 magnet:?xt=urn:btih:4BFB093DB62C39DFBF4CDCE33801B331C6CFC45F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:4BFB093DB62C39DFBF4CDCE33801B331C6CFC45F
 magnet:?xt=urn:btih:A59F111B5E7E7168865E09263B599BF24FC18837
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:A59F111B5E7E7168865E09263B599BF24FC18837
 ```bash
 magnet:?xt=urn:btih:845F5233DFA314A97AC0CDEFF8D5DEA7EDBE2401
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Ubuntu*Pack 22.04 KDE / Kubuntu (июль 2025) [amd64] 1xDVD
 magnet:?xt=urn:btih:397CFDA298BFFF113F97CDD93C4CA821B233E326
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:397CFDA298BFFF113F97CDD93C4CA821B233E326
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:397CFDA298BFFF113F97CDD93C4CA821B233E326
 ```bash
 magnet:?xt=urn:btih:BDB22A0372AF1D08D436F84F610CB02F68335E50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:BDB22A0372AF1D08D436F84F610CB02F68335E50
 magnet:?xt=urn:btih:7789DA965A257EE26D171568EC254CEBA4B27137
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Ubuntu*Pack 22.04 LikeWin (июль 2025) [amd64] 1xDVD
 magnet:?xt=urn:btih:5330EE7F3AA923A7C29874FFD1B149082F17752E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Borderlands 2 (2012) [Ru] (1.8.4/dlc) Repack EXROW [Game of the Year Edition]
 ```bash
 magnet:?xt=urn:btih:1C637A29D185BCDC5D5186C900BCFE878D101940
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Ubuntu*Pack 22.04 LXqt / Lubuntu (июль 2025) [amd64] 1xDVD
 magnet:?xt=urn:btih:D91BFCB7EEA4CC67879B63F94E2D792EF780A737
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ Mortal Kombat 4 (1997) [En] (2.1) License GOG
 magnet:?xt=urn:btih:C1BD85849D2F197C5BC67D5C28F5E003DF107155
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ ASTRONEER (2016) [Ru/Multi] (1.34.47.0/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B2B3965186D8D5FDFBF8A46EA901C03768A0FAAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ Ubuntu*Pack 22.04 Cinnamon (июль 2025) [amd64] 1xDVD
 magnet:?xt=urn:btih:6E9F7908D9014CE5C7798CC7037127C6A2EE689C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ Ubuntu*Pack 22.04 GNOME (июль 2025) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:DE4B34643867C0D1D88C1869523940E42D901DA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ Ubuntu*Pack 22.04 MATE (июль 2025) [amd64] 1xDVD
 magnet:?xt=urn:btih:01F9F593CDBD084C1E81403DBD44970C5B559005
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:01F9F593CDBD084C1E81403DBD44970C5B559005
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ Ubuntu ServerPack - полный комплект серверного ПО, к�
 magnet:?xt=urn:btih:C756CEEDFE5575514197FE61316A8C31B6A59349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ Call of Duty: Modern Warfare (2019) [Ru/Multi] (8.67) Repack FitGirl
 magnet:?xt=urn:btih:DEE09EB5CE0DE074A2F8FD4EAD1A7B5ECF3F01E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:DEE09EB5CE0DE074A2F8FD4EAD1A7B5ECF3F01E9
 ```bash
 magnet:?xt=urn:btih:EB63AA9DC70F46807CC6D0C98607CD34EF8336F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ Ubuntu*Pack 22.04 (июль 2025) [amd64] 1xDVD
 magnet:?xt=urn:btih:7C9BE79BF99C7CADB1F155BFBB5B80D2A9BDF5C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +633,8 @@ magnet:?xt=urn:btih:7C9BE79BF99C7CADB1F155BFBB5B80D2A9BDF5C5
 magnet:?xt=urn:btih:A50040BFF935589A3575EA2CF21C32D0DDECC51B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ AVS4YOU Software AIO Installation Package — мощный мультимеди�
 ```bash
 magnet:?xt=urn:btih:2C02683FBD2FB2BED730284AA9F0478A2BCA3D5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +686,8 @@ magnet:?xt=urn:btih:2C02683FBD2FB2BED730284AA9F0478A2BCA3D5B
 ```bash
 magnet:?xt=urn:btih:824FAD8EBECEB50D901D74C971DBF69464308698
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

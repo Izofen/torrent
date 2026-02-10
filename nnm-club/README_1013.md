@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:F3031C2F26D9C096A0E923EEF49FF8E8B566BCCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:F3031C2F26D9C096A0E923EEF49FF8E8B566BCCA
 magnet:?xt=urn:btih:491EFAF52034F201C44033D9BB1D90D7E65D8AA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:491EFAF52034F201C44033D9BB1D90D7E65D8AA6
 ```bash
 magnet:?xt=urn:btih:12F61DE5433F1AE7C8E510376BF2E8B9E6E8409F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:12F61DE5433F1AE7C8E510376BF2E8B9E6E8409F
 magnet:?xt=urn:btih:B5B18A6BBFCB7471E18C23BC03BE1CAE678585ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:B5B18A6BBFCB7471E18C23BC03BE1CAE678585ED
 magnet:?xt=urn:btih:2E0FFF606D082789D640A4807E2EEE6FC65EB9AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Blasphemous II (2) (2023) [Ru/Multi] (2.2.0-cs57553/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:3703E87AE71130C85C5E743A739C0FB71D84EFC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:3703E87AE71130C85C5E743A739C0FB71D84EFC7
 magnet:?xt=urn:btih:9B6914E4E936CB37FEE578DE6AF4FB4C7E66DA84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:9B6914E4E936CB37FEE578DE6AF4FB4C7E66DA84
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:9B6914E4E936CB37FEE578DE6AF4FB4C7E66DA84
 magnet:?xt=urn:btih:56DA9FDAC02E0FFF8EDB7AA748C00F7E3A739554
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ A Game About Digging A Hole (2025) [Ru/Multi] (build 17291810) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:A1E94C2357853B967936092E0B2D3C582000FB5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Fallout 3 - это сочетание шутера от первого лица,
 magnet:?xt=urn:btih:98EB4334E0DABBC7E97266DE55B57BDFF55FCA83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Shumi Come Home - это очаровательная приключенческ
 ```bash
 magnet:?xt=urn:btih:CA7286260169FE27423F46E782153A2830AF54C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ Udemy, Andrei Dumitrescu | Linux Security: The Complete Iptables Firewall Guide 
 magnet:?xt=urn:btih:263B4CB8C79C517DBEC2A0084CCD4CA8C0345767
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:2E9542CD14BFFEEDC12F124012680077BA401F0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:2E9542CD14BFFEEDC12F124012680077BA401F0C
 magnet:?xt=urn:btih:672753B8FE5F79138F91D28680F9A68BF343B5EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:672753B8FE5F79138F91D28680F9A68BF343B5EC
 ```bash
 magnet:?xt=urn:btih:D621AF373800934366F68837F5B0D3FEC4FE1AC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:D621AF373800934366F68837F5B0D3FEC4FE1AC7
 magnet:?xt=urn:btih:F73DA2E3D969B59171FE2883C40CB5482FB40D5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Crisis Core Final Fantasy VII Reunion (2022) [Ru/Multi] (1.03) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:2C429A77596A453249EB0EA6C8511C658F19BDA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ The Last Farmer (2024) [Ru/Multi] (1.0.11) Scene SKIDROW
 magnet:?xt=urn:btih:6A1FED149976931274B27F409B177E4F3D6A4FFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ WARRIORS: Abyss (2025) [Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:9C66BBDD44AA116D29652D29981DA771BC7BF9AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ Dark PGT (2025) [Ru/En] (build 17435047) Repack seleZen
 magnet:?xt=urn:btih:B09F9FD0EA720DC8F58898AD771F14B6AB931424
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Master of Orion предлагает игрокам исследовать бе�
 ```bash
 magnet:?xt=urn:btih:13B03ABD285E911CF5BBED0F1A12EC5F150A806A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:13B03ABD285E911CF5BBED0F1A12EC5F150A806A
 magnet:?xt=urn:btih:7A3CD190B428216CCA33E6681159C98E00B526FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:7A3CD190B428216CCA33E6681159C98E00B526FB
 ```bash
 magnet:?xt=urn:btih:A62DE6AC89AE048CD281DBB2B8D75A5EAA97A709
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Driver Store Explorer — это легкий инструмент, которы
 magnet:?xt=urn:btih:7BF221D0F52E36CCF42EEC05901A01EAA67C405F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:7BF221D0F52E36CCF42EEC05901A01EAA67C405F
 ```bash
 magnet:?xt=urn:btih:02F8AA5EDD91DFD9DCE45CF8231B739472DAD824
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

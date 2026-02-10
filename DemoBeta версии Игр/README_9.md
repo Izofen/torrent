@@ -19,6 +19,8 @@ Signs of Life – научно-фантастическая игра с прос
 magnet:?xt=urn:btih:C23815D2C5FBA50E2CB2BB3E146CD512AE69B86B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Bus Driver Simulator 2018 (2018) [Ru/Multi] (1.3) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C1A4B37E960E7739AA5A0CCD20B2DECF3A99FA05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Wild Eight (2017) [Ru/En] (0.8.52) Repack VseTop
 magnet:?xt=urn:btih:8A3C0684638A217D9A5E70B35053AFA92ECDAB79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ World of Diving (2014) [En] (0.16.2) Repack CoD - MW2
 ```bash
 magnet:?xt=urn:btih:3F4DB6E0029D0BCC0D8335BFEF60B7C380F25F10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Hidden Expedition 18: Neptunes Gift (2019) [En] (Beta) Unofficial
 magnet:?xt=urn:btih:2D6277141BEAC90FA3084759FCB818A7CD1F79EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Paranormal Files 3: Enjoy the Shopping (2019) [En] (Beta) Unofficial
 ```bash
 magnet:?xt=urn:btih:7DC5BD5026860D8AE515D98E7172FF610CEFC8C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ DECA (2018) [En] (0.1) License HOODLUM
 magnet:?xt=urn:btih:47045EE4693DDF1D074A77913B6102B3E563FA0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Mystery Trackers 16: The Fall of Iron Rock (2019) [En] (Beta) Unofficial
 ```bash
 magnet:?xt=urn:btih:CBF237B9EBFB96BA21D3825E9E5CEE78994F7C2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Persian Nights 2: The Moonlight Veil (2019) [En] (Beta) Unofficial
 magnet:?xt=urn:btih:1E251B8BEFAC0834F9C8647DDEA0E3B272DFD8B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Minotaur (2020) [Ru/Multi] (0509) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:484FF30D8CE1F438C7312EAA631F95E72D7076AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Project Zomboid - многообещающая Survival-RPG, в которой �
 magnet:?xt=urn:btih:75FBD82E6DD00A9BB8151181A2CDD8E8A3620B03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Elven Legend 7: The New Generation (2018) [En] (Beta) Unofficial
 ```bash
 magnet:?xt=urn:btih:8E25A91ECC24026DE75EF68F47D5DC85B21F183F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Factorio — это игра про добычу ресурсов, постро�
 magnet:?xt=urn:btih:815CA34FE70318579748D0306321228B4A1C977A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Planetoid Pioneers - это двухмерная приключенческая 
 ```bash
 magnet:?xt=urn:btih:395EC78AA794564217EA3897481DF1C6C1A65E60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Judgment: Apocalypse Survival Simulation - стильная survival-песоч�
 magnet:?xt=urn:btih:2A77E605719FED5D1F03B97F2DEEF43892834861
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Halcyon 6: Starbase Commander - это приключенческая ролев
 ```bash
 magnet:?xt=urn:btih:DFC71E8F16179CD6A7518541563FC79C82E773B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ The Fifth Expedition (2016) [En/Pl] (0.7.1) Repack Other s
 magnet:?xt=urn:btih:7779021B6B0D79FA5750A83ED0E6919CBDD04C6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Gravi - интересный платформер, с элементами го�
 ```bash
 magnet:?xt=urn:btih:331D09E2E5AF27A6F90092F5EAA315EFD82240CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ GIBZ – это кооперативный шутер на популярную 
 magnet:?xt=urn:btih:399438B8315865B598E61FE7944950CB38845A8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Starmancer (2021) [En] (0.1.49) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:8D137728A37624CE9B133680951ACCC88BA2ABBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Sphere это научно-фантастическая игра со строи
 magnet:?xt=urn:btih:541636B550B436F8FE1C142D336C7F82200917EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ MewnBase (2017) [Ru/En] (0.34.1) Repack VseTop
 ```bash
 magnet:?xt=urn:btih:FB53207CE0FDBB4F36E3F602BFF5723CB4CC126C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ Mad Games Tycoon (2015) [Ru/Multi] (0.160414B) Repack Dante159
 magnet:?xt=urn:btih:2D0897844EAA041D70EAB485F32D21AB4AAA4EE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ Demesne - игра для тех из вас, кто любит рыбалку �
 ```bash
 magnet:?xt=urn:btih:1D038CD963102383218EF9769AAB0F98E88256C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ Frozen State - игра о трудностях бытия и выживании
 magnet:?xt=urn:btih:2DC6ACF2578DD0120BABDF4301A432573F6FD2EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Gang Beasts – это инди-игра, в которой вам придет�
 ```bash
 magnet:?xt=urn:btih:7F0C754A56153F172EA3502FBE187BFFF6A7C3D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

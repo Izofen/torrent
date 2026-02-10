@@ -19,6 +19,8 @@ FreeCAD – это очень мощный и серьезный продукт,
 magnet:?xt=urn:btih:F189935A4C74E6ED7EB189274AA5EA533F4BDE74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:F189935A4C74E6ED7EB189274AA5EA533F4BDE74
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Men of War II (2) (2024) [Ru/Multi] (1.040/dlc) Repack FitGirl [Deluxe Edition]
 magnet:?xt=urn:btih:8E34FBD5FD14A4845851641B8B867EEA9A85711F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ LEGO Horizon Adventures (2024) [Ru/Multi] (1.1.0.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:368F84C98E1101BEFBFBF746C441975D21A25C58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Beloved Rapture представляет собой авторскую jRPG, с�
 magnet:?xt=urn:btih:B1496764F88C7311D70E4F1B270728D6C4E20D65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:B1496764F88C7311D70E4F1B270728D6C4E20D65
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ V Rising (2024) [Ru/Multi] (1.0.10.1/dlc) Scene Rune
 magnet:?xt=urn:btih:9E15C5F261395F499BC80AFAA7A9392673240C7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:9E15C5F261395F499BC80AFAA7A9392673240C7F
 ```bash
 magnet:?xt=urn:btih:ADC523508CABDB4A7E2046F59EB884F0E2D1E9D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:ADC523508CABDB4A7E2046F59EB884F0E2D1E9D9
 magnet:?xt=urn:btih:4A5577BAFC6C9FB8597E450BC382F61DB3C1F0EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:4A5577BAFC6C9FB8597E450BC382F61DB3C1F0EF
 ```bash
 magnet:?xt=urn:btih:314638565F168AA318C194E3B43C0A1850895365
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:314638565F168AA318C194E3B43C0A1850895365
 magnet:?xt=urn:btih:3C20A60C1E448ED86DD0981332092B9DB0AD24DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:3C20A60C1E448ED86DD0981332092B9DB0AD24DE
 ```bash
 magnet:?xt=urn:btih:0104A34B9A8266591300FB6155078E009BA45D3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ InPixio Photo Focus предлагает особые инструменты, ч
 magnet:?xt=urn:btih:96DC7F9B77E6A44C6453361F244B8E21412E63DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ VA - Golden Metal Ballads №1+№2 (1994) Compilation, Unofficial Release [FLAC
 ```bash
 magnet:?xt=urn:btih:1610288ECB9F0CB78BCAFDC715F00A68E87B0581
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыл�
 magnet:?xt=urn:btih:3A7D77D27567648926CC0BC78672F2A027F5039C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:3A7D77D27567648926CC0BC78672F2A027F5039C
 ```bash
 magnet:?xt=urn:btih:63D3EE19D2EB7BDF8D64D35EED301AA2283775E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Windows 11 - это серия операционных систем, разра
 magnet:?xt=urn:btih:9234416A7F38DD786644B68DE3AB5C0CF46A695D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:9234416A7F38DD786644B68DE3AB5C0CF46A695D
 ```bash
 magnet:?xt=urn:btih:11561EBFEF6E6031C18D6D298AC6025D1FDCC919
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:11561EBFEF6E6031C18D6D298AC6025D1FDCC919
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Age of Empires II: Definitive Edition (2019) [Ru/Multi] (101.102.62906.0/dlc) Re
 ```bash
 magnet:?xt=urn:btih:4097E88CE42D62E2CA1C79E2B4FF5490BD16B6E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ magnet:?xt=urn:btih:4097E88CE42D62E2CA1C79E2B4FF5490BD16B6E0
 magnet:?xt=urn:btih:1FBECFE4714FBE4B875B5660F7B5E75A01CBE5F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Corona Renderer - это популярный рендер-движок для 3
 ```bash
 magnet:?xt=urn:btih:DC19CB5F9282FA4FF9B21C6CBD6FB953080EAD4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ magnet:?xt=urn:btih:DC19CB5F9282FA4FF9B21C6CBD6FB953080EAD4B
 magnet:?xt=urn:btih:848D1C03A04EFA2B6B668D1643C12AEEC27C9EC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ magnet:?xt=urn:btih:848D1C03A04EFA2B6B668D1643C12AEEC27C9EC7
 ```bash
 magnet:?xt=urn:btih:CC3328121F42D0C0ECDD86B92464AA8D92626BE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ magnet:?xt=urn:btih:CC3328121F42D0C0ECDD86B92464AA8D92626BE3
 magnet:?xt=urn:btih:8E989E49F6575C780E990B2880A5B843C226A2A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ AAF Optimus DCH Audio Driver Realtek Mod, аудио драйвер "всё в �
 ```bash
 magnet:?xt=urn:btih:8B956424B6FE5F6F1B3F4947F33AEC0C1D3EB4EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

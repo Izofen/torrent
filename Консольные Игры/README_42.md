@@ -21,6 +21,8 @@ Don’t Starve является бескомпромиссной игрой на
 magnet:?xt=urn:btih:4825B3225DF4F7808BA7EBC22BAAB1CCCD1A630A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Grand Theft Auto: San Andreas HD (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO
 ```bash
 magnet:?xt=urn:btih:758C6CE8F12B7879E04C5894B35152BD183BF31F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Chasing Dead (2016) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Ru/Multi]
 magnet:?xt=urn:btih:2FC8E8166863A0EC16E999AA11B63C9A2E0D5AE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Retro City Rampage DX - это переиздание пропитанной н�
 magnet:?xt=urn:btih:948624BD6B944E8397BDB7A47C34794017ADB3DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Crysis 3 Remastered (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.01] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2706876237ED9B69AA19B9D94257F3CF5F80951D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ Dance Central – танцевальная игра, использующая в
 magnet:?xt=urn:btih:0CDA0A13EB9382743C43BBF91B30A7B33E4D4909
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ Binary Domain (2012) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] 
 magnet:?xt=urn:btih:0487636E1BC2F84FD9FBBCA2EE18B0846DEFC389
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ Silent Hill: Shattered Memories (2010) [PS2] [NTSC] [Unofficial] [Ru/En]
 magnet:?xt=urn:btih:8BEB0D5996AF8BE9F0EC605FA756F56A641EE5B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ Deus Ex: Human Revolution - Director's Cut (2013) [PS3] [EUR] 4.46 [Cobra ODE / 
 ```bash
 magnet:?xt=urn:btih:59C6B7EEA1027E4F297BCFE812A7E6E659DED338
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ Citra будет работать и без них (и автоматическ�
 magnet:?xt=urn:btih:C6595AA7C364C46A3273EE1E5C46D930C7D49A3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ Ever Oasis (2017) [3DS] [EUR] [CIA] [Unofficial] [Multi]
 magnet:?xt=urn:btih:742D19A5CE83FD3C91DB66D5611731D3F5B61FBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ NHL 15 (2014) [PS3] [EUR] 3.40 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [Ru]
 ```bash
 magnet:?xt=urn:btih:D812AFECFF135CDF7514A64B8A714AFD7EC0078C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ Caladrius Blaze (2014) [PS3] [JPN] 3.40 [Cobra ODE / E3 ODE PRO ISO] [Unofficial
 magnet:?xt=urn:btih:24D432E8F09098153B491E995B3FC53585C70285
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ Zeno Clash 2 [XBOX360] [En/Ru] [XBLA] [Freeboot] (2013)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ Steredenn — это хаотический и динамичный космич
 magnet:?xt=urn:btih:6896867F1A345A17DFFAB58030D933DC44E8BEEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ MotoGP 15 — спортивный гоночный мото-симулятор,
 magnet:?xt=urn:btih:C7C0F758D6C93338632BF2401BC576956BC273A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ RAGE 2 (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.09 / DLC] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8405D5E0C7174E7D4ACF9C52D2763E13D235CADE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ Grand Knights History представляет собой пошаговую с�
 magnet:?xt=urn:btih:2E388F0DF2615CC74D6404F40E590D918BB2555E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ LEGO Harry Potter: Years 5–7 (2011) [PS3] [EUR] 3.55 [Unofficial] [Ru/En]
 ```bash
 magnet:?xt=urn:btih:00E0B923F676147CB16BE58154D5C1B675D7B79E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ Street Fighter III: Third Strike Online Edition — один из самых з�
 magnet:?xt=urn:btih:EFAF591C728290CC42202D2B3107482A1C4A225B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ Spider-Man 3 [PSP] [ENG] (2007)
 ```bash
 magnet:?xt=urn:btih:5B5234E69C3C9330C2292182EF387825053BF580
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +584,8 @@ Sid Meier's Pirates! (2005) [Xbox] [RegionFree] FreeBoot [Unofficial] [Ru]
 magnet:?xt=urn:btih:AD487258D88FC014C2526BB23CF094B42B8DAFF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ Dreamfall: The Longest Journey, обладатель нескольких при
 ```bash
 magnet:?xt=urn:btih:FE593BA4CF2BF05257A2726C8C186385F59AB209
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ Baldur's Gate: Dark Alliance - к оригинальному Baldur's Gate пр�
 magnet:?xt=urn:btih:6BE67F89FA08FE566BBC1D72BADCDA05E46555E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ Black (2006) [Xbox] [RegionFree] FreeBoot [Unofficial] [Ru]
 magnet:?xt=urn:btih:74424BCD3373E692B2ED6D0CD47FABE64FA5A909
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ Cars 3: Driven to Win (2017) [PS3] [USA] 4.21 [Repack] [Multi]
 ```bash
 magnet:?xt=urn:btih:D831D4F93F3F6764AA32A9D01C2413B1D1446450
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

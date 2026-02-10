@@ -22,6 +22,8 @@ Landfall - The Turning Point (2020) [FLAC|Lossless|image + .cue] <Melodic Hard R
 magnet:?xt=urn:btih:186491B33C870ABCD70B30A6B36B67098B5FE255
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:186491B33C870ABCD70B30A6B36B67098B5FE255
 magnet:?xt=urn:btih:B5AECD4DEC7C076E1AC27B2DAC4858748C5D21FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ DLNA медиа-сервер, позволяющий передавать мул
 magnet:?xt=urn:btih:58CD89829FA6B222FF6CD673055FF7B4F16B9194
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:58CD89829FA6B222FF6CD673055FF7B4F16B9194
 magnet:?xt=urn:btih:4191F4077A554E152ED0F283EF25E26A28F2116C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:4191F4077A554E152ED0F283EF25E26A28F2116C
 ```bash
 magnet:?xt=urn:btih:DEA69436D501792B73556BBCEC09340A0B9C46EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ VA - Hit News Vol. 2/95 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, It
 magnet:?xt=urn:btih:4D952D40B42B2B5FE500170ED6C1B208BE498DC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:4D952D40B42B2B5FE500170ED6C1B208BE498DC6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ VA - After Work Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:CFAFF94F771ED3D8AFB8C5E0C1C07FB7C7201196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:CFAFF94F771ED3D8AFB8C5E0C1C07FB7C7201196
 ```bash
 magnet:?xt=urn:btih:35AD1F5006FB031BB1169E71F28F8F1128D023D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:35AD1F5006FB031BB1169E71F28F8F1128D023D5
 magnet:?xt=urn:btih:A421237A1FF0FF8969AA09268C691E264EC7658D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:A421237A1FF0FF8969AA09268C691E264EC7658D
 ```bash
 magnet:?xt=urn:btih:5AFC6FE6C95906DE508FF8A49DB01135249398DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ All the Cold - To the Emerald Land (2020) [MP3|320 Kbps] <Instrumental Music, At
 magnet:?xt=urn:btih:9AF4FA46482B1ADF33D455742B3B286956D39E98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:9AF4FA46482B1ADF33D455742B3B286956D39E98
 ```bash
 magnet:?xt=urn:btih:9495A8824F79FFF049BFECE07354C23D05D233CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:9495A8824F79FFF049BFECE07354C23D05D233CB
 magnet:?xt=urn:btih:FADACF33034DD482041EBAD4E4D8239733FC18E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:FADACF33034DD482041EBAD4E4D8239733FC18E4
 magnet:?xt=urn:btih:F2143BFE2D4BC02EF99E7FBFB0EA3B874FDAF37F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:F2143BFE2D4BC02EF99E7FBFB0EA3B874FDAF37F
 ```bash
 magnet:?xt=urn:btih:75616E38D251A85B032C12320C55FFBA276B1BAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ Lothloryen - Principles Of A Past Tomorrow (2015) [FLAC|Lossless|image + .cue] <
 magnet:?xt=urn:btih:91BE839380D4CFFB54428900E4F6EB7B3ADFFEB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ Top Of The Pops 70s (vol.2) (2009) DVDRip
 magnet:?xt=urn:btih:AB9C2C05C2A11242E83CF6D0C19277ECFCA2DA79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:AB9C2C05C2A11242E83CF6D0C19277ECFCA2DA79
 ```bash
 magnet:?xt=urn:btih:70E95157F489E02AE553B4CDAB5A52675B67B5D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ magnet:?xt=urn:btih:70E95157F489E02AE553B4CDAB5A52675B67B5D1
 magnet:?xt=urn:btih:5C85594FC487CB9DD1CDAA46FF74DFE7912CBC9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:5C85594FC487CB9DD1CDAA46FF74DFE7912CBC9E
 magnet:?xt=urn:btih:E1040058547FCF26854A1AD56390B68FC571EE7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:E1040058547FCF26854A1AD56390B68FC571EE7B
 ```bash
 magnet:?xt=urn:btih:946C399A31C4039829A36B6B77AA346DABA75FC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +617,8 @@ BELOFF [dp] 2021.12.3
 magnet:?xt=urn:btih:96ED797F9260385C9DE860A40A03917D91A327D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +644,8 @@ magnet:?xt=urn:btih:96ED797F9260385C9DE860A40A03917D91A327D0
 magnet:?xt=urn:btih:C6A10A0BC440E27EB2633E86FF1A7D2ABDD40630
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ magnet:?xt=urn:btih:C6A10A0BC440E27EB2633E86FF1A7D2ABDD40630
 ```bash
 magnet:?xt=urn:btih:1BBA0610CE583A55B3064BB6C02F29D0DCD74F2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +704,8 @@ Chevelle - Stray Arrows - A Collection Of Favorites (2012) [MP3|320 kbps] <Alter
 ```bash
 magnet:?xt=urn:btih:0DBE5F1F5F6ABE83FEC3E7FBB026928F18EFF40B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

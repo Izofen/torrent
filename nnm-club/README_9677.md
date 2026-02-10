@@ -22,6 +22,8 @@ Sarah Schachner - Call of Duty: Modern Warfare (Original Game Soundtrack) (2019)
 magnet:?xt=urn:btih:D417652B9660B10B1C04C8A3DEE412FB0549DBCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:D417652B9660B10B1C04C8A3DEE412FB0549DBCD
 magnet:?xt=urn:btih:3E7D6AC4ED2D9DB8C196FA86135AFE1AF34CB96D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:3E7D6AC4ED2D9DB8C196FA86135AFE1AF34CB96D
 magnet:?xt=urn:btih:D3AC8D1480AC2B1AE77CFF21BC50A60465F0B488
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ NG. Осушить океан / Drain the Oceans (2018) WEB-DL [H.264/1080p] (1 
 ```bash
 magnet:?xt=urn:btih:DEAA4ECDBCBADE7288D61CC2432020D9E8AFBA52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:DEAA4ECDBCBADE7288D61CC2432020D9E8AFBA52
 magnet:?xt=urn:btih:C8716CD2A9AEA946CE429C08A3D88835E21D85AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Rebel Cops — спин-офф This Is the Police, целиком посвяще
 ```bash
 magnet:?xt=urn:btih:E6ACF1A7BF9CC298CA774E7F38C04A875BA9BA40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:E6ACF1A7BF9CC298CA774E7F38C04A875BA9BA40
 magnet:?xt=urn:btih:120B50629705B75002F38FFA84E1863044B6196B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:120B50629705B75002F38FFA84E1863044B6196B
 ```bash
 magnet:?xt=urn:btih:70CE93B1B669397EB1E8A839C8262DA2E7260969
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:70CE93B1B669397EB1E8A839C8262DA2E7260969
 magnet:?xt=urn:btih:0391231E823A3A68A11911D5078BE79E87DA82F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:0391231E823A3A68A11911D5078BE79E87DA82F0
 ```bash
 magnet:?xt=urn:btih:A459697D43E400AD1FA5622E27870B6108A8E813
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:A459697D43E400AD1FA5622E27870B6108A8E813
 magnet:?xt=urn:btih:5B1D05C79FED7AA565A389B59C8D011CE10CF607
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:5B1D05C79FED7AA565A389B59C8D011CE10CF607
 ```bash
 magnet:?xt=urn:btih:0A99409D198AE45204F8F02CA4257AF7587AD724
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:0A99409D198AE45204F8F02CA4257AF7587AD724
 magnet:?xt=urn:btih:068EE01A3E91338D47F6ABE500D78E6320F8552E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:068EE01A3E91338D47F6ABE500D78E6320F8552E
 ```bash
 magnet:?xt=urn:btih:9CC29A8749D0CC39EB97CD778B817F82F74ACA5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:9CC29A8749D0CC39EB97CD778B817F82F74ACA5B
 magnet:?xt=urn:btih:810349DE501D0A0A9E2F004B505469889BB75F87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Advanced SystemCare — программный пакет, содержащий 
 ```bash
 magnet:?xt=urn:btih:7BF5659631F819089B6BEEA2EE500EEC7042FC50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:7BF5659631F819089B6BEEA2EE500EEC7042FC50
 magnet:?xt=urn:btih:5BD2C047A5804041335D977CDD5648CFD2DFD748
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:5BD2C047A5804041335D977CDD5648CFD2DFD748
 ```bash
 magnet:?xt=urn:btih:C058FDE4E9654108D17278528C31A5C8D0E1BC14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:C058FDE4E9654108D17278528C31A5C8D0E1BC14
 magnet:?xt=urn:btih:BE4EFF3933449C27EC1CDD07D27F4B5428612B0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Steel Rats (2018) [Ru/Multi] (1.0/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:718EA221A9B2E20D128AE6A1D632F61159329EED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Icecream Ebook Reader Pro 5.19 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:CBC29ED4AFB4405FD9791EE14CD10B54FAA2EEF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Alice Cooper: Theatre of Death - Live At Hammersmith (2009) [1080i] Blu-Ray
 magnet:?xt=urn:btih:4652155C06F3ABFDDC60D9807763E26FC415C514
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Imelda May - Mayhem (2010) [FLAC|Lossless]<Rockabilly/Rock'n'Roll>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ Sonny Rollins & Co. feat. Jim Hall - The Bridge: Complete 1962 Sessions (2013) F
 magnet:?xt=urn:btih:48291053F1D1F7DFB5436C412FCE54750E0C953A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ USM (United States Of Mind) - Silver Step Child (2000) [FLAC|Lossless|image + .c
 magnet:?xt=urn:btih:843709A13914D5BEE3B296E672C0EE2E54C9AF42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:843709A13914D5BEE3B296E672C0EE2E54C9AF42
 ```bash
 magnet:?xt=urn:btih:CBA5CEB28DFA117A09ABC8CB1E2D5A88E823D39E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

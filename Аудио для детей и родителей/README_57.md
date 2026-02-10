@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:E3E3D2C7FB99F8719941D2A073552EDE6CF32941
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:E3E3D2C7FB99F8719941D2A073552EDE6CF32941
 ```bash
 magnet:?xt=urn:btih:A67F4E6FF10C6EB8DE7320E211F92C0BF25A63F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:A67F4E6FF10C6EB8DE7320E211F92C0BF25A63F1
 magnet:?xt=urn:btih:5A0F3734AA2B1C8C423F1E30F02E25EE77495B32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:5A0F3734AA2B1C8C423F1E30F02E25EE77495B32
 ```bash
 magnet:?xt=urn:btih:AE8FECC17D7EF1A88FE0B7D5B4379E3AA3A2F07E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:AE8FECC17D7EF1A88FE0B7D5B4379E3AA3A2F07E
 magnet:?xt=urn:btih:BAB2A3FB52C6508A318F86966DF1F6ED13FCC5FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ VA - Disney's - Family Christmas - Collection (2003) [MP3|320 kbps]<Детски
 magnet:?xt=urn:btih:FAE73B9D580B5B300A6FD7D89C5857B1A49FCDBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:FAE73B9D580B5B300A6FD7D89C5857B1A49FCDBD
 ```bash
 magnet:?xt=urn:btih:5228545E50F439A298D447401B292C287388AE2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:5228545E50F439A298D447401B292C287388AE2D
 magnet:?xt=urn:btih:F21B6E6C2610BAED6080F2EACDD2DEE8A6F083CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ VA - Лучшие детские песни (старые и новые) (2015) 
 ```bash
 magnet:?xt=urn:btih:CFE452511D359706397B2EC9B8014E1319360876
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ VA - Песни для малышей. Зимушка-Зима (2002) [MP3|256 k
 magnet:?xt=urn:btih:847C02A3C03A653DDCEC239A42BE2ADC4403B987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ magnet:?xt=urn:btih:847C02A3C03A653DDCEC239A42BE2ADC4403B987
 magnet:?xt=urn:btih:FAFCFE08E54DF00BD0E62FAC440665742CB77A90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:FAFCFE08E54DF00BD0E62FAC440665742CB77A90
 ```bash
 magnet:?xt=urn:btih:6C914CE79809F1520F214BF3AA27B3D4F5765E2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -330,6 +354,8 @@ Raimond Lap - 2 albums (2004, 2005) [MP3|320 кб/с]<Classical, Instrumental, N
 magnet:?xt=urn:btih:6C1F7AE35F69BB22A87C99EBF3434D1958B14A0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ magnet:?xt=urn:btih:6C1F7AE35F69BB22A87C99EBF3434D1958B14A0A
 ```bash
 magnet:?xt=urn:btih:1C5CF48DFD0EE7DE4B7A3ECF6403B21A6C3F3A1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +412,8 @@ VA - Новогодние Детские Песни (2013) [MP3|192 кб/с]<Д�
 magnet:?xt=urn:btih:F2F0AB5D468CA58355A008717A71042855A801E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +441,8 @@ VA - Чижик-Пыжик. Песни для всей семьи (2012) [MP3|32
 magnet:?xt=urn:btih:6A714724E1D052F5C5BDDDD16B5320AC388786D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +466,8 @@ magnet:?xt=urn:btih:6A714724E1D052F5C5BDDDD16B5320AC388786D8
 ```bash
 magnet:?xt=urn:btih:F78CA18C25CA12692F74B71335A23A24DB5BFE10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +496,8 @@ magnet:?xt=urn:btih:F78CA18C25CA12692F74B71335A23A24DB5BFE10
 magnet:?xt=urn:btih:6DC39CEA3C967E43E47628FBF01CEF15FAEC2B8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +522,8 @@ magnet:?xt=urn:btih:6DC39CEA3C967E43E47628FBF01CEF15FAEC2B8E
 magnet:?xt=urn:btih:37A1EB3EE5B3899D24ADAB904B9796631000A3A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +547,8 @@ magnet:?xt=urn:btih:37A1EB3EE5B3899D24ADAB904B9796631000A3A8
 ```bash
 magnet:?xt=urn:btih:3C76095E4A6B26ADBCEE2C038B935C142E0FBEC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +577,8 @@ VA - Песенки-веселушки (2012) [MP3|320 kbps] <детские п�
 magnet:?xt=urn:btih:1F5E49642E027F433B90331EE4A211B2960DB12B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +606,8 @@ VA - Осенних песен листопад... (2015) [MP3]<Детские �
 magnet:?xt=urn:btih:F2CF4FBDD874F351B6E90940A0C571F593850C17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +631,8 @@ magnet:?xt=urn:btih:F2CF4FBDD874F351B6E90940A0C571F593850C17
 ```bash
 magnet:?xt=urn:btih:71A95F28913A5AC2FD285266DE6C109A8274EBF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +658,8 @@ magnet:?xt=urn:btih:71A95F28913A5AC2FD285266DE6C109A8274EBF4
 ```bash
 magnet:?xt=urn:btih:4631B57BBA23427E5342EBCE724A0990362BFBF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +688,8 @@ magnet:?xt=urn:btih:4631B57BBA23427E5342EBCE724A0990362BFBF0
 magnet:?xt=urn:btih:946E73643C3C327C11362878F7AAA0315E6CF781
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +713,8 @@ magnet:?xt=urn:btih:946E73643C3C327C11362878F7AAA0315E6CF781
 ```bash
 magnet:?xt=urn:btih:EA53E7BF2FA7D070DF1151DE62F6CE958A1AF293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

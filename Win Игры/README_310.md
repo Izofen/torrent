@@ -19,6 +19,8 @@ Reflections of Life 15: A Shattered Heart (2025) [En] (1.0) Unofficial [Collecto
 magnet:?xt=urn:btih:0AE36B55C390CF974A513C5DF19789A7ACAB9D91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Quake II - знаменитый шутер 1997 года с видом от пе
 ```bash
 magnet:?xt=urn:btih:AD8EBD2D1DEDC1D4CE419A7FA910EA6DCEFB4876
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Sandman / Истории шёпотом: Песочный человек (P) [Ru
 magnet:?xt=urn:btih:E57DFDE04EB8025D44637577734380AAC635B463
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Nancy Drew: Legend of the Crystal Skull / Нэнси Дрю: Легенда о �
 ```bash
 magnet:?xt=urn:btih:511A30F94D6DD884C5F4676890E320CAAEF0FEA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Final Cut: Death on the Silver Screen. Collector's Edition (P) [En] 2012
 magnet:?xt=urn:btih:E1148E7169B4F5E334ADDAC4B64B69D3A5647A2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Flux Family Secrets: The Rabbit Hole / Секреты семьи Флакс 2. �
 ```bash
 magnet:?xt=urn:btih:5629717C7F903056D8B05D2D6CAC08CC9E964A56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Kingdom Chronicles Collectors Edition / Как Джон Непоседа спа�
 magnet:?xt=urn:btih:A349A2A6184D658D4B4BB36DFBCBFB7287E827C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Dead City / Город мертвых (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:C9C8FFB3D434571AE6A6543AF437823B3D5DCC7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Tesla's Tower - The Wardenclyffe Mystery (P) [En] 2012
 magnet:?xt=urn:btih:A2DCB7963DC96DDB49722978142CF54C06897229
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Spirit Walkers - Curse of the Cypress Witch (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:E70DD59880AC8EC93AF27409334ACAF685BAAA4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Crusader Kings 2 [Ru/En] (RePack/1.05e) 2012 | R.G. Catalyst
 magnet:?xt=urn:btih:D4004645071869987F625F503A2E11103EC42425
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Agricultural Simulator: Historical Farming (RePack) [Multi3/-] 2012 | Sash HD
 ```bash
 magnet:?xt=urn:btih:E59B3CDBC0949777AAF12F26C492A1FB06ACADB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Reentry - это симулятор космических полётов, ос�
 magnet:?xt=urn:btih:E870C43FBE33DD7222C94AAA9D8F93D9B500BC99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Reentry - это симулятор космических полётов, ос�
 ```bash
 magnet:?xt=urn:btih:D53F3AC492B13D3C4AD4AC011E2D68F8F0EEDDD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Rue Valley (2025) [Ru/Multi] (1.0.0v2) Repack Other s [Digital Deluxe Edition]
 magnet:?xt=urn:btih:F5BD2314E1D76CC75D8EF5F8DF429DDB9D237ED9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Oxygen Not Included (2019) [Ru/Multi] (700386/dlc) Repack Necros [Complete Bundl
 ```bash
 magnet:?xt=urn:btih:85C7B17CBABB28CA0E8D615473C1A7DB1C00080A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Haunted Hotel II: Believe the Lies / Проклятый отель 2. Паути
 magnet:?xt=urn:btih:DEF1D8327923802D20BEF2A4FD294B56C89B4E9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Outlaws + Handful of Missions: Remaster (2025) [Multi] (1.1.1748) License GOG
 ```bash
 magnet:?xt=urn:btih:7928C2D49E0FB6A0B3BEA3C7ED3A0ED4FAAC762B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Iron Harvest - это стратегия в реальном времени (RTS
 magnet:?xt=urn:btih:305708CE3DC964AC9019E24AF18AD6A354046E87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Hearts of Iron IV (2016) [Ru/Multi] (1.17.0.1/dlc) Repack Necros
 ```bash
 magnet:?xt=urn:btih:64D71A78718F07E80B5048A22F6CE8C5C652482D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Onimusha 2 (2025) [Ru/Multi] (1.0.0.0/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:8D2F9157E43B0F8501A90BE2DAA58C7242EE5805
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Lonely Mountains: Snow Riders (2025) [Ru/Multi] (1.3.101.1763.0303/dlc) Repack F
 ```bash
 magnet:?xt=urn:btih:7DBCC66CAA41501227B1AE2E5E1DF835C8B16DA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Formula Legends отправляет вас в увлекательное пут
 magnet:?xt=urn:btih:A85047F7786A7EC2A325B16C0A8E6061F412A6D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Chicken Rush Deluxe / Куриная месть. Снова в деле (P) [Ru]
 ```bash
 magnet:?xt=urn:btih:D1C3563D620A2D95959A54C27881806BFA8D0E55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ Red Orchestra 2: Heroes of Stalingrad [Ru] (RePack) 2011 | R.G. Catalyst
 magnet:?xt=urn:btih:D71EA4CF8F9DAA5B59A7C052F5C9754A696FA94A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Defenders of Ardania – игра в стиле «tower defense», действ�
 ```bash
 magnet:?xt=urn:btih:AD2210F03F94C12E60EE303B168CC25401225E1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

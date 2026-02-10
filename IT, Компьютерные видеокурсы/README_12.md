@@ -22,6 +22,8 @@ QA.GURU, Артём Eрошенко, Aлексей Виноградов, Ром�
 magnet:?xt=urn:btih:9DCD83D7DD7F6DF15FC598F9F01B803D30C3143F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Alex Klimov | Основы Python для алготрейдинга (2023) WEB-D
 ```bash
 magnet:?xt=urn:btih:F45348A922D8D003DDC189A5B7120C50C020CAD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Udemy, Alexey Belov | Как пройти Junior Python собеседовани
 ```bash
 magnet:?xt=urn:btih:72B7B609514F5F19596DBB7C1ECFF39286F6E604
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Cамая интересная новость — GPT Store для создан�
 magnet:?xt=urn:btih:333A002FBFC6813181099660BA21A6CC4DD220A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ Ai-Centr, Роман Кумар Виас, Кирилл Макушкин | ChatGP
 ```bash
 magnet:?xt=urn:btih:73424D13D62FFE54B3D4F5EAEC1B45EC892F343B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -153,6 +163,8 @@ Stepik, Сергей Балакирев | Добрый, добрый Django с �
 magnet:?xt=urn:btih:19A76F7EE52E192602A05B1779B6DD3EE94C934E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ magnet:?xt=urn:btih:19A76F7EE52E192602A05B1779B6DD3EE94C934E
 ```bash
 magnet:?xt=urn:btih:161EE761C10E953C43D682A49D50DEEBC2BB261A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -207,6 +221,8 @@ magnet:?xt=urn:btih:161EE761C10E953C43D682A49D50DEEBC2BB261A
 magnet:?xt=urn:btih:F6B4FE17646F0BCB0025859AAAFB6DD9D34CF2B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -233,6 +249,8 @@ CyberYozh Academy, LastByte, Евгений Ивченков | Анонимно�
 ```bash
 magnet:?xt=urn:btih:97425BBE2C2F08FB2A502D35EF65EEB9674ACABF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +279,8 @@ magnet:?xt=urn:btih:97425BBE2C2F08FB2A502D35EF65EEB9674ACABF
 magnet:?xt=urn:btih:CA13892A103838098EFA81E9B797BF93D46E4C11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ Udemy, Elchin Jamalov | Windows Server 2016 (70-742) полный видеоку
 magnet:?xt=urn:btih:5137DB7DE3EFC49DAE795976A25D2C3FBC37DCA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +335,8 @@ Liveclasses, Павел Лебедев | PowerPoint: быстрый старт (
 ```bash
 magnet:?xt=urn:btih:F56A687BF8AA1E0D89D2E7FF2D6406AB63F69195
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +364,8 @@ Stepik, Глеб Михайлов | А/Б-тесты с Глебом Михай�
 magnet:?xt=urn:btih:9E9D4DEE3FDA40F61DD66488213B89B65A1BAA5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +389,8 @@ Mishkie, Артём Морозов | PowerPoint (2021) WEB-DL [AD] [RU]
 ```bash
 magnet:?xt=urn:btih:1FCF7D4DA58D82AD1EA1E3A43C9B03C515F72590
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +417,8 @@ Gromov-PLC, Дмитрий Громов | HMI Язык C++ в среде Qt Crea
 ```bash
 magnet:?xt=urn:btih:4E929FE349DB8285B659741FCC1A4DCC4554E975
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +447,8 @@ Udemy, Elchin Jamalov | Windows Server 2016 (70-741) полный видеоку
 magnet:?xt=urn:btih:00E571D40DD396A4ACCB5AE95943D27684C0A916
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +476,8 @@ magnet:?xt=urn:btih:00E571D40DD396A4ACCB5AE95943D27684C0A916
 magnet:?xt=urn:btih:EF8D4ED65F1048AA7020DBF77B57B18545837FD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +502,8 @@ Go широко используется в индустрии, особенно
 ```bash
 magnet:?xt=urn:btih:4E68882AF6C94F9EAD5F0467B8A38DFF82C6E009
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +530,8 @@ JSX. Это — синтаксическое расширение JavaScript, к
 ```bash
 magnet:?xt=urn:btih:724E3F1D1C1D114E410BD9BA42D8A710C2436D74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +560,8 @@ magnet:?xt=urn:btih:724E3F1D1C1D114E410BD9BA42D8A710C2436D74
 magnet:?xt=urn:btih:F10203A7AAD49E51F6165ABF29D61E38819254E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +588,8 @@ magnet:?xt=urn:btih:F10203A7AAD49E51F6165ABF29D61E38819254E3
 magnet:?xt=urn:btih:7FF16EA3DAC0F86105FE0B4520C10FD4CA750AAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +614,8 @@ Ardan Labs, Bill Kennedy | Ultimate Go: Software Design with Kubernetes (2023) W
 magnet:?xt=urn:btih:91F59AF494DBD7527BE69AC57E84721C4721293E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +639,8 @@ Udemy, David Nixon | Unreal Engine 5: The Intermediate Course (2023) WEB-DL [EN 
 ```bash
 magnet:?xt=urn:btih:8E60E206238FD09EE2BACCD1CE0FFE193FD58469
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +668,8 @@ GitHub Actions представляет собой средство автома
 magnet:?xt=urn:btih:12E249DE76EC0B6D2E434A520342812570F6A9EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +694,8 @@ magnet:?xt=urn:btih:12E249DE76EC0B6D2E434A520342812570F6A9EC
 magnet:?xt=urn:btih:DDF859413FAE11BF8A2BF59C85591F9908C719C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +719,8 @@ Udemy, Bogdan Stashchuk | CSS - Полный Курс по CSS (2024) WEB-DL [RU
 ```bash
 magnet:?xt=urn:btih:45028430A5505E5E058242FBCD085BB6BC4A8574
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

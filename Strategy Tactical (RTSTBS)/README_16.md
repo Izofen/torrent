@@ -19,6 +19,8 @@ Halo Wars (2017) [Ru/En] (20170605) Repack R.G. Механики [Definitive Edi
 magnet:?xt=urn:btih:C9A6449FF9BCC4268F58B00CD9D40753D7A0C39F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Ancestors Legacy – это историческая стратегия в ре�
 ```bash
 magnet:?xt=urn:btih:C24F7B65BE1F4E4AC753D4F1E9FE883BFB604706
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BATTLETECH (2018) [En] (1.0.3-280R/dlc) Repack Other s [Digital Deluxe Edition]
 magnet:?xt=urn:btih:637E997C5B312DB2CC44567ECB0ED6B1280B018B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Shadow Tactics - реалистичный тактический стелс-си
 ```bash
 magnet:?xt=urn:btih:A4179950C9F173C2CAC00D3EB4833B5990AE95B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Tanks vs Aliens (2017) [Ru/En/Ch] (5.6.1.24) License PLAZA
 magnet:?xt=urn:btih:B695085A9376056A9D60E9243474ED87E218DCD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Steel Division: Normandy 44 — это тактическая стратегия
 ```bash
 magnet:?xt=urn:btih:4B5E919CF8CD36ECC697CC43E6E27B0CE4E567C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Phantom Doctrine — шпионская пошаговая стратегия-т
 magnet:?xt=urn:btih:29239CCD398050E727D098B320809BE2B49D05AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Crookz - The Big Heist (2015) [Ru/Multi] (24360) License GOG
 ```bash
 magnet:?xt=urn:btih:48F1275B20D4542F8E44B2EFB6DF6E1404325306
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Battlestar Galactica Deadlock (2017) [Ru/Multi] (1.2.70/dlc) License CODEX
 magnet:?xt=urn:btih:3C6063C77C9F479B9D8BF04A68C8EC181B1A1430
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Battletech - это пошаговый ролевой экшен с робота
 ```bash
 magnet:?xt=urn:btih:F21577865FCE1CF97E8910AFF58FB34CBCD6BAFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Blackguards (2014) [Ru/En] (1.7.23231/dlc) Repack =nemos=
 magnet:?xt=urn:btih:65259EAD432D8F49D164C34062857A6250266676
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Call to Arms – тактическая стратегия в реальном �
 ```bash
 magnet:?xt=urn:btih:D117A865FD4478BF6AB5B2285E3EFE8A3CBD0CE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Blackguards 2 - это продолжение пошаговой стратег�
 magnet:?xt=urn:btih:4A9929B5ABF6AEC4938DE9D876D89FB8CD4FE4CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Hard West (2015) [Ru/Multi] (1.4.160303.1235/dlc) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:B40688AA057A3FD07CE0D6298B164FB681647390
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Men of War: Assault Squad / В тылу врага 2: Штурм (2011) [Ru/Mult
 magnet:?xt=urn:btih:69EAC4714CF024F66A1E6899F7916D0D9F4DC231
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Attack of the Earthlings (2018) [Ru/Multi] (1.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:E3D1101207EF266380A21C12294AF68DFA121BCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Door Kickers – это инновационная стратегия в реа�
 magnet:?xt=urn:btih:1A201840EDCCE33CC0E96926E57FE1C0DBD7BC43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Skulls of the Shogun (2013) [Ru/Multi] (1.1.0.0) SteamRip R.G. Игроманы
 magnet:?xt=urn:btih:3B9B401EBEB0714AAC757FAE00CE4D2B1D52BCF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Cossacks 3 / Казаки 3 (2016) [Ru/Multi] (2.2.3.92.6008/dlc) License PLAZA 
 ```bash
 magnet:?xt=urn:btih:ED0361028A08FAC1C4301271F8B09B1E53EB0151
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ SteamWorld Heist (2016) [Ru/Multi] (2.0/b.2.1.2.0/dlc) Repack Other s
 magnet:?xt=urn:btih:2CE83C7012C1312A69689E10463450CE6641A94C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ Z: The Game (2014) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:2DDEAEBDF9901E86594CD1A76DEBD861BEA5ADE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ Attack of the Earthlings (2018) [Ru/Multi] (1.0.4) Repack Other s
 magnet:?xt=urn:btih:B3A9D5A13C07A7ACD9889C401766AA91E26D1F60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Company of Heroes 2 (2013) [Ru/En] (4.0.0.21725/dlc) Repack R.G. Механик�
 magnet:?xt=urn:btih:6E5FB7468F1A0CB018B8D0F952E56E0EDED3CA14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ Army General - пошаговая стратегия, посвященная с�
 ```bash
 magnet:?xt=urn:btih:BE8E21E06A4F1D105EC763D398D3EF1D7D1CBCD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ Brink of Extinction – вызывающая игра жанра tower defence, 
 magnet:?xt=urn:btih:ECD0851819A633662A0E9FC2237AA0F55CFA1794
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Sudden Strike 4 (2017) [Ru/En] (1.15/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:408FD183115B8ECD422D5909BD44E8292829A18A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

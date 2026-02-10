@@ -19,6 +19,8 @@ Advanced Port Scanner 2.5.3869 [Multi/Ru]
 magnet:?xt=urn:btih:029BB1E3E1E2B33809BB97F0129EDED027A1A5FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Total Mail Converter надежная программа для конверти
 ```bash
 magnet:?xt=urn:btih:96D6F92BBCC790880073527532BF705684038DE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Plex Media Server – это приложение, которое позволя
 magnet:?xt=urn:btih:A2173FE90475A0138B9053F1D0E4F5AA4FDE900E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Change MAC Address - весьма необычная утилита, с помо
 ```bash
 magnet:?xt=urn:btih:001EEB7B763EE0C4F407D9EB77AC1186121D2C3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ MEGA (файлообменник) - безопасный сервис облач
 magnet:?xt=urn:btih:D81C81662CA8ED0743654BC17EE959F6384A65C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ WeChat — это бесплатное приложение для обмена 
 ```bash
 magnet:?xt=urn:btih:C989AF2BBF3E8C56AE202643649F05D579471D9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ YouTube Downloader - простая и легкая в использовани�
 magnet:?xt=urn:btih:D5031CF907B4D9F0B968DA2E3D374122DA768F70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:7B3F7A4543E694BE985CCD60DF8DBAF5EF7EEF4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Elcomsoft Cloud Explorer – удобный инструмент для скач
 magnet:?xt=urn:btih:ADA4366CD5301593BC10132380A5BB7D0CABDBFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Air Live Drive монтирует облачные диски в качеств�
 ```bash
 magnet:?xt=urn:btih:C3A95EAAC8847D9FF97771FBD96936384F0C8E70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ YouTube Downloader - простая и легкая в использовани�
 magnet:?xt=urn:btih:04DCEF9F336095BC084689150EEDC490A12C454E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ AdvOR - это клиент для сети Tor, предназначенный 
 ```bash
 magnet:?xt=urn:btih:9B5D69EC70522635F1D577A473FAF609CB01128D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ SysLog Collector -программа для удаленного сбора, с�
 magnet:?xt=urn:btih:506D1C7580939146320FEFFC0E28BE1DF255BF3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ NetworkTrafficView - удобный инструмент сетевого мон
 magnet:?xt=urn:btih:3384C05E5EFEDF6E5F51B86BBAF238FEFA8B5122
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ SmartSniff 2.25 Portable + Driver [Ru/En]
 ```bash
 magnet:?xt=urn:btih:9271E65304B8F75C38D25962B175F48CDDA55673
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:9271E65304B8F75C38D25962B175F48CDDA55673
 magnet:?xt=urn:btih:DC0BD901D3DC199D5CE9600500E3881BC8DF487F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ VideoCacheView 2.97 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:D69B9082176AD08444D3716A95C8CB8189EF5C2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Network Administrator - система для управления компью�
 magnet:?xt=urn:btih:9104A18990DECFED35F350007A91D7351EFE722B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ TotalD Pro — универсальный менеджер загрузок, к�
 ```bash
 magnet:?xt=urn:btih:B396124251B49F53E8312D1F8064415526D05CCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ Becky! Internet Mail - это почтовая программа японско
 magnet:?xt=urn:btih:4659EE8C215514F225477311CAE1D9831EF50CDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ Google Earth Pro 7.3.2.5495 Portable by PortableAppZ (x86/x64) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:28BC5EFC77BF2E78E6FCE9038DDB4171432EC50A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ Incomedia WebSite X5 — программа для создания веб-са�
 magnet:?xt=urn:btih:DB4E76CAB60309B8DCF1BC563D9E26C0ED33A66F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ GreenBrowser 6.9.1223 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:03302030E4E98A076747BC49C04654D65781D835
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ Betterbird лучше Thunderbird по трем причинам: он соде�
 magnet:?xt=urn:btih:AAAD541B7A51AA3EDA6749170818C88EA5C85E97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Vuze (Azureus) — свободное кроссплатформенное пр�
 magnet:?xt=urn:btih:434632354C6F8AC93607643FE15B16A19B6533D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:434632354C6F8AC93607643FE15B16A19B6533D5
 ```bash
 magnet:?xt=urn:btih:D7D60E66F0616C5660EC97E73B1A2FD0AA03E12C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

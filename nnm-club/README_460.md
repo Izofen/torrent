@@ -22,6 +22,8 @@ Fearless Scoundrels - Too Damn Blue (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 magnet:?xt=urn:btih:6FBAE2792AEC38B1A40153C01CFD97111673A887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:6FBAE2792AEC38B1A40153C01CFD97111673A887
 ```bash
 magnet:?xt=urn:btih:A09FD4B5CE79EC16DB11424B02185D944EA68A13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Robert Sidney Smith - 12 Bar Bob (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:091049DB674CCEA4C339883ECB21FAE2802CDC1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Ed Wills - Comin' Home (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:2421B71290BF6A19D409E65BBA590AAF0016F7F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ Victor Feldman - The Arrival of Victor Feldman (1958) 1998, Original Jazz Classi
 magnet:?xt=urn:btih:4B32F7FBD95E4269BEDA1843CFC99A9869B60ADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ Depravity Brothers - The Enemy Within (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 magnet:?xt=urn:btih:3F00EE8B8FAD37F955B9879E4270F89249B5BB15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ OVA к аниме Kaiju No. 8Производство: студия Production I
 magnet:?xt=urn:btih:B51BF3D5F502E2BF89D9DC10654ED80C20E051C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ magnet:?xt=urn:btih:B51BF3D5F502E2BF89D9DC10654ED80C20E051C4
 ```bash
 magnet:?xt=urn:btih:FCB879894E000CBEE07033416A1CF463371E5C90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:FCB879894E000CBEE07033416A1CF463371E5C90
 magnet:?xt=urn:btih:D8E29B608F85098E98C2148D054FA08FB70FD6FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ magnet:?xt=urn:btih:D8E29B608F85098E98C2148D054FA08FB70FD6FE
 magnet:?xt=urn:btih:1633544785069581D5C3FA23D1355450B8255AA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:1633544785069581D5C3FA23D1355450B8255AA1
 ```bash
 magnet:?xt=urn:btih:BC20A6AFC92DE6E65283177B650C6C097E68BAEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:BC20A6AFC92DE6E65283177B650C6C097E68BAEE
 magnet:?xt=urn:btih:9DD82F37BE87186C2228AA8EC965B4BC0EF0E000
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ VA - Intimate Hours - Best Chillout for Late Evenings (2025) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:318FBD4883B3FEAF1F0C248006162288A9CBD6BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +383,8 @@ Big Wreck снова начали выпускать новую музыку ( 
 magnet:?xt=urn:btih:4C1DB891FAFCBDBF5BB5438068941DB9FC9B593D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ magnet:?xt=urn:btih:4C1DB891FAFCBDBF5BB5438068941DB9FC9B593D
 magnet:?xt=urn:btih:879E655C21F852387A2109200D994D77B932FDE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ dxRevive — это универсальный плагин для восста�
 ```bash
 magnet:?xt=urn:btih:9A63EBFC6EE7B0FD947FB18049DFBC7BAE285FBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +464,8 @@ magnet:?xt=urn:btih:9A63EBFC6EE7B0FD947FB18049DFBC7BAE285FBF
 magnet:?xt=urn:btih:4ADD584433AF052760F794E5E066555887F55CDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +490,8 @@ MultiTimer - это простое и универсальное таймер-п
 magnet:?xt=urn:btih:DC0FDF08F0F9A22E116963C23FE82F7D0FC988AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:DC0FDF08F0F9A22E116963C23FE82F7D0FC988AE
 ```bash
 magnet:?xt=urn:btih:5E2D35456DDBFF129F8F2AF9E80359CBDBA3A210
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:5E2D35456DDBFF129F8F2AF9E80359CBDBA3A210
 magnet:?xt=urn:btih:05A2AEDE28A9AE28993276D48A08F60CB7376152
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ magnet:?xt=urn:btih:05A2AEDE28A9AE28993276D48A08F60CB7376152
 magnet:?xt=urn:btih:C1896B15DDC211AF36E10ADE551827DC99ECA33B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ Obliterate начинался как фильтр, но в коде была о�
 magnet:?xt=urn:btih:F41C79434A2968102DB9C2ACBA5EB3AEB1DD392D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ magnet:?xt=urn:btih:F41C79434A2968102DB9C2ACBA5EB3AEB1DD392D
 ```bash
 magnet:?xt=urn:btih:A05C1FA0C94BD8D45E95A1C910F7D0630F651CDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ magnet:?xt=urn:btih:A05C1FA0C94BD8D45E95A1C910F7D0630F651CDA
 magnet:?xt=urn:btih:0DDFE265659958759BCA7ECADB86460C213AFE0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ magnet:?xt=urn:btih:0DDFE265659958759BCA7ECADB86460C213AFE0A
 ```bash
 magnet:?xt=urn:btih:9E19359E04FA6C07B8C9EBCE337061E14321A74F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +706,8 @@ Pandora's Box - Lunacy (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:8E9D31BCA9FFDF62395E54A62E262DB62D996EBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1577366   (356759) от 18.09.2022
+
+VA - Songs for the Car (2022) [MP3|320 Kbps] <Pop, Rock, R&B, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cher - Believe
+02. Coldplay - Paradise
+03. Gorillaz - Feel Good Inc
+04. Missy Elliott - Get Ur Freak On(   Читать дальше...   )Жанр: Pop, Rock, R&B, DanceПродолжительность: 02:58:49 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:476EBBDD84500AC670105B11A2A60F32FB39021A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577056   (356768) от 18.09.2022
 
 VA - В машине с музыкой Vol.302 (2022) MP3|320 Kbps |<Pop, Dance, Rock, Shanson, Rap>
@@ -21,6 +50,8 @@ VA - В машине с музыкой Vol.302 (2022) MP3|320 Kbps |<Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:9D80432012300C429F546D23EE3773B05BF76DF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Зайцев нет. Лучшие Hовинки Ноября (2016) [MP3|16
 magnet:?xt=urn:btih:1B400619897378BF6E152B5F69E0151DACCC8062
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Зайцев.Нет - Самые Горячие Новинки (2016) [MP3|
 ```bash
 magnet:?xt=urn:btih:60EC44A3A6A769AF3864F0D2B7EDFE4D9B3D95D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - В машине с музыкой Vol.304 (2022) [MP3|320 Kbps] <Pop, Dance
 magnet:?xt=urn:btih:2988831756F00D2FD62F11660F9A697066BEEA31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Top Chart радио DFM: ноябрь (2016) [MP3|320 Kbps] <House, Club, 
 ```bash
 magnet:?xt=urn:btih:94EC40FC6F6962E2F0AEB238EC4CDFF04E3F7946
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Beatport Top 100 Deep House October (2016) [MP3|320 Kbps] <Deep House, Hous
 magnet:?xt=urn:btih:04E787C9DDD2B5F49DD6EDEC3AD7F3CC7076B670
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ CD 1 Styles Dance Floor
 ```bash
 magnet:?xt=urn:btih:4ECBF376D1D9384F4A874008BA892B410DC823F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Record Super Chart #461 (2016) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:FA2D773426EB1F2D8A132ABB3C9C45861A0A84E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Beatport Trance Pack 11.11 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance,
 ```bash
 magnet:?xt=urn:btih:DE83C8E72F6437E1D8E5DF18ABC554C48BDFB790
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Дискотека Казанова Старые Песни По Новом
 magnet:?xt=urn:btih:DCE33DBA78D373CA45BBF0D4FCF88DC740DA9184
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Музыка нового дня (2006) Ридерз Дайджест, 3CD 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - The Treasure Of Illumina: Vocal Trance (2016) [MP3|320 Kbps] <Trance, Vocal
 magnet:?xt=urn:btih:44A549B037D625A045793F1E627D6E9C481381A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - Танцы до рассвета. Русский сборник от Хит
 ```bash
 magnet:?xt=urn:btih:AEEE3B7FE7D725731BA9C549379A5B32558AAD88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Для Тех, Кто Помнит! Русский Рок Vol.6 от Ovvod7
 magnet:?xt=urn:btih:8B15447E7AEBBB905502208D9ED046CC94768DF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +457,8 @@ VA - The Best World Ballads - 27 (2015) [MP3|320 кб/с]<Pop, Rock, Blues, R'n'
 magnet:?xt=urn:btih:356666C7544F6027B82426D365DACC0BCBD18CBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +482,8 @@ Linkin Park - In The End (2018) Cover, Remix [MP3|320 Kbps] <Trap, Dream House, 
 ```bash
 magnet:?xt=urn:btih:006875F63C699B631A0F17D0988220CA58ABA5DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +512,8 @@ VA - Громкие новинки месяца Vol.14 (2018) [MP3|320 Kbps] <Po
 magnet:?xt=urn:btih:61E9C7A869CE7C3FDCD083BECC1BCC03E2F5AD73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +537,8 @@ Technotronic - Pump Up The Jam (2018) Remix [MP3|320 Kbps] <Club, Dance, Rap>
 ```bash
 magnet:?xt=urn:btih:1E1C00252CE730DBE607D9C056F762CCDE886025
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +567,8 @@ Dance
 magnet:?xt=urn:btih:A255003509D3F01E6D294AB576DCA0F8879C368E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +595,8 @@ VA - Popular Hits Nation: Pop Slam Music (2019) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:C8215324E0FD2165F50B4B7A581A9D1D0F26FCC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +625,8 @@ VA - Essentials Dance House: October Select Mix (2019) [MP3|320 Kbps] <Dance Hou
 magnet:?xt=urn:btih:CAD2E135C8B920618C854604530099BA7D3CC97A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +653,8 @@ VA - Club Panorama: House Dance Party (2019) [MP3|320 Kbps] <Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:4F8E2A340E473D880E9315DD2EC568B95718B078
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +683,8 @@ VA - Car Audio. Мёд для твоих ушей (2015) [MP3|320 кб/с]<Deep,
 magnet:?xt=urn:btih:4CCA47951FD96B0F6C3658248072FD2DE4C32BFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +711,8 @@ VA - По волне моей памяти: Том 17 (Compiled by Виктор3
 ```bash
 magnet:?xt=urn:btih:B5469ACBEF2C962DB8CFBE822B2871DC14D5482D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,32 +741,7 @@ VA - По волне моей памяти: Том 16 (Compiled by Виктор3
 magnet:?xt=urn:btih:1630C15B116FA48850979973F322956300D98FCD
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178134   (358326) от 27.10.2017
-
-VA - Popular Dance 90s (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358326.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Aligator - Doggy Style
-002. In Colour - I Wanna Give It To You
-003. Cheyenne - The Money Man
-004. Waldo - Take Me Higher(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:679335A1D2F71939898A6CCF256A6CA836B4F332
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

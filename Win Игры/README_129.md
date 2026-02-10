@@ -19,6 +19,8 @@ Dread Dawn (2024) [Ru/Multi] (2024.11.17.1029) Repack Let'sРlay
 magnet:?xt=urn:btih:DBFF48AB42E4AB02E4804BCEB8E9A8F8618A65C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ ChessBase Mega Database 2025 - это ведущая шахматная база
 ```bash
 magnet:?xt=urn:btih:55D186D55F12D430C60BDCDAA8AD6BB2BE3F56E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Chess King - это идеальный инструмент для любого 
 magnet:?xt=urn:btih:A8761A5353925480B554657303CCBB988EA62928
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Fritz – одна из наиболее известных шахматных �
 ```bash
 magnet:?xt=urn:btih:8EC7D4A8309189B28D4C9F39F41A73824A392025
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Oregon Trail™ от Gameloft - такого The Oregon Trail™ вы еще
 magnet:?xt=urn:btih:60905001B947F561DBD6F6B24898348B405629D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ VED - это сюжетное RPG, сочетающее вручную нари�
 ```bash
 magnet:?xt=urn:btih:FB30AB8A5A2EC18D48C080FE9427F024EBE326EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Wolcen: Lords of Mayhem (2020) [Ru/Multi] (1.1.7.16.12/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:47ECE7B5C6CC3D75BFA78920CECE63E41C189F3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.0.6/dlc) Repack Decepticon [Master 
 ```bash
 magnet:?xt=urn:btih:E15A5D44961D22022A6702759670D146915FBF87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.6.596/dlc) Repack Let'sРlay [The One Wh
 magnet:?xt=urn:btih:F885B74B2DC2D83670E85A6124CB03DA599EB24D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Beyond The Darkness - это мрачная история, которая ок�
 ```bash
 magnet:?xt=urn:btih:7AF66DFF47474C7A6F3491B0D680EF41FE04CFA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Evil Awaits (2024) [En] (1.0) Scene Skidrow
 magnet:?xt=urn:btih:83B33324230EBDFA314982D2F8495213E28B77F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Inkulinati (2023) [Ru/Multi] (1.48.1.0/dlc) License GOG [Supporter Bundle]
 ```bash
 magnet:?xt=urn:btih:C9A35464297C808EFF70ABAC9FE086F53F0DE608
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.0.6/dlc) Repack dixen18 [Master Ass
 magnet:?xt=urn:btih:5F07CBA7BD4753396589D11A079F517C33DFE934
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ OTXO (2023) [Ru/Multi] (1.106) License GOG
 ```bash
 magnet:?xt=urn:btih:AB2F32AEE289FACF96B420FC4D560122BE77593F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Potion Permit (2022) [Ru/Multi] (1.5/dlc) License GOG
 magnet:?xt=urn:btih:B25401E4F3BBE418AD1C30DAA2ADB0D6E81886EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Dave the Diver - это казуальная приключенческая RPG 
 ```bash
 magnet:?xt=urn:btih:C2AAEC2B703087C6845B1B508A44FD236CB77AF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Beyond The Darkness - это мрачная история, которая ок�
 magnet:?xt=urn:btih:8D4085F7C3DB4BF2AA6E6B2A0BB8601E306450E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Beyond The Darkness - это мрачная история, которая ок�
 ```bash
 magnet:?xt=urn:btih:515782352BD11B471638C39036CFE92B176CC8F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ You Are Grounded (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:88349F02A16D226611E27685D68AE7B281D64B66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Aquarist - иммерсивный симулятор, позволяющий п�
 ```bash
 magnet:?xt=urn:btih:D607BF576C7C61624A758FAFA57E3909FAB7D508
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Green Hell (2019) [Ru/Multi] (2.9.1) Repack Pioneer
 magnet:?xt=urn:btih:342C63D444A3EA10FF4CAABD58AC61885F88A296
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Little Big Adventure – Twinsen’s Quest (2024) [Ru/Multi] (1.0.4) Repack FitG
 ```bash
 magnet:?xt=urn:btih:465B5083653BF8FE26892ED3A41296A323C7DD30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Warcraft I: Remastered (2024) [Ru/Multi] (1.0.0.2137) Scene Razor1911
 magnet:?xt=urn:btih:4384435BE7245CC07C9B957EC8D220ABD9762F81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Ara: History Untold (2024) [Ru/Multi] (1.1.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:A8619B5ADF61A583B56C7970841212AEB68E27AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (
 magnet:?xt=urn:btih:5A59C3D7359EC685FB560C67CE6EED5172CADB52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Witch of Fern Island - это красочный симулятор жизн
 ```bash
 magnet:?xt=urn:btih:67CA663E4A059EF33BE310DB666BFA8BE8735FA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

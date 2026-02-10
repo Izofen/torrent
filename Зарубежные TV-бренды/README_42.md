@@ -19,6 +19,8 @@ NG: Когда акулы нападают / When sharks attack (2016) HDTVRip (
 magnet:?xt=urn:btih:3ABADD7B58AEB9E903F92CB08134214FF551437E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ DV: Волшебные числа: таинственный мир матема�
 ```bash
 magnet:?xt=urn:btih:AA509D3BF57E943DB8A26F5D3AE59C74488F7317
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Discovery: Смертельный улов / Deadliest Catch (2018) HDTVRip [H.2
 magnet:?xt=urn:btih:5E3D9BE005A680CD2DF9191E500A5E21B0FDE194
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BBC: Джек Потрошитель: следствие возобновляе�
 ```bash
 magnet:?xt=urn:btih:78EFA717177C8DCDAADBF329525BAAC1ABF3758A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Discovery: Оглушающий океан / Sonic Sea (2016) HDTV 1080i
 magnet:?xt=urn:btih:6584353C03ACB0B7DC5937A04A5120D2C281C42B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ BelugaXL — огромный аэробус, созданный специал�
 ```bash
 magnet:?xt=urn:btih:A00A3660C2E83DFCC7114A1F391290E98183531D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ BBC: Знакомьтесь, ваши предки неандертальцы / 
 magnet:?xt=urn:btih:9D25CA3C6CDDB47E672BEDFF4AD173F4D48B30C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ History Channel. Кровь и слава. Гражданская война в 
 ```bash
 magnet:?xt=urn:btih:3556B4D1E3BAFFEDDD2503FCC1832258FA89BBB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ History Channel. Кровь и слава. Гражданская война в 
 magnet:?xt=urn:btih:D3927A2824E3DCD0BADCF8ACA38D49C729994016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ History Channel. Кровь и слава. Гражданская война в 
 ```bash
 magnet:?xt=urn:btih:C37B55D6E275CF9B2C39D8264233F50644367F24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Discovery: Как это сделано ? Как делают спортинве
 magnet:?xt=urn:btih:FD15CB512D68E4E1680B225750B7DFF778259F22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Discovery: Охотники за реликвиями / Auction Hunters (2015) H
 ```bash
 magnet:?xt=urn:btih:38032D34BF62EBD92E383FDAADF65934C10988ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ COVID-19 наносит все больший ущерб жизни людей. 
 magnet:?xt=urn:btih:FBB3B1F914254E8BCA33A3EB9C2B89E754A264E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Discovery. Взрывное шоу / The Explosion Show (2020) WEB-DL [H.264/108
 ```bash
 magnet:?xt=urn:btih:5CA94BAC6E91969E0D021454D935591FB4E09EF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ NG:ЭкзоМарс: В поисках жизни / Exomars: The Hunt for Life (
 magnet:?xt=urn:btih:6FC3D9B729FD382D30F24C67931C47E3AD78CCB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Discovery: Оглушающий океан / Sonic Sea (2016) SATRip
 ```bash
 magnet:?xt=urn:btih:B9FB455643B9CDF2E8B4D54C434CE023679D1204
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Discovery: Загадки планеты Земля / What on Earth? (2015-2017)
 magnet:?xt=urn:btih:998B366B15CBFAA4BB2BF6C4AC519D5121EE8AF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ NG. Миссия Сатурн / Mission Saturn (2017) HDTVRip [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:214F03477D8974F4234DD8C17607884E98C3D83E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ NGW: Зеленый ковбой из Австралии / Monster Croc Wrangler
 magnet:?xt=urn:btih:46D8BED5C97DF47533E5893C6DF21D4CF55195AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ NGW: Пустынное море / The Desert Sea (2016) HDTV [H.264/1080i-LQ] (
 ```bash
 magnet:?xt=urn:btih:C52089C205C736905C0229466DCF5F8CF22B762D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ History Channel. Военное противостояние / Clash of Warriors
 magnet:?xt=urn:btih:17DB9435B7F567875E6D387CCEB215850221FBAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ NGW: Прекрасная Америка: Дикий Юго-Запад. Запо
 ```bash
 magnet:?xt=urn:btih:58E1A2C67548DD6FAB2BC52C17F3D1D2B31044A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Discovery: Разрушители легенд. Полёт фантазии / My
 magnet:?xt=urn:btih:18F65E45B3D2758AE14F5AA5F7E89489AC09E304
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Discovery: Разрушители легенд. Взрыв на воде / MythB
 ```bash
 magnet:?xt=urn:btih:A3ABAFDFCC45515A0556327BA8334C640B648B16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Discovery. Дороги России: Уфа - Магнитогорск (2016) H
 magnet:?xt=urn:btih:4439375EC2C17E1C03E52774005FD266662D03A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Animal Planet. Проект Гризли / Project Grizzly (2016) HDTVRip (Се�
 ```bash
 magnet:?xt=urn:btih:7B6E7D7A6622CFA1A91209A72C8E7FC06C6E7FA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

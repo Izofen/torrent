@@ -1,3 +1,30 @@
+###  Публикация: 1289762   (640892) от 01.04.2019
+
+Как Великий Шелковый путь создал мир / How The Silk Road Made the World (2018) HDTVRip [H.264/720p-LQ] (1-3 серия из 3)
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640892.jpg" />
+</div>
+
+
+###  Подробнее
+
+На протяжении тысячелетий на просторах Евразии торговый путь, соединяющий Восток и Запад, оказал глубокое влияние на историю. Торговля Шелкового пути помогла построить и разрушить империи, вызвать революции и глубоко затронуть цивилизации.
+Человечество, каким мы его знаем, и все, что мы создали, во многом обязаны легендарному Шелковому пути. Путешествуйте во времени, (   Читать дальше...   )Производство: Германия, Китай, Франция, NHNZ, CCTV10, France Télévisions, ZDF EnterprisesЖанр: Документальный, познавательный, историяПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 3 х ~ 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D3ACA953B7E679D473BC2C2758C81F121461746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142853   (640905) от 15.06.2017
 
 Прямая линия с Владимиром Путиным (2017.06.15) WEB-DL [H.264/1080p-LQ]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:73AC883ED44DE978BF6DE7CFBC429E3F8C0798D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:73AC883ED44DE978BF6DE7CFBC429E3F8C0798D5
 magnet:?xt=urn:btih:A6FDBD92902A16ADDE3DCA4C244A9A529B3DF3F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ NG: Рассвет нацизма. Становление Гитлера / Dawn 
 ```bash
 magnet:?xt=urn:btih:9F5CB9DC0A9FD872B2EB54C3FFFDA9911D8E28B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +128,8 @@ magnet:?xt=urn:btih:9F5CB9DC0A9FD872B2EB54C3FFFDA9911D8E28B7
 magnet:?xt=urn:btih:A0D8BE4B520DFB6992706BEFF6CAD25241C70E7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +153,8 @@ magnet:?xt=urn:btih:A0D8BE4B520DFB6992706BEFF6CAD25241C70E7D
 ```bash
 magnet:?xt=urn:btih:7D4980013335D98B91084735BD83BFBF8F500BF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +180,8 @@ magnet:?xt=urn:btih:7D4980013335D98B91084735BD83BFBF8F500BF2
 magnet:?xt=urn:btih:691A561F5C77EF572314887D9591690AF1D18F96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +205,8 @@ magnet:?xt=urn:btih:691A561F5C77EF572314887D9591690AF1D18F96
 ```bash
 magnet:?xt=urn:btih:422C5872A7BAD87DEADA505EF61B8BDB2802D3C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +232,8 @@ magnet:?xt=urn:btih:422C5872A7BAD87DEADA505EF61B8BDB2802D3C8
 magnet:?xt=urn:btih:9D09CFC75B9FC7FDE7EB43FE5D9C3E6F30B82FCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:9D09CFC75B9FC7FDE7EB43FE5D9C3E6F30B82FCA
 ```bash
 magnet:?xt=urn:btih:F8E34DAF9D1127D4486786644BE6FB54E61C554A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +284,8 @@ magnet:?xt=urn:btih:F8E34DAF9D1127D4486786644BE6FB54E61C554A
 magnet:?xt=urn:btih:A778F2B0D63B4FCE23A8C86BF66A4C8DD17B690A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +309,8 @@ magnet:?xt=urn:btih:A778F2B0D63B4FCE23A8C86BF66A4C8DD17B690A
 ```bash
 magnet:?xt=urn:btih:F4F24E656A2438C700A333835A8E6BFC21F37B25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +336,8 @@ magnet:?xt=urn:btih:F4F24E656A2438C700A333835A8E6BFC21F37B25
 magnet:?xt=urn:btih:0490BFCF21819382DBB6C041E529F0017B2D805F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +361,8 @@ magnet:?xt=urn:btih:0490BFCF21819382DBB6C041E529F0017B2D805F
 ```bash
 magnet:?xt=urn:btih:4D365489C6E8C18012C1E39E46CB14597ECE055F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +388,8 @@ magnet:?xt=urn:btih:4D365489C6E8C18012C1E39E46CB14597ECE055F
 magnet:?xt=urn:btih:526C02C600E8804FCA5BDD5019967BEAC1B2415E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +413,8 @@ magnet:?xt=urn:btih:526C02C600E8804FCA5BDD5019967BEAC1B2415E
 ```bash
 magnet:?xt=urn:btih:C55FB71A7E63D96E1D57457BCC8CA7C53B3940C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +440,8 @@ magnet:?xt=urn:btih:C55FB71A7E63D96E1D57457BCC8CA7C53B3940C2
 magnet:?xt=urn:btih:3048B05D4AED5543E0680BDBDD8278B410A873F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +465,8 @@ magnet:?xt=urn:btih:3048B05D4AED5543E0680BDBDD8278B410A873F1
 ```bash
 magnet:?xt=urn:btih:8A44831AE1DD9F48902925BE282ECAD1B49C76E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +492,8 @@ magnet:?xt=urn:btih:8A44831AE1DD9F48902925BE282ECAD1B49C76E8
 magnet:?xt=urn:btih:779D985F87A01DBC66C402944B3E47D6E497E45F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +517,8 @@ magnet:?xt=urn:btih:779D985F87A01DBC66C402944B3E47D6E497E45F
 ```bash
 magnet:?xt=urn:btih:5B7D8CFB4DE216344F659D4AE57531F08A22D44E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +544,8 @@ magnet:?xt=urn:btih:5B7D8CFB4DE216344F659D4AE57531F08A22D44E
 magnet:?xt=urn:btih:B9AD471ECD63A2F9FD3E5B40B972EF42A9F94243
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +570,8 @@ magnet:?xt=urn:btih:B9AD471ECD63A2F9FD3E5B40B972EF42A9F94243
 magnet:?xt=urn:btih:4AFFCC425BE874B99D483EF0AA30237D0B5C0474
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +595,8 @@ magnet:?xt=urn:btih:4AFFCC425BE874B99D483EF0AA30237D0B5C0474
 ```bash
 magnet:?xt=urn:btih:1472655D46CE12436F6F5C48EF43C7CB415D01F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +623,8 @@ magnet:?xt=urn:btih:1472655D46CE12436F6F5C48EF43C7CB415D01F4
 magnet:?xt=urn:btih:3FBE8EAF2ED477BAB14B0365B56BCB6BE57B8243
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +648,8 @@ magnet:?xt=urn:btih:3FBE8EAF2ED477BAB14B0365B56BCB6BE57B8243
 ```bash
 magnet:?xt=urn:btih:F69E08A0F0DECC449D91DD3AB875D7BB6DB37CDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,31 +676,7 @@ magnet:?xt=urn:btih:F69E08A0F0DECC449D91DD3AB875D7BB6DB37CDA
 magnet:?xt=urn:btih:D3D8D2E0FDA47BBBE013666CD7FFF3EFD0187BAB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518329   (642748) от 03.07.2012
-
-Пейзажи времени / Timescapes (2012) [1080p] Blu-ray
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642748.jpg" />
-</div>
-
-
-###  Подробнее
-
-TimeScapes - дебютный фильм от награжденного призом кинематографиста и режиссера Тома Лоу. Особенности фильма ошеломляющая замедленная съемка и кинематография пейзажей, людей, и дикой природы американского Юго-запада. Лоу провел 2 года, колеся по Юго-западу в пикапе Тойоты, в поисках подходящих сцен для фильма.
-
-Для Тома замедленная съемка начиналась как хобби. перенося трудности, он ночевал бы под открытым небом в местах, таких как Национальный парк Йосемити, или Национальный парк Юкки коротколистной, снимая ночное небо.Жанр: ДокументальныйПеревод: не требуетсяПродолжительность: 00:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64A808CE646ACB1384DAE51F47387DD46F825777
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:635BBB670954F9F9D7DB543081302CC6FC0729EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:635BBB670954F9F9D7DB543081302CC6FC0729EC
 ```bash
 magnet:?xt=urn:btih:ADA9A741BD83748F74FE84A4B9A87DF48444C4C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:ADA9A741BD83748F74FE84A4B9A87DF48444C4C7
 magnet:?xt=urn:btih:4191E1434115E5752A31BD12B967CB01454E073A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ History Channel. Вторая мировая война: взгляд из ко�
 ```bash
 magnet:?xt=urn:btih:FC73A945D179F97276E4CD12CA75575BD3CE8BAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:FC73A945D179F97276E4CD12CA75575BD3CE8BAE
 magnet:?xt=urn:btih:48A9FCF5CFE054BEB13822ADDA7CA9563D7DE2E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:48A9FCF5CFE054BEB13822ADDA7CA9563D7DE2E3
 ```bash
 magnet:?xt=urn:btih:5FC51DA16C52A27B3CA5BC1FE744B93EBE41AAC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ History Channel. Вторая мировая война: взгляд из ко�
 magnet:?xt=urn:btih:01014B60B5B0DD32073D3482DF606D1B6078198F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ History Channel. Вторая мировая война: взгляд из ко�
 ```bash
 magnet:?xt=urn:btih:68957A68A4CBD71CAE406C2CA3763EBA93C65A72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ History Channel. Поле битвы 360°. Авианосец «Энтерпр�
 magnet:?xt=urn:btih:92B8523FB239B0EC9B8CF7C3FDF597274CD3CD8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ History Channel. Высадка союзников в Нормандии: Нер
 ```bash
 magnet:?xt=urn:btih:63FE30402CB8D695248070E50C53BD33ACE67F34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ History Channel. Высадка союзников в Нормандии. Нер
 magnet:?xt=urn:btih:51584CC677FBDDC2E5F2C7D435B49F7168DC5702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ History Channel. Высадка союзников в Нормандии. Нер
 magnet:?xt=urn:btih:26BDE082A1BCC255293F266C42496B3B80135AC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:26BDE082A1BCC255293F266C42496B3B80135AC5
 ```bash
 magnet:?xt=urn:btih:D049CDDE9827F556EFB70DD30CD78F54A34FFEAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ History Channel. Поле битвы 360°. Авианосец «Энтерпр�
 magnet:?xt=urn:btih:DAC5FC6DF55D3AD7B511E9D0E8E5043AD193B9F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:DAC5FC6DF55D3AD7B511E9D0E8E5043AD193B9F1
 ```bash
 magnet:?xt=urn:btih:3198512974AECD5B3690354A1A5AC262B3BE8632
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:3198512974AECD5B3690354A1A5AC262B3BE8632
 magnet:?xt=urn:btih:95A16097724F9471B3D321A6B24404A69E1AA410
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ NG. Последние шаги Гитлера / Hitler's Last Stand (2019) HDTV
 magnet:?xt=urn:btih:C891EAEA03A0B2CC49CBD25C5165741133900414
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ National Geographic. Последние шаги Гитлера / Hitler's Last 
 ```bash
 magnet:?xt=urn:btih:C7DD3A0D50887738E5C27ADF3E54BB8AB2C6FFC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:C7DD3A0D50887738E5C27ADF3E54BB8AB2C6FFC0
 magnet:?xt=urn:btih:F7A9B05F34C508AC699EFD5FAB80E0E091F337BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:F7A9B05F34C508AC699EFD5FAB80E0E091F337BE
 ```bash
 magnet:?xt=urn:btih:5681FFA8987B42481B86EAF5F57B9F396CC17F72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ BBC - Вторая Мировая Война: 1941г и Человек из Ст
 magnet:?xt=urn:btih:ADE0DDA4355B190B18D664B952026592DAB1B13A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:ADE0DDA4355B190B18D664B952026592DAB1B13A
 ```bash
 magnet:?xt=urn:btih:BAC84C005A001ECB57F5BFB2192D38AA111AE6CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:BAC84C005A001ECB57F5BFB2192D38AA111AE6CF
 magnet:?xt=urn:btih:1CEDA57D97DFA818BF413FB64974E806A0F74086
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ magnet:?xt=urn:btih:1CEDA57D97DFA818BF413FB64974E806A0F74086
 ```bash
 magnet:?xt=urn:btih:CCB9257DEDD29E5385C5516694F568075B503FB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ magnet:?xt=urn:btih:CCB9257DEDD29E5385C5516694F568075B503FB3
 magnet:?xt=urn:btih:E074D10D8A6AD8BF300CEC204C7579F704A1C3A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:E074D10D8A6AD8BF300CEC204C7579F704A1C3A8
 ```bash
 magnet:?xt=urn:btih:F6C4D347C4CBD87E98EA2AD381873D555E8B46FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ ProfIT| Введение в фреймворк Codeception (2019) PCRec [H.264]
 magnet:?xt=urn:btih:077316786149FB28B9306C0C34F265C1B1B2E37E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:077316786149FB28B9306C0C34F265C1B1B2E37E
 magnet:?xt=urn:btih:D696C8B31041C47C5E4B1B53E2E412D23B3D4008
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Udemy | Git: Полный курс для начинающих и не толь�
 magnet:?xt=urn:btih:03E8E957FDB3E90F365586AA8232D6CB2127E703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Docker: технология, которая у всех на слуху, но �
 ```bash
 magnet:?xt=urn:btih:E626738C3726387A40C10F3E467D98AC99CB6C50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Palo Alto Certified Network Security Engineer (PCNSE) — это высший у
 magnet:?xt=urn:btih:EF11B791B0035E63F60146592AC34F1CC69635B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Udemy, Hussein Daher | Bug Bounty - An Advanced Guide to Finding Good Bugs (2022
 magnet:?xt=urn:btih:36C570F51343AB0EF3DE7CE064DD906CC66F0172
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:36C570F51343AB0EF3DE7CE064DD906CC66F0172
 ```bash
 magnet:?xt=urn:btih:DB40F75513B10F30AECBF7022BA0D117E35CB496
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ OTUS | PHP-разработчик. Часть 4 из 5 (2020) PCRec
 magnet:?xt=urn:btih:122184678645277F31DC2163D1646212CD2C52F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:122184678645277F31DC2163D1646212CD2C52F0
 ```bash
 magnet:?xt=urn:btih:251C32357248548E8AD040D857AE4093A3F33141
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:251C32357248548E8AD040D857AE4093A3F33141
 magnet:?xt=urn:btih:263E2E9CE7D0604699F5BA5AED9C06FF34BA3B7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:263E2E9CE7D0604699F5BA5AED9C06FF34BA3B7E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:263E2E9CE7D0604699F5BA5AED9C06FF34BA3B7E
 magnet:?xt=urn:btih:377BB3551DFB794541F92B6F88049C2182760DEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:377BB3551DFB794541F92B6F88049C2182760DEC
 ```bash
 magnet:?xt=urn:btih:470941CC573F2E02DEE0D6CCCD1D2AEB35923119
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ Linux Academy | Внедрение полного конвейера CI/CD (2020
 magnet:?xt=urn:btih:F995F9EFEEF4F52D211B92E255B6D19C062CCF01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:F995F9EFEEF4F52D211B92E255B6D19C062CCF01
 ```bash
 magnet:?xt=urn:btih:F7F100BF03CEC608AFE2286B0F17721B73FBAA38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ Vue.js - это современный JavaScript-фреймворк, приме
 magnet:?xt=urn:btih:B2CB1AA02612EC5A82369B1E5909170E4B113C03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ Python - это язык программирования. (   Читать д�
 magnet:?xt=urn:btih:3070ACDB119EC72FB3A130DE391C338E81207501
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:3070ACDB119EC72FB3A130DE391C338E81207501
 ```bash
 magnet:?xt=urn:btih:601AD2609DD1ED8E6721F72B0FDECEFC24C86D92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:601AD2609DD1ED8E6721F72B0FDECEFC24C86D92
 ```bash
 magnet:?xt=urn:btih:8D28952E431EB658657B9645E825BF979476AC5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ Geekbrains | Профессия Веб-разработчик (2016-2017) PCRec 
 magnet:?xt=urn:btih:F9B27A7127FC526F8628D84AAF4F254B24C09B91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ ES6 - это стандарт JavaScript, который был принят в 
 ```bash
 magnet:?xt=urn:btih:B4E380E39C83DCE844F83F9B00B98315F595F6E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ JavaBegin | Онлайн библиотека на Spring (2014-2015) PCRec [H.2
 magnet:?xt=urn:btih:1E63627E9CD6A787E73E8F3F3539D769538A3BE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ WebForMySelf.com | Премиум материалы (2014-2020) PCRec
 ```bash
 magnet:?xt=urn:btih:F68B2420297ED03ADA5E38C4890EB197465BC8A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ OTUS | Компьютерное зрение [Части 1-4] (2020) PCRec
 magnet:?xt=urn:btih:174D2E51612BB5178FB54516BD84576DDAA7266C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:174D2E51612BB5178FB54516BD84576DDAA7266C
 ```bash
 magnet:?xt=urn:btih:E1868351D44E1E1041633ED60CEE913347167D60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +694,8 @@ magnet:?xt=urn:btih:E1868351D44E1E1041633ED60CEE913347167D60
 ```bash
 magnet:?xt=urn:btih:EAB82878D44A414E9AED66CB2BA9619043C88B16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

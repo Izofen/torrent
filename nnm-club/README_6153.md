@@ -19,6 +19,8 @@ Stepik, Evgeniy Lestopadov | Windows CMD - быстрый старт (2023) WEB-
 magnet:?xt=urn:btih:0C054256F271856E3275D99B7A6B3255937B0AAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Brave - защищённый веб-браузер на базе Chromium, по�
 ```bash
 magnet:?xt=urn:btih:3524BEC78818DB9A38242C679D5B9761C6FE8337
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:3524BEC78818DB9A38242C679D5B9761C6FE8337
 magnet:?xt=urn:btih:A2C91F32261F5B0AA2E76B2351C56D0501CBE066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Bramble: The Mountain King отправляет вас в невероятное
 magnet:?xt=urn:btih:68F599A65D1CFB09B714AC1799334EFD786D65E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:68F599A65D1CFB09B714AC1799334EFD786D65E5
 ```bash
 magnet:?xt=urn:btih:168B9E272AE0A9A1D578FD87230ADAB6F947E594
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ VA - В машине с музыкой Vol.317 (2022) MP3 [320 Kbps] <Pop, Dance
 magnet:?xt=urn:btih:32457A86E226A81AFF4335CF6CDCE34804339BC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Proglib.Academy, Евгений Тюменцев | Архитектура и ш�
 ```bash
 magnet:?xt=urn:btih:4D5D588E62D635FC5564E9784673271D23088F35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:4D5D588E62D635FC5564E9784673271D23088F35
 magnet:?xt=urn:btih:29A635F0319025CF235A5FF35C7FA8F44FF6A9A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:29A635F0319025CF235A5FF35C7FA8F44FF6A9A9
 ```bash
 magnet:?xt=urn:btih:A5AA01FAE511719EEA2316D7183BD4FBDA22FA06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ CCleaner - утилита для чистки мусора в операцион
 magnet:?xt=urn:btih:99ED3D79385C6C9E068EE4E41B0F287A002AB565
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:99ED3D79385C6C9E068EE4E41B0F287A002AB565
 ```bash
 magnet:?xt=urn:btih:785A529B0086DB4E63EB6A3ED009ED4C3F71FC09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:785A529B0086DB4E63EB6A3ED009ED4C3F71FC09
 magnet:?xt=urn:btih:05832DAC08C0EC087152F825FE03792DCE9EA4F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:05832DAC08C0EC087152F825FE03792DCE9EA4F5
 ```bash
 magnet:?xt=urn:btih:4467624C130AE55B279EB6308A94DD9D58EA31BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:4467624C130AE55B279EB6308A94DD9D58EA31BC
 magnet:?xt=urn:btih:2EB3B4A4A723BB3E59F54B0E51727D3DA931386C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:2EB3B4A4A723BB3E59F54B0E51727D3DA931386C
 ```bash
 magnet:?xt=urn:btih:AFFE7ACCF03DAC89C08F18AA15E117F8B32E224C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:AFFE7ACCF03DAC89C08F18AA15E117F8B32E224C
 magnet:?xt=urn:btih:9D759B58EF5B168557B5454BB2AF5FCBB869301A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:9D759B58EF5B168557B5454BB2AF5FCBB869301A
 ```bash
 magnet:?xt=urn:btih:7CCA6452F225932A4ABA15DBA95761E4308F94E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:7CCA6452F225932A4ABA15DBA95761E4308F94E1
 magnet:?xt=urn:btih:2DBC1416F523E2BFFBC9B976F9FFC2562E121E93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ No Son Of Mine - это хоррор на выживание с напряжен
 magnet:?xt=urn:btih:2BF427EFB4CDBAA54F6465BB1945DF29B65C1668
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:2BF427EFB4CDBAA54F6465BB1945DF29B65C1668
 ```bash
 magnet:?xt=urn:btih:09577201A92F133A96245181A81568971BA2CA13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:09577201A92F133A96245181A81568971BA2CA13
 magnet:?xt=urn:btih:A57688F344F3683D320F05B676DF92DC98AF12CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Babok-school, Анна Вичугова | Основы архитектуры и
 ```bash
 magnet:?xt=urn:btih:A919221B3358595FC070991B83D534082D4D791F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:A919221B3358595FC070991B83D534082D4D791F
 magnet:?xt=urn:btih:8677D33E21DC7FD04BC326908E7A30CD7A28F7D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:8677D33E21DC7FD04BC326908E7A30CD7A28F7D9
 ```bash
 magnet:?xt=urn:btih:BD0D8473C7DB5817169F9DACFDD1ABD1F128269C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Fleesh - Home Again (A Tribute to Pink Floyd) (2022) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:B1E5B85ABEFDE921918C49E98AB67861DCF0C98E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:B1E5B85ABEFDE921918C49E98AB67861DCF0C98E
 ```bash
 magnet:?xt=urn:btih:BFCF682E7710822A639C58DF5277CF0106F9476D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

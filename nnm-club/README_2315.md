@@ -19,6 +19,8 @@ Farmer's Father: Save the Innocence - это настоящая история �
 magnet:?xt=urn:btih:1DD46E210664296E5D7B1D94B6E8FC1D59306BB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:1DD46E210664296E5D7B1D94B6E8FC1D59306BB0
 ```bash
 magnet:?xt=urn:btih:4367FDA7967C1FA74A6527E319E97E6E9043A90B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Rod Stewart - 55 albums, 5 Box-sets, 137 CD (1969-2024) [FLAC|Lossless|image + .
 magnet:?xt=urn:btih:CF1CC03B42643AC81EC4634CC78828E8171B793A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Bucchigiri?! | Буттигири [2024, TV, 12 эп.] WEBRip 720p raw
 ```bash
 magnet:?xt=urn:btih:EA459A742A42D1F1E83E91F73425807A689B6C3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:EA459A742A42D1F1E83E91F73425807A689B6C3F
 magnet:?xt=urn:btih:8E302E6C9D91083DDAA07EA3A9378F72C8C57BBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:8E302E6C9D91083DDAA07EA3A9378F72C8C57BBA
 ```bash
 magnet:?xt=urn:btih:3127EE69BE52FA4C4978FFA241709C8315530D7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ UNIGINE,  Андрей Аксёнов | UNIGINE C++ School 1.1 - Пишем со
 magnet:?xt=urn:btih:4B8EF58385169FADE80515CB600F3180A33BE6CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Lynda, Kevin Skoglund | Git Essential Training (2012) PCRec [EN, RU / RU Sub]
 ```bash
 magnet:?xt=urn:btih:CCF0FB2B70E74195EFD2FF4F44DF95C9C80D1E4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Beat Slayer - гибрид из упрощенного рогалика и ри�
 magnet:?xt=urn:btih:A37DAFF3CC23F21EFE51BF685735986A266ADC1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:A37DAFF3CC23F21EFE51BF685735986A266ADC1A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Horizon Forbidden West – продолжение приключения охо�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ Horizon Forbidden West – продолжение приключения охо�
 magnet:?xt=urn:btih:E441D6E478F8CEA4F5E20435D0DDE5C3DE4394B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:E441D6E478F8CEA4F5E20435D0DDE5C3DE4394B0
 ```bash
 magnet:?xt=urn:btih:AE45D9AAAC969F48B8632B1FA8F78FF4A60A9C2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:AE45D9AAAC969F48B8632B1FA8F78FF4A60A9C2F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:AE45D9AAAC969F48B8632B1FA8F78FF4A60A9C2F
 ```bash
 magnet:?xt=urn:btih:5E6DA2556098786D38BEC740DED69A63DAF2D755
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:5E6DA2556098786D38BEC740DED69A63DAF2D755
 magnet:?xt=urn:btih:8F9586463D41A4B2955CCE1EA6508128C1363422
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:8F9586463D41A4B2955CCE1EA6508128C1363422
 ```bash
 magnet:?xt=urn:btih:DB396C47367F89E49E21B9F1D9795E6199192607
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:DB396C47367F89E49E21B9F1D9795E6199192607
 magnet:?xt=urn:btih:9A44E494FC625C307DBBC68F211AE7B037701318
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:9A44E494FC625C307DBBC68F211AE7B037701318
 ```bash
 magnet:?xt=urn:btih:35F7F24A1D9487D5BF924D4F9D2DBE5C4E1D2EE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:35F7F24A1D9487D5BF924D4F9D2DBE5C4E1D2EE8
 magnet:?xt=urn:btih:E659EB93FD4D33B641A9AB9DA2F637F0A2ECEE0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:E659EB93FD4D33B641A9AB9DA2F637F0A2ECEE0A
 ```bash
 magnet:?xt=urn:btih:6A021E801C089FB06A0F43DDB000F7856AF68219
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:6A021E801C089FB06A0F43DDB000F7856AF68219
 magnet:?xt=urn:btih:AD1193CBFBD8CF99015EF8CE6ADF04E6A18D0B89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:AD1193CBFBD8CF99015EF8CE6ADF04E6A18D0B89
 ```bash
 magnet:?xt=urn:btih:531C692F33BD7FBA30C0D0467F2D3B59F4133FBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ Bulletstorm: Full Clip Edition - специальное издание нашу�
 magnet:?xt=urn:btih:5E80108AFEDB8511F40CF6D0F47E034E125C65AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:5E80108AFEDB8511F40CF6D0F47E034E125C65AC
 magnet:?xt=urn:btih:FEF51C9468AFEE9AEC44DF2A9B2423BC2D119AC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Hime-sama "Goumon" no Jikan Desu | Время пытки, принцесса | T
 ```bash
 magnet:?xt=urn:btih:6D165504D9A0461125E1C085599B745DEDE35AB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Have a Nice Death - это экшен в жанре roguelike. Его главн
 magnet:?xt=urn:btih:DCB1B070D44299504617AE2F2A636F0AAF366B10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Joseph Hocking | Unity in Action, 3rd Edition (2022) [PDF] [EN]
 magnet:?xt=urn:btih:412296D86E8BA0C96E6CE37156D9DC3A1E65D5CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Next.js - это масштабируемый и высокопроизводи�
 ```bash
 magnet:?xt=urn:btih:70E28714DED0DA3A3BEF26C1846C41B2857CA87B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Kyokou Suiri Season 2 / In/Spectre Season 2 / В/Спектре 2 / Ложные
 magnet:?xt=urn:btih:781DC583A6A9F815B70B8AC67E4416CABBA3464F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Pulsonix - интегрированная среда разработки с и�
 ```bash
 magnet:?xt=urn:btih:03CFFCD029198424C12B1695BF2ADE215289D71A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Udemy, Muhamed Khalid | Modern OpenGL 3.3 with C++ GLSL for beginners (2021) WEB
 magnet:?xt=urn:btih:7101BF629C6E7F91D48352840E8487D89DF2F680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:7101BF629C6E7F91D48352840E8487D89DF2F680
 ```bash
 magnet:?xt=urn:btih:03134BE895E92358BD6340182329160BCC5706A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Yowamushi Pedal: Limit Break | Трусливый велосипедист [ТВ
 magnet:?xt=urn:btih:944CFA7393EB78EAFD918AB9BECEA108769AFC25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ AWR Design Environment 17.02R Build 17492 Rev2 [En]
 ```bash
 magnet:?xt=urn:btih:3579568A10A50DC32620DD941C298B0EB252F567
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:3579568A10A50DC32620DD941C298B0EB252F567
 magnet:?xt=urn:btih:E491178756D12C13A5F7AF9EE488FCE3A89869BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:E491178756D12C13A5F7AF9EE488FCE3A89869BD
 ```bash
 magnet:?xt=urn:btih:181593D6A03BF6702904F1F6C0470E7643F944B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ The Halo Effect - Days Of The Lost (2022) Japanese Edition [FLAC|Lossless|image 
 magnet:?xt=urn:btih:931C93E6ABB599C7FA024579691D86EB2C285BF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ Planner 5D Premium 4.14 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E8291C4EB04CD96D7AE0095FB9370E1D5D2CFC69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:E8291C4EB04CD96D7AE0095FB9370E1D5D2CFC69
 magnet:?xt=urn:btih:BA5FB9CB6253B9B7798D415628F26F19C4030952
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ Kami-tachi ni Hirowareta Otoko 2 | By the Grace of the Gods 2 | Избранны
 ```bash
 magnet:?xt=urn:btih:999F44BD5B39793C009C827281B89B7373FFC2CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ OpenVPN – мощная программа для работы с частны�
 magnet:?xt=urn:btih:1F4770C990BC23C1DF721813387A703F41B3F5CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:1F4770C990BC23C1DF721813387A703F41B3F5CF
 ```bash
 magnet:?xt=urn:btih:307AB5CED8FEB64CFD3C922F01ACE0A4AF452871
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:307AB5CED8FEB64CFD3C922F01ACE0A4AF452871
 magnet:?xt=urn:btih:F5FBF2FC3404DB0536C2C5988552792FE2C2F654
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:F5FBF2FC3404DB0536C2C5988552792FE2C2F654
 ```bash
 magnet:?xt=urn:btih:A310EBAAF9D2DD9C08764D0532256119EA49A785
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:A310EBAAF9D2DD9C08764D0532256119EA49A785
 magnet:?xt=urn:btih:B08B9BCD3E61F5A840A4CEB881CEE6FA2F62F10C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:285CB0B4E0A8C74042664A0B5B958A4A24E26C35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ Drone Swarm (2020) [Ru/Multi] (7377621) Scene SKIDROW
 magnet:?xt=urn:btih:EA38951B3B9DB4355E15DDA8BE08EF1292B39202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:EA38951B3B9DB4355E15DDA8BE08EF1292B39202
 ```bash
 magnet:?xt=urn:btih:90B81E9B5CFD15B55E48A59FDD903ADF41AA5EF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ Pikuma, Gustavo Pezzi | Fundamentals of 2D Game Engines with C++ SDL and Lua (20
 magnet:?xt=urn:btih:D6221DB0247BA0E301FA0C603B25054ED8B8E1BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ AIDA64 - является мощным средством для идентиф�
 magnet:?xt=urn:btih:A057E293A5DFE101104D01F215B414BE4B98F84B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:A057E293A5DFE101104D01F215B414BE4B98F84B
 ```bash
 magnet:?xt=urn:btih:6F62E104A0E8D6F5F73023D65CD83E2DFEB4E129
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

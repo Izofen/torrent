@@ -1,51 +1,3 @@
-###  Публикация: 536504   (514301) от 18.08.2012
-
-[Фотография]Фотоманипуляции Елены Дудиной
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник фотоманипуляций Елены Дудиной.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05508968FFFF31A4C204EAD3728579B2844E87A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536340   (514410) от 18.08.2012
-
-[Цифровой арт] Kerem Beyit
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы цифрового художника Kerem Beyit.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9703081C8F6D9A55414996F9791623F66D8AB04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 536342   (514417) от 18.08.2012
 
 [Цифровой арт]  Художник James Ryman
@@ -66,6 +18,8 @@ magnet:?xt=urn:btih:A9703081C8F6D9A55414996F9791623F66D8AB04
 ```bash
 magnet:?xt=urn:btih:6A1E8CB2B00EF15A32F6E27523C81EC6A9F1DAD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -90,6 +44,8 @@ magnet:?xt=urn:btih:6A1E8CB2B00EF15A32F6E27523C81EC6A9F1DAD4
 ```bash
 magnet:?xt=urn:btih:7E9730201846AF21497339E5CDC27C1FB39C4956
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +75,8 @@ magnet:?xt=urn:btih:7E9730201846AF21497339E5CDC27C1FB39C4956
 ```bash
 magnet:?xt=urn:btih:F4B3CFF2B167C70D9AEAE28906D9DFA75A081991
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +109,8 @@ magnet:?xt=urn:btih:F4B3CFF2B167C70D9AEAE28906D9DFA75A081991
 magnet:?xt=urn:btih:B38D310BAC95273AB1B6BDA2D7B395535B21F993
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +138,8 @@ magnet:?xt=urn:btih:B38D310BAC95273AB1B6BDA2D7B395535B21F993
 magnet:?xt=urn:btih:7960E10D2AC6D435C58C95C6137B4C8F644F87AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +163,8 @@ Computer Desktop Wallpapers Collection (17.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:9B6E5D52078C6ECE2D5E93117C3F80EB04A64C0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +190,8 @@ magnet:?xt=urn:btih:9B6E5D52078C6ECE2D5E93117C3F80EB04A64C0F
 magnet:?xt=urn:btih:214765B92C891EB82AB9A378977FECACB96AFE9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +215,8 @@ magnet:?xt=urn:btih:214765B92C891EB82AB9A378977FECACB96AFE9D
 ```bash
 magnet:?xt=urn:btih:B2EBCC3235B2D04D142B2725C4A1DE1A4C562EC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +242,8 @@ magnet:?xt=urn:btih:B2EBCC3235B2D04D142B2725C4A1DE1A4C562EC6
 magnet:?xt=urn:btih:75FB9B131E0E6BC48020CFCCCF83F4C667A4CDB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +267,8 @@ magnet:?xt=urn:btih:75FB9B131E0E6BC48020CFCCCF83F4C667A4CDB7
 ```bash
 magnet:?xt=urn:btih:39710E1D82979C824496BA91CEB97B038C652321
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +294,8 @@ magnet:?xt=urn:btih:39710E1D82979C824496BA91CEB97B038C652321
 magnet:?xt=urn:btih:F4E25701D4DA43F4706697C8CFF811634FB78C7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +319,8 @@ magnet:?xt=urn:btih:F4E25701D4DA43F4706697C8CFF811634FB78C7E
 ```bash
 magnet:?xt=urn:btih:496068600575EC748285217BA50CFAFC357DE1BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +346,8 @@ magnet:?xt=urn:btih:496068600575EC748285217BA50CFAFC357DE1BC
 magnet:?xt=urn:btih:7730946894D0B46EB96322D2DF70F26272AD71B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +372,8 @@ Doug Sneyd - PLAYBOY Cartoons 60 - 90-s
 magnet:?xt=urn:btih:1DC4EC0FC1021CB8D4AFF342EBD16DC8C90ADB03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +397,8 @@ magnet:?xt=urn:btih:1DC4EC0FC1021CB8D4AFF342EBD16DC8C90ADB03
 ```bash
 magnet:?xt=urn:btih:6E7171893ABFCE47CFBD70F3E5C3A969BCD1E8D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +428,8 @@ magnet:?xt=urn:btih:6E7171893ABFCE47CFBD70F3E5C3A969BCD1E8D3
 magnet:?xt=urn:btih:F84A9507ED20C625ACD6560BB6141F0049BFAD68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +453,8 @@ magnet:?xt=urn:btih:F84A9507ED20C625ACD6560BB6141F0049BFAD68
 ```bash
 magnet:?xt=urn:btih:A86B2D6E193A94481C89598D401A4EF6A7821AE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +480,8 @@ Adam Hughes — американский художник комиксов
 magnet:?xt=urn:btih:8A4963E4EEA3229679F7F52951DD513E89CD160E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +505,8 @@ magnet:?xt=urn:btih:8A4963E4EEA3229679F7F52951DD513E89CD160E
 ```bash
 magnet:?xt=urn:btih:C7D362249D3F5CCFF56663849F3AA87B0142E608
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +532,8 @@ magnet:?xt=urn:btih:C7D362249D3F5CCFF56663849F3AA87B0142E608
 magnet:?xt=urn:btih:1A3967CF00ABAF7FA42194C72A6EF21581A5259E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +557,8 @@ magnet:?xt=urn:btih:1A3967CF00ABAF7FA42194C72A6EF21581A5259E
 ```bash
 magnet:?xt=urn:btih:C870A6DA85FF536C4B37CC76C7EA3816287D7FD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +584,8 @@ magnet:?xt=urn:btih:C870A6DA85FF536C4B37CC76C7EA3816287D7FD6
 magnet:?xt=urn:btih:76A7BE3FED284981042227EEE58D1E5A0DF3DD6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +610,8 @@ magnet:?xt=urn:btih:76A7BE3FED284981042227EEE58D1E5A0DF3DD6B
 magnet:?xt=urn:btih:1846284DD50372F9B369DD3F36A66E620B9F1E6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +635,60 @@ magnet:?xt=urn:btih:1846284DD50372F9B369DD3F36A66E620B9F1E6F
 ```bash
 magnet:?xt=urn:btih:A0BCA7983FC2E29B697D081AB768221AF0D93F5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242272   (516238) от 21.08.2018
+
+Обои - Wallpapers Full HD / Кошачьи #3 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник обоев на тему КошкиФормат: JPGРазрешение файлов: 1920x1080-3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2FDFE45B55D6EB38F1B8140B94A23EAB3257A21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242290   (516239) от 21.08.2018
+
+Обои - Wallpapers Full HD / Кошачьи #9 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник обоев на тему КошкиФормат: JPGРазрешение файлов: 1920x1080-3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF3BCEE2174C944A624C129DDD2FF492893E195C
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

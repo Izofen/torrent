@@ -19,6 +19,8 @@ GT Recovery - Undelete,Restore 2.6.2 [Ru]
 magnet:?xt=urn:btih:E453CCB78B851724D1B9C61A0E47C1FB52D7A9D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Analog Electronic Toolbox v3.77 [En] - набор инструментов дл�
 ```bash
 magnet:?xt=urn:btih:526FFD66A27887C8F5605EA09F4B778F3AE514B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Life Quotes and Sayings - Очень часто мы в своих реплик�
 magnet:?xt=urn:btih:86C2D70ECBD93FDAB263E05FC3535FC55606B205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Oreny - Icon Pack v1.6.2.4.1 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:61F3743434F5944865DAE85C5DE0E749D2C26FC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Groovepad – это простое приложение для создания
 magnet:?xt=urn:btih:61BDF18C26A9243686527BB6C4AAB27CA618682A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ GameKeyboard – это простое и надежное приложение 
 ```bash
 magnet:?xt=urn:btih:72E2762724DF09106A4C6FD18DDE0255D5E879B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ XRecorder Pro 1.2.2.3 [Ru]
 magnet:?xt=urn:btih:AF56D8C03076E5C3FC1D79FBD26822F07C7D7061
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Pro QR & Barcode Scanner PDF417 Scanner, Reader v2.1.0.7 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:90F9E73A7ECD27EEB06C2F8BD06DAD13E8966CAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ WiFi Analyzer Premium - премиум версия многофункциона
 magnet:?xt=urn:btih:C07BF16DF529FFE85F69497B9A4EF0EF713C1BEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Color by Number – New Coloring Book - это увлекательная мул
 ```bash
 magnet:?xt=urn:btih:747689F7526C4015C9F43F053AD87C669C009602
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Ghost Commander File Manager - полнофункциональный файло
 magnet:?xt=urn:btih:A594BD9D099B40EDA25F2ADA141DC12D6055431D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ DosBox - высоко оптимизированный и быстрый эму�
 ```bash
 magnet:?xt=urn:btih:8EE3C8E7E28464AD88D3726C427347070B15D5EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Calculator 2 превратить ваше устройство в интера�
 magnet:?xt=urn:btih:A04FB38FC6E24C0B6086D59D66253FDD2B5290F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Regex Finder - Весьма занятное приложение которое
 magnet:?xt=urn:btih:D478598572DF3B05E8F86C848A6C6EB091BF6F9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Cuticon Drop - Icon Pack v1.2 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:7986238C8ED8F289B7B798EC7EA618E15A6C3BCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ WiFi Overview 360 - универсальный информационный ин
 magnet:?xt=urn:btih:D88A6052860164A20F05F872DDA073CB77AE97AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Fallout File Manager v1.1 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:2BDDA35BF58B2D3AC8C197CA5EB6825978FD479E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Fast Charge Pro v1.0 [Ru/En]
 magnet:?xt=urn:btih:069F5D282C821B35923AA2AFC865B70DC53673EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Randomizer+ Random Pick Generator - Decision Maker v4.4 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:4304AD04F08CAA90D7ED74AB933B231D875F4892
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Lingua Book Reader - удобная и красивая программа, ко
 magnet:?xt=urn:btih:C85ECC1F21AD963E64C6379846F9BF620B6BE24E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:C85ECC1F21AD963E64C6379846F9BF620B6BE24E
 ```bash
 magnet:?xt=urn:btih:A89BD5319A7A04520BC9B7A5882F95FA89D6DBD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:A89BD5319A7A04520BC9B7A5882F95FA89D6DBD8
 magnet:?xt=urn:btih:F36700F335C660CAFBB99A2E016A087970BBB908
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:F36700F335C660CAFBB99A2E016A087970BBB908
 ```bash
 magnet:?xt=urn:btih:6DFBD79FBA981A1B024CF6A620501845571D5F95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ Speed Test & WiFi Analyzer v9.0.27615 [Ru/Multi]
 magnet:?xt=urn:btih:D20C407DBADACFC8A8ED752581C65677DE0929DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ File Manager Pro - премиум версия многофункциональ�
 magnet:?xt=urn:btih:8E78194239457690CCA586123A825D40F8A86568
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ AiScan: All QR Code Scanner & Barcode Reader v1.0.1 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:40BA2876842FA59DC7C514DDF3B6B561EC2357AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

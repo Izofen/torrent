@@ -19,6 +19,8 @@ PullTube 1.3 [Multi/Ru]
 magnet:?xt=urn:btih:F491D0DA99F99B3E24C9B2E0387335952C70E3C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Frontend-разработчик создаёт интерфейсы, с кото
 magnet:?xt=urn:btih:C5B79A1180984C30DC6C599F37D9F5E9F24984D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:C5B79A1180984C30DC6C599F37D9F5E9F24984D8
 ```bash
 magnet:?xt=urn:btih:7C643C789E8A3BA01A051D065FA655DA50EEEA8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Hunting Unlimited 3 (2004) [En] (1.0) License ELEGANCE
 magnet:?xt=urn:btih:2D65EBA517E4E86826BD2A8800C5E3C8FB0C8947
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:2D65EBA517E4E86826BD2A8800C5E3C8FB0C8947
 ```bash
 magnet:?xt=urn:btih:0A266AE57169D1D9C32140F79EB8330F065AC292
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:0A266AE57169D1D9C32140F79EB8330F065AC292
 magnet:?xt=urn:btih:3DFD231F22C49586771FDF11CD313958458C8CEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:3DFD231F22C49586771FDF11CD313958458C8CEF
 ```bash
 magnet:?xt=urn:btih:10AECA187BCD86C039D8D3D43DF01CED575F023D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:10AECA187BCD86C039D8D3D43DF01CED575F023D
 magnet:?xt=urn:btih:07EAE49101E10FE0F567F279C472226B496625AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:07EAE49101E10FE0F567F279C472226B496625AF
 ```bash
 magnet:?xt=urn:btih:C2E8C721B75A40ADBD0EF8EC10DEFEEC1483BEC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Win7codecs - пакет кодеков для установки в операц
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Win7codecs - пакет кодеков для установки в операц
 ```bash
 magnet:?xt=urn:btih:D28BA46AB1098FB7CA508FBA99932EAF50E003AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Download Master эффективно решает 3 главных пробле�
 magnet:?xt=urn:btih:A63B656896636277A72B203D89B39F53EA487E58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:A63B656896636277A72B203D89B39F53EA487E58
 ```bash
 magnet:?xt=urn:btih:FF85FDB76B76BC28BB7816A61EB9116BA13FDFC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:FF85FDB76B76BC28BB7816A61EB9116BA13FDFC7
 magnet:?xt=urn:btih:E98BC539F704653135968829636CDB18A543EB92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:E98BC539F704653135968829636CDB18A543EB92
 ```bash
 magnet:?xt=urn:btih:02FF5C1250661014D4264AF52D9E129D3CDE43EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ In Tormentata Quiete - Avant-Garde, Symphonic Black Metal группа из Ital
 magnet:?xt=urn:btih:0801CAAB6110203D8CA10467B5CF7637E3CE669C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Sebastian Bach - Give 'Em Hell (2014) Japanese Edition [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:530F31E7217E389044DE0E13BA3D26B1694805B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ Scanner - The Signal Of A Signal Of A Signal (2019) Touched Music [FLAC|Lossless
 magnet:?xt=urn:btih:674EA64AA45D2463612B97D932E8AC0AFFCD7148
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:674EA64AA45D2463612B97D932E8AC0AFFCD7148
 ```bash
 magnet:?xt=urn:btih:4A5F26F8AB0CD632280F002B7D8FD17EE2E8E645
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:4A5F26F8AB0CD632280F002B7D8FD17EE2E8E645
 magnet:?xt=urn:btih:A1BD5379492BE307AA173DE575186F24E4B47C98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:B29969539CE2D5457EA308AAD3959A2B4A68E800
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:B29969539CE2D5457EA308AAD3959A2B4A68E800
 magnet:?xt=urn:btih:E66AB457ED69B7AFD264861D61719116773F759C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:E66AB457ED69B7AFD264861D61719116773F759C
 ```bash
 magnet:?xt=urn:btih:27E6537375D94B4210172882987D0CEEB30A3ECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ Grand Magus - Sword Songs (2016) Japan [WavPack|Lossless|image + .cue] <Heavy Me
 magnet:?xt=urn:btih:0EAD917E7C5739616794D6480A419E7D19B1ABA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ magnet:?xt=urn:btih:0EAD917E7C5739616794D6480A419E7D19B1ABA8
 ```bash
 magnet:?xt=urn:btih:740DC97192474B46804D87AFDF583D1A63ED91C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +688,8 @@ VA - Instrumental Vibes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:02D6BB6C58D8A0B725CF5283F12C8B5BB11638C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

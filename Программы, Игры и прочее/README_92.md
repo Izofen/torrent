@@ -19,6 +19,8 @@ FullReader — многофункциональное приложение дл�
 magnet:?xt=urn:btih:CE5774CFFD74FBDE088943EAB117E23675716F10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Hollow Knight 1.0 (Unofficial port) Mod by Dan Cooper [Ru/Multi]
 magnet:?xt=urn:btih:76575621C5FA527A94D3014415FC6A7F0B2CBFD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:76575621C5FA527A94D3014415FC6A7F0B2CBFD3
 ```bash
 magnet:?xt=urn:btih:5AB2DD0EF3998139ACE31E7D063D04BA633E8906
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:5AB2DD0EF3998139ACE31E7D063D04BA633E8906
 magnet:?xt=urn:btih:F928FD545EE8CCA493DC062182CD736A67BB2CB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ GPS Waypoints Navigator v9.24 [Ru]
 ```bash
 magnet:?xt=urn:btih:3FAC1096D93002AC4A01EE017B1866DF381F0CB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:3FAC1096D93002AC4A01EE017B1866DF381F0CB3
 magnet:?xt=urn:btih:2C1EE14D9B82CAC6221C796BB221856812B75790
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ HD Camera Pro - Отличная камера с множеством настр
 ```bash
 magnet:?xt=urn:btih:5A1CCFC8F4E30B9631A76631ECB1E53883FE729A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Gismeteo - погодное приложение тире клиент для р
 magnet:?xt=urn:btih:71D8B18CEB592DAC43627AEF2FFBD0A885A7096C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:71D8B18CEB592DAC43627AEF2FFBD0A885A7096C
 magnet:?xt=urn:btih:ED51B7A0E40E907EDF06C33356007665CE9BDF06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Joy Walls стремится предоставить вам уникальны�
 ```bash
 magnet:?xt=urn:btih:482A88C9783167930F03E8369DA762FF12697484
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Aurora Store является альтернативой Google Play Store, с �
 magnet:?xt=urn:btih:5CB68E6DC6B4D6E8D27F607794650CD62263619D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ KinoHome 1.7.0 [Ru/En]
 magnet:?xt=urn:btih:62CB9AD7AE60B2D96FEB0B418ED40CDFA6E7AB53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Xmind: Mind Map & Brainstorm - отличный вариант как для о�
 ```bash
 magnet:?xt=urn:btih:ED2B10C298F77C3A8EDFA6EEEF7F5EA9292A4D04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:ED2B10C298F77C3A8EDFA6EEEF7F5EA9292A4D04
 magnet:?xt=urn:btih:C7C086A3A54B2A400F7F7302B267DE47138158A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ Wall Factory поставляется с потрясающими, уникал�
 ```bash
 magnet:?xt=urn:btih:FC8426FA29EBECA9706E884177018003DA930E08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ Strava: бег и велоспорт - ценное приложение для 
 magnet:?xt=urn:btih:88395113C363B0F8FB7283EDD528DED3210DF439
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Colorize Images - это сервис, основанный на автомат�
 ```bash
 magnet:?xt=urn:btih:54EB27B741C8F2160E07D6F1597722BD40D2483B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:54EB27B741C8F2160E07D6F1597722BD40D2483B
 magnet:?xt=urn:btih:CC4B69924E3F672EA075A5752C9588AE3D6985F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ Kinoplay позволяет бесплатно смотреть любимое �
 magnet:?xt=urn:btih:4763AD780FDD7C04157DD3EEB52FB282BCCAECC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:4763AD780FDD7C04157DD3EEB52FB282BCCAECC6
 ```bash
 magnet:?xt=urn:btih:308A529EEBF4EA612BA1B39E8FCFBC6905D68149
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:308A529EEBF4EA612BA1B39E8FCFBC6905D68149
 magnet:?xt=urn:btih:B6D85A2E3922D76A4E0AE816BC600256954AE987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ Colorize it v2.1.1 [Multi]
 magnet:?xt=urn:btih:5CEB3DBCCA9E6D8CFA9CB213F183B71FDBE7104C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ AI Photo Editor Pro - Polish v1.685.235 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:319B31A1053866BAA5CB02E8F67FBF53D055C07D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:319B31A1053866BAA5CB02E8F67FBF53D055C07D
 magnet:?xt=urn:btih:4FE85B62D1B5C69691B59A7A4F51A007821C5D2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ WeNote: заметки блокнот планер v6.50 Mod by PieMods [Ru/Mult
 magnet:?xt=urn:btih:F1612BF5F6A8906C5ED9EA9FEEF18FD4FB34D367
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ VRadio - Online Radio App v2.8.8 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C4A725D0CD08C370BD57E0A122B42FEF58B2CFC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ POPUCOM - кооперативный приключенческий платфо
 magnet:?xt=urn:btih:737126C3B3FC73627CFD8B03600C46F16D16215F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Nanomon Virtual Pet - это возможность завести неболь�
 ```bash
 magnet:?xt=urn:btih:CCCFA23008D2A4ED1D2314FEA12D8894EF97B010
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Capcom Fighting Collection 2 (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl
 magnet:?xt=urn:btih:FD529A83D9E4FF624EE46BB1C7DE6527C4D05A7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ DRAGON BALL: Sparking! ZERO - продолжение легендарной се
 ```bash
 magnet:?xt=urn:btih:5738935ABAD4A2533F085B9DDAC18E30A0788786
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ VVVVVV (2010) [Ru/Multi] (2.4.3) License GOG
 magnet:?xt=urn:btih:7AAC84F235F696E7B849E0A9797B7C3C9F18ADBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Suit for Hire - захватывающий экшн с видом сверху, 
 ```bash
 magnet:?xt=urn:btih:EDA696348CA66578F749883B49BA17389CD48676
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ TRON: Catalyst - новый изометрический приключенче�
 magnet:?xt=urn:btih:A477710FDC6CEE6A301383201EEC7AEAC8161270
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Goat Simulator 3 (2022) [Ru/Multi] (1.1.4.3_410056/dlc) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:F43EE7E38BA834A32A2EC644E15066C6D399117F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Reality Rash начинается после того, как корпорати
 magnet:?xt=urn:btih:A60FF77765C0EFE770033802260952A60FEA867D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Suit for Hire - захватывающий экшн с видом сверху, 
 ```bash
 magnet:?xt=urn:btih:8FEC18E09B6B093DF526586654DA3F633198F611
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Mortal Kombat XL - игровой сборник популярного арка
 magnet:?xt=urn:btih:7974D2C9CA359F6CD83D56C15F1492CB0BC15FA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Goat Simulator 3 - очередная абсолютно бестолковая 
 ```bash
 magnet:?xt=urn:btih:6040C4A27841CB5633DC70C5AA2FB4FD78CDC308
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Rift of the NecroDancer (2025) [Ru/Multi] (1.5.0/dlc) Repack FitGirl [Ultimate P
 magnet:?xt=urn:btih:26E890450D06627E801ECDE466BAD99305DFF002
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Kitty Collapse (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7BD28956170A02876869B1ADE47FED15AE2B02CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Downward - это живописная приключенческая игра �
 magnet:?xt=urn:btih:595DBCEF5ACA1B1927355395EDBE712179CDCADB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Mortal Kombat: Komplete Edition — полное издание аркадног
 ```bash
 magnet:?xt=urn:btih:979044012C994E3F8639D1986BCDC24C78452C2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Creatures: Village (2004) [En] (1.11) License GOG
 magnet:?xt=urn:btih:7F5FF802CE6ACB8FC9B5D7A2B7A32DEDA10D8562
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ I Was an Atomic Mutant! / Убойные будни (2003) [Ru] (1.0) License А
 ```bash
 magnet:?xt=urn:btih:BF2DBEA1736BD3AA631CF6CB010642AEE04BE44D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Zoeti уж точно нельзя назвать типичным карточ�
 magnet:?xt=urn:btih:82F37FD123B4072E6896D776CDB6920F15009A76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Nova Drift – экшеновое ролевое приключение с ви�
 ```bash
 magnet:?xt=urn:btih:2398E562F951826646D68066EBFC4D8C7072D1B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ DuckTales: Remastered - это красочный, нарисованный вр
 magnet:?xt=urn:btih:39B77F153E275E4FA4857E505B209FA9675CAFC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ CYGNI: All Guns Blazing (2024) [Ru/Multi] (1.000.004) License GOG
 ```bash
 magnet:?xt=urn:btih:D35CB3C2FF61142E7D79BFFC80525117E0CE28F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Spectator 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:FB41BCACDB8766B071DB152EBC35F7AEBCE6DC66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ World of Goo 2 (2024) [Ru/Multi] (1.0.13211) License GOG
 ```bash
 magnet:?xt=urn:btih:F9764980F4FEABC2352EB031A186F0F7D5F43836
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ MindKatt: First Strike (2025) [Multi] (Build 18559755) Repack Let'sРlay
 magnet:?xt=urn:btih:51F08526AD3CCADF749BF329314D2906B934A5AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Antonblast - это динамично взрывной платформер, в
 ```bash
 magnet:?xt=urn:btih:41873DC7FA5764084397492DB429E00A4618C6D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

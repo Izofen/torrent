@@ -20,6 +20,8 @@ Christmas -   этот экшен фотошоп, идеально подойд�
 magnet:?xt=urn:btih:20325F8935A73A5ACE4D995A56B7CDFE1F1921DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:20325F8935A73A5ACE4D995A56B7CDFE1F1921DD
 magnet:?xt=urn:btih:7CA7695582439E87D7AA94DBA3CAFF16BF4132BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Elysion - наш большой ответ на большие вопросы! �
 magnet:?xt=urn:btih:FF28189470F2465B7B59C2362BE7542F2DAD8CB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ PSD Format Vol 15 - часть 15 из 55. Все файлы безукориз�
 ```bash
 magnet:?xt=urn:btih:9C4F9C6640F522DE63B10FE768242C536CD51AFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:9C4F9C6640F522DE63B10FE768242C536CD51AFF
 magnet:?xt=urn:btih:1DC5D7D681707BBBDFE7520047C72E8F6AF7D4F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:1DC5D7D681707BBBDFE7520047C72E8F6AF7D4F3
 ```bash
 magnet:?xt=urn:btih:B9F2B436583CBC7CFE60507D2A394ED2D5CD3CF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:B9F2B436583CBC7CFE60507D2A394ED2D5CD3CF1
 magnet:?xt=urn:btih:3BDF0D8D954716FEBC6DFA0D4294BCCF150D4ACF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:3BDF0D8D954716FEBC6DFA0D4294BCCF150D4ACF
 ```bash
 magnet:?xt=urn:btih:F134490923E8A2963A04643399D50CD22E95F223
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:F134490923E8A2963A04643399D50CD22E95F223
 magnet:?xt=urn:btih:3396AE2F29461D515FFAAD396ABB60E0EE7E45C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:3396AE2F29461D515FFAAD396ABB60E0EE7E45C4
 magnet:?xt=urn:btih:3039592CFB38B840E1B3727A1A4D7B0E78F9DFBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:3039592CFB38B840E1B3727A1A4D7B0E78F9DFBA
 magnet:?xt=urn:btih:9EDA00911E7512C5C8CDED99603430B24B7C4E10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ Let It Snow - добавьте реалистичный снег для ваши
 ```bash
 magnet:?xt=urn:btih:3EC98B34E8BB8F9B7703626DBE4EF7935000A92F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ Gif Animated Sparkler - эффект анимации бенгальских о�
 magnet:?xt=urn:btih:65F3CF8353C552A601E0BF25540F9954FDBF1BB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ Animated Snow - многофункциональный Photoshop экшен пр
 ```bash
 magnet:?xt=urn:btih:D3794641213413D984EFAEB531A035BEC42CDF20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ Zombie - экшен для Вашего творчества. Для дости�
 magnet:?xt=urn:btih:D3FD189ACC4717C983AE1BED4145DA7C9A398AB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ CC Panting Effect - этот набор действий был разработ
 ```bash
 magnet:?xt=urn:btih:5ECC198DF0E6372B0D0DAE6993AA4A58FB939A3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:5ECC198DF0E6372B0D0DAE6993AA4A58FB939A3C
 magnet:?xt=urn:btih:554E1941D7D6E7F57BEE1F91163C22FDA808341E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:554E1941D7D6E7F57BEE1F91163C22FDA808341E
 ```bash
 magnet:?xt=urn:btih:918DBB1C2E89932D4C1DCA01E2E80943F09B0A2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:918DBB1C2E89932D4C1DCA01E2E80943F09B0A2C
 magnet:?xt=urn:btih:900D13E988C902872CB2817D85A5B342C2A00C43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:900D13E988C902872CB2817D85A5B342C2A00C43
 ```bash
 magnet:?xt=urn:btih:34CA80E053031B78D645E18EFE1F86448341CF30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +555,8 @@ Watermark Pattern Generator - Создайте свой собственный �
 magnet:?xt=urn:btih:7B06DB535D96F3CF4E9B8194FFC56BDC69C0D0C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ Exclusive Overlays Collection - эта коллекция состоит из 10
 ```bash
 magnet:?xt=urn:btih:397F719BB0355B08B824DAAC1DD53966E7F855B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:397F719BB0355B08B824DAAC1DD53966E7F855B4
 magnet:?xt=urn:btih:111681E1FB8F01CF8CB3E40788F8193C14E23362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ Beginnings - универсальная и эффектная библиотек
 ```bash
 magnet:?xt=urn:btih:4ED73D3DB443CC6A7855FAD158BDAABC1527EDA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ Pencil Drawing Effect - это действие Photoshop преобразует
 ```bash
 magnet:?xt=urn:btih:EB29168A479B6CFA91CFF272AA46D3C605D46699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:EB29168A479B6CFA91CFF272AA46D3C605D46699
 ```bash
 magnet:?xt=urn:btih:EE0086D3F109B79C3F47D1C3707D2E01840B331C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

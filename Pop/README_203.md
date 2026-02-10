@@ -1,3 +1,154 @@
+###  Публикация: 1234551   (567954) от 07.07.2018
+
+Krono - Krono (1979) LP [MP3|320 Kbps] <Electronic, Space Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bareback (5:42)
+02. Jamaica Electric (6:30)
+03. Manhattan (6:29)
+04. Krono (6:51)(   Читать дальше...   )Жанр: Electronic, Space DiscoПродолжительность: 00:33:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE7C9E1B521E6725B17ADD1715A6B6B971752FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922702   (568175) от 29.07.2015
+
+Kristine - Kristine (2015) [MP3|320 кб/с]<80's Retrowave, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern Love [04:50]
+02. The Danger [03:40]
+03. Summer Long Gone [04:17]
+04. The Rhythm of Love [03:40](   Читать дальше...   )Жанр: 80's Retrowave, SynthpopПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8E7AEF5857CC46D666161955DFE376841AB28D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 529174   (568199) от 30.07.2012
+
+Madonna - Greatest Hits (2008) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568199.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1
+01. 4 Minutes
+02. Hung Up
+03. Miles Away
+04. Jump
+05. Die Another Day
+06. Hey You
+07. American Life
+08. American Pie
+09. Beatiful Stranger(   Читать дальше...   )Жанр: PopПродолжительность: 02:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB330780F784391EB8922A71C566D9209F9CAF63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922643   (568217) от 29.07.2015
+
+Bea Miller - Not An Apology (2015) [OGG|474-539 кб/с]<Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Young Blood (03:41)
+02. Fire N Gold (03:32)
+03. I Dare You (03:26)
+04. Paper Doll (03:36)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31288E2E404B25C1454344F31C08167D6D1CBC50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137722   (568438) от 21.07.2017
+
+Yulduz Usmanova (Usmonova) - 17 Albums (1993-2014) [MP3|128-320 Kbps] <Pop, Ethno-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юлдуз Усманова (Усмонова) — известная как «примадонна восточной эстрады», узбекская эстрадная певица, композитор, поэт-песенник, продюсер, народная артистка Узбекистана, заслуженная артистка Таджикистана, Туркменистана, Казахстана. В её репертуар входит более 600 песен на узбекском, турецком, уйгурском, казахском, татарском, русском, таджикском, персидском и других (   Читать дальше...   )1993 - Alma Alma
+1995 - Jannona
+1996 - Binafscha
+1997 - The Selection AlbumЖанр: Pop, Ethno-PopПродолжительность: 15:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A85D4AEEB972F1A374B407166CF9C81DDDC64D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044087   (568534) от 18.08.2016
 
 Евгений Осин - Разлука (2016) [FLAC|Lossless|image + .cue] <Pop>
@@ -21,6 +172,8 @@
 ```bash
 magnet:?xt=urn:btih:71BA0160926DF9A054C2E3B42093CF319A004F55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +202,8 @@ Lana Del Rey - Lust For Life (2017) [FLAC|Lossless|Web-DL|tracks] <Indie Pop, Ba
 magnet:?xt=urn:btih:E92AB40B66B3BB0F53A6CD28BDB62AFA38BF0A2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +227,8 @@ Sting - My Songs (2019) (Deluxe) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:74C3021F76B2DFB3E3B3B80CF643015DA8F5935E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +257,8 @@ Geoff Love's Big Disco Sound - 4 Albums (1976-1980) LP [MP3|320 Kbps] <Electroni
 magnet:?xt=urn:btih:D7C6DD42965763812E59116EC764802123A78C47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +286,8 @@ Tommy Seebach - Disco Tango (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Dis
 magnet:?xt=urn:btih:FC49AFE2433D781565F33535AC374140AAFAEED8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +314,8 @@ VA - Disco Tape Vol 4 (2016) [MP3|320 Kbps] <Disco>
 ```bash
 magnet:?xt=urn:btih:7A6064EFEDC309FE22C8833A7CD52E4EE4C85AAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +350,8 @@ magnet:?xt=urn:btih:7A6064EFEDC309FE22C8833A7CD52E4EE4C85AAB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +378,8 @@ Lake Street Dive - Side Pony (2016) [FLAC|Lossless|tracks + .cue] <Jazz, Funk, P
 ```bash
 magnet:?xt=urn:btih:2AFF82998270248B3CE11182DCE7CEE1841E3063
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +408,8 @@ Norman Harris - The Harris Machine (1980) LP [MP3|320 Kbps] <Disco, Funk, Soul>
 magnet:?xt=urn:btih:B868E201B0449FF408424A53BD60D1E9E7159F84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +437,8 @@ VA - Absolute Summer Hits (2013) 2CD [FLAC|Lossless]<Pop, Rok, R&B, Dance>
 magnet:?xt=urn:btih:0DA04BACD64096FBDE5EB94078D56AB0229D5091
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +465,8 @@ Ricchi E Poveri - Allegro Italiano (1992) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:AFBE5B7765DD2745E33E8201C7E1B76A19B7F243
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +501,8 @@ CD-1
 magnet:?xt=urn:btih:7AC3543C058A1A2AEEFCAE5C5FE0E640560000DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +530,8 @@ Made In U.S.A. - Melodies (1977) Reissue, 2017, Octave Lab [MP3|320 Kbps] <Elect
 magnet:?xt=urn:btih:A270120F85ADD97513A97C8948A2EACDF8E76880
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +558,8 @@ Andy Jonas (Angel X, Andreas Harde) - 7 Relises (1996-2017) [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:3647C3A4B6CAB89D7CB94DB4D9D56C3847B9B02F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +594,8 @@ Czerwone gitary / Червоны Гитары - 16 альбомов (1966-2007) 
 magnet:?xt=urn:btih:7B3008E0025A1D73CC2B2E86FC1E41EC7A5E43C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +622,8 @@ Joe Yellow - Yellowgraphy (2016) 2CD, Compilation [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:0E418E763EE17C99779E23F9C6AAA7C687063960
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +652,8 @@ Wham! - The Final (1986) K2HD Mastering, 2014, Sony Music [FLAC|Lossless|tracks 
 magnet:?xt=urn:btih:85BC2B87163A75B03C7508586EB50161D71A1C33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +680,8 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:794B31FFA3E75CCAA0B6690248CDD831905D4F83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +716,8 @@ Babe - Hollands Glorie (2003) [FLAC|Lossless]<Disco>
 magnet:?xt=urn:btih:F22DB5801840F4E75C5FD6F3C2BE230DAA46D038
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +751,8 @@ Babe - Never Listen To A Bouzouki Player (2001) [FLAC|Lossless]<Disco>
 magnet:?xt=urn:btih:57D9FB8B49EA2085812D7C3F8B85C53E19383CF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,140 +780,7 @@ Gwen Stefani - This Is What The Truth Feels Like (2016) Japanese Edition [FLAC|L
 magnet:?xt=urn:btih:2F8757F7673FAF611D513362E4EE648658D2EA5D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043806   (570931) от 17.08.2016
-
-Lukas Graham - Lukas Graham (2015) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 7 Years 03:57
-02. Take The World By Storm 03:11
-03. Mama Said 03:26
-04. Happy Home 03:38(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0A5F6FA4C917AE40FC047EAFCB99DB5A0DF2323
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303647   (570968) от 22.05.2019
-
-Laurence Castera - Les hauts lieux (2019) [FLAC|Lossless|tracks + .cue] <French Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jouer le jeu (3:57)
-02. De l'autre côté (3:32)
-03. Déposer les armes (3:36)
-04. L'élyme des sables (4:41)(   Читать дальше...   )Жанр: French Pop, Pop RockПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61CB5D5D20D1D64A5D272EBDA01B50279D00B93E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234264   (571011) от 05.07.2018
-
-Ольга Федотова - Сомнений нет! (1998) [FLAC|Lossless|image + .cue]<Рор>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Уйя - Айя
-02. Зимушка
-03. Шут
-04. Сомнений нет!(   Читать дальше...   )Жанр: РорПродолжительность: 01:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C9B10B2FD096B07EF3CD333F9DFE8BD11107C7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234393   (571013) от 05.07.2018
-
-MBAND - Грубый возраст (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Грубый возраст
-02. Baby
-03. Правильная девочка
-04. Лимбо(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEC217256394191E7606B38BE382AEF449EFEB61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234500   (571017) от 05.07.2018
-
-Hipnosis - Hipnosis (1984) LP [MP3|320 Kbps] <Electronic, Italo-Disco, Spacesynth>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inesi (1:15)
-02. Windland (4:48)
-03. Argonauts (4:48)
-04. Pulstar (4:20)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, SpacesynthПродолжительность: 00:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7723757965EEAAA8DB22A0125DD8EDD26F4C9D66
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

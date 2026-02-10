@@ -19,6 +19,8 @@ VirusTotal Mobile дает возможность проверить все ус
 magnet:?xt=urn:btih:FA2CDE32B907B733FABD9BA69447948C44234415
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Cube ACR - удобное приложение для записи исходя�
 ```bash
 magnet:?xt=urn:btih:D49DD0E548C28093ACDD199F112DA7E3946D6D97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:D49DD0E548C28093ACDD199F112DA7E3946D6D97
 magnet:?xt=urn:btih:5260A18704C9F318FE473AFD1D8C26CEBD683D3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Microsoft SwiftKey — это интеллектуальное приложен�
 ```bash
 magnet:?xt=urn:btih:4D15F80F7891B3F3BF8EB549C6E60033EC9D26B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Mirror Plus: Mirror with Light / Зеркало Плюс v4.3.12 Mod by srajawwa
 magnet:?xt=urn:btih:7E1FECC1824D4FDD91AF1423E6AFB0F91D4B8E09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ GPS АнтиРадар v44.1 Mod by 0x7d [Ru]
 ```bash
 magnet:?xt=urn:btih:A96C211C0BA347F1875A978CE9518B1B24123806
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Spotify 8.9.38.494 Mod by LITEAPKS [Ru/Multi]
 magnet:?xt=urn:btih:5B24B1B3739A4E16BD0FD08235AEB348F4E255E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Smart AudioBook Player Pro v10.8.6 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:87D365C3254084909D0EDE690746D43A0E8F84AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Melon VPN - это быстрый, неограниченный, стабиль�
 magnet:?xt=urn:btih:50C8E2F30F9CF88A7497FEA4C44D30DD5AE60A4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ BSPlayer - один из тех мультимедийных плееров, ч�
 magnet:?xt=urn:btih:1F22B4F9772AABD60A70198B38F398C876C8BD53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Prisma Art Effect Photo Editor / Арт - Фото в Рисунок v4.6.1.615 
 ```bash
 magnet:?xt=urn:btih:B36914CF5AC5F54A042E14A97C682149D5481351
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ HeadUp Display (HUD) – это возможность использовать 
 magnet:?xt=urn:btih:229B386681889537AD1BF964E3D65BF5FA2972D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ tvQuickActions позволяет назначить до 5 действий н�
 ```bash
 magnet:?xt=urn:btih:A9BD23B4F71FD1932B583B0F3AA06A04847C8D87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ Spotify 8.9.36.616 Mod by LITEAPKS [Ru/Multi]
 magnet:?xt=urn:btih:A79F83B8E0872D003A5BEA633FCF0EA72D426B23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ VPN Servers for OpenVPN 46 [Ru]
 magnet:?xt=urn:btih:1A0140672F3CCD41D113530F21F772251429AB26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ Malwarebytes Mobile Security – это антивирусное приложе�
 ```bash
 magnet:?xt=urn:btih:56D3AD582B0DA6D18D8BB48AFA1A853F3323C062
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ Malwarebytes Mobile Security – это антивирусное приложе�
 magnet:?xt=urn:btih:F191F29940D89B8F543905535A09BF6254F1C89B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ ToonMe v0.7.7 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:26E72F203E8E793C24503793E16FBA8898912727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:26E72F203E8E793C24503793E16FBA8898912727
 magnet:?xt=urn:btih:2ED408CE2B6F2B75756349D6F73C10FD930943D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ Listen Audiobook Player v5.2.7 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5C1CE0C6C367593BBD03957AF443136E6B12C746
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ vpnify: лучший БЕСПЛАТНЫЙ, БЕЗЛИМИТНЫЙ и высок�
 magnet:?xt=urn:btih:1D71C785FDAEAEDBC259DA42CA04105EB17B6C5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ vpnify: лучший БЕСПЛАТНЫЙ, БЕЗЛИМИТНЫЙ и высок�
 ```bash
 magnet:?xt=urn:btih:4F4E7697F58216831C09462B05AC61E6A919DF44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:4F4E7697F58216831C09462B05AC61E6A919DF44
 magnet:?xt=urn:btih:1761AE4BB7CDB0D6B51BC47B571B70D904EA7811
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ Enhance it v4.1.8 Mod by srajawwal09 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7A8B0A8C8B8871A1DEE5C89A0147F001430191DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ FBReader Premium v3.6.6 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:E0167622F99E122C9B98EC904B5D3B58DBDC99E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ Carista — мобильное приложение, с помощью кото�
 ```bash
 magnet:?xt=urn:btih:9AE3A751F38541095901354EB0E72A99230D4209
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

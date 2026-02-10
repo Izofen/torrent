@@ -1,3 +1,29 @@
+###  Публикация: 914288   (599834) от 01.07.2015
+
+Андрей Дачник | Водопровод на даче из колодца: схемы основных элементов для сборки своими руками (2014) [PDF, DOC]
+
+>>Разное (категория книг)
+>>Строительство и ремонт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599834.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной брошюре представлены подробные схемы для монтажа системы водоснабжения в дачном доме. Подача воды осуществляется из колодца (скважины "на песок") с использованием погружного насоса или насосной станции. Брошюра отражает личный опыт автора.Жанр: домоводствоФормат: PDF, DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F44D8256A19A4B5BE04E7431839C454EC1FE8266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914091   (599963) от 01.07.2015
 
 Бен Голдакр | Вся правда о лекарствах. Мировой заговор фармкомпаний (2015) [FB2, EPUB]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:75F02A212551B1CFB6EFD316224DC80E3908E8B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:75F02A212551B1CFB6EFD316224DC80E3908E8B9
 ```bash
 magnet:?xt=urn:btih:1B9BA6D6576E4D79E4BDB60D434472CD6ABA8AA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +102,8 @@ magnet:?xt=urn:btih:1B9BA6D6576E4D79E4BDB60D434472CD6ABA8AA1
 magnet:?xt=urn:btih:EF2896FE1D93A93D42C1C09F399D7D334C6EE4DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +130,8 @@ magnet:?xt=urn:btih:EF2896FE1D93A93D42C1C09F399D7D334C6EE4DF
 magnet:?xt=urn:btih:035688FD4BBA4070835413237CB6E9F5372219F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +155,8 @@ magnet:?xt=urn:btih:035688FD4BBA4070835413237CB6E9F5372219F2
 ```bash
 magnet:?xt=urn:btih:C379FADAA0006553A093ACBD63B235B231E53CEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +182,8 @@ magnet:?xt=urn:btih:C379FADAA0006553A093ACBD63B235B231E53CEE
 magnet:?xt=urn:btih:163A70D905ECBFB86055302E355FBC71ED452A76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:163A70D905ECBFB86055302E355FBC71ED452A76
 ```bash
 magnet:?xt=urn:btih:6D1100D479A37FDF11BFA7CA81B006C4C2AF42BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +236,8 @@ magnet:?xt=urn:btih:6D1100D479A37FDF11BFA7CA81B006C4C2AF42BF
 magnet:?xt=urn:btih:5F23FEB27D165EEF28A74908828400D0A72EAF86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +263,8 @@ magnet:?xt=urn:btih:5F23FEB27D165EEF28A74908828400D0A72EAF86
 magnet:?xt=urn:btih:098A42DF9276EF1663115E879824F37E41331764
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +288,8 @@ magnet:?xt=urn:btih:098A42DF9276EF1663115E879824F37E41331764
 ```bash
 magnet:?xt=urn:btih:336EC01B9F32207AEA4CB66F04F6AC68FCCF24D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +317,8 @@ magnet:?xt=urn:btih:336EC01B9F32207AEA4CB66F04F6AC68FCCF24D3
 magnet:?xt=urn:btih:EA20314FFBCDAF3025507A056590A50C73E4592D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +342,8 @@ magnet:?xt=urn:btih:EA20314FFBCDAF3025507A056590A50C73E4592D
 ```bash
 magnet:?xt=urn:btih:8075402C82A87F5D2162C3C125175DDD09C7BDF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +369,8 @@ magnet:?xt=urn:btih:8075402C82A87F5D2162C3C125175DDD09C7BDF7
 magnet:?xt=urn:btih:083D7A7253E66F56B6B125D633B042110D250211
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:083D7A7253E66F56B6B125D633B042110D250211
 ```bash
 magnet:?xt=urn:btih:9A50C786AE351B62944019C6BB08E9CC44555542
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +422,8 @@ magnet:?xt=urn:btih:9A50C786AE351B62944019C6BB08E9CC44555542
 magnet:?xt=urn:btih:A365A643E8EC62B6C33F5301DCECE3DA307D9B87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +447,8 @@ magnet:?xt=urn:btih:A365A643E8EC62B6C33F5301DCECE3DA307D9B87
 ```bash
 magnet:?xt=urn:btih:5C58263B92B5D9E0F0B7AED59482F610EF6B07D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +475,8 @@ magnet:?xt=urn:btih:5C58263B92B5D9E0F0B7AED59482F610EF6B07D6
 magnet:?xt=urn:btih:5D3B77532E882616E58F4786C880E8A0E7BF1964
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +502,8 @@ magnet:?xt=urn:btih:5D3B77532E882616E58F4786C880E8A0E7BF1964
 magnet:?xt=urn:btih:9E128B7E5F6A0042A432B812A0D26F595D17EA12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +528,8 @@ magnet:?xt=urn:btih:9E128B7E5F6A0042A432B812A0D26F595D17EA12
 magnet:?xt=urn:btih:FFC83F84C927C4EF02E3AFA897DD466F84C2C217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +553,8 @@ magnet:?xt=urn:btih:FFC83F84C927C4EF02E3AFA897DD466F84C2C217
 ```bash
 magnet:?xt=urn:btih:CC3DDB8852EAA3B3F94E6230FF804BDEC289B8AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +581,8 @@ Bibles.org.uk (изд.) | Библия (2007) [PDF] [ARM]
 magnet:?xt=urn:btih:647041689228C2F87DED6BDA75130C50720812CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:647041689228C2F87DED6BDA75130C50720812CD
 ```bash
 magnet:?xt=urn:btih:BC99B14C98CB87CB3394AA174121F23C832D2244
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +633,8 @@ magnet:?xt=urn:btih:BC99B14C98CB87CB3394AA174121F23C832D2244
 magnet:?xt=urn:btih:3D3013D4FBBFB0DDF7ADFE42C26596B418556346
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:3D3013D4FBBFB0DDF7ADFE42C26596B418556346
 ```bash
 magnet:?xt=urn:btih:77DDE4D5DBDFFBB73998D23F7B2D3B4641767EC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,29 +685,7 @@ magnet:?xt=urn:btih:77DDE4D5DBDFFBB73998D23F7B2D3B4641767EC4
 magnet:?xt=urn:btih:D52EEC4D40B1B3C4B0EC94D266F85F7E032F77ED
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299112   (600706) от 30.04.2019
-
-Арнольд Эрет | Живое питание по методу доктора Эрета (2019) [PDF]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Целебная бесслизистая диета профессора Эрета – природный метод лечения, предусматривающий потребление «живой» пищи – свежих фруктов, овощей, орехов и семян. То, что он называет «слизью», является накапливающимися в организме отходами неестественной пищи, приправ, искусственных витаминов, минеральных веществ. Целебная диета, сыроедение, правильный выбор и обработка (   Читать дальше...   )Жанр: ЗдоровьеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAF6703EFEB3C87BD494EA431D693D34E29EBDFD
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

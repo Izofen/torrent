@@ -19,6 +19,8 @@ Summer Slideshow - примените это слайд-шоу с эффекто
 magnet:?xt=urn:btih:73EF63E9B493865864EEB7AD48533E7383294C1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Text Box Tool - шаблон текстовых эффектов.Формат: A
 ```bash
 magnet:?xt=urn:btih:4011D234CECAE7078F408460DE2EEB01F160249E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Sliding Titles Opener - стильный медиа-нож с текстовой
 magnet:?xt=urn:btih:5E626AD2F9E2D24E6B52CDF9B74F508236697BC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Happy Colors - стильный проект, идеально подходящ�
 ```bash
 magnet:?xt=urn:btih:C556C5B51AA9CF7EABDF27ED5FF1F963FEC926DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Vintage Badges Builder - инструментарий, с помощью кот�
 magnet:?xt=urn:btih:C266C2A971197B8B42986339A0CF186A60FA70D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:C266C2A971197B8B42986339A0CF186A60FA70D2
 magnet:?xt=urn:btih:5385C4D4C1DABFC8F10F7D1777207FEAAA8659AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ magnet:?xt=urn:btih:5385C4D4C1DABFC8F10F7D1777207FEAAA8659AD
 ```bash
 magnet:?xt=urn:btih:254D75C38A28847174102E4B1C64C2E6A8A7877C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ History Slideshow - это мощный шаблон After Effects с творч
 magnet:?xt=urn:btih:F05C70A408B05C8DB2DF7948583027AD4FA7BDC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ History Slideshow - шаблон AE с визуальными эффектами
 magnet:?xt=urn:btih:3F5A15706E6C93378117F9F03D288DEE7D718CB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:3F5A15706E6C93378117F9F03D288DEE7D718CB6
 ```bash
 magnet:?xt=urn:btih:26277EFD62E46CC36439CEBED3990E062DB914E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:26277EFD62E46CC36439CEBED3990E062DB914E1
 magnet:?xt=urn:btih:9A3C76AD352BCB804455661495A23AF241FFD83D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:9A3C76AD352BCB804455661495A23AF241FFD83D
 magnet:?xt=urn:btih:8E9ABB6186592E9103F26C8CBC3B402C42D2AFB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:8E9ABB6186592E9103F26C8CBC3B402C42D2AFB0
 ```bash
 magnet:?xt=urn:btih:186940385906CA3687BB41F58DA40F14CC117B8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:186940385906CA3687BB41F58DA40F14CC117B8E
 magnet:?xt=urn:btih:0B39B1ED97C12FEE348CFF2EC91E520BE0681C96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:0B39B1ED97C12FEE348CFF2EC91E520BE0681C96
 ```bash
 magnet:?xt=urn:btih:99303B0C2422112FCAD2064A7C8DEAA77E2923D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:99303B0C2422112FCAD2064A7C8DEAA77E2923D9
 magnet:?xt=urn:btih:F12FAE9C3F15C8C5E7BEFCC684C24B7CDF62909A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:F12FAE9C3F15C8C5E7BEFCC684C24B7CDF62909A
 magnet:?xt=urn:btih:7531EBE28F3B4B8A2B60B6AD4AB1CBCEC05FF82B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:7531EBE28F3B4B8A2B60B6AD4AB1CBCEC05FF82B
 ```bash
 magnet:?xt=urn:btih:F6E4F74F62E194FBDE659EC09B1E9C78F48951DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:F6E4F74F62E194FBDE659EC09B1E9C78F48951DD
 magnet:?xt=urn:btih:EB1578FC97E1428DCE8D87BE2A232C9A6308C236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Colorful Presentation - анимированный шаблон AE с текст
 ```bash
 magnet:?xt=urn:btih:3E480B16A8470F84DC5968987B93ECCF1B5105B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:3E480B16A8470F84DC5968987B93ECCF1B5105B2
 magnet:?xt=urn:btih:D4CDA86FB4253ABA128DF6896FB7ACCDC4AAF2D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:D4CDA86FB4253ABA128DF6896FB7ACCDC4AAF2D1
 magnet:?xt=urn:btih:D161EC3A177E6B45CCBF28C230E2F3BB04490055
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:D161EC3A177E6B45CCBF28C230E2F3BB04490055
 ```bash
 magnet:?xt=urn:btih:F4889C6BDE2D452CBBD4370A01ACE1B49CEFF4E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ magnet:?xt=urn:btih:F4889C6BDE2D452CBBD4370A01ACE1B49CEFF4E6
 magnet:?xt=urn:btih:16980452058888D1C6664F7CF9DD1F2910454D0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ magnet:?xt=urn:btih:16980452058888D1C6664F7CF9DD1F2910454D0B
 ```bash
 magnet:?xt=urn:btih:9F5D23FE363972343C72E91E761FF3348C8DD6B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:9F5D23FE363972343C72E91E761FF3348C8DD6B2
 ```bash
 magnet:?xt=urn:btih:2CEC6C3F067E4A0871FAC28C1D6EC2088DD90F79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

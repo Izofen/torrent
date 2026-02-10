@@ -19,6 +19,8 @@ Twilight Wars - dungeon crawler в киберпанк-сеттинге, где �
 magnet:?xt=urn:btih:672EE013CC9A5EA69DD27A640C4A9435CC7DE246
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Broken Sword - Shadow of the Templars Reforged (2024) [Ru/Multi] (1.1.8) Repack 
 ```bash
 magnet:?xt=urn:btih:DCD3CF7D265B9BD8EB2359955D344D7933BCC31F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Kathy Rain 2: Soothsayer устанавливает действие в 1998 г�
 magnet:?xt=urn:btih:A3D55E6C1A8B5FF1F9953257B689951F0E512DB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Immortal Life (2024) [Multi] (1.0.43) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:CCFF63B4332F964071CD47FB2FB39FF9110DB551
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Golf With Your Friends (2020) [Ru/Multi] (19.981700/dlc) License GOG
 magnet:?xt=urn:btih:586EAB9C84732B7EBE4AB96809DDFD3C0AC32FF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Mind Echoes 2: Remnants of the Past (2025) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:4990B48A98E3249F0703D41253C8A8027CC0EEE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ DreadOut Remastered Collection (2025) [Ru/Multi] (2.2.18f/1.0.8) Repack FitGirl
 magnet:?xt=urn:btih:878E557F4A10CE7EAE90714E7AA16DB720A02CE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ ICBM – стратегия в реальном времени про глоба
 ```bash
 magnet:?xt=urn:btih:50043427E226E1E4DDA4233831239D9F6FD52286
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Go Home Annie (2024) [Ru/Multi] (1.0.36) License GOG
 magnet:?xt=urn:btih:2241AC0D820084119D0B6813589B9E5CEEB52421
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ RoadCraft (2025) [Ru/Multi] (1.5.D1PATCH.450651/dlc) Repack Other s [Rebuild Edi
 ```bash
 magnet:?xt=urn:btih:7B6CF097C616CF1F2741DD2B52D43AAEC07D3E01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Disney Illusion Island - это двухмерное приключение дл
 magnet:?xt=urn:btih:4885744B78D58015FB03EDAD494D645D7D966CFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Zombie Cure Lab (2022) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D257D91C4456B54FFC00B6C277901B13B413D9B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Terraformers предлагает вам построить космическу
 magnet:?xt=urn:btih:FC7E805D227127AF2AA041485781D373226EB7D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Astral Ascent переносит геймеров в современный фе
 ```bash
 magnet:?xt=urn:btih:FDE377009791E32E106EA200D622766E4A913F22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Star Mission: Remote Sectors (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 magnet:?xt=urn:btih:2790C165421E78EC1CAA5FD1B94612273B995BF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Antonblast - это динамично взрывной платформер, в
 ```bash
 magnet:?xt=urn:btih:41873DC7FA5764084397492DB429E00A4618C6D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Frozenheim – сага о викингах, в которой главного 
 magnet:?xt=urn:btih:E213B52A3A07E8F0F73D3F29A1D9CF976DB1E0B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ FANTASY LIFE i: The Girl Who Steals Time (2025) [Multi] (Build 29056319) Scene T
 ```bash
 magnet:?xt=urn:btih:177B70A23FAED87B78DD3D0747DA59E436E97DE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Flashing Lights: Police, Firefighting, Emergency Services Simulator – это �
 magnet:?xt=urn:btih:1FF2E9020D1D8F64E000E957971E7E1FB4F21DFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Near-Mage (2025) [Ru/Multi] (1.0.0b/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:64DB7CC17AC729274068EBC5D3AB741F8C81C821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Rail Route – экономический симулятор, в котором 
 magnet:?xt=urn:btih:79594BD37FEF0B1132A03FDC20361FCEC3A2FD30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Psychoscopy - это кооперативная хоррор-игра для 5 �
 ```bash
 magnet:?xt=urn:btih:A42224B6D0F7EA9F44433FC28B834DCD5A82E987
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ FANTASY LIFE i: The Girl Who Steals Time (2025) [Multi] (1.1.1/dlc) Repack FitGi
 magnet:?xt=urn:btih:5A426AA436B7E11BDDBBEBB4E5923B402397CB3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Galacticare (2024) [Ru/Multi] (1.2.3/dlc) Repack Let'sРlay [Full Coverage Editi
 ```bash
 magnet:?xt=urn:btih:DFE37D724B602F6B8B05F1F379CF105EDDD67726
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.01/dlc) Repack seleZen [Deluxe Editio
 magnet:?xt=urn:btih:2547194C44DC9A51118855B93F44D296FF21DAD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Eternal Evil (2022) [Ru/En] (Build 9865535) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:F1873AF9470B1E35F38C281F24FB5865EAABC518
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

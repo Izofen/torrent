@@ -1,3 +1,31 @@
+###  Публикация: 926447   (533497) от 10.08.2015
+
+Дикая красота Корсики / Corsica wild beauty (2013) HDTVRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Средиземноморский остров Корсика - это достаточно внушительный по размерам уголок суши в данной акватории, но не этим он удивителен и примечателен.
+Экзотический и яркий мир Средиземного моря представлен тысячами островов, но Корсика всегда занимала особое место в плане флоры и фауны, истории и географии, климата, политического и общественного устройства.
+Данный регион (   Читать дальше...   )Производство: Франция | ARTE G.E.I.E., Centre National Du CinemaЖанр: Документальный, видовойРежиссер: Жан ФроманПеревод: Одноголосый закадровый, профессиональный | ТПО Ред МедиаПродолжительность: ~00:27:00 x 5
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2E90CBCB5AAA822AD64D00E6089C0304A332A69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926582   (533501) от 10.08.2015
 
 Тайны нашего кино. Калина красная (2015) SATRip
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:90F99DA182D7A821EAC58692B6A4BA2BB55FA4CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:90F99DA182D7A821EAC58692B6A4BA2BB55FA4CC
 magnet:?xt=urn:btih:51D9940E789F7B1DBA889FA65F21F06B405BF06E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +98,8 @@ magnet:?xt=urn:btih:51D9940E789F7B1DBA889FA65F21F06B405BF06E
 ```bash
 magnet:?xt=urn:btih:1B1E229E259EFB408B4C0993B733B200870FD545
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +125,8 @@ magnet:?xt=urn:btih:1B1E229E259EFB408B4C0993B733B200870FD545
 magnet:?xt=urn:btih:0297ED77237B56B952C7AD15E0A91E252BFC1AF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +150,8 @@ magnet:?xt=urn:btih:0297ED77237B56B952C7AD15E0A91E252BFC1AF0
 ```bash
 magnet:?xt=urn:btih:C1C464722CCF253283B3654EAC5E14891370B751
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +177,8 @@ magnet:?xt=urn:btih:C1C464722CCF253283B3654EAC5E14891370B751
 magnet:?xt=urn:btih:2C1A56A56C233A10B3B290C9472FEF9A4560CE83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +202,8 @@ magnet:?xt=urn:btih:2C1A56A56C233A10B3B290C9472FEF9A4560CE83
 ```bash
 magnet:?xt=urn:btih:48476956D51AA21686D5543BA8A234C97242A124
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +229,8 @@ magnet:?xt=urn:btih:48476956D51AA21686D5543BA8A234C97242A124
 magnet:?xt=urn:btih:7F7A936513B4BD8FB8BE7FFF552919E9AFE03E27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +254,8 @@ magnet:?xt=urn:btih:7F7A936513B4BD8FB8BE7FFF552919E9AFE03E27
 ```bash
 magnet:?xt=urn:btih:2DEF6BCBF12BFF86D39DA5369EBAFB8B27CBCAE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +281,8 @@ magnet:?xt=urn:btih:2DEF6BCBF12BFF86D39DA5369EBAFB8B27CBCAE9
 magnet:?xt=urn:btih:99CEAF22C4732C61E37B325076538606C02ED986
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +307,8 @@ magnet:?xt=urn:btih:99CEAF22C4732C61E37B325076538606C02ED986
 magnet:?xt=urn:btih:81BBC9C938DE6679B1CF4F5FE66B8F2A78807909
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +332,8 @@ magnet:?xt=urn:btih:81BBC9C938DE6679B1CF4F5FE66B8F2A78807909
 ```bash
 magnet:?xt=urn:btih:7937444C632383DC9971009A9DB812E59F85191B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +362,8 @@ magnet:?xt=urn:btih:7937444C632383DC9971009A9DB812E59F85191B
 magnet:?xt=urn:btih:C11485B9C9712E786C8C8FCCF2D1B62C2F4FD5A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +387,8 @@ magnet:?xt=urn:btih:C11485B9C9712E786C8C8FCCF2D1B62C2F4FD5A9
 ```bash
 magnet:?xt=urn:btih:015B084E2F10E5E70FE30A5045AA52B847A9DC5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +414,8 @@ magnet:?xt=urn:btih:015B084E2F10E5E70FE30A5045AA52B847A9DC5C
 magnet:?xt=urn:btih:3D3E1566FE5DF733CD24CFFB14722346063D8F37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +439,8 @@ magnet:?xt=urn:btih:3D3E1566FE5DF733CD24CFFB14722346063D8F37
 ```bash
 magnet:?xt=urn:btih:7A537BBE3821A39FDE41F2DD59144DE2FE552EC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +466,8 @@ magnet:?xt=urn:btih:7A537BBE3821A39FDE41F2DD59144DE2FE552EC3
 magnet:?xt=urn:btih:02BD0090007AD2DEFEF6627FCF8F2A9589A0FA48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +491,8 @@ magnet:?xt=urn:btih:02BD0090007AD2DEFEF6627FCF8F2A9589A0FA48
 ```bash
 magnet:?xt=urn:btih:E9E50C956F76DF933941FD3CEE1EC4982ECA2660
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +518,8 @@ magnet:?xt=urn:btih:E9E50C956F76DF933941FD3CEE1EC4982ECA2660
 magnet:?xt=urn:btih:03C98877969C74A8472426AABE589BB79E800551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +543,8 @@ magnet:?xt=urn:btih:03C98877969C74A8472426AABE589BB79E800551
 ```bash
 magnet:?xt=urn:btih:0693B2804417911D05DAE1EC2199A9555DA6458D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +570,8 @@ magnet:?xt=urn:btih:0693B2804417911D05DAE1EC2199A9555DA6458D
 magnet:?xt=urn:btih:66944193D047ABED356579CBFA799F8E2489EFF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +595,8 @@ magnet:?xt=urn:btih:66944193D047ABED356579CBFA799F8E2489EFF6
 ```bash
 magnet:?xt=urn:btih:F4C301CB62BFD797A45AD25818CF990038F51687
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +622,8 @@ magnet:?xt=urn:btih:F4C301CB62BFD797A45AD25818CF990038F51687
 magnet:?xt=urn:btih:521378C1407CDE95421E4BC2F57B9E4250229F6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +647,8 @@ magnet:?xt=urn:btih:521378C1407CDE95421E4BC2F57B9E4250229F6A
 ```bash
 magnet:?xt=urn:btih:3CF25C335B850090EFCCA3691AF4EEFD90B322CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,29 +674,7 @@ magnet:?xt=urn:btih:3CF25C335B850090EFCCA3691AF4EEFD90B322CD
 magnet:?xt=urn:btih:CB415E7D74DF68BF4E9EC27951D0A75C05471587
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051240   (534925) от 10.09.2016
-
-Подмосковные вечера (2016.09.10) SATRip (выпуск 8)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зрителям представится возможность попасть на веселую вечеринку, где соберутся известные в самых разных областях люди. Присоединяйтесь к веселью! Иван Ургант, Тимур Родригез, Михаил Галустян, Нюша, Иван Охлобыстин, участники "Квартета И", Елка, Александр Ревва, Анна Хилькевич, Максим Виторган и другие составят вам компанию. Звезды разделятся на команды, (   Читать дальше...   )Телекомпания: Первый каналЖанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2000F00AB3037F20DFACFC40D1E0FAFE1DF6AEFA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

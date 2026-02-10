@@ -19,6 +19,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:B238D5CA979E96D020CE1EE4D34AF6399D02B797
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Media Player Classic Home Cinema - удобный во всех планах м�
 ```bash
 magnet:?xt=urn:btih:A059DE6E2523F2294271959907C18140F1EE56C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ DxO PureRAW 2.4.0 build 8 RePack by KpoJIuK [Multi]
 magnet:?xt=urn:btih:A9E7C1DA8699874E448B9FAACC1A1C8C74505058
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:F77B19A48AF2B46DB05DDF762C7D1A1053743CC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ YouTube ReVanced - это реинкарнация проекта YouTube Vanced
 magnet:?xt=urn:btih:B376447F9ACA77FCD2440B701EF7CA74C16F3585
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:AFE5D52C8544F932414C80509D480BD799C1C0D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Microsoft .Net Framework 10.01.23 RePack by xetrin [Multi/Ru]
 magnet:?xt=urn:btih:563FC410ADE29939E2BEBFAA11DDD5A7F44FAA9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Paint.NET - Простой, но мощный и удобный редактор
 ```bash
 magnet:?xt=urn:btih:7F2D08DD8A2B27A5D49004B39768E9A81A0B7601
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Auslogics Driver Updater – программа представляющая с�
 magnet:?xt=urn:btih:36D2EC5737E2304F477345F5797A4478D41F4978
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ DiskDigger - маленькая утилита, с которой можно в�
 ```bash
 magnet:?xt=urn:btih:E179B1081AF2417E3A8E5BF8FE0DB2082F6A89CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Auslogics Disk Defrag Pro - это профессиональная версия
 magnet:?xt=urn:btih:C305404C2A598DC64B98465CED3EA6750B847161
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ FileMenu Tools настраивает пункты контекстного ме
 ```bash
 magnet:?xt=urn:btih:990608234F01A5AD4ED6DD1AD68B9EEF6AA56D6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 18.12.2022) [Ru]
 magnet:?xt=urn:btih:07ACE54C096774B4D6ED9A48B4F4EA305B9885F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ MAGIX Vegas PRO — профессиональная программа для �
 ```bash
 magnet:?xt=urn:btih:F39D09F151DF1570211C00A6317B69D0484F5ED5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Reg Organizer® - это многофункциональная программ
 magnet:?xt=urn:btih:7315FF3F4C50994CE1A916CFCF2288C435C04E86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Dash - очень удобное приложение, включающее в �
 ```bash
 magnet:?xt=urn:btih:A7AA81A29A808A610CED6EB01AD62ECD19B89018
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Audio Editor - Merge, Split And Edit - программа для редакти�
 magnet:?xt=urn:btih:C33E8B89AEF3EB4DAA13FF1226C901E80556E0C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Default Folder X - Расширяет функциональные возмож�
 ```bash
 magnet:?xt=urn:btih:BB34FBBA85542DE13446D928CE6C38436FE949D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Keep It 2.2.12 [Multi]
 magnet:?xt=urn:btih:69BF927F6FBE2938608D74F338351BB3D26883C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:07D24C15A196A87E6B65391ED8E11AB64FFB4B74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:07D24C15A196A87E6B65391ED8E11AB64FFB4B74
 magnet:?xt=urn:btih:F66346D216E497D451B65772D0CF4E94B402913D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:FDB3AAE3D99349DB058DA00707E154662DEB8701
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Aiseesoft Mac Video Converter Ultimate - мощная программа для 
 magnet:?xt=urn:btih:5E40936F4E2446484C4B0F09E58F181F9ECEE530
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ MouseBoost 3.2.0 [En]
 ```bash
 magnet:?xt=urn:btih:23347BA0714A3A8B39B0BD812F77D4037BB2765D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ Sip Pro 3.0.4 [En]
 magnet:?xt=urn:btih:1709E4F380741A55977686B013A7DF1A8BDF5C2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ IconTo Pro 7.1 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6A1D08F7DE111EF9A28DB661750F8BAE50F45369
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

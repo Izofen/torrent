@@ -22,6 +22,8 @@ Wham! - The Singles: Echoes from the Edge of Heaven (2023) Expanded Edition [FLA
 magnet:?xt=urn:btih:AA5EE587B10702756A82C1C378FE9F6FBD039009
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Across The Divide - Disarray (2020) [MP3|320 Kbps] <Metalcore>
 magnet:?xt=urn:btih:F0C1229EE1F4FA7F034CCA78D4A4DE69B8ECB60F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:F0C1229EE1F4FA7F034CCA78D4A4DE69B8ECB60F
 ```bash
 magnet:?xt=urn:btih:F9A4739AEE26B5F69ED4CDF14100EB69B25C6D27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Fobia - St. Dinfna Hotel погружает игроков в мрачные у�
 magnet:?xt=urn:btih:382DFCB2538B0A5085FE1898934128D0C3C109B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ PCDJ DEX 3 - профессиональное программное обесп�
 magnet:?xt=urn:btih:596D7304EB66F4FC79C78F47E2007B3654F39D53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:596D7304EB66F4FC79C78F47E2007B3654F39D53
 ```bash
 magnet:?xt=urn:btih:591C1ACD504D2E53F13AB7670DB0A64360AC9B59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ VA - The Orient Collective: Melodic Ethnic Beats (2023) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:638D67D18CE40A7F2589E0DDCE17300908839C31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:638D67D18CE40A7F2589E0DDCE17300908839C31
 magnet:?xt=urn:btih:2540B478ADB28C4FBBA945DD46B2D53901AB05AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:2540B478ADB28C4FBBA945DD46B2D53901AB05AD
 ```bash
 magnet:?xt=urn:btih:F21B6ABD9E6B363C583D0E9E8306DB1BA4D29EC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:F21B6ABD9E6B363C583D0E9E8306DB1BA4D29EC8
 magnet:?xt=urn:btih:2C6B5D7EA7757786754ABA570795BE3D1AB5B88A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:2C6B5D7EA7757786754ABA570795BE3D1AB5B88A
 magnet:?xt=urn:btih:6CD309273E44A9B27A248777378ABD9B19598E0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:6CD309273E44A9B27A248777378ABD9B19598E0E
 ```bash
 magnet:?xt=urn:btih:B8521034C677ACFCA95118C495281AFAEFDB2042
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ Kylie Minogue - Tension (2023) Deluxe [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dan
 magnet:?xt=urn:btih:4B7CF7824EC10993AE0235718685190B66E1BDE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:4B7CF7824EC10993AE0235718685190B66E1BDE6
 ```bash
 magnet:?xt=urn:btih:36530194B387EF9B8BE0FD3ECA526DDFDAD2FFDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ Tensai Ouji no Akaji Kokka Saiseijutsu | The Genius Prince's Guide to Raising a 
 magnet:?xt=urn:btih:E5B96052E0029A998D0913C9E152ED0B1914E7E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:E5B96052E0029A998D0913C9E152ED0B1914E7E9
 magnet:?xt=urn:btih:A530C77A6483CA4D0184CD063D41FB44EF882029
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ Draw.io 22.0.2 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D85F095B7537238399AFE38FC7B8170CB22616BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:D85F095B7537238399AFE38FC7B8170CB22616BD
 magnet:?xt=urn:btih:DA40866BB0F51AA6FCF6E5A49A4C2A01289BED35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:DA40866BB0F51AA6FCF6E5A49A4C2A01289BED35
 magnet:?xt=urn:btih:3DF0BEE3069EB5B4E04C8777D340C8D1CC4BC8B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:3DF0BEE3069EB5B4E04C8777D340C8D1CC4BC8B4
 magnet:?xt=urn:btih:48FCAEBA8FCE893E4B6D77F4897B5DB20EE1F2C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ NetLimiter - программа, решающая проблему контро�
 magnet:?xt=urn:btih:D61C9231D916AA7DB6EFF54835BF4B527D25BD71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:D61C9231D916AA7DB6EFF54835BF4B527D25BD71
 ```bash
 magnet:?xt=urn:btih:95655A480BB5C4C308DDDFE9181085762C98949D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +616,8 @@ updated_nov_2022_x64_dvd_c148a37b.iso.
 magnet:?xt=urn:btih:5D65ED6F2E082FCAB444C615FD1E0BD4094471F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +644,8 @@ Artenovum - A Breeze of Melodies (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, C
 ```bash
 magnet:?xt=urn:btih:2FFDD573B0011021A83387F2CA518E6EEB4C4855
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ Sly Roosevelt - Kirlian (2020) [MP3|320 Kbps] <Progressive Rock, Post-Rock>
 magnet:?xt=urn:btih:158C561972BA4CC51D22E28107A29A0A7A5534A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ Mirko Hirsch - Missing Pieces: Return to Neon (Special Edition) (2020) [AAC|~347
 ```bash
 magnet:?xt=urn:btih:FAD3F1E7A056E06B2E0AC8CFF63E6D2360A9A9C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

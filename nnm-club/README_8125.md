@@ -22,6 +22,8 @@ Lyre le temps - Prohibition Swing (2016) [AAC|~185 Kbps] <Electro Swing, Hip Hop
 magnet:?xt=urn:btih:AA1111400573EE9C1A44AD93DDA4AC958F98F8E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:AA1111400573EE9C1A44AD93DDA4AC958F98F8E9
 magnet:?xt=urn:btih:EB4C43A087A1A0C5C4D2E04ADEDE0E543EF2F8EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:EB4C43A087A1A0C5C4D2E04ADEDE0E543EF2F8EE
 ```bash
 magnet:?xt=urn:btih:095980E08C2F42C8653D4DF993A72B48F28546BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Tarmat - Out Of The Blue (2022) Japanese Edition [FLAC|Lossless|image + .cue] <M
 magnet:?xt=urn:btih:A3E8CC26BE9B88349412A4F7B0C5A9ACCBAF15BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Where the Sun Comes Down - Necropolis Railway (2023) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:9FB90B8934D3DF17E78BACDDAC944E426E7FA673
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:9FB90B8934D3DF17E78BACDDAC944E426E7FA673
 ```bash
 magnet:?xt=urn:btih:6FEACF3DB3FEF73D848B15AE47DE38D0679BFF67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:6FEACF3DB3FEF73D848B15AE47DE38D0679BFF67
 magnet:?xt=urn:btih:03DB5CEAF7FA02A12E0BE688C78363EABFEE157A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ VA - Loungerie (25 Amazing Lounge Tunes), Vol. 1 (2017) [AAC|~314 Kbps] <Lounge,
 magnet:?xt=urn:btih:9DA072B448C4F2FFDA87DD1E65ED2085D35B540B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:9DA072B448C4F2FFDA87DD1E65ED2085D35B540B
 ```bash
 magnet:?xt=urn:btih:010CC835FADEABAEAFB91134F0942BA4EA633C43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:010CC835FADEABAEAFB91134F0942BA4EA633C43
 magnet:?xt=urn:btih:6302C1A81D34FE2753CE75264BAC5C5D2BA955D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ MarkMyWords предлагает простые функции форматир�
 ```bash
 magnet:?xt=urn:btih:D11CCEE2050FB1632E7B2C47D45E0A24393A3B57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ Remote Viewing - Modern Addictions (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge 
 magnet:?xt=urn:btih:C7C43ECF61050985B13E39266BEFBC986281C85D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:C7C43ECF61050985B13E39266BEFBC986281C85D
 ```bash
 magnet:?xt=urn:btih:B255BEB11758C958ACEBD14137D5973F4E0748EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ Zebedy - Waiting for the Tide (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 magnet:?xt=urn:btih:E3DFC15FDE17CD3E88A124B177E24C68265CE7C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:E3DFC15FDE17CD3E88A124B177E24C68265CE7C6
 ```bash
 magnet:?xt=urn:btih:A5659333EFFE4426F5F462F0B468DD3BBD3E3057
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ VA - This Is Chillout Jazz, Vol. 3 (Cool Jazzy Sounds in a Lounge Mood) (2015) [
 magnet:?xt=urn:btih:AF4C1E98C7A3C9D326381B0152DE5A87D6693DA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ magnet:?xt=urn:btih:AF4C1E98C7A3C9D326381B0152DE5A87D6693DA2
 magnet:?xt=urn:btih:E8E9A77687B2FD60A60D6BAB7B5F38B99C5023B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:E8E9A77687B2FD60A60D6BAB7B5F38B99C5023B7
 magnet:?xt=urn:btih:5A426E224371DED13F77A18A86268AD167A0F3DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ Better Trash - это приложение для управления мусо�
 ```bash
 magnet:?xt=urn:btih:F7B3198FB31A3ECC52333C23C437160FF9656066
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ Zombie Riot - World Epitaph (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 magnet:?xt=urn:btih:145797BF4BD729C0ED8400B79418A3097F68E9BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ magnet:?xt=urn:btih:145797BF4BD729C0ED8400B79418A3097F68E9BF
 magnet:?xt=urn:btih:647E6DAD001F9EB49D115D162D83BA453FFB6C3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ KinoHome 1.7.0 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:62CB9AD7AE60B2D96FEB0B418ED40CDFA6E7AB53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ VA - Лучшая Discoteka 80-х...90-х (2004) [FLAC|Lossless|tracks + .cue] <
 magnet:?xt=urn:btih:FD6D8AC6154494B29A17C6AA30F782FE77C0BA92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ magnet:?xt=urn:btih:FD6D8AC6154494B29A17C6AA30F782FE77C0BA92
 ```bash
 magnet:?xt=urn:btih:9E35218E078A1BBA4D747CB271C3031D4A57BB71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +681,8 @@ VA - Hangover Lounge Grooves, Vol. 7 (2014) [AAC|~311 Kbps] <Lounge, Chill Out, 
 magnet:?xt=urn:btih:97C5D487A62A9F2F46DB99F304A55F449C003E7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ Luciana Souza - Speaking In Tongues (2015) [FLAC|Lossless|tracks + .cue] <Vocal 
 ```bash
 magnet:?xt=urn:btih:66C5D41E0871CE06A519C41728BD0464939C0200
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

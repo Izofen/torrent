@@ -19,6 +19,8 @@ Alien: Rogue Incursion Evolved Edition (2025) [Ru/Multi] (1.0/dlc) Repack FitGir
 magnet:?xt=urn:btih:EBE3FFFBDE8488695154E3A9B24C9BD2C2214E14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Tales of the Shire A The Lord of The Rings™ Game (2025) [Ru/Multi] (1.0.2.1) R
 ```bash
 magnet:?xt=urn:btih:AFD15EAE784E010FEC18961448A02EC3DC450F83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ CRETE (2025) [En] (Alpha 0.12.0) Repack Let'sРlay [Playtest]
 magnet:?xt=urn:btih:E7636D28982B08B112C4B145E673C6436931CB0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Castle of Heart Retold (2025) [Multi] (Build 19960600) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:36E6BCC2745927EEE33A88A81268A16F4B8C09F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Bytebond (2025) [Ru/Multi] (1.0.0.6/dlc) Repack FitGirl [Supporter Edition]
 magnet:?xt=urn:btih:8D8EB9EB7CBD0AB29DE45EA55A7315028F5C83DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ CULTIC – ретро-шутер от первого лица, где вы сы�
 ```bash
 magnet:?xt=urn:btih:2A431CB6314D3DC3731445AB6474FEABDA3281D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ PAC-MAN WORLD 2 Re-PAC (2025) [Ru/Multi] (1.0/dlc) Scene Rune
 magnet:?xt=urn:btih:92275D4C11F45553B6832FB3A6FCB9A7C4B31C1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Gatekeeper (2024) [Ru/Multi] (1.0.0.10/dlc) Repack Let'sРlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:C5D5E17250F85C6D2061F9CC42BEBC8427371703
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Lost in Random: The Eternal Die объединила динамичный экш
 magnet:?xt=urn:btih:BF8685BB903CE21B84C68B968E70B2857E1D9E1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Moros Protocol (2025) [Ru/Multi] (1.0.5) License GOG
 ```bash
 magnet:?xt=urn:btih:6058DC110DE9044132D7C4FEB67F8E836F3DE1E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ System Shock - это полноценный ремейк хита 1994 год�
 magnet:?xt=urn:btih:9DB1DC9625B70C24139636974454590D38C73D22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Derailed ставит перед героем задачу раскрыть 
 ```bash
 magnet:?xt=urn:btih:06E29EDB05D5670E74EC25120D825222A4B4E600
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Ravenswatch - хардкорное приключение, в котором п�
 magnet:?xt=urn:btih:305E319EEC04CDC9064AC971E56978A9DD549C2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Fata Deum - The God Sim / Fata Deum - Симулятор Бога (2025) [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:FDF292AE9ECA0534D1BF773DED0D9196857FE32C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ No, I'm not a Human (2025) [Ru/Multi] (1.1.3) Repack seleZen
 magnet:?xt=urn:btih:86E8A183AA83D403E9A34C90C8E53E74258B3ACB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Eclipsium (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1ADA097D6C3544C54F671E5B1A7E16151C1B05B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ RealRTCW - глобальная модификация для оригиналь
 magnet:?xt=urn:btih:7EB2843BD1EC484CE0003C2D843B3BB719FBBB65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Small Town Terrors: Livingston (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:1639BCBAC1D301480529F003C4381D4094D3D6E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Tales From The Dragon Mountain: The Strix (P) [Ge] 2011
 magnet:?xt=urn:btih:7AA0DD79EC93C849608DE8E5620F9B681F7F97BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Family Vacation: California / Семейные каникулы. Калифор�
 ```bash
 magnet:?xt=urn:btih:DCF169520967F280D86E35D06AA16731BF8DE245
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Roller Rush (P) [En] 2005
 magnet:?xt=urn:btih:A55C0D92323E65B611E0340AF689AA5C4488C32F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Titan Quest II (2025) [Ru/En] (0.2.0-public.102611+win.1879) Repack Let'sРlay [
 ```bash
 magnet:?xt=urn:btih:A122EC0E948DBE7E344320BEADE8A59F2B7EC870
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Titan Quest (2016) [Ru/Multi] (2.10.21415/dlc) Repack Let'sРlay [Anniversary Ed
 magnet:?xt=urn:btih:83AD9FE68823BE055E5BED82C07B91BF64E23154
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Book of Desires (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:0F779E45CB730C2D29B7B6BD8BB306D12ED900B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Brainville (P) [En] 2012
 magnet:?xt=urn:btih:6E8C79B25FD335BD5ED18E0191E61F076972475F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Inspector Magnusson: Murder on the Titanic (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:4EBCDDF434D27F16DDACABB9352FDBCC9746E17A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

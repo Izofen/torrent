@@ -21,6 +21,8 @@ Udemy, Nexttut, Victor Yamakado | Zbrush Character Likeness Sculpting Tutorial (
 magnet:?xt=urn:btih:EEE8D991D0FAE4CAF89387BDBA8C27DB4C0B5452
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Domestika, Mattey | Cinema 4D Создавайте яркие 3D иллюстр�
 magnet:?xt=urn:btih:D6A8FE7069EF8BD6917F7A08CEF240E29CD83F2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ kobezzza.channel, Андрей Кобец | Интенсив "ИНТЕНСИВ �
 magnet:?xt=urn:btih:4E27EDAF4D55E2323A45CF83F237F15F3D55ED1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Unreal Engine 5 значительно улучшил качество осве�
 ```bash
 magnet:?xt=urn:btih:D2E5A8D6402154CB533FF2249D2907F07C02A59F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Danil K, Данил Куширмский | Сборник курсов по ли
 magnet:?xt=urn:btih:08B423757DAAB793A3A387B25C374C4A826EE767
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ kobezzza.channel, Андрей Кобец | Интенсив "TYPESCRIPT" (2022)
 ```bash
 magnet:?xt=urn:btih:93471B3B277B5F00B8849408E387AECE4E096064
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:93471B3B277B5F00B8849408E387AECE4E096064
 magnet:?xt=urn:btih:E908C8F0BB4D6A280E7D8C085203D38E66997F16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌«‌ООП В J
 ```bash
 magnet:?xt=urn:btih:ECDB62874DE8AB318C9DF9C525B0321B12FC8201
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌‌‌«РЕГУ
 magnet:?xt=urn:btih:0083635EE674FEFF5BB073B99168356EBE8D6D6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌«‌PROMISE API
 ```bash
 magnet:?xt=urn:btih:B1AAF346EDA5C889A26C60B51E8E702310403F5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ kobezzza.channel, Андрей Кобец | Интенсив «ITERABLE API» (2
 magnet:?xt=urn:btih:84FF9158855D7F297F551B27F19A67E2A2B3C582
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌‌«РАБОТ�
 ```bash
 magnet:?xt=urn:btih:5845C0D241B470907A95DAD7C593A58F5A215AF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ Motion Design School, Данила Михайлов | Рисование спе�
 magnet:?xt=urn:btih:E170A3387B9150892E0D5E43E16E075EEC500F28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌‌«РЕФЛЕ�
 ```bash
 magnet:?xt=urn:btih:DDEC7F402940168089CEE29A31642E03DF3B81F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ FX анимация – это комплексная, хотя и не само
 magnet:?xt=urn:btih:52938DECDCD0C2406BB99E7FC91258E52C743E10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ TCM Security, Heath Adams | Open-Source Intelligence (OSINT) Fundamentals (2020)
 ```bash
 magnet:?xt=urn:btih:78513B3DE914768C8DF2A10BAD15419F4B3A825F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ RepairClinic | Как ремонтировать бытовую технику (
 magnet:?xt=urn:btih:7BAC4CA4A4F3357083C0C7AA37B620A462C0D964
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ Digital Tutors, Ron Friedman | Animating a Dialogue Scene in Maya (2013) PCRec
 ```bash
 magnet:?xt=urn:btih:260B254F35429749ADF5542AEBAEF22B2BC73E57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:260B254F35429749ADF5542AEBAEF22B2BC73E57
 magnet:?xt=urn:btih:66AB099659ED193C529F3D64CB9A1CE98C95683B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:66AB099659ED193C529F3D64CB9A1CE98C95683B
 ```bash
 magnet:?xt=urn:btih:03F41198E5A61AC7FD8B28FA4E420D4687498FA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:03F41198E5A61AC7FD8B28FA4E420D4687498FA0
 magnet:?xt=urn:btih:3781BE1B4803FE52C19FB23A769B5C3445470208
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:3781BE1B4803FE52C19FB23A769B5C3445470208
 ```bash
 magnet:?xt=urn:btih:9E070F10AA56F24B8BC68533B158C6F1D6E48882
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:9E070F10AA56F24B8BC68533B158C6F1D6E48882
 magnet:?xt=urn:btih:BABEB1236CBFFFE19D90441E3C1F4F42AF656DA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ Liveclasses, Никита Чесноков | Blender: расширенные в�
 ```bash
 magnet:?xt=urn:btih:DBB66D4A04647BC1DA209AECACC41AEAECF925AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ Blender – самая быстро развивающаяся и очень п�
 magnet:?xt=urn:btih:B56266623F72B0655B56ABE5B60698764C129CE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ kobezzza.channel, Андрей Кобец | Интенсив по архитек
 ```bash
 magnet:?xt=urn:btih:824ED719BEF99DE75E9BC2CD82A5611A6DAB8431
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

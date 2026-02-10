@@ -1,3 +1,29 @@
+###  Публикация: 1286286   (712615) от 02.03.2019
+
+Михаил Ланцов | Безумный Макс: Ротмистр Империи. Книга 2 (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наш человек нигде не пропадет! Попал в прошлое? Не беда… Прогулялся по вражеским тылам и сорвал немцам все планы начала Первой мировой, за что получил новое звание, десяток орденов и большую денежную премию! Правда, довеском к наградам пошли несколько ранений, но «на войне, как на войне», не так ли? Минул год. Наступила весна 1915 года. Подлечившись и хорошенько (   Читать дальше...   )Жанр: Боевая фантастика, Историческая фантастика, ПопаданцыПродолжительность: 09:34:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55D02540E5CA01ECDAC7B9841D35AFAC27B69875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401045   (712630) от 08.08.2020
 
 Дем Михайлов | Низший 4 (2020) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:7CAD06B9A9FE03A8BDD042A6AC3D0546AB8314F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:7CAD06B9A9FE03A8BDD042A6AC3D0546AB8314F6
 magnet:?xt=urn:btih:DF1342B30685297EB079F0545973C00607AEECE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:DF1342B30685297EB079F0545973C00607AEECE2
 ```bash
 magnet:?xt=urn:btih:200B2F86DDE311DB1D6DD83DFB251EE96DD9E3D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:200B2F86DDE311DB1D6DD83DFB251EE96DD9E3D7
 magnet:?xt=urn:btih:D57A700FC3D3AF7289F46B6ABF47D6A95F69EDA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:D57A700FC3D3AF7289F46B6ABF47D6A95F69EDA3
 ```bash
 magnet:?xt=urn:btih:D055ACE94B8B83034676A53FF563FCA1725D8BB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:D055ACE94B8B83034676A53FF563FCA1725D8BB8
 magnet:?xt=urn:btih:302180962D0B4005F4BA666790F487177533F569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:302180962D0B4005F4BA666790F487177533F569
 ```bash
 magnet:?xt=urn:btih:F43E119357B2FC151694E5A2CEE6F67781E63713
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:F43E119357B2FC151694E5A2CEE6F67781E63713
 magnet:?xt=urn:btih:EA4CF8F3E6382006F7DF498B43C8062129B24DA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:EA4CF8F3E6382006F7DF498B43C8062129B24DA1
 ```bash
 magnet:?xt=urn:btih:A66C8C660D5DA0A55657AE2BF2070AD1E28F648D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:A66C8C660D5DA0A55657AE2BF2070AD1E28F648D
 magnet:?xt=urn:btih:2F945D3CB1E91CB0860B5D25BA7BF70F07CD0C3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:2F945D3CB1E91CB0860B5D25BA7BF70F07CD0C3C
 ```bash
 magnet:?xt=urn:btih:8921B8721C04A740E46011273DD2D4CD0FB49FD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:8921B8721C04A740E46011273DD2D4CD0FB49FD0
 magnet:?xt=urn:btih:3979128C6A9C8D8AAE000C756FE9350F1FC7B3D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:3979128C6A9C8D8AAE000C756FE9350F1FC7B3D6
 ```bash
 magnet:?xt=urn:btih:FDA97240A2D6C60CE264A51A4B3C3C2A193973C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:FDA97240A2D6C60CE264A51A4B3C3C2A193973C7
 magnet:?xt=urn:btih:A6D396192572A6A4E0134D0FCDB0039F4690B894
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:A6D396192572A6A4E0134D0FCDB0039F4690B894
 magnet:?xt=urn:btih:84E10DE4CFCC3A63C9272258B84DF4EDF915E5E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:84E10DE4CFCC3A63C9272258B84DF4EDF915E5E7
 magnet:?xt=urn:btih:7C0E25F5947FB5A117689F418E0ABBAFB43C05A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:7C0E25F5947FB5A117689F418E0ABBAFB43C05A3
 ```bash
 magnet:?xt=urn:btih:973EAD71D51E475F3AAA1FD9687BEB9C706F1C5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:973EAD71D51E475F3AAA1FD9687BEB9C706F1C5A
 magnet:?xt=urn:btih:3C66B2B8676F49198EA705FB15909B84C890374D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:3C66B2B8676F49198EA705FB15909B84C890374D
 ```bash
 magnet:?xt=urn:btih:34A0A20C0A8AEFB2CF8201B5BFEF681A638D2E5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:34A0A20C0A8AEFB2CF8201B5BFEF681A638D2E5F
 magnet:?xt=urn:btih:6DD85B3B92AF2A4DF3DA006F25A34F2874E7952C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:6DD85B3B92AF2A4DF3DA006F25A34F2874E7952C
 ```bash
 magnet:?xt=urn:btih:E35395E1F733C2E9832B1057603B982463A8A385
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:E35395E1F733C2E9832B1057603B982463A8A385
 magnet:?xt=urn:btih:FA10D1C8669F0F86BC829A7EFA196B27E38FF29A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:FA10D1C8669F0F86BC829A7EFA196B27E38FF29A
 ```bash
 magnet:?xt=urn:btih:5818B06F72E63996CE3193412D777F7FFF6D3A1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:5818B06F72E63996CE3193412D777F7FFF6D3A1E
 magnet:?xt=urn:btih:2AA6B19B5D4347D51A74FD7AD4A0459AAFC08A48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:2AA6B19B5D4347D51A74FD7AD4A0459AAFC08A48
 magnet:?xt=urn:btih:C407D30A15F2F5235C290D323DE0DA89D56E27D1
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219065   (715058) от 13.04.2018
-
-Андрей Белянин | Мой учитель Лис (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715058.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1812 году над землёй пролетала комета. Кто знает почему, но после этого на планете стали рождаться разумные звери. И вот в Лондоне конца девятнадцатого века мальчик встречает Лиса. Благородный джентльмен с рыжим хвостом, французского происхождения, отлично владеет кулаками и шпагой, являясь внештатным консультантом Скотленд-Ярда. Кто же он, месье Ренар? Сыщик, (   Читать дальше...   )Жанр: Детективное фэнтезиПродолжительность: 09:58:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:941A1BD92ECD300CE31A7D019A61C483A83EF916
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

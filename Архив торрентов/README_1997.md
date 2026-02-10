@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:E19C3C791C2EE896ED9B6DDB3C496A28557F3EA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:E19C3C791C2EE896ED9B6DDB3C496A28557F3EA0
 magnet:?xt=urn:btih:04CDCA6228954D0F90C0FCA20534FF7D8988BDF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:04CDCA6228954D0F90C0FCA20534FF7D8988BDF9
 ```bash
 magnet:?xt=urn:btih:C084191FAB067006FEE3480C0E4A1605CE2CD0C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ magnet:?xt=urn:btih:C084191FAB067006FEE3480C0E4A1605CE2CD0C8
 magnet:?xt=urn:btih:015F267FD8EA2624F7BE89DF69B8E71E071E33A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:015F267FD8EA2624F7BE89DF69B8E71E071E33A4
 ```bash
 magnet:?xt=urn:btih:418E0B290A24C39C4332573D87408877E29A1C05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -155,6 +165,8 @@ Coral Candle - Aspen Foxes (2019) [MP3|320 Kbps] <Electro>
 magnet:?xt=urn:btih:6C449D01D825A4E19A44D74D60F296CB2A1207A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ ClipGrab - программа для скачивания и конвертир�
 magnet:?xt=urn:btih:2E3180D6AE38D5C718CC9C4C289CD0691B16271A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:F90B1A928C8D55EE3EE5BDFFB11A14FFE2C49775
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ Unclutter - это новое удобное место на рабочем ст
 magnet:?xt=urn:btih:49F0CE309EF56EAC73DF3380E588F597A2FE3318
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ UltimateDefrag - дефрагментатор и оптимизатор разм
 ```bash
 magnet:?xt=urn:btih:AAFD9EBA7178AC4DF7BB375961443E9986FA8477
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +299,8 @@ CrossOver 19.0 beta 1 (build 32154) [Multi/Ru]
 magnet:?xt=urn:btih:1564A3995CBAE18D6E0A96317D124442DDA6FF05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 magnet:?xt=urn:btih:83955A29B2AF9C3B8D071D165030657153E9CB00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ Movavi Slideshow Maker – это простая и удобная програ�
 ```bash
 magnet:?xt=urn:btih:E022C8633A1288797A152FC2C126B92358CA0953
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ iFlicks — это метаданные к сериалам и фильмам. �
 magnet:?xt=urn:btih:AC557386F16D3C09032376B660F75F2B572E799C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ GPG Suite 2019.2 (build 1587) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FFF67A69B2870008D6E01DC30EB37AFD45EA00E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:FFF67A69B2870008D6E01DC30EB37AFD45EA00E0
 ```bash
 magnet:?xt=urn:btih:37D1949FFCAA3D8F4C0362825873A17508F743E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ Newsflow v 1.4.11 [En]
 magnet:?xt=urn:btih:29A8C7F77932C665E22EFD193CDE0C1ED91715C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ DxO PhotoLab 3 ELITE Edition 3.0.2 (build 224) [Multi]
 ```bash
 magnet:?xt=urn:btih:C4BFAC3F1D3C66043F2C69C05E02555EA309CA8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +518,8 @@ magnet:?xt=urn:btih:C4BFAC3F1D3C66043F2C69C05E02555EA309CA8D
 magnet:?xt=urn:btih:5A38AB830659F8ABB7A6ED8AA3454D11B615C46C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ Comic Life - великолепное приложение, с помощью к
 ```bash
 magnet:?xt=urn:btih:6DCD6232557D9C684CBCEB147EDBDE66ADC6DBB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ Switch позволяет Вам воспроизводить разнообра
 magnet:?xt=urn:btih:044F67104BC363D0FBCE2A7EE75AF1B53FCA6455
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ Navicat Premium представляет собой очень мощный ин
 ```bash
 magnet:?xt=urn:btih:D930DEC28F8060DF8791F90B549A86CCC4A059CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +626,8 @@ Power Manager умеет работать с несколькими пользо
 magnet:?xt=urn:btih:F9EE81B9CECC140784123CCEE4B9B21F43935F3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ Cisdem Duplicate Finder - поиск дубликатов и их удалени
 magnet:?xt=urn:btih:E4DCC0757658BA24B3CB8253A9CC3BFE18912935
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ CheckOff- приложение для управления задачами, к�
 ```bash
 magnet:?xt=urn:btih:B68C4A4794C0B9230E878D434211C0ED4DCFE7B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +706,8 @@ Folder Tidy 2.7.5 [En]
 ```bash
 magnet:?xt=urn:btih:D019B45E1C338659F8AE4BD522D6E5D2836AAA40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

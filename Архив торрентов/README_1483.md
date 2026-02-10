@@ -19,6 +19,8 @@ CamScanner - Мощное приложение для сканирования. 
 magnet:?xt=urn:btih:85437E4DA30CB9034A4236006D26C3E541323318
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ StressMyPC - крошечная утилита, которая выполняе�
 ```bash
 magnet:?xt=urn:btih:CED30EFACDD14469CC718C1D07737927CA59E9F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ uTorrent 3.5.5 Build 46542 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:E6CB5B0CBE6C38E868B35C9764C84F05B490844F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:C93BAFFCE35279272A870C2354D7087095C85432
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 magnet:?xt=urn:btih:4EEECF82F7FC0076EB971912DA88D30D0D00DE40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Smart Launcher - лаунчер являющийся одним из самых 
 ```bash
 magnet:?xt=urn:btih:4D6D33D872876EF06F0B62240BA7DAE5EAEF430A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ YouTube ReVanced - это реинкарнация проекта YouTube Vanced
 magnet:?xt=urn:btih:B712846F82BB8A31453F3078DA9B25BCD61D46F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:DF5440FAA2ADD4C14824EA751D01E1D3A16F9A8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Integrity Pro 12.7.9 [En]
 magnet:?xt=urn:btih:AF7B156D724F0B139D519F7B3B75156661C9A5BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:3EFC0601E2E0719947A5EA5F0CDBD1C4A83229E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Lasso — оконный менеджер для macOS. Перемещайте �
 magnet:?xt=urn:btih:64165A3B8073566BB3778134E116B04566258274
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ R-Studio Network 9.1 Build 191060 RePack (& portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:77F8291C320F5AE69EC7DA5EEF108661C137094A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ n-Track Studio Suite 9.1.8 Intel/ARM [Multi/Ru]
 magnet:?xt=urn:btih:A63D21340776BD68646D766413BC45E2CB73ACA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ R-Drive Image — является эффективной утилитой дл�
 ```bash
 magnet:?xt=urn:btih:730E9EB2B3E23FDAE28ACA0867C91379A89F6097
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ WinBin2Iso 6.16 Build 001 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:29884546B3E4A8CB335C12DDB6DB92A3ACF0C5C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 ```bash
 magnet:?xt=urn:btih:67BDEB0835EF70C0E4FC591836662E140DA778D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Spotify имеет громадный каталог музыки, поддер�
 magnet:?xt=urn:btih:65B915E5A36840E3138812C528A299C6BA90B899
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ VueScan является приложением для работы со ска�
 ```bash
 magnet:?xt=urn:btih:87D45DE2FBFF60BDDB46E367A026B21A84177CF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ Advanced SystemCare PRO - это мощный пакет для оптимиза
 magnet:?xt=urn:btih:6C71A5B28EDFDB408C4B2F2A3D7B1DA42C9D9626
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:46C18A0533BE20F274214823DDF9B0B698E85900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Monkey's Audio — данная утилита предназначена для
 magnet:?xt=urn:btih:75E6C554A11143ED7A3F620ACAA4733E870DB406
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Pixelmator Pro — это невероятно мощный, красивый и
 magnet:?xt=urn:btih:1900B2F9F8BE845543B975E48E461E1DD9D571D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Tinderbox может автоматически собирать информа�
 ```bash
 magnet:?xt=urn:btih:E96D17A68A76464EB0C545E81C8C48DADB676534
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Folders Factory — сделай уникальными свои папочки 
 magnet:?xt=urn:btih:3190D28FFDCF5C8FF1A723D32EA9EA0A31E1BFD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ AnyDesk 7.1.5 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3B9452A0421F3A409AD4269A062D37185FB1B1F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ Dropzone - удобная утилита для автоматизация ру�
 ```bash
 magnet:?xt=urn:btih:51A4452AF964946CB3335A787984B5B434969662
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

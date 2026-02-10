@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:43033F55AF36E5F131315AC2513E2125996E01F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Udemy, Imtiaz Ahmad | Master SQL For Data Science (2020) PCRec [En / En, Pl, Ro 
 ```bash
 magnet:?xt=urn:btih:D29CDF6FEB17934F704948B6631CE971394E9B30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Udemy, 365 Careers Team | Statistics for Data Science and Business Analysis (202
 magnet:?xt=urn:btih:39E19F1078E4E293D7F311D14CF6F7EB6B13B135
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Udemy, Samuel Hinton | Python для статистического анализ
 magnet:?xt=urn:btih:323FCD7BDB1034F2E8688516E22DD2FF8B08548B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:323FCD7BDB1034F2E8688516E22DD2FF8B08548B
 magnet:?xt=urn:btih:C567A27256487C16EFEA2ACD34BCAF0CD3606122
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:C567A27256487C16EFEA2ACD34BCAF0CD3606122
 ```bash
 magnet:?xt=urn:btih:ECC21B8CF3BC78E85DE9F8C8984842C41E5014CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Endurance - это приквел к Ailment (еще одна научно-фа�
 magnet:?xt=urn:btih:305407B53BFBC0835C86C0068ADFA7CCB165DED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ BBC. Кракатау. Последние дни / Krakatoa. The Last Days (2006
 ```bash
 magnet:?xt=urn:btih:F165DC3F81C8E5AFF9C8A06FED3AF6ED03E36016
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Slade - Old New Borrowed And Blue (1974) [DSD 128|tracks (Vinyl-Rip)]<Glam-Rock>
 magnet:?xt=urn:btih:E8A3E5D73B3F08A83A612892B61A4EEDC1EE0CC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:E8A3E5D73B3F08A83A612892B61A4EEDC1EE0CC4
 magnet:?xt=urn:btih:974E3A572A451D5D0CE9891F01C0FDE718F48D40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:974E3A572A451D5D0CE9891F01C0FDE718F48D40
 ```bash
 magnet:?xt=urn:btih:144BAF8278B3E9049916BDB5493ED9A167A526C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ Udemy, Evgenii Puzakov | Check Point Sandblast Course (2020) PCRec
 magnet:?xt=urn:btih:FDADE2F30DAEF0D6F81C34AF738476AE84D8AAE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:FDADE2F30DAEF0D6F81C34AF738476AE84D8AAE1
 ```bash
 magnet:?xt=urn:btih:945BEFD715F34865AECD857D1C3820DEA2AEF817
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ Logic Pro — самая совершенная версия Logic. Мощные
 magnet:?xt=urn:btih:3B58735BAFC14FB25BB1314C53E73B75F1B72C35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:3B58735BAFC14FB25BB1314C53E73B75F1B72C35
 ```bash
 magnet:?xt=urn:btih:08CB295FF3C9D82FB165E162265CD80ABD20DB1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:08CB295FF3C9D82FB165E162265CD80ABD20DB1E
 magnet:?xt=urn:btih:374E414C896ADDF99ABD9126570B648C3A1942E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:374E414C896ADDF99ABD9126570B648C3A1942E2
 ```bash
 magnet:?xt=urn:btih:5EE183B1262B8B8BE8CD9929BDA3AA2CE3F557E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ World Rally Championship 2010 первая игра из серии гоночн
 magnet:?xt=urn:btih:9F9999458C94B1F9C1D5E7C0B0DB83CDDC3E1B10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ World Rally Championship 2010 первая игра из серии гоночн
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ World Rally Championship 2010 первая игра из серии гоночн
 ```bash
 magnet:?xt=urn:btih:139B0FD82F8A3EB4EDBEF74EAA41D89CF8614771
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:139B0FD82F8A3EB4EDBEF74EAA41D89CF8614771
 magnet:?xt=urn:btih:A8D444715894764E3590ABAB44C6C1D141BDBFEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ Phase One Capture One PRO один из самых мощных професси
 ```bash
 magnet:?xt=urn:btih:7517334044D6AA7E7E77756CB801C3CADEC22CC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ The Dwarves (2016) [Ru/Multi] (1.1.2.57) License RELOADED
 magnet:?xt=urn:btih:80444734B1D841760B0CA2B959E44BEE4C934062
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:80444734B1D841760B0CA2B959E44BEE4C934062
 ```bash
 magnet:?xt=urn:btih:DBAD18CFA992C41A8129A3FA108693AF11EEFD0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ magnet:?xt=urn:btih:DBAD18CFA992C41A8129A3FA108693AF11EEFD0F
 magnet:?xt=urn:btih:0F7FA046870B182560F8D2D30D432B9AC551BCE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:48D9D47A123822C000F20A18A52A22114680233C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

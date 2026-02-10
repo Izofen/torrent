@@ -19,6 +19,8 @@ Dungeon Souls (2016) [En] (1.0) Repack Other s
 magnet:?xt=urn:btih:3C1A59B4D8C17BA839C2F8F7BFA97D685F4088D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Hyperdimension Neptunia Re-Birth 2: Sisters Generation - Продолжение 
 ```bash
 magnet:?xt=urn:btih:FD28996F35A7CE4B72C450CDB57E603A55B887EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Absolver - одиночные и сетевые многопользовател
 magnet:?xt=urn:btih:842859CF68CB47348983A30B1D24C67212B51960
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Room Three (2018) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3DA3D9E4CDF3B048A0EA948BABB541D6975FF17C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Tales of Zestiria — японская РПГ, разрабатываемая с
 magnet:?xt=urn:btih:0861EBB6B3DC428E8AA3FD7168809E54CEA09107
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Blackguards (2014) [Ru/Multi] (1.6/dlc) License GOG [Special Edition]
 ```bash
 magnet:?xt=urn:btih:4621407B123302159FFE31E671196C2746647E60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Perception – это сюжетный приключенческий хорро
 magnet:?xt=urn:btih:810B0D8291F495F2EF1A2B4E9E6401CA19F75050
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Among the Sleep (2014) [Ru/Multi] (3.0.1) License GOG [Enhanced Edition]
 ```bash
 magnet:?xt=urn:btih:2FB932955C8DAEA08C48724D34B140EE4F75E14A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Surviving Mars — это научно-фантастический симуля
 magnet:?xt=urn:btih:BBEDA0F61D1B35BEC64AA2C85C8737C683B769AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Battlefleet Gothic: Armada - адаптация классической нас�
 ```bash
 magnet:?xt=urn:btih:89D0AFE5C3366E4FCC6AD14563702C36E498E24D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Fog / Туман (2013) [Ru] Unofficial
 magnet:?xt=urn:btih:02740601A011DC8D2350E419EBB4A265A3E74505
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Cloudpunk (2020) [Ru/Multi] (1.0) License SKiDROW
 ```bash
 magnet:?xt=urn:btih:E6C80523857D7F83A1CAE40B650B9C31AD7E524C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Betrayer - это экшен-приключение с видом от перв�
 magnet:?xt=urn:btih:6B12FF8642403A721AF2611C1170EAD6D0B94BD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Cityconomy: Service for your City (2015) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:5FE1524287755474801C9A45931FDCBD4FF7C091
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Homefront (2011) [Ru] (1.5.500001.0) Repack xatab [Ultimate Edition]
 magnet:?xt=urn:btih:015B6F4137E5F0769CD69529EB67CE014C2761C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Saint Seiya: Soldiers' Soul - это долгожданное возвращен
 ```bash
 magnet:?xt=urn:btih:C7833617AA1FACB6846F6660CFC7DB60DA88E55D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Eastside Hockey Manager (2015) [En] (1.0) License SKIDROW
 magnet:?xt=urn:btih:507B3355918F9E1A79376F2E4B28D64C900AA55C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Star Wars: The Force Unleashed 2 (2010) [Ru/Multi] (1.1) Repack xatab
 magnet:?xt=urn:btih:9B26F8DDD99DD35FAAAD1B981AA59BF842F49993
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +486,8 @@ The Keeper of Antiques 2: The Imaginary World / Антиквар 2: В мире 
 ```bash
 magnet:?xt=urn:btih:FF959D0FB1E0BEAD75BF8C25BB61B3AFE00DFE65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ World Rally Championship 2010 первая игра из серии гоночн
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ SHENZHEN I/O – это достаточно сложный симулятор, 
 magnet:?xt=urn:btih:2FD2DC702664BD76FBD5351B022E0297F3C05AD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Maize – приключение с видом от первого лица, р�
 ```bash
 magnet:?xt=urn:btih:5E98D5211942E5C02741F5833764D63F4B632B2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:5E98D5211942E5C02741F5833764D63F4B632B2D
 magnet:?xt=urn:btih:5EE183B1262B8B8BE8CD9929BDA3AA2CE3F557E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ I am Setsuna (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:0E75CE4BECD82D25103702734551547BBF9C1AB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Valentino Rossi The Game (2016) [Multi] (1.000/dlc) License CODEX [Special Editi
 magnet:?xt=urn:btih:2F362D4546EF8FA2DBCF6B06049C33A61D4389EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ FIM Speedway Grand Prix 15 (2015) [En] (1.0.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:26EC9986EF08EA81853CECF13E36971EB17CF21E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

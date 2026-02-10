@@ -19,6 +19,8 @@ GIF Converter - программа представляет удобный ин�
 magnet:?xt=urn:btih:73EE62B250B49FEC2A36FC4313D9ED33C9121558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ WinX VideoProc Converter - усовершенствованная версия, 
 ```bash
 magnet:?xt=urn:btih:28BF1177B5F2BAA40FC25B8145C7C984F1869DBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BluffTitler - программа для создания красивых тек
 magnet:?xt=urn:btih:1F7EA13C03C3A2721A9CC157DDB381CF0B2A59C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Acoustica Premium Edition - профессиональная программа,
 ```bash
 magnet:?xt=urn:btih:41837534BC584D1408DB7B0782B432AB324ECA14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ ADSR Sample Manager - инструмент для управления библ�
 magnet:?xt=urn:btih:0139D79B94C9639A5351F41484F3B2F69650C630
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ u-he - Zebra2 2.8.0.7730 VSTi, VSTi3, AAX (x86/x64) RePack by VR [En]
 ```bash
 magnet:?xt=urn:btih:18E1A365D38D4200DFD5C59F9B4B83CD00A19538
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ ArtIcons – удобная утилита, предназначенная дл�
 magnet:?xt=urn:btih:F89008FB912F0B6B1F2D9338E6AB80B96DAE52A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ MP4Box является мультимедийным упаковщиком, с 
 magnet:?xt=urn:btih:4335547504DB08DC9AC3246A9D3B7C0D69A2FE51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Ample Guitar LP III (AGLP) ставит целью привнести в ваш�
 ```bash
 magnet:?xt=urn:btih:CEC0E6F4155E5B17382118AB699F6D4B4A0F6E60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Spiff позволяет вам сократить или увеличить т�
 magnet:?xt=urn:btih:B23157AFBF31C72A19D6CB1EEBF4D7142C9397B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:B23157AFBF31C72A19D6CB1EEBF4D7142C9397B7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ RasterStitch - утилита для соединения (сшивания) н�
 ```bash
 magnet:?xt=urn:btih:C8AEDCC6402EBFE86EB19B08FA3D7CE2DBD00713
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ GiliSoft Audio Toolbox Suite - универсальный, многофункц�
 magnet:?xt=urn:btih:4EE686F5FDB8B4919DF8BAA5EDF46662CB5F1BFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ Luminar Neo – это отдельный редактор, который вк�
 ```bash
 magnet:?xt=urn:btih:B279297A7A959F7C350F8E83722C1C4F820153EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:B279297A7A959F7C350F8E83722C1C4F820153EA
 magnet:?xt=urn:btih:86559BB37478688CE6C272CE1BCFC9E6AE3B42DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ ValhallaDSP Bundle 2020.11 VST, VST3, AAX (x64) RePack by VR [En]
 ```bash
 magnet:?xt=urn:btih:A67FFDA85B0F92C330314EA3A64478FBDFC7CDB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ Rob Papen показали как может выглядеть и звучат�
 magnet:?xt=urn:btih:91135BFD9CFA52FC7C7A352270960A8D2EEA2579
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ RP-Delay - дилей, в большей степени сфокусирован
 ```bash
 magnet:?xt=urn:btih:DA5DAF1A9DA48206AA7337C99039AB9D824C854F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ RP-Amod - эффект двойной модуляции. Модулятор - �
 magnet:?xt=urn:btih:A6F6B1A1324DD52B1BFD96E4DBEAEA87057DAE5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:AFF3C6F6ADB4F9ACF6C17C2C35C095E30816DECF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ Acon Digital Acoustica Premium 7.5.5 (X64) Portable by 7997 [Multi/Ru]
 magnet:?xt=urn:btih:5465FA2436DD7897755D4F528991111BB1783346
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ Sonible - Learn Bundle 2.0.2 VST, VST 3, AAX (x64) RePack by R2R [En]
 ```bash
 magnet:?xt=urn:btih:FA99C94A363CB4D70DFE4D99292769E9B7E1F88E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ W.A. Production - Instacomposer 3 3.0.0.251014 VSTi, VSTi 3, AAX RePack by TCD [
 magnet:?xt=urn:btih:1F482588B0AD14F7478792BCED693EA1AC0780C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ Scaler 3 это уникальный и вдохновляющий MIDI-проц
 ```bash
 magnet:?xt=urn:btih:1A978A662F7B9ADB9A8F9E15B868E293783B72C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ Cytomic Effects Bundle 2025.10 VST, VST 3, AAX (x64) RePack by TCD [En]
 magnet:?xt=urn:btih:0E05E9FC8DD79945BB883B2A66CF066AEB60F7CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Trackspacer — это инструмент микширования, котор
 ```bash
 magnet:?xt=urn:btih:5532770BC69D6FED3888487BC541D5A393E364FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

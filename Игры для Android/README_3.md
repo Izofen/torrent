@@ -19,6 +19,8 @@ Chronicle of Innsmouth: Mountains of Madness - это графическое п�
 magnet:?xt=urn:btih:7B8145385E181223512B57F05306CADEF51DD781
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Fallout Shelter дарит вам возможность управлять вы
 ```bash
 magnet:?xt=urn:btih:D624FF0A2E7CD5D3D2A9F73B9FEAA605A897E86A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dead God Land: Survival Games v0.0.0263 [Ru]
 magnet:?xt=urn:btih:EADC4CD35CC279AA1C7F94B7DE60672F33BB037D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Party Hard Go v0.100034 [Ru]
 magnet:?xt=urn:btih:0DC8A4CF93168059825D680EA7A38B94CBC7BC31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Spiritfarer Netflix Edition v1.5.8 [Ru]
 ```bash
 magnet:?xt=urn:btih:6DD3CDF001B3189259827B9A3C8FE474EA06A289
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Pocket Rogues - это динамичная Action-RPG старой школы �
 magnet:?xt=urn:btih:321FE5DA69A79D96C0E6E6A188ADEBD3CAD14448
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Cozy Grove: Camp Spirit v3.1.0 [En]
 ```bash
 magnet:?xt=urn:btih:58F79B4B8D1D466809EF3C4656420653E53E0B79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ White Day - это ремейк PC-версии, выпущенный в 2001 г
 magnet:?xt=urn:btih:4EDB7253A25501C8D85D741C7986691807D98819
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Linea: Уютные головоломки приглашает вас в уми
 ```bash
 magnet:?xt=urn:btih:7D74228F3CA9BBC8EB500E01D8975556583CDAFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Bounty Of One – это динамичный казуальный roguelite в�
 ```bash
 magnet:?xt=urn:btih:8BEDCB2FD2F0D5DA24334387ACEA7D5D82A35D43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Midnight Girl - это казуальная 2D-приключенческая и
 magnet:?xt=urn:btih:DC24B32C966EBD9FECDF1E8FA10F75C029A1FB3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ RainCity 1.0.20 [En]
 ```bash
 magnet:?xt=urn:btih:E15E8F78D46C254CFB0597288A376826E91BF221
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ The Longing v1.10 [Ru]
 ```bash
 magnet:?xt=urn:btih:3514579B91B9105500414D09465B3DB1E5F75506
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ Art of Rally 1.0.7_b200 [Ru]
 magnet:?xt=urn:btih:5889F1A0E73CF0122EC70D87895A7695494C0FC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ Scythe: Digital Edition 2.1.3 [Ru]
 ```bash
 magnet:?xt=urn:btih:248C97D3747EDAB6B9C019503FEAA16C349F5A6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ Thimbleweed Park 1.0.10 [Ru]
 magnet:?xt=urn:btih:82CFC35D0286929177651D1B623B1FB71323F1B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ Children of Morta — сюжетная action RPG с roguelite-подходом 
 magnet:?xt=urn:btih:8466CE4F2E077017F45D299DA3097E717A7C3D29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ Stone Age: Digital Edition 1.2.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:D29CCB129F7C415E7B8E35018DF219C471CDE8FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ Alawar и Warm Lamp Games представляют квест Beholder. Стил
 magnet:?xt=urn:btih:CB312F384FB193A1F3A335B9165B5E0F7130C2C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ LUNA The Shadow Dust — это полностью вручную анимиро
 ```bash
 magnet:?xt=urn:btih:647483E98E7A129176F35EF169AA304DDB33A3AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ Concordia: Digital Edition - это точная адаптация страте
 ```bash
 magnet:?xt=urn:btih:9C30011E75C0C455126E8E246ADBE17D74538230
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ Beholder 2.6.269 [Ru]
 magnet:?xt=urn:btih:DE2F41B48396B4F6B5A6A99EF12074A8601A392B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ Hitman: Blood Money — Reprisal 1.2RC13 [Ru]
 magnet:?xt=urn:btih:E7224C65FEF4E2517BB4391A3BA8AF51B7A04138
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ After Inc. v1.0.5 [En]
 ```bash
 magnet:?xt=urn:btih:C3D2A550A3A57618FB1BC4ECD3A3C07D3D278396
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +669,8 @@ Stardew Valley 1.6.14.11 [Ru]
 magnet:?xt=urn:btih:F1ECEBFD2361BBB48BBA3897A6E5F8E91DA2D5B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ Tiny Room Stories Town Mystery v2.6.26 [Ru]
 ```bash
 magnet:?xt=urn:btih:E560D21B3664B03DCA7D100712D03913812C2FF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ uTorrent Pack 1.2.3.76 Repack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:4D4AF1A9D11E165DA73C7F6C3C7CFE0564DB20AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 ```bash
 magnet:?xt=urn:btih:6BE73E347EC590D2F14AF95DF65DCF92811E0665
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ R-Studio - лучшее на сегодняшний день программн�
 magnet:?xt=urn:btih:B743629E727C70867FB905D46D99F0120A6DE846
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Caramba Switcher - это новый, понятный автоматическ�
 ```bash
 magnet:?xt=urn:btih:834E21CA1562D6E11E0281F33682267E5F0C29E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ MiniTool Partition Wizard Technician - мощный менеджер для ра
 magnet:?xt=urn:btih:3F505245E30AB27A41694A927228B0420334B5C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Wondershare Filmora - удобный видеоредактор, содержа�
 magnet:?xt=urn:btih:C3CCF9EC477AC7C306B793D269CF10A1F6A05095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:9B6954EA3B977DA8E1AAA1A5393BBE290D0D31B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Udemy, Andrei Neagoie | The Complete Web Developer in 2021: Zero to Mastery (202
 magnet:?xt=urn:btih:CCB2C0A5D4F1A7CA54C6E11622E3524F1799D3B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:FABD36006E179982B022BFC4C0DDFD659CEF08B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ DiskDigger - маленькая утилита, с которой можно в�
 magnet:?xt=urn:btih:3DCF644337C09D6D4696A630D2E7D432F0D96044
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 ```bash
 magnet:?xt=urn:btih:EC60022874AEB8A0D718BEFE2CDA9658C5CA2A80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Affinity Photo — обеспечивает более высокую скоро
 magnet:?xt=urn:btih:0B9F00480AB9839705460EAFC4794F1465C7AD55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:936500E72BE609EB02944590B75C678E69C65767
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Luminar Neo – это отдельный редактор, который вк�
 magnet:?xt=urn:btih:2406B3D6585B9B157B4A21D92B42D6CEEFD28817
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ TrustViewer - это комплексное решение для удаленн
 ```bash
 magnet:?xt=urn:btih:86ACF38C9AD7FD7F709BE17A9B96253BF2EF42B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ TrueArtSchool, Светлана Курако | Иллюстратор ПРО (20
 magnet:?xt=urn:btih:DD72E8F87FC9B7E281D3E82EB9E49989E8DE6DE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ W10Privacy - программа для изменения настроек си�
 ```bash
 magnet:?xt=urn:btih:003523A97CDABD55759FFAE42380FC8464B6C2B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:0F99169BA7424B8C4CE0E9B2704C0CFECA5B7549
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ DP Animation Maker 3.5.13 RePack (& Portable) by TryRooM [En]
 ```bash
 magnet:?xt=urn:btih:B90AA63ABED5ABF18BFB54C5F11B5A8190E4295E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ PortScan & Stuff - бесплатная утилита, которая дает 
 magnet:?xt=urn:btih:B3E40C54E248A944D9A6EBB97F4839946E6DC401
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Double Commander - это свободный, с открытым исходны
 ```bash
 magnet:?xt=urn:btih:13D859F0D4163BFE19CEDB2D071D23175B51D7CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ HiBit Uninstaller - идеальное решение для удаления п
 magnet:?xt=urn:btih:0E64EAE1B959E28D530E3CBCFB4577DD6DFE7E18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:46E20851119887689F00A518EE309F84EBD2356D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ DP Animation Maker 3.5.22 RePack (& Portable) by elchupacabra [Ru/En]
 magnet:?xt=urn:btih:945A3C6AC87EEA164414311580D933AB0839256A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ OCCT 12.1.9 Final Portable [En]
 magnet:?xt=urn:btih:5C7D89AF5ACBD5875ECF9145252F4D9BF1301E38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:BD83773319E24EC4C2B3E8612B20A3F90FB73BFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

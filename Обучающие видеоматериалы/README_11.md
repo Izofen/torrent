@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:76C3E15C0B5ACF99BDD2D70B57703E89D14ECAFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Skillbox | Профессия Менеджер маркетплейсов (2024)
 magnet:?xt=urn:btih:E84BCAC9E2052223558820E68D503817A31279B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:E84BCAC9E2052223558820E68D503817A31279B9
 magnet:?xt=urn:btih:B347239E376E0F57543FB1AD3213C5B5541948DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:B347239E376E0F57543FB1AD3213C5B5541948DA
 ```bash
 magnet:?xt=urn:btih:17924776F9B447BAC46A71E1A05264BDC7DB9426
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:17924776F9B447BAC46A71E1A05264BDC7DB9426
 magnet:?xt=urn:btih:8AEAB3C4CE46D44EACAA1CE54C4DADA97076A576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Udemy, Marwan Sufyan | AutoCAD Architectural 3D Modeling (2025) WEB-DL [EN]
 magnet:?xt=urn:btih:441116D3EB84E7B010929294569D8F23CB16A369
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Udemy, Logan Wiesen | Realistic 3D Character Creation By Logan Wiesen (2025) WEB
 ```bash
 magnet:?xt=urn:btih:CA2F89B4FBE24FC2D9859E4A4885A0A89E511905
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:CA2F89B4FBE24FC2D9859E4A4885A0A89E511905
 magnet:?xt=urn:btih:CE30EA9DEE51B4EA4121A8E9DD812E6953730687
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:CE30EA9DEE51B4EA4121A8E9DD812E6953730687
 ```bash
 magnet:?xt=urn:btih:7390731CFE56E220ECA56A5FC1CAC35D3C2ED926
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:7390731CFE56E220ECA56A5FC1CAC35D3C2ED926
 magnet:?xt=urn:btih:8320C8A4A57D4E472E9938721AE10C1773CDEF4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:8320C8A4A57D4E472E9938721AE10C1773CDEF4B
 magnet:?xt=urn:btih:0B023EE8D5BAB21CF5B23530EA4DA3D226FECF59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:0B023EE8D5BAB21CF5B23530EA4DA3D226FECF59
 ```bash
 magnet:?xt=urn:btih:B2F12478DC24CF4C785BDBB6146FCF129D617087
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ RxJS - это библиотека для реактивного програм�
 magnet:?xt=urn:btih:9755D54BB1E967D921CF37AF5CCCC5910271C6B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ CoffeeScript — язык программирования, транслируе
 ```bash
 magnet:?xt=urn:btih:BD938C0B4D0AF36E9A524DDD93A72E9440FA63F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ Studio (   Читать дальше...   )Производство: Coloso.Ж�
 magnet:?xt=urn:btih:165E7FCCB03A219554FDC57DA10D36BD7E763459
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:165E7FCCB03A219554FDC57DA10D36BD7E763459
 ```bash
 magnet:?xt=urn:btih:10D6B3DD7097B03B8F3CF225C7F7D3B5DD07D157
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +461,8 @@ magnet:?xt=urn:btih:10D6B3DD7097B03B8F3CF225C7F7D3B5DD07D157
 magnet:?xt=urn:btih:EE98D18BF32B106D0305DE8FA7A6EE783C78A005
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ magnet:?xt=urn:btih:EE98D18BF32B106D0305DE8FA7A6EE783C78A005
 magnet:?xt=urn:btih:A4128BCFAEE2C7EF4625A6F3398CBA11E8EBEA25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ Warren Eagles | FF201 Advanced Resolve 11 (2014) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:A82165D89E26C39EC65D0B38BB8E33B973CF6E3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:A82165D89E26C39EC65D0B38BB8E33B973CF6E3F
 magnet:?xt=urn:btih:C8AA52DAD8A2D5C97DC75008173A6332762FB5D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ OTUS | Java Developer. Advanced (2024) WEB-DL [RU]
 magnet:?xt=urn:btih:2F9FCA9D51D11B7DF6E157638EC38E9D839E1834
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:2F9FCA9D51D11B7DF6E157638EC38E9D839E1834
 ```bash
 magnet:?xt=urn:btih:899FEC68E555FFD4EE65152E6EE4988A9FE863A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ Udemy, Борис Шлыков | Уроки Гитары С Нуля Для На
 magnet:?xt=urn:btih:7633D54D42C4CC039B1BC1C4D01D11B16F7EEF92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ Udemy, Edward Harding | Learn Architectural Design & Animation With Blender (202
 magnet:?xt=urn:btih:6D99AFC1CC246700072AEBDB8451930FF8AA10A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ magnet:?xt=urn:btih:6D99AFC1CC246700072AEBDB8451930FF8AA10A1
 magnet:?xt=urn:btih:BC677B2A87B584FE521F7A02B7A476B20CA1F303
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ Abe Leal 3D | Complete Guide to Retopology (2025) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:8FF460BF4082EAAB0D15F452266336FCD1586EEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

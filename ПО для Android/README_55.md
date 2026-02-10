@@ -19,6 +19,8 @@ Listen Audiobook Player v5.2.2 (979) Mod by derrin [Ru/Multi]
 magnet:?xt=urn:btih:A9D1C6F75DA294A0F952E6B97D3512874DC9D788
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:A9D1C6F75DA294A0F952E6B97D3512874DC9D788
 magnet:?xt=urn:btih:537F125DCBBF0CEEB920B70A1ACD57F878DA1900
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:537F125DCBBF0CEEB920B70A1ACD57F878DA1900
 ```bash
 magnet:?xt=urn:btih:546B8A8A4008F2DD5AA774CB56E29EA6FE222DEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Stellio - продвинутый плеер, с мощным звуком, по�
 magnet:?xt=urn:btih:3653F20FE5B9F6BC2C9E243C97440DBBFAEBAD7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:3653F20FE5B9F6BC2C9E243C97440DBBFAEBAD7E
 magnet:?xt=urn:btih:34873923386E5856B8931C1B0884BE38C340AB5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:F0CD222CA8170DB27841190A6EFECD757931C0F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:F0CD222CA8170DB27841190A6EFECD757931C0F2
 magnet:?xt=urn:btih:AF38CE56762CC54C5D7F1CBE2F47B1560C224F5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:AF38CE56762CC54C5D7F1CBE2F47B1560C224F5E
 magnet:?xt=urn:btih:553CF5D711F7E40E448993D11AF8D9C8D476674B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:D0A235A7B45DBEF5C39B187ABCD82F7150F78EF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Stellio - продвинутый плеер, с мощным звуком, по�
 magnet:?xt=urn:btih:D9FFBBC2B86FD45A9DC8F092D0A72BCA28E3289F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:D9FFBBC2B86FD45A9DC8F092D0A72BCA28E3289F
 ```bash
 magnet:?xt=urn:btih:205F82509DF5D8C69D00A7D5B69914A9704E9DB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ Purvpn 10.1+ [En/Farsi]
 magnet:?xt=urn:btih:F70A007E87EA9E2C67FCBE5DAF32A4DDF6D3B21B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ Auto Reply: автоответчик v5.8 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:AE16048BB56EB240B2BD94B1A9F35D1A27F24E45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:AE16048BB56EB240B2BD94B1A9F35D1A27F24E45
 magnet:?xt=urn:btih:81099464AF92D521F8DC835CE72858303878EE75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:81099464AF92D521F8DC835CE72858303878EE75
 ```bash
 magnet:?xt=urn:btih:F5C4220550DCCDEE9ADE68A9780AF39EFDDD4A83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:F5C4220550DCCDEE9ADE68A9780AF39EFDDD4A83
 magnet:?xt=urn:btih:1F31844093A31047FEA160548039E15E349A710E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ Oxford Dictionary of English v11.7.717 Premium [En]
 magnet:?xt=urn:btih:6AF036677CDA0B506BA86175146A4E634E5AC8FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ Seal 1.11.0-rc.3 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EBA85858483FE45A9EE33BE6DE386009EC632890
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ SUI File Explorer PRO v1.0.1 [En]
 magnet:?xt=urn:btih:A461534A55588417D76CD5FA257FBF7DF9B5355C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:A461534A55588417D76CD5FA257FBF7DF9B5355C
 magnet:?xt=urn:btih:B458FBA34AA9DD37BA271EC7F57E8EFC3CDF982B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ VK Музыка: песни и подкасты v8.0 b11466 Mod by VK Equals [Ru
 ```bash
 magnet:?xt=urn:btih:8D877F1CCE9C86EF489E7244EBDEAA7879FE2A01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ Genius Art: Image AI Generator v1.5.3 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:9E9E2B45DCD225BF1AE0583D41CB6974CD72490C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ OTT Navigator PREMIUM v1.6.8.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C21F12A669C36418412991BC425A739FE6A74AC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:C21F12A669C36418412991BC425A739FE6A74AC1
 magnet:?xt=urn:btih:C80E4D24F62FD5A3D4B451F810669E16BA688CFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:C80E4D24F62FD5A3D4B451F810669E16BA688CFE
 magnet:?xt=urn:btih:7B9D3BC66A3D8D1EAD0186DD0A1A427D43DF45A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Do It Now: RPG список дел, ежедневник, планировщик
 ```bash
 magnet:?xt=urn:btih:B43A543377E60114C1C0C5183A55D112B76C90A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

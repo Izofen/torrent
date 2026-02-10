@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:FF3DBD949065B1BCF55DCA1DEB1E16D82D5F20D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:FF3DBD949065B1BCF55DCA1DEB1E16D82D5F20D4
 ```bash
 magnet:?xt=urn:btih:9A18FA55AAC966A92A60A90460D4BCBB5C020A69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:9A18FA55AAC966A92A60A90460D4BCBB5C020A69
 magnet:?xt=urn:btih:F3D189D4751A240A181954F9DEC06B61470EB49D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Phil Thornton - Seven Rings (feat. Sika) (2017) [FLAC|Lossless|WEB-DL|tracks] <N
 ```bash
 magnet:?xt=urn:btih:AA8451A35F0F0A27028EF98A1F2C35146A0D9E71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Leo Kottke - Standing In My Shoes (1997) [MP3|320 кб/с] <Folk, World, Country
 magnet:?xt=urn:btih:D273CB9D789E840B3ABE8A0003D4484191150FF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Louis Landon - Soul Healing Piano Music (2017) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:92B774F8D5B94205B77C80231DC640CD5CC4B160
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ David Arnold & Michael Price - Sherlock - Original Television Soundtrack Music F
 magnet:?xt=urn:btih:3F443EEFF5A103835358536EBCFEB2777A101CBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ Trent Reznor & Atticus Ross - Watchmen / Хранители (Music from the HBO 
 ```bash
 magnet:?xt=urn:btih:3914F96E75C539F96E19A4459DB1A7A76478B1E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +260,8 @@ Yanni - Sensuous Chill (2016) [FLAC|Lossless|image+cue] <New Age, Electronic>
 magnet:?xt=urn:btih:D4F66A738FCF5DB704087FFDA4E1E0FCCA06BDBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ Nathan Whitehead - Days Gone (Original Soundtrack) (2019) [FLAC 2.0|44.1/24|trac
 ```bash
 magnet:?xt=urn:btih:2BF58EA4DE069F1ACC0E8EE971330463B3768B55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +318,8 @@ Austin Wintory - John Wick Hex (Original Game Soundtrack) (2019) [FLAC|Lossless|
 magnet:?xt=urn:btih:EFCB592DF9F4DF6218AC1019E8F38D174168AB12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +346,8 @@ The Cactus Blossoms - You're Dreaming (2016) [FLAC|Lossless|tracks + .cue] <Coun
 ```bash
 magnet:?xt=urn:btih:CBFE8EB3468A0932B93019F56AFD2719E7B03F74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +376,8 @@ Austin Wintory - John Wick Hex (Original Game Soundtrack) (2019) [MP3|320 кб/�
 magnet:?xt=urn:btih:A68DC2077349E9D2163E02C89A9ACA642C2CC0A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +404,8 @@ Trent Reznor & Atticus Ross - Watchmen / Хранители (Music from the HBO 
 ```bash
 magnet:?xt=urn:btih:1C94AD8B9806AB224AD9075FAE544573B5E80991
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +434,8 @@ Paul Haslinger - Exit Ghost (2020) [FLAC|Lossless|WEB-DL|tracks]<Electronic, Con
 magnet:?xt=urn:btih:98AB0676DCE48632C0486039DEC1C4880A161AA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +462,8 @@ Paul Haslinger - Exit Ghost (2020) [MP3|320 кб/с]<Electronic, Contemporary In
 ```bash
 magnet:?xt=urn:btih:15EC90E5876BDC4DBD6BA470565D8349F36B4E7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +492,8 @@ Marcus Paus - Mortal (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/�
 magnet:?xt=urn:btih:4DBE38861C41240D2E667EC150F66772745A6F07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +520,8 @@ Rob (Robin Coudert) - Revenge / Выжившая (Bande Originale du Film) (2017
 ```bash
 magnet:?xt=urn:btih:D2FF1B17202D524551BBAC56D9B40B6D6F180400
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +550,8 @@ Rob (Robin Coudert) - Revenge / Выжившая (Bande Originale du Film) (2017
 magnet:?xt=urn:btih:803CCEF48A563603C206C085A4320D222D70AACE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +578,8 @@ Rob (Robin Coudert) - Maniac / Маньяк (Original Motion Picture Soundtrack)
 ```bash
 magnet:?xt=urn:btih:B73ABD9399CA6E710DB48C15E530FC587E2744DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +608,8 @@ The Cactus Blossoms - Easy Way (2019) [FLAC|Lossless|WEB-DL|tracks] <Country>
 magnet:?xt=urn:btih:55590E52FFD1283F045DADF5F12784EB30FFF747
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +636,8 @@ Rob (Robin Coudert) - Maniac / Маньяк (Original Motion Picture Soundtrack)
 ```bash
 magnet:?xt=urn:btih:AC3A587138523EE9C7AAADD119377D3D05C51F62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +666,8 @@ The Cactus Blossoms - The Cactus Blossoms (2011) [FLAC|Lossless|tracks + .cue] <
 magnet:?xt=urn:btih:F7B57621747F2B73F750D85DEC7CE4E9C1DA9EFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +694,8 @@ magnet:?xt=urn:btih:F7B57621747F2B73F750D85DEC7CE4E9C1DA9EFE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,6 +724,8 @@ NBA 2K17 - Soundtrack (2016) [MP3|320 Kbps] <Soundtrack>
 magnet:?xt=urn:btih:1B5F112D82B21A6C0A861C92D2AF9E2508299C38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -702,6 +752,8 @@ Nathan Whitehead - Days Gone (Original Soundtrack) (2019) [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:D5558948E31206E3AE7B2B22376F048AA053D51F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

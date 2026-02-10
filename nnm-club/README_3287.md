@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:625CCF7CA356B3CC59948B32A6049EFEB87DF04D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:625CCF7CA356B3CC59948B32A6049EFEB87DF04D
 ```bash
 magnet:?xt=urn:btih:CDF75DBDE4C8283056FDC479628BF5E671C9D831
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:CDF75DBDE4C8283056FDC479628BF5E671C9D831
 magnet:?xt=urn:btih:34418B8E6F140270222D7E1ADB370133C98F525D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ The Georgia Thunderbolts - Rise Above It All (2024) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:CF3B84DC029AF36CFAF1DE8DD8EF878761034B13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:CF3B84DC029AF36CFAF1DE8DD8EF878761034B13
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:CF3B84DC029AF36CFAF1DE8DD8EF878761034B13
 magnet:?xt=urn:btih:3E0B5EBDEC6ADE56F6ECD2A684FD797C224B7144
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:3E0B5EBDEC6ADE56F6ECD2A684FD797C224B7144
 magnet:?xt=urn:btih:867956EF814D995A8E1F2A96CE18B9CFF5ED924B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:867956EF814D995A8E1F2A96CE18B9CFF5ED924B
 ```bash
 magnet:?xt=urn:btih:9F94E9AA108C8755D6613E714C344A2F18080130
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:9F94E9AA108C8755D6613E714C344A2F18080130
 magnet:?xt=urn:btih:D7F9A79471A75008106FBB4880D616EACE462B24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:01F5EFE9048F975D4DDC36DBD4C55737BA685984
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:01F5EFE9048F975D4DDC36DBD4C55737BA685984
 magnet:?xt=urn:btih:C66A2806CF10FBBB96E4B87F9631A8191B52A3BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Joplin - это бесплатное приложение для создани�
 ```bash
 magnet:?xt=urn:btih:92BA00213D6DA3B02103EFA3C9516DEF6CD29806
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ Blender - бесплатный редактор трехмерной графи�
 magnet:?xt=urn:btih:F119EDA084ED0F40A1303CCBFA044E3A93B8BE36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ RisohEditor позволяет добавлять, редактировать, �
 magnet:?xt=urn:btih:226C8570F4C896C748BA612C81A4D0ABED11DCA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:226C8570F4C896C748BA612C81A4D0ABED11DCA6
 magnet:?xt=urn:btih:C1EB1CA16D1AC792B569BA545C94EFEBD815B94B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ Wise Disk Cleaner 11.1.5.831 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8F6EDADECDCE95C23DA27EF54B69148028564ACA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:8F6EDADECDCE95C23DA27EF54B69148028564ACA
 magnet:?xt=urn:btih:01A3852F0A6EBE62B4AFDE6BCF53DA572B221966
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:01A3852F0A6EBE62B4AFDE6BCF53DA572B221966
 ```bash
 magnet:?xt=urn:btih:FFD52157249479313264564C8217DD9873F590AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ Avidemux - небольшой, простой редактор для работ
 magnet:?xt=urn:btih:1F47505494B3B345F2EEA44A4555652CE4EFF6CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:1F47505494B3B345F2EEA44A4555652CE4EFF6CB
 ```bash
 magnet:?xt=urn:btih:5B9971E72E4601652F3188EB0563BBCFED3075D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ Bloodcrown - Sound of Flesh and Bone (2024) [FLAC|Lossless|WEB-DL|tracks] <Death
 magnet:?xt=urn:btih:6658AC0F260FEBABFD3CC37B206C4EE8D915BF6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ Cognitive Dissonance - Return To The Flame (2022) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:F5153F163D38E683C19535BF1F5AE6B921AC87B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:F5153F163D38E683C19535BF1F5AE6B921AC87B8
 ```bash
 magnet:?xt=urn:btih:4AE6336808DF50F3CEF5A3014C5DB200A7AF5FA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:4AE6336808DF50F3CEF5A3014C5DB200A7AF5FA9
 magnet:?xt=urn:btih:748EED0506138EB6277061D9B66948BA2FC7B441
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:748EED0506138EB6277061D9B66948BA2FC7B441
 ```bash
 magnet:?xt=urn:btih:64282E72B0995B55059CF8BF8A9A240E9086501E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:64282E72B0995B55059CF8BF8A9A240E9086501E
 ```bash
 magnet:?xt=urn:btih:2FE18575D84B44D43E4496922F303B037E62217B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

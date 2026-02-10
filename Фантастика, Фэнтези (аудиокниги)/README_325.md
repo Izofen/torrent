@@ -1,3 +1,29 @@
+###  Публикация: 1574851   (381432) от 07.09.2022
+
+Сергей Плотников | Паутина света (Книга 3) (2022) [MP3, Олег Воля]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_381432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юто Амакава исполнилось двенадцать лет. Под его руководством буквально чудом вернувшийся из небытия шестой клан экзорцистов вынужден прилагать всё больше усилий, чтобы адекватно отвечать на всё новые и новые вызовы и при этом продолжать развиваться. И если с экономической стороной вопроса вроде пока удалось разобраться, то дебют в межклановой политике и вмешательство (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 20:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E35127098F46DCE77761F134EEA5DC45372A68A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574820   (381436) от 07.09.2022
 
 Рафал Косик | Четки (2022) [MP3, Илья Дементьев]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:CF132F52CA91584AAA97C2E04E81535421B48062
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:CF132F52CA91584AAA97C2E04E81535421B48062
 magnet:?xt=urn:btih:A27202ABFF9893060C01FFEB700C20C177F1217D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:A27202ABFF9893060C01FFEB700C20C177F1217D
 ```bash
 magnet:?xt=urn:btih:5A1B19DBEC49046A9966615914D3FC13FCE681A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +128,8 @@ magnet:?xt=urn:btih:5A1B19DBEC49046A9966615914D3FC13FCE681A5
 magnet:?xt=urn:btih:D6F2456FC6A09C34C6B12BBFC5D98D36FF3482D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:D6F2456FC6A09C34C6B12BBFC5D98D36FF3482D9
 ```bash
 magnet:?xt=urn:btih:52A2106CDBD40D3327C01B7A66F23B4F68143813
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +183,8 @@ magnet:?xt=urn:btih:52A2106CDBD40D3327C01B7A66F23B4F68143813
 magnet:?xt=urn:btih:E26237900123D547D1187B39E750926482E5ABD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +208,8 @@ magnet:?xt=urn:btih:E26237900123D547D1187B39E750926482E5ABD0
 ```bash
 magnet:?xt=urn:btih:2FBA1643801FDEAACD6E5BEBBE3911D3A114395D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +235,8 @@ magnet:?xt=urn:btih:2FBA1643801FDEAACD6E5BEBBE3911D3A114395D
 magnet:?xt=urn:btih:76ED313871EABA490066EBC50021892CE564EFC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:76ED313871EABA490066EBC50021892CE564EFC2
 ```bash
 magnet:?xt=urn:btih:F6BC6CEFA0845A35EB3654BA1A9D8E9424DEF7C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:F6BC6CEFA0845A35EB3654BA1A9D8E9424DEF7C9
 magnet:?xt=urn:btih:FF52BCD28B31E430462CBDCBD5C6B4F2952DDD85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:FF52BCD28B31E430462CBDCBD5C6B4F2952DDD85
 magnet:?xt=urn:btih:6D226F82D219298D6985CFC109B84EC775C1962D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:6D226F82D219298D6985CFC109B84EC775C1962D
 ```bash
 magnet:?xt=urn:btih:CFD658185EA1BFF3B9C6A15851FD674485969064
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +367,8 @@ magnet:?xt=urn:btih:CFD658185EA1BFF3B9C6A15851FD674485969064
 magnet:?xt=urn:btih:CD7212EDACF1870507C014CA93940D6F3BDF4E99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +392,8 @@ magnet:?xt=urn:btih:CD7212EDACF1870507C014CA93940D6F3BDF4E99
 ```bash
 magnet:?xt=urn:btih:7B5F0399BD60B803BF0F6B4C62670F5C12450BB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:7B5F0399BD60B803BF0F6B4C62670F5C12450BB1
 magnet:?xt=urn:btih:93F81CE04BF26FF2D3CBDAF1105D1B6107B0B10A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:93F81CE04BF26FF2D3CBDAF1105D1B6107B0B10A
 magnet:?xt=urn:btih:638A8310E2076BE3D27A0D3B067F91D073EC7DA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:638A8310E2076BE3D27A0D3B067F91D073EC7DA4
 ```bash
 magnet:?xt=urn:btih:D024FF810FCBC93B6A2177D819A891C92EBEC9CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:D024FF810FCBC93B6A2177D819A891C92EBEC9CA
 magnet:?xt=urn:btih:13C58EBB0A74CBAF8FBBB184F03C3D6F428A9043
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:13C58EBB0A74CBAF8FBBB184F03C3D6F428A9043
 ```bash
 magnet:?xt=urn:btih:DDE8A41768D7921AD24CB154533F041A35CD6B02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:DDE8A41768D7921AD24CB154533F041A35CD6B02
 magnet:?xt=urn:btih:0E7088E909C0E1A600FD2AE5A7521330FB87B684
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:0E7088E909C0E1A600FD2AE5A7521330FB87B684
 ```bash
 magnet:?xt=urn:btih:4C76579B90BC59A642FC98CB420CAEF7D76F087F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:4C76579B90BC59A642FC98CB420CAEF7D76F087F
 magnet:?xt=urn:btih:E21D3E0B3DFF3188D0C8FEA55D537EB4597497A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:E21D3E0B3DFF3188D0C8FEA55D537EB4597497A1
 ```bash
 magnet:?xt=urn:btih:6D99A5184FEAF5380622870EAE349A02912DD2D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:6D99A5184FEAF5380622870EAE349A02912DD2D9
 magnet:?xt=urn:btih:CCD06F65ACDB19C056FF4DD52B94FF75ECAB74F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,29 +682,7 @@ magnet:?xt=urn:btih:CCD06F65ACDB19C056FF4DD52B94FF75ECAB74F3
 magnet:?xt=urn:btih:CF8AF61694A7A54C7FEF18226F80337202F41894
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326382   (384828) от 20.09.2019
-
-Марина Суржевская | Чернокнижник (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384828.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Лекс Раут» – трилогия с нетипичным главным героем, по имени которого и названа. Он отнюдь не положительный, но и сугубо отрицательным его не сочтёшь. Лекс Раут не афиширует свою деятельность, зато всегда требует плату вперёд, а его услуги стоят недёшево. Наряду с деньгами он падок на женщин. Кто же это? Беспринципный чернокнижник, готовый на пару со своим помощником (   Читать дальше...   )Жанр: Боевое фэнтези, Детективное фэнтезПродолжительность: 10:16:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13E997F05D19714B5EBF229E67F206681592077A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ No Man's Sky (2016) [Ru/Multi] (5.12/dlc) Repack seleZen [VR]
 magnet:?xt=urn:btih:C1E205F64283CE859DA454C1E531C2C18A2C7F43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C1E205F64283CE859DA454C1E531C2C18A2C7F43
 ```bash
 magnet:?xt=urn:btih:EF9610F7DC5FAD486B1C013CCA5064D0D3DA28FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Eclipse - шведская рок-группа из Стокгольма, обр
 magnet:?xt=urn:btih:B3483E7A5A6EF7B57D75FD435BCC3FF643701201
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:B3483E7A5A6EF7B57D75FD435BCC3FF643701201
 ```bash
 magnet:?xt=urn:btih:C92188BC5E0ADED4FF0723F429FB99E266700E37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:C92188BC5E0ADED4FF0723F429FB99E266700E37
 magnet:?xt=urn:btih:7A92FBCECAB0D26B921167FC564E2DAAC8D7E1CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:7A92FBCECAB0D26B921167FC564E2DAAC8D7E1CE
 magnet:?xt=urn:btih:8E96EADF46DBED339C411942085E8D23C2959B3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:8E96EADF46DBED339C411942085E8D23C2959B3C
 ```bash
 magnet:?xt=urn:btih:675B0165A20EECCDB270D684EA6E76991A0B7296
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:675B0165A20EECCDB270D684EA6E76991A0B7296
 magnet:?xt=urn:btih:C76CAB54E85E2A4AC6CB7878BB1B3D7C543E489A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:C76CAB54E85E2A4AC6CB7878BB1B3D7C543E489A
 ```bash
 magnet:?xt=urn:btih:55E5858D70EB15EF65C5A33E32C67B6C782BC3CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:55E5858D70EB15EF65C5A33E32C67B6C782BC3CE
 magnet:?xt=urn:btih:B31C58243216E58A005DEF9BA782D6F17496458F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:B31C58243216E58A005DEF9BA782D6F17496458F
 ```bash
 magnet:?xt=urn:btih:A3E9EAC080245C8EB1476D02BC81BEEA718474B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:A3E9EAC080245C8EB1476D02BC81BEEA718474B3
 magnet:?xt=urn:btih:C8F5B910956511F0797904AF637CDD3EE3E31239
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:C8F5B910956511F0797904AF637CDD3EE3E31239
 ```bash
 magnet:?xt=urn:btih:E7BCD4626F645175DD927159F95E132D9978304F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:E7BCD4626F645175DD927159F95E132D9978304F
 magnet:?xt=urn:btih:C7038C8CD1CB8948B646BADB7D41EF9BA447259A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Farm Manager 2021 – игровой проект, который вновь г�
 ```bash
 magnet:?xt=urn:btih:A1B089D87EC835C2446AC91448680A2CD44BC78D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:A1B089D87EC835C2446AC91448680A2CD44BC78D
 magnet:?xt=urn:btih:9E69118210F585B3C3A7DD8ECED1E8EEEBDBD80C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:9E69118210F585B3C3A7DD8ECED1E8EEEBDBD80C
 ```bash
 magnet:?xt=urn:btih:8BFFEAFC646B01AB5A71009B4D875021A6E442E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ L.A. Noire – мрачный и жестокий триллер. В игре и
 magnet:?xt=urn:btih:764974257938719A2D95CA2F3A6C03ED66793F91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:764974257938719A2D95CA2F3A6C03ED66793F91
 magnet:?xt=urn:btih:1697C88BB562E8434DA090975464F836F415FCBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:1697C88BB562E8434DA090975464F836F415FCBD
 ```bash
 magnet:?xt=urn:btih:E0B27201CEE79AC86129D665683133112241092C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:E0B27201CEE79AC86129D665683133112241092C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ The Political Machine 2024 - это не обычные политические
 ```bash
 magnet:?xt=urn:btih:68ECBC43E338173BD33D65DEC106D18564B2737F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:68ECBC43E338173BD33D65DEC106D18564B2737F
 magnet:?xt=urn:btih:0B35FBEE4BE1C5D99A9187D78936AFCB775AC5E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:0B35FBEE4BE1C5D99A9187D78936AFCB775AC5E3
 ```bash
 magnet:?xt=urn:btih:B082661E18BD5B63E63E376494D2FFA26B371BED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:B082661E18BD5B63E63E376494D2FFA26B371BED
 magnet:?xt=urn:btih:38BA25F4600524A5D0575CB1B52B0284D23D7597
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:38BA25F4600524A5D0575CB1B52B0284D23D7597
 ```bash
 magnet:?xt=urn:btih:E5F4EE994AE81DA1B83AC1E698A6AD0A11AAE1FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

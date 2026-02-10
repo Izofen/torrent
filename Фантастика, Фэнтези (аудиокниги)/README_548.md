@@ -1,3 +1,31 @@
+###  Публикация: 1617571   (1034744) от 08.03.2023
+
+Брендон Сандерсон | Сокрушитель войн (2023) [MP3, Степан Дружинин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ворвавшись на сцену фэнтези с восторженно принятым публикой дебютным романом «Город богов», и закрепив успех успешной трилогией «Рожденный туманом», Брендон Сандерсон вновь доказывает, что он один из признанных мастеров в том, что Толкин называл «вторичным творением» — создании целых миров, с собственными досконально проработанными мифами и магией.
+
+Warbreaker – (   Читать дальше...   )Жанр: ФэнтезиПеревод: БуктранПродолжительность: 21:10:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:507076D409431CE7460E9A94D7A2CD3CD88B4D98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617867   (1034840) от 08.03.2023
 
 Евгения Александрова | Цепь и щит (Книга 3). Проклятый капитан. Грозовой фронт (2023) [MP3, Геннадий Форощук]
@@ -21,6 +49,8 @@
 ```bash
 magnet:?xt=urn:btih:3EDF78792BC7DE5BA658061B629323AC68C331A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +78,8 @@ magnet:?xt=urn:btih:3EDF78792BC7DE5BA658061B629323AC68C331A0
 magnet:?xt=urn:btih:29EC78228310AC586F6C73F5E6C119802173323D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +103,8 @@ magnet:?xt=urn:btih:29EC78228310AC586F6C73F5E6C119802173323D
 ```bash
 magnet:?xt=urn:btih:709B3480A2CE5C904921B0C1EA8CF7608D42A183
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +130,8 @@ magnet:?xt=urn:btih:709B3480A2CE5C904921B0C1EA8CF7608D42A183
 magnet:?xt=urn:btih:1934A1074580B443EE1FF2D049324CCA4E82587F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +155,8 @@ magnet:?xt=urn:btih:1934A1074580B443EE1FF2D049324CCA4E82587F
 ```bash
 magnet:?xt=urn:btih:CF5FB1CA83580B7BDDEE19B75EACBD176985915E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +184,8 @@ magnet:?xt=urn:btih:CF5FB1CA83580B7BDDEE19B75EACBD176985915E
 magnet:?xt=urn:btih:71D1C56003A0799F33675DB364D25710293FFBAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +209,8 @@ magnet:?xt=urn:btih:71D1C56003A0799F33675DB364D25710293FFBAA
 ```bash
 magnet:?xt=urn:btih:CCEE6867E76FBEE4C42125F35E664F9007FFCFD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +238,8 @@ magnet:?xt=urn:btih:CCEE6867E76FBEE4C42125F35E664F9007FFCFD7
 magnet:?xt=urn:btih:D96285D05B1CBCC7721B0D2CEB23A5EA1F8A0538
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +266,8 @@ magnet:?xt=urn:btih:D96285D05B1CBCC7721B0D2CEB23A5EA1F8A0538
 magnet:?xt=urn:btih:070BC887ED3471299769C3FCA4AF644FE542BA76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +293,8 @@ magnet:?xt=urn:btih:070BC887ED3471299769C3FCA4AF644FE542BA76
 magnet:?xt=urn:btih:1494614E2C5FE7FB42844BA18153B1EB845A5FE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +318,8 @@ magnet:?xt=urn:btih:1494614E2C5FE7FB42844BA18153B1EB845A5FE1
 ```bash
 magnet:?xt=urn:btih:5DC9F55BAD400189FC84A7FDCF8634CCA9EAA860
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +345,8 @@ magnet:?xt=urn:btih:5DC9F55BAD400189FC84A7FDCF8634CCA9EAA860
 magnet:?xt=urn:btih:93EEAECF58BA0384BC3071B30BB7E06F6E70EC11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +370,8 @@ magnet:?xt=urn:btih:93EEAECF58BA0384BC3071B30BB7E06F6E70EC11
 ```bash
 magnet:?xt=urn:btih:840297AF25A7EBA351FD540BDB2E285824F60F3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +397,8 @@ magnet:?xt=urn:btih:840297AF25A7EBA351FD540BDB2E285824F60F3E
 magnet:?xt=urn:btih:00462F783F6BDB2BC69CEE62DD78C03AA45812C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +422,8 @@ magnet:?xt=urn:btih:00462F783F6BDB2BC69CEE62DD78C03AA45812C8
 ```bash
 magnet:?xt=urn:btih:E04619D0A2B8E24F31CBF2BB5BBA67A5D6D246A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +449,8 @@ magnet:?xt=urn:btih:E04619D0A2B8E24F31CBF2BB5BBA67A5D6D246A1
 magnet:?xt=urn:btih:AC252BEE1AFA2FC13AF7F026B005B15F29F3947E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +474,8 @@ magnet:?xt=urn:btih:AC252BEE1AFA2FC13AF7F026B005B15F29F3947E
 ```bash
 magnet:?xt=urn:btih:F076560FD51E25F3DE520A5423F3FEE6CC3B663F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +502,8 @@ magnet:?xt=urn:btih:F076560FD51E25F3DE520A5423F3FEE6CC3B663F
 magnet:?xt=urn:btih:AABC6616FE5AD67B87D56B201CCB0BF178D03FE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +527,8 @@ magnet:?xt=urn:btih:AABC6616FE5AD67B87D56B201CCB0BF178D03FE2
 ```bash
 magnet:?xt=urn:btih:6E0D1D5A02EA0E92E4ADC2AF57FED4173796EAB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +555,8 @@ magnet:?xt=urn:btih:6E0D1D5A02EA0E92E4ADC2AF57FED4173796EAB1
 magnet:?xt=urn:btih:476601AF6F71004F44A6FD95B521177CFF4E7996
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +580,8 @@ magnet:?xt=urn:btih:476601AF6F71004F44A6FD95B521177CFF4E7996
 ```bash
 magnet:?xt=urn:btih:0693AD74FB4A5E89B588FFD65AF5BDDEB6A91B60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +607,8 @@ magnet:?xt=urn:btih:0693AD74FB4A5E89B588FFD65AF5BDDEB6A91B60
 magnet:?xt=urn:btih:213E63EF83445C31188A06B87F34E9A256C7A84C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +632,8 @@ magnet:?xt=urn:btih:213E63EF83445C31188A06B87F34E9A256C7A84C
 ```bash
 magnet:?xt=urn:btih:AA783B5FF64E28014757109802DE345EF565D03C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +659,8 @@ magnet:?xt=urn:btih:AA783B5FF64E28014757109802DE345EF565D03C
 magnet:?xt=urn:btih:DE647C7677329F9BB10C0B98A7F9CF94E9E27C23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,30 +685,7 @@ magnet:?xt=urn:btih:DE647C7677329F9BB10C0B98A7F9CF94E9E27C23
 magnet:?xt=urn:btih:0D439FF737AEE109C01C97B64EA64E48397C6834
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442848   (1036249) от 26.01.2021
-
-Эдуард Веркин | Звездолет с перебитым крылом (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эдуард Веркин – один из ярких современных российских авторов, лауреат престижных литературных премий, настоящий наследник традиций Чехова, Платонова, Лема, братьев Стругацких, Дика, Брэдбери. В 2012 году роман Веркина «Друг-апрель» был включен в список выдающихся книг мира «Белые вороны», составляемый Мюнхенской международной детской библиотекой.
-В своих книгах Э. (   Читать дальше...   )Жанр: Социальная фантастикаПродолжительность: 09:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D2CD2E7B8C0CE842187B52DF096A56AAD75DC66
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

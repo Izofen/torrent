@@ -19,6 +19,8 @@ Nine Sols (2024) [Ru/Multi] (202412161711) Repack FitGirl
 magnet:?xt=urn:btih:89A77DDEBEA373444E81ECE9F2A5ABF5616DB1FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:89A77DDEBEA373444E81ECE9F2A5ABF5616DB1FA
 ```bash
 magnet:?xt=urn:btih:3EDD7BA16DE324F22C63E8AB369B61C7AAA58629
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:3EDD7BA16DE324F22C63E8AB369B61C7AAA58629
 magnet:?xt=urn:btih:87B3DD1D2A31EAFB7FB380378B8D21F8E9C5670E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:87B3DD1D2A31EAFB7FB380378B8D21F8E9C5670E
 ```bash
 magnet:?xt=urn:btih:E15D36C18CE5BFF693AA80A55B8FE1619C3DD7F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:E15D36C18CE5BFF693AA80A55B8FE1619C3DD7F9
 magnet:?xt=urn:btih:04A569352EFFFB36D40D8C39B6C7BBA7B897B79A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ DaVinci Resolve — единственное в мире решение для �
 ```bash
 magnet:?xt=urn:btih:1D3FCD7BB44740226E4A8F612D353D5281CE907C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Marvel’s Spider-Man: Miles Morales (2022) [Ru/Multi] (3.617.1.0/dlc) Repack se
 magnet:?xt=urn:btih:988E4DF01ABF452848A94C5587430ECC21DEE7DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Generation Zero (2019) [Ru/Multi] (2901094/dlc) Repack Pioneer [Ultimate Bundle]
 magnet:?xt=urn:btih:460A988C9CE5FC78D4A20F0E0A3DF04CB26CD9B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ WinX VideoProc Converter - усовершенствованная версия, 
 ```bash
 magnet:?xt=urn:btih:2E3C2C2D4A4E1B72EB46DA8FC3D768D455F48584
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ ARK: Ultimate Mobile Edition включает оригинальную карт�
 magnet:?xt=urn:btih:6C45AB375B2262759673CAA95851D11CF48ED0E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Alexey Soshin | Kotlin Design Patterns and Best Practices (3rd Edition) (2024) [
 ```bash
 magnet:?xt=urn:btih:B3C7B94629C4E2FB809B631FDB6E3DD71834D9B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:B3C7B94629C4E2FB809B631FDB6E3DD71834D9B1
 magnet:?xt=urn:btih:ED8F188E97022E1C898C2F41D0CD4F710DAB0242
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ MInstAll v.23.12.2024 By Andreyonohov (Unpacked) [Ru]
 ```bash
 magnet:?xt=urn:btih:A3C56DF42BDB2A908159261EB0D7A9F2EFD9DAA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Adobe Photoshop 2025 - новая версия программы для обр�
 magnet:?xt=urn:btih:DDFC20018BD5DFE152677F99543A40C4B0D55932
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Max Payne: Anthology / Max Payne: Антология (2001-2012) (1.05/1.01/1.0.
 ```bash
 magnet:?xt=urn:btih:A73B58A17F705844DDC84665E45DFF4C0EABA3C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:A73B58A17F705844DDC84665E45DFF4C0EABA3C8
 magnet:?xt=urn:btih:962448EB790031304E4825254A13F29F9552433E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:962448EB790031304E4825254A13F29F9552433E
 ```bash
 magnet:?xt=urn:btih:B0E576494D324ADA64C3A93C492C6AE871266C35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:B0E576494D324ADA64C3A93C492C6AE871266C35
 magnet:?xt=urn:btih:DFFCBE240D9EE0B917724F5144FBBE1534A1968B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:DFFCBE240D9EE0B917724F5144FBBE1534A1968B
 ```bash
 magnet:?xt=urn:btih:9DB8B64103E7CC118DE524E85AEDBE1911F5719D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ The Iron Oath – это ролевая фэнтезийная игра с та�
 magnet:?xt=urn:btih:F36D6975AF2D19AAC149233AB692EABE9237F3DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:F36D6975AF2D19AAC149233AB692EABE9237F3DF
 ```bash
 magnet:?xt=urn:btih:821514B7FD603758E8341BE5253C530C351E1BAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ HROT - шутер от первого лица, выступающий наст�
 magnet:?xt=urn:btih:5315576BD78F7BD0B28914E5F086E01303C797BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:5315576BD78F7BD0B28914E5F086E01303C797BD
 magnet:?xt=urn:btih:9D39395409DAC26A0C4E6DBF94771671895E34C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Kong: Survivor Instinct - это 2.5D экшен-платформер, дейс�
 ```bash
 magnet:?xt=urn:btih:263970F52CAEA6B9D23E0CB2EFD19C8354CA3A26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:263970F52CAEA6B9D23E0CB2EFD19C8354CA3A26
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:263970F52CAEA6B9D23E0CB2EFD19C8354CA3A26
 ```bash
 magnet:?xt=urn:btih:E51B4B37489C0843C98D711011EB7C40B1990763
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

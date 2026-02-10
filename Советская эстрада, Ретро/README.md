@@ -23,6 +23,8 @@ https://t.me/izofen
 magnet:?xt=urn:btih:D7C8F22161F7A8FE214C69E2962A1188DA5E83A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:D7C8F22161F7A8FE214C69E2962A1188DA5E83A4
 ```bash
 magnet:?xt=urn:btih:39C4DB2EF8D5C8B38211F942450E21FE963D7BF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ magnet:?xt=urn:btih:39C4DB2EF8D5C8B38211F942450E21FE963D7BF4
 magnet:?xt=urn:btih:12C26B2D0A4907F233C3AA675A54A6ECEA20C277
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ magnet:?xt=urn:btih:12C26B2D0A4907F233C3AA675A54A6ECEA20C277
 ```bash
 magnet:?xt=urn:btih:2198C8E46BF1482A9AD07E6EE6FC4EFA0D68879F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +139,8 @@ magnet:?xt=urn:btih:2198C8E46BF1482A9AD07E6EE6FC4EFA0D68879F
 magnet:?xt=urn:btih:216A7FC13FBAF89B9C7B603F8DCFA5D3E74B2E8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ magnet:?xt=urn:btih:216A7FC13FBAF89B9C7B603F8DCFA5D3E74B2E8A
 ```bash
 magnet:?xt=urn:btih:A8B5C0BFE7279C2CED1A5AA4F75E58DD3ECB445D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +197,8 @@ magnet:?xt=urn:btih:A8B5C0BFE7279C2CED1A5AA4F75E58DD3ECB445D
 magnet:?xt=urn:btih:87A558686C64336E811BCAB6ADAD2415BFDDC658
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ magnet:?xt=urn:btih:87A558686C64336E811BCAB6ADAD2415BFDDC658
 ```bash
 magnet:?xt=urn:btih:F8ABE5DFE9B8DCA0AD87F73A1D6B85B185E13D53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +255,8 @@ magnet:?xt=urn:btih:F8ABE5DFE9B8DCA0AD87F73A1D6B85B185E13D53
 magnet:?xt=urn:btih:6F60CACFDF0468B744834CDC66E546E4982BA1D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +284,8 @@ magnet:?xt=urn:btih:6F60CACFDF0468B744834CDC66E546E4982BA1D9
 magnet:?xt=urn:btih:23DC42CEE3DAABF1E3F5AA0ABDB6845013366BA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +310,8 @@ VA - Пахмутова: Любовь моя – спорт (1980) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:22BD81D64F8D039C8DD0F4388478BD6AB8C0B3DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +340,8 @@ magnet:?xt=urn:btih:22BD81D64F8D039C8DD0F4388478BD6AB8C0B3DA
 magnet:?xt=urn:btih:E3D7F0ABB443936C1452E79D8BD44B00250CFA6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +368,8 @@ magnet:?xt=urn:btih:E3D7F0ABB443936C1452E79D8BD44B00250CFA6C
 ```bash
 magnet:?xt=urn:btih:B9C22DA038E476694BF9FD4D39588BB7250D20EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +398,8 @@ magnet:?xt=urn:btih:B9C22DA038E476694BF9FD4D39588BB7250D20EC
 magnet:?xt=urn:btih:FC1B7FEA984BD8C422C105AB3B11B5F0292CBE0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +426,8 @@ magnet:?xt=urn:btih:FC1B7FEA984BD8C422C105AB3B11B5F0292CBE0E
 ```bash
 magnet:?xt=urn:btih:024C9948437B702584B33974F1B93826858F51C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +456,8 @@ Marc De Loutchek - Chansons russes et Tsiganes russes. Vol 2 (2007) [MP3|320 Kbp
 magnet:?xt=urn:btih:FE86FBB1E3B5A4FAC0D484F2EF84B52214B9875B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +484,8 @@ magnet:?xt=urn:btih:FE86FBB1E3B5A4FAC0D484F2EF84B52214B9875B
 ```bash
 magnet:?xt=urn:btih:6552EA861479DABD56B25B93C6876E25C9615FE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +520,8 @@ VA - Московские окна: Песни на все времена (1995)
 magnet:?xt=urn:btih:FE60BD9AE16EAE5EFEF75B85598B06F6CF7A8E92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +554,8 @@ CD 1Жанр: Pop, DanceПродолжительность: 04:17:38
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +590,8 @@ VA - Вокально-Инструментальные Ансамбли СССР
 magnet:?xt=urn:btih:C8A7594A5B37755FA64F8271D0B8EA93C1B77919
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +624,8 @@ VA - Диско 80-х - Кумиры восьмидесятых. Выпуск р
 ```bash
 magnet:?xt=urn:btih:156D6DE166917317C9978A3468DEBCE63D5C0D59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +660,8 @@ VA - Звёзды царской эстрады (приложение к кни�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +694,8 @@ VA - Родные хиты семидесятых (2012) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:D2599B2A93A636D8943F1CE8F1053B94B3B88A08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -684,6 +730,8 @@ VA - Диско 80-х - Кумиры восьмидесятых. Выпуск 50
 magnet:?xt=urn:btih:8F1888F8794DDCF1A3E5C2F3BF2EF7E623F6A209
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -717,6 +765,8 @@ VA - XXXL Золотые 80-е Русский (2012) [MP3|224-256 kbps]<Pop>
 magnet:?xt=urn:btih:50C728D3AB492E041A505039666E1452DE52AF86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -749,6 +799,8 @@ VA - Romantic Collection Disco 80 vol. 2 (2012) [MP3|256 kbps]<Disco>
 ```bash
 magnet:?xt=urn:btih:55B55D80EB0411645704F33CD041BAE5E59A1F8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

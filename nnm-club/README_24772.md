@@ -1,673 +1,776 @@
-###  Публикация: 600726   (998633) от 09.01.2013
+###  Публикация: 600442   (997863) от 12.01.2013
 
-VA - Дискотека 2013 Dance Club Vol. 99 (2013) [MP3|320 кб/с]<Dance, Club, Pop>
+VA - Deep In My Soul (2013) [MP3|320 кб/с]<Deep House>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998633.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997863.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Morandi - Everytime (Radio Edit) (4:00)
-2. DAS feat. Лера Туманова (Электра) - Чувствовать Пульс (3:31)
-3. Michael Mind Project feat. Birk Storm - Give Me Love (3:49)
-4. DJ Smash feat. Radio Killer - Save Me Tonight (3:37)
-5. Nelly - Hey Porsche (3:30)
-6. Niku feat. Sardi & DeeJay Iljano - One More Time (Radio Edit) (New Version) (3:41)
-7. Don Omar - Pa Que El Party Se Active (3:03)
-8. Bass Ace feat. DJ Skazka - Начнем Сначала (3:55)
-9. Skrillex - The Reason (4:16)
-10. Timbaland feat. Lil Wanye, Missy Elliott &amp; T-Pain - The Party Anthem (3:57)(   Читать дальше...   )Жанр: Dance, Club, PopПродолжительность: 02:38:37
+01. Desney Bailey - Crazy Day (Original Mix)
+02. Roberto Sol - Phonix Rising (Original Mix)
+03. Miss Luna - Happiness Is True (feat. Q Derhino) (Florito Mix)
+04. Chris Count - Doin It (Dorush Remix)
+05. Dana - Electric Wave (Original Mix)
+06. Lazy Hammock - Rise With You (Katoey Deep House Mix)
+07. Nickotine, Frankee G - They Don't Know It (Original Mix)
+08. Pnfa - Upstream (Original Mix)
+09. Confused - Last Trip (Original Mix)
+10. Miss Luna - The One (feat. Q Derhino) (Bes & Meret Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:28:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ADAFBD83DC28BC95BD41FD1BC0B312231906D247
+magnet:?xt=urn:btih:15222102C1CE14B00FA80163BE2E4FAF9F3AF670
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 600608   (998644) от 09.01.2013
+###  Публикация: 601850   (997864) от 12.01.2013
 
-Computer Desktop Wallpapers Collection (08.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79302EA2B511D19704EE1F20ECEFB40D14065C3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600627   (998645) от 09.01.2013
-
-Фотография - Фотограф Silja Magg
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотография - Фотограф Silja Magg
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:877D167F0414B1E6047052E8D2E1B75FBCFF6686
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600823   (998646) от 09.01.2013
-
-Фотография - Beautiful Girls Part 8
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Креативная коллекция фоторабот, с прелестными, соблазнительными девушками.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0A954794864CDC5AA4042351C3BE8FB9BECB232
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600794   (998647) от 09.01.2013
-
-[Wallpapers] New 2013 Wallpaper Pack 17
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998647.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Wallpaper Pack 17
-Название: New 2013 Wallpaper Pack 17
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40EBB66934DECBA1D9D3ECFE0DE2082BB3324CED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600010   (998648) от 09.01.2013
-
-Triosphere - The Road Less Travelled (2010) Japan Edition [WavPack|Lossless]<Power/Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ignition (Intro) [01:57]
-02. Driven [04:35]
-03. Human Condition [04:33]
-04. Death Of Jane Doe [04:43]
-05. Marionette [05:30]
-06. The Road Lesstravelled [05:24]
-07. The Anger And The Silent Remorse [06:23]
-08. Watcher [04:46]
-09. Twenty One [04:47]
-10. Worlds Apart [06:23](   Читать дальше...   )Жанр: Power/Progressive MetalПродолжительность: 01:06:27
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600774   (998651) от 09.01.2013
-
-Рисованная графика - Artworks by alicexz
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художника-иллюстратора под ником alicexz.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5BDF31E41E30400678219544DEF77A2825C7337
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600612   (998652) от 09.01.2013
-
-Sexy Girls Pack Wallpapers (08.01.13) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A61515CB1A3223AFE5D86150C3AB0DC8AD74DB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600798   (998653) от 09.01.2013
-
-[Wallpapers] New 2013 Wallpaper Pack 18
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998653.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Wallpaper Pack 18
-Название: New 2013 Wallpaper Pack 18
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D7580A2B33E63FDE3E3DBF3A08542B04EB55C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600698   (998654) от 09.01.2013
-
-SynWrite Editor 4.6 build 600 [Multi/Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998654.jpg" />
-</div>
-
-
-###  Подробнее
-
-SynWrite Editor - мощнейший текстовый редактор для программистов и обычных пользователей. SynWrite - редактор исходного кода, поддерживает возможность разработки программ более чем на 70 языках. В том числе Java, C++, JavaScript, Pascal, Perl, HTML, XML, PHP, SQL и других. SynWrite обладает TDI-интерфейсом, а значит позволяет открыть сразу несколько файлов в отдельных вкладках. Помимо этого в SynWrite имеется целый ряд вспомогательных инструментов, облегчающих написание кода.Название программы: SynWrite EditorЯзык интерфейса: Multi/Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600602   (998656) от 09.01.2013
-
-Computer Desktop Wallpapers Collection (07.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6EDA1B3F48D931CCD31E904C0B23B4346B390F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600588   (998657) от 09.01.2013
-
-Computer Desktop Wallpapers Collection (06.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B93F50ABFB0A52936AD6C2C3001B7BB24AF7DD22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600789   (998660) от 09.01.2013
-
-[Wallpapers] New 2013 Wallpaper Pack 16
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998660.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Wallpaper Pack 16
-Название: New 2013 Wallpaper Pack 16
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D47687D3C358A6A74A73F5A967B8768641F8DF70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600606   (998662) от 09.01.2013
-
-Sexy Girls Wallpapers (07.01.13) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20E8959DAF9EF6CC7F2B98B694027D8F5ECCF10A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600603   (998664) от 09.01.2013
-
-Best HD Wallpapers Pack (07.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E853388EF245600583430477062A05CF7C1A013
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600936   (998665) от 09.01.2013
-
-[Wallpapers] New 2013 Nature Wallpaper Pack 6
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998665.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Nature Wallpaper Pack 6
-Название: New 2013 Nature Wallpaper Pack 6
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F98EE288A6B655A4DA79DBB24264BDA45A1CC633
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600591   (998666) от 09.01.2013
-
-Nature Wallpapers (06.01.13) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:098CA631399BDA429BF9BE678E1100752B95AD72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600611   (998668) от 09.01.2013
-
-Nature Wallpapers (08.01.13) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F608C5A2199510DB247408718B53E4F6BD5A9AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600598   (998669) от 09.01.2013
-
-Interior Wallpapers (06.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:937EDCDDDAF5FD42CA98A62A59E5DB9F01A83983
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600593   (998670) от 09.01.2013
-
-Sexy Girls Pack Wallpapers (06.01.13) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9430EE16B0170C1245E5CC5679AEBDAAEE6456D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600796   (998671) от 09.01.2013
-
-[Wallpapers] A selection of panoramic wallpapers (09.01.13)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998671.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] A selection of panoramic wallpapers (09.01.13)
-Название: A selection of panoramic wallpapers (09.01.13)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 2560х1024
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F9242B121E9BEB76FC2C3344D8F12693B644422
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600935   (998672) от 09.01.2013
-
-[Wallpapers] New 2013 Nature Wallpaper Pack 5
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998672.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Nature Wallpaper Pack 5
-Название: New 2013 Nature Wallpaper Pack 5
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5DD78E4C42ABBA66D07773ADAED900A2AF3CE8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600932   (998673) от 09.01.2013
-
-[Wallpapers] New 2013 Wallpaper Pack 21
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998673.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Wallpaper Pack 21
-Название: New 2013 Wallpaper Pack 21
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:149361D8F2C16219AF8AEF100DCD4EF2014DE1E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600605   (998674) от 09.01.2013
-
-Sexy Girls Pack Wallpapers (07.01.13) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2380D7C3B7A6BB9959A2F4BCB565CCFE9159296
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600934   (998676) от 09.01.2013
-
-[Wallpapers] New 2013 Wallpaper Pack 23
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998676.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Wallpaper Pack 23
-Название: New 2013 Wallpaper Pack 23
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB9E27BC52B1608D2396D64BA552519F8DB6CCA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599033   (998677) от 09.01.2013
-
-Paul van Dyk - Vonyc Sessions 332 (04-01-2013) [MP3|192 кб/с]<Trance, Progressive House>
+Вера Зубенко - 2 альбома (2011) [MP3|320 кб/с]<поп, шансон>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998677.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997864.jpg" />
 </div>
 
 
 ###  Подробнее
 
-n/aЖанр: Trance, Progressive HouseПродолжительность: 02:02:23
+От избытка сердца (2011)01. Доля моя
+02. Я вижу Вас
+03. Убегу
+04. Сиреневый дождь
+05. Осень
+06. Не хожу
+07. Спеши любить!
+08. Цыганская душа
+09. Яблунева доля
+10. Подруга(   Читать дальше...   )Жанр: поп, шансонПродолжительность: 01:19:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D19EA940532E837D482158FEBA8410DE4DB189EA
+magnet:?xt=urn:btih:634ECD4F21C2E3791003629E6085B056F191BF14
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602122   (997866) от 12.01.2013
+
+Водная жизнь (серия 20 из 26) / Water Life (2007) BDRip [H.264/720p]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997866.jpg" />
+</div>
+
+
+###  Подробнее
+
+История воды является историей жизни. От диких и чистых горных озер, рек, где начинаются, великолепные коралловые рифы, это эпический портрет богатого разнообразия жизни, а также поучительное свидетельство об опасностях, которые окружают нашу голубую планету. Снято во всем мире на протяжении трех лет, используя четыре типа камер Canon HD, серия была произведена в Испании. Каждая глава это различные экосистемы, с акцентом на цикл от воды и последствий загрязнения и изменения климата на эти экосистемы. Описан весь цикл воды, в том числе испарения, осадки, роса и подземных водоносных горизонтов.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональный -Продолжительность: 00:29:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15A7A296FF44D42C64F47F0BE71FEA5F2684ADFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602249   (997867) от 12.01.2013
+
+Водная жизнь (серия 22 из 26) / Water Life (2007) BDRip [H.264/720p]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997867.jpg" />
+</div>
+
+
+###  Подробнее
+
+История воды является историей жизни. От диких и чистых горных озер, рек, где начинаются, великолепные коралловые рифы, это эпический портрет богатого разнообразия жизни, а также поучительное свидетельство об опасностях, которые окружают нашу голубую планету. Снято во всем мире на протяжении трех лет, используя четыре типа камер Canon HD, серия была произведена в Испании. Каждая глава это различные экосистемы, с акцентом на цикл от воды и последствий загрязнения и изменения климата на эти экосистемы. Описан весь цикл воды, в том числе испарения, осадки, роса и подземных водоносных горизонтов.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональный -Продолжительность: 00:27:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:159178B3D54A04AA83D0544B175AE9B16B76416F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600104   (997868) от 12.01.2013
+
+Flame - Back In Time / Like A Rain (2012) [MP3|320 кб/с]<Drum & Bass/Liquid Funk>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997868.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Back In Time (5:18)
+2. Like A Rain (4:54)Жанр: Drum & Bass/Liquid FunkПродолжительность: 00:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D424054E0D1A19B305DE9E5AD34CB7E0F3F7C978
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602328   (997869) от 12.01.2013
+
+Above & Beyond - Group Therapy Radio 010 (11-01-2013) [MP3|256 кб/с]<Trance, Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ost & Meyer - Here We Go
+02. Kyau & Albert - All Your Colours
+03. Signum - First Strike (Juventa Club Mix)
+04. Nitrous Oxide pres. N20 - K.O (Record of The Week)
+05. Coe - Watching Your Shadow
+06. Lange - Hold That Sucker Down
+07. Allen Watts - Skin Deep (Sedi Remix)
+08. Fehrplay - I Can't Stop It
+09. Lana Del Rey - Summertime Sadness (Cedric Gervais Remix)
+10. Andre Sobota - Futura(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 01:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F2B6D9506765C1C436F73B73EC9A891097790FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601823   (997870) от 12.01.2013
+
+Landing - Wave Lair [EP] (2012) [MP3|320 кб/с]<Post Rock, Shoegaze, Dream Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patterns
+02. Resonance
+03. Cover Bare Arms
+04. Wave LairЖанр: Post Rock, Shoegaze, Dream PopПродолжительность: 00:33:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88087E62DA18AC1946DE09497B3F4AAF517CAA93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602349   (997872) от 12.01.2013
+
+Paul van Dyk - Vonyc Sessions 333 (10.01.2013) [MP3|192 кб/с]<Trance, Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997872.jpg" />
+</div>
+
+
+###  Подробнее
+
+n/aЖанр: Trance, Progressive HouseПродолжительность: 02:01:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:253DA38EF200743DC86F3D06B7FBA0B0CBE7F61C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602039   (997874) от 12.01.2013
+
+Водная жизнь (серия 19 из 26) / Water Life (2007) BDRip [H.264/720p]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997874.jpg" />
+</div>
+
+
+###  Подробнее
+
+История воды является историей жизни. От диких и чистых горных озер, рек, где начинаются, великолепные коралловые рифы, это эпический портрет богатого разнообразия жизни, а также поучительное свидетельство об опасностях, которые окружают нашу голубую планету. Снято во всем мире на протяжении трех лет, используя четыре типа камер Canon HD, серия была произведена в Испании. Каждая глава это различные экосистемы, с акцентом на цикл от воды и последствий загрязнения и изменения климата на эти экосистемы. Описан весь цикл воды, в том числе испарения, осадки, роса и подземных водоносных горизонтов.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональный -Продолжительность: 00:28:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D71B05D69406CB4298CD450DEF75BA1A203F8CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602170   (997877) от 12.01.2013
+
+Водная жизнь (серия 21 из 26) / Water Life (2007) BDRip [H.264/720p]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997877.jpg" />
+</div>
+
+
+###  Подробнее
+
+История воды является историей жизни. От диких и чистых горных озер, рек, где начинаются, великолепные коралловые рифы, это эпический портрет богатого разнообразия жизни, а также поучительное свидетельство об опасностях, которые окружают нашу голубую планету. Снято во всем мире на протяжении трех лет, используя четыре типа камер Canon HD, серия была произведена в Испании. Каждая глава это различные экосистемы, с акцентом на цикл от воды и последствий загрязнения и изменения климата на эти экосистемы. Описан весь цикл воды, в том числе испарения, осадки, роса и подземных водоносных горизонтов.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональный -Продолжительность: 00:29:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4B255848D757A43392EBDB86A6C1D2DAB95D1BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602337   (997882) от 12.01.2013
+
+Roger Shah - Magic Island - Music for Balearic People 243 (2013-01-11) [MP3|256 кб/с]<Trance, Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997882.jpg" />
+</div>
+
+
+###  Подробнее
+
+1st Hour:
+01. Kamil Esten - Edem
+02. Sound Quelle - 7.07
+03. Zaa feat. Leanne Thomas - Under This Sun (Awd Dub Mix)
+04. Exis - Liberation
+05. Anna Lee vs. Alex Teeb - One Summer Day (Igor Dyachkov & U-Jeen Remix)
+06. Broning vs. Solis & Sean Truby - Rokit
+07. Darren Porter & Ferry Tayle - Neptune'S Siren
+08. Fredda L & Fisher - Into The Light (Johan Malmgren Remix)
+09. Farid - Afloat(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 02:02:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AA0961C3B3CF47B4922871468F83F5EAF9948E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600840   (997885) от 12.01.2013
+
+VA - Electro House Winter (2012) [MP3|320 кб/с]<House, Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robbie Rivera - Forever Young (Sandro Silva Remix)
+02. Alex Kunnari - Sweet Melody
+03. First State - Why So Serious
+04. Dragon - Tonight
+05. Sound Avtar - Monster On a Rope
+06. Damien J. Carter - When Love's Calling You
+07. Jess-E - I Feel Your Energy (Discofied Mix)
+08. Thomas Mengel - Heliconia
+09. Biggi - Keep On Rocking
+10. MC Flipside - Vs. ZERO(   Читать дальше...   )Жанр: House, TranceПродолжительность: 01:28:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EBFD8603D2F5CC2349AB7DD4B52142DDE6DB569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602355   (997890) от 12.01.2013
+
+Andy Moor - Moor Music 089 (11.01.13) [MP3|256 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audien - Wayfarer (Anjunabeats)
+02. jjoo & Kevin Charm - Superleggera (Enhanced)
+03. LTN - Moments (Enhanced Progressive)
+04. Allen Watts - Skin Deep (Sedi Remix) (Progressive House Worldwide)
+05. tyDi feat. Christina Novelli - Fire & Load (S107)
+06. Kyau & Albert - All Your Colours (Euphonic)
+07. Flashtech - Right Away (Premier)
+08. Dennis Shepherd feat. Molly Bancroft - Silence (Steve Brian Remix) (High Contrast)
+09. W&W - Lift Off! (Mainstage)
+10. Eximinds - Revolved (Anjunabeats)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B81E5861BF9EF2BA6746B34B4A300323D4215B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601891   (997892) от 12.01.2013
+
+Putrification - Fragments Of Pain (EP) (2012) [MP3|320 кб/с]<Death metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Donor Day
+02-Humane Torments
+03-Never-ending War
+04-Tears of DespairЖанр: Death metalПродолжительность: 00:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAC193C132D76F9C68D4A7A60FFD289ACA258F75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602368   (997894) от 12.01.2013
+
+tyDi - Global Soundsystem 166 (2013-01-11) [MP3|320 кб/с]<Trance, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. tyDi feat. Brianna Holan – Home
+02. Denis Sender – 2Nite
+03. Alex M.O.R.P.H. feat. Shannon Hurley – Monday Madness
+04. Paul Mark – Rhythm From Paradise
+05. John Dahlback – Get Wild
+06. Leon Bolier & Alex Kenji – Trumpet
+07. Gabriel & Dresden feat. Betsie Larkin – Play It Back (Maor Levi Remix)
+08. Ost & Mayer – Take Off
+09. Alex M.O.R.P.H. – Jawa
+10. tyDi feat. Toni Nielson & Maison & Dragen – Walk On Water(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D90222B71E3DAD7B73B18AE8C0E5646634860ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601982   (997895) от 12.01.2013
+
+VA - Trance Road Uplift (2013) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kimura Feat. Dee Dee - The Chosen (Cold Rush Remix)
+02. Johan Ekman - Duende (Araya Remix)
+03. Magdelayna - La Graciosa (Adam Lester Chilled Remake)
+04. Ruback - Great Feelings (Original Mix)
+05. Dmitry Ference - Initium Novum (Nianaro Remix)
+06. Mosahar - Passion
+07. Daniel Kandi - Fade (2012 Edit)
+08. Villanaranjos - Marina Alta (Original Mix)
+09. Iversoon & Alex Daf - El Exceso De Amor (Original Mix)
+10. Nomad Vs. Wragg - Roar (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:20:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68FD740B2443D1DDC535FB7A7A06A0E6DD06940A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601572   (997900) от 11.01.2013
+
+Medieval II: Total War Gold [Ru] (RePack/1.03 & 1.05) 2006 | R.G. ILITA
+
+>>След.
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Medieval 2: Total War — квинтэссенция всего лучшего, чем знаменита серия Total War. Армии стали больше, войска — разнообразнее, сражения — ожесточеннее, а вражеские полководцы — умнее и хитрее. Частые восстания и бунты, разжигаемые иноземными агентами, не позволят правителю расслабиться. Однако полководческий талант и умелая дипломатическая работа в конечном счете возведут вас на единый европейский престол!Тип издания: RepackРазработчик: Creative AssemblyЖанр: StrategyЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDCF6C3D9AA224CE9087A1713C573511C4074B54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600809   (997902) от 11.01.2013
+
+[TecDoc] (1 квартал 2013 г.) Каталог подбора неоригинальных запасных частей для автомобилей практически всех известных марок (кроме праворульных японцев)
+
+>>След.
+>>Архив Авто
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Электронный каталог TECDOC (1 квартал 2013). Крупнейший каталог неоригинальных автозапчастей и аксессуаров для легковых и грузовых автомобилей. В TecDoc представлена информация по автомобилям всех марок. Данные по легковым машинам представлены начиная с 60-х годов, по грузовым - с 80-х.
+ В каталоге предусмотрен поиск деталей по оригинальным и неоригинальным номерам (   Читать дальше...   )Формат: ISO
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601398   (997903) от 11.01.2013
+
+Recovery Partition for Lenovo Ideapad V580 / Windows 8 (х64)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997903.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче содержится образ разделов Recovery жесткого диска ноутбука Lenovo Ideapad V580
+v580cAL33110M46500R8ER  (59350663)
+Образ Recovery Partition Lenovo V580c.tib содержит в себе оригинальный MBR и скрытые разделы восстановления
+Образ создан программой Acronis True Image Home 2012 после первого включения ноута.Язык интерфейса: русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600587   (997904) от 11.01.2013
+
+Антология King`s Bounty / King`s Bounty Anthology [Ru/En] (Repack) 1990 - 2012 | R.G. Catalyst
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия King’s Bounty - это, возможно, лучший российский игровой проект последних лет. Геймплей, сочетающий пошаговые бои с увлекательным исследованием сказочной страны, снискал большой успех как у критиков, так и у публики.Тип издания: RePackРазработчик: 1C-SoftClub/Katauri InteractiveЖанр: Tactical role-playing gameЯзык озвучки: Русский, АнглийскийСубтитры: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516689   (997905) от 11.01.2013
+
+Риццоли и Айлс / Rizzoli & Isles [Сезон: 3 Серии: 1-15 (15)] (2012) WEB-DLRip (NewStudio)
+
+>>След.
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Бостон, штат Массачусетс, где живут и работают две потрясающие женщины: детектив убойного отдела полиции Бостона Джейн Риццоли и старший судмедэксперт Мора Айлс.
+ Они совершенно разные, но дополняют достоинства друг друга, выполняя любимую работу: раскрытие убийств. Экранизация серии романов Тесс Герритсен.Жанр: Драма, ДетективРежиссер: Билл ХаберАктеры: Саша Александр, Энджи Хармон, Лоррейн Бракко, Брюс МакГилл, Дженнифер Холлэнд, Джэйсон Блэр, Том Бауэр, Джордан Бриджес, Мариса Рамирез, Кристал РидПеревод: Многоголосый закадровый, профессиональный (NewStudio)Продолжительность: 00:42:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601416   (997908) от 11.01.2013
+
+Мария Семенова | Собрание сочинений (49 книг) [1989-2012] [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мария Семенова (1958) - известная российская писательница. Она сумела пробиться в писатели во времена, когда таланта для этого было мало. Но с божьей помощью и при авторитетном содействии Радия Погодина и Валерия Воскобойникова она всё же начала печататься. А дальше был "Волкодав" и огромная популярность.
+Мария Семенова сильно удивлялась, что все ее исторические вещи стали относить к фэнтези, а потом махнула рукой - читают, и ладно...
+Семеновой принадлежит идея и первые романы цикла "Скунс" ("Эгида").
+
+Награды и премии:
+Беляевская премия, 1996 // Фантастическая книга —> Волкодав (1995)
+Аэлита, 2005 // Премия «Аэлита»
+Мир фантастики, Итоги 2007 // Лучшее отечественное фэнтези —> Там, где лес не растет (2007)
+РосКон, 2008 // Приз «Фантаст года»Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C194C7DACE34EA576BA1A249821ED4D379C1A50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 566927   (997909) от 11.01.2013
+
+Корабль (Ковчег) / El Barco [сезон 3,серии 1-9] (2012) [H.264] TVRip [Spa]
+
+>>След.
+>>Сериалы без перевода
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мировая катастрофа вызывает катаклизм, который ведет к исчезновению Земли. На планете, покрытой водой, члены экипажа учебного корабля кажутся единственными оставшимися в живых людьми.Жанр: Фантастика, Драма, ПриключенияРежиссер: Дэвид Молина, Сандра Гальего, Хесус КольменарАктеры: Хуан Хосе АртероМарио КасасБланка СуаресИрене МонталаЛуис КаллехоНюс СансХуан Пабло ШукИван МассагеМарина СаласБернабе ФернандесПеревод: ОтсутствуетОзвучка / Автор перевода: Ольга БелоусЯзык субтитров: РусскиеПродолжительность: ~01:18:55 серия
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601813   (997911) от 11.01.2013
+
+Хижина в лесу / The Cabin in the Woods (2011) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шумная компания из пяти друзей сбегает на уик-энд подебоширить в изолированную от всего мира деревенскую хижину. Звучит знакомо? Ну так вы и не представляете, что вас ждёт на самом деле.Жанр: ужасы, триллер, детективРежиссер: Дрю ГоддардАктеры: Ричард Дженкинс, Брэдли Уитфорд, Джесси Уильямс, Крис Хемсворт, Фрэн Кранц, Кристин Нора Коннолли, Анна Хатчисон, Брайан Дж. Уайт, Эми Эккер, Джоделль ФерландПеревод: Дублированный
+Одноголосый закадровый (Doctor Joker) по переводу romero007Формат: MP4 (контейнер m4v)Продолжительность: 01:35:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601401   (997912) от 11.01.2013
+
+Worms: Ultimate Mayhem [Ru/En/Multi9] (Steam-Rip/DLC) 2011 | R.G. Игроманы
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение знаменитой серии Worms, радующей и взрослых и детей шуточными сражениями неугомонных червячков уже более 16 лет.
+
+  В «Worms: Убойные разборки» объединены лучшие черты Worms 3D и Worms 4: Mayhem – обновленная трехмерная графика, не утратившая при этом самобытности, и интересные особенности геймплея. Появились в игре и новые возможности.
+
+  Одиночный режим предлагает более 70 миссий и всевозможных соревнований, которые проходят в самых разных декорациях. Прерии Дикого Запада, современные строительные площадки и даже сказочный восточный город – все эти, казалось бы, несовместимые места искусно связаны интереснейшим сюжетом, а забавные видеовставки прекрасно дополняют повествование.
+
+  В мультиплеере с поддержкой до четырех участников представлено пять режимов. Несомненно, шуточная война станет куда более захватывающей благодаря полной разрушаемости объектов на трехмерных картах.
+
+(   Читать дальше...   )Тип издания: Цифровая лицензия (Steam-Rip)Жанр: Strategy (Turn-based) / 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Multi9Язык интерфейса: Русский, Английский, Multi9
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDDCCF0A7E5C7A49A9EA4E0774C19340A12F244F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601755   (997914) от 11.01.2013
+
+Новый Камеди Клаб / Комеди Клаб / Comedy Club/ Выпуск №352 (11.01.2013) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997914.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из КВН. 23 апреля 2005 года «Comedy Club» впервые вышел в эфир телеканала ТНТ. Рейтинги программы стали бить все рекорды и это приносило программе большие доходы, на которые они стали делать другие проекты. Впоследствии они создали свою продюсерскую компанию «Comedy Club Production». 15 апреля 2007 года на ТНТ был показан сотый выпуск программы. Регулярно выходят новые выпуски и другие проекты - например спецвыпуски на Первом канале, юмористические фестивали и продюсирование участниками «Comedy Club» проекты других телепередач. 23 апреля 2010 года «Comedy Club» вышло с новой музыкой и обновлённым оформлением. Также «Comedy Club» выходит на каналах ICTV, (   Читать дальше...   )В выпуске: Продолжительность: ~ 00:45:42Жанр: Телепередача
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DFEF288A7B0C7A31545A1FD3F7DE67AD21E2CCE
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1032259   (647408) от 06.07.2016
+
+Хенрик Фексеус | Игра во власть. Управляйте всем и всеми (2015) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хенрик Фексеус – знаменитый шведский психолог и специалист по невербальной коммуникации, автор нескольких бестселлеров и авторских методик, ведущий популярного шоу «Расплавленное сознание». В этой книге он раскрывает тайны, которые до сих пор были известны лишь тем, кто достиг вершин власти. Непринужденно и убедительно Хенрик Фексеус объясняет, как достичь желаемого (   Читать дальше...   )Жанр: Практическая психологияФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD1EF6DCDC61454EC32F4A553E422196977A20A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905933   (647433) от 07.06.2015
 
 Владимир Марочкин | Москва рок-н-ролльная. Через песни – об истории страны (2014) [FB2, EPUB]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:7EC5AF1338F220163DBE294FD37DD2C7928E6153
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:7EC5AF1338F220163DBE294FD37DD2C7928E6153
 magnet:?xt=urn:btih:ADDCFC59A9847F148370F2C2919A8E69A6DA62A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:ADDCFC59A9847F148370F2C2919A8E69A6DA62A8
 ```bash
 magnet:?xt=urn:btih:C68AEE3C1A44994362AE0E9CDA2156F4F2D9A039
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:C68AEE3C1A44994362AE0E9CDA2156F4F2D9A039
 magnet:?xt=urn:btih:CB8888D454B472953E70D9D0418904E7F9B2C54F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:CB8888D454B472953E70D9D0418904E7F9B2C54F
 ```bash
 magnet:?xt=urn:btih:DC838152F15234078D9E911F6B590A15094CC5BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:DC838152F15234078D9E911F6B590A15094CC5BB
 magnet:?xt=urn:btih:15A084BC10B2662CD36072069A2AD0200758E4E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:15A084BC10B2662CD36072069A2AD0200758E4E3
 ```bash
 magnet:?xt=urn:btih:BD2F4592A46031531E1990AB4589C26683758AE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:BD2F4592A46031531E1990AB4589C26683758AE3
 magnet:?xt=urn:btih:4E9BC731A64A30A8926D40BF2CA63E9158D2C6BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:4E9BC731A64A30A8926D40BF2CA63E9158D2C6BC
 magnet:?xt=urn:btih:1FD3FCA8D822FA591D9F99E5A9F8DA325F5F0D67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:1FD3FCA8D822FA591D9F99E5A9F8DA325F5F0D67
 ```bash
 magnet:?xt=urn:btih:07EF86BBDD24505C904FF764C4A95464B6E483AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:07EF86BBDD24505C904FF764C4A95464B6E483AF
 magnet:?xt=urn:btih:0E74F82BA976EADDA325F426A2131CDD3DD13AF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:0E74F82BA976EADDA325F426A2131CDD3DD13AF4
 magnet:?xt=urn:btih:AE15F7EE75861C0A41102A058C9D175ED5409598
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:AE15F7EE75861C0A41102A058C9D175ED5409598
 magnet:?xt=urn:btih:6ED57B58A56FF0DDD305911478FAEADB65A12D88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:6ED57B58A56FF0DDD305911478FAEADB65A12D88
 ```bash
 magnet:?xt=urn:btih:97033C206B085F51C6501C457A66E8CE6502FD40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:97033C206B085F51C6501C457A66E8CE6502FD40
 magnet:?xt=urn:btih:8134CFE484CE8EB32C1FC73A43CA599E6C13640C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:8134CFE484CE8EB32C1FC73A43CA599E6C13640C
 ```bash
 magnet:?xt=urn:btih:775056F6E5F54A4AC63F790D1F4A1EB767FB167D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:775056F6E5F54A4AC63F790D1F4A1EB767FB167D
 magnet:?xt=urn:btih:B9A62217445A1B3FD1ABE27D80DC56A5DCE38FFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:B9A62217445A1B3FD1ABE27D80DC56A5DCE38FFF
 ```bash
 magnet:?xt=urn:btih:AFE0AC40851FEBAC9DB9F63132D53AA9CC906E24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:AFE0AC40851FEBAC9DB9F63132D53AA9CC906E24
 magnet:?xt=urn:btih:C1D38AD3BC4988543C6FC4B09DA28758FF1876B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:C1D38AD3BC4988543C6FC4B09DA28758FF1876B1
 magnet:?xt=urn:btih:7C19FD1E1A67863E3BA4FBBAE21A111711F421E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:7C19FD1E1A67863E3BA4FBBAE21A111711F421E5
 ```bash
 magnet:?xt=urn:btih:F2FCF97E9B97D17374D34E2715B795342561BAA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:F2FCF97E9B97D17374D34E2715B795342561BAA1
 magnet:?xt=urn:btih:C42A931306A1BC3CACB62B6A207B2B26EC53158D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:C42A931306A1BC3CACB62B6A207B2B26EC53158D
 ```bash
 magnet:?xt=urn:btih:EA941F548D15D5E86DD817DCD983D80F3546FEB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:EA941F548D15D5E86DD817DCD983D80F3546FEB8
 magnet:?xt=urn:btih:078476FF2E4543D4F3939C28EEB0D82465EB809C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,29 +682,7 @@ magnet:?xt=urn:btih:078476FF2E4543D4F3939C28EEB0D82465EB809C
 magnet:?xt=urn:btih:FAA92B3EAA7E095517C952A25141854EBD42807F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905749   (649047) от 06.06.2015
-
-Франс Брекар | 50 упражнений, чтобы научиться отказывать (2013) [FB2, RTF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Умение говорить «нет» – это способ самозащиты, возможность установить предел, а в некоторых случаях просто необходимость. Но, даже принимая этот принцип, воплотить его в жизнь иногда бывает довольно сложно. В нас живет страх не понравиться, мы не любим выглядеть невежливыми. Между тем порой важно сказать «нет» – неагрессивное или нелюбезное, но твердое и решительное. (   Читать дальше...   )Жанр: Общие работы по практической психологииФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9F834D30252AF1E758F5DB886CA670A5828DE02
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1069147   (373980) от 04.11.2016
+
+Datura - The Best Of Datura (Remastered Versions: Original And Remixes) (2016) [MP3|320 Kbps] <EuroHouse, Eurodance, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yerba Del Diablo  4:42
+02. Nu Style  4:31
+03. Eternity  4:18
+04. Fade To Grey  4:42(   Читать дальше...   )Жанр: EuroHouse, Eurodance, TechnoПродолжительность: 01:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9C972A4B5E90F88BE553DBC8D834EE6AC3A12C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175822   (374086) от 20.10.2017
 
 Паскаль - Лучшее от ALEXnROCK (2017) [MP3|320 Kbps] <Pop-Rock>
@@ -21,6 +50,8 @@
 ```bash
 magnet:?xt=urn:btih:D59A57E61AE81BD243E06A0456BCA0E8FCDF5073
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Chillin on a Winters Eve (2016) [MP3|192-320Kbps] <Downtempo, Chillout, Lou
 magnet:?xt=urn:btih:983A8DC8B0388FE1EC97869AA5D1347795B90D2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Gold Remixes Italo Disco Vol.2 (2017) [MP3|320 Kbps] <Italo Disco>
 ```bash
 magnet:?xt=urn:btih:20DE02AD03269FCAE94024B22A9EF58141C252A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Playlist Hits Bass Line (2019) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:35101F796F5DEE07FCE93E58C6307A5D90C6B266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +163,8 @@ C+C Music Factory - Everybody Dance Now (2018) Remix [MP3|320 Kbps] <Club, Dance
 ```bash
 magnet:?xt=urn:btih:3C9B6ECA62B939F536CEEC015B60CEDC0B97E1F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +193,8 @@ VA - Mind Reader: Edm Party (2019) [MP3|320 Kbps] <House, EDM>
 magnet:?xt=urn:btih:A90B5C34BFDCA5417D24C23EED07E0705641690E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +221,8 @@ VA - Vintage Cafe - Полная коллекция (2007-2014) [MP3|96-320 кб
 ```bash
 magnet:?xt=urn:btih:7CF9DD8E947676B96F2E4DECBBC0B519183FA58B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +251,8 @@ VA - Cosmotronica Vol.4 (Compiled by ZeByte) (2017) [MP3|320 Kbps] <Ambient, Psy
 magnet:?xt=urn:btih:D8D2E56443A26AE2899A4AA3771AC9822BCD0433
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +279,8 @@ VA - Pacific Trance (Vol.07 October Set 2018) (2018) [MP3|320 Kbps] <Trance, Upl
 ```bash
 magnet:?xt=urn:btih:B1A95BFCBCE600B68ED86ECD8CD0E775779F22B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +309,8 @@ VA - Hedkandi Flowers House: October Set (2018) [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:ECFD85D8FA233205B9C46266727AF8D616CD2EF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +337,8 @@ VA - Afterdark Trance (2018) [MP3|320 Kbps] <Trance, Progressive, Electro>
 ```bash
 magnet:?xt=urn:btih:35FEBB254C0EBC01CFA668756BBC4819050963B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +367,8 @@ VA - Шансон в Дальнюю Дорогу (2014) [MP3|256 кб/с]<Шан
 magnet:?xt=urn:btih:6599F8E3A1CC3ED5F474460E3F845C7A76B930BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +395,8 @@ VA - Громкие новинки месяца Vol.13 (2018) [MP3|320 Kbps] <Po
 ```bash
 magnet:?xt=urn:btih:0CE65B89F073A2B21F3ED06E78AA22C715B2276A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +425,8 @@ VA - ЕвроХит Топ 40 Europa Plus 12.10.2018 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:39238B9E1B824C077CF85671A7131C3641347537
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +453,8 @@ VA - 100 влюбленных баллад шансона (2015) [MP3|192-320 к
 ```bash
 magnet:?xt=urn:btih:16B5ABF81F367972DC49CFB30701A6BE46E3A917
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +483,8 @@ VA - Vocal Drum & Bass Vol.6 (Compiled by Zebyte) (2015) [MP3|320 кб/с]<Drum 
 magnet:?xt=urn:btih:763D50119CA736E6B47DCD82090BC144E87613C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +511,8 @@ VA - Beatport Trance Top 100 October (2015) [MP3|320 кб/с]<Trance, Progressiv
 ```bash
 magnet:?xt=urn:btih:59B529D0CF52B52DBC0ECC40AE6D48F1323A4CD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ CD 01:
 magnet:?xt=urn:btih:961934F4105A7C57AEDB18E952FCA305D5A569CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +573,8 @@ VA - Extra Trance (episode 8) (2015) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:F88242D7DED532E71F1C6037FD865E6CC20F0FA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +601,8 @@ VA - Macarize Autumn Essentials (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lo
 ```bash
 magnet:?xt=urn:btih:4207C632735BA2164D8A6994676AC70734E27059
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +646,8 @@ CD1:
 magnet:?xt=urn:btih:CD10998DB17EDE570E1817EA5012233B17C953DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +674,8 @@ Disc 01:
 ```bash
 magnet:?xt=urn:btih:839C53FADFF66D59F6D547C0519F071C984598D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +704,8 @@ Teddybears (Teddybears STHLM) - Collection (2000 - 2016) [MP3|320 Kbps] <Alterna
 magnet:?xt=urn:btih:032C69E2233443302C1141C6CFC4AEF52D4F8DEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +732,8 @@ VA - Beatport Top 100 02.11. (2016) [MP3|320 Kbps] <House, Tech House, Dance>
 ```bash
 magnet:?xt=urn:btih:3E33892460E13832E2B28233BAB93C72640D56B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -685,32 +762,7 @@ VA - Осенняя хит-атака на Europa Plus. Русский сбор�
 magnet:?xt=urn:btih:143AD3F48CC24F1A2BEC55E608B87DC87D1B7571
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068790   (376109) от 03.11.2016
-
-VA - Musica Popular Brasileira (2016) [MP3|320 Kbps] <Latina, Pop, Popular Brasileira>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lemon- Latin Love
-02. Toto La Momposina - Carmelinar
-03. CNCO - Reggaeton Lento (Bailemos)
-04. Manzanita - Arranca(   Читать дальше...   )Жанр: Latina, Pop, Popular BrasileiraПродолжительность: 01:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:439B5F36FE91675B37E6AA97955B1C6AF3583AC0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

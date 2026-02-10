@@ -1,3 +1,29 @@
+###  Публикация: 1564628   (499530) от 19.07.2022
+
+Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer: Mugen Train Arc | Истребитель демонов: Поезд «Бесконечный» [ТВ] [2021, TV, 7 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Завершив оздоровительные тренировки в Доме бабочки, Тандзиро и его друзья отправляются выполнять новое задание. На поезде «Бесконечный» творится что-то неладное: в одночасье там исчезает более 40 человек! А значит, Тандзиро, Нэдзуко, Иносукэ и Дзэницу предстоит сразиться с могущественным демоном. Присоединившись к одному из сильнейших мечников, пламенному столпу (   Читать дальше...   )Производство: студия Ufotable / ユーフォーテーブルЖанр: приключения, фэнтезиРежиссер: Сотодзаки ХаруоПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 7 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3267A656E589CD6EE400812B4EFC87CA575A64C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525427   (499581) от 19.07.2022
 
 Gekijouban Fate/Grand Order: Shinsei Entaku Ryouiki Camelot Zenpen - Paladin; Agateram | Судьба: Великий приказ (фильм второй) [2021, Movie] BDRip 1080p raw
@@ -18,6 +44,8 @@ Gekijouban Fate/Grand Order: Shinsei Entaku Ryouiki Camelot Zenpen - Paladin; Ag
 ```bash
 magnet:?xt=urn:btih:204222219A0DFE8547D0BBCB2CFCDEA50CB836FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ Kaijin Kaihatsubu no Kuroitsu-san | Miss Kuroitsu from the Monster Development D
 ```bash
 magnet:?xt=urn:btih:5BE45BAED9D98576AC61A455AD8672D511F4C935
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden Final Season - Asaki Yume no Aka
 magnet:?xt=urn:btih:8F9891AF6697764C9D490E8A3E2E354878953C01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ Shin no Nakama ja Nai to Yuusha no Party o Oidasareta node, Henkyou de Slow Life
 ```bash
 magnet:?xt=urn:btih:8C2838DAC988AA1C624DC18F196C2656AFFE7F0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ Fantasy Bishoujo Juniku Ojisan to | Life with an Ordinary Guy who Reincarnated i
 magnet:?xt=urn:btih:1F6F6AF935FEE92461C10A9A6871427F68A3AA87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ Coquelicot-zaka kara / From Up on Poppy Hill / Со склонов Кокури�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ Yuri Seijin Naoko-san (2012) / Lesbian Citizen Naoko-san / Наоко - лесб
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ Yuri Seijin Naoko-san / Lesbian Citizen Naoko-san / Наоко - лесбиян�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ Yuyushiki / Формула ЮЮ [2013, TV, 12 + 6 SP] BDRip 1080p raw
 ```bash
 magnet:?xt=urn:btih:D525A9A7D1AA3A66E92D17DC77C31AF9F82D40D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ One Room: Second Season | Из одной комнаты [ТВ-2] [2018, TV, 13 
 magnet:?xt=urn:btih:BBBD07531E74D6E85DBB40E932A004C8125804DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ Yuukoku no Moriarty (2022) | Патриотизм Мориарти OVA [2022, OV
 ```bash
 magnet:?xt=urn:btih:4AD629A50BC2E13353E576636637E7ED0466F5B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ Kawaii Dake ja Nai Shikimori-san / Shikimori's Not Just a Cutie / Шикимор
 magnet:?xt=urn:btih:4CCC1FF99647773D8A4615BC884EC8D6170C8E93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ Shadow's House | Дом теней [2021, TV, 13 из 13] WEB-DL 720p raw
 ```bash
 magnet:?xt=urn:btih:D5AE99F9F9031D76716F5F20CAF2CE0957DC255C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ Madan no Ou to Vanadis | Повелитель волшебных стрел и �
 magnet:?xt=urn:btih:869A19958E07109AE4901127FF3F3D0FA32DE7FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ Higashi no Eden Gekijoban II: Paradise Lost / Eden of The East the Movie II: Par
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ Drifters (2017) | Скитальцы [2017, OVA, 3 из 3] BDRip 1080p raw
 magnet:?xt=urn:btih:7794D6EEC53CB9A19548740EE9990DA87956DBCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ Gekijouban Psycho-Pass | Психо-паспорт (фильм) [2015, МV] BDri
 ```bash
 magnet:?xt=urn:btih:080C3938A13E22ADCF890279EE975A79D3F6BA89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ Saiki Kusuo no Sainan (2018) | Ох, уж этот экстрасенс Сайк
 magnet:?xt=urn:btih:E26C58F13A953919436DB4B613793FD1FB4D2D4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ Gekijouban Psycho-Pass | Психо-паспорт (фильм) [2015, МV] BDri
 ```bash
 magnet:?xt=urn:btih:FFA594FDAF15502ECFD2E16F7D920EE395823EA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +546,8 @@ Shuumatsu no Harem | World's End Harem | Гарем конца света [2021,
 magnet:?xt=urn:btih:DB3C8531F17ABBC16EC606D1ADEA16B20C0BEC16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +571,8 @@ Strike Witches: Operation Victory Arrow | Штурмовые ведьмы OVA-2 
 ```bash
 magnet:?xt=urn:btih:51D58BE5A0179EFB01D55E2E6F0346657F0C30D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +598,8 @@ Peace Maker Kurogane | Железный миротворец (фильм) [2018,
 magnet:?xt=urn:btih:FBAC06D1ACCA91F53A6CB425B91882D6F94FB4EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +623,8 @@ Heroine Taru Mono! Kiraware Heroine to Naisho no Oshigoto | Heroines Run the Sho
 ```bash
 magnet:?xt=urn:btih:F703B8FEAA8C64A7FB60DD5E8A96615925214F6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +650,8 @@ Kyoukai Senki | Amaim Warrior at the Borderline | Воины пограничь�
 magnet:?xt=urn:btih:7DD16B0A9619C600C3133D1A37A980E4CE036B1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,29 +676,7 @@ Gunjou no Magmell | Магмел синего моря [2019, TV, 13 эп.] HDTV
 magnet:?xt=urn:btih:4BE111E4DB737D51CD5D0E4077A86782B8CF139C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240605   (523663) от 13.08.2018
-
-Yakusoku no Nanaya Matsuri | Starlight Promises | Звездное паломничество [2018, ONA, 1 эп.] WEB-DL 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сома Михара - первогодка старшей школы. Сома не видел своего лучшего друга Ацуши 3, 5 года, с тех пор, как они потеряли контакт друг с другом после начальной школы. Однажды Ацуши вступает в контакт с Сомой, чтобы пригласить его на необычный фестиваль, чтобы они могли встретиться и поговорить. Сома отправляется на «Семидневный фестиваль Танабата» вглубь гор, но Ацуши (   Читать дальше...   )Производство: студия Yokohama Animation Lab / 横浜アニメーションラボЖанр: повседневность, мистикаРежиссер: Мурата КадзуяПеревод: Crunchyroll; SoveRomanticaЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 1 эп. по 65 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0044B4D0B4460B262128AA453691692700C5AA2D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

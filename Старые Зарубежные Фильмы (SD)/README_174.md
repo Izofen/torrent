@@ -1,30 +1,3 @@
-###  Публикация: 1527675   (736379) от 29.01.2022
-
-Тайна белой монахини / Das Geheimnis der weissen Nonne / The Trygon Factor (1966) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736379.jpg" />
-</div>
-
-
-###  Подробнее
-
-22-й фильм кинокомпании Rialto по произведениям Эдгара Уоллеса.
-Инспектор Скотланд-Ярда Купер-Смит расследует серию дерзких ограблений. След выводит на замок старой аристократической семьи, часть которого арендована монастырем.
-По роману Kate Plus Ten (1917).
-21-й фильмПроизводство: Великобритания, Германия (ФРГ) / Portman Productions, Preben-Philipsen, Rialto FilmЖанр: Драма, Комедия, Криминал, ДетективРежиссер: Сирил ФранкельАктеры: Стюарт Грейнджер, Сьюзен Хэмпшир, Кэтлин Несбит, Джеймс Каллифорд, Бригитта Хорней, Роберт Морли, Софи Харди, Колин Гордон, Эдди Арент, Дайан КлерПеревод: Одноголосый любительский, UrasikoСубтитры: Русские, немецкиеПродолжительность: 01:27:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41D486710E442450B26E96D830033A469FB0F244
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527751   (736437) от 29.01.2022
 
 Джон Банни. Доктор Купидон / Doctor Cupid (1911) TVRip [H.264]
@@ -45,6 +18,8 @@ magnet:?xt=urn:btih:41D486710E442450B26E96D830033A469FB0F244
 ```bash
 magnet:?xt=urn:btih:0A4B7A82C89D44C9BB0A7C682DDA658E7781BDDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +44,8 @@ magnet:?xt=urn:btih:0A4B7A82C89D44C9BB0A7C682DDA658E7781BDDD
 ```bash
 magnet:?xt=urn:btih:89BDFE05FBDE6D7372249190FCB9E516CBA0D749
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +73,8 @@ magnet:?xt=urn:btih:89BDFE05FBDE6D7372249190FCB9E516CBA0D749
 magnet:?xt=urn:btih:82A5AC27123C407F169A9AE15FFE0E7BD14C2A1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +98,8 @@ magnet:?xt=urn:btih:82A5AC27123C407F169A9AE15FFE0E7BD14C2A1C
 ```bash
 magnet:?xt=urn:btih:905CC1BD17F076FC4A6911FE99AC242AF15A5847
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +128,8 @@ magnet:?xt=urn:btih:905CC1BD17F076FC4A6911FE99AC242AF15A5847
 magnet:?xt=urn:btih:0A2F4BA7B71BDAD69800BC782D418A217052E159
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +153,8 @@ magnet:?xt=urn:btih:0A2F4BA7B71BDAD69800BC782D418A217052E159
 ```bash
 magnet:?xt=urn:btih:1AB5AA510D684B161005BFE4D2363E93A95BC983
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +180,8 @@ magnet:?xt=urn:btih:1AB5AA510D684B161005BFE4D2363E93A95BC983
 magnet:?xt=urn:btih:A2AB01156327DFE172E5938CB894A701137FDC22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +205,8 @@ magnet:?xt=urn:btih:A2AB01156327DFE172E5938CB894A701137FDC22
 ```bash
 magnet:?xt=urn:btih:5EAE40BB11D23BEAAD8BDD8254966EFA032E21F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +233,8 @@ magnet:?xt=urn:btih:5EAE40BB11D23BEAAD8BDD8254966EFA032E21F3
 magnet:?xt=urn:btih:9144C5484282A03469EB17927029AF21AF4EC8D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +259,8 @@ magnet:?xt=urn:btih:9144C5484282A03469EB17927029AF21AF4EC8D6
 magnet:?xt=urn:btih:77B3AB3809D690674AA0881E57C44C5785AF9F86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +284,8 @@ magnet:?xt=urn:btih:77B3AB3809D690674AA0881E57C44C5785AF9F86
 ```bash
 magnet:?xt=urn:btih:70EE2540A1DC437684B6583EB3191D1FC6CEB966
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +314,8 @@ magnet:?xt=urn:btih:70EE2540A1DC437684B6583EB3191D1FC6CEB966
 magnet:?xt=urn:btih:3051314491273931D35ED66D604AEC4AC766507C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +339,8 @@ magnet:?xt=urn:btih:3051314491273931D35ED66D604AEC4AC766507C
 ```bash
 magnet:?xt=urn:btih:517C08F20C520CA5BD39718CD0E861DB10F1A44B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +368,8 @@ magnet:?xt=urn:btih:517C08F20C520CA5BD39718CD0E861DB10F1A44B
 magnet:?xt=urn:btih:B88993C6BE1FDCC2B596B7F46279C7B03F3B9047
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +393,8 @@ magnet:?xt=urn:btih:B88993C6BE1FDCC2B596B7F46279C7B03F3B9047
 ```bash
 magnet:?xt=urn:btih:15A56F4FC83E9738E5EC2D88A3F9A062F8475EAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +420,8 @@ magnet:?xt=urn:btih:15A56F4FC83E9738E5EC2D88A3F9A062F8475EAC
 magnet:?xt=urn:btih:45DF6FE7D3911262D32228D321622C23ADCE09B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +445,8 @@ magnet:?xt=urn:btih:45DF6FE7D3911262D32228D321622C23ADCE09B6
 ```bash
 magnet:?xt=urn:btih:7AA0F57EC710A4BEC7B39482A853821E2004F1B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +472,8 @@ magnet:?xt=urn:btih:7AA0F57EC710A4BEC7B39482A853821E2004F1B8
 magnet:?xt=urn:btih:A797DA31D221A6E2E58AFE505BD41031F4291B04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +497,8 @@ magnet:?xt=urn:btih:A797DA31D221A6E2E58AFE505BD41031F4291B04
 ```bash
 magnet:?xt=urn:btih:99DFB22B500C2A3972D9C9348F4B3C9B302E2394
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +524,8 @@ magnet:?xt=urn:btih:99DFB22B500C2A3972D9C9348F4B3C9B302E2394
 ```bash
 magnet:?xt=urn:btih:7E4C72504588693105A26AD3A554A63C92115DC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +553,8 @@ magnet:?xt=urn:btih:7E4C72504588693105A26AD3A554A63C92115DC8
 magnet:?xt=urn:btih:E9C175D985A563C371FED4D16DDE0CE499782C2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +578,8 @@ magnet:?xt=urn:btih:E9C175D985A563C371FED4D16DDE0CE499782C2D
 ```bash
 magnet:?xt=urn:btih:77917BDC925E2237390216408F1DD98A7B2A6909
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +606,8 @@ magnet:?xt=urn:btih:77917BDC925E2237390216408F1DD98A7B2A6909
 magnet:?xt=urn:btih:7D88B15EBD8287F6F9905766B6532C46FD70554A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +633,8 @@ magnet:?xt=urn:btih:7D88B15EBD8287F6F9905766B6532C46FD70554A
 magnet:?xt=urn:btih:006EDBA81CEA640B88839EF5CF4BDC862767D8EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +658,34 @@ magnet:?xt=urn:btih:006EDBA81CEA640B88839EF5CF4BDC862767D8EF
 ```bash
 magnet:?xt=urn:btih:D804F112745ACA8B51165E6AF91DB6084CAE76D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126924   (740606) от 20.04.2017
+
+Истребитель / Destroyer (1988) DVDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серийный убийца и насильник Иван Мозер приговорен к казни на электрическом стуле. Но прямо во время приведения приговора в исполнение в тюрьме вспыхивает сильный пожар. Предположительно, Мозер сгорает в огне пламени. Полтора года спустя съемочная бригада прибывает в заброшенную нынче тюрьму, где собирается снимать фильм о женщинах-преступницах. Вскоре актеров начинает (   Читать дальше...   )Производство: США, Back East Money, Skouras Pictures, Weskirk, Wind River ProductionsЖанр: Ужасы, ТриллерРежиссер: Роберт КиркАктеры: Дебора Формен, Клэйтон Ронер, Лайл Альзадо, Энтони Перкинс, Тобиаш Андерсон, Лэнни Гаррет, Джим Тернер, Пэт Махони, Дэвид Кристин, Ванесса Тоунселл, Стэнли Кирк, Берни Уэлш, Роберт Химбер, Эрик Мейер, Жак КлэйПеревод: Одноголосый закадровый (Сергей Кузнецов)Субтитры: ОтсутствуютПродолжительность: 01:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDD8A0746505B637AC39ACCA2D3C66BAE7BA3011
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

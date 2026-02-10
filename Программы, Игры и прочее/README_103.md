@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:E6E7AD365BB40CA14448FD40866BA90B492DFA29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ FAR: Lone Sails  v1.27 [Ru/Multi]
 magnet:?xt=urn:btih:CC17FF0F4B7718AFF41DF0F1A03FBDDACCB16964
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Aerofly 2 Flight Simulator v2.5.41 [En]
 magnet:?xt=urn:btih:7053AB466FB641ABD2EF787E523435D1E7F29001
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:7053AB466FB641ABD2EF787E523435D1E7F29001
 ```bash
 magnet:?xt=urn:btih:B32EF4CF8F76610B2346EA4DA19841BDADE87170
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Ace Stream Media 3.1.11.2 [Ru/Multi]
 magnet:?xt=urn:btih:57D5277052BF04581CEB4D9F5655DF6348E9C520
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ NBA JAM by EA SPORTS™ 04.00.80 [En]
 ```bash
 magnet:?xt=urn:btih:F92790F0EDB8675F941A399313851225D6E26474
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:F92790F0EDB8675F941A399313851225D6E26474
 magnet:?xt=urn:btih:F0FA7B6A58AEA0EFDC445376B21A2837014A39CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ InstaSave - приложение для загрузки фото и видео 
 ```bash
 magnet:?xt=urn:btih:7B60B263AD4997901A81FCBCB507108768FD320C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ TikTok – это социальная сеть, в которой вы може
 magnet:?xt=urn:btih:03401AE904A5D0ACBA8BC3BA4A41017621BC3B39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ SkySafari 6 Pro революционизирует ваши астрономич
 ```bash
 magnet:?xt=urn:btih:26197BD3D5DB396B7B1A20D8468746C8D64223F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Action Strike – это трехмерный онлайн шутер от пе�
 magnet:?xt=urn:btih:807C100CF08A0CC755A851458802B18E2F1BB87B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ ImageMeter предоставляет инструменты, которые п�
 ```bash
 magnet:?xt=urn:btih:1C00701421DD36D0E2B049CBF3532C3DC2F64B5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ Prisma превращает ваши фотографии в произведе�
 magnet:?xt=urn:btih:649E14920F5CF2B212CA766CE8FC479EFB39B013
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ KingoRoot 2.5 Beta[Ru/En]
 ```bash
 magnet:?xt=urn:btih:B31BE248822DE5D8E48CD7FE3B8F7676F51EEAAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ Dig Out!: Короли подземелий 2.17.0 [Ru]
 magnet:?xt=urn:btih:61CD5BB303B60350477B2F365E4479A8EBA09486
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ Sonic Lost Worlds 1.4 [En]
 ```bash
 magnet:?xt=urn:btih:3EABD1F659F628A9E801AAF84993A8DA52208911
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ ProgTV - простое, но удобное и универсальное пр�
 magnet:?xt=urn:btih:69A8228814458C8CF048D2EAED94B3659E804254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ Sonic Mobius Evolution 1.4 [En]
 ```bash
 magnet:?xt=urn:btih:C8B6C900C6730EA8B0A3EEC0CEC35275CC79F369
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:C8B6C900C6730EA8B0A3EEC0CEC35275CC79F369
 magnet:?xt=urn:btih:E5EB003A4515EF127EC8864DE8A8236429C389AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:E5EB003A4515EF127EC8864DE8A8236429C389AA
 ```bash
 magnet:?xt=urn:btih:7EDEBE28ABCBCED994CC9D3C1D8EF44EB5A481D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ Yokee™ - это караоке-приложение №1, благодаря �
 magnet:?xt=urn:btih:1372C927745BECBE828E01198A925D435542EFBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ iGO TomTom Америка, Канада 2019.03 (Q1) (.fbl, .fpa, .fsp, .ftr, .h
 ```bash
 magnet:?xt=urn:btih:8216B8E533D45045CB52FB3365E5C5652D7E0D75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ Radio Garden v2.1.3 [En] - радиостанции мира на интерак
 magnet:?xt=urn:btih:D65D329EA26CD52D66150BFB23DE41A6C9EA9915
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ iGO R3 TomTom (Teleatlas) Европа 2019.06 (Q2) (.fbl, .fpa, .fsp, .ftr, .hn
 magnet:?xt=urn:btih:77723017A630DBE05B5B55ABBE8E1B8D0BD95ECA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Rotation - Orientation Manager v25.0.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CA22B035E00379FB823CF49ADF069ABEB8FB2259
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +684,8 @@ Lane assist, JCV, 3D модели объектов, сложных запрет�
 ```bash
 magnet:?xt=urn:btih:954595059A037218A18A93FCFC132C0372D7A958
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1318416   (494824) от 06.08.2019
+
+VA - Phoenix Rising (2019) [MP3|320 Kbps] <Metal, Power, Death>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494824.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shook Ones - You Missed A Button
+002. Dawnwalker - Horus
+003. Helevorn - Goodbye, Hope
+004. Lana Blac - In The Darkness(   Читать дальше...   )Жанр: Metal, Power, DeathПродолжительность: 10:57:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:798BB66C7A0D5AB3EB1D2FB9624EFDD50231D920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318413   (494826) от 06.08.2019
 
 VA - Dance With Me: Synthpop Music (2019) [MP3|320 Kbps] <Synthpop>
@@ -21,6 +50,8 @@ VA - Dance With Me: Synthpop Music (2019) [MP3|320 Kbps] <Synthpop>
 ```bash
 magnet:?xt=urn:btih:9BF4CB9532DFA6127274A7533467E753FD465518
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Pattern Pageantry (2019) [MP3|320 Kbps] <Indie, Pop Rock>
 magnet:?xt=urn:btih:479661805C4DD7F356DB98646E76402E7529AF6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Beatport Trance: Electro Sound Pack #156 (2020) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:74C7231EB8CE21026B09AFCFBAE9D8351BB9EC20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Beatport Tech House: Electro Sound Pack #153 (2020) [MP3|320 Kbps] <Tech Ho
 magnet:?xt=urn:btih:A07399E24403C92E970C00412430D0A1AB06DC62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Beatport Progressive Trance: Electro Sound Pack #157 (2020) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:8E8A25F6FC17C3D65293CB82030FA7A082973A23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Chillout Top 100: The Best Relaxing Music Vol. 2 (2020) [MP3|320 Kbps] <Dow
 magnet:?xt=urn:btih:F6A2757999C66149890D00C46DB0095EA4E933FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Music Of Wanderings: Country Music (2020) [MP3|320 Kbps] <Country, Folk Roc
 ```bash
 magnet:?xt=urn:btih:484D763B12726FDDB4AC942888DDA4B48FA927B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Heartache Tonight: Classic Rock Collection (2020) [MP3|320 Kbps] <Classic R
 magnet:?xt=urn:btih:5F877655F28BC354468959942EA55A0C42E2494C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Beatport Uplifting Trance: Electro Sound Pack #158 (2020) [MP3|192-320 Kbps
 ```bash
 magnet:?xt=urn:btih:AA573167896CE75A93D23C5791C2128AA28A62F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +318,8 @@ VA - TOP100 Зайцев.нет (04.09.2012) [MP3|112-320 кб/с]<Pop, Chanson,
 magnet:?xt=urn:btih:55359766AF726B0826BEFEFE6FF7573DBD7F99E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +346,8 @@ VA - Russian Dance (2016) [MP3|256-320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:B932D39A9C93370DBC90E581A69C2DF0842CD3B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +376,8 @@ VA - Disco Beach: Nu Disco House Original Mix (2017) [MP3|320 Kbps] <Nu Disco, H
 magnet:?xt=urn:btih:8159D5848C0F347114606E4AD88BB88BF51FDA3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +405,8 @@ VA - Girls Romances Vol.2 (2017) 4СD [MP3|320 Kbps] <Pop, RnB>
 magnet:?xt=urn:btih:EA0C4CCDAA89BAB8AD2D1DEA36F505A90654A150
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +433,8 @@ VA - ЕвроХит Топ 40 Europa Plus 24.08.2018 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:17C2BDE8157302BDF864EC0B07D4DB0F59051B37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +469,8 @@ VA - Сборник медленных хитов Vol.12 (2012) [MP3|96-320 кб
 magnet:?xt=urn:btih:91D98AB0CAAAE7362B00441557ECF7D3E844409A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +504,8 @@ VA - Dance Вечеринка Non-Stop. Зарубежный (2012) [MP3|256 к�
 magnet:?xt=urn:btih:BB7370A8C8F39B6BF9E53ABF72477453E1A8ED11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +532,8 @@ VA - The Official UK Top 40 Singles Chart 24.08.2018 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:53E9085A5508506343DEA1BBAFBF4FCE6624E4FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +562,8 @@ VA - German Top 100 Single Charts 24.08.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:35B8C308D71E2369DA38C41A51FB57473337DDB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +591,8 @@ VA - Попсовая соточка MTV. Сборник 4 (2015) [MP3|256 кб/
 magnet:?xt=urn:btih:B25112FD1A388C7DD6E794F60FDBD26B792FF9BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +619,8 @@ VA - Hi-NRG Dance Classics (2 CD) (2015) [MP3|320 кб/с]<Hi-NRG, Italo Disco>
 ```bash
 magnet:?xt=urn:btih:8DA8F5D7058D10437054C6A19CCE591CC576ADC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +655,8 @@ VA - Лучшая 100ка Record: Взорви танцпол 5 (2012) [MP3|256 
 magnet:?xt=urn:btih:CECFC1A7F8626D57107477029A1B35F3D7E4076C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +690,8 @@ VA - Супер Хитовый Заряд Новинок Русский (2012) [
 magnet:?xt=urn:btih:2D211E1F71691E78487645A8BC5A0B36A63DC853
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +717,8 @@ VA - Billboard Hot 100 (06-09-2014) [MP3|320 кб/с]<Pop, Euro, Indie, Folk, Hi
 ```bash
 magnet:?xt=urn:btih:47BAD3A50D9FA26D5BC1E18B5631136245831532
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -671,6 +746,8 @@ Hugo Race - The best (1999-2019) Compilation Album [MP3|320 Kbps] <Blues rock, D
 ```bash
 magnet:?xt=urn:btih:755E868AD459B6D5E729912983DC80933378C3D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -705,32 +782,7 @@ VA - Русский Avto Club Сентябрь (2012) [MP3|320 кб/с]<Dance, C
 magnet:?xt=urn:btih:37055D8463BC0280ABEE1C6E238E6BDF0420160C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936390   (496489) от 11.09.2015
-
-VA - Unexpected Journey (2015) [MP3|128 кб/с]<Dance, Aсoustic, Folk, Indie, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Colin Hay - Down Under (Nicolas Haelg Remix)
-03. Alex Cruz - Haunting (feat. Anna Renee & Melle Kuil)
-04. Kodaline - High Hopes (Filous Remix)(   Читать дальше...   )Жанр: Dance, Aсoustic, Folk, Indie, Deep HouseПродолжительность: 01:00:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1788E04360848D5B3ACD1BD4EF01EA551A6728AC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Brave Rival - Fight or Flight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Clas
 magnet:?xt=urn:btih:2DCA61F6FCEAACDEC3C0CB479CC2B1D1B572DFE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Diamantide - Diamantide (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal,
 ```bash
 magnet:?xt=urn:btih:6B2A4AA182726C1015AA4F1F0167947B9BD4565D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Arielle - Reel To Real (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:ED8BA83B92F6FC5157160D1C7CC5A9C95CAAB526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Richard Clapton - Goodbye Tiger (1977) Remaster, 2024, WM Australia [FLAC 24/44.
 ```bash
 magnet:?xt=urn:btih:F88A40E7AB7A7B5F1387E2C298A0764936B08B7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Written By Wolves - THE LIGHTHOUSE (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:CF52DB48E43924A5F1BC9665E8688DCEBEE618DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Fast Train Union - Analog Outliers (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:CA5F0F75086AC4FCBCFB048A6F7ECB0C0D1CE056
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Act Of Creation - Moments To Remain (2024) [FLAC|Lossless|image + .cue] <Melodic
 magnet:?xt=urn:btih:6D508C764B6AC0D1F2D8585F6246DF0FE13CAE01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ magnet:?xt=urn:btih:6D508C764B6AC0D1F2D8585F6246DF0FE13CAE01
 ```bash
 magnet:?xt=urn:btih:20AF164F0E6CF5202B8BF69E42D7CF6FBB9EA556
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -234,6 +250,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:54A6D0EC81A082565558290B58D2F27CB8BCEA22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +276,8 @@ magnet:?xt=urn:btih:54A6D0EC81A082565558290B58D2F27CB8BCEA22
 magnet:?xt=urn:btih:FED521E0A10BF91E3B108077B054F4208D2108F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +301,8 @@ magnet:?xt=urn:btih:FED521E0A10BF91E3B108077B054F4208D2108F4
 ```bash
 magnet:?xt=urn:btih:C7B95059E02367BC8164B7EA5107106B142F828B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +331,8 @@ magnet:?xt=urn:btih:C7B95059E02367BC8164B7EA5107106B142F828B
 magnet:?xt=urn:btih:F096DBE3DD0AC1E20A8C15113D70318D3B614218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +356,8 @@ DVDFab StreamFab — это удобный и мощный инструмент 
 ```bash
 magnet:?xt=urn:btih:621A096ED423CEA8E61D5726DE35E2539E821217
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +386,8 @@ magnet:?xt=urn:btih:621A096ED423CEA8E61D5726DE35E2539E821217
 magnet:?xt=urn:btih:A6C593AB6EE88F8A51470EF720566F2ECCDCB64F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +411,8 @@ TweakPower – представляет собой единый графичес
 ```bash
 magnet:?xt=urn:btih:1D0147630817DCFAEDF310E12751394DF1708AB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +438,8 @@ magnet:?xt=urn:btih:1D0147630817DCFAEDF310E12751394DF1708AB1
 ```bash
 magnet:?xt=urn:btih:8BCD4923803A4C932E59C682E9B693FE35EB6F43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +468,8 @@ magnet:?xt=urn:btih:8BCD4923803A4C932E59C682E9B693FE35EB6F43
 magnet:?xt=urn:btih:5355A62B1A217FB4476D11FC8E6BC53F722D864B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +497,8 @@ magnet:?xt=urn:btih:5355A62B1A217FB4476D11FC8E6BC53F722D864B
 magnet:?xt=urn:btih:619CBABA892C092C2ACA79B722B04B1413A99545
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +525,8 @@ DVDFab – мощный, многофункциональный программ
 magnet:?xt=urn:btih:50C8EF26267A2DD3141E48CDB7522B36A23A925D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +552,8 @@ WonderFox DVD Video Converter — удобный конвертер всех н�
 magnet:?xt=urn:btih:E8A6DC1723843D3794E91ABB49A4E0EE5D1C0695
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +577,8 @@ magnet:?xt=urn:btih:E8A6DC1723843D3794E91ABB49A4E0EE5D1C0695
 ```bash
 magnet:?xt=urn:btih:80B62DF8CD9964691A8F7AE115DE54B25DE8F42F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +604,8 @@ magnet:?xt=urn:btih:80B62DF8CD9964691A8F7AE115DE54B25DE8F42F
 magnet:?xt=urn:btih:4F5E7A0B813D995A3D841E1169BBCC925FAB338C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +629,8 @@ magnet:?xt=urn:btih:4F5E7A0B813D995A3D841E1169BBCC925FAB338C
 ```bash
 magnet:?xt=urn:btih:4907CA660386D6756A2A6829F70C261FB430A42E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +656,8 @@ magnet:?xt=urn:btih:4907CA660386D6756A2A6829F70C261FB430A42E
 magnet:?xt=urn:btih:91C5F5D3E06D1C5DBAA8A06D644B1D740B6D1E70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ magnet:?xt=urn:btih:91C5F5D3E06D1C5DBAA8A06D644B1D740B6D1E70
 ```bash
 magnet:?xt=urn:btih:AFFDF96253046462A839DC598986DB50C2314337
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -660,6 +710,8 @@ magnet:?xt=urn:btih:AFFDF96253046462A839DC598986DB50C2314337
 ```bash
 magnet:?xt=urn:btih:B6F0648051845CD18893CF909B3288A38D4BC8E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,27 +1,3 @@
-###  Публикация: 1512083   (787766) от 23.11.2021
-
-Empire of Sin (2020) [Ru/Multi] (1.06.0.51066/dlc) License CODEX [Premium Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Empire of Sin перенесет вас в сердце преступного мира Чикаго 1920-х годов, когда там царил сухой закон. Станьте одним из четырнадцати криминальных боссов, реальных или созданных на основе реального образа: например, Аль Капоне, Стефани Сент-Клер или Голди Гарно. Соберите разношерстную банду, постройте преступную империю и защитите ее от соперников. Запугивайте или (   Читать дальше...   )Тип издания: LicenseРазработчик: Romero GamesЖанр: Ролевая (Партийная), Стратегия (Тактика, Менеджмент)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B611C494F837C4BA665F6D65E9513C5993EBD7BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512052   (787778) от 23.11.2021
 
 Alpine - The Simulation Game (2021) [Multi] (1.0.0) License DOGE
@@ -42,6 +18,8 @@ Alpine - The Simulation Game (2021) [Multi] (1.0.0) License DOGE
 ```bash
 magnet:?xt=urn:btih:D627656CAC0A54F49B9315FC9971F291D65CA3AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.09.00/dlc) Licens
 magnet:?xt=urn:btih:2AB2AF30C6DAE18F3F265405120B17CD2A88941B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ King of Seas (2021) [Ru/Multi] (7677098) License CODEX
 ```bash
 magnet:?xt=urn:btih:3110438A9C6EF6BE6EB74C87AA2FF5DB7F679479
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Resident Evil 0 HD Remaster / Biohazard Zero (2016) [Ru/En] (1.0/dlc) Repack xat
 magnet:?xt=urn:btih:5493AFE913AA594B2384ADF012F3A5014AA58CD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Remothered: Tormented Fathers (2018) [Ru/Multi] (1.0/upd1) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:DF71382396289BDA4C12A0472FE5FFEC0EC7110D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Shiness The Lightning Kingdom (2017) [Ru/En] (1.02) Repack R.G. Catalyst
 magnet:?xt=urn:btih:2051FFC854F65EFBE11C588C9180FF450F3EE98F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Sunset Overdrive (2018) [Ru/En] (1.0/u2) Repack Mizantrop1337
 ```bash
 magnet:?xt=urn:btih:58FD08F22817FF13CA928AA7947338FBAB547BFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Gray Dawn (2018) [Ru/Multi] (1.0) Repack xatab
 magnet:?xt=urn:btih:03EAD1775A77C436FC3FE6C27707D6D933C8E3E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.02.00/dlc) Licens
 ```bash
 magnet:?xt=urn:btih:63EEBFA90E4540BF2DAB522F722BBF5F9128499D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Donna Brave 2: And the Deathly Tree / Донна Браве 2: Древо Сме
 magnet:?xt=urn:btih:BBB29FDE895BEF6DB6E9164D851379F225D94D40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Graveyard Keeper - самый недостоверный симулятор ср
 ```bash
 magnet:?xt=urn:btih:2F51A7220B3EC2D37C226FE429FFBCB302A61D9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Warhammer 40,000: Space Wolf (2017) [Ru/Multi] (1.1.8/dlc) License GOG [Complete
 magnet:?xt=urn:btih:D96D0272F6A23D49C10E3DD63FF7FE8A255E4C37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ The Medium (2021) [Ru/Multi] (1.2b7162431/dlc) License CODEX [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:07883FA1C72AA58DF5D84DB99D19BD033134DDEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Solitaire Mystery: Four Seasons / Магия Пасьянса: Времена Г
 magnet:?xt=urn:btih:81FDCAD9D33D7F2D27B06D306A38151D30959C9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ Solasta: Crown of the Magister (2021) [Ru/Multi] (1.2.9/dlc) License CODEX [Comp
 ```bash
 magnet:?xt=urn:btih:F79760322FD24F07F9BAAE8632B863AEFD73EC66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ CountryBalls Heroes - это игра, в которой тебе предсто
 magnet:?xt=urn:btih:7826D70EB949D68E3DF1C830452EAB59AB928A21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ Tales of Sorrow. Strawsbrough Town / Печальная история горо�
 ```bash
 magnet:?xt=urn:btih:F3E4AD6367C841694F99455D18AC2057EB666527
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ Onimusha: Warlords (2019) [Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:D2F751A4D81A2D1F422B9749BD60C53383ACFCF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ Fishing Sim World (2018) [Ru/Multi] (1.0/dlc) License CODEX [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:F881C9F45BD343CE825B341BF5A160F27A11F48E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Wulverblade - двухмерный брутальный классический
 magnet:?xt=urn:btih:8DA8D9B90220579E54D4BD82D2EBC26DB0590FD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ The Apartment - психологический триллер. Сочетает 
 ```bash
 magnet:?xt=urn:btih:B300D44842E8CD4BD101DCD767EB0AD9107983CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ Detective escape1 (2019) [En] (1.0) Unofficial
 magnet:?xt=urn:btih:78DBADD3CA1CE345314F545069AB1FECA4FA02D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ Candleman The Complete Journey (2018) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:695C10A57D9EA125CAB85B4485596FD8DEEA44D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ Dawn of Hope 3: The Frozen Soul (2018) [En] (1.0) Unofficial [Collector's Editio
 magnet:?xt=urn:btih:840B7D7916A47F0CF5188F63659B61E30B6EA03E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ Hextech Mayhem: A League of Legends Story (2021) [Ru/Multi] (1.21.11.19/dlc) Lic
 ```bash
 magnet:?xt=urn:btih:1EF8F32EFABE86C8F417CFCA1C83AEADAE5A4E91
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511684   (788716) от 21.11.2021
+
+Marsupilami: Hoobadventure (2021) [Ru/Multi] (1.0rd) License CODEX
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марсупилами Панч, Твистер и Хоуп мирно живут в джунглях Паломбии. Однажды друзья, играя на пляже, случайно открывают проклятый саркофаг и выпускают на волю таинственное привидение, которое накладывает ужасное проклятие на всех зверей. К счастью, марсупилами к нему невосприимчивы. Наши герои должны отправиться на поиски врага, чтобы снять проклятие.Тип издания: LicenseРазработчик: Ocellus StudioЖанр: Платформер, ПриключенияЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB0A62CDF86655336B4B8BA80F9FC2987776D9F
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

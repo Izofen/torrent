@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:EAC3A3FB793DB326B4B87BFEC31752A24EAB225C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:EAC3A3FB793DB326B4B87BFEC31752A24EAB225C
 magnet:?xt=urn:btih:073EF88198CAD8DBD232D04E580D176070F03EF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Relic Space (2023) [En] (1.03) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:6E580E81A95464ACEC34F8D5014C0990B399F4F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:6E580E81A95464ACEC34F8D5014C0990B399F4F7
 magnet:?xt=urn:btih:AF543B9483EB64B302E2633D9BE96ACBB63B7266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ FlatOut 2 (2006) [Ru/Multi] (1.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E20D83D132EA7A894292FB0FA681A9C27C1A02F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:E20D83D132EA7A894292FB0FA681A9C27C1A02F6
 magnet:?xt=urn:btih:92ADC5EB1F61FEAE55E381C83187B7812096B7F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:92ADC5EB1F61FEAE55E381C83187B7812096B7F6
 magnet:?xt=urn:btih:2BC35364EC7453D16099B32B9A9EA04E46B43E4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:2BC35364EC7453D16099B32B9A9EA04E46B43E4F
 ```bash
 magnet:?xt=urn:btih:25A2E8FC0F25AEB7CDBEDB11DE0E0861574E1BCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:25A2E8FC0F25AEB7CDBEDB11DE0E0861574E1BCC
 magnet:?xt=urn:btih:4DB2BAECAD22EFDECB885DCEAEF3B1100B201460
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:4DB2BAECAD22EFDECB885DCEAEF3B1100B201460
 ```bash
 magnet:?xt=urn:btih:D5536175E812C61639A1D8DB60EAC1ECA3C46F91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:D5536175E812C61639A1D8DB60EAC1ECA3C46F91
 magnet:?xt=urn:btih:5FA937ED824C2AE41B9D113676E7E3A0DDACFD7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Elden Ring – фэнтезийное экшен-РПГ приключение, 
 ```bash
 magnet:?xt=urn:btih:32AEAADE742D19329E330F7F7592FAA9803DD606
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Dead Space 2 (2011) [Ru/En] (1.1/dlc) Repack FitGirl [Collector's Edition]
 magnet:?xt=urn:btih:9F26DEC70730323C0C0860CDEDD37094F22BEDFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ EARTH DEFENSE FORCE 6 (2024) [Multi] (1.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:BCB247444C907AC4FEBF0584CFD5EE4A1D15591A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:BCB247444C907AC4FEBF0584CFD5EE4A1D15591A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Dead Space (2008) [Ru/Multi] (1.0.0.222) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:35AC15D995679FBAC510BC78A98005DEDF1F3BD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ DISMTools — это интерфейс для DISM, позволяющий уп
 magnet:?xt=urn:btih:90CFCB39A8AB80B54AA0BC487D9E6AC77F0F86C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:90CFCB39A8AB80B54AA0BC487D9E6AC77F0F86C5
 magnet:?xt=urn:btih:C73B92C26FD384237C67096E0C842FBEBA078D68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Dread Delusion смешивает фэнтезийное средневеков�
 ```bash
 magnet:?xt=urn:btih:5F5DF25F2BC3825F3237B5D92D5DA1900B585E3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:5F5DF25F2BC3825F3237B5D92D5DA1900B585E3A
 magnet:?xt=urn:btih:FD48F53680E84AD5DAEC9638E631CE3085A4BA18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:FD48F53680E84AD5DAEC9638E631CE3085A4BA18
 ```bash
 magnet:?xt=urn:btih:8DF7A90CA258CF6AAAB37C05AB418CF53148748C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:8DF7A90CA258CF6AAAB37C05AB418CF53148748C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:8DF7A90CA258CF6AAAB37C05AB418CF53148748C
 magnet:?xt=urn:btih:8C04EF823E596EDF6549D655611F67532597C98A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:8C04EF823E596EDF6549D655611F67532597C98A
 ```bash
 magnet:?xt=urn:btih:85592CFA580D08C61E36A4BCF69DFF26D3EE1406
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:85592CFA580D08C61E36A4BCF69DFF26D3EE1406
 magnet:?xt=urn:btih:CAD0BEA57F7DE5D45085DC3A833B2283BDCAAA34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:CAD0BEA57F7DE5D45085DC3A833B2283BDCAAA34
 ```bash
 magnet:?xt=urn:btih:5F2795CFA32F44F16AA95343F685250A7BDFC08D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1065474   (416345) от 24.10.2016
+
+Скотт Адамс | Осколки Бога (2001) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_416345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга не попытка навязать вам новую религию, не очередная «теория всего», не сборник высшей мудрости. Она вообще ценна не столько своими ответами, сколько вопросами. Ответы же, по большей части, заведомо ложные. Эта книга позволяет взглянуть на многие вещи под необычным углом, заставляет задуматься, заставляет со скрипом проворачиваться заржавевшие шестеренки (   Читать дальше...   )Жанр: Философия, РелигияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DF42109231E6FA7D376C82E00ED6FD57655CDA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066033   (416630) от 24.10.2016
 
 митрополит Макарий (Булгаков) | История Русской Церкви [Книга первая] (1994) [PDF, DJVU]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:46EE0BB4F0DA4F8E8DC9A05A3B0FB08F1E483C6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:46EE0BB4F0DA4F8E8DC9A05A3B0FB08F1E483C6D
 magnet:?xt=urn:btih:A7C2936A0DE3E4286D30399B09CB16A7DCA1E688
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:A7C2936A0DE3E4286D30399B09CB16A7DCA1E688
 ```bash
 magnet:?xt=urn:btih:6097644CD57685F8FB1E99DD736FE08C194D1B04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:6097644CD57685F8FB1E99DD736FE08C194D1B04
 magnet:?xt=urn:btih:F52B208C21EE9ED654838434CB5651C9EDC0B992
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:F52B208C21EE9ED654838434CB5651C9EDC0B992
 ```bash
 magnet:?xt=urn:btih:35E590139677AF2F9F8C6E3704D90B0D6E6D1894
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:35E590139677AF2F9F8C6E3704D90B0D6E6D1894
 magnet:?xt=urn:btih:18FBF48E7E7A8E2D649224E7F5D12F43B1B968A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:18FBF48E7E7A8E2D649224E7F5D12F43B1B968A6
 ```bash
 magnet:?xt=urn:btih:8C37E1E86C40CC2DFFDE1EF1483089AD525563E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +235,8 @@ magnet:?xt=urn:btih:8C37E1E86C40CC2DFFDE1EF1483089AD525563E1
 magnet:?xt=urn:btih:A349B909DD4C01405DFBF83A66D069964E7E0D00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +260,8 @@ De.S., Trux | Тёмные культы. Проверка на вирусы со
 ```bash
 magnet:?xt=urn:btih:FB18A72F6E7F140566341153C0CC37ED5131149B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:FB18A72F6E7F140566341153C0CC37ED5131149B
 magnet:?xt=urn:btih:1D610E05CB0EB3E3FDC85C8F00A209573655BEC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:1D610E05CB0EB3E3FDC85C8F00A209573655BEC2
 ```bash
 magnet:?xt=urn:btih:ACE08D53F997E60DD4D128D29C54C99E8EEB3A53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:ACE08D53F997E60DD4D128D29C54C99E8EEB3A53
 magnet:?xt=urn:btih:30894275BBFA66AF9FF10F26527783F77E57A8F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +368,8 @@ magnet:?xt=urn:btih:30894275BBFA66AF9FF10F26527783F77E57A8F1
 magnet:?xt=urn:btih:BD91719F7D3E58FCBFB721A853B03DC0B7F67D57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:BD91719F7D3E58FCBFB721A853B03DC0B7F67D57
 magnet:?xt=urn:btih:CCFE3810296912655CEB3DE59B90CE161460569E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:CCFE3810296912655CEB3DE59B90CE161460569E
 ```bash
 magnet:?xt=urn:btih:0A0FD8894BDB3D6B66438693C7B63878751AF8F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +447,8 @@ magnet:?xt=urn:btih:0A0FD8894BDB3D6B66438693C7B63878751AF8F8
 ```bash
 magnet:?xt=urn:btih:A2849B9B55E49B1BE1AD68B5E8BF46A061C0C6B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +477,8 @@ magnet:?xt=urn:btih:A2849B9B55E49B1BE1AD68B5E8BF46A061C0C6B4
 magnet:?xt=urn:btih:BAA757E68D2D93D6EC01C66F4C6E8D517B5470A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +503,8 @@ magnet:?xt=urn:btih:BAA757E68D2D93D6EC01C66F4C6E8D517B5470A3
 magnet:?xt=urn:btih:C33B64D4E660F0FB14A93885344D93C345802ECB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +528,8 @@ magnet:?xt=urn:btih:C33B64D4E660F0FB14A93885344D93C345802ECB
 ```bash
 magnet:?xt=urn:btih:05DBFD19AB5FB866802867E0B23187C52E532648
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +556,8 @@ magnet:?xt=urn:btih:05DBFD19AB5FB866802867E0B23187C52E532648
 magnet:?xt=urn:btih:5DDBDD408E63287B774A8B8A76CB07D897D97C6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +583,8 @@ magnet:?xt=urn:btih:5DDBDD408E63287B774A8B8A76CB07D897D97C6B
 magnet:?xt=urn:btih:4B51C489BF272C9232B5AA16C9C965F166B3F81D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +608,8 @@ magnet:?xt=urn:btih:4B51C489BF272C9232B5AA16C9C965F166B3F81D
 ```bash
 magnet:?xt=urn:btih:03627963063279F69606C75BA472BCFF0292DABB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +637,8 @@ magnet:?xt=urn:btih:03627963063279F69606C75BA472BCFF0292DABB
 magnet:?xt=urn:btih:8211D9490AE4A78FF0553E3D3FBC5B9BDFD592AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +662,8 @@ magnet:?xt=urn:btih:8211D9490AE4A78FF0553E3D3FBC5B9BDFD592AF
 ```bash
 magnet:?xt=urn:btih:A0D42557C28B851714F4DAA49277BFA46A0A5997
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,29 +689,7 @@ magnet:?xt=urn:btih:A0D42557C28B851714F4DAA49277BFA46A0A5997
 magnet:?xt=urn:btih:874928E38AFCF7500F89B769EB0AE8A817EC9505
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947722   (418258) от 17.10.2015
-
-Серафим Мелюхин | Можно ли предвидеть будущее? (1966) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каким образом предшествующие явления связаны с последующими, в какой степени прошлое предопределяет будущее и можно ли на основе знания всех причинных связей в настоящем определить все возможные следствия на будущее? Все эти и аналогичные им вопросы возникали с незапамятных времен, и их обсуждение всегда стояло в центре внимания науки и практики.Жанр: История, религиоведение, естествознаниеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E69AC7F8DF0E1A7EDD87FBA415386ABBBF0D88F9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

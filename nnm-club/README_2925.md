@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:488F2F82B3A7C8C38575892BF85DD8E5C2E088AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Grandia 2 (RePack) [Ru] 2002 | Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Star Wolves / Звездные волки [Ru] (RePack) 2004 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыл�
 magnet:?xt=urn:btih:0A9632FAF3F159628F3294A9E45C40876A1E6563
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ WINDOZA FAN USB - Набор файлов для создания мультиз
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Project X / Проект Х: Дорвались (2012) [MP3|320 кб/с]<Soundtr
 magnet:?xt=urn:btih:F7AFD30482DE30A6039259DE6066AB58C539C4BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:F7AFD30482DE30A6039259DE6066AB58C539C4BD
 ```bash
 magnet:?xt=urn:btih:87C14C1E7F9993E71B3A3D2DD7DF7138DC69A0CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ magnet:?xt=urn:btih:87C14C1E7F9993E71B3A3D2DD7DF7138DC69A0CC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:87C14C1E7F9993E71B3A3D2DD7DF7138DC69A0CC
 ```bash
 magnet:?xt=urn:btih:405A353CAA8B5C38397B83EA9F2B6D1CD1A431A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +274,8 @@ magnet:?xt=urn:btih:405A353CAA8B5C38397B83EA9F2B6D1CD1A431A3
 ```bash
 magnet:?xt=urn:btih:18EED5FE456B2C82A8AA7C1FC696305D6E15EF66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +310,8 @@ VA - Звездная 200-ка (2012) [MP3|128 kbps]<Pop>
 magnet:?xt=urn:btih:932964C64786432A198A7CF4B80D27E15D0BF485
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +335,8 @@ magnet:?xt=urn:btih:932964C64786432A198A7CF4B80D27E15D0BF485
 ```bash
 magnet:?xt=urn:btih:4C873F318D87718A5A835D8D7C134C0A3E8EF15F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +362,8 @@ magnet:?xt=urn:btih:4C873F318D87718A5A835D8D7C134C0A3E8EF15F
 magnet:?xt=urn:btih:895400024152031D18B267808541A1D35019848B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +387,8 @@ magnet:?xt=urn:btih:895400024152031D18B267808541A1D35019848B
 ```bash
 magnet:?xt=urn:btih:48BF3696BC0C0BF7F56F2CB5167CA97422904EE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +417,8 @@ magnet:?xt=urn:btih:48BF3696BC0C0BF7F56F2CB5167CA97422904EE6
 ```bash
 magnet:?xt=urn:btih:DF0707692BAB8D07D6A0C31740071854313A7316
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +453,8 @@ VA - Шансон без тормозов 16 (2012) [MP3|256 кб/с]<Шансо
 magnet:?xt=urn:btih:7BC407520B787504A7C0C437CD59CA042BA9157C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +488,8 @@ VA - Любимые весенние хиты (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:C33F50732D2370B61AAE16CBC86154AE131F46A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +513,8 @@ magnet:?xt=urn:btih:C33F50732D2370B61AAE16CBC86154AE131F46A4
 ```bash
 magnet:?xt=urn:btih:9FF83C3952A84A0729CD96C05051CA3715C834C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +540,8 @@ magnet:?xt=urn:btih:9FF83C3952A84A0729CD96C05051CA3715C834C2
 magnet:?xt=urn:btih:FA59A8C9868D3846EB7F404A8D1FD724AF3ABCEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +566,8 @@ Deepside Deejays, Jus Jack, Dada & Sandy Rivera - Lollipop (2012) [H.264/720p] W
 magnet:?xt=urn:btih:BA85C8410D7E8609FA6298BC4C6CB5536261C638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +591,8 @@ magnet:?xt=urn:btih:BA85C8410D7E8609FA6298BC4C6CB5536261C638
 ```bash
 magnet:?xt=urn:btih:C57E16BAC6393F87D4E5C635D140F84791D2817E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +627,8 @@ VA - 50 Fitness & Aerobic Songs (2012) [MP3|320 кб/с]<House, Deep House, Tech
 magnet:?xt=urn:btih:7D40561F64FB874778DCC3869C210148268DC33F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +652,8 @@ magnet:?xt=urn:btih:7D40561F64FB874778DCC3869C210148268DC33F
 ```bash
 magnet:?xt=urn:btih:EDD93B429F0FD50E02F32ABB60C8F6B84E2F7526
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +681,8 @@ magnet:?xt=urn:btih:EDD93B429F0FD50E02F32ABB60C8F6B84E2F7526
 magnet:?xt=urn:btih:FC9B647FF51EC15CFBE14292B215A0EC9A78974A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +706,8 @@ magnet:?xt=urn:btih:FC9B647FF51EC15CFBE14292B215A0EC9A78974A
 ```bash
 magnet:?xt=urn:btih:13F944B8E033CE8A599F499C53C82B1189A7E049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -683,6 +733,8 @@ magnet:?xt=urn:btih:13F944B8E033CE8A599F499C53C82B1189A7E049
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Metadata - это утилита для просмотра метаданных 
 magnet:?xt=urn:btih:8B578C6413BD7B1934047CD2FD818C6351FD31BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:8B578C6413BD7B1934047CD2FD818C6351FD31BC
 ```bash
 magnet:?xt=urn:btih:9867683342DF72863D2647FAB56F4891D3FE1603
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:9867683342DF72863D2647FAB56F4891D3FE1603
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Gordon Campbell | The Oxford Illustrated History of the Renaissance / Оксфо
 ```bash
 magnet:?xt=urn:btih:FAF86B70737CF728F4EFF4D39A116FB42DB2440E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ SnapMotion имеет два режима:
 magnet:?xt=urn:btih:4D2443E2FDC42E18923A92F2F6175EA8BA9284D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:4D2443E2FDC42E18923A92F2F6175EA8BA9284D0
 ```bash
 magnet:?xt=urn:btih:7D6006F9B5558987C81241C37D13D1BAF9A607F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:7D6006F9B5558987C81241C37D13D1BAF9A607F6
 magnet:?xt=urn:btih:324E9673627B27B94695D4587AFD87F8F3AAF594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:324E9673627B27B94695D4587AFD87F8F3AAF594
 ```bash
 magnet:?xt=urn:btih:E53C2BB6134501D8958CA07B2E5F636E17ADE8A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ BurnAware - простая и в тоже время мощная програм
 magnet:?xt=urn:btih:AF150D3E30C039ADE8F07D65B279886DA4EBEF1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:AF150D3E30C039ADE8F07D65B279886DA4EBEF1A
 ```bash
 magnet:?xt=urn:btih:B57BF3E61D31D3D0D9ECC3CA203288DA8D4B980D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Revealing Chaos - Materia (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Progress
 magnet:?xt=urn:btih:32E706CE1FA12C8B176A6495F439025E55B8D052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:32E706CE1FA12C8B176A6495F439025E55B8D052
 ```bash
 magnet:?xt=urn:btih:1FD62757E532F0A8721EAC4C3C46BA610069D3D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ VA - Google Play хит-парад (November) (2015) [MP3|320 кб/с] <Pop, Р�
 magnet:?xt=urn:btih:FA6F8558637C6B56956E587F7FE3E0480A274F59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ OpenGL Extensions Viewer — программа для вывода информ
 ```bash
 magnet:?xt=urn:btih:54092203FBFC43576D5C9DACFA266B5A28838EEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:54092203FBFC43576D5C9DACFA266B5A28838EEE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:54092203FBFC43576D5C9DACFA266B5A28838EEE
 ```bash
 magnet:?xt=urn:btih:A806E3CA25F5C4331F8462FBBEDBE0657E0C1F89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ Darkened Nocturn Slaughtercult - Necrovision (2013) [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:66E17A346C85D5DD79B3F6DE5A47B6F6D8BAC0A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:66E17A346C85D5DD79B3F6DE5A47B6F6D8BAC0A6
 magnet:?xt=urn:btih:6C0401CC11119024C47E47FCF3C9750CB9999494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:6C0401CC11119024C47E47FCF3C9750CB9999494
 ```bash
 magnet:?xt=urn:btih:31977D7ACC63F4839F24B0BC7C2D5CE2A1E9F5F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ E-Mantra - Discography 13 Releases + Bonus (2008-2014) [MP3|320 кб/с]<Goa Tra
 magnet:?xt=urn:btih:C7DF237793E8607CAEA80C73875A5AA890A74FD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-
 magnet:?xt=urn:btih:070895BB8A7E30F4B414BCB733DBF88CA2B18B9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ Mi Fit 2.2.9 [Ru] - Фитнес трекер и не только
 ```bash
 magnet:?xt=urn:btih:F945DBFA76BE050CED9BB624BC0A125BFC4DC14D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ SamDrivers 20.11 LAN [Multi/Ru]
 magnet:?xt=urn:btih:0F0C8CA0C88B7A2E27B91AF7D834A4A301C3790B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:2A3D01B83F7C9B80E1D75DF6D2F713ED69A3CD21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:2A3D01B83F7C9B80E1D75DF6D2F713ED69A3CD21
 magnet:?xt=urn:btih:7AF45EA78D0AD4595B8D68A001C9EC9B8C4A7420
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ MetaRename — это удобный инструмент для фотогра�
 ```bash
 magnet:?xt=urn:btih:4C857A3D6596205E534D900256130D0EA4DC9E50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ AnyTrans, не в пример iTunes, прост и интуитивен. Ка�
 magnet:?xt=urn:btih:67CA30E0EF1470E3B1A8A7FFF9DF9E9FD03F8A78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Josh Goldberg | Learning TypeScript (2022) [PDF][EN]
 magnet:?xt=urn:btih:29D23088D8AE588DA4EF1B52533894573522DA49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:29D23088D8AE588DA4EF1B52533894573522DA49
 ```bash
 magnet:?xt=urn:btih:A77B1DB0BB6986A46EA6C5CE2E0BF836610DC5DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:A77B1DB0BB6986A46EA6C5CE2E0BF836610DC5DE
 magnet:?xt=urn:btih:90827BA4606DD65E53988890BAAE49411CFCFD67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:90827BA4606DD65E53988890BAAE49411CFCFD67
 ```bash
 magnet:?xt=urn:btih:D5E7687A5E02F5BBC07E0022D4336818D6FFE293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ VA - 60 minutes. Old School Dance Music vol.20 (mixed by Dj V) (2023) [MP3|320 K
 magnet:?xt=urn:btih:DB3A89DECCEB2BE9CCC464F8A68F3915361EEAF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:5BDE239E69205EA64911A0750B4CDC5C155ECC2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ IceCream Ebook Reader Pro 6.39 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:2F2D8D9B2D84B4FBF7BF0CD99F01A2048D7238BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Icecream Ebook Reader - программа для чтения электрон�
 ```bash
 magnet:?xt=urn:btih:8B419CBAD88804ACD814C476B0BDE90E6488B003
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ Scrivener сочетает в себе возможности текстовог
 magnet:?xt=urn:btih:963C04E84362427C74478AE3B9A0C14D0A8A1BA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ Alt SwitchER - программа для автоматического испр
 ```bash
 magnet:?xt=urn:btih:68E65E934B2FCA9A11E0ED31B6745DEA1C4918C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:68E65E934B2FCA9A11E0ED31B6745DEA1C4918C7
 magnet:?xt=urn:btih:1F172B93DD4A4D9E0C233D11D283354B2391863D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:1F172B93DD4A4D9E0C233D11D283354B2391863D
 ```bash
 magnet:?xt=urn:btih:CDD0EFDF485B9C344754BF95093AB024ECF753C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ IC-CAP, или Integrated Circuit Characterization and Analysis Program, явл�
 magnet:?xt=urn:btih:8307441CBF16A14836DD2504F6B383681253F8E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ GOM Player Plus - мультимедийный плеер со множеств�
 ```bash
 magnet:?xt=urn:btih:018ECDDBAAAC03367ACE131191073EA9A797C839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ IceCream Ebook Reader Pro 6.39 [Multi/Ru]
 magnet:?xt=urn:btih:1F55EA7757E4CB959F668C3FA31DC27EF2F33EC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:1F55EA7757E4CB959F668C3FA31DC27EF2F33EC6
 ```bash
 magnet:?xt=urn:btih:9F514E73285780033A9F7251110D22AF14766D52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Kdenlive - бесплатный нелинейный видеоредактор,
 magnet:?xt=urn:btih:A1B8D6431A9722DE26776837BF59B77AA80B81CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Keysight Model Quality Assurance (MQA) - это программное обес�
 ```bash
 magnet:?xt=urn:btih:7D0B7855CCD993CB96EC07F2177483798C49390A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 magnet:?xt=urn:btih:5864270FA8B60F153CFF45FFA95D9373149B3CFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Glary Tracks Eraser - полезный инструмент для защиты 
 ```bash
 magnet:?xt=urn:btih:3ABB79C64FC5312A51A291A1664D07FAC431D297
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ Mozilla Thunderbird –  легкая и безопасная бесплатна
 magnet:?xt=urn:btih:323619C53B3CC4B3F3F9E4D8647ECF1727FC8D6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ Keysight Model Builder Program (MBP) - это программное обесп�
 ```bash
 magnet:?xt=urn:btih:10CB95E8E0EFD980F4000B39B9616A902965077C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ The Hillbilly Moon - Compilation (2023) [MP3|320 Kbps] <Rockabilly>
 magnet:?xt=urn:btih:14F6C83896DD32BB86269B8E5B68142DF641F93D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:14F6C83896DD32BB86269B8E5B68142DF641F93D
 magnet:?xt=urn:btih:7FBB6CD8003C07F12CD3ADC96D5DD45A1D5B8088
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ AndroVid Pro представляет собой простой и удобны�
 ```bash
 magnet:?xt=urn:btih:ACBCBB6E02BBA32786C2E48EB741422197F0A444
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Shadow Empire (2020) [En] (1.27.00/dlc) License GOG
 magnet:?xt=urn:btih:A8F26532B5278F7C9116ADDBD96C5916DD5CD1D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:A8F26532B5278F7C9116ADDBD96C5916DD5CD1D1
 ```bash
 magnet:?xt=urn:btih:0B9C94C506F55EF11B939721FE53C6E0F75913F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Frostpunk 2 открывает новые грани жанра выживани
 magnet:?xt=urn:btih:AEBC9CF86F851755BA395E7D02421892B27A9566
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Songs of Silence погружает игроков в фантастически
 ```bash
 magnet:?xt=urn:btih:E701B6C0CE92F0AEBFBB2849CCAEAD32A9BE97B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:E701B6C0CE92F0AEBFBB2849CCAEAD32A9BE97B2
 magnet:?xt=urn:btih:3AA6C6F06CA52C2F208A73E2CA7434F40CDF0130
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Hordes of Hel - захватывающая игра-рогалик с элеме
 ```bash
 magnet:?xt=urn:btih:0DE0248C292D805EC4457569610E13A2886F207D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Witch's Cauldron - это мрачная история, в которой �
 magnet:?xt=urn:btih:78F85A66E7241DBEB6088C3790D00A6E870B22BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl (2007) [Ru/Multi] (1.10.0.26261) Repack Let'
 ```bash
 magnet:?xt=urn:btih:3C22D8EC8B60F96C573D303ECD8EBA30DFE859DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ S.T.A.L.K.E.R.: Зов Припяти – прямой сиквел к S.T.A.L.K
 magnet:?xt=urn:btih:69943F308EB968677BC1853D94BDDB548C409CE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:362F128BEB3151E842E2B92D08B5637B13797095
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:362F128BEB3151E842E2B92D08B5637B13797095
 magnet:?xt=urn:btih:FDBBA0B6ABBE990F0E3C6CD51DED03C1AA4DA29E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:FDBBA0B6ABBE990F0E3C6CD51DED03C1AA4DA29E
 ```bash
 magnet:?xt=urn:btih:BAD2C4D884FB075C4005B70C5BD01FE54AFE61BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:BAD2C4D884FB075C4005B70C5BD01FE54AFE61BC
 magnet:?xt=urn:btih:AC64D4D9975A74F4E6442EA5E527781786A4C867
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Rebuke — современное семейство шрифтов с засе�
 ```bash
 magnet:?xt=urn:btih:F29B9417CB36BC9BF61B27BCC367D765DEAF7DE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Igorrr - Amen (2025) [FLAC|Lossless|Web-DL|tracks] <Avantgarde Metal, Breakcore,
 magnet:?xt=urn:btih:0A0977958CF03B30F125E382F56B6713E66C426B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Modo — современный шрифт без засечек, сочетаю
 ```bash
 magnet:?xt=urn:btih:414798C93CC86EE1FDCA77A32FE9D5A837F55D83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ Parcels - Loved (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electropop, Funk>
 magnet:?xt=urn:btih:CC6198FF0B2DA8CB12FE0078EE5346F46F618BB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:CC6198FF0B2DA8CB12FE0078EE5346F46F618BB7
 ```bash
 magnet:?xt=urn:btih:CF480BA3D018AED0C1DBF3E9C09CD25299A5D0F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:CF480BA3D018AED0C1DBF3E9C09CD25299A5D0F8
 magnet:?xt=urn:btih:2A969CF46BEB737777DFDA52E60A9CBE9A3381C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:2A969CF46BEB737777DFDA52E60A9CBE9A3381C0
 magnet:?xt=urn:btih:08A49343B3502B03F13A4B09276526041E20A690
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Degitan — высококонтрастный шрифт, вдохновлён�
 ```bash
 magnet:?xt=urn:btih:144906A9407006B2208878AB54DAD61FB53980EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ Novembers Doom - Major Arcana (2025) [MP3|320 Kbps] <Doom Metal, Death Metal>
 magnet:?xt=urn:btih:9453CC8A923345A6EE836EEAD3CFE059F5BFA020
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ Modeselektor - DJ-Kicks: Modeselektor (2025) 2CD [FLAC 16,24/44.1,48|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:E5848E554BCC6CA0889C7BF21FD289390D79FD0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ Chasing Demons - Echoes from the Past (2025) [FLAC|Lossless|WEB-DL|tracks] <Heav
 magnet:?xt=urn:btih:227695AF548611BF680393149F22923C3FB856CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:227695AF548611BF680393149F22923C3FB856CB
 magnet:?xt=urn:btih:D5BA85473191B630406C248924E8A3417B1FF0CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ Evangelion Shin Gekijouban: Q | Evangelion: 3.0 You Can (Not) Redo | Evangelion 
 ```bash
 magnet:?xt=urn:btih:AE5F7AA99845A0EA438C29188570715493CD5430
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

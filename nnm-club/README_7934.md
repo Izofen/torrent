@@ -22,6 +22,8 @@ The Charlie Rouse Band - Cinnamon Flower (1977) 1987, Rykodisc [FLAC|Lossless|tr
 magnet:?xt=urn:btih:CA2400B9F21A2A5A9840647CD125F697C67028C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:CA2400B9F21A2A5A9840647CD125F697C67028C6
 magnet:?xt=urn:btih:D1FCB820CC735A06C671D692FDBF6B07DE8E3E55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Myary 2.1.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:B59ABE5E509275F9EEF9241BA963EB6235CFA369
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ Sarah Lancman - Le pouvoir des mots (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal 
 magnet:?xt=urn:btih:8EDCFCF931B34794F9D4092095A673667C363D4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ Stive Morgan - Compilation (2022) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:F58E0A1006CE4D2ECBFB2D5261F21AFA64C4DA15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:F58E0A1006CE4D2ECBFB2D5261F21AFA64C4DA15
 ```bash
 magnet:?xt=urn:btih:89A9FDE2D8582FA53AC8891E28F02BA25D00664C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +191,8 @@ Atahualpa - Музыка у метро (2016) 2CD [MP3|320 Kbps] <Native America
 magnet:?xt=urn:btih:F5BDF5F38F33D43E4967CA5C37EFE6D66F5D87CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ Ame-iro Cocoa Series: Ame-con!! | Какао цвета дождя: Аме-ко�
 ```bash
 magnet:?xt=urn:btih:1CAD8A480C6C42C35ABB24AFA28E031F7ECFDF6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -231,6 +247,8 @@ Kotipelto - Waiting For The Dawn (2002) [OGG Vorbis|485 Kbps] <Rock, Heavy Metal
 magnet:?xt=urn:btih:35F87D45381E3DF17F8107CC5395FF86BBDBEF81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ magnet:?xt=urn:btih:35F87D45381E3DF17F8107CC5395FF86BBDBEF81
 ```bash
 magnet:?xt=urn:btih:D7E9013564D642F45F29BE52CC8AD9F6C2A3D30F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -282,6 +302,8 @@ $uicideboy$ - YIN YANG TAPES: Winter Season (1989-1990) (2023) [FLAC 24/44.1|Los
 magnet:?xt=urn:btih:7B736CDC9588CE56E5321395A29C173B3E13AE39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ Cascadea 2.0.5 [En]
 magnet:?xt=urn:btih:E5D6F1FA040FA9E922D1124BF9CB22BE3815C0D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ Adobe Prelude - программа для профессиональной оц�
 ```bash
 magnet:?xt=urn:btih:9F67BBA84BEADD52E62ACCE8EB62B530B6F27068
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +383,8 @@ magnet:?xt=urn:btih:9F67BBA84BEADD52E62ACCE8EB62B530B6F27068
 magnet:?xt=urn:btih:9E64F9A3ACB3D2AC3436576497CAB585F4E4E4EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +412,8 @@ magnet:?xt=urn:btih:9E64F9A3ACB3D2AC3436576497CAB585F4E4E4EC
 magnet:?xt=urn:btih:8971BD904D290ACBD1F3E94DC3C7462E021A467E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +437,8 @@ magnet:?xt=urn:btih:8971BD904D290ACBD1F3E94DC3C7462E021A467E
 ```bash
 magnet:?xt=urn:btih:76DAF207F3D33A1080A4F8B7C71328F35585743E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +464,8 @@ magnet:?xt=urn:btih:76DAF207F3D33A1080A4F8B7C71328F35585743E
 magnet:?xt=urn:btih:481F10E5C3C2195555D4684AE3F87935DCE6315F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:0EC7163C4CF6068DE2343D6974B821EA5C8C6143
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +518,8 @@ magnet:?xt=urn:btih:0EC7163C4CF6068DE2343D6974B821EA5C8C6143
 magnet:?xt=urn:btih:CA24D5AE51705089AFED9B4366D47B7F14847C6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ ExpanDrive 7 v7.7.0 [En]
 ```bash
 magnet:?xt=urn:btih:2D2852DF0033F13309F69C0F212520B891EDC7E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +574,8 @@ Muse - Will Of The People (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock
 magnet:?xt=urn:btih:8CDC0776DB76FFFE57771CAE4CEF0A459352ACBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +600,8 @@ magnet:?xt=urn:btih:8CDC0776DB76FFFE57771CAE4CEF0A459352ACBD
 magnet:?xt=urn:btih:57F42DB734E7044801E0DAF8B0B7FCAEAE807FDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:57F42DB734E7044801E0DAF8B0B7FCAEAE807FDE
 ```bash
 magnet:?xt=urn:btih:F9D21C1F013E7BC3656496C61FB1E29485C89728
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +655,8 @@ A3 Nummern 3:00
 magnet:?xt=urn:btih:185DAB655B3FD287507241D596DE1DB6D312785A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +684,8 @@ Kotipelto - Serenity (2007) [OGG Vorbis|484 Kbps] <Rock, Heavy Metal, Power Meta
 magnet:?xt=urn:btih:BDBC3FA8C0270D0B055D29809746A94C88D6467C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ magnet:?xt=urn:btih:BDBC3FA8C0270D0B055D29809746A94C88D6467C
 ```bash
 magnet:?xt=urn:btih:C0052F0BAF4C8E669EE58638EFBD4A5E661AD927
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

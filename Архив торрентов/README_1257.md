@@ -22,6 +22,8 @@ Yate был разработан для людей, которые серьез�
 magnet:?xt=urn:btih:184D5BAD5BBC351AE1DB4E388CC042FFDDAD7A58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ JRiver Media Center — мощный мультимедийный центр, о
 ```bash
 magnet:?xt=urn:btih:4308F1FED9A32A64DD218C105C3FBCF6B56C2675
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ AIDA64 - является мощным средством для идентиф�
 magnet:?xt=urn:btih:7FA73711907AB1874F59DA6D6D675D563EF5BF89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:1D28CB563BB13316C2AF46D93E3A2E5BA1539B2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Permute - очень простой видео конвертер с миним�
 magnet:?xt=urn:btih:FA8C1D4FA31A79F1E0B626E021C902DDC2B3F086
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Hot Wheels Unleashed (2021) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:684381E5C45B99C6433F84E544D92435579733A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Chromium – веб-браузер с открытым исходным кодо
 magnet:?xt=urn:btih:B1BF9C54784C650E4537D9C505938BC5E048B543
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Seal 1.10.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E7C4FF9F6DF8F917EB0B2A7D9937600480568439
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ OpenNumismat является удобным и надежным приложе�
 magnet:?xt=urn:btih:4C694ABB746DA593BF0BCF273B6FF39E82D0744F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ UltimateDefrag - дефрагментатор и оптимизатор разм
 ```bash
 magnet:?xt=urn:btih:4A2F8C60119A61E7A5CF75A5CC6077F8C10FE1BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Any Video Converter Ultimate - предоставляет пользовател
 magnet:?xt=urn:btih:501D183ECC2D65BC53159CC078BF161ADE9ADDA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:B2C9953C97541562F28565E9AAE1C82CC2E52E2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Listen Audiobook Player v5.2.0 (977) Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:29172A18F2E4A34278BDE1E48134D0B08512F71C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ InShot - Мощный видеоредактор и фоторедактор н�
 ```bash
 magnet:?xt=urn:btih:FDAE500B828C7AA9359AF1858D37BD50582BACBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ VueScan является приложением для работы со ска�
 magnet:?xt=urn:btih:A0D2010872DC66F117BEDF98129020944206B239
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:A0B2D6855F4B66D6F166313C67AAA3B04A0688F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:821F3F9B15C7E72D96504F1050371EDD608D3FFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ ZWCAD 2023 SP2 Professional [Ru]
 magnet:?xt=urn:btih:35EF435DD166A5A2895BA2F66D1B7FD3BFEED952
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Tekla Structures - комплексное решение, которое поз�
 ```bash
 magnet:?xt=urn:btih:020A256AF70DD03597D124FCA4F0E1BAE29A2F0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ CloudMounter - это централизованный сервис, котор�
 magnet:?xt=urn:btih:F83769DE0C0EBBF2B38364EB77A89962CAA03F15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ XnView Shell Extension 4.1.6  + Standalone  [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A22C23119A384342962D456522F738464A1BB1AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Nik Collection – это наиболее полная коллекция пл�
 magnet:?xt=urn:btih:4933F4E445629F530255BA4026107BFFB3881EA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ AMD Radeon Software Adrenalin Edition представляет собой нов
 ```bash
 magnet:?xt=urn:btih:20EF49D619D60C4FAF403242A10B65AD10AE5446
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:AD2A43E2A2823CC2C91F9162998DF7F45B0E0B5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ HP Service Pack for ProLiant (SPP) 2020.09.0 [Multi]
 magnet:?xt=urn:btih:806D4ED36883F439D09A533CA6B29CDB2FE3A854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Seal 1.11.0-beta.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E2B75535F7BCE90132949D2AD3E22E0D8F5EE07B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

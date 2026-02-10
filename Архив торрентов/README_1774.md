@@ -19,6 +19,8 @@ AIMP – проигрыватель, включающий в себя множе
 magnet:?xt=urn:btih:E43CD3667F09185BA339506E5061B4FC06106ED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ GoodNotes 5 v5.9.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:49735200FDC89962868D5051B4AB3091AE019366
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Christopher Lawrence - Un-Hooked: The Hook Sessions (2004) [MP3|320 Kbps] <Tranc
 magnet:?xt=urn:btih:843CCA91A0118B9AC73506777F248B84AFAC2008
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Perfectly Clear WorkBench позволяет всего за пару клико
 ```bash
 magnet:?xt=urn:btih:0E989F23F7327DD9FAD7A0DF6BF2953F47A592E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ VA - Private Room - The Winter Lounge Session (2016) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:5E70B1E8F1C7F7B7B7EE7193FBA6B11C5C1BCF07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ VA - Emotions (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:CC17D1F72272E51A5788A8F9FEDAFEB4BCB6CA05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ MediaInfoXP - это проект с открытым исходным кодо�
 magnet:?xt=urn:btih:4A986CC6BE2AAD102557609431C650F1C3D2666B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ Hookshot - позволяет привязывать окна с помощью 
 ```bash
 magnet:?xt=urn:btih:66F8C0E72BBCF7716AC8858C38640AF865695ED4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ StaxRip - инструмент для кодирования видео "все-
 magnet:?xt=urn:btih:9276B787A885C412405564843E41B8B98F5C68D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ Opera 97.0.4719.63 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:A06DC9244726CCA0E6C358C8E03CE07A8C92D5FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:A3FEB83FF1E0E5CB983FBCD0B3C93EFFE4D210BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ Translatium - мощное приложение для перевода для m
 ```bash
 magnet:?xt=urn:btih:0028BBE74742664D73405D0AAD5E344617AD54FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ File Cabinet Pro  - менеджер документов из строки ме
 magnet:?xt=urn:btih:499C53BAD5C0D35B0D12774416397E0AD1116CC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:FE4854FD0DBE35B11F4681DCD4D038FBEEDEF934
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ Wattagio информирует вас о текущем состоянии ба
 magnet:?xt=urn:btih:C2FCECA722E02125BEDFEFC15132E063409B6558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ OCCT 12.0.0.b5 Portable [En]
 ```bash
 magnet:?xt=urn:btih:B1B6E1D35F00A1A14D0126CF8522199EC60C103A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ Complete Internet Repair 8.1.3.5219 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:AFB077E7C7DD8238E70170B1B7808C1F78F12EF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 ```bash
 magnet:?xt=urn:btih:E3B6BD5B470DDDBA68B1AD717D0417AB38F75537
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ Sublime Merge - клиент системы контроля версий, ко�
 magnet:?xt=urn:btih:20FEB6D02A3059DB8E404062C44BFDE3504CD965
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ Microsoft Edge – кроссплатформенный веб-браузер н
 magnet:?xt=urn:btih:A3661825E90B0D62E682888DFA9E33B2E153C727
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ O&O DiskImage позволяет создавать резервные копи�
 ```bash
 magnet:?xt=urn:btih:21BB8D97F68ABEF4EFE2AB00AE31B8151F317D6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ rekordbox – профессиональная DJ платформа, в кот�
 magnet:?xt=urn:btih:797507D58B52D9360CF5A47066026A224183A90A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ WinNTSetup (Windows Setup Tool) – программа для создания �
 magnet:?xt=urn:btih:0E768B24967F4FED7062244F17EE8F0E6110658D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:8AEE2767897425CD0A8AF7F2E4D5F865DD9BF801
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ Mosaic представляет собой мощный оконный мене�
 magnet:?xt=urn:btih:1388C37958B70BC8EBB252E53A9DCA3A3CBDAC02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ XYplorer – удобный мультивкладочный файловый м
 ```bash
 magnet:?xt=urn:btih:4D181EA2E423048501BCA99F4B6C2CA93C36029F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

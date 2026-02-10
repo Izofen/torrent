@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A00F0211799CD70514AE2C438A3CA6654CCEE396
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:A00F0211799CD70514AE2C438A3CA6654CCEE396
 ```bash
 magnet:?xt=urn:btih:63B4370FF968FA1C374F9E7CF1C1937A4633A8BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Udemy, El Farouk Yasser и др. | Python REST APIs with Flask, Docker, MongoDB,
 magnet:?xt=urn:btih:F860775EDC2DC4191CA086E8E563E2F4E3BC36D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ FastAPI - один из самых интересных новых веб-фре
 ```bash
 magnet:?xt=urn:btih:9071212C748B222C14A3C8BFC1FD47CDCB1CE326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Udemy, 365 Careers | Курс Data Science 2020: Bootcamp Data Science / The Dat
 magnet:?xt=urn:btih:2AD8B1B1A2B43DE3C8A1E4F953B0CF664183DC73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Udemy, Stephen Grider | Современный React и Redux [2020 Update] / Mo
 ```bash
 magnet:?xt=urn:btih:FE85534B6865F20B5099FDDE1F3F8143254ABC1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ Udemy, Soledad Galli | Deployment of Machine Learning Models (2020) PCRec [En / 
 magnet:?xt=urn:btih:AA70C66AE9528C99906035EB59DD9C8BF8804515
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ Udemy, Заур Трегулов | Spring для начинающих (2020) PCR
 ```bash
 magnet:?xt=urn:btih:500E677B6714E83601D75346B1D5A16AD7BED56F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ Data Scientist был назван работой номер один на Glass
 magnet:?xt=urn:btih:4D4CAA72BEA144143920EF841A602D2A5DF20B2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ Udemy, Zaid Sabih | The Ultimate Dark Web, Anonymity, Privacy & Security Course 
 ```bash
 magnet:?xt=urn:btih:C4391393A1EE8BE32DDB9D8D54D495F2AADBA44F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ Geekbrains, Денис Катков и др. | Продуктовая анали
 magnet:?xt=urn:btih:F25D9A4F7D37AB4C61B104C2D04D8B15E5A02CFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ Code w / Node - это курс для веб-разработчиков, кот
 ```bash
 magnet:?xt=urn:btih:3BCC64A195B5EAC3F4E7B9A4F9261FB24BE5EB4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -330,6 +354,8 @@ Udemy, Thomas Wiesner | The Complete Docker Bootcamp for Web Developers (2020) P
 magnet:?xt=urn:btih:BDCF5009152756950B46672231D09EE2B0BD2E0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ Udemy, Maximilian Schwarzmüller | Angular - Полное Руководство
 magnet:?xt=urn:btih:061410172DC38FBAC7373CBD75F44786F99010F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +408,8 @@ Udemy, Development Island (UK) | The Complete 2020 Web Development Course - Buil
 ```bash
 magnet:?xt=urn:btih:B2AB0748FD4696990C3784576FAA2E9CA928DC6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ Laravel стал одним из самых популярных, если не 
 magnet:?xt=urn:btih:EC16782D22E51FA2E3E5637CA6F5E9057E28E830
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ Udemy, Edwin Diaz и др. | PHP for Beginners - Become a PHP Master - CMS Proje
 ```bash
 magnet:?xt=urn:btih:B5B0A37E8A5D417F1A787C0FD019D3EEDB195482
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +491,8 @@ Udemy, Srinivas Vanamala | The Complete 2020 PHP Full Stack Web Developer Bootca
 magnet:?xt=urn:btih:61D5A6DAAA0C7264652F36D0FA580065C24C25A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ magnet:?xt=urn:btih:61D5A6DAAA0C7264652F36D0FA580065C24C25A7
 ```bash
 magnet:?xt=urn:btih:7F9EA4F2987D621B699067087F8AA810FC92FF11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +545,8 @@ Udemy, Ben Tristem и др. | Unreal Engine C++ Developer: Learn C++ and Make Vi
 ```bash
 magnet:?xt=urn:btih:49136C7A30C4FBBB148E572DEBBEB9D4DBE0F1AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +575,8 @@ Udemy, Maximilian Schwarzmüller | Flutter & Dart - The Complete Guide [2021 Edi
 magnet:?xt=urn:btih:95ACACBBC079DACA4822366D7581BFA01128D65B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +602,8 @@ English Thesaurus - программа, в которой пользовател
 ```bash
 magnet:?xt=urn:btih:F785AB422DCF99F1B49BB29D439AF8CDBB6EBFFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +632,8 @@ The StationX Cyber Security School, Aleksa Tamburkovski | Complete Python 3 Ethi
 magnet:?xt=urn:btih:1B9F0BB4E8436D60178ABDD6FC4CEBFC72DCC446
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +661,8 @@ magnet:?xt=urn:btih:1B9F0BB4E8436D60178ABDD6FC4CEBFC72DCC446
 magnet:?xt=urn:btih:903A4EF2E57F59732A8B026FB21399BFFBD485B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +687,8 @@ Udemy, Hamza Sheikh | Network Ethical Hacking for beginners (Kali 2020 - Hands-o
 ```bash
 magnet:?xt=urn:btih:96EA043E315167B902C30C23EA07E8156B72AEE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -665,6 +715,8 @@ Udemy, Samuel Boylan-Sajous | Deep Learning Course with Flutter & Python - Build
 ```bash
 magnet:?xt=urn:btih:53BDD581BB70B8A0E6A4C3CDD26EC21E1030807A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

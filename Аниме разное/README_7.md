@@ -19,6 +19,8 @@ Kimi no Suizou o Tabetai | Kimi no Suizou wo Tabetai | I Want to Eat Your Pancre
 magnet:?xt=urn:btih:ACB7944987EB96FB057CD6069D04281191C57901
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Cowboy Bebop: Tengoku no Tobira | Cowboy Bebop: Knockin' on Heaven's Door | Ко
 magnet:?xt=urn:btih:3512932686EBCF1F47FD3B589B9E8E2C1EA52A54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Evangelion Shin Gekijouban: Q | Evangelion: 3.33 You Can (Not) Redo | Еванг
 ```bash
 magnet:?xt=urn:btih:B5DCFCD88BBBC631C73BD8304AFB5FF9E07F15A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Hatsune Miku Live Party 2013 in Kansai (2013) / Живой концерт Хац
 magnet:?xt=urn:btih:F7F6D981BE380CD549603FB825BAF40C23D9023C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Mimi o Sumaseba | Whisper of the Heart | Шёпот сердца [1995, Movie] B
 ```bash
 magnet:?xt=urn:btih:510ABEA5A117F52D6377C33BB252596E7B541F53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Sekai no Yami Zukan / The World Yamizukan / Тёмная книга мира [20
 magnet:?xt=urn:btih:2E1CD2894212252945EA38026216FF585B379A2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:2E1CD2894212252945EA38026216FF585B379A2D
 ```bash
 magnet:?xt=urn:btih:BA2D72C7E8F2C1E4CB116EAA5C2D4CDCBA0CA37B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Hinako Note / Дневник Хинако [2017, TV, 12] WEB-DL 720p HS
 magnet:?xt=urn:btih:A61DF8ED38E24F1C90E8759FE0317AFE70286D76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Ergo Proxy / Эрго Прокси [2006, TV, 23 из 23] BDRemux 1080p raw+eng+
 magnet:?xt=urn:btih:1D59903E208F3DCB731A96BBF2F29ACE2B78B692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Mahou Shoujo Tokushusen Asuka | Аска: Волшебница специаль�
 ```bash
 magnet:?xt=urn:btih:2AB9A022B3695D1244F4C3E7A4F533EC3434765C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Spring 2019 Anime Preview | Превью аниме сезона весна 2019
 magnet:?xt=urn:btih:5C7511E581871A8E36CFBFD421AA03CCAA294455
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Sakasama no Patema / Patema Inverted / Патэма наоборот [2013, Movi
 ```bash
 magnet:?xt=urn:btih:185B883C4336CFA13E69FD99FAAC63A444840BCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Kenpuu Denki Berserk(   Читать дальше...   )
 magnet:?xt=urn:btih:981A1A3A413E3F39FDF7E521BBD23834659A61DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Princess Army: Wedding Combat / Принцесса Арми: Свадебный 
 ```bash
 magnet:?xt=urn:btih:8A3A9983EEA38D101BD3C4CE738955C6A1A3592C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Juubee Ninpuuchou | Ninja Scroll | Манускрипт ниндзя [1993, Movi
 magnet:?xt=urn:btih:C2182D654EF5E2962B82116D7E2973A740B1178F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Riding Bean | Боб на колесах [1989, OVA] BDRemux 1080p raw+rus
 ```bash
 magnet:?xt=urn:btih:5E0E20EAE783EC0A45F94BA3810FCBA347D82EDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ Handmade Anime / Аниме руками отаку [2010, Другое, 97 из
 magnet:?xt=urn:btih:07BD28776D6167A2DB15F91A292B90B5019B5699
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Spirit Pact: Yomi no Chigiri | Spiritpact 2 | Контракт душ - 2 [2018,
 magnet:?xt=urn:btih:519A29D0045EE45E5CE2A742EA7E4270400177EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Ano Hi Mita Hana no Namae o Bokutachi wa Mada Shiranai | Anohana: The Flower We 
 ```bash
 magnet:?xt=urn:btih:97BD24E044FF70E7C01FD062C428838E2E0DCF2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ Violet Evergarden | Виолетта Эвергарден [2018, TV, 13 + SP] BD
 magnet:?xt=urn:btih:1E766EC87C7203C03D7638259963668FA5857F72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Space Fantasia 2001 Yoru Monogatari / Space Fantasia 2001 Nights / Космич�
 ```bash
 magnet:?xt=urn:btih:0AB1CB7D6FAD72EEEE8575535943D9EDEDD6FBB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ TV-1 (Aleks Kilka), (AniFilm), (AniLibria), (Cuba77) - внешними файл
 magnet:?xt=urn:btih:D6905684E5C62AF7714C5EF2280CDB345F3E93E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ Bungo Stray Dogs: Dead Apple | Bungou Stray Dogs: Dead Apple | Великий и
 ```bash
 magnet:?xt=urn:btih:A969F2CFE5C777EE3B143ACE1C3A6D06A4251EA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ Dou Shen Ji | Ancient Girl's-Fram | Бог войны [2021, ONA, 6 из 12] WEB
 magnet:?xt=urn:btih:CC5F9E151F9D94BA09A18BB61A72710CF72AA99E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ Death Parade / Парад смерти [2015, TV, 12 эп. + 1 OVA] BDRemux 1080
 magnet:?xt=urn:btih:CDD9F3FC4A105412B9644B0909BCA124D56BE926
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ Hataraku Maou-sama! / The Devil is a Part-Timer! / Повелитель Тьмы
 ```bash
 magnet:?xt=urn:btih:5ED8D4F9BEF23434FDDF532F22360F43A5D18959
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

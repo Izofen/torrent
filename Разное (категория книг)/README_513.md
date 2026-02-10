@@ -1,3 +1,29 @@
+###  Публикация: 1014060   (776638) от 06.05.2016
+
+Алекс Новак | Книга, которой нет. Как бросить беличье колесо и стряхнуть пыль со своей мечты (2015) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776638.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Книга, которой нет» – это не художественное произведение, автор которого борется за признание, овации, премии и прочую блестящую мишуру. У этой книги другая цель – сделать так, чтобы в мире стало меньше серых жизней. Чтобы незаурядные люди вспоминали, что они талантливы, и начинали творить. Чтобы те, кто отчаялся, получили поддержку и увидели свет в конце тоннеля. (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9340718E6D0841F0BECCF5D058BDDCAE5B5CD5A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014031   (776681) от 06.05.2016
 
 Дэвид Шварц | Искусство мыслить масштабно (2008) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:37C8F3C44202A44E998C3AECE9C3A02CD1EDC451
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:37C8F3C44202A44E998C3AECE9C3A02CD1EDC451
 magnet:?xt=urn:btih:FA102134DA9495656E585F3D5A28B886827437D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:FA102134DA9495656E585F3D5A28B886827437D0
 ```bash
 magnet:?xt=urn:btih:2694A209A1DDB7B99D3F88B87B1C7B9CC197477E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:2694A209A1DDB7B99D3F88B87B1C7B9CC197477E
 magnet:?xt=urn:btih:D613DCD65CEE6A364F5B8B69BAB7638FDFA6175F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:D613DCD65CEE6A364F5B8B69BAB7638FDFA6175F
 ```bash
 magnet:?xt=urn:btih:2991A9432083862AA7DD3170FC7E19B5A36E604F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:2991A9432083862AA7DD3170FC7E19B5A36E604F
 magnet:?xt=urn:btih:A5F6FD9713E216500BE15A76EBE621C91DB5D930
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:A5F6FD9713E216500BE15A76EBE621C91DB5D930
 ```bash
 magnet:?xt=urn:btih:32B98BCEBBAC2376C1A768922DBB8D7D47000F76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:32B98BCEBBAC2376C1A768922DBB8D7D47000F76
 magnet:?xt=urn:btih:9B8DCB6A798C826D77814CAD951FD129CDD2237D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:9B8DCB6A798C826D77814CAD951FD129CDD2237D
 magnet:?xt=urn:btih:99996BACCA9DAFA3A172400B4A1A11C482C3B038
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +278,8 @@ magnet:?xt=urn:btih:99996BACCA9DAFA3A172400B4A1A11C482C3B038
 ```bash
 magnet:?xt=urn:btih:3995E40162A1FC646DAC07EAD4FF946BADB4E3A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:3995E40162A1FC646DAC07EAD4FF946BADB4E3A1
 magnet:?xt=urn:btih:5839CF53DB4228059B57FA70DE4C7F4542963430
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:5839CF53DB4228059B57FA70DE4C7F4542963430
 ```bash
 magnet:?xt=urn:btih:243C2CB953385F05A7B23FF7622A12E55E3966A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:243C2CB953385F05A7B23FF7622A12E55E3966A4
 magnet:?xt=urn:btih:4304B31FCCA694A487540E6B958A13C21EFEFDE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:4304B31FCCA694A487540E6B958A13C21EFEFDE5
 ```bash
 magnet:?xt=urn:btih:98F6D2775E7738A3FAF83554772F06E3ABC0812B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:98F6D2775E7738A3FAF83554772F06E3ABC0812B
 magnet:?xt=urn:btih:DDA23594B41A5876DF6A253B2E3C4E9B0A78544C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:DDA23594B41A5876DF6A253B2E3C4E9B0A78544C
 ```bash
 magnet:?xt=urn:btih:F529A430B02A9CC84E602F02C943D7ADF9A4CD4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:F529A430B02A9CC84E602F02C943D7ADF9A4CD4C
 magnet:?xt=urn:btih:79BD093068196568FF35AF51D1EDD9AEB05F4DA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:79BD093068196568FF35AF51D1EDD9AEB05F4DA9
 ```bash
 magnet:?xt=urn:btih:F67D3CDF70C35B79B7016FE790A9E6E2524296FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:F67D3CDF70C35B79B7016FE790A9E6E2524296FD
 ```bash
 magnet:?xt=urn:btih:E246BECE823E038908A5A9C5EF05C313630D0E16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:E246BECE823E038908A5A9C5EF05C313630D0E16
 magnet:?xt=urn:btih:587DCAEDB410B327D1BC2FB1C1C8A20A3AA41948
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:587DCAEDB410B327D1BC2FB1C1C8A20A3AA41948
 ```bash
 magnet:?xt=urn:btih:E5C2FC10BBF678092A9ACFEA0AE0FBCFD3C4BB94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:E5C2FC10BBF678092A9ACFEA0AE0FBCFD3C4BB94
 magnet:?xt=urn:btih:BF1E24E38A346B4013C5B15B075BCF8F13CAE465
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:BF1E24E38A346B4013C5B15B075BCF8F13CAE465
 ```bash
 magnet:?xt=urn:btih:C244BE8E33B774544DDD2931A482C47898037259
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:C244BE8E33B774544DDD2931A482C47898037259
 magnet:?xt=urn:btih:8E65C44951975F7BFF5F83A19691B77593C59A37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,32 +681,7 @@ magnet:?xt=urn:btih:8E65C44951975F7BFF5F83A19691B77593C59A37
 magnet:?xt=urn:btih:E8015FECA7FAECBBE72C533FCB10E630AEC0D9A8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211191   (777819) от 06.03.2018
-
-А. Я. Вышинский и др. | Шпионы и диверсанты за работой (1937) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777819.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издательства:
-
-Шпионаж и диверсии характерны для взаимоотношений всех буржуазных государств. Совершенно исключительный — по своему размаху изощренности и подлости — характер носит работа разведывательных органов фашистских государств.
-(   Читать дальше...   )Жанр: История, политология, экономика, правоведение, криминалистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C23A26DC1EBDFCF515CE28F7F88A22119E31674
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

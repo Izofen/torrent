@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:071F2A7F04CC9A208B570A97F1C1EFCB62F8AD38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:071F2A7F04CC9A208B570A97F1C1EFCB62F8AD38
 magnet:?xt=urn:btih:4FF969FB39FCB6014FD8C6B9139A2D3C98365EA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Age of Empires IV (4) (2021) [Ru/En] (13.0.4343.0/dlc) Repack seleZen [Anniversa
 ```bash
 magnet:?xt=urn:btih:713508954C3F3187B6787A00F8D5C2D7CAD8515E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:713508954C3F3187B6787A00F8D5C2D7CAD8515E
 magnet:?xt=urn:btih:BB78AE9E1F736A82585715F7626F937042CA6489
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ PROGRESS ORDERS (2025) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:F751596FA2970DDAB64649F1DCD3BF30619097C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ VA - Весна на Love Radio (2025) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:7C5DB04530E7807FCCF568A7E8772E43BE0FF425
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:7C5DB04530E7807FCCF568A7E8772E43BE0FF425
 magnet:?xt=urn:btih:6DD54473F9C2852E353BB5C914629A12CE39887C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:6DD54473F9C2852E353BB5C914629A12CE39887C
 ```bash
 magnet:?xt=urn:btih:04FBE28619C390558CFE0AF6E486DE35683285DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Timer by WolfEywa – таймер-часы.
 magnet:?xt=urn:btih:ABBD5060F676C4A56C5759A0A4735B150C283FF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ MyLanViewer — программа для сканирования и монит
 magnet:?xt=urn:btih:5760CC19BCA14C36A70F5123642C0D72A21AE54C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:5760CC19BCA14C36A70F5123642C0D72A21AE54C
 ```bash
 magnet:?xt=urn:btih:DA3C612FC5A4EA2BB28A31211D584802B6624F66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:DA3C612FC5A4EA2BB28A31211D584802B6624F66
 magnet:?xt=urn:btih:E66300A8D83A2941364909BC012231CBEDFB14A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ Data mesh в действии | Я. Майхжак, С. Балноян, М. Си
 ```bash
 magnet:?xt=urn:btih:CF1C0093476DA2E7052644A9C49BADA957AEBB6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:CF1C0093476DA2E7052644A9C49BADA957AEBB6A
 magnet:?xt=urn:btih:58C1FC12815C8B1CA161AC3D52D489B7392FD0DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:58C1FC12815C8B1CA161AC3D52D489B7392FD0DC
 ```bash
 magnet:?xt=urn:btih:6F4F20E92D8E34835B7D2611C08977F34F4F9C7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ Xplorer2 Ultimate - профессиональная версия небольш
 magnet:?xt=urn:btih:9F4283ED84831AABEF91B9D5661D08252EB028EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ Fate: Reawakened - это сборник из четырёх экшен-РПГ, 
 ```bash
 magnet:?xt=urn:btih:4603B9E589CD3E3ED09A21DBF9E7BBD6F65F48AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ LEGO City Undercover (2017) [Ru/Multi] (1.0) License GOG
 magnet:?xt=urn:btih:CB95982D6A28E2B85EC27DE3F62CBE7869B8AE17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ Rogue Loops представляет собой экшен, посвященны
 ```bash
 magnet:?xt=urn:btih:F45F6422F16F4915EB0D9835A7AC0D467FA0E6C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ Rainmeter - утилита для мониторинга ресурсов ком
 magnet:?xt=urn:btih:1FBA28F91C0B8818EEAF783342EDED96D7403917
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:1FBA28F91C0B8818EEAF783342EDED96D7403917
 ```bash
 magnet:?xt=urn:btih:AA5E7136C8ED310CDD01DBF521AE4B82C9A15929
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:AA5E7136C8ED310CDD01DBF521AE4B82C9A15929
 magnet:?xt=urn:btih:CEF8B4B50E07C7D129402AB1A4854F25E27489E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Wigmund - изометрическое приключение, выполнен�
 ```bash
 magnet:?xt=urn:btih:44EF8A15CD35AECD11ED45E46345831B6EDFDD14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:44EF8A15CD35AECD11ED45E46345831B6EDFDD14
 magnet:?xt=urn:btih:592497B8A5B12B19201331A0031C89FA2BD99BF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Field of Glory 2: Medieval - пошаговая стратегия, перено
 magnet:?xt=urn:btih:5B71A45A229AC32C547F53A48FF8A11E404EA299
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Driftmoon (2013) [En] (2.0.2) License GOG [Enhanced Edition]
 ```bash
 magnet:?xt=urn:btih:9A9909CA94281F11F9B01D5C4BA462D49A7262EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

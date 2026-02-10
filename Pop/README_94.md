@@ -22,6 +22,8 @@ Various - The Best Of Duets (2000) 4 CD [OGG Vorbis|480 Kbps] <Pop>
 magnet:?xt=urn:btih:7C2690327DF9003D229F51A0C26B8FD9A063CDCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Michael Jackson - Bad (1987) [FLAC|Lossless|tracks + .cue] <Pop Rock, Ballad, Di
 ```bash
 magnet:?xt=urn:btih:5B6055395D5DBDFE641A75A22B08D65DAC07BA7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Sarah Brightman - France (2020) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossov
 magnet:?xt=urn:btih:A66676E4E7242052D865328271580366FEEAC0B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Emin - 8 в падении (2015) [MP3|320 кб/с] <Pop>
 magnet:?xt=urn:btih:C959E1AD67F21C785DD8C6BE2C4F3CF31D29EA39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ CD - 4 - Городской романс(   Читать дальше...   )Жа
 ```bash
 magnet:?xt=urn:btih:409C696071B6498343FC0535280D4163291A1461
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +173,8 @@ Tina Turner - The Collected Recordings - Sixties To Nineties [3CD Box Set] (1994
 magnet:?xt=urn:btih:64BD959B68E06B01E766A179BBD63F410A3E1466
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +201,8 @@ Sandra - Fading Shades (1995) [FLAC|Lossless|image + .cue] <Pop, Europop>
 ```bash
 magnet:?xt=urn:btih:3F3E61E505BF79CDF49BB403ECF2C9F53ADD0D2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +231,8 @@ Annie Lennox - Diva (1992) Reissue, 2007, BMG Japan [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:C6EFD7C568AF9C2FAB5A20C0E684C84FD348C9B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +259,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:7D4954054A562998534342B892B6DA67C66A844F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +289,8 @@ Electronic System - Disco Machine (1977) Reissue, 2004, Musique Belgique Archive
 magnet:?xt=urn:btih:1DCB1A43E24D26F7ACFD2EB6734C4932BA10103C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +317,8 @@ Mo-Do - Was Ist Das? (1995) [FLAC|Lossless|tracks + .cue] <Eurodance>
 ```bash
 magnet:?xt=urn:btih:2C3FA5C52B8E390CA097A86D15649BF455D24D07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +347,8 @@ Dan Lacksman - полное имя Daniel Pierre Lanckmans. Известен п�
 magnet:?xt=urn:btih:ADD3D07FF01CD6056EE130124460EC80EA9F5F56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +375,8 @@ magnet:?xt=urn:btih:ADD3D07FF01CD6056EE130124460EC80EA9F5F56
 ```bash
 magnet:?xt=urn:btih:744CA0E9D1CBED8B03C7153404CB11EDD59BF125
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +405,8 @@ VA - Die Hit Rekorde Champions der 90er (2016) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:4A62ECA499FC10DBC00795884CF77038F77FA681
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +433,8 @@ Drezden - Эдельвейс (2019) [MP3|320 Kbps] <Pop, Electronic>
 ```bash
 magnet:?xt=urn:btih:734EA067E7536DCAD292E3885913FBE07DBC454B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +463,8 @@ Pussycat - Unreleased Demos 1983 (2023) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:2E70B3E30302043D644BF249B1161A1AD4A75AE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +489,8 @@ Digital Emotion - You'll Be Mine / Run Away (2019) Single [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:BAF3498B22D854DB11411E904B8EE87A6CB2A3DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +519,8 @@ Mylene Farmer - Greatest Hits (2013) 2 CD, Unofficial Release [OGG Vorbis|480 Kb
 magnet:?xt=urn:btih:9EBC6AC7CAD46E73F11278CC61555099D20A5C83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +547,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:17793171DBA3097B03B4AB687766AAB79D2FE7BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +577,8 @@ Paradise Express - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk/Sou
 magnet:?xt=urn:btih:7F14A0A6CD964F697F7979753166F1CE6FBEDBDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +605,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:514A2A782528577F937A475D891EB5E99B363A8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +635,8 @@ magnet:?xt=urn:btih:514A2A782528577F937A475D891EB5E99B363A8E
 magnet:?xt=urn:btih:07EA34BEFCFBF825AA44AF8493AD17827DAC1DFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +663,8 @@ Bee Gees - How Can You Mend A Broken Heart (2020) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:E19FD94C1AF3580187E303D2581D13B973066B20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +693,8 @@ A-Ha - True North (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Pop-Rock>
 magnet:?xt=urn:btih:44633621C660E46D0783D307386F342ECD1A53C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -674,6 +722,8 @@ Shalamar (Шаламар) - американская музыкальная гр
 magnet:?xt=urn:btih:D5EB2B6FFC391D6471F0DEE29C048C78384A820B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -700,6 +750,8 @@ Savage - Love And Rain (Remixes) (2020) 2CD [FLAC|Lossless|tracks + .cue] <Elect
 ```bash
 magnet:?xt=urn:btih:CC74ED76C2F5E0E45E04869AB74B2A6981AF7390
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

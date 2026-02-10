@@ -1,3 +1,29 @@
+###  Публикация: 1286426   (711150) от 03.03.2019
+
+Алексей Осипов | Жизнь с Евангелием. Комментарии к Евангелию от Матфея (2019) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711150.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Жизнь с Евангелием. Комментарии к Евангелию от Матфея» — уникальная книга. Как говорит ее автор Алексей Ильич Осипов, войти в Церковь — значит жить по евангельским заповедям. И вся святоотеческая традиция двух тысячелетий — осмысление этой жизни, жизни с Евангелием. Эту книгу от многих других отличают ясность и точность изложения. Живым, современным языком профессор (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D6C9BFBDAE9EC9F06511953594407BD06186C34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286542   (711179) от 03.03.2019
 
 Фома Кемпийский | Книга о Христове подражании (1647) [PDF]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:0B3E5DF9BDD631B3EE6D9C2DB6B2F71908B06221
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:0B3E5DF9BDD631B3EE6D9C2DB6B2F71908B06221
 ```bash
 magnet:?xt=urn:btih:BCD7F9F0EC87049BC03E7879E71DCBB26AD92067
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:BCD7F9F0EC87049BC03E7879E71DCBB26AD92067
 magnet:?xt=urn:btih:6EEA7D5FDD5AC4F074C92CE87419978C0B1103E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:6EEA7D5FDD5AC4F074C92CE87419978C0B1103E0
 ```bash
 magnet:?xt=urn:btih:26DB5A09BE1D7253AE255A76630C40C5435F7756
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:26DB5A09BE1D7253AE255A76630C40C5435F7756
 magnet:?xt=urn:btih:01C6A029315611DD9524441A11DD7F1DDCA2BFBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:01C6A029315611DD9524441A11DD7F1DDCA2BFBE
 magnet:?xt=urn:btih:9EEBC080A1CBEB3E44DE80FE98C3679E2C585D55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:9EEBC080A1CBEB3E44DE80FE98C3679E2C585D55
 ```bash
 magnet:?xt=urn:btih:956B6D127A1C1294D4F2047253678EC4D1675018
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +234,8 @@ magnet:?xt=urn:btih:956B6D127A1C1294D4F2047253678EC4D1675018
 magnet:?xt=urn:btih:216930259D842A64659A648293B63402609B275A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +261,8 @@ magnet:?xt=urn:btih:216930259D842A64659A648293B63402609B275A
 ```bash
 magnet:?xt=urn:btih:B3B9D9CBD256B6CF25B57C3B6AA022EDA5416226
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +291,8 @@ magnet:?xt=urn:btih:B3B9D9CBD256B6CF25B57C3B6AA022EDA5416226
 magnet:?xt=urn:btih:8F602455D4B1193B28E795476E89142FD32B409C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +316,8 @@ magnet:?xt=urn:btih:8F602455D4B1193B28E795476E89142FD32B409C
 ```bash
 magnet:?xt=urn:btih:C214A80C7E170E65B0787C136587DD9BCB716ADA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +345,8 @@ magnet:?xt=urn:btih:C214A80C7E170E65B0787C136587DD9BCB716ADA
 magnet:?xt=urn:btih:D2F1DEF989C1EB57706705BD21A4C44E4EAEEF70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +370,8 @@ magnet:?xt=urn:btih:D2F1DEF989C1EB57706705BD21A4C44E4EAEEF70
 ```bash
 magnet:?xt=urn:btih:F0374281A242CC940B88FB16A251263ED1507EAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +397,8 @@ magnet:?xt=urn:btih:F0374281A242CC940B88FB16A251263ED1507EAC
 magnet:?xt=urn:btih:26618611323906DDD131F59723B3911E4A6C1FC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +422,8 @@ magnet:?xt=urn:btih:26618611323906DDD131F59723B3911E4A6C1FC3
 ```bash
 magnet:?xt=urn:btih:07D0C804737E5137F78403AAA7B5CED440B8B014
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +449,8 @@ magnet:?xt=urn:btih:07D0C804737E5137F78403AAA7B5CED440B8B014
 magnet:?xt=urn:btih:D64BD0C74C6F97BFD8286CDB5F6FCCC1602A05DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +474,8 @@ magnet:?xt=urn:btih:D64BD0C74C6F97BFD8286CDB5F6FCCC1602A05DD
 ```bash
 magnet:?xt=urn:btih:80E7EDC8E3A640FE2072C2B5674B27A6B6DA22A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +501,8 @@ magnet:?xt=urn:btih:80E7EDC8E3A640FE2072C2B5674B27A6B6DA22A6
 magnet:?xt=urn:btih:998499A7526C6599771DC40E5E8FBCABC4DD1D13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +527,8 @@ magnet:?xt=urn:btih:998499A7526C6599771DC40E5E8FBCABC4DD1D13
 magnet:?xt=urn:btih:79356772ADCEBC7B54C9440B9C60A010865ABEA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:79356772ADCEBC7B54C9440B9C60A010865ABEA0
 ```bash
 magnet:?xt=urn:btih:E047D426163DE84F944118E2CF1BC498BBE6D8FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +581,8 @@ magnet:?xt=urn:btih:E047D426163DE84F944118E2CF1BC498BBE6D8FD
 magnet:?xt=urn:btih:DAB80A3ED8C710B272790D26D56830D43EFBF7E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:DAB80A3ED8C710B272790D26D56830D43EFBF7E1
 ```bash
 magnet:?xt=urn:btih:D6CC39400ACEF11F7BA3B05D514D1822A06C32BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +633,8 @@ magnet:?xt=urn:btih:D6CC39400ACEF11F7BA3B05D514D1822A06C32BF
 magnet:?xt=urn:btih:F794799F7020C163FE09242B7FAA08DAE1289C44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:F794799F7020C163FE09242B7FAA08DAE1289C44
 ```bash
 magnet:?xt=urn:btih:9D8FF6EB65D864D996DAB813412F0D7DE5CE8547
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,31 +687,7 @@ magnet:?xt=urn:btih:9D8FF6EB65D864D996DAB813412F0D7DE5CE8547
 magnet:?xt=urn:btih:877063F0C28C7C9B40F5CCD0C64CBE435F9E00BF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219479   (713179) от 14.04.2018
-
-Павел Евдокименко | Не навреди сам себе, или Правила успешной здоровой жизни (2018) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы часто необоснованно считаем, что успешность жизни, здоровье тела и духа возможны исключительно путем неимоверных усилий и доступны лишь избранным. Но жизнь намного проще, чем вам кажется, а простота и тривиальность ответов не всегда означает их неверность!
-
-В своей книге Павел Евдокименко говорит о том, что наше везение, счастье и благополучие фактически зависят (   Читать дальше...   )Жанр: Самосовершенствование, достижение успехаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA72F45B9FB5D0278C6EDDD84EEEE82E315D994
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

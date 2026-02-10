@@ -19,6 +19,8 @@ Christmas Card - простая, симпатичная рождественск
 magnet:?xt=urn:btih:E4451E1ADC55D9257A290FAC8B7897E4ACCEE914
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Christmas Opener - это красивый и элегантный шаблон,
 ```bash
 magnet:?xt=urn:btih:CE3A42F3E42B4EF77F6F13E7BE06FC91C666C506
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ MotionElements - Vintage Photo Album - Four Seasons - 13194474 [AEP]
 magnet:?xt=urn:btih:DCDC8A78AAF8497CBDCE2EF2059432BD066ADA99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:DCDC8A78AAF8497CBDCE2EF2059432BD066ADA99
 ```bash
 magnet:?xt=urn:btih:F059AB52B7D765FB1409B3C545682ABF9E55F84C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Cartoon Titles Styles - пакет из 15 мультяшных стилей д�
 magnet:?xt=urn:btih:02EED1D8FEBF1283615BAAE34944E5BEBDFBEE12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Christmas Light Reveal - Отличное вступление для вашег
 ```bash
 magnet:?xt=urn:btih:09FF8789FC9C98F66D9DEDEE5E7AEEFF18DE3463
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:09FF8789FC9C98F66D9DEDEE5E7AEEFF18DE3463
 magnet:?xt=urn:btih:8254ABE0D80D429A150213E02B4786052C18E013
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:8254ABE0D80D429A150213E02B4786052C18E013
 ```bash
 magnet:?xt=urn:btih:58B48D728D3636DFEE6470507B68EC7A01133A95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Xmas Holidays Slideshow - проект который поможет созда�
 magnet:?xt=urn:btih:E3D8DEFC7C62D0942CE5DF25D8F82E8C20F82F69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Winter Holidays Slideshow - проект который поможет созд�
 magnet:?xt=urn:btih:ED2220CB491B9C9612673B95CFEBD19381AD500A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Christmas & New Year Lights - приближающаяся атмосфера п
 ```bash
 magnet:?xt=urn:btih:2EAA406C798293FA3E34CEFF85B056423120364B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Merry Christmas Slideshow - яркое, ослепительное Нового�
 magnet:?xt=urn:btih:F4530DEC4C9D9281A5B9940E09C604811EDD385A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Ice Skating Santa - Санта Клаус хочет пожелать всем �
 ```bash
 magnet:?xt=urn:btih:4C1FAD5B6F97800F813BCC465CCD826BC1109B82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Christmas Card - Самый простой способ поздравить с�
 magnet:?xt=urn:btih:FEA8B131900B69E5F6CF608D83F5B362D6C1F6CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Winter Slideshow - это проект для слайд-шоу, который 
 ```bash
 magnet:?xt=urn:btih:54AEA4DACBC5D32F49C76C300BE09850766B1E6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ VideoHive - Spooky Halloween Intro - 24880306 [AEP]
 magnet:?xt=urn:btih:01A149E43440BD268A967F02D1FDE3F9B09C8D74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Christmas Blackboard - шаблон для отображения Рождест
 magnet:?xt=urn:btih:85CD430B7F65030BA6AAB55B19C55667D770DB5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:85CD430B7F65030BA6AAB55B19C55667D770DB5D
 ```bash
 magnet:?xt=urn:btih:874CA19C2EE99CA667C9EBE052F81896C2A96396
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:874CA19C2EE99CA667C9EBE052F81896C2A96396
 magnet:?xt=urn:btih:BC87FD82489DBDB0C252742809954FA92B67D3D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Christmas Wishes - проект для создания Рождественск
 ```bash
 magnet:?xt=urn:btih:6DFCC7AF39FA51D53FCCA97ED465C46BB1F516C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Audio Spectrum Music Visualizer идеально подходит для виз�
 magnet:?xt=urn:btih:C44BDF730AE11DD2F850B35994A902BCA2CEE9B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Winter Parallax Slideshow - Профессиональная презентац�
 ```bash
 magnet:?xt=urn:btih:BB7463D5706C0251A31C9048A8F29A728745105B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ VideoHive - Fantasy Book Opener Slideshow - 25018309 / Motion Array - Fantasy Bo
 magnet:?xt=urn:btih:10D9B615B2AA7F77858EA353B6385ACB1723A47D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ Santa Claus in the New Year's Eve - Санта Клаус является к в
 ```bash
 magnet:?xt=urn:btih:A855E00E87964D51C91400194424A7E04AD838AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ Sparkling Slideshow - Лучшие воспоминания этого года 
 magnet:?xt=urn:btih:EE9B427EC3928BD9E5B69BC1A50446CAC6025A7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Futuristic HUD Logo Reveal - раскройте свой логотип в фу�
 ```bash
 magnet:?xt=urn:btih:A85D62F17B8186DC0596EC73B1C90B2DAC2F56E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

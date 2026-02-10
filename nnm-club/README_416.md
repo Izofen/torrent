@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:7B668B45DFF183EB830C6B19200E7E11EDC153B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Broken Arrow (2025) [Ru/Multi] (1.0.6.p/dlc) Scene Rune [Vanguard Edition]
 magnet:?xt=urn:btih:5230CB87509BA191A8AA483415A164D31BA2987F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:5230CB87509BA191A8AA483415A164D31BA2987F
 ```bash
 magnet:?xt=urn:btih:DF5CD2D854950C9C6F2D7938CB1AA7D3FA3D9853
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:DF5CD2D854950C9C6F2D7938CB1AA7D3FA3D9853
 magnet:?xt=urn:btih:46AD9203B726B3D3461300A4AB0260D51FD54885
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:46AD9203B726B3D3461300A4AB0260D51FD54885
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ NeuralGo | Полный курс по языку Golang. С нуля до REST A
 magnet:?xt=urn:btih:A0B5FFB1B48BEADA13D86FF8020096254843DCEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:A0B5FFB1B48BEADA13D86FF8020096254843DCEB
 ```bash
 magnet:?xt=urn:btih:ADC6B0AD1F49C239FD405A4F901AE5E13629F79C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:ADC6B0AD1F49C239FD405A4F901AE5E13629F79C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:ADC6B0AD1F49C239FD405A4F901AE5E13629F79C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Depeche Mode - SACD Anthology (1981-2005) [DSD 5.1, 2.0 1bit/2822,4kHz |SACD-R]<
 ```bash
 magnet:?xt=urn:btih:FDC69D701F6BBFEA673E2BF0C2FED3FA1EF2B336
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:FDC69D701F6BBFEA673E2BF0C2FED3FA1EF2B336
 magnet:?xt=urn:btih:2279216070B51984F9B7CD6B284BF3545868C362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:2279216070B51984F9B7CD6B284BF3545868C362
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:2279216070B51984F9B7CD6B284BF3545868C362
 magnet:?xt=urn:btih:333452B2E65ADC53AD4A69BFA4FF201A057AED23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:333452B2E65ADC53AD4A69BFA4FF201A057AED23
 magnet:?xt=urn:btih:9BFA9222713E8143EB1BA75731666420712F7D84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:9BFA9222713E8143EB1BA75731666420712F7D84
 ```bash
 magnet:?xt=urn:btih:1C31EA21837EB47D0D6BDFAD8758F79D8120745D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ GoodbyeDPI 0.2.3rc3 Launcher 10.0 [Ru/En]
 magnet:?xt=urn:btih:3EE12E557E30FB37AD4562792122A37B6F7CDB67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:3EE12E557E30FB37AD4562792122A37B6F7CDB67
 ```bash
 magnet:?xt=urn:btih:C0C0545B2F29338AA32687D9359CB51175ED8338
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:C0C0545B2F29338AA32687D9359CB51175ED8338
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:C0C0545B2F29338AA32687D9359CB51175ED8338
 ```bash
 magnet:?xt=urn:btih:84507D7649EB02010C2FE3E278B407E0841B1264
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:84507D7649EB02010C2FE3E278B407E0841B1264
 magnet:?xt=urn:btih:A6C0B9619E8ED61E89205075D5E871FCD8819961
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:A6C0B9619E8ED61E89205075D5E871FCD8819961
 ```bash
 magnet:?xt=urn:btih:504D46927E16D25B5D213591B0C4A1538A0DD363
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:504D46927E16D25B5D213591B0C4A1538A0DD363
 magnet:?xt=urn:btih:933A8986182C93BDCF75552D62F81CCFF9F3F229
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:933A8986182C93BDCF75552D62F81CCFF9F3F229
 ```bash
 magnet:?xt=urn:btih:35351A06ABA71A422C8D15A68317D847CB49E086
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:35351A06ABA71A422C8D15A68317D847CB49E086
 magnet:?xt=urn:btih:131AD291C2A936046CA58DCFD0A2F93CD7C0266F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Dragon Ball Z: Kakarot – долгожданное продолжение се�
 ```bash
 magnet:?xt=urn:btih:24E9B21513BA3E8FCBAD9AA36DDD99F8E1869659
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

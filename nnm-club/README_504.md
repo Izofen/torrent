@@ -19,6 +19,8 @@ Ninja to Koroshiya no Futari-gurashi | A Ninja and an Assassin Under One Roof | 
 magnet:?xt=urn:btih:125272225FD3EC3C6C568D824035C286FD666357
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:125272225FD3EC3C6C568D824035C286FD666357
 ```bash
 magnet:?xt=urn:btih:8F680A529C26F69DEB04C2531B6C22CE6095EA8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 magnet:?xt=urn:btih:9F46510F9396BD196A541530B6A54286A3D2599D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Monster Train 2 (2025) [Ru/Multi] (Build #11691) Repack FitGirl [Supporter Pack]
 ```bash
 magnet:?xt=urn:btih:6982F983FB5E5C4C022D3A35E9D7D0A80EEE17A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Chuuzenji-sensei Mononoke Kougiroku: Sensei ga Nazo o Toite Shimau kara. | Жу�
 magnet:?xt=urn:btih:A2FBD687C4EF880D5DDC1D9F61C61C8E77E9E6A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:A2FBD687C4EF880D5DDC1D9F61C61C8E77E9E6A9
 ```bash
 magnet:?xt=urn:btih:1CF54B2CF7C55A80BFDB03A0B046B5A84D3A2825
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.17.6 Mod 
 magnet:?xt=urn:btih:42153FC60D73BCEF0D115D1184820914CCF46BF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Teardown – симулятор проведения ограбления в р�
 ```bash
 magnet:?xt=urn:btih:165DBC4A960FD6C5F398FACFC3F9B4760CED614A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Capcom Fighting Collection 2 (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl
 magnet:?xt=urn:btih:FD529A83D9E4FF624EE46BB1C7DE6527C4D05A7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:FD529A83D9E4FF624EE46BB1C7DE6527C4D05A7A
 ```bash
 magnet:?xt=urn:btih:E9A8C08E65BB10BB15E7397AEDEDAD3883E36585
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:E9A8C08E65BB10BB15E7397AEDEDAD3883E36585
 magnet:?xt=urn:btih:63ACFA0ABFF339EB97B62C677373B70222C877F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Warhammer: Shadow of the Horned Rat (1995) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:91689FE556B59F95794CCA156D322EAA9EAD67AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:91689FE556B59F95794CCA156D322EAA9EAD67AF
 magnet:?xt=urn:btih:8B33E340E11A0B6BBD442952112E74077AFFBCC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:8B33E340E11A0B6BBD442952112E74077AFFBCC7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:8B33E340E11A0B6BBD442952112E74077AFFBCC7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:94637EA1F0119E57401A3EDB2C792FFBA2B47A5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:94637EA1F0119E57401A3EDB2C792FFBA2B47A5B
 magnet:?xt=urn:btih:6B5067BBC5DDA974175BA01078ACFC6081BD9BF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Warhammer 40,000: Rogue Trader – это изометрическая роле�
 magnet:?xt=urn:btih:A181E08EF7EC052DAA40188126B528364DBF9919
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:A181E08EF7EC052DAA40188126B528364DBF9919
 ```bash
 magnet:?xt=urn:btih:87CF38E478A55E06E8338BFD88850E7BF2B7E91C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Kimi to Boku no Saigo no Senjou, Arui wa Sekai ga Hajimaru Seisen Season II | Ki
 magnet:?xt=urn:btih:452570472DEA0E67D17B16827511224956D420F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:452570472DEA0E67D17B16827511224956D420F6
 ```bash
 magnet:?xt=urn:btih:FE5395C5900F433F93EC3CB7ACBEA265131A56F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:FE5395C5900F433F93EC3CB7ACBEA265131A56F2
 magnet:?xt=urn:btih:6DC28B7793B3667B70B2D4CE4D1888F32E1779FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:6DC28B7793B3667B70B2D4CE4D1888F32E1779FB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:6DC28B7793B3667B70B2D4CE4D1888F32E1779FB
 magnet:?xt=urn:btih:0F4419AD45B065920C46ED0D46935FE5A5E90512
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:0F4419AD45B065920C46ED0D46935FE5A5E90512
 magnet:?xt=urn:btih:FE88DF7DC6D07B0C20689F5F90161FCE146CF664
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Banquet for Fools (2024) [En] (3.02) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:1F35D13489E2AA52AAB8BE03FEA695026400CBD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

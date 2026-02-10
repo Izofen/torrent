@@ -1,27 +1,3 @@
-###  Публикация: 917956   (588640) от 13.07.2015
-
-Долгий перегон / The Quest: The Longest Drive (1976) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ковбой с шестью другими перегонщиками, направляется со стадом в 1500 коров к Колорадо, а это путь в 1000 миль. По пути они столкнутся с индейцами, испытают панику, и прочувствуют в пустыне отсутствие воды...Производство: США / Columbia Pictures Television, David Gerber ProductionsЖанр: Вестерн, ПриключенияРежиссер: Бернард МакЭветиАктеры: Курт Рассел, Тим Мэтисон, Дэн О’Херлихи, Кинен Уинн, Вуди Строуд, Эрик Эстрада, Сэндер Джонсон, Купер Хукаби, Джон Рубинстайн, Гэри ЛоквудПеревод: Одноголосый закадровый (NezPerce)Субтитры: ОтсутствуютПродолжительность: 01:31:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5B9349DCA25188E2F3D75167A9DFB75E1B1E8CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917685   (588974) от 12.07.2015
 
 Остров женщин / Gefangene Frauen (1980) BDRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:B5B9349DCA25188E2F3D75167A9DFB75E1B1E8CA
 ```bash
 magnet:?xt=urn:btih:B9D3E07801334C2F8E8DB9ACAA680E5AEF787A2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -66,6 +44,8 @@ magnet:?xt=urn:btih:B9D3E07801334C2F8E8DB9ACAA680E5AEF787A2D
 ```bash
 magnet:?xt=urn:btih:AAD9C84C56E2B3F5AC24517C7BC3AD0787F61A95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +72,8 @@ magnet:?xt=urn:btih:AAD9C84C56E2B3F5AC24517C7BC3AD0787F61A95
 magnet:?xt=urn:btih:7819DE3B79ED6BE290C6B85F9BA8E4D4B10C8C20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:7819DE3B79ED6BE290C6B85F9BA8E4D4B10C8C20
 ```bash
 magnet:?xt=urn:btih:42C7454B1ADD8CBDB30AB1F7C7E01EE1D074ADC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +124,8 @@ magnet:?xt=urn:btih:42C7454B1ADD8CBDB30AB1F7C7E01EE1D074ADC0
 magnet:?xt=urn:btih:CBB33646068CD3E29E20446C8E766B85C3DE146D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:CBB33646068CD3E29E20446C8E766B85C3DE146D
 ```bash
 magnet:?xt=urn:btih:9F04B865F948F400F7BCE20E7D818398C0DCB800
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +176,8 @@ Galaxina / Галаксина (1980) DVDRip
 magnet:?xt=urn:btih:D20AD9016BF9261E3F6B3BCACDB58E8347B230E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:D20AD9016BF9261E3F6B3BCACDB58E8347B230E6
 ```bash
 magnet:?xt=urn:btih:DD384D8342305A8DA4794F0F3CF00A653DB772EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:DD384D8342305A8DA4794F0F3CF00A653DB772EB
 magnet:?xt=urn:btih:A7D5298234E98971562AA434C0A0A5506801D242
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:A7D5298234E98971562AA434C0A0A5506801D242
 ```bash
 magnet:?xt=urn:btih:9D69015489695AB5036A12206ED05CBAC691707D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:9D69015489695AB5036A12206ED05CBAC691707D
 magnet:?xt=urn:btih:DBAFFBF95E6172452B7C32CB831B5A898ED75202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:DBAFFBF95E6172452B7C32CB831B5A898ED75202
 ```bash
 magnet:?xt=urn:btih:20B7221BE599EB1D506DA50D048CCA9D69A61374
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +332,8 @@ magnet:?xt=urn:btih:20B7221BE599EB1D506DA50D048CCA9D69A61374
 magnet:?xt=urn:btih:002486C6F73E4268887BF67665F6DD0E51FCDB4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:002486C6F73E4268887BF67665F6DD0E51FCDB4E
 ```bash
 magnet:?xt=urn:btih:DF3AE2693E560C19AC3B03121DED62AFBB83E39F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +384,8 @@ magnet:?xt=urn:btih:DF3AE2693E560C19AC3B03121DED62AFBB83E39F
 magnet:?xt=urn:btih:581FA63A7F6821416D3A258642E77841F7166C06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +409,8 @@ magnet:?xt=urn:btih:581FA63A7F6821416D3A258642E77841F7166C06
 ```bash
 magnet:?xt=urn:btih:86E52F3CC03CEC02D4A351A4A4F85CA75F3B028C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +437,8 @@ magnet:?xt=urn:btih:86E52F3CC03CEC02D4A351A4A4F85CA75F3B028C
 magnet:?xt=urn:btih:B046EEEB7941CFBBB814E4419ACDCD3136B6B026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:B046EEEB7941CFBBB814E4419ACDCD3136B6B026
 magnet:?xt=urn:btih:0C83FD447B75B4B5D36E5CF8F15152B6490E052D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +488,8 @@ magnet:?xt=urn:btih:0C83FD447B75B4B5D36E5CF8F15152B6490E052D
 ```bash
 magnet:?xt=urn:btih:D0D5497CE728CCDDBA57795551F1B81B61A4B605
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +516,8 @@ magnet:?xt=urn:btih:D0D5497CE728CCDDBA57795551F1B81B61A4B605
 magnet:?xt=urn:btih:DA157553417A95A2EE575816C0B7D13733301DAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +541,8 @@ magnet:?xt=urn:btih:DA157553417A95A2EE575816C0B7D13733301DAD
 ```bash
 magnet:?xt=urn:btih:F812B8B520FC2406D9D5D581DA85EB3C085A65A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +568,8 @@ magnet:?xt=urn:btih:F812B8B520FC2406D9D5D581DA85EB3C085A65A8
 magnet:?xt=urn:btih:477FFC24CA31B92C2C65D5E75FA98CA112F1D001
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +593,8 @@ magnet:?xt=urn:btih:477FFC24CA31B92C2C65D5E75FA98CA112F1D001
 ```bash
 magnet:?xt=urn:btih:A472BE1ED969784553AD0D7B4FE776B379EBAC81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +621,8 @@ magnet:?xt=urn:btih:A472BE1ED969784553AD0D7B4FE776B379EBAC81
 magnet:?xt=urn:btih:0C4034CB24BAECAF9D908FA6B0AFF14A691CB4CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +646,34 @@ magnet:?xt=urn:btih:0C4034CB24BAECAF9D908FA6B0AFF14A691CB4CB
 ```bash
 magnet:?xt=urn:btih:F022EECA7A1BABA7B4E7569F1E53AFA3C8257217
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916872   (590345) от 09.07.2015
+
+Лето в поисках «Корвета» / Corvette Summer (1978) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Парень любит проектировать и строить экзотические автомобили. Со свалки при средней школе он собрал из рухляди шикарный автомобиль своей мечты "Corvette", который вскоре угоняют. И парень отправляется на увлекательные поиски своего авто, его ждет куча приключений и новая любовь...Производство: СШАЖанр: Комедия, приключенияРежиссер: Мэттью РоббинсАктеры: Марк Хэмилл, Энни Поттс, Юджин Роч, Уильям Брайант, Ричард МакКензи, Ким Милфорд, Филип БрунсПеревод: Авторский (А. Алексеев)Продолжительность: 01:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFF44A2A10BBB7427FE9267FA237CBED922E6694
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

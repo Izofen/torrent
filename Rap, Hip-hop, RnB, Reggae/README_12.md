@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:8641C30943FE33C4C42770B683F37E3AE722D7D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:8641C30943FE33C4C42770B683F37E3AE722D7D0
 ```bash
 magnet:?xt=urn:btih:C3501A7F15B50486C1B3AB6EA86EA9463C756B4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:C3501A7F15B50486C1B3AB6EA86EA9463C756B4F
 magnet:?xt=urn:btih:030EC245C2127F0052B9B2EE160728DFA2D0B411
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Kizaru - BORN TO TRAP (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:466D1A4886409A33B22684BBD13106BF7E51C9CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ ST1M, СД - Аггро 2.0 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:733879A1B11C22D4CC7A666C5154C07E9C7FB604
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Bumble Beezy - Nosebleed (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:6E4E13E4AAA9E9C8BA308B85526B5217B5AA423C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Jubilee - Меланхолия Drive 2 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:1DD8760B2648647EBECF7D3B38C81A05AA6E902E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Nana - Father (1998) [FLAC|tracks+.cue]<RnB, Swing, Pop Rap>
 ```bash
 magnet:?xt=urn:btih:194E17F5D1C198F567A538E58ED064B706707B8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ ATL - Дисторшн [EP] (2017) [MP3|320 Kbps] <Rap>
 magnet:?xt=urn:btih:5C3896BA3A333B35F74234151E8E2C32225FD643
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ ST - ПОЭТ ДУЭТ (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:702BAD3761D1E8252B6977203DC00436466085D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ magnet:?xt=urn:btih:702BAD3761D1E8252B6977203DC00436466085D2
 magnet:?xt=urn:btih:70DF6B525227888749A2F6F02EAB2CBE39724583
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Black Eyed Peas - The Beginning (2010) [FLAC|Lossless]<Hip-hop, Pop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Rihanna - 7 Albums + 6 Singles (2005-2010) [FLAC|Lossless] <R'n'B>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Rihanna - 7 Albums + 6 Singles (2005-2010) [FLAC|Lossless] <R'n'B>
 ```bash
 magnet:?xt=urn:btih:8602868A7710F5C6A33C0FEAA94B36F60F9C7B26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Noize MC - No Comments (2018) EP [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:B6E7C618FCE34165CD69E5E79139D5BCA040A16D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ magnet:?xt=urn:btih:B6E7C618FCE34165CD69E5E79139D5BCA040A16D
 ```bash
 magnet:?xt=urn:btih:BCE8449AF4431AC9D56E16A175728D3BDB1186D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ The Weeknd - Starboy (2016) [MP3|320 Kbps] <R&B>
 magnet:?xt=urn:btih:B95EF22862BAD615FAD20EFCF629B857EAE35A8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ magnet:?xt=urn:btih:B95EF22862BAD615FAD20EFCF629B857EAE35A8D
 ```bash
 magnet:?xt=urn:btih:7C5D0D6977D93D72115BC4D4D1A2BB5B9261C3E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ Alai Oli - Sad Princess (2019) [MP3|320 Kbps] <Reggae, Alternative Rock>
 magnet:?xt=urn:btih:9B33BB51213F04518FB0F3B531B97B4995C50780
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Pra(Killa'Gramm) - Рэп этот (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:A8870A68FB8E734063E1F26A3ABE6D30E7760BFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ magnet:?xt=urn:btih:A8870A68FB8E734063E1F26A3ABE6D30E7760BFD
 magnet:?xt=urn:btih:2473DE4E6D3D875E94A99DA67A7D4B93DFDE456A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ L'One - Автолюбитель (2015) EP [MP3|320 кб/с]<Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:013A0ED9CE96038C785E362361F84F67B5B67F88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ Shiny Radio ft. DJ ERIK - The Remixplate (2017) [MP3|320 Kbps] <Hip-Hop>
 magnet:?xt=urn:btih:404D3800047A6831389C27A28106D1A411389C6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ Public Enemy - What You Gonna Do When The Grid Goes Down? (2020) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:0B4016A9150083878ED9145C4EDA1B32AFA6E283
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ magnet:?xt=urn:btih:0B4016A9150083878ED9145C4EDA1B32AFA6E283
 magnet:?xt=urn:btih:2CEEBE5D2EC93E91174E8615B5D95E952285FEBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ Noize MC - Voyager-2 (2022) Live [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop, Ro
 ```bash
 magnet:?xt=urn:btih:D914ACE8DFDFB57780D60F75BF0482FAEDB9B56E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1C2BF8E142A95FFE7EA208C088B4EC23F2D2BC91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:1C2BF8E142A95FFE7EA208C088B4EC23F2D2BC91
 magnet:?xt=urn:btih:E1BA4486B015238A900EF70B3C6EEDAA9CC814E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Katanaut - это экшн-рогалик, в котором главный ге
 ```bash
 magnet:?xt=urn:btih:E6279083454B028AE446FAEF90C68A12DF7574FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:E6279083454B028AE446FAEF90C68A12DF7574FC
 magnet:?xt=urn:btih:FD943407661972AAC20B51C57AEC6BEAF13F0353
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Worshippers of Cthulhu (2024) [Ru/Multi] (1.0.0.3) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:7304B2EFFC6B12E12DF10029874EE0A6FE9E8F1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Kingdom Rush 5: Alliance TD (2024) [Ru/Multi] (6.00.114/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:DF7EE8731C0377F8BE789C2ACF7962605936867B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ MInstAll v.21.09.2025 By Andreyonohov (Unpacked) [Ru]
 ```bash
 magnet:?xt=urn:btih:C534D649CF0B8C25A0E5D8C708D69A42B05E83BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:C534D649CF0B8C25A0E5D8C708D69A42B05E83BD
 magnet:?xt=urn:btih:2A782B9050ED56CC0F2995CBAA593E31823592BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:2A782B9050ED56CC0F2995CBAA593E31823592BE
 magnet:?xt=urn:btih:B3B4D8603EF8871B6659E256EC8BCE46C9465FA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:B3B4D8603EF8871B6659E256EC8BCE46C9465FA9
 ```bash
 magnet:?xt=urn:btih:E21D5ABA06DE0D321BA25B4889CE57D2050EA401
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:E21D5ABA06DE0D321BA25B4889CE57D2050EA401
 magnet:?xt=urn:btih:202D05549B3F28DD1A255392C4DE764BE2E6AFFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:202D05549B3F28DD1A255392C4DE764BE2E6AFFE
 magnet:?xt=urn:btih:7DA4796F8D8056E8780881E32651AC8CDE0ACE23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:7DA4796F8D8056E8780881E32651AC8CDE0ACE23
 ```bash
 magnet:?xt=urn:btih:18D82F2E15299B43425D4D172203CCC248ABDB62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:18D82F2E15299B43425D4D172203CCC248ABDB62
 magnet:?xt=urn:btih:89754C04C677BDFEB6886806CA6CC7C90EAE92C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:89754C04C677BDFEB6886806CA6CC7C90EAE92C2
 ```bash
 magnet:?xt=urn:btih:C588866E0F5D13D827645236F8CB11624513FB1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:C588866E0F5D13D827645236F8CB11624513FB1E
 magnet:?xt=urn:btih:A908A60969245787CBF7C71EE650639A7EEC5D47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:A908A60969245787CBF7C71EE650639A7EEC5D47
 ```bash
 magnet:?xt=urn:btih:2CCF34AABFE39CEE2BFD0B6B8B3BC51F4628F1AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:2CCF34AABFE39CEE2BFD0B6B8B3BC51F4628F1AA
 magnet:?xt=urn:btih:299BCF9DB4F17BA21CE243FADCA3428B11DEC62F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:299BCF9DB4F17BA21CE243FADCA3428B11DEC62F
 ```bash
 magnet:?xt=urn:btih:6B334498487B8C8D346D6C03E2A5C129A6B5A796
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:6B334498487B8C8D346D6C03E2A5C129A6B5A796
 magnet:?xt=urn:btih:D71D3BBAE7E5D571CE82633B008A22EF70A5C1B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:D71D3BBAE7E5D571CE82633B008A22EF70A5C1B1
 ```bash
 magnet:?xt=urn:btih:9076238D74EBCE7FA669BAADA40AC6FD98B0E933
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:9076238D74EBCE7FA669BAADA40AC6FD98B0E933
 magnet:?xt=urn:btih:F460F013A04175C562A4CEC246A865AB682EDC16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:F460F013A04175C562A4CEC246A865AB682EDC16
 ```bash
 magnet:?xt=urn:btih:7C0FE3DD6A3A269B60C730DBD7EDBEC8670B44AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:7C0FE3DD6A3A269B60C730DBD7EDBEC8670B44AF
 magnet:?xt=urn:btih:B8A54D0D92546C675DD88D3F2BC89FBB6104A4C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ MotoGP. Этап 17 из 22. Гран-при Японии. Спринт (27.09.2
 magnet:?xt=urn:btih:FAD1C0459A3F561C54615D1B6174A3E4085A92AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ magnet:?xt=urn:btih:FAD1C0459A3F561C54615D1B6174A3E4085A92AC
 ```bash
 magnet:?xt=urn:btih:9DACCCA4D666FEA252041ABB88320B9199BAEC02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

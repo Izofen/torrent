@@ -22,6 +22,8 @@ VA - В нашу гавань заходили корабли 1 (2001) [FLAC|Los
 magnet:?xt=urn:btih:4D6EF351C4F6B65C29990DAA765A499E0A29641D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Zazie - Zen (1995) [FLAC|Lossless|tracks + .cue] <Pop, Chanson>
 magnet:?xt=urn:btih:7A9C8990E35F506A31B32E064D950ED64913F93E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:7A9C8990E35F506A31B32E064D950ED64913F93E
 magnet:?xt=urn:btih:DD055A33423B2085C2F7166E14187CA13CE0C9F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:DD055A33423B2085C2F7166E14187CA13CE0C9F3
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:DD055A33423B2085C2F7166E14187CA13CE0C9F3
 magnet:?xt=urn:btih:1EFCE773BEAFBF622F8B6EE38C65897D9A3AEE3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:1EFCE773BEAFBF622F8B6EE38C65897D9A3AEE3A
 ```bash
 magnet:?xt=urn:btih:F7EF8F3B42B3C0C42CDF5A33F73BFC06F2780CB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +194,8 @@ magnet:?xt=urn:btih:F7EF8F3B42B3C0C42CDF5A33F73BFC06F2780CB2
 magnet:?xt=urn:btih:3B213414EA3C907E6BBB7374FD2CBBF3CDC67C9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ magnet:?xt=urn:btih:3B213414EA3C907E6BBB7374FD2CBBF3CDC67C9E
 ```bash
 magnet:?xt=urn:btih:6D968F126C31E4927245405F7D66B120477C7F30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +252,8 @@ magnet:?xt=urn:btih:6D968F126C31E4927245405F7D66B120477C7F30
 magnet:?xt=urn:btih:696AE32834859CAA4077C72608FE56DCDFB6A352
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ magnet:?xt=urn:btih:696AE32834859CAA4077C72608FE56DCDFB6A352
 ```bash
 magnet:?xt=urn:btih:EF8671370B688C8675010A620094126EEF89C24B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +310,8 @@ magnet:?xt=urn:btih:EF8671370B688C8675010A620094126EEF89C24B
 magnet:?xt=urn:btih:BF9E4BACA4D889DA62443804E25D9B28C0A9C8E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +338,8 @@ magnet:?xt=urn:btih:BF9E4BACA4D889DA62443804E25D9B28C0A9C8E9
 ```bash
 magnet:?xt=urn:btih:E26E73A13280EF734A2E331E4BC520AD7FC98E9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +368,8 @@ Va - Серия «Таксист» 6. Шансон рулит (2006) [FLAC|Lossl
 magnet:?xt=urn:btih:537BEC6A825BEC4C2CCEF3E2127F45F69EBC7B88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +396,8 @@ magnet:?xt=urn:btih:537BEC6A825BEC4C2CCEF3E2127F45F69EBC7B88
 ```bash
 magnet:?xt=urn:btih:B4B1A9BB27E1B07763A84A0DC44E21DC965BC176
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +426,8 @@ magnet:?xt=urn:btih:B4B1A9BB27E1B07763A84A0DC44E21DC965BC176
 magnet:?xt=urn:btih:7AE5B69505DB427544AB349D91096A960F9532CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +455,8 @@ magnet:?xt=urn:btih:7AE5B69505DB427544AB349D91096A960F9532CF
 magnet:?xt=urn:btih:E5741C51A2DBF956AD778B423860D8B56E67A4E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +483,8 @@ magnet:?xt=urn:btih:E5741C51A2DBF956AD778B423860D8B56E67A4E4
 ```bash
 magnet:?xt=urn:btih:7D4DD19E22F6CA32B4DE556AC496AE7C311BA28A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +519,8 @@ VA - Bonjour La France ( The Sound Of France ) (1993 & 1996) 2*2CD [FLAC|Lossles
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +547,8 @@ VA - Bonjour La France ( The Sound Of France ) (1993 & 1996) 2*2CD [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:8ADCF241F8C276833C345C607CA5C0FECC8C4B8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +577,8 @@ magnet:?xt=urn:btih:8ADCF241F8C276833C345C607CA5C0FECC8C4B8F
 magnet:?xt=urn:btih:E688F19E3830BE241F1A0884D274EE29254CCAAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +605,8 @@ magnet:?xt=urn:btih:E688F19E3830BE241F1A0884D274EE29254CCAAE
 ```bash
 magnet:?xt=urn:btih:9E0FD4453A875AC3DF268C3A7DBDCDEC7C8ABE37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +635,8 @@ magnet:?xt=urn:btih:9E0FD4453A875AC3DF268C3A7DBDCDEC7C8ABE37
 magnet:?xt=urn:btih:904AC458D9E5E11A888AAC95292CF629281DEC34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +663,8 @@ magnet:?xt=urn:btih:904AC458D9E5E11A888AAC95292CF629281DEC34
 ```bash
 magnet:?xt=urn:btih:B79138B4AF14F1919B65BB06C11EB357EDE2E70A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +693,8 @@ magnet:?xt=urn:btih:B79138B4AF14F1919B65BB06C11EB357EDE2E70A
 magnet:?xt=urn:btih:DBCD0056E01598B7E130EE857CED766CDC2AAE81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -674,6 +722,8 @@ magnet:?xt=urn:btih:DBCD0056E01598B7E130EE857CED766CDC2AAE81
 magnet:?xt=urn:btih:65B7688EC48BC9FD344114AEA8D5692FF7BFA9D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -700,6 +750,8 @@ magnet:?xt=urn:btih:65B7688EC48BC9FD344114AEA8D5692FF7BFA9D4
 ```bash
 magnet:?xt=urn:btih:6E943B5A8D6E927E1BEBFBCA1D2392FFC8D29CAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

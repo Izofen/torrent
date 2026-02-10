@@ -1,3 +1,29 @@
+###  Публикация: 241403   (455277) от 12.09.2020
+
+Александр Беляев | Остров погибших кораблей [2006] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если ваш корабль терпит бедствие в Саргассовом море, не отчаивайтесь! Возможно, вас подхватит неизвестное течение, и вы окажетесь на самом удивительном острове, куда только ступала нога путешественника - на Острове Погибших Кораблей. Однако не рассчитывайте на участь робинзона: ведь против ожиданий, остров населен людьми и превращен в подобие настоящего государства. (   Читать дальше...   )Жанр: Фантастика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D6D00C60FE3B8FFA741458C460F7D02A7DA63E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569013   (455405) от 11.08.2022
 
 Вадим Скумбриев | Департамент Контроля Реальности (книга 2). Эвристика доступности (2022) [MP3, Юрий Несговоров]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:7ED0522D4D7324C0E239E8403CA3FEB08BA86114
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:7ED0522D4D7324C0E239E8403CA3FEB08BA86114
 magnet:?xt=urn:btih:3FF2A832054D95AAAD1085A42614E1BA196A825C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:3FF2A832054D95AAAD1085A42614E1BA196A825C
 ```bash
 magnet:?xt=urn:btih:DD6EE70E9FED2D9551DAEE70F2B8745873FCF418
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:DD6EE70E9FED2D9551DAEE70F2B8745873FCF418
 magnet:?xt=urn:btih:FAA2886662E4FFC8B8E8ACCA5B56AE7607885183
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:FAA2886662E4FFC8B8E8ACCA5B56AE7607885183
 magnet:?xt=urn:btih:67BC570CE616C3513139F2485A560D685E57494D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:67BC570CE616C3513139F2485A560D685E57494D
 magnet:?xt=urn:btih:594DD2D96A435CE7685A8D25E077DC523CF4B6FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:594DD2D96A435CE7685A8D25E077DC523CF4B6FA
 ```bash
 magnet:?xt=urn:btih:FE668DAFDC486FAC13ECD36C4F31622D5D067D05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:FE668DAFDC486FAC13ECD36C4F31622D5D067D05
 magnet:?xt=urn:btih:8BC14023E88CA79CEBB16CF913626D7FC77AE265
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:8BC14023E88CA79CEBB16CF913626D7FC77AE265
 magnet:?xt=urn:btih:98BDEB675B1405DF1B6BAE7D2D6EE452723BE2E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:98BDEB675B1405DF1B6BAE7D2D6EE452723BE2E6
 ```bash
 magnet:?xt=urn:btih:0A4482EA27A0D408C696926603CE1E4D6ED3CD89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:0A4482EA27A0D408C696926603CE1E4D6ED3CD89
 magnet:?xt=urn:btih:2DA396CFBC439FDE7CF38762F5B8046B2F62B25B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:2DA396CFBC439FDE7CF38762F5B8046B2F62B25B
 magnet:?xt=urn:btih:DCFD2FDE6F3EEC12C6ABBDB4B09FA7E70E8C7D73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:DCFD2FDE6F3EEC12C6ABBDB4B09FA7E70E8C7D73
 magnet:?xt=urn:btih:64C8E5F798066DCACBB7323F411F096E4F272B73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:64C8E5F798066DCACBB7323F411F096E4F272B73
 ```bash
 magnet:?xt=urn:btih:DB480400E74F2BEA15EB9C02F0B615CE01AD0CAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:DB480400E74F2BEA15EB9C02F0B615CE01AD0CAF
 magnet:?xt=urn:btih:52DE87DA8EA06058A869D78B183454BB43FA5537
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:52DE87DA8EA06058A869D78B183454BB43FA5537
 ```bash
 magnet:?xt=urn:btih:FE743B2A32F5A8EED5EC8A651811F5A7BAE4CACF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:FE743B2A32F5A8EED5EC8A651811F5A7BAE4CACF
 magnet:?xt=urn:btih:684384A5C28104AAC9E9D5DAFBE9FFD08AFBD418
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:684384A5C28104AAC9E9D5DAFBE9FFD08AFBD418
 ```bash
 magnet:?xt=urn:btih:12582552EB6CD57B68E41D2F1CF31AFB7AEBBB1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:12582552EB6CD57B68E41D2F1CF31AFB7AEBBB1C
 magnet:?xt=urn:btih:49C0C99CF5D36D06873F9562FFB89D4C5144C283
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:49C0C99CF5D36D06873F9562FFB89D4C5144C283
 magnet:?xt=urn:btih:07BFEE198BA285EB7DE57C48EA9FCB406A621A4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:07BFEE198BA285EB7DE57C48EA9FCB406A621A4E
 ```bash
 magnet:?xt=urn:btih:87A3754B800476108BD7FF796E6328A696FAEE4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:87A3754B800476108BD7FF796E6328A696FAEE4F
 magnet:?xt=urn:btih:111001BE509D719585F023C6EA3CB9CA8F9AF092
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:111001BE509D719585F023C6EA3CB9CA8F9AF092
 ```bash
 magnet:?xt=urn:btih:FBDE82F8AE912FC471220393A4D95B5A42073EB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:FBDE82F8AE912FC471220393A4D95B5A42073EB7
 magnet:?xt=urn:btih:F24877FF1C1711C51E7C6D6ED492BAA0E9201F5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,29 +681,7 @@ magnet:?xt=urn:btih:F24877FF1C1711C51E7C6D6ED492BAA0E9201F5E
 magnet:?xt=urn:btih:78F082F86E5E0D686DFE0628B5D5B37702D103B8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 388311   (460134) от 16.09.2011
-
-Андрей Ливадный | Предтечи [2011] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460134.jpg" />
-</div>
-
-
-###  Подробнее
-
-2304 год. Первые шаги в освоении аномалии космоса. Дальнее внеземелье преподносит людям множество непредвиденных опасностей, первопроходцев ждут катастрофы и встречи с новыми формами жизни, древними существами, обитающими в пространстве.Жанр: Фантастика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B166E18E68CFDA343B46305AC0D80E7F997E102F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

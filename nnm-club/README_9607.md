@@ -20,6 +20,8 @@ Audio Hijack - отличное решение для аудио записи н
 magnet:?xt=urn:btih:83301313659B8E2221FAF8039E86D83A34E4A4A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Floating Points - Crush (2019) [FLAC|Lossless|tracks + .cue] <Ambient, Breaks, I
 ```bash
 magnet:?xt=urn:btih:9FE0416371ACBFF79F3BB3C04B0B25DB43DF44D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ VA - EDM Heartbeat Extended Mix: Techno Electronic Step 03 (2019) [MP3|320 Kbps]
 magnet:?xt=urn:btih:EDF930019CFB0DA903A65D9EE68CC564656092CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ VA - Future City Records Compilation Vol. X (2016) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:EB96422BC59839F193915AD93983067045742CCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ VA - Future City Records Compilation Vol. IX (2015) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:AAE39E6541122F5DA9475B60BD9FCED07B1525D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:AAE39E6541122F5DA9475B60BD9FCED07B1525D4
 ```bash
 magnet:?xt=urn:btih:C7C6D859170479254B9179B11C25E4434FE1E0E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +191,8 @@ VA - Future City Records Compilation Vol. IV (2013) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:B3F8A7B6B6551922D62F196C923EA78BA18276C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ VA - Future City Records Compilation Vol. VI (2014) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:961932B4D7F29EDFAA2D121B370B3BD6FF48EB2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +249,8 @@ VA - Warie Live: Club House Original Mix (2019) [MP3|320 Kbps] <Dance, Pop, Hous
 magnet:?xt=urn:btih:1566E31D40A5BF9A8BCEF361F7FA3035D7847A88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ Stacks - это новый способ для создания страниц �
 ```bash
 magnet:?xt=urn:btih:AA171BC0367294E6F5F7B7647C3DE79DF0B83778
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +303,8 @@ DxO PhotoLab 3 ELITE Edition 3.0.0 (build 21) [Multi]
 magnet:?xt=urn:btih:8D49D25F98D3F24E15F146EA8983208F174E72A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +329,8 @@ Wise Force Deleter 1.46.38 [Multi/Ru]
 magnet:?xt=urn:btih:1D029F626B759E5651EEA657A012214CBC182228
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +354,8 @@ magnet:?xt=urn:btih:1D029F626B759E5651EEA657A012214CBC182228
 ```bash
 magnet:?xt=urn:btih:0196AAE3BD23486633AD965AA1A875D1C841459B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +382,8 @@ magnet:?xt=urn:btih:0196AAE3BD23486633AD965AA1A875D1C841459B
 magnet:?xt=urn:btih:FA7E75C10E6E300BA3673DAF76D0541680BCD5EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ magnet:?xt=urn:btih:FA7E75C10E6E300BA3673DAF76D0541680BCD5EE
 ```bash
 magnet:?xt=urn:btih:31AEF678C092A29CD1A73D12D489730ABF896CA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +437,8 @@ Rоb Orlemans & Half Past Midnight - голландское трио, играю
 magnet:?xt=urn:btih:BC95B93CC1E066A2AC83AB66E5971F89C94F45FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:BC95B93CC1E066A2AC83AB66E5971F89C94F45FF
 ```bash
 magnet:?xt=urn:btih:C936F6464F0446AD32C7D3149F19216FC625AEDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +490,8 @@ MX5 - новая версия веб-браузера от Maxthon для Window
 magnet:?xt=urn:btih:202FFD245C6A564AC0AEFC698E30D97C38202476
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:202FFD245C6A564AC0AEFC698E30D97C38202476
 ```bash
 magnet:?xt=urn:btih:1C2E73496032185CFBE4C6221EA1869802AE601F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:1C2E73496032185CFBE4C6221EA1869802AE601F
 magnet:?xt=urn:btih:3EFBC1E2DEA82BABF67C0B1BA0A4EE66EFA4C7EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ magnet:?xt=urn:btih:3EFBC1E2DEA82BABF67C0B1BA0A4EE66EFA4C7EC
 magnet:?xt=urn:btih:028E297601F622C8E64614A3D94917BEA0E1C016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ Stella no Mahou | Magic of Stella | Магия Стеллы [2016, TV + OVA, 12 
 ```bash
 magnet:?xt=urn:btih:36941928C806F12B85365719A2C471CD874DFBFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +625,8 @@ L'Orange & Jeremiah Jae - The Night Took Us In Like Family (2015) [MP3|320 kbps]
 magnet:?xt=urn:btih:34EA730045C99508373067D96A8E9E284625AE9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ CD 1:
 magnet:?xt=urn:btih:76EFDC6D48B03F20EE5DCD2AE3D71A064B455773
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ magnet:?xt=urn:btih:76EFDC6D48B03F20EE5DCD2AE3D71A064B455773
 magnet:?xt=urn:btih:C762094DB5DEAD334A2737A3F2BC5E7848561017
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ Wise Registry Cleaner - утилита для безопасной чистки 
 ```bash
 magnet:?xt=urn:btih:309F7660A9BAC9F64A7E14677ADBB3AB2546B9D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

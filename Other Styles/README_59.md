@@ -28,6 +28,8 @@ Orbital - Pusher / Дилер (2012) [MP3|320 кб/с]<Score>
 magnet:?xt=urn:btih:C630B08FB88D9B630EB7F7F41490005777D50AF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ El Chido - Ghost Recon Wildlands: Corrido - The Sounds of Santa Blanca (2017) Ba
 ```bash
 magnet:?xt=urn:btih:288D753447228B99BD7AE8D3BE6C8D7F85C23443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ Two Steps from Hell - Illumina (2018) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:6038B23DB783393F15ED5D9EB87C272CD6EEBE2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ Mick Gordon - DOOM (Original Game Soundtrack) (2016) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:B74C811726087EDBC203BBA0656F0E4A57460E5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +144,8 @@ Classic Rock Orchester London - Classic & pop (1993) [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:C123FD09CA1AD4F386F16C1BBF38225350E5719F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +172,8 @@ Gavri - Global Inspiration (2006) [MP3|320 Kbps] <New age, World beat, Ambient>
 ```bash
 magnet:?xt=urn:btih:6CFDA2FB780309BF3FE73FEE479BC61206680C19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ Geoff Knorr, Roland Rizzo, Phill Boucher - Sid Meier's Civilization VI (Original
 magnet:?xt=urn:btih:B10FA9F0E0DB22A269FD016DC933EEA76A4E581F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ Geoff Knorr, Roland Rizzo, Phill Boucher - Sid Meier's Civilization VI (Original
 ```bash
 magnet:?xt=urn:btih:249B4D84C7A8B474C3262EFAE6CE6CA0B400EA72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +266,8 @@ Shakta Kaur Khalsa - Women's Yoga Music (2010) [MP3|320 kbps]<New Age, Easy List
 magnet:?xt=urn:btih:95E01D054886815031B09472979C62585DE975E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +294,8 @@ Ramin Djawadi - Игра Престолов / Game of Thrones (Season 1-7) (2011
 ```bash
 magnet:?xt=urn:btih:2167130CFED798D80E357F2755599DD1F648ED3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +328,8 @@ Chris Spheeris - Maya (2012) [FLAC|Lossless]<New Age, World>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +356,8 @@ Deuter - Dreamtime (2013) [FLAC|Lossless|tracks + .cue] <Meditative, New Age>
 ```bash
 magnet:?xt=urn:btih:051E00912CE1A385ADA534B20DF45EF97D284E44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +386,8 @@ Yoga Music Masters - Life Balance Meditations (2020) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:E6B440F2DC0BD7D5AB18DA645D3025F3EFE9C860
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +414,8 @@ Longhouse - Native Chants (2019) [MP3|192 Kbps] <Native American, World, Folk>
 ```bash
 magnet:?xt=urn:btih:9D9D5D5B40AFD8C014157408AABA3487E1990C1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +444,8 @@ Taylor Davis - Odyssey (2016) [MP3|320 Kbps] <Instrumental, Soundtrack>
 magnet:?xt=urn:btih:4A83D03DBDEF41F5D7009B094C0CAB6026BF8465
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +472,8 @@ VA - Acoustic 90s Covers (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumenta
 ```bash
 magnet:?xt=urn:btih:59FF69E961D66C545DE8764AA67C09BC3C825B65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +502,8 @@ Govi - The High Road (2015) [FLAC|Lossless]<New Age, New Flamenco>
 magnet:?xt=urn:btih:322F6B260A2CEF84DE8C5DD3C2B4D9D662077936
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +530,8 @@ Angel Olsen - All Mirrors (2019) [FLAC|Lossless|tracks + .cue] <Indie Folk, Dark
 ```bash
 magnet:?xt=urn:btih:774461401C84D2746F094EA401E7F88DAC3AB57A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +566,8 @@ Ennio Morricone - So Sweet,So Sensual Erotica Morricone (2004) [MP3|320 кб/с]
 magnet:?xt=urn:btih:B09F10E507120504C41B31066599BE56D3065BAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +595,8 @@ Ottmar Liebert - Waiting n Swan (2015) [OGG| 459-495 кб/с]<Instrumental, Acou
 magnet:?xt=urn:btih:9E3260C5DDE5C95506F9D01FDC792E7C2BE9330C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +623,8 @@ Celtic Woman - Destiny (2015) [MP3|320 кб/с]<Celtic, New Age, World>
 ```bash
 magnet:?xt=urn:btih:061B1B8E506F0F8B4F59C63F8F982B74141FBA2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +655,8 @@ Steinar Lund - 3 albums (2001-2004) [MP3|320 kbps]<New age, Meditative>
 magnet:?xt=urn:btih:67A924FA410FCFD9C79DDE25245792CB8C564117
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +683,8 @@ Sad Music Zone - Emotional Sad Music (2015) [MP3|320 кб/с]<Instrumental,Easy 
 ```bash
 magnet:?xt=urn:btih:C4BCE8D683030A59F484908676CE048B47DE3955
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +713,8 @@ Eloy Fritsch - Cyberspace (2000) [FLAC|image+.cue]<Electronic, Ambient>
 magnet:?xt=urn:btih:908EEDA38DB649ECCC7813395CA88B40CCE7DEFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +741,8 @@ Yarek & Friends - Spirits Of The Dust (2010) [FLAC|image+.cue]<Electronic, Ambie
 ```bash
 magnet:?xt=urn:btih:1B187AD47F17F513E428D2E58A4D3CD86DE29F34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -726,6 +776,8 @@ Stewart Dudley - 12 albums (2000-2012) [MP3|320 кб/с]<New age, Instrumental, 
 ```bash
 magnet:?xt=urn:btih:6F515FAE816A11DAE3BE58DC48EC21CF98D12517
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

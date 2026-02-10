@@ -19,6 +19,8 @@ Shift 2 Unleashed – продолжение популярного автоси
 magnet:?xt=urn:btih:C91D98EC9115E1150FC28FAA9184D75E02F472BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Jet Set Radio (2012) [PS3] [USA] 3.55 [PSN] [En]
 magnet:?xt=urn:btih:19873966FB8A797E41AB8FB2BC2F47346251ED58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ ZombiU (2012) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7BADBEC09D1E2C9CA0C5C85D4DA9FD238BC77070
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ MultiMan Singstar L-Repack (2016) [PS3] [4.78.02] [Unofficial] [Ru/Multi]
 magnet:?xt=urn:btih:FCC8CE95FF4C8D2B9F89827D6E89C7C87BF175CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Art Academy: Atelier превратит ваш контроллер Wii U GamePa
 ```bash
 magnet:?xt=urn:btih:5CE6B1142A5BFCFC47827D8D648C0EC9A0A22C5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Nintendo Land – парк развлечений, состоящий из 12 а
 magnet:?xt=urn:btih:57E855EB5AC02576FCC0C2DCAC69D57B2F9B3CAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Dragon Ball: Raging Blast 2 (2010) [PS3] [EUR] 3.42 [Cobra ODE / E3 ODE PRO ISO]
 ```bash
 magnet:?xt=urn:btih:7C1A90398FB886998CFFA4623A0FCF3D5F3BC165
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Top Spin 4 [Wii] [PAL] [Multi 3] (2011)
 magnet:?xt=urn:btih:6BF0D20E3E3E89E6E970FF2A4722B7FA6ABBA044
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Super Mario 3D World (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:F6D99D6E122DBF14179C601C77B5E178BA02CCDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Teenage Mutant Ninja Turtles: Turtles In Time Re-Shelled (2009) [Xbox360] [FreeR
 magnet:?xt=urn:btih:D56897F40F7D95DECFE34E1BC8BD7330A3B195E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Battle vs. Chess: Королевские битвы [PS3] [EUR] [Ru] [3.56] [Cob
 ```bash
 magnet:?xt=urn:btih:B71D48489B322AB4E5280BEEE4277A2A125E2003
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:B71D48489B322AB4E5280BEEE4277A2A125E2003
 magnet:?xt=urn:btih:DD8B3B70F2C944B254AB809BD4F1811B15F5973E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Racquet Sports состоит из 5 увлекательных спортивн
 ```bash
 magnet:?xt=urn:btih:E453A8BC0267F49531FC136DD578B66C17DDE56B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Diablo III: Eternal Collection (2018) [Switch] [USA] 10.2.0 [NSP] [License / 2.7
 ```bash
 magnet:?xt=urn:btih:FD8ABB13734309658EA4031EA918DD14FD5FE515
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Prince of Persia: The Forgotten Sands / Принц Персии: Забытые 
 magnet:?xt=urn:btih:842FA444C526234B58718668EB27612F071E6D5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Naruto Shippuden: Ultimate Ninja Storm 4 Road To Boruto (2020) [Switch] [EUR] 9.
 ```bash
 magnet:?xt=urn:btih:CCC6B18F86158FBCFB049FDBC7C3DB05B0DB3FBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ Far Cry 3: Blood Dragon — это убойный кибер-шутер, кот�
 magnet:?xt=urn:btih:A6998CD3BC35EBE00048C6EA85A8253981FE4822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ The Bridge - это двухмерная логическая игра, в хо�
 ```bash
 magnet:?xt=urn:btih:EE60E721924F9D2AD7CF1F8DA9707A12B6191106
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Tales from Space: Mutant Blobs Attack – платформер, который �
 magnet:?xt=urn:btih:5D7114743B84E212686AFA759BAF7838C84A836F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Ace Combat: Assault Horizon [PS3] [+3D] [EUR] [RUS/ENG] [3.70] [Cobra ODE / E3 O
 magnet:?xt=urn:btih:3DA768D74BBBDFD769AD9AAA8D62FA1BF4D7E032
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Kidz Sports: Ice Hockey [Wii] [English] [NTSC-U] (2008)
 ```bash
 magnet:?xt=urn:btih:E1F9F2B38D38B69325B5DB9794847D8C5BA57472
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Tom Clancy’s Rainbow Six: Vegas (2007) [PS3] [USA] 1.70 [Cobra ODE / E3 ODE PR
 magnet:?xt=urn:btih:87BABCE692EA8928071C00578959CAEF8E52ACFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ Disney Princess: Enchanted Journey [Wii] [NTSC] [ENG] (2007)
 magnet:?xt=urn:btih:51A5DE1A63BBB2D0BA34B9A24B7D11642CF0F863
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Active Life Explorer - это семейная игра, в которой вы 
 ```bash
 magnet:?xt=urn:btih:14C704067C71054ABD9D7B2E90178CB9E3A043B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ The Nameless Game (2008) [NDS] [JPN] [Unofficial] [En]
 magnet:?xt=urn:btih:075361E65C1CAC979D176198D9FA30BA39311A3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Infernal: Hell's Vengeance / Infernal: Дьявольщина (2007) [Xbox360] [
 ```bash
 magnet:?xt=urn:btih:C7AF28CAF6778F19773FC63A25171F5B7347F20B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

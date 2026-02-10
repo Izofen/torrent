@@ -1,3 +1,29 @@
+###  Публикация: 989898   (911863) от 25.02.2016
+
+Красный лед / Red Ice (2014) SATRip
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глобальное потепление влияет на климат всей Земли, но на полюсах его последствия особенно заметны. Несмотря на удаленность полярных зон от прочих регионов, таяние льдов и вечной мерзлоты сказывается на инфраструктуре городов и на животном мире, вызывает природные катаклизмы и замедляет движение Гольфстрима. Ситуация может приобрести красный уровень опасности. Климатические (   Читать дальше...   )Телекомпания: США, Intuitive Productions and SomadromeЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D476D826DB203C512FE359771C71F58759F885C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990592   (911866) от 25.02.2016
 
 XX съезд. Годовщина (2016) SATRip
@@ -18,6 +44,8 @@ XX съезд. Годовщина (2016) SATRip
 ```bash
 magnet:?xt=urn:btih:5416F6C29F925B297090D3DDAF59F5C3BF486245
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:5416F6C29F925B297090D3DDAF59F5C3BF486245
 magnet:?xt=urn:btih:8FF5C5763ED087979E21B4EA288CCDCF6C1BB0F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:8FF5C5763ED087979E21B4EA288CCDCF6C1BB0F6
 ```bash
 magnet:?xt=urn:btih:43A43D4936C60C434CB5C2121478B7095F368292
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:43A43D4936C60C434CB5C2121478B7095F368292
 magnet:?xt=urn:btih:9FB1ED5F5D57C697430397D72B564D7C8D730933
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:9FB1ED5F5D57C697430397D72B564D7C8D730933
 magnet:?xt=urn:btih:9FED6F22CF5059CB2603DD3E9407A8CAFD0F52D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +174,8 @@ magnet:?xt=urn:btih:9FED6F22CF5059CB2603DD3E9407A8CAFD0F52D9
 ```bash
 magnet:?xt=urn:btih:137C2B6438D98F4EE3CF159CCC18A7AAA775A99D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:137C2B6438D98F4EE3CF159CCC18A7AAA775A99D
 magnet:?xt=urn:btih:872FB0F4684B7E954E4D863CC786856D88756E57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:872FB0F4684B7E954E4D863CC786856D88756E57
 ```bash
 magnet:?xt=urn:btih:E38B0C1525B2EB8DDCBD51CECDBB15601E38BFE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:E38B0C1525B2EB8DDCBD51CECDBB15601E38BFE9
 magnet:?xt=urn:btih:22819083910A9EAF67323CAC1B7C0E6C05226230
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:22819083910A9EAF67323CAC1B7C0E6C05226230
 ```bash
 magnet:?xt=urn:btih:1D2DCCA95FC47C8895FD61C4FF656972263216F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:1D2DCCA95FC47C8895FD61C4FF656972263216F8
 magnet:?xt=urn:btih:28CE4CF9A3AF3E8ECCE00CEFE9BDDBC98DE1E77B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:28CE4CF9A3AF3E8ECCE00CEFE9BDDBC98DE1E77B
 ```bash
 magnet:?xt=urn:btih:AF3316BADFDD6AFB9D2C701616B7F259E7733249
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:AF3316BADFDD6AFB9D2C701616B7F259E7733249
 magnet:?xt=urn:btih:33A1CD8EF0DC4C0720059958D3E5DD89C2BEEA13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:33A1CD8EF0DC4C0720059958D3E5DD89C2BEEA13
 ```bash
 magnet:?xt=urn:btih:72FFAE64AA3C8A810D21F57AC3F4564E9A9A27B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:72FFAE64AA3C8A810D21F57AC3F4564E9A9A27B7
 magnet:?xt=urn:btih:7E3A83E87980F118858DB3DEFC71FCC83B2E8168
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:7E3A83E87980F118858DB3DEFC71FCC83B2E8168
 ```bash
 magnet:?xt=urn:btih:201ADB87966D1228A18C9E91CA553519243BA173
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:201ADB87966D1228A18C9E91CA553519243BA173
 magnet:?xt=urn:btih:541AE542A90B9AE24913E7A27B07DC9C6841C8FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:541AE542A90B9AE24913E7A27B07DC9C6841C8FD
 ```bash
 magnet:?xt=urn:btih:CD26BDB4AF40D83046962E297B74836263E1B09E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:CD26BDB4AF40D83046962E297B74836263E1B09E
 magnet:?xt=urn:btih:7658BB6EB3C20672D18A411A1CB56A57EC46D811
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:7658BB6EB3C20672D18A411A1CB56A57EC46D811
 ```bash
 magnet:?xt=urn:btih:C1509F104BF5C976350AD6E3EA59F6B35A890692
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:C1509F104BF5C976350AD6E3EA59F6B35A890692
 magnet:?xt=urn:btih:68203077F91FC5AA24CFD877DE439D716923C106
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:68203077F91FC5AA24CFD877DE439D716923C106
 ```bash
 magnet:?xt=urn:btih:2B28E3DA614E394EA0224BE25E828657E7B95969
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:2B28E3DA614E394EA0224BE25E828657E7B95969
 magnet:?xt=urn:btih:0E9AC6F3157D613E6B09F931AED9CF72BF255A66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:0E9AC6F3157D613E6B09F931AED9CF72BF255A66
 ```bash
 magnet:?xt=urn:btih:2052C81E4AE4E68F3128ABB6BD1D47D21EE10026
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,29 +672,7 @@ magnet:?xt=urn:btih:2052C81E4AE4E68F3128ABB6BD1D47D21EE10026
 magnet:?xt=urn:btih:45CB86307D05532569C303ABB32AFFCA190A5894
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098104   (912594) от 28.01.2017
-
-Подмосковные вечера (2017.01.28) SATRip (выпуск 20)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зрителям представится возможность попасть на веселую вечеринку, где соберутся известные в самых разных областях люди. Присоединяйтесь к веселью! Иван Ургант, Тимур Родригез, Михаил Галустян, Нюша, Иван Охлобыстин, участники "Квартета И", Елка, Александр Ревва, Анна Хилькевич, Максим Виторган и другие составят вам компанию. Звезды разделятся на команды, (   Читать дальше...   )Телекомпания: Первый каналЖанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F1C5C16F19E50D969FF27D622D458ED6A19F8FB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

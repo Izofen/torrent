@@ -19,6 +19,8 @@ Tricky Doors / Хитрые двери (2024) [Ru] (1.0) Unofficial
 magnet:?xt=urn:btih:74064FE7BC7281138BBB92814AF008328E48F2C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Starship Troopers: Terran Command - это захватывающая страт
 ```bash
 magnet:?xt=urn:btih:831239667D477B8BB100A9C1434F7081A01121CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/M
 magnet:?xt=urn:btih:30A13C8DC1156477BA38818EAE1A385C1BD4A501
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Fate/Samurai Remnant (2023) [Multi] (1.3.1/dlc) Scene Rune [Digital Deluxe Editi
 ```bash
 magnet:?xt=urn:btih:CFD84C9FB1AB92A234E7ED7216C325BDA716C573
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Jack Holmes: Master of Puppets - хоррор на выживание от пе�
 magnet:?xt=urn:btih:8272E3811A5A4A28C478D6BD519D631ADFF23F76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ A Castle Full of Cats позволяет игрокам отправиться �
 ```bash
 magnet:?xt=urn:btih:E053429E32BE5823EC6672A86C4DF454B935DA6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Night is Grey наполнена мрачной атмосферой тем�
 magnet:?xt=urn:btih:8507DE5220A4F6B9824AFFC302B47E51060518BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ DNF Duel является ответвлением корейской франш
 ```bash
 magnet:?xt=urn:btih:F89415011638395B8930B865EFBEFF65CE845DDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Fix it - The Handyman Simulator сделает вас мастером, кото
 magnet:?xt=urn:btih:52DEF0B7E825F8AB391085BCF5AEF623145E8C80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ HORROR TALES: The Beggar бросает вас с головой в разруш
 ```bash
 magnet:?xt=urn:btih:5FE7CBD2DA8C60D61F21095324F07F33B09907DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Myth Or Reality 3: Snowbound Secrets / Мифы или реальность 3: �
 magnet:?xt=urn:btih:77C824CB3330CB20905670BEBB5EE2C507E5C95D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Chiyo - это посвященный японской мифологии инд
 ```bash
 magnet:?xt=urn:btih:CB5BF4D710B25F91176FA05483F90FF244BEC266
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Cooking Simulator (2019) [Ru/Multi] (6.0.1/dlc) Repack FitGirl
 magnet:?xt=urn:btih:6371C2BD50C16C31A4C0EA61B0F30B999312F6D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Redout 2 – аркадный гоночный симулятор, событи�
 ```bash
 magnet:?xt=urn:btih:822674B1DEC040787556F77EC2C103AEEB8703B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.2) Scene FairLight
 magnet:?xt=urn:btih:82F4D003B3673CE1C8ACFDFBA7112C6E2A9BC025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Smurfs - Village Party (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CC8570C1CF17FFB8B7E52A3478D74587D865224D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ BYTES: The Reverse Tower Defense – это вариация традицион�
 magnet:?xt=urn:btih:6AF11F9DB4BC93DED0D1745601FB2782C5F40A08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Loser Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E0D6220D757AF071620038592E10CBA5CEE606A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Pinball M (2023) [Multi] (1.0.4/dlc) Repack FitGirl
 magnet:?xt=urn:btih:D8D967D8781E7CB2BC818C42F90B94842E289759
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Cosmotroid – постарайтесь как можно скорее поки�
 ```bash
 magnet:?xt=urn:btih:56915E88ACFAC5060BC48499A242D12A073BBA9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Whacking Hell! - безумный 2D-шутер с видом сверху и э
 magnet:?xt=urn:btih:BACB3D7E7F919C35014AA2E2930FD88ACF625284
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ DOOM Eternal от id Software – прямое продолжение хита D
 ```bash
 magnet:?xt=urn:btih:6B886E22CBEB80B183C83166CB976ECE4DAB911C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ magnet:?xt=urn:btih:6B886E22CBEB80B183C83166CB976ECE4DAB911C
 magnet:?xt=urn:btih:B21BC6314DBF6467F3B2697D563F72BCBBC76B27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Q.U.B.E. 10th Anniversary - переиздание культовой голов
 ```bash
 magnet:?xt=urn:btih:1177FF3F077DBE5A551868310F886794B56EE7C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ My Little Pony: A Zephyr Heights Mystery отправляет игроков в 
 magnet:?xt=urn:btih:7B89D7BC2DDEB1BF60262801E425F169449F8A98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ My Little Pony: A Zephyr Heights Mystery отправляет игроков в 
 ```bash
 magnet:?xt=urn:btih:0AF8B33375E3FF0822A0EA87A19DB8FA28AE8EC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

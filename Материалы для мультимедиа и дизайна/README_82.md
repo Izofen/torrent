@@ -19,6 +19,8 @@ Pink Floyd MIDI Collection [MIDI]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Cборник PSD файлов для Adode Photoshop от студии Asadal &
 ```bash
 magnet:?xt=urn:btih:3C0719E4A24C4059E81666DC31190C7987005709
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Dance Midi Samples Darwins Piano Sessions Vol.1 [MIDI, WAV Samles][англий�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Dance Midi Samples Darwins Piano Sessions Vol.1 [MIDI, WAV Samles][англий�
 ```bash
 magnet:?xt=urn:btih:6EBB1CC58B54A368FB8BC5FC3AC7A50F8DB1C30D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:6EBB1CC58B54A368FB8BC5FC3AC7A50F8DB1C30D
 ```bash
 magnet:?xt=urn:btih:7A4FFAF1D3711C9B0D8DEE53C77814B6899E79E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:7A4FFAF1D3711C9B0D8DEE53C77814B6899E79E8
 magnet:?xt=urn:btih:44CF0680A6BF69435A1771D2FC75179960CE6C77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:44CF0680A6BF69435A1771D2FC75179960CE6C77
 magnet:?xt=urn:btih:4A561F7075EBDE40C0802606BF872159415F025D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Molgli's - Twisted UK Hardcore 2 NI Massive Soundset Bonus Audio & MIDI [анг�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Molgli's - Twisted UK Hardcore 2 NI Massive Soundset Bonus Audio & MIDI [анг�
 magnet:?xt=urn:btih:17385E480BE395F7D4D3F8373584F794C42C6C45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ Dance Midi Samples -  Deep Trance Riffs MIDI Vol.1 [английский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ Dance Midi Samples -  Deep Trance Riffs MIDI Vol.1 [английский]
 magnet:?xt=urn:btih:8AF5777487674BBA9E56B40059180D2570221567
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ Cборник PSD файлов для Adode Photoshop от студии Asadal &
 ```bash
 magnet:?xt=urn:btih:D4338AF3834E609CF1F052B89427F06DDF2CF535
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:D4338AF3834E609CF1F052B89427F06DDF2CF535
 magnet:?xt=urn:btih:C5BBB709989F59BD1C3EF052FB3CE99D09320C24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:C5BBB709989F59BD1C3EF052FB3CE99D09320C24
 ```bash
 magnet:?xt=urn:btih:A104F19D23F933BCB0608424268A322E89CC2F05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:A104F19D23F933BCB0608424268A322E89CC2F05
 magnet:?xt=urn:btih:DE5D7B5E36DF2FF494E3DD43BF8CDEFF072E89B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ Cборник миди-файлов для транс-музыки от DMS.На
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ Cборник миди-файлов для транс-музыки от DMS.На
 magnet:?xt=urn:btih:2B8533D8905CC5A81FC50A49A7D8364EEEA0DFB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ Groove Monkee MIDI Bundles [английский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ Cборник PSD файлов для Adode Photoshop от студии Asadal &
 magnet:?xt=urn:btih:65D06E9AE9BE4B74D77ECA90D07BFED440D92C54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:65D06E9AE9BE4B74D77ECA90D07BFED440D92C54
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:65D06E9AE9BE4B74D77ECA90D07BFED440D92C54
 ```bash
 magnet:?xt=urn:btih:F30F8A7AE4F6418E78FEE68F2D6D1BFE3C070155
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:F30F8A7AE4F6418E78FEE68F2D6D1BFE3C070155
 magnet:?xt=urn:btih:7DD664E05815ED90F6EEA10DB3F588D4D71294DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ magnet:?xt=urn:btih:7DD664E05815ED90F6EEA10DB3F588D4D71294DB
 magnet:?xt=urn:btih:F339583E3DE28661B67066F8AD6F2494F0D0042E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ Tonic Audio - Soulful House Grooves [MIDI][английский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ Tonic Audio - Soulful House Grooves [MIDI][английский]
 magnet:?xt=urn:btih:179A4853E0F085885C2C671E49C9832A3B046076
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ magnet:?xt=urn:btih:179A4853E0F085885C2C671E49C9832A3B046076
 ```bash
 magnet:?xt=urn:btih:5DE69D0CA7D78B3EE621C84E0FD400B2D8BD26D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

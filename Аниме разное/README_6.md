@@ -19,6 +19,8 @@ Crusher Joe: Saishuu Heiki Ash / Крушила Джо OVA-2 [OVA] [1 эп.] [З
 magnet:?xt=urn:btih:A89C2DA3070E85FE8B08037F52E3A82CB125C872
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Crusher Joe: Hyouketsu Kangoku no Wana / Крушила Джо OVA-1 [OVA] [1 э
 magnet:?xt=urn:btih:E7EABB2B0A9A79B872298A025E68E90E1232B731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Mo Dao Zu Shi | Grandmaster of Demonic Cultivation | Магистр Дьявол
 ```bash
 magnet:?xt=urn:btih:458017F6FACFBEA7A3CCB4060CD7C79DB660184F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Autumn 2019 Anime Preview | Осень 2019 Превью Аниме [2019, об�
 magnet:?xt=urn:btih:D90709D4E8E4CBE589514D48ED2FEA86AD7E5016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Akira | Акира [1988, Movie] Blu-Ray 1080p raw+rus
 magnet:?xt=urn:btih:4AAC75741610F8ACBC767CFB36F0A2CA206FA1D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Gin no Guardian | The Silver Guardian | Серебряный страж [TV1+TV2
 ```bash
 magnet:?xt=urn:btih:59EF3827C654A47AF6F370D87C03937D658E8296
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Senjuushi | The Thousand Noble Musketeers | Тысяча благородных 
 magnet:?xt=urn:btih:AA9C85C3EDCEAD29D439656CCB3E3E92E439AA27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ To Be Heroine | Tu Bian Ying Xiong LEAF | Стать героиней [2018, ONA
 ```bash
 magnet:?xt=urn:btih:6C16D7249A008202D32F5196B8446A626BB3B74F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:6C16D7249A008202D32F5196B8446A626BB3B74F
 magnet:?xt=urn:btih:11BCA7CBABB6FB5D69CCCFFE984304A608A06189
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Ling Jian Zun | Spirit Sword Sovereign | Владыка духовного ме�
 ```bash
 magnet:?xt=urn:btih:7819B5EF67C975A25F5EC637D45818ECBD011E01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Wan Jie Xian Zong | Страна десяти тысяч чудес [2018-2019, 
 magnet:?xt=urn:btih:74824D595EB96D645C2273382CA74A9360FC8301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Wang Gu Shenhua Zhi Tian Xuan Zhe | Metaman | Метачеловек: избра
 ```bash
 magnet:?xt=urn:btih:910FC0573DE0A2C3E1AA784A778549FD3D889597
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Shiyan Pin Jiating | Семейка Франкенштейн [2018, TV, 11 из 
 magnet:?xt=urn:btih:E97FA66FFBBAB3B2BC787E05E8F711216C81F788
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Hotaru no Haka / Grave of the Fireflies /  Могила светлячков [19
 ```bash
 magnet:?xt=urn:btih:F7252359088E10501468185CD6FAC3CF87991AE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Kokoro ga Sakebitagatterunda / The Anthem of the Heart / Сердцу хочет
 magnet:?xt=urn:btih:577840A5AF9D5874CB0E1ED8E997D8070B4A3DC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Robot Carnival / Карнавал роботов [1987, OVA] DVD5 raw+rus
 ```bash
 magnet:?xt=urn:btih:AC3DB33AE5AE524C8D2AFB771500760221995E19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Macross - Super Deformed OP
 magnet:?xt=urn:btih:0896C713DC838CA25AA21F568291270BBA6DEA13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Canaan / Ханаан [TV] [13 из 13] [Звуковая дорожка 3df voi
 magnet:?xt=urn:btih:F58A0DA3778E91B6287C28BFE297E1A90FA7682D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Tanin no Kankei / Homeroom Affairs / Классный роман [1994, OVA, 2 e
 ```bash
 magnet:?xt=urn:btih:DDB358A3C987742640FA2C4083E4F02961C8701C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Gekijouban Blood-C: The Last Dark | Кровь-С: Последняя тьма [
 magnet:?xt=urn:btih:B445751B9DA9B94B3A3ADA4AA751C49628EB8C59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Roujin Z / Старик Зет [1991] Blu-Ray raw+rus
 ```bash
 magnet:?xt=urn:btih:E15C15937B58DC9E64221BEC1EBBBA676DE4DBAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Shelter / Убежище [2016, ONA, 1 из 1] WEBRip 1080p HS
 magnet:?xt=urn:btih:1039F65D993FF8DAC8FABA20529C725D8E9B0FB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:1039F65D993FF8DAC8FABA20529C725D8E9B0FB9
 magnet:?xt=urn:btih:B8A10330A3BDC22AF3DF1B99CE4D7C12D6F57AA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Fireworks | Uchiage Hanabi, Shita kara Miru ka? Yoko kara Miru ka? | Откуд�
 ```bash
 magnet:?xt=urn:btih:2D6C01D4188BF57E227F584F632E2469A67CEA01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Ginga Eiyuu Densetsu: Waga Yuku wa Hoshi no Taikai | Legend of Galactic Heroes (
 magnet:?xt=urn:btih:2F00D44BE435326E7FEA2FBBF58D655BBB4F3C6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Ginga Eiyuu Densetsu Gaiden: Ougon no Tsubasa | Legend of Galactic Heroes (Movie
 ```bash
 magnet:?xt=urn:btih:6BDDC4E3E72986E4BE0FA21744E99BB87635813A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

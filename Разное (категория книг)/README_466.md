@@ -1,3 +1,29 @@
+###  Публикация: 1221533   (691368) от 26.04.2018
+
+С. И. Ковалев | Миф об Иисусе Христе (1954) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691368.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре рассматривается происхождение и развитие мифических представлений об основателе христианской религии, показаны их место и роль в рабовладельческом обществе.Жанр: История, политология, мифология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C435850AA74C85DE1E24F5FC8A9223EE83F49F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221717   (691467) от 26.04.2018
 
 Б. Х. Цавкилов | Идеология ислама - злейший враг дружбы и равноправия народов (1963) [DJVU]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:E40AD71483E9E8E1ED1808FCBDB0B1F94E22016E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:E40AD71483E9E8E1ED1808FCBDB0B1F94E22016E
 magnet:?xt=urn:btih:80364F8108D4CF2E42DBE7D151DB8A51351A787A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:80364F8108D4CF2E42DBE7D151DB8A51351A787A
 magnet:?xt=urn:btih:1331C3A4592D4EA7830A9E81992315CB1022CCCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:1331C3A4592D4EA7830A9E81992315CB1022CCCB
 ```bash
 magnet:?xt=urn:btih:BF0978A0CB00C73D2715B602B86B8EEA4ED3E7E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:BF0978A0CB00C73D2715B602B86B8EEA4ED3E7E2
 magnet:?xt=urn:btih:E40DDE73850780C48D77E75A5AE66B11E78F9B4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:E40DDE73850780C48D77E75A5AE66B11E78F9B4B
 ```bash
 magnet:?xt=urn:btih:EACC4338D71C97F7693C6B0A3666D5404623C3F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:EACC4338D71C97F7693C6B0A3666D5404623C3F7
 magnet:?xt=urn:btih:4A2D3AC52061BB39794064D3CBDA21D22704BA39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:4A2D3AC52061BB39794064D3CBDA21D22704BA39
 ```bash
 magnet:?xt=urn:btih:2E6A2233675C7B755CA11D3CF71932932EFCC2F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:2E6A2233675C7B755CA11D3CF71932932EFCC2F5
 magnet:?xt=urn:btih:AC9A7F8D90CA4D878986ABCA7123408C9E10A956
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:AC9A7F8D90CA4D878986ABCA7123408C9E10A956
 ```bash
 magnet:?xt=urn:btih:B1EBED81F8685EAB5750771BF6A4DD658929272F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +314,8 @@ magnet:?xt=urn:btih:B1EBED81F8685EAB5750771BF6A4DD658929272F
 magnet:?xt=urn:btih:86158A307FD219522C903F15E666EC9BFCB599C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:86158A307FD219522C903F15E666EC9BFCB599C8
 ```bash
 magnet:?xt=urn:btih:4BB5C3BB06DF27AC77B5DCE2DA9857AB3D9B451A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +370,8 @@ magnet:?xt=urn:btih:4BB5C3BB06DF27AC77B5DCE2DA9857AB3D9B451A
 magnet:?xt=urn:btih:0160AE7BC0D86ADF33D6A61CCA136E371EA81F91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +395,8 @@ magnet:?xt=urn:btih:0160AE7BC0D86ADF33D6A61CCA136E371EA81F91
 ```bash
 magnet:?xt=urn:btih:F960DBA26643B2B631A6B631ED6B2C2C4F5D3E47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +423,8 @@ magnet:?xt=urn:btih:F960DBA26643B2B631A6B631ED6B2C2C4F5D3E47
 magnet:?xt=urn:btih:E3ABEFF2897C71B47A55DA2452405AAD35DBADAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +448,8 @@ magnet:?xt=urn:btih:E3ABEFF2897C71B47A55DA2452405AAD35DBADAA
 ```bash
 magnet:?xt=urn:btih:C4C4670E5E369665171E02A0471931382EB546FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +475,8 @@ magnet:?xt=urn:btih:C4C4670E5E369665171E02A0471931382EB546FA
 magnet:?xt=urn:btih:39D357EAA7BC03B5ED70B16D4B483C1641E21968
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +500,8 @@ magnet:?xt=urn:btih:39D357EAA7BC03B5ED70B16D4B483C1641E21968
 ```bash
 magnet:?xt=urn:btih:97F717CEAC22BFA0D3480B16266619E47F65B83A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +527,8 @@ magnet:?xt=urn:btih:97F717CEAC22BFA0D3480B16266619E47F65B83A
 magnet:?xt=urn:btih:1D371B66CCAA0206454024002338FB9C74923DC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:1D371B66CCAA0206454024002338FB9C74923DC3
 ```bash
 magnet:?xt=urn:btih:AA8BD18F146686057AFA83504D2C4A8806C90389
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:AA8BD18F146686057AFA83504D2C4A8806C90389
 magnet:?xt=urn:btih:33AB59B1ABFB5B16824CC0890362F10A8BB798D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:33AB59B1ABFB5B16824CC0890362F10A8BB798D1
 ```bash
 magnet:?xt=urn:btih:BBFDEC73DD361C3A20DB73A0E8470B9CA6D68BC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:BBFDEC73DD361C3A20DB73A0E8470B9CA6D68BC7
 magnet:?xt=urn:btih:B236768682CC80AC3F0EFF4C66B632721F041293
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:B236768682CC80AC3F0EFF4C66B632721F041293
 ```bash
 magnet:?xt=urn:btih:10B352EC1F220377D614858BF1C922054479217B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,29 +683,7 @@ magnet:?xt=urn:btih:10B352EC1F220377D614858BF1C922054479217B
 magnet:?xt=urn:btih:B455626DBD30B0102E01410ECE28E6C82EE02051
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221379   (692882) от 25.04.2018
-
-Максим Малявин | Психиатрия для самоваров и чайников (2018) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Максим Малявин в психиатрии около двух десятков лет. В последние годы известен в Рунете; вместе с женой Оксаной, тоже психиатром, ведет в Живом журнале «Блог добрых психиатров». Если верить довольно расхожей сентенции, то в психиатрии кто первый надел халат и занял место по нужную сторону рабочего стола – тот и доктор. По слухам, желательно еще иметь кое-какое представление (   Читать дальше...   )Жанр: ПсихиатрияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28E33AEECFCCDB838651CDCCE1E3A8FAB771D252
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

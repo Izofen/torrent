@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5460E83345D6271EDB035C168B2BCDD0B4956524
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.2.0/dlc) Scene Rune [Digital Deluxe Editi
 ```bash
 magnet:?xt=urn:btih:B9D6223A9DF8EFD77E1052FDDF419CA85B83B907
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Neighbours Back From Hell (2020) [Ru/Multi] (1.2.1) License GOG
 magnet:?xt=urn:btih:77CAA2362EE9EF9A98AA7388AC4037BFB41E16C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Ubisoft Massive | Артбук по игре Tom Clancy's The Division / The Art
 ```bash
 magnet:?xt=urn:btih:88B57E34A98A5589ADE987A7377F93A864509821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:88B57E34A98A5589ADE987A7377F93A864509821
 magnet:?xt=urn:btih:DAA160E770751DC82CE43F6C413A79E0F569032A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ GoLand - это IDE от JetBrains, нацеленная на создание �
 magnet:?xt=urn:btih:962D3787699788596A93F8BECD892B5D47533B1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Magic Recovery Software 2023.04 Portable by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A0700CF07C09A871014D21FCAA50F4DBCA0E1770
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Aaron Blaise | How to Draw Wolves, Coyotes & Foxes (2020) WEB-DL [AD] [EN / EN S
 magnet:?xt=urn:btih:6362D08E37F879DBEC600372071C0D4CB736E62D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:6362D08E37F879DBEC600372071C0D4CB736E62D
 ```bash
 magnet:?xt=urn:btih:58410D2C955FB4142243966C15D9F21AE1872003
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ VA - Поехали (Мелодии и ритмы для пространств 
 magnet:?xt=urn:btih:73EB7A887C56D21E36C64932976CBEE75CEA2EE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Warhammer 40,000: Dawn of War Soulstorm (2008) [Ru] (1.2) Repack Necros
 magnet:?xt=urn:btih:6691770967F7F3AE5A03B7AD6B2C4426CC0C9BDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:6691770967F7F3AE5A03B7AD6B2C4426CC0C9BDB
 ```bash
 magnet:?xt=urn:btih:CEC8D34436014EE0C4ADA15F9949AA6827DBE222
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ Mskcinemaschool, Вадим Панасюк | «Кино на коленке 3.0�
 magnet:?xt=urn:btih:66F74F03CEC72DB647B6D613D17A99456F59F423
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ Flow Simulator - это инструмент трехмерного проект
 ```bash
 magnet:?xt=urn:btih:449C78564EDFB18F851060BCA01D1E88E0221FFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:449C78564EDFB18F851060BCA01D1E88E0221FFA
 magnet:?xt=urn:btih:22371921E9C1E9F1C15FAE4A0019CD0E32B96FA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:3F7CA593972CC81510B9A389173B87E9452DB7D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ Microsoft .NET 7.0.5 Runtime [Ru/En]
 magnet:?xt=urn:btih:4E43D361700490AE84F5E6162A69F9FDB880B37C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ OriginPro - пакет программ фирмы OriginLab Corporation для 
 ```bash
 magnet:?xt=urn:btih:636A383379DC1C5E54193AA8200B4C1056E7B4C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:636A383379DC1C5E54193AA8200B4C1056E7B4C9
 magnet:?xt=urn:btih:CE19D8DA62D316DB9664AB212DB5458ADCEDC81B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:CE19D8DA62D316DB9664AB212DB5458ADCEDC81B
 ```bash
 magnet:?xt=urn:btih:3158CE09B67CD4E80AA65C24DA5FE446B9EA1C39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ WinPaletter v1.0.7.0 Standalone [Ru/En]
 magnet:?xt=urn:btih:5CD5BD5DC27CCE7DDCFCCA9393986F008080F238
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:5CD5BD5DC27CCE7DDCFCCA9393986F008080F238
 ```bash
 magnet:?xt=urn:btih:827BA22AC891B3CC9EC880B101CC993E3DD84A36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:827BA22AC891B3CC9EC880B101CC993E3DD84A36
 magnet:?xt=urn:btih:E04BD1B41345A90165430EB60B38335D109D18A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:0EF348A2853F69C8B3801B7CB9B4711827EEEDF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Microsoft .NET 6.0.16 Runtime [Ru/En]
 ```bash
 magnet:?xt=urn:btih:06B4701A30FE16CAA8B9B43C619D8161F36BD694
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:06B4701A30FE16CAA8B9B43C619D8161F36BD694
 ```bash
 magnet:?xt=urn:btih:D08C112207ED8BA3401F071F319B7D5F08E570C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

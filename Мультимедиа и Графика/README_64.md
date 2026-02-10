@@ -19,6 +19,8 @@ DivX Converter 10.4.1 Portable by poni-koni [Ru]
 magnet:?xt=urn:btih:E119C86FDAD8BD71165348A14AAE82F423603FC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Heavyocity - Fury 1.0.0 VST 3, AAX (x64) RePack by MOCHA [En]
 ```bash
 magnet:?xt=urn:btih:FF9D799313EE9CF5BF1756DA3DB306F11706A660
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ StiX предлагает невероятное разнообразие зву
 magnet:?xt=urn:btih:E8545C9FA57EE20A8BB4BB25A75B2B06E400AF7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Tantrum — новый взгляд на плагины цифрового ис�
 ```bash
 magnet:?xt=urn:btih:B65074FDD2B64B87357BAA816AB852C5AA648BD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Helicon Remote — это программа для выполнения съе�
 magnet:?xt=urn:btih:6F155F0AE6923D2E681D77E032179360BE85BEF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Leawo Music Recorder 2.0.0.0 [En]
 ```bash
 magnet:?xt=urn:btih:306FBEC58545E57EB188A6C8B75D46713358A4B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ PhotoEQ - программное обеспечение для улучшени�
 magnet:?xt=urn:btih:9DB12EAEA76493047CE0C56762C52BA3FF1EC2AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ IDPhoto Processor предназначен для пакетной обрабо�
 ```bash
 magnet:?xt=urn:btih:7AADDCBE29A75657659B55C6D0D8DE4FB5B5C01D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Qimage Ultimate (22nd Anniversary Edition) 2020.101 [En]
 magnet:?xt=urn:btih:B3AAD2CAB1F7B86F2261A6143B6F1A391AB8DA72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ TuneBlade это простое приложение, которое позво�
 ```bash
 magnet:?xt=urn:btih:8F70A0DA5623C72DB51B586BB586450340C79FD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ FxSound Enhancer (бывший DFX Audio Enhancer) — звуковой плаг
 magnet:?xt=urn:btih:A07719F143AE9DF6A381E8336E85CD6CE5916D73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ After Effects CC — это ведущая в отрасли программа 
 ```bash
 magnet:?xt=urn:btih:E19D9E280D1E77E22EDE76B15945C4512AC0D204
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Ample Sound - Ample Guitar M III 3.1.0 VSTi, VSTi3, AAX x64 [En]
 magnet:?xt=urn:btih:EFFD1365A3A68974DE28F0A60B5CF2547704E752
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ DxO Optics Pro - профессиональное приложение, спос
 ```bash
 magnet:?xt=urn:btih:2238577869F534D31A563EECB82AC730B52A22FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ MAGIX Vegas DVD Architect - приложение для создания DVD-д�
 magnet:?xt=urn:btih:EF9121FA28CC9B64F30B02206045502C232BC2FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ TwistedBrush Paint Studio 4.16 [En]
 ```bash
 magnet:?xt=urn:btih:8234C0EEBC825B9F68FCFAC348CF0CD6F9FA6C21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Mini Grand - это простой в использовании, но мощн�
 magnet:?xt=urn:btih:A63FE9E46E1208438B079FD9485BDE73907DD88A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Wavesfactory - Echo Cat 1.0.1 VST, VST3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:17B8E81D302ACEFC24764E7FCC626D1155EFB26C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Cоздавайте GIF анимации из видео с новым Free GIF 
 magnet:?xt=urn:btih:D11BEB3C7818E6F78CEFA2422EF2BF304FAA9DBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ reTune дает вам полный доступ к содержимому вы�
 ```bash
 magnet:?xt=urn:btih:31F43818820D776F2677DA3B45C3211512A6D331
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ Elastique Pitch фокусируется на главном: вы не найд
 magnet:?xt=urn:btih:631D2EC3C033D7FED758ABF10C72706AAE7B8B88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ zplane - TONIC 1.1.0 VST 3, AAX (x64) [En]
 magnet:?xt=urn:btih:04B6E6BF6E814B116792746BC4CD8D564C225073
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Dragonframe - это уникальное решение для покадров
 ```bash
 magnet:?xt=urn:btih:C49885E71C008AEF589D29A7A10A106EAF810029
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ Mocha (Мока) – самый узнаваемый и мощный в мире
 magnet:?xt=urn:btih:22C7AF2147353A2D36111A815813DE67783B8063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Substance Alchemist - Это приложение нового поколени�
 magnet:?xt=urn:btih:0F99E7BB35A63B8287DD90E16A303398031E52C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Spectrasonics Trilian 1.6.3d Standalone, VSTi, VSTi 3 (x64) + Library [En]
 ```bash
 magnet:?xt=urn:btih:3CAC9A40D5018A9D8570E78D78A90CC5042CBCF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

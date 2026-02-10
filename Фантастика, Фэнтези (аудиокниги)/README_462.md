@@ -1,3 +1,32 @@
+###  Публикация: 1121769   (799618) от 03.04.2017
+
+Дэн Абнетт и др. | Легенды Ереси (сборник) (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легенды Ереси — вошедшие в сборник рассказы поведают несколько историй, которые расширят знания читателей о вселенной WH40K.
+
+Первая история расскажет об Адептус Кустодес — личных телохранителях Императора
+Вторая история расскажет о 13й роте Легиона Космических Волков(   Читать дальше...   )Жанр: ФантастикаПродолжительность: 12:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB8A762D45343C9C6DDE78A038C93BAF7EB5A5DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121773   (799624) от 03.04.2017
 
 Майк Ли | Падшие ангелы (2013) [MP3]
@@ -18,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:2670E734D8CAD3B07AC9BCFF67113F48DB8EB30C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +74,8 @@ magnet:?xt=urn:btih:2670E734D8CAD3B07AC9BCFF67113F48DB8EB30C
 magnet:?xt=urn:btih:CD78B3BA526CCFA1653DE58E92C425D0A9811E02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +99,8 @@ magnet:?xt=urn:btih:CD78B3BA526CCFA1653DE58E92C425D0A9811E02
 ```bash
 magnet:?xt=urn:btih:BE9D787CDA8FA3D1022D6E4CA9333D4ADD6C1D0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +126,8 @@ magnet:?xt=urn:btih:BE9D787CDA8FA3D1022D6E4CA9333D4ADD6C1D0B
 magnet:?xt=urn:btih:E4BC609BF02EE04843830D80773ED542587B7509
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +151,8 @@ magnet:?xt=urn:btih:E4BC609BF02EE04843830D80773ED542587B7509
 ```bash
 magnet:?xt=urn:btih:0A6EBCD4F014D3768654174827F46F1C8B398408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +178,8 @@ magnet:?xt=urn:btih:0A6EBCD4F014D3768654174827F46F1C8B398408
 magnet:?xt=urn:btih:1C2DF44E3DAA8C5D651FF387CD72017C69EC9D74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +203,8 @@ magnet:?xt=urn:btih:1C2DF44E3DAA8C5D651FF387CD72017C69EC9D74
 ```bash
 magnet:?xt=urn:btih:D0509601A904458A49691F9F3EE2834D189938A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +230,8 @@ magnet:?xt=urn:btih:D0509601A904458A49691F9F3EE2834D189938A8
 magnet:?xt=urn:btih:24AEAED42346CC54A011A87CFD4F192DB603B121
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +255,8 @@ magnet:?xt=urn:btih:24AEAED42346CC54A011A87CFD4F192DB603B121
 ```bash
 magnet:?xt=urn:btih:6300F2B7733AFDA27C4353256EFE08D5608B80B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +282,8 @@ magnet:?xt=urn:btih:6300F2B7733AFDA27C4353256EFE08D5608B80B9
 magnet:?xt=urn:btih:93C2D4DC39AF37FC0B83D132A12E4436C0DFF49A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +307,8 @@ magnet:?xt=urn:btih:93C2D4DC39AF37FC0B83D132A12E4436C0DFF49A
 ```bash
 magnet:?xt=urn:btih:81E324DC3C2F357B83AE2B32CAD8EEA23EF6B4DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +337,8 @@ magnet:?xt=urn:btih:81E324DC3C2F357B83AE2B32CAD8EEA23EF6B4DB
 magnet:?xt=urn:btih:6F8379DF98C0344694486B634F3DE5A6F668CB71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +362,8 @@ magnet:?xt=urn:btih:6F8379DF98C0344694486B634F3DE5A6F668CB71
 ```bash
 magnet:?xt=urn:btih:67FD089DCFF640887DAB24D83DCA882079B22F02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +389,8 @@ magnet:?xt=urn:btih:67FD089DCFF640887DAB24D83DCA882079B22F02
 magnet:?xt=urn:btih:C74F286CAAFF258228D5AF59DAC00F570E9F37E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +414,8 @@ magnet:?xt=urn:btih:C74F286CAAFF258228D5AF59DAC00F570E9F37E7
 ```bash
 magnet:?xt=urn:btih:6F18DBE63FA3A19790E77954A38400C1752DDE1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +441,8 @@ magnet:?xt=urn:btih:6F18DBE63FA3A19790E77954A38400C1752DDE1E
 magnet:?xt=urn:btih:F4DA265760B58A89484A3A2EA836EDD8EACC584B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +466,8 @@ magnet:?xt=urn:btih:F4DA265760B58A89484A3A2EA836EDD8EACC584B
 ```bash
 magnet:?xt=urn:btih:FADD3508177C0216751EE0E2F33AFD9FF674DCDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +493,8 @@ magnet:?xt=urn:btih:FADD3508177C0216751EE0E2F33AFD9FF674DCDB
 magnet:?xt=urn:btih:59F5CEBBC2C32F4CF360098A66D37DA88C41AA1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +518,8 @@ magnet:?xt=urn:btih:59F5CEBBC2C32F4CF360098A66D37DA88C41AA1F
 ```bash
 magnet:?xt=urn:btih:E65D4B7409C2AD54E8136CAF434E6A33F36D1954
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +547,8 @@ magnet:?xt=urn:btih:E65D4B7409C2AD54E8136CAF434E6A33F36D1954
 magnet:?xt=urn:btih:D3756F5A925C2C690B9C18505B16D9EDBE8E3353
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +572,8 @@ magnet:?xt=urn:btih:D3756F5A925C2C690B9C18505B16D9EDBE8E3353
 ```bash
 magnet:?xt=urn:btih:736D562403A5461BDAB313C972465B7A64D50708
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +599,8 @@ magnet:?xt=urn:btih:736D562403A5461BDAB313C972465B7A64D50708
 magnet:?xt=urn:btih:DF20BB19C1881CC2577C417D2D51BAE0558FCCEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +624,8 @@ magnet:?xt=urn:btih:DF20BB19C1881CC2577C417D2D51BAE0558FCCEF
 ```bash
 magnet:?xt=urn:btih:1DEBE3039743361E05C43FA7E9B0A83823E86E51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +653,8 @@ magnet:?xt=urn:btih:1DEBE3039743361E05C43FA7E9B0A83823E86E51
 magnet:?xt=urn:btih:89578E2D3042B0380140E4AA64885638130A3E05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,31 +681,7 @@ magnet:?xt=urn:btih:89578E2D3042B0380140E4AA64885638130A3E05
 magnet:?xt=urn:btih:BBB70CAC7B85883053D72A8BBFE1BC34FD3CC5D2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120983   (801013) от 01.04.2017
-
-Александр Рудазов | Экипаж (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801013.jpg" />
-</div>
-
-
-###  Подробнее
-
-До той роковой встречи в темной подворотне Михаил Ежов на судьбу не жаловался: трудился себе частным детективом, регулярно посещал тренажерный зал, не имел семьи, зато имел множество друзей (и подружек) – чем не жизнь?
-Но одной прекрасной (точнее, ужасной) ночью он, на свою беду, обменялся рукопожатием непонятно с кем.
-И что же теперь делать бедолаге, оказавшемуся (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 17:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F524CB282EE25E9C3EE5ECA914ED55628DA12FD3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

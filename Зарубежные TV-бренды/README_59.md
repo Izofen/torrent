@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:6E769751F77647B1716155F7DFC271F1E4438936
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Discovery: Коварная Земля / Rogue Earth (2018) HDTVRip [H.264/1080p
 ```bash
 magnet:?xt=urn:btih:41EEDBAFEB0AB550A71180507001CE65DC543074
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Animal Planet: В дикие края с Эваном. Среди ягуаров
 magnet:?xt=urn:btih:7E3F637A2DAC572AC0E77B6E6AB374B54BDFC81E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ NG: Загадки исполинов каменного века / Riddle of th
 ```bash
 magnet:?xt=urn:btih:7D20346CA45671034862411E23108273415D7361
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:7D20346CA45671034862411E23108273415D7361
 magnet:?xt=urn:btih:86E42103DCF64D070BE208FAEC983AF377C540D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ NG: Враждебная планета / Hostile Planet (2019) HDTVRip (Сез�
 ```bash
 magnet:?xt=urn:btih:4D6A2BE5791C488628490F93749E778154F149C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ NG. Международный аэропорт Дубай / Ultimate Airport Du
 magnet:?xt=urn:btih:FA4B08922850FF5ECFE6492903B361E87A3C8579
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ History Channel. Морские котики: тайная сила / Navy SEALs
 magnet:?xt=urn:btih:2B1AF07EC7558884C9CE989467227D29229BB591
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Animal Planet: Герои среди нас / Dodo Heroes (2018) HDTV [H.264/108
 ```bash
 magnet:?xt=urn:btih:0C5A1BBF9DC618C0C3A624300BEFAF16A4DB16F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Animal Planet: В дикие края с Эваном. Стройная Лори
 magnet:?xt=urn:btih:342FF666B3F03C33504EDE5E3AC1E04BF3412CF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ NG: Разгадка египетских тайн. Настоящая Клео�
 magnet:?xt=urn:btih:70302EBD01820F7BA8DAD6B73AE2AF00934AD388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ NG: Взлом Системы / Hacking the System (2014) HDTVRip [H.264/1080p-L
 ```bash
 magnet:?xt=urn:btih:77D678EE3A56E113CF4EE1AA05875870BC47A616
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ NG: Разгадка египетских тайн. Подлинный Рамз�
 magnet:?xt=urn:btih:2C6386B221C9E7FBC97CFAFB05DFA28CE9B4D755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ NG: Научные глупости / Science of stupid (2013) HDTVRip [H.264/72
 ```bash
 magnet:?xt=urn:btih:30F5209AAB3CF86C93FDE76E416CE6FE03A811C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ NGW: 72 самых опасных животных Австралии / 72 Dange
 magnet:?xt=urn:btih:918E93DAFDFBB05A90D23771007E1C873B2B83AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:918E93DAFDFBB05A90D23771007E1C873B2B83AD
 ```bash
 magnet:?xt=urn:btih:89FC4A796E955D5AB413FB611CC39223F750C47A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ NG: Человечество из космоса / Mankind from Space (2015) HDT
 magnet:?xt=urn:btih:2B35344124DE71A2DBD692117FCA66A7396A550E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ NG: Дикая природа Америки / Untamed Americas (2012) BDRip [H.
 ```bash
 magnet:?xt=urn:btih:10E38F900FDAB207F341C364D9E6689864021E09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ BBC: Атом / BBC: Atom (2007) HDTVRip (Сезон 1, эпизод 1-3 из 3)
 magnet:?xt=urn:btih:68A5BF8772E83E5E165C3CFC263A0E84066672EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:68A5BF8772E83E5E165C3CFC263A0E84066672EF
 ```bash
 magnet:?xt=urn:btih:4BD23AA2D00AA7886A579EF98B235CA58C35D0A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:4BD23AA2D00AA7886A579EF98B235CA58C35D0A9
 magnet:?xt=urn:btih:28C30B460C30CCA530A45AD77FB42C0C07E0FBB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:28C30B460C30CCA530A45AD77FB42C0C07E0FBB4
 ```bash
 magnet:?xt=urn:btih:B78F559FBB786F31E98E748BA524F4AA10A648A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ BBC. Может ли питание насекомыми спасти мир? / 
 magnet:?xt=urn:btih:0C47DC56B702740C8936CB8D85A794AA75A81F3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Discovery. Катастрофа на колесах / Wheels That Fail (2014) HD
 ```bash
 magnet:?xt=urn:btih:7EE753E04ED803DFBDF2F600A1CDA6029F28B1E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ BBC. Длинные тени Первой мировой войны / The Long S
 magnet:?xt=urn:btih:3DABAF6B61889C93E5829BC32FC32562DB7CF22C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Discovery. Взрывая историю / Blowing up History (2018) HDTVRip (С
 ```bash
 magnet:?xt=urn:btih:09668F2EC235FD400F81BE613DAB006DFCEF4D7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

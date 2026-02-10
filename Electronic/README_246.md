@@ -28,6 +28,8 @@ Various Artists - Hed Kandi: Nu Disco (2012) [MP3|320 кб/с]<House, Deep House
 magnet:?xt=urn:btih:B7064293B63384D14B8FE486ED4E23686095D894
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ VA - Ellie Lawson: The Best Of (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:B10C25D29C823A1E4A03E4821264011F98866055
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ VA - Trance In Tomorrow's Land: The Festival Edition (2018) [MP3|320 Kbps] <Tran
 magnet:?xt=urn:btih:6EB70B27415450BED2874A99EC70F813C7272318
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ VA - Lifted Audio 3 Years Together With You (Mixed by Azima) (2018) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:9E59941DF178A8F83228E22F4373D281B681AF27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +148,8 @@ VA - Markus Schulz – Global DJ Broadcast Top 20 - August-September (2012)
 magnet:?xt=urn:btih:B96F98C8D34D5698324B8E8627541FAE2A4D2203
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +176,8 @@ VA - Goa 2020 Vol. 3 [Compiled by DJ BiM] (2020) [MP3|320 Kbps] <Psy-Trance, Psy
 ```bash
 magnet:?xt=urn:btih:9EEA99560548A0A81BCDAA6D03B3A10D614E04D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +206,8 @@ Erasure - Day-Glo (Based on a True Story) (2022) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:5199116020AF81BD239DC67EB887469990299E84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +234,8 @@ A-Ha - Minor Earth, Major Sky (2000) [OGG|485 Kbps] <Synth-pop, Pop Rock, Soft R
 ```bash
 magnet:?xt=urn:btih:FB2D062B85CFE20BC15375CD78A5E0B832103169
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +264,8 @@ VA - Intricate Summer Essentials 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM,
 magnet:?xt=urn:btih:536A64A601ABE59D79C4E6EB35CF3EBE4CD494BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +292,8 @@ magnet:?xt=urn:btih:536A64A601ABE59D79C4E6EB35CF3EBE4CD494BB
 ```bash
 magnet:?xt=urn:btih:52C8337C06DD4F10E3821702CF2106526BD836C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +322,8 @@ VA - Uplifting Trance Selection 001 (2022) [MP3|320 Kbps] <Trance, Uplifting Tra
 magnet:?xt=urn:btih:6F4D628BDFB75FB78758126039D776667B3B2B3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +350,8 @@ VA - Infrasonic Summer Selection (2022) [MP3|320 Kbps] <Trance, Uplifting Trance
 ```bash
 magnet:?xt=urn:btih:F06B936C9ECD1EC5C484481D1A2AF1DD2D4618B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +380,8 @@ Cosmic Gate - 20 Years [Forward Ever Backward Never] (2019) [FLAC|Lossless|WEB-D
 magnet:?xt=urn:btih:757BBC30D5CA957E4CAEE406F72E8E6E5C0300C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +407,8 @@ Stimulus Timbre & Fourth Dimension - Dancing Fields (2016) Cosmicleaf Records [F
 ```bash
 magnet:?xt=urn:btih:4F1B4722B0D67167840B854141DCBEB32902C1B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +437,8 @@ Lowland - We've Been Here Before (2018) [FLAC|Lossless|tracks] <Trance>
 magnet:?xt=urn:btih:37844704E989BC9F71A3733C814781B00CB98D8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +465,8 @@ VA - Black Hole Trance Music 09-18 (2018)[MP3|320 Kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:AD33A7E82EA8FCB6B0E7F37E4EDF550593CF348B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +495,8 @@ Marcel Dettmann - Test-File (2018) Ostgut Ton [FLAC|Lossless|WEB-DL|tracks] <Tec
 magnet:?xt=urn:btih:236122E4DFF080A7610D3B02AB56FE94CA1C3BB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +523,8 @@ Francisco Aguado - Infinite love (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep Tech
 ```bash
 magnet:?xt=urn:btih:41287D230DE3A4151ED0F60DE43F8D39916E7884
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +553,8 @@ VA - Chillhouse At The Beach Vol.1 (2017) [MP3|320 Kbps] <House, Chillhouse>
 magnet:?xt=urn:btih:A99A8B0F4B782CB4EDFA29AE9151A23CC33342F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +581,8 @@ VA - Enhanced Chill - Volume Four (2016) [MP3|320 Kbps] <Chillout, Ambient, Down
 ```bash
 magnet:?xt=urn:btih:5EA90CF5DC9FF76F2CF2CC30A715FA6E68941CD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +611,8 @@ VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix) (2018) [MP3|320 K
 magnet:?xt=urn:btih:484B7E97E0BEB00CC43C7D35E0ECBB072525A26E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +638,8 @@ VA - Ori Uplift & Luis A. Moreno - Uplifting Only 292 (2018) [MP3|320 Kbps] <Tra
 ```bash
 magnet:?xt=urn:btih:A7872D2B0AF195A334E9B9F0654E98E9AFB693D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +668,8 @@ VA - EnTangled Vol.03 (Mixed By Latex Zebra) (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:6255058BC7233D1E2A616C4D62CC4653A211E444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +696,8 @@ Blank & Jones - Dom (2016) [MP3|320 Kbps] <Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:C1E93E0B36715FBD4366ABC7FC0A2128639EC31F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -678,6 +726,8 @@ Delerium - Mythologie (2016) [MP3|320 Kbps] <Ambient, Downtempo>
 magnet:?xt=urn:btih:EA37F8E3091F8489F8CE6925FF39A3DF9C820B5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -704,6 +754,8 @@ VA - Future Sound Of Egypt 450 (Mixed By Aly & Fila, Ferry Tayle & Dan Stone, Mo
 ```bash
 magnet:?xt=urn:btih:DE8005A0162075D518E705EF170470AE00A77D6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

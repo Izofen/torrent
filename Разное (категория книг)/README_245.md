@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:D27C61810D05E4B03F6D71E9260976723B6E5641
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:D27C61810D05E4B03F6D71E9260976723B6E5641
 magnet:?xt=urn:btih:E2E8E3D835D3BB0D3CAD6BFB160355169377BD2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:E2E8E3D835D3BB0D3CAD6BFB160355169377BD2E
 ```bash
 magnet:?xt=urn:btih:B1BCD91F5FB27D4F5A069B65F3B46AF94E9F14BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:B1BCD91F5FB27D4F5A069B65F3B46AF94E9F14BF
 magnet:?xt=urn:btih:521262BF4E41EA4395CE10B174DC558E39D80442
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:521262BF4E41EA4395CE10B174DC558E39D80442
 ```bash
 magnet:?xt=urn:btih:5C8B6BE1B456FE51BD52C6CDE6C6400D7FF936C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:5C8B6BE1B456FE51BD52C6CDE6C6400D7FF936C6
 magnet:?xt=urn:btih:16CE81B89A640C9D507FA1B7FCC929B9715BA2A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:16CE81B89A640C9D507FA1B7FCC929B9715BA2A3
 ```bash
 magnet:?xt=urn:btih:24B239393F94157299BAD572510B59C95B1281E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:24B239393F94157299BAD572510B59C95B1281E7
 magnet:?xt=urn:btih:854972BF5FEAF72A147346C5BEB078F625FEC3EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:854972BF5FEAF72A147346C5BEB078F625FEC3EB
 ```bash
 magnet:?xt=urn:btih:2D034911E61EC43A3D75211AA9012D8CB07CE122
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:2D034911E61EC43A3D75211AA9012D8CB07CE122
 magnet:?xt=urn:btih:F9BF7BFA9CA666B0CB464F0FC0239014B6D505D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,34 @@ magnet:?xt=urn:btih:F9BF7BFA9CA666B0CB464F0FC0239014B6D505D4
 ```bash
 magnet:?xt=urn:btih:66B514EA04292933682B6E726EE577CA86B92814
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581282   (340329) от 26.11.2012
+
+Black & Decker | Build Your Own Custom Closet / Построй шкаф своей мечты [2007] [PDF] [En]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_340329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга выпущена совместно с известной фирмой по производству инструмента "Black & Decker". Подробно описан процесс постройки шкафов и полок, в том числе встроенных. Рассмотрены материалы, инструменты, процесс разработки дизайна, хитрости монтажа.Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +339,8 @@ Black & Decker | The Complete Guide to Custom Shelves & Built-ins / Встрое
 magnet:?xt=urn:btih:262D812A8E6910C16F0DC9312F1E412811C70268
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:262D812A8E6910C16F0DC9312F1E412811C70268
 ```bash
 magnet:?xt=urn:btih:9BC4DC70AB4ECE364045FC20256BEFFB663F651A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +392,8 @@ magnet:?xt=urn:btih:9BC4DC70AB4ECE364045FC20256BEFFB663F651A
 magnet:?xt=urn:btih:BB05F7DD188219BDEF00F578A24163246E7690FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:BB05F7DD188219BDEF00F578A24163246E7690FB
 magnet:?xt=urn:btih:D68F481E2E24E5B65285D08CFA2A7817A47153A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +444,8 @@ Black & Decker | The Complete Guide to Bathrooms / Редизайн ванной
 ```bash
 magnet:?xt=urn:btih:EF85ABE484079B83F7CF3B466FC463A76D2388EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:EF85ABE484079B83F7CF3B466FC463A76D2388EF
 magnet:?xt=urn:btih:C1C8362DACB62461298CEA0198954CBD96FEB9BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:C1C8362DACB62461298CEA0198954CBD96FEB9BE
 ```bash
 magnet:?xt=urn:btih:F397FEAA1AEA9D39D1F5B0C0CE4BC1C9C1CF6AB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:F397FEAA1AEA9D39D1F5B0C0CE4BC1C9C1CF6AB7
 magnet:?xt=urn:btih:FC07C22070BAC277AD40F58E967E14753E208D06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:FC07C22070BAC277AD40F58E967E14753E208D06
 ```bash
 magnet:?xt=urn:btih:51A55CD0B39C68126C9A30CE41185AA90BD98625
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:51A55CD0B39C68126C9A30CE41185AA90BD98625
 magnet:?xt=urn:btih:FC439870C8A2C85C383974C31695B36C17EB03E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:FC439870C8A2C85C383974C31695B36C17EB03E6
 magnet:?xt=urn:btih:57618D3E69A8EE7D73430CCA564C8B2BDE21671E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:57618D3E69A8EE7D73430CCA564C8B2BDE21671E
 ```bash
 magnet:?xt=urn:btih:C8110BBCDE66FB404F0654EB865A191D834E8DC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:C8110BBCDE66FB404F0654EB865A191D834E8DC3
 magnet:?xt=urn:btih:BA6F5B2240D1CC918682678095E44D2DA3FD04C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,30 +682,7 @@ magnet:?xt=urn:btih:BA6F5B2240D1CC918682678095E44D2DA3FD04C4
 magnet:?xt=urn:btih:BEB5D0214D8B82D06AFF63A43F96C9E15DB94514
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954235   (341280) от 07.11.2015
-
-Firmin-Didot et Ciz (изд.) | Восточная патрология [Patrologia orientalis] [XXIII Тома] (1904-1926, 1930-1932, 1943) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341280.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Patrologia Orientalis" является попыткой создать полную коллекцию сочинений отцов восточной церкви на сирийском, армянском, арабском, коптском, грузинском и славянских языках. Разработана в дополнение к "Patrologia graeca" и "Patrologia latina".
-Издание продолжается.Жанр: ПатрологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6ECEC5F09562A53012ACFC711ECF0BCF975618F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - Drum & Bass Party Hits, Mini Mix Vol. 2 - Extended Versions (2024) [MP3|320
 magnet:?xt=urn:btih:C41B319F2B36231F693560C765ED46007248435D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:C41B319F2B36231F693560C765ED46007248435D
 magnet:?xt=urn:btih:A02091C564C46C54E2CF2CA4C14917CB620B02F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:A02091C564C46C54E2CF2CA4C14917CB620B02F5
 magnet:?xt=urn:btih:6FD300A4E1ABAFFAA3CC548E15E231A7A682A9C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:6FD300A4E1ABAFFAA3CC548E15E231A7A682A9C8
 ```bash
 magnet:?xt=urn:btih:ED4753B4DD1D70306D2FFB72F2CD2C6923272447
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:02B8651A24EC02A95DE35B765566B61F6214D754
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Shin Megami Tensei: Tokyo Mokushiroku | Tokyo Revelation | Новое вопло
 ```bash
 magnet:?xt=urn:btih:34C95EB4DEA001B7FB974BE5B87084E52FFC21E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ The Alan Parsons Project - Ammonia Avenue (Sessions) (1984) Remaster, 2024, Aris
 magnet:?xt=urn:btih:CEF48AA641F2AE4E7138D48FED58E54DB688F420
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ Next Track позволяет пропустить песни, отключит�
 ```bash
 magnet:?xt=urn:btih:F5B33E44455ABCCB51468AD117ED28CFDB51BAFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:F5B33E44455ABCCB51468AD117ED28CFDB51BAFF
 ```bash
 magnet:?xt=urn:btih:A9AFA600C03CAA58FAD0564BEDA85E02B9F7A41D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ VA - Armada Chill - Winter 2024 [MP3|320 Kbps] <Melodic House & Techno, Progress
 magnet:?xt=urn:btih:068E2FEBF17F12BA0CD373500F0E1BAE03142406
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ magnet:?xt=urn:btih:068E2FEBF17F12BA0CD373500F0E1BAE03142406
 magnet:?xt=urn:btih:925F26E35AB1C6F736A43F56D86BCB831375F553
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:925F26E35AB1C6F736A43F56D86BCB831375F553
 magnet:?xt=urn:btih:31FA700A98F066B14A65E2EB2B25FFA1AAA51DE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:31FA700A98F066B14A65E2EB2B25FFA1AAA51DE1
 ```bash
 magnet:?xt=urn:btih:259B8AB21883638AAFA13559236E21102590D234
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:259B8AB21883638AAFA13559236E21102590D234
 magnet:?xt=urn:btih:FD788E2F15F3BDA74D3F8BCCE66F87FFE8BEFE92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ magnet:?xt=urn:btih:FD788E2F15F3BDA74D3F8BCCE66F87FFE8BEFE92
 ```bash
 magnet:?xt=urn:btih:40287C4DDC77BFF406AB8FA6C816EF94728B43D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +435,8 @@ Motörhead - Remorse? No! (2024) 2 x CD, Compilation [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:689408BC6618C4FC0A979E867A399DAC573D527C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ magnet:?xt=urn:btih:689408BC6618C4FC0A979E867A399DAC573D527C
 ```bash
 magnet:?xt=urn:btih:795D79A09B0D8D4895BB15A01ADCD46914D5CBED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ LosslessCut — простой видеоредактор для нарезки 
 magnet:?xt=urn:btih:B33A5F021D856A94DF6038125BAF1F903566A371
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ Granny Remake (2023) [Ru/Multi] (3.5) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:552E643F6C30286D9A38156A882D254CD131011D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:552E643F6C30286D9A38156A882D254CD131011D
 magnet:?xt=urn:btih:C48F3DAE5459CE995799430FF2DC762AD9276896
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:C48F3DAE5459CE995799430FF2DC762AD9276896
 ```bash
 magnet:?xt=urn:btih:25C3D219A3E07C1CE0EA3E698439AEEBA4601AC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:25C3D219A3E07C1CE0EA3E698439AEEBA4601AC9
 magnet:?xt=urn:btih:813B5D08E519729BAEBE17A52D672AF805AC9D6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ magnet:?xt=urn:btih:813B5D08E519729BAEBE17A52D672AF805AC9D6B
 magnet:?xt=urn:btih:71F5C75FEC0F3F51B704E0154473561E1BB9140E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ Steinberg - Cubase Pro 13 13.0.50 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:9C90E280F00B0445A85711983A757BE1BA42F09B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ magnet:?xt=urn:btih:9C90E280F00B0445A85711983A757BE1BA42F09B
 magnet:?xt=urn:btih:6D32FA24530325984B4832EDCDAA5002EC1A9B0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ magnet:?xt=urn:btih:6D32FA24530325984B4832EDCDAA5002EC1A9B0E
 ```bash
 magnet:?xt=urn:btih:8094FC1283B0FCAB90EA335ED0F9D62850AA2500
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

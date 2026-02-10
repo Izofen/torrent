@@ -19,6 +19,8 @@ Gone Rogue можно назвать иммерсивным симуляторо
 magnet:?xt=urn:btih:2CE311D0EC179E0DAD771CED9874E3B251252C3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.008.28601) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:7321B0300D024AF26153FE0D0A66A2B1556A1455
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Rise of the Ronin - динамичная ролевая игра, в котор�
 magnet:?xt=urn:btih:B7C8D86802563ABB72E384671C40B42C41DE296F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack Other s [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:E23A419A3C2DCF9A6A9926386C44967F50CC3D36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Legend of Heroes Trails through Daybreak (2023) [Ru/Multi] (1.3.5.0/dlc) Rep
 magnet:?xt=urn:btih:9EF1DB107AD2C5B2C38B1CD0A4A666A38BC15B5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.1/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:6984FAA5B42397BC200716CB3B8E98118AE73526
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Tales of Graces f возвращается в красивой версии, в 
 magnet:?xt=urn:btih:32FAF473EC7B28B53F5BAA59DD872B164CE3B88F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Immortal Hunters (2025) [Ru/Multi] (0.1.1655.fb15f73) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:965FE2200AB73AF2A15084035A5AFCD205D796E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Shift’n Slay – пошаговый тактический рогалик на
 magnet:?xt=urn:btih:C91AA77AB72D184C971CB40AC23A76FA8E67AE53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Suikoden I & II HD Remaster: Gate Rune and Dunan Unification Wars (2025) [Multi]
 ```bash
 magnet:?xt=urn:btih:804F41FA080F20F849CA06EE4EDB00644F2F5986
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Nightfall Comes (2022) [Ru/Multi] (1.0.0) Repack FitGirl
 magnet:?xt=urn:btih:4D757A0051EA89EE60BA1284AC024417952796BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Visions of Mana (2024) [Multi] (1.0.3.0/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:5625E8BD9E179DC3848A998EF78D38E59BCB12AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ YIIK: A Postmodern RPG - это сюрреалистичная ролевая и
 magnet:?xt=urn:btih:EF1B96965E07D68419FB1B98B51CE874C29C33A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:EF1B96965E07D68419FB1B98B51CE874C29C33A0
 ```bash
 magnet:?xt=urn:btih:85A78F78BAF4404E2E913391062791A324CDF43A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Citizen Sleeper 2: Starward Vector - это ролевой проект, где 
 magnet:?xt=urn:btih:93583406D04D5018B6F4EFB738AEA1B7EE330AE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Lies Of P была вдохновлена знаменитой историей 
 ```bash
 magnet:?xt=urn:btih:9096EBC55960DA4A0A3A859D443BDD7B1C2E84CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Book of Hours (2023) [Ru/Multi] (2025.1.a.11/dlc) License GOG [Perpetual Edition
 magnet:?xt=urn:btih:31F18E6CEB18B68B71B04BC48C497ACCD99E705A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Avowed (2025) [Ru/Multi] (1.2.11.0/dlc) Repack Decepticon [Premium Edition]
 ```bash
 magnet:?xt=urn:btih:C67842567755B31D33E5AE04F9C20E80AE170E8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack Wanterlude [Complete Editi
 magnet:?xt=urn:btih:210439A2D7F2688B020EFC0C842C527CEEDB0003
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack FitGirl [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:1E158A30F4AE99448B18B3DD5D2C0192C29DAEE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Scene Tenoke
 magnet:?xt=urn:btih:9388FF962F7B094AF605F3B5EA87F1D84A22E35B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Broken Roads создана командой настоящих энтузиас
 ```bash
 magnet:?xt=urn:btih:A01A8092E3AFD5DF7B2AE559CF8935B71503D687
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack seleZen
 magnet:?xt=urn:btih:E1318A5A06FD78C52B9C670664F9C587ADA4BD06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:6C31974B0DC6EDD6AE8326CA7408E32B4FEB0788
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Shift’n Slay – пошаговый тактический рогалик на
 magnet:?xt=urn:btih:B14B874C7F188BADAE6C0D4F703DFB83D5961F18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Eiyuden Chronicle: Hundred Heroes – это увлекательный фент
 ```bash
 magnet:?xt=urn:btih:462C318156C41627A98A18A529907F4857672C1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ KURSK — первая документальная приключенческа
 magnet:?xt=urn:btih:7F1F74C729503EAE2BDDF48C5D04091B5B8A284C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Deadlight (2016) [Multi] (1.0) License GOG [Director's Cut]
 ```bash
 magnet:?xt=urn:btih:372CFC49215430A76E5ABB9FBB2F4EEB174EB8CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Still There (2019) [Ru/Multi] (1.05) License GOG
 magnet:?xt=urn:btih:8A045EBB3C9AB2D39974E352DC955D0CDFB7A074
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Broken Sword: Shadow of the Templars (2010) [Multi] (1.0.744/1.6.0) License GOG 
 ```bash
 magnet:?xt=urn:btih:F1228321F0CCCACC8AE53E9F48A029A723E3B5F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Broken Sword 2: The Smoking Mirror (2011) [Multi] (3.4.3) License GOG [Remastere
 magnet:?xt=urn:btih:FEE93D9CFEEFB036918EF0E899A28F4ECB884D37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:FEE93D9CFEEFB036918EF0E899A28F4ECB884D37
 ```bash
 magnet:?xt=urn:btih:0DEC25865723D54F4CA4C563C6EA36AC9B770DB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ DREDGE (2023) [Ru/Multi] (1.4.0/dlc) Scene Rune
 magnet:?xt=urn:btih:1B5A3B7A9B93C0A659E10C401E99F6800E2DA755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Memoria (2013) [Ru/En] (1.2.3.0341) License GOG
 ```bash
 magnet:?xt=urn:btih:7D2323082EBCC0E25222B909DAC602591291D279
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Scarf - это приключенческая игра, сочетающая г�
 magnet:?xt=urn:btih:DD49CC31442112D60888378E3B85B2A6D41B263B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Leviathan: The Last Day of the Decade / Левиафан: Последний д�
 ```bash
 magnet:?xt=urn:btih:901BE513F31FD28DE41B3FF5E6BE89DBB3F5BB70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Cleo a pirate's tale (2021) [Multi] (1.1.5) License GOG [Deluxe Edition]
 magnet:?xt=urn:btih:0FF97FD297DB38981A34383235C5A90909FA6EAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (
 ```bash
 magnet:?xt=urn:btih:A55C3552722CF433BC78C13BAECA564B1DF1F145
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Disney Infinity 3.0 (2016) [Multi] (1.0.3/upd1) License PLAZA [Gold Edition]
 magnet:?xt=urn:btih:9DC36BE8A0B0AEFA9F890D4D445144ED03FC4D58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Disney Infinity 2.0 — видеоигра нового поколения, в �
 ```bash
 magnet:?xt=urn:btih:BF9DA7082A113DF47F976AC0DD0185B6BF68A590
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Disney Infinity — приключенческий боевик и песочн�
 magnet:?xt=urn:btih:46CE63753E04AD3090F68EEF8195209E2CD8B30D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) Repack R.G. Механи�
 ```bash
 magnet:?xt=urn:btih:1C6A2D05B5476B11C35B88B36B2392F10153FB57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ American Arcadia - увлекательная кинематографическ
 magnet:?xt=urn:btih:481BAD31B1CE1E541544CADE36E76E5BFBEE1A45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Bad Cheese - это психологический хоррор, вдохнов�
 ```bash
 magnet:?xt=urn:btih:C83E58914BF978DF6DC40098737097B2DFD9F1AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Life is Strange – эпизодическое приключение, собы�
 magnet:?xt=urn:btih:B94773A71926215CFA6ED1A47E6AF5D3A88E0665
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Outlast (2013) [Ru/Multi] (1.0.12046.0/dlc) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:4650FA79C3E6AF9C0DA14B907B39C4F284E36E85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Oxenfree – это триллер о сверхъестественных си�
 magnet:?xt=urn:btih:D0D98CD380EEA7DFCE2EDF4E2479B191CBDB18CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Titan Station погружает пользователей в приключе�
 ```bash
 magnet:?xt=urn:btih:21C825D38585A05F998E48C84A4BAAED7A54BD68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Riddle of the Sphinx The Awakening дает возможность погуля�
 magnet:?xt=urn:btih:8B0047C7A01048C0FBE36258994E1910CFD19A93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Sally Face (2016) [Ru/Multi] (1.5.05/dlc) Repack Other s [Episode 1-5]
 ```bash
 magnet:?xt=urn:btih:20C27E485CF8110B8B57E71BC8B7B2FBEA1845BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Life is Strange – эпизодическое приключение, собы�
 magnet:?xt=urn:btih:2BFF732190C911F4DE9432E6D866ABAE6DD86F18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Ceiba (2023) [Ru/En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A5BC872892AFAC0A4429D69CF4BAD22538F58429
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

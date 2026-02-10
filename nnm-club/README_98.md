@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:301616C469CC8CDA25871B98EAA0FAA6ED0D1A82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ PATAPON - приключенческая экшен-игра, где игрок�
 ```bash
 magnet:?xt=urn:btih:08C9CE409F8A7F49712C7A49AA2275AF74238780
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:08C9CE409F8A7F49712C7A49AA2275AF74238780
 magnet:?xt=urn:btih:2D2879B09944C291556B108BBF16A11BE9E049DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:2D2879B09944C291556B108BBF16A11BE9E049DE
 ```bash
 magnet:?xt=urn:btih:CF65F8E3B32EBEAA20EC5512DDDCCD4A2DB7A612
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Warhammer 40,000: Rogue Trader – это изометрическая роле�
 magnet:?xt=urn:btih:19B9B41FF9FA092E1A886DD991FB8C09D38588EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:19B9B41FF9FA092E1A886DD991FB8C09D38588EE
 magnet:?xt=urn:btih:0225CD8646AB4E8C77B455BB35BCB76860BDCDAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ magnet:?xt=urn:btih:0225CD8646AB4E8C77B455BB35BCB76860BDCDAD
 ```bash
 magnet:?xt=urn:btih:958607920E5D8AD2E6A9F315B25762AEA60EA284
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ VA - Ibiza Afterlight - Chillout Soundscapes (2025) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:CA66C4C2B3576EE7AC5406E9C514064EF2E4A459
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:CA66C4C2B3576EE7AC5406E9C514064EF2E4A459
 ```bash
 magnet:?xt=urn:btih:B1BA2CFE665E321F3F05B5B862377EEC2494F089
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:B1BA2CFE665E321F3F05B5B862377EEC2494F089
 magnet:?xt=urn:btih:4DE18957FABDC9399A16B70FE23C4A534E49C658
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:4DE18957FABDC9399A16B70FE23C4A534E49C658
 ```bash
 magnet:?xt=urn:btih:ECFF1E462FD3D6A262788FE65063558BF380AA62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:ECFF1E462FD3D6A262788FE65063558BF380AA62
 magnet:?xt=urn:btih:FD760F571E67EBA3A9FD67801629E3DD1A7B58F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:FD760F571E67EBA3A9FD67801629E3DD1A7B58F5
 ```bash
 magnet:?xt=urn:btih:13017941209FD0188E75A1EE4D58D8A5C9D62ADC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:13017941209FD0188E75A1EE4D58D8A5C9D62ADC
 magnet:?xt=urn:btih:905A2686593E1DF2C632B3DFDE8225F3FE66BF80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ Vargas Blues Band - Down Under Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:AD2B424C2CF34483F144C436C82D8ABAF460C980
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:AD2B424C2CF34483F144C436C82D8ABAF460C980
 ```bash
 magnet:?xt=urn:btih:E479D6A9224A0AE1D7E840B6373B2B18DB4964E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ Knorkator - Weltherrschaft für alle! (2025) [FLAC|Lossless|WEB-DL|tracks] <Indu
 magnet:?xt=urn:btih:5276CD9E366F69827EBDF348D52AD54D97CFA185
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:5276CD9E366F69827EBDF348D52AD54D97CFA185
 ```bash
 magnet:?xt=urn:btih:9960D0245AB8EEE3DE6080B7AE9836ED96DFA77E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ Allrounder Baroque — переходный шрифт с засечками и�
 ```bash
 magnet:?xt=urn:btih:E7F0624B4AE9E40F75F90D6A4620058CD7B32D85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ Dead End Tragedy - Electrical Impulses Of Hate (2025) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:A074A9CCDFE14B1361546D30C0E66EE879B0091A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ Taetre - метал-руппа из Гётеборга, Швеция, образ
 ```bash
 magnet:?xt=urn:btih:CC54EACDF18F00A3E974E980B3645C56A5A69288
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ Warren Vache & Bill Charlap - 2gether (2000) 2011, Nagel Heyer Records [FLAC|Los
 magnet:?xt=urn:btih:AB88D42F970AD141ACC044BF18F13A1E7A50B422
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ A4 Sen Jag Fann Dej (We Made Love)(   Читать дальше...   )Жанр: 
 ```bash
 magnet:?xt=urn:btih:DFB8B3BCF52FAB37BC9F26F76880FCF5D21E3C13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ Caliban - металкор-группа из Германии, образова�
 magnet:?xt=urn:btih:44898F5A8576B2844B0872DE6E0C84E71638F224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:44898F5A8576B2844B0872DE6E0C84E71638F224
 ```bash
 magnet:?xt=urn:btih:A1AF9CDCDD3940804D3E3B99776E4DBDDE6CCE9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +700,8 @@ magnet:?xt=urn:btih:A1AF9CDCDD3940804D3E3B99776E4DBDDE6CCE9E
 ```bash
 magnet:?xt=urn:btih:B6005CAAF21400476C2F680EDF905E50B9608D5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

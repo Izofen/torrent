@@ -1,3 +1,32 @@
+###  Публикация: 1539540   (654960) от 28.03.2022
+
+VA - Angel In Zion (2022) [MP3|320 Kbps] <Reggae, Dub, Riddim, Reggaeton>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Теперь любовь, о которой поется в современном Reggae, это не просто романтическая любовь двух человек, а космическая, духовная любовь, любовь к ближнему и к Богу. И когда певцы регги не поют о любви, они поют о восстании и революции против сил, препятствующих этой любви, таких как насилие, нищета, расизм и угнетении правительствами, которые они наблюдали или испытывали (   Читать дальше...   )001. Gary Clail - Beef
+002. Hr With The Scotch Bonnets - H.R. Psalm
+003. Zion Head - This Time So Hard
+004. The Great Zeee - Big Joy Riddim(   Читать дальше...   )Жанр: Reggae, Dub, Riddim, ReggaetonПродолжительность: 08:22:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:478B3B69041DC03FD24A48012A98C6FC19D61F78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539537   (654997) от 28.03.2022
 
 VA - Hallucinate (2022) [MP3|320 Kbps] <Rock, Metal, Hard Rock, Hardcore>
@@ -21,6 +50,8 @@ VA - Hallucinate (2022) [MP3|320 Kbps] <Rock, Metal, Hard Rock, Hardcore>
 ```bash
 magnet:?xt=urn:btih:27DDEFF346112A3ABE2C376867A4A37C04BFA15E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Дискотека Nonstop Party №1 (2015) [MP3|320 кб/с]<Pop, Dance, 
 magnet:?xt=urn:btih:08C261C9AECDA27201C42DA838DA9D108BDC4D39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ magnet:?xt=urn:btih:08C261C9AECDA27201C42DA838DA9D108BDC4D39
 ```bash
 magnet:?xt=urn:btih:888E73EEA9B3BAB970BDC9C197088184AF6D4C84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +144,8 @@ VA - Шедевры Испанской Гитары - 6 дисков (1998-2001)
 magnet:?xt=urn:btih:BC872A8739C07D77568CD0B6943A1ADDBB0A43A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +178,8 @@ VA - Звезды Дорожного Радио 1 (2012) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:8EC0902540EE351901EB03266C49632D3627E200
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +214,8 @@ VA - Жаркие Хиты Лета 50/50 (2012) [MP3|128 kbps]<Pop>
 magnet:?xt=urn:btih:11A6F6820EAB959B3B995F2C420E2027DF321CEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +249,8 @@ VA - Самые Горячие Русские Хиты Муз-ТВ Хит 4 (201
 magnet:?xt=urn:btih:0C3BC74F844FFE9BC63282035C777D13EF4A4D72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +278,8 @@ VA - Русский Хит В Машину Выпуск 2 (2018) [MP3|256-320 Kb
 magnet:?xt=urn:btih:C41CD3D7AD867A88BAA6C592E5B941C6FD7CB86F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +306,8 @@ magnet:?xt=urn:btih:C41CD3D7AD867A88BAA6C592E5B941C6FD7CB86F
 ```bash
 magnet:?xt=urn:btih:67FB0918A027983F3311EB759D8368F79B642E1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +342,8 @@ VA - Рэп С Понятием Часть 4 (2012) [MP3|256 kbps]<Русски�
 magnet:?xt=urn:btih:ECAF6909E5C7D52CEE321F51112B3F12919EE090
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +371,8 @@ VA - Душа Птица Вольная: Сборник Шансона (2018) [M
 magnet:?xt=urn:btih:50338EF13FF278D4C13B44FC7A2799919757FA00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +399,8 @@ VA - Retro Radio Party (2017) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:5263FAD6C019F091380560D97AFBFD3C2AF65C84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +444,8 @@ CD 1
 magnet:?xt=urn:btih:E66CCCEA257AD1B090F9697A10536C74603DF8D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +472,8 @@ VA - Unique Disco (2018) vol 2 [MP3|320 Kbps] <Electronic, Funk-Soul, PopRock, D
 ```bash
 magnet:?xt=urn:btih:203323022E2F8335B6D726E214C3E1F175E49E36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +502,8 @@ VA - ЕвроХит Топ 40 Europa Plus 18.05.2018 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:29321FFE87EDC4EFB0EF1EBCA4DDE2E48987AB73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +530,8 @@ VA - Music For Your Car Vol.4 (2017) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:E5E1351B4EFE9D10EB4B7714789114956BF7527B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +560,8 @@ VA - Cosmotronica & Space Disco (2017) [MP3|320 Kbps] <Synthspace, Synthpop, Spa
 magnet:?xt=urn:btih:17CA123EE8C30EBAE314A1C45DEF3CC211BAC294
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +588,8 @@ VA - Cosmotronica & Space Disco Vol.2 (2017) [MP3|320 Kbps] <Spacesynth, House, 
 ```bash
 magnet:?xt=urn:btih:BEF91BAD9BF0F5B2A8CA551F0FE73538D98742C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +618,8 @@ VA - Amsterdam Trance Factory (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
 magnet:?xt=urn:btih:B9FD14B3B90EA30AC12519034C4DC2BF13191DE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +647,8 @@ VA - Italo Disco Hits Vol.15 (2017) [MP3|320 Kbps] <Disco, Italo Disco>
 magnet:?xt=urn:btih:4BA49A720AC6F5FC9CD19AFFCEDD4032561E4E35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +675,8 @@ VA - Club Session, Summer Edition (House Music Collection) (2012) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:B951A0D06FFD61EAC96EFB303D0914313693069F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +711,8 @@ VA - Жаркая летняя дискотека (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:65727871A4A451AAEB026FC332BE75192B49CEEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,6 +746,8 @@ VA - Dance Club Party (2012) [MP3|256 kbps]<Club|Dance>
 magnet:?xt=urn:btih:F2CE5CCD51C644FCE15DD78BAAFE6F1AC8BAAC50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -700,6 +775,8 @@ VA - Lo-Fi light (2012) [MP3|320 kbps]<Lo-Fi|Downtempo>
 ```bash
 magnet:?xt=urn:btih:FA0644B662B0B9379AC9976244A32170141DAD9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -734,29 +811,7 @@ VA - US Hot Top 40 Singles Charts (2012) [MP3|~320 кб/с (V0)]<Dance>
 magnet:?xt=urn:btih:0EC01268BA760E71ECC7EA1E3C99699CF46A1759
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 513989   (656068) от 26.06.2012
-
-VA - Caribe - Grandes Êxitos (2011) [MP3|320 кб/с]<Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656068.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1 - Caribe Hits:Жанр: DanceПродолжительность: 04:22:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C00F98E7BE7C78700A3289DB2F13631433B8D3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

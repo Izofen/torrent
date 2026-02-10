@@ -1,3 +1,29 @@
+###  Публикация: 1216074   (752948) от 29.03.2018
+
+Беседа с Евгением Федоровым (27.03.2018) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Активисты НОД встретились с депутатом Государственной Думы России, координатором Национально-Освободительного Движения Евгением Федоровым. Темы беседы: трагедия в Кемерово; высылка дипломатов, санкции США и другие особенности сегодняшней войны, пути решения проблемы и "вечный мир" с США.Производство: Телевидение Национально-Освободительного ДвиженияЖанр: ПолитикаСубтитры: отсутствуютПродолжительность: 00:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C79F760D33D12C65F6277A7C770FAB36D4E6766
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523112   (753055) от 10.01.2022
 
 Вечный заключенный / The Forever Prisoner (2021) WEBRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:1E2F70C5A0FCA926554D0C68736BC5C2409C3EBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:1E2F70C5A0FCA926554D0C68736BC5C2409C3EBB
 magnet:?xt=urn:btih:C003BA680D02E264161A2BBC0B7B4CDFEA302353
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:C003BA680D02E264161A2BBC0B7B4CDFEA302353
 ```bash
 magnet:?xt=urn:btih:9DD5B47C232481904668B73E80AA7E1F6F3442E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:9DD5B47C232481904668B73E80AA7E1F6F3442E8
 magnet:?xt=urn:btih:AB6D0A007473525761A2F7BCE76F4E5BF7AE7013
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:AB6D0A007473525761A2F7BCE76F4E5BF7AE7013
 ```bash
 magnet:?xt=urn:btih:24AA791CAF727D50A099797F59495E54B76FF141
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:24AA791CAF727D50A099797F59495E54B76FF141
 magnet:?xt=urn:btih:029B40FC2159A59126EE98A0C389475447806117
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:029B40FC2159A59126EE98A0C389475447806117
 ```bash
 magnet:?xt=urn:btih:CF18428E7E6A3E5D5873972A9F3182C352ADB119
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:CF18428E7E6A3E5D5873972A9F3182C352ADB119
 magnet:?xt=urn:btih:E1900B2D650847B14DFD418E6F99E3C5FC6E4F9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:E1900B2D650847B14DFD418E6F99E3C5FC6E4F9C
 magnet:?xt=urn:btih:A7E903E1FC3FF993F26F70E6BA97E0D45F943A61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:A7E903E1FC3FF993F26F70E6BA97E0D45F943A61
 ```bash
 magnet:?xt=urn:btih:7F9EC9268BB66F1CCF556FE7A3D258EFEA8D88D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:7F9EC9268BB66F1CCF556FE7A3D258EFEA8D88D3
 magnet:?xt=urn:btih:083B9F4AAAA28630912CC8C1E89A9DD6AFFBA1DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:083B9F4AAAA28630912CC8C1E89A9DD6AFFBA1DF
 ```bash
 magnet:?xt=urn:btih:675FF61A7304B01B340CA5A6F3394EC4DB48A75A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:675FF61A7304B01B340CA5A6F3394EC4DB48A75A
 magnet:?xt=urn:btih:BD7CB5E409D040BC6692C71B214D39A0154691E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:BD7CB5E409D040BC6692C71B214D39A0154691E5
 magnet:?xt=urn:btih:90EE7791CF1BB67860F497DE25E390AE4EB93DB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:90EE7791CF1BB67860F497DE25E390AE4EB93DB6
 ```bash
 magnet:?xt=urn:btih:733C1F172174257B202D6879A924A4853029CCC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:733C1F172174257B202D6879A924A4853029CCC2
 magnet:?xt=urn:btih:B76FB254320A918846AA09DE72997101FBEA7B36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:B76FB254320A918846AA09DE72997101FBEA7B36
 ```bash
 magnet:?xt=urn:btih:4325195EA923CE0082D5F1BCF309B15EB43390E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:4325195EA923CE0082D5F1BCF309B15EB43390E0
 magnet:?xt=urn:btih:D20A822CCDAE309A8C860F8C1BBC4346E62453D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:D20A822CCDAE309A8C860F8C1BBC4346E62453D9
 ```bash
 magnet:?xt=urn:btih:03293C68A0D5BBAEBA5BDBF5FB0232B688C8AA1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:03293C68A0D5BBAEBA5BDBF5FB0232B688C8AA1F
 magnet:?xt=urn:btih:B18ADDA83C872803E902E2487C41EFE9A60224E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:B18ADDA83C872803E902E2487C41EFE9A60224E6
 ```bash
 magnet:?xt=urn:btih:3BAC360407FF67FB45AC168F9A4324C42E54137F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:3BAC360407FF67FB45AC168F9A4324C42E54137F
 magnet:?xt=urn:btih:935CF7894C9132ABAF8FBACA4842051AB52B4400
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:935CF7894C9132ABAF8FBACA4842051AB52B4400
 ```bash
 magnet:?xt=urn:btih:31DB576717CDF404ED268B61A90E9429BBB155C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:31DB576717CDF404ED268B61A90E9429BBB155C8
 magnet:?xt=urn:btih:B749EADA206899B6410CAC119A3205BDEA441401
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,30 +675,7 @@ magnet:?xt=urn:btih:B749EADA206899B6410CAC119A3205BDEA441401
 magnet:?xt=urn:btih:E13EE163C1D523C68D163886808D04E4AD977A20
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018908   (754088) от 21.05.2016
-
-Руссо туристо (2016.05.21) SATRip (выпуск 20. Ереван)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Правда ли, что нашего человека без труда можно вычислить за границей?
-Новое тревел-шоу СТС «Руссо туристо» объявляет войну туристическим стереотипам, развенчивает мифы об отдыхе за границей и предлагает только оригинальные маршруты путешествий. Ведущие проводят выходные в другой стране, чтобы проверить, так ли хороши те местные красоты, о которых «кричат» все сайты (   Читать дальше...   )Телекомпания: СТСЖанр: ТВ-ШоуРежиссер: Артем ОськинПродолжительность: 00:24:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFDFC81A0613F3C790D24DD97DC61935EB4DD0AE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

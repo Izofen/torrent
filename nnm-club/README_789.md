@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:0DAE5283079A160A8A68CFE72601180F4409E0EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:0DAE5283079A160A8A68CFE72601180F4409E0EA
 magnet:?xt=urn:btih:9866325E911B8F124A5CAB34408EB07ADF7A4534
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Alan Wake 2 (2023) [Ru/Multi] (1.2.8/dlc) Repack Wanterlude [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:3F3B2AADF6DB2D0AF968EFA719F1610AF9A44287
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:3F3B2AADF6DB2D0AF968EFA719F1610AF9A44287
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:3F3B2AADF6DB2D0AF968EFA719F1610AF9A44287
 ```bash
 magnet:?xt=urn:btih:68A4615D8B507EB5E0B930366E303701CC9127CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ CarX Street (2024) [Ru/Multi] (1.6.0/dlc) Repack FitGirl [Deluxe edition]
 magnet:?xt=urn:btih:8F2EB9B0E66C992596F681890AA0CBFB508D0EF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:8F2EB9B0E66C992596F681890AA0CBFB508D0EF2
 ```bash
 magnet:?xt=urn:btih:1552CC88CFA1F3C0439B7A29C4C33DF0319340C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ DOOM (2016) [Ru/Multi] (20240321-110145) License GOG
 magnet:?xt=urn:btih:0F8109F14BD312B41F5087FF61558C7A723CC298
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:0F8109F14BD312B41F5087FF61558C7A723CC298
 ```bash
 magnet:?xt=urn:btih:D967F84112C3B980FB2666A1CEF1074CC22013F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:D967F84112C3B980FB2666A1CEF1074CC22013F4
 magnet:?xt=urn:btih:19A1E371608DC8E5257BC753AD703A16863DBBBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:19A1E371608DC8E5257BC753AD703A16863DBBBE
 ```bash
 magnet:?xt=urn:btih:FD62135A969EAA20AA431EBF2A373819912A0A7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:FD62135A969EAA20AA431EBF2A373819912A0A7A
 magnet:?xt=urn:btih:EE333BE95466C5C57A25C75851703030BC5FD911
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:EE333BE95466C5C57A25C75851703030BC5FD911
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:EE333BE95466C5C57A25C75851703030BC5FD911
 magnet:?xt=urn:btih:E2E8594BBC78D74C3B406E762370E4F3F5B6D0C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:E2E8594BBC78D74C3B406E762370E4F3F5B6D0C0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:E2E8594BBC78D74C3B406E762370E4F3F5B6D0C0
 ```bash
 magnet:?xt=urn:btih:99C147EDB67D0BAA6A5D145C64431346376BAFFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Resource Tuner - это программа для просмотра, редак
 magnet:?xt=urn:btih:CA6C585318D614A0847FB6A89FA41FB86DBC991E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:CA6C585318D614A0847FB6A89FA41FB86DBC991E
 ```bash
 magnet:?xt=urn:btih:ABE72306075B0C9CD1F3B56CC20C8070351E0B01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Steinberg Halion 7 представляет собой программу вир
 magnet:?xt=urn:btih:CCB416566DD0898FC27B7D2383ED34394CCCE980
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Beyond Compare — мощнейшая программа для сравнени
 magnet:?xt=urn:btih:B9DDEF980874D44A8EE50ED48C229971403249A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:B9DDEF980874D44A8EE50ED48C229971403249A3
 ```bash
 magnet:?xt=urn:btih:2550DBA70685BAECF18F187B46A30B5EFAC12523
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ XV век. На Пиренейском полуострове медленно �
 magnet:?xt=urn:btih:F262EF26BDD34AB3E865F297440BCB16FC5B1772
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ IPTV Pro v9.0.14 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A16B8C20FB634ECA96BCFAB10983AA43C3EF9F19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:A16B8C20FB634ECA96BCFAB10983AA43C3EF9F19
 magnet:?xt=urn:btih:D2F450C8FA5770F9C2E5CF72915E830E1A426529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:D2F450C8FA5770F9C2E5CF72915E830E1A426529
 magnet:?xt=urn:btih:1AFE894EF8278EFD164CEAC4F12C8624140F2755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Media Player Classic Home Cinema - удобный во всех планах м�
 ```bash
 magnet:?xt=urn:btih:B4E580A3BC73B2190835757BF1A5D5A023B5697B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

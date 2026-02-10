@@ -22,6 +22,8 @@ VA - Feel What You Chill Best Lounge Music (2015) [MP3|320 кб/с] <Downtempo, 
 magnet:?xt=urn:btih:A2C0430660C94303852CC00AFC31DC36AB10908E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Deep Blue Sea Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:CCAF16B91DEB0793C931CECED06E33BDD373741A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Black Hole Trance Music 09-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Tran
 magnet:?xt=urn:btih:73150825869B6543EF9371F85812221CD1F0A751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Yello - Toy (2016) Limited Deluxe Edition [FLAC|Lossless|image + .cue] <Synthpop
 ```bash
 magnet:?xt=urn:btih:C63B1EE998BC65569402093594F6CABCA6D1B167
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Ibiza Summer House Sessions 2017 [MP3|320 Kbps] <Funky, Club House>
 magnet:?xt=urn:btih:23E7B3A7F98FB8FB030FED7E89CF8BB48072D001
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Mesh - Looking Skyward (2016) Limited Edition, 2CD [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:70AEDEE344A41A65FBDF10C4101AAB91DFB3CD4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - This Is It Hard Workout Pays Off! (2017) [MP3|320 Kbps] <Electro House>
 magnet:?xt=urn:btih:26FEFD4289D33EA1D0719AA2FFAE56BA1E15430B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Electronic Music Market (Amazing Relaxed Tunes) (2017) [MP3|320 Kbps] <Bale
 ```bash
 magnet:?xt=urn:btih:33030039AC740D29359814585014EB3E8A15226A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ ScAnDroid Experiment's - Autumno Iterum... Pluvia Iterum (EP) (2019) автор�
 magnet:?xt=urn:btih:377D9A5C053970AE9DC9F1CCB845E9D4E652E3A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ V.A. - Buddha-Bar XX (2018) 2CD [FLAC|Lossless|tracks + .cue] <Lounge, Chillout>
 magnet:?xt=urn:btih:482A7A66EF0FF4F1B3522A8EBE860CF3F2D4F028
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +311,8 @@ The XX - Remixes (2018) Compilation [FLAC|Lossless|tracks + .cue] <Deep House, T
 ```bash
 magnet:?xt=urn:btih:8DA261D099B7B6C5B201D544D8B0E8ECEED81F02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +347,8 @@ VA - Club 86 Recordings - Ibiza Closing 12 (2012) [MP3|320 кб/с]<Progressive 
 magnet:?xt=urn:btih:503023F77704104CE8F022FB34A06C7488193734
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +375,8 @@ Brando Lupi - Sleeping World (2015) [FLAC|Lossless|WEB-DL|tracks] <Techno, Psy-T
 ```bash
 magnet:?xt=urn:btih:1CB31047FA4FB912BF6A7669599B2301DADA68EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +405,8 @@ VA - Best of Autumn Vocal Chillout (2016) [MP3|320 Kbps] <Chillout, Lounge>
 magnet:?xt=urn:btih:1E0B8794C6186CFF92C5DA7FFB89665F8929C80F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +430,8 @@ Roman Messer - Live @ Mentos Fresh Connector, Alfa Future People Russia 2019-08-
 ```bash
 magnet:?xt=urn:btih:CAC5A3CBC9140A776081D684CE9B4A81D0944CD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +460,8 @@ Idea Fire Company - The Light That Never Ceases To Fail (2019) Feeding Tube [FLA
 magnet:?xt=urn:btih:4B803543E8E3E366955239A2BCFD8681BB3CA522
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +488,8 @@ Asian Dub Foundation - Access Denied (2020) [MP3|320 Kbps] <Breakbeat, Electroni
 ```bash
 magnet:?xt=urn:btih:208747CC38800862F282BC36E271F62801275838
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +518,8 @@ VA - Markus Schulz - Global DJ Broadcast: Top 20 September (2018) [MP3|320 Kbps]
 magnet:?xt=urn:btih:7965DBF961739D8181DC0EA2D40DD50DF16627C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +546,8 @@ Blank & Jones - Relax Edition Nine (2015) [FLAC|tracks+.cue]<Chill Out, Lounge>
 ```bash
 magnet:?xt=urn:btih:BBC99DF29DF4089F20D0C1825928C55DA33FDC61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +576,8 @@ VA - Always Alive Recordings 100 (Mixed By Ferry Tayle & Dan Stone) (2015) [FLAC
 magnet:?xt=urn:btih:7F5675DCB922B98D3061AD844E0510F0A748897C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +604,8 @@ VA - York Planet Chill: The Best Of Volume 1 (2015) [FLAC|tracks+.cue]<Chill Out
 ```bash
 magnet:?xt=urn:btih:766AE9593A26E42DE96F7CF4B9C5D2A7724BFF23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +634,8 @@ VA - Trance Nation (Mixed By Simon Patterson) (2015) [FLAC|tracks+.cue]<Trance, 
 magnet:?xt=urn:btih:050016E88146467A93C600D9368F68DF45850964
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +660,8 @@ VA - Flowmotion - Visual Pleasure Volume 2.0 (2003) Elektrolux [FLAC|Lossless|tr
 magnet:?xt=urn:btih:55A5A3B7990C4EA895FBB8CC1CF75885DA221E87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +685,8 @@ VA - Flowmotion - Visual Pleasure Volume 1.0 (2002) Elektrolux [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:84CEE170B64304FBFA70FF043752574BDB8D7B73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +715,8 @@ VA - Black Hole Trance Music 09-20 (2020) [FLAC|Lossless|tracks] <Trance>
 magnet:?xt=urn:btih:034775716C4B0A42C352D26CB51225670046002A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ Le Couleur - Concorde (2020) [MP3|320 Kbps] <Synthpop, Disco>
 ```bash
 magnet:?xt=urn:btih:42B16C579CB550EF961A30758E91CA9EB8286D4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,30 +1,3 @@
-###  Публикация: 904065   (655169) от 02.06.2015
-
-Fatboy Slim - Halfway Between The Gutter & The Stars (15th Anniversary) (2015) [MP3|320 кб/с]<Electronic, Breakbeat, Breaks, Electro, House, Big Beat>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655169.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Talking 'Bout My Baby (03:44)
-002. Star 69 (05:44)
-003. Sunset (Bird Of Prey) (06:50)
-004. Love Life (07:00)(   Читать дальше...   )Производство: SkintЖанр: Electronic, Breakbeat, Breaks, Electro, House, Big BeatПродолжительность: 02:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2092EBD8A240E62327E7E8460DB6F7B7FC1FB406
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903636   (656223) от 01.06.2015
 
 VA - The Fatboy Slim Collection (2015) 4CD [MP3|320 кб/с]<Breaks, Funk, House, Big Beat, Electro>
@@ -48,6 +21,8 @@ CD 4: 01:18:07Производство: Sony Music / 888750 78432Жанр: Break
 ```bash
 magnet:?xt=urn:btih:C2A883CC8D87B659BC59C0230D6F00AA5B537400
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +51,8 @@ Teddy Killerz - Nightmare Street (2017) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:CB8DE4CC4E0E2F842533D080A2D10E6EFD92C20D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +79,8 @@ VA - Drum&BassArena 2017 (2017) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:2F23863D7C7AE5756BFE60A771B728A7C9228814
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +109,8 @@ VA - Covert Operations Record Pres: Global Connections vol. 1-6 (2007-2009) [MP3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +138,8 @@ The Chemical Brothers - Discography - 66 Releases (1994-2010)|320]<Electro/Big B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +165,8 @@ The Chemical Brothers - Discography - 66 Releases (1994-2010)|320]<Electro/Big B
 ```bash
 magnet:?xt=urn:btih:17E2975A91B52D42EDB10C953362A54736F0BB4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +195,8 @@ VA - Night Abduction (2020) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:772595A57310A2AA00E90FBAFA37210BC01A0698
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +223,8 @@ VA - Time Limit (2020) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:311442AF204B202ED0B5B00BBF44BD4AAE9BE2FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +253,8 @@ VA - Minced Meat (2020) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:280766DA81F3766B62390A1106F67EA51BF1E059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +281,8 @@ VA - Sick Music 2019 [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:2CB0CC5ADB32CE0E623D5EEC99507012D92E5BA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +311,8 @@ Alex de Vega - Dark Adaptation (2013) [MP3|320 kbps] <Jungle, Drum & Bass>
 magnet:?xt=urn:btih:F15804EA000B45CD38531A49B694DD57F39F66E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +339,8 @@ magnet:?xt=urn:btih:F15804EA000B45CD38531A49B694DD57F39F66E8
 ```bash
 magnet:?xt=urn:btih:5AC9FDFF9413967A5A910F8FB52945CAB1EA178F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +369,8 @@ Pendulum - Immersion (2010) [MP3|320kbps] <Drum & Bass>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +397,8 @@ BCee - Volume Three (2018) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:A39FEDA12592BE002BD126CC4C0FBFE7E34D0BD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +427,8 @@ BCee - Volume Two (2018) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:DAE2027C3C5BBDB48F2DB64974D89DE8183F53E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +456,8 @@ VA - Best Of 2018 (2019) [MP3|320 Kbps] <Drum & Bass, Neurofunk>
 magnet:?xt=urn:btih:755DB103C2392D362391F677234455B788901512
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +481,8 @@ magnet:?xt=urn:btih:755DB103C2392D362391F677234455B788901512
 ```bash
 magnet:?xt=urn:btih:89688398657093F483FE314C0CC425AEC50E3D15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +511,8 @@ VA - Sublime Drum And Bass, Vol.14 (2019) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:66050068158FFA45AECEF8459C81931633CBEE61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +539,8 @@ VA - Sick Music 2018 [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:B2A6E46C2EA31050C5688234DB24D40F3BB0271E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +569,8 @@ magnet:?xt=urn:btih:B2A6E46C2EA31050C5688234DB24D40F3BB0271E
 magnet:?xt=urn:btih:3BF78643965875E959C6DAF0D26C5968FE38957E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +597,8 @@ Omauha - Omauha (Remixed) (2016) [MP3|320 кб/с] <Breaks>
 ```bash
 magnet:?xt=urn:btih:1D927FCC8C709ACCFA5C7301C6D094741FAFC3D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +627,8 @@ Dark Soul - Take Control (2016) [MP3|320 кб/с] <Drum & Bass>
 magnet:?xt=urn:btih:BBF5D5F8726FD48F6A1B3D3A308BFD9F570EA3E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +655,8 @@ VA - Escapism 3 (Liquicity Presents) (2016) [MP3|320 кб/с] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:F0B1199131473B5539BD93BE8EC7F89E8CBB4D6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -666,6 +685,8 @@ VA - Drum & Bass Annual 2018 Sampler (Viper Presents) (2018) [MP3|320 Kbps] <Dru
 magnet:?xt=urn:btih:812294F1B09623723670DF424090A7BC8154AEA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -692,6 +713,37 @@ VA - Breaks 4 Humanity Vol.2 (2016) [MP3|320 кб/с] <Drum & Bass, Breaks>
 ```bash
 magnet:?xt=urn:btih:FF9BDE6539E238595E6E06B3B892FF4968CDFD93
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007789   (819555) от 16.04.2016
+
+VA - Blackout: Best of 2015 (2016) [MP3|320 кб/с] <Drum & Bass, Neurofunk>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Sun Empire - Until the World Ends (feat. PNC) (05:44)
+02. Neonlight & Wintermute - Influx (04:59)
+03. Khronos - The Heavy (04:06)
+04. Telekinesis - Fight Club (feat. Coppa) (04:38)(   Читать дальше...   )Жанр: Drum & Bass, NeurofunkПродолжительность: 02:22:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9D5B645F1C3CA79B78A4E9C2280190EB90C7986
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

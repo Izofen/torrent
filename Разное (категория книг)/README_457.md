@@ -1,3 +1,29 @@
+###  Публикация: 1029880   (673932) от 30.06.2016
+
+Израэль Регарди | Талисманы. Руководство по изготовлению, освящение и применению (2007) [DJVU]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673932.jpg" />
+</div>
+
+
+###  Подробнее
+
+На языке оригинала (английском) данная книга вышла в свет в 1972 г., на русском — в 2007 г. Она представляет собой хорошо организованный и систематизированный материал по изготовлению талисманов, пригодных для решения различных задач. В ней собраны сведения и практические рекомендации из множества труднодоступных источников. Руководствуясь ею, даже неискушённый человек (   Читать дальше...   )Жанр: ЭзотерикаПеревод: А. ОсиповФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8899016F9E298D3F41FB30ED3FDBEF015A16481
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290817   (673937) от 22.03.2019
 
 Дэниел Левитин | Организованный ум. Как мыслить и принимать решения в эпоху информационной перегрузки (2019) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:8C3619E42ADA80CF1C6B82526D52A7AF567E7F39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:8C3619E42ADA80CF1C6B82526D52A7AF567E7F39
 magnet:?xt=urn:btih:351B12ECFDEEDE49A32E5F679E64F1A2CF192263
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:351B12ECFDEEDE49A32E5F679E64F1A2CF192263
 ```bash
 magnet:?xt=urn:btih:5E15D75BD615C6324A2F81713C2D5E951D482B64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:5E15D75BD615C6324A2F81713C2D5E951D482B64
 magnet:?xt=urn:btih:F1925B7B1D5B88B30880720EC25818B48FE6C9EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:F1925B7B1D5B88B30880720EC25818B48FE6C9EA
 ```bash
 magnet:?xt=urn:btih:3227BE9576BD9B99E0357D1D26449C04A91ED6CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:3227BE9576BD9B99E0357D1D26449C04A91ED6CB
 magnet:?xt=urn:btih:D2C3BE5E9EFD3EFD5DA66679D8F134E726A1EAC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:D2C3BE5E9EFD3EFD5DA66679D8F134E726A1EAC2
 ```bash
 magnet:?xt=urn:btih:E1C44FD7F7ECCB2BA6B81EC5FF29C748A151251D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:E1C44FD7F7ECCB2BA6B81EC5FF29C748A151251D
 magnet:?xt=urn:btih:FA32D152B9383BE9B429F07E6F0B37BDD2BEDC0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:FA32D152B9383BE9B429F07E6F0B37BDD2BEDC0E
 ```bash
 magnet:?xt=urn:btih:338D031F69DC66AFB41E986A3444C8CFEAB01FA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:338D031F69DC66AFB41E986A3444C8CFEAB01FA1
 magnet:?xt=urn:btih:B1DAF172A6DE6992EED4E93E1E40D901E188C505
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:B1DAF172A6DE6992EED4E93E1E40D901E188C505
 ```bash
 magnet:?xt=urn:btih:F3B6B056AD3FEAE499D15C9C90F292EF71FEB2DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:F3B6B056AD3FEAE499D15C9C90F292EF71FEB2DE
 magnet:?xt=urn:btih:BA0A6817657193504357385D25B11D60CA7FE20E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:BA0A6817657193504357385D25B11D60CA7FE20E
 ```bash
 magnet:?xt=urn:btih:553641E70CFC53DB30FB698CF6E1961A25894BB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +393,8 @@ magnet:?xt=urn:btih:553641E70CFC53DB30FB698CF6E1961A25894BB2
 magnet:?xt=urn:btih:127159539B14B68CCB1276676F5D7D7D514C7A7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:127159539B14B68CCB1276676F5D7D7D514C7A7F
 ```bash
 magnet:?xt=urn:btih:6D8F7426ED07090289443E573743D619E74A2A39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +450,8 @@ magnet:?xt=urn:btih:6D8F7426ED07090289443E573743D619E74A2A39
 magnet:?xt=urn:btih:BD104BBEB38F535AA3F8B1FA44D47D9D18FC0269
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +478,8 @@ magnet:?xt=urn:btih:BD104BBEB38F535AA3F8B1FA44D47D9D18FC0269
 magnet:?xt=urn:btih:43AAB9999CAE6DE66A7BDCF43111F9DE65180388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +504,8 @@ magnet:?xt=urn:btih:43AAB9999CAE6DE66A7BDCF43111F9DE65180388
 ```bash
 magnet:?xt=urn:btih:E6354BBE98464B427164872215499CA942CC01CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +533,8 @@ magnet:?xt=urn:btih:E6354BBE98464B427164872215499CA942CC01CC
 magnet:?xt=urn:btih:29458F44DAC657787D1D58BF280C90521694EDBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +561,8 @@ magnet:?xt=urn:btih:29458F44DAC657787D1D58BF280C90521694EDBD
 magnet:?xt=urn:btih:E47A0DD6079C17AB821AFF53DBBB8AEBB05899FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +588,8 @@ magnet:?xt=urn:btih:E47A0DD6079C17AB821AFF53DBBB8AEBB05899FF
 ```bash
 magnet:?xt=urn:btih:3831AA7FA1FBB8204CDA7E0060F6A25EE640B593
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +618,8 @@ magnet:?xt=urn:btih:3831AA7FA1FBB8204CDA7E0060F6A25EE640B593
 magnet:?xt=urn:btih:4EDDABE1AE446959EDA2F5D63B1DBBA004303EB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +643,8 @@ magnet:?xt=urn:btih:4EDDABE1AE446959EDA2F5D63B1DBBA004303EB4
 ```bash
 magnet:?xt=urn:btih:7225D983615063C7965CDF64EF5F6CB707DB71BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +671,8 @@ magnet:?xt=urn:btih:7225D983615063C7965CDF64EF5F6CB707DB71BF
 magnet:?xt=urn:btih:0795EE90D9B7C73FE0D7F7258502729485A5CC4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,29 +697,7 @@ magnet:?xt=urn:btih:0795EE90D9B7C73FE0D7F7258502729485A5CC4F
 magnet:?xt=urn:btih:95C8430ED57FD3339A50BEB55DE3F951AF2990E9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030218   (675886) от 29.06.2016
-
-Дэниел Пинк | Новый мозг (2014) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга для всех, кто хочет добиться успеха и уверенно себя чувствовать в век интуиции и творческого мышления; для предпринимателей и лидеров делового мира, которые хотят сохранить и увеличить свой карьерный успех; для родителей, которые хотят подготовить своих детей к будущему, и для всех тех, чьи способности не были полностью востребованы в век аналитического (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, практическая психологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E6CA74D10277D1B8CC37E58A8F6B007A3322D88
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

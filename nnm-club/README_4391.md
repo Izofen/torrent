@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:E3E7B0B3200A6BCA54F4F1EA56674B297BCEB9CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Acchi Kocchi / Там-сям [2012, TV, 12 + 1Sp] BDrip 1080p Hi10P raw
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Acchi Kocchi / Там-сям [2012, TV, 12 + 1Sp] BDrip 1080p Hi10P raw
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Acchi Kocchi / Там-сям [2012, TV, 12 + 1Sp] BDrip 1080p Hi10P raw
 magnet:?xt=urn:btih:1CCDA273716CE01568DDC38408041147A0278F96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:1CCDA273716CE01568DDC38408041147A0278F96
 ```bash
 magnet:?xt=urn:btih:C61772592C48C9283FA655D35BAF71B76F07BF39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:C61772592C48C9283FA655D35BAF71B76F07BF39
 magnet:?xt=urn:btih:935AAC043028C3EFD8CE89D8E6C4B97B9C4E3F7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:935AAC043028C3EFD8CE89D8E6C4B97B9C4E3F7E
 ```bash
 magnet:?xt=urn:btih:6A942F7648BF93885D764888E68B6AAE7795E96E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Berlitz | Японский разговорник и словарь [2009] [PDF]
 magnet:?xt=urn:btih:B2E2CAFAC36EB9E85EE198B9A3C27C29CA902E0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:B2E2CAFAC36EB9E85EE198B9A3C27C29CA902E0C
 ```bash
 magnet:?xt=urn:btih:0A9850FB0E7097060D731892D19523B01931C61F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ iStat menus является одним из наиболее популярны
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ iStat menus является одним из наиболее популярны
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ iStat menus является одним из наиболее популярны
 ```bash
 magnet:?xt=urn:btih:46478B1F2A1D6FF758F91B36702F0661F6C8A3B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ Pixelmator представляет собой мощный инструмент
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ Pixelmator представляет собой мощный инструмент
 magnet:?xt=urn:btih:CC5FD94B625DEB5797CFAB5ED97506387EBFD9BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:CC5FD94B625DEB5797CFAB5ED97506387EBFD9BD
 ```bash
 magnet:?xt=urn:btih:6760EDA75192C3B61D24773A8B5CCE4F9A687AB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ Piano Sonata No. 21 in B flat major, D. 960:
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ Piano Sonata No. 21 in B flat major, D. 960:
 magnet:?xt=urn:btih:22BF7FCD1B541DDBBBF726CF4C6609AF810A5224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ magnet:?xt=urn:btih:22BF7FCD1B541DDBBBF726CF4C6609AF810A5224
 ```bash
 magnet:?xt=urn:btih:091837747F0DBA34F2F54D6B60531B9EE6D77278
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:091837747F0DBA34F2F54D6B60531B9EE6D77278
 magnet:?xt=urn:btih:33F5D12589C12C7418C9D50120AD91FA6C23D993
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:33F5D12589C12C7418C9D50120AD91FA6C23D993
 ```bash
 magnet:?xt=urn:btih:8A7410BC35798A06BCECB543E7E72D82F4DF65DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +565,8 @@ magnet:?xt=urn:btih:8A7410BC35798A06BCECB543E7E72D82F4DF65DB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ Tiny Core Linux  (сокр. TCL) — минималистичный дистри
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +617,8 @@ FontExplorer X Pro – предоставляет пользователю вс�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ Dojo - это высоконадежный инструментарий JavaScri
 magnet:?xt=urn:btih:0CDDCCF08EE4777FDC19DF36C3BC8A88D65BD0CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ SuperEasy SpeedUp 2.01 [Multi/Ru]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +697,8 @@ Runners-ID (бесплатное и свободное облачное хран
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

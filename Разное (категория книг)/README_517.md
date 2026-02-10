@@ -1,3 +1,29 @@
+###  Публикация: 1207409   (780412) от 19.02.2018
+
+А. Древс | Происхождение христианства из гностицизма (1930) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древс ведет длительную и настойчивую борьбу за доказательство мифологичности Иисуса Христа. Эта научная истина не новая, но она встретила ожесточенное сопротивление со стороны всех церковников и подавляющего большинства буржуазных ученых. В течение четверти века Артур Древс ведет в Германии настойчивую пропаганду мифологичности Иисуса, поддерживая взгляд, высказанный (   Читать дальше...   )Жанр: История, политология, религиоведение, мифологияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BACDAA3A5E1D2F60BD2F4B4293A3EC2FF7BBECC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207597   (780420) от 19.02.2018
 
 Г. А. Шпажников | Религии стран Юго-Восточной Азии. Справочник (1980) [DJVU]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:13723FE8F26359BE0C865750B45FBBE453F18AE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:13723FE8F26359BE0C865750B45FBBE453F18AE6
 magnet:?xt=urn:btih:1666BF86734508143F30B33F802EA1855A1C320C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:1666BF86734508143F30B33F802EA1855A1C320C
 magnet:?xt=urn:btih:A71417A1ACFB4FF8A5C106FB1EE24019BE723E42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:A71417A1ACFB4FF8A5C106FB1EE24019BE723E42
 ```bash
 magnet:?xt=urn:btih:661D47DC9F3C574C1BF179436EE35B373E37055B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:661D47DC9F3C574C1BF179436EE35B373E37055B
 magnet:?xt=urn:btih:6F5F3262B12968E472FA33A57A37535CA481B9C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:6F5F3262B12968E472FA33A57A37535CA481B9C1
 ```bash
 magnet:?xt=urn:btih:A1B8AF030832A3CF1EBBC8CE7A7569AA10BE3ACE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:A1B8AF030832A3CF1EBBC8CE7A7569AA10BE3ACE
 magnet:?xt=urn:btih:578A5DE55459509D67CCEA8875F5821C844875D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:578A5DE55459509D67CCEA8875F5821C844875D0
 ```bash
 magnet:?xt=urn:btih:5BBD30D03B1735E91F1A4057B17A3FC1B3AF137F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:5BBD30D03B1735E91F1A4057B17A3FC1B3AF137F
 magnet:?xt=urn:btih:736638F3D6CC8C834694D99E7635EE838FC7F8D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:736638F3D6CC8C834694D99E7635EE838FC7F8D0
 ```bash
 magnet:?xt=urn:btih:DBDB2939370978AB82BD52DA526CCD3425128047
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:DBDB2939370978AB82BD52DA526CCD3425128047
 magnet:?xt=urn:btih:EE727FE55CDE5414D56786FBDBB4063AAF60CAD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:EE727FE55CDE5414D56786FBDBB4063AAF60CAD8
 ```bash
 magnet:?xt=urn:btih:CC19F077FDD8BA56DE6BA2AC260FB532159CEFA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:CC19F077FDD8BA56DE6BA2AC260FB532159CEFA1
 magnet:?xt=urn:btih:DC43858A4FDFB2C1FC608DB5ED3BF80714F26613
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:DC43858A4FDFB2C1FC608DB5ED3BF80714F26613
 magnet:?xt=urn:btih:619302D7919716F643B7F99839CFDA285FCE8946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:619302D7919716F643B7F99839CFDA285FCE8946
 ```bash
 magnet:?xt=urn:btih:46ABC7FE71C36D9AFABC0487961B495309690D5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:46ABC7FE71C36D9AFABC0487961B495309690D5E
 magnet:?xt=urn:btih:9BC3D84E9EF7282E401EFCB678E2DEB1B899DA21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:9BC3D84E9EF7282E401EFCB678E2DEB1B899DA21
 ```bash
 magnet:?xt=urn:btih:86778E716A30675705BA6541088245C81FAED6A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:86778E716A30675705BA6541088245C81FAED6A8
 magnet:?xt=urn:btih:A2C77A0B1D3FE18A041EA9782528F456EBF11F03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:A2C77A0B1D3FE18A041EA9782528F456EBF11F03
 magnet:?xt=urn:btih:1F87C28CB4A613BE5E455B3048810A81CA1F47C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:1F87C28CB4A613BE5E455B3048810A81CA1F47C5
 ```bash
 magnet:?xt=urn:btih:92E3A974E9168C5E201BD9B5B1D7A465A59E0A6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:92E3A974E9168C5E201BD9B5B1D7A465A59E0A6A
 ```bash
 magnet:?xt=urn:btih:91CAE5AE044A8C3659C15479AF223A029288ECAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:91CAE5AE044A8C3659C15479AF223A029288ECAA
 magnet:?xt=urn:btih:80277090831EB3A9E33B7341D6BA60B9DC95576A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:80277090831EB3A9E33B7341D6BA60B9DC95576A
 magnet:?xt=urn:btih:E067E54FE61747410EE0FB5622121D173A8C993D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:E067E54FE61747410EE0FB5622121D173A8C993D
 ```bash
 magnet:?xt=urn:btih:9990171F20D805353F3485D15234175CC4E7007C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,29 +681,7 @@ magnet:?xt=urn:btih:9990171F20D805353F3485D15234175CC4E7007C
 magnet:?xt=urn:btih:CCBEA4EA19BD7FC566EC39E28AD857A317F20FF5
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391102   (781782) от 18.06.2020
-
-Павел Андреев | Астрология. Все тайны натальной карты (2019) [EPUB]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Павел Андреев – профессиональный астролог, руководитель собственной астрологической лаборатории LabLife, специалист по математическим методам прогноза. Занимается астрологией более 10 лет, имеет образование в этой области и высшее образование в области прикладной информатики. Павел специализируется на астрологии финансов, подборе персонала, а также коррекции судьбы. (   Читать дальше...   )Жанр: Практическая эзотерикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDC27C9FBC14EADECE5CF06B040DA4321F90B7BC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

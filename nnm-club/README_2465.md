@@ -19,6 +19,8 @@ Kdenlive - бесплатный нелинейный видеоредактор,
 magnet:?xt=urn:btih:E0DA58BC725223500477A8A7DE710FD1C6156174
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:E0DA58BC725223500477A8A7DE710FD1C6156174
 ```bash
 magnet:?xt=urn:btih:0E19E375B7D5F9FB80DC03CD17AE684122C56AEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:0E19E375B7D5F9FB80DC03CD17AE684122C56AEF
 magnet:?xt=urn:btih:B7D0C3C4B9DB023F6DC7DC1C969EB5DF0331048C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Visual Studio — это мощное средство разработчика,
 ```bash
 magnet:?xt=urn:btih:3EAA8E5F99A6E06A18FFCF6EBBB385E87A42A7C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:3EAA8E5F99A6E06A18FFCF6EBBB385E87A42A7C4
 magnet:?xt=urn:btih:9691805A3F3801743C925AD01663B413D29198A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:9691805A3F3801743C925AD01663B413D29198A2
 ```bash
 magnet:?xt=urn:btih:861B95079544F805DD8F29E335769DF30A433DE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ VA - Trance In Motion Vol.389 (2025) [MP3|320 Kbps] [MP3|320 Kbps|image + .cue] 
 magnet:?xt=urn:btih:AB282D5EFC87413E16DF3CF2395B751364D62548
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:AB282D5EFC87413E16DF3CF2395B751364D62548
 ```bash
 magnet:?xt=urn:btih:E9ABB466531BD93D4FE057902594329A7A6D8ECE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ VA - Music News For Forum vol.119 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:F4A566B8F35011CFEB87FB4244CFFE99178C6432
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:F4A566B8F35011CFEB87FB4244CFFE99178C6432
 ```bash
 magnet:?xt=urn:btih:4133586E653D831BC1E203A083F7B4C9DFBAD088
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ VA - Live @ Mainstage, Ultra Europe, Croatia (2025) [MP3|320 Kbps] <Trance, Tech
 magnet:?xt=urn:btih:30D065EEC47C64E1AE914950454DF9106CB73F63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Kimi wa Houkago Insomnia | Insomniacs After School | Бессонница пос
 ```bash
 magnet:?xt=urn:btih:D26667E9E4F3D9614BE944386792951523AA21F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:D26667E9E4F3D9614BE944386792951523AA21F6
 magnet:?xt=urn:btih:7891B59C5EC739C9043C0A2C0769B4213DA9F267
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ FireAlpaca — это достаточно простой, но удобный �
 ```bash
 magnet:?xt=urn:btih:CA004D21BC2DE76D793DA841207F544FFB85E889
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:CA004D21BC2DE76D793DA841207F544FFB85E889
 magnet:?xt=urn:btih:A9776A95A0A0821D21F142087271FA205B4CF2A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:A9776A95A0A0821D21F142087271FA205B4CF2A8
 ```bash
 magnet:?xt=urn:btih:5C91FA515631E164DCF93DA8B088DB1D67621BD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ Roulette - Go! (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:099736B434363F9EAEC208680BC3A74DDAD54A1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ Cineastre - Hymnen an die Nacht (2025) [FLAC|Lossless|WEB-DL|tracks] <Atmospheri
 magnet:?xt=urn:btih:F897A95F27FB7377D388E278C650EEAFB38A26DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:F897A95F27FB7377D388E278C650EEAFB38A26DD
 ```bash
 magnet:?xt=urn:btih:96BFC7ED4C4724215E41461CE780F26EBF6743DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:96BFC7ED4C4724215E41461CE780F26EBF6743DA
 magnet:?xt=urn:btih:F43E6CB85F5A40B1E22DFF3CAF99B2AC8FDC0915
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ magnet:?xt=urn:btih:F43E6CB85F5A40B1E22DFF3CAF99B2AC8FDC0915
 magnet:?xt=urn:btih:BEDC0B70E74A3E69AC452BBB0606FBA3170AF7EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:BEDC0B70E74A3E69AC452BBB0606FBA3170AF7EC
 ```bash
 magnet:?xt=urn:btih:90E524341031604C98A76DDCE926A940F1A97A69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:90E524341031604C98A76DDCE926A940F1A97A69
 magnet:?xt=urn:btih:9013268DE34A0F391E0BFA1018D562F34BEF49FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ Temptress - Catch The Endless Dawn (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 magnet:?xt=urn:btih:A262F61518349AE6A92B849D6029B4C0A81FBADB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:A262F61518349AE6A92B849D6029B4C0A81FBADB
 magnet:?xt=urn:btih:254D1352D0DDBEE86F62E5CEEA6474F0E5F875AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:254D1352D0DDBEE86F62E5CEEA6474F0E5F875AF
 ```bash
 magnet:?xt=urn:btih:58DC19D3941D668D693ED518AD19DC03F2AB9E40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

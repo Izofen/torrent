@@ -19,6 +19,8 @@ Avernum – настоящая подземная тюрьма с сотнями
 magnet:?xt=urn:btih:443F5698A6591273088B371E647C159DDF297A2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Kyn – ролевая игра, действия которой развора�
 ```bash
 magnet:?xt=urn:btih:FEE6A66A6D5A62B96F830DF1CDD60AD90997B37D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Xuan-Yuan Sword EX: The Gate of Firmament (2016) [En/Multi] (1.0) Repack АRMENI
 magnet:?xt=urn:btih:4FB46FE3858C7F8D79FCEFBE1ECE26C683C59EE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Anima: Gate of Memories (2014) [Ru/Multi] (1.0) Repack Valdeni
 ```bash
 magnet:?xt=urn:btih:3D08B0CB156EBEBC760B6B774CE65C8ACA8A7A14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Pathologic 2 (2019) [Ru/En] (1.0) License CODEX
 magnet:?xt=urn:btih:FBAAB362DA2227648D78D6EFE8572706CB5554F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Icy - сюжетная survival-RPG, где Вы возьмете на себя 
 ```bash
 magnet:?xt=urn:btih:DAFF723C25E58F11DBF3278450786B4A9B8F191D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ CHILDREN OF ZODIARCS: Дети Зодиака - это ориентирован�
 magnet:?xt=urn:btih:E0715F7EE58E78EECED762A18358037BB2128D42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Two Worlds (2007) [Ru/En] (1.07/dlc) License GOG [Epic Edition]
 ```bash
 magnet:?xt=urn:btih:6FE204F82B798D309F6F7C5A7F1A05D8F83925BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Children of Zodiarcs - это сюжетное-ориентированная т
 magnet:?xt=urn:btih:9184CA670723951073F91DBE4ACA5FECBB7F2ADB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Final Fantasy XIII-2 / Final Fantasy 13-2 (2014) [Ru] (1.0/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:F787B4BEA60639D466AA57A49637B25B7A6FE898
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Beyond Space — новейшая космическая 3D-игра-стрел�
 magnet:?xt=urn:btih:6E32503A1CEAFD2B0E9D3145DB57F05080653BC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Beyond Space — новейшая космическая 3D-игра-стрел�
 ```bash
 magnet:?xt=urn:btih:B07C4F1D0745327EBCBD1F1001BADEDADC1B0928
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Baldur's Gate II: Enhanced Edition (2013) [Ru/Multi] (2.5.16.6) License PLAZA
 magnet:?xt=urn:btih:8BFD0179845F87CBA76ED5D091BADB459EB9BB82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Titan Quest - Anniversary Edition, мифический набор, из кот�
 ```bash
 magnet:?xt=urn:btih:26CA7CDB6B0FB79A3AE73DCC05A75B0579F1D7D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Little King’s Story (2016) [En/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:B120082DC8273A73E48C34EC9D787ED5EA65BB3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Little King’s Story (2016) [En/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:3868FE66790D5238335916647139D330DA7BF90A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Goliath (2016) [Ru/Multi] (1.0.6-GLU/dlc) License GOG
 magnet:?xt=urn:btih:474FE26930D3ED00541F1A36F5B11AE6EDF101D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Pillars of Eternity II: Deadfire / Pillars of Eternity 2: Deadfire (2018) [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:50121C3054D162B43B1F9DCB14C78F04389D756E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Immortal: Unchained — новое слово в жанре хардкорных
 magnet:?xt=urn:btih:2B9B097EF5885C0AF8890F84CD70A5EC68512E1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Fallout of Nevada - компьютерная ролевая игра по игр
 ```bash
 magnet:?xt=urn:btih:67E3D0E7EB53CAB240EB1F864E78447CB687F412
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (1.0.2) License FAIRLIGHT
 magnet:?xt=urn:btih:246A3CA44591B99E248E034CEEF2BC00C174F0F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Drakkhen (1989) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:B50980D886DCC0F34B47A7931227CAE428917FF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Super Dragon Ball Heroes World Mission — тактическая карточн
 magnet:?xt=urn:btih:F7C7C2EE440B36AC0C78C779906F55E0958CDAB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Fall of Light (2017) [Ru/Multi] (1.50c) License PLAZA [Darkest Edition]
 ```bash
 magnet:?xt=urn:btih:5AE10C0FC15BCDDC4E2B3CBF82EF9449B8161845
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ The Waylanders (2022) [Ru/Multi] (1.10) License GOG
 magnet:?xt=urn:btih:E6E5928CF54544B9E2BD42FC56FD777969A7C0C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Witches, Heroes and Magic - стратегия наподобие Heroes of Migh
 ```bash
 magnet:?xt=urn:btih:033E45A49BF0471FCC6BC1A593E200AC9AD36218
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,31 @@
+###  Публикация: 1224196   (667190) от 09.05.2018
+
+С. Димитракопулос | Нектарий Пентапольский — святой наших дней (2012) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Труд С. Димитракопулоса, основанный на всестороннем изучении источников, освещает множество неизвестных и малоизвестных фактов биографии святителя Нектария Пентапольского (Эгинского). Главная особенность книги — обширные выдержки из самых разнообразных документов, характеризующих ближайшее окружение святого и духовно-нравственную атмосферу его времени.
+
+Хотя церковное (   Читать дальше...   )Жанр: ПравославиеПеревод: Ю.С. ТерентьевФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8994785B5DDE3A55E4B8E892CF1C49F33CE3AFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224215   (667235) от 09.05.2018
 
 Святитель Николай Сербский (Велимирович) | «Творите дела правды»: проповеди (2010) [PDF, DJVU]
@@ -20,6 +48,8 @@
 ```bash
 magnet:?xt=urn:btih:6FA4223329260A5072823D4D71C35DE733645CAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +76,8 @@ magnet:?xt=urn:btih:6FA4223329260A5072823D4D71C35DE733645CAF
 magnet:?xt=urn:btih:42AFCE112E9234FCCF68FB0D8653ECD929DAD63C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +103,8 @@ magnet:?xt=urn:btih:42AFCE112E9234FCCF68FB0D8653ECD929DAD63C
 magnet:?xt=urn:btih:4D9B923BB8FB7D812B22C7F63CABD08E9CE3D11D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +128,8 @@ magnet:?xt=urn:btih:4D9B923BB8FB7D812B22C7F63CABD08E9CE3D11D
 ```bash
 magnet:?xt=urn:btih:0E00043480347AC53630B47EFE14A5A67AA87C19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +155,8 @@ magnet:?xt=urn:btih:0E00043480347AC53630B47EFE14A5A67AA87C19
 magnet:?xt=urn:btih:6B383791C7322E2F7E131ECD0BCE571A5D2A9FEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +180,8 @@ magnet:?xt=urn:btih:6B383791C7322E2F7E131ECD0BCE571A5D2A9FEB
 ```bash
 magnet:?xt=urn:btih:8046013442AE27687B8F79E65619CB8B052D675C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +207,8 @@ magnet:?xt=urn:btih:8046013442AE27687B8F79E65619CB8B052D675C
 magnet:?xt=urn:btih:A5CBC955DB96DBE17F6B6121382056EE1C0B0786
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +233,8 @@ magnet:?xt=urn:btih:A5CBC955DB96DBE17F6B6121382056EE1C0B0786
 magnet:?xt=urn:btih:CBF9713F85EDA6645CBE4C03EDE01999F9A33E06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +258,8 @@ magnet:?xt=urn:btih:CBF9713F85EDA6645CBE4C03EDE01999F9A33E06
 ```bash
 magnet:?xt=urn:btih:0469A4EA98F01A6A0170FA470C13B34200EFE518
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +286,8 @@ magnet:?xt=urn:btih:0469A4EA98F01A6A0170FA470C13B34200EFE518
 magnet:?xt=urn:btih:D1C449849FF50C292FCDDAED1B4460EEF7C1F4F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +312,8 @@ magnet:?xt=urn:btih:D1C449849FF50C292FCDDAED1B4460EEF7C1F4F8
 magnet:?xt=urn:btih:8E72014B30249751751442D5C268919C965D1DA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +337,8 @@ magnet:?xt=urn:btih:8E72014B30249751751442D5C268919C965D1DA1
 ```bash
 magnet:?xt=urn:btih:9D5EFDAD826F631BB06930616014178ED318CDA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +365,8 @@ magnet:?xt=urn:btih:9D5EFDAD826F631BB06930616014178ED318CDA8
 magnet:?xt=urn:btih:A569FC2BF19EE797A23590E85803D67B4C72E96E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +390,8 @@ magnet:?xt=urn:btih:A569FC2BF19EE797A23590E85803D67B4C72E96E
 ```bash
 magnet:?xt=urn:btih:EA9D2EFC3B647EA0CFD7C4FC6BF30FEAE5556670
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +417,8 @@ magnet:?xt=urn:btih:EA9D2EFC3B647EA0CFD7C4FC6BF30FEAE5556670
 magnet:?xt=urn:btih:F012E3BAB47C8C30EF9535EC5D57CD85DD6CB32C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +443,8 @@ magnet:?xt=urn:btih:F012E3BAB47C8C30EF9535EC5D57CD85DD6CB32C
 ```bash
 magnet:?xt=urn:btih:C203B3E766687432EE96110558B20E9DF58970B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +472,8 @@ magnet:?xt=urn:btih:C203B3E766687432EE96110558B20E9DF58970B1
 magnet:?xt=urn:btih:8727AF90B05C130D392CA1651A173AB878835D9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +498,8 @@ Nick Tumminello | Building Muscle and Performance (2016) [PDF] [En]
 magnet:?xt=urn:btih:99A1614104AABDCE7A1D5F283BED25662BCEB7DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +523,8 @@ magnet:?xt=urn:btih:99A1614104AABDCE7A1D5F283BED25662BCEB7DF
 ```bash
 magnet:?xt=urn:btih:B90FA5815DD5D2D131D3A58AD6501E1F2082D1E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +553,8 @@ magnet:?xt=urn:btih:B90FA5815DD5D2D131D3A58AD6501E1F2082D1E8
 magnet:?xt=urn:btih:31D8E9D2B7655D653FD697CB5112363152F820F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +581,8 @@ magnet:?xt=urn:btih:31D8E9D2B7655D653FD697CB5112363152F820F7
 magnet:?xt=urn:btih:06098FEA888DEFA2F1BCABC700CD2E8B4E091104
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +606,8 @@ magnet:?xt=urn:btih:06098FEA888DEFA2F1BCABC700CD2E8B4E091104
 ```bash
 magnet:?xt=urn:btih:79D6867695EF2A4DCDDDC7D150FE7F507F176B6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +633,8 @@ magnet:?xt=urn:btih:79D6867695EF2A4DCDDDC7D150FE7F507F176B6E
 magnet:?xt=urn:btih:717C532ED51796760DB3A70F4C6E81F01F0F296B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +658,8 @@ magnet:?xt=urn:btih:717C532ED51796760DB3A70F4C6E81F01F0F296B
 ```bash
 magnet:?xt=urn:btih:954A0924F36D8462E466CD1688A4FEED39447169
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,29 +685,7 @@ magnet:?xt=urn:btih:954A0924F36D8462E466CD1688A4FEED39447169
 magnet:?xt=urn:btih:AE799857159EB5DD1BFF4DDB2B0386E0527FFE9A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223912   (669883) от 07.05.2018
-
-Хорхе Марио Бергольо, Авраам Скорка | О небесном и о земном (2015) [FB2, MOBI, RTF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хорхе Марио Бергольо, архиепископ Буэнос-Айреса, будущий Папа Франциск, беседует с Авраамом Скоркой, раввином и биофизиком, - о религии, политике и мироустройстве, о проблемах, с которыми мир столкнется в XXI веке. Собеседники вели эти диалоги на протяжении многих лет, стараясь навести мосты между христианством и иудаизмом при помощи веры и разума. И для них не было (   Читать дальше...   )Жанр: Диалог, размышлениеФормат: FB2, MOBI, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C6213826B5FE3242FA787E23C236F988B64C215
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

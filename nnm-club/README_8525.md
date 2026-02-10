@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:845A6B9B3ECB4253D215B8E89D59D607B991B161
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Sade - Bring Me Home: Live 2011 (2012) [MP3|~245 кб/с (V0)]<Soul, Rhythmic So
 magnet:?xt=urn:btih:E12B107BD46995A6B1834002CE5B7E7EE4B83C86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ magnet:?xt=urn:btih:E12B107BD46995A6B1834002CE5B7E7EE4B83C86
 magnet:?xt=urn:btih:4DEF6CC93D5D98DA9D08A579BB014E2EE159D51B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:4DEF6CC93D5D98DA9D08A579BB014E2EE159D51B
 magnet:?xt=urn:btih:DEE362CA9A207540F87273A5B2B242FCC56FD599
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Inspector Magnusson: Murder on the Titanic / Инспектор Магнуссо
 ```bash
 magnet:?xt=urn:btih:CA9982690017BA93396D9E47F1EA5292C93B6400
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:CA9982690017BA93396D9E47F1EA5292C93B6400
 magnet:?xt=urn:btih:C5FCE739812C018CE5134DDD53389F88DC047150
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:C5FCE739812C018CE5134DDD53389F88DC047150
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:C5FCE739812C018CE5134DDD53389F88DC047150
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ NG: Джеймс Кэмерон: Путешествие к центру Земл
 ```bash
 magnet:?xt=urn:btih:A9758D21AEC7A4B5B7B580A0E57F30FFAAFE08E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +299,8 @@ Foster The People - Torches (2011) [FLAC|Lossless]<Indie Pop, Alternative>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ Top Secret Finders / СверхОсобый СпецОтдел (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:2B13C1839E5A80476CB90D662E014BB052D70B03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:2B13C1839E5A80476CB90D662E014BB052D70B03
 magnet:?xt=urn:btih:4FDF1E74621FB956483D058B8258391AE51820AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ Defcon 5 [En] (RePack) 1995 | Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +414,8 @@ Defcon 5 [En] (RePack) 1995 | Pilotus
 magnet:?xt=urn:btih:10E5AA0D4E07B62E8E47B7FC3469305CB3FCB8DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +441,8 @@ magnet:?xt=urn:btih:10E5AA0D4E07B62E8E47B7FC3469305CB3FCB8DE
 ```bash
 magnet:?xt=urn:btih:54A3CD92816F0C6C7BBEE4B86BE5D01AE0BCC0B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +473,8 @@ magnet:?xt=urn:btih:54A3CD92816F0C6C7BBEE4B86BE5D01AE0BCC0B9
 magnet:?xt=urn:btih:95BD311C0511C0F1EC0C9581CEA9A0718E521692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +498,8 @@ magnet:?xt=urn:btih:95BD311C0511C0F1EC0C9581CEA9A0718E521692
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +526,8 @@ magnet:?xt=urn:btih:95BD311C0511C0F1EC0C9581CEA9A0718E521692
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +551,8 @@ magnet:?xt=urn:btih:95BD311C0511C0F1EC0C9581CEA9A0718E521692
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +578,8 @@ magnet:?xt=urn:btih:95BD311C0511C0F1EC0C9581CEA9A0718E521692
 magnet:?xt=urn:btih:332BC98D16E1F3774C601F34C946C6D06E84D3D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +603,8 @@ magnet:?xt=urn:btih:332BC98D16E1F3774C601F34C946C6D06E84D3D7
 ```bash
 magnet:?xt=urn:btih:137384D6B32382761000DF5951634E746111306E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +630,8 @@ magnet:?xt=urn:btih:137384D6B32382761000DF5951634E746111306E
 magnet:?xt=urn:btih:A02BD0F5106AF1898E9FA575A0B7AFF71EE286F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +655,8 @@ magnet:?xt=urn:btih:A02BD0F5106AF1898E9FA575A0B7AFF71EE286F7
 ```bash
 magnet:?xt=urn:btih:244E96475776255657C9E07AB83B06BAE015E9A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +688,8 @@ magnet:?xt=urn:btih:244E96475776255657C9E07AB83B06BAE015E9A7
 magnet:?xt=urn:btih:1C35116645E3C2AA87FC8A5124EBA4108BA95F58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +713,8 @@ magnet:?xt=urn:btih:1C35116645E3C2AA87FC8A5124EBA4108BA95F58
 ```bash
 magnet:?xt=urn:btih:040BB2040420515615DC6C1153048CBABD3567EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

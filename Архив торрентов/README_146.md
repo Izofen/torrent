@@ -19,6 +19,8 @@ HandBrake - бесплатный видео конвертер с открыты
 magnet:?xt=urn:btih:6C4A0D845E2F4F1FE4F3FD449759E0BCF4703862
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Alfa eBooks Manager - одна из самых популярных програ
 ```bash
 magnet:?xt=urn:btih:237D202C056FF8269C80E1EE5B9D324139BEF1B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ UsbTreeView - маленькая портативная утилита, реал
 magnet:?xt=urn:btih:15E4A5DAD01A3C42DCC6173234F658D3B0619003
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ HiPER Calc Pro v11.0.3 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D2A6E6495AE7B7407C5E6BFCB0F3627AC12F58C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ WPS Office - очень полезное, офисное приложение д
 magnet:?xt=urn:btih:E77AC08AD1CDE8A3B884A383E31800E8C1946288
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:E77AC08AD1CDE8A3B884A383E31800E8C1946288
 ```bash
 magnet:?xt=urn:btih:F11C89D9CEBEDF3D074E3485065A2D03470B9A1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Spotify: музыка и подкасты v8.9.98.488 LiteMod by Balatan [Ru/En]
 magnet:?xt=urn:btih:1BB16BFE874DCA0E89FCDFB88242D93E212B728F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ VRadio - Online Radio App v2.7.3 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C32A1A7FBC9F1FA9CCA220E2AC22735E1AD0C67D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ TikTok - социальное приложение для тех кто пред
 magnet:?xt=urn:btih:EC3DE759637ED5D187B53DD77F8C70A748FFAEEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Vivaldi 7.0.3495.26 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5F45B9F69A3C113854FE4E8514F3B6CBA4055C88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:5F45B9F69A3C113854FE4E8514F3B6CBA4055C88
 magnet:?xt=urn:btih:25B7E3B0379547FCCC082489B7B2EF5B97A39CF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Umagic AI / ИИ Рисует v1.7.0 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4C50F77568E761FC94483F9A58DD4F59D05133F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:4C50F77568E761FC94483F9A58DD4F59D05133F3
 magnet:?xt=urn:btih:B6F1426C9F89B3C9B2E6B8B65082FE4FD47CEB47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:866506E6352A1B48048D07F8380C29C21E83E01E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ TikTok - социальное приложение для тех кто пред
 magnet:?xt=urn:btih:61835174BA996C2A0D91E468F67EA3A93B269144
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ MobiOffice - это полнофункциональный офисный пак
 ```bash
 magnet:?xt=urn:btih:4C0472438B6FAD584BD8CD7452B6310157DFE19C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Audacity - свободный, простой в использовании зв
 magnet:?xt=urn:btih:2B9E5195E9B0D31004DEF4A02750C0E9159F8694
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ One Read / Все Документы Читатель - Офис v1.2.1.39 Mod b
 ```bash
 magnet:?xt=urn:btih:6035440CA8094689BFD733A30C40BD0498F235B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ AdGuard — уникальный блокировщик рекламы без ro
 magnet:?xt=urn:btih:5E2E7C287AE8E55D358BEA7494AB7222E43A8406
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ MediaHuman YouTube Downloader 3.9.9.97 (1312) RePack (& Portable) by Dodakaedr [
 ```bash
 magnet:?xt=urn:btih:3B60CF3779283F08E31615AB750CDF672FDBB718
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Marmoset Toolbag 5.01 (5010) [En]
 magnet:?xt=urn:btih:3423738CD4F35808FAFBAE5028C5066ACD2E1CAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:D22A26A331E1556445AF0B2DD5EB1CE3BAC8D96A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Avidemux - небольшой, простой редактор для работ
 magnet:?xt=urn:btih:C8B6B6D2A1611F0799E550F87B19DBE351C66C5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ MediaHuman YouTube Downloader 3.9.9.97 (1112) RePack (& Portable) by elchupacabr
 ```bash
 magnet:?xt=urn:btih:5E79C1B897DC7D1D5BD4CEDB4F8A8D922F8C9430
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ AIDA64 - является мощным средством для идентиф�
 magnet:?xt=urn:btih:44A51662A609AC58AE51887BB38613C170C2DCB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ ACDSee Photo Studio Ultimate сочетает в себе поддержку с�
 ```bash
 magnet:?xt=urn:btih:87D47F4B538BCA7E98FCD9BAB67186D5D04770A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:DC6EBAAFB0E69A32AA6D9165153BAC89CD2193F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Hotel — психологический хоррор-триллер, в к�
 ```bash
 magnet:?xt=urn:btih:C4E6C4211ECE2B6C790C4F697F85730F5D6DE708
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ You will learn about automating deployments with Elastic Beanstalk CLI and creat
 magnet:?xt=urn:btih:4941257D592FC3AB62D0168EFCDC566E47984FED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ FastFlix - это простой и дружественный графичес�
 ```bash
 magnet:?xt=urn:btih:309779EBA326EFC9344C17AD0CB02D463A281C31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:309779EBA326EFC9344C17AD0CB02D463A281C31
 magnet:?xt=urn:btih:7BC141F49FF5D102846447FE2C12F943B49DC339
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:7BC141F49FF5D102846447FE2C12F943B49DC339
 ```bash
 magnet:?xt=urn:btih:499C3A64BDE58C0F20D3EF70C257C1BBE0A3B424
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:499C3A64BDE58C0F20D3EF70C257C1BBE0A3B424
 magnet:?xt=urn:btih:58FDFE29E3FE4352CF7F73CB84A9D468EDD06DC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ DRmare Music Converter for Spotify 2.9.0 [En]
 magnet:?xt=urn:btih:50B9198AF6F4ACE612254959BCE7A1C86F92CCA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:50B9198AF6F4ACE612254959BCE7A1C86F92CCA9
 ```bash
 magnet:?xt=urn:btih:EAB2D8D8D1D2800F34BD4EB682A3807C21672FE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ CEN-ProjekT (Chris Engels) - 8 Albums (2019-2023) [MP3|320 Kbps] <Progressive Ro
 magnet:?xt=urn:btih:064251DCCBE17EE02EC865B9E40E8C56F6A5F28E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:064251DCCBE17EE02EC865B9E40E8C56F6A5F28E
 ```bash
 magnet:?xt=urn:btih:C675A01F0689A1DF118DDAE9E177B3F3A17B109D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:C675A01F0689A1DF118DDAE9E177B3F3A17B109D
 magnet:?xt=urn:btih:520D2F2B2F610D9403A7ED7A9DC556A88185FC0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:520D2F2B2F610D9403A7ED7A9DC556A88185FC0B
 ```bash
 magnet:?xt=urn:btih:8CDA192C7254B7387F2D565478514C65B7A579F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:8CDA192C7254B7387F2D565478514C65B7A579F2
 magnet:?xt=urn:btih:46400513C3C25AF34783C83402AFC9C377AD1A9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:46400513C3C25AF34783C83402AFC9C377AD1A9E
 ```bash
 magnet:?xt=urn:btih:C251E696D3D89E2225E7B436D3AC4F2DE2426053
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:C251E696D3D89E2225E7B436D3AC4F2DE2426053
 magnet:?xt=urn:btih:B9B61D924D8D762D7FBFBCB4C00817B08BA71645
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:B9B61D924D8D762D7FBFBCB4C00817B08BA71645
 magnet:?xt=urn:btih:9B968BF332137F45D081BE5A3244D8DBD89C895D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:9B968BF332137F45D081BE5A3244D8DBD89C895D
 ```bash
 magnet:?xt=urn:btih:6675E8168E7EA6DEA48B9E932362BB92995D01F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Miscellen - 4 Albums (2020-2023) [MP3|320 Kbps] <Heavy Alternative Rock, Psyched
 magnet:?xt=urn:btih:49168C01F152B2A28A51F89E9E4B5F4159DC0522
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:49168C01F152B2A28A51F89E9E4B5F4159DC0522
 ```bash
 magnet:?xt=urn:btih:AE35E127C73FCAE237A1E1278B70021CF94DFC4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Drunken Fist 2: Zombie Hangover (2022) [Ru/Multi] (1.0) License TiNYiSO
 magnet:?xt=urn:btih:8BC5278F060EA35AFC689D38E8A94086CB7D2603
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Unsolved Case 3: The Scarlet Hyacinth (2023) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:F69A99F5E5930180E7482776F4F77935D46745E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ VA - Club Megamix 2023: Summer Hits (2023) [MP3|320 Kbps] <Electro House, Dance,
 magnet:?xt=urn:btih:A6E01EE575D8180987C1D5A90DA74EB425236D29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:A6E01EE575D8180987C1D5A90DA74EB425236D29
 ```bash
 magnet:?xt=urn:btih:B78F52DCFEB7DF2942CEE6CA26A87005262BF794
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:B78F52DCFEB7DF2942CEE6CA26A87005262BF794
 magnet:?xt=urn:btih:038E4D01183D4A5768C64A86027CFABBAEF84BE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:038E4D01183D4A5768C64A86027CFABBAEF84BE9
 ```bash
 magnet:?xt=urn:btih:D205170F92A8A46BC506B1BC2A861026C005D80E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

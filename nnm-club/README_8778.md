@@ -22,6 +22,8 @@ Nuckin' Futs - Abyss (2017) [MP3|320 Kbps] <Thrash Metal>
 magnet:?xt=urn:btih:EB8474573AFFDC48822979DEE1681C3D17095674
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Downie поддерживает более 1,100 популярных сайто
 ```bash
 magnet:?xt=urn:btih:8C00D4578CA31BC4CFCB95B7FCEC056327051E8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Billy Eckstine And His Orchestra - Mr. B (1962) 1998, Ember Records [FLAC|Lossle
 magnet:?xt=urn:btih:DBDCF2F67B4FAE056C4D8AE56991F474F41A0C6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Francesca Longrigg - True Noise (2017) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:C2D770354C9B21FD5995B19A7CE178C63EB758A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:C2D770354C9B21FD5995B19A7CE178C63EB758A6
 magnet:?xt=urn:btih:CF1DCF4B05A3672790E3B5E4840D45EDC825A0D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ magnet:?xt=urn:btih:CF1DCF4B05A3672790E3B5E4840D45EDC825A0D7
 ```bash
 magnet:?xt=urn:btih:9C31F86C62167B94C2589EE9A27150AA6E8492A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -183,6 +195,8 @@ magnet:?xt=urn:btih:9C31F86C62167B94C2589EE9A27150AA6E8492A0
 magnet:?xt=urn:btih:47E865B231D1772A7799F29ED2B738EB3C679FCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ magnet:?xt=urn:btih:47E865B231D1772A7799F29ED2B738EB3C679FCE
 ```bash
 magnet:?xt=urn:btih:29A2387B7DBE5181DCC8526A9F3C2A2826C4F24B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ magnet:?xt=urn:btih:29A2387B7DBE5181DCC8526A9F3C2A2826C4F24B
 ```bash
 magnet:?xt=urn:btih:B3D635331680D50F30D92FAF0E6BACA93418D1F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:B3D635331680D50F30D92FAF0E6BACA93418D1F8
 magnet:?xt=urn:btih:D390FADE186B330CAF73CA54021B1890A40F426E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +307,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:FD823E42663F64E0A525F294583D4EFE2B42E1CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +336,8 @@ Luminar первый в мире редактор фотографий, кото
 magnet:?xt=urn:btih:6ED7B765A3476A744250F2B6247ABAAA202500B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +361,8 @@ magnet:?xt=urn:btih:6ED7B765A3476A744250F2B6247ABAAA202500B7
 ```bash
 magnet:?xt=urn:btih:B08E92C10B921CE3CF9EC17FC9BEF2F31DC5CB67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +388,8 @@ Astra Image PLUS - графический редактор, который по�
 magnet:?xt=urn:btih:20E082C7452D58DF6B5CFE9EA5ED1BD3515E1D08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +413,8 @@ magnet:?xt=urn:btih:20E082C7452D58DF6B5CFE9EA5ED1BD3515E1D08
 ```bash
 magnet:?xt=urn:btih:A19B4C66C4DD5CB1453DCEA1C6443F8A98231029
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +440,8 @@ magnet:?xt=urn:btih:A19B4C66C4DD5CB1453DCEA1C6443F8A98231029
 magnet:?xt=urn:btih:36752D79390D85B9E85CE184F84984ED37D709BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +465,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:8EDB37F574D0B29F95BADF6CD5A7D641835E368B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +492,8 @@ Icecream PDF Editor 1.39 [Multi/Ru]
 magnet:?xt=urn:btih:9DC9493D54099D59B27BD546F656192C91A6D57D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ PicPick - приложение, объединяющее в себе возмо�
 ```bash
 magnet:?xt=urn:btih:1BB1706AE81416400B8FC07947A6EE71BFB3E9EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:1BB1706AE81416400B8FC07947A6EE71BFB3E9EA
 magnet:?xt=urn:btih:07751C93E9180321F85619817218E8E10CD8E408
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:07751C93E9180321F85619817218E8E10CD8E408
 ```bash
 magnet:?xt=urn:btih:AD2D69BE0829004AD515CB8EA1D0F76955CA0727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ SamDrivers 19.11 LAN [Multi/Ru]
 magnet:?xt=urn:btih:7B9380B2A61CC0C185E4537B6C8B41AA32EE7DF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ magnet:?xt=urn:btih:7B9380B2A61CC0C185E4537B6C8B41AA32EE7DF1
 ```bash
 magnet:?xt=urn:btih:D0A84798F2EDB542FF39118E42F9C1F17A5EBCC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ magnet:?xt=urn:btih:D0A84798F2EDB542FF39118E42F9C1F17A5EBCC6
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ magnet:?xt=urn:btih:D0A84798F2EDB542FF39118E42F9C1F17A5EBCC6
 magnet:?xt=urn:btih:4B8474B35BE1D9B7AEEECB83EA327A6720682314
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:4B8474B35BE1D9B7AEEECB83EA327A6720682314
 ```bash
 magnet:?xt=urn:btih:B2292BE02D4BDB35C6A8ECEFE3F5B7F545E2F0F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Auto Shutdowner 1.3 + Portable [Ru/En]
 magnet:?xt=urn:btih:850E03F994A71D92D4E518647A74CB9535316F9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Scrivener — мощный текстовый редактор для тех, к
 magnet:?xt=urn:btih:C5EAC6A631E47158FF25EEC18BBDCE80EB8C0AA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:C5EAC6A631E47158FF25EEC18BBDCE80EB8C0AA3
 ```bash
 magnet:?xt=urn:btih:F5C5F46B306E322F9A0FDBC9E758983FD83777F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:F5C5F46B306E322F9A0FDBC9E758983FD83777F5
 magnet:?xt=urn:btih:50D26BFE24D35407E249B5CF2EAC4DA35B2BA3E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ OBS - полностью бесплатная программа для виде
 magnet:?xt=urn:btih:06561BE3243B8629F555996D2B875A81FBD3EA51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:06561BE3243B8629F555996D2B875A81FBD3EA51
 ```bash
 magnet:?xt=urn:btih:D344C59AD8DFD2094CEA0AFE473CB714A37EA7A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ WakeupOnStandBy – многофункциональный «рубильник�
 magnet:?xt=urn:btih:1B3ECF045F677C7EC448E26738E03B7A9F41BC0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ OEMLogo Pack - пакет логотипов и иконок для измене
 ```bash
 magnet:?xt=urn:btih:F9F8F27B23A9F2F614804740BE95A42D196B8728
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Wise Game Booster 1.5.3.77 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:5C43CB72EA04104C70B5FE7CC92DBC6319466BD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:38F05B5F85BBB7B42B1FF70B50436BA0022D4883
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ TreeSize Professional - мощное и гибкое средство визуа
 magnet:?xt=urn:btih:ABA933D57D3AA8BEA9F099C2E628FD9A6307EE2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Help+Manual - это полнофункциональный инструмент
 ```bash
 magnet:?xt=urn:btih:517768C925BCEA0B87785103EB452B2225DD01FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ UltraSearch ищет файлы и папки на локальных диска
 magnet:?xt=urn:btih:32A8DEC69A04272DE978B9D6968D70754AA6E3E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ FontLab 7, это новая программа, для профессионал
 magnet:?xt=urn:btih:D3610A6AA495A0D0AD6623C1A8B53B248E73302F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Microsoft Product Keys позволит вам получить ключи дл�
 ```bash
 magnet:?xt=urn:btih:73F4A2B2D21014CA9BC9169E04927038FF63D29D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:73F4A2B2D21014CA9BC9169E04927038FF63D29D
 magnet:?xt=urn:btih:04AFBED233E8377B88CD200180640577C3A3D402
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:04AFBED233E8377B88CD200180640577C3A3D402
 magnet:?xt=urn:btih:E352A392F6278F65B0FF73B14D5EBE92ED723FE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:E352A392F6278F65B0FF73B14D5EBE92ED723FE3
 ```bash
 magnet:?xt=urn:btih:45C0863EC7FF047F75C3F0C0AEFFB5B3FCB8C88E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:45C0863EC7FF047F75C3F0C0AEFFB5B3FCB8C88E
 magnet:?xt=urn:btih:4687232A5069A4DDDD2B8F1C0F8240A5C09C25B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Wise JetSearch 4.1.4.219 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:78DE4169FCF72CD6473E81C76242D9FABE905B9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Screen Calipers представляет собой обыкновенный ш�
 magnet:?xt=urn:btih:E1D832B6796EDB938BA6D4E09374CED03FE22C7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Spiral Timer 1.1 [En]
 ```bash
 magnet:?xt=urn:btih:2BFDF90E2E51B395BA9744C2BDCD42CB9C81E275
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Elcomsoft Phone Breaker - Инструмент для криминалистов
 magnet:?xt=urn:btih:F48C6F125BDB84CF2485AEAB1B44170E8BB85A2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ Iconico Screen measurement pack - это пакет программ для пр
 ```bash
 magnet:?xt=urn:btih:67276069A3372CD38FF378E664AFC38BBF8FBF8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:67276069A3372CD38FF378E664AFC38BBF8FBF8D
 magnet:?xt=urn:btih:F85A3938A72ADA03C85EFB40097C1C2743AA2D20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ WinAutomation 3.1.6.676 [En]
 ```bash
 magnet:?xt=urn:btih:D6E9F82E6A2B532DE9BB948082F63F1D566ECE68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

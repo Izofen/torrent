@@ -1,3 +1,32 @@
+###  Публикация: 1606931   (1044218) от 24.01.2023
+
+VA - The Many Faces of Stevie Wonder (2021) 3xCD [FLAC|Lossless|image + .cue] <R&B, Soul, Pop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stevie Wonder, настоящее имя которого Stevland Hardaway Morris, родился 13 мая 1950 года, - одна из самых любимых американских икон и бесспорный гений не только R&B, но и популярной музыки в целом. Слепой практически с рождения, обостренное восприятие звука помогло Wonder'у создавать яркую, красочную музыку, полную жизни и амбиций. Почти все, что он записывал, (   Читать дальше...   )CD1 - The Many Faces Of Stevie Wonder:
+ 01. Stevie Wonder - I Call Pretty Music But The Old People Call It The Blues (Part 1) (2:31)
+02. Stevie Wonder & Clarence Paul - Little Water Boy (2:35)
+03. Stevie Wonder - Superstition (Live) (5:41)(   Читать дальше...   )Жанр: R&B, Soul, PopПродолжительность: 02:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E80D26C0C786126CB3C0888AE3A7409675C7398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581379   (1045802) от 08.01.2023
 
 Вася Васин - 4 Albums (2009-2023) [MP3|320 Kbps] <Rap, Hip-Hop, Spoken Word>
@@ -21,6 +50,8 @@
 ```bash
 magnet:?xt=urn:btih:E9F85A65F8B2CD88F530B4FCD20F46C8730A9A3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ L'One (Леван Горозия) - Концерт с симфоническим
 magnet:?xt=urn:btih:75DC7AFE57BAF55F482EA643CD72D92355C320DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,32 +109,7 @@ SERPO - Чужие истории (2023) [MP3|320 Kbps] <Rap, Hip Hop>
 magnet:?xt=urn:btih:8F191E7D48B3B0F0B905E901E93367E056BF9CE5
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601880   (1046316) от 02.01.2023
-
-Вася Васин - Танец с саблями (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046316.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Великий Питер
-2. Мания величия
-3. Танец с саблями
-4. Мудрые слова(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6FCD57656C77BA8C12D1C41F1DC8B5B86885791
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:D6FCD57656C77BA8C12D1C41F1DC8B5B86885791
 magnet:?xt=urn:btih:86BFDAEA0142955B874855F904FD93743AD4440C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:86BFDAEA0142955B874855F904FD93743AD4440C
 ```bash
 magnet:?xt=urn:btih:5AC77E86C70C47D9FEF62FC0D4016A51920ED150
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:5AC77E86C70C47D9FEF62FC0D4016A51920ED150
 magnet:?xt=urn:btih:B73DD268C295A32BCDC6D475E2590B06A91E4103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Noize MC - Алхимия (2025) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <Rap, Hi
 ```bash
 magnet:?xt=urn:btih:D3677036E2389B38F478E0999906F6CE980A5F5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Noize MC - Алхимия (2025) EP [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:D29360679A84E69A6361AD068B7D3FB036236FBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Chillhop Essentials Winter (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 ```bash
 magnet:?xt=urn:btih:F0021BBC6257EC999D102625661FE7AE88A73D0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ magnet:?xt=urn:btih:F0021BBC6257EC999D102625661FE7AE88A73D0A
 magnet:?xt=urn:btih:9F0602ED82A58671613E84601415A7CF503BED53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ magnet:?xt=urn:btih:9F0602ED82A58671613E84601415A7CF503BED53
 ```bash
 magnet:?xt=urn:btih:B780AA2E23C513FA5AB32A5E82AA96F0C6D5D43F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ magnet:?xt=urn:btih:B780AA2E23C513FA5AB32A5E82AA96F0C6D5D43F
 magnet:?xt=urn:btih:14F82B6846A770FF8E6DC4625C24FE91E61E18E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Oxxxymiron - Национальность: нет (2025) [FLAC 24/48|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:4EE2BBF4342DEFAD4000319596EA7BA9596861CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Oxxxymiron - Национальность: нет (2025) [MP3|320 Kbps] <Rap, Hi
 magnet:?xt=urn:btih:6C8E4A6C7E8A819A9C04DC8C339F5A2CA26A658E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ magnet:?xt=urn:btih:6C8E4A6C7E8A819A9C04DC8C339F5A2CA26A658E
 ```bash
 magnet:?xt=urn:btih:2D00EA8DF27664265343D9E5C49842956E698E9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

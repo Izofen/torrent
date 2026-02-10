@@ -19,6 +19,8 @@ The Book of Unwritten Tales 2 (2015) [PS3] [EUR] 4.21 [PSN] [Ru]
 magnet:?xt=urn:btih:6DB05EBBDD7A32D89BF8C85BA851DA6109BF43B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Resident Evil Code: Veronica X (2001) [PS3] [USA] 4.85 [HEN] [Repack] [Ru]
 ```bash
 magnet:?xt=urn:btih:28FE5B5A6204F8E9161C92F53A61818B973AA613
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Witch and the Hundred Knight (2014) [PS3] [EUR] 4.53 [Cobra ODE / E3 ODE PRO
 magnet:?xt=urn:btih:2998683EE25F3EC5AB5C216D08973F1945416CC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Legendary (2008) [PS3] [EUR] 2.42 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 ```bash
 magnet:?xt=urn:btih:2D5F8D78282D7610EE557226DA1687838541D1CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Need for Speed: Rivals [XBOX360] [JtagRIP] [RUSSOUND] [Freeboot] (2013) | R.G.X3
 magnet:?xt=urn:btih:94CE0E5CB4D474B5EB452103A7E55514A0858F39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ inFamous / Дурная Репутация [PS3] [EUR] [RUSSOUND] [3.55] [Cobra 
 magnet:?xt=urn:btih:A9C3B2FDDD1A27F4C0B17B709CF8AC4ECD2DCE58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Killzone Trilogy (2012) [PS3] [EUR] 3.40 [Repack / 1.0 / 1.29 / 1.14] [Ru/En/Mul
 ```bash
 magnet:?xt=urn:btih:B80D52F7574D907DA75C94E8FA70C039EE226CF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Sleeping Dogs рассказывает историю детектива Вэй 
 magnet:?xt=urn:btih:266552C18C6CC1A829C65AD9A03707841191253A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:266552C18C6CC1A829C65AD9A03707841191253A
 ```bash
 magnet:?xt=urn:btih:E7E0A3A8E471EA043801E2126FE23AA465BA3968
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ The Testament of Sherlock Holmes [PS3] [RUSSOUND] [PAL] [3.55] (2012)
 magnet:?xt=urn:btih:F036A75673DE4238807E6D13D381F17AA58372F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Tiny Troopers Joint Ops — эпичная миниатюрная аркада, 
 ```bash
 magnet:?xt=urn:btih:B6E3EDDF7F31DDC5183C01C597865905569D4AF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Indivisible - игра в жанре экшн-RPG / платформер с ве
 magnet:?xt=urn:btih:EF7063D8352612834EFA5E7EBF0522A887B4EFDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Tokyo Jungle [PS3] [ENG] [NTSC] [FIXED FOR 3.55] (2012)
 ```bash
 magnet:?xt=urn:btih:A3090A75918B7C849B0FC6E9D272125214800B35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Geronimo Stilton in the Kingdom of Fantasy The Videogame [PSP] [ENG] (2011)
 magnet:?xt=urn:btih:DD32279BE4A42BB45306F19716DD0220A5031FFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ LEGO The Lord of the Rings [Wii] [MULTI4] (2012)
 magnet:?xt=urn:btih:C51E7D7E7C6AF87C36417427769441F1CB7402BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Transformers: Fall of Cybertron [Xbox 360] [Region Free] [RUS] [XGD3 / LT+2.0] (
 magnet:?xt=urn:btih:F844927D0941DF11FD016BA00AA4B6B358AB3C21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Project Sylpheed является духовным наследником shoot 
 ```bash
 magnet:?xt=urn:btih:B53F1BE024BAE880D2676C9802DE47348B687520
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Donkey Kong Country: Tropical Freeze — это новейший и первый
 ```bash
 magnet:?xt=urn:btih:868D1032151C60D9F1CBFB88B49B3299E0D0F61A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ Injustice: Gods Among Us (2014) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Ru
 magnet:?xt=urn:btih:591BE40156D5F5B1E791914438A074E3D96393DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (1
 ```bash
 magnet:?xt=urn:btih:489EC7FDBCE4344A044F7A57E3715C01D8F7CBDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Space Hulk (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [Ru
 magnet:?xt=urn:btih:A30EC988B6A09852304A48E88D5770AB46787ABB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Phineas and Ferb: Across the 2nd Dimension / Финес и Ферб: Покор�
 ```bash
 magnet:?xt=urn:btih:3C7F2D2D90804BB5B1091807D8FCED70A3EFCA62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Tower of Guns: Special Edition (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO I
 magnet:?xt=urn:btih:1C9F252840F7EB17065E7A4DF295FCDB3D508CEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Resident Evil 6 (2012) [Xbox360] [Region Free] [FreeBoot] [Unofficial] [Ru]
 ```bash
 magnet:?xt=urn:btih:0C9FEB3086960F44337B6BC7CFEDE37D2D7DE4BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ Mario + Rabbids Kingdom Battle (2017) [Switch] [EUR] 5.1.0 [License / DLC] [Ru/E
 magnet:?xt=urn:btih:79A6969D96D808F0D6B301832A3880E3D2CFE452
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Assetto Corsa Competizione (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.12] [Ru/En
 ```bash
 magnet:?xt=urn:btih:7B2852228FDA76BD4013E7ECBB1A280998E010BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Daylio - Mood Tracker / Дневник - Трекер Настроения v1.61
 magnet:?xt=urn:btih:E2666DAF4976D348F304547075C7CBC4727179B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:E2666DAF4976D348F304547075C7CBC4727179B4
 magnet:?xt=urn:btih:5730F83360FEA6F93948A23EAFFCCDEAC5F4C533
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:5730F83360FEA6F93948A23EAFFCCDEAC5F4C533
 ```bash
 magnet:?xt=urn:btih:24079E1513AB29D0FA0B365B424781AC1F899512
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:24079E1513AB29D0FA0B365B424781AC1F899512
 magnet:?xt=urn:btih:FA0CFC7A63F20F2BF7C776A5327166BDD1E493C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ RAR компании RARLAB способен создавать RAR и ZIP и р
 ```bash
 magnet:?xt=urn:btih:A34070752FF29391A00443FCC2B753416BC85C85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ SoundHound — ваше лучшее музыкальное приложение
 magnet:?xt=urn:btih:B2C77043E5AE59EB1B19DA1C813BB7825522046A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:B2C77043E5AE59EB1B19DA1C813BB7825522046A
 ```bash
 magnet:?xt=urn:btih:BF8CB6D7170EC29B9FE42DFE3114E2A5275035D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ tTorrent - удобный, функциональный и из-за прочи�
 magnet:?xt=urn:btih:BEDBB9EF49A45C23C479C227C57B657D0A4E7A04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.0 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3C0E33DBBFC2BFD001013FFFA17AB223E78A9D05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Instant Translate On Screen — это мощное приложение для 
 magnet:?xt=urn:btih:077CF8BED130A29C35C2B43B3DFDDFD27FECB12C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:077CF8BED130A29C35C2B43B3DFDDFD27FECB12C
 ```bash
 magnet:?xt=urn:btih:62929D6370C1480EA159BE5F432A3DF685E233E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ PhotoRoom v2025.15.02 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:F3C232B9633D3CA598C3E79414268E700CACB10C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Password Safe and Manager v8.2.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:36E1E8A6DD69FB62656676477F76572B8928F1A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Dict Box - Английский словарь v8.9.9 Mod by Alex.Strannik [Ru/M
 magnet:?xt=urn:btih:6D9FDA53A71A2A9484A43B4482F8356551E63648
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ CCleaner - один из самых известных и популярных �
 ```bash
 magnet:?xt=urn:btih:4A8E64CB64DD6F92DD7FA451E39DC92F6934F2BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ InColor: Coloring & Drawing v6.5.4 Mod by PieMods [Ru/Multi]
 magnet:?xt=urn:btih:3FD437CAF641765CE12B8FD4D23DD7C1529EF5EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:87ADD067A465AB9B4E2E2C5AAC11C93222E986B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Bananastreet: Deep House & EDM v4.1.61 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:04C104E04346430EAB8A10EC7964C1A897CF506A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ AdGuard — уникальный блокировщик рекламы без п
 magnet:?xt=urn:btih:1135DDF67E0E172DB239B30BB8EC47ABF0832F96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ SD Maid SE (он же SD Maid 2) — это инструмент управле�
 ```bash
 magnet:?xt=urn:btih:84484152E11405994218AE180E4421F38CE42764
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ MiHome v10.3.700 Mod by Vevs [Ru]
 magnet:?xt=urn:btih:0BA6A97C6405F93F77FE29CADC2BC54283F1F4D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:0BA6A97C6405F93F77FE29CADC2BC54283F1F4D9
 ```bash
 magnet:?xt=urn:btih:C28C2532D8581DD27C210ECA70020B8510DCBF7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Tone Generator PRO 3.78 Mod by Alex.Strannik [En]
 magnet:?xt=urn:btih:50BA9BBDCCDA3ECBB14157BC6B0E704EF53D679B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:50BA9BBDCCDA3ECBB14157BC6B0E704EF53D679B
 ```bash
 magnet:?xt=urn:btih:B04D6FFC11172E30130FD2C76848F1CB66A745C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:B04D6FFC11172E30130FD2C76848F1CB66A745C4
 magnet:?xt=urn:btih:815E3BC5BBE895A658B1397878358F9D5CA57F57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:815E3BC5BBE895A658B1397878358F9D5CA57F57
 ```bash
 magnet:?xt=urn:btih:6938A6DDC3B4C49CE6E34B53817E7C34F44B09A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

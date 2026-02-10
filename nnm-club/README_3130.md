@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:9844D0D5506B00375345337C7D0FDE834BE9A370
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:9844D0D5506B00375345337C7D0FDE834BE9A370
 magnet:?xt=urn:btih:CC54C596219CF05322C79C213C181602900AA70B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Hauma - это визуальный роман в стиле нуар с дед�
 ```bash
 magnet:?xt=urn:btih:EACADD59162534E0BD6507FC38A7C446CDF6CB97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:EACADD59162534E0BD6507FC38A7C446CDF6CB97
 magnet:?xt=urn:btih:16F524D2C1F60FF2BD0BD55C1BFD6310706198A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:16F524D2C1F60FF2BD0BD55C1BFD6310706198A0
 ```bash
 magnet:?xt=urn:btih:CAF3D72FEE2C3382E75270106567F7AB41C611B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ VA - Arcane League of Legends: Season 2 (Soundtrack from the Animated Series) (2
 magnet:?xt=urn:btih:130573064FD08C595A2340D0D76C4D1439285A5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:130573064FD08C595A2340D0D76C4D1439285A5A
 magnet:?xt=urn:btih:D57626AF087AC972E1CDFCA5226AF1D8D839F39D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:D57626AF087AC972E1CDFCA5226AF1D8D839F39D
 ```bash
 magnet:?xt=urn:btih:9CA76FCFDCBBFD46F2D9620E7E0160127EBC1834
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:9CA76FCFDCBBFD46F2D9620E7E0160127EBC1834
 magnet:?xt=urn:btih:813703CD085EBB915BCA9EA5C2CDCB9C30B85384
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:813703CD085EBB915BCA9EA5C2CDCB9C30B85384
 ```bash
 magnet:?xt=urn:btih:8A5DC6E50C55D92B4C1BA69DE7C75BECAC788FBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ VA - The Magic of Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classica
 magnet:?xt=urn:btih:B04DFD97CFC05C19B871DC47F2B622324FB6349D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:B04DFD97CFC05C19B871DC47F2B622324FB6349D
 ```bash
 magnet:?xt=urn:btih:23E409670994F58B7F979F78584A4C328E92C0AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:23E409670994F58B7F979F78584A4C328E92C0AE
 ```bash
 magnet:?xt=urn:btih:ED1007E8166FEE9B5820041A3A978C4FEFC98974
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ VA - Compilation part 136 Electronic (2024) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:195EA66C63D3617E1F62C1A18D3136D9487BC7C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ VA - Рождественский романс (2015) [MP3|320 Kbps] <Роман
 magnet:?xt=urn:btih:C3A2DC5C8107EA3B913E83C6AEC4FEAD8C106507
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:C3A2DC5C8107EA3B913E83C6AEC4FEAD8C106507
 ```bash
 magnet:?xt=urn:btih:BC7EE678E6EABE27479597985B2BA93BC5C3645C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ V.A. - Music For Dreams, Best Of 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Loun
 magnet:?xt=urn:btih:373B47AB8239D470137B9C9A7971D9353CCD372F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:373B47AB8239D470137B9C9A7971D9353CCD372F
 ```bash
 magnet:?xt=urn:btih:5CAF330710BD23A5D47F2392A91E6638B10948B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:5CAF330710BD23A5D47F2392A91E6638B10948B7
 magnet:?xt=urn:btih:31CD21F5A1ED39AC18FCC0802CB229D784A22A9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:31CD21F5A1ED39AC18FCC0802CB229D784A22A9B
 ```bash
 magnet:?xt=urn:btih:94D2A764F204FD170DFFFC09D9F8CE684E0AB29B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:94D2A764F204FD170DFFFC09D9F8CE684E0AB29B
 magnet:?xt=urn:btih:CF6C369DC5FB8227AFCA05F9BD66BBB20D5FBED6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:CF6C369DC5FB8227AFCA05F9BD66BBB20D5FBED6
 magnet:?xt=urn:btih:23345CDC7F7E8A1215368C632EC387020548CB34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:23345CDC7F7E8A1215368C632EC387020548CB34
 ```bash
 magnet:?xt=urn:btih:CB79D2993AF43C7879C1654AF0FF5C17AF19F11D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +641,8 @@ magnet:?xt=urn:btih:CB79D2993AF43C7879C1654AF0FF5C17AF19F11D
 magnet:?xt=urn:btih:FFB990D49DC4B671FA059C5D2AE14301D2A5F798
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ VA - Compilation part 135 Electronic (2024) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:B8847AC8115A78D7B0AC178F447B94AF94EB5B86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:B8847AC8115A78D7B0AC178F447B94AF94EB5B86
 ```bash
 magnet:?xt=urn:btih:8F214EF44497097D04EC50D145F278DBDE791BB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

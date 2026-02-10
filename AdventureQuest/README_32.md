@@ -19,6 +19,8 @@ MoonFire: A Seeker's Saga (2024) [En] (1.3.2) License GOG
 magnet:?xt=urn:btih:101AF4A3F61AD8A36543F6BAD0EF35250F2B712A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ DREDGE (2023) [Ru/Multi] (1.5.1/dlc) Repack Other s [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:FE592C76D0ED34467340D54449A1DD16EFF1DC94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Star Named EOS - не совсем обычная приключенческ
 magnet:?xt=urn:btih:3955779AC2A7224DF88BD06D5A59F8CE595B4271
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Snufkin: Melody of Moominvalley - это приключенческая игра
 ```bash
 magnet:?xt=urn:btih:A9B40EB55053F79290B89A95C72B87517ECF9CF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Bathhouse Restored Edition – перед вами невероятный я
 magnet:?xt=urn:btih:0F93B0F4770E337FBDD290D0DC8562CF519308B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ A Space For The Unbound – игра, выполненная в пиксель-�
 ```bash
 magnet:?xt=urn:btih:188C80A45A7F33C3666448390783B46F8DD41DAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Eternal Escape: castle of shadows (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:92D867C4DD0B0153E9DB3E884B04B90FF25E4D98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Moonless Moon (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:3FAD495A0FE47B2EC898D88EFD06F1E43C5627C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Blacklist Mafia (2024) [Ru/En] (Build 15226435) Repack FitGirl
 magnet:?xt=urn:btih:767E3C9B9B54EC870CC430E48A7F1579654A1774
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Universe For Sale (2023) [Multi] (1.3.0) License GOG
 ```bash
 magnet:?xt=urn:btih:A4CB6A2EE09EB0851923ADCCF04C6CD05F3E891D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Zombie Police: Christmas Dancing with Police Zombies (2024) [Multi] (1.0) Scene 
 magnet:?xt=urn:btih:AEA90DDC760ABC5F94C336948E910887FE26402B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Kanon (2024) [Multi] (1.2.0.3) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:8A8ADBA4967016EC6DA81115DAB228D2D2BCCDC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Nine Noir Lives (2022) [Multi] (1.0.3.1) License GOG
 magnet:?xt=urn:btih:A4D177851C5640B87B7E6C152AE679CFEC7439C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Cursed Bet (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4887B2F5910705859F651D6C625AB8AC62AD31C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ SCHiM (2024) [Ru/Multi] (1.0.3.a) Repack FitGirl
 magnet:?xt=urn:btih:6225A7350D62C00707A3A7180B05943A1FB4218D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Etera (2024) [En] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D2F0C95AE0227FC8B51155567B85333F882795DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Conscript (2024) [Ru/Multi] (1.0.0.2/dlc) Repack FitGirl [Officer Edition]
 magnet:?xt=urn:btih:4FB49D72D8D6414099AB5347448EE11BE05B609F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Sylvio: Black Waters представляет собой необычный ми
 ```bash
 magnet:?xt=urn:btih:39AB623545994D0EE9382C0349E1221723A2DABA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:39AB623545994D0EE9382C0349E1221723A2DABA
 magnet:?xt=urn:btih:B3CD78909A67A6E106EC849F36A256EEADCE1D26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Setteeh родом из ледяного сердца Якутии. Адвенч
 ```bash
 magnet:?xt=urn:btih:53FA6A2C1936BAEFF200C44BC44508FB4B2200A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Subnautica: Below Zero (2019) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:80E28A85B04BA712C65B72AC5B66820AB829D75F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Minds Beneath Us - приключенческая игра в стиле киб�
 ```bash
 magnet:?xt=urn:btih:EDF384A03055A7BDACF0BF02762B440E75372097
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ My Lovely Wife - приключенческая игра, события кот�
 magnet:?xt=urn:btih:538645422DB2FD0814608707FB6B04D46244DF20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Thank Goodness You're Here! – перенесет вас в Англию, в г
 ```bash
 magnet:?xt=urn:btih:DCBCF56AC4FADDE8DD569E4E2B8198641A53AE1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ realMyst (2000) [En] (1.11) License GOG
 magnet:?xt=urn:btih:2ED9BBB88A6DA080D6EBA9F119B6DDB92EFEC688
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Shift 87 – самая необычная рабочая смена ждет в
 ```bash
 magnet:?xt=urn:btih:6636B88D5872F2392357860B7092BEAA5CF8A3AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

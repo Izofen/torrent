@@ -1,3 +1,148 @@
+###  Публикация: 1043806   (570931) от 17.08.2016
+
+Lukas Graham - Lukas Graham (2015) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 7 Years 03:57
+02. Take The World By Storm 03:11
+03. Mama Said 03:26
+04. Happy Home 03:38(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0A5F6FA4C917AE40FC047EAFCB99DB5A0DF2323
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303647   (570968) от 22.05.2019
+
+Laurence Castera - Les hauts lieux (2019) [FLAC|Lossless|tracks + .cue] <French Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jouer le jeu (3:57)
+02. De l'autre côté (3:32)
+03. Déposer les armes (3:36)
+04. L'élyme des sables (4:41)(   Читать дальше...   )Жанр: French Pop, Pop RockПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61CB5D5D20D1D64A5D272EBDA01B50279D00B93E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234264   (571011) от 05.07.2018
+
+Ольга Федотова - Сомнений нет! (1998) [FLAC|Lossless|image + .cue]<Рор>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Уйя - Айя
+02. Зимушка
+03. Шут
+04. Сомнений нет!(   Читать дальше...   )Жанр: РорПродолжительность: 01:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C9B10B2FD096B07EF3CD333F9DFE8BD11107C7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234393   (571013) от 05.07.2018
+
+MBAND - Грубый возраст (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Грубый возраст
+02. Baby
+03. Правильная девочка
+04. Лимбо(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC217256394191E7606B38BE382AEF449EFEB61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234500   (571017) от 05.07.2018
+
+Hipnosis - Hipnosis (1984) LP [MP3|320 Kbps] <Electronic, Italo-Disco, Spacesynth>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inesi (1:15)
+02. Windland (4:48)
+03. Argonauts (4:48)
+04. Pulstar (4:20)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, SpacesynthПродолжительность: 00:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7723757965EEAAA8DB22A0125DD8EDD26F4C9D66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234435   (571019) от 05.07.2018
 
 Planet Earth - Planet Earth (1978) LP [MP3|320 Kbps] <Electronic, Space Disco>
@@ -21,6 +166,8 @@ Planet Earth - Planet Earth (1978) LP [MP3|320 Kbps] <Electronic, Space Disco>
 ```bash
 magnet:?xt=urn:btih:04EC91631D2ADB91E383887230E2D8B5A5028A8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ CD1:
 magnet:?xt=urn:btih:3E9CE0B6A9EF1F7D0E93E376335D2E3504C037EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +224,8 @@ magnet:?xt=urn:btih:3E9CE0B6A9EF1F7D0E93E376335D2E3504C037EF
 ```bash
 magnet:?xt=urn:btih:19B170FB4CAEE5ADD139BD28CCFC0DC250A9FE49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +254,8 @@ Sophie Marceau - Certitude (1985) [MP3|192 кб/с]<French Pop, Chanson>
 magnet:?xt=urn:btih:BD02AC5CB18DFA40042EE003287CF0A9BA2CDDA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +283,8 @@ Sandra - Medley - Non-Stop Hit Mix 2020 (2020) [FLAC 2.0|48/24|WEB-DL|tracks] <P
 magnet:?xt=urn:btih:E4FB2FE3B8CCC1EAAC12A63A6E659705AE82D977
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +311,8 @@ Leo Sayer - Northern Songs (2021) Sings The Beatles [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:C0C82DA90D9FE1CF9A3CC10605816232507B7C57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +347,8 @@ CD-1
 magnet:?xt=urn:btih:059334D40746D855325739D8CA60DB4A6135AF4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +375,8 @@ VA - 80's Chillout. The Ultimate Collection of Chilled 80's Music (2017) [MP3|32
 ```bash
 magnet:?xt=urn:btih:992A5EF698F7E0D0F0E2D436E5BDFC94BFF430F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +405,8 @@ VA - Хитовый 4 (2018) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:3378EC68896BA5828A10910819FE0FB1AE237EB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +433,8 @@ Ten Sharp - Everything & More: The Best Of Ten Sharp (2000) Compilation [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:58DC9D2DF2A0E0F88DABC582CB33B8A49625D65B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +463,8 @@ magnet:?xt=urn:btih:58DC9D2DF2A0E0F88DABC582CB33B8A49625D65B
 magnet:?xt=urn:btih:1B653D90BD95DB3FCCA8E9BC66E321A9F67EC7AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +491,8 @@ magnet:?xt=urn:btih:1B653D90BD95DB3FCCA8E9BC66E321A9F67EC7AB
 ```bash
 magnet:?xt=urn:btih:B13F32A07F081E1E88AE03CE67060D2D8676C968
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +521,8 @@ Peter Jacques Band - итало-американская диско-группа
 magnet:?xt=urn:btih:DA7C7E84904FF7D9DC2D20D3853F55BED360C772
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +550,8 @@ magnet:?xt=urn:btih:DA7C7E84904FF7D9DC2D20D3853F55BED360C772
 magnet:?xt=urn:btih:11A7FF82BAD2D4F81527D407D03CD5CEED031763
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +578,8 @@ VA - We Love Summer (2019) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:DA71C2463BA22C9C87FFB9085BCB13D0C9242C17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +614,8 @@ Babe - Never Listen To A Bouzouki Player (2001) [MP3|320 кб/с]<Disco>
 magnet:?xt=urn:btih:465C69FC5E42ECB83971A7ED6D145659036177F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +649,8 @@ Babe - Hollands Glorie (2003) [MP3|320 кб/с]<Disco>
 magnet:?xt=urn:btih:3D71006148022159E3693D791A0CEF33C7365AAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +677,8 @@ Elohim - Elohim (2018) Deluxe Edition [Explicit] [MP3|320 Kbps] <Synthpop, Elect
 ```bash
 magnet:?xt=urn:btih:08010C92837674A959E5F5D4C620B07EF636D5E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +707,8 @@ magnet:?xt=urn:btih:08010C92837674A959E5F5D4C620B07EF636D5E2
 magnet:?xt=urn:btih:4A175B03872957F00D1282CE19DA470277D11480
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +736,8 @@ Inna - Body and the Sun (2015) [MP3|320 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:7436CF580E6BA61A6BBE7A3B154173BAE2525E87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,146 +764,7 @@ Fear of Tigers - Christmas In Kaohsiung (2013) EP [MP3|320 кб/с]<Electronic, 
 magnet:?xt=urn:btih:E90B7051FD880D5FA735BC95E1F8F001D7C8FE2C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921935   (573794) от 26.07.2015
-
-Fear of Tigers - Zoipa (2014) EP [MP3|320 кб/с]<Electronic, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weekend In Harlem
-02. Ailuropoda Melanoleuca
-03. Golden Age
-04. Twisted Biscuit(   Читать дальше...   )Жанр: Electronic, Indie PopПродолжительность: 00:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB7D938AD7F3559FA6FCBD068B111D54E96CE7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554926   (573810) от 01.06.2022
-
-Gilla - Disco Collection (2001) [FLAC|Lossless|tracks + .cue] <Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johnny
-02. Tom Cat
-03. The Heat Is On
-04. Go Down Mainstreet(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:468423F962DF40367908675996375FC591EBD0F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151300   (574177) от 18.07.2017
-
-VA - New Generation Italo Disco - The Lost Files Vol.4 (2017) [MP3|320 Kbps] <Italo Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mrs. Blue - Never Enough (BCR Extended Disco Mix)  7:43
-02.  Mimosa - In Love (BCR Extended Dance Mix)  5:39
-03.  Rovigo - Don't Let Me Go (BCR Vocal Remix)  6:12
-04.  Italian Boy - Italian Girl (BCR Extended Dance Mix)  6:26(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 01:25:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCF0466015F523991678A1AD54FB26ABB148702F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527499   (574306) от 27.07.2012
-
-Adriano Celentano - The Best (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574306.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Soli (3:59)
- 2. Pay, Pay, Pay (4:14)
- 3. Amore No (5:08)
- 4. Qua La Mano (3:59)
- 5. Stivali E Colbacco (4:12)
- 6. Un Poґ Artista Un Poґno (4:56)
- 7. L'orologio (4:42)
- 8. Il Tempo Se Ne Va (3:46)
- 9. Una Parola Non Ci Scappa Mai (4:17)
- 10. Conto Su Di Te (4:13)(   Читать дальше...   )Жанр: PopПродолжительность: 04:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9EB501ACF8C191EF767D1817ED3E45B9692ADFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151098   (574341) от 18.07.2017
-
-John Paul Young - Greatest Hits (1997) CD [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is In The Air - 1978 (3:28)
-02. Lost In Your Love - 1978 (3:11)
-03. Here We Go - 1978 (3:40)
-04. Hot For Your Baby - 1980 (4:09)(   Читать дальше...   )Жанр: Electronic, Disco, Pop RockПродолжительность: 00:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42AB2422674AE927B8467E6A5BBA246347F07398
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

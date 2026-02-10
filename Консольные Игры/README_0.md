@@ -19,6 +19,8 @@ Mortal Kombat vs DC Universe (2008) [PS3] [EUR] 2.50 [License] [En]
 magnet:?xt=urn:btih:0A30C8E89C5887D48C450D76824C6FF559AF088F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Ghostbusters: The Video Game (2009) [PS3] [USA] 2.60 [License] [En]
 ```bash
 magnet:?xt=urn:btih:300734E0A20303FAF23F9086AB1DB68C3AFB7548
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Max Payne 3 - продолжение знаменитого боевика с М
 magnet:?xt=urn:btih:B486A6BAEED46D3F0D0E99C8C85A2FD50A6598EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Smurfs 2 (2013) [PS3] [USA] 4.41 [License] [Multi]
 ```bash
 magnet:?xt=urn:btih:16F97667E2343DE7C2486EDA009B964DEEDF6944
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Majin and the Forsaken Kingdom (2010) [PS3] [USA] 3.50 [License] [En]
 magnet:?xt=urn:btih:B59AE502847C6BFAE05C96F0F12694C3CECADEE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Family Guy: Back to the Multiverse - на этот раз взят за осно
 ```bash
 magnet:?xt=urn:btih:B9E0B1BF1421770F53EEA870B194E22173E4E140
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ DuckTales: Remastered - это красочный, нарисованный вр
 magnet:?xt=urn:btih:F091C46FE76B4684FB765DE20A7B1BD51F4C1081
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ DuckTales: Remastered - это красочный, нарисованный вр
 ```bash
 magnet:?xt=urn:btih:52274D0C4F983252BE89E372D0B4239F7079546F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Sly Trilogy (2010) [PS3] [EUR] 3.50 [License] [En]
 magnet:?xt=urn:btih:3065E95B11A8D883D81C367C43F71141682DC021
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Vampire Survivors (2023) [Switch] [USA] 18.1.0 [NSP] [License / 1.12.108 / DLC] 
 ```bash
 magnet:?xt=urn:btih:36235C674B36034F72BFFD08D43499622A919D2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Little Big Adventure – Twinsen’s Quest (2024) [Switch] [USA] 18.1.0 [NSZ] [L
 magnet:?xt=urn:btih:69247DF3D78CA5BF7FEB5F17E9E9C87166757EFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2024) [Switch] [USA] 18.1.0 [NSZ] [
 ```bash
 magnet:?xt=urn:btih:3D235CFF43EBFB2B1C95188915DB3DAE71AABD23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Call Of Duty Black Ops 2 (2012) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [En
 magnet:?xt=urn:btih:07972B9935F8D5171E1B822549F0CD2618E7DB21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Dendy (рус. Де́нди) - серия домашних игровых при
 ```bash
 magnet:?xt=urn:btih:0849697D3FA7CFA2847D33609765E0BD4467E101
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Alien: Isolation (2019) [Switch] [USA] 14.0.0 [NSZ] [License / 1.1.4_60709] [Ru/
 magnet:?xt=urn:btih:56F3E486CE779EFFE42C948FB76B8E591F6B67CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Legend of Zelda: Echoes of Wisdom (2024) [Switch] [USA] 18.1.0 [License / 1.
 ```bash
 magnet:?xt=urn:btih:34A35534BD8C6260F7F3CF183796FFC1A526CFAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Comix Zone (1995) [PS3] [EUR] CFW Evilnat 4.91 [License] [En]
 magnet:?xt=urn:btih:ED57D7ECF2647169F74DB897B27AAD1BE57D499F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Super Mario World, в Японии известная как Super Mario World: 
 magnet:?xt=urn:btih:B95D9FC8DED065CF97AFCBABCCA9E39DB4CCA39F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +486,8 @@ Super Mario 64 - это трехмерный платформер, выпуще�
 ```bash
 magnet:?xt=urn:btih:29991924A049C0C47336514B90D7E3B9423917C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ magnet:?xt=urn:btih:29991924A049C0C47336514B90D7E3B9423917C7
 magnet:?xt=urn:btih:A7EB4119F584E8524871A3A674659697A543A405
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Warhawk (2007) [PS3] [EUR] СFW Evilnat 4.91 [License] [Ru]
 ```bash
 magnet:?xt=urn:btih:F6A02BCED23F3A7CA9CCE85624C86B74EF485321
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ Heavenly Guardian [Wii] [NTSC] [ENG] (2008)
 magnet:?xt=urn:btih:EDC7F8AAF65F493945D324B0BFE632D6072BD702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:EDC7F8AAF65F493945D324B0BFE632D6072BD702
 magnet:?xt=urn:btih:2380A43999F6FAC5F611168535084CFDA493E9C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ Madagascar 2: Escape 2 Africa [Wii] [PAL] [Multi 6] (2008)
 ```bash
 magnet:?xt=urn:btih:88D71B89F308C6750FA5F4C3A8304E267E1B578B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:88D71B89F308C6750FA5F4C3A8304E267E1B578B
 magnet:?xt=urn:btih:23785D0B262B1206A3FAAB3341CDB26277E6EFC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:23785D0B262B1206A3FAAB3341CDB26277E6EFC0
 ```bash
 magnet:?xt=urn:btih:BF2D4204E8943BF92B20796686D03C5B5D7BD556
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

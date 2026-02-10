@@ -19,6 +19,8 @@ Vaporum: Lockdown — это приквел знаменитой игры с п�
 magnet:?xt=urn:btih:BB5341EB473240004582D82DD26AE9192185C2F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Beloved Rapture представляет собой авторскую jRPG, с�
 ```bash
 magnet:?xt=urn:btih:B1496764F88C7311D70E4F1B270728D6C4E20D65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ V Rising (2024) [Ru/Multi] (1.0.10.1/dlc) Scene Rune
 magnet:?xt=urn:btih:9E15C5F261395F499BC80AFAA7A9392673240C7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:41D2E94B68B31E7692C9F3B7C160026073E59B6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Dragon's Dogma 2 (2024) [Ru/Multi] (1.0.0.1) Repack DjDI
 magnet:?xt=urn:btih:BE1D6A860E5578AE26C7F30938AC48C7594188D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Dread Dawn (2024) [Ru/Multi] (2024.11.17.1029) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:DBFF48AB42E4AB02E4804BCEB8E9A8F8618A65C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Wolcen: Lords of Mayhem (2020) [Ru/Multi] (1.1.7.16.12/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:47ECE7B5C6CC3D75BFA78920CECE63E41C189F3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Populous™: The Beginning (1998) [En] (1.02/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:1E2913B68188D5D9DA076BB45DB4CCD5A5B43F1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Dawn of the Ashen Queen - классический dungeon crawler на осно
 magnet:?xt=urn:btih:F92394CDB861014A8EA8D4401176337AEA026B23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Warhammer 40,000: Inquisitor - Martyr (2018) [Ru/Multi] (2.9.4/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:D15FDAE953F28074CEDA215A18D51AB32E0F9AFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Warm Snow (2022) [Ru/Multi] (3.1.0.1/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:87D669B563EAC6E16F1888DA27D6F62390565B65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Deathbound - действие игры разворачивается в сре�
 ```bash
 magnet:?xt=urn:btih:FCFAB5B9C8EE5B638876DE6DC7303DBF5A942B20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Dustland Delivery - это постапокалиптический бизнес
 magnet:?xt=urn:btih:DBE53C6C835BB637F8017802C9064934D1B90688
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Dungeon Defenders – интересная игра, которая сочета
 ```bash
 magnet:?xt=urn:btih:EAB40849807117F3AEA8622AA96AE96CC150DB79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ MasterQuest Fantasy - это увлекательная ролевая игра,
 magnet:?xt=urn:btih:EF220DCDE6BC33D3E9328CD02E2DD973BD4E0E51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Life and Suffering of Sir Brante – это нарративная роле�
 ```bash
 magnet:?xt=urn:btih:DD509499F53F839A47E7644CD75F44C9B33A1568
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Dust to the End (2020) [Ru/Multi] (1.0.4.3) License GOG
 magnet:?xt=urn:btih:50E5CFA059C104785EACF7CCC8FA3A8134CAC7D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:C23723CC133360522A335905A1BE01422F0E3C79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Atlas Fallen: Reign Of Sand (2023) [Ru/Multi] (1.119040/dlc) Repack LetsPlay
 magnet:?xt=urn:btih:56130EEE2D12251A3D9793FC010769CAC335E30E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (1.0.0.0/dlc) Repack Other s [Deluxe
 ```bash
 magnet:?xt=urn:btih:8D1C5865BD2AB3BD5B3354A00B45299C6DBEF9BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.0.38.0) Repack Other s
 magnet:?xt=urn:btih:47DAF1BE14FE37F278DE6268FED0D4DEA0B965AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Chrono Ark – ролевое приключение в классическом
 ```bash
 magnet:?xt=urn:btih:B74A599021FB72FB63476F41C72FCF1D3C177BBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Farmagia (2024) [Multi] (1.0.1/dlc) Scene Tenoke
 magnet:?xt=urn:btih:EC2193E3DF8DC0FE377E82E7DB91922E105FA501
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.0.37.0/1.0.38.0) Repack FitGir
 ```bash
 magnet:?xt=urn:btih:E1B2AB65532BEF825AC69EBAF605AF695BF5D605
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.0.37.0) Scene Rune
 magnet:?xt=urn:btih:97F131FC3C09EBB2DA907962E1BE4EFB8B835EF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (Build 16179329/dlc) Scene Rune [Del
 ```bash
 magnet:?xt=urn:btih:758EB36764C30A26E8E5201F53E0E0DBDEB61EB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

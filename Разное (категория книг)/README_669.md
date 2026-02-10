@@ -1,3 +1,29 @@
+###  Публикация: 630595   (928988) от 15.03.2013
+
+Александр Кородецкий | Естественное очищение суставов и кожи по Малахову [2010] [PDF]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Известный петербургский фитоэнергетик и автор популярных книг Александр Кородецкий долгие годы изучал методы нетрадиционной медицины и секреты фитоцелительства у знаменитых травников. Но даже став специалистом в области траволечения, он продолжает учиться у своих коллег и перенимать их опыт. Именно поэтому Александр Кородецкий стал одним из первых зрителей и участников программы "Малахов+". Многие рекомендации Геннадия Малахова и советы участников передачи "Малахов+" удачно дополняют методику фитолечения и естественного очищения суставов и кожи Александра Кородецкого.  Обновленная лечебная методика уже проверена на практике и показала впечатляющие результаты.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2A86C2FC3ED04F23CCB4E56BF9357EC0C801BDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365659   (929021) от 08.03.2020
 
 В. И. Ленин | К Международному дню работниц (1941) [DJVU, PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:2541B05CDB11C0F2650ECA6ED75A57C99A01F42F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:2541B05CDB11C0F2650ECA6ED75A57C99A01F42F
 magnet:?xt=urn:btih:F1E7B3CAC83BBE22E06C376EF6BF0A6D835059F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:F1E7B3CAC83BBE22E06C376EF6BF0A6D835059F2
 ```bash
 magnet:?xt=urn:btih:474E88C0246C7675901ABF61F898DEB3178657F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:474E88C0246C7675901ABF61F898DEB3178657F9
 magnet:?xt=urn:btih:E4FC83F660E6ED2344A610ED133252173323FB18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:E4FC83F660E6ED2344A610ED133252173323FB18
 ```bash
 magnet:?xt=urn:btih:F6CD1BB5CE1B84EAD7B6A3DE4D16374762F9511A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:F6CD1BB5CE1B84EAD7B6A3DE4D16374762F9511A
 ```bash
 magnet:?xt=urn:btih:9002B58A0463909946308201117CE99D9792BDDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:9002B58A0463909946308201117CE99D9792BDDA
 magnet:?xt=urn:btih:9585062265CB478F01671C311A365D8291B9FE4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:9585062265CB478F01671C311A365D8291B9FE4A
 magnet:?xt=urn:btih:58C5F0A6528F9354BFD1DCAF3A4A4B9227AF86A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:58C5F0A6528F9354BFD1DCAF3A4A4B9227AF86A9
 ```bash
 magnet:?xt=urn:btih:B62131D28116D93A662C4924D4F4628F386596EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +289,8 @@ magnet:?xt=urn:btih:B62131D28116D93A662C4924D4F4628F386596EB
 magnet:?xt=urn:btih:7740ED9E0F4B4B69DFA16FC7908485DDCC672275
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +315,8 @@ magnet:?xt=urn:btih:7740ED9E0F4B4B69DFA16FC7908485DDCC672275
 magnet:?xt=urn:btih:24CBF21B2E511B7C48577D603055A0A0C7071908
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +340,8 @@ magnet:?xt=urn:btih:24CBF21B2E511B7C48577D603055A0A0C7071908
 ```bash
 magnet:?xt=urn:btih:24D9E2A3CF75A5228B1BB64AC038DA9AED8E7FBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +369,8 @@ magnet:?xt=urn:btih:24D9E2A3CF75A5228B1BB64AC038DA9AED8E7FBD
 magnet:?xt=urn:btih:E7E999DE458D9ABF0D81FF8424F3FD7EFD3D5F49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +395,8 @@ magnet:?xt=urn:btih:E7E999DE458D9ABF0D81FF8424F3FD7EFD3D5F49
 magnet:?xt=urn:btih:9791BD2D635F5441FBA22182DC2EB5A1E4922364
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:9791BD2D635F5441FBA22182DC2EB5A1E4922364
 ```bash
 magnet:?xt=urn:btih:5A36D144E120D0550B698920C895AA346B45C8DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +449,8 @@ magnet:?xt=urn:btih:5A36D144E120D0550B698920C895AA346B45C8DB
 magnet:?xt=urn:btih:89A71B6580AA0EEDD8C95EEB158F0B64A0DEE5B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +474,8 @@ magnet:?xt=urn:btih:89A71B6580AA0EEDD8C95EEB158F0B64A0DEE5B8
 ```bash
 magnet:?xt=urn:btih:BD9F2283DB6A15691128D855C0339106B82B5F03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +501,8 @@ magnet:?xt=urn:btih:BD9F2283DB6A15691128D855C0339106B82B5F03
 magnet:?xt=urn:btih:1F0E777AFB0C2C5396AECEEE709C69B2EFA3EF23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:1F0E777AFB0C2C5396AECEEE709C69B2EFA3EF23
 ```bash
 magnet:?xt=urn:btih:E89F643BB5E2BBE8C4049A020AF2DE6C431E1AFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +554,8 @@ magnet:?xt=urn:btih:E89F643BB5E2BBE8C4049A020AF2DE6C431E1AFD
 magnet:?xt=urn:btih:B247C2D16421023C855DE5AB558933972A540C1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:B247C2D16421023C855DE5AB558933972A540C1A
 ```bash
 magnet:?xt=urn:btih:7D5442ADFEFF0B482950B4B9BB98CF72D3ADF138
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:7D5442ADFEFF0B482950B4B9BB98CF72D3ADF138
 magnet:?xt=urn:btih:483C04112CF0A67630E4505A63BA6C506C44AD97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:483C04112CF0A67630E4505A63BA6C506C44AD97
 ```bash
 magnet:?xt=urn:btih:8BB5E8052D4A7FA33F8CF5C0A40E4ADD68374BE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:8BB5E8052D4A7FA33F8CF5C0A40E4ADD68374BE1
 magnet:?xt=urn:btih:87BD723E9BAD64461056B0E1AF56A3B53A93E3B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,29 +684,7 @@ magnet:?xt=urn:btih:87BD723E9BAD64461056B0E1AF56A3B53A93E3B2
 нет
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094146   (930127) от 17.01.2017
-
-А. В. Шевчук и др. | Основы выживания в экстремальных условиях (2016) [PDF]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь человека всегда была сопряжена с опасностями. Не случайно наши далекие предки, делая первые шаги по пути эволюции, учились использовать камень не только как орудие труда, но и как оружие. Борьба за существование заставляла людей цепляться за жизнь, приспосабливаться к любым невзгодам, смело идти навстречу опасностям. Человек всегда обладал способностью адаптироваться (   Читать дальше...   )Жанр: выживаниеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45146B8D98DD6AD18471E9DDDFD4A486CBEC6257
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -28,6 +28,8 @@ VA-Самые сливки танцевальные 11  (2012) [MP3|320 кб/с]
 magnet:?xt=urn:btih:82B2D329EBA259ECBB5DBF2BCF4948763F5C5B99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -61,6 +63,8 @@ VA-Новая Игрушка 30-31  (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:AAFD5729110E70543AF1340DF2B8ECB38B385489
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -88,6 +92,8 @@ VA - Музыка для машины Vol.46 (2023) [MP3|320 Kbps] <Pop, Dance, 
 magnet:?xt=urn:btih:5DC68E7BBEB38E91DD6C316063D6BECE7F9B6E36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +120,8 @@ VA - Chillout For Peace Of Mind (2023) [MP3|320 Kbps] <Chillout, Lounge, Relaxin
 ```bash
 magnet:?xt=urn:btih:73F6394CC7FF207C28A7BF0DAC7981F3350B2C30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +156,8 @@ VA - До 18 и старше №40 Зима (2012) [MP3|256 кб/с]<Рор>
 magnet:?xt=urn:btih:8E9E9A4E9DDCFEE8AD93C8F400DF3A356EF45640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +184,8 @@ VA - Music News vol.319 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:4CA5897E9AFF762C4E2B2DA0B760E65EC98EC22E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +220,8 @@ VA - Chillout Cafe: Aperitif Edition (2012) [MP3|320 кб/с]<Downtempo, Chillou
 magnet:?xt=urn:btih:E6339BCE0111CF52DEBA2B11CF5D380A76412182
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +254,8 @@ VA - Island Dreams (2012) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:94AABA7CEECCEAD0CFC017E039FDFB29B9396A10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +290,8 @@ VA - Живёт моя отрада. Застольные песни (2012) [MP3
 magnet:?xt=urn:btih:53E1BA185AC3AB56B47F6DA0B42C5B07F79B2CB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +324,8 @@ VA - Новогодние пляски (2012) [MP3|128 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:0B2AB4DD766D9310A1EBCA69B28B7A9A063A84CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +360,8 @@ VA - Новогодний cборник зарубежной музыки (2012)
 magnet:?xt=urn:btih:3F7929D86934B26A11A8DFA887CD5CA064983482
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +394,8 @@ VA - Зимний extrim. Самые новые хиты 2 (2012) [MP3|256 кб/
 ```bash
 magnet:?xt=urn:btih:319F377514D7678BF7116C8ECBACE51DF238BB4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +430,8 @@ VA - So Fresh: Songs For Christmas 2012 (2 CD) (2012) [MP3|320 кб/с]<Holiday,
 magnet:?xt=urn:btih:9A5208771003BD6F1446E5BD2FDAC4AB689208D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +464,8 @@ VA - Хитовый Запах Нового года (2012) [MP3|256 кб/с]<Р
 ```bash
 magnet:?xt=urn:btih:0373D2C85DBF31F2BFFEC97966BC600A834D7088
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +500,8 @@ VA - Rare Groove Moods: Chillout Lounge Bootleg Classics Vol.1 (2012) [MP3|320 �
 magnet:?xt=urn:btih:016726E05C3FBBCE33E37CED0CCB04C33241B8FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +535,8 @@ VA - Песни для души (2012) [MP3|256 кб/с]<Шансон>
 magnet:?xt=urn:btih:5C66601CE98C90AC3F9FF02DE50D6517FFEC7888
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +560,8 @@ VA-New Age Style - Christmas Chill (2011) [MP3|320 кб/с]<New age, Chillout, I
 ```bash
 magnet:?xt=urn:btih:25FD509D450D49B8D49110AFA9A4E363EB10422F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +596,8 @@ VA - Зимняя вечеринка RuTV Русская 1 (2012) [MP3|128 кб/
 magnet:?xt=urn:btih:3FF0D8F64F3B2C7025BAAA95DC7E46131AE11203
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +625,8 @@ VA - Autumn Light Deep (2023) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:E025311AEBBB00DB9F139CE4037981ED631971C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +653,8 @@ AM 1984 - Compilation (2023) [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:B7BC18B1EA3031BC80AE7EC2F02A7E81742311B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +689,8 @@ VA - Дискотека 2012 Dance Club Vol. 97 (2012) [MP3|320 кб/с]<Pop, Cl
 magnet:?xt=urn:btih:4EDFBEECE40E94E7CDADFFBBE636678B3EEE54CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -681,6 +723,8 @@ VA - Новогодняя феерия (2012) [MP3|320 кб/с]<Рор>
 ```bash
 magnet:?xt=urn:btih:16BC83B85C68B1189C59EA30E5E8CF6A728188DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -715,6 +759,8 @@ VA - Ibiza Beach Merry XMAS: Winter Island Cafe Lounge Greatest (2012) [MP3|320 
 magnet:?xt=urn:btih:751AF8DD1369DAE8862E789367DAE10AFD05F16C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -748,6 +794,8 @@ VA - Fashion Cafe: A Journey Into Selected Lounge and Chillout Grooves (2012) [M
 magnet:?xt=urn:btih:E4F3A09A5DB8AB46FE73C23CF5CF05B2308B56AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -775,6 +823,8 @@ VA - Музыка для машины Vol.45 (2023) [MP3|320 Kbps] <Pop, Dance, 
 magnet:?xt=urn:btih:9119311E8978F47340D4833399E7D3E67D979802
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -801,6 +851,8 @@ VA - Smooth Live Jazz (2023) [MP3|320 Kbps] <Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:C4FEF2B1C1E7331CD7362A98E62C2E46C190041F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

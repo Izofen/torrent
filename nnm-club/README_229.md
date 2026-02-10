@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B13E39FF2394888C93BD86D05A13A0A517129B8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:B13E39FF2394888C93BD86D05A13A0A517129B8D
 magnet:?xt=urn:btih:E2692178682E91AC0EB7701813593AFA9D9C7EFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:E2692178682E91AC0EB7701813593AFA9D9C7EFB
 ```bash
 magnet:?xt=urn:btih:0AA35096701D101F4B8B619F4578D839B10E6F9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Forgotten but Unbroken (2024) [Multi] (1.2.2) License GOG
 magnet:?xt=urn:btih:6B0ECE16022429E1CD6C64C7433582DDBA4DAA75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Skully наделён силой волшебной глины и должен �
 ```bash
 magnet:?xt=urn:btih:E82B1E26B1688ABDA2CC51CB113C64910C9FBE79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Witch Way ставит игрока во главе поселения, стол
 magnet:?xt=urn:btih:38A664301844A5781689C2F6AE395503C855C6D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ USB Safely Remove 7.1.2.1328 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:10153022526F7F80226B5F5B1D036001D8FFEBA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ MyLanViewer — программа для сканирования и монит
 magnet:?xt=urn:btih:6DAAF4F1525F6CC3B126B7646EF4CCF06915EB3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Dying Light (2016) [Ru/En] (1.53.0/dlc) Repack Wanterlude [Definitive Edition]
 ```bash
 magnet:?xt=urn:btih:ABE59D47BB02192274EA762EC3B4CAC6B6850D3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ VA - Music News For Forum vol.129 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:5ED93DD81F8B0F57AB11034EC3249F579436B24A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:5ED93DD81F8B0F57AB11034EC3249F579436B24A
 ```bash
 magnet:?xt=urn:btih:B457D5139E8A08C55E1D123A360F8AF5438FAFC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ Robin Trower - 43 альбома, 2 Box Set (1973 - 2025) 84 CD [FLAC|Lossless|i
 magnet:?xt=urn:btih:770B09D7A226D36529EF8FA36A36614E12AFC513
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ Echoes of Yi : Samsara - это мрачная игра в жанре боевы
 ```bash
 magnet:?xt=urn:btih:26C396029E4A6575D16A023F9F29135157469A56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:26C396029E4A6575D16A023F9F29135157469A56
 magnet:?xt=urn:btih:CD5720048609CA4DC4996B0064A588F7D0CFABF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Dave the Diver - это казуальная приключенческая RPG 
 ```bash
 magnet:?xt=urn:btih:EA2AF3B4D2DAE4F4DCDE7E53763D5B5451E96D65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:EA2AF3B4D2DAE4F4DCDE7E53763D5B5451E96D65
 magnet:?xt=urn:btih:14680ECDB9053358C2962049B2653F1400C080C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:14680ECDB9053358C2962049B2653F1400C080C8
 ```bash
 magnet:?xt=urn:btih:E58F61EB5CD187954A1823A94DC66855FE57FB89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ V Rising (2024) [Ru/Multi] (1.1.9.0/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:07CBC10F95BB43D854C4F147CA4082BA4634F284
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:07CBC10F95BB43D854C4F147CA4082BA4634F284
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:07CBC10F95BB43D854C4F147CA4082BA4634F284
 magnet:?xt=urn:btih:CBCEDF3C4DC4AC9C0E8711CA77137B5904604964
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:CBCEDF3C4DC4AC9C0E8711CA77137B5904604964
 ```bash
 magnet:?xt=urn:btih:6C6E99F0FE60855D71A9F3B6D6A09C24E3C85C47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:6C6E99F0FE60855D71A9F3B6D6A09C24E3C85C47
 magnet:?xt=urn:btih:83B9F82921C1EF5581E24FD857131786B72D9ACF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:83B9F82921C1EF5581E24FD857131786B72D9ACF
 ```bash
 magnet:?xt=urn:btih:9CAABF178125E481CFDA9FBA8E645826848B9EAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:9CAABF178125E481CFDA9FBA8E645826848B9EAB
 magnet:?xt=urn:btih:B3114E685CD32B23CB2B0D850AA6B36504CF9359
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:B3114E685CD32B23CB2B0D850AA6B36504CF9359
 magnet:?xt=urn:btih:D3F9E1F94A602FD44A801EBDCB441BD8D523A980
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:D3F9E1F94A602FD44A801EBDCB441BD8D523A980
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

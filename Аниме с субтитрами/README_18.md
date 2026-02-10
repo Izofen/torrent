@@ -19,6 +19,8 @@ Dead Mount Death Play | Смертельная игра мёртвой горы 
 magnet:?xt=urn:btih:151588AB9375103E93244F382FE35F27CD30FC19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Kэнтapo Moмocэ — 26-лeтний oфиcный paбoтник. Heдaвнo o�
 ```bash
 magnet:?xt=urn:btih:592F930D0C2E492510BCBCE496A5DACD5019FBC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ The Idolmaster Million Live! / IDOLM@STER Million Live! / Миллион iDOLM@S
 magnet:?xt=urn:btih:99CFA67F8BB02FB5F6537C30AF25C5AB5630B192
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo / Сто девуш
 ```bash
 magnet:?xt=urn:btih:4778B39A45577850F4C72FF1FFF04B5CDC77573E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Kikansha no Mahou wa Tokubetsu Desu | A Returner's Magic Should Be Special | М�
 magnet:?xt=urn:btih:C530B91D7339EC153817A8200D2F5F9930C5263F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Boзвpaщaяcь дoмoй c paбoты, Kaopy Haгacэ нeoжидaннo yмepлa.
 magnet:?xt=urn:btih:396E3B2CC6B4C9825C9BAB1DEE5C5BC1CDE990E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Tearmoon Teikoku Monogatari / Tearmoon Empire / Хроники империи Т
 ```bash
 magnet:?xt=urn:btih:517D640D2F54751CB07758E5E406BFCD371088E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Spy x Family 2 / Семья шпиона 2 [2023, TV, 12] WEBRip 720p raw
 magnet:?xt=urn:btih:0D289F005A1620EDD46C88E2E56D024A51EB7595
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Keiken Zumi na Kimi to, Keiken Zero na Ore ga, Otsukiai Suru Hanashi. | Исто
 ```bash
 magnet:?xt=urn:btih:5886621749CF3455FFCBA99FC58134C4F4A4E426
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Goblin Slayer II | Убийца гоблинов [ТВ-2] [2023, TV, 12 эп.] W
 magnet:?xt=urn:btih:DEB1DA6A63417E01BA1B49ED1AF091D525C5774F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Overtake! | Обгон! [2023, TV, 12 из 12 эп.] WEBRip 720p raw
 magnet:?xt=urn:btih:04A85AA52AAEB70105187F297AFD84D28E19BBAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Kizuna no Allele (2023) | Аллели Кидзуны [ТВ-2] [2023, TV, 12 э�
 ```bash
 magnet:?xt=urn:btih:8E7B8735E25E56DD267AAA5B2044B39A7FF7E0CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Mahou Tsukai no Yome Season 2 | The Ancient Magus Bride Season 2 | Невест�
 magnet:?xt=urn:btih:B61FDABEE510C2587974B692125B33633529A6E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ S-Rank Musume | Boukensha ni Naritai to Miyako ni Deteitta Musume ga S Rank ni N
 ```bash
 magnet:?xt=urn:btih:2FEFEAA82406CB9F7078FE8EC155CEBD0A457DFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Aллeн — мaг-oтшeльник, избeгaющий oбщecтвa людeй �
 magnet:?xt=urn:btih:E8FDFE82430D9837598CA1682D0005DE8121B6C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Ojou to Banken-kun | A Girl & Her Guard Dog | Девушка и её сторо�
 ```bash
 magnet:?xt=urn:btih:6C3BEE20B2BF989799CEFC131EAB6B377FCA36C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ Seijo no Maryoku wa Bannou Desu 2 / The Saint's Magic Power is Omnipotent 2 / В
 magnet:?xt=urn:btih:5E3892261DD0C59E39872773F6930F862E08C881
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ Seiken Gakuin no Maken Tsukai / The Demon Sword Master of Excalibur Academy / М
 ```bash
 magnet:?xt=urn:btih:8C15B0215052FE3DEA4926F01AAD068B648638EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ Watashi no Oshi wa Akuyaku Reijou. / I'm in Love with the Villainess / Я пре
 magnet:?xt=urn:btih:637D0335DDC90B140D2343795102A7DDF6434D47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Amrita no Kyouen | Праздник Амриты [2023, Movie] WEBRip 1080p raw
 ```bash
 magnet:?xt=urn:btih:20F92C25B03F5DE6E73C429C95A59C82442C416A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Maou 2099 | Повелитель демонов 2099 [2024, TV, 12 эп.] BDRip 
 magnet:?xt=urn:btih:B868C0EE9C6AFA99DFE7EE209A14F5BF753226DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Isekai Quartet 3 | Четвёрка попаданцев [ТВ-3] [2025, TV, 1 �
 ```bash
 magnet:?xt=urn:btih:604B6892FA574E4C02077794618AAFEF7DA3DBD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Kimi to Koete Koi ni Naru | With You, Our Love Will Make It Through | Перес
 magnet:?xt=urn:btih:EB53883A225E5BD2C307AE8E51CE2CF1BA649AC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Chitose-kun wa Ramune Bin no Naka / Chitose is in the Ramune Bottle / Читос
 ```bash
 magnet:?xt=urn:btih:DEBC0496057BF8CBC70E30F82C1B68BA7120E790
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Dekoboko Majo no Oyako Jijou / The Family Circumstances of the Irregular Witch /
 magnet:?xt=urn:btih:64C115B1AE4A301666397A59B09D68EDF4DA07F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Rayearth | Magic Knight Rayearth | Рыцари магии [1997, OVA, 3 из 3]
 ```bash
 magnet:?xt=urn:btih:16A19FFF9052F250A4867E95C02A1D91C8B36531
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

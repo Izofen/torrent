@@ -1,27 +1,3 @@
-###  Публикация: 1564566   (499672) от 19.07.2022
-
-Междоусобный проект / The Internecine Project (1974) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в Лондоне в начале 1970-х годов. Фильм про бывшего секретного агента Роберта Эллиота, которого повышают до правительственного советника. Чтобы устранить любые связи со своим прошлым, Эллиот разрабатывает и осуществляет хитроумный план, в рамках которого четверо его бывших соратников невольно убьют друг друга в одну и ту же ночь...Производство: Великобритания, Германия (ФРГ), США, Hemisphere Pictures Inc. (I), Lion International, MacLean and CompanyЖанр: боевик, триллерРежиссер: Кен ХьюзАктеры: Джеймс Коберн, Ли Грант, Гарри Эндрюс, Иэн Хендри, Майкл Джэйстон, Кристиана Крюгер, Кинэн Уинн, Теренс Александр, Филип Энтони, Джулиан ГловерПеревод: авторский (Михаил Иванов), профессиональный одноголосый (Юрий Медведев)Субтитры: английскиеПродолжительность: 01:28:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D86BF97B43462D708AC3BCBDDB27BBC393732F26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564629   (499742) от 19.07.2022
 
 Алис Ги. Пьяный матрас / The Drunken Mattress (1906) DVDRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:D86BF97B43462D708AC3BCBDDB27BBC393732F26
 ```bash
 magnet:?xt=urn:btih:22FDF5B45B441505870CD8B305A57832C9984D39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +46,8 @@ magnet:?xt=urn:btih:22FDF5B45B441505870CD8B305A57832C9984D39
 magnet:?xt=urn:btih:0B48DFE81E94BBB782A03201B9FEBEE4AFB5225F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +71,8 @@ magnet:?xt=urn:btih:0B48DFE81E94BBB782A03201B9FEBEE4AFB5225F
 ```bash
 magnet:?xt=urn:btih:40A0EFD08F335041036E07C870ACF63A2C6C759D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +99,8 @@ magnet:?xt=urn:btih:40A0EFD08F335041036E07C870ACF63A2C6C759D
 magnet:?xt=urn:btih:EC20E05A03E9B8E09DD367020BAA5CD0F248F62C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +126,8 @@ magnet:?xt=urn:btih:EC20E05A03E9B8E09DD367020BAA5CD0F248F62C
 magnet:?xt=urn:btih:B3CF4058B9D678A321B1A97C2FB6179CB96B75A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +151,8 @@ magnet:?xt=urn:btih:B3CF4058B9D678A321B1A97C2FB6179CB96B75A2
 ```bash
 magnet:?xt=urn:btih:3BB65BB672A1D89411442B214D2B8375B4251EB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +178,8 @@ magnet:?xt=urn:btih:3BB65BB672A1D89411442B214D2B8375B4251EB0
 magnet:?xt=urn:btih:96B7112DE0C0D093C18AEEB9A3D808A1EC55079E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +203,8 @@ magnet:?xt=urn:btih:96B7112DE0C0D093C18AEEB9A3D808A1EC55079E
 ```bash
 magnet:?xt=urn:btih:C7E23CA9D25EA40B6B9EFAD7EB195EED6D482C34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +230,8 @@ magnet:?xt=urn:btih:C7E23CA9D25EA40B6B9EFAD7EB195EED6D482C34
 magnet:?xt=urn:btih:7242233A7C2377F0C6313DF0B84469DF4E722173
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +255,8 @@ magnet:?xt=urn:btih:7242233A7C2377F0C6313DF0B84469DF4E722173
 ```bash
 magnet:?xt=urn:btih:7B4539CA53E24973C17EC397CDB4B3192FB9B147
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +282,8 @@ magnet:?xt=urn:btih:7B4539CA53E24973C17EC397CDB4B3192FB9B147
 magnet:?xt=urn:btih:F561EBAECBC5337E81E38B4966D241346C9C9637
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +307,8 @@ magnet:?xt=urn:btih:F561EBAECBC5337E81E38B4966D241346C9C9637
 ```bash
 magnet:?xt=urn:btih:F8C8AFDD342B00727A1A73341668E37D00EA19EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +334,8 @@ magnet:?xt=urn:btih:F8C8AFDD342B00727A1A73341668E37D00EA19EF
 magnet:?xt=urn:btih:8A91BCC75726074225187CEC0A3F80AC496B7140
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +359,8 @@ magnet:?xt=urn:btih:8A91BCC75726074225187CEC0A3F80AC496B7140
 ```bash
 magnet:?xt=urn:btih:7F053F4A21DD3CB23BA689A6A0EFB259C115847A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:7F053F4A21DD3CB23BA689A6A0EFB259C115847A
 magnet:?xt=urn:btih:37B5BD100B350223F6C7032E1D96F5E6CA01DBEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:37B5BD100B350223F6C7032E1D96F5E6CA01DBEC
 ```bash
 magnet:?xt=urn:btih:350EBCEBCF2E06F06D9A0A535AEE59B68BE7D695
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +438,8 @@ magnet:?xt=urn:btih:350EBCEBCF2E06F06D9A0A535AEE59B68BE7D695
 magnet:?xt=urn:btih:78031F47CFC1F6E95AF234D943BDCA6A98E2FF13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:78031F47CFC1F6E95AF234D943BDCA6A98E2FF13
 ```bash
 magnet:?xt=urn:btih:3AABA3CB678B96C4DB51F431DB17965175677807
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +490,8 @@ magnet:?xt=urn:btih:3AABA3CB678B96C4DB51F431DB17965175677807
 magnet:?xt=urn:btih:27763836AC46FEC7A2AB3AE5520759AE02FC2D5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +515,8 @@ magnet:?xt=urn:btih:27763836AC46FEC7A2AB3AE5520759AE02FC2D5B
 ```bash
 magnet:?xt=urn:btih:D46984C156722831DBA87BF0EB7EAA5A5B0385F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +542,8 @@ magnet:?xt=urn:btih:D46984C156722831DBA87BF0EB7EAA5A5B0385F2
 magnet:?xt=urn:btih:04CD4C5BA90BA85BEBD06A7DAABF0B32E2BE6A90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +567,8 @@ magnet:?xt=urn:btih:04CD4C5BA90BA85BEBD06A7DAABF0B32E2BE6A90
 ```bash
 magnet:?xt=urn:btih:50757B36275E118AB5D2422151C9C18F16C14D90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +595,8 @@ magnet:?xt=urn:btih:50757B36275E118AB5D2422151C9C18F16C14D90
 magnet:?xt=urn:btih:CE7354C2B65D74C00748CAE1E33F1C869A9D1954
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +621,8 @@ magnet:?xt=urn:btih:CE7354C2B65D74C00748CAE1E33F1C869A9D1954
 magnet:?xt=urn:btih:048BE5032FFE5A2E150B2E172FEF7392A46C7BE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +646,34 @@ magnet:?xt=urn:btih:048BE5032FFE5A2E150B2E172FEF7392A46C7BE8
 ```bash
 magnet:?xt=urn:btih:EE0718BB74436398F7DD29BCD9D799AF29A0F089
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934526   (502255) от 05.09.2015
+
+Вынужденная месть / Forced Vengeance (1982) DVDRip [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лос-Анджелес. Из Гонконга прибывает посланец кредитора, желающего получить неуплаченные долги. После ряда физических «убеждений» деньги поступают бесперебойно. Гонконг. Игорный дом, в котором работает этот «посланец» — шеф службы безопасности, — подвергается нападению. Это предупреждение со стороны другой могущественной мафиозной семьи, которая жаждит перекупить (   Читать дальше...   )Производство: СШАЖанр: Боевик, приключенияРежиссер: Джеймс ФаргоАктеры: Чак Норрис, Мэри Луиз Уэллер, Камила Григгс, Майкл Кавана, Дэвид Опатошу, Сейджи Сакагучи, Фрэнк Майкл Лью, Боб МайнорПеревод: Авторский (Андрей Гаврилов)Продолжительность: 01:30:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B19618875057B1B2DF3D5699C57CC40B690670F9
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

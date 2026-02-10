@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:9F147974AA523CF3E87BAC528E40FA8BEA1116D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - We Got The Funk (2002) [FLAC|Lossless]<Funk, Soul, R&B>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -109,6 +115,8 @@ Overkill - 15 альбомов (1988 - 2010) Japanese Edition [FLAC|Lossless]<Th
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -137,6 +145,8 @@ Overkill - 15 альбомов (1988 - 2010) Japanese Edition [FLAC|Lossless]<Th
 ```bash
 magnet:?xt=urn:btih:5C6C545DD6A573DE57CA850A9AED5171DE13BC70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +181,8 @@ VA - Убойные весенние хиты (2012) [MP3|256кб/с]<Pop>
 magnet:?xt=urn:btih:2880C4D1B910484357AEB54DF36D29D7F1EAA20C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +211,8 @@ magnet:?xt=urn:btih:2880C4D1B910484357AEB54DF36D29D7F1EAA20C
 magnet:?xt=urn:btih:3785CFF9335CF4904E9248173971E59FA17944A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +237,8 @@ magnet:?xt=urn:btih:3785CFF9335CF4904E9248173971E59FA17944A2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +262,8 @@ magnet:?xt=urn:btih:3785CFF9335CF4904E9248173971E59FA17944A2
 ```bash
 magnet:?xt=urn:btih:E6C002862B90A3D165D5BDB88ABCB20D12DF17DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +293,8 @@ magnet:?xt=urn:btih:E6C002862B90A3D165D5BDB88ABCB20D12DF17DC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +319,8 @@ magnet:?xt=urn:btih:E6C002862B90A3D165D5BDB88ABCB20D12DF17DC
 ```bash
 magnet:?xt=urn:btih:8CD28F7583214A7D2554091783F5D794A2BB98C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +355,8 @@ VA - Cамые Качающие Треки для Авто - Tоп 55 / 9 (2012)
 magnet:?xt=urn:btih:A3767EE3D22DDD4EC0690B15C1DADE5A72690F8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +380,8 @@ magnet:?xt=urn:btih:A3767EE3D22DDD4EC0690B15C1DADE5A72690F8D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +407,8 @@ Hwaja / Хвая (2011) [35 глав+2 extra+эпилог+послесловие
 magnet:?xt=urn:btih:59AE473FDF06C3927A5E3F12A1CCEEE3231CDDCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +432,8 @@ magnet:?xt=urn:btih:59AE473FDF06C3927A5E3F12A1CCEEE3231CDDCB
 ```bash
 magnet:?xt=urn:btih:262718CF8327CE51CD64D414BA357B2D807B52F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +459,8 @@ Extra - серия альтернативной прозы, контркульт
 magnet:?xt=urn:btih:3D74157AAA89B7F485128C41C780EF6077DA966E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +484,8 @@ magnet:?xt=urn:btih:3D74157AAA89B7F485128C41C780EF6077DA966E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +515,8 @@ magnet:?xt=urn:btih:3D74157AAA89B7F485128C41C780EF6077DA966E
 magnet:?xt=urn:btih:840886D562A499B140DCE4B2D067DF35DDFF166D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +541,8 @@ magnet:?xt=urn:btih:840886D562A499B140DCE4B2D067DF35DDFF166D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +566,8 @@ magnet:?xt=urn:btih:840886D562A499B140DCE4B2D067DF35DDFF166D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +594,8 @@ magnet:?xt=urn:btih:840886D562A499B140DCE4B2D067DF35DDFF166D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +619,8 @@ magnet:?xt=urn:btih:840886D562A499B140DCE4B2D067DF35DDFF166D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +648,8 @@ magnet:?xt=urn:btih:840886D562A499B140DCE4B2D067DF35DDFF166D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +676,8 @@ magnet:?xt=urn:btih:840886D562A499B140DCE4B2D067DF35DDFF166D
 magnet:?xt=urn:btih:14395F8E1727F34707D63B9C8DBB6D33FA7B7D4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +701,8 @@ QipShot - бесплатная и легкая в использовании у�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -678,6 +728,8 @@ QipShot - бесплатная и легкая в использовании у�
 ```bash
 magnet:?xt=urn:btih:09D2EC9FDBB6729E4E7584D26692C37C1C5531C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

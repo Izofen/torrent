@@ -20,6 +20,8 @@ HeadUp Display (HUD) – это возможность использовать 
 magnet:?xt=urn:btih:D170A650F5593A4838B3C57A660A8A90A6DB8C56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:D170A650F5593A4838B3C57A660A8A90A6DB8C56
 magnet:?xt=urn:btih:0E980E6AFDB8994D3961CCDEB5ABD057B316B24A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:0E980E6AFDB8994D3961CCDEB5ABD057B316B24A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:0E980E6AFDB8994D3961CCDEB5ABD057B316B24A
 magnet:?xt=urn:btih:8FD42A6FC3F7767BB7E14908F97A25FB3383E167
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:8FD42A6FC3F7767BB7E14908F97A25FB3383E167
 ```bash
 magnet:?xt=urn:btih:AD24B64FC358D1BED5B05BDDBCB79173B9C72D78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ HolyJS 2023 Spring - большая конференция для JS-разра�
 magnet:?xt=urn:btih:85E9191DC0B1C01A6300219684A1457C2E842992
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:85E9191DC0B1C01A6300219684A1457C2E842992
 magnet:?xt=urn:btih:130281970029F8D0F06265BA664B6D595B33F79D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:130281970029F8D0F06265BA664B6D595B33F79D
 ```bash
 magnet:?xt=urn:btih:1D64838425172D09CD93ED46AFD51F91243BE201
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:1D64838425172D09CD93ED46AFD51F91243BE201
 magnet:?xt=urn:btih:032B949C20DD0567B8F20D5F66764B6B249C72DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:032B949C20DD0567B8F20D5F66764B6B249C72DC
 ```bash
 magnet:?xt=urn:btih:130500A04F0078341BCDAB19BEFBABB7835492D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Total War: Shogun 2 является продолжением первой ча�
 magnet:?xt=urn:btih:13F52623C5FA204EC38688CBF34B5DFDD2F898A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ AIDA64 - утилита является мощным средством для 
 ```bash
 magnet:?xt=urn:btih:D041D94ED09E80DB6EFF6D09716A07EC78D4C5DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7
 magnet:?xt=urn:btih:7DF55A4A50D872F9BF0D4C495ADC5FD728214A50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ W10Privacy - программа для изменения настроек си�
 ```bash
 magnet:?xt=urn:btih:719858E2536C09ABD56568E5AD0025BCE75E8D00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:719858E2536C09ABD56568E5AD0025BCE75E8D00
 magnet:?xt=urn:btih:7566D2E346D205C01D7CD7D4A7407C7E1B23D889
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:7566D2E346D205C01D7CD7D4A7407C7E1B23D889
 ```bash
 magnet:?xt=urn:btih:7FA099177F316F40F5F5C7CC0FAD90A70081146C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ PictureThis - Plant Identification v3.58 [Ru/Multi]
 magnet:?xt=urn:btih:1A2D27CA69D5C6825ECB13EEA15ADFB447499C04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Ashampoo Burning Studio FREE – это быстрый и удобный спо�
 ```bash
 magnet:?xt=urn:btih:4C152C5BC2A0F6EF35C9E0BB67A3E3AB6AA55793
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Man of Medan – это первая игра в антологии кинема
 magnet:?xt=urn:btih:439021874FB1A9F627FA02112DF07363BE0EBF68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 ```bash
 magnet:?xt=urn:btih:D5C819757D454CED944EB2233AF46E8052A77BDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:D5C819757D454CED944EB2233AF46E8052A77BDC
 magnet:?xt=urn:btih:65016B43F6CC4EEDAE2F532398657858A73DC91D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ Windows 11 - это серия операционных систем, разра
 magnet:?xt=urn:btih:45622A8B84571B34AEDAD4F60CC0E9BC1740E2BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:45622A8B84571B34AEDAD4F60CC0E9BC1740E2BF
 ```bash
 magnet:?xt=urn:btih:F9ACA13303E3FB298FB825204BF3D1A8224F5AC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:F9ACA13303E3FB298FB825204BF3D1A8224F5AC9
 ```bash
 magnet:?xt=urn:btih:FA3C87CDFE0823672774222AD0F8561D2DDB0993
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ Autodesk DWG TrueView - удобная программа для просмот�
 magnet:?xt=urn:btih:6D60DDB3AEBFCBEC9B3457B126DE05893453EF0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:6D60DDB3AEBFCBEC9B3457B126DE05893453EF0F
 ```bash
 magnet:?xt=urn:btih:7BDE82232A6EFEDB81165B41250B2DBBA27774DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

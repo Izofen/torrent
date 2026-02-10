@@ -1,3 +1,29 @@
+###  Публикация: 1006338   (828393) от 11.04.2016
+
+Юрий Никитин | Мне – 75 (2014) [FB2]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_828393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джим Фикс, создатель движения бега трусцой, умер в 52 года от сердечного приступа во время пробежки. Марк Хьюз основал Гербалайф, обещая всем жизнь до ста лет в ясном уме и бодрости, но умер в 44 года от остановки дыхания во сне. Мишель Монтиньяк, автор нашумевших книг о борьбе с лишним весом, изданных в сорока странах тиражом в 16 миллионов экземпляров, умер в 66 (   Читать дальше...   )Жанр: Здоровье, фитнес, диетыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F1FEDE17791B91F9D6238671CF9E35E5944314
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006122   (828394) от 11.04.2016
 
 Славянская Библия (изд.) | Елизаветинская Библия [Репринт по изданию 1900 года] (2002) [PDF, HTML]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:947F79D8A3D3DDC0308BF21EBDEA2F54041C3ED9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:947F79D8A3D3DDC0308BF21EBDEA2F54041C3ED9
 ```bash
 magnet:?xt=urn:btih:170B2AB825E06240386D2F6E1EF027168555FAC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:170B2AB825E06240386D2F6E1EF027168555FAC8
 magnet:?xt=urn:btih:AB65413DF216F0F6F72FC2866F4A59E905E7F0F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:AB65413DF216F0F6F72FC2866F4A59E905E7F0F1
 magnet:?xt=urn:btih:599254786BAE0C35C3D0FD0F6E85770DC1729436
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:599254786BAE0C35C3D0FD0F6E85770DC1729436
 ```bash
 magnet:?xt=urn:btih:D9D21D9C51165209C5E68680DD1A18EBD34A4659
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:D9D21D9C51165209C5E68680DD1A18EBD34A4659
 magnet:?xt=urn:btih:48F141A5B9D2913825E22DB58E20579CA1587F45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:48F141A5B9D2913825E22DB58E20579CA1587F45
 ```bash
 magnet:?xt=urn:btih:FD9CEE52791169D4ACBD33A8FBF206E4F8498F9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:FD9CEE52791169D4ACBD33A8FBF206E4F8498F9D
 magnet:?xt=urn:btih:973ACA7DF6BEDC5E7A65B88ED85808A9C0528C2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:973ACA7DF6BEDC5E7A65B88ED85808A9C0528C2B
 magnet:?xt=urn:btih:D18827AC5E1F443882113A09A011111B915F20F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:D18827AC5E1F443882113A09A011111B915F20F3
 ```bash
 magnet:?xt=urn:btih:C5E17A3570A8C14486D1829E4FEEEFCF5214236B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:C5E17A3570A8C14486D1829E4FEEEFCF5214236B
 magnet:?xt=urn:btih:9B675750A265C4242B68C85AF8324D975D897E13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:9B675750A265C4242B68C85AF8324D975D897E13
 ```bash
 magnet:?xt=urn:btih:2F097B6E401214BF180F19E8B0F36B572FB8B35D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:2F097B6E401214BF180F19E8B0F36B572FB8B35D
 magnet:?xt=urn:btih:3461B86C36CF01626C03EE1D5B0CFC6331047A0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:3461B86C36CF01626C03EE1D5B0CFC6331047A0D
 magnet:?xt=urn:btih:1BF9D5644B30D3CAEBCB18E20C7488BE171E9A6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:1BF9D5644B30D3CAEBCB18E20C7488BE171E9A6D
 ```bash
 magnet:?xt=urn:btih:1512C2A4235AEF56F9F507D4E2ED7DE585F130E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:1512C2A4235AEF56F9F507D4E2ED7DE585F130E1
 magnet:?xt=urn:btih:9FE32D9537BA9EBC1D4C10BBA774A7302C237169
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:9FE32D9537BA9EBC1D4C10BBA774A7302C237169
 magnet:?xt=urn:btih:94BFE2A765C1828E53B44B14E755E82610CB1A9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:94BFE2A765C1828E53B44B14E755E82610CB1A9C
 ```bash
 magnet:?xt=urn:btih:5B792C8A8E3C37D6786BDAAB3F0C0338337FF5C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +524,8 @@ magnet:?xt=urn:btih:5B792C8A8E3C37D6786BDAAB3F0C0338337FF5C5
 magnet:?xt=urn:btih:E0F68C1E06BD778D525EF348FF18FE2BC437BA3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:E0F68C1E06BD778D525EF348FF18FE2BC437BA3A
 ```bash
 magnet:?xt=urn:btih:E2F0DC72547011639468FB793D75FCB7617D8F79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:E2F0DC72547011639468FB793D75FCB7617D8F79
 magnet:?xt=urn:btih:B5822C58559257BCC27A69BA08BF1123C5763527
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:B5822C58559257BCC27A69BA08BF1123C5763527
 ```bash
 magnet:?xt=urn:btih:BBCCD459DEB5667F534852BF026AC30D5AEB66B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +632,8 @@ magnet:?xt=urn:btih:BBCCD459DEB5667F534852BF026AC30D5AEB66B3
 magnet:?xt=urn:btih:9181A91D23E822DE5AA945AD9875CB632FC0A315
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:9181A91D23E822DE5AA945AD9875CB632FC0A315
 ```bash
 magnet:?xt=urn:btih:C8A0E94B864D2BEFB18C7B0308653EEC418296F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,29 +685,7 @@ magnet:?xt=urn:btih:C8A0E94B864D2BEFB18C7B0308653EEC418296F0
 magnet:?xt=urn:btih:1A3701DCE69C8ADE5E918D4AD3389109A0417C91
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115008   (829350) от 16.03.2017
-
-Игорь Лазарев | Морские узлы на сушe и на море (2009) [PDF]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_829350.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: В данной книге на конкретных примерах демонстрируются малознакомые в повседневной практике возможности, которые предоставляет веревка для выхода из ситуаций, обычно называемых критическими. Не являясь пособием по вязанию узлов в привычном понимании этого слова, данная книга ставит своей целью показать читателю, что одна лишь обычная веревка зачастую (   Читать дальше...   )Жанр: навыки и уменияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92DDB1CC1BA37DC1A9B7A229DF9D103694DD8806
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

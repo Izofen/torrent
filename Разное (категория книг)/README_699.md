@@ -1,3 +1,29 @@
+###  Публикация: 979764   (958408) от 27.01.2016
+
+Франко Берарди | Новые герои. Массовые убийцы и самоубийцы (2016) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_958408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга итальянского социолога Ф. Берарди посвящена феномену массового убийства и самоубийства в современном мире. Почему мальчик приходит в школу и убивает своих учителей и одноклассников, почему однажды вечером мужчина решает расстрелять людей в кинотеатре во время сеанса «Бэтмена», что подтолкнуло Брейвика к убийству 71 человека? Почему, несмотря на рост уровня (   Читать дальше...   )Жанр: Психология, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71FC77AE2EF08D7A107515B9B086D5E5E9162AE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 389299   (959085) от 16.02.2020
 
 Инна Иголкина | Руководство начинающего счастливчика, или Вакцина против лени [2007] [PDF]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:15448975DA35E524CC61B015FFD36E916331D8AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:15448975DA35E524CC61B015FFD36E916331D8AF
 magnet:?xt=urn:btih:7B6C1A7FDA425641692827FD876B5572E496A208
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:7B6C1A7FDA425641692827FD876B5572E496A208
 ```bash
 magnet:?xt=urn:btih:B614622C1E20980B327438DB6266C7FC47EFE349
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:B614622C1E20980B327438DB6266C7FC47EFE349
 magnet:?xt=urn:btih:36A6673A16A5D676AC43F18C2E5E5743CEEFA47A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:36A6673A16A5D676AC43F18C2E5E5743CEEFA47A
 ```bash
 magnet:?xt=urn:btih:49123D0970FD5E93C2F8A0C424E9590FFE27DE43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:49123D0970FD5E93C2F8A0C424E9590FFE27DE43
 magnet:?xt=urn:btih:EDC49C4C40A7D3EC3EC65B0620D4855188309AB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:EDC49C4C40A7D3EC3EC65B0620D4855188309AB3
 ```bash
 magnet:?xt=urn:btih:17B8111C4AF8F7981FFECCF9B8D082D558A4DE2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:17B8111C4AF8F7981FFECCF9B8D082D558A4DE2A
 magnet:?xt=urn:btih:7D8B42A3C05F26E902E6510A8332BE73E8A74E7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:7D8B42A3C05F26E902E6510A8332BE73E8A74E7B
 ```bash
 magnet:?xt=urn:btih:A0644FDD866FE0E9D50168652E3047E86077F3ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:A0644FDD866FE0E9D50168652E3047E86077F3ED
 magnet:?xt=urn:btih:EBFCBA1FA4D9841EC807A60D2AB3169FD17AEDA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:EBFCBA1FA4D9841EC807A60D2AB3169FD17AEDA6
 magnet:?xt=urn:btih:91A67A97B176E74E29F3BAB23BBA180C668F8588
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:91A67A97B176E74E29F3BAB23BBA180C668F8588
 ```bash
 magnet:?xt=urn:btih:AF1F42646C513CDD9719DD9D241C2E9ECB27A341
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:AF1F42646C513CDD9719DD9D241C2E9ECB27A341
 magnet:?xt=urn:btih:F8DADC5ED4581D7E94CF7D95ADE4458B0BF0559A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:F8DADC5ED4581D7E94CF7D95ADE4458B0BF0559A
 magnet:?xt=urn:btih:B680CF81E3CE69D975DCF76E99C5FDAF3DC6435D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:B680CF81E3CE69D975DCF76E99C5FDAF3DC6435D
 ```bash
 magnet:?xt=urn:btih:D699BBC02768FC3378D1B52766C09AD2B1572E57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:D699BBC02768FC3378D1B52766C09AD2B1572E57
 magnet:?xt=urn:btih:CB83114E85FDD7E1977389FBBF1A9E0B391EAD71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:CB83114E85FDD7E1977389FBBF1A9E0B391EAD71
 ```bash
 magnet:?xt=urn:btih:CF37A570328B621489CDAC95A6152239C709CF09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:CF37A570328B621489CDAC95A6152239C709CF09
 magnet:?xt=urn:btih:69821486FD2B3DE780486A10B62AFA6DE9C99F8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:69821486FD2B3DE780486A10B62AFA6DE9C99F8A
 ```bash
 magnet:?xt=urn:btih:7DFB2FBF1C21515C6664B9349718E01215170B27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:7DFB2FBF1C21515C6664B9349718E01215170B27
 magnet:?xt=urn:btih:D15CC88FC8ED0D01DDD72138BAE4AD32E1F76F36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:D15CC88FC8ED0D01DDD72138BAE4AD32E1F76F36
 ```bash
 magnet:?xt=urn:btih:61A3D72367908AFE04819F3469942BE1C92A3E7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:61A3D72367908AFE04819F3469942BE1C92A3E7D
 ```bash
 magnet:?xt=urn:btih:210297E0BC27B79438E78E33AFE66FD565230DFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:210297E0BC27B79438E78E33AFE66FD565230DFE
 magnet:?xt=urn:btih:E05193C4DE155ED9F50618ACA88DCE3C6ECC0BE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:E05193C4DE155ED9F50618ACA88DCE3C6ECC0BE3
 ```bash
 magnet:?xt=urn:btih:DCB563A2F866F476ED8F1BC4A1928173620AE242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,30 +680,7 @@ magnet:?xt=urn:btih:DCB563A2F866F476ED8F1BC4A1928173620AE242
 magnet:?xt=urn:btih:FCC493B7B86EDCAA4A39EA492D7E23A116B4F730
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978884   (960814) от 25.01.2016
-
-В.В. Солдатов | Об  удобрении  почвы (1908) [PDF]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Общедоступное руководство для крестьян и сельских школ.
-Подробное описание чем,  как  и когда  удобрять почву для получения наибольшего урожая.Жанр: СадоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8CECDE3E98C58C4A7A9BFFBA6370B3EED6D7457
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

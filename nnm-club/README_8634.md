@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:EA32413557B2CA12FD46D970742F1714C611A569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Hades (2020) [Ru/Multi] (1.38290) Repack Necros
 ```bash
 magnet:?xt=urn:btih:10E93E6DA60510EFED5A1AD5C720F87CC636BF45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:E706A856A601A0C3B4AB9590F176820D84DF8946
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ Bravelord - The Power From The End Of The World (2025) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:938A21DD4B3F7B08F0B9035A843C1868B48B816D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:938A21DD4B3F7B08F0B9035A843C1868B48B816D
 ```bash
 magnet:?xt=urn:btih:51322D23BE1290DF1DEA0890603A8E3A3F6FCA09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ VA - Balearic Deep-House Winter 2026 (2025) [MP3|320 Kbps] <House, Deep House, D
 magnet:?xt=urn:btih:33BB6CE28B13A0212D63247682EBD8652962BE74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ Hades II (2025) [Ru/Multi] (1.133066) Repack Necros
 ```bash
 magnet:?xt=urn:btih:A25ECD2309C90B9F358DEB4A0B6A6963D244411B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ When Nothing Remains - Echoes of Eternal Night (2025) [MP3|320 Kbps] <Gothic Met
 magnet:?xt=urn:btih:A13257AF8A464A9C6A17A37758D0D1C9711E86C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:A13257AF8A464A9C6A17A37758D0D1C9711E86C4
 ```bash
 magnet:?xt=urn:btih:CCC515216CB4CB24ECE8C7EB1F24448E945CE286
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ Of Ash and Steel (2025) [Ru/Multi] (1.04) Repack Necros
 magnet:?xt=urn:btih:735C0D5D0F4C30E2E3F3C3C981985871DA6993BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ AIMP 5.40.2700 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9521233873A4598F2DD0810B341DDC501C866698
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 magnet:?xt=urn:btih:2896E2EF1BB058EBCE281D49C3F0C4FE1835D18B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ FacePic — приложение AI Face, приложение для легко
 ```bash
 magnet:?xt=urn:btih:28EFF3DD58A2FD68C144D65991CDEC7D24E418E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 magnet:?xt=urn:btih:4782D2C39CF9785D4F8B6E2823F9D7CEF808CB4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ AI Photo Editor Pro - Polish v1.693.239 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:08C13BA941789E0552E05608AD9D3A27287CAFEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ Little Hat - Rockin' This Joint Tonight (2025) [FLAC 24/48|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:DE042D5EE5B2FFA7ED67837C870ADC4DA04A7AC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:DE042D5EE5B2FFA7ED67837C870ADC4DA04A7AC4
 magnet:?xt=urn:btih:F758F72C0D4235CD359C91B170E5A0280AC79218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ Smart AudioBook Player Pro v11.6.2 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0294A94277BB6BE8D31C7AA46E82AE5720D96A5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ ProShot v8.32.3 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:B9DB622851B136356EA41405D30D8D6A5C593967
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ ToonApp карикатура фоторедактор лучшее прилож�
 ```bash
 magnet:?xt=urn:btih:1B67FC982B57781CD223FBCE508E1331971F8037
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:1B67FC982B57781CD223FBCE508E1331971F8037
 magnet:?xt=urn:btih:862A161FA1E9D963FF99831878338C5D2634AAC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ MediaHuman YouTube Downloader 3.9.18 (2411) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:C9FD85DA30539FA4F768439FF5918A8537539318
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ OCCT 15.0.8 Portable [En]
 magnet:?xt=urn:btih:62E67148FDF44DA7BFB324FC5077544ACF112698
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:62E67148FDF44DA7BFB324FC5077544ACF112698
 ```bash
 magnet:?xt=urn:btih:83156DC4C4BAEA4B86E4874059BFDB7FD7F1ABA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:83156DC4C4BAEA4B86E4874059BFDB7FD7F1ABA4
 magnet:?xt=urn:btih:4E7753F1851C1701183BE9FFAB067F773170F00A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:4E7753F1851C1701183BE9FFAB067F773170F00A
 ```bash
 magnet:?xt=urn:btih:A6C2162E4A013E7A83E61E15142EBB9DAF56651B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

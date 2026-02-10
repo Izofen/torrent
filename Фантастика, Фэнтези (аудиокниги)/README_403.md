@@ -1,3 +1,29 @@
+###  Публикация: 1294058   (628127) от 08.04.2019
+
+Сергей Клочков | Новая Зона. В рай без очереди (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тихий, давно покинутый людьми Город. Патрули по окраинам, красно-белая лента "волчанки", туман и тишина. На пустых улицах и в покинутых домах притаилась смерть, многоликая, непонятная, не­видимая. И одинокий бродяга, прежде чем переступить незримую гра­ницу мертвых земель, что-то шепчет себе под нос, прислушиваясь к шуму далекой патрульной машины. Зачем (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 07:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC6A5DB8679410EEDE7792BE4434F6F3111447B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293556   (628239) от 08.04.2019
 
 Дэвид Брин | Дело практики (2019) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:0E517D782A3853162C2176A4FDBA61D1A412B1DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:0E517D782A3853162C2176A4FDBA61D1A412B1DD
 magnet:?xt=urn:btih:6E57ED5C96E96BCEE51E5F6C41D882526595316E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:6E57ED5C96E96BCEE51E5F6C41D882526595316E
 ```bash
 magnet:?xt=urn:btih:997AD99B9DD19E4BED22502808AB4A6F3D90DEDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:997AD99B9DD19E4BED22502808AB4A6F3D90DEDB
 magnet:?xt=urn:btih:1827B0CDDA0C9F11EB477888E231D7B1A7648A8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:1827B0CDDA0C9F11EB477888E231D7B1A7648A8D
 ```bash
 magnet:?xt=urn:btih:7EBB9A5AA0415E5C6EAB3096D1113CB633C0267E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:7EBB9A5AA0415E5C6EAB3096D1113CB633C0267E
 magnet:?xt=urn:btih:640A2C29C2958FE84B420D9A3031CE73986B2753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:640A2C29C2958FE84B420D9A3031CE73986B2753
 ```bash
 magnet:?xt=urn:btih:24F0A1C17F7496A0BE2FB8292CF1586EDD83673E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:24F0A1C17F7496A0BE2FB8292CF1586EDD83673E
 magnet:?xt=urn:btih:106543FBDDF0D7A14F217851950B7DB2CCA121CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:106543FBDDF0D7A14F217851950B7DB2CCA121CC
 magnet:?xt=urn:btih:CDCD6584AA8BD00CB1345BFD9A609DA210D82E16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:CDCD6584AA8BD00CB1345BFD9A609DA210D82E16
 ```bash
 magnet:?xt=urn:btih:959727F45A19B9F52FF626976E6A77E5A3B5C12E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:959727F45A19B9F52FF626976E6A77E5A3B5C12E
 magnet:?xt=urn:btih:F0E28714ACEFE52E9D616245E6EBFC9AF6855D42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:F0E28714ACEFE52E9D616245E6EBFC9AF6855D42
 ```bash
 magnet:?xt=urn:btih:767FC703A4187BC6A96FA24FE14DCAB976490973
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:767FC703A4187BC6A96FA24FE14DCAB976490973
 magnet:?xt=urn:btih:1AABD9F498D02BAF26C6195CE3F9244A92FB5FD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:1AABD9F498D02BAF26C6195CE3F9244A92FB5FD3
 magnet:?xt=urn:btih:AE7DBFDE7DE4F20B6987B2109B75B2CEA9DC5C91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:AE7DBFDE7DE4F20B6987B2109B75B2CEA9DC5C91
 ```bash
 magnet:?xt=urn:btih:E205AA7DD67C0F1A2B9461D637D4E20A7D13F46C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:E205AA7DD67C0F1A2B9461D637D4E20A7D13F46C
 magnet:?xt=urn:btih:4440ABA8B791BEA2090CB071D7FC5CF32439AE8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:4440ABA8B791BEA2090CB071D7FC5CF32439AE8E
 magnet:?xt=urn:btih:6B5B16651981A5746D629B51F8255CC75458BE39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:6B5B16651981A5746D629B51F8255CC75458BE39
 ```bash
 magnet:?xt=urn:btih:E6D176A904E04958BAA1C27B06A7E9327239D3D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:E6D176A904E04958BAA1C27B06A7E9327239D3D4
 magnet:?xt=urn:btih:A192212D7288F3B783A36B53F249C333AC670561
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:A192212D7288F3B783A36B53F249C333AC670561
 ```bash
 magnet:?xt=urn:btih:D66DBCDC3725216E03B58CF17B0AC20BE62A20AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:D66DBCDC3725216E03B58CF17B0AC20BE62A20AB
 magnet:?xt=urn:btih:105D9927789E63B5727B821DAD50711059D90857
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:105D9927789E63B5727B821DAD50711059D90857
 ```bash
 magnet:?xt=urn:btih:75D2EF344BFB93CE55F6D8EB45DD89553CB679D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:75D2EF344BFB93CE55F6D8EB45DD89553CB679D9
 magnet:?xt=urn:btih:5D7CAE3156B4BAAED2B62F3D0A97698EEAD71CD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:5D7CAE3156B4BAAED2B62F3D0A97698EEAD71CD2
 ```bash
 magnet:?xt=urn:btih:D656D614D24545D29A0D7749C9D897256825544F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:D656D614D24545D29A0D7749C9D897256825544F
 magnet:?xt=urn:btih:FA3F129DA3522FEFA2842374AC05B0510087725B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144072   (631477) от 20.06.2017
-
-Герберт Уэллс | Остров доктора Моро (2017) [MP3, Виктор Рудниченко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631477.jpg" />
-</div>
-
-
-###  Подробнее
-
-От одного взгляда на его пациентов кровь стынет в жилах. Операции, которые он проводит, страшнее пыток. Из-под его скальпеля выходят звери, которые способны мыслить, обладают даром речи и горят желанием расквитаться со своим создателем. Но Доктора Моро охраняет кровавый Закон, который держит в страхе весь Остров. Кто же возьмет верх – жестокий экспериментатор или (   Читать дальше...   )Жанр: Научная фантастикаИздательство: АрдисПродолжительность: 05:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0AAB242FD525A4298E884C76A7454225B72FBE7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

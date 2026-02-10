@@ -19,6 +19,8 @@ Total Commander 11.03 (14.04.2024) Portable by MiG [Ru/En]
 magnet:?xt=urn:btih:75828D1FBEC9CDBB7CF4DB809E5BF761ACDFFC16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:75828D1FBEC9CDBB7CF4DB809E5BF761ACDFFC16
 ```bash
 magnet:?xt=urn:btih:E864658406E315F249793CB2A5448D946F56C2A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:E864658406E315F249793CB2A5448D946F56C2A6
 magnet:?xt=urn:btih:90DEC36D80A446924865D41BB1EB7C3AFC4155E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:90DEC36D80A446924865D41BB1EB7C3AFC4155E3
 ```bash
 magnet:?xt=urn:btih:84903F676494818734E81585FA7BEE87261E3140
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:84903F676494818734E81585FA7BEE87261E3140
 magnet:?xt=urn:btih:D1947D9BC56ACED60C4DC99D37F25128F21E4720
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:D1947D9BC56ACED60C4DC99D37F25128F21E4720
 ```bash
 magnet:?xt=urn:btih:7CC6F866595149DE96DAD57F566AD1481F6837E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:7CC6F866595149DE96DAD57F566AD1481F6837E3
 magnet:?xt=urn:btih:CE867271E0E08BB0C838FDC72F5731018DCB3CE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:CE867271E0E08BB0C838FDC72F5731018DCB3CE6
 ```bash
 magnet:?xt=urn:btih:6B66C7F2E0612EE7ED4A184B771B75F540273634
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Windows 95 предназначалась, в основном, для дома�
 magnet:?xt=urn:btih:94EB1B263C1FAB4DA04E0EE20CD70736D44554E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:94EB1B263C1FAB4DA04E0EE20CD70736D44554E1
 ```bash
 magnet:?xt=urn:btih:CD3D5448A8D22CD6806EC316C4742034EE450D03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:CD3D5448A8D22CD6806EC316C4742034EE450D03
 magnet:?xt=urn:btih:5EF1461522B909F825CE478DD7ECCFDCFDDD52D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:5EF1461522B909F825CE478DD7ECCFDCFDDD52D6
 magnet:?xt=urn:btih:E06DF2B5A3B32CC6EB641257F9F52220C6782FEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:E06DF2B5A3B32CC6EB641257F9F52220C6782FEF
 ```bash
 magnet:?xt=urn:btih:73F71CE23100454E7611D86DA9559069DDB1B081
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ AC/DC / No Bull (1996/2008) BDRip [H.264/1080p] [Director's Cut] [PR]
 magnet:?xt=urn:btih:96CAA232EF4DFDAD8B184FAC3514D7F872E50050
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Windows 11 PRO 23H2 22631.3447 Update 8 by Ghost Spectre x64 [En]
 magnet:?xt=urn:btih:72E76EE4AF22141E7F1E1AD6D60E529B113801A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:72E76EE4AF22141E7F1E1AD6D60E529B113801A3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Sniper: Ghost Warrior 3 (2017) [Ru/En] (3.8.6/dlc) Repack Decepticon [Gold Editi
 ```bash
 magnet:?xt=urn:btih:2673CFB8E22E53C3A36609A411C5D926F5E69CA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:2673CFB8E22E53C3A36609A411C5D926F5E69CA4
 magnet:?xt=urn:btih:1AD98036D421E217354EDD22E35C52B02CE26993
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:1AD98036D421E217354EDD22E35C52B02CE26993
 ```bash
 magnet:?xt=urn:btih:2142D1E84DB099BCB06C98665C70C1352690217D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:2142D1E84DB099BCB06C98665C70C1352690217D
 magnet:?xt=urn:btih:F620536E3DE57365966B013A82F63EDC9D71D6C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:F620536E3DE57365966B013A82F63EDC9D71D6C2
 ```bash
 magnet:?xt=urn:btih:6F5B9FEF6494CD7E0F7E0DE8EC2F1529431C9E43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:6F5B9FEF6494CD7E0F7E0DE8EC2F1529431C9E43
 magnet:?xt=urn:btih:854206390D18A1E3E75D8BC5A78EAF9F041701A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:854206390D18A1E3E75D8BC5A78EAF9F041701A6
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ foobar2000 - это аудиоплеер, подкупающий своим ве
 ```bash
 magnet:?xt=urn:btih:2D5BB829228B2DC519046EF37EE4A7FABCAE36FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:2D5BB829228B2DC519046EF37EE4A7FABCAE36FB
 magnet:?xt=urn:btih:2B004DB8DE91D62F40D285FD3384E20D25AB17E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ magnet:?xt=urn:btih:2B004DB8DE91D62F40D285FD3384E20D25AB17E8
 ```bash
 magnet:?xt=urn:btih:FD1CEAB11715F8615DF6C61CDE51909059C3FBBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

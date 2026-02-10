@@ -1,3 +1,38 @@
+###  Публикация: 406495   (361542) от 07.11.2011
+
+VA - Шансон Для Души Со Стасом Михайловым (2011) [MP3|320 kbps]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Стас Михайлов - Тебя Оставлю Я
+02. Юра Магомаев - Не Оставляй Меня
+03. Стас Михайлов - Берега Мечты
+04. Сергей Любавин - Нежность
+05. Стас Михайлов - Без Тебя
+06. Олег Газманов - Три Вокзала
+07. Стас Михайлов - Все Для Тебя
+08. Таисия Повалий - В Любовь Надо Верить
+09. Стас Михайлов - Игрок
+10. Андрей Ковалёв - Я Не Герой2011Жанр: ШансонПродолжительность: 03:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EED64B1130F1F0900302C814C10F86E2C5A0F13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070957   (361552) от 09.11.2016
 
 VA - Guitar Collection 9 (2016) [MP3|320 Kbps] <Blues, Rock, Metal,>
@@ -21,6 +56,8 @@ VA - Guitar Collection 9 (2016) [MP3|320 Kbps] <Blues, Rock, Metal,>
 ```bash
 magnet:?xt=urn:btih:D53047ED131D3E63F1D8878BDE6AC034E039DCCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -55,6 +92,8 @@ VA - XXXL Осенний хитовый сезон (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:44F6AB1A494D4F97E14DB80778825D2E1AD8EE6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -88,6 +127,8 @@ VA - Шансон Для Любимых (2012) [MP3|128 кб/с]<Шансон>
 magnet:?xt=urn:btih:1F053CC45C095EDD1445E2D46839BFA9202CFD80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +158,8 @@ VA - Big City Trance Volume 42 (2012)
 ```bash
 magnet:?xt=urn:btih:56B8781046CF64B450D6AA2E3A1DCCE5459A6685
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +193,8 @@ VA - Danger Zone vol.24 (2012) [MP3|320 кб/с]<Alternative, Metal, Rock>
 magnet:?xt=urn:btih:3209F0CB8E8874360AD4DCE77C6E69528A61C557
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +226,8 @@ VA - Organic Trance Volume 10 (2012)
 magnet:?xt=urn:btih:455B5299681150F30475C7AA19CF3B33D133979B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +254,8 @@ VA - Попутчица: Сборник Русского Шансона (2016) [
 ```bash
 magnet:?xt=urn:btih:7B318CA41D6E211EA870340352BA1BA6BF3AE649
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +284,8 @@ VA - Beatport Top 100 Techno October (2016) [MP3|320 Kbps] <Techno, Minimal Tech
 magnet:?xt=urn:btih:0EAA08507425658AB15E2C236006BA95230B0857
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +313,8 @@ VA - in FABRIC style: House - Compiled by Mistik (2016) [MP3|320 Kbps] <Electron
 magnet:?xt=urn:btih:8B3C5CB23627429675F1CAAE57111F148175DEC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +340,8 @@ VA - Latin Hot Party Maria Bonita (2016) [MP3|146-320 Kbps] <Latin Dance, Pop Fo
 ```bash
 magnet:?xt=urn:btih:478F3B9625667BF8002E7A6029553DBA2EADCDAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +370,8 @@ VA - Попсовая соточка от Хит fm 4 (2016) [MP3|256 Kbps] <Pop
 magnet:?xt=urn:btih:527E68AFD8682EEF4B3EFD96A0856E7795594924
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +398,8 @@ VA - State Of Trance Civilization (2016) [MP3|320 Kbps] <Trance, Melodic, Uplift
 ```bash
 magnet:?xt=urn:btih:512E38B4F8AA74FC9E98B844C6F4BD32825164AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +428,8 @@ VA - Singles - November 07 (2016) [MP3|320 Kbps] <Electronic, House, Trap>
 magnet:?xt=urn:btih:FDD74D8971C4736FE11CE6A3968792F79A33D906
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +456,8 @@ VA - Keep Calm and Listen to Trance Line (2016) [MP3|320 Kbps] <Trance, Melodic,
 ```bash
 magnet:?xt=urn:btih:8BF3410EC436C5F2E2B9B4E15846486F905D5A01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +486,8 @@ VA - Рок в Авто (Русский vol.5) (2012) [MP3|166-320 кб/с]<Rock
 magnet:?xt=urn:btih:1FA2EC7FE38B6D4B21A0D2CED84063AB9E148273
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +515,8 @@ VA - The Best Hits of 80s 1 (2005) [MP3|192-224 кб/с]<Pop, Disco, Retro>
 magnet:?xt=urn:btih:7686A2270F0B2F839328E402A802BDA9A234EB99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +540,8 @@ VA - Romantic Collection From Ovvod7 vol.1-3 (2017) [MP3|320 Kbps]<Pop, Rock> О
 ```bash
 magnet:?xt=urn:btih:F5B526B8858C48F26E27D8C67E5CA850799D2334
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +570,8 @@ VA - Interior Lounge Sounds (2020) [MP3|320 Kbps] <Lounge, Background>
 magnet:?xt=urn:btih:4DA143ADF056FA9D82A500532589E86725C8A976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +598,8 @@ VA - Beatport Tech House: Electro Sound Pack #187 (2020) [MP3|320 Kbps] <Tech Ho
 ```bash
 magnet:?xt=urn:btih:FA9A60CECAE353250A19CB80A0E3DE061F9D6F5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +628,8 @@ VA - Dance Hits Collection 90s Vol.4 (2019) [MP3|320 Kbps] <Pop, Disco>
 magnet:?xt=urn:btih:688C92D83F05DA8E636571ED516B191B2FF7B65F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +656,8 @@ VA - По волне моей памяти: Том 12 (2017) [MP3|320 Kbps] <П�
 ```bash
 magnet:?xt=urn:btih:F67E543EA59B262D0F2CAA8F518581A055F3AAE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +686,8 @@ VA - ЕвроХит Топ 40 Europa Plus 16.10.2020 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:D5AAB0D73DEB536CD386ED8E0E81F80D9D303B4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +714,8 @@ VA - Deep House Collection Vol.187 (2018) [MP3|320 Kbps] <Deep House, Club House
 ```bash
 magnet:?xt=urn:btih:3737CBDAE750C8742EED00F4312F4F784081EFCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -663,6 +744,8 @@ VA - Deep House Collection Vol.186 (2018) [MP3|320 Kbps] <Deep House, Club House
 magnet:?xt=urn:btih:07265F234AD47BDEEEC31D0165C1A4BADC106A29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -687,29 +770,7 @@ Haddaway - What is Love (2011) Remix [MP3|192 Kbps] <Club, Dance, Techno>
 magnet:?xt=urn:btih:ACC35A02828E3153F71EDB538FC4BFC3397DC118
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255124   (362894) от 18.10.2018
-
-Tmg Gang Feat Sabi Miss, Manro, Angelika Gal - Оскал (2018) [MP3|320 Kbps] <Rap Music>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362894.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tmg Gang Feat Sabi Miss, Manro, Angelika Gal - ОскалЖанр: Rap MusicПродолжительность: 00:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54D9D490C48EA43CEC8A941C4F102E8468A62838
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

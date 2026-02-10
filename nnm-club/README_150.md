@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:545B273A0C12A5D0911DF36DE157CECD8FA00F55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:545B273A0C12A5D0911DF36DE157CECD8FA00F55
 ```bash
 magnet:?xt=urn:btih:ECC79761BC3F8303E14BC3BAEC8F060267F4BC2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dead Take начинается с поисков пропавшего друга
 magnet:?xt=urn:btih:27EE798543B37EFEA80C5020B395809A186C2EB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ STAY (2018) [Ru/Multi] (1.0.3.9) Repack Other s
 ```bash
 magnet:?xt=urn:btih:649006425821C4E9BFC2C71F77B793FD741B332E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ SPORE Collection (2008) [Ru/Multi] (3.1.0.29/dlc) Repack Yaroslav98
 magnet:?xt=urn:btih:538FD7E33BE7ABC0A64ECB7FBD4B366125F95E90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ VlaDeFi, Владислав Былинкин | Полный обучающий �
 ```bash
 magnet:?xt=urn:btih:9156E5DA69048526F25D52BC66B987689972F251
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack FitGir
 magnet:?xt=urn:btih:9A4CDCA0577A413E87476DA22AB0A9196249DE29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:9A4CDCA0577A413E87476DA22AB0A9196249DE29
 ```bash
 magnet:?xt=urn:btih:1F610F243E2C4FBB1CD3A0025B131D003939FE1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ R-Studio Network 9.5 Build 191603 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:65D0243F588E45DE55EE2CD7A0FE0801B102AE36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:65D0243F588E45DE55EE2CD7A0FE0801B102AE36
 ```bash
 magnet:?xt=urn:btih:90C692559B702A4A70C0A1B58216E95F0670E343
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:90C692559B702A4A70C0A1B58216E95F0670E343
 magnet:?xt=urn:btih:D60DE60E1D0264963588FCCE55E0428093389D55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:D60DE60E1D0264963588FCCE55E0428093389D55
 ```bash
 magnet:?xt=urn:btih:BB22D6E85F296EF4002A292AD336FBB6F93F4883
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:BB22D6E85F296EF4002A292AD336FBB6F93F4883
 magnet:?xt=urn:btih:D17B35C23F04493AF85D076E0ACFA1C950167036
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:D17B35C23F04493AF85D076E0ACFA1C950167036
 ```bash
 magnet:?xt=urn:btih:D9D3D94F2AB36F5050990AB30E3E3A367A6C47B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:D9D3D94F2AB36F5050990AB30E3E3A367A6C47B2
 magnet:?xt=urn:btih:C841D22C8868F3A56E10AEA68FFD2AF17CCBB8B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:C841D22C8868F3A56E10AEA68FFD2AF17CCBB8B0
 ```bash
 magnet:?xt=urn:btih:C082E6364D4CC464BAEBC98F88FF39455674FE29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:C082E6364D4CC464BAEBC98F88FF39455674FE29
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ magnet:?xt=urn:btih:C082E6364D4CC464BAEBC98F88FF39455674FE29
 ```bash
 magnet:?xt=urn:btih:9D7F74D20AD5896439EE8CF90F9D52C34AAA3313
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:9D7F74D20AD5896439EE8CF90F9D52C34AAA3313
 ```bash
 magnet:?xt=urn:btih:1CEFF053F2DC0E0EF64EAE1D899DCE3DA846758A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:1CEFF053F2DC0E0EF64EAE1D899DCE3DA846758A
 magnet:?xt=urn:btih:B2EBA6B1B8EDB5AF491F6F78DC37FB99446CF8AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:B2EBA6B1B8EDB5AF491F6F78DC37FB99446CF8AB
 ```bash
 magnet:?xt=urn:btih:E2BF45994607A8062F2E8AEE093DB9D23D0492CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Grand Blue Season 2 | Grand Blue Dreaming Season 2 | Необъятный оке
 magnet:?xt=urn:btih:8EA7F02533128453491D5457BFF5F48F7766E4FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:8EA7F02533128453491D5457BFF5F48F7766E4FA
 magnet:?xt=urn:btih:994AAD1AB1D63FDCF7AD6B56332B79B324A4C2E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Chaos on Wheels предлагает автомобильные бои, где �
 ```bash
 magnet:?xt=urn:btih:46A5170F952211E41664ED7EBB8B62A1E7D4B6D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:46A5170F952211E41664ED7EBB8B62A1E7D4B6D7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Sword of the Sea (2025) [Ru/Multi] (build 19645438) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9F4E0D3BFDBE983FA39BC3C5656C5475867B1899
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

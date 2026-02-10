@@ -22,6 +22,8 @@ Enterclass, Анастасия Беседина | Зимний пейзаж ак
 magnet:?xt=urn:btih:F6638D78C1D31F0571E134443E92F452B36F58DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ lynda, George Maestri | Maya: Facial Rigging (2020) PCRec [EN, RU]
 magnet:?xt=urn:btih:7A48CD829753BD3F3534602350C0915FB592901A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ CGcircuit, Ciobanu Razvan | Advanced Destruction Series: Lightning Strike (2022)
 ```bash
 magnet:?xt=urn:btih:7C4F15290E9F7A00F2C9D528D51EDC92EB011811
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ Udemy, Klimentij Bulygin | UX c нуля: как стать проектиров
 magnet:?xt=urn:btih:6F97619D118A30B235AEAB5C7AD7AB8E887D8D41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Hudozhnik Online, Полина Абдулаева | Основы керамик�
 ```bash
 magnet:?xt=urn:btih:764B24B5A2F57337922D4BA541ABAFD41FAE88A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Domestika, Juan Perednik | Pencil Portraits: Light, Shadow, and Proportion (2022
 magnet:?xt=urn:btih:90A5F843095E1063D949A47F53F2DD07FD265C05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ CGcircuit, Bishoy Khalifa | PBD Cloth Tearing in Houdini (2019) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:949847A0B8EEE8D4F003C161AF264ABD25615005
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ Constant, Add, Add Constant, Subtract, Subtract Constant, Multiply, Multiply Con
 magnet:?xt=urn:btih:523CD893E4BDCD405565262B140F6660BC064D17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ CGcircuit, VFX Magic | Houdini Flip – Chocolate (2021) WEB-DL [EN]
 magnet:?xt=urn:btih:D4D8161B532517F9FCEC2798B66F45000BFDB293
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ Levelup.Digital, Bogodar Havrylyuk | Creating Foliage in Substance Designer (201
 ```bash
 magnet:?xt=urn:btih:6185E6D2349273E401EE8DE0A1C32C6B862ACCBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ CGTarian, Дэвид Стодольны | Мега-мультяшный стил
 magnet:?xt=urn:btih:402076F3877DDD637673C14B09F2DD0561537F6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ The Gnomon Workshop, Christophe Desse | Introduction to Substance Painter 2018 (
 ```bash
 magnet:?xt=urn:btih:41902B71C041E08C6CEF7DE88BB3EA4C4062EEAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ The Gnomon Workshop, Adrien Paguet-Brunella | Creating a Swamp Scene for Games w
 magnet:?xt=urn:btih:F4F0C4B1EF315537BB3A899D465684B7C32AB0B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:F4F0C4B1EF315537BB3A899D465684B7C32AB0B2
 ```bash
 magnet:?xt=urn:btih:2A3ECF3DC55D000DB67B05EA88B330290C76FF71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ Rebelway, Urban Bradesko | Realtime FX for Games and Cinematics (2019) WEB-DL [A
 magnet:?xt=urn:btih:1E8759AA9BA7FABF30A217193B719EB68BB5AD3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ The Gnomon Workshop, Peyton Varney | Introduction to Creating Game-Ready Foliage
 magnet:?xt=urn:btih:993A213C511468D98793F9F847843FE331A80AE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ Gumroad, Ivan Smirnov | Illustration development by Real-SonkeS (2015) WEB-DL [A
 ```bash
 magnet:?xt=urn:btih:AFC7EF15650ACF23D4984345D1A2B39C9F17073A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ Enterclass, Виктория Акулова | Портрет девушки. А�
 magnet:?xt=urn:btih:26D9E671C1BDC140B63C242759763BA5085A15E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ Topclass, Алексей Каптерев | Мастерство презент�
 magnet:?xt=urn:btih:903A109FB29D0F9764D774B5C1AE33ED825ABD82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ Analytera, Центр Статистических Технологий, Его�
 ```bash
 magnet:?xt=urn:btih:4231B13881A956AF70F1AEE1F2341436C22AD69D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ Vince Petrelli | Unreal Engine 5: One Course Solution For Material (2022) PCRec 
 magnet:?xt=urn:btih:04F6D4B46DA56901E7B0D2756269D6606915748D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ Learnsquared, Gaelle Seguillon | Environment Design (2023) WEB-DL [EN]
 magnet:?xt=urn:btih:CC16E33A1C79CBBA3AA604D6ED704C799BBD61FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ Learnsquared, Louis Laurent | Dynamic Concept Art I (2023) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:095EC3C8774DAF15EB0BE316B38B9D36720D6402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:095EC3C8774DAF15EB0BE316B38B9D36720D6402
 magnet:?xt=urn:btih:C41A98514108524A5EFB668F52622AC1823A6211
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ magnet:?xt=urn:btih:C41A98514108524A5EFB668F52622AC1823A6211
 magnet:?xt=urn:btih:389CFCBB701B79FF4A9519C98B16D144678D169A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ Udemy, Eric Ebling | Houdini FX : Creating a Building Explosion (2021) WEB-DL [E
 ```bash
 magnet:?xt=urn:btih:44CD18FF1DF74C42E5EFDDD74F67E5ACE9681CF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

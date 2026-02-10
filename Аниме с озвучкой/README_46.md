@@ -20,6 +20,8 @@ High School Fleet | HaiFuri | Морская Академия [2016, TV, 12 ep +
 magnet:?xt=urn:btih:EE1D6E36B0F157D665FB2A08D979F86B20B99939
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Deadman Wonderland | Страна Чудес Смертников [2011, TV, 12 
 magnet:?xt=urn:btih:0796150279C25262C2B626136E2120074646F1E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Hataraku Saibou | Клетки за Работой! [TV-1] [2018, TV, 14 ep + 2 
 ```bash
 magnet:?xt=urn:btih:A4687D57E3BFA8F679E0B3A8CB07FB6EB0116A69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Kobayashi-san Chi no Maidragon | Miss Kobayashi's Dragon Maid | Кобаяси �
 magnet:?xt=urn:btih:0E1F20DCB3221863E553B5729DFFBB3CDC57A632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Toradora! | Торадора! [2008, TV, 25 ep + OVA + 4 sp] BDRip 1080p raw+rus
 ```bash
 magnet:?xt=urn:btih:1D661472F2D197C4CA9D2B33715E51310D419BEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Ore no Imouto 2 | Ну не Может Моя Сестрёнка Быть Так
 magnet:?xt=urn:btih:C616C0715F3D31CB24F96D77C33F1AA348C889E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Suisei no Gargantia | Гаргантия на Зелёной Планете [201
 ```bash
 magnet:?xt=urn:btih:7B0BFFF438D8EA249DD5E8B7791BF80E1BDD2EF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Mahouka Koukou no Rettousei Movie: Hoshi wo Yobu Shoujo | Непутевый у�
 magnet:?xt=urn:btih:9B1C4F596D5876CA1512DD9CE168DB5046996C41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Mahouka Koukou no Rettousei Movie: Hoshi wo Yobu Shoujo | Непутевый у�
 magnet:?xt=urn:btih:3CD06D3CA1350E9CEFC71F2768D4E3F381ECCCBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Sora no Otoshimono | Утраченное Небесами [TV-1] [2009, TV, 13 
 ```bash
 magnet:?xt=urn:btih:98E4BC70FF2D36F5467650626A3B444504E12D90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Sora no Otoshimono: Forte | Утраченное Небесами: Сильне�
 magnet:?xt=urn:btih:2E6BF10895545F9ED95445CE26C788714C2FB56C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Kore wa Zombie desuka? | Уж не Зомби ли Это? [2011-2012, OVA, 3 ep
 magnet:?xt=urn:btih:2BF1F2EC434E5C2BBA2FFF0AB36AC9A0777624A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Sora no Otoshimono: Tokeijikake no Angeloid | Утраченное Небеса�
 magnet:?xt=urn:btih:50C1B3E8EC17A7EBB7B03FB6D8F9CAD103B3F470
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Sora no Otoshimono Final: Eternal My Master | Утраченное Небеса�
 ```bash
 magnet:?xt=urn:btih:8CFC86BD5F8DEAB129AFCE21E6661E8B52231819
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Kore wa Zombie Desuka? Of the Dead | Уж не Зомби ли Это? Сред�
 magnet:?xt=urn:btih:2F44313D19F0299C5EE48312EE73E53B090D8C74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Carnival Phantasm | Карнавальный Фантазм [2011, TV, 12 ep + 2
 ```bash
 magnet:?xt=urn:btih:4368CEE2A504F3C7F9098023AEC66CB78485172E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Tachibanakan to Lie Angle | Любовные Страсти Пансиона Т�
 magnet:?xt=urn:btih:2870BABB909609D88F0CF852697656B1E8617A26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Tsugu Tsugumomo | Цугумомо [ТВ-2] [2020, TV, 12 из 12 эп.] WEB-DL 
 ```bash
 magnet:?xt=urn:btih:7DED923669FD6283FBA2F142F782452E8398E4D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Another | Иная [2012, TV, 12 ep + OVA] BDRip 1080p 10-bit raw+rus
 magnet:?xt=urn:btih:0365918904E61070720EE9AE756671345C10DB0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Ore no Imouto | Ну не Может Моя Сестрёнка Быть Тако
 magnet:?xt=urn:btih:0468EA908BE4CC9AB3AE77CEF5F4B42BB37A45C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ ReLife | Повторная Жизнь [2016, TV, 13 ep + 4 OVA] BDRip 1080p 10-
 ```bash
 magnet:?xt=urn:btih:3BC0023B9B59299AE944A324CEB0B8D39BC36A4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Akatsuki no Yona / Рассвет Йоны (2014, TV, 24) HDTV 720p rus
 magnet:?xt=urn:btih:F741C24B375AA21846CFCA29DD1405C5390A17B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:F741C24B375AA21846CFCA29DD1405C5390A17B6
 ```bash
 magnet:?xt=urn:btih:A4EC47592E935E60B014FBDDF1124CE75F861B51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Yesterday o Utatte | Sing "Yesterday" for Me | Спой мне "Yesterday" [2020
 magnet:?xt=urn:btih:E4B11058E3DBE1C996D8307BCE94574DE3645121
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen (2020
 ```bash
 magnet:?xt=urn:btih:D6B8750481B28CE61718374FC821B93FBACF12F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ Strike Witches 2 | Штурмовые Ведьмы [ТВ-2] [2010, TV, 12 ep] BD
 ```bash
 magnet:?xt=urn:btih:AF550721DA25B82728D9ADC9CF20E7CE62CAEB53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

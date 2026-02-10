@@ -19,6 +19,8 @@ PSA World Tour Squash (2015) [Wii] [PAL] [License] [En/Multi]
 magnet:?xt=urn:btih:37B69B1609E238DBA138B0CE55B551CD405334EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Monster Hunter World Iceborne (2019) [PS4] [EUR] 5.05 [HEN] [License / 15.11 / D
 ```bash
 magnet:?xt=urn:btih:C13C5D212C0EEA4C6045F509D67FE1AF46C3C428
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Soul Sacrifice Delta (Limited Edition) (2014) [PSVita] [USA] 3.60 [HENkaku] [Rep
 magnet:?xt=urn:btih:BB88B956F4F382573A03693426D7943943C4E5BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (0
 ```bash
 magnet:?xt=urn:btih:944C9815855D8EE1EA4BA345A6ABD7862E0E4661
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ BRINK – это захватывающий шутер, который соед�
 magnet:?xt=urn:btih:8EE57EBEBE24E7BC97B871971D0D6163845D6F44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Phineas and Ferb: Across the 2nd Dimension (2011) [PS3] [USA] 3.40 [Cobra ODE / 
 ```bash
 magnet:?xt=urn:btih:EF790668E445E30B56D46DEC8CB660F59AD22A98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Project Zero 2: Wii Edition [Wii] [PAL] [Multi 5] [Undub] (2012)
 magnet:?xt=urn:btih:CBB399AA8CA9EB6950078AC25F00214476384E5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:CBB399AA8CA9EB6950078AC25F00214476384E5A
 magnet:?xt=urn:btih:0E57BE35C5184C3FC1B9C2963F0C1224895ADD89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Legend of Heroes: Trails of Cold Steel II — это японская ролев
 ```bash
 magnet:?xt=urn:btih:98B4290F0A66CBC7DF1EB7BFA2B4BC5214544706
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:98B4290F0A66CBC7DF1EB7BFA2B4BC5214544706
 magnet:?xt=urn:btih:DEB114B09EC7421FB23E69E63DBDF72F1C27F416
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Sky Force Anniversary (2016) [PS3] [USA] 4.21 [PSN] [Multi]
 ```bash
 magnet:?xt=urn:btih:A96A16EE7FDA583BF8D523A4ACDD74F3BC827D47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ Where the Wild Things Are (2009) [PS3] [USA] 2.76 [Cobra ODE / E3 ODE PRO ISO] [
 magnet:?xt=urn:btih:57FF928AE4F17604C7C852AC0467FB23ADD6B0A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ Akiba's Trip: Undead & Undressed (2014) [PSVita] [USA] 3.60 [HENkaku] [License] 
 ```bash
 magnet:?xt=urn:btih:45D58D61EB1D35D8A4307D0F38C017822C0012B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ Army of Two: The 40th Day (2010) [PS3] [EUR] 3.01 [Cobra ODE / E3 ODE PRO ISO] [
 magnet:?xt=urn:btih:1F59C9744F03D290A2F4A271F8DE29CB5EB7D16B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ The Smurfs 2 (2013) [PS3] [EUR] 4.41 [Cobra ODE / E3 ODE PRO ISO] [License] [Mul
 magnet:?xt=urn:btih:71FADAC10AA7125B9DB9C7B0807F1415E481E277
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ The King of Fighters XIII – очередная часть серии файт�
 ```bash
 magnet:?xt=urn:btih:F3CD7B2ABAD62894C76462AC68C5C3E6DE470251
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ Under Night In-Birth Exe:Late это файтинг со стильными, п�
 ```bash
 magnet:?xt=urn:btih:2502425CB2C51E263E4D4489E7762033204BC23F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ GTA: San Andreas (2005) [PS2] [USA] [Unofficial] [Ru]
 magnet:?xt=urn:btih:D0701E3567F1E98C4FD8B21E5C34073F789B9146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ Just Dance 2 - продолжение лучшей музыкально-танц
 magnet:?xt=urn:btih:D455157BBFE3550368E6B468209FE84809E7A4FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ Bloodstained: Ritual of the Night (2019) [PS4] [USA] 5.05 [HEN] [License / 1.31]
 ```bash
 magnet:?xt=urn:btih:8D905C9B990E2EA7E87BB078E1A80EDD1268BA75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ Dying Light - экшн-игра на выживание от первого ли
 magnet:?xt=urn:btih:F3DCE668844EB080DE44871862FF5B8A5A90B46D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ Elex — ролевая игра с открытым миром от созда�
 ```bash
 magnet:?xt=urn:btih:4BDAA107E2C9066629868777FC1286E38515BFE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +608,8 @@ Oddworld: Stranger’s Wrath HD (2011) [PSVita] [EUR] 3.60 [HENkaku] [License] [
 magnet:?xt=urn:btih:F09E941A16BAB17A8FFDA3EED3552D3AC147D201
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +633,8 @@ TerRover (2010) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN] [En]
 ```bash
 magnet:?xt=urn:btih:7B00AB09025538EE5D16865166124819117AE509
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +660,8 @@ Just Dance Wii U (2014) [WiiU] [JPN] 5.3.2 [Loadiine GX2] [License] [Jap]
 magnet:?xt=urn:btih:A676C907BF8320E6FD73C29AB865A5572EE38D49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ Wii Fit U (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [En/Multi]
 ```bash
 magnet:?xt=urn:btih:4C99DCEEC0728A35603ABC6F7A3B28CA4A621F74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

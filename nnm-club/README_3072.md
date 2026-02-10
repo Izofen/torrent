@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D5145959628A5F88B3954F935094306B3241EC70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:D5145959628A5F88B3954F935094306B3241EC70
 ```bash
 magnet:?xt=urn:btih:98FD4AF107C6BE0826F3CE5DEDFFC7532EA2E97B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ VA - Бездна Party (2012) [MP3|256 кб/с]<Шансон>
 magnet:?xt=urn:btih:87D38AA9215E76613ED82ABF825261485C4DB7AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -109,6 +115,8 @@ VA - Вечеринка Love Radio (2012) [MP3|256 кб/с]<Pop,Dance>
 ```bash
 magnet:?xt=urn:btih:C983255EEE76F991DA31AAA1619F223B7E59D7F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +151,8 @@ VA - Муз-треки Блатного радио Vol-2 (2012) [MP3|256 кб/с
 magnet:?xt=urn:btih:B1B70553C22BBD1A641B61FB815B3684C3BC080B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +177,8 @@ magnet:?xt=urn:btih:B1B70553C22BBD1A641B61FB815B3684C3BC080B
 ```bash
 magnet:?xt=urn:btih:C81BC6F3C618B5C1EA064439D973499B8FEEDAB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +213,8 @@ Alice de Selys - In A Heartbeat (2012) [MP3|320 кб/с]<Pop, Lounge>
 magnet:?xt=urn:btih:B1230ADA773366ABF365B405DE610B55B45FFE7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +239,8 @@ magnet:?xt=urn:btih:B1230ADA773366ABF365B405DE610B55B45FFE7C
 magnet:?xt=urn:btih:73AC9719FFE38CC314402A6E62ABD1E0532BEA2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +264,8 @@ magnet:?xt=urn:btih:73AC9719FFE38CC314402A6E62ABD1E0532BEA2E
 ```bash
 magnet:?xt=urn:btih:08D9EC482133C4ACDB39218D039E79B2178C8C5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +298,8 @@ VA - Zen Zone 4 (2011)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +331,8 @@ VA - Trancern 33.4: Official Compilation (25.03.2012)
 magnet:?xt=urn:btih:EAD886DAAB1D7FF788EB4A8E1713922F2C10DB0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +356,8 @@ magnet:?xt=urn:btih:EAD886DAAB1D7FF788EB4A8E1713922F2C10DB0C
 ```bash
 magnet:?xt=urn:btih:7AB63D763ADF29C0503605C91EE5C050C24F729C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +392,8 @@ VA - Лучшие клубные хиты (2012) [MP3|192-256 кб/с]<Dance, Cl
 magnet:?xt=urn:btih:22A078E44FE3A5BC54AC76EBBC62595CE32E7FCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +420,8 @@ magnet:?xt=urn:btih:22A078E44FE3A5BC54AC76EBBC62595CE32E7FCD
 magnet:?xt=urn:btih:7591D3CF931527D987CD9663124AA2AE193766A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +446,8 @@ magnet:?xt=urn:btih:7591D3CF931527D987CD9663124AA2AE193766A7
 magnet:?xt=urn:btih:38B9E8FA0E9E3DF58351321C171F4B8B75EFF05D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +471,8 @@ magnet:?xt=urn:btih:38B9E8FA0E9E3DF58351321C171F4B8B75EFF05D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +502,8 @@ VA - Ayurveda Lounge. Relaxation & Meditation. Volume 2 (2012) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:4BBD7E4CF0B395B09C342B22A0142552DEEF41F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +538,8 @@ VA - XXXL Продвинутый Русский Весна (2012) [MP3|256 kbps]
 magnet:?xt=urn:btih:E602F64EF90E7615876BFACC525E86315BB9BAD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +564,8 @@ magnet:?xt=urn:btih:E602F64EF90E7615876BFACC525E86315BB9BAD2
 ```bash
 magnet:?xt=urn:btih:C0FB130DA8C5E260183D627404208FC078696751
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +600,8 @@ VA - XXXL Максимальный Хит 50/50 (2012) [MP3|256 kbps]<Pop>
 magnet:?xt=urn:btih:4EDC50467600868ABEA3F6D3C4B8F3C83EBF1E95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +635,8 @@ VA - Зажги танцпол 50/50 (2012) [MP3|256 кб/с]<Рор>
 magnet:?xt=urn:btih:8CF9A82495397E01D94151FE807908835FE286BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +660,8 @@ magnet:?xt=urn:btih:8CF9A82495397E01D94151FE807908835FE286BF
 ```bash
 magnet:?xt=urn:btih:B0D135AA38CB0C594ADF38D95BA00846AA2144D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +696,8 @@ VA - Русское Радио. Фестиваль Хитов (2012) [MP3|128 kb
 magnet:?xt=urn:btih:442D725C26A95E335C7FBD6294A1198F20F55B0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -685,6 +731,8 @@ VA - Deep Line. Best Of ChillOut & Lounge (2012) [MP3|320 кб/с]<Downtempo, Lo
 magnet:?xt=urn:btih:60F99F9EE824F28A401A74F120117407A90B590A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -708,6 +756,8 @@ magnet:?xt=urn:btih:60F99F9EE824F28A401A74F120117407A90B590A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -734,6 +784,8 @@ magnet:?xt=urn:btih:60F99F9EE824F28A401A74F120117407A90B590A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

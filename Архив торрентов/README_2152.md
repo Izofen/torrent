@@ -23,6 +23,8 @@ Forecast Bar - точный прогноз погоды  Forecast.io  прямо
 magnet:?xt=urn:btih:519CE8BE543442B3F0D6CBB3D2D8CCA4F0E1EBFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ DaisyDisk 4.3.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0589C45C62CBE2D046681CAC19F4952F60F7CE89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ MужчиныТелекомпания: Eurosport 1 HDЖанр: СпортЯзы�
 magnet:?xt=urn:btih:2AB5E6F9EEC735EC61573C2F277776715C2AF6B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:2AB5E6F9EEC735EC61573C2F277776715C2AF6B0
 magnet:?xt=urn:btih:656CDDA839A98639009BD90989C5AE8AEA016179
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:656CDDA839A98639009BD90989C5AE8AEA016179
 magnet:?xt=urn:btih:90B98A44DC3A355052E2CB2EFB1AFF08FAC57487
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Magnet Pro 2.4.5 [Multi]
 ```bash
 magnet:?xt=urn:btih:4E0C210707799E1FA3C66CE76B34D632707DB9B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Alphaville - First Harvest 1984-92 (1992) [FLAC|tracks+.cue]<Synth-pop>
 magnet:?xt=urn:btih:CBAB460C90C57919E6D3C7DB0A3A9D84FB3BF5FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ Movavi PDF Editor 2.4.1 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:C4FA0FD7829D3CA84AC910333ED127C6D696215C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ Blank And Secure 4.14 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6E9F58CAC1699F88C8124555ADF94B250E09C9BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ Corel® AfterShot™ Pro 3 - это фоторедактор для обрабо
 magnet:?xt=urn:btih:5496D19AB7136C6C0A13F33FF92F85C26474F656
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ Adobe Zii - это небольшая и замечательная утилит
 magnet:?xt=urn:btih:831DCFF56D5C079FFB58F491FC35186A5B88DE8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:831DCFF56D5C079FFB58F491FC35186A5B88DE8A
 ```bash
 magnet:?xt=urn:btih:FEBBC9BDCE256B0DC00D76D97FBCCA5C2C34EC44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:FEBBC9BDCE256B0DC00D76D97FBCCA5C2C34EC44
 magnet:?xt=urn:btih:2A8D46204A3CA63CA1DEA63BB06ADB13BFD10CD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ Yesterday / Yesterday (2019) BDRip [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:B2267659A9DDAAA42AD052E66CBC8146B86CD6D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ Unity — межплатформенная среда разработки ко�
 magnet:?xt=urn:btih:6C45AC31BA50663D82C3210F8DB8E355EA679D83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ Q-Dir - файловый менеджер с оригинальным четыр
 ```bash
 magnet:?xt=urn:btih:35A2AC4A9463EA783F8FF55EDC00E73F20C3F0EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ Wise Memory Optimizer 3.52.103 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:1905955CFB2771CB60C2BE968826F25F00B3C4B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ MKVToolnix - функциональный набор инструментов д
 ```bash
 magnet:?xt=urn:btih:20F1B18DACF2BC29FB77827D78261F7880D6062F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ Wise System Monitor 1.4.5.40 [Multi/Ru]
 magnet:?xt=urn:btih:6CB3C0A25E534814624B9C50B5B022E5D1640383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ Pale Moon - веб-браузер, созданный на базе популя
 ```bash
 magnet:?xt=urn:btih:76B0FF506E49A5B0D562DE99C122FF666FD6DC3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:76B0FF506E49A5B0D562DE99C122FF666FD6DC3A
 ```bash
 magnet:?xt=urn:btih:E6E06902B0E857EEBB0FD2D50E790E7880086287
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:E6E06902B0E857EEBB0FD2D50E790E7880086287
 magnet:?xt=urn:btih:B7A54E3B44EE0194F00F9D96F3DCB7A430971A33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ Total Audio Converter - мощный конвертор всех музыкал�
 ```bash
 magnet:?xt=urn:btih:0074C6644E7EEA2BE95F8BA0FCA756933288E49C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ Loaris Trojan Remover - мощное решение для удаления вр
 magnet:?xt=urn:btih:B7AEBAFA1E3FC6245F1D8C0914CCBD69E500F7C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:B7AEBAFA1E3FC6245F1D8C0914CCBD69E500F7C2
 magnet:?xt=urn:btih:13BF556839015CDBB96C276605E8D48714408E36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:D0C85A4ABE2174515392DC27F75F9CD8717FAB05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

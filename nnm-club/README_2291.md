@@ -19,6 +19,8 @@ The Inquisitor - это сюжетная приключенческая игра
 magnet:?xt=urn:btih:D6DA53340FA35ED66AE796C46E68F0DB081AD5A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:D6DA53340FA35ED66AE796C46E68F0DB081AD5A3
 ```bash
 magnet:?xt=urn:btih:256448E57AFFBF0F239FA7276C3862DE679F2000
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Broken Roads создана командой настоящих энтузиас
 magnet:?xt=urn:btih:6190E636963F6BF84B2FCED3EA0DCE9D22A9BF4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Adobe Acrobat Reader — приложение Reader для самых важн�
 ```bash
 magnet:?xt=urn:btih:5A7D6EE601D570508495B35E31E59A0725DCAB1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:5A7D6EE601D570508495B35E31E59A0725DCAB1D
 magnet:?xt=urn:btih:36EFD2A8DC2355BD10B53AC97EF606DE0DBD9B70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:36EFD2A8DC2355BD10B53AC97EF606DE0DBD9B70
 ```bash
 magnet:?xt=urn:btih:82142439207AE4866A9ECC834D8BB6ED01808576
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:82142439207AE4866A9ECC834D8BB6ED01808576
 magnet:?xt=urn:btih:F4CE7804D578E2B6A4D465AE28335A03D98AEC76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:F4CE7804D578E2B6A4D465AE28335A03D98AEC76
 ```bash
 magnet:?xt=urn:btih:14C94A70F8ADEAD8D59CC953B97724789A9694D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:14C94A70F8ADEAD8D59CC953B97724789A9694D9
 magnet:?xt=urn:btih:30A3FFAAC6A1D5AB7DB3B128771FCC5FB7BDB3E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:30A3FFAAC6A1D5AB7DB3B128771FCC5FB7BDB3E4
 ```bash
 magnet:?xt=urn:btih:5FB32975894CEF27F8F44CCA7E1EB167F4083D85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:5FB32975894CEF27F8F44CCA7E1EB167F4083D85
 magnet:?xt=urn:btih:69B415BF9DC84A3C7510312DEDFB38FC3267CF41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:69B415BF9DC84A3C7510312DEDFB38FC3267CF41
 ```bash
 magnet:?xt=urn:btih:0AC52F7B112783D2C6517FFA0974556D6D28D52C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Sousou no Frieren | Frieren: Beyond Journey's End | Фрирен, провожа
 magnet:?xt=urn:btih:2E25466BD486992F50487F7A5E304BCA3565F545
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:2E25466BD486992F50487F7A5E304BCA3565F545
 ```bash
 magnet:?xt=urn:btih:BF8E1D719CB6F45DB5BFC3B8C096B773F47C3A0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:BF8E1D719CB6F45DB5BFC3B8C096B773F47C3A0A
 magnet:?xt=urn:btih:6075B33395D9BE7ABA07C41A816EAC4E8D4BD142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:6075B33395D9BE7ABA07C41A816EAC4E8D4BD142
 ```bash
 magnet:?xt=urn:btih:7346B620B8A79B13FF6286D8D79B04CB83C6A75D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:7346B620B8A79B13FF6286D8D79B04CB83C6A75D
 magnet:?xt=urn:btih:FE0E3035DC73E85F49C061D6F5A986C8A72F5550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ MInstAll v.10.03.2024 By Andreyonohov (ISO) [Ru]
 magnet:?xt=urn:btih:CC38152EEECB1CF360F87DC883AD64290D904127
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:CC38152EEECB1CF360F87DC883AD64290D904127
 ```bash
 magnet:?xt=urn:btih:5F9594BAA8CA595F606BC3F9FDA8DB0B24462F0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:5F9594BAA8CA595F606BC3F9FDA8DB0B24462F0E
 magnet:?xt=urn:btih:D165C9429C43D222BDACF37AB730A37F464C1DD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:D165C9429C43D222BDACF37AB730A37F464C1DD4
 ```bash
 magnet:?xt=urn:btih:9F593F10302C172AB2CE01F3FF94551976D8CEBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:9F593F10302C172AB2CE01F3FF94551976D8CEBE
 magnet:?xt=urn:btih:8996B07E22770101454CB8EEFF7FC107DC969C3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:8996B07E22770101454CB8EEFF7FC107DC969C3D
 ```bash
 magnet:?xt=urn:btih:FDEAF57A54444D015CC35DF19FD1A27356754ED1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:FDEAF57A54444D015CC35DF19FD1A27356754ED1
 magnet:?xt=urn:btih:49B0D54221FEC45EA875BCD452612AC65B2C6FE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:49B0D54221FEC45EA875BCD452612AC65B2C6FE6
 magnet:?xt=urn:btih:E5504EC3828D6DB53B24314A739E07F584758CB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Media Player Classic Home Cinema – удобный во всех планах �
 ```bash
 magnet:?xt=urn:btih:DA3EACC94BB323DDCC4D220BB0D5216E4D978BCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

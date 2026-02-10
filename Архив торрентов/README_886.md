@@ -20,6 +20,8 @@ TG Pro — контроль температуры и вентиляторов �
 magnet:?xt=urn:btih:13037D00A504B646A92F20C8F8F0CD688C18061B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ StaxRip - инструмент для кодирования видео "все-
 magnet:?xt=urn:btih:0033FDD3E58ED1526BA9C1BE19FAF5B296079708
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Bazaart: Photo Editor & Graphic Design v2.5.0 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0756D8EA4B4F3C06C97088602BCF0E8DDCE0F405
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ EmEditor Professional - профессиональная версия мощно
 magnet:?xt=urn:btih:BC9C404CC19AE7D7F95CD677E18B568E38064500
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ PDFelement Pro - профессиональный инструмент, кото
 ```bash
 magnet:?xt=urn:btih:0BBA00B29820A56EF532E713E077B829C6495014
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ FireAlpaca - это достаточно простой, но удобный г�
 magnet:?xt=urn:btih:F06E8DF5F8D74FC48103C803937790B066D8B765
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Duplicate Files Search & Link (Duplicate Searcher) - это приложение
 magnet:?xt=urn:btih:5C70C88238D482F5304A119DAA5A8187A6B52F0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ TreeSize Professional 9.1.2.1873 (x64) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3E4ADB460440FADC4D50E95618BE7EDF6E747893
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:40D5F296167B4ED45610A2337A619004A11C6C8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ KiCad – уникальный в своем роде программный п�
 ```bash
 magnet:?xt=urn:btih:551AB4432426ACC45295C5F40E2A20FE9293FAFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ RedNotebook - это простое GTK+ / Gnome приложение напис
 magnet:?xt=urn:btih:0B0185CBC4FF38C237CD7EA88B54FA6174C8AE60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Kid3 — бесплатный инструмент, позволяющий ре�
 ```bash
 magnet:?xt=urn:btih:79C2F380F0291FD56BA8AE0D96459AA27A4334B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Tablacus Explorer - удобный в работе и простой в испо
 magnet:?xt=urn:btih:A11C8F5B9D0FDAF77D94F7BEA6D0D9722C58E13F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Google Earth Pro 7.3.6.9796 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BEADEBA4A5CB948F0CE0280F42F0B15D4C5D01B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Hiren’s BootCD PE x64 v1.0.6 (22 February 2024) [En]
 magnet:?xt=urn:btih:0D3CD5CAA425238EFC8B9C3C11EB35912CAACC95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ ZBrush — программа для 3D моделирования, создан
 ```bash
 magnet:?xt=urn:btih:4DF52940AF6690679C1BDEC7BAD2EB15EFDEF504
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ CrystalDiskMark - утилита для сравнительного анали�
 magnet:?xt=urn:btih:9F2A99A9B98AE0C42B328B43BAE0F3931B359EBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ CloudMounter - это централизованный сервис, котор�
 ```bash
 magnet:?xt=urn:btih:1122B74D9A53AC1014A387B322F32EE326BD23CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:1122B74D9A53AC1014A387B322F32EE326BD23CC
 magnet:?xt=urn:btih:A80F3DCB9CD5F0A288EE9F782BA43B780E7B17F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ BetterMouse — это утилита для macOS, улучшающая про�
 ```bash
 magnet:?xt=urn:btih:34DE42F9064306479A90D702C12FB1CCF02614D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ EmEditor Professional - профессиональная версия мощно
 magnet:?xt=urn:btih:8532C5244ABE41E8E07ABCB1C90B607D0C74190A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Music Collection - неплохая программа для создания �
 ```bash
 magnet:?xt=urn:btih:1D073E34DF50181CE7F5FCFE252EFDD47435E3F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Brave - защищённый веб-браузер на базе Chromium, по�
 magnet:?xt=urn:btih:6F01CC4194CB4B1CD5987B630949B9741DDA0449
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ PowerDirector – Video Editor v13.2.1 b1226220 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3CFAE58707AEA41ECD40063087DEDB0C9521F8D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ PDF Expert - редактор  PDF. Быстрый, мощный и незаме
 magnet:?xt=urn:btih:D54C85AFE57AD1F3A4F1FBA9D9B233BC5299E4DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Directory List & Print – менеджер каталогов, предназн
 ```bash
 magnet:?xt=urn:btih:FCDF96B287E87D9D2400C39EFAD76A4BEAF3E25B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

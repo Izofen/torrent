@@ -20,6 +20,8 @@ Gekkan Mousou Kagaku | Delusional Monthly Magazine | Псевдонаучный 
 magnet:?xt=urn:btih:6D780C7C6D012A6C963B9D7C930E616B5F286EB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Gekai Elise | Doctor Elise: The Royal Lady with the Lamp | Королева со
 ```bash
 magnet:?xt=urn:btih:4ED3EF3251AB35FA1E42189CE19AEC4FF687D817
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e 3nd / Classroom of the Elite III
 magnet:?xt=urn:btih:84F6AFE04158F34F88769E4B61BB1B3F01BC1BC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Jaku Chara Tomozaki-kun 2nd Stage / Bottom-tier Character Tomozaki 2nd Stage / �
 magnet:?xt=urn:btih:DA1B9F2BAB0EB938213B16714A92473110B10634
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Hime-sama Goumon no Jikan Desu | Tis Time for Torture, Princess | Время "п
 magnet:?xt=urn:btih:99020F0C8F177C34BBC6239319D3D96340B60304
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Dosanko Gal wa Namara Menkoi / Hokkaido Gals Are Super Adorable! / Досанк�
 ```bash
 magnet:?xt=urn:btih:1AB2F00E4219B350CAC656DCC00EAD58A681E7DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ Shin no Nakama ja Nai to Yuusha no Party o Oidasareta node, Henkyou de Slow Life
 magnet:?xt=urn:btih:561042BC686E14AA371D61F7C9BCF9DCFAE1502A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ Ao no Exorcist: Shimane Illuminati Hen | Blue Exorcist: Shimane Illuminati Saga 
 magnet:?xt=urn:btih:6BBE5F5287670C3390C456564998677856AE6B62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ Loop 7-kaime no Akuyaku Reijou wa, Moto Tekikoku de Jiyuukimama na Hanayome Seik
 ```bash
 magnet:?xt=urn:btih:3E13824E07B21E878037E281C4E250E6D6158E57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ Yubisaki to Renren | A Sign of Affection | Любовь с кончиков па
 magnet:?xt=urn:btih:7A4FE5B414BAF471652EB178A1A901828182C2B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ Saikyou Tank no Meikyuu Kouryaku / The Strongest Tank's Labyrinth Raids / Сил
 magnet:?xt=urn:btih:48638DC9D88091D1650D39CFC8A7C2C9082718D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Kekkon Yubiwa Monogatari | Tales of Wedding Rings | Легенда свадеб�
 ```bash
 magnet:?xt=urn:btih:E7D44DD8857570EFEB9E10EB524323ECF6B219A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ Momochi-san Chi no Ayakashi Ouji | The Demon Prince of Momochi House | Прин�
 magnet:?xt=urn:btih:073D29F0238B4E3965D1B73FEF483C769A996E7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ Sasaki to P-chan / Sasaki and Peeps / Сасаки и Пи-тян [2024, TV, 12]
 ```bash
 magnet:?xt=urn:btih:F677225BBACD07EB02432EE3DFDBD4A9AE4F9D49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ Nozomanu Fushi no Boukensha | The Unwanted Undead Adventurer | Нежеланн�
 magnet:?xt=urn:btih:990BD3B2CB589C871E67599708A3FB65B889B895
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ Hikari no Ou | The Fire Hunter | Пожинатель огня [2023, TV, 20 э�
 magnet:?xt=urn:btih:70FBA34BFEAC0CD91F0382673FCF4C1920779BD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ Meiji Gekken: 1874 | Самураи эпохи Мэйдзи: 1874 [2024, TV, 10 
 ```bash
 magnet:?xt=urn:btih:FC07CBED28A192B2C934678AA9B15838E94AFA4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ D.Gray-man Hallow | Ди.Грэй-мен: Святые | Ди Грэй-мен: �
 magnet:?xt=urn:btih:57DB52D725ED4A7E4CCC8ED6DE608D055A9422D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ Choujigen Game Neptune The Animation | Hyperdimension Neptunia - The Animation |
 ```bash
 magnet:?xt=urn:btih:0D149FB2155ABCBF5281E2FB79EBEF10ABC23E2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ Kono Subarashii Sekai ni Shukufuku o! 3 | Этот замечательный м
 magnet:?xt=urn:btih:33D83D420D63E789BAA6BF5AB125FE39E6B647E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ Date a Live V | Рандеву с жизнью [ТВ-5] [2024, TV, 12 эп.] BDR
 magnet:?xt=urn:btih:AA08762024C2ECAB65846108AC5720D6E91AADB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ Tensei Kizoku, Kantei Skill de Nariagaru | As a Reincarnated Aristocrat, I'll Us
 ```bash
 magnet:?xt=urn:btih:6B97E25214ADAE6BF63D68496C8C2A851B9E1247
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ Kyuuketsuki Sugu Shinu 2 | The Vampire Dies in No Time 2 | Этот вампир
 magnet:?xt=urn:btih:AF4454FB1FA13A4ABD25DF608EE2D2EA2FD4F9A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ Loop 7-kaime no Akuyaku Reijou wa, Moto Tekikoku de Jiyuukimama na Hanayome Seik
 ```bash
 magnet:?xt=urn:btih:63368FD53BAA92201146350F0F8B7C35F6ABD2DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ Eiyuu Kyoushitsu | Hero Classroom | Класс для героев [2023, TV, 12
 magnet:?xt=urn:btih:6A86505EF6123F0B9EA6FEF879B144446ABDACC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ Shinmai Ossan Boukensha, Saikyou Party ni Shinu Hodo Kitaerarete Muteki ni Naru.
 ```bash
 magnet:?xt=urn:btih:A95F48E6A767B711A6EFD04743C299D1EE3E53F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,65 @@
+###  Публикация: 1104930   (878297) от 16.02.2017
+
+Pantaculo Mistico - Hermetico (Hermético) (2016) [FLAC|Lossless|image + .cue] <Pagan, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Onde os Extremos se Tocam (3:51)
+02. Viagem Astral (11:33)
+03. Vagando por Caminhos Desconhecidos (9:25)
+04. 666 + 777 - A Uniao do Treze (6:05)(   Читать дальше...   )Жанр: Pagan, Doom MetalПродолжительность: 00:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89A2AB6052625ADB4B714047E47ABE16B99F7173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 764953   (878322) от 10.03.2014
+
+Mount Salem - Endless (2014) [FLAC|Lossless]<Stoner/Doom/Psychedelic>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Good Times (5:01)
+02. The Tower (5:52)
+03. Lucid (4:55)
+04. Full Moon (6:28)
+05. Mescaline (2:43)
+06. Mescaline II (3:44)
+07. Hysteria (7:29)
+08. The End (6:17)Жанр: Stoner/Doom/PsychedelicПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55F4C2631CE4217AA5FD516264D2D987B41F25F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 764943   (878394) от 10.03.2014
 
 Conan - Blood Eagle (2014) [FLAC|Lossless]<Doom Metal/Sludge Metal>
@@ -23,6 +85,8 @@ Conan - Blood Eagle (2014) [FLAC|Lossless]<Doom Metal/Sludge Metal>
 ```bash
 magnet:?xt=urn:btih:8126C21F56CCCB1106551E386FE86B706AD7654B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -57,6 +121,8 @@ Eisenwinter - Armee der arischen Untoten (2012) [FLAC|Lossless]<Black Metal>
 magnet:?xt=urn:btih:1032EFD782AE6E954ADC817F2CF8DFE012A7C1AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -80,6 +146,8 @@ Totenmond - Auf dem Mond ein Feuer (2001) [FLAC|Lossless]<Progressive Death Meta
 ```bash
 magnet:?xt=urn:btih:0B19DF187C1BD05577245C0A8099B461DC32DE61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -113,6 +181,8 @@ Totenmond - TonbergUrtod (2005) [FLAC|Lossless]<Progressive Death Metal with Pun
 ```bash
 magnet:?xt=urn:btih:3CA4A8A5B7F2E3F442A217C340D877D17918F7D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +222,8 @@ Discogs
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +252,8 @@ Beyond The Black - Songs Of Love And Death (2015) [FLAC|Lossless]<Symphonic Meta
 magnet:?xt=urn:btih:362952B76D3CD13148CDD5AC2088BD1A902D6BD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +281,8 @@ Elyria - Reflection And Refraction (2016) [FLAC|Lossless|image + .cue] <Progress
 magnet:?xt=urn:btih:4D449E24287232DBD1309ACEAF8BD2E0BC5D509E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -233,6 +309,8 @@ Hordak - Padre (2016) [FLAC|Lossless|image + .cue] <Celtiberian Pagan Metal>
 ```bash
 magnet:?xt=urn:btih:AF71EDFFDF71056F37981F03232C8B69C3959F74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +345,8 @@ All Ends - Дискография (2008-2010) [FLAC|Lossless]<Modern Gothic Meta
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +378,8 @@ Part I
 magnet:?xt=urn:btih:A8AB40A00540E72CF33778092DFECE4FD9493348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +406,8 @@ Battle Beast - Bringer of Pain (2017) Limited Edition [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:42472ADE15F64849960D729AE9CC3EFA5951C7F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +442,8 @@ Axxis — метал-группа из Германии, исполняющая 
 magnet:?xt=urn:btih:9201B7017F999A5A82D433F49D1F92EE33B858D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +471,8 @@ Overkill - The Grinding Wheel (2017) Limited Edition [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:49B6D087A56E883BC938FEE9952BAF55DDF4687A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +496,8 @@ Angtoria - God Has A Plan For Us All (12-track version) (2006) [FLAC|Lossless]<H
 ```bash
 magnet:?xt=urn:btih:5E504765BB10FD774D97C4B3FA09F64D153DA26E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +525,8 @@ Them - Sweet Hollow (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:7266AD173482E35950730DE52FDFF6D8CD4E44C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +561,8 @@ Metal Inquisitor - Ultima Ratio Regis (2014) [FLAC|Lossless]<Heavy Metal>
 magnet:?xt=urn:btih:8CBB82184AA60678182C7304301118DAAB036C18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +590,8 @@ Nightingale (Швеция) - музыкальный коллектив комп�
 magnet:?xt=urn:btih:D25D1115D35D8CE27BCE5FD8D80A3A774F296C07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +615,8 @@ Arcturus - Sideshow Symphonies (2005) [FLAC|Lossless]<Avantgarde Black Metal>
 ```bash
 magnet:?xt=urn:btih:67F45D813DAF264098E44520CC8FE80541BF2366
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +645,8 @@ Mortillery - Shapeshifter (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 magnet:?xt=urn:btih:E8FF1CDC3271ACE38F041E150DE1C939FDB5B76D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +673,8 @@ Margenta - 6 альбомов 1 сингл (2003-2013) [FLAC|Lossless]<Metal>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +703,8 @@ Evil Masquerade - The Outcast Hall Of Fame (2016) [FLAC|Lossless|image + .cue] <
 magnet:?xt=urn:btih:47BA59D70E0E0A89193A5C65ADC723225E4FE910
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +732,8 @@ Blacksmith - Gipsy Queen - The Early Years '83 - '86 (2018) Compilation, Japanes
 magnet:?xt=urn:btih:ABA63EFBEAEA13587F44BB2296BEB273813E1501
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +760,8 @@ Possessed (в переводе с англ. — «одержимый») — ме
 ```bash
 magnet:?xt=urn:btih:87AA15C4EDB7D9FC3729386F6C0646873C5F03B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -684,59 +792,7 @@ LEPROUS — норвежская группа, играющая в стиле Pr
 magnet:?xt=urn:btih:7A7E310EB4B0EFAD31F4D458FCC0CCBC6E600423
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495424   (880817) от 12.09.2021
-
-Havamal - The Shadow Chapter (2021) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The North Awakens
-02. Fenris
-03. Nidhoggr
-04. Kraken(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D802CF2AEE7F0D2D62824C058577440248EA79E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495481   (880819) от 12.09.2021
-
-Khroma - Ex Nihilo (2021) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Modern Metal, Djent, Rap Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slaves [00:03:41]
-02. Dead Arrive (Run Tell Them) [00:03:22]
-03. Tread Light [00:03:48]
-04. Tidal [00:04:42](   Читать дальше...   )Жанр: Industrial Metal, Modern Metal, Djent, Rap MetalПродолжительность: 00:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B09DD51B717410490BFDFBCBDB028F4081943E83
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

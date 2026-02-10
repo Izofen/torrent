@@ -22,6 +22,8 @@ John Ottman & David Buckley - The Nice Guys / Славные парни (Origina
 magnet:?xt=urn:btih:C7E90FB61B9FBCA93A4FBA5C3BE58FD75CE5989D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Horizon Zero Dawn (Original Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:D38AAE636F5B7BBBAA34B1F2ED98E6B155A539BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Dishonored 2 (Original Game Soundtrack) (2016) [MP3|200-275 кб/с]<Soundt
 magnet:?xt=urn:btih:B00A03643092FF3BCEC7CDA3E2BECEA266F349A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Los 50 Grandes Éxitos del Tango Instrumentales (2014) [MP3|192 Kbps] <Tang
 ```bash
 magnet:?xt=urn:btih:AE35695490F476D9982B0D9A94395B08D95B7A21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:AE35695490F476D9982B0D9A94395B08D95B7A21
 magnet:?xt=urn:btih:2F0C63465A6D99F4D6883678415A5E251E513A35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Greatest Ever! Brazil (2012) [MP3|320 Kbps] <World Music, New Age, Brazil>
 ```bash
 magnet:?xt=urn:btih:FADE4791EBD4F8A36961602DBABD665B766A0482
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ Karunesh - Beyond Time Compilation 1 (2010) [MP3|320 kbps]<New Age, Relax, Medit
 magnet:?xt=urn:btih:65E92AA3597C7B0956E89D4A4893789769B3282C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ Yanni - Dare to Dream (1992) [FLAC|Lossless|tracks] <New Age, Instrumental>
 ```bash
 magnet:?xt=urn:btih:BC9E62AD7D8CE3DEF50B7CB06B38F56CCFA548BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +260,8 @@ Waterbone - (1997-2015) (5 альбомов) [MP3|320 кб/с] <New Age, Enigmat
 magnet:?xt=urn:btih:C5E4FF6A8DC45E0A7A8A5C27D1803A2CCF326D15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ Brian Tyler - Now You See Me / Иллюзия обмана (Complete Motion Pict
 ```bash
 magnet:?xt=urn:btih:7F2C6EF32840B8A5E186C267AF0568D9687E4E92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +318,8 @@ Thomas Newman - Finding Dory / В поисках Дори (Original Motion Pictu
 magnet:?xt=urn:btih:1F5B50077665470F832B4501984F2E10822A18A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +346,8 @@ Daniel Pemberton - King Arthur: Legend of the Sword / Меч короля Арт
 ```bash
 magnet:?xt=urn:btih:4303C47C21A7375D0FD7AD98A4FE9B230382A034
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +376,8 @@ David Darling - Gratitude (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 magnet:?xt=urn:btih:B8A5CA8FB59FE938DA876810ABBC09D9F9E7FBB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +404,8 @@ VA - Салют-7 (2017) [MP3|320 Kbps] <Score>
 ```bash
 magnet:?xt=urn:btih:240E0E5AE8D3D725341F572EC76EA1FA196B11FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +434,8 @@ Daniel Pemberton - King Arthur: Legend of the Sword / Меч короля Арт
 magnet:?xt=urn:btih:8EA1980BF19B0AF240635CBD64B0BFEF1F16F5EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +462,8 @@ The Dead South - Good Company (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blueg
 ```bash
 magnet:?xt=urn:btih:9C7EE63FE8E747A2D56BCC0809B92D70C9C30A66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +492,8 @@ VA - Prey (Original Game Soundtrack) (2017) [MP3|241-287 кб/с]<Soundtrack>
 magnet:?xt=urn:btih:5C1A070128852A79D095B0B7D525078180ED2870
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +520,8 @@ Levantis - I Love Yoga (Music To Relax Your Body And Mind), 3CD Box Set (2009) [
 ```bash
 magnet:?xt=urn:btih:D9FC5FDB3FD38E8AEE3ECFBD28D02BF804F4A24A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +550,8 @@ magnet:?xt=urn:btih:D9FC5FDB3FD38E8AEE3ECFBD28D02BF804F4A24A
 magnet:?xt=urn:btih:BE27D2BA5AFBBF8C1EB4AC0459DC3EDC9A09529B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +578,8 @@ Medwyn Goodall - The Sorcerer's Daughter 2 (2017) [MP3|320 Kbps] <New age, Relax
 ```bash
 magnet:?xt=urn:btih:40934631A43CC806B4A93C5409A1198B6269B6CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +608,8 @@ Parijat - Blessings (2017) [MP3|320 Kbps] <New age, Instrumental>
 magnet:?xt=urn:btih:77CCA0495AE756AB5BF43160D4676ED51D9B2554
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +636,8 @@ Samuel Laflamme - Outlast II (Original Game Soundtrack) (2017) [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:B77CC1CA3C9C9E0DA84A40418CC5994455D00E81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +666,8 @@ Timothy Wenzel - What We Hold Dear (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age
 magnet:?xt=urn:btih:E075870D3B3AD147FD163D592ED18FF086932BAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +694,8 @@ D-Emotion Project - Hybrid (1994) [FLAC|Lossless|image + .cue] <New Age, Downtem
 ```bash
 magnet:?xt=urn:btih:4A645B0E24C51365D53ED5F8240258C7A967D138
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,6 +724,8 @@ Samuel Laflamme - Outlast II (Original Game Soundtrack) (2017) [MP3|320 кб/с]
 magnet:?xt=urn:btih:926FF174363ACFAE1B1D390379C751C00094834B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -702,6 +752,8 @@ Divine Works - Soundtrack to the new millenium (1997) [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:79A76F53AEAE67879E5DD966EA714194E2B8E6BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

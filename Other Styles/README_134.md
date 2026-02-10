@@ -22,6 +22,8 @@ Giorgio Costantini - Atmosphere (432 Hz) (2015) [FLAC|Lossless|WEB-DL|tracks] <E
 magnet:?xt=urn:btih:B6B5E8C6C8DEC68A8471DC2D54C87AFFA99EA1EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Justin Johnson - If Walls Could Talk (2016) [MP3|320 Kbps] <Roots Acoustic Instr
 ```bash
 magnet:?xt=urn:btih:C1FCE343916E413C20B81975A8C0F9006BE94AF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Fifty Shades Freed (Original Motion Picture Soundtrack) (2018) [MP3|320 Kbp
 magnet:?xt=urn:btih:C87F30CF48B5F60739C42E85517E50515DFB4E9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Armik - Pacifica (2018) [FLAC|24/96|Lossless|WEB-DL|tracks|] <Nuevo Flamenco>
 ```bash
 magnet:?xt=urn:btih:C33E2A943F496220C7A0EBF4D5FF8F0DE3D08614
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Jeff Russo - Видоизмененный углерод | Altered Carbon (Origi
 magnet:?xt=urn:btih:5487561DFD14A73353003D8EA0D27629C3CF23C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Opii - Encounters (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enigmatic, Chil
 ```bash
 magnet:?xt=urn:btih:5AB38ABFF511EC02FCC3E402D18454BD5C9B1965
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Disc 1:
 magnet:?xt=urn:btih:E23374548CBE37C1D133E17F3E46CE3AB3DAB809
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Armik - Pacifica (2018) [MP3|320 Kbps] <Nuevo Flamenco>
 ```bash
 magnet:?xt=urn:btih:36675BFFC0ADBFB12D573992BE0A8CA781E769FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Armik - Romantic Spanish Guitar Vol. 3 (2016) [FLAC|Lossless|image + .cue] <Inst
 magnet:?xt=urn:btih:CF9AA334D91C5B083D8351229911421CE189317E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ magnet:?xt=urn:btih:CF9AA334D91C5B083D8351229911421CE189317E
 magnet:?xt=urn:btih:FCD46E8C0F86EE47A08037105A83F3711084D256
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +309,8 @@ Sagor Som Leder Mot Slutet - 2 Альбома (2016-2018) [MP3|320 кб/с]<Post
 ```bash
 magnet:?xt=urn:btih:9E46F460A72B5BDAD61CB726E57C0EF103E1867C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +339,8 @@ VA - Virtually Surrounded (Headphone Demo) (2018) [FLAC|Lossless|tracks + .cue] 
 magnet:?xt=urn:btih:B62C07F587149A7CA2A8D0EA7CA7566AE53F7028
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +367,8 @@ The Romantic Strings and Twin Pianos - Full Moon & Empty Arms (1993) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:CFD62E0AFCCFBD47B37DA17F17D74951370F868B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +397,8 @@ Stephen Rhodes - Relax II: Your Essential Spa Music (2013) [FLAC|Lossless|image 
 magnet:?xt=urn:btih:C89BF26A12FD4AB1C0D565FAFA0AD583705E0F35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +425,8 @@ magnet:?xt=urn:btih:C89BF26A12FD4AB1C0D565FAFA0AD583705E0F35
 ```bash
 magnet:?xt=urn:btih:D6693EF39EC1B989D69FAB7E47D3036BCB0F7FB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +455,8 @@ Dino Solera - Classicaly: Dino Solera (1977 /2015) Remastered, Unofficial [FLAC|
 magnet:?xt=urn:btih:1997A8E92B24344A531A8214A758644CE93AE972
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +483,8 @@ David Arkenstone - Fairy Dreams (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:FB9A61642EB7BDE9ED9320C0F9BB2B6742D7E72A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +513,8 @@ magnet:?xt=urn:btih:FB9A61642EB7BDE9ED9320C0F9BB2B6742D7E72A
 magnet:?xt=urn:btih:E9F6B77946B4FF7409BEC4771ABC41F809EA671E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +541,8 @@ magnet:?xt=urn:btih:E9F6B77946B4FF7409BEC4771ABC41F809EA671E
 ```bash
 magnet:?xt=urn:btih:761F83ACCC0DF539C087EC730796FC0C72CAEFE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +571,8 @@ The Nexion-Project - Voices of the Ascension (2011) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:31E5EA7D1B6FA34BE3CA6FFB7B4302D5DA15CCDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +599,8 @@ VA - Going in Style / Уйти красиво (Original Motion Picture Soundtrac
 ```bash
 magnet:?xt=urn:btih:D695079EC7B0639DB9CD66DF55654A92AF7AA5C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +629,8 @@ VA - Going in Style / Уйти красиво (Original Motion Picture Soundtrac
 magnet:?xt=urn:btih:36AA2CEED75A83E547B48D2E246F8103A9746E5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +657,8 @@ Mixed Choir под управлением М. Попсавова - Страст�
 ```bash
 magnet:?xt=urn:btih:270A002BEE164A55CEDD39D4B10834C02C581B6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +687,8 @@ Clookai - Massage Gold (2008) [FLAC|Lossless|tracks] <New Age>
 magnet:?xt=urn:btih:14C34666CA5EAA4961F10544F7686F5D35676E65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +716,8 @@ magnet:?xt=urn:btih:14C34666CA5EAA4961F10544F7686F5D35676E65
 magnet:?xt=urn:btih:336EB932A445EEF224C5E8661BEB28FB32ED0F0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ Hooman Rad - Quiet Dream of a Sweetbrier (2017) [MP3|320 Kbps] <New Age, Piano>
 ```bash
 magnet:?xt=urn:btih:1E63B6D50D3C6D4541AEA35ED75B8AF4B8EF4AA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,31 @@
+###  Публикация: 988309   (922062) от 19.02.2016
+
+Лорен Фишмен, Кэрол Эрдмен | Йога для спины (2014) [FB2]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга познакомит читателя с различными причинами болей в спине и с лечебными позами йоги. Благодаря простым техникам и упражнениям всех уровней подготовки она поможет вам без труда различать девять основных причин болей в спине, определить источник боли, уменьшить и полностью ее устранить.
+
+Для широкого круга читателей.Жанр: Нетрадиционная медицина, самосовершенствованиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD3C4984DE07733226682599D2F3C157A0191E5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489972   (922116) от 18.08.2021
 
 Кэтрин Сандерсон | Громкое молчание хороших людей. Буллинг, троллинг, харассмент и другие поводы остаться в стороне (2021) [EPUB]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:DB223BE438601BF4AED05424FDA44D2A67407537
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +75,8 @@ Gett – инновационная компания, предоставляющ
 magnet:?xt=urn:btih:52708E4DA56897276295E9A88AC53A08807899BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +101,8 @@ magnet:?xt=urn:btih:52708E4DA56897276295E9A88AC53A08807899BB
 magnet:?xt=urn:btih:B4F63D5E3CA718CAB86C6851DAD696E8C6E62DC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +126,8 @@ magnet:?xt=urn:btih:B4F63D5E3CA718CAB86C6851DAD696E8C6E62DC6
 ```bash
 magnet:?xt=urn:btih:034852E20596943585B7977428A97E9B0487D344
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +154,8 @@ magnet:?xt=urn:btih:034852E20596943585B7977428A97E9B0487D344
 magnet:?xt=urn:btih:2E2C17C9AFEFE60B882535B98AE67222AF15D040
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +179,8 @@ magnet:?xt=urn:btih:2E2C17C9AFEFE60B882535B98AE67222AF15D040
 ```bash
 magnet:?xt=urn:btih:3698C34C9617168D99CBF8947373B2C67E2C151E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +206,8 @@ magnet:?xt=urn:btih:3698C34C9617168D99CBF8947373B2C67E2C151E
 magnet:?xt=urn:btih:030C843605FE980CBDDBCB24E840091CBE694A22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +231,8 @@ magnet:?xt=urn:btih:030C843605FE980CBDDBCB24E840091CBE694A22
 ```bash
 magnet:?xt=urn:btih:10E6D92C4BD840C4EDEE91D689F27B7888411EB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +258,8 @@ magnet:?xt=urn:btih:10E6D92C4BD840C4EDEE91D689F27B7888411EB4
 magnet:?xt=urn:btih:0F9C7ABE2E84C23DE65300C00AB1F68EB7A0D04D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +283,8 @@ magnet:?xt=urn:btih:0F9C7ABE2E84C23DE65300C00AB1F68EB7A0D04D
 ```bash
 magnet:?xt=urn:btih:EB0264CDC30D98B347A9F074D847835F6C4443F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +310,8 @@ magnet:?xt=urn:btih:EB0264CDC30D98B347A9F074D847835F6C4443F9
 magnet:?xt=urn:btih:64C6D6451DD47D4CA4BF12331CA755DF6B88300C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +336,8 @@ magnet:?xt=urn:btih:64C6D6451DD47D4CA4BF12331CA755DF6B88300C
 magnet:?xt=urn:btih:7B7750A02FA53AB98383EBA36F5179CF9EF93009
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +361,8 @@ magnet:?xt=urn:btih:7B7750A02FA53AB98383EBA36F5179CF9EF93009
 ```bash
 magnet:?xt=urn:btih:A9468F510598105D58DCCD616FF55BCB2F774AE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +389,8 @@ magnet:?xt=urn:btih:A9468F510598105D58DCCD616FF55BCB2F774AE8
 magnet:?xt=urn:btih:D411F99730C618779D205B6C0BD262CB373F5AFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +414,8 @@ magnet:?xt=urn:btih:D411F99730C618779D205B6C0BD262CB373F5AFA
 ```bash
 magnet:?xt=urn:btih:F8F1ABEA6BD3D1EA54787520D1145D6E52037B68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +442,8 @@ magnet:?xt=urn:btih:F8F1ABEA6BD3D1EA54787520D1145D6E52037B68
 magnet:?xt=urn:btih:3E70D61E21B15792CDBE40E47DA4F6B7B37CCF04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +467,8 @@ magnet:?xt=urn:btih:3E70D61E21B15792CDBE40E47DA4F6B7B37CCF04
 ```bash
 magnet:?xt=urn:btih:B3ECB4E562F2622021714FD9D6AE48A16F878930
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +496,8 @@ magnet:?xt=urn:btih:B3ECB4E562F2622021714FD9D6AE48A16F878930
 magnet:?xt=urn:btih:9670F3A5D23417DC615195A294503AC34911A5CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +523,8 @@ magnet:?xt=urn:btih:9670F3A5D23417DC615195A294503AC34911A5CE
 ```bash
 magnet:?xt=urn:btih:9B6BB6339AA64EF9081662D0D8638B43EC31B829
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +552,8 @@ magnet:?xt=urn:btih:9B6BB6339AA64EF9081662D0D8638B43EC31B829
 magnet:?xt=urn:btih:1147641AF98FF43BDC807626EFD9E40D40AC0FCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +578,8 @@ magnet:?xt=urn:btih:1147641AF98FF43BDC807626EFD9E40D40AC0FCB
 magnet:?xt=urn:btih:BA32D916B4782F876B5F17C2713C9B081AA63D43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +603,8 @@ magnet:?xt=urn:btih:BA32D916B4782F876B5F17C2713C9B081AA63D43
 ```bash
 magnet:?xt=urn:btih:7FCBE3F5DAE9EEE2D35109FA8CB1205591AACC5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +632,8 @@ magnet:?xt=urn:btih:7FCBE3F5DAE9EEE2D35109FA8CB1205591AACC5C
 magnet:?xt=urn:btih:3DEBFE5F08676BC3C2D5D0A269E46BC344ADCE56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +659,8 @@ magnet:?xt=urn:btih:3DEBFE5F08676BC3C2D5D0A269E46BC344ADCE56
 magnet:?xt=urn:btih:8E2AB61D6454BCB53A13480C9AFA028A65F4D34C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,29 +685,7 @@ magnet:?xt=urn:btih:8E2AB61D6454BCB53A13480C9AFA028A65F4D34C
 magnet:?xt=urn:btih:967567C6B2ADBAA947CA600FE54BBFC7A0190221
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095524   (924257) от 21.01.2017
-
-Борис Лемберг | Какого пола ваш мозг? (2013) [FB2, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924257.jpg" />
-</div>
-
-
-###  Подробнее
-
-То, что мужчины и женщины подобны представителям двух разных планет, сегодня знает каждый. А как трудно порой бывает договориться! Женщина говорит одно, подразумевает другое, мужчина же и вовсе понимает третье... Психолог Борис Лемберг предлагает разобраться в особенностях физиологии мозга мужчины и женщины, чтобы научиться взаимодействовать с людьми независимо от (   Читать дальше...   )Жанр: Психология, Популярная психологияФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30E9EF5E75373BBCBB027B12BC8C69EFCF5ADBDF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

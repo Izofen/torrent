@@ -19,6 +19,8 @@ NG: Самые страшные стихийные бедствия: Торна�
 magnet:?xt=urn:btih:9DCE833179667AD783FC47A8087348D8F62F750A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ NG: Самые страшные стихийные бедствия: Земле�
 magnet:?xt=urn:btih:7E10148CC63D51A2BE25CD171A3D2BFF61ACEC8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:7E10148CC63D51A2BE25CD171A3D2BFF61ACEC8C
 ```bash
 magnet:?xt=urn:btih:FDEE35BFD87BD6B0113079428FECF0EC55D77116
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:FDEE35BFD87BD6B0113079428FECF0EC55D77116
 magnet:?xt=urn:btih:16696EDB930D924B117AA62F09F5B78E37E20C0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:16696EDB930D924B117AA62F09F5B78E37E20C0A
 ```bash
 magnet:?xt=urn:btih:49C05F1E015C8FB550B6D6DD4F0DFD2DAA141E05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:49C05F1E015C8FB550B6D6DD4F0DFD2DAA141E05
 magnet:?xt=urn:btih:F3C8AA79F26919559618AB8CDC97384B1B58EBF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:F3C8AA79F26919559618AB8CDC97384B1B58EBF4
 ```bash
 magnet:?xt=urn:btih:2164C11C7723A5C1520FEF9A77BEADC4122B02FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Discovery. Взрывая историю / Blowing up History (2018) HDTV [H.264
 magnet:?xt=urn:btih:CAC8344ED13629C24C70F0012DD14ECB925C2313
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Discovery. Железная дорога Австралии / Railroad Australia
 ```bash
 magnet:?xt=urn:btih:D4E8CF914883F917CF342290CF7FDB15E7EC15D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:D4E8CF914883F917CF342290CF7FDB15E7EC15D7
 magnet:?xt=urn:btih:327656F6139426249360623E80E5E3EEB9611F11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ BBC: Тайная наука. Химическое и биологическое
 ```bash
 magnet:?xt=urn:btih:5085871D528006D7D0DB6467D01F59A8167134A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ BBC: Шотландия. Последний рубеж Рима / Scotland: Rome
 magnet:?xt=urn:btih:BB7710A0E3777EC6615AB499702C1B796BEA7BCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ BBC: Юлий Цезарь без прикрас / Julius Caesar Revealed (2017)
 ```bash
 magnet:?xt=urn:btih:872A0BC425AC16E09575F0F763AE79FEEC264F18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:872A0BC425AC16E09575F0F763AE79FEEC264F18
 magnet:?xt=urn:btih:03C9AD311B0536099CBB5393130335F8E48A40D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ BBC: Чудеса заводного мира / Mechanical Marvels. Clockwork Dr
 ```bash
 magnet:?xt=urn:btih:D623CFF6C4284F1C43BC296B17C0D9B69366D614
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ BBC: Чудеса времен года / Seasonal Wonderlands (Earth's Greatest
 magnet:?xt=urn:btih:46ACF50D1C7E24D00A7B66671501C0F43A28308E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ BBC: Волшебные числа: таинственный мир матема
 ```bash
 magnet:?xt=urn:btih:2AFB3297C3F01369A44684B8643604EB01A0AB2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ BBC: По странам и континентам. Дикая Африка / Wi
 magnet:?xt=urn:btih:248A667D851FB6CDE1DF7B30D4FED376BC470282
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ History Channel. Заговор НЛО: в поисках правды / UFO Con
 ```bash
 magnet:?xt=urn:btih:BF24486AD64B534F1FA3A1EBB688DF813C9CF255
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ BBC: Царство Растений / Kingdom of Plants (2012) HDTVRip [H.264/7
 magnet:?xt=urn:btih:A1758B08847320C6B455D844474A37838995310C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ BBC: Тайная жизнь кошек / The Secret Life of the Cat (2013) HDTV
 ```bash
 magnet:?xt=urn:btih:AB4F8E07E8F8FAA99B1F121888033AA71B8DC94A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ BBC: Чудеса времен года / Seasonal Wonderlands (Earth's Greatest
 magnet:?xt=urn:btih:8A2AFC983A8116E46142629B0D6F0BC6CFABA3A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ BBC: Удивительный мир крови / The Wonderful World of Blood w
 magnet:?xt=urn:btih:78C3870BF67FED39418620A8BB01DDEE01AA06E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ BBC: Звуковые волны: симфония физики / Sound Waves: T
 ```bash
 magnet:?xt=urn:btih:9D284E5A183F6D5D5CEE8BACFBDBFD6C03BB7B85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ BBC: Поразительные чудеса мира / Weird Wonders of the Wor
 magnet:?xt=urn:btih:8BB49386E79CE113E7802DF831B9C0BD3407EC5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ BBC: История древней Британии / A History of Ancient Brita
 ```bash
 magnet:?xt=urn:btih:2206EB236563799D46119FFFDCCA16F4CA172CD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ PhotoCASA, Андрей Васильев | Нейросети для фотог�
 magnet:?xt=urn:btih:E81E29E530F36FD14C97237F5589A4B53BC6CD92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Embergen — это узконаправленный софт для симул�
 magnet:?xt=urn:btih:CAB7404A052B01A8880C1A21E2FE6B8B5E01EC2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:CAB7404A052B01A8880C1A21E2FE6B8B5E01EC2A
 ```bash
 magnet:?xt=urn:btih:D55BD00DF5247DAFD7E658CF6043FA448DD3D3FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Animal Planet & BBC: Дикая планета / Wild Planet (2003-2005) TVRip [
 magnet:?xt=urn:btih:97E1B86D41C3D57E74B6F2905E570AE8EE9BF81F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:97E1B86D41C3D57E74B6F2905E570AE8EE9BF81F
 ```bash
 magnet:?xt=urn:btih:152462DD771BF0BAE4A48DB2D5BD8158EC93C7B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:152462DD771BF0BAE4A48DB2D5BD8158EC93C7B4
 magnet:?xt=urn:btih:121322A2DB2C9B6502F1B818ACED6DF96676F77A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:121322A2DB2C9B6502F1B818ACED6DF96676F77A
 ```bash
 magnet:?xt=urn:btih:1D5F82E95559E85987CF9B9ADA86FAF87FC87C12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:1D5F82E95559E85987CF9B9ADA86FAF87FC87C12
 magnet:?xt=urn:btih:D8173377879A3829E5F096F4EC151EEA23A4A22F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.002.003.77876/dlc) Repack DjDI [Premium Ed
 ```bash
 magnet:?xt=urn:btih:D89CE23BE256ACB2A0F1F98E391ACBB11090A714
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:D89CE23BE256ACB2A0F1F98E391ACBB11090A714
 magnet:?xt=urn:btih:6F1121291DDB665DF59422409EF1727DAC0D674B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ Ronnie James Dio - 29 альбомов, 4 Box Set (1983 - 2022) 97 CD [FLAC|Loss
 magnet:?xt=urn:btih:3B8F874C4CF51D1C172944C073AACEDD7D9A4159
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ Sherlock Holmes The Awakened дает возможность игроку выс
 ```bash
 magnet:?xt=urn:btih:5E553961CE21119063541284F25D4F5531B47E48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.7.0/dlc) Repack dixen18 [Complet
 magnet:?xt=urn:btih:F37DDD1F76472E3A872619CF748A2112B55C5115
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:F37DDD1F76472E3A872619CF748A2112B55C5115
 ```bash
 magnet:?xt=urn:btih:14F3A5036994C3ACAE3269CAB553A6769C795B75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ Jaime Buelta | Python Automation Cookbook, 2nd Edition (2020) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:13BB9C4FA3A5D385A66DCECE26C7686DF2846A9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:13BB9C4FA3A5D385A66DCECE26C7686DF2846A9B
 magnet:?xt=urn:btih:4BF9292DD22C7B0B637AF2E21AC1B9B3F87A73D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:4BF9292DD22C7B0B637AF2E21AC1B9B3F87A73D3
 magnet:?xt=urn:btih:CB47DD79AB2F48AAA6420C6CE1E67ABE342980D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:CB47DD79AB2F48AAA6420C6CE1E67ABE342980D7
 ```bash
 magnet:?xt=urn:btih:BA47A10B5BD44DB9FC5DD590E176B5935A5F873D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:BA47A10B5BD44DB9FC5DD590E176B5935A5F873D
 magnet:?xt=urn:btih:3D7C21B06790F500EB8CADC4EF92D97AC629F43B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:3D7C21B06790F500EB8CADC4EF92D97AC629F43B
 ```bash
 magnet:?xt=urn:btih:F3D59CCBE348D6D1B965FE8F2FAFAB57EE054C37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ Alberto Gonzalez | Linux Server Cookbook (2023) [PDF][EN]
 magnet:?xt=urn:btih:CCF99447DCBD1A29E795DDCD0918DB262CBDC438
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ Robert Benefield | Lean DevOps: A Practical Guide to On Demand Service Delivery 
 ```bash
 magnet:?xt=urn:btih:414D4F59262A0A6EAA7D4AFC995CE061C02B7DEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ Signs — это шедевр гипнотических ритмов и обв�
 magnet:?xt=urn:btih:F5D30AFE2F4ACC66B835CCA1C7FD34793DC58127
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:F5D30AFE2F4ACC66B835CCA1C7FD34793DC58127
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:F5D30AFE2F4ACC66B835CCA1C7FD34793DC58127
 magnet:?xt=urn:btih:D155221C62CBDB338D16B7C3AC31A9AA9D972788
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:D155221C62CBDB338D16B7C3AC31A9AA9D972788
 ```bash
 magnet:?xt=urn:btih:64F80D3B77F6EFD3CF182A4D176F13940C171568
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

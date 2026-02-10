@@ -1,3 +1,29 @@
+###  Публикация: 359473   (581033) от 07.07.2011
+
+VA - 200-ка Master Hit Europa Plus 50/50 (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 12:20:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6945B37C4ECD104F2DC0FA9FC30504AB51B4EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 360019   (581087) от 07.07.2011
 
 VA - Шансон: избранное (2011) [MP3|128 kbps]<Шансон>
@@ -18,6 +44,8 @@ VA - Шансон: избранное (2011) [MP3|128 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:8762AADE3BCAE774A2E3C672E2A91A1B944E8ACF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ VA - Песня Года Vol.2 (2011) [MP3|128 kbps]<Pop>
 magnet:?xt=urn:btih:5311714253693D748CCD62F8ABDB75E91B24952D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ VA - Летний прикид! Русский (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:06E67895D727207C155239C47484C794427F1E9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +130,8 @@ VA - In Da Club Vol.53 (07.07.2011)
 magnet:?xt=urn:btih:56B1A0270E0A240A75321B9D2DE439D2BE4A1E77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +159,8 @@ VA - Trance Desire Volume 51 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 magnet:?xt=urn:btih:77E664CCA477D6B04B2F2B9655DC041223FD1A15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +184,8 @@ VA - Взорви танцпол 4 (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:A3F7D1BE54E472B3B8C70541158E2FA027ABE79E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +211,8 @@ VA - Загорелое Лето (2011) [MP3|256 kbps]<Pop>
 magnet:?xt=urn:btih:079C7E8EC275082A6F153A607AFAE38700A532CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +236,8 @@ VA - Русская Ночная Супердискотека №4 (2011) [MP3|2
 ```bash
 magnet:?xt=urn:btih:4246190E8B3A5CDFE17B9F26C73145402AE089F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +263,8 @@ VA - Самые сливки МузТВ 6  (2011) [MP3|256 kbps]<Pop / Dance >
 magnet:?xt=urn:btih:8E878D0C233287A3595E6B19523719112197D210
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +288,8 @@ VA - Улётные новинки граммофона - хитовая ави�
 ```bash
 magnet:?xt=urn:btih:2BB5779B5DEE5DB9E4EACF10FC6093471A8637E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +318,8 @@ VA - Молодёжная 100-ка. Презент Летних Новинок (
 magnet:?xt=urn:btih:25A9D093CD846CB6AC73A905F0EF07C3C03B2184
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +343,8 @@ VA - German Top №8 (2016) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:528691E1B24E072AF988D4D8A4C147C45726EB89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +373,8 @@ VA - Супер популярный летний Русский (2016) [MP3|256
 magnet:?xt=urn:btih:2BF4066660D1416C84BC7FF83856E5186969DF33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +401,8 @@ VA - New World hits №2 (2016) [MP3|256-320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:BAED504ECAF4530D8613EEC34FE096CA520DE7FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +431,8 @@ VA - Boom Enerjy №5 (2016) [MP3|320 Kbps] <Pop, Dance, club>
 magnet:?xt=urn:btih:6A0946B9876ECF48EA9FA78D4FD3082BB8B97259
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +459,8 @@ VA - Лучшая сотка летних дискотек №3 (2016) [MP3|256-
 ```bash
 magnet:?xt=urn:btih:BD6F7E91DB792FDFE6C1562905F810395C14BCB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +489,8 @@ VA - Smooth Romance: Love Notes by the Piano (2016) [MP3|320 Kbps] <Downtempo, C
 magnet:?xt=urn:btih:CBFCB304E4472F52DDB5BE6400C84068E0CC9C9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +517,8 @@ VA - The Best - In Music We Trust  Vol.5 (2016) [MP3|320 Kbps] <House, Trance, C
 ```bash
 magnet:?xt=urn:btih:5E71E6C930F9FD8C0D35CEB88B243C418FD54826
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +547,8 @@ VA - Я буду рядом (2016) [MP3|256-320 Kbps] <Pop>
 magnet:?xt=urn:btih:4E4A15EE4674DEA696F739BAB33FC86306C5B3CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +575,8 @@ VA - Летняя дискотека 50х50 №6 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:AFF2BA6D74770FE0DB742545353B1932C6B537E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +605,8 @@ VA - Mechanoids Carnival (2016) [MP3|320 Kbps] <Dubstep, Drumm and Bass>
 magnet:?xt=urn:btih:2C43E906781DEB1C79AA7260CE4152A19C17DB2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +633,8 @@ VA - Recover - Ministry of Sound (2016) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:FC3BD1558016A038648F237103A3679B96076A6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +663,8 @@ VA - Sexy Chillout Vol 1 (2016) [MP3|320 Kbps] <Chillout, Lounge>
 magnet:?xt=urn:btih:9E849FC9F28FE076629FACF0924F52044C3E08AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +691,8 @@ VA - A World Of Trance (2016) [MP3|320 Kbps] <Trance, Melodic, Energy>
 ```bash
 magnet:?xt=urn:btih:89E55DDB7691FF5D6618A5E0FBAC804679F18B6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,32 +721,7 @@ VA - Summer Dreams Vocal Edit (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 magnet:?xt=urn:btih:2E2A51A8FBD996D30F422B48022A9432507428F6
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919886   (581754) от 20.07.2015
-
-VA - Музыка для вашего cабвуфера 100 хитов (2015) [MP3|256 кб/с]<сlub, house, trap, electro trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581754.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bulletproof, Jessie G - Am I The Only One
-002. Matteo Sala - Travel from My Heart
-003. Dj Boyko and Katy Queen - I Heard It Through The Grapevine
-004. Marga Sol - Free Your Mind(   Читать дальше...   )Жанр: сlub, house, trap, electro tranceПродолжительность: 09:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DF05E897E4942FCBDCB69882798C8035C2F2E74
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Adguard – интернет-фильтр для защиты пользоват
 magnet:?xt=urn:btih:ABE9F9AB4BB495F6DE5496E58DFCD949F1F1D590
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Loaris Trojan Remover - средство удаления вредоносног
 ```bash
 magnet:?xt=urn:btih:CFD4568BE4F19A988E54C41F9CAAF5B58A24DB23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Malwarebytes Windows Firewall Control - утилита, с помощью кот
 magnet:?xt=urn:btih:C42C477EF0008F3209FE8B527D2860A932F9AB64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:DC31F12682958FCA035AC289D3D9615D27BA0C64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Antivirus Removal Tool - портативный набор официальны�
 magnet:?xt=urn:btih:D159948073F37761EAB6CBCD8758DF5E8DC7E28E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Auslogics Anti-Malware предлагает дополнительную защ�
 ```bash
 magnet:?xt=urn:btih:C93554849025797B7A44977C99C8B927E55A7BFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ ESET AV Remover 1.2.5.0 [En]
 magnet:?xt=urn:btih:B4E2807306D080DD409792D3EA5487719619C8AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:B4E2807306D080DD409792D3EA5487719619C8AC
 ```bash
 magnet:?xt=urn:btih:50D0800AAD12A9C80B8B52412512F4B0C507AB0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ BestCrypt Volume Encryption 3.72.01 [Multi/Ru]
 magnet:?xt=urn:btih:B9B9D98FD6142E743BB93C1183524D5468B10353
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ NTFS Drive Protection позволяет запретить запись и ре
 magnet:?xt=urn:btih:459B72C05519FFC8B360D67D86806C4F94674EEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Shadow Defender – программа, аналогичная программ�
 ```bash
 magnet:?xt=urn:btih:A64C1A6A5080F58761176BE205C54AE6E308A916
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Avira Free Antivirus - бесплатный антивирус, антишпио
 magnet:?xt=urn:btih:DBD6148F598255F8B6919B9F2E0A951B9A36251B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Kaspersky Anti-Virus обеспечивает комплексную защит�
 ```bash
 magnet:?xt=urn:btih:F856AA99273D3AD71645ACA0C5513B71B253B356
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Dr.Web Remover 11.2.0.201709040 [Ru]
 magnet:?xt=urn:btih:20429EED8CAABD964AC447C8CA1946F0F555B5B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:62568875B0CD2F5E162CBF3C414AFD8951C88673
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ HitmanPro обнаруживает, идентифицирует и удаляе
 magnet:?xt=urn:btih:81ADDD81D2DEB95651BDA2282621D336A834BF25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ GridinSoft Anti-Malware - антивирусная утилита, разраб�
 ```bash
 magnet:?xt=urn:btih:E3486BDE7E821F658387BCAB49DC2DFB14D6AE89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Malwarebytes Anti-Malware - новая версия программы от со
 magnet:?xt=urn:btih:949CE8D67C992A42DBA8085FE8B62D92DB2D8160
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Avast Free Antivirus - ультралегкая и современная защ
 ```bash
 magnet:?xt=urn:btih:0822A219DA9B6B8E7BB4338E06AA9A3D0485A85A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Bitdefender Antivirus Plus 2015 - мощный антивирус и антиш�
 magnet:?xt=urn:btih:87CD2C9E43E165E1CF1E0E9003A1591C59B1FF1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:87CD2C9E43E165E1CF1E0E9003A1591C59B1FF1E
 ```bash
 magnet:?xt=urn:btih:9D7DC4CB30BF0BA419C9897DCE9BAD65713E6652
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ SecureAPlus - решение безопасности, которое сочет
 magnet:?xt=urn:btih:114982ECAA1ACA8FBD77F8995D9DB1678A6BC642
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ SterJo NetStalker - бывший SterJo Portable Firewall PRO, это беспл
 ```bash
 magnet:?xt=urn:btih:92B2EA3A8F24958E581AD8EE50BB07084EA9C8F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ WinPatrol отслеживает и уничтожает в операционн
 magnet:?xt=urn:btih:C277E5EA2F0E5A82F46F69C590F689A4637FCFD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Kaspersky Secure Connectiоn 19.0.0.1088 [Ru]
 magnet:?xt=urn:btih:7D1D1481EEA371D786A5CBE69DE1141C3D512160
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Junkware Removal Tool 8.1.4 [En]
 ```bash
 magnet:?xt=urn:btih:CB80609B8C19E863E254F0801FFEABBD7F14E092
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

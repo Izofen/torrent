@@ -22,6 +22,8 @@ Rudy Rock - Cool Licks (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
 magnet:?xt=urn:btih:40A4296F057F97578CBB18D955697D5E13DB87F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:40A4296F057F97578CBB18D955697D5E13DB87F4
 magnet:?xt=urn:btih:6B5C4BFE45A6005F3D6CF74EBFA88136D6312F24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:6B5C4BFE45A6005F3D6CF74EBFA88136D6312F24
 ```bash
 magnet:?xt=urn:btih:AD77F8BD84F9B0B3E9D8DEA48E464258EB8001F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:AD77F8BD84F9B0B3E9D8DEA48E464258EB8001F5
 magnet:?xt=urn:btih:2C239EEFCC77B78BCD1A1FADB2E494046F4EA3E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:2C239EEFCC77B78BCD1A1FADB2E494046F4EA3E8
 ```bash
 magnet:?xt=urn:btih:474826138CB63E672DD70C95906E5D45FEDA27D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:474826138CB63E672DD70C95906E5D45FEDA27D9
 magnet:?xt=urn:btih:4014F33C5C7002676282FD63F4DF8F5950AEC3E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:4014F33C5C7002676282FD63F4DF8F5950AEC3E4
 magnet:?xt=urn:btih:53740AF58543049D89CCEBA271384126D965DD29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:53740AF58543049D89CCEBA271384126D965DD29
 ```bash
 magnet:?xt=urn:btih:76137986F3C5347B40962D42A3A5FB23141F3E27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:76137986F3C5347B40962D42A3A5FB23141F3E27
 ```bash
 magnet:?xt=urn:btih:485482575F3CE3CCAB9B57A9C4AF3A0970013F6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ magnet:?xt=urn:btih:485482575F3CE3CCAB9B57A9C4AF3A0970013F6B
 magnet:?xt=urn:btih:66B37F091B864FAB7A04388D475C225E2B64C2E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ VA - Prophetic Writings (2025) [MP3|320 Kbps] <Metal, Hard-Rock, Hardcore>
 magnet:?xt=urn:btih:702CE36E371112EB23FC510660B25CF2109900C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:702CE36E371112EB23FC510660B25CF2109900C4
 ```bash
 magnet:?xt=urn:btih:C4ECBC41F6311C4BC4C052E0EBDD8400E9B1E6F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:C4ECBC41F6311C4BC4C052E0EBDD8400E9B1E6F3
 ```bash
 magnet:?xt=urn:btih:36A61E7BBDAE9C1207E1B646A857027BCD7AF3B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +381,8 @@ VA - Natural Summer (2025) [MP3|320 Kbps] <Progressive House, Organic House>
 magnet:?xt=urn:btih:123D18FF7371039EA480B6ACCE83CF8BC81AF23E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:123D18FF7371039EA480B6ACCE83CF8BC81AF23E
 ```bash
 magnet:?xt=urn:btih:4EB7B6DD6DECE56E18D97A64884AB8949C2F084D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:4EB7B6DD6DECE56E18D97A64884AB8949C2F084D
 ```bash
 magnet:?xt=urn:btih:C308BF8B572D4EDA1A2C6A1859B6AFF66435F258
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +463,8 @@ magnet:?xt=urn:btih:C308BF8B572D4EDA1A2C6A1859B6AFF66435F258
 magnet:?xt=urn:btih:2A2053FB9A62C1407B684774E4EBB89709EBBF39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ magnet:?xt=urn:btih:2A2053FB9A62C1407B684774E4EBB89709EBBF39
 magnet:?xt=urn:btih:3FE30D146F6D171D68EB9488484899236A2D1AD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:3FE30D146F6D171D68EB9488484899236A2D1AD1
 ```bash
 magnet:?xt=urn:btih:A1F775B3C7E4668D8FFC1FF3B73E5C42E9A5EFA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +544,8 @@ The Vesterbros - Smooth Soul Jazz Cafe, Vol. 1 (2025) [FLAC 24/44.1|Lossless|WEB
 magnet:?xt=urn:btih:E2D77B0406291FC7363CA1B3A15BD8AAA9B8D8F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ magnet:?xt=urn:btih:E2D77B0406291FC7363CA1B3A15BD8AAA9B8D8F6
 magnet:?xt=urn:btih:7520790050B36EEBBC798395ADFE688184E6EBC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ magnet:?xt=urn:btih:7520790050B36EEBBC798395ADFE688184E6EBC1
 ```bash
 magnet:?xt=urn:btih:1F057404B9C9C92B1427793087ABE34E5D8312BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ magnet:?xt=urn:btih:1F057404B9C9C92B1427793087ABE34E5D8312BB
 magnet:?xt=urn:btih:4A707BC75B56F79C8A192E63689245CFB38037F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:4A707BC75B56F79C8A192E63689245CFB38037F5
 magnet:?xt=urn:btih:CDBA46365CB05BC6956DF15CEC134FB867A8455B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ magnet:?xt=urn:btih:CDBA46365CB05BC6956DF15CEC134FB867A8455B
 ```bash
 magnet:?xt=urn:btih:1CAC81F0DFCCAE2B4F2BE3ACDDF95F89436A3066
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:1CAC81F0DFCCAE2B4F2BE3ACDDF95F89436A3066
 ```bash
 magnet:?xt=urn:btih:F1BF5424D239E9C74361D59BE49891A8261444FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:EE9479EDFDC0EE30DA80BD32EAC8BE3437FB56A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Plants vs. Zombies 2 - продолжение забавной аркадной 
 ```bash
 magnet:?xt=urn:btih:2DBD0CA2E3AEE6C679ABEE7D29C406175016A42C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Plants vs. Zombies (2009) [Ru/En] (1.2.0.1096) Repack Necros [Game of the Year E
 magnet:?xt=urn:btih:D4E04385706A0F4CC835BD98E66BC4136092253E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6946847/dlc) Repack Wanterlude [D
 ```bash
 magnet:?xt=urn:btih:71411864770CD5E012EB34FF41E1FFACEDF74BEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:71411864770CD5E012EB34FF41E1FFACEDF74BEA
 magnet:?xt=urn:btih:DAE602F373B4C18ED3BEC5E33E8D1750C02C580B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:DAE602F373B4C18ED3BEC5E33E8D1750C02C580B
 ```bash
 magnet:?xt=urn:btih:A11D82220FEFD00986BB99666FF34A863DF232F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:A11D82220FEFD00986BB99666FF34A863DF232F7
 magnet:?xt=urn:btih:910D7C80E07AAFD3B11B4C04579C5F1BD607081E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:910D7C80E07AAFD3B11B4C04579C5F1BD607081E
 ```bash
 magnet:?xt=urn:btih:98D572195765BE132E0452CEE4689B49B7D2018D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ U.F.O. - One Night - Lights Out 77 - Live (2023) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:7ACF61390F5491D36642D39F9A777731BC707ED8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:7ACF61390F5491D36642D39F9A777731BC707ED8
 ```bash
 magnet:?xt=urn:btih:9773D350C46D3D363EA6E498F3E7C3D05DFECCF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Skype предназначен для личного и делового общ�
 magnet:?xt=urn:btih:375A6E7A9F17A26C3E80D8EAB199E8B6620F5802
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:375A6E7A9F17A26C3E80D8EAB199E8B6620F5802
 ```bash
 magnet:?xt=urn:btih:60ED1C2704C95815A5406C3DFAD43D3556A2A399
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Mournful Congregation - 2 Studio Albums (2022-2023) 2xCD, EP [FLAC|Lossless|imag
 magnet:?xt=urn:btih:7DA395E9A0470FDBF599BC47FA73618BB59E9003
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:7DA395E9A0470FDBF599BC47FA73618BB59E9003
 ```bash
 magnet:?xt=urn:btih:301CF7D001C417ED20330586B3EFD4F92C3B80AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:301CF7D001C417ED20330586B3EFD4F92C3B80AD
 magnet:?xt=urn:btih:0DAF67C69179010E8C974C48E86BDD18BC3EB2E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:0DAF67C69179010E8C974C48E86BDD18BC3EB2E6
 ```bash
 magnet:?xt=urn:btih:F549AB3F25971BDA341E2811668CE93DF79FB4CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:F549AB3F25971BDA341E2811668CE93DF79FB4CC
 magnet:?xt=urn:btih:A7182BEEBDB5B4EDB253B5CE7D832B1ADC1AE0C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:A7182BEEBDB5B4EDB253B5CE7D832B1ADC1AE0C7
 ```bash
 magnet:?xt=urn:btih:3CAF1579CD7A2B09D58166DCC0E92A963E57582F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Creeper - Sanguivore (2023) [MP3|320 Kbps] <Britpop, Glam Rock, Pop-Punk>
 magnet:?xt=urn:btih:B8AA3F1B3BADCAB9C54260F11066C5BEFF2F7CCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ Blue October - Spinning The Truth Around (Part II) (2023) [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:51E9697C1D58D2C0B161989888121A4D2CBF77B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:51E9697C1D58D2C0B161989888121A4D2CBF77B2
 ```bash
 magnet:?xt=urn:btih:63DB444E9B27C013F68FD17F53AE40E35DFA5478
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:63DB444E9B27C013F68FD17F53AE40E35DFA5478
 magnet:?xt=urn:btih:79AADC413BE80245D98B3EB3C95805EAB7BA3332
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:79AADC413BE80245D98B3EB3C95805EAB7BA3332
 ```bash
 magnet:?xt=urn:btih:55EAFFA93DFBCF975ED6AE7102F1FFD0745FA16F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ Downie поддерживает более 1,000 популярных сайто
 ```bash
 magnet:?xt=urn:btih:407F47C3E56B83D70CC06446D7A16E822C9478E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ Buddy DeFranco (De Franco) And The All-Stars - Wholly Cats (1957) 2016, Universa
 magnet:?xt=urn:btih:1ACCCD7FDAA411669CA23E15183ABCF84FF78B53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ Fortress Under Siege - Envy (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Progre
 ```bash
 magnet:?xt=urn:btih:93FBE4CF44746B2C71EB2EC6DC9914E47290540A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

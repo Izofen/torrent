@@ -21,6 +21,8 @@ BBC: Планета Земля - Мир природы: Львы пустыни 
 magnet:?xt=urn:btih:1BB287F1B8ECB7D6191CC6E5A71920AF5A772244
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ BBC. Замерзшая планета. Весна [2 серия] / Frozen plane
 magnet:?xt=urn:btih:452AA041D026D79AA48F618CDDF70606A5714603
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ BBC: Величайшие явления природы / Nature's Great Events 
 ```bash
 magnet:?xt=urn:btih:648AB158A756618050E1BDF23664031AF20D9610
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ BBC: Мир природы / Natural World (2008-2010) SATRip [1-102 серии]
 magnet:?xt=urn:btih:3B74CD7AD31191D2B1FC23C1FF76D6E45079E23C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ BBC: Загадки истории. Век полетов: Легенды мир
 ```bash
 magnet:?xt=urn:btih:943E395A335EA2F211E75FA22CF1F4C6E09532CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ BBC. Очевидец (39 серий) / Eyewitness (1997) VHSRip
 magnet:?xt=urn:btih:D63A42AB4C0C573855175E446213BA5CB61CBB8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ BBC. Horizon: Тайная жизнь собак / The secret life of the dog (2
 ```bash
 magnet:?xt=urn:btih:ADF872D29E015CA816BB18161CF8A5DC8D7382B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ BBC: Планета Земля / Planet Earth (2006) BDRip [720p]
 magnet:?xt=urn:btih:15A7B6999F1A75AA521FB076D5E36CF79DFF27F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ BBC: Горизонт. Каковы размеры Вселенной? / Horizon
 ```bash
 magnet:?xt=urn:btih:281FEEEB97DD35072F6AADFE379F0AEE1F450B10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ BBC: Планета Земля 3 / Planet Earth III (2023) UHD BDRemux [H.265/21
 magnet:?xt=urn:btih:D264453B35A93EEA08C5883442E0B3171EF4FD23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ BBC: Семь периодов жизни звезды / Seven Ages of Starlight
 ```bash
 magnet:?xt=urn:btih:C2D3B0D42889F17CB1609A3A7649063AA4E42661
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ BBC. Прирождённые бунтари / Natural Born Rebels (2018) WEB-DL
 magnet:?xt=urn:btih:F5D42DDB2611E297EA6C18AA575277F4AC550980
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ BBC. Супер Белки / Super Squirrels (2018) WEB-DL [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:62069EC2707535EFBF316E335808041FBDE05B9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ BBC. Силы Природы с Брайаном Коксом / Forces of Nature
 magnet:?xt=urn:btih:B3959E03E2D5D58EB883CEF05FA08099DA08A9A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ BBC. Вымирание: Факты / Extinction: The Facts (2020) WEB-DL [H.264
 ```bash
 magnet:?xt=urn:btih:59ACFEB194915D66DD08933AF215DDA853F2FF17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ BBC. Аттенборо и Кладбище Мамонтов / Attenborough and 
 magnet:?xt=urn:btih:CCE7FC8A5C1E5526119BBFE3E49AD6022EA560CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:CCE7FC8A5C1E5526119BBFE3E49AD6022EA560CB
 ```bash
 magnet:?xt=urn:btih:256A5C64BA4103D954D9D65DAB54FEA1CA1179B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ BBC. Вселенная / Universe (2021) BDRemux [H.264/1080i] (серии 1-5 
 magnet:?xt=urn:btih:A8C87AB38C1640C890ECBCCAE8460C435D665D71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ BBC. Эдем: Неукротимая Планета / Eden: Untamed Planet (202
 ```bash
 magnet:?xt=urn:btih:729D6912C45272767068E71123DA0F40B679A8EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ BBC. Замерзшая планета. Осень [4 серия] / Frozen plane
 magnet:?xt=urn:btih:9BAEE7E1916CE4C67B5E80FDFFC70AF6D14BE128
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ BBC. Horizon: Вся правда об упражнениях / The Truth About 
 ```bash
 magnet:?xt=urn:btih:A9F4B0635D860995D9CFEE15418D3906DC40D376
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ BBC. Подделка или удача / Fake or Fortune? (2016) HDTVRip (се�
 magnet:?xt=urn:btih:F483FD38DFD3768423F18967B037F600C6B2CBD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ BBC. Подделка или удача / Fake or Fortune? (2015) HDTVRip (се�
 ```bash
 magnet:?xt=urn:btih:3023ED094743DCC10E544FB25346B11305A16649
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ BBC. Подделка или удача / Fake or Fortune? (2014) HDTVRip (се�
 magnet:?xt=urn:btih:EFBDC5DE035456FF0484E5DE48CF3F334B6A74E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ BBC. Подделка или удача / Fake or Fortune? (2012) HDTVRip (се�
 magnet:?xt=urn:btih:242C44C91DA3FEE77968391F7649B334A3B8E4CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ BBC: Горькое озеро / Bitter Lake (2015) WEB-DLRip [H.265/1080p-LQ] [
 ```bash
 magnet:?xt=urn:btih:02E66BCC2F8CEE95EA954BA14D826CA7220FFAF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

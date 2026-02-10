@@ -19,6 +19,8 @@ Seedlings (2023) [Multi] (12245758) Scene Tenoke
 magnet:?xt=urn:btih:972CA8C35BDF74FC9E1AC4BBBC4CCE7A3B3B5872
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Entropy Centre - умопомрачительное приключение �
 ```bash
 magnet:?xt=urn:btih:529015615C470CEA6B6471F0595AB2C5299D813F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Paranormal VHS отправляет в захватывающее путешес
 magnet:?xt=urn:btih:40DB8FA85D0A9E48AE7753EEFF0AD06293E87CC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Scars Above (2023) [Ru/Multi] (1.0.0.132679) Scene FairLight
 ```bash
 magnet:?xt=urn:btih:DBC44C94B429E1F5DA69A5FBBB06A80CE7375860
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Heart of the Woods – фентезийная визуальная новелл�
 magnet:?xt=urn:btih:10560F577006FC4AF5E67B84D3E680BDB4DB9BDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ EDENGATE: The Edge of Life (2022) [Ru/Multi] (20221004_1217_27401) Repack Other 
 ```bash
 magnet:?xt=urn:btih:554161F9D099D82E98DF00327525EB92E38AA044
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Sucker for Love: First Date повествует про парня, что од�
 magnet:?xt=urn:btih:8A84934068624239689AB9BAEE0430D17DEA10A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Lorelai (2019) [Ru/Multi] (1.1.0a) License GOG
 ```bash
 magnet:?xt=urn:btih:A65141A9B9B37948F562738EBA92728597C1CF46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Downfall: Redux (2016) [Ru/Multi] (1.1.3) License GOG
 magnet:?xt=urn:btih:07AE5EAC572771B14F9CB01046045EE6C1D954A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Our Life: Beginnings & Always - визуальная новелла с нотк�
 ```bash
 magnet:?xt=urn:btih:90793EEE8413A35F541FA33897F4FD8BD413131D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Ad Infinitum (2023) [Ru/Multi] (1.0.3.268591) Scene FairLight
 magnet:?xt=urn:btih:38E5A29EE8303E9A1F9A392F404D1162385562F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Raid on Taihoku использует сеттинг Второй мировой 
 ```bash
 magnet:?xt=urn:btih:091BB88CA2B78325496A0870362961162D33F919
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Chant (2022) [Ru/Multi] (Build 9851451/dlc) Repack Other s
 magnet:?xt=urn:btih:11A3510AE58D2D8A96A07E6D5DCB8E1852136F66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Shore - приключенческий хоррор от первого ли
 ```bash
 magnet:?xt=urn:btih:542727FA9D1B7C8AA27F29F4190829879364EFCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ JETT: The Far Shore (2023) [Multi] (2.1.7.r24099/dlc) Scene Tenoke
 magnet:?xt=urn:btih:E4008866E1DE9BF02579DB56224CD1FB213C09B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Unheard - Voices of Crime (2023) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:802EA345621389C206EE2C9CFF1ACC2CF2AA689C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Murder House – сюжетный сурвайвл-хоррор, в которо
 magnet:?xt=urn:btih:72050145D856B6AF481866EAF9E1689F776A1736
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Zniw Adventure - поинт-н-клик приключение, нарисова
 ```bash
 magnet:?xt=urn:btih:9096293214163FB1052A46CF4FDDD4615B7978DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ The Isle Tide Hotel (2023) [Ru/Multi] (1.0) Scene DARKSiDERS
 magnet:?xt=urn:btih:B234351E7BF354B9B9224D5A71252B668F7156C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Seven Nights Ghost - интригующая и захватывающая игр
 ```bash
 magnet:?xt=urn:btih:3FF165B4CFF3DFE632387FC76F4F73E65736C9F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Bramble: The Mountain King отправляет вас в невероятное
 magnet:?xt=urn:btih:68F599A65D1CFB09B714AC1799334EFD786D65E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ No Son Of Mine - это хоррор на выживание с напряжен
 ```bash
 magnet:?xt=urn:btih:2BF427EFB4CDBAA54F6465BB1945DF29B65C1668
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Molly Medusa: Queen of Spit (2023) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:738A1D34026AAC6314AC0E10CA9A5E31911C7111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Christmas Massacre (2021) [En] (1.02) License GOG
 ```bash
 magnet:?xt=urn:btih:AA8647DA6C9CF651AACF2E405316B321907AA3A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Saint Kotar: The Yellow Mask - хоррор-квест, представленн
 magnet:?xt=urn:btih:8DE8756B2E17D96CF4956CC45A703B7715BB8C25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Cosmic Wheel Sisterhood (2023) [Ru/Multi] (1.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:EE5AB3D4C0321909D42DB5D32028509C4BA54B81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

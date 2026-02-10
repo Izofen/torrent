@@ -21,6 +21,8 @@ PROG Kiev | Java OOP (2017) PCRec
 magnet:?xt=urn:btih:C175673C8E91951302146FD373EB6A95047E1545
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ PROG Kiev | Java PRO (2017) CamRip [H.264]
 magnet:?xt=urn:btih:20AD1BFA5FE29877913F5C9FE59863C6388FE1EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Right Click Enhancer Professional — создание волшебного ме
 ```bash
 magnet:?xt=urn:btih:2C90463CC4C2BB93F9DD824AED612522DC6358BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:2C90463CC4C2BB93F9DD824AED612522DC6358BB
 magnet:?xt=urn:btih:E55D58369E40CDA1A2E57A24478B97C6343713ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Slurm (Слёрм), Иван Чувашов | PostgreSQL: replication, backup an
 ```bash
 magnet:?xt=urn:btih:7BE03F7088B720CBCA9F3874A668CD6BA550E5A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Terraform Мега. Интенсив рассчитан на тех, кто уж
 magnet:?xt=urn:btih:F28FAA4EC629E895A3FA903E0CE7D4A1CF5575CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:F28FAA4EC629E895A3FA903E0CE7D4A1CF5575CA
 ```bash
 magnet:?xt=urn:btih:882FEA5D91B770353D4C938C7BDB7A100E405E8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:882FEA5D91B770353D4C938C7BDB7A100E405E8B
 magnet:?xt=urn:btih:0D642CC76730E6AA20C00DCA998A81CF2F3AD23E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ Python стал одним из самых популярных языков п�
 ```bash
 magnet:?xt=urn:btih:97E67330069BBF857F10469DE09A1821A19CE894
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:97E67330069BBF857F10469DE09A1821A19CE894
 magnet:?xt=urn:btih:036BCF94ED3548FE479D3C01EC8AB427994F1474
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ Udemy, Roman Dushkin | Системы, основанные на знаниях 
 ```bash
 magnet:?xt=urn:btih:B73A3BC65DF49037D010177ACDB797C9282EBDDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ MySQL сегодня — база данных, на которой работа
 magnet:?xt=urn:btih:088F67D03B63C3A8577915DCAE656F82C5B41E09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ Slurm (Слёрм), Марсель Ибраев и др. | Docker: from zero to 
 ```bash
 magnet:?xt=urn:btih:AC15002B7819B1C89C057B07BC36DB00F3D6C838
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:AC15002B7819B1C89C057B07BC36DB00F3D6C838
 magnet:?xt=urn:btih:B8E971F2C1F0AD6D443747538F5E05FD2C06B065
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ Slurm (Слёрм), Денис Наумов и др. | Python: Работа с A
 ```bash
 magnet:?xt=urn:btih:4E35DFF77F0A2987711AC84DBA6A290CB3C69C10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ Lectoria, Артем Зернов | MODX: Большой курс по разр�
 magnet:?xt=urn:btih:4DC761097DF992CB45333F995991C3A1BBBF3D3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ Slurm (Слёрм), Александр Волочнев | AWS База. Адми
 ```bash
 magnet:?xt=urn:btih:C7A2E84392C825D981A2FBE814A342E721B71221
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +491,8 @@ magnet:?xt=urn:btih:C7A2E84392C825D981A2FBE814A342E721B71221
 magnet:?xt=urn:btih:3EEA4E01FEDC24A9D6DBD0A7A67119AB221239CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +519,8 @@ Git - самая популярная система контроля верси
 magnet:?xt=urn:btih:FE83F53F3CADD64863693E2318D239ACB7213A4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:FE83F53F3CADD64863693E2318D239ACB7213A4A
 ```bash
 magnet:?xt=urn:btih:19A66EFAAAF187AC373EF7708DC8123F9012B10A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +574,8 @@ Slurm (Слёрм), В. Севостьянов, А. Бурылов | Apache Kafk
 magnet:?xt=urn:btih:CB5FD4B07F09D58E0A11DF0DAB06515B8783E343
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +603,8 @@ Stepik, Дмитрий Фокеев | Верстка и веб-разработ�
 magnet:?xt=urn:btih:88DFC3D45B8516899CB20B1022F356A56912B88E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +628,8 @@ Python-разработчик создаёт бэкенд сайтов: мозг
 ```bash
 magnet:?xt=urn:btih:C58A55D2396E4ECF80D13C0B1B136CE806690663
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +656,8 @@ magnet:?xt=urn:btih:C58A55D2396E4ECF80D13C0B1B136CE806690663
 magnet:?xt=urn:btih:650B9F50F68ACF08645CAF5D89C08FC069599E38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ magnet:?xt=urn:btih:650B9F50F68ACF08645CAF5D89C08FC069599E38
 ```bash
 magnet:?xt=urn:btih:8A01DBEEC74294C7CDF7C8B5D5F095BA1DC33193
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +708,8 @@ Fandroid | Продвинутый курс по созданию андроид-
 ```bash
 magnet:?xt=urn:btih:3F75E4F29D190BF93115FCADFA34AE5D5CEF8A63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

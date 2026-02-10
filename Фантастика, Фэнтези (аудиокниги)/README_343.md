@@ -1,3 +1,29 @@
+###  Публикация: 551774   (450275) от 25.09.2012
+
+Владислав Крапивин | Полосатый жираф Алик [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_450275.jpg" />
+</div>
+
+
+###  Подробнее
+
+История про то, как несколько ребят после трагических случаев на Земле оказались жителями затерянного во вселенной Пояса астероидов. Как они стремились вернуться домой и для этого построили из потоков Мирового света парусный корабль…Жанр: фантастика, приключения
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE4536F2440AB6F8C64382CCFA538C4DBDA6897D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163356   (450336) от 05.09.2017
 
 Владислав Жеребьёв | Журналист (2017) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:0225F25FB28517CC96DE128EAEEB3C2EC065A0E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:0225F25FB28517CC96DE128EAEEB3C2EC065A0E1
 ```bash
 magnet:?xt=urn:btih:FB2B2074D7132C4CFD2872A9F68708FCE2AA8753
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:FB2B2074D7132C4CFD2872A9F68708FCE2AA8753
 magnet:?xt=urn:btih:A05085DE31272E0D18A1BB6867E7768885E827E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:A05085DE31272E0D18A1BB6867E7768885E827E2
 ```bash
 magnet:?xt=urn:btih:01BFAD0867A5AEEE3DA1D6B933940850D6C925E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +155,8 @@ magnet:?xt=urn:btih:01BFAD0867A5AEEE3DA1D6B933940850D6C925E4
 magnet:?xt=urn:btih:BFF0B5F9DB2F0D366249AED9E0B8FD48EB4ACA8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:BFF0B5F9DB2F0D366249AED9E0B8FD48EB4ACA8D
 ```bash
 magnet:?xt=urn:btih:D26FF93965EAA56CC7D2DF727F6D3DDE7C5EEB24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:D26FF93965EAA56CC7D2DF727F6D3DDE7C5EEB24
 magnet:?xt=urn:btih:E7F158C0EFDC95B29253400ED7A6B83DDAFE2CCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:E7F158C0EFDC95B29253400ED7A6B83DDAFE2CCA
 ```bash
 magnet:?xt=urn:btih:E53775CD22D596652F4635A818168E0CBD31F75A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +259,8 @@ SadSlim | Хостел (2022) [MP3, Андрей Балдук(Абаддон)]
 magnet:?xt=urn:btih:F262F9CEEE5ED85D2207392119E42E51654BA24A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:F262F9CEEE5ED85D2207392119E42E51654BA24A
 ```bash
 magnet:?xt=urn:btih:DA9338C4CE28242D17605A8A34682946A93CB60F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:DA9338C4CE28242D17605A8A34682946A93CB60F
 magnet:?xt=urn:btih:D8BDE488B557450254C414BBB10B69F48C4D98CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:D8BDE488B557450254C414BBB10B69F48C4D98CC
 ```bash
 magnet:?xt=urn:btih:140A9B1B73B7517E4D661059E40E18E2F59AC391
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:140A9B1B73B7517E4D661059E40E18E2F59AC391
 magnet:?xt=urn:btih:4AEA60A4FE9964D39446252620A54F8C17AEB683
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:4AEA60A4FE9964D39446252620A54F8C17AEB683
 ```bash
 magnet:?xt=urn:btih:F2C259E7B744577AF57634602FA3684E30C1C5B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:F2C259E7B744577AF57634602FA3684E30C1C5B4
 magnet:?xt=urn:btih:BB166C212AB6AB1FA30ADDA2D621057CCC5A3017
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:BB166C212AB6AB1FA30ADDA2D621057CCC5A3017
 ```bash
 magnet:?xt=urn:btih:6EFBC71A17BBBAE51BAB4DD48B0F891D0BF53934
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:6EFBC71A17BBBAE51BAB4DD48B0F891D0BF53934
 magnet:?xt=urn:btih:D087877752675AE1FEE4C3BF999DB8EF77908250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:D087877752675AE1FEE4C3BF999DB8EF77908250
 ```bash
 magnet:?xt=urn:btih:E6B7D1D0388200BE93B736F4E5B9ABEBD271C0E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:E6B7D1D0388200BE93B736F4E5B9ABEBD271C0E6
 magnet:?xt=urn:btih:BFFBEC7EAB669046CA70BC66C7F9543471D0EE5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:BFFBEC7EAB669046CA70BC66C7F9543471D0EE5F
 ```bash
 magnet:?xt=urn:btih:A95A2FBF74B7DB88C40D109B213C0A5A200FB664
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:A95A2FBF74B7DB88C40D109B213C0A5A200FB664
 magnet:?xt=urn:btih:A74D22E5763B6311052A0EE5400AA8FF8F4719A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:A74D22E5763B6311052A0EE5400AA8FF8F4719A5
 ```bash
 magnet:?xt=urn:btih:D703F993E1AE3608C44172DE0760C56B19E307D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:D703F993E1AE3608C44172DE0760C56B19E307D6
 magnet:?xt=urn:btih:4CCD5F7739C9861C3715A38D8FAEDEB49F3F0DB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:4CCD5F7739C9861C3715A38D8FAEDEB49F3F0DB5
 ```bash
 magnet:?xt=urn:btih:107E9126AF21F658A0D6D2C2CB62A1EEFE052BF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,29 +679,7 @@ magnet:?xt=urn:btih:107E9126AF21F658A0D6D2C2CB62A1EEFE052BF6
 magnet:?xt=urn:btih:2BDE8F6C5011DDBA90964BF403F2944F40FB9046
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060224   (452948) от 08.10.2016
-
-Артур Кларк и др. | Сборник рассказов "ПослеSLовие" 2016-2 (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы, как истинные фанаты фантастики, организовали группу, цель которой создание аудиокниг с характерными атмосферным музыкальным сопровождением. В 2009 году проект начался как эксперимент, и, неожиданно для его создателей, обрел успех среди слушателей. Сосредоточившись на продвижении молодых и талантливых авторов в Российскую литературную и аудио среду, мы помогли (   Читать дальше...   )Жанр: Постапокалипсис, фантастика, зомби, инопланетянеПродолжительность: 05:11:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D640B5FBD270441EC7F88BB498B28000D97ACE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

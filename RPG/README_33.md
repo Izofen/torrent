@@ -19,6 +19,8 @@ Venture to the Vile переносит геймеров в загадочный 
 magnet:?xt=urn:btih:C294A0F87386BA198F4652E92621F9AC1362AD13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Crown Wars: The Black Prince - пошаговая стратегия, дейст
 ```bash
 magnet:?xt=urn:btih:4F9CE0A4BACA551B186F7F44645F71DCED2B8EF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ CONSORTIUM – приключенческая игра в научно-фант�
 magnet:?xt=urn:btih:A770D02E143B950741AEF5430CFCA2505FC051A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ ASTLIBRA Revision погружает пользователей в фэнтез�
 ```bash
 magnet:?xt=urn:btih:5EC40FE045D48FDA0607DE756BBF70E4D991362B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Bloody Heaven 2 – в основе сюжета заложена популяр
 magnet:?xt=urn:btih:5D4EAB995EBBA071EB80CE7A443CC52C44A5CFFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Crown Wars: The Black Prince - пошаговая стратегия, дейст
 ```bash
 magnet:?xt=urn:btih:00F2C63629CC36746398EBDC6930FD5A7A38AA66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Kingdom of Fallen: The Last Stand / Королевство Павших: Пос�
 magnet:?xt=urn:btih:99402BA712EFE62C8E413F6C36F5FFBB8B308516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Venture to the Vile переносит геймеров в загадочный 
 ```bash
 magnet:?xt=urn:btih:36641483E171062677CEA2CD19847C5D6FC30317
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Venture to the Vile переносит геймеров в загадочный 
 magnet:?xt=urn:btih:C4956F092766A7874EDC619F7119904100CF7A8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Gedonia (2022) [Ru/En] (1.48b) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:0E2E44855DC22C7FFDAA3C717965E4D1C1757723
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Athenian Rhapsody - это свежая комедийная ролевая иг
 magnet:?xt=urn:btih:6464AD705D77BAC3718B1413238F2B18D258D9A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Maid of the Dead представляет собой сценарий, в кот
 ```bash
 magnet:?xt=urn:btih:BDE5F7541FABEADB0187A3797671A690911DEBA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10) Repack dixen18
 magnet:?xt=urn:btih:D4DA08291001B9F654A7F3701A0C76BEE205C28C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Class of Heroes 2G: Remaster Edition (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0BA8581FDAD30BC320FEDC34167FEC7DD685D8DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Bloody Heaven 2 – в основе сюжета заложена популяр
 magnet:?xt=urn:btih:3E438D46EE3DE538CE3A52F863382D4818940D3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ King Arthur: Legion IX представляет собой сочетание п
 ```bash
 magnet:?xt=urn:btih:AF561542D9403438FDC58CBDE37E40F0C6F833D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Legend of Heroes: Trails of Cold Steel 4 – продолжение леге
 magnet:?xt=urn:btih:60C3C8E81761D503E4EF1BAA3EE4EE4EA7763B3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Dwarf погружает вас в мир, овеянный легендам
 ```bash
 magnet:?xt=urn:btih:468D120BF7A1F2629A2E22372731A285CF78B59C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ King Arthur: Legion IX представляет собой сочетание п
 magnet:?xt=urn:btih:A1C09EC51345F80516F8A31C1772811A21216D11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Fall of the Dungeon Guardians - Dungeon Crawler RPG с видом от пе�
 ```bash
 magnet:?xt=urn:btih:CCF69E40FE159060603FE82D431EA8AFED88EABE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Sand Land (2024) [Multi] (1.0.3/dlc) Repack FitGirl [Deluxe Edition]
 magnet:?xt=urn:btih:5D137846872A9CC1F7ED6F7E5AB0D3130C50BE38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Fallout 4 - это продолжение знаменитой постапок�
 ```bash
 magnet:?xt=urn:btih:7CEA165DDADC4BF3BDB64141B42202EBF4D6578E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Fallout 4 - это продолжение знаменитой постапок�
 magnet:?xt=urn:btih:4D3DC12C5C57B8A02FD74BA31CB7BF47C3213AB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ SaGa Emerald Beyond - это новейшая отдельная игра в с�
 ```bash
 magnet:?xt=urn:btih:A3379A6070A9F8E3ABC33D7C6A277DDC612EF875
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Sand Land (2024) [Multi] (1.0.3/dlc) Scene FAiRLIGHT [Deluxe Edition]
 magnet:?xt=urn:btih:C0AD49D21378D05C98657A3F2F759BC88326A233
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Royal Order - это вселенная, пропитанная интригам
 ```bash
 magnet:?xt=urn:btih:E404C31787568E0935C5FCD6549AE3E10D24E140
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

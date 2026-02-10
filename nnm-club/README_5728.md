@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:AB1C4FD1C31439DC8090DD40A3EAC37A876EA6D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:AB1C4FD1C31439DC8090DD40A3EAC37A876EA6D0
 ```bash
 magnet:?xt=urn:btih:B9BF09E17F6D649EFCE082D29C3741618EFA46D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ GIF'ted 1.2 [En]
 magnet:?xt=urn:btih:23990A4AF5EEAAC17C4EE9DF83C5D49588972E4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:23990A4AF5EEAAC17C4EE9DF83C5D49588972E4A
 ```bash
 magnet:?xt=urn:btih:DE14247F58EF948911AB52B4BABFF586CEFAC93A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Olshanoe - 2 Albums (2021-2022) [MP3|320 Kbps] <Folk Rock>
 magnet:?xt=urn:btih:F0BCC83E8DE9F5976EDA37D5D4780391BA9DF2A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ AYVY 1.8.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:B3D3FD25AED9C05D19BA612BC653F7445F3479C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Microsoft .NET 7.0.12 Runtime [Ru/En]
 magnet:?xt=urn:btih:580951C34273CE8ADBBFFD487B6518E413270E44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:580951C34273CE8ADBBFFD487B6518E413270E44
 ```bash
 magnet:?xt=urn:btih:6A10ADAC66FB006C6F692D7009A0225D54538778
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ PDF-компрессор предназначен для сокращения р
 magnet:?xt=urn:btih:28D8B279FB21C8396E8F544D92D721B852265278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:28D8B279FB21C8396E8F544D92D721B852265278
 ```bash
 magnet:?xt=urn:btih:681DA9671993A30AFE26121F4677C9AB7BEE2E6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:681DA9671993A30AFE26121F4677C9AB7BEE2E6A
 magnet:?xt=urn:btih:BC4D389350701C36AAA77678018060830F0C32EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Alfred 4 Powerpack 4.3 [En]
 ```bash
 magnet:?xt=urn:btih:7280109141C5E414702AAAE76581646EFEFCB275
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ VA - Top of the Morning (2023) [MP3|320 Kbps] <Pop, House, Other>
 magnet:?xt=urn:btih:5A2776459268FC0705983F6D2DBE24DCF0EAF934
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:5A2776459268FC0705983F6D2DBE24DCF0EAF934
 ```bash
 magnet:?xt=urn:btih:AE335ACD4FC8675D25C916DF9FDB947FE15FE325
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ Texpad это редактор LaTeX предназначен для прост�
 magnet:?xt=urn:btih:6A41086FFDF252927894112D6958682F0D1DE011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:6A41086FFDF252927894112D6958682F0D1DE011
 ```bash
 magnet:?xt=urn:btih:540AEC2D75342194BA3E7F9F53646810AEA3E8CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ CD1:
 magnet:?xt=urn:btih:A8ACB7BE80BED5060253D0B7130BF796107C1FF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ Permute - очень простой видео конвертер с миним�
 magnet:?xt=urn:btih:6F48135315CEC4208ED27E7D9EAD44904767AF9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ PictureThis - Plant Identification v3.66 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1E1BAD2F69DF33E7DC30A1F7696C0C6BB99B330C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ Arrayan Path - Thus Always to Tyrants (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic
 magnet:?xt=urn:btih:620E1943D0CC2D83ECF13A8A0FA41F92BD96ED5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ Path Finder - один из лучших файловых менеджеров, 
 magnet:?xt=urn:btih:81287DC4717FE5DBF0C365DE5A8E0BAC875F891D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ WinSnap - отличный многофункциональный инструм
 ```bash
 magnet:?xt=urn:btih:46354256ACAEC3DD559EA97C89055385799CD9B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ Receipts призван помочь вам эффективно управля�
 ```bash
 magnet:?xt=urn:btih:14C28356E2A172DB2B60C1D3DD2C71F9378FE9F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +641,8 @@ Velvet Two Stripes - No Spell for Moving Water (2023) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:8BCF68872BA19ADD4B49DDFC19CBC3504E8CFC57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ AYBO 1.17.0 [Multi]
 magnet:?xt=urn:btih:E039EBBD5799A7321C1AAF9A0B8C0EE8179AC264
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:E039EBBD5799A7321C1AAF9A0B8C0EE8179AC264
 ```bash
 magnet:?xt=urn:btih:BEB41B79ABF9D492BE05901BBC336AA639AAB93E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

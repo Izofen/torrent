@@ -22,6 +22,8 @@ VA - Armada Captivating Best Of (2016) [MP3|320 Kbps] <Trance, Vocal Trance>
 magnet:?xt=urn:btih:0AEA10126F22F493B12062D2E8D29A8B9F9A128D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - Who's Afraid Of 138?! Top 15 - 2016-12 (2016) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:AC1B714C3DAAF7ABB4C1B918F2FE0074A01D1684
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:AC1B714C3DAAF7ABB4C1B918F2FE0074A01D1684
 ```bash
 magnet:?xt=urn:btih:F8C38CBB054187A1BF9B07A989A846D4689EAD22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:F8C38CBB054187A1BF9B07A989A846D4689EAD22
 magnet:?xt=urn:btih:C898DE6E2FE1BB43E3E4E21961AEF69AF5D1F254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:C898DE6E2FE1BB43E3E4E21961AEF69AF5D1F254
 ```bash
 magnet:?xt=urn:btih:7A4ABE19666EF6B5C9F19A3D63D99F38BFD0BFA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Lunatick Project - Veronika (2015) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Dow
 magnet:?xt=urn:btih:79B3C19852D6B677798B0913D1E553A4AB32BBE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ Chucho Valdes - Border-Free (2013) Jazz Village[FLAC|Lossless|tracks + .cue] <Af
 magnet:?xt=urn:btih:57B017200C223AE0D596CD0399BDE70CFD751C5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:57B017200C223AE0D596CD0399BDE70CFD751C5E
 ```bash
 magnet:?xt=urn:btih:F518DEF7A4D6B290441C3CEE1C4CE9D2B4F171F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ VA - Best of EDM Party 2017 (2016) [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:290DD9CFA1227E407DC227AD053827C1397F7810
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ VA - Black Hole Recordings Best Of 2016 (2016) [MP3|320 Kbps] <Progressive House
 ```bash
 magnet:?xt=urn:btih:098ECDC2CC92FAB9B6FB8A4CA193AC72E221B45F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +300,8 @@ VA - Let There Be House: Classic Organic Grooves For Clubbers (2016) [MP3|320 Kb
 magnet:?xt=urn:btih:0A75EB88DCDA1CD69A12CAB926859C4592EF94B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ Crisix - From Blue To Black (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:4CB767E68ECD2EB9427B78AF1FD2664D4B2A1F01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +358,8 @@ Merryweather & Carey - Vacuum Cleaner (1971) 2016, Retro Disc International Reco
 magnet:?xt=urn:btih:2F9B9DCCCE5A06FD396A853FAFBDC75CAEB79D8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +386,8 @@ VA - Chillout City Echoes (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:F2F95B2431FBE0B5D95C4DB481D5BF5397254C6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +416,8 @@ VA - Lounge Box Vol. 1 (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:5EE515111AAADDA8BFE97DA98D8D13521D5D62B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +445,8 @@ VA - Lounge Box Vol. 3 (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:34A1D9B873420E10873BB9247FE7E28D3F5C8D16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +473,8 @@ VA - Progressive Trance 2017: 30 Top Hits Best Of (2016) [MP3|320 Kbps] <Trance,
 ```bash
 magnet:?xt=urn:btih:800C751D6FEC74EF8E9C356095AAF261D9ADF222
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +509,8 @@ Neo Geo - Self-Titled (2011) [MP3|320 kbps]<Alternative, Electronic, Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +534,8 @@ Neo Geo - Self-Titled (2011) [MP3|320 kbps]<Alternative, Electronic, Rock>
 ```bash
 magnet:?xt=urn:btih:51C9E212821B6A61562054F81261074A9AE4D333
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +561,8 @@ Adobe Photoshop CC - это комплексное решение для про�
 magnet:?xt=urn:btih:B9578AE5AB09A03D837DC569CF8FD0C837A246F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +586,8 @@ magnet:?xt=urn:btih:B9578AE5AB09A03D837DC569CF8FD0C837A246F4
 ```bash
 magnet:?xt=urn:btih:A4F3EA16CBDFAAC6B9FC370E019C924A88968779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +613,8 @@ Saint Seiya: Soldiers' Soul - это долгожданное возвращен
 magnet:?xt=urn:btih:C7833617AA1FACB6846F6660CFC7DB60DA88E55D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +638,8 @@ Eastside Hockey Manager (2015) [En] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:507B3355918F9E1A79376F2E4B28D64C900AA55C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +668,8 @@ Windows 7,8.1 и 10 активируются и создается задача 
 magnet:?xt=urn:btih:2D5DFD83B769559EEBFD42B64508C5B2EC302BF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +694,8 @@ magnet:?xt=urn:btih:2D5DFD83B769559EEBFD42B64508C5B2EC302BF7
 magnet:?xt=urn:btih:77E4DD79BD481B80CE5C45EFF4DC2BFE6D809D40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +719,8 @@ magnet:?xt=urn:btih:77E4DD79BD481B80CE5C45EFF4DC2BFE6D809D40
 ```bash
 magnet:?xt=urn:btih:42263630BCFA6B94ED02B483A55D3B198424F257
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

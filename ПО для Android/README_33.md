@@ -19,6 +19,8 @@ Rutube v29.1.3 Mod by vadj [Ru/En]
 magnet:?xt=urn:btih:6323D82265101C72A1E07F5779C07D088632FCA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Filmic Pro - функциональное приложения для веден
 ```bash
 magnet:?xt=urn:btih:ED803EA7BECD1FED9371CEB1E2A381489AB0199F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Cx Проводник - это мощное приложение с интуит
 magnet:?xt=urn:btih:D07AB65B28CD3E9786F9A87E579B0C2B6BE248A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ YouTube ReVanced - это реинкарнация проекта YouTube Vanced
 ```bash
 magnet:?xt=urn:btih:BABD7B5E795429AC345D4D63C6066E1EAA0CF75D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ RS Проводник - запросто поможет вам в управле
 magnet:?xt=urn:btih:CE30FD1005AAA4CD40D92E91FB40A15090DC3657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Lark Player - это удобный и легкий аудио плеер, ко�
 ```bash
 magnet:?xt=urn:btih:C9139AD2573A0CB755CB2C0FB9752FF82EEA3A9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Lightroom - в приложении для мобильных устройств
 magnet:?xt=urn:btih:3FCADCFC7611A103223041433E97AF22F563CBD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Adobe Photoshop Express - ещё одно крайне нужное и поле�
 ```bash
 magnet:?xt=urn:btih:B31E324D9DE12E5530F56524F9008F17E715B27A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:B82BDBD4C59AE20567CA534FFE810623FE6EFD57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ SnapTube - YouTube Downloader VIP v7.17.0.71750910 Final Mod by Balatan [Ru/Mult
 magnet:?xt=urn:btih:7BFF618AA2962EB6A6769D29145EE91BA85B3C73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:7BFF618AA2962EB6A6769D29145EE91BA85B3C73
 ```bash
 magnet:?xt=urn:btih:D6827DAAA707064FA31D9FAE639A534A2A8E79AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ GPS Локер создан для того чтоб не терять фикс�
 magnet:?xt=urn:btih:9728CEF1647F2B63F94EA3F613798450838A4504
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ eWeather HDF - это точный прогноз погоды от двух м�
 magnet:?xt=urn:btih:12F03519D586107B075B9C41EF40DE23A56C32B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Talkao Translate - голосовой переводчик. Talkao Translate —
 ```bash
 magnet:?xt=urn:btih:4346953BDF81E3642417BE90C303D122F3342CB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:4346953BDF81E3642417BE90C303D122F3342CB2
 magnet:?xt=urn:btih:F60E3600CA948BE49130FA027B768E48ED3DB7F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ IPTV Pro v7.1.6 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D1A0A934E83EF21027E085E936C370C29A3E48D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ BZ Напоминания и Дни Рождения PRO v3.3.10 Mod by Eco19 [R
 magnet:?xt=urn:btih:4CD248FA5FF7376EF395105742A0490F04AE7F33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ YouTube ReVanced - это реинкарнация проекта YouTube Vanced
 magnet:?xt=urn:btih:57F87344C8328156D5809DD30EFCF1A3A7375B86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ DailyRoads Voyager v8.1.1 (54) Mod by maxi123444 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B936278FF7A38C6C5BB9BEDB4A182AEA9EEF54E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:B936278FF7A38C6C5BB9BEDB4A182AEA9EEF54E3
 magnet:?xt=urn:btih:D77BFBCA64FA764FF60B661B4C6702FCE808D5D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Picsart AI Photo Editor, Video v24.6.4 Final Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3CF3C8866A480EC20B2B0FC64F36BB894C9A0D4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:3CF3C8866A480EC20B2B0FC64F36BB894C9A0D4E
 magnet:?xt=urn:btih:E7295AC6893B33F68DC44B6E0D32CD1D9F917FFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ BZ Напоминания и Дни Рождения PRO v3.3.7 Mod by Alex.Stra
 ```bash
 magnet:?xt=urn:btih:6F8EF90A904DA7DFA0D270149D31F7DD109C6A93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:6F8EF90A904DA7DFA0D270149D31F7DD109C6A93
 magnet:?xt=urn:btih:3328BE50B9C38237966567D596C343502FE1B5E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Moon+reader относится к категории универсальных 
 magnet:?xt=urn:btih:6D4345586E4409F410F05D921D03BD553C454E32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ ColorNote — ColorNote это простой блокнот. Он предос�
 ```bash
 magnet:?xt=urn:btih:622AA51A3F3FA142975FC02B9886933A8E4BC056
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 755116   (930035) от 09.02.2014
+
+Путешествие миссис Шелтон (1975) DVB
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Советский теплоход, зафрахтованный английской туристической фирмой, отправляется из Лондона в кругосветное плавание. Конкурирующая фирма готовит на пароходе провокацию.
+Миссис Шелтон, узнав, что ей изменяет муж, отправляется в этот круиз, чтобы пережить трагедию в одиночестве. Но в пути ее ожидает множество приключений, в результате которых решительная и находчивая (   Читать дальше...   )Жанр: Мелодрама, Комедия, ПриключенияРежиссер: Радомир ВасилевскийАктеры: Валентина Талызина, Геннадий Бортников, Микаэла Дроздовская, Григорий Шпигель, Арнис Лицитис, Владимир Талашко, Всеволод СафоновПродолжительность: 01:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40DCAACC95BADAB9D68BCEE5828A17BADF7FEF36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 755100   (930190) от 09.02.2014
 
 Путешествие миссис Шелтон (1975) DVDRip
@@ -19,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:BFF2E3334F3F074B8419003EE11CB289A3974123
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@ magnet:?xt=urn:btih:BFF2E3334F3F074B8419003EE11CB289A3974123
 ```bash
 magnet:?xt=urn:btih:68944E9CF2E0CD8155B3A60C50CE96C781609D72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +103,8 @@ magnet:?xt=urn:btih:68944E9CF2E0CD8155B3A60C50CE96C781609D72
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +129,8 @@ magnet:?xt=urn:btih:68944E9CF2E0CD8155B3A60C50CE96C781609D72
 ```bash
 magnet:?xt=urn:btih:073E1ECB1F36CFFF23118DA7022CEE831077217B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +157,8 @@ magnet:?xt=urn:btih:073E1ECB1F36CFFF23118DA7022CEE831077217B
 magnet:?xt=urn:btih:9167D648685DE1FDF3AE33C441A1DB7F84DE5084
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +182,8 @@ magnet:?xt=urn:btih:9167D648685DE1FDF3AE33C441A1DB7F84DE5084
 ```bash
 magnet:?xt=urn:btih:B2AAA9C39A8485AF09381A209F47CF3595C2CB43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +209,8 @@ magnet:?xt=urn:btih:B2AAA9C39A8485AF09381A209F47CF3595C2CB43
 ```bash
 magnet:?xt=urn:btih:F724FE629CB0E69E5E9549474FB553CC78EB2A47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +239,8 @@ magnet:?xt=urn:btih:F724FE629CB0E69E5E9549474FB553CC78EB2A47
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +264,8 @@ magnet:?xt=urn:btih:F724FE629CB0E69E5E9549474FB553CC78EB2A47
 ```bash
 magnet:?xt=urn:btih:59AFEE2AB6A86240802AB434A9714043F347F580
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +291,8 @@ magnet:?xt=urn:btih:59AFEE2AB6A86240802AB434A9714043F347F580
 magnet:?xt=urn:btih:900A41CF6FA7C91EE4EDF6D6775CCC019E7CED49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +316,8 @@ magnet:?xt=urn:btih:900A41CF6FA7C91EE4EDF6D6775CCC019E7CED49
 ```bash
 magnet:?xt=urn:btih:9F0D9EED192E5ABD7BD272794A69F952488FC1D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +344,8 @@ magnet:?xt=urn:btih:9F0D9EED192E5ABD7BD272794A69F952488FC1D5
 magnet:?xt=urn:btih:01F0BF20D872152C8FA9E2596879C858D3C5E329
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +369,8 @@ magnet:?xt=urn:btih:01F0BF20D872152C8FA9E2596879C858D3C5E329
 ```bash
 magnet:?xt=urn:btih:359D4A5F935781690F5516988DF7BF1F48EDD370
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +396,8 @@ magnet:?xt=urn:btih:359D4A5F935781690F5516988DF7BF1F48EDD370
 magnet:?xt=urn:btih:74015C6CEFBE65F43EFEDC64E6187C2D4648307C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +421,8 @@ magnet:?xt=urn:btih:74015C6CEFBE65F43EFEDC64E6187C2D4648307C
 ```bash
 magnet:?xt=urn:btih:D9586014693E3280789D119F6D02695A01EBDE8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +448,8 @@ magnet:?xt=urn:btih:D9586014693E3280789D119F6D02695A01EBDE8D
 magnet:?xt=urn:btih:B106DAD38C90596AED089625F8E0E5A8B119E60E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +473,8 @@ magnet:?xt=urn:btih:B106DAD38C90596AED089625F8E0E5A8B119E60E
 ```bash
 magnet:?xt=urn:btih:F477D493CF7D12AD6A800A64BB9E7E4217B60EBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +500,8 @@ magnet:?xt=urn:btih:F477D493CF7D12AD6A800A64BB9E7E4217B60EBB
 ```bash
 magnet:?xt=urn:btih:6809415FCAFC75525D5E918326158027BBC5E87D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +529,8 @@ magnet:?xt=urn:btih:6809415FCAFC75525D5E918326158027BBC5E87D
 magnet:?xt=urn:btih:F050F708DD3E262782D8724BB5B272DC3BE26AD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +555,8 @@ magnet:?xt=urn:btih:F050F708DD3E262782D8724BB5B272DC3BE26AD5
 magnet:?xt=urn:btih:7CF8749E39469FEF1E4D807A9C9722CCEE1AAEA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +580,8 @@ magnet:?xt=urn:btih:7CF8749E39469FEF1E4D807A9C9722CCEE1AAEA8
 ```bash
 magnet:?xt=urn:btih:57256F8B4C6CE35911916EB2183E1654A2220EE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +608,8 @@ magnet:?xt=urn:btih:57256F8B4C6CE35911916EB2183E1654A2220EE5
 magnet:?xt=urn:btih:69D83C3286EB33809ED1B41227BE710BF02A97D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +635,8 @@ magnet:?xt=urn:btih:69D83C3286EB33809ED1B41227BE710BF02A97D7
 magnet:?xt=urn:btih:C7B0999D63BCDDA660CF3A1E8AD3AE97DD95D585
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +660,8 @@ magnet:?xt=urn:btih:C7B0999D63BCDDA660CF3A1E8AD3AE97DD95D585
 ```bash
 magnet:?xt=urn:btih:86CCAC0C1EE146429C0E89C4F70038F37E3287F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,29 +687,7 @@ magnet:?xt=urn:btih:86CCAC0C1EE146429C0E89C4F70038F37E3287F7
 magnet:?xt=urn:btih:96A911201C0B69A61730A0FCD7392A54404E48B2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984766   (938610) от 09.02.2016
-
-Приезжайте на Байкал (1965) SATRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телевизионщики приезжают в рыболовецкий район снимать репортаж о рыбаках и о передовом хозяйстве председателя Калача. По дороге их перехватывает Сенька Лапин с друзьями. Их цель — показать красоту дивного озера Байкал и условия труда и жизни рыбаков...Производство: СССР, киностудия им. ГорькогоЖанр: КомедияРежиссер: Вениамин ДорманАктеры: Станислав Хитров, Любовь Стриженова (Земляникина), Евгений Шутов, Вера Васильева, Алексей Миронов, Алла Крамская, Иван Рыжов, Варвара Попова, Рудольф Рудин, Светлана Швайко, Леонид Сатановский, Георгий ТусузовПродолжительность: 01:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEB074E936062D58ACAF817F0B873FC5D335ECAA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

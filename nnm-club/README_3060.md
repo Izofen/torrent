@@ -28,6 +28,8 @@ AOR - The Colors of L.A (2012) [MP3|320 кб/с]<Melodic Rock>
 magnet:?xt=urn:btih:E250E32021F96BE088E257450B7D5C94CD6B4AF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -56,6 +58,8 @@ magnet:?xt=urn:btih:E250E32021F96BE088E257450B7D5C94CD6B4AF7
 magnet:?xt=urn:btih:F57A18B11841BF0B9365B94B5D9583F7E48E9713
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -79,6 +83,8 @@ magnet:?xt=urn:btih:F57A18B11841BF0B9365B94B5D9583F7E48E9713
 ```bash
 magnet:?xt=urn:btih:EED953F0238EB1AFEF6F980588AA5B170702DCD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -113,6 +119,8 @@ Simone Kopmajer - Nothing's Gonna Change (2011) [MP3|~225 кб/с (V1)]<Vocal Ja
 magnet:?xt=urn:btih:07F57FFBF0B50F24893A771C3BA98DD10523A615
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +154,8 @@ VA - Весенний хит-парад по-русски (2012) [MP3|256 кб/�
 magnet:?xt=urn:btih:2300BF4AD758B5F8D714E20077855B9B7FCDB7E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +180,8 @@ magnet:?xt=urn:btih:2300BF4AD758B5F8D714E20077855B9B7FCDB7E9
 ```bash
 magnet:?xt=urn:btih:E1930909EF22AC5B3E250DAD38AE1B26A5DAFB91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -204,6 +216,8 @@ magnet:?xt=urn:btih:E1930909EF22AC5B3E250DAD38AE1B26A5DAFB91
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +241,8 @@ magnet:?xt=urn:btih:E1930909EF22AC5B3E250DAD38AE1B26A5DAFB91
 ```bash
 magnet:?xt=urn:btih:6362ED63C34E65041CB4F777AC4DAE679279827D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +273,8 @@ Absenth - Green Devil v2.0 EP (2012) WEB [FLAC|Lossless]<Industrial metal, Cyber
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +298,8 @@ Absenth - Green Devil v2.0 EP (2012) WEB [FLAC|Lossless]<Industrial metal, Cyber
 ```bash
 magnet:?xt=urn:btih:D99316786BB89AE69991BE34AE7AF92777AEEF0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +334,8 @@ VA - Rock Romantic (Russian) (2012) [MP3|192-320 кб/с]<Rock, Hard Rock, Blues
 magnet:?xt=urn:btih:E63E2956CFC341225568D1D34495322DDBECCE1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +364,8 @@ magnet:?xt=urn:btih:E63E2956CFC341225568D1D34495322DDBECCE1E
 magnet:?xt=urn:btih:F3C9DE42759B4A856DF56222F077157FC274BD13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +390,8 @@ magnet:?xt=urn:btih:F3C9DE42759B4A856DF56222F077157FC274BD13
 magnet:?xt=urn:btih:00C564A4A2566DC648E9A4B78435319285E15035
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +415,8 @@ magnet:?xt=urn:btih:00C564A4A2566DC648E9A4B78435319285E15035
 ```bash
 magnet:?xt=urn:btih:1A65168FA588BFD88103AE8AE8DDF5D357033385
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +448,8 @@ Mike Rowland - The Magical Elfin Collection (Edition 2004) (1989)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +484,8 @@ VA - TOP 30 Клубные РУССКИЕ Новинки (17.03.2012) [MP3|128-3
 magnet:?xt=urn:btih:A82975586F62B749EB433A8D14891ABBCA0DD6D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +519,8 @@ VA - Русская Супер 200-ка (2012) [MP3|128 kbps]<Pop>
 magnet:?xt=urn:btih:9FBC9F53D30E37D2245A7EE6734CBCD767E37164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +549,8 @@ magnet:?xt=urn:btih:9FBC9F53D30E37D2245A7EE6734CBCD767E37164
 magnet:?xt=urn:btih:87EE6E05322C72E0B5CA21F313C9CACD9BF434FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +574,8 @@ magnet:?xt=urn:btih:87EE6E05322C72E0B5CA21F313C9CACD9BF434FC
 ```bash
 magnet:?xt=urn:btih:4C2A561368674A4F05E6E9477DB1E0BEEF8722D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +606,8 @@ magnet:?xt=urn:btih:4C2A561368674A4F05E6E9477DB1E0BEEF8722D9
 ```bash
 magnet:?xt=urn:btih:C2A492934128F39F577AEB04E4367485B8A58EAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +642,8 @@ Ruthie Foster - Let It Burn (2012) [MP3|~245 кб/с (V0)]<Blues, Gospel, Soul>
 magnet:?xt=urn:btih:9BCFDBE51B42D3EDC608C159D43261AD78E1ADFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +667,8 @@ SeaMonkey — проект, основанный на добрых традиц�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +694,8 @@ SeaMonkey — проект, основанный на добрых традиц�
 magnet:?xt=urn:btih:9701E5A8CFCE8A6BBD404FB070BC90D5ECEC0594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,6 +719,8 @@ magnet:?xt=urn:btih:9701E5A8CFCE8A6BBD404FB070BC90D5ECEC0594
 ```bash
 magnet:?xt=urn:btih:40883B95D2D0B99348F0CD86988F88AFDBAF0579
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -707,6 +755,8 @@ Top 10
 magnet:?xt=urn:btih:7A9AFFF8142DE9A7574FC3754A3694AA208CA93C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -732,6 +782,8 @@ magnet:?xt=urn:btih:7A9AFFF8142DE9A7574FC3754A3694AA208CA93C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

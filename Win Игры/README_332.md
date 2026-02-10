@@ -19,6 +19,8 @@ Mystery Tales 12: Art and Souls (2019) [En] (1.0) Unofficial [Collector's Editio
 magnet:?xt=urn:btih:8827AC683CE77DE12080725C0EA7A4BBD013D6C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Dofus - популярная онлайн игра, которая отлича�
 ```bash
 magnet:?xt=urn:btih:D69BEFBF667556FEF299A08D45EB4CAD99844144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Memoria – расскажет нам историю принцессы Сати
 magnet:?xt=urn:btih:97D918C94B33B84434AE9E70036A5F39941C06A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Invisible, Inc. - Contingency Plan (2015) [En] (1.0/dlc) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:A73008769278EAB802589060DE553958551A307A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Battlestrike: Shadow of Stalingrad / Battlestrike: Тень Сталинград
 magnet:?xt=urn:btih:A5F18C32D03A40BFC664BA25906F063F44BCFE29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ EARTH DEFENSE FORCE: IRON RAIN (2019) [Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F6129FF97DE09EE617E6CB419BA6E554C4C08CD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Mutant Football League: Dynasty Edition - это адски брутальный
 magnet:?xt=urn:btih:C5F19572D25C17B2ED3C54BBAA504A876EDC743A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ A Hat in Time (2017) [Ru/Multi] (59270/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:7E2A65A7C9C91F3ED77EA23C8CB306FFFC44FC42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Armello – красочная пошаговая стратегия с элем
 magnet:?xt=urn:btih:391A98370F2FAEBF29992B155ACBAC519A44F549
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ My Memory of Us – это воспоминание о дружбе между �
 ```bash
 magnet:?xt=urn:btih:E0B537EC939809312DBDED78CFB50B519ED59A33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Duskless: The Clockwork Army / Бессумеречный город: Механ
 magnet:?xt=urn:btih:08A16790BCB688328C219A6A759EF1DA5F3341F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Cyber Hook - динамичный 3D-платформер, в котором т�
 ```bash
 magnet:?xt=urn:btih:0CFD0FEB47418962F663E11F3D0AF759B2FA27C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Drakensang: The River of Time / Drakensang: Река времени [Ru] (Repack
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Halloween Stories 6: Mark on the Bone (2022) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:8E06E832A43BD609C3C5ED13A539A34AE25B923C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Gamedec – изометрическая RPG в жанре киберпанк д
 magnet:?xt=urn:btih:C9BB4FE8F6BB3323481A883B16BA103AD01403E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ NERO - это хардкорный стелс-экшн, посвященный �
 ```bash
 magnet:?xt=urn:btih:59DDD5F05FE537661D7AF0847C8155198BCAFE9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Bus World - игра о пассажирских перевозках, от пр
 magnet:?xt=urn:btih:9130FF4A0FAF02063FC87B25C85698CA9ACE2C80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Evil Defenders – это забавная и невероятно увлека�
 ```bash
 magnet:?xt=urn:btih:AB35719FC6145C179AD99C80F15F0DD563B46B13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ Monstrum (2015) [En] (1.3) SteamRip Let'sРlay
 magnet:?xt=urn:btih:B1334F2A68098BA22F112E4715B227A846D2F3DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ Left to Survive бесплатный многопользовательский 
 ```bash
 magnet:?xt=urn:btih:6235E90B2944C0784C57A50C9388FAA0B70628AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ Jack Move (2022) [Ru/Multi] (1.0.5-118) License GOG
 magnet:?xt=urn:btih:FA869B66EF91C724596675470E716C8980EEB6EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ UNDETECTED (2022) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:12495A9E547A2EF4478F5A688A3D4310699A3DF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ Prodeus — привычный шутер от первого лица, пере
 magnet:?xt=urn:btih:DAE0F0AC7FDBC28675AA569D4DAA07A6186D386A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ GONNER2 (2020) [Rui/Multi] (1.1.8.2) License GOG [The Full Ikk Edition]
 ```bash
 magnet:?xt=urn:btih:65ACA67F7A85881B22D668D66342BEF9A31AE7F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ The Mystery of a Lost Planet / Тайна затерянной планеты (2
 magnet:?xt=urn:btih:F681C4E97BA13DCB8B9879ECB3F8931742C1E3DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Redemption Cemetery 7: Clock of Fate / Кладбище искупления 7: 
 ```bash
 magnet:?xt=urn:btih:D3F2A38145B9DD2CE6E9842E4FB6DB53335D2F89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

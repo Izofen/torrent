@@ -19,6 +19,8 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.1.2-72904/dlc) Repack Wanter
 magnet:?xt=urn:btih:3DB2D5FFBC4F99D4D54FDD4F4A3D6F111D005A43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Last Man Survivor - мрачный roguelike, в котором вам пр�
 ```bash
 magnet:?xt=urn:btih:A3F1E977857A614C3F44A1D42E965AA7CC81DCFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ DRAGON BALL: Sparking! ZERO - продолжение легендарной се
 magnet:?xt=urn:btih:D05264550C229B60FD64F90021F7C928A994A8BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Night Slashers: Remake - это возрождение классическог�
 ```bash
 magnet:?xt=urn:btih:2E38B6A85228F59D24314E197F587DD11D227EF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Another Crab's Treasure - это увлекательное подводное �
 magnet:?xt=urn:btih:459A47DDCD3106173D5F7C58E6C2C041E0C8F1B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ World of Goo 2 продолжает работу над своей отмече�
 ```bash
 magnet:?xt=urn:btih:D689A3BB2CE5A12C35C46E28CD08F49E63B0279A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ World of Goo 2 (2024) [Ru/Multi] (13112W) Repack seleZen
 magnet:?xt=urn:btih:D9AE1B4139FB4127EB16897009A3F303D8E541CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Pecker (2024) [Ru/Multi] (1.0.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FE123E32571ADEC436BBB269358AF22577578B79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.1.2-72904/dlc) Repack FitGir
 magnet:?xt=urn:btih:ED394577781F225BEAD14E28F75257C71F1B14C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ House of Golf 2 (2024) [Ru/Multi] (1.2.6) License GOG
 ```bash
 magnet:?xt=urn:btih:128E4BBD48D96DBF00D05FFFBE49018A275681AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Subverse (2018) [En] (1.1.1) License GOG [18+]
 magnet:?xt=urn:btih:7ACB48A2ACCAE9D17C31C2DFBF34FC1A88D221DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Entropy Survivors — «роглайк» со стрельбой, где вы у
 ```bash
 magnet:?xt=urn:btih:9877FCD81AD6A97382384BD815D6AE2129B5E690
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ LEGO City Undercover (2017) [Ru/Multi] (1.0) License GOG
 magnet:?xt=urn:btih:CB95982D6A28E2B85EC27DE3F62CBE7869B8AE17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ The Alpha Wolf (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F4260AA39FFE47646EB651248E82DF578424B8CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (1.03/dlc) Repack DjDI
 magnet:?xt=urn:btih:2B95307D3A68C71F09B0634A73462EC0A213E4B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Pull Stay смешивает вместе механики, взятые из ж
 ```bash
 magnet:?xt=urn:btih:12A48D5EADD4802993F6C75EC53C7C897F197F09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Paleo Pines (2023) [Ru/Multi] (1.5.22/dlc) License GOG
 magnet:?xt=urn:btih:DDF670C5CEF241742043CD2534F83F51AEBC5E67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ My Friend Pedro - это жестокая смесь дружбы, фантаз�
 ```bash
 magnet:?xt=urn:btih:8A86EA61E4F29FDCD8799C367DEF86DE848A855C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Fiora (2025) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:A654A2A4189FAB9D32DD1F543A6C4EE434A220FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Haste: Broken Worlds - игра от третьего лица, в которо�
 ```bash
 magnet:?xt=urn:btih:002FFE2E442A6C93379E03E4B469BEB6708B7BE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Haste: Broken Worlds - игра от третьего лица, в которо�
 magnet:?xt=urn:btih:263FC489B8670F6458F4270DF97D897F2EF0ADA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Tekken 8 - продолжение культового файтинга, нап�
 ```bash
 magnet:?xt=urn:btih:FF8844D47EFF6C0E5B6BA06F748F39A38B6BE90A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Which Way Up: Galaxy Games - это дружелюбная для всей се�
 magnet:?xt=urn:btih:082492F04BD44A8FF502C0C56C458A4908AA570E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Spyro Reignited Trilogy (2019) [Ru/En] (Build 3849171) Repack Mizantrop1337
 ```bash
 magnet:?xt=urn:btih:D584924EEC1FEE362E26898D159DDB6CB9362174
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ The Riftbreaker (2021) [Ru/Multi] (Exe:1033 Data:640/dlc) Repack Wanterlude
 magnet:?xt=urn:btih:8D1E81AE8C02598BDACA9A7472809362DFD38BA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Poop Killer: Flush or Die (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9B9F238CAFCDD18D026389707B329A4EA8779702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

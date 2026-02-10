@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:66A597A1440129AFC949764D0E0F19B1EFA9FD14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:66A597A1440129AFC949764D0E0F19B1EFA9FD14
 ```bash
 magnet:?xt=urn:btih:4CC402AB6D07BC22B115271AC295D789D4904D07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Gran Turismo 5 Prologue - это предисловие к Gran Turismo 5, ко�
 magnet:?xt=urn:btih:E3D54437479E6D3BFAC3B6FFCE296CD6AA2567C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:E3D54437479E6D3BFAC3B6FFCE296CD6AA2567C6
 ```bash
 magnet:?xt=urn:btih:72C5D63C3A558413639F73701D5B783A94673358
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Proko, Stan Prokopenko | Figure drawing fundamentals (2012) WEBRip [En]
 magnet:?xt=urn:btih:7DE39657C421786601EC49D0428F28C152097609
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:7DE39657C421786601EC49D0428F28C152097609
 ```bash
 magnet:?xt=urn:btih:80F775270061C7255B3D361249ABCAB08B919E29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ VA - The Best Of Suanda True 2023 [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:D4B8034F76BA7D9283E242E80CA549E752FB54E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:D4B8034F76BA7D9283E242E80CA549E752FB54E1
 ```bash
 magnet:?xt=urn:btih:B80EE5B48FB0ADF27FDD6521FE177850472C383F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Everdawn - Venera (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal,
 magnet:?xt=urn:btih:775E70FF6ADA9C7F0C1C76513BB801094D87053D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:775E70FF6ADA9C7F0C1C76513BB801094D87053D
 ```bash
 magnet:?xt=urn:btih:715C679B9536B470134568DE96B1EE7B919154B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ VA - Armin van Buuren - A State Of Trance 1150 (2023) [MP3|320 Kbps] <Trance, Pr
 magnet:?xt=urn:btih:83628098F15F59F4E149B46406E4B4CD20283953
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:83628098F15F59F4E149B46406E4B4CD20283953
 magnet:?xt=urn:btih:352A6BA4468E4547C21427A4258FDC066FD60060
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:352A6BA4468E4547C21427A4258FDC066FD60060
 ```bash
 magnet:?xt=urn:btih:22AEF1CAE62F3EC76258ACC6BA4C2076E8EB2A9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ Isospin - Aftermath Chronicles (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 magnet:?xt=urn:btih:CDA6DA64AD528964E3F28A981502A35C030D09F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:CDA6DA64AD528964E3F28A981502A35C030D09F0
 magnet:?xt=urn:btih:8FFE2CB37A5098431DD5031C64EC7272B279A06E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:8FFE2CB37A5098431DD5031C64EC7272B279A06E
 ```bash
 magnet:?xt=urn:btih:BE68CA53E84DA8C88610A76A0DF18BBFA48AA3B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:BE68CA53E84DA8C88610A76A0DF18BBFA48AA3B8
 ```bash
 magnet:?xt=urn:btih:37F0214561BE2128B6291ECBB179F5BCD80C98AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:37F0214561BE2128B6291ECBB179F5BCD80C98AC
 magnet:?xt=urn:btih:C63EA24DDBA5602E9EB4B59CA96CF2ADE771449A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ BBC. Прирождённые бунтари / Natural Born Rebels (2018) WEB-DL
 ```bash
 magnet:?xt=urn:btih:F5D42DDB2611E297EA6C18AA575277F4AC550980
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:F5D42DDB2611E297EA6C18AA575277F4AC550980
 magnet:?xt=urn:btih:A7778F4BA4B99EE1A3A565FE9CE1B91549BCEFE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:A7778F4BA4B99EE1A3A565FE9CE1B91549BCEFE0
 magnet:?xt=urn:btih:6F107D2A0E50B64DAD11001FFFD77A98EC406060
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:6F107D2A0E50B64DAD11001FFFD77A98EC406060
 ```bash
 magnet:?xt=urn:btih:184DFD84FA07E448F590F1681903FD9DAB2174DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:184DFD84FA07E448F590F1681903FD9DAB2174DD
 magnet:?xt=urn:btih:5B99A4DEF15551D5EA8C36BE869075D10EAE92BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ SeaMonkey — проект, основанный на добрых традиц�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ SeaMonkey — проект, основанный на добрых традиц�
 magnet:?xt=urn:btih:FDCE35F447157EE45DB97955CECEEF5C6205AEAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:FDCE35F447157EE45DB97955CECEEF5C6205AEAB
 ```bash
 magnet:?xt=urn:btih:02430B2A42C5B25540D870A276D431B26EF95410
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

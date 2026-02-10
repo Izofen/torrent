@@ -20,6 +20,8 @@ Event-sourcing. Этот подход является особенно попу
 magnet:?xt=urn:btih:DCAF07C765D5A23F5864F65F2336DDF4F8F137F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Systems.Education, babok-school.ru, Дарья Колесова, Анна Вич
 magnet:?xt=urn:btih:51AF2272C82665C3E5DA420C04AE646511FFCF0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Udemy, Nikita Sergeev | Управление проектами: полное п
 ```bash
 magnet:?xt=urn:btih:03B57453212A89BC882BFDB5AC5E3205DCB84B80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Anthony GG | Full Time Go Dev (2023) WEB-DL [EN]
 magnet:?xt=urn:btih:33AECEA920CF00EC1BA3F90141C8B94531FF0C60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ The Gnomon Workshop, Alasgar Hasanov’s | Introduction to Pyro FX in Houdini �
 magnet:?xt=urn:btih:2032FA5E14DF0478477563AA89E2D13CF7D03A61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ The Gnomon Workshop, Alasgar Hasanov’s | Introduction to Pyro FX in Houdini �
 ```bash
 magnet:?xt=urn:btih:1ED9A88254F2BBEDE9EA68789F0171A894C673B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ Slurm (Слёрм), Егор Лукьянов, Александр Вагнер |
 magnet:?xt=urn:btih:C5F74A8CC7362CBEF0B2AAE62BEE3CC2C3016605
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:C5F74A8CC7362CBEF0B2AAE62BEE3CC2C3016605
 magnet:?xt=urn:btih:4D7A1A70654BE5F008D24CF7B8CCD9E8405FC11F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:4D7A1A70654BE5F008D24CF7B8CCD9E8405FC11F
 ```bash
 magnet:?xt=urn:btih:0622A9FE02C98292C1D5B0E47802C40645A91D58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ Thinknetica Pro, Алексей Наумов | Под капотом Ruby on Rai
 magnet:?xt=urn:btih:F833D74FB458A1421EC1B408895AC81BA9CB28F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:F833D74FB458A1421EC1B408895AC81BA9CB28F4
 ```bash
 magnet:?xt=urn:btih:F68D59154FF09463DC476B1D6078A84FB8D14115
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:F68D59154FF09463DC476B1D6078A84FB8D14115
 magnet:?xt=urn:btih:580EDA87B8C31D8AA671B7532FC997C9405F5E18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:580EDA87B8C31D8AA671B7532FC997C9405F5E18
 magnet:?xt=urn:btih:779D129278D022D58A8D5A99E2A0186B6996B6A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:779D129278D022D58A8D5A99E2A0186B6996B6A0
 magnet:?xt=urn:btih:6352D09BAA13CEB65BAC6F0ABC0008E476E868BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:6352D09BAA13CEB65BAC6F0ABC0008E476E868BE
 ```bash
 magnet:?xt=urn:btih:BC7622C286DB1866887A0E855416BC65B8041DA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:BC7622C286DB1866887A0E855416BC65B8041DA4
 magnet:?xt=urn:btih:E66EAF888AE147DF5AD77B643D9600EB8487246A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:E66EAF888AE147DF5AD77B643D9600EB8487246A
 ```bash
 magnet:?xt=urn:btih:5CDAD4C81BF3A3E7641DCA662D419ECE623D9FE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ Deworker Pro, Дмитрий Елисеев | Использование HTTP з
 magnet:?xt=urn:btih:EC2560F385E4410A5F1A851E4CAE388238196885
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ FILM EDITING PRO | Color Grading 101 in DaVinci Resolve (2023) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:5D623E299B6C3A8CCA08A0542380A310DA856A6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ Deworker Pro, Дмитрий Елисеев | Устройство HTTP-фрей
 magnet:?xt=urn:btih:E1C670097D00B51C3194BAC41CA8080DE11D67B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ Deworker Pro, Дмитрий Елисеев | Модульное разделе�
 ```bash
 magnet:?xt=urn:btih:321B597FC8B15282DB625FB1DF309570088775BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ Deworker Pro, Дмитрий Елисеев | Практический рефа�
 magnet:?xt=urn:btih:1FA8F923F6F24459C64CA7962867CEF69FA83AD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ Deworker Pro, Дмитрий Елисеев | Техзадание и дизай
 ```bash
 magnet:?xt=urn:btih:F406BFED6E4FD6837B1AF5AEA61CAF2DF7CD5DB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ Deworker Pro, Дмитрий Елисеев | Доменная модель и E
 magnet:?xt=urn:btih:8CFAFAC123C160998835DD9D27AC26D8D6FE4107
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:8CFAFAC123C160998835DD9D27AC26D8D6FE4107
 magnet:?xt=urn:btih:E77990C46027834AE3EFDBDE72A973196AFF5900
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ Udemy, Larno Visser | Adobe Firefly Master Class - The Next Step in Generative A
 ```bash
 magnet:?xt=urn:btih:AEAD6F8497A5DE9A534162206730EA62B3359476
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

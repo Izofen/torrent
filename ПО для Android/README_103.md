@@ -20,6 +20,8 @@ Handyman Calculator Pro v2.3.7 [Ru/Multi] - Полный строительны�
 magnet:?xt=urn:btih:DBD5AF8E367568501D2D77EB2161B81AF1E5D0D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:DBD5AF8E367568501D2D77EB2161B81AF1E5D0D5
 magnet:?xt=urn:btih:60C06D7D732E6DECD03B96E4AF9551AF07AC7DD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ MyPhoneExplorer Client 1.0.43 + 1.8.8 PC [Ru] - Синхронизация с П
 magnet:?xt=urn:btih:506CB8488B833F7984925FFDDAA9DAC86D44B87F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ VK Music Player - неофициальное приложение для про�
 ```bash
 magnet:?xt=urn:btih:1527A48710529C858CC9AEABC2373B8979A4BB36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:1527A48710529C858CC9AEABC2373B8979A4BB36
 magnet:?xt=urn:btih:F128E1D8DF0F56215E92E0C71841484B9F0D2309
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Parom TV - программа для бесплатного онлайн про�
 ```bash
 magnet:?xt=urn:btih:3891EE783C19E8447C768C9792672F9CB1A76C4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:3891EE783C19E8447C768C9792672F9CB1A76C4D
 magnet:?xt=urn:btih:4D7B529C77B6DCC358FA24BF0AD29C43857FC0AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ InternetRadio 2.0.1 [Ru] (Авторская раздача)
 ```bash
 magnet:?xt=urn:btih:ABA7C5E7176A97911B98047FA7456B1DE6E76523
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:ABA7C5E7176A97911B98047FA7456B1DE6E76523
 magnet:?xt=urn:btih:06DC4DAFE9354386251D036DDEDF397D4C670537
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:06DC4DAFE9354386251D036DDEDF397D4C670537
 ```bash
 magnet:?xt=urn:btih:49D5D4175FCD5A9BF1AB69870BBD592B4BDAACDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ BitVPN является одним из лучших неограниченны�
 magnet:?xt=urn:btih:4DF3980C6A590366D0B729894D02A75E53BBBC7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ PowerTube - является мобильным клиентом консоль�
 ```bash
 magnet:?xt=urn:btih:2CCAAE86047B2B1300B8E5E2289973572D89C556
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Lumii — это функциональный, но простой и практ
 ```bash
 magnet:?xt=urn:btih:EDA47E1BCDF2A69D115027C53DF37826CED2005A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:EDA47E1BCDF2A69D115027C53DF37826CED2005A
 magnet:?xt=urn:btih:1D99BA7F5C4A88F81B12FF26D3CCBA8C4F728604
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Vocaberry Karaoke v0.22.1 [Ru] - Научиться петь популярны�
 ```bash
 magnet:?xt=urn:btih:BCEC250B2FD15BD04E7CAF304AE365C09A0F669B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ A2-A4 - Баритон
 magnet:?xt=urn:btih:C3CC30E7826F8A168FBF1B652558B4765453371D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ Vocaberry  v2.7.3 [Ru] - научиться петь 0+ (обновляемая)
 magnet:?xt=urn:btih:38E664303A71712D22D4314C251689384D5545F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ USB Camera Standard 2.1.2 [En] - запись видео с внешней ве�
 ```bash
 magnet:?xt=urn:btih:DE173B154117130E85A4E06E92C7AC42CE18880D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ SURE Universal - это универсальное решение дистанц
 magnet:?xt=urn:btih:4EA249820B206AE9742A91D163C348BE6B3F9394
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ Remotix — это быстрый, удобный и безопасный кли
 ```bash
 magnet:?xt=urn:btih:31776E171A7120B1F0B7E8765E79D71F63F4A2FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ Persona - твоя новая селфи-камера на каждый день
 magnet:?xt=urn:btih:F07FDC118B5AA284F4DDBC83ED6AA1468D17276A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ Audiomack v5.7.3 [Ru/Multi] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:C76409FB636C7478E9406308A47F95AB68F7DE68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:C76409FB636C7478E9406308A47F95AB68F7DE68
 magnet:?xt=urn:btih:28036F90A4E75EB3CA3FBF41C62FD00FA99174D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ Paper Camera — интересная камера, которая делает 
 ```bash
 magnet:?xt=urn:btih:B9D975CD29FA1CC226A23B87FBD0E1F52BFE2B19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ MyTV v2.0.0-beta+1244 [Ru] - приложение для просмотра ТВ
 magnet:?xt=urn:btih:BE068327C07D3C4B4032777C75B396E8B33969C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ magnet:?xt=urn:btih:BE068327C07D3C4B4032777C75B396E8B33969C7
 ```bash
 magnet:?xt=urn:btih:D65DBDD3FD2E3D575DB72D31DC429ED864989802
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

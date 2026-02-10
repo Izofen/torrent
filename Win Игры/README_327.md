@@ -19,6 +19,8 @@ How to Survive 2 (2016) [Ru/Multi] (1.0/dlc) Repack Seraph1
 magnet:?xt=urn:btih:BA2704D3C44F852A2E905EB68B6DB8E8B54A7761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Curio Society 2: New Order / Антикварное общество. Нов
 ```bash
 magnet:?xt=urn:btih:BFE7B5CDA05BF4BB46A9F4B38706199C3ACEE9CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Chimeras 4: Mortal Medicine - четвертая часть мистическо
 magnet:?xt=urn:btih:351339DD5BE1C1A32E133F343EA3F04895FD397B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Abandon Ship (2019) [Ru/Milti] (1.0.13298) Repack xatab
 ```bash
 magnet:?xt=urn:btih:D9F2D38D42A4DD047A4C3D018152CCD6FE1EEBB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Serious Sam: The Random Encounter (2011) [En] (13.11.2015) Repack R.G. Меха�
 magnet:?xt=urn:btih:50D7BF04F5DB6CC6FA68859B39FB637A8AA2D040
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Space Pirates and Zombies 2 (2017) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:6696C85A9BFFD5055DA09FD5742E9C853C79860B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ LEGO Marvel Super Heroes 2 (2017) [Ru/Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:6C1302C26C5A6C9E5EB1F1EF43E7C7DD8EE39C09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Polaris Sector (2016) [Ru/En/Spa] (1.06с/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:0E2CD42F2FBA644FC2C2D6DC9485173C0E774A4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Park — это психологический ужастик от перв�
 magnet:?xt=urn:btih:BE2FB5A6CF8EE935FD8D79B084B6F08FD924CA63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ ATV Drift and Tricks (2017) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:13D6B788BEAB3A05886197F80CF89FC23C7DAEBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Invasion: Lost in Time / Вторжение: Затерянные во врем�
 magnet:?xt=urn:btih:77C62C1E4114506AF045DC0E542FF0E433210C8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Trucker 2: Reboot / Перевозчик 2: Перезагрузка Колле�
 magnet:?xt=urn:btih:73B67ED34C59828B14F202D5529C7D3670EF402A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Serious Sam HD: The First Encounter / Крутой Сэм HD: Первая кр�
 ```bash
 magnet:?xt=urn:btih:B8238D832721CE5F3FF3E9DF858BF55D9AE1697E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Ukrainian Ninja (2014) [En/Uk] (1.0) License PROPHET
 magnet:?xt=urn:btih:8165F6154DB68020D42DE9E90E025C5E9AA92D38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Mystery Case Files 14: Broken Hour Collector's Edition (2016) [En] (1.0) Unoffic
 ```bash
 magnet:?xt=urn:btih:AF671AE4E8877156BF44685DE367EA2D0560A750
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Lords Of The Fallen (2014) [Ru/Multi] (1.0.0/dlc) License GOG [Game of the Year 
 magnet:?xt=urn:btih:C4DD8070D8FEAB3A94D4A63B0AF9168616033318
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Dread of Laughter (2018) [En] (1.0/upd4) License PLAZA
 ```bash
 magnet:?xt=urn:btih:69D2203681C2FD9D988715D9241742127960AC06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Handball 16 - спортивный симулятор по гандболу от
 magnet:?xt=urn:btih:FDBF6412CBAE980E0861A1852B5368B7B90CE814
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:FDBF6412CBAE980E0861A1852B5368B7B90CE814
 ```bash
 magnet:?xt=urn:btih:5EB0D4350B7C69A23533BF3FB6CC868A122DFABF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Road Rage (2017) [Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:EE0940981FE182ED7D9FD307A17662E7774014DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ The Whispered World / Ускользающий мир (2010) [Ru/Multi] (3.2.041
 ```bash
 magnet:?xt=urn:btih:DD9EFF28E4F1AFE19C14CE70573BF07CA7095C79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ Thief Simulator (2018) [Ru/Multi] (1.02) License CODEX
 magnet:?xt=urn:btih:889DBE0A9159AAFA05BCFC6B5509546D722E16A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:889DBE0A9159AAFA05BCFC6B5509546D722E16A5
 ```bash
 magnet:?xt=urn:btih:A6ABE139975C42CA10122E6D67C94A02C4A9D214
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ Willy-Nilly Knight (2017) [Ru/Multi] (1.1.0) Repack R.G. Catalyst
 magnet:?xt=urn:btih:1FB8EE40FCEAAF50A86380A71191CDBF31042554
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Outcast - Second Contact (2017) [Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:8C7C0759F7F7CA9111FF1B0A7F3E1F7A1E59D6AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Nioh: Complete Edition — полное издание приключенчес�
 ```bash
 magnet:?xt=urn:btih:17317CB3C698F224A766C76BC3375389B7EC5880
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

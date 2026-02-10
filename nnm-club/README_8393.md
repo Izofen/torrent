@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:38FBC2C06B3C66A59E40F1FE4544DE98B5294E4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:38FBC2C06B3C66A59E40F1FE4544DE98B5294E4C
 ```bash
 magnet:?xt=urn:btih:DD92B4B02015C8058E28F453F103B0A87EF0D6A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:DD92B4B02015C8058E28F453F103B0A87EF0D6A4
 magnet:?xt=urn:btih:FF8F558A02F16ABE73CF16EDCCCAB8D9A36D1118
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:FF8F558A02F16ABE73CF16EDCCCAB8D9A36D1118
 magnet:?xt=urn:btih:A5CF9F5A66B804474D3CD677BAC8DA475B424E3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:A5CF9F5A66B804474D3CD677BAC8DA475B424E3C
 ```bash
 magnet:?xt=urn:btih:805F8DFDCF43EE103F80587CA9FAC2BAAF7EDDF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:805F8DFDCF43EE103F80587CA9FAC2BAAF7EDDF8
 magnet:?xt=urn:btih:EA42E8C7FB6E58AD25F81D7078593A9BBCBD9E54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:3129E31E7FC74B967A33C23C335B4B1DECBA4C81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ The Cranberries - MTV Unplugged (Live MTV Unplugged) (2025) [FLAC 24/96|Lossless
 magnet:?xt=urn:btih:F1912514B52172E909B45A1FF3EC5712198D902C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:F1912514B52172E909B45A1FF3EC5712198D902C
 ```bash
 magnet:?xt=urn:btih:558289F04B73E0CBFED47BE1EBC2DA2648DDE4DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:558289F04B73E0CBFED47BE1EBC2DA2648DDE4DE
 magnet:?xt=urn:btih:6885CF5F08D707C99BC7CB8C372BDDA833D17EA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Complete XBLA Games [Xbox 360] [Freeboot/Jtag] [Rus/Eng] (2005-2012)
 ```bash
 magnet:?xt=urn:btih:7A779CDEC54845DEE7CD7FD1E85AE77A73430321
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:7A779CDEC54845DEE7CD7FD1E85AE77A73430321
 magnet:?xt=urn:btih:BFF91C8B0573D8D2AC4D58F513DD4D546BC453C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:BFF91C8B0573D8D2AC4D58F513DD4D546BC453C4
 magnet:?xt=urn:btih:DC065983E16DBDB2356E8F77F582248E483705B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:DC065983E16DBDB2356E8F77F582248E483705B5
 ```bash
 magnet:?xt=urn:btih:EC5E368CAF67B88581D55812D73FF4F516CEEAC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:EC5E368CAF67B88581D55812D73FF4F516CEEAC4
 magnet:?xt=urn:btih:C36B58BBFC7A5776250BB6B92A452E7EF01FFD06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ MotoGP. Этап 21 из 22. Гран-при Португалии. Квалиф�
 ```bash
 magnet:?xt=urn:btih:976378F86F7D499ECBA7CA43AAF7DFB373613C5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:976378F86F7D499ECBA7CA43AAF7DFB373613C5E
 magnet:?xt=urn:btih:94A9731C9748E6228C88C15FBEAA17D8914B2692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ MKVToolnix - функциональный набор инструментов д
 magnet:?xt=urn:btih:4204DA009E928F236B1CB47162AA876FA64AF43E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:4204DA009E928F236B1CB47162AA876FA64AF43E
 ```bash
 magnet:?xt=urn:btih:F844D85414383AA7750189F0F364A444C91726D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ Armin van Buuren - Piano (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
 magnet:?xt=urn:btih:C9F4AC3FB16DCCBFDF1F7DB535A20A7C93E56A0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ Perturbator - Age of Aquarius (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Darkwa
 magnet:?xt=urn:btih:6BB937B87C9D3D494DB577E2075DC11997FA1347
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:6BB937B87C9D3D494DB577E2075DC11997FA1347
 ```bash
 magnet:?xt=urn:btih:E44E08462BCD3BD45F8A5BB6AA40C9FFF087DD57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:E44E08462BCD3BD45F8A5BB6AA40C9FFF087DD57
 magnet:?xt=urn:btih:3F9B06E8754058982B314D5DC4586AEEAABDAFC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ Dopamine — элегантный аудиоплеер, который стре�
 ```bash
 magnet:?xt=urn:btih:0FBE25D20D0403D7F94ED44462516B14986667F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:0FBE25D20D0403D7F94ED44462516B14986667F9
 magnet:?xt=urn:btih:DD722A59946FF4AD7BC1F1B908B7076078232E8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ magnet:?xt=urn:btih:DD722A59946FF4AD7BC1F1B908B7076078232E8B
 ```bash
 magnet:?xt=urn:btih:DAA076AC5C37211E8423073B3AFE97E3E99BECA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

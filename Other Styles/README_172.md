@@ -19,6 +19,8 @@ VA - Super Instrumental Collection (Vol. 1 - 30). 19 альбомов из 30 (1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Dreamstate Logic - 6 Compilations (2015-2020) [MP3|320 Kbps] <Ambient, Downtempo
 ```bash
 magnet:?xt=urn:btih:04094F65A6C918E0C7E3D4A20C7DDBE2B55F8085
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Ray Hamilton - Romantic Panpipes. Panpipe Melodies /2CD/ (2009) [MP3|320 kbps]<I
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Keegan DeWitt - All the Bright Places / Все радостные места (Mu
 ```bash
 magnet:?xt=urn:btih:A51AB29778E6B9FE11A5D58223B810AD462FEC3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Justin E. Bell - The Outer Worlds (Original Soundtrack) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:8C691606503CE3EBE984A8D572B57B0876A102C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ Keegan DeWitt - All the Bright Places / Все радостные места (Mu
 magnet:?xt=urn:btih:80BF1A88B73145A30100B8BFD78935743E44CDEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +195,8 @@ Marcus Paus - Mortal (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:D5A7EE883A40BC2625A803878036C15F9F7A0FDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +231,8 @@ Faun - Von Den Elben (2013) /Deluxe Edition/ [FLAC|Lossless]<Medieval, Folk>
 magnet:?xt=urn:btih:8E2E7A370455B0B0CC2D56B1A08F3EAD89834FA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +259,8 @@ M83 - Suburra (2015) Original Motion Picture Soundtrack [MP3|320 кб/с]<Soundt
 ```bash
 magnet:?xt=urn:btih:59906ECD663AEAE63A82DD23D9057BEDF583B3A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +295,8 @@ Oliver Scheffner - 9 Альбомов (2012-2013) [MP3|192-320 кб/с]<New Age>
 magnet:?xt=urn:btih:4F95B0543A10C66B2A032EFF70850FE6862905FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +320,8 @@ Giovanni Marradi - 4CD (1996, 1998, 2010) [APE|Lossless]<Instrumental>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +356,8 @@ Mark McGuire - Along the Way (2014) [FLAC|Lossless]<New Age, Ambient >
 magnet:?xt=urn:btih:E950D4648B2A72A25BC43B2A57CC540A93BF78A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +389,8 @@ Valentin Stip - Sigh (2014) [FLAC|Lossless]<Ambient, Leftfield, Downtempo>
 magnet:?xt=urn:btih:5FDF3B2275D03F9394905171BBB66DFB5845E28A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +417,8 @@ Clint Mansell & Kronos Quartet - Noah (2014) [FLAC|Lossless|tracks + .cue] <Scor
 ```bash
 magnet:?xt=urn:btih:1182EC22CF0A589BE156DBFF7B7CF72847A13352
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +452,8 @@ Benise & Arkenstone - Barcelona Lounge No.1 (2013) [MP3|192 кб/с]<Instrumenta
 magnet:?xt=urn:btih:8672C7291711989F07D422F96AEEF8C8972F12C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +478,8 @@ magnet:?xt=urn:btih:8672C7291711989F07D422F96AEEF8C8972F12C9
 magnet:?xt=urn:btih:AF261F0E9722EB025EADA11CC7D7F68BFDABEA89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +503,8 @@ VA - XXXL Кинокайф (2009) [MP3|256 kbps]<OST>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +539,8 @@ VA - XXXL Кинокайф (2009) [MP3|256 kbps]<OST>
 magnet:?xt=urn:btih:0E43B14F9888128FC3A3C626F29648776D5AA2AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +568,8 @@ Anuvida & Nik Tyndall - Reiki Healing Hands (1995) [FLAC|Lossless|tracks + .cue]
 magnet:?xt=urn:btih:68771BAF3CDC22297D5DDBA118A12CB8466D99F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +596,8 @@ Sarah Harmer - Are You Gone (2020) [FLAC|Lossless|tracks + .cue] <Rock, Pop, Fol
 ```bash
 magnet:?xt=urn:btih:13101FBB6CCB8A5208C85C4351E59BBB47304B01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +632,8 @@ Gheorghe Zamfir - Greatest Hits (2CD) (2002) [MP3|320 кб/с]<Instrumental>
 magnet:?xt=urn:btih:504FC30AAF807A3822791A2FDA6183E1608FBD19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +666,8 @@ VA - Telarc CD Sampler 01, 02 & 03 (1984-1986) [WavPack|image+.cue|Lossless]<Sam
 ```bash
 magnet:?xt=urn:btih:A993FDAF8006DB18117EB8992BF7C051913CB113
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +702,8 @@ Otto A Totland - Pino (2014) [FLAC|Lossless]<Piano, Contemporary, Modern Classic
 magnet:?xt=urn:btih:6B684BC3E2CE6BC584D88CC0D9F50C4748746F7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -683,6 +729,8 @@ Sunn O))) & Ulver - Terrestrials (2014) [FLAC|Lossless]<Dark Ambient, Drone>
 ```bash
 magnet:?xt=urn:btih:890454322DAD9468F5204A0724039FE4217DB389
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -717,6 +765,8 @@ The Gyuto Monks of Tibet - Chants: The Spirit Of Tibet (2013) [MP3|320 кб/с]<
 magnet:?xt=urn:btih:B33915BBB516DADE8ABFCE0CEC121B663E338D04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -749,6 +799,8 @@ Gustaf Grefberg - Enclave (2004) [MP3|~190 кб/с]<OST>
 ```bash
 magnet:?xt=urn:btih:1270DEFE593A977AA86A6FA578B58ABA1A81B784
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

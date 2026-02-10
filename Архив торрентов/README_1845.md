@@ -19,6 +19,8 @@ Autorun Organizer - простое в использовании приложе�
 magnet:?xt=urn:btih:80027370ED807F03D872D4DDDE3ACBE85C8F805B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Skype предназначен для личного и делового общ�
 ```bash
 magnet:?xt=urn:btih:E8DFAA55D96653D56C63E21C4F82C5FA60CF501A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ NIUBI Partition Editor (Repack & Portable) – программа для про�
 magnet:?xt=urn:btih:AA1D0B847ED1EC769B61852903BC9B9162BD8102
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ CherryTree - функциональная программа, которая п�
 ```bash
 magnet:?xt=urn:btih:E4AD03C2E4DC86C3F2296A03FF4BCD73671B9519
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:E4AD03C2E4DC86C3F2296A03FF4BCD73671B9519
 magnet:?xt=urn:btih:988015DCE895D8A7031C7DA4F8C9047998A07102
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Edge Action: Edge Screen, Sidebar Launcher - это полезное прило�
 ```bash
 magnet:?xt=urn:btih:6A7038999FC0F2E104B8225CED22ABB7164DE0FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Glary Utilities - функциональный набор системных т�
 magnet:?xt=urn:btih:430825DC0E0CC593EBBDFD87F093F9D839A2C2BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:35620A6E74D829CFC270E04E87F1E70394714953
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ NIUBI Partition Editor – программа для простого и над�
 magnet:?xt=urn:btih:AE46BBA36669CA036864C0C67FA7FEEDBF3BB946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Adobe Acrobat Reader для PDF 22.2.0.21450 Mod by Apps Store [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E1DB621E437B4C0BD800536B2E8D8669996EA997
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Wondershare PDFelement - программа для общего редактир
 magnet:?xt=urn:btih:3B628B91806B7CDBFBEE4B25965408ED3C514854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Duplicate Cleaner - мощный и профессиональный инстр�
 ```bash
 magnet:?xt=urn:btih:D22BC56AEBA5DDEF3127F591B2EA7C443BCCDCC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ TrackView - это приложение предназначенное для с
 magnet:?xt=urn:btih:C3573A7B51FCDBA8BA0B833BF249880A4FAB9E60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:652D03A548AD398F731960C5B2D894B1238CBBB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:652D03A548AD398F731960C5B2D894B1238CBBB5
 magnet:?xt=urn:btih:D4E631A5812A2A4C8EDD3C44F126A6AB8E40C54E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Qalculate! - это многоцелевой кросс-платформенны
 magnet:?xt=urn:btih:FA4A052B8BAE442566DA6B2A46F44C4639FE8E0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:FA4A052B8BAE442566DA6B2A46F44C4639FE8E0D
 ```bash
 magnet:?xt=urn:btih:8B90B573F8B3204324120184C54D2F374430C6ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Evorim Free Firewall – бесплатный фаервол, альтернат
 magnet:?xt=urn:btih:C1C55BFF48EE78ACD80CA014B0A4CE6D8AD8414D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 ```bash
 magnet:?xt=urn:btih:A5C1872E69CA49E5A3E2D1D3222D54EAFB93A973
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ _updated_feb_2022_x64_dvd_29a6f005.iso
 magnet:?xt=urn:btih:FE32F8D109DF9083459812D25BAA74CCBD06CFB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Spotify имеет громадный каталог музыки, поддер�
 ```bash
 magnet:?xt=urn:btih:4ECE23038B6F388D16082493092932B2D0A2D090
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ One Commander V3 — это современный файловый менедж
 magnet:?xt=urn:btih:E4D06EA1CD5E2A1E28BECC5ECD87C8BC1D6A06D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ R-Drive Image — является эффективной утилитой дл�
 magnet:?xt=urn:btih:4A027A7078C7C18293E8532C4B77ED2B14BAE7FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ SIV (System Information Viewer) - мощнейшая утилита, показ�
 ```bash
 magnet:?xt=urn:btih:63CEA68395219E0B124C2529BB17F420566D7C67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Hex Editor Neo - мощный Редактор Шестнадцатеричны�
 magnet:?xt=urn:btih:8A081C66C22933A0C6CBDD1817ADEFDE99E456A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ EarthView — это динамические обои для рабочего �
 ```bash
 magnet:?xt=urn:btih:EF2E14EC2E1DE584DCC70A4D8F48D721BBC909A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

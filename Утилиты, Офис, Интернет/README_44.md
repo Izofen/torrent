@@ -19,6 +19,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:E67DCC9031494A9200A7428314BD129119E910BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Allavsoft Video Downloader Converter - это мощный видео загру
 ```bash
 magnet:?xt=urn:btih:541A28CEAA56E1FF0588CAC1B9C5AE8F8FB448EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Windows Manager - это универсальная утилита для Micros
 magnet:?xt=urn:btih:8E4C274F8BDD109D93045AF2F71B192429BB75F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:6C08CEA0F4A6D9CC2EEEBFEE0AD624915174FB77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ imyPass Windows Password Reset Standart / Platinum / Ultimate 1.0.16 [En]
 magnet:?xt=urn:btih:030F4145A14EF486A40FFCC648CDD61DBE3E4A80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Auslogics Duplicate File Finder поможет Вам избавиться от 
 ```bash
 magnet:?xt=urn:btih:CA717517D7434C327B87876D608748FC4DFADD74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Universal Maps Downloader - программное решение для ска�
 magnet:?xt=urn:btih:315213673CAC2C8416AFF5FECE189C4DF17AD541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ SIW (System Info For Windows) - системная программа для о�
 ```bash
 magnet:?xt=urn:btih:C3AD3C75AFA3EE824639FE9AE35F3E3878F358E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Psiphon - это новый инструмент обхода интернет-�
 magnet:?xt=urn:btih:B5E7492FA799DBEC3E06879C241D553F8D0264F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:B5E7492FA799DBEC3E06879C241D553F8D0264F8
 ```bash
 magnet:?xt=urn:btih:0ED0F3CEA3302417092DF58DAD7C1C37175D3DD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ RustDesk Remote Desktop – программное обеспечение для
 magnet:?xt=urn:btih:B6E074CF0DB1551727909E00CF6895DCD0064F80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Auto Shutdowner 1.3 + Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:850E03F994A71D92D4E518647A74CB9535316F9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ ICQ — Программа для мгновенного обмена сообщ
 magnet:?xt=urn:btih:9687B457FDEC1065ECD008FD114D823CD604D00B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Scrivener — мощный текстовый редактор для тех, к
 ```bash
 magnet:?xt=urn:btih:C5EAC6A631E47158FF25EEC18BBDCE80EB8C0AA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ EasyBCD - менеджер загрузки операционных систе�
 magnet:?xt=urn:btih:D4FF05C37BE078637DE2EE95BA3437F2AF00746C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Driver Easy - системный инструмент, который позво
 ```bash
 magnet:?xt=urn:btih:A6DD61FFEC3F91946E9474559D084F1831CE84D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Tor Bridges Updater 0.1.5 Portable [En]
 magnet:?xt=urn:btih:5C13CEF07A47A32B2E0AAD51363FCA17BCA15BBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ MediaHuman YouTube to MP3 Converter - программа для сохранен
 magnet:?xt=urn:btih:19E47D3A2139403E7946169D110C9F7C6DCBCB09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:19E47D3A2139403E7946169D110C9F7C6DCBCB09
 ```bash
 magnet:?xt=urn:btih:F5C5F46B306E322F9A0FDBC9E758983FD83777F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:F5C5F46B306E322F9A0FDBC9E758983FD83777F5
 magnet:?xt=urn:btih:50D26BFE24D35407E249B5CF2EAC4DA35B2BA3E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Paragon Disk Copy 15 программное решение для миграци
 ```bash
 magnet:?xt=urn:btih:B09C0330B181448DB22C9700BAC6C6A7AF404826
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ OBS - полностью бесплатная программа для виде
 magnet:?xt=urn:btih:06561BE3243B8629F555996D2B875A81FBD3EA51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Password Recovery Bundle – пакет программ, позволяющая
 magnet:?xt=urn:btih:3300313D43885558F9935DE2A81100E2E1B75F14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Microsoft Office 2016 — новый офисный пакет от корпор
 ```bash
 magnet:?xt=urn:btih:4D5D294CE9C950282E9F8FC8481C7175B4FBBE23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Coolmuster Word to PDF Converter — это отличный инструмен�
 magnet:?xt=urn:btih:6FB5ADC7245248D5975CB88EDAC7A5B6EE3A3460
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Coolmuster PDF Creator Pro 2.1.20 RePack by вовава [Ru]
 ```bash
 magnet:?xt=urn:btih:5A231211511BD73EF229D4DCF849B41DCE9D2942
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

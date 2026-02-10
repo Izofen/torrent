@@ -1,51 +1,3 @@
-###  Публикация: 936818   (492360) от 13.09.2015
-
-Обои - Водопады 7 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои на тему водопадовФормат: JPGРазрешение файлов: 1920x1080 - 2560x1440
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1667146517D90EB3D519AFB2D8A1213B70A58123
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542923   (492828) от 06.09.2012
-
-[Wallpapers] HD обои высочайшего качества By Satirov
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492828.jpg" />
-</div>
-
-
-###  Подробнее
-
-представляю вам Очередную мою сборку HD обоев высочайшего качества рассортированные по категориям для вашего удобства чтоб не качать всю смесь целиком.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D073830A1C9EC0BD3C41CEC0FC87E0ABCEF956B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404473   (492982) от 25.08.2020
 
 Обои - Кошачьи [JPG]
@@ -66,6 +18,8 @@ magnet:?xt=urn:btih:D073830A1C9EC0BD3C41CEC0FC87E0ABCEF956B7
 ```bash
 magnet:?xt=urn:btih:8CD74C3895A82BD751EBB95E0CAA665EC776A646
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +45,8 @@ magnet:?xt=urn:btih:8CD74C3895A82BD751EBB95E0CAA665EC776A646
 ```bash
 magnet:?xt=urn:btih:B5574F2D49DA7230C9F800552CE038F4AE166BE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +76,8 @@ magnet:?xt=urn:btih:B5574F2D49DA7230C9F800552CE038F4AE166BE9
 magnet:?xt=urn:btih:47919468D364D9FAC4DB726F4890EE68C0514412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +102,8 @@ magnet:?xt=urn:btih:47919468D364D9FAC4DB726F4890EE68C0514412
 magnet:?xt=urn:btih:C9B697140D7EADB243C6BD1B45837785C5FA4444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +127,8 @@ magnet:?xt=urn:btih:C9B697140D7EADB243C6BD1B45837785C5FA4444
 ```bash
 magnet:?xt=urn:btih:C90FB8652BDECD1B43E637367EE34C4B8A96B620
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +155,8 @@ magnet:?xt=urn:btih:C90FB8652BDECD1B43E637367EE34C4B8A96B620
 magnet:?xt=urn:btih:CE1EA7141B653A2D5D862662D0B26C641B5F92F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +180,8 @@ magnet:?xt=urn:btih:CE1EA7141B653A2D5D862662D0B26C641B5F92F1
 ```bash
 magnet:?xt=urn:btih:7D2E8D2796CFFF6AB5FA4559BECDB0E6C89A8AE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +207,8 @@ Computer Desktop Wallpapers Collection (07.09.12) [Wallpapers]
 magnet:?xt=urn:btih:D35CD9F2382F4C93D04BF8D9E9B6D9B406FD112B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +232,8 @@ Desktop wallpapers (07.09.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:AAC74AD4728995B762E712B86D35AF9BB0CCDE22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +259,8 @@ magnet:?xt=urn:btih:AAC74AD4728995B762E712B86D35AF9BB0CCDE22
 magnet:?xt=urn:btih:DA84F66F8274AD6003C59E8F8B849E8620FC1C6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +284,8 @@ magnet:?xt=urn:btih:DA84F66F8274AD6003C59E8F8B849E8620FC1C6A
 ```bash
 magnet:?xt=urn:btih:EDBC8A43EBBA95842BCCC541AAFE7FAC242CCDFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +311,8 @@ magnet:?xt=urn:btih:EDBC8A43EBBA95842BCCC541AAFE7FAC242CCDFF
 magnet:?xt=urn:btih:3865203F9B56C062A107DB5F274D3982FBB8ECC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +336,8 @@ magnet:?xt=urn:btih:3865203F9B56C062A107DB5F274D3982FBB8ECC1
 ```bash
 magnet:?xt=urn:btih:4CCD19319AFAFBD6D9B4B9C00CB547F72B7B1D66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +363,8 @@ magnet:?xt=urn:btih:4CCD19319AFAFBD6D9B4B9C00CB547F72B7B1D66
 magnet:?xt=urn:btih:FCA49ACBFE3CC64E078FF8D4F781D0D65003DF33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +388,8 @@ magnet:?xt=urn:btih:FCA49ACBFE3CC64E078FF8D4F781D0D65003DF33
 ```bash
 magnet:?xt=urn:btih:8FF2CCFD886C64A3441E194D077B8E77DA074CE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +415,8 @@ magnet:?xt=urn:btih:8FF2CCFD886C64A3441E194D077B8E77DA074CE1
 magnet:?xt=urn:btih:CA1D26B4AB89BC6607C5FB1B32DCA3ADEB2ECAE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +440,8 @@ magnet:?xt=urn:btih:CA1D26B4AB89BC6607C5FB1B32DCA3ADEB2ECAE8
 ```bash
 magnet:?xt=urn:btih:1FCF643AC1ACE0651E046931F48ED4D65E730ADC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +467,8 @@ magnet:?xt=urn:btih:1FCF643AC1ACE0651E046931F48ED4D65E730ADC
 magnet:?xt=urn:btih:D50C0A0B7FC206A62BA797B6D115A2C37C549FC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +492,8 @@ magnet:?xt=urn:btih:D50C0A0B7FC206A62BA797B6D115A2C37C549FC2
 ```bash
 magnet:?xt=urn:btih:08DEDFDB2F3DD14C0B0DB22CC1C5B59C05B2DAD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +519,8 @@ magnet:?xt=urn:btih:08DEDFDB2F3DD14C0B0DB22CC1C5B59C05B2DAD5
 magnet:?xt=urn:btih:8AEA57E80262D7AE0B98A332DC0A22B7B5E0829B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +544,8 @@ Grand Collection by Andrew Hibner
 ```bash
 magnet:?xt=urn:btih:3ABEA34E3922F321BD05F78C5439C44CF9FF35A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +571,8 @@ magnet:?xt=urn:btih:3ABEA34E3922F321BD05F78C5439C44CF9FF35A8
 magnet:?xt=urn:btih:19D919396F69FC6B5062DEF6D74AABFA5FF5FB38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +596,8 @@ magnet:?xt=urn:btih:19D919396F69FC6B5062DEF6D74AABFA5FF5FB38
 ```bash
 magnet:?xt=urn:btih:55E084DB80A100E711CE03FF971A9F8D13D6DF91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +623,60 @@ magnet:?xt=urn:btih:55E084DB80A100E711CE03FF971A9F8D13D6DF91
 ```bash
 magnet:?xt=urn:btih:66EAEB008228727BAB679CBB9F29D7C64C10874A
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935948   (497440) от 10.09.2015
+
+Обои - Коллекция обоев FullHD 1920х1080 #43 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция обоев FullHD.Формат: JPGРазрешение файлов: 1920х1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDC78D65ADE77B2F7CCD6AEC57DBF04E5D81A262
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935937   (497502) от 10.09.2015
+
+Обои - Находки заядлого грибника. 2560x1440 - 100 шт [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неуловимые лесные жители - грибочки, такие вкусные и желанные на нашем столе, к тому же абсолютно бесплатные, если вы не поленились и сходили по их светлые тушки в зеленую чащу в сухой приветливый осенний денек.) По себе знаю, собирая грибы, входишь в большой азарт, получая в итоге несказанное удовольствие!  Посему данная подборочка была составлена мною на радость (   Читать дальше...   )Формат: JPGРазрешение файлов: 2560x1440
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C312AB9E158B59C5D6EC74DF2DAB9244620A306
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

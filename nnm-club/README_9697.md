@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4924E31E1C55825682AC4400935A15825AAF0B2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:4924E31E1C55825682AC4400935A15825AAF0B2A
 ```bash
 magnet:?xt=urn:btih:93E386020152D686EF86451001F06726F6DF2F23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ VA - Always On Your Side: Indie Music (2019) [MP3|320 Kbps] <Indie, Pop Rock>
 magnet:?xt=urn:btih:75B9C1E5C7B7EE49D3303B727DE138B66534B967
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:75B9C1E5C7B7EE49D3303B727DE138B66534B967
 ```bash
 magnet:?xt=urn:btih:1E55703475435C329DDD1C45235E7FB0701620FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:1E55703475435C329DDD1C45235E7FB0701620FA
 magnet:?xt=urn:btih:1C92D7B5C5B0761456128AAFEC44BBE89107C86A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Unreal Commander - бесплатный двухпанельный файлов�
 ```bash
 magnet:?xt=urn:btih:A7421808668F4C10E9F092020E564B3436EBFB49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Sykespico - Perspective (2019) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
 magnet:?xt=urn:btih:5454B864B2B39980F5E9446232B365BF70D8ABF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:5454B864B2B39980F5E9446232B365BF70D8ABF7
 ```bash
 magnet:?xt=urn:btih:E1455863C82628FED1C8EF0C1B3018AEBCFAFCBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:E1455863C82628FED1C8EF0C1B3018AEBCFAFCBD
 magnet:?xt=urn:btih:172A84B33E13EBF1C2897AAB9A6F6C3033CF61B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:172A84B33E13EBF1C2897AAB9A6F6C3033CF61B6
 magnet:?xt=urn:btih:5D9270243800F76162C861528A0D3A6AA76DEC8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Pastello - программа предлагает всем почувствов
 ```bash
 magnet:?xt=urn:btih:8A8DBBDA51C1FF8EF23A380610DEF1971BA08B3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ VA - Mushrooms Of Psychedelic, Vol.02 (2019) [MP3|320 Kbps] <Psy Trance>
 magnet:?xt=urn:btih:A3716D50CE39A4029C35C5363D44574AB46EAAC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ Nico Vega - Wars (2018) EP [MP3|320 Kbps] <Alternative Rock, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:E29586F3C2E84C5C9A48B473AA557BB230D841CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ The Modern Jazz Quartet - The Modern Jazz Quartet Plays for Lovers (2012) [FLAC|
 magnet:?xt=urn:btih:9889AA31111CADEC1D729B5ACAE20318086DB93E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ VA - EDM Heartbeat Extended Mix (2019) [MP3|320 Kbps] <Club, Dance, Electro Hous
 ```bash
 magnet:?xt=urn:btih:70804D57B9C545D0BA31FD1BB7FB62C6D3495D84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ VA - Lounge Melodies Vol.1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:FEEEF06E4926CDE8E8794A86A2B5A122C4014A5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ Last Temptation - Last Temptation (2019) [FLAC|Lossless|tracks + .cue] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:A42159C0C653C748F9FFB3AF96B0594C7645A84E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ VA - EDM Heartbeat Extended Mix: Progressive Trance (2019) [MP3|320 Kbps] <Progr
 magnet:?xt=urn:btih:0B7254C10C8D3C268B7F002DBA100FF565FA9D06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:0B7254C10C8D3C268B7F002DBA100FF565FA9D06
 ```bash
 magnet:?xt=urn:btih:9B17DF0D1C9EF19EE9C4DA86C54446941EC4874A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:9B17DF0D1C9EF19EE9C4DA86C54446941EC4874A
 magnet:?xt=urn:btih:D52E21A510E842C4EE6DAC60A3EFB1A9FBB85D1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ magnet:?xt=urn:btih:D52E21A510E842C4EE6DAC60A3EFB1A9FBB85D1F
 ```bash
 magnet:?xt=urn:btih:8709E1BCA690D05DD78DAE824CFEC2D714667702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ magnet:?xt=urn:btih:8709E1BCA690D05DD78DAE824CFEC2D714667702
 magnet:?xt=urn:btih:CCCBA979C6CE5765F2DC7295163E5663A4009F2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ magnet:?xt=urn:btih:CCCBA979C6CE5765F2DC7295163E5663A4009F2A
 ```bash
 magnet:?xt=urn:btih:019717EE924EF1F8BDA860242DB9577B7753718F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:019717EE924EF1F8BDA860242DB9577B7753718F
 magnet:?xt=urn:btih:A6F4254FE1E2A38C53A603EE9F51EBFE37DF4397
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:A6F4254FE1E2A38C53A603EE9F51EBFE37DF4397
 ```bash
 magnet:?xt=urn:btih:77ADDA13A50AD9630587C80EE47B7163AD19EEFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +705,8 @@ Massive Attack - Blue Lines - 1991 (Remastered) [FLAC 24/96|tracks]<Trip Hop>
 ```bash
 magnet:?xt=urn:btih:5FFB2357E9A19E4EC236955D4A08F9CE9E28F78A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

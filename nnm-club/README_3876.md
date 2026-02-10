@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1FC54B6915B3AD318F4C0F06F596F9B8E477EB50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Old World v.70360 (2020) [Multi/Ru] [macOS Native game]
 ```bash
 magnet:?xt=urn:btih:A103841C7C378CDA4507AE26E6F0658F9F553DE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Bomb Rush Cyberfunk (2023) [Ru/Multi] (1.0.20385) License GOG
 magnet:?xt=urn:btih:441EED8154CB032C0F75EFBECEACB50B5F4B3D9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:441EED8154CB032C0F75EFBECEACB50B5F4B3D9F
 ```bash
 magnet:?xt=urn:btih:148AC2D713B1DE1F583A96BCA55788E56477E0F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Inspector Gadget - Mad Time Party / Инспектор Гаджет – Безу
 magnet:?xt=urn:btih:52E70ACB81B57D09511B2BE83BFADA0C0F0A1FAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:52E70ACB81B57D09511B2BE83BFADA0C0F0A1FAD
 ```bash
 magnet:?xt=urn:btih:181D48FC17BF995E8C4765E815BAEC3A1A986091
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:181D48FC17BF995E8C4765E815BAEC3A1A986091
 magnet:?xt=urn:btih:8E1140A049F99C2310AA7462F770BCC7D52BC955
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:8E1140A049F99C2310AA7462F770BCC7D52BC955
 ```bash
 magnet:?xt=urn:btih:0204F6777B3D760C90AC5F7D5486732E4D1720D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:0204F6777B3D760C90AC5F7D5486732E4D1720D3
 magnet:?xt=urn:btih:9102423F2D1A6C15D0F98F6644BF8C32EFBDAFE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:9102423F2D1A6C15D0F98F6644BF8C32EFBDAFE1
 ```bash
 magnet:?xt=urn:btih:53566472DB9328846B7A824DB2194F37F9F3CB12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:53566472DB9328846B7A824DB2194F37F9F3CB12
 magnet:?xt=urn:btih:A1AE29708709A65E5497AAA3DDD4DDB97E182F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Train to Nowhere (2024) [Ru/En] (Build 11054454) Repack Other s
 magnet:?xt=urn:btih:2ECD7C969C270022D063C771DE6D54F0C8DB87B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:2ECD7C969C270022D063C771DE6D54F0C8DB87B3
 ```bash
 magnet:?xt=urn:btih:B6822C7416963D55CE37CEC15C4B957ADA3E46A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:B6822C7416963D55CE37CEC15C4B957ADA3E46A9
 magnet:?xt=urn:btih:3E7794AE57495028F06B9C49C3D6498CFD80A391
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:3E7794AE57495028F06B9C49C3D6498CFD80A391
 ```bash
 magnet:?xt=urn:btih:9C6D10C71E1EA883708FFBDF4372DB50D23C96C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:9C6D10C71E1EA883708FFBDF4372DB50D23C96C0
 magnet:?xt=urn:btih:1C861ED32117FF29815F9D2332621D11D868323B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:1C861ED32117FF29815F9D2332621D11D868323B
 magnet:?xt=urn:btih:AC752C7395DE697630B8D8E030D8483BE60F1A19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:AC752C7395DE697630B8D8E030D8483BE60F1A19
 ```bash
 magnet:?xt=urn:btih:5D120069B2008B4FBDB9A75D0C403AF8AB49308C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ A Night at the Watermill – внезапно посреди ночи вы пр�
 magnet:?xt=urn:btih:0D57648FF89086C97909DACC6CBD2274713A9734
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:0D57648FF89086C97909DACC6CBD2274713A9734
 ```bash
 magnet:?xt=urn:btih:EFFB725D4A7F9CF784E3F0FDA8942785C48AD747
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:EFFB725D4A7F9CF784E3F0FDA8942785C48AD747
 magnet:?xt=urn:btih:957A600F8BEA43079DBA97E8C0FE2DB6AD5290CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ DtcFix -  универсальное приложение для диагнос�
 ```bash
 magnet:?xt=urn:btih:470F6082F6E0B7A150529406505521638204E200
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:470F6082F6E0B7A150529406505521638204E200
 magnet:?xt=urn:btih:908BF9B1C99F5691B1066CFE8D46F23A7CFB6979
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:908BF9B1C99F5691B1066CFE8D46F23A7CFB6979
 ```bash
 magnet:?xt=urn:btih:E5CA1613E7F807BEA6F9000502C3A6BA0899E99A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:E5CA1613E7F807BEA6F9000502C3A6BA0899E99A
 magnet:?xt=urn:btih:7453C315CC5A60D4AB4B10D6634CB1D1E171AFFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Tekken 8 - продолжение культового файтинга, нап�
 ```bash
 magnet:?xt=urn:btih:39C7E17EBC2D1EA4972E5C4845CA3A676C163328
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

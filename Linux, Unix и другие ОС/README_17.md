@@ -19,6 +19,8 @@ Xubuntu — дистрибутив Linux, основанный на проект
 magnet:?xt=urn:btih:3E04732D742BB1596FAF822E1B57CE2D8F417512
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Kubuntu 14.04.3 LTS [i386, amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:D469CD2785B4DE20E67D0AC50FFDB6E3A49A8CFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ ABBYY FineReader 8.0 Professional Edition - профессиональная в�
 magnet:?xt=urn:btih:3715E3E1A803AAD76CEE6CA43A0AAD5FAF906849
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Korora Linux (ex. Kororaa, Linux для начинающих) 22 Live [x86-64] 5
 magnet:?xt=urn:btih:11DF162AC3718B8E3711815B8BE6D19B3E658097
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Korora Linux (ex. Kororaa, Linux для начинающих) 22 Live [i386] 5xD
 ```bash
 magnet:?xt=urn:btih:7F3D4D033D1F679D02B0641F543ACF34DA3C6F7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Tanglu 3.0 Chromodoris willani Live [Plasma KDE 5] [i686] 2xDVD, 1xCD
 magnet:?xt=urn:btih:D257459372DAAC68A0CF705A48BDC1ED75EA0E5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Tanglu 3.0 Chromodoris willani Live [Plasma KDE 5] [amd64] 2xDVD, 1xCD
 magnet:?xt=urn:btih:FEF7CB5B8BDA89FC38876B2997591F3E6E1CC720
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ ArchLabs - это дистрибутив, основанный на Arch Linux �
 ```bash
 magnet:?xt=urn:btih:5857E0F6143F891D3B69936B5E127FAE607D2645
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ CentOS 7.5 (1804) [i386] 2xDVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:F8FCCA4254984A5EDFD8C0C0E5850D0512E61B1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Mageia 5 Alpha II [i586, x86-64] 7xDVD
 magnet:?xt=urn:btih:49AFBE08C8CF66E70E4FB0B219B7B4145EB28F13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ Ubuntu — это разрабатываемая Canonical, основанная
 ```bash
 magnet:?xt=urn:btih:960C0DF3EC4931DA251087B129CC1A66BB25835E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ Slackel Fluxbox 1.0 Live (Легкий дистрибутив) [x86, x86-64] 2xC
 magnet:?xt=urn:btih:7267693054C66CD3F6F1B810B72F9D0ADE350D82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ Kubuntu 14.10 Utopic Unicorn Beta I [i386, amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:4D5A9100CC8833D2FBAA1BD032386DF49F49F031
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ Lubuntu — это свободная операционная система н
 magnet:?xt=urn:btih:C76BFA7AC9B275DAC190114549CC648057412185
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ BlackArch Linux — специализированной Live модификац
 magnet:?xt=urn:btih:6DA361AD2BEE000243364A62325444E0E34D2DE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:6DA361AD2BEE000243364A62325444E0E34D2DE9
 ```bash
 magnet:?xt=urn:btih:398BC7C77AE09FA56A1401D4B5CF72B5EB72A03A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ Manjaro Linux 0.8.7 (Arch + XFCE, openbox, net: легкий дистрибут�
 magnet:?xt=urn:btih:D26D358C4EF062776BE25391AFC874A4E9792A10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ Wing IDE - интегрированная среда разработки, пр�
 magnet:?xt=urn:btih:537587AACFAD83DFA24E2D80E35FDB86664ABDF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ Kingsoft Office — офисный пакет, созданный китайск
 ```bash
 magnet:?xt=urn:btih:46ED73771BD2F60B7631B89CB593D439E66ABB7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ Debian Live GNU/Linux 9.5.0 + nonfree Stretch [amd64] 12xDVD
 magnet:?xt=urn:btih:6C53D1DF5AE43903E37F8838C45A650BFE061C84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ MorphOS — проприетарная многозадачная операци
 ```bash
 magnet:?xt=urn:btih:8FE95160DB83A7D9C9535FE8C87316E7B32853B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ Parted Magic — готовое решение для работы с разде
 magnet:?xt=urn:btih:27635A27178CADEBA77C4965717BE1308706ED21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ Sabayon 17.08 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 ```bash
 magnet:?xt=urn:btih:9CAE1C694219C8AFE571CD1D18807C0FB1935ED2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ Oracle Linux 6.7 Server [i386, x86-64] 2xDVD,2xCD
 magnet:?xt=urn:btih:E74EF1D14636A36F95A90F93EE1D8BCDB27368D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ Gentoo Linux 20160704 LiveDVD [x86, amd64] (2xDVD)
 magnet:?xt=urn:btih:75C69686CC33579F39EB85C485A0693F635D8617
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ BlackArch Linux 2016.08.19 [Хакинг, аудит, безопасность] 
 ```bash
 magnet:?xt=urn:btih:9D24CE02023B0375D5880226A0028539D90DD24C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

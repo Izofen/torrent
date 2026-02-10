@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3964856C6DAFAC3543418749562997CB9E162491
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Mach Desktop 3 v3.0.3 [En]
 ```bash
 magnet:?xt=urn:btih:8645F235837953F22E16A2188A08930B3F89076D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:8645F235837953F22E16A2188A08930B3F89076D
 magnet:?xt=urn:btih:4A921C248A4F898DFAD4D56E077EEA32D8BEEB1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:4A921C248A4F898DFAD4D56E077EEA32D8BEEB1C
 ```bash
 magnet:?xt=urn:btih:3100DF1503FF95760CED001C3A74DD1E591B6A06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:3100DF1503FF95760CED001C3A74DD1E591B6A06
 magnet:?xt=urn:btih:56272046130DC846A03BFA8BD0C6A44B488BC56E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Movavi Screen Recorder 10 [Multi/Ru]
 magnet:?xt=urn:btih:F88814AA0CB5EEB534A4495A3B9D51B163EED4C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ magnet:?xt=urn:btih:F88814AA0CB5EEB534A4495A3B9D51B163EED4C4
 ```bash
 magnet:?xt=urn:btih:77C0D829AEA722FED4C69A182358B4ADBB628CED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:77C0D829AEA722FED4C69A182358B4ADBB628CED
 magnet:?xt=urn:btih:A4B0FB95FED5F651E943D9C453D827AC4D14CFF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Digital Clock 3D 1.1.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EF0CE4256EE9C523AA47C39B52F10B7130A48A75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:EF0CE4256EE9C523AA47C39B52F10B7130A48A75
 magnet:?xt=urn:btih:1D3DEB9FAD818AE0851F88DFA8723B03A8849192
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Coolmuster Android Assistant — приложение для резервног�
 ```bash
 magnet:?xt=urn:btih:4EE157EEDA179CF8E2554A5F90033445B9BABBB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:4EE157EEDA179CF8E2554A5F90033445B9BABBB1
 magnet:?xt=urn:btih:D4711051F096536D32C6759D43EAA91B8451810C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:D4711051F096536D32C6759D43EAA91B8451810C
 ```bash
 magnet:?xt=urn:btih:669D438FA850E9487DBBC371541C5121F19220FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Skey - Detalized Forms (2CD) (2009) [MP3|320 kbps]<IDM, Breaks, Experimental>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Skey - Detalized Forms (2CD) (2009) [MP3|320 kbps]<IDM, Breaks, Experimental>
 magnet:?xt=urn:btih:0E8EFC056A54D690C8521FB0ADA8DC82AE066DEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:0E8EFC056A54D690C8521FB0ADA8DC82AE066DEA
 ```bash
 magnet:?xt=urn:btih:4E789C04C0347BB8C82E3996F3710F22AAF8F0ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ Timmy Trumpet - Tomorrowland One World Radio Halloween Freak Show 2019-11-01 [MP
 magnet:?xt=urn:btih:CE20DE30B60B9FEF6931729D43DBB1C20ABD19A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:CE20DE30B60B9FEF6931729D43DBB1C20ABD19A8
 magnet:?xt=urn:btih:024ADB221A8FA59DE6B0407564C1E2BD40D315D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:024ADB221A8FA59DE6B0407564C1E2BD40D315D4
 ```bash
 magnet:?xt=urn:btih:54F3826AAF43CAC5DE3EE7CB7C188A8F5367E475
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ John Beltran - Hallo Androiden (2019) Blue Arts Music [FLAC|Lossless|tracks+.cue
 magnet:?xt=urn:btih:BBDD30CA667F423F7404745EF2A998CE0A4827A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:BBDD30CA667F423F7404745EF2A998CE0A4827A6
 magnet:?xt=urn:btih:E75770DE835A7CA805257CA4E5B55E69E095DCC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:E75770DE835A7CA805257CA4E5B55E69E095DCC7
 magnet:?xt=urn:btih:AFCAA3414ECE97ED07D483ECDBCA6AA2E8E5BE8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ JixiPix Premium Pack — пакет из всех последних выпущ�
 ```bash
 magnet:?xt=urn:btih:307417E3EC0F0D0E6822E349795320DCFCAF42DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ VA - German Top 100 Single Charts 01.11.2019 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:6AAA8B24EEB2C2E401E77B907AA4A080805DC189
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ AudioSwitcher - небольшая утилита, которая находит
 magnet:?xt=urn:btih:9F08E206364C7A5270B313F19128E53D181483EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ iA Writer 5.3.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FB4BE9BA33309056BCFF1E6DA3894FBDA3CF25AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 628626   (936143) от 10.03.2013
+
+Время Приключений с Финном и Джейком / Adventure Time with Finn & Jake (2012) WEB-DLRip [720p] (Сезон 3, 13 серий)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_936143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пора Приключений - американский анимационный сериал, созданный Пендлтоном Вордом. Сериал повествует о необыкновенных и весёлых приключениях двух лучших друзей: мальчика Финна и его собаки Джейка. Действие сериала происходит в волшебной стране Ууу. Финн - 13-летний мальчик, который обожает путешествовать и спасать принцесс из лап ужасных монстров и злодеев, населяющих (   Читать дальше...   )Жанр: Комедия, ПриключенияРежиссер: Пендлетон УордПеревод: Полный дубляж, вкл. песниПродолжительность: 13 серий по 00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8803A70EEE5DCCB25AE04BD4906C71CCD1FE3E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 627546   (936146) от 10.03.2013
+
+Время Приключений с Финном и Джейком / Adventure Time with Finn & Jake (2011) WEB-DLRip [720p] (Сезон 2, 13 серий)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_936146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пора Приключений - американский анимационный сериал, созданный Пендлтоном Вордом. Сериал повествует о необыкновенных и весёлых приключениях двух лучших друзей: мальчика Финна и его собаки Джейка. Действие сериала происходит в волшебной стране Ууу. Финн - 13-летний мальчик, который обожает путешествовать и спасать принцесс из лап ужасных монстров и злодеев, населяющих (   Читать дальше...   )Жанр: Приключения, КомедияРежиссер: Пендлетон УордПеревод: Полный дубляж, вкл. песниЯзык субтитров: РусскиеПродолжительность: 13 серий по 00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF90EC238F3095E73FAB48C5F2B2C31207B9352F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 281317   (936634) от 19.01.2011
 
 Приключения Крота / Krtkova dobrodružství (1957-1998) 5xDVD5
@@ -19,6 +71,8 @@
 ```bash
 magnet:?xt=urn:btih:152F5E38E2FD13D8252B3151EB1E465B6E0D6ACF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +98,8 @@ magnet:?xt=urn:btih:152F5E38E2FD13D8252B3151EB1E465B6E0D6ACF
 magnet:?xt=urn:btih:EC33819A2876A3F820223763B7D0776E4C7D4599
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +123,8 @@ magnet:?xt=urn:btih:EC33819A2876A3F820223763B7D0776E4C7D4599
 ```bash
 magnet:?xt=urn:btih:B3259E7030ACA9486B52B8CB2DA24BBC2703A44B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +150,8 @@ magnet:?xt=urn:btih:B3259E7030ACA9486B52B8CB2DA24BBC2703A44B
 magnet:?xt=urn:btih:482401ADBDBB38579A4248F93EBEC4AFD2D1B8DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +175,8 @@ magnet:?xt=urn:btih:482401ADBDBB38579A4248F93EBEC4AFD2D1B8DC
 ```bash
 magnet:?xt=urn:btih:6CA9DED09D07539FC9F2F405B704DDA3863BC9C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +202,8 @@ magnet:?xt=urn:btih:6CA9DED09D07539FC9F2F405B704DDA3863BC9C8
 magnet:?xt=urn:btih:BEA69476AA8C20E23E75C51C97BD5D0E6A62881B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +227,8 @@ magnet:?xt=urn:btih:BEA69476AA8C20E23E75C51C97BD5D0E6A62881B
 ```bash
 magnet:?xt=urn:btih:C901FA37AF9CD91B940027AF1F2B67344679ED1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +254,8 @@ magnet:?xt=urn:btih:C901FA37AF9CD91B940027AF1F2B67344679ED1E
 magnet:?xt=urn:btih:91C2178E85A1AA6E929B8BDFA22911CC87E2923F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +279,8 @@ magnet:?xt=urn:btih:91C2178E85A1AA6E929B8BDFA22911CC87E2923F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +307,8 @@ magnet:?xt=urn:btih:91C2178E85A1AA6E929B8BDFA22911CC87E2923F
 magnet:?xt=urn:btih:CDDF9CAA614B6947B6AB9178CA61F06D22AF67CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +332,8 @@ magnet:?xt=urn:btih:CDDF9CAA614B6947B6AB9178CA61F06D22AF67CC
 ```bash
 magnet:?xt=urn:btih:89ECC8952ECE4CB5A09A838BF1E533D1FB9FC137
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +361,8 @@ magnet:?xt=urn:btih:89ECC8952ECE4CB5A09A838BF1E533D1FB9FC137
 magnet:?xt=urn:btih:7870792254B9D2E27B957281F23C4DFF30CEA95A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +386,8 @@ magnet:?xt=urn:btih:7870792254B9D2E27B957281F23C4DFF30CEA95A
 ```bash
 magnet:?xt=urn:btih:278AEE2DD41AD5BCD3FA5A64BB5E66385E85BCBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +414,8 @@ magnet:?xt=urn:btih:278AEE2DD41AD5BCD3FA5A64BB5E66385E85BCBF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +440,8 @@ magnet:?xt=urn:btih:278AEE2DD41AD5BCD3FA5A64BB5E66385E85BCBF
 magnet:?xt=urn:btih:B0E96766E0C84B20DD5A9B47A5923E200FD91C6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +465,8 @@ magnet:?xt=urn:btih:B0E96766E0C84B20DD5A9B47A5923E200FD91C6F
 ```bash
 magnet:?xt=urn:btih:EA8332544ECAB6BB89287DCE6BC292FEBB44E219
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +495,8 @@ magnet:?xt=urn:btih:EA8332544ECAB6BB89287DCE6BC292FEBB44E219
 magnet:?xt=urn:btih:2B79EBEC9DA4C684E4DA937077F4DA5A2FC6BB9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +520,8 @@ magnet:?xt=urn:btih:2B79EBEC9DA4C684E4DA937077F4DA5A2FC6BB9E
 ```bash
 magnet:?xt=urn:btih:54A7CC5876E62E3A6DF01694ADE66A1D1504B99A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +547,8 @@ magnet:?xt=urn:btih:54A7CC5876E62E3A6DF01694ADE66A1D1504B99A
 magnet:?xt=urn:btih:AE9CE209C09A134D07B39903612C71FDE6BFCC13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +572,8 @@ magnet:?xt=urn:btih:AE9CE209C09A134D07B39903612C71FDE6BFCC13
 ```bash
 magnet:?xt=urn:btih:FB522071561F970C21F3DF44614EC8683F2340CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +599,8 @@ magnet:?xt=urn:btih:FB522071561F970C21F3DF44614EC8683F2340CD
 magnet:?xt=urn:btih:ED5E5A74FC92069BAF240D35B5C8D4B09A1FC86F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +624,8 @@ magnet:?xt=urn:btih:ED5E5A74FC92069BAF240D35B5C8D4B09A1FC86F
 ```bash
 magnet:?xt=urn:btih:A53D680C96D2D9300EB256748E58710975A404A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +652,8 @@ magnet:?xt=urn:btih:A53D680C96D2D9300EB256748E58710975A404A6
 magnet:?xt=urn:btih:16FD83968F6E5D094DA91D7806C88093ACF8EE16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,53 +678,7 @@ magnet:?xt=urn:btih:16FD83968F6E5D094DA91D7806C88093ACF8EE16
 magnet:?xt=urn:btih:2EC52B1892465864BD784AFAA5BCEF5348501C54
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342430   (946302) от 25.02.2020
-
-Харли Квинн / Harley Quinn (2019) UHD WEB-DL [H.265/2160p] [4K, SDR, 8-bit] (сезон 1, серии 1-13 из 13) NewStation
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Харли Квинн разорвала отношения с Джокером и теперь пытается самостоятельно стать королевой преступного мира Готэма.Производство: США, DC Entertainment, Ehsugadee, Warner Bros. Animation, Yes, Norman ProductionsЖанр: Мультфильм для взрослых, фантастика, фэнтези, боевик, комедия, криминал, детектив, приключенияРежиссер: Сесилия Аранович, Мэтт Гарофало, Фрэнк МариноПеревод: Многоголосый любительский (NewStation) присутствует ненормативная лексика.Субтитры: русские (сообщество UGN SUBZ Translators), английскиеПродолжительность: ~00:23:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E49C64C174DF55FC642C7011A4733E08495F84DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342432   (947557) от 24.02.2020
-
-Харли Квинн / Harley Quinn (2019) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-13 из 13) NewStation
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Харли Квинн разорвала отношения с Джокером и теперь пытается самостоятельно стать королевой преступного мира Готэма.Производство: США, DC Entertainment, Ehsugadee, Warner Bros. Animation, Yes, Norman ProductionsЖанр: Мультфильм для взрослых, фантастика, фэнтези, боевик, комедия, криминал, детектив, приключенияРежиссер: Сесилия Аранович, Мэтт Гарофало, Фрэнк МариноПеревод: Многоголосый любительский (NewStation) присутствует ненормативная лексика.Субтитры: русские (сообщество UGN SUBZ Translators), английскиеПродолжительность: ~00:23:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0727A8E714C7E2D18C63802A38DCAA357A76B44A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

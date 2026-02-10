@@ -1,3 +1,32 @@
+###  Публикация: 773795   (832753) от 04.04.2014
+
+Electric Light Orchestra - On The Third Day (1973) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832753.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Ocean Breakup / King of the Universe (4:06)
+A2. Bluebird Is Dead (4:43)
+A3. Oh No Not Susan (3:07)
+A4. New World Rising / Ocean Breakup (Reprise) (4:04)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F000FA62D86910ABA9AA879B16EB485E629FADDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380624   (832820) от 03.05.2020
 
 The Rolling Stones - Some Girls (1978) [DSD 128|tracks (Vinyl-Rip)]<Rock>
@@ -21,6 +50,8 @@ The Rolling Stones - Some Girls (1978) [DSD 128|tracks (Vinyl-Rip)]<Rock>
 ```bash
 magnet:?xt=urn:btih:78705E635D860CB85D04CA0E8D2F04B2E99AECB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ Jimmy Webb(   Читать дальше...   )Жанр: Jazz, Big BandПродо
 magnet:?xt=urn:btih:FB84BF68342DF1CC9584D665E295E0CC064ADF90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +109,8 @@ Rockets - Some Other Rockets (2021) Limited Edition [FLAC 2.0|96/24|tracks|Vinyl
 magnet:?xt=urn:btih:F1C2BEE7F702FC9B9A276E71CF3A260976E24919
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +137,8 @@ A3	Буревестник · Sturmvogel
 ```bash
 magnet:?xt=urn:btih:CA2D5BE717D6373C7BB06333885474E005AA24AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +173,8 @@ Queen - News Of The World (1977) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Hard Rock, P
 magnet:?xt=urn:btih:97472E7B1ABF53E64E1FC11981E5C04A9A743F2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +201,8 @@ Gordon Jenkins - Johny Mercer(   Читать дальше...   )Жанр: Jazz�
 ```bash
 magnet:?xt=urn:btih:F460D95A1A04D01DC062104C8D7FDD41FE675D30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +231,8 @@ A4 Frances Farmer Will Have Her Revenge On Seattle(   Читать дальше.
 magnet:?xt=urn:btih:433A63E1A14CD5E775E84F316C7F90EB5D3348DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +259,8 @@ Elton John - Goodbye Yellow Brick Road (2014) [LPCM2.0 96/24, DTS96/24 5.1|Audio
 ```bash
 magnet:?xt=urn:btih:0B21594CD12BD637F55575E556F1FD53A9A80800
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +289,8 @@ Nightwish - Once (2004) 2006, Nuclear Blast [LPCM 2.0 24/48, DTS 5.1 24/48 |Audi
 magnet:?xt=urn:btih:78629A79689ACF90D9A8F891A335A610622D5865
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +317,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:29620E8B9A76C9B386E26505472F6641882AB606
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +347,8 @@ VA - RETROспектива, часть XIV. Мелодии и песни из к
 magnet:?xt=urn:btih:40EFD35BD4FF786EA5919B69C05EF998CACA6CA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +375,8 @@ A4	Страсть (Passione)(   Читать дальше...   )Жанр: Jazz, 
 ```bash
 magnet:?xt=urn:btih:5D91344BE128BA4E7707AAFAA8C1B1B48739E07A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +405,8 @@ A4. Take Me On And On (5:01)(   Читать дальше...   )Жанр: Progre
 magnet:?xt=urn:btih:A7075669EA4FE93F57AACE74FEA887A0CB7036F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +433,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:858AA927F0CB1C3D96BE3612DBCC68414E724EE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +463,8 @@ A3 Andante(   Читать дальше...   )Жанр: ClassicalПродолж�
 magnet:?xt=urn:btih:758B21FB195E6A2868BB9C44981F05983F1924E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +492,8 @@ A4. Killer On The Loose (4:00)(   Читать дальше...   )Произво
 magnet:?xt=urn:btih:8ECBB14DFE7ECA3470324BCDF5CED82DC1C208BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +517,8 @@ Celine Dion – All the Way….A Decade of Song (1999) [DSD 5.1 1bit/2822,4kHz |
 ```bash
 magnet:?xt=urn:btih:DBEC295AC2AE92D889B9A76B9079F7F072C424C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +547,8 @@ magnet:?xt=urn:btih:DBEC295AC2AE92D889B9A76B9079F7F072C424C6
 magnet:?xt=urn:btih:9A98F8D0099E1C56F5E4432BE9CD04DE618D9F5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +575,8 @@ magnet:?xt=urn:btih:9A98F8D0099E1C56F5E4432BE9CD04DE618D9F5E
 ```bash
 magnet:?xt=urn:btih:1199CC2B9492386438ED62F77D76981AD3AE1F24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +605,8 @@ A4 You Always Saw The Blue Sky(   Читать дальше...   )Жанр: Pop 
 magnet:?xt=urn:btih:8365CF1C85317E9D8A6D3349E2E82AE568F3E24B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +633,8 @@ magnet:?xt=urn:btih:8365CF1C85317E9D8A6D3349E2E82AE568F3E24B
 ```bash
 magnet:?xt=urn:btih:1A286BC7EC7C1FC1FF6F538F985372B748D34FA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +663,8 @@ A4. Don't Stop (3:15)(   Читать дальше...   )Жанр: Soft RockПр
 magnet:?xt=urn:btih:B8D21AE3BE8E830387C475552ED04087ED25D739
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +691,8 @@ A2 Nancy (With The Laughing Face)
 ```bash
 magnet:?xt=urn:btih:02336EA0A829CF4CFEE91C33486053D831570B8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +721,8 @@ A4. The Diary Of Horace Wimp (4:22)(   Читать дальше...   )Прои�
 magnet:?xt=urn:btih:0409C9979B742FE6F320BD4223B7C9C18EDFAF7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,29 +750,7 @@ Passengers - Casino (1981) [FLAC|96/24|image+.cue|Vinyl-Rip] <Disco>
 magnet:?xt=urn:btih:EC8F9C9C63354292D7A3CC369D8281FCD251AA5A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498981   (851019) от 30.09.2021
-
-Кино - Ночь (1986) 2LP Reissue 2021 [FLAC 2.0|48/24|image+.cue|Vinyl-Rip] <New Wave, Alternative Rock, Post-Punk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: New Wave, Alternative Rock, Post-Punk
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F40BB283B82A4D442549D97DB437185B8B260542
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

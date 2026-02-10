@@ -19,6 +19,8 @@ Mantis Gamepad Pro - приложение-инструмент, что позв�
 magnet:?xt=urn:btih:37FFF4728F0000918E097B0259A48116CF951F3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Darker (Screen Filter) - отличный инструмент для получ
 ```bash
 magnet:?xt=urn:btih:BF448824584FEF41E197D65E44054C0E9954474B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Omnia Music Player / Музыкальный плеер Omnia 1.5.0 Mod by Balata
 magnet:?xt=urn:btih:8FA4321194E14E9F112A2036A3261536B97495E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ OziExplorerCE - навигация по растровым картам (Кар�
 ```bash
 magnet:?xt=urn:btih:385FA6042A0D084B43A81A782C8E96AA96F325E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Garmin: Карта Башкирии 2014.50 (июль 2014) <Ru>
 magnet:?xt=urn:btih:AF5657B8C3ADF127B214EB0BC412B62657F8538A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Prof Reminder 3.3.5 (Premium) [Ru/Multi]
 magnet:?xt=urn:btih:731B8FD0CC75AA0725F3CFD302CD2DF51ADD6BF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Lesser AudioSwitch - это практическое приложение, ко�
 ```bash
 magnet:?xt=urn:btih:2F8DB1DF979BECD9601EC072CE1A1B47B99B031F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:2F8DB1DF979BECD9601EC072CE1A1B47B99B031F
 magnet:?xt=urn:btih:985FA921102DAFCBC7496CF3558833BDDF8B12D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Lesser AudioSwitch - это практическое приложение, ко�
 ```bash
 magnet:?xt=urn:btih:C90F36B3DBBDEF59B9401BDFF2084120FC925423
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ iGO R3 Here (NavTeq) Европа 2018.Q2 (.fbl, .fda, .fjw, .fjv (Russia), .fpa
 magnet:?xt=urn:btih:83D96640D597DE825B553E4A1E67FBA642963A4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ AudioRelay: стриминг аудио - приложение, что спос�
 ```bash
 magnet:?xt=urn:btih:5A3E46EDD2DF407C0AD9B727E4A2412DF53CEB2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Wallpaper Changer Premium 4.9.3 Mod by Kirlif' [Ru/Multi]
 magnet:?xt=urn:btih:79C9FCCA246DCEDB1A8793E77C36DFB9D7B60F9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Agro Measure Map Pro - приложение для более удобного �
 ```bash
 magnet:?xt=urn:btih:2E859ACE8C26FCDA9321649440A93A534B3532CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Measure Map Pro - приложение для более удобного и к�
 magnet:?xt=urn:btih:B32A540D9963FEF5E778A48953D3B910477198A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Clash of Clans - Эпическая андроид стратегия, в кот
 ```bash
 magnet:?xt=urn:btih:C8E3D680CCD9440621945B761B6AA72C8DC4660D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Flightradar24 v8.18.7 Gold [Ru/Multi]
 magnet:?xt=urn:btih:294A3D74B124165593F15FECCCD8A4D18506F425
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Oxford Learner's Bookshelf - представляет из огромную, к�
 ```bash
 magnet:?xt=urn:btih:92C79657250836C9CC04ABC83B95F061B5A711CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Your Calendar Widget - легко настраиваемый виджет пол
 magnet:?xt=urn:btih:D91A27690EAA89B2BE849B3563FD931D195819B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:D91A27690EAA89B2BE849B3563FD931D195819B1
 ```bash
 magnet:?xt=urn:btih:4AA9C12E9B02FA27C01EF7447AC476FB1808FEAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Monetal - новый менеджер финансов для Android. Пред�
 magnet:?xt=urn:btih:C64777154E29E1AD8CC5F74081D3E4BB85B79478
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ ZArchiver Pro - файловый менеджер, что обладает вп�
 ```bash
 magnet:?xt=urn:btih:9A26941BD73FADF699773E66669B4CD7D555F94B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ VPN Max by Aeronliru v100.1 [Ru/En]
 magnet:?xt=urn:btih:EF55CB20746FE06B154532F3864D4350048B7A84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:EF55CB20746FE06B154532F3864D4350048B7A84
 ```bash
 magnet:?xt=urn:btih:CF84ABBB7558402F28A24B8BD83619318DFFC9E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:CF84ABBB7558402F28A24B8BD83619318DFFC9E7
 magnet:?xt=urn:btih:503EB96E6C4672CF22F9557BFECC7004C3BA3166
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:503EB96E6C4672CF22F9557BFECC7004C3BA3166
 magnet:?xt=urn:btih:ADF8AC3B41ACEA782FFE1E76C586A0E3390DF745
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Electronic Component Pinouts v16.80 PCBWAY [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D425E4D839036B93FCD81A2B0A0A4DF658BD359F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

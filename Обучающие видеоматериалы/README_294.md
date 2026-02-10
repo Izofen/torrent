@@ -19,6 +19,8 @@ Kurt Williams | Creating an Alpha Pack in ZBrush (2015) PCRec
 magnet:?xt=urn:btih:6BEBA8C6FA94A416067EE7B01BB0D944DB6F5B7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Daniel Thiger | Substance Fundamentals Tutorial Part 1-5 (2018) PCRec [En, Ru]
 magnet:?xt=urn:btih:F2510D58AF0E3AED5DD39B24DDA058865ED1E5B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ David Lesperance | Environment Sculpting (2012) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:159A3E1182DD52F46B0E416A90EA5787D90BF410
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Alexander Gol | Full-Stack разработка веб приложений с J
 magnet:?xt=urn:btih:423990BE3B7643173F4A2F78BF91773787748BFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ WDI — центр интенсивного обучения дизайнеро�
 ```bash
 magnet:?xt=urn:btih:7B91BFC174447F8B47976F563D4F058928D2356C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Udemy, YouRa Allakhverdov | Основы Современного JavaScript с 
 magnet:?xt=urn:btih:74FF50CA136B05C34DC470B96BEA64957558220C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:74FF50CA136B05C34DC470B96BEA64957558220C
 ```bash
 magnet:?xt=urn:btih:A4D49905B858AB89761BF94D5D64AD2C3634995A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Udemy, Ben Tristem и др. | RPG Core Combat Creator: Learn Intermediate Unity 
 magnet:?xt=urn:btih:7B9852023FDE5F9E842C2EA584D942D7D6524E11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:7B9852023FDE5F9E842C2EA584D942D7D6524E11
 ```bash
 magnet:?xt=urn:btih:17F9D6DC30CDC43E59100DAA721C593CA97534E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:17F9D6DC30CDC43E59100DAA721C593CA97534E3
 magnet:?xt=urn:btih:28E1B1C581060F64594B876528C666F00D43D17E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ Keda.Z | Post-Processing Online Class 1.0 (2020) PCRec [En]
 magnet:?xt=urn:btih:02F26CA7B62721083637A4886916B8852875600E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ Udemy, Maksim Zhashkevych | GOLANG NINJA - Разработка Веб-Прил�
 ```bash
 magnet:?xt=urn:btih:8C8F07DB42722D5CC410F77A91856DE86907F451
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ Google также работает над (   Читать дальше...   )�
 magnet:?xt=urn:btih:34DF3C9459C38AF3FF9849D8F961F7F8A253A1FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ Udemy, Dzianis Matveyenka | Apache Maven (2023) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:B3D153484B0D2FDA9486BA83B264A1458123E30F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ HTML Academy | HTML и CSS. Адаптивная вёрстка и автома�
 magnet:?xt=urn:btih:840194A5F7592F9781899478C71855AA92EF2F99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:840194A5F7592F9781899478C71855AA92EF2F99
 ```bash
 magnet:?xt=urn:btih:C1F37D17B98ED11A7E68EC7115ABE1E7DF1FE53C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ Greg Williams | Candid Photography Skills (2020) PCRec [En]
 magnet:?xt=urn:btih:1C8F30B0706255847A0ACFA34F776B713157A5E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ Udemy, Артём Воров | Java с полного нуля + ДЗ + тест
 ```bash
 magnet:?xt=urn:btih:2DDE5040BEF1F7C3CBA7C933560DEB7DF9636766
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ After Effects с нуля
 magnet:?xt=urn:btih:2FA3B5086592F8E6CB2067440C5F882DD9FBFA8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:2FA3B5086592F8E6CB2067440C5F882DD9FBFA8A
 ```bash
 magnet:?xt=urn:btih:8ECA6915E063C88FABF8DB8DAC11C0BB3E20F572
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:8ECA6915E063C88FABF8DB8DAC11C0BB3E20F572
 magnet:?xt=urn:btih:E8C8054C3FCF2F9C1423D2ABA781EB455B6E3419
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ magnet:?xt=urn:btih:E8C8054C3FCF2F9C1423D2ABA781EB455B6E3419
 magnet:?xt=urn:btih:DD86340701ECE53A24958CAA60470EAB3ECDE5E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ Udemy, Andrei Neagoie и др. | Complete React Developer in 2021 (w/ Redux, Hoo
 magnet:?xt=urn:btih:283FB7B07F017AAD76F515DC74E598F2186815DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:283FB7B07F017AAD76F515DC74E598F2186815DF
 ```bash
 magnet:?xt=urn:btih:B2A02215EBE6D71DF68174D8B83CBCAAC1297577
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +679,8 @@ magnet:?xt=urn:btih:B2A02215EBE6D71DF68174D8B83CBCAAC1297577
 magnet:?xt=urn:btih:B9E7243AE5593F258BCF9B762646EC429C88A84D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ magnet:?xt=urn:btih:B9E7243AE5593F258BCF9B762646EC429C88A84D
 ```bash
 magnet:?xt=urn:btih:E9435C2474682F57EF10F527CB2BF554A8EFEC05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1848585   (1053288) от 21.01.2026
+
+Windows 11 25h2 (build 26200.7623) (24in1) (x64) NoStore NoApp NoDefender by Izual Soft [v16.01.26] [Ru/En]
+
+>>ОС Windows
+>>Песочница ПО и сборок Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка создана на основе оригинальных файлов UUP.
+Store, App, Defender удалены ( No без приложения, отсутствие  No означает с приложением NoStore NoApp NoDefende означает удаление
+Remote Desktop Server. Microsoft OneDrive удалено.
+DirectX 9.0, 7-ZIP интегрированы.(   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BACB48647FA5BE09CFEB48AD0BB094BABD8BC2A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849077   (1053298) от 20.01.2026
 
 Windows Server [10.0.25398.2092], version 23H2 (Updated January 2026) - Оригинальные образы от Microsoft MSDN [En]
@@ -18,6 +47,8 @@ Windows Server, версия 23H2 - это первый выпуск ежего�
 ```bash
 magnet:?xt=urn:btih:DF21076679F436BD3839A71EFEFA65EC2AD9CC19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +74,8 @@ Windows Server 2022 впервые обеспечивает расширенну
 magnet:?xt=urn:btih:953C7837F00E893CEC462B723BA07AD60AFB4B28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +99,8 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:768B29CE511B681AAA72B2974EF62DCDB3B53E8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +126,8 @@ Windows 11 - это серия операционных систем, разра
 magnet:?xt=urn:btih:0A3021FAC425F59F593D18432AB017A5B8C0E065
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +151,8 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:E5E68D2638E91700DF907CC3933A33FBA0D624CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +178,8 @@ Windows 11 - это серия операционных систем, разра
 magnet:?xt=urn:btih:394BD066BEC56FC535FF9087D6156E58B2478B11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +203,8 @@ Windows 11 Pro х64 Version 25H2 Build 26200.7627 by Igors_VL [RU]
 ```bash
 magnet:?xt=urn:btih:5209D6694679E9FCB6554578D18DC78F10C59998
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +233,8 @@ Windows 11 PRO 25H2 26200.7623 Update 3 by Ghost Spectre [En]
 magnet:?xt=urn:btih:779407D8490E3DC874D62919548CEF787343134E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +258,8 @@ Microsoft Windows Server 2025 поможет вам справиться с вы
 ```bash
 magnet:?xt=urn:btih:5F7D98411635CF3FFC0785B3C2BFA7647467D5B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +286,8 @@ RegexBuddy - это программное обеспечение, специа�
 magnet:?xt=urn:btih:821B531D232A35994C590C971AC8981942AC8055
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +311,8 @@ Windows 11 Pro — это версия операционной системы W
 ```bash
 magnet:?xt=urn:btih:56B0582081636DBE672889A28C525FEC107DB7F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +338,8 @@ Windows 10 с интерфейсом Windows 7 и  Windows Vista. ОС подх�
 magnet:?xt=urn:btih:2FD26F572957585301F1970E3E95421B242C7DED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +363,8 @@ Den Launcher — современная альтернатива стандар�
 ```bash
 magnet:?xt=urn:btih:FFAF267C8A90568B11E7F37EB8F8292B7BD5341F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +393,8 @@ Windows 11 PRO 25H2 26200.7627 Update 3.2 by Ghost Spectre [En]
 magnet:?xt=urn:btih:2E6B9CC76BE94E821D63FC860F459B13561C7433
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +422,8 @@ ru_windows_10_enterprise_2016_ltsb_x64_dvd_9057886.iso
 magnet:?xt=urn:btih:F250497E05CC5575DE6BF0C401D8348911468F8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +447,8 @@ Windows 10 3in1 x64 22Н2 (build 19045.6812) by ivandubskoj 04.02.2026 [Ru]
 ```bash
 magnet:?xt=urn:btih:E06BA85DD1D64320FFC497D02DD571D1B230EA9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +477,8 @@ Windows 10 (v22h2) x64 PRO by KulHunter v29 (esd) [En]
 magnet:?xt=urn:btih:4D6912C326FB52A8C0A41972D7C21817BD2F52AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +505,8 @@ Windows 10 (v22h2) x64 PRO by KulHunter v29 (esd) [Ru]
 ```bash
 magnet:?xt=urn:btih:97C082E70769834F27634D5A48060782D945D821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

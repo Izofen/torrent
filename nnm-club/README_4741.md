@@ -19,6 +19,8 @@ uDraw Wii collection [Wii] [PAL] [Eng] (2010-2011)
 magnet:?xt=urn:btih:4F66BBF83CCFB37899A4C475ADCD1DC884A65386
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:4F66BBF83CCFB37899A4C475ADCD1DC884A65386
 ```bash
 magnet:?xt=urn:btih:922043BA86EFD580365A85AA4D006BA3762A74F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Seven Chambers (2018) [En] (1.0) Unofficial
 magnet:?xt=urn:btih:48BD21649DD49A81567630263A463C12F7AC9F04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ R-Studio - лучшее на сегодняшний день программн�
 ```bash
 magnet:?xt=urn:btih:588E2B787AA34DF792345EDAB5CA5A049787E907
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Morcheeba - The Best Of Morcheeba 1995-2003 (2011) 2CD, Compilation [FLAC|Lossle
 magnet:?xt=urn:btih:684F0D36F9F4AADCDAA720B9E4EBED6046E22B6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:684F0D36F9F4AADCDAA720B9E4EBED6046E22B6E
 magnet:?xt=urn:btih:FF6B20DF31ECCFAF9EF9F2CE6105B6E785399190
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:FF6B20DF31ECCFAF9EF9F2CE6105B6E785399190
 magnet:?xt=urn:btih:DA18E66496D403B077C148CFFAD088B99A814B31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ XYplorer - удобный мультивкладочный файловый ме
 magnet:?xt=urn:btih:5B6638F392FE4EE38D1F59644FCA8CC4CBB8AFDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:5B6638F392FE4EE38D1F59644FCA8CC4CBB8AFDE
 ```bash
 magnet:?xt=urn:btih:0FE7977E3389F60C898F4B5416B31210D1ACD78D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:0FE7977E3389F60C898F4B5416B31210D1ACD78D
 magnet:?xt=urn:btih:AB45F6F990ACE11572283D0A5424617AA1938083
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:AB45F6F990ACE11572283D0A5424617AA1938083
 ```bash
 magnet:?xt=urn:btih:00A3A4BFE1585448A1298883AA28C1BDF5619787
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:00A3A4BFE1585448A1298883AA28C1BDF5619787
 magnet:?xt=urn:btih:868F2F38D3E2BDA9D545ED924CEE3700026CDB37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:868F2F38D3E2BDA9D545ED924CEE3700026CDB37
 ```bash
 magnet:?xt=urn:btih:CC267063507FEDBBEB1D6B8A627697D67AD70DC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:CC267063507FEDBBEB1D6B8A627697D67AD70DC0
 ```bash
 magnet:?xt=urn:btih:FF2F66306CC7DF7499578292A41F3D9AD9A5D6D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ Cj Stereogun & Margo Fly - The Mirror (2016) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:939508200D4237C0CB0A31898EED1CE6CD0CCA45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:939508200D4237C0CB0A31898EED1CE6CD0CCA45
 magnet:?xt=urn:btih:0E5AA6BF9C02F5839DF6299399B9F92D62E1E919
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:0E5AA6BF9C02F5839DF6299399B9F92D62E1E919
 ```bash
 magnet:?xt=urn:btih:B98C277C0D6C4565BE4E3FE2153BF0711D5F0391
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ Udemy, Сергей Семёнов | Selenium и Selenide для начинаю�
 ```bash
 magnet:?xt=urn:btih:3CC5AFC5E576BEE31AC0138F82E5BE3FA6EFA95A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ VA - Ferry Corsten - Corsten’s Countdown - December (2016) [MP3|320 Kbps] <Tra
 magnet:?xt=urn:btih:A555270BDF12F21C4B05D7C08BFF90EF5CEB8CE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:A555270BDF12F21C4B05D7C08BFF90EF5CEB8CE9
 ```bash
 magnet:?xt=urn:btih:433C6F70169077EC12B1ADFE7A7FB87D06038FFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ Franco Cerri and His European Jazz Stars (1959) Remaster, 2009, DIW Records[FLAC
 magnet:?xt=urn:btih:9E145FE4C7B457D836C9296E439D8FF3E49FE332
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:9E145FE4C7B457D836C9296E439D8FF3E49FE332
 ```bash
 magnet:?xt=urn:btih:36CD2D7A608201C3D99105A1938DAD5F4FDCB479
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ Winter 2020 Anime Preview | Зима 2020 Превью Аниме [2020, Обз�
 magnet:?xt=urn:btih:E1F4A9E5B91BF49C4F0FE6F36F2FA9D589B470ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ Hetman NTFS Recovery вернет информацию с рабочих, «би
 ```bash
 magnet:?xt=urn:btih:F597B4B5A4470B23DFDC76A240FFC559BA85C826
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ magnet:?xt=urn:btih:F597B4B5A4470B23DFDC76A240FFC559BA85C826
 magnet:?xt=urn:btih:C1D9CEE264190DD7B200369AAAB9ED08E95A8F90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:C1D9CEE264190DD7B200369AAAB9ED08E95A8F90
 ```bash
 magnet:?xt=urn:btih:F516D4678A31F6E52E5FDFEAD698753A89888A89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,51 +1,3 @@
-###  Публикация: 1012486   (793454) от 01.05.2016
-
-Картинки - Необычайно красивое макро 1920x1080 - 8576x5696 40шт-часть 6 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Необычайно красивое макро на ваш стол, приятного просмотра!)Формат: JPGРазрешение файлов: 1920x1080 - 8576x5696
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEE43117022AF5F650DE30C96FF9A775A88E2077
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012484   (793553) от 01.05.2016
-
-Картинки - Подборочка настроений 1920x1200 - 6350x4330 45шт-часть-5 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборочка настроений на каждый день, приятного просмотра!)Формат: JPGРазрешение файлов: 1920x1200 - 6350x4330
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:502BDA71CA92F86BC77BFE0958F3D9752E2E027C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509546   (793975) от 13.11.2021
 
 Картинки - NNM-Club - Календари на 2022 от Warrior 123 №18 - 1509546 [JPG]
@@ -66,6 +18,8 @@ magnet:?xt=urn:btih:502BDA71CA92F86BC77BFE0958F3D9752E2E027C
 ```bash
 magnet:?xt=urn:btih:467BAB4A0C4C5249823A6E44B185E044F39237FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +45,8 @@ magnet:?xt=urn:btih:467BAB4A0C4C5249823A6E44B185E044F39237FB
 magnet:?xt=urn:btih:163E572F2039C752F0109AE4FAF753EDF3F93352
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +70,8 @@ magnet:?xt=urn:btih:163E572F2039C752F0109AE4FAF753EDF3F93352
 ```bash
 magnet:?xt=urn:btih:E25E90A752F712D3667B9A0B7A5CB515AF305452
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +97,8 @@ magnet:?xt=urn:btih:E25E90A752F712D3667B9A0B7A5CB515AF305452
 magnet:?xt=urn:btih:3A8DD8B0F55B934C25D9887910DAC2A3422A5ACB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +122,8 @@ magnet:?xt=urn:btih:3A8DD8B0F55B934C25D9887910DAC2A3422A5ACB
 ```bash
 magnet:?xt=urn:btih:5310ED09400A366A4FE1CD7510FB5763C1B49281
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +149,8 @@ magnet:?xt=urn:btih:5310ED09400A366A4FE1CD7510FB5763C1B49281
 magnet:?xt=urn:btih:9E8154AFFF70103451C54E57379B769B4DB1EE8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +175,8 @@ magnet:?xt=urn:btih:9E8154AFFF70103451C54E57379B769B4DB1EE8E
 magnet:?xt=urn:btih:205FCD4E5A589F8498C152063F43C1924D5B6ECB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +200,8 @@ magnet:?xt=urn:btih:205FCD4E5A589F8498C152063F43C1924D5B6ECB
 ```bash
 magnet:?xt=urn:btih:086F2BAC297642205B0C8EDCC2E65E47EE1B2B4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +228,8 @@ magnet:?xt=urn:btih:086F2BAC297642205B0C8EDCC2E65E47EE1B2B4E
 magnet:?xt=urn:btih:E6EC8F601D153B6879E4A01CA19BEEEE09CCEC85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +255,8 @@ magnet:?xt=urn:btih:E6EC8F601D153B6879E4A01CA19BEEEE09CCEC85
 magnet:?xt=urn:btih:CE6CB329624B23739DC4838E2A0FEA7743AC5E22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +280,8 @@ magnet:?xt=urn:btih:CE6CB329624B23739DC4838E2A0FEA7743AC5E22
 ```bash
 magnet:?xt=urn:btih:278717870F1748CCC07C8645AC03D77DF1377CC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +307,8 @@ magnet:?xt=urn:btih:278717870F1748CCC07C8645AC03D77DF1377CC3
 magnet:?xt=urn:btih:4355357407FE70CB14170ED34C06FD681E330D0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +332,8 @@ magnet:?xt=urn:btih:4355357407FE70CB14170ED34C06FD681E330D0B
 ```bash
 magnet:?xt=urn:btih:CB2CC80F5BE5C76ED3DC2D76B5C840C3C96C7918
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +359,8 @@ magnet:?xt=urn:btih:CB2CC80F5BE5C76ED3DC2D76B5C840C3C96C7918
 magnet:?xt=urn:btih:719354CC48C5409311345ACCE502FC97C1FD8F16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +384,8 @@ magnet:?xt=urn:btih:719354CC48C5409311345ACCE502FC97C1FD8F16
 ```bash
 magnet:?xt=urn:btih:12D06DC55C2E1EAAEDB26CB4E0B1C87E644E4B3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +411,8 @@ magnet:?xt=urn:btih:12D06DC55C2E1EAAEDB26CB4E0B1C87E644E4B3F
 magnet:?xt=urn:btih:5D86C5454BA4A8B95D7EC6F50F5BD0E46E629BD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +436,8 @@ magnet:?xt=urn:btih:5D86C5454BA4A8B95D7EC6F50F5BD0E46E629BD6
 ```bash
 magnet:?xt=urn:btih:201B3E2541B82952A0F6B98BBEBFE759AE581C70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +463,8 @@ magnet:?xt=urn:btih:201B3E2541B82952A0F6B98BBEBFE759AE581C70
 magnet:?xt=urn:btih:DFBB2A5EAA3D99F9F7DF8276EB7F81764BBC69F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +488,8 @@ magnet:?xt=urn:btih:DFBB2A5EAA3D99F9F7DF8276EB7F81764BBC69F3
 ```bash
 magnet:?xt=urn:btih:EE96482A2661B85F1D607BDB1202D0B3E11DCDD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +515,8 @@ magnet:?xt=urn:btih:EE96482A2661B85F1D607BDB1202D0B3E11DCDD3
 magnet:?xt=urn:btih:58BB3DAD03B3581B52A5824642A453C16A3BD26D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +541,8 @@ magnet:?xt=urn:btih:58BB3DAD03B3581B52A5824642A453C16A3BD26D
 magnet:?xt=urn:btih:E80C95433A152B2F61D6F584524B0D783D6B7193
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +566,8 @@ magnet:?xt=urn:btih:E80C95433A152B2F61D6F584524B0D783D6B7193
 ```bash
 magnet:?xt=urn:btih:46C44229EBA67DD7630FD297E9270CE8177FE248
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +594,8 @@ magnet:?xt=urn:btih:46C44229EBA67DD7630FD297E9270CE8177FE248
 magnet:?xt=urn:btih:5FD74D3A2291116D37CB913BEF4FFE3565D7EEA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +619,61 @@ magnet:?xt=urn:btih:5FD74D3A2291116D37CB913BEF4FFE3565D7EEA9
 ```bash
 magnet:?xt=urn:btih:FF1E339ED3E23ED4D810A9A39961F53C4A573F45
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509187   (795437) от 11.11.2021
+
+Картинки - Календарь-пирамидка на 2022 год [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настольный календарь-пирамидка на 2022 год
+Распечатать. Вырезать по контуру, согнуть по линиям и склеить.Формат: JPG, PDFРазрешение файлов: 7087х4961
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA7C31CCA0F411340F1D74F6204AA13E02BFE1CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011886   (795446) от 29.04.2016
+
+Картинки - Подборочка настроений 1920x1080 - 6000x3854 37шт-часть 4 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборочка настроений на каждый день, приятного просмотра!)Формат: JPGРазрешение файлов: 1920x1080 - 6000x3854
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A1FC171038DA77ABCAF08071A1A06144E59A2E9
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 985669   (932415) от 13.02.2016
+
+А.В. Пышков, С.Г. Смирнов | Балансиры и безнасадочные мормышки (2005) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Балансиры в настоящее время – самые модные приманки при ловле со льда. Оправдан ли такой интерес к горизонтальным блеснам? Ни минуты не сомневаясь, скажу: «Да». Балансиры – не панацея от всех рыболовных промахов, но, без сомнения, это – уловистые приманки, а в определенные отрезки времени – просто незаменимые. Книга является ликбезом для 70% зимних рыболовов. Внимательно (   Читать дальше...   )Жанр: РыболовствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00B8F9AC838368490823B66BCF036876B74121B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093747   (932429) от 16.01.2017
 
 брат Алоис из Тэзе (сост.) | Призваны быть душой мира. Тексты христиан первых веков (2014) [PDF, DJVU]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:9844B1FB763E861D6D02DF4667EB88B9B5D2A47A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:9844B1FB763E861D6D02DF4667EB88B9B5D2A47A
 magnet:?xt=urn:btih:B0FABDFBE5659106F4468C61A9894541A3EE796F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:B0FABDFBE5659106F4468C61A9894541A3EE796F
 magnet:?xt=urn:btih:95BA0A031227547F1387BA05EA80FBA11508F4B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:95BA0A031227547F1387BA05EA80FBA11508F4B5
 ```bash
 magnet:?xt=urn:btih:DFB265EF55A82D0F5FFB1FCE96FC7CD8180BE173
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:DFB265EF55A82D0F5FFB1FCE96FC7CD8180BE173
 magnet:?xt=urn:btih:4BEBD94D67F505F342484CA3A09DE0E8CCCD7D5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:4BEBD94D67F505F342484CA3A09DE0E8CCCD7D5A
 ```bash
 magnet:?xt=urn:btih:BD7549067ABAF696824DFDC6EC85B705EB25D0AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:BD7549067ABAF696824DFDC6EC85B705EB25D0AB
 magnet:?xt=urn:btih:327BB312585A4FDA7FA1DDEF6F73D59A346911EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:327BB312585A4FDA7FA1DDEF6F73D59A346911EA
 ```bash
 magnet:?xt=urn:btih:6CF35D1AC393792EBC8611D62C48979A6A61576C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:6CF35D1AC393792EBC8611D62C48979A6A61576C
 magnet:?xt=urn:btih:4A38C261E0EB7B3F191B5945D196DFBD5AE2656E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:4A38C261E0EB7B3F191B5945D196DFBD5AE2656E
 ```bash
 magnet:?xt=urn:btih:E9C67F17C146B42273E166A40FE9D39F705FCE57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:E9C67F17C146B42273E166A40FE9D39F705FCE57
 magnet:?xt=urn:btih:588F142198937D1C6DEF828B12EB48E44A1BFA18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:588F142198937D1C6DEF828B12EB48E44A1BFA18
 ```bash
 magnet:?xt=urn:btih:98EAC7389CE3A03F8E7306C90D092B81344EB82D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:98EAC7389CE3A03F8E7306C90D092B81344EB82D
 magnet:?xt=urn:btih:3622D80E2922AD998B207FADBB7010557A1A6673
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:3622D80E2922AD998B207FADBB7010557A1A6673
 magnet:?xt=urn:btih:D1D59F4FD3464243667378D5837D106872A75074
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:D1D59F4FD3464243667378D5837D106872A75074
 ```bash
 magnet:?xt=urn:btih:220201B9272C7CA85F9013C32D8D24ADC3C6AE75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:220201B9272C7CA85F9013C32D8D24ADC3C6AE75
 magnet:?xt=urn:btih:6856E8B0BEED8D944E1729FFC270C79BC6AD41A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:6856E8B0BEED8D944E1729FFC270C79BC6AD41A4
 ```bash
 magnet:?xt=urn:btih:F405E62EA7B112FB8AA8C05CB305B89321F784F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:F405E62EA7B112FB8AA8C05CB305B89321F784F4
 magnet:?xt=urn:btih:7E651D92BC9D9B17975112AD9986257476612BAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:7E651D92BC9D9B17975112AD9986257476612BAD
 ```bash
 magnet:?xt=urn:btih:314DED3F89B98973DC7DB1FFFF9590172A97BFC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:314DED3F89B98973DC7DB1FFFF9590172A97BFC9
 magnet:?xt=urn:btih:29AEC0A105A29923A7E420EFB1071FE186503289
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:29AEC0A105A29923A7E420EFB1071FE186503289
 ```bash
 magnet:?xt=urn:btih:B5AB7117C968E54A7DECC9201515FB9DAB76548E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:B5AB7117C968E54A7DECC9201515FB9DAB76548E
 magnet:?xt=urn:btih:A4059A248C03F2C150BF9F37EE60A25A6DE4AAD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:A4059A248C03F2C150BF9F37EE60A25A6DE4AAD0
 ```bash
 magnet:?xt=urn:btih:FAA62E5718F2540A498DE1E6C3F910BDE98C0899
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:FAA62E5718F2540A498DE1E6C3F910BDE98C0899
 magnet:?xt=urn:btih:C6ABE49EDACE90A6CBBB9E45755FF5C5A80D5FBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:C6ABE49EDACE90A6CBBB9E45755FF5C5A80D5FBA
 magnet:?xt=urn:btih:F21333B86BAD34175C35E3FE456A0741D965A43D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985771   (933399) от 12.02.2016
-
-Сергей Тарасенко | Куннилингус от А до Я (2008) [FB2]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Куннилингус в своих любовных играх использовали самые древние цивилизации, и в наши дни интерес к нему не угасает, и многих интересует, как его правильно использовать в своих амурных делах, поэтому представляем Вашему вниманию книгу «Куннилингус от А до Я». Эта книга станет Вам полезным учебником по удовлетворению женщины, не зависимо от того, сколько сексуального (   Читать дальше...   )Жанр: Любовь и эротика, Практические пособия по сексуФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48475B95FEDD11E28DAC8CBFF757EB202B46EE7A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

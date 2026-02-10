@@ -19,6 +19,8 @@ Minitube - приложение для рабочего стола от Youtube,
 magnet:?xt=urn:btih:4977E7112430A9ADE7782649C2F0E858F57E67CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:4977E7112430A9ADE7782649C2F0E858F57E67CF
 ```bash
 magnet:?xt=urn:btih:CEFED7804B84FE4D769F1D3EE68D5F315652AFD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ BitTorrent - клиентская программа пиринговой сет
 magnet:?xt=urn:btih:8C4EB5294C5236FF89B3830057C4AA6355561341
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Movavi Slideshow Maker – это простая и удобная програ�
 ```bash
 magnet:?xt=urn:btih:DE7DCDD2F78305EB27B04EF7853283A91B131177
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ iMazing: отличная альтернатива iTunes
 magnet:?xt=urn:btih:40FF404E61C32556DFFF30B1F14F53E598D0F724
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ InfraRecorder 0.53 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:E3687C79CAD2B86D7823C86B64C04FCE5CC02DA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:EC0AACB53B9E38E54915116D20B0CFCE520662E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Perfectly Clear – мощный плагин для Adobe Lightroom и Adobe Ph
 magnet:?xt=urn:btih:32227C3592089A9CA0C07DC4B164AA459180C130
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ AllDup - бесплатный инструмент для поиска и уда
 magnet:?xt=urn:btih:9638896BB2F305D5954A28DC05AB32BB7792D25A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Adobe Animate CC , пришедший на смену Flash Professional - эт�
 ```bash
 magnet:?xt=urn:btih:8584CCC6B25DFB651A98B5FCFF40841F4116DE37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:8584CCC6B25DFB651A98B5FCFF40841F4116DE37
 magnet:?xt=urn:btih:22F78AB9619050BC284C2EE71124E7687C501D63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Total Movie Converter –это удобное решение для преоб�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Loopback 1.1.1 [Multi]
 magnet:?xt=urn:btih:657158AAD6C823531D365705E7A8352519DD7302
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Advanced SystemCare PRO обеспечивает автоматический в
 ```bash
 magnet:?xt=urn:btih:82C1CA75E4E0018E399EDEBCDC1EA6B563692EB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:82C1CA75E4E0018E399EDEBCDC1EA6B563692EB9
 magnet:?xt=urn:btih:61083AFB5705125F09E504C03450A3F5787EB1C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ Rainmeter - утилита для мониторинга ресурсов ком
 ```bash
 magnet:?xt=urn:btih:429F509040E9929FD9680D5635EBB9974DAAE431
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ iZotope - представляет интеллектуальный плагин
 magnet:?xt=urn:btih:CC070BD8D7E4622AEFB5B70B6729C6676409959F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Movavi Screen Recorder (ex. Capture) Studio - программа для захв
 magnet:?xt=urn:btih:17C3B1E2AF91C9D92FFBA622A04428328EBCEC8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ Avidemux - небольшой, простой редактор для работ
 magnet:?xt=urn:btih:D339CBE2CEC57D912300D53F2CDB1C37913278AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:D339CBE2CEC57D912300D53F2CDB1C37913278AD
 ```bash
 magnet:?xt=urn:btih:F7434CD784AD766A7996C55CF5750645DF695D50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:F7434CD784AD766A7996C55CF5750645DF695D50
 magnet:?xt=urn:btih:4F6DDFC60BEE52DF79007D6CD3C7311A79218A93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ AnyTrans - файловый менеджер, который отвечает з
 ```bash
 magnet:?xt=urn:btih:C9868307526C0C4BED41D96C8E6B4F7D83F96591
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ This PC Tweaker 1.3 Portable [Multi/Ru]
 magnet:?xt=urn:btih:10BB4DF6260ED15467409F787CD74DBC89CF5285
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ magnet:?xt=urn:btih:10BB4DF6260ED15467409F787CD74DBC89CF5285
 ```bash
 magnet:?xt=urn:btih:C7CCF5202FDC31C62A75E2391FFB39881BAAAFFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +695,8 @@ VA - Christmas 100 (2009) [FLAC|Lossless]<Pop, Easy Listening, Christmas>
 ```bash
 magnet:?xt=urn:btih:8D7EA9173AD2E4ED46313095C2C3FC3118EF6A6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

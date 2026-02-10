@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D8601A048F3B6F64A9D88B01C095F6FDC85924DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:D8601A048F3B6F64A9D88B01C095F6FDC85924DA
 ```bash
 magnet:?xt=urn:btih:036D112902ADEB5E3B46704984371EFE6560763A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG. Арабские Эмираты с высоты птичьего полёт�
 magnet:?xt=urn:btih:3673FD0EFA83F9B249FBA70EA787F6D55E6BCC32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BBC: Тайны Бермудского треугольника / The Bermuda Tr
 ```bash
 magnet:?xt=urn:btih:83666EF6CDC30067824E718D6710DEFA1DB70195
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NG. Затонувшая субмарина фашистов / Nazi Sunken Sub (
 magnet:?xt=urn:btih:3D83CE73155D556D05EBD25FB82CC6BDD6AD9BF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Discovery. Канализационные водолазы / Sewer Divers / (202
 ```bash
 magnet:?xt=urn:btih:BEBD8AA8F3E78703A44D5D7CE41C65E2D97E41A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ NG. Акула против тунца / Shark vs Tuna (2018) WEB-DL [H.264/1080
 magnet:?xt=urn:btih:FD90625F9D2F9842A7F60975AD153E9D0BD2B5EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NG. Титаник: 20 лет спустя с Джеймсом Кэмероно�
 ```bash
 magnet:?xt=urn:btih:8D600A2315015056C52A535489A32BB1A08D20AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:8D600A2315015056C52A535489A32BB1A08D20AA
 magnet:?xt=urn:btih:ED50B41BBC84FA18E5ABD415FB30BE4E7E66CB8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:ED50B41BBC84FA18E5ABD415FB30BE4E7E66CB8D
 ```bash
 magnet:?xt=urn:btih:8837B89C8CA16CB761680D8A6282AFA0AA5FE461
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ NG. Первый император: секреты китайской гроб�
 magnet:?xt=urn:btih:497380C2C3C5B1E0E91799F32639C076B9AEFB72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:497380C2C3C5B1E0E91799F32639C076B9AEFB72
 ```bash
 magnet:?xt=urn:btih:410788C04C1DF3C6F39861FC7039402D9525542E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:410788C04C1DF3C6F39861FC7039402D9525542E
 magnet:?xt=urn:btih:DB968C5F29A4E1A4DEA89FBE15775AEB92030FF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ NG: Владычицы морей / Shark Queens (2022) WEB-DL [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:590986823C3376D726F075A37B038E2528F043FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 magnet:?xt=urn:btih:5712F48B8CE1FC8A4A0BBA61C60CAAF50E4ACBDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:5712F48B8CE1FC8A4A0BBA61C60CAAF50E4ACBDD
 ```bash
 magnet:?xt=urn:btih:8F1A3865A28368D691B0D186E5D2612EDAC38FC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:8F1A3865A28368D691B0D186E5D2612EDAC38FC6
 magnet:?xt=urn:btih:BA9C71A74D4486FD777A570237D00A386B3CB529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:BA9C71A74D4486FD777A570237D00A386B3CB529
 ```bash
 magnet:?xt=urn:btih:DB0CCF3E9FADC03762014A6613279E51A749F9F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:DB0CCF3E9FADC03762014A6613279E51A749F9F9
 magnet:?xt=urn:btih:2AF5A53DD73CD82666B45025A263F4F8AF54FF65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ magnet:?xt=urn:btih:2AF5A53DD73CD82666B45025A263F4F8AF54FF65
 ```bash
 magnet:?xt=urn:btih:8A8C540ADFFE3C344529552D2E108589C054DA22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ History Channel: Древние пришельцы / Ancient Aliens (2020) WEB-D
 magnet:?xt=urn:btih:59BB41FC16E9F2EC1054365ECE4FF97FEA8F1C3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ magnet:?xt=urn:btih:59BB41FC16E9F2EC1054365ECE4FF97FEA8F1C3F
 ```bash
 magnet:?xt=urn:btih:6F14FB6664AB4A3FC7A0444EDE7D85F3125F34D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ magnet:?xt=urn:btih:6F14FB6664AB4A3FC7A0444EDE7D85F3125F34D0
 magnet:?xt=urn:btih:BE66FDEEBDF5A30F662A648FA704F27297E3EEA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ magnet:?xt=urn:btih:BE66FDEEBDF5A30F662A648FA704F27297E3EEA9
 ```bash
 magnet:?xt=urn:btih:07D495CD71D41EE208EECB53CBF641706588BB03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ magnet:?xt=urn:btih:07D495CD71D41EE208EECB53CBF641706588BB03
 magnet:?xt=urn:btih:6C15DB953026C97EEAA567C2CE58E35C3E9ED365
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ magnet:?xt=urn:btih:6C15DB953026C97EEAA567C2CE58E35C3E9ED365
 ```bash
 magnet:?xt=urn:btih:6A1F804892E33218FD1DFCD8FF34860D69D910BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

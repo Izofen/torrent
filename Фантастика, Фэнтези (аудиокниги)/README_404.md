@@ -1,3 +1,29 @@
+###  Публикация: 1144072   (631477) от 20.06.2017
+
+Герберт Уэллс | Остров доктора Моро (2017) [MP3, Виктор Рудниченко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631477.jpg" />
+</div>
+
+
+###  Подробнее
+
+От одного взгляда на его пациентов кровь стынет в жилах. Операции, которые он проводит, страшнее пыток. Из-под его скальпеля выходят звери, которые способны мыслить, обладают даром речи и горят желанием расквитаться со своим создателем. Но Доктора Моро охраняет кровавый Закон, который держит в страхе весь Остров. Кто же возьмет верх – жестокий экспериментатор или (   Читать дальше...   )Жанр: Научная фантастикаИздательство: АрдисПродолжительность: 05:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0AAB242FD525A4298E884C76A7454225B72FBE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228991   (631520) от 03.06.2018
 
 Сергей Арсеньев | Студентка, комсомолка, спортсменка (2018) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:6FC795C0D43F3B9EF2170FA2E0BA64751E8F85AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:6FC795C0D43F3B9EF2170FA2E0BA64751E8F85AF
 magnet:?xt=urn:btih:E84648125C6E3437BA346C5DE0A5D64E39F9E43B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:E84648125C6E3437BA346C5DE0A5D64E39F9E43B
 ```bash
 magnet:?xt=urn:btih:5B924895BA4C624FA432879502AB6CE06E2149FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:5B924895BA4C624FA432879502AB6CE06E2149FB
 ```bash
 magnet:?xt=urn:btih:21A3D3CB6F97A72A9F8B81BF4DD88C29AE4A801F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:21A3D3CB6F97A72A9F8B81BF4DD88C29AE4A801F
 magnet:?xt=urn:btih:06929993D5746E07C17B9EE77CD2334A2D234749
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:06929993D5746E07C17B9EE77CD2334A2D234749
 ```bash
 magnet:?xt=urn:btih:436FDF5C295787DADFE213FB5A955A9552CFC1E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +208,8 @@ magnet:?xt=urn:btih:436FDF5C295787DADFE213FB5A955A9552CFC1E0
 magnet:?xt=urn:btih:635EBE62911E1D6A05488C4DF829544BD2997B52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:635EBE62911E1D6A05488C4DF829544BD2997B52
 ```bash
 magnet:?xt=urn:btih:252DAD430E95BB11061E64889654D514D16FE316
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:252DAD430E95BB11061E64889654D514D16FE316
 magnet:?xt=urn:btih:F346C6185FC93B2FB553671C36A547363894A7E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:F346C6185FC93B2FB553671C36A547363894A7E9
 ```bash
 magnet:?xt=urn:btih:6EAE2E48D94492CC8045DBCCD0F37107A620FE40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:6EAE2E48D94492CC8045DBCCD0F37107A620FE40
 magnet:?xt=urn:btih:23C8FEA528F90EF0B42803AFAAA70681A5045F4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:23C8FEA528F90EF0B42803AFAAA70681A5045F4A
 ```bash
 magnet:?xt=urn:btih:DD5A52066C9039F51BEAEFA630A008A5AAC33414
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:DD5A52066C9039F51BEAEFA630A008A5AAC33414
 magnet:?xt=urn:btih:0F9C1AD1F63B5A4A4F9875F88ED873B80E0515EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:0F9C1AD1F63B5A4A4F9875F88ED873B80E0515EE
 magnet:?xt=urn:btih:0C9CC1C7783B579AABE44156DBEC90459DB33C0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:0C9CC1C7783B579AABE44156DBEC90459DB33C0A
 ```bash
 magnet:?xt=urn:btih:32A256883F500A361963CF75CF468FD15D6F8A65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:32A256883F500A361963CF75CF468FD15D6F8A65
 magnet:?xt=urn:btih:7C6629D685DDA64C2D38FA75F84D2CF347A433B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:7C6629D685DDA64C2D38FA75F84D2CF347A433B7
 magnet:?xt=urn:btih:CFE25EFE3009CDE49FE34EB8001FECC6C14F38A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:CFE25EFE3009CDE49FE34EB8001FECC6C14F38A4
 ```bash
 magnet:?xt=urn:btih:6299900DCC00428FF876F3940B6D11269BD0E373
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +524,8 @@ magnet:?xt=urn:btih:6299900DCC00428FF876F3940B6D11269BD0E373
 magnet:?xt=urn:btih:732D360C8D8F822E0F23021B0D3A098732C4D771
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:732D360C8D8F822E0F23021B0D3A098732C4D771
 ```bash
 magnet:?xt=urn:btih:C3FC1D9DEF37025C862CA3E9F10D5D8F588C5088
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:C3FC1D9DEF37025C862CA3E9F10D5D8F588C5088
 magnet:?xt=urn:btih:96F904BC63C8E49A315F60D9E069742DBED66F2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:96F904BC63C8E49A315F60D9E069742DBED66F2E
 ```bash
 magnet:?xt=urn:btih:ED4B0E3BDC125F57274AF85DBDB17485BDFCC2F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:ED4B0E3BDC125F57274AF85DBDB17485BDFCC2F1
 magnet:?xt=urn:btih:F939BED36B376E851E7D493473AB8E4C4F81838C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:F939BED36B376E851E7D493473AB8E4C4F81838C
 ```bash
 magnet:?xt=urn:btih:781AC1575F986B398314A2EEA2ED8F2BFEE7D270
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,30 +683,7 @@ magnet:?xt=urn:btih:781AC1575F986B398314A2EEA2ED8F2BFEE7D270
 magnet:?xt=urn:btih:F68015A4EA9960DBD5C1B64ECB0FF91E0F100B89
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542885   (634919) от 08.04.2022
-
-Робин Хобб | «Сага о Видящих» Книга 1. Ученик убийцы (2022) [MP3, Александр Городиский]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой — бастард королевского наследника Фитц, выросший среди слуг и, по приказу деда-короля, с малолетства готовившийся в тайные убийцы. Интриги королевского двора, измены, клевета, презрение окружающих, — таков удел юного бастарда.
-Страна переживает тяжкие времена, — король болен и слаб, его сыновья ненавидят друг друга, а с моря угрожают кровожадные пираты (   Читать дальше...   )Жанр: Героическое фэнтези, Зарубежное фэнтезиПродолжительность: 18:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D2BDAF0EAC327B50765D2D744DAB75A7E479CC1
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

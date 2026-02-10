@@ -22,6 +22,8 @@ Thomas Wander, Harald Kloser - Midway / Мидуэй (Original Motion Picture So
 magnet:?xt=urn:btih:370CC4F6450DB22CD8AC4AD1F494475D8CDE2634
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ JavaBegin | Основы Java (2012-2016) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:E4A299F059CCBA2C41ED499D3F7B6F4A3CA5E2F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Die Krupps - Vision 2020 Vision (2019) [MP3|320 Kbps] <Industrial Metal, Aggro-I
 magnet:?xt=urn:btih:E56CF06D0DA229D618635A5056D568F404E3A915
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Disaster: Day of Crisis – это одна из лучших эксклюзив
 ```bash
 magnet:?xt=urn:btih:83A4C4C6AC4DFC793C66BFDD5818268199BB601D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ NoteBurner Spotify Music Converter - это хорошо продуманный 
 magnet:?xt=urn:btih:943B36ED1833F2CC685EE0CACB76F7222AC65B74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:943B36ED1833F2CC685EE0CACB76F7222AC65B74
 ```bash
 magnet:?xt=urn:btih:9C607144DD2C92D6FE47FFBCE38B57838C4BCB59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ VA - Sexy Lounge Sunset (2019) [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:98E2D030DD23DA3C405A1FF06FAED2D1417B634A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ Battalion Wars возвращается! Серия, триумфально де
 ```bash
 magnet:?xt=urn:btih:D4BC0D0437EFC4B297A5E041080B4511E9DEB1E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:D4BC0D0437EFC4B297A5E041080B4511E9DEB1E4
 magnet:?xt=urn:btih:76A21B0F35C9E6BE459E403969A11F1B5CBC505D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:76A21B0F35C9E6BE459E403969A11F1B5CBC505D
 ```bash
 magnet:?xt=urn:btih:0B07C1332FC0094D81AF8359E25358C7D2A7A7E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ cd1:
 magnet:?xt=urn:btih:870309A46201E2BAD0898B6EBE74F9C1C0F3B07B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ The Elder Scrolls: Arena - компьютерная ролевая игра, п�
 ```bash
 magnet:?xt=urn:btih:62A199D051FAE6E63A8C70DDA1E0A244662BB421
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ VA - Womanizer Lounge (Erotic Chillout For Sexy Bedroom Moments) (2019) [MP3|320
 magnet:?xt=urn:btih:F503726A60F0AA903C2024E31C6DC88EA8EBF344
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:F503726A60F0AA903C2024E31C6DC88EA8EBF344
 ```bash
 magnet:?xt=urn:btih:599585B1FFABA6D5EADD96F70F9E8409220DA45F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ Thomas Wander, Harald Kloser - Midway / Мидуэй (Original Motion Picture Co
 magnet:?xt=urn:btih:6C5436A65A3E30E8C3D828807222996E0BF1639D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:6C5436A65A3E30E8C3D828807222996E0BF1639D
 ```bash
 magnet:?xt=urn:btih:0B3C625900A59D50C190C627FE3BFB450D52D0AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:0B3C625900A59D50C190C627FE3BFB450D52D0AD
 ```bash
 magnet:?xt=urn:btih:8FC3AD343D722D54A03D482342C225D26BBF7F7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ The Dark Element - Songs the Night Sings (2019) [MP3|320 kbps] <Symphonic Metal>
 magnet:?xt=urn:btih:7FF0F094257B3C4BBD37DC7221122555F646A484
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:7FF0F094257B3C4BBD37DC7221122555F646A484
 magnet:?xt=urn:btih:6344CA78DE32D2C8224AEAAD42688AB87B70A401
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ Adguard — это лучший способ избавиться от разд�
 ```bash
 magnet:?xt=urn:btih:1E12370BF72624EB502346E74A5CFFBF5130B397
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +565,8 @@ blink-182 - Nine (2019) Japanese Edition [FLAC|Lossless|tracks + .cue] <Alternat
 magnet:?xt=urn:btih:037AD55342F3719A3F9E9977090877CBC0496C2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ Redeyes - Unfinished Theory (2019) EP [MP3|320 Kbps] <Liquid Funk, Drum & Bass>
 magnet:?xt=urn:btih:5CC9D766CBB0DAED07A204C63DA3C5916E0EB79F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ magnet:?xt=urn:btih:5CC9D766CBB0DAED07A204C63DA3C5916E0EB79F
 ```bash
 magnet:?xt=urn:btih:45E537432AEEA906FB24954D801BDBE519713FDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +649,8 @@ Brian Tyler - Charlie's Angels / Ангелы Чарли (Original Motion Pictur
 magnet:?xt=urn:btih:071B60BCD3EDF99DDBBD84E6E2DAFD8EB1121697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ magnet:?xt=urn:btih:071B60BCD3EDF99DDBBD84E6E2DAFD8EB1121697
 ```bash
 magnet:?xt=urn:btih:A861C188BEA2DCED8C6C4703642BECA75A5C07D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +703,8 @@ Redeyes - Unfinished Theory (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Liquid Funk
 ```bash
 magnet:?xt=urn:btih:E65E80D62BD43537687DF5666AC69C9953F326E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

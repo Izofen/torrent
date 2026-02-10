@@ -19,6 +19,8 @@ SoundHound — ваше лучшее музыкальное приложение
 magnet:?xt=urn:btih:97ACBF675A2992D3DFF57DE2237B77D2AB2B1430
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ V.A. - 00s Love Songs (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:0FB048D9CE503E176F77B21CC03D3DFB305610A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ TuneIn объединяет спортивные события, музыку, �
 magnet:?xt=urn:btih:F6A7407D89E6CC2B5A2E115C27D49B7AF7E3290F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:F6A7407D89E6CC2B5A2E115C27D49B7AF7E3290F
 ```bash
 magnet:?xt=urn:btih:0E25A28CD4F1EE6DFCCCC098D257C2A722590F0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:0E25A28CD4F1EE6DFCCCC098D257C2A722590F0A
 magnet:?xt=urn:btih:975C87F8050C199437CC4C2B1A724FAF63E9D34D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Lighting calculations / Расчеты освещения v6.1.3 Mod by Balatan 
 ```bash
 magnet:?xt=urn:btih:76459DD4CB9BF1D385811AE3A94B6F778EE7834F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:76459DD4CB9BF1D385811AE3A94B6F778EE7834F
 magnet:?xt=urn:btih:151B7B32E5F39395BFE0FF08661353BA58CB3A8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:151B7B32E5F39395BFE0FF08661353BA58CB3A8B
 ```bash
 magnet:?xt=urn:btih:5AF3C44254473E35A4B4F61A48E8C7EA3EB9B4F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Fairy Girls | Девочки-Феи (2014) [4 тома, 21 глава] [Манг
 magnet:?xt=urn:btih:D7ABAFE6C97C0591FE941E108866B334DE58F547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Electrical Cost / Стоимость электроэнергии v6.1.2 Mod by 
 ```bash
 magnet:?xt=urn:btih:EAF1291498CE2A27E42EDB49C0D22E26B115EC7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ MotoGP. Этап 06 из 22. Гран-при Франции. Гонка (11.05.2
 magnet:?xt=urn:btih:31453798BB9766614AF3323B3ED223BEEB401D44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Fairy Tail | Хвост Феи (2006) [63 тома, 545 глав + 5 Кросс�
 magnet:?xt=urn:btih:E98636B578E2F1C4C0B5D90D03EFE8434A16628A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Fairy Tail Zero | Хвост Феи. Начало (2014) [1 том, 13 глав]
 ```bash
 magnet:?xt=urn:btih:41EB194EB2E134DCA5911B078504A5B563972F88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:41EB194EB2E134DCA5911B078504A5B563972F88
 magnet:?xt=urn:btih:867071B31E17875EC3D5FB8619151ED14B6B6AD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ Emanuel Casablanca - Hollywood Forever (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 ```bash
 magnet:?xt=urn:btih:BE322FA9119169569DABB71F7876B0C90E112E3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:BE322FA9119169569DABB71F7876B0C90E112E3D
 magnet:?xt=urn:btih:49FC356234921BB6148455121305669EC500B04F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ Cain's Dinasty - Dinastía de Caín (2025) [FLAC|Lossless|WEB-DL|tracks] <Power 
 ```bash
 magnet:?xt=urn:btih:08F7DCE324A6D8F44A4948A4D47B45DADDD1AF04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:08F7DCE324A6D8F44A4948A4D47B45DADDD1AF04
 magnet:?xt=urn:btih:F603981836D7F3AD2A4375CBAE0EAFDD48212864
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ Duplicate Files Search & Link (Duplicate Searcher) - это приложение
 magnet:?xt=urn:btih:0206954C27425199A263A586F3CE4E62DC20B96C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ Liquor Store Simulator - это игра в жанре симулятор про
 ```bash
 magnet:?xt=urn:btih:0E3D468A9760A160EA89BFDE3A0F7877C24EC744
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:0E3D468A9760A160EA89BFDE3A0F7877C24EC744
 magnet:?xt=urn:btih:2113E02C2829B71ABC9CF8CD61C7471067561AB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:B45F0DBC1A8C28CE7D3383140020B5A7669490EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ WinSCP, это FTP и SFTP клиент с открытым исходным к�
 magnet:?xt=urn:btih:E9EE1690862F53AC08C009A35BFDAFA1F8D23433
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:E9EE1690862F53AC08C009A35BFDAFA1F8D23433
 ```bash
 magnet:?xt=urn:btih:498436151CA8F5E2236637198A3D98FE5486A560
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:498436151CA8F5E2236637198A3D98FE5486A560
 magnet:?xt=urn:btih:E196B8F9B9E690A008F76377AC98AD922F024336
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ magnet:?xt=urn:btih:E196B8F9B9E690A008F76377AC98AD922F024336
 ```bash
 magnet:?xt=urn:btih:8E76D9C2AB149623EF12C3955214B88A4A8EF05D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1526455   (738124) от 25.01.2022
+
+VA - Bedroom  Jams (2022) [MP3|320 Kbps] <Pop, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SZA - Good Days (5:39)
+02. H.E.R. - We Made It (5:16)
+03. Syd - Fast Car (4:43)
+04. Alex Isley - At Your Best (You Are Love) (4:42)(   Читать дальше...   )Жанр: Pop, R&B, OtherПродолжительность: 02:57:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A09845BC60B22433C9E43C134A017DBAC87B3A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526515   (738127) от 25.01.2022
 
 Evgene Ikonnikov - Compilation (2022) [MP3|320 Kbps] <Electronic, Spacesynth>
@@ -21,6 +50,8 @@ Evgene Ikonnikov - Compilation (2022) [MP3|320 Kbps] <Electronic, Spacesynth>
 ```bash
 magnet:?xt=urn:btih:517CD0875D78E48EC4BCA8D072F57966E678DCA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - RADAR Global (2022) [MP3|320 Kbps] <Pop, R&B, Other>
 magnet:?xt=urn:btih:CCF8016291CDCFF99A85CE1F994881AF3BB062A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +109,8 @@ VA - Beatport Trance: Sound Pack #398 (2022) [MP3|320 Kbps] <Trance, Progressive
 magnet:?xt=urn:btih:EA6A1C07631B3EB202E3338188F73DE3A0BFB322
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +137,8 @@ VA - Basstronix (2022) [MP3|320 Kbps] <Drum & Bass, Bassline, Electro Bass>
 ```bash
 magnet:?xt=urn:btih:F68A5B7E41E0680A1F13C981EA801531233A5592
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -132,6 +169,8 @@ VA - The Official UK Top 40 Singles Chart (11-05-2014) [MP3|320 кб/с]<Pop, Da
 magnet:?xt=urn:btih:09279AF1CC7A4297ADEB9789C22CF33C140A14A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -158,6 +197,8 @@ VA - Lounge At The Seashore 12 (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill
 ```bash
 magnet:?xt=urn:btih:D825498F41C71C3176A4F120E2B52D0B65B29698
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -186,6 +227,8 @@ VA - ЕвроХит Топ 40 Europa Plus 21.01.2022 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:7DFDD3758366E51364ADA8F93D55A00427602997
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +255,8 @@ Space - Space Symphony (2022) 2CD Compilation [MP3|320 Kbps] <Electronic, Space 
 ```bash
 magnet:?xt=urn:btih:7F85608E3DA69B798D5AC650818A010DFFC4A1FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +285,8 @@ VA - All New Rock (2022) [MP3|320 Kbps] <Rock, Hard Rock, Classic Rock>
 magnet:?xt=urn:btih:2CC12A3C01EBCEEDB67E919FBCE0C5C2E6E0EAC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +313,8 @@ Tony Birch - Introspective Waves (2022) by Gertrudda [MP3|320 Kbps] <Synthwave, 
 ```bash
 magnet:?xt=urn:btih:90F8F095DC46B847B377BDF80906E75B14D6CA1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +343,8 @@ VA - Flower Sound Chill House (2019) [MP3|320 Kbps] <Chill, Deep House>
 magnet:?xt=urn:btih:20E166F1BA1ABFCB0B09A5BEF603DF857E1FB669
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +371,8 @@ VA - Empire Records - Red Star 5 (2019) [MP3|320 Kbps] <SpaceSynth>
 ```bash
 magnet:?xt=urn:btih:018743718D0E079587C24A0E397D6682B8B08214
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +401,8 @@ VA - Empire Records - Red Star 4 (2019) [MP3|320 Kbps] <Spacesynth>
 magnet:?xt=urn:btih:E58E2906E7094AB4E8620FF9886E57335B1FFF9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +429,8 @@ VA - Walking To New Orleans (2019) [MP3|320 Kbps] <Blues, Rock Blues>
 ```bash
 magnet:?xt=urn:btih:60C32AF356330361AC555274A9EFCB5D1D2CDB85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +459,8 @@ VA - Soulful Deep House (2019) [MP3|320 Kbps] <Deep House, Electro>
 magnet:?xt=urn:btih:0A4AB0F1D194C15BBE9653C681A19EC8CCC6ED1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +487,8 @@ VA - Record Super Chart 574 (2019) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:13AA89FADCC37B6AEE023ED6BB0BDB9B92C1391E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +517,8 @@ VA - German Top 40 DBC Deutsche Black Charts 15.02.2019 (2019) [MP3|320 Kbps] <R
 magnet:?xt=urn:btih:CCCDFAFA6725AB644155920943B208E9E6CD65AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +545,8 @@ VA - The Heart Of The City (2019) [MP3|320 Kbps] <Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:C1A7F4310542C20E33DDDA3BAFE7B7E13C46DFE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +575,8 @@ VA - German Top 50 Official Dance Charts 15.02.2019 (2019) [MP3|320 Kbps] <Pop, 
 magnet:?xt=urn:btih:42C0EC5D879A8CF891452A554D425CB0C7330269
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +600,8 @@ Joy - Touch By Touch (2019) Remix [MP3|320 Kbps] <Club, Dance>
 ```bash
 magnet:?xt=urn:btih:3DBEAAF66A192BCE9330477E4B0231FCA798684C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +633,8 @@ Hits of My Soul - сборник электронной и инструмент�
 magnet:?xt=urn:btih:F997E9213291ABC133658308C458EA31D232D74E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +661,8 @@ VA - ЕвроХит Топ 40 Europa Plus 15.02.2019 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:582E6186FA276E94EB44902038A175D6CFA741E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +691,8 @@ VA - Progressive Pro V.01 [Compiled by GvertO] (2019) [MP3|320 Kbps] <Deep Progr
 magnet:?xt=urn:btih:6AA200737EE5BF19DBD903FDDC004765EFD4E84F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +719,8 @@ VA - Sexy Midnight with a Saxophone (2020) 3CD [MP3|320 Kbps] <Easy Listening, J
 ```bash
 magnet:?xt=urn:btih:C36EFBD0811493392522B94A5073B2DB1EC4FA18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -672,32 +749,7 @@ VA - The Official UK Top 40 Singles Chart 15.02.2019 [MP3|320 Kbps] <Pop, Dance,
 magnet:?xt=urn:btih:4D88A6892215B9199362DF9DC709F9BFE07AF127
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282974   (740660) от 15.02.2019
-
-VA - Вспоминая Rock 80-х (зарубежный выпуск) (1980-1989) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740660.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Black Sabbath - Neon Knights (03:45)
-002. Judas Priest - The Hellion + Electric Eye (04:22)
-003. Kiss - Danger (03:57)
-004. W.A.S.P. - Mean Man (04:48)(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 07:14:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76EDCA53BEC5B8E4BF1EA9BA015E624B5BCFB0A1
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

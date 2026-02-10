@@ -20,6 +20,8 @@ doPDF — программа для преобразования докумен�
 magnet:?xt=urn:btih:D6588E01EDE65E50EE5DA9A9C9E91958345B6D00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ PhotoCASA - красочный иллюстрированный журнал о 
 ```bash
 magnet:?xt=urn:btih:37FDB2D7DF0493CBDEC3FD5D5BCA037F64465E1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:37FDB2D7DF0493CBDEC3FD5D5BCA037F64465E1B
 magnet:?xt=urn:btih:8BEB0E8A761C5DE4D54778099661A4C11472A36B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:8BEB0E8A761C5DE4D54778099661A4C11472A36B
 magnet:?xt=urn:btih:C42C2D4E9BD70D58E347AEC588469A52A8030DEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Listen Audiobook Player v5.3.1 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F7BBE313BC1A94D324CB7FF6F34D2B8093B6ECF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ VA - Musical kaleidoscope part 50 Assorted (2025) [MP3|320 Kbps] <Electronic, Ea
 magnet:?xt=urn:btih:22C63F859B293287F51BEA94259F047FD534389D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Deftones - Private Music (2025) [MP3|320 Kbps] <Nu-Metal, Shoegaze, Alternative 
 magnet:?xt=urn:btih:F3DB87C298A69F0607D844AD52F114C8855B759B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:F3DB87C298A69F0607D844AD52F114C8855B759B
 ```bash
 magnet:?xt=urn:btih:D0D2F7E116B9B3D5ECB28EA27A01B888DEB20E3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:D0D2F7E116B9B3D5ECB28EA27A01B888DEB20E3E
 magnet:?xt=urn:btih:5B83A6164C51551B33BF2648305B3088A96AA618
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Scuto Sans — современный шрифт без засечек, идеа
 ```bash
 magnet:?xt=urn:btih:D04A1850D836AA506D76175247FD5EA03849D12A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:D04A1850D836AA506D76175247FD5EA03849D12A
 magnet:?xt=urn:btih:29665DA8071BEF7BCAACDDE9CA96FFCD6BF2BE75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:29665DA8071BEF7BCAACDDE9CA96FFCD6BF2BE75
 magnet:?xt=urn:btih:617E0BB5D0A73E06E23348DC3FB096CA18CC4FFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:617E0BB5D0A73E06E23348DC3FB096CA18CC4FFC
 ```bash
 magnet:?xt=urn:btih:22E4F9D35187C15D381BFEE0C7329A050E74C24D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ David Lee Roth - Voice Of Rock - Compilation (1985-2023) [MP3|320 Kbps] <Hard ro
 magnet:?xt=urn:btih:4CE4264FE12103A06A693C2035853CF81C67DCFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:4CE4264FE12103A06A693C2035853CF81C67DCFB
 ```bash
 magnet:?xt=urn:btih:68D1FB8C95C8E547ED78E65743A9898475B2BA67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:68D1FB8C95C8E547ED78E65743A9898475B2BA67
 magnet:?xt=urn:btih:F1B26250B14FAF1B451038FAF50E2B57C6C45DD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ VA - Summer Trance 2025 (2025) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:590885A8345A182F7742E116A2D9A47C835754C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:590885A8345A182F7742E116A2D9A47C835754C6
 ```bash
 magnet:?xt=urn:btih:43EF3B3E3634F8B5C9F0BAFBE1C7BF205156E083
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:43EF3B3E3634F8B5C9F0BAFBE1C7BF205156E083
 magnet:?xt=urn:btih:08634EEA762132551D02517BFEFD7419F8F211A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ Rosetta Stone: Изучение языков v8.34.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6415E8C2EBC89A9CC3CDD44BB61EABB3E5038675
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ Visual Studio — это мощное средство разработчика,
 magnet:?xt=urn:btih:051F3A5C2ECE0E88C648255E11786FCCE814B733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ magnet:?xt=urn:btih:051F3A5C2ECE0E88C648255E11786FCCE814B733
 ```bash
 magnet:?xt=urn:btih:C5BA85DE1C1C71FCD949DD23FB284AECF1F197E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ Way of the Hunter (2022) [Ru/Multi] (1.28/dlc) Repack FitGirl [Ultimate Edition]
 magnet:?xt=urn:btih:6105221F156C11A189FD47AE690A4E8902A35B54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ R-Drive Image — является эффективной утилитой дл�
 ```bash
 magnet:?xt=urn:btih:6AB8B95A3450C18FF0DB0AF72D3DE4BFFE81F9F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ Polarr Photo Editor Pro 5.11.11 [Multi/Ru]
 magnet:?xt=urn:btih:7A1B9DA23D5F55B084CBB56C41E2ACAFC92CE671
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:0E400C055C630429DD4304685B46DA286FC1AB5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

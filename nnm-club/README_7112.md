@@ -19,6 +19,8 @@ Duolingo: изучай языки 5.115.4 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:ADC895E084C66AEC517C217C896198745CFE7C1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:ADC895E084C66AEC517C217C896198745CFE7C1F
 ```bash
 magnet:?xt=urn:btih:931BE1F395BE6317705063847680DE7573940D67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:931BE1F395BE6317705063847680DE7573940D67
 magnet:?xt=urn:btih:E2D1C4641B9C593ED7760B14F52EA077A92F8427
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ The Unseen Fears 3: Last Dance / Невидимые страхи 3: Послед
 magnet:?xt=urn:btih:A45C74AA6C30F3868AE3881A933425E196705140
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:A45C74AA6C30F3868AE3881A933425E196705140
 ```bash
 magnet:?xt=urn:btih:EEF0F3A3F4F0BC9021CF5FAEB088537F968113AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:B1555DF6B2BBA19F42698D2F1BFE7CD2554365A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:B1555DF6B2BBA19F42698D2F1BFE7CD2554365A1
 ```bash
 magnet:?xt=urn:btih:23908A937C931930D68B9BDA131F242947902F50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:23908A937C931930D68B9BDA131F242947902F50
 magnet:?xt=urn:btih:EB1DF986B30EF61AEE241BFC0726CE1E801E767D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:EB1DF986B30EF61AEE241BFC0726CE1E801E767D
 ```bash
 magnet:?xt=urn:btih:FC944C0C1DF855E023DFB0CD3B3FFC7233528ABE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Macrium Reflect обладает интуитивно понятным поль�
 magnet:?xt=urn:btih:2AFCB1E7F938F553FB74024FAC010B979DC7E115
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Mozilla Thunderbird –  легкая и безопасная бесплатна
 ```bash
 magnet:?xt=urn:btih:0C611DF2461894131B30EAAC8BF87B6B2BF3F050
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:0C611DF2461894131B30EAAC8BF87B6B2BF3F050
 magnet:?xt=urn:btih:8F7201E8D016992B94949A419E151EFF47038E1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:8F7201E8D016992B94949A419E151EFF47038E1A
 magnet:?xt=urn:btih:9D377A4F8F654BDAB2A9EF9643BD86A55E823AEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:9D377A4F8F654BDAB2A9EF9643BD86A55E823AEC
 ```bash
 magnet:?xt=urn:btih:7E22EB69B1DB37C9613EE3E0FD3FDDED822B7A59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:7E22EB69B1DB37C9613EE3E0FD3FDDED822B7A59
 magnet:?xt=urn:btih:B33E044DFA021FD780BBCFB73EBDE8A7871A6C71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:B33E044DFA021FD780BBCFB73EBDE8A7871A6C71
 ```bash
 magnet:?xt=urn:btih:F448D0353D71403B83975470F341DCA6FA94DC2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:F448D0353D71403B83975470F341DCA6FA94DC2D
 magnet:?xt=urn:btih:8C1BE5480B2C3D65980EDD0AAF208ABAC4A69484
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:8C1BE5480B2C3D65980EDD0AAF208ABAC4A69484
 ```bash
 magnet:?xt=urn:btih:5C2E6F839C6AAE1AA6EEC3162D2D3CEC035EF73D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:5C2E6F839C6AAE1AA6EEC3162D2D3CEC035EF73D
 magnet:?xt=urn:btih:0A624D599BEB612D0B568DA59F5416A29F447C9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:0A624D599BEB612D0B568DA59F5416A29F447C9B
 ```bash
 magnet:?xt=urn:btih:D95CABC6370DB73D2D153FB1AAC9A59ECD0ACF90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ Wilbur Harden - Jazz Way Out (1958) 1991, Savoy Jazz [APE|Lossless|image + .cue]
 magnet:?xt=urn:btih:EF6422AC235FEE9075AE22652A50AA5D5F85B1C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:EF6422AC235FEE9075AE22652A50AA5D5F85B1C0
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ Erroll Garner - 1944 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, 
 magnet:?xt=urn:btih:A0A6C7CA13E23053DFEB724ADCB614ABBB19EFB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:A0A6C7CA13E23053DFEB724ADCB614ABBB19EFB2
 ```bash
 magnet:?xt=urn:btih:3E953A8D1AA6ED6F83025A6CA9A9202902AD87D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +661,8 @@ Despised Icon - Déterré (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Death Metal, 
 magnet:?xt=urn:btih:8C30419EA00D07B9AAC53BA01E2E42E850A38F3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ magnet:?xt=urn:btih:8C30419EA00D07B9AAC53BA01E2E42E850A38F3B
 ```bash
 magnet:?xt=urn:btih:CD12F579040254CC35CD7BCD6E053DCA3A87497D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

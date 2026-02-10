@@ -1,27 +1,3 @@
-###  Публикация: 1240887   (518015) от 19.08.2018
-
-8 миллионов способов умереть / 8 Million Ways to Die (1986) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скаддер — детектив в департаменте шерифа. Во время очередного наркорейда он вынужден застрелить человека. Переживая по поводу этого инцидента, Скаддер начинает много пить, и из-за этого его увольняют с работы и распадается его брак. Во время лечения в Обществе Анонимных Алкоголиков он встречает таинственную незнакомку. Пытаясь помочь этой женщине, он погружается (   Читать дальше...   )Производство: США / Producers Sales Organization (PSO)Жанр: Боевик, Триллер, Драма, КриминалРежиссер: Хэл ЭшбиАктеры: Джефф Бриджес, Розанна Аркетт, Александра Пол, Рэнди Брукс, Энди Гарсиа, Лиза Слоун, Криста Дентон, Вэнс Валенсия, Вильфредо Эрнандес, Луиза ЛешинПеревод: Многоголосый закадровый, авторскийСубтитры: ОтсутствуютПродолжительность: 01:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B92948EE748E6AC0CB3EC5D42B7F4DFACAC1C9AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929688   (518479) от 20.08.2015
 
 Амстердамское убийство / The Amsterdam Kill (1977) DVDRip [H.264] [AVO]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:B92948EE748E6AC0CB3EC5D42B7F4DFACAC1C9AC
 ```bash
 magnet:?xt=urn:btih:4CAA69123136A67F8B25239DB637763BA360F8C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:4CAA69123136A67F8B25239DB637763BA360F8C7
 magnet:?xt=urn:btih:10F4980BFE61CA7D2166736B7F3D1F14496941BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +71,8 @@ magnet:?xt=urn:btih:10F4980BFE61CA7D2166736B7F3D1F14496941BC
 magnet:?xt=urn:btih:8DC3E7020A2A210CAE23C182FDAD32113C14627D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +96,8 @@ magnet:?xt=urn:btih:8DC3E7020A2A210CAE23C182FDAD32113C14627D
 ```bash
 magnet:?xt=urn:btih:A4A3312C103A4A1A153A9B83F4B3EB755851D551
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +125,8 @@ magnet:?xt=urn:btih:A4A3312C103A4A1A153A9B83F4B3EB755851D551
 magnet:?xt=urn:btih:34FF1EE758DE3343D05A421A1D7FB5242A8B2C97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:34FF1EE758DE3343D05A421A1D7FB5242A8B2C97
 ```bash
 magnet:?xt=urn:btih:B2EE803C2FA7194420E185F35387B26063F840D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +177,8 @@ magnet:?xt=urn:btih:B2EE803C2FA7194420E185F35387B26063F840D0
 magnet:?xt=urn:btih:9ED0C4BE1F19A9DDA038E70448C39B01D8905637
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +203,8 @@ magnet:?xt=urn:btih:9ED0C4BE1F19A9DDA038E70448C39B01D8905637
 magnet:?xt=urn:btih:E274E0BBE5018D912512DC487DF0CE77F22B17E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:E274E0BBE5018D912512DC487DF0CE77F22B17E4
 ```bash
 magnet:?xt=urn:btih:9F201AC10CD6352CD3DB86C26C72E09238CAA78A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +256,8 @@ magnet:?xt=urn:btih:9F201AC10CD6352CD3DB86C26C72E09238CAA78A
 magnet:?xt=urn:btih:FC952C4006AB144AB7A41016054AE47F54C5B847
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +281,8 @@ magnet:?xt=urn:btih:FC952C4006AB144AB7A41016054AE47F54C5B847
 ```bash
 magnet:?xt=urn:btih:51AB4C70F931E71D97BFE0DEBB8DB5591D414BCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +308,8 @@ magnet:?xt=urn:btih:51AB4C70F931E71D97BFE0DEBB8DB5591D414BCF
 magnet:?xt=urn:btih:77300648069D4EBD5A6327FB289F6DD000E207CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +333,8 @@ magnet:?xt=urn:btih:77300648069D4EBD5A6327FB289F6DD000E207CE
 ```bash
 magnet:?xt=urn:btih:EA266821D9D44D978091D5FF7C42F8314E098581
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +360,8 @@ magnet:?xt=urn:btih:EA266821D9D44D978091D5FF7C42F8314E098581
 magnet:?xt=urn:btih:EB88A5DFC13D39A38AC4BE7B583D066F91FA17CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:EB88A5DFC13D39A38AC4BE7B583D066F91FA17CD
 magnet:?xt=urn:btih:6E48EC9A4DD0D2A7E002C30E0814B5315E234402
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:6E48EC9A4DD0D2A7E002C30E0814B5315E234402
 ```bash
 magnet:?xt=urn:btih:B9F6F4FE0628CA7590B4BEC59953AB1BCD63D986
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +439,8 @@ magnet:?xt=urn:btih:B9F6F4FE0628CA7590B4BEC59953AB1BCD63D986
 magnet:?xt=urn:btih:783286CFFE72E89B2C96AD2E968F2953B86A850B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +464,8 @@ magnet:?xt=urn:btih:783286CFFE72E89B2C96AD2E968F2953B86A850B
 ```bash
 magnet:?xt=urn:btih:AE914FC5BCD005691A3FC4B3B0A1017D05E53FD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +492,8 @@ magnet:?xt=urn:btih:AE914FC5BCD005691A3FC4B3B0A1017D05E53FD5
 magnet:?xt=urn:btih:E19D33ECD8FE73EE2FE1DCF7D37B24587819B311
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +518,8 @@ magnet:?xt=urn:btih:E19D33ECD8FE73EE2FE1DCF7D37B24587819B311
 magnet:?xt=urn:btih:CF21B5323AC85EC14CD78C4D975200AD573C5976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +543,8 @@ magnet:?xt=urn:btih:CF21B5323AC85EC14CD78C4D975200AD573C5976
 ```bash
 magnet:?xt=urn:btih:D478BADBB13770986EA0CD20956B5A2BBC16E305
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +571,8 @@ magnet:?xt=urn:btih:D478BADBB13770986EA0CD20956B5A2BBC16E305
 magnet:?xt=urn:btih:824B6ADDFB63C14A39FCBF472241F0C2F7E52E1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +596,8 @@ magnet:?xt=urn:btih:824B6ADDFB63C14A39FCBF472241F0C2F7E52E1E
 ```bash
 magnet:?xt=urn:btih:A7A88A33F5BFD8E74AAA764D06CABC2DDA775334
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +623,8 @@ magnet:?xt=urn:btih:A7A88A33F5BFD8E74AAA764D06CABC2DDA775334
 magnet:?xt=urn:btih:4C591505308B9A19589D6CEA6DE66AD66C9FD137
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +648,35 @@ magnet:?xt=urn:btih:4C591505308B9A19589D6CEA6DE66AD66C9FD137
 ```bash
 magnet:?xt=urn:btih:292D87300F5147ACB36BBB72A402EFC0D0869E34
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925926   (523898) от 14.08.2015
+
+След Розовой Пантеры / Trail of the Pink Panther (1982) HDTVRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый бриллиант «Розовая пантера» снова украден. И опять на его поиски отправляется инспектор Клузо. След бриллианта ведет в Америку — Клузо садится в самолет. А через пару часов этот самолет терпит крушение.
+Шестой фильм из цикла «Розовая пантера». Следующий фильм «Проклятье Розовой Пантеры / Curse Of The Pink Panther(1983)»Производство: Великобритания, США / Amjo Productions, Blake Edwards, Lakeline Productions Ltd., Titan Productions, United ArtistsЖанр: Комедия, КриминалРежиссер: Блейк ЭдвардсАктеры: Питер Селлерс, Дэвид Нивен, Херберт Лом, Ричард Маллиган, Джоанна Ламли, Капюсин, Роберт Лоджа, Харви Кормен, Берт Квук, Грэм СтаркПеревод: Дублированный, многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:32:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79DBD006CE696CC21D2EF481C99DC6FC6606E963
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

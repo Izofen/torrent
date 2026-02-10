@@ -1,3 +1,30 @@
+###  Публикация: 924053   (560511) от 02.08.2015
+
+Джулия Кэмерон | Золотая жила (2014) [PDF, FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джулия Кэмерон - творец с тридцатипятилетним стажем. Ее методики изменили жизни миллионов людей, научили воспринимать и менять свое мировоззрение с помощью творчества. Первая книга, "Путь художника", содержащая 12-недельный курс по пробуждению и развитию творческих способностей, стала бестселлером в России, США и Европе.
+"Золотая жила" - "продвинутый (   Читать дальше...   )Жанр: ПсихологияФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C046DE23CF4A1E1DB5529DE510168B88A675110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235465   (560518) от 11.07.2018
 
 Денеш Фаркашфалви | Послание к Римлянам. Комментарий к греческому тексту (2005) [PDF, DJVU]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:BD52DD1C40CD73FEE5297391190B4ADBC9A01DD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +71,8 @@ magnet:?xt=urn:btih:BD52DD1C40CD73FEE5297391190B4ADBC9A01DD7
 ```bash
 magnet:?xt=urn:btih:26E23AC3EA5238705A8434364D50C1818D875A47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +104,8 @@ magnet:?xt=urn:btih:26E23AC3EA5238705A8434364D50C1818D875A47
 magnet:?xt=urn:btih:F0F4B9B15ABFB7DAA5BFE94A34EC9746FF7862DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +130,8 @@ magnet:?xt=urn:btih:F0F4B9B15ABFB7DAA5BFE94A34EC9746FF7862DA
 ```bash
 magnet:?xt=urn:btih:415E63FB3A5FE5EB57DA87C303F2C9871F774E70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +158,8 @@ magnet:?xt=urn:btih:415E63FB3A5FE5EB57DA87C303F2C9871F774E70
 magnet:?xt=urn:btih:000683FBB407F4F76FB1622D61FE9FE015A25B4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +184,8 @@ magnet:?xt=urn:btih:000683FBB407F4F76FB1622D61FE9FE015A25B4D
 magnet:?xt=urn:btih:102EBF7DA7076A139991F34EE7A3812857BDA845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +209,8 @@ magnet:?xt=urn:btih:102EBF7DA7076A139991F34EE7A3812857BDA845
 ```bash
 magnet:?xt=urn:btih:BED175CD8BE98C181929F283281631283351ABB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +237,8 @@ magnet:?xt=urn:btih:BED175CD8BE98C181929F283281631283351ABB3
 magnet:?xt=urn:btih:70EB7A7FC0467582ABAEC8869E115B135E342F1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +262,8 @@ magnet:?xt=urn:btih:70EB7A7FC0467582ABAEC8869E115B135E342F1E
 ```bash
 magnet:?xt=urn:btih:64584434DF66584AD8B066846453D1DAE3603CB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +289,8 @@ magnet:?xt=urn:btih:64584434DF66584AD8B066846453D1DAE3603CB0
 magnet:?xt=urn:btih:FE20E016085123971343DE36FFC7DBBD4D5E9895
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +314,8 @@ magnet:?xt=urn:btih:FE20E016085123971343DE36FFC7DBBD4D5E9895
 ```bash
 magnet:?xt=urn:btih:CFE00C0E6A775A860376ECCA28FEB2B14E232714
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +341,8 @@ magnet:?xt=urn:btih:CFE00C0E6A775A860376ECCA28FEB2B14E232714
 magnet:?xt=urn:btih:5AA19DB452F859662DBFE586F690FA2F883D46EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +367,8 @@ magnet:?xt=urn:btih:5AA19DB452F859662DBFE586F690FA2F883D46EF
 magnet:?xt=urn:btih:62F1F2E6F23AD2B6D80D14CD7DB29CAA6E50227C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +392,8 @@ magnet:?xt=urn:btih:62F1F2E6F23AD2B6D80D14CD7DB29CAA6E50227C
 ```bash
 magnet:?xt=urn:btih:1EC33E85BE6242D802E7B86B9797CC8731A1B835
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +421,8 @@ magnet:?xt=urn:btih:1EC33E85BE6242D802E7B86B9797CC8731A1B835
 magnet:?xt=urn:btih:2E63B0C5A860D8376EF548D0D63CA3072F8B90EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +448,8 @@ magnet:?xt=urn:btih:2E63B0C5A860D8376EF548D0D63CA3072F8B90EF
 magnet:?xt=urn:btih:68040047F2F395715453D4C108A60E7AB991B99E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +473,8 @@ magnet:?xt=urn:btih:68040047F2F395715453D4C108A60E7AB991B99E
 ```bash
 magnet:?xt=urn:btih:7CFB107B2FDCC4977B1B588E7563C03136D2F225
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +501,8 @@ magnet:?xt=urn:btih:7CFB107B2FDCC4977B1B588E7563C03136D2F225
 magnet:?xt=urn:btih:DEE0A82EB1E4A9D5442051618FAE7E08D998B0AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +527,8 @@ magnet:?xt=urn:btih:DEE0A82EB1E4A9D5442051618FAE7E08D998B0AF
 magnet:?xt=urn:btih:3BEF941584F683D7D53A0C52433D89956FCC54C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +552,8 @@ magnet:?xt=urn:btih:3BEF941584F683D7D53A0C52433D89956FCC54C0
 ```bash
 magnet:?xt=urn:btih:A75C9F517D39BC7C353E884C27627342E939D1FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +582,8 @@ magnet:?xt=urn:btih:A75C9F517D39BC7C353E884C27627342E939D1FA
 magnet:?xt=urn:btih:3923130232CB7C4BC672099F38595985DBB33FCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +607,8 @@ magnet:?xt=urn:btih:3923130232CB7C4BC672099F38595985DBB33FCA
 ```bash
 magnet:?xt=urn:btih:47319F9E0C39E660F6C46E6C7F636469BB5B5D64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +634,8 @@ magnet:?xt=urn:btih:47319F9E0C39E660F6C46E6C7F636469BB5B5D64
 magnet:?xt=urn:btih:32E6FC1D6B3C13CF43A85ECDACB380DC18A36A58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +659,8 @@ magnet:?xt=urn:btih:32E6FC1D6B3C13CF43A85ECDACB380DC18A36A58
 ```bash
 magnet:?xt=urn:btih:55E34AE3D2746189F690E0DFB71163D517C3E3B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,30 +686,7 @@ magnet:?xt=urn:btih:55E34AE3D2746189F690E0DFB71163D517C3E3B1
 magnet:?xt=urn:btih:B85C7C1F6176AF56D11B1565ADA37AC1F360B05B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923595   (562292) от 01.08.2015
-
-Тал Бен-Шахар | Что ты выберешь? Решения, от которых зависит твоя жизнь (2015) [PDF, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562292.jpg" />
-</div>
-
-
-###  Подробнее
-
-101 возможность каждый день осознанно выбирать счастливую жизнь.
-В своей новой книге специалист по позитивной психологии Тал Бен-Шахар с помощью актуальных психологических исследований демонстрирует, как правильный выбор - не большой выбор, случающийся раз в жизни, а повседневные решения, которых мы можем даже не замечать на "автопилоте", - оказывает значимое (   Читать дальше...   )Жанр: ПсихологияФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB913582D63C677E0398E6FB29564659F637EAC8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

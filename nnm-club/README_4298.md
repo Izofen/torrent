@@ -21,6 +21,8 @@ PortableApps.com Platform - это функциональная платформ
 magnet:?xt=urn:btih:7528B26EDFCDFD7735E6F2C4B042C6ADE6A7CD3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Singularity [Ru/En] (L/1.1) 2009
 ```bash
 magnet:?xt=urn:btih:F8F2939D4F1B19CAACF6165B3877C56A4312CB62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Sia - This Is Acting (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Pop>
 magnet:?xt=urn:btih:121DC070CFCBCAF566638B8CD58F35BB44B6E989
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ CD1:
 magnet:?xt=urn:btih:A631CF628DCCB5EE7DE7FAD8FFD7BF36FE233743
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ Tonari no Kaibutsu-kun / Мой безбашенный сосед [2012, TV, 13 
 magnet:?xt=urn:btih:E81CF75402A11DC41069129A65CEA69B09F69DC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:E81CF75402A11DC41069129A65CEA69B09F69DC2
 ```bash
 magnet:?xt=urn:btih:A6E2A8CFA65709E44ABE61200EBCC477238A0DE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ NIUBI Partition Editor (Repack & Portable) – программа для про�
 magnet:?xt=urn:btih:80779330D01FE0D12604BE630CB27B659D1DCAA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:80779330D01FE0D12604BE630CB27B659D1DCAA6
 ```bash
 magnet:?xt=urn:btih:E4BB2E3400082FF773354017C3CE17F4BF3F2868
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:E4BB2E3400082FF773354017C3CE17F4BF3F2868
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ UltraMon - приложение, разработанное специально
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ UltraMon - приложение, разработанное специально
 ```bash
 magnet:?xt=urn:btih:48FFC4E24C5D17A3510F20CBE14A833673199E91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:48FFC4E24C5D17A3510F20CBE14A833673199E91
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:48FFC4E24C5D17A3510F20CBE14A833673199E91
 ```bash
 magnet:?xt=urn:btih:7A3FBA29502413613848B22A52AE95926D500382
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:7A3FBA29502413613848B22A52AE95926D500382
 magnet:?xt=urn:btih:8EB4A8A57632AA203A57CB48E2F8DDCD76C17203
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:8EB4A8A57632AA203A57CB48E2F8DDCD76C17203
 ```bash
 magnet:?xt=urn:btih:AF380007DE632E6EFEC79184D166DA55B034C0CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:AF380007DE632E6EFEC79184D166DA55B034C0CC
 magnet:?xt=urn:btih:1697A6DE8A4DACA47A28B59E21690DC4694760F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:1697A6DE8A4DACA47A28B59E21690DC4694760F8
 ```bash
 magnet:?xt=urn:btih:E507967FE7A1FB0709070AA0D56C7BD3F5E34437
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ ACDSee Photo Manager - программа представляет собой м
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +510,8 @@ Angra - Cycles Of Pain (2023) [FLAC|Lossless|image + .cue] <Progressive Power Me
 magnet:?xt=urn:btih:F8E5405C57356EE3F599B61D1F6BED3FC6C70091
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ Mirillis Action! - позволяет в режиме реального вре�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ Mirillis Action! - позволяет в режиме реального вре�
 ```bash
 magnet:?xt=urn:btih:310617A5237C6A95F1ADEDE4B9BC7F313DFF78FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:310617A5237C6A95F1ADEDE4B9BC7F313DFF78FC
 magnet:?xt=urn:btih:813D79E12AB8BC3DB88A326D1952FB541B1F5059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ First Squad - The Moment Of Truth / Первый отряд. Момент ист
 ```bash
 magnet:?xt=urn:btih:28709F5B7E5F1BD3CCDA1BF8142FD891CE709D60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +651,8 @@ Bryan Ferry - Boys And Girls (1985) /2005 Remaster/ [DST 2.0, 5.1 1bit/2822,4kHz
 magnet:?xt=urn:btih:83F604A041BE5DA3B77078E7EFC28727EE033AD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ magnet:?xt=urn:btih:83F604A041BE5DA3B77078E7EFC28727EE033AD1
 magnet:?xt=urn:btih:588737D91DE581E70050729294EA48AB03BEC25B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ Malwarebytes Anti-Malware - новая версия программы от со
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

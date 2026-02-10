@@ -22,6 +22,8 @@ Molly Hatchet - Southern Rock Masters (2008) [FLAC|Lossless|tracks + .cue] <Hard
 magnet:?xt=urn:btih:ABB1A43357952469E2A75437BF8CAB70C59F6A87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:ABB1A43357952469E2A75437BF8CAB70C59F6A87
 ```bash
 magnet:?xt=urn:btih:C07E2C80900027366F20BCEE9E57E89C5E200E48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:C07E2C80900027366F20BCEE9E57E89C5E200E48
 magnet:?xt=urn:btih:053404EEEB857A347B153BD8CD32FA41FB57CFEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:053404EEEB857A347B153BD8CD32FA41FB57CFEC
 ```bash
 magnet:?xt=urn:btih:D926A258AAEAD8C0CFE9E0A0A974702921DADA27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:D926A258AAEAD8C0CFE9E0A0A974702921DADA27
 magnet:?xt=urn:btih:835A000DE2826DF7F43555B43F8BD46B95455B73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:DB6EE1ABE90B84A291F7C7E213321D0B18A5396C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:DB6EE1ABE90B84A291F7C7E213321D0B18A5396C
 magnet:?xt=urn:btih:4B43578C874DB18B58FDA69DD771E13754E44E88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:4B43578C874DB18B58FDA69DD771E13754E44E88
 ```bash
 magnet:?xt=urn:btih:7AFFCB2F8056F038750753BEAF8F057D7A240900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ The Foundry MARI - творческий инструмент, для текст�
 magnet:?xt=urn:btih:4C1A5359539CEC91C5A28956A144ABED9DC17A75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Forspoken (2023) [Ru/Multi] (1.21/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:4DF8CDF41B5C10AD7D9BF94DE2C9C8B13A2078F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Maxthon Browser 6.2.0.2000 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:07B6295C68DCF6D3615F7BF74D074346AFD6DFB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:07B6295C68DCF6D3615F7BF74D074346AFD6DFB3
 magnet:?xt=urn:btih:35897E356C01FCF07BDE24A32B9E2C482D7BD0A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:35897E356C01FCF07BDE24A32B9E2C482D7BD0A3
 ```bash
 magnet:?xt=urn:btih:C0063FA807AEAA1BCE0E0905C7A1D4A48C03E584
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:C0063FA807AEAA1BCE0E0905C7A1D4A48C03E584
 magnet:?xt=urn:btih:3D4F20256358BE41B840619B285339FC196470B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:3D4F20256358BE41B840619B285339FC196470B1
 ```bash
 magnet:?xt=urn:btih:785E9C8D82F86D2A466CA4DB1A807C49FF05F01F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:785E9C8D82F86D2A466CA4DB1A807C49FF05F01F
 magnet:?xt=urn:btih:9B4079D8B3FB47A9B2C34EF80D786B06A9B157DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:9B4079D8B3FB47A9B2C34EF80D786B06A9B157DB
 ```bash
 magnet:?xt=urn:btih:7710366DDCDC39119BA8CD51899A2D02F78F69FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ floater-io - 4 альбома (2010-2012) Touhou Instrumental /Doujin/ [FLAC|Los
 magnet:?xt=urn:btih:79F956864FF39BE7B71E7AD8084768E30F3606BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:79F956864FF39BE7B71E7AD8084768E30F3606BD
 magnet:?xt=urn:btih:C989E1E7C5C450543437EA2204D16D270448E120
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:C989E1E7C5C450543437EA2204D16D270448E120
 ```bash
 magnet:?xt=urn:btih:CFB6FB81748505BA8ADC7145100D7485FD48C0F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:CFB6FB81748505BA8ADC7145100D7485FD48C0F8
 magnet:?xt=urn:btih:8EF51DA4C3133947EE3487BF5091E1F9A2B50BE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:8EF51DA4C3133947EE3487BF5091E1F9A2B50BE7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:8EF51DA4C3133947EE3487BF5091E1F9A2B50BE7
 magnet:?xt=urn:btih:7C50C2DFF5CD7ABE099ED45C107973A34C33403D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:7C50C2DFF5CD7ABE099ED45C107973A34C33403D
 magnet:?xt=urn:btih:C344C4A7F3E65D4133DC835F7D5D94AC3AF451D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:C344C4A7F3E65D4133DC835F7D5D94AC3AF451D6
 ```bash
 magnet:?xt=urn:btih:DA938AA279A168A3C1D2EDEB9FB801FC05B2ECF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +685,8 @@ ra3wa
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

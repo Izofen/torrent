@@ -1,3 +1,38 @@
+###  Публикация: 532760   (530383) от 11.08.2012
+
+VA-Sky.Fm - Dreamscapes (2010) [MP3|256 кб/с]<Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond - Good For Me (05:39)
+02. Above & Beyond Pres. Oceanlab - Miracle (06:37)
+03. Above & Beyond Pres. Oceanlab - On The Beach (04:38)
+04. Accadia - Into the Dawn (Accadia Ambient mix) (09:15)
+05. Acoustic Alchemy - Only In My Dreams (05:48)
+06. Activa - This World (07:18)
+07. Adam Novy - Soothing Sunrise (Chill) (02:48)
+08. Adyjay - The only chance (05:37)
+09. Adyjay - Time (05:59)
+10. Aerosoul - Isla Blanca (Aftersun Chill Version) (04:48)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 36:04:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A3BF4EBBD04A3CABA77655E50807DCB30FFDC29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1051767   (530578) от 12.09.2016
 
 VA - Музыкальные Новинки Интернета Осенний Выпуск (2016) [MP3|177~320 Kbps] <Pop, Dance>
@@ -21,6 +56,8 @@ VA - Музыкальные Новинки Интернета Осенний В�
 ```bash
 magnet:?xt=urn:btih:3A98605D96D1851FF14EB62E3E896B56DD634A6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -55,6 +92,8 @@ VA - Kiss FM - Top-40 (09.08.2012) [MP3|320 кб/с]<Dance>
 magnet:?xt=urn:btih:1F6B48D9879FBB990EEAEA42F012335EC853E516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +120,8 @@ VA - Now Thats What I Call Drivetime (Pre-Release) (2016) [MP3|128-320 Kbps] <Po
 ```bash
 magnet:?xt=urn:btih:6DF3170F4984850BA97D837638A7BC4B971E2AA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +150,8 @@ VA - Sunshine And Happiness House Mixtape (2016) [MP3|250-320 Kbps] <Progressive
 magnet:?xt=urn:btih:A859B71C3283310985695AE3A175999C385D0B9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +178,8 @@ VA - Trance 55 Week Start Melody (2016) [MP3|320 Kbps] <Trance, Melodic, Energy>
 ```bash
 magnet:?xt=urn:btih:563BEC15738E102022FDE47E4A2EE3737AEE7483
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +208,8 @@ VA - Хиты 90-х Русский выпуск (2018) [MP3|256-320 Kbps] <Pop, 
 magnet:?xt=urn:btih:8E893E982A5B933E83AF3E883AF211DEF49824BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +236,8 @@ VA - Workout Mix vol.2  (mixed by Dj V) (2015) [MP3|320 кб/с]<Club House, Ele
 ```bash
 magnet:?xt=urn:btih:12EDFA4F5A233FD6E7636949EC3E420F08AFA097
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +266,8 @@ K.B. Caps - Dancing In The Dark (1986) [MP3|320 Kbps] <Disco Euro-Disco>
 magnet:?xt=urn:btih:DCF3DCEAE287BA99B89884AB45B0AA4DFA13246F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +295,8 @@ VA - Italo Disco Collection Vol.3 (2017) [MP3|320 Kbps] <Italo Disco, Spacesynth
 magnet:?xt=urn:btih:9CAEB48A5BD293A349EB0139C776022E48814D85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +322,8 @@ VA - 40 Top Chart Summer (2015) [MP3|320 кб/с]<Dance>
 ```bash
 magnet:?xt=urn:btih:FDC279FA52C95179B2B2A62F40E9B0011E8CEB4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +352,8 @@ VA - TOP Non-Stop 2010-2015 - Lounge & Chillout [vol.5] (2017) [MP3|320 Kbps] <L
 magnet:?xt=urn:btih:98D6DEA28DDAE1EDD5E62712281733ABD97B844E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +380,8 @@ VA - Sin City Lounge (Smooth Erotic Chill Music For Intimate Moments And Sensual
 ```bash
 magnet:?xt=urn:btih:26777A84E9C3DDC70540E1AF30627C576EB6631E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +410,8 @@ Christian Grey - Shades of Sensuality Chill Out 50 Minutes Lounge Music Sexy Son
 magnet:?xt=urn:btih:10EE3B27583ADD73F8BC97A8530BAE688768830E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +438,8 @@ VA - More More Disco (2022) [MP3|320 Kbps] <Disco, Dance, Remix>
 ```bash
 magnet:?xt=urn:btih:197B42EFE279A5CCA1E9B9D98111E2D04D7AB97D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +468,8 @@ VA - В машине с музыкой Vol.276 (2022) [MP3|320 Kbps] <Pop, Dance
 magnet:?xt=urn:btih:7A12E3A7C7E26081C2AD9DE0F83D4031F646EB1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +496,8 @@ VA - Cay Hume (K.B. Caps) Projcts (2009) [MP3|320 Kbps] <Disco Euro-Disco>
 ```bash
 magnet:?xt=urn:btih:123A2DC4834FE066C056FC6E4C6654973BE30B8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +526,8 @@ VA - Trance Traveling 91 (Mixed by VNP) (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:612F60A9124A088EA53FA4D79FB673059624FAD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +554,8 @@ VA - Comfortable Chillout & Lounge (2015) [MP3|320 кб/с]<Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:99ACA32FF6E6083E53CF5F5D07A0F14B53B6B700
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +584,8 @@ VA - Music News vol.196 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:2456C76A950C75C34A373FEA4C114C07E98A5330
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +612,8 @@ VA - В машине с музыкой Vol.271 (2022) [MP3|320 Kbps] <Pop, Dance
 ```bash
 magnet:?xt=urn:btih:F3A934B68B60C4CF6C260C68ADFB29B9C90CA369
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +642,8 @@ VA - В машине с музыкой Vol.274 (2022) [MP3|320 Kbps] <Pop, Dance
 magnet:?xt=urn:btih:0BD6697258EF69F382FAD7D02085ECBF95C3250A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +670,8 @@ VA - June EDC Radio: Exclusive Mixed (2022) [MP3|320 Kbps] <EDC, Dance, Club, Ho
 ```bash
 magnet:?xt=urn:btih:86DC1E0EC943AAD2ED503E7C19CAE78F49D0DCE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +700,8 @@ VA - В машине с музыкой Vol.272 (2022) [MP3|320 Kbps] <Pop, Dance
 magnet:?xt=urn:btih:E02474D578A456233374F4CDCB80AC1282712D48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +728,8 @@ VA - Guitar Collection 7 (2016) [MP3|320 Kbps] <Blues Rock, Acoustic, Metal>
 ```bash
 magnet:?xt=urn:btih:7742D6454D9B55DC97966A91ABA15AFD72569113
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -675,38 +758,7 @@ VA - Conversations With Myself (2016) [MP3|320 Kbps] <Rock, Hard Rock>
 magnet:?xt=urn:btih:D5EAF0AEB6934596DB7552ED936E5E2ABEE041D7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533484   (532745) от 10.08.2012
-
-VA - Guitar Classics-The Best Singer Songwriters (2010) [MP3|320 кб/с]<Guitar, Acoustic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532745.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bruce Springsteen - Straight Time (3:26)
- 2. Bob Dylan - You're a Big Girl Now (4:22)
- 3. James Taylor - Walking Man (4:08)
- 4. Simon & Garfunkel - The Boxer (5:08)
- 5. John Mayer - Your Body is a Wonderland (4:08)
- 6. Lou Reed - Walk on the Wild Side (4:12)
- 7. Shawn Colvin - Sunny Came Home (4:24)
- 8. Jakob Dylan - All Day and All Night (3:28)
- 9. Jeff Buckley - Lover, You Should've Come Over (6:43)
- 10. Tim Hardin - Simple Song of Freedom (3:52)(   Читать дальше...   )Жанр: Guitar, AcousticПродолжительность: 01:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B13A0A33AC8D4B02A937ABD01A72F240F6F0A6A8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

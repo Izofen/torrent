@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:BD51E8C05357C274C7E7D7FEF5D97CC3BF7C0B5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Udemy | PHP v.7+ и MySQL с нуля (2019) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:25C6132FD6136E0F0F9B09EC2C2E8A24D23FDB43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Udemy | Создание сайтов без программирования н
 magnet:?xt=urn:btih:083167C454B1152C7C8C65C61680B8980FCACDAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Udemy | SQL инъекции и тестирование баз данных д�
 ```bash
 magnet:?xt=urn:btih:C8530FCD28FED945E224ED19FF2EE59145A6F3DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ CBT Nuggets | Видеокурс для подготовки к экзамену
 magnet:?xt=urn:btih:99CA2CA0DF18D03C6E41EF17A76EF04DD9DD674D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:99CA2CA0DF18D03C6E41EF17A76EF04DD9DD674D
 ```bash
 magnet:?xt=urn:btih:11DF7ECA5FDBAD51C4468D4DFB9D478DDC1F0B2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:11DF7ECA5FDBAD51C4468D4DFB9D478DDC1F0B2B
 magnet:?xt=urn:btih:141C51770D68D6487A209ED701FA7E5AACDDE4C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:141C51770D68D6487A209ED701FA7E5AACDDE4C6
 magnet:?xt=urn:btih:35AABB8063DEB994CBA8E03D1941820597AFB90F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:35AABB8063DEB994CBA8E03D1941820597AFB90F
 ```bash
 magnet:?xt=urn:btih:16BEC78550D75D2654BB7CBD52F40F5E03AEC423
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:16BEC78550D75D2654BB7CBD52F40F5E03AEC423
 magnet:?xt=urn:btih:7BD742911D0780EC5F8F8F6087DD2008A35F3764
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:7BD742911D0780EC5F8F8F6087DD2008A35F3764
 ```bash
 magnet:?xt=urn:btih:28F25EBA215FF4FC5816137C300991B39453B1A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:28F25EBA215FF4FC5816137C300991B39453B1A0
 magnet:?xt=urn:btih:EDC9856DEAD9BF9D83A29D26DCC31DD1AEA10D27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:EDC9856DEAD9BF9D83A29D26DCC31DD1AEA10D27
 magnet:?xt=urn:btih:918C81D5FB6A0292896ADAE6D4A595E65B3A5496
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:918C81D5FB6A0292896ADAE6D4A595E65B3A5496
 ```bash
 magnet:?xt=urn:btih:3F7DB8A88E3A8F5F408816579813A248BDCD27B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:3F7DB8A88E3A8F5F408816579813A248BDCD27B0
 magnet:?xt=urn:btih:5661216622FCF4C5E66868257EF7EDEEE53DBE1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:5661216622FCF4C5E66868257EF7EDEEE53DBE1C
 ```bash
 magnet:?xt=urn:btih:AB18B0DBECAFA504F0BAF8396A88F49EB102E066
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ itgid | Практический JavaScript (2019) PCRec [H.264]
 magnet:?xt=urn:btih:82EEC228E6DC80F288FB53093AC56D3C98946605
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:82EEC228E6DC80F288FB53093AC56D3C98946605
 ```bash
 magnet:?xt=urn:btih:D006E3AAB7C4C36FC56C1A295CA9D6EA1FAE6B7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:D006E3AAB7C4C36FC56C1A295CA9D6EA1FAE6B7B
 magnet:?xt=urn:btih:3861D3CA73AC067601EE118E876B11384AF49F00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:3861D3CA73AC067601EE118E876B11384AF49F00
 magnet:?xt=urn:btih:C9F3C6E6AA341BE802744E7460200F93478431F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ magnet:?xt=urn:btih:C9F3C6E6AA341BE802744E7460200F93478431F0
 ```bash
 magnet:?xt=urn:btih:558F4AA5E68C4D7B2F609333877478F5A517453E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +594,8 @@ magnet:?xt=urn:btih:558F4AA5E68C4D7B2F609333877478F5A517453E
 magnet:?xt=urn:btih:3A52D807AA36735050236C1284F702AB633B5D29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ magnet:?xt=urn:btih:3A52D807AA36735050236C1284F702AB633B5D29
 ```bash
 magnet:?xt=urn:btih:0C69BF58DFED81BAE981591E83125AA7726D1298
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +649,8 @@ magnet:?xt=urn:btih:0C69BF58DFED81BAE981591E83125AA7726D1298
 magnet:?xt=urn:btih:7590AD89211024724715B50DC06247FEC1B9EC9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ Beyond Code | Настольные приложения с Electron / Desktop ap
 magnet:?xt=urn:btih:A53A8308454D74F31EE6DC2DDF6C03D28A4AA13A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ KNP University | Подборка курсов KNP University (2010-2018) PCRec 
 ```bash
 magnet:?xt=urn:btih:B5F5DEE14BF688C4CE510B751804CBA6B251BF57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

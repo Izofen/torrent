@@ -1,3 +1,29 @@
+###  Публикация: 1011939   (795216) от 29.04.2016
+
+Дмитрий Щегрикович | Тайский бокс. Книга-тренер (2012) [PDF]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Муай-тай, или, как его часто называют, тайский бокс, – это одно из древнейших боевых искусств, появившееся еще в XIII веке. На Западе широкую известность муай-тай принесли фильмы Брюса Ли в начале 1970-х – и с тех пор его популярность только растет. В Таиланде муай-тай – это не просто спорт, это целая философия и образ жизни. В Европе и Америке тайский бокс утратил (   Читать дальше...   )Жанр: Боевые и спортивные единоборстваФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35E40D1E25B8F0D0919D5CD6F1870A02B7E5B89D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011971   (795218) от 29.04.2016
 
 Николай Курдюмов | Мой сад. Максимальный урожай легко и просто (2016) [FB2, RTF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:0EA944F9C52D8E990545DD49E1C0E0330093EB8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:0EA944F9C52D8E990545DD49E1C0E0330093EB8A
 ```bash
 magnet:?xt=urn:btih:5A0075F578E7775E4A3E51D1DD917262D4BFD2B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:5A0075F578E7775E4A3E51D1DD917262D4BFD2B2
 magnet:?xt=urn:btih:14A5DD343AA0747CD72D7AA6F1ED8F36B1516A7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:14A5DD343AA0747CD72D7AA6F1ED8F36B1516A7E
 ```bash
 magnet:?xt=urn:btih:23BD0612EC84F2CFA66DB07A6FD58328F8FA4765
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:23BD0612EC84F2CFA66DB07A6FD58328F8FA4765
 ```bash
 magnet:?xt=urn:btih:6287173558A1BD6406E8C8F1DE86D61B889F6AB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:6287173558A1BD6406E8C8F1DE86D61B889F6AB0
 magnet:?xt=urn:btih:CED8B04AF88E3F6BEA0E4EE9075E9BE6CAA54721
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:CED8B04AF88E3F6BEA0E4EE9075E9BE6CAA54721
 ```bash
 magnet:?xt=urn:btih:834BA2519530D10338D7074BC6D6C961AB02B621
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:834BA2519530D10338D7074BC6D6C961AB02B621
 magnet:?xt=urn:btih:1D4D4E520DA77D0713E41293878ABD473F93965B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:1D4D4E520DA77D0713E41293878ABD473F93965B
 magnet:?xt=urn:btih:0F298D46527A7EFD70B3E40239058DD9169BC5DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:0F298D46527A7EFD70B3E40239058DD9169BC5DA
 ```bash
 magnet:?xt=urn:btih:0D1BBF369F6BA6C79A718F8326022A652C2F1AA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:0D1BBF369F6BA6C79A718F8326022A652C2F1AA1
 magnet:?xt=urn:btih:F93BF02AD41AF2686089362313D7FD12C0F15BA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:F93BF02AD41AF2686089362313D7FD12C0F15BA7
 magnet:?xt=urn:btih:ADA9FC7A8A770461B1B9CF66435CD0CABFEC6B8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:ADA9FC7A8A770461B1B9CF66435CD0CABFEC6B8B
 ```bash
 magnet:?xt=urn:btih:8023EBCDBC6D57CAF7E50F970EB7B75854AD7FF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +392,8 @@ magnet:?xt=urn:btih:8023EBCDBC6D57CAF7E50F970EB7B75854AD7FF9
 magnet:?xt=urn:btih:8ECE18A58527DF12111FB9FE44FD36C8921EDDFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:8ECE18A58527DF12111FB9FE44FD36C8921EDDFC
 magnet:?xt=urn:btih:C36EBDBA8EA0B51B26AB9E44B6910ACB0D8B9124
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:C36EBDBA8EA0B51B26AB9E44B6910ACB0D8B9124
 ```bash
 magnet:?xt=urn:btih:819600A7BDD9168C3619FD807C6E12BF936CC304
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:819600A7BDD9168C3619FD807C6E12BF936CC304
 magnet:?xt=urn:btih:0FFE8AE16BFC1AE1319C6DF3D436203A48BEE64F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:0FFE8AE16BFC1AE1319C6DF3D436203A48BEE64F
 magnet:?xt=urn:btih:C680AEE0547881A88AD2C15D5DEFE54B50050FEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:C680AEE0547881A88AD2C15D5DEFE54B50050FEA
 ```bash
 magnet:?xt=urn:btih:8DA164F1974EC5471F4AC1027B80F8AD1B31FEBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:8DA164F1974EC5471F4AC1027B80F8AD1B31FEBA
 magnet:?xt=urn:btih:AE8730B57340BC99B4DB25C3149D49569149F737
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:AE8730B57340BC99B4DB25C3149D49569149F737
 ```bash
 magnet:?xt=urn:btih:12365B98A8E94EB9EEE17AB2A16FF16117833060
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:12365B98A8E94EB9EEE17AB2A16FF16117833060
 magnet:?xt=urn:btih:F25059B684723B1A59073E365D8E49FCF8A73B04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +632,8 @@ magnet:?xt=urn:btih:F25059B684723B1A59073E365D8E49FCF8A73B04
 magnet:?xt=urn:btih:A84841F11E605F0EA041261F409A4A91823AEEF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:A84841F11E605F0EA041261F409A4A91823AEEF4
 ```bash
 magnet:?xt=urn:btih:38CFE5465216890CE17CEAAE5C5B98874317E755
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,30 +685,7 @@ magnet:?xt=urn:btih:38CFE5465216890CE17CEAAE5C5B98874317E755
 magnet:?xt=urn:btih:0AF3C5940D6C6123BF3E14AA50778AE6111718A4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011325   (795888) от 28.04.2016
-
-Эл Кавадло | Подтянитесь! Уличный фитнес (2016) [PDF]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий накаченный городской атлет-воркаутер очень серьезно относится к подтягиваниям. Ничто не может отвлечь его, — ни окружающий городской шум, ни едущий мимо поток машин, ни играющие рядом дети, — он точно знает, что перекладина — это ключ, который откроет ему дорогу в мир силы и накаченных мышц.
-Эта книга, вероятно, самая важная книга из опубликованных за последние (   Читать дальше...   )Жанр: Здоровье, спорт, фитнесФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE6FF85087A60553A54A79D57A792BB5E733453E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

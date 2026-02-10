@@ -21,6 +21,8 @@ Next.js - мощный фреймворк для создания полноце
 magnet:?xt=urn:btih:318B1500B9146381ACE700356D2A87F9391B9EE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Legal Academy, Вадим Усков | Практическое руководс
 magnet:?xt=urn:btih:D5BE79534CC4140C711898D0ABF0CCCAC3E31225
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ Brett Hoebel | 20 Minute Body (2014) HDTVRip [720p-LQ] [EN]
 ```bash
 magnet:?xt=urn:btih:047BC2A2A5AD6B8129305478DA2B8094CDE81971
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ SEO-Коучинг - курс не для новичков и будет акт�
 magnet:?xt=urn:btih:1A267247274E352E4B00D812056F634AC2411366
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ IBM SPSS Statistics – программа для профессионально
 ```bash
 magnet:?xt=urn:btih:94366F7DAE4E8F976FB197EC43EF125E09E3F1AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -155,6 +165,8 @@ magnet:?xt=urn:btih:94366F7DAE4E8F976FB197EC43EF125E09E3F1AB
 magnet:?xt=urn:btih:2BB90699459EE13EEDBFF5015559E6276EBCB480
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ Skillbox, Дмитрий Сидорин и др. | Управление репу
 ```bash
 magnet:?xt=urn:btih:DEE9C843321F63604CA8A37F3F00765F15DA9AAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -206,6 +220,8 @@ Udemy, For Your English | English Language Pro | Разговорный англ
 magnet:?xt=urn:btih:D415B35C614A5AE629C273CD22B7BD7EC476FB15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ WordPress отлично подходит для блогов и электро�
 magnet:?xt=urn:btih:6DF54A68CB61BD3FFC14BBF98846F652C3E899FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ Dean Davis | UnixCBT Sol11x Edition (2015) WEB-DL [H.264] [EN]
 magnet:?xt=urn:btih:E25D19D66D5F81E38A1C4867D8AEE7198728262E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ Chad Morgan | Animation Pipeline in Unreal Engine 4 1-4 (2017) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:0276204A123FA11A68F4B575E6C71C3AA676F0A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +328,8 @@ Udemy, Sandor Kiss и др. |  Полный Курс Личностного Ра
 magnet:?xt=urn:btih:5947A84094441A2A58ABDBFBC9E726E3CA9A8932
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:5947A84094441A2A58ABDBFBC9E726E3CA9A8932
 ```bash
 magnet:?xt=urn:btih:05A71E9C66527F50E77A4B5F143A4E9D061D5547
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +383,8 @@ magnet:?xt=urn:btih:05A71E9C66527F50E77A4B5F143A4E9D061D5547
 magnet:?xt=urn:btih:23A8B9597C9F2ECBC0419231499676737644137A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +408,8 @@ CGMA, Anthony Vaccaro | Organic World Building in UE4 (2017) PCRec
 ```bash
 magnet:?xt=urn:btih:61BE025C97D3E2E9D00D095BEF7BDC39B44FFDFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:61BE025C97D3E2E9D00D095BEF7BDC39B44FFDFA
 ```bash
 magnet:?xt=urn:btih:3B40A642621AE6C2786B1FEB6E3661BE6D122143
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +465,8 @@ Udemy, Lazy Programmer Team | Financial Engineering and Artificial Intelligence 
 magnet:?xt=urn:btih:B1AD0188A0DBC5B81AD4FFC282169673F023131F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +494,8 @@ Udemy, Dzianis Matveyenka | Java для начинающих. Level 1 (2021) WEB
 magnet:?xt=urn:btih:F8E88C8951EF5845AFC4FA6AB45BE39F571F2712
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +519,8 @@ Udemy, Oleksiy Atroshchenko | Сети с нуля. Просто - о сложн
 ```bash
 magnet:?xt=urn:btih:1FA04FD1E625A6CF00AAE9D323FD572C57C57E91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +546,8 @@ magnet:?xt=urn:btih:1FA04FD1E625A6CF00AAE9D323FD572C57C57E91
 magnet:?xt=urn:btih:0389ED92FCFFBCFDD3F329742051E5A0EAF03349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ Cypress чаще всего сравнивают с Selenium; однако Cypre
 ```bash
 magnet:?xt=urn:btih:CA9B607EC2FC4470E83D79C63CA27CA9E22C81CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ SOLID - это аббревиатура, обозначающая SRP, OCP, LSP,
 ```bash
 magnet:?xt=urn:btih:1FBC63898F4E1E2C1661C95F2C01863DCC86E018
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +627,8 @@ magnet:?xt=urn:btih:1FBC63898F4E1E2C1661C95F2C01863DCC86E018
 magnet:?xt=urn:btih:9AF1C4D504778E5A25B5C1DE6BC85D0DA9F8FF38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +653,8 @@ magnet:?xt=urn:btih:9AF1C4D504778E5A25B5C1DE6BC85D0DA9F8FF38
 ```bash
 magnet:?xt=urn:btih:AAE01393D262E38CB8B006ACA21AD63AEA52A9E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +683,8 @@ WhitePhotoSchool, Сергей Гунин | Основы фотографии On
 magnet:?xt=urn:btih:D8E23EF30F84F777F24BAB761D37A7F04B1522EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ magnet:?xt=urn:btih:D8E23EF30F84F777F24BAB761D37A7F04B1522EC
 ```bash
 magnet:?xt=urn:btih:2E04F54DFAFA05281E91E6FB3546A6CBDAC83792
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

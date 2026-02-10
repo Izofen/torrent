@@ -21,6 +21,8 @@ WhatsApp Messenger - кроссплатформенный мобильный м�
 magnet:?xt=urn:btih:7124A0756D3A1F5AA922B3340E76CD488A735B25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ MX Player — видеоплеер для Android с поддержкой огр
 ```bash
 magnet:?xt=urn:btih:384F821C3E18C240851FE846CB42AB6DB72FBA22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ MEmu позволит играть в любимые игры на персон�
 magnet:?xt=urn:btih:5FBE02A5FBCB1CEF443B46EA915553FE35913D27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Red Button – это мощная утилита для оптимизации 
 ```bash
 magnet:?xt=urn:btih:DD732B1F46F5B9125D452A5054229C0E70ED3D09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Netflix начала кардинально снижать расходы
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ CGcircuit, VFX Magic | Houdini Flip – Chocolate (2021) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:D4D8161B532517F9FCEC2798B66F45000BFDB293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:D4D8161B532517F9FCEC2798B66F45000BFDB293
 magnet:?xt=urn:btih:5408763B4DE758A13186BD7507435EB767A87260
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:5408763B4DE758A13186BD7507435EB767A87260
 magnet:?xt=urn:btih:082857BFAE40220B8ABF46A69107E49E75760888
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Apple Motion — приложение для создания анимирова
 ```bash
 magnet:?xt=urn:btih:94A65B584557792CE328E01F823555C132409935
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:94A65B584557792CE328E01F823555C132409935
 magnet:?xt=urn:btih:81BA8A2D9E116CA8D6605397790C24B4DDE4945B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:81BA8A2D9E116CA8D6605397790C24B4DDE4945B
 magnet:?xt=urn:btih:7A089E4823C6ED79E59D169D75F2145C45E4B488
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Macrorit Disk Scanner Unlimited - инструмент для проверки �
 ```bash
 magnet:?xt=urn:btih:CDE8DDDFAAD56AD6A89852FB24A685D48897C5D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Levelup.Digital, Bogodar Havrylyuk | Creating Foliage in Substance Designer (201
 magnet:?xt=urn:btih:6185E6D2349273E401EE8DE0A1C32C6B862ACCBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ App Builder позволяет создавать приложения для с
 magnet:?xt=urn:btih:D94EB0746161AD83CB740E132CCE16A541E2D46D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:D94EB0746161AD83CB740E132CCE16A541E2D46D
 ```bash
 magnet:?xt=urn:btih:22F51D4479AB15D6FC0BB38A40A61A2E49FB5BE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ CGTarian, Дэвид Стодольны | Мега-мультяшный стил
 magnet:?xt=urn:btih:402076F3877DDD637673C14B09F2DD0561537F6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Tablacus Explorer - удобный в работе и простой в испо
 ```bash
 magnet:?xt=urn:btih:DF5335E0428FEB559B2DCE1950F0DE2B09033A79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:DF5335E0428FEB559B2DCE1950F0DE2B09033A79
 magnet:?xt=urn:btih:592185455034763EF229B7925C68D37FF60EAAB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:ED1871D4F9BB83623B9473554D2A5AE2B3573915
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ NoMachine – это средство доступа к удаленным ра�
 magnet:?xt=urn:btih:D53B5B947C8E6DDB81D31DB758F8CE1FE8A61DE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:D53B5B947C8E6DDB81D31DB758F8CE1FE8A61DE1
 ```bash
 magnet:?xt=urn:btih:7125BCFFEAE44E1EEE41F85F10EAD7ADA9E9B1A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Sylvain Kerkour | Black Hat Rust (2022) [PDF, EPUB, MOBI] [EN]
 magnet:?xt=urn:btih:27E85CC7A4198F1417A544A65E2BAD5B0A7D7D85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:27E85CC7A4198F1417A544A65E2BAD5B0A7D7D85
 ```bash
 magnet:?xt=urn:btih:32E8DC02CDC4623DF23DBC6BFD11FA47ED9DC40E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ The Gnomon Workshop, Christophe Desse | Introduction to Substance Painter 2018 (
 magnet:?xt=urn:btih:41902B71C041E08C6CEF7DE88BB3EA4C4062EEAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:41902B71C041E08C6CEF7DE88BB3EA4C4062EEAC
 magnet:?xt=urn:btih:95FF34C4E6D5D582BB20E69F71516C1748C2D0D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:95FF34C4E6D5D582BB20E69F71516C1748C2D0D8
 ```bash
 magnet:?xt=urn:btih:55D82B301D14D5C289B758BF289EA06FB0D4FDA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

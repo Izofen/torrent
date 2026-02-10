@@ -20,6 +20,8 @@ Backgammon3D по праву считается одной из лучших р�
 magnet:?xt=urn:btih:05E03B0DD0CDAB42BEC6C0F8E9F043565D3AC32A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Archipelagoes / Ух-ты, бухты! (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:EF64A80ECE415F4B44E5A473B91FE76A7826EB03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Liong. Утраченные амулеты - уникальная игра, ко
 magnet:?xt=urn:btih:25150E0F6ECDC7C2CED7963AE6DA4CF54ABE360F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Jewel Quest Mysteries 4: The Oracle of Ur Collector's Edition / Тайны др�
 ```bash
 magnet:?xt=urn:btih:98E38698530DAC851304D872D6A9CF132601B978
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Sters - некие существа, обитающие в домах с при�
 magnet:?xt=urn:btih:80286F92F0B8D4DB85244C310000D3665432AD17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Gobs of Fobs (P) [En] 2006
 magnet:?xt=urn:btih:0D7699F8BEE7CB81FAB401E75E4A0862DE206111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Azkend 2: The World Beneath (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:F3AAF855BAE57FA35D3C873AB3850C142CD86D79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Tumble Jumble - отличный физический пазл от создат
 magnet:?xt=urn:btih:F9341741E03CC377DFAC545878CD1FFA66BA667C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Big Kahuna Reef 3 (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:BDE42ACA39F001794C6516ABF94E5DBBA44E277A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Jewel Legends: Tree of Life (P) [En] 2012
 magnet:?xt=urn:btih:DE813E8D4C7B526CB59799E4FCD4FCF0B3FA12ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:DE813E8D4C7B526CB59799E4FCD4FCF0B3FA12ED
 ```bash
 magnet:?xt=urn:btih:B96DBA8C3F98F0C9FAB5CF4693F751A0AF8A4DB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Azkend (P) [En] 2011
 magnet:?xt=urn:btih:BCCFA4BBF10989DB63B8C3554C25DEE37A0756BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ GNOG - тактильная игра с трехмерными паззлами,
 ```bash
 magnet:?xt=urn:btih:A28A89F6B5F8F1CC7A4371509B5D91D2D2D387C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Witch's Rhythm Puzzle (2023) [Multi] (1.04) License GOG
 magnet:?xt=urn:btih:3984A6107B896A30D17E90C518747CC5CF19406A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Divine Journey: The Life of Jesus (2023) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:16AF494B38C19873E705A5A0540022E6D68AA9AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Tetris Effect: Connected - классический тетрис, вводящи
 magnet:?xt=urn:btih:5E1C27368D9CF8631226E03AD507533D9CE6C56F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Indie Collection [Ru/En] (RePack) 2008 - 2011 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:9DCF2B68B1CB0C3A975209168EE6C104542B5AE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Little Inferno довольна необычна и уникальна в сво
 magnet:?xt=urn:btih:E949FB34FEDDDA200B12E79B22118E783B9ECBCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Ingenious / Ingenious. Все гениальное просто [Ru] (L) 2007
 magnet:?xt=urn:btih:67FF833AD7C561E23593AA33A144E9914AED9117
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Cats Hidden in Paris отправляет игроков в восхитител
 ```bash
 magnet:?xt=urn:btih:74CC68A262A15A738F83F92BCC79DAA4763B501C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Lynn, The Girl Drawn On Puzzles (2020) [Ru/Multi] (1.0.01) License GOG
 magnet:?xt=urn:btih:39D27614246564FEBA3656616ED6A15259ADFC8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Lucas Chess - одна из обучающих шахматных програм
 ```bash
 magnet:?xt=urn:btih:2A20CC23B0DB6E40E75BE867A2C6FB57C805EAE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Dr. Fetus' Mean Meat Machine - это идеальный баланс между
 magnet:?xt=urn:btih:71AACA667D9E0FF25035DCB5F2AFBB77010C2613
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ Monster Tribe предлагает игроку исследовать остр�
 ```bash
 magnet:?xt=urn:btih:EDFBEB596F925C72E03D0A10156384ACDC53C5BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ Zodiacats - это расслабляющая казуальная игра со
 magnet:?xt=urn:btih:6E48EDF9DAE8FB7495854CAAB30776912530640D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ FixFox - это научно-фантастическая приключенче
 ```bash
 magnet:?xt=urn:btih:155D23C5BAD7C907CF531F94B7F6498CFB599787
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

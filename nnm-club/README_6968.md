@@ -19,6 +19,8 @@ GeoGebra — мультиплатформенная программное об�
 magnet:?xt=urn:btih:48B94F95F684A0606EECE3F7E78A7F5C17CBCF04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ WinX HD Video Converter Deluxe - профессиональное приложе
 ```bash
 magnet:?xt=urn:btih:68195F8F2986608F4EDBFAFACC227DCB9587756A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:68195F8F2986608F4EDBFAFACC227DCB9587756A
 magnet:?xt=urn:btih:CFE6FEA04B3B6567CBCBEA813BD4F5DF46B34E7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:CFE6FEA04B3B6567CBCBEA813BD4F5DF46B34E7B
 ```bash
 magnet:?xt=urn:btih:817CD6C00E2A10F8840DDD8C2193A675E102271C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Zero People — это сайд-проект музыкантов популяр
 magnet:?xt=urn:btih:E457D138C7D53D8D222AFB530BFE455CC74AD7D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ VA - Vocal Trance: London (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
 magnet:?xt=urn:btih:C146B196939B8A70A892687F591418C06FD41561
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:C146B196939B8A70A892687F591418C06FD41561
 magnet:?xt=urn:btih:A74D0FDBD68A9DD54717A53A03F68BA7927B4B82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:A74D0FDBD68A9DD54717A53A03F68BA7927B4B82
 ```bash
 magnet:?xt=urn:btih:BCA76317B41BF48F7D47A48B5804AAFB4880C333
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ VA - Fall in Love this Summer (2023) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:CFF95454725DC5C9839EE6857A364788E61F88B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:CFF95454725DC5C9839EE6857A364788E61F88B3
 ```bash
 magnet:?xt=urn:btih:255A8C250902D1AB7747DFAB912BC6765F93C4CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:255A8C250902D1AB7747DFAB912BC6765F93C4CA
 magnet:?xt=urn:btih:024F14C2097D8688B98E80B2D7A8900134E44E07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ Path Finder - один из лучших файловых менеджеров, 
 ```bash
 magnet:?xt=urn:btih:F5BE374DEAD8E4479A56919D8699C01B39061055
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ Dexter Gordon Quartet - Swiss Nights, Vol. 1 (1975) 1987, SteepleChase [FLAC|Los
 magnet:?xt=urn:btih:370778D25E618A53CFB1EC70B84E9C4C366A6C5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ X Lossless Decoder (XLD) - это инструмент для macOS, котор�
 ```bash
 magnet:?xt=urn:btih:E60C64C325C714AC1A530C5AE81831285DB0F210
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ Element Eighty - A.D. (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Nu Metal
 magnet:?xt=urn:btih:6E2AEA041896A34494F70C4445183D6FFA8E961C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:6E2AEA041896A34494F70C4445183D6FFA8E961C
 ```bash
 magnet:?xt=urn:btih:0430EBF4B4BCCD033DEF7C422E3379198D305395
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ Driver Booster сканирует и определяет устаревшие �
 magnet:?xt=urn:btih:A9C726973C621802219FE7C5B94223BCD89ACB86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ MediaInfo — позволит узнать техническую информ�
 ```bash
 magnet:?xt=urn:btih:07D4EEBBDFC7A4AA64A89513D20AD01224B0F7F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ magnet:?xt=urn:btih:07D4EEBBDFC7A4AA64A89513D20AD01224B0F7F7
 magnet:?xt=urn:btih:0F8EDDA410768A7C0CB0F27063F89BC130C83FEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ PhotoDirector - функциональный, но весьма простой �
 ```bash
 magnet:?xt=urn:btih:6A35685D1E408B84564D62717688AA29F968D681
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:6A35685D1E408B84564D62717688AA29F968D681
 magnet:?xt=urn:btih:56318108A6BC7D58866B22020BCB7A08B8B98B22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:56318108A6BC7D58866B22020BCB7A08B8B98B22
 ```bash
 magnet:?xt=urn:btih:A08D2DAAD6C989B0B023172807D17EBB6F4390F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +618,8 @@ Dexter Gordon Quartet - Swiss Nights, Vol.2 (1975) 1987, SteepleChase [FLAC|Loss
 magnet:?xt=urn:btih:F7731B10CC2713A180377E44AB80CAFF0F363DF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ magnet:?xt=urn:btih:F7731B10CC2713A180377E44AB80CAFF0F363DF0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ magnet:?xt=urn:btih:F7731B10CC2713A180377E44AB80CAFF0F363DF0
 magnet:?xt=urn:btih:B44D5C26A146AE2E5D93E0E4DB564085ABAFD183
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ Hasleo Data Recovery - программа для восстановления у
 ```bash
 magnet:?xt=urn:btih:A2902919C89369AD6F329105C03AA51C7686594C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

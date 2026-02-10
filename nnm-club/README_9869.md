@@ -1,51 +1,3 @@
-###  Публикация: 1259560   (318463) от 04.11.2018
-
-Роберт Маккаммон и др. | Литературный аудиопроект «Глубина» [выпуск 10] (2018) [MP3, Олег Булдаков и др.]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318463.jpg" />
-</div>
-
-
-###  Подробнее
-
-ГЛУБИНА - это литературный аудиопроект творческого объединения независимых чтецов, любящих и умеющих делать своё дело – рассказывать увлекательные истории. Если вы готовы погрузиться ниже ватер-линии обыденной реальности в чарующий океан захватывающей прозы, то нам с вами по пути!Жанр: Мистика, ужасы и др.Продолжительность: 06:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF8A7E5AA913983AFBD4BB49C9AEAD938BE161E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259595   (318464) от 04.11.2018
-
-Экшены - GraphicRiver - Artist 4 in 1 Bundle vol.4 - 22462841 [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот набор действий фотошоп поможет преобразить ваши снимки наложением всевозможных удивительных профессиональных эффектов. После завершения работы экшена, конечный результат - полностью редактируемый, хорошо организованные слои / папки, и у вас есть полный контроль над ними, чтобы настроить свою работу по своему усмотрению.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBA68751C4ACD02123BF40C6F3DBD78B10ADD40E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100549   (318465) от 04.11.2018
 
 N.G. Большие кошки. Удивительная семья / Big Cats: An Amazing Animal Family (2015) HDTVRip [H.264/1080p] (серии 1-2 из 2)
@@ -67,6 +19,8 @@ N.G. Большие кошки. Удивительная семья / Big Cats: 
 ```bash
 magnet:?xt=urn:btih:E1D76F55F09764F0A77D63B2FF5155D994AFAB04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +49,8 @@ magnet:?xt=urn:btih:E1D76F55F09764F0A77D63B2FF5155D994AFAB04
 magnet:?xt=urn:btih:73651003D3B5509532E32518180ECE49DCDC3CFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +74,8 @@ magnet:?xt=urn:btih:73651003D3B5509532E32518180ECE49DCDC3CFD
 ```bash
 magnet:?xt=urn:btih:BC04EA46B78C3CFDD899D4B462F2A08F07494699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +101,8 @@ magnet:?xt=urn:btih:BC04EA46B78C3CFDD899D4B462F2A08F07494699
 magnet:?xt=urn:btih:B2590020BCA5CBA75F89DC08A2FBBF39A972FDB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +126,8 @@ magnet:?xt=urn:btih:B2590020BCA5CBA75F89DC08A2FBBF39A972FDB5
 ```bash
 magnet:?xt=urn:btih:5D97794EE4101DE820D547BF4BA04A482E5A2AB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +154,8 @@ magnet:?xt=urn:btih:5D97794EE4101DE820D547BF4BA04A482E5A2AB6
 magnet:?xt=urn:btih:243E4BBAD90B5C5A98C8B22984D1D9BE2903B93E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +180,8 @@ magnet:?xt=urn:btih:243E4BBAD90B5C5A98C8B22984D1D9BE2903B93E
 magnet:?xt=urn:btih:49E5EF01E116F870D22759BA2B157B03926880C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +205,8 @@ magnet:?xt=urn:btih:49E5EF01E116F870D22759BA2B157B03926880C2
 ```bash
 magnet:?xt=urn:btih:A2E3EFEA52D10256F8792A4B4D07DD275209F2CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +235,8 @@ Sky Technology - Rainbow Spirit (2019) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance
 magnet:?xt=urn:btih:9805990F7C29DAF25BF32FE62952E67A57F1975F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +260,8 @@ RegCool 1.111 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DAE1EE4CA491EA09824EC5F3D181F7869D90AF04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +288,8 @@ magnet:?xt=urn:btih:DAE1EE4CA491EA09824EC5F3D181F7869D90AF04
 magnet:?xt=urn:btih:57DB3CA40944667D017D4DF7C4CD6C145DF8B4CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +314,8 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 magnet:?xt=urn:btih:54888C9B9EC83326143BD29892876D72C3319118
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +339,8 @@ Screenpresso - это лёгкая программа, делающая вели
 ```bash
 magnet:?xt=urn:btih:406CB311939ABD697BC35D89B0DF355BC59BE4A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +369,8 @@ Lionsheart:
 magnet:?xt=urn:btih:2C0385FC89A004A91E967818D36636A2CB2B0FFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +395,8 @@ magnet:?xt=urn:btih:2C0385FC89A004A91E967818D36636A2CB2B0FFD
 magnet:?xt=urn:btih:43FD003ADF840C8E7A07DFB120D237250888CA35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +420,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:079953DB39D9FC95B4C756D8D887CD1171F8EC51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +450,8 @@ Crazy Hambones - Beautiful (2019) [MP3|320 Kbps] <Blues>
 magnet:?xt=urn:btih:FE96E409C679F228139CB01758E3986D65FA451D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +476,8 @@ magnet:?xt=urn:btih:FE96E409C679F228139CB01758E3986D65FA451D
 ```bash
 magnet:?xt=urn:btih:E9355F20CCAE48A5C4CDAFE7AA3E0D6038E92543
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +506,8 @@ magnet:?xt=urn:btih:E9355F20CCAE48A5C4CDAFE7AA3E0D6038E92543
 magnet:?xt=urn:btih:0A850B524F7E52A012ECF22C81E450FE0CC77D9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +534,8 @@ Original Sound Project - RTL präsentiert Ilona Christen Privat Concert (1995) [
 ```bash
 magnet:?xt=urn:btih:191C959C994027CBA4A0DB61E1AFC874CEC0DFD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +564,8 @@ Christopher Phillips - A Conversation With God (2006) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:C9FCA15E374305761981CF75E0CD351371838968
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +590,8 @@ magnet:?xt=urn:btih:C9FCA15E374305761981CF75E0CD351371838968
 ```bash
 magnet:?xt=urn:btih:74F979FC36F32D716D19F3F7F80D706498D8C51F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +620,8 @@ Syncophonic Orchestra - Columbia - A Space Symphony (1981) LP [MP3|320 Kbps] <El
 magnet:?xt=urn:btih:134A74E74F0CD7C1DA593B503EA581BBCC193CEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +648,61 @@ VA - Musicland - The Sound Of Munich (1978) LP [MP3|320 Kbps] <Electronic, Funk 
 ```bash
 magnet:?xt=urn:btih:DA775FC39504D27AC624F777D1E5D942F5279310
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331997   (318507) от 18.10.2019
+
+TG Pro (Temperature Gauge Pro) 2.43 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318507.jpg" />
+</div>
+
+
+###  Подробнее
+
+TG Pro — контроль температуры и вентиляторов вашего Mac.
+Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Tunabelly SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D33A952A48EE093579A945167AA2A9CA601B7839
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331976   (318510) от 18.10.2019
+
+KCNcrew Pack 10-15-19 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318510.jpg" />
+</div>
+
+
+###  Подробнее
+
+KCNcrew Pack - это огромнейший сборник серийников на софт под Mac OS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и каждый месяц обновляется!Тип издания: macOS SoftwareРелиз состоялся: 15.10.2019Разработчик: iSerialПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6FF417BA4D2590B2D7ECD0BB773426D3D36A036
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

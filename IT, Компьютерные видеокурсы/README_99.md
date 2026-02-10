@@ -19,6 +19,8 @@ VS Code довольно хорош. Его интегрированный те�
 magnet:?xt=urn:btih:6548E49530C1568B1CE53F2017B7EFC16C63EAB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Udemy, Bret Fisher и др. | Docker Mastery: with Kubernetes +Swarm from a Dock
 ```bash
 magnet:?xt=urn:btih:BCAE99D513403A4CB8CD5210FEDB67F5B8201E2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Udemy, Hadelin de Ponteves и др. | A Complete Guide on TensorFlow 2.0 using K
 magnet:?xt=urn:btih:98D6A6E3E7331E6D23A60A71414EB9BB3961DFF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ javascript.ru | Продвинутый курс по Angular (2021) PCRec
 ```bash
 magnet:?xt=urn:btih:3C38385E74136F7ECF432046AFC290229C993B0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:3C38385E74136F7ECF432046AFC290229C993B0B
 magnet:?xt=urn:btih:3CC601EBC755267D60D9758AF0C4FDEDE1EE0AE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Udemy, Skills Factory | Профессия разработчик сайтов �
 ```bash
 magnet:?xt=urn:btih:5044E9868696B9F3ACFE7AFC717F3ED81E1E0EFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Udemy, Глеб Михайлов | SQL для Анализа Данных с Г�
 magnet:?xt=urn:btih:72C9564039E76866FA4901CD802FB2529B4AE680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Flask – это удобный легковесный фреймворк, ис�
 ```bash
 magnet:?xt=urn:btih:5EC36C8E301CEAAF13A7E265BAB201D687810195
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ WebDesign Master | Создание крутого Swiper-слайдера от 
 magnet:?xt=urn:btih:BBB8C88BF4583D7B92FBB44DB908E642AAB7677F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:BBB8C88BF4583D7B92FBB44DB908E642AAB7677F
 ```bash
 magnet:?xt=urn:btih:3731EDF0848B51E6B7986361AD653F0C5B32DB25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ Profit, Степанцев Альберт | Вебинар "Почему огр�
 magnet:?xt=urn:btih:1162D8F64AA9E30EB1A125DE55D3E26E35288A85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ Skillbox, Павел Горкин и др. | Профессия Разработ
 ```bash
 magnet:?xt=urn:btih:EC5741953156521EC6A9327E07ED5472AA44C311
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:EC5741953156521EC6A9327E07ED5472AA44C311
 magnet:?xt=urn:btih:0BAA461458A16A64F2EB696967A11DD67ADA0A37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ Udemy, Alexander Gol | Full-Stack разработка веб приложени
 ```bash
 magnet:?xt=urn:btih:967A85913D8026591CC01EEB36CA3FDDF6D4A633
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ Udemy, Maximilian Schwarzmüller | React - The Complete Guide (incl Hooks, React
 magnet:?xt=urn:btih:E9E5147C2A6483F17E45F9E979EAB1DE9AAE9004
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ Python - язык мультипарадигменный. И комбинаци�
 magnet:?xt=urn:btih:871FB6575EFA5851D193645EB94711BFC9B382D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ Udemy, Vasyl Velmyk | Webpack, Babel - Детальное Руководство
 ```bash
 magnet:?xt=urn:btih:56E8B459CF83F92E43E1B2DA15A0821C2B1FFA39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ Udemy, Nana Janashia и др. | Complete Terraform Course - Beginner to Advanced
 magnet:?xt=urn:btih:E58664C8B6E47923656F9E3A2822C879847E6654
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ Udemy, Tim Buchalka | Java SE 11 Developer 1Z0-819 OCP Course - Part 1 & 2 (2021
 ```bash
 magnet:?xt=urn:btih:C97273DAE8603C5C1D839A40F9ADEAE3932EF4EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ Udemy, Marcus Ng | Flutter Firebase Bloc Instagram Clone | iOS and Android 2021 
 magnet:?xt=urn:btih:D0D0DCE7D8DF3845CDE9E4A6F47C80F714181BBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ Angular 1 и NodeJS вместе с ExpressJS (NodeJS Framework) и MongoDB сф
 magnet:?xt=urn:btih:43E85CE9EE7F3961FFAE1BA39BC27406FCA23B40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ Jeff Minakata | OSINT for hackers and penetration testers (2020) PCRec [En / En,
 ```bash
 magnet:?xt=urn:btih:46217961D7CF10ADB1D87E88A60AE333D1828071
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +622,8 @@ Udemy, Rafael Silva Pinto | Optimization with Python: all you need for LP-MILP-N
 magnet:?xt=urn:btih:4354AADAA47ADC646855201FBB4C29529CC42C4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +647,8 @@ Leigh Halliday | Next Level Next.js (2021) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:3F3076B4EBAF7C6417A36F6303C18233A9A18A9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ Node.js, вероятно, самый популярный и современн
 magnet:?xt=urn:btih:4D0D2B35941165FCB327141857EDFBB27873EE84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ JavaScript - это САМЫЙ важный язык программирова�
 ```bash
 magnet:?xt=urn:btih:CE68F71E08616558F038DED7A5E540B0F60705DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

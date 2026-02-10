@@ -19,6 +19,8 @@ Sabayon 16.01 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE и ser
 magnet:?xt=urn:btih:E89314A189B2732BE160791E215D7289EB68A7E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ CentOS 7.6 (1810) [i386] 2xDVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:961EE7368EFE3AAEFD320E97AB2DB54199E2B2B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ AV Linux имеет полностью настроенный Debian Linux с XF
 magnet:?xt=urn:btih:FE60BFC6817B52ED5B0D46DA6343D782278D96E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ KXStudio большая и часто обновляемая коллекция 
 ```bash
 magnet:?xt=urn:btih:B3D4AC820812E1A26153AD830CFE9148EF65B92D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ CentOS 7.6 (1810) [x86-64] 5xDVD, 1xCD
 magnet:?xt=urn:btih:2B773FF440F069EEA4BA55AFA932573EACF1DDDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Univention Corporate Server 3.1 [i386 + amd64 +amd64 (U)EFI] (3xDVD)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ elementary OS 6.1 Jolnir [x86-64] 1xDVD
 magnet:?xt=urn:btih:8AC8290650DB5AE9115C4B1640F312CA721F896E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Linux Mint 19.3 Tricia (XFCE, Mate, Cinnamon) [32bit, 64bit] 6xDVD
 ```bash
 magnet:?xt=urn:btih:33D556B083D7E75BF08AB82D463A12A5B84C9B31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Debian GNU/Linux 11.2.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+2xCD
 magnet:?xt=urn:btih:C4F2253CD1E87286E1EDFE89540738FD96474131
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Debian GNU/Linux 11.2.0 + nonfree (firmware) Bullseye [i386] 2xDVD+2xCD
 ```bash
 magnet:?xt=urn:btih:B3114F34782C532FF6EBA6AF2CB2E20B97557973
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Cyborg Hawk - Linux дистрибутив, в состав которого в�
 magnet:?xt=urn:btih:1A11B5B9EF9A22C2BA921E6EA689B1303CF4DA96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Whonix - дистрибутив Linux на основе Debian, ранее из�
 ```bash
 magnet:?xt=urn:btih:47F17FB2B5A1C1EE9F011F13D8325C140A798B37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ Kali Linux 2022.4 [amd64, i386, arm64] 8xDVD, 3xCD
 magnet:?xt=urn:btih:E3FF8A584543E4156324FDF38C455CBEF52ED974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Linux Mint 21.1 Vera (XFCE, Mate, Cinnamon) [64bit] 3xDVD
 ```bash
 magnet:?xt=urn:btih:F6FED864C35923A8ED72E887C1674F1BAA64C889
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Debian GNU/Linux 11.6.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+2xCD
 magnet:?xt=urn:btih:63F78740458A9F360715EA5EBD10433122B4D166
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Debian Edu, также известный как Skolelinux, является д
 ```bash
 magnet:?xt=urn:btih:C931FA9DDEE93A131D8B128034597678193B138F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ Debian GNU/Linux 11.6.0 + nonfree (firmware) Bullseye [i386] 2xDVD+2xCD
 magnet:?xt=urn:btih:A53FC97489671F363C2C58351B73188EEA7ABDD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ CentOS 8.3 (2011) [amd64] 1xDVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:C74F445DD8E201C83B27F6DA89DEF64E0EC4EA55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ BackBox Linux 8 [Аудит безопасности, хакинг] 1xDVD [amd64
 magnet:?xt=urn:btih:21453AB67034650239B4A2A2306EA91EE7232AA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ BlackArch Linux — специализированной Live модификац
 ```bash
 magnet:?xt=urn:btih:BAA9690E031413E152B1D3C2A13E5E07A11C9FD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Debian GNU/Linux 10.7.0 + nonfree Buster [amd64] 4xDVD
 magnet:?xt=urn:btih:ED9FF2508F0E5598A7B0DFB2785D2712D8D66754
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Debian Edu, также известный как Skolelinux, является д
 ```bash
 magnet:?xt=urn:btih:8B9031B8B34BC29983163B1356816B3905BDB883
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ Debian GNU/Linux 10.7.0 + nonfree Buster [i386] 4xDVD
 magnet:?xt=urn:btih:C1A3A4940F916DC4E504751543DD3C9F00030CFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Kali Linux 2023.3 [amd64, i386, arm64] 11xDVD
 ```bash
 magnet:?xt=urn:btih:84A50043B9F64FBD5AD32310A80EBA5A370FDAA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ BlackArch Linux 2020.12.01 [Хакинг, аудит, безопасность] 
 magnet:?xt=urn:btih:EBB53589EF9F3E591ACB555AAEB856580C13F8B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Linux Mint 21.2 Victoria (Cinnamon Edition, Cinnamon (Edge) Edition, MATE Editio
 ```bash
 magnet:?xt=urn:btih:539231B662CA73EE4D39472CA8A657E5E3A4C874
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

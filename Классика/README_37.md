@@ -22,6 +22,8 @@ Maria Callas - La Divina 3 (1986 - 1987/1995) [FLAC|Lossless|tracks + .cue] <Cla
 magnet:?xt=urn:btih:E45301CB05F6DB3944589E2F9B714EFF5708F890
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Psalm I: Dixit Dominus(   Читать дальше...   )Жанр: Classical sa
 ```bash
 magnet:?xt=urn:btih:84A5432C998AA35C7E7E25AB5821E015C385D9FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:84A5432C998AA35C7E7E25AB5821E015C385D9FD
 magnet:?xt=urn:btih:4C5A52ABF7F100CC0E94817EDD70D958D0A93B88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Isao Tomita - Different Dimensions (1997) [FLAC|Lossless|tracks + .cue] <Electro
 ```bash
 magnet:?xt=urn:btih:ACE20B440AF5F6CA742A1246DDBFE1B353699ADD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ CD1:
 magnet:?xt=urn:btih:5553547482ECB25422B466698D0B24F373BBCD24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Riccardo Muti & Wiener Philharmoniker - New Year's Concert 2018 (2018) 2CD [FLAC
 ```bash
 magnet:?xt=urn:btih:473F470FDAB6C2BBFC0F28F3D7642BB0CA0B4D75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Best of Classical Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical, In
 magnet:?xt=urn:btih:4CE039306EA458C00B994C0AA3F6865201229F5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Secret Garden - Sacred Night - The Christmas Album (2021) [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:3AF41F5D9431AB4158D8A139996E05BC8BC73A8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Max Richter - Recomposed By Max Richter: Vivaldi - The Four Seasons (2012) [MP3|
 magnet:?xt=urn:btih:8C09AE0E5D21117544B08B3AF801B4EE00A05456
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Andre Rieu - Magic Of The Waltz (2016) [FLAC|Lossless|image + .cue] <Classical>
 ```bash
 magnet:?xt=urn:btih:B7DD63BF4A1E943806D899B924F5959175D16D40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ CD1
 magnet:?xt=urn:btih:ECF1147D4A0909153D6AB1EEAFE7960F5261B0BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Lindsey Stirling - Warmer In The Winter (2018) Deluxe Edition [FLAC|24/44.1|Loss
 ```bash
 magnet:?xt=urn:btih:A65063BE4ABC81EC02FFB82C8BE2BE9D844A2E20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Great Romantic Piano Favorites (The World's Most Beautiful Melodies) (1997)
 magnet:?xt=urn:btih:A371E93D399C7DD9221B8AF3A3932B9E466E14DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ VA - Piano Classics (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumenta
 magnet:?xt=urn:btih:C3E4C85539ABD8DBE0BC5FAC79740065E882186E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ Ensemble Organum (Marcel Pеrеs) - Дискография (1984-2012) [APE/FLAC
 ```bash
 magnet:?xt=urn:btih:A5A20CD4476147B142FB814970EACC6BEA7B52BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ J. S. Bach: Complete Flute Sonatas; Complete Viola da Gamba Sonatas (1993) 2CD [
 magnet:?xt=urn:btih:797B93044A3519D716C1E3CFF8B6B970DBCF1BE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ Sonata for flute and harpsichord in B minor, BWV 1030
 ```bash
 magnet:?xt=urn:btih:A4557D5403981E7D4CB5733C5BD60B2811EA27CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ Cello Sonata No. 1 in E minor Op 38
 magnet:?xt=urn:btih:294E30E9A830C663B8751318947F84B467A0678D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +540,8 @@ Maria Kotrotsou - Silence (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, New A
 ```bash
 magnet:?xt=urn:btih:05D68A57C25CB0846300179BA5D3306B883698A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +570,8 @@ Tina Guo - Game On! (2017) [FLAC|Lossless|image + .cue] <Classical Crossover, So
 magnet:?xt=urn:btih:46AB92B4A78C83C692D7F565F1178FB53F88C849
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +598,8 @@ Royal Philharmonic Orchestra - The Royal Philharmonic Orchestra Does ABBA (2019)
 ```bash
 magnet:?xt=urn:btih:165D76354F43D559219F969689B57AADD63F9C90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +628,8 @@ Paganini - 24 Caprices for solo violin (Itzhak Perlman) (2000) [MP3|320 кб/с]
 magnet:?xt=urn:btih:E7CE44CE2CBB4C3110F2EA287F7ECDE5E5F3FBD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +657,8 @@ Paganini - 24 Caprices for solo violin (Itzhak Perlman) (2000) [FLAC|Lossless|tr
 magnet:?xt=urn:btih:AE41DABAE9D486D1D06B817151A8C8C761FD9F8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +685,8 @@ String Quartet no. 1 (1966)
 ```bash
 magnet:?xt=urn:btih:8D68B215DC11AE71DC96084E6731A14C762B1898
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,6 +716,8 @@ Concerto for solo violin, 2 oboe, 2 horns, bassoon & strings in D major RV562
 magnet:?xt=urn:btih:8BCDD6C5267CC77F7D9B580C9BEF1D6D9FA63D3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ Edvin Marton & Vienna Strauss Symphony Orchestra - Rock Symphony (2016) [MP3|320
 ```bash
 magnet:?xt=urn:btih:EF2A4B9D0F3F80DC33DC15FE75AF76CA8E267621
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,38 @@
+###  Публикация: 513744   (658152) от 24.06.2012
+
+VA - Пляжная Дискотека Хит FM 50+50 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Disco Temperer - Get Up
+02 Меседа Багаудинова - Дым
+03 Silent Circle - Tell Me Why
+04 Натаника - Жить Красиво
+05 Pitbull Feat. Ne - Yo & Afrojack & Nayer - Give Me Everything
+06 Жасмин - Тук-Тук
+07 Flashtronica - Like A Bomb (Radio Edit)
+08 Виктория Дайнеко - Always
+09 St Connection Feat. Sam Wood & Eddie Thoneick - Deeper Free Love (Martin Freak Mash Up)
+10 Maxima - Алло (Fidel Wicked Mix)2012Жанр: PopПродолжительность: 06:16:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68C66B8F93D347F8A08B2DABEEDC3D10AA07D6AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 514725   (658160) от 24.06.2012
 
 VA - Music is my Life... (2012) [MP3|123-320 кб/с]<Dubstep, Electro House>
@@ -27,6 +62,8 @@ VA - Music is my Life... (2012) [MP3|123-320 кб/с]<Dubstep, Electro House>
 ```bash
 magnet:?xt=urn:btih:6F75D59F447793693943E319915E6A518EB928AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -61,6 +98,8 @@ CD-1
 magnet:?xt=urn:btih:8396A4DFCCBF92480EA8907E5A4AB3867DBD0F1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -88,6 +127,8 @@ VA - Urban Glow: March Trance Set (2022) [MP3|320 Kbps] <Trance, Electro>
 magnet:?xt=urn:btih:6C61A760A454194D5150D6B93EC756D00A45B2D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +155,8 @@ VA - Urban Glow: March Techno Set (2022) [MP3|320 Kbps] <Techno, Minimal, Electr
 ```bash
 magnet:?xt=urn:btih:B6A1C1F9DCB885BC5337D23E51A474C9D065DA59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +191,8 @@ VA - Asia Lounge Vol.2 (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
 magnet:?xt=urn:btih:03F7A488A02B826FFDA49DABB79357F1B33E63BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +226,8 @@ VA - Billboard Hot 100 (23.06.2012) [MP3|320 кб/с]<House, Club, Funky, Dance,
 magnet:?xt=urn:btih:221984B34E4EBBD78AE30C2E6C4CB48745315810
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +254,8 @@ magnet:?xt=urn:btih:221984B34E4EBBD78AE30C2E6C4CB48745315810
 ```bash
 magnet:?xt=urn:btih:758D3BA5B9FBC1593A3EBF00846AF94B4057FD15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +284,8 @@ VA - Top 100 Русский Рэп от Зайцев.Нет (2015) [MP3|256 кб
 magnet:?xt=urn:btih:970B6CEFE8692B05CFFAC319426B77872D625B3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +312,8 @@ VA - Дискотека забытых хитов #2 (2017) [MP3|320 Kbps] <Euro
 ```bash
 magnet:?xt=urn:btih:5D3FBB50EF3D9214FB8A10682D326EE5F70D0490
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +342,8 @@ VA - Top 100 Зайцев.Нет Май (2017) [MP3|192-320 Kbps] <Pop>
 magnet:?xt=urn:btih:1F483370D5F45FFE61D3424B601E60CB908E60B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +370,8 @@ VA - Популярная хитовая сотка (2015) [MP3|256 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:1C9C711BC2D630A18C23964CC889F6F9A1E6DFEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +400,8 @@ VA - Тузы козырные Блатной суперсборник (2015) [M
 magnet:?xt=urn:btih:283F66BFD6F3A3BF0CACBAF4C64AD769EA94E324
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +428,8 @@ VA - Morning Chill & Relax (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:4DACD352D49C01BEDA15D8CC93FF4EA581108820
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +458,8 @@ VA - USA Hot Top 40 Singles Chart 6 June (2015) [MP3|~245 кб/с (V0)]<Dancehal
 magnet:?xt=urn:btih:AE0A70F8C3D204DB5E9311E9379AB0C441061254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +486,8 @@ VA - Summer Dance Hits (2015) [MP3|320 кб/с]<Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:B198CFCB4C8324F1F8CF4217D37968CE4E1AB88E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +516,8 @@ VA - Sexy Trance #86 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 magnet:?xt=urn:btih:8EE0E9D0EEBE2FE407C20DA2D861EBECF47AD1A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +544,8 @@ VA - Empire Records - Retromania 2 (2017) [MP3|320 Kbps] <House, Nu Disco>
 ```bash
 magnet:?xt=urn:btih:86498BBBF2580210D0CF77BDD6B103D736A61F93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +574,8 @@ VA - Ibiza Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:287F673355F6B16C54ED5AC2583AC455926DB18E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +602,8 @@ VA - Зайцев.нет: Музыкальные новинки. Май (2018) [
 ```bash
 magnet:?xt=urn:btih:14A2BA0705F9230451F43B12F56B4E0EF7DF30FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +632,8 @@ VA - Top 100 Русский Рок от Зайцев. Нет (2015) [MP3|256 к�
 magnet:?xt=urn:btih:9AF5D9868ACC691A7B09642F4B8E8606C3BFE929
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +660,8 @@ magnet:?xt=urn:btih:9AF5D9868ACC691A7B09642F4B8E8606C3BFE929
 ```bash
 magnet:?xt=urn:btih:B6E8DC26ABC73D5DBAFE0BF99B83A9D48DE03B28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +690,8 @@ VA - Deep House Collection Vol.170 (2018) [MP3|320 Kbps] <Deep House, Club House
 magnet:?xt=urn:btih:5BAF47F18B6DD5EB27766270E852BFD9D0743F00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +718,8 @@ VA - Дискотека 2017 Deep House - The Best Vol.3 от NNNB (2017) [MP3|3
 ```bash
 magnet:?xt=urn:btih:5BF1A32F44E3C57C5D9D0F50D2618872DD0CB919
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +748,8 @@ VA - I Love Italo Disco ot Vitaly 72 - 3 (2015) [MP3|320 кб/с]<Italo-Disco, S
 magnet:?xt=urn:btih:B34DBF5275973BE498344D9C4E105DC6C89E02FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,32 +777,7 @@ VA - Deep Vocal Relax (2022) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:CDEB547C7C8A620810F6FBD1F3E24F5356BDF343
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139476   (660005) от 02.06.2017
-
-VA - Blues Collection 9 (2017) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Los Lonely Boys - Heart Won't Tell A Lie  (03:49) 
-02. Rob Tognoni - Brave  (04:46) 
-03. Ryan McGarvey - Always & Forever  (03:57) 
-04. Selwyn Birchwood - Heavy Heart  (05:00) (   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 06:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB040F8BA8C905C63ACF4BE6EE80D4E8F1363CAA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Rebelway, Saber Jlassi | Advanced Asset Creation In Houdini For VFX And Games (2
 magnet:?xt=urn:btih:328A2EFB64F8183F340C4796899C06E23F16637C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ hipflask, Fraser Shiers | Houdini Geometry Essentials (Все части) (2020)
 ```bash
 magnet:?xt=urn:btih:74297525839B249D9440EF1D3944BCDD70754EDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Git, GitHub, Git workflow Gulp, Pug, SCSS, BEM, UI kit, дизайн систе�
 magnet:?xt=urn:btih:11732B7E95D5D3967EEA5179A2689812F39A8803
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Playfingerstyle, Стэн Кэрил | Прогрессивный Фингерс
 magnet:?xt=urn:btih:9196BF0A17F63E6988928C9C069A91F89DDA7258
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ ItGid, Александр Лущенко | Методы массивов JavaScr
 ```bash
 magnet:?xt=urn:btih:272585F323469B7500CBB393CC3D57DD630009C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ BrainsCloud, Дмитрий Валак | Вёрстка сайта трансп�
 magnet:?xt=urn:btih:697587C57A4A69372584697DFD65FD5C70FFE111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ Wingfox, Andre Pires | UE4 for Real-Time Hair Course (2021) PCRec [EN]
 magnet:?xt=urn:btih:9B994C9236A09C072BA5838D6E0760FA42A225AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ Wingfox, Alexander Sköld | The Lost Soldier- Environment Concept Design (2020) 
 ```bash
 magnet:?xt=urn:btih:3FA7BD9A1381634D10EBE1F088327967D07ADEE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -230,6 +246,8 @@ Mold3D, J Hill | Character Creation for Video Games with J Hill (2019) PCRec [EN
 magnet:?xt=urn:btih:BCD7458CA776D1320D9FD5BE4AFE888102F0521D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ magnet:?xt=urn:btih:BCD7458CA776D1320D9FD5BE4AFE888102F0521D
 magnet:?xt=urn:btih:F817D8C6B7CA6BC3C2CDB7E08EBAC00280197B52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ Yiihuu, Jungwon Park | “Liu yifei likeness as Mulan” for Photorealistic rend
 ```bash
 magnet:?xt=urn:btih:70305ED73870B9AA325953F1B5ABE4DCB5E7ABEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +328,8 @@ JavaBegin, Тимур Батыршинов | Авторизация и рабо�
 magnet:?xt=urn:btih:1E162C51D35B951E54909B1758E553CB626EF10D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +357,8 @@ Rebelway, Saber Jlassi | Mastering Pyro FX In Houdini Level 1 (2018) PCRec [EN, 
 magnet:?xt=urn:btih:D3FED9735C4E2A7D9512B54D00D0918960515551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ CGcircuit, VFX Magic | Houdini Crack Effect (2021) PCRec [RU]
 magnet:?xt=urn:btih:2CAE2E3402517EF68C12BC15798B7FCB96833A49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +408,8 @@ Rebelway, Corbin Mayne | Math for fx Artists (2020) PCRec [EN/ RU]
 ```bash
 magnet:?xt=urn:btih:A7E1F3DFD23F521C5C164B39DB04B51DCD4CB948
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ HOP&SCOTCH | Культовый британский акцент (2022) WEB-DL 
 magnet:?xt=urn:btih:4AA5424F15532E57940D4233A8847046BBC0E4A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ magnet:?xt=urn:btih:4AA5424F15532E57940D4233A8847046BBC0E4A8
 ```bash
 magnet:?xt=urn:btih:9CB7E4DCDB717D72F0C3F6F300A5AEE8CEE409A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +490,8 @@ Udemy, Victor Yamakado | Master Character Modeling with Victor Yamakado (2020) P
 magnet:?xt=urn:btih:708B61BBBF717837784181ED814D8B7C0BE153C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ magnet:?xt=urn:btih:708B61BBBF717837784181ED814D8B7C0BE153C6
 magnet:?xt=urn:btih:42C21F52EEFF73CF3899C243C7646499001CA8E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:42C21F52EEFF73CF3899C243C7646499001CA8E7
 ```bash
 magnet:?xt=urn:btih:97D6E5E67B9AC5143AE189BA446C54ABF73098A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ Houdini стала необходимым инструментов в FX инд�
 magnet:?xt=urn:btih:C5C8B164066EF28436B9500DA31EA5482422F30C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ Rebelway, Saber Jlassi | Mastering Destruction And FX In Houdini (2019) PCRec [E
 ```bash
 magnet:?xt=urn:btih:015B13A967122A002B0A18E5D5B0799D0C806209
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ Rebelway, Urban Bradesko | CG Cinematography 101 (2021) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:EF39FCDD3644402871F53787C84913418507F2E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ magnet:?xt=urn:btih:EF39FCDD3644402871F53787C84913418507F2E5
 magnet:?xt=urn:btih:15110B98278BDD93260B75001236E633E1575FAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ Rebelway, Saber Jlassi | Transferring High-Res Assets from Houdini to Unreal Eng
 ```bash
 magnet:?xt=urn:btih:65FF19A0BE3B083430E2E8E329B174F05461D524
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +706,8 @@ magnet:?xt=urn:btih:65FF19A0BE3B083430E2E8E329B174F05461D524
 ```bash
 magnet:?xt=urn:btih:E629B34AC40A6450C9FCFF1AD5C474F49BFB3A9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ CPU-Z способен показать различную информацию 
 magnet:?xt=urn:btih:A0BF7B148642CCF91B014EF20DEDFB82A4D04543
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Stand Up (2017.12.03) SATRip (сезон 7, выпуск 10)
 ```bash
 magnet:?xt=urn:btih:CC0E4B9BC1BF30D3FDABE45F28D8A9130259CA4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:CC0E4B9BC1BF30D3FDABE45F28D8A9130259CA4B
 magnet:?xt=urn:btih:04B6190466EAFBFE2F4FA80AE8999F87AC4D3195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:04B6190466EAFBFE2F4FA80AE8999F87AC4D3195
 magnet:?xt=urn:btih:7A079DD40F74BB90683E6373DD076FC06C429425
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:7A079DD40F74BB90683E6373DD076FC06C429425
 ```bash
 magnet:?xt=urn:btih:645659704A7B0ED034E9A737D9DE8ABF64A6E481
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Disk Drill Media Recovery - это самое простое и удобное �
 magnet:?xt=urn:btih:51ED31AB926C4E916CF130748CFB48B27DEA2F16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Boom делает звук объемнее и качественней.
 magnet:?xt=urn:btih:77D59016BB77B84617021DB5F34394CB16CEEAB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:77D59016BB77B84617021DB5F34394CB16CEEAB0
 ```bash
 magnet:?xt=urn:btih:F6EB523326CFFAC7FFD0AB2944984980B47D2CD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Pixelmator Pro предлагает широкий спектр професси
 magnet:?xt=urn:btih:D612D0E30F33F5E64E10CE5AF78B1FC33D247806
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Emsisoft Emergency Kit - бесплатный портативный компл�
 ```bash
 magnet:?xt=urn:btih:E45A05236A33C40B246F8979C2C3E3A3AD05077A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:E45A05236A33C40B246F8979C2C3E3A3AD05077A
 magnet:?xt=urn:btih:A767D1036BC4B69D733600EB079F9A62070ECA46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ AdwCleaner - программа, которая ищет и удаляет ре�
 ```bash
 magnet:?xt=urn:btih:62F27458B3456D620159F480FCFE211E7C1046FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Krita - является графическим приложением, кото
 magnet:?xt=urn:btih:DDA537DA1E3921AB37B7156AD5EFF3C0769936A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Micopi не использует генератор случайных чисе�
 ```bash
 magnet:?xt=urn:btih:62C9E81A0403B07E4D99FE4D4AA37BD69F050F02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Navicat Premium совмещает в себе функции других пр�
 magnet:?xt=urn:btih:1FB68D6AC3D45B18A0E6756B071B482317CD4366
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 ```bash
 magnet:?xt=urn:btih:73DAC7AE790816FB89BC60F6ED32045A6557144D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ Flick Fishing - симулятор рыбной ловли. Вам предст�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ MediaHuman YouTube Downloader 3.9.8.18 (3011) RePack by вовава [Ru/En]
 ```bash
 magnet:?xt=urn:btih:1BBCF221DFB0B0A24E3C66DF32EE0FB6DA3007C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ foobar2000 - это аудиоплеер, подкупающий своим ве
 magnet:?xt=urn:btih:F3A411957BEE2EEEC3B8B52A4F43F4F8B4CBAAD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Cossacks 3 / Казаки 3 (2016) [Ru/Multi] (1.2.2.57.4328/dlc) License CODEX
 magnet:?xt=urn:btih:A39149119A678D7BE69DA14176B96AA9A2CA6FEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:A39149119A678D7BE69DA14176B96AA9A2CA6FEA
 ```bash
 magnet:?xt=urn:btih:09E2BF5E5EA3B8EB9AA2688153939045EEE49521
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ Scrivener сочетает в себе возможности текстовог
 magnet:?xt=urn:btih:0AE9230EE75D180BA2EE1C2E25F3FC71C1BB5370
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ Ashampoo Snap 9 - это идеальное решение для снятия �
 ```bash
 magnet:?xt=urn:btih:FE9CC0391E595A505CBA6500B86106B8A2913C65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:FE9CC0391E595A505CBA6500B86106B8A2913C65
 magnet:?xt=urn:btih:6691355358CEFAE2A64F34850FB4B1E5A9F8C460
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ AVS Video Converter - видео конвертер с расширенными 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Cocktail - комплекс утилит по всестороннему обс�
 ```bash
 magnet:?xt=urn:btih:52C58E08C7716DBBE0059F1BFFE009228BE59CB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

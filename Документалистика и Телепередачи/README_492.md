@@ -1,3 +1,31 @@
+###  Публикация: 1136058   (676842) от 21.05.2017
+
+Холостяк (2017.05.20) HDTVRip (сезон 5, выпуск 11)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676842.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 МАРТА В 21:30 НА ТНТ НАЧНЕТСЯ НОВЫЙ СЕЗОН ШОУ «ХОЛОСТЯК»
+Грядет новый сезон самого романтичного шоу на ТНТ. Продюсеры невероятно долго и тщательно подбирали главного героя — они хотели пригласить достойного мужчину, сильную личность, человека с огоньком в глазах. И такой мужчина нашелся. Вот только не с огоньком в глазах, а с ревущим пламенем в сердце!
+С главным (   Читать дальше...   )Телекомпания: ТНТ HDЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:08:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:277E76A5683709B594651D0B6242EF683A58E8D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136257   (676844) от 21.05.2017
 
 Орел и решка. Рай и ад (2017.05.21) WEB-DL [H.264/1080p-LQ] (сезон 13: Райский Квинсленд)
@@ -19,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:99DF1C49B35F9EF773748C259EE3DAE7FF1F3D42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +75,8 @@ magnet:?xt=urn:btih:99DF1C49B35F9EF773748C259EE3DAE7FF1F3D42
 magnet:?xt=urn:btih:E2746F371D93F0EA519EBD1DBBF941D7FD19A5AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +102,8 @@ magnet:?xt=urn:btih:E2746F371D93F0EA519EBD1DBBF941D7FD19A5AC
 magnet:?xt=urn:btih:3FA5A2B2F3C312F608280090EF1C142D4C91BE47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +128,8 @@ magnet:?xt=urn:btih:3FA5A2B2F3C312F608280090EF1C142D4C91BE47
 ```bash
 magnet:?xt=urn:btih:4788B5D6170797E038D070A72A8855EDD274492A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +157,8 @@ magnet:?xt=urn:btih:4788B5D6170797E038D070A72A8855EDD274492A
 magnet:?xt=urn:btih:B5E827824A99741DD20FB93E7DF22C3B8D8285F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +183,8 @@ magnet:?xt=urn:btih:B5E827824A99741DD20FB93E7DF22C3B8D8285F4
 ```bash
 magnet:?xt=urn:btih:2D8EF42B4F318943DBCCA2422380CE4932C885BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +211,8 @@ NGW: Симфония нашего мира / Symphony for our world (2018) HDTV
 magnet:?xt=urn:btih:5C0DB5C2E88053810CFE20086648279656D8DDFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +236,8 @@ magnet:?xt=urn:btih:5C0DB5C2E88053810CFE20086648279656D8DDFA
 ```bash
 magnet:?xt=urn:btih:53A1519C71EAF8F9DB8D7669914307CCFC850F74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +263,8 @@ magnet:?xt=urn:btih:53A1519C71EAF8F9DB8D7669914307CCFC850F74
 magnet:?xt=urn:btih:DE330A3A70863B06501786FDAC18379FCD3158C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +289,8 @@ magnet:?xt=urn:btih:DE330A3A70863B06501786FDAC18379FCD3158C5
 magnet:?xt=urn:btih:726265C179CFA82F7D3440147A189EA4111400CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +314,8 @@ magnet:?xt=urn:btih:726265C179CFA82F7D3440147A189EA4111400CC
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +343,8 @@ magnet:?xt=urn:btih:726265C179CFA82F7D3440147A189EA4111400CC
 magnet:?xt=urn:btih:DE8E220AF353AEA003B25771D17F66C9248FBFE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +368,8 @@ magnet:?xt=urn:btih:DE8E220AF353AEA003B25771D17F66C9248FBFE0
 ```bash
 magnet:?xt=urn:btih:FF4AC328744BBC775A8DB3D67FD55816D11C6B7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +395,8 @@ magnet:?xt=urn:btih:FF4AC328744BBC775A8DB3D67FD55816D11C6B7A
 magnet:?xt=urn:btih:DE3268C53AB0E0825991727B060855DEA23A46D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +421,8 @@ magnet:?xt=urn:btih:DE3268C53AB0E0825991727B060855DEA23A46D2
 ```bash
 magnet:?xt=urn:btih:48F564AA89BA3B4BB5B95689F90F2459EC3175EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +450,8 @@ magnet:?xt=urn:btih:48F564AA89BA3B4BB5B95689F90F2459EC3175EE
 magnet:?xt=urn:btih:D3EA13EFB6E61569BFF7C886D8ABBC689A50F5AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +475,8 @@ magnet:?xt=urn:btih:D3EA13EFB6E61569BFF7C886D8ABBC689A50F5AC
 ```bash
 magnet:?xt=urn:btih:45B179F783036857EC7E5521CD62061FB42A9E5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +503,8 @@ magnet:?xt=urn:btih:45B179F783036857EC7E5521CD62061FB42A9E5B
 magnet:?xt=urn:btih:6D4622EAB2AF0B09C2F921DD2E645D7257C0028B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +528,8 @@ magnet:?xt=urn:btih:6D4622EAB2AF0B09C2F921DD2E645D7257C0028B
 ```bash
 magnet:?xt=urn:btih:FC9EAB239E0A020B8AB1ADC8FE7FBF05FF4634FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +555,8 @@ magnet:?xt=urn:btih:FC9EAB239E0A020B8AB1ADC8FE7FBF05FF4634FA
 magnet:?xt=urn:btih:A95BC6851D092D8D2DAF6C7AAE487CC8F4AA91E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +580,8 @@ magnet:?xt=urn:btih:A95BC6851D092D8D2DAF6C7AAE487CC8F4AA91E2
 ```bash
 magnet:?xt=urn:btih:25D2DB71A2C794AADEB0F186FB429E75027C7309
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +607,8 @@ magnet:?xt=urn:btih:25D2DB71A2C794AADEB0F186FB429E75027C7309
 magnet:?xt=urn:btih:CAAA576CFB7212743F7FE2B2BD1806DB94500D4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +633,8 @@ magnet:?xt=urn:btih:CAAA576CFB7212743F7FE2B2BD1806DB94500D4C
 magnet:?xt=urn:btih:D624D60476A7EE69580B478D3C73978E39E83EB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +658,8 @@ magnet:?xt=urn:btih:D624D60476A7EE69580B478D3C73978E39E83EB0
 ```bash
 magnet:?xt=urn:btih:FD43C0C103C99B3F6C77D925B2716A36E0B475BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,29 +686,7 @@ magnet:?xt=urn:btih:FD43C0C103C99B3F6C77D925B2716A36E0B475BE
 magnet:?xt=urn:btih:EED9F8E88A2512110CEB51C4D3895560EE5F7A7D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223141   (679169) от 02.05.2018
-
-Moby live at Main Square Festival / Moby live at Main Square Festival (2011) DVB [H.264/1080i-LQ]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очень энергичное и рок-н-рольное выступление Moby на фестивале «Главная площадь», который проходит ежегодно в Аррасе, Франция. В программе концерта были все его главные хиты — от «Why Does My Heart Feel So Bad?» и «Bodyrock» до «We Are All Made of Stars» и «Extreme Ways».Телекомпания: Франция / Sequence SDPЖанр: Документальный, Искусство, МузыкаПеревод: Не требуется (нет диалогов и комментариев)Продолжительность: 01:31:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24CB5692512AFB164535AC368DD4BC3FCFB612CD
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A297F7B41A0BFA91D5901BF9C5DDD8C23DC04BCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Microsoft NTFS for Mac by Tuxera 2023.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DEFD1AC2D387B689B7B32F7F62DC9422D160C4CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:DEFD1AC2D387B689B7B32F7F62DC9422D160C4CF
 magnet:?xt=urn:btih:D66F88CCC2213F8691903DD86F9814D80EAC382B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack seleZen [Ultimate Edi
 ```bash
 magnet:?xt=urn:btih:F1265A75BF25EE9F32EAA69C5E178DA2D6122DC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Decepticon [Ultimate 
 magnet:?xt=urn:btih:E8B1047DD5742147C9A3660F61D6EA8D1A22B62E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Remini / Улучшение Фото v3.7.1156.202517454 Mod by Mixroot [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:6CDF509C0DEB89392F51EF0B974E9B34B3A2CD04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:6CDF509C0DEB89392F51EF0B974E9B34B3A2CD04
 magnet:?xt=urn:btih:137D332AD4A46B4E9F95749B0248FFEC750527AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:137D332AD4A46B4E9F95749B0248FFEC750527AB
 ```bash
 magnet:?xt=urn:btih:54C208A567CC26E2388F9840A44278A8EEE23440
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:54C208A567CC26E2388F9840A44278A8EEE23440
 magnet:?xt=urn:btih:40FF994240005B09FF36EDACF99A5C4E35E4BA17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack FitGirl [Ultimate Edi
 ```bash
 magnet:?xt=urn:btih:511C42B1172B834DBAE7FE8705FF6C472785CA73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:511C42B1172B834DBAE7FE8705FF6C472785CA73
 magnet:?xt=urn:btih:DF500EF101374B41247FFED33BA443B0369D5DD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Outer Worlds 2 - долгожданное продолжение титул�
 ```bash
 magnet:?xt=urn:btih:6F44F165E62CD9E8A535287AE1AC6C82FBBDC009
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Myths and Legends - торговая стратегия в реальном вр
 magnet:?xt=urn:btih:BB7F0D34090D7E4A42D12D13D984F34EFD5677EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Defender of the Crown (1986) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:C285383C620FA0AC446D0C7FDAE169FC2272C38C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ BALL x PIT - динамичный фэнтезийный рогалик, где 
 magnet:?xt=urn:btih:A0AB72E493A3CFA9390F2C551DDFD5BB85B3F16F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Orbyss - головоломка, построенная на логике и о�
 magnet:?xt=urn:btih:485AC8CF8F49BDA8E72213946F1ABC51490A1F3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +434,8 @@ Heroes of Might and Magic III (1999) [Ru/Multi] (4.0/dlc) License GOG [Complete 
 ```bash
 magnet:?xt=urn:btih:7BB141C30C85689E2B98470C06F1F50644A14C3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:7BB141C30C85689E2B98470C06F1F50644A14C3C
 magnet:?xt=urn:btih:9FA594825CA4F88BA6F69DC2665FBD66FE5A28EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Heroes of Might and Magic II (2) (1996) [Multi] (1.01/dlc) License GOG [Gold]
 ```bash
 magnet:?xt=urn:btih:CE5BFCD24323A45051C5847EE6736A09BB8B1AA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ Heroes of Might and Magic (1996) [Multi] (1.5 editor fix) License GOG
 magnet:?xt=urn:btih:D6431622859913977485BF5CB1C63598C14A3156
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:D6431622859913977485BF5CB1C63598C14A3156
 ```bash
 magnet:?xt=urn:btih:9C0F30BC09771CDAA89A72849F4245C01BF48297
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Hopeku - The Awakening (EP) (2012) [MP3|320 кб/с]<Psychedelic / Full On, Prog
 ```bash
 magnet:?xt=urn:btih:846F108EC58507E95C16DECE15B55AFFD4A59F8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ DJ Kocmoc - RED STATION vol.4 (3.05.2012) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:B6D3FB9CE090F141C7FF93DB94E7B7E374C89628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ Elle Decoration - самый красивый и полезный междуна
 ```bash
 magnet:?xt=urn:btih:5ED51A709F7DB11680756F94949E801D70D0578E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +660,8 @@ Reverse - Reverse (EP) (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
 magnet:?xt=urn:btih:F5A2E55C3BEB1E76FE4B514C2E967252864417AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ magnet:?xt=urn:btih:F5A2E55C3BEB1E76FE4B514C2E967252864417AB
 ```bash
 magnet:?xt=urn:btih:FD0EAFA07C44015DB34E9AD658D8384EC1E285D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

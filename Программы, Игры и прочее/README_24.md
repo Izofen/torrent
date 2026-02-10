@@ -19,6 +19,8 @@ Duolingo: изучай языки 6.7.1 Mod by derrin [Ru/Multi]
 magnet:?xt=urn:btih:F6C697B83303370C02CD2D746152FCDACEADF9A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Smart Driver – удобный радар камер и ДПС, а так же 
 magnet:?xt=urn:btih:76DDFCFA9F1D2A708538415DA1C50B5E5F0B415B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ CSee - это программное обеспечение для монито�
 ```bash
 magnet:?xt=urn:btih:A8109AA865328781A95DD0008F4E08269C402082
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ MobiOffice - это полнофункциональный офисный пак
 magnet:?xt=urn:btih:6B3CDA37404FE0A0EE7C3138B26362E81391003B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Cozy Magnifier & Microscope Plus v6.4.1 Mod by derrin [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9DA7336C728E53E860079E221CA5F9FBA7684268
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Obtainium позволяет вам устанавливать и обновля
 magnet:?xt=urn:btih:893E26AC2B7F6B3FCC6F900E2C4B972F993518D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Listonic / Список покупок v8.14.3 Mod by NURIK kz [Ru/Multi]
 magnet:?xt=urn:btih:0F3CC1E9027A684F55F336837D5FA0F2C5E6C059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ PictureThis - Plant Identification v5.0.11 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:611A18381D442F41D6D307CA37575BD2C76B99D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ PicWish — фоторедактор с искусственным (   Чита
 magnet:?xt=urn:btih:7F4070C66FB379F58ACE7CA38F6332F104A53FBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Stellio - продвинутый плеер, с мощным звуком, по�
 magnet:?xt=urn:btih:5F405EAB57C4E1935D133ED634BC06D5094D81D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:5F405EAB57C4E1935D133ED634BC06D5094D81D9
 ```bash
 magnet:?xt=urn:btih:A6AFD5738676149A482C436D83C021E3331BD2CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:A6AFD5738676149A482C436D83C021E3331BD2CB
 magnet:?xt=urn:btih:4683A5BFD0055A5BFBBDE2F1476A72794FE67FF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Speedtest - это приложение предназначено для опр
 ```bash
 magnet:?xt=urn:btih:53013FC9C0523C524A4EB5BADED9EA7972E41540
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ AirBrush: ИИ Фоторедактор v7.4.505 Mod by PieMods [Ru/Multi]
 magnet:?xt=urn:btih:24B6A69EDCCC599460701228B926ED79F291C205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Photoleap: Photo Editor / AI Art v1.63.2 Mod by 0x7d [Ru/Multi]
 magnet:?xt=urn:btih:F676161606485DAD6B8087653237DACBF5F77842
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Bria Mobile: VoIP Softphone v6.18.1 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EC6018ADE3B2C8586D7D22773A55311D4F3E39B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ PicWish — фоторедактор с искусственным (   Чита
 magnet:?xt=urn:btih:3EB511F48ECDEC9E55B35964E6DC02AA47B11277
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Polarr v6.10.1 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:80AFD107A8735E14786453DE475740D794B98469
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ FotoTweak - AI Image Generator v1.0.43 Mod by ElaMods [Ru/Multi]
 magnet:?xt=urn:btih:547AB65A633156FD8E690ED6FF4415AD85C8F28E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Magic Eraser - это революционное приложение для р�
 ```bash
 magnet:?xt=urn:btih:E1769851B18E83BF36B2AA2CCC6CA09CAE4BF9B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ FotoTweak - AI Image Generator v1.0.43 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:E645A60AC31CA79F3A6EDD8CEB209D81057D695C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Pro Pool 2024 v1.57 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4CD06125711901C424ACBC7A8B2ABE279C5B38D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Cleaner for WhatsApp — это мощный инструмент для очи�
 magnet:?xt=urn:btih:5D083A593FE2D47428D81C93F29249BFF8963EE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Photoleap: Photo Editor / AI Art v1.63.2 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1BEBF20952459273F298011956079C5E04778BA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Chess King Обучение (https://learn.chessking.com/) - уникальны�
 magnet:?xt=urn:btih:514AE892EC74375C6A113178A55449E97B0E05E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Next Track позволяет пропустить песни, отключит�
 ```bash
 magnet:?xt=urn:btih:F5B33E44455ABCCB51468AD117ED28CFDB51BAFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

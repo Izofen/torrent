@@ -19,6 +19,8 @@ Grungetastic позволяет обработать ваши фотографи
 magnet:?xt=urn:btih:22CFE381A3917632062C676C5613BB814B1804C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Spektrel Art  экстравагантный потусторонний пока
 ```bash
 magnet:?xt=urn:btih:D66397EC0AF32144D5DA6F4042B5FB73BB684CD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ VPN Defender – это ваш сервис!: Абсолютно бесплат�
 magnet:?xt=urn:btih:53B1DE6AFC8FC7945D7625AE9BE622603A1183F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:53B1DE6AFC8FC7945D7625AE9BE622603A1183F5
 ```bash
 magnet:?xt=urn:btih:E8757C44074C30CAB54A9FC6490408BC6DB37F39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ FunEasyLearn это лёгкий и весёлый новый способ вы�
 magnet:?xt=urn:btih:AED4ABE5D94130604A5A74EAD31D60583CD547DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ EBookDroid - PDF & DJVU Reader 2.4.0.4 [Ru] - Читалка файлов раз
 ```bash
 magnet:?xt=urn:btih:4728112E15C2A8C5A9C16A130F8DB582DC4ACAA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ AndDocPro - PDF & DJVU Reader 1.0.7 [Ru/Multi]
 magnet:?xt=urn:btih:ACF9FCCCFE3A5A18B45AE03EC3D38BDE06608899
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Ultimate Guitar Tabs & Chords - мобильная версия крупнейш
 ```bash
 magnet:?xt=urn:btih:1CA04746E224051E1F6B009AC86953CE676D4D38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Camera Auto Timestamp v2.48 Pro [En/Ru] - добавление различны�
 ```bash
 magnet:?xt=urn:btih:A4FD5CB74849B410B8439B014227777282EE0A74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Vinci v2.2 (74) [Ru/Multi] - Обработка фотографий при по
 magnet:?xt=urn:btih:CDEB6148D0E7D77F2AAD3689BC43A51A1E3CA226
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ AnyBalance+ 1.1.220 [Ru] Full
 magnet:?xt=urn:btih:B7393B55E22059F2123CE62D2BB6CB30F3E78193
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ Photo Collage Editor v2.16 Ad-Free [En] - Фото коллаж редактор
 magnet:?xt=urn:btih:585FB173AFE53B570ADB4C74059A83FD9AD0C9B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ utomatic Call Recorder — программа для записи входящи
 magnet:?xt=urn:btih:B719143594BD11B8E55AF71004CE4F66E5286E0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ Speak And Translate v3.1.0.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7E2D920EC78E8B9B284905C2788DFC619CA93A67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ SignalCheck Pro - Приложение расписывает всё в мель
 magnet:?xt=urn:btih:41162B4D46E4B679BED3A860EF5F7F32A307D0A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:41162B4D46E4B679BED3A860EF5F7F32A307D0A7
 magnet:?xt=urn:btih:026F221385B86D4F3FDC6A256622281B2F4EDC7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:026F221385B86D4F3FDC6A256622281B2F4EDC7A
 ```bash
 magnet:?xt=urn:btih:88545DB8D499EE89D7F44A14503E18E67C747F50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ RocketENG v1.5.4 [Ru/En]
 magnet:?xt=urn:btih:31C35B5D9ED434B7FCF02A07CF29F074BF1B81F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ Mandala ColoringBook v1.2 [Ru/Multi] - раскраска
 ```bash
 magnet:?xt=urn:btih:4F806EC9832196C5BA7CEA92534F707F709A1E76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:4F806EC9832196C5BA7CEA92534F707F709A1E76
 magnet:?xt=urn:btih:5471B1D4EA6F6A44FF79B847A7E5D905C953B7BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ MacroDroid, программа которая поможет нам автома
 magnet:?xt=urn:btih:65CEEACAEDE4CCB84AE619D5EA81C4AC8966D33F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:65CEEACAEDE4CCB84AE619D5EA81C4AC8966D33F
 ```bash
 magnet:?xt=urn:btih:54FFAF4293505DCFA00B5925EB7273E4CCEE282A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ En32 - это продвинутый курс изучения английск�
 magnet:?xt=urn:btih:C0DD995E3C8F6717F50583E49DC1072973083A6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:C0DD995E3C8F6717F50583E49DC1072973083A6F
 magnet:?xt=urn:btih:AB2DACB86F7C24E57147E24C51E54D267F68B62B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ Colorize Images - отличное приложение для всех кто �
 magnet:?xt=urn:btih:55C179F33E7149187AEAD8C6D1B4450E34229F30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ Instant Heart Rate Pro 2.6 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:11882A302563526D8937CB822D9C7D8D417BDB74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

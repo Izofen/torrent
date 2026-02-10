@@ -19,6 +19,8 @@ Lords of the Realms 3 посвящена истории средневековь
 magnet:?xt=urn:btih:937C58B6BB2279A06C9DCC42B9E0F7FFF6C1C4C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Star Hammer: The Vanguard Prophecy (2015) [En] (1.0.9) Repack leve1ord
 ```bash
 magnet:?xt=urn:btih:42F5FE1C4BFD21BF2748F132ED9FFA1BFD02F662
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Anomaly Defenders - это очередная часть серии Anomaly, в 
 magnet:?xt=urn:btih:6E20090EA1EAE9A8BA02B764D655EF330A6D7300
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Heroes of Annihilated Empires / Герои Уничтоженных Импери
 ```bash
 magnet:?xt=urn:btih:5DC853C7F7812F6336623835CC942A48215192C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Hegemony Rome: The Rise of Caesar - стратегия в реальном вр�
 magnet:?xt=urn:btih:80AA4DEBF8FF86F74B73C40CE5A9F3B373929EB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Stronghold Crusader HD (2012) [Ru/Multi] (1.4/1.4.1-Е) SteamRip R.G. Origins
 ```bash
 magnet:?xt=urn:btih:183D47D46CFF37DDFA05911DBB9D9AAEC748F897
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Act of Aggression (2015) [En/Multi] (770000573) SteamRip R.G. Игроманы
 magnet:?xt=urn:btih:88D1A9DABD5A402A5895BB0F0BCC676866F41515
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Champions of Anteria – тактическая стратегия, расска
 ```bash
 magnet:?xt=urn:btih:C7DAF8E7DCF487426EBB79709C15D1B56E697620
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Act of War Дилогия [Ru/En] (Lossless RePack/1.06.9/1.1.7) 2005-2006 | R.G
 magnet:?xt=urn:btih:88ABA82E9B5E561B7B9F12E65DE2A05335B609BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Total War: ROME II / Total War: Rome 2 (2013) [Ru/En] (2.4.0.19581/dlc) Repack R
 magnet:?xt=urn:btih:C27BDE736467606BE46708D7CF4C6E2ABA83A51D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ Legends of Pegasus [Ru/En/Multi4] (Repack/1.0.0.4115) 2012 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:0E55B349F9400F54EE83B58B9C471432FE45F167
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Naval War: Arctic Circle – стратегия в реальном времен
 magnet:?xt=urn:btih:FFF39200173C37F941823B54BC72577F6220A2AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Heroes of Annihilated Empires / Герои уничтоженных импери
 ```bash
 magnet:?xt=urn:btih:0D9B9114EAFF93734991EBD0CD679D9CA401CD52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Nobunaga's Ambition: Sphere of Influence - представляет из себ�
 magnet:?xt=urn:btih:3206B768FC3E41E7CD28FC7BF5252F2EBBF9CF9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Heroes of Might and Magic 5 / Герои Меча и Магии 5 (2006) [Ru] (1
 ```bash
 magnet:?xt=urn:btih:31364FCDCDE3C872F84E0041D3E3EE9531B334CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Hegemony III: Clash of the Ancients (2015) [En] (1.0.0) License CODEX
 magnet:?xt=urn:btih:E05BFCA0E248427D05E26128F57C281939E09888
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Age of Empires 2: The Age Of Kings и Age of Empires 2: The Conquerors [Ru] (ReP
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ State of War / Военное положение [Ru/En] (RePack) 2001 | RG Game
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ The Hive - новая стратегия в реальном времени с �
 ```bash
 magnet:?xt=urn:btih:1E23421623C93E2DAA0581FEF626EF3F11961843
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Imperator: Rome (2019) [Ru/Multi] (1.1.1/dlc) Repack R.G. Catalyst [Deluxe Editi
 magnet:?xt=urn:btih:D89ED6C2AA6E5D01D3F084A3F5668F6B8F0B3550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ The Lord of the Rings Антология [Ru/En] (RePack/v.1.0-2.1) 2003-2011 | 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ WarCraft: Orcs and Humans [En] (RePack/1.22) | RG games/Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Kingdom Wars 2: Definitive Edition (2019) [Ru/Multi] (1.0) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:78B0A0AB3CE6A78E8DB8BB4F021B00F74818CC83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Pike and Shot Campaigns 1494-1698 - ожидаемое расширение дл
 magnet:?xt=urn:btih:554EF53BE2E36E47E5B61A6E5821463A0953D051
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Crusader Kings II открывает перед игроками один из �
 magnet:?xt=urn:btih:A3E7289D26B95C19F86198817F68260946585E09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Star Wars: Empire at War Gold (2006) [Ru/En] (1.5/1.1) Repack R.G. Механи�
 ```bash
 magnet:?xt=urn:btih:DD30DFC5423DE920773258356D859C2E72490122
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

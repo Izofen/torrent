@@ -1,27 +1,3 @@
-###  Публикация: 909109   (625293) от 18.06.2015
-
-Лига Справедливости: Боги и Монстры - Хроники / Justice League: Gods and Monsters Chronicles (2015) WEB-DLRip  [H.264/1080p] [EN]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал состоит из трех миниэпизодов, посвященных Чудо-Женщине, Супермену и Бэтмену и служит предысторией полнометражного мультфильма "Justice League: Gods and Monsters", который выйдет 28 июля. Всё действие происходит в альтернативной вселенной.Производство: США, DC Comics, Machinima, Warner Bros. AnimationЖанр: Рисованная анимация, Минисериал, Короткометражный, ПриключенияРежиссер: Брюс Тимм, Алан БернеттПерсонажи: Супермен, Бэтмен, Чудо-женщинаПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 3 фильма по ~00:05:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9ED859C230F745A701F4E92FDEBF6150635D8C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 683518   (625722) от 25.07.2013
 
 Приготовление и начало / Prep & Landing (2009) BDRemux [1080p]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:B9ED859C230F745A701F4E92FDEBF6150635D8C7
 ```bash
 magnet:?xt=urn:btih:8A7F9F49CA1150EC4072C9B2009824F7A49361E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:8A7F9F49CA1150EC4072C9B2009824F7A49361E0
 magnet:?xt=urn:btih:41387A0F6286C0D593C37574C8B826DE32EE65C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:41387A0F6286C0D593C37574C8B826DE32EE65C2
 ```bash
 magnet:?xt=urn:btih:A18C59FB78F50AEC637DE738657FD63AAD46BF70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:A18C59FB78F50AEC637DE738657FD63AAD46BF70
 magnet:?xt=urn:btih:FF91AE62B678740B2020B4131F46880B9A5CE473
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:FF91AE62B678740B2020B4131F46880B9A5CE473
 ```bash
 magnet:?xt=urn:btih:AFEEEB1FC2EB3B971EC1D00A7FC84DE1A1FFD017
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:AFEEEB1FC2EB3B971EC1D00A7FC84DE1A1FFD017
 magnet:?xt=urn:btih:F5A4F2F0F28EF9748B3C7D0D5E67744A4F09D471
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:F5A4F2F0F28EF9748B3C7D0D5E67744A4F09D471
 ```bash
 magnet:?xt=urn:btih:A597DA01DE1653072AAB007F88200811273F9ADC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:A597DA01DE1653072AAB007F88200811273F9ADC
 magnet:?xt=urn:btih:C11EB7D1B48459642EEC13B42060A9B22A29795B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ magnet:?xt=urn:btih:C11EB7D1B48459642EEC13B42060A9B22A29795B
 magnet:?xt=urn:btih:F282343AB35FD703A7CF13871357245AE4F2763A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +252,8 @@ magnet:?xt=urn:btih:F282343AB35FD703A7CF13871357245AE4F2763A
 ```bash
 magnet:?xt=urn:btih:4D739D385A468F2D5DD130E221EAA864C99BF530
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:4D739D385A468F2D5DD130E221EAA864C99BF530
 magnet:?xt=urn:btih:AC29C79CB5B6DD54431389A20ADE3AC0AA6D10E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:AC29C79CB5B6DD54431389A20ADE3AC0AA6D10E8
 ```bash
 magnet:?xt=urn:btih:DE1D05110E00F1A35D81AFA43EAF383A739E15E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +332,8 @@ magnet:?xt=urn:btih:DE1D05110E00F1A35D81AFA43EAF383A739E15E7
 magnet:?xt=urn:btih:1CB350DF0C440AF227D146468750D1CA828CC025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:1CB350DF0C440AF227D146468750D1CA828CC025
 ```bash
 magnet:?xt=urn:btih:7A674AE1439B1A55F0B3954FD2CE2CD1946EBA12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +384,8 @@ magnet:?xt=urn:btih:7A674AE1439B1A55F0B3954FD2CE2CD1946EBA12
 magnet:?xt=urn:btih:E9C09C6D10337FC6E06759A907BE5021970D4490
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +409,8 @@ magnet:?xt=urn:btih:E9C09C6D10337FC6E06759A907BE5021970D4490
 ```bash
 magnet:?xt=urn:btih:4088629070598F3F7BD2AAD7220674128289941D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +436,8 @@ magnet:?xt=urn:btih:4088629070598F3F7BD2AAD7220674128289941D
 magnet:?xt=urn:btih:BBF719315FBB8B4498F1A519AD900CE43E68B071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +461,8 @@ magnet:?xt=urn:btih:BBF719315FBB8B4498F1A519AD900CE43E68B071
 ```bash
 magnet:?xt=urn:btih:B62726E7F34980CD02840D8F479D6951FEEF93AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +488,8 @@ magnet:?xt=urn:btih:B62726E7F34980CD02840D8F479D6951FEEF93AE
 magnet:?xt=urn:btih:44514502CE8645162D3344CB95617E6A5CB9DDEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +513,8 @@ magnet:?xt=urn:btih:44514502CE8645162D3344CB95617E6A5CB9DDEB
 ```bash
 magnet:?xt=urn:btih:EB83C9015413D5C5F00355FD10369CCC5AE116AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +540,8 @@ magnet:?xt=urn:btih:EB83C9015413D5C5F00355FD10369CCC5AE116AE
 magnet:?xt=urn:btih:7EDCAA0E9206CF62F6BD69C5994E45EFE2C2AC18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +565,8 @@ magnet:?xt=urn:btih:7EDCAA0E9206CF62F6BD69C5994E45EFE2C2AC18
 ```bash
 magnet:?xt=urn:btih:5D2D2A41A29CF588C8F8E59992DF82911DD36B11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +593,8 @@ magnet:?xt=urn:btih:5D2D2A41A29CF588C8F8E59992DF82911DD36B11
 magnet:?xt=urn:btih:EF3164EDCF5BED537AB9A53A7F8C82B8D863C03E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +619,8 @@ magnet:?xt=urn:btih:EF3164EDCF5BED537AB9A53A7F8C82B8D863C03E
 magnet:?xt=urn:btih:48A062D509C2247401CF587EB6369379C27BE859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +644,34 @@ magnet:?xt=urn:btih:48A062D509C2247401CF587EB6369379C27BE859
 ```bash
 magnet:?xt=urn:btih:BA3F00B407F847590BD228A72ECAE2961822B4BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293929   (633113) от 05.04.2019
+
+Астерикс и тайное зелье / Asterix: Le secret de la potion magique (2018) WEB-DL [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Могучие галлы издревле черпали силу в секретном напитке, который готовил великий старец. Но пришла беда, откуда не ждали — почтенный друид свалился с дерева и сломал обе ноги. Теперь Астериксу и Обеликсу предстоит отправиться в опасное путешествие, чтобы отыскать нового друида, достойного постичь рецепт тайного зелья.Производство: Франция, M6 Studio, M6 Films, Les Editions Albert RenéЖанр: Мультфильм, Комедия, Семейный, ФэнтезиРежиссер: Александр Астье, Луи КлишиПеревод: Дублированный (iTunes)Субтитры: Русские (Full)Продолжительность: 01:24:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D23ED5FAD46D1B8024F7F24960147C0FD7B4CF89
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

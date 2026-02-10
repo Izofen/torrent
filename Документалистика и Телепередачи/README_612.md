@@ -1,3 +1,29 @@
+###  Публикация: 1503041   (823035) от 17.10.2021
+
+Новые Танцы (2021) WEBRip [H.264/1080p] (сезон 1, выпуск 10)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое танцевальное шоу! Лучшие танцовщики страны снова выходят на сцену. Теперь не будет наставников и их команд, а только очные танцевальные поединки между участниками в четырёх категориях: соло, дуэты, дети и команды. Оценивать выступления участников будет Мигель совместно с двумя приглашенными гостями. Компанию неизменной ведущей Ляйсан Утяшевой составит Ульяна (   Читать дальше...   )Телекомпания: Россия, Comedy Club Production, Телеканал ТНТЖанр: Реалити-шоу, танцы, развлекательный, хореографияСубтитры: ОтсутствуютПродолжительность: 01:29:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86F7D7FC14542B4F8B1D4FA04D85A4F65985FEF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503029   (823039) от 17.10.2021
 
 Шоумаскгоон (2021) WEBRip [H.264/1080p] (сезон 1, выпуск 4)
@@ -21,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:CC10EDED102F3CE64CFED3E7EA964F0B8AD87D44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:CC10EDED102F3CE64CFED3E7EA964F0B8AD87D44
 magnet:?xt=urn:btih:751A2407D8C2E3DFA34FC3AF6FA0DA9E8EED615C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:751A2407D8C2E3DFA34FC3AF6FA0DA9E8EED615C
 ```bash
 magnet:?xt=urn:btih:F2D8121CFCB0752FB45ABC9AB90C495538A5B2C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:F2D8121CFCB0752FB45ABC9AB90C495538A5B2C5
 magnet:?xt=urn:btih:506181030B0656E4EFCF0A7FD522B54D3B3BE51D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:506181030B0656E4EFCF0A7FD522B54D3B3BE51D
 ```bash
 magnet:?xt=urn:btih:A09D41CC895F578ED93A9E7AB1B9B2D925AD4B82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:A09D41CC895F578ED93A9E7AB1B9B2D925AD4B82
 magnet:?xt=urn:btih:3B03240E693A94943D944A3C57ADBED7E0C14395
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:3B03240E693A94943D944A3C57ADBED7E0C14395
 ```bash
 magnet:?xt=urn:btih:CB680103259EA7A29F59C52F4545C2C935603E78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:CB680103259EA7A29F59C52F4545C2C935603E78
 magnet:?xt=urn:btih:E66E4D157AC24D285DF80BC46DC20236F645DBE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:E66E4D157AC24D285DF80BC46DC20236F645DBE3
 ```bash
 magnet:?xt=urn:btih:5BC22E59D30F3CD31DCD1FEEF35FFEBC3640D993
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:5BC22E59D30F3CD31DCD1FEEF35FFEBC3640D993
 magnet:?xt=urn:btih:D8F418FBE44E289EFCB88B168E9129497681DE82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:D8F418FBE44E289EFCB88B168E9129497681DE82
 ```bash
 magnet:?xt=urn:btih:DAF2E4B6C07B56C1393592CBAA17722657A9D4DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:DAF2E4B6C07B56C1393592CBAA17722657A9D4DE
 magnet:?xt=urn:btih:3099D7290334041210D4BA913FDFF7FE69BA030A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:3099D7290334041210D4BA913FDFF7FE69BA030A
 ```bash
 magnet:?xt=urn:btih:8DEA23C85495805D057E767BE0FE10FB479F3762
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ Deep Purple по праву считаются одной из самых вли
 magnet:?xt=urn:btih:29E77FA79500F8498D322B4417BFEF04FCDDC960
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:29E77FA79500F8498D322B4417BFEF04FCDDC960
 ```bash
 magnet:?xt=urn:btih:4F51FB324AC8E7F3911C234F178A3A675ABFDD67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:4F51FB324AC8E7F3911C234F178A3A675ABFDD67
 magnet:?xt=urn:btih:734C26E28ECE69EB0D9F9FC40120AB1890C1A3DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:734C26E28ECE69EB0D9F9FC40120AB1890C1A3DE
 ```bash
 magnet:?xt=urn:btih:C43A762856FF414BED08D8A643D190DD2CEA6769
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:C43A762856FF414BED08D8A643D190DD2CEA6769
 magnet:?xt=urn:btih:48A5ED85C66E289D0F04E31A9AF2ECA8D20C9140
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:48A5ED85C66E289D0F04E31A9AF2ECA8D20C9140
 magnet:?xt=urn:btih:4BEB810E22902C4A4A0B50CBAE12E26A8EA4B7E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:4BEB810E22902C4A4A0B50CBAE12E26A8EA4B7E4
 ```bash
 magnet:?xt=urn:btih:CC0108FF42872E4EDC992DC7852DE2E64EB42B13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:CC0108FF42872E4EDC992DC7852DE2E64EB42B13
 magnet:?xt=urn:btih:9F3DF5A4358EB860B1826BD3485E29DD8E52B026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:9F3DF5A4358EB860B1826BD3485E29DD8E52B026
 ```bash
 magnet:?xt=urn:btih:2ED824EFEA436A4BC1B26ACF2C6B82029801E4B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:2ED824EFEA436A4BC1B26ACF2C6B82029801E4B9
 magnet:?xt=urn:btih:2E437F002CD6284C687AB34EC36D0C4C019EAB8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:2E437F002CD6284C687AB34EC36D0C4C019EAB8F
 ```bash
 magnet:?xt=urn:btih:9370C1DD7B510233C6CA19AAF41903F152438311
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,31 +681,7 @@ magnet:?xt=urn:btih:9370C1DD7B510233C6CA19AAF41903F152438311
 magnet:?xt=urn:btih:F5FB6FD2DFDDCC48AD388A70B2A56440A39209F9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381767   (824479) от 08.05.2020
-
-Прогулки по Санкт-Петербургу / Saint Petersburg (2020) CamRip [H.264/1080p] [PR]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Культурный центр России - Санкт-Петербург, основанный в 1703 году Петром Великим, пользуется огромной популярностью у туристов со всего мира.
-Город Санкт-Петербург представляет собой удивительное сочетание культур и традиций России и Европы.
-Кинематограф позволяет побывать в этом прекрасном городе не выходя из дома уже прямо сейчас.Производство: Россия, Санкт-ПетербургЖанр: видовой, короткометражный, документальныйРежиссер: Денис ВарламовПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: АнглийскиеПродолжительность: 00:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4648C24BB3BBBCC959078B18FA2D62B1F9972F5D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

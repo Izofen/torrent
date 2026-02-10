@@ -1,3 +1,29 @@
+###  Публикация: 1290524   (678142) от 20.03.2019
+
+Нико Бауман | Сила фокуса внимания. Метафизический закон успеха (2017) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга попала к вам в руки для того, чтобы вы наконец-то смогли что-то исправить в своей жизни и улучшить ее! Вы сможете получить то, о чем раньше только мечтали. Эта книга - о "психической кнопке", которая многократно повысит вашу эффективность! И кнопка эта называется - внимание. Именно внимание таит в себе необыкновенную Силу, которая творит Чудеса! (   Читать дальше...   )Жанр: Психология, СаморазвитиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD6D46604D66CCEED6E10607A867870FFF2D5E83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290581   (678146) от 20.03.2019
 
 Виктория Мельник | Еда как есть (2019) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:09011A4CC921FE7BFD8DC643DB471372EE18CEF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:09011A4CC921FE7BFD8DC643DB471372EE18CEF6
 magnet:?xt=urn:btih:E10E7D44FB8219CCF5F048970EC0C838961DD2AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:E10E7D44FB8219CCF5F048970EC0C838961DD2AB
 ```bash
 magnet:?xt=urn:btih:E30D369DE38BF11C3D35B4DBAA7C3C883383A3B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:E30D369DE38BF11C3D35B4DBAA7C3C883383A3B2
 magnet:?xt=urn:btih:05097E7B3623B0D5EB186FE86C4B51FB8D0F5262
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:05097E7B3623B0D5EB186FE86C4B51FB8D0F5262
 ```bash
 magnet:?xt=urn:btih:F79B6C9D04847C010A1CEF08F43D97A233167AA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:F79B6C9D04847C010A1CEF08F43D97A233167AA7
 magnet:?xt=urn:btih:05C2E333A85CDAE7099A62ACB476DDCC17A0940F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:05C2E333A85CDAE7099A62ACB476DDCC17A0940F
 ```bash
 magnet:?xt=urn:btih:B4099C05965407FB6D71507003186335F08AD0A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:B4099C05965407FB6D71507003186335F08AD0A0
 magnet:?xt=urn:btih:6C04ED1D48DAD114050A19232FE2CAB32FECAAA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:6C04ED1D48DAD114050A19232FE2CAB32FECAAA1
 ```bash
 magnet:?xt=urn:btih:053ACE45E227D7980F130FA766EBF9D3CF7CE81B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:053ACE45E227D7980F130FA766EBF9D3CF7CE81B
 magnet:?xt=urn:btih:CD9F61595DC8DFF85A722313A1DC51501833F218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:CD9F61595DC8DFF85A722313A1DC51501833F218
 ```bash
 magnet:?xt=urn:btih:AEC23E2658120FE9CC1997BF6D7BA64B4A9711BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:AEC23E2658120FE9CC1997BF6D7BA64B4A9711BE
 magnet:?xt=urn:btih:7A880DF8430A4FC6C4817C756F6B508FB3BEF3B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:7A880DF8430A4FC6C4817C756F6B508FB3BEF3B6
 ```bash
 magnet:?xt=urn:btih:1733D6D3F0E968C67B3A76761BCA1B6946F74FB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:1733D6D3F0E968C67B3A76761BCA1B6946F74FB0
 magnet:?xt=urn:btih:AEFE2EA947E5E438401796C96EA732E9872D9B50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:AEFE2EA947E5E438401796C96EA732E9872D9B50
 ```bash
 magnet:?xt=urn:btih:7C4262B3F080DDD4E23B2B370BCDDDC80F4A7555
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:7C4262B3F080DDD4E23B2B370BCDDDC80F4A7555
 magnet:?xt=urn:btih:199E308085DC26A900B9701FBB72D3714B7743C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:199E308085DC26A900B9701FBB72D3714B7743C4
 ```bash
 magnet:?xt=urn:btih:393BAF48A8EAF5C148B2B1697475631653674166
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:393BAF48A8EAF5C148B2B1697475631653674166
 magnet:?xt=urn:btih:18D29C946E0DFEACA03038ED734DD7DBEC8EF066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:18D29C946E0DFEACA03038ED734DD7DBEC8EF066
 ```bash
 magnet:?xt=urn:btih:84A479DA953532E800A092FB9BA38D21CB10B701
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:84A479DA953532E800A092FB9BA38D21CB10B701
 magnet:?xt=urn:btih:6360D6213C56608F4BA28A2FAB86E3A1FBA81D6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:6360D6213C56608F4BA28A2FAB86E3A1FBA81D6C
 ```bash
 magnet:?xt=urn:btih:A94573144E15D8D9DC7B238C63630F3D01724408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:A94573144E15D8D9DC7B238C63630F3D01724408
 magnet:?xt=urn:btih:D4BDFC123D2062497E959DA3245006B44EEC1937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:D4BDFC123D2062497E959DA3245006B44EEC1937
 ```bash
 magnet:?xt=urn:btih:16B9880FC4866D865DFA50798796FC7E1283422E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:16B9880FC4866D865DFA50798796FC7E1283422E
 magnet:?xt=urn:btih:3A579A234223752D899AFD460F68B79F99E5E1D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,32 +675,7 @@ magnet:?xt=urn:btih:3A579A234223752D899AFD460F68B79F99E5E1D4
 magnet:?xt=urn:btih:E0EF1EFFFE53C2AB5D0A6F8C33F233BB66A519C2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222683   (679314) от 02.05.2018
-
-Евгений Поселянин | Божья рать (2013) [PDF, DJVU, FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679314.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Божья рать» и «Пустыня» - книги выдающегося православного беллетриста Евгения Поселянина. Они открывают для нас дела и помыслы христианских праведников.
-
-«Божья рать» включает в себя истории о жизни первых страстотерпцев - священномучеников Климента и Кодрата Никомидийского, святителя Спиридона Тримифунтского, святого целителя Сампсона Странноприимца и других.
-(   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB45C37EE31A907F7A8902183248427354DAB9B8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:61FDD288615F12226D93CE5CE9E8DEEA6F1B011D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Just Cause 2 + 9 DLC [Ru] (RePack/1.0.0.2) 2010 | R.G. UniGamers
 ```bash
 magnet:?xt=urn:btih:DF223F491172AFBBE09689C45B7439067D68163A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:DF223F491172AFBBE09689C45B7439067D68163A
 magnet:?xt=urn:btih:8AC879C67C15C929EF641622D86D920947C930DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:8AC879C67C15C929EF641622D86D920947C930DB
 ```bash
 magnet:?xt=urn:btih:2CE5A6D2C26168AD58A3E57A903BBA1615102DE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Portal 2 [En/Ru] {2.0.0.1} (L/Steam-Rip) 2011 | R.G. Игроманы
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Just Cause 2 + 9 DLC [Ru] (RePack/1.0.0.2) 2010 | UltraISO
 ```bash
 magnet:?xt=urn:btih:388DFEABEBA50A9810CA0E9ACD748A5ACF18A88F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Ashampoo Photo Commander - универсальный инструмент дл�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ Ashampoo Photo Commander - универсальный инструмент дл�
 ```bash
 magnet:?xt=urn:btih:4B5C988C182046A5E358F3D19E8FA8E9078A61A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ magnet:?xt=urn:btih:4B5C988C182046A5E358F3D19E8FA8E9078A61A2
 magnet:?xt=urn:btih:2EC9886E7BA5542A43220B8486C6CCB2C689CB76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:2EC9886E7BA5542A43220B8486C6CCB2C689CB76
 magnet:?xt=urn:btih:6ED47142ACFF023900BE00125E568A41997164B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ Windows 7 Codec Pack — новая версия одного из самых п
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ Windows 7 Codec Pack — новая версия одного из самых п
 magnet:?xt=urn:btih:CEFA380BF9C18858BCD5E55052A929888CADC122
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ DVJ Bazuka - My Obsessions (Uncensored) (2011) DVDRip
 ```bash
 magnet:?xt=urn:btih:14EC8350190D60CFEFE45224A02E2C6FDE0F770D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:14EC8350190D60CFEFE45224A02E2C6FDE0F770D
 magnet:?xt=urn:btih:D66718387D374324BEF8F5B9F70E9080EEE2363C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:D66718387D374324BEF8F5B9F70E9080EEE2363C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:D66718387D374324BEF8F5B9F70E9080EEE2363C
 magnet:?xt=urn:btih:4AE865E196552149BC4DE57F88BF46773B24E764
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:4AE865E196552149BC4DE57F88BF46773B24E764
 magnet:?xt=urn:btih:643E53C6A0533E6FA67B00C4CD2FB48E3C738CA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:643E53C6A0533E6FA67B00C4CD2FB48E3C738CA7
 ```bash
 magnet:?xt=urn:btih:58ACFB5AEB4198E8BCA5C6DADAD0513D0F127C66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ CD1:
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:3CF75B626C413BC73BCFAF10424DC633CFE8A31A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ iSpy 3.8.6.0 [Multi + Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ Bazuka - Sexy Jump (Uncensored) (2011) WEBRip 720p(H264)
 ```bash
 magnet:?xt=urn:btih:1436BED0935EC6445409AD061BAECC46288C0538
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +633,8 @@ magnet:?xt=urn:btih:1436BED0935EC6445409AD061BAECC46288C0538
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +659,8 @@ magnet:?xt=urn:btih:1436BED0935EC6445409AD061BAECC46288C0538
 ```bash
 magnet:?xt=urn:btih:99FF7DB677269F8DDB40730421D08861BFFFF0FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +689,8 @@ Ashampoo Photo Commander помогает организовать и просм
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +714,8 @@ Ashampoo Photo Commander помогает организовать и просм
 ```bash
 magnet:?xt=urn:btih:5CCA6D21F2DF32ED065611870029921CEDFCA756
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

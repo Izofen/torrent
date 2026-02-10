@@ -20,6 +20,8 @@ Garmin: CarteBlanche Ukraine NT 2015.03 [Ru/Multi]
 magnet:?xt=urn:btih:368446EACA7C6AEF919C8D1C1CBE3C47AFA918A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:368446EACA7C6AEF919C8D1C1CBE3C47AFA918A0
 magnet:?xt=urn:btih:B2540A822D0E50340D3F19DB34B8B542A1B662B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Garmin: CarteBlanche Ukraine NT 2016.06 (КартБланш Украина) [Ru/
 ```bash
 magnet:?xt=urn:btih:90B7607FD32C69E683EF301FB2B84EA82AB3B2E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Maths Formulas - программа, в которой Вы найдёте вс�
 magnet:?xt=urn:btih:31ED39BE3F1B425E6A67DF4AAD7EABC770EC8ACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Muscle Premium представляет собой самое продуманн
 magnet:?xt=urn:btih:DB85818579B65157E25E05DFAFB664E8A9438F22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ CM (Cleanmaster) Security 2.6.2 - Антивирус [Ru]
 ```bash
 magnet:?xt=urn:btih:B76A5326E822ABF1215AF2056623D480C5E1F562
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Angry Birds устраивают торжества по поводу разли
 magnet:?xt=urn:btih:A673DE7FAA39CAAA2C5347B793DF891FF69FF128
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:A673DE7FAA39CAAA2C5347B793DF891FF69FF128
 magnet:?xt=urn:btih:75E4FE1A60DD2D4C23769AFD4BD78CB737B7B10D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ MyPhoneExplorer 1.0.35 - Explorer для Android  [Ru]
 ```bash
 magnet:?xt=urn:btih:F7DAA00314403B9CF1FE0DC25220EB8C03E55130
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:F7DAA00314403B9CF1FE0DC25220EB8C03E55130
 magnet:?xt=urn:btih:E428874ED6541567D13A123442E17F273E68DC72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ Life Is Strange Anthology [Ru/En]
 ```bash
 magnet:?xt=urn:btih:CA9B96760E44E355BF7BB9EF608870C036627850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ Akimbo Audiobook Player v1.6.1 (30.06.2014) <Ru>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ Samsung Все Сматфоны и планшеты [Ru]
 ```bash
 magnet:?xt=urn:btih:84E272DF731EC89D677FD821250EA04C638A1EA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:84E272DF731EC89D677FD821250EA04C638A1EA8
 magnet:?xt=urn:btih:683D2D81904CD8D63B3B0255289D4F24ED059317
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ Half-Life HD+ADDONS+MODS [Ru]
 ```bash
 magnet:?xt=urn:btih:254131741EAE52E002710C2F6729FE7481615D0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:254131741EAE52E002710C2F6729FE7481615D0C
 magnet:?xt=urn:btih:8711BAA6304F64B32023CF2BE58FCAD435492C5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ CAD Touch Pro – отличная расширенная версия прог�
 magnet:?xt=urn:btih:379D45A8392988A3D4A2A8673C63FC89B04B2C55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ Root Browser подойдёт владельцам как рутованных, 
 ```bash
 magnet:?xt=urn:btih:CAF0B9294C768F2FA002651D3E915AC6D2AD0FF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ Where's My Perry / Где же Перри? 1.7.0 [Ru]
 magnet:?xt=urn:btih:2C18687517A8A2A1B18BC6423D8A9551BD2DD180
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:2C18687517A8A2A1B18BC6423D8A9551BD2DD180
 ```bash
 magnet:?xt=urn:btih:B78D42DA3F1367C48E26B4F1E831D8D4C97FCBBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:B78D42DA3F1367C48E26B4F1E831D8D4C97FCBBD
 magnet:?xt=urn:btih:277C60E5D8A66EF836F10568B83893FE332AAE0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:277C60E5D8A66EF836F10568B83893FE332AAE0A
 magnet:?xt=urn:btih:C4BD1D83B5C9EC66D131EF32A37E2FBD8CB45B1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:C4BD1D83B5C9EC66D131EF32A37E2FBD8CB45B1E
 ```bash
 magnet:?xt=urn:btih:8FA234F8F46964E21E05F1F2A1656359CC6B9ED6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +643,8 @@ Cказки для малышей 3.0.3 [Ru]
 magnet:?xt=urn:btih:D20EADF01B84590108886B98C668A9D728CADC92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:D20EADF01B84590108886B98C668A9D728CADC92
 magnet:?xt=urn:btih:646FDD0B4641BF2878470C83877BFD9AD3E76EE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ RSS Reader v1.7.0 [Ru] - чтение RSS-лент
 ```bash
 magnet:?xt=urn:btih:92F71CA305CD4FBD8A90FAB0AF150A5B7C98E3F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

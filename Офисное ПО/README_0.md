@@ -19,6 +19,8 @@ Sejda PDF Desktop Pro 7.9.0 [Multi]
 magnet:?xt=urn:btih:D7352DC4DA65CE58A90E9B39F52FC8B82FEFCE17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ PDF-XChange Pro — универсальное решение для работ�
 ```bash
 magnet:?xt=urn:btih:41C8A82E56E80E4ED414995D9672B6288C23BB29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 magnet:?xt=urn:btih:41E8FDEABA75E57EC763E10DD0AAB7EBE8A116CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ pdfFactory Pro - удобное приложение, представляюще
 ```bash
 magnet:?xt=urn:btih:F227DA4379EE1A52BFDE6DE590DD47FE4BAD7DC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ SoftMaker Office Professional 2024 Rev. S1226.0817 [Multi/Ru]
 magnet:?xt=urn:btih:7BA5E3983CCD56D1C99C0B106B14F721256D82D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ CoolUtils Total PDF Converter 6.5.0.354 RePack (& portable) by elchupacabra [Mul
 ```bash
 magnet:?xt=urn:btih:8B0A7EDAC76F336F084069ECE308F4BF6E850280
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ priPrinter - это виртуальный принтер, который вы �
 magnet:?xt=urn:btih:DE84E4E11E516FBC96C02931172C69F968924C5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ LibreOffice — мощный офисный пакет, полностью со�
 ```bash
 magnet:?xt=urn:btih:4C97031B22F460162FBDAE31627CADB036E58A7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Foxit PDF Editor Pro (ранее носил название Foxit PhantomPDF Bu
 magnet:?xt=urn:btih:DF05348868AEDD2AE1EC274F0AFC5E5A2A978D12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ doPDF — программа для преобразования докумен�
 ```bash
 magnet:?xt=urn:btih:D6588E01EDE65E50EE5DA9A9C9E91958345B6D00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Foxit PDF Editor Pro (ранее известный как Foxit PhantomPDF Busi
 magnet:?xt=urn:btih:CAD41383220075CDF38892FE9B7195F1FC0DF18E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Notepad++ - бесплатный редактор текстовых файло�
 magnet:?xt=urn:btih:830B74AB91BCFD992939AC0CFEDDAD3DFDDC0DC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Office Tool Plus - функциональная программа для раб
 ```bash
 magnet:?xt=urn:btih:5A0B2D5644C09E7AF43A091505E054B0325D6E43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ EmEditor Professional - профессиональная версия мощно
 magnet:?xt=urn:btih:C5A8AFA9230CA20B8E93EA595EFA5C9CCC14CD8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:C5A8AFA9230CA20B8E93EA595EFA5C9CCC14CD8F
 ```bash
 magnet:?xt=urn:btih:CA6AC0D888C7D51AAFA7B48D9121339C199D9A63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ NFOPad - маленький, гибкий и простой текстовый �
 magnet:?xt=urn:btih:5E8BD0EED0227EDAA0D89EE2B75D05ED0FB51CA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:429033DF2B7D1F5BD79EAED73C7F34F868B56AD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Coolutils Total Outlook Converter Pro – конвертирует электр�
 magnet:?xt=urn:btih:38C22EEA592E8CE339DCC8719722D18F6295AAA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ ACG-Free! 2.01 - это небольшой, простой в использов
 ```bash
 magnet:?xt=urn:btih:22AB86C6F507921F96CCD644318230A4CEC19985
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Office Tool Plus - функциональная программа для раб
 magnet:?xt=urn:btih:731CDDFBAADE7CC2E6476EC40E84842BD5F89131
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Master PDF Editor — простая, но эффективная програм
 ```bash
 magnet:?xt=urn:btih:8558E6E995031F6A0FA7AD199880E82169BC1FD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ CoolUtils Total XML Converter - уникальное приложение для
 magnet:?xt=urn:btih:3772CEDB53F4FEFC19EDE02C905A1098E3434E43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ CoolUtils Total HTML Converter - это решение профессионал�
 ```bash
 magnet:?xt=urn:btih:9C12D93A1782334E306B99C0D3B45C09782BDA53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Office Tab Enterprise новая версия небольшой, но очен�
 magnet:?xt=urn:btih:A6B7B41A9887AA5FD34CF20E41C22EC54A39CC8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ PDF Shaper Premium / Ultimate 15.2 RePack (& Portable) by Dodakaedr [Ru/En]
 magnet:?xt=urn:btih:207B303B3C9BD82483EF811E0AF31BCF1D08DB95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:207B303B3C9BD82483EF811E0AF31BCF1D08DB95
 ```bash
 magnet:?xt=urn:btih:FD908540E0F2350BA24533303817D50EFE1E24AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

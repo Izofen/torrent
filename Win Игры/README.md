@@ -20,6 +20,8 @@ Puzzle Quest: Immortal Edition (2025) [Ru/Multi] (1.0.0.3388) Repack Let'sРlay
 magnet:?xt=urn:btih:3A1D3C6B2EDB694318DEEC4ECE11F45F4091D293
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Mirage: Ignis Fatuus - изометрическая головоломка с э
 ```bash
 magnet:?xt=urn:btih:9BCF4F06B5D44E0CE989EF6C8D75B425093207E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Deep Rock Galactic: Survivor - это одиночный сурвайвор-ла
 magnet:?xt=urn:btih:01E37148891F970C7DE1595153566DD0F04183C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Deep Rock Galactic: Survivor - это одиночный сурвайвор-ла
 ```bash
 magnet:?xt=urn:btih:0EE262BE08872C6F48AEF0AB1692C6EBD249BE97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Puzzle Quest: Immortal Edition (2025) [Ru/Multi] (1.0.0.3388) License GOG
 magnet:?xt=urn:btih:3A868B2EFC8CDBDA41D4AEC29269CD404C96CF10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Missing Hearts: Crimson Cruise / Пропавшие Сердца: Багровы
 ```bash
 magnet:?xt=urn:btih:D73C4356FFA6DEDFAB102C32AABE1D6BA4E9F5A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Moros Protocol (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:1DBDB2DFE65B7B6E119247511CF32763896F0400
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (1.4.0/dlc) License GOG [Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:08FAB06B7C85141105CFC0BAA66534520C55A82A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ The Lightkeeper - психологический хоррор, действие 
 magnet:?xt=urn:btih:447D747E9118AEBEBCDB026FC138E34D5D435A2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Moros Protocol (2025) [Ru/Multi] (1.0.7.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:6BEEDADE65D494A82B922B8740F61957A6D664A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Slime Rancher 2 - это продолжение удостоенной нагр�
 magnet:?xt=urn:btih:9AAAC2CB01E336BB516571EC694210614826B576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Yes, Your Grace 2: Snowfall - кинематографичная игра про
 ```bash
 magnet:?xt=urn:btih:028AF60B78115342EBC4F736BB28CE61D1F9CF4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack seleZen
 magnet:?xt=urn:btih:B7CC51921A22CC597FDC218B31DC603DA26A0519
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack FitGirl [Ultimate Bundle]
 ```bash
 magnet:?xt=urn:btih:16BE895C1B4B183D161658409C884B0866854D03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Deep Rock Galactic: Survivor - это одиночный сурвайвор-ла
 magnet:?xt=urn:btih:CC067278322655298A6D9D1B083443BAB81B1F11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ The House of Tesla (2025) [Ru/Multi] (Build 20154873) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:08036FC194136246BBCC8882C51E71C01F908986
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Age of Wonders 4 - пошаговая стратегия с тактически
 magnet:?xt=urn:btih:66B4B9E3E60FB90DED4ADC9B83292FBCB92D15B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.1.0.16) License GOG
 ```bash
 magnet:?xt=urn:btih:26B2543C78BCFFE57CDB4A0C1AC7D2C7D14CE79E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Temtem: Swarm сочетает в себе минималистичный игр
 magnet:?xt=urn:btih:160060DDEE044382D6A6A084999AD5EF5919FF07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Slime Rancher 2 - это продолжение удостоенной нагр�
 ```bash
 magnet:?xt=urn:btih:496CDC086FABFB81A8EFC6D96752EC8186901910
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Primal Planet - это метроидвания от единственного 
 magnet:?xt=urn:btih:3A6ADBFBDAFB6781F5CDF50B15F3CE7C79D1BBC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.45.9/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A1FE37EBCA4260F1DC5BBE2F84FF4E90E59DB0A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack Pioneer [Steam Edition]
 magnet:?xt=urn:btih:17F62672111E6BDB4EB9723EF53A90F89120529A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Mr. Prepper - строительный симулятор, где вам пре�
 ```bash
 magnet:?xt=urn:btih:A9A769ED47E9AB23DB5ACC58FB94D4B8990AD8DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Wartales - ролевое приключение в открытом мире, �
 magnet:?xt=urn:btih:47550133360A506BBCCE21F64E55D292CC9FAA27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Coromon – ролевое инди-приключение про прируче
 ```bash
 magnet:?xt=urn:btih:7F8FEE0BFDD99B37929494B5FDD931FFA37F49C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

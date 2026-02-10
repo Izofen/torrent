@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:07C776B068C3B7943B4AA78C73DE319FF6C7A509
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Realm of Ink (2024) [Ru/Multi] (0.18.10) Repack AIexandro [Early Access]
 ```bash
 magnet:?xt=urn:btih:D5EE2A5C7C4CAF21FF8043B0AE67C37A1D35FC72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Deadzone: Rogue - это roguelite-шутер от первого лица, де
 magnet:?xt=urn:btih:63C92ED27821DC4B166152B1E968642BA5C64764
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:63C92ED27821DC4B166152B1E968642BA5C64764
 ```bash
 magnet:?xt=urn:btih:794B42526B734142AAB87D74F90B74982F32FDD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:794B42526B734142AAB87D74F90B74982F32FDD7
 magnet:?xt=urn:btih:B74D529781DFAC2054F74E44E04EF504CD44AE7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:B74D529781DFAC2054F74E44E04EF504CD44AE7D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:B74D529781DFAC2054F74E44E04EF504CD44AE7D
 magnet:?xt=urn:btih:D573A9C063F4253C7E066F90406906678434959C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:D573A9C063F4253C7E066F90406906678434959C
 magnet:?xt=urn:btih:5A5F26436102C1783421D42F00D572A90BA4675E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 magnet:?xt=urn:btih:1801F7F7757A4E729E41120C75EADB388C067793
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Bandicam поможет вам сделать запись игры с высо�
 magnet:?xt=urn:btih:C5DA78FA43A1914265D1CE82014D0F43E8B58DB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:C5DA78FA43A1914265D1CE82014D0F43E8B58DB3
 ```bash
 magnet:?xt=urn:btih:803F0AABC251457949B70280875D322A9CB2B6A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:803F0AABC251457949B70280875D322A9CB2B6A2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Snagit предлагает неограниченные возможности 
 magnet:?xt=urn:btih:879574E578BB274930EECC9A24F6A39CC8E87A02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:879574E578BB274930EECC9A24F6A39CC8E87A02
 ```bash
 magnet:?xt=urn:btih:11525909DFD41E64B14BCD7087250F5754A8DC5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:11525909DFD41E64B14BCD7087250F5754A8DC5C
 magnet:?xt=urn:btih:CA57C59E845A13FCD9707B4B6DB65BB48A10756E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ The Roottrees are Dead предлагает геймерам погрузить�
 ```bash
 magnet:?xt=urn:btih:79848BB09A4598126156093F50301111A6ABC1A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ XRecode3 — популярный и мощный аудио конвертер,
 magnet:?xt=urn:btih:5B104C7B0B062FEC7926978BDD7A1B4F294FDB97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ One Piece. Большой куш / One Piece (2023) WEB-DL [H.264/1080p] (сез
 ```bash
 magnet:?xt=urn:btih:DAB4E6AAE1611B9B3A0008CBA899268509E5A2B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 magnet:?xt=urn:btih:D6DD80F2DB3C6041D9728806896A82F0ABEF0B8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:D6DD80F2DB3C6041D9728806896A82F0ABEF0B8B
 ```bash
 magnet:?xt=urn:btih:085CB9905B2F15D7A2610FB5604DF6AA04A187BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Heretic + Hexen (2025) [Ru/Multi] (4577-c7e7b84-170) License GOG
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Heretic + Hexen (2025) [Ru/Multi] (4577-c7e7b84-170) License GOG
 magnet:?xt=urn:btih:372584387B2CEEAC10D0B7FC793F8537C080DF43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:372584387B2CEEAC10D0B7FC793F8537C080DF43
 ```bash
 magnet:?xt=urn:btih:793FB34FA915A2A18D1463E4E89A2792C606070A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ updated_july_2025_x64_dvd_a1f0681d.iso.
 magnet:?xt=urn:btih:8B3E8B5AF8C58FD5AD25FA3B951CD7816AE6EDD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:8B3E8B5AF8C58FD5AD25FA3B951CD7816AE6EDD6
 magnet:?xt=urn:btih:24AFF0E1BC0399352276E1AA722ACDB7B9DA9F5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:24AFF0E1BC0399352276E1AA722ACDB7B9DA9F5A
 ```bash
 magnet:?xt=urn:btih:BE6AFC3F7D4D6F797600B1C8996A4C842B6D6765
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

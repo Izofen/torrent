@@ -1,27 +1,3 @@
-###  Публикация: 1850164   (1053945) от 
-
-MediaHuman YouTube Downloader 3.9.18 (2501) (x64) [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053945.jpg" />
-</div>
-
-
-###  Подробнее
-
-На YouTube можно найти много интересного, но по умолчанию вы не можете скачать видео или сохранить его в виде аудиофайла. Именно поэтому мы разработали YouTube Video Downloader. Это приложение поможет вам загружать видео быстро и без заминок. С помощью нашей программы вы можете просто скачать сразу весь плейлист или канал YouTube и смотреть его когда угодно и где (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB779CB8375CE8A0C2E2010CAF2F833D1B58BC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850152   (1053950) от 
 
 4K Downloader 6.1.6 [En]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:9FB779CB8375CE8A0C2E2010CAF2F833D1B58BC8
 ```bash
 magnet:?xt=urn:btih:73ED08C564AB14E46D72617A0C573F8689DBF00C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ PORTAL-WG 3.0.1 [Ru]
 magnet:?xt=urn:btih:1CE6AFF5853C6308AB83B68F18246813B840398A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:A9EDDC8C2C1AFC6C5E7CB4D52741E9B5F308A00C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ MediaHuman YouTube Downloader 3.9.18 (2501) RePack (& Portable) by elchupacabra 
 magnet:?xt=urn:btih:1A500E1118B41E1EA62E9559D0F133A46C70C096
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ MAX Desktop 26.2.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:FB7E7410F64B581D46670F55DE431E287C99C59D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:F764AB80AA39981F7EF2E4D277505F3D8BAC2321
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:1EAADF0CA1F797D0B7910765A2DE25F9AD1702C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ MediaHuman YouTube Downloader 3.9.18 (2601) (x64) [Multi/Ru]
 magnet:?xt=urn:btih:7ADBA1780A4C3018E27313DB44E97C8615FDAFF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:7ADBA1780A4C3018E27313DB44E97C8615FDAFF8
 ```bash
 magnet:?xt=urn:btih:21D8FD6FFE90AB59B2C90ACFEC013B373F7627E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Vivaldi 7.8.3925.56 include standalone [Multi/Ru]
 magnet:?xt=urn:btih:28CF553D68469C7EB956B0FC2A5FD1B19999CD98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:7A79A67D9E29055D43E64259C059E2E407692981
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:4CF9B9E5BDBE6B5111DA87E47E9E92FF6F8EC680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 ```bash
 magnet:?xt=urn:btih:A78281446A8F43DA050A5DA331D801D295EC0F51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:A78281446A8F43DA050A5DA331D801D295EC0F51
 magnet:?xt=urn:btih:FC161526813F1275DC813ACE3FB994A98AB05031
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ magnet:?xt=urn:btih:FC161526813F1275DC813ACE3FB994A98AB05031
 ```bash
 magnet:?xt=urn:btih:4CD4AC8F9242C092AC6B138CF60D71EF9D892264
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ MediaHuman YouTube Downloader 3.9.18 (2901) RePack (& Portable) by elchupacabra 
 magnet:?xt=urn:btih:AD49AC4A051B6CBB69F1A960F03E783A89F1D924
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ MediaHuman YouTube Downloader 3.9.18 (2901) (x64) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D7DB2E74D0E239CC59A6CE7F779ED77BDA7278B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ magnet:?xt=urn:btih:D7DB2E74D0E239CC59A6CE7F779ED77BDA7278B1
 magnet:?xt=urn:btih:6E7A6FE1067CC15A85231541170B27D7497B3D68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ magnet:?xt=urn:btih:6E7A6FE1067CC15A85231541170B27D7497B3D68
 ```bash
 magnet:?xt=urn:btih:4DEDDA88587104C1CC03ABBF7194E4E5EF25AFDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:B2E654BC07222FDB6BD3FDD0F221DF510B04E9D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ MediaHuman YouTube Downloader 3.9.18 (3001) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:C91BB403FB4BDE5DBD7E291D8533F04D4195E63F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ MediaHuman YouTube Downloader 3.9.18 (3001) (x64) [Multi/Ru]
 magnet:?xt=urn:btih:074D6E5FA864458DDC0F878B8D5FCFC3ED500388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ MassTube — очень простая в использовании прогр�
 ```bash
 magnet:?xt=urn:btih:7C42830358208A1401A559FA560860F63D3BA70E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ Ceno — первый браузер, разработанный для инте
 magnet:?xt=urn:btih:9ABBB2383D8E2D5A6991E443E3987F29F45A0495
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ iDownerGo – это приложение для загрузки мультим
 ```bash
 magnet:?xt=urn:btih:A7118C607C99108DAFFAB68FE1F2545816477969
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851266   (1055029) от 
+
+Any Video Downloader Pro 10.1.6 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Any Video Downloader Pro - это приложение для Windows, которое поможет вам загружать видео с YouTube, Facebook, Dailymotionи многих других сайтов обмена видео. Это ускоряет ваши загрузки до 5 раз. В программе есть возможность конвертировать видео и плеер для их просмотра.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2BD5ED59D5DAE280087901E16741A7F1B18559D
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 785337   (738911) от 11.05.2014
+
+Легендарный Т-34 (2003) DVDRip
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Средний танк Т-34 создало КБ А.А. Морозова. Главный конструктор А.А. Морозов. преемник М.И. Кошкина, основоположника работ по созданию среднего танка, оказался человеком обаятельным. Считал танк в первую очередь нужно вооружить предельно мощной пушкой.
+В то время одним из наиболее сложных вопросов, был выбор типа двигателя, наиболее соответствующего условиям возможного (   Читать дальше...   )Телекомпания: Студия "Крылья России"Жанр: ДокументальныйРежиссер: Константин ПоляковПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A64B59CF471B360F4DE148614EAA3CB12E4F690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 785571   (738915) от 11.05.2014
 
 Евровидение 2014. Финал  (10.05.2014) HDTVRip
@@ -21,6 +48,8 @@
 ```bash
 magnet:?xt=urn:btih:699FBBA0723C61CF660009177AF825AF10D20E1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +76,8 @@ Giovanni Urganti, Matteo Crustaldi, Alessandro Gudini, Allegra Michele и гру
 magnet:?xt=urn:btih:517A841095627FDF58340D029BBE3819E9F0A361
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +101,8 @@ magnet:?xt=urn:btih:517A841095627FDF58340D029BBE3819E9F0A361
 ```bash
 magnet:?xt=urn:btih:05DED744AB0AF3806C21922B6E1138C3BA217881
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +128,8 @@ magnet:?xt=urn:btih:05DED744AB0AF3806C21922B6E1138C3BA217881
 magnet:?xt=urn:btih:D9ED091D85A22690BE042989B68D1391EA7159D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +153,8 @@ magnet:?xt=urn:btih:D9ED091D85A22690BE042989B68D1391EA7159D4
 ```bash
 magnet:?xt=urn:btih:0026D0D92D85F8C1C1A22A3BB3EE932BBDA11176
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +184,8 @@ magnet:?xt=urn:btih:0026D0D92D85F8C1C1A22A3BB3EE932BBDA11176
 magnet:?xt=urn:btih:45AFE27DB2DCD7E954E6B60CDAE5BB885B5F0421
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +209,8 @@ magnet:?xt=urn:btih:45AFE27DB2DCD7E954E6B60CDAE5BB885B5F0421
 ```bash
 magnet:?xt=urn:btih:FBE1EB8FB5C86BB870E5183B81586DE938C96D0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +236,8 @@ magnet:?xt=urn:btih:FBE1EB8FB5C86BB870E5183B81586DE938C96D0F
 magnet:?xt=urn:btih:DAEA642F20E7B77A8171F2F8BD7655A5FC0748CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +261,8 @@ magnet:?xt=urn:btih:DAEA642F20E7B77A8171F2F8BD7655A5FC0748CE
 ```bash
 magnet:?xt=urn:btih:0EE9FDE2E3565C8AAB92BB3EAE8D163524C8CDC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +289,8 @@ magnet:?xt=urn:btih:0EE9FDE2E3565C8AAB92BB3EAE8D163524C8CDC3
 magnet:?xt=urn:btih:A26DE297271194C66759F23A6ECCDCA3420F1BC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +314,8 @@ magnet:?xt=urn:btih:A26DE297271194C66759F23A6ECCDCA3420F1BC0
 ```bash
 magnet:?xt=urn:btih:B7450A890E40830B48E4BDEE4118795F6BCB498E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +341,8 @@ magnet:?xt=urn:btih:B7450A890E40830B48E4BDEE4118795F6BCB498E
 magnet:?xt=urn:btih:C90F03DC9D5A4DFFD1B53C6BA6089B3199B1E44D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +366,8 @@ magnet:?xt=urn:btih:C90F03DC9D5A4DFFD1B53C6BA6089B3199B1E44D
 ```bash
 magnet:?xt=urn:btih:CB29D3B5D06CC15D82692745903469459381F104
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +393,8 @@ magnet:?xt=urn:btih:CB29D3B5D06CC15D82692745903469459381F104
 magnet:?xt=urn:btih:5E81A2C8D6DBBB6401DDDA9306FCC972702042A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +418,8 @@ magnet:?xt=urn:btih:5E81A2C8D6DBBB6401DDDA9306FCC972702042A9
 ```bash
 magnet:?xt=urn:btih:F6B42611CE85CE4D6B6219B85E1F99E9D210905F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +448,8 @@ magnet:?xt=urn:btih:F6B42611CE85CE4D6B6219B85E1F99E9D210905F
 magnet:?xt=urn:btih:73B4AAF2A5F6E080619E79887E0E4054E6710487
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +473,8 @@ magnet:?xt=urn:btih:73B4AAF2A5F6E080619E79887E0E4054E6710487
 ```bash
 magnet:?xt=urn:btih:C571BBFEC5713B10DE750679D8B9E69FCDE3FF09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +500,8 @@ magnet:?xt=urn:btih:C571BBFEC5713B10DE750679D8B9E69FCDE3FF09
 magnet:?xt=urn:btih:1B4198428B15AF715D921188DB70084C98D855AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +525,8 @@ magnet:?xt=urn:btih:1B4198428B15AF715D921188DB70084C98D855AF
 ```bash
 magnet:?xt=urn:btih:BB555CE0896AF0478916B94B0538F9C5B8E81DC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +553,8 @@ magnet:?xt=urn:btih:BB555CE0896AF0478916B94B0538F9C5B8E81DC9
 magnet:?xt=urn:btih:33A07E89B8C161FF46A48F35A9FF1283BDE549C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +578,8 @@ magnet:?xt=urn:btih:33A07E89B8C161FF46A48F35A9FF1283BDE549C2
 ```bash
 magnet:?xt=urn:btih:1C21E2FF5BF720409604B610DC11C11EE6DCC22D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +605,8 @@ magnet:?xt=urn:btih:1C21E2FF5BF720409604B610DC11C11EE6DCC22D
 magnet:?xt=urn:btih:2F4E3AD3DB8D1DE698E7B90C8D24B8CBE829BB29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +630,8 @@ zzzПроизводство: Франция, Roche ProductionsЖанр: Доку
 ```bash
 magnet:?xt=urn:btih:82998AC56A0E1F5FC2335BDBA716AFF454750EB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +657,8 @@ magnet:?xt=urn:btih:82998AC56A0E1F5FC2335BDBA716AFF454750EB1
 magnet:?xt=urn:btih:05F0B6AE25DC2A01386AF6264DE01BD48BF32DC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,29 +683,7 @@ magnet:?xt=urn:btih:05F0B6AE25DC2A01386AF6264DE01BD48BF32DC5
 magnet:?xt=urn:btih:DF218F050B320C8B12BF598CA951805E6649C9FF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208481   (739938) от 07.04.2018
-
-Восемь дней, которые создали Рим / Eight Days That Made Rome (2017) HDTVRip (1-8 серия из 8)
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Историк Беттани Хьюджес начинает с изучения дня в 202 году до н.э., когда Рим сломил мощь Карфагена в битве при Заме. Этот решающий момент стал шагом на пути к величию Рима.Производство: Великобритания, October Films LTDЖанр: Документальный, научно-популярный, история, реконструкцияРежиссер: Гарет ДжонсонПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 8 x ~ 00:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A1ED0F88CA7BB335362540E8675B7611160074B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

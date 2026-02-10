@@ -28,6 +28,8 @@ Andrew Lu - Club Universe Radioshow 052 (13.12.2012) [MP3|320 кб/с]<Trance, P
 magnet:?xt=urn:btih:70E4C5D3057D2FC71633C44C628BD7B9C4B476DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ The Neal Morse Band - The Similitude of a Dream (2016) 2CD [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:87B049E26AF84AF0B468DC7B29565410B7E28159
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ Dilmoon - What Lies Beyond (2020) [MP3|320 Kbps] <Progressive Rock, Female Vocal
 magnet:?xt=urn:btih:0135F8220CF4D2B1655D8343C509C7F97D57EF4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -105,6 +111,8 @@ March of Shrooms (2023) [En] (m309e) License GOG
 ```bash
 magnet:?xt=urn:btih:026794B5D52F2EB71C0F2E67C93B9A1BAD5CBECF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:026794B5D52F2EB71C0F2E67C93B9A1BAD5CBECF
 magnet:?xt=urn:btih:11AD0637A5D8D8C9663AA5DD517E1997C7A4D8B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Portrait Pro - экшен фотошоп превратит ваши обычн�
 ```bash
 magnet:?xt=urn:btih:6E04BB2630C3299056509DD9D33C967AF472927F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Devil Doll - The Return of Eve (2007) [MP3|320 Kbps] <Country Blues, Rockabilly>
 magnet:?xt=urn:btih:A4195528C8DD3E6EA70881059377F5DBBFD9921B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ JRiver Media Center — мощный мультимедийный центр, о
 ```bash
 magnet:?xt=urn:btih:FD1C6C5C7715377795CB2F0DB2E44AC577F44C1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +248,8 @@ magnet:?xt=urn:btih:FD1C6C5C7715377795CB2F0DB2E44AC577F44C1B
 magnet:?xt=urn:btih:35EF03CA228CAEFD54A8F2D445AD523744C2F395
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +276,8 @@ magnet:?xt=urn:btih:35EF03CA228CAEFD54A8F2D445AD523744C2F395
 magnet:?xt=urn:btih:C87235DED6C28CBEBB417787D1B6508970240E64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +302,8 @@ MP4Box является мультимедийным упаковщиком, с 
 magnet:?xt=urn:btih:4335547504DB08DC9AC3246A9D3B7C0D69A2FE51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +327,8 @@ magnet:?xt=urn:btih:4335547504DB08DC9AC3246A9D3B7C0D69A2FE51
 ```bash
 magnet:?xt=urn:btih:95BF39548DBAB78C71AB8B3BDEF91F0B7222E24D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +357,8 @@ Joe Brown - The Ukulele Album (2013) 2CD Deluxe Edition [FLAC|Lossless|image + .
 magnet:?xt=urn:btih:8032B7B2B463D8F35BF70503816524FD1AC48907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ magnet:?xt=urn:btih:8032B7B2B463D8F35BF70503816524FD1AC48907
 magnet:?xt=urn:btih:B6A6A07BF4943A7CC853660997ACF7D5F84E4C2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +408,8 @@ Fast Video Cutter Joiner - программа 2-в-1 для быстрой ре�
 ```bash
 magnet:?xt=urn:btih:1CCBD5221536D40F21DB434319D9D30C4FB34B59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +437,8 @@ Rencontre Nocturne - Recap 2020 (2020) [MP3|320 Kbps] <Electro House, Progressiv
 magnet:?xt=urn:btih:68CD8938C36DFF1A9A5F174A06A887D261E43CB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:68CD8938C36DFF1A9A5F174A06A887D261E43CB2
 ```bash
 magnet:?xt=urn:btih:3450A58059249AB160957BD2FD0AB9CF5A176F94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +492,8 @@ Ani ni Tsukeru Kusuri wa Nai! 3 | В случае с братом медицин
 magnet:?xt=urn:btih:0AC478403202B57E3376B993114183B44446EC65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ magnet:?xt=urn:btih:0AC478403202B57E3376B993114183B44446EC65
 ```bash
 magnet:?xt=urn:btih:DBCBE91D177D57E18DD2CD9853ECCDAF6BCBA76A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:DBCBE91D177D57E18DD2CD9853ECCDAF6BCBA76A
 magnet:?xt=urn:btih:8FABAB18CE7E60DE9E41A910C78F21C53E449FA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:8FABAB18CE7E60DE9E41A910C78F21C53E449FA1
 ```bash
 magnet:?xt=urn:btih:DEED93B4C933DAA689FF5BFDDFDB2A753D6B84EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +605,8 @@ John Aise - House Energy 11 (2012) [MP3|320 кб/с]<Club \ Electro House>
 magnet:?xt=urn:btih:7CF1FBF5E2D50059147DD47953629952AA6A6C63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +634,8 @@ Kryder - Kryteria Radio 270 (2020 Label Showcase) (2020-12-23) [MP3|192 Kbps] <H
 magnet:?xt=urn:btih:781B897CDDF7173A36F882B17923C29432D4DA12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +659,8 @@ magnet:?xt=urn:btih:781B897CDDF7173A36F882B17923C29432D4DA12
 ```bash
 magnet:?xt=urn:btih:1CF0A9421D089B9A56C2A936C4820D601C5DCBC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +686,8 @@ magnet:?xt=urn:btih:1CF0A9421D089B9A56C2A936C4820D601C5DCBC8
 magnet:?xt=urn:btih:AD4C9206B70B96089221CCF3272CE7FF5C99450B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ Telegram — это приложение для обмена сообщения�
 ```bash
 magnet:?xt=urn:btih:33C1EC36A95462E72F8AB575C28D99AB023973FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1141502   (650429) от 10.06.2017
+
+Галина Калинина (сост.) | Загробная жизнь и бессмертие души. Свидетельства и факты (2014) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650429.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Загробная жизнь и бессмертие души" - книга, в которой рассматриваются различные аспекты смерти и посмертного бытия человеческой души. С позиций Православия в книге объясняется вера в бессмертие души, рассказывается об обрядах, которыми сопровождает Церковь смерть человека, о том, как помочь своим умершим близким, чтобы облегчить их посмертное существование, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEAA88EB0A67A2C697D0B7C2480B41C87B3B9639
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141428   (650430) от 10.06.2017
 
 Скиния (изд.) | Святой Пантелеимон великомученик и целитель (1996) [PDF, DJVU]
@@ -21,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:B347A0FC1F6B048FEDA231A848082FEA96E6CCE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:B347A0FC1F6B048FEDA231A848082FEA96E6CCE2
 magnet:?xt=urn:btih:4A8B8AB6155529E1B0C90675195D8DB5A602C23A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:4A8B8AB6155529E1B0C90675195D8DB5A602C23A
 ```bash
 magnet:?xt=urn:btih:5B2614E06F86739EE497A95F1B0B82747954DA8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +128,8 @@ magnet:?xt=urn:btih:5B2614E06F86739EE497A95F1B0B82747954DA8C
 magnet:?xt=urn:btih:753197BFC4B4455429CF4A415E5188E1F3B31DFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:753197BFC4B4455429CF4A415E5188E1F3B31DFD
 ```bash
 magnet:?xt=urn:btih:B6BFA2E786B454F1012B6766E082D31239CB1656
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:B6BFA2E786B454F1012B6766E082D31239CB1656
 magnet:?xt=urn:btih:C83688024A0EF1809E2AC69AA4759D9145FE00D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:C83688024A0EF1809E2AC69AA4759D9145FE00D7
 ```bash
 magnet:?xt=urn:btih:3778126B15E0FB0EDD554E57AAB89D3615A49188
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:3778126B15E0FB0EDD554E57AAB89D3615A49188
 magnet:?xt=urn:btih:9ED819ADCF4AC92FEE8CCFEB77ECCB4C0ACED9EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:9ED819ADCF4AC92FEE8CCFEB77ECCB4C0ACED9EE
 ```bash
 magnet:?xt=urn:btih:155A60D9DE8FFC525CD098D938E2538E2D0ECFE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:155A60D9DE8FFC525CD098D938E2538E2D0ECFE7
 magnet:?xt=urn:btih:63816882C8B3C9EBDFB834579E90C1AA79EB08BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:63816882C8B3C9EBDFB834579E90C1AA79EB08BE
 ```bash
 magnet:?xt=urn:btih:DA862598C11E4A7303AAF88FE2034DD0BD88E393
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:DA862598C11E4A7303AAF88FE2034DD0BD88E393
 magnet:?xt=urn:btih:6B55D4F29A802AAF6A97C57BFB4B3CDCD4879FC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:6B55D4F29A802AAF6A97C57BFB4B3CDCD4879FC5
 ```bash
 magnet:?xt=urn:btih:24DA3F15C7B02691680AEA0A544DA03DCCDCC249
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +395,8 @@ magnet:?xt=urn:btih:24DA3F15C7B02691680AEA0A544DA03DCCDCC249
 magnet:?xt=urn:btih:38517AD337504E4FEDCCC0D95A6262B88F9B79BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:38517AD337504E4FEDCCC0D95A6262B88F9B79BD
 ```bash
 magnet:?xt=urn:btih:9A0031FCED16AC82DA28958F49CEFCB144E95F38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +447,8 @@ magnet:?xt=urn:btih:9A0031FCED16AC82DA28958F49CEFCB144E95F38
 magnet:?xt=urn:btih:24497EDC79FB4741FE42C5C6587F98AF195BDDA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +472,8 @@ magnet:?xt=urn:btih:24497EDC79FB4741FE42C5C6587F98AF195BDDA7
 ```bash
 magnet:?xt=urn:btih:B14D11D7F20541B95EEF24698ACEC389B818D3E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +501,8 @@ magnet:?xt=urn:btih:B14D11D7F20541B95EEF24698ACEC389B818D3E7
 magnet:?xt=urn:btih:B0AE4C3A7CF1C0B00BCF42FBE80019BC281EE657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +527,8 @@ magnet:?xt=urn:btih:B0AE4C3A7CF1C0B00BCF42FBE80019BC281EE657
 magnet:?xt=urn:btih:48D518D91FAE1BF28F9426FD5CEDF6773C06F119
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:48D518D91FAE1BF28F9426FD5CEDF6773C06F119
 ```bash
 magnet:?xt=urn:btih:CC574480C8E262EE99255F8C54572AA80E533355
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +581,8 @@ magnet:?xt=urn:btih:CC574480C8E262EE99255F8C54572AA80E533355
 magnet:?xt=urn:btih:ED1AA31F8D90724E3E3C5945AF728111158FF195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:ED1AA31F8D90724E3E3C5945AF728111158FF195
 ```bash
 magnet:?xt=urn:btih:6E6BB2506D85D8C9DC34EC33D50234BB6EFD42FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +634,8 @@ magnet:?xt=urn:btih:6E6BB2506D85D8C9DC34EC33D50234BB6EFD42FA
 magnet:?xt=urn:btih:BC3E02E489CACF4F66D920981A30E295639B3455
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +659,8 @@ magnet:?xt=urn:btih:BC3E02E489CACF4F66D920981A30E295639B3455
 ```bash
 magnet:?xt=urn:btih:5BBBBB42B0E91B36E7CA79A45F35664EB0C3DB06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,31 +686,7 @@ magnet:?xt=urn:btih:5BBBBB42B0E91B36E7CA79A45F35664EB0C3DB06
 magnet:?xt=urn:btih:97C0891F3EAF14493118DA8E1B07A4573584A99A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031566   (651240) от 04.07.2016
-
-Книжная серия | Вкусно. Быстро. Доступно [37 книг] (2006-2014) [PDF, DJVU] [Обновляемая]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приготовить завтрак, обед, ужин вкусно и быстро? Легко! Серия «Вкусно. Быстро. Доступно» поможет вам приготовить вкусные и разнообразные блюда без особых усилий! Следуя подробным инструкциям с пошаговыми фотографиями, вы сможете воспроизвести даже самое сложное блюдо быстро и легко!
-
-Закуска и выпечка, блюда из мяса и рыбы, десерты и напитки, традиционные или оригинальные (   Читать дальше...   )Жанр: КулинарияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1529ED11B5E6BDF37C9A992F9F6E4A7761D55668
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

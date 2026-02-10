@@ -22,6 +22,8 @@ D'Arcangelo - Somewhere In Time (2018) Suction Records [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:059662CF97259A9C6226461FFBC7A90993D0806B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Andrea Bellucci (Red Sector A, Subterranean Source, Son-Dha) - Collection 4 Rele
 ```bash
 magnet:?xt=urn:btih:18C2A95ABFC35AF732FD8EAEEBE05D289CD153B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - A Light, A Glimmer (2018) Polar Seas Recordings [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:4CDFF559DDF28AF3951B059886CBE37914EDEEC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Sensualist Future Jazz Soft Chillout Lounge (2015) [MP3|320 кб/с]<Downte
 ```bash
 magnet:?xt=urn:btih:DBA009378100E80B4C19B4046B89DF7F9DB67F05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Orient Chill Out, Exotic Secrets 2K16 (2016) [MP3|320 Kbps] <Downtempo, Chi
 magnet:?xt=urn:btih:9F9E2D0C7608C87660B3098D91BC001F57089695
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Chilled House (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House
 ```bash
 magnet:?xt=urn:btih:73E7A6086A86D3E1A27D89FB966E0A67EA297C62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ VA - Erotic Affairs Porn Lounge Sensations (2012) [MP3|320 кб/с]<Downtempo, L
 magnet:?xt=urn:btih:A72AB35C6D71B4DAFCE5BA2A427510540A930912
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +231,8 @@ New wave - группа, сформированная в 1979г., Ливерпу
 magnet:?xt=urn:btih:B3B9AB49722041F9EFA2657408693161A64EA966
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +259,8 @@ Sigur Rós (Sigur Ros) - Sigur Rós presents Liminal Sleep (2019) Krúnk [FLAC|L
 ```bash
 magnet:?xt=urn:btih:BA61FCA94FCC53309EFBEF3ED78084F998488BD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +295,8 @@ VA - Sax On the Beach (Groovy Jazzy Chillout and Lounge Music) (2012) [MP3|320 �
 magnet:?xt=urn:btih:F60B9C589080D8C91A47F36DA7CB064F7DA94185
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +330,8 @@ Model Kaos - Ghost Market (2012) [FLAC|Lossless]<synth gothic>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +358,8 @@ Glasgow's Calum MacRae records IDM and experimental club music under the name La
 ```bash
 magnet:?xt=urn:btih:D37D8586E6BDE00CC9A15053D3BCDDF581B6FE3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +388,8 @@ VA - Soothing Relaxation Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:47A80A0DB2C4F8E2558ECF6E8BEF868E479E9A41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +416,8 @@ VA - Summer Memories Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:4630D5FADF16BE9E80C36AF4CEDFB0D676C8547F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +446,8 @@ Nero - Between II Worlds (2015) [MP3|320 кб/с]<Drum & Bass, Dubstep, House>
 magnet:?xt=urn:btih:EAA3ABA4AB401CA6A4F6252B8E761217DB3862AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +474,8 @@ VA - Global Underground: Adapt (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House,
 ```bash
 magnet:?xt=urn:btih:F7A2DDA155876A60772B53D0AB0A54A62D426A3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +504,8 @@ VA - Ori Uplift & Kevin 3Ngel - Uplifting Only 235 (2017) [MP3|320 Kbps] <Uplift
 magnet:?xt=urn:btih:FC21A01AD96DA8A279E984767E8376FF655AA2D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +532,8 @@ VA - Mind Technologies Vol. 5 (2015) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:26361FA72248563A329AC2A702D98CC80E76F6E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +562,8 @@ VA - Trance Anthems 7 (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:92D1073AB98FE2B513451F4F263B0B469AEAA640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +590,8 @@ VA - Trance Revolution 8 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:0657F88E77FE13FD30BED8412BEB00124DAA1A16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +620,8 @@ VA - Suanda Spring Vol.5 (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:B6E7CAD4AA3A34A000858BF61EC6579D77328FCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +648,8 @@ VA - Autumn Impressions: Hottest Lounge and Chillout Tracks (2016) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:D4A7F6584625D0FD43DB6913DFD35F1978CFCB0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +678,8 @@ VA - Katermukke Playground XVI (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hou
 magnet:?xt=urn:btih:E34A1452AE7E16D4BD616D77BBB1F822A3BDC2A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +706,8 @@ Brazilian Lounge Project, DJ Infinity Night, Sexy Chillout Music Cafe & Ministry
 ```bash
 magnet:?xt=urn:btih:A84525FC847A117D9422D943E618F5F9275C4449
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -688,6 +736,8 @@ Sex Music, Slow Sex Music, Music For Sex - Relaxing Instrumental Music For Sex (
 magnet:?xt=urn:btih:CDC7F401D8355F53F5FD2ABDA667774356344E79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -714,6 +764,8 @@ S.K.E.T. - Collection 4 Releases (2005-2017) Hands Productions [FLAC|Lossless]<R
 ```bash
 magnet:?xt=urn:btih:7B4B65D656153E3351017531CC955CF845BC49F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Champions of Anteria – тактическая стратегия, расска
 magnet:?xt=urn:btih:631D03DD4DB7E3CEA46C243170D303EA7BA79F15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Space Clash: The last frontier / Космические войны: Послед
 ```bash
 magnet:?xt=urn:btih:5056D403F593D17322ADC1708BE20C4CEC636B0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.3.0/dlc) Repack xatab
 magnet:?xt=urn:btih:33117C2ADCEBC42FB487D3846D902024D4FD9742
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ StarCraft: Remastered (2017) [Ru/Multi] (1.23.10.12409) Repack Necros
 ```bash
 magnet:?xt=urn:btih:5D1F6061F2F783F64F857B3C1BA9AECBC817058F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Warcraft Trilogy (1994-2002) [Ru/En] (1.2/2.02/1.26a/dlc) Repack Necros
 magnet:?xt=urn:btih:F1758A42BFF845B69E0FF64E440D4DC5CE1E7EA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Imperialism (1997) [Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:8367512C24ECC4F58717596009EF6AB0ADF438E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Dune 2000 - стратегия в реальном времени с видом 
 magnet:?xt=urn:btih:4236E5D1AC6EE80C9A7F8F0A7E7E339B0C75E21D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.3.0/dlc) License RELOADED
 ```bash
 magnet:?xt=urn:btih:D16A72B0617859DE1919867789774AA25EE9900C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Ashworld - мир выжженных солнцем земель, где вое�
 magnet:?xt=urn:btih:9D372B3734EB2385730DD5B1736FE3C75E793393
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Submarine Titans / Морские Титаны: Зов Глубин (2000) [En] 
 ```bash
 magnet:?xt=urn:btih:854A65829FAB9D92A7BA7BE906045F855BC48376
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Disciples 2 Gold (2005) [En] (2.02/dlc) License GOG
 magnet:?xt=urn:btih:DD60C6C3624F8356ECD5955D85529055B3536A65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Civilization 2: Test of Time [Ru] (P) 1999
 ```bash
 magnet:?xt=urn:btih:BF7FA97A2631BACF2C4B79CD3CD75A75CAD676CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Age of Empires II HD Edition – переиздание стратегии 1999 
 magnet:?xt=urn:btih:239FA7914221E2514606FC6C7A86C9CEE90D7EBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Disciples Sacred Lands (1999) [Ru/En] (1.1) License GOG [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:7023EAE2F6C0BD840731B3B8DEB49D4D0F68BDF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Desperados III — это хардкорная тактическая игра �
 magnet:?xt=urn:btih:3ADE5C7387AB8F96EEBC3E0A220883AAAB70C1B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ StarCraft - легендарная стратегия в реальном вре
 ```bash
 magnet:?xt=urn:btih:9B9D617053BD671BD9981C79427405ED48797CD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Druidstone: The Secret of the Menhir Forest (2019) [Ru] (1.2.12) Repack Other s
 magnet:?xt=urn:btih:B1F2D708AD1DA02954FE0548E5F7AD4CCC2737FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Empire of Sin — новая стратегическая игра от Romero G
 ```bash
 magnet:?xt=urn:btih:B03D4800F33B9F8BC7C552B6695897BE457D5EA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Master of Magic (1994) [Multi] (1.05.02/dlc) License GOG
 magnet:?xt=urn:btih:1F3206A5DEF9A8F182377D147C6330FE89277590
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Space Rangers 2: Reboot / Космические рейнджеры 2: Доми�
 ```bash
 magnet:?xt=urn:btih:B8B5C3BAA501CD139F4FF991F41749B1C5DC718E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Star Wolves 2 (2006) [Multi] (1.01pl) License GOG
 magnet:?xt=urn:btih:EA00AD5EECB8B985EDF75C666005EE1BCF9E4970
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Warcraft 3: Reign of Chaos - стратегия в реальном времен
 ```bash
 magnet:?xt=urn:btih:C6288345F8C81BF4C179DBDFF079FAE0C089AF56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Warcraft I: Remastered (2024) [Ru/Multi] (1.0.0.2137) Repack Necros
 magnet:?xt=urn:btih:A83C71272CF92D6012AAAEF9FCC24B5D9D9468F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Stellar Monarch (2016) [En] (1.48/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:586BF505F4F81694D41C278642EECC92E374F2CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Warcraft II: Remastered (2024) [Ru/Multi] (1.0.0.2157) Repack Necros
 magnet:?xt=urn:btih:B809DCF41679B955474790ABAC225499576570A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Total War: Rome II (2) (2014) [Ru/En] (2.4.0.11535779/dlc) Repack dixen18 [Emper
 ```bash
 magnet:?xt=urn:btih:C60B9C3422C76856E5C908A43575741622510DC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

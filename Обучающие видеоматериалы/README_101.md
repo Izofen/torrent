@@ -19,6 +19,8 @@ Designcode, SOURASITH PHOMHOME | UI Design Android Apps in Figma (2023) WEB-DL [
 magnet:?xt=urn:btih:6F9C5AA13692B711E9FBC7A81D2E4041A408C2A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Refactoringui, Adam Watan | Refactoring UI – Complete Package (2023) WEB-DL [E
 ```bash
 magnet:?xt=urn:btih:85DD08480BD9CEB137EA29E56502D1C194F2231E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Proprofiling, Алексей Филатов | Профайлинг для пра
 magnet:?xt=urn:btih:515CB08B70D3A4670C0199756F74D97CDBA2678E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:515CB08B70D3A4670C0199756F74D97CDBA2678E
 magnet:?xt=urn:btih:0A4F8932B091A06C1100F92A556515EC55BAD884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:0A4F8932B091A06C1100F92A556515EC55BAD884
 ```bash
 magnet:?xt=urn:btih:23952FF18459D316F64146B8F0A3B74DFA9658CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:23952FF18459D316F64146B8F0A3B74DFA9658CA
 ```bash
 magnet:?xt=urn:btih:2DA5575E2F216F330ED3C1F0A3F995830D7832AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ Kalacheva School, Анна Цымбал | Практическая линогр�
 magnet:?xt=urn:btih:EE9A180C7528E0E514D7A3760C317DA1CD25811C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ Udemy, Shahzad Ahmad | Magical Butterfly FX in Houdini (2022) WEB-DL [EN, RU]
 magnet:?xt=urn:btih:B88F45D63C01315B68529B5A1117E821D4E5F82E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:B88F45D63C01315B68529B5A1117E821D4E5F82E
 ```bash
 magnet:?xt=urn:btih:6930C732450FC7CF1BEA65364162227B122F7E84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ Pandas — одна из самых мощных библиотек для на�
 magnet:?xt=urn:btih:16E286811917EB7A601C6B39EFEC040D0006C04B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ Aaron Blaise | How to Draw Wolves, Coyotes & Foxes (2020) WEB-DL [AD] [EN / EN S
 ```bash
 magnet:?xt=urn:btih:6362D08E37F879DBEC600372071C0D4CB736E62D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +328,8 @@ Mskcinemaschool, Вадим Панасюк | «Кино на коленке 3.0�
 magnet:?xt=urn:btih:66F74F03CEC72DB647B6D613D17A99456F59F423
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +357,8 @@ magnet:?xt=urn:btih:66F74F03CEC72DB647B6D613D17A99456F59F423
 magnet:?xt=urn:btih:D08C112207ED8BA3401F071F319B7D5F08E570C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ The Ultimate Guide to 3D Printing: Beginners Bootcamp — это идеальн�
 ```bash
 magnet:?xt=urn:btih:651C54F0E0F516DFA8421D05FAE0B2E6D34949B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +410,8 @@ Udemy, Raffi Bedross | Intro to Hair and Fur in Houdini 19.5 (2022) WEB-DL [EN, 
 ```bash
 magnet:?xt=urn:btih:14F182063E6E0DB16E7F0009E4C772D731475F43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +440,8 @@ magnet:?xt=urn:btih:14F182063E6E0DB16E7F0009E4C772D731475F43
 magnet:?xt=urn:btih:468AABA23D3635553896814122FDCB4D1D5C91A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +465,8 @@ magnet:?xt=urn:btih:468AABA23D3635553896814122FDCB4D1D5C91A7
 ```bash
 magnet:?xt=urn:btih:7AD927598B8F28C61CE31BB37A52292094697E6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +495,8 @@ Mikulishnadesign, Наталья Мандругина | Эстетика инт�
 magnet:?xt=urn:btih:49A70FD1CA58414484C46BCC437A18F5FDF857CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +523,8 @@ magnet:?xt=urn:btih:49A70FD1CA58414484C46BCC437A18F5FDF857CD
 ```bash
 magnet:?xt=urn:btih:E42C382B1C67F7672A242BE3E234972F527D1F69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +553,8 @@ Proprofiling, Алексей Филатов | Психотипы в профай
 magnet:?xt=urn:btih:9920E756FD8886F2F10CF2F08D5B2DDF5B58C3BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +579,8 @@ Udemy, Stephen Pearson | Complete Guide to Dynamic Paint in Blender (2021) WEB-D
 magnet:?xt=urn:btih:E65F3B285315A5868801BEBDC07F37F3592E4856
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +604,8 @@ Udemy, Stephen Pearson | Beginners Guide to the Particle System in Blender 2.8 (
 ```bash
 magnet:?xt=urn:btih:95058FBEE5E6595703EF7390A32AB846A7BB72E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +633,8 @@ Udemy, Stephen Pearson | Rigid Body Simulation Guide in Blender 2.8 (2021) WEB-D
 magnet:?xt=urn:btih:E38F472A0DC238A8A4F8919767E4B51AC7880577
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +660,8 @@ Controforma.school, Михаил Шишкин, Анастасия Актерск
 magnet:?xt=urn:btih:1B6B551298317C40E31C2CFA10B81F6A03AAFECD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +686,8 @@ Udemy, Stephen Pearson | The Cloth Simulation Guide in Blender 2.8 (2021) WEB-DL
 ```bash
 magnet:?xt=urn:btih:6E6BF5619E1EE65095444D08BDD3443DB4039C3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -665,6 +715,8 @@ Udemy, Wealth Whispers | ChatGPT Secrets | ChatGPT Mastery | ChatGPT Masterclass
 ```bash
 magnet:?xt=urn:btih:32F5CDA5E9BE74BEB1036727873DA5098E88086E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Sky Force 2014 v1.41 [Ru]
 magnet:?xt=urn:btih:3876A99DE3182CE0D4D2ACCEE7949ECA28453AE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Jetpack Joyride v1.34.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:F6BAB8E91E384E4868A7228E467EF41A5EB29086
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ FunEasyLearn это лёгкий и весёлый новый способ вы�
 magnet:?xt=urn:btih:AED4ABE5D94130604A5A74EAD31D60583CD547DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Real Monster Fishing 2020 v0.1.178 [Ru/Multi] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:55A5B720C836255F212C107729CF24A605AD7C3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ AndDocPro - PDF & DJVU Reader 1.0.7 [Ru/Multi]
 magnet:?xt=urn:btih:ACF9FCCCFE3A5A18B45AE03EC3D38BDE06608899
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Ultimate Guitar Tabs & Chords - мобильная версия крупнейш
 ```bash
 magnet:?xt=urn:btih:1CA04746E224051E1F6B009AC86953CE676D4D38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Garmin: City Navigator North America NT 2019.30 [En]
 magnet:?xt=urn:btih:79DC92BC399541BA90330175ED05A5DCAD9F9895
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Garmin: City Navigator Middle East and North Africa NT 2019.10 [En]
 ```bash
 magnet:?xt=urn:btih:C6C8464450F17419250BA9913C0DFEDC481BF74C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Garmin: City Navigator South America 2019.20 [En]
 magnet:?xt=urn:btih:90BD288A3D21DA725DB6983CD57E29C9CB5E2636
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Plague Inc – Редко, когда мобильные проекты выхо
 ```bash
 magnet:?xt=urn:btih:43B5C29D352CAA951D532CA54180D18FA57539D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ AnyBalance+ 1.1.220 [Ru] Full
 magnet:?xt=urn:btih:B7393B55E22059F2123CE62D2BB6CB30F3E78193
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Photo Collage Editor v2.16 Ad-Free [En] - Фото коллаж редактор
 magnet:?xt=urn:btih:585FB173AFE53B570ADB4C74059A83FD9AD0C9B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ utomatic Call Recorder — программа для записи входящи
 ```bash
 magnet:?xt=urn:btih:B719143594BD11B8E55AF71004CE4F66E5286E0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Speak And Translate v3.1.0.1 [Ru/Multi]
 magnet:?xt=urn:btih:7E2D920EC78E8B9B284905C2788DFC619CA93A67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ RONTLINE COMMANDO 2 - Продолжение военного экшена, пр
 ```bash
 magnet:?xt=urn:btih:7C46F1D2968E03D640221158CF7C42795ADABA62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ SignalCheck Pro - Приложение расписывает всё в мель
 magnet:?xt=urn:btih:41162B4D46E4B679BED3A860EF5F7F32A307D0A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:41162B4D46E4B679BED3A860EF5F7F32A307D0A7
 ```bash
 magnet:?xt=urn:btih:026F221385B86D4F3FDC6A256622281B2F4EDC7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Among Us – это потрясающая экшен-игра, в которо�
 magnet:?xt=urn:btih:822DEA883B78419B3F20978A5C337E32B56EAB08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ Brawl Stars v30.242 [Ru]
 magnet:?xt=urn:btih:AE9DF00040E333512283F6435D5ADECFCD46C7CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ GPS Navigation & Offline Maps Sygic - ещё одно полезное прил�
 ```bash
 magnet:?xt=urn:btih:25503B8360DDDDCF349D81B107D391CACA68B0DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ Warlords of Aternum v1.11.0 [Ru]
 magnet:?xt=urn:btih:E68887AA0922500B03850249BE1F14C0CB800B25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ RocketENG v1.5.4 [Ru/En]
 magnet:?xt=urn:btih:31C35B5D9ED434B7FCF02A07CF29F074BF1B81F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ Mandala ColoringBook v1.2 [Ru/Multi] - раскраска
 ```bash
 magnet:?xt=urn:btih:4F806EC9832196C5BA7CEA92534F707F709A1E76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ magnet:?xt=urn:btih:4F806EC9832196C5BA7CEA92534F707F709A1E76
 magnet:?xt=urn:btih:5471B1D4EA6F6A44FF79B847A7E5D905C953B7BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ MacroDroid, программа которая поможет нам автома
 magnet:?xt=urn:btih:65CEEACAEDE4CCB84AE619D5EA81C4AC8966D33F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:65CEEACAEDE4CCB84AE619D5EA81C4AC8966D33F
 ```bash
 magnet:?xt=urn:btih:54FFAF4293505DCFA00B5925EB7273E4CCEE282A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

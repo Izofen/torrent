@@ -28,6 +28,8 @@ VA - Sgt. Pepper's Lonely Heart Club Band - Original Sound track (1978) [APE|Los
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -53,6 +55,8 @@ VA - Sgt. Pepper's Lonely Heart Club Band - Original Sound track (1978) [APE|Los
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +80,8 @@ VA - Sgt. Pepper's Lonely Heart Club Band - Original Sound track (1978) [APE|Los
 ```bash
 magnet:?xt=urn:btih:5C33D74117572A8722AEE131FAF51312D8EBB927
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -110,6 +116,8 @@ VA - Лучшая 200ка: Самая модная Русский (2012) [MP3|12
 magnet:?xt=urn:btih:65541BCB95EF0B11F92F31C5B82363AA1945C1E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +151,8 @@ VA - Grease (1991) [APE|Lossless]<OST/Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +176,8 @@ VA - Grease (1991) [APE|Lossless]<OST/Rock>
 ```bash
 magnet:?xt=urn:btih:336D6711ACE68838B4356757852D40A0B8FAC75B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +206,8 @@ Comodo Dragon - новый браузер, использующий послед
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +231,8 @@ Comodo Dragon - новый браузер, использующий послед
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +258,8 @@ Gas Guzzlers — динамичные захватывающие гонки на
 magnet:?xt=urn:btih:3D3DED5E3D1C78D049BDE7BB7B46A136873EAEDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +284,8 @@ magnet:?xt=urn:btih:3D3DED5E3D1C78D049BDE7BB7B46A136873EAEDA
 magnet:?xt=urn:btih:4F54A0CE3DA51FAAF89591600D2665426BDAEAA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +309,8 @@ magnet:?xt=urn:btih:4F54A0CE3DA51FAAF89591600D2665426BDAEAA6
 ```bash
 magnet:?xt=urn:btih:99B8A635A163908E5C3500001775D1D5E4C8C033
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +339,8 @@ magnet:?xt=urn:btih:99B8A635A163908E5C3500001775D1D5E4C8C033
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +364,8 @@ magnet:?xt=urn:btih:99B8A635A163908E5C3500001775D1D5E4C8C033
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ magnet:?xt=urn:btih:99B8A635A163908E5C3500001775D1D5E4C8C033
 magnet:?xt=urn:btih:B49AE3DE72A5E2FBED1FCBC2BA02A94B8A49D8FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +422,8 @@ magnet:?xt=urn:btih:B49AE3DE72A5E2FBED1FCBC2BA02A94B8A49D8FF
 ```bash
 magnet:?xt=urn:btih:48D10343B85BF18C170ABD3BDC15BB206E340D7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +453,8 @@ magnet:?xt=urn:btih:48D10343B85BF18C170ABD3BDC15BB206E340D7B
 magnet:?xt=urn:btih:94202D07AA1A8C76AB0EE62013C0E946DE46D118
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +478,8 @@ magnet:?xt=urn:btih:94202D07AA1A8C76AB0EE62013C0E946DE46D118
 ```bash
 magnet:?xt=urn:btih:B9D3FE8DB97DB6273A51F343DC6EB905E91450C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +505,8 @@ magnet:?xt=urn:btih:B9D3FE8DB97DB6273A51F343DC6EB905E91450C6
 magnet:?xt=urn:btih:B71AF9B839E0657596AFB337083A3042C70D4EE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +530,8 @@ magnet:?xt=urn:btih:B71AF9B839E0657596AFB337083A3042C70D4EE1
 ```bash
 magnet:?xt=urn:btih:1A4FE95F45034E393B90DD8D76911C2A9B17928E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +559,8 @@ Grml 2012.5 (инструментарий системного админист�
 magnet:?xt=urn:btih:147104000C33C8863063102D2CD5A87FFA0354B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +584,8 @@ magnet:?xt=urn:btih:147104000C33C8863063102D2CD5A87FFA0354B3
 ```bash
 magnet:?xt=urn:btih:99119A7742C540A170CA476B4AC374C248753008
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +612,8 @@ magnet:?xt=urn:btih:99119A7742C540A170CA476B4AC374C248753008
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +637,8 @@ magnet:?xt=urn:btih:99119A7742C540A170CA476B4AC374C248753008
 ```bash
 magnet:?xt=urn:btih:C1807B0C37B1011EBBE16D2E069E34529899202D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +666,8 @@ AIDA64 является мощным средством для идентифи�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +692,8 @@ AIDA64 является мощным средством для идентифи�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +717,8 @@ AIDA64 является мощным средством для идентифи�
 ```bash
 magnet:?xt=urn:btih:AEC0C02DD1BD46D4663ECCF6325E0844C244B73E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

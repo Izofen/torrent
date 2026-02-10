@@ -20,6 +20,8 @@ Mold3d academy, Gio Nakpil | Master organic Modeling (2017) PCRec [EN, RU]
 magnet:?xt=urn:btih:0A2416AB1DF5F9048C6354868198D20D841330D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ The Gnomon Workshop, Perry Leijten | Creature Rigging for Production (2016) PCRe
 ```bash
 magnet:?xt=urn:btih:6ED2F03ADA8D70465550669DD9296BDC855D7500
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ VFX learning, Amin Sadeghvand | Advanced Facial Rig in Maya 2018 (2018) PCRec [R
 magnet:?xt=urn:btih:9298BD9900B0A1D3828B11BF1DB021261EDE27D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Pluralsight, Winston Powell | Game Character Rigging Fundamentals (2017) PCRec [
 ```bash
 magnet:?xt=urn:btih:B8C28837CFC885F195DF43569F55D32D4A5FFD31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Mastering V-ray это элитный учебный курс для профе�
 magnet:?xt=urn:btih:D9F80962BC70DEF1E9D47BC97928F0B50761B292
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Gumroad, Daniel Thiger | Rock Creation Techniques Part 2: Surface Detailing (201
 ```bash
 magnet:?xt=urn:btih:B09B2832A2DFB50CC3DCB361ECB34841E3670E54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:B09B2832A2DFB50CC3DCB361ECB34841E3670E54
 magnet:?xt=urn:btih:41093BBB0039E2D52ED690A4575F1BBF0FE4CB7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ Betonmaster, Архипов Кирилл | Бетон 2.0 (2021) WEB-DL [Пак�
 magnet:?xt=urn:btih:2F3701477F515EF82694C8D9869A6AFE57A60612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ Houdini стал популярным инструментом в индустр
 magnet:?xt=urn:btih:4FEF44BBD6326793CA25525E08FBD9F5E0CFC319
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ James Q Quick | React и Serverless - Fullstack разработка / React and
 ```bash
 magnet:?xt=urn:btih:F70AFAF5EE732E6C870BE5D1914ECA351659DE15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:F70AFAF5EE732E6C870BE5D1914ECA351659DE15
 ```bash
 magnet:?xt=urn:btih:48E89C87BD61244E2C66E10A74D3678F75276269
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:48E89C87BD61244E2C66E10A74D3678F75276269
 magnet:?xt=urn:btih:DAE57FE87D12702FA4475A60DDD5E5F9B5B41596
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:DAE57FE87D12702FA4475A60DDD5E5F9B5B41596
 ```bash
 magnet:?xt=urn:btih:91695D866F0DD162920E1E2B17A36E8AE710D1CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:91695D866F0DD162920E1E2B17A36E8AE710D1CE
 magnet:?xt=urn:btih:F7ACFABC39D96A9601BC9C10349CB6A23610FD94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ Troy Miller | Capture One Deep Dive II (2022) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:8929E4B3E82BF2BB8B2B6D771D7C2ADE41F21531
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ Coursera | IBM AI Engineering Professional Certificate (2021) PCRec [EN]
 magnet:?xt=urn:btih:3298910D448D2DF2C23EC4118EAF9106F4BB9AAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ CGCircuit, Matt Skonicki | Scratch to Substance Volume 2 (2018) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:82A9251D63F8C08134782D7E2D1B327CCD2E6BC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ OTUS | CI/CD на AWS, Azure и Gitlab (2020) PCRec
 magnet:?xt=urn:btih:7DCB75E6055A3A75860B19A60262FBA3054D05B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ Udemy | The Ultimate C# and Unity course for beginners (2021) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:C82060AE2B75E3DA11822C04A19A7F52E1B3E4AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:C82060AE2B75E3DA11822C04A19A7F52E1B3E4AF
 ```bash
 magnet:?xt=urn:btih:D1D0B4E655A6214AE316DAA05A15739BB3F24B92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ magnet:?xt=urn:btih:D1D0B4E655A6214AE316DAA05A15739BB3F24B92
 magnet:?xt=urn:btih:FAC3C86C3AD957B74BD3A68410E4F5BE0EC4F1C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ Allan McKay | FX Technical Director Transformation Module 15 (2015) PCRec
 magnet:?xt=urn:btih:F31B4E0D6E2B7ED817C9AC1F9FAE89BE77F7F1A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ Pluralsight, Joe Abraham | Cisco Certified CyberOps Associate (CBROPS 200-201) (
 magnet:?xt=urn:btih:2D6CB4E3233A2EE7A40B2A1480E7744800C74710
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ Python-разработчик создаёт бэкенд сайтов: мозг
 ```bash
 magnet:?xt=urn:btih:33C59DE48FF704662B7FDD03CD45D249C9E676FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +678,8 @@ OTUS | Fullstack разработчик JavaScript (2019) PCRec
 magnet:?xt=urn:btih:2131590282B75514350D1AC7EF50FE91A58B1D80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:2131590282B75514350D1AC7EF50FE91A58B1D80
 ```bash
 magnet:?xt=urn:btih:5020513749563599AB8DF7097A7F1FC2A42C5AD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

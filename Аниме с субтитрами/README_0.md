@@ -19,6 +19,8 @@ He пoлyчив paбoтy cвoeй мeчты пpи кopoлeвcкoм двope, мнo
 magnet:?xt=urn:btih:E134A72F00FA5E2483A5C7BBC04AE54B7F1AF0E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Kizetsu Yuusha to Ansatsu Hime / The Shy Hero and the Assassin Princesses / Об
 magnet:?xt=urn:btih:A57199210AB537B99DE9D92F33EE590093C9B063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Yuusha Party o Tsuihou Sareta Shiro Madoushi, S Rank Boukensha ni Hirowareru / �
 ```bash
 magnet:?xt=urn:btih:58DD2027D237D81A59D35A7B40A308803D2A62B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Sono Bisque Doll wa Koi o Suru 2 / My Dress-Up Darling 2 / Эта фарфоро
 magnet:?xt=urn:btih:0D79E261CD61ABAD0F355CDF72A74183C4528A9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Zutaboro Reijou wa Ane no Moto Konyakusha ni Dekiai Sareru / Betrothed to My Sis
 ```bash
 magnet:?xt=urn:btih:0EFF8149B53C3038DF64112E8B8E7C5DFC1EB05E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Sakamoto Days (2025) | Дни Сакамото [Часть 2] [2025, TV, 11 эп
 magnet:?xt=urn:btih:0F994DCAEB9CD30DA1F55417C8F85EB28535B65E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Muchuu sa, Kimi ni. | Captivated, by You | Других таких нет [2025,
 ```bash
 magnet:?xt=urn:btih:98C426E9238E336FD2E27403E672C929A94DBF03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou 2nd Season | Reborn as a 
 magnet:?xt=urn:btih:15F61C19B88CB357316A3B90D7A54D8C5B0B5CDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Tsuyokute New Saga | Стать сильнее! Новая сага [2025, TV, 1
 ```bash
 magnet:?xt=urn:btih:FDE6397D9F9323AA8FA53B8F9E9CFA07110E794C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Onmyou Kaiten Re:verse | Цикл оммёдзи: Перерождение [2025
 magnet:?xt=urn:btih:953DF960A019D84D7DA0978ABA09E198F9CE88CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Mikadono San Shimai wa Angai, Choroi. | Dealing with Mikadono Sisters Is a Breez
 ```bash
 magnet:?xt=urn:btih:F0872E831E1A4EDDAABD253DB12DBE69A1DC97EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Clevatess: Majuu no Ou to Akago to Shikabane no Yuusha | Clevatess | Клева�
 magnet:?xt=urn:btih:18D27BD1DB1F69F8F4264D6799D8152DC11BED69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Tsuihousha Shokudou e Youkoso! / Welcome to the Outcast's Restaurant! / Добр
 ```bash
 magnet:?xt=urn:btih:C47DA8F273302DDF6B9AD398ED4F2A272DD345F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Kanojo, Okarishimasu 4-1 | Rent-A-Girlfriend S4 P1 | Девушка на час 
 magnet:?xt=urn:btih:C47924BD32F444B6857FEA0CF7A6E7412E77CD50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Mattaku Saikin no Tantei to Kitara | Detectives These Days Are Crazy! | С ны�
 ```bash
 magnet:?xt=urn:btih:6A5FEA1FC9313FA8514C7616E3ED796186EBAF4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Necronomico no Cosmic Horror Show | Necronomico and the Cosmic Horror Show | К�
 magnet:?xt=urn:btih:9E1819B9A9ADC86ED8B1AF04A3A0C59047279FAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Food Court de, Mata Ashita. / See You Tomorrow at the Food Court / Увидим�
 ```bash
 magnet:?xt=urn:btih:3AEAFFD50AEDC6FF9F0B85D5520C130B12F90096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Sozai Saishuka no Isekai Ryokouki / A Gatherer's Adventure in Isekai / Путе�
 magnet:?xt=urn:btih:5E3DAB5DE13099CF5938DBE5E0FFAE8238D0B98F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Leviathan | Левиафан [2025, Web, 12 эп.] WEB-DL 1080p raw
 ```bash
 magnet:?xt=urn:btih:B2E3C5CE013948A0ADF78FC8D0B8A78C5B9711D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Inazuma Eleven: Reloaded – Soccer no Henkaku | Inazuma Eleven: Reloaded – Re
 magnet:?xt=urn:btih:84B51509407CDA0BC10BF1C9CC5AF242D4363D6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ OVA к аниме Kaiju No. 8Производство: студия Production I
 ```bash
 magnet:?xt=urn:btih:B51BF3D5F502E2BF89D9DC10654ED80C20E051C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ Kusuriya no Hitorigoto (2025) | The Apothecary Diaries (2025) | Записки �
 magnet:?xt=urn:btih:99AC3463BCB9696CF3205857C919F2EAE817DA35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ Lazarus | Лазарь [2025, TV, 13 эп.] WEBRip 1080 raw
 ```bash
 magnet:?xt=urn:btih:13A912096130EB8D42BB170D308523C2067133CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ Shirohiyo | Я белый свин-аристократ, ко мне верну�
 magnet:?xt=urn:btih:F942AD6A21229F6BCB884D0A43813E19D78401D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ Vigilante: Boku no Hero Academia Illegals | My Hero Academia: Vigilantes | Мо�
 magnet:?xt=urn:btih:1ED1901445C8D3BE570B0DAE4561A97EFFCF9B92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Classic Stars | Звёзды классики [2025, TV, 13 эп.] WEBRip 720p r
 ```bash
 magnet:?xt=urn:btih:C15A57CEA788B8B8AD503F79F272FD4A79158D3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

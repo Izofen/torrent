@@ -1,3 +1,29 @@
+###  Публикация: 1016652   (770231) от 14.05.2016
+
+Лев Вершинин | Русские идут! Почему боятся России? (2014) [PDF, DJVU, FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_770231.jpg" />
+</div>
+
+
+###  Подробнее
+
+«РУССКИЕ ИДУТ!» — в последнее время этот истерический вопль зазвучал снова, а утробный ужас и патологическая ненависть Запада к России разгораются с прежней силой, как в эпоху Холодной войны. Нашу Родину вновь обвиняют в «агрессивности» и «территориальных захватах» — дескать, всю свою историю мы только и делали, что запугивали, завоевывали и угнетали соседние народы. (   Читать дальше...   )Жанр: Публицистика, историяФормат: PDF, DJVU, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E670804A53C12D8E26F8DE31443B8318F3D07EF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 779897   (770255) от 23.04.2014
 
 Книжная серия | Политические расследования [19 книг] (2010-2013) [FB2]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:42F8B07E4FE7D22777A7CE37EC94C9B8B9AD5FC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:42F8B07E4FE7D22777A7CE37EC94C9B8B9AD5FC8
 magnet:?xt=urn:btih:7D31C1E657E9C7CCCB17758D4A9A1846DCF64630
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:7D31C1E657E9C7CCCB17758D4A9A1846DCF64630
 ```bash
 magnet:?xt=urn:btih:70685D7359704DCB2002109731035280171DF0F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:70685D7359704DCB2002109731035280171DF0F5
 magnet:?xt=urn:btih:AB968CE493756344872679A5AA99179365457E05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:AB968CE493756344872679A5AA99179365457E05
 ```bash
 magnet:?xt=urn:btih:4E65631DE0BE6C4BF34C17BD74381F5CB6BB15C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:4E65631DE0BE6C4BF34C17BD74381F5CB6BB15C1
 magnet:?xt=urn:btih:68228239041CDB2D64122F600968E64E8950EF85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:68228239041CDB2D64122F600968E64E8950EF85
 magnet:?xt=urn:btih:426698F6DD8458D97F57AD78CDBFE136B0D2C357
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:426698F6DD8458D97F57AD78CDBFE136B0D2C357
 ```bash
 magnet:?xt=urn:btih:172C8AEA7368AB776A1BD0E3C0DB9A9CBFD63B7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:172C8AEA7368AB776A1BD0E3C0DB9A9CBFD63B7E
 magnet:?xt=urn:btih:E695AA567F5A21990098EF26E8553062A96F77EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:E695AA567F5A21990098EF26E8553062A96F77EB
 ```bash
 magnet:?xt=urn:btih:18408FC17576C88B5B3873D1EFF80393739612F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:18408FC17576C88B5B3873D1EFF80393739612F5
 magnet:?xt=urn:btih:58561BA27CB88CD640D1E2DA1C7A05E08B82029F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:58561BA27CB88CD640D1E2DA1C7A05E08B82029F
 magnet:?xt=urn:btih:793D988689BD6730F04F7E7445C32223454887ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:793D988689BD6730F04F7E7445C32223454887ED
 ```bash
 magnet:?xt=urn:btih:5E196168E253C4BF0DFE72B7B475CEBF8B0F787E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:5E196168E253C4BF0DFE72B7B475CEBF8B0F787E
 magnet:?xt=urn:btih:BBFF586580F3F7D91B6EB869CEBD8E28417A032D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:BBFF586580F3F7D91B6EB869CEBD8E28417A032D
 ```bash
 magnet:?xt=urn:btih:89A5FC9C84C8380C40E71586003FD94E2EDCE6B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:89A5FC9C84C8380C40E71586003FD94E2EDCE6B1
 magnet:?xt=urn:btih:114A79797C2F0858C330698A80072033AFA65F0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ Alan Bridgewater и др. | Woodwork Step by Step (2014) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:FA294EB9B2B683B152D75F559AD956BB07A7596B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:FA294EB9B2B683B152D75F559AD956BB07A7596B
 magnet:?xt=urn:btih:E1989D734DE8D25DDFC1CE65A392BA3DFA896F50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:E1989D734DE8D25DDFC1CE65A392BA3DFA896F50
 ```bash
 magnet:?xt=urn:btih:A7FF4464772E097E7679B2415714638DDB3A9D5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:A7FF4464772E097E7679B2415714638DDB3A9D5B
 magnet:?xt=urn:btih:CAF1C24DF6D12C0F4479F858CA4955B3FFC4532D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:CAF1C24DF6D12C0F4479F858CA4955B3FFC4532D
 ```bash
 magnet:?xt=urn:btih:93CA9A5695070F4BA4BADA69D299522B023EC08A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:93CA9A5695070F4BA4BADA69D299522B023EC08A
 magnet:?xt=urn:btih:5088FC209A1D3CD2E984FBA92DF282EF4FB9CA7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:5088FC209A1D3CD2E984FBA92DF282EF4FB9CA7A
 ```bash
 magnet:?xt=urn:btih:61F50AB6CC3749CB8CA6FB2B59A5DBBD1C92F430
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +651,8 @@ KENWOOD| Великолепные блюда из мяса и рыбы (2014) [P
 magnet:?xt=urn:btih:F7E7A242019C18B7D21FE8AEB9D2A2BD2E5636A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:F7E7A242019C18B7D21FE8AEB9D2A2BD2E5636A4
 magnet:?xt=urn:btih:FB867B75632DE1A006B581AD6A1C47852C930E89
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125226   (772091) от 14.04.2017
-
-Т. Ухова,Л. Писарская | Лицевая рукопись Успенского собора (1969) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбом посвящен реликвии Успенского собора Московского Кремля - лицевой рукописи в драгоценном окладе, созданной русскими мастерами в начале XV века.Жанр: Иконография, иконописьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9500C2599105133EFB558C52E8F314075AB2FF6
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

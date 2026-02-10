@@ -19,6 +19,8 @@ Arise: A Simple Story (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.03]  [Ru/Multi]
 magnet:?xt=urn:btih:929BC3EF014D7402F1A7DE64E9AB6B8E6DB91FC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:929BC3EF014D7402F1A7DE64E9AB6B8E6DB91FC0
 ```bash
 magnet:?xt=urn:btih:F25E9D60DEFEB99205002392F8DE1AE4634B2326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ The King of Fighters XII (2009) [PS3] [EUR] 2.76 [Cobra ODE / E3 ODE PRO ISO] [U
 magnet:?xt=urn:btih:5CB8B43C7A2AA4B4B8E22FD854505650BCAEAF60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ My Fitness Coach Club дает возможность тонкой настро�
 magnet:?xt=urn:btih:9F5F4DCD12BA27243378FFC237A41BAE3AA5C9B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ SSX Blur [Wii] [PAL] [Multi 5] (2007)
 ```bash
 magnet:?xt=urn:btih:B1EB9E730F975009E5E959E38D26F5BC8DCFF889
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ GoldenEye 007: Reloaded — современное воплощение знам
 magnet:?xt=urn:btih:992DEDAB1FE6E5F7B7BD996DEAF9729AB1F00F00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Star Wars: The Force Unleashed II - Продолжение истории об �
 ```bash
 magnet:?xt=urn:btih:1B56BCE017B3C3372309D4CDC56CDC89DF26B943
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:1B56BCE017B3C3372309D4CDC56CDC89DF26B943
 magnet:?xt=urn:btih:280CB2AEC1D081CEA53D2658D138C7E945627C08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ The Walking Dead: Michonne - ответвление к популярному к
 ```bash
 magnet:?xt=urn:btih:51112A3E41D277109285AE03C53F2570324AB6EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Giana Sisters: Twisted Dreams – платформер, главная геро�
 magnet:?xt=urn:btih:D21B70A020537B5F137CB55F43CB891CAEDA3A25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Maximum Racing: Super Truck Racer [Wii] [NTSC] [ENG] (2011)
 ```bash
 magnet:?xt=urn:btih:AEA720E2D095CECCB6B5C5DCE54A9172F7D633B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ Shellshock 2 Blood Trails (2009) [PS3] [EUR] 2.42 [Cobra ODE / E3 ODE PRO ISO] [
 magnet:?xt=urn:btih:D4780F43A4D30A798C74C4C76A5BFE307C04197E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Need For Speed: Most Wanted U (2013) [WiiU] [USA] 5.3.2 [WUP] [Repack] [Ru]
 ```bash
 magnet:?xt=urn:btih:3788A58ECADA1768994BFFB6999C26C8FAD208B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Sid Meier's Pirates! позволит геймерам встать за шту�
 magnet:?xt=urn:btih:26654E0ED4B21171366EB782003A2E15C4BBFC4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (0
 ```bash
 magnet:?xt=urn:btih:B3037C3DB59C2A92F00C2E5F7FB37B3FA5CDF4FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Toukiden 2 (2016) [PS3] [JAP] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial / 1.
 magnet:?xt=urn:btih:539A044069FB5DDC5154A600011349FEEB106399
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Wangan Midnight (2007) [PS3] [JAP] 1.08 [Cobra ODE / E3 ODE PRO ISO]  [License] 
 magnet:?xt=urn:btih:25CD04456C9EC4C901135426ECE1B278FE6C56BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Vancouver 2010 (2010) [PS3] [EUR] 3.01 [Cobra ODE / E3 ODE PRO ISO]  [Unofficial
 magnet:?xt=urn:btih:49F9C38D66CB6A5CDDD812FBEA3D032FF2040BD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Flying Hamster - веселая аркада на PSP, где вы играет�
 ```bash
 magnet:?xt=urn:btih:6E27E90839238DA9544F67D2158A5FE3BCC59DA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:6E27E90839238DA9544F67D2158A5FE3BCC59DA3
 magnet:?xt=urn:btih:7116558DCCE23587EFADE0872DE52D377728C89E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:7116558DCCE23587EFADE0872DE52D377728C89E
 ```bash
 magnet:?xt=urn:btih:F53F5E5F3D0E896152848889B08A383F857BF72F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Grand Theft Auto V (2014) [PS4] [EUR] 5.05 [HEN] [License / 1.38] [Ru/Multi]
 magnet:?xt=urn:btih:7BDD18D5458E153028FE50FEFE35A611439DE1F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ METAL GEAR SOLID V: The Phantom Pain от Kojima Productions откроет но
 ```bash
 magnet:?xt=urn:btih:017A61E3724035630C92CB08584A8B79AB5794C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Insectocytes вторглись на вашу PSP! Удастся ли вам о
 magnet:?xt=urn:btih:B8A41511F68A1FC5DEA46463F8BC4C53934E5B4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Spider-Man: Friend or Foe [Wii] [NTSC] [ENG] (2007)
 magnet:?xt=urn:btih:F7DE8CD15875A4E1D7B9A64D753B540B31606A5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Disney Universe / Disney: Мир Героев (2011) [PS3] [EUR] 3.70 [Cobra ODE
 ```bash
 magnet:?xt=urn:btih:44F93BE488AEB3520D48FA94902629C7AE5CD2AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

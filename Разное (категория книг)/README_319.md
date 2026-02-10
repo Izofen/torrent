@@ -1,3 +1,29 @@
+###  Публикация: 1319926   (468894) от 19.08.2019
+
+Алексей Иванов | Рекламист в гостях у физика (2020) [PDF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если реклама – это «концентрированная суть продукта», то и обучение рекламной деятельности должно вестись в том же ключе: просто и коротко. Именно на этом принципе строятся международные бестселлеры одного из самых успешных рекламистов в России – Алексея Иванова. В названии его книги пиар недаром сопоставляется с точной наукой. Зачастую здесь действуют те же строгие (   Читать дальше...   )Жанр: Креатив, Привлечение клиентовФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B00128700C481A5EB4299ED6461C7FDEC32B2B07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940149   (468973) от 24.09.2015
 
 Максим Алешин | Гороскоп. Ваша финансовая совместимость (2015) [FB2, RTF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:274B54746C38A397677BBDA968154884763FA8A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:274B54746C38A397677BBDA968154884763FA8A3
 magnet:?xt=urn:btih:253772AA27AAD51F83C5C2FC9F8947924CD06A32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +103,8 @@ magnet:?xt=urn:btih:253772AA27AAD51F83C5C2FC9F8947924CD06A32
 magnet:?xt=urn:btih:DF7CD859D419DDFB490396FDE49B15FF6FC965E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +130,8 @@ magnet:?xt=urn:btih:DF7CD859D419DDFB490396FDE49B15FF6FC965E4
 magnet:?xt=urn:btih:845DB9099472AF93F83EA2D54B5BE5C378C95408
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +155,8 @@ magnet:?xt=urn:btih:845DB9099472AF93F83EA2D54B5BE5C378C95408
 ```bash
 magnet:?xt=urn:btih:704B8EC234DB3EBA9BCD5083826AFF55011E421D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +182,8 @@ magnet:?xt=urn:btih:704B8EC234DB3EBA9BCD5083826AFF55011E421D
 magnet:?xt=urn:btih:33D7C0758EB84D55A7ADCCCF57822B9E9C4649A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:33D7C0758EB84D55A7ADCCCF57822B9E9C4649A9
 ```bash
 magnet:?xt=urn:btih:06FFB7170D6C2907C8D9637A6B5743BD7AD5C93F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +234,8 @@ magnet:?xt=urn:btih:06FFB7170D6C2907C8D9637A6B5743BD7AD5C93F
 magnet:?xt=urn:btih:86B8AB8F83AB3C99F740FB54921FA3FDE266DD13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:86B8AB8F83AB3C99F740FB54921FA3FDE266DD13
 ```bash
 magnet:?xt=urn:btih:69E30C0CCF987A97A67A43F1C5AC313DC0C9B3BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:69E30C0CCF987A97A67A43F1C5AC313DC0C9B3BC
 magnet:?xt=urn:btih:ED54A3D83DEDBA20C1B1E4BADE90296BBC750EC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:ED54A3D83DEDBA20C1B1E4BADE90296BBC750EC4
 ```bash
 magnet:?xt=urn:btih:8D4CF35AF58E8696DC8F451A6FEF4155351C068E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +340,8 @@ magnet:?xt=urn:btih:8D4CF35AF58E8696DC8F451A6FEF4155351C068E
 magnet:?xt=urn:btih:42CA86ABFBF91DCA7D3E6AEC239BD54B7A82D40F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:42CA86ABFBF91DCA7D3E6AEC239BD54B7A82D40F
 ```bash
 magnet:?xt=urn:btih:097892B29219DFC53AB1A214D44AB3850F1D940F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:097892B29219DFC53AB1A214D44AB3850F1D940F
 magnet:?xt=urn:btih:E1E6BCFE72CEAC21114BC0348B457215CBFF5785
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:E1E6BCFE72CEAC21114BC0348B457215CBFF5785
 ```bash
 magnet:?xt=urn:btih:403A6E25418BFF1CD7992ADE31E74035EF598A7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +449,8 @@ magnet:?xt=urn:btih:403A6E25418BFF1CD7992ADE31E74035EF598A7C
 magnet:?xt=urn:btih:44CBA49284AA1EB1978E43B215B278188FC61CF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +477,8 @@ magnet:?xt=urn:btih:44CBA49284AA1EB1978E43B215B278188FC61CF7
 magnet:?xt=urn:btih:6ECDADB20C7341F0135BDCAA9441AC3A47B0CC75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +503,8 @@ magnet:?xt=urn:btih:6ECDADB20C7341F0135BDCAA9441AC3A47B0CC75
 magnet:?xt=urn:btih:64D9CEA900A0A7FDBADF3A98A0292F57C90C808D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +528,8 @@ magnet:?xt=urn:btih:64D9CEA900A0A7FDBADF3A98A0292F57C90C808D
 ```bash
 magnet:?xt=urn:btih:DC4EFDE6B4FCB6F1EC4CB2B94B4E342C77366016
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +556,8 @@ magnet:?xt=urn:btih:DC4EFDE6B4FCB6F1EC4CB2B94B4E342C77366016
 magnet:?xt=urn:btih:6B8174B9351DE6D481C41098635ABD2C8607BB07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +582,8 @@ magnet:?xt=urn:btih:6B8174B9351DE6D481C41098635ABD2C8607BB07
 magnet:?xt=urn:btih:23DD8AE88DFAB35BFC7B0A86B2430372BAB60332
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +607,8 @@ magnet:?xt=urn:btih:23DD8AE88DFAB35BFC7B0A86B2430372BAB60332
 ```bash
 magnet:?xt=urn:btih:69BE52691DAD22CDAC3B6F1ADE8B079A769979C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +636,8 @@ magnet:?xt=urn:btih:69BE52691DAD22CDAC3B6F1ADE8B079A769979C8
 magnet:?xt=urn:btih:220870F3B2DE682A2B52949604BF5DD19DE7C2B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +661,8 @@ magnet:?xt=urn:btih:220870F3B2DE682A2B52949604BF5DD19DE7C2B8
 ```bash
 magnet:?xt=urn:btih:2FE9828F1465C164C75E3AC89F5FD7A7D07FA07B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,29 +688,7 @@ magnet:?xt=urn:btih:2FE9828F1465C164C75E3AC89F5FD7A7D07FA07B
 magnet:?xt=urn:btih:771AC7519FA0B98C258F49544D2B18963B99AFE9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320242   (470930) от 18.08.2019
-
-Оливер Сакс | В движении. История жизни (2019) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оливер Сакс – известный британский невролог, автор ряда популярных книг, переведенных на двадцать языков, две из которых – "Человек, который принял жену за шляпу" и "Антрополог на Марсе" – стали международными бестселлерами. Оливер Сакс рассказал читателям множество удивительных историй своих пациентов, а под конец жизни решился поведать историю (   Читать дальше...   )Жанр: Классическая и профессиональная психология, Биографии и мемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB094B1825C988D1A8A2E47DBCC485304A112AF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

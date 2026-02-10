@@ -1,27 +1,3 @@
-###  Публикация: 1503533   (819380) от 19.10.2021
-
-100% Волк / 100% Wolf (2020) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наследник семьи оборотней Фредди Люпин отчаянно желает стать как предки. Но на 13-й день рождения его ждёт шок, ведь он оборачивается не волком, а… пуделем.Производство: Австралия, Бельгия /  Create NSW, Flying Bark Productions, LotterywestЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Алекс СтадерманнАктеры: Илай Суинделлс, Самара Уивинг, Джай Кортни, Руперт Дегас, Риз Дэрби, Джерра Райт-Смит, Джейн Линч, Адриан Дафф, Лорен Грэй, Акмаль СалеПеревод: Дублированный (Баритон)Язык озвучки: Русский, английскийСубтитры: Английские (Full)Продолжительность: 01:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BE4DC46B3FF1DFF9A57F254D40BF1E3E16FA419
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 882025   (820459) от 27.03.2015
 
 Книга жизни / The Book of Life (2014) BDRip [720p]
@@ -43,6 +19,8 @@ magnet:?xt=urn:btih:7BE4DC46B3FF1DFF9A57F254D40BF1E3E16FA419
 ```bash
 magnet:?xt=urn:btih:2F6652771B1F146FF9E169858A7C79612EFA6934
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +46,8 @@ magnet:?xt=urn:btih:2F6652771B1F146FF9E169858A7C79612EFA6934
 magnet:?xt=urn:btih:80A0AB1FB41EE20C25D3276932DD185A490E99B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +72,8 @@ magnet:?xt=urn:btih:80A0AB1FB41EE20C25D3276932DD185A490E99B5
 magnet:?xt=urn:btih:C656E2956F0D75DCE48910C1A6B6E509E05F34ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:C656E2956F0D75DCE48910C1A6B6E509E05F34ED
 ```bash
 magnet:?xt=urn:btih:5657AB2D58AD21362ADDF346BE0247E5AD3B30BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +128,8 @@ magnet:?xt=urn:btih:5657AB2D58AD21362ADDF346BE0247E5AD3B30BB
 magnet:?xt=urn:btih:21D6CC24FC2C8D12B1698F75DFCE8F462DA9EC95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +156,8 @@ magnet:?xt=urn:btih:21D6CC24FC2C8D12B1698F75DFCE8F462DA9EC95
 magnet:?xt=urn:btih:9131D7DBEFD479AEA73E92DB5CB943BF7C37885D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +181,8 @@ magnet:?xt=urn:btih:9131D7DBEFD479AEA73E92DB5CB943BF7C37885D
 ```bash
 magnet:?xt=urn:btih:9CECDE832D686095DCFEE9423043748FA2482DD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +208,8 @@ magnet:?xt=urn:btih:9CECDE832D686095DCFEE9423043748FA2482DD9
 magnet:?xt=urn:btih:D11E89E6C3DC3C23804C17C38FAE457783F75733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +233,8 @@ magnet:?xt=urn:btih:D11E89E6C3DC3C23804C17C38FAE457783F75733
 ```bash
 magnet:?xt=urn:btih:E30880CF9AEAC7831059AA5517D286027B3C5F6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +260,8 @@ magnet:?xt=urn:btih:E30880CF9AEAC7831059AA5517D286027B3C5F6A
 magnet:?xt=urn:btih:DD5F66502E48D1B71D689188C61142C8C0E6AC3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +285,8 @@ magnet:?xt=urn:btih:DD5F66502E48D1B71D689188C61142C8C0E6AC3F
 ```bash
 magnet:?xt=urn:btih:C80D1B2663E79A51CE8045D3FE0475BDC8F1D0C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +315,8 @@ magnet:?xt=urn:btih:C80D1B2663E79A51CE8045D3FE0475BDC8F1D0C2
 magnet:?xt=urn:btih:794E967EB2F903AC73FAD074CDDD1B3B12A95D43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +341,8 @@ magnet:?xt=urn:btih:794E967EB2F903AC73FAD074CDDD1B3B12A95D43
 magnet:?xt=urn:btih:000B4565DEA432603B399FC4459B2D476A45E09E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +366,8 @@ magnet:?xt=urn:btih:000B4565DEA432603B399FC4459B2D476A45E09E
 ```bash
 magnet:?xt=urn:btih:7E1951E9F41F1EACB66BDE267C4D2D3434ACECE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +396,8 @@ magnet:?xt=urn:btih:7E1951E9F41F1EACB66BDE267C4D2D3434ACECE6
 magnet:?xt=urn:btih:80B8D877936860D48A884163BAEEA0EAA5ABD495
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +421,8 @@ magnet:?xt=urn:btih:80B8D877936860D48A884163BAEEA0EAA5ABD495
 ```bash
 magnet:?xt=urn:btih:07A19EAE4EE31D062BC1B7C7473A55BB5C83B767
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +448,8 @@ magnet:?xt=urn:btih:07A19EAE4EE31D062BC1B7C7473A55BB5C83B767
 magnet:?xt=urn:btih:AF3C381B19C764E41CE043486CCA43F23A54ED2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +473,8 @@ magnet:?xt=urn:btih:AF3C381B19C764E41CE043486CCA43F23A54ED2C
 ```bash
 magnet:?xt=urn:btih:E12A8BCB85A9339F3A5FFD8EEFB681C0B6718D38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +500,8 @@ magnet:?xt=urn:btih:E12A8BCB85A9339F3A5FFD8EEFB681C0B6718D38
 magnet:?xt=urn:btih:894AEB7195D053E921BA0CDBDAEA9B600D649C59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +525,8 @@ magnet:?xt=urn:btih:894AEB7195D053E921BA0CDBDAEA9B600D649C59
 ```bash
 magnet:?xt=urn:btih:A97398C881D5D19F85A74BAEFFD5BBBC1CC3017A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +552,8 @@ magnet:?xt=urn:btih:A97398C881D5D19F85A74BAEFFD5BBBC1CC3017A
 magnet:?xt=urn:btih:8EFAD007EC1A483791C7D972A5B3208CE5A9CD9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +577,8 @@ magnet:?xt=urn:btih:8EFAD007EC1A483791C7D972A5B3208CE5A9CD9D
 ```bash
 magnet:?xt=urn:btih:7681889D325CAE444D66E1503F8E9E05F4FDC862
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +606,8 @@ magnet:?xt=urn:btih:7681889D325CAE444D66E1503F8E9E05F4FDC862
 magnet:?xt=urn:btih:3E2792EEC475556CAE40983711A70789C2959DC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +632,8 @@ magnet:?xt=urn:btih:3E2792EEC475556CAE40983711A70789C2959DC2
 magnet:?xt=urn:btih:A6E389CA54B03D3A7BE186F212110DF83133F24B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +657,36 @@ magnet:?xt=urn:btih:A6E389CA54B03D3A7BE186F212110DF83133F24B
 ```bash
 magnet:?xt=urn:btih:E353F7B2007EF2927F1D91862F8B16BA0164AA54
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115600   (825686) от 18.03.2017
+
+Аисты / Storks (2016) BDRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аисты приносят детей… или, во всяком случае, раньше приносили. Теперь же они занимаются доставкой посылок для огромного сайта интернет-продаж. Джуниор, лучший аист в курьерской компании, должен пойти на повышение, но он случайно активирует машину для создания детей и получает очаровательную, но совершенно незапланированную девочку.
+
+Пытаясь доставить эту «посылку» (   Читать дальше...   )Производство: США / Warner Bros. Pictures, Warner Bros. AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Николас Столлер, Даг СвитлэндПерсонажи: Энди Сэмберг, Кэти Краун, Келси Грэммер, Дженнифер Энистон, Тай Бурелл, Антон Старкман, Кигэн-Майкл Ки, Джордан Пил, Дэнни Трехо, Стив ГликманПеревод: Дублированный (Лицензия BD CEE)Субтитры: Русские (Форс.+Полные), Английские (Full+SDH)Продолжительность: 01:26:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:673A10C74E678C02AC499258A1802779E37C37AB
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

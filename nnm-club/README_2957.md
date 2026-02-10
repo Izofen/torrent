@@ -25,6 +25,8 @@ Max Payne Дилогия [En/Ru] (RePack) 2001-2003 | R.G. Shift
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Max Payne Дилогия [En/Ru] (RePack) 2001-2003 | R.G. Shift
 ```bash
 magnet:?xt=urn:btih:D9C0F84C2AE34A10C1CE93150287D37097791A7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:D9C0F84C2AE34A10C1CE93150287D37097791A7E
 magnet:?xt=urn:btih:ED979494E3447B1309B5FA2B65B6416E3D0F6F34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:ED979494E3447B1309B5FA2B65B6416E3D0F6F34
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:ED979494E3447B1309B5FA2B65B6416E3D0F6F34
 magnet:?xt=urn:btih:2708400E4743A536435FF78EDE9903FC34AD3FAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:2708400E4743A536435FF78EDE9903FC34AD3FAD
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:2708400E4743A536435FF78EDE9903FC34AD3FAD
 magnet:?xt=urn:btih:5C1F6B2A7EA5AA50EE73B939A42C14F842776722
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:5C1F6B2A7EA5AA50EE73B939A42C14F842776722
 ```bash
 magnet:?xt=urn:btih:70CBC5264BBA31C9B8D9911A7383FFB4187CE880
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:70CBC5264BBA31C9B8D9911A7383FFB4187CE880
 magnet:?xt=urn:btih:B7F6EFF11D5EDD10C38BB51362C09F08CC6BD3A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ The National Fanfare of Kadebostany - Walking With A Ghost (2012) [H.264/720р] 
 magnet:?xt=urn:btih:4AE6A3719319424866463E7525D1BCFCEC4F04FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:4AE6A3719319424866463E7525D1BCFCEC4F04FA
 ```bash
 magnet:?xt=urn:btih:117679CAAFD6B15DA25BBF475A399431BAD9B858
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ Natasha Bedingfield - 4 альбома (2004-2010) Дискография. Ст�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ Natasha Bedingfield - 4 альбома (2004-2010) Дискография. Ст�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +384,8 @@ Quadro Nuevo - In Concert (2012) [MP3|320 кб/с]<Jazz, Instrumental>
 magnet:?xt=urn:btih:E608D14D1078050F4D837FC74C3FE7290639F907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +410,8 @@ magnet:?xt=urn:btih:E608D14D1078050F4D837FC74C3FE7290639F907
 magnet:?xt=urn:btih:FDB72484C6F04D2A6678E1384AE4EFE131E45E0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:FDB72484C6F04D2A6678E1384AE4EFE131E45E0B
 ```bash
 magnet:?xt=urn:btih:5DE1F5E4769AB7E6103408E1317E99CDB110E0EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +471,8 @@ magnet:?xt=urn:btih:5DE1F5E4769AB7E6103408E1317E99CDB110E0EF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +496,8 @@ magnet:?xt=urn:btih:5DE1F5E4769AB7E6103408E1317E99CDB110E0EF
 ```bash
 magnet:?xt=urn:btih:2FD2F5A5226FA32A13425DA510D116B99934CE13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +526,8 @@ Sensorica - The Realm Of Fancy (2007)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +551,8 @@ XYPlorer - файловый менеджер с расширенной функ�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +578,8 @@ Daum PotPlayer - это мультимедийный проигрыватель 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +603,8 @@ Daum PotPlayer - это мультимедийный проигрыватель 
 ```bash
 magnet:?xt=urn:btih:0BB2B35C13F15C448979D1E09A0E8FAAC23C3D88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +634,8 @@ magnet:?xt=urn:btih:0BB2B35C13F15C448979D1E09A0E8FAAC23C3D88
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +659,8 @@ magnet:?xt=urn:btih:0BB2B35C13F15C448979D1E09A0E8FAAC23C3D88
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +687,8 @@ magnet:?xt=urn:btih:0BB2B35C13F15C448979D1E09A0E8FAAC23C3D88
 magnet:?xt=urn:btih:5EA7EC6F249C7DC66D2CD2AF3867E10904F42D2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +712,8 @@ magnet:?xt=urn:btih:5EA7EC6F249C7DC66D2CD2AF3867E10904F42D2C
 ```bash
 magnet:?xt=urn:btih:08FA7D04DFD7B32CB59B13FF53D844C6A7166355
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

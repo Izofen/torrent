@@ -22,6 +22,8 @@ VA - American Spirit (2024) [MP3|320 Kbps] <Pop, Rock>
 magnet:?xt=urn:btih:7332E50541718859D7457DF090E5C2FA5272C3CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:7332E50541718859D7457DF090E5C2FA5272C3CD
 magnet:?xt=urn:btih:084A1F19EB186FA475BC67794CE12F774E09CE7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:084A1F19EB186FA475BC67794CE12F774E09CE7A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:084A1F19EB186FA475BC67794CE12F774E09CE7A
 magnet:?xt=urn:btih:128588BE8F11E596987158326E7EA0FB2532C4C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:128588BE8F11E596987158326E7EA0FB2532C4C5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ VA - Milk & Sugar Beach Sessions 2024 [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:721A099D045ED4F41CDDFEBA37E79D58C2A479BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ VA - Feel Good Summer (2024) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:0F9CF0961E82D68B371B4EF871A3F5B88AE26189
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ Judas Priest - Rocka Rolla (1974) Reissue, 2024, MNRK Music [FLAC 24/96|Lossless
 magnet:?xt=urn:btih:3F80F2D80DA67D58D31E84597B08570F2FA3DF4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ Eminem - The Death of Slim Shady (Coup De Grace) (2024) Expanded Mourner’s Edi
 magnet:?xt=urn:btih:40E88EF550B91C922CF3A8D45E30BEE1EF209697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ Danball Senki W | Little Battlers eXperience W | LBX – Битвы малень
 ```bash
 magnet:?xt=urn:btih:3EB1815C8DDF3EE8DB5D1BE204FCC7C09B6059F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +300,8 @@ The Chelsea Smiles - Nowhere Ride E.P. (2005) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:903715D702E0D64A0E1FE725B4EB5C3CEC8B05CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ Van Morrison - Marin, San Francisco, Sept 71 (2024) [MP3|320 Kbps] <Jazz, Funk, 
 ```bash
 magnet:?xt=urn:btih:07AE477BA0CBB383B0C50969A38B74048B1A52FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +358,8 @@ Bill Leeb - Model Kollapse (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM \ Electro \
 magnet:?xt=urn:btih:358E66862247B87A848BB5DD884CB21FE8CB92EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +386,8 @@ magnet:?xt=urn:btih:358E66862247B87A848BB5DD884CB21FE8CB92EC
 magnet:?xt=urn:btih:EEB5D5E4CA71F283640478F7D572C4902E68F466
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +411,8 @@ magnet:?xt=urn:btih:EEB5D5E4CA71F283640478F7D572C4902E68F466
 ```bash
 magnet:?xt=urn:btih:4A5C8A461FB7C9A7983D90A2FB9F7A837EC84B8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +441,8 @@ magnet:?xt=urn:btih:4A5C8A461FB7C9A7983D90A2FB9F7A837EC84B8D
 magnet:?xt=urn:btih:8545BECDDF464C12CF5119B2150D43E1CAEF9C07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +469,8 @@ VA - Black Hole Trance Music 09-24 (2024) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:21C8F54A8DE0217C6E9379DBB48EE2B93E5CF2F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +499,8 @@ Various Artists - 80s Radio Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop/Rock>
 magnet:?xt=urn:btih:BA928CF13D61303458B5B6B729E37FFB207DBCE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +527,8 @@ magnet:?xt=urn:btih:BA928CF13D61303458B5B6B729E37FFB207DBCE6
 magnet:?xt=urn:btih:8831D20EFBD718D15D3B2001A90C76C56D658B70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +552,8 @@ Xenonauts: On The Edge / Ксенонавты: на грани (2015) [Ru] (4.0)
 ```bash
 magnet:?xt=urn:btih:D26E1C6DDAA559D6AD92FB1D31627D8700B81A92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +582,8 @@ VA - 80's Disco Reworked (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro Dance/Pop Da
 magnet:?xt=urn:btih:755690ED875AD18BDA62D1A05B96D961F57D254F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +608,8 @@ magnet:?xt=urn:btih:755690ED875AD18BDA62D1A05B96D961F57D254F
 magnet:?xt=urn:btih:A976ECD91C6413CA31EFAA81F20DA35268338C94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +633,8 @@ magnet:?xt=urn:btih:A976ECD91C6413CA31EFAA81F20DA35268338C94
 ```bash
 magnet:?xt=urn:btih:EDB3D4C00EE7B65DDE2721C859D408FDD211CF7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +663,8 @@ VA - Самые душевные песни русского шансона 2 (2
 magnet:?xt=urn:btih:CBDC9E60FB6EEEE9DC02D5EF0BCF794D5BD45110
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +691,8 @@ Text Edit Plus — это простой, но мощный текстовый �
 magnet:?xt=urn:btih:3493FB1B7B35AC14CC4537EECAB0AD5E2C99F77D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +716,8 @@ magnet:?xt=urn:btih:3493FB1B7B35AC14CC4537EECAB0AD5E2C99F77D
 ```bash
 magnet:?xt=urn:btih:D6332009AAA59008A7796E3B3D5D8212F636B6E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

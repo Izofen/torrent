@@ -20,6 +20,8 @@ We guarantee you that this is the most comprehensive and up-to-date online resou
 magnet:?xt=urn:btih:1223569686FA7E826D2C1F7212B685AAB31F238E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ podlodka.io | Podlodka Python. Асинхронность (2023) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:33569EBA452638D5BB8645EC9F9F0D3CC557AB1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Proglib.Academy, Наталья Кайда, Александр Пупышев | 
 magnet:?xt=urn:btih:CA20CE33CD25BD65A63E3B30A5E63C25B25E38E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Self-Learning, Виталий Трунин | Курс по SQL для начин
 ```bash
 magnet:?xt=urn:btih:D44729687F68B8C8CC6BFF49DC17B09572B868C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Udemy, Happy Rawat | JavaScript Interview Masterclass: Top 200 Questions & Answe
 magnet:?xt=urn:btih:77500B6BBE8C3658334E6F45E90E36BD89E56A01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ Joker - конференция для Java-программистов, прох�
 ```bash
 magnet:?xt=urn:btih:D1D502362BA957F75D8F9F4A6C29E1EC9B5B4E97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:D1D502362BA957F75D8F9F4A6C29E1EC9B5B4E97
 ```bash
 magnet:?xt=urn:btih:856ACF6D30991C348887CA23543754888ED4E515
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ Heisenbug - крупнейшая в России конференция по т�
 magnet:?xt=urn:btih:3F6C04E1760C9CC28964F076082E61DC59AA89F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ magnet:?xt=urn:btih:3F6C04E1760C9CC28964F076082E61DC59AA89F6
 magnet:?xt=urn:btih:F990F1BE197EAA4755718135D5D3326A919463C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:F990F1BE197EAA4755718135D5D3326A919463C1
 ```bash
 magnet:?xt=urn:btih:81948D63ACBF4752B620EA843E5F25C11A3F998C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +299,8 @@ Community Traders, Сергей Привалов | Программируем т
 magnet:?xt=urn:btih:B3087F0773A4B3F7F4C4503D9A2EA23AC15F5C4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:B3087F0773A4B3F7F4C4503D9A2EA23AC15F5C4C
 ```bash
 magnet:?xt=urn:btih:16E368867AD662F249775A43BC843740CA3D44A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -330,6 +354,8 @@ Udemy, Banza Academy | SQL для нетехнических специалис�
 magnet:?xt=urn:btih:4E240DA11D9CC05AEEBF3EB10117D99E8EF3D49E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ PHP - один из самых популярных языков програм�
 magnet:?xt=urn:btih:6C4AEF99C83A56ACF9EE437CDC44D5861B04EE43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +411,8 @@ magnet:?xt=urn:btih:6C4AEF99C83A56ACF9EE437CDC44D5861B04EE43
 magnet:?xt=urn:btih:0C966E7E6B2E79A5684A97C6CAA1B3B250F3D034
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ magnet:?xt=urn:btih:0C966E7E6B2E79A5684A97C6CAA1B3B250F3D034
 ```bash
 magnet:?xt=urn:btih:B4491395FD8E6486C1924D34B094C3BA564ADC17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +464,8 @@ HTML Academy | JavaScript. Архитектура клиентских прил�
 magnet:?xt=urn:btih:5A44B3FEED8944A3501A660E97DFB4B6DCC76A86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ Udemy, Visadi Khalikov | Этичный хакинг с Metasploit для нач
 ```bash
 magnet:?xt=urn:btih:B3E08F1B68F3844AC2D7A4AE759E1638ECCDC189
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +519,8 @@ magnet:?xt=urn:btih:B3E08F1B68F3844AC2D7A4AE759E1638ECCDC189
 magnet:?xt=urn:btih:D8C9FF52F8FF8F87DE3CF6E0DAD9ACF5857DB7E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +548,8 @@ Softwaretesting , Наталья Руколь | Школа тест-менедж
 magnet:?xt=urn:btih:E325E8FFB2B0C3247BD9961090BFA0997E369623
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +575,8 @@ GeekBrains | Факультет веб-разработки (2021) WEB-DL
 ```bash
 magnet:?xt=urn:btih:C3FAF45C81190D8150272FB87BA57DB7F10C0DFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +605,8 @@ magnet:?xt=urn:btih:C3FAF45C81190D8150272FB87BA57DB7F10C0DFB
 magnet:?xt=urn:btih:D5F03D91B5742CF0CE4F59E9CFCDEAD10D8622DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +630,8 @@ Joker 2022 — международная Java-конференция. Спик�
 ```bash
 magnet:?xt=urn:btih:7681F7EF9983EC3470649739D9D4EA385A8F58D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +657,8 @@ HolyJS 2022 Autumn - большая конференция для JS-разра�
 magnet:?xt=urn:btih:B359B27D420D5E2C34FF00F03525576B97941A75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ SkillUP | Тестировщик ПО с гарантией трудоустро
 ```bash
 magnet:?xt=urn:btih:6226FDA1B6C14DB2FD4B4210456D2AC534C6F954
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +709,8 @@ Erick Wendel | Mastering Node.js Streams with Erick Wendel (2022) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:7A61BBFC795BCCF4C3BD24986C7B01AF2D659A37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

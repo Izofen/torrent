@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:93B15E55C5C92DD63DA3B6696566CD7FC3A059CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:93B15E55C5C92DD63DA3B6696566CD7FC3A059CF
 magnet:?xt=urn:btih:D3B5188848D1AADE57B7D5A9954E853D88C185A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:D3B5188848D1AADE57B7D5A9954E853D88C185A4
 ```bash
 magnet:?xt=urn:btih:FF2361A23870F4568BD65A488840F09523E04B77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ VA - Зарубежная Дискотека 80-х (2012) [MP3|256 кб/с]<Disc
 magnet:?xt=urn:btih:73FCE2E740034C05179C0E9F7652BBB12BD42ABB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +143,8 @@ magnet:?xt=urn:btih:73FCE2E740034C05179C0E9F7652BBB12BD42ABB
 ```bash
 magnet:?xt=urn:btih:9F9AD0A7B30B4E3728124A0E5BCCDAA3A18F6751
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +175,8 @@ magnet:?xt=urn:btih:9F9AD0A7B30B4E3728124A0E5BCCDAA3A18F6751
 magnet:?xt=urn:btih:5FE74C3EF5FC79D5090373E3C33939C4FE12A9AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +204,8 @@ magnet:?xt=urn:btih:5FE74C3EF5FC79D5090373E3C33939C4FE12A9AF
 magnet:?xt=urn:btih:C824976E61F45389D62F12B0657CAE768791624F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +229,8 @@ magnet:?xt=urn:btih:C824976E61F45389D62F12B0657CAE768791624F
 ```bash
 magnet:?xt=urn:btih:92E0F823CE19AB58BB8884F869D85F1E952743DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +259,8 @@ magnet:?xt=urn:btih:92E0F823CE19AB58BB8884F869D85F1E952743DD
 magnet:?xt=urn:btih:3DCCE3B4A38259CC71F9D5B45BF2AE2061A3BE98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +286,8 @@ Cоветская певица, более всего известная как 
 ```bash
 magnet:?xt=urn:btih:A9C49852DC45D7D3419B447574CAEE7818239E40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +316,8 @@ magnet:?xt=urn:btih:A9C49852DC45D7D3419B447574CAEE7818239E40
 magnet:?xt=urn:btih:24A98ED75F7EF1B23AEBC89547701B2517F9D8A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +344,8 @@ magnet:?xt=urn:btih:24A98ED75F7EF1B23AEBC89547701B2517F9D8A7
 ```bash
 magnet:?xt=urn:btih:16063B7A1566D96D0827311F113D2529C3322A23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +380,8 @@ VA - Ностальгия по семидесятым (CD 1-9) (2009) [MP3|256 k
 magnet:?xt=urn:btih:87C85051AB5BBBFFC58B0B8D86F354CCB51B5520
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +408,8 @@ magnet:?xt=urn:btih:87C85051AB5BBBFFC58B0B8D86F354CCB51B5520
 ```bash
 magnet:?xt=urn:btih:584D0B79982E5791E721FDC2D522A2185F371956
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +438,8 @@ VA - Незабытые танго (2010) [MP3|320 Kbps] <Эстрада, сов
 magnet:?xt=urn:btih:50FAD3551006A55812596BE523F84410B9C04914
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +466,8 @@ magnet:?xt=urn:btih:50FAD3551006A55812596BE523F84410B9C04914
 ```bash
 magnet:?xt=urn:btih:450350F774961EC792416442C5728E0BA431FDF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +502,8 @@ VA-Александра Пахмутова - любимые песни (1975) [M
 magnet:?xt=urn:btih:9921CEBA9D279B2460670EAF900E68131066A2D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +535,8 @@ Frank Duval - Touch My Soul (1989) [MP3|320 кб/с]<Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:3DF0D0CEAAB2E7301FCB7DD74B0A4900770E7A02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +571,8 @@ VA - Русская дискотека 70-х (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:85EA59B9A79D155851FC568FB67A54A71522A8BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +599,8 @@ magnet:?xt=urn:btih:85EA59B9A79D155851FC568FB67A54A71522A8BA
 ```bash
 magnet:?xt=urn:btih:E7391A786F1A5D22B2667C0923F2F406653A220F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +629,8 @@ magnet:?xt=urn:btih:E7391A786F1A5D22B2667C0923F2F406653A220F
 magnet:?xt=urn:btih:EF8C88F15720A56BC7CCB1DCB5002297CDE7D9D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +657,8 @@ magnet:?xt=urn:btih:EF8C88F15720A56BC7CCB1DCB5002297CDE7D9D2
 ```bash
 magnet:?xt=urn:btih:4807E153A1F2D6718777F641FDE6948E6DB21335
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +693,8 @@ magnet:?xt=urn:btih:4807E153A1F2D6718777F641FDE6948E6DB21335
 magnet:?xt=urn:btih:09630FB291C0A826984756C66DD0BDD722A5E197
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -675,6 +721,8 @@ magnet:?xt=urn:btih:09630FB291C0A826984756C66DD0BDD722A5E197
 ```bash
 magnet:?xt=urn:btih:557D7B18DFC053E3F9BAE3BCAA06CBC6C867B332
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -703,6 +751,8 @@ VA - А нам всё равно. Хиты 1960 - 1980-х (2010) [MP3|320 кб/�
 magnet:?xt=urn:btih:201C98B6E741C115A0AC28F4A04C2516AC776C73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -726,6 +776,8 @@ CD1Жанр: РетроПродолжительность: 02:36:18
 ```bash
 magnet:?xt=urn:btih:12ED8BDB4400147DEB371CC67371FE305154A548
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

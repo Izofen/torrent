@@ -19,6 +19,8 @@ The Midnight Walk (2025) [Ru/Multi] (Build 18383361) Repack seleZen [VR]
 magnet:?xt=urn:btih:06320BA34FB83A5B7D4CFFE0DB3431CE5FE0CE4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:06320BA34FB83A5B7D4CFFE0DB3431CE5FE0CE4B
 ```bash
 magnet:?xt=urn:btih:66F245010AE42BDBF75E601DA8CF09ABB2BA5980
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:66F245010AE42BDBF75E601DA8CF09ABB2BA5980
 magnet:?xt=urn:btih:24DCE4877AAEB025D34B79E7DD1C2603FD1572B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:24DCE4877AAEB025D34B79E7DD1C2603FD1572B1
 ```bash
 magnet:?xt=urn:btih:9C779367221AD8C9F4263A98B3041961518857B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:9C779367221AD8C9F4263A98B3041961518857B5
 magnet:?xt=urn:btih:6EC445A3625242744A5AE8FD7C91ED1ED6418EAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:6EC445A3625242744A5AE8FD7C91ED1ED6418EAD
 ```bash
 magnet:?xt=urn:btih:61E59480465D4ACF3740C50D48332A6470B8DB5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:61E59480465D4ACF3740C50D48332A6470B8DB5D
 magnet:?xt=urn:btih:52A004FB58DAD6D0C33858A7C91FD1B0A0E2E9E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:52A004FB58DAD6D0C33858A7C91FD1B0A0E2E9E6
 ```bash
 magnet:?xt=urn:btih:75F1EE151B3459CF9A0F729DE4E3359EC4DDB7CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:75F1EE151B3459CF9A0F729DE4E3359EC4DDB7CE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:75F1EE151B3459CF9A0F729DE4E3359EC4DDB7CE
 ```bash
 magnet:?xt=urn:btih:B914AA53E7059EAE8A30D756777570119DADAF26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:B914AA53E7059EAE8A30D756777570119DADAF26
 magnet:?xt=urn:btih:58F87579E54F85066FD294714FA8DECD6CA165B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:58F87579E54F85066FD294714FA8DECD6CA165B8
 ```bash
 magnet:?xt=urn:btih:48C968525B0C3179548E98B9FC4770678AA1C07F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:48C968525B0C3179548E98B9FC4770678AA1C07F
 magnet:?xt=urn:btih:B38E16503572244EB924EF366940601AF5B89E52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:B38E16503572244EB924EF366940601AF5B89E52
 ```bash
 magnet:?xt=urn:btih:B46AC46E6F49BAD9F79EF37DD41198CF458C355C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:B46AC46E6F49BAD9F79EF37DD41198CF458C355C
 magnet:?xt=urn:btih:BE622F57A32365FB798EC512A37AFF1ECA3E0D01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:BE622F57A32365FB798EC512A37AFF1ECA3E0D01
 ```bash
 magnet:?xt=urn:btih:C37EE9FB59CFE100B4A74C40B5CE05DEAACC53C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:C37EE9FB59CFE100B4A74C40B5CE05DEAACC53C4
 magnet:?xt=urn:btih:8B5BEAB988A4F8101B3FD18D18837338063DDF3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Volcanoids – игра в стиле стимпанка, где все дейс
 ```bash
 magnet:?xt=urn:btih:A2F87D1831A70A3D253695A2BFBD06E5C50D7BFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:A2F87D1831A70A3D253695A2BFBD06E5C50D7BFB
 magnet:?xt=urn:btih:1A77E0D49213E7E96744D0FC87009D4FCD709CA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ magnet:?xt=urn:btih:1A77E0D49213E7E96744D0FC87009D4FCD709CA5
 ```bash
 magnet:?xt=urn:btih:99964E328D8AD568A95ED5BC23AAAFE33BB1AA11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ Proton VPN — это единственное в мире бесплатное 
 magnet:?xt=urn:btih:5F6325E7C31971390CB23A8A2066654A99182217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Ary and the Secret of Seasons - удостоенная наград приклю
 magnet:?xt=urn:btih:735F82A14BE8DAA6206A72E31487CCB354E84105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:735F82A14BE8DAA6206A72E31487CCB354E84105
 ```bash
 magnet:?xt=urn:btih:2CDAF67D7416F0D61F3230F0C6A6F9C64B058078
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:2CDAF67D7416F0D61F3230F0C6A6F9C64B058078
 magnet:?xt=urn:btih:62E4BCBBB7C738B81042AC64E4FAC3D86F897DB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Breath of Fire IV (4) (2000) [Multi] (1.0 HotFix 4) License GOG
 ```bash
 magnet:?xt=urn:btih:8BD1AADB65F518BC430A3CC36EDBF42993968BCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:8BD1AADB65F518BC430A3CC36EDBF42993968BCB
 ```bash
 magnet:?xt=urn:btih:EF66ACF097FD46CE78645D9B6B5930DEE5239EDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

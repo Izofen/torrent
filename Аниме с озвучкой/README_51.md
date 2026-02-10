@@ -20,6 +20,8 @@ Kono Subarashii Sekai ni Shukufuku o! / Этот замечательный ми
 magnet:?xt=urn:btih:8F58184343A69D2705F4A69EA8774AB26E8779DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:8F58184343A69D2705F4A69EA8774AB26E8779DD
 ```bash
 magnet:?xt=urn:btih:A48E35386E08188CA91C99177106CDB86C347A02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Manie-Manie: Meikyuu Monogatari / Neo-Tokyo / Нео-Токио (Лабирин�
 magnet:?xt=urn:btih:00D17F2528B00DDA9446CDE903985128C2B2EA06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ DanMachi | Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka II | Is It Wr
 ```bash
 magnet:?xt=urn:btih:055E5E2BD8BAF1D43FDD484D0D68E4358FEA0618
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ DanMachi | Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka | Is It Wrong
 magnet:?xt=urn:btih:7F3CB134510BAC45860A134BFBB9B65ABF761CCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ DanMachi | Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka Gaiden: Sword
 ```bash
 magnet:?xt=urn:btih:21E8CBE97D71D466800B34E08E3A1EC0CC4987D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Sword Art Online: Extra Edition | Мастера Меча Онлайн: Посл
 magnet:?xt=urn:btih:57D521CF962B072C4F63FF82CEA22601EA8E4DD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ DanMachi  | Gekijouban Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka: 
 magnet:?xt=urn:btih:4EF396612F1C20EA2BEAA31CA29F3E5158CD6095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ The Magical Girl Raising Project - игра, позволяющая 1 из 10000
 ```bash
 magnet:?xt=urn:btih:DBF4568A03CC54C1B4FBE79216165744ACF82E0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Sword Art Online | Мастера Меча Онлайн [ТВ-1] [2012, TV, 25 e
 magnet:?xt=urn:btih:3C246D97DA922A989AF07CB5E23B76918EECB514
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Berserk | Берсерк [TV-1] [1997, TV, 25 ep] BDRip 1080p 10-bit raw+rus
 ```bash
 magnet:?xt=urn:btih:817765260D1B8A99404DCE92263315001CA8B186
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Violet Evergarden | Виолетта Эвергарден [2018, TV, 13 ep + 1 s
 magnet:?xt=urn:btih:5117BC59BB705AC08A659CCAB393EF954A97C778
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Berserk | Берсерк [TV-2+TV-3] [2016-2017, TV, 24 ep] BDRip 1080p HEVC 10-
 ```bash
 magnet:?xt=urn:btih:1E59A85BA7A0C261B8D061AF1DC5B5502B2227FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Redline | Красная Черта [2009, Movie] BDRip 1048p 10-bit raw+rus
 magnet:?xt=urn:btih:355BD76D6EE380024848A7B288E7A8BBCA58E7BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ OreGairu 2 | Yahari Ore no Seishun Lovecome wa Machigatte Iru. Zoku | Жизнь
 magnet:?xt=urn:btih:691B08EA5408E8E7FE761A4375AFC55F6467FA49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ OreGairu | Yahari Ore no Seishun Lovecome wa Machigatte Iru | Жизнь - Лю�
 ```bash
 magnet:?xt=urn:btih:724C986ACA3ACE3867D35EBFBBB7AD18CAA72C5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ Akatsuki no Yona | Yona of the Dawn | Рассвет Ёны | Красновол
 magnet:?xt=urn:btih:D9B2A4D7A84649C5EBEAD8B6CEC6123D9B4EBF20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Akatsuki no Yona | Yona of the Dawn | Рассвет Ёны | Красновол
 magnet:?xt=urn:btih:05CA76AC2D41F937300BD4BCF4F8D29842ABADAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Dirty Pair | Грязная Парочка [1985, TV, 24 ep] BDRip 1080p raw+rus
 ```bash
 magnet:?xt=urn:btih:2C1751C41D00E857D7965FAA61C2D4D995AF9DAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ Dirty Pair: Flight 005 Conspiracy | Грязная Парочка: Загово�
 magnet:?xt=urn:btih:D279EA7E3B5A0FA0C594DC07CF60C0D5A5E46B02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Dirty Pair: Affair of Nolandia | Грязная Парочка: Ноландск
 ```bash
 magnet:?xt=urn:btih:A8C107DF5C7F6C067CDFBF6B9B01D74126746DB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Dirty Pair: Project Eden | Грязная Парочка: Проект Эдем 
 magnet:?xt=urn:btih:460026287F24A71DD13902BB2095D493EC0138B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Dirty Pair | Грязная Парочка [1987, OVA, 10 ep] BDRip 1080p raw+ru
 ```bash
 magnet:?xt=urn:btih:21B9F0D334E93643479BCDF3D939D87E0F49C8E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ Manie-Manie: Meikyuu Monogatari / Neo-Tokyo / Нео-Токио (Лабирин�
 magnet:?xt=urn:btih:FC90D7A9765D2E968CD6188FA95C381A54E48103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ Fairy Tail Zero / Фейри Тейл Зеро [2016, TV, 12] HDTV 720p rus
 ```bash
 magnet:?xt=urn:btih:4D355F4361F0A907E279A8CB55AEC19B741FC6B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +679,8 @@ Hai to Gensou no Grimga / Гримгал пепла и иллюзий [2016, TV,
 ```bash
 magnet:?xt=urn:btih:C96C7741E5483855D2C84B398A43C094A72071DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

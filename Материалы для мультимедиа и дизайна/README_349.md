@@ -1,3 +1,133 @@
+###  Публикация: 1274139   (794926) от 05.01.2019
+
+3D модели - Hum3D - Ford Expedition MAX Platinum 2017 [V-Ray|*.max, 3DS, C4D, FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794926.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки FordФормат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MA, STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03EF86BC075F36F577F2BA14B277DA816FC38198
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274131   (794931) от 05.01.2019
+
+3D модели - SQUIR - Gumpert Apollo Intensa Emozione 2019 [V-Ray|*.max, 3DS, C4D, FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794931.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки Gumpert ApolloФормат: V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MA
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E6014DD7E9172BE1BBA7B8AAF92A6C643911423
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274113   (794934) от 05.01.2019
+
+3D модели - ArtStation - p 40 war hawk (modified) [MAX, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Привет, ребята, работающие над некоторыми сценами мировой войны для нашего предстоящего проекта, который включает в себя этот ястреб p40, я внес изменения в некоторые части, особенно кабину.Формат: MAX, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF85013AD5DBBDED21EF959DCD66A15BE5BCAEA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274124   (794980) от 05.01.2019
+
+3D модели - Mercedes-Benz GLK [MAX, 3DS, C4D, FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794980.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки Mercedes-Benz (не удалось найти оф-сайт)Формат: MAX, 3DS, C4D, FBX, LWO, OBJ, WRL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F03163200D123DA4409F5F20C1105A5BEE7F601B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273959   (794981) от 05.01.2019
+
+Рамки - С Рождеством Христовым! [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многослойный PSD, рамки С Рождеством Христовым! Формат А4 для удобной печати и для вашего творчества.Формат: PSDРазрешение файлов: 3508х2480-2480x3508
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5232B2BE9FA7D5774AA6EA42331BEF56F2BC5ABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386262   (795109) от 28.05.2020
 
 Фоны и Наложения - InkyDeals - The SuperMassive Bundle Of 13,000+ Overlays And Backgrounds [PNG, JPG]
@@ -19,6 +149,8 @@
 ```bash
 magnet:?xt=urn:btih:247357582C526149BCB834D507E149976ADA36F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +176,8 @@ magnet:?xt=urn:btih:247357582C526149BCB834D507E149976ADA36F2
 magnet:?xt=urn:btih:8A86E049E77BB8C254B12C84457D9BE1BD9DFD54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +201,8 @@ magnet:?xt=urn:btih:8A86E049E77BB8C254B12C84457D9BE1BD9DFD54
 ```bash
 magnet:?xt=urn:btih:CE43C17BABF18424BDEEEB319B647272CDF0BDCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +229,8 @@ magnet:?xt=urn:btih:CE43C17BABF18424BDEEEB319B647272CDF0BDCE
 magnet:?xt=urn:btih:88C2B4AAA57F34757CCBCCBCA241FCE9DECF0997
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +255,8 @@ magnet:?xt=urn:btih:88C2B4AAA57F34757CCBCCBCA241FCE9DECF0997
 ```bash
 magnet:?xt=urn:btih:721791EA2B7BB9100D215F7A76E857A3C1058F2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +284,8 @@ magnet:?xt=urn:btih:721791EA2B7BB9100D215F7A76E857A3C1058F2A
 magnet:?xt=urn:btih:D2346F4BC874874EF6AC8EB9AC68D45559B8D8A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +309,8 @@ magnet:?xt=urn:btih:D2346F4BC874874EF6AC8EB9AC68D45559B8D8A5
 ```bash
 magnet:?xt=urn:btih:173E0032255595F394077FF75927D2564688B88B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +336,8 @@ magnet:?xt=urn:btih:173E0032255595F394077FF75927D2564688B88B
 magnet:?xt=urn:btih:FF4EC371D07D151523556B9A9A0AB3896B69D212
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +361,8 @@ magnet:?xt=urn:btih:FF4EC371D07D151523556B9A9A0AB3896B69D212
 ```bash
 magnet:?xt=urn:btih:9524B84006C670F924DB0BC094C9EF3B7439B2FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +388,8 @@ magnet:?xt=urn:btih:9524B84006C670F924DB0BC094C9EF3B7439B2FE
 magnet:?xt=urn:btih:15B76C7DF3A620D89AF9F54C07E982C55938EB1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +413,8 @@ magnet:?xt=urn:btih:15B76C7DF3A620D89AF9F54C07E982C55938EB1E
 ```bash
 magnet:?xt=urn:btih:AF0BEC98DDB35B414FA69EC845613DAC76270538
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +440,8 @@ magnet:?xt=urn:btih:AF0BEC98DDB35B414FA69EC845613DAC76270538
 magnet:?xt=urn:btih:3949DE5B10D262BCABA4C73BC9249082BBF7B051
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +465,8 @@ magnet:?xt=urn:btih:3949DE5B10D262BCABA4C73BC9249082BBF7B051
 ```bash
 magnet:?xt=urn:btih:05132AD6BB7D8BB46C8FBABBF1DD7713B20BF9BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +494,8 @@ magnet:?xt=urn:btih:05132AD6BB7D8BB46C8FBABBF1DD7713B20BF9BD
 magnet:?xt=urn:btih:EAB66024B258DFA71CA80ED805072856D685C732
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +522,8 @@ magnet:?xt=urn:btih:EAB66024B258DFA71CA80ED805072856D685C732
 magnet:?xt=urn:btih:33A5C50AD77C406018CFBF42981D6076CD1F1738
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +549,8 @@ magnet:?xt=urn:btih:33A5C50AD77C406018CFBF42981D6076CD1F1738
 magnet:?xt=urn:btih:925FF48F02D9E2098314977D1687090B18DF6D8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +575,8 @@ magnet:?xt=urn:btih:925FF48F02D9E2098314977D1687090B18DF6D8C
 magnet:?xt=urn:btih:50002FA55A5F6B6A9C2D5C3F403B36C786F1F7B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +600,8 @@ magnet:?xt=urn:btih:50002FA55A5F6B6A9C2D5C3F403B36C786F1F7B9
 ```bash
 magnet:?xt=urn:btih:405C9676DDEE229F8E878F3234E102D1292B0BD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +629,8 @@ magnet:?xt=urn:btih:405C9676DDEE229F8E878F3234E102D1292B0BD9
 magnet:?xt=urn:btih:74B6CD24AA1CE1D8BD4D0D695C9143FBD9E868FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +654,8 @@ magnet:?xt=urn:btih:74B6CD24AA1CE1D8BD4D0D695C9143FBD9E868FC
 ```bash
 magnet:?xt=urn:btih:BF7D4B532E9CF98217D874A6E07DF20E3D02A738
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,125 +682,7 @@ magnet:?xt=urn:btih:BF7D4B532E9CF98217D874A6E07DF20E3D02A738
 magnet:?xt=urn:btih:58D59E9A4D7B00201D212BD35BEC1813838B4A0D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507608   (798205) от 05.11.2021
-
-Пресеты - Creative Market - 788 Cyberpunk Presets LUTs - 5883096 [XMP, DNG, 3DL, CUBE, ICC, LOOK, MGA, PNG, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузите этот колоссальный набор из 788 пресетов и LUT, чтобы создавать потрясающие образы в стиле киберпанк.Формат: XMP, DNG, 3DL, CUBE, ICC, LOOK, MGA, PNG, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78A0C8A4E7D950216B2A29299001FCC5D2EB727E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507341   (798337) от 04.11.2021
-
-3D модели - Daz 3D - Сборник 3D моделей #26 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор 3d моделей для DAZ 3D - из 50шт, категории Clothing, People, Animation, Hair.Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2364FB42B6221C890264289074E5DC200A0024AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507201   (798597) от 03.11.2021
-
-Растровый клипарт - 16 Cutout Trees - Transparent Stock Images [PNG, TIF]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт из 16 вырезанных деревьев.Формат: PNG, TIFРазрешение файлов: 1544x2500-4016x5868
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:193E6F5F93C8325EEBE238E2500545D8CAC10064
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507207   (798635) от 03.11.2021
-
-Растровый клипарт - Food Meat Vegetables Fruits Fish Stock Photo Bundle Vol.1 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еда, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2386x1789-9068x6046
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83383085E4A1D28BA427FB3C9991A72C2A4AC3EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506495   (799812) от 31.10.2021
-
-Шрифты - Creative Fabrica - All Fonts Collection - Mega Typeface Bundle [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция All Fonts - Mega Typeface Bundle с невероятным выбором из +460 шрифтов.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6536A0F87D853852BFBC9CEDB7FA675470EF956C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

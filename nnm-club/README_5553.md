@@ -22,6 +22,8 @@ Derniere Volonte - Cristal (2022) [FLAC|Lossless|WEB-DL|tracks] <Neofolk, Synthp
 magnet:?xt=urn:btih:74D026E2C919ED9F6483F9E1810C861B753E9257
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:74D026E2C919ED9F6483F9E1810C861B753E9257
 ```bash
 magnet:?xt=urn:btih:41955D45595412D405EE80FC8A92F0383861EEBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Della Reese - Voice Of An Angel 1959 - 1964 (1996) RCA [FLAC|Lossless|tracks + .
 magnet:?xt=urn:btih:974DC5E5BA1A1E023FC926F2743AB963A4CDA0F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Ganbare Douki-chan | Доки, ты справишься! [2021, Web, 12 эп.] 
 ```bash
 magnet:?xt=urn:btih:E33B7D7B8A7D7B4BD64B379C78DD57ED837D4FB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ A Better Finder Attributes позволить изменить дату созд
 magnet:?xt=urn:btih:15C12C68B684AF42EF6A9E85B469B23CE150B423
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:15C12C68B684AF42EF6A9E85B469B23CE150B423
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Duplicate File Finder - утилита, которая находит дубли
 ```bash
 magnet:?xt=urn:btih:10D06219FA2C4304BC0A2A59952EC7C010774A37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Melanie Payer - Herzuber (2022) [FLAC|Lossless|image + .cue] <Pop>
 magnet:?xt=urn:btih:42F238CDCAA7BD3B5F142BBEEA5E3B84345D897C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:42F238CDCAA7BD3B5F142BBEEA5E3B84345D897C
 magnet:?xt=urn:btih:9681A4C3260F24A83F380373C1822B92A2F9CA70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:9681A4C3260F24A83F380373C1822B92A2F9CA70
 ```bash
 magnet:?xt=urn:btih:A50A738A3E9CD756B9CD32CA91CD3B4DF1A297E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ ABBYY Lingvo European Dictionary 1.12.3 [Multi/Ru]
 magnet:?xt=urn:btih:A42333FF8C45394FDDDE94B4BC824B1BD08DB1C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ Cardhop 1.3.3 [Multi]
 ```bash
 magnet:?xt=urn:btih:397D21D8C8BA64251468212CD49BC8415927DB0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ Dari Veter (Дари Ветер) - Времена Года Сего (2022) [FLAC
 magnet:?xt=urn:btih:E52197C819A9B6425EF2A13017AA5989A162B96F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:E52197C819A9B6425EF2A13017AA5989A162B96F
 ```bash
 magnet:?xt=urn:btih:99E457A0EDF35BC29C4AE0AD601B88177EC8DEEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ magnet:?xt=urn:btih:99E457A0EDF35BC29C4AE0AD601B88177EC8DEEE
 magnet:?xt=urn:btih:4B1409A8EE8DE863CC51733E135B149910035432
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +437,8 @@ magnet:?xt=urn:btih:4B1409A8EE8DE863CC51733E135B149910035432
 magnet:?xt=urn:btih:530DC5AC8A98A46182AF880EDE7BAB2E23521190
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:530DC5AC8A98A46182AF880EDE7BAB2E23521190
 ```bash
 magnet:?xt=urn:btih:9397B4F03D6719BE731202A5C6FC2A27C976A8A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +492,8 @@ VA - Purified Chronicles 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hous
 magnet:?xt=urn:btih:AA57C91B11FA55BC2F54E3905776BA25680B896C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ magnet:?xt=urn:btih:AA57C91B11FA55BC2F54E3905776BA25680B896C
 ```bash
 magnet:?xt=urn:btih:673E7B49722F1F17D360589B89F0973D0EE8CFCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +547,8 @@ magnet:?xt=urn:btih:673E7B49722F1F17D360589B89F0973D0EE8CFCA
 magnet:?xt=urn:btih:28A20A090C6AB2118A7EA85712AEAC60CD570840
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ R-Studio Network  9.3 Build 191251 (x64) RePack (& Portable) by TryRooM [Multi/R
 ```bash
 magnet:?xt=urn:btih:DA2B5D93CA86A58A933D1A64489114E01042CFEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ Disk Space Analyzer Pro ранее как Disk Expert - приложение п�
 ```bash
 magnet:?xt=urn:btih:634900C94B7146E59C5550443E4727812ADD4B4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +629,8 @@ Rome - Hegemonikon - A Journey to the End of Light (2022) [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:3C5BD8E37C69A688C6CD360E2744D7D909875CC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ Street Outlaws 2: Winner Takes All (2021) [En] (7729942) License CODEX
 ```bash
 magnet:?xt=urn:btih:303AEAB5B39249E16DA612FB54E88B361C82C252
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +684,8 @@ magnet:?xt=urn:btih:303AEAB5B39249E16DA612FB54E88B361C82C252
 magnet:?xt=urn:btih:470BFC74DCF572519FE552B390498363E97D8DC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +712,8 @@ magnet:?xt=urn:btih:470BFC74DCF572519FE552B390498363E97D8DC2
 ```bash
 magnet:?xt=urn:btih:36A0955C7513E50A2E9B70CA924BA29E1FBC83D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

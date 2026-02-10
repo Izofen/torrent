@@ -19,6 +19,8 @@ PingPlotter Pro – приложение, которое предоставля�
 magnet:?xt=urn:btih:168C8E0D16EDAC327925385C786F07A4E792E01D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:168C8E0D16EDAC327925385C786F07A4E792E01D
 ```bash
 magnet:?xt=urn:btih:78A2956CEBA3CB139CA38F5DF3EFD78F854D9796
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Necrodome (1996) [En] (1.0) Repack 1nomok
 magnet:?xt=urn:btih:0B5CC85B89C7D6B0961C19BEB995A57B7B954A44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:0B5CC85B89C7D6B0961C19BEB995A57B7B954A44
 ```bash
 magnet:?xt=urn:btih:B4B93C1F75980AC4A49BC7F2CFE8DC97CB515B1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ WinToUSB — лучший Windows To Go (WTG) Creator, который позво
 magnet:?xt=urn:btih:E37F85E1072BB6A1E0A869A9648BC2F0EE3D10D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:E37F85E1072BB6A1E0A869A9648BC2F0EE3D10D0
 ```bash
 magnet:?xt=urn:btih:C1FCDACB3E662F7BEF8D97D1C515743CB94B76BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ CPU-Z способен показать различную информацию 
 magnet:?xt=urn:btih:63DAEFEFA7608A53EF9DB8D0812CBF3480E8976E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:63DAEFEFA7608A53EF9DB8D0812CBF3480E8976E
 ```bash
 magnet:?xt=urn:btih:D484BB3D88EF552FB47EC574FF49E04C4AECC391
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:D484BB3D88EF552FB47EC574FF49E04C4AECC391
 magnet:?xt=urn:btih:7B30A9FDD3C81B1AFED2A3A0EBE93103FF7D93FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:5946DB9E50E058E6A471E46562732E4C583DFD30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Crysis: Warhead - продолжение приключенческого шут
 magnet:?xt=urn:btih:5CB5374964F46B39086ABA513D3FE18454955183
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:5CB5374964F46B39086ABA513D3FE18454955183
 ```bash
 magnet:?xt=urn:btih:4EF9A2B6538ED5211C69D2EF3E68EC413581F70A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:4EF9A2B6538ED5211C69D2EF3E68EC413581F70A
 magnet:?xt=urn:btih:85422EA1958382F29835F0A67A9B07D13C8E478C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:85422EA1958382F29835F0A67A9B07D13C8E478C
 ```bash
 magnet:?xt=urn:btih:B0F0A0E636376DBD44D49667A9A759317E1AD843
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Media Player Classic - BE – универсальный проигрывате�
 magnet:?xt=urn:btih:9479E5963ACB012D2DA4BAF852D078568D7C66AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Macrorit Partition Extender - утилита, доступная также в �
 ```bash
 magnet:?xt=urn:btih:9FE2C333AD3736ECA78CC275B1BCB20AEF26A83D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:9FE2C333AD3736ECA78CC275B1BCB20AEF26A83D
 magnet:?xt=urn:btih:F029ED4BB60B67C193A10A3C85BD54312298F053
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Hogs of War (2000) [Ru/En] (1.0) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:E70B3CD22CB59260631B22CD7C57CBEE98E60B2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Exhumed (1996) [En] (1.0) Repack 1nomok
 magnet:?xt=urn:btih:ED464DA6D76EE249A40875F2906D86E9D0D18928
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Turok: Dinosaur Hunter (1997) [Ru/En] (1.00.012) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:AECEFB7C97720878E1BC7C72ABD5290B44FA3565
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Oni – напряженный боевик в стиле аниме. Агент
 magnet:?xt=urn:btih:9F1F1E025A3A34D2E62C10E31203A49337F530F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Turok 2: Seeds of Evil - это компьютерный шутер от пер�
 ```bash
 magnet:?xt=urn:btih:ADA5CC2F9F42291674F2F6292F6F6967F0563A45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:ADA5CC2F9F42291674F2F6292F6F6967F0563A45
 magnet:?xt=urn:btih:AA620397372E8BA567E2A09A36B5CDEDD9CF3101
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ Crysis 2 Remastered (2022) [Ru/En] (Build 9461303) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:3682A9EAFEB793AE224282B673B7C34797626BDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ World War Zero: Iron Storm (2005) [Ru/En] (1.0) Repack 1nomok
 magnet:?xt=urn:btih:A759A4EBFE190BF0108AE8D0198A22C48850923F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ magnet:?xt=urn:btih:A759A4EBFE190BF0108AE8D0198A22C48850923F
 ```bash
 magnet:?xt=urn:btih:3EF51977234D7820E3048684AEA8028EA6FDC217
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

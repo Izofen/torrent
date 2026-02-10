@@ -1,3 +1,30 @@
+###  Публикация: 1122524   (794154) от 05.04.2017
+
+Барбара Шер | Давно пора! Как превратить мечту в жизнь, а жизнь в мечту (2017) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пошаговый план от Барбары Шер, который поможет вам найти свое призвание и заниматься тем, что вы любите.
+ Если вы давно мечтали о работе, которая дает вам нечто большее, чем зарплату, или хотели заняться своим любимым делом вместо унылой карьеры, не приносящей вам никакой радости - самое время начать! В этой книге Барбара Шер предлагает простые и конкретные инструкции, (   Читать дальше...   )Жанр: Практическая психология. Достижение успеха в жизниФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1C2B5C526A2DD23331DA68E38481FF1E4D9CC26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122718   (794184) от 05.04.2017
 
 Сергей Змеев | Интуитивный Трейдинг. Секреты Нейроинсайдера. Биржевая магия (2017) [FB2, RTF]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:64E99D32C58C78386B004E77A2997F8B59C1A4A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:64E99D32C58C78386B004E77A2997F8B59C1A4A1
 ```bash
 magnet:?xt=urn:btih:9D550333EEBF613300CB1E3631957090F862F0D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +101,8 @@ magnet:?xt=urn:btih:9D550333EEBF613300CB1E3631957090F862F0D7
 magnet:?xt=urn:btih:4DD16470DBD99BED6516890A66C3AAB55F638E8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +129,8 @@ magnet:?xt=urn:btih:4DD16470DBD99BED6516890A66C3AAB55F638E8D
 magnet:?xt=urn:btih:9A7E4655AC476F5DB1E360374BBDA9A672E5D761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +155,8 @@ magnet:?xt=urn:btih:9A7E4655AC476F5DB1E360374BBDA9A672E5D761
 ```bash
 magnet:?xt=urn:btih:330874048C6717C7C0C1B7A31E3653E7849EBDD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +183,8 @@ magnet:?xt=urn:btih:330874048C6717C7C0C1B7A31E3653E7849EBDD0
 magnet:?xt=urn:btih:EB4012899672FBB2C95AB02D8E72634987620A06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +208,8 @@ magnet:?xt=urn:btih:EB4012899672FBB2C95AB02D8E72634987620A06
 ```bash
 magnet:?xt=urn:btih:4D1F5878597ADA5F0A7828D5AA1BE22374EC16CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +235,8 @@ magnet:?xt=urn:btih:4D1F5878597ADA5F0A7828D5AA1BE22374EC16CF
 magnet:?xt=urn:btih:1E328A37B79227DFB8E0454F58E649F54BAC2773
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +260,8 @@ magnet:?xt=urn:btih:1E328A37B79227DFB8E0454F58E649F54BAC2773
 ```bash
 magnet:?xt=urn:btih:7BF617E96247DE2ACC2B288C608984520C4EAC02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +287,8 @@ magnet:?xt=urn:btih:7BF617E96247DE2ACC2B288C608984520C4EAC02
 magnet:?xt=urn:btih:CA34037537CF31CD1BF852C9EA36BCEE79C12811
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +312,8 @@ A. Стульцев | Учебный православный молитвосл
 ```bash
 magnet:?xt=urn:btih:F764758F29E292AD1E2B43CC890A8D2BDB88F6D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +341,8 @@ magnet:?xt=urn:btih:F764758F29E292AD1E2B43CC890A8D2BDB88F6D7
 magnet:?xt=urn:btih:5CB7B12370E536121BCB1506DFBC64400EA70660
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +366,8 @@ magnet:?xt=urn:btih:5CB7B12370E536121BCB1506DFBC64400EA70660
 ```bash
 magnet:?xt=urn:btih:291D56371F4446E5F48A8FF5D97E123286EA45C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +393,8 @@ magnet:?xt=urn:btih:291D56371F4446E5F48A8FF5D97E123286EA45C9
 magnet:?xt=urn:btih:EB533ECAEB6DF3838A588848A66C1686F42C82E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +418,8 @@ magnet:?xt=urn:btih:EB533ECAEB6DF3838A588848A66C1686F42C82E8
 ```bash
 magnet:?xt=urn:btih:C71C993DBD158CD45FB35F6D44DBB0135477AE41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +447,8 @@ magnet:?xt=urn:btih:C71C993DBD158CD45FB35F6D44DBB0135477AE41
 magnet:?xt=urn:btih:7E55D8C518AD8520C64D98A6832C572FB210D4A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +473,8 @@ magnet:?xt=urn:btih:7E55D8C518AD8520C64D98A6832C572FB210D4A9
 magnet:?xt=urn:btih:4D6BFB81983D909329FA0F5B0B3CAD68E1B8D8D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +498,8 @@ magnet:?xt=urn:btih:4D6BFB81983D909329FA0F5B0B3CAD68E1B8D8D1
 ```bash
 magnet:?xt=urn:btih:65041B1846FCC2CC837D6AA348F2B16BB2987FDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +527,8 @@ magnet:?xt=urn:btih:65041B1846FCC2CC837D6AA348F2B16BB2987FDC
 magnet:?xt=urn:btih:4CC5FBB33B49A9B55AA347F48AE859ECCEFBAC1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +555,8 @@ magnet:?xt=urn:btih:4CC5FBB33B49A9B55AA347F48AE859ECCEFBAC1C
 magnet:?xt=urn:btih:E312028FAEE259B634301FECE8FE83A2B5308DCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +580,8 @@ magnet:?xt=urn:btih:E312028FAEE259B634301FECE8FE83A2B5308DCB
 ```bash
 magnet:?xt=urn:btih:BC3058848A83B00D63F04955B01F5209960E0940
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +607,8 @@ magnet:?xt=urn:btih:BC3058848A83B00D63F04955B01F5209960E0940
 magnet:?xt=urn:btih:9014A872337FF224AC20119C0CB0C71219B44532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +632,8 @@ magnet:?xt=urn:btih:9014A872337FF224AC20119C0CB0C71219B44532
 ```bash
 magnet:?xt=urn:btih:C54CA3AA940CD18233884750E9326A7153CFCDB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +662,8 @@ magnet:?xt=urn:btih:C54CA3AA940CD18233884750E9326A7153CFCDB0
 magnet:?xt=urn:btih:247F6058EC9723C3ABA0CA2782FFA2F7D8875A35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,29 +690,7 @@ magnet:?xt=urn:btih:247F6058EC9723C3ABA0CA2782FFA2F7D8875A35
 magnet:?xt=urn:btih:F3487F0D2A19C885EB0F0BFCAAD48A9828886148
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011939   (795216) от 29.04.2016
-
-Дмитрий Щегрикович | Тайский бокс. Книга-тренер (2012) [PDF]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Муай-тай, или, как его часто называют, тайский бокс, – это одно из древнейших боевых искусств, появившееся еще в XIII веке. На Западе широкую известность муай-тай принесли фильмы Брюса Ли в начале 1970-х – и с тех пор его популярность только растет. В Таиланде муай-тай – это не просто спорт, это целая философия и образ жизни. В Европе и Америке тайский бокс утратил (   Читать дальше...   )Жанр: Боевые и спортивные единоборстваФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35E40D1E25B8F0D0919D5CD6F1870A02B7E5B89D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

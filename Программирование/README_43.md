@@ -20,6 +20,8 @@ Apache Tomcat, часто называемый Tomcat, является веб-�
 magnet:?xt=urn:btih:1F430DD6D709E3B4F46EA1DA318CF158245ED6B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:1F430DD6D709E3B4F46EA1DA318CF158245ED6B0
 ```bash
 magnet:?xt=urn:btih:FC3FD6C8B87E54AC5DA5443836A477957CC1A7A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Scala - это язык программирования общего назна
 magnet:?xt=urn:btih:EA3550C9C45CE1516D35F6206CA631EE716C4D0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Solr (произносится как «солнечная») - это поис�
 ```bash
 magnet:?xt=urn:btih:E0883646B38FA5873DA89521092478B086B3BA08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:E0883646B38FA5873DA89521092478B086B3BA08
 magnet:?xt=urn:btih:457A4641159657ADA9D335C35200B930DC3D0FA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:457A4641159657ADA9D335C35200B930DC3D0FA1
 ```bash
 magnet:?xt=urn:btih:301869BB9059CD58264C3A2B9B22B82C644254BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:301869BB9059CD58264C3A2B9B22B82C644254BC
 magnet:?xt=urn:btih:672EFA9B95823AAF3F2BA7E61AF8968D2ECA434B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Maven - инструмент автоматизации сборки, испол
 ```bash
 magnet:?xt=urn:btih:2A8E138CA1C91083F493FC2C9694E41C940C85CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:2A8E138CA1C91083F493FC2C9694E41C940C85CC
 magnet:?xt=urn:btih:B34211EEC28277FCC2833A7E713C4E52A019E35D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Python - широко используемый высокоуровневый, �
 ```bash
 magnet:?xt=urn:btih:FA0BBD8B07254012A28989F4DBEB149512624EE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Fabio Cimo | JavaScript Interview Questions (2016) [PDF] [En]
 magnet:?xt=urn:btih:0FEBE60BEC5AFE3F6CFD4B941958E84B3C1B9A10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Web Code Geeks | PHP Programming Cookbook (2016) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:027B66DCCB83817BE159727729AB7B4D9A4D9419
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ WordPress - это бесплатная система управления ко
 magnet:?xt=urn:btih:CA74052151EA0DD9991E6EB53FD9B8B676519A1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Francesco Azzola | Android UI Design (2014) [PDF] [En]
 magnet:?xt=urn:btih:A3EA183CC4359F6CAB1EF80524BCB4E4FCE4F5A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Chryssa Aliferi | Android Programming Cookbook (2016) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:6A150BFBB5D61E53513C5E0AB895473C2E9358A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ HTML5 - это основной язык разметки технологий �
 magnet:?xt=urn:btih:7F573AD5E325C1653AD095268E192BCD2FBB5CC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Andriy Redko | Advanced Java (2015) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:01C1C1129FF9201014A585D4050366F8EB9070AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ JQuery - это кроссплатформенная JavaScript-библиоте
 magnet:?xt=urn:btih:1F451D473056F1653EBA9EB06D224A14BF34A7D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Fabio Cimo | Web Developer Interview Questions (2016) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:A117437A74EC5785D92685EFDA756AB925CC9E2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Raman Jhajj | Apache Hadoop Cookbook (2016) [PDF] [En]
 magnet:?xt=urn:btih:08E4E943A20B14C614B4988479BF49FB2DF4C64C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Fabio Cimo | The Best Web Programming Languages to Learn (2016) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:13341AD4F8958E08C28BA04D79AE3067B37E6C68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:13341AD4F8958E08C28BA04D79AE3067B37E6C68
 magnet:?xt=urn:btih:73AC3CB2B5BE660B7CF7836681814B94E0E4B270
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Docker является ведущей в мире платформой для �
 ```bash
 magnet:?xt=urn:btih:ADED70D6929929011ABA0AB4294DA924722F3E58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:ADED70D6929929011ABA0AB4294DA924722F3E58
 magnet:?xt=urn:btih:4F12D476D8B2780BAD5DD41DB768A4B79964C094
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Bootstrap - это бесплатная и открытая коллекция �
 magnet:?xt=urn:btih:240A1FEE2A903C1297C10261FE879D004E017565
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Fabio Cimo | How to become a Web Developer (2016) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:420132894813D4E45F52D786B6F978C4B9321FA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

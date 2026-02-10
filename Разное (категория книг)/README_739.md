@@ -1,3 +1,29 @@
+###  Публикация: 971259   (987578) от 02.01.2016
+
+Ю. К. Субботин | Православные таинства (1990) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987578.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассказывается о том, как возникли и для чего служат  главные обряды православия — «таинства». Показывается, что истоки «богоучреждённых» культовых действий лежат в первобытной  магии, с помощью которой наши далекие предки пытались вступить в общение со «сверхъестественными силами» грозной для них  природы. Раскрывается социальная роль таинств (   Читать дальше...   )Жанр: История, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA1426D434E6A1225A6E7AD5C90CE64FA8018963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971258   (987659) от 02.01.2016
 
 М. А. Парнюк | Наука и религия об общественной жизни [Беседы] (1959) [DJVU]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:5B1C4022C52F1050A8D7B6D4868EBF37ECB22E6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:5B1C4022C52F1050A8D7B6D4868EBF37ECB22E6F
 magnet:?xt=urn:btih:2E768CDADC5DB48385B4E3A7F6D67120EE9F1571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:2E768CDADC5DB48385B4E3A7F6D67120EE9F1571
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:2E768CDADC5DB48385B4E3A7F6D67120EE9F1571
 ```bash
 magnet:?xt=urn:btih:C136F0913B58CCE6E0BB888BDC07C83DE7D600F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:C136F0913B58CCE6E0BB888BDC07C83DE7D600F8
 magnet:?xt=urn:btih:7C6FE4EA264F7498BF61F02C92612A4502D29EE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:7C6FE4EA264F7498BF61F02C92612A4502D29EE0
 ```bash
 magnet:?xt=urn:btih:D0CB285BE9E950384993D8EC9FD7B721BFD18D2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:D0CB285BE9E950384993D8EC9FD7B721BFD18D2E
 magnet:?xt=urn:btih:60BD49A1E7D51180161A344DAF8C9028DB130E62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:60BD49A1E7D51180161A344DAF8C9028DB130E62
 ```bash
 magnet:?xt=urn:btih:E736B81A23B6E8C00DB6DA07373EAD93D2B10F6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:E736B81A23B6E8C00DB6DA07373EAD93D2B10F6F
 magnet:?xt=urn:btih:47D2B7BB5A7CB0606C96D955B0DE54BC1CAEAF47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:47D2B7BB5A7CB0606C96D955B0DE54BC1CAEAF47
 magnet:?xt=urn:btih:AA4C1A640A6C4465DC9FDB8340491BB660093065
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:AA4C1A640A6C4465DC9FDB8340491BB660093065
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:AA4C1A640A6C4465DC9FDB8340491BB660093065
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:AA4C1A640A6C4465DC9FDB8340491BB660093065
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:AA4C1A640A6C4465DC9FDB8340491BB660093065
 magnet:?xt=urn:btih:9F14FD2C35C90B47F91BB267A6185A3E05D74AEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:9F14FD2C35C90B47F91BB267A6185A3E05D74AEC
 ```bash
 magnet:?xt=urn:btih:2354AE7726F32FD82CA21CA45224AC7A76106852
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:2354AE7726F32FD82CA21CA45224AC7A76106852
 magnet:?xt=urn:btih:19AAFD7654461B5FF14B1D7DEF508CB5F2628999
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:19AAFD7654461B5FF14B1D7DEF508CB5F2628999
 magnet:?xt=urn:btih:885DBD91D6517EB600E34F9FD60F962F9E859FAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:885DBD91D6517EB600E34F9FD60F962F9E859FAC
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:885DBD91D6517EB600E34F9FD60F962F9E859FAC
 magnet:?xt=urn:btih:82FB4B78C43CF5E739321F96E360DA2F38325F64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:82FB4B78C43CF5E739321F96E360DA2F38325F64
 ```bash
 magnet:?xt=urn:btih:7ADD7904C2180C977C1F3A33752E18D8B5133629
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:7ADD7904C2180C977C1F3A33752E18D8B5133629
 magnet:?xt=urn:btih:EEB302D1F2BC923F5627DA0A573AE24B936F3174
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:EEB302D1F2BC923F5627DA0A573AE24B936F3174
 ```bash
 magnet:?xt=urn:btih:FE0ED1D893A9BF58318D34DD322874431378AB74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:FE0ED1D893A9BF58318D34DD322874431378AB74
 magnet:?xt=urn:btih:F9BA8EFF0E65949CAD2380F0661C12168F663B0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:F9BA8EFF0E65949CAD2380F0661C12168F663B0C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,29 +682,7 @@ magnet:?xt=urn:btih:F9BA8EFF0E65949CAD2380F0661C12168F663B0C
 magnet:?xt=urn:btih:9893EE47B6CF888C69B4619EF9377974E0936628
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 433833   (988130) от 09.01.2012
-
-Народный совет №1 [декабрь 2011] [PDF]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Это издание, в котором вы найдете советы юристов, специалистов из самых разных областей, а также письма читателей. Это ваш консультант по всем жизненно важным вопросам.декабрь 2011Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC083397B5E7276ECCE725F217E065295F15B77A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

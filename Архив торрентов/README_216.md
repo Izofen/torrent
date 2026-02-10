@@ -19,6 +19,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:B584D608B85F9563EA62E288E1251D832A577A6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ IsMyHdOK 3.99 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6C207E12968B4D6B14ADBC540E54C3E9170FD405
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Allavsoft Video Downloader Converter - это мощный видео загру
 magnet:?xt=urn:btih:F87D554A0464614F92DA70FCF0F3037BE5DE84C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ AIDA64 - утилита является мощным средством для 
 ```bash
 magnet:?xt=urn:btih:FBADA229B3A6A3FEBC127A7B1007DCB43AE88A57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ R-Studio Network 9.4 Build 191346 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:B45ED8373F5900CE3D06756C309546EBE59AE3D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:29DFC0C61127953189CD72F44A816DCC69222DAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Driver Booster сканирует и определяет устаревшие �
 magnet:?xt=urn:btih:E4992A6B75CE649BF7EA676737204524D4BB9B62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Adobe Photoshop 2024 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:48E5EE2FD0D8C3AFC8414BC011FAEDFE3DFCF2B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Adobe Photoshop 2024 - новая версия программы для обр�
 magnet:?xt=urn:btih:9596A17361756CA848CA13BB38DF5B5757EC6896
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:B07CD3AB989BF554F3A2FF1CCABD37CC79BCF5AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 magnet:?xt=urn:btih:4629F54C052E57B9DE2AB093AD7656713D805BD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ ES File Explorer (File Manager) — это полнофункциональны�
 magnet:?xt=urn:btih:AD847833D3D19ECE82D6006D2BDC641E8BC7A2C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ WinX VideoProc Converter - усовершенствованная версия, 
 ```bash
 magnet:?xt=urn:btih:5340E75B09380E2CD8B7720AA24A39C36ACDFC1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ SupRemo 4.11.2.2629 [Multi/Ru]
 magnet:?xt=urn:btih:C02A661203F3841AF47A7C731EFA184D63A64801
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:CC6B44DDCD2F533DA990B59CB59930CADD4D2678
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Audacity - свободный, простой в использовании зв
 magnet:?xt=urn:btih:7C13D0CE7BC5CE95A628BA06F8F09D23572EFFB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:7C13D0CE7BC5CE95A628BA06F8F09D23572EFFB6
 ```bash
 magnet:?xt=urn:btih:05506E4197F9CE179CE007A8C63E034EC9AC4B4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Winxvideo AI  - это набор инструментов для масштаб
 magnet:?xt=urn:btih:BC0AB107154A2B8166C6A4BB793CA2DC7425C5AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ R-Studio - основанная на новейшей уникальной те
 ```bash
 magnet:?xt=urn:btih:946CE47A378C8D7B8E1E333B27911652E90C470D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ OBS Студия - бесплатное программное обеспече�
 magnet:?xt=urn:btih:40E646F8A459BEB1BED93F073CF838545510E5F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:FD9283BF8E677E587397E5B458F69BA83CDA5828
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Freemake Video Converter - это бесплатное универсально�
 magnet:?xt=urn:btih:6691AE649E3B3FB60EEE44295A764EBAADE8B562
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ R-Studio Network 9.4 Build 191346 RePack (& Portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:CF8991F410A5D2D7E0437AE0D311E1935DADD979
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Veeam Backup & Replication обеспечивает доступность да�
 ```bash
 magnet:?xt=urn:btih:67AD8091FCBECFE5845777CA3C0212967C4DE7C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ Adobe Illustrator — это принятое в качестве отрасле
 magnet:?xt=urn:btih:84E291B6B6C7CC9244EF230409AF809D99E1437B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Adobe Illustrator — это принятое в качестве отрасле
 ```bash
 magnet:?xt=urn:btih:2AFB12DB514F20596AD803E2AB5E65CE81B6261A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

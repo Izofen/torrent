@@ -22,6 +22,8 @@ Max Shin - 2 Albums (2023) [MP3|320 Kbps] <Punk, Alternative Rock>
 magnet:?xt=urn:btih:50F5369C036DDEC005E261AE9A53A22DF3840FA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:50F5369C036DDEC005E261AE9A53A22DF3840FA1
 ```bash
 magnet:?xt=urn:btih:D914D3D0581C030DBD6C6615654824F370518A5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Stilgar - Живым Или Мёртвым (2023) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:2641F4998E41AF80B0F54791EF45DD93F18821D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:2641F4998E41AF80B0F54791EF45DD93F18821D5
 magnet:?xt=urn:btih:50A650123862790D428397DDECD4C4AAB7E6824E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:50A650123862790D428397DDECD4C4AAB7E6824E
 ```bash
 magnet:?xt=urn:btih:FAE4E65AD98402EFEBE0CFEA11FEEBFDDDD961EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Blackbird Angels - Solsorte (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock
 magnet:?xt=urn:btih:261873D8F3A483734F1B42BB6EB15079DE2D871D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ Entrails - An Eternal Time Of Decay (2022) [FLAC|Lossless|image + .cue] <Death M
 magnet:?xt=urn:btih:03D8457410DBC0FA838239820F4975738E6ADAE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ Chris Warner | Артбук по комиксам Чужой и Хищник / A
 ```bash
 magnet:?xt=urn:btih:3331E0DD1EBD3F4FDC4866B8D7FACDBF5686FE4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ Enrico Pieranunzi, Marc Johnson, Joey Baron - Play Morricone 2 (2002) CAMJazz [F
 magnet:?xt=urn:btih:F056FE93E4B00380FFEE8260C4CD84C77B5C4724
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:F056FE93E4B00380FFEE8260C4CD84C77B5C4724
 ```bash
 magnet:?xt=urn:btih:68497791D1BEED1051D5EEDF191D60F812CC6CEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ Sorrow - Death Of Sorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom, Thra
 magnet:?xt=urn:btih:CD66BE5B12761F61A00413257C2AD9FE78EBF047
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +327,8 @@ CD-03Жанр: Rock, New Wave, Post-PunkПродолжительность: 3 CD
 magnet:?xt=urn:btih:0C73AE7F9C18BFFF00F141A565F27E0C19CED6F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ R-Wipe & Clean - программа от разработчика популяр
 magnet:?xt=urn:btih:6923C4965BB83B77F260ABD549E53EDD23A991DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:6923C4965BB83B77F260ABD549E53EDD23A991DC
 ```bash
 magnet:?xt=urn:btih:656D96647CFE702409AABD5BF5FFE7249907B7E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ VA - Greatest Hits of Piano Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Classica
 magnet:?xt=urn:btih:97F690C8233000EEDBFBD570AF2AF4DE2BB7B4F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ Phase One Capture One - один из лучших профессиональн�
 ```bash
 magnet:?xt=urn:btih:AD6CE6C400706396D572FB7A0935934BE4DC2E14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ magnet:?xt=urn:btih:AD6CE6C400706396D572FB7A0935934BE4DC2E14
 magnet:?xt=urn:btih:16E5EBBE86FCE8368AD3D2949D831F499B1BB111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:16E5EBBE86FCE8368AD3D2949D831F499B1BB111
 ```bash
 magnet:?xt=urn:btih:A602EB8FFA2B364B8E6BC3875401B8C2F4AAE54A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ VA - Dance Remixes 2022 Formentera Edition (2022) [MP3|320 Kbps] <Euro Dance, Cl
 magnet:?xt=urn:btih:F04833F57BC7F64981D21AD99D60917B07CC09D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:F04833F57BC7F64981D21AD99D60917B07CC09D0
 ```bash
 magnet:?xt=urn:btih:A9D4F3312707D7785F93C7BDDE43E775DAD0A15C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ magnet:?xt=urn:btih:A9D4F3312707D7785F93C7BDDE43E775DAD0A15C
 magnet:?xt=urn:btih:EB2D342F307CA55825C8768998A4EA4061357B54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ magnet:?xt=urn:btih:EB2D342F307CA55825C8768998A4EA4061357B54
 ```bash
 magnet:?xt=urn:btih:3E8CED45067C8F21F84BACB5AC72CB074FD50A7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +626,8 @@ Peter Lipa - Moanin' (1984) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz>
 magnet:?xt=urn:btih:B00A2FC411DA26BC13261C2B0DA89B17E228C234
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ magnet:?xt=urn:btih:B00A2FC411DA26BC13261C2B0DA89B17E228C234
 ```bash
 magnet:?xt=urn:btih:C4B7132AEB99EB6D5613644FFA65940F61FE36A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +678,8 @@ DOOM Eternal от id Software – прямое продолжение хита D
 magnet:?xt=urn:btih:33090F084D6EEB33740938C9FEE5A663C98FDDD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:33090F084D6EEB33740938C9FEE5A663C98FDDD5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,110 @@
+###  Публикация: 1476303   (1011263) от 13.06.2021
+
+Bobby McFerrin - Spontaneous Inventions (1986) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись концерта в Лос-Анджелесе 28 февраля 1986 года.
+The Aquarius Theatre, Hollywood.Производство: High Five productionЖанр: Jazz, Voice jazz, IprovisationРежиссер: Bud SchaetzleАктеры: Bobby McFerrinПродолжительность: 00:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F2BC17CF01C4324C5E1220EB2D5CD1DCB83986B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476960   (1011265) от 13.06.2021
+
+Квартирник НТВ у Маргулиса. Группа Нейромонах Феофан (12.06.2021) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011265.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гостях у Евгения Маргулиса — одна из самых необычных групп отечественной эстрады. Участникам удалось совместить несовместимые вещи — drum ’n’ bass и русско-народные мотивы. Музыкальная троица, состоящая из Нейромонаха Феофана, личность которого долгое время находилась в тени, Никодима и Медведя вот уже более 10 лет будоражит всех своими композициями.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:59:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F93997FDC496CCD414C74C133C682FE804C1FA3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475847   (1011274) от 13.06.2021
+
+Little Big - Everybody (Little Big Are Back) (2021) WEB-DLRip [VP9/2160p-LQ] <Raprave, Electronicmusic, Pop>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Little Big - Everybody (Little Big Are Back)Производство: Warner Music RussiaЖанр: Rave, Raprave, Electronicmusic, PopПродолжительность: 00:03:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8616DE83D26378B4923774FBF5FBE9C99CCEC54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475315   (1011947) от 09.06.2021
+
+The Beatles: Если есть любовь 2 / If I Fell (A Hard Day's Night) (1964/2014) BDRip [H.264/1080p] [hand made colored]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Битлы исполняют песню на концерте.
+Клип из фильма A Hard Day's Night полностью колоризован - каждый кадр в отдельности.
+Предыдущий клип: https://nnmclub.to/forum/viewtopic.php?p=11164480#torrentПроизводство: Великобритания / A Walter Shenson Production, Proscenium Films Ltd.Жанр: Мюзикл, комедия, музыкаРежиссер: Ричард ЛестерАктеры: The Beatles, Джон Леннон, Пол МакКартни, Джордж Харрисон, Ринго Старр, Уилфрид Брэмбелл, Норман Россингтон, Джон Джанкин, Виктор Спинетти, Анна КуэйлПеревод: Не требуется (нет диалогов и озвученных комментариев)Язык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 00:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB11F3F2AF4B5BC85559D684B183AE99C133E0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 44739   (1012307) от 06.06.2021
 
 Владимир Высоцкий в Останкино (Монолог, Последний концерт) (22.01.1980) DVD5
@@ -21,6 +128,8 @@
 ```bash
 magnet:?xt=urn:btih:32C217433C6B7C9C22BB9A789980D657C0336E10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +158,8 @@ Lindemann - 21 Music Videos (Censored / Uncensored Versions) (2018-2021) WEB-DL 
 magnet:?xt=urn:btih:FD85FF46AE910724B3851FE0087B45EE865A1C21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +183,8 @@ magnet:?xt=urn:btih:FD85FF46AE910724B3851FE0087B45EE865A1C21
 ```bash
 magnet:?xt=urn:btih:B18F5B61D29DCB31FBC841D181BCB87FDE2EA3C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +212,8 @@ The Beatles: Вся моя любовь / All My Loving (A Hard Day's Night) (19
 magnet:?xt=urn:btih:2EA579FEECE3D40D5040A940E37BBE782AC9D8D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +237,8 @@ magnet:?xt=urn:btih:2EA579FEECE3D40D5040A940E37BBE782AC9D8D7
 ```bash
 magnet:?xt=urn:btih:EE51EA488B8217E0AFC0AD45624F0EFF0186897B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +264,8 @@ magnet:?xt=urn:btih:EE51EA488B8217E0AFC0AD45624F0EFF0186897B
 magnet:?xt=urn:btih:36D3D0E9F887D7B4B47D261E51C6E783565B55D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +290,8 @@ Lindemann: Live in Moscow / Lindemann: Live in Moscow (2021) HDRip
 magnet:?xt=urn:btih:4590ABAB14C1433843F19E51AF74FB5BF7E22CBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +315,8 @@ Motley Crue - The End: Live in Los Angeles (2016) BDRip [H.264/1080p-LQ] [EN]
 ```bash
 magnet:?xt=urn:btih:AD0581D5793FDACEF27D08C21C0F1949DB6BD121
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +344,8 @@ The Beatles: Любовь нельзя купить 2 / Can't Buy Me Love (A Har
 magnet:?xt=urn:btih:76EA26B5A18FC98966EAD72F291254BC778B8534
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +369,8 @@ Greatest Irish Artists - Gaelforce (1997) DVD5
 ```bash
 magnet:?xt=urn:btih:8A3D13D796760FF089E2EB98E9B9D579C97B06E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +396,8 @@ Swinging Bach - Bobby McFerrin and Guests (Live in Leipzig) (2000) DVD5
 magnet:?xt=urn:btih:17FDE30C234443CAA934BA61939BFF4A807205EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +421,8 @@ Mick Fleetwood And Friends - Celebrate The Music Of Peter Green And The Early Ye
 ```bash
 magnet:?xt=urn:btih:629FE4936B50BFA8DAEA6C07C51D502E23626611
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +451,8 @@ Motley Crue: The End – Live in Los Angeles (2016) BDRip [H.264/1080p]
 magnet:?xt=urn:btih:93DEB1E52404CC375773CD0E82D5EAD6C4257D69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +476,8 @@ Education Entertainment Recreation - лимитированное издание
 ```bash
 magnet:?xt=urn:btih:F46448AC4ACE2E8D6A162FDC11EFF7B638302D35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +503,8 @@ Education Entertainment Recreation - лимитированное издание
 magnet:?xt=urn:btih:B8321383473FE70FB9190CF49E7C1376BB494B58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +528,8 @@ magnet:?xt=urn:btih:B8321383473FE70FB9190CF49E7C1376BB494B58
 ```bash
 magnet:?xt=urn:btih:E3821100C53C1F3988049EE1AB85C7D0B9286E31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +555,8 @@ magnet:?xt=urn:btih:E3821100C53C1F3988049EE1AB85C7D0B9286E31
 magnet:?xt=urn:btih:9D2A5B0A8577AE8F3C87031BC6F842A8378E89EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +580,8 @@ magnet:?xt=urn:btih:9D2A5B0A8577AE8F3C87031BC6F842A8378E89EC
 ```bash
 magnet:?xt=urn:btih:DAD46A7293C58E50458A8E1568003237626E021A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +607,8 @@ Nightwish: Decades - Live in Buenos Aires (2019) BDRip [H.265/1080p] [10-bit]
 magnet:?xt=urn:btih:C193A9DA8535B232D0B2E4F6E1FFEF957AB05827
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +632,8 @@ Eagles: Live from the Forum MMXVIII (2020) BDRip [H.265/1080p-LQ] [10-bit]
 ```bash
 magnet:?xt=urn:btih:1DAB20565B7709FE2A8A1ED7BEE064EC6C9024E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +661,8 @@ The Beatles: Я счастлив просто потанцевать с тобо
 magnet:?xt=urn:btih:1A1DF23CDCE1E57DE289A775808E3A88A3E7FD49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,104 +687,7 @@ magnet:?xt=urn:btih:1A1DF23CDCE1E57DE289A775808E3A88A3E7FD49
 magnet:?xt=urn:btih:8AFAA5DB4B1A3F343B2EF8A5039406E82D91DFF9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456279   (1016062) от 14.05.2021
-
-Thundercloud - Lightning Queen (2021) WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Thundercloud  - Lightning Queen (2021) 480p PCMЖанр: Progressive Rock, Heavy Blues RockПродолжительность: 00:04:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BADC1EF06DAA043FEAC6B8F7FCACF5BF99F128B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452999   (1016139) от 14.05.2021
-
-Восьмая Марта - Лётчик (2001) WEBRip [H.264/480p] <Punk>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: AlternativeПродолжительность: 00:03:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33573A96896EBAF8994B08FFA3D2D528D5CB7661
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468167   (1016143) от 14.05.2021
-
-Алексей Глухов (Леша закон) - Твой Куратор из ФСБ (2018) WEB-DL [H.264, 1080p-LQ] <Alternative>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алексей Глухов - Твой Куратор из ФСБ
-01 - Здравствуй (Леша закон)
-02 - Я анархист (Волков)
-03 - Пуля дура (Летов)Жанр: AlternativeПродолжительность: 00:08:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD6553F8B99AD8968ED1DEA32872D6511BF386E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456105   (1016145) от 14.05.2021
-
-Caliban - Intoleranz [Клип] (2021) WEBRip [H.264/1080p-LQ] <Metalcore>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - CALIBAN - Intoleranz (2021) 1080p PCMЖанр: MetalcoreПродолжительность: 00:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:808DAAF371264F084CCD51EB443815E4C0204440
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

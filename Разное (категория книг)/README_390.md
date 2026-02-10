@@ -1,3 +1,30 @@
+###  Публикация: 919260   (583804) от 18.07.2015
+
+Октябрина Ганичкина, Александр Ганичкин | Новая энциклопедия садовода и огородника (2015) [FB2]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта энциклопедия – самое полное и подробное руководство для садоводов и огородников, мечтающих получать высокий урожай и рационально использовать свой загородный участок. Она содержит исчерпывающую информацию по выращиванию и защите овощных, плодовых и декоративных растений:
+   Рекомендации по посадке, подкормке, защите от болезней и вредителей, сбору и хранению урожая (   Читать дальше...   )Жанр: Сад, огородФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D59455600564222DCC8A46FD17815A7762812970
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919439   (583846) от 18.07.2015
 
 Софья Пименова | Чего хотят мужчины и как стать женщиной, интересной лучшим из них (2015) [PDF]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:B364BAD3BCE79CEA5D20D982E00A3E854F2CF4E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@ magnet:?xt=urn:btih:B364BAD3BCE79CEA5D20D982E00A3E854F2CF4E6
 magnet:?xt=urn:btih:B827453616156E75AF958E5DFD2743CB7F56A3E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ magnet:?xt=urn:btih:B827453616156E75AF958E5DFD2743CB7F56A3E9
 ```bash
 magnet:?xt=urn:btih:96D202B9C63E31AD08C8DD090AAE83C89F6EB860
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:96D202B9C63E31AD08C8DD090AAE83C89F6EB860
 magnet:?xt=urn:btih:3E951830C8808FA9C350DD2AB6592B035ABE8353
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +150,8 @@ magnet:?xt=urn:btih:3E951830C8808FA9C350DD2AB6592B035ABE8353
 ```bash
 magnet:?xt=urn:btih:CB0196ADFD13924FAE3FCF5BA8239B6489025456
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +177,8 @@ magnet:?xt=urn:btih:CB0196ADFD13924FAE3FCF5BA8239B6489025456
 magnet:?xt=urn:btih:30EA7F5D43FDBF5631B29BC24508E4D8A6714E32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +203,8 @@ magnet:?xt=urn:btih:30EA7F5D43FDBF5631B29BC24508E4D8A6714E32
 magnet:?xt=urn:btih:286B1372CA51CF7A7B90234CB2A184327FCBE3D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +228,8 @@ magnet:?xt=urn:btih:286B1372CA51CF7A7B90234CB2A184327FCBE3D8
 ```bash
 magnet:?xt=urn:btih:DB05EC7B4EBFE5BFDBC8BA8A43FE949DC2B5FDBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +256,8 @@ magnet:?xt=urn:btih:DB05EC7B4EBFE5BFDBC8BA8A43FE949DC2B5FDBF
 magnet:?xt=urn:btih:843FA70E41F339A15A897624BE387BA4E84BA921
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ magnet:?xt=urn:btih:843FA70E41F339A15A897624BE387BA4E84BA921
 ```bash
 magnet:?xt=urn:btih:CC9AF8955DAFDB6B5E7487E90D4781DC6F5D2058
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +311,8 @@ magnet:?xt=urn:btih:CC9AF8955DAFDB6B5E7487E90D4781DC6F5D2058
 magnet:?xt=urn:btih:A8C61D277065C42F5805D78BC0D6268AFFF60F30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +336,8 @@ magnet:?xt=urn:btih:A8C61D277065C42F5805D78BC0D6268AFFF60F30
 ```bash
 magnet:?xt=urn:btih:057E53D619A55F29991EC3480FAE3905AAE0B833
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +364,8 @@ magnet:?xt=urn:btih:057E53D619A55F29991EC3480FAE3905AAE0B833
 magnet:?xt=urn:btih:B20F6D23D1B126E95DBCA42BDA76EA1055844C50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +390,8 @@ magnet:?xt=urn:btih:B20F6D23D1B126E95DBCA42BDA76EA1055844C50
 magnet:?xt=urn:btih:2430881C25B64DEF662638FBC80BD68D22B44E04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +415,8 @@ magnet:?xt=urn:btih:2430881C25B64DEF662638FBC80BD68D22B44E04
 ```bash
 magnet:?xt=urn:btih:0F3548BE088AA888195CD7D8E3F1E89F610F6198
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +443,8 @@ magnet:?xt=urn:btih:0F3548BE088AA888195CD7D8E3F1E89F610F6198
 magnet:?xt=urn:btih:393C11941BD56A240E9F09B9158A30CEA1F64D01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +469,8 @@ magnet:?xt=urn:btih:393C11941BD56A240E9F09B9158A30CEA1F64D01
 magnet:?xt=urn:btih:BC0E81BBB3791832C323841FE95EFD443353810C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +494,8 @@ magnet:?xt=urn:btih:BC0E81BBB3791832C323841FE95EFD443353810C
 ```bash
 magnet:?xt=urn:btih:FD529E9C0F4374E8D38F73BEC259AAF960C3E6DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +523,8 @@ magnet:?xt=urn:btih:FD529E9C0F4374E8D38F73BEC259AAF960C3E6DA
 magnet:?xt=urn:btih:5293E5994A15C4648A775E2868CA17054F07C4F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +548,8 @@ magnet:?xt=urn:btih:5293E5994A15C4648A775E2868CA17054F07C4F8
 ```bash
 magnet:?xt=urn:btih:D2056A4B304DE0D2CB5DCF444648118D57F1E966
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +575,8 @@ magnet:?xt=urn:btih:D2056A4B304DE0D2CB5DCF444648118D57F1E966
 magnet:?xt=urn:btih:3EC8739546B96A992EEAB79D3D16190F028B1F22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +600,8 @@ magnet:?xt=urn:btih:3EC8739546B96A992EEAB79D3D16190F028B1F22
 ```bash
 magnet:?xt=urn:btih:CC8B0107E694FDD7412EF9CFE9515A35C8227810
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +627,8 @@ magnet:?xt=urn:btih:CC8B0107E694FDD7412EF9CFE9515A35C8227810
 magnet:?xt=urn:btih:8EA680E71C245C89740F340761312567017D085D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +652,8 @@ magnet:?xt=urn:btih:8EA680E71C245C89740F340761312567017D085D
 ```bash
 magnet:?xt=urn:btih:6551761B2B084B373E6A8BAA13F6CA0194C22D8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,30 +680,7 @@ magnet:?xt=urn:btih:6551761B2B084B373E6A8BAA13F6CA0194C22D8D
 magnet:?xt=urn:btih:24463129AE53DBBC14ADE2E7C247A567C3F5B914
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040596   (585063) от 06.08.2016
-
-Ричард Брэнсон | К черту всё! Берись и делай! Полная версия (2014) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сэр Ричард Брэнсон – не просто успешный предприниматель и один из самых богатых людей планеты. Но еще и яркая, нестандартная личность.
-Кредо Брэнсона – брать от жизни все. Это значит не бояться делать то, что хочешь. При этом совершенно неважно, достаточно ли у тебя знаний, опыта или образования. Если есть голова на плечах и достаточно задора в сердце, любая цель (   Читать дальше...   )Жанр: Менеджмент, модели управления, бизнесФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AD09AF6002E16021217A68768A1D0E3D7F89DC7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ VCap Downloader (VCapDL) – это универсальное программ�
 magnet:?xt=urn:btih:71E7F2D46015B39AB61254FAFF67DA1ED28CD9C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Men of Valor (2004) [Ru/Multi] (1.3) License GOG
 magnet:?xt=urn:btih:9FFBC6D200CDD0C0FCCF0787D32E6AC61E88A4F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Inayah - Life after Gods (2025) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:D0B02999EA5FBC44B7498DAC02BA9572467516AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ W.E.T. - супергруппа мелодичного рока, созданн�
 magnet:?xt=urn:btih:BCFAF257650C5857C6100089E9DFD81AB49D79C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:BCFAF257650C5857C6100089E9DFD81AB49D79C6
 ```bash
 magnet:?xt=urn:btih:443E950FC2D9C2F85615EC403973462D3CAB56EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Unholy (2023) [Ru/Multi] (30864) Repack Let'sРlay
 magnet:?xt=urn:btih:2A0BBFDB5AEDCED57B007D2815FA7BFD7E893909
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:2A0BBFDB5AEDCED57B007D2815FA7BFD7E893909
 ```bash
 magnet:?xt=urn:btih:75E649DD0C65E6479534BDCA032E97024C092379
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ MiHome v10.3.700 Mod by Vevs [Ru]
 magnet:?xt=urn:btih:0BA6A97C6405F93F77FE29CADC2BC54283F1F4D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Bаttlеfіеld 4 – это определяющий для жанра, пол�
 ```bash
 magnet:?xt=urn:btih:7BF28C4879FC717D1A79C7C07AA6AA1BED7E24AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:7BF28C4879FC717D1A79C7C07AA6AA1BED7E24AE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Youkai Gakkou no Sensei Hajimemashita! | A Terrified Teacher at Ghoul School! | 
 ```bash
 magnet:?xt=urn:btih:14B8279012D9BC022E6E9CF7758C0555D00441F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:14B8279012D9BC022E6E9CF7758C0555D00441F3
 magnet:?xt=urn:btih:38B7D32DEE7E9DA3DF3EAF41CC3ADF77980C3D07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:38B7D32DEE7E9DA3DF3EAF41CC3ADF77980C3D07
 ```bash
 magnet:?xt=urn:btih:B48D97E425A0B73E70546B5BDE7A1F4BB21D2DE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:B48D97E425A0B73E70546B5BDE7A1F4BB21D2DE0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:B48D97E425A0B73E70546B5BDE7A1F4BB21D2DE0
 ```bash
 magnet:?xt=urn:btih:7FD3A1833DEA035F0728423AC2D463E1046DED12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:7FD3A1833DEA035F0728423AC2D463E1046DED12
 magnet:?xt=urn:btih:D57CC4CF519FC29E12FC748B540BD5CBE7EE9C76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:D57CC4CF519FC29E12FC748B540BD5CBE7EE9C76
 ```bash
 magnet:?xt=urn:btih:8F469134D475B84A23ACD85D7B71137EDA7D3DD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:8F469134D475B84A23ACD85D7B71137EDA7D3DD9
 magnet:?xt=urn:btih:E5111CF90972863ADA924B598FAE264E8C74E937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:E5111CF90972863ADA924B598FAE264E8C74E937
 ```bash
 magnet:?xt=urn:btih:A4DE67DD49C6B3B9A85B2B42BB6D2D1286A6B76A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:A4DE67DD49C6B3B9A85B2B42BB6D2D1286A6B76A
 magnet:?xt=urn:btih:84D5EBA1D1B0F605243771FBB923411CA5AEEBDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Sentai Red Isekai de Boukensha ni Naru | Крaсный рeйнджeр стaнoв
 ```bash
 magnet:?xt=urn:btih:5B2FD066AE7AA9AFD2284D258BBF4EB76D11AA05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Twilight Monk (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:3D7B490D65EE4D774C276F1E12A24917A949AE5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:3D7B490D65EE4D774C276F1E12A24917A949AE5A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:3D7B490D65EE4D774C276F1E12A24917A949AE5A
 magnet:?xt=urn:btih:A54972E873A7FE6A9724440EB1757DBC0B903966
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:A54972E873A7FE6A9724440EB1757DBC0B903966
 magnet:?xt=urn:btih:33B3543DA8217852E8D07472088A2099C3A2DC35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:33B3543DA8217852E8D07472088A2099C3A2DC35
 ```bash
 magnet:?xt=urn:btih:72208A27D8D2AEB62525C8A1E296FE87BF996522
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Geneforge 5: Overthrow - это ролевая приключенческая и
 magnet:?xt=urn:btih:6530BDD756C071EE16E1932297A08B850E73534A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ UnReal World - это уникальное сочетание ролевой и�
 ```bash
 magnet:?xt=urn:btih:D6605B33322C92BB790140844D707887DF777BE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Nanotale - Typing Chronicles (2021) [Ru/Multi] (1.96) License GOG
 magnet:?xt=urn:btih:960E5B5E871489929D4F0EBFB7A1C83D6AE26F56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Dustwind: Resistance - это тактическая одиночная игра
 ```bash
 magnet:?xt=urn:btih:95317DE8A196D9E41FC119B217696AFF4F6CC94B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Monster Hunter Stories 2: Wings of Ruin (2021) [Ru/Multi] (1.6.1/dlc) Repack Fit
 magnet:?xt=urn:btih:3A8E1F38FDDF329478F2E1DEE149F6E0E8950AD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Monster Hunter Stories 2: Wings of Ruin (2021) [Ru/Multi] (1.6.1/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:7B3C7DC4DF88BA93D1E0F5C760F90147D2098566
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Drova - Forsaken Kin - это пиксельное экшен-RPG, вдохно�
 magnet:?xt=urn:btih:CBE11CA0766814CDDF4E06D2AA8FCF1345FC2A58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (57661/dlc) Repack HardwareMining 
 ```bash
 magnet:?xt=urn:btih:51173CB2E22F9DCAD25526A6FE1B7116578D18E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Elder Scrolls IV: Oblivion Remastered представляет собой п
 magnet:?xt=urn:btih:BA47225B4C25A4BB4FF323055B563C8E02279849
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Anima Gate of Memories: 1 and 2 Remaster - ролевой экшен, боева
 ```bash
 magnet:?xt=urn:btih:0616683AA0C96DEED86422C7CD120F8356C92010
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Three Kingdom: The Journey (2022) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:BFC7FEA2005F13746BE04389AB5885CCE7464DEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (179951/dlc) Repack HardwareMining [D
 ```bash
 magnet:?xt=urn:btih:513366DA4997BDFF40EB3673C4821E90F4775FAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Chaos Galaxy 2 – это экономическая, политическая �
 magnet:?xt=urn:btih:096FE68875A895CFC251E85F00A53BD667519F38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Realmz - это фэнтезийная приключенческая ролев
 ```bash
 magnet:?xt=urn:btih:32BF2F93A11D50E7356E4CE72A7D3A84538A3F43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Lost in Random: The Eternal Die объединила динамичный экш
 magnet:?xt=urn:btih:16E05F860DC1C06B3555A9560CC2C2E83C6BBE1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Fallout 4 - это продолжение знаменитой постапок�
 ```bash
 magnet:?xt=urn:btih:03E0D6670F3ADEFDAEA3585DFC6295130222556A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Trinity Fusion (2023) [Ru/Multi] (2.8/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:12F750702569A35276B423EF66423A330348F9F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ ENDER LILIES: Quietus of the Knights (2021) [Ru/Multi] (1.1.6_13932) Repack Let'
 ```bash
 magnet:?xt=urn:btih:38BFBC840416F17DD077849A3666D62488F69A7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Suikoden I & II HD Remaster: Gate Rune and Dunan Unification Wars (2025) [Ru/Mul
 magnet:?xt=urn:btih:E995F4FF67F432A5D46E951F0425E3C085A27773
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ SKALD: Against the Black Priory - игра, вдохновлённая роле�
 ```bash
 magnet:?xt=urn:btih:339B93CB7E9CB3C69E7C83A36F7648BC2BD74B2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Of Ash and Steel (2025) [Ru/Multi] (1.05b) Repack Wanterlude
 magnet:?xt=urn:btih:196EC2F222BF876EB87011E2A04F9812B11863F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Star Ocean: The Divine Force - это JRPG с элементами экшена 
 ```bash
 magnet:?xt=urn:btih:3C0519A0F3650773299F58A2EC198A617E48CB45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Lovely Lady RPG начинается с пробуждения героини п
 magnet:?xt=urn:btih:9122F261FAB1F002C3C2C79813B6B8E3C2F3397F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Fallout 4 - это продолжение знаменитой постапок�
 ```bash
 magnet:?xt=urn:btih:B67A911FE57133696463A31C810C456CAAED39A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ UltraGirl Alters (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:FED87E5F2310A2BD0B7A9FA6F11CCFB2C0B5451C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Alaloth: Champions of The Four Kingdoms (2022) [Ru/Multi] (2025.11.18.994fa78/dl
 ```bash
 magnet:?xt=urn:btih:628C93944F2ED38D86F15FBDD111A2F5336755AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

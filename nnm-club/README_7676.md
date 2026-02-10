@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:77D260C2D74E6F05657B3382FAB36963DB6C0231
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Fiona Boyes - Ramblified (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:B9F9786B95AC09096BE28C48B84551772FBEE78E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mo
 magnet:?xt=urn:btih:C12194C14791DECBCA5433B8841C12CA1E53C585
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:C12194C14791DECBCA5433B8841C12CA1E53C585
 magnet:?xt=urn:btih:53A18EBE02019404D879C69E21871192099763A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ NCH MixPad Masters 10.34 [En]
 ```bash
 magnet:?xt=urn:btih:C53C24187E2C79297C10A0ED2BB467FA856A37C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:C53C24187E2C79297C10A0ED2BB467FA856A37C5
 magnet:?xt=urn:btih:B1AB21381B1E5DA7A04D24F7406591855E1E6909
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:B1AB21381B1E5DA7A04D24F7406591855E1E6909
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:B1AB21381B1E5DA7A04D24F7406591855E1E6909
 magnet:?xt=urn:btih:2817B8F7A324FD019B3C1690C91D997351EE40BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:2817B8F7A324FD019B3C1690C91D997351EE40BB
 ```bash
 magnet:?xt=urn:btih:28409481EB2F7018488D2DA642820C5B5C89C28E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ Cosmic Pimp Band - Space Punk Blues Chicken (2023) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:798772C53E5ED5641996EFE4086086D1A88B7BBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ Maegi - Skies Fall (2013) [WavPack|Lossless|image + .cue] <Power Metal>
 magnet:?xt=urn:btih:D7EBCF5552478B500F493B79ED7DDD61AD37A51A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:D7EBCF5552478B500F493B79ED7DDD61AD37A51A
 magnet:?xt=urn:btih:38B24FA47C0195FC8B2AC95FD8A2A3346012AD7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:38B24FA47C0195FC8B2AC95FD8A2A3346012AD7E
 ```bash
 magnet:?xt=urn:btih:C4FD90B5F6AA29708AF39A96DF5A68BAAE3F4756
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +380,8 @@ Houston - Re-Launch III (2023) [FLAC|Lossless|WEB-DL|tracks] <Vintage-Melodic-Ro
 magnet:?xt=urn:btih:E146815F0C81C39E00C2B1352737E6EE0623DA64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ Crawler - Knight Of The Word (2011) [WavPack|Lossless|image + .cue] <Heavy Metal
 magnet:?xt=urn:btih:028FE157CDBD6B288DF4880C75AF542667FC5D93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ magnet:?xt=urn:btih:028FE157CDBD6B288DF4880C75AF542667FC5D93
 ```bash
 magnet:?xt=urn:btih:BABDEA9B0D541FE30204DCF874554A5F9B04AEE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +464,8 @@ Pandrador - Seidr (2023) [MP3|320 Kbps] <Death Metal>
 magnet:?xt=urn:btih:E70B56F63B980229A7E62DB4F983D67CDE32570D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +493,8 @@ AmongRuins - Land of the Black Sun (2023) [MP3|320 Kbps] <Melodic Death Metal>
 magnet:?xt=urn:btih:39FB6927C0CDDD706A1CFFF345644C39F1A6E4FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +519,8 @@ magnet:?xt=urn:btih:39FB6927C0CDDD706A1CFFF345644C39F1A6E4FA
 magnet:?xt=urn:btih:2C17A09C58F2EDF5CE1FC13F0A5A59620A2727EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:2C17A09C58F2EDF5CE1FC13F0A5A59620A2727EC
 ```bash
 magnet:?xt=urn:btih:A96F90174F4A75ACC456F3C00EAC292598E2ABB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +574,8 @@ Lance Lopez - Trouble Is Good (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:51CBE356A74218A760A552663D2A44B0222877C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +603,8 @@ Cave In - Until Your Heart Stops (1999) Deluxe Edition, 2023, Relapse Records [F
 magnet:?xt=urn:btih:8ECC3B1008C48117CB98097C7F5223C201E56E30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +628,8 @@ magnet:?xt=urn:btih:8ECC3B1008C48117CB98097C7F5223C201E56E30
 ```bash
 magnet:?xt=urn:btih:797567899B20983B3671F38516042A34B0567106
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +658,8 @@ Boris Vian - Les Annees Jazz (1930-e - 1940-e) 2002, Puzzle Productions [FLAC|Lo
 magnet:?xt=urn:btih:C35089078CAC78E4945694E1C8FC557334C8BC52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +687,8 @@ The Kryptik - A Journey to the Darkest Kingdom (2023) [MP3|320 Kbps] <Black Meta
 magnet:?xt=urn:btih:1E357F67BD165418C305D809E3785278F523191A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +712,8 @@ magnet:?xt=urn:btih:1E357F67BD165418C305D809E3785278F523191A
 ```bash
 magnet:?xt=urn:btih:BBE8CAD85958151B3682F647FC0769E8BF292CC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 750148   (951453) от 27.01.2014
+
+Антонина Пирожкова | Я пытаюсь восстановить черты (2013) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антонину Николаевну Пирожкову еще при жизни называли одной из великих вдов. Сорок лет она сначала ждала возвращения Исаака Бабеля, арестованного органами НКВД в 1939 году, потом первой после смерти диктатора добилась посмертной реабилитации мужа, "пробивала" сочинения, собирала воспоминания о нем и написала свои.
+В них она попыталась "восстановить (   Читать дальше...   )Жанр: Биографии и мемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74AF5B399BEA7B0C746EF5BBB8F01E2A89A5CCA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089483   (951465) от 03.01.2017
 
 Тео Цаусидис | Мозг с препятствиями. 7 скрытых барьеров, которые мешают вам достигать целей (2016) [FB2]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:E3D7F2D82FF07C894173BD20983886824CAA8E7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:E3D7F2D82FF07C894173BD20983886824CAA8E7C
 magnet:?xt=urn:btih:A0A5726EB10C3578D63FEC7AEF5D2C83029F829D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ magnet:?xt=urn:btih:A0A5726EB10C3578D63FEC7AEF5D2C83029F829D
 magnet:?xt=urn:btih:FC74EC86B17EFBDB9AD2CC944B5E67B1A92A070C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +123,8 @@ magnet:?xt=urn:btih:FC74EC86B17EFBDB9AD2CC944B5E67B1A92A070C
 ```bash
 magnet:?xt=urn:btih:66C4676C7DA9835C51EEBCB27D23CB850DA61039
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +151,8 @@ magnet:?xt=urn:btih:66C4676C7DA9835C51EEBCB27D23CB850DA61039
 magnet:?xt=urn:btih:BF1839608BE31323748F528993DE474457C344CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +177,8 @@ magnet:?xt=urn:btih:BF1839608BE31323748F528993DE474457C344CB
 magnet:?xt=urn:btih:1BEDF8ACB87D152EC023B2B02CCB8B64E30F481A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +202,8 @@ magnet:?xt=urn:btih:1BEDF8ACB87D152EC023B2B02CCB8B64E30F481A
 ```bash
 magnet:?xt=urn:btih:9864199A96BE04B4BFEFAA3B036AF1698DE9655D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +231,8 @@ B монографии исследуются отношения между хр
 magnet:?xt=urn:btih:665D8258F5A69C21877078F1B6236DDC52874402
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +256,8 @@ magnet:?xt=urn:btih:665D8258F5A69C21877078F1B6236DDC52874402
 ```bash
 magnet:?xt=urn:btih:42D6AC6F64F3942A82C91FF9E0579BBD4845BB38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +283,8 @@ magnet:?xt=urn:btih:42D6AC6F64F3942A82C91FF9E0579BBD4845BB38
 magnet:?xt=urn:btih:3A0AF2C9192F805F437C297DD5AEBBE0F0A28339
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +308,8 @@ magnet:?xt=urn:btih:3A0AF2C9192F805F437C297DD5AEBBE0F0A28339
 ```bash
 magnet:?xt=urn:btih:53010C2B24E0FCB49A380C0002724BB29C430E8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +335,8 @@ magnet:?xt=urn:btih:53010C2B24E0FCB49A380C0002724BB29C430E8C
 magnet:?xt=urn:btih:B854C52C226297C4928A4A2D39A7BCA10656E708
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +360,8 @@ magnet:?xt=urn:btih:B854C52C226297C4928A4A2D39A7BCA10656E708
 ```bash
 magnet:?xt=urn:btih:880ADF1B40E81D97813D939173D3AAFBF7D1F619
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +387,8 @@ magnet:?xt=urn:btih:880ADF1B40E81D97813D939173D3AAFBF7D1F619
 magnet:?xt=urn:btih:7DF8158B493FA98BE3B0088C06EA71120288FB84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +412,8 @@ magnet:?xt=urn:btih:7DF8158B493FA98BE3B0088C06EA71120288FB84
 ```bash
 magnet:?xt=urn:btih:6A74130B75C43F1F8FD046DE002D5C7F4F66855F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +439,8 @@ magnet:?xt=urn:btih:6A74130B75C43F1F8FD046DE002D5C7F4F66855F
 magnet:?xt=urn:btih:1D2579F592DCA1B10F519B9B49C824A38586B7C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +464,8 @@ magnet:?xt=urn:btih:1D2579F592DCA1B10F519B9B49C824A38586B7C8
 ```bash
 magnet:?xt=urn:btih:DCF3C6E86630B45AB06611454C97DBA17A99EFAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +494,8 @@ magnet:?xt=urn:btih:DCF3C6E86630B45AB06611454C97DBA17A99EFAC
 magnet:?xt=urn:btih:37276B90B87710A8C4EA08A7911676D4B149F603
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +520,8 @@ magnet:?xt=urn:btih:37276B90B87710A8C4EA08A7911676D4B149F603
 magnet:?xt=urn:btih:5D063CB755B134822A01582DBDE9672CD018BD8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +545,8 @@ magnet:?xt=urn:btih:5D063CB755B134822A01582DBDE9672CD018BD8B
 ```bash
 magnet:?xt=urn:btih:C9C937C8ADE32FA2E0BC395A4FCB60306794EF5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +573,8 @@ magnet:?xt=urn:btih:C9C937C8ADE32FA2E0BC395A4FCB60306794EF5C
 magnet:?xt=urn:btih:21D031F74FF4A8742B9C4BB6411791430590E51F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +599,8 @@ magnet:?xt=urn:btih:21D031F74FF4A8742B9C4BB6411791430590E51F
 ```bash
 magnet:?xt=urn:btih:26511CC005F918113D561450FD0389BB14CCD3BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +627,8 @@ magnet:?xt=urn:btih:26511CC005F918113D561450FD0389BB14CCD3BB
 magnet:?xt=urn:btih:AC2C7A159A227F8EAF6D85C078FDF8CACA4F9D78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +652,8 @@ magnet:?xt=urn:btih:AC2C7A159A227F8EAF6D85C078FDF8CACA4F9D78
 ```bash
 magnet:?xt=urn:btih:D8C702CCF3DF60308EF8653F953389A2A279945A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,29 +680,7 @@ magnet:?xt=urn:btih:D8C702CCF3DF60308EF8653F953389A2A279945A
 magnet:?xt=urn:btih:21792EBDDEFE4904BDAF770A22C64BF22D4890DC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981006   (954009) от 30.01.2016
-
-Скотт Джурек, Стив Фридман | Ешь правильно, беги быстро. Правила жизни сверхмарафонца (2014) [PDF, FB2, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скотт Джурек – сверхмарафонец, то есть соревнуется на дистанциях больше марафонских, вплоть до 200-мильных. Эта книга – не просто захватывающая автобиография. Это еще и советы профессионала по технике бега и организации тренировок на длинные и сверхдлинные дистанции. Это система питания: Скотт при своих огромных нагрузках – веган, то есть питается только натуральными (   Читать дальше...   )Жанр: Психология, Спорт, Здоровье, ПитаниеФормат: PDF, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72D981CF1F219C41312B192772D2A01FEEE4CF7E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

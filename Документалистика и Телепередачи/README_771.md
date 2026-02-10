@@ -1,3 +1,29 @@
+###  Публикация: 1611842   (1040746) от 13.02.2023
+
+Холокост — клей для обоев? (2013) HDRip [H.264]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cестры Каратыгины получили то, к чему стремятся многие их ровесники – всероссийскую известность. Именно за ней они пришли на Муз ТВ, в программу «Безумно красивые», чтобы принять участие в примитивной викторине. Среди других им попался вопрос: «Что такое Холокост?» Ксения и Евгения дали короткий ответ: «Клей для обоев» – и взорвали русскоязычный интернет. Ролик с (   Читать дальше...   )Телекомпания: Россия / Бактрия фильмЖанр: ДокументальныйРежиссер: Мумин ШакировПеревод: Не требуетсяЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:00:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80E3B25C7FB8C696FAB89FCE4CC0CABCCB51D194
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611761   (1040786) от 13.02.2023
 
 Игрушки, которые сделали нас / The Toys That Made Us (2019) WEB-DL [H.264/1080p] (сезон 3, серии 1-4 из 4) OMSKBIRD [AD]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:2F7558F5478D85B374896F99F7F7401E83B46E07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:2F7558F5478D85B374896F99F7F7401E83B46E07
 magnet:?xt=urn:btih:82EFFEF99112EA173360BEE9B7F34726EEA97B0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:82EFFEF99112EA173360BEE9B7F34726EEA97B0C
 ```bash
 magnet:?xt=urn:btih:A1435E8950C523E6DDA943039540A3E35CF23FB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:A1435E8950C523E6DDA943039540A3E35CF23FB1
 magnet:?xt=urn:btih:BEEC52E9063F3F9C253A6C7FB8C4A9E9C0D3987C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:BEEC52E9063F3F9C253A6C7FB8C4A9E9C0D3987C
 ```bash
 magnet:?xt=urn:btih:9C39896901212D9DF8FF653CB73C645E8C7A88E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:9C39896901212D9DF8FF653CB73C645E8C7A88E2
 magnet:?xt=urn:btih:D6807FB3511D9FFAA4C1BB64D493D0DDCDEA612A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:D6807FB3511D9FFAA4C1BB64D493D0DDCDEA612A
 ```bash
 magnet:?xt=urn:btih:62C990083D8660D26B3A5303093539D7847E945E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:62C990083D8660D26B3A5303093539D7847E945E
 magnet:?xt=urn:btih:813ABD9E0F9A2D90F6643273D443D123982E78E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:813ABD9E0F9A2D90F6643273D443D123982E78E6
 ```bash
 magnet:?xt=urn:btih:C304CDFCA0F99B25FB4B3CD8DB966B44E3455BC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:C304CDFCA0F99B25FB4B3CD8DB966B44E3455BC8
 magnet:?xt=urn:btih:B1DD2312060CF9DCDC5814906BBDE07FE1EB2B93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:B1DD2312060CF9DCDC5814906BBDE07FE1EB2B93
 ```bash
 magnet:?xt=urn:btih:7C1A2B31DFED84C3551E4A7C715CAB24E6C45860
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:7C1A2B31DFED84C3551E4A7C715CAB24E6C45860
 magnet:?xt=urn:btih:538561EB2C29047B717CB564A2C8FA6BAD9B53FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:538561EB2C29047B717CB564A2C8FA6BAD9B53FD
 ```bash
 magnet:?xt=urn:btih:A2DA70D2CE28F96E51CB236F278B2F593F1F37A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:A2DA70D2CE28F96E51CB236F278B2F593F1F37A7
 magnet:?xt=urn:btih:81B2199903E9A75DFD4DD033E933E9D70508788A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +408,8 @@ magnet:?xt=urn:btih:81B2199903E9A75DFD4DD033E933E9D70508788A
 ```bash
 magnet:?xt=urn:btih:48F61B20148E87A94121C131B9EB8C603A0156D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:48F61B20148E87A94121C131B9EB8C603A0156D1
 magnet:?xt=urn:btih:9C32645E6D2E41B502B0E08693753510016500E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +460,8 @@ magnet:?xt=urn:btih:9C32645E6D2E41B502B0E08693753510016500E8
 ```bash
 magnet:?xt=urn:btih:8D23117FD3B74409E7748E6DE3B89CAAF2A4715E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:8D23117FD3B74409E7748E6DE3B89CAAF2A4715E
 magnet:?xt=urn:btih:660F12272713C7AC0194BE280A0D6720EED30040
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +512,8 @@ magnet:?xt=urn:btih:660F12272713C7AC0194BE280A0D6720EED30040
 ```bash
 magnet:?xt=urn:btih:D31DEB4451D2C9462DDF432DA4D47F807137FF7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +539,8 @@ magnet:?xt=urn:btih:D31DEB4451D2C9462DDF432DA4D47F807137FF7F
 magnet:?xt=urn:btih:5A24EA285972907C9BB07844E4CE4E44DF608502
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +564,8 @@ magnet:?xt=urn:btih:5A24EA285972907C9BB07844E4CE4E44DF608502
 ```bash
 magnet:?xt=urn:btih:FA49628A5E61D12B14034F008E052BD005E1F60F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +591,8 @@ magnet:?xt=urn:btih:FA49628A5E61D12B14034F008E052BD005E1F60F
 magnet:?xt=urn:btih:ECDD034DD1B81EE02B5878AD1049362F6FA36681
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +616,8 @@ magnet:?xt=urn:btih:ECDD034DD1B81EE02B5878AD1049362F6FA36681
 ```bash
 magnet:?xt=urn:btih:79EB540A73E48E73B298A547BBB387C20B0A96FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +643,8 @@ magnet:?xt=urn:btih:79EB540A73E48E73B298A547BBB387C20B0A96FC
 magnet:?xt=urn:btih:4C9536E230E8E294F774F01C7FAC7D3F48CDD32F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,29 +669,7 @@ RISE - моё первое короткометражное видео с воз
 magnet:?xt=urn:btih:115C684E6CE583A0A88509F728190AB40DDD91BE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438318   (1041117) от 08.01.2021
-
-Среди древних - Калифорния / Among the Ancients - California (2016) WEBRip [H.264/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Горный хребет Восточная Сьерра предлагает чрезвычайно широкий спектр уникальных природных особенностей, от самых старых живых деревьев в мире до необычных пустынных арок. Помимо невероятного ландшафта, этот район Калифорнии также предлагает потрясающие яркие виды на Млечный Путь и ночное небо.Производство: СШАЖанр: Документальный, видовойРежиссер: Майкл ШейнблюмПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:02:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2CA3E1909D303313DCA2DECDC2333F70BFAD5BA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

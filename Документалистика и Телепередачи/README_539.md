@@ -1,3 +1,29 @@
+###  Публикация: 1021054   (742180) от 28.05.2016
+
+Научное расследование Сергея Малозёмова. Еда живая и мертвая (2016.05.28) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742180.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Еда живая и мертвая» – новый научно-популярный цикл Сергея Малозёмова, репортера с медицинским образованием, автора и ведущего программы «Чудо техники» и научных расследований о климате, технологиях, бессмертии и экологии.Производство: НТВЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DE525F6BECF763BCE17BFB1ED66E4BF1D29529A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021139   (742181) от 28.05.2016
 
 Своя игра (28.05.2016) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:0B3DC0F4AF970877CA0F425E0C32880645B5C18C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:0B3DC0F4AF970877CA0F425E0C32880645B5C18C
 magnet:?xt=urn:btih:5BA625EF04628EAC3385217E5D57F731B2B5AE9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:5BA625EF04628EAC3385217E5D57F731B2B5AE9C
 ```bash
 magnet:?xt=urn:btih:75B89B8C5D72875D2AA1D10E764A4C54DD09348E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:75B89B8C5D72875D2AA1D10E764A4C54DD09348E
 magnet:?xt=urn:btih:38D40C93CFB19CC0DC935EC8391EDA9C40FA281A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:38D40C93CFB19CC0DC935EC8391EDA9C40FA281A
 ```bash
 magnet:?xt=urn:btih:C22FBD8113B8613ABB9F00B1D8BEDE0C08F370A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:C22FBD8113B8613ABB9F00B1D8BEDE0C08F370A7
 magnet:?xt=urn:btih:644E6F2BE9803DBD1FA8FF3300C187ED124177DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:644E6F2BE9803DBD1FA8FF3300C187ED124177DB
 ```bash
 magnet:?xt=urn:btih:70693D1341FF7407C11CA97017029CEB2BE8DA40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:70693D1341FF7407C11CA97017029CEB2BE8DA40
 magnet:?xt=urn:btih:F11AE79693A526BE97D7CECA19FFBE831E493179
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:F11AE79693A526BE97D7CECA19FFBE831E493179
 ```bash
 magnet:?xt=urn:btih:AAD35B8E44B81A75064AF57194E6327644C3C68C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:AAD35B8E44B81A75064AF57194E6327644C3C68C
 magnet:?xt=urn:btih:FCB5A77A292E8DCF64E69869A14E4524DF609AE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:FCB5A77A292E8DCF64E69869A14E4524DF609AE3
 ```bash
 magnet:?xt=urn:btih:4054552B6BA47B9364E114A6E825705A2E2278BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:4054552B6BA47B9364E114A6E825705A2E2278BA
 magnet:?xt=urn:btih:D4EA13C1B20F5A43C437C5014CD0FBD5A35564F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:D4EA13C1B20F5A43C437C5014CD0FBD5A35564F8
 ```bash
 magnet:?xt=urn:btih:AD4C6CD2398A5110AE4BFFA5B1075F6236A2FFAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:AD4C6CD2398A5110AE4BFFA5B1075F6236A2FFAC
 magnet:?xt=urn:btih:09AF85C87E338ACDFD6E6CB7332AF28FC7767E54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:09AF85C87E338ACDFD6E6CB7332AF28FC7767E54
 magnet:?xt=urn:btih:13A5EEAC9C93EE0529169F5804D11623D13A9B26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:13A5EEAC9C93EE0529169F5804D11623D13A9B26
 ```bash
 magnet:?xt=urn:btih:DFEB6D132507347AF5CADFDE1E2E2925749E1DD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:DFEB6D132507347AF5CADFDE1E2E2925749E1DD0
 magnet:?xt=urn:btih:E6904516A345EC14E160668BC3C69B846C5D6251
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:E6904516A345EC14E160668BC3C69B846C5D6251
 ```bash
 magnet:?xt=urn:btih:50CD3F01B169180DE42694B31C8E14941F4416C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:50CD3F01B169180DE42694B31C8E14941F4416C0
 magnet:?xt=urn:btih:E33C5591F0FE28DE82A089F6EC0256EEE9864BE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:E33C5591F0FE28DE82A089F6EC0256EEE9864BE7
 ```bash
 magnet:?xt=urn:btih:42586630523EF7FE8082CB13B61581900FB75EEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:42586630523EF7FE8082CB13B61581900FB75EEC
 magnet:?xt=urn:btih:F7CE9A2BC49F976A3119158A49461A3AED50DA20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:F7CE9A2BC49F976A3119158A49461A3AED50DA20
 magnet:?xt=urn:btih:D026AEC8E30D5257B0E627A52234B499E68FF5EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +623,8 @@ BBC. Большой город. Как живут в Гонконге / World's 
 ```bash
 magnet:?xt=urn:btih:52FA742F64537A6DB7C278AB5DC47031989DD6E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:52FA742F64537A6DB7C278AB5DC47031989DD6E5
 magnet:?xt=urn:btih:916AC69E32823BC50EE5CA32E90934967D6772AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,29 +676,7 @@ BBC. Нескучный Амстердам / Secret Cities. Amsterdam (2018) HDT
 magnet:?xt=urn:btih:CCED03527D58A4AE0B9DF6903DDF6EECA2E65B48
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 784101   (742652) от 06.05.2014
-
-Остров Крым. Выпуск 20. По крымским маршрутам (2014.05.06) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742652.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Остров Крым" - цикл документальных фильмов, которые расскажут об удивительной истории, невероятной природе, уникальных артефактах и достопримечательностях Крымского полуострова. Мы отправимся в путешествие по самым знаковым местам полуострова вместе с ведущими - Александром Олешко, Валдисом Пельшем, Дмитрием Харатьяном, Ариной Шараповой, Геннадием Хазановым (   Читать дальше...   )По крымским маршрутамЖанр: ДокументальныйРежиссер: Людмила Снигирева, Илья Петров, Андрей ЛиничПродолжительность: 00:27:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D0F1C83D39F0D2DCDC59A9F1247373B838B77E6
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

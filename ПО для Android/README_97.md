@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5DEB52DC283E935ED9A8233DB9FF09255ADCC177
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ CCSWE App Manager - был разработан для пользователе�
 ```bash
 magnet:?xt=urn:btih:18DAD742B78CE97C28F2702293061223DD22D4C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Equalizer FX — программа поможет Вам улучшить зв�
 magnet:?xt=urn:btih:8E52BE84B01E7C1258A4C873FD0210D69D074BFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Pulsar - прекрасный представитель своего класс
 ```bash
 magnet:?xt=urn:btih:04140814C9B5C9E0D323784E3104B0E1DA5CC51C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Weather Radar Live Tracker PRO v1.0 [Ru/Multi]
 magnet:?xt=urn:btih:3C84E5766D5AD978C40330E84EEAF1B4AE320C65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Flat Equalizer - Bass Booster - это приложение для улучше�
 ```bash
 magnet:?xt=urn:btih:C3680978A009BED3B5508EC89886DFAD1B85C884
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ VPN с высоким уровнем шифрования, бесплатный 
 magnet:?xt=urn:btih:B16A60D5972AC63D599616D9ECC8AAEFF5BFC737
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:B16A60D5972AC63D599616D9ECC8AAEFF5BFC737
 magnet:?xt=urn:btih:11C332463D695E31117D15BE28BAC7843151BDF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ BlackPlayer Music Player / BlackPlayer EX 20.61 Mod by Balatan, CMAPTOC [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:FB8E71034E56C1B47036BE4B569F6E43169430FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ KReader - это простое в использовании и легко на
 magnet:?xt=urn:btih:4289E4D42BBFB7A5C9B9C995ECD281B00C7FBD5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Marine Traffic отображает в реальном времени пози�
 magnet:?xt=urn:btih:09518A1FB92875054FC1962C6A386F6DDB0D9EDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Shuttle+ Music Player – это простое, удобное и минима�
 ```bash
 magnet:?xt=urn:btih:0617E20086FBF9C29296ACA1FCE1CA634A4FF994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:0617E20086FBF9C29296ACA1FCE1CA634A4FF994
 magnet:?xt=urn:btih:F5B90E79B2515610804DAE2C80A819CDB06AAE44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:F5B90E79B2515610804DAE2C80A819CDB06AAE44
 ```bash
 magnet:?xt=urn:btih:F212AFC37F0C5424A71D2084BCF1C62EB600B4D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ J-Mobile разработана для ГНСС приемников JAVAD TRIUM
 magnet:?xt=urn:btih:63A36CC44CDBE42329C283C01BF48C4D0252C61A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ SMS Backup & Restore — утилита для создания резервны
 ```bash
 magnet:?xt=urn:btih:19116B82E5EB3C9E971FAD4D3FA893334D2D612A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Pixlr - фоторедактор с множеством бесплатных ф
 magnet:?xt=urn:btih:4844D383C12BE0ACCAE3A069DD9C33F23BECCC3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Video Converter, Compressor — это мощный видео конверте�
 ```bash
 magnet:?xt=urn:btih:124293D5B9A4D8BDCC8267A6E468C81E10A4A2A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:124293D5B9A4D8BDCC8267A6E468C81E10A4A2A8
 magnet:?xt=urn:btih:AE1569DD394A7943009A882FDD919C9CDC649840
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:AE1569DD394A7943009A882FDD919C9CDC649840
 ```bash
 magnet:?xt=urn:btih:D386F04E5C6FECC84535EABBC99A030F31018D12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Supershift – это календарь, созданный для работа
 magnet:?xt=urn:btih:C1DCA551D713242952980ED1EFA856139C008444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Momo Music Player 1.5 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:947947D5DC963CF5443DDC02DF9F691B8BED74C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ PickU - AI обрезка фотографий и удаления фона, к�
 magnet:?xt=urn:btih:E0C2A5622A93C14849C84B11E3855A9C13A6F4AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Electronics Calculator Pro представляет собой приложен�
 ```bash
 magnet:?xt=urn:btih:E589B4F46591A90A116448B174E9AEFD010334A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ SMD info v1.34 [Ru]
 magnet:?xt=urn:btih:8419B149864F6245BE568FB57B6AFF1C59C49D46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Rain Alarm - предупреждает вас о актуальном приб�
 ```bash
 magnet:?xt=urn:btih:84307AC2DC8D4EC4981F5CCDB542A2BF83F9635D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

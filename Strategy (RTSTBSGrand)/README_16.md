@@ -19,6 +19,8 @@ Eador: Genesis / Эадор. Сотворение (2009) [Ru/Multi] (1.05.2 Lang
 magnet:?xt=urn:btih:CF0AA4993D5AE943B0524F2F6C0D5BC9EC9CB03C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Napoleon: Total War + 8 DLC [Ru] (RePack/1.3.0.1754.335753) 2010 | Fenixx
 magnet:?xt=urn:btih:47718ADECDDCAFFF4A5A995B6378CFF8A9C06951
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Dungeons 3 / Dungeons III (2017) [Ru/Multi] (1.6.0/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:244AFC95A916D11DE374194778531FD68A0DB4F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Imperator: Rome — новейшая масштабная стратегия о�
 magnet:?xt=urn:btih:32BEC703BF0D11D80F0BBC749C90AFE98EBDB462
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Thea 2: The Shattering (2019) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:87830C6C9633A2835AC3E48F53A5FD8833AB0C66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Red Alert 3 - Uprising представляет собой глобальное 
 magnet:?xt=urn:btih:DE822F68AD7D5326D229DEA9CDDDABB6D0FFB669
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:DE822F68AD7D5326D229DEA9CDDDABB6D0FFB669
 ```bash
 magnet:?xt=urn:btih:D321F94556F206492C7614AD06F6BDC1B6E14EB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Red Alert 3 - Uprising представляет собой глобальное 
 magnet:?xt=urn:btih:51F22865475845F2ED46B2F040B88AF99305DAEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Command & Conquer 3: Tiberium Wars — компьютерная игра в жа
 ```bash
 magnet:?xt=urn:btih:DF80539C8DBC771EE87408333734A7736E916691
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Battlevoid: Harbinger, суровый гибрид стратегии и rogueli
 magnet:?xt=urn:btih:68265256981A526AE3B2911CD2642F4467E37F53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Command & Conquer 3: Kane’s Wrath / Ярость Кейна (2008) [Ru] (1.02)
 ```bash
 magnet:?xt=urn:btih:8C7A4B3B2703062FAD4A7D80DE5F80AA8F7C741A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Empire Earth 3 (2007) [En] (1.0) License GOG
 magnet:?xt=urn:btih:56436AB164FE7B580B20384653E625A59A95E629
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ MarZ: Tactical Base Defense (2019) [Ru/Multi] (1.0/upd6) Repack xatab
 ```bash
 magnet:?xt=urn:btih:C6013D7FDE5B5775541CEAA29C10207592771F53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Battlezone 98 Redux (2016) [Ru/Multi] (2.1.192/dlc) Repack Other s [Odyssey Edit
 magnet:?xt=urn:btih:CAB268AF78D48E4BEDD7E0DE87AF81890D52B3DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Metal Fatigue - стратегия в реальном времени, кото�
 ```bash
 magnet:?xt=urn:btih:CA1ACB0AD636EC9704CCA81C8B2692CCCD73E546
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Northgard (2018) [Ru/Multi] (1.7.12920/dlc) License PLAZA
 magnet:?xt=urn:btih:12C24E26D9DF5FB87B70172842DD70D84A041BEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Thea: The Awakening - это гексагональная пошаговая с�
 ```bash
 magnet:?xt=urn:btih:1161B18F718634ACAA0A7941075C2699461C9777
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Weedcraft Inc изучает индустрию производства, выр
 magnet:?xt=urn:btih:8C6FCF5760EFC00C54EFB5D38EB9153B3B764560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Total War: SHOGUN 2 (2011) [Ru/Multi] (1.1.0/dlc) SteamRip R.G. Origins [Complet
 ```bash
 magnet:?xt=urn:btih:7C782B7809745D09650FF26B7B01D8A2BB97005F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Impossible Creatures (2003) [Ru/En] (1.1) License GOG
 magnet:?xt=urn:btih:5799D7BFB63923BDF99F33B6D3EE86E102EC01C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Perimeter / Периметр (2004) [Ru/En] (1.03.19064) License GOG
 ```bash
 magnet:?xt=urn:btih:5664BC4CD59096179C4463C89BCC8EF6A082FB39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Total War: ROME II / Total War: Rome 2 (2013) [Ru/Multi] (2.4.0.19728/dlc) Steam
 magnet:?xt=urn:btih:074C0D98A5E903CC229F6EB739347EFB27B3129D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ WAR PARTY (2019) [Ru/Multi] (1.0.4) Repack Other s
 magnet:?xt=urn:btih:708F516F8C41C68E49F894D3B9CBF24611B15C15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Warcraft II (1999) [Multi] (2.02v4) License GOG [Battle.net Edition]
 ```bash
 magnet:?xt=urn:btih:E5749B6FA5437D3C97C97546F377D9A82A6DD579
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ Citadels – историческая стратегия в реальном в�
 magnet:?xt=urn:btih:99EEE6E9BCD7F261A988780CE0CEDE08C344FB17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Weedcraft Inc изучает индустрию производства, выр
 ```bash
 magnet:?xt=urn:btih:8C13B9D00588CE2BA774A8F5024313C579478D30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Into the Breach - компьютерная игра в жанре пошагов
 magnet:?xt=urn:btih:EC152EA6D2305DFE4453175711B17C66DF0D3DEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Worshippers of Cthulhu (2024) [Ru/Multi] (1.0.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C9FC39F40BED96BCC5AD9A2B11737B94C75FAF9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Axis Unseen - это игра в жанре хэви-метал хоррор
 magnet:?xt=urn:btih:08923B57E9E4337E79325C630228C9139DC7FF0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ King Arthur: Legion IX - это пошаговая RPG-стратегия, де�
 ```bash
 magnet:?xt=urn:btih:B97BC737E17F2ADAE44BA121014AACA844414253
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Call of Duty: Vanguard (2023) [Ru/Multi] (1.26) Repack seleZen
 magnet:?xt=urn:btih:BB78C7AE876325664A7F4F0FD3474B3DE50EE493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.1/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:8F398EAAAA473BAB1F4C4F2586024F84321E399A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.5.257/dlc) Scene Rune [Delux
 magnet:?xt=urn:btih:42C1114E80E5E9C54490F8CD4246C7E8CE49E2AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Crime Scene Cleaner (2024) [Ru/Multi] (1.0.80) Scene Razor 1911
 ```bash
 magnet:?xt=urn:btih:8E5C235E381438308D10AB7CB2FDB28CF676DAD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Core Keeper (2022) [Ru/Multi] (1.1.2.1) Repack Pioneer
 magnet:?xt=urn:btih:B731E0123F372E37BE499B50D8AAC0DB9C4B09F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Siege and the Sandfox - это стелс-метроидвания в еди
 ```bash
 magnet:?xt=urn:btih:AF2108DD8E86D7D31A5866511299CC7595E1BFDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Terraforming Mars – официальная адаптация популярн
 magnet:?xt=urn:btih:B256A0452C7BDAF1BAB96FEA1745B48268F3D264
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.5.257/dlc) Repack FitGirl [D
 ```bash
 magnet:?xt=urn:btih:8D2EA46A0FCB0556992CF4B1C6D7F49A927E1CF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Skelethrone: The Chronicles of Ericona (2024) [Ru/Multi] (1.5.5.0/dlc) Repack Le
 magnet:?xt=urn:btih:32920CBF2E10398A903E1EE290F1865896224E52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Zoria: Age of Shattering – тактическая групповая стра�
 ```bash
 magnet:?xt=urn:btih:9C71EDA01258EBB12FA1AF3A85C26B463E43AC81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Fabled Lands - ролевое приключение в духе старой ш
 magnet:?xt=urn:btih:DE7FCC97DC0D566DF1D454289ECCE3FE13B6817B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Peglin (2022) [Ru/Multi] (1.1.10) License GOG
 ```bash
 magnet:?xt=urn:btih:E5B8E795C0999A6F6B0DE478DDE89F31A2C87D72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Dune: Imperium (2024) [Ru/Multi] (2.2.10.1211/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:3639379FEB409539F40BF86C2E13F8A199D33B25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Skelethrone: The Chronicles of Ericona – в этом достаточно не
 ```bash
 magnet:?xt=urn:btih:1CAAA7C7728D142429A876923A8FE4F1FF86458B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Synergy – это градостроительный симулятор в су
 magnet:?xt=urn:btih:FF79C0404148BE6780CD168615AA42C113FE39E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Deliver At All Costs - симулятор курьера, позволяющий
 ```bash
 magnet:?xt=urn:btih:A17A31362057F7201A7A2DB6E280730C856C5DD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ FTL: Faster Than Light (2012) [Ru/Multi] (1.6.14/dlc) Repack Let'sРlay [Advance
 magnet:?xt=urn:btih:42429F8360D38D6230FCF870F39D91C2D7B3874C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ DRAGON QUEST III HD-2D Remake - это потрясающая реинкарна
 ```bash
 magnet:?xt=urn:btih:E794B080930CB823F7D7EF1EDDECAA6FA3BC6FAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Last Hero of Nostalgaia - сатирический приключенчес�
 magnet:?xt=urn:btih:7C4881A68255E135BACB39766DC4CD8647BAE420
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Survive the Fall (2025) [Ru/Multi] (1.0.1.2364/dlc) Repack FitGirl [Ultimate Edi
 ```bash
 magnet:?xt=urn:btih:5748A060A6CE55DFD3B48168125A05B7143036FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Dragon Ball Xenoverse 2 (Драгон Болл Ксеаунтс 2) – это п
 magnet:?xt=urn:btih:2AE6DD72D5226C4610A457491B49B99DEDFBBFF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Deliver At All Costs - симулятор курьера, позволяющий
 ```bash
 magnet:?xt=urn:btih:CA75734BCC7A92A10E4DDDD965C4910AFF1DBE9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

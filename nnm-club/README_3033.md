@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:203A09ECA219C6AE26923800FEB750AB4E345AA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ VA - Essential Blues (2012) 2CD [FLAC|Lossless]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -80,6 +84,8 @@ VA - Essential Blues (2012) 2CD [FLAC|Lossless]<Blues>
 magnet:?xt=urn:btih:B1ED3F35D6612168C8C4E8DBD60E35076625F1BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -105,6 +111,8 @@ magnet:?xt=urn:btih:B1ED3F35D6612168C8C4E8DBD60E35076625F1BD
 ```bash
 magnet:?xt=urn:btih:BAAACD7D94AB2AE7EBCE4BFB3B96E445899A03B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +147,8 @@ Nina Kraviz - Nina Kraviz (2012) [MP3|320 кб/с]<Deep House, Tech House>
 magnet:?xt=urn:btih:F2A22D47BDF8629BF86C054B065806A59CD06E85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +176,8 @@ M.I.K.E. - Club Elite Sessions 241 (23.02.2012) [MP3|256 кб/с]<Trance, Progre
 ```bash
 magnet:?xt=urn:btih:7CAD8904DEC91E2A759951CC18F6F4CBD77696AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +212,8 @@ VA - Trance Maniacs Party: Melody Of Heartbeat 75 (01.03.2012) [MP3|320 кб/с]
 magnet:?xt=urn:btih:09CDF84AD2F291D11B9F53ED457632D854889AE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -233,6 +247,8 @@ CD 1
 magnet:?xt=urn:btih:8115F43F5F2C3B3DE3597438D90696AE9EE2482C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +279,8 @@ George Arvanitas & David Murray - Tea for Two (1991) [FLAC|Lossless]<Modern Jazz
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +315,8 @@ CyberManiacs - CyberManiacs (2012) [MP3|320 кб/с]<Horror Industrial, Alternat
 magnet:?xt=urn:btih:59647A16EB82CC3205C0D5FE700EABA3514B0ED8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +348,8 @@ FREq - Remixed (2008) [FLAC|Lossless]<Psychedelic / Progressive>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +384,8 @@ Terry Quiett Band - Just My Luck (2011) [APE|Lossless]<Blues-Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +419,8 @@ Wynton Marsalis - Standards & Ballads (2008) [FLAC|Lossless]<Post-Bop, Trumpet>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +448,8 @@ Wynton Marsalis - Standards & Ballads (2008) [FLAC|Lossless]<Post-Bop, Trumpet>
 magnet:?xt=urn:btih:C1BACD444A043501F9BC27425A2E63D6A898A4DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +473,8 @@ magnet:?xt=urn:btih:C1BACD444A043501F9BC27425A2E63D6A898A4DB
 ```bash
 magnet:?xt=urn:btih:F6DF41B57E9BDD2259EF156BDA5B27D7E05E54C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +502,8 @@ Nightwish - The Crow, The Owl And The Dove (Single) (2012) [MP3|192 кб/с]<Sym
 ```bash
 magnet:?xt=urn:btih:28E3155B4AB90896DFE32474E74662E43DCBC7E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +538,8 @@ Trance Maniacs Party - Progressive Session #33 (2012) [MP3|320 кб/с]<Progress
 magnet:?xt=urn:btih:F51ED894F18F6E0789C2041613DCAA099C00D0D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +572,8 @@ Amy Ray - Lung Of Love (2012) [MP3|320 кб/с]<Folk Rock/Indie Rock>
 ```bash
 magnet:?xt=urn:btih:11077CC13C834E12E42A0AFD6DC32C6F2AA4908D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +608,8 @@ Nate Wooley Quintet - Hands Together (2011) [FLAC|Lossless]<ree Jazz, Modern Cre
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +643,8 @@ CD1 Продолжительность: 01:11:31
 magnet:?xt=urn:btih:94D30D2D8D73786B7666B905B274A55A55C419B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +674,8 @@ Marty Ehrlich's Rites Quartet - Frog Leg Logic (2011) [FLAC|Lossless]<Free Jazz,
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,6 +710,8 @@ VA - Armada Top 15: March 2012 (02.03.2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:B407D0539C7A045E1B4ADEB439497116AAB24FB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -701,6 +745,8 @@ Ranee Lee - Lives Upstairs (2009) [FLAC|Lossless]<Jazz, Vocal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -731,6 +777,8 @@ Lamat - V (2011) [MP3|~250 кб/с (V0)]<Psychedelic / Full On>
 ```bash
 magnet:?xt=urn:btih:87B1063E8C8EC907651C6B0908C377860DC43BF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -764,6 +812,8 @@ Xtatic Shiva - Traces (2012) [MP3|320 кб/с]<Psychedelic>
 magnet:?xt=urn:btih:E17AC8878841F6541F23C1A84FE74FD583340AE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -795,6 +845,8 @@ VA - Face Disco (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

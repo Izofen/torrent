@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:2EA29EFB468B6A2766747A95C68102A6807F142B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:2EA29EFB468B6A2766747A95C68102A6807F142B
 magnet:?xt=urn:btih:BF70DEF75A8FD82A65412909977A9A797232F9E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Goblin Slayer II | Убийца гоблинов [ТВ-2] [2023, TV, 12 из 12]
 ```bash
 magnet:?xt=urn:btih:EF61787D63B214F7223FA6343815092B2919DBB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:EF61787D63B214F7223FA6343815092B2919DBB0
 magnet:?xt=urn:btih:41749A41050666ACEF211143AA2BC5C4B57DF3CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:41749A41050666ACEF211143AA2BC5C4B57DF3CA
 magnet:?xt=urn:btih:2500B582C519B10E404DB69D71766E27DA2B39CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Kekkon Yubiwa Monogatari II | Легенда свадебных колец 2 | �
 ```bash
 magnet:?xt=urn:btih:D21D83E8BAFC9467A3FF63E32F17D99379701821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:D21D83E8BAFC9467A3FF63E32F17D99379701821
 magnet:?xt=urn:btih:1A4CD9E2CE8ADFC9210A046093377F655C527573
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:1A4CD9E2CE8ADFC9210A046093377F655C527573
 ```bash
 magnet:?xt=urn:btih:475F2AF718DD3C34019D382D78509272AD28FA85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:475F2AF718DD3C34019D382D78509272AD28FA85
 magnet:?xt=urn:btih:7DEFE9901F5BB201B6D5BE39E6404605DB0DB820
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:7DEFE9901F5BB201B6D5BE39E6404605DB0DB820
 ```bash
 magnet:?xt=urn:btih:68EF0903EF6D6552B10F2A0A4D98EE625D973827
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:68EF0903EF6D6552B10F2A0A4D98EE625D973827
 magnet:?xt=urn:btih:4BA31F6262A6DACC2E366174AD36C52BE883A4C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:4BA31F6262A6DACC2E366174AD36C52BE883A4C4
 ```bash
 magnet:?xt=urn:btih:B62C5D6A077BBEB15DAFCD9AB6A101FF156E9C96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:B62C5D6A077BBEB15DAFCD9AB6A101FF156E9C96
 magnet:?xt=urn:btih:FD93DE917609FB212D93A5A28499619339289D15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:FD93DE917609FB212D93A5A28499619339289D15
 magnet:?xt=urn:btih:0A3FACFB069DE3011D5AA2147F9782C944B565F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ Arknights: Reimei Zensou | Arknights: Prelude to Dawn | Аркнайтс: Пре
 ```bash
 magnet:?xt=urn:btih:35F9E4B85853E9C48BD0ADF80A62F7444E099CBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:35F9E4B85853E9C48BD0ADF80A62F7444E099CBD
 magnet:?xt=urn:btih:83890E2C1DA17A7BC98B8785B928639B7D390CEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:83890E2C1DA17A7BC98B8785B928639B7D390CEA
 magnet:?xt=urn:btih:16D640D4E3F51601C79B171141F1F4368F5A482D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ Watashi no Oshi wa Akuyaku Reijou. | I`m in Love with the Villainess | Я пре
 ```bash
 magnet:?xt=urn:btih:9AEAF91CA4363BE1EA706B9E348DD7EF36915334
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:9AEAF91CA4363BE1EA706B9E348DD7EF36915334
 magnet:?xt=urn:btih:11D2D00B2F6EF9B4B72026DD05D1DA4A45AA958C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ Soratobu Yuureisen | The Flying Ghost Ship | Летающий корабль-п�
 magnet:?xt=urn:btih:E5750465C12E648F15BEF8CED0A5C9387E0CFE0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ Dekoboko Majo no Oyako Jijou | The Family Circumstances of the Irregular Witch |
 ```bash
 magnet:?xt=urn:btih:E7146BFB77148490D49A744F5E83C2E49B646472
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ Chanto Suenai Kyuuketsuki-chan | Li`l Miss Vampire Can`t Suck Right | Вампи
 magnet:?xt=urn:btih:4EC60E1FAE67F71BA57759AC50A105335792E781
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:4EC60E1FAE67F71BA57759AC50A105335792E781
 magnet:?xt=urn:btih:B80EE5B48FB0ADF27FDD6521FE177850472C383F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ Bishoujo Senshi Sailor Moon Super S Sailor 9 Senshi Shuuketsu! Black-Dream-Hole 
 ```bash
 magnet:?xt=urn:btih:1232EEB4AD75CE457DD869CC1E38BF211DE20B88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:1232EEB4AD75CE457DD869CC1E38BF211DE20B88
 magnet:?xt=urn:btih:D4F6CD4A037DED84695922FBC03CBFC876D2A10D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ Shingeki no Kyojin Season 3 | Attack on Titan Season 3 | Атака титано
 ```bash
 magnet:?xt=urn:btih:74276563CEB03711145E2A9F6AA008207E08D277
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

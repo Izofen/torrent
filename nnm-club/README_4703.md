@@ -22,6 +22,8 @@ VA - Bercana Ritual (2020) [AAC|~338 Kbps] <Organic House, Deep House, Melodic H
 magnet:?xt=urn:btih:D798B6E27FCB31378A0FFAFB761E2E8E4F43DAAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:D798B6E27FCB31378A0FFAFB761E2E8E4F43DAAD
 magnet:?xt=urn:btih:14CAC74ECE76584C5F522A7B2831C0E95123B59C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:14CAC74ECE76584C5F522A7B2831C0E95123B59C
 magnet:?xt=urn:btih:9293C3CF2ED73A8BA96411C1B68281682B860C62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:9293C3CF2ED73A8BA96411C1B68281682B860C62
 ```bash
 magnet:?xt=urn:btih:75F592439982E1F7F342F7D102DDE57E16FD41F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ VA - Dreamful Moments Chillout Music (2015) [MP3|320 кб/с] <Downtempo, Chillo
 magnet:?xt=urn:btih:CEE50A608D3770905329DF216A80BA684872586D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:CEE50A608D3770905329DF216A80BA684872586D
 ```bash
 magnet:?xt=urn:btih:9E1A95087D093473F97261E3DEC98D84B05C2221
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ VA - The Best Of Suanda Music (Mixed By Roman Messer & Ruslan Radriges) (2018) [
 magnet:?xt=urn:btih:CC88F8B71A39B95FA15AA24EE97CAC44FEC538E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ VA - Deep Reflections, Session 1 (Deep House Vibes) (2021) [AAC|~316 Kbps] <Deep
 magnet:?xt=urn:btih:099FE9865F64E5A7087C21E8A5CEBA166DEF9F6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:099FE9865F64E5A7087C21E8A5CEBA166DEF9F6F
 ```bash
 magnet:?xt=urn:btih:24AA6FE29A6F29F226F50CF935444593233CB6D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ Thief (Dylan Neal) - 4 Albums (2016-2021) [MP3|320 Kbps] <Alternative, Dark Elec
 magnet:?xt=urn:btih:344F7C43BC366579233C91C0DB983A917AEB9855
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ Slechtvalk - A Forlorn Throne (2010) [FLAC|Lossless|image + .cue] <Viking Metal>
 magnet:?xt=urn:btih:0D3FE720FACF2E615E6DF90670570F955197AB2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ magnet:?xt=urn:btih:0D3FE720FACF2E615E6DF90670570F955197AB2F
 magnet:?xt=urn:btih:AAE24D29BE852E3E844C07DEFC5A58EBE98A4486
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:AAE24D29BE852E3E844C07DEFC5A58EBE98A4486
 ```bash
 magnet:?xt=urn:btih:6A7C04A43C4790BAE1CD197161FE2E04DABAAB3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +383,8 @@ VA - Sofa King Sick, Chapter 1 (2019) [AAC|~321 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:C1A1BE4FB95731A1EF5E3DDF444EADB260F11357
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ magnet:?xt=urn:btih:C1A1BE4FB95731A1EF5E3DDF444EADB260F11357
 magnet:?xt=urn:btih:D263CFF582F2CF9513FAA3113B6BC8DECCB9FF05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ magnet:?xt=urn:btih:D263CFF582F2CF9513FAA3113B6BC8DECCB9FF05
 ```bash
 magnet:?xt=urn:btih:BAFF8F76F99F883495ED641BAEE6F3BEF3B6052F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +464,8 @@ VA - Chill Session 2016 (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:105FCEB0370EB732EADFD0544D7E374CA659D221
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ FabFilter TotalBundle - содержит коллекцию последних �
 ```bash
 magnet:?xt=urn:btih:E3EA239738298572A8276E9138D3672E3442B76E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +516,8 @@ magnet:?xt=urn:btih:E3EA239738298572A8276E9138D3672E3442B76E
 ```bash
 magnet:?xt=urn:btih:DCE1BE8EB124290BF61252ED5D0210D740FD14CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +546,8 @@ Stanley Turrentine - Don't Mess With Mister T. (1973) 1987, EPC [APE|Lossless|im
 magnet:?xt=urn:btih:3AC6727C3D5EB2F7527BA29FEB8DD217E8A52534
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ Multifunction Particles Toolkit - инструментарий многофун�
 ```bash
 magnet:?xt=urn:btih:987361021B277086CB7AF1ED0D95689CD09CBB90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +601,8 @@ VA - Privileged Euro Trance: December Party (2015) [MP3|320 кб/с] <Trance, Pr
 magnet:?xt=urn:btih:F802A718A392BE223ECAF6901839E715B634ACC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +626,8 @@ magnet:?xt=urn:btih:F802A718A392BE223ECAF6901839E715B634ACC0
 ```bash
 magnet:?xt=urn:btih:8FA7DB89C59F18F328B367CEDE1ACCCBDEE53562
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ Asterix & Obelix XXL 3: The Crystal Menhir – это приключенческ
 ```bash
 magnet:?xt=urn:btih:D3E7C7C7E292C8FDB77D7C70F1250A071005E03F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +684,8 @@ VA - Glasgow Underground 2021 (2021) [AAC|~331 Kbps] <Deep House, Tech House, Fu
 magnet:?xt=urn:btih:61AAD88BEAF434C5E9D515A6C534B2F77B04235A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ magnet:?xt=urn:btih:61AAD88BEAF434C5E9D515A6C534B2F77B04235A
 ```bash
 magnet:?xt=urn:btih:6F30C7C4CEF7F67ACE6E7F4B560D1167B79B91BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

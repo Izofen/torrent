@@ -1,3 +1,32 @@
+###  Публикация: 939497   (473208) от 22.09.2015
+
+Suzi Quatro - The best of the Best (2015) [MP3|320 кб/с]<Rock, Hard Rock, Glam Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 15 Minutes Of Fame
+02. 48 Crash
+03. All Shook Up
+04. Back To The Drive(   Читать дальше...   )Жанр: Rock, Hard Rock, Glam RockПродолжительность: 06:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB62D76DFCAD1B7358C19F8352DD01A743EDA1F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057797   (473301) от 29.09.2016
 
 VA - Trance Flaming Beautiful (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Uplifting Trance, Energy, Progressive>
@@ -21,6 +50,8 @@ VA - Trance Flaming Beautiful (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional,
 ```bash
 magnet:?xt=urn:btih:DB0FF502842E5BAF4EC94851CA1D2D00166FD983
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Remember Me Smiling (2015) [MP3|320 кб/с]<Trance, Psytrance, Progressive
 magnet:?xt=urn:btih:4EBF605B3C7E008DBD37F40F9587307B96BF4BDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Хитовая осень пришла (2015) [MP3|256-320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:857D5240E0CC1806B82E94C981DE2314FA7C660C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Beatport Trance Pack  (29.09.) (2016) [MP3|320 Kbps] <Trance, Melodic, Emot
 magnet:?xt=urn:btih:D9DF6C818FC3DDDD1B38238F20F8C926C53021DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - XXXL блатнячок на радио Шансон Сборник 6 (2015
 ```bash
 magnet:?xt=urn:btih:B02A8DD5D14A189B5C71CC3C5B6DB124AE53433B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - XXXL блатнячок на радио Шансон Сборник 5 (2015
 magnet:?xt=urn:btih:CA623AE4EB04212E85BF6DBE684D76AF69B5E94D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Deluxe Chilling Songs (2015) [MP3|320 кб/с]<Electronic, Downtempo, Loung
 ```bash
 magnet:?xt=urn:btih:5EF6D9BF5ABA616AB1994944D56D1521282ECB45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Wait For Your Heart (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:189574ABF74C422B6576D2351EC81F3AD3239B78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +283,8 @@ VA - Chill Cakes Vol 1 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:F05687CFBCE4A04F1841293B1E993FF17B6D17CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +311,8 @@ VA - Herbst Chillout (2015) [MP3|320 кб/с]<Electronic, Downtempo, Lounge, Chi
 ```bash
 magnet:?xt=urn:btih:496DC8ED7C70DBAE77839CEB06A7DBF17F125AC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +347,8 @@ VA - Танцуй Кавказ! Часть 2 (2012) [MP3|128 кб/с]<Dance, Pop
 magnet:?xt=urn:btih:8E0FA415F6326DCD63F37C0816CB16B23016F293
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +376,8 @@ VA - GNO: Top Tunes Disco Mix (2018) [MP3|320 Kbps] <Club, Dance, House>
 magnet:?xt=urn:btih:379E625F7FD9C0C4DBAA826A43E104EA63E00F70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +401,8 @@ VA - New Age Style:Sexual Energy (Сhiiig-Сhi) 2 (2011) [MP3|320 кб/с]<Chilo
 ```bash
 magnet:?xt=urn:btih:B43642BD756E523CD092109F66BE4220B3255C37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +430,8 @@ VA - Record Super Chart 551 (2018) [MP3|320 Kbps] <Dance, Club, House>
 ```bash
 magnet:?xt=urn:btih:D450E6CC9F1D2046DFB2EFBB85987A729406732A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +466,8 @@ VA - Любимые Хиты От Europa Plus (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:19B4B9C54D2C5596F6E0FA0FF544296202D3F0F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +501,8 @@ VA - Дискотека 50/50 - 2CD (2012) [MP3|128 кб/с]<pop>
 magnet:?xt=urn:btih:69DA818A07E048694C53E7AB5D7AF28314C6A9C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +529,8 @@ VA - Nothing But... Pure Dance Vol. 14 (2022) [MP3|320 Kbps] <Club, Dance, Elect
 ```bash
 magnet:?xt=urn:btih:02A00F509BF50A2F23C94BBB837B2527FC8B10B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +565,8 @@ VA - Наши Новые Поп Хиты (2012) [MP3|256 кб/с]<Dance, Pop>
 magnet:?xt=urn:btih:ECF6B5EBEE12E836C3ABADA77430391EFA214703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +599,8 @@ VA - Лучшая Best-Of-Ka За Рулём Зарубежная (2012) [MP3|25
 ```bash
 magnet:?xt=urn:btih:0366A35EF24E90A7F3ED06BF41A137975D25BA5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +635,8 @@ VA - 101-й километр Выпуск 3 (2011) [MP3|128 кб/с]<шансо�
 magnet:?xt=urn:btih:C2C8C1AE0CD1ED48B5B7F82BF432BC8327915DD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +663,8 @@ VA - Nothing But... Pure Dance Vol. 11 (2022) [MP3|320 Kbps] <Club, Dance, Elect
 ```bash
 magnet:?xt=urn:btih:DC29777FCF305E8CC72368A7A10916159A95DDA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +693,8 @@ VA - Nothing But... Pure Dance Vol. 13 (2022) [MP3|320 Kbps] <Club, Dance, Elect
 magnet:?xt=urn:btih:7CD0F72CB31E658ABEC111084E7E47E48EAF77A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +721,8 @@ VA - Nothing But... Pure Dance Vol. 12 (2022) [MP3|320 Kbps] <Club, Dance, Elect
 ```bash
 magnet:?xt=urn:btih:6921CADD13366C02C1067010357B07B894BE7DD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -682,6 +757,8 @@ VA - Billboard Hot 100 (08.09.2012) [MP3|219-298 кб/с]<House, Club, Funky, Da
 magnet:?xt=urn:btih:B07B83537A3722B765D5D3B57186740CBC9C30FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -709,32 +786,7 @@ VA - Самые Лучшие Хиты 80-90-х В Современной Обр�
 magnet:?xt=urn:btih:7EC2609302D04372867E0B0AB4A0B74198D3E486
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406282   (474637) от 03.09.2020
-
-VA - Native American Lounge Bar (2020) 5CD [MP3|320 Kbps] <Native American, Enigmatic, World music>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacred Spirit - O-Loa-Ki-Lee
-02. Joanne Shenandoah - Tadodaho - Snakes in His Hair
-03. Oliver Shanti & Friends - White Mother Of The Universe
-04. Karunesh - Earthsong(   Читать дальше...   )Жанр: Native American, Enigmatic, World musicПродолжительность: 18:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B44E73B6D81E9B841111758BF57EA6A84DE635E6
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

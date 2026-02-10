@@ -19,6 +19,8 @@ Myst (2021) [Ru/Multi] (3.0.1) Repack dixen18 [VR]
 magnet:?xt=urn:btih:3C2C53A368286D96A379959E5A56A5C5FFBE25F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Chorus of Carcosa (2025 ) [Ru/Multi] (01.08) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A4D04C3B187AE6E50D7D0F0600BDE3FD94789E3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Myst (2021) [Ru/Multi] (3.0.1) Repack FitGirl [VR]
 magnet:?xt=urn:btih:8D14B012700C5F8904FF4CF0BA8C96D6BC1071E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Invincible представляет собой приключенческу�
 ```bash
 magnet:?xt=urn:btih:68D528ABEA3C5D95E6A61D0704A7594483FDF8A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Them and Us - классический хоррор на выживание с �
 magnet:?xt=urn:btih:949C251ABE6A59E5D82E3E9BAAF513DC90491851
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Wanderstop – уютное повествование о переменах и 
 ```bash
 magnet:?xt=urn:btih:0EE9145933EB5B2783C0E3955686662E89A280C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Scene Investigators (2023) [Ru/Multi] (1.0) License GOG
 magnet:?xt=urn:btih:F95341449C3CD4660A99E32C22679B27FF83E538
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ A Game About Digging A Hole (2025) [Ru/Multi] (Build 17793684) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B948B5B1ED681644040277F5A366A981FD94068C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Myst (2021) [Ru/Multi] (3.0.1) Repack seleZen [VR]
 magnet:?xt=urn:btih:6A7C510F9ED14D3DB97A140CBA49B45E08B824FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Mansion of The Macabre (2024) [Multi] (1.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:54C28C08B9C91A5065EC5E37B2605B7BAE490698
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Phantom (2025) [En] (1.013) Repack FitGirl
 magnet:?xt=urn:btih:6BC7D1B0423B43B01024EA9A48AE06039173C079
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Long Dark – это хардкорный симулятор выживан�
 ```bash
 magnet:?xt=urn:btih:82804797C32E0F91E6F23EB47B172BD4677B0DBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.812.8) Repack seleZen
 magnet:?xt=urn:btih:CA539A4BDCC800BCCAD6BF0DAE7690A8FBA20FA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Invincible представляет собой приключенческу�
 ```bash
 magnet:?xt=urn:btih:9E2A43006F421E90608CD31133CC8B9D7C89EBDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Invincible представляет собой приключенческу�
 magnet:?xt=urn:btih:DF49F47F9849BE6E69D6BA91EB477245405403ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Beyond Galaxyland - это космическая ролевая игра с п�
 ```bash
 magnet:?xt=urn:btih:AF437446F94592AA24C633EEFD7B7FB8F5F57814
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Split Fiction (2025) [Ru/Multi] (Build 17714403) Repack Wanterlude
 magnet:?xt=urn:btih:ED5814B893471F3BD3E3E71144FE8AD00F27E1CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Hauntsville (2025) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:20207073B153BC6D6CA82B80BB6E564F071D1F0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Siberian Way – детективная триллер-новелла. Погр�
 magnet:?xt=urn:btih:D5B655CE95EBDA1639CC2DF389697BDE8DB93171
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Test: Reality Check - это одна из нескольких частей
 ```bash
 magnet:?xt=urn:btih:1448865AA54F4A63464CDB2E0F4DEA013FF47143
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Asylum (2025) [Ru/Multi] (Build 17711849) Repack Other s
 magnet:?xt=urn:btih:8C50C6692D89C3BAA552485BE0F7E638A1846204
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Worldless - это загадочный и сюрреалистичный дву
 ```bash
 magnet:?xt=urn:btih:255991C54752E4084B5ACD0E61B10417FBF177F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Shadowgate 2 (II) (2025) [Multi] (1.0.7) License GOG
 magnet:?xt=urn:btih:4D09EF799F3537E2C779433C2D0C3BE28F0A12E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Asylum (2025) [Ru/Multi] (build 17707886) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:51C4A680A790C9E0213C67C2043ABA8C3026D4CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Martha Is Dead - это мрачный психологический трилл
 magnet:?xt=urn:btih:3D34914DB9FC639B2A75D735A7A4099DF8D77169
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Night of the Rabbit (2013) [Ru/Multi] (2.2.334) License GOG
 ```bash
 magnet:?xt=urn:btih:B6E5D1A7FA2EB068273B61C8E5CE41B01153B23B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

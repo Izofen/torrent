@@ -19,6 +19,8 @@ Nine Sols — это насыщенная сюжетом двухмерная и
 magnet:?xt=urn:btih:A972A0C361E4F1EA8C3D8AA98B6263A6B9CB385C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ House of Golf 2 (2024) [Ru/Multi] (1.2.5) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0A3A6085ABA6441150C42591C8EA9175EAC22B78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Eternal Cylinder (2022) [Ru/Multi] (1.0.3.3) Repack Let'sРlay
 magnet:?xt=urn:btih:DBD6AEAA893305261A690328F174D72A6080FD2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Gungrave G.O.R.E (2022) [Ru/Multi] (67402/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:382AE887C877C5554CD4C0D7CAF65CA179CFAEE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Galactic Civilizations IV (4) (2023) [Ru/Multi] (2.95/dlc) Scene Rune [Supernova
 magnet:?xt=urn:btih:163237E52CCD443409EF39CA06DC7637DF81ACA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (Season 2/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:6DC16B1072BF503C2DA7828207FDC9CC40DFD0DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Granblue Fantasy Versus: Rising представляет собой захват
 magnet:?xt=urn:btih:71320CBE8EF620507C032E98741D3E373894915D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Everhood – приключенческая игра, разработанная
 ```bash
 magnet:?xt=urn:btih:512BBC832C964FA4D380ED8B4F6C96F3E3CAC1C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ MainFrames (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:BC20CCF2DE39D01F0DB6BEFB51108C8285F43273
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Lego Movie 2 Videogame (2019) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:7D34F2F82B3B62687AA57AD35865FF06A3DAF49D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Tech Store Simulator (2024) [Ru/Multi] (1.5) Repack FitGirl
 magnet:?xt=urn:btih:142B2F30726AD19587559A6FF53DDF8BCDCF858B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Lego Movie Videogame (2014) [Ru/Multi] (1.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:B76280F57BEC3BBEFFC99FB51ABD15C0D57CCB06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Playtown Genesis (2025) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:C5FBB12710187958D8D75382EF5BCA7121D301A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Carmen Sandiego (2025) [Multi] (1.0/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:2330CF20DDB7E04E6CD3BB4DE82C55BFFA3AD5C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Carnaval Simulator - это инди-игра в жанре магната, си
 magnet:?xt=urn:btih:B917D20B420ECBC09C4A84DF3E89D671E2781787
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Suikoden I & II HD Remaster: Gate Rune and Dunan Unification Wars (2025) [Multi]
 ```bash
 magnet:?xt=urn:btih:804F41FA080F20F849CA06EE4EDB00644F2F5986
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Uncursed - это психологическая игра ужасов от пе
 magnet:?xt=urn:btih:7220C4CB3B9A2DE637CD6984E3907C722C12931B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Dark Return - это игра в жанре ужасов и мистики, в �
 ```bash
 magnet:?xt=urn:btih:CF2143C5AD10FFECE9E8734CD2EAC0D6356E1CE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Split Fiction (2025) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:22DCB7182F0DCD8C151C3580FB10058BE6426DB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Battlefield 1 погружает вас в эпоху Первой мирово�
 ```bash
 magnet:?xt=urn:btih:53538D5E5E5F39762A1DDFE9B8C523D8D6C138C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Biohazard: Siberia - это психологический хоррор от п�
 magnet:?xt=urn:btih:7F0FC373BBB63F15EC3E25DCCC7FB53BD0003E46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ SHAPIK: The Moon Quest - трогательный и атмосферный кв
 ```bash
 magnet:?xt=urn:btih:ED7D569C906242E31DE07FBAE784B91AD0C19DC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Romance Club - Stories I Play (2023) [Ru/Multi] (1.0.39200) Repack Let'sРlay
 magnet:?xt=urn:btih:0ADB1A63367C655D1AD09336683502125E9B6229
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Nightfall Comes (2022) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4D757A0051EA89EE60BA1284AC024417952796BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Visions of Mana (2024) [Multi] (1.0.3.0/dlc) Scene Tenoke
 magnet:?xt=urn:btih:5625E8BD9E179DC3848A998EF78D38E59BCB12AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Split Fiction (2025) [Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:9885A626F7AF605FB0F3B48B0DB40E0BE7A0113D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

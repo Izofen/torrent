@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:06A1284E8986D3B251DB02EB2FBB4C0CDF18D393
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:06A1284E8986D3B251DB02EB2FBB4C0CDF18D393
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -78,6 +82,8 @@ magnet:?xt=urn:btih:06A1284E8986D3B251DB02EB2FBB4C0CDF18D393
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ magnet:?xt=urn:btih:06A1284E8986D3B251DB02EB2FBB4C0CDF18D393
 ```bash
 magnet:?xt=urn:btih:924B04FA65CF6153FBCFD5FAEA50D8FAE4D2AB51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ ABBYY FineReader PDF 16.0.14.7295 RePack by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:DB98398F6D1C9BBD4C8AC905DC30ABB5F9E4B704
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:DB98398F6D1C9BBD4C8AC905DC30ABB5F9E4B704
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:DB98398F6D1C9BBD4C8AC905DC30ABB5F9E4B704
 magnet:?xt=urn:btih:4F9F4270A910E19BBEB3A2F704B59917CB9BA314
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ Windows 11 v22H2 22621.674, включающая в себя 4 русских и
 ```bash
 magnet:?xt=urn:btih:D6D23189E5C2F84FC05096DFF061E94F083B1996
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:D6D23189E5C2F84FC05096DFF061E94F083B1996
 magnet:?xt=urn:btih:3ECC7F3E4F5AC32B794A8936CE389D06015CE9AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ Windows 10 Enterprise LTSC 1809 (x86/x64) by Paxweaver [11.2020] [Ru/En]
 ```bash
 magnet:?xt=urn:btih:599967967D553777047084D84B848EE26193C5DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:599967967D553777047084D84B848EE26193C5DA
 magnet:?xt=urn:btih:550FC23A06CFD35169DB8B7C2E90D658289CC169
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ Dr.Web CureIt! представляет собой антивирусный ск
 ```bash
 magnet:?xt=urn:btih:9EFA3E7ACD2426060EB0995187D6F8C40106971B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ Boris Continuum Complete 10.0.686 for AE&PrPro CS6-CС 2015 (x64) RePack by Team
 magnet:?xt=urn:btih:9485159E132E519CB98077DB732C62597886EC55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ SOMA - это научно-фантастический ужастик от ст
 ```bash
 magnet:?xt=urn:btih:D25009F1E559F0658D8546BA5FB79F34CC6D9D1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:D25009F1E559F0658D8546BA5FB79F34CC6D9D1E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:D25009F1E559F0658D8546BA5FB79F34CC6D9D1E
 ```bash
 magnet:?xt=urn:btih:2417F53254C030EE5A0CB581746820F8A7178767
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ Windows 10 Enterprise LTSC (x64) Elgujakviso Edition (v.05.08.23) [Ru]
 magnet:?xt=urn:btih:29891F2AFB6A96834B5C21631033661553E76BB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:29891F2AFB6A96834B5C21631033661553E76BB3
 ```bash
 magnet:?xt=urn:btih:257F432303AEE97C67BCA2CC07284F73B8062FEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ Obduction (2016) [Ru/Multi] (1.8.4.1-ssl/dlc) License GOG
 magnet:?xt=urn:btih:945EFED32258F89A282F33B84920A4B95EB2DA66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:945EFED32258F89A282F33B84920A4B95EB2DA66
 ```bash
 magnet:?xt=urn:btih:59680506AC5C9DD7C2C11C57995865A12A9E6ED6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:59680506AC5C9DD7C2C11C57995865A12A9E6ED6
 magnet:?xt=urn:btih:F999E2C135E42EBCE63EB7BDFAE3D3CFF0ACEE2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:A0E64255CBED414DB4DC02699667C148FD250875
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ Succubus (2021) [Ru/Multi] (1.4.15357/dlc) License GOG [The Worshipper Bundle]
 magnet:?xt=urn:btih:255B75278064D2D418247A0B67217B832DCEE6BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:255B75278064D2D418247A0B67217B832DCEE6BF
 ```bash
 magnet:?xt=urn:btih:B0236ED35CE1A9DB40ABF46B30BFB99C8DF85255
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ Battlefield V / Battlefield 5 (2018) [Ru/Multi] (1.0.3894003) Repack xatab
 magnet:?xt=urn:btih:9D66FC7EB9D7A7081CB56387FCB4B69DA54DD34E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ Jinn'sLiveUSB MSOffice Addon - дополнение для Jinn'sLiveUSB, сод
 ```bash
 magnet:?xt=urn:btih:D8891FDEEBCE5AB83E05B65D60404A468A314A27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

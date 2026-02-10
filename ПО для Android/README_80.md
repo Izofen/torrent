@@ -19,6 +19,8 @@ Webcams 2.0.17 [En]
 magnet:?xt=urn:btih:B5BE4115E98123333E90F4B633BA460C054AA768
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Compass Level & GPS 2.4.13 [Ru]
 magnet:?xt=urn:btih:6DA6DAA51B82239074A5ED690B5BB9B5CEA8F45C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Car Radio Reloaded 1.45.0 [En]
 ```bash
 magnet:?xt=urn:btih:0927BA233E70D21904754E4FCCF91276103C19DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:0927BA233E70D21904754E4FCCF91276103C19DF
 magnet:?xt=urn:btih:8A9250A75402A65FB568F4C498952DF24675852A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Radio Alarm Clock + 5.4.0 [Ru]
 magnet:?xt=urn:btih:EAD828CD644593D75D512A3E58BFA49AF5D045BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ ZaZa Remote v4.8.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B06F76FEA579D0E7DF801CC518BEFB5D31390702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ TeacherApp Английский - Написано профессорами.
 magnet:?xt=urn:btih:88EBDE31D01EB817107BDE83E38871B5137BE522
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Volume Panel - это улучшенная замена панели управ�
 magnet:?xt=urn:btih:CCCC6A3839F465BA69B1E74C6CFE928D33689899
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Colorfy - это раскраска, призванная помочь вам у
 ```bash
 magnet:?xt=urn:btih:60322C50781BB3BDF33112E187982A04564BA181
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Magnifier Plus with Flashlight 4.5.3 [En]
 magnet:?xt=urn:btih:878537276714A4C9D772A42D8D3A6E1DBDC0EE2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:878537276714A4C9D772A42D8D3A6E1DBDC0EE2B
 magnet:?xt=urn:btih:E426F9476B3CA168E35703CB16EE6B169E332080
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ AntiBAG Тахограф 2.0.108 [Ru]
 ```bash
 magnet:?xt=urn:btih:D841DC156CAE2B20CDAB042C59D4B585ECA18F89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Learn English - 6000 Essential Words 4.1.1 [Ru]
 magnet:?xt=urn:btih:2042236FA0A9B200FC97B9F4CD86F9A255DDCCB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ CamSam PLUS - Система предупреждения о скорости и
 magnet:?xt=urn:btih:BA15C4C07452774F622D0A24F3F16AA4DF550FCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ ReVanced YouTube Music - мобильное приложение, в котор�
 ```bash
 magnet:?xt=urn:btih:E668C437F6098DF9D879089903FE482A9ED399EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ FullReader — многофункциональное приложение дл�
 magnet:?xt=urn:btih:CE5774CFFD74FBDE088943EAB117E23675716F10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:CE5774CFFD74FBDE088943EAB117E23675716F10
 magnet:?xt=urn:btih:5AB2DD0EF3998139ACE31E7D063D04BA633E8906
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ GPS Waypoints Navigator v9.24 [Ru]
 ```bash
 magnet:?xt=urn:btih:3FAC1096D93002AC4A01EE017B1866DF381F0CB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:3FAC1096D93002AC4A01EE017B1866DF381F0CB3
 magnet:?xt=urn:btih:2C1EE14D9B82CAC6221C796BB221856812B75790
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ HD Camera Pro - Отличная камера с множеством настр
 ```bash
 magnet:?xt=urn:btih:5A1CCFC8F4E30B9631A76631ECB1E53883FE729A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ Gismeteo - погодное приложение тире клиент для р
 magnet:?xt=urn:btih:71D8B18CEB592DAC43627AEF2FFBD0A885A7096C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Joy Walls стремится предоставить вам уникальны�
 ```bash
 magnet:?xt=urn:btih:482A88C9783167930F03E8369DA762FF12697484
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ Aurora Store является альтернативой Google Play Store, с �
 magnet:?xt=urn:btih:5CB68E6DC6B4D6E8D27F607794650CD62263619D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ KinoHome 1.7.0 [Ru/En]
 magnet:?xt=urn:btih:62CB9AD7AE60B2D96FEB0B418ED40CDFA6E7AB53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Xmind: Mind Map & Brainstorm - отличный вариант как для о�
 ```bash
 magnet:?xt=urn:btih:ED2B10C298F77C3A8EDFA6EEEF7F5EA9292A4D04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:ED2B10C298F77C3A8EDFA6EEEF7F5EA9292A4D04
 ```bash
 magnet:?xt=urn:btih:C7C086A3A54B2A400F7F7302B267DE47138158A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

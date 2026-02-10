@@ -1,3 +1,29 @@
+###  Публикация: 1231992   (603146) от 21.06.2018
+
+Йеллоустонские природные чудеса / Yellowstone Natural Wonders (2017) WEBRip [H.264/2160p] [4K] (Серии 1-2 из 2)
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Йеллоустоун - земля с "огненным сердцем". Первый Национальный парк Америки. Первозданная и неприступная крепость, защитившая природу запада от исчезновения. Ежегодно более 3 000 000 человек приезжают полюбоваться красотами Йеллоустоуна. Но лишь немногие решаются пройти дальше грозного стража - горного хребта и попасть в соседнюю долину, где разворачиваются (   Читать дальше...   )Производство: США, Doclights, NDR NaturFilmЖанр: Видовой, природа, флора, фаунаРежиссер: Роман ХомлякПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 01:24:05+01:21:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96CC04850096F82E55482D8C62A5D75723847FE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547296   (603316) от 27.04.2022
 
 В поисках завтра / In Search of Tomorrow (2022) WEBRip [H.264/1080p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:060EA916007BC31902B1763B26E8714A4B0FC659
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:060EA916007BC31902B1763B26E8714A4B0FC659
 magnet:?xt=urn:btih:AD449024B8700DE09A641CCE3756012F58FAB05D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:AD449024B8700DE09A641CCE3756012F58FAB05D
 magnet:?xt=urn:btih:71CBF4502629EBA4E943ED376D9A716D01A06F64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:71CBF4502629EBA4E943ED376D9A716D01A06F64
 ```bash
 magnet:?xt=urn:btih:6B0120F457DD79481FF0BE6AC0A37D94A14D3ADD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:6B0120F457DD79481FF0BE6AC0A37D94A14D3ADD
 magnet:?xt=urn:btih:F9D90DD880AC7B379D9B884816F84A1EB47DD189
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:F9D90DD880AC7B379D9B884816F84A1EB47DD189
 ```bash
 magnet:?xt=urn:btih:7A03C684245C9DB55606DD68F7FF41896F5A0D85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:7A03C684245C9DB55606DD68F7FF41896F5A0D85
 magnet:?xt=urn:btih:72435F5A29C08F7F214D62BCF9A932EDB310B185
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:72435F5A29C08F7F214D62BCF9A932EDB310B185
 ```bash
 magnet:?xt=urn:btih:E0012798F54FA3859243B091D3B034106C564699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:E0012798F54FA3859243B091D3B034106C564699
 magnet:?xt=urn:btih:F73D584FA699B2EA628EE59A832C07C69C37C992
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:F73D584FA699B2EA628EE59A832C07C69C37C992
 ```bash
 magnet:?xt=urn:btih:73BD72B7B9F07857AD87AB49E583BDF3A52FABAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:73BD72B7B9F07857AD87AB49E583BDF3A52FABAB
 magnet:?xt=urn:btih:8991D63755FD637606AD852B934385D478A02D1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:8991D63755FD637606AD852B934385D478A02D1F
 ```bash
 magnet:?xt=urn:btih:C3C4376CB7D5BD571893756E1320395D4AF4A172
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:C3C4376CB7D5BD571893756E1320395D4AF4A172
 magnet:?xt=urn:btih:80B9244FD07DB8F06188377FCB0B7C64E644358F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:80B9244FD07DB8F06188377FCB0B7C64E644358F
 ```bash
 magnet:?xt=urn:btih:54F5D189A2B67B8D238F9D56CAF9C5ADAC0B0D63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:54F5D189A2B67B8D238F9D56CAF9C5ADAC0B0D63
 magnet:?xt=urn:btih:71CEEEC747DE92D79EADDB13FFC3305875A40652
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:71CEEEC747DE92D79EADDB13FFC3305875A40652
 ```bash
 magnet:?xt=urn:btih:900806499B675EDF8D613ABA187F3AFEE7E16D51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:900806499B675EDF8D613ABA187F3AFEE7E16D51
 magnet:?xt=urn:btih:A5A4F8D3E34D2C33E366C2EACD61506BBFC73F80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:A5A4F8D3E34D2C33E366C2EACD61506BBFC73F80
 ```bash
 magnet:?xt=urn:btih:A2EE48C2FC9D031CAD96C9B4918E46A77FF8F119
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +515,8 @@ BBC. Наполеон / Napoleon (2014) HDTVRip (1-3 серия из 3)
 magnet:?xt=urn:btih:EBEACC53C5F35F0BFC6866A806E80D2A32331EA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +540,8 @@ BBC. Наполеон / Napoleon (2014) HDTVRip [H.264/720p-LQ] (1-3 серия 
 ```bash
 magnet:?xt=urn:btih:8A68998D047C19BD3A024C7507A4959D7F008A15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +567,8 @@ magnet:?xt=urn:btih:8A68998D047C19BD3A024C7507A4959D7F008A15
 magnet:?xt=urn:btih:0C531974D7B3587733A423AB641F7CBCE029CF8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:0C531974D7B3587733A423AB641F7CBCE029CF8B
 magnet:?xt=urn:btih:E91EA1F3D80546A17EFAFBE0BD3B73508ABA9904
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:E91EA1F3D80546A17EFAFBE0BD3B73508ABA9904
 ```bash
 magnet:?xt=urn:btih:8589DDCEC913ACDB6AAD6AC80E8F770BB32FF09B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:8589DDCEC913ACDB6AAD6AC80E8F770BB32FF09B
 magnet:?xt=urn:btih:94B45DAB74E49F674961E59D5E38C800B77099A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,29 +673,7 @@ magnet:?xt=urn:btih:94B45DAB74E49F674961E59D5E38C800B77099A4
 magnet:?xt=urn:btih:4AD825024BD46E13F21551DDEBC7A201332F3368
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 113117   (604383) от 29.07.2016
-
-Тихие подводные войны (2008) [DVDRip]
-
->>Документалистика и Телепередачи
->>Флот
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_604383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как только закончилась Вторая Мировая война, почти сразу началась другая - "холодная". Началась она и в безднах Мирового океана. Прежде всего, "холодная война" состояла в состязании военной мощи одной страны с военной мощью другой страны. Морская военная мощь, прежде чем воплотиться в металл и сойти со стапелей, сначала рождалась в тиши конструкторских (   Читать дальше...   )Телекомпания: Киностудия "БАЛТИК ВИДЕО"Жанр: ДокументальныйРежиссер: Юрий ЗанинПеревод: ОригинальныйПродолжительность: 158 минут
-
-## Скачать торент
-```bash
-нет
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

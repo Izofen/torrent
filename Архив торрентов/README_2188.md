@@ -1,36 +1,3 @@
-###  Публикация: 582999   (313700) от 02.12.2012
-
-Various Artists - Thriller LP: Crime Scene (2012) [MP3|320 кб/с]<Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hi-Quadr - sands of time (feat. neurosis)                     (05:05)
-02. Redox - ripped                                                (05:13)
-03. Bios Destruction - emal                                       (06:57)
-04. Nouwa - footprint                                             (05:13)
-05. More FX - young mafioso                                       (05:49)
-06. Object - panic attack                                         (05:05)
-07. Breekda - confused                                            (05:21)
-08. Andy Pain & Z Connection - revenge                            (06:33)
-09. Paimon - blessed exile (feat. place 2b)                       (06:09)
-10. Dub Head - danger time                                        (05:13)Жанр: Drum & BassПродолжительность: 00:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:068EF2C279AEDFD36F552FE9BEAE5844F6E0C2BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 583447   (313713) от 02.12.2012
 
 Fox Wallpapers (01.12.12) [Wallpapers]
@@ -51,6 +18,8 @@ Fox Wallpapers (01.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:300E93C912A6D6F35213A9255CE1CF067EECCD72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +45,8 @@ magnet:?xt=urn:btih:300E93C912A6D6F35213A9255CE1CF067EECCD72
 magnet:?xt=urn:btih:DFE6F3F71D1B3A1C061B65D2E449223F449622E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +71,8 @@ magnet:?xt=urn:btih:DFE6F3F71D1B3A1C061B65D2E449223F449622E6
 magnet:?xt=urn:btih:101B4D8E56EA3488C5DF37426B06C00BCCDED227
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +96,8 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:3487003D7FFFC9BE1DB3065EECDD9C3C4EA93DAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +132,8 @@ Butterfly - Favorite Colors Episode 060: Classics Edition (01.12.2012) [MP3|320 
 magnet:?xt=urn:btih:060157F02662A4D8579FEA801B34319C52B48E72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +157,8 @@ Microsoft SQL Server — система управления реляционн�
 ```bash
 magnet:?xt=urn:btih:B205ED28AE1315A2118C11B6837CB924D08F3CB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +184,8 @@ magnet:?xt=urn:btih:B205ED28AE1315A2118C11B6837CB924D08F3CB9
 magnet:?xt=urn:btih:5BC172846CDCCC09B229CFED516C62B16ECB5857
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +209,8 @@ Seagate DiscWizard - бесплатная версия программы Acroni
 ```bash
 magnet:?xt=urn:btih:39CCD5386A4D372624698CFEF3393E28E306221E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +236,8 @@ magnet:?xt=urn:btih:39CCD5386A4D372624698CFEF3393E28E306221E
 magnet:?xt=urn:btih:ED765556AF422914B6C0B6645092C54066354ACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +261,8 @@ akaEasyMoney - программа для учета личных финансо�
 ```bash
 magnet:?xt=urn:btih:EB6847F6DF20C193A71D39C58714CB937F62DE1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +288,8 @@ magnet:?xt=urn:btih:EB6847F6DF20C193A71D39C58714CB937F62DE1C
 magnet:?xt=urn:btih:257A9229EC1709668B0714FF5B5A26D9C89DBBDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +313,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:3BB17426D947B063CA42328453A6DDC7A83F8472
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +343,8 @@ Metallica - Live at Guatemala City (2016) Bootleg [MP3|320 Kbps] <Thrash Metal>
 magnet:?xt=urn:btih:1151D2C57C97926D942BD4504D79776B32C88A78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +369,8 @@ VA - Радио Рекорд - Record Club за 21.11.2016 [MP3|320 Kbps] <Elect
 magnet:?xt=urn:btih:09A4D424CE418063822E0DFEF278CD3CD2CE6B5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +394,8 @@ EssentialPIM - высокофункциональный менеджер пер�
 ```bash
 magnet:?xt=urn:btih:B286525E8BE1CAD27684B58A43EC150E3873417B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +423,8 @@ Gemini 2: The Duplicate Finder 2.5.6 [Multi/Ru]
 magnet:?xt=urn:btih:0AB2D5267D856C14D980F4298543E20797E1D836
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +451,8 @@ magnet:?xt=urn:btih:0AB2D5267D856C14D980F4298543E20797E1D836
 magnet:?xt=urn:btih:33EF007F6E7E6657D3F9B073B87B3BC6C7594789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +477,8 @@ magnet:?xt=urn:btih:33EF007F6E7E6657D3F9B073B87B3BC6C7594789
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +502,8 @@ Avast Premier совершенствует сканирование сети, в
 ```bash
 magnet:?xt=urn:btih:5AED980E6B225676E828FC0C8D035CC73327CC4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +532,8 @@ magnet:?xt=urn:btih:5AED980E6B225676E828FC0C8D035CC73327CC4B
 magnet:?xt=urn:btih:82FF9E0931016FD8C35FD0A51DB7BCEA24AC0CAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +558,8 @@ Radiocamp - программа для прослушивания интерне�
 magnet:?xt=urn:btih:2166566C35F120EF1DF71B8E57D44E4B20001AF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +583,8 @@ UltimateDefrag - дефрагментатор и оптимизатор разм
 ```bash
 magnet:?xt=urn:btih:6707AF3B48A434BF6BAD61CD59ADA26BD7F7F8E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +613,8 @@ Martin Garrix - Live @ The Ether (All Ages Show), RAI, Amsterdam Dance Event, Ne
 magnet:?xt=urn:btih:723688A3CA80AEFE6F1EDE1AB0E7C798A3EE7534
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +642,8 @@ VA - Vocal Trance Gems: Best Of (2016) [MP3|320 Kbps] <Trance, Vocal Trance>
 magnet:?xt=urn:btih:F4BA22331334BB060A26694F928CF0D8733663DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +670,34 @@ Carbon Copy Cloner - утилита для клонирования дисков
 ```bash
 magnet:?xt=urn:btih:3FDBE8DF40AFA52227C96F266925ADC2B72EFC7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332414   (314023) от 20.10.2019
+
+Pixelmator 3.8.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pixelmator представляет собой мощный инструмент редактирования изображений, активно использующий вычислительные мощности графической карты. Он предлагает инструменты выделения, рисования, штриховки, навигации и цветокоррекции, поддерживает многослойные изображения, обработку рисунков на базе графического процессора, управление цветами, автоматизацию, имеет стильный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Pixelmator Team LtdПоддерживаемая ОС: macOS 10.12 или более поздняя версияЯзык интерфейса: Английский, Немецкий, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E09DFC79D79ED79077E63F61B9507F569A30C716
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

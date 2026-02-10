@@ -19,6 +19,8 @@ Lightroom - в приложении для мобильных устройств
 magnet:?xt=urn:btih:55EB9BE809DE46854C791623FD1385E87DB9BFE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:55EB9BE809DE46854C791623FD1385E87DB9BFE0
 ```bash
 magnet:?xt=urn:btih:538B3CAFC5ED8806E561BF5BA843EB2E054CC108
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:538B3CAFC5ED8806E561BF5BA843EB2E054CC108
 magnet:?xt=urn:btih:49CCDC1C7781409F416D728C7DD6A5C0F813BDE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:49CCDC1C7781409F416D728C7DD6A5C0F813BDE2
 ```bash
 magnet:?xt=urn:btih:A6B2114639D0BF08722B0E69E49B0F1BA6AE8FDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:A6B2114639D0BF08722B0E69E49B0F1BA6AE8FDA
 ```bash
 magnet:?xt=urn:btih:2C202D63FE0D4B15BA4396A94A2CBE1D37EAF7F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:2C202D63FE0D4B15BA4396A94A2CBE1D37EAF7F4
 magnet:?xt=urn:btih:3AA8FDD4AF8862AAE08D2A0C053933C77D9E4469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:3AA8FDD4AF8862AAE08D2A0C053933C77D9E4469
 ```bash
 magnet:?xt=urn:btih:FC2C73C8EBAA2D3EAE96AD64C4ED6F5D1EF42E2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ The Hero We Need - это стратегия в жанре tower defense, кот
 magnet:?xt=urn:btih:ABCA108A9059AABFAE343E46B94A70A5F0B597F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ qomp2 (2024) [Ru/Multi] (1.1.2257) License GOG
 ```bash
 magnet:?xt=urn:btih:93615AA79C48C1DE0E9D12DEEE61760707EA39CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ VA - Temporal Tunes (2024) [MP3|320 Kbps] <Trance, Electro, Progressive>
 magnet:?xt=urn:btih:A71F1C2BD6E093FA8074762DA54A80AFFD905A33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:A71F1C2BD6E093FA8074762DA54A80AFFD905A33
 magnet:?xt=urn:btih:CA1ECF200FC596ADC19515F569D28EE11AC7C528
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:CA1ECF200FC596ADC19515F569D28EE11AC7C528
 ```bash
 magnet:?xt=urn:btih:900B9ABC63C403E2B3553B0F335CD6FD7F86C533
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:900B9ABC63C403E2B3553B0F335CD6FD7F86C533
 magnet:?xt=urn:btih:D1B444CB5FBCCC51A3939E8DE0AB8D14BEB47E5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:D1B444CB5FBCCC51A3939E8DE0AB8D14BEB47E5C
 ```bash
 magnet:?xt=urn:btih:1DFB20C123A72AA4690B00314096859F124311E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:1DFB20C123A72AA4690B00314096859F124311E7
 magnet:?xt=urn:btih:CB7B5361B2487B1A9DCA89C4238728585A3BBFE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:CB7B5361B2487B1A9DCA89C4238728585A3BBFE8
 magnet:?xt=urn:btih:BD5326FDCD5FFF3AD55C787189CE6B63B9DA1B29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:BD5326FDCD5FFF3AD55C787189CE6B63B9DA1B29
 ```bash
 magnet:?xt=urn:btih:291DF451D2547FBD6FBA3A9D6B62A7CD05CC21DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:291DF451D2547FBD6FBA3A9D6B62A7CD05CC21DA
 magnet:?xt=urn:btih:F9082A27493E4C2FFA46700B6A9465359A030B6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:F9082A27493E4C2FFA46700B6A9465359A030B6B
 ```bash
 magnet:?xt=urn:btih:753869F30D0EBFAEFA4E8A6076A76DB1DECAF0CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:753869F30D0EBFAEFA4E8A6076A76DB1DECAF0CB
 magnet:?xt=urn:btih:143AD1E7BECFE8123D1D412F2FA2E7CB4C529B77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:143AD1E7BECFE8123D1D412F2FA2E7CB4C529B77
 magnet:?xt=urn:btih:4DE479444471BCDB4B17D6B2495AAEA32A650D7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ magnet:?xt=urn:btih:4DE479444471BCDB4B17D6B2495AAEA32A650D7A
 ```bash
 magnet:?xt=urn:btih:794A5C6CD49BC29BFFA3FE595389D6F8EBEF0261
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:794A5C6CD49BC29BFFA3FE595389D6F8EBEF0261
 magnet:?xt=urn:btih:F4BE96C475C55407D278F228F2F80566116648E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ Gord (2023) [Ru/Multi] (1.5.0.42146/dlc) Repack Other s [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:BBD9235A1D03B30FB36DA2A12E87105EBD8B69D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:BBD9235A1D03B30FB36DA2A12E87105EBD8B69D6
 magnet:?xt=urn:btih:E4415C47D8CC4EDA819143B0D3FF4EC92B7244BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:E4415C47D8CC4EDA819143B0D3FF4EC92B7244BD
 ```bash
 magnet:?xt=urn:btih:A307C14078AD49F2B6E2678BBE651AEC1DBAE012
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

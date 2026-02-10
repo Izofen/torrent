@@ -19,6 +19,8 @@ Ushio to Tora / Усио и Тора TV-2 [2016, TV, 13] HDTV 720p rus
 magnet:?xt=urn:btih:B81302A0035B93CFF900168EF4A9E31BA09D7DA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Senpai ga Uzai Kouhai no Hanashi | My Senpai Is Annoying | Мой сэмпай �
 magnet:?xt=urn:btih:9A352FE7CFB6D974B940E741C28C31387778B25C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Gakusen Toshi Asterisk / The Asterisk War / Боевая академия гор
 ```bash
 magnet:?xt=urn:btih:646963C992C965350CEFB507168E547365A88C4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Cider no You ni Kotoba ga Wakiagaru | Words Bubble Up Like Soda Pop | Слова
 magnet:?xt=urn:btih:01B8780FD4B586468914112DF5E304AEA24040F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Sword Art Online / Мастера меча онлайн [2012, TV, 25 ep] BDRip 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Cyber City Oedo 808 / Кибер-город Эдо 808 [1990, OVA, 3] BDRip 720p
 magnet:?xt=urn:btih:813BA4ACC0B92CC3E84AECFB19F18CB7760BF19E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Sanrio Danshi / Sanrio Boys / Парни из «Санрио» [2018, TV, 12 ep]
 ```bash
 magnet:?xt=urn:btih:0F7B86AECA0262C5DA7E694F3C2EF38642141EF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Overlord II / Повелитель 2 [2018, TV, 13 ep] WEB-DL 720p Raw+Rus
 magnet:?xt=urn:btih:A3F5AC855C285A5E733DD220EBCC9BCEAF23478E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Violet Evergarden / Виолетта Эвергарден [2018, TV, 13 ep] WEB-
 ```bash
 magnet:?xt=urn:btih:3EB9D084C8A9175043D8CF5D759847FA9FA66A9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Sora Yori mo Tooi Basho / A Place Further Than the Universe / Место, что
 magnet:?xt=urn:btih:C65C8D9C595D4496BC492062A924FABB58D227C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Pop Team Epic / Эпичная попса [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 ```bash
 magnet:?xt=urn:btih:CC181ED2A4D5F5DE2A4CDAADA11241D6E0503BA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Takunomi / Выпиваем дома [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 magnet:?xt=urn:btih:BB10E49069684AE83FDE17D5ED8B3CFCD0F88CCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Mahou Tsukai no Yome / The Ancient Magus' Bride / Невеста Чародея 
 ```bash
 magnet:?xt=urn:btih:7FCA62B8C0BCFBCB80CFB0245427267FA0C24905
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Itou Junji: Collection / Junji Ito Collection / Коллекция Ито Дзю
 magnet:?xt=urn:btih:E93DABBF3F595EDA43BF9B6C0707D8AE28FCCD23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Koi wa Ameagari no You ni / After the Rain / Любовь - словно про�
 ```bash
 magnet:?xt=urn:btih:63B3366EA94B84D4EB607BC949F3331FE98A9CD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Kokkoku / Миг за мигом [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 magnet:?xt=urn:btih:9CD4631D2806724AADD35D984D4EE2D33F9F0848
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Killing Bites / Смертельный укус [2018, TV, 12 ep] WEB-DL 720p Ra
 ```bash
 magnet:?xt=urn:btih:A6D5FF527B33D340CA7EA909475B7AC38B70F354
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Karakai Jouzu no Takagi-san / Насмешница Такаги-сан [2018, TV
 magnet:?xt=urn:btih:94E7C6CF60AF3C38D771D140BD83E0C28D521D35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Hataraku Onii-san! / Коты-Работяги! [2018, TV, 13 ep] WEB-DL 720p Ra
 ```bash
 magnet:?xt=urn:btih:B42E798B49C03C55CE011E392ABD164914EDA4D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Dagashi Kashi 2 / Магазинчик сладостей [ТВ-2] [2018, TV, 12
 magnet:?xt=urn:btih:18594F97B1169A4E83D7FDD755492DA74892FB54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Ryuuou no Oshigoto! / The Ryuo's Work is Never Done! / Работёнка для
 magnet:?xt=urn:btih:17B1AB8481DB358641B28BA47DDE489A9545E136
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Gakuen Babysitters / Школьные няньки [2018, TV, 12 ep] WEB-DL 720p
 ```bash
 magnet:?xt=urn:btih:2B3F09FF98EB9EDDEE0853ED4FB809FEF77F0B3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Walkure Romanze / Романс Валькирий [2013, TV, 12 ep] BDRip Hi10p 
 magnet:?xt=urn:btih:468B4329AA13DB6C2DC0CB5EEF75268162AB79AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Garo: Vanishing Line / Гаро: Линия Схода [2017, TV, 24 ep] WEB-DL 
 ```bash
 magnet:?xt=urn:btih:DB9F8713B4622B1FA3F0ECEF86747A4BBC7E8F0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Citrus / Цитрус [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 magnet:?xt=urn:btih:E388F8B7AA646453C489C8A3D4C36F3CCBB3C218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Death March kara Hajimaru Isekai Kyousoukyoku / Death March to the Parallel Worl
 ```bash
 magnet:?xt=urn:btih:0039EC073EBD16698D7543A85D264C15640145D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

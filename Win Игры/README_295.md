@@ -19,6 +19,8 @@ Glitchhikers: The Spaces Between (2022) [Multi] (1.0.3) License GOG
 magnet:?xt=urn:btih:404E3CC3310891425A77B1E9BDD08BCAC3A6E0CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Maze of Realities 2: Reflection of Light (2022) [En] (1.0) Unofficial [Collector
 ```bash
 magnet:?xt=urn:btih:5E3007D1FD4EB8A7F254B8AF535926957F686E99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Expedition Zero — survival horror про аномальную зону в ле
 magnet:?xt=urn:btih:C4DFF655397B9CC64648C43E4AE3907B1A58A041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ A Musical Story - это ритмическая игра в стиле 70-х. И
 ```bash
 magnet:?xt=urn:btih:976A1479EE950EDFAA5904E2DCEC2BF3248EB47E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Hidden Through Time - очаровательная, смешная игра в �
 magnet:?xt=urn:btih:C483340D4973F1AB4BF1B69F8BBD1ED50A5BC3CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Hollowbody бросает вас с головой в мрачный мир те
 ```bash
 magnet:?xt=urn:btih:2A387651F894B48B708FE50A43FE3D0B56EE996B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ CUFFBUST (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl [Deluxe Edition]
 magnet:?xt=urn:btih:53635FC7EB6020DCABDB38E048F89453E2DB52DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Lessaria - это наследник Majesty. Мы возвращаем на с�
 ```bash
 magnet:?xt=urn:btih:C5211AFCF242634A982C50077686DFB4432CEBA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Outbreak Island (2025) [Ru/Multi] (Build 20575035/dlc) Repack Other s [Supporter
 magnet:?xt=urn:btih:008AAFAE4A8C1534D5C5C66D0BBF878E003E218B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Resident Evil (Biohazard) HD Remaster (2020) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:B54EBB633B7E5E8449E59F3EEEA9E8999F6EBACE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Resident Evil  рассказывает всю правду о происшес�
 magnet:?xt=urn:btih:56E255919F798606A775E0D6ED29924FACEFCCD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Wreckreation (2025) [Ru/Multi] (0.9c) License GOG
 ```bash
 magnet:?xt=urn:btih:E779AA92977C4473E70214CA91D46845B6D4A6C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Silly Polly Beast (2025) [Ru/Multi] (0.97) Repack FitGirl
 magnet:?xt=urn:btih:C786A907B2E6FAC47D7197D09AC176EEA9DB0F9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Bleak Haven - это игра в жанре survival horror, в которой �
 ```bash
 magnet:?xt=urn:btih:5031B8EB8A9FE614FCBEE1E17668C0DE624D8B48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Avernum 4 Greed and Glory - мрачное фэнтезийное приключ
 magnet:?xt=urn:btih:74D0D3D6426D58464353C1E3CD91C531C8F04CFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Mars First Logistics (2025) [Ru/Multi] (Build 20566341) Repack Necros
 ```bash
 magnet:?xt=urn:btih:6736A258A4C10FAB49C1AA61CD73700B7CEE69F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Mortal Kombat (2013) [Ru/En] (1.07/dlc) Repack Necros [Komplete Edition]
 magnet:?xt=urn:btih:8052F931CDC693B03AAA862CBC920A4F2AE57ECE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Nocturnal - это экшен-игра, в которой вы играете з
 ```bash
 magnet:?xt=urn:btih:94D459B4A40077F5229129B72161687F98761A5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ SKYHILL (2015) [Ru/Multi] (1.1.20) Repack Necros
 magnet:?xt=urn:btih:230229DF37DC99C7089B8B3CC1962D3029C2DBE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Fate of Wanderer – это полностью переработанная ве
 ```bash
 magnet:?xt=urn:btih:B596F57F40B7C235A39335B2753E0A4C72B42EEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Secrets of the Dark 2: Eclipse Mountain Collector's Edition (P) [En] 2012
 magnet:?xt=urn:btih:8A06AC7B3E85A9BBA3958706D4ECF12C58C9DA80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Abandoned: Chestnut Lodge Asylum / Позабытая дурка. Каштанк
 ```bash
 magnet:?xt=urn:btih:9967ED98E6777684644C0210D78DF81F73B43BD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ S.T.A.L.K.E.R. A.P.T. Mod | Epsilion Group
 magnet:?xt=urn:btih:9EA1848CC6FE403F5C89729EE3C801C8589FFD3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Street Fighter x Tekken (L) [Multi11\+] 2012 | SKIDROW
 ```bash
 magnet:?xt=urn:btih:EAD7FFB21FC8E73BF6EB4E57C62648098C9D3373
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Tales from the Borderlands (2014) [Ru/Multi] (build 6086951) Repack Necros
 magnet:?xt=urn:btih:2CABB4D38A7D31C9D029DD8F30B37CC9E5A221C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Radiolight (2025) [Ru/Multi] (0.9) Repack Necros
 ```bash
 magnet:?xt=urn:btih:C5F2C90AD3CA5AFD9CB140A530F3FC3FB06BFB2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

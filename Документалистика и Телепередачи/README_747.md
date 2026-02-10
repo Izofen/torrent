@@ -1,3 +1,29 @@
+###  Публикация: 1456073   (1025287) от 21.03.2021
+
+Повелись! Правдивая история о фальшивом искусстве / Made You Look: A True Story About Fake Art (2020) WEBRip (H264/1080p)
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный кинофильм, где речь будет идти о грандиозном уголовном скандале, в котором будет замешан американский эрмитаж художественных картин в городе Нью-Йорке. Директор компании, обслуживающей это заведение наживался тем, что совершал сделки купли-продажи поддельных работ знаменитых художников. Но его выдаст одна особенная деталь.Производство: Норвегия, Kavana EntertainmentЖанр: Документальный, расследованиеРежиссер: Барри АвричПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:29:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8699AD46AAEEC2A7B7515CEA89550AE582E13F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456053   (1025289) от 21.03.2021
 
 Жизнь других. Колумбия (21.03.2021) SATRip
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:4E7399A1F986E7D31679F6C0FCA5FC1AB64563B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:4E7399A1F986E7D31679F6C0FCA5FC1AB64563B9
 magnet:?xt=urn:btih:E4FF052CF890738E56B8C2DF85328542ED220C47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:E4FF052CF890738E56B8C2DF85328542ED220C47
 ```bash
 magnet:?xt=urn:btih:15056A19ED7CCBFC2048C8D3797B59BD4375E01E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:15056A19ED7CCBFC2048C8D3797B59BD4375E01E
 magnet:?xt=urn:btih:0D2008F73869DB50DE7CB39C63A78C2B1C256543
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:0D2008F73869DB50DE7CB39C63A78C2B1C256543
 ```bash
 magnet:?xt=urn:btih:CB0BF125D3BC9329D769627FCE439AD81AB3A195
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:CB0BF125D3BC9329D769627FCE439AD81AB3A195
 magnet:?xt=urn:btih:F446FE132709E556BA0BA436E8380D77D687D3D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:F446FE132709E556BA0BA436E8380D77D687D3D9
 ```bash
 magnet:?xt=urn:btih:01AE06F8A1673A3EB9F041221C2D97DD12A08E78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:01AE06F8A1673A3EB9F041221C2D97DD12A08E78
 magnet:?xt=urn:btih:1A6A1325EA142484A7DAE14E7BBD4B205938A6C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:1A6A1325EA142484A7DAE14E7BBD4B205938A6C1
 ```bash
 magnet:?xt=urn:btih:D8D7301EB0773B34B89D75ED32FB57DC0F6EA23B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:D8D7301EB0773B34B89D75ED32FB57DC0F6EA23B
 magnet:?xt=urn:btih:F307D7D906A1BFEEC4B1105F687A46D5F668DA3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:F307D7D906A1BFEEC4B1105F687A46D5F668DA3E
 ```bash
 magnet:?xt=urn:btih:65988488AD95E4C92C929192D7A5C7D4FF7FBBFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:65988488AD95E4C92C929192D7A5C7D4FF7FBBFE
 magnet:?xt=urn:btih:48E96F3EB37DBF729E402F4B05908EFDC2A69F74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:48E96F3EB37DBF729E402F4B05908EFDC2A69F74
 ```bash
 magnet:?xt=urn:btih:2DDD5B957BB583DEE311363BBA40D957D4D9C4D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:2DDD5B957BB583DEE311363BBA40D957D4D9C4D1
 magnet:?xt=urn:btih:FC0964BA6E7EE77817B6F3CD3CD160B6BB542C97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:FC0964BA6E7EE77817B6F3CD3CD160B6BB542C97
 ```bash
 magnet:?xt=urn:btih:8F99A85684DAA493FCDF61ABA54047D5A7B9B837
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:8F99A85684DAA493FCDF61ABA54047D5A7B9B837
 magnet:?xt=urn:btih:52CB9EA2544CAE94C353CD8977187A308F0A6EFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:52CB9EA2544CAE94C353CD8977187A308F0A6EFB
 ```bash
 magnet:?xt=urn:btih:CBE1EF7586853A756A469B3B83C0703A22335D3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:CBE1EF7586853A756A469B3B83C0703A22335D3B
 magnet:?xt=urn:btih:7978CCCA7BD21D6F438ADCE89E83110A91422CCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ HD Suisse: Swiss View - Berner Oberland (2007) HDTV [H.264/1080p] [50fps]
 ```bash
 magnet:?xt=urn:btih:8C81FDEA16CC17224AAB9B866A7518869B3AD1AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:8C81FDEA16CC17224AAB9B866A7518869B3AD1AF
 magnet:?xt=urn:btih:5D2DA69BAC2C0AEC309C014856E40D1112C570A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:5D2DA69BAC2C0AEC309C014856E40D1112C570A9
 ```bash
 magnet:?xt=urn:btih:116268BDBF1DAAF54F1D0053203DAF3A989E4BE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:116268BDBF1DAAF54F1D0053203DAF3A989E4BE0
 magnet:?xt=urn:btih:B249477D9F1F7E03993661287BDEA76223F53EE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:B249477D9F1F7E03993661287BDEA76223F53EE4
 ```bash
 magnet:?xt=urn:btih:EE04ECABBA1EF573DCD59937770592FED3729F59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:EE04ECABBA1EF573DCD59937770592FED3729F59
 magnet:?xt=urn:btih:22284097153645801F3C72B8551FA5B88A3AA00D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,29 +671,7 @@ magnet:?xt=urn:btih:22284097153645801F3C72B8551FA5B88A3AA00D
 magnet:?xt=urn:btih:326751AA7E3BEB2809774F11ECB6A4914DB3C6ED
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454928   (1025972) от 17.03.2021
-
-Баварские пейзажи / Bavarian Landscapes (2021) WEBRip [H.264/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в другой мир и откройте для себя уникальные культурные ландшафты Баварии в этом удивительном видео. Здесь вы можете увидеть различные пейзажи, от захватывающих горных пейзажей и пышных зелёных лугов весной и летом до захватывающих дух нетронутых природных красот зимой, таких как озёра, водопады и горные вершины. Баварцы изо всех сил стараются ухаживать (   Читать дальше...   )Производство: БаварияЖанр: Документальный, видовойРежиссер: Амир КуладжилкПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A9ADD6F8A3C164D3739193AD7E2F9C4C8D2A632
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

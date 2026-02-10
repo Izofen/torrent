@@ -19,6 +19,8 @@ Adobe Photoshop 2025 - новая версия программы для обр�
 magnet:?xt=urn:btih:1E63307E2016E5CE9FC139E8632176830DCA3A0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Minimal Audio - Effect Bundle 2025.10 VST, VST 3, AAX Repack by TCD [En]
 magnet:?xt=urn:btih:18DD24B018F4046E51EA99803FCF2C81A0941F4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ ScreenToGif — удобный бесплатный инструмент, с п�
 magnet:?xt=urn:btih:D91DC1CBFF6A79B624CEA516364432A2DE984DA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ AIMP 5.40.2696 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DB6DDCC17A4A8A696772150378A9A14F6C99A23F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ reaConverter Pro - мощный инструмент для тех, кто им�
 magnet:?xt=urn:btih:E7E92C29F6CF3C2C52DE575FAE44CC3F6D88F729
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Fast Video Cutter Joiner - программа 2-в-1 для быстрой ре�
 ```bash
 magnet:?xt=urn:btih:43050C77CDC9B94C59EB7DDA3B528204F3D7CAFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Adobe Media Encoder 2025 25.5.0.13 (x64) Portable by 7997 [Multi/Ru]
 magnet:?xt=urn:btih:019B4BDEBDF7E29107817BA9F0D2FF4D6D04784A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ FxSound (ранее DFX Audio Enhancer) - отличное приложение,
 ```bash
 magnet:?xt=urn:btih:1B41EC8BB0874B12DE92D82C720AE248EDC2AD62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Ocenaudio — аудиоредактор, распространяемый ав�
 magnet:?xt=urn:btih:4504AFA4E961A884159A493A8B8C906AF0F5A1CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:22DD72AEA46958895CC3AAD2A4C31EADCABC905C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:AEB1EC351137F8A68C11D6CFC309913C6774F2F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:B0423977E448EDF293756F905FFA953092C06246
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ StaxRip - инструмент для кодирования видео "все-
 magnet:?xt=urn:btih:EC2C4DD6BC3659AAED01BCBF56B4AF9BF07A27E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Wavesurfer — это революционный процессор мульти
 ```bash
 magnet:?xt=urn:btih:A03C6223A3D4EFE80FB98E79CE2D5430510DEED8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ BEAM — это интерактивный плагин мультиэффект
 magnet:?xt=urn:btih:6F1DD9DFC49F1D2E30D5116CE11EEAF1E685E228
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ SketchUP Pro - является профессиональной версией 
 ```bash
 magnet:?xt=urn:btih:2B6EFD216DC424A709794DE045F69079FDE4595E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ PowerDirector - самое быстрое и передовое программ
 magnet:?xt=urn:btih:F6E493AE4C7939B60CE5FAD2CC504A28FCA41CA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Marmoset Toolbag 5.02 (5022) [En]
 ```bash
 magnet:?xt=urn:btih:C10E45BD7D0262C377AAB47563EE31E36A48F17D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ SketchUP Pro - является профессиональной версией 
 magnet:?xt=urn:btih:9B50B2E4C582DE32E2F42EE27817B17035B184C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Media Player Classic Home Cinema – удобный во всех планах �
 ```bash
 magnet:?xt=urn:btih:3849B033FA4B4E68E3926E476819B61F3BB462C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ Xilisoft AVI to DVD Converter это программа для создания 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ Attention, attention!(Внимание!)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ Panagement 2 - это лаборатория пространственного 
 magnet:?xt=urn:btih:6129969BD79B4C8C208A5404A5AA75272176A140
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ Recirculate - это не просто дилей плагин; это квин�
 ```bash
 magnet:?xt=urn:btih:786927821CE35E015A23A25ED34AC2B92C09378B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ Eventide - Blackhole Immersive 1.3.0 VST 3, AAX (x64) RePack by R2R [En]
 magnet:?xt=urn:btih:E2280F9FAE4C516A121E8D413D03EA26C0E3ACCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Newfangled Audio - Generate 1.6.9 VSTi, VSTi 3, AAX (x64) RePack by R2R [En]
 ```bash
 magnet:?xt=urn:btih:6FFE7C228DEC4D7B321D380098663980177639E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

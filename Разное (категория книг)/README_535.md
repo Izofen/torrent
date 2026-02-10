@@ -1,3 +1,31 @@
+###  Публикация: 1200070   (796417) от 20.01.2018
+
+Ю. А. Жуков | Из боя в бой. Письма с фронта идеологической борьбы. 1946—1972 (1973) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полемические письма «Из боя в бой» журналиста-международника Юрия Жукова — это живой, основанный на обширных документальных материалах и личных впечатлениях рассказ о современных течениях в литературе и искусстве Запада, в частности Франции, США и Англии.
+
+Автор целеустремленно разоблачает различные формы и методы буржуазной идеологии в литературе и искусстве капиталистических (   Читать дальше...   )Жанр: История, политология, экономика, психология, публицистика, журналистика, литературоведение, искусствоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C9B907997B6045EE44C019D580F1BE9A903392D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385891   (796540) от 26.05.2020
 
 Расмус Хугард, Жаклин Картер | Мышление лидера. Как эффективно управлять собой, сотрудниками и компанией (2020) [EPUB]
@@ -19,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:9B441385D06598B2E82497F7FA4C2BEE1F143B48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +75,8 @@ magnet:?xt=urn:btih:9B441385D06598B2E82497F7FA4C2BEE1F143B48
 magnet:?xt=urn:btih:CA65B9B639D096DA4F014D2D7CE6CF50C9F500BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +101,8 @@ magnet:?xt=urn:btih:CA65B9B639D096DA4F014D2D7CE6CF50C9F500BB
 ```bash
 magnet:?xt=urn:btih:C72B3B767C267B57D3BF3CE5FC58193B5633F0C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +129,8 @@ magnet:?xt=urn:btih:C72B3B767C267B57D3BF3CE5FC58193B5633F0C9
 magnet:?xt=urn:btih:351C50EF1D5C27D0733F09D230258895B43E4B37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +154,8 @@ magnet:?xt=urn:btih:351C50EF1D5C27D0733F09D230258895B43E4B37
 ```bash
 magnet:?xt=urn:btih:3DC0C9ECFEDF6B793FEE430F89BE0E6CA550B0EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +181,8 @@ magnet:?xt=urn:btih:3DC0C9ECFEDF6B793FEE430F89BE0E6CA550B0EE
 magnet:?xt=urn:btih:6B6160DE220C80944D3F7A0C5F4A10308FBEAAF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +206,8 @@ magnet:?xt=urn:btih:6B6160DE220C80944D3F7A0C5F4A10308FBEAAF2
 ```bash
 magnet:?xt=urn:btih:8B699BFB2A0C80E74D451131CA31C4E7A05845C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +233,8 @@ magnet:?xt=urn:btih:8B699BFB2A0C80E74D451131CA31C4E7A05845C9
 magnet:?xt=urn:btih:0E4BF8F49637495887BB88CB5FE0537E3A353DEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +258,8 @@ magnet:?xt=urn:btih:0E4BF8F49637495887BB88CB5FE0537E3A353DEA
 ```bash
 magnet:?xt=urn:btih:F11F1A4EAA247F4819EA3BE51F1D1507F597482E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +287,8 @@ magnet:?xt=urn:btih:F11F1A4EAA247F4819EA3BE51F1D1507F597482E
 magnet:?xt=urn:btih:9EC5743A709604C10CBDBA6BE7AE01940C1D1A39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +312,8 @@ magnet:?xt=urn:btih:9EC5743A709604C10CBDBA6BE7AE01940C1D1A39
 ```bash
 magnet:?xt=urn:btih:1DA05FEF290718959944DC1A30AFB6920A0ABA30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +339,8 @@ magnet:?xt=urn:btih:1DA05FEF290718959944DC1A30AFB6920A0ABA30
 magnet:?xt=urn:btih:192E5831C280ADBF83C79A16BD85FF95810A8374
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +365,8 @@ magnet:?xt=urn:btih:192E5831C280ADBF83C79A16BD85FF95810A8374
 magnet:?xt=urn:btih:E6186098C1B604EBA4979E8CE8F316560E32854B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +390,8 @@ magnet:?xt=urn:btih:E6186098C1B604EBA4979E8CE8F316560E32854B
 ```bash
 magnet:?xt=urn:btih:1C8B1AB8EA5935B9427A8CE7CE8363434D9FA768
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +419,8 @@ magnet:?xt=urn:btih:1C8B1AB8EA5935B9427A8CE7CE8363434D9FA768
 magnet:?xt=urn:btih:17DF6AC519C638E715C7918800C88694E4B7C1D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +447,8 @@ magnet:?xt=urn:btih:17DF6AC519C638E715C7918800C88694E4B7C1D2
 magnet:?xt=urn:btih:1329363973D0145311381C2D8B2938FEED6F3F52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +472,8 @@ magnet:?xt=urn:btih:1329363973D0145311381C2D8B2938FEED6F3F52
 ```bash
 magnet:?xt=urn:btih:DCCF780BA9AB7A8DB563547D39EA71484C632C00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +499,8 @@ magnet:?xt=urn:btih:DCCF780BA9AB7A8DB563547D39EA71484C632C00
 magnet:?xt=urn:btih:A8702385C350FC6142A6578C91FC9D248D37A41E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +524,8 @@ magnet:?xt=urn:btih:A8702385C350FC6142A6578C91FC9D248D37A41E
 ```bash
 magnet:?xt=urn:btih:591A9EAAA9D7AE7058EA8F2147D2CAA6E76FB60E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +551,8 @@ magnet:?xt=urn:btih:591A9EAAA9D7AE7058EA8F2147D2CAA6E76FB60E
 magnet:?xt=urn:btih:A53CFA508D87AFFB394B1B4DF3441B184927FC4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +576,8 @@ magnet:?xt=urn:btih:A53CFA508D87AFFB394B1B4DF3441B184927FC4F
 ```bash
 magnet:?xt=urn:btih:B556B79CCD9C12A64BF6CC50BDAA382010E19C91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +603,8 @@ magnet:?xt=urn:btih:B556B79CCD9C12A64BF6CC50BDAA382010E19C91
 magnet:?xt=urn:btih:81DB951E5AE7424D6125DF3840B1E9C11DF7EABC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +628,8 @@ magnet:?xt=urn:btih:81DB951E5AE7424D6125DF3840B1E9C11DF7EABC
 ```bash
 magnet:?xt=urn:btih:795C0CA1F5950ED3BC20E9D5E03CC531D5DD95C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +655,8 @@ magnet:?xt=urn:btih:795C0CA1F5950ED3BC20E9D5E03CC531D5DD95C1
 magnet:?xt=urn:btih:7E668D1D9D5E075952F72C24A0404F03D3443464
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,29 +681,7 @@ magnet:?xt=urn:btih:7E668D1D9D5E075952F72C24A0404F03D3443464
 magnet:?xt=urn:btih:4B1A8FD7D685BC433E00072BF34828EBA08278D4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010665   (797647) от 26.04.2016
-
-И. Вороницын | Светский календарь и гражданская религия Великой французской революции (1929) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797647.jpg" />
-</div>
-
-
-###  Подробнее
-
-При работе над „Историей атеизма“ (вышла 2-м изд.) автор настоящей брошюры натолкнулся на тот факт, что на русском языке не существует сколько-нибудь обстоятельного рассказа об имевшей место во время Французской революции планомерной попытке перевоспитания целого народа в духе полного освобождения его от религиозной традиции. Главными средствами этого перевоспитания (   Читать дальше...   )Жанр: История, религиоведение, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBDA038185E0122B6BCB85B7D66313E56CE4AD36
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

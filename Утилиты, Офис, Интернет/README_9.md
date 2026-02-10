@@ -19,6 +19,8 @@ CCleaner - утилита для чистки мусора в операцион
 magnet:?xt=urn:btih:54DDA235B390E65CE9A51681F442E1C7DB16B56C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:BA9FF37EF151B7E58EA164787F1065DCF4A0198F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Torrent File Editor 1.0.0 Portable [Multi/Ru]
 magnet:?xt=urn:btih:8AE035C0D107AF84BA00C4D6B37FB5E2C732803A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Glary Disk Cleaner - бесплатный инструмент от компан
 ```bash
 magnet:?xt=urn:btih:603A4AD4A9CDD99853B4BF917124B2E39ED7CFFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ RadioMaximus 2.33.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:A277B48C53E0AAD8BC8D35AEEBCC3FBF204EA353
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ OCCT 14.2.6 Portable [En]
 magnet:?xt=urn:btih:ED7114F7EC829347226FB76C805857CBF05B7B60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Ashampoo Burning Studio 26.0.3.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CFFF2DAB99655932B7E02241C1343B15FFA025FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Ventoy - это инструмент с открытым исходным код
 magnet:?xt=urn:btih:799E584BC6FEC6E00B7A98616168566605011892
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:730AD70595814D80D15FEDB847957B6528990BF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 magnet:?xt=urn:btih:CC13CB1D3B3A114009270FE1F8FA076B52B6DF25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:73E37F20033F4FCF20A043985060B949FE92D2DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ TapinRadio - интернет радио от компании RaimerSoft (ра�
 magnet:?xt=urn:btih:1BF7BE88F975460D6B33C8A03B54D342E9DB642E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:46A2AB2C4DD79249B9347AA90827568ABFFF951F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Advanced Renamer хоть и бесплатная (   Читать дальше
 magnet:?xt=urn:btih:17704849A16191366F26741F2D75F79E7B283A35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ VCap Downloader (VCapDL) – это универсальное программ�
 magnet:?xt=urn:btih:FD9B6AD54E0E4CD9891A55C2A7A0201911D97C7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ DLNow Video Downloader - быстрое, полезное, практичное 
 ```bash
 magnet:?xt=urn:btih:FF0725B1169AFC7018429CF700349194636EA138
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ TweakNow WinSecret Plus! - позволяет пользователям исс�
 magnet:?xt=urn:btih:8891EBB1730D76D006321E55D500868EA1C0FADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:8891EBB1730D76D006321E55D500868EA1C0FADC
 ```bash
 magnet:?xt=urn:btih:E9A15F61D247646404D4F3EFA19F530CFC0BC716
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ The Bat! – общепризнанная система обработки эл
 magnet:?xt=urn:btih:D6BF93DEC2162AA0338F403C23529169321E0DF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ TranslucentTB — это небольшая утилита, позволяюща
 ```bash
 magnet:?xt=urn:btih:49011328BD5B2869DB6F561FED89426E564F82FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ Camtasia захватывает действия и звуки в любой ч�
 magnet:?xt=urn:btih:B89654D36509DFEF2B1D2591052F24A20D03DC38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:7E606E34D79DA53339D3A0D0C9FFF35B1923CDB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ WinTools.net – набор инструментов для оптимизаци
 magnet:?xt=urn:btih:EFE9EB11C102F9284A58E6F5C89A1A46E2ABF2F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:BE24D6B4C3E9B4DE64A2759DF298F0D7299CFDC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Foxit PDF Editor Pro (ранее известный как Foxit PhantomPDF Busi
 magnet:?xt=urn:btih:CAD41383220075CDF38892FE9B7195F1FC0DF18E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ FastStone Capture представляет собой довольно мощн�
 ```bash
 magnet:?xt=urn:btih:29EAD39237ED8EFCAEFEA2EE1DF2D78C10863018
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

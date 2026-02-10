@@ -19,6 +19,8 @@ The Sims 4 (2017) [PS4] [EUR] 5.05 [HEN] [License / 1.50 / DLC] [Ru/Multi]
 magnet:?xt=urn:btih:85648C8D1F578B46A03308A6B9D340F9876E5DCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ EFootball PES 2021 Season Update (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.03] 
 ```bash
 magnet:?xt=urn:btih:032477A6627ED98932DD3BB5D3EF21FEACA12ED1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Just Dance 2022 — продолжение легендарной танцева
 magnet:?xt=urn:btih:1595009CAEAE50E513BD30DEB6D64E6E09758C15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Kao the Kangaroo (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.03] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3353D6E5F6B2D711BBCA397ADEBAC8693622024D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Bugsnax (2020) [PS4] [USA] 5.05 [HEN] [License / 2.08] [Ru/Multi]
 magnet:?xt=urn:btih:8A7D5B152BF4BE4D3DB6A77F13534DF114624BC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Chernobylite — научно-фантастическая ролевая игр
 ```bash
 magnet:?xt=urn:btih:14BA6E9C4579DFCC94095426F0005EA68751C637
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ LEGO® Worlds - это скопление миров, сделанных пол�
 magnet:?xt=urn:btih:741A8E2BCB311E2E8DDAF436E7315EDFD3F14461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Minecraft Dungeons (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.20 / DLC] [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:DCD4786221432FE44BD39FF759459F4578D83180
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ NHL 22 (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.30] [Ru/Multi]
 magnet:?xt=urn:btih:696B4F37367C601AE2E6C60660AE684E222BD7F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Jurassic World Evolution 2 — долгожданное продолжение �
 ```bash
 magnet:?xt=urn:btih:ADEC63D28F0E935338FD4E178F1F51CF38EAB1C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Crysis 2 Remastered (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.01] [Ru/Multi]
 magnet:?xt=urn:btih:AE9A04FEAFBD6F61C36508BB4958D35E404047C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Serious Sam Collection (2020) [PS4] [USA] 5.05 [HEN] [License / 1.02] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C2DE10ACED084ED69ADADEB8EE05FD5A897707BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Zombie Army 4: Dead War (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.44 / DLC] [Ru
 magnet:?xt=urn:btih:87D7AB9BE35F1B8DD965F6EE03CED13D3F94B92C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Marvel's Guardians of the Galaxy / Стражи Галактики Marvel (2021)
 ```bash
 magnet:?xt=urn:btih:30969B826CFA77E3ECCD3DE78481B1D814D564B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Nioh 2 (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.27 / DLC] [Ru/Multi]
 magnet:?xt=urn:btih:FB09478BBDF09E0F29F57CD51EB55AA0C2740E88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Outer Worlds — новая однопользовательская нау�
 ```bash
 magnet:?xt=urn:btih:EE3BF3C01879AAB78D34D683E7F1A173D8339EB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Blasphemous (2019) [Switch] [USA] 11.0.0 [NSZ] [License / DLC / 1.0.8] [Ru/En]
 magnet:?xt=urn:btih:B548636AA114E6684459D24CF54C9383B2B09444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Captain America: Super Soldier - Экшен от третьего лица, гл
 ```bash
 magnet:?xt=urn:btih:2113C428D756F50B70FF935D21F73E295CD549BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Marvel’s Avengers – Deluxe Edition (2020) [PS4] [EUR] 5.05 [HEN] [License / 
 magnet:?xt=urn:btih:815BAE9C138588BA7B237BF14C1F9488FFD99925
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ WRC 10 FIA World Rally Championship (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.0
 ```bash
 magnet:?xt=urn:btih:8388D4770C61771190A92C7B6D2DAEB5FD323B2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ ELEX II – продолжение ELEX, винтажной ролевой иг�
 magnet:?xt=urn:btih:84ABE1C9389AE91D6A4BCEF5C5CDC8A8405A0040
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Shadow Warrior 3 (2022) [PS4] [USA] 5.05 [HEN] [License / 1.11] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:66467FC2B54A5F04011869E6DE58CC6000FD725D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Back 4 Blood – это игра от создателей признанной 
 magnet:?xt=urn:btih:B81491265E5AFEB61638228519B2EB9E6B3FE76E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ magnet:?xt=urn:btih:B81491265E5AFEB61638228519B2EB9E6B3FE76E
 ```bash
 magnet:?xt=urn:btih:7A9C1CD0A359C73A7A53886727EA6C402243EC7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Scott Pilgrim vs. The World: The Game – Complete Edition (2021) [Switch] [USA]
 magnet:?xt=urn:btih:79DB1FC1F003FF75402F852212E8492480323D8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ magnet:?xt=urn:btih:79DB1FC1F003FF75402F852212E8492480323D8F
 ```bash
 magnet:?xt=urn:btih:2345E6CCEC1380F321E0DB7B815BEC6B9E0D8A30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

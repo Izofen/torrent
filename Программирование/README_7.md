@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:751B36DAA0E31B23E093ABA0CF1561E9C86A001F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Maximiliano Contieri | Clean Code Cookbook (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:A8DD1B131F0E56C939FF51B984F21097962AE599
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ James Reinders, Ben Ashbaugh | Data Parallel C++, 2nd Edition (2023) [PDF, EPUB]
 magnet:?xt=urn:btih:5800FE1F66D6348AD99868F0E0873B4B301CD02D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:5800FE1F66D6348AD99868F0E0873B4B301CD02D
 ```bash
 magnet:?xt=urn:btih:77E83FB73D99064803238FBCB999762354A72022
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Brij Kishore Pandey, Emily Ro Schoof | Building ETL Pipelines with Python (2023)
 magnet:?xt=urn:btih:DF2B5B69AEFC653CBEE311F6BAB9692B2CEAE357
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Bruce M. Van Horn II, Quan Nguyen | Hands-On Application Development with PyChar
 magnet:?xt=urn:btih:7A50D2C575D4A5FD029C26FE6B9E307A9FEF82DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Dojo - это высоконадежный инструментарий JavaScri
 ```bash
 magnet:?xt=urn:btih:0CDDCCF08EE4777FDC19DF36C3BC8A88D65BD0CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:0CDDCCF08EE4777FDC19DF36C3BC8A88D65BD0CB
 magnet:?xt=urn:btih:EEECCE2FFEAE15964E84D9F414E43C289E3E1C5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:EEECCE2FFEAE15964E84D9F414E43C289E3E1C5F
 ```bash
 magnet:?xt=urn:btih:20EA24D9DEF7AF5A0F6D9620B2F82F22786E96B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Tim Peters | Practical Python Backend Programming [Build Flask and FastAPI appli
 magnet:?xt=urn:btih:544CE98240B3297C938A130EE3AE9ADA48053A17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:544CE98240B3297C938A130EE3AE9ADA48053A17
 ```bash
 magnet:?xt=urn:btih:B31C0D28168E4A89DC6F66C3FF4A34B25A91637A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:B31C0D28168E4A89DC6F66C3FF4A34B25A91637A
 magnet:?xt=urn:btih:4E7AAB1E35EFE9D01BB613FF5DF1D197AA9441DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:4E7AAB1E35EFE9D01BB613FF5DF1D197AA9441DB
 ```bash
 magnet:?xt=urn:btih:8CF79F9820EA64F9A9584AEDBD92C384D955BEC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:8CF79F9820EA64F9A9584AEDBD92C384D955BEC6
 ```bash
 magnet:?xt=urn:btih:EBDF6022EEAFC744FC8517A55728B03A6C1536B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ Marinko Spasojevic, Vladimir Pecanac | Ultimate ASP.NET Core Web API First & Sec
 magnet:?xt=urn:btih:DB8DCCB6FD6584CF642FCD12E1F4F9296D626C04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:DB8DCCB6FD6584CF642FCD12E1F4F9296D626C04
 magnet:?xt=urn:btih:8ABE78ADB9F23127928988876853ADF060101C31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:8ABE78ADB9F23127928988876853ADF060101C31
 ```bash
 magnet:?xt=urn:btih:214AB0B42021440E8761BC964667D7C5534756ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ Alan Thorn | Pro Unity Game Development with C# (2014) [PDF, FB2, DJVU, EPUB,TXT
 magnet:?xt=urn:btih:69286E1ACCAF92A8887590DE84469E157BEE9046
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ Beginning 3D Game Development with Unity 4 (2nd edition) идеально под
 ```bash
 magnet:?xt=urn:btih:FF265C6209EE65DD746BE84A38C2ABAB104ADB3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:FF265C6209EE65DD746BE84A38C2ABAB104ADB3B
 magnet:?xt=urn:btih:2D1214ABF64BD2A15CFA31BDA1D831A16CD74F7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:2D1214ABF64BD2A15CFA31BDA1D831A16CD74F7C
 ```bash
 magnet:?xt=urn:btih:E8E950A60383FA2388E07B422D6263556357A5B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:E8E950A60383FA2388E07B422D6263556357A5B9
 magnet:?xt=urn:btih:B7F8F49D136F1830C694ED0D4BBB1D4C321F8E02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:B7F8F49D136F1830C694ED0D4BBB1D4C321F8E02
 magnet:?xt=urn:btih:2C1740668EF9E1A4301B3078CA171121130CDA15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:2C1740668EF9E1A4301B3078CA171121130CDA15
 ```bash
 magnet:?xt=urn:btih:FFBACE8FA6BC08055CF998F16A26F0A0EA98A443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:FFBACE8FA6BC08055CF998F16A26F0A0EA98A443
 magnet:?xt=urn:btih:4FAB71C15E73589535635047FD9AFAB0603EEB01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ magnet:?xt=urn:btih:4FAB71C15E73589535635047FD9AFAB0603EEB01
 ```bash
 magnet:?xt=urn:btih:9393464B78FDC3FD6F64D11459A2DBD80D7B85A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

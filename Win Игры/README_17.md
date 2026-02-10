@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3CF81364982E77AF558D866B9AECF10FC26F7B93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Abyss Eschaton Survivors (2025) [Ru/Multi] (1.00.10) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A7038A1E70A3428883D2682E57A3A8068CAB2930
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Automobilista 2 - это праздник автоспорта - всеобъе�
 magnet:?xt=urn:btih:FE17048D88B9BC97EEE3BA4AB1EE7936F815725C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Oddsparks: An Automation Adventure – это стратегия в режиме
 ```bash
 magnet:?xt=urn:btih:3983857AF285E075B20656D3B0837FED813EBFC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Astral Ascent — это 2D платформер и упрощённый рог�
 magnet:?xt=urn:btih:0491F2D692655576672CAA10B820B9F3FEA1DD30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Lost Soul Aside (2025) [Ru/Multi] (build 19738594) Repack FitGirl [Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:706CE1D34EC6ABAB168EC45997C8C8AB1D941B92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Soulstice (2022) [Ru/Multi] (1.1.0+219971/dlc) Repack Let'sРlay [Deluxe Edition
 magnet:?xt=urn:btih:8FE9BD49CEA8681C1FF39B14152F455D8F5B61D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ DAVY x JONES (2025) [Ru/Multi] (0.12.1) Repack Other s [Early Access]
 ```bash
 magnet:?xt=urn:btih:0B99F0BCAA158577BA35A7589DF2549429E99D06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Riftbreaker (2021) [Ru/Multi] (2.0/dlc) Repack FitGirl [Complete Pack]
 magnet:?xt=urn:btih:DCDDBFB20B3A64FF1CB776C964FB9525A8FCC7E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Hotline Miami — это взрывной боевик, брызжущий на�
 ```bash
 magnet:?xt=urn:btih:5B6EA2B4A0C6166721DCB549B5DD999156B96DE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Builder's Journey - это лирическая головоломка, кото
 magnet:?xt=urn:btih:B1E8BA6661160891564D369BDCF1714349C79E5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Miraculous: Rise of the Sphinx (2022) [Ru/Multi] (Build 10128456) Repack Yarosla
 ```bash
 magnet:?xt=urn:btih:03B5DE4001212A6BBAD13204BD8D442C518296D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Tavern Manager Simulator - это увлекательный процесс во
 magnet:?xt=urn:btih:0656E6DDED7519C6108AF4F98AD81A0F751B4B50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Wicked West (2025) [En] (1.0) Scene TiNYiSO
 ```bash
 magnet:?xt=urn:btih:460FA3DCC98B77DE656814F7BDD18BA4EC79AFBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Hotline Miami 2: Wrong Number — это брутальное завершени
 magnet:?xt=urn:btih:07C92417CD6F5CE58671130BAEA89A0456D7B449
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Totally Accurate Battle Simulator - сумасшедшая тактическа�
 ```bash
 magnet:?xt=urn:btih:02CA1EFF42AE2C301E0EA65DAB100865D119307A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Kingdom's Deck (2025) [Ru/Multi] (1.1.3) Repack seleZen
 magnet:?xt=urn:btih:622EF34317D7BA646ED9A5DCC3D53E0E64AE522F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Talisman: Digital 5th Edition (2024) [Ru/Multi] (Build 84407/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:DA0F22CCB29845E1C303A469DB38B3DA755EAA51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Prison Escape Simulator: Dig Out (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:5082EC40CAD5F0E65BE15F683569D4E868C57F66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Starship Troopers: Terran Command - это захватывающая страт
 ```bash
 magnet:?xt=urn:btih:F90F8441C9CC04DADCC8686D6465C997BE649003
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Stranded: Alien Dawn (2022) [Ru/Multi] (1.23.250612/dlc) Repack FitGirl [Premium
 magnet:?xt=urn:btih:3779843DF6607EFB7A2034FBE5A44F065F398C4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Tiny Bookshop (2025) [Ru/Multi] (Build 19513764) Repack Other s [Supporter Pack]
 ```bash
 magnet:?xt=urn:btih:A9B7A3FC4BC49A0ABCBB18E8E38A31984D189773
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Panzer Knights (2020) [Ru/Multi] (1.1.7/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:880D9974EA927536381513BECF2A8D92562FD584
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Lost Soul Aside (2025) [Ru/Multi] (build 19738594) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:A8C4D1D4AF1056E4E62957337B9B31875DA76F63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Caput Mortum (2025) [Ru/Multi] (1.1.0.0) Repack Let'sРlay
 magnet:?xt=urn:btih:67BFB0F3E950E6C721BCD742079D9C98CB2C3D6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Synergy – это градостроительный симулятор в су
 ```bash
 magnet:?xt=urn:btih:6892C635FA1B500AD53027FD5E82DC1E0F498657
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

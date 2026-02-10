@@ -1,3 +1,30 @@
+###  Публикация: 1540721   (650358) от 31.03.2022
+
+Вадим Фарг | Система возрождения (Книга 1). Лишний игрок (2022) [MP3, Владислав Горбылев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смерть ещё не конец. Слышали такую фразу? А мне пришлось столкнуться с этим фактом лицом к лицу. Стараясь спасти племянницу, погиб в аварии, но даже смерть не принесла долгожданного спокойствия.
+Некие высшие силы перенесли меня в Лимб – Арену, состоящую из пяти колец. А вместе со мной там оказалась тысяча игроков. Теперь нам приходится выживать, дабы собрать все (   Читать дальше...   )Жанр: Фэнтези, LitRPGПродолжительность: 10:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A6564D13DA5A17B29651746DC8A211ECEC36BA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540823   (650475) от 31.03.2022
 
 Евгений Шалашов | «Чекист» Книга 4. Новое назначение (2022) [MP3, Casper Valter]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:9A311F19CB42B88E790C9F6A61F2DD5F40BE4C0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@ magnet:?xt=urn:btih:9A311F19CB42B88E790C9F6A61F2DD5F40BE4C0C
 magnet:?xt=urn:btih:218CE49703A6176C031B49ACA1C8B53A2DA90C86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:218CE49703A6176C031B49ACA1C8B53A2DA90C86
 ```bash
 magnet:?xt=urn:btih:1759DD1841CC0E4085A48B6D0018F41453F87AB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +126,8 @@ magnet:?xt=urn:btih:1759DD1841CC0E4085A48B6D0018F41453F87AB2
 magnet:?xt=urn:btih:6AEB020A0524CE96A55590289281509DBDE32F0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +151,8 @@ magnet:?xt=urn:btih:6AEB020A0524CE96A55590289281509DBDE32F0F
 ```bash
 magnet:?xt=urn:btih:EFBE18CBAB07D172DDDA8A8DA0365C36BBC0BF17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +180,8 @@ magnet:?xt=urn:btih:EFBE18CBAB07D172DDDA8A8DA0365C36BBC0BF17
 magnet:?xt=urn:btih:45BAB3BB47C8485C887D03EFB43ED5BE1DBF4F64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +206,8 @@ magnet:?xt=urn:btih:45BAB3BB47C8485C887D03EFB43ED5BE1DBF4F64
 magnet:?xt=urn:btih:47F2FC76CCD54D0050F71180ED7FC33AE022B294
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +231,8 @@ magnet:?xt=urn:btih:47F2FC76CCD54D0050F71180ED7FC33AE022B294
 ```bash
 magnet:?xt=urn:btih:1A67F8508CE8463F5ED48A3D04EBC741DB879920
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +261,8 @@ magnet:?xt=urn:btih:1A67F8508CE8463F5ED48A3D04EBC741DB879920
 magnet:?xt=urn:btih:769F229AE9C2D134DD1F974DA5091285C6546E18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +286,8 @@ magnet:?xt=urn:btih:769F229AE9C2D134DD1F974DA5091285C6546E18
 ```bash
 magnet:?xt=urn:btih:A180917EFB2471ED63A91A26F310431B5D73B622
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +313,8 @@ magnet:?xt=urn:btih:A180917EFB2471ED63A91A26F310431B5D73B622
 magnet:?xt=urn:btih:8D1575F19F7CAD47ED135F79DA055C3363269449
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +339,8 @@ magnet:?xt=urn:btih:8D1575F19F7CAD47ED135F79DA055C3363269449
 magnet:?xt=urn:btih:0E34F39F516FEF383F765F36FA2E450A6DF3B2C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +364,8 @@ magnet:?xt=urn:btih:0E34F39F516FEF383F765F36FA2E450A6DF3B2C0
 ```bash
 magnet:?xt=urn:btih:B51E67F7F354B78E81550CADFFE69CF93C22B9F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +392,8 @@ magnet:?xt=urn:btih:B51E67F7F354B78E81550CADFFE69CF93C22B9F3
 magnet:?xt=urn:btih:C8888ED9A4C1CDABCABAEF45E1C6B35EA89A83D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +419,8 @@ magnet:?xt=urn:btih:C8888ED9A4C1CDABCABAEF45E1C6B35EA89A83D9
 magnet:?xt=urn:btih:B78D716C4AFDD26DBDEFB04E33F6977B9D389D46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +444,8 @@ magnet:?xt=urn:btih:B78D716C4AFDD26DBDEFB04E33F6977B9D389D46
 ```bash
 magnet:?xt=urn:btih:00D8649AC22937057F41F1EAE70A79F3E803B49F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +472,8 @@ magnet:?xt=urn:btih:00D8649AC22937057F41F1EAE70A79F3E803B49F
 magnet:?xt=urn:btih:5E1E2E37E9DBEC4BEBD7ED7F594D2C08C89EC352
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +498,8 @@ magnet:?xt=urn:btih:5E1E2E37E9DBEC4BEBD7ED7F594D2C08C89EC352
 magnet:?xt=urn:btih:C72CCBF1453FEE8C14E81C52F62826120C36BC33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +523,8 @@ magnet:?xt=urn:btih:C72CCBF1453FEE8C14E81C52F62826120C36BC33
 ```bash
 magnet:?xt=urn:btih:AF9CB677F775E969EC610522C756A92252CDB757
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +553,8 @@ magnet:?xt=urn:btih:AF9CB677F775E969EC610522C756A92252CDB757
 magnet:?xt=urn:btih:D3975A2D078DEF6E8CB0EB4DF9239131A307974F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +578,8 @@ magnet:?xt=urn:btih:D3975A2D078DEF6E8CB0EB4DF9239131A307974F
 ```bash
 magnet:?xt=urn:btih:86DB9C7CF798686F1FBD28FC4DBC353A34C63CA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +605,8 @@ magnet:?xt=urn:btih:86DB9C7CF798686F1FBD28FC4DBC353A34C63CA6
 magnet:?xt=urn:btih:0A2051B0767BAB35BDE9A0E84FB45AE79C1FB01C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +630,8 @@ magnet:?xt=urn:btih:0A2051B0767BAB35BDE9A0E84FB45AE79C1FB01C
 ```bash
 magnet:?xt=urn:btih:68F8D6D7F4D17C8771F8485C24333E1C45DFAEA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +660,8 @@ magnet:?xt=urn:btih:68F8D6D7F4D17C8771F8485C24333E1C45DFAEA1
 magnet:?xt=urn:btih:71FA7C68B7E676612F90F12C8A292E3CE4B2C813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,31 +686,7 @@ magnet:?xt=urn:btih:71FA7C68B7E676612F90F12C8A292E3CE4B2C813
 magnet:?xt=urn:btih:B04819920E5924F15554A21836EBAE223D504523
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540268   (653804) от 29.03.2022
-
-Борис Романовский | Андрей (Книга 6). Кровавый Император (2022) [MP3, Александр Чайцын]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тёмная Сфера объявила о начале Гонки Уровней, в которой могут участвовать любые разумные существа, в том числе и зомби, мутанты и Монстры. Те, кто займут первые три места, смогут лично встретиться с Тёмной Сферой и попросить её об услуге.
-
-Я – Андрей Первый, глава клана Архитекторов и страны Сангис, один из сильнейших людей на Земле. С самого начала Гонки Уровней (   Читать дальше...   )Жанр: Боевая фантастика, РеалРПГПродолжительность: 10:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8719860D3F8A889BC97D43E7343D588DE7DE1D35
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

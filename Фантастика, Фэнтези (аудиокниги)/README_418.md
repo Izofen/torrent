@@ -1,3 +1,29 @@
+###  Публикация: 1536253   (676433) от 11.03.2022
+
+Андрей Рымин | Вслед за Бурей (Книга 1). Доля слабых (2021) [MP3, Максим Суслов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676433.jpg" />
+</div>
+
+
+###  Подробнее
+
+В долине, окруженной стеной неприступных гор, издавна жили племена, не знающие даже, что такое железо. И вот, в их замкнутый мирок приходит беда. Орда захватчиков, жестоких и беспощадных, вторгается в их земли. Шансов уцелеть перед такой силой почти нет, но есть надежда на многие века живущего рядом бессмертного хранителя племени, который, правда, не знает ничего (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтезиПродолжительность: 15:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AFBC25861D62E0A8FDDB8E86BA5FBB4D759BAD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536334   (676440) от 11.03.2022
 
 Виктор Глебов | Истребители чудовищ (2021) [MP3, Руслан Покровский]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:A1962C6D85D663E20C85578F5F48FD0E2742BC85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:A1962C6D85D663E20C85578F5F48FD0E2742BC85
 magnet:?xt=urn:btih:6BFF2A0B24097F3A50816815397FA6AD1D878344
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +101,8 @@ magnet:?xt=urn:btih:6BFF2A0B24097F3A50816815397FA6AD1D878344
 magnet:?xt=urn:btih:B0D046F4B874734A3C2FE5C6B35B7D45C14FBC41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:B0D046F4B874734A3C2FE5C6B35B7D45C14FBC41
 ```bash
 magnet:?xt=urn:btih:76AC5FCC82D26995DF3EECC2C2139DAD5F4B722C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:76AC5FCC82D26995DF3EECC2C2139DAD5F4B722C
 magnet:?xt=urn:btih:C1E7DEE96281BC8E5EDA607FC6C42E00041558DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:C1E7DEE96281BC8E5EDA607FC6C42E00041558DB
 ```bash
 magnet:?xt=urn:btih:AC4100B6FD68E19956456BE9DD01C687BACB4F13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:AC4100B6FD68E19956456BE9DD01C687BACB4F13
 magnet:?xt=urn:btih:D70A28249C288FE48061B5D8A78AE5C986AF3B47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:D70A28249C288FE48061B5D8A78AE5C986AF3B47
 ```bash
 magnet:?xt=urn:btih:F2E2865FE72179F0E1FCB3E96A06E588489B28EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:F2E2865FE72179F0E1FCB3E96A06E588489B28EB
 ```bash
 magnet:?xt=urn:btih:E63CEFDA2F41EDFBF8306CBB7A0CF3C6164BA575
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:E63CEFDA2F41EDFBF8306CBB7A0CF3C6164BA575
 magnet:?xt=urn:btih:F72F1EECAD0763BAD61E73E862B717196B882E38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +314,8 @@ magnet:?xt=urn:btih:F72F1EECAD0763BAD61E73E862B717196B882E38
 magnet:?xt=urn:btih:124DEAADB7A9E09965F05B2E0533C30E85AE29CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:124DEAADB7A9E09965F05B2E0533C30E85AE29CF
 ```bash
 magnet:?xt=urn:btih:D5F86F667A85408A1188830FDA5EF258948D1D22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:D5F86F667A85408A1188830FDA5EF258948D1D22
 magnet:?xt=urn:btih:00D476917DE926FD8A7BDCEEA0A7E071908EDF8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:00D476917DE926FD8A7BDCEEA0A7E071908EDF8F
 ```bash
 magnet:?xt=urn:btih:C5A235536A1E9E47C9F3C54253EB8981ECFFB2C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:C5A235536A1E9E47C9F3C54253EB8981ECFFB2C2
 magnet:?xt=urn:btih:B3B3231B7D0314757255B6710FBEC163A5EE730F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:B3B3231B7D0314757255B6710FBEC163A5EE730F
 ```bash
 magnet:?xt=urn:btih:2DDEE387055C71CB95B1610FB7144161E71FA063
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +472,8 @@ magnet:?xt=urn:btih:2DDEE387055C71CB95B1610FB7144161E71FA063
 magnet:?xt=urn:btih:17048B26335C39DA6CD14B508871F2FE4E8573BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:17048B26335C39DA6CD14B508871F2FE4E8573BB
 ```bash
 magnet:?xt=urn:btih:82981370E5685663ED6541BD228DFCC82DBC8EBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +524,8 @@ magnet:?xt=urn:btih:82981370E5685663ED6541BD228DFCC82DBC8EBB
 magnet:?xt=urn:btih:E2C83ADAD3EC308E7F550E53A0ABF77ECF145CF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:E2C83ADAD3EC308E7F550E53A0ABF77ECF145CF2
 ```bash
 magnet:?xt=urn:btih:37562CD031625B9E3D77CA352A24FAAE3CFAE09F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:37562CD031625B9E3D77CA352A24FAAE3CFAE09F
 magnet:?xt=urn:btih:723C3284908EB7654D6C942BFA19636E081BC5A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:723C3284908EB7654D6C942BFA19636E081BC5A9
 magnet:?xt=urn:btih:0EE050200B333B6D78F541F976ACA1A01B244124
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:0EE050200B333B6D78F541F976ACA1A01B244124
 ```bash
 magnet:?xt=urn:btih:1E1AA628780EF46D583406E2F83F36BA401D4FCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:1E1AA628780EF46D583406E2F83F36BA401D4FCF
 magnet:?xt=urn:btih:479F42701F210F9081075A8115D55BEF1FCF23E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,29 +683,7 @@ magnet:?xt=urn:btih:479F42701F210F9081075A8115D55BEF1FCF23E8
 magnet:?xt=urn:btih:A3DF471792AE1AE1465B4E075A2F6D21248F43EA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 676649   (679974) от 06.07.2013
-
-Ян Валетов | Сердце проклятого [2013] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679974.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Самолет появился над дорогой внезапно. Он летел как-то странно, как не должны летать самолеты, описывая широкую дугу на высоте не более двадцати метров, левым крылом вперед. И сам самолет был непривычного вида, пустынного раскраса, но похожий силуэтом не на стремительный истребитель, а на раскормленного горбатого москита, который облетает спящего туриста, выбирая (   Читать дальше...   )Жанр: Исторические приключения, фантастика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70A992415DE78F0B8D9FF3334662F5DE03385C4D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

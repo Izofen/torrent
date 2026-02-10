@@ -19,6 +19,8 @@ Total Commander – самый популярный файловый менед�
 magnet:?xt=urn:btih:079208DE761E355D10E54007F58C0FA5945FD629
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:3075DD13D3C779DCAED45FC52ED65BF9289498E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ UltraUXThemePatcher 4.4.1 [En]
 magnet:?xt=urn:btih:B82512FCCFB5CE3ECC532776006BA1A265510AD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:3364F2E2F9C28317E801BFF4B943BAC59AC4BE44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ CleanMyMac X — это пакет «все в одном», который сд
 magnet:?xt=urn:btih:6BDA9A1AE30EFF6227DDFD15130936BC626A08A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:8A8D471A0646B2C2D9B803375156F557731A356B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Kodi (ранее известный как XBMC) — бесплатное и с 
 magnet:?xt=urn:btih:B3973B9CA45C0739056A6DCDA6E724173F76E9EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:C033AC8C5D5E49BF01714AA9BD6641242EEB81C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Koodo Reader 1.5.1 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:556D64A09F017A597C779F6CD5E85F4D63DF81F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ nthLink — мощный и бесплатный VPN способный обхо
 ```bash
 magnet:?xt=urn:btih:8208668A7E91C3A8F6B199032D253B00C3933775
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Rainmeter - утилита для мониторинга ресурсов ком
 magnet:?xt=urn:btih:BB3668D1805EDA2174FEFA911AE501076B524AE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Modern Tweaker - программная оболочка для твиков Win
 ```bash
 magnet:?xt=urn:btih:FC32CC9B2672B7A4C90B6F5969F679869325CE96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 magnet:?xt=urn:btih:56B7E0D96FC095B4B266E1F7B7F280C79909F15B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:5FE0187B9BBC16EFC6C9DB0BB1C71A25DEDAEF61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ FxSound (ранее DFX Audio Enhancer) - отличное приложение,
 magnet:?xt=urn:btih:95B093B1F5DF2B695EF248EF5FC5956D72C2731A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:4F6E5A9D838FB53CBABC21DBCE8F8A6A1182B562
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:4F6E5A9D838FB53CBABC21DBCE8F8A6A1182B562
 magnet:?xt=urn:btih:49D4C1BE8B539AA1B85BCDCDFD5ACCA43608B57C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Volume² — альтернативный регулятор громкости,
 ```bash
 magnet:?xt=urn:btih:64FD048825EA3596A6BCBAB209D1B741E86C8FE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ simplewall 3.7.1 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:4630914D1916C9E2F306AA17608764CBFFA68D14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ OpenVPN – мощная программа для работы с частны�
 ```bash
 magnet:?xt=urn:btih:7DFDF0F36966578D105D87842E9E17F8BD227030
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Microsoft Office 2021 for Mac LTSC v.16.75 VL [Multi/Ru]
 magnet:?xt=urn:btih:C4F14F6FEC3997A0A3E959747EFE6D3030DE9209
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ AIMP 5.11 Build 2434 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F240FAA89ADC8A6D09CEA6CFB4DC6A9B6DA55A63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ updated_july_2023_x64_dvd_f69501d4.iso.
 magnet:?xt=urn:btih:FF560ACFDCEF3B996101459C907F9B9323E3D9D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Avast Premium Security – комплексный антивирус "все-в-
 ```bash
 magnet:?xt=urn:btih:DCD793140695116DCF3DED0923BFB2EEBB08397B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Corona Renderer - это популярный визуализатор для р
 magnet:?xt=urn:btih:FEA9C55A46112D30602A691650A7546ECE9AF9DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ IntelliJ IDEA — самая умная среда разработки для J
 ```bash
 magnet:?xt=urn:btih:8E9D3EC547695E030D603BFF5E390225B96B8C2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

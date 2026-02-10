@@ -19,6 +19,8 @@ Phoenix Labs | Артбук по игре Dauntless / The Art of Dauntless (2019
 magnet:?xt=urn:btih:DF5A9E5B3D61B16FC6AE3EEA26AE94F137F399D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ DjVu Reader Pro предельно простое в использовании 
 magnet:?xt=urn:btih:F1429B85A69228201AFD8C0BD6C468FE69D60A20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:F1429B85A69228201AFD8C0BD6C468FE69D60A20
 ```bash
 magnet:?xt=urn:btih:0CCFED9C15583CF95AF3BF489800B33FC6575F30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:0CCFED9C15583CF95AF3BF489800B33FC6575F30
 ```bash
 magnet:?xt=urn:btih:F8A1DB83D93466421A69472885720C0E5A089E8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Blank & Jones - The Singles (The Hitmix by Oliver Momm) (2019) [FLAC|Lossless|WE
 magnet:?xt=urn:btih:5B256F50B974BDB422FE7059B11300C9255667BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Frederator Studios | Артбук по мультсериалу Храбрейш
 ```bash
 magnet:?xt=urn:btih:655CCD8EE5999BA9FB73C4FF30F2D0B832D24EAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ VA - Drizzly Music presents: Magic Island Of Lounge Series (Life Is A Journey) -
 magnet:?xt=urn:btih:AFE854AF911E88963F32138B4C9238C8D44A59C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ Daniel Pemberton, VA - Spider-Man: Into the Spider-Verse / Человек-пау
 ```bash
 magnet:?xt=urn:btih:681BAF529FFA30F50068A78E5B21BCAF815CF482
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ Electric Youth - Breathing (Original Motion Picture Soundtrack From A Lost Film)
 magnet:?xt=urn:btih:B6C8EC7D9C140D4483C14E15E96B2695754CC690
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ magnet:?xt=urn:btih:B6C8EC7D9C140D4483C14E15E96B2695754CC690
 magnet:?xt=urn:btih:5C1D4AC1C6D4724AE4DEC6E05E5125B94326BA9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:5C1D4AC1C6D4724AE4DEC6E05E5125B94326BA9D
 ```bash
 magnet:?xt=urn:btih:5BBB32C6B209717B595B32451A2690D833D57710
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ New London Chorale - It's For You (1999) [FLAC|Lossless|image + .cue] <Сrossove
 magnet:?xt=urn:btih:AB1E1278C6CADE9545C56ADE21001FDC3E84A72C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:AB1E1278C6CADE9545C56ADE21001FDC3E84A72C
 ```bash
 magnet:?xt=urn:btih:DCCDDA76F931970299E4463F251D84EE2C78B73F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +380,8 @@ ST - ПОЭТ ДУЭТ (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:702BAD3761D1E8252B6977203DC00436466085D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ New London Chorale - Songs from the Heart (2008) [FLAC|Lossless|image + .cue] <C
 magnet:?xt=urn:btih:2BFFCBFD5AF5C590A6A84EA290842E2CA15EC97E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +437,8 @@ magnet:?xt=urn:btih:2BFFCBFD5AF5C590A6A84EA290842E2CA15EC97E
 magnet:?xt=urn:btih:ACF09FDC32DE6F3ABB7B2456DA44F937B99C5030
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:ACF09FDC32DE6F3ABB7B2456DA44F937B99C5030
 ```bash
 magnet:?xt=urn:btih:3F54D1C12DBD0FAA282D56EC2628195234FD605D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +492,8 @@ Van Morrison - Three Chords And The Truth (2019) [MP3|320 Kbps] <Blues, Blues Ro
 magnet:?xt=urn:btih:EB2358949B3A4D7532D6F771B24B74C84A2860E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ Ocenaudio является простым в использовании, быс�
 ```bash
 magnet:?xt=urn:btih:A6586BEFC7AEBCDBB614A4F771F40BE05391B36B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +547,8 @@ Billy Eckstine Sings with Benny Carter special guest Helen Merrill (1987) EmArcy
 magnet:?xt=urn:btih:A29E2987E2FE554645AD63B578EA4B86AFC1E3AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +576,8 @@ Eric Alexander - Song Of No Regrets (2017) HighNote [FLAC|Lossless|tracks + .cue
 magnet:?xt=urn:btih:21B8540B9EBA18C4BC1C4645D01EF80D2719AB58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +604,8 @@ magnet:?xt=urn:btih:21B8540B9EBA18C4BC1C4645D01EF80D2719AB58
 magnet:?xt=urn:btih:602DC74B26B8EA0D57F28CAB88167C9EBE513869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +629,8 @@ magnet:?xt=urn:btih:602DC74B26B8EA0D57F28CAB88167C9EBE513869
 ```bash
 magnet:?xt=urn:btih:CE2EE061B81629F360129AB44F8E336372A9A05D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +656,8 @@ magnet:?xt=urn:btih:CE2EE061B81629F360129AB44F8E336372A9A05D
 magnet:?xt=urn:btih:5B5938CF3D4BE467B683415CC1C781430AE0ED19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ magnet:?xt=urn:btih:5B5938CF3D4BE467B683415CC1C781430AE0ED19
 magnet:?xt=urn:btih:CD741519A93246D9A2516AE6865BFB64BD91A37D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ magnet:?xt=urn:btih:CD741519A93246D9A2516AE6865BFB64BD91A37D
 ```bash
 magnet:?xt=urn:btih:6A1B283F33277CE6D6B8C261610B022C2DE9042B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

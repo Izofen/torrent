@@ -19,6 +19,8 @@ FontViewOK 8.38 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:80E0B7BE0F56371021144D0E84DEFBB32CE79830
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Warhammer 40000: Shootas Blood & Teef (2022) [Ru/Multi] (1.0.23) License GOG
 ```bash
 magnet:?xt=urn:btih:EA806A7167E3A5465119B0A2BB6EFC27901F09DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:EA806A7167E3A5465119B0A2BB6EFC27901F09DF
 magnet:?xt=urn:btih:599F27FD214291E1E721FF74BEEE7734D89B968B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Shotcut - мощное кроссплатформенное приложение
 ```bash
 magnet:?xt=urn:btih:CA259E0FB60A4001586D91FAB092574991C912CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:CA259E0FB60A4001586D91FAB092574991C912CB
 magnet:?xt=urn:btih:014568AB4FB70FF683A77F924E01D222A25864F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Floorp Browser – это модифицированная версия Firefox,
 ```bash
 magnet:?xt=urn:btih:698E026A79416E201047650E1346C86B950D87F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:698E026A79416E201047650E1346C86B950D87F5
 magnet:?xt=urn:btih:D2332F30374918E0E556B4E234AB00F906E23B2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:D2332F30374918E0E556B4E234AB00F906E23B2E
 magnet:?xt=urn:btih:AA329B9EB9C6FDFEB3A02924C159378BE422282F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ magnet:?xt=urn:btih:AA329B9EB9C6FDFEB3A02924C159378BE422282F
 ```bash
 magnet:?xt=urn:btih:46EA79507EDADB3C16E2B660E9082B2D36FF2B9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ lectoroom, Елизавета Залегина | Натюрморт «Завтр
 magnet:?xt=urn:btih:202EB11161EF46A7390F2EC2BAD73AA6084320A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:202EB11161EF46A7390F2EC2BAD73AA6084320A4
 ```bash
 magnet:?xt=urn:btih:9C073C3E20433654E4DBD3E10931009D1B04C72A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:9C073C3E20433654E4DBD3E10931009D1B04C72A
 magnet:?xt=urn:btih:055FF64A271026614C32313E2B40AD96E71B0EF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:055FF64A271026614C32313E2B40AD96E71B0EF0
 ```bash
 magnet:?xt=urn:btih:7F2005F0DD5D175D1640D8241D4CA74FBF2AB000
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Astra Linux Special Edition 1.7.3 успешно прошла комплекс �
 magnet:?xt=urn:btih:A58C80DBF9529DE679C9EF7305A6B94E68C31723
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:A58C80DBF9529DE679C9EF7305A6B94E68C31723
 ```bash
 magnet:?xt=urn:btih:426B88EC00A13D6F6D2F2CB0204379C890AC249D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:426B88EC00A13D6F6D2F2CB0204379C890AC249D
 magnet:?xt=urn:btih:6ECF93044FE5A56FE5BCCE5BC53BD98782FB0D0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Mystery Case Files 22: Crossfade / За семью печатями 22: Изло
 magnet:?xt=urn:btih:AD4AD89DBC0CBCF7181518D4376210DFE6538FC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Slurm (Слёрм), Алексей Барабанов | Rabbit MQ (2022) WEB-DL 
 ```bash
 magnet:?xt=urn:btih:395E51565760DFFB39C3CC061CF91A2DD3E68E84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ FruitJuice - приложение тесно интегрированное с �
 magnet:?xt=urn:btih:73B975A296E2359CFFF8019DD98192066F7421CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:73B975A296E2359CFFF8019DD98192066F7421CD
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Paranormal Files 6: The Trap of Truth / Паранормальные явлен�
 magnet:?xt=urn:btih:C6500C6F5AE0473A2351E014D84FAAE9E02D2771
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:C6500C6F5AE0473A2351E014D84FAAE9E02D2771
 ```bash
 magnet:?xt=urn:btih:1F6E844C7F83AD78B5FA4DD58F03A6F5B08196F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:1F6E844C7F83AD78B5FA4DD58F03A6F5B08196F0
 magnet:?xt=urn:btih:16BCC027D9B53A82B751CAA1A1E4E54F82B037D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ magnet:?xt=urn:btih:16BCC027D9B53A82B751CAA1A1E4E54F82B037D1
 ```bash
 magnet:?xt=urn:btih:1EE1322482733FB95DA373B701AB9E28851ACE43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:1EE1322482733FB95DA373B701AB9E28851ACE43
 magnet:?xt=urn:btih:D933749FAC315EBF4C8570084494F5F2F1E5E44C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:D933749FAC315EBF4C8570084494F5F2F1E5E44C
 ```bash
 magnet:?xt=urn:btih:5F8385A8B33FB98EE7EB9F972CC781A9DB3EB854
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

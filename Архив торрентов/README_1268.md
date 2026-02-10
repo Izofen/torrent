@@ -21,6 +21,8 @@ Foxit PDF Editor Pro (ранее известный как Foxit PhantomPDF Busi
 magnet:?xt=urn:btih:E40506ACBE868E674DB4CC2FBE2B1B74266D1E4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Adobe Audition 2023 23.1.0.75 RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:87DE5ADF578BE074761DFE59C7D8925C7B992ECE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ DxO PhotoLab 5 ELITE Edition 5.1.0 [Multi]
 magnet:?xt=urn:btih:F520C78D8FED5C98F09581048C3E333E1875FEBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Adobe Media Encoder 2023 - это программа кодирования, к�
 magnet:?xt=urn:btih:B50065575819436F7A9ED409C536EC515080ACE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:B0B016DD0965AAAC57C71E40654BBF75B73B14B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Compressor – замечательный и мощный инструмент �
 magnet:?xt=urn:btih:078BF4EA4C80133870A8B49905E365D1AB9CC5DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Character Animator — это приложение для анимировани
 magnet:?xt=urn:btih:3A1842799CAAE8CD32060E4B1DF3B96C31EE3126
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ djay Pro обеспечивает полный инструментарий дл
 ```bash
 magnet:?xt=urn:btih:180960181F8D2D6E9C312087844E91AC9C1216C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Motion 5 - это расширение творческих возможност
 magnet:?xt=urn:btih:BE5C1E9FFFBA32DEC32EEC5FC4A6083767EE06CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ MWeb поддерживает расширенный синтаксис Github: 
 magnet:?xt=urn:btih:B5170670DEA963176553FAB5280CBDEE526F0023
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:B5170670DEA963176553FAB5280CBDEE526F0023
 magnet:?xt=urn:btih:966A95CC363828F152CC9F1E91314C6C2BAEB556
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ IrfanView - компактная и в то же время мощная про�
 ```bash
 magnet:?xt=urn:btih:F42C251D4EB960D5CADBEFD4920E436E3D96B592
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ updated_oct_2023_x64_dvd_eb811ccc.iso
 magnet:?xt=urn:btih:6A247246F2A80349DE1536FE22B7CF8697EBFD20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ Yate был разработан для людей, которые серьез�
 magnet:?xt=urn:btih:B45AD99BCE05CBAFAB3DBF6843660A58E217659E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ SoftMaker Office Professional 2021 rev. S1060.1203 (x64) Portable by 7997 [Multi
 ```bash
 magnet:?xt=urn:btih:F6C942FC1B7DA5FAA0AEB3638D0335ECB0F44139
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ simplewall 3.0.9 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:9102B9623A4B43B3247362CAC5ECE29430A2F091
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ SideNotes - это боковая панель, которая заполнит 
 ```bash
 magnet:?xt=urn:btih:C31CA8129E1F891990BA7166A55A30E2E036DB06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ Boxy SVG 3  v3.72.0 [En]
 magnet:?xt=urn:btih:2034B02617391A5D09EAFBDCA2DB98442E06D88D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ Stats - это приложение с открытым исходным код�
 ```bash
 magnet:?xt=urn:btih:494F73E31EFCA21984B9C017F1D9A64213A722F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ A Better Finder Rename является лучшим решением для а�
 magnet:?xt=urn:btih:F17F0EC05051A057EE6A16EB470BAC9848249F3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ uDock 2.4 [En]
 ```bash
 magnet:?xt=urn:btih:DA234F40CDA8DADA5C23E0AF469315E8E4E8F0D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ ZWCAD 2024 SP1 Professional [Ru]
 magnet:?xt=urn:btih:8AB51DE2EC1A52822D362626EDED12D2E5E27BD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ Everything – это поисковый движок для Windows. Everything
 ```bash
 magnet:?xt=urn:btih:9968C857EAB41AAA66D7FCE2E5DF7464DD3D8E52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:9968C857EAB41AAA66D7FCE2E5DF7464DD3D8E52
 magnet:?xt=urn:btih:B12EF325EA7EB2FEC18171B1B6AA7C247A10BA0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ TrustViewer - это комплексное решение для удаленн
 magnet:?xt=urn:btih:B31881012C6E5E139FB8FB2C1B60F08F5BE764FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ Replika XT - это комплексное решение «все в одном
 ```bash
 magnet:?xt=urn:btih:D810001329CCD4EA32DF973F78480A0EC190C447
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

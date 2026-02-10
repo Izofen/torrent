@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:6DBA433623B140C2225252351B28ED2D47E23F2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ aTorrent - торрент (битторрент)клиент. Качайте т�
 ```bash
 magnet:?xt=urn:btih:67AB606996C187B41ABAD2C99F0612983F393816
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ MeMeteo - ваш метео эксперт и повседневный помо�
 magnet:?xt=urn:btih:93C09F841F297E2835DE7777AB37B762EA541DFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Corel Painter Mobile v2.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:C893D98359129BE5AFF6695F653903DBB4D00CB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:C893D98359129BE5AFF6695F653903DBB4D00CB9
 magnet:?xt=urn:btih:1C977D389C4CE9A86A2C87AF05B815C5C3E9119A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Garmin: Crimea Navigator 2014.1 (Крым Навигатор 2014.1) [Ru]
 ```bash
 magnet:?xt=urn:btih:0A397B442A67217B4BD2FABD5C56012A1A81B79F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Garmin: City Navigator North America NT 2017.20 [En]
 magnet:?xt=urn:btih:94F89603891F62336A1B55F6D3AC2C5E3D6ADF88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:94F89603891F62336A1B55F6D3AC2C5E3D6ADF88
 ```bash
 magnet:?xt=urn:btih:1822573B96B802CC0A9A2C677629BA83D44A8AA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:1822573B96B802CC0A9A2C677629BA83D44A8AA5
 magnet:?xt=urn:btih:29210F7344D23CB4A7D63E0ACD5D0C83AFF90E22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Weather Underground v6.11.0 [Ru]
 magnet:?xt=urn:btih:4B48CF229C6E380820D799485F3729C50D78D2FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Unit Converter Plus v1.4.5.19.2 [Ru/Multi] - многофункциональн
 ```bash
 magnet:?xt=urn:btih:2C781A9EC12EE12150DD153CCA0E0842790DFF7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ AccuWeather - прогноз погоды v7.17.1-2 [Ru]
 magnet:?xt=urn:btih:C91AF382CE365E1D1D0BF8445965652AF735742B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Tomorrow.io: Прогноз погоды v2.10.0 [Ru/Multi]
 magnet:?xt=urn:btih:58BD00DE72524D05F4A8DFCC5F9C7F78E36F84A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Cross Stitch Paradise v1.3.7 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:7508DE01674295654778C6536B518F39C42577A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Garmin: Ukraine Topo Map v1.06 (Топографическая карта Укр
 magnet:?xt=urn:btih:450CB05F4B89F9E1F4A4D0EA708A189D6C74AB74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:450CB05F4B89F9E1F4A4D0EA708A189D6C74AB74
 ```bash
 magnet:?xt=urn:btih:2AE633B1864BE81E57CA4928CEDAA4A5F8D7D766
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:2AE633B1864BE81E57CA4928CEDAA4A5F8D7D766
 magnet:?xt=urn:btih:AD462B81882F6F94D612F8F40A9CE6E34BA06695
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ OttPlayer v2.0.9 [Ru/Multi] - бесплатный плеер для просм�
 magnet:?xt=urn:btih:171E8030381AB73EDC922E5A00674A5E53897061
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:171E8030381AB73EDC922E5A00674A5E53897061
 ```bash
 magnet:?xt=urn:btih:448ED891FDA7808B8EBCE1D1F58A117D8AACCF42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ ProPilkko 2.7 [Ru/Multi] - Мультиплеерный online симулято�
 magnet:?xt=urn:btih:6DF70FB624562C7D7900DC7AB93456416E605793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Money Pro - это единая программа для ведения бюд�
 magnet:?xt=urn:btih:43179A173FA56BBDCB7BBA82B103CF7BB84B30BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Piggly v1.10ggl + Mod [En/De]
 ```bash
 magnet:?xt=urn:btih:84025FDEB1C1DE3E296D14EE112EFB146C9D0A66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Malwarebytes защищает от самых сложных вредоносн�
 magnet:?xt=urn:btih:71DEB6B820916B751BE0604A5D97EDAF5B946C98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Geeky Hacks Pro : Anti Hacking Protection v1.0.2 [En]
 ```bash
 magnet:?xt=urn:btih:8AFC4F09FFD732EC1C63D7305C90EA581C387E8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Weather Live Wallpapers v1.74 [Ru]
 magnet:?xt=urn:btih:B0F5E9029C1B8A05EB1D9ABF9656CDE5A8ACEFD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:B0F5E9029C1B8A05EB1D9ABF9656CDE5A8ACEFD6
 ```bash
 magnet:?xt=urn:btih:2B6427B736FE5F11EBD58200A477D37040A05A9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

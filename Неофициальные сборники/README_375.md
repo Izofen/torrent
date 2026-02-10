@@ -1,3 +1,32 @@
+###  Публикация: 1229924   (620888) от 09.06.2018
+
+VA - The Official UK Top 40 Singles Chart 08.06.2018 (2018) [MP3|192-320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris, Dua Lipa - One Kiss
+02. Jess Glynne - I'll Be There
+03. Anne-Marie - 2002
+04. Drake, Big Freedia, 5thward Weebie - Nice For What(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:20:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F78279DAD21CBD1106B1721BDD26484D9079B5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 522858   (620896) от 14.07.2012
 
 VA - Убойный клубняк в тачку 2CD (2012) [MP3|320 кб/с]<Dance, Club>
@@ -36,6 +65,8 @@ VA - Убойный клубняк в тачку 2CD (2012) [MP3|320 кб/с]<Da
 ```bash
 magnet:?xt=urn:btih:3FA4291728D1E81D04C1ABA513C87E1ABF386733
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -79,6 +110,8 @@ VA - Горячие Руские Ремиксы 2CD (2012) [MP3|256 кб/с]<Dan
 magnet:?xt=urn:btih:F4009A06F71C0A475D7695F1B761BFC183A5AD0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -111,6 +144,8 @@ VA - Ночная летняя вечеринка (2012) [MP3|256-320 кб/с]<P
 ```bash
 magnet:?xt=urn:btih:91B5AE912D5B7A15029AC254E3D06096433FE79D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +180,8 @@ VA - Mega Dance Party Summer Vol.1 (2012) [MP3|320 кб/с]<Dance, Club>
 magnet:?xt=urn:btih:EF06CA99AF3A5053A53AF2BA26E2A492772BEEFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +208,8 @@ VA - 100 Hits Insane Best Remixed (2016) [MP3|320 Kbps] <House, Trance, Progress
 ```bash
 magnet:?xt=urn:btih:1C36E0C7417E6095C05CC765D51FE94583362906
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +244,8 @@ VA - На гребне хитового лета (2012) [MP3|256-320 кб/с]<Po
 magnet:?xt=urn:btih:383E73FC3753D5DDF8799D6F499A3C06189E92D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +279,8 @@ VA - Club In Car Summer Vol.4 (2012) [MP3|320 кб/с]<Dance, Club>
 magnet:?xt=urn:btih:6017EF703ED780771F5984B78D44D5A4DA338810
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +307,8 @@ VA - Clubbing Designer Long Days (2016) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:69C90E39FE158FB4253BE61D1DE818A7F9D7180E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +337,8 @@ VA - Top Radio Charts Sublime Multigenre (2016) [MP3|320 Kbps] <Trance, House, P
 magnet:?xt=urn:btih:991D8E84C97AAD7096B78155E4282E541577C117
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +365,8 @@ VA - Works Receptor Liquid Body (2016) [MP3|243-320 Kbps] <Club, Soulful, Nu Dis
 ```bash
 magnet:?xt=urn:btih:E765F5180831DF1246900059EDE8AF735B9A8B1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +395,8 @@ VA - Best Cocktail Party Music: Lounge and Jazzy Moods Selection (2016) [MP3|320
 magnet:?xt=urn:btih:BDAD70314AD48E564F38FC9EBA93986BB03AD53B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +423,8 @@ VA - House EDM Witness Tech (2016) [MP3|~249 - 320 Kbps] <House, Funky, Progress
 ```bash
 magnet:?xt=urn:btih:63339CA2DAE73B38FF44FF988260F8460D5310F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +453,8 @@ VA - Старые Песни По-новому: Зарубежный Выпус�
 magnet:?xt=urn:btih:D4C20A362971764B77BB3552DA6B1ECF1D1AB0AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +481,8 @@ VA - Blues Collection 10 (2017) [MP3|320 Kbps] <Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:8B613CE0DD118E5AAB25EBAA833F2B4E921C57B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +511,8 @@ VA - Vocal Trance Collection (2017) [MP3|320 Kbps] <Vocal Trance>
 magnet:?xt=urn:btih:B6B0B8B0158A96F2035CD2D2890F63851B4F7FC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +539,8 @@ Dee Snider - After T.S. (2017) Compilation [MP3|320 Kbps] <Rock, Metal, Heavy Me
 ```bash
 magnet:?xt=urn:btih:530474EDA1B5F9B18C47CEA8FC48B5BF7414B97F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +569,8 @@ VA - Synthpop Remixes (2017) [MP3|320 Kbps] <Synthpop, Synthwave, Electronic>
 magnet:?xt=urn:btih:66B4273A864EF1B9B9FF7891174D5252AC41B9BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +597,8 @@ VA - Blues Rock Compilation Part 8 (2022) [MP3|320 Kbps] <Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:60139D1517D92DCBA4705C78C044788D7FA5E64E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +627,8 @@ VA - Empire Records - Trance 9 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, 
 magnet:?xt=urn:btih:4FC10E786122D83C9BFE19053C5226E3DB1DD224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +655,8 @@ VA - Положительный заряд отличного настроени
 ```bash
 magnet:?xt=urn:btih:50EA821D6530C2F0CAA7227A8BE5C0C91F88989D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +685,8 @@ VA - Car Audio. Живyщий мyзыкoй.(Sound Clinic - Special Еdition) (20
 magnet:?xt=urn:btih:E71914637E7A04C427DF6D0B8E85095A7F0CB144
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +713,8 @@ VA - Disco 90s: New Remastering (2022) [MP3|320 Kbps] <Disco, Dance, Remastering
 ```bash
 magnet:?xt=urn:btih:81DE5AF7F1553553EEBABCBC4F567F5FECF04CE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +743,8 @@ VA - Motivation Mix (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:9E6C9A2FE63D5571D1E00508409840CCEB6760D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +771,8 @@ VA - Зайцев.нет: Музыка в дорогу (2019) [MP3|320 Kbps] <Ro
 ```bash
 magnet:?xt=urn:btih:39E9D6B6DD31EEAB87BB2095184E9DD3EAC1321F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -724,32 +801,7 @@ VA - Beatport Psychedelic Trance: Sound Pack #511 (2022) [MP3|320 Kbps] <Psy Tra
 magnet:?xt=urn:btih:B75B2EA6E87590630A722C58DCE259790E140A61
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544278   (622002) от 15.04.2022
-
-VA - Beatport Deep House: Sound Pack #512 (2022) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622002.jpg" />
-</div>
-
-
-###  Подробнее
-
-В очередном релизе слушателя ждёт не на один час погружение в море размеренной и мелодичной музыки в стиле Deep House. Это богатый мир музыки, в котором не сложно потеряться и не заметить течения времени. Красивые аранжировки, прогрессивный саунд и мягкое выделяющееся звучание не оставят равнодушным ни одного уважающего себя фаната электроники.001. Solonto Soles - Scolder
-002. Tahir Jones - Burning In My Soul
-003. Rousing House - Sense Of Vacation
-004. Robert Kuo - Favela(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5D8CB33DD5441AB8685A0DBA07A73194716E536
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

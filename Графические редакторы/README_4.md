@@ -20,6 +20,8 @@ Aiarty Image Enhancer (с генеративным ИИ) — это соврем
 magnet:?xt=urn:btih:9C26D94899A17D34F8E0C4F7ED39C7A46E86BAD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Aiarty Image Enhancer (с генеративным ИИ) — это соврем
 magnet:?xt=urn:btih:6EEB27C95AE41461A44108D35D787488CD8ABCD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Digiarty AIArty Image Matting — это инновационное програ
 magnet:?xt=urn:btih:AE26B99B5EFDD3766EAD4DF830535C3F524EACA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ FliFlik KlearMax for Photo — это передовое программное 
 ```bash
 magnet:?xt=urn:btih:B5FC2630A0B71CC24CDC0C280A3A3FDF4E53305E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ JixiPix Premium Pack — сборник графических программ,
 magnet:?xt=urn:btih:EF9E24A1059B477BB1A353E599383F310E9DF2A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Focus Projects 6 Professional - это мощная и удобная в исп�
 ```bash
 magnet:?xt=urn:btih:C719CF4EE15DC13205432C5825C5B38B42B04DBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Franzis SHARPEN #5 Professional  — это программа для редак
 magnet:?xt=urn:btih:D2CD695F222019278D7A15E9460AAEB0AF2DF0C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Franzis ANALOG Professional — это высококачественное пр
 ```bash
 magnet:?xt=urn:btih:D52BDE0AF82A7E71CD4A1A319542ACD2380D603C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Chasys Draw IES — бесплатная программа, представл�
 magnet:?xt=urn:btih:BA154CD0E3C73234354516B4A627B8DF9C589A52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Franzis Emotion #2 Pro — это мощная программа для ред�
 magnet:?xt=urn:btih:E606898187B84686A5FE86F8B0CA8D7985B9251C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Franzis COLOR Pro – это мощное программное обеспеч�
 ```bash
 magnet:?xt=urn:btih:BCB0282D66E224AE582CF686BB5E0A93C772097C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ Franzis BLACK & WHITE Pro 8.25.04078 Portable by Spirit Summer [Multi]
 magnet:?xt=urn:btih:3BF00A2C02BA61E179191090D6808A106950CDB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ FliFlik KleanOut for Photo — мощный программный инстру�
 ```bash
 magnet:?xt=urn:btih:7A2438A19BCE3754080A19A576936A4FE6ADEC55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Movavi Photo Editor может всего в несколько кликов у�
 magnet:?xt=urn:btih:CE66B6908AA4C5CFF69362C2870EC3E942D29090
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Movavi Photo Editor – это простой фоторедактор для к
 magnet:?xt=urn:btih:412808CB8116B1D79F910F151473FAD6A3B78B3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Movavi Slideshow Maker – это простая и удобная програ�
 ```bash
 magnet:?xt=urn:btih:58A682F0074ECC08AF7EDB0CD86F349C08E14EE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ PTE AV Studio Pro - дальнейшее развитие программы Pic
 magnet:?xt=urn:btih:ED256AD0EC891201D3F66B9C381B0F1FE65D7E69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Xara Photo & Graphic Designer+ 24.5.1.70738 [Multi]
 ```bash
 magnet:?xt=urn:btih:F6DDAF0BD935EFD35353803BECAC698B5AE176FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Xara Web Designer+ 24.5.1.70738 [Multi]
 magnet:?xt=urn:btih:132CE29687F02CEE6AB100BD2BF922A9DA2829D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Xara Designer Pro — это мощный графический инструм�
 ```bash
 magnet:?xt=urn:btih:4DD428E8FD97E8A7560CF28BAA11349C6C1BDB0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ Digiarty AIArty Image Matting — это инновационное програ
 magnet:?xt=urn:btih:5AF9B4325C746B6A1D2D2F1150F60AD5CB5B9520
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Icecream Photo Editor - лучший бесплатный фоторедакто
 ```bash
 magnet:?xt=urn:btih:CC199F2FC9BE54A5EAF668888EC3B90C91A8243D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Affinity Designer — самое быстрое, удобное и точное 
 magnet:?xt=urn:btih:9FDA2B8F09B6BE67325BA716331A298EC8BD7FC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Affinity Publisher - программное обеспечение нового 
 ```bash
 magnet:?xt=urn:btih:8B6D87FBFCEB03739C7050046850424F8BF5F6FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ ON1 NoNoise AI — лучшее программное обеспечение д
 magnet:?xt=urn:btih:C5F97FEEC29EA621DB8F44C257CA856994B86103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Adobe Photoshop 2025 - мощное и продвинутое приложени
 ```bash
 magnet:?xt=urn:btih:EB480EF22CEA091CC856E49F97E5193EF0DCE662
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

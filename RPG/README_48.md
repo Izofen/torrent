@@ -19,6 +19,8 @@ Shieldwall Chronicles: Swords of the North — это игра в жанре rpg
 magnet:?xt=urn:btih:785CB44DFAB0549E06EAFB8819547DAD09214A7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Tangledeep – это RPG выполненная в стиле 16-битной �
 ```bash
 magnet:?xt=urn:btih:BA790ECDA5D7BD344364BECA4C17ED8279DABBF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Griftlands (2021) [Ru/Multi] (484799) License PLAZA
 magnet:?xt=urn:btih:B644A753B30CD40DD3495BCA9DAD29B67E6A9CAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Pillars of Eternity II: Deadfire / Pillars of Eternity 2: Deadfire (2018) [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:0AD9CA67A2322B4F3202C2E0DBC1722D1B765F45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Dynasty Warriors 7: Xtreme Legends (2018) [En/Ja/Ch] (1.0) License CODEX [Defini
 magnet:?xt=urn:btih:4725E8F6BAE65F169D0C332309527C39AE210DBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Armored Xpress (2021) [En] (1.0.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:A0951DBA8896F48B4B518AD1ADB387AAEA624C76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Edge of Space — новая научно-фантастическая муль�
 magnet:?xt=urn:btih:DA62DE9A538CCF05BFE77636F152077A6EA5C42A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Assassin's Creed: Origins / Assassin's Creed: Истоки (2017) [Ru/Multi] (1.
 ```bash
 magnet:?xt=urn:btih:BBB5B85F5231B097779487BA6E30E6A6BC6B1C39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Paranoia — это игра в жанре CRPG, действие которой
 magnet:?xt=urn:btih:923162BFAAE281493AF4EDFA195327FF88E33E41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Queen's Wish 2: The Tormentor (2022) [En] (1.0.3) License GOG
 ```bash
 magnet:?xt=urn:btih:5A0F0F0857A207C696CD5BDB67FE3A277B4540E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Pillars of Eternity II: Deadfire / Pillars of Eternity 2: Deadfire (2018) [Ru/Mu
 magnet:?xt=urn:btih:3C21BAE8971416368DF28D13E5CF8388E81AB9E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Hard West 2 - это отдающее порохом погружение в з�
 ```bash
 magnet:?xt=urn:btih:9A5EEC11C7432332075636971ADC5966C3E795C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Eastward (2021) [Multi] (1.1.5) License GOG
 magnet:?xt=urn:btih:645C47F384309EF033F9A1F5722C76D5B10D08D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Knights of Braveland (2023) [Ru/Multi] (1.1.4.50/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:DC492B914B6912AB13FAD2AC2F141D774FA1D11D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ The Last Oricru (2022) [Ru/Multi] (9708472) Repack DjDI
 magnet:?xt=urn:btih:F81EAE4CFB9C1ED473B9BF2788B867D202B4E717
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Stirring Abyss — пошаговая тактическая инди-игра �
 ```bash
 magnet:?xt=urn:btih:438BFBA0A4739EDE8C6E4493601E0ED71840FCAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Lost Eidolons (2022) [Ru/Multi] (1.00.06.R293.8b7ed397/dlc) Repack DjDI [Digital
 magnet:?xt=urn:btih:E78D041C8304283AAB508D759561BB8628ADBCBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Dark Messiah of Might and Magic (2006) [Ru/En] (1.02) License
 ```bash
 magnet:?xt=urn:btih:A21D157716CB3FC716761DB427B81587F422BE60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Forspoken (2023) [Ru/Multi] (1.21/dlc) Repack DjDI [Digital Deluxe Edition]
 magnet:?xt=urn:btih:F9ADEAD8D141F3750788690DB6AE51F50B52350C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Forspoken (2023) [Ru/Multi] (1.21/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:4DF8CDF41B5C10AD7D9BF94DE2C9C8B13A2078F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Ishar Trilogy (1990-1994) [En] (1.0) License GOG
 magnet:?xt=urn:btih:B37E69CE6EFAA6279E023AC8B01531D1154B8E77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Darkest Dungeon II - путешествие обречённых в жанре R
 ```bash
 magnet:?xt=urn:btih:B0FCF17E30C80A4C38262E1AB3844F2750090215
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Kung Fu Grand King (2022) [Multi] (2/dlc) License GOG [18+]
 magnet:?xt=urn:btih:71DDB901E22FEFEC448F5A9A04B12789F3AD781E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Birthright: The Gorgon's Alliance / Страна Героев (1997) [Ru] (1.3) 
 ```bash
 magnet:?xt=urn:btih:4BD531019C344172234D7B8F390F0B4881D58935
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ Birthright: The Gorgon's Alliance / Право на Жизнь: Союз Гор�
 magnet:?xt=urn:btih:D96A151A24C218B9162C80F9F7C083DAF6FC1EA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Legend of Grimrock – подземная бродилка с классичес
 ```bash
 magnet:?xt=urn:btih:02EAC962D6A2CA3B895FA197F7A424DB7FFD14FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

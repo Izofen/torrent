@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B6BF88EF529F11D676C59DD46D6C85489AA5BEA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:B6BF88EF529F11D676C59DD46D6C85489AA5BEA3
 magnet:?xt=urn:btih:2CCC7854BF3162CB89B040C97A2582D1A30AAEBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:2CCC7854BF3162CB89B040C97A2582D1A30AAEBE
 ```bash
 magnet:?xt=urn:btih:A758ED5318C1A5676132F91E09D4C4E2F1C3FCCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Allivm - Survivante (2023) [FLAC 2.0|192/24|tracks|WEB-DL] <Pop>
 magnet:?xt=urn:btih:0BC2E1F8FE6B9A1373FCCE58C47D5D9B325337FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:0BC2E1F8FE6B9A1373FCCE58C47D5D9B325337FE
 ```bash
 magnet:?xt=urn:btih:EF2F6E76E216FA4BF6648D330D5FADC6F02208CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Alice Cooper - School's Out (1972) 2CD, Expanded and Remastered, 2023, Rhino - W
 magnet:?xt=urn:btih:5855C65344FFA208B8BF8D4EF8CDB521B1F4A9C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Fuse Audio Labs — это источник номер один для дейс�
 ```bash
 magnet:?xt=urn:btih:28832D610BCA87091C0438E959A654178B394DC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ VA - Hits Disco and Pop Dance - Part VI (2016) [MP3|256 Kbps] <Pop, Disco>
 magnet:?xt=urn:btih:1EA0CA6770A082664DD7F750103C4B9F4BCC5A84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:1EA0CA6770A082664DD7F750103C4B9F4BCC5A84
 ```bash
 magnet:?xt=urn:btih:845015825FE5AA8D9726D933CB498CAEAEEA430E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ Campfire Sigh - Different Peninsulas (2022) [FLAC|Lossless|WEB-DL|tracks] <Progr
 magnet:?xt=urn:btih:9D2D7D1778AFBBAF6FAE3176A09EEFF9863C796D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:9D2D7D1778AFBBAF6FAE3176A09EEFF9863C796D
 ```bash
 magnet:?xt=urn:btih:1DD4502F80518E7AD6E51E2E41E0D7B18B7105AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:1DD4502F80518E7AD6E51E2E41E0D7B18B7105AB
 magnet:?xt=urn:btih:F381134ACCAB9FDC6B757ECE7EBD064A1051B81D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ BusyContacts приносит в управление контактами те 
 ```bash
 magnet:?xt=urn:btih:DFCFCF381503B775738A19CBDB7678E0263BDD12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ Marc Bolan & T. Rex - Star King (2021) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock>
 magnet:?xt=urn:btih:D3C53E2689C2AB7E7D907C141862E9284A49ECB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ Pasquale Grasso - Solo Masterpieces (2021) Sony Music [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:780E4B355E6BA0AE1EA3B6250BA3D7C062B14D6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +435,8 @@ Beseech — шведская готик-метал-группа из город�
 magnet:?xt=urn:btih:211078102857C9AF767475658DA88269C087CCFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ magnet:?xt=urn:btih:211078102857C9AF767475658DA88269C087CCFF
 ```bash
 magnet:?xt=urn:btih:693610C9A7291D6C5F4986B74D456AEDE7582697
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +490,8 @@ VA - I Love Ballads - Part XII (2016) [MP3|224 Kbps] <Rock, Pop, Chanson>
 magnet:?xt=urn:btih:0995565E7D53B066D70839D7FDBAF5747C646B61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +519,8 @@ Policromia - Sintagma (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, He
 magnet:?xt=urn:btih:28ED289EFF4CF16EB7D9F190D3EF46AE3C38AC00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ xStand 6.8.1 [En]
 ```bash
 magnet:?xt=urn:btih:8A9E5AAA928EA94FD4C4F9C755944C6F0BADD67F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ magnet:?xt=urn:btih:8A9E5AAA928EA94FD4C4F9C755944C6F0BADD67F
 magnet:?xt=urn:btih:3FE613BA093B7F3677F7680BA61A99AB6A02EB24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ magnet:?xt=urn:btih:3FE613BA093B7F3677F7680BA61A99AB6A02EB24
 ```bash
 magnet:?xt=urn:btih:39E6023043328F4C7C3F76AFE47863C8666C9039
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ magnet:?xt=urn:btih:39E6023043328F4C7C3F76AFE47863C8666C9039
 magnet:?xt=urn:btih:C38F6933B798878631CCC98953152C3027EB12CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ magnet:?xt=urn:btih:C38F6933B798878631CCC98953152C3027EB12CD
 ```bash
 magnet:?xt=urn:btih:9ED7E33358753F64E333C2258795A1EEB605E04F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +678,8 @@ VA - Русский шансон часть 5 (1998) [MP3|320 Kbps] <Шансо�
 magnet:?xt=urn:btih:93B3529F6257B03F35C8F85EABCD92764AA32C9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ Menschdefekt - Empty World (2020) [FLAC|Lossless|image + .cue] <EBM, Industrial>
 ```bash
 magnet:?xt=urn:btih:CFDE7E9E207251183E78DC848C080D3DCDF59830
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

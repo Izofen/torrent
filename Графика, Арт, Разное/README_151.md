@@ -1,51 +1,3 @@
-###  Публикация: 602981   (996949) от 15.01.2013
-
-Работы художников - Японская графика - Коллекция гравюр / Japanese graphics - Collection of engravings
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художников - Японская графика - Коллекция гравюр / Japanese graphics - Collection of engravings
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DB78AAFFEE83250EE0EB7DC863179E04004A18F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602431   (996950) от 15.01.2013
-
-Работы художников - Tierno Beauregard
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художников - Tierno Beauregard
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEE519A26435A1ACFBE9E90C815F812F2C5265DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603456   (996955) от 15.01.2013
 
 Рисованная графика - Artworks by Salvador Ramirez Madriz
@@ -66,6 +18,8 @@ magnet:?xt=urn:btih:AEE519A26435A1ACFBE9E90C815F812F2C5265DB
 ```bash
 magnet:?xt=urn:btih:7D54B7CFD9D6458A0DE10C18E4CC2B54F263424D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +45,8 @@ magnet:?xt=urn:btih:7D54B7CFD9D6458A0DE10C18E4CC2B54F263424D
 magnet:?xt=urn:btih:339BEDD0AF70992943226714AA69919950FFF763
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +70,8 @@ magnet:?xt=urn:btih:339BEDD0AF70992943226714AA69919950FFF763
 ```bash
 magnet:?xt=urn:btih:54C98021180ADB96712244F649AD3701C9CA4C5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +97,8 @@ magnet:?xt=urn:btih:54C98021180ADB96712244F649AD3701C9CA4C5C
 magnet:?xt=urn:btih:90B1EF0A9DAD4715A8225B6F15A2B573C6276E0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +122,8 @@ magnet:?xt=urn:btih:90B1EF0A9DAD4715A8225B6F15A2B573C6276E0E
 ```bash
 magnet:?xt=urn:btih:89A516077FDB948A73113292A708783867C28AEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +151,8 @@ magnet:?xt=urn:btih:89A516077FDB948A73113292A708783867C28AEC
 magnet:?xt=urn:btih:FCC159B515771AC55577D82CBF53B291D8FB7A07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +176,8 @@ magnet:?xt=urn:btih:FCC159B515771AC55577D82CBF53B291D8FB7A07
 ```bash
 magnet:?xt=urn:btih:6629421CDA5F8FFB47ED85B78CD0B648D658296E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +203,8 @@ magnet:?xt=urn:btih:6629421CDA5F8FFB47ED85B78CD0B648D658296E
 magnet:?xt=urn:btih:A7F82067EAEA0F228B77A3A2A78F61CECE87FE6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +228,8 @@ magnet:?xt=urn:btih:A7F82067EAEA0F228B77A3A2A78F61CECE87FE6A
 ```bash
 magnet:?xt=urn:btih:8DB75D3E8425287AFA8C1096557D6628B5B89E56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +259,8 @@ magnet:?xt=urn:btih:8DB75D3E8425287AFA8C1096557D6628B5B89E56
 magnet:?xt=urn:btih:5C6557EC96B95D314FE81902DC6A849A65468C93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +289,8 @@ magnet:?xt=urn:btih:5C6557EC96B95D314FE81902DC6A849A65468C93
 magnet:?xt=urn:btih:3C4497326AABD33C233AD084B1831153EB25F531
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +314,8 @@ magnet:?xt=urn:btih:3C4497326AABD33C233AD084B1831153EB25F531
 ```bash
 magnet:?xt=urn:btih:BA4FAF2B10E1643410B411D3162549FFEB0AF96C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +341,8 @@ magnet:?xt=urn:btih:BA4FAF2B10E1643410B411D3162549FFEB0AF96C
 magnet:?xt=urn:btih:4F70A604B1C111732295EC22DC79003A840E69C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +366,8 @@ Photo Art Chasen Grieshop.
 ```bash
 magnet:?xt=urn:btih:9743D497E5E4573B608CA6D04A2ECAA77867F348
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +393,8 @@ magnet:?xt=urn:btih:9743D497E5E4573B608CA6D04A2ECAA77867F348
 magnet:?xt=urn:btih:24A0AFD98115A45D5486AC9102750417A8C8295B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +418,8 @@ magnet:?xt=urn:btih:24A0AFD98115A45D5486AC9102750417A8C8295B
 ```bash
 magnet:?xt=urn:btih:52D33663335E23D1F59C752BD41D5C535470D239
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +445,8 @@ magnet:?xt=urn:btih:52D33663335E23D1F59C752BD41D5C535470D239
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +470,8 @@ magnet:?xt=urn:btih:52D33663335E23D1F59C752BD41D5C535470D239
 ```bash
 magnet:?xt=urn:btih:5B33E1D301BF3B149443594CA58070C938FA110D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +497,8 @@ magnet:?xt=urn:btih:5B33E1D301BF3B149443594CA58070C938FA110D
 magnet:?xt=urn:btih:9A9B368F310D5689628C72B5C6F9AF0D6E3EFCD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +522,8 @@ magnet:?xt=urn:btih:9A9B368F310D5689628C72B5C6F9AF0D6E3EFCD6
 ```bash
 magnet:?xt=urn:btih:23D528BB783F834E282E92853D194D5CF4BC007F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +553,8 @@ magnet:?xt=urn:btih:23D528BB783F834E282E92853D194D5CF4BC007F
 magnet:?xt=urn:btih:FEDA27BBE196F8DA9DA100F0179FC85B4806B98B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +578,8 @@ Nature Wallpapers (06.01.13) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:098CA631399BDA429BF9BE678E1100752B95AD72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +605,8 @@ Nature Wallpapers (08.01.13) [Wallpapers]
 magnet:?xt=urn:btih:3F608C5A2199510DB247408718B53E4F6BD5A9AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +630,60 @@ magnet:?xt=urn:btih:3F608C5A2199510DB247408718B53E4F6BD5A9AC
 ```bash
 magnet:?xt=urn:btih:6023D5EAD6AC67FA429E1F88CD1B9557A6588F33
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599711   (999121) от 07.01.2013
+
+Рисованная графика - Artworks by Kyoung Hwan Kim
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы художника-иллюстратора Kyoung Hwan Kim.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8ED814F9AC0087AB62FC239DA2F976A9C6F7254
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599686   (999124) от 07.01.2013
+
+Рисованная графика - Artworks by Sushi XAV
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы художника-иллюстратора Sushi XAV.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D30846662B5ED83DE31D625B9F7BA8B9158DF49F
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

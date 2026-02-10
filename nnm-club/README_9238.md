@@ -19,6 +19,8 @@ NG: Международный аэропорт Дубай. Серия 8 / Ultim
 magnet:?xt=urn:btih:0555B97A91230DF09E58D29D24C9D45D9FEB630F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Blender 2.8 имеет совершенно новый набор инструм
 ```bash
 magnet:?xt=urn:btih:26660C28A363FE14D016E7612C7F92B2BDB3F097
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:26660C28A363FE14D016E7612C7F92B2BDB3F097
 magnet:?xt=urn:btih:C4BFFD384D4D2743855D7C92B30FD33D74EB14CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ The History Channel: Battle for the Pacific (2008) [PS3] [EUR] 2.10 [Cobra ODE /
 magnet:?xt=urn:btih:8FF1B56F8C67A95DD8224E4A92329FF2DBE2DFAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:8FF1B56F8C67A95DD8224E4A92329FF2DBE2DFAF
 ```bash
 magnet:?xt=urn:btih:DD2BFF98326D13667FB3B12C3E47170E9742BB9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Blender Cloud | Основы Анимации в Blender 2.8 / Animation Fundame
 magnet:?xt=urn:btih:64D3B7E2F8A314FB9CF1638E1058FF8E807397E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:64D3B7E2F8A314FB9CF1638E1058FF8E807397E0
 ```bash
 magnet:?xt=urn:btih:9011088D09EECFBB82B11ACF2A8639B58D488899
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:9011088D09EECFBB82B11ACF2A8639B58D488899
 magnet:?xt=urn:btih:B3D76ECC08935E445278B710E449F6778083E3B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Comedy Woman (01.11.2019) WEB-DLRip (сезон 9, выпуск 8)
 magnet:?xt=urn:btih:5C1CE04A622FB5FE84B9842996CF3308F285FADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Blender Cloud | Спидскульптинг в Blender 2.8 / Speed Sculpting (2
 ```bash
 magnet:?xt=urn:btih:FEB81BAD34007DAEA8B7A07A1F055CDF08CBF16B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:FEB81BAD34007DAEA8B7A07A1F055CDF08CBF16B
 magnet:?xt=urn:btih:8C30C35F63DEA9D7AD7A09B0CB636E03E2FFC590
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ BlenRig 5 это система авто-риггинга и скиннинга 
 magnet:?xt=urn:btih:9621CDF277B453BBD20F103043F85BAF2F10F6DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:9621CDF277B453BBD20F103043F85BAF2F10F6DF
 ```bash
 magnet:?xt=urn:btih:3374D88097F957741203C9D14DCF858761925603
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ CD1:
 magnet:?xt=urn:btih:BF69B5CC2CFDAEB65ADE6CCD6BDD7650E0F33AC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:BF69B5CC2CFDAEB65ADE6CCD6BDD7650E0F33AC4
 magnet:?xt=urn:btih:6BDC84EF44F9ED8DBECDA5FC911C2FE5CA4B5E48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:6BDC84EF44F9ED8DBECDA5FC911C2FE5CA4B5E48
 ```bash
 magnet:?xt=urn:btih:ECE75BC0438155CD339151EB9D1406D935E5E968
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ Mechina - 8 Альбомов, 1 EP, 6 Синглов (2005-2019) [MP3|320 кб/�
 magnet:?xt=urn:btih:8FFE40D37342C062EAABC805EEAE5081625A6C0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ Macrorit Partition Extender Pro - утилита, доступная также 
 ```bash
 magnet:?xt=urn:btih:9E7E5ECE50903EAD69DA3F36F9DB14E6A5C2528B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:9E7E5ECE50903EAD69DA3F36F9DB14E6A5C2528B
 magnet:?xt=urn:btih:B215CC122857B9EF7DE58A284FA1E6F233759FE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:B215CC122857B9EF7DE58A284FA1E6F233759FE2
 magnet:?xt=urn:btih:0348D334962AE1AB9C4977F09499C800A052345B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:0348D334962AE1AB9C4977F09499C800A052345B
 ```bash
 magnet:?xt=urn:btih:ECBB46EA0B66EDBA65CCB73E329C476B75A8B716
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ Ableton Live Suite - это один из самых популярных сек
 magnet:?xt=urn:btih:6C33B2E51D33E0EE7CE83CDA30C0F62680CA996D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:6C33B2E51D33E0EE7CE83CDA30C0F62680CA996D
 ```bash
 magnet:?xt=urn:btih:C968245ADA3F9C33465B49B2A9BE7BF747F493E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +642,8 @@ Dire Straits - Love Over Gold  (1982) SHM-SACD /2011/ [DSD 2.0 1bit/2822,4kHz |S
 magnet:?xt=urn:btih:005B58B1CAB77B63534F5A91DAE2DC521A524B85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ magnet:?xt=urn:btih:005B58B1CAB77B63534F5A91DAE2DC521A524B85
 magnet:?xt=urn:btih:3EC8CCE4FBD8917A306F0757A53E6DAB9A2F88B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ magnet:?xt=urn:btih:3EC8CCE4FBD8917A306F0757A53E6DAB9A2F88B5
 ```bash
 magnet:?xt=urn:btih:A046E9B4D5586DB8AA1A22882C08FB950DA7F40C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

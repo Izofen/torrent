@@ -22,6 +22,8 @@ Antalio - Existentia (2025) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 magnet:?xt=urn:btih:FE3ED2D18B4FB51EEC4103868862B6F4C55FEC15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:FE3ED2D18B4FB51EEC4103868862B6F4C55FEC15
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:FE3ED2D18B4FB51EEC4103868862B6F4C55FEC15
 magnet:?xt=urn:btih:BDAB7687DA29AFAB26FF0A083DC68780E8552E28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:BDAB7687DA29AFAB26FF0A083DC68780E8552E28
 ```bash
 magnet:?xt=urn:btih:3DE3CE025866277D6FF5F8A1963B2A3499C3D963
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Patrick Sweany - Baby, It's Late (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blu
 magnet:?xt=urn:btih:5EE7847B73C84AC9F4910F502DAE0ED5982187BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ MediaHuman YouTube Downloader 3.9.18 (1711) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9200561F3FDF354B7C32448F9C444BA582CCCE32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Maria Carbonell Blues Mood - Limonium Sessions (2025) [FLAC 24/44.1|Lossless|WEB
 magnet:?xt=urn:btih:635CD883E06C5391EF6F1279C328CDBD8A91511F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ Jonah Hitchens - The Snake Boys (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 ```bash
 magnet:?xt=urn:btih:B968A0DB31413EACE0D669561A3FA04557462AE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ Karlie McKinnon - Part Time Honey (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 magnet:?xt=urn:btih:195D3AEBA89EFBF9464FECD858BEEB91EE8F41A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:195D3AEBA89EFBF9464FECD858BEEB91EE8F41A1
 magnet:?xt=urn:btih:56EB44F3442150A4544AD660B5D41A066BC3F322
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:56EB44F3442150A4544AD660B5D41A066BC3F322
 ```bash
 magnet:?xt=urn:btih:D39A90FD9C46AFE3ABE009C455206534CC56BADD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:D39A90FD9C46AFE3ABE009C455206534CC56BADD
 magnet:?xt=urn:btih:285687F559CF267DC1668AF8A660F019451C8332
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:285687F559CF267DC1668AF8A660F019451C8332
 ```bash
 magnet:?xt=urn:btih:809704A9B83125444B95E07F9218E1C60EDFE350
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:809704A9B83125444B95E07F9218E1C60EDFE350
 magnet:?xt=urn:btih:50F639755DB53A6296D8E351136F868D8487450E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:50F639755DB53A6296D8E351136F868D8487450E
 ```bash
 magnet:?xt=urn:btih:939036BC30DBE4F480931DD24CF66D8B70C4D871
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:939036BC30DBE4F480931DD24CF66D8B70C4D871
 magnet:?xt=urn:btih:DDB5C2412F0DBF4BA6619B3546C3FA88D9164AB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:DDB5C2412F0DBF4BA6619B3546C3FA88D9164AB1
 magnet:?xt=urn:btih:84E70381351B334E025DA7AAAE790739488A1123
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ LazyMedia Deluxe это Android TV приложение, которое можн
 ```bash
 magnet:?xt=urn:btih:53ADE9FFFFEC48DA3F7555A59A5377D532E81042
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ Morgan James - Soul Remains the Same (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:0FF77999ABFD47435DB2561F007B1BB68433E76E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:0FF77999ABFD47435DB2561F007B1BB68433E76E
 ```bash
 magnet:?xt=urn:btih:9E5C386BA639E1D0B1E175EEEA226C9E485FA278
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:9E5C386BA639E1D0B1E175EEEA226C9E485FA278
 magnet:?xt=urn:btih:E9B38530C56395DF7984A59A4C1AA348586BABEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:E9B38530C56395DF7984A59A4C1AA348586BABEB
 ```bash
 magnet:?xt=urn:btih:82A236C3EB45CC384CF4A0B52A67EF1AD7D9F0BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ Energy Logo Reveal — это динамичный и эффектный шаб�
 magnet:?xt=urn:btih:DA61B50F0D4E7D7A770ECF23460A6C5B97377ADA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ Energy Logo Reveal — это динамичный и эффектный шаб�
 magnet:?xt=urn:btih:DA61B50F0D4E7D7A770ECF23460A6C5B97377ADA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:DA61B50F0D4E7D7A770ECF23460A6C5B97377ADA
 ```bash
 magnet:?xt=urn:btih:78964CF61C7CE185CB841156FAA9166E2065BA83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +693,8 @@ Midnite City - Bite The Bullet (2025) [MP3|320 Kbps] <Melodic Hard Rock, Glam>
 ```bash
 magnet:?xt=urn:btih:AC04287361814D09CE79662CFB4421F6184B0CDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

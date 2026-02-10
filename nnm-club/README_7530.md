@@ -19,6 +19,8 @@ Remote Desktop Manager – это приложение для контроля �
 magnet:?xt=urn:btih:1601E771EBF819A6884FEFC44A22E78C9EA82F49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Simon "Hasen" Burgess - Best Friends (2002) [MP3|320 Kbps] <Soundtrack>
 ```bash
 magnet:?xt=urn:btih:20FCB57CDDE32F241BC607C16A98CB620554DF68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Not A Toy - Prblms (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop Punk, I
 magnet:?xt=urn:btih:E5EB169FD730082EA3D8626B31B07ECD89E459E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:E5EB169FD730082EA3D8626B31B07ECD89E459E0
 ```bash
 magnet:?xt=urn:btih:08AE554A4D59AA8C6C985E27CDF2F80DA14E0F55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Non Serviam - The Witches Sabbath (2000) [APE|Lossless|image + .cue] <Black Meta
 magnet:?xt=urn:btih:7641CA44F0B93A6F0E0C5D2AD982B59FC8D6874B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:7641CA44F0B93A6F0E0C5D2AD982B59FC8D6874B
 magnet:?xt=urn:btih:A6B6ADCBD53F809CCFA50198C53FF66A92969084
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:A6B6ADCBD53F809CCFA50198C53FF66A92969084
 ```bash
 magnet:?xt=urn:btih:FCD10C1E33A6E111A9334B495E02A5FB073C9BB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Anzhela Vopit - Атрибуты Восторга (2023) [MP3|320 Kbps] <Pop Roc
 magnet:?xt=urn:btih:3512B4FF40FE4FAAE8259B939458B681CD4583FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ VA - Welkome To New World (2020) [MP3|320 Kbps] <Rock, Alternative>
 magnet:?xt=urn:btih:623D2BEA8CC55099A58FE20AE74B019140E675DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:623D2BEA8CC55099A58FE20AE74B019140E675DB
 magnet:?xt=urn:btih:D25F8EC077A2006386FFF1C0BC90FD66D8FA3D32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ Geek Uninstaller - удобный, маленький и надежный, не 
 ```bash
 magnet:?xt=urn:btih:3E889FC7E4AF132F8067B559ABB8377768C74C47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ VA - Melodica, Vol. 4 (2020) [AAC|~329 Kbps] <Deep House, Progressive House>
 magnet:?xt=urn:btih:93F3FBCF6DB05BCE2EA232A116029EFA699CF894
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:93F3FBCF6DB05BCE2EA232A116029EFA699CF894
 ```bash
 magnet:?xt=urn:btih:03BCB700EF35042FC3985AFB0F222BA1D5C67252
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ Turkish Delight - Khalil Turk & Friends Vol.2 (2023) [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:AFB0239B6B88434903059A81202A400091548EEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ Sigil — программа представляет собой мощный р
 magnet:?xt=urn:btih:52A85957D858540705522AB8A6A9A54404AD8B53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:52A85957D858540705522AB8A6A9A54404AD8B53
 ```bash
 magnet:?xt=urn:btih:D12CF66C18941B7A6D51625D5E752388DCFBA8A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ Thy Flesh Consumed - End of Blind Obedience (2004) [FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:E6E085AA16A538193EDBD64071DF8B833A731352
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ Stone Sour - Straight Outta Burbank (2015) EP [MP3|320 кб/с] <Alt. Metal, Nu-
 ```bash
 magnet:?xt=urn:btih:40A36AB85574CC071B478DC18AA5C7010972DEE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +523,8 @@ New-G - Harmonie (2006) [MP3|112-320 кб/с]<New age, Instrumental, Electronic>
 magnet:?xt=urn:btih:171EA3C110E021C69CD2CE4BCDFE48B8F0296ED2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +548,8 @@ uTorrent 3.5.5 Build 45449 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CD2CB318A76E2FD05301753BA83503D5428B2ECA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +578,8 @@ Gunn - Truscinski - Nace - Glass Band (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock
 magnet:?xt=urn:btih:7835601A5279195EA050FA82CC0908597C6BF056
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +606,8 @@ magnet:?xt=urn:btih:7835601A5279195EA050FA82CC0908597C6BF056
 ```bash
 magnet:?xt=urn:btih:E1CAC4503358297027052BDFCE47E63C7BD89A36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +636,8 @@ Wild Life — дебютный альбом британской рок-груп
 magnet:?xt=urn:btih:B25C256328EF62F338373F2BDE0A7188C7A27D5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +664,8 @@ VA - Melodica, Vol. 3 (2020) [AAC|~337 Kbps] <Deep House, Progressive House>
 ```bash
 magnet:?xt=urn:btih:6AA698A6523EEBF79708679B1C338BECA5EFF0EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +700,8 @@ Dj DEMONIC - My narkotic (2011) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:8D3D2504F52C828814C1B0C254FDDE21F1B7E9B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -679,6 +729,8 @@ Sempiternal Deathreign - The Spooky Gloom (1989) [FLAC|Lossless|image + .cue] <D
 ```bash
 magnet:?xt=urn:btih:24E12A211E0D3740BD7149A4826619D79F9DF561
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

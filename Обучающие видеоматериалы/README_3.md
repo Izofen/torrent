@@ -21,6 +21,8 @@ Balun.Courses, Виталий Лихачев | Observability, как в BigTech 
 magnet:?xt=urn:btih:65D5B5828C84B5DB3C7139D6835F04621D01CA23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ IndexedDB представляет собой мощную встроенную,
 magnet:?xt=urn:btih:DD10A8407CC95623559A742653E055357540284D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Purpleschool, Андрей Соколов | Bash скрипты (2025) WEB-DL [R
 ```bash
 magnet:?xt=urn:btih:B4F96F0447981439DDDC4B357578D122BBDBE5F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ Balun.Courses, Владимир Балун | Подготовка к Golang со
 magnet:?xt=urn:btih:ACCA310E1631A0A4B452C5790A8B73F985A62D90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:ACCA310E1631A0A4B452C5790A8B73F985A62D90
 ```bash
 magnet:?xt=urn:btih:2279216070B51984F9B7CD6B284BF3545868C362
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ Balun.Courses, Владимир Балун | Дженерики в Golang (2025)
 magnet:?xt=urn:btih:93D7F3BF26BF3300C5D258966A1358679E65346A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +193,8 @@ Junior-разработчикам
 magnet:?xt=urn:btih:3FB65568AC8A5E1D78B32808E566D516F91BB4F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ magnet:?xt=urn:btih:3FB65568AC8A5E1D78B32808E566D516F91BB4F1
 ```bash
 magnet:?xt=urn:btih:2CFEEB3EDA304E392608DF46B29C422DF9883271
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +249,8 @@ Balun.Courses, Игорь Панасюк | Оптимизация Go, как в 
 magnet:?xt=urn:btih:19144D09AB074321E63F0E9EA08C06A456C8B0F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +277,8 @@ Microarch, Кирилл Ветчинкин | Domain Driven Design и Clean Archi
 magnet:?xt=urn:btih:02D773322B2925F1957A1817FC7AE0537895D5EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +303,8 @@ Gumroad, 3dex | How to Make a Stylized Outdoor Environment from Start to Finish 
 magnet:?xt=urn:btih:B318E98D2463813D787D4EB6F1406A8061F0C980
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ Udemy, Eyevenear | An Ultimate Premiere Masterclass: Beginner to Pro Editing (20
 ```bash
 magnet:?xt=urn:btih:0E18B253ECA697868AD04F17EAD5D5D0D51E44EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +357,8 @@ Balun.Courses, Владимир Балун | Concurrency в GO (2025) WEB-DL
 magnet:?xt=urn:btih:14A84FE07F70123C8D7633D4FE5639E23A19017A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +385,8 @@ PurpleSchool, Udemy, Антон Ларичев | Golang - Templ Fiber HTMX. Ку
 magnet:?xt=urn:btih:B4B43F399A869DB3577F69DD6C837913E2EA4599
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +410,8 @@ Linkedin, Bart Van de Wiele | Adobe Firefly Essential Training (2025) WEB-DL [EN
 ```bash
 magnet:?xt=urn:btih:F689BC373332E5B9CFEAA0613AB4A66723AE757F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +437,8 @@ Skillshare, Mel Armstrong | Illustrate a Children’s Book Cover in Procreate (2
 magnet:?xt=urn:btih:73858AEAB42749AE7CC929C52AC4F078FC5E628B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ Udemy, Jutta Schneider | Draw With Me in Procreate: Mid-Century Cookbook Illustr
 ```bash
 magnet:?xt=urn:btih:899111A50ED865596D368B8BDCC41EAC9A8E3324
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ Udemy, CADArtifex LLC | Mastering AutoCAD 2D & 3D for Beginners (2025) WEB-DL [E
 magnet:?xt=urn:btih:30D7A56D69CEEFF6032E7EE5735B876345BD76DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ Filmmakers Academy, Shane Hurlbut | DIY Lighting Tips and Tricks (2021) WEB-DL [
 ```bash
 magnet:?xt=urn:btih:CF89EB01C9049650497AE716E467AA8BA80B3263
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ Skillshare, Sasha Luvr | Make everything Fluffy with Blender 4 - 3D illustration
 magnet:?xt=urn:btih:915B0D10098A3A367708D6AB19426B5B42859160
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ Udemy, Manal Abdullal | AutoCAD 2026 2D Essentials – Complete Course (2025) WE
 ```bash
 magnet:?xt=urn:btih:4D0B055F0A71447C061668BB2E1BAC5542FB6E8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ Skillshare, PIXXO 3D | Master 3D Cloth Simulation - Blender (2023) WEBRip [EN]
 magnet:?xt=urn:btih:D4BDC68A0EE610E36C3D7B0AF8EFDC9810969262
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ Udemy, O- Academy | Furniture Design Using Blender (2025) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:0D1CDF97C14FBC3B0F42E0FF6F79A02E45330058
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ Udemy, Yasar VURDEM | The Ultimate Digital Drawing Class: Portrait Paintings (20
 ```bash
 magnet:?xt=urn:btih:9DA51F48B50D224C788356211FD4ECF6BCBD1EA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ Udemy, Marco Paoletta | Godot 4 Fast Lane: Game Development for Absolute Beginne
 magnet:?xt=urn:btih:9A48B196619BB1690EE678A036E4D532AEA59565
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ Udemy, Expert Azi, Md Azizul | Level Up Your UI/UX: Interactive Design & Prototy
 ```bash
 magnet:?xt=urn:btih:7E8BE4DEA12648BFEB5B0913DB1F48A83E743673
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

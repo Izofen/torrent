@@ -19,6 +19,8 @@ Gallery Plus: Photo Vault v2.3.37 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:3CEDFD80CDF4B83230E566FE89752B29FD687DCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:3CEDFD80CDF4B83230E566FE89752B29FD687DCC
 magnet:?xt=urn:btih:5DDADA952E6A7087AE6B8F7BB027C43AE3AEA212
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Hero's Adventure - это ролевая игра в жанре уся с отк
 ```bash
 magnet:?xt=urn:btih:639ACAD31CF2ED33EA299751552DCD4E3F102D72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Together We Live v1.0.1g [En]
 magnet:?xt=urn:btih:82B31EB81AA5BEB8469E6B5785C6F8DAEBA2333B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Teslagrad –это 2D-головоломка-платформер с элеме
 ```bash
 magnet:?xt=urn:btih:E0A037DF334F2E6BFE4F558DA3E08F6A4EDBA0C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Reaper v2.0.2 [Ru]
 magnet:?xt=urn:btih:F0B2A2418FEF29C69212A08CEC6A98E4A828782D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Bright Memory: Infinite v1.0 b82 [Ru]
 magnet:?xt=urn:btih:89FB35D586742CBEF962CB0E5FE2CC4DD8D6ECFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Arcane Quest Legends 2 Offline v1.0.10 [Ru]
 ```bash
 magnet:?xt=urn:btih:8BA1FABC0C98A1EC1A37CAE64569DF84FA8CB42C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Monolith v1.1.12.065 [En]
 magnet:?xt=urn:btih:78B5C89FC86DCFD1DC0B0C3B5E2D22A75F42081B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ Reviver: Premium v1.0.2 [En]
 magnet:?xt=urn:btih:9D66829F65E1369DEE1E12DEFFC8FDBFFA3B50CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Art Me: ИИ-художник v5.4 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:68F2F5027374573A046AEB0A529AC51F0622414D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:68F2F5027374573A046AEB0A529AC51F0622414D
 magnet:?xt=urn:btih:24C486F794BD66C448DB51F2A5B963A4673B1895
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:24C486F794BD66C448DB51F2A5B963A4673B1895
 magnet:?xt=urn:btih:72519B5A3FDE96EB5C897157F31A67926EECF425
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ Lumii - Фоторедактор, Фильтры v1.700.167 Mod by PieMods [Ru/M
 ```bash
 magnet:?xt=urn:btih:B44C3EFEA420B570A86AF5B99CB4BB6D8027E268
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ Garmin: TOPO Great Britain v3 PRO [En]
 magnet:?xt=urn:btih:E7026C02018EFF371BAB04AB9ACCA958D7267512
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ Audio Books – новая платформа для прослушивания 
 magnet:?xt=urn:btih:8846677D29A3F3C54EAAC739D57BB6002B455282
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ English LinDuo HD v5.33.1 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D605D18A18FD378BF4AAE3800B701FAEE2C8A3AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:D605D18A18FD378BF4AAE3800B701FAEE2C8A3AA
 magnet:?xt=urn:btih:1F7264289A9E3104E29A69D71EEABC9D7C45C375
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ Pro Pool 2025 v1.60 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:797202F5CF1F7B825441FDFAF1061E9D17971431
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ WPS Office - очень полезное, офисное приложение д
 magnet:?xt=urn:btih:E884FD2F58577E6367FACC2F892D4B15319C82DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:E884FD2F58577E6367FACC2F892D4B15319C82DD
 ```bash
 magnet:?xt=urn:btih:42A050DA42ABC22DFC46925E389E5D1E34666B2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ Gif Me! – это лучший способ сделать из коротко�
 magnet:?xt=urn:btih:47DBE2C31A7FEC81A204DC990381D427A2B4F158
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ Diabetes:M v9.0.8 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:43B5F83985B3200E4BDED085ECB86018F7F20DFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ FotoTweak - AI Image Generator v1.0.46 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0D29082D5C9BB5796B6694282FAA61E1AC2C7C2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:0D29082D5C9BB5796B6694282FAA61E1AC2C7C2B
 magnet:?xt=urn:btih:DD181AC82CBD1FA4535EB52C040082EEEC1FF416
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ Background Video Recorder Pro — это приложение, которое п
 ```bash
 magnet:?xt=urn:btih:06C46D35D3EB3081FDF7327E9C662287E0752B7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

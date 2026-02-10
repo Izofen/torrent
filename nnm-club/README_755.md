@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:10060F0C359D9D344851D9224E4FABC77E01C117
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Dragon Age: Inquisition / Dragon Age: Инквизиция (2014) [Ru/En] (1.12 
 ```bash
 magnet:?xt=urn:btih:57FEDE632A4D7E338B572F7FD6E9AAA8D29FE72B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Orphans (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:4A41C23D80721E1B7F2BE2FECA0154165729C8CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.0) Repack FitGirl [Digital
 magnet:?xt=urn:btih:FA5CBFCA83F80CA010DA634420052507DADD00DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ The Last Man Survivor - мрачный roguelike, в котором вам пр�
 ```bash
 magnet:?xt=urn:btih:A3F1E977857A614C3F44A1D42E965AA7CC81DCFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:A3F1E977857A614C3F44A1D42E965AA7CC81DCFA
 magnet:?xt=urn:btih:76D29C9702675036354987B3294DD992B3F4B683
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Forgive Me Father 2 (2023) [Ru/Multi] (1.1.1.8) License GOG
 ```bash
 magnet:?xt=urn:btih:689844B8B920170FFDE18ADF3096645FD2E3DD24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.0) Repack seleZen
 magnet:?xt=urn:btih:6A55A5E720566DAA086060EA8899E9672DD9A49A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Adobe Photoshop Lightroom Classic 2025 14.3.0.8 Portable by 7997 [Multi/Ru]
 magnet:?xt=urn:btih:E7969BEDB5CDB0BE8D4176CC0C1F11E36BA412A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:E7969BEDB5CDB0BE8D4176CC0C1F11E36BA412A4
 ```bash
 magnet:?xt=urn:btih:0D80514BEB3A04EB8606B98A6CB32F5421F3797F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ FreeTube использует собственный HTTP-API YouTube с наб�
 magnet:?xt=urn:btih:A43F0CF74D8B0B3B4F8A1B560CFED86FA94B6643
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:A43F0CF74D8B0B3B4F8A1B560CFED86FA94B6643
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:A43F0CF74D8B0B3B4F8A1B560CFED86FA94B6643
 magnet:?xt=urn:btih:E7C732C55C6A14005A9DD795DE6CA6D34440D181
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:E7C732C55C6A14005A9DD795DE6CA6D34440D181
 ```bash
 magnet:?xt=urn:btih:3415412EF8402588E4882A837E2ABEAB762A740D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:3415412EF8402588E4882A837E2ABEAB762A740D
 magnet:?xt=urn:btih:5C77A5820EA4FF4F432FD4B184CDFA059B62FD96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:5C77A5820EA4FF4F432FD4B184CDFA059B62FD96
 magnet:?xt=urn:btih:ADF2D3ADE02518472EBECEF32EB048D3F8F0333B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ DRAGON BALL: Sparking! ZERO - продолжение легендарной се
 ```bash
 magnet:?xt=urn:btih:D05264550C229B60FD64F90021F7C928A994A8BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Artstation Learning, Javier Perez | Creating a Modular Sci-Fi Environment Using 
 magnet:?xt=urn:btih:6047A795EC3B7ED0806D19897CC4017DA29849B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Viking Frontiers (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E46DDFD2E7FB672F7729E57058CEA505A3635867
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Travelers Refrain (2025) [En] (04) License GOG
 magnet:?xt=urn:btih:2C574AAFEDB7A49B45505EA4D23EE6897A045198
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Creative Shrimp, Gleb Alexandrov, Aidy Burrows | Photogrammetry Course: Photorea
 ```bash
 magnet:?xt=urn:btih:BA59661CD8513A8D41EA8484286272D30F808E4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:BA59661CD8513A8D41EA8484286272D30F808E4A
 magnet:?xt=urn:btih:60A9EF3346F0D35B51424515DEBD07B1BCC5A334
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (1.10/dlc) Repack Wanterlude
 magnet:?xt=urn:btih:13CA7577791711B241B35E9588B4F8067DBC3066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ EOBD Facile - автосканер обд2 последнего поколени
 ```bash
 magnet:?xt=urn:btih:52FBF0E6C4C6DF693ED08E06A4C80C4CEE83D114
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:2BD72B83FD6650C4D5F7CBFC4EA3CAFED2BC8FBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:2BD72B83FD6650C4D5F7CBFC4EA3CAFED2BC8FBB
 ```bash
 magnet:?xt=urn:btih:A1CF8EC09FEF50CE70C8041DE034AF2FD42F6CF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

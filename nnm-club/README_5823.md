@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C95F9CE9124F0881F0E1EB4FF6B43BD74533965F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Charlie Clouser - Saw X (Original Motion Picture Soundtrack) (2023) [MP3|320 Kbp
 magnet:?xt=urn:btih:E1941CDDCCDD0D3F2D04499A11544EDA51E27268
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:E1941CDDCCDD0D3F2D04499A11544EDA51E27268
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:E1941CDDCCDD0D3F2D04499A11544EDA51E27268
 magnet:?xt=urn:btih:65BA67E98EB05BCDBBB0C0632F53897E102CC47B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Seal 1.7.0-beta.1 [Ru/Multi]
 magnet:?xt=urn:btih:53CA2988B3CE65EEAD382FE10B78FA2B9876DD03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:53CA2988B3CE65EEAD382FE10B78FA2B9876DD03
 ```bash
 magnet:?xt=urn:btih:B8083106349F65FB4F0A7B6D8DC55E046F209238
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:B8083106349F65FB4F0A7B6D8DC55E046F209238
 magnet:?xt=urn:btih:287419AFDEE40932AC1769BED58C7931B40527A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Wise Disk Cleaner 10.9.6.812 RePack (& portable) by Dodakaedr [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:01E1F7CE7A5D1F60735034711F62C879F53EFA59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:01E1F7CE7A5D1F60735034711F62C879F53EFA59
 magnet:?xt=urn:btih:F402BBE83D9AFA9170B482D0BABA287A366EE468
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:F402BBE83D9AFA9170B482D0BABA287A366EE468
 ```bash
 magnet:?xt=urn:btih:1F07252F1B0258E397E56875565AE1375A7607C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:1F07252F1B0258E397E56875565AE1375A7607C8
 magnet:?xt=urn:btih:4BD8FA3492CD9F414399979915AE34E0673A1036
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:4BD8FA3492CD9F414399979915AE34E0673A1036
 ```bash
 magnet:?xt=urn:btih:0BF8EF42FB862FCD415CCFBD537753902042CFAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:0BF8EF42FB862FCD415CCFBD537753902042CFAB
 magnet:?xt=urn:btih:D11AF8DA08E13C9ECEC99F30B40A54AEB60B25B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:D11AF8DA08E13C9ECEC99F30B40A54AEB60B25B6
 ```bash
 magnet:?xt=urn:btih:FFC97FCB895307CE4B05E285F991CC8EE70A0755
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:FFC97FCB895307CE4B05E285F991CC8EE70A0755
 magnet:?xt=urn:btih:CD4514B18FFA7D828426640327DCC122C6722BF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:CD4514B18FFA7D828426640327DCC122C6722BF3
 ```bash
 magnet:?xt=urn:btih:19A08AA1925080CA5249E7AA3AAAB50C585DF2D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ The Heavy - 7 альбомов (2007 - 2023) [FLAC|Lossless|tracks + .cue] <Alte
 magnet:?xt=urn:btih:8BEC27AE197B77DFC2E5829B06CD29C2564DF826
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ WinBin2Iso 6.01 Build 001 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:075299CB4EC37B64F52193727120955C258693D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:075299CB4EC37B64F52193727120955C258693D7
 ```bash
 magnet:?xt=urn:btih:8332D3C51385BC89265625EA0385C069EDB86BBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ Heathen Foray - Weltenwandel (2020) [FLAC|Lossless|image + .cue] <Melodic Viking
 magnet:?xt=urn:btih:D1298D6E613769A3EE1E49487C61F45B7C5F5F67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ Kali Linux 2023.3 [amd64, i386, arm64] 11xDVD
 ```bash
 magnet:?xt=urn:btih:84A50043B9F64FBD5AD32310A80EBA5A370FDAA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ magnet:?xt=urn:btih:84A50043B9F64FBD5AD32310A80EBA5A370FDAA7
 magnet:?xt=urn:btih:06A1EA2B1A7E193513DFC85668997F964F0EE098
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:06A1EA2B1A7E193513DFC85668997F964F0EE098
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ Defender Remover Portable 12.5.6 (04.10.2023) [En]
 magnet:?xt=urn:btih:7627D9E43E6E6D03B26F6A71D67C00EC7730258E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ Disney | Король лев. Раскраска (2008) [JPEG]
 ```bash
 magnet:?xt=urn:btih:6B6B13B8BA9609CD410CF80AE2BB9FC96C9E2CB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +686,8 @@ magnet:?xt=urn:btih:6B6B13B8BA9609CD410CF80AE2BB9FC96C9E2CB1
 ```bash
 magnet:?xt=urn:btih:53C59469597EDF56EC8AD9F8DA44441FF27CB382
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

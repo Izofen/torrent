@@ -1,3 +1,29 @@
+###  Публикация: 1062174   (444632) от 12.10.2016
+
+Место встречи. Украиночка с выходом?! (12.10.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день по будням гости в студии вместе с ведущими будут в прямом эфире разбирать наиболее актуальные темы, которые подбрасывает сама жизнь. Все, что волнует зрителей, — от сезонных эпидемий до военной операции в Сирии — может стать поводом для обсуждения.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 01:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9472282FAB2D46FB4A98A0EBAA86C68E98D1259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 628089   (444643) от 17.09.2020
 
 В поисках Сахарного Человека (В поисках Шугармена) / Searching for Sugar Man (2012) HDRip [En]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:AF594CB565FB979C53CD596572089CD1A01457BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:AF594CB565FB979C53CD596572089CD1A01457BF
 magnet:?xt=urn:btih:1593E6A205950FEF6B642DC06710595D3A0375A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:1593E6A205950FEF6B642DC06710595D3A0375A4
 ```bash
 magnet:?xt=urn:btih:6B7955034ED70CBF6B78121A5D2B822B77E8E068
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:6B7955034ED70CBF6B78121A5D2B822B77E8E068
 magnet:?xt=urn:btih:CDB279C09336AEBE82D72E3E64203BFAEB0C3184
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:CDB279C09336AEBE82D72E3E64203BFAEB0C3184
 ```bash
 magnet:?xt=urn:btih:9BD2CF3580F90B992812AE3D49EBEF23C021E63B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:9BD2CF3580F90B992812AE3D49EBEF23C021E63B
 magnet:?xt=urn:btih:45FF3B2EE36C96601A91A77F220D92B71D9BB08C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:45FF3B2EE36C96601A91A77F220D92B71D9BB08C
 magnet:?xt=urn:btih:4CA28506C43C6D585D152DA72B07D0BE16D1A762
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +226,8 @@ magnet:?xt=urn:btih:4CA28506C43C6D585D152DA72B07D0BE16D1A762
 ```bash
 magnet:?xt=urn:btih:E074D10D8A6AD8BF300CEC204C7579F704A1C3A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:E074D10D8A6AD8BF300CEC204C7579F704A1C3A8
 magnet:?xt=urn:btih:D81F3CE006ABE44CA2C9CD8BFDABEFAF363200CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:D81F3CE006ABE44CA2C9CD8BFDABEFAF363200CC
 ```bash
 magnet:?xt=urn:btih:65281C8898EB5F98E8F2A718D2CF5046C22E0F1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:65281C8898EB5F98E8F2A718D2CF5046C22E0F1C
 magnet:?xt=urn:btih:83D46BF9F822195CA43117546DCE75039B003382
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:83D46BF9F822195CA43117546DCE75039B003382
 ```bash
 magnet:?xt=urn:btih:CD48C88AD35B926D73500C3CD28A3399FAAA58F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:CD48C88AD35B926D73500C3CD28A3399FAAA58F4
 magnet:?xt=urn:btih:119A9694643F495AD3ED5C648DDF3911085AB587
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:119A9694643F495AD3ED5C648DDF3911085AB587
 ```bash
 magnet:?xt=urn:btih:0DD64E0038AEC1935FF99B3A7CB383EC8F4998AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:0DD64E0038AEC1935FF99B3A7CB383EC8F4998AB
 magnet:?xt=urn:btih:02122649CA8480DE876A1BD1994583BBA5354CB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:02122649CA8480DE876A1BD1994583BBA5354CB2
 ```bash
 magnet:?xt=urn:btih:F57955E8AF9BCAC03C1781EBBC832C41C43313C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:F57955E8AF9BCAC03C1781EBBC832C41C43313C8
 magnet:?xt=urn:btih:F6C4D347C4CBD87E98EA2AD381873D555E8B46FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:F6C4D347C4CBD87E98EA2AD381873D555E8B46FD
 ```bash
 magnet:?xt=urn:btih:A9E42FD9750629F05898AB760BDF49EF33E48C71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:A9E42FD9750629F05898AB760BDF49EF33E48C71
 magnet:?xt=urn:btih:B12D9CE2819BFF4543198BE6F47FC926BC217076
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:B12D9CE2819BFF4543198BE6F47FC926BC217076
 ```bash
 magnet:?xt=urn:btih:A45C696130ECB11B4785C9B9FDAF47161630EC7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:A45C696130ECB11B4785C9B9FDAF47161630EC7D
 magnet:?xt=urn:btih:5F1C5A870F66977755A7BFD85418A9D4A4D06E9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:5F1C5A870F66977755A7BFD85418A9D4A4D06E9C
 ```bash
 magnet:?xt=urn:btih:E7EB5712A63F30BA204EF22624D360D6D4571B33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:E7EB5712A63F30BA204EF22624D360D6D4571B33
 magnet:?xt=urn:btih:66B45B3C3ED25CC5C91B313C0B167150BD765906
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:66B45B3C3ED25CC5C91B313C0B167150BD765906
 ```bash
 magnet:?xt=urn:btih:7EB596635897B5C4B245FE258B0E166916D03E1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,29 +680,7 @@ magnet:?xt=urn:btih:7EB596635897B5C4B245FE258B0E166916D03E1A
 magnet:?xt=urn:btih:66049483FBEF3071510A96ECB3B4FDF6DBD50B93
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061789   (446143) от 11.10.2016
-
-Познер. Интервью с Сергеем Шнуровым (10.10.2016) HDTVRip [720p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446143.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Познер» - это программа-интервью. Владимир Познер задает вопросы политикам, общественным деятелям, деятелям культуры, искусства, науки, спорта. Беседа может быть как привязана к актуальным событиям недели, так и не связана с последними событиями.В этом выпуске: На вопросы Владимира Познера отвечает музыкант, лидер группы «Ленинград» Сергей Шнуров. Почему он пошел работать на телевидение, которое часто критикует, и что дает ему участие в ток‐шоу «Про любовь»? Считает ли он себя независимым человеком? Как он оценивает свое творчество и социальное значение песни в современном мире? Что думает о российском обществе и (   Читать дальше...   )Телекомпания: 1 канал HDЖанр: ТелепередачаПродолжительность: 00:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40F50BB656DCA07484898CAAC0797092435639D3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

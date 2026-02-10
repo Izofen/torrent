@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:2893EBD07BB1312303B2E054E875EAF4E8E11114
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Ane Brun - A Temporary Dive (2005) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 ```bash
 magnet:?xt=urn:btih:1E2C3FFEB239A93DBD7F91E5AFABA8A4942EB4E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:1E2C3FFEB239A93DBD7F91E5AFABA8A4942EB4E3
 magnet:?xt=urn:btih:B5B157F467914A3831687923813E9FC2D4BC466F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:B5B157F467914A3831687923813E9FC2D4BC466F
 ```bash
 magnet:?xt=urn:btih:B9CE7730474B402A4BB5E9ECBEBC86EEEE4FA0F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Derek Carr - The Digital Space Race (2008) Psychonavigation Records [FLAC|Lossle
 magnet:?xt=urn:btih:A667BA268549EEF526D9B5E1726B1F3D81795F34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ The Submarines - Honeysuckle Remixes (2009) [FLAC|Lossless|tracks + .cue] <IDM>
 ```bash
 magnet:?xt=urn:btih:81488C96700842BBEA78C7842BA936B27017F51D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:81488C96700842BBEA78C7842BA936B27017F51D
 magnet:?xt=urn:btih:D24FF8CCA5E900EF4F039C652DB88BE5229EC6CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ Tim Garland, Joe Locke, Geoffrey Keezer (Storms/Nocturnes Trio) - Rising Tide (2
 magnet:?xt=urn:btih:E3062FF870492630E1C39009CB90D0147A982328
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +251,8 @@ magnet:?xt=urn:btih:E3062FF870492630E1C39009CB90D0147A982328
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +276,8 @@ magnet:?xt=urn:btih:E3062FF870492630E1C39009CB90D0147A982328
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +306,8 @@ magnet:?xt=urn:btih:E3062FF870492630E1C39009CB90D0147A982328
 magnet:?xt=urn:btih:F6EA330EF4D8E342650CB9A86F74DA758DCB17B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +332,8 @@ magnet:?xt=urn:btih:F6EA330EF4D8E342650CB9A86F74DA758DCB17B2
 magnet:?xt=urn:btih:39A7F7B4D1ECD0750B32B61CC60C7B7D997C5EFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +357,8 @@ magnet:?xt=urn:btih:39A7F7B4D1ECD0750B32B61CC60C7B7D997C5EFF
 ```bash
 magnet:?xt=urn:btih:10CA163460424F465C6158657E03D8C4474C082E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +386,8 @@ magnet:?xt=urn:btih:10CA163460424F465C6158657E03D8C4474C082E
 magnet:?xt=urn:btih:35347028562588209826FF00DE1A0F0524A07DD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +411,8 @@ magnet:?xt=urn:btih:35347028562588209826FF00DE1A0F0524A07DD1
 ```bash
 magnet:?xt=urn:btih:F4896AAA7D9B28C03FC040E89178EF7FD24FE09E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +447,8 @@ VA - A State Of Vocal Trance Volume 1-12 (2012) (Обновляемая)[MP3|320
 magnet:?xt=urn:btih:B14EFCCC952369A17C146744813743599186DB6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +473,8 @@ magnet:?xt=urn:btih:B14EFCCC952369A17C146744813743599186DB6E
 magnet:?xt=urn:btih:6B52D857F2EB78158C45D0CF63448F2BBAB2D4C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +498,8 @@ magnet:?xt=urn:btih:6B52D857F2EB78158C45D0CF63448F2BBAB2D4C7
 ```bash
 magnet:?xt=urn:btih:1CA85D44ABEB3C202A44767B4CBBC35829FA1764
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +526,8 @@ Easy listenining, Melodic rock, Pop, Classic rock, Rock 'n' rollПродолжи
 magnet:?xt=urn:btih:B8E6DADAF4A588419E2A1640F1648F668F99A3D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +552,8 @@ VT Hash Check проверяет указанные вами файлы, по х
 magnet:?xt=urn:btih:7C8B351F88D739B93ACB4B894064BA294EC5A2F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +577,8 @@ magnet:?xt=urn:btih:7C8B351F88D739B93ACB4B894064BA294EC5A2F8
 ```bash
 magnet:?xt=urn:btih:63709335A7B02DDC43D2F90E30479164F96B3C46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +607,8 @@ VA - Acoustic Ballads (2015) [MP3|320 кб/с]<Instrumental, Downtempo, Chillout
 magnet:?xt=urn:btih:E09E85AFFD169A21C9973BD54207DD952AAEDBA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +632,8 @@ magnet:?xt=urn:btih:E09E85AFFD169A21C9973BD54207DD952AAEDBA5
 ```bash
 magnet:?xt=urn:btih:64271CD5EEB69DB0659BCCCA91228D1F78E9E80C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +662,8 @@ Renata Scotto - Рената Скотто (сопрано) - Арии из оп�
 magnet:?xt=urn:btih:6B424E0173188901097A138AECC8055D0F60D34B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +689,8 @@ magnet:?xt=urn:btih:6B424E0173188901097A138AECC8055D0F60D34B
 ```bash
 magnet:?xt=urn:btih:572B6D1C91CC0AC726C107C71D61AB5A781DBBD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,6 +718,8 @@ Shania Twain - Shania Twain (1993) [FLAC|tracks+.cue]<Country Rock>
 ```bash
 magnet:?xt=urn:btih:022B9EC678EE92D01B8029FE963699E9EF6D09F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

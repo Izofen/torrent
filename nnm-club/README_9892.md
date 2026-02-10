@@ -1,57 +1,3 @@
-###  Публикация: 1181998   (319424) от 09.11.2017
-
-Fats Domino - Greatest Hits (1991) [MP3|320 Kbps] <Rock'n'roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blueberry Hill (02:28)
-02. I'm In Love Again (01:58)
-03. My Blue Heaven (02:09)
-04. When My Dreamboat Comes Home (02:25)(   Читать дальше...   )Жанр: Rock'n'rollПродолжительность: 00:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AEC450A75C63251C6026B84AFA8707FFF41549F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182063   (319425) от 09.11.2017
-
-VA - Roger Shah presents High Noon At Salinas - Beach Grooves Vol 1 (2017) [FLAC|Lossless|tracks] <House, Progressive House,Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. High Noon At Salinas – In the Beginning There Was Sand (Extended Mix)
-02. Sunlounger & High Noon At Salinas – High Noon Sunlounging feat. Sunlounger (Extended Mix)
-03. High Noon At Salinas & Noah Shah – Tarida feat. Noah Shah (Extended Mix)
-04. High Noon At Salinas & Leilani – Hale Kula feat. LeiLani (Extended Mix)(   Читать дальше...   )Жанр: House, Progressive House,Deep HouseПродолжительность: 01:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD21698EAF2DFF752055F02794B2428357BF0440
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182098   (319426) от 09.11.2017
 
 VA - Aly & Fila - Future Sound of Egypt 521 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -76,6 +22,8 @@ VA - Aly & Fila - Future Sound of Egypt 521 (2017) [MP3|320 Kbps] <Trance, Uplif
 magnet:?xt=urn:btih:511DE0A7908D1EC37F976FED045BDC2DD1E729E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +47,8 @@ magnet:?xt=urn:btih:511DE0A7908D1EC37F976FED045BDC2DD1E729E9
 ```bash
 magnet:?xt=urn:btih:134E21F6F60B2E3017A89A58616E7DE03360C15D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +77,8 @@ Koan - Find Me If You Can (2017) [MP3|320 Kbps] <Balearic,Downtempo>
 magnet:?xt=urn:btih:824E018909C0F062538965AF945BE1386478CF04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +105,8 @@ Klaus - Discography 5 Releases (2011-2017) Tanum [FLAC|Lossless|tracks] <Experim
 magnet:?xt=urn:btih:9A7252A52F63B54D0ADD44A2F1E4E36494681F99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +131,8 @@ magnet:?xt=urn:btih:9A7252A52F63B54D0ADD44A2F1E4E36494681F99
 magnet:?xt=urn:btih:63B1BC03D279F19C757EAFD6F54083C4F8BCC900
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +156,8 @@ magnet:?xt=urn:btih:63B1BC03D279F19C757EAFD6F54083C4F8BCC900
 ```bash
 magnet:?xt=urn:btih:1EBF3D66A806B5AFA6BC76AED5E1D62552F7D96C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +186,8 @@ Duke Ellington - ...And His Mother Called Him Bill (1967) 2016, Sony Music [FLAC
 magnet:?xt=urn:btih:57A940D9525929E440CCBD85BF09D275E5D2C887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +215,8 @@ VA - Trance Traveling 94 (Mixed by VNP) (2017) [MP3|320 Kbps] <Trance, Progressi
 magnet:?xt=urn:btih:27CFE7F3E39EEA00C94A05229E424D8992262384
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +240,8 @@ magnet:?xt=urn:btih:27CFE7F3E39EEA00C94A05229E424D8992262384
 ```bash
 magnet:?xt=urn:btih:EA84E236973D8521CCE0A5A3DC59A5CD4FEB4B4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +270,8 @@ Rob Van Bavel Trio - Almost Blue (2005) Munich Records [FLAC|Lossless|image + .c
 magnet:?xt=urn:btih:C83B4C476F1552D1E8EC47FAE429C1738930E20B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +298,8 @@ VA - Keep Hope Alive (2017) [MP3|256 -320 Kbps] <Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:02C71379675A68B5973F102C1C86ED7E4A8AE0B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +328,8 @@ VA - Kingside Fitness Workout 2017 [MP3|320 Kbps] <Progressive House>
 magnet:?xt=urn:btih:59C54DA2E0F4D1C139557C89841681D5032072EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +357,8 @@ magnet:?xt=urn:btih:59C54DA2E0F4D1C139557C89841681D5032072EB
 magnet:?xt=urn:btih:367569FCE24A50868821E48B1110BE16DE37DC37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +382,8 @@ magnet:?xt=urn:btih:367569FCE24A50868821E48B1110BE16DE37DC37
 ```bash
 magnet:?xt=urn:btih:D07F9313CA35A5BF7CD31D508299CFB1BC8819FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +412,8 @@ VA - Trance Favorites Episode #009 (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:72C1745088E25C8DE1EDCF9D4B9FBB1ED5DA9861
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +439,8 @@ ES6 Javascript с нуля. Ознакомьтесь с практическим
 magnet:?xt=urn:btih:657755E67952DE6461C5DCBD209A73F2BD34A041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +464,8 @@ Jan Urschel | Улицы мегаполиса - Китбаш, дизайн и п
 ```bash
 magnet:?xt=urn:btih:9048675408FD5356C723D5012779BFB8ACAB3E00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +491,8 @@ magnet:?xt=urn:btih:9048675408FD5356C723D5012779BFB8ACAB3E00
 magnet:?xt=urn:btih:2DE964C9B764A540B88AF8EEDDB1441017F5A979
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +516,8 @@ magnet:?xt=urn:btih:2DE964C9B764A540B88AF8EEDDB1441017F5A979
 ```bash
 magnet:?xt=urn:btih:10F06DE533B5EF8383B1FD48E8DAB44EC4AD45BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +543,8 @@ magnet:?xt=urn:btih:10F06DE533B5EF8383B1FD48E8DAB44EC4AD45BE
 magnet:?xt=urn:btih:CAF7CF1E50E4AF8B23917C880EE9DF73733F14FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +568,8 @@ magnet:?xt=urn:btih:CAF7CF1E50E4AF8B23917C880EE9DF73733F14FB
 ```bash
 magnet:?xt=urn:btih:6C89488009E10E7412FACDB7BE401FC01AB8F910
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +598,8 @@ magnet:?xt=urn:btih:6C89488009E10E7412FACDB7BE401FC01AB8F910
 magnet:?xt=urn:btih:318981A05383F6B957A725CC6CFF97C562C00C45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +623,8 @@ magnet:?xt=urn:btih:318981A05383F6B957A725CC6CFF97C562C00C45
 ```bash
 magnet:?xt=urn:btih:4E4B2D338196C277D55798D735BB84FC0E865411
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +650,60 @@ magnet:?xt=urn:btih:4E4B2D338196C277D55798D735BB84FC0E865411
 ```bash
 magnet:?xt=urn:btih:F9877B058777A41EC9530F1DE7D583D8ED7F7ECF
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419613   (319450) от 04.11.2020
+
+Андрей Канарейкин, Кирилл Поповкин | Цикл "Героиня по вызову" [3 книги] (2019-2020) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что может пойти не так при игре в ммо с виртуальным погружением? Наверное, оказаться призванным в другой мир и запертым в теле своего игрового персонажа - это не самая распространенная проблема, может поэтому в инструкциях и не пишут, что делать в таком случае. А раз инструкций нет - придется импровизировать.Жанр: Боевое фэнтези, ЛитРПГФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EEBE44B54A3E26BBE7E41738C538E5C2F7EB78C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421451   (319451) от 04.11.2020
+
+Мастера ужасов / Masters of Horror (2005-2006) BDRip [H.264/720p] (сезон 1, серии 1-13 из 13)
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мастера ужасов — американский телесериал, созданный режиссёром Миком Гаррисом для кабельного канала Showtime. Сериал состоит из нескольких телевизионных фильмов ужасов, снятых мастерами жанра. При создании отдельных эпизодов канал выделял финансирование от 1 до 4 миллионов, однако выбор сюжета и его реализация предоставлялась самим режиссёрам. Спецэффектами для всего (   Читать дальше...   )Производство: Канада, Япония, США / IDT Entertainment, Industry Entertainment, Nice Guy Productions, Reunion Pictures, Starz ProductionsЖанр: УжасыРежиссер: Стюарт Гордон, Дарио Ардженто, Джон КарпентерАктеры: Карен Элизабет Остин, Дж. Уинстон Кэрролл, Михо Нинагава, Энтони Харрисон, Диего Мартинес-Тау, Брайан Бенбен, Теа Гилл, Эзра Годден, Уолтер Хай, Джессика Лаундс и др.Перевод: Многоголосый профессиональныйПродолжительность: ~00:51:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87B8E7E0A787B5D0804271BEDBC5D052BE8EA89F
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

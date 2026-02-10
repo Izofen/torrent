@@ -23,6 +23,8 @@
 magnet:?xt=urn:btih:E109DD99D4DB9008B381B3CE8F03C355E30A2E8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ SolveigMM Video Splitter – редактор для MPEG-2, AVI, MOV, MKV, MP4,
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ Q-Dir – бесплатный отличный файловый менедже�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ Q-Dir – бесплатный отличный файловый менедже�
 magnet:?xt=urn:btih:FF5D84548EC3C57F5D6E0DA7AC4FA10810F4605E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:FF5D84548EC3C57F5D6E0DA7AC4FA10810F4605E
 magnet:?xt=urn:btih:4B00920FA71303D79B74DA2C44CC567CAC46D88E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:4B00920FA71303D79B74DA2C44CC567CAC46D88E
 ```bash
 magnet:?xt=urn:btih:C3DE75F1EF03A4537672EB04F94F62C941587772
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Delete Duplicate Files - мощный инструмент для удалени
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ Delete Duplicate Files - мощный инструмент для удалени
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +249,8 @@ Delete Duplicate Files - мощный инструмент для удалени
 magnet:?xt=urn:btih:07C1EB2E8E407278CCDCD45574BEDC2464124B08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ magnet:?xt=urn:btih:07C1EB2E8E407278CCDCD45574BEDC2464124B08
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ magnet:?xt=urn:btih:07C1EB2E8E407278CCDCD45574BEDC2464124B08
 magnet:?xt=urn:btih:7754F79BA4E7D54FD510E9D1408162B96B3BEB54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ magnet:?xt=urn:btih:7754F79BA4E7D54FD510E9D1408162B96B3BEB54
 ```bash
 magnet:?xt=urn:btih:BCDDA4EF2837CF97BD37227D492A1F9BDC258712
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ Toolwiz Player and Converter - простой медиаплеер и конве
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +379,8 @@ Toolwiz Player and Converter - простой медиаплеер и конве
 magnet:?xt=urn:btih:8D6A09275CAAD97AD6411D1592565E11B6448F14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:8D6A09275CAAD97AD6411D1592565E11B6448F14
 ```bash
 magnet:?xt=urn:btih:07AE2AC70037F9ADA97BC14D5B0BFEA735B8ED4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:07AE2AC70037F9ADA97BC14D5B0BFEA735B8ED4C
 magnet:?xt=urn:btih:AB55BDFAA8711A37AB47A5F76A02889F09086F54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ magnet:?xt=urn:btih:AB55BDFAA8711A37AB47A5F76A02889F09086F54
 magnet:?xt=urn:btih:6C78828797E217FA96BCBEC521B1A6A8F02AAEED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ AIDA64 Extreme - утилита является очень мощным инс�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +521,8 @@ Erik Berglund - 10 альбомов (1990-2008) [MP3|192-320 kbps]<New Age, Medi
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ Erik Berglund - 10 альбомов (1990-2008) [MP3|192-320 kbps]<New Age, Medi
 ```bash
 magnet:?xt=urn:btih:F8C3D6D1EBE35669D69E1F23E26EEBF14BFF5C28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +582,8 @@ VA - Артист/The Artist (by Ludovic Bource) (2011) [FLAC|Lossless]<Score>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +607,8 @@ VA - Артист/The Artist (by Ludovic Bource) (2011) [FLAC|Lossless]<Score>
 ```bash
 magnet:?xt=urn:btih:4BAC26476C569EBEFE8A2398D85DF9B74D2B66FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +635,8 @@ magnet:?xt=urn:btih:4BAC26476C569EBEFE8A2398D85DF9B74D2B66FF
 magnet:?xt=urn:btih:B61BB5BBF4B8337EA2451B23FD1EA24D1B05CAEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +661,8 @@ magnet:?xt=urn:btih:B61BB5BBF4B8337EA2451B23FD1EA24D1B05CAEB
 ```bash
 magnet:?xt=urn:btih:6AB111AD4D187B7FDFDF6E13C7E274D10E5CF8BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +690,8 @@ magnet:?xt=urn:btih:6AB111AD4D187B7FDFDF6E13C7E274D10E5CF8BC
 magnet:?xt=urn:btih:B56C0CD79B94A8DA7081F25F2B2C7B8F2D4CDF45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +715,8 @@ magnet:?xt=urn:btih:B56C0CD79B94A8DA7081F25F2B2C7B8F2D4CDF45
 ```bash
 magnet:?xt=urn:btih:5AA37F7FDD789D71CA0892DC9B426E20FE459C77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая охота (2015) [Ru/Mu
 magnet:?xt=urn:btih:5F5705ECFC14334FBA9AD0590E9EAFC5FF444948
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Ys VIII: Lacrimosa of DANA (2018) [Multi] (ph3 update/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:2A92A9F2BF834AE1474D9C17C2EF05C75AB32DA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Kingdoms of Amalur: Reckoning (2012) [Ru/En] (1.0.0.2/dlc) Repack R.G. Меха�
 magnet:?xt=urn:btih:A567ABCE3B495EB17D366959CC92785F7BDDA265
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ WARSAW – это увлекательная тактическая RPG на у�
 ```bash
 magnet:?xt=urn:btih:23F1692BC4F637D613C5FDA2C6716EAC0DF6DE95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Victor Vran - это изометрический ролевой экшен с �
 magnet:?xt=urn:btih:4BED57BEE18042A258365DC18968CDD6AC1D32F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Torchlight (2009) [Ru/En] (1.15) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:FE3109D78A7BFBF6E22B40208AE2483FE00BE9A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Ys I & II Chronicles [En] (L) 2013 | RELOADED
 magnet:?xt=urn:btih:D39CC14936426951C6DB14B9D7C0E10AAD6E9638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Atelier Dusk Trilogy (2020) [Multi] (1.0) License CODEX [Deluxe Pack]
 ```bash
 magnet:?xt=urn:btih:191BC058906EBF9FABA9638C9EA8903B62C434FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Quest - игра в лучших традициях Might & Magic. Стил�
 magnet:?xt=urn:btih:88B162FBC7485814D68640B9B9A6762D1F887B73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ GOD EATER 3 (2019) [Ru/Multi] (2.40) Repack xatab
 ```bash
 magnet:?xt=urn:btih:79DD8547D7F34A9FCB8E38CD9D4C71EE57B1D481
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Divinity: Original Sin – новый выпуск знаменитой сери
 magnet:?xt=urn:btih:9B0C8ADA66F8D69E42E32672EAF7553D7A86D48B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Pine — это приключенческий боевик с открытым 
 ```bash
 magnet:?xt=urn:btih:0170E8F38F34B2E777399A97BC994752FE917C20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Drakensang Dilogy / Дилогия Drakensang [Ru/En] (L) 2009-2010
 magnet:?xt=urn:btih:F986DA90FB489929364702FCB1D5F7184FC911B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Vampire's Fall: Origins (2020) [Ru/Multi] (1.5.45) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A3881C31255D1251F34C56DD8E39223189618FD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Antology Gothic / Антология Gothic [Ru/En/De] (L) 2001 - 2011
 magnet:?xt=urn:btih:17159C84C1D49A99A4DC961932BE1102712FCD2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Darkwood (2017) [Ru/Multi] (1.3a) Repack Other s
 magnet:?xt=urn:btih:5450F69D60511A574E1F479F164E061E3E89CB1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Vampire's Fall: Origins (2020) [Ru/Multi] (1.5.45) License CODEX
 ```bash
 magnet:?xt=urn:btih:B654594BEFA611A7AFD5867A9EEFCD5016F22419
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ R.A.W.: Realms of Ancient War [En/Ru] (Lossless Repack/1.0.u1) 2012 | R.G. Origa
 magnet:?xt=urn:btih:E9D9D5DDDDCF4763B2979FA48D7956F7280B0CD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Vampire: The Masquerade - Bloodlines (2004) [Multi] (1.2/10.2) License GOG
 ```bash
 magnet:?xt=urn:btih:DEF1628922EECBBF49E0C401DC7B25B4118B8C11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ R.A.W. Realms Of Ancient War [Ru] (Repack/1.0.1) 2012 | Fenixx
 magnet:?xt=urn:btih:CA30CD46A98A095F50CED05D682ADC82074F0BE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Dungeon Siege 3 (2011) [Ru/En] (1.0/upd1/dlc) Repack R.G. Catalyst
 magnet:?xt=urn:btih:6CED523C32173522CF94CC5C3BEFC746F9DBB11E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ XVI век, Карибское море. Эскадры пиратских ко�
 ```bash
 magnet:?xt=urn:btih:8BDF775AEA0AE0FDE72241A0CF0AA84617E73FD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ Torchlight 2/II [Ru/Multi4] (RePack/1.21.5.1) 2012 | R.G. Games
 magnet:?xt=urn:btih:AEB312640DFB0A96D909F1776168B6872A429536
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Torchlight II [Ru/En/Pl] (Repack/1.21.5.1) 2012 | THETA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Torchlight 2/II [Ru/En/Multi4] (Steam-Rip/1.21.5.1) 2012
 magnet:?xt=urn:btih:49C393C5B9A1E121FA824ABA54AC699E1CED401D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ The Surge 2 (2019) [Ru/Multi] (1.09u5/dlc) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:DB07FE8A14AEBC27E579FAF750D76771E568DFF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

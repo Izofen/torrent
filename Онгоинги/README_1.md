@@ -19,6 +19,8 @@ Kanojo, Okarishimasu 4-1 | Rent-A-Girlfriend S4 P1 | Девушка на час 
 magnet:?xt=urn:btih:C47924BD32F444B6857FEA0CF7A6E7412E77CD50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Mattaku Saikin no Tantei to Kitara | Detectives These Days Are Crazy! | С ны�
 ```bash
 magnet:?xt=urn:btih:6A5FEA1FC9313FA8514C7616E3ED796186EBAF4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Necronomico no Cosmic Horror Show | Necronomico and the Cosmic Horror Show | К�
 magnet:?xt=urn:btih:9E1819B9A9ADC86ED8B1AF04A3A0C59047279FAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Tu Bian Yingxiong X | To Be Hero X | Быть героем Икс [2025, WEB, 24
 ```bash
 magnet:?xt=urn:btih:456F06B69E64C81B9B901F68B6A4D7ECA9A862EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Food Court de, Mata Ashita. / See You Tomorrow at the Food Court / Увидим�
 magnet:?xt=urn:btih:3AEAFFD50AEDC6FF9F0B85D5520C130B12F90096
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Sozai Saishuka no Isekai Ryokouki / A Gatherer's Adventure in Isekai / Путе�
 ```bash
 magnet:?xt=urn:btih:5E3DAB5DE13099CF5938DBE5E0FFAE8238D0B98F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Fate/Strange Fake | Судьба: Странная подделка [ТВ] [2024
 magnet:?xt=urn:btih:79CE299212CD4D3DED9AB1168E7EB5A492FF131C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Yano-kun no Futsuu no Hibi | Yano-kun's Ordinary Days | Обыкновенные
 ```bash
 magnet:?xt=urn:btih:07D9776361AC45A91BBEA8A0C01D3578726F8CFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Kakuriyo no Yadomeshi Ni | Kakuriyo: Bed and Breakfast for Spirits Season 2 | П
 magnet:?xt=urn:btih:B1376E29AF087AE39D4EAE19B49497D28AAC29AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Saigo ni Hitotsu dake Onegai Shite mo Yoroshii Deshou ka | May I Ask for One Fin
 ```bash
 magnet:?xt=urn:btih:92E54C459A3E99C281791B03908A08184F95ADDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Shabake | Мирские стремления [2025, TV, 1 из 12 эп.] WEBRip
 magnet:?xt=urn:btih:C422F1B324E1DE3FC91BCD1E9798C7BA7AAB6E2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Lets Play: Quest Darake no My Life | Сыграем [2025, TV, 1 из 12 эп.] 
 ```bash
 magnet:?xt=urn:btih:9B9F67587B617594B686928A1C8D4DD64362DA11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Akujiki Reijou to Kyouketsu Koushaku | Pass the Monster Meat, Milady! | Леди
 magnet:?xt=urn:btih:308AA65C1A23E90BA00697CC132957B767163573
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Watashi o Tabetai, Hitodenashi / This Monster Wants to Eat Me / Этот мон�
 ```bash
 magnet:?xt=urn:btih:0EA8CD6DA54A771501CB425E2D69666CE8EAAA7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Bukiyou na Senpai. / My Awkward Senpai / Неумелый сэмпай [2025, TV
 magnet:?xt=urn:btih:B3D5954ECD77D1F6EFA47F66068FF1DD6293E666
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:B3D5954ECD77D1F6EFA47F66068FF1DD6293E666
 magnet:?xt=urn:btih:95E3E6EF2AD9FF9EA4471617FB3B5F3693F93B39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Kekkon Yubiwa Monogatari II | Tales of Wedding Rings Season 2 | Легенда �
 ```bash
 magnet:?xt=urn:btih:76E554BACB8EC9237303B3357ECC52EFC3A479E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Sanda | Санда [2025, TV, 1 из 12 эп.] WEBRip 1080p raw+eng
 ```bash
 magnet:?xt=urn:btih:E624DB18C90C0EE567BC982D79B5EE9A5E595287
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Toujima Tanzaburou wa Kamen Rider ni Naritai | Tojima Wants to Be a Kamen Rider 
 magnet:?xt=urn:btih:3EDC6D4D84E719AFAE5007B8D7F98ED4FE845018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Kikaijikake no Marie | Mechanical Marie | Механическая Мари [202
 magnet:?xt=urn:btih:8BB0ADD171C54AEC119F71A3E2BBA298746D5E59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Ranma 1/2 (2025) | Ранма 1/2 (2024) [ТВ-2] [2025, TV, 1 из 12] WEBRip 7
 magnet:?xt=urn:btih:61BA1FBAA555A63191958D86EC07564A32D5E588
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Alma-chan wa Kazoku ni Naritai / Alma-chan Wants to Be a Family! / Альма х
 ```bash
 magnet:?xt=urn:btih:4E709450E82892C18EDB1F7C9BEB33FA53AB729B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ Sawaranaide Kotesashi-kun / Don't Touch Kotesashi / Не трогай меня, 
 magnet:?xt=urn:btih:093F684FC386CBE00119082B871F31E8C88BE739
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ Chichi wa Eiyuu, Haha wa Seirei, Musume no Watashi wa Tensei-sha. / Мой от�
 magnet:?xt=urn:btih:17A0EB01FAA0727D1E4C65CB782137757BDD190B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Mofa Gongzhu de Xiao Fannao | Who Made me a Princess | Однажды я ста�
 magnet:?xt=urn:btih:BAC5AE05178BF649E14B688583FACCE90EB4C798
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Shinjite Ita Nakama-tachi ni Dungeon Okuchi de Korosarekaketa ga Gift "Mugen Gac
 ```bash
 magnet:?xt=urn:btih:FAE42DA123226F3CF257A88374FEB116C45E183C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

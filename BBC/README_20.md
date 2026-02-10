@@ -19,6 +19,8 @@ BBC: Жизнь в воздухе / Life In The Air (2016) HDTVRip [H.264/720p-L
 magnet:?xt=urn:btih:E9CE12440A1D764390E73CFAA7A78FA3AD0F9A51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ BBC: Замерзшая планета / Frozen planet (7 серий из 7, в�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ BBC: Horizon. Исчезнувшие племена человечества / T
 ```bash
 magnet:?xt=urn:btih:9F2BFEB55C48F9843D49FF0D87F8BDC129EC179B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 magnet:?xt=urn:btih:6BC24BFD42EF375EF0C42EDE775B98937B10B15C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ BBC: Борьба за выживание / The Trials of Life (1990) BDRip [H.2
 ```bash
 magnet:?xt=urn:btih:7B9AD3D8B5F16162ADE3E7F297E8F35F9CE04B0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:7B9AD3D8B5F16162ADE3E7F297E8F35F9CE04B0D
 magnet:?xt=urn:btih:31B390445E34CD739390D7818D75657518ADBA9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 ```bash
 magnet:?xt=urn:btih:70F93D6C85837A83B2ACE7953ADF7EC328BAB867
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ BBC. Кошачьи тайны / Cat Watch 2014: The New Horizon Experiment (Cat
 magnet:?xt=urn:btih:2BB0E0B0CCC8C974323DDD51FBFAF10864DD154D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ BBC: Ядовитые укусы - смерть или спасение / Venom 
 magnet:?xt=urn:btih:DAC3C5A9DECFC1D25218953C59FED0A1211BEC25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ BBC: Невидимые города Италии / Italy's Invisible Cities (20
 ```bash
 magnet:?xt=urn:btih:596F2B3A6393F7623A42FEFDE0928E0EFDC6CA4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ BBC. Horizon: Парадокс Хокинга / The Hawking Paradox (2005) SATRi
 magnet:?xt=urn:btih:51BA6419429EE35352DC2A93B39AFC72F9B6CF19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ BBC. Одни ли мы во Вселенной? / Are We Alone In The Universe?
 ```bash
 magnet:?xt=urn:btih:8F3352FDD6A79970AB1C72CCA62FFFC57D2F43CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ BBC: Книга джунглей. Медведь Балу / BBC: Natural World. 
 magnet:?xt=urn:btih:CFD9C9FFF42749D8B9FE5C40ADA2C859B8F3DF57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ BBC: Времена года Британии / The Great British Year (2013) BD
 magnet:?xt=urn:btih:60A3A1A8DBC649ACA3B9620B156A531D2DA68B2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ BBC. Пингвин: Шпион под прикрытием / Penguins. Spy In T
 ```bash
 magnet:?xt=urn:btih:242C9114A7E46EA3A45ACE857E4AD2C58E7E80EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ BBC: Мир природы. Роковой цветок / The Natural World. The
 magnet:?xt=urn:btih:DC4533623B0EEF5DC3CF67F067ABA180002D76F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ BBC. Вся правда о характере / The Truth About Personality (20
 ```bash
 magnet:?xt=urn:btih:307ED792318F7A81A323E33E23B5B0E54FB86181
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ BBC: Тайная жизнь птиц / Secret Life of Birds (2010) BDRemux [H.2
 magnet:?xt=urn:btih:434B3575161F6EFC097B8A78F364F8D5C399D2FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ BBC: Таинственный Мир Материалов / The Mysterious World
 ```bash
 magnet:?xt=urn:btih:F8A2F655ECD6C743E1D7268CFC7431642B4D5535
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ BBC. Тайны взросления / The Secret Life of Growing Up (2016) SATR
 magnet:?xt=urn:btih:82CE70A0EC689C4580B2150751C334A67E9EB31C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ BBC. Зелёная планета / The Green Planet (2022) WEBRip [H.265/2160p
 ```bash
 magnet:?xt=urn:btih:BAB7D1C428F5BEFFB6509B1567C62DDC44C804A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ BBC: Horizon. Что было до Большого взрыва / What Happened
 magnet:?xt=urn:btih:A25A0F6A237323EB144EB92FAFD24F57CC721F43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ BBC. Тайная история британских садов / The Secret Hi
 ```bash
 magnet:?xt=urn:btih:BC32AA1FBED871BDEEC37D4450907BDAC115FC70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ BBC. Horizon: Проект "Гринглоу". В поисках контрол�
 magnet:?xt=urn:btih:635A00330EE1C172055BC862460EDCCBE5023C42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ BBC. Horizon: Закат Солнечной системы / The End of The Sola
 magnet:?xt=urn:btih:AB69EC36D7350C356292378D8E0F6B017AC425D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:AB69EC36D7350C356292378D8E0F6B017AC425D6
 ```bash
 magnet:?xt=urn:btih:A585541C10705610C9F2D6EABAD61FB385D31B6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

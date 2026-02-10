@@ -1,56 +1,3 @@
-###  Публикация: 583508   (312150) от 02.12.2012
-
-Опустевший город / Reign Over Me (2007) [H.264] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чарли Файнман и Алан Джонсон когда-то вместе учились в колледже и делили одну комнату в общежитии. Спустя годы они встречаются вновь и возобновляют дружеские отношения. Судьба по-разному обошлась с ними.
-
-Чарли, потерявший во время терактов 11 сентября жену и детей, поставил на своей жизни крест. Алан же стал хорошим дантистом и примерным семьянином. Случайная встреча становится для них переломным моментом в жизни, поскольку и тот, и другой как никогда испытывают потребность в преданном друге…Жанр: ДрамаРежиссер: Майк БайндерАктеры: Адам Сэндлер, Дон Чидл, Джада Пинкетт Смит, Лив Тайлер, Саффрон Берроуз, Дональд Сазерленд, Роберт Клейн, Мелинда Диллон, Майк Байндер, Джонатан БэнксПеревод: Многоголосый закадровый (профессиональный)Продолжительность: 02:04:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B974C092F3D3A0DC22BF6620BBC6F41AC554537C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260486   (312173) от 07.11.2018
-
-Футбол. Лига Чемпионов УЕФА 2018-2019. Группа C. 4-й тур. Црвена Звезда (Сербия) — Ливерпуль (Англия) (06.11.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312173.jpg" />
-</div>
-
-
-###  Подробнее
-
-06 ноября 2018 года, вторник. 20:55 МСК
-Лига Чемпионов УЕФА 2018-2019. Групповой турнир
-Группа C. 4-й тур.
-Црвена Звезда (Белград, Сербия) — Ливерпуль (Ливерпуль, Англия)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C78FE7035AB2413A45B487C2B322D22965125B65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260319   (312174) от 07.11.2018
 
 DropDMG 3.5.5 [Multi]
@@ -72,6 +19,8 @@ DropDMG 3.5.5 [Multi]
 ```bash
 magnet:?xt=urn:btih:66266F5D0AF6AC9D39D4E7FC31530EBA4BA9E594
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +45,8 @@ magnet:?xt=urn:btih:66266F5D0AF6AC9D39D4E7FC31530EBA4BA9E594
 ```bash
 magnet:?xt=urn:btih:706408D4F007CCDCCCFAE1C5482E3B10E699431E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +75,8 @@ The Oscar Peterson Trio - Affinity (2016) [FLAC|Lossless|tracks + .cue] <Jazz>
 magnet:?xt=urn:btih:43EEF78030D93BCF73A275CB3E69309E9A8E1DF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +104,8 @@ magnet:?xt=urn:btih:43EEF78030D93BCF73A275CB3E69309E9A8E1DF7
 magnet:?xt=urn:btih:8BBB21D17227F88D882639C68E38A24554799F54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +129,8 @@ magnet:?xt=urn:btih:8BBB21D17227F88D882639C68E38A24554799F54
 ```bash
 magnet:?xt=urn:btih:0B2B0C851611A70F24045AB227397923489D160C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +159,8 @@ Hootie & the Blowfish - Cracked Rear View (1994) Europe Reissue [FLAC|Lossless|t
 magnet:?xt=urn:btih:56D6AFC34BB058E4ED7DEB1170B054A3A427DEF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +187,8 @@ Plenty - It Could Be Home (2018) [FLAC|Lossless|tracks + .cue] <Progressive Rock
 ```bash
 magnet:?xt=urn:btih:E8C635154EC63805ECC6776244F4F4E85DD08505
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +217,8 @@ Anonymous Various Artists - Covert II (2017) Touched Music [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:08F2026A42672F4BB7D6323C8EEA69CF6A75E159
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +245,8 @@ Svartby - Elemental Tales (2012) [FLAC|Lossless|image + .cue] <Folk Black Metal>
 ```bash
 magnet:?xt=urn:btih:1163D301ABA589BFD522246F597AE0103E64D69E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +275,8 @@ magnet:?xt=urn:btih:1163D301ABA589BFD522246F597AE0103E64D69E
 magnet:?xt=urn:btih:91E23D489C17E23F08D332C23F494297C1649225
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +303,8 @@ magnet:?xt=urn:btih:91E23D489C17E23F08D332C23F494297C1649225
 ```bash
 magnet:?xt=urn:btih:325232F78CC8C500DBF33091FDB9E5D416ECA3E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +333,8 @@ Rasmus Seebach - Ingen Kan Love Dig I Morgen (2013) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:F252AEB212B8D73022D1BB00171280D60AF497D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +361,8 @@ magnet:?xt=urn:btih:F252AEB212B8D73022D1BB00171280D60AF497D9
 ```bash
 magnet:?xt=urn:btih:661EE5BD2D3E06096D5A7BFDD1B337B5BAEADC45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +391,8 @@ magnet:?xt=urn:btih:661EE5BD2D3E06096D5A7BFDD1B337B5BAEADC45
 magnet:?xt=urn:btih:502F83ADBFA49C806A2B78FC1C4E8CA96B9DDD1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +419,8 @@ magnet:?xt=urn:btih:502F83ADBFA49C806A2B78FC1C4E8CA96B9DDD1A
 ```bash
 magnet:?xt=urn:btih:A88A6E7927EE20AA7C154014E511EA54256F772C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +449,8 @@ VA - Man Ray (2001) Mixed, Compilation [FLAC|Lossless|tracks + .cue] <Downtempo>
 magnet:?xt=urn:btih:3ACC4D0B0A1287EA9214B5E51B34604DD4F6ADE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +477,8 @@ CD1 - Free Wheeling:
 ```bash
 magnet:?xt=urn:btih:7E1DE68BB76D3FB82EA5CAF28AAA8609FD38AE97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +507,8 @@ A3. You Kill Me With Silence
 magnet:?xt=urn:btih:18082DCA154E3E56020A22A9E8D08151F6A982C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +532,8 @@ magnet:?xt=urn:btih:18082DCA154E3E56020A22A9E8D08151F6A982C0
 ```bash
 magnet:?xt=urn:btih:6776BBC49514D744A7A817F70C0BCDFA4B29F9FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +559,8 @@ magnet:?xt=urn:btih:6776BBC49514D744A7A817F70C0BCDFA4B29F9FB
 magnet:?xt=urn:btih:E822FC7F0BA30A57CA1CA6E451BFAC7ACAA3FB91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +584,8 @@ magnet:?xt=urn:btih:E822FC7F0BA30A57CA1CA6E451BFAC7ACAA3FB91
 ```bash
 magnet:?xt=urn:btih:12890EA0B56A6F08C7A59CA4FEA2B2870E6DD120
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +613,8 @@ magnet:?xt=urn:btih:12890EA0B56A6F08C7A59CA4FEA2B2870E6DD120
 magnet:?xt=urn:btih:35C9FC0BB7B7C3DC3102651B0C4376915012ADAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +639,8 @@ A Channel+smile: Nabe wo Tabeyou | A-Channel+smile: Let's Eat Hot Pot | A Channe
 magnet:?xt=urn:btih:AD3E021E2C5F0C636E642581E69CF6997A5AE9D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -671,6 +664,61 @@ Enrique Iglesias ft. Descemer Bueno & Gente de Zona Bailando (2014) WEBRip [H.26
 ```bash
 magnet:?xt=urn:btih:BADEBBCAB191BFCAA8C9264F11E162321C96CD44
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181522   (312198) от 12.11.2017
+
+Гвоздоед / Mangeclous (1988) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312198.jpg" />
+</div>
+
+
+###  Подробнее
+
+30-е годы XX века. Пятеро героев, известные как «доблестные французы», обнаруживают таинственную криптограмму, адресованную их кузену. Расшифровав письмо, «великолепная пятерка» отправляется на поиски сокровищ и приключений и в результате попадает в Швейцарию…Производство: Франция / Cofimage, Initial Creation, Initial Groupe, Mod Films, Sofica CrationsЖанр: Драма, КомедияРежиссер: Моше МизрахиАктеры: Пьер Ришар, Шарль Азнавур, Жан-Люк Бидо, Бернар Блие, Жан Карме, Жак Дюфило, Жак Вильре, Самюэль Лабарт, Жан-Пьер Кассель, Бернар ПивоПеревод: Многоголосый закадровый (Киностудия "Фильмэкспорт"  по заказу ТРК «Останкино»)Субтитры: ОтсутствуютПродолжительность: 01:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291886D6828C5227A95485E1420F2FF0C3F17A0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182972   (312199) от 12.11.2017
+
+Курт Воннегут | Мать Тьма (1992) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312199.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящем издании вниманию читателей предлагается роман К.Воннегута "Мать Тьма", в котором хладнокровно и с бесподобным висельным юмором исследуется роль отдельно взятого шпиона в судьбах наций.
+В романе Курта Воннегута «Мать Тьма» повествование идет от имени американского шпиона в фашистской Германии, где он работал на радио и в своих передачах настолько (   Читать дальше...   )Жанр: ДрамаПродолжительность: 05:22:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0F524FEE1448FB110BF33D9DE0E0794E7EC4415
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

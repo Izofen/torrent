@@ -1,3 +1,29 @@
+###  Публикация: 1605602   (1043915) от 27.01.2023
+
+Renmei Kuugun Koukuu Mahou Ongakutai Luminous Witches | League of Nations Air Force Aviation Magic Band Luminous Witches | Сияющие ведьмы [2022, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лондон, война, магия, девочки-айдолы, фамильяры — думаете, это никак не связано? А вот и нет! Всё это ждёт нас в данном аниме. Девчонки, владеющие магией, — единственное, что может спасти людей во время войны. Это могло бы стать заурядным сюжетом, но всё не так просто! Героини могут сливаться со своими питомцами, превращаться в зверодевочек и с помощью магии использовать (   Читать дальше...   )Производство: студия Shaft / シャフトЖанр: повседневностьРежиссер: Саэки СёдзиПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C0D0EC2BF66210B4C3A6CD434A09DF8EAB6722A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 650406   (1044091) от 25.01.2023
 
 Uchuu Kaizoku Captain Harlock / Space Pirate Captain Harlock / Космический пират капитан Харлок [1978, TV, 42] DVDrip 480p raw
@@ -18,6 +44,8 @@ Uchuu Kaizoku Captain Harlock / Space Pirate Captain Harlock / Космичес�
 ```bash
 magnet:?xt=urn:btih:5C1F23833DD9E9D18DF03E34BE9951075E9BEA73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ Ginga Tetsudou 999 / Ginga Tetsudo 999 / Galaxy Express 999 / Галактиче
 magnet:?xt=urn:btih:5AB5FC3197BB7A33AC6D21E493373A773629A780
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ Gekijouban Karakai Jouzu no Takagi-san | Озорная Такаги (фильм
 magnet:?xt=urn:btih:1B88DF4E06A025AEDBF8FF6F360EC24F6FF25662
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ Itou Junji: Maniac | Junji Ito Maniac: Japanese Tales of the Macabre | Дзюн�
 ```bash
 magnet:?xt=urn:btih:5CF94385E00E08891F6C9FAA047A3389DF3661CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ Strike the Blood Final | Удар крови OVA-5 [2022, OVA, 4 эп.] BDRip 10
 magnet:?xt=urn:btih:98CFA57B540B2900EA8AB2D1E94559F1D3B3826A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ Soredemo Ayumu wa Yosetekuru | When Will Ayumu Make His Move? | Аюму всё 
 ```bash
 magnet:?xt=urn:btih:7FFAD10880FEC7A388541BA056FCE3381926469A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ Hatena Illusion | Иллюзия Хатэны [2020, TV, 12 эп.] BDRip 1080p 1
 magnet:?xt=urn:btih:CA97A85D7453CB4F4B7778B7491E932FAA1BD9C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ Sunohara-sou no Kanrinin-san | Miss Caretaker of Sunohara-sou | Смотрите
 ```bash
 magnet:?xt=urn:btih:4D9C8CA53A549332A76D7D33CF89A3F8EED33B7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ Sunohara-sou no Kanrinin-san | Miss Caretaker of Sunohara-sou | Смотрите
 magnet:?xt=urn:btih:B31236BE705EA89090AA5BEF3E016A4A39F2F9E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ Bokura wa Minna Kawaisou | The Kawai Complex Guide to Manors and Hostel Behavior
 ```bash
 magnet:?xt=urn:btih:94F5342A538497EA42BF7958A247C00D88938723
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ Isekai Quartet — это сериал-кроссовер, в котором п�
 magnet:?xt=urn:btih:1C152335E4D7CBC615CE1DAB5171F95B1A798D3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ Eiga Go-Toubun no Hanayome | Пять невест (фильм) [2022, Movie] BD
 ```bash
 magnet:?xt=urn:btih:34D4F0C68064ACAE88A53EF4A904ACEAAF5B43BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ Kinsou no Vermeil: Gakeppuchi Majutsushi wa Saikyou no Yakusai to Mahou Sekai o 
 magnet:?xt=urn:btih:5CC8B9807FA36637DFA711CC86F169670DA81E2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ Shokei Shoujo no Virgin Road | The Executioner and Her Way of Life | Жизнь 
 ```bash
 magnet:?xt=urn:btih:B8741492BB957ADBF36D5FCBFBA9CD5F8E854CE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +411,8 @@ Mamahaha no Tsurego ga Motokano Datta | My Stepmom's Daughter Is My Ex | Доч�
 magnet:?xt=urn:btih:3645F224A0FFBAF8E8E9583F97EC7E738ABC131D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +436,8 @@ Taнцы нa льдy — coвceм нe тo, к чeмy cтpeмилcя Цyкaca Aк
 ```bash
 magnet:?xt=urn:btih:509360B9D2EFD4574847A7A94B3A4C752AC69E4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +463,8 @@ Gekijouban Chainsaw Man: Reze Hen | Chainsaw Man the Movie: Reze Arc | Чело�
 magnet:?xt=urn:btih:F140FF842D9B102DD278DA552A7F244C0D19A481
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +489,8 @@ Gekijouban Chainsaw Man: Reze Hen | Chainsaw Man the Movie: Reze Arc | Чело�
 magnet:?xt=urn:btih:1F8F33DFD5355EB7A1D9B00E9091DD16E874FF78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ New Panty and Stocking with Garterbelt | Панти, Стокинг и Гарт�
 ```bash
 magnet:?xt=urn:btih:E457EDB5C4E9D9B3F84E5A9839950167AC873DD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +543,8 @@ Kingdom 6th Season | Царство [ТВ-6] [2025, TV, 11 из 13] WEB-DL 1080p
 magnet:?xt=urn:btih:E66E1E4B976CB2B52E39A11A00117E2069194281
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +569,8 @@ Shuumatsu no Walkure III | Record of Ragnarok III | Повесть о конце
 magnet:?xt=urn:btih:C9CAC7347A6D13ECD1C20A6F77DC34EC38887F8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +594,8 @@ Monster Strike: Deadverse Reloaded | Удар монстра: Перезагру
 ```bash
 magnet:?xt=urn:btih:A79EABF5BE99BF006649435B1FFD0A1F8B0F84F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +622,8 @@ Yuusha Party o Oidasareta Kiyoubinbou / Jack-of-All-Trades, Party of None / Ма
 magnet:?xt=urn:btih:4D2578AC209118BC42FF37DF4B8345BC7A4F3F6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +647,8 @@ MF Ghost 3rd Season | MF Призрак [ТВ-3] [2026, TV, 1 из 12 эп.] WEB
 ```bash
 magnet:?xt=urn:btih:F733D94407CE98AB8B0373EC164684E54743E874
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,30 +675,7 @@ Tamon's B-Side | Tamon-kun Ima Docchi!? | Какой сейчас Тамон?! [
 magnet:?xt=urn:btih:184E52B6F278E7E3E599765FD68EAE78FD9AD310
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845707   (1051001) от 18.01.2026
-
-Gnosia | Гносия [2025, TV, 12 из 24] WEB-DL 1080p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Космический корабль, затерянный в бескрайних просторах Вселенной, сталкивается с непостижимой угрозой. Его экипаж становится целью Гносии — чужеродной сущности, обладающей совершенной способностью к мимикрии. Это существо безупречно копирует внешность, повадки и воспоминания любого человека, незаметно встраиваясь в социальную структуру замкнутого коллектива.
-Единственная (   Читать дальше...   )Производство: Domerica / ドメリカЖанр: приключенияРежиссер: Итикава КадзуяПеревод: Архив Субтитров (Donate)Язык озвучки: ЯпонскийСубтитры: Русские (внешние)Продолжительность: 24 эп. по ~26-27 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:765CB8922F5E9B7900B087E6B778EE2F5D630200
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

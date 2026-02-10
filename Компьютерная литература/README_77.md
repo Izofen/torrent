@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:74AEB0936F4D5D7A817903F5C066F456C20672CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:74AEB0936F4D5D7A817903F5C066F456C20672CF
 magnet:?xt=urn:btih:C8B11DC4C029B4B99E38B4978BF48D0F9826FF72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:C8B11DC4C029B4B99E38B4978BF48D0F9826FF72
 ```bash
 magnet:?xt=urn:btih:4DC1B262C191D5C884970940680686702F79748D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:4DC1B262C191D5C884970940680686702F79748D
 magnet:?xt=urn:btih:FB66C7F9FB0026CFFADF1B9D8FED825E4C143BF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:FB66C7F9FB0026CFFADF1B9D8FED825E4C143BF5
 magnet:?xt=urn:btih:50B1DEA939AB5543F5AE2A3A1C984AE4A50074CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Macromedia Flash MX- это возможность импортировать ц
 ```bash
 magnet:?xt=urn:btih:563AC1A6F1CEC6A753CFF2771E3D7F58888175ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:563AC1A6F1CEC6A753CFF2771E3D7F58888175ED
 magnet:?xt=urn:btih:9CA6BE1B658AA907B5E5296EAA546712DCDBFA0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:9CA6BE1B658AA907B5E5296EAA546712DCDBFA0A
 magnet:?xt=urn:btih:7C9C1865993FF20599546993ED68E67E7EF78446
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:7C9C1865993FF20599546993ED68E67E7EF78446
 ```bash
 magnet:?xt=urn:btih:3DFCB954B405AEEF3704AA95A354B0D5F984D366
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:3DFCB954B405AEEF3704AA95A354B0D5F984D366
 magnet:?xt=urn:btih:A5D34ADDE5BC6E16BEA93B4931E8A3CAFD96B82E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:A5D34ADDE5BC6E16BEA93B4931E8A3CAFD96B82E
 ```bash
 magnet:?xt=urn:btih:74670FDDF4BC92F5BD0A9F04D462609BBCAA87BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:74670FDDF4BC92F5BD0A9F04D462609BBCAA87BC
 ```bash
 magnet:?xt=urn:btih:8B3FD9F281CA7CE7AEAAB1E843D9BD96A9DFA5A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ Jesse Freeman | Introducing HTML5 Game Development [2012] [PDF]
 magnet:?xt=urn:btih:B47B9827AC3663DB6546611AE15044A69B81C229
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:B47B9827AC3663DB6546611AE15044A69B81C229
 ```bash
 magnet:?xt=urn:btih:8E90822B68B963DB9C83FA3280D6C76CE77FAB3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:8E90822B68B963DB9C83FA3280D6C76CE77FAB3D
 magnet:?xt=urn:btih:AE6D869DC55544E86EFCD53F76F52AE8765CC0DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:AE6D869DC55544E86EFCD53F76F52AE8765CC0DA
 ```bash
 magnet:?xt=urn:btih:2ADE28267BF1E6AF7717569F8CB3A251760DD58D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:2ADE28267BF1E6AF7717569F8CB3A251760DD58D
 magnet:?xt=urn:btih:AA695EC2C456892C9B869DFBA78D9F69F86618D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:AA695EC2C456892C9B869DFBA78D9F69F86618D6
 magnet:?xt=urn:btih:779F8707B1C1B8AD49E4E5CD09A2D7EB26055A41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:779F8707B1C1B8AD49E4E5CD09A2D7EB26055A41
 ```bash
 magnet:?xt=urn:btih:A207D4F6E21C80128847CCFA5C9BEA5BD8C596B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ R является самым популярным в мире языком ст
 magnet:?xt=urn:btih:1A641BF6970720BA673875DF09CCBABD200114AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:1A641BF6970720BA673875DF09CCBABD200114AB
 ```bash
 magnet:?xt=urn:btih:16C5F2677CE82EAC991E3AEA0A3239C2799443C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:16C5F2677CE82EAC991E3AEA0A3239C2799443C8
 magnet:?xt=urn:btih:1230E0219130B45C854E283382CDE3DF12DF60F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:1230E0219130B45C854E283382CDE3DF12DF60F3
 ```bash
 magnet:?xt=urn:btih:228AA09979CB359F821E8FE24F1B911F81E84476
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:228AA09979CB359F821E8FE24F1B911F81E84476
 magnet:?xt=urn:btih:5216B63826C1C79F0796C3324419C3586D8CBAAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:5216B63826C1C79F0796C3324419C3586D8CBAAF
 magnet:?xt=urn:btih:B1D70AFE4B33176A00179F1759102EC4DA754F79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:B1D70AFE4B33176A00179F1759102EC4DA754F79
 ```bash
 magnet:?xt=urn:btih:499E1764DB95D7700A5D804AD9008D2607EF5230
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

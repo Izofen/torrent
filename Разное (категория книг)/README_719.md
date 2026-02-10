@@ -1,3 +1,29 @@
+###  Публикация: 615926   (976313) от 09.02.2013
+
+Л.Н. Кудинова (составитель) | Кавардак. Кулинария из домашнего архива [1990] [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит множество рецептов - от салатов до десерта и напитков, есть рубрика полезные советы.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39D50D28A884DAC737F73454EFDE93DD36CF5758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 615026   (976318) от 09.02.2013
 
 Т.Д. Никиточкина, Н.Т. Барботченко | Из истории пряных растений [1986] [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:8815561ED0615C1C547CB4522A11CACB3BB05051
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:8815561ED0615C1C547CB4522A11CACB3BB05051
 ```bash
 magnet:?xt=urn:btih:3170FC28E05025AFD906F1A8E5C0A98DEFE70D7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:3170FC28E05025AFD906F1A8E5C0A98DEFE70D7E
 magnet:?xt=urn:btih:A454671CFA514A2B5FAB3910F9593FCFE1ACC1B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:A454671CFA514A2B5FAB3910F9593FCFE1ACC1B3
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:A454671CFA514A2B5FAB3910F9593FCFE1ACC1B3
 magnet:?xt=urn:btih:FE79B6A5274E39704C0C46C00D3848DADCD1ECFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:FE79B6A5274E39704C0C46C00D3848DADCD1ECFE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:FE79B6A5274E39704C0C46C00D3848DADCD1ECFE
 magnet:?xt=urn:btih:452CE79679A66B8E9E5F4DA2DB439D9741B152F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:452CE79679A66B8E9E5F4DA2DB439D9741B152F9
 magnet:?xt=urn:btih:D17054353127DEFE89A2038E743F3242A9F61D31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:D17054353127DEFE89A2038E743F3242A9F61D31
 magnet:?xt=urn:btih:A82F5E465B5B8FC8A4538EDFE32D83CFE32FE2F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:A82F5E465B5B8FC8A4538EDFE32D83CFE32FE2F0
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:A82F5E465B5B8FC8A4538EDFE32D83CFE32FE2F0
 magnet:?xt=urn:btih:DC70D7F48283EBD819BC92825B878258838DB93F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:DC70D7F48283EBD819BC92825B878258838DB93F
 magnet:?xt=urn:btih:750FB1C00C2544F4F9ACC6CF6FB1B31CD82238E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:750FB1C00C2544F4F9ACC6CF6FB1B31CD82238E8
 magnet:?xt=urn:btih:05896CF10A23856C5D94510C3E814364A30B62C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:05896CF10A23856C5D94510C3E814364A30B62C0
 ```bash
 magnet:?xt=urn:btih:9155C1EB47E4107376345A6FDFA50AD7DA46031B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:9155C1EB47E4107376345A6FDFA50AD7DA46031B
 magnet:?xt=urn:btih:46AB9A79D911B30FC0582CC5390C8A51309815D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:46AB9A79D911B30FC0582CC5390C8A51309815D7
 ```bash
 magnet:?xt=urn:btih:BAD6AAA52A4750B4F33107BDAE082E307B1C30BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:BAD6AAA52A4750B4F33107BDAE082E307B1C30BB
 magnet:?xt=urn:btih:C9B7FC58AC630244994775729F71F56D3DB01C18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:C9B7FC58AC630244994775729F71F56D3DB01C18
 ```bash
 magnet:?xt=urn:btih:C2B2FFE48FDE4F0B13D1B0F30AF7040CB326E689
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:C2B2FFE48FDE4F0B13D1B0F30AF7040CB326E689
 ```bash
 magnet:?xt=urn:btih:3DD954B9C01EA3741A64DF5518100164EF3570F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:3DD954B9C01EA3741A64DF5518100164EF3570F2
 magnet:?xt=urn:btih:DF4C7B82156524FA24D4F5F9046F2EAC72D5D690
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:DF4C7B82156524FA24D4F5F9046F2EAC72D5D690
 ```bash
 magnet:?xt=urn:btih:FEF0BF90552231EC3A736BAD58800953993A11C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:FEF0BF90552231EC3A736BAD58800953993A11C1
 magnet:?xt=urn:btih:4BEF6D8344A080E300DE55BE741CDC03DAB003A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:4BEF6D8344A080E300DE55BE741CDC03DAB003A5
 ```bash
 magnet:?xt=urn:btih:6E762F79E3A590E4EC4352AB167E2F55F5343777
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:6E762F79E3A590E4EC4352AB167E2F55F5343777
 magnet:?xt=urn:btih:F0E4C3C809E78FCAD86B17486C70C91A46E4211E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,31 +682,7 @@ magnet:?xt=urn:btih:F0E4C3C809E78FCAD86B17486C70C91A46E4211E
 magnet:?xt=urn:btih:1371147A3C1E78103AC8F49BD43327E84646DBED
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 438251   (976688) от 18.01.2012
-
-Анна Бусел | Евангелие от Маркса [2007] [PDF]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-При входе в Мавзолей В.И.Ленина изображен священный герб СССР с восходящим солнцем. Солнце указывает на таинственную связь Ленина с грядущим Спасителем.
- Кто-то возмутится: марксизм - атеистическое учение. Маркс был атеистом, и Ленин был атеистом. Так некогда говорили и о Христе: "Не от Бога этот человек".
- Автор в этой книге доказывает, что идеи Маркса, идеи Нового Мира, воплощенные в жизнь в ходе миссии Ленина, по своим масштабам и целям сродни идеям Великого Учителя человечества - Иисуса Христа.2007Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4744EB675ADD16D6FCBBF71BB6CC991AA8B045C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

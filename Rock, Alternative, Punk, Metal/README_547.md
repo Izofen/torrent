@@ -26,6 +26,8 @@ Synkletos - Spiritual Alchemy (2011) [FLAC|Lossless] <Melodic Doom / Death Metal
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -57,6 +59,8 @@ Tristitia - 4 albums (1995-2002) [FLAC|Lossless] <Doom Metal, Gothic Metal>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -90,6 +94,8 @@ Pee Wee Bluesgang - Our Blue Side (1979) - Our Blue Side /2003, Sireena Records/
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +126,8 @@ October Tide - 2 albums (1997-1999) [APE|Lossless] <Melodic Death / Doom Metal>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +162,8 @@ Andwella - World's End (1970) & People's People (1971) Remastered /2002, Progres
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +193,8 @@ Virgin Black - 5 albums (1998-2008) [FLAC|Lossless] <Gothic / Doom / Symphonic /
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +229,8 @@ Geoff Achison & The Souldiggers - Little Big Men (2005) Remastered / 2012, Jupit
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +254,8 @@ Geoff Achison & The Souldiggers - Little Big Men (2005) Remastered / 2012, Jupit
 ```bash
 magnet:?xt=urn:btih:4F54A0CE3DA51FAAF89591600D2665426BDAEAA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +288,8 @@ Maribel - Reveries (2012) [MP3|256 кб/с]<Shoegaze Indie-Rock>
 ```bash
 magnet:?xt=urn:btih:A47F733B058C16E248B7003494FD085F9960D45F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +324,8 @@ Deep Jimi And The Zep Creams - Funky Dinosaur (1992) [FLAC|Lossless]<Hard Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +359,8 @@ The Itch - Spreading Like Wildfire (2012) [FLAC|Lossless]<Hard Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +387,8 @@ Def Leppard - Diamond Star Heroes Live From Sheffield (2025) Live [FLAC 24/48|Lo
 ```bash
 magnet:?xt=urn:btih:30DC5CE984D6DFA6DCB42D43DBAD9C2DC494A6B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +418,8 @@ Papa Roach — американская рок-группа из города В
 magnet:?xt=urn:btih:BFCB0EA693B91F02D89CBB24867D635730A2D732
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +446,8 @@ Kiss - Alive! (Live) (1975) Remaster, 2025, UMe Direct 2 [FLAC 24/96|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:72330F3E7D7E273911825BC09113520A82D96E5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +482,8 @@ magnet:?xt=urn:btih:72330F3E7D7E273911825BC09113520A82D96E5E
 magnet:?xt=urn:btih:AF5263901E28C89D0F9E5BCB9E184777C05E3272
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +510,8 @@ Regina Spektor - What We Saw From The Cheap Seats (2012) [FLAC (tracks+cue)|Loss
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +540,8 @@ Katatonia - 16 albums (1993-2010) [FLAC|Lossless] <Doom / Progressive / Gothic M
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +566,8 @@ Cassidy Paris - Bittersweet (2025) [ FLAC 24/44.1, 48|Lossless|WEB-DL|tracks] <H
 ```bash
 magnet:?xt=urn:btih:D7F72B39655E52B0D15BBDF9DA4B3CD070557B8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +596,8 @@ Treat - The Wild Card (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic-Hard
 magnet:?xt=urn:btih:50722107A5C81399E95307CF8C6F6EC489C622FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +624,8 @@ Thin Lizzy - Night Life / Fighting (2024 Mix) (2025) [FLAC 24/44.1|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:1AA40071DBD534C60299D711F4A7DCB70C4C0090
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +654,8 @@ The Beatles - Anthology 4 (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:2E0D721A38B19D3E39C1D2AFD17E187F971D43D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +682,8 @@ Spock's Beard - The Archaeoptimist (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:CF0C0379E2C34176E3E0031BA388DEE05F2728D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,6 +712,8 @@ The Smashing Pumpkins - Mellon Collie And The Infinite Sadness (1995) 30th Anniv
 magnet:?xt=urn:btih:E55C321F1AA71C43C3BE7863747FCAA65BF94F90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +740,8 @@ The Beatles - Anthology 4 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classic Ro
 ```bash
 magnet:?xt=urn:btih:167893E6E228283C5833C3C2E4CCDC61865BC9A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -728,6 +776,8 @@ Sennen - Lost Harmony (2012) [MP3|~281 кб/с (V0)]<Indie Rock>
 magnet:?xt=urn:btih:6E081DF319FDFA31C7C926CF1B7A30DCAEA2857B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -760,6 +810,8 @@ VA - NOW That's What I Call Classic Rock Hits (2012) [MP3|256 кб/с]<2012>
 ```bash
 magnet:?xt=urn:btih:7981573C41848F4581823C2D003C7ED6E8978548
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:BAAD595D85F0B2392682B5D30F5C9C572BE961FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:BAAD595D85F0B2392682B5D30F5C9C572BE961FF
 ```bash
 magnet:?xt=urn:btih:86672E1998792F329E2AD25F3A9BF0F42134CD8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Sublime Text не является свободным или открытым п
 magnet:?xt=urn:btih:680640077438F66E9C8F838938E8BAF49D3C02DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Dance Club Party Promo - это динамичный проект, которы�
 magnet:?xt=urn:btih:FD35EAC0E6150967963A3FC6A339788A88664282
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:FD35EAC0E6150967963A3FC6A339788A88664282
 ```bash
 magnet:?xt=urn:btih:40A350D40B5D80922579BA7216880B0C137AE8B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:40A350D40B5D80922579BA7216880B0C137AE8B7
 magnet:?xt=urn:btih:A9A0A1FBA908A330AEE289B54E7CE890DAC329F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:A9A0A1FBA908A330AEE289B54E7CE890DAC329F7
 ```bash
 magnet:?xt=urn:btih:75FC5929730D51E8C5464EA6F7ACDA85C3AC4AA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ New Year Countdown 2018 - это 30 секунд обратного отсчет
 magnet:?xt=urn:btih:69B85D6C49A7884109950B67EF96DE7C3B694FEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:69B85D6C49A7884109950B67EF96DE7C3B694FEE
 ```bash
 magnet:?xt=urn:btih:E8A07C8504572A715428031676A8F910BB486A4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Telegraph назвала имена первых в мире биткойнов�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Telegraph назвала имена первых в мире биткойнов�
 magnet:?xt=urn:btih:235D8324FEEE3FA16B5DC76E8E2CB2CE8BAEF901
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:235D8324FEEE3FA16B5DC76E8E2CB2CE8BAEF901
 ```bash
 magnet:?xt=urn:btih:FB9CC6AAD8BEF18BED1534926FB704AD247339F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Undermathic - Moments And Places (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, 
 magnet:?xt=urn:btih:D73703CD92AAE23E7A53842DF3024D2443AAB233
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ Human Egg - Human Egg (1978) LP [MP3|320 Kbps] <Electronic, Space Rock, Psychede
 ```bash
 magnet:?xt=urn:btih:0F9E50380594E552CC4D316BE5B1617E5D44A951
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ CD1:
 magnet:?xt=urn:btih:012731DEDDEDB0E9D88E831193D861546AE39AFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:012731DEDDEDB0E9D88E831193D861546AE39AFA
 ```bash
 magnet:?xt=urn:btih:C0BE25ED91D1E8C9E73AC45F0B498B76A41EDFB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ Circus Maximus - Isolate (2007) Japan Edition [FLAC|Lossless|image + .cue] <Prog
 magnet:?xt=urn:btih:CF115152E0AE71E97D7B384D8FB39936D8DD4ECE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ VA - Ori Uplift & Redchild – Uplifting Only 303 (2018) [MP3|320 Kbps] <Trance,
 magnet:?xt=urn:btih:B64C72906856847B2539255B2421523D72B2B792
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:B64C72906856847B2539255B2421523D72B2B792
 ```bash
 magnet:?xt=urn:btih:3492953A3014AB9B94F208706ABFD407879729F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ Barry Harris Plays Tadd Dameron (1975) 1998, Prevue [FLAC|Lossless|tracks + .cue
 magnet:?xt=urn:btih:E0FE83FA0C60A9F688FAFC7F4F6D2C9FA91104EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ VA - Progressive Trance Vol. 5 (2018) [MP3|320 Kbps] <Trance, Progressive Trance
 ```bash
 magnet:?xt=urn:btih:34924ABA0170887B2F5E1E6781A830D07807A607
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +594,8 @@ Circus Maximus - The 1st Chapter (2005) Japan Edition [FLAC|Lossless|image + .cu
 magnet:?xt=urn:btih:06A7E69274E7F1FFDFDD8505D7D12654C479FA9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ Dorothy Ashby - Dorothy's Harp (1969) 2014, Universal [FLAC|Lossless|tracks + .c
 magnet:?xt=urn:btih:CF60DACD0BC495957C83C3E2C843904E3770820B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ magnet:?xt=urn:btih:CF60DACD0BC495957C83C3E2C843904E3770820B
 magnet:?xt=urn:btih:251444CF97189EBA36E64539710AC518ACA49807
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +676,8 @@ magnet:?xt=urn:btih:251444CF97189EBA36E64539710AC518ACA49807
 ```bash
 magnet:?xt=urn:btih:5B3284A28207AF2D761508923E07F6BAA5147B0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +705,8 @@ Lee Morgan - Taru (1968) 2000, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop
 ```bash
 magnet:?xt=urn:btih:C2ECAACC65ED67C58094967786250A15C81437BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

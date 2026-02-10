@@ -23,6 +23,8 @@ Oasis — британская рок-группа. Одна из самых в�
 magnet:?xt=urn:btih:2CA0CDB3EAFB95DAB16F84DC6E0006B623C1BEEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Godsmack — американская рок-группа, образованн�
 ```bash
 magnet:?xt=urn:btih:530EACE44110B1C828F8491AE2D00E902917651B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -78,6 +82,8 @@ https://elkka.bandcamp.com/album/prism-of-pleasure
 magnet:?xt=urn:btih:5F248F5B357536258686480B2CB872FA999E6B99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -104,6 +110,8 @@ The Arcane Order - датская метал-группа из Колдинга.
 ```bash
 magnet:?xt=urn:btih:7404F672808400922D24EFE8BCFD5B94FD99B84D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -132,6 +140,8 @@ A2 Spanish Harlem
 magnet:?xt=urn:btih:5E59A8B7739AFA6FE44B74958BA9A31E33F60376
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -158,6 +168,8 @@ Color for Shane - End (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Ro
 ```bash
 magnet:?xt=urn:btih:F609EB4C02EC3030E7621CC8FAE59EC8FCCB9983
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -186,6 +198,8 @@ Pet Shop Boys - A new bohemia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Éle
 magnet:?xt=urn:btih:B6E623A8AED5C899145283249C53B05EE2A91D47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +226,8 @@ Bon Jovi - Forever (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:2FF439BB816596B5C62AE4715A70B5A9998CD5DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +256,8 @@ com.pass - Полюса (2021) [FLAC|Lossless|WEB-DL|tracks] <Russian Metalcore>
 magnet:?xt=urn:btih:8EEEB8EE4204260416A223C8929A138DCD84D35A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +284,8 @@ Snoop Dogg & Dj Drama - Gangsta Grillz: I Still Got It (2022) [FLAC 24/44.1|Loss
 ```bash
 magnet:?xt=urn:btih:3C0049905720DDF5B965BD87D22A9E1FE5F7E6EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +314,8 @@ Eternal Tears of Sorrow — финская группа, исполняющая 
 magnet:?xt=urn:btih:481279DD7028C9857300A7DD62000F5BE49EB494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +342,8 @@ magnet:?xt=urn:btih:481279DD7028C9857300A7DD62000F5BE49EB494
 ```bash
 magnet:?xt=urn:btih:121AC779F0A8410E7BEE43CFF0030A65490A9736
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +372,8 @@ Saul Hudson, более известный по сценическому псе�
 magnet:?xt=urn:btih:7EE5A2BCB7155BAAA65E36CEE3460440045CC738
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +400,8 @@ twenty one pilots - Clancy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie P
 ```bash
 magnet:?xt=urn:btih:E78CEBCF8350393680B1035087DCDCFD9979DA7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +430,8 @@ Jazz Erotic Lounge Collective, Jazz Music Collection - Erotic Improvisation: Sen
 magnet:?xt=urn:btih:FAC2EE6022EAED6553935B9FFFF3D67B363E8CE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +458,8 @@ magnet:?xt=urn:btih:FAC2EE6022EAED6553935B9FFFF3D67B363E8CE6
 ```bash
 magnet:?xt=urn:btih:E04839316A771C075C5A351AB852C7048DE97612
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +488,8 @@ New Kids On The Block - Still Kids (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:679B8D96FFFA1511AB7B75145D9E932F6AE5C550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +516,8 @@ Billie Eilish - HIT ME HARD AND SOFT (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:56C8295977595D1D321BBDEE78138C65A59DA258
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +547,8 @@ Fear Factory — американская метал-группа из Лос-А
 magnet:?xt=urn:btih:02323E13F89423B9D40860E54EC6708E63CB9801
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +575,8 @@ Pain — индастриал-метал проект шведского муз�
 ```bash
 magnet:?xt=urn:btih:67C2E6FFC9F140FBCE4714F4EE16A51294ABB2DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +605,8 @@ Stream of Passion — мексикано-нидерландская симфон
 magnet:?xt=urn:btih:0F22229E4993B3E7DFA444B9CEDEE70F8DDD79C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +633,8 @@ Freedom Call — немецкая пауэр-метал группа, основ
 ```bash
 magnet:?xt=urn:btih:5B3B1A5274A55E651DDADB5A18900732D8021049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +663,8 @@ A4 Love In September(   Читать дальше...   )Жанр: Electronic, Di
 magnet:?xt=urn:btih:FB157040B540D37F5B62DF756513917993D8AE64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +691,8 @@ magnet:?xt=urn:btih:FB157040B540D37F5B62DF756513917993D8AE64
 ```bash
 magnet:?xt=urn:btih:931E51CA7FA2FAEF636F30E8CCDD6D6D622150CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +721,8 @@ Unleash the Archers — канадская метал-группа, основа
 magnet:?xt=urn:btih:30A5A8B3549B600F63F023156505C7EFB228EF85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +749,8 @@ A4 You Know That I Love You(   Читать дальше...   )Жанр: Rock & 
 ```bash
 magnet:?xt=urn:btih:98DAAF04C4B084546C2644B32DA3C3CFD3941983
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ TuneIn объединяет спортивные события, музыку, �
 magnet:?xt=urn:btih:8F83843F482426C2F45765EFF4E95EEA23114DC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:329D5E072E30FD6D32A56325ECBC6D14C961CDEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ MediaHuman YouTube Downloader 3.9.15 (2107) RePack (& Portable) by elchupacabra 
 magnet:?xt=urn:btih:68BF77587B60B2FF7D26BEC2C638A0D416270578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ OCCT 14.2.3 Portable [En]
 ```bash
 magnet:?xt=urn:btih:F5562260F5C3C9578DCCE32712D15AA303832BBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ LazyMedia Deluxe это Android TV приложение, которое можн
 magnet:?xt=urn:btih:776496E3B17EF4424AC66CF1ECE091FBA8C548FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ PDF-XChange Pro — универсальное решение для работ�
 ```bash
 magnet:?xt=urn:btih:4EAAE77460B9B59857E0349738548987A647B1FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ DxO PhotoLab Elite 8.7.1 build 633 RePack by KpoJIuK [Multi]
 magnet:?xt=urn:btih:D87B68ABCCC38E2E7E1104C7285E3BF050BD3FE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 ```bash
 magnet:?xt=urn:btih:18B98312CFF7541E6DB6399E2BA18B22BBE8B72E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:18B98312CFF7541E6DB6399E2BA18B22BBE8B72E
 magnet:?xt=urn:btih:C0D518AFB9E3C4C8A0ACA0EF07DD0EDE04A9F59F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ WinTools.net – набор инструментов для оптимизаци
 ```bash
 magnet:?xt=urn:btih:69DA0993BF5EE23B5DCE53091FCBB7618FD209C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Vanced — это модифицированная версия YT, котора
 magnet:?xt=urn:btih:916CC0420E8377635CD3FF0305632FEC7F1BE734
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ jetAudio это музыкальный проигрыватель с 10/20 по�
 ```bash
 magnet:?xt=urn:btih:0A732C44F0CE4B163DC1D53E3CA39EA1D885EA2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:0A732C44F0CE4B163DC1D53E3CA39EA1D885EA2C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ PDF-XChange Editor — программа для просмотра, редак�
 ```bash
 magnet:?xt=urn:btih:87B17B9711DE78A54199DE1F21157EB6181BC822
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ FBReader Premium v3.8.16 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:501411EB92BFD7D0A606B73E56F286FEF2CEF3EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Wondershare UniConverter - простой в использовании виде
 ```bash
 magnet:?xt=urn:btih:A357D5D95393145C3FBD22057AACEB96EF1AF0C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:1CDBF406389B0AEDE37BE23B3710EE0B93D9ECD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Ocenaudio — аудиоредактор, распространяемый ав�
 ```bash
 magnet:?xt=urn:btih:C61803BFFB9E126964B7D9E264AFE20B4DCD41EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ AIMP 5.40.2683 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:1A9FBF0629C0ECD0AECF8A925D843C0323AD67A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Fast Video Cutter Joiner - программа 2-в-1 для быстрой ре�
 ```bash
 magnet:?xt=urn:btih:E37A5DA77F09247353107E8892ECA7155759C3FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ VIMAGE - AI Photo Animation v5.1.7 Mod by PieMods [En]
 magnet:?xt=urn:btih:889C67314704E0C9F370194A1B632B0B196403E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ magnet:?xt=urn:btih:889C67314704E0C9F370194A1B632B0B196403E9
 ```bash
 magnet:?xt=urn:btih:667B7108C6E1D000E125C6EB3A87D80F760569E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ magnet:?xt=urn:btih:667B7108C6E1D000E125C6EB3A87D80F760569E9
 magnet:?xt=urn:btih:BB024534A8248CD9279EFB0A273257BFCFF8F11A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:618A9D0268CE25352B4DA2ED042F5A3836CAE265
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ magnet:?xt=urn:btih:618A9D0268CE25352B4DA2ED042F5A3836CAE265
 magnet:?xt=urn:btih:DA8101A1866B592152CFD1C4DF5C87B8EDF78BC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ magnet:?xt=urn:btih:DA8101A1866B592152CFD1C4DF5C87B8EDF78BC1
 ```bash
 magnet:?xt=urn:btih:E923D83E1A92DA5EA379877B9BBA46D72E10AB28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

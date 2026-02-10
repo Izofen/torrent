@@ -19,6 +19,8 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.3.1/dlc) Repack seleZen [Spe
 magnet:?xt=urn:btih:2578EA8DFB9352310A11EA6EC6E7F4843C96E12D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ AnyDesk 9.5.11 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:42487E9C096DF50DCD58622E8725B0BA38BFB18C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:42487E9C096DF50DCD58622E8725B0BA38BFB18C
 magnet:?xt=urn:btih:880639432B7B9F8BDE65735DCC916EE480AA7E38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Bee Simulator: The Hive (2025) [Ru/Multi] (build 19461565/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:DDFA6CB1B263ADE6890102AD744644B7EAB3B972
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:DDFA6CB1B263ADE6890102AD744644B7EAB3B972
 magnet:?xt=urn:btih:A37B58AD1E632A1949CBCE302E0E39EB21397A62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Shaman's Ark (2025) [Ru/Multi] (build 19404296) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:B901121EDB0D22793D91C81D7D84D22C22CC9637
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Pink Floyd — одна из самых великих групп в истор�
 magnet:?xt=urn:btih:0D6315DB1502077BAA5A1EC716C15CE0D8591D6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ R-Studio - основанная на новейшей уникальной те
 magnet:?xt=urn:btih:88F88019B24F671282BE1C2048F13696CF41E155
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Fuel Harvest Together (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CABD6325C6BF282285AB7EA0F0F2B10C4017FAFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:CABD6325C6BF282285AB7EA0F0F2B10C4017FAFE
 magnet:?xt=urn:btih:868351D587DC518F01EF9A69FBAEC3E5AFAE2C0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:868351D587DC518F01EF9A69FBAEC3E5AFAE2C0E
 ```bash
 magnet:?xt=urn:btih:2AF45BDF077A5F9003DA5056B94A84827DD3A204
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:2AF45BDF077A5F9003DA5056B94A84827DD3A204
 magnet:?xt=urn:btih:EAD12AFC7C87E45E835D51FBE8490BBD17A90937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:6F627A375B2AD24D30FBA46DC501E616B7B8362F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:6F627A375B2AD24D30FBA46DC501E616B7B8362F
 magnet:?xt=urn:btih:4048C7F10579508CB957D8E61377FC5D1E34906B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:4048C7F10579508CB957D8E61377FC5D1E34906B
 ```bash
 magnet:?xt=urn:btih:8254858D163DB94D5CBC5F633CF3AE9697E21DE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ PPEAK - это совместная игра о восхождении, где �
 magnet:?xt=urn:btih:716A16238FE8571E176B25998F2953594DA7E4AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:716A16238FE8571E176B25998F2953594DA7E4AB
 ```bash
 magnet:?xt=urn:btih:350C57BAF7D2CA45B9B90B3E1AC68CF8C29BB257
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:350C57BAF7D2CA45B9B90B3E1AC68CF8C29BB257
 magnet:?xt=urn:btih:CA95A89C3DF04D91D12BC778DF432E750C53FCFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:CA95A89C3DF04D91D12BC778DF432E750C53FCFB
 ```bash
 magnet:?xt=urn:btih:88C0AAE039E0BDCD134134B34189A32F8B37A2A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:88C0AAE039E0BDCD134134B34189A32F8B37A2A1
 magnet:?xt=urn:btih:B67BDCDC5259D387B500E656704A9B100E8D9F54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Copycat - это инди-игра, основанная на повествов
 magnet:?xt=urn:btih:00CDE286B32312B543CE9C9AB466F445717A4241
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:00CDE286B32312B543CE9C9AB466F445717A4241
 ```bash
 magnet:?xt=urn:btih:C77AD04ADB492B2581E770EB81BE6A07BE321C46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Pink Floyd - История легенды 1 (2017) DVDRip [H.264/1080p] [VO, ha
 magnet:?xt=urn:btih:DBDF07DBDBCF7E3F2EABEACFF278429B0B5EE7D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:DBDF07DBDBCF7E3F2EABEACFF278429B0B5EE7D4
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Adobe Illustrator — это принятое в качестве отрасле
 magnet:?xt=urn:btih:DDD6A1AAA947A1F75CD136BC5B461053F8AA9F41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:DDD6A1AAA947A1F75CD136BC5B461053F8AA9F41
 ```bash
 magnet:?xt=urn:btih:C759C1A3EC329E78332AFEE6E216E45F52203A39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

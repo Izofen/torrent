@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1ED7C3434CF5D7E22D1E807C0F689F2483E1FEB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Doupo Cangqiong | Dou Po Cang Qiong | Fights Break Sphere | Battle Through The H
 ```bash
 magnet:?xt=urn:btih:5CEF54A2D9089EC7E58664EE9FD90543AF353BD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:5CEF54A2D9089EC7E58664EE9FD90543AF353BD7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:5CEF54A2D9089EC7E58664EE9FD90543AF353BD7
 ```bash
 magnet:?xt=urn:btih:FACB4A07C7E2C7D2E849E3ED189EF0D0D25A41AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:FACB4A07C7E2C7D2E849E3ED189EF0D0D25A41AF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:FACB4A07C7E2C7D2E849E3ED189EF0D0D25A41AF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Tunguska: The Visitation (2021) [Ru/Multi] (1.94-4/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:673715F966FFC500EC1D6F0CE312A58C3EC558E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ MAX Desktop 25.8.0 [Ru]
 magnet:?xt=urn:btih:04446F3CEE5C620BE7AC5D4316FB5023D5CE8C90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Incubation: Time Is Running Out / Incubation: Космодесант [Ru] (L) 19
 ```bash
 magnet:?xt=urn:btih:0C88A7D41D7DC787A4C1722359120BB4D1E17D20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.16.02/dlc) Licens
 magnet:?xt=urn:btih:B9BC4FCC81D46AB6431C879CE5C27D509399C364
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Project Zomboid - многообещающая Survival-RPG, в которой �
 ```bash
 magnet:?xt=urn:btih:38F677AA504594460DE4485EE95E7971F337B939
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ SpellForce: Conquest of Eo (2023) [Ru/Multi] (1.9.6/dlc) License GOG
 magnet:?xt=urn:btih:26526B8BFDD8D543362D2DB065AB3397852E8C2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Call of Duty Modern Warfare 2 (2022) - шутер от первого лица, 
 ```bash
 magnet:?xt=urn:btih:8782DB2F8862F6481CEF1889C4BE56CD15F8EFA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:8782DB2F8862F6481CEF1889C4BE56CD15F8EFA9
 magnet:?xt=urn:btih:091B7E382A177D5E28749DB2E9B17629FF451741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:091B7E382A177D5E28749DB2E9B17629FF451741
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:091B7E382A177D5E28749DB2E9B17629FF451741
 magnet:?xt=urn:btih:51888E385AC6B706DE67399E269025C7F9191EFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:51888E385AC6B706DE67399E269025C7F9191EFB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:51888E385AC6B706DE67399E269025C7F9191EFB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:51888E385AC6B706DE67399E269025C7F9191EFB
 magnet:?xt=urn:btih:02DA89334FB4CF3DA47AC177F4CB995989DF0FE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Phantom Doctrine - шпионская пошаговая стратегия-тр
 ```bash
 magnet:?xt=urn:btih:C016DF954D4A09B2B580E43567362A61C7C00B47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:C016DF954D4A09B2B580E43567362A61C7C00B47
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:C016DF954D4A09B2B580E43567362A61C7C00B47
 ```bash
 magnet:?xt=urn:btih:582802ADBF16CD10389147CDEB33CA60FB896E79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:582802ADBF16CD10389147CDEB33CA60FB896E79
 magnet:?xt=urn:btih:4048C7F10579508CB957D8E61377FC5D1E34906B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:4048C7F10579508CB957D8E61377FC5D1E34906B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:4048C7F10579508CB957D8E61377FC5D1E34906B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +680,8 @@ UALinux RescuePack — это бесплатный загрузочный дис
 ```bash
 magnet:?xt=urn:btih:97825357D9D1425E29D3550A446A6EEBADA12B2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

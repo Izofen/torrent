@@ -19,6 +19,8 @@ Auslogics Duplicate File Finder поможет Вам избавиться от 
 magnet:?xt=urn:btih:ECE282EBB76799B51D9E8C11B2D9E40C1A32FA5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:30FEF7C50D7CD65DDF1DEC098E27376947976DB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ iMusic для Mac - многофункциональный музыкальны�
 magnet:?xt=urn:btih:8E6EED9D154DC8AD2E73B92DFC867D4ED497FEC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ AMD Radeon Software Adrenalin Edition представляет собой нов
 ```bash
 magnet:?xt=urn:btih:5A056ABEA6582CD49494A989CE48E13B65D02DDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Wise Menu - это небольшое расширение Finder, которо�
 magnet:?xt=urn:btih:5238CCF3901CB2F78F173A268736A67847A48DDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ DxO PhotoLab Elite 6.10.0 build 284 RePack by KpoJIuK [Multi]
 ```bash
 magnet:?xt=urn:btih:F78E133BA2B7E3AE765651158BA97479B81EF0AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ WSCC (Windows System Control Center) - портативная программа
 magnet:?xt=urn:btih:669BF61957E2C633463B6B666D846A854FBDCCD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Auslogics File Recovery - легкая и эффективная в исполь
 magnet:?xt=urn:btih:089A1854F63A874AE6FAAEAE70DA10F5C6F8D7B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Aiseesoft Mac FoneLab for iOS 10.2.28 [En]
 ```bash
 magnet:?xt=urn:btih:77C470562D922599E50C5EB1BF333AEAAB46DACD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ QuickMemoryTestOK - небольшая, но эффективная утилит
 ```bash
 magnet:?xt=urn:btih:35BF555BF3D70CF6F35DF08D9713ADD2118843A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ SnapMotion имеет два режима:
 magnet:?xt=urn:btih:2666487C7497D9844DDCDED60E4FB2E550640723
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ GoldWave - звуковой редактор, предназначенный д�
 ```bash
 magnet:?xt=urn:btih:A16D3E9C672C2676B97DE1BFDED0B097AA1379F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ Keyboard Maestro - мультифункциональная утилита, ко
 magnet:?xt=urn:btih:ABDF85114C28FE799082FFA0EE2463959CCCF9FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Iridient Developer - мощное приложение для обработки
 ```bash
 magnet:?xt=urn:btih:A06CF63695EAC289D42E98FDBD6C2A589BD2440B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Notebooks является единственным блокнотом, кото
 magnet:?xt=urn:btih:9A40A9EBB5FC95A9C35CE0C1C95E094808D71ADB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ start - это уникальный лаунчер для macOS, позволя�
 ```bash
 magnet:?xt=urn:btih:45280C61981FF4405CD452AAE8EEA31085A6391C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ SSH Config Editor Pro 2.1 [En]
 magnet:?xt=urn:btih:DC0209B2E4A1EBF5BB518F095E88226205BA241F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:2A28D9E56A0F427FA99686CDA8494F6EADD4E493
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:EB15B5F8DFA67E387C3EAB2D03341656646B15D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:6EB52D7FBFC317EF31F985E5003D96720DE1073C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ CPU-Z способен показать различную информацию 
 magnet:?xt=urn:btih:75BDE8418FD53444212011086A1AA89E1936C753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Principle — приложение для Mac OS, которое позволя�
 ```bash
 magnet:?xt=urn:btih:7C3B4869A764C4F70E8CF200AF200C75F68456D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ GlueMotion был создан, чтобы сэкономить время и п
 magnet:?xt=urn:btih:6774BBFD920122967E3FD9F9D3163BA3597DF455
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ DesktopClock3D - простые, но в то же время красивые 3
 ```bash
 magnet:?xt=urn:btih:F0D148B6F36E1350E2770F87BDC93CF71F61146A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ MetaImage - это идеальный инструмент для чтения, 
 magnet:?xt=urn:btih:AD651961180EE303BB80A89286336559473B0257
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Exif Pilot - EXIF редактор используется для просмо�
 ```bash
 magnet:?xt=urn:btih:686C15398CFBB0EEFE3DFE84786E794E9A7EBB1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

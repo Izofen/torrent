@@ -19,6 +19,8 @@ SRE - это подход к организации IT Operations. Команд�
 magnet:?xt=urn:btih:191F7FBFF258B886D90A5BFEFF412A74535F32C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NG. Львы с Крокодильей реки / Lions of Crocodile River (2007
 ```bash
 magnet:?xt=urn:btih:3612B8D9A7CD8D0D6EA542A40B30444548E8B2C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Tim Feehan - Full Contact (1990) [FLAC|Lossless|image + .cue] <AOR>
 magnet:?xt=urn:btih:8BE81F40D0864D96E54B4D6AA4ED8FDDBD4AFEF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Network Radar предоставляет Вам информацию о сети
 magnet:?xt=urn:btih:BA002E2871A115EB0718950FBA7BECCFCA8DEF7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:BA002E2871A115EB0718950FBA7BECCFCA8DEF7B
 ```bash
 magnet:?xt=urn:btih:AF8593C36ECC29FD572918D2C70C40DFDA030D5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Vellum 3.4.3 [En]
 magnet:?xt=urn:btih:FAD8DA1FE7B3926027A4183B66EECCC81000DF12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ KLS Backup - мощная программа, предназначенная д�
 ```bash
 magnet:?xt=urn:btih:6BFBF6B4401760077B340D11EEACFD47F3D1F260
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-
 ```bash
 magnet:?xt=urn:btih:B4494CD4E094758F8A7734CAA8694E571AA24CC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Arret's Odyssey - Arret's Odyssey (2021) [FLAC|Lossless|WEB-DL|tracks] <Progress
 magnet:?xt=urn:btih:6FD79BC224717CE548DE270E0930E17171701E64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Wise Disk Cleaner 11.0.1.815 RePack (& portable) by Dodakaedr [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6BB49C82F9F87027E7EAF5B849D81773F0A0AEB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ Sugarcult - Start Static (2001) 20th Anniversary Edition, 2021, Fearless Records
 magnet:?xt=urn:btih:E4617FC3AD54FEF0C31A463D6D41AF90995BDC9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:E4617FC3AD54FEF0C31A463D6D41AF90995BDC9A
 ```bash
 magnet:?xt=urn:btih:5E731B6EB8B9C750EB65F98498B913E336CCC708
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:5E731B6EB8B9C750EB65F98498B913E336CCC708
 magnet:?xt=urn:btih:7E2B7B58D909B2110F51D302F51A5932A9243BFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:7E2B7B58D909B2110F51D302F51A5932A9243BFB
 ```bash
 magnet:?xt=urn:btih:6E5F70EF55F8DC08E41BD2022AA54A4F9A80EEDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ Sketch - это инструмент для векторного дизайна 
 magnet:?xt=urn:btih:DD600E8B90ABB1D0757CA209DF8D8A35851EDF54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ iCompta - простое, но мощное приложение для упра
 ```bash
 magnet:?xt=urn:btih:2A1E0BDD72A62CD222047F94D7A3A4F8E7707B3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ The Phil Woods Quintet + One - Flash (1990) Concord Jazz [FLAC|Lossless|tracks +
 magnet:?xt=urn:btih:8A4284AC02210DDE678F30FC86EE4D46C25A1223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ June Christy - This Time Of Year (1961) 2010, Toshiba-EMI [FLAC|Lossless|tracks 
 magnet:?xt=urn:btih:4E8BBE146A39EB50CD7A7DF7897B9655D37D6712
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ HTML Academy | Протоколы и сети: основы (2022) [unpacked]
 ```bash
 magnet:?xt=urn:btih:085052360B7250A202235351AE2410DAE27A0CB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ Abysslooker - 2 Albums (2020-2022) [MP3|320 Kbps] <Alternative, Metal>
 magnet:?xt=urn:btih:DC2E35AB8C7BE531D945C9313F6C60DE96AB2665
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:38BF3ED0B0F2A15BDA35025542D333725E16CBA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ myTracks — замечательное приложение, которое б�
 magnet:?xt=urn:btih:4F5A563DFCD7799B9CE921E3DE7678D28891DCB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ Maxthon Browser — многофункциональный браузер со �
 magnet:?xt=urn:btih:C7455A7D16E0726DACDA005D95C3A7DB5653ED4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:C7455A7D16E0726DACDA005D95C3A7DB5653ED4A
 ```bash
 magnet:?xt=urn:btih:2BDC97F26678085EB754BD13221A1754BB88BCD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ magnet:?xt=urn:btih:2BDC97F26678085EB754BD13221A1754BB88BCD6
 magnet:?xt=urn:btih:0C2EDCB7B7B35400FE4F6B73B32AD353181C613B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ EarthView — это динамические обои для рабочего �
 ```bash
 magnet:?xt=urn:btih:798642BCD28F40A8AD61D773632F030900C0B67D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

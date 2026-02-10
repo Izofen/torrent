@@ -19,6 +19,8 @@ Shift 87 – самая необычная рабочая смена ждет в
 magnet:?xt=urn:btih:1A2BA8B6A062DFC387593935147104ACCEC4FFA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Selene's Unbearable Night (2023) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:ABA9E13CF8D0C1585A34A6B95281FF1AE7E544D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Five Nights at Freddy's: Into the Pit (2024) [Ru/Multi] (1.0.4.5) Scene Tenoke
 magnet:?xt=urn:btih:4B00EDEEEC17E84F27D43AE39449F937EA9A5CB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Who is Abby (2023) [En] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D50CF200CB4E980FEA985D2D7CC1A07534BB308D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Finding Mosey (2024) [Multi] (2.81) Scene Tenoke
 magnet:?xt=urn:btih:670717CD42B4480C51284225E93972839127496D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Can't revert - это психологическая игра ужасов от 
 ```bash
 magnet:?xt=urn:btih:AD8C5445DCC3B28106665F709987F8621C40CDD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:AD8C5445DCC3B28106665F709987F8621C40CDD1
 magnet:?xt=urn:btih:B451DE18D35136675ADEE2142F52319D5A9FD9A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Selene's Unbearable Night (2023) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:02F50CC7DBD98308D12FE70A891BAFF84C544023
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.4.3b) License GOG
 magnet:?xt=urn:btih:05AA619521E12988627D57ECD3C10BA3AEE91CAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Wild West Dynasty (2023) [Ru/Multi] (1.0.9064/dlc) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:77C930476F4C92D68EF43583E500DC20ACB2EA90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Homeless – в этом настоящем психологическом уж�
 magnet:?xt=urn:btih:999DD55E1BAEE8E024E61F6E6104874BF286A6D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Escape From Warehouse / Побег со склада (2024) [En] (1.0) Scene Ten
 ```bash
 magnet:?xt=urn:btih:79ED443C2FEA212CF45DA4EEA0F8972363BF7A9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Who is Abby (2023) [En] (1.0.0) Scene Tenoke
 magnet:?xt=urn:btih:FFE3912B6EC9D2CA335944C44AD4F014F9CE51D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Nightmare Side: The Game – как вы смотрите на то, чтобы 
 ```bash
 magnet:?xt=urn:btih:19C7B96E7F6989635A7105CCBD2A90F30DAD7EC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Delearnia: Fractions of Hope - это сюжетная приключенчес�
 magnet:?xt=urn:btih:33C683F1B725BAE7922DD8884FDF5FB170714E9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Sam and Max: The Devil's Playhouse - ремастированное приклю
 ```bash
 magnet:?xt=urn:btih:1992F8F24C9F7DD47AED84302A0BCA3A2040DF4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ PARANOID (2023) [Ru/Multi] (10138) License GOG
 magnet:?xt=urn:btih:16E246F347BD2838C5355FF1A99457355BAA5FB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Voidness - Lidar Horror Survival Game - это леденящий душу �
 ```bash
 magnet:?xt=urn:btih:4F3D5E2012DCB38912E987AD9AD3887B4892D3CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ The Bathhouse Restored Edition – перед вами невероятный я
 magnet:?xt=urn:btih:CD8B1412771FBFF03BB12E0B21B74600E447E6B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Among the Sleep - удостоенная множеству наград игр�
 ```bash
 magnet:?xt=urn:btih:091AB4FC075DB3E45491FA3F749E1DF2407F2623
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Lifeless Planet - новое трёхмерное приключение для 
 magnet:?xt=urn:btih:062329B424770BBBDDEB5D3B8252E93830C87F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Nancy Drew: Danger on Deception Island - детективный квест пр�
 ```bash
 magnet:?xt=urn:btih:D5A3ABFBA9C597B85B7842E71A7939365CFC68E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Nancy Drew: Secret of the Scarlet Hand / Нэнси Дрю: Тайна алой 
 magnet:?xt=urn:btih:B35F3118A9111DFDB0F6B1CA9977D64B316E3A24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Welcome to Elk – это биографическое приключение, �
 ```bash
 magnet:?xt=urn:btih:31CA6A148F9315A793DB418117DD5B1DFBDF57F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ DREDGE (2023) [Ru/Multi] (1.5.1/dlc) Scene DOGE
 magnet:?xt=urn:btih:D485C622EAAB11075F54F3A7D0DAA323FEDA9311
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Guayota (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:2D93E62B8D2C4F218EB32CC38B06A35C655EFD23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

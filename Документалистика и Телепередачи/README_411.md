@@ -1,3 +1,29 @@
+###  Публикация: 1046100   (556723) от 25.08.2016
+
+Военная приемка. Прятки на выживание (21.08.2016) HDTVRip [720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прятки на выживание. Мы увидим новейшие системы военной маскировки. Уникальный камуфляж нового поколения маскирует не только днем, но и ночью, скрывая от всех современных приборов ночного видения. Этот костюм уже проходит государственные испытания и скоро поступит в нашу армию. Кроме того, мы покажем высокотехнологичные маскировочные сети. Они превращают танки и (   Читать дальше...   )Еженедельная программа "Военная приемка" расскажет зрителю обо всех новинках российского оборонного комплекса. Кроме этого, особое внимание будет уделено такой важной профессии, как военный представитель - офицер, который несет перед государством ответственность за качество выпускаемой военной техники.Телекомпания: ЗвездаЖанр: ТелепередачаПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10E5A27E2253D9BC737B51500AB018096137C8C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1153973   (556880) от 28.07.2017
 
 Деньги или позор (2017.07.27) SATRip (выпуск 2)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:4701985B48169B525B7E3355FFC287C0F6E670EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:4701985B48169B525B7E3355FFC287C0F6E670EC
 magnet:?xt=urn:btih:9200D05C5E8400FFC5EE6F8FFCCF7F3DE1B1BABD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:9200D05C5E8400FFC5EE6F8FFCCF7F3DE1B1BABD
 magnet:?xt=urn:btih:56AF18B17C5599CD205B5873AD8F683F1A5F2156
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:56AF18B17C5599CD205B5873AD8F683F1A5F2156
 ```bash
 magnet:?xt=urn:btih:2CC19857F2C1927271D342FD4EAF0C6786B6266C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:2CC19857F2C1927271D342FD4EAF0C6786B6266C
 magnet:?xt=urn:btih:DBABA0F9E4E2B2DC9EFBAC6CC4A49EDA0789CB46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:DBABA0F9E4E2B2DC9EFBAC6CC4A49EDA0789CB46
 ```bash
 magnet:?xt=urn:btih:4D908DE65F6FC126F6476599F0A32185E1305C56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:4D908DE65F6FC126F6476599F0A32185E1305C56
 magnet:?xt=urn:btih:8473C047D1F12970F8136AEBA93BAAFFBCFD3CFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:8473C047D1F12970F8136AEBA93BAAFFBCFD3CFB
 ```bash
 magnet:?xt=urn:btih:116850A5C2F9FC99653334CB4B159A53F94829DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:116850A5C2F9FC99653334CB4B159A53F94829DC
 magnet:?xt=urn:btih:9E92252D44021D7432A1F88A2CF2571FA6D0B435
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:9E92252D44021D7432A1F88A2CF2571FA6D0B435
 ```bash
 magnet:?xt=urn:btih:A7650A474FB7631F88648FA5184B8B77BC5BDB81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:A7650A474FB7631F88648FA5184B8B77BC5BDB81
 magnet:?xt=urn:btih:8A553A33E494988BCDF268D67089A2A0CA910F23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:8A553A33E494988BCDF268D67089A2A0CA910F23
 ```bash
 magnet:?xt=urn:btih:AA6AAEEB827B1B9FB9A24B1DA7A7E8CFB1885B54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:AA6AAEEB827B1B9FB9A24B1DA7A7E8CFB1885B54
 magnet:?xt=urn:btih:B907C44C3F000A481156E2FC9AF8245CF3D1562E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:B907C44C3F000A481156E2FC9AF8245CF3D1562E
 magnet:?xt=urn:btih:91A186F8D345F2DBE175FEDBAB0BE61620BB016E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:91A186F8D345F2DBE175FEDBAB0BE61620BB016E
 ```bash
 magnet:?xt=urn:btih:92EC928A65E642174D41B49B1825BCD5CFBBDD7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:92EC928A65E642174D41B49B1825BCD5CFBBDD7A
 magnet:?xt=urn:btih:0BC2FCB82B10A3DFE84F36EDC6B3C350D5C139D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:0BC2FCB82B10A3DFE84F36EDC6B3C350D5C139D7
 ```bash
 magnet:?xt=urn:btih:19B5FC9A8E5739E7B4B5C27246D8C4ACB24708A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +491,8 @@ BBC. Повернув время вспять. Семья / BBC. Turn Back Time:
 magnet:?xt=urn:btih:9064F13E18AE5759B6E6B7601004780357AD95A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:9064F13E18AE5759B6E6B7601004780357AD95A8
 ```bash
 magnet:?xt=urn:btih:9D4FD684FEC0C842B411C2F7BF07B35C5C33C52E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:9D4FD684FEC0C842B411C2F7BF07B35C5C33C52E
 magnet:?xt=urn:btih:FDDE688519DB9420E907341EB947C99A03EBC7E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:FDDE688519DB9420E907341EB947C99A03EBC7E2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:FDDE688519DB9420E907341EB947C99A03EBC7E2
 ```bash
 magnet:?xt=urn:btih:EBE39471A504543CF5D9CD5E9EE1744385AB4247
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:EBE39471A504543CF5D9CD5E9EE1744385AB4247
 magnet:?xt=urn:btih:498422C4F1AAD981B9FE85695CAF7BD8FC78FEC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +647,8 @@ Discovery: Гений авто-дизайна / Kindig Customs (2015) SATRip [H.
 ```bash
 magnet:?xt=urn:btih:8404490B78370356F7A5E30EADF0E0E3E5D3049A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:8404490B78370356F7A5E30EADF0E0E3E5D3049A
 magnet:?xt=urn:btih:C66BD7AB1E306BB9F23A9A23BC2610B7437BFA4A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556595   (558225) от 10.06.2022
-
-Вечер с Владимиром Соловьевым (09.06.2022) IPTVRip [H.264]
-
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558225.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Мы ставили задачу сделать программу для умного, неравнодушного зрителя, которая позволит обсуждать актуальные проблемы в разных форматах: от интервью "один на один" до "круглого стола". Надеемся, она будет такой же острой, как политическое ток-шоу "Поединок". Но если в "Поединке" сталкиваются две полярные точки зрения, (   Читать дальше...   )Телекомпания: РоссияЖанр: Политическое ток-шоуПродолжительность: 02:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80FD5FE2A23FE80B177DFE6EC95C062C8868C7BE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

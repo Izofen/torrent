@@ -19,6 +19,8 @@ Mafia II / Мафия 2 (2010) [Ru] (1.0.0.1/upd5/dlc/tr) Repack =nemos= [Enhanc
 magnet:?xt=urn:btih:6F641FAAF616665EDE1A09D0E31A0F4C6558D984
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:6F641FAAF616665EDE1A09D0E31A0F4C6558D984
 magnet:?xt=urn:btih:EC8F9224602AB737610CB3DBECD53A0C8619159C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:EC8F9224602AB737610CB3DBECD53A0C8619159C
 ```bash
 magnet:?xt=urn:btih:A7CAE2187C66CC260E51C39EC339791039BC9A3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Paragon NTFS for Mac® OS X стирает границы между систе�
 magnet:?xt=urn:btih:0CFACFFEDCDA32863D60B477A8F2AB906115EF1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ TNOD User & Password Finder – это программа, которая при
 ```bash
 magnet:?xt=urn:btih:6870E4D921D59F20C9F9285678C51BD0A574A2CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ CrossOver Linux 20.0.0 [x86-x64] (deb, rpm, bin)
 magnet:?xt=urn:btih:A916799D7F13C67BA8B7AD7DDCF3F2BC461078A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:A916799D7F13C67BA8B7AD7DDCF3F2BC461078A7
 ```bash
 magnet:?xt=urn:btih:D701C682D8A94BEA3BB01B45B04D8B53ADC4D6B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Far Cry 3 (Русификатор/1.0) [Ru] 2012 | Бука
 ```bash
 magnet:?xt=urn:btih:916F539DF3015FE23C450CF6BCE67F93ABA33B14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Mass Effect 3 — третья часть саги о войне органич�
 magnet:?xt=urn:btih:62E7C0FD70A103F1F9D0D67DE10BA961DD7BC5FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Need For Speed: Hot Pursuit – новая часть в серии безумн
 ```bash
 magnet:?xt=urn:btih:56A28DF5608EAF39A1B565C9535008977F667939
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Adobe Photoshop CC 2017 - это комплексное решение для п
 magnet:?xt=urn:btih:A54A4234ABE77D453ADAFE0DD85F877F089AC0DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:A54A4234ABE77D453ADAFE0DD85F877F089AC0DD
 ```bash
 magnet:?xt=urn:btih:8929832E3E279D05BBA0AF2C8ED2606B144C795F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:8929832E3E279D05BBA0AF2C8ED2606B144C795F
 magnet:?xt=urn:btih:499068FEF7DF9EC9F8E15FBBC7CFD468960673F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Assassin's Creed: Syndicate / Assassin's Creed: Синдикат (2015) [Ru] (1.
 ```bash
 magnet:?xt=urn:btih:9443E8BCFD0279C33019D38656A0D2BB857B7D2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:9443E8BCFD0279C33019D38656A0D2BB857B7D2B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Submarine Titans / Морские Титаны: Зов Глубин (2000) [Ru] 
 ```bash
 magnet:?xt=urn:btih:C891A8DFB485270A3B4439D84C3AB0601DE8E8DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Grand Theft Auto III / GTA 3 HQ (2002-2016) [Ru/Multi] (1.0/1.11) Repack/Mod Vas
 magnet:?xt=urn:btih:A2FA5DD8BF40A824AA8DCBFDC07E95E772A0C2F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 ```bash
 magnet:?xt=urn:btih:E30627716C465715DA299CF84F6778FE0C53E02D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:E30627716C465715DA299CF84F6778FE0C53E02D
 magnet:?xt=urn:btih:31E931263DA65355CC58A35897A03CB2F8915056
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Alien Shooter TD (2017) [Ru/En] (1.2.10) SteamRip R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:9B887EA473317DB183CECC7E5DDE5BF06CD95376
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:9B887EA473317DB183CECC7E5DDE5BF06CD95376
 magnet:?xt=urn:btih:2B14BC1577A7639009310CF570E3899F2701707C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Comodo Internet Security - бесплатное комплексное реше�
 ```bash
 magnet:?xt=urn:btih:BCBA4A0606F8D51DD164B4AEEA1DB6A4BC0FD895
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Nioh: Complete Edition — полное издание приключенчес�
 magnet:?xt=urn:btih:59EF9D68173DCFD6CB635AB75F8A062498356348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ After Effects CC — это ведущая в отрасли программа 
 ```bash
 magnet:?xt=urn:btih:177AC1DBDE4964E759F01C8B3A2A9064FC524194
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Adobe Illustrator — мощнейший инструмент для работ�
 magnet:?xt=urn:btih:5F65915A829C9F40907085E88BC4E75839DEF11B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2017 Redistributable Package Hybri
 ```bash
 magnet:?xt=urn:btih:EFAB72AE63F891D49300D6203B9755B8C1BEDB4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

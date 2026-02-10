@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:9A0ECF82FD0AF47E30693BB1309E9BDAC8724CC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:9A0ECF82FD0AF47E30693BB1309E9BDAC8724CC2
 ```bash
 magnet:?xt=urn:btih:ADA5519E18A9381D2A7860655FF508C80121419A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:ADA5519E18A9381D2A7860655FF508C80121419A
 magnet:?xt=urn:btih:2E1A521BCAF0E6B12A80CC85C139D9E7CC540FC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:2E1A521BCAF0E6B12A80CC85C139D9E7CC540FC7
 ```bash
 magnet:?xt=urn:btih:23910573704E7499A28D449F1EBF91C7C2B10327
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ moytrafic.ru | Конференция: Найди свой трафик (2016) H
 magnet:?xt=urn:btih:4D140FDC6CAD22B6FF4F8364C93090A7B1C34CE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:4D140FDC6CAD22B6FF4F8364C93090A7B1C34CE1
 ```bash
 magnet:?xt=urn:btih:C7DD0EC5F240FF6281C9E033E331B1DDF18FE784
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ gRPC - это новый современный фреймворк для соз
 magnet:?xt=urn:btih:CF5ADEBEC7608EB8B9136832BCFA7F3993FDE76D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:CF5ADEBEC7608EB8B9136832BCFA7F3993FDE76D
 ```bash
 magnet:?xt=urn:btih:802BBA3D462DF13DC792E92A946F066884587CA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ learn.nestjs.com | Основы NestJS / NestJS Fundamentals (2020) PCRec [En / 
 ```bash
 magnet:?xt=urn:btih:6A7C3A850B31A088DDD4BACAB12EFFCD64CF4D09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:6A7C3A850B31A088DDD4BACAB12EFFCD64CF4D09
 magnet:?xt=urn:btih:12710BD64BF7E8A3677FB99605704E6F88CCABBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ Sean Allen | iOS Dev Launchpad (2020) PCRec [En]
 magnet:?xt=urn:btih:49756D5FB537B5CCE53F64A60E3F1290C3A2194E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:49756D5FB537B5CCE53F64A60E3F1290C3A2194E
 magnet:?xt=urn:btih:0B2610367676D9C9FC224149D9B19E170F9440F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ JavaScript. Уровень 1
 ```bash
 magnet:?xt=urn:btih:139A335329A18BAC0AAE9B8E1E0C882B7CE395A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:139A335329A18BAC0AAE9B8E1E0C882B7CE395A7
 magnet:?xt=urn:btih:D322068E9437CDD748D6B349EA69D54D4CB825C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:D322068E9437CDD748D6B349EA69D54D4CB825C1
 ```bash
 magnet:?xt=urn:btih:5D6F05CAF6212B03D5B29C3BDCF392844540E2B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ Nathan Glemboski | Animating a Short Film in Maya and Unreal Engine (2015) PCRec
 magnet:?xt=urn:btih:EEADAEC9008D732FC1D997804D959009743B3971
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:EEADAEC9008D732FC1D997804D959009743B3971
 ```bash
 magnet:?xt=urn:btih:E05CA8F014AE09D56CCA7FADBB8EAEE587175F58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ Simon Payne | Creature Creators Handbook Volume 2 Part E (2012) PCRec
 magnet:?xt=urn:btih:A34A34BB14D782B5F2B12DCD32B6691BEE1B6370
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:A34A34BB14D782B5F2B12DCD32B6691BEE1B6370
 ```bash
 magnet:?xt=urn:btih:65603945D33BEF5B249C59F93D0CFFF58BFCBF88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:65603945D33BEF5B249C59F93D0CFFF58BFCBF88
 magnet:?xt=urn:btih:3D6A91CBF7D372337E86E19DA139C6CCB59AF0AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ Andrew Conroy | The Anatomy of an Expression for Facial Animation in Maya (2013)
 ```bash
 magnet:?xt=urn:btih:AA35F4B25010248533F7C784BDA5B5DE19306AB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ FXPHD.com | Introduction to After Effects Scripting (2010) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:976BAC4D0800FD8449E7533E0E14A442D34477D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ Skillbox | Как делать контент для YouTube (2020) CamRip
 ```bash
 magnet:?xt=urn:btih:4B6A3BADE8D09D8EE6D9C524318A7E0DAA5F65EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +643,8 @@ Figma – это самая перспективная программа для
 magnet:?xt=urn:btih:C7D5B8D3EDFE21A83C0530A60416EBB3F2FAD36B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ School.php | Пошаговое создание сайта от А до Я (д�
 ```bash
 magnet:?xt=urn:btih:BAD8D6F49EC2080A60DEE99ADE37E44ACDF2A0CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +697,8 @@ Udemy, Дмитрий Фокеев | Веб дизайн в Figma 2021 - с ну
 ```bash
 magnet:?xt=urn:btih:084C90C0A07F4C0701EDEFBD5FE21D2EE306F80D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Kontrust - madworld (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative meta
 magnet:?xt=urn:btih:B98D3AA255BE3F076D3A71373D0C23AA3C77F96E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ A4 - Reality Dream(   Читать дальше...   )Жанр: Progressive Rock
 ```bash
 magnet:?xt=urn:btih:CC86F13BDF95ABAEA3E89E7F2A4644B0592ABF43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Stratovarius — финская англоязычная пауэр-метал-�
 magnet:?xt=urn:btih:3779ED687AD3D9EBE0DCD07CD9905A7BB50A4421
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ In This Moment — американская группа, образованна
 ```bash
 magnet:?xt=urn:btih:70E9C98D858F5000466361A1FFC82009093AEC33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Electric Sun - Earthquake (1979) [FLAC|24/192|image + .cue|Vinyl-Rip] <Rock>
 magnet:?xt=urn:btih:EA8C75D52A4E3CE89DB5FF78902F2D5749B6C8CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ A4. Here We Go Again(   Читать дальше...   )Жанр: Blues Rock, Ha
 ```bash
 magnet:?xt=urn:btih:63AA4C8085F665DC3F5E96FEEEC2B7A9E4D0B2E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ B2. Hope(   Читать дальше...   )Жанр: Progressive Power MetalП�
 magnet:?xt=urn:btih:584311E08528C64FED8854D83F3CC5B28E56DACE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Saltpig - Saltpig (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Psych Stoner Doom/
 ```bash
 magnet:?xt=urn:btih:4C249F250338993B7BF692C0AC3140C9CA75576E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ A4 Free N' Easy = Свободно И Легко(   Читать дальше...
 magnet:?xt=urn:btih:B332C759FFC0F1C225F42B8BC2FC01E6B3C80480
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ Richard Wagner (1813 - 1883): Tannhäuser, WWV 70 - Paris version / Act 1:
 magnet:?xt=urn:btih:75D657D83388519FD0D42246E56D67DDEDEF28A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +311,8 @@ magnet:?xt=urn:btih:75D657D83388519FD0D42246E56D67DDEDEF28A8
 ```bash
 magnet:?xt=urn:btih:C5A3741CAC7E106A729D2B12BDF7660BD6A8663F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +342,8 @@ Fozzy — американская хэви-метал группа.
 magnet:?xt=urn:btih:46559443E0979F542F4D933AF84E9D407EA52E82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +370,8 @@ A2 Евгений Головин - Если Снится
 ```bash
 magnet:?xt=urn:btih:CA7D22189496E1CCE8E36D661D60FE6C3C44E893
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +400,8 @@ CD-1 (34:04)
 magnet:?xt=urn:btih:4459A0DE943680AD4F5845D64CAAC96AFBAEE041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +428,8 @@ Deep Purple - In Rock (1970) Remaster, 2018, Parlophone UK [FLAC 24/96|Lossless|
 ```bash
 magnet:?xt=urn:btih:479D1CEDC6633D138878ED1A1577BE57F4FA56E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +458,8 @@ Bolt Thrower — британская дэт-метал-группа, образ
 magnet:?xt=urn:btih:2F53D880D8944389925010ED692DC5015E458B4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +486,8 @@ Death - The Sound of Perseverance (1998) Reissue 2016, Relapse Records [FLAC|24/
 ```bash
 magnet:?xt=urn:btih:44A51D6968F01296F1D835CD65C7CF20A4114E75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +516,8 @@ Death - Individual Thought Patterns (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Death 
 magnet:?xt=urn:btih:B040AA3EDB20D562A9BB694C32B233F42913F468
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +544,8 @@ Death - Symbolic (1995) [FLAC|24/96|tracks|Vinyl-Rip] <Death Metal, Progressive 
 ```bash
 magnet:?xt=urn:btih:EECD267AEBFBE2A091DB17592F7B7E116F9CE14B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +574,8 @@ Nordic Union - Studio Albums (3 releases) (2016 - 2022) hand made [restored, dec
 magnet:?xt=urn:btih:9864A331F5B3E71184626604B124A9E0ACD6B449
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +602,8 @@ B2 Invisible Limits	11:38Жанр: Electronic, Ambient, Berlin-SchoolПродо�
 ```bash
 magnet:?xt=urn:btih:9988EF09DB2BA403F6D9AB26745AE208C6AF3A06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +632,8 @@ A4 Мария(   Читать дальше...   )Жанр: Hard RockПродол
 magnet:?xt=urn:btih:4B62B3000B55DB173E73E57C52489EBA47E8C4F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +660,8 @@ Tarja (Nightwish) - Studio Albums (5 releases) (2007 - 2019) hand made [restored
 ```bash
 magnet:?xt=urn:btih:781609E457EF84EA151F424B69C932A1EB30BBE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +690,8 @@ ZZ Top — культовая американская блюз-рок-груп�
 magnet:?xt=urn:btih:840F1C5C9B785A41B4DDB0A71C45C16FDAC70195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -671,6 +719,8 @@ Audioslave — супергруппа, состоявшая из бывших и
 magnet:?xt=urn:btih:81A4F82AD84BF0EB3C66DC0C808D4CC0E2CE0970
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +747,8 @@ Ghosts of Atlantis - Riddles of the Sycophants (2023) [FLAC 24/44.1|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:3B0F0AB8CC419EF6FD94D7E61A8C69B43B369684
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

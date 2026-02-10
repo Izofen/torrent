@@ -22,6 +22,8 @@ VA - Deep Ocean Escapes: Calming Waters, Blissful Sea, Ambient Relaxing, Ocean W
 magnet:?xt=urn:btih:60C532655918DE3081E0E54B9CFD6FB11268E68E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Celtic Voyage (2016) [MP3|320 Kbps] <New Age, Celtic, Folk, World>
 ```bash
 magnet:?xt=urn:btih:D71DCB04F7BA328304D9E1DDD9FC78729B1134D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Samuel Sim, VA - The Halcyon / Алкион (Original Music from the Television 
 magnet:?xt=urn:btih:9A10050EC48927144818811B74EA3498EAC786BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Ola Strandh - Tom Clancy's The Division Survival (Original Game Soundtrack) (201
 ```bash
 magnet:?xt=urn:btih:ABE36B725F3207A4C1B3965DC411A4C9F0ECE8DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Ola Strandh - Tom Clancy's The Division (Original Game Soundtrack) (2016) [MP3|3
 magnet:?xt=urn:btih:D5B338AC4AF168703D6B69D81E634F17DC7159A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Ola Strandh - Tom Clancy's The Division Survival (Original Game Soundtrack) (201
 ```bash
 magnet:?xt=urn:btih:16436D53A904EA6F1F023239F5ABA9B24B40EFCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Ola Strandh - Tom Clancy's The Division (Original Game Soundtrack) (2016) [FLAC|
 magnet:?xt=urn:btih:0DACCD869CE9C7D00ECEA4F36D087564F3538D15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Mehdi - Christmas Treasures II (2005) 2009, SoothingMusic [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:4007DB576F91C49C97336FCE1F375674FDAAB55A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Doyle W. Donehoo - Battlefleet Gothic Armada (2016) Gamerip [FLAC|Lossless|track
 magnet:?xt=urn:btih:2E824BE52A943351233A691CFDE7C4797B8FB2FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Andreas Vollenweider - Down to the Moon (1986) [FLAC|Lossless|tracks + .cue] <Ne
 ```bash
 magnet:?xt=urn:btih:03A22C00EF998AA85A4A7FF4EF996D7490D275D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Aenigmatica - Enigmatic (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Downtempo
 magnet:?xt=urn:btih:A7FB225874958CAE48F992A7DE825247218D1432
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Brian Tyler - Now You See Me 2 / Иллюзия обмана 2 (Original Motion 
 ```bash
 magnet:?xt=urn:btih:8D734CBC8CC082A022960D14D1227A9B89DB31A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Brian Tyler - Now You See Me 2 / Иллюзия обмана 2 (Original Motion 
 magnet:?xt=urn:btih:BEDBCB21C4D32E23E87DD1808CB27309A6724755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Mark Mancina, VA - Moana / Моана (Оригинальный саундтре
 ```bash
 magnet:?xt=urn:btih:FC844DABD9D997E66CEC77949CB26AD0945EE33D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ CD1:
 magnet:?xt=urn:btih:3C03D36AC745BB7EC865013883415CFD8B19EE2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ magnet:?xt=urn:btih:3C03D36AC745BB7EC865013883415CFD8B19EE2E
 ```bash
 magnet:?xt=urn:btih:598A14291FD9371694DC00FA62DD8307E6519BF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ VA - The Young Pope / Молодой Папа (Unofficial Soundtrack) (2016) [MP
 magnet:?xt=urn:btih:CBA5A88CBFF584AC13F5BA55E5582C33DADAEACE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ David Arnold and Michael Price - Sherlock / Шерлок (Collection Original Te
 ```bash
 magnet:?xt=urn:btih:E2E03AE893A3206B585512BE855DD41598E85CF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ Cliff Carpenter - 6 альбомов (1972-1983) LP-Rip [MP3|320 Kbps] <Pop, Ins
 magnet:?xt=urn:btih:152D00B5996DAFAE04D8F99477078A2BBEE7DE09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ Benjamin Wallfisch - A Cure for Wellness / Лекарство от здоров�
 ```bash
 magnet:?xt=urn:btih:625CDE32AE61D8E25C3377E01810ADB49687E00D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +599,8 @@ magnet:?xt=urn:btih:625CDE32AE61D8E25C3377E01810ADB49687E00D
 magnet:?xt=urn:btih:EEE31549499C5DF3AF6297F5F7FBA7C32B99DC97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +627,8 @@ David Arnold and Michael Price - Sherlock / Шерлок (Collection Original Te
 ```bash
 magnet:?xt=urn:btih:0EEFD027677F901F12DB02BDEA332E5B8D19E4B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +657,8 @@ Nick Cave & Warren Ellis - Hell or High Water / Любой ценой (Original 
 magnet:?xt=urn:btih:329E673917768170466EA41A9242B4FB551A3EF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +685,8 @@ Benjamin Wallfisch - A Cure for Wellness / Лекарство от здоров�
 ```bash
 magnet:?xt=urn:btih:3DC7E4F69ED6865D7F0805897EBD5B8570FF8635
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +715,8 @@ magnet:?xt=urn:btih:3DC7E4F69ED6865D7F0805897EBD5B8570FF8635
 magnet:?xt=urn:btih:CDFBE0B6BC1923465DC191C5557EA5C02073315B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ Mars Lasar - Utopia (2017) [MP3|320 Kbps] <New Age, Ambient, Chillout>
 ```bash
 magnet:?xt=urn:btih:F3E9901E9BA12A02E943C462313974BEF4EF18F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

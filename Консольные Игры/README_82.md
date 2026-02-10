@@ -19,6 +19,8 @@ Mercenaries: Playground of Destruction (2005) [PS3] [USA] 4.85 [HEN / CFW] [Repa
 magnet:?xt=urn:btih:E735BCBE913C5F7B44820D03AA7CAB535BEF7A51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ God of War II (2007) [PS4] [EUR] 5.05 [HEN] [License] [Ru/En]
 ```bash
 magnet:?xt=urn:btih:C601C66E48A1C3B31FE88B0A5D39A7BBB7B1D914
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Hyper Light Drifter (2016) [PS4] [EUR] 5.05 [HEN] [License/1.03] [Ru/Multi]
 magnet:?xt=urn:btih:3076ADBD8B48B638C295B4EE1DEEA449A976E81A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Terminator 2D: NO FATE (2025) [Switch] [USA] 20.5.0, Atmosphere 1.9.5 [License] 
 magnet:?xt=urn:btih:218FD8B4344B15B7B72F18598F384803AA77C534
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Spectaculator 9 - это новейшая версия популярного э
 ```bash
 magnet:?xt=urn:btih:30CBD7B9C67A4CD273F3A4DAD22D929345209B5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

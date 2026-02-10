@@ -22,6 +22,8 @@ Richard Evans - Exhale (2013) Avalon Records [FLAC|Lossless|WEB-DL|tracks] <New 
 magnet:?xt=urn:btih:CB769BCDBA2AA1F1B967FF983C28F8F54E77A3CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Wychazel - Cloud Forest Temple (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:E7B4B5AB31340CE8B0C6FC2E917763547F0588A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Adiemus - Дискография (1995 - 2006) [FLAC|Lossless]<New Age>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ From Nashville with Love (1966)
 magnet:?xt=urn:btih:EE241779760CDBF30B67CFA31AB1AAC465D3191B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ Urferd - Resan (2022) [FLAC|Lossless|WEB-DL|tracks] <Nordic Folk, Ambient>
 ```bash
 magnet:?xt=urn:btih:C235C762652BB5253CF0BE251435A4EA05E1E60B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +173,8 @@ magnet:?xt=urn:btih:C235C762652BB5253CF0BE251435A4EA05E1E60B
 magnet:?xt=urn:btih:8FB6FA2B18CCD9D3FFA653A6AA9F3E7708D866F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +207,8 @@ Mesa Music Consort & Native Flute Ensemble - Wind Riders (2001) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:1B547D63A94F08C394491D1925A04E66C942F1C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +243,8 @@ Grupo Contraste - Native Voice (2004) [MP3|320 кб/с]<Native American, Ethno, 
 magnet:?xt=urn:btih:A95BB4968BA8780F05758578AF4E3D3E5C50D634
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +271,8 @@ Faun - XV - Best Of (2018) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pagan, 
 ```bash
 magnet:?xt=urn:btih:93A480B5324D7CC711002FE2CF7E764CBEA211B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +301,8 @@ Arnaud Rebotini - Curiosa (Bande originale du film) (2019) [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:7ADACAF335D1A847BEFEEE1FD581D6EA5D4DEBB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +329,8 @@ Hennie Bekker - Beyond Dreams - Pathways to Deep Relaxation (2016) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:036D0AE4D761985CB99DE541D8CFA8E33583D401
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +359,8 @@ VA - Now That's What I Call Country Vol 12 (2019) (2019) [MP3|320 Kbps] <Country
 magnet:?xt=urn:btih:8E82DA767B8FBC513C040C653624BED60AF37505
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +388,8 @@ Lorne Balfe - Terminator Genisys (2015) [MP3|320 кб/с]<Soundtrack>
 magnet:?xt=urn:btih:352A50B777CB64B5CF21765E73AB44EEB08B10FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +416,8 @@ Medwyn Goodall - Great Spirit 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:BDE70A7E920116497E99BECD9E4AAA37F69D88B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +452,8 @@ Nicolae Botgros si Orchestra Lautarii / Николай Ботгрос и Орк�
 magnet:?xt=urn:btih:C29FF5CCD20712A62C35562CD850B001E55B6392
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +487,8 @@ Hans Zimmer - The Dark Knight Rises / Тёмный Рыцарь: Возрожд�
 magnet:?xt=urn:btih:D981C168F534178FFF5CE3907C36864072E86B5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +516,8 @@ Disc 1
 magnet:?xt=urn:btih:2228D8D2D1EE4DC4F0E72A9C1BA69A606B978AD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +544,8 @@ Faun - Pagan (2022) [MP3|320 Kbps] <Folk, Medieval>
 ```bash
 magnet:?xt=urn:btih:E3195FBE49930C2A89AF845AB9AA7017A2CFB09D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +580,8 @@ VA - Chillout Best Session (2008) [MP3|320 kbps]<Electronic, ChillOut, Ambient, 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +608,8 @@ Claude Ciari - La Playa (Platinum Best)2CD (2013) [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:3490671A0FEFACC12BBF38EE5163032D447FD1E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +638,8 @@ VA - Phenomena (1985/1997) 2CD [MP3|320 Kbps] <OST>
 magnet:?xt=urn:btih:A5A5231D247AA17CED7DA0AF0AADDE53AA300637
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +667,8 @@ Jean Michel Jarre - The Best Of (2015) [MP3|320 кб/с]<New Age, Electronic, Am
 magnet:?xt=urn:btih:060B9B0D06C6BAD2E7A256097B7CD50C4E0F274E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +695,8 @@ Rhonda Mackert - Time Not Forgotten (2018) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 ```bash
 magnet:?xt=urn:btih:395C364B4833C72BFC690B01B0CB03BD9866CD1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -685,6 +731,8 @@ Alex Clare - The Lateness of the Hour (2011) [FLAC|Lossless]<Soul/Pop/Dubstep>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -708,6 +756,8 @@ VA - Classic Love At The Movies (2011) [FLAC|Lossless]<Classical, Pop, Rock, Sta
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -741,6 +791,8 @@ VA - Relax. The Fragrance of Fonix Musik /4CD/ (2010) [MP3|256 kbps]<Relax, Chil
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

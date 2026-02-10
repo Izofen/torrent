@@ -20,6 +20,8 @@ TrayStatus - небольшая утилита для индикации в си
 magnet:?xt=urn:btih:99D7A60FFC2F642EFB15C02B40969413D841C01A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Black Hammer Voodoo - The Year of the Rat (2021) [MP3|320 Kbps] <Blues Rock, Har
 ```bash
 magnet:?xt=urn:btih:D6E419123EFC9F1EEB2961D4667D52F3BE2BA32A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ The Veer Union - Manifestations (2022) Deluxe edition [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:7460153399C6C2AC3DEF46BAD503C3900497FA57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:7460153399C6C2AC3DEF46BAD503C3900497FA57
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Schoolism, Jonathan Hardesty | Essentials of Realism (2016) PCRec [EN, RU]
 magnet:?xt=urn:btih:00B714EAEA6385BC06F842876A7571015C71E1A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ Ryan Neville and The Midnight Blues Band - Fire on the Tracks (2020) [FLAC|Lossl
 magnet:?xt=urn:btih:F484EB3857226B3BC9191FF014C884BA72AD4880
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:F484EB3857226B3BC9191FF014C884BA72AD4880
 magnet:?xt=urn:btih:6F0FF67F8C8DA8B7A241D38DDC57C76C9040C45D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:6F0FF67F8C8DA8B7A241D38DDC57C76C9040C45D
 ```bash
 magnet:?xt=urn:btih:47CCD16B877D22738314C3921B76ABC2E1916987
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:47CCD16B877D22738314C3921B76ABC2E1916987
 magnet:?xt=urn:btih:FC281CE538510189B35443648CB32DE72322BE21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ Video Converter Ultimate не только является совместимы
 ```bash
 magnet:?xt=urn:btih:9EDC15838DF497AC4145C549E808E59F7668BA9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:9EDC15838DF497AC4145C549E808E59F7668BA9B
 magnet:?xt=urn:btih:B9990D4AF64369F61F5C65F3ECDB05277BB86478
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ AirFoil – специальное программное обеспечение
 ```bash
 magnet:?xt=urn:btih:8B58F7DE0124168447BACF0884AAFDD301BD928C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:8B58F7DE0124168447BACF0884AAFDD301BD928C
 magnet:?xt=urn:btih:EA9F27E7C75F6B59FE34CE86FCA97134010D7B08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:EA9F27E7C75F6B59FE34CE86FCA97134010D7B08
 ```bash
 magnet:?xt=urn:btih:950503CE5496A08D8D0EFFAF9E649A8343F3B458
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ VA - Новогодняя шансонная-20...06 (2005) [FLAC|Lossless|track
 magnet:?xt=urn:btih:568572AE44686BB3E61677631D84DE44686B3A40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ KkartSchool, Карина Кино | Создание книги (2023) WEB-DL [
 ```bash
 magnet:?xt=urn:btih:BD5C3F8AF192568509EFFAFE3A01E3BFE3433734
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:BD5C3F8AF192568509EFFAFE3A01E3BFE3433734
 magnet:?xt=urn:btih:D5D59B0DBE0455D35783B8FEA704C524F777472F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ QLab - Мощный инструмент для создания и провед
 ```bash
 magnet:?xt=urn:btih:18998DDA557263F979D6B26406F8C62740150991
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:18998DDA557263F979D6B26406F8C62740150991
 magnet:?xt=urn:btih:E73A14BC3A4248EE45C555CC198A303FE4529254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:E73A14BC3A4248EE45C555CC198A303FE4529254
 magnet:?xt=urn:btih:359BF3975CAAD00C9160EEEF385F7AA39D72943A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:B804FDB9D9B21376E0ADFC0470C0C0C21881F92D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:B804FDB9D9B21376E0ADFC0470C0C0C21881F92D
 magnet:?xt=urn:btih:E80607965F406B17E08E153B08260178D161F135
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:E80607965F406B17E08E153B08260178D161F135
 ```bash
 magnet:?xt=urn:btih:D76A8C94BD2B7B955A728DCA9528AA225ACB58D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +641,8 @@ magnet:?xt=urn:btih:D76A8C94BD2B7B955A728DCA9528AA225ACB58D5
 magnet:?xt=urn:btih:7E54DAFCC9EC4D6960CCB1E44F2CB049E14EB363
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ magnet:?xt=urn:btih:7E54DAFCC9EC4D6960CCB1E44F2CB049E14EB363
 magnet:?xt=urn:btih:A0C4F5AE67B331CD22BCFADEBAE8D2C0ADFBD9C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:A0C4F5AE67B331CD22BCFADEBAE8D2C0ADFBD9C0
 ```bash
 magnet:?xt=urn:btih:BCDAF1CEF6275002D1F11E86C2A1A998486E4D14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

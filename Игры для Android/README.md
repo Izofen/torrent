@@ -20,6 +20,8 @@ https://t.me/izofen
 magnet:?xt=urn:btih:568A30989898B3D0272C3E957399CA8831F4B10B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Pro Pilkki 2 / Зимняя рыбалка v2.0.7 Mod by ShiroAndShuvi [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:179A011759F60E71B5E0B6D92665FE6AEC89DF58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:179A011759F60E71B5E0B6D92665FE6AEC89DF58
 magnet:?xt=urn:btih:B7C2EB17120015A03DB062B688E77FACA99B1472
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Real Fishing / Настоящая Рыбалка v0.0.71 Mod by vadj [Ru/En]
 magnet:?xt=urn:btih:5F96AE43C7780FBDC706B9DEC67E196746930482
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:5F96AE43C7780FBDC706B9DEC67E196746930482
 ```bash
 magnet:?xt=urn:btih:347E5804FC776A68D7105B46A6E54DC7DFA77CEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:347E5804FC776A68D7105B46A6E54DC7DFA77CEB
 magnet:?xt=urn:btih:A236B8C40F05750CD30057972857AB6F3005B65E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Zoo Match / Три в Ряд: Зоопарк и Животные v1.8.8 Mod by v
 magnet:?xt=urn:btih:0C161963A7437781F221E36A81FB19A5D2E80A67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ GRID Legends: Deluxe Edition v1.1.4RC7 [Ru/Multi]
 magnet:?xt=urn:btih:C5113B263249C416F41587F68672BE424EC91ACF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ BubbleGame v1.1 [En]
 ```bash
 magnet:?xt=urn:btih:E0D61D6198927F6502D6C7AE4D6C21F46F16E01F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ Reanimation Inc. Скорая Помощь - surgeon simulator , играй в �
 magnet:?xt=urn:btih:220AF9A95EB0FAF431D8A5A27F47AF8025ABC2D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ Darts Club – это многопользовательская игра в д�
 ```bash
 magnet:?xt=urn:btih:169ADA6F524667F125D4817C90ECC03F39B6CEA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ Garage: Bad Dream Adventure v1.1.263 [En]
 magnet:?xt=urn:btih:B747AF3ACC372E575C6C6248118F43204DEEAA2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ Through the Darkest of Times v1.0.18 [Ru]
 magnet:?xt=urn:btih:C1F747ECDC9858009E1D25F78767E9A7B0F81581
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ Sunset Hills v1.0.22 [En]
 ```bash
 magnet:?xt=urn:btih:6ED32FE3D8156140D608BE54A79C9E9126C08514
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ Brave People WW2 Point & click / Храбрые люди vBuild 265 [Ru]
 magnet:?xt=urn:btih:4BFF935AD080A3118360F9ED962F29AE3318D601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ Voodoo Detective v0.0.33 [En]
 ```bash
 magnet:?xt=urn:btih:37E288F2C15201BAD67D8A8BAE577E35960CC822
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ TMNT: Shredder's Revenge v1.2.15 [En]
 magnet:?xt=urn:btih:E356290A375052719DF268E8A1C946BB695FE236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ Eastern Exorcist — потрясающая 2D-ролевая игра с бок
 ```bash
 magnet:?xt=urn:btih:E82932B22F62AD493EA1B4F5F8EC0B3086FD81CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ Way of the Hunter Wild America v1.0.1 [Ru]
 magnet:?xt=urn:btih:27A6CC9F051A91B5F5D50EB86A3612C32592AADB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ Follow the meaning v1.1.39 [En]
 ```bash
 magnet:?xt=urn:btih:36AE81FBFEB327F5C5203DF9642CA4F373E6C025
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ Cuphead — это по-настоящему «классический» пла
 magnet:?xt=urn:btih:0C78E18C5A989AE132AE5A98439B34B921950D02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ Timelie v1.0.2 Mod by LITEAPKS [Ru]
 magnet:?xt=urn:btih:D8DF4CA7C2EE7418FBB718C48371C8B80D01C3C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ Zen Life: игры с плитками v3.258 Mod by Viktorovich31 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1CF4D0AC2E560B45827A2AB7545DF8347466F495
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ Ocean Match / Рыбки: Три в ряд v3.1.3 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:E28F9D2A5443BD1AD8AE70F86F522F4A078ED1E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ Crashlands 2 v100.1.407 [Ru]
 ```bash
 magnet:?xt=urn:btih:7FF8E90394196F1548194EB616A1CA02C186579F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +688,8 @@ ML5 также работает с устройствами с клавиату�
 ```bash
 magnet:?xt=urn:btih:BEC20246BB1A5195063591FE581790FFE9D4D06F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

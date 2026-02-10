@@ -19,6 +19,8 @@ Aiseesoft Blu-ray Player - универсальный в работе "все в
 magnet:?xt=urn:btih:289BA62436BD9A4009185125FD09140BEAAF6045
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ RedNotebook - это простое GTK+ / Gnome приложение напис
 ```bash
 magnet:?xt=urn:btih:5BF7530253090ACBE03B30225D0ECE5860499CE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Double Commander - это свободный, с открытым исходны
 magnet:?xt=urn:btih:C33141D3A39A6604B139BF289BF66DBDFAEF9EFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Alt SwitchER - программа для автоматического испр
 magnet:?xt=urn:btih:332CD9ACACFA779573E9288496279892B6B6DF87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ WindowManager - программа от разработчиков EarthView и 
 ```bash
 magnet:?xt=urn:btih:FF0E0114F1E2D54FBCDD2B55202E5AB686D9D81F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:CBB7FA2C3F8BE4816F6615C3AC2BF568805D726D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 magnet:?xt=urn:btih:B54A51722AAE05F6B778A5CA15D8366F38A7D5A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ InPixio Photo Focus предлагает особые инструменты, ч
 ```bash
 magnet:?xt=urn:btih:A2B9A417832E493B5EC6ED3251A57A5665C879E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Media Player Classic - BE – универсальный проигрывате�
 magnet:?xt=urn:btih:4D25652E3172988306C5D7622B84711916B4B77B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:386379C183E378BCB90E4BA42C0326ADC2392A6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Acrobat Pro — это полностью обновленная настоль�
 magnet:?xt=urn:btih:B084885E1853069573021A0E0DAA7D6A938957D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:7921F50E530FB2334EC72D0E94EEC250E067FA83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ uTorrent Pro 3.6.0 Build 47082 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 magnet:?xt=urn:btih:89D271D1D786F763A990A7D0B66F7F09C581872A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ PassMark RAMMon - удобная и полезная утилита для по�
 ```bash
 magnet:?xt=urn:btih:6C5EB9955F92387FB40D8B1634BC18418EAD1785
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Atlantis Word Processor 4.3.9.4 Repack (& Portable) by elchupacabra [Ru/En]
 magnet:?xt=urn:btih:4A83F24ED30E80F5BB16A2DEF7D15BFF61193BCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ TikTok - социальное приложение для тех кто пред
 ```bash
 magnet:?xt=urn:btih:772C47D4D4C3908F5CED3FCDEA2ADF1BAE310768
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Busuu - популярный и востребованный проект для
 magnet:?xt=urn:btih:C903A529B12A4D8B25BC3E482FB0857C4DF9EBC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Freemake Video Converter - это бесплатное универсально�
 ```bash
 magnet:?xt=urn:btih:718C1CA377DD85F389A415625131385A62CA2C00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Affinity Designer — самое быстрое, удобное и точное 
 magnet:?xt=urn:btih:3D1855A38C42635C5881018DA6E8023AFA78FA79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ AyuGram - это клиент телеграмма, основанный на ex
 ```bash
 magnet:?xt=urn:btih:BBBE9DA689E60DA75E8F40781D16E52C2BC52DE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 magnet:?xt=urn:btih:2AB9C873964C01B1719975C1620035E0E7957B92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ GIMP — это редактор, позволяющий работать со �
 ```bash
 magnet:?xt=urn:btih:CA83B7F93BFF28DA50C0FC6168DAF27835163179
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ FurMark 2 является преемником почтенного FurMark 1..
 magnet:?xt=urn:btih:607D97A5D662E9CC34659733F157C63EED5C3066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ R-Studio - основанная на новейшей уникальной те
 ```bash
 magnet:?xt=urn:btih:A7A835442EFDE14D2FE9E1E838A2B2DB0E72D069
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ Sound Normalizer - звуковой нормализатор звука, пре�
 magnet:?xt=urn:btih:8F05DC0434EE9AEC1A312726603FC47332E0D15C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ System software for Windows v.3.5.9 [Ru]
 ```bash
 magnet:?xt=urn:btih:83565D719B9483219F863EC6D50087C27368ED93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

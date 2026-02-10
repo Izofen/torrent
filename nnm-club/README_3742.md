@@ -19,6 +19,8 @@ Horary Chart / Астрология: Хорарная Карта v3.1.1 [Ru/Mult
 magnet:?xt=urn:btih:245556024EC3F26286F9CC27CD3C67A15085F065
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:245556024EC3F26286F9CC27CD3C67A15085F065
 ```bash
 magnet:?xt=urn:btih:EAF55A0442522DFD29E80F34231CDACB9E40E1B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:EAF55A0442522DFD29E80F34231CDACB9E40E1B1
 magnet:?xt=urn:btih:512315E5FE5EAC22BF1F2C3CB772E0C7C905EB61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:512315E5FE5EAC22BF1F2C3CB772E0C7C905EB61
 ```bash
 magnet:?xt=urn:btih:4C959A9312711861959612294ED6C8FE57CCF1EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Subtronics - Tesseract (2024) [FLAC|Lossless|WEB-DL|tracks] <Dirty Dubstep, Trap
 magnet:?xt=urn:btih:9CB52D2ABE69A55EA560C0182CAE9F769C3956C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ VA - Rock Hits - women and men who know how to rock - 2024 (2024) [FLAC|Lossless
 magnet:?xt=urn:btih:18D2E1BF34CD0E22819E206025701C9426144FF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:18D2E1BF34CD0E22819E206025701C9426144FF1
 magnet:?xt=urn:btih:9F3F7E1678F96694D7F920F4A6E50A8336871119
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:9F3F7E1678F96694D7F920F4A6E50A8336871119
 ```bash
 magnet:?xt=urn:btih:FCB5FF19F176199875C7923B99FA7DFC99AE8A44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Blooming Discord - Memories From The Future (2024) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:E9FE4A61419A5046BF5D0BAAA359BFC57E798FDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:E9FE4A61419A5046BF5D0BAAA359BFC57E798FDD
 magnet:?xt=urn:btih:50BCD19DA193B9B7F23C2274705AFC106A11DCA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ Gumroad, Eric Huang | 3D PBR Sci-Fi Corridor Tutorial For Game Production (2019)
 ```bash
 magnet:?xt=urn:btih:321A83D31A26367B13A9717403F364748B77F3D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ Boris Blank(Yello) - Resonance (2024) [FLAC|Lossless|WEB-DL|tracks] <Ambient, El
 magnet:?xt=urn:btih:10BF208578139B92A54FEEC2AD7973AADFFE09FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ DICE | Артбук по игре Battlefield V / The Art of Battlefield V (2018
 magnet:?xt=urn:btih:F36BAC9A18C0595543037BAD2DF349A302137AD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:F36BAC9A18C0595543037BAD2DF349A302137AD1
 magnet:?xt=urn:btih:6C2FD9C9F46665D62DAFC1E363C14748C44B1655
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:6C2FD9C9F46665D62DAFC1E363C14748C44B1655
 ```bash
 magnet:?xt=urn:btih:ECA8E5A5634B5716DEEE113185D37EA7685812BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ DICE | Артбук по игре Battlefield 3 / Battlefield 3 - Premium Concep
 magnet:?xt=urn:btih:F2A86FB8B8AEC87A712222E7441D379DB99C5665
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:F2A86FB8B8AEC87A712222E7441D379DB99C5665
 magnet:?xt=urn:btih:DAEC85AD97C6426857F44670DA64F6A0325C42EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:94375DAC855FAF723584936A772907BB9EA5ED2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ Sense Flip Clock & Weather v6.51.0 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:B77AE030133E279C39BD1874EB934252506E3213
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:B77AE030133E279C39BD1874EB934252506E3213
 magnet:?xt=urn:btih:A1E7316CCD0648A5089A67F54FCA6A1687A33C41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:A1E7316CCD0648A5089A67F54FCA6A1687A33C41
 ```bash
 magnet:?xt=urn:btih:A7C714083530FFD9D12787DFA55D082CEE1A3F18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ VA - 100% Rock - Rock Hits - From Classic Rock to Metal (2024) [FLAC|Lossless|WE
 magnet:?xt=urn:btih:B172B924AEED44AE189C02875A86B7C24B8465CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:B172B924AEED44AE189C02875A86B7C24B8465CB
 ```bash
 magnet:?xt=urn:btih:33BA2D4557457D8A5C43EECD8EE113773A13E63E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ DesktopDigitalClock - простые и красивые цифровые час
 magnet:?xt=urn:btih:14DD6518C52C5C15DAECC92DF787B7FC7E3D9CB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:14DD6518C52C5C15DAECC92DF787B7FC7E3D9CB2
 ```bash
 magnet:?xt=urn:btih:3CCCB42DEF5CA9A90E772127282C48015EE28ABE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +690,8 @@ magnet:?xt=urn:btih:3CCCB42DEF5CA9A90E772127282C48015EE28ABE
 ```bash
 magnet:?xt=urn:btih:3DA969D4379747C78201F059DEBF4F6387D9C915
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

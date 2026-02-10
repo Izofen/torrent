@@ -28,6 +28,8 @@ VA - Лучшая Майская Вечеринка (2012) [MP3|256 кб/с]<Pop
 magnet:?xt=urn:btih:B331D425AB0B3B98A6F811FA5EADC7CFFA0219BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ VA - German TOP 100 Single Charts (10.05.2012) [MP3|152-312 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:20F46FD83F6406C7F4BE4A06A2996CB060B578AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ VA - Самый Модный Молодежный Хит (2012) [MP3|256 кб/с
 magnet:?xt=urn:btih:677E2B36336FB44F7DBF2CF84BE6346D5AC29B3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +132,8 @@ VA - Playbox На Европе Плюс (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:340DE51E6C746FFB8F7B82E90E7E8074316EB731
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +168,8 @@ VA - Hot Summer Hits (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:009F25857CDA485F7E72437118ABCF215D092BC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +203,8 @@ VA - Союз Super Dance (2012) [MP3|256 кб/с]<Pop,Dance>
 magnet:?xt=urn:btih:BFC1FB459E83E1FEC3A5739135CC1533C26AD051
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +229,8 @@ VA - The Official UK Top 40 Singles Chart (13-05-2012) [MP3|320 кб/с]<Pop, Ro
 magnet:?xt=urn:btih:34465FAA5D1A4F6815E074D0465FED39EFFB6C63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +254,8 @@ VA - The Best Singles Of All Time (2008) [MP3|320 кб/с]<Pop, Rock, Oldies>
 ```bash
 magnet:?xt=urn:btih:84C9B92B1212480B2E86AF8D56B94DDC95B38BB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +290,8 @@ VA - Хитовый Рай Версия 50/50 (2012) [MP3|256 кб/с]<Pop,Dance
 magnet:?xt=urn:btih:0137EC1169C906B160A76A80D10D625838FFBA57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +324,8 @@ VA - Лучшие Хиты Диско Золотые 80-е (2012) [MP3|128 кб/
 ```bash
 magnet:?xt=urn:btih:8CAF1493DEA873A4597CFD531BA33D8BE8F017EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +360,8 @@ VA - Летний Союз Новинок 50\50 (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:1E9FAD8AF793519D8A487B09484AE02729EE80F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +389,8 @@ Romantic Dreams - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Italodisco,
 magnet:?xt=urn:btih:3021706E7A14603F2FA0522D49211EA67CBC3733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +417,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:7660953A1C94B1E6CFD2E9CE2E45B77ABE0CC7DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +453,8 @@ VA - Музыкальные летние хиты (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:6368C688259339555DE146404CA966A51F2E1975
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +487,8 @@ VA - Euro Football Cup 2012. The Super Goal Compilation (2012) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:70C9B9620F4DC13367DD117A5D5A98E1A4CDFEDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +523,8 @@ VA - Сборник классных хитов (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:AF96D1A10DC6FB1EA43EA758CB57235D1BAAB04C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +551,8 @@ Smtve - Favorites Collection (2025) [MP3|320 Kbps] <Romantic / Cinematic Pop>
 ```bash
 magnet:?xt=urn:btih:A00685F5EBFC73E94F483E1B37A7E75EDC494DE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +581,8 @@ Reyvi - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:1AE909AF1AA7307F88C2700BB2CF89523F857004
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +609,8 @@ Romantic Dreams - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Italodisco,
 ```bash
 magnet:?xt=urn:btih:A155683C60A3DDE3157160E4C229781C79BA5752
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +645,8 @@ VA - Классный Muzon Best Hits (2012) [MP3|192-320 кб/с]<Pop>
 magnet:?xt=urn:btih:39A346E88933CC98F99066CCC47A46E6037FCB2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +679,8 @@ VA - Авто хит. Динамит 101.2 FM (2012) [MP3|256 кб/с]<Pop, Danc
 ```bash
 magnet:?xt=urn:btih:4A8157A7C0217A88F583A0D3559EEC6660FAD1EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +715,8 @@ VA - The Official UK Top 40 Singles Chart (20.05.2012) [MP3|320 кб/с]<Рop, R
 magnet:?xt=urn:btih:3BB20B8CC43D12E13231E0F4037ABDA5FEC48B3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -705,6 +749,8 @@ VA - Лучшая 200ка: Самая модная Русский (2012) [MP3|12
 ```bash
 magnet:?xt=urn:btih:65541BCB95EF0B11F92F31C5B82363AA1945C1E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -739,6 +785,8 @@ VA - The Official UK Top 40 Singles Chart (27.05.2012) [MP3|320 кб/с]<Рop, R
 magnet:?xt=urn:btih:F399606FBA455C987AE7F83FB2E9573EDD579E85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -772,6 +820,8 @@ VA - Союз Летних Хитов Лучшая 200-ка 50/50 (2012) [MP3|12
 magnet:?xt=urn:btih:352DE84406CB3469EAE2C36DFFBD24D1A6E51963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -798,6 +848,8 @@ Aurum Project - Collection (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
 ```bash
 magnet:?xt=urn:btih:292E29DDC97D6BC1016D8AE47891C372423445BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

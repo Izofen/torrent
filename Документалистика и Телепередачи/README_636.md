@@ -1,3 +1,29 @@
+###  Публикация: 1001521   (853382) от 28.03.2016
+
+Без обмана. Змеиный супчик (2016.03.28) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это масштабное потребительское расследование, задача которого дать зрителям подробные советы, как не попасть в неприятности за собственные деньги. В центре программы оказываются самые разные товары и услуги потребительского рынка, их "судят" авторитетные эксперты и рядовые люди. Корреспонденты программы часто выступают в роли тайных агентов, внедряющихся (   Читать дальше...   )Производство: РоссияТелекомпания: ТВЦЖанр: Документальный, расследованиеСубтитры: ОтсутствуютПродолжительность: ~ 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DCF9522594DCBB316F898D4CAB928BEDB55F7DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377411   (853423) от 21.04.2020
 
 Берег хищников / The Predator Coast (2012) WEB-DL [H.264/1080p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:E44FFE532604770D72E0D46B7F5063AAD64746B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:E44FFE532604770D72E0D46B7F5063AAD64746B4
 ```bash
 magnet:?xt=urn:btih:BC38A490917128D23E0D5CA991ECBE6D60951CA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:BC38A490917128D23E0D5CA991ECBE6D60951CA5
 magnet:?xt=urn:btih:855E69E237F811945A9B65EEDF646C385A262E9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:855E69E237F811945A9B65EEDF646C385A262E9B
 magnet:?xt=urn:btih:68BA7C68190B77E3D0D2DB14600C0840012EF6A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:68BA7C68190B77E3D0D2DB14600C0840012EF6A7
 ```bash
 magnet:?xt=urn:btih:119A066650E84A7D0EE77C8AA10FA5BDA82DFAFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:119A066650E84A7D0EE77C8AA10FA5BDA82DFAFA
 magnet:?xt=urn:btih:65B1A34589D9E0488902FF31D92B1662699FE522
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:65B1A34589D9E0488902FF31D92B1662699FE522
 ```bash
 magnet:?xt=urn:btih:103E1B5EB034083B951A06AF37D200C09F8C0C9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:103E1B5EB034083B951A06AF37D200C09F8C0C9C
 magnet:?xt=urn:btih:55B333F5FBC8B9ACB687E9ECC98C60E78567483D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:55B333F5FBC8B9ACB687E9ECC98C60E78567483D
 ```bash
 magnet:?xt=urn:btih:6097E48D8AAEB2DCA40BFD67D849342364CF36BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:6097E48D8AAEB2DCA40BFD67D849342364CF36BF
 magnet:?xt=urn:btih:A83F148BC713122182A14CC5001B7F2EDA8D12A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:A83F148BC713122182A14CC5001B7F2EDA8D12A1
 ```bash
 magnet:?xt=urn:btih:FBCEAA856CB30ACE278C200A362606D10D62009F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:FBCEAA856CB30ACE278C200A362606D10D62009F
 magnet:?xt=urn:btih:596F73E9F2ECB3AF7AAEE88393103B129122C79C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:596F73E9F2ECB3AF7AAEE88393103B129122C79C
 ```bash
 magnet:?xt=urn:btih:24AC3AC047E5004C07C7FF76A2CB893618862001
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:24AC3AC047E5004C07C7FF76A2CB893618862001
 magnet:?xt=urn:btih:C77AA341DA887E7300DEE5D50AA561012CDCB399
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:C77AA341DA887E7300DEE5D50AA561012CDCB399
 ```bash
 magnet:?xt=urn:btih:41F7258CBCAE498FE1C781C7560D54004B6FA18C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ Aнисса Науэй ведёт аналитическую программу 
 magnet:?xt=urn:btih:90822E5DF4FF92009B81D62ADB18BC2F174A4D0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:90822E5DF4FF92009B81D62ADB18BC2F174A4D0E
 ```bash
 magnet:?xt=urn:btih:3E4098E76FCEB11B1727DAFC78D4480726F48A2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:3E4098E76FCEB11B1727DAFC78D4480726F48A2E
 magnet:?xt=urn:btih:9B024EEA5A161AD06F63A3C1E2E703E06878AEA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:9B024EEA5A161AD06F63A3C1E2E703E06878AEA6
 ```bash
 magnet:?xt=urn:btih:F489C8174566D97565A959C98FBAC674D444CAA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:F489C8174566D97565A959C98FBAC674D444CAA1
 magnet:?xt=urn:btih:5E5B37E9212103EB9D70FE31AD61A96FD9FDA3E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:5E5B37E9212103EB9D70FE31AD61A96FD9FDA3E8
 ```bash
 magnet:?xt=urn:btih:C8A17B4D481E80AE679EA9BB229801BBA5FC7BBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:C8A17B4D481E80AE679EA9BB229801BBA5FC7BBC
 magnet:?xt=urn:btih:DEA561A0AC987ABB1004AC2D47AF3443D7801FB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:DEA561A0AC987ABB1004AC2D47AF3443D7801FB6
 ```bash
 magnet:?xt=urn:btih:1A19D6FD1A5F5D6973E945DE3F0B42EDB05AFAC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:1A19D6FD1A5F5D6973E945DE3F0B42EDB05AFAC4
 magnet:?xt=urn:btih:9D021CE719CA29FB884FE929A9D2FAB117CA6E96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,29 +681,7 @@ HDScape: Камины / HDScape: Fireplace - Visions Of Tranquility (2008) BDRip
 magnet:?xt=urn:btih:5109FC0E8ABA7FDC7D9D0BFEDDCFBEB97F08DA04
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 648051   (854457) от 24.04.2013
-
-Кнут для Адольфа Гитлера / Жизнь за Гитлера / Das leben von Adolf Hitler / Life of Adolf Hitler (1961) VHSRip
-
->>Документалистика и Телепередачи
->>Личности в истории
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот документальный фильм британского режиссера и историка Пола Рота выходит за рамки стандартных архивных кадров кинохроники и ищет ответ на многие вопросы, почему немцы никогда не подвергали сомнению действия своего фанатичного лидера. Гитлер показан встрече с Муссолини и Франко. Участие Франко в гражданской войне в Испании было профинансировано Гитлером, который (   Читать дальше...   )Производство: Германия (ФРГ), Real-Film GmbHЖанр: ДокументальныйРежиссер: Пол Рота / Paul RothaПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 01:28:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E03F061B44A39E5015087B80884C0A2FB9606054
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

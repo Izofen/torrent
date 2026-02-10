@@ -20,6 +20,8 @@ Head's-Up Display - это уникальный и мощный шаблон Aft
 magnet:?xt=urn:btih:19C096CE660E92E745AE50A6049AC4AE1CAF8828
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:19C096CE660E92E745AE50A6049AC4AE1CAF8828
 magnet:?xt=urn:btih:2341095B0F138CE8C7A8B0AD4B70510C47338302
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ VideoHive - Frosen | 12 Smart Transitions - 21076139 [AEP]
 ```bash
 magnet:?xt=urn:btih:721355A56FB43A72072C7205EE7C4CEF09BEC4D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ New Year Snowflake Countdown  - это красивый проект для Но
 magnet:?xt=urn:btih:0E44227F7D2483900978CA8B32D8FAB6F623674C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Trailer Opener - стильный и динамично анимированны
 ```bash
 magnet:?xt=urn:btih:A385B7F8A87A83F4606203E9B7222D3829388B71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Wedding Invitation - это романтический шаблон After Effect
 magnet:?xt=urn:btih:1FEB5A241D32A688D06AC40BFC5E1EDBDB4DBF99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:1FEB5A241D32A688D06AC40BFC5E1EDBDB4DBF99
 magnet:?xt=urn:btih:769F133DF3AC01A6D380108D6BA47F8F01F18585
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:769F133DF3AC01A6D380108D6BA47F8F01F18585
 ```bash
 magnet:?xt=urn:btih:2B9F583BBC8628C776F7981483A08EF97E01796E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Event Promo - это динамичный, универсальный, широ�
 magnet:?xt=urn:btih:33063F254C1FB69EE8CC27260BC959FEBA012795
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Dance Club Party Promo - это динамичный проект, которы�
 magnet:?xt=urn:btih:FD35EAC0E6150967963A3FC6A339788A88664282
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:FD35EAC0E6150967963A3FC6A339788A88664282
 ```bash
 magnet:?xt=urn:btih:40A350D40B5D80922579BA7216880B0C137AE8B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ New Year Countdown 2018 - это 30 секунд обратного отсчет
 magnet:?xt=urn:btih:69B85D6C49A7884109950B67EF96DE7C3B694FEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:69B85D6C49A7884109950B67EF96DE7C3B694FEE
 ```bash
 magnet:?xt=urn:btih:E37B7C98C3F3CA57B2D72C041F5E289E736E2C13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Christmas - это типографический проект, который �
 magnet:?xt=urn:btih:E0750B05E223C5BAE96807E3F26774BE4AC76290
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ Christmas Glittering - это потрясающий шаблон After Effects.
 magnet:?xt=urn:btih:D60318C0F367045DE4E9426AE517EB6321616B6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ VideoHive - Magical Countdown New Year Slideshow - 25020250 [AEP]
 ```bash
 magnet:?xt=urn:btih:4A76A93361351EDAAC80753990CDF75859BFFE7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ Dynamic Slideshow  - динамичный, современный проект �
 magnet:?xt=urn:btih:54CFE24B027EF990C88A5E2C0B84411B746BF64D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Graphics Pack - пакет графических элементов для ди
 ```bash
 magnet:?xt=urn:btih:573034CCFE64EAB45789B746BA84C7AE38F12EC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ Modern Opener - Slideshow - оригинальный, современный п�
 magnet:?xt=urn:btih:14A2D2F0FA106E7E4223AA1DE552192F705300F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:14A2D2F0FA106E7E4223AA1DE552192F705300F7
 ```bash
 magnet:?xt=urn:btih:9F3931CB019AA164EBA20D061DF07F25A1089130
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ Merry Christmas - позволяет быстро, легко и стильно 
 magnet:?xt=urn:btih:27588EB480341226EC5DEFD8BD00CA239D36177C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ Santa Claus Christmas Presentation - Идеальный проект, чтобы
 ```bash
 magnet:?xt=urn:btih:8684F49AA477267652172B7578F5608397CAC8E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ Christmas Promo Pack - Рождественский пакет анимации 
 magnet:?xt=urn:btih:7B9220FEF38D122EEBF91ACD29A70B01BAFB894B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ Christmas Star Logo II - демонстрация вашего логотипа 
 ```bash
 magnet:?xt=urn:btih:AB494EF01F7B4C29C59B96C1658F83015CA74E1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ Christmas Lights - как красиво эти фигуры танцуют по
 magnet:?xt=urn:btih:71929E6643551E8CEEAE679077424C92F6F433B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ Christmas - Рождественские поздравления - это сп�
 ```bash
 magnet:?xt=urn:btih:3B4EAB7BE6D68A13E33F7EA29269CFF79B2DABF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

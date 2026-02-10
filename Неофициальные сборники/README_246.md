@@ -1,3 +1,32 @@
+###  Публикация: 1413112   (411330) от 02.10.2020
+
+VA - 100 Greatest 90s Pop Classics (2020) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411330.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Britney Spears - ...Baby One More Time (3:31)
+002. Take That - Back for Good (Radio Mix) (4:01)
+003. Madonna - Vogue (5:16)
+004. Michael Jackson - Black or White (Single Version) (3:18)(   Читать дальше...   )Жанр: PopПродолжительность: 06:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32E4A4C1195FA17A53DFE4B8A6AFEFEA4C4DC383
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948391   (411382) от 20.10.2015
 
 VA - Взорви танцпол 50х50 (2015) [MP3|320 кб/с]<Dance, club>
@@ -21,6 +50,8 @@ VA - Взорви танцпол 50х50 (2015) [MP3|320 кб/с]<Dance, club>
 ```bash
 magnet:?xt=urn:btih:2B29016564E3D5D644A72B5993D12CE7D102F327
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Piano Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Instrumental>
 magnet:?xt=urn:btih:2556ACB423FD089202E3408D0BC07C869B41C503
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Vocal Deep House Vol.9 (Compiled by Zebyte) (2015) [MP3|320 кб/с]<House,
 ```bash
 magnet:?xt=urn:btih:87C3B5356AC6676D1B2F580D99C07F718CE45940
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Sexy & Stunning Deephouse (2015) [MP3|320 кб/с]<Deep House>
 magnet:?xt=urn:btih:F34BED906E16F6E316B344E99175617B397F1DBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +167,8 @@ magnet:?xt=urn:btih:F34BED906E16F6E316B344E99175617B397F1DBB
 magnet:?xt=urn:btih:CF20431D85F7256B9EDAE78033E4B0F720FDA230
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +193,8 @@ VA - Passion (After Midnight Edition) (2015) [MP3|320 кб/с]<Funky, Club House
 ```bash
 magnet:?xt=urn:btih:010F6FE575FA815E9906DD42549DA12C7A2B221A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +223,8 @@ VA - Panoramic Grooves 20 Chillhouse Beats (2015) [MP3|320 кб/с]<Deep House, 
 magnet:?xt=urn:btih:4ED8D5A67ECBB69C806528FDDDD183591ED5C1F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +251,8 @@ VA - Любимая Музыка Для Твоей Тачки Зарубежны
 ```bash
 magnet:?xt=urn:btih:30E03BD4EC93F328AEC2308EE158C4128EA20644
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +281,8 @@ VA - Свежий Русский Хит от ALEXnROCK часть 11 (2022) [MP3
 magnet:?xt=urn:btih:1DC58A85236A7CE30BD6663ACD7729D349ADF026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +309,8 @@ VA - ЕвроХит Топ 40 Europa Plus 02.10.2020 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:0DD3047B5D2CE418F95BFAE185D42BB6AD4ED4DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +339,8 @@ VA - Music For Everyone - Drum and Bass & Liquid Vol.5 (2016) [MP3|320 Kbps] <Dr
 magnet:?xt=urn:btih:56B620896BC9B3408905DEB4F9B9A4C5FDE3235A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +367,8 @@ VA - Record Super Chart #459 (2016) [MP3|320 Kbps] <House, Electro House, Progre
 ```bash
 magnet:?xt=urn:btih:DCAB499F8FF9AEE5B2005F1BA346652A3A916BA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +397,8 @@ VA - The Best - In Music We Trust Vol.9 (2016) [MP3|320 Kbps] <House, Electro Ho
 magnet:?xt=urn:btih:C72D816F7420029CF530DA5512510A661072307E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +425,8 @@ VA - Music For You vol. 24 (2022) [MP3|320 Kbps] <Metal, Rock, Other>
 ```bash
 magnet:?xt=urn:btih:D2E92E1F89FB4B7A074E2C8D20A2CAF6048AE6D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +455,8 @@ Miley Cyrus - Compilation (2022) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:6BC421177A71E4FA90F771D080B0E7EC5517EF94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +483,8 @@ VA - Music News vol.212 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:5B7862C4B46C78FFF833E71A94CA33F0D58979C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +513,8 @@ VA - Популярный драйвовый хитовичок. Версия 7 
 magnet:?xt=urn:btih:1016A2958FA74D084823C0DD15B8890C311DFB13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +541,8 @@ VA - Heartbeat Todays: Deep Feelings (2016) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:66C05CBF79D75CAD7D5FF06E54B21EC78A74BBB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +571,8 @@ VA - The World of Enigmatic Melody vol. 2 (2017) [MP3|320 Kbps] <Enigmatic, New 
 magnet:?xt=urn:btih:E5006477C10367C116F4FBCA023D24736109E786
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +599,8 @@ VA - Dинамик. Осень (2017) [MP3|256-320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:377AF4CE0F75ECFDC16480162DDF474895F9B55F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +629,8 @@ VA - 60 minutes. Old School Dance Music vol.3 (mixed by Dj V) (2017) [MP3|320 Kb
 magnet:?xt=urn:btih:A0E90A4E347D19C8D71C82E7E9C59A65286D3170
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +657,8 @@ VA - Music News vol.211 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:D7B575BB6C016D2D5E4CA8EB1F2D139A63043090
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +687,8 @@ Lindsay Ell - Compilation (2022) [MP3|320 Kbps] <Pop, Pop Rock>
 magnet:?xt=urn:btih:E757A3B748BB43F4CA46326C815822C837BA9282
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +715,8 @@ VA - Lust And Love: Rock Hard Revue (2017) [MP3|320 Kbps] <Hard Rock, Alternativ
 ```bash
 magnet:?xt=urn:btih:A2C4053E32083C8B52A557413D802E389771FE0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,32 +745,7 @@ VA - Monarchs Of Oblivion: Rock Collection (2019) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:1FFE33B4A815CEE7F8C1AEC5555D7C35BE8CF89A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325451   (412597) от 15.09.2019
-
-VA - Team Dogz: 170 Rap Hits (Vol.02) (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412597.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Teppichmesserbois - Low Life High Kicks
-002. Lijpe - Voorwoord
-003. T- Jones - Trap Or Rap
-004. Tobe Nwigwe - Wavy(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 08:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:751A443542C713EB0D8B8BE60109D2001C2FC529
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

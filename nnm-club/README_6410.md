@@ -19,6 +19,8 @@ Maximum Action (2018) [En] (0.92) License GOG [Early Access]
 magnet:?xt=urn:btih:E025EA9969751D5CFEB21E623F097FEA7C480D02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Ben Shaw, Saurabh Badhwar, Chris Guest и др. | Web Development with Django (2
 ```bash
 magnet:?xt=urn:btih:172F7EADD5E429F4446EEB4547BDC8AF1C391C8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:172F7EADD5E429F4446EEB4547BDC8AF1C391C8F
 magnet:?xt=urn:btih:34DFE31F93C71C265AC5705E54AC0C7C255FDEFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:2083E84C65ECF9F6D0C27436727526E7FC127B08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Rufus - небольшая утилита помогает отформатир�
 magnet:?xt=urn:btih:E0DCF48349181223C37E093563CEB351C43932A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Advanced SystemCare PRO - это мощный пакет для оптимиза
 ```bash
 magnet:?xt=urn:btih:29AEE46A3F65135DE77177263B7877307408E243
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ BananaDefenderBlocker - программный продукт от BananaBrain, 
 magnet:?xt=urn:btih:D0D272E573A9E5A56AABB7D815EF0AE9684DF94C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:D0D272E573A9E5A56AABB7D815EF0AE9684DF94C
 ```bash
 magnet:?xt=urn:btih:E4F9C69DC22C6136A887BB80CAA3493B05FA0E36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:E4F9C69DC22C6136A887BB80CAA3493B05FA0E36
 magnet:?xt=urn:btih:37228E4DD9C86ED53236C25DB1E508C726408D37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:37228E4DD9C86ED53236C25DB1E508C726408D37
 ```bash
 magnet:?xt=urn:btih:C85ABDF33810F75D845990CF0BA1EBA1FF572BD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:C85ABDF33810F75D845990CF0BA1EBA1FF572BD6
 magnet:?xt=urn:btih:1712CDD8E7F0E3A0ABCD9CB18E356F77857A5558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:1712CDD8E7F0E3A0ABCD9CB18E356F77857A5558
 ```bash
 magnet:?xt=urn:btih:5DB8D743B86CA36CF196A7AF65F0E2668F72342C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ FastStone Capture представляет собой довольно мощн�
 magnet:?xt=urn:btih:965CF48EDE0450336ED40022E0717A36A1BAFCA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ ColorControl - небольшая программа которая после �
 ```bash
 magnet:?xt=urn:btih:033D8A8CE70B5EC6673B98669AC49CC0C3DE9C92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:033D8A8CE70B5EC6673B98669AC49CC0C3DE9C92
 magnet:?xt=urn:btih:4C688484A68EF27B87C8512D270D0A89E52A6B8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ DxO PhotoLab Elite 6.8.0 build 242 RePack by KpoJIuK [Multi]
 magnet:?xt=urn:btih:007B77937D5BD1072FBB770867CFE787DA08FF85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:007B77937D5BD1072FBB770867CFE787DA08FF85
 ```bash
 magnet:?xt=urn:btih:7D1A66BB0462B048A23CD02EC8BC1B248EA1FFEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:7D1A66BB0462B048A23CD02EC8BC1B248EA1FFEB
 magnet:?xt=urn:btih:A425C6BEC7CBE2DAE643D564A766EA94CD3ABAC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Opera - это один из самых быстрых, безопасных и 
 magnet:?xt=urn:btih:9DE16FA0697CE20CA510288CB47083D422D689DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:9DE16FA0697CE20CA510288CB47083D422D689DD
 ```bash
 magnet:?xt=urn:btih:A1BA0CC8B3991F70BF55E4384A0338E34203926A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:A1BA0CC8B3991F70BF55E4384A0338E34203926A
 magnet:?xt=urn:btih:91F34DB6098C9515ABDA0344569C9B6FF657C657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:91F34DB6098C9515ABDA0344569C9B6FF657C657
 ```bash
 magnet:?xt=urn:btih:2A2819934E0FE98E473FC9CEAAF5E48550D29B67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:2A2819934E0FE98E473FC9CEAAF5E48550D29B67
 magnet:?xt=urn:btih:C19006287207DB946ADA94EC95776B165E3A3CCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:F52D01971084E097588E37DCA9CB40FD329CE1C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:F52D01971084E097588E37DCA9CB40FD329CE1C8
 magnet:?xt=urn:btih:52C0C6AF272B03A1084F9C12EF00BFB2EA8EAC62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:52C0C6AF272B03A1084F9C12EF00BFB2EA8EAC62
 ```bash
 magnet:?xt=urn:btih:D8601A048F3B6F64A9D88B01C095F6FDC85924DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

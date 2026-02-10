@@ -28,6 +28,8 @@ VA - Pop Dance Coctail (2011) [MP3|128-256 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:05EAFF4AD5091B626A0E041563ABE861DCA8C055
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -61,6 +63,8 @@ VA - Sense Of Trance #27 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance>
 magnet:?xt=urn:btih:6D18990DF1AF8A80809F7E0D94010852BAFE7778
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -89,6 +93,8 @@ VA - Хиты на радио клубнячек и попса vol.10 (2012) [MP
 ```bash
 magnet:?xt=urn:btih:D648A4849FF5AD930084F2D6D528C79E7A6575D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +129,8 @@ VA - На Вершине Музыкальных Чартов 4 (2012) [MP3|256 �
 magnet:?xt=urn:btih:DDBBDA8D2206577EAEF275531DC967B9B5204063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +163,8 @@ VA - Весенняя Атмосфера Танцевальная (2012) [MP3|25
 ```bash
 magnet:?xt=urn:btih:D2B7CD08D1E4021AB828337E9692D1F25854FEA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +199,8 @@ CD 1 | Продолжительность: 01:15:08
 magnet:?xt=urn:btih:C8C30C7993310AAA6F861561E3F0C2A4116B02B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +233,8 @@ VA - Максимальный Отрыв (2012) [MP3|256 кб/с]<Pop. Dance>
 ```bash
 magnet:?xt=urn:btih:E69D30F858E998FFAAD013A088F011D4851EEAAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -255,6 +269,8 @@ VA - Западный Еврохит Топ-Чарт (2012) [MP3|256 кб/с]<Po
 magnet:?xt=urn:btih:A6DB178260E4FD160ED95E54704907935F9E34B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +303,8 @@ CD1 (00:45:58)
 ```bash
 magnet:?xt=urn:btih:68B37BBBA59558DB465053C2A9009AD1DAAFB456
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +339,8 @@ VA - Клубные Новинки Vol.64 from AGR (2012) [MP3|320 кб/с]<Club
 magnet:?xt=urn:btih:3D66211B7FEC963573CCFEEE451FFB6524E621B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +374,8 @@ VA - Клубные Новинки Vol.63 from AGR (2012) [MP3|320 кб/с]<Club
 magnet:?xt=urn:btih:5EC1CF05B349F116C763D8A7AF22D5270998315E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +402,8 @@ magnet:?xt=urn:btih:5EC1CF05B349F116C763D8A7AF22D5270998315E
 ```bash
 magnet:?xt=urn:btih:813703CD085EBB915BCA9EA5C2CDCB9C30B85384
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +432,8 @@ VA - Compilation part 136 Electronic (2024) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:195EA66C63D3617E1F62C1A18D3136D9487BC7C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +460,8 @@ VA - Compilation part 135 Electronic (2024) [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:B8847AC8115A78D7B0AC178F447B94AF94EB5B86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +490,8 @@ VA - SAW 2 ((2005-2024)) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressiv
 magnet:?xt=urn:btih:E4DD8DE945A6E655774CC58AAF79BEA3F0BE00C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +518,8 @@ VA - SAW 5 (2005-2024) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressive 
 ```bash
 magnet:?xt=urn:btih:AB07E215FFE296D411F56AF62584D86FDAB4A809
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +548,8 @@ R. Armando Morabito - Compilation (2024) [MP3|320 Kbps] <Electronic, Instrumenta
 magnet:?xt=urn:btih:8164D1A73BA80725CE74F634DD6CED7A59759E37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +576,8 @@ VA - SAW 3 (2005-2024) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressive 
 ```bash
 magnet:?xt=urn:btih:D8C0C72A910EFFED13A04136156FDED669A43A53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +606,8 @@ RetroX - Favorites Collection - Favorites Collection (2025) [MP3|320 Kbps] <Elec
 magnet:?xt=urn:btih:AD9C48E8935B5F255BA1ED4C6E3177B599F3130E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +634,8 @@ Romantic Dreams - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Italodisco,
 ```bash
 magnet:?xt=urn:btih:C897ED702DFD002BC64B0E92A23F24546BA716AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +664,8 @@ VA - Musical kaleidoscope part 55 Assorted (2025) [MP3|320 Kbps] <Electronic, Ea
 magnet:?xt=urn:btih:1DA223A758F34BFAEE874F83002557D9F40CC9B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +692,8 @@ VA - Musical kaleidoscope part 56 Assorted (2025) [MP3|320 Kbps] <Electronic, Ea
 ```bash
 magnet:?xt=urn:btih:65E4F23E3926FA929370BED2137863660CF0DED3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -678,6 +722,8 @@ Sardø - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 magnet:?xt=urn:btih:3166098A34FFFDCEC5EE53A2CB02541D55227584
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -704,6 +750,8 @@ EchøNova - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Dance, Other>
 ```bash
 magnet:?xt=urn:btih:EB2836DBB3ADE36F6B4CB12AC773F37C274DD749
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -732,6 +780,8 @@ EchøNova - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Pop, Dance, Other
 magnet:?xt=urn:btih:6937BA2C347253A4D91766A468AD99D39DECDC1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -758,6 +808,8 @@ VA - 60 minutes. Old School Dance Music vol.27 (mixed by Dj V) (2024) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:9876A2EE13304568B62CD23E8D44D5CC6026E9DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

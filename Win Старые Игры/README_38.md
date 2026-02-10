@@ -19,6 +19,8 @@ Daryl F. Gates' Police Quest: SWAT (1995) [En] (1.0c) License GOG
 magnet:?xt=urn:btih:617012D0E3EB033318C52191474FF1385C6687E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Max Payne 2: The Fall of Max Payne — жестокая любовная ист�
 ```bash
 magnet:?xt=urn:btih:AD4BA0067DA4F0B35A1F3A5290FB9A063259B0B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ SWAT 3: Tactical (1999) [En] (2.1) License GOG [Game of the Year Edition]
 magnet:?xt=urn:btih:D8F4079377F3F8328FBEFF010A8ECDFC771600B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Area 51 Dilogy / Зона 51 Дилогия (2005-2007) [Ru/En] (1.1/1.2) Repack
 ```bash
 magnet:?xt=urn:btih:7BCA7E98B5923F764497D7E2B7EC6CCABA3A1F33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Forgotten Realms: Demon Stone (2004) [Ru/En] (1.1) License GOG
 magnet:?xt=urn:btih:764C7D0886DFF76443568F433E1C36EF90CCA4CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ WarCraft III/3: Reign of Chaos + The Frozen Throne (2002) [Ru/En] (1.00-1.27b) U
 ```bash
 magnet:?xt=urn:btih:DF1F4359B6DE4297328ED14A1CBE2D1298F2B8B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ WarCraft III/3: Reign of Chaos + The Frozen Throne (2002) [Ru/En] (1.00-1.27b) U
 magnet:?xt=urn:btih:35F93C0966FAFCB03B2C8B220BCBE0C0CBDB8BC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ WarCraft III/3: Reign of Chaos + The Frozen Throne (2002) [Ru/En] (Beta, 1.00-1.
 ```bash
 magnet:?xt=urn:btih:07D884E7FF6A6B0E67DA29F9DBECA1EFF8970EA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Galactic Civilizations является космической пошагово�
 magnet:?xt=urn:btih:53719C9DA5273E91D5837625CF4126CAC08865CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Car Mechanic Simulator 2014 (2014) [Ru/Multi] (1.2.0.5/dlc) Repack R.G. Меха
 ```bash
 magnet:?xt=urn:btih:E1A078F4CEB597097B828263325B5EC350489525
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Syberia Dilogy / Сибирь. Дилогия (2002-2004) [Ru] (1.0.0.0/11) Repa
 magnet:?xt=urn:btih:49D3E7A84B3A678B444B5523E3D6CA3C4B043DD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Fantasy Wars / Кодекс войны (2007) [Ru/En] (1.0.9) License GOG
 ```bash
 magnet:?xt=urn:btih:665A710FDF9FF2A9A1E767510ED9B21E847B1980
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Wolfenstein 3D: Spear of Destiny (1993) [En] (1.0) License GOG
 magnet:?xt=urn:btih:8FBB8CFF3DE5C4973C67CDA7A96CC65FDE4AC602
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Tachyon: The Fringe / Жестокие звезды (2000) [Ru/En] (1.00.00.36r)
 ```bash
 magnet:?xt=urn:btih:242451A9C2C9B630789446C4098CC3155E27EF5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Win3xO - The Win 3.x Collection v1.0 (2015) [En] (1.0) Repack Firstrun70
 magnet:?xt=urn:btih:E6222718AA6CA4177354C9014AEC9761F15E328E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Ignition - гонки с видом сверху, уже доступны для
 ```bash
 magnet:?xt=urn:btih:B1727087AA5A811ED06DDD374B2405A35687ECEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Divine Divinity / Divine Divinity. Рождение легенды (2002) [Ru/En
 magnet:?xt=urn:btih:3C15DCAB2EB7D3A4E2731F42DF83F1BB0E9B03D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Beyond Divinity / Beyond Divinity: Оковы судьбы (2004) [Ru/En] (1.506
 ```bash
 magnet:?xt=urn:btih:590B4803CD511D42F8580E656214F6393A575730
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Icewind Dale Dilogy (2000-2002) [Ru/En] (1.42/02.01.016/dlc) Repack R.G. Catalys
 magnet:?xt=urn:btih:E4670585C1354EA82913133D1A87DD81C7C837B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ TRON 2.0 (2003) [Multi] (1.030) License GOG
 ```bash
 magnet:?xt=urn:btih:66A5B87C18D5A2BFE94F040F64D94D57DD3F3BE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Alpha Prime (2007) [En] (1.01) License RELOADED
 magnet:?xt=urn:btih:0CE199D2B9EADE6910CAFEC95D6E0B876C289A5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Railroad Tycoon 3 / Железнодорожный магнат (2003) [En] (1.0
 ```bash
 magnet:?xt=urn:btih:C28292EC29A72BB279704F29CE37257E7748B017
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Railroad Tycoon 2 (1998) [En] (1.55/dlc) License GOG [Platinum Edition]
 magnet:?xt=urn:btih:A95CD27FE212DD28BBD3BD4241FF7E66DBDA8633
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Crusaders of Might and Magic / Крестоносцы меча и магии (19
 ```bash
 magnet:?xt=urn:btih:30ABC286BB7E816990E035CEBBC9914549BC4FCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ Crystal Caves – яркая игра с игровым процессом, го
 magnet:?xt=urn:btih:21C7E931D7CBE9C07B4C0B5B5535290028BD9A4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Project: Snowblind / Операция Снегопад  [Ru/En] (P) 2007
 ```bash
 magnet:?xt=urn:btih:47396D0D6AD9A815041B946F88F5989948864D01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

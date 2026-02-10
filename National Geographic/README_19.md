@@ -23,6 +23,8 @@ NG.Запреты: Соединённые Штаты алкоголя / NG.Taboo
 magnet:?xt=urn:btih:37B4577AA1644AA6C1BB472B918A9F9DF9A20D33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ NG:  Дорога в ад / Descent into Hell (2002) SATRip
 ```bash
 magnet:?xt=urn:btih:E511724981A298CAD8834ADEC1A4FD3B1D5B3209
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ NG: Последние животные / The Last Animals (2017) HDTV [H.264/10
 magnet:?xt=urn:btih:6C05AF1D7441BF8AE35B04FDAC26413E938C18DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ NGW: Прекрасная Америка. На границе с дикой пр
 ```bash
 magnet:?xt=urn:btih:8E379F4FDF42C6E3BDB4B31F8A80496E392B9480
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ NGW: Прекрасная Америка: Величественный Севе�
 magnet:?xt=urn:btih:97CCF0A4020AB649BB739E12DC1F456C4988C358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ NGW: Слон: Король Калахари / Elephant. King of the Kalahari (2
 ```bash
 magnet:?xt=urn:btih:FBB88319EFF2DD1046120E002F7A1EF4DCE57CEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ NG: Последние львы / The Last Lions (2011) BDRip [H.264/720p]
 magnet:?xt=urn:btih:6DD95C6274B2C03BF45302E016F42BC2CC26EB1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ NG: Дикая природа Таиланда / Wild Thailand (2013) HDTV [H.26
 ```bash
 magnet:?xt=urn:btih:C08166220D11B0CF253FEB13FAE597D2BCD818B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ NG: Восхождение чёрного волка / The Rise of black Wolf (2
 magnet:?xt=urn:btih:872C2F93A59BD31E15A7C5B6019017FA96533BF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ NG: Осушить океан: затонувший город пиратов / 
 ```bash
 magnet:?xt=urn:btih:C78547FD395062FA6E744B57AB76474324ECB890
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ NG: Суперсооружения Третьего рейха / Nazi Megastruct
 magnet:?xt=urn:btih:1934651FE0EFC6C5CD80E916D5FA8D1544C505F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ NG: Суперсооружения Третьего рейха / Nazi Megastruct
 ```bash
 magnet:?xt=urn:btih:138BBAA8308E032AE5494ABFF57A5B799AA9AA3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ NGW: По следам мифических чудовищ. Монгольски
 magnet:?xt=urn:btih:68E57E53B409A4C18976D57285F450C77B2EA0C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ NGW. Королевство обезьян: Брат против брата / K
 ```bash
 magnet:?xt=urn:btih:4E184AD9A0B9E89338CA6BC50036BF6DED3F8CF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ NGW: Хищник в раю. Прибрежные убийцы / Predator in Par
 magnet:?xt=urn:btih:89879B6D2D77E4D63FA7AEED2B61FD0F111E3F11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ NGW: Птичья популяция / Bird Nation (2018) HDTV [H.264/1080i-LQ]
 ```bash
 magnet:?xt=urn:btih:CCB9D9ADA24E619420801005BED63FF496313015
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ NG. Настольная книга диктатора / Dictators Rulebook (201
 magnet:?xt=urn:btih:35C0F18EC270D92A37A7A197DBBFDFD5649D2730
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ NG: Хиросима: На следующий день / Hiroshima: The Next Dey
 ```bash
 magnet:?xt=urn:btih:1BF3E57F9599E8618C60D6E8058D43567486BC97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ NGW: Дикая природа Индонезии / Wild Indonesia (2014) HDTV [
 magnet:?xt=urn:btih:496ACDECF7DF6C31FBAD2157606B216285DBF29D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ NGW: Кошачья душа / Soul of the Cat (2017) HDTVRip [H.264/1080i-LQ]
 ```bash
 magnet:?xt=urn:btih:4BDBC41AF83278877DEE269806AAC4B25782510E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ NGW: Пир драконов / Dragons Feast (Into the Dragon's Lair) (2012) HDT
 magnet:?xt=urn:btih:13FEA91A0C63F59BB2AD6C7FC397491B33378519
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:13FEA91A0C63F59BB2AD6C7FC397491B33378519
 ```bash
 magnet:?xt=urn:btih:75FF7F339E40AF7053C6B315519B6D4ACB4B222A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:75FF7F339E40AF7053C6B315519B6D4ACB4B222A
 magnet:?xt=urn:btih:F01E2667F590A310BE360593A3F90FE758F1C9B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ NG: Миссия Плутон (Встреча с Плутоном) / Mission Plu
 ```bash
 magnet:?xt=urn:btih:B17A0D069EB7DEC9A2F3E1E06E449924C2F845D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ NGW: Дикие охотники. Змеи / Wild Hunters. Snakes (2019) HDTV [H
 magnet:?xt=urn:btih:4815CD737E9F232BFC7C0A769A5ADB0174B17144
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ NG: Дикая река Конго / Wild Congo (2013) HDTVRip [H.264/720p-LQ] (
 ```bash
 magnet:?xt=urn:btih:E4F489D7B59EEF9D2D8001DAA9DE6EE34E5817C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

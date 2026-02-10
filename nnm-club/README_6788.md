@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:99889656091EAB3960E1A7C3350D0B9F64400FEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:99889656091EAB3960E1A7C3350D0B9F64400FEF
 ```bash
 magnet:?xt=urn:btih:D76FAA96EFEB2EF1EB4767065EBD8C55B54B6B3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Planetary Annihilation: TITANS  это улучшенная версия стр�
 magnet:?xt=urn:btih:5137BE0C46F2A8C37CF976332724CBBA154AFF56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Knights and Bikes (2019) [En] (1.12_rc3_v0_u) License GOG
 ```bash
 magnet:?xt=urn:btih:3C3646E5AE792CBA0A7915ECEADB4AEA3EB97253
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Outer Worlds 2 - долгожданное продолжение титул�
 magnet:?xt=urn:btih:91B76BAE4F8D036A87758803D8B1D4E13034B93A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Heroes Chronicles: All Chapters (2000) [En] (1.0 v2) License GOG
 ```bash
 magnet:?xt=urn:btih:F33387F1819AD1A5B3982710C68DF2F8E514B83B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ XVIII век. Людовик XVI, его жена Мария Антуанетт�
 magnet:?xt=urn:btih:FE58B61CAA2C2E685902B0A4D3608BB4F2EC2D08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:FE58B61CAA2C2E685902B0A4D3608BB4F2EC2D08
 ```bash
 magnet:?xt=urn:btih:646F48057D4030F891B919AA1ED238DFB5FEBC16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:646F48057D4030F891B919AA1ED238DFB5FEBC16
 magnet:?xt=urn:btih:61D8FF3D91815E57D45F4BB458FB788B9DC31E68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Sludge Life (2021) [Ru/Multi] (251013) License GOG
 ```bash
 magnet:?xt=urn:btih:AC34C0422EC3E26EC777D4A9AEC5140E927976EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:AC34C0422EC3E26EC777D4A9AEC5140E927976EF
 magnet:?xt=urn:btih:5908C51C8516D94EE383CA16A9C7F93919CB2CB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ CorelDRAW Graphics Suite 2025 26.2.0.170 Portable by conservator [Ru/En]
 ```bash
 magnet:?xt=urn:btih:32C239D1969256BC96EC79AFE5A808FF941BFF97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:ACE7A26F98664F899494950709E7531F15FAAAFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Strange Antiquities (2025) [Ru/Multi] (1.0.40) License GOG
 magnet:?xt=urn:btih:9AFA1931930BB7A6DB81CA927BA5ACF66765B68A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:9AFA1931930BB7A6DB81CA927BA5ACF66765B68A
 ```bash
 magnet:?xt=urn:btih:B51B9C0BB1C7E20B24AF8CFDA1F8CCAE6372CBF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:B51B9C0BB1C7E20B24AF8CFDA1F8CCAE6372CBF6
 magnet:?xt=urn:btih:C7CB45A25C29F58F87BB45ACC07C670F360A89BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:C7CB45A25C29F58F87BB45ACC07C670F360A89BF
 ```bash
 magnet:?xt=urn:btih:E23E4B85189375B33C6B7EDCACA3774FCDA2FC41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:E23E4B85189375B33C6B7EDCACA3774FCDA2FC41
 magnet:?xt=urn:btih:833CB952D2AA079555E1D39A6DE730992F2CE7A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:833CB952D2AA079555E1D39A6DE730992F2CE7A0
 ```bash
 magnet:?xt=urn:btih:4C3CAF4F3A6D29C81FFE8EC50BA6ACC775C97465
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:4C3CAF4F3A6D29C81FFE8EC50BA6ACC775C97465
 magnet:?xt=urn:btih:587DFB922C6E67FECD67561BAC10A0E5B5C7CCF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:587DFB922C6E67FECD67561BAC10A0E5B5C7CCF0
 ```bash
 magnet:?xt=urn:btih:FD7C14AC8E22165BB88DE9559113EB5FC904D641
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:FD7C14AC8E22165BB88DE9559113EB5FC904D641
 magnet:?xt=urn:btih:23345A324CB5B43CC72BACDDF97D42C205EFBC6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:23345A324CB5B43CC72BACDDF97D42C205EFBC6E
 ```bash
 magnet:?xt=urn:btih:82B960BBE3FEA98EA8A1FAF0A6F0E73FC6CA078A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ magnet:?xt=urn:btih:82B960BBE3FEA98EA8A1FAF0A6F0E73FC6CA078A
 magnet:?xt=urn:btih:71AFB4B75E3799DCF7F21CBC3B66A8367240E380
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:71AFB4B75E3799DCF7F21CBC3B66A8367240E380
 magnet:?xt=urn:btih:C4F7E48AC7AC6517250E1F5078F84BF5AD8CA235
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:C4F7E48AC7AC6517250E1F5078F84BF5AD8CA235
 ```bash
 magnet:?xt=urn:btih:A1F5B93B291602A715A10DBA713B06A16D9A53B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

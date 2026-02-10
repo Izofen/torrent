@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4A843886BE35F871708B45BFDA7C36B87B0ACC8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:4A843886BE35F871708B45BFDA7C36B87B0ACC8B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:4A843886BE35F871708B45BFDA7C36B87B0ACC8B
 magnet:?xt=urn:btih:C42AB62AC05AA74CEF1F1DAB17C72C7C11BEAA80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:C42AB62AC05AA74CEF1F1DAB17C72C7C11BEAA80
 ```bash
 magnet:?xt=urn:btih:F4195D125D2B41D8B0667B3502D1C82EC2FF13F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:F4195D125D2B41D8B0667B3502D1C82EC2FF13F4
 magnet:?xt=urn:btih:AD388A1562BD4D08F319967ED150C902221A68B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:AD388A1562BD4D08F319967ED150C902221A68B2
 magnet:?xt=urn:btih:B91E3658FF45CAD883D1C7E2E7150FD468A85254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ The Beast Inside – психологический хоррор с соврем
 ```bash
 magnet:?xt=urn:btih:7A493A1C3A2C90D0B4174300DDB0251DEBED7776
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Ted Nugent (13.12.1948 ) - американский гитарист, вокал
 magnet:?xt=urn:btih:625E16B0A8C34CBBDB7BBA46AED831A9B773B1CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:625E16B0A8C34CBBDB7BBA46AED831A9B773B1CD
 ```bash
 magnet:?xt=urn:btih:77957CA23580C998AFD273DE208C8117E6516E7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:77957CA23580C998AFD273DE208C8117E6516E7D
 magnet:?xt=urn:btih:4A1C1E28FFC14F2967D02E09680AD727AC19AF22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:4A1C1E28FFC14F2967D02E09680AD727AC19AF22
 ```bash
 magnet:?xt=urn:btih:B935F689A9045D84392FF949DE208FEB7BE30919
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ System Shock 2 (2025) [Ru/Multi] (1.2.4244.0) Repack Let'sРlay [25th Anniversar
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ System Shock 2 (2025) [Ru/Multi] (1.2.4244.0) Repack Let'sРlay [25th Anniversar
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ System Shock 2 (2025) [Ru/Multi] (1.2.4244.0) Repack Let'sРlay [25th Anniversar
 magnet:?xt=urn:btih:AE21E0063C5348044EE9B8A16C7A0A6CA510264B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Oxide Room 208 (2025) [Ru/Multi] (1.06) License GOG
 ```bash
 magnet:?xt=urn:btih:5BFCC6C983781D7EEC28D3C0D644B9140F82DEE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:5BFCC6C983781D7EEC28D3C0D644B9140F82DEE7
 magnet:?xt=urn:btih:CBF2B7FFD332C678E1A43178DB4011A9A57B3DE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:CBF2B7FFD332C678E1A43178DB4011A9A57B3DE4
 ```bash
 magnet:?xt=urn:btih:1C06850D87BDF25F301AD13509ACE30295540EFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Pink Floyd - История создания альбома "Wish You Were Here"
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Pink Floyd - История создания альбома "Wish You Were Here"
 ```bash
 magnet:?xt=urn:btih:8C997BA2D5363005D6883144DA42E111893D6A8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:8C997BA2D5363005D6883144DA42E111893D6A8E
 magnet:?xt=urn:btih:5D0BF11A5645A55D92AA5D79D15F2DB7FFAB6C9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:5D0BF11A5645A55D92AA5D79D15F2DB7FFAB6C9B
 ```bash
 magnet:?xt=urn:btih:DBB0FF27FE274D96DA23C9EABE2D37B435BF3003
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:DBB0FF27FE274D96DA23C9EABE2D37B435BF3003
 magnet:?xt=urn:btih:E87876444FFA3B2F735CFBCFB48922CB1CA39B1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ Bleeding Deities (2025) [En] (1.0.7) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:3D0F12368934CF0CC00903C9C911DA6C8242AD2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:3D0F12368934CF0CC00903C9C911DA6C8242AD2C
 magnet:?xt=urn:btih:FDCFC1E55F35D0184202E4725CF9E02DA1610ACB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Foundation: Новая эра в средневековых строительн
 magnet:?xt=urn:btih:BD3579DB73EAAD663B1C82542EBBD499B5652EB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Age of Mythology: Retold - игра от создателей культовой
 ```bash
 magnet:?xt=urn:btih:5D9537C7BC9B2E606B577F72B67E45318E893D3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

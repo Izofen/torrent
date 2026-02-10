@@ -22,6 +22,8 @@ Emil Amos - Zone Black (2023) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap, Ambie
 magnet:?xt=urn:btih:18CD9185DA2B08C0C900893038EF6A92F122DD51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ A-Ha - True North (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Pop-Rock>
 magnet:?xt=urn:btih:44633621C660E46D0783D307386F342ECD1A53C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:44633621C660E46D0783D307386F342ECD1A53C0
 ```bash
 magnet:?xt=urn:btih:9CC342635A6C5021130E2B32DF76A11444954493
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:9CC342635A6C5021130E2B32DF76A11444954493
 magnet:?xt=urn:btih:1C3F89E55C8245449799DEB379C88CB222D2F1F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:1C3F89E55C8245449799DEB379C88CB222D2F1F7
 ```bash
 magnet:?xt=urn:btih:EBB55867AA3CD2F563046811C140FFAC2C370F89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ LRTimelapse — программа предназначена исключите
 magnet:?xt=urn:btih:DD4668AA72545C4D77864EF568DECB4148634161
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:DD4668AA72545C4D77864EF568DECB4148634161
 ```bash
 magnet:?xt=urn:btih:CE645AE52F0ED8E0AD42EC0AF6B01F884B2175C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:CE645AE52F0ED8E0AD42EC0AF6B01F884B2175C9
 magnet:?xt=urn:btih:C5B667FDE4908D840556441A538FF3FC823BBCE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:C5B667FDE4908D840556441A538FF3FC823BBCE7
 ```bash
 magnet:?xt=urn:btih:B9954096BD4C8FC76ADA3E3EE685776F1E095733
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ magnet:?xt=urn:btih:B9954096BD4C8FC76ADA3E3EE685776F1E095733
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +301,8 @@ magnet:?xt=urn:btih:B9954096BD4C8FC76ADA3E3EE685776F1E095733
 magnet:?xt=urn:btih:6F9166948024A50360DA126B4184B469B347D010
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ magnet:?xt=urn:btih:6F9166948024A50360DA126B4184B469B347D010
 ```bash
 magnet:?xt=urn:btih:663395DB02CA50A777073AD9288B4503441F301F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:663395DB02CA50A777073AD9288B4503441F301F
 magnet:?xt=urn:btih:F354A007F6A306A1AA12E5B227000818EF962FF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:F354A007F6A306A1AA12E5B227000818EF962FF0
 magnet:?xt=urn:btih:A01DBC5301EFB18F0616FBE85F7C142E01F97B7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:A01DBC5301EFB18F0616FBE85F7C142E01F97B7A
 ```bash
 magnet:?xt=urn:btih:61213A2A76F8EF8FD70DDECED5AE9961C0E927D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:61213A2A76F8EF8FD70DDECED5AE9961C0E927D9
 magnet:?xt=urn:btih:5F8973F2D517E6F0FEF859CD2E5F5A6B2823B4DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ Pixelmator представляет собой мощный инструмент
 ```bash
 magnet:?xt=urn:btih:FDAE6102DDC9FABC149242865AC3AF0CCFB9B360
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +488,8 @@ Shalamar (Шаламар) - американская музыкальная гр
 magnet:?xt=urn:btih:D5EB2B6FFC391D6471F0DEE29C048C78384A820B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ Tinytopia (2021) [Multi] (211111) License GOG
 ```bash
 magnet:?xt=urn:btih:EF0267BE4E60A6FB23B8EBE7EB50E3951CB9EFAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +543,8 @@ CD - 1 - Revolver (New stereo mix):
 magnet:?xt=urn:btih:CB35B4E0DD1FDF8B540857D8B14EF365A93A2CE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ magnet:?xt=urn:btih:CB35B4E0DD1FDF8B540857D8B14EF365A93A2CE7
 ```bash
 magnet:?xt=urn:btih:4E5E083C6F02B1146FA2495003B46529F1AA9E69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +595,8 @@ magnet:?xt=urn:btih:4E5E083C6F02B1146FA2495003B46529F1AA9E69
 magnet:?xt=urn:btih:369808637F57C22433719B7C0407C17C83F9B5AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:369808637F57C22433719B7C0407C17C83F9B5AA
 ```bash
 magnet:?xt=urn:btih:37FEB64389ED9E334409800B68068A0557E3B62E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ Kane & Lynch 2: Dog Days [WineSkin]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ Kane & Lynch 2: Dog Days [WineSkin]
 magnet:?xt=urn:btih:D82078109A29354877F7DFD78B70B6D86600273A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ Glory of Generals 3 v1.0.0 [En] - Стратегическая игра о Вт�
 ```bash
 magnet:?xt=urn:btih:7FDB9A844773E35093905B5325864F299F6C1977
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

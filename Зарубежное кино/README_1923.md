@@ -1,27 +1,3 @@
-###  Публикация: 1483942   (920218) от 19.08.2021
-
-Белый лебедь / Sonja: The White Swan (2018) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Соня Хени — одна из самых известных спортсменок своего времени, трехкратная олимпийская чемпионка, изобретательница современного фигурного катания. В 1936 году она решила переехать в Голливуд, чтобы стать кинозвездой. Её первый фильм стал хитом: сеансы посетило самое большое количество зрителей в 1937 году. После оглушительного успеха Соня становится одной из самых (   Читать дальше...   )Производство: Норвегия / A Film Location Company, Maipo Film, Seven Film Romania, SuboticaЖанр: Драма, биография, историяРежиссер: Анне СевитскиАктеры: Ине Марие Вильман, Валин Кэйн, Эльдар Скар, Андерс Мордал, Аннеке фон Дер Липпе, Эйдан МакАрдл, Малкольм Адамс, Хью О’Конор, Пол Сверре Валхейм Хаген, Норма ШиханПеревод: Дублированный (iTunes)Субтитры: Русские, английские, норвежскиеПродолжительность: 01:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10FF40EC9DE12D2C81C2581CBBCA5979CCFA1DF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096064   (920219) от 23.01.2017
 
 Расплата / The Accountant (2016) Blu-ray [H.264/1080p]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:10FF40EC9DE12D2C81C2581CBBCA5979CCFA1DF0
 ```bash
 magnet:?xt=urn:btih:144684F1D2F0529B50D92FA99316E92C112D53EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -66,6 +44,8 @@ magnet:?xt=urn:btih:144684F1D2F0529B50D92FA99316E92C112D53EE
 ```bash
 magnet:?xt=urn:btih:5F767F93F7FCFC297A3ABB668336D4D10272B29C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +72,8 @@ magnet:?xt=urn:btih:5F767F93F7FCFC297A3ABB668336D4D10272B29C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:5F767F93F7FCFC297A3ABB668336D4D10272B29C
 ```bash
 magnet:?xt=urn:btih:74F513313FAA1DD82066B04B18368E486DC3A8B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +124,8 @@ magnet:?xt=urn:btih:74F513313FAA1DD82066B04B18368E486DC3A8B5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:74F513313FAA1DD82066B04B18368E486DC3A8B5
 ```bash
 magnet:?xt=urn:btih:BCC11274E008BCB3228F6506DAC9EC410BF06C92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:BCC11274E008BCB3228F6506DAC9EC410BF06C92
 magnet:?xt=urn:btih:28EB56232DEB4EF341BBD93CF9E4900A79298748
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:28EB56232DEB4EF341BBD93CF9E4900A79298748
 ```bash
 magnet:?xt=urn:btih:52BC8BE1D8140AD6EC47F4676FBAFA4FAF7FD32A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:52BC8BE1D8140AD6EC47F4676FBAFA4FAF7FD32A
 magnet:?xt=urn:btih:9CE60081B534F103D8A4F02245D5E995D35537CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:9CE60081B534F103D8A4F02245D5E995D35537CE
 ```bash
 magnet:?xt=urn:btih:5DEFBF2FB27688798EDD3BBD4242064EF0E8C841
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:5DEFBF2FB27688798EDD3BBD4242064EF0E8C841
 magnet:?xt=urn:btih:054BEA9F85930D6EDDDE7E40A0F4A39546EB9C61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:054BEA9F85930D6EDDDE7E40A0F4A39546EB9C61
 ```bash
 magnet:?xt=urn:btih:B143F50474F241CEA5C1DFECEB195A5551FDA3A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +332,8 @@ magnet:?xt=urn:btih:B143F50474F241CEA5C1DFECEB195A5551FDA3A6
 magnet:?xt=urn:btih:FE0EC55A8B1EBB563C8DC6670532568749863480
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:FE0EC55A8B1EBB563C8DC6670532568749863480
 ```bash
 magnet:?xt=urn:btih:195D994E6D2E59F3F24F4003B8C67011DB9AD055
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +384,8 @@ magnet:?xt=urn:btih:195D994E6D2E59F3F24F4003B8C67011DB9AD055
 magnet:?xt=urn:btih:EC1AA750BAD3E8ABC0335F5C4B6687C9A3DC989B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +409,8 @@ magnet:?xt=urn:btih:EC1AA750BAD3E8ABC0335F5C4B6687C9A3DC989B
 ```bash
 magnet:?xt=urn:btih:2215EF87C726E719F9F99071C258CB953319E382
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +437,8 @@ magnet:?xt=urn:btih:2215EF87C726E719F9F99071C258CB953319E382
 magnet:?xt=urn:btih:B233418AE45CC4E091938E8A9CCAE466AED0F7CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:B233418AE45CC4E091938E8A9CCAE466AED0F7CC
 magnet:?xt=urn:btih:E493525CBDD9C5EE59C410185B058BB8D1A50C5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +488,8 @@ magnet:?xt=urn:btih:E493525CBDD9C5EE59C410185B058BB8D1A50C5F
 ```bash
 magnet:?xt=urn:btih:787B8C463FA0A06092DB54E9507820998C62EBC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +516,8 @@ magnet:?xt=urn:btih:787B8C463FA0A06092DB54E9507820998C62EBC0
 magnet:?xt=urn:btih:C943D84EB36897C52B5D198EFE4431516CC2A0B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +541,8 @@ magnet:?xt=urn:btih:C943D84EB36897C52B5D198EFE4431516CC2A0B6
 ```bash
 magnet:?xt=urn:btih:4323A7F12B096B5EA5F74FB7CBB78E644C53F2E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +568,8 @@ magnet:?xt=urn:btih:4323A7F12B096B5EA5F74FB7CBB78E644C53F2E6
 magnet:?xt=urn:btih:C55708FAFA4D2F5C5DEBE1C8CA7F331E5B3772F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +593,8 @@ magnet:?xt=urn:btih:C55708FAFA4D2F5C5DEBE1C8CA7F331E5B3772F4
 ```bash
 magnet:?xt=urn:btih:635A6BD628C2A9FCF98295F12DA2B8EA24BEC426
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +620,8 @@ magnet:?xt=urn:btih:635A6BD628C2A9FCF98295F12DA2B8EA24BEC426
 magnet:?xt=urn:btih:FA43D2D0FB81EF66166202EDFF90198DAEF353AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +645,34 @@ magnet:?xt=urn:btih:FA43D2D0FB81EF66166202EDFF90198DAEF353AC
 ```bash
 magnet:?xt=urn:btih:0DAD69C52DB1EED4029C7D180B0D23276535E2D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 756825   (920709) от 14.02.2014
+
+Гравитация / Gravity (2013) BDRemux [1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доктор Райан Стоун, блестящий специалист в области медицинского инжиниринга, отправляется в свою первую космическую миссию под командованием ветерана астронавтики Мэтта Ковальски, для которого этот полет — последний перед отставкой. Но во время, казалось бы, рутинной работы за бортом случается катастрофа. Шаттл уничтожен, а Стоун и Ковальски остаются совершенно одни; (   Читать дальше...   )Производство: США, Великобритания / Reality MediaЖанр: Фантастика, триллер, драмаРежиссер: Альфонсо Куарон / Alfonso CuarónАктеры: Сандра Буллок, Джордж Клуни, Эд Харрис, Орто Игнатиуссен, Фалдут Шарма, Эми Уоррен, Башер Саваж, Дженис АхернПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский (forced, full), украинский (forced, full), английский (full, SDH)Продолжительность: 01:30:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99C85088F58FE6341200CC287239912A38C29B8A
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

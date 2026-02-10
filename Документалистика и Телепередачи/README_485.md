@@ -1,3 +1,29 @@
+###  Публикация: 1138877   (662120) от 31.05.2017
+
+Джон Кеннеди. Становление президента / JFK: The Making of a President (2017) HDTV [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм расскажет о ранних этапах жизни Джона Кеннеди, и событиях, которые сделали этого человека президентом, о его семье, путешествиях по нацистской Германии и фашистской Италии в предвоенные годы, о том, как формировалось мировоззрение Джона Ф. Кеннеди в его молодые годы, когда он страдал от плохого состояния здоровья и семейной трагедии.Производство: ВеликобританияЖанр: Документальный, история, биографияРежиссер: Эдуард КоттериллПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E7E111A65D233D338A0530221CD85F7780D7FEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138411   (662218) от 31.05.2017
 
 Засекреченные списки. Битва пророков: 10 главных прогнозов (Эфир от 27.05.2017) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:AA08870ADE30B96ECC12D1878BDFA13FA8A4CB6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:AA08870ADE30B96ECC12D1878BDFA13FA8A4CB6C
 magnet:?xt=urn:btih:62E46102B1EA5036087957893B949B47F00D45BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:62E46102B1EA5036087957893B949B47F00D45BB
 magnet:?xt=urn:btih:AF133E561A28652838FB553686ED46B3534EE6D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:AF133E561A28652838FB553686ED46B3534EE6D2
 ```bash
 magnet:?xt=urn:btih:56066401A8D170EC0E4861F6ED9BE424A42DF69B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:56066401A8D170EC0E4861F6ED9BE424A42DF69B
 magnet:?xt=urn:btih:F92F05049262489A7832A51FD61B849331B0910F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:F92F05049262489A7832A51FD61B849331B0910F
 ```bash
 magnet:?xt=urn:btih:757DED075BEAC9C0F7B38BF8CFEFCD528B467DCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:757DED075BEAC9C0F7B38BF8CFEFCD528B467DCA
 ```bash
 magnet:?xt=urn:btih:D3993B7D34F3636A1EB7E1086CDB69F7E406FA62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +236,8 @@ magnet:?xt=urn:btih:D3993B7D34F3636A1EB7E1086CDB69F7E406FA62
 magnet:?xt=urn:btih:FBD437A55E28BB84E8C72297897585346AA81B44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +267,8 @@ magnet:?xt=urn:btih:FBD437A55E28BB84E8C72297897585346AA81B44
 magnet:?xt=urn:btih:7B0F337842CBFA6F66B2254E0F237DA395F80BFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +292,8 @@ magnet:?xt=urn:btih:7B0F337842CBFA6F66B2254E0F237DA395F80BFF
 ```bash
 magnet:?xt=urn:btih:31BACBF6FCB961B10B8C0F508EF345EBBF226E3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +319,8 @@ magnet:?xt=urn:btih:31BACBF6FCB961B10B8C0F508EF345EBBF226E3B
 magnet:?xt=urn:btih:C4C6BFCB35729A56560B64CAE29B5109255727D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +344,8 @@ magnet:?xt=urn:btih:C4C6BFCB35729A56560B64CAE29B5109255727D2
 ```bash
 magnet:?xt=urn:btih:D84CC342555AEE07C2A7459B2076089961574C8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +371,8 @@ magnet:?xt=urn:btih:D84CC342555AEE07C2A7459B2076089961574C8C
 magnet:?xt=urn:btih:95B169B819C572C165C5B51413E02B0DC1923260
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +397,8 @@ magnet:?xt=urn:btih:95B169B819C572C165C5B51413E02B0DC1923260
 magnet:?xt=urn:btih:572228CF2783BE03898756DB8E159A49B2AAF35C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +422,8 @@ magnet:?xt=urn:btih:572228CF2783BE03898756DB8E159A49B2AAF35C
 ```bash
 magnet:?xt=urn:btih:F2C745F8C8A125AC5148F33C5110DC1BC134F829
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +450,8 @@ magnet:?xt=urn:btih:F2C745F8C8A125AC5148F33C5110DC1BC134F829
 magnet:?xt=urn:btih:EFD1D1DD2EEC40F6C2E4D30425F301B27A466AB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +475,8 @@ magnet:?xt=urn:btih:EFD1D1DD2EEC40F6C2E4D30425F301B27A466AB0
 ```bash
 magnet:?xt=urn:btih:DDCEB479D885B18D1DE1C3786E28386EA7601984
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +502,8 @@ magnet:?xt=urn:btih:DDCEB479D885B18D1DE1C3786E28386EA7601984
 magnet:?xt=urn:btih:088241A6F08121753027D9520483B90C79D8610A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +527,8 @@ magnet:?xt=urn:btih:088241A6F08121753027D9520483B90C79D8610A
 ```bash
 magnet:?xt=urn:btih:458BFCD5F7D71EDB29C22B4D933504858492CF76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +554,8 @@ magnet:?xt=urn:btih:458BFCD5F7D71EDB29C22B4D933504858492CF76
 magnet:?xt=urn:btih:0C92194D7F8F0DAE7C3EE03C30CEA42A1831DD79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:0C92194D7F8F0DAE7C3EE03C30CEA42A1831DD79
 ```bash
 magnet:?xt=urn:btih:006C8C616570E58B1E53B415C0F195E930E45913
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:006C8C616570E58B1E53B415C0F195E930E45913
 magnet:?xt=urn:btih:D0DFFF93F93EA6AA597F34B9206007C0B613B9D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +632,8 @@ magnet:?xt=urn:btih:D0DFFF93F93EA6AA597F34B9206007C0B613B9D7
 magnet:?xt=urn:btih:1CF266E8870349B022D5A3DC754A35F93DCD16E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:1CF266E8870349B022D5A3DC754A35F93DCD16E5
 ```bash
 magnet:?xt=urn:btih:27425B20A390A77295A9B9CBDBE823051D13564A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,34 +687,7 @@ magnet:?xt=urn:btih:27425B20A390A77295A9B9CBDBE823051D13564A
 magnet:?xt=urn:btih:0D59FC2560EC14E139993CAE955B1E182D5A32EC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224651   (664799) от 11.05.2018
-
-Евровидение 2018. Второй полуфинал / Eurovision 2018. Second Semi-Final (2018) WEB-DL [H.264/1080p-LQ] [UKR]
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй полуфинал Евровидение 2018 состоялся в Лисабоне в четверг, 10 мая в 22:00 часа.
-
-За место в финале конкурса поборолись исполнители из 18 стран.01. Норвегия. Александр Рыбак - «That's How You Write А Song»
-02. Румыния. The Humans - «Goodbye»
-03. Сербия. Саня Илич и Балканика - «Nova deca»
-04. Сан-Марино. Джессика и Дженифер Бренинг - «Who We Are»(   Читать дальше...   )Телекомпания: Live StreamЖанр: Телешоу, песенный конкурсПеревод: ОтсутствуетЯзык озвучки: украинскийСубтитры: отсутствуютПродолжительность: 02:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1396ADDF3AF78C26D7EB17CEACA962D9AE068169
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

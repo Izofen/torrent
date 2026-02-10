@@ -1,3 +1,32 @@
+###  Публикация: 944122   (442762) от 06.10.2015
+
+VA - Carefree Lounge (Laidback Chillout Music) (2015) [MP3|320 кб/с]<Jazz, Lounge>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything I Want - Jive Ass Sleepers
+02. Light of Day - Jive Ass Sleepers
+03. Smooth Talking - Jive Ass Sleepers
+04. Just Steam (Guitar Lead Version) - Adagio Music(   Читать дальше...   )Жанр: Jazz, LoungeПродолжительность: 00:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D532497DB5148FE2AC888C2D8233F0ED3B4E4C74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570491   (442875) от 17.08.2022
 
 VA - Club Energetic Drive (2022) [MP3|320 Kbps] <Club, House, Electro>
@@ -21,6 +50,8 @@ VA - Club Energetic Drive (2022) [MP3|320 Kbps] <Club, House, Electro>
 ```bash
 magnet:?xt=urn:btih:378554A32362EF4B8AD00451942FC71492BC4979
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - HarDD NRG OverDoZZe 9 (2022) Mixed by aQuaLuna [MP3|320 Kbps] <Trance, Hard
 magnet:?xt=urn:btih:07CDF6AB44CDABD69A2B8724239183FB7A643421
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Trance 100 Best Of (2015) [MP3|320 кб/с]<Trance, Uplifting Trance, Vocal
 ```bash
 magnet:?xt=urn:btih:EC251C501EFCEE118E615D2FD23F4E2CFCF13CBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Cherie Relax: Chill House (2020) [MP3|320 Kbps] <Chill House, Electro, Deep
 magnet:?xt=urn:btih:A592FB5989CEA0BD574820D96D14C50DDB2AF972
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Club Vivid: Electro Dance Music (2020) [MP3|320 Kbps] <Dance, House, Techno
 ```bash
 magnet:?xt=urn:btih:86E33A4AF7F6604FF0B0BE11707866B137FE7B42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Night Fusion: Pure Deep House (2020) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:DB3B40E119261B3D5BABEAEEA3927B756CDE9487
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Music News vol.38 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
 ```bash
 magnet:?xt=urn:btih:EADD158E0E23988E63FE63C43C07CB5A0FBF6FE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Panopticum: Punk Rock Compilation (2020) [MP3|320 Kbps] <Punk, Rock Punk>
 magnet:?xt=urn:btih:CF9F5537D2DE9F56ED8BFBB67E89D60D8B286E56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Tight Drum And Bass: Bassline Positive Session (2020) [MP3|320 Kbps] <Drum 
 ```bash
 magnet:?xt=urn:btih:A76C2A7D35A4CA89268B896C0685D426D881E681
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +318,8 @@ VA - Инструментальная музыка (2012) vol. № 88 [MP3|320 �
 magnet:?xt=urn:btih:793BA79B6CBEC51938585CD472AE9CDCA5A05626
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +352,8 @@ VA - Инструментальная музыка (2012) vol. № 87 [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:C4F2F742B1ADD3EDA7E77F728E0CF7D09272E1D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +388,8 @@ VA - Инструментальная музыка (2012) vol. № 85 [MP3|320 �
 magnet:?xt=urn:btih:1935E32AA066A82CF3C9D1AF5E45AE493608B5D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +422,8 @@ VA - Инструментальная музыка (2012) vol. № 86[MP3|320 к
 ```bash
 magnet:?xt=urn:btih:A7CAC7A4923B39E1C1BC21C0AE5E3C71BEB98B1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +458,8 @@ VA - L.O.V.E. Vol.11: Chillout Music Collection (2012) [MP3|320 кб/с]<Chillou
 magnet:?xt=urn:btih:942D637501FFE5284970928F5AE2607C3CB63760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +487,8 @@ VA - Therapy Of The Soul: New Age Current Version (2017) [MP3|320 Kbps] <New Age
 magnet:?xt=urn:btih:882610442E8C50C54B2AC1C8ED4DC9B1BE2A1D6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +515,8 @@ VA - Лабиринты любви (2017) [MP3|256-320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:90362DC17E4F218611AB9A979F9B867BB91EC795
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +551,8 @@ VA - Best Of Dubstep 2012 (2012) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:5DC51ADB38BCD21C9C47D61FB0F856F831CB3001
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +585,8 @@ VA - Super Dance Party Autumn (2012) [MP3|320 кб/с]<Club, Dance>
 ```bash
 magnet:?xt=urn:btih:351AD033950F70CDC303DD33CF147BDE07545A4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +621,8 @@ VA - Vocal Passion Vol.42 (2012) [MP3|320 кб/с]<Vocal Trance>
 magnet:?xt=urn:btih:6D229BF449E4B7AAFD5CFA1DC1FF38F9AD8009D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +656,8 @@ VA - Клубный Танцпол осень (2012) [MP3|320 кб/с]<Dance, Cl
 magnet:?xt=urn:btih:2A157F10EED20780A10A86C22CEBA4C477543AFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +685,8 @@ VA - Только хиты Хит FM. Часть 10 (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:FC17E0404A75DA3E8F2CAB42192762F322ECB8D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +713,8 @@ VA - Chill Piano (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
 ```bash
 magnet:?xt=urn:btih:D85E9D5A54B1E398B1543E5198A8A4A76DDC3E37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,6 +749,8 @@ VA - This Is Dubstep 2012 (2012) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:9441E946FA792DDD22D79AE98056C57DA04ED099
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -702,6 +777,8 @@ VA - The Story Of Lovers (2016) [MP3|320 Kbps] <Pop, Rock Lyric>
 ```bash
 magnet:?xt=urn:btih:90A52B18E8CD4B5747502F1158E8955C24FFABCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -730,32 +807,7 @@ VA - Хит атака 9 (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:BF11ECA2FE1B01F9F64F18485FAD0E8B49096520
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943862   (444611) от 05.10.2015
-
-VA - Дискотека 80-90-2000 годов по - новому (DJ NIKOLAY - D) от Виталия 72 (Зарубежный выпуск - 16) (2015) [MP3|320 кб/с]<Italo Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fr David & Dj Nikolay-D - Words(Dj Nikolay-D Remix ) (04:16)
-02. Fancy - Fools Cry(Dj Nikolay-D & Joemix Dj Remix ) (07:48)
-03. Silent Circle - Shy Girl(Dj Nikolay-D & Joemix Dj Remix ) (05:25)
-04. Johnny M5 & Dj Nikolay-D - Moscow Nights(Dj Nikolay-D Bonus Remix ) (07:04)(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 04:40:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D366B762166675471348AEB2080E08E8D1648CFD
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

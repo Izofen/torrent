@@ -1,27 +1,3 @@
-###  Публикация: 1290162   (680428) от 19.03.2019
-
-Hidden Expedition 16: The Golden Secret (2017) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Штаб-квартира H.E.L.P. прерывает ваш горнолыжный отпуск с важным заданием: отправиться в Женеву, чтобы приобрести древний артефакт, который возможно содержит информацию о происхождении H.E.L.P. Но это будет нелегко. Вы должны стать победителем торгов на аукционе с высокими ставками. У H.E.L.P. конечно есть деньги! К сожалению, Вы не единственные, кто заинтересовался (   Читать дальше...   )Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF734107565F11A3B0E945FCCEFEC578A73AC760
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290163   (680429) от 19.03.2019
 
 Mystery of the Ancients 7: Black Dagger (2018) [En] (1.0) Unofficial [Collector's Edition]
@@ -42,6 +18,8 @@ Mystery of the Ancients 7: Black Dagger (2018) [En] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:8F7E076DAC38FC264A4729226CC695DD676C7A1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Woodcutter Simulator 2012 (L) [Multi3/-] 2012 | PROPHET
 magnet:?xt=urn:btih:933E51E0243286D0F189EA2DF6A8953074B064A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ The Falling Nights (2017) [En/Es] (1.0.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:AD1C921F258CAE2EA3011ECCCD8E130742D4C851
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Emporium - короткая интерактивная виньетка. Emporiu
 magnet:?xt=urn:btih:5C5B3953DCC36A9803B48CBD175CFD99E1291AF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Infected: The Twin Vaccine Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:F14336EF73AFAF9B70878C806D7990ABA8C87CBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ SUPERHOT (2016) [Ru/Multi] (1.0/upd9) License PROPHET
 magnet:?xt=urn:btih:610BD655A7E7374B5BF6A021701760EBA1D47EA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Darkness Assault (2015) [Ru/En] (1.03 f1/dlc) Repack Other s [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:6C39529EA06B40E0A4B3715E24765C864CF4B86B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ On Rusty Trails - стильный иллюстративный платформ
 magnet:?xt=urn:btih:168E59AA91E46DC800CCB0B7DD2B32FE578D30C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Prey (2017) [Ru/Multi] (1.0/dlc) License CPY
 ```bash
 magnet:?xt=urn:btih:7113E5D615C56F5351F8B4AEA6A50D0DA70F9D3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Reservoir Dogs: Bloody Days (2017) [Ru/Multi] (1.0) License HI2U
 magnet:?xt=urn:btih:E8010E58823D54B8C82384E41B4E157A28742742
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ Hockey Question Mark (2017) [En] (0.55 uh .59) Unofficial
 magnet:?xt=urn:btih:7AEC5632E829BAC688151DD99E245753A08B252F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +304,8 @@ Tales of Terror 3: Estate of the Heart / Трепетные Истории 3: П
 ```bash
 magnet:?xt=urn:btih:12D516F216E5CF0DA86EC06D7C03C0C70F268AF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +333,8 @@ Lemma (2015) [Multi] (1.0) License RELOADED
 magnet:?xt=urn:btih:D16FA5B76F8F761D62759DBF9C678902FBB5C6A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +358,8 @@ Lost Trails / Остров: Затерянные судьбы (2015) [Ru] Unoffi
 ```bash
 magnet:?xt=urn:btih:0A98C84EA618A6868D0AAE854D42C8C6DABE3609
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +385,8 @@ Lost Lands: The Four Horsemen / Затерянные Земли. Четыре В
 magnet:?xt=urn:btih:925D932C72DFF3E3AE38C990B5C36C7B181AE506
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +410,8 @@ DooM in the Dark (2019) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:A8B8AB2FE91CC28BDB2414F0546BEDB2E0819404
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +437,8 @@ Secret City 2: The Sunken Kingdom / Тайный город 2: Затонувш�
 magnet:?xt=urn:btih:593195E797FD3A107633F778E6FDA7879909CC77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +462,8 @@ Coffin Dodgers (2015) [Ru/Multi] (1.2.4) Repack Other s
 ```bash
 magnet:?xt=urn:btih:FD0A72A69F86C7BE10345B8F35A66536E21C3228
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +491,8 @@ The Bad, the Ugly and the Sober / Злой, плохой и трезвый [Ru] 
 magnet:?xt=urn:btih:45D664AEB193664CA13F1601EDEC53231D9B2D72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +516,8 @@ Fright Chasers 4: Thrills, Chills and Kills / Ловцы Страхов 4: Тр�
 ```bash
 magnet:?xt=urn:btih:E25D532A31C1529E3B00C31728D5DE41C361F46F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +543,8 @@ Myths of the World 14: Love Beyond (2017) [En] (1.0) Unofficial [Collector's Edi
 magnet:?xt=urn:btih:1093D82C12334D81FA09944A62F3B201BE89DA62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +568,8 @@ Tales of Lagoona 3: Frauds, Forgeries, and Fishsticks (2018) [En] (1.0) Unoffici
 ```bash
 magnet:?xt=urn:btih:3915BFA57E7928C07DFEB08FCBFB7168DD19742E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +595,8 @@ Hiddenverse. The Iron Tower (2018) [En] (1.0) Unofficial
 magnet:?xt=urn:btih:EF8375F9C5F4E952E4B509E35FC7FA95CB5F18F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +621,8 @@ CRIMSON METAL – это хардкорный, брутальный, динам�
 magnet:?xt=urn:btih:92C5DCC5E67F83F03430A0336DDAA0C20A52BE12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +646,34 @@ Empathy – приключенческая игра от первого лица
 ```bash
 magnet:?xt=urn:btih:3326C25D66BEE65E419ACAF7B9839C93122A5086
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134884   (684365) от 17.05.2017
+
+Shio (2017) [Ru/Multi] (1.0.1) License HI2U
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shio - это игра, которая не покажется вам слишком простой или скучной. И это не просто платформер, где придется бессмысленно прыгать с одного места на другое, игрокам предстоит разгадать загадку главного протагониста игры. Кто он, зачем он носит маску, что он делает в этом мире, ответы на эти и многие другие вопросы. Фонарики в игре не просто декорация, а главный (   Читать дальше...   )Тип издания: LicenseРазработчик: Coconut Island StudioЖанр: Arcade (Platform), 3D, 3rd PersonЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C93C20BDA1DC5CD05D0ABF461D7A2E240E2EFFA4
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

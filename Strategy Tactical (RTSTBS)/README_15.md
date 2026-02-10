@@ -19,6 +19,8 @@ Warhammer 40,000: Mechanicus (2018) [Ru/Multi] (1.2.6) Repack R.G. Catalyst
 magnet:?xt=urn:btih:B467C5B7CC546FC54046ED0274C48434B677348C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Satellite Reign - это стратегия в реальном времени. 
 ```bash
 magnet:?xt=urn:btih:DE4F3EE77753A84B6CC8B6D6F3FC937347A697F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Meridian: Squad 22 — это продолжение стратегии в ре�
 magnet:?xt=urn:btih:CA3942944ADE782E50712DBC89C7AFB4332DFFD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Meridian: Squad 22 является продолжением футуристи�
 ```bash
 magnet:?xt=urn:btih:47A68FAF8096014D3B05BE6FF4DACF575B1139BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ ________________________________________________________________________________
 magnet:?xt=urn:btih:0DDF60381200D6DCAD3F3E1B21481F802890AAFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Fell Seal: Arbiter's Mark – пошаговая тактическая роле
 ```bash
 magnet:?xt=urn:btih:5B39CF8BEBFFD811FE8112194D965FC2235D8017
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Fell Seal: Arbiter's Mark – пошаговая тактическая роле
 magnet:?xt=urn:btih:A5963C623A12369CF7DD583E108D28B3D8074431
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Company of Heroes 2 (2014) [Ru/En] (4.0.0.23166/dlc) Repack =nemos= [Master Coll
 ```bash
 magnet:?xt=urn:btih:072CEBA68370B2864E1012B737B25702975A62A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Ultimate General: Civil War (2017) [Ru/Multi] (1.0.20111) License CODEX
 magnet:?xt=urn:btih:208601C3C1BC6A56E5F7FA6C0CDF23A3C1A9601B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ The Banner Saga 2 продолжает события предыдущей ча�
 ```bash
 magnet:?xt=urn:btih:F4D7F27A257ED5DFD6CAB5D224EA7EDC76266DC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Hegemony III: Clash of the Ancients (2015) [En] (3.3.6.4/dlc) License GOG
 magnet:?xt=urn:btih:3FF8CB0E8651DDBD044EE18724E5F50D8660B4DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Partisans - тактический экшен с элементами выжив
 ```bash
 magnet:?xt=urn:btih:50E0DA1E01873D3798D9A9C057AF28AEAF9D090A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ FTL: Faster Than Light (2012) [Ru/Multi] (1.6.12) License GOG [Advanced Edition]
 magnet:?xt=urn:btih:1F0DD0F07CDA8956CF6376BAB6FA4DAEADDD7634
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Driftland: The Magic Revival (2019) [Ru/Multi] (2.0.112) License GOG
 ```bash
 magnet:?xt=urn:btih:4C53BE4F084176E31F8EFD258C87080D9629A506
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Halo Wars 2 (2017) [Ru/Multi] (1.0.1130815) Repack xatab
 magnet:?xt=urn:btih:703BB336222DAD43AE72539652A7F99F2E143A5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Steam Squad - тактический варгейм, где альтернати
 ```bash
 magnet:?xt=urn:btih:14A42DA355E47E761CFA41CDD6382D382F328569
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Steam Squad - тактический варгейм, где альтернати
 magnet:?xt=urn:btih:29F08A6530C7F6D0FB2176867A69DB12693FDCA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ BANNERMEN (2019) [Ru/Multi] (1.1) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:A3D9AFD030EB5AE210D3BBCC6D612D04198BCF4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Driftland: The Magic Revival – стратегия в реальном врем
 magnet:?xt=urn:btih:600908FCF483E1A4C9BC3155D9855E8FE9D7B02B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ Skulls of the Shogun (2013) [Ru/Multi] License FANiSO
 magnet:?xt=urn:btih:D3842E687499C7DE9117EEB738F1A3ACF1892A34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Infinium Strike, игра в жанре тактической защиты ба
 ```bash
 magnet:?xt=urn:btih:BF3650E7ECDCA1CFD695D00638997E7E827AB8FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Panzer Tactics HD (2014) [Ru/Multi] (1.0.2) Repack xGhost
 magnet:?xt=urn:btih:D2A609F2F465807CA853FF3989C5A81134C06D63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Satellite Reign — стратегия в реальном времени с п�
 ```bash
 magnet:?xt=urn:btih:A027B9DE270930C1A0AA06673AD248C0977E1494
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ BANNERMEN (2019) [Ru/Multi] (1.1) License RELOADED
 magnet:?xt=urn:btih:724DF2865FCFE0413AB538EE8021E9B26C6DD549
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Infinium Strike — это космическая стратегия-экшен,
 magnet:?xt=urn:btih:0C4B8ACB6C4100746735D2C87AC78F2AF6881108
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ TASTEE: Lethal Tactics (2016) [Ru/Multi] (1.0/dlc) License CODEX [Ultimate Colle
 ```bash
 magnet:?xt=urn:btih:8F8E7C4A722699636D67FA81BFEC0C860A98E8CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8DB42908DC6AE0BC8DCC26CA7777E3166BBF661B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:8DB42908DC6AE0BC8DCC26CA7777E3166BBF661B
 ```bash
 magnet:?xt=urn:btih:C8D60A3C5E31725576D970A5932AAA8E814ED5E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:C8D60A3C5E31725576D970A5932AAA8E814ED5E5
 magnet:?xt=urn:btih:F5D63CD6322E310529CC26A168AB9BAE55330C7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:F5D63CD6322E310529CC26A168AB9BAE55330C7E
 ```bash
 magnet:?xt=urn:btih:F9DBA5F4A64DC99F39C8F79FE66EBD363AB60683
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:F9DBA5F4A64DC99F39C8F79FE66EBD363AB60683
 magnet:?xt=urn:btih:253BDDDFBC26B8F54CC6026CA47708355F14AA8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:253BDDDFBC26B8F54CC6026CA47708355F14AA8C
 ```bash
 magnet:?xt=urn:btih:D7BB3E25D0AED955C07DA3A307BD821DB7FACFCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Minecraft - строительная компьютерная игра от пе
 magnet:?xt=urn:btih:3ABC5DEB209D80D02C17C8E9737C38F177F3B5DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Battlefield 3 оставляет позади всех своих конкуре
 ```bash
 magnet:?xt=urn:btih:CC3D330FFD5E998BF81B33D2087B1A8D77791CF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Windows 10 (x86/x64) + Office 2016 20in1 by SmokieBlahBlah 09.12.15 [Ru]
 magnet:?xt=urn:btih:E87EF6768F6734C20BF740823C9C7674EA1B2232
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Hard West (2015) [Ru/Multi] (1.3) SteamRip Let'sРlay [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:B0D01CCABBB285F86CDB9A49B37F39072CE8B0B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:B0D01CCABBB285F86CDB9A49B37F39072CE8B0B3
 ```bash
 magnet:?xt=urn:btih:65F24A5DDFCC7495407EB109F2187A6FCC4B966B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ VA - Супер 100-ка Музыкальной дискотеки 50х50 (2015)
 magnet:?xt=urn:btih:5D9F2C3734BA30EF7865D4DCD695B4AE2CCFEC69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Dead Space 2 (2011) [Ru/En] (1.1/upd1/dlc/tr) Repack =nemos= [Limited Edition]
 ```bash
 magnet:?xt=urn:btih:658814C1199979286D995719CB0105130F555D4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ VA - Uplifting Only - Fan Favorites 2014 - 2015 (Mixed by Ori Uplift) (2015) [MP
 magnet:?xt=urn:btih:420BCB8C2E8F387438583C0B637F9321A9F8CD58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ STASIS – это приключенческая игра «укажи и щел
 ```bash
 magnet:?xt=urn:btih:197353F3B6FE8E4FF2DAB95EDCCF1C1BAD897FA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ The Ritual on Weylyn Island (2015) [Ru/Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:D4DD408DD5085D5830D2E5D255E2B2481498618A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:D4DD408DD5085D5830D2E5D255E2B2481498618A
 ```bash
 magnet:?xt=urn:btih:5619DACB1D270DFC3DB847D91CE3D9B29F9601B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:5619DACB1D270DFC3DB847D91CE3D9B29F9601B7
 magnet:?xt=urn:btih:1854CE5FB731958AFA0451BAD7834EFADCECBED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Elementary OS Freya — это дистрибутив позиционируем
 ```bash
 magnet:?xt=urn:btih:82FCCCCA86184154170914CC82EEE8B5BCFDD4F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:82FCCCCA86184154170914CC82EEE8B5BCFDD4F3
 magnet:?xt=urn:btih:F19AB6CFA37DABCC11665619A67249200238FC7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:F19AB6CFA37DABCC11665619A67249200238FC7B
 ```bash
 magnet:?xt=urn:btih:824CB4333C1ACC93B977E55128EAEEC31F25639A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:824CB4333C1ACC93B977E55128EAEEC31F25639A
 magnet:?xt=urn:btih:04AC9B5268B0DB042D712DA3E6B4F42838C324D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Charlotte | Шарлотта [2015, TV, 13 эп.] WEB-DL 720p raw
 ```bash
 magnet:?xt=urn:btih:E9F008B56B3D7A701251D8D71653115BB1EA1D5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:E9F008B56B3D7A701251D8D71653115BB1EA1D5A
 magnet:?xt=urn:btih:AD0595C0F3421BC0EA7E0978C8DA6DA40E9B4F8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Adobe Photoshop CC - это комплексное решение для про�
 magnet:?xt=urn:btih:A5A4D46961AEB64D8E623966B4835E295F5F38AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:A5A4D46961AEB64D8E623966B4835E295F5F38AB
 ```bash
 magnet:?xt=urn:btih:34C50ACC482EE223BBBEC366F1439EADE8809660
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

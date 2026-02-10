@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:875731A1D15DB7038C568730AB9BAD4330C213B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:875731A1D15DB7038C568730AB9BAD4330C213B4
 ```bash
 magnet:?xt=urn:btih:A783DB84620EE4D9C6BDBA8B2DF254A61E323B48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:A783DB84620EE4D9C6BDBA8B2DF254A61E323B48
 magnet:?xt=urn:btih:524CF5E45FF5CB8190CD0F9FF7E9853FECA57150
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ SlrLounge | Complete Wedding Photography Training System (2018) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:673AB451E57FA7B8FD38651B006842861D0BC225
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:673AB451E57FA7B8FD38651B006842861D0BC225
 magnet:?xt=urn:btih:6821634ADC645DBABDB43DF98D2476E1117BCAD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ Udemy, Chris Sivewright | Strokes disable. Heart attacks/strokes also kill - tho
 magnet:?xt=urn:btih:850F30BE0FDC903CC5659FC3AF2166154148D894
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ Udemy, The Table Of Bosses, Cornell Literacy | ChatGPT Python Alchemy: Elevate Y
 ```bash
 magnet:?xt=urn:btih:D79A88725B0632122504C6812D90D418F815EFE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -206,6 +220,8 @@ English with Lucy | English Grammar Challenge (2022) WEB-DL [AD] [EN / EN Sub]
 magnet:?xt=urn:btih:DB6EDE9F69FE00BA9D1D43B75E3098E6002B01B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +248,8 @@ English With Lucy | The Idioms Challenge (2022) WEB-DL [AD] [EN / EN Sub]
 ```bash
 magnet:?xt=urn:btih:A3081614815D64F97694AD044AE54585BBF6F0D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +278,8 @@ English With Lucy | The Vocabulary Expansion Challenge (2023) WEB-DL [AD] [EN / 
 magnet:?xt=urn:btih:2CF82807FBEAD4BDCE68F9DCB6A27ABC9E9FF7DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +305,8 @@ AEJuice | I Want To Learn It All Bundle (2021) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:A4BAEDFF18E1EFF1EC581C2CF53E16D137119BC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +335,8 @@ Profileschool, Артур Орлов | Основы создания музык�
 magnet:?xt=urn:btih:C308F03BFF495890EA11D2E8B37754C698258941
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +363,8 @@ English With Lucy | The Collocations Challenge (2022) WEB-DL [AD] [EN]
 ```bash
 magnet:?xt=urn:btih:13A486DA5EF1C45A8C2DE00357064FD6108AB7BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +393,8 @@ magnet:?xt=urn:btih:13A486DA5EF1C45A8C2DE00357064FD6108AB7BB
 magnet:?xt=urn:btih:1BB1E296597E3847531CFD46DF9187DE443E960E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +418,8 @@ Fstoppers, Andres Moline | Mastering Macro Photography - The Complete Shooting a
 ```bash
 magnet:?xt=urn:btih:6F54A12B2587AA261DBC32C66A91937A394F6314
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +447,8 @@ magnet:?xt=urn:btih:6F54A12B2587AA261DBC32C66A91937A394F6314
 ```bash
 magnet:?xt=urn:btih:903DEA2FC2C0AC71FF5F5973581C223557C5202A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ magnet:?xt=urn:btih:903DEA2FC2C0AC71FF5F5973581C223557C5202A
 magnet:?xt=urn:btih:C809DB33442066D7C05A1F90F91D4237F66C897B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +508,8 @@ magnet:?xt=urn:btih:C809DB33442066D7C05A1F90F91D4237F66C897B
 ```bash
 magnet:?xt=urn:btih:FF65C4CD15C807F449D1B9065458F28B1C638A62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +535,8 @@ CG Fast Track | Искусство освещения в Blender 2.83 / The Art 
 magnet:?xt=urn:btih:EF799E1421086BA131E0E93BE33DBD945583FFFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +561,8 @@ Vitaly Bulgarov | Character Design and Modeling for Next-Gen Games (2009) PCRec
 magnet:?xt=urn:btih:FF48391C8C350EAA08B4CBE5BB5324E1CDB0C9A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +586,8 @@ CG Fast Track | Быстрый путь в Substance Painter: Основы / Sub
 ```bash
 magnet:?xt=urn:btih:150307F39B17A3CDDBB2D2BAB622D181D3AFAEB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +614,8 @@ Udemy, Irek Mirgaleev | Test-Driven Development Masterclass with Angular (2019) 
 magnet:?xt=urn:btih:E09FD9C9679CDA21DBEE28A0391D42A248304D2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +639,8 @@ Udemy, Daniel Gakwaya | The C++20 Masterclass : From Fundamentals to Advanced (2
 ```bash
 magnet:?xt=urn:btih:B61577E537D1AE384A4BC90B8FFB98C03AD4CBE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +667,8 @@ English with Lucy and Linguamarina | Boost Your Vocabulary (2022) WEB-DL [AD] [E
 magnet:?xt=urn:btih:9453BAAC9741E25CF5FB043B2FFBE9D60615D9E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +693,8 @@ Itproger | Изучение Java (2018) PCRec [H.264/1080p-LQ]
 magnet:?xt=urn:btih:21D44429D951E60076CA08F71D478E89516730EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +718,8 @@ Itproger | Создание Андроид игры на Unity 5 (2018) PCRec [H
 ```bash
 magnet:?xt=urn:btih:B27F285FEBDACFE70CC7EE99A5897A5F19D58567
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

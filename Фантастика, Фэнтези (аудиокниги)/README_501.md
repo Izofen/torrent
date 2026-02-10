@@ -1,3 +1,29 @@
+###  Публикация: 1366618   (921752) от 12.03.2020
+
+Дикон Шерола | Черный Барон. Часть 2. По ту сторону зелёной сетки (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всё свое детство Дима Лесков провел в обшарпанном интернате на окраине Петербурга. Он не знал, кто его родители, где его настоящий дом, и уж тем более он не мог знать, почему видит в темноте и внушает людям страх. Оказавшись за пределами детского дома он впервые встречает себе подобного. Вот только с его появлением у Дмитрия погибает лучший друг, а сам он оказывается (   Читать дальше...   )Жанр: Фантастика, фэнтезиЯзык озвучки: РусскийПродолжительность: 05:56:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:297AE0C9329BA504B44BF402ED50CF5540FD6E0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366519   (921755) от 12.03.2020
 
 Антон Текшин | Волшебство не вызывает привыкания. [Книга 2] (2020) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:2F7D81C6A841688401C96FDF8BB12AB4F2061A6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:2F7D81C6A841688401C96FDF8BB12AB4F2061A6C
 magnet:?xt=urn:btih:FEF3EF9F23E73DCAC7CCF1D1B4DF1544E82FDC6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:FEF3EF9F23E73DCAC7CCF1D1B4DF1544E82FDC6A
 magnet:?xt=urn:btih:B0473A450444DDE24123B54E42B44D649EDA3B93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:B0473A450444DDE24123B54E42B44D649EDA3B93
 magnet:?xt=urn:btih:69ECEF01F59AA9BD261C20444D010D034516BB30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:69ECEF01F59AA9BD261C20444D010D034516BB30
 ```bash
 magnet:?xt=urn:btih:E58281BCB98E9D960FAF0A77C9112D703A20AFFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:E58281BCB98E9D960FAF0A77C9112D703A20AFFD
 magnet:?xt=urn:btih:D813EB493AD305ECCDCF85849A915B3E48555461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:D813EB493AD305ECCDCF85849A915B3E48555461
 ```bash
 magnet:?xt=urn:btih:FB47C77DB20CB680B7813E4960B5606B4E1E2DC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:FB47C77DB20CB680B7813E4960B5606B4E1E2DC2
 magnet:?xt=urn:btih:D72A883F68981240D9FA3F9CE4012104A59325FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:D72A883F68981240D9FA3F9CE4012104A59325FD
 ```bash
 magnet:?xt=urn:btih:098223D85D1A920699DB84C9E9E9314A2605FA90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:098223D85D1A920699DB84C9E9E9314A2605FA90
 magnet:?xt=urn:btih:B34ADC6558044C57C1A206235C9A162AE3154275
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:B34ADC6558044C57C1A206235C9A162AE3154275
 ```bash
 magnet:?xt=urn:btih:770596A00133E2E87CC427C306B1FACBF1CE71C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:770596A00133E2E87CC427C306B1FACBF1CE71C3
 magnet:?xt=urn:btih:78A1ECC4C9EFB9F2C8039F039A401B9883F2D593
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:78A1ECC4C9EFB9F2C8039F039A401B9883F2D593
 ```bash
 magnet:?xt=urn:btih:BB0DEBC87C154B2C070D2F3CD06A03258FC11038
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:BB0DEBC87C154B2C070D2F3CD06A03258FC11038
 magnet:?xt=urn:btih:1CEFA64404BDF698464471DD84A93A8A03FB30A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +417,8 @@ Nuclear Warhead Cooked in Wine | Рай Монстров (2020) [MP3]
 magnet:?xt=urn:btih:9C36AA1F231D27807DE915DB90655FD7B7177199
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:9C36AA1F231D27807DE915DB90655FD7B7177199
 ```bash
 magnet:?xt=urn:btih:748B34B8BCFCD7ECA49F8145AC8866216D66B1D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +472,8 @@ magnet:?xt=urn:btih:748B34B8BCFCD7ECA49F8145AC8866216D66B1D8
 magnet:?xt=urn:btih:9804BB7883456C89A40D124F1F1065CF0F067EFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +500,8 @@ magnet:?xt=urn:btih:9804BB7883456C89A40D124F1F1065CF0F067EFC
 magnet:?xt=urn:btih:6E3FC4C4F669FFF7A112F031F62D48313964E206
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:6E3FC4C4F669FFF7A112F031F62D48313964E206
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +554,8 @@ magnet:?xt=urn:btih:6E3FC4C4F669FFF7A112F031F62D48313964E206
 magnet:?xt=urn:btih:EA54851D9E7AFFF99DB9A186F2F0B4AEC298C26C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:EA54851D9E7AFFF99DB9A186F2F0B4AEC298C26C
 ```bash
 magnet:?xt=urn:btih:F4B2E4AED51B495D5400A6FB38996BC8801E7820
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:F4B2E4AED51B495D5400A6FB38996BC8801E7820
 magnet:?xt=urn:btih:5D17718D130915586023586476BE39810F45D755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:5D17718D130915586023586476BE39810F45D755
 ```bash
 magnet:?xt=urn:btih:4FDB834EB7012BBD0EAEBB7984D035E2257EBDB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:4FDB834EB7012BBD0EAEBB7984D035E2257EBDB6
 ```bash
 magnet:?xt=urn:btih:DD829F2B99126F94B495654DB164D3519F66C48E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,29 +688,7 @@ magnet:?xt=urn:btih:DD829F2B99126F94B495654DB164D3519F66C48E
 magnet:?xt=urn:btih:6A1CF8F29301618CF40472102EBCE4EE5B58B5ED
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366067   (925498) от 10.03.2020
-
-Nuclear Warhead Cooked in Wine | Рай Монстров (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Примерно восемь веков назад, по всему миру внезапно начали открываться тысячи межпространственных врат, из которых в нашу реальность проникли жуткие паранормальные твари. И мощь их была невероятна - одни были столь сильны и столь огромны, что крушили всё на своем пути и ничто не могло их остановить. Другие были паразитами - они крепились к людям, вытягивали из них (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 03:32:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC3E32474D088A7838242E5F793C0FCCDAA69296
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Zoeti уж точно нельзя назвать типичным карточ�
 magnet:?xt=urn:btih:82F37FD123B4072E6896D776CDB6920F15009A76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:82F37FD123B4072E6896D776CDB6920F15009A76
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ The Sinking City – игра-расследование. События про�
 ```bash
 magnet:?xt=urn:btih:C16A8632E7C279EBCD7AC1E749A30CFDBFE89C5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:C16A8632E7C279EBCD7AC1E749A30CFDBFE89C5D
 magnet:?xt=urn:btih:3616C37638C4E17B9DA4F9492EC4EAF74FEF1815
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:3616C37638C4E17B9DA4F9492EC4EAF74FEF1815
 ```bash
 magnet:?xt=urn:btih:D3A41AC05DD7BF1239330D0246E0F1F121E76259
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Charlie Musselwhite - американский исполнитель на гу�
 magnet:?xt=urn:btih:7803048FB6236411369375AD7026B0294F65529E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:7803048FB6236411369375AD7026B0294F65529E
 magnet:?xt=urn:btih:000879E1BAED3CCF766229A886BFC34D9FFE2941
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (1.01b 731056) Scene Rune
 ```bash
 magnet:?xt=urn:btih:367E27DE8E514D9437859A9E3E2E96AC96C15DA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:367E27DE8E514D9437859A9E3E2E96AC96C15DA7
 magnet:?xt=urn:btih:86942E2788B2218FFE1630ADDD62C928B6A7006D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:86942E2788B2218FFE1630ADDD62C928B6A7006D
 ```bash
 magnet:?xt=urn:btih:25C5BAF8CF6A7E3596986ED3D5C2BEBA79616705
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:25C5BAF8CF6A7E3596986ED3D5C2BEBA79616705
 magnet:?xt=urn:btih:E52FF5B842144899623DEC593F857EE9652F9927
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:E52FF5B842144899623DEC593F857EE9652F9927
 ```bash
 magnet:?xt=urn:btih:AAE289935775ED12B93D9FECC4C40F0886B4A517
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ AVZ - Бесплатная быстро работающая антивирус�
 magnet:?xt=urn:btih:0BCD5F4D6BB03EB0EDC6AB2E49ADBEA4E55FE4E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:0BCD5F4D6BB03EB0EDC6AB2E49ADBEA4E55FE4E8
 ```bash
 magnet:?xt=urn:btih:551F29C77ED4DDC30E76BEBB8C07A41B9513A8BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ AmneziaWG 1.1.2 [Ru]
 magnet:?xt=urn:btih:F9C070C7D7C24FDF320E6CA6C6554D3ADF830D55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:F9C070C7D7C24FDF320E6CA6C6554D3ADF830D55
 magnet:?xt=urn:btih:CBA9749C149DDE46CE42C2A1377D883F713B1860
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:CBA9749C149DDE46CE42C2A1377D883F713B1860
 ```bash
 magnet:?xt=urn:btih:3B0D8F5D7DFF77248DF8F7F2DAD3EAD505A95C97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ Shin Seiki EvangelionЯпония, 1995–1996 годы.
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ Sanctorium - метал-группа из России, г. Санкт-Пете�
 magnet:?xt=urn:btih:EC9357AEA626BFB48D29C842601BE4D596717BA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ Dungeon no Naka no Hito | Dungeon People | Люди подземелья [2024, 
 ```bash
 magnet:?xt=urn:btih:C17CF108EE5157F2B9C6C63A2887FD4C9CA071CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ Hataraku Saibou Black | Cells at Work! Code Black | Клетки за работ
 magnet:?xt=urn:btih:1EEE399E05F11DCCF7EF96F5CDD1FC2C1F79488A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ Tsuki ga Michibiku Isekai Douchuu | Tsukimichi: Moonlit Fantasy | Лунное �
 magnet:?xt=urn:btih:DC47B88FF29C2D88E503F5505137B8F392FD1A55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ Tearmoon Teikoku Monogatari: Dantoudai kara Hajimaru, Hime no Tensei Gyakuten St
 ```bash
 magnet:?xt=urn:btih:6E1875F75C876D4A4809D5747C5906ECFE330C9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ Charlie Musselwhite - Look Out Highway (2025) [FLAC|Lossless|tracks + .cue] <Har
 magnet:?xt=urn:btih:ED7B799E2780F8A9331E448632D91A39C8C8A57A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ CD1:
 magnet:?xt=urn:btih:850C9B52318988BBF9C32D65BA33688693CF9822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ Pretenders - The Singles (1987) [MP3|320 Kbps] <New-Wave, Pop-Rock, Reggae-Pop>
 ```bash
 magnet:?xt=urn:btih:A74C2AD4907B7C3133F0C0F5A6503B81011C1600
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

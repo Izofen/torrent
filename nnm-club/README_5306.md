@@ -19,6 +19,8 @@ Opera 82.0.4227.33 [Multi/Ru]
 magnet:?xt=urn:btih:42CA4A442CDFBF7F1AC511B21A52A872CF36A33D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Billy Merziotis ft Gary Moore Band & Irene Movia - All the things you are (2023)
 magnet:?xt=urn:btih:32D1E60FF6C7074BF00EFDFD23FFEE2FC262A762
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ Odd Dimension - The Last Embrace To Humanity (2013) [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:EA7D45F5ECFB2C3D6E82EBD0C93A004233E3786D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ Biff Byford - School Of Hard Knocks (2020) [FLAC|Lossless|image + .cue] <Hard'n'
 magnet:?xt=urn:btih:12DA895ADD8D14689E4F3224925C3621249003E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:12DA895ADD8D14689E4F3224925C3621249003E0
 ```bash
 magnet:?xt=urn:btih:0DBC3D7EDCBCE5181A8B8FFD49B42E09932084E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ HTML Academy | Онлайн-курс «Вёрстка email-рассылок» (
 magnet:?xt=urn:btih:C6BAA895A79EC19935DC9457F9C7179D813AE690
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:C6BAA895A79EC19935DC9457F9C7179D813AE690
 ```bash
 magnet:?xt=urn:btih:47550B8FCD0A0DE4F3761263A8DF09CD4919DAF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ Bad Wolves - Die About It (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt.Meta
 magnet:?xt=urn:btih:E3DF4129D2B5E0002B6F632674E90185920CDE7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ Cuphead – это в прямом смысле слова "классическ
 ```bash
 magnet:?xt=urn:btih:0F618063D9AC662A44E2BEB24D2341937ADC862B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -255,6 +273,8 @@ Sweet Hole - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:97DD9DBDD0588F892B8C6B91AB346B3F58A01B2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ magnet:?xt=urn:btih:97DD9DBDD0588F892B8C6B91AB346B3F58A01B2E
 ```bash
 magnet:?xt=urn:btih:EB131603FEAAD6863832289E7742B4F502E30FA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ FabFilter TotalBundle - содержит коллекцию последних �
 magnet:?xt=urn:btih:9A8D62D9371043E2D177DC4C0436A8CAA50FEB3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:9A8D62D9371043E2D177DC4C0436A8CAA50FEB3F
 ```bash
 magnet:?xt=urn:btih:08B972B7A5710D76433ECA9D4F1F9E88F31F9D09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:08B972B7A5710D76433ECA9D4F1F9E88F31F9D09
 magnet:?xt=urn:btih:1A610B34CDADF24BB113E1737621EC94164B49FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:1A610B34CDADF24BB113E1737621EC94164B49FB
 ```bash
 magnet:?xt=urn:btih:54815CF3A07AF6C9DFDE8EED950AA02B1FA466E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ magnet:?xt=urn:btih:54815CF3A07AF6C9DFDE8EED950AA02B1FA466E8
 ```bash
 magnet:?xt=urn:btih:1DBF4F314CBDB764570F9FFD6EAE5E033476C991
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +461,8 @@ Serenity - Nemesis AD (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic-Pr
 magnet:?xt=urn:btih:D7D2BAFA5F3F15EB00734EF156B6DB7EE37BF77B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ magnet:?xt=urn:btih:D7D2BAFA5F3F15EB00734EF156B6DB7EE37BF77B
 ```bash
 magnet:?xt=urn:btih:E3D857F14F8494F2012C2DD46C246877F82D9AD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:E3D857F14F8494F2012C2DD46C246877F82D9AD0
 magnet:?xt=urn:btih:F73D13FC2D825A239612F7B8FF0327E13812A2A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ GuitarTuna — это самый удобный, быстрый и точный 
 ```bash
 magnet:?xt=urn:btih:CDB3258A08BCA4F5AA73316E5C52DA2EF24121E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ Creeping Death - The Edge Of Existence (2021) [APE|Lossless|image + .cue] <Death
 magnet:?xt=urn:btih:1F5C0A3780F760FE1EC5833C3D07A4B9AB20E8FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ CyberLink ColorDirector Ultra 10 - профессиональные инстру
 ```bash
 magnet:?xt=urn:btih:3F497DDD9A2D3FDD20EF3F24539567C7F3621D41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ Oasis - The Masterplan (1998) Remastered Edition, 2023, Big Brother Recordings L
 magnet:?xt=urn:btih:8EF77D9943F5736E130153D53119BC50E23004FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ magnet:?xt=urn:btih:8EF77D9943F5736E130153D53119BC50E23004FB
 ```bash
 magnet:?xt=urn:btih:7E7B29B0AC5F71BFD23B174504EEE92EC9950186
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +679,8 @@ VA - Christmas and New Year music xoxoxoxo (2021) 5CD [MP3|320 Kbps] <Pop, Rock,
 magnet:?xt=urn:btih:AA962F1D0E2685C5441F9351C3B1FFCE8CC462FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ Comecon - The Worms Of God (2008) 2CD Reissued-2009 [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:92975937625707A9006AFEDB4035416B98EA6EB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

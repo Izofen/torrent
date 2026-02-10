@@ -22,6 +22,8 @@ Level 1&2, level 3&4, schematics (см. "Описание терминов").
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Level 1&2, level 3&4, schematics (см. "Описание терминов").
 ```bash
 magnet:?xt=urn:btih:571253D4A320F0582F450A364762056499DB2D3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:571253D4A320F0582F450A364762056499DB2D3F
 magnet:?xt=urn:btih:5938DFFF313CAF295FC181CD6E8E5722E93D1ADB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Terrarium TV это Android-приложение, которое позволя�
 ```bash
 magnet:?xt=urn:btih:395C1F161975F58BF1194FDD4BAA92B6AE5242F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:395C1F161975F58BF1194FDD4BAA92B6AE5242F7
 magnet:?xt=urn:btih:4006F1F4134059D49C1EF7B921B93EB8D553EFAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ The Room Two - Продолжение замечательной андроид 
 magnet:?xt=urn:btih:292F4D225CFDD6F8EA92516CBE3A613C5F5710ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:292F4D225CFDD6F8EA92516CBE3A613C5F5710ED
 ```bash
 magnet:?xt=urn:btih:1B341F5A58F37C51B787A00E29451AB8A6B16DE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Garmin: City Navigator Australia & New Zealand NT HERE 2016.20 [En]
 magnet:?xt=urn:btih:9BCE8F688B0EAF1ADA7252915268CD6463E1FCD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Dracula 4: The Shadow of the Dragon - квестовая приключенче�
 ```bash
 magnet:?xt=urn:btih:4B73A3255887D41421A6C5A5DEFF3F06BBE72737
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Dracula 2: The Last Sanctuary - Приключенческая головоло�
 magnet:?xt=urn:btih:14D79BA9ABC7A2F27E6090EA466DE864E59F9714
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:14D79BA9ABC7A2F27E6090EA466DE864E59F9714
 ```bash
 magnet:?xt=urn:btih:E91FDE364D528A9E675903F41F9BD721FFE72B2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:E91FDE364D528A9E675903F41F9BD721FFE72B2D
 magnet:?xt=urn:btih:B5DBFE5061755E0133F6F0BDFB3F737071B97B27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Full Scientific Calculator v1.76 Pro [En] - мощный многофункци�
 ```bash
 magnet:?xt=urn:btih:661558A2DC1434F785DF6A0E9A0D3D98DABD0D0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Syberia 2 – знаменитый квест на андроид, в котор
 magnet:?xt=urn:btih:DA1E92361BB3127D06861815C67D2505A284A61F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Syberia - Эпический квест, который стал когда-то
 magnet:?xt=urn:btih:5EFFBA451D50FFD9921BAF0211432DC0EBC4B17D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Helium - это уникальное решение для резервного 
 ```bash
 magnet:?xt=urn:btih:9A3C2D9952DB9EBAEACC4A9190845C03727D4931
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ EveryCircuit v2.19 [En/Rus] - Проектирование и моделиров
 magnet:?xt=urn:btih:511FAFD6DBB5A517461244DAFDAE0F62FA64D822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:511FAFD6DBB5A517461244DAFDAE0F62FA64D822
 magnet:?xt=urn:btih:2AB48F947D32056001BD0FD1024EF8E7BBAE6864
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:2AB48F947D32056001BD0FD1024EF8E7BBAE6864
 ```bash
 magnet:?xt=urn:btih:4AE7EC227A33FB0FB613237C58E0C60B204BA7F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ Deplike позволяет вам наслаждаться полной наст
 magnet:?xt=urn:btih:7F0326D1E1125806F862B244E58BA1CE5144D1AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ Universal AC Air conditioner Remote Control 8.8.7.2 [Ru]
 magnet:?xt=urn:btih:17397A71D82E3B9F3D26A9DF74C6C011AD68A097
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Music Writer - Music Composer 1.2.275 [En]
 ```bash
 magnet:?xt=urn:btih:C8A3725704DFC8F9399325F2C01FC12E6ED373DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ iGO R3 TomTom Европа 2020.06 (Q2) (.fbl, .fda, .fpa, .fsp, .ftr, .hnr, .po
 magnet:?xt=urn:btih:59CA47CEC129436908D71EBF7F4EDE56AF65A7E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ Quick Video Recorder - это приложение для камеры, кото
 ```bash
 magnet:?xt=urn:btih:D177BEB10EEF4EC9AD2D74B24681E7FB8998202B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ eTide HDF: приложение приливов и виджет с график
 magnet:?xt=urn:btih:FC253653F748869578CF5B9388194C7BFA1E75D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Beyond Ynth HD  1.5 [En]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

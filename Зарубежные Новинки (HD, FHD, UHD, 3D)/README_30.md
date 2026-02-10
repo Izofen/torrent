@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:58C4F659B49AE5C3377AFEB8235E95DABFDB900D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:58C4F659B49AE5C3377AFEB8235E95DABFDB900D
 ```bash
 magnet:?xt=urn:btih:84435688AE0AA02CEC04BAC999295DB392147230
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Minecraft в кино / A Minecraft Movie (2025) WEB-DLRip [H.264/720p]
 magnet:?xt=urn:btih:1FFE0A98185DA6CB61C6637E1BEC62AEF064473D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:1FFE0A98185DA6CB61C6637E1BEC62AEF064473D
 ```bash
 magnet:?xt=urn:btih:75F7DB0DF1D563CDAFC309521BE51993B39BEECF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:75F7DB0DF1D563CDAFC309521BE51993B39BEECF
 magnet:?xt=urn:btih:8E179D8C8E965EE538403C7F6FF814D2EE48305C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:8E179D8C8E965EE538403C7F6FF814D2EE48305C
 ```bash
 magnet:?xt=urn:btih:ABE48EFF5F33D25115EF4582D8DB5ED2EFB7A80D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:ABE48EFF5F33D25115EF4582D8DB5ED2EFB7A80D
 magnet:?xt=urn:btih:2D9C01A611B1C042C75F2D39F2BB7721E2233687
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:2D9C01A611B1C042C75F2D39F2BB7721E2233687
 ```bash
 magnet:?xt=urn:btih:95363B18EAE0566FA9345596A79E511F13F910B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:95363B18EAE0566FA9345596A79E511F13F910B9
 magnet:?xt=urn:btih:711BF8F115E49638EA8F0921FB572933D48F787A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:711BF8F115E49638EA8F0921FB572933D48F787A
 ```bash
 magnet:?xt=urn:btih:56B1C04A66686C37D6E94F32B0B917517C323F08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Minecraft в кино / A Minecraft Movie (2025) WEB-DL [H.265/2160p] [4K, SDR 8
 magnet:?xt=urn:btih:D2F77DE03B4C87172D25FB0299B3436D285AB473
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:D2F77DE03B4C87172D25FB0299B3436D285AB473
 ```bash
 magnet:?xt=urn:btih:95345B6D57BC3566660EE167DA5498907D22500F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:95345B6D57BC3566660EE167DA5498907D22500F
 magnet:?xt=urn:btih:D35DEBCB0A7D8FBE05C5AEE8BD888F772F3A2732
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:D35DEBCB0A7D8FBE05C5AEE8BD888F772F3A2732
 ```bash
 magnet:?xt=urn:btih:D3F314D61379C8FBAE721E25789E91E73E860932
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:D3F314D61379C8FBAE721E25789E91E73E860932
 magnet:?xt=urn:btih:27C2843129E0B7390DE051CB764B8FAF88DA3751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Minecraft в кино / A Minecraft Movie (2025) WEBRip [H.265/1080p] [10-bit]
 ```bash
 magnet:?xt=urn:btih:A2CB24F113FD9969D86608147B3DE6AFCD782113
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:A2CB24F113FD9969D86608147B3DE6AFCD782113
 magnet:?xt=urn:btih:A9397F13EC795CC70A6910A31D516324168C3CDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ magnet:?xt=urn:btih:A9397F13EC795CC70A6910A31D516324168C3CDD
 ```bash
 magnet:?xt=urn:btih:40CE7C38920D478A2F878110B9B547F317EC3543
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:40CE7C38920D478A2F878110B9B547F317EC3543
 magnet:?xt=urn:btih:E0E0880E0F461EE2513454FA37F269DEE48610F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ magnet:?xt=urn:btih:E0E0880E0F461EE2513454FA37F269DEE48610F3
 ```bash
 magnet:?xt=urn:btih:BE16240BC66B43ED72F7917AA0E60BA78FB71E76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:BE16240BC66B43ED72F7917AA0E60BA78FB71E76
 magnet:?xt=urn:btih:6FABD8C148E5ADBFE5E23827B7E1F51D99DA0E24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Minecraft в кино / A Minecraft Movie (2025) WEB-DL [H.265/2160p] [4K, HDR10
 ```bash
 magnet:?xt=urn:btih:DF174AF52D2E643E2A21235116B4617C825B2859
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:DF174AF52D2E643E2A21235116B4617C825B2859
 magnet:?xt=urn:btih:7212BF4AB4BB4397DE6758B97960CB52F74ABF28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ magnet:?xt=urn:btih:7212BF4AB4BB4397DE6758B97960CB52F74ABF28
 ```bash
 magnet:?xt=urn:btih:66D88F26C9B383BEEBCBDD45E930E9C065E7A507
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ magnet:?xt=urn:btih:66D88F26C9B383BEEBCBDD45E930E9C065E7A507
 magnet:?xt=urn:btih:2E2E82E17594531DA7CD96F239400EDDF0C54ECD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Minecraft в кино / A Minecraft Movie (2025) WEB-DL [H.264/1080p] [MVO]
 ```bash
 magnet:?xt=urn:btih:C16D184A89946E45F05C19A2D3F6A719B356A2E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

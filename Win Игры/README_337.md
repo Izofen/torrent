@@ -20,6 +20,8 @@ Silence: The Whispered World 2 (2016) [Ru/Multi] (1.0.19854) Repack Other s
 magnet:?xt=urn:btih:E3001D5078D1147EDC8DD5E1CE888AE17374025A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Firewatch – игра о взрослых людях, ведущих взрос
 ```bash
 magnet:?xt=urn:btih:865F7404E7D56207BBA4CF167BDB412711EFFF42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Volume (2015) [Ru/Multi] (1.1.04) Repack R.G. Механики
 magnet:?xt=urn:btih:C7C8720D7ACB3778F0D5887E5BBA720F9E6A4523
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ ShadowSide - это приключенческая игра от первого 
 ```bash
 magnet:?xt=urn:btih:CBE89E85168F17F5F5BD4BB83C2E4CDFC6F4FCED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Emergency 2013 – дополнение для игры Emergency 2012: The Ques
 magnet:?xt=urn:btih:C138174F64F31D898B7D9CD9B1B9B9CD6787F0DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ EBOLA 3 - переносит вас в великую классику ужас�
 ```bash
 magnet:?xt=urn:btih:11342F23062DE5BE29B665A82507D4C587900EA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:11342F23062DE5BE29B665A82507D4C587900EA2
 magnet:?xt=urn:btih:CD1BB144A7B21C8EE74476193D1B82A134DD60F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Killsquad (2019) [Ru/En] (0.7.3) Repack Mizantrop1337 [Early Access]
 ```bash
 magnet:?xt=urn:btih:BECDAD023F6F8732807759DADB971678B5E81A39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Transistor - научно-фантастическая игра в жанре Ac
 magnet:?xt=urn:btih:EB5FAB59BA7BB728023A4673223889942F864D3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ The Walking Dead: The Telltale Definitive Series содержит все чет�
 ```bash
 magnet:?xt=urn:btih:E4A4E1D19F58FAF26D60D9F7040168420044BA2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Dark Parables 16: Portrait of the Stained Princess / Темные притчи 1
 magnet:?xt=urn:btih:36D1376D0E4D436E60D355BE4D18E4C2DB16D600
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Dragon Fin Soup совмещает несколько жанров в одной
 ```bash
 magnet:?xt=urn:btih:805C30BD8C45A2AB8210517935D80EEC58719D3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Syrian Warfare (2017) [En] (1.1.0.7/dlc) License SKIDROW
 magnet:?xt=urn:btih:6E31CF9B4B4BB912BFD252ABF479C62A70B3FBCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Vagante это приключенческий 2D рогалик. Ключево�
 ```bash
 magnet:?xt=urn:btih:7783FF6FC314A55F791F7B98325EA33DD631F2B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Production Line - увлекательная смесь стратегии и с
 magnet:?xt=urn:btih:A0ED1E63CFB237D32FA7E2016E5AA4443CE3DCC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Broken Porcelain вносит в серию много долгожданных 
 ```bash
 magnet:?xt=urn:btih:DD5DFE354286ADFD355ED7B5C3FAC53D5DE57E5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ SolSuite Solitaire 2015 (2015) [Ru/En] (15.10/dlc) License Man Hunter
 magnet:?xt=urn:btih:7A698FFD5979AA4DDE3B33B6252FD679ABA51208
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Legendary Tales: Stolen Life / Легендарные предания: Укра
 ```bash
 magnet:?xt=urn:btih:67DD6522A9740899F5DBB5CC660A711F317EC2B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Whispered Secrets 3: Into the Wind / Нашептанные Секреты 3: С
 magnet:?xt=urn:btih:98A6AA876D73D87C8ABA61E6BFD664B06EE92CAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Pineview Drive - хоррор первого лица, действие кото
 ```bash
 magnet:?xt=urn:btih:0884E401520A438FD713029C8F291B1DD8366176
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Chimeras 2: The Signs of Prophecy (2015) [En] Unofficial [Collector's Edition / 
 magnet:?xt=urn:btih:5D6EC1C4AB3D354126CFA6CD68DA25FF00A7FFB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Rayon Riddles  Rise of the Goblin King (2016) [En/Ge] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:837BFD69B6C0BD9B974A9AAB6ED772E1BE1789E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Veil of Crows – крутая стратегия по совместитель�
 magnet:?xt=urn:btih:E4C938FCC1748B046E37C540265EE7B7548E22D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Gauntlet (2014) [Ru/En] (2.2/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:FC1B20AFE68AEA90CF1873ACA6962E7CC467BD62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Beyond 3: The Fading Signal / Извне 3: Исчезнувший сигнал 
 magnet:?xt=urn:btih:4B702301AEC9DDF16A350A8ED5F54EAD3731ADB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Assassins Creed 3 (NoDVD/1.01) 2012 | RELOADED
 ```bash
 magnet:?xt=urn:btih:B791E8239140E13D9A6AA1BDDE26772FFBE2BF86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

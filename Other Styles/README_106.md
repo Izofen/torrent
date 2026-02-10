@@ -22,6 +22,8 @@ The Romantic String Orhcestra - Very Special Songs Of The '70s: The World's Most
 magnet:?xt=urn:btih:6992F07E1D5CC5525E64320DF6BD0ECB81CE5A50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Xavier Rudd - Storm Boy (2018) [MP3|320 Kbps] <Folk, Singer-songwriter>
 ```bash
 magnet:?xt=urn:btih:4ECF3743EAB6E77EF98917463810E71D7672C71F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Anne Trenning - Beautiful Song (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 magnet:?xt=urn:btih:05F3397C370A18E81ED5BA95E8E3DA19B8BF3C60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Reggie Young - Session Guitar Star (2019) [FLAC|Lossless|tracks + .cue] <Eclecti
 ```bash
 magnet:?xt=urn:btih:B0CF37E6D103E01D1693D09C90A77BB2043E9D38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Andrew Bird - My Finest Work Yet (2019) [FLAC|Lossless|tracks + .cue] <Folk-Rock
 magnet:?xt=urn:btih:7F2AF44E579ABC6D8A0009E27A2DB009B3B5765A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ VA - 599 фраз из нашего кино и мультфильмов (2009) 
 ```bash
 magnet:?xt=urn:btih:23E720A56E93C50D5DF44F2CFA24AE188A00927B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +199,8 @@ magnet:?xt=urn:btih:23E720A56E93C50D5DF44F2CFA24AE188A00927B
 magnet:?xt=urn:btih:1E788B6D257EEE668CD77C4ED1D71F8B047BDA24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +227,8 @@ VA - Romantic Collection. Country (2000) [FLAC|Lossless]<County>
 ```bash
 magnet:?xt=urn:btih:7F8D5E09BE8F6F7915333F80564DB0D958085ACF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +257,8 @@ Kerani - Equilibrium (2015) [MP3|320 кб/с]<New Age>
 magnet:?xt=urn:btih:5DECE6D817D7ADEAE2E08FD930974BA9ABCD9E39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +285,8 @@ Phil Thornton - Tribale (2015) [MP3|320 кб/с]<New Age, Meditative>
 ```bash
 magnet:?xt=urn:btih:75244019D01523D631A87FDA816B10ABAA9501BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +321,8 @@ VA - Radio Rebel / Бунтарка (2012) [MP3|320 кб/с]<OST>
 magnet:?xt=urn:btih:6FAA6F39D68EB128FF049675B9ADA20C6DED647D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +349,8 @@ Jack Menhorn & Ashton Morris - Lemma Original Soundtrack (2015) [MP3|128 кб/с
 ```bash
 magnet:?xt=urn:btih:0E586E51E53694443FC8C8634C58B5834A00CC5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +379,8 @@ George Skaroulis - Sanctuary 2 (2015) [MP3|320 Kbps] <New Age, Instrumental, Pia
 magnet:?xt=urn:btih:50F2763FD0ED2C1272CE35450DB7C4211A1DBE58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +407,8 @@ magnet:?xt=urn:btih:50F2763FD0ED2C1272CE35450DB7C4211A1DBE58
 ```bash
 magnet:?xt=urn:btih:9437F5C22089299A1DD3DAC5FBAF6A38B5B770F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +437,8 @@ VA - Quiero Fiesta (Club Hits 2018) [MP3|320 Kbps] <Latin Hip-Hop, Reggaeton, Ba
 magnet:?xt=urn:btih:F6A55FAA42DC1AA00BC7A4DC0EB9720A9B14ADF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +465,8 @@ VA - The Ultimate Country Love Songs Anthology (2019) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:2A38DD330EB6A5964627440585F6450F8E1579D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +495,8 @@ Current 93 - Invocations Of Almost (2019) [FLAC|Lossless|tracks + .cue] <Folk, C
 magnet:?xt=urn:btih:DF54BCC2D5296B199E6C6ACBA7EB29B8C2C0A499
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +523,8 @@ Claire Hastings - Those Who Roam (2019) [FLAC|Lossless|tracks + .cue] <Folk, Cel
 ```bash
 magnet:?xt=urn:btih:6C193470160CB672D17538CD63F671716DA69271
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +553,8 @@ Tom Holkenborg aka Junkie XL - Безумный Макс: Дорога ярос�
 magnet:?xt=urn:btih:B23E626A8FD16036EFBFCDFD207515D597DF63EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +581,8 @@ Tom Holkenborg aka Junkie XL - Безумный Макс: Дорога ярос�
 ```bash
 magnet:?xt=urn:btih:ED2C2BC8CCFB735A2F4E69151FD79E51DC979FC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +611,8 @@ Medwyn Goodall - The Dreamworld (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 magnet:?xt=urn:btih:C293709DF7DF2520815B2AF29C246F884E1668DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +639,8 @@ Simonopetras - Psaltirion Terpinon - Hymns From The Psalter (1990) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:8D872FE75A615DC475E9D0B3134A67950383E707
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +669,8 @@ David Clavijo - From the Depths (2016) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:07AF899CDEA15BD7B1A1E9FFF59A5D55A01AF509
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +697,8 @@ Terry Oldfield & Soraya - Namaste (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:6414683AF6430A962E6C1D1B7EA9335DEC77CF78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -679,6 +727,8 @@ Andre Gagnon - Comme Dans Un Film (1986) [MP3|320 Kbps] <New Age, Piano>
 magnet:?xt=urn:btih:1FC9BF0955A9FD32D73C3545A25752C8AF732FC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -705,6 +755,8 @@ Shastro - Bandole! (1994) [FLAC|Lossless|tracks] <New Age, Ambient, World>
 ```bash
 magnet:?xt=urn:btih:3D2AE16F223494509FF51E029F5A7F2A5B7E45F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

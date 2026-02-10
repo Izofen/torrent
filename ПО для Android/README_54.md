@@ -20,6 +20,8 @@ Fabulous v3.65 Premium [En] - Motivate Me! Relax, Meditate, Sleep
 magnet:?xt=urn:btih:B9096711EB1627032C3F361FAE4B036E87056A08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Genius Scan+ - PDF сканер v6.1.5 [Ru]
 magnet:?xt=urn:btih:F444C495A4B34A515DAA8182A641B14012A48275
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:F444C495A4B34A515DAA8182A641B14012A48275
 magnet:?xt=urn:btih:A97AF91933F8BECB097691E77253948EFC3B564F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ aCalendar+ Calendar & Tasks - Простой, но очень качествен
 ```bash
 magnet:?xt=urn:btih:610093FD82741C1927FFAA6DCDE88B32EFE6C40C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:610093FD82741C1927FFAA6DCDE88B32EFE6C40C
 magnet:?xt=urn:btih:4E5CE135DE419595BDBB937793BC61D9B7A8FECF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Lingvist: эффективное изучение языков v2.75.9 [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:27E9B9C5E691D5B6DDC35F0DE0DFC2FE730F1C82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ My Alarm Clock Pro / Мой Будильник Про v2.8 [Ru/Multi] - Мног
 magnet:?xt=urn:btih:B61F54A56AB052E340961FB7506E6D031BC536BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ FilmoraGo - Free Video Editor 13.1.52(13152) Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2F32A0EB9FA106AB3E27A1503EF59BDC585603E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Santa 3D Live Wallpaper 1.4.1 Premium [En]
 magnet:?xt=urn:btih:F018F9B638E3ED73BE6062D79A6E85670354229F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ Superlingo, ведущее в мире приложение для изучен�
 magnet:?xt=urn:btih:C533F255DAB4264D9AE5A99FF76C1366FE0EEDA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ GoneMAD Music Player v3.2.9 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:82E1461F96F52AB87E1BF89FBE7514E36ABE6075
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:82E1461F96F52AB87E1BF89FBE7514E36ABE6075
 magnet:?xt=urn:btih:DD825644766EFA149EB0C017985FB9CC54E8735D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ Vetcalculators - это коллекция ветеринарных кальку
 ```bash
 magnet:?xt=urn:btih:62A43F473DB3BD64189CD663B26822D6C8A70A1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ Audio Books – новая платформа для прослушивания 
 magnet:?xt=urn:btih:4291A72B08540ACB1EF5FCE3189F5DFCBD05E756
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ Meditative Mind v2.96  [En]
 ```bash
 magnet:?xt=urn:btih:39A322842915F2D7700B54B590BF1F48AE02C4B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:39A322842915F2D7700B54B590BF1F48AE02C4B2
 magnet:?xt=urn:btih:3BBC4288FA21C789CE4362E524DC06ED7D4AF4C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ TOEFL – достаточно сложный комплексный станд�
 ```bash
 magnet:?xt=urn:btih:7F6738D0CBFF2B2CA9826F677FE8BCAB18723F82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ English Idioms & Slang Phrases v1.2.6 [Ru]
 magnet:?xt=urn:btih:8279358720B4551D96F924BDC2225317AF0F16D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:8279358720B4551D96F924BDC2225317AF0F16D2
 ```bash
 magnet:?xt=urn:btih:AF5C5F41D128946E9D71A80D043052021AF322A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ AIMP - это легковесный мобильный аудиоплеер п�
 magnet:?xt=urn:btih:46BFC93C1D65E3C5E00280582F93A5DA465BFC77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ VPN Germany v1.30 Mod [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1E08A1ACE5D1476466C3DB217233C1556E0E1ABB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ Shamdo - серия медитаций и гипнотических индук�
 magnet:?xt=urn:btih:8D816AC950ABA2F7C1EFA369B4ABA43C6C3001CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:8D816AC950ABA2F7C1EFA369B4ABA43C6C3001CC
 ```bash
 magnet:?xt=urn:btih:051485DC5E485285109B6679846FF42515A20D13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +643,8 @@ FlexR дает Вам возможность создавать расписан
 magnet:?xt=urn:btih:3F9BAA73082C3CA61C104EAA0540DA04FD81094B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ Next - это не очередное фитнес приложение с на�
 magnet:?xt=urn:btih:CD77A8FA1B75A13DD9CE1DAFC3D5AE27F954F63A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ Webcams - отличное приложение, что предоставляе
 ```bash
 magnet:?xt=urn:btih:65BF3D273173B4A962FF622F0F9A138C85AE2EB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

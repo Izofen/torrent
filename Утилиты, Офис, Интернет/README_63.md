@@ -19,6 +19,8 @@ Cisdem Duplicate Finder помогает находить дубликаты ф�
 magnet:?xt=urn:btih:C6D5975385183E977A0E0A9AE70E4F29CC937AD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Tenorshare 4DDiG 10.6.3.7 [Multi/Ru]
 magnet:?xt=urn:btih:578BC4E4FBD04B40E3F0D122979B6503241E3BED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ PDF Compressor 2.2.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:D32195B17F619C65F4072017E858C56753B6108D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ PDF Password Remover 2.2.0 [Multi]
 magnet:?xt=urn:btih:5EE9E752C018823AF59C139E9196A437BCDFA1BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ MediaHuman YouTube Downloader 3.9.17 (3010) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:09A40172E2ACECAF77D783390181E49404237218
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Frappe Books - это бухгалтерское программное обес
 magnet:?xt=urn:btih:48B32EEE536BD6D37023F78CFA118BB7416E3BA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Ant Download Manager - отличный менеджер загрузки сам
 ```bash
 magnet:?xt=urn:btih:6DA2F0ED7D92638B2422C1D9613D613A72F2F780
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Photo Album GPS Mapping Tool - это программа, которая пом�
 magnet:?xt=urn:btih:AB4EE902F4E3C13507E1A47451F904B7540CE4BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:AB4EE902F4E3C13507E1A47451F904B7540CE4BF
 magnet:?xt=urn:btih:6F511326FD740EEA3769C084AD00C49619FCEC2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Universal Maps Downloader - программное решение для ска�
 ```bash
 magnet:?xt=urn:btih:999C2EB520AB33BC6B5D1836A05096F402A36712
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Doxillion Document Converter - программное решение для па
 magnet:?xt=urn:btih:77F9812576CA09D742B7134FA4E181FDFB428650
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ iObit Start Menu 8 Pro - удобный инструмент для настро
 ```bash
 magnet:?xt=urn:btih:BBF64A90EB6769908F1A48AE8789D8796C5E3C91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Bulk Image Downloader (BID) - это программа для загрузки 
 magnet:?xt=urn:btih:DEF2270693DC918245893B9461431600D70DF856
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ FTP Rush — бесплатная версия FTP клиента, для пер
 magnet:?xt=urn:btih:C0076B68569F4FD5923E0D103B16E83F2FF111A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Poricom - интересная программа, разработанная д
 ```bash
 magnet:?xt=urn:btih:0EA56F1CFE79542ECB74C3403A878763E2A3BE2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ FilelistCreator 23.4.23 Portable [Multi/Ru]
 magnet:?xt=urn:btih:F0FDBDBDF70B9D20E98B8FF1A4FDA4DE3700F65E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ WinUtilities - системный набор для настройки Ваше�
 ```bash
 magnet:?xt=urn:btih:08A2735305AB306517D89A531F6D9EF223B7A4C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Alternate Password Generator - приложение может помочь ва
 magnet:?xt=urn:btih:D017031B2CEE94810539AAE82408A6B0F79E0887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ GiliSoft Formathor - это комплексный и универсальный
 ```bash
 magnet:?xt=urn:btih:C2088D787A9FAF461933B321A4382C6F8BEF4169
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ Winstep Nexus Ultimate – это расширенная версия беспл
 magnet:?xt=urn:btih:04F388392665C8EF9AF34A881C6E85005D63EE71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Winstep Xtreme – это мощная, многофункциональная �
 ```bash
 magnet:?xt=urn:btih:B29C6F4BF17B926A137ACCD39481C21AAFE12EE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ Icecream PDF Split & Merge Pro 3.47 [Multi/Ru]
 magnet:?xt=urn:btih:122B1D54C446F8837AF0CF961B46934FF37D10F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ PDF Shaper Professional 13.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2B5AC3EFED8DD2FC9FDE82EFB0F09CB45FCAC5A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ Aiseesoft Screen Recorder 2.7.18 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:DAD7D69B4A800790873B459B118556C323A0F29F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ YUMI (Your Universal Multiboot Installer) - бесплатная програм�
 magnet:?xt=urn:btih:629F3AB7E7E43A9B86894050174DD9C74D0B563F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ System Ninja - быстрое и эффективное решение для о
 ```bash
 magnet:?xt=urn:btih:463E5C91B2D693EEB6AD9FEEB71BF33F3BAAB5D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

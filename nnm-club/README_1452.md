@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:ABFE16F1D1DFD5A15D44140EE844B83F89BA83C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:ABFE16F1D1DFD5A15D44140EE844B83F89BA83C6
 ```bash
 magnet:?xt=urn:btih:621D7FD412C2E51B5170EC760D4A4D9D008D3335
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Cold Zero: No Mercy / Cold Zero: Финальный отчет (2003) [Ru/En] (1
 magnet:?xt=urn:btih:EE6029AC5F8BED73FBB41067B0B68F469EC8C9B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:EE6029AC5F8BED73FBB41067B0B68F469EC8C9B4
 ```bash
 magnet:?xt=urn:btih:A7F1A509CC03F2268B0DCA3EB87D78B879DD5480
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ IPTV Pro v8.2.4 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:28A6B202CA3D7A96FA20944AC6582F54A4654979
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ DriverStore Explorer — это легкий инструмент, которы�
 ```bash
 magnet:?xt=urn:btih:0B9B7E0FFD3235AE8E5C1101283017E390AE0320
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Steinberg - Cubase Pro 14 14.0.5 [Ru/En]
 magnet:?xt=urn:btih:99C7D3761FDA9E149E9AC424CB138A98C4B572DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Technotopia (2024) [Ru/Multi] (1.0.7.1) License GOG
 ```bash
 magnet:?xt=urn:btih:3EEE1D5ACF71538B0A2A3472B802A3CAC76C2056
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ DogLinux Debian 12 Bookworm 2024.11.05 [x86, amd64] LiveUSB
 magnet:?xt=urn:btih:DE22D50E65D2FCB8274B65FE79D9466AE347526E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:DE22D50E65D2FCB8274B65FE79D9466AE347526E
 ```bash
 magnet:?xt=urn:btih:8B2E126D73FF8F64A667B9972613AF5A8703F618
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Kaspersky Rescue Disk 2024 Beta [03.11.2024] [Ru/En]
 magnet:?xt=urn:btih:7BA3116AE96984BD6FECDAA96E9F7379897817AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Blood: Plasma Pak (1997) [Ru/En] (1.11/1.21/dlc) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:536964DB99CAED0A641F606789A73B2673D80CCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:536964DB99CAED0A641F606789A73B2673D80CCE
 magnet:?xt=urn:btih:3D80D86FA9901610F507E90D2B19EE4755E20B85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Blood II: The Chosen — компьютерная игра, продолжени
 magnet:?xt=urn:btih:BCB96DD122125B8D291498BFCBACE9985AD48DC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Driver Easy Professional — профессиональная и в тоже в�
 ```bash
 magnet:?xt=urn:btih:870B7DFB75183E310A6D8B0F94FCA92CB41A025B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:870B7DFB75183E310A6D8B0F94FCA92CB41A025B
 magnet:?xt=urn:btih:38006B042650AAB8D0608E3A442AEC49F3CB9D38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Descent - Шутер от первого лица имеющий "шесть с�
 ```bash
 magnet:?xt=urn:btih:29F0BB4B78A32F9EB837EF6CDCF0120B628126B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Air Raid: This Is Not a Drill! (2003) [Ru/En] (1.0/dlc) Repack 1nomok
 magnet:?xt=urn:btih:C34FF629162518330998472B33DB955BC9BD5C64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:C34FF629162518330998472B33DB955BC9BD5C64
 ```bash
 magnet:?xt=urn:btih:29C3DA6584032D92074C10140618514657F67AE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:29C3DA6584032D92074C10140618514657F67AE3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Descent 3 (2000) [Ru/En] (1.4/dlc) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:B32EF1159F6FE34EE4644E7C0F0819F9ECD31BB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Beyond Good & Evil / За гранью добра и зла (2003) [Ru] (1.01) R
 magnet:?xt=urn:btih:E62AE58FE4EEBDC1ACE0CDDC6AA82B3439AEA287
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:E62AE58FE4EEBDC1ACE0CDDC6AA82B3439AEA287
 ```bash
 magnet:?xt=urn:btih:B27972030EAD2D9E32097D6B5D42A2C3ABB03C02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Cold War: Hot report / Cold War: Остаться в живых (2005) [Ru/En] (
 magnet:?xt=urn:btih:C1B5322294F73C77F7983A4053FA065E5293A3C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Ace Ventura (1996) [Ru/En] (1.0) Repack 1nomok
 magnet:?xt=urn:btih:B45F432C7B1FBFED5DEBC3619661912B593E9419
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Chicken Run (2000) [Ru/Multi] (1.0) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:9DDEA8D738307E2CB34F81BF1BE6A5CA40E56B92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ SolSuite Solitaire 2015 (2015) [Ru/En] (15.10/dlc) License Man Hunter
 magnet:?xt=urn:btih:7A698FFD5979AA4DDE3B33B6252FD679ABA51208
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Living Dungeon - это пошаговая тактическая насто
 ```bash
 magnet:?xt=urn:btih:21E9C02476B2288B05D7505DBCC86E4E437093E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ SolSuite Solitaire 2020 – высококачественная игра, ко�
 magnet:?xt=urn:btih:392277C2C9D5B3DE4E7ED983C9B0DBBE5335173A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Iron Ladies 2048 (2018) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A80DAAC31051FD8C523158581462CC435BC18EED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Quantum Conundrum [En/Multi6] (Steam-Rip/1.0.8623.0/2 DLC) 2012 | R.G. Origins
 magnet:?xt=urn:btih:BBAF2FB00BC0F80AA0328550EE2100A071A789E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ MONOPOLY PLUS (2017) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:7334AC14BF8BF8CA7B9307B77549AB4A8DAD08D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Monopoly Plus с ее объемными городскими пейзажами
 magnet:?xt=urn:btih:2B4B68FEABE230C7D4FE143015EBD443FF473BCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Monopoly Plus с ее объемными городскими пейзажами
 ```bash
 magnet:?xt=urn:btih:EDE9233DC593ACD41746EC253F7DF62FEAB6CB42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Jigsaw Boom 2 / Пазл Бум 2 [Ru] (P) 2012
 magnet:?xt=urn:btih:6F605E4B2CF6871847AFB8390CCCBF75BC89337D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Crazy Machines 3 (2016) [Ru/Multi] (1.0.1) License RELOADED
 ```bash
 magnet:?xt=urn:btih:F469F687A5A0CE8E3A97FA00B366AC77728D3F32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Puzzle Dimension [Ru/Multi11] (RePack/1.0u12) 2010 | NSIS
 magnet:?xt=urn:btih:713063D177145D55E37050AECA48DCF9B778344F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ LUMINES REMASTERED — популярная игра-головоломка, с�
 ```bash
 magnet:?xt=urn:btih:62F223E5805F761314048F194431E58B6769D730
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Nevaeh — головоломка, использующая свет и тень
 magnet:?xt=urn:btih:BC8394E18AFD3DD1A5A1FF86230EE8DCAD9640EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Shiny Summer (Блестящее Лето) — это увлекательная
 ```bash
 magnet:?xt=urn:btih:D8A90CA3B532F62367CED419EF2F36C1871475A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Mystery Solitaire: The Black Raven / Мистический солитер: Че
 magnet:?xt=urn:btih:0057103045A5C2EF1D4C4608A13767936C7ED130
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Turner (2016) [En/Es] (1.5/dlc) License HI2U
 ```bash
 magnet:?xt=urn:btih:7C4B3002A0DD8C64E244941EE39FC32774A55101
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Donut County – сюжетная головоломка с реальной ф�
 magnet:?xt=urn:btih:1680FE1BDF3970351CAA47F85C545190FEDB6E72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Opus Magnum — новая игра-головоломка с бесконечн
 ```bash
 magnet:?xt=urn:btih:F6FFA0E53081277A9DCBC982DC04051DB6A54008
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ SolSuite 2015 – крупнейшая, постоянно дополняема�
 magnet:?xt=urn:btih:626A7183B8EB8A868F4ACB3B906DA7A90185CB6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Insane Robots (2018) [En] (1.0.7/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:7409DCA09EAD02A33B48F398B60D97DC38346AC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Tetris® Effect — это «Тетрис», который вы точно ещ
 magnet:?xt=urn:btih:B17C66333613FC213D71ECFC5FF7F04367B95FEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Inscryption (2021) [Ru/Multi] (1.10) License GOG
 ```bash
 magnet:?xt=urn:btih:E01007A1DF54E5038A282A378C2C3FC608990400
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The King Of Attention / Король внимания (2011) [Ru] (1.0.1) Licens
 magnet:?xt=urn:btih:AAAA02E6020CB9906D1B39688AABD2094721B60A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Peregrin — это сюжетная головоломка, объединив�
 ```bash
 magnet:?xt=urn:btih:C5906EE9D480DA8226F9A392601C3DC5D8F119F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Pure Chess (2016) [Ru/Multi] (1.0) Repack Other s [Grandmaster Edition]
 magnet:?xt=urn:btih:DEC9CE332C0CDA0478752D978AD2B75EBDBDD6CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ The Room - это квестовая головоломка, в которой �
 ```bash
 magnet:?xt=urn:btih:863289D2FCCBA0D53262D16A3BE7C7B21714F4D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

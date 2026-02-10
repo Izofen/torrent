@@ -19,6 +19,8 @@ u-he - ColourCopy 1.0.2 VST, VST 3, AAX (x86/x64) [En]
 magnet:?xt=urn:btih:49329C1F8FC7898C2417D3A124D12F2FDA03BE87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Photo Supreme — вспомогательная программа для вл�
 ```bash
 magnet:?xt=urn:btih:9325F10B0D4085A0783243D87D7D79B9D7ED8180
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Bazille: Монстр из глубин
 magnet:?xt=urn:btih:67EF609048E8F3C9C4DD3849A774445B980812C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 ```bash
 magnet:?xt=urn:btih:020D37FA076DE8FDA920BBA7C4C79DF76EBE8CEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ British Bundle от Nomad Factory предлагает набор плагино
 magnet:?xt=urn:btih:043AF9391E26364406C1A84DAF1043EE6C26EAA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ DrumComputer - это новый специалист по синтетичес�
 magnet:?xt=urn:btih:715A1D27B8EF15F9AC292002B6611A40510ECF94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 ```bash
 magnet:?xt=urn:btih:1E9BC96957FEE953FEE51A24671E8A0E58AEA4F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Surge XT 1.3.4 Standalone, CLAP, VSTi 3 [En]
 magnet:?xt=urn:btih:6E20C63EE7F125E0BFF7756ECE9123BC0F5A4261
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ pure: verb создает эффекты реверберации, которы�
 ```bash
 magnet:?xt=urn:btih:327D1645C37B2795824A9639E206A78B3613718A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Plugin Boutique - Scaler EQ 1.1.3 Standalone, VST, VST 3, AAX (x86/x64) RePack b
 magnet:?xt=urn:btih:9983BD55A6BF20D02A5019084F7ED51E07774030
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ HY-Filter4 — это плагин эффектов полумодульного
 ```bash
 magnet:?xt=urn:btih:1B585A0927C7527B0D20B8546A657363E33361BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ BenVista PhotoZoom Pro 9 — это программное решение ном
 magnet:?xt=urn:btih:AB4FBAB4DB3E873721FE1C8BB64890B22C81F0C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ darktable — фоторедактор, предназначенный для о
 ```bash
 magnet:?xt=urn:btih:7D9F5A0D8313249C86BE115071798C9CF6C12D6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ darktable — фоторедактор, предназначенный для о
 magnet:?xt=urn:btih:E4E49A33223AD6B222CFAD7F208CFD2B1C1B31E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Radiant Photo - это программа для редактирования ф
 ```bash
 magnet:?xt=urn:btih:E6EBCC61709A7A3CF2E1CBF6C4178C6AF0DB0262
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ ABL3 полностью воссоздан с нуля и был в разраб
 magnet:?xt=urn:btih:3EEFF718CB7CE4B957C12FFAE40259C1C325D380
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ FotoJet Collage Maker – это отличный и простой в испо�
 magnet:?xt=urn:btih:7AE1E89A415DF3CF1B14766206C610DD68D16F88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ FotoJet Designer - это графический редактор, основн�
 ```bash
 magnet:?xt=urn:btih:B6C72BB7ECD64167E2AF731246FE42D61E29B01A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ Adobe InCopy позволяет авторам и редакторам текс�
 magnet:?xt=urn:btih:9FB8C3CA6B0F973F4AD1EC23C65CD9C839C7F564
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ Exposure X7 понравится всем тем, кто ценит фотоис
 magnet:?xt=urn:btih:CCE18FC8848FFCFC999AE24FD834E1E443447A1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Steinberg WaveLab Pro 12.0.30 build 696 (x64) Portable by 7997 [Multi]
 ```bash
 magnet:?xt=urn:btih:15486597429D7614F138BA22EDD06269AF5368D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ Plugin Boutique - DC Snares 1.0.2 VSTi 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:DB42D02619E04B2F57047FBAE621987351C001D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ Lumina Delay - это первая в мире полностью визуаль
 magnet:?xt=urn:btih:C1361F735A8F46250127038D4C8166E5645E334F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ Aspect - это 32-нотный полифонический программн�
 ```bash
 magnet:?xt=urn:btih:0940C796935B98F2C1F13391063453148CF0EDCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ Algonaut - Atlas 2.5.6 STANDALONE, VSTi, VSTi 3 (x64) RePack by TCD [En]
 magnet:?xt=urn:btih:55FA522C7965E27D869AE6BE4AAAF2C4F514088B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Mariana - это новый программный синтезатор басо
 ```bash
 magnet:?xt=urn:btih:5FA3C7C0BF00812E3E4411E98A19853324D2398E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

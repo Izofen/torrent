@@ -19,6 +19,8 @@ Kona II: Brume (2023) [Ru/Multi] (Build 12466960) Repack Other s
 magnet:?xt=urn:btih:EB829315DCD4A947614D90CF3A9F457803FAE807
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Tribe: Primitive Builder (2023) [Ru/Multi] (1.0.17) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:AC04E89A530727333A213C72F6A0561D1F16E30B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Night Loops (2023) [En] (1.0) Scene Tenoke [Deluxe Edition]
 magnet:?xt=urn:btih:68646221C96A131B2B74F91A2E651003F5208CD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Windy Meadow - A Roadwarden Tale приглашает вас окунуться 
 ```bash
 magnet:?xt=urn:btih:DC5DF374F1C92B60B34809D5C7238C54F6903999
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Yuki Onna (2020) [Multi] (1.0) Scene DARKSiDERS
 magnet:?xt=urn:btih:D80145C8AECB9C07951ED9862A843214B0C41537
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Inunaki Tunnel (2019) [Multi] (1.0) Scene DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:C625002E3379893960EFAC33F3DCD6F778744D67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Stigmatized property - игра, вдохновленная японскими �
 magnet:?xt=urn:btih:7C141CDE7D686A36D8913B5D11620E3BF1E276C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Aka Manto предлагает пользователю увидеть инте�
 ```bash
 magnet:?xt=urn:btih:3A8A9836593F705341BD035CEB0C1E990E439C65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Last Lesson - жуткий психологический хоррор от пе
 magnet:?xt=urn:btih:E2B3932DFF814039149EE444329989C2C3AF82AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Haunted House (2023) [Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:96A6B672A8167B20D1EE59E9C461AE0E63D89DDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Monolith (2023) [Multi] (1.0.1.3) Scene Rune
 magnet:?xt=urn:btih:6C04506F6978C8AEB676518B7B56D02FD9A9D4D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Torn Away (2023) [Ru/Multi] (12315550) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:EB7F789992A95BC712EA84BAA12D39CD977B41C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Storyteller – это необычная головоломка, в котор�
 magnet:?xt=urn:btih:4862752B0D217EDD6DDABAD83227614249439BA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Supper - приключенческая игра, раскрывающая �
 ```bash
 magnet:?xt=urn:btih:EC1AAFC091C609B98374C397EE46EDB1A195B990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Supper: New Blood повествует о Стюи С. Эпплтоне, е�
 magnet:?xt=urn:btih:0FCEDFB69A488C2CE3071C2DD7FCF1D12214C4A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Planet of Lana – это грандиозный квест-головоломк
 ```bash
 magnet:?xt=urn:btih:B6B206EEED043CB271A9AE0B1410F46CBFB49B1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Riot of Willy (2023) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:6F826FF93F6E6B66BEE147F389BFBF4D55F67315
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Tell Me Why / Скажи мне, почему (2020) [Ru/Multi] (5510896) Repack
 ```bash
 magnet:?xt=urn:btih:82CD84F335CD536B29F2F8DA619569AB58371DE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Edna and Harvey / Эдна и Харви Дилогия (RePack) [Ru/Ge] 2008-20
 magnet:?xt=urn:btih:673639FE770857905E2D37D9270F19B49376F084
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ DARQ — это игра про мальчика по имени Ллойд, к�
 ```bash
 magnet:?xt=urn:btih:0A372AA6D469F0F3AE3D2ED3C8D9EB1571505E24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Hello Neighbor 2 создана в мультяшном стиле, а вы ис
 magnet:?xt=urn:btih:3287998483FF35C2F362E57EE7E77D12A13D1D49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ ales of Monkey Island Complete Pack – интереснейший компью�
 ```bash
 magnet:?xt=urn:btih:85A9FF06DABDA7C4D6387EA3DE7413923A6A0FCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Escape from Monkey Island (2000) [Multi] (1.1) License GOG
 magnet:?xt=urn:btih:D4D3D0DE77567A837DF4B11B43652CC0AD4BE27D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Detroit: Become Human (2020) [Ru/Multi] (12158144) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:0CB8D02AD4F3F57D1E51B4E852AB0923255C9B44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ COCOON (2023) [Ru/Multi] (1.0) Scene FairLight
 magnet:?xt=urn:btih:6BFC1CA042A907C381C642FEADEC145830C4F8B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Return to Monkey Island (2022) [Ru/Multi] (1.5) License GOG
 ```bash
 magnet:?xt=urn:btih:BD5FFF0E2B328B6C6F834A1F148FE0513C003C2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

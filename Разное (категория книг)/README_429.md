@@ -1,3 +1,29 @@
+###  Публикация: 520839   (630750) от 09.07.2012
+
+Борис Родионов | История русской водки от полугара до наших дней [2011] [PDF]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_630750.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мифологизированном мире легенда о водке занимает отнюдь не главное, но и далеко не последнее место. Водка - наше проклятье и наше достояние. История водки в народном сознании - в какой-то степени наша история. И мало кому известно, что водка по историческим меркам - напиток не просто молодой - юный.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D662407FAEBEE3198C3CB23CCBF14B225663063
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 520780   (630762) от 09.07.2012
 
 Л.Б.Лихачева, М.А.Соловей | Энциклопедия заблуждений. Третий Рейх [2006] [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:84BF9CA8F8433C87CE7AF32AF8DA53093CC9477B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:84BF9CA8F8433C87CE7AF32AF8DA53093CC9477B
 magnet:?xt=urn:btih:E1F7AA66B287D56194C9D12D8F0929BBD0F964DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +101,8 @@ magnet:?xt=urn:btih:E1F7AA66B287D56194C9D12D8F0929BBD0F964DD
 ```bash
 magnet:?xt=urn:btih:117EA0C7E49C2F89F18F2BB3583B88F5C6866E09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +130,8 @@ magnet:?xt=urn:btih:117EA0C7E49C2F89F18F2BB3583B88F5C6866E09
 magnet:?xt=urn:btih:F31C1CAAACF7FCE867F9E33783E7241D9251856C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +155,8 @@ magnet:?xt=urn:btih:F31C1CAAACF7FCE867F9E33783E7241D9251856C
 ```bash
 magnet:?xt=urn:btih:CC4E748539FCBD1358CE5E74E12953103F8B0B8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +182,8 @@ magnet:?xt=urn:btih:CC4E748539FCBD1358CE5E74E12953103F8B0B8D
 magnet:?xt=urn:btih:CFDDCC11B7760FDA0D55B87EB4EC1E33EF7672FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +208,8 @@ magnet:?xt=urn:btih:CFDDCC11B7760FDA0D55B87EB4EC1E33EF7672FB
 ```bash
 magnet:?xt=urn:btih:D47EFB6ED796257A5E1FD9AFA299A1B564733EAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +237,8 @@ magnet:?xt=urn:btih:D47EFB6ED796257A5E1FD9AFA299A1B564733EAB
 magnet:?xt=urn:btih:661DCF5FF1B834AA16C3057A5D3D1A9199B3EDBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +264,8 @@ magnet:?xt=urn:btih:661DCF5FF1B834AA16C3057A5D3D1A9199B3EDBC
 magnet:?xt=urn:btih:B2591C4DB3147882FB5CBE504B3C0DC51B926A75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +289,8 @@ magnet:?xt=urn:btih:B2591C4DB3147882FB5CBE504B3C0DC51B926A75
 ```bash
 magnet:?xt=urn:btih:5B81C5E63FE244FF7AFB2813E21AC3C1E6B3CF77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +316,8 @@ magnet:?xt=urn:btih:5B81C5E63FE244FF7AFB2813E21AC3C1E6B3CF77
 magnet:?xt=urn:btih:FD90D73341ED68A2EBEC29E2EA84AD6C48301852
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:FD90D73341ED68A2EBEC29E2EA84AD6C48301852
 ```bash
 magnet:?xt=urn:btih:F67910A02B0970F9AAD8E8E9E954B05639F409BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +371,8 @@ magnet:?xt=urn:btih:F67910A02B0970F9AAD8E8E9E954B05639F409BA
 magnet:?xt=urn:btih:EE32B2D92CBAE0283D3E488A5311C621B1427984
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +396,8 @@ magnet:?xt=urn:btih:EE32B2D92CBAE0283D3E488A5311C621B1427984
 ```bash
 magnet:?xt=urn:btih:408E58A30351319EB0E7BE16461C77FF67D4179C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +423,8 @@ magnet:?xt=urn:btih:408E58A30351319EB0E7BE16461C77FF67D4179C
 magnet:?xt=urn:btih:C330A19660A99F64B2CC960282786C5D5FBC579C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +449,8 @@ magnet:?xt=urn:btih:C330A19660A99F64B2CC960282786C5D5FBC579C
 magnet:?xt=urn:btih:7979E9D274A5BA261B6C1322F56EDAB82E5115A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +474,8 @@ magnet:?xt=urn:btih:7979E9D274A5BA261B6C1322F56EDAB82E5115A3
 ```bash
 magnet:?xt=urn:btih:4A9A6658F9372C121BC6D7F1DF00871637766D55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +503,8 @@ magnet:?xt=urn:btih:4A9A6658F9372C121BC6D7F1DF00871637766D55
 magnet:?xt=urn:btih:147E2A2980B3379113873C17489486D299E62140
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +528,8 @@ magnet:?xt=urn:btih:147E2A2980B3379113873C17489486D299E62140
 ```bash
 magnet:?xt=urn:btih:17C51DB1488E4309EF4483FE9CF68E0C169987E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +555,8 @@ magnet:?xt=urn:btih:17C51DB1488E4309EF4483FE9CF68E0C169987E6
 magnet:?xt=urn:btih:BFF7789402BF2664AC26A2FC8284695586676713
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +580,8 @@ magnet:?xt=urn:btih:BFF7789402BF2664AC26A2FC8284695586676713
 ```bash
 magnet:?xt=urn:btih:2F999088F1F90632886E1F7474EF447AE982145A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +608,8 @@ magnet:?xt=urn:btih:2F999088F1F90632886E1F7474EF447AE982145A
 magnet:?xt=urn:btih:1073C39C31F8A2B4B6250DD20913969CC5A0ADAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +633,8 @@ magnet:?xt=urn:btih:1073C39C31F8A2B4B6250DD20913969CC5A0ADAD
 ```bash
 magnet:?xt=urn:btih:CC253C5FEACA1D4083C655E53094E777DC09BD9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +660,8 @@ magnet:?xt=urn:btih:CC253C5FEACA1D4083C655E53094E777DC09BD9E
 magnet:?xt=urn:btih:0DFDA63E5D69F4156FFD6AD8776E64DFD98AD81D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,29 +686,7 @@ magnet:?xt=urn:btih:0DFDA63E5D69F4156FFD6AD8776E64DFD98AD81D
 magnet:?xt=urn:btih:46A8ED13AD90BFC4C5756282BA2CAD4E380B7BA0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908595   (632119) от 15.06.2015
-
-Лайонел Корбетт | Священный котел. Психотерапия как духовная практика (2014) [FB2, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основная идея книги заключается в том, что процесс психотерапии является по-настоящему духовной работой как для терапевта, так и для пациента. Психика становится пространством выражения сакрального и формирует особое трансперсональное поле, внутри которого осуществляется терапевтическая работа. В этой книге описаны различные варианты того, как чувствительность к (   Читать дальше...   )Жанр: Психотерапия и консультирование, Зарубежная психологияПеревод: В. И. ФроловФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BCACEEF26164F39D85523C39D33504E39BE8C10
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

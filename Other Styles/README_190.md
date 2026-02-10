@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:A83DCDFA61E72FD4D39CF78FC0DDAD1D5457A00F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ George Winston - -A Memorial Benefit (2020) Special Edition [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:857F027BD24875181F9CCED9B20B6A78A0B5B295
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ James Last - Russland Erinnerungen (1977) WEB-Rip by Deezer [FLAC|Lossless|track
 magnet:?xt=urn:btih:AC9CA3A338CCCD417EB2D05C844779CD55F76267
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Throne Room Company - 4  альбома (2011-2013) Discography [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:4A312BE14C34B3501028186ABD67F4C2A7F0AEC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:4A312BE14C34B3501028186ABD67F4C2A7F0AEC9
 magnet:?xt=urn:btih:B17DDA619E0DED99335CB24D4DDF5CDC1E77DC0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Films - Signs From The Past (2016) (Ricco) [FLAC|Lossless|tracks] <Instrumental,
 ```bash
 magnet:?xt=urn:btih:6DBB1224A6EAE170C22B3FFB33359A1260CE57A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Kenio Fuke - Piano Impressions, Vol. 1-2 (2013) [FLAC|Lossless|WEB-DL|tracks] <N
 magnet:?xt=urn:btih:491770F7605D5ECA58790D427F220DE421A8777E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Caravelli - Caravelli at San Remo & J’aime (2019) Compilation, Remastered [FLA
 ```bash
 magnet:?xt=urn:btih:2582822A0CB718FB27D3AA3F22787C9DDF904C0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Firefall - Great Collection (2021) [FLAC|Lossless|image + .cue] <Country Rock, P
 magnet:?xt=urn:btih:5620FD7C08872F56873DB9D0D5E010995C2A5CF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ Dragoslav Pavle Aksentijevic - Древнее Сербское Псалмопе�
 ```bash
 magnet:?xt=urn:btih:61CAD397C45BEAB5A3148894B584B13515F02A70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ Shinnobu - The Enigma III (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient
 magnet:?xt=urn:btih:1F2DD8F2B531D81D51F8898845B5FF9C612D243A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ Ani Tsering Wangmo - Immeasurable Joy (2006) [FLAC|Lossless|tracks + .cue] <Tibe
 ```bash
 magnet:?xt=urn:btih:4777DA693CDE2B26AAA461300654A41483CFF19D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ VA - Fiesta Latina 2019 (80 Big Latin Hits 2019/2020!) [MP3|320 Kbps] <Latin, Re
 magnet:?xt=urn:btih:549987BF72CA37B8B95B71D040DC2423D12207EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ Gheorghe Zamfir - румынский музыкант, играющий на м�
 ```bash
 magnet:?xt=urn:btih:4EE6AD143B079E8F6FFE7F17D0299CFE61C7810D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +425,8 @@ magnet:?xt=urn:btih:4EE6AD143B079E8F6FFE7F17D0299CFE61C7810D
 magnet:?xt=urn:btih:43AA388DE73D693D6409128DF5BB9B6ED73C40B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:A18295C171323EB7044A2C31AE99150EA3D66B51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ magnet:?xt=urn:btih:A18295C171323EB7044A2C31AE99150EA3D66B51
 magnet:?xt=urn:btih:61D208ED3EBC1E51B5AC971022F1F6840136F74B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ Richard Clayderman and The Ray Hamilton Orchestra - Romantic Piano (2014) Box-se
 ```bash
 magnet:?xt=urn:btih:A274A2BFD1DA45823B8EBE363D5751A7E350A33D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ Behzad (Behzad Aghabeigi) - Discography (1997-2019) WEB [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:5B58A024D6B9B6B8FF89C86AB3AED31A07E1F320
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ magnet:?xt=urn:btih:5B58A024D6B9B6B8FF89C86AB3AED31A07E1F320
 ```bash
 magnet:?xt=urn:btih:9D10EA6348041E2E0E49B65D343EB4EA4843ED81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +599,8 @@ David Wilson начал свою профессиональную карьеру
 magnet:?xt=urn:btih:B67F44F273033E4ABC7835B3958ADE09CC903622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +627,8 @@ INXS - ORIGINAL SIN (2021) [FLAC|Lossless|Web-DL|tracks] <Alternative Rock, Pop 
 ```bash
 magnet:?xt=urn:btih:B395A7DFC90BCCDE90E5DF42A7454A0A4E29C964
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +657,8 @@ INXS - WRATH (2021) [FLAC|Lossless|Web-DL|tracks] <Alternative Rock, Pop Rock, N
 magnet:?xt=urn:btih:A2251B3082306A7CC1556E97778AF6308EDF2130
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +685,8 @@ Machu Picchu - La Colegiala (1990) Reissue, 1997,  Vilma [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:6A49ABC54B11983A684DBC4BBF3DB6B3C9D490F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +715,8 @@ Kárpátia (Karpatia) - Csatazaj (2021) [FLAC|Lossless|tracks + .cue] <Folk Rock
 magnet:?xt=urn:btih:EAC94F09E45906E774CC20B899034192CD340BF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ magnet:?xt=urn:btih:EAC94F09E45906E774CC20B899034192CD340BF4
 ```bash
 magnet:?xt=urn:btih:87D1F90CA9D92D9F64936020FC216FF5A188DD14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

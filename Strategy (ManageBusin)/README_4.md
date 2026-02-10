@@ -19,6 +19,8 @@ Cities: Skylines предлагает по-новому взглянуть на 
 magnet:?xt=urn:btih:7DF73AB0531ACF357CABC0917964A59F84BA87D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Cities: Skylines предлагает по-новому взглянуть на 
 ```bash
 magnet:?xt=urn:btih:760684346E56479CFE9442EE79B1FC21C81A9D9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Cities: Skylines предлагает по-новому взглянуть на 
 magnet:?xt=urn:btih:F57A459DCA8F1AB91C9A3C894BFE05E4D5A79CF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Kaiserpunk (2025) [Ru/Multi] (1.00.002/dlc) Repack dixen18 [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:EFFC6C5411AAEEB8772FBB9AFF31CECBC671E110
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Kaiserpunk (2025) [Ru/Multi] (1.00.002/dlc) Repack FitGirl [Supporter Edition]
 magnet:?xt=urn:btih:94AEE4DB6BFFECF3408B8DD1E56AB005EBC93DA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Sims Legacy Collection (2025) [Ru/En] (1.0.0.139/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:B01D9E0216CB2729EB3A06F79BC8DF1264D08685
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Bass Defense - игра, где музыка становится оружием
 magnet:?xt=urn:btih:D52442167AC5995F8B2F77E4FE07A1C9F3813B0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Kaiserpunk (2025) [Ru/Multi] (build 17798436) RePack seleZen
 ```bash
 magnet:?xt=urn:btih:933633A58C4897062A7D4C526CCE60B03B04B990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Dungeon Tycoon приглашает игроков отправиться в п�
 magnet:?xt=urn:btih:B8F737BA2F6A6370ABB0B59EEA0CC7C58C06F4A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Republic of Pirates (2024) [Ru/Multi] (0.32.1.24) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:DB7333A65403763265D162DEFE0987F2382A1BF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Oasis Mission: Colony Sim - это стратегический симулято
 magnet:?xt=urn:btih:41DF2CBC8B74CFE976A8D829B908902CFDEC34A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Learning Factory - симулятор, который призван созда�
 ```bash
 magnet:?xt=urn:btih:E096EFB8C90C2B813EFFADE9B06E38D42B1C895A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ One Military Camp (2023) [Ru/Multi] (1.1.0.38/dlc) Repack Other s
 magnet:?xt=urn:btih:F186A54A7BEC3A5D452BD2CD8CE29E7EF22C7E7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Tropico 6 (2019) [Ru/Multi] (23/dlc) Repack FitGirl [El Prez Edition]
 ```bash
 magnet:?xt=urn:btih:814C07282184C0C7DD913268DAA20FADABF4FC9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Hundred Days - Winemaking Simulator (2021) [Ru/Multi] (1.8.0w1/dlc) License GOG
 magnet:?xt=urn:btih:08689ABE288D7DB9D1600234E0D96E2AAD6FDFAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Kingdom Two Crowns является новым этапом развития э�
 ```bash
 magnet:?xt=urn:btih:D39A1E08EE9E597C5FEF580A28F8D4939BE2D27B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Pegasus Expedition - это сюжетная глобальная страт
 magnet:?xt=urn:btih:484F06B9FA65A6B86A3ECEFFE369670A44F4CADD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Builders of Egypt - это экономическая градостроител
 ```bash
 magnet:?xt=urn:btih:4EB34A5B60D892CED63A1D292AE7033CD896B013
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ One Military Camp (2023) [Ru/Multi] (1.1.0.38/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:FE50D10F9F2E101B45F8F4F572AC467C37D6B06B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Railway Empire 2 (2023) [Ru/Multi] (1.6.0.63057/dlc) Repack FitGirl [Digital Del
 ```bash
 magnet:?xt=urn:btih:722473AE9AFC6CCD8FBC830FE3FA911B149DD0AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Mycelium Heaven (2025) [Ru/Multi] (1.0.0.1) Repack seleZen
 magnet:?xt=urn:btih:75F790CA9D9138121E98160AF22119655587A043
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Flash Doll / Светящаяся кукла (2025) [Ru/Multi] (1.0) Repack FitG
 ```bash
 magnet:?xt=urn:btih:669D0ABCD6845CE51E12D5B027987E2473CDD363
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Feudal Baron: King's Land (2024) [Ru/Multi] (1.0.20241220.698) Repack FitGirl
 magnet:?xt=urn:btih:89B815CE37A0514F68AB2E71450261D8352FFBB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Microtopia (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1CFB1106088ED40F2634C2A270E7E5FA01D74C8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Vertical Kingdom (2024) [Multi] (1.0.1) License GOG
 magnet:?xt=urn:btih:C5711D5FCFFADF28D6187DAD79B13820946A07AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Catizens (2022) [Ru/Multi] (1.0.r166) License GOG
 ```bash
 magnet:?xt=urn:btih:5B859285807E6D1C769FC0CCF3D1825483144C51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

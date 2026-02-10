@@ -22,6 +22,8 @@ VA - Music News vol.57 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:E8950D014F95A5736C478C940FDE5501C955BB32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:E8950D014F95A5736C478C940FDE5501C955BB32
 ```bash
 magnet:?xt=urn:btih:BC20E07406D9971252ADF81D941432E10660E28E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Cyberfox 43.0.2 for AMD + Portable [Ru/En]
 magnet:?xt=urn:btih:DFDE445150D27E07B8DBD0E7B463C02A79BB12C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:DFDE445150D27E07B8DBD0E7B463C02A79BB12C7
 ```bash
 magnet:?xt=urn:btih:8E27309B34AD91BBAEDA1026354D4C15AAF7EF81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:8E27309B34AD91BBAEDA1026354D4C15AAF7EF81
 magnet:?xt=urn:btih:BB2229F0A0F740260007278766B56CFAEC144EDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:BB2229F0A0F740260007278766B56CFAEC144EDA
 ```bash
 magnet:?xt=urn:btih:FBD9D63BB844AB63DD09505160A4C72C26EA5195
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:FBD9D63BB844AB63DD09505160A4C72C26EA5195
 magnet:?xt=urn:btih:CB5CC994DC5740ABA725A4DEDDBB76B85787144F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Cinematic Strikes Designed - свежий продукт кинематогра�
 ```bash
 magnet:?xt=urn:btih:0681026EF917F60AF297AD3C4ECF96F074CD245E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ A4 - Я все еще люблю. I Love Her Still. (Пи Ви Крэйтон)( 
 magnet:?xt=urn:btih:667B6BE0C921CB732F2219A6EBE948D81DA623B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:667B6BE0C921CB732F2219A6EBE948D81DA623B5
 ```bash
 magnet:?xt=urn:btih:BEF767BFE0DF6018A3A3D7569BD67DC2064F6809
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Sidify Apple Music Converter может удалить DRM от Apple Music и �
 magnet:?xt=urn:btih:ECFD8EBBFF28E1F8CC5B7EF34CC445AC30562DE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Skillbox, Анна Шепелева, Нина Олейникова  | Анали
 ```bash
 magnet:?xt=urn:btih:53D3D23C9802F7BCAD7794489B12CCECBDB12FAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ Rautu - Sphere (2017) IMMINENT [FLAC 2.0|44.1/24|tracks|WEB-DL] <Future Garage, 
 magnet:?xt=urn:btih:9F889B05C26BCE365D2E41D820FE92792EE0C780
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:9F889B05C26BCE365D2E41D820FE92792EE0C780
 magnet:?xt=urn:btih:05CAE297B6A409E07AF28DC4B44B8C57849D3E03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:05CAE297B6A409E07AF28DC4B44B8C57849D3E03
 ```bash
 magnet:?xt=urn:btih:9FA88A1564535753B479BFBF20269CF8A059A108
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:9FA88A1564535753B479BFBF20269CF8A059A108
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:9FA88A1564535753B479BFBF20269CF8A059A108
 ```bash
 magnet:?xt=urn:btih:7A00FAAC894243EBF70925EB8FEBA0B7F67AD285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ Royal Hunt - это динамичную смесь традиционного �
 magnet:?xt=urn:btih:9CDAA78BD7DBC94416718E88A4164CFABC7382B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:9CDAA78BD7DBC94416718E88A4164CFABC7382B1
 ```bash
 magnet:?xt=urn:btih:CA056243E238AECE2AECFEAE6235D8B27C6F4EF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ Later позволяет планировать напоминания есте�
 magnet:?xt=urn:btih:CC70CD2205454F494443641DCF7CCD8810B69D0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:CC70CD2205454F494443641DCF7CCD8810B69D0D
 ```bash
 magnet:?xt=urn:btih:0069CBB9236779957CBB476E34130518F9C2CF56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ Wipe 2013.00 [Multi/Rus]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ ANA 2 это вторая, полностью переработанная ве�
 ```bash
 magnet:?xt=urn:btih:90C21AD382A17B3C2FBF55A8A2297C873D0169E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ Learn Squared, Steven Cormann | 3D Matte Painting (2019) WEB-DLRip [RU, EN]
 magnet:?xt=urn:btih:C8F1AE5A8C1131CC31E9F0D598937B6D6F1BCCE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ magnet:?xt=urn:btih:C8F1AE5A8C1131CC31E9F0D598937B6D6F1BCCE8
 ```bash
 magnet:?xt=urn:btih:CC473AEFF7654E8D62CE6A14337169AED8A7CBF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +696,8 @@ magnet:?xt=urn:btih:CC473AEFF7654E8D62CE6A14337169AED8A7CBF7
 ```bash
 magnet:?xt=urn:btih:25439FED8AE1157DAA0D83107AC4C2902B5F537B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

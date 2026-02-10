@@ -20,6 +20,8 @@ NGW: Хищник в раю. Прибрежные убийцы / Predator in Par
 magnet:?xt=urn:btih:89879B6D2D77E4D63FA7AEED2B61FD0F111E3F11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ NGW: Птичья популяция / Bird Nation (2018) HDTV [H.264/1080i-LQ]
 magnet:?xt=urn:btih:CCB9D9ADA24E619420801005BED63FF496313015
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Animal Planet. Дикая Франция (10 серий из 10) / Wild France (
 ```bash
 magnet:?xt=urn:btih:26D16D928BDF2E0B7285D82096665D5162558F5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Discovery: Доисторические хроники. Даллас / Prehistor
 magnet:?xt=urn:btih:30BCB36EB2AC6DD6C5BF42DEF3F37930769D9CC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Discovery: История изобретений, Промышленные от�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Discovery Channel: Battlefield / Поля сражений (2005) TvRip
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ BBC: Разум человека (Лабиринты мозга) / The Human Min
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ BBC: Борьба за жизнь / Fight for Life (2007) 3хDVD5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ BBC: Мир природы: Снежный Барс / BBC: Natural World: Snow L
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ BBC: Мир природы: Снежный Барс / BBC: Natural World: Snow L
 magnet:?xt=urn:btih:0C3E64AD0C98D72B991F883F0B18DE09E4D85C38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Discovery: Безопасность границ: США (сериия 1-11 из
 ```bash
 magnet:?xt=urn:btih:FEAFA85DA30CE5A0F6EBE9C6BB08F3736E653BB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:FEAFA85DA30CE5A0F6EBE9C6BB08F3736E653BB7
 magnet:?xt=urn:btih:67F7C697E26486E3425369711BAC24F04278BF18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Discovery. Дом для авто / House of Cars (2014) HDTV [H.264/720p] [Се
 ```bash
 magnet:?xt=urn:btih:A2A28D8D68630CC14E1BB52C62492E9008666824
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Discovery: Ледяное золото / Ice Cold Gold (2014) HDTVRip (2 сез�
 magnet:?xt=urn:btih:33F9BAE599142AACDA128260AB039E53C77605B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Discovery. Дом для авто / House of Cars (2014) HDTVRip [Серия 1-4
 magnet:?xt=urn:btih:B3311032E26FA1049646EACF418CCE3FDB398D0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Discovery: Ледяное золото / Ice Cold Gold (2013) SATRip (1 сезо
 ```bash
 magnet:?xt=urn:btih:6748ED3B7AFF67778BBED2490EA402035F16A2EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ BBC: Прогулки с динозаврами / Walking with Dinosaurs (1999) 
 magnet:?xt=urn:btih:8151F31952257A161B578E3DDF5A7F07E9D329B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:8151F31952257A161B578E3DDF5A7F07E9D329B3
 ```bash
 magnet:?xt=urn:btih:B696E27A8DF5EF609D914997FE6CF7BFF43752FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ BBC: Мир природы. В поисках легенды – чёрный л
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ NGW: Дикая природа Индонезии / Wild Indonesia (2014) HDTV [
 ```bash
 magnet:?xt=urn:btih:496ACDECF7DF6C31FBAD2157606B216285DBF29D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ NGW: Кошачья душа / Soul of the Cat (2017) HDTVRip [H.264/1080i-LQ]
 magnet:?xt=urn:btih:4BDBC41AF83278877DEE269806AAC4B25782510E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Animal Planet. Банда тигриц / Tigress Blood (2014) HDTVRip [H.264/108
 ```bash
 magnet:?xt=urn:btih:A1501B007BB933EFA4A3DA9306981D129FBC7DCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ BBC. Снежные медведи / Snow Bears (2017) DVB [H.264]
 magnet:?xt=urn:btih:9A97B7868F9FD0FDCC2313FAF3D0BD30EA1B671A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ NGW: Пир драконов / Dragons Feast (Into the Dragon's Lair) (2012) HDT
 ```bash
 magnet:?xt=urn:btih:13FEA91A0C63F59BB2AD6C7FC397491B33378519
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ magnet:?xt=urn:btih:13FEA91A0C63F59BB2AD6C7FC397491B33378519
 magnet:?xt=urn:btih:75FF7F339E40AF7053C6B315519B6D4ACB4B222A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Discovery. Дорожные ковбои / Аsphalt Сowboys (2012) HDTVRip [С�
 ```bash
 magnet:?xt=urn:btih:704E2C95B7C6FBB09FCCF693061684ACC3C73710
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

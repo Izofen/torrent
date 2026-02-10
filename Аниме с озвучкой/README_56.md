@@ -20,6 +20,8 @@ Chaos;Child | Хаос; Дитя [2017, TV, 12 ep + 1 sp + 2 OVA] BDRip 1080p 10
 magnet:?xt=urn:btih:735E953F4CEA7FC2A5BF60BD3C5D4866A9586C4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Robotics;Notes | Записки о Робототехнике [2013, TV, 22 ep] 
 ```bash
 magnet:?xt=urn:btih:99B814BE5A9121EECBE9CF8BB4204653F52A3CFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Ao no Exorcist / Blue Exorcist / Синий Экзорцист [2011, TV, 25 и�
 magnet:?xt=urn:btih:CC956C8E9CE6F18A4181754676B13F1CBD7DF209
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Legend of Lemnear: Kyokuguro no Tsubasa Valkisas | Legend of Lemnear | Леге�
 magnet:?xt=urn:btih:6ADC53AFE4DC58632E1DB329F7F544E8E9D779C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Kyoukai no Kanata / Beyond the Boundary / За гранью [2013, TV, 12 ep + S
 magnet:?xt=urn:btih:367D74D8C76D48165300CF5626840433AE48C4C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Steins;Gate | Врата Штейна [2011, TV, 24 ep + 2 sp + 4 ONA] BDRip 108
 ```bash
 magnet:?xt=urn:btih:8FC0BE9BF5893BC116FB98F803EF99C1322722EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Promare | Промар [2019, Movie] BDRip 1080p raw+rus
 magnet:?xt=urn:btih:D865872E17CE36B769F69E182C6DA5105010DA5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Batman Ninja | Бэтмен Ниндзя [2018, Movie] BDRip 1080p raw+rus
 ```bash
 magnet:?xt=urn:btih:022497525A7FAAE7B9F75BFD20AF49188C6F047B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Baka to Test to Shoukanjuu Ni! | Дурни, Тесты, Аватары [ТВ-2]
 magnet:?xt=urn:btih:756B541E372747205D497524B01E4E1713DF7357
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Baka to Test to Shoukanjuu | Дурни, Тесты, Аватары [ТВ-1][201
 magnet:?xt=urn:btih:E6D988A85E189E0E5B5A8F90678265B6C46FAAC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ To Love-Ru: Trouble - Darkness 2nd / Любовные неприятности: 
 ```bash
 magnet:?xt=urn:btih:CE05FF1C3BA812637F764D305373003A82AC633D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Nozoki Ana / A Peep Hole / Дыра / Щель [2013, OVA, 1ep] DVDrip rus (Anco
 magnet:?xt=urn:btih:D9F1BE0DBD1A3A2853EF91B0FD9C762FF1C8E984
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ Tate no Yuusha no Nariagari | The Rising of the Shield Hero | Восхожден
 magnet:?xt=urn:btih:FD24EE79884B94DDF5D292D31157578B19D110F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ Dororo | Дороро [2019, TV, 24 ep] BDRip 1080p raw+rus
 magnet:?xt=urn:btih:CD94BC5409492C93433AB0C3ED73EDCBF31EAF66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Madox-01 / Metal Skin Panic Madox 01 / Бешеный бык [1987, OVA, 1 эп.
 ```bash
 magnet:?xt=urn:btih:03EC543E482EE175E62E63CD75030E8B116DCBA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ Gekijouban Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer the Movie: Mugen Tr
 magnet:?xt=urn:btih:195266122609374F2CC51799F8FD8C931962379B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ Gakuen Mokushiroku: High School of the Dead | High School of the Dead | Школ
 ```bash
 magnet:?xt=urn:btih:8ED717C32F268C14A7AD79C21802CCE63AC94765
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ Ginga Eiyuu Densetsu: Waga Yuku wa Hoshi no Taikai | Legend of Galactic Heroes (
 magnet:?xt=urn:btih:DEA2751DE3DB3EFE38A6D8EADEFFEEF394350134
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Kokoro ga Sakebitagatterunda | The Anthem of the Heart | Сердцу Хочет
 ```bash
 magnet:?xt=urn:btih:3FFDDAB069756EF28969D00B5A6DF79DEA9B7EE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ Isekai Shokudou | Restaurant to Another World | Кафе из Другого М�
 magnet:?xt=urn:btih:D959403197C78A5A50B6989060225AB494E553AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Saenai Heroine no Sodatekata | Saekano: How to Raise a Boring Girlfriend | Ка�
 magnet:?xt=urn:btih:8C27870C0F41DC922D2FEB52C2A733FD576FD7E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ No Game No Life / Игра на выживание [2014, TV, 12 ep] BDRip Hi10p
 ```bash
 magnet:?xt=urn:btih:DE093D83C4C492E2C55B7F7D37DBA4B44DB2A4C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ Toki wo Kakeru Shoujo | The Girl Who Leapt Through Time | Девочка, Пок
 magnet:?xt=urn:btih:35292D07B475A7160382C7398375C9AEE7BC1817
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ To Love-Ru: Trouble | To Loveru | Любовные Неприятности [TV-
 ```bash
 magnet:?xt=urn:btih:5482D8AEC9807606B95425C47D353791D2790CC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ Kappa no Coo to Natsuyasumi | Summer Days with Coo | Волшебное лето
 magnet:?xt=urn:btih:0CD208C6FAEDB33CE7D95CE3FC8643CF6F31019C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Hataraku Maou-sama! | The Devil is a Part-Timer! | Повелитель Тьмы
 ```bash
 magnet:?xt=urn:btih:B694C2F5FA7213B0EA32A31791E83A7967A77592
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1507177   (798674) от 03.11.2021
+
+Год в дикой Африке / Africa's Wild Year (2021) WEBRip [H.264/1080p] (серии 1-4 из 4)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал из четырех частей, действие которого происходит в Африке в течение одного года. Каждая серия посвящена одному из сезонов; Весна, Лето, Осень и Зима, открывая совершенно разные условия, которые они приносят. Когда температура меняется, по всему континенту проходят дожди, а свет и жара меняются, каждое животное адаптируется соответственно.Производство: США / Blue Ant Media Solutions INC., MER InternationalЖанр: Документальный, Природа, Фауна, ФлораРежиссер: Чарли ЛакокПеревод: Одноголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: ~00:47:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A6F16EDFA54AE9A249DD80ACF5CC5BBBA9B3911
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507112   (798709) от 03.11.2021
 
 Альпы / The Alps (2021) WEBRip [AV1/4320p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:E464AAF3A35986880DB4615F8549AA839483CDF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:E464AAF3A35986880DB4615F8549AA839483CDF8
 magnet:?xt=urn:btih:6A103C76513526F3B51EE069E492E3339DF693E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:6A103C76513526F3B51EE069E492E3339DF693E3
 ```bash
 magnet:?xt=urn:btih:0A9D54DDA68CFAD2670C55E1F525DAEAB7AB4C0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:0A9D54DDA68CFAD2670C55E1F525DAEAB7AB4C0A
 magnet:?xt=urn:btih:F8A1C05542947B6F0750DBF657442AE6F9876034
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:F8A1C05542947B6F0750DBF657442AE6F9876034
 ```bash
 magnet:?xt=urn:btih:BD74D878EA050ACE739ADCB331C820A800125892
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:BD74D878EA050ACE739ADCB331C820A800125892
 magnet:?xt=urn:btih:53D83872E18C2C712382EC01EDB0EABA25E865FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:53D83872E18C2C712382EC01EDB0EABA25E865FF
 ```bash
 magnet:?xt=urn:btih:84962A12741ED513FF7F2BCABB1CD78C80C0B1DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:84962A12741ED513FF7F2BCABB1CD78C80C0B1DA
 magnet:?xt=urn:btih:2F65CA3AEFC59C2A474D9E97B61385C067DBF68D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:2F65CA3AEFC59C2A474D9E97B61385C067DBF68D
 ```bash
 magnet:?xt=urn:btih:A4E3C80454CE6554EBA6C71A7F17B3E16DA33908
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:A4E3C80454CE6554EBA6C71A7F17B3E16DA33908
 magnet:?xt=urn:btih:A53B2F7E646A524A4072F273CCF5EA1A1D333084
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:A53B2F7E646A524A4072F273CCF5EA1A1D333084
 ```bash
 magnet:?xt=urn:btih:35710BCB9B569CCCA442E884E3CCE4835293A2FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:35710BCB9B569CCCA442E884E3CCE4835293A2FC
 magnet:?xt=urn:btih:002FF79387CFABE52D802DDAA2D85890FA554619
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:002FF79387CFABE52D802DDAA2D85890FA554619
 ```bash
 magnet:?xt=urn:btih:6845F1AEEFA2F763A11B825F7AE79B630DE8764D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:6845F1AEEFA2F763A11B825F7AE79B630DE8764D
 magnet:?xt=urn:btih:1BF56F0F8813A9BAB6DE0123D7C48AF2763BCF30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +408,8 @@ magnet:?xt=urn:btih:1BF56F0F8813A9BAB6DE0123D7C48AF2763BCF30
 ```bash
 magnet:?xt=urn:btih:3463A4057325803C0297A90E36B1BE1FCD935256
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:3463A4057325803C0297A90E36B1BE1FCD935256
 magnet:?xt=urn:btih:D8C91CBEDC407015646D2E3E4D057022467B8672
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +460,8 @@ magnet:?xt=urn:btih:D8C91CBEDC407015646D2E3E4D057022467B8672
 ```bash
 magnet:?xt=urn:btih:5CF495EB0DDB73733B86DC9A1ECE949B80546285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:5CF495EB0DDB73733B86DC9A1ECE949B80546285
 magnet:?xt=urn:btih:4EC59F1CFA52A1A2297C8476AD96927352748C56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:4EC59F1CFA52A1A2297C8476AD96927352748C56
 ```bash
 magnet:?xt=urn:btih:0A6C546863BC21B80D98DF1BEC71948421AC9195
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:0A6C546863BC21B80D98DF1BEC71948421AC9195
 magnet:?xt=urn:btih:B0B35F436AC2EC251A3452277338738D3A781C05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:B0B35F436AC2EC251A3452277338738D3A781C05
 magnet:?xt=urn:btih:AD2AC681B8F9E07D627F1856A7B2717EF01BE7BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:AD2AC681B8F9E07D627F1856A7B2717EF01BE7BD
 ```bash
 magnet:?xt=urn:btih:AB5E2A5461B98C68A0391DE959E6DC33E99FEF80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:AB5E2A5461B98C68A0391DE959E6DC33E99FEF80
 magnet:?xt=urn:btih:DE78A31FC4A34A0A1D8909ED3EB3BBE48E2DC605
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:DE78A31FC4A34A0A1D8909ED3EB3BBE48E2DC605
 ```bash
 magnet:?xt=urn:btih:370F08B9E09E6BD4FEA81C428B61E6646CE6B9E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:370F08B9E09E6BD4FEA81C428B61E6646CE6B9E6
 magnet:?xt=urn:btih:AD439F994EA21E119D0EAB8F77323228BEAFA834
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273524   (799736) от 02.01.2019
-
-Голос. Перезагрузка (2019.01.01) HDTV [H.264/1080i-LQ] (сезон 7, выпуск 13)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из самых ярких шоу-проектов в очередной раз продемонстрирует невероятные результаты от альянса обладателей незаурядных голосов и опытных наставников, позволяющих талантам раскрыться и расцвести. Великолепные голоса, уникальные музыкальные постановки, молодые и не очень участники, которым придется испытать радость творчества, счастье триумфа и слезы поражения (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТВ-шоуСубтитры: отсутствуютПродолжительность: 01:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EF61222E56110B4ADBEB0980C46ACC6418690B0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

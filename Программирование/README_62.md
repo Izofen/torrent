@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:9384E3AE2EE4C68ECFEB8079BBB96E5E33777693
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ PyTorch – это фреймворк от Facebook с открытым исхо
 ```bash
 magnet:?xt=urn:btih:B6D8F294B53B41446DCF4CDD948D76F1669065AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:B6D8F294B53B41446DCF4CDD948D76F1669065AF
 magnet:?xt=urn:btih:B81C00FA86BBF8D6C08B2AFF7A79D3A22A049E24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:B81C00FA86BBF8D6C08B2AFF7A79D3A22A049E24
 ```bash
 magnet:?xt=urn:btih:366E8EBD50D8CAFE428E2341B56AD60D0477A1E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:366E8EBD50D8CAFE428E2341B56AD60D0477A1E8
 magnet:?xt=urn:btih:3E05F4007D17E96DCFDB6C46F89264F374D27375
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Web 3.0: Токенизация, (   Читать дальше...   )Жанр: 
 magnet:?xt=urn:btih:67A34BF6B69AE528AE123395472C6499CD519FCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:67A34BF6B69AE528AE123395472C6499CD519FCA
 magnet:?xt=urn:btih:A92823681F209A5F704B7A4222FCA477E6B37EBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Kotlin - один из самых новых языков в экосистем�
 ```bash
 magnet:?xt=urn:btih:279BDDC28ACCE198303E9596D6231F706EA3D2EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:279BDDC28ACCE198303E9596D6231F706EA3D2EA
 magnet:?xt=urn:btih:F90BB990892023227DACAF521FBE92DA22D99681
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:F90BB990892023227DACAF521FBE92DA22D99681
 magnet:?xt=urn:btih:23CB883C64969E5DFE330574B12D8667C5440F87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:23CB883C64969E5DFE330574B12D8667C5440F87
 ```bash
 magnet:?xt=urn:btih:7070CC1133CFF508A238CC231CA3AF7D72614A4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:7070CC1133CFF508A238CC231CA3AF7D72614A4B
 magnet:?xt=urn:btih:B2142DFAEE2B92C4C4562DED65DFEBBB40AC1FB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ This book is a beginner’s guide to Java Programming Language for Kids ages 12 
 ```bash
 magnet:?xt=urn:btih:751F6C9DACF35075E6203E378DF10FB824058FFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:751F6C9DACF35075E6203E378DF10FB824058FFA
 magnet:?xt=urn:btih:B837A44120A4535D516DEF08BBAD5C17EF9E6376
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:B837A44120A4535D516DEF08BBAD5C17EF9E6376
 ```bash
 magnet:?xt=urn:btih:D36A01660F13D4550D59B60E4953D4F2B748327F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ javascript — это язык программирования для веб-с
 magnet:?xt=urn:btih:86D153E663E9341D359FC3FDB62E95A1CF269413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:86D153E663E9341D359FC3FDB62E95A1CF269413
 ```bash
 magnet:?xt=urn:btih:F89DDF3852EC6ACD2E60143CC80DFF5156798E30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:F89DDF3852EC6ACD2E60143CC80DFF5156798E30
 magnet:?xt=urn:btih:B5327BCC01F97CA592E94960654BE52D5ABAE26B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Daniel Chen | Pandas for Everyone: Python Data Analysis, 2nd Edition (2023) [PDF
 ```bash
 magnet:?xt=urn:btih:BB3717B78D21B0B812AFA5AEF2E93751CC00D597
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ Alan Alickovic | React Application Architecture for Production (2023) [PDF] [EN]
 magnet:?xt=urn:btih:CEACD5338203205B10996C81431AB605D81A48CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ John Paul Mueller | Beginning Programming with Python For Dummies, 3rd Edition (
 magnet:?xt=urn:btih:E5B8A92D08FC032E087E37F443004AA65ACE9E32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:E5B8A92D08FC032E087E37F443004AA65ACE9E32
 ```bash
 magnet:?xt=urn:btih:41C28042F759067BB8960FE1CDB416D57F6B1D4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:41C28042F759067BB8960FE1CDB416D57F6B1D4B
 magnet:?xt=urn:btih:ACB29B59CB3F26900AB5DA84589507279A3D17D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:ACB29B59CB3F26900AB5DA84589507279A3D17D1
 ```bash
 magnet:?xt=urn:btih:E8B6DD5120F677107B65B8BF56D31CD4B6924B4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ PascalABC.NET — современная версия языка програм�
 magnet:?xt=urn:btih:97F455EDFCD7F8157B3D69CFB952D2CB33DF2496
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Roger Ye | .NET MAUI Cross-Platform Application Development (2023) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:913E0F158EFC9D79F60BE5ED18189F93D9C3E9E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

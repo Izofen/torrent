@@ -19,6 +19,8 @@ BlackSite: Area 51 - Штат Невада. Маленький городок Р
 magnet:?xt=urn:btih:757A15674F028A7A577F5A9E7BAD8306F729A2D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Hell Yeah! Wrath of the Dead Rabbit – кровавый и жестокий п�
 magnet:?xt=urn:btih:0EE3C239702CF13B69ED18AADEEE1BB95E3D37CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Sity Crisis - бурная вертолётная акция в джунглях
 ```bash
 magnet:?xt=urn:btih:9D0ABA2183F71054BE54D60E5F50D332305FD9B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ The Testament of Sherlock Holmes / Последняя Воля Шерлока Х
 magnet:?xt=urn:btih:28CA7C4BF5DA1FB324A21B8F46F11FE270043D3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Rise To Honour — яркий и динамичный интерактивный
 magnet:?xt=urn:btih:10D5FBDC59D447DE4EEC91F4346081463A7C2ADD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Baroque - постапокалиптическая RPG с большим кол�
 ```bash
 magnet:?xt=urn:btih:258545F7DC26266010B1E07144D46E0BD24AF6A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Xbox — игровая приставка, разработанная и про
 magnet:?xt=urn:btih:D5D59F226C42E61295D2681F791675D2DA15F282
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Quantum Theory (2010) [Xbox360] [PAL] 8955 [Freeboot] [Unofficial] [Ru]
 magnet:?xt=urn:btih:474B6550A583EFD0F7267664AA2D8D600DEF05D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Bulletstorm: Duke of Switch Edition (2019) [Switch] [NSP] [8.1.0] [License] [Ru/
 ```bash
 magnet:?xt=urn:btih:D2CEA1FF36A2E9A6C0BE105F1506A858D4BA13AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ James Bond 007: Blood Stone (2010) [Xbox360] [RegionFree] 14699 [FreeBoot] [Lice
 magnet:?xt=urn:btih:050F8B4B6473811382D71E12211D9562E12CEBBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ L.A. Noire [PS3] [USA] [DLC] [Ru] [4.46] (2011)
 ```bash
 magnet:?xt=urn:btih:FE094866D07185DF560FD29076E56E34CB714EEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Mortal Kombat Arcade Kollection HD [PS3] [PSN] [EUR] [En] [3.55] [Cobra ODE / E3
 magnet:?xt=urn:btih:486C25AC3C9F6BE554AD03E94873AF1CE44916AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ WET [PS3] [EUR] [Ru] [2.60] [Cobra ODE / E3 ODE PRO ISO] (2009)
 ```bash
 magnet:?xt=urn:btih:8383773BE9FEE9EFE27F1498577CD7CEF22C821C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Medal of Honor [PS3] [EUR] [Ru] [3.42] [Cobra ODE / E3 ODE PRO ISO] (2010)
 magnet:?xt=urn:btih:4294B40E6F0250423F4C6E40EFC4444BB259EF46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ The Darkness II [PS3] [USA] [En] [3.73] [Cobra ODE / E3 ODE PRO ISO] (2012)
 ```bash
 magnet:?xt=urn:btih:1809818B6F0B87661B1C8B0D0A13954D687E70C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ Moon Diver [PS3] [PSN] [USA] [En] [3.40] [Cobra ODE / E3 ODE PRO ISO] (2011)
 magnet:?xt=urn:btih:99A7EFF15B837FC7D87573AD271E0A4ABB6A7EFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ TV Supertars / Звёзды телешоу [PS3] [MOVE] [EUR] [Ru] [4.21] [Cobra
 ```bash
 magnet:?xt=urn:btih:B7313237D225C9F9348AB08344F1AAE5784165B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Castlevania: CoD возвратит вас в привычный мир темн
 magnet:?xt=urn:btih:9A4E81EDC7C103BEE14A9EC46DE6350717B11A57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Beat Down: Fists of Vengeance [PS2] [RUS, NTSC] (2005)
 ```bash
 magnet:?xt=urn:btih:39D21CB99419323DE38E26A258965BBE607E0821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ We Rock: Drum King, игра для Wii, в которой игроки стан
 magnet:?xt=urn:btih:B22F25CC93C5F0B95A7999302D6BC2BDDB82F400
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ Resident Evil 5: Gold Edition (2010) [PS3] [EUR] 3.30 [Repack / 1.04] [Ru/Multi]
 magnet:?xt=urn:btih:6C5F6D28F2CF034642A159D9030DA7AECEF6B657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Ethan: Meteor  Hunter / Итан: Охотник за метеоритами (20
 ```bash
 magnet:?xt=urn:btih:37F4F02192964E69A9EAE4BA8CA4D2DEE3E1162E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ Xbox — игровая приставка, разработанная и про
 magnet:?xt=urn:btih:5CCFBA096F819C198077545A5F15AD29C3B6C4E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ Xbox — игровая приставка, разработанная и про
 ```bash
 magnet:?xt=urn:btih:697F20423627237748C5CCEB5CA5FB9F9DE17D85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +664,8 @@ Xbox — игровая приставка, разработанная и про
 magnet:?xt=urn:btih:89C832C572D7876DA6CF6B6D3BEE467BA5E095D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ Need for Speed NITRO поддерживает использование Wii Rem
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - A Voice From Real Life: Country Folk Music (2021) [MP3|320 Kbps] <Country, 
 magnet:?xt=urn:btih:FD04633C233276B6232F0F570833DE8B492D25C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ The Glass Beads - Therapy (2020) [MP3|~245 Kbps (V0)] <Alternative, Coldwave>
 magnet:?xt=urn:btih:3A0010188DB9E4B0396F98FA4089B8FC9FC0CAC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:3A0010188DB9E4B0396F98FA4089B8FC9FC0CAC8
 magnet:?xt=urn:btih:431DDF3373ED6AE139BECAABCBBA6DC556860C84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:431DDF3373ED6AE139BECAABCBBA6DC556860C84
 magnet:?xt=urn:btih:B8E0BC22B4D2943E533CA95568E2EE7C70E4A785
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ VideoProc Vlogger - это интуитивно понятное и функци
 ```bash
 magnet:?xt=urn:btih:F1E75F44016EE3EEB56B1BDCDBF31F73328F4EDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ Simon Franglen - Аватар: Путь воды / Avatar: The Way of Water (202
 magnet:?xt=urn:btih:C935D1D845064098381BDE0FB5FB809BE44A855E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ Pharaux - Birdsongs of the Manic Vol. I (2020) [FLAC|Lossless|tracks + .cue] <Do
 ```bash
 magnet:?xt=urn:btih:217E7898ECFF557545969C6F10EC1B1B40816D57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -204,6 +218,8 @@ Reyvi - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:5ADBCBCA090EBABEA5F708620157AB990872F78F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ Drunken Buddha - II (2020) [FLAC|Lossless|tracks + .cue] <Hard Rock, Classic Roc
 magnet:?xt=urn:btih:7C11738C603ACB0F3705D2658A28CE5D0BCE1453
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ Topaz A.I. Gigapixel — это первое и единственное при�
 magnet:?xt=urn:btih:25B31BD0F4F99777C387CE34FE236D5D1C8009B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ magnet:?xt=urn:btih:25B31BD0F4F99777C387CE34FE236D5D1C8009B5
 ```bash
 magnet:?xt=urn:btih:379B1A7F03274E362D49967FDBD9076575FB2006
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +328,8 @@ VA - National Pop Dance Music (Vol.28) (2021) [MP3|320 Kbps] <Pop, Dance, Schlag
 magnet:?xt=urn:btih:2836153C4FB14640F38969E3B559C4C0F4190DD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +356,8 @@ D-Beats - Favorites Collection (2025) [MP3|320 Kbps] <Pop, Dance, Electronic, Ot
 ```bash
 magnet:?xt=urn:btih:EEA06B0215332308EA7A1613A791ECAD6253998F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +386,8 @@ VA - Beatport Tech House: Sound Pack #212 (2020) [MP3|320 Kbps] <Tech House, Ele
 magnet:?xt=urn:btih:1EEE6453BF9E36878B3BDD990D27F4419919A491
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +415,8 @@ VA - Electro House: Neon Plasma Party (2021) [MP3|320 Kbps] <Electro House, Danc
 magnet:?xt=urn:btih:5B66F18ACDC3AE577FA809F6AADC73A228883872
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +441,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:09E608216E6EE1F2B507AE5B32DFB5051675F37F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +466,8 @@ magnet:?xt=urn:btih:09E608216E6EE1F2B507AE5B32DFB5051675F37F
 ```bash
 magnet:?xt=urn:btih:BA36B05A88A4EEAE1966FEBA40C1E6FF8870772E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +494,8 @@ magnet:?xt=urn:btih:BA36B05A88A4EEAE1966FEBA40C1E6FF8870772E
 magnet:?xt=urn:btih:62A4FE4DDB292DCA4C39A10FE2C0FC11B6B63349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +519,8 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:39702FBD2E0070C5874C9E79816A20E48E2AEA16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +546,8 @@ IObit Uninstaller представляет собой удобный инстр�
 magnet:?xt=urn:btih:E9596C9795729CDFBDE2BC705A60D01C7E3E248E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ magnet:?xt=urn:btih:E9596C9795729CDFBDE2BC705A60D01C7E3E248E
 ```bash
 magnet:?xt=urn:btih:BC4DFBE832AAE0A679857980579410EF79972768
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +602,8 @@ VA - Electric Blues Mates (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:A26C00101A4326CE3BB2F2B37D33354A7D44D4C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ magnet:?xt=urn:btih:A26C00101A4326CE3BB2F2B37D33354A7D44D4C5
 ```bash
 magnet:?xt=urn:btih:071BDAF2DD678E1875000958F5DD0DFB1FCA003C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ magnet:?xt=urn:btih:071BDAF2DD678E1875000958F5DD0DFB1FCA003C
 ```bash
 magnet:?xt=urn:btih:7412A84DAE79CDBCFD261889169821FF86F4F37B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +684,8 @@ Ramon Roselly - Herzenssache (Platin Edition) (2020) [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:FA5371AEDCF67FCE0F7CD56E10DCE5645F3D321B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +710,8 @@ Pixelmator Pro — это невероятно мощный, красивый и
 ```bash
 magnet:?xt=urn:btih:60C5A864010D9796214C7B7D4C453346C9B7F4BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

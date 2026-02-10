@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:A21770820A40068CF0E6CDB939D72187A3D34F55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Lebora — это современный шрифт с засечками с у�
 ```bash
 magnet:?xt=urn:btih:E9261B3848524123F4C27D50D499831DC8C6F073
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:E9261B3848524123F4C27D50D499831DC8C6F073
 magnet:?xt=urn:btih:F36F2FAE7803179CBF484D1BF3B8B9ABAC21D688
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Faktum — это исследование жанра геометрически
 magnet:?xt=urn:btih:D734B0030FC6BAD2205FA09BF49FF37E27D1412C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:D734B0030FC6BAD2205FA09BF49FF37E27D1412C
 magnet:?xt=urn:btih:7A8F1E93A954D2A4B15BEE2D129B72C49C2C5573
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ FF Kievit обеспечивает расширенную типографску
 ```bash
 magnet:?xt=urn:btih:1C3E8B17FEE1A68FD68A0B4E10D1A8DC1AFA213C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ Crashing Waves обеспечивает безупречные звуковые 
 magnet:?xt=urn:btih:41D44B3A86FDA554A0AA33B79E4247301032085B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:41D44B3A86FDA554A0AA33B79E4247301032085B
 ```bash
 magnet:?xt=urn:btih:C8744EFE723FCC5951CC4B4890071A1C6E8838E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:C8744EFE723FCC5951CC4B4890071A1C6E8838E1
 magnet:?xt=urn:btih:184A60D5702E5622F66FAC715861B750D413AEB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:184A60D5702E5622F66FAC715861B750D413AEB3
 ```bash
 magnet:?xt=urn:btih:50FA3AD8DE27EEDC7156762E6C8D1A98BA93CEEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:50FA3AD8DE27EEDC7156762E6C8D1A98BA93CEEB
 magnet:?xt=urn:btih:092FE67910FF9DC35F7783059A12A1C0A3515018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:092FE67910FF9DC35F7783059A12A1C0A3515018
 magnet:?xt=urn:btih:6581CD1B9EC986ABC694DFDF09B288C05B998D7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ Argö — это шрифт с засечками, изначально разр
 ```bash
 magnet:?xt=urn:btih:654CE11BBBC7181247CE4BF0AF8DFE56827A1C77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ Water Flow — это разнообразная коллекция записе
 magnet:?xt=urn:btih:487BD7814CF2E6FBC77D659ED5B5B8C7D6E0EB5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:487BD7814CF2E6FBC77D659ED5B5B8C7D6E0EB5C
 magnet:?xt=urn:btih:E1B1D633E5698A8420827A6849849186E48CA04E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:E1B1D633E5698A8420827A6849849186E48CA04E
 ```bash
 magnet:?xt=urn:btih:86033B0C977FD157C63BD0337B0B68429FF7C2A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:86033B0C977FD157C63BD0337B0B68429FF7C2A1
 magnet:?xt=urn:btih:29B33B34264CF4F4706964C74BA5F99DD3C63A45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:29B33B34264CF4F4706964C74BA5F99DD3C63A45
 ```bash
 magnet:?xt=urn:btih:B1DD257E8B6EDED2C91A9A8CC62F1B3F9A457615
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:B1DD257E8B6EDED2C91A9A8CC62F1B3F9A457615
 magnet:?xt=urn:btih:9C7FC6D5A5313ABC8739805357CCDBDE79C3A468
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ Vocal AI — Анимированный интеллект (Animated Intelligenc
 ```bash
 magnet:?xt=urn:btih:9B01CFDBD012BFF3543C6542DC291009ED672438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:9B01CFDBD012BFF3543C6542DC291009ED672438
 magnet:?xt=urn:btih:AFD22FC9B5B8C115831CA14F73D5FF3E33A1537C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:AFD22FC9B5B8C115831CA14F73D5FF3E33A1537C
 magnet:?xt=urn:btih:02EEB0B2B549B0B2914727762DCC3FC143C747E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ TA Sonatina — это универсальный акцидентный шри�
 ```bash
 magnet:?xt=urn:btih:43D407ABE8D0EB6FBB515C88F8F3C2E2F8374169
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ Charming Blues — современный и роскошный шрифт с з
 magnet:?xt=urn:btih:31E83EC16C2C9809849B91CF60DC328A642EE115
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ Grandeur Tropical — роскошный ретро-шрифт с засечка
 magnet:?xt=urn:btih:A6B71D757A7FF3E4F56E50C3B0157E28D286CFA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ Miguer Sans — это высококонтрастный, современны�
 ```bash
 magnet:?xt=urn:btih:EB1A3C52BA7C54389A645844B67E08235F31817A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

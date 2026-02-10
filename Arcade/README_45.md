@@ -19,6 +19,8 @@ BlazBlue: Centralfiction (2017) [Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:0FF8F58C5389DA0683CDCDEA7578D2CAB25AC706
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Death's Gambit: Afterlife — это новое и расширенное изд
 ```bash
 magnet:?xt=urn:btih:DC5249970571999BD5C4C0EB15D63282C520E4DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Impact Winter (2017) [Ru/Multi] (2.0.10) Repack R.G. Механики
 magnet:?xt=urn:btih:503E50C10B062637C766FEE449A76801C3E2A895
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Job Simulator (2016) [En] (1.0) Repack Other s [VR]
 ```bash
 magnet:?xt=urn:btih:B3BCEE5DAEC7FE5422716627D20AE4FAAB5B9FFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Brigador - это изометрический экшен, в котором и�
 magnet:?xt=urn:btih:1DD3BD7F618FF427737F7A906D5E41ED12553AEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ TurnOn - это замечательное приключение в жанре 
 ```bash
 magnet:?xt=urn:btih:3BE985EF0FEB0D622260868A27E02433DC500DA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Adele: Following the Signs - 2.5D платформер про выживание
 magnet:?xt=urn:btih:FA7A1A01F597FE41BE18B32BEB05C0FE965748B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Dangerous Golf – аркадная версия гольфа с реалист�
 ```bash
 magnet:?xt=urn:btih:648DF8170920F0962001CA1A10D5D9E7CE65A755
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Tumbleweed Express – стимппанк аркада, события кото�
 magnet:?xt=urn:btih:347F8C680990E4D2DFC4C3F9A85034ECDA5FEBC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Quantum Replica (2018) [Ru/Multi] (1.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:884E491AE59CB31606E8BE7423933E2333F53152
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Groovy - это основанная на физике, игра платфор�
 magnet:?xt=urn:btih:A32C296E60F7F86D3FBBE256C4A2C182756170A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Killer Instinct (2017) [Ru/Multi] (1.0/upd14) Repack xatab
 ```bash
 magnet:?xt=urn:btih:9631A20AF34D4DC114390568B94CE14179A00D1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Groovy - это основанная на физике, игра платфор�
 magnet:?xt=urn:btih:46E4516F3B7BF8D533750C1C323EB1F7E8016B3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Escapists 2 (2017) [Ru/Multi] (27.666175/dlc) License GOG [Game of the Year 
 ```bash
 magnet:?xt=urn:btih:152067D2331CF2F0702EDBEBEB477DB033AAE95D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ One Piece: Pirate Warriors 4 (2020) [Ru/Multi] (1.0.1.0/dlc) Repack xatab
 magnet:?xt=urn:btih:83B94B9F30A8F7012D0C4E03CA5BEC179A12E212
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Internet Cafe Simulator 2 - это комплексный и детализир�
 ```bash
 magnet:?xt=urn:btih:00BE43A2529487190371915FB44F954AF2B6DC3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ LEGO Harry Potter: Years 1-4 (2010) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:7E09C5AD117C7038002FFD269BFC7BE126C4B60B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ LEGO Harry Potter: Years 5-7 (2012) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:4BA30F1A58412AF0B3491EA5EB4B618FF33F0122
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Hell Yeah! — это приключенческий экшен-платформ
 magnet:?xt=urn:btih:25E1DA55419035221892EF778109B66514DA70CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Macrotis: A Mother's Journey (2019) [Ru/Multi] (1.0.2) License CODEX
 ```bash
 magnet:?xt=urn:btih:7DCA4EBB811C720FBEB0F006A101D416B63BB256
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ NARUTO SHIPPUDEN: Ultimate Ninja STORM Legacy (2016-2017) [Ru/En] Rip R.G. Reven
 magnet:?xt=urn:btih:42D526C09C588F127C21DADD5B4459167B55202F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Moto Racing 3D — увлекательная игра для всех люби�
 ```bash
 magnet:?xt=urn:btih:848916E5F236DDADB2E26FEA5CE1700242C29501
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ JUMP FORCE — величайшие герои манги из отряда Jump
 magnet:?xt=urn:btih:71FC0615439DCA2C30A87265D2E4DB52515103D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ Ghrian (2016) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:FC103B35DEDE02FC7E2F8E04CDE8E424F28F8D0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ Jump Force (2019) [Ru/Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:9538FD94A25A9FACE8B11CF44DB7B46A26CF8393
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Dragon Ball: Xenoverse (2015) [Ru/Multi] (1.08.00/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:1ACBFD676F30DAE88DC41DEF1FEE599FC0336261
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

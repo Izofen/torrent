@@ -19,6 +19,8 @@ Wise Auto Shutdown позволяет Вам отключать компьюте
 magnet:?xt=urn:btih:9560DD8F51C1AEF6B876275297F432A3DBDDE5F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ WindowManager - программа от разработчиков EarthView и 
 ```bash
 magnet:?xt=urn:btih:08FF57622E1F52D25CDA12C91884A5112282DF1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Movavi Screen Recorder - программа для захвата видео с 
 magnet:?xt=urn:btih:357075DD2525F09C703EC9E873F2D983C6349334
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ IsoBuster - программа, с помощью которой можно по
 magnet:?xt=urn:btih:B81D1A95F0D2D0340DE41D2D0A286678315D98C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ R-Studio Network 9.4 Build 191430 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:95DABF103C1EDFA455A2127E5A48F379E1557B8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Movavi Screen Recorder - программа для захвата видео с 
 magnet:?xt=urn:btih:9D17422B07C56A2F53D52B6C6960E4184D00E2CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Movavi Screen Recorder - программа для захвата видео с 
 magnet:?xt=urn:btih:0C5A71636E05D42678DFC9F345A000CCF80CAE02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Driver Store Explorer — это легкий инструмент, которы
 ```bash
 magnet:?xt=urn:btih:4A9F906061F9F52550D8C2FD2ACF485015F489DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Epic Pen – настольная программа для Windows, позво�
 magnet:?xt=urn:btih:81C892C8EB2FD0C24F874663F729596031CC291C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Min Browser — это легкий веб-браузер с открытым и
 ```bash
 magnet:?xt=urn:btih:B2B3DC2C20C58B4866EF5E091C617237BF7B3638
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ CoolUtils Total CSV Converter - это надежный инструмент д�
 magnet:?xt=urn:btih:4226450BA8B9357F2D99279624AAC76188B1245B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ WinTools.net – набор инструментов для оптимизаци
 ```bash
 magnet:?xt=urn:btih:596C1A955B7CF311B7C1718C91D275ADD4246FD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ DNS Changer - это интуитивно понятное и удобное п�
 magnet:?xt=urn:btih:B81A9F5FB83CECC30B5BAC55E4B48A755BF375FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ IM-Magic Partition Resizer - надежное программное обесп�
 ```bash
 magnet:?xt=urn:btih:322D06ED5B8296516D0FA18C2471DF2922DCD478
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ MemTest86 - бесплатная программа, позволяющая пр
 magnet:?xt=urn:btih:BFB7DAD00DA36C9CD48F816618E59820BCB5FEF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Memtest86+ 7.20 [En]
 ```bash
 magnet:?xt=urn:btih:ACC4FDB177BFCB394F4C92CD88A7CA6E87E7ECB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ ClipAngel 2.17 & portable [Multi/Ru]
 magnet:?xt=urn:btih:2ECEB89CBAE09A0C536DB6324307ED5EFE1EA699
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ TweakNow WinSecret Plus! - позволяет пользователям исс�
 ```bash
 magnet:?xt=urn:btih:E29D7A22DD0E9558A955B053FEF2922FA0F36A61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ EssentialPIM - это отмеченное различными наградам
 magnet:?xt=urn:btih:93F078803973AE56D94EB9320EEE7C6864B347B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Windows Manager - это универсальная утилита для Micros
 magnet:?xt=urn:btih:4F1709AFDFB669483F0F83FBD41286AEDE645754
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ MediaHuman YouTube Downloader 3.9.9.97 (2501) RePack (& Portable) by TryRooM [Mu
 ```bash
 magnet:?xt=urn:btih:AF5992EB4027410478CEA6821C481851A0C07B25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ ASCOMP KeyCtrl - это приложение для управления гор�
 magnet:?xt=urn:btih:D0C5160DB8FC20A8C05014D9024D3CBFF97B97F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ SoftMaker Office Professional 2024 rev. S1222.1129 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6B18875641F977AACD6FD908A501CFE53E7AB696
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ Hetman Recovery Software 2024 Portable by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:F3211CE5EEC99A8E79D2D6D4402A04940807F9FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Screenpresso - легкий в использовании инструмент �
 magnet:?xt=urn:btih:F7FC1CF96DC6C34694F41330E7228A74CA22BA47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Aiseesoft Screen Recorder 3.1.36 RePack (& Portable) by elchupacabra (x64) [Mult
 ```bash
 magnet:?xt=urn:btih:8AECC1AD2213F8DC4014C44974175EC146E02A87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

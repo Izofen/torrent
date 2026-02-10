@@ -19,6 +19,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:B884631E862BA1C67F7B79C57B8A3F06BF0167FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:4A987C24D647475AD631E0AEBA191782C6DCC4E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:4A987C24D647475AD631E0AEBA191782C6DCC4E9
 magnet:?xt=urn:btih:AA50BD70ACFC92A06210E826C08A4DAF0ADDD52B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:40007CA01793BFAD4E0178F81915603D00D53CA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Grand Tactician: The Civil War (1861-1865) (2021) [En] (1.09) License GOG
 magnet:?xt=urn:btih:695BEEBEB37414021509A52011D3F90CACED71B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ KStars - бесплатное, с открытым исходным кодом, 
 ```bash
 magnet:?xt=urn:btih:012966AF75FE8C663160772914E1BDF93485648F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Wise Memory Optimizer 4.1.9.122 [Multi/Ru]
 magnet:?xt=urn:btih:63D3E27303BCD40D82FACE792D2988B1C0F2CCA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:6A8B6735EAC83FF1E8F95ADC2CC6851129FF687F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ ADS (Advanced Design System)- система автоматизированно�
 magnet:?xt=urn:btih:0FBB893F747E950EB62AB0FFA612AC8C5AA5FB54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ AWR Design Environment 10.04 [En]
 ```bash
 magnet:?xt=urn:btih:39198D4F96C1B03C24424AB6673E586AFC0D244A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:39198D4F96C1B03C24424AB6673E586AFC0D244A
 magnet:?xt=urn:btih:72052903D9E5FA2CFD3E3D0FE11DB8A9A4CFF997
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:51FBB37A50799DDAE8CF08A8B0DD5C436A06872F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Opera One 101.0.4843.33 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:B953CDFC91F797486B615FB91B10517A07A1A155
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:DB90C30F1CF461E119D5EF09A5E88074C97D9054
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ App Cleaner - лучшее приложение для удаления файл
 magnet:?xt=urn:btih:9CDF4392081F3FF15557D114339BFA1385B8534B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Blue Iris представляет собой профессиональное �
 ```bash
 magnet:?xt=urn:btih:852CA886D658DBF751189FF528E05494132440B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:687D36E94335F65874914D201B172DD2186E7310
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ PyCharm – это самая интеллектуальная Python IDE с п�
 ```bash
 magnet:?xt=urn:btih:A5B942E769479A8CAA9D1337D4928C18556579BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ PicPick - приложение, объединяющее в себе возмо�
 magnet:?xt=urn:btih:99B231E11ADA59E942A7CC51F3532C89AEE695CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ SysAdmin Software Portable v.0.6.3.0 by rezorustavi (Update 20.09.2022) [Ru]
 ```bash
 magnet:?xt=urn:btih:07C40D29831534F6F0158BCDAD0F68A1037FB68E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ ImgDrive - простой и надежный эмулятор дисков, п�
 magnet:?xt=urn:btih:11D995AAD4925F5E4AF000C8A1CBF82BDA0F451A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Vivaldi 6.1.3035.257 include standalone [Multi/Ru]
 magnet:?xt=urn:btih:424086E73163434C32F7302FD1505155D094628F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ R-Studio Network 9.3 Build 191223 (x64) RePack (& Portable) by TryRooM [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:C212094FAF98B6D3FA404DF3CE50B20E72B8C3C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:84EBB64681A7728E81212770D8BDF023BF6036E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ TheAeroClock - портативная программа, благодаря к�
 ```bash
 magnet:?xt=urn:btih:5A4B8FAB22C82883AD3E9FCDDCF07AB0967036FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +675,8 @@ Rhinoceros 3D - профессиональная среда для модели�
 ```bash
 magnet:?xt=urn:btih:591C0064AC909C5A648C6052C6105C49C47198A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

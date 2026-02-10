@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1184920EF968AEF8A4931A65E5D15D3B6F0AE7B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Adobe Substance 3D Designer 13.0.2 build 6942 [Multi]
 ```bash
 magnet:?xt=urn:btih:4C56B810303D11E925058B661C6131D263D5CBB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Poser - программа трехмерной компьютерной гра�
 magnet:?xt=urn:btih:CF0A58F052425488550EE176B06C0CB458ADCB04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:CF0A58F052425488550EE176B06C0CB458ADCB04
 ```bash
 magnet:?xt=urn:btih:FA4246AC45ADD7DFEFAAE94969754A78222861BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Blender - бесплатный редактор трехмерной графи�
 magnet:?xt=urn:btih:8432840FFECF5A39938A260E40749A33B948738D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ MAGIX Vegas PRO — профессиональная программа для �
 ```bash
 magnet:?xt=urn:btih:E548095EDE44CF4EE582016CAA667F54283BFC9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Xara Web Designer+ 23.3.0.67471 [Multi]
 magnet:?xt=urn:btih:E4C527ADF9CEA30D6B24BB4E60CC63193370F510
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:E4C527ADF9CEA30D6B24BB4E60CC63193370F510
 ```bash
 magnet:?xt=urn:btih:12345DC131E7039F120614DEDE93ED8C8227E7F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:12345DC131E7039F120614DEDE93ED8C8227E7F6
 magnet:?xt=urn:btih:5D8BFFEB723FD9FCA668D3576A746886E3D6C506
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:5D8BFFEB723FD9FCA668D3576A746886E3D6C506
 ```bash
 magnet:?xt=urn:btih:54DC000C6011D2DB77CE3C14E7C9F428BDBCCD84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Turbo Overkill (2022) [Ru/Multi] (1.0) Scene Rune
 magnet:?xt=urn:btih:F2006C69A98F0F2E1D0A1FDA753513962C24AB80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ MATLAB – это высокоуровневый язык технических
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Casse-o-player 3.2.3 Jubilee Update Mod by alax1972 + Cassette Pack (Unpacked) [
 magnet:?xt=urn:btih:AC277160EC6DCB5682A18D80634F91AF46CF3EB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ OpenVPN – мощная программа для работы с частны�
 ```bash
 magnet:?xt=urn:btih:D677EAD9BE643F1187FCCD39E30F4428B8E23A2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:D677EAD9BE643F1187FCCD39E30F4428B8E23A2D
 magnet:?xt=urn:btih:CA68B434709876095D1340FBDEDDD9E3D81399F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:CA68B434709876095D1340FBDEDDD9E3D81399F0
 ```bash
 magnet:?xt=urn:btih:4E2FAD1FCBCBC7743C221BFB91C93AD1E67D1E81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Xara Designer Pro — это мощный графический инструм�
 magnet:?xt=urn:btih:D8A0DD1AA390EADFA2F8C48E303F3DF783BC1339
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:D8A0DD1AA390EADFA2F8C48E303F3DF783BC1339
 magnet:?xt=urn:btih:7305AC86A068B75B7FE1B5E962AE4F10903663CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ YouTube ReVanced - это реинкарнация проекта YouTube Vanced
 ```bash
 magnet:?xt=urn:btih:0D7663186658BFC8A69E9C5D1CC870062FCE3ED3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Blender Compositor - это система композитинга нодов B
 magnet:?xt=urn:btih:F960F667D36F4C7E43F9C3D968313EAA3BFC84D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:F960F667D36F4C7E43F9C3D968313EAA3BFC84D0
 ```bash
 magnet:?xt=urn:btih:1D479B94E177F3C8BB30166F5229BFC41CBCC924
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:1D479B94E177F3C8BB30166F5229BFC41CBCC924
 magnet:?xt=urn:btih:7C929FF81FF116A108555B8AE3B050BA79E3ACB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Realtek Ethernet Driver 10.66 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:12DCBF2A198AE30F351AFD81D2765ED463DFE225
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:12DCBF2A198AE30F351AFD81D2765ED463DFE225
 magnet:?xt=urn:btih:CB3FD2BDD19CCB3A1C7AA71A7B748CC76360A7BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Moving Out 2 — это уморительное продолжение всем
 magnet:?xt=urn:btih:D0AB42F04DBD2B9F449CDED32EC5AB51D24CA9A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Defender Remover Portable 12.5.2 [En]
 ```bash
 magnet:?xt=urn:btih:AE8CF3126811760F52F415B4ADE7983AED73FAE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

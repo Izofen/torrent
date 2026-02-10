@@ -22,6 +22,8 @@ VA - A la ferme De Mathurin (2007) [MP3|320 kbps]<Детские песенки>
 magnet:?xt=urn:btih:633AE3CCB9BC74290E60DDDF8249CCF1B44C9AEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:633AE3CCB9BC74290E60DDDF8249CCF1B44C9AEB
 magnet:?xt=urn:btih:0A3EBDD055D4AA687A0A914C20BF1F3BAED008E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:0A3EBDD055D4AA687A0A914C20BF1F3BAED008E7
 ```bash
 magnet:?xt=urn:btih:D2F049C498743E660FFF340A90FB41ACB9FB12E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ VA - Детское Ассорти (2010) [MP3|128 kbps]<Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ VA - Детское Ассорти (2010) [MP3|128 kbps]<Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ VA - Детское Ассорти (2010) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:3B66D36B0928D44127D8A02B934C409B02D7EB84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ VA - XXXL детский. Маленькая страна (2000) [MP3|320 kbps]<
 magnet:?xt=urn:btih:D1C724317813B5AE20CB9B042AF131CBCC80046E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:D1C724317813B5AE20CB9B042AF131CBCC80046E
 ```bash
 magnet:?xt=urn:btih:F0B26E57829E30C3F8581168D975A414BAECADD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ CD 01: Classics fur mein Bаby (Vivaldi) Vol.1
 magnet:?xt=urn:btih:ED5C86E8187070D5DE4F5C49136F029CB85611F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ Nightingale Orchestra - Мир природы для малышей (2005) [MP3|
 magnet:?xt=urn:btih:0F13ECF8B959630560407E6D74D0B87A0D41ABBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ magnet:?xt=urn:btih:0F13ECF8B959630560407E6D74D0B87A0D41ABBD
 magnet:?xt=urn:btih:3794A6CFFCE0FD321BD922D812D011B9754AFAB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ magnet:?xt=urn:btih:3794A6CFFCE0FD321BD922D812D011B9754AFAB5
 ```bash
 magnet:?xt=urn:btih:26AFFB575FAC2553C205758E15C80A61219D1A1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +356,8 @@ CD1:
 magnet:?xt=urn:btih:DB1E5BD547D96D7AF370CB96EF3106A84F89BF84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ magnet:?xt=urn:btih:DB1E5BD547D96D7AF370CB96EF3106A84F89BF84
 ```bash
 magnet:?xt=urn:btih:CC81DDA1B54664F60D277FB55887AA4F864DF7BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ magnet:?xt=urn:btih:CC81DDA1B54664F60D277FB55887AA4F864DF7BE
 magnet:?xt=urn:btih:862D339F71D4CE9AC77E72DF51F9157F70D39F31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:862D339F71D4CE9AC77E72DF51F9157F70D39F31
 ```bash
 magnet:?xt=urn:btih:D22FE0F825B8A4FEF9BF5336B7FA0DBD64FD209D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ magnet:?xt=urn:btih:D22FE0F825B8A4FEF9BF5336B7FA0DBD64FD209D
 magnet:?xt=urn:btih:B08F8CD505C03A8C0EF1964922B32051C81D2812
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ magnet:?xt=urn:btih:B08F8CD505C03A8C0EF1964922B32051C81D2812
 magnet:?xt=urn:btih:271271E8EF4616824258B253EFBFBB369E3FAA4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ magnet:?xt=urn:btih:271271E8EF4616824258B253EFBFBB369E3FAA4D
 ```bash
 magnet:?xt=urn:btih:D468AD36285C3389F82CD04CA63254782037B5F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ magnet:?xt=urn:btih:D468AD36285C3389F82CD04CA63254782037B5F0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:D468AD36285C3389F82CD04CA63254782037B5F0
 ```bash
 magnet:?xt=urn:btih:698051251386C99BEA9135096F415F614EDD05CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +597,8 @@ VA - Любимые детские песни из кинофильмов. Ес�
 magnet:?xt=urn:btih:4B4EFB1BB835ACFB277512B9879A0A40931F0934
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ VA - С праздником. 1 сентября (2010) [MP3| 56 -320 kbps]<Де
 ```bash
 magnet:?xt=urn:btih:C126D36B49DD1DD52B1D80D42965E028C0B31B0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +655,8 @@ magnet:?xt=urn:btih:C126D36B49DD1DD52B1D80D42965E028C0B31B0A
 magnet:?xt=urn:btih:8556B7DBE5BA2DCA9FE97AEEDE1B1FFB1A51A710
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ magnet:?xt=urn:btih:8556B7DBE5BA2DCA9FE97AEEDE1B1FFB1A51A710
 magnet:?xt=urn:btih:5247EDC3ABD9E3D2C5F79F619E2FFFC867460858
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ magnet:?xt=urn:btih:5247EDC3ABD9E3D2C5F79F619E2FFFC867460858
 ```bash
 magnet:?xt=urn:btih:888684533E3BDA5B8446642584AF5105A39D3296
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

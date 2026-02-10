@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Artstudio Pro 3.2.20 [En]
 ```bash
 magnet:?xt=urn:btih:B79E4FB2B34103D4AB2C3D9BDA259E87E8EE05CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ GeoGebra - динамическое математическое програм�
 magnet:?xt=urn:btih:3865C00CC83E4C8D046CC3DC72CFD86343118A47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:3865C00CC83E4C8D046CC3DC72CFD86343118A47
 ```bash
 magnet:?xt=urn:btih:82FAD4336D7EEEFA0B04BCD47B4173CC65ACA802
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:82FAD4336D7EEEFA0B04BCD47B4173CC65ACA802
 magnet:?xt=urn:btih:5863C6B532F35ED16E7E54ADE32DBBBE4684C7C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ CorelDRAW Graphics Suite 2019 21.3.0.755 [En]
 magnet:?xt=urn:btih:455F4195DB99B1CE45DC4FBF6777B7AA157742E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ Dism++ - утилита предназначена для продвинутых
 ```bash
 magnet:?xt=urn:btih:614A103D8700B5DC0B62192DA096A65E9B8BF250
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:614A103D8700B5DC0B62192DA096A65E9B8BF250
 magnet:?xt=urn:btih:85157D7D7C9002D89A2A072DD211582B4B2BC921
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:85157D7D7C9002D89A2A072DD211582B4B2BC921
 ```bash
 magnet:?xt=urn:btih:E1DFD23E58DE86DAF3212E21C2D119ADBD42C222
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:E1DFD23E58DE86DAF3212E21C2D119ADBD42C222
 magnet:?xt=urn:btih:6B3CE9F10B70A375FA1851FC516D152F4E2093E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:6B3CE9F10B70A375FA1851FC516D152F4E2093E6
 magnet:?xt=urn:btih:CFE984FDE6625913D9B1CB320722C65AD40D00BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Basilisk - это веб-браузер с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:806EA8EB795A82CA1281FE8764873BE22C126A67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ CleanMyMac позволяет избавиться от разнообразно
 magnet:?xt=urn:btih:49D826FD737B6D0E671974949696CFED107B1EB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:49D826FD737B6D0E671974949696CFED107B1EB9
 magnet:?xt=urn:btih:066CF54D0E5774ED50292289FCD949C8A11F26F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:066CF54D0E5774ED50292289FCD949C8A11F26F7
 ```bash
 magnet:?xt=urn:btih:7655401BB181FB9D442813E8888EFD4336445236
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:7655401BB181FB9D442813E8888EFD4336445236
 magnet:?xt=urn:btih:5EC8601D38EB6FAFB20256B9E60604D7611CA4EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ IDAGIO - это первая классическая музыкальная п�
 magnet:?xt=urn:btih:AD663C73D1A5A6BA28EC24AA6936168C68DA032E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:AD663C73D1A5A6BA28EC24AA6936168C68DA032E
 ```bash
 magnet:?xt=urn:btih:A5A9DC14C9E8135461B036E0BE5C416842A8252D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ ZipSigner 3.4 - Подпись Zip, Apk прямо на Android-устройст
 magnet:?xt=urn:btih:0E757D3CB903D2CA624AFF4A035A04B6F0F8B42C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ MediaHuman YouTube Downloader - удобное приложение с помо�
 ```bash
 magnet:?xt=urn:btih:37E8B6B6FBBF58250C7EAC0DE30C6CE375789B4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:37E8B6B6FBBF58250C7EAC0DE30C6CE375789B4B
 magnet:?xt=urn:btih:B3AC8A5FDBF59BCC5414C8386DF6F53778E0EAC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:B3AC8A5FDBF59BCC5414C8386DF6F53778E0EAC8
 magnet:?xt=urn:btih:D42F940DAAFFF34E3194BAE0365564D62D0B8A81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:D42F940DAAFFF34E3194BAE0365564D62D0B8A81
 ```bash
 magnet:?xt=urn:btih:014D9EF29B495C084DE44268ED339A77672C6845
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:014D9EF29B495C084DE44268ED339A77672C6845
 magnet:?xt=urn:btih:8CFE12411337F3EACC120F686C86746ED505F1C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ The Bat! – общепризнанная система обработки эл
 magnet:?xt=urn:btih:73D816B5F2AA4FB11A2406E0967F40E8C1287D18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ USB Stick Encryption позволяет создавать защищенные 
 ```bash
 magnet:?xt=urn:btih:C83728517FD86A160E563BE89ADBB1172FC0676E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B28C55A59C344D49039FC2BB542C0F49EBD30F5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:B28C55A59C344D49039FC2BB542C0F49EBD30F5B
 ```bash
 magnet:?xt=urn:btih:201EB728926BA717F84F7E9FFFB44910A5051D5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:201EB728926BA717F84F7E9FFFB44910A5051D5E
 magnet:?xt=urn:btih:1F017CEE3F903A0B80B2A7E42B0729FED1208576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:1F017CEE3F903A0B80B2A7E42B0729FED1208576
 ```bash
 magnet:?xt=urn:btih:E50E20FAF2DD0257C2FDF3227E94ACE7DAFE13A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ peccy - небольшая утилита от разработчиков поп
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ peccy - небольшая утилита от разработчиков поп
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ peccy - небольшая утилита от разработчиков поп
 magnet:?xt=urn:btih:D296310B47C4ABF513CBBBA41E888E629528455C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:D296310B47C4ABF513CBBBA41E888E629528455C
 ```bash
 magnet:?xt=urn:btih:E25E471E7EC948E5EED71619687B220395CAF145
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:E25E471E7EC948E5EED71619687B220395CAF145
 magnet:?xt=urn:btih:2A391BFBD9010AFD3E239E12691FDC7CA5D2AAB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ NirLauncher Package Portable 1.11.46 [Русский и английский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ NirLauncher Package Portable 1.11.46 [Русский и английский]
 magnet:?xt=urn:btih:5D36FBE26A767CC12B69A55301A90C3476AE61B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Heavy Fire: Afghanistan - этот шутер помещает Вас сразу
 magnet:?xt=urn:btih:920BC6E58541CAD78C1BD5D2F920E9CBCB98566D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ Uninstall Tool - это очень мощная и надежная альтер
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ CD1: (00:58:39)
 magnet:?xt=urn:btih:C164CF06F4A42936331A548A457276D837B76877
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:C164CF06F4A42936331A548A457276D837B76877
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Minilyrics 7.3.926 [Мульти|Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ Minilyrics 7.3.926 [Мульти|Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Minilyrics 7.3.926 [Мульти|Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Hide Folders 2009 - это удобный инструмент для сокры
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Linux Deepin 11.12.1 [i386 + x86_64] (2xCD)
 ```bash
 magnet:?xt=urn:btih:6B8312CB3BD408F2F4E37FC42D936EAC14564EE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ Opera Hybrid 11.61 Build 1250 Final [Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ Opera Hybrid 11.61 Build 1250 Final [Русский]
 magnet:?xt=urn:btih:89AC5582059D81B46ACDB8E0F4B893544C912666
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:89AC5582059D81B46ACDB8E0F4B893544C912666
 ```bash
 magnet:?xt=urn:btih:9696A37E1703837C34EECF438966C93203EA3C40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ magnet:?xt=urn:btih:9696A37E1703837C34EECF438966C93203EA3C40
 magnet:?xt=urn:btih:0B6858C4ABA6AE0686198A2CD35F7A46FE2E7FEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ Total Commander 8.0 pb 22 x86+x64 [MAX-Pack 2012.3.51.2358] от 04.03.2012 + т
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +687,8 @@ Blue Skies Live Wallpaper: Полёт сквозь облака на вашем 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

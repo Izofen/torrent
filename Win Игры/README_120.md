@@ -19,6 +19,8 @@ Chess King - это идеальный инструмент для любого 
 magnet:?xt=urn:btih:F6015DEC68C1B2FA1BE9F4A4EFD85BA89E1D1B05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Go Home Annie (2024) [Ru/Multi] (build 16636802) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:3F121D3E4D98E0710FB9913DDCCE62ED13FEEA6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Banishers: Ghosts of New Eden (2024) [Ru/Multi] (1.5.0.0/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:DDD846FF66160776AD87D59FCB0A852474BFFB83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Archons - это Roguelite, Survivor-игра, в которой вы управ
 ```bash
 magnet:?xt=urn:btih:B692D5B7FB7A496B58DAD58A7ED8CA89D7CB2343
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Legacy of Kain Soul Reaver 1&2 Remastered (2024) [Ru/Multi] (Build 16541638) Rep
 magnet:?xt=urn:btih:D3EA20FA70F0F5BCF1CD8305BFFC3845681C3A08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Forever Skies – это нетипичное выживание, в мире п
 ```bash
 magnet:?xt=urn:btih:E0F36ECC1A29B07B51A82CDCC1E84C2D993EDA91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Tales of Kenzera: ZAU - это не типичный экшен. Здесь вы
 magnet:?xt=urn:btih:C8FDFD1626412278052A52D800AE3354D96BB58E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Gloomy Tales 3: Hotel Frightsylvania / Мрачные истории 3: Отел
 ```bash
 magnet:?xt=urn:btih:6D1ACEA1514D05681549E5932E32033518AC9016
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Blood Bowl III (3) (2023) [Ru/Multi] (Season 7/dlc) Scene TinyISO
 magnet:?xt=urn:btih:AF38461161BC356C3146901C5FE2CEEC050763EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ This War of Mine - первая игра, которая позволяет ув
 ```bash
 magnet:?xt=urn:btih:21A6AAE4FABC09A96CFE6BF77D3C85F980363718
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Sea of Stars - динамичное ролевое приключение, ра�
 magnet:?xt=urn:btih:6F9446C0CB712E16FF0FFACE3B3B49DD24E3BAC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Lollipop Chainsaw RePOP - это стремительный hack-and-slash, по
 ```bash
 magnet:?xt=urn:btih:11A2F5E521B3FFE54A12F7482953EFD435E247CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Lollipop Chainsaw RePOP - это стремительный hack-and-slash, по
 magnet:?xt=urn:btih:36ECAE5945C55EA8FD90949A7809EEAF801FFA12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Sifu – стильная, но суровая игра в жанре «избе
 ```bash
 magnet:?xt=urn:btih:BF6F79391A9F6B5DF170D8786530F5EC074949CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Ready or Not (2023) [Multi] (66884/dlc) Scene Rune
 magnet:?xt=urn:btih:495E5AB643F0245520B2231101FD1C966E4F2D5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ BIOMORPH - это научно-фантастическая приключенч
 ```bash
 magnet:?xt=urn:btih:6514549E8C12F78C5165E9EB580D0496C12E0CA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ theHunter: Call of the Wild – наиболее реалистичный на �
 magnet:?xt=urn:btih:D31A69975F6017F3A6DED927AD2468A0CF01BD38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Legacy of Kain Soul Reaver 1&2 Remastered (2024) [Ru/Multi] (Build 16541638) Rep
 ```bash
 magnet:?xt=urn:btih:AFEE26716A4C7A644420699F0BE10802FD51C5A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.15.0/dlc) Scene R
 magnet:?xt=urn:btih:420A251E92DDD174E039E8364B992DA1980BACBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Harmony Chronicles 2: Demon of the Void / Хроники Гармонии 2:
 ```bash
 magnet:?xt=urn:btih:23344D90D6C4F13A64532ADA42DE274F29124BD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Halloween Stories 8: Inspirations Spark / Хеллоуинские истори�
 magnet:?xt=urn:btih:65E3B070F23D74834D60F219152E945CE62B2164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.4.127/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:758BBBF6707BB170575C4F5C6166513286E4C760
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Thief Simulator (2018) [Ru/Multi] (1.8/dlc) Scene Rune
 magnet:?xt=urn:btih:C4FEF441D48F73B11CE6A0702A7B4AA1C8C3F746
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Legacy of Kain Soul Reaver 1-2 Remastered (2024) [Ru/Multi] (Build 16541638) Sce
 ```bash
 magnet:?xt=urn:btih:27C53F4CE5076005C06182F46CE7C4623D533D55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Bad 2 Bad: Apocalypse (2024) [Ru/Multi] (Build 16701862/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:A0C8C46BA9F4DD3BEDCD06F3BC5B263B01DA4674
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Kong: Survivor Instinct - это 2.5D экшен-платформер, дейс�
 ```bash
 magnet:?xt=urn:btih:515C70F6D69D02A623F492316BE6950A8BA97297
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

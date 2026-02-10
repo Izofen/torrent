@@ -22,6 +22,8 @@ John Scofield & Dave Holland - Memories of Home (2025) [FLAC 24/48|Lossless|WEB-
 magnet:?xt=urn:btih:6A87B651BEBD1690E78BA30091637A2A91C7584B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Cassidy Paris - Bittersweet (2025) [ FLAC 24/44.1, 48|Lossless|WEB-DL|tracks] <H
 ```bash
 magnet:?xt=urn:btih:D7F72B39655E52B0D15BBDF9DA4B3CD070557B8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Treat - The Wild Card (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic-Hard
 magnet:?xt=urn:btih:50722107A5C81399E95307CF8C6F6EC489C622FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Thin Lizzy - Night Life / Fighting (2024 Mix) (2025) [FLAC 24/44.1|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:1AA40071DBD534C60299D711F4A7DCB70C4C0090
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ The Beatles - Anthology 4 (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:2E0D721A38B19D3E39C1D2AFD17E187F971D43D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ Spock's Beard - The Archaeoptimist (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:CF0C0379E2C34176E3E0031BA388DEE05F2728D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +194,8 @@ The Smashing Pumpkins - Mellon Collie And The Infinite Sadness (1995) 30th Anniv
 magnet:?xt=urn:btih:E55C321F1AA71C43C3BE7863747FCAA65BF94F90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ The Beatles - Anthology 4 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classic Ro
 ```bash
 magnet:?xt=urn:btih:167893E6E228283C5833C3C2E4CCDC61865BC9A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +252,8 @@ magnet:?xt=urn:btih:167893E6E228283C5833C3C2E4CCDC61865BC9A0
 magnet:?xt=urn:btih:2BF69EC383D3F75898FFCB17AB507427491E7776
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +281,8 @@ VA - Non Stop Pop Wave (2025) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:AF7D4F427FAE892AE34D26943857BEBEA48C9FC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +306,8 @@ magnet:?xt=urn:btih:AF7D4F427FAE892AE34D26943857BEBEA48C9FC4
 ```bash
 magnet:?xt=urn:btih:DE208E29D725BCADF0325A9F959631D6CD570C3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +333,8 @@ Lonely Mountains: Snow Riders (2025) [Ru/Multi] (1.3.101.1763.0303/dlc) Repack F
 magnet:?xt=urn:btih:7DBCC66CAA41501227B1AE2E5E1DF835C8B16DA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +358,8 @@ Formula Legends отправляет вас в увлекательное пут
 ```bash
 magnet:?xt=urn:btih:A85047F7786A7EC2A325B16C0A8E6061F412A6D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +388,8 @@ magnet:?xt=urn:btih:A85047F7786A7EC2A325B16C0A8E6061F412A6D8
 magnet:?xt=urn:btih:788B9397A75A4E7A8231489621DB417EFA2F0E51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +413,8 @@ magnet:?xt=urn:btih:788B9397A75A4E7A8231489621DB417EFA2F0E51
 ```bash
 magnet:?xt=urn:btih:4A6854596A3E18401FC929E458B127F25DCB6CFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +441,8 @@ magnet:?xt=urn:btih:4A6854596A3E18401FC929E458B127F25DCB6CFF
 magnet:?xt=urn:btih:6BA6C0910E6D675FD90DBEAD958E62A854B885B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +467,8 @@ magnet:?xt=urn:btih:6BA6C0910E6D675FD90DBEAD958E62A854B885B6
 magnet:?xt=urn:btih:C757904C0713EA0D4691ED7F6FF4B4448162F458
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +492,8 @@ magnet:?xt=urn:btih:C757904C0713EA0D4691ED7F6FF4B4448162F458
 ```bash
 magnet:?xt=urn:btih:94CBAE0E026BFF78D62B295C89BB31A4656F7C0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +520,8 @@ magnet:?xt=urn:btih:94CBAE0E026BFF78D62B295C89BB31A4656F7C0A
 magnet:?xt=urn:btih:91B77615D4DA8CFA0905322634F289C278D0C8D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ FastStone Image Viewer - просмотровщик, редактор и кон�
 magnet:?xt=urn:btih:9EF146AC4DBB70F28314999DB7137E63F254CF92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ magnet:?xt=urn:btih:9EF146AC4DBB70F28314999DB7137E63F254CF92
 ```bash
 magnet:?xt=urn:btih:C654046AD921F77CEB88E4CC015C5932084E8D4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:C654046AD921F77CEB88E4CC015C5932084E8D4F
 magnet:?xt=urn:btih:9B22DA4B186B899E13DEEDFBDEC371760BF97FBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ magnet:?xt=urn:btih:9B22DA4B186B899E13DEEDFBDEC371760BF97FBA
 ```bash
 magnet:?xt=urn:btih:02FB9AEE267DE5FB406AE44850AC25A2D6EDD5DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +651,8 @@ magnet:?xt=urn:btih:02FB9AEE267DE5FB406AE44850AC25A2D6EDD5DA
 magnet:?xt=urn:btih:E919595729C6D2B79D1242ABC29B929D8608FA1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ magnet:?xt=urn:btih:E919595729C6D2B79D1242ABC29B929D8608FA1B
 magnet:?xt=urn:btih:B152ABE54FB0460374898569CE34D9A45FBBA753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ magnet:?xt=urn:btih:B152ABE54FB0460374898569CE34D9A45FBBA753
 ```bash
 magnet:?xt=urn:btih:2D0F876486FF854C4B1595B4111CF0EC7FB33634
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

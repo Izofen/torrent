@@ -1,3 +1,29 @@
+###  Публикация: 1135776   (678731) от 20.05.2017
+
+Rokujouma no Shinryakusha!? | Invaders of the Rokujyoma!? | Захватчики комнаты в шесть татами | Коммунальные разборки [2014, TV, 12] BDrip 1080p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Котаро Сатоми решил уехать в старшую школу подальше от родного дома, ибо матери у парня нет, а отец вечно в разъездах. А что нужно для безбедного наслаждения весной жизни? Правильно, дешевое жилье, потому Котаро был счастлив, обнаружив в апартаментах «Корона» комнату в шесть татами по совершенно сказочной цене. При этом симпатичная хозяйка Сидзука оказалась почти (   Читать дальше...   )Жанр: комедия, пародия, школа, эттиРежиссер: Онума Син / Oonuma Shin / 大沼心Перевод: GlennЯзык озвучки: ЯпонскийПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:340BDA7B56780F0B709B68183A12B176B1BCED1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223092   (678971) от 02.05.2018
 
 Tetsu no Otome Jun | Iron Virgin Jun | Железная дева Дзюн [1992, OVA] DVDRip 476p raw+eng
@@ -18,6 +44,8 @@ Tetsu no Otome Jun | Iron Virgin Jun | Железная дева Дзюн [1992,
 ```bash
 magnet:?xt=urn:btih:0041879327C580B97945DC9A62261FEC843ED02F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ Miyuki | Миюки [1983, TV, 37 из 37] DVDRip 480p raw
 magnet:?xt=urn:btih:D5CB4B7D7F7C06B2EE4D3D6BC2BDD78F9C9E51A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ Ojou-sama Sousamou | Debutante Detective Corps | Дебютный детекти
 ```bash
 magnet:?xt=urn:btih:EE5805E96EB789C5FB39B0A17A3139E3A885139F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ Uchiage Hanabi, Shita kara Miru ka? Yoko kara Miru ka? | Откуда лучше
 magnet:?xt=urn:btih:F4761D2160F82B5982CA3C5019C4C337CBAE6CBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ Denki-gai no Hon`ya-san | Denki-Gai no Honya-san | Книжный магазин
 magnet:?xt=urn:btih:50B9762C41E56A9D71BC96F728AD4E65EECFA771
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ Konosuba OVA | Kono Subarashii Sekai ni Shukufuku o! OVA | Этот замеча
 ```bash
 magnet:?xt=urn:btih:5D76CB1D6AE5D2D225C570CC85092B0928CE121F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ Chitose Get You!! | Читосе добьется тебя! [2012, TV, 26] BDrip
 magnet:?xt=urn:btih:D0B1F528EE0A15252E9FE7776025795BBA9EE1D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ Kyuukyoku Choujin R | The Ultimate Esper "R" | Абсолютный Суперч
 magnet:?xt=urn:btih:A123D8A22760D8EB593C3926242F28DDFA4E7B3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ Hakuouki: Shinsengumi Kitan / Hakuouki / Хакуоки [2010, 12 эп.] SDTV 72
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ Terraformars: Revenge / Терраформеры [ТВ-2] [2016, TV, 13 ep] WEBR
 magnet:?xt=urn:btih:7D3FA7A1021A26ADCDF20C6908130A0698029DD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ Kangoku Gakuen | Prison School | Школа-тюрьма [2015, TV, 12] BDrip 10
 ```bash
 magnet:?xt=urn:btih:EAF2182AD5D7B36F9C279D4A12B8B065D682AC32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ Kanojo ga Flag o Oraretara | Gaworare | If Her Flag Breaks | Если бы я о
 magnet:?xt=urn:btih:573A31CB64FC62AA272A37CA3294323EDBA5E124
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ Gunslinger Stratos The Animation | Небесные стрелки [2015, TV, 12
 ```bash
 magnet:?xt=urn:btih:A310E9214733C6B59C24D60742BD98B78E6E3BFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ Kuroshitsuji: Book of Circus | Black Butler: Book of Circus | Демон-дво�
 magnet:?xt=urn:btih:49AADE24E66EB3AF3DE7750DE41E83AFB567498C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ Ore no Nounai Sentakushi ga, Gakuen Lovecome o Zenryoku de Jama Shiteiru | My Me
 ```bash
 magnet:?xt=urn:btih:020B800034DC409D71401B63BD2033E2F2D3078F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:020B800034DC409D71401B63BD2033E2F2D3078F
 magnet:?xt=urn:btih:F685094354277C7B7B097E487D9107622B1107DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +463,8 @@ Denei Shoujo Ai / Video Girl Ai / Ай - девyшка с кассеты [1992, 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +490,8 @@ Chikyuugai Shounen Shoujo | The Orbital Children | Дети на орбите | 
 magnet:?xt=urn:btih:B4CDAF202CE3A790075EB7430E2875FB670CC2ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +515,8 @@ Youkai Apartment no Yuuga na Nichijou | Elegant Yokai Apartment Life | Весё�
 ```bash
 magnet:?xt=urn:btih:B2B71C2777F7000CA13CA45E69F8246180E6403C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +543,8 @@ Marie and Gali / Мари и Гали (второй сезон) [2010, TV, 30 ep
 magnet:?xt=urn:btih:2E8E7F20FB4410E76DAE76CDDD316E57FB2273E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +568,8 @@ Karasu Tengu Kabuto / Raven Tengu Kabuto / Кабуто [1992, OVA, 1 ep.] DVDRi
 ```bash
 magnet:?xt=urn:btih:D6770DA6471F9013D8636DF1699C7ED4AF2EF17E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +595,8 @@ Sword Art Online / Мастера меча онлайн [2012, TV, 25] BDrip 720
 magnet:?xt=urn:btih:AF7B0F9DBF4A927F2D26C4F8CBFF16C6C9E5EE37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +620,8 @@ Kacchikenee! / Спасибо за всё! [2016, Movie] SATRip 720p raw
 ```bash
 magnet:?xt=urn:btih:413A96F66E5A56B9BC7BBF74B99B44AE2D5BDAC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +647,8 @@ Show by Rock!! | Рок-шоу! [2015, TV, 12] BDrip 1080p raw
 magnet:?xt=urn:btih:47A62B5AEA5D88D9F86A4E6E2580E086292341D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,30 +673,7 @@ Kuusen Madoushi Kouhosei no Kyoukan / Sky Wizards Academy / Инструктор
 magnet:?xt=urn:btih:CA9799B60B6D223E3D183BE1AF8ACF7DF5479144
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219847   (691123) от 26.04.2018
-
-Steins;Gate: Kyoukaimenjou no Missing Link - Divide By Zero / Врата Штейна: Найти недостающее звено - Деление на ноль [2015, Special] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальный эпизод, включенный в Blu-ray издание Steins;Gate Complete.
-Альтернативная 23 серия, в которой Окабэ решает оставить попытки спасти Курису, что приводит к началу Steins;Gate 0.Производство: Япония / White FoxЖанр: Триллер, Фантастика, ДрамаРежиссер: Сато Такуя / Sato Takuya / 佐藤卓哉Язык озвучки: ЯпонскийЯзык субтитров: Русский, АнглийскийПродолжительность: ~24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1E016962758D774196D286C0F8ED8D82F911E00
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

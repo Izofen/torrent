@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A31427DB4AE8A0455E7DF35B23405A1340C0E622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:A31427DB4AE8A0455E7DF35B23405A1340C0E622
 ```bash
 magnet:?xt=urn:btih:E30D311B99FFBAED1E15A11479A58022E8C62FBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Barbora Swinx - Colors of Love (2015) [MP3|320 кб/с] <Jazz>
 magnet:?xt=urn:btih:EC4FF9A89FD3319B66C727179F38ABFB5C7E9887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ VA - ZYX Italo Disco: Hits & Rarities Vol. 5 (2021) [AAC|~351 Kbps] <Pop, Disco>
 magnet:?xt=urn:btih:8C22864803C1C63E90CD22C27E666F9ED410E16D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Modern Tweaker - программная оболочка для твиков Win
 ```bash
 magnet:?xt=urn:btih:0CF2B3B1F2F0F39A080FA1778C57D70C641327BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:0CF2B3B1F2F0F39A080FA1778C57D70C641327BF
 magnet:?xt=urn:btih:150CEE784E614BF190CE34CA2FD9BA7A9CDBC4E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:150CEE784E614BF190CE34CA2FD9BA7A9CDBC4E9
 ```bash
 magnet:?xt=urn:btih:CDF6C9F59A18803AC089F3145AD56A9A9D67F7C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:CDF6C9F59A18803AC089F3145AD56A9A9D67F7C5
 magnet:?xt=urn:btih:50B6D97362ED98908E99FBDE3952D509AB2AA9B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:50B6D97362ED98908E99FBDE3952D509AB2AA9B2
 ```bash
 magnet:?xt=urn:btih:915B3DC025D6D18A5002BCEFE7C2921EA59D8612
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:915B3DC025D6D18A5002BCEFE7C2921EA59D8612
 magnet:?xt=urn:btih:E62E9A367388B99AAF4C0D53560C2D5AF84B8993
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:E62E9A367388B99AAF4C0D53560C2D5AF84B8993
 ```bash
 magnet:?xt=urn:btih:537659A329CE2D16AD7BCE913B7F81BCA7343545
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ Downie поддерживает более 1,000 популярных сайто
 magnet:?xt=urn:btih:1E41E91F7745DB217E4CD1C09DDE07AF82A970C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:1E41E91F7745DB217E4CD1C09DDE07AF82A970C9
 ```bash
 magnet:?xt=urn:btih:5DE9EF35223DE5E471338FDFF61C602A363E8F36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:5DE9EF35223DE5E471338FDFF61C602A363E8F36
 magnet:?xt=urn:btih:29C49875630A681A9996C875144AC78BA092F56E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:29C49875630A681A9996C875144AC78BA092F56E
 ```bash
 magnet:?xt=urn:btih:890C006A041BACD008D1B96F589F1DC2145FE2E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ VA - Winter Spirits: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Ba
 magnet:?xt=urn:btih:28E767BB0F094B99DE21AEEE6A4EA9FFB20388B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ Chrissie Hynde - Duets Special (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pos
 magnet:?xt=urn:btih:2802951AE364D585037E601FE41FD34361CE518D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:2802951AE364D585037E601FE41FD34361CE518D
 ```bash
 magnet:?xt=urn:btih:48B08331CA595A52C3BA9DEBE39B5136382CBB47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ VA - ZYX Italo Disco: Hits & Rarities Vol. 6 (2021) [AAC|~336 Kbps] <Pop, Disco>
 magnet:?xt=urn:btih:75E040BB6B37373C0C2E979C2AD9619E36AC5955
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:75E040BB6B37373C0C2E979C2AD9619E36AC5955
 ```bash
 magnet:?xt=urn:btih:4B7B6151F29EBD2625F6724A07031C6FDE86456A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:4B7B6151F29EBD2625F6724A07031C6FDE86456A
 magnet:?xt=urn:btih:570088FD8E9E7E7878B60EF0F57E9C4F0899D7A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ XYplorer - удобный мультивкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:9F4117921B9FF68D1CA1E0BF4C87C83ADEAB5F72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:9F4117921B9FF68D1CA1E0BF4C87C83ADEAB5F72
 magnet:?xt=urn:btih:2407425DB0DB3E4640257DA82549743653F4D349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ magnet:?xt=urn:btih:2407425DB0DB3E4640257DA82549743653F4D349
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:2407425DB0DB3E4640257DA82549743653F4D349
 magnet:?xt=urn:btih:0B288ADD17F5EF6ACBDF78DBD78EAFA833852B1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:0B288ADD17F5EF6ACBDF78DBD78EAFA833852B1F
 ```bash
 magnet:?xt=urn:btih:0D9B3F93301166228AEA59483EFE9ADE6088BC36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

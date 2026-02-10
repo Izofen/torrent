@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3CEA9A42A9815B30C148F20DEFB9218E363BFED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ System Toolkit - приложение «все-в-одном» для монит
 magnet:?xt=urn:btih:E2B85595356108089A6E3D6366B4C2A7128CBBBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:E2B85595356108089A6E3D6366B4C2A7128CBBBF
 ```bash
 magnet:?xt=urn:btih:38C97AAF0FF8172FC4923437031FFEAE1FE49CD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Shallow Black - Maladroit Matter (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, D
 magnet:?xt=urn:btih:4A2CCACDB236399CB3D5D0F97BB9C060540E7B78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Mothergunship (2018) [Ru/Multi] (1.0.980.203/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:A3B58B135CF7025DED918D9D466934103C12C084
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Assumption - The Three Appearances (2014) EP [FLAC|Lossless|image + .cue] <Doom,
 magnet:?xt=urn:btih:13EF2A078D3FC2E28C73C4B79D4A8FB1BB150973
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:13EF2A078D3FC2E28C73C4B79D4A8FB1BB150973
 ```bash
 magnet:?xt=urn:btih:6278942C223FD42D73B79CFE2E8158AF2E3B84E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ DirEqual - это инструмент сравнения папок, котор
 ```bash
 magnet:?xt=urn:btih:941DAE55E4239FCA271A5B8D7B11B9EE8EBD2609
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:941DAE55E4239FCA271A5B8D7B11B9EE8EBD2609
 magnet:?xt=urn:btih:28B2DB730E6B1349714D6CF0E6B2D3FA1A2E8A8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:28B2DB730E6B1349714D6CF0E6B2D3FA1A2E8A8F
 ```bash
 magnet:?xt=urn:btih:8C60F0D3158D7CFD8D854D8A485A17D3770F4D2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:8C60F0D3158D7CFD8D854D8A485A17D3770F4D2F
 magnet:?xt=urn:btih:06E33A25893282586872DD21C9995BE99068489F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:06E33A25893282586872DD21C9995BE99068489F
 ```bash
 magnet:?xt=urn:btih:04B272C194DCB1F5E2C451414F70106CA0F1C5F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ MInstAll v.25.12.2022 By Andreyonohov (Unpacked) [Ru]
 magnet:?xt=urn:btih:862D5A04A788A72D72C784F0DC89F1B1EC28649E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ Kaspersky Plus 21.8.5.452 Repack by LcHNextGen (26.12.2022) [Ru]
 ```bash
 magnet:?xt=urn:btih:89D6F655AEC6117748FA9393114091AF7FC7B8F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ MInstAll v.25.12.2022 By Andreyonohov (ISO) [Ru]
 magnet:?xt=urn:btih:15E8D099EFA0AB510D21750B8C7F3650B46DE3C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:15E8D099EFA0AB510D21750B8C7F3650B46DE3C2
 ```bash
 magnet:?xt=urn:btih:9AA9DC9E1280201BAF087A29EF1B3B5C39CCEB18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:9AA9DC9E1280201BAF087A29EF1B3B5C39CCEB18
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Futoku no Guild | Развращенная гильдия | Immoral Guild [2022,
 ```bash
 magnet:?xt=urn:btih:EE194ADEB439C2865D2C93B6F33781E4CDAAE0FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:EE194ADEB439C2865D2C93B6F33781E4CDAAE0FC
 magnet:?xt=urn:btih:3A4C09DF7F0B61F904D842398EDAFCF0B57C3A0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Doma TV Net Pro v4.3 [Ru]
 ```bash
 magnet:?xt=urn:btih:D261DA2403D81DCC5598DB4638A27B7EF6823D1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:D261DA2403D81DCC5598DB4638A27B7EF6823D1D
 magnet:?xt=urn:btih:BD32E717D8D10A33E54DB19AC2A26D1E1C2173B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:BD32E717D8D10A33E54DB19AC2A26D1E1C2173B4
 ```bash
 magnet:?xt=urn:btih:A20144D875C76A00DFD8CCC2B8716E1DCB6CB37F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:A20144D875C76A00DFD8CCC2B8716E1DCB6CB37F
 magnet:?xt=urn:btih:4B89CF69E6ED74BE43C36013132CCBDC878EE492
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:4B89CF69E6ED74BE43C36013132CCBDC878EE492
 ```bash
 magnet:?xt=urn:btih:E3AD674AD262AA5B271FB88FFCEC8579115673BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:E3AD674AD262AA5B271FB88FFCEC8579115673BC
 magnet:?xt=urn:btih:CBF888BF909D5DE301317858C32A7EEF8ECEA032
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:CBF888BF909D5DE301317858C32A7EEF8ECEA032
 ```bash
 magnet:?xt=urn:btih:E1E316A15656BB20F746E24BB953CDE411BB801B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

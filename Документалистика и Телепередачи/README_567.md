@@ -1,3 +1,29 @@
+###  Публикация: 1014764   (776160) от 08.05.2016
+
+Генерал Граве. Modus vivendi (2005) DVB
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иван Платонович Граве - специалист в области баллистики, конструктор-артиллерист, изобретатель боевой ракеты на бездымном порохе. С 1942 г. генерал-майор инженерно-технической службы, лауреат Сталинской премии. Гораздо менее его знают как прародителя знаменитой "Катюши".Телекомпания: Россия, ГрандСтоун-М, Телеком-ПроектЖанр: Документальный, БиографияПродолжительность: 00:25:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8024582243F8DC4F756B81442220BFBE5A686D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014837   (776165) от 08.05.2016
 
 Легенда о белорусском казаке (2005) DVB
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:1553CF80E0EE68F53C6FFF928725F4DB2147BCE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:1553CF80E0EE68F53C6FFF928725F4DB2147BCE8
 magnet:?xt=urn:btih:76F890824ADCD89FBB36591A4CC82D944B5F3F0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:76F890824ADCD89FBB36591A4CC82D944B5F3F0F
 magnet:?xt=urn:btih:EC4415F1767361C6A711C198F45C8704E6B6B0B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:EC4415F1767361C6A711C198F45C8704E6B6B0B3
 ```bash
 magnet:?xt=urn:btih:4447ECE497402BDAD3D3EBCB9FEFC2BB85566631
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:4447ECE497402BDAD3D3EBCB9FEFC2BB85566631
 magnet:?xt=urn:btih:49EC737AF91D15D647F23C1CC4AE4A8B281D1236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:49EC737AF91D15D647F23C1CC4AE4A8B281D1236
 ```bash
 magnet:?xt=urn:btih:8C472544D541682B7B3DDA340E451F5E4F882200
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:8C472544D541682B7B3DDA340E451F5E4F882200
 magnet:?xt=urn:btih:72BAC5DD6F967335B107E57B2906F2EC8A6A2D5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:72BAC5DD6F967335B107E57B2906F2EC8A6A2D5D
 ```bash
 magnet:?xt=urn:btih:467C4DEE9CBE5067FAD8721FE5D54F7AD406AF12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:467C4DEE9CBE5067FAD8721FE5D54F7AD406AF12
 magnet:?xt=urn:btih:F5B179FE8802ECED12722A76AE03945C87E3DE1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:F5B179FE8802ECED12722A76AE03945C87E3DE1D
 magnet:?xt=urn:btih:C0F3EE23484D74A115ECBB9C7DDFFCAA4CE0A532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:C0F3EE23484D74A115ECBB9C7DDFFCAA4CE0A532
 ```bash
 magnet:?xt=urn:btih:73A855F3E2A71515A9C63D68FD6AF59BBCFCAFB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:73A855F3E2A71515A9C63D68FD6AF59BBCFCAFB3
 magnet:?xt=urn:btih:5ABAA7ED1B6ABA57F2015467F66AE3BEB786F976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:5ABAA7ED1B6ABA57F2015467F66AE3BEB786F976
 ```bash
 magnet:?xt=urn:btih:BCC20A6A5D63DEB84184FB76431B3B55A0A36B1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:BCC20A6A5D63DEB84184FB76431B3B55A0A36B1F
 magnet:?xt=urn:btih:885ACAC62B37D84A896B3EB1C74FBD54A83EB6B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:885ACAC62B37D84A896B3EB1C74FBD54A83EB6B6
 magnet:?xt=urn:btih:E326E1C782BF9D481B48E6FF591C4BF65A5B1577
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:E326E1C782BF9D481B48E6FF591C4BF65A5B1577
 ```bash
 magnet:?xt=urn:btih:AFEED2CA5D920A4E349C61EA1099E504F7B93C3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:AFEED2CA5D920A4E349C61EA1099E504F7B93C3D
 magnet:?xt=urn:btih:12123012988DBAB381298267CCA53CA90B1B519E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:12123012988DBAB381298267CCA53CA90B1B519E
 magnet:?xt=urn:btih:6944E3BDFECE0E0EEC69EFA3B22D479978694364
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:6944E3BDFECE0E0EEC69EFA3B22D479978694364
 ```bash
 magnet:?xt=urn:btih:212716A1C8FF3DAE11E9986F5022A87E140F08B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:212716A1C8FF3DAE11E9986F5022A87E140F08B5
 magnet:?xt=urn:btih:61A29AE6AC65F2710EF04B10D1D94B504FECEA67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:61A29AE6AC65F2710EF04B10D1D94B504FECEA67
 ```bash
 magnet:?xt=urn:btih:954A000650164A4E94DAAEE29F8CE5E9EB387AC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:954A000650164A4E94DAAEE29F8CE5E9EB387AC0
 ```bash
 magnet:?xt=urn:btih:0BA08B1BE351B05B6EA2108A4E32003955C0154B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:0BA08B1BE351B05B6EA2108A4E32003955C0154B
 magnet:?xt=urn:btih:265DC9944B7CCFD83455178AAA8D77F795936E89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:265DC9944B7CCFD83455178AAA8D77F795936E89
 ```bash
 magnet:?xt=urn:btih:AC2A4D1E75B6164DBB7DC919A606EE293C9124F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,29 +679,7 @@ magnet:?xt=urn:btih:AC2A4D1E75B6164DBB7DC919A606EE293C9124F4
 magnet:?xt=urn:btih:1A8D2BAB00005FA62BD9A79F5F68A30736A0C985
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014015   (776801) от 06.05.2016
-
-Романовы. Судьба русского Крыма (2015) HDTVRip (серии 1-3 из 3)
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая серия посвящена истории присоединения Крыма к России. Зритель узнает об истории древней Тавриды, крещении в Херсонесе князя Владимира с дружиной, гибели на полуострове православных остатков Византийской империи под натиском завоевателей - династии ханов Гиреев, многовековых набегах конных отрядов крымских татар на Русь, результатом которых стали разрушенные (   Читать дальше...   )Телекомпания: РоссияЖанр: ДокументальныйПродолжительность: 00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:972F880F08B17515A05F007003B4C2132F0E968A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

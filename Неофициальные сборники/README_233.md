@@ -1,3 +1,32 @@
+###  Публикация: 1173499   (389634) от 12.10.2017
+
+VA - Empire Records - House Clinic 2 (2017) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_389634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TJR - Time To Jack (Original Mix)
+02. Patrick Hofmann - Noon (Paul Vinx Edit)
+03. Integral - Custom
+04. Azurio - 4.1 (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41DF10F025F4B7B09A13514F7759EFEB2F85B47B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1173512   (389703) от 12.10.2017
 
 VA - HGM The Beach Party (2017) [MP3|320 Kbps] <House, Dance, Club>
@@ -21,6 +50,8 @@ VA - HGM The Beach Party (2017) [MP3|320 Kbps] <House, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:6922F727C47693BF4004ADFF4149CFD53CB6DB14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +79,8 @@ VA - Brazilian Rio Carnival (2017) [MP3|320 Kbps] <House, Dance>
 ```bash
 magnet:?xt=urn:btih:ED9373ADD1FB89348A2800600F000E7B7B3EDB42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +115,8 @@ VA - Metal-Hard Rock Covers 1-550 (2005-2012) [MP3|128-320 кб/с]<Metal, Hard,
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +143,8 @@ VA - Empire Records - Blue Line 8 (2017) [MP3|320 Kbps] <Dance, Club, Electro Ho
 ```bash
 magnet:?xt=urn:btih:21DCD3948A4E29C7C7356500E49F525F07C1301F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +179,8 @@ VA - Рашн Дэнс DFM Осень (2012) [MP3|128 кб/с]<Dance, Сlub>
 magnet:?xt=urn:btih:01FA7EC31647140256797BF7FF8A698E25DF7BFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +207,8 @@ VA - Vocal Electro Dance Music (2017) [MP3|320 Kbps] <EDM, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:B562C7F08064C98C1AC06F446F406BB68C4B2B94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +243,8 @@ VA - 100% Русское радио 2 (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:12E947131F87C38CCDF03F15D60F4733FB23C568
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +271,8 @@ VA - Best Hits 80s от ALEXnROCK часть 1 (2017) [MP3|320 Kbps] <Pop, Disco
 ```bash
 magnet:?xt=urn:btih:5456D2DC5FC6E20DC421EAC1D2DB4618B75ADB66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +307,8 @@ VA - In Da Club - Radio Waves Volume 1-4 (Summer 2012) [MP3|320 кб/с]<Trance,
 magnet:?xt=urn:btih:2E3F32B9E121B57918BFEFEE3D28F1CAB10D9991
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +341,8 @@ VA - MAXI. Музыкальные сливки зарубежные (2012) [MP3|
 ```bash
 magnet:?xt=urn:btih:6537D14DA0D76C8A63073AFF39EE41B4850B669F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +377,8 @@ VA - Осенний Dинамит DFM 4 50/50 (2012) [MP3|128 кб/с]<Pop>
 magnet:?xt=urn:btih:1D8D9D3C0E1DD602A48CC10FC754D1D80A8F0ED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +411,8 @@ VA - Best of In Da Club Vol.19 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Up
 ```bash
 magnet:?xt=urn:btih:1D302DDCD2DC19485CE1538007ACEFE56945BB6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +447,8 @@ VA - Dub-Pack - Week 1 (2012) [MP3|320 кб/с]<Dub-Step>
 magnet:?xt=urn:btih:AD31AE6481A15CFD7873655478E3C4F8C77A5228
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +481,8 @@ VA - Dub-Pack - Week 3 (2012) [MP3|320 кб/с]<Dub-Step>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +517,8 @@ VA - Dub-Pack - Week 5 (2012) [MP3|320 кб/с]<Dub-Step>
 magnet:?xt=urn:btih:EE390BDD42648CD56B56AD27B98A8875FABEA55A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +551,8 @@ VA - Dub-Pack - Week 6 (2012) [MP3|320 кб/с]<Dub-Step>
 ```bash
 magnet:?xt=urn:btih:0CB80F9DF1111975BA18EAD537D6148EF19A9ADA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +587,8 @@ VA - Dub-Pack - Week 2 (2012) [MP3|320 кб/с]<Dub-Step>
 magnet:?xt=urn:btih:3D8F9F73995F2DD2F8CF0347571FFFB52CCE6B34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +621,8 @@ VA - Dub-Pack - Week 4 (2012) [MP3|320 кб/с]<Dub-Step>
 ```bash
 magnet:?xt=urn:btih:CC0DC5D54479FB99B5C1FEC379B3DBC7B65D27A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +657,8 @@ VA - Big Room Amsterdam (2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:B3C77A2D0DB3B99328162F8A70E7059CC8DB15F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +685,8 @@ VA - Workout Mix vol.10 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Elect
 ```bash
 magnet:?xt=urn:btih:28344D6D0BA69787E4014F3685A900BAB846EF6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +715,8 @@ Dzem - Platynowa Kolekcja (2017) [MP3|320 Kbps] <Blues, Blues Rock>
 magnet:?xt=urn:btih:7FA90079320ECDBF59BFFB9ABF8E87CCD7FC51B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +743,8 @@ VA - Dubstep Angry Beast (2017) [MP3|320 Kbps] <Dubstep, Bass Trap>
 ```bash
 magnet:?xt=urn:btih:55581DADC35786BD1C52E3FAB2BE80EAD5C7FFCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -700,6 +773,8 @@ VA - Autumn Vintage: Deep House Original Chill Version (2017) [MP3|320 Kbps] <De
 magnet:?xt=urn:btih:A79B8CFDEB3BD88FA7D55F93D592C837605E5C92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -726,6 +801,8 @@ VA - Empire Records - House Clinic (2017) [MP3|320 Kbps] <Dance, Club, Electro H
 ```bash
 magnet:?xt=urn:btih:065643983D55B2F811605F06A1FC7CD63D160154
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -760,38 +837,7 @@ VA - Самые Яркие Русские Хиты За Последние 15 Л
 magnet:?xt=urn:btih:99C4FB8C0BD2A6095E9D9782C7B668579DE205F4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569942   (390759) от 04.11.2012
-
-VA - Дискотека Руки Вверх (2012) [MP3|128 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390759.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Руки Вверх - Я тебя люблю
-002. Оксана Ковалевская - А Девочке Хочется
-003. Потап и Настя - Улелето
-004. Sasha Dith & Steve Modana feat. Nadya - Улечу
-005. Иракли - Осень (Remix)
-006. Sound Hackers feat. Чи-Ли - Я Буду Помнить (Ruslan Mitrofanov & Max Delmar Remix)
-007. Виктория Дайнеко - Дыши
-008. Elvira T - Море
-009. Слава Бодолика и Доминик Джокер - Фиеста
-010. Руки Вверх - Открой мне дверь(   Читать дальше...   )Жанр: PopПродолжительность: 12:08:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5696301217FF4ABD0DA56170AEA2E6F2223EC0B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Knytt Underground [PS3] [ENG] [PSN] [3.55/4.21] (2012)
 magnet:?xt=urn:btih:F1FBF08B3B81BBD42B27836AF727EA200616001D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Mass Effect 3 (2012) [PS3] [EUR] 3.30 [HEN / CFW] [Repack / DLC] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3714477CD3145F42D727CACF6B9BF01FDE8DA559
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dragon's Crown – ролевая 2D игра с экшен боями и исп
 magnet:?xt=urn:btih:A8392A9E475EE017E9873E9572B35282F3B83A82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Venetica (2010) [PS3] [EUR] 3.50 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 ```bash
 magnet:?xt=urn:btih:E061575A2981D61A84D1F4B508AE60193624F77A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Dragon's Crown – ролевая 2D игра с экшен боями и исп
 magnet:?xt=urn:btih:4DB2717A5144293A43275718B880DE72DB25F79D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Okami HD (2018) [Switch] [USA] 8.1.0 [NSZ] [Unofficial] [Ru/En]
 magnet:?xt=urn:btih:A80748596D7A61B9E1BE9F4DE36AF1368A2F07D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Batman: The Telltale Series. Episodes 1-5 (2016) [PS3] [USA] 3.55 [Cobra ODE / E
 ```bash
 magnet:?xt=urn:btih:2A9C432D3B8C1468539EEEDEC78A11AB62FA144B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Silence (2019) [Switch] [USA] 8.1.0 [NSZ] [License / 1.0.1] [Ru/Multi]
 magnet:?xt=urn:btih:4878126A2AB53A75E9161A0459D299CB7BBE71AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Dr. Kawashima’s Brain Training for Nintendo Switch (2020) [Switch] [USA] 9.0.1
 magnet:?xt=urn:btih:8BC6303C00CE5D887E1C75F244D164930EA7A543
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Plants vs. Zombies (2011) [PS3] [USA] 3.72 [Repack] [Ru]
 ```bash
 magnet:?xt=urn:btih:42C9EE26E05C5BF775538BFAA42B9099A55D163A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Final Fantasy VII Remake (2020) [PS4] [USA] 6.50 [HEN] [License / 1.0 / dlc] [Mu
 magnet:?xt=urn:btih:CA32007D647EB1BAA3061E85C4A3546FF80758DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Bayonetta 2 (2018) [Switch] [USA] 8.1.0 [NSZ] [Unofficial] [Ru/En]
 ```bash
 magnet:?xt=urn:btih:628FC09071C43CC76C83D5E711F4CCC288E7AB4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Bayonetta (2018) [Switch] [EUR] 8.1.0 [NSZ] [Unofficial] [Ru/En]
 magnet:?xt=urn:btih:9BE36FF838F42222207A2BB0EA3160ABF407A040
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Alice Madness Returns (2011) [PS3] [JAP] 3.60 [Cobra ODE / E3 ODE PRO ISO] [Lice
 ```bash
 magnet:?xt=urn:btih:4EA1450991B27C85039C5BF386A7BFABBD2F3AFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Adidas miCoach (2012) [PS3] [EUR] 4.11 [Cobra ODE / E3 ODE PRO ISO] [License] [E
 magnet:?xt=urn:btih:ECDE2EF192D3357541F479EAE9FE03B52250BCEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Monster Hunter Rise, новая глава в популярной серии р
 ```bash
 magnet:?xt=urn:btih:30C6CC6679D32DD98D731380D70858B5F2F3E9F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ MediEvil (2019) [PS4] [EUR] [HEN] [License / 1.02] [Ru/Multi]
 magnet:?xt=urn:btih:C8F09C997154566EA9CA077E63FA85B54B1B4CBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Splatoon 2 (2017) [Switch] [EUR] 10.2.0 [NSZ] [License / DLC / 5.4.0] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:865F120B1AE71480C69D08C10BD96C210A143311
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Crash Bandicoot: 4 It's About Time (2021) [Switch] [USA] 10.2.0 [NSZ] [License /
 magnet:?xt=urn:btih:E4B6AB1E99DC586894FECB036427E52BF224A894
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Assassin's Creed Valhalla (2020) [PS4] [EUR] 7.55 [HEN] [Unofficial] [Ru/En]
 magnet:?xt=urn:btih:2656F43F42AAD349EF46B5939BA0F557CAD41F43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ Streets of Rage 4 – яркое и неожиданное возвращени�
 ```bash
 magnet:?xt=urn:btih:9006B6CC3C79808C21546F22A7CE3241A1BD2164
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Assassin's Creed Valhalla (2020) [PS4] [EUR] 5.05 [HEN] [License] [En]
 magnet:?xt=urn:btih:5DA0687DD120F5F960508E6578BC86C73F292933
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Mafia Definitive Edition (2020) [PS4] [EUR] 5.05 [HEN] [License] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2A29550D02EA4E417F6082FE7D9E9571178A79AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ Need for Speed: Hot Pursuit Remastered (2020) [PS4] [EUR] 5.05 [HEN] [License / 
 magnet:?xt=urn:btih:336512DB95F79AF17A52321680C1422A731E5DCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Cuphead – это в прямом смысле слова "классическ
 magnet:?xt=urn:btih:AFB7367DE4A7573C06062041CD2B3656A03FBFB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Little Nightmares II (2021) [Switch] [USA] 10.2.0 [NSZ] [License / 1.3 / DLC] [R
 ```bash
 magnet:?xt=urn:btih:5D29D9E44DE18E2ECB555EAAEDCDBB48718C53A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1037745   (608239) от 27.07.2016
+
+Роберт Уилсон | Спин (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608239.jpg" />
+</div>
+
+
+###  Подробнее
+
+В романе «Спин» рассказывается о жизни врача Тайлера Дюпре и его непростых отношениях со своими друзьями, братом и сестрой Джейсоном и Дианой Лоутонами. Вся его жизнь проходит на фоне колоссального события, получившего имя Спин, изменившего всю жизнь человечества. Когда Тайлеру было 12 лет, Землю окружил загадочный барьер. После появления барьера с орбиты на землю (   Читать дальше...   )Жанр: Научная фантастикаПродолжительность: 20:18:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5FBF8CAA0396DBF93DF13B1E600262C6F144B37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296687   (608271) от 19.04.2019
 
 Юрий Иванович | Невменяемый колдун (2019) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:4556EC39904FA55B2776364A3D99B7F787526A5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:4556EC39904FA55B2776364A3D99B7F787526A5F
 ```bash
 magnet:?xt=urn:btih:B1D04F253A7838E34D395CAE1867AC7BA6DCB012
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:B1D04F253A7838E34D395CAE1867AC7BA6DCB012
 magnet:?xt=urn:btih:2774BED82600DB566804EFC1FB2C350276F1CBE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:2774BED82600DB566804EFC1FB2C350276F1CBE7
 ```bash
 magnet:?xt=urn:btih:FC8CE43807A9F53274EF89DD3DD06DBBE2A3928D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:FC8CE43807A9F53274EF89DD3DD06DBBE2A3928D
 magnet:?xt=urn:btih:BDA0E277C04E08CA76587A3380C590AF60285353
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:BDA0E277C04E08CA76587A3380C590AF60285353
 ```bash
 magnet:?xt=urn:btih:CA9C721FC69EDA833217C6A7EA62535A18B158E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:CA9C721FC69EDA833217C6A7EA62535A18B158E3
 magnet:?xt=urn:btih:5BDF09F2CD5BA022A507BBD54AC49BF438C072E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:5BDF09F2CD5BA022A507BBD54AC49BF438C072E2
 ```bash
 magnet:?xt=urn:btih:195F4161F3B5446B14788FDF9106E578A131B615
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:195F4161F3B5446B14788FDF9106E578A131B615
 magnet:?xt=urn:btih:B14AC7B752AFBF4244844BDE6193C85B0C569608
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:B14AC7B752AFBF4244844BDE6193C85B0C569608
 ```bash
 magnet:?xt=urn:btih:C666DDAE16B0353D07D5F38E5466A8F0A3000A4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:C666DDAE16B0353D07D5F38E5466A8F0A3000A4E
 magnet:?xt=urn:btih:DD0A90B7B8B2713CF2430EA175884ECB3C7FB17F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:DD0A90B7B8B2713CF2430EA175884ECB3C7FB17F
 ```bash
 magnet:?xt=urn:btih:6C033DAD0EFD3E262F64A985ED8A48278578D7E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:6C033DAD0EFD3E262F64A985ED8A48278578D7E0
 magnet:?xt=urn:btih:BEC72D80E5D6F4D1AB531636551710549629D0B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:BEC72D80E5D6F4D1AB531636551710549629D0B2
 magnet:?xt=urn:btih:09959DF3217DE5A1B73ED7C4F11B57D35C8410A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:09959DF3217DE5A1B73ED7C4F11B57D35C8410A2
 ```bash
 magnet:?xt=urn:btih:5BEDC09BCC6183CE8491912F51B82422253DE5B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:5BEDC09BCC6183CE8491912F51B82422253DE5B7
 magnet:?xt=urn:btih:6EA8DD51B8239481B37E848C44D5ED050AF858BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:6EA8DD51B8239481B37E848C44D5ED050AF858BD
 ```bash
 magnet:?xt=urn:btih:8342CA7895D8A99BC2840856F130DCFA4C54B74D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:8342CA7895D8A99BC2840856F130DCFA4C54B74D
 magnet:?xt=urn:btih:F8762DDC73BD5C9D2A992C11220DF1BE21A53627
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:F8762DDC73BD5C9D2A992C11220DF1BE21A53627
 magnet:?xt=urn:btih:82A2088488F92A4859C65DDB07D16885E561A9DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:82A2088488F92A4859C65DDB07D16885E561A9DD
 ```bash
 magnet:?xt=urn:btih:4547000AE915869841FB3F2F014555A8145ABB81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:4547000AE915869841FB3F2F014555A8145ABB81
 magnet:?xt=urn:btih:0578353366946C6DBC45A8CD5FA1FD93CA674D26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:0578353366946C6DBC45A8CD5FA1FD93CA674D26
 magnet:?xt=urn:btih:669A41C58811BD505759B83D35D096F2FF06747D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:669A41C58811BD505759B83D35D096F2FF06747D
 ```bash
 magnet:?xt=urn:btih:F62CCF627D83B502A43544408B49E72915B1D11C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:F62CCF627D83B502A43544408B49E72915B1D11C
 magnet:?xt=urn:btih:1DBF81DD4F0EA3FA0875132291A66FA02322208A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,29 +682,7 @@ magnet:?xt=urn:btih:1DBF81DD4F0EA3FA0875132291A66FA02322208A
 magnet:?xt=urn:btih:3E6DF89C7235F72DA43D734FDADE25D68A8E3E6D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037971   (609897) от 26.07.2016
-
-Гарри Гаррисон | Цель вторжения — Земля (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этого никто не ожидал. Все думали что этого не может быть. Но это произошло. Неизвестный и таинственный объект появился над Тихим океаном рано утром. Никто из глав государств не знает что делать, все спецслужбы и войска подняты по тревоге. Но все понимают одно - первый контакт близок и задаются вопросом: Что он нам принесет?Жанр: ФантастикаПродолжительность: 05:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC079871E6B9AE603E42F2777686C013E514622B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

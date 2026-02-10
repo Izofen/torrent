@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4E16849CF2B7ECFF01FDB74D31B022336382C507
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ TapScanner — сканер документов, это простой скан
 magnet:?xt=urn:btih:46BE36AED5A354B04D493AB5212EEC9F051D2DBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:46BE36AED5A354B04D493AB5212EEC9F051D2DBF
 ```bash
 magnet:?xt=urn:btih:7674689214594774DF9BFB66E3CDB4E7BE5E7AD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:7674689214594774DF9BFB66E3CDB4E7BE5E7AD2
 ```bash
 magnet:?xt=urn:btih:2CAA8E4448469E7D66FD6C643FD84D5093CB42C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:2CAA8E4448469E7D66FD6C643FD84D5093CB42C1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Background Eraser (InShot Inc.) v2.30.91 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BC42CBCFE888EA8DD5B26A6CB2DC9A751954297E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ Android-версия популярной идентификации проце�
 magnet:?xt=urn:btih:45AD697A130730E2E883EB638605BD221881E742
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:45AD697A130730E2E883EB638605BD221881E742
 ```bash
 magnet:?xt=urn:btih:DE208E29D725BCADF0325A9F959631D6CD570C3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 magnet:?xt=urn:btih:FF1C4F41AB0AE266FD3FEA6447E32B2C6913BA8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ MobiOffice - это полнофункциональный офисный пак
 ```bash
 magnet:?xt=urn:btih:131432A0E623CC526EA2A2356314BBA06C88945C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:131432A0E623CC526EA2A2356314BBA06C88945C
 magnet:?xt=urn:btih:1D6A58E8C4FC5D15879C5333A0B33F14C8172ED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ WordHane сочетает в себе словесные игры в угада�
 ```bash
 magnet:?xt=urn:btih:C1371FEC6814AADB5E1531BBB33848E27D7FC4E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ Taskito - это приложение для управления задачам
 magnet:?xt=urn:btih:30973FBE2BBBD649359DA2E3BDADDAE8646430F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ FacePic — приложение AI Face, приложение для легко
 ```bash
 magnet:?xt=urn:btih:9A06CEF7BC6E5A8FE3A2B78C119CE05A3E6D3368
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ AirBrush: ИИ Фоторедактор v7.20.1 Mod by PieMods [Ru/Multi]
 magnet:?xt=urn:btih:0D728A39ECF094AD5D08D22AE1EA8A6BCAFE5259
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ Smart AudioBook Player Pro v11.6.1 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BBFC5F998A682C5585A141F46D95BA102DB0C228
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ Smart AudioBook Player Pro v11.6.1 Mod by Kirlif' [Ru/Multi]
 magnet:?xt=urn:btih:82DC3E3B44DC9B0C58272595D701F505EB3CFCCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ OsmAnd+ - это приложение с картами всего мира на
 ```bash
 magnet:?xt=urn:btih:BD49400ED55DB74A6D7BAFDD43D26C549C9E2561
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ Talksy: Навык общения v0.2.1 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:D4EC168310AF211528769BAE64B6BDBAB902FE43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ Shazam (шазам) распознает любую песню за секунд
 magnet:?xt=urn:btih:0DB5B900856D9DCC1D8E4F7075418D44881BD1D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:F838FEDBC3BE758F0AB89A5EB2082661D47C803F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ Jewel Legend: игра три в ряд v3.18.3 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:80B99FE15D8C7FEC732BB71C5CF4ECB6C95CE936
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ All-In-One Offline Maps v3.18 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:919DD70826BCCBE3363873C46793B4111E288335
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:919DD70826BCCBE3363873C46793B4111E288335
 magnet:?xt=urn:btih:91DE6B444887469083F914C8988C9D88CDBDF05D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ Photo Sherlock v1.131 Mod by Mixroot  [Ru/Multi]
 magnet:?xt=urn:btih:BB8D937888AB9B1740A1DD06DB006F302AA35336
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ Spyglass v3.9.11 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:42D340EEB9EBD2E43D114F80BF183FB6E7568875
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

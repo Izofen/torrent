@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3369421809FB49BE1AFE52A3CAD6BAEC535A9C28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Counter Strike 1.6 Cyber Monitoring v1.3 [Ru] (pv47/48/No-Steam) 2012 | jesuspun
 magnet:?xt=urn:btih:C6280B3B5B2073BAB4F6F228B18083E44B7C5BF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:C6280B3B5B2073BAB4F6F228B18083E44B7C5BF7
 ```bash
 magnet:?xt=urn:btih:96B5FFEF9A12470765E60B730E0A36AF8377274A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:96B5FFEF9A12470765E60B730E0A36AF8377274A
 magnet:?xt=urn:btih:FBB9415B51E3DF961EAEC0A52ED941BBB3451FA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ USB Disk Security - инновационное программное обесп
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ NG: Труднейший в мире ремонт / World's toughest fixes (2008
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ NG: Труднейший в мире ремонт / World's toughest fixes (2008
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ NG: Труднейший в мире ремонт / World's toughest fixes (2008
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Control Center by Sania 1.00 [Только Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ Day of Defeat: Source {1.0.0.37} (P) [Ru] 2005 | tdc-team
 ```bash
 magnet:?xt=urn:btih:09D9E4E23B18299C22BBFFE5CA37155C47B33EB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:09D9E4E23B18299C22BBFFE5CA37155C47B33EB3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:09D9E4E23B18299C22BBFFE5CA37155C47B33EB3
 ```bash
 magnet:?xt=urn:btih:DDA187312BBE9F747BC428AF87938F093A41F12E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:DDA187312BBE9F747BC428AF87938F093A41F12E
 magnet:?xt=urn:btih:80DF1856A8E1D4AD075B9DE6C77D5CEE63AB467B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:80DF1856A8E1D4AD075B9DE6C77D5CEE63AB467B
 ```bash
 magnet:?xt=urn:btih:0CF327C0B3FC6F13FB0A41039D532212438BE394
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ Hooverphonic - 11 альбомов (1996-2012) [FLAC|Lossless]<Trip-hop, Lounge,
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ Hooverphonic - 11 альбомов (1996-2012) [FLAC|Lossless]<Trip-hop, Lounge,
 ```bash
 magnet:?xt=urn:btih:671ED2D7FFC08BE1715EF51D1636E60B6B4C0E38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ magnet:?xt=urn:btih:671ED2D7FFC08BE1715EF51D1636E60B6B4C0E38
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:671ED2D7FFC08BE1715EF51D1636E60B6B4C0E38
 ```bash
 magnet:?xt=urn:btih:F80E273CA37CE7AF0F9AAD2F05986D1B24B010CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +510,8 @@ Tropico 4 [Ru] (1.05/RePack) 2011 l UltraISO
 magnet:?xt=urn:btih:BA3C03D7760CB9764773864883716DE0D0092966
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:BA3C03D7760CB9764773864883716DE0D0092966
 ```bash
 magnet:?xt=urn:btih:EC46D6EF468B6C5FA8D468E370502C36A3B79C41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:EC46D6EF468B6C5FA8D468E370502C36A3B79C41
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:EC46D6EF468B6C5FA8D468E370502C36A3B79C41
 ```bash
 magnet:?xt=urn:btih:4402953F9AC65651C25581AE13AC77EE689CC81E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:4402953F9AC65651C25581AE13AC77EE689CC81E
 magnet:?xt=urn:btih:7B74F0258C029A8274F63AF8CF7EDA4EFA17FAD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ Diablo III/3 [Multi9] (L) 2012
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ Diablo III/3 [Multi9] (L) 2012
 magnet:?xt=urn:btih:87490182E19A967021C2FDA84AF9A2A41714F201
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:87490182E19A967021C2FDA84AF9A2A41714F201
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

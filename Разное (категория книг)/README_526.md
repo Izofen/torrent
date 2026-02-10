@@ -1,3 +1,29 @@
+###  Публикация: 1276486   (787544) от 17.01.2019
+
+Джон Миллер | 5 принципов проактивного мышления (2015) [FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проактивное мышление помогает справляться с жизненными трудностями, создавать себе новые возможности для роста во всех сферах жизни, принимать правильные решения каждый день, действовать креативно и помогать другим людям – при условии, что вы не забываете о личной ответственности. Научитесь пользоваться пятью принципами проактивного мышления, и вы навсегда избавитесь (   Читать дальше...   )Жанр: зарубежная деловая литература, менеджмент и кадрыФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C20C6D79BC971A813A791DDC2F8FCDCEAEC363C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276667   (787547) от 17.01.2019
 
 Цезарь Миллан | Вожак стаи (2019) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:71E88D7BAE2D69152E4D1EE7963E780C7AA5721D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:71E88D7BAE2D69152E4D1EE7963E780C7AA5721D
 magnet:?xt=urn:btih:1D5BD2A3DAAD13BE1A1F9DC7D6BD47EEE9EF1D74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:1D5BD2A3DAAD13BE1A1F9DC7D6BD47EEE9EF1D74
 ```bash
 magnet:?xt=urn:btih:F3B67F7CC31BE4D4C584F026951F7A1C3FC04037
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:F3B67F7CC31BE4D4C584F026951F7A1C3FC04037
 magnet:?xt=urn:btih:E7221C5E9BCEB1CA3B154B04937067FE6123DF41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:E7221C5E9BCEB1CA3B154B04937067FE6123DF41
 ```bash
 magnet:?xt=urn:btih:147DB5B4DE714E856D8207149FB340DA9E4CF1A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:147DB5B4DE714E856D8207149FB340DA9E4CF1A5
 magnet:?xt=urn:btih:5194F6494BF21C3452D299149AEA277C5D3A9BC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:5194F6494BF21C3452D299149AEA277C5D3A9BC8
 ```bash
 magnet:?xt=urn:btih:7104B967519E8F562726290552A3AACD4E04F709
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:7104B967519E8F562726290552A3AACD4E04F709
 magnet:?xt=urn:btih:06ACA3A812487E6ADAAD85496D38E293D25A5A82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:06ACA3A812487E6ADAAD85496D38E293D25A5A82
 magnet:?xt=urn:btih:FD9F571FD0B1AF15E3164CB10F4B5296D09E85CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:FD9F571FD0B1AF15E3164CB10F4B5296D09E85CD
 ```bash
 magnet:?xt=urn:btih:ED91A05096D1EA2E559356F1E2C270BE088B602C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:ED91A05096D1EA2E559356F1E2C270BE088B602C
 magnet:?xt=urn:btih:F38CA35F821EB4CB5C2CD81493F9346EAC11D9F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:F38CA35F821EB4CB5C2CD81493F9346EAC11D9F4
 ```bash
 magnet:?xt=urn:btih:E3229F9F8F5772C9864BA4324AA426857A122DC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:E3229F9F8F5772C9864BA4324AA426857A122DC1
 magnet:?xt=urn:btih:FC587DD8F4846692B90102878B3EFC42BB642216
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +392,8 @@ magnet:?xt=urn:btih:FC587DD8F4846692B90102878B3EFC42BB642216
 ```bash
 magnet:?xt=urn:btih:65F61C95DE2F6884292749E386FC238EEF9964A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +422,8 @@ magnet:?xt=urn:btih:65F61C95DE2F6884292749E386FC238EEF9964A6
 magnet:?xt=urn:btih:3BDC2F1D100FF538880FACB6ADD7F6AB993DA3C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +447,8 @@ magnet:?xt=urn:btih:3BDC2F1D100FF538880FACB6ADD7F6AB993DA3C0
 ```bash
 magnet:?xt=urn:btih:69E2D739F8CFE5AC13F3B578E035A6FA702A800C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +475,8 @@ magnet:?xt=urn:btih:69E2D739F8CFE5AC13F3B578E035A6FA702A800C
 magnet:?xt=urn:btih:EEE45D5F14EE3948803C6007A6A3CE15660D24A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +500,8 @@ Krause Publications | 2018 Standard Catalog of World Coins. 1601-1700 7th Editio
 ```bash
 magnet:?xt=urn:btih:1A85B95EAF275E98568AB01B7BAFCC03FEBE6FAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +527,8 @@ magnet:?xt=urn:btih:1A85B95EAF275E98568AB01B7BAFCC03FEBE6FAD
 magnet:?xt=urn:btih:ED2CB77A84963D52FCEE33B78D28843EA8A2A3DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:ED2CB77A84963D52FCEE33B78D28843EA8A2A3DD
 ```bash
 magnet:?xt=urn:btih:684BF3015E47FCEA36DEA94C11504ED6D32D97A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:684BF3015E47FCEA36DEA94C11504ED6D32D97A2
 magnet:?xt=urn:btih:1C8FBEFD0FFCAC5325FF80D3E48A4705D322E56E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:1C8FBEFD0FFCAC5325FF80D3E48A4705D322E56E
 ```bash
 magnet:?xt=urn:btih:ABADEACE6B77976E594A0E8F69D148436482B5B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +633,8 @@ magnet:?xt=urn:btih:ABADEACE6B77976E594A0E8F69D148436482B5B3
 magnet:?xt=urn:btih:4D05FAFC77401771AC5A3E8A78D2B4B216577E15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +661,8 @@ magnet:?xt=urn:btih:4D05FAFC77401771AC5A3E8A78D2B4B216577E15
 magnet:?xt=urn:btih:389843F7A474C3A5AFBE12160ADA345803299D9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,29 +687,7 @@ Krause Publications | 2019 Standard Catalog of World Coins. 2001-Date 13th Editi
 magnet:?xt=urn:btih:5E5F8CD306BA2D2D73230D3F5B20AA71515E6FA6
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275742   (788531) от 15.01.2019
-
-Krause Publications | 2019 Standard Catalog of World Coins. 1901-2000 46th Edition (2018) [PDF] [En]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стандартный каталог монет мира, с 1901 г. по 2000, 46-е издание (2019). Это копия хорошо известного официального каталога Krause. Есть возможность увеличения изображений монет и поиска по тексту. Квалифицированный и авторитетный справочник, в котором представляет цены, изображения и характеристики монет. Информация удобно упорядочена по странам и выпускам монет, (   Читать дальше...   )Жанр: Нумизматический каталогФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FDE2570BC0A0B64CEB38907AF34886BFA975FAF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

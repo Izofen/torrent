@@ -1,51 +1,3 @@
-###  Публикация: 973874   (977783) от 10.01.2016
-
-Картинки - Топографические карты России, Украины, Европы [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исторические, археологические, средневековые карты России, Украины, ЕвропыФормат: JPGРазрешение файлов: 1596-1204, 7000-5479
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2973E94F949C625F8E426E8A7AC85E917560B8B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615162   (978390) от 07.02.2013
-
-Компьютерная графика - Работы художника Saphire Nishi [JPEG]
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличное творчество голландского художника-дизайнера 3D моделей.Разрешение файлов: от 478х768 до 1024х768Формат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E4BFBF4233713F8A874FE8F94F1782E4701826E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 615210   (978393) от 07.02.2013
 
 Рисованная графика - Artworks by Jean-Baptiste Andreae [JPG]
@@ -66,6 +18,8 @@ magnet:?xt=urn:btih:0E4BFBF4233713F8A874FE8F94F1782E4701826E
 ```bash
 magnet:?xt=urn:btih:E6355DC5F40627B4C918C42C63024CA9183A7F34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +45,8 @@ magnet:?xt=urn:btih:E6355DC5F40627B4C918C42C63024CA9183A7F34
 magnet:?xt=urn:btih:C672F9D92C455E2D6B4C4E4B2E83F6D068A9C51A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +70,8 @@ magnet:?xt=urn:btih:C672F9D92C455E2D6B4C4E4B2E83F6D068A9C51A
 ```bash
 magnet:?xt=urn:btih:E4777A969349AA1E7B0293DF1D78CCA9042CBCC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +97,8 @@ magnet:?xt=urn:btih:E4777A969349AA1E7B0293DF1D78CCA9042CBCC8
 magnet:?xt=urn:btih:EBC4C01D4306A58076E35BF0E3DCBE84B1B77F62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +122,8 @@ magnet:?xt=urn:btih:EBC4C01D4306A58076E35BF0E3DCBE84B1B77F62
 ```bash
 magnet:?xt=urn:btih:7EFAD34DBCCB09C22F486D16A49D5DEA1F4BB3E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +158,8 @@ Wallpapers - Обои: Природа [JPEG]
 magnet:?xt=urn:btih:F32BF5D6B9CB71EA69C3537092E668E2C6F6C2EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +183,8 @@ magnet:?xt=urn:btih:F32BF5D6B9CB71EA69C3537092E668E2C6F6C2EA
 ```bash
 magnet:?xt=urn:btih:E29A7D3A196FC6495CE42B8F54E95A98932C0D11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +210,8 @@ magnet:?xt=urn:btih:E29A7D3A196FC6495CE42B8F54E95A98932C0D11
 magnet:?xt=urn:btih:74F1D01D71C194BD15E2B7E71F5FAC8782685135
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +235,8 @@ magnet:?xt=urn:btih:74F1D01D71C194BD15E2B7E71F5FAC8782685135
 ```bash
 magnet:?xt=urn:btih:5D25AEDA7AA1ED6FCADA798BE8CAEE101B159255
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +262,8 @@ magnet:?xt=urn:btih:5D25AEDA7AA1ED6FCADA798BE8CAEE101B159255
 magnet:?xt=urn:btih:9A0D1DCCA5B80D631DC1B1AADB3DB40891454EF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +287,8 @@ magnet:?xt=urn:btih:9A0D1DCCA5B80D631DC1B1AADB3DB40891454EF1
 ```bash
 magnet:?xt=urn:btih:5640C16C0F0A425E9B8CB1DB909F3D43B7CA5081
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +314,8 @@ magnet:?xt=urn:btih:5640C16C0F0A425E9B8CB1DB909F3D43B7CA5081
 magnet:?xt=urn:btih:6776693EA9057A5F7F5C8C737EFE060D47337BDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +339,8 @@ magnet:?xt=urn:btih:6776693EA9057A5F7F5C8C737EFE060D47337BDF
 ```bash
 magnet:?xt=urn:btih:3A59AF868291BB811D9D088304A44C0E141BC74F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +366,8 @@ magnet:?xt=urn:btih:3A59AF868291BB811D9D088304A44C0E141BC74F
 magnet:?xt=urn:btih:1724508E447EE77251C5324C15C3E69522EFD4A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +392,8 @@ Wallpapers - Обои: Mac OS X [JPEG]
 ```bash
 magnet:?xt=urn:btih:5554506B7E42EFA1C0DD1CEB2E98463C4BB09598
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +421,8 @@ Wallpapers - Обои: Мир после Апокалипсиса [JPEG]
 ```bash
 magnet:?xt=urn:btih:22B2F4255910DB21456937FCA88F8C60B12E119C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +452,8 @@ Wallpapers - Обои: Ч/Б-эксклюзив [JPEG]
 magnet:?xt=urn:btih:60F5F6D536D4F66A61AB63B658B72C3C8229E56A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +478,8 @@ Wallpapers Fantasy 1-40 (Pavel)Разрешение файлов: 1920x1080 1920
 ```bash
 magnet:?xt=urn:btih:15E2F1B7350000C2C9C28029611E60BD2023CCB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +508,8 @@ magnet:?xt=urn:btih:15E2F1B7350000C2C9C28029611E60BD2023CCB9
 magnet:?xt=urn:btih:0A8B94003D03E7C5F4013BAD76D6E0DD561AEDA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +533,8 @@ Wallpapers - Cars Wallpapers №9 [JPEG]
 ```bash
 magnet:?xt=urn:btih:1F9BDD6280EB93AF9F09873F4EF14FAE5D31293B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +560,8 @@ magnet:?xt=urn:btih:1F9BDD6280EB93AF9F09873F4EF14FAE5D31293B
 magnet:?xt=urn:btih:68CC7ED10BD7D946E6286D56B9549FB2D367D7BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +585,8 @@ magnet:?xt=urn:btih:68CC7ED10BD7D946E6286D56B9549FB2D367D7BD
 ```bash
 magnet:?xt=urn:btih:0EDCD7F2644E5231FAB961924B756C6B9AB08297
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +617,8 @@ magnet:?xt=urn:btih:0EDCD7F2644E5231FAB961924B756C6B9AB08297
 magnet:?xt=urn:btih:9CAC06F94455E5FEFDE545FB8D00FFE70FB2356D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +642,60 @@ magnet:?xt=urn:btih:9CAC06F94455E5FEFDE545FB8D00FFE70FB2356D
 ```bash
 magnet:?xt=urn:btih:158403CE7AC6CFF27DE5B19A15E0BA47BFA9CCD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613638   (982524) от 04.02.2013
+
+Рисованная графика - Artworks by Denis Zilber [JPG]
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большая коллекция работ художника-иллюстратора Denis Zilber.Разрешение файлов: 400x400~1600x900.Формат: jpg.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0024F178FA23E19ADD035C6AE67697EF0EA2D000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613628   (982538) от 04.02.2013
+
+Картинки - Демотиваторы 03.02.2013 [JPEG]
+
+>>Графика, Арт, Разное
+>>Интернет-творчество
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка демотиваторов на 03.02.2013 г.Формат: JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA4100B99B614CD9B79B92BDB99694EC0615A6BA
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

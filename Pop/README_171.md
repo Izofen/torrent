@@ -1,3 +1,154 @@
+###  Публикация: 942755   (453760) от 01.10.2015
+
+Michael Cretu - Moon Light Flowers (1989) [FLAC|image+.cue]<Pop, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453760.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. '57 (The Year I Was Born)
+2. Fire And Rain
+3. Wild River
+4. Shadows Over My Head(   Читать дальше...   )Жанр: Pop, Synth-pop, DiscoПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9561647E3BA476AEEF28D051C7201E984A58A2B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942598   (453905) от 01.10.2015
+
+Ariana - Первая Любовь (2002) [APE|image+.cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01	Я Уже Не Помню Слова
+02	Под Испанским Небом
+03	Непонятная Любовь
+04	Я Больше Не Верю(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BAA2BEC6A2DA445EED1C3C81E52CF4B8408371F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408385   (453920) от 13.09.2020
+
+Doves - The Universal Want (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carousels (04:49)
+02. I Will Not Hide (04:15)
+03. Broken Eyes (04:15)
+04. For Tomorrow (05:28)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E3E71B386EF5A2EF2775B0284D95C7535B150C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 389104   (454014) от 19.09.2011
+
+Kim Wilde - Snapshots / Special Edition (2011) [MP3|230-283 kbps]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Alright
+02. In Between Days
+03. About You Now
+04. Sleeping Satellite
+05. To France
+06. A Lilltle Respect
+07. Remember Me
+08. Anyone Who Had A Heart
+09. Wonderful Life
+10. They Don't Know About Us(   Читать дальше...   )2011Жанр: PopПродолжительность: 00:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0679E58714465862CE240ADCAAFA7B38C13B9503
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060624   (454613) от 07.10.2016
+
+Макс Барских - Туманы (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Туманы
+02. Попрошу
+03. Пьяная луна
+04. Неверная(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A569AA0CEF1A12D5AE4219B77DC295464549CE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1321702   (454696) от 26.08.2019
 
 Сергей Лазарев - Я не боюсь (2019) [MP3|320 Kbps] <Pop, Dance>
@@ -22,6 +173,8 @@
 magnet:?xt=urn:btih:0B00823B4503542028FA23F7DB188FD1A55BDC00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +198,8 @@ Carly Rae Jepsen - Kiss (Deluxe Edition) (2012) [FLAC (tracks+cue)|Lossless]<Pop
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +228,8 @@ Liquid Gold - Liquid Gold (1981) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco
 magnet:?xt=urn:btih:49EFDA8CEFAD38424A53D81230B12A440AF47AAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +257,8 @@ Bardeux - американский танцевальный дуэт 80-х го�
 magnet:?xt=urn:btih:6EEEC950523BA2E69CD9B09FF684022D7D59FECA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +285,8 @@ Poussez! - Poussez! (Poo-say) (1979) Reissue CD (2005) [MP3|320 Kbps] <Electroni
 ```bash
 magnet:?xt=urn:btih:A3325EE279CC3281CC5D23395B1FF0549A1F3ABE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +321,8 @@ magnet:?xt=urn:btih:A3325EE279CC3281CC5D23395B1FF0549A1F3ABE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +349,8 @@ Mike Mareen - The Best Of (2002) [FLAC|image+.cue]<Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:E2F7137D065C7CDB1EECB51AB13AB2FE297FA1AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +379,8 @@ Bad Boys Blue - Hot Girls, Bad Boys (1985) [OGG|480 Kbps] <Disco>
 magnet:?xt=urn:btih:58E5472D9988FE933B81A93D0FA9B106254B5FF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +407,8 @@ Bad Boys Blue - My Blue World (1988) [OGG|485 Kbps] <Disco>
 ```bash
 magnet:?xt=urn:btih:9E8DAD66C0767E304193BDBA95DDDC6D00586853
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +437,8 @@ Bad Boys Blue - Heart Beat (1986) [OGG|485 Kbps] <Disco>
 magnet:?xt=urn:btih:C826A6F5462691FF7AB122274E626CB762A69CB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +465,8 @@ Bad Boys Blue - Game Of Love (1990) [OGG|485 Kbps] <Disco>
 ```bash
 magnet:?xt=urn:btih:2F88835A6A248F51B354E2433F2BB3CC5136CF6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +495,8 @@ VA - Love You Tonight (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, RnB, Other>
 magnet:?xt=urn:btih:F798F25EFCD511672DC52E9A2A14A7B6A4D284CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +523,8 @@ Corona - The Rhythm Of The Night (1995) [OGG|485 Kbps] <Euro House>
 ```bash
 magnet:?xt=urn:btih:568070EA4A862505B1434B1CB9A42BF4C50E4BB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +554,8 @@ Taxi - восьмой студийный альбом Bryan(а) Ferry, выше�
 magnet:?xt=urn:btih:486D01DFE3DA5C9915CF9B159AB05E869691B05A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +582,8 @@ The Chaplin Band - 2 Albums (1979, 1982) LP [MP3|320 Kbps] <Electronic, Funk Sou
 ```bash
 magnet:?xt=urn:btih:7C7AD870A6E1B6E60011FAEA66624EF618B175DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +612,8 @@ Everything Everything - RE-ANIMATOR (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie 
 magnet:?xt=urn:btih:9789B8ACB0CD823449695398D272702623E0361A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +640,8 @@ Gregoire - Poesies De Notre Enfance (2015) [MP3|320 кб/с]<French Pop, Chanson
 ```bash
 magnet:?xt=urn:btih:E0939F6227224E251C2F657B44741B9C1B2A62F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +670,8 @@ VA - The All Time Greatest Love Songs of the 60's, 70's, 80's & 90's, Vol. II (1
 magnet:?xt=urn:btih:E6202F84FD64A829558994A3E7E63748D5A736DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +698,8 @@ magnet:?xt=urn:btih:E6202F84FD64A829558994A3E7E63748D5A736DE
 ```bash
 magnet:?xt=urn:btih:793D4A3094C6F723ACDEF8A28C280BBAD421E874
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +728,8 @@ VA - Romantic Collection. France (1996) [FLAC|image + .cue]<Pop>
 magnet:?xt=urn:btih:1F7959105474AE345E5F47DCA3BEC380011C9BB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,140 +757,7 @@ Modern Talking - Ready For Romance (1986) [OGG|485 Kbps] <Disco>
 magnet:?xt=urn:btih:B1CBC7E122CB59C02C7F0B5FD12D5C266B7EA65C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568854   (457620) от 10.08.2022
-
-Божья Коровка - Гранитный Камешек (1995) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гранитный камешек
-02. В каком неведомом краю
-03. Я верю (Исповедь)
-04. Четыре буквы(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B875A44A5E027F285EE94B5966A399F203931431
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568751   (457773) от 10.08.2022
-
-Bad Boys Blue - Love Is No Crime (1987) [OGG|485 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Come Back And Stay (7:37)
-02.If You Call On Me (3:33)
-03.Victim Of Your Love (4:31)
-04.Love Is No Crime (3:37)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C11889C3348E266AB0C9C7E74CACF995413BAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568775   (457779) от 10.08.2022
-
-Various - The Best Of Italo-Disco Vol. 10 (1988) [OGG|485 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scotch – Man To Man 5:14
-02. Linda Jo Rizzo – Perfect Love 6:08
-03. Chester – Hold The Line 5:45
-04. Chip Chip – So Close To Heaven 7:30(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60FC63988F84E6DA7EE83915F8545BBFBADF2708
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568782   (457785) от 10.08.2022
-
-Blue System - Walking On A Rainbow (1987) [OGG|485 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gangster Love (Maxi Version) 4:24
-02. Sorry Little Sarah (Maxi Version) 5:12
-03. She's A Lady (Maxi Version) 4:59
-04. Voodoo Nights 3:23(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B63108D8B8F2A3225882BA67894F104383ED82FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568799   (457791) от 10.08.2022
-
-VA - The Best Of Italo-Disco Vol. 9 (1987) [OGG|485 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spagna – Call Me (6:05)
-02. Interface – Plastic Age (6:44)
-03. Eddy Huntington – Meet My Friend (6:08)
-04. Morgana – Ready For Love (7:30)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D072FE13E38C978C38589294D051736864FA8A89
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

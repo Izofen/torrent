@@ -1,53 +1,3 @@
-###  Публикация: 1182706   (314374) от 11.11.2017
-
-Экшены - GraphicRiver - Sketch Art Photoshop Action - 20903602 [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sketch Art - этот экшен фотошоп, поможет вам создать красочный эскиз изображения из ваших фотографий. После того, как действие закончит работу, вы получите хорошо организованный и структурированный файл со множеством слоёв, папок с настройками, для улучшения конечного результата.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAB4074C9FF54F128F23E27B885F45292C4B8052
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583182   (314375) от 13.10.2022
-
-Футбол. Лига Чемпионов 2022-2023. Основной турнир. Группа"С". Барселона (Испания) - Интер (Италия) (12.10.2022) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2022-2023. Основной турнир. Тур 04. Группа"С". Барселона (Испания) - Интер (Италия) (12.10.2022)
-СУДЬЯ Марциняк Шимон (Плоцк, Польша)
-СТАДИОН «Ноу Камп» (Барселона)Телекомпания: Матч!Жанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:56:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89FAE5849A490E543B254B2C84EC2F3B2AFA11AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260199   (314376) от 06.11.2018
 
 Людмила Морозова | Знаменитые женщины Московской Руси. XV-XVI века (2018) [MP3]
@@ -68,6 +18,8 @@ magnet:?xt=urn:btih:89FAE5849A490E543B254B2C84EC2F3B2AFA11AE
 ```bash
 magnet:?xt=urn:btih:FA3CC51F47F1712710E44A4C283219370B531282
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +45,8 @@ magnet:?xt=urn:btih:FA3CC51F47F1712710E44A4C283219370B531282
 ```bash
 magnet:?xt=urn:btih:E04B644A28464C66727C32289440109341CC3F40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +75,8 @@ Cosmograf - 9 Albums (2011-2022) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
 magnet:?xt=urn:btih:7DD19119F5C43AE96075CDF91E544D822644062B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +100,8 @@ magnet:?xt=urn:btih:7DD19119F5C43AE96075CDF91E544D822644062B
 ```bash
 magnet:?xt=urn:btih:B97880CA5818AD3C03FA60C291D8F7808572AEEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +130,8 @@ VA - Disco Discharge (2009-2012) [MP3|184-320 кб/с]<Disco, Italo Disco, Hi NR
 magnet:?xt=urn:btih:1AB3CD71DF6506A72378672615223EC780283105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +155,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:1B8F436FBD9D8773F3FFF440D849533E82D4FEDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +182,8 @@ magnet:?xt=urn:btih:1B8F436FBD9D8773F3FFF440D849533E82D4FEDA
 ```bash
 magnet:?xt=urn:btih:1F47130980E6F45649A9A3A0B65B740990444B5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +212,8 @@ OFF - Organisation For Fun (1988) [FLAC|tracks+.cue]<EBM, Electro, New Beat, Syn
 magnet:?xt=urn:btih:B4CEC71BA28CE8C21CAB2D9C5653D1EC1B787AC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +241,8 @@ Yanni - The Very Best of Yanni (2000) [FLAC|tracks+.cue]<New Age>
 magnet:?xt=urn:btih:1B074487E6AD567A655B15296C7B221822392220
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +266,8 @@ Sexy Girls Pack Wallpapers (30.11.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:78BE113673AAC1A6050623067EED4A102FFA236C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +293,8 @@ Sexy Girls Wallpapers (30.11.12) [Wallpapers 16+]
 magnet:?xt=urn:btih:7D9F13A9FC3F120F0780BF23DFCF7E20C5838B0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +318,8 @@ magnet:?xt=urn:btih:7D9F13A9FC3F120F0780BF23DFCF7E20C5838B0C
 ```bash
 magnet:?xt=urn:btih:A6864291C9940ED2064E50250F161897F16239D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +345,8 @@ magnet:?xt=urn:btih:A6864291C9940ED2064E50250F161897F16239D8
 magnet:?xt=urn:btih:87A24C7DA75946E053E9ED4C86EFCBD25C3153A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +370,8 @@ magnet:?xt=urn:btih:87A24C7DA75946E053E9ED4C86EFCBD25C3153A2
 ```bash
 magnet:?xt=urn:btih:BDB4C752C824F9540E2764BD8BC2BF621A48BCD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +406,8 @@ Various - Радуга (Зарубежная эстрада 2LP) (1980) [FLAC 2.
 magnet:?xt=urn:btih:31FF1B256B42CCA06D45C4E20453AEAFAB07DC70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +435,8 @@ The Presidents of the United States of America - Freaked Out and Small (2000) PU
 magnet:?xt=urn:btih:19CA11039B4C20FAB85976A6BC18E436DACE7120
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +460,8 @@ magnet:?xt=urn:btih:19CA11039B4C20FAB85976A6BC18E436DACE7120
 ```bash
 magnet:?xt=urn:btih:8DBAA7B877CECCCB84FD149EC7A72D8C69E3B401
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +490,8 @@ Umwelt - Superior Life Forms (2019) Midnight Shift Records [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:EF0BB62750630ED7D75F3BDBCAF434BB7364F45D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +519,8 @@ VA - Electronic Space Files, Vol. 5 (2016) [MP3|320 Kbps] <Tech House, Deep Hous
 magnet:?xt=urn:btih:371DD6AD4FDCD031AD8BF9272161908DA752065F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +544,8 @@ iFinance 4 позволяет вам отслеживать доходы и ра
 ```bash
 magnet:?xt=urn:btih:EB232581FC6D0F8E565A640AEEA668B2BDE664C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +574,8 @@ magnet:?xt=urn:btih:EB232581FC6D0F8E565A640AEEA668B2BDE664C3
 magnet:?xt=urn:btih:4BE12C5F62B642383608655DCD5715372F626527
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +599,8 @@ Sync Checker - диагностическое приложение, которо
 ```bash
 magnet:?xt=urn:btih:216165081D52C042262DCD3A0DE3ED8F26DFE97E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +626,8 @@ QLab - Мощный инструмент для создания и провед
 magnet:?xt=urn:btih:828FF40853BA001E82DA819B62F358263CBEAFA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +651,60 @@ magnet:?xt=urn:btih:828FF40853BA001E82DA819B62F358263CBEAFA7
 ```bash
 magnet:?xt=urn:btih:9287B0088452D32DA36F4EC4C733BD14B144632E
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182807   (314451) от 11.11.2017
+
+Ж. Пиаже и др. | Преподавание математики (1960) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга представляет собою первую публикацию результатов коллективной работы Международной комиссии по изучению и улучшению преподавания математики. В подготовке книги принимали участие шесть членов-учредителей: один психолог, один специалист по математической логике, три профессиональных математика и один педагог-математик.Жанр: История, искусство, педагогика, математикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:444C1E44B412DE84DF6AFEBAD61C13B7504726CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332548   (314452) от 20.10.2019
+
+AudioSwitcher 2.99.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314452.jpg" />
+</div>
+
+
+###  Подробнее
+
+AudioSwitcher - небольшая утилита, которая находится в строке меню и позволяет выбрать вход или выход источника аудио, с возможностью регулировки уровня громкости по выходу и уровня чуствительности по входу.Тип издания: macOS SoftwareРелиз состоялся: 17.10.2019Разработчик: Paul O'NeillПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E19B530E7BB4547A86D7A158234AE554D8F2043
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

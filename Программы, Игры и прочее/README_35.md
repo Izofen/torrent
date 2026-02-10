@@ -22,6 +22,8 @@ Knots 360 Pro (3D) v2.8 Paid [Ru/Multi]
 magnet:?xt=urn:btih:3E20D1CABDDB0360E5CC36B7A90DC50C8A6C083D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Nova Launcher - один из лучших лаунчеров для Android, ч
 ```bash
 magnet:?xt=urn:btih:3837B9E532687906E79E534C1A283A05CA22598C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:3837B9E532687906E79E534C1A283A05CA22598C
 magnet:?xt=urn:btih:49811D9B7D1717DAACBCA9F25FE09D1AB7172A59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Before Launcher - крайне минималистичный лаунчер, ч
 ```bash
 magnet:?xt=urn:btih:7E1D4A2D0738700AD3C5E2AA1FEC9B75123AE927
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ MX Player 1.85.1 Mod by AjeethK [Ru/Multi]
 magnet:?xt=urn:btih:3BC17C44ED1947E8A22513274CE41EF9A0D1AFCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Weather Underground - очень популярный за счёт своих �
 ```bash
 magnet:?xt=urn:btih:7695309B1C8A215F43EA8C9F4B71B2CB3C450B62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Breezy Weather - это приложение с открытым исходны�
 magnet:?xt=urn:btih:115C3AF133EA948B845083C93786688B27ADA698
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Windfinder - вариация известного и популярного с�
 ```bash
 magnet:?xt=urn:btih:16FE15133E68BD1CD94F96EF38EBE1EEF68FF36A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Weawow - это максимально подробный прогноз пог�
 magnet:?xt=urn:btih:8C16495FCB4A06D1CF0A3717BC0D2A8DBD58E6F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Weather Live - красивый, стильный, удобный и функц�
 ```bash
 magnet:?xt=urn:btih:31B7F566A08E58C4229F4DC28CCEC668EB580964
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Clime - это точная и удобная в использовании ме
 magnet:?xt=urn:btih:665389E6AAE77754D934467EDC07992AE3AA88AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Weatherzone - очень известное и популярное погодн
 ```bash
 magnet:?xt=urn:btih:A224711D742D189B6B4BFCEAE3318628986CD40B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Weawow - это максимально подробный прогноз пог�
 magnet:?xt=urn:btih:0EF6EE0EE058A181100FF241926B828A674E5850
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Windfinder - вариация известного и популярного с�
 ```bash
 magnet:?xt=urn:btih:EC8F58275FF432EBD05F08702401F0BD4F3E6360
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ WhatWeather - это программа, что предлагает польз�
 magnet:?xt=urn:btih:C5D44580A0E60C5A6CAB05963D3108AB3A3A5A36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:C5D44580A0E60C5A6CAB05963D3108AB3A3A5A36
 ```bash
 magnet:?xt=urn:btih:3A987642110851A95063BDBE506037E5FF600F86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Weather & Radar - приятное в использовании и полезн
 magnet:?xt=urn:btih:C8A60B95D1D4E0BE4C739D211E28C3EC613F8FA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Weather & Radar - приятное в использовании и полезн
 ```bash
 magnet:?xt=urn:btih:2578BC948FB08B11D2F29286287B0254157D2385
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ SnapEdit — одно из лучших приложений для редакт
 magnet:?xt=urn:btih:111435733E749D37E01FDC88EB799A0BB3F33FD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:111435733E749D37E01FDC88EB799A0BB3F33FD8
 ```bash
 magnet:?xt=urn:btih:64609EA5A59E5891ADA97C80F6F65A7603485666
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Square Home - красивый, стильный и функциональный
 magnet:?xt=urn:btih:2B20E46D611BDE49E14A29A1BE9027871BCE8C30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ YouTube ReVanced - это реинкарнация проекта YouTube Vanced
 ```bash
 magnet:?xt=urn:btih:B9322A1D04543FF8F4F3A9A21912DEEEB57C00C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ To-Do List - настолько простой в управлении, наск
 magnet:?xt=urn:btih:723D0FB3459A75D0DB4A7A6AC2752CC47B1ACEDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ Dog Scanner: Породы собак v17.2.5-G Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3F21CAAAD1E8AF74AD15CA8D152615A1DAB522A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:3F21CAAAD1E8AF74AD15CA8D152615A1DAB522A1
 magnet:?xt=urn:btih:9CA8AB4D089221E1AA2BB8948812A1D15CF6B3D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Cat Scanner / Сканер породы кошек v17.2.5-G Mod by ModExPro [Ru
 ```bash
 magnet:?xt=urn:btih:EA80F89080650B6BCD6830CB333730CE6AA373A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

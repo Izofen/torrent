@@ -1,3 +1,32 @@
+###  Публикация: 1218167   (725204) от 08.04.2018
+
+VA - German Top 100 Single Charts 09.04.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725204.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marshmello & Anne-Marie - FRIENDS
+002. Olexesh - Magisch (feat. Edin)
+003. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen)
+004. Drake - God's Plan(   Читать дальше...   )Жанр: PopПродолжительность: 05:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:725F9018E1D545CE02A8D2287773E6B8FA6A05A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217968   (725207) от 08.04.2018
 
 VA - German Top 100 Single Charts 06.04.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
@@ -21,6 +50,8 @@ VA - German Top 100 Single Charts 06.04.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:3A42FA4E6932A47EB29A5AC68A57428DB4619721
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Beatport Synth Electronic: Sound Pack #140 (2020) [MP3|320 Kbps] <Synthwave
 magnet:?xt=urn:btih:2FCD859DC722647A8E865CE8027F1903D0FBE75E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - House of Mass Audience (2018) [MP3|320 Kbps] <Funky, Club, Future House>
 ```bash
 magnet:?xt=urn:btih:AEFFDBBFDB524BDDE91BE49862471C4A31D4E760
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Blues Rock Drive 2 [4CD] от DON Music (2016) [MP3|320 кб/с] <Blues, Bl
 magnet:?xt=urn:btih:C3443FDAB18DA77F9E486F3B6974D1BA44CFAEF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Райские напевы №12, Песни 60-70 х гг (1960-1970 г) 
 ```bash
 magnet:?xt=urn:btih:53302DF748883766F1C667BF883E323A404BD023
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ Italo4ever - Unofficial Compilation (All tracks 2008-2014)+Mix4ever Vol.1 [MP3|1
 magnet:?xt=urn:btih:50161A0CCF74A1FC80203053FF68A0A21D69E7EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +225,8 @@ VA - Сборник Песен Под Гитару (2017) [MP3|192-320 Kbps] <Р
 magnet:?xt=urn:btih:AC161F46D6386C2FD1EAC0BFB3569A6C8ACBDE3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +250,8 @@ VA - Blues Forever vol.53 - vol.56 (2016) [MP3|320 кб/с] <Blues>
 ```bash
 magnet:?xt=urn:btih:2A1A8D7B25FDE3FB602EA9D8099F149FE1AF6C01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +285,8 @@ VA - Дискотека Klub from AGR (2011) [MP3|320 kbps]<Pop, Club>
 magnet:?xt=urn:btih:7E1AC9630C6394273F3372419528C4AB103383E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +313,8 @@ VA - Новая Русская Дискотека - 5 (2016) [MP3|256-320 кб/�
 ```bash
 magnet:?xt=urn:btih:9EEF8F846C8C5AACC80444CE730F463D73FDACA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +343,8 @@ VA - SpaceSynth & ItaloDisco Hits - 1 (2016) [MP3|320 кб/с] <Italo-Disco, Syn
 magnet:?xt=urn:btih:3021E542D3718A45B59FAC948BAE29721CC352FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +371,8 @@ VA - Melodic & Deep: Vocal House Mastermix (2019) [MP3|320 Kbps] <Vocal, Deep Ho
 ```bash
 magnet:?xt=urn:btih:7358231684DF8FB26D768D091BA2727169F5C857
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +401,8 @@ VA - All Your Yesterdays: Hard Rock Compilation (2019) [MP3|320 Kbps] <Rock, Har
 magnet:?xt=urn:btih:1E6ED96AC376C493E9BF4A138D739DC6BCC374B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +429,8 @@ Eric Street Band - Compilation (2022) [MP3|320 Kbps] <Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:81CA676A9396CFE7851A755EE787ECE6903C4974
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +459,8 @@ VA - Rautalanka Cocktail (2006) [MP3|320 кб/с] <Instrumental, Guitar, Beat, R
 magnet:?xt=urn:btih:4D4F774827B6F325BBE8FEC958E5EB9FD907C35A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +487,8 @@ VA - Messenger Of Licht New Age Enigmatic (2016) [MP3|320 кб/с] <New Age, Amb
 ```bash
 magnet:?xt=urn:btih:33C8701EF2C1D221AAD82A624544250FFDC0B6D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +517,8 @@ VA - Reggae Sound System (2019) [MP3|320 Kbps] <Reggae, Ska, Dancehall>
 magnet:?xt=urn:btih:5CF7C1A9219AF629324E710C7E7F25AB36477BA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +545,8 @@ VA - Total Trance: Selections February (2019) [MP3|320 Kbps] <Trance, Electronic
 ```bash
 magnet:?xt=urn:btih:0DCCA387B68DE75A7EC9980956E18725DE2862F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +575,8 @@ VA - Friday Vibes: Dance House Music (2022) [MP3|320 Kbps] <Club, Dance, House>
 magnet:?xt=urn:btih:CCA1D4DECF87D2ADE621AFF2FE3D324BA4F872E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +603,8 @@ VA - Techno Red Fire (2019) [MP3|320 Kbps] <Techno, Tech House>
 ```bash
 magnet:?xt=urn:btih:ACDD25DDD15AB47D277D319E186127348E3D7B4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +633,8 @@ VA - The Official UK Top 40 Singles Chart 22.02.2019 [MP3|320 Kbps] <Pop, Dance,
 magnet:?xt=urn:btih:444DD1505A1DA99C698E444CCC69D5E3692D94A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +661,8 @@ VA - Record Super Chart 12.02.2022 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:CB0014F0D4BDF9E6BD1F0D34963BA63738DDF799
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +691,8 @@ VA - Chillout Melodic Mixtape (2022) [MP3|320 Kbps] <Chillout, Relax, Downtempo>
 magnet:?xt=urn:btih:5EF4F9C038672FA0977C5424BF04E9936F55E8BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +719,8 @@ VA - Alterportal HITS 16 Vol. 92 - April (2016) [MP3|248-320 кб/с] <Alternati
 ```bash
 magnet:?xt=urn:btih:6C8949B67E3C22F9F35E5DBF158415A56EAA4DF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -672,32 +749,7 @@ VA - Beautiful Interior Lounge Sounds (2022) [MP3|320 Kbps] <Lounge, Downtempo, 
 magnet:?xt=urn:btih:B432B443999A710D431DC9A4DFC1FB5FAF9681B9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023148   (726674) от 04.06.2016
-
-VA - Мы с тобой (2016) [MP3|256 кб/с] <Chanson, Pop>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726674.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Кондрат — Мы с тобой
-002. Абкадиров Руслан — Не расстанемся
-003. DJ Slon и Katya — Ай диги дай
-004. Гревцев Дмитрий — В моей душе зима(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 06:28:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:044FB82BDC8AD192FFC00FABCC7E1AC0D1CFDC55
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

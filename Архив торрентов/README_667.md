@@ -28,6 +28,8 @@ Another Animal - Another Animal (2007) [MP3|192-320 kbps]<Hard-Rock/Post-Grunge>
 magnet:?xt=urn:btih:A04754C6ACAD019E64A55E0F7153B9CAE7BD7616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -61,6 +63,8 @@ Fuge (Венгрия) - Fuge (2010) [MP3|320 кб/с]<Progressive/Math Metal>
 magnet:?xt=urn:btih:A201C94DDB1EC6678937E470305F74F41526EEA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -84,6 +88,8 @@ magnet:?xt=urn:btih:A201C94DDB1EC6678937E470305F74F41526EEA0
 ```bash
 magnet:?xt=urn:btih:9003BF140302CF96A8442CC61CE080589088F0F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -114,6 +120,8 @@ VA - Nova Tunes 2.5 (2012) [MP3|256 кб/с]<Electronic, Lo-Fi>
 ```bash
 magnet:?xt=urn:btih:EBF8F1ABC0F6BC144BBC727469812DF97B780F78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +156,8 @@ The Moleskins - Bittersweet (2011) [MP3|256 кб/с]<Nu Jazz, Lounge, Bossa Nova
 magnet:?xt=urn:btih:98B569C35E6C16AAF0DEBDEC93FF945DA2002DA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +188,8 @@ VA - 15 Top Trance Hits 02 2012 (2012)
 ```bash
 magnet:?xt=urn:btih:FF1336A1B40B64DCA0789D0115803AE97A9BD171
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +224,8 @@ VA - Про Жуликов и Воров (2012) [FLAC|Lossless]<Шансон>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +250,8 @@ VA - Про Жуликов и Воров (2012) [FLAC|Lossless]<Шансон>
 ```bash
 magnet:?xt=urn:btih:AD6B889E023C97770AA3D6601744A0F6D66E1DA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +285,8 @@ VA - Best Hits - The Damn Bell Doors (2012) [MP3|320 кб/с]<Rave,Dubstep,Drums
 magnet:?xt=urn:btih:11A37CD6F98D32A74C3F039999CCAEE4C863E959
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +310,8 @@ magnet:?xt=urn:btih:11A37CD6F98D32A74C3F039999CCAEE4C863E959
 ```bash
 magnet:?xt=urn:btih:C7FCA9BF318156CB614900CA9239C8FF151B29B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +337,8 @@ Nat Geo Wild: Американская пума / American Cougar (2011) HDTVRip
 magnet:?xt=urn:btih:EEED4F5384CE274C901C05EF60003856A9BD712D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +362,8 @@ NG: Всё об акулах / Ultimate Shark (2006) [720р] HDTVRip
 ```bash
 magnet:?xt=urn:btih:2E55C1084C07E3E11B2582237C093C8AEBAC1334
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +389,8 @@ magnet:?xt=urn:btih:2E55C1084C07E3E11B2582237C093C8AEBAC1334
 magnet:?xt=urn:btih:707536E273FCDCF2690552FBC9E8B594A7E8FB3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +414,8 @@ magnet:?xt=urn:btih:707536E273FCDCF2690552FBC9E8B594A7E8FB3E
 ```bash
 magnet:?xt=urn:btih:1F66690BD44B03F49B714135529E09C834750A97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +450,8 @@ The Chieftains - Voice Of Ages (2012) [MP3|~240 kbps]<Folk, Celtic>
 magnet:?xt=urn:btih:6C8B1B5BD4956AADF7D0C5BF227DEA5602D6BDC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +485,8 @@ Markus Schulz - Global DJ Broadcast Top 20 February (25.02.2012) [MP3|320 кб/�
 magnet:?xt=urn:btih:ADDE8185109B2499364334F36913A27A46A1ABA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +510,8 @@ magnet:?xt=urn:btih:ADDE8185109B2499364334F36913A27A46A1ABA4
 ```bash
 magnet:?xt=urn:btih:58B383D4F7A528F4E6D498C0E1BC7111782BC6D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +545,8 @@ Heidevolk - Batavi (2012) [MP3|320 кб/с]<Folk / Viking Metal>
 magnet:?xt=urn:btih:8AADBD867BE62609E578BE063876AA32E5927060
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +572,8 @@ magnet:?xt=urn:btih:8AADBD867BE62609E578BE063876AA32E5927060
 magnet:?xt=urn:btih:B31C5AE67B4558A5EEB9F840E6AFD996DBB688DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +597,8 @@ Rainmeter - программа для мониторинга ресурсов к
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +624,8 @@ Rainmeter - программа для мониторинга ресурсов к
 magnet:?xt=urn:btih:AD0D9C23070AEBEE892170D6D9B3FA7291D5DCCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +650,8 @@ magnet:?xt=urn:btih:AD0D9C23070AEBEE892170D6D9B3FA7291D5DCCB
 magnet:?xt=urn:btih:5E3EA04FF1877286B8C5CF6E5EC5DB30074616AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +675,8 @@ magnet:?xt=urn:btih:5E3EA04FF1877286B8C5CF6E5EC5DB30074616AC
 ```bash
 magnet:?xt=urn:btih:6EF814813587D8CE368D8275546E4EA2872E39CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +710,8 @@ magnet:?xt=urn:btih:6EF814813587D8CE368D8275546E4EA2872E39CB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -699,6 +747,8 @@ Mordor - 32 Dюйма (2011) DVD9
 magnet:?xt=urn:btih:CAE3AAE1B973785920F069981DB0E72598970592
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -722,6 +772,8 @@ uTorrent Portable 3.1.2 Build 26763 Stable by PortableApps [Multi/Русский
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

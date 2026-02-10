@@ -1,3 +1,29 @@
+###  Публикация: 1058921   (954921) от 01.01.2017
+
+Okusama ga Seitokaichou! Plus! / My Wife Is the Student Council President! + / Моя жена – президент студсовета! Плюс! [2016, TV, 12 из 12] HDTVRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: Студия Seven Arcs / セブン・アークスЖанр: комедия, эттиРежиссер: Фурукава ХироюкиПеревод: Komugi-chan (1-6); AOS (1-12)Язык субтитров: Русский (отключаемый), английский (отключаемый)Продолжительность: 12 эп. по 8 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AE69D7D0951A100C695A6F1F23699145B3D64ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 694312   (954926) от 01.01.2017
 
 Mirai Shonen Conan / Future Boy Conan / Конан - мальчик из будущего [1978, TV, 26] BDrip Hi10p 1080p Raw
@@ -18,6 +44,8 @@ Mirai Shonen Conan / Future Boy Conan / Конан - мальчик из буд�
 ```bash
 magnet:?xt=urn:btih:C6455F74349F4491C4D2BE3F4D5E85310368B840
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ Rurouni Kenshin: Meiji Kenkaku Romantan - Shin Kyoto Hen / Бродяга Кэн
 magnet:?xt=urn:btih:7F0D80644B56C051A02F4CA7AFEDA5C711397E29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ Gekijouban Trigun: Badlands Rumble / Триган: Переполох в пус�
 ```bash
 magnet:?xt=urn:btih:9AC291B9C94F9D1A697374D76FB24A7BB31745E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ Katanagatari / Sword Stories / Истории мечей [2010, ТВ, 12 сер�
 magnet:?xt=urn:btih:861621670EC41453DDB8BCC7500D634B00B3698B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ Dirty Pair | Грязная парочка [1985, TV, 24 из 24] BDRip 1080p ra
 ```bash
 magnet:?xt=urn:btih:62B08BFC5A66C65C728DEAA90066EF3EEAE8F069
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ Dirty Pair: Bouryaku no 005-bin | Dirty Pair: Flight 005 Conspiracy | Грязн
 magnet:?xt=urn:btih:80DEC9E3976CE41DF4CFB2F9BF1B803CCD34D0B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ Dirty Pair Flash | Ослепительная грязная парочка [199
 ```bash
 magnet:?xt=urn:btih:E1AB3560036B5FAA297B3038DF43184398AEFE58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ Dirty Pair: Project Eden | Грязная парочка: Проект Эдем 
 magnet:?xt=urn:btih:3036A5D8A39B3CC81F25DD2AE6E849B97FB1F21D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ Dirty Pair: Lovely Angels Yori Ai o Komete | Dirty Pair: With Love From the Love
 ```bash
 magnet:?xt=urn:btih:638335570B6FD2B851E9AEA7C731F11E73647FBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ Dirty Pair (1987) | Грязная парочка [1987, OVA, 10 из 10] BDRip 
 magnet:?xt=urn:btih:35B5B49C35662E297E0926B1032AA152C66E19EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ Dirty Pair no Ooshoubu: Nolandia no Nazo | Dirty Pair: Affair of Nolandia | Гр
 ```bash
 magnet:?xt=urn:btih:C7440283D3990DF3E0074EBB322C88B8C4323C98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ Inou-Battle wa Nichijou-kei no Naka de | Inou Battle | Inou Battle Within Everyd
 magnet:?xt=urn:btih:5F1396C7B1B449229F3DC0A7D0C5D36957B4DB97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ Rakuen Tsuihou | Expelled from Paradise | Изгнанные из рая [2014, 
 ```bash
 magnet:?xt=urn:btih:9765EDA8B3055B7527D84772A78F0DB305F17F9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ Tonari no Seki-kun / Сэки, мой сосед по парте [2014, OAD, 2 �
 magnet:?xt=urn:btih:85525DBA299D3754055FB14618DBAFFB4F110C90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ Sakurako-san no Ashimoto ni wa Shitai ga Umatteiru / Труп под ногам�
 ```bash
 magnet:?xt=urn:btih:A61F3D6EFD6A7EB3982F1CE9AB1BE178167AC882
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ Fate/Stay Night: Unlimited Blade Works (2015) | Судьба: Ночь схва�
 magnet:?xt=urn:btih:96DFBB1DBBF79B0BCCD78D756AF455697ACE4961
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ Tatakae! Iczer-1 / Bouken! Iczer 3 / Sen-shoujo Iczelion [1985,1990,1995, OVA] D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +493,8 @@ Kandagawa Jet Girls: Tokyo Girls Take a Shot at Promotions | Кандагава:
 magnet:?xt=urn:btih:BC4899645A123B9E50C4E9E02C6D72BA981FC445
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ Trinity Blood | Кровь Триединства [2010, TV, 24] BDRip 1080p raw
 ```bash
 magnet:?xt=urn:btih:4323F36C5470892C98FB1E95AB85B77E6CF1968A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +547,8 @@ Mushishi Tokubetsu-hen: Hihamukage / Мастер Муси [2014, TV-sp, 1 ep.] 
 magnet:?xt=urn:btih:82D230D727A14402E54F665C6BF71BD5654A6602
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ Etotama / Eto Tamashii / История одной кошечки [2015, TV, 12]
 ```bash
 magnet:?xt=urn:btih:D8EEE695C548A8327AB366A35D7F9A9ED40F9170
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +599,8 @@ Ansatsu Kyoushitsu / Assassination Classroom / Класс Убийц [ТВ-1] [2
 ```bash
 magnet:?xt=urn:btih:42814C5CB443EBD6911C255A9AAFFC57CA9883EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +628,8 @@ Katanagatari / Sword Stories / Истории мечей [2010, OVA, 12 сери
 magnet:?xt=urn:btih:842782A3B902FB612D4C498C8BE7E156194B6A34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +653,8 @@ Haja Taisei Dangaiou | Dangaioh: Hyper-Combat Unit | Гигантский зве
 ```bash
 magnet:?xt=urn:btih:F6E6692C5CB313839EAB6760BBD68FF8FE45F89E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,29 +688,7 @@ Hellsing Ultimate / Хеллсинг OVA [2006, OVA, 10 из 10] BDRip 720p raw
 нет
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 843738   (977677) от 10.01.2016
-
-Suisei no Gargantia: Meguru Kouro, Haruka | Гаргантия на зелёной планете: Морские тропы за горизонт [2014, OVA, 2 эп.] BDrip 720p Hi10P raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977677.jpg" />
-</div>
-
-
-###  Подробнее
-
-После событий основного сериала прошло полгода. Ледо живет новой жизнью на борту Гаргантии и вместе со своими товарищами усердно трудится в команде «мусорщиков», занимающихся подъёмом с морского дна артефактов погибшей человеческой цивилизации. И тут в его жизни появляется 13-летняя курьерша Лима, которая раньше жила и работала во флоте Кугеля, а теперь перевелась (   Читать дальше...   )Производство: студия Production I.GЖанр: приключения, фантастикаРежиссер: Мурата КадзуяПеревод: 1) Faktoreal, Nesitach и Stan WarHammer (1 серия), buka63 (2 серия), 2) VividСубтитры: отключаемые - 1) русские; 2) английскиеПродолжительность: 2 серии по 54 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B758362BB98401380E9AF931C2C02EE7CE60172
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

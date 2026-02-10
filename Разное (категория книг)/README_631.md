@@ -1,3 +1,29 @@
+###  Публикация: 1102762   (888907) от 10.02.2017
+
+Галина Кизима | Универсальный дачный лунный календарь 2017–2020 годы (2016) [RTF, FB2]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальный календарь построен с учетом сроков начала основных работ в саду и огороде в любом регионе нашей страны. Эти сроки диктует сама природа, ведь все устроено так, что за одними событиями неукоснительно следуют другие. Так, цветение одних растений следует за цветением других через определенный интервал времени, который не меняется ни при каких погодных условиях (   Читать дальше...   )Жанр: Сад, огородФормат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B12065776AD434DF201D2B7BF83128FCB7DFDEDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 762991   (888916) от 04.03.2014
 
 Алевтина Корзунова | Сорняки и ваше здоровье (2013) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:B230674438B3980744279B05FAE50EAFAF17140D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:B230674438B3980744279B05FAE50EAFAF17140D
 magnet:?xt=urn:btih:8C121A63D1F2B9BC0A77131F4FAEE788A53FCB19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:8C121A63D1F2B9BC0A77131F4FAEE788A53FCB19
 ```bash
 magnet:?xt=urn:btih:65BD600098EADCBF6BF91441A38790AEE2DE643B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:65BD600098EADCBF6BF91441A38790AEE2DE643B
 magnet:?xt=urn:btih:8AAE049F5642E3108FE9EDA975EAE61EDD3F1F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:8AAE049F5642E3108FE9EDA975EAE61EDD3F1F32
 ```bash
 magnet:?xt=urn:btih:94437909DDFF86BB3163E0A8D01A64BA7C5948E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:94437909DDFF86BB3163E0A8D01A64BA7C5948E2
 magnet:?xt=urn:btih:54A3A184736EFE33D17779EDE21529A6E4F2489C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:54A3A184736EFE33D17779EDE21529A6E4F2489C
 ```bash
 magnet:?xt=urn:btih:DE92F7B00E33887E521069255891A092932D5B9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:DE92F7B00E33887E521069255891A092932D5B9E
 magnet:?xt=urn:btih:64076CD2AB5C35A47F4448306C5CF8C143A36C21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:64076CD2AB5C35A47F4448306C5CF8C143A36C21
 ```bash
 magnet:?xt=urn:btih:8CB317216003D3D2279A8CFBC4BA6374AF23DFEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:8CB317216003D3D2279A8CFBC4BA6374AF23DFEC
 magnet:?xt=urn:btih:949EE46C69796203A2230A28DC91CB9680D99878
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:949EE46C69796203A2230A28DC91CB9680D99878
 ```bash
 magnet:?xt=urn:btih:5B18A7142EE29A7135ECD55495F4C17DB588BFB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:5B18A7142EE29A7135ECD55495F4C17DB588BFB1
 magnet:?xt=urn:btih:50F57DF061739A77EABE650FA3549E587BC12754
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:50F57DF061739A77EABE650FA3549E587BC12754
 ```bash
 magnet:?xt=urn:btih:64B0628622391DE708A5D59B58A3E5842BA19FFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:64B0628622391DE708A5D59B58A3E5842BA19FFC
 ```bash
 magnet:?xt=urn:btih:2D3F7B77C4201A9A80DDDC6CB48E794ED53DFC96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +421,8 @@ magnet:?xt=urn:btih:2D3F7B77C4201A9A80DDDC6CB48E794ED53DFC96
 magnet:?xt=urn:btih:FBC0365A2265B652138A287F09413BC5B4F935AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +449,8 @@ magnet:?xt=urn:btih:FBC0365A2265B652138A287F09413BC5B4F935AF
 magnet:?xt=urn:btih:29F62A2D017A695535AFAD5AA865AF3E32D44FB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +474,8 @@ magnet:?xt=urn:btih:29F62A2D017A695535AFAD5AA865AF3E32D44FB2
 ```bash
 magnet:?xt=urn:btih:5A7AEBE378875C77056DFC554F97EDBC99AEFC23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +501,8 @@ magnet:?xt=urn:btih:5A7AEBE378875C77056DFC554F97EDBC99AEFC23
 magnet:?xt=urn:btih:31D595AB7E5340BCA778EEC1F7DAA2D58FA94031
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:31D595AB7E5340BCA778EEC1F7DAA2D58FA94031
 ```bash
 magnet:?xt=urn:btih:0FA89AA90C3677E720067B00B83C1CDEE5D40402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +555,8 @@ magnet:?xt=urn:btih:0FA89AA90C3677E720067B00B83C1CDEE5D40402
 magnet:?xt=urn:btih:3AED254330F614F079E0488DA90FA2FF58E890FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +580,8 @@ magnet:?xt=urn:btih:3AED254330F614F079E0488DA90FA2FF58E890FD
 ```bash
 magnet:?xt=urn:btih:A6B9168C90FD749F55F1E1274CB570F7D19F4704
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +608,8 @@ magnet:?xt=urn:btih:A6B9168C90FD749F55F1E1274CB570F7D19F4704
 magnet:?xt=urn:btih:884B78507C42C36CA31FB98F4EE5DAC5D1C377F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +633,8 @@ magnet:?xt=urn:btih:884B78507C42C36CA31FB98F4EE5DAC5D1C377F0
 ```bash
 magnet:?xt=urn:btih:4BC56C308A55964C074572FBEDDE03E37A2490BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +663,8 @@ magnet:?xt=urn:btih:4BC56C308A55964C074572FBEDDE03E37A2490BB
 magnet:?xt=urn:btih:0CFD7FD3EC29CAF90AFB73BDF880EB2021C35E80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,29 +689,7 @@ magnet:?xt=urn:btih:0CFD7FD3EC29CAF90AFB73BDF880EB2021C35E80
 magnet:?xt=urn:btih:845468BE098F580E487BACCFFCAAA2B4EFDE0ED1
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640334   (889377) от 06.04.2013
-
-Виктор Савченко | 100 знаменитых анархистов и революционеров [2008] [FB2]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-«Благими намерениями вымощена дорога в ад» – эта фраза всплывает, когда задумываешься о судьбах пламенных революционеров. Их жизненный путь поучителен, ведь революции очень часто «пожирают своих детей», а постреволюционная действительность далеко не всегда соответствует предреволюционным мечтаниям. В этой книге представлены биографии 100 знаменитых революционеров и анархистов начиная с XVII столетия и заканчивая ныне здравствующими. Это гении и злодеи, авантюристы и романтики революции, великие идеологи, сформировавшие духовный облик нашего мира, пацифисты, исключавшие насилие над человеком даже во имя мнимой свободы, диктаторы, террористы… Они все хотели создать новый мир и нового человека. Но… «революцию готовят идеалисты, делают фанатики, а плодами ее пользуются негодяи», – сказал Бисмарк. История не раз подтверждала верность этого афоризма.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA63C9AA6085BC67D883CD5B8235B672453B978
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

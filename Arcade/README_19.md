@@ -19,6 +19,8 @@ Apex Heroines - это научно-фантастический ролевой 
 magnet:?xt=urn:btih:32901196F725C41782E1A2AC90B4810757BAAB8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Spin Rhythm XD - яркая и динамичная ритм-игра, в кот
 ```bash
 magnet:?xt=urn:btih:0B769F9B0BAEA6BE6EE0F2EEB3F018C92C0D7735
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Unstoppable погружает вас в самое сердце леденящ�
 magnet:?xt=urn:btih:F8410D24430862DDE4842540FF40AB029878A5FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Livestream 2: Escape from Togaezuka Happy Place - очередная часть 
 ```bash
 magnet:?xt=urn:btih:42A91865A1F22F3F93FFD92472C81320E3D074A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Tools Up! (2024) [Ru/Multi] (1.06/dlc) License GOG [Ultimate Edition]
 magnet:?xt=urn:btih:F403DA0DDE2B778B61E3883EE9B52CC4A92E8E4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Tonight We Riot (2020) [Ru/Multi] (pcrelease.c) License GOG
 ```bash
 magnet:?xt=urn:btih:D9F4533402EE55340FE52E643A9E43E0183DBC97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Deflector (2023) [Ru/Multi] (1.0.0.0) Scene Tenoke
 magnet:?xt=urn:btih:DFD6C87718EF3515D773D9E542B5065525C4F175
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Eternal Dread 3 – это трехмерный ролевой экшен с в�
 ```bash
 magnet:?xt=urn:btih:8CFCB46CD78D714016ACE8B37C88DC9D7F55244D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Strayed Lights — это захватывающее экшен-приключе
 magnet:?xt=urn:btih:D1264D38A0BF128BAD81FB6F253B11911F3A64E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Banners of Ruin (2021) [Ru/Multi] (1.4.69/dlc) License GOG [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:AB3CDEA353630CDBC8FCA347CCF0E3C648B71984
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ River Tails: Stronger Together - это яркий и захватывающий
 magnet:?xt=urn:btih:1D1E8BE4AE0A26DA04DD823B5599A1C052EA2205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Klonoa Phantasy Reverie Series представляет собой мини-сб
 ```bash
 magnet:?xt=urn:btih:CEC02D36DDB531EB3A204AC6983FC6377DA454FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ LEGO The Lord Of The Rings / LEGO Властелин колец [Ru/En] (RePack)
 magnet:?xt=urn:btih:409F0A7DB6B2CA1252BF039034273B44DEB2E3A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Braid [Ru/En] (RePack/1.0.1.5) 2008 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:F359E3D87B6E0F4EB02902C4B8A5301C6686748E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Plants vs. Zombies (2009) [Ru/En] (1.2.0.1096) Repack dixen18 [Game of the Year 
 magnet:?xt=urn:btih:538A432924BDAD88F9672DFD7E2FCBE09F911388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Gangs of Sherwood (2023) [Multi] (1.5.253310/dlc) Repack DjDI [Lionheart Edition
 ```bash
 magnet:?xt=urn:btih:DCB7B2952FB4613EA6D762D298A388D1468D2ABA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Renegade Ops [Ru/En/Multi6] (Steam-Rip/13/2 DLC) 2011 | R.G. Игроманы
 magnet:?xt=urn:btih:E094626E64C00D0788EF502273862CDCA2034AE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Trash Sailors это приключения мультяшных пиратов 
 ```bash
 magnet:?xt=urn:btih:0EF447797236711883DE336117FB5659C6DD36DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Niffelheim (2018) [Ru/Multi] (1.0.12) License GOG
 magnet:?xt=urn:btih:34F0B1D546D43185757C2A81BD012692465C7AF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Kalaban (2016) [En] (1.0.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:21843CBC618612D0A96A0F837AF9591024DED6EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Evoland Dilogy (2013-2015) [Ru/En] (1.1.2490/1.0.9135) Repack R.G. Механи�
 magnet:?xt=urn:btih:34AECF282EF6DEFA3A004A20C957A33DB6EBD2D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ The King of Fighters превратилась в популярную (особ�
 magnet:?xt=urn:btih:49A68F860721629676C49E69C545C98B836B85AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Shank (2010) [Ru] (1.3) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:5FFEF9FAB9BEE8415E03E1F8DB4991066C99B6FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Worms Revolution [Ru] (Repack/1.0/3DLC) 2012 | DiMoNFliX
 magnet:?xt=urn:btih:7F2CFE7A87F6938540630C167C1DCBC6B4A7B068
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Bad North (2018) [Ru/Multi] (1.05.1) License GOG
 magnet:?xt=urn:btih:F1A6B531472F57D5B14EA8CF6E9FE655F8CF8D90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Valfaris: Mecha Therion является продолжением игры Ва�
 ```bash
 magnet:?xt=urn:btih:0917BEC435B81EB3C5FAFD47D7CA8B1E4E9C9C56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

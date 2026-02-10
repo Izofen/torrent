@@ -1,27 +1,3 @@
-###  Публикация: 1557135   (556543) от 12.06.2022
-
-Луи Фейад. Порок / La Tare (1911) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556543.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Фейада есть несколько фильмов, которые он объеденил в одну серию - "Жизнь как она есть / La Vie telle qu’elle est". Этот фильм один из них. Между собой фильмы не связаны ни сюжетом, ни героями. Общее между ними то, что режиссер пытался в них показать жизнь и людей в этой жизни без кинематогрофических приукрашиваний и условностей, без однозначности героев (   Читать дальше...   )Производство: Франция, Société des Etablissements L. GaumontЖанр: Драма, короткометражный, немое киноРежиссер: Луи ФейадАктеры: Жан Эме, Рене Карл, Генри Коллен, Макс Дартини, Мари Дорли, Полин Ройер, Алис ТиссоПеревод: Немой с интертитрамиСубтитры: Французские интертитры, русские встроенные отключаемыеПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E615E239D6A581DDBF2ED599B69582F9445E5A7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044810   (556625) от 25.08.2016
 
 Гори и сгорай / Brucia, ragazzo, brucia (1969) DVDRip [H.264] [АVO]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:E615E239D6A581DDBF2ED599B69582F9445E5A7C
 ```bash
 magnet:?xt=urn:btih:0CD96C6E46649D2274C14393CA8B3E05FBA59FE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:0CD96C6E46649D2274C14393CA8B3E05FBA59FE4
 magnet:?xt=urn:btih:2C4514BA878AE2FFC8A5E27FFACF8E0A7492432D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:2C4514BA878AE2FFC8A5E27FFACF8E0A7492432D
 ```bash
 magnet:?xt=urn:btih:E9121342BCAB76134B7B1FACD761AF60C99DD394
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:E9121342BCAB76134B7B1FACD761AF60C99DD394
 magnet:?xt=urn:btih:C05819301DC67E5B251DEB5D576515234B1CFEE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +123,8 @@ magnet:?xt=urn:btih:C05819301DC67E5B251DEB5D576515234B1CFEE8
 magnet:?xt=urn:btih:3CCFDC017589586A908976D96738C2C6EB998416
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +148,8 @@ magnet:?xt=urn:btih:3CCFDC017589586A908976D96738C2C6EB998416
 ```bash
 magnet:?xt=urn:btih:3C7AE79F0DC7D5A0DC43F2EAFEA348A385C2DC81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +177,8 @@ magnet:?xt=urn:btih:3C7AE79F0DC7D5A0DC43F2EAFEA348A385C2DC81
 magnet:?xt=urn:btih:F414FDCD4683F8559447D117DB82B60B5C6A72D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:F414FDCD4683F8559447D117DB82B60B5C6A72D8
 ```bash
 magnet:?xt=urn:btih:D5AE9AC7F82C18E67E554E91363EE922389D4747
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +229,8 @@ magnet:?xt=urn:btih:D5AE9AC7F82C18E67E554E91363EE922389D4747
 magnet:?xt=urn:btih:D40F8FCF0084F08F304CE23DB86077113227AC8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +255,8 @@ magnet:?xt=urn:btih:D40F8FCF0084F08F304CE23DB86077113227AC8E
 magnet:?xt=urn:btih:2106C8C97BF7782B532A9A745FB5B49685642492
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:2106C8C97BF7782B532A9A745FB5B49685642492
 ```bash
 magnet:?xt=urn:btih:7622C20DE1CA6ABB52B518333D09962783107F5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +308,8 @@ magnet:?xt=urn:btih:7622C20DE1CA6ABB52B518333D09962783107F5D
 magnet:?xt=urn:btih:7A3CAD4DE148C9C885DABF5C461B890672CAABDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +333,8 @@ magnet:?xt=urn:btih:7A3CAD4DE148C9C885DABF5C461B890672CAABDF
 ```bash
 magnet:?xt=urn:btih:CB65D778365B235C6DA31B0648A81ABFE846E320
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +360,8 @@ magnet:?xt=urn:btih:CB65D778365B235C6DA31B0648A81ABFE846E320
 magnet:?xt=urn:btih:39625D65EE35BFA7B8E37BBE72888234AF65C257
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:39625D65EE35BFA7B8E37BBE72888234AF65C257
 magnet:?xt=urn:btih:D220011DB570D46FC939D30843DF1521C9889E1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:D220011DB570D46FC939D30843DF1521C9889E1F
 ```bash
 magnet:?xt=urn:btih:DE9B5D5BA0FEB435D0FD0326AF3D86C357BDF3CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +439,8 @@ magnet:?xt=urn:btih:DE9B5D5BA0FEB435D0FD0326AF3D86C357BDF3CC
 magnet:?xt=urn:btih:7BE47F49466C1F0250C3195C468283DAA847A515
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +464,8 @@ magnet:?xt=urn:btih:7BE47F49466C1F0250C3195C468283DAA847A515
 ```bash
 magnet:?xt=urn:btih:B84620150D23AA18AF5F933FFA42597D7C1446E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +491,8 @@ magnet:?xt=urn:btih:B84620150D23AA18AF5F933FFA42597D7C1446E0
 magnet:?xt=urn:btih:D0B751C25FB0317F18AAE1C386803DC97AA11B81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +516,8 @@ magnet:?xt=urn:btih:D0B751C25FB0317F18AAE1C386803DC97AA11B81
 ```bash
 magnet:?xt=urn:btih:F2E075F9E2C4455C3A8BF1C76D5587B2F07E92B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +544,8 @@ magnet:?xt=urn:btih:F2E075F9E2C4455C3A8BF1C76D5587B2F07E92B6
 magnet:?xt=urn:btih:DA81F2B3257E64B7AA270F0ABAD10BA2515575A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +570,8 @@ magnet:?xt=urn:btih:DA81F2B3257E64B7AA270F0ABAD10BA2515575A4
 magnet:?xt=urn:btih:5946B7F749A3CCE7938E70C92BBABF76209AB24D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +595,8 @@ magnet:?xt=urn:btih:5946B7F749A3CCE7938E70C92BBABF76209AB24D
 ```bash
 magnet:?xt=urn:btih:2C566471E6A6E26975C7BE2B9AC78B2E5AD260B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +623,8 @@ magnet:?xt=urn:btih:2C566471E6A6E26975C7BE2B9AC78B2E5AD260B5
 magnet:?xt=urn:btih:4851CC99CDFF2418AEB1E33C9F94F37126BDF630
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +648,35 @@ magnet:?xt=urn:btih:4851CC99CDFF2418AEB1E33C9F94F37126BDF630
 ```bash
 magnet:?xt=urn:btih:41273B33A4CB5FF09772C5A72CF6443ED85E65CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923997   (560601) от 02.08.2015
+
+Время убивать / Tempo di uccidere (1989) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Африка. Высадившиеся войска занимают боевые позиции в сложных тропических условиях. Неприветливая страна заражена неизлечимыми болезнями и встречает открытой враждебностью местных аборигенов.
+Молодой офицер в походе оказывается втянутым в сложную ситуацию преступления и возмездия, которое способно изменить всю его дальнейшую жизнь…Производство: Италия, Франция / Dania Film, DMV Distribuzione, Ellepi Films, Italfrance Films, Reteitalia, Surf FilmЖанр: Драма, ВоенныйРежиссер: Джулиано МонтальдоАктеры: Николас Кейдж, Рикки Тоньяцци, Патрис-Флора Праксо, Джанлука Фавилла, Жорж Клесе, Робер Лиенсоль, Витторио Амандола, Пао Пей Андреоли, Марио Мадзаротто, Микеле МелегаПеревод: Многоголосый закадровыйЯзык субтитров: РусскийПродолжительность: 01:38:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E596F382A358AEEAB931FCB0E369FA0D06FE085A
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:2A422029343DB5B9DD89E164F14137DF6AF25C51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:2A422029343DB5B9DD89E164F14137DF6AF25C51
 ```bash
 magnet:?xt=urn:btih:368263337D983AF873431FBFCA7A9B590DC2D637
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Brunorock - War Maniacs (2009) [FLAC|Lossless|image + .cue] <Melodic Rock>
 magnet:?xt=urn:btih:4EBE76A0167811D45D0D3EE254F0F6E88A38CC19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Gia Margaret - Romantic Piano (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alte
 ```bash
 magnet:?xt=urn:btih:B03CAE5D2432445C5360DBCEFF27CFC5ED55C341
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Lostly - Fav Tracks Mix (Mixed And Comliped By Jerbi) (2023) WebDLRip [MP3|320kb
 magnet:?xt=urn:btih:7CC27F7B2EAA2027B03B2CA633E4C754529E616C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ Dawn of Creation - Self-Destructive Matters (2022) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:ECBBCB4D85874466326B25DF6CC8695E622B6AEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ magnet:?xt=urn:btih:ECBBCB4D85874466326B25DF6CC8695E622B6AEC
 ```bash
 magnet:?xt=urn:btih:A3C00DBF546A0304BFA3CFCA3C5E6A1CA5B96D31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ TextSoap для Mac OS - Поможет подчистить текстовые 
 magnet:?xt=urn:btih:6D39FC185EE6C625920EBC5E3E5ED218FB3EC0C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:6D39FC185EE6C625920EBC5E3E5ED218FB3EC0C5
 ```bash
 magnet:?xt=urn:btih:ACE92AB1065BA6F759668E89192C410D087BFE06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:ACE92AB1065BA6F759668E89192C410D087BFE06
 magnet:?xt=urn:btih:29337A63B74097A1762357A756370F911B516793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:29337A63B74097A1762357A756370F911B516793
 magnet:?xt=urn:btih:468C84C4E399CDDAE892AADE9D3E9B8A05CDDAB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:468C84C4E399CDDAE892AADE9D3E9B8A05CDDAB5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ Mozart Gabriel - Sign Me Up 4 The Apocalypse (2023) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:CD973AABB9949B91477E0D3BBE844E9923C5D61E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:CD973AABB9949B91477E0D3BBE844E9923C5D61E
 ```bash
 magnet:?xt=urn:btih:ACD7DF77948EF3B31536DC929194E6307A87B01F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ VA - 2Rock Club Hits Vol. 2 (2023) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:96690BBD08B8CCD5D0EED662B468D3DB5F4465F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:96690BBD08B8CCD5D0EED662B468D3DB5F4465F4
 magnet:?xt=urn:btih:1E7332CEEACBBAF8637F720133EDDBC6FF50BE14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ Texpad это редактор LaTeX предназначен для прост�
 ```bash
 magnet:?xt=urn:btih:E5FA2659C1B76F0E49791A7E1310E3EDEDBE4877
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ Ernie Watts Quartet - Home Light (2018) Flying Dolphin Records [FLAC|Lossless|tr
 magnet:?xt=urn:btih:AE68B3242FF30740AA6150623263C4E64894C8B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:AE68B3242FF30740AA6150623263C4E64894C8B4
 ```bash
 magnet:?xt=urn:btih:C471CA2C68ED8639539E10107D90954E3563F446
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +540,8 @@ VA - Top 8 May 2023 Emotional And Uplifting Trance (2023) [MP3|320 Kbps] <Trance
 magnet:?xt=urn:btih:791F01957B935AE88A1A1EEEDA4DAA2624B08049
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ CD1
 ```bash
 magnet:?xt=urn:btih:DC8B7D64ABC639B314B53ABE7A0878A5E12B06BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ Kira Mac - Chaos Calling (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 magnet:?xt=urn:btih:5A2336384EBBAB471BD63536A5B5118457DEE355
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ magnet:?xt=urn:btih:5A2336384EBBAB471BD63536A5B5118457DEE355
 ```bash
 magnet:?xt=urn:btih:731BAEF9A79ACB3772C0CDA2D63E10ACAAFA0EDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +653,8 @@ magnet:?xt=urn:btih:731BAEF9A79ACB3772C0CDA2D63E10ACAAFA0EDB
 magnet:?xt=urn:btih:3CF19B7E00A128DA6B4667F102BADCDA41626D6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ Dropshare - приложение строки меню для Drag & Drop заг
 magnet:?xt=urn:btih:6845966AB2B5487058B7A3E4410D5ABFAA5DFA43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ magnet:?xt=urn:btih:6845966AB2B5487058B7A3E4410D5ABFAA5DFA43
 ```bash
 magnet:?xt=urn:btih:074B05D83BFB19013FE67EBC3251E628EAA002F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

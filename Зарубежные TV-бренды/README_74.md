@@ -19,6 +19,8 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 magnet:?xt=urn:btih:4571EED6FF1475E5C975F71143E8E38AAE4F21E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Animal Planet. Суровая Арктика / Wildest Arctic (2012) HDTVRip [H.
 ```bash
 magnet:?xt=urn:btih:17CA9C6A600F8626B64F4FBA0001193B93C54554
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG. Дикая Канада: У кромки льда / Wild Canada. Ice Edge (2
 magnet:?xt=urn:btih:8EA5B6449DFE5F357BBC9936BC6CD960326ECE72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NGW: Гигантские плотоядные летучие мыши / Giant C
 ```bash
 magnet:?xt=urn:btih:FB247A3ADE6503B9EA1050B2C19A10E46C160394
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NGW: Дикая Турция / Turkey's Harsh Paradise (2015) HDTV [H.264/1080i-
 magnet:?xt=urn:btih:54A48B7CB0E8525D12BD2C675B975A63B59C2CE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 magnet:?xt=urn:btih:D20DCE082EDAED0EE8D2B56E6F3129721626CA1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Discovery. Билли скупает Бруклин / Billy Buys Brooklyn (2021)
 ```bash
 magnet:?xt=urn:btih:B83CC0DC7964361115AA8009BAD107FCE420A918
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ BBC: Большие птицы с Дэвидом Аттенборо / BBC Natura
 magnet:?xt=urn:btih:0C4CBCE068FA58D21920314520C9D3ADA8E1008A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ NG. Секреты Шамбалы. В поисках священных пеще
 ```bash
 magnet:?xt=urn:btih:CFF18D4BEFF02D7A036D78519976FFE636EA8451
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Discovery. Экстремальные коллекционеры / Extreme Colle
 magnet:?xt=urn:btih:41CFBE82C69DD1CAC349FC7C1C51B3DEADD8CC09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ National Geographic: Острова. Куба / Islands. Cuba (2011) SATRip
 ```bash
 magnet:?xt=urn:btih:79B8267BC652BF6EFCC8E4E3399189D2EA2673AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ National Geographic: Острова. Занзибар / Islands. Zanzibar (2011)
 magnet:?xt=urn:btih:0FF320FF14FB910743C0C73AA89BA0B89C4FB8AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ National Geographic: Острова. Исландия / Islands. Island (2011) S
 magnet:?xt=urn:btih:188119B0D2275BBB6DC2583F8F03AAEE9C1EF918
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Animal Planet: Дикая (Суровая) Арктика [4 из 4] / Wildest A
 ```bash
 magnet:?xt=urn:btih:1121649AA3C01C182C09AC11F99C043C5A2A9308
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:1121649AA3C01C182C09AC11F99C043C5A2A9308
 magnet:?xt=urn:btih:69301EFCE86D446216D009F2F42665E1116D75E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ BBC: Код / The Code (2011) WEB-DL [H.264/1080p-LQ] (серии 1-3 из 3)
 ```bash
 magnet:?xt=urn:btih:7A4D8CEC7AABE2465BF85507954FD34BFAD5D6A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Discovery: Подлинная жизнь Тутанхамона / King Tut Unwra
 magnet:?xt=urn:btih:415DCD30D57215FEEA90BF5697A137FDCE147B08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:415DCD30D57215FEEA90BF5697A137FDCE147B08
 ```bash
 magnet:?xt=urn:btih:334D36D4B6F871D0F84FA9734EDBE2E1A7CA274B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Discovery. Экстремальные коллекционеры / Extreme Colle
 magnet:?xt=urn:btih:8B1BC5165979A109F2CCFA6DE1DD9A2D141912F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Discovery. Самый разрушительный тайфун / Megastorm: Wor
 ```bash
 magnet:?xt=urn:btih:8C1B6146613EB0CF8F310F68A5083B04B96E2E5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Discovery: Без промаха / Gunslingers (2007) HDTV [H.264/720p-LQ] [Се
 magnet:?xt=urn:btih:E7E03605A65AEF369D92B95C40119F077CFCD5DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Discovery: Без промаха / Gunslingers (2007) HDTVRip [Сезон 1, С�
 ```bash
 magnet:?xt=urn:btih:1B129DB5142D62375655E04DFE3065E0B2269B44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ NGW: Прирождённые монстры. Бразильский паук / 
 magnet:?xt=urn:btih:5EC9E5394A4AF0C72938070AAB01D2420A826DB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ NGW: Прирождённые монстры. Тигровая змея / Natura
 ```bash
 magnet:?xt=urn:btih:763D9998238D8FBFC8372ACDD51C2D66C0074098
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ DV: Невероятное вокруг нас. Рождение и жизнь �
 magnet:?xt=urn:btih:04AA788B9DDDA5E12D1A1DF29EF80A8B78BC3FCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ DV: Невероятное вокруг нас. Волны, которые гр�
 ```bash
 magnet:?xt=urn:btih:DB58305A35C32D5C5C65331EEEB939BECC0BBDC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

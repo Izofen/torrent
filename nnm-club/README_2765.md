@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:F1B19DC849F3064D1AACC1B59FF5DCDCFC8E4525
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -78,6 +82,8 @@ Van Halen - A Different Kind Of Truth (2012) [FLAC|Lossless]<Hard Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Van Halen - A Different Kind Of Truth (2012) [FLAC|Lossless]<Hard Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ Van Halen - A Different Kind Of Truth (2012) [FLAC|Lossless]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:29C0FCB0988296B846C729ED09D90B6A7F490A7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:29C0FCB0988296B846C729ED09D90B6A7F490A7A
 ```bash
 magnet:?xt=urn:btih:DC52ACD44210B49B6D87115335794A64689A1539
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:DC52ACD44210B49B6D87115335794A64689A1539
 magnet:?xt=urn:btih:27DB3193C470D4643A408CBE72D9C18E219EEBE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ Christian Radio Player 3.4.8 + Portable [Русский, Английский, �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +249,8 @@ Christian Radio Player 3.4.8 + Portable [Русский, Английский, �
 ```bash
 magnet:?xt=urn:btih:F65AE61F91EE04CABEBBBAD98618C944DDD1F825
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +285,8 @@ Chris Norman - Golden Hits (2007) 3CD [FLAC|Lossless]<Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +311,8 @@ Chris Norman - Golden Hits (2007) 3CD [FLAC|Lossless]<Rock>
 ```bash
 magnet:?xt=urn:btih:7196F1D820F2E12E31970F9A84508E2A4402E593
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +339,8 @@ Meat Loaf - американский рок-певец, кино- и театр�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +364,8 @@ Meat Loaf - американский рок-певец, кино- и театр�
 ```bash
 magnet:?xt=urn:btih:28D3EF645C7B8440BBC13348188DDA18462712E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +391,8 @@ Pink выступила в Австралии на концерте в подд�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +417,8 @@ Pink выступила в Австралии на концерте в подд�
 ```bash
 magnet:?xt=urn:btih:0321A595A912F4C82299D3D6EDDE1DFC83C146D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +448,8 @@ Chris Norman & Suzi Quatro - Stumblin' In (1978-1979) (Singles Maxi 2009) [MP3|3
 magnet:?xt=urn:btih:E37A1AFBA2BB2F2FF0E9DA7E0AFC96EB9627E2CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +474,8 @@ magnet:?xt=urn:btih:E37A1AFBA2BB2F2FF0E9DA7E0AFC96EB9627E2CD
 magnet:?xt=urn:btih:5E854AB636980580E5F97B099D6C11D80A55C3DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +499,8 @@ magnet:?xt=urn:btih:5E854AB636980580E5F97B099D6C11D80A55C3DA
 ```bash
 magnet:?xt=urn:btih:8BDA8B3F04B24BE523FE4DB16ABF6948176C6FF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +535,8 @@ Markus Schulz pres. - Los Angeles '12 (17.02.2012) [MP3|320 kbps]<Trance, Progre
 magnet:?xt=urn:btih:09BC6C84BF9B0B4AF15FA07F36482C956702DE1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +560,8 @@ magnet:?xt=urn:btih:09BC6C84BF9B0B4AF15FA07F36482C956702DE1E
 ```bash
 magnet:?xt=urn:btih:1D288E2B753B03CA729D6C5DE64C13360D755AE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +596,8 @@ magnet:?xt=urn:btih:1D288E2B753B03CA729D6C5DE64C13360D755AE4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +621,8 @@ magnet:?xt=urn:btih:1D288E2B753B03CA729D6C5DE64C13360D755AE4
 ```bash
 magnet:?xt=urn:btih:BDCE8941741446526C6C17A383B3D50B9E36F4FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +649,8 @@ Zen Pinball  - это  симулятор пинболла, в  котором  
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +674,8 @@ Zen Pinball  - это  симулятор пинболла, в  котором  
 ```bash
 magnet:?xt=urn:btih:C15303510B805533872A95C825916B86F32D623A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +701,8 @@ magnet:?xt=urn:btih:C15303510B805533872A95C825916B86F32D623A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,6 +726,8 @@ magnet:?xt=urn:btih:C15303510B805533872A95C825916B86F32D623A
 ```bash
 magnet:?xt=urn:btih:315FCD8A4D693A1450CF272BE08F0AE2CFC755A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

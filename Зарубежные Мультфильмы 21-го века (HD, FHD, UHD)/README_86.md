@@ -1,27 +1,3 @@
-###  Публикация: 1149768   (597863) от 12.07.2017
-
-Лего Фильм: Бэтмен / The LEGO Batman Movie (2017) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готэму вновь грозит опасность. И на его стражу становится единственный герой, которого заслуживает этот город — Бэтмен, альтер-эго миллиардера Брюса Уэйна, живущего в своем огромном родовом поместье вместе с дворецким Альфредом. Но в этот раз супергерой вынужден взять в напарники парня по имени Дик Грейсон, которого он, сам того не помня, усыновил на одном из светских (   Читать дальше...   )Производство: США, Дания / DC Entertainment, LEGO System A/SЖанр: мультфильм, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Крис МакКейПерсонажи: Уилл Арнетт, Майкл Сера, Розарио Доусон, Рэйф Файнс, Зак Галифианакис, Дженни Слейт, Джейсон Манцукас, Конан О’Брайен, Даг БенсонПеревод: Дублированный (Лицензия BD CEE)Субтитры: Русские (forced, full), английскиеПродолжительность: 01:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B48AC8683D2521F6A8D2A788212C22DA6B215386
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149695   (598005) от 12.07.2017
 
 Босс-молокосос / The Boss Baby (2017) BDRip [H.264/1080p] [handmade 16:9]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:B48AC8683D2521F6A8D2A788212C22DA6B215386
 ```bash
 magnet:?xt=urn:btih:37EDAF7EE6CEC0798CE828E608FFD2C334B964A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:37EDAF7EE6CEC0798CE828E608FFD2C334B964A2
 magnet:?xt=urn:btih:602E8CDD9D97079839F6A4D6A712FE328611B753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +71,8 @@ magnet:?xt=urn:btih:602E8CDD9D97079839F6A4D6A712FE328611B753
 ```bash
 magnet:?xt=urn:btih:BA3DBA0176E5D57F16571B0BB590C0BC81811F0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +100,8 @@ magnet:?xt=urn:btih:BA3DBA0176E5D57F16571B0BB590C0BC81811F0C
 magnet:?xt=urn:btih:3A6F68110359B19A2F109DA89D2EC3C436575CD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +125,8 @@ magnet:?xt=urn:btih:3A6F68110359B19A2F109DA89D2EC3C436575CD4
 ```bash
 magnet:?xt=urn:btih:08DA91F95FF3E87F5C0D809FB60419E04C52B908
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +152,8 @@ magnet:?xt=urn:btih:08DA91F95FF3E87F5C0D809FB60419E04C52B908
 magnet:?xt=urn:btih:500B95C4DA29CF3EEA478025687A858DB9929B6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +177,8 @@ magnet:?xt=urn:btih:500B95C4DA29CF3EEA478025687A858DB9929B6C
 ```bash
 magnet:?xt=urn:btih:BE343209702D6EA91705F62199A06F4990FFA761
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +206,8 @@ magnet:?xt=urn:btih:BE343209702D6EA91705F62199A06F4990FFA761
 magnet:?xt=urn:btih:A83CEE83743C376F62554377A7367D7F7C6182E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +234,8 @@ magnet:?xt=urn:btih:A83CEE83743C376F62554377A7367D7F7C6182E4
 magnet:?xt=urn:btih:C42874378F9C9B20515AEF79A3375061E4817448
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +259,8 @@ magnet:?xt=urn:btih:C42874378F9C9B20515AEF79A3375061E4817448
 ```bash
 magnet:?xt=urn:btih:DDEE56D566AAFC2AFB4980AEB76A9F2E2F0F1778
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +286,8 @@ magnet:?xt=urn:btih:DDEE56D566AAFC2AFB4980AEB76A9F2E2F0F1778
 magnet:?xt=urn:btih:6BED5DC7030FC9477ABF7BB0A866709CBACE6486
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +311,8 @@ magnet:?xt=urn:btih:6BED5DC7030FC9477ABF7BB0A866709CBACE6486
 ```bash
 magnet:?xt=urn:btih:275FB1A9153257E5D257D7DF8CAD15C36F52D5B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +338,8 @@ magnet:?xt=urn:btih:275FB1A9153257E5D257D7DF8CAD15C36F52D5B3
 magnet:?xt=urn:btih:51279D45BCAB36D8AD4A749BAEC73C3267C95D51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +363,8 @@ magnet:?xt=urn:btih:51279D45BCAB36D8AD4A749BAEC73C3267C95D51
 ```bash
 magnet:?xt=urn:btih:B7EBBFE7DC3F9A7D6D8FC7746D1608AF1A2C2569
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +390,8 @@ magnet:?xt=urn:btih:B7EBBFE7DC3F9A7D6D8FC7746D1608AF1A2C2569
 magnet:?xt=urn:btih:4D1D2EBC1CDEF30ED3EC770DF8F81B26B44E6681
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +415,8 @@ magnet:?xt=urn:btih:4D1D2EBC1CDEF30ED3EC770DF8F81B26B44E6681
 ```bash
 magnet:?xt=urn:btih:D16FFFB000A158EC8DEC5B44BDA064635356F819
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +442,8 @@ magnet:?xt=urn:btih:D16FFFB000A158EC8DEC5B44BDA064635356F819
 magnet:?xt=urn:btih:8E0D5CF4BBF8EF06E8882107542DA195BDD04E9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +467,8 @@ magnet:?xt=urn:btih:8E0D5CF4BBF8EF06E8882107542DA195BDD04E9C
 ```bash
 magnet:?xt=urn:btih:820E5306D28A84DBDCA5F38986059680ADB18DED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +494,8 @@ magnet:?xt=urn:btih:820E5306D28A84DBDCA5F38986059680ADB18DED
 magnet:?xt=urn:btih:8711CE2B9D1235650514E2D08434D77FC5ED70A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +519,8 @@ magnet:?xt=urn:btih:8711CE2B9D1235650514E2D08434D77FC5ED70A1
 ```bash
 magnet:?xt=urn:btih:CDA04806870D2E7068191C00F4E7B96909958620
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +547,8 @@ magnet:?xt=urn:btih:CDA04806870D2E7068191C00F4E7B96909958620
 magnet:?xt=urn:btih:A2ED16DA5FDE4ACE026537949751FC26097C004B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +572,8 @@ magnet:?xt=urn:btih:A2ED16DA5FDE4ACE026537949751FC26097C004B
 ```bash
 magnet:?xt=urn:btih:D55A5C2E254D131E02643F6631E01042716866CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +599,8 @@ magnet:?xt=urn:btih:D55A5C2E254D131E02643F6631E01042716866CB
 magnet:?xt=urn:btih:3D2D66BCD479FCE9E57FA2690ABA55F7C6C12B9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +624,8 @@ magnet:?xt=urn:btih:3D2D66BCD479FCE9E57FA2690ABA55F7C6C12B9F
 ```bash
 magnet:?xt=urn:btih:916DDF1B21332EE0E09C6A40EF2B71D0892019FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +652,36 @@ magnet:?xt=urn:btih:916DDF1B21332EE0E09C6A40EF2B71D0892019FD
 ```bash
 magnet:?xt=urn:btih:8101043F91DB15D32C45C6C93A62F58F30661B1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525802   (605230) от 22.07.2012
+
+Новые Мстители / Ultimate Avengers (2006) [H.264/720p-LQ] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605230.jpg" />
+</div>
+
+
+###  Подробнее
+
+В конце Второй Мировой войны молодой военный по имени Стив Роджерс стал частью эксперимента, благодаря которому США надеялись подавить последние очаги сопротивления нацистов на втором фронте. Результатом эксперимента стал сверхчеловек, «Капитан Америка», оставшийся Стивом Роджерсом лишь в повседневной жизни.
+
+ Но на первом же задании, атакуя секретный бункер фашистов, (   Читать дальше...   )Жанр: мультфильм, фантастика, фэнтези, боевик, приключенияРежиссер: Курт Геда, Стивен Е. Гордон, Боб РичардсонАктеры: Джастин Гросс, Грей ДеЛайл, Майкл Масси, Оливия д’Або, Марк Уорден, Нэн МакНамара, Нолан Норт, Андре Уэр, David Boat, Фред ТатаскьорПродолжительность: 01:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56EDCFFB8B93A89015B1BF9DA3F42550C37E16A0
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

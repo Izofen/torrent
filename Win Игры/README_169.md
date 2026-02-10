@@ -19,6 +19,8 @@ Amber Alert (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:F9E9E968D6AB4D806463C78EFDC5D8CDDBF55619
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Supernatural (2024) [Ru/Multi] (1.2.1) Scene FAiRLIGHT
 ```bash
 magnet:?xt=urn:btih:9DF69BCAD564087F46421E5BAEED1317C140DB0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Founders' Fortune (2020) [Ru/Multi] (1.2.8) License GOG
 magnet:?xt=urn:btih:5AE43A31924DD167E3DF84653E5F992B51368F47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Astro Looter: Survivor – настало время отправится нав
 ```bash
 magnet:?xt=urn:btih:6DBCD961DD201423C4F67522F6BFF8EED56AD3B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Antichamber – необычная головоломка, где игрок м�
 magnet:?xt=urn:btih:7971EA9D3F45597D7724F00E1C38A397DD4AE1AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Criminal Archives 4: Blade of Deceit / Криминальные архивы 4: 
 ```bash
 magnet:?xt=urn:btih:BBF7A9ADA5FE817176A253A4BB6B39499C37F01A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Yuppie Psycho (2019) [Ru/Multi] (2.7.5) License GOG [Executive Edition]
 magnet:?xt=urn:btih:D7ECC51E78AF0177D34F146A4564C14435548702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Anger Foot - это молниеносная хардбасс-игра, где �
 ```bash
 magnet:?xt=urn:btih:8DA59948F6FBBE4C520F3D1D1B3F0F4CD7631AA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ KAKU: Ancient Seal предлагает стать на место Каку, г�
 magnet:?xt=urn:btih:3BDAEDE317AFADA077A71685D8522F2006AC8EDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Layers of Fear 2 призвана продолжить традиции по в�
 ```bash
 magnet:?xt=urn:btih:6E21F05B28350BF4E15B1BA4809176B871DA6290
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Layers of Fear (2023) [Ru/Multi] (1.6.1/dlc) License GOG [Deluxe Edition]
 magnet:?xt=urn:btih:3A4762B82EEE5070EE4DF22606D554433725A596
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ System Shock - это полноценный ремейк хита 1994 года
 ```bash
 magnet:?xt=urn:btih:62C689B3E0F4A9310AF8CB3EC2517C8A47D5A08D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ KAKU: Ancient Seal предлагает стать на место Каку, г�
 magnet:?xt=urn:btih:111131ACE2477704C73B0060B5818E2A95116669
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Madhouse Madness: Streamer's Fate (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:07E989D2BE1B05947B7880A14CD79F6BCB2A374B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Metal Gear Rising: Revengeance – сюжетное ответвление от 
 magnet:?xt=urn:btih:EC60834440B064362CED030F50FC7B0824E487D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Dark Envoy объединяет классическую механику RPG с
 ```bash
 magnet:?xt=urn:btih:C99B22F76BA99A50C371B50F64769F41EECAA32E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Last Alchemist погружает в мир, где сталкиваются
 magnet:?xt=urn:btih:CA0C3DF4FE6E6F8007D6FD537BC050535A88BFDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Marvel’s Spider-Man: Miles Morales (2022) [Ru/Multi] (3.617.1.0/dlc) Repack We
 ```bash
 magnet:?xt=urn:btih:80CF61A1DE946055B4954DED5FD2ABAE86018AA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Daymare: 1994 Sandcastle - это сюжетный хоррор от треть�
 magnet:?xt=urn:btih:25392B818F5B0B0A215A03106E16175810574D13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Station to Station - это романтический и минималисти
 ```bash
 magnet:?xt=urn:btih:4C16F271FBFB7CE2F6FB4F1CB881D8AF3E556881
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Anomaly Collapse - это увлекательная игра, в которой
 magnet:?xt=urn:btih:D4C53FF4161A47A378B0E970A50FD4605DF0ABB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Heirs – на самом деле наследство может быть ра
 ```bash
 magnet:?xt=urn:btih:9B3CB9B3DBFC7DD4CDB08BEF7EA02A97B9E6CAF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Apocalypse Party - 3D-рогалик с видом сверху вниз, дей
 magnet:?xt=urn:btih:054F543B7B889FEED22EBB2DD3E7165BE7BD1F39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Barn Finders – это симулятор поиска "сокровищ" в г
 ```bash
 magnet:?xt=urn:btih:FB2277E3799D401276062750A5069E1ED557928B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ GTA: Vice City - Definitive Edition - переиздание культовой 
 magnet:?xt=urn:btih:4052031C479B23E5DC34395352A828AD7FE7E97A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ GTA 3 - Definitive Edition - ремастер культового экшна о
 ```bash
 magnet:?xt=urn:btih:4594BEEBE9522BCB4D02BE267466DB2BC8C4C6C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

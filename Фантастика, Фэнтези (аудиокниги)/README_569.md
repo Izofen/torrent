@@ -1,3 +1,29 @@
+###  Публикация: 1846466   (1051502) от 08.01.2026
+
+Ария Атлас | Совет тёмных домов (Книга 2). Верховенство мёртвых теней (2025) [MP3, Марина Тропина]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захватывающее окончание дилогии Арии Атлас! Внутри книги вас ждут: соулмейты, некромантия, путешествие между мирами, темная магия и тайное магическое общество! Мора Эрналин скрывает правду ото всех, даже от своего возлюбленного Ратбоуна. Она продолжает слышать Империальную звезду. Ответив однажды на ее зов, Мора встречает мага, который предлагает вернуть мать девушки (   Читать дальше...   )Жанр: Фэнтези, МистикаИздательство: FreedomПродолжительность: 12:36:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32ADEB87344479D82492FA39BF8D7D9990948F51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846532   (1051510) от 08.01.2026
 
 Вадим Панов | Тайный город (Книга 39). Быстрые перемены (2025) [MP3, Евгений Бабинцев]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:DE1E21B879D8E2268BC14C7B8B584246ED88DF9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:DE1E21B879D8E2268BC14C7B8B584246ED88DF9A
 magnet:?xt=urn:btih:E5F32070189D23ABFAFD6923EEBD0CE13636A20D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:E5F32070189D23ABFAFD6923EEBD0CE13636A20D
 ```bash
 magnet:?xt=urn:btih:E72AA859EBF0DE7A8E79ECB16EFF5AAFE6F38BC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:E72AA859EBF0DE7A8E79ECB16EFF5AAFE6F38BC5
 magnet:?xt=urn:btih:5E5B1F972E1C1D7E3DDD39F44ADC97323E76F64D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:5E5B1F972E1C1D7E3DDD39F44ADC97323E76F64D
 ```bash
 magnet:?xt=urn:btih:0CC52EF3597D404881189BDE57DE9C6B6C60A8EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:0CC52EF3597D404881189BDE57DE9C6B6C60A8EF
 magnet:?xt=urn:btih:B47BAFA01351333CF90B04E4FE37BFEE7AD6BF6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:B47BAFA01351333CF90B04E4FE37BFEE7AD6BF6A
 ```bash
 magnet:?xt=urn:btih:EAC009602126D05211C16B459863180FCB737A0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:EAC009602126D05211C16B459863180FCB737A0F
 magnet:?xt=urn:btih:686E9A8E5BBB4A31DFF8C40350FE434B53684C6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:686E9A8E5BBB4A31DFF8C40350FE434B53684C6C
 ```bash
 magnet:?xt=urn:btih:20B1833191BBCA25F12A8358719E08BF568FFE9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:20B1833191BBCA25F12A8358719E08BF568FFE9F
 magnet:?xt=urn:btih:D9F44C16E6F25FA8EEC21381268BECB049846A60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:D9F44C16E6F25FA8EEC21381268BECB049846A60
 ```bash
 magnet:?xt=urn:btih:34CE82FC2EB6BE58BFDAB01EF662413A81020B0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:34CE82FC2EB6BE58BFDAB01EF662413A81020B0C
 magnet:?xt=urn:btih:101BDBC4F365018837F966DEC7582DC9ABBE45E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:101BDBC4F365018837F966DEC7582DC9ABBE45E0
 ```bash
 magnet:?xt=urn:btih:E961644BDAB1476B6BB79A58D2FFFD0051D07285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:E961644BDAB1476B6BB79A58D2FFFD0051D07285
 magnet:?xt=urn:btih:1998BED954075718A6BFE2F6DD4BD3E40D410293
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:1998BED954075718A6BFE2F6DD4BD3E40D410293
 ```bash
 magnet:?xt=urn:btih:16480C899DBC65EEFC15E1B2E51657AE486AC792
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:16480C899DBC65EEFC15E1B2E51657AE486AC792
 magnet:?xt=urn:btih:A55DC684ECC3915AA62EBCF731EFC5B1CAE6789D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:A55DC684ECC3915AA62EBCF731EFC5B1CAE6789D
 ```bash
 magnet:?xt=urn:btih:36E41FCDF3B2D7370D91B0A1B45F4876F00B834B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:36E41FCDF3B2D7370D91B0A1B45F4876F00B834B
 magnet:?xt=urn:btih:2659C6DFFE1BE462CD64A4A35DDFBCF9AEEDB20B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:2659C6DFFE1BE462CD64A4A35DDFBCF9AEEDB20B
 ```bash
 magnet:?xt=urn:btih:4C9E082230DD911FD78DDFD377DEC5AEC9EC939D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:4C9E082230DD911FD78DDFD377DEC5AEC9EC939D
 magnet:?xt=urn:btih:11B862313EB03E1479E8179F851E8C9BA8149DB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +580,8 @@ magnet:?xt=urn:btih:11B862313EB03E1479E8179F851E8C9BA8149DB7
 ```bash
 magnet:?xt=urn:btih:AD7A7C7F24DA2178AF57D7080C600DFB79DCA157
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +610,8 @@ magnet:?xt=urn:btih:AD7A7C7F24DA2178AF57D7080C600DFB79DCA157
 magnet:?xt=urn:btih:E2E2E3B3742C6EAB69DCE9A7DB9C069159155A3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +635,8 @@ magnet:?xt=urn:btih:E2E2E3B3742C6EAB69DCE9A7DB9C069159155A3B
 ```bash
 magnet:?xt=urn:btih:B5621C4581813766A4C111E7B76390047B564F06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +662,8 @@ magnet:?xt=urn:btih:B5621C4581813766A4C111E7B76390047B564F06
 magnet:?xt=urn:btih:EE822936513DD876BE13767F9E1F73E03CA7DAC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,29 +688,7 @@ magnet:?xt=urn:btih:EE822936513DD876BE13767F9E1F73E03CA7DAC5
 magnet:?xt=urn:btih:0DCDB6E7E06C2A0CF1BF16CA46900C4723961EE4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847203   (1051888) от 11.01.2026
-
-Григорий Володин | История Телепата. Газлайтер (Книги 1-21) (2023-2025) [MP3, Никита Петров, Данила Максимов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл «История Телепата» Григория Володина, жанр попаданцы в магические миры, бояръ-аниме, альтернативная история. Мир необозримо большой, людей в нем бесконечно много, но каждый для меня как открытая книга. Ибо я сильнейший телепат. И это моя история. Говорят, что телепаты жестоки. Говорят, что телепаты обесценивают чужую волю и искажают сознания. Говорят, что телепаты (   Читать дальше...   )Жанр: Фантастика, попаданцыИздательство: ИДДКПродолжительность: 187:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CAEFF20632AA2AA71CEF5473F3289E33FC2C595
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

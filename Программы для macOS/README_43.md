@@ -19,6 +19,8 @@ SmallCubed MailSuite 2019.0.1 [Multi]
 magnet:?xt=urn:btih:CE737BD40013BE3E152A06CAF523172A7CFDA460
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MacBooster поможет настроить и ускорить работу ma
 ```bash
 magnet:?xt=urn:btih:76BBEAEF3A9DB0FB35B0C87AEEA05FD191FC2AEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Metadatics предоставляет возможности поиска мет
 magnet:?xt=urn:btih:D75F88AFDFFD3A6AAB19FECA6269E2EB89F97E23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Affinity Publisher 2 v.2.0.3 beta [Multi]
 magnet:?xt=urn:btih:FC37DE08C013F8FC12FB15FBA47BA479451E9F4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Affinity Photo переопределяет границы профессион�
 ```bash
 magnet:?xt=urn:btih:E1DE40B811FCE2255C04586534EF3774A7776514
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Affinity Designer — самое быстрое, удобное и точное 
 magnet:?xt=urn:btih:1FA386143B1C4026CF9B98B4062E94B13E0B115E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ BetterTouchTool удобное приложение, которое позвол
 magnet:?xt=urn:btih:D28F830F63DFF48458F5E34AC24199AEA1771F95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ ProFind 1.18.0 [En]
 ```bash
 magnet:?xt=urn:btih:DDC42DF0E52266DA9F857B4D99D853A9A02AEBFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ beaTunes анализирует музыкальные композиции, о�
 magnet:?xt=urn:btih:228729BA743FDF391DC166FF692CCB9BFE8E802F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ bliss for Mac 20230927 U2B Intel/ARM [En]
 magnet:?xt=urn:btih:B3F5C9946C4E98D3D2DE7F1B67491C9A3188924E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Loop Mash Up - Music Maker for Mac 1.2.12 [En]
 magnet:?xt=urn:btih:F4ADC3464EC04AAAC48A9632F319B82104C99898
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ MacX DVD Ripper Pro 6 был создан специально для польз
 ```bash
 magnet:?xt=urn:btih:ECB3E00D155C619E88663EE777059CB8900A24FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Manico 2.10.1 [En]
 magnet:?xt=urn:btih:923695F89B6AB900A29AECF04E4973A2B5378649
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ Picture Instruments Mask Integrator 2.0.10 fix [En]
 magnet:?xt=urn:btih:0BD8E8F30298DC9B6A6C0C26680F8B13A76E9C2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ White Noise включает в себя 50 треков окружающей с
 ```bash
 magnet:?xt=urn:btih:BD3BB88C9F7165F2E60B4A06F27506B725E943B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ Usher - Отличное средство для создания и веден�
 magnet:?xt=urn:btih:2FC16B7E396C89D6B4DA8170F88E42DEFF3799F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ Mac DVDRipper Pro 10.0.3 [En]
 magnet:?xt=urn:btih:6E596A8F06045E6DFAFA446DF306CD8787F16D5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ Exhibeo 2 - Создайте великолепные HTML5 презентаци
 ```bash
 magnet:?xt=urn:btih:C9AE4B17309CC7CBBF538C4BF286C142C8F1F9B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Duplicate File Finder - утилита, которая находит дубли
 magnet:?xt=urn:btih:10D06219FA2C4304BC0A2A59952EC7C010774A37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ ABBYY Lingvo European Dictionary 1.12.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A42333FF8C45394FDDDE94B4BC824B1BD08DB1C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ Disk Space Analyzer Pro ранее как Disk Expert - приложение п�
 magnet:?xt=urn:btih:634900C94B7146E59C5550443E4727812ADD4B4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ Audiobook Builder 2 v.2.2.7 [Multi/Ru]
 magnet:?xt=urn:btih:A74F1F0202377B699D0A8D46125972397EB5FBDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ WidsMob AI Retoucher — это универсальный фоторедакт�
 ```bash
 magnet:?xt=urn:btih:287569C08BC232C9FB0196D8FF704245666A5D8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ Luminar Neo 1.15.0 [Multi]
 magnet:?xt=urn:btih:B6C90D98A7F212D84CD28B291BE28DF062967815
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ Cisdem DVD Burner предлагает простое и элегантное р
 ```bash
 magnet:?xt=urn:btih:D1E99D4A425D36A2DF0E9A46C942A9FECD220227
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +684,8 @@ Downie поддерживает более 1,000 популярных сайто
 ```bash
 magnet:?xt=urn:btih:5B086E078E1917156D46759658FE2FC4266BA4B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

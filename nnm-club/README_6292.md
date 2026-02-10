@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:199563194816D5D1D84759BC309221A1CA14B8F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Rotten Tongue - Sacrificial Ideation (2022) [FLAC|Lossless|WEB-DL|tracks] <Black
 magnet:?xt=urn:btih:FB49AC1D36C31DF5A4849C47410120D292EA2A87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:FB49AC1D36C31DF5A4849C47410120D292EA2A87
 magnet:?xt=urn:btih:7D25F7A90A7BA92EB1110C59448D33AD43B145EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ MotoGP. Этап 11. Гран-при Каталонии. Гонка (03.09.2023)
 ```bash
 magnet:?xt=urn:btih:93907274FDAF0820DDF4C5015A8A31191F1E0413
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Far Beyond - The Moment Of Creation (2023) [FLAC|Lossless|WEB-DL|tracks] <Sympho
 magnet:?xt=urn:btih:CFD05AF2A924901AD14EA5CB7261C13667BA7141
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:CFD05AF2A924901AD14EA5CB7261C13667BA7141
 ```bash
 magnet:?xt=urn:btih:BE1E22D2567E5DD73184A15C477623D603135914
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:BE1E22D2567E5DD73184A15C477623D603135914
 magnet:?xt=urn:btih:58C358C0247EC97A06A3A2F3B29BBF5CF373851B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ ChernobyLite (2021) [Ru/Multi] (48723/dlc) Repack Other s [Enhanced Edition]
 ```bash
 magnet:?xt=urn:btih:7431BEBE9BB0B8C978CD178FA39215BA4D882024
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Bitter Breath - Oh How Carefully We Collapse (2023) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:F6878C95773F88F3DE74D58A134AF8A93D669EC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:F6878C95773F88F3DE74D58A134AF8A93D669EC7
 ```bash
 magnet:?xt=urn:btih:59C8FF6BAB8D67F50FEDFB17C41F5632D9893759
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:59C8FF6BAB8D67F50FEDFB17C41F5632D9893759
 magnet:?xt=urn:btih:1362142A98CD14B179178F6F24D4A910C008DF6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Text Editor Pro 27.5.1 + Portable + Bonus [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CFEA63580E338BFC3846DC25BCBA65B99D099E60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ Jag Panzer - Thane to the Throne (2000) [FLAC|Lossless|image + .cue] <Heavy, Pow
 magnet:?xt=urn:btih:7AAE6DA5139343CEC1EF968DAADA8E375E3AC892
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ BELOFF 2022.10 (Авторская раздача)
 magnet:?xt=urn:btih:C825DFA23F560FB03B855C3B53018EDFC28E64EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ YouTube Vanced (Extended) - это неофициальное продолжен
 ```bash
 magnet:?xt=urn:btih:E5F91BA31783E5A6B418C6FC45F0897C3064B9F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ Firewind - Still Raging (2023) 2CD 20th Anniversary Show [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:5FE237B56597009CC9328B1A83A6501051F3B931
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ CrystalDiskMark - утилита для сравнительного анали�
 ```bash
 magnet:?xt=urn:btih:9CC80C79B0894855B8EBB285FEA61A5169BD390E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:9CC80C79B0894855B8EBB285FEA61A5169BD390E
 magnet:?xt=urn:btih:2D49C3D45AB829D8289C5A59F738190457496C18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ Fernando Express - Der schonste Tanz mit dir (2023) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:DFF3BCAC314BEF03FF688DCDB8FDCD60F0E2DDD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:DFF3BCAC314BEF03FF688DCDB8FDCD60F0E2DDD9
 ```bash
 magnet:?xt=urn:btih:216AE22222508F9A6DE06F0763616563464E4A72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:216AE22222508F9A6DE06F0763616563464E4A72
 magnet:?xt=urn:btih:5D12E3D70F569F58D88C091B661400FFD9C9D25E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:5D12E3D70F569F58D88C091B661400FFD9C9D25E
 ```bash
 magnet:?xt=urn:btih:D38C7B1AED580F9977E07F4DD4A692070320ED20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ Lingua Mortis Orchestra - LMO (2013) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symph
 magnet:?xt=urn:btih:12C3A8194433F5153129A7C321C087E5142BB8CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +644,8 @@ magnet:?xt=urn:btih:12C3A8194433F5153129A7C321C087E5142BB8CF
 ```bash
 magnet:?xt=urn:btih:C69A1C7A439A618FF8D901761BA0430FFC80682E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ Mr. Myst - 7 Deadly Sins (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock>
 magnet:?xt=urn:btih:2EC3A67BF2E97D239A0F10D72DFC7E7B88E26E7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:2EC3A67BF2E97D239A0F10D72DFC7E7B88E26E7D
 ```bash
 magnet:?xt=urn:btih:F47277CD6CA8A194B615964C40E808ECCC65E2F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

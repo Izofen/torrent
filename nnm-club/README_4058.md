@@ -22,6 +22,8 @@ The Kenny Clarke-Francy Boland Big Band - Latin Kaleidoscope, Cuban Fever (1968)
 magnet:?xt=urn:btih:694338F5AC18071A3B5F74BA26DC2C83B34228ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Gerry Mulligan - Four Classic Albums (1956 - 1960) 2CD, 2011, Avid Jazz [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:F43035CDA3E0611257655605582A219372D0134D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Boney James - Soulful Holiday Sax (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth J
 magnet:?xt=urn:btih:B486C787130A3F61D7B8A73E3036CC69362BA417
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Laurent de Wilde Trio - Life Is A Movie (2023) Gazebo [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:DC35047B627C293E75005FE027205A42875C9220
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ The Wayne Riker Gathering - Alphabetical Blues Bash, Vol. 2 (2023) [FLAC|Lossles
 magnet:?xt=urn:btih:C10C7EF4A9B3D2D92D09176A6E31FCAB6EB88AB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ magnet:?xt=urn:btih:C10C7EF4A9B3D2D92D09176A6E31FCAB6EB88AB2
 magnet:?xt=urn:btih:8C5E7F80B31CDD30D3C073652EE968E0F7083A19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:8C5E7F80B31CDD30D3C073652EE968E0F7083A19
 ```bash
 magnet:?xt=urn:btih:4EF25C925B8FED258A6713B08DC09A3E36D63F3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -206,6 +220,8 @@ Borgne - Y (2020) [FLAC|Lossless|tracks + .cue] <Industrial Black Metal>
 magnet:?xt=urn:btih:DAC550DD69E307DF78FBB11D1B52E64415A227C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -230,6 +246,8 @@ magnet:?xt=urn:btih:DAC550DD69E307DF78FBB11D1B52E64415A227C3
 ```bash
 magnet:?xt=urn:btih:06771652CB7180E02976727ECB8C9735B145885D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +275,8 @@ magnet:?xt=urn:btih:06771652CB7180E02976727ECB8C9735B145885D
 magnet:?xt=urn:btih:AE871A99E51C071CB2889C075F6A62E8F36C8E3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +301,8 @@ magnet:?xt=urn:btih:AE871A99E51C071CB2889C075F6A62E8F36C8E3C
 ```bash
 magnet:?xt=urn:btih:2A88A383386696582BD6B2CBE4D52FBFF70096DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +331,8 @@ Jerusalem - Stygn (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:04B0627EDDF82002974F174369CCFF9BA509261E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +359,8 @@ Jerusalem - Stygn (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:44A7235674259CCA700D30519C81FC98CB0268AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +389,8 @@ The Tamaracks - Fool Me Once (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blue
 magnet:?xt=urn:btih:F40D3211F9F9D4EE09B4771C377401A48BDA4392
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +417,8 @@ Borgne - [∞] (2018) [FLAC|Lossless|WEB-DL|tracks] <Industrial Black Metal>
 ```bash
 magnet:?xt=urn:btih:5B3D6BB0082447521E762745876B452E2F2E5E60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +447,8 @@ The Goosebumps Bros. - 21 Days (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:054052582DE88F8361B99007F663E6297BC4F028
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +476,8 @@ Taylor Newville and the Riders - Let the Good Times Begin (2023) [FLAC|Lossless|
 magnet:?xt=urn:btih:04BCFC34CC65243D29DC46A8735D781B845F476B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +501,8 @@ EarthView — это динамические обои для рабочего �
 ```bash
 magnet:?xt=urn:btih:B5DB1745CEA1437CF45ECE41E67AB0F4C182EC7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +528,8 @@ magnet:?xt=urn:btih:B5DB1745CEA1437CF45ECE41E67AB0F4C182EC7B
 magnet:?xt=urn:btih:AD39B53ADB4DF219A62C2F02C6A136815B7B2320
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +554,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 magnet:?xt=urn:btih:03FD917389E2B010159B07A1F5114114E6F832FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +579,8 @@ magnet:?xt=urn:btih:03FD917389E2B010159B07A1F5114114E6F832FD
 ```bash
 magnet:?xt=urn:btih:BF30F9E3D7AA656B452BC529E7EA572543EABCEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +607,8 @@ magnet:?xt=urn:btih:BF30F9E3D7AA656B452BC529E7EA572543EABCEF
 magnet:?xt=urn:btih:045DA1EEFFFF9534A8B9582828DDFED3C05A7F7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +632,8 @@ magnet:?xt=urn:btih:045DA1EEFFFF9534A8B9582828DDFED3C05A7F7E
 ```bash
 magnet:?xt=urn:btih:AFE34D8391CB4CE6D1B777047BB4B706C2E29769
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +659,8 @@ magnet:?xt=urn:btih:AFE34D8391CB4CE6D1B777047BB4B706C2E29769
 magnet:?xt=urn:btih:E86C6CFC1D10AEDF03CCBFDB0F3246B60590AB97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +684,8 @@ magnet:?xt=urn:btih:E86C6CFC1D10AEDF03CCBFDB0F3246B60590AB97
 ```bash
 magnet:?xt=urn:btih:5539F6C7A7140125C41C60560D3A5BC737F25F2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -662,6 +712,8 @@ magnet:?xt=urn:btih:5539F6C7A7140125C41C60560D3A5BC737F25F2A
 ```bash
 magnet:?xt=urn:btih:9C885E31C595E8E66D383C92264274BA993D3C49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

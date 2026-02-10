@@ -1,3 +1,29 @@
+###  Публикация: 1462189   (1021292) от 13.04.2021
+
+Верхняя точка (2021) IPTVRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утром 12 апреля 1961 года руководители стартовой команды на Байконуре услышали такие слова: "Заря-1, я - Кедр. Вижу Землю! Вижу округлый горизонт, у Земли красивый голубой ореол". Люди давно живут в космосе, в большом Доме, который называется планета Земля, но только шесть десятилетий назад мы стали настоящими хозяевами этого Дома, потому что получили возможность (   Читать дальше...   )Производство: Россия / ИП Истратов А.В.Жанр: Документальный, космосРежиссер: Андрей ИстратовЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51FD3CA87C59FAD486AD8F1554DB9F24E7C03DCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462294   (1021307) от 13.04.2021
 
 Прогулка по Москве / Tour of Moscow (2013) HDTV [H.264/1080i]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:7406375348A01B1D774141B6C8D209946E51A259
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:7406375348A01B1D774141B6C8D209946E51A259
 magnet:?xt=urn:btih:7323856053CB352F7FE884B0FE815902E9C5691E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:7323856053CB352F7FE884B0FE815902E9C5691E
 ```bash
 magnet:?xt=urn:btih:B398FA53764E67EF0AE92D31A7DF7E92F0442EA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:B398FA53764E67EF0AE92D31A7DF7E92F0442EA7
 magnet:?xt=urn:btih:9F7DA9DDAB80019B31006DF3E4918A262B3D68A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:9F7DA9DDAB80019B31006DF3E4918A262B3D68A4
 ```bash
 magnet:?xt=urn:btih:FDB2A1EB8F7C95F23BF19579576DD75761B6D31A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:FDB2A1EB8F7C95F23BF19579576DD75761B6D31A
 magnet:?xt=urn:btih:CF1C705172EFC6A0FF7322128964619CE773CABA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:CF1C705172EFC6A0FF7322128964619CE773CABA
 ```bash
 magnet:?xt=urn:btih:AA8CF0D5BE6FF577A14132AB4B5E7A1D7B649054
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:AA8CF0D5BE6FF577A14132AB4B5E7A1D7B649054
 magnet:?xt=urn:btih:2D900EAE871DB7166FBF799453F1402C9D386030
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:2D900EAE871DB7166FBF799453F1402C9D386030
 ```bash
 magnet:?xt=urn:btih:22867DA1D0EEC555BBD8269A5387457D1EAC3989
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:22867DA1D0EEC555BBD8269A5387457D1EAC3989
 magnet:?xt=urn:btih:6595301505CD91FAF34AF9F666D38115473A9ED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:6595301505CD91FAF34AF9F666D38115473A9ED3
 ```bash
 magnet:?xt=urn:btih:CD440A45CBB9BDF1B6B29AFA82AEFE416FF7D1C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:CD440A45CBB9BDF1B6B29AFA82AEFE416FF7D1C3
 magnet:?xt=urn:btih:371FC6485CC0FD3F5E866E1B54C12E2858315BE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:371FC6485CC0FD3F5E866E1B54C12E2858315BE7
 ```bash
 magnet:?xt=urn:btih:BB40802A249B71034A63113E739A9C446D51E2E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:BB40802A249B71034A63113E739A9C446D51E2E0
 magnet:?xt=urn:btih:7342640BFEA3826440622BC29CDFC99B444560E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:7342640BFEA3826440622BC29CDFC99B444560E8
 ```bash
 magnet:?xt=urn:btih:8ACE9DCCF349BE1D0DB7C989E244958B12F338E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:8ACE9DCCF349BE1D0DB7C989E244958B12F338E3
 magnet:?xt=urn:btih:C6C51D2F092609C159D605600EB6C84AA8A86028
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:C6C51D2F092609C159D605600EB6C84AA8A86028
 ```bash
 magnet:?xt=urn:btih:A0EB42A9AC2D43FDB26A57B3624107EB5E2F97DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:A0EB42A9AC2D43FDB26A57B3624107EB5E2F97DF
 magnet:?xt=urn:btih:5BC6729B81A2B613D80C81BD91AA8386EB37B2C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:5BC6729B81A2B613D80C81BD91AA8386EB37B2C6
 ```bash
 magnet:?xt=urn:btih:7A41ECAE74CCE6F58CD323DDB3237DF5F57AF240
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:7A41ECAE74CCE6F58CD323DDB3237DF5F57AF240
 magnet:?xt=urn:btih:144484D9A0366BE31D60B3FEA7EE0B3CBEF34717
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +567,8 @@ magnet:?xt=urn:btih:144484D9A0366BE31D60B3FEA7EE0B3CBEF34717
 ```bash
 magnet:?xt=urn:btih:478F7AB27E189EBC79646D4BEEB8A9D8193C07DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:478F7AB27E189EBC79646D4BEEB8A9D8193C07DB
 magnet:?xt=urn:btih:B94C1A6158E2995B3957CC8AC06BCC5DAB1311EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:B94C1A6158E2995B3957CC8AC06BCC5DAB1311EC
 ```bash
 magnet:?xt=urn:btih:3202491EA14604B68C3B0A25ED19F41F7B77C136
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:3202491EA14604B68C3B0A25ED19F41F7B77C136
 magnet:?xt=urn:btih:7E540D6182B74A03D5DC86F32AB4A882D101EADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:7E540D6182B74A03D5DC86F32AB4A882D101EADF
 magnet:?xt=urn:btih:9AA3114A31DD4FE4E69D7489A52BFF7A28234FB9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461540   (1021812) от 10.04.2021
-
-Живая еда с Сергеем Малозёмовым (10.04.2021) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действительно ли  микроволновка делает пищу вредной? Какие блюда готовятся в микроволновке намного быстрее и проще? И заметна ли разница во вкусе? Как креветки влияют на здоровье людей? Можно ли приготовить их так, чтобы было необычно вкусно и полезно? Гречка: обычная vs зеленая. Чем они отличаются и в какой больше пользы? Рецепт недели: свекольный кекс с вишней.Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03F1D1FED514A863A16AA6529149693A2BB8638F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

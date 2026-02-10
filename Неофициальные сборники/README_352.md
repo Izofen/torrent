@@ -1,3 +1,29 @@
+###  Публикация: 357916   (586286) от 02.07.2011
+
+VA - Новинки Года 6 (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:13:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4D76A4DE92DAD9AC6640EDA9EBF8EAA50AF2339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040489   (586316) от 05.08.2016
 
 VA - Weekend Forever Summer Control (2016) [MP3|258-320 Kbps] <Club, Funky, Tropical, UK Garage, Electro>
@@ -21,6 +47,8 @@ VA - Weekend Forever Summer Control (2016) [MP3|258-320 Kbps] <Club, Funky, Trop
 ```bash
 magnet:?xt=urn:btih:5D5F4FB47D15053EC7E1D654625DE662FD26DF18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +77,8 @@ Bad Boys Blue - Hit Collection (2016) [MP3|320 Kbps] <Disco, Pop, Eurodance>
 magnet:?xt=urn:btih:8D52B374643A51FF816B8B61A175E310DB9983E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +102,8 @@ VA - Танцевальное искушение Vol.5 (2011) [MP3|256 kbps]<Pop
 ```bash
 magnet:?xt=urn:btih:2CA55F13602BAB918FD5D8FE706567DB8E5C6CB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +129,8 @@ VA - Лучшая Пляжная Туса на 5+ (2011) [MP3|256 kbps]<Pop>
 magnet:?xt=urn:btih:4BCDB423CB1E3E0B1E239CDE29DAC100239B7CB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +154,8 @@ VA - Полный Вперед На Русском Радио №4 (2011) [MP3|2
 ```bash
 magnet:?xt=urn:btih:D7F072C4CF463441410A074462FC0F2D6D255529
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +184,8 @@ VA - Путёвый Хит (2016) [MP3|256 Kbps] <Шансон>
 magnet:?xt=urn:btih:1975C3CF401E42ED97FA6912DCC4C0096A85925A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +212,8 @@ Dire Straits - 25 Best Songs (2014) [MP3|~245 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:AF8CAEDBFF3676E5260B283A04C0FE0CDFD9B6B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +242,8 @@ Madonna - 25 Best Songs (2014) [MP3|~245 кб/с]<Pop>
 magnet:?xt=urn:btih:8D8DF397482B7F9B9CBCF23EB39AF78BBD404CF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +270,8 @@ VA - Futuretrance (2016) [MP3|320 Kbps] <Trance, Future Trance, Progressive>
 ```bash
 magnet:?xt=urn:btih:D233D835FC1641D9E87F95BACD84CEFD7E2A5167
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +300,8 @@ VA - Urban Glow: May Release Trance Set (2022) [MP3|320 Kbps] <Trance, Progressi
 magnet:?xt=urn:btih:0622455F64770CA2111AC0476688CDD98516BFCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +328,8 @@ VA - 100 Best Rock Ballads (2015) [MP3|256 кб/с]<Rock, Ballads>
 ```bash
 magnet:?xt=urn:btih:BCDA89BB03F123182FB9E42F1751C8091E249E07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +358,8 @@ VA - I Prefer Rock (2022) [MP3|320 Kbps] <Rock, Alternative, Indie>
 magnet:?xt=urn:btih:917EF626C41CD85A6792EA9F0689216BE477530D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +386,8 @@ Aria - The Best Of Aria (2019) [MP3|320 Kbps] <Classical, Classical Crossover>
 ```bash
 magnet:?xt=urn:btih:D03CB58F2FC8416ECD8BEA567C2A23225A72388B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +416,8 @@ VA - Laidback Acoustic (2022) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:DE92482DC2899349036705357F8FF4C00317BC21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +444,8 @@ VA - Music News vol.189 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:FA6D2481AF1C030667AD5E85B9B0A4A217278AAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +474,8 @@ Alexandr Misko - Roundtrip (2019) [MP3|320 Kbps] <Fingerstyle, Guitar>
 magnet:?xt=urn:btih:D20C8BAB56B8C3C2D517B39A1C8EBD2FD6B55C88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +502,8 @@ VA - Ваши любимые песни от радио Шансон Часть 
 ```bash
 magnet:?xt=urn:btih:15C074CEF7BCBF7670744BC08508AC39638E401D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +532,8 @@ VA - Options Remake 150 Tracks - JULY (2016) [MP3|320 Kbps] <House, Progressive,
 magnet:?xt=urn:btih:6E3100E8A1EB9DD1024492F384E257A8E2427480
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +560,8 @@ VA - Дискотека 80-90 х По-Новому Зарубежный выпу
 ```bash
 magnet:?xt=urn:btih:A0B04C2AF16E42376E41EF3A399C125FADC00DED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +590,8 @@ VA - Хитовые Летние Песни 7 (2016) [MP3|256 Kbps] <Поп, Dan
 magnet:?xt=urn:btih:CE35B3F6F64BFBE611338A31D32665F6071D149B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +618,8 @@ VA - Танцевальный Рай - Disco Remix (2016) [MP3|320 Kbps] <Disco,
 ```bash
 magnet:?xt=urn:btih:6A83C94D158DCC14E8942B2C5D61980C88CBABD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +648,8 @@ VA - 90s Club Mix XXL Vol.1 (2016) [MP3|256 Kbps] <Eurodance, House, Techno>
 magnet:?xt=urn:btih:87825C5E25C9B3BABE91EC21B6735DA2A7CC6655
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +676,8 @@ VA - New Music Releases Week 18 (2019) [MP3|320 Kbps] <Pop, Hip Hop, RnB, Dance>
 ```bash
 magnet:?xt=urn:btih:79279F07011341FB443577E860945A701556DB68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +706,8 @@ VA - Летний Хит-Релиз. Русский Сборник (2016) [MP3|2
 magnet:?xt=urn:btih:3A18A5494AE027802172D4C792F725DF85596E11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,32 +735,7 @@ VA - Bass Killer 7 (2016) [MP3|320 Kbps] <Dubstep, Drum and Bass, Electro House,
 magnet:?xt=urn:btih:73356C6A52223B60348556128DE3154C9CC71571
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040129   (587425) от 04.08.2016
-
-VA - Самые сливки дискотек №7 (2016) [MP3|192-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587425.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Татьяна Котова - Танцуй
-002. Славво - Вуй Аман Аман
-003. Алена Roxis - Лучшие Друзья
-004. David - Знай (Version 2016)(   Читать дальше...   )Жанр: PopПродолжительность: 05:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7443088144C7622DCB595CEBAE0D6C791E55A347
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

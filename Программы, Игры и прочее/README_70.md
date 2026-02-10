@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D01AF8FE7D711BE654220D9A955AF48D3CA345F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Measure Map - это приложение, поддерживающее каль
 ```bash
 magnet:?xt=urn:btih:E3AFC5EBD1A01A7B3015F765125EC03780FD7BAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:E3AFC5EBD1A01A7B3015F765125EC03780FD7BAE
 magnet:?xt=urn:btih:D2AE04FBBE659E610FF1825E58D382F47B61F64A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:F2510A61667AF32075FFF9CF37B16C44A10E3D31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:F2510A61667AF32075FFF9CF37B16C44A10E3D31
 magnet:?xt=urn:btih:DF983FF1F6148D6549B33186C696B1863D5D924D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Enhance it v4.1.7 Mod by derrin [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C1018D3B30B908C4BD0B5C0949A7D5CC2D9D2385
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:C1018D3B30B908C4BD0B5C0949A7D5CC2D9D2385
 magnet:?xt=urn:btih:62FC3820DDFC90AD63903E0304BEF12E08F895B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:62FC3820DDFC90AD63903E0304BEF12E08F895B8
 ```bash
 magnet:?xt=urn:btih:7730AD301C0F9A11A33556ADF18F655A9EF34C3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ SnapEdit — одно из лучших приложений для редакт
 magnet:?xt=urn:btih:76EFDB03ACDE769939AB05064F1A56E14BCC503A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:76EFDB03ACDE769939AB05064F1A56E14BCC503A
 ```bash
 magnet:?xt=urn:btih:C6C9B1A117A6425B87A45C4E57F5EC3CBF32FB0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:C6C9B1A117A6425B87A45C4E57F5EC3CBF32FB0D
 magnet:?xt=urn:btih:4D21AF31D202B86E19D7A0C04FCD2F4AEA8AE3DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ AndroVid Pro представляет собой простой и удобны�
 magnet:?xt=urn:btih:ACBCBB6E02BBA32786C2E48EB741422197F0A444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ PowerDirector – Video Editor v12.6.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1974F940B80FBA09EEE0A6B5D4B7D1BDF65C1318
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Moovit - универсальное приложение для всех ваш�
 magnet:?xt=urn:btih:5D70A30BE923D1C635785753C4E98392CED7759B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ tvQuickActions позволяет назначить до 5 действий н�
 ```bash
 magnet:?xt=urn:btih:761D19E446A79CD4E54675185842E9B4F6AB5878
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Melon VPN - это быстрый, неограниченный, стабиль�
 magnet:?xt=urn:btih:09F9E5CF6EF2781E0AFB4175904554A6262306FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Double Tap v1.8.2 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3F3537C3031812F00E0152ADC828A2465983C5F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:3F3537C3031812F00E0152ADC828A2465983C5F9
 magnet:?xt=urn:btih:386957B57C7418D29B974C136F7457B4D253C774
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ AGContacts - звонилка и менеджер Контактов, Избра
 ```bash
 magnet:?xt=urn:btih:66EDB029F1A8E5F84881A828CF9EC723934949D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Logic Circuit Simulator PRO предоставляет вам место для 
 magnet:?xt=urn:btih:A0B6F363D8F5F48C1E502E364CD246DBF88D2729
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ VN - это видеоредактор предназначенный специ
 magnet:?xt=urn:btih:1B09A038F29DB420B6255FF3C7985B90FB00CF98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:1B09A038F29DB420B6255FF3C7985B90FB00CF98
 ```bash
 magnet:?xt=urn:btih:4122EE57CD8C7C27B47F56A422A717A5650E9151
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Online маршрутизация и поиск присутствуютТип �
 magnet:?xt=urn:btih:AE5FE8AEDFA9B47588536E63F85AC472EB16D9DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ SD Maid v5.6.2 Extra Mod + Dark-Venom Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F7F54F1AFD2063952597BEF5FE26808B670C148B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Photo Retouch v2.3.4 Mod by Alex.Strannik [En]
 magnet:?xt=urn:btih:CECEC2E8F0785A22268B875C3F0AFC83A0B5D386
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Reanimation Inc. Скорая Помощь - surgeon simulator , играй в �
 ```bash
 magnet:?xt=urn:btih:076395D37389555439D0487738324676C86E4930
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Paweі Bіaszczak - Dying Light Soundtrack (2015) [MP3|320 Kbps] <Soundtrack>
 magnet:?xt=urn:btih:4361CBCC654E87534AA1AD381FE2A81504556B32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Enis Rotthoff - Guns Akimbo / Пушки Акимбо (Original Motion Picture S
 ```bash
 magnet:?xt=urn:btih:9113F33E46582757400EFAAFEEDE1E9200173B7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Verotika / Веротика (Motion Picture Soundtrack) (2020) [FLAC|Lossle
 magnet:?xt=urn:btih:2EDEB036A12C5000B0DC77D81826FE7D999AE04F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ VA - Verotika / Веротика (Motion Picture Soundtrack) (2020) [MP3|320 к�
 magnet:?xt=urn:btih:2EE48BF307169D7180AB085F34A6B604C7684326
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ Secret Garden - Live at Kilden: 20th Anniversary Concert (2016) [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:2B4B9BFA284581950FF583078814EAD24DBC475A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +173,8 @@ Anthesteria - Metro 2033 (2010) [MP3|320 кб/с]<OST, Electronic>
 magnet:?xt=urn:btih:A9CB39009FBBD8716B6D81800B79AEB0586F2DC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +207,8 @@ Armik - Greatest Hits (2CD) (2008) [MP3|320 кб/с]<Instrumental, Flamenco>
 ```bash
 magnet:?xt=urn:btih:9FED2F9B26B9EEF1D21B9ED81A00AC2BFCD8DF53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +243,8 @@ New Age Style - Enigmatic 13 (2014) [MP3|320 кб/с]<New age, Enigmatic, Chillo
 magnet:?xt=urn:btih:0D78D2688FA58C2A50818D58809DCA42EBD6BBF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +272,8 @@ Erik Scott - In the Company of Clouds (2016) [FLAC|Lossless|tracks] <New Age>
 magnet:?xt=urn:btih:D6DD06E49A4D6D7856F9A375A717E620BDA3634B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +300,8 @@ Ruaidhri - Celtic Goddess (2010) [FLAC|Lossless|WEB-DL|tracks] <New Age, Celtic>
 ```bash
 magnet:?xt=urn:btih:2A6E4BA6C567E6294F54DBBBBEA3DB58A2012313
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +332,8 @@ Deuter, Kamal & Anugama - Reiki Wellness (Энергия Рейки) (2002) [FLA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +368,8 @@ Art Of Noise - The Ambient Collection (1990) [FLAC|Lossless]<Ambient>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +402,8 @@ Stellamara - 3 albums (1997-2009) [FLAC|Lossless] <Ethereal, Neoclassical, World
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +427,8 @@ Ennio Morricone - io, Ennio Morricone (2002) [FLAC|Lossless]<OST>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +462,8 @@ VA - Tribal Voices. Songs from Native Americans (1996) [MP3|320 кб/с]<Folk, N
 magnet:?xt=urn:btih:7AEE9994774904C54B2A884502637FA6320A3A0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +490,8 @@ Simon and Garfunkel - Greatest Hits (1972) [FLAC|Lossless|tracks + .cue] <Folk R
 ```bash
 magnet:?xt=urn:btih:1068B7EB6B30644598AF92FBD4EE88B4FC09C3BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +520,8 @@ John Adorney - Beckoning (1998) [APE|Lossless|image + .cue] <New Age>
 magnet:?xt=urn:btih:40306704EA7F27B2FE06C89D16303B0B835E7077
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +548,8 @@ Sally-Ann Taylor - Beginners Guide to Meditation & Visualisation (2012) [FLAC|Lo
 magnet:?xt=urn:btih:4A540C3682AE1640C595DF30AE835A31709A604C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +574,8 @@ magnet:?xt=urn:btih:4A540C3682AE1640C595DF30AE835A31709A604C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +604,8 @@ Arcade Messiah - III (2016) [MP3|320 кб/с]<Instrumental Post-Metal, Progressi
 magnet:?xt=urn:btih:6CE661B20EA4F294C4565495FA3A322BC5E4DEDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +632,8 @@ Arcade Messiah - Arcade Messiah (2014) [FLAC|tracks|WEB-DL]<Instrumental Post-Me
 ```bash
 magnet:?xt=urn:btih:F3AC86D24BEF3CAF99704C8AD381E97D1F385E77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +662,8 @@ Arcade Messiah - III (2016) [FLAC|tracks|WEB-DL]<Instrumental Post-Metal, Progre
 magnet:?xt=urn:btih:6E62BF7BC3283DB47FB5D94C68A9491F75314601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +690,8 @@ Arcade Messiah - II (2015) [MP3|320 кб/с]<Instrumental Post-Metal, Progressiv
 ```bash
 magnet:?xt=urn:btih:8F9388B30B8FFCD95B91A2F758783ED8B4AF0A8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -674,6 +720,8 @@ Tom Holkenborg aka Junkie XL - Deadpool (Original Motion Picture Soundtrack) (20
 magnet:?xt=urn:btih:B1A634E62484CEDB7F2058DB68FA89837E179C4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -701,6 +749,8 @@ Justin E. Bell - The Outer Worlds (Original Soundtrack) (2019) [MP3|320 кб/с]
 magnet:?xt=urn:btih:F95A7E862A005D3D1C8DADF2D203E34DE08100EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -727,6 +777,8 @@ VA - 60 Minutes Relaxing Music (Non Stop Mix) (2016) [MP3|320 кб/с] <Relaxati
 ```bash
 magnet:?xt=urn:btih:40D1F48F5474166ED674650835981AFAA7C74778
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

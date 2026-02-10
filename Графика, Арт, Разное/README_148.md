@@ -1,51 +1,3 @@
-###  Публикация: 609133   (990951) от 28.01.2013
-
-Фотография - Французский иллюстратор Obery Nicolas [JPEG]
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французский иллюстратор Obery NicolasРазрешение файлов: 600x700 ~3000x3895Формат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26F21FC261231CCB8D45DF24B84D98D40B4130AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609925   (991005) от 28.01.2013
-
-Wallpapers - Обои для ноутбуков [JPEG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1366x768Формат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8E71BBC7B715DF4199920EA96F078C6916E4F19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 609130   (991039) от 28.01.2013
 
 Фотография - Фотограф Mark Laita [JPEG]
@@ -66,6 +18,8 @@ magnet:?xt=urn:btih:D8E71BBC7B715DF4199920EA96F078C6916E4F19
 ```bash
 magnet:?xt=urn:btih:701D00DCAEA059D000026AD4A0645E26C594063E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +47,8 @@ magnet:?xt=urn:btih:701D00DCAEA059D000026AD4A0645E26C594063E
 magnet:?xt=urn:btih:B242CB6B4C6CEDFC7DD7D3A3ABE17C04D6384EEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +72,8 @@ magnet:?xt=urn:btih:B242CB6B4C6CEDFC7DD7D3A3ABE17C04D6384EEF
 ```bash
 magnet:?xt=urn:btih:AAFC32B618595E895D060EF17EB18D2471B1A153
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +99,8 @@ Wallpapers - Зимнее настроение [JPG]
 magnet:?xt=urn:btih:14F9B69798D84F4476A6932A148FD799591C86BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +124,8 @@ Wallpapers - Art Wallpapers vol.1 (27.01.13) [JPG]
 ```bash
 magnet:?xt=urn:btih:519EAEFFCFA1EB1A1221636C59CECC0E79E4E2EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +151,8 @@ magnet:?xt=urn:btih:519EAEFFCFA1EB1A1221636C59CECC0E79E4E2EB
 magnet:?xt=urn:btih:392769772A57E65F3109190C6C3CC4A2A20F3B1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +176,8 @@ magnet:?xt=urn:btih:392769772A57E65F3109190C6C3CC4A2A20F3B1A
 ```bash
 magnet:?xt=urn:btih:B168FA6A88A8108660B59C920529ED881BF0FF8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +203,8 @@ magnet:?xt=urn:btih:B168FA6A88A8108660B59C920529ED881BF0FF8F
 magnet:?xt=urn:btih:51DDB95187C80EBF4A7B63272220229D6F199D9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +229,8 @@ magnet:?xt=urn:btih:51DDB95187C80EBF4A7B63272220229D6F199D9B
 magnet:?xt=urn:btih:997E30D5B481D2C208953670F6ACFE5C96E1A329
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +254,8 @@ Kylie Minogue - Official Calendar 2013
 ```bash
 magnet:?xt=urn:btih:3F26F90549DC36C2C49D460E29F4AF2FBD66EA6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +284,8 @@ magnet:?xt=urn:btih:3F26F90549DC36C2C49D460E29F4AF2FBD66EA6D
 magnet:?xt=urn:btih:8655205786C86E715F9517F981C9FD22C32785C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +309,8 @@ HQ Wallpapers (4/2013) [Wallpapers] (jpg)
 ```bash
 magnet:?xt=urn:btih:5FAE4B023A33A015E44CEF3BBAA1908D8879706F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +336,8 @@ Space Wallpapers (25.01.13) [Wallpapers] (jpg)
 magnet:?xt=urn:btih:B2537274642D4949E2E309947D15CDA080A9C6CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +361,8 @@ Gold And Money Wallpapers (25.01.13) [Wallpapers] (jpg)
 ```bash
 magnet:?xt=urn:btih:9ED33CFE046A15273FCF075164A0C6D89A172E54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +388,8 @@ Majestic castles of the world Wallpapers (25.01.13) [Wallpapers] (jpg)
 magnet:?xt=urn:btih:2E17995B247A471A2E496511CA3EC60F050DF52A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +413,8 @@ Winter Landscapes Wallpapers (25.01.13) [Wallpapers] (jpg)
 ```bash
 magnet:?xt=urn:btih:56C4C5B4829951E90D9652EC5EC4C2EFE05159B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +440,8 @@ magnet:?xt=urn:btih:56C4C5B4829951E90D9652EC5EC4C2EFE05159B5
 magnet:?xt=urn:btih:C6C6CEB3C486028220785036138C73D992E82BEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +465,8 @@ magnet:?xt=urn:btih:C6C6CEB3C486028220785036138C73D992E82BEF
 ```bash
 magnet:?xt=urn:btih:CD752D4ABB3DB3EEB7813E8C2D127D23132ADDB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +492,8 @@ magnet:?xt=urn:btih:CD752D4ABB3DB3EEB7813E8C2D127D23132ADDB6
 magnet:?xt=urn:btih:B570E862700FC0A8AB52E9DB9B79E8B8E38BA9A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +517,8 @@ magnet:?xt=urn:btih:B570E862700FC0A8AB52E9DB9B79E8B8E38BA9A0
 ```bash
 magnet:?xt=urn:btih:EFC8491007DA5D22A0DB7499D64939E4E3519DE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +544,8 @@ magnet:?xt=urn:btih:EFC8491007DA5D22A0DB7499D64939E4E3519DE7
 magnet:?xt=urn:btih:CF696D674B998F0C53ABA96431199293E8B08908
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +570,8 @@ Wallpapers - Потухшие города [JPG]
 magnet:?xt=urn:btih:867A578BCC411D9CE23A735B953C944CB69A9B10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +595,8 @@ magnet:?xt=urn:btih:867A578BCC411D9CE23A735B953C944CB69A9B10
 ```bash
 magnet:?xt=urn:btih:4B7644F1CE6C97DF9A264008960F97248983DEEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +624,62 @@ Wallpapers -  Selection of wallpapers (25.01.13)[JPG]Название: Selection
 ```bash
 magnet:?xt=urn:btih:0E4A43232716DE84E0004BA6ECC42AC91D8E6987
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608138   (993949) от 24.01.2013
+
+Иллюстрации - Иллюстратор Sean Ellery part 2 [JPEG]
+
+>>Графика, Арт, Разное
+>>Книжная иллюстрация
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_993949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иллюстрации (Рисованная графика) в стиле Comic Digital Art австралийского иллюстратора Шона Эллери, известного более под псевдонимом "SeanE",Разрешение файлов: от ~620х890 до ~1524х523Формат: JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:208401FD3B53DCD01A33B0A096D22583B98EADFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 606979   (993950) от 24.01.2013
+
+Иллюстрации - Работы иллюстратора Sean Ellery (Part 1)
+
+>>Графика, Арт, Разное
+>>Книжная иллюстрация
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_993950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иллюстрации (Рисованная графика) в стиле Comic Digital Art австралийского иллюстратора Шона Эллери, известного более под псевдонимом "SeanE",
+
+107 изображений
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A24641D4C28259E1180B90041725E9E12A438442
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

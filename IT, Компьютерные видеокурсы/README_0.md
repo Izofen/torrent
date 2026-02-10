@@ -21,6 +21,8 @@ Apache Kafka представляет собой ведущий брокер с�
 magnet:?xt=urn:btih:01FB0E864088007D66FD57B66452EF74B5E79564
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Balun.Courses, Сергей Венецкий | Глубокий Git (2025) WEB-D
 ```bash
 magnet:?xt=urn:btih:DC69F7F04EFA7943D06140811220D44B4F0CE9B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ Balun.Courses, Владимир Балун | Глубокий Go — нюанс�
 magnet:?xt=urn:btih:BF708DA9B63C0B317C92AAC5A220AF7C63A0FDB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Balun.Courses, Игорь Панасюк | Профилирование в Golan
 magnet:?xt=urn:btih:D5C01DDB5710EE2FB09C168F64A3E6E6EC4337B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ Kobezzza, Андрей Кобец | Практический курс по TypeS
 ```bash
 magnet:?xt=urn:btih:BB2E7E4C6EF9A67FA65985342DB4D4AC3973F00C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -155,6 +165,8 @@ Kobezzza, Дмитрий Холстинин | Продвинутый Debug во 
 magnet:?xt=urn:btih:4356250E58FBF92A5163002D9AE9CEF10A8126A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ Balun.Courses, Виталий Лихачев | Observability, как в BigTech 
 ```bash
 magnet:?xt=urn:btih:65D5B5828C84B5DB3C7139D6835F04621D01CA23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -207,6 +221,8 @@ IndexedDB представляет собой мощную встроенную,
 magnet:?xt=urn:btih:DD10A8407CC95623559A742653E055357540284D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +248,8 @@ Purpleschool, Андрей Соколов | Bash скрипты (2025) WEB-DL [R
 ```bash
 magnet:?xt=urn:btih:B4F96F0447981439DDDC4B357578D122BBDBE5F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +278,8 @@ Balun.Courses, Владимир Балун | Подготовка к Golang со
 magnet:?xt=urn:btih:ACCA310E1631A0A4B452C5790A8B73F985A62D90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +306,8 @@ NeuralGo | Полный курс по языку Golang. С нуля до REST A
 ```bash
 magnet:?xt=urn:btih:A0B5FFB1B48BEADA13D86FF8020096254843DCEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +336,8 @@ magnet:?xt=urn:btih:A0B5FFB1B48BEADA13D86FF8020096254843DCEB
 magnet:?xt=urn:btih:2279216070B51984F9B7CD6B284BF3545868C362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +364,8 @@ Balun.Courses, Владимир Балун | Дженерики в Golang (2025)
 ```bash
 magnet:?xt=urn:btih:93D7F3BF26BF3300C5D258966A1358679E65346A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +394,8 @@ Junior-разработчикам
 magnet:?xt=urn:btih:3FB65568AC8A5E1D78B32808E566D516F91BB4F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +420,8 @@ magnet:?xt=urn:btih:3FB65568AC8A5E1D78B32808E566D516F91BB4F1
 ```bash
 magnet:?xt=urn:btih:2CFEEB3EDA304E392608DF46B29C422DF9883271
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +450,8 @@ Balun.Courses, Игорь Панасюк | Оптимизация Go, как в 
 magnet:?xt=urn:btih:19144D09AB074321E63F0E9EA08C06A456C8B0F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +477,8 @@ Microarch, Кирилл Ветчинкин | Domain Driven Design и Clean Archi
 ```bash
 magnet:?xt=urn:btih:02D773322B2925F1957A1817FC7AE0537895D5EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +506,8 @@ Balun.Courses, Владимир Балун | Concurrency в GO (2025) WEB-DL
 magnet:?xt=urn:btih:14A84FE07F70123C8D7633D4FE5639E23A19017A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +534,8 @@ PurpleSchool, Udemy, Антон Ларичев | Golang - Templ Fiber HTMX. Ку
 magnet:?xt=urn:btih:B4B43F399A869DB3577F69DD6C837913E2EA4599
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +559,8 @@ magnet:?xt=urn:btih:B4B43F399A869DB3577F69DD6C837913E2EA4599
 ```bash
 magnet:?xt=urn:btih:7ADFEC27D94CB572E5C40FBBD24A656976ABB4E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +586,8 @@ It is not an exaggeration to say that Dependency Injection is one of the core pi
 magnet:?xt=urn:btih:0F74BF89CFEC97E0BEF6B843885257CD32AE4E99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +611,8 @@ Skillfactory, Илья Ибрагимов, Валентин Матвейчик, 
 ```bash
 magnet:?xt=urn:btih:68198F44C5718F1414405FCE2221AABB2DD5AB6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +641,8 @@ magnet:?xt=urn:btih:68198F44C5718F1414405FCE2221AABB2DD5AB6A
 magnet:?xt=urn:btih:862457FFAD2264CFE52892127B8C69C905554F8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +666,8 @@ Stepik, Марина Эрштейн | ИИ-помощники в подгото�
 ```bash
 magnet:?xt=urn:btih:CBE54BB0E0DD76C79F9CE36938409D1EC336FE5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +693,8 @@ magnet:?xt=urn:btih:CBE54BB0E0DD76C79F9CE36938409D1EC336FE5E
 magnet:?xt=urn:btih:5513B22776921938C6CF79BC83317B20A3ADC461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +718,8 @@ Lynda.com | CSS с LESS и SASS (2012) PCRec
 ```bash
 magnet:?xt=urn:btih:521BB25B401B29A1159E3EEC8694DC2C970B6934
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

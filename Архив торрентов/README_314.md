@@ -22,6 +22,8 @@ TapScanner — сканер документов, это простой скан
 magnet:?xt=urn:btih:4C14DC56FAD55E4D76093331B7EC218686D3B8B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Photo Supreme — вспомогательная программа для вл�
 ```bash
 magnet:?xt=urn:btih:304A222CF6D013F0FB33473D941EB00776ABEB66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ PictureThis - Plant Identification v5.1.6 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:E84A057C2A81427701A69EA12741B4838F4925A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:E84A057C2A81427701A69EA12741B4838F4925A7
 ```bash
 magnet:?xt=urn:btih:2D2F6B795D38B3FEE3C4D0E55FC96CDA04B8160F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Duplicate File Detective - программа от Key Metric Software, кото
 magnet:?xt=urn:btih:443A380312007115FE29BBC02EBF0621D57136D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:10A8F8CD213D685EDF909E317CD4FEF3E91137CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Opera One 117.0.5408.142 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9124FFFFD6CCBAA988E58789974903E08389690A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Genius Art: Image AI Generator v1.2.6 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:F8653C6E3871852F0C11D57714EBEE7DD07452FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:00752333DF11D0023E43123A6555BC6B1D66C3C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Vivaldi 7.2.3621.63 include standalone [Multi/Ru]
 magnet:?xt=urn:btih:321FA00505D959DB2BFF9145973BEB754074F804
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:321FA00505D959DB2BFF9145973BEB754074F804
 ```bash
 magnet:?xt=urn:btih:CC9880F60797E43B457D3BE5D87AABE2998A3B36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ GeoGebra — мультиплатформенная программное об�
 magnet:?xt=urn:btih:7851E136BC8B3FB7069657B1BCF9D1E86AD75FE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ XYplorer – удобный многовкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:035D2A561CB71D7BDE041039CBA4F9C198542D78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ PhotoDirector - функциональный, но весьма простой �
 magnet:?xt=urn:btih:292B3654BFE1F86ED74C48CE735EAC5DE6A9684D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Jigsawscapes® - Пазлы v3.8.2 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FAB5EAD949ECF28A89DDBE83895D43A6CC511B7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Draw.io 26.1.1 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:449762F840EED98D730FF48558435BA1B65613A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ ScreenToGif — удобный бесплатный инструмент, с п�
 ```bash
 magnet:?xt=urn:btih:DDD5F9612D498B4FC2ABB5840971FA4EC7C29E7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 magnet:?xt=urn:btih:37D2E2580B260233CD8E27A02F374A957F15578A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Folder Player Pro - это ориентированный на каталоги 
 ```bash
 magnet:?xt=urn:btih:A8542561E7C2D0F6C61A302D000405294AF1A9C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Daff Moon Phase (Фазы Луны) v3.45 Mod by shv7net [Ru/En]
 magnet:?xt=urn:btih:0E4DCC7122E049B6660C7C18F0BB9A7354CED6B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ PowerDirector – Video Editor v15.0.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A5DAD7BB6FB4EB7E0BAC4184EC3D5422CA3D5B2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ SoundHound — ваше лучшее музыкальное приложение
 magnet:?xt=urn:btih:99392BD0CCFF945BBA45D280B2435A78ED7FBB46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ TuneIn объединяет спортивные события, музыку, �
 ```bash
 magnet:?xt=urn:btih:AC3AD934638ABC2626E0F5DAE01ADF387E5C8128
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ KORG - multi/poly native 1.0.3 Standalone, VSTi 3, AAX (x64) [En]
 magnet:?xt=urn:btih:3C69782745E3ACEA962D890DE4AE00A8129B75C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Plus Messenger - неофициальное приложение для обме
 magnet:?xt=urn:btih:285A289EF3CFBAC24D0F9A34C25DC1884EC9F4CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:0EF66FB8F743ACD4CA1DBC4F969BF355A89F57E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

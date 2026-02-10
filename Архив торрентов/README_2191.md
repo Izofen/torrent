@@ -1,27 +1,3 @@
-###  Публикация: 1332548   (314452) от 20.10.2019
-
-AudioSwitcher 2.99.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314452.jpg" />
-</div>
-
-
-###  Подробнее
-
-AudioSwitcher - небольшая утилита, которая находится в строке меню и позволяет выбрать вход или выход источника аудио, с возможностью регулировки уровня громкости по выходу и уровня чуствительности по входу.Тип издания: macOS SoftwareРелиз состоялся: 17.10.2019Разработчик: Paul O'NeillПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E19B530E7BB4547A86D7A158234AE554D8F2043
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182753   (314459) от 11.11.2017
 
 Reg Organizer 8.03 + Portable [Ru/En]
@@ -42,6 +18,8 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:A1640BAAB0544FBA219E2FEC22AC50E8AC6FFF06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +54,8 @@ magnet:?xt=urn:btih:A1640BAAB0544FBA219E2FEC22AC50E8AC6FFF06
 magnet:?xt=urn:btih:249FCDA38D1A0B247A966D58CEAEDA4239D2BE52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +79,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:BA0C14B487A6C50D8FA57BE7D0B5AE116F8E6517
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +106,8 @@ magnet:?xt=urn:btih:BA0C14B487A6C50D8FA57BE7D0B5AE116F8E6517
 magnet:?xt=urn:btih:ADCB4F3630540E9FA84FB76F8A9564BD69252136
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +131,8 @@ EdgeView 2 - это новейший просмотрщик изображени
 ```bash
 magnet:?xt=urn:btih:FB2B75601BC89B256FD1060E43A7A7B7AB50B2EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +161,8 @@ magnet:?xt=urn:btih:FB2B75601BC89B256FD1060E43A7A7B7AB50B2EF
 magnet:?xt=urn:btih:9F8A94749BA4EB51C0B53D439E650DC098354269
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +186,8 @@ ProFind 1.7.0 [En]
 ```bash
 magnet:?xt=urn:btih:A098E51409CBF1C12279A7B6DF6A6E5FDC8A8934
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +216,8 @@ VA - #WeAreTrance #002-16-12 (Mixed By Frank Dueffel) (2016) [MP3|320 Kbps] <Tra
 magnet:?xt=urn:btih:A73E51064E48D6F449DF524C3FEDB14432CC04A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +245,8 @@ Denshi Danshi - Brain Chemistry (2018) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance
 magnet:?xt=urn:btih:A24522F657F8B6B2232E20789D49E950E90F8CED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +273,8 @@ MX5 развивает заложенную предшественником к�
 magnet:?xt=urn:btih:A313F49D0AC6BF4CF7671CADFDBAD26D6B4F74D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +298,8 @@ magnet:?xt=urn:btih:A313F49D0AC6BF4CF7671CADFDBAD26D6B4F74D4
 ```bash
 magnet:?xt=urn:btih:0601DD63FB91C0ABB962FE685CE21041932807A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +325,8 @@ Thunderbird — это бесплатная почтовая программа,
 magnet:?xt=urn:btih:E2C810548D91781E54566AFA8718D948AFBE232B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +350,8 @@ Paw 2.2.5 [En]
 ```bash
 magnet:?xt=urn:btih:6D776E8341E9A6D57B4C6CFDC16E18660CFBCF01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +380,8 @@ VA - Maschinenfest 2018 (2018) Pflichtkauf [FLAC|Lossless|tracks+.cue] <Industri
 magnet:?xt=urn:btih:5DF69B78D649990CED598B5F114FC172F7E97BBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +406,8 @@ magnet:?xt=urn:btih:5DF69B78D649990CED598B5F114FC172F7E97BBC
 ```bash
 magnet:?xt=urn:btih:4DBA5822079C816B126EA5A5A6EC4603D11CEDB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +436,8 @@ Synapscape - Still (2018) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Rhythmic Noise,
 magnet:?xt=urn:btih:B17B516EFB3253044B90220F35F83A16AF4BFD76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +463,8 @@ Mass Effect 3 будет реагировать на каждое принято
 magnet:?xt=urn:btih:B49DBF361461A0B5249A28870D9185E3DC255A46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +488,8 @@ Reg Organizer 8.03 Final RePack (& Portable) by D!akov [Ru/En]
 ```bash
 magnet:?xt=urn:btih:491DBD87591CC6FF75E21C7D6F5F7B3B2958BE4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +515,8 @@ Unreal Commander - бесплатный двухпанельный файлов�
 magnet:?xt=urn:btih:490385E4ADC884019D9881E9DF6EFDF4CE4CC266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +541,8 @@ OfficeFIX - набор утилит для восстановления файл
 magnet:?xt=urn:btih:8BF020EBF578BA1B46A6B1829143D5E3B9F26EBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +566,8 @@ magnet:?xt=urn:btih:8BF020EBF578BA1B46A6B1829143D5E3B9F26EBE
 ```bash
 magnet:?xt=urn:btih:8C8C62D494AA5B38DF0067344EF11715EF1FED64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +594,8 @@ Script Debugger предлагает пользователям всё, что �
 ```bash
 magnet:?xt=urn:btih:34410C90D4D09449501C81A29F8BF94499128B91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +624,8 @@ Primus - Suck on This (Live) (1989) 1990, Caroline Records [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:10147A9E6E42CF5F43DB281A9487AFFC15F189CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +653,8 @@ magnet:?xt=urn:btih:10147A9E6E42CF5F43DB281A9487AFFC15F189CA
 magnet:?xt=urn:btih:6BB31B6CDE49FD6E572176264DF9644C77BB9A59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +681,37 @@ magnet:?xt=urn:btih:6BB31B6CDE49FD6E572176264DF9644C77BB9A59
 ```bash
 magnet:?xt=urn:btih:78ABF769905719FE5640540A5F10936C244BFD53
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260202   (314697) от 06.11.2018
+
+Primus - Animals Should Not Try to Act Like People (2003) EP [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Carpenter And The Dainty Bride (6:36)
+ 02. Pilcher's Squad (1:54)
+ 03. Mary The Ice Cube (4:37)
+ 04. The Last Superpower Aka Rapscallion (7:16)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:28:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26E0AD35B8234DA8CDDE622B1BF4D734A2B4DDC1
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

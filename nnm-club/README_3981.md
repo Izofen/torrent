@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:D7136ABE9D74A6E7F9779078FE35EC2D12BCDB6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Opera One 106.0.4998.41 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:6709D5FA472C0063EE4BB29B5C5BC5EFC0C22080
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ A Boy and His Blob Retro Collection (2023) [Multi] (1.0.0) License GOG
 magnet:?xt=urn:btih:6D8BF48FAE19CA2D4FA9808F0D3A66DE1BB70E53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Icecream Photo Editor - лучший бесплатный фоторедакто
 ```bash
 magnet:?xt=urn:btih:F525F6D39169CC4B9F12CBE562420D7458920638
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ C1. Out Of Subconscious(   Читать дальше...   )Жанр: Progressive
 magnet:?xt=urn:btih:05B48CB57E962B8C02D52953822EB377A5348279
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ VA - Music News vol.330 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:EB5F6C768DC47F2CAAD69F7D4F1C3D79F233497E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:EB5F6C768DC47F2CAAD69F7D4F1C3D79F233497E
 ```bash
 magnet:?xt=urn:btih:CC15D02715FF2A162D6FF1712755F447999A4995
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Icecream Video Editor - простой редактор видео для Window
 magnet:?xt=urn:btih:2EC27362F5AFD27CC04F5122D93B8652611DC91A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ EF Commander  — замечательный двухпанельный файл
 ```bash
 magnet:?xt=urn:btih:4B34AFF8250598929B0C6FA72B29CEE3C7FF9C7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:4B34AFF8250598929B0C6FA72B29CEE3C7FF9C7E
 magnet:?xt=urn:btih:F13F1F5AA1CDED3B71291EF049A5BE62B537DC57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ Opera One 106.0.4998.41 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:908A029CE8D0F7AF698D91035AF0F82CB43368E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:908A029CE8D0F7AF698D91035AF0F82CB43368E7
 magnet:?xt=urn:btih:64AA1E2FE18DA3D040C47A1C7B4E8AA08D2BC763
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ NIUBI Partition Editor (Repack & Portable) – программа для про�
 ```bash
 magnet:?xt=urn:btih:BD2C2519403633F6B5A25859469CE1F09AE3F33C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ Masterdark - In the Dark (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <gothiс, 
 magnet:?xt=urn:btih:C64B69FE1B49070686EDB621278F510127B34E95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ Icecream Video Converter Pro 1.41 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:224FDBA24631AD88D34F263C5E858DB64ABBE8BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ Ray Orion - Sunshine 2024 (2024) [MP3|320 Kbps] <Spacesynth>
 magnet:?xt=urn:btih:3A5EF2E79345C69EDF983A3DE684F4661AE780BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:3A5EF2E79345C69EDF983A3DE684F4661AE780BD
 ```bash
 magnet:?xt=urn:btih:2160D30EDBD5B7224F039163FECB71CE00BF8C0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:2160D30EDBD5B7224F039163FECB71CE00BF8C0F
 magnet:?xt=urn:btih:0BD18FE48106AD905B3AD65B76A064A6CD64E804
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ FileMenu Tools настраивает пункты контекстного ме
 magnet:?xt=urn:btih:44360CFEDBCBCB160A9FD87A84E494E6C4F99836
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:BBA27A54768ED5504D62F217CF01B08B7FF8DE23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ Anyma - Genesys (2023) [FLAC|Lossless|WEB-DL|tracks] <Minimal,Tech House>
 magnet:?xt=urn:btih:E24AE9AFB89CCF57845198859551D033AB74AE5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ Celestia - бесплатная трёхмерная астрономическ�
 ```bash
 magnet:?xt=urn:btih:F85E70B82B654392D8E8BC843C36832F29AD465D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ Media Player Classic - Black Edition (MPC-BE) – универсальный п�
 ```bash
 magnet:?xt=urn:btih:415D5B4AB3BC4311CB798348D70855DEA0512A61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +641,8 @@ magnet:?xt=urn:btih:415D5B4AB3BC4311CB798348D70855DEA0512A61
 magnet:?xt=urn:btih:DC03A2C36934D4E141B52A9EF17E0D70ED475CD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ magnet:?xt=urn:btih:DC03A2C36934D4E141B52A9EF17E0D70ED475CD8
 magnet:?xt=urn:btih:06096465E34FC6AEA5CA1089BF2441929D214F40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ magnet:?xt=urn:btih:06096465E34FC6AEA5CA1089BF2441929D214F40
 ```bash
 magnet:?xt=urn:btih:6A129B1FAC324CF5075479480A821D2EB20C52A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

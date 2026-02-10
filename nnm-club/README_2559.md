@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:86BAD4E0F0D18530C97C1832EDAEE5E3BD633335
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:86BAD4E0F0D18530C97C1832EDAEE5E3BD633335
 ```bash
 magnet:?xt=urn:btih:15F500DB6CAD9A5B103AD089CE3C6DFBA8CAC64E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:15F500DB6CAD9A5B103AD089CE3C6DFBA8CAC64E
 magnet:?xt=urn:btih:CD4BA55D1A9B419E54969020B88EB474B2C1A252
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:CD4BA55D1A9B419E54969020B88EB474B2C1A252
 ```bash
 magnet:?xt=urn:btih:2A6B572EF6DC204F486C54A98052C29370258FEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ TAL-U-NO-LX - это подключаемый модуль для синтеза
 magnet:?xt=urn:btih:22395EA1BC52709D8230774C8B9A2F72FF27CD92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:22395EA1BC52709D8230774C8B9A2F72FF27CD92
 ```bash
 magnet:?xt=urn:btih:0BA37ECEE275BB027EC4DFB80B3526539EB2FF74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:0BA37ECEE275BB027EC4DFB80B3526539EB2FF74
 magnet:?xt=urn:btih:3B27447344117222B0257E1189B9F27B2E51EE3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:3B27447344117222B0257E1189B9F27B2E51EE3C
 ```bash
 magnet:?xt=urn:btih:53C0E3E16857C2ED37F8E69CC3443166AC75E4D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:53C0E3E16857C2ED37F8E69CC3443166AC75E4D0
 magnet:?xt=urn:btih:C220314137370CCCA37324F6D146E5C5E40E371B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Saint Liar | Способности (2024) [MP3, Puffin Сafe]
 ```bash
 magnet:?xt=urn:btih:27CD84185D770AFBA0AA724285C40E5F90E8E149
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:27CD84185D770AFBA0AA724285C40E5F90E8E149
 magnet:?xt=urn:btih:A175D00BD0FD0AC6A00692965FD4A8B19F8E3DCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:A175D00BD0FD0AC6A00692965FD4A8B19F8E3DCF
 magnet:?xt=urn:btih:7D669AB209B516BC5572DF791D2AAB20D7891BFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ DLNow Video Downloader - быстрое, полезное, практичное 
 ```bash
 magnet:?xt=urn:btih:E58C02F0F29B32388C3CDDB9DBB0953C7D2723CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ MONOЛИЗА - Кит (2025) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:C261582EF6F8C47C821F7E15F8DEE96E021B2899
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:C261582EF6F8C47C821F7E15F8DEE96E021B2899
 magnet:?xt=urn:btih:F8F067CA357896B9C6A01F35FB487A34ED7B2171
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Text Editor Pro 32.1.1 + Portable + Bonus [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BD9A5C88267E9F7873E9AE4D81F1F205E9F32CBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:BD9A5C88267E9F7873E9AE4D81F1F205E9F32CBA
 magnet:?xt=urn:btih:FA0D4C13B0B9C70B6A71A13A62AE8A91FB9C55FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:FA0D4C13B0B9C70B6A71A13A62AE8A91FB9C55FA
 magnet:?xt=urn:btih:917C521D6908A8585ACB501CDDF3089EF1750C18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ XYplorer – удобный многовкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:F3364F9B5AADB8F85D47AE0C2B606F6EFAB97781
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:F3364F9B5AADB8F85D47AE0C2B606F6EFAB97781
 magnet:?xt=urn:btih:75499C1DAB26232CCE7E1FA661791EEEEE3D2B19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:75499C1DAB26232CCE7E1FA661791EEEEE3D2B19
 ```bash
 magnet:?xt=urn:btih:A1BE9D394FBD073A07816A96B6D33B4FE9BE2837
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ Shinyribs - Leaving Time (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Country, Bl
 magnet:?xt=urn:btih:AA078CD1E1FA7D076782FB05182B70BEEC46420B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:AA078CD1E1FA7D076782FB05182B70BEEC46420B
 ```bash
 magnet:?xt=urn:btih:81F5F2F9924EEBB9E96AF9D6029ED5EC738D529A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:81F5F2F9924EEBB9E96AF9D6029ED5EC738D529A
 magnet:?xt=urn:btih:133A86B5917F30744682FD10F4487F1E0F27BC63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ MotoGP. Этап 05 из 22. Гран-при Испании. Гонка (27.04.2
 ```bash
 magnet:?xt=urn:btih:A1984FD906AE1D4AF63DD8C3936E10A9F038A207
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +682,8 @@ Sean Chambers - LIVE FROM DARYL'S HOUSE CLUB (Live) (2025) [FLAC 24/48|Lossless|
 ```bash
 magnet:?xt=urn:btih:33B9F62C9527C7983A8467B2E28C0C44CB004575
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

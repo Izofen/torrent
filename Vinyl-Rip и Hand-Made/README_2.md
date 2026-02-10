@@ -22,6 +22,8 @@ Dragony — пауэр-метал группа из Вены, Австрия, о
 magnet:?xt=urn:btih:EA94AFC95CEB0E71499F4CDA79861CB1AA975439
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Emperor - Emperor (1993) EP, Released, 2017, Candlelight Records [FLAC|24/96|tra
 ```bash
 magnet:?xt=urn:btih:AD41EDF9054CB68CD6C582C4F0D36ED3498A52A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ B2 - Like A Perpetual Funeral(   Читать дальше...   )Жанр: Doom,
 magnet:?xt=urn:btih:7F593CED2C587AC2E79F1DA820378594F985D6CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Leah - (Leah McHenry) Лиа МакГенри, известная под псе�
 magnet:?xt=urn:btih:FB48463A61754806ED3BA12E4EA291E05A389F95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ A4 Pisces(   Читать дальше...   )Жанр: Blues Rock, Hard RockПр
 ```bash
 magnet:?xt=urn:btih:8C00C372180E6E3E917A5629FBEF4DFACD0D3B79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +168,8 @@ Motograter — американская метал-группа, образов�
 magnet:?xt=urn:btih:7E8FAE7F357EBC168F1DF10B2D5702C6196A815F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +196,8 @@ Presto Ballet — прогрессив-рок-группа, основанная
 ```bash
 magnet:?xt=urn:btih:CA23955C9229958F8F94D6C8E3BB1722BC335FC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +226,8 @@ Evanescence («исчезание», «мимолётность») — амер�
 magnet:?xt=urn:btih:83F98183A290A7421AFFC6F6F64DC463CAE7B4F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +254,8 @@ Chaos Magic - хэви-метал проект, созданный Катери�
 ```bash
 magnet:?xt=urn:btih:30181E5CEE86954F23E78EEFACCC9106E424D2D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +284,8 @@ LP4, Close To You, MFSL 1-132, (mono)Жанр: Vocal, Ballad, SwingПродол�
 magnet:?xt=urn:btih:C0EFF431D62180F064DFD29AFE03DE9621067AB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +313,8 @@ Pink Floyd — одна из самых великих групп в истор�
 magnet:?xt=urn:btih:0D6315DB1502077BAA5A1EC716C15CE0D8591D6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ Sting - Collection (1985-2006) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Soft ro
 ```bash
 magnet:?xt=urn:btih:82900E2275BEF4CFCCC364933E049698093EE7BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +372,8 @@ Supermax - Collection (1977-1990) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Disc
 magnet:?xt=urn:btih:58DF6D39AE8A45904FA395B0ABE78E0191C99F1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +400,8 @@ Boney M. (Бони Эм.) — диско-группа, созданная в 197
 ```bash
 magnet:?xt=urn:btih:80E497E45FC1067CF3A187122EB9B623ED2B2C0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +430,8 @@ Chilly - западногерманская диско-группа, получ�
 magnet:?xt=urn:btih:EE2CE49C8A6B9A610D19041CA169C0EC62E0F40E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +458,8 @@ Chris Rea - Collection (1979-2017) [DSD 128|tracks|Vinyl-Rip] <Rock>
 ```bash
 magnet:?xt=urn:btih:50009BAFDBF26E5F2C1116A906A253F5F502315C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +488,8 @@ A3 高橋洋子 - 魂のルフラン / Yoko Takahashi (   Читать даль
 magnet:?xt=urn:btih:F2ACC00C21EADC6F64FB29EF100222FE5DE2E929
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +517,8 @@ Yello (Йеллo) — швейцарская электронная группа
 magnet:?xt=urn:btih:18CA75CFE6613C2FE66937F4BEDCA25C0B9364FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +544,8 @@ magnet:?xt=urn:btih:18CA75CFE6613C2FE66937F4BEDCA25C0B9364FA
 ```bash
 magnet:?xt=urn:btih:E3E6F03F6667EA84FADC95BE0E7C7B5C51A71D1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +574,8 @@ Alice Cooper - Studio Albums (11 releases) (2000-2025) hand made [restored, decl
 magnet:?xt=urn:btih:337B9A6467C9EA3D2E96A4BE3B173C5DC96C91DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +602,8 @@ Ozzy Osbourne - 10 студийных альбомов (1980-2020) [DSD 128|trac
 ```bash
 magnet:?xt=urn:btih:AF50FA6C30CF66CF2F70C21F5E864D30F7B51211
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +632,8 @@ B2 - Crazy TrainЖанр: Heavy Metal, Hard RockПродолжительност
 magnet:?xt=urn:btih:BBEE261A8FD5E9582F196EB53920B48627D4E821
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +660,8 @@ A4 Envenomed(   Читать дальше...   )Жанр: Thrash Metal, Groove M
 ```bash
 magnet:?xt=urn:btih:FA0608FF6CEAC3A72EB22CF08885A60A7D7F8CE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +690,8 @@ A4 Crippling Velocity(   Читать дальше...   )Жанр: Thrash Metal,
 magnet:?xt=urn:btih:E097900CB91043353303081A85BAE03A83BE440E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -671,6 +719,8 @@ A4 Венета Рангелова - Районное Кино(   Читать �
 magnet:?xt=urn:btih:06B745228240B1FD15CBA02AA1F6E5892C892A19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +747,8 @@ SIDE A:
 ```bash
 magnet:?xt=urn:btih:E58541A7E2D4D0F2D85853BEEE52620ADED271CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

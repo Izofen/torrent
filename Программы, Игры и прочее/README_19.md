@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A8128C34BAAC2D65DD21FEF65E3A45BB6FB473FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ DREDGE v1.5.4 [Ru]
 magnet:?xt=urn:btih:4552412D99A45192468FFA7C1BC167D4B08E03D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:4552412D99A45192468FFA7C1BC167D4B08E03D3
 ```bash
 magnet:?xt=urn:btih:EA5FABF7632304AAF2C00652229BE49217F94DA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Beat Find / Распознавание музыки v1.6.51 Mod by Alex.Strannik
 magnet:?xt=urn:btih:DBEBFF8854EBE26F89D089942C8F131C5CB9E35F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Exploding Kittens® 2 v0.0.19 [En]
 magnet:?xt=urn:btih:4162756F075882E5160A9E9FA5DD91001573CAF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Chronicle of Innsmouth: Mountains of Madness - это графическое п�
 magnet:?xt=urn:btih:7B8145385E181223512B57F05306CADEF51DD781
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Fallout Shelter дарит вам возможность управлять вы
 ```bash
 magnet:?xt=urn:btih:D624FF0A2E7CD5D3D2A9F73B9FEAA605A897E86A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ MiHome v10.0.702 Mod by Vevs [Ru]
 magnet:?xt=urn:btih:388FFCCFC93BAE42B65BD8F56821D16DE690E76C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Dead God Land: Survival Games v0.0.0263 [Ru]
 ```bash
 magnet:?xt=urn:btih:EADC4CD35CC279AA1C7F94B7DE60672F33BB037D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Party Hard Go v0.100034 [Ru]
 magnet:?xt=urn:btih:0DC8A4CF93168059825D680EA7A38B94CBC7BC31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Spiritfarer Netflix Edition v1.5.8 [Ru]
 ```bash
 magnet:?xt=urn:btih:6DD3CDF001B3189259827B9A3C8FE474EA06A289
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Pocket Rogues - это динамичная Action-RPG старой школы �
 magnet:?xt=urn:btih:321FE5DA69A79D96C0E6E6A188ADEBD3CAD14448
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Cozy Grove: Camp Spirit v3.1.0 [En]
 ```bash
 magnet:?xt=urn:btih:58F79B4B8D1D466809EF3C4656420653E53E0B79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ White Day - это ремейк PC-версии, выпущенный в 2001 г
 magnet:?xt=urn:btih:4EDB7253A25501C8D85D741C7986691807D98819
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Linea: Уютные головоломки приглашает вас в уми
 ```bash
 magnet:?xt=urn:btih:7D74228F3CA9BBC8EB500E01D8975556583CDAFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Bounty Of One – это динамичный казуальный roguelite в�
 ```bash
 magnet:?xt=urn:btih:8BEDCB2FD2F0D5DA24334387ACEA7D5D82A35D43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ Midnight Girl - это казуальная 2D-приключенческая и
 magnet:?xt=urn:btih:DC24B32C966EBD9FECDF1E8FA10F75C029A1FB3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ RainCity 1.0.20 [En]
 ```bash
 magnet:?xt=urn:btih:E15E8F78D46C254CFB0597288A376826E91BF221
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ The Longing v1.10 [Ru]
 ```bash
 magnet:?xt=urn:btih:3514579B91B9105500414D09465B3DB1E5F75506
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ Art of Rally 1.0.7_b200 [Ru]
 magnet:?xt=urn:btih:5889F1A0E73CF0122EC70D87895A7695494C0FC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ Scythe: Digital Edition 2.1.3 [Ru]
 ```bash
 magnet:?xt=urn:btih:248C97D3747EDAB6B9C019503FEAA16C349F5A6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +584,8 @@ Thimbleweed Park 1.0.10 [Ru]
 magnet:?xt=urn:btih:82CFC35D0286929177651D1B623B1FB71323F1B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ Children of Morta — сюжетная action RPG с roguelite-подходом 
 magnet:?xt=urn:btih:8466CE4F2E077017F45D299DA3097E717A7C3D29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ Stone Age: Digital Edition 1.2.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:D29CCB129F7C415E7B8E35018DF219C471CDE8FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ Alawar и Warm Lamp Games представляют квест Beholder. Стил
 magnet:?xt=urn:btih:CB312F384FB193A1F3A335B9165B5E0F7130C2C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ LUNA The Shadow Dust — это полностью вручную анимиро
 ```bash
 magnet:?xt=urn:btih:647483E98E7A129176F35EF169AA304DDB33A3AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

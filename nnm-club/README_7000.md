@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:E60FB13AC52EF977432BAE3F3B2613F9976E811E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:E60FB13AC52EF977432BAE3F3B2613F9976E811E
 ```bash
 magnet:?xt=urn:btih:888C5889FDC6495DAE5B9E7810F29F9C568F235C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ DISC 3Жанр: Electro House, SynthpopПродолжительность: 3 CD,
 magnet:?xt=urn:btih:D26022E45278D6927CCF746A0F4EA2695A113CEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ BELOFF [dp] 2022.10
 magnet:?xt=urn:btih:77811E0B5E5B3BDCF51348E03F4191C8D9DEC325
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:77811E0B5E5B3BDCF51348E03F4191C8D9DEC325
 magnet:?xt=urn:btih:8521BA0086438CFD1B0C5E99450D1469606CA5CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Death Trash - изометрическая RPG в мире постапокал�
 ```bash
 magnet:?xt=urn:btih:9BE60E6B26399BE8E7C3E5164A2873DD98AFF312
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Joplin - это бесплатное приложение для создани�
 magnet:?xt=urn:btih:DC382110501E3015DC4BE5BBE4C677904881C22B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:DC382110501E3015DC4BE5BBE4C677904881C22B
 ```bash
 magnet:?xt=urn:btih:ED48A46AF84287589E129DB9371754933055E4B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:ED48A46AF84287589E129DB9371754933055E4B6
 magnet:?xt=urn:btih:5BF29073BA1ED660BFB4D45004E981FF40D58595
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:5BF29073BA1ED660BFB4D45004E981FF40D58595
 ```bash
 magnet:?xt=urn:btih:77B9CAEDF41E0152594DDE985519967AC94B4688
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:77B9CAEDF41E0152594DDE985519967AC94B4688
 magnet:?xt=urn:btih:0D422217A157F6DDF18C97E478C63765C619FD16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:0D422217A157F6DDF18C97E478C63765C619FD16
 ```bash
 magnet:?xt=urn:btih:BA0652BF69B30ADC46B5CAEBDC9FF15F87577859
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ The Quarry (2022) [PS4] [USA] 5.05 [HEN] [License / 1.04 / DLC] [Ru/Multi]
 magnet:?xt=urn:btih:E4BCB4538936AF3471617EBDA78A8E9633A3D424
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Aiseesoft FoneLab for Android — это популярный инструмен
 ```bash
 magnet:?xt=urn:btih:4913A1B928A5C5FE0A4A1F2B39F1B9BEBF390C59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ VA - On The Radio - 00s (2023) [MP3|320 Kbps] <Synthpop, R&B, Rhythm & Blues, Ro
 magnet:?xt=urn:btih:5BC076C8A5ADEECBCAD1C33BF867F014CA9E0330
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:5BC076C8A5ADEECBCAD1C33BF867F014CA9E0330
 ```bash
 magnet:?xt=urn:btih:94CCEEF22D51469EE35648B55B25A8BB4FC46516
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:94CCEEF22D51469EE35648B55B25A8BB4FC46516
 magnet:?xt=urn:btih:162CA9AF365E98282178B1EE8BD6B33E5EE4FEF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:162CA9AF365E98282178B1EE8BD6B33E5EE4FEF9
 ```bash
 magnet:?xt=urn:btih:F7E5B177F911B2D76BDC36991E76C3B0B25DCD07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ Filschool, Софья Филиппова | Курс по веб-дизайну �
 magnet:?xt=urn:btih:58297FC66980437444E1C3CF88288C16ED51F15F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:58297FC66980437444E1C3CF88288C16ED51F15F
 ```bash
 magnet:?xt=urn:btih:2B825264EF0E19959AE4E9ABE431D18DA6E934BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ Music Collection - неплохая программа для создания �
 magnet:?xt=urn:btih:2011467BA6258EE010ABABECD1382314C891AC74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ KStars - бесплатное, с открытым исходным кодом, 
 ```bash
 magnet:?xt=urn:btih:D3D21EF5D96F637D83D1AB75B4EC48E119C4B0A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +608,8 @@ magnet:?xt=urn:btih:D3D21EF5D96F637D83D1AB75B4EC48E119C4B0A1
 magnet:?xt=urn:btih:3E67AD9E8FB63E4F116825EE4C6B343F1A2BFACF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ BitComet - это функциональный, быстрый и простой
 magnet:?xt=urn:btih:30713D1B3F653646C1BF437C7FBDFBE2A48F5903
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ magnet:?xt=urn:btih:30713D1B3F653646C1BF437C7FBDFBE2A48F5903
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +687,8 @@ Sweet Home 3D – замечательная программа для созд�
 ```bash
 magnet:?xt=urn:btih:D0E765BED47BC354F0824313A36B992C0AD347C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

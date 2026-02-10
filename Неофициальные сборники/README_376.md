@@ -1,3 +1,32 @@
+###  Публикация: 1544278   (622002) от 15.04.2022
+
+VA - Beatport Deep House: Sound Pack #512 (2022) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622002.jpg" />
+</div>
+
+
+###  Подробнее
+
+В очередном релизе слушателя ждёт не на один час погружение в море размеренной и мелодичной музыки в стиле Deep House. Это богатый мир музыки, в котором не сложно потеряться и не заметить течения времени. Красивые аранжировки, прогрессивный саунд и мягкое выделяющееся звучание не оставят равнодушным ни одного уважающего себя фаната электроники.001. Solonto Soles - Scolder
+002. Tahir Jones - Burning In My Soul
+003. Rousing House - Sense Of Vacation
+004. Robert Kuo - Favela(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5D8CB33DD5441AB8685A0DBA07A73194716E536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229837   (622423) от 08.06.2018
 
 VA - Шансон 2018 (Лучшие песни года) [MP3|256-320 Kbps] <Шансон>
@@ -21,6 +50,8 @@ VA - Шансон 2018 (Лучшие песни года) [MP3|256-320 Kbps] <Ш
 ```bash
 magnet:?xt=urn:btih:8D356CE945818BB17DE4BB8A4B26B6920DD1242E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Bass Killer 15 (2018) [MP3|320 Kbps] <Dubstep, Trap, Electro House, Big Roo
 magnet:?xt=urn:btih:584ED0D79D646182E6CA0B20343B22366450EC77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Zen Relaxation and Serenity Music: Bien-Etre Anti-Stress Evasion Relaxation
 ```bash
 magnet:?xt=urn:btih:CB057C27673D9F3DF90545A9351A537DEA900DC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Empire Records - Stadium 7 (2018) [MP3|320 Kbps] <Hardstyle, Hard Trance>
 magnet:?xt=urn:btih:E99DFEED4712FAAE20FDEABA0604DCD5353F0BD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Empire Records  - Stadium 2 (2018) [MP3|320 Kbps] <Hands Up, Big Room>
 ```bash
 magnet:?xt=urn:btih:30904BD63E6F3E2060C49CAEE02FF23F8CE17E63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +202,8 @@ VA - Блатной Музон В Машину (2012) [MP3|256 кб/с]<Chanson>
 magnet:?xt=urn:btih:6D06E6E5F6821FD894F47E877B8ECD9F08493F84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +230,8 @@ VA - Festival Alfa Future People (2016) [MP3|320 Kbps] <Trance, House, Club>
 ```bash
 magnet:?xt=urn:btih:272B65138336BF58C403760A1B220A5E32804511
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +260,8 @@ VA - Душевный Шансон Для Двоих (2016) [MP3|256 Kbps] <Ша
 magnet:?xt=urn:btih:65183B9491B74E0E466D23B09D9F60E271D348EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +288,8 @@ VA - Ultra Festival Live Life Anthems (2016) [MP3|320 Kbps] <House, Electro Hous
 ```bash
 magnet:?xt=urn:btih:3598BB084AAD8902935F45B6478214416DF48790
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +318,8 @@ VA - Hot Summer Workout Hits (2016) [MP3|320 Kbps] <House,Disco,Electronica>
 magnet:?xt=urn:btih:031BB4F451F38DBD9178BB46FCABEA4759AAC588
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +347,8 @@ VA - Empire Records - Stadium 3 (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:1F65B6A8B8EF50E285247AE94669C89D4A554F99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +375,8 @@ VA - Ham!d Production June (2016) [MP3|320 Kbps] <House, Trance, Dance>
 ```bash
 magnet:?xt=urn:btih:660F365451BC09E3467443801191FC36C804E09F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +411,8 @@ VA - Золотой Курортный Хит Сезона (2012) [MP3|256 кб/
 magnet:?xt=urn:btih:35A57CBA922182BF7D63A828CB3408B76F97920F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +439,8 @@ VA - Дискотека 2017 Dance Club Vol.165 от NNNB (2017) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:485B16AA5B65062E18891C776B68DD1335EFC460
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +475,8 @@ VA - Top 55 Tracks For Cars 11 (2012) [MP3|320 кб/с]<Electronic, Club, Electr
 magnet:?xt=urn:btih:97CC66B07F43F953FD030849C4311A3420AD194D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +510,8 @@ VA - Новинки танцполов 6 50/50 (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:04B5C4AFEA4865BC8BAB5A9A494271F596B382AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +538,8 @@ VA - My Favourite Hits of 1980 (12CD) (2014) [MP3|320 кб/с]<Disco, Pop, Synth
 ```bash
 magnet:?xt=urn:btih:2435E538E6557B39AF050B7438A730579E4D5920
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +574,8 @@ VA - Really Best Music 2012 (2012) [MP3|256-320 кб/с]<Electronic, House, Elec
 magnet:?xt=urn:btih:4CFDAB280324604B45B65D4B2E7F88C8E6AA4417
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +609,8 @@ VA - Summer Club Energy (2012) [MP3|256 кб/с]<Club>
 magnet:?xt=urn:btih:199A429AC79E0B2FE8A2E59ADD9FAECDEB263F1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +637,8 @@ VA - Новинки Русского Рока. Выпуск 3 (2015) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:6B661571552B4FA396949694DC90DFB545BBE295
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +667,8 @@ VA - Новинки Русского Рока. Выпуск 2 (2015) [MP3|320 к
 magnet:?xt=urn:btih:1B45C343F58259B24CD301544FB00EF65B50F6E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +695,8 @@ VA - Hot Dance Summer (2017) [MP3|320 Kbps] <Club, Dance>
 ```bash
 magnet:?xt=urn:btih:3CEF17A26B5FE36DF1BC6474322C31F04EC601BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +725,8 @@ VA - German Top 100 Single Charts 15.04.2019 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:44DA572F8806F45EEC542E949C5F5FAD6D98E7C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,6 +753,8 @@ VA - Презент От Радио Европа Плюс (2016) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:BC068073CAFB836318020CF772FBBCAB898E1E7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -706,32 +783,7 @@ VA - Любимая Музыка Для Твоей Тачки 50x50 (2016) [MP3|
 magnet:?xt=urn:btih:98007D2278EE25F45CF0FA5A19FC33865FF01FEF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229718   (624445) от 07.06.2018
-
-VA - Billboard Hot 100 Singles Chart 09.06.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624445.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Drake, Big Freedia, 5thward Weebie - Nice For What
-002. Post Malone - Psycho (feat. Ty Dolla $ign)
-003. Drake - God's Plan
-004. Childish Gambino - This Is America(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6305871983686AFB187183C07C0E0469E581E8C5
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:CEFC77AB2A1D8C6C64D3C5D090B05D30FC681547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Lumote: The Mastermote Chronicles (2022) [Ru/Multi] (1.5.3-rc5) License GOG [Dig
 ```bash
 magnet:?xt=urn:btih:96340663F4A5CB7D1626055A29EBBCC63509D63C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Blow Up работает с Photoshop, Elements, (   Читать дальше.
 magnet:?xt=urn:btih:C84FAF1F6878DA624A3C789A1BBB4BD83F54942E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:C84FAF1F6878DA624A3C789A1BBB4BD83F54942E
 ```bash
 magnet:?xt=urn:btih:B9070EB900B7AAFD4724AD691F83AD72E86E331E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ PhotoSweeper — отличный способ поиска дубликатов
 magnet:?xt=urn:btih:3B9F519CED3BE0801DD82FFE8BE1CE95709CE2F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:3B9F519CED3BE0801DD82FFE8BE1CE95709CE2F6
 ```bash
 magnet:?xt=urn:btih:966E485248B16F3C58932333606B7629847D1082
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Danzig — американская метал-группа, смешивающ�
 magnet:?xt=urn:btih:9DECC7B09715B5ECA90511A43FA253427D4391FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ Molekh - Ritus (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-garde Black Metal>
 magnet:?xt=urn:btih:DB42A4156A038F13907F456AA5C5387E3E6332F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ ExpanDrive 7 v7.7.8 [En]
 ```bash
 magnet:?xt=urn:btih:7ED8B4FAAE3387652A43933DA6E574A67FAEFFD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ Condenados - El Camino de la Serpiente (2023) [MP3|320 Kbps] <Heavy Rock, Doom, 
 magnet:?xt=urn:btih:5E6B675779CEB06212B15FE9BA4D5E8B6F0B8BB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ Supernova Plasmajets - Now Or Never (2021) [FLAC|Lossless|image + .cue] <Hard Ro
 magnet:?xt=urn:btih:AAACE2376C9A56C0A1EBA4F5CDB4D8D1E25A3AAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:AAACE2376C9A56C0A1EBA4F5CDB4D8D1E25A3AAE
 ```bash
 magnet:?xt=urn:btih:9A3F7051C030122E713DD8D446483E97639AD6E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ Alcotopia - It Hits the Spot (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
 magnet:?xt=urn:btih:F1A7611877C63407EC93C022C84DD301C0611783
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ The Answer - Sundowners (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 magnet:?xt=urn:btih:BA688A13B6BBE5A9E9F49473453585158A744F76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ magnet:?xt=urn:btih:BA688A13B6BBE5A9E9F49473453585158A744F76
 ```bash
 magnet:?xt=urn:btih:066EF8D5C3B24377B49EEA2DF58E382E6FB52578
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +437,8 @@ Czakan - State Of Confusion (1989) [FLAC|Lossless|image + .cue] <Hard Rock>
 magnet:?xt=urn:btih:EEEE63EDF4B9DB7CE8BBA2E8ABEB83D25E141172
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +466,8 @@ VA - Trance Dance (2023) [MP3|320 Kbps] <Trance, Progressive, Breaks, Melodic>
 magnet:?xt=urn:btih:57BC81A89FB259DC1F83637C91A226D84BB43F96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +491,8 @@ Bulk Photo Watermark для Mac наносит на ваши фотографи�
 ```bash
 magnet:?xt=urn:btih:EFD1DB89D724B10EE97EF6F52E02CF764E2A9BE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +519,8 @@ Dato поддерживает все языковые стандарты и яз
 magnet:?xt=urn:btih:142C5E43F62C372742715FEEE393A1D5BE5FC9CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:142C5E43F62C372742715FEEE393A1D5BE5FC9CE
 ```bash
 magnet:?xt=urn:btih:C9436BA8AEB1E270B10D32BDB52F30F0ADACE74E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ magnet:?xt=urn:btih:C9436BA8AEB1E270B10D32BDB52F30F0ADACE74E
 magnet:?xt=urn:btih:ECEBFF653C8B4EFDE58D6BCFE8E33275B22CAEED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:ECEBFF653C8B4EFDE58D6BCFE8E33275B22CAEED
 magnet:?xt=urn:btih:D132387EFD49F9D7032924E6BE6D6D1C6C7C5EB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ magnet:?xt=urn:btih:D132387EFD49F9D7032924E6BE6D6D1C6C7C5EB2
 ```bash
 magnet:?xt=urn:btih:62FCC28B1D4B2ABA57CE3DD704C395BA0C469DB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ magnet:?xt=urn:btih:62FCC28B1D4B2ABA57CE3DD704C395BA0C469DB9
 magnet:?xt=urn:btih:BFCE4DD6A5E1CFEAB45AA742CD2BC72A2BDDE1BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +680,8 @@ magnet:?xt=urn:btih:BFCE4DD6A5E1CFEAB45AA742CD2BC72A2BDDE1BB
 magnet:?xt=urn:btih:D87C8263886A3594F8E793E65065BB84BBB2C854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ MacMagic может помочь очистить гигабайты диско�
 ```bash
 magnet:?xt=urn:btih:4730008AAE0EBD572CB2A89B14E8824D95E3857F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

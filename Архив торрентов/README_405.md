@@ -22,6 +22,8 @@ Richie Hawtin (F.U.S.E., Plastikman) - коллекция (1990-2012) [MP3|128-3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ RescuePRO Deluxe позволяет восстанавливать изобра�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ WinRar – одна из самых распространенных прогр�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Euro Truck Simulator [Wineskin] [Eng]
 magnet:?xt=urn:btih:A283149DCC036A4A02E59694C3AA24E86C2EE613
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:A283149DCC036A4A02E59694C3AA24E86C2EE613
 ```bash
 magnet:?xt=urn:btih:42A7EF444136AE8DC6299D66212807BE7A295F59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Java Runtime Environment - исполнительная среда создан�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Whisky c молоком (2010) DVDRip
 ```bash
 magnet:?xt=urn:btih:1B6CEEC85A8478B4CC6C608D9AFC7668B30E3CB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ System Explorer - диспетчер задач для Windows. Функцион
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Freemake Video Converter – это удобное, бесплатное при�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Freemake Video Converter – это удобное, бесплатное при�
 magnet:?xt=urn:btih:9BFF54FE236BE3FF3863EBDE93C852FC888E4869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:9BFF54FE236BE3FF3863EBDE93C852FC888E4869
 ```bash
 magnet:?xt=urn:btih:CB55A437B9CC7236EEA514B125DF56A6A80A3CC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ WinISO Standard - программа предназначена для рабо�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ WinISO Standard - программа предназначена для рабо�
 magnet:?xt=urn:btih:1EBEF5288D651EED206F258383685E056E96D251
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:1EBEF5288D651EED206F258383685E056E96D251
 ```bash
 magnet:?xt=urn:btih:9A2A24341E33851672A392A937F9E2E10BE8AA71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:9A2A24341E33851672A392A937F9E2E10BE8AA71
 magnet:?xt=urn:btih:46A7A89F92181ED89D7C81ECA1911C18B2B5B509
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:46A7A89F92181ED89D7C81ECA1911C18B2B5B509
 ```bash
 magnet:?xt=urn:btih:91C98DE03C7614B49FEFE5ACD49EF3121E5B098C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ Natsume Yuujinchou Shi / Тетрадь дружбы Нацумэ [ТВ-4] [2012
 magnet:?xt=urn:btih:5E62F8ADC9561C90F2E9E87A463113AFCAF081DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:5E62F8ADC9561C90F2E9E87A463113AFCAF081DE
 magnet:?xt=urn:btih:0CAE82F6365BF90141A94D416FB7477180F2AAAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ BitTorrent - клиентская программа пиринговой сет
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ BitTorrent - клиентская программа пиринговой сет
 magnet:?xt=urn:btih:2260F04D1E26B7FAA8CC6727AD6C8C5AD63041B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:2260F04D1E26B7FAA8CC6727AD6C8C5AD63041B9
 ```bash
 magnet:?xt=urn:btih:74F851539025EA6E268BE88ECF5DD40473D1F8CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:74F851539025EA6E268BE88ECF5DD40473D1F8CC
 magnet:?xt=urn:btih:A0617556D17842F8D066419F2A5AC0DD6DCDC4AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:A0617556D17842F8D066419F2A5AC0DD6DCDC4AA
 ```bash
 magnet:?xt=urn:btih:F574FFCABBD97A8A6940423E3DDF1DBBF94AEB62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:F574FFCABBD97A8A6940423E3DDF1DBBF94AEB62
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ Kubuntu 10.04.4 LTS [i386 + x86_64] (2xDVD)
 magnet:?xt=urn:btih:6119D41463615A24D1B1512DEB61600644396B74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Skype - бесплатное проприетарное программное �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

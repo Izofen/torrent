@@ -22,6 +22,8 @@ Lover Under Cover - 2 альбома Collection (2012-2014) [FLAC|Lossless|track
 magnet:?xt=urn:btih:766C6F5E3E0F6AF1768F8E0CE9BAD8DC3AA248D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:766C6F5E3E0F6AF1768F8E0CE9BAD8DC3AA248D6
 magnet:?xt=urn:btih:C393809F2C5448FD895329CF4969DB64677A6AC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:C393809F2C5448FD895329CF4969DB64677A6AC3
 ```bash
 magnet:?xt=urn:btih:88090A34C10FB0D7EEAD19EBED4CF80589DA25E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Mac, как правило, считается безопасным и наде�
 magnet:?xt=urn:btih:F78ADDF539BAE1538F1D5FBAEF93A920AE243089
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:F78ADDF539BAE1538F1D5FBAEF93A920AE243089
 ```bash
 magnet:?xt=urn:btih:6CC3D468392F7C86E89ADF63A40662C43FFB2A63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Baltra - No Regrets (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House
 magnet:?xt=urn:btih:EBFE8AA468DC3FBFF2A35347A9E6144397A28B0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ VA - Inner Balance: Chillout Your Soul 4 (2017) [MP3|320 Kbps] <Downtempo, Chill
 ```bash
 magnet:?xt=urn:btih:A10A3CC8A6F8A5C86343B81063C35F11F02ED6CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ VA - Project Deep House: Sky Flower Mixtape (2017) [MP3|320 Kbps] <Deep House, E
 magnet:?xt=urn:btih:FEFF2006A1435596F6E8FC24FC8E9C405A20A440
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ Sinne Eeg - Waiting For Dawn (2007) [FLAC|Lossless|image + .cue] <Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:3ADC4776070E7B9336995FDDC5F211C294C908C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ magnet:?xt=urn:btih:3ADC4776070E7B9336995FDDC5F211C294C908C5
 magnet:?xt=urn:btih:BE733634D2AC30F4FD29F6D6488834A9E044207B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ VA - The Best Of Chill Out: December (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:D7EC81C7F9878DFB07670FEDFC9710BF0341EC10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +330,8 @@ Adrena Line - Live @ Birthday Party DJ Novicky (Club Level, Swidnica, Poland) (2
 magnet:?xt=urn:btih:88C9643E2D342E98230F4F70E8E90FFFB2E1000B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +358,8 @@ VA - Offline Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:ADA8FE762DAE8A7EB148C2BD905F17AE76027526
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +388,8 @@ VA - AVA Recordings - Best Of (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:5D8765145DA68C2044BA2B77734507917ED9943B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +416,8 @@ magnet:?xt=urn:btih:5D8765145DA68C2044BA2B77734507917ED9943B
 ```bash
 magnet:?xt=urn:btih:7629E0AAA7409C2896BDB95ABD009F57B9CBD1E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +446,8 @@ Count Basie And His Orchestra - 88 Basie Street (1983) 1994, Original Jazz Class
 magnet:?xt=urn:btih:CE4054B82813C5E8628C5110577851C4126678E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +474,8 @@ VA - Tech Trance Essentials Vol.10 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:5EDA122B9AE8DB87A6463F1F204B8950040518D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +504,8 @@ VA - Suanda Music: Track Of The Week - Best Of (2017) [MP3|320 Kbps] <Trance, Up
 magnet:?xt=urn:btih:4482186CF0C53EE058C1F76C34E3657C3908E399
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +532,8 @@ Aldo Romano - Melodies En Noir & Blanc (2017) Le Triton [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:1DB8D8817BF41EBDC1C24D5D51A2BB76DB75F09F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +562,8 @@ VA - The Sound Of Trance Vol.07 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 magnet:?xt=urn:btih:60AF077FEB84FC391DAE7692B47826F28CE9B3D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +590,8 @@ magnet:?xt=urn:btih:60AF077FEB84FC391DAE7692B47826F28CE9B3D5
 ```bash
 magnet:?xt=urn:btih:0CE201B7E76FAE7C9BD343123979C08E35FF92FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +620,8 @@ VA - Damaged Records - Best of 2017 [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:D382E9C2ED7D72175368579D9045CC804475965A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +648,8 @@ VA - Tranceiology: Trance Music Contest (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:6E21EB5C4DA23C9B81A1E59E879FBAF0B1DDAB83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +678,8 @@ magnet:?xt=urn:btih:6E21EB5C4DA23C9B81A1E59E879FBAF0B1DDAB83
 magnet:?xt=urn:btih:54B2B12176BE16D85659BCD745727155336A5926
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +703,8 @@ magnet:?xt=urn:btih:54B2B12176BE16D85659BCD745727155336A5926
 ```bash
 magnet:?xt=urn:btih:E662092B4A1E133C08FA9FBC335F69CEAAF6C780
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -681,6 +731,8 @@ Movist является простым в использовании и мощн
 ```bash
 magnet:?xt=urn:btih:7133F762DECE2494480A1C4A771B05B384AB5255
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

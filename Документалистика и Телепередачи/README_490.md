@@ -1,3 +1,29 @@
+###  Публикация: 1536863   (672441) от 13.03.2022
+
+Воскресный вечер с Владимиром Соловьевым (13.03.2022) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы ставили задачу сделать программу для умного, неравнодушного зрителя, которая позволит обсуждать актуальные проблемы в разных форматах: от интервью "один на один" до "круглого стола". Надеемся, она будет такой же острой, как политическое ток-шоу "Поединок". Но если в "Поединке" сталкиваются две полярные точки зрения, то здесь (   Читать дальше...   )Телекомпания: РоссияЖанр: Политическое ток-шоуПродолжительность: 01:58:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D746C7E42D50331A55C92724798F1355B7805FF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 74168   (672526) от 23.05.2017
 
 Корпорация / The Corporation (2003) DVDRip
@@ -19,6 +45,8 @@
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@
 magnet:?xt=urn:btih:599EFF4ADC2A95EE53AD5768FB09900856EEF727
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:599EFF4ADC2A95EE53AD5768FB09900856EEF727
 ```bash
 magnet:?xt=urn:btih:93B12CFFB304DA8885977DC8A48F27F72C75A4B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:93B12CFFB304DA8885977DC8A48F27F72C75A4B6
 magnet:?xt=urn:btih:CF0064E8542CE9836FC6643F50E5E497F31D1000
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:CF0064E8542CE9836FC6643F50E5E497F31D1000
 magnet:?xt=urn:btih:F1DE60486C21BB2A04461F815E77296C5C9673DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:F1DE60486C21BB2A04461F815E77296C5C9673DC
 ```bash
 magnet:?xt=urn:btih:90F73D6796E9301496D873DDE78CF67D34B03E10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:90F73D6796E9301496D873DDE78CF67D34B03E10
 magnet:?xt=urn:btih:10E2B5EDAE1CE5F2127C2549353126D70E9E84E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:10E2B5EDAE1CE5F2127C2549353126D70E9E84E4
 ```bash
 magnet:?xt=urn:btih:3F27BF79DBCC92AE26CD7B410ACD58B35AFCE012
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:3F27BF79DBCC92AE26CD7B410ACD58B35AFCE012
 magnet:?xt=urn:btih:1ED7F9CA2DD68CDE81C47A61B4294E995A70A24F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:1ED7F9CA2DD68CDE81C47A61B4294E995A70A24F
 ```bash
 magnet:?xt=urn:btih:A9DFB4D38625F933B9BD728A53C2EE27E514313E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:A9DFB4D38625F933B9BD728A53C2EE27E514313E
 magnet:?xt=urn:btih:1214F458794058459532F5E6291AAC999E330105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:1214F458794058459532F5E6291AAC999E330105
 ```bash
 magnet:?xt=urn:btih:509CFE2D477A6446499EFFDA2B4DEB7D9BBD8E78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:509CFE2D477A6446499EFFDA2B4DEB7D9BBD8E78
 magnet:?xt=urn:btih:185960AE36579863E3E91D4974464D325E9CAC87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:185960AE36579863E3E91D4974464D325E9CAC87
 ```bash
 magnet:?xt=urn:btih:011F6829A6F137AC421D28AEF3EBA29A8C8C0E82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:011F6829A6F137AC421D28AEF3EBA29A8C8C0E82
 magnet:?xt=urn:btih:2C854E5D4ACABA420C090F0B91391BC6750C9E78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:2C854E5D4ACABA420C090F0B91391BC6750C9E78
 ```bash
 magnet:?xt=urn:btih:421AE10CC36BD25371460DD1AF3AC73E9B097E75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:421AE10CC36BD25371460DD1AF3AC73E9B097E75
 magnet:?xt=urn:btih:782C5D1989E943759D371B704C4B98EB43D4ECC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:782C5D1989E943759D371B704C4B98EB43D4ECC8
 ```bash
 magnet:?xt=urn:btih:07CE0612FBEEB1D89A7D4C49902625FDB228E4AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:07CE0612FBEEB1D89A7D4C49902625FDB228E4AF
 magnet:?xt=urn:btih:331918923B86496542458F3DDDA9AFDAE238C7B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +542,8 @@ BBC: Космический челнок. Разведчик горизонта 
 ```bash
 magnet:?xt=urn:btih:C53F9D6458061EA2336C895DA2F97F7127280683
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:C53F9D6458061EA2336C895DA2F97F7127280683
 magnet:?xt=urn:btih:192DF35CD88A8049AC04447854E0DC687DD9E3B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:192DF35CD88A8049AC04447854E0DC687DD9E3B0
 ```bash
 magnet:?xt=urn:btih:FDA26E936CD47B7AB2D80CC3C0BF3554A7C78388
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:FDA26E936CD47B7AB2D80CC3C0BF3554A7C78388
 magnet:?xt=urn:btih:94CAE100E209B995B23501CE6F91B9BBE2505EE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:94CAE100E209B995B23501CE6F91B9BBE2505EE0
 ```bash
 magnet:?xt=urn:btih:252210717B466E52C6AEA2CC201BA161394C970C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:252210717B466E52C6AEA2CC201BA161394C970C
 magnet:?xt=urn:btih:ED739B32949B7E91611D1C32B8ADF6F603EEBAE7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136286   (674754) от 22.05.2017
-
-Дикая природа Словакии / Wild Slovakia (2015) SATRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Богатством и разнообразием флоры и фауны Словакия обязана уникальной природе с древними лесами, низменными поймами и обширными лугами, простирающимися до самых живописных Татр.Производство: Германия, Наутиус фильмЖанр: Документальный, природа, флора, фаунаРежиссер: Ян ХафтПеревод: Одноголосый закадровый, профессиональный (СВ Дубль)Субтитры: отсутствуютПродолжительность: 00:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEB6A90A9B2B8BCF76E9659BC52737228F352235
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Smuta / Смута (2024) [Ru] (2.1.0/dlc) Repack Other s
 magnet:?xt=urn:btih:04475076F58152BFEBE4F7D1CBA79F0DC4DA98B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Alters (2025) [Ru/Multi] (1.0.1.46) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1DBB492FC235DB7F96F82FBE6A60605DFBA74DDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Geometry Dash - аркадная 2D-игра, нацеленная на хард
 magnet:?xt=urn:btih:77EFDFDACD2A9F8A568D6DF18DFE1FA37B58C371
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Oxygen Not Included (2019) [Ru/Multi] (U56-674504-SCR/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5922B2D5F781E75CA2AE3C875A886DFCE91AC462
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Outlast (2013) [Ru/En] (1.0.12046.0/dlc) Repack EXROW
 magnet:?xt=urn:btih:7D4680E09C30004F257339848EB3F932CDC37867
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Mortal Kombat: Komplete Edition — полное издание аркадног
 ```bash
 magnet:?xt=urn:btih:979044012C994E3F8639D1986BCDC24C78452C2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Northgard (2018) [Ru/Multi] (3.7.26.42112/dlc) Repack FitGirl [The Viking Age Ed
 magnet:?xt=urn:btih:483A58C8E77F98B3BAAF70DF55B570DBCFFBFBFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Loco Motive (2024) [Multi] (1.0.5a) License GOG
 ```bash
 magnet:?xt=urn:btih:C1B1C72BA0B23CDD59050B059AC7D4B5A5741FA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Last Guest (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:DC95FB57869D8609D853AD134195517F77AD7634
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Scene Rune [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:7A19CFB4ACEE50D13FE252160C44B9AAEC9513EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Mindseye (2025) [Multi] (4598223/dlc) Scene Rune
 magnet:?xt=urn:btih:1EAC0C2897E732787738978643D96016C4249B9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Repack seleZen [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:EE1303DA3D306B76EF9ABB24AA3D50A512313961
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Roboquest - это динамичный рогалик от первого ли�
 magnet:?xt=urn:btih:99F8800A34386678C4BDAD7033FA2C615B96DA19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ BlazBlue Entropy Effect - двухмерная приключенческая и
 ```bash
 magnet:?xt=urn:btih:C59A309DEEADB5CE981CCB296D7583C6A89EFEAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Mind Echoes 2: Remnants of the Past / Эхо разума 2: Отголоски 
 magnet:?xt=urn:btih:8C61D6CFFD70B539B0E1B00E8D59C927CD802D8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ SeaOrama: World of Shipping - это игра, в которой вы окаже
 ```bash
 magnet:?xt=urn:btih:F5D6F40D021A5F12B9EBB5817670A4F023991069
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ V Rising (2024) [Ru/Multi] (1.1.9.0-r92199-b5/dlc) Repack Pioneer
 magnet:?xt=urn:btih:C19D0D93400F9457E6D75F04CA1A46A60D0EC3F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Way of the Hunter (2022) [Ru/Multi] (1.27/dlc) Repack seleZen [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:CA6769B3098B8262C07A1B8CDF88838ED389E915
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Wrap House Simulator ставит игроков во главе их собст
 magnet:?xt=urn:btih:29F0431F924349C3C3E4FC45300E90BE2694BD26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Fable Hospital (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3E0F92D4C2E6F07C0DF2C287B29D50B756EB13D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Astro Colony – симулятор с элементами песочницы, 
 magnet:?xt=urn:btih:30994CB11EC03898651143C34B28BE0922583285
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Rosewater (2025) [Multi] (1.05.0) License GOG
 ```bash
 magnet:?xt=urn:btih:8206C88FE4D9F7805A34B23C547A48C8D2DD0DE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Old Skies (2025) [En] (2.0a) License GOG [Deluxe Edition]
 magnet:?xt=urn:btih:75BCF98AFFCD6468BB7C187CCF8454B4D9FC4BED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Book of Aaru (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:BDA7E41D43384A4EBF7F3C213BC96E3E65EE03E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Death and Taxes (2020) [Ru/Multi] (1.2.59) License GOG
 magnet:?xt=urn:btih:16907A51D370BDF9EF1D561585992D3DE57D4975
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Broken Sword - Shadow of the Templars: Reforged (2024) [Ru/Multi] (1.1.8.1) Lice
 ```bash
 magnet:?xt=urn:btih:AD7C4C56DCE675A281426AAD2A61F75C9990456B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

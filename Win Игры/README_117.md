@@ -19,6 +19,8 @@ The Long Dark (2017) [Ru/Multi] (2.12.148383 S/2.39.149246 S/dlc) Repack Other s
 magnet:?xt=urn:btih:76750896B82FAD0FEDB4F954A8409F844AC48890
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Nine Sols (2024) [Ru/Multi] (202412161711) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:89A77DDEBEA373444E81ECE9F2A5ABF5616DB1FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Marvel’s Spider-Man: Miles Morales (2022) [Ru/Multi] (3.617.1.0/dlc) Repack se
 magnet:?xt=urn:btih:988E4DF01ABF452848A94C5587430ECC21DEE7DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Generation Zero (2019) [Ru/Multi] (2901094/dlc) Repack Pioneer [Ultimate Bundle]
 ```bash
 magnet:?xt=urn:btih:460A988C9CE5FC78D4A20F0E0A3DF04CB26CD9B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Iron Oath – это ролевая фэнтезийная игра с та�
 magnet:?xt=urn:btih:F36D6975AF2D19AAC149233AB692EABE9237F3DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ HROT - шутер от первого лица, выступающий наст�
 ```bash
 magnet:?xt=urn:btih:5315576BD78F7BD0B28914E5F086E01303C797BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Kong: Survivor Instinct - это 2.5D экшен-платформер, дейс�
 magnet:?xt=urn:btih:263970F52CAEA6B9D23E0CB2EFD19C8354CA3A26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Christmas Stories 13: Clara and the Guiding Star (2024) [En] (1.0) Unofficial [C
 ```bash
 magnet:?xt=urn:btih:D659374A59E1D5F795B09A166328B242B4979622
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Neva (2024) [Ru/Multi] (1.2.0) Repack Let'sРlay [Deluxe Edition]
 magnet:?xt=urn:btih:00A724317EC57E4B677822AA7B98A8566B927485
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Hannah - это трехмерный платформер с головолом�
 ```bash
 magnet:?xt=urn:btih:303990F667E0E38CE372858E58E725CDF207F725
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.22.68871.33/dlc) Repack Let'sРla
 magnet:?xt=urn:btih:9BB10653A0146915FF6551C8915933E76ED6337D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Anarchy: Wolf's Law / Анархия: Волчьи законы (2023) [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:0B203C045C171E9A33876BF4FE0EE43F49230A73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Fritz Powerbook 2025 содержит 25 миллионов дебютных п�
 magnet:?xt=urn:btih:8D8B0A36D809F2D736CD72BCFEE534D31472147B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ DETECTIVE - The Motel (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C8C22CD4645D1AFF24B64AB274530E13065897D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Neptunia Game Maker R:Evolution переносит игроков в альте�
 magnet:?xt=urn:btih:C713BC218180531BF87E700FB359B03FBA8E30BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Oxygen Not Included (2019) [Ru/Multi] (647408/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:E20854EC6C61CFBD94C3B956675B11B770107626
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Atelier Ryza 3: Alchemist of the End & the Secret Key (2023) [Multi] (1.7.0.0/dl
 magnet:?xt=urn:btih:236F4AC50CD51B549E126C6771F75CF44BC2A0E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ DETECTIVE - The Motel (2024) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:E3748EF9CA7B64F67393A85AC88F99F390974972
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Ruined Nurse - это приключенческая адвенчура, соч�
 magnet:?xt=urn:btih:7E37E783C498B6E856F6354D63F0454AA385408F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ VOIN (2024) [Ru/Multi] (0.1.0) Repack Let'sРlay [Early Access]
 ```bash
 magnet:?xt=urn:btih:9643372B8F333CA48B68CBCF28CF2EE60A2AFB3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ WARNO (2024) [Ru/Multi] (141373/dlc) Repack FitGirl
 magnet:?xt=urn:btih:0D8068E4FC549B17C0E58925DCB700E67FBB133D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Sifu - это новая игра Sloclap, независимой студии, 
 ```bash
 magnet:?xt=urn:btih:2448CDB70BC08020770DA10366562F897C9369E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ A Quiet Place: The Road Ahead - это однопользовательская 
 magnet:?xt=urn:btih:58A8E5A1EB59304EFE3C09B1AA6A171440118E44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Forest (2018) [Ru/Multi] (1.12) Repack dixen18 [VR]
 ```bash
 magnet:?xt=urn:btih:E8AAF9FCB898120227D0DC96FBD77589F3E2284E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Mystery Case Files 27: The Riddle of Mrs. Bishop / За семью печатя�
 magnet:?xt=urn:btih:6B935F3A1D36233F123E9FF3BD400FE914E913AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ South of the Circle — эмоциональная игра с глубоким 
 ```bash
 magnet:?xt=urn:btih:0B84C662B27754FB068D79D0732A38C1BE67E84A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

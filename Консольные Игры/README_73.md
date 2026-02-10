@@ -19,6 +19,8 @@ Star Ocean: The Last Hope [PS3] [USA] [En] [3.55] [Cobra ODE / E3 ODE PRO ISO] (
 magnet:?xt=urn:btih:24C6BB534D4C8AFB21D1BF37A1EF29DC03959F09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ PES FullControl обеспечивает полную свободу перем�
 magnet:?xt=urn:btih:20122267D254B7583AAB1B9F3086FFC1906A376B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ White Knight Chronicles — это первая настоящая ролева�
 ```bash
 magnet:?xt=urn:btih:71171D27643F5344ACF7741F97C09AF9C6C96672
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Indianapolis 500 Legends позволит Вам переместиться в �
 ```bash
 magnet:?xt=urn:btih:C4C4D11EAFFB45694BB466835E7C2A70958C4FEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Metal Gear Rising: Revengeance [PS3] [USA] [En] [L] [4.31] (2013)
 magnet:?xt=urn:btih:3E8550E380BC2DCBD67DFC96C37B6A96C0AA1234
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Worms: Revolution - это взрывающаяся овца, подложенн
 ```bash
 magnet:?xt=urn:btih:1CA26E43ED576941FC1CB25B2BF488BDDFD04E2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Zuma's Revenge! (2009) [PS3] [EUR] 4.21+ [PSN] [En]
 magnet:?xt=urn:btih:0DF7BDD84C3D6236713B9F3F8341DC77AAC3BA42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Tour de France 2015 (2015) [PS3] [EUR] 4.70 [Cobra ODE / E3 ODE PRO ISO] [Licens
 magnet:?xt=urn:btih:5C2258EB53314CA191860E64C1ADFBFBCC82B6AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Nier можно посоветовать всем любителям хорош�
 ```bash
 magnet:?xt=urn:btih:B7A1C2810F2A86A6E6CD843EB56C77CD1F60D438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:B7A1C2810F2A86A6E6CD843EB56C77CD1F60D438
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Champion Jockey: G1 Jockey & Gallop Racer - спортивный симулят�
 ```bash
 magnet:?xt=urn:btih:40901C55719C110256E1C5F5CA75958854F9A773
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ MotorStorm предлагает вам принять участие в дина
 magnet:?xt=urn:btih:829792EC438E9A4C08638729A39531F903EA3DB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ inFAMOUS / Дурная Репутация [PS3] [EUR] [RUSSOUND] [3.55] [3k3y O
 ```bash
 magnet:?xt=urn:btih:14C2A9A939AFF32A2A3565D635CE3255EA142BFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ Persona 4: Arena  [PS3] [EUR] [En/Jp] [4.30] [Cobra ODE / E3 ODE PRO ISO] (2013)
 ```bash
 magnet:?xt=urn:btih:B4C8F1496DF1598698A2AE9639390CD67E9554AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ Resonance of Fate [PS3] [EUR] [En/Jp] [3.15] [Cobra ODE / E3 ODE PRO ISO] (2010)
 ```bash
 magnet:?xt=urn:btih:6455D41B5ED9CB9805AD45A8386E1119F05F783B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ Tales of Graces F [PS3] [USA] [En/Jp] [Undub] [4.01] [Cobra ODE / E3 ODE PRO ISO
 magnet:?xt=urn:btih:43C4EAD3D4B6E4552E35D8D28AB55C27E3418F6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ Eternal Sonata [PS3] [USA] [En/Fr] [2.42] [Cobra ODE / E3 ODE PRO ISO] (2008)
 ```bash
 magnet:?xt=urn:btih:04566236BEF676E7E88CE04CD117304F1157E623
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +494,8 @@ magnet:?xt=urn:btih:04566236BEF676E7E88CE04CD117304F1157E623
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +524,8 @@ magnet:?xt=urn:btih:04566236BEF676E7E88CE04CD117304F1157E623
 magnet:?xt=urn:btih:3E796C0614605A78A1630BDCDC3ECAC3F21F095E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +551,8 @@ HD-сборник Devil May Cry HD Collection предлагает лучшую 
 magnet:?xt=urn:btih:3916C21C96669C8FEB31C564D4CF456F5422CF73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +577,8 @@ HAZE [PS3] [PAL] [RUSSOUND] [2.20] [Cobra ODE / E3 ODE PRO ISO] (2008)
 magnet:?xt=urn:btih:DD3C2AC84F7576A6AD0C862FD79A4DD6B1EA45C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +602,8 @@ Wonderbook Book of Spells / Wonderbook: Книга Заклинаний [PS3] [M
 ```bash
 magnet:?xt=urn:btih:58A1BA5F40E340E26382094F0E90A5E60C882330
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +631,8 @@ Dragon’s Dogma: Dark Arisen – новая глава увлекательно
 magnet:?xt=urn:btih:D480C5C3CB8F6163AE808EF1455E6A1EFB2126D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +657,8 @@ The Walking Dead: Season Two продолжает историю Клемент�
 ```bash
 magnet:?xt=urn:btih:2CDC5F58C3DFAD66618C8163B86A820191063E72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +685,8 @@ Evoland — путешествие по истории приключенчес�
 magnet:?xt=urn:btih:8724D161F3D49B73FCF3396E1B8672BFFD5FC14B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ Hatsune Miku: Project DIVA F [PS3] [USA] [En] [3.41] [Cobra ODE / E3 ODE PRO ISO
 ```bash
 magnet:?xt=urn:btih:41DEEFE2AF80EA7C3988B6A7F2D82C3B89B043D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

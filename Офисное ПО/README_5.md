@@ -19,6 +19,8 @@ PDF Imager Pro (Repack & Portable) -  простая и быстрая прог�
 magnet:?xt=urn:btih:DD8F3464B35CB9E7F8A23789B67DB0EC0B06825A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Secure-PDF поможет зашифровать свои собственные
 ```bash
 magnet:?xt=urn:btih:5EB1804C860994E8808F2E0989D7231E7C0C88EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Microsoft Office 2013 SP1 – лучший пакет прикладных пр�
 magnet:?xt=urn:btih:6863D6586F29117FCD7DFB2D7EF1149B1F543072
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ PDF Shaper Professional 13.8 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1146F91CA73B3F72CE3B6C937F052C0174469CCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Power-user (for MS Office) Premium 1.6.1165.0 [En]
 magnet:?xt=urn:btih:A8ECE620712C8F86DF33FBEEEC4F3B6AAFF88151
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Infix PDF Editor Pro 7.7.0 RePack (& Portable) by elchupacabra [Ru/En]
 magnet:?xt=urn:btih:9192A1AE6569935D8203A21A96B5DD7A35A83A87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:1F061C91BFDC91DBE4FFF91AB22C13EEDA35D3EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Sumatra PDF — мощная, небольшая программа с прос�
 magnet:?xt=urn:btih:CE91F0D0962D30E07DF69AA0E78448AB5DECEA7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Microsoft Office 2013 – лучший пакет прикладных прог�
 ```bash
 magnet:?xt=urn:btih:AAE57AAF16D54A3E92E4B935D1637BA4DBE8B003
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Beyond Compare – мощная и одна из лучших программ �
 magnet:?xt=urn:btih:D8EE51C960FAE1919CAF1FAB68B7C51D892318FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ PDF-XChange Pro — универсальное решение для работ�
 ```bash
 magnet:?xt=urn:btih:B55705A6E839B7DBD802E2C3DF19A0C0635160EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Print Conductor автоматизирует массовую печать фа�
 ```bash
 magnet:?xt=urn:btih:752F99816A6C6EEBB146E6AAC06A009673C1B684
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ CintaNotes — это небольшое и удобное приложение 
 magnet:?xt=urn:btih:795B23282AB0DF92BB283564507A6AACB4B0E559
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ PDF-XChange Pro - универсальная программа для рабо�
 ```bash
 magnet:?xt=urn:btih:231597AE0C48596C57E6544AB6D89D4BFE8A0612
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Notepad++ - бесплатный редактор текстовых файло�
 magnet:?xt=urn:btih:CABCDCCB787DAE0FE5EBD4AA8B16FBED5BE867B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Infix PDF Editor Pro 7.7.0 RePack by KpoJIuK [Ru/En]
 ```bash
 magnet:?xt=urn:btih:3A566F6FA4E586AA3E1F43DA22564B1BD8C79F3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ Typora — это лёгкий и удобный редактор для соз�
 magnet:?xt=urn:btih:E78135420EEE4F60DE378DBAA35755FE279C12B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ Infix PDF Editor Pro 7.7.0 RePack (& Portable) by TryRooM [Ru/En]
 ```bash
 magnet:?xt=urn:btih:6AFDB0F37831B9DDF3E625E451D27A7D5E3D40D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Calcpad — бесплатное программное обеспечение �
 magnet:?xt=urn:btih:74FA72904514A56E0AA51817F40700150FD62079
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Keyman 16.0.141 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:37314FFAF68E2833828E995A1C91416CA034662D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ Epubor Ultimate 3.0.15.425 [En]
 magnet:?xt=urn:btih:1E26EB5DFBD658A94AAC98507738DDE542D2DC61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ novaPDF Lite 11.8 сборка 411 [Ru]
 ```bash
 magnet:?xt=urn:btih:A5C81121E2AFE466C5726B52904DD2B0382C19E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ S2G - это универсальная программа, использующ
 magnet:?xt=urn:btih:131DA055354BAFB617EDD5057CCBAD33A8A28D27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ ORPALIS PaperScan Professional является универсальной, мо
 ```bash
 magnet:?xt=urn:btih:FFE1E6076C389CC0BAC038439AE4150D53B27132
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ Solo on Dvorak Keyboard 8.2.1.6 [En]
 magnet:?xt=urn:btih:91C2EB81ED36B4F7AE502C9E7159207ABC5C99C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:91C2EB81ED36B4F7AE502C9E7159207ABC5C99C2
 ```bash
 magnet:?xt=urn:btih:1392261A131DE5D96EC9750E2BAEBD914561D01E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

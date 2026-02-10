@@ -1,3 +1,29 @@
+###  Публикация: 1619491   (1032903) от 16.03.2023
+
+Виктор Глебов | Некромант (Книга 5). Красные врата (2022) [MP3, Юрий Гуржий]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Некромант Эл пересекает разорённые армией Синего Паука земли Вайтандара.Жанр: фантастика, фэнтезиПродолжительность: 07:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB2B6B159FF435B302CB1F1576EED68B2F6F9DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619482   (1032907) от 16.03.2023
 
 Виктор Глебов | Некромант (Книга 4). Замок тигра (2022) [MP3, Юрий Гуржий]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:E1A5E0C7DB5FB8500D1A5BD32E558811B13BB318
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:E1A5E0C7DB5FB8500D1A5BD32E558811B13BB318
 magnet:?xt=urn:btih:8380060E1E61B03B1D1EEEA1FCF30166665622B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:8380060E1E61B03B1D1EEEA1FCF30166665622B4
 magnet:?xt=urn:btih:487C39E77A93D42328C760FFC1DFAE0767701AC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:487C39E77A93D42328C760FFC1DFAE0767701AC8
 ```bash
 magnet:?xt=urn:btih:B8C701BBAAC7A9811415C43F66C8D9A7439B2D51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:B8C701BBAAC7A9811415C43F66C8D9A7439B2D51
 magnet:?xt=urn:btih:43C2D811D63A748B991C284268FF439F2816D268
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:43C2D811D63A748B991C284268FF439F2816D268
 magnet:?xt=urn:btih:D0C6321DD36466E6CE77AD4C0DED1A7B54D0898C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:D0C6321DD36466E6CE77AD4C0DED1A7B54D0898C
 ```bash
 magnet:?xt=urn:btih:293670074D7B5FB3DCFF94FEB014B9DC62A0C27C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +235,8 @@ magnet:?xt=urn:btih:293670074D7B5FB3DCFF94FEB014B9DC62A0C27C
 magnet:?xt=urn:btih:85C3E2D2FA9325B8B3233E8F7E28EA687D7C8F8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:85C3E2D2FA9325B8B3233E8F7E28EA687D7C8F8B
 ```bash
 magnet:?xt=urn:btih:7BEB14D10D4E11A9F212143D1E574AD32840DDC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:7BEB14D10D4E11A9F212143D1E574AD32840DDC5
 magnet:?xt=urn:btih:754EDA0BE3C1F65FD86718907BC2C928B4E4E0B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:754EDA0BE3C1F65FD86718907BC2C928B4E4E0B0
 ```bash
 magnet:?xt=urn:btih:3DC0FD6340DE44A12C7F570FE2926B7665CF8C4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:3DC0FD6340DE44A12C7F570FE2926B7665CF8C4B
 magnet:?xt=urn:btih:7FB312051E5DD7AC0EC45D10582081EEC7D65A44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:7FB312051E5DD7AC0EC45D10582081EEC7D65A44
 magnet:?xt=urn:btih:A657463FD805DEDEF71E9BC4ECE8EF3B6D90E3DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:A657463FD805DEDEF71E9BC4ECE8EF3B6D90E3DC
 ```bash
 magnet:?xt=urn:btih:C92769CC10453E71D11E5DCC3D797C5BA2998BA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:C92769CC10453E71D11E5DCC3D797C5BA2998BA6
 magnet:?xt=urn:btih:77BFCB101151AD0E5A8BCB1F37F831B1AD36A063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +446,8 @@ magnet:?xt=urn:btih:77BFCB101151AD0E5A8BCB1F37F831B1AD36A063
 magnet:?xt=urn:btih:9162BB767BDF18F7B54C78AAD8626137E0F2AA11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:9162BB767BDF18F7B54C78AAD8626137E0F2AA11
 ```bash
 magnet:?xt=urn:btih:F2A9B70DE90DB5E593673408A91F290D266698FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +500,8 @@ magnet:?xt=urn:btih:F2A9B70DE90DB5E593673408A91F290D266698FF
 magnet:?xt=urn:btih:1BF30164AC86BDF2F7BF2F86F467F7B599DF28AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:1BF30164AC86BDF2F7BF2F86F467F7B599DF28AC
 magnet:?xt=urn:btih:9226A77BCCE2C171AD3BA159689414C22A1B76F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:9226A77BCCE2C171AD3BA159689414C22A1B76F4
 ```bash
 magnet:?xt=urn:btih:3E3607AC876F81F6BF30F79E00DF259BB29D1A48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +580,8 @@ magnet:?xt=urn:btih:3E3607AC876F81F6BF30F79E00DF259BB29D1A48
 magnet:?xt=urn:btih:68D4989855C6FA248EAB5B1FB8CC2CD996A76D2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:68D4989855C6FA248EAB5B1FB8CC2CD996A76D2B
 ```bash
 magnet:?xt=urn:btih:48CA196DF183CD87A4C2C6D53465E9E4D748EC0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +636,8 @@ magnet:?xt=urn:btih:48CA196DF183CD87A4C2C6D53465E9E4D748EC0B
 magnet:?xt=urn:btih:70D4C8860C033BF8211D7A04FD6E0EFDBF421CBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +661,8 @@ magnet:?xt=urn:btih:70D4C8860C033BF8211D7A04FD6E0EFDBF421CBE
 ```bash
 magnet:?xt=urn:btih:EDFD2353CD58021EF423C245143AF84CFE17AFAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,31 +688,7 @@ magnet:?xt=urn:btih:EDFD2353CD58021EF423C245143AF84CFE17AFAB
 magnet:?xt=urn:btih:B3E4F876DFDF794F027F6719898880392215AD4A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617571   (1034744) от 08.03.2023
-
-Брендон Сандерсон | Сокрушитель войн (2023) [MP3, Степан Дружинин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ворвавшись на сцену фэнтези с восторженно принятым публикой дебютным романом «Город богов», и закрепив успех успешной трилогией «Рожденный туманом», Брендон Сандерсон вновь доказывает, что он один из признанных мастеров в том, что Толкин называл «вторичным творением» — создании целых миров, с собственными досконально проработанными мифами и магией.
-
-Warbreaker – (   Читать дальше...   )Жанр: ФэнтезиПеревод: БуктранПродолжительность: 21:10:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:507076D409431CE7460E9A94D7A2CD3CD88B4D98
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

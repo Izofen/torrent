@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C743C3AF065E7846EEA7ADEC7E05A86A2EEAE839
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ DB-Text 1.11 [En]
 magnet:?xt=urn:btih:1129692D0A3C90ADA8B3E514902B69A72737A9FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ UFO Princess Valkyrie: Juunigatsu no Yasoukyoku | UFO Ultramaiden Valkyrie 2: De
 ```bash
 magnet:?xt=urn:btih:E798E816865F84F93E1803504201269592A26ED2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ XIX век, отдаленная горная македонская дерев�
 magnet:?xt=urn:btih:C2C0C1B6311CDA5AC7FCDE6109C5FA5ADDBA71BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:C2C0C1B6311CDA5AC7FCDE6109C5FA5ADDBA71BE
 ```bash
 magnet:?xt=urn:btih:1DA34AFA97E6DE9E8571221C00ADFA9752F44B42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Dropzone - удобная утилита для автоматизация ру�
 magnet:?xt=urn:btih:52D5F5D8AD06DEB2B905AFB720B10EC23484332D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:52D5F5D8AD06DEB2B905AFB720B10EC23484332D
 magnet:?xt=urn:btih:4BF53F309053D732538FCD1FE9379E6798A85420
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ PanoramaStudio, это графическая программа для созд
 ```bash
 magnet:?xt=urn:btih:FBEC1BDE7F226881BC37D7432BF01AC6297F6CD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:FBEC1BDE7F226881BC37D7432BF01AC6297F6CD3
 magnet:?xt=urn:btih:5475E793269A93632B7A0AE81976B60A2768F86E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:5475E793269A93632B7A0AE81976B60A2768F86E
 ```bash
 magnet:?xt=urn:btih:E95290B1C9BC35CBAF20B5A71BBEDF493EE2B58C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:E95290B1C9BC35CBAF20B5A71BBEDF493EE2B58C
 magnet:?xt=urn:btih:9DE39CF0812F46E1A7FF1E0DD58119E884A380C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:9DE39CF0812F46E1A7FF1E0DD58119E884A380C0
 magnet:?xt=urn:btih:10BAAE9B0BE40DC5FDAD75CB82016BA4ADCBB8B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:10BAAE9B0BE40DC5FDAD75CB82016BA4ADCBB8B3
 ```bash
 magnet:?xt=urn:btih:C8A5BA030C7AF537E7D3E888AD3678358C09E00A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:C8A5BA030C7AF537E7D3E888AD3678358C09E00A
 magnet:?xt=urn:btih:658600ED6587135DE18D72B42CC47D210BB29ADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:658600ED6587135DE18D72B42CC47D210BB29ADF
 magnet:?xt=urn:btih:E5AC4186986E70105F60A33105E03172E27295FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:E5AC4186986E70105F60A33105E03172E27295FE
 ```bash
 magnet:?xt=urn:btih:BD48FAC44270AAF76F35E68B3A9AF1AC48E6B921
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ PrefEdit - уникальное приложение для просмотра �
 magnet:?xt=urn:btih:53C31E9C348D802FE20221AB5DFD3E2910FF0A29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:53C31E9C348D802FE20221AB5DFD3E2910FF0A29
 ```bash
 magnet:?xt=urn:btih:48664AB106D935ACEBAD542BF9388167144440D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Mp3tag - мощный и простой в использовании инстр
 magnet:?xt=urn:btih:57E727AEA3061719FBD735D40BF27813D0133D40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Ocenaudio — аудиоредактор, распространяемый ав�
 ```bash
 magnet:?xt=urn:btih:9514E9170C2D3763E4B6CB4347D524F9901BBF8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ AI Transcription 1.2 [Multi]
 magnet:?xt=urn:btih:D823904213CC2ACB0F6C4663E712AEBED0C5D3D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ ByClick Downloader (бывший YouTube By Click) - отличный и удо�
 ```bash
 magnet:?xt=urn:btih:3C0D30A89089DC9C03DB5EA1C73D86E77B4BBF3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ AMS ФотоМОНТАЖ 1.41 RePack (& Portable) by elchupacabra [Ru/En] (16.04
 magnet:?xt=urn:btih:D1E37F53CDA4D1546CA42C119AA1B90CFF7F75FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:D1E37F53CDA4D1546CA42C119AA1B90CFF7F75FC
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ Wise Disk Cleaner 11.0.2.816 RePack (& portable) by Dodakaedr [Multi/Ru]
 magnet:?xt=urn:btih:0F3508C2C067AD39D1DD87C76E03C0979AA5FA99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ SiteSucker умеет загружать (   Читать дальше...   )Т
 ```bash
 magnet:?xt=urn:btih:AE3FB02E4D5B7F5E89803E1ECF4E83FCBF93E09F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

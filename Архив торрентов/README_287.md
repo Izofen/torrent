@@ -19,6 +19,8 @@ Wise Registry Cleaner - утилита для безопасной чистки 
 magnet:?xt=urn:btih:8D7ADD1F99FA82943D486FAB3BB7FA7202978AB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ AOMEI Backupper – программа для создания резервно�
 ```bash
 magnet:?xt=urn:btih:9517B4131A30690780D7A14CB83EEE3235D1BF45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Office Installer - программа предназначена для online �
 magnet:?xt=urn:btih:4223405178A66B73F8CC4255F826734CB8F4BE41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ AOMEI Backupper Pro (Professional) – комплексная, простая и
 magnet:?xt=urn:btih:F41434EE28A3541876AB30C83366B19DE682C3E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ CrystalMark - это простая в обращении и мощная по �
 ```bash
 magnet:?xt=urn:btih:E4258CF2942E4126D8AB93E65EA7392876F2EB90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Blender - бесплатный редактор трехмерной графи�
 magnet:?xt=urn:btih:97CDAC4AE106547656E258C1B239F164BD4F8B62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Affinity Photo — обеспечивает более высокую скоро
 ```bash
 magnet:?xt=urn:btih:F1477F0A9E7571CB333EAD79206144866F18070E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Macrorit Disk Scanner Unlimited - инструмент для проверки �
 magnet:?xt=urn:btih:7916C3A65E630E8D239EE58E045D4DEB00C25A11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:2CAE45770B62878DFBB819B94CFA9421E29D56D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ AOMEI Backupper – программа для создания резервно�
 magnet:?xt=urn:btih:EF11B62CD2A8D2F38E0397F2A053B2F1B7C9C214
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:EF11B62CD2A8D2F38E0397F2A053B2F1B7C9C214
 ```bash
 magnet:?xt=urn:btih:2CFBAD88064E2B2CBBBEEA991978E317DF500410
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ qBittorrent - бесплатный, мощный и удобный в работ
 magnet:?xt=urn:btih:960AB0760FE63FCA63B73828C23823F0DBA5F3BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:960AB0760FE63FCA63B73828C23823F0DBA5F3BF
 ```bash
 magnet:?xt=urn:btih:72D9D2355D4F8ED2423253C92C2F6E4F063B78D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:3CD04F6926A49DB8F425794E3EDCEB7AE06A12A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Snappy Driver Installer Origin (SDI Origin) - главная ветвь порт
 ```bash
 magnet:?xt=urn:btih:93575A340DEFCE7D714E0C71FEBC0C68700F61BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ iTop VPN — это универсальная VPN для Windows/ПК, отве
 magnet:?xt=urn:btih:DFEE93C42977301D3069C0DA4AC78125CB4A4B32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ UsbTreeView - маленькая портативная утилита, реал
 magnet:?xt=urn:btih:C878C2CC30D59547975A664F636A1E56042354C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Waterfox — это браузер, основанный на исходном �
 ```bash
 magnet:?xt=urn:btih:04A591FEB77E484E4AE6442E2C01A262F2B39B3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Text Edit Plus — это простой, но мощный текстовый �
 magnet:?xt=urn:btih:072CD56A4CCF2E4F8BFA9FD92E986FDF99388359
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Text Editor Pro 28.4.4 + Portable + Bonus [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FF01E340CEFE3BA1EB85FE59AEB43AB83ED40D77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Office Installer - программа предназначена для online �
 magnet:?xt=urn:btih:58229D537B3B6C2B0902BA3883E0A5EA9D414AAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Simple Sticky Notes — простая в понимании программа 
 ```bash
 magnet:?xt=urn:btih:42E9B6E14BC7A3752452F92A1A145117F80B2873
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:42E9B6E14BC7A3752452F92A1A145117F80B2873
 magnet:?xt=urn:btih:119FC3B67898953D0244EC9DFA2718A571E88758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ UsbTreeView - маленькая портативная утилита, реал
 ```bash
 magnet:?xt=urn:btih:FA595812CBABC4688CFF475D340C835D64FB91FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ HopToDesk - это бесплатный инструмент для удален
 magnet:?xt=urn:btih:CB353FF9D736D7EE094704875318A490C61D9C88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Balabolka 2.15.0.865 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:89875295F8E4410E9ECC05D167ED941F34AE0CCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

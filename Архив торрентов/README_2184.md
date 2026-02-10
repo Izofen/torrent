@@ -1,30 +1,3 @@
-###  Публикация: 958522   (312558) от 26.11.2015
-
-VA - Unsung Heroes 6 (2015) [MP3|320 кб/с]<Drum & Bass, Liquid Funk>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arlow - Come Back (06:09)
-02. Changer Ltd - Emily’s Call (05:40)
-03. Critical Event - Romance (05:04)
-04. Surplus - Desperate Day Dream (05:20)(   Читать дальше...   )Жанр: Drum & Bass, Liquid FunkПродолжительность: 01:09:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CE3884D2C956C98AD98408382B3F4BF21F4D844
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 582710   (312571) от 02.12.2012
 
 Г.П. Покровский | Топливо, смазочные материалы и охлаждающие жидкости [2012] [MP3]
@@ -46,6 +19,8 @@ magnet:?xt=urn:btih:2CE3884D2C956C98AD98408382B3F4BF21F4D844
 ```bash
 magnet:?xt=urn:btih:69ADB50BE5390F6A668A02E1C382EEFFDC814D31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +45,8 @@ XMedia Recode - отличная утилита, цель которой - по�
 ```bash
 magnet:?xt=urn:btih:411838C2926C77D7E2C485BCAFAD086A4B5E5D43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +75,8 @@ L'Orange & Jeremiah Jae - The Night Took Us In Like Family (2015) [FLAC|Lossless
 magnet:?xt=urn:btih:C662374B253E9F57D32E50157EC38E3014C4CA2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +100,8 @@ KiCad – уникальный в своем роде программный п�
 ```bash
 magnet:?xt=urn:btih:139802F1BBDF562331EE3640FFBD1DD9D23B28DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +127,8 @@ uTorrent Pro 3.5.5 Build 45828 Stable Portable by FC Portables [Multi/Ru]
 magnet:?xt=urn:btih:4FAC0A4139C1B2E0D54B1E086E3111585BE127E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +152,8 @@ YouTube By Click - отличный и удобный в использован�
 ```bash
 magnet:?xt=urn:btih:6CD8E8DD0E941120666CDBB73F015152D4FC80F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +179,8 @@ magnet:?xt=urn:btih:6CD8E8DD0E941120666CDBB73F015152D4FC80F1
 magnet:?xt=urn:btih:EAD72B964228A33AB2C42B4DF432D2E25AE685FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +204,8 @@ magnet:?xt=urn:btih:EAD72B964228A33AB2C42B4DF432D2E25AE685FD
 ```bash
 magnet:?xt=urn:btih:34AA27A78E0586A24BAD4522E2B068A548377C57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +233,8 @@ Tap Forms Organizer 5.2.3 (1727) [En]
 magnet:?xt=urn:btih:0DF161F660FDFF8AEA8F9E41B1E82B8ADD638C1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +258,8 @@ magnet:?xt=urn:btih:0DF161F660FDFF8AEA8F9E41B1E82B8ADD638C1F
 ```bash
 magnet:?xt=urn:btih:1B344DBA549843E6C0620C7637B37D997168EA9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +288,8 @@ magnet:?xt=urn:btih:1B344DBA549843E6C0620C7637B37D997168EA9A
 magnet:?xt=urn:btih:DACC5E8BDBF88CC31E3C9F768445C3DA4B3B2C09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +314,8 @@ Tri-BACKUP (Резервное копирование)
 ```bash
 magnet:?xt=urn:btih:E09B2302CE50F2576A37C10C472D74822CB135A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +344,8 @@ ChronoSync представляет собой приложение для Mac, 
 magnet:?xt=urn:btih:C3CFDCE8202770CDCFBFA1E99F9ABE156CA81595
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +371,8 @@ AnyTrans - файловый менеджер, который отвечает з
 magnet:?xt=urn:btih:7256CC763E6453A7A38AFBD8B62E662F2C4B102D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +396,8 @@ magnet:?xt=urn:btih:7256CC763E6453A7A38AFBD8B62E662F2C4B102D
 ```bash
 magnet:?xt=urn:btih:9E707E21055242B79BFA7F0EA05F63E5360A99B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +423,8 @@ FreeCommander XE - это довольно-таки удобный в работ
 magnet:?xt=urn:btih:4FAD2FA23818618BF8EFA81B23748D0C51CD8942
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +448,8 @@ Wondershare UniConverter - простой в использовании виде
 ```bash
 magnet:?xt=urn:btih:37307EB40FC9BD482F8E9DBCB9804D01EC5CDBBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +475,8 @@ Desktop Calendar – бесплатный календарь рабочего с
 magnet:?xt=urn:btih:8932A32D3D27BA396B3982E4D935104B8B079EBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +501,8 @@ magnet:?xt=urn:btih:8932A32D3D27BA396B3982E4D935104B8B079EBC
 magnet:?xt=urn:btih:9FCCFEE402113B62BBA941D7A3F6D405032B1E24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +526,8 @@ magnet:?xt=urn:btih:9FCCFEE402113B62BBA941D7A3F6D405032B1E24
 ```bash
 magnet:?xt=urn:btih:B9EB25677D4F57A9D91EB2CD7AFD356A1A3F5786
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +556,8 @@ Act of Defiance - Old Scars, New Wounds (2017) [FLAC|Lossless|image + .cue] <Thr
 magnet:?xt=urn:btih:D514CE5A6712AC7249E68DA71FBED8635E5655D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +584,8 @@ magnet:?xt=urn:btih:D514CE5A6712AC7249E68DA71FBED8635E5655D7
 ```bash
 magnet:?xt=urn:btih:8FBD9CD30767F65DBFFD0360B1E60D46F23A2C7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +614,8 @@ magnet:?xt=urn:btih:8FBD9CD30767F65DBFFD0360B1E60D46F23A2C7D
 magnet:?xt=urn:btih:AF453C639095D2B13D4BB93E942029BFB99DF7D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +643,8 @@ magnet:?xt=urn:btih:AF453C639095D2B13D4BB93E942029BFB99DF7D7
 magnet:?xt=urn:btih:D66C7367798BEF9603BBE9A877193325470A5F71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +669,37 @@ magnet:?xt=urn:btih:D66C7367798BEF9603BBE9A877193325470A5F71
 ```bash
 magnet:?xt=urn:btih:787D59214AEBF84FB8B3148B5ABA3BA467BD1615
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182617   (312797) от 12.11.2017
+
+Хоккей. Евро хоккей тур 2017—2018. Кубок Карьяла 2017. Канада – Швеция (10.11.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312797.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 ноября 2017 года, пятница. 19:30 МСК
+Евро хоккей тур 2017—2018. Кубок Карьяла 2017
+Канада – Швеция
+Стадион: Хартвалл-Арена (Хельсинки, Финляндия), 2132 зрителя (16 % при вместимости 13464)(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB10E88D6EB9169BD3BF29EDEDB385D1CB26EA58
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

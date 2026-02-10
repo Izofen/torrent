@@ -1,3 +1,29 @@
+###  Публикация: 1106115   (873372) от 19.02.2017
+
+Руководство для кондитеров и булочников (1912) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Собрание кондитерских рецептов. Описание технологии производства кондитерских изделий. Способы хранения продуктов. Всё это собрано у лучших мастеров, специалистов и знатоков не только в России, но и по всему миру.Жанр: Кулинария, РаритетФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A9AA98AE782415B6B18762B10631092FB1102FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106166   (873376) от 19.02.2017
 
 Н.И. Губа | Тайны щедрого стола (1978) [DJVU]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:A1FC993FF1F41C6EF403D83D993F3A60891B2E00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:A1FC993FF1F41C6EF403D83D993F3A60891B2E00
 magnet:?xt=urn:btih:9DE08EA0E12B7F91DC1CFE6459240F59AA0C8B16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:9DE08EA0E12B7F91DC1CFE6459240F59AA0C8B16
 magnet:?xt=urn:btih:974EA976F28DEDAD2D1E230C8F6355871FCBC12A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:974EA976F28DEDAD2D1E230C8F6355871FCBC12A
 ```bash
 magnet:?xt=urn:btih:E9C4D7AB66103A527E7E3D049EFBB1EA5E4BE34F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:E9C4D7AB66103A527E7E3D049EFBB1EA5E4BE34F
 magnet:?xt=urn:btih:EBFC0DA2FD8D915C1D5D2859BC12A9498FE0190B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:EBFC0DA2FD8D915C1D5D2859BC12A9498FE0190B
 ```bash
 magnet:?xt=urn:btih:BF9DDA8A9CAB69F07DE7ECE7B0773AEB80C4BE00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:BF9DDA8A9CAB69F07DE7ECE7B0773AEB80C4BE00
 magnet:?xt=urn:btih:2525EF1D4B3509B7B1018C42B94747ED58E5C604
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:2525EF1D4B3509B7B1018C42B94747ED58E5C604
 ```bash
 magnet:?xt=urn:btih:FBA42D0BC0F68BAEE69484B7D2A30894BC411653
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:FBA42D0BC0F68BAEE69484B7D2A30894BC411653
 magnet:?xt=urn:btih:C11BD40209EDA82DF0F189B5DCC2EFD71E796B36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:C11BD40209EDA82DF0F189B5DCC2EFD71E796B36
 ```bash
 magnet:?xt=urn:btih:B1C50EE0BEA235DDE370AF90CD8F96E486483B10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:B1C50EE0BEA235DDE370AF90CD8F96E486483B10
 magnet:?xt=urn:btih:3BE15140E9BD77DC037048BE93FB3B29BA92F03C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:3BE15140E9BD77DC037048BE93FB3B29BA92F03C
 ```bash
 magnet:?xt=urn:btih:37411A5F49E87DDF3343FF9DD6F5F4A0A1D66CFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:37411A5F49E87DDF3343FF9DD6F5F4A0A1D66CFF
 magnet:?xt=urn:btih:C5AA54257BC677540D2D5C7B5472CC2258B47AF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:C5AA54257BC677540D2D5C7B5472CC2258B47AF5
 ```bash
 magnet:?xt=urn:btih:3CA6C2C8C090F6C2FEB7BE1B83F88736FC78F52E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:3CA6C2C8C090F6C2FEB7BE1B83F88736FC78F52E
 magnet:?xt=urn:btih:55D9F95A2783302BD8D9E8BFC3DB7511CE7FFC57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:55D9F95A2783302BD8D9E8BFC3DB7511CE7FFC57
 ```bash
 magnet:?xt=urn:btih:58DE7DA38DE28E29E899D62E98644C0BB6598EC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:58DE7DA38DE28E29E899D62E98644C0BB6598EC6
 magnet:?xt=urn:btih:ABD76F720F449CD98A29EB48D44CBB4793EC2E68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:ABD76F720F449CD98A29EB48D44CBB4793EC2E68
 ```bash
 magnet:?xt=urn:btih:DEC49B3CB120B2D84A4AC84CE483FB2AF9C037B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:DEC49B3CB120B2D84A4AC84CE483FB2AF9C037B8
 magnet:?xt=urn:btih:6E7A774B526BB1F80969B4162B0B982DEE3F5E9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:6E7A774B526BB1F80969B4162B0B982DEE3F5E9C
 magnet:?xt=urn:btih:C41E59E9E55181F2786C1E3EB88ADB48670B886F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:C41E59E9E55181F2786C1E3EB88ADB48670B886F
 ```bash
 magnet:?xt=urn:btih:E1EB4EA28E1072B4EFA4D52692BCB1EF0D555375
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:E1EB4EA28E1072B4EFA4D52692BCB1EF0D555375
 ```bash
 magnet:?xt=urn:btih:0AAF5818D405DC7CB80E2B47C2CA8CB13F97B13F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:0AAF5818D405DC7CB80E2B47C2CA8CB13F97B13F
 magnet:?xt=urn:btih:C9719F296951D9ADEEBC9BC29434A40E60CD1F21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:C9719F296951D9ADEEBC9BC29434A40E60CD1F21
 ```bash
 magnet:?xt=urn:btih:D155F05006B4663DDAFE8C8528FF191CF41C910B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,29 +682,7 @@ magnet:?xt=urn:btih:D155F05006B4663DDAFE8C8528FF191CF41C910B
 magnet:?xt=urn:btih:DFDE5E207D82333B90D97DB88EAEA6C2E3B44029
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 872653   (873728) от 25.02.2015
-
-Николас Карр | Стеклянная клетка. Автоматизация и мы (2015) [FB2, RTF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Смартфоны, планшеты, навигаторы - наши верные спутники сегодня. На улице, дома и в поездках они помогают решать массу вопросов, общаться, развлекаться. С каждым годом люди доверяют все более серьезные задачи электронным устройствам, постепенно отвыкая делать что-либо без их помощи. Прогресс дает человеку многое, но отбирает - не меньше. Облегчая себе жизнь с помощью умных гаджетов, мы не думаем о том, что лишаем работы свой мозг и приближаем совсем нерадостные перспективы: компьютерную зависимость и следующую (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D89B910A3D7874C1341E8B670D8CCCA0DC5658EA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

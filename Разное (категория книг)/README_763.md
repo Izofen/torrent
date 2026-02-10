@@ -1,3 +1,30 @@
+###  Публикация: 1350691   (1002905) от 07.01.2020
+
+Ксения Алексеева | Полная трансформация. 56 техник, которые изменят вашу жизнь (2019) [PDF]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все, что с нами происходит, – это отражение того, что есть у нас внутри. Если мы себе нравимся, то притягиваем события, которые нам приятны. Если что-то мы в себе не любим, то именно в этой области с нами начинают происходить неудачи. И именно поэтому так важно начать менять не внешнее, а работать с внутренними процессами.
+Хотите узнать, как менять этот образ будущего? (   Читать дальше...   )Жанр: Эзотерика, ПарапсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD6C5999D00729B72D152CEF5B56A6BA91404DA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350733   (1002908) от 07.01.2020
 
 Денис Каплунов | Бизнес-копирайтинг. Как писать серьезные тексты для серьезных людей (2015) [FB2]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:02DE0C7F3A3F96F5D7C656B0E128896021073BCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@ magnet:?xt=urn:btih:02DE0C7F3A3F96F5D7C656B0E128896021073BCA
 magnet:?xt=urn:btih:3AD28769727363542C0B3B5D0DF5A7711AAF9786
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ magnet:?xt=urn:btih:3AD28769727363542C0B3B5D0DF5A7711AAF9786
 ```bash
 magnet:?xt=urn:btih:A7271999C04FE73C2ADCC45DF4574FA420F1CC6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:A7271999C04FE73C2ADCC45DF4574FA420F1CC6A
 magnet:?xt=urn:btih:98D42CC833BC59EB022CB7E4C6506152FFC0F2E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +150,8 @@ magnet:?xt=urn:btih:98D42CC833BC59EB022CB7E4C6506152FFC0F2E5
 ```bash
 magnet:?xt=urn:btih:60CDD7D5057076F76C6CFCDE6F3D524A3577D164
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +178,8 @@ magnet:?xt=urn:btih:60CDD7D5057076F76C6CFCDE6F3D524A3577D164
 magnet:?xt=urn:btih:1A84E4E0DB7FA090EE04B539DC41169F7900C263
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +203,8 @@ magnet:?xt=urn:btih:1A84E4E0DB7FA090EE04B539DC41169F7900C263
 ```bash
 magnet:?xt=urn:btih:C6015A9BF9A39F4107EBED520D042CA0352AEDE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +231,8 @@ magnet:?xt=urn:btih:C6015A9BF9A39F4107EBED520D042CA0352AEDE0
 magnet:?xt=urn:btih:0498AAB961A90E7545516325165E30AA3AF923AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +256,8 @@ magnet:?xt=urn:btih:0498AAB961A90E7545516325165E30AA3AF923AE
 ```bash
 magnet:?xt=urn:btih:EDF2D17FCFE0ED0734EB8D7F261103E68428FE61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +285,8 @@ magnet:?xt=urn:btih:EDF2D17FCFE0ED0734EB8D7F261103E68428FE61
 magnet:?xt=urn:btih:3C137E9C45DB8BF5941B172EC8214B88B1F6B95A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +310,8 @@ magnet:?xt=urn:btih:3C137E9C45DB8BF5941B172EC8214B88B1F6B95A
 ```bash
 magnet:?xt=urn:btih:9B2084F541764695C844A9B24656A909EACA5798
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +339,8 @@ magnet:?xt=urn:btih:9B2084F541764695C844A9B24656A909EACA5798
 magnet:?xt=urn:btih:AFF85A259A1E50771AFA8065DF2F3F34F2FF7D5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +365,8 @@ magnet:?xt=urn:btih:AFF85A259A1E50771AFA8065DF2F3F34F2FF7D5D
 magnet:?xt=urn:btih:4AAB55FFFD60EFAC99C6E7F74E70C8AC0DEF5A23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +390,8 @@ magnet:?xt=urn:btih:4AAB55FFFD60EFAC99C6E7F74E70C8AC0DEF5A23
 ```bash
 magnet:?xt=urn:btih:6FEEF852DD821B4BBB7045C7D0D03AD400EA31A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +419,8 @@ magnet:?xt=urn:btih:6FEEF852DD821B4BBB7045C7D0D03AD400EA31A3
 magnet:?xt=urn:btih:A7C80BBD2B1FD388233BD1B852505129162C6F46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +445,8 @@ magnet:?xt=urn:btih:A7C80BBD2B1FD388233BD1B852505129162C6F46
 ```bash
 magnet:?xt=urn:btih:AA483C0635254414ED488293A2F4F2EE540306F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +473,8 @@ magnet:?xt=urn:btih:AA483C0635254414ED488293A2F4F2EE540306F2
 magnet:?xt=urn:btih:0F61405BEC050D836B8EAB6511BB4A09F8CA4798
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +498,8 @@ magnet:?xt=urn:btih:0F61405BEC050D836B8EAB6511BB4A09F8CA4798
 ```bash
 magnet:?xt=urn:btih:B0E90BA615E1B3BA51F6CA1C3292CA0A3A81C142
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +526,8 @@ DOOM – это не просто игра. Это живая легенда. 25
 magnet:?xt=urn:btih:DA5A5BB5563C8E2399B963F8F725013FEFECD75A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +551,8 @@ magnet:?xt=urn:btih:DA5A5BB5563C8E2399B963F8F725013FEFECD75A
 ```bash
 magnet:?xt=urn:btih:685B57F8687C1A63D5A94E13160BDC531FF3D51A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +580,8 @@ magnet:?xt=urn:btih:685B57F8687C1A63D5A94E13160BDC531FF3D51A
 magnet:?xt=urn:btih:347341F92C156EC667F73F942392AD8400EBF0A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +607,8 @@ magnet:?xt=urn:btih:347341F92C156EC667F73F942392AD8400EBF0A2
 magnet:?xt=urn:btih:5A3F37E675050811D18C9C020572D7AA52C9EAB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +632,8 @@ magnet:?xt=urn:btih:5A3F37E675050811D18C9C020572D7AA52C9EAB8
 ```bash
 magnet:?xt=urn:btih:FE65248AFD02C614AAEF5DFF63A0DFBD48BEE186
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +660,8 @@ magnet:?xt=urn:btih:FE65248AFD02C614AAEF5DFF63A0DFBD48BEE186
 magnet:?xt=urn:btih:0F821575AEC9E17E5242B5822644DDF9B89D1F1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,29 +686,7 @@ magnet:?xt=urn:btih:0F821575AEC9E17E5242B5822644DDF9B89D1F1C
 magnet:?xt=urn:btih:9B762CEE1F31227738C14C199A22CC19D3AF3BDF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350565   (1003287) от 06.01.2020
-
-И.А. Михайлова | 150 праздничных блюд (2016) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003287.jpg" />
-</div>
-
-
-###  Подробнее
-
-150 – хорошая цифра, не много, но и не мало. Выбор большой. Все, что нужно для праздничного стола: закуски холодные и горячие, салаты легкие из свежих овощей и сытные с мясом или рыбой; мясное жаркое, рыбные деликатесы; пироги, тортики; фруктовые десерты и напитки. Меню получится отменное. И украсить блюда можно оригинально, о чем также рассказано в нашей книге.Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:675D3DAF617D48ACA8BDC729BC8927DCB3560883
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

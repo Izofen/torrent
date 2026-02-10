@@ -1,3 +1,29 @@
+###  Публикация: 976681   (967870) от 19.01.2016
+
+М. С. Шаронов | Коммунисты и католики в Италии: Из истории диалога [1921-1956] (1973) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967870.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии рассказывается о борьбе Итальянской коммунистической партии за массы против реакционного клерикализма. На обширном документальном материале автор рассматривает стратегию и тактику ИКП по отношению к католикам и их организациям. В книге показано, как осуществлялся после второй мировой войны союз итальянского рабочего класса с непролетарскими слоями, находившимися (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C75C9E97C499DEED6D3CDB1226953FCED06A07C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976654   (967873) от 19.01.2016
 
 Д. Бергнер, В. Ян | Крестовый поход евангелических академий против марксизма (1961) [DJVU]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:836056E5B338A3AE2000CD878167AD95FE6CBEF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +75,8 @@ magnet:?xt=urn:btih:836056E5B338A3AE2000CD878167AD95FE6CBEF2
 magnet:?xt=urn:btih:1F3F79640FD3655F84A2479B73A5913845BB98E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +101,8 @@ magnet:?xt=urn:btih:1F3F79640FD3655F84A2479B73A5913845BB98E3
 magnet:?xt=urn:btih:2C911CB1B6A1FDD259551F4AE3652C1606CAF824
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:2C911CB1B6A1FDD259551F4AE3652C1606CAF824
 ```bash
 magnet:?xt=urn:btih:94920ABD6ADAE8F705FF9370A074100238523ECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +155,8 @@ magnet:?xt=urn:btih:94920ABD6ADAE8F705FF9370A074100238523ECD
 magnet:?xt=urn:btih:1D0E1C1255B62FCE2B14DCE3E13E25CC730F5439
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:1D0E1C1255B62FCE2B14DCE3E13E25CC730F5439
 ```bash
 magnet:?xt=urn:btih:229011294990AD23F4C6B62E22E6E9FF10F0844D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +209,8 @@ magnet:?xt=urn:btih:229011294990AD23F4C6B62E22E6E9FF10F0844D
 magnet:?xt=urn:btih:D393A452456D1E7B916CBBEF5E6D3BAA9318251D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +235,8 @@ magnet:?xt=urn:btih:D393A452456D1E7B916CBBEF5E6D3BAA9318251D
 magnet:?xt=urn:btih:D7039F13E6A935DF4750F7E7AE37ADBA57AE826B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:D7039F13E6A935DF4750F7E7AE37ADBA57AE826B
 ```bash
 magnet:?xt=urn:btih:B0F1B4FB23FF88BECF686CFEDF003A78200A12E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +288,8 @@ magnet:?xt=urn:btih:B0F1B4FB23FF88BECF686CFEDF003A78200A12E4
 magnet:?xt=urn:btih:8EA9B980465135A123F1071B6E5B373A92EB51B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:8EA9B980465135A123F1071B6E5B373A92EB51B9
 ```bash
 magnet:?xt=urn:btih:EC6DCDBDA82EBA6936086AF7CFDA85D4130EE575
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +340,8 @@ magnet:?xt=urn:btih:EC6DCDBDA82EBA6936086AF7CFDA85D4130EE575
 magnet:?xt=urn:btih:2AFC4334555D59A1C467EF02668836C920AD6988
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:2AFC4334555D59A1C467EF02668836C920AD6988
 ```bash
 magnet:?xt=urn:btih:92E5B9D7CEAD0C84A4009BCA38A9C03EE522D046
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:92E5B9D7CEAD0C84A4009BCA38A9C03EE522D046
 magnet:?xt=urn:btih:7096CD5281DD0F3A1FCA3EA8113BFFF17F2A233E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:7096CD5281DD0F3A1FCA3EA8113BFFF17F2A233E
 magnet:?xt=urn:btih:7309D7D7159EC206586BE68862BA0A1083311096
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:7309D7D7159EC206586BE68862BA0A1083311096
 ```bash
 magnet:?xt=urn:btih:562FACE9C696B3392C14A8F0D9EC2573BC9C6D68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +474,8 @@ magnet:?xt=urn:btih:562FACE9C696B3392C14A8F0D9EC2573BC9C6D68
 magnet:?xt=urn:btih:28BB2A55EC3EF0A360FC2687DBEE81F0C62CE79A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +499,8 @@ magnet:?xt=urn:btih:28BB2A55EC3EF0A360FC2687DBEE81F0C62CE79A
 ```bash
 magnet:?xt=urn:btih:80FE911C4D30F8F693A05B22F4318F0CE4E113EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +528,8 @@ magnet:?xt=urn:btih:80FE911C4D30F8F693A05B22F4318F0CE4E113EB
 magnet:?xt=urn:btih:50ACCE2296D6B0E5A0ADC63925A5BE95AFD715E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +553,8 @@ magnet:?xt=urn:btih:50ACCE2296D6B0E5A0ADC63925A5BE95AFD715E2
 ```bash
 magnet:?xt=urn:btih:DFC5F19EF0296F7D68830A1C48EF01DD8A9F1F79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +582,8 @@ magnet:?xt=urn:btih:DFC5F19EF0296F7D68830A1C48EF01DD8A9F1F79
 magnet:?xt=urn:btih:414AE8DFFFA4F84E4B0276D587B205F0EAE2B6F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +609,8 @@ magnet:?xt=urn:btih:414AE8DFFFA4F84E4B0276D587B205F0EAE2B6F3
 ```bash
 magnet:?xt=urn:btih:7521EEF8550C14C717EE5B7526D42B3CED1A3D70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +638,8 @@ magnet:?xt=urn:btih:7521EEF8550C14C717EE5B7526D42B3CED1A3D70
 magnet:?xt=urn:btih:4A3AB8E6B6414261A028AE8FC7873C3FA46F8E62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +664,8 @@ magnet:?xt=urn:btih:4A3AB8E6B6414261A028AE8FC7873C3FA46F8E62
 ```bash
 magnet:?xt=urn:btih:0F27EB78260AC37D5FEC19E2DA869D477EEEDB26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,29 +693,7 @@ magnet:?xt=urn:btih:0F27EB78260AC37D5FEC19E2DA869D477EEEDB26
 magnet:?xt=urn:btih:86594B739A72E028FB2D2D811DD368C537E8FDCF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 619216   (968480) от 15.02.2013
-
-В.Назарова | Современные стены и перегородки [2013] [PDF]
-
->>Разное (категория книг)
->>Строительство и ремонт
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Главной структурной частью здания являются стены. Для того чтобы стены были прочными и долговечными, они должны быть правильно построены с использованием качественных материалов. В этой книге содержится подробная информация по строительству стен, доступное описание материалов и их свойств, а также советы по отделке и финишным работам.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D872C57EFDA491A15A794E88F09D229FF2DC06AB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

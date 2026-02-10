@@ -1,3 +1,29 @@
+###  Публикация: 1611393   (1041300) от 11.02.2023
+
+Sarah Brightman - La Luna (2000) 2004 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Electronic, Rock, Pop, Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041300.jpg" />
+</div>
+
+
+###  Подробнее
+
+La Luna — седьмой альбом, записанный английской певицей Сарой Брайтман в 2000 году. Он был выпущен по лицензии Nemo Studios для Angel Records. Альбом сочетает в себе произведения классиков и современных композиторов. По данным Nielsen SoundScan, это 17-й самый продаваемый классический альбом 2000-х годов в США, и второй самый продаваемый альбом Брайтман в стране (   Читать дальше...   )Жанр: Modern Classical, Soft Rock, Synth-popПродолжительность: 00:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A39A0BC2295997A54F4B033F836122FBA9B15FAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438000   (1041352) от 07.01.2021
 
 Paul Mauriat - Emmanuelle & Fantastic 4 Channel (2020) 1976 1973 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
@@ -20,6 +46,8 @@ Emmanuelle (1976)
 ```bash
 magnet:?xt=urn:btih:C26D469545BC210F9F1A51E40372F367AEDA6796
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +76,8 @@ A4 Эрмитаж, Фокстрот(   Читать дальше...   )Жанр:
 magnet:?xt=urn:btih:11FFFE39BCBF096BC3601C6ADB312888E6909F30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +104,8 @@ Talisman — шведская рок-группа, основанная в 1989 
 ```bash
 magnet:?xt=urn:btih:C3C7FCCA94A92725AD1E704033B4EA645B579BA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +134,8 @@ Work Of Art — хард-рок-группа из Стокгольма, Швец
 magnet:?xt=urn:btih:38FDDE8E1ABAE802FB00B59FD15911CDBD4C9597
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +163,8 @@ A4 She's Gone(   Читать дальше...   )Жанр: Hard RockПродол
 magnet:?xt=urn:btih:C149B190D6B9D54DA288DE1BD2C35A3F3722E8CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +189,8 @@ Eden - шестой альбом английской певицы Сары Бр
 ```bash
 magnet:?xt=urn:btih:89541A8D3853173A46C18DA8E8BB9893B5B6D988
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +219,8 @@ Type O Negative (с англ. — «первая группа, резус-о
 magnet:?xt=urn:btih:FD4A6D39E7607E360FF6C737C93E3B07D4C25247
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +246,8 @@ The Dogma — прогрессив-метал/пауэр-метал группа
 ```bash
 magnet:?xt=urn:btih:245C1B0A9C1653B600171059B943283EFB304FD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -234,6 +276,8 @@ Lake of Tears (с англ. — «Озеро слёз») — шведска�
 magnet:?xt=urn:btih:48B2686D3E950699D7DFEE40C0A0AF91CE42D1DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +304,8 @@ Alice in Chains — американская рок-группа из Сиэтл
 ```bash
 magnet:?xt=urn:btih:D4321F77154E854F08DB88D4B5D9FAFA56DCF662
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +335,8 @@ Falkenbach — немецко-исландский метал-проект.
 magnet:?xt=urn:btih:EE5FE7B3487FF74257B3A15564CCA03BF213E88A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +363,8 @@ A4 Ночь(   Читать дальше...   )Жанр: Art Rock, Prog Rock, Po
 ```bash
 magnet:?xt=urn:btih:3707E093ACCEBFD19C32638E27DB699A89A05FA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +393,8 @@ A4 Тiнi(   Читать дальше...   )Жанр: Hard RockПродолжи
 magnet:?xt=urn:btih:A17A4CE643D8847CE7E1CFD22E22534E740929BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +422,8 @@ A5 Szanujmy Wspomnienia(   Читать дальше...   )Жанр: Pop RockП�
 magnet:?xt=urn:btih:B702E12FBDB5C1E1E3A0823688A228309BF034C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +447,8 @@ Steely Dan - Two Against Nature (2000) SACD, Reissue, Remastered, 2022, Analogue
 ```bash
 magnet:?xt=urn:btih:EE67A33D9917F473E5AB28801F9288676E769AC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +477,8 @@ A4 Gwiazda Na Kiju(   Читать дальше...   )Жанр: Pop Rock, FunkП
 magnet:?xt=urn:btih:777FB3100117D2AA13CAE8293BCA015E18E8E9F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +505,8 @@ Face 1:
 ```bash
 magnet:?xt=urn:btih:6B51C36E44B5715D78F1B08940C57CDFB31E257B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +535,8 @@ Alison Krauss & Union Station - New Favorite (2003) [DTS 5.1 CD-DA|44.1/16|image
 magnet:?xt=urn:btih:818C609FCB90075462399BCA49BEAF186E1D936D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +563,8 @@ A4 Fats Domino - Jambalaya (On The Bayou)(   Читать дальше...   )Ж�
 ```bash
 magnet:?xt=urn:btih:F1D719CD4652C3E95FE3317F4A76D5281B25A143
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +593,8 @@ Nailed to Obscurity - метал-группа из города Эзенс, Ге
 magnet:?xt=urn:btih:A83A18E85EE510D67D4F933E0DCCB5852AAAB67D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +621,8 @@ Broken Fate - швейцарская метал-группа из Цюриха, 
 ```bash
 magnet:?xt=urn:btih:80A6B6526201B19774B6DFD568231E390DF2CEDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +651,8 @@ A4 Danny Field's Corp. - I Can't Tell The Bottom From The Topa(   Читать �
 magnet:?xt=urn:btih:BC382EC4BAA9CAAB71E519D9524506861127FA39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +679,8 @@ A4 Street Crew - Tweedle Dee - Tweedle Dum(   Читать дальше...   )Ж
 ```bash
 magnet:?xt=urn:btih:BDAE29039F315E65988930F0E8E29278EC37262D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +709,8 @@ A4 Roxy Music– - Virginia Plain(   Читать дальше...   )Жанр: P
 magnet:?xt=urn:btih:D61527BFC57E760905C31509384B215484223971
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,32 +738,7 @@ Triskelyon - канадский трэш-метал проект, созданн
 magnet:?xt=urn:btih:7E2E72718F04AF5F4B10DD6D78519948A4406ADE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840951   (1047681) от 08.12.2025
-
-Senpais - Studio Albums (4 releases) (2020-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Senpais - метал-группа из Берлина, Германия, основана в 2018 году.2020 - Senpais
-2022 - Embers of Eternity (EP)
-2023 - Pandemonium (EP)
-2025 - By All MeansЖанр: Melodic Death MetalПродолжительность: 02:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EFD1645E841C43834A15436BEC27010E06FA8CF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:917D2AA1B8385CD3CFAEC585941D40871C1C0A83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:917D2AA1B8385CD3CFAEC585941D40871C1C0A83
 magnet:?xt=urn:btih:438B6B53B38DADC2F9BB649C7F232E9A6C257CEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ Selenium WebDriver is a popular browser automation framework. Testers or develop
 magnet:?xt=urn:btih:2B30ED60890E73CD7628CABF39347E736A4E4A43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Nabendu Biswas | TypeScript Basics (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:A83D67E32BCF0AFC8A13B081E9E4BBDE3D448C2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Selenium WebDriver is a popular browser automation framework, testers or develop
 magnet:?xt=urn:btih:22CE3DC6C24311DA3691BA41875840C3475DDE90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ Selenium WebDriver is a popular browser automation framework, testers or develop
 ```bash
 magnet:?xt=urn:btih:A10FA285DBE3968DFB60A04B3CA53CDCD3F2B53E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ Selenium WebDriver is a popular browser automation framework, testers or develop
 magnet:?xt=urn:btih:4AF1578B9E9FAD1924ED1FFE0AC81DAD8AA6F194
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:4AF1578B9E9FAD1924ED1FFE0AC81DAD8AA6F194
 magnet:?xt=urn:btih:5183890C1C907375F2F4552EEF66040C9313D877
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ Python - отличный язык программирования; однак�
 ```bash
 magnet:?xt=urn:btih:554E8E05F02F401B5E1F8C5B7995321525A954BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:554E8E05F02F401B5E1F8C5B7995321525A954BE
 magnet:?xt=urn:btih:877693ABD88E3281298A5220527EDCF1AB013C39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ Brian Lipp | Modern Data Architectures with Python (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:F546496F36B4EAE1AC288DE5AFC4A1178A406636
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ Raghav Kandarpa, Shivangi Saxena | Data Wrangling with SQL (2023) [PDF][EN]
 magnet:?xt=urn:btih:3F598B222537DC0679586677E942AD65347150A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:3F598B222537DC0679586677E942AD65347150A2
 ```bash
 magnet:?xt=urn:btih:CA80D6C8DC93C7F00388A8A4FB8BD68254BF02C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:CA80D6C8DC93C7F00388A8A4FB8BD68254BF02C9
 magnet:?xt=urn:btih:8526E11D12A09AF385C09157C548D45E7DD93186
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:8526E11D12A09AF385C09157C548D45E7DD93186
 ```bash
 magnet:?xt=urn:btih:F65C601DF5ED92F7A1A1CDE9F1D3699339CB9DC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ Oracle появилась четверть века назад и по сей д
 magnet:?xt=urn:btih:C2A74F827C17640EA841DCB0FE3D44D306322526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:C2A74F827C17640EA841DCB0FE3D44D306322526
 ```bash
 magnet:?xt=urn:btih:F89B3630D5F5A649226C100AE6B0D78C75A9130A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:F89B3630D5F5A649226C100AE6B0D78C75A9130A
 magnet:?xt=urn:btih:92A74D85F3D5EB4CC3D92A59FABCED76ADB1D26B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:92A74D85F3D5EB4CC3D92A59FABCED76ADB1D26B
 magnet:?xt=urn:btih:3BB4D6402E8DFBEC41CB0E2283FFB62707A9C1C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ Olatunde Adedeji | Full-Stack Flask and React (2023) [PDF][EN]
 magnet:?xt=urn:btih:72A2743692B15FBCABFD075148D9F511339EF90C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:72A2743692B15FBCABFD075148D9F511339EF90C
 ```bash
 magnet:?xt=urn:btih:F8AF4CD3AC091E56A454DB55741E58E5BE89200B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ magnet:?xt=urn:btih:F8AF4CD3AC091E56A454DB55741E58E5BE89200B
 magnet:?xt=urn:btih:CEB4DEDB79D1E76EC2940424C394957E8A51CBC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:CEB4DEDB79D1E76EC2940424C394957E8A51CBC5
 magnet:?xt=urn:btih:5DB0D772C6F83B37372406DBFDCFF733F9DDE415
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:5DB0D772C6F83B37372406DBFDCFF733F9DDE415
 ```bash
 magnet:?xt=urn:btih:A3429EBF33269BF605B3D8F30371BEA3597728CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:A3429EBF33269BF605B3D8F30371BEA3597728CA
 magnet:?xt=urn:btih:FAC181D6C2799E1EEE963940B938267A02B47933
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ Mark Simon | Leveling Up with SQL (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:76F5A6B0B58F0B50989ECEEB80D9A5549C78A98C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

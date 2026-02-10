@@ -19,6 +19,8 @@ LibriVox Аудио книга Сторонник предлагает неог�
 magnet:?xt=urn:btih:591D1C56BA4A17D2A504509EE394B274F8ABDD51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:591D1C56BA4A17D2A504509EE394B274F8ABDD51
 magnet:?xt=urn:btih:8F6A279E66336ACBBD1B4B0FD833F06AA5138770
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Background Eraser (InShot Inc.) v2.142.42 [Ru/Multi]
 magnet:?xt=urn:btih:FF879D93DF30AF9D0372B9C56F58EECECE60FDC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Screen Lock - приложение для быстрой блокировки / 
 ```bash
 magnet:?xt=urn:btih:97DC4A96990868827DC461B0C7DAC1CDA0C6FD01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ GPS Локер создан для того чтоб не терять фикс�
 magnet:?xt=urn:btih:93A917C2D0CB082B44295ED52A09AA90466A4231
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ FaceLab редактор лица - лучшее приложение для с�
 magnet:?xt=urn:btih:5F5E32424840E539CA4C86BE1DC3FE61E65DFCE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Lexilize FlashCards v4.8.7 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F70C4AFF10002840828748D8C1B363AB3EF2D64F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:F70C4AFF10002840828748D8C1B363AB3EF2D64F
 magnet:?xt=urn:btih:06141D7261B81FCADDAA423015301D70422BB158
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Rutube v28.4.4 Mod by Alex.Strannik [Ru]
 ```bash
 magnet:?xt=urn:btih:7E3811D5E2E1ACCB74B9443CFDEDE01095AE45BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:7E3811D5E2E1ACCB74B9443CFDEDE01095AE45BB
 magnet:?xt=urn:btih:9D98B603EF171DDF1AFABC124CE4FBC09F7AC0F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:9D98B603EF171DDF1AFABC124CE4FBC09F7AC0F9
 magnet:?xt=urn:btih:890B45624C1F3004FA9592DD3AE11C6F5CBA0D13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Word Surf - это новая креативная игра по поиску с
 ```bash
 magnet:?xt=urn:btih:F7C77CFB9FC0BE5AEE25745EA0618730B8CF31D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:F7C77CFB9FC0BE5AEE25745EA0618730B8CF31D7
 magnet:?xt=urn:btih:2C627E0622E8F82C568A6A5FA2CBAB181889D792
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Moon Reader - проект-читалка которая весьма извес
 ```bash
 magnet:?xt=urn:btih:A105D9AB45A7348C1B8D5607B0E74EEB35087C8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ One Shield Plus — это надежный и безопасный VPN-серв
 magnet:?xt=urn:btih:20CA0C2CCAEF4EAFAED40769D18802A7455F831D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Kiwi VPN Proxy от Macdep - это лучший быстрый и лучший 
 ```bash
 magnet:?xt=urn:btih:DCF06172ADF6031AC815652B1375150780DB394B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:DCF06172ADF6031AC815652B1375150780DB394B
 magnet:?xt=urn:btih:E9CBDDE7A2B8BFF36E07616A886C5A7162EED6D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:E9CBDDE7A2B8BFF36E07616A886C5A7162EED6D3
 ```bash
 magnet:?xt=urn:btih:32819F7173B34DE4B969E66C9FAB79751DE3B774
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ BSPlayer - один из тех мультимедийных плееров, ч�
 magnet:?xt=urn:btih:3F423C6AC058C089F40D84296A1203767275D978
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Malloc Privacy & Security VPN 3.37 Mod by DEXUNPACKER [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:01AAE81127B328C9EEA57D4628B34CFB357D176D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ BBVpn VPN — это молниеносное приложение, предос
 magnet:?xt=urn:btih:B3C80DA840CC0F7E42F4859712601DA794A334AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ PixelLab - отличный фоторедактор, в котором все �
 magnet:?xt=urn:btih:D45A10B59284395852E14E48016F6916EF9EF345
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ Photomath - настоящий подарок для всех, кто регул
 ```bash
 magnet:?xt=urn:btih:DA16530A2F0A5D2A1D5133FC70769A9893C4375C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ Moovit - универсальное приложение для всех ваш�
 magnet:?xt=urn:btih:9037B5E22B4D0AA70DF7A96AF8E7F3FE8D139112
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ MyMovie - это видеоредактор от известного разра
 magnet:?xt=urn:btih:DF7DEA1DC030B562B3EDC17F47BB68461DA0DFAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ KillApps позволяет сразу закрыть все запущенны�
 ```bash
 magnet:?xt=urn:btih:F557F35825EBDC6821DC98B3679818F2857E1438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

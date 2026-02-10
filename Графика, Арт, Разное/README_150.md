@@ -1,54 +1,3 @@
-###  Публикация: 606710   (995076) от 21.01.2013
-
-Фотография - Фотограф Роман Кадария
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотография - Фотограф Роман Кадария
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFAAF1515E1A5F468B2B65D5BB0BD3154DBEE950
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606676   (995094) от 21.01.2013
-
-Фотография - Снимки космического телескопа WISE [JPG,TIF]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наиболее удачные и впечатляющие снимки инфракрасного телескопа WISE (Wide-Field Infrared Survey Explorer, NASA), полученные в 2009 - 2012 годах.
-Съёмка производилась в четырёх диапазонах ИК-области спектра: 3,3 мкм; 4,7 мкм; 12 мкм; 23 мкм.
-85 снимков
-Автор:  danbdanРазрешение файлов: от 1047x1047 до 19000x9500
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1CBE8AB6ED861AC41292A19E8C81F248AC153D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 606707   (995119) от 21.01.2013
 
 Работы художников - Artworks by Gonzalo Carcamo
@@ -69,6 +18,8 @@ magnet:?xt=urn:btih:B1CBE8AB6ED861AC41292A19E8C81F248AC153D1
 ```bash
 magnet:?xt=urn:btih:146B1FD372818A1EC33F6225CB61987FBB064461
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +45,8 @@ magnet:?xt=urn:btih:146B1FD372818A1EC33F6225CB61987FBB064461
 magnet:?xt=urn:btih:5F6C451CD62DF4A63A5CEFA346E7124C5B7E6881
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +70,8 @@ Big Cats Wallpaper (21.01.13) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:12DEFF4FBDF8D47FAFF97AEDE5D9B3FFD0538527
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +97,8 @@ Cat Wallpapers (21.01.13) [Wallpapers]
 magnet:?xt=urn:btih:C22CECEFD6FBB86BCCF79ADAFF8F5718ED415AC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +123,8 @@ magnet:?xt=urn:btih:C22CECEFD6FBB86BCCF79ADAFF8F5718ED415AC2
 magnet:?xt=urn:btih:0F07F79706E82483A63DE35B60C62656F889AF71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +148,8 @@ magnet:?xt=urn:btih:0F07F79706E82483A63DE35B60C62656F889AF71
 ```bash
 magnet:?xt=urn:btih:8A419E579D30F74597BAC886593748470ADEA38C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +179,8 @@ magnet:?xt=urn:btih:8A419E579D30F74597BAC886593748470ADEA38C
 magnet:?xt=urn:btih:DAA55D032B0E2D9D6FD6840647C023204843EBE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +205,8 @@ magnet:?xt=urn:btih:DAA55D032B0E2D9D6FD6840647C023204843EBE8
 magnet:?xt=urn:btih:CF3AA40977EEA5661BE3CFFCF60CF35771F9B5EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +230,8 @@ magnet:?xt=urn:btih:CF3AA40977EEA5661BE3CFFCF60CF35771F9B5EE
 ```bash
 magnet:?xt=urn:btih:ACB0DE0B85E4B7884BD0BA13C7A235A0AEBBFCFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +259,8 @@ magnet:?xt=urn:btih:ACB0DE0B85E4B7884BD0BA13C7A235A0AEBBFCFB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +284,8 @@ magnet:?xt=urn:btih:ACB0DE0B85E4B7884BD0BA13C7A235A0AEBBFCFB
 ```bash
 magnet:?xt=urn:btih:A99E40769CFE69B07CED7A8DD6D1C919AFB3834B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +311,8 @@ Best HD Wallpapers Pack (2/2013) [Wallpapers]
 magnet:?xt=urn:btih:D6D218AD47C8D8E23C33CAD050B6C82D1A464F80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +336,8 @@ magnet:?xt=urn:btih:D6D218AD47C8D8E23C33CAD050B6C82D1A464F80
 ```bash
 magnet:?xt=urn:btih:86AA807F098E35CD57D4049848A30ED4C59B7139
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +363,8 @@ magnet:?xt=urn:btih:86AA807F098E35CD57D4049848A30ED4C59B7139
 magnet:?xt=urn:btih:809E77CDA0819A4ACD7C2E10C42FB5BD1E0B70A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +388,8 @@ Nocturnal Moth – псевдоним 19-летней Элис М. С., худо
 ```bash
 magnet:?xt=urn:btih:A0DC3978CE36F91A222EF38245000BAC0EB53DF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +415,8 @@ magnet:?xt=urn:btih:A0DC3978CE36F91A222EF38245000BAC0EB53DF9
 magnet:?xt=urn:btih:8692DDB1CBEC6AE70C34556F8B4C8D744D4712BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +440,8 @@ magnet:?xt=urn:btih:8692DDB1CBEC6AE70C34556F8B4C8D744D4712BA
 ```bash
 magnet:?xt=urn:btih:305D02AC86D27756DC32C8E2BF10D4A333CF9AF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +468,8 @@ magnet:?xt=urn:btih:305D02AC86D27756DC32C8E2BF10D4A333CF9AF2
 magnet:?xt=urn:btih:D7737FDB56BDBA6923D3CC12B2F071A29E817E2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +493,8 @@ magnet:?xt=urn:btih:D7737FDB56BDBA6923D3CC12B2F071A29E817E2F
 ```bash
 magnet:?xt=urn:btih:351AE7FCF0AA25DADFE70039B29A0267D4A61121
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +520,8 @@ magnet:?xt=urn:btih:351AE7FCF0AA25DADFE70039B29A0267D4A61121
 magnet:?xt=urn:btih:E33D8BE590A3DE07FE7417A1B4719FC676BEDD6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +545,8 @@ magnet:?xt=urn:btih:E33D8BE590A3DE07FE7417A1B4719FC676BEDD6A
 ```bash
 magnet:?xt=urn:btih:929618F0E53C4114F52240F06793B52CE39BF7EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +572,8 @@ magnet:?xt=urn:btih:929618F0E53C4114F52240F06793B52CE39BF7EE
 magnet:?xt=urn:btih:9BF8E31770FAC25E9A4799D17DA443426FF9A7EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +598,8 @@ magnet:?xt=urn:btih:9BF8E31770FAC25E9A4799D17DA443426FF9A7EC
 magnet:?xt=urn:btih:54B8230A9B6C689B977AF5A30A9F1D52A58559DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +623,60 @@ magnet:?xt=urn:btih:54B8230A9B6C689B977AF5A30A9F1D52A58559DB
 ```bash
 magnet:?xt=urn:btih:3803A634DDFA4CE90AB2C771FA6731D701742AD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602981   (996949) от 15.01.2013
+
+Работы художников - Японская графика - Коллекция гравюр / Japanese graphics - Collection of engravings
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы художников - Японская графика - Коллекция гравюр / Japanese graphics - Collection of engravings
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DB78AAFFEE83250EE0EB7DC863179E04004A18F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602431   (996950) от 15.01.2013
+
+Работы художников - Tierno Beauregard
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы художников - Tierno Beauregard
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEE519A26435A1ACFBE9E90C815F812F2C5265DB
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

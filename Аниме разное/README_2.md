@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:93D5AC3AFD66DB24091033BCEEBF3ED9583557DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:93D5AC3AFD66DB24091033BCEEBF3ED9583557DF
 ```bash
 magnet:?xt=urn:btih:0BCCB0ADA7A25F6EF3C72C1254C04EFAC6DD9EBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Nagi no Asukara | Nagi-Asu: A Lull in the Sea | Безоблачное завт�
 magnet:?xt=urn:btih:CD3DC0C8A772EC63C51D8DEA9B59ED3DB2E71C63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Jibaku Shounen Hanako-kun 2 | Toilet-bound Hanako-kun Season 2 | Туалетн�
 ```bash
 magnet:?xt=urn:btih:7F49A3FAB49E9D0860CC51F1D888C5DCB7E809B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Kimi wa Houkago Insomnia | Insomniacs After School | Бессонница пос
 magnet:?xt=urn:btih:1048E7750D21EF2B037B013DA6B6C60E5EB14251
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Hazure Skill "Kinomi Master": Skill no Mi (Tabetara Shinu) o Mugen ni Taberareru
 ```bash
 magnet:?xt=urn:btih:CA29C5CF6557320515AB5CF97D1B338ADE276969
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Saikyou Onmyouji no Isekai Tenseiki | The Reincarnation of the Strongest Exorcis
 magnet:?xt=urn:btih:F3F0C308C6FF28A30A2B89624289257AE7867B80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Cheat Kusushi no Slow Life: Isekai ni Tsukurou Drugstore | Drugstore in Another 
 ```bash
 magnet:?xt=urn:btih:FF0CD34732E45FA53764E30189A669F8AA8DEFA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Gimai Seikatsu | Days with My Stepsister | Жизнь со сводной сес
 magnet:?xt=urn:btih:CC4E29910DD9738B597F80EB64541476A2D67EA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019
 ```bash
 magnet:?xt=urn:btih:FA391D066C77836C0620C021E1210EA26E69F78E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019
 magnet:?xt=urn:btih:C8DEF6CF72B36CC3CBBA89A95D03B2FD26B24859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Violet Evergarden: Etern
 ```bash
 magnet:?xt=urn:btih:91F56839359B064B03852500C7EB2FFA7D1E73A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Gekijouban Violet Evergarden | Вайолет Эвергарден | Violet Ever
 magnet:?xt=urn:btih:5F1A243FE4C972AED39D1D2A1D72AC7DC41E535A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Bakemono no Ko | The Boy and the Beast | Ученик Чудовища [2015, Mo
 ```bash
 magnet:?xt=urn:btih:E7961CA68F1AFFDD492F593FB27761B8630F9922
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Ookami Kodomo no Ame to Yuki | Wolf Children | Волчьи дети Амэ и �
 magnet:?xt=urn:btih:E8008754434A75A042CF91EFB8B2443A29AD7F2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Kaijuu no Kodomo | Children of the Sea | The Sea Monster's Children | Дети �
 ```bash
 magnet:?xt=urn:btih:507D2F550B54AF2EC70C1303DF103BD0E8FF5480
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Tenki no Ko | Weathering with You | Дитя Погоды [Movie] Blu-ray 1080p 
 magnet:?xt=urn:btih:9EBB964B46F165995FFE5BF2C2CD27F5450100A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ magnet:?xt=urn:btih:9EBB964B46F165995FFE5BF2C2CD27F5450100A2
 ```bash
 magnet:?xt=urn:btih:48A1CD59F2E35F8E58394E5F2E47DE473D4E135B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Karigurashi no Arrietty | The Secret World of Arrietty | Добывайка Ар
 magnet:?xt=urn:btih:3CD43A675C35BF16A8EFAF39CB1CDD633769D8A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Byousoku 5 Centimeter | 5 Centimeters per Second | Пять Cантиметро�
 ```bash
 magnet:?xt=urn:btih:F9ECAD1091F8353F1E3C424C90C5EFF40B9A8A1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Megami no Cafe Terrace | The Cafe Terrace and Its Goddesses | Богини ка�
 magnet:?xt=urn:btih:62B9069ED68D69376A5204F606D264CCD62CD285
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Henjin no Salad Bowl | A Salad Bowl of Eccentrics | Салатница чуда�
 ```bash
 magnet:?xt=urn:btih:EAF987678DCD7906CC312EAA43E4FE9253D0EA8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Jun Abe - клавишиЖанр: J-POPПродолжительность: 1:21:
 magnet:?xt=urn:btih:7A792881400051734D3EFCDBB0E6FE951BFE9A44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ Tsutsu Yume Gunnm / Gunnm / Сны оружия / Боевой Ангел Али
 magnet:?xt=urn:btih:34AD66DBC04C48C35B26A12FAABCAA9B0C44B612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Hatsune Miku Live Party 2011 (Mikupa) / Хацунэ Мику живой кон�
 magnet:?xt=urn:btih:B5CCCD7CE69987E054910D4102C579A3D8FD088F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Kono Subarashii Sekai ni Shukufuku o! Kurenai Densetsu | Konosuba: God's Blessin
 ```bash
 magnet:?xt=urn:btih:D1C91D9736C12553BA551DE4FB0CD46FD5CC4158
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

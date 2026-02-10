@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:4086C8EE479A060271968BA3CD99614B288709E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:4086C8EE479A060271968BA3CD99614B288709E5
 ```bash
 magnet:?xt=urn:btih:5E072C19A00814636BB719F6269A860588439B13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Marvel's Spider-Man 2 (2025) [Ru/Multi] (1.526.0.0/dlc) Repack Wanterlude [Digit
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ No Rest for the Wicked (2024) [Ru/Multi] (23939) Repack Wanterlude [Early Access
 ```bash
 magnet:?xt=urn:btih:6AD2EA99AEA3F21AC89A1F515C8929AFF9E3EF2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Knights in Tight Spaces (2025) [Ru/Multi] (1.2.19328) Repack Let'sРlay [Collect
 magnet:?xt=urn:btih:8940A6E9DBE2B495ADCD996A99EC8A2622C2B698
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:8940A6E9DBE2B495ADCD996A99EC8A2622C2B698
 ```bash
 magnet:?xt=urn:btih:A67769D3E4CB386FF20B40F05012356E50B90596
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ WinRAR - один из самых известных архиваторов. Т�
 magnet:?xt=urn:btih:628AFD02E1FB32C8FC163FEEC26AC82427EFD9AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:628AFD02E1FB32C8FC163FEEC26AC82427EFD9AB
 ```bash
 magnet:?xt=urn:btih:96AF0465BF60A88A8C9F4E9ABF98D4CC84E81DBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Codename: Ocean Keeper (2024) [Ru/Multi] (1.0.4) Repack Let'sРlay
 magnet:?xt=urn:btih:8991570D1F004F5B1DD78138C86F809ACC30466B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:8991570D1F004F5B1DD78138C86F809ACC30466B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ NAVITEL® выпустил глобальное обновление всех к
 magnet:?xt=urn:btih:CBFD51DC870C8AFC2E486411E6D40034D974FAE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:CBFD51DC870C8AFC2E486411E6D40034D974FAE0
 ```bash
 magnet:?xt=urn:btih:058DAE0FCC74BE64846DD7CC35030CFE66F7B60A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Terminator: Dark Fate – Defiance позволяет окунуться в су
 magnet:?xt=urn:btih:60C3E19A4EE060B3FD2AC23C90D20763B48BC90F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:60C3E19A4EE060B3FD2AC23C90D20763B48BC90F
 ```bash
 magnet:?xt=urn:btih:77A9172E605442E08EF64102D43B266F83237C85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:77A9172E605442E08EF64102D43B266F83237C85
 magnet:?xt=urn:btih:70710CD24A8C32453E5AE28AD9F32A9ABB799626
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ BBC. Становление континентов / Rise of the Continents (201
 ```bash
 magnet:?xt=urn:btih:2DEBA26653C1EB5F72754D346995970B3047AAAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:2DEBA26653C1EB5F72754D346995970B3047AAAC
 magnet:?xt=urn:btih:08233971069312B32DC5743F66C6BBCF1B76BFE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:08233971069312B32DC5743F66C6BBCF1B76BFE8
 ```bash
 magnet:?xt=urn:btih:66B859AC2C69E4203E8BDAC47DFB27F0EB45CD11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:66B859AC2C69E4203E8BDAC47DFB27F0EB45CD11
 magnet:?xt=urn:btih:D4D21AF2A259ED0049041BFF67109E9918F58F89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:D4D21AF2A259ED0049041BFF67109E9918F58F89
 magnet:?xt=urn:btih:6274B9AB10E841EBA41F538203DC7E8E3C3AD647
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Nihon e Youkoso Elf-san. | Welcome to Japan, Ms. Elf! | Добро пожало�
 ```bash
 magnet:?xt=urn:btih:A83D83C1C648C51503C7CB9EC9DF98A52249FC47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:A83D83C1C648C51503C7CB9EC9DF98A52249FC47
 magnet:?xt=urn:btih:5485E5EA3F436675C28C6ED90EC99EDEC0593D0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:5485E5EA3F436675C28C6ED90EC99EDEC0593D0F
 ```bash
 magnet:?xt=urn:btih:B0718E8EE0CFEE8F9120614C76FF37E5E6B24329
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:B0718E8EE0CFEE8F9120614C76FF37E5E6B24329
 magnet:?xt=urn:btih:6EB39AEB9356D16598204EC0974EE0B57C921DF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:6EB39AEB9356D16598204EC0974EE0B57C921DF9
 ```bash
 magnet:?xt=urn:btih:2FFBC29769B527627328A6188C5598BD86E22252
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:2FFBC29769B527627328A6188C5598BD86E22252
 ```bash
 magnet:?xt=urn:btih:EE60E9EB08D986069FAD5D0ECEE4C5EDB626C612
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

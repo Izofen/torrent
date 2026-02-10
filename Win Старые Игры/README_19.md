@@ -19,6 +19,8 @@ Earth 2150: Moon Project / Земля 2150: Дети Селены (2000) [Ru/Mul
 magnet:?xt=urn:btih:C0779862D112A93B833FA704D3E968E719049E57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Earth 2150: Escape from the Blue Planet / Земля 2150: Война миров
 ```bash
 magnet:?xt=urn:btih:81CB997404208C3A17D53BE3D1F021162A6B8D9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Earth 2150: Lost Souls / Земля 2150: Воды Стикса (2002) [Ru/Multi
 magnet:?xt=urn:btih:85B7B9A40CA8A66DA13D19A054AB5FB75A1AB7B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Star Wars™: Knights of the Old Republic (2003) [Multi] (1.0.3.0) License GOG
 ```bash
 magnet:?xt=urn:btih:F973740C6009AB7E6F4C32AA57F236D40F2645A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Star Wars™: Jedi Knight™ - Jedi Academy™ (2003) [Multi] (1.01A) License GO
 magnet:?xt=urn:btih:18B77C0942418DF54AACEC0CC45CA64B2B9B838E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Tom Clancy's Splinter Cell: Pandora Tomorrow (2004) [Ru/En] (1.0) Repack R.G. Re
 ```bash
 magnet:?xt=urn:btih:1525C6C32706FD0C95EA8B0D9547867657B6C0B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Tom Clancy's Splinter Cell (2003) [Ru/En] (1.3) Repack R.G. Revenants
 magnet:?xt=urn:btih:C61BBE6059BEFBFDED535103DC5B785B792155D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Warrior Kings (2002) [En] (1.4) License GOG
 ```bash
 magnet:?xt=urn:btih:02766C27432D2EF718D5497004CB4EC8280AA31B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Toyland Racing / Игрушечные гонки [Ru] (L) 1998
 magnet:?xt=urn:btih:F57236DEAD08F00D3D7A023CE28C7BCA88250941
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Sherlock Holmes: The Case of the Silver Earring / Шерлок Холмс. За�
 magnet:?xt=urn:btih:06054824574DFE95AFEC8B274861789A815B3897
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ The Temple of Elemental Evil (2003) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:434B09EEE841988EF0698CAFC43DB80FEC732ACF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:434B09EEE841988EF0698CAFC43DB80FEC732ACF
 magnet:?xt=urn:btih:A1E3EAF13E2515595EA1A0D666D94041B2376C9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Oddworld: Abe's Exoddus (1998) [En] (2.0) License GOG
 ```bash
 magnet:?xt=urn:btih:17A856B5B87EC4A909E97F99835B42511C3D445D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Dream Pinball 3D / 3D Пинбол. Во власти азарта (2006) [En] (
 magnet:?xt=urn:btih:89CF89729076D6F4AAF2B86201EAA5CBF0381404
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Sensible Soccer 2006 (2006) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:02C85232B2B4CF7086718CEA81B03D593DD4E1C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ I.G.I. 2: Covert Strike (2003) [Multi] (1.3.0.0) License GOG
 magnet:?xt=urn:btih:ED1458642ED4144E9FBD523FEEF40E86AF3B07B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Evolution: The Game of Intelligent Life (1997) [Ru] (1.0) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:B27964C78F0AF8400F0EB7499E9A221DF2FE0C5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Jurassic War (1997) [Ru] (1.05) Repack R.G. Games
 magnet:?xt=urn:btih:50A6C8C712431CF7EB1A36FE3C08BE5667AB80F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:50A6C8C712431CF7EB1A36FE3C08BE5667AB80F6
 ```bash
 magnet:?xt=urn:btih:3F30A0D9671110DA0619BEA1B3E9074F450E9903
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Outlaws (1997) [En] (1.0) License
 magnet:?xt=urn:btih:BB01038EF184C8D11840BFA4BA3F87AE17E8E3A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Might and Magic 8: Day of the Destroyer (2000) [En/Fr/Ge] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:BE386AE4B809D451A22546D6E5069EC75607E189
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ Afterlife (1996) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:047AE690D50DCD0C9B43364B1D02D942457751FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ Freedom Fighters (2003) [Ru/En] (1.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:E4F55F45F01D732E604186412B7FD295FF149D0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ Descent 2 (1996) [En] (1.1) License GOG
 magnet:?xt=urn:btih:5E71B218BAF2284FAA7F6D409B72DD44B7A2764D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Nox (2000) [En] (1.2) License GOG
 magnet:?xt=urn:btih:A49CC6742991C426339CF3C0F005AEF6A4C968DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Descent (1996) [En] (1.4a) License GOG
 ```bash
 magnet:?xt=urn:btih:09D41047AE9831AA7BCF50A88A0D0580DA8F51F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:6EA27D7320D43414DCAC7CF2FF31DA2D31EE1F13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:6EA27D7320D43414DCAC7CF2FF31DA2D31EE1F13
 magnet:?xt=urn:btih:F30E6C76DCEB3BC87B8CB8F49FCF425B626064CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:F30E6C76DCEB3BC87B8CB8F49FCF425B626064CC
 ```bash
 magnet:?xt=urn:btih:BBD0A1271C3E5C784EFE3AAEDE8CC6EB0FF55179
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Icecream Screen Recorder - программа, позволяющая вести
 magnet:?xt=urn:btih:92FF1763B5592C4F35F1D7ECD70D1AF1B95F565B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:92FF1763B5592C4F35F1D7ECD70D1AF1B95F565B
 ```bash
 magnet:?xt=urn:btih:669872489247425A0314FA8BDF62FC8060C9A6C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:669872489247425A0314FA8BDF62FC8060C9A6C2
 magnet:?xt=urn:btih:9D6F9C3B3CD35D8A5A21532D327D9B051EAF61FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Stockfolio - это инвестиционное приложение для Mac
 ```bash
 magnet:?xt=urn:btih:C4477051B3171898701A95280CC68629F963F067
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:C4477051B3171898701A95280CC68629F963F067
 magnet:?xt=urn:btih:4F391F297928444B032267E66E792B6284C9B577
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Unmechanical: Extended 2.1.0.3 (2012) [Multi/Ru] [macOS Native game]
 ```bash
 magnet:?xt=urn:btih:2D6626FDD78D3A831C2206C43E191B9B88DD18DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:2D6626FDD78D3A831C2206C43E191B9B88DD18DC
 magnet:?xt=urn:btih:7445C4A3A0D795506A67F0F559E4D3D80EB0401D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:7445C4A3A0D795506A67F0F559E4D3D80EB0401D
 ```bash
 magnet:?xt=urn:btih:05373ABB9139FA0850974823F8BE908CE4C3014F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Santana - Caravanserai (1972) Reissue, Remastered, 2022, Sony Records Int'l  [DS
 magnet:?xt=urn:btih:EE482B77F772BC27AAFAA5443EE5E9B59AB7C53B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:EE482B77F772BC27AAFAA5443EE5E9B59AB7C53B
 ```bash
 magnet:?xt=urn:btih:EC64ADD7064EA0DE24363939F5BCE0E03571BFD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ Tourniquet - 10 Albums (1990-2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
 magnet:?xt=urn:btih:AD392ED59FB110B031F9FA2CDB68645E895AAD56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:AD392ED59FB110B031F9FA2CDB68645E895AAD56
 ```bash
 magnet:?xt=urn:btih:2E98B1B5511077EB07EB530C59EAC9946BFC4464
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ Prince of Persia: The Two Thrones (2005) [En] (License GOG) [macOS WineSkin]
 magnet:?xt=urn:btih:45194462F3E40947EFDF71D32D9825B44389492B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:45194462F3E40947EFDF71D32D9825B44389492B
 ```bash
 magnet:?xt=urn:btih:70A59CBD764810F0531D61803E64D82095848D04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:70A59CBD764810F0531D61803E64D82095848D04
 magnet:?xt=urn:btih:59F5424E7E2C965B2F25E0820ED994C5F74DCFA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ Jeff Liberman - Solitude Within (1975) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 magnet:?xt=urn:btih:0CC2A012458E792E21141446B530C314B19C6300
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:0CC2A012458E792E21141446B530C314B19C6300
 magnet:?xt=urn:btih:2C29D95F1118E34B2F398104674080048314EDF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:2C29D95F1118E34B2F398104674080048314EDF6
 ```bash
 magnet:?xt=urn:btih:08354C31AC6B81935226B219CC8BD8BEBC603149
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ Hands Off! - контроль доступа в Интернет
 magnet:?xt=urn:btih:74540A44218E03014E1257AFD0B82266884BBEBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ AIDA64 - данная программа является многофункци
 ```bash
 magnet:?xt=urn:btih:30C7206D3AE888ED252A623E748EFBF3A71C5A66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:30C7206D3AE888ED252A623E748EFBF3A71C5A66
 magnet:?xt=urn:btih:FD68764C3EFF7F569D7DE61ED1B9033DE3B2685A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:FD68764C3EFF7F569D7DE61ED1B9033DE3B2685A
 magnet:?xt=urn:btih:0C90B0B64A4729F03D71BD5BEA8BF75501CC108F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ magnet:?xt=urn:btih:0C90B0B64A4729F03D71BD5BEA8BF75501CC108F
 ```bash
 magnet:?xt=urn:btih:75E40B81163BA63E0F251E81AB2284954F8E0869
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

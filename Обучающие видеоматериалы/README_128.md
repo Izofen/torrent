@@ -19,6 +19,8 @@ Udemy, Colt Steele | Mastering TypeScript - 2022 Edition (2022) WEB-DL [EN / EN 
 magnet:?xt=urn:btih:153F5A916A863D9606BB60365E6FE011E4EFCDDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ CG Cookie, Kent Trammell | Creating Hair Cards for Realtime Characters in Blende
 ```bash
 magnet:?xt=urn:btih:7ADB2CAF3EEE1089383AF96BDB6136CC4FD9BD17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Artefactoschool, Игорь Хайков | Времена года (2022) WEB-DL
 magnet:?xt=urn:btih:0D74755B0598BD409FE6C2293417E772372BD53F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Udemy, Ivan Yosifov | Unreal Engine 5 - Create Zombie Survivor FPS Game (2022) P
 magnet:?xt=urn:btih:2CFE12FF3166CE2223BD5A7164346AF40ADF9B3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Udemy, Ivan Yosifov | Unreal Engine 5 - Make AAA Game Vehicles (2022) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:EA503C3B4AA8DCE7BC7A4A26BAF81488CC0BA851
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ Enterclass, Сергей Курбатов | Весенняя зелень (2023)
 magnet:?xt=urn:btih:CE1BDBB8DF029E7CB1F00E1D547AAD690EFE37AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:CE1BDBB8DF029E7CB1F00E1D547AAD690EFE37AD
 magnet:?xt=urn:btih:40BFF29F156325C8206047AA51B6F5D2BEDE078A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ Udemy, Nathalia Ferrari | Environment Course in Blender 2.93 (2022) PCRec [EN / 
 ```bash
 magnet:?xt=urn:btih:F3F4D698EDF9DCEC839327AC2D17875ED3F553E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:F3F4D698EDF9DCEC839327AC2D17875ED3F553E4
 magnet:?xt=urn:btih:ACC85707E68F51A99BE2F97226AC5C5CDACA2433
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ The Gnomon Workshop, Wojtek Piwowarczyk | Creating Procedural Environments in Ho
 magnet:?xt=urn:btih:941DFC51FF030CCCFD187E17670E865F6CD7BB57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ Udemy, Alexander Batashov | Ruby on Rails 6 - 2020. Создание собст�
 magnet:?xt=urn:btih:9E54954790A1B80F3C3041AEB0BDBDAB0A769CC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ Stan Winston School, Dan LuVisi | Creature Design - Photoshop Character Renderin
 ```bash
 magnet:?xt=urn:btih:209093D40767851F6E0483F7D8DDEE467F2BC6ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ Javascript - это язык, который современные разраб
 ```bash
 magnet:?xt=urn:btih:0BFF610166AB4187E6F53278FF6DCFAB0C7A9347
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ Jeff Delaney | Dart 101 (2021) WEB-DL [EN]
 magnet:?xt=urn:btih:19259603DC35F68A22B14F8DDDFFA8EAFA0D701B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ magnet:?xt=urn:btih:19259603DC35F68A22B14F8DDDFFA8EAFA0D701B
 magnet:?xt=urn:btih:4C7BF15946BF7D6CDCFF131CF24D228F7457C271
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ C++ Russia 2022 — конференция для CPP-разработчиков
 ```bash
 magnet:?xt=urn:btih:C716E02C8C10F815E75DDE23366D93C3FF4AD164
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ Udemy, John Purcell | Java 11 For Complete Beginners (2020) WEB-DL [EN / EN Sub]
 magnet:?xt=urn:btih:F9D3445F6A3E93C08CE085BEAB543F947AC477C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ Domestika, Juan Solís | Professional Modelling of 3D Cartoon Characters (2021) 
 ```bash
 magnet:?xt=urn:btih:B63FBE10A8E5446EBEB756D33C9A80A8DF33E551
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ Nadja-Leutloff-School, Евгения Костикова | Нежность ле
 magnet:?xt=urn:btih:FD60FD084C2A315213D3FA6883A74D032AB5CACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ DotNext — это площадка, где раз в полгода .NET-раз
 magnet:?xt=urn:btih:6AC62D6A2C2C17B2E08FDE2634EB36BC974CD2BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ The Animation Box, Yuri Lementy | Cartoon Mechanics Masterclass (2020) PCRec [RU
 ```bash
 magnet:?xt=urn:btih:3DFE0F1E1AF26465919208F15DC7A071BF54B77C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ Full Time Game Dev позволит вам ничего не знать о ра�
 magnet:?xt=urn:btih:B198942C51DF2C28C3BD58DCE328D4467A7EB7BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ The Gnomon Workshop, Sarah Arduini | Character Animation and Video Reference (20
 ```bash
 magnet:?xt=urn:btih:00990D5867415AB74388A390452EB41B7AA97CFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ HolyJS 2022 Spring — большая конференция для JS-разр�
 magnet:?xt=urn:btih:65DBB5B279A9E1192699D0BA22DE64B6DC9DD387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ The Art Of Aaron Blaise, Aaron Blaise | Perspective Drawing (2019) PCRec [RU]
 magnet:?xt=urn:btih:409A313E4C2B6AD4C4726BF33EC804EF681E9DDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +704,8 @@ Udemy, Дмитрий Читалов | Создаем Telegram бот - мага
 ```bash
 magnet:?xt=urn:btih:496C4ED042284751A50352DA1C8A900D7E10823C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

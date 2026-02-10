@@ -1,3 +1,29 @@
+###  Публикация: 1063065   (436376) от 15.10.2016
+
+Битва экстрасенсов (2016.10.15) SATRip (сезон 17, выпуск 7)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436376.jpg" />
+</div>
+
+
+###  Подробнее
+
+С 3 сентября на ТНТ стартует долгожданный 17-й сезон «Битвы экстрасенсов» — самого мистического, непредсказуемого и загадочного проекта российского ТВ. Масштабный кастинг, новые яркие участники и высокие технологии в мире экстрасенсорики. Новый сезон обещает стать самым необычным и удивительным в истории шоу. «Мне бы очень хотелось, чтобы в новом сезоне экстрасенсы (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаПродолжительность: 01:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2CDFA8E60B12FAB5F3D3D795647DD3E70E334FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1165128   (436581) от 11.09.2017
 
 Люмьеры! / Lumiere! (2016) WEBRip [H.264/1080p-LQ]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:260507BBBD8926AFAB2A6410B6B03DD6CAEE2704
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:260507BBBD8926AFAB2A6410B6B03DD6CAEE2704
 magnet:?xt=urn:btih:3F94FA19970CA2E8A7517C6F26491307F7F9ED68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ CNN: Семидесятые / The Seventies (2015) SATRip (1-8 серий из 8
 magnet:?xt=urn:btih:1B3B1679581A1C3F9F14E99B21314866E8C5739B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:1B3B1679581A1C3F9F14E99B21314866E8C5739B
 ```bash
 magnet:?xt=urn:btih:BAC84C005A001ECB57F5BFB2192D38AA111AE6CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:BAC84C005A001ECB57F5BFB2192D38AA111AE6CF
 magnet:?xt=urn:btih:14C4C3709698F3102259C88FCAB0C2A6F185AB97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:14C4C3709698F3102259C88FCAB0C2A6F185AB97
 ```bash
 magnet:?xt=urn:btih:9DA85BB9115FC48491E1A4A12FBF278E3048EDBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:9DA85BB9115FC48491E1A4A12FBF278E3048EDBD
 magnet:?xt=urn:btih:4E4E44E2ADA60E2BB589BB868C9616CE29B95C07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:4E4E44E2ADA60E2BB589BB868C9616CE29B95C07
 ```bash
 magnet:?xt=urn:btih:91051ABAE296F3092A2E4F3A3D9BE56B0277DE69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:91051ABAE296F3092A2E4F3A3D9BE56B0277DE69
 magnet:?xt=urn:btih:532008DE823E34A7BA561483C5C255E02EB8E600
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:532008DE823E34A7BA561483C5C255E02EB8E600
 ```bash
 magnet:?xt=urn:btih:BBDAA2468CD7363C02F76D68466E077287AF8097
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:BBDAA2468CD7363C02F76D68466E077287AF8097
 magnet:?xt=urn:btih:ECF738A8CE220795BE5F45D44A15F141BCE30F5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:ECF738A8CE220795BE5F45D44A15F141BCE30F5E
 ```bash
 magnet:?xt=urn:btih:0507639953ACC429190487774882AB86C187EBAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:0507639953ACC429190487774882AB86C187EBAE
 magnet:?xt=urn:btih:809CC81F1A91B4F7A5054B8376F3358FFF736800
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:809CC81F1A91B4F7A5054B8376F3358FFF736800
 ```bash
 magnet:?xt=urn:btih:BA2531AC343F1E7C6A6A493E6F862B0330ABD7EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:BA2531AC343F1E7C6A6A493E6F862B0330ABD7EB
 magnet:?xt=urn:btih:F2DE6A43FF8F7E345FAEA3CE5360BA20E62E21F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:F2DE6A43FF8F7E345FAEA3CE5360BA20E62E21F1
 ```bash
 magnet:?xt=urn:btih:15D532C310A7143C178865C87EC823F37F20BA48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:15D532C310A7143C178865C87EC823F37F20BA48
 magnet:?xt=urn:btih:1303EF5C1E7CA327F866523549D312CE97B110DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:1303EF5C1E7CA327F866523549D312CE97B110DF
 ```bash
 magnet:?xt=urn:btih:0BBF7259F7D55D955C12086BD620A1A990F36E97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:0BBF7259F7D55D955C12086BD620A1A990F36E97
 magnet:?xt=urn:btih:BC2544950BD327AC7C7CB4C6DBA6FC155F4E1E8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +539,8 @@ magnet:?xt=urn:btih:BC2544950BD327AC7C7CB4C6DBA6FC155F4E1E8E
 ```bash
 magnet:?xt=urn:btih:2ACA14B4195FF573645DA861179E342BCC339AEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:2ACA14B4195FF573645DA861179E342BCC339AEF
 magnet:?xt=urn:btih:3DC6DB7C999058B0BF552C37A4FA82CC2E545BA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +591,8 @@ magnet:?xt=urn:btih:3DC6DB7C999058B0BF552C37A4FA82CC2E545BA0
 ```bash
 magnet:?xt=urn:btih:D38DE2E1CD8CB83130A0B7DA68D5458C311B4625
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:D38DE2E1CD8CB83130A0B7DA68D5458C311B4625
 magnet:?xt=urn:btih:EDC956256A138DADCF38D43AD048E4731FBBA1E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +643,8 @@ magnet:?xt=urn:btih:EDC956256A138DADCF38D43AD048E4731FBBA1E7
 ```bash
 magnet:?xt=urn:btih:4FFB4A09953E42F5DD9F70A5254E59C2859AC814
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,29 +670,7 @@ magnet:?xt=urn:btih:4FFB4A09953E42F5DD9F70A5254E59C2859AC814
 magnet:?xt=urn:btih:CE130109907C17F394D16FA97715D50F154D9297
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410089   (437911) от 20.09.2020
-
-Танцы (19.09.2020) WEB-DL [H.264/1080p-LQ] (сезон 7, выпуск 4)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437911.jpg" />
-</div>
-
-
-###  Подробнее
-
-На ТНТ стартует Последний сезон проекта «ТАНЦЫ». В этот день в шоу начнется этап кастингов, которые пройдут в шести городах. Также в этом сезоне снова пройдет кастинг для второгодников – танцовщиков, которые уже пробовали свои силы в шоу – но на этот раз им придется услышать «Ты в Танцах!» минимум от двух наставников. Сохранит трио наставников Мигеля, Егора Дружинина (   Читать дальше...   )Телекомпания: Россия, Comedy Club Production, Телеканал ТНТЖанр: Реалити-шоу, танцы, развлекательный, хореографияСубтитры: ОтсутствуютПродолжительность: 01:30:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A95A0CF293712EB1F8818FFE44637210E56C00E7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - Oktoberfest Rock Party (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:317CBF49DCCA2F493CD613A5F0D21616148E3281
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Behind the Frame: The Finest Scenery (2021) [Ru/Multi] (2.0.4_01) License GOG
 ```bash
 magnet:?xt=urn:btih:BF5813EBD16EF0EF5BF84785F9F69EC0D6141107
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Google Earth Pro 7.3.6.9275 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:64AD954DBE70EC552EA8EF9917A2894EFA88E542
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:64AD954DBE70EC552EA8EF9917A2894EFA88E542
 ```bash
 magnet:?xt=urn:btih:80942D138A10685D30F027701F76003B88ED6D66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:80942D138A10685D30F027701F76003B88ED6D66
 magnet:?xt=urn:btih:216A1C3A8C56E51101ABF79531202CCD0AB10B86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Complete Internet Repair 9.0.3.6088 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:52232C21C0176F567995D1796E1D295C2785EDEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:52232C21C0176F567995D1796E1D295C2785EDEC
 magnet:?xt=urn:btih:545FCEC3AA668871A08F99068AFA272D7AFB7DA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:545FCEC3AA668871A08F99068AFA272D7AFB7DA1
 ```bash
 magnet:?xt=urn:btih:781A89E704E8F4C6C577967D67A3F5E165CFBE82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:781A89E704E8F4C6C577967D67A3F5E165CFBE82
 magnet:?xt=urn:btih:955E43C7F9AC3F314E1139FFB508078528FA5A01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Text Editor Pro 27.5.2 + Portable + Bonus [Multi/Ru]
 magnet:?xt=urn:btih:3FBC8C8843EE98EDF4EC6B108744441FF3D41B0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:3FBC8C8843EE98EDF4EC6B108744441FF3D41B0B
 ```bash
 magnet:?xt=urn:btih:0A0BDF9A4BC4BA9E176EEFC4D9686981C337E876
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:0A0BDF9A4BC4BA9E176EEFC4D9686981C337E876
 magnet:?xt=urn:btih:3F53CF05D9101B65BC92EB7A9DC1C068EA2754C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:3F53CF05D9101B65BC92EB7A9DC1C068EA2754C7
 ```bash
 magnet:?xt=urn:btih:B3FD47A602D62605DCA6F558C97C4CD7216D0A9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:B3FD47A602D62605DCA6F558C97C4CD7216D0A9B
 magnet:?xt=urn:btih:A7D8AFF31B963E0A3345E3F82FF69B7B53D607CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:A7D8AFF31B963E0A3345E3F82FF69B7B53D607CF
 ```bash
 magnet:?xt=urn:btih:83513563C00033FCAFEAF2349236D9D62086CB64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Monkey's Audio — данная утилита предназначена для
 ```bash
 magnet:?xt=urn:btih:BFBFE71978904B56B2048E232248FC97EF4FB3EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ Aventhur - Fractured Memories (2023) [MP3|320 Kbps] <Symphonic Progressive Metal
 magnet:?xt=urn:btih:E99F61CFC03DC25406A18123A1E9D3F84FAB4922
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ BrokenMan - Songs in the Absence of Light (2023) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:08F777A5C7ABC6BE89975B2B271561E1A56A4FC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:08F777A5C7ABC6BE89975B2B271561E1A56A4FC1
 ```bash
 magnet:?xt=urn:btih:28BE9FC95DEE433C87A69F814F542B8B6DD6DEE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:28BE9FC95DEE433C87A69F814F542B8B6DD6DEE6
 magnet:?xt=urn:btih:ADCC95349618618C178FD27A61563B15F3E010AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:ADCC95349618618C178FD27A61563B15F3E010AD
 magnet:?xt=urn:btih:136442B95E624910BD78AE4670C88D45084FD7E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:136442B95E624910BD78AE4670C88D45084FD7E2
 ```bash
 magnet:?xt=urn:btih:5D274AD1D47D03E71D0015F04542C3683FCFE228
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +608,8 @@ Aventhur - Fractured Memories (2023) [FLAC 24/48|WEB-DL|tracks] <Symphonic Progr
 magnet:?xt=urn:btih:96E54D6E8E0F85587C4399E2CF767A6458D2FB77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ VA - Classic Rock Ballads (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:3AE68229BE9ADE4F9CAADECCEF1E23A7A4D50004
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ Blut Aus Nord - Disharmonium - Nahab (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmos
 magnet:?xt=urn:btih:96100BA71265400D1F0C3345DC97FE5C858FD132
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ Everlasting Fall - Alive (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock,
 ```bash
 magnet:?xt=urn:btih:BC694041F78AEAA417F410B46DB813511A8B7DED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

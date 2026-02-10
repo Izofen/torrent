@@ -19,6 +19,8 @@ Mirror for Roku TV 2.8 [En]
 magnet:?xt=urn:btih:A11A39F076F0DF98F6F91F40326A92F5725D6E34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:A11A39F076F0DF98F6F91F40326A92F5725D6E34
 magnet:?xt=urn:btih:884C5DD2A8409BFDEDE2EC03F89BC0715A517741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ TextSoap для Mac OS - Поможет подчистить текстовые 
 ```bash
 magnet:?xt=urn:btih:DD12E82097B8905BBEA2497A91C0EDE607F72417
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Alla Ray - Coffee & Cake (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz-Pop>
 magnet:?xt=urn:btih:F1456C1177928ACD677C8B03D4EB32D446E8A884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:F1456C1177928ACD677C8B03D4EB32D446E8A884
 magnet:?xt=urn:btih:16524852DBE02D512336DC646FBDC4D8FB2C0B79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Evil Bank Manager (2018) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:0A1588BC5D6C4EA848F0A28794BE73D0A8BF3963
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ VA - Dune 1 (2018) [AAC|~317 Kbps] <Chill Out, Downtempo, Organic House>
 magnet:?xt=urn:btih:85B192AE5A243A9C1C3EAD40507161526E35848E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ Nic Clark - Everybody's Buddy (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:459D0E955A3C00CE96A97E48BA4B521D85CC9A03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:459D0E955A3C00CE96A97E48BA4B521D85CC9A03
 ```bash
 magnet:?xt=urn:btih:5E5CAC9339FBEA45A02B52371F9B8B70E3C1D994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ SRWare Iron 96.0.4900.0 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:41074DB6277F8E9D208F6BDBBF9AC8511927B5B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Scherlokk является утилитой для быстрого поиска
 ```bash
 magnet:?xt=urn:btih:A4F04E1C7E859F1BC17D016F31F523863D5E457B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:A4F04E1C7E859F1BC17D016F31F523863D5E457B
 magnet:?xt=urn:btih:0D85A213D6D9F7C13C6609C0D200A421E4A731D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:0D85A213D6D9F7C13C6609C0D200A421E4A731D4
 ```bash
 magnet:?xt=urn:btih:E9A16C1ED1DA3CA44C9BDFC72861D52D27D56BA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:E9A16C1ED1DA3CA44C9BDFC72861D52D27D56BA1
 magnet:?xt=urn:btih:D744553F4E3FCD447D864BD53CA64C4DFA4C7AFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ EdgeView 2 - это новейший просмотрщик изображени
 ```bash
 magnet:?xt=urn:btih:00A1E8BBD96680E262E1AA7E361205F883E7A115
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ VA - The Official UK Top 40 Singles Chart 06.12.2019 [MP3|320 Kbps] <Pop, Dance,
 magnet:?xt=urn:btih:9D548E75E1923258AED6F625D93C729A9FA4894E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:9D548E75E1923258AED6F625D93C729A9FA4894E
 ```bash
 magnet:?xt=urn:btih:DA5AB4BA1DB7509688EF3CD64F5E2A639DA35194
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ Gato Gordo - Sobreviviente (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:2DC959E4D5501473A7C182C9C841F948218122FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:2DC959E4D5501473A7C182C9C841F948218122FB
 ```bash
 magnet:?xt=urn:btih:E6FC1DD7F2C2D93FA409BCC87C48EEF5B0917BB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ DupeZap (бывший DupeZap Plus) - Утилита, позволяющая и�
 magnet:?xt=urn:btih:569D9337EF1C75DE5936E5E76D7E452459244B26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ Sync Folders Pro - это простое в использовании прил�
 magnet:?xt=urn:btih:2AAD795D09706A9F0B6E8755C31B1DCC445E40A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ OCCT 10.0.3 Final Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F4B92328CEBEFB73D21F3AE764D3A52AB1F5E0D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:F4B92328CEBEFB73D21F3AE764D3A52AB1F5E0D3
 magnet:?xt=urn:btih:D5F5FD52AFE5B5A84273C293E74E36344A46AE68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ Duplicate File Finder - утилита, которая находит дубли
 ```bash
 magnet:?xt=urn:btih:9987033D04F4B979125A6B39E33306EF45DD14A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +668,8 @@ magnet:?xt=urn:btih:9987033D04F4B979125A6B39E33306EF45DD14A8
 magnet:?xt=urn:btih:1D304BDABAE67967D080C7BBFC82982BDFCDC3E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ magnet:?xt=urn:btih:1D304BDABAE67967D080C7BBFC82982BDFCDC3E9
 ```bash
 magnet:?xt=urn:btih:AAF820F22DE4C27FFFFCC235129524A176DB8C21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - Valse/Tango 1, 2, 3... Musette (1997) Gold, 2CD Box Set [FLAC|Lossless|imag
 magnet:?xt=urn:btih:8F83BC587A9C0A3508085358FA0B05FEFB8F2E0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Medwyn Goodall - Medicine Woman 5: Transformation (2014) [MP3|320 кб/с] <New 
 magnet:?xt=urn:btih:0865C08EBF727F0518B7E6C110E9EF18EF06B65A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ Heilung - Drif (2022) [FLAC|Lossless|Web-DL|tracks] <Neofolk, Dark Folk, Experim
 ```bash
 magnet:?xt=urn:btih:A9366EA2B2625DEBFFE3B9B31257764B12F16D5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ Creep - Echoes (2013) [FLAC|Lossless|WEB-DL]<Witch House, Trip-Hop, Experimental
 magnet:?xt=urn:btih:384DF646A4BBDAE96435EF4FDBD7C28802D3C838
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +143,8 @@ Rammstein выпустили акустический альбом «Klavier». 
 ```bash
 magnet:?xt=urn:btih:801C9AB7C6FB7BFD10F330B3F8FF1B097DE64144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +173,8 @@ VA - True Romance: Motion Picture Soundtrack (1993) [FLAC|Lossless|tracks + .cue
 magnet:?xt=urn:btih:F396B8AE421B8B04A233C29CD11037D89E66712E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +201,8 @@ David Arkenstone - Ambient World (2011) 2CD [FLAC|Lossless]<New Age, Ambient>
 ```bash
 magnet:?xt=urn:btih:81B6C19357E0AF89DB23037D13D23F8844DBEFC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +237,8 @@ David Arkenstone - Chillout Lounge (2009) [FLAC|Lossless]<New Age, Lounge>
 magnet:?xt=urn:btih:D645823A2B4AA0DACE417A2AB3DE4CCAF8B0EC80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +271,8 @@ David Arkenstone - Christmas Lounge (2008) [FLAC|Lossless]<New Age, Lounge, Chri
 ```bash
 magnet:?xt=urn:btih:844765D0B289674B180CB60654DF54C01F6C5290
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +307,8 @@ Brian Tyler - Far Cry 3 (2012) [MP3|320 кб/с]<Score>
 magnet:?xt=urn:btih:F8E2C6D9AC5808B42990C1B782BCDA01CF9DD094
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +335,8 @@ Dolly Parton - Rockstar (2023) [FLAC|Lossless|WEB-DL|tracks] <Country, Rock>
 ```bash
 magnet:?xt=urn:btih:BE13C0369448F58880DF95D3DF8AB0CC0324C452
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +371,8 @@ VA - Abora Chillout - Best of 2013 [MP3|320 кб/с]<Chillout, World, New Age>
 magnet:?xt=urn:btih:747AB3021CA55532C7A04C7537374F8012CB9C6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +400,8 @@ Imagine Dragons, Thomas Newman - Passengers / Пассажиры (Single) + (Ori
 magnet:?xt=urn:btih:FE0550B544E1D6FC68C7C583F08CDFF9BF55CCB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +428,8 @@ Uma Mohan - Sounds of Harmony (2005) [FLAC|Lossless|tracks + .cue] <Mantras, Ved
 ```bash
 magnet:?xt=urn:btih:638E4F713C95E72F84B7A8313C29FA0C509B7FD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +464,8 @@ VA - Battle Of The Year 2012 The Soundtrack (2012) [MP3|320 кб/с]<BreakBeat, 
 magnet:?xt=urn:btih:F9503589B984783B6887227918B91CBEAA10FB54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +492,8 @@ Imagine Dragons, Thomas Newman - Passengers / Пассажиры (Single) + (Ori
 ```bash
 magnet:?xt=urn:btih:22EB4DDFA9F340A28727F5C148A376CFA0249AD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +522,8 @@ magnet:?xt=urn:btih:22EB4DDFA9F340A28727F5C148A376CFA0249AD1
 magnet:?xt=urn:btih:A1B6899F2EA71917DC87E98DC6AB30319897A8CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +550,8 @@ O. D. Davey - Some Waking Woman (2017) [FLAC|Lossless|WEB-DL|tracks] <Folk, Indi
 ```bash
 magnet:?xt=urn:btih:25BC670FBFD57D05950E4D176796BDEE26A7A119
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +586,8 @@ The Piano Guys - A Family Christmas (2013) [FLAC (tracks+ .cue)|Lossless]<Piano,
 magnet:?xt=urn:btih:C36B4B60B451704439C757288972873BA8F1585A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +615,8 @@ Johann Johannsson - Arrival / Прибытие (Original Motion Picture Soundtra
 magnet:?xt=urn:btih:1A51471FB6A3264CD8454FD045287AA35AB18F41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +643,8 @@ magnet:?xt=urn:btih:1A51471FB6A3264CD8454FD045287AA35AB18F41
 ```bash
 magnet:?xt=urn:btih:548E5A782C469F6C9A065C181B2EFB754F62D457
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +679,8 @@ Chroma Music - Strike-Slip Fault (2014) [MP3|256 кб/с]<Trailer Music>
 magnet:?xt=urn:btih:761C8F55F38DD3771B29090DA969E4E9AFCB10F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +707,8 @@ Dario Marianelli - Kubo and the Two Strings / Кубо. Легенда о сам
 ```bash
 magnet:?xt=urn:btih:190DC2D800233909211B36EF1B594E5E8FD45B60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -697,6 +743,8 @@ David Arkenstone - Caribbean Nights (2009) [FLAC|Lossless]<New Age, Tropical>
 magnet:?xt=urn:btih:8640D639A0965A354403BFFB91071BC945ECCF55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -723,6 +771,8 @@ Kenio Fuke - Spirit Of Nature (2012) [FLAC|image + .cue|WEB-DL] <New Age, Piano,
 ```bash
 magnet:?xt=urn:btih:556C2878445144FA34A5EDFEC0DE405D006B29E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -756,6 +806,8 @@ The Barra MacNeils - Oh Christmas Three (2013) [MP3|320 кб/с]<Folk, Celtic, N
 ```bash
 magnet:?xt=urn:btih:F5609A80CDB6500A1D90F095AAF6C02880CF998B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

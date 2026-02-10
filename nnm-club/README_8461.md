@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:CD33797022FD2FD995F11E80D86BAA61865D3429
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:CD33797022FD2FD995F11E80D86BAA61865D3429
 ```bash
 magnet:?xt=urn:btih:3385D0E68C184C6F3B48DD0C8FF0011CBF43882C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:3385D0E68C184C6F3B48DD0C8FF0011CBF43882C
 magnet:?xt=urn:btih:F8F2359F9A36879F3A179F8FBCE7CBBCA31FEAB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:F8F2359F9A36879F3A179F8FBCE7CBBCA31FEAB5
 magnet:?xt=urn:btih:4734D801FB3A92D3F35F71A7208C6F42983C28C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Lexilize FlashCards v4.8.5 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CBD99B0CBEB104712F69A15B79670DDFB0C15694
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Dylan Meeus | Functional Programming in Golang (2023) [PDF][EN]
 magnet:?xt=urn:btih:FE35DD6EA93314AC9BB9332E48F73119520A34FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:FE35DD6EA93314AC9BB9332E48F73119520A34FB
 ```bash
 magnet:?xt=urn:btih:78DED0998657870F5EF679E9DD5FCD97E2E9808A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:78DED0998657870F5EF679E9DD5FCD97E2E9808A
 magnet:?xt=urn:btih:89B91DA8D23C3990525C9AA7A2EBB36B49F00C5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:89B91DA8D23C3990525C9AA7A2EBB36B49F00C5B
 ```bash
 magnet:?xt=urn:btih:1E59A350C123A1FC2139D3038B1EFC64AEE5E828
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:1E59A350C123A1FC2139D3038B1EFC64AEE5E828
 magnet:?xt=urn:btih:21B2AD893E70A145FC6DF5BB50C86BBCD694677B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Infuse - прекрасный способ смотреть практическ
 ```bash
 magnet:?xt=urn:btih:3DD45453A3BA00C9F583180A0B4F366FD13728C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ The 69 Eyes - Death of Darkness (2023) [MP3|320 Kbps] <Gothic Industrial Rock>
 magnet:?xt=urn:btih:7C3884193FF77C6EEC74E4EC52EFD0A17AEF1079
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:7C3884193FF77C6EEC74E4EC52EFD0A17AEF1079
 magnet:?xt=urn:btih:62681D00364A02B9CC85C4A26B5D86C0C73E7B2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:62681D00364A02B9CC85C4A26B5D86C0C73E7B2A
 magnet:?xt=urn:btih:B7558FF4906E32F0841F26D86D20F8255D134173
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Daedalic Entertainment | Артбук по игре Blackguards / The Art of Bla
 ```bash
 magnet:?xt=urn:btih:EC0C41508DA96115D0E2F47FD40FAA1C5A8507EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ VA - Compilation  part 17 Rock (2023) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:30DECE352B23EB4DEDFC5402AD31C8B96FD25D1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ VA - Swing Jazz Wonder Of Romance (2023) [MP3|320 Kbps] <Swing Jazz, Nu Jazz>
 ```bash
 magnet:?xt=urn:btih:25DAAD0769FC083717FB32F7554EFCCB04A8B252
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:25DAAD0769FC083717FB32F7554EFCCB04A8B252
 magnet:?xt=urn:btih:09EF858C005EACA73B71C86D615A32E15ABF54E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ PDF Expert - редактор  PDF. Быстрый, мощный и незаме
 magnet:?xt=urn:btih:DB4BDD8015C95B08A396D04720B9E4765DA70425
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:DB4BDD8015C95B08A396D04720B9E4765DA70425
 ```bash
 magnet:?xt=urn:btih:C87CF7AAB91A7AC0F0B41C60345BF4506FBFDB43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ magnet:?xt=urn:btih:C87CF7AAB91A7AC0F0B41C60345BF4506FBFDB43
 magnet:?xt=urn:btih:F0C63B32F182E11517C88A71C7253C22F194CA7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:73A46CB19C357E8E9F0401F3939886FEFCAE84EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +608,8 @@ magnet:?xt=urn:btih:73A46CB19C357E8E9F0401F3939886FEFCAE84EE
 magnet:?xt=urn:btih:199B85ED64B1E9B8AB10DC3DCF3DFEE47564E046
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +633,8 @@ Diablo II: Lord of Destruction (2000) [Ru/Multi] (1.00-1.14d) Repack Raf-9600
 ```bash
 magnet:?xt=urn:btih:D407548E137C7C401B945889FC4B414587BD9A21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +660,8 @@ Microsoft® Windows® 10 Enterprise LTSC 2021 x86-x64 21H2 RU by OVGorskiy 04.20
 magnet:?xt=urn:btih:53225340B7406001A864FA2831B822919CBCF145
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ magnet:?xt=urn:btih:53225340B7406001A864FA2831B822919CBCF145
 ```bash
 magnet:?xt=urn:btih:F92865C8501EDB1CDD5F8697091618EA574D958B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

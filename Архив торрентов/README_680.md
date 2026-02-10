@@ -25,6 +25,8 @@ Kerretta - Saansilo (2011) [MP3|320 кб/с]<Post-Rock/Post-Metal>
 magnet:?xt=urn:btih:153514059DC920306FF07983892331D0BBBECF06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:153514059DC920306FF07983892331D0BBBECF06
 magnet:?xt=urn:btih:D90378BD3D8D3FFCEBFB74377270CE80278600DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:D90378BD3D8D3FFCEBFB74377270CE80278600DA
 ```bash
 magnet:?xt=urn:btih:40280A5517DC6B8A6DA5B0118CAF733EFBFB483F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ Apogee - Mystery Remains (2009) [MP3|320 kbps]<Progressive Rock>
 magnet:?xt=urn:btih:2770081F34690094BF5CC3BB1B81D3BBDDDA2469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ Apogee - Mystery Remains (2009) [FLAC|Lossless]<Progressive Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Apogee - Mystery Remains (2009) [FLAC|Lossless]<Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:DDBFF9ED05CB697DAA442D2EDC3A8AEB8291CABA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:DDBFF9ED05CB697DAA442D2EDC3A8AEB8291CABA
 ```bash
 magnet:?xt=urn:btih:B4EA020FEFDDFC9E04B1AFB528D4D098FC69BFE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +232,8 @@ magnet:?xt=urn:btih:B4EA020FEFDDFC9E04B1AFB528D4D098FC69BFE5
 magnet:?xt=urn:btih:CDBE8ABE7897E33BA58C54E22B8241BFE62E1F36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +258,8 @@ magnet:?xt=urn:btih:CDBE8ABE7897E33BA58C54E22B8241BFE62E1F36
 magnet:?xt=urn:btih:CEDAD25E05E1D8F8EB5B546108BAEE4A92AEC4E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ magnet:?xt=urn:btih:CEDAD25E05E1D8F8EB5B546108BAEE4A92AEC4E7
 ```bash
 magnet:?xt=urn:btih:77F805810CB0323ABC96E1044AF7DFB86F83AB84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +311,8 @@ magnet:?xt=urn:btih:77F805810CB0323ABC96E1044AF7DFB86F83AB84
 magnet:?xt=urn:btih:A8B7460A6653D80A438B0D4241CFB3A6D8647447
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +336,8 @@ magnet:?xt=urn:btih:A8B7460A6653D80A438B0D4241CFB3A6D8647447
 ```bash
 magnet:?xt=urn:btih:9B364437AE5E5791D39B59ED54A83B545D646D6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +366,8 @@ magnet:?xt=urn:btih:9B364437AE5E5791D39B59ED54A83B545D646D6F
 ```bash
 magnet:?xt=urn:btih:D5911F3B7C253A2FA0AB95EDC3F4A0E723D14D14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +401,8 @@ VA - Shaltu (2012) [MP3|320 кб/с]<Goa Trance>
 magnet:?xt=urn:btih:47008F86BCD8D98350CD97DE82A3BD1B8E91A084
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +427,8 @@ magnet:?xt=urn:btih:47008F86BCD8D98350CD97DE82A3BD1B8E91A084
 magnet:?xt=urn:btih:D45F5C8AB49DCBDCE0142DDA4BA0EE6A57F8B996
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +452,8 @@ TapinRadio - это простой и достаточно надежный ра
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +487,8 @@ TapinRadio - это простой и достаточно надежный ра
 magnet:?xt=urn:btih:A78D98FDAC3C9911DCC879743A522B6B945EDA76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +512,8 @@ magnet:?xt=urn:btih:A78D98FDAC3C9911DCC879743A522B6B945EDA76
 ```bash
 magnet:?xt=urn:btih:C4963CCBD4AB86E7B2A338339C381F502E57653B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +543,8 @@ magnet:?xt=urn:btih:C4963CCBD4AB86E7B2A338339C381F502E57653B
 magnet:?xt=urn:btih:CF71DA24089E401B6E5871FC218BB0DCF99C39AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +568,8 @@ VueScan - программа для работы со сканерами. Мож
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +604,8 @@ Jeany Jen - В оковах (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
 magnet:?xt=urn:btih:C4000D7F84D528C6E4B67F4DEB02DEF1CF873FCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +639,8 @@ Peter Tosh - The Best Of (1996) [FLAC|Lossless]<Reggae>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +664,8 @@ Peter Tosh - The Best Of (1996) [FLAC|Lossless]<Reggae>
 ```bash
 magnet:?xt=urn:btih:170ECD1AF8C321B9F5F845B713792D2BBB19CD6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +699,8 @@ Terry Brooks & Strange - 2 альбома (1976-1980) [FLAC|Lossless]<Heavy Psyc
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -677,6 +725,8 @@ Terry Brooks & Strange - 2 альбома (1976-1980) [FLAC|Lossless]<Heavy Psyc
 magnet:?xt=urn:btih:993341D32E9375276DEAF88ACCA3056D2AF41DE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -700,6 +750,8 @@ magnet:?xt=urn:btih:993341D32E9375276DEAF88ACCA3056D2AF41DE0
 ```bash
 magnet:?xt=urn:btih:A3E37BE839E4614F50FFB8F0CA0064CCE21B7CB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,27 +1,3 @@
-###  Публикация: 1555777   (566880) от 05.06.2022
-
-Ломка / Cold Turkey (1971) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на неопубликованном романе Маргарет и Нила Рау "Я отказываюсь от них навсегда". Табачная компания предлагает чек на 25 миллионов долларов любому американскому городу, население которого откажется от курения на 30 дней. Городок Игл Рок в штате Айова принимает этот вызов...Производство: США, DFI, Tandem ProductionsЖанр: комедияРежиссер: Норман ЛирАктеры: Дик Ван Дайк, Пиппа Скотт, Том Постон, Эдвард Эверетт Хортон, Винсент Гардения, Барнард Хьюз, Грэм Джарвис, Джин Степлтон, Барбара КейсонПеревод: профессиональный двухголосый (HTB+ Елена Борзунова и Павел Кипнис)Субтитры: английские SDHПродолжительность: 01:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20BA069202AF816C2138C7D6CDF9FBCD8C049B0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044326   (566941) от 19.08.2016
 
 Достигая невозможного / Gleaming the Cube (1989) DVDRip [H.264]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:20BA069202AF816C2138C7D6CDF9FBCD8C049B0C
 ```bash
 magnet:?xt=urn:btih:F09D3C8C2E9278FC5A6D22F6CA4A860A1E2BA0E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:F09D3C8C2E9278FC5A6D22F6CA4A860A1E2BA0E7
 magnet:?xt=urn:btih:0D55BAB0B0EA522777BEFA2A9FC8794289109FE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:0D55BAB0B0EA522777BEFA2A9FC8794289109FE7
 ```bash
 magnet:?xt=urn:btih:9261DF16CBC28E37FEAE0312DE6C09F3C8786067
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +98,8 @@ magnet:?xt=urn:btih:9261DF16CBC28E37FEAE0312DE6C09F3C8786067
 magnet:?xt=urn:btih:AA834AEDF1D441FAE39606D68CD063D0E30E1986
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +123,8 @@ magnet:?xt=urn:btih:AA834AEDF1D441FAE39606D68CD063D0E30E1986
 ```bash
 magnet:?xt=urn:btih:BC336B21D4AE443B509B9D8510F0B97A73354FD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:BC336B21D4AE443B509B9D8510F0B97A73354FD3
 magnet:?xt=urn:btih:0538FA0AD7982B66D95D87B95737214B42AFF86B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:0538FA0AD7982B66D95D87B95737214B42AFF86B
 ```bash
 magnet:?xt=urn:btih:E1967C9FF939EAEF104ED2B67F46969537F1B238
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:E1967C9FF939EAEF104ED2B67F46969537F1B238
 magnet:?xt=urn:btih:701F1F0FCC887D370FEE10EA10C85A469BB35637
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ magnet:?xt=urn:btih:701F1F0FCC887D370FEE10EA10C85A469BB35637
 ```bash
 magnet:?xt=urn:btih:6C36EBAC1D7889A7B2CDCC4E5F81998F13FCBDF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:6C36EBAC1D7889A7B2CDCC4E5F81998F13FCBDF8
 magnet:?xt=urn:btih:258127D3F9C40C323FD3101DC1C4D67DEF045841
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ magnet:?xt=urn:btih:258127D3F9C40C323FD3101DC1C4D67DEF045841
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +306,8 @@ magnet:?xt=urn:btih:258127D3F9C40C323FD3101DC1C4D67DEF045841
 magnet:?xt=urn:btih:BFF0BF5EDFC9DAA3AF371D8E37D00FC2BC4B0965
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +331,8 @@ magnet:?xt=urn:btih:BFF0BF5EDFC9DAA3AF371D8E37D00FC2BC4B0965
 ```bash
 magnet:?xt=urn:btih:4E6D23AA89AC9DB7C48133063F1EE17C06A358A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +358,8 @@ magnet:?xt=urn:btih:4E6D23AA89AC9DB7C48133063F1EE17C06A358A8
 magnet:?xt=urn:btih:8828928ACE6C5D1327A4ED1E5F583174F27FAC61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +383,8 @@ magnet:?xt=urn:btih:8828928ACE6C5D1327A4ED1E5F583174F27FAC61
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:8828928ACE6C5D1327A4ED1E5F583174F27FAC61
 magnet:?xt=urn:btih:0F0F018FADF6651F1D9EEDA71A1DB3B473DFC5BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +436,8 @@ magnet:?xt=urn:btih:0F0F018FADF6651F1D9EEDA71A1DB3B473DFC5BE
 ```bash
 magnet:?xt=urn:btih:D96645E9B23D2B9DCEAF461F4472DDACA46467DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +466,8 @@ magnet:?xt=urn:btih:D96645E9B23D2B9DCEAF461F4472DDACA46467DE
 magnet:?xt=urn:btih:CE8C151DB70F8ADDBF27FAA92A8DE4A7997BF9B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +491,8 @@ magnet:?xt=urn:btih:CE8C151DB70F8ADDBF27FAA92A8DE4A7997BF9B1
 ```bash
 magnet:?xt=urn:btih:77F896A98CFF9FBC59E4C06DDCE3A79D0C9900B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +518,8 @@ magnet:?xt=urn:btih:77F896A98CFF9FBC59E4C06DDCE3A79D0C9900B1
 magnet:?xt=urn:btih:24409CFBDE58CAED0A7B9C73D66C92E676A7528F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +543,8 @@ magnet:?xt=urn:btih:24409CFBDE58CAED0A7B9C73D66C92E676A7528F
 ```bash
 magnet:?xt=urn:btih:9C309BFAD79602E40378A075274FD4729D460C61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +570,8 @@ magnet:?xt=urn:btih:9C309BFAD79602E40378A075274FD4729D460C61
 magnet:?xt=urn:btih:6E2D44C3FFA4CAA79A4F46DED67D91C3307CB165
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +595,8 @@ magnet:?xt=urn:btih:6E2D44C3FFA4CAA79A4F46DED67D91C3307CB165
 ```bash
 magnet:?xt=urn:btih:5DD48308603DA1E8026EAB49C40ED6E99AFC75A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +622,8 @@ magnet:?xt=urn:btih:5DD48308603DA1E8026EAB49C40ED6E99AFC75A0
 magnet:?xt=urn:btih:AEF36161916BE573F3E550607C2F6596212B4C02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +647,35 @@ magnet:?xt=urn:btih:AEF36161916BE573F3E550607C2F6596212B4C02
 ```bash
 magnet:?xt=urn:btih:06E0ACB5C927A9373A8870FA3107A2C17DF5E5D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527551   (573051) от 28.07.2012
+
+Любовь между каплями дождя / Lasky mezi kapkami deste (1979) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_573051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в 1930 годы и рассказано глазами 16-летнего паренька Кайды, который вырос в районе Жижков в Праге. Здесь он потерял мать и остался жить вместе со старшим братом Пепе и отцом. Здесь он хулиганил вместе с жижковской молодежной бандой, затем познал любовь со взрослой женщиной из кабаре и влюбился в девушку Паю...
+Хочется думать, режиссер вложил в этот фильм собственные воспоминания о своей юности, чувства и осколки старого довоенного мира.Жанр: Драма, Мелодрама, КомедияРежиссер: Карел КахиняАктеры: Лукаш Вакулик, Злата Адамовска, Владимир МеншикПеревод: Одноголосый закадровыйПродолжительность: 02:04:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

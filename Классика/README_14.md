@@ -28,6 +28,8 @@
 magnet:?xt=urn:btih:B071E69A57D252FC9336DC6E6D0123A93FDEC9C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ Sonata in A minor D.845
 ```bash
 magnet:?xt=urn:btih:97C83E72B0E4DD845B8F7858C2FAE2509046894F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -88,6 +92,8 @@ Andre Rieu - December Lights (2012) [MP3|320 kbps]<Classical, Violin>
 magnet:?xt=urn:btih:1E89CD644B7AC0E8863BD802263E55187D859E4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +120,8 @@ Sonate en la majeur D.959
 ```bash
 magnet:?xt=urn:btih:2D50827E1D73576996D89347F3ECD19B5BBD8F6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +150,8 @@ Sonata In G Minor For Cello And Piano, Op. 19 (1901)
 magnet:?xt=urn:btih:75F714320436D9BFD80DCE03DFA469DBCDA14E28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +178,8 @@ Pierre Fournier - Johann Sebastian Bach - Suites for Solo Cello nos.1-3-6 (1961)
 ```bash
 magnet:?xt=urn:btih:0BCA1B0D859A2734AF1E1BDB9BB7E772033E49ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +208,8 @@ Florian Christl - Inspiration (2018) Sony Classical [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:6A25F87FECA44F7F62602C5A4FD1934854CAC19F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +236,8 @@ Piano Novel - Fendre l'ecorce (2017) [FLAC|Lossless|WEB-DL|tracks] <Modern Class
 ```bash
 magnet:?xt=urn:btih:C872E5EC3A85C6829849F87FBDD1DA9B7B507D81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +266,8 @@ magnet:?xt=urn:btih:C872E5EC3A85C6829849F87FBDD1DA9B7B507D81
 magnet:?xt=urn:btih:7B5F63BC1A495597462F4A1B898E6280E6455C50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +294,8 @@ Julian Bream - The Golden Age of English Lute music (1960-1963) 1993 BMG Music [
 ```bash
 magnet:?xt=urn:btih:26C0BAB17747AC11FD9B75C4A9486CF3CF66B983
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +324,8 @@ Julian Bream - Dances of Dowland (1967-1976) 1993 BMG Music [FLAC|Lossless|image
 magnet:?xt=urn:btih:15C9ABC4878A7EBBA4C253FCEB34E2BCDD28597B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +352,8 @@ VA - Classical Romance, Vol. 1  (Famous Classical Music) (2018) [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:C578BB25B28C38C1CD24849C2347F1307B14F47E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +382,8 @@ VA - Classical Romance, Vol. 2 (Famous Classical Music) (2018) [FLAC|Lossless|WE
 magnet:?xt=urn:btih:9DCDF05C93FD1A764F979F85830911AAD7BFFBA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +408,8 @@ Arturo Benedetti Michelangeli - Ludwig van Beethoven - Konzert fur Klavier und O
 ```bash
 magnet:?xt=urn:btih:088E8EC80CE2EB183AF7D04ED7E6F439DD7CCEDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +438,8 @@ Arturo Benedetti Michelangeli - Frederic Chopin - 10 Mazurkas  (1972 Stereo) Deu
 magnet:?xt=urn:btih:BA6EDD64AADA286137F6F00D22988435778738F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +466,8 @@ magnet:?xt=urn:btih:BA6EDD64AADA286137F6F00D22988435778738F3
 ```bash
 magnet:?xt=urn:btih:74F9D7CB97EF24D8F8ACA54C91686B360058DE8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +496,8 @@ Rondo Veneziano - Marco Polo (1997) [FLAC|tracks+.cue]<Baroco>
 magnet:?xt=urn:btih:E35992CA131E368AE6E2A16F8533775BDEF2CE78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +524,8 @@ Falla - Complete Works for Piano Solo (Ricardo Requejo) (1999) [FLAC|image +.cue
 ```bash
 magnet:?xt=urn:btih:01EA43D933C529BB93106BF1B9E7B193E214C5FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +554,8 @@ Claude Debussy - Preludes 1er livre - III. Le vent dans la plaine (2:13)(   Чи
 magnet:?xt=urn:btih:35F4CBB6ABCDC0F8D292D02082FD6FB8CAC8F2EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +582,8 @@ magnet:?xt=urn:btih:35F4CBB6ABCDC0F8D292D02082FD6FB8CAC8F2EF
 ```bash
 magnet:?xt=urn:btih:4B45812DDC992FC94EF2BF3F8B3797DA31385689
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +612,8 @@ magnet:?xt=urn:btih:4B45812DDC992FC94EF2BF3F8B3797DA31385689
 magnet:?xt=urn:btih:95E9FCF91D94287690CDF97083EC695D26960673
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +640,8 @@ magnet:?xt=urn:btih:95E9FCF91D94287690CDF97083EC695D26960673
 ```bash
 magnet:?xt=urn:btih:A1764710DD0E2064BCE18EA2390599B1E19FEA8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +670,8 @@ Sueye Park - Paganini: 24 Caprices (2017) [FLAC|Lossless|tracks] <Classical>
 magnet:?xt=urn:btih:FFCD26DBEF8414F8E1201277307E955C03EDC78B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +698,8 @@ Vol. 1
 ```bash
 magnet:?xt=urn:btih:2BE75A260926063A5C1050F352E38CC1C965BD33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -680,6 +728,8 @@ Vanessa-Mae - Virtuoso Album (2000) [FLAC|Lossless|image + .cue] <Classical, Cla
 magnet:?xt=urn:btih:C29A4EC5BC5A9E68F8F9D5ECD1D8D31C81443050
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -703,6 +753,8 @@ Wolfgang Amadeus Mozart - The Great Piano Concertos (4CD) (1994) [FLAC|Lossless]
 ```bash
 magnet:?xt=urn:btih:70A3459F38555649F1F575C74461D78DABEF10E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

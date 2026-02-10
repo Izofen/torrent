@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A8267B5822D2E2CAC20A6AFEF6580C5B8A544E48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ t.A.T.u. - Dangerous and Moving (2005) Deluxe Remastered Edition, 2025, Universa
 magnet:?xt=urn:btih:F002D804854FACAE48B276C88DABEB93A6E7F598
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:F002D804854FACAE48B276C88DABEB93A6E7F598
 ```bash
 magnet:?xt=urn:btih:530FE8DBED609FEEA3906E3A28865ADB9850503C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ PictureThis - Plant Identification v5.14.0 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:83C54701811B1A631F123426D5D4DEB140F62155
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:83C54701811B1A631F123426D5D4DEB140F62155
 ```bash
 magnet:?xt=urn:btih:7615F495CE43D0D5DCBFBFFBA7CA32D4CD97C825
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Persona - твоя новая селфи-камера на каждый день
 magnet:?xt=urn:btih:9196257C32A7BF0B57508F03B475BA24B35F3841
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ CleanMyMac X — это пакет «все в одном», который сд
 ```bash
 magnet:?xt=urn:btih:AEE4C7A8A4D0463F29BC65730550ACC2283B1AB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:AEE4C7A8A4D0463F29BC65730550ACC2283B1AB1
 magnet:?xt=urn:btih:C071BB4D0AE3EB2688F6B3D9654CAEE41AF9FE8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:C071BB4D0AE3EB2688F6B3D9654CAEE41AF9FE8C
 ```bash
 magnet:?xt=urn:btih:74C1FD18D3A696C8B6382367E0C321D2ED8EF8F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:74C1FD18D3A696C8B6382367E0C321D2ED8EF8F3
 magnet:?xt=urn:btih:CB1727C3D8ECB9C043586E20ADD523C5952194CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Flying Shark (2023) [En] (7) License GOG
 ```bash
 magnet:?xt=urn:btih:09DE2AA8B8822FEBAC615582F06262E5CB2F9657
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:09DE2AA8B8822FEBAC615582F06262E5CB2F9657
 magnet:?xt=urn:btih:C9602DA7A5DA2D9C9E2F731B06160D473EE5134C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:C9602DA7A5DA2D9C9E2F731B06160D473EE5134C
 ```bash
 magnet:?xt=urn:btih:A0029282D20DE1A5F42B10A1DF41C42C16A89185
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:A0029282D20DE1A5F42B10A1DF41C42C16A89185
 magnet:?xt=urn:btih:B306C08D8E8361D669982D27817C472F26F273A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:B306C08D8E8361D669982D27817C472F26F273A2
 ```bash
 magnet:?xt=urn:btih:1E31D9255CF930F1C93DB791A8637A5246082BD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Bassnectar (Lorin Ashton) - 5 Albums (2020-2025) [MP3|320 Kbps] <Electronic, Bre
 magnet:?xt=urn:btih:CF4574A70EA32D20AEAD2ECD28ACE71EA3E29A4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:CF4574A70EA32D20AEAD2ECD28ACE71EA3E29A4C
 ```bash
 magnet:?xt=urn:btih:2B538BE993A920192010B137B21082559E76F465
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:2B538BE993A920192010B137B21082559E76F465
 magnet:?xt=urn:btih:948FED53E4E8EB2940CF3377A18BE21702A72B65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:948FED53E4E8EB2940CF3377A18BE21702A72B65
 ```bash
 magnet:?xt=urn:btih:8388393A23430BF52020603DDB43117D7F04A442
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Aomei Partition Assistant – мощная программа для работ�
 magnet:?xt=urn:btih:32FF5BB5716F05791BA2E5EC41E2CC58F0B68DB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:32FF5BB5716F05791BA2E5EC41E2CC58F0B68DB9
 magnet:?xt=urn:btih:5CBC73B6554ABF4043166B9340BDF0EBA4B5EB5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Smurfs Kart (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B89DF256B3673B16DBD1AD2EA7E00EA9A2F95E21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ VA - Украинские песенки Vol.1 (2023) [MP3|320 Kbps] <Pop, Dance
 magnet:?xt=urn:btih:47CE468FD8A83874096318221FEABF59CBF79F47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ AMD выпустит в сентябре HYPR-RX — систему ускоре
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ AMD выпустит в сентябре HYPR-RX — систему ускоре
 magnet:?xt=urn:btih:BDE401FB91059D6A9D4C8E9625E27790F972E3B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Demise: Rise of the Ku'tan (2000) [En] (1.0r353) License
 ```bash
 magnet:?xt=urn:btih:9FDAFCA127D08961CC242AD65BCB0500184AF5EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

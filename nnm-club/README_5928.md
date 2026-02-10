@@ -22,6 +22,8 @@ The Dirty Knobs - Wreckless Abandon (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 magnet:?xt=urn:btih:2244051FB4144A54CF834940AAD694C85F887A32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:2244051FB4144A54CF834940AAD694C85F887A32
 ```bash
 magnet:?xt=urn:btih:14778F01F225F4D8A56530CB2BAE171D78A5CC4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ CD - 1:
 magnet:?xt=urn:btih:DC9E17F0E2A45FADD781026121638B69C42BCB1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Psiphon предназначен для предоставления вам от
 magnet:?xt=urn:btih:C3E349A629B52DBEDB2C6C1CFDB978D55A3B8D78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:C3E349A629B52DBEDB2C6C1CFDB978D55A3B8D78
 ```bash
 magnet:?xt=urn:btih:0A522971D3CDBDE53057401EBE2B54944D116585
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +162,8 @@ Blackbriar - A Dark Euphony (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphoni
 magnet:?xt=urn:btih:30B447CB66805D376947ACD5679D9C93B0909FC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:30B447CB66805D376947ACD5679D9C93B0909FC4
 ```bash
 magnet:?xt=urn:btih:3CEAE70A6F5A63A7093F8FC05452E94E5482399B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:3CEAE70A6F5A63A7093F8FC05452E94E5482399B
 magnet:?xt=urn:btih:CB255D0ECE6320976F2FB44FA6D5B677F964240D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:CB255D0ECE6320976F2FB44FA6D5B677F964240D
 magnet:?xt=urn:btih:B62713AFE7064D2FB2FD1CDE6EC88A12EDD26557
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ QuartzCode — это быстрый, легкий и мощный инстру�
 ```bash
 magnet:?xt=urn:btih:96008426E76B6209EEBE25804A58321148DF8516
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +297,8 @@ Giant Rev - Shine (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, Prog Relat
 magnet:?xt=urn:btih:4692BA80E076650F16F5113EB68D22C37EF6BF96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ Mylene Farmer - 1 Album, 1 Single (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:DB0086024FE06E1F222721C76D4600DF15FB4BA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +355,8 @@ magnet:?xt=urn:btih:DB0086024FE06E1F222721C76D4600DF15FB4BA8
 magnet:?xt=urn:btih:D274E89BEFAB090A42D45B742C28BF6DD98FD319
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +384,8 @@ VA - House Garden Music: Original Extended Mix (2020) [MP3|320 Kbps] <Electro Ho
 magnet:?xt=urn:btih:2FCC979952099FB7AFF06F8D2535558EA0DEE46F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +410,8 @@ magnet:?xt=urn:btih:2FCC979952099FB7AFF06F8D2535558EA0DEE46F
 magnet:?xt=urn:btih:3E1E17E5E3708990734B975DBE2D375511FE5A19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:3E1E17E5E3708990734B975DBE2D375511FE5A19
 ```bash
 magnet:?xt=urn:btih:66EE885510A8D4C59D4F0F47F06BF1C87E3D75F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +463,8 @@ Moom 3.2.20 [En]
 ```bash
 magnet:?xt=urn:btih:45726DD301086251F215341A30FCE5EC8ABF2E46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +493,8 @@ Tab Smith - Ace High (1952, 1953) 1992, Delmark Records [FLAC|Lossless|image + .
 magnet:?xt=urn:btih:927C2F1867FA29C57AD81CCB210D238E67F37818
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +521,8 @@ magnet:?xt=urn:btih:927C2F1867FA29C57AD81CCB210D238E67F37818
 magnet:?xt=urn:btih:106218696AAF65F2E619A8B071A59A5B3601F2BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ Ungoogled Chromium - версия веб-браузера Chromium без инт
 ```bash
 magnet:?xt=urn:btih:93B952C9E3980856CDD3031FD294278554EC26DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +576,8 @@ Shabazz Palaces - The Don Of Diamond Dreams (2020) [FLAC|Lossless|tracks + .cue]
 magnet:?xt=urn:btih:FB8EF3F28528567E116C191DB979748D71544CF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +603,8 @@ Rammstein - Adieu (Remixes) (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial>
 magnet:?xt=urn:btih:5D18F93A2EFD456C66973026222CC7C03B9D0D01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +628,8 @@ magnet:?xt=urn:btih:5D18F93A2EFD456C66973026222CC7C03B9D0D01
 ```bash
 magnet:?xt=urn:btih:0597E66F55AFC7031B53B9932F7BF0496C45C9FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +658,8 @@ Shawn Pittman & Jay Moeller - Straight Blues from Crooked Fools (2020) [FLAC|Los
 magnet:?xt=urn:btih:1E736AFD5F441DDBEA690683761DB68E9185F48F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +687,8 @@ Streetlight - Ignition (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 magnet:?xt=urn:btih:F9A05AE07347D6B589DB972CD28E68FC557FEC07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +713,8 @@ Neutron 4 предлагает обновлённые модули Sculptor, Exc
 ```bash
 magnet:?xt=urn:btih:4C7BDE08A8A2A8C3D14A8AA92AC0DFFC50927447
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

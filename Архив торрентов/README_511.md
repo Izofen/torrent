@@ -26,6 +26,8 @@ CD 1:
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Playboy — легендарный журнал для мужчин. Экскл�
 ```bash
 magnet:?xt=urn:btih:CE17E5B940A44B8E79121B2FAFD6E4E6F51B1F5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Playboy — легендарный журнал для мужчин, основ�
 magnet:?xt=urn:btih:7BF00D3F85592A3F941363B163D555D031BF38D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:7BF00D3F85592A3F941363B163D555D031BF38D3
 ```bash
 magnet:?xt=urn:btih:BC5C5DF7D571587A54E3A1E99133A362364439BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:BC5C5DF7D571587A54E3A1E99133A362364439BC
 magnet:?xt=urn:btih:ADAB1BC97524EAB88039B0235D8F9F05F7798432
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:ADAB1BC97524EAB88039B0235D8F9F05F7798432
 ```bash
 magnet:?xt=urn:btih:8FBB061D4C4B9206FDB7A2E0257DE24E8537FEEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +191,8 @@ magnet:?xt=urn:btih:8FBB061D4C4B9206FDB7A2E0257DE24E8537FEEB
 magnet:?xt=urn:btih:115FFB2E629C67A4830F464BF065AF4A143DDE91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ magnet:?xt=urn:btih:115FFB2E629C67A4830F464BF065AF4A143DDE91
 magnet:?xt=urn:btih:C846319A3E8FB6E756A681CEE05231FD16DE7C2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ magnet:?xt=urn:btih:C846319A3E8FB6E756A681CEE05231FD16DE7C2A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ Comedy Woman. Новый формат. Выпуск №72 (2012.03.31) SATRip
 magnet:?xt=urn:btih:40983E7FCA78F6EC72ACED9C5256C305B928755F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:40983E7FCA78F6EC72ACED9C5256C305B928755F
 ```bash
 magnet:?xt=urn:btih:3152A199226A129BE9A80A6F182C06FB216FCFDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ Wise Disk Cleaner 7.15 build 472 Final + Portable [Multi(Rus)]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ Wise Disk Cleaner 7.15 build 472 Final + Portable [Multi(Rus)]
 ```bash
 magnet:?xt=urn:btih:F3A705FBCC746CCF5B957F0CC51FE193A3FFBD91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:F3A705FBCC746CCF5B957F0CC51FE193A3FFBD91
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:F3A705FBCC746CCF5B957F0CC51FE193A3FFBD91
 ```bash
 magnet:?xt=urn:btih:561A2213FDD33DBEE53AE7EDD966B09222DE0DF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ SmackDown! — профессиональная рестлинг програм�
 magnet:?xt=urn:btih:F8599EB93FC0AFEE17442AE50F6BC1C55EA54D4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:F8599EB93FC0AFEE17442AE50F6BC1C55EA54D4E
 ```bash
 magnet:?xt=urn:btih:35DCB8F5421FF77F972A5DB57631E2D8C3C1FD85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:35DCB8F5421FF77F972A5DB57631E2D8C3C1FD85
 magnet:?xt=urn:btih:DA987E41F9FA5482DA3AA9C6ECA5637F0E0519DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:DA987E41F9FA5482DA3AA9C6ECA5637F0E0519DA
 ```bash
 magnet:?xt=urn:btih:4E8441C646E1FC2978773E0FC5CC87AE3D0A90C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ CD 1: ''Remixes'' (00:47:56)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ CD 1: ''Remixes'' (00:47:56)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ Daum PotPlayer - это мультимедийный проигрыватель 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ Daum PotPlayer - это мультимедийный проигрыватель 
 magnet:?xt=urn:btih:12EF21E32A83FC0801B065E2F00EA32FB127437D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ Total Commander — популярный файловый менеджер с п
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ Total Commander — популярный файловый менеджер с п
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +709,8 @@ Total Commander — популярный файловый менеджер с п
 ```bash
 magnet:?xt=urn:btih:CA2868C7D51B72FDE63DCCF7DFDFCA61796E8FED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ YoWindow - это новый монитор погоды. Программа о�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ YoWindow - это новый монитор погоды. Программа о�
 ```bash
 magnet:?xt=urn:btih:DF134145653034C8C06617668B2E4FF27D61D9E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:DF134145653034C8C06617668B2E4FF27D61D9E6
 magnet:?xt=urn:btih:DB8FA586072BCAE5FED8D4CA9D2B3BFDF2C7ABEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:DB8FA586072BCAE5FED8D4CA9D2B3BFDF2C7ABEF
 magnet:?xt=urn:btih:19177B53FD37C0B8D47A86DB6417C732F1C66825
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:19177B53FD37C0B8D47A86DB6417C732F1C66825
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:19177B53FD37C0B8D47A86DB6417C732F1C66825
 magnet:?xt=urn:btih:4F3B3F54791822CC2A4F90953E5EFF325DF19FCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:4F3B3F54791822CC2A4F90953E5EFF325DF19FCB
 ```bash
 magnet:?xt=urn:btih:825CD55609C110EFF98BB9C12F7E52C2599B501A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:825CD55609C110EFF98BB9C12F7E52C2599B501A
 magnet:?xt=urn:btih:13D20078D6A0A0046FA2C84A51EB5C729CD288F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -фа
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -фа
 magnet:?xt=urn:btih:FF00FC00A42E106BE4DC5ECB405CDA763E44FDE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:FF00FC00A42E106BE4DC5ECB405CDA763E44FDE6
 ```bash
 magnet:?xt=urn:btih:F471DBD711598BFD01C0EF3FF7A5618309FBBE00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ LibreOffice - новое имя пакета офисных приложений
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ LibreOffice - новое имя пакета офисных приложений
 ```bash
 magnet:?xt=urn:btih:551512ADF8EF1A2FC0516395679B2FC57AE90617
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:551512ADF8EF1A2FC0516395679B2FC57AE90617
 magnet:?xt=urn:btih:3038A0B0847F9B37AC3DC8204CFB6F5BEE340142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:3038A0B0847F9B37AC3DC8204CFB6F5BEE340142
 ```bash
 magnet:?xt=urn:btih:00826D6415911E185881C6DE62B638D29A3ECB88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ VA - Zen Zone 4 (2011) [MP3|320 кб/с]<New Age, Instrumental>
 magnet:?xt=urn:btih:E0199CDECB85800F32DC74292660B940D129D241
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:E0199CDECB85800F32DC74292660B940D129D241
 magnet:?xt=urn:btih:100E9127CE420470E588F30993C48899DB39D284
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:100E9127CE420470E588F30993C48899DB39D284
 ```bash
 magnet:?xt=urn:btih:0881D4A6BAD30FF387833FAB00EC5E473120C302
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ S-O-DA - Не гасить (2011) [MP3|320 кб/с]<acoustic rock>
 ```bash
 magnet:?xt=urn:btih:7A5819EA2FB14FF438EA2B969900E712FFA18057
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ Revel In Flesh - Deathevokation (2012) [MP3|320 кб/с]<Death Metal>
 magnet:?xt=urn:btih:8CC27E2B65DC82ADD617256E43773692554A1FAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ magnet:?xt=urn:btih:8CC27E2B65DC82ADD617256E43773692554A1FAE
 magnet:?xt=urn:btih:3493E68C6B6014D15F6710F5B058735803A8A0F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ Rainmeter - программа для мониторинга ресурсов к
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ ISO Workshop - небольшая программа для работы с об
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ ISO Workshop - небольшая программа для работы с об
 ```bash
 magnet:?xt=urn:btih:4051617357295CD42190F43838FA0454738E0393
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ magnet:?xt=urn:btih:4051617357295CD42190F43838FA0454738E0393
 magnet:?xt=urn:btih:91B396764DBCC3F12C089B17FF2E332D780EE09B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ magnet:?xt=urn:btih:91B396764DBCC3F12C089B17FF2E332D780EE09B
 ```bash
 magnet:?xt=urn:btih:C9DC8335ACFDD3BFAEF497E9C21DD0E5919B4C10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

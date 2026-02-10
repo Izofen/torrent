@@ -22,6 +22,8 @@ Lola Astanova - The Popular Piano Collection (2021) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:207E1911E55AF5EA83B897F103C480B31A16D6F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Escala - Escala (2009) [FLAC|Lossless]<Instrumental, Classical, Pop>
 magnet:?xt=urn:btih:754768245CD38A970F6776FCB955E1FE58E195E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ BEETHOVEN, BELLINI, BIZET, CHERUBINI, DONIZETTI, LEONCAVALLO, MASCAGNI, MOZART, 
 ```bash
 magnet:?xt=urn:btih:0647E38090F1F306C76A11A75F54BDC293B0D884
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ Handel - Te Deum de Dettingen (Jean-Francois Paillard) (1989) [FLAC|Lossless|ima
 magnet:?xt=urn:btih:2F1CFE705DF8068740E7F8CB33E7F48F0D722115
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ Giacomo Scinardo - Yiruma: Piano Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Cla
 magnet:?xt=urn:btih:06D1D504D41D19589912B1280414A3686456FD07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ CD 1 - 11 SYMPHONIES (Симфонии)Жанр: ClassicalПродолжител
 ```bash
 magnet:?xt=urn:btih:ACE2E56CA246C256B82AE40632713A0F20382882
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +191,8 @@ Les Bourgeois Gentilhomme (1670)
 magnet:?xt=urn:btih:E5DC036ADDDE1B9AC2D5142830CB656516A17897
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ Relaxing Classical Piano Music - The Unforgettable Piano Mix (2021) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:B577BB2ADF75AF431274E65D0067618A3047C140
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +249,8 @@ magnet:?xt=urn:btih:B577BB2ADF75AF431274E65D0067618A3047C140
 magnet:?xt=urn:btih:B36581F55E0A4C3144F1C50F544325DC6ECFDF0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +277,8 @@ magnet:?xt=urn:btih:B36581F55E0A4C3144F1C50F544325DC6ECFDF0F
 ```bash
 magnet:?xt=urn:btih:2ABBBFD7A481F70A9C71B2D95537E6A9B589DB25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +307,8 @@ Piano Sonata no. 18 in E-flat major, op. 31 no. 3
 magnet:?xt=urn:btih:0D0D2E8EFC1E79BA73324E2FCE873D0EBC9DCDE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +335,8 @@ magnet:?xt=urn:btih:0D0D2E8EFC1E79BA73324E2FCE873D0EBC9DCDE2
 ```bash
 magnet:?xt=urn:btih:023D4B211DA25BF2CFB32D3E615E073EB98DD3D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +365,8 @@ Pièces En Ré Mineur (11:48)
 magnet:?xt=urn:btih:A98079315A74AFCBDC3BCD6579D93EDEEF0C4CA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +393,8 @@ Concerto No. 2 D-dur
 ```bash
 magnet:?xt=urn:btih:62BC1C958B3EA0AE74B7B6F5F8B8810807941E2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +423,8 @@ CD - 1:
 magnet:?xt=urn:btih:E8F1C40D2E9B7356747D616572D28BC34B8A44DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +451,8 @@ Première Partie
 ```bash
 magnet:?xt=urn:btih:A47D120B28B28447B674DE52558BF0DF59DDE067
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +481,8 @@ Sonata in E flat major, Op. 120 No. 2 (1894—95) 21'33
 magnet:?xt=urn:btih:A0A4CFAF473BCA45E19F5116CED0F3C5698296BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +509,8 @@ Schubert - Mayrhofer-Lieder, Vol.2 - Christiane Iven, Burkhard Kehring (2003) [F
 ```bash
 magnet:?xt=urn:btih:1818AC386D3558E66770CE96EE58C781DA84EB11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +539,8 @@ Johann Sebastian Bach - Tenor Arias: BWV 62, 104, 29, 198, 171, 114, 95, 108, 90
 magnet:?xt=urn:btih:AFF8B301BE2FF6198FA2CC9C7A65402ED7485D76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +567,8 @@ VA - Best Of Green Hill Music: The Celtic Collection (2021) [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:F13F06DE399FDFF417CA5E1FDD1185022ECC234F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +597,8 @@ Concerto In F Major, KV242 "Lodron" For 3 Harpsichords & Orchestra
 magnet:?xt=urn:btih:723814D3D8EA1879751B6A85F3B50382A70F10FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +626,8 @@ VA - Piano Seasons: Spring (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 magnet:?xt=urn:btih:42D68E1C00FA0F61FB9887FA581347661EFCBFC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +654,8 @@ Bruckner - Symphony No. 8 (Anton Nanut, Ljubljana Symphony Orchestra) (1989) [FL
 ```bash
 magnet:?xt=urn:btih:C1080B488B748CBEC6978E05437986B8D67CFD49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +686,8 @@ Viacheslav Zubkov - Transcriptions & Improvizations (2018) [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:9E373D6F065E2767FD60CC7ECFD4978E23C64563
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +713,8 @@ Franz Schubert - Symphony No. 8 "Unfinished"
 ```bash
 magnet:?xt=urn:btih:A40EF1CB39189A7D5C10C32D2789048649770EE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -692,6 +742,8 @@ Joseph Haydn - Symphony G-Dur
 ```bash
 magnet:?xt=urn:btih:7BA8CDA951DDC85C63EE5EE6E15A663D177D7DA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

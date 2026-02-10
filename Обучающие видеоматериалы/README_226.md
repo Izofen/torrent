@@ -19,6 +19,8 @@ FlippedNormals, Konrad Hetko | Creating Hair for Games in Blender (2021) PCRec [
 magnet:?xt=urn:btih:B2783296700B62AE97F6A6CAA428AAA8EA47B556
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ CG Cookie, Kent Trammell | Styling and Rendering Long Hair with Blender and Cycl
 magnet:?xt=urn:btih:922E5D1F778FCC78AC14770E21CCEBDFBB42891B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Udemy | Основы SQL: SELECT, JOIN, DML, DDL, TCL, DCL (2020) PCRec [H.264/7
 ```bash
 magnet:?xt=urn:btih:74DEC49B1B46D7062F949D24A297D301FCB7D19D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:74DEC49B1B46D7062F949D24A297D301FCB7D19D
 magnet:?xt=urn:btih:64ECD352079C167D2779EA72352DF91650420915
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Skillshare, Gesa Pickbrenner | Foundations of Blender 2.90: Jewelry Design in 3D
 ```bash
 magnet:?xt=urn:btih:9A9A3D46D6789D2092B596B8407EE534B202EA44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Skillshare, Gesa Pickbrenner | Learn Blender 2.90: Creative and 3D Printable Jew
 magnet:?xt=urn:btih:78A45C33D3B3300EE7C7FA2E717EDF25CFC9F028
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:78A45C33D3B3300EE7C7FA2E717EDF25CFC9F028
 magnet:?xt=urn:btih:D49E8F974329B9C4ABF9FBAE1A8545C4ED4B2683
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:D49E8F974329B9C4ABF9FBAE1A8545C4ED4B2683
 magnet:?xt=urn:btih:782E5BA613CB87725E427DAC44AED8CFAAFD3272
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:782E5BA613CB87725E427DAC44AED8CFAAFD3272
 ```bash
 magnet:?xt=urn:btih:271189D44167AC2E7D7F5827569F6A5381185FE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:271189D44167AC2E7D7F5827569F6A5381185FE8
 magnet:?xt=urn:btih:A2AF110EA568907EE47499FEC2285A30AE50E352
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:A2AF110EA568907EE47499FEC2285A30AE50E352
 ```bash
 magnet:?xt=urn:btih:53764F47EDFA48D49EE9223251B76C2C65801E2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:53764F47EDFA48D49EE9223251B76C2C65801E2F
 magnet:?xt=urn:btih:1B7DB4EB0C3EA13204E193A529E78E12DECB5436
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ Numerolog club, Анастасия Данилова | Цвета и цифры: 
 ```bash
 magnet:?xt=urn:btih:DA65A42652F2144687D9D9A9BD35058A185AFFE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:DA65A42652F2144687D9D9A9BD35058A185AFFE5
 magnet:?xt=urn:btih:5753BD0C6AC0E33E1CA4290C7006B3E1C355FE50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:5753BD0C6AC0E33E1CA4290C7006B3E1C355FE50
 ```bash
 magnet:?xt=urn:btih:A3778E017B9F80A07D47E1641A7D846BBC9B8584
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ Udemy, Алексей Кириченко (Alexey Kirichenko) | Персонаж�
 magnet:?xt=urn:btih:8437642969AAE82E726F0CB96EF36A8462A578FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ Yanetskaya, Светлана Янецкая | Цифровая книжная и
 magnet:?xt=urn:btih:F4D9A9B7781A34357F728BF16088EC06CA807F62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:F4D9A9B7781A34357F728BF16088EC06CA807F62
 ```bash
 magnet:?xt=urn:btih:075EB538914B87A701CCC04BC8CC27976E159207
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ Yanetskaya, Светлана Янецкая | Ми-ми-мишная иллюс�
 ```bash
 magnet:?xt=urn:btih:5C1E7A57C1CBD6AF4D91D7500999EE456D315848
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:5C1E7A57C1CBD6AF4D91D7500999EE456D315848
 magnet:?xt=urn:btih:297B8ED83C02A5053AED6F49B345DAD405CD9A95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:297B8ED83C02A5053AED6F49B345DAD405CD9A95
 ```bash
 magnet:?xt=urn:btih:E0939E86779F0D390B5E32736B4789ADA1184C91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:E0939E86779F0D390B5E32736B4789ADA1184C91
 magnet:?xt=urn:btih:5441231C0FF61A1198C55E9BB5900055BA7C60CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ Cold Steel Inc | The Fighting Tomahawk [Часть1] (2012) DVD5 [En]
 ```bash
 magnet:?xt=urn:btih:00AF24780F696C1F6C909BD71B7BD7AE636EC622
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ magnet:?xt=urn:btih:00AF24780F696C1F6C909BD71B7BD7AE636EC622
 magnet:?xt=urn:btih:01703402938220DE1D6D03D50D5D6F340548BAF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ magnet:?xt=urn:btih:01703402938220DE1D6D03D50D5D6F340548BAF7
 ```bash
 magnet:?xt=urn:btih:DFF9C351D2D7179E061B2FB449A5F41D8F49AF83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -657,6 +707,8 @@ Skillbox, Pic-o-matic, Денис Бобкин и др. | Книжная илл�
 ```bash
 magnet:?xt=urn:btih:6D07DDC1CA1062C6C48653CEAEAC2BB014DC215F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

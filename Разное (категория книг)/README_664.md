@@ -1,3 +1,29 @@
+###  Публикация: 1095524   (924257) от 21.01.2017
+
+Борис Лемберг | Какого пола ваш мозг? (2013) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924257.jpg" />
+</div>
+
+
+###  Подробнее
+
+То, что мужчины и женщины подобны представителям двух разных планет, сегодня знает каждый. А как трудно порой бывает договориться! Женщина говорит одно, подразумевает другое, мужчина же и вовсе понимает третье... Психолог Борис Лемберг предлагает разобраться в особенностях физиологии мозга мужчины и женщины, чтобы научиться взаимодействовать с людьми независимо от (   Читать дальше...   )Жанр: Психология, Популярная психологияФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30E9EF5E75373BBCBB027B12BC8C69EFCF5ADBDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095736   (924267) от 21.01.2017
 
 Габриэль Тард | Преступник и толпа [сборник] (2016) [FB2]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:542394627CA3E804A1435373D76271698C3AC6AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +75,8 @@ magnet:?xt=urn:btih:542394627CA3E804A1435373D76271698C3AC6AC
 magnet:?xt=urn:btih:AF14FF75CBE37592D8DF03E0092BE6C045B48206
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:AF14FF75CBE37592D8DF03E0092BE6C045B48206
 ```bash
 magnet:?xt=urn:btih:ED6148D6B8F2B0B10DF9108B13CE6DD85BC2B30B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:ED6148D6B8F2B0B10DF9108B13CE6DD85BC2B30B
 magnet:?xt=urn:btih:0826A4334341DDFB90B585286CEF6949E0158601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:0826A4334341DDFB90B585286CEF6949E0158601
 ```bash
 magnet:?xt=urn:btih:F07F38F48C44C24003E8F723656C0F472578B56A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:F07F38F48C44C24003E8F723656C0F472578B56A
 magnet:?xt=urn:btih:4BB63231CC4D755867BD5D11D7685064F629E04C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:4BB63231CC4D755867BD5D11D7685064F629E04C
 ```bash
 magnet:?xt=urn:btih:13E1A8BDD2219AB0883D444701AA12C740954EBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +234,8 @@ magnet:?xt=urn:btih:13E1A8BDD2219AB0883D444701AA12C740954EBC
 magnet:?xt=urn:btih:18C63F3E1F85C3EFA784824988B8D21B0CA5EB42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:18C63F3E1F85C3EFA784824988B8D21B0CA5EB42
 ```bash
 magnet:?xt=urn:btih:2253E02EB39AF0249E381D4785620CFBF567732E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:2253E02EB39AF0249E381D4785620CFBF567732E
 magnet:?xt=urn:btih:ADCA2DAB6039A8DAA4331C7F4EB0A9EBAAFBD3C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:ADCA2DAB6039A8DAA4331C7F4EB0A9EBAAFBD3C5
 ```bash
 magnet:?xt=urn:btih:C4FA60273296DAB8DF1E9F0C71E1AD06C042713B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:C4FA60273296DAB8DF1E9F0C71E1AD06C042713B
 magnet:?xt=urn:btih:0B7C0F5C7689C3FD1CD4397DCB0DB09E19E39A18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:0B7C0F5C7689C3FD1CD4397DCB0DB09E19E39A18
 ```bash
 magnet:?xt=urn:btih:BC0417B1EE1A8940BF6F5BE4F2BF2DEA52C9E1FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +393,8 @@ magnet:?xt=urn:btih:BC0417B1EE1A8940BF6F5BE4F2BF2DEA52C9E1FC
 magnet:?xt=urn:btih:F519E69034F83965AB6D3E7186D4B5B683745FCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:F519E69034F83965AB6D3E7186D4B5B683745FCB
 ```bash
 magnet:?xt=urn:btih:16F54A1A76A8285B71AD05BF807AEF65F65BFF21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +446,8 @@ magnet:?xt=urn:btih:16F54A1A76A8285B71AD05BF807AEF65F65BFF21
 magnet:?xt=urn:btih:CF45BFC7B26194C961FB825A59BEDBD60A19AAA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:CF45BFC7B26194C961FB825A59BEDBD60A19AAA5
 ```bash
 magnet:?xt=urn:btih:345B5E09FDB7AAD7DF9C675F81324E1C0DA29F2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:345B5E09FDB7AAD7DF9C675F81324E1C0DA29F2A
 magnet:?xt=urn:btih:A438DC7AD06C04B1D1C444A5CC42CB3A0222568B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:A438DC7AD06C04B1D1C444A5CC42CB3A0222568B
 ```bash
 magnet:?xt=urn:btih:CE05683A6B66674A219D3CE1DAC3F1CDF300610B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:CE05683A6B66674A219D3CE1DAC3F1CDF300610B
 magnet:?xt=urn:btih:71629F8109E9342B52383CDDFB5461952CEFF532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:71629F8109E9342B52383CDDFB5461952CEFF532
 magnet:?xt=urn:btih:0FE1FD1FC4F7C3A282C969AE35A7B2923EAC351A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:0FE1FD1FC4F7C3A282C969AE35A7B2923EAC351A
 ```bash
 magnet:?xt=urn:btih:5CE30BA12C988B5C473948BB3F4668E5BB4D926B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:5CE30BA12C988B5C473948BB3F4668E5BB4D926B
 magnet:?xt=urn:btih:0E67FE91BBABC14212200AE45FFCF71BB626D206
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:0E67FE91BBABC14212200AE45FFCF71BB626D206
 ```bash
 magnet:?xt=urn:btih:36EB6F6B83029727028BF819AD5FD90E0F472D94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,30 +683,7 @@ magnet:?xt=urn:btih:36EB6F6B83029727028BF819AD5FD90E0F472D94
 magnet:?xt=urn:btih:688F51065F399F9670BF18B72141E55AF7E8DC6C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095306   (925716) от 20.01.2017
-
-Николай Норд | Большая книга экстрасенса. Упражнения для развития сверхспособностей (2017) [FB2]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Николай Норд, ученик потомственного сибирского целителя, экстрасенс, уверен, что стать экстрасенсом может каждый. Для этого нужно пройти правильную программу тренировок по развитию сверхспособностей. И такая программа дана в этой книге!
-Здесь вы найдете большое количество различных экстрасенсорных практик – от ясновидения и чтения мыслей до работы с рамками и управления (   Читать дальше...   )Жанр: Эзотерика, Биоэнергетика, СверхспособностиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1EBD02AD67905A6CB5F204A9F9BEE96A4166B8A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

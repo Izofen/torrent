@@ -19,6 +19,8 @@ Ms. Holmes 7: The Death of Peter Blackheart (2025) [En] (1.0) Unofficial [Collec
 magnet:?xt=urn:btih:2902A38585832F190211E02AD94DF974C880DAA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Palworld предлагает находить и использовать пр�
 ```bash
 magnet:?xt=urn:btih:B2D396B28D0FB41BB15A93F3133E9D785A86CB47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:B2D396B28D0FB41BB15A93F3133E9D785A86CB47
 magnet:?xt=urn:btih:50EE85BF182287B86A7741EA90CAFCBF572237B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Door Kickers 2 Task Force North – великолепное сочетание 
 ```bash
 magnet:?xt=urn:btih:6E39EA674773F8ECF8D59C3F97F2369E06A97F77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Far Cry 3: Blood Dragon (2013) [Ru] (1.02) Repack EXROW
 magnet:?xt=urn:btih:BCF3F4B050C7683131F77216F05F33EA059730A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Techno Banter (2025) [Multi] (1.0.3) License GOG
 ```bash
 magnet:?xt=urn:btih:7713D08807A42F10B0E4DBC76EFCE67A154603FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ FRONT MISSION 1st: Remake - атмосферная тактическая пош
 magnet:?xt=urn:btih:B528C9313975A21CC145E5F2ED902F9BF574F3D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Galactic Civilizations IV (4) (2023) [Ru/Multi] (2.95/dlc) Repack seleZen [Super
 ```bash
 magnet:?xt=urn:btih:DD64869BF38C850BA7345CEF92F87C956D9991AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Tennis Manager 2024 – как насчет того, чтобы покорит�
 magnet:?xt=urn:btih:898CE50B2C612223C1D3E487420F76F81A6A9CAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ FRONT MISSION 1st: Remake (2023) [Multi] (16) License GOG
 ```bash
 magnet:?xt=urn:btih:35C5C96F1E9D77ECF2BAFEC3862D606ABAC37F83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ World to the West (2017) [Multi] (1.6.0) License GOG
 magnet:?xt=urn:btih:8AF382403359D4DAC7ED6B951E12372F34792554
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Connection: The Nightmare Within (2024) [Ru/Multi] (Build 17385646) Repack Decep
 ```bash
 magnet:?xt=urn:btih:4D3EDE9E1007C37A77509FA7D01F92776D8331D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Strange City (2024) [Multi] (1.0.6) Repack Let'sРlay
 magnet:?xt=urn:btih:526D4769B04150D9093F7849F1D54C9A377588CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Monospaced Lovers сочетает в себе несколько жанров. 
 ```bash
 magnet:?xt=urn:btih:CAE0E47CDC648EEEE172FEAFB88A1314C3D735D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Sleeping Dogs - это экшен с открытым игровым миром,
 magnet:?xt=urn:btih:C4BFBF59D3E6573974ADDB9F49617837AA952505
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Ninja Five-O позволит вам лично пережить грандио�
 ```bash
 magnet:?xt=urn:btih:5E050DD1034014B1D6FF86E3B1273A997E4187F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The First Berserker: Khazan — хардкорный ролевой экшен. 
 magnet:?xt=urn:btih:6A8C84FABDD580168ABBFFE9F199854B4E8B6A42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Taxi Life: A City Driving Simulator (2024) [Ru/Multi] (1.14.29.106/dlc) Repack W
 ```bash
 magnet:?xt=urn:btih:C0F90569FE0AD2DD472DCFEBD06F3D42BD56F63B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Small Saga (2023) [Ru/En] (Build 12840998) Repack Let'sРlay
 magnet:?xt=urn:btih:E19147BC75F8D5F4F24458A664E81FBBF44FEC70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Transformers: Fall of Cybertron (2012) [Ru/Multi] (1.0/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:D7F03F87CDEE224B59E5BAE08AE081C84C675F64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Little Brave (2025) [Ru/En] (1.0.0) Repack seleZen
 magnet:?xt=urn:btih:68EF4BE6C4C626F2992F5C41B3F9AA023A5F7D4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Vampire Survivors (2021) [Ru/Multi] (1.12.108/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CDCABBB8D2D496A3CB858ACB604463538711C7D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Little Brave (2025) [Ru/En] (1.0.0) Repack FitGirl
 magnet:?xt=urn:btih:257513BAB705AF78685311E22202AB1E91764AD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Tribute (2025) [Ru/Multi] (1.4.3) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:44073F75A66FEA7B5BDD206ED98F36E29461DEF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ SKALD: Against the Black Priory может понравиться любител
 magnet:?xt=urn:btih:335ADF841CD93B4CF7C514C36477A6616A36E0B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Homeworld 3 (2024) [Ru/Multi] (1.31-CL364745/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:A560E7B909DEEA5D6332C8791D07A8B62352AB63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

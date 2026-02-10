@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1261C8C6F04177D020516C0974B5969592486B77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Yaplakal.com — популярное информационно-развлек�
 ```bash
 magnet:?xt=urn:btih:029F9F284286BF656A4C315C4F253143CB252CA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Cleaner for WhatsApp — это мощный инструмент для очи�
 magnet:?xt=urn:btih:302844EFDD64F6B72A12ADCD735E46B3230035BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Sipnetic – это бесплатный программный IP-телефо�
 ```bash
 magnet:?xt=urn:btih:70B761532FCAD7EF4F8216392186D8A8F525E808
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Food.ru — это пошаговые рецепты и мобильное пр�
 magnet:?xt=urn:btih:4F837A18922EA73C925560AD0B8E19BC2AA7C7CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Talksy: Навык общения v0.1.8 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6E4A2F506378A128578845762A69792A18EEADF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ TV+: Бесплатное Онлайн Телевидение
 magnet:?xt=urn:btih:1D794D3638686A4C1A6F4163EB7FCAA4FD07CC21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.3 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B174B9D9220CCD1BA05BBFAD799D4D0FFE0752C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Ventusky: Прогноз погоды v48.1 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:A0A5B4F7E5A4EF46FDE10920EBB05D3BC8966A2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:A0A5B4F7E5A4EF46FDE10920EBB05D3BC8966A2E
 ```bash
 magnet:?xt=urn:btih:D66F88CCC2213F8691903DD86F9814D80EAC382B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Remini / Улучшение Фото v3.7.1156.202517454 Mod by Mixroot [Ru/Mult
 magnet:?xt=urn:btih:6CDF509C0DEB89392F51EF0B974E9B34B3A2CD04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ BikeComputer Pro - возможно, одно из лучших приложен
 ```bash
 magnet:?xt=urn:btih:C846EF1F02B096CB7583EFA764A915C308FF640A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ AirBrush: ИИ Фоторедактор v7.19.0 Mod by PieMods [Ru/Multi]
 magnet:?xt=urn:btih:F70B5BB60042E792ACD9520287027CCF7FEC9124
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Gallery - Photo Gallery, Album (XGallery) v2.0.2 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A575B9E213EDE927F3A2EB82A0081EDDAFFF3EE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Seven / 7 Минут Упражнение v9.24.2 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:CAD198085A242A33871AAEB5E13E3D808DA54ECF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ OTT Онлайн прямое телевидение, в котором вы н�
 magnet:?xt=urn:btih:820BE63608756C01DAB62B69A1D5365EC4211897
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:820BE63608756C01DAB62B69A1D5365EC4211897
 ```bash
 magnet:?xt=urn:btih:F269AE1E36F98A90C59449414A271C4539508F54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ VPN с 15 странами, 14 игровых страны, 12 стриминг�
 magnet:?xt=urn:btih:E8D95859CE1449854239A4358D9A88B959E8923F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Pure Tuber: Block Ads on Video (Ранее. Vanced Tuber) - приложение
 ```bash
 magnet:?xt=urn:btih:2F661BEF91DADB4820F6D89032DFB6F7A2DEF71D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Opera Touch - новый быстрый браузер с функцией Flow,
 magnet:?xt=urn:btih:D5E5DF6D02C0444D8916E9E55E333E15AA47CB4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Garmin: TrekMap Italia v6 PRO [It]
 ```bash
 magnet:?xt=urn:btih:EE8563C5E81936AF77329DEE5D8E50392D7BF9B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Garmin: TOPO Sweden v6 PRO [Sv]
 magnet:?xt=urn:btih:664571446869AD29A336336F6CCFAE1628B6DF27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ PhotoLayers v4.0.0 [En/Ru] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:F720A8449020112105783D7F5642826FE44836DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Screen Stream Mirroring - многофункциональное приложе�
 magnet:?xt=urn:btih:9346074683C77B498D73C12D4D6FDA89AAF3E6E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Meditopia – это приложение для медитации, котор�
 magnet:?xt=urn:btih:50F86AE10B97612D8E0DF4D6727F1E5E972C91F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Audify Music Player - это одно из самых крутых прилож�
 ```bash
 magnet:?xt=urn:btih:9A472F4CF12F6DD8D86E9D9CAD8F586D2404AE8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

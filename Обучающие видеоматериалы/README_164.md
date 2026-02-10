@@ -20,6 +20,8 @@ Pluralsight, Dan Cox | Creating Game-ready Modular Structures in 3ds Max (2016) 
 magnet:?xt=urn:btih:1547AE9AFDB6C4AD962A29C3F583FB5B037C97EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:1547AE9AFDB6C4AD962A29C3F583FB5B037C97EB
 ```bash
 magnet:?xt=urn:btih:633D5789DA89D963A9F1D9BC4FE24ABF967ACCCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:633D5789DA89D963A9F1D9BC4FE24ABF967ACCCE
 magnet:?xt=urn:btih:DAF627A10DADAA4574196E8923847232AED2499B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Rick Arnold | Строим сарай с Риком Арнольдом / Build a
 ```bash
 magnet:?xt=urn:btih:A472A37EE8EB0D427F31B54340D436710160587E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:A472A37EE8EB0D427F31B54340D436710160587E
 ```bash
 magnet:?xt=urn:btih:83AC17C9B2A88BD3FE29DA00FBB6DC8ABEDBE736
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:83AC17C9B2A88BD3FE29DA00FBB6DC8ABEDBE736
 magnet:?xt=urn:btih:A0EE873D8B6F61221E4F84F29E2752E4CAD401EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Windows Server 2012 R2 - это новая серверная операцион
 ```bash
 magnet:?xt=urn:btih:BE20CAEEA2D57F14DE02666082107D3973C8EA7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ magnet:?xt=urn:btih:BE20CAEEA2D57F14DE02666082107D3973C8EA7F
 magnet:?xt=urn:btih:9232C05B0E2C8D3102387DEB0790C62387518547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ Lynda.com | Muse Essential Training - Основной курс [2012] [EN] PCRe
 ```bash
 magnet:?xt=urn:btih:70D90FA23D54E5862D3C31304724B9B79A404848
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ Pragmatic Studio | Ruby and Rails [Master Package] (2012-2014) PCRec [H.264] [EN
 magnet:?xt=urn:btih:CD9496C99B9D3E095163BB0E90D0CDCED4267913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ LibreOffice является одной из самых популярных и 
 ```bash
 magnet:?xt=urn:btih:C53150714ECA6D0A9968886041A41A725C65A12C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:C53150714ECA6D0A9968886041A41A725C65A12C
 magnet:?xt=urn:btih:6E21B8F2404C2972BEA3187C8F7CE93DEE9D5D6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:6E21B8F2404C2972BEA3187C8F7CE93DEE9D5D6E
 ```bash
 magnet:?xt=urn:btih:3DB942366AFB838DEA9B6FF31CE9FA249578634D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +383,8 @@ CodeDojo | Основы Node.js (2017) PCRec [H.264/1080p-LQ]
 magnet:?xt=urn:btih:51737434A8B6A9852B396F9E058F141611C8C757
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +411,8 @@ jQuery – самая популярная JS-библиотека. Для то�
 magnet:?xt=urn:btih:6BF4B5480D94A5296B29C0D43EA8A8958F12B527
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +438,8 @@ magnet:?xt=urn:btih:6BF4B5480D94A5296B29C0D43EA8A8958F12B527
 magnet:?xt=urn:btih:6FC2337BA5AABFA5C9BDC642C7D015F862FE712A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ lynda.com | Основной курс Logic Pro 9 Essential Training [2011] [RUS
 ```bash
 magnet:?xt=urn:btih:D380F38BB352C42E7A117EC7595957888FAEC523
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +492,8 @@ VMware vSphere – решение виртуализации масштаба п
 magnet:?xt=urn:btih:7602B24A25E3EFB60898ECE463F1A030A452F267
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ magnet:?xt=urn:btih:7602B24A25E3EFB60898ECE463F1A030A452F267
 ```bash
 magnet:?xt=urn:btih:90555B91AC18B750B93D9B39B28BC1B2EE9E2F70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:90555B91AC18B750B93D9B39B28BC1B2EE9E2F70
 ```bash
 magnet:?xt=urn:btih:C9F94FEA1C4B2DD12F1F3CA8622F96B2ADE1EE0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +574,8 @@ magnet:?xt=urn:btih:C9F94FEA1C4B2DD12F1F3CA8622F96B2ADE1EE0B
 magnet:?xt=urn:btih:A6C07F06BACDC02E02F154086782AD1F1E1AD266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +600,8 @@ Eduard Mykhailov | Безумные визуальные эффекты в After
 magnet:?xt=urn:btih:68DB77328C90C3BF1B6E7342F8B0F46BF2798337
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:68DB77328C90C3BF1B6E7342F8B0F46BF2798337
 ```bash
 magnet:?xt=urn:btih:5EE2A367EE18F570FD24D18802ED9109BB9A15B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +655,8 @@ Styled Components являются частью движения CSS-in-JS, гд
 magnet:?xt=urn:btih:4BCD48DD96D2EDD8168BAAF9DA53E4BC19DCAB69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +683,8 @@ Parker Walbeck | Создание коммерческого видео / Commer
 magnet:?xt=urn:btih:5590403C7C03E0D2F4F59BE03D966FFD0025CBAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ Ray Roman | Как ухватить момент - курс по свадебн�
 ```bash
 magnet:?xt=urn:btih:821BB22BA4140FB2DBED90504410B744874E1559
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

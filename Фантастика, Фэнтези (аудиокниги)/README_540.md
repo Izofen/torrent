@@ -1,3 +1,29 @@
+###  Публикация: 1455296   (1025743) от 18.03.2021
+
+Кирилл Клеванский | Путешествие на восток (2021) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто такой Тим Ройс? Тим Ройс – это человек, прошедший через самую кровавую кампанию в истории военного дела Империи за последние сто лет. Тим Ройс – это наемник, который прополз по пещерам Харпуда, который сражался на пылающих стенах Мальгрома. Это солдат, одолевший сильнейшего мага столетия, убийца, ушедший от ищеек Третьей управы, внушающей ужас даже самым честным (   Читать дальше...   )Жанр: Боевое фэнтезиПродолжительность: 14:05:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB0D41F92C012C7EC038D583A09CF3D4ADC7213F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455161   (1025752) от 18.03.2021
 
 Дмитрий Мазуров | Теневой путь. В тенях академии. Книга 3 (2021) [MP3]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:D94BD5C458A4D6DF8611C5087E22F18D34B31C5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +75,8 @@ magnet:?xt=urn:btih:D94BD5C458A4D6DF8611C5087E22F18D34B31C5A
 magnet:?xt=urn:btih:95E89FE578AEC2300E2A0B3334BD060D50672610
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:95E89FE578AEC2300E2A0B3334BD060D50672610
 ```bash
 magnet:?xt=urn:btih:9FC5012931054FA0BD9F193F174C53D7FEA501E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +128,8 @@ magnet:?xt=urn:btih:9FC5012931054FA0BD9F193F174C53D7FEA501E7
 magnet:?xt=urn:btih:F1A28A07ADB5BA0D2CCEE80F888CC191404548F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:F1A28A07ADB5BA0D2CCEE80F888CC191404548F6
 ```bash
 magnet:?xt=urn:btih:C819A13CDD961716CFC76BDE5C2D397BCB83D34C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:C819A13CDD961716CFC76BDE5C2D397BCB83D34C
 magnet:?xt=urn:btih:0BBDB782E441D0A91647D2CC4380BB875C2BFBB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:0BBDB782E441D0A91647D2CC4380BB875C2BFBB9
 ```bash
 magnet:?xt=urn:btih:4353972A5B67AD12F2A5374EE351B6CB45E66DE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:4353972A5B67AD12F2A5374EE351B6CB45E66DE7
 magnet:?xt=urn:btih:F617FD857ADEBF2193123B093C23731DFDCB69A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:F617FD857ADEBF2193123B093C23731DFDCB69A4
 ```bash
 magnet:?xt=urn:btih:4654DECB9ED84C3418D8C249533738EB075395DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +288,8 @@ magnet:?xt=urn:btih:4654DECB9ED84C3418D8C249533738EB075395DE
 magnet:?xt=urn:btih:B48050DE6121DC49A5ACD62E080309E6883D3EFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:B48050DE6121DC49A5ACD62E080309E6883D3EFA
 ```bash
 magnet:?xt=urn:btih:7FB485CB2837FF50DDD9A6725425A5BF194D5BAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +342,8 @@ magnet:?xt=urn:btih:7FB485CB2837FF50DDD9A6725425A5BF194D5BAB
 magnet:?xt=urn:btih:02993608520BCC31FD674C5BB0B45FDA707C303D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +367,8 @@ magnet:?xt=urn:btih:02993608520BCC31FD674C5BB0B45FDA707C303D
 ```bash
 magnet:?xt=urn:btih:93A5F010B9AD3459D7F0F08B9DC4613361E6F737
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +396,8 @@ magnet:?xt=urn:btih:93A5F010B9AD3459D7F0F08B9DC4613361E6F737
 magnet:?xt=urn:btih:D77ABEF965E954DF7FF8304A22B86E608A420BA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +423,8 @@ magnet:?xt=urn:btih:D77ABEF965E954DF7FF8304A22B86E608A420BA4
 magnet:?xt=urn:btih:99DB352267B259984E437CCECAF6BEBACF8C1525
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +448,8 @@ magnet:?xt=urn:btih:99DB352267B259984E437CCECAF6BEBACF8C1525
 ```bash
 magnet:?xt=urn:btih:308D47B9876C2C2D37C685D12F0F00E8C2F978F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +477,8 @@ magnet:?xt=urn:btih:308D47B9876C2C2D37C685D12F0F00E8C2F978F8
 magnet:?xt=urn:btih:CA1F0818960BFD72839E46A89A19A9CC6A1358C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +505,8 @@ magnet:?xt=urn:btih:CA1F0818960BFD72839E46A89A19A9CC6A1358C9
 magnet:?xt=urn:btih:6E1B129A97678A0EA74C1CDD4700D211A33B186F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +530,8 @@ magnet:?xt=urn:btih:6E1B129A97678A0EA74C1CDD4700D211A33B186F
 ```bash
 magnet:?xt=urn:btih:CA3516F73BDD07063441E4B9B049B9A356B9EE37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +557,8 @@ magnet:?xt=urn:btih:CA3516F73BDD07063441E4B9B049B9A356B9EE37
 magnet:?xt=urn:btih:EFCD51F9335F8DDBB309E0C0101B0E97A50F5923
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +582,8 @@ magnet:?xt=urn:btih:EFCD51F9335F8DDBB309E0C0101B0E97A50F5923
 ```bash
 magnet:?xt=urn:btih:90C744C52D607B5B8166940828A31931AF41A49D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +610,8 @@ magnet:?xt=urn:btih:90C744C52D607B5B8166940828A31931AF41A49D
 magnet:?xt=urn:btih:6459C9B7544BDB594A394644E6911A46D08CE412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +635,8 @@ magnet:?xt=urn:btih:6459C9B7544BDB594A394644E6911A46D08CE412
 ```bash
 magnet:?xt=urn:btih:16A0A1866F4C1F7DE0F5C466974BC030B8D12A89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +664,8 @@ magnet:?xt=urn:btih:16A0A1866F4C1F7DE0F5C466974BC030B8D12A89
 magnet:?xt=urn:btih:CAD640891419556B44DEBD9064F5064CC7265727
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,30 +690,7 @@ magnet:?xt=urn:btih:CAD640891419556B44DEBD9064F5064CC7265727
 magnet:?xt=urn:btih:C227130840CE56DA47ECD33C36BBE7571EBE45CB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454363   (1026368) от 14.03.2021
-
-Георгий Лопатин | Царь Юрий. Объединитель Руси. Книга 1 (2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русь, словно стервятники, рвут на куски спесивые и жадные князья, которые ради получения чуть большей власти готовы натравить на соседа, зачастую родного брата, злобных кочевников. Все знают, чем закончилась эта эпоха распрей – пришел Батый и разгромил всех поодиночке.
-Чтобы противостоять монгольскому нашествию нужно объединить Русь в единое царство. Решением этой (   Читать дальше...   )Жанр: Боевая фантастика, историческая фантастика, попаданцыПродолжительность: 11:00:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5BA87A4B289FD3E441747C7DFF1497339840AD2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1464309   (1019962) от 21.04.2021
+
+Мару М | Мои кровожадные соседи (2021) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если на вас внезапно свалилась квартира в наследство от неизвестного дядюшки, не спешите радоваться. Ведь еще не факт, что эта квартира согласится вас принять, в отличие от соседей-кровопийц. В переносном смысле, конечно. Хотя… Кто их разберет, но ведут они себя почти как нормальные. Ну а то, что по ночам кто-то бессовестно подъедает чеснок и хозяйскую кровушку, (   Читать дальше...   )Жанр: Городское фэнтези, Юмористическое фэнтези, Любовное фэнтезиПродолжительность: 09:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DB24FA6D40F88015706D9B84A6B2BB3D7BCF176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1464311   (1019977) от 21.04.2021
 
 Маленький Че | Космоопера (2014) [MP3]
@@ -24,6 +50,8 @@
 magnet:?xt=urn:btih:0C8120AB9CCB99593F6075B352227A668458C411
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +75,8 @@ magnet:?xt=urn:btih:0C8120AB9CCB99593F6075B352227A668458C411
 ```bash
 magnet:?xt=urn:btih:D49E3DF5AC4CCE27EE2DE10863E6979D17609A75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +102,8 @@ magnet:?xt=urn:btih:D49E3DF5AC4CCE27EE2DE10863E6979D17609A75
 magnet:?xt=urn:btih:C271BC1CAB18680ADF18869E942B9DC8CAC2B5D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:C271BC1CAB18680ADF18869E942B9DC8CAC2B5D5
 ```bash
 magnet:?xt=urn:btih:D040009E9C2A7286A15059278B90C303E1C65484
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:D040009E9C2A7286A15059278B90C303E1C65484
 magnet:?xt=urn:btih:79ECFE5CE9EF7EBA6999B1838A1EC08F2C206927
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:79ECFE5CE9EF7EBA6999B1838A1EC08F2C206927
 ```bash
 magnet:?xt=urn:btih:36E861DC8B5BBCBE8CE59AB26713CCC01A219AFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:36E861DC8B5BBCBE8CE59AB26713CCC01A219AFE
 magnet:?xt=urn:btih:F266527BEF8F75F402DBDA94525957A222311445
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:F266527BEF8F75F402DBDA94525957A222311445
 magnet:?xt=urn:btih:C9AB0920E228CF66A9E2CADBE667AE73A92474B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:C9AB0920E228CF66A9E2CADBE667AE73A92474B0
 ```bash
 magnet:?xt=urn:btih:C0F386D8D68E013E716EC7363318454D5DA76F7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:C0F386D8D68E013E716EC7363318454D5DA76F7C
 magnet:?xt=urn:btih:1AB793D6C479667A621290F561C23209B1A10E4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:1AB793D6C479667A621290F561C23209B1A10E4B
 ```bash
 magnet:?xt=urn:btih:D11ABC93747646311FB47472217F6B332861799F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:D11ABC93747646311FB47472217F6B332861799F
 magnet:?xt=urn:btih:429437D3AD02ABE7E286DA51A58126CC6141BD6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:429437D3AD02ABE7E286DA51A58126CC6141BD6C
 magnet:?xt=urn:btih:602B98C6FABBD70D2D836096EB2C2A141BC3E862
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:602B98C6FABBD70D2D836096EB2C2A141BC3E862
 ```bash
 magnet:?xt=urn:btih:13874DD8138D788003869B52B99E319FD06A4214
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:13874DD8138D788003869B52B99E319FD06A4214
 magnet:?xt=urn:btih:B041BF5C9016D1583D08CF5770AE9F73AAB02C45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:B041BF5C9016D1583D08CF5770AE9F73AAB02C45
 ```bash
 magnet:?xt=urn:btih:88059C289E1302402A2C0913D1015A6464B56366
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:88059C289E1302402A2C0913D1015A6464B56366
 magnet:?xt=urn:btih:C3DCE2B0E8DFEF0DAA2CC7B1CF598CEDD30C56C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:C3DCE2B0E8DFEF0DAA2CC7B1CF598CEDD30C56C4
 ```bash
 magnet:?xt=urn:btih:1FC07A57BF23574648EFE8319E0B710CAB2782A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:1FC07A57BF23574648EFE8319E0B710CAB2782A1
 ```bash
 magnet:?xt=urn:btih:DB6FE7674EFC12458A2FF231E3E9AA3DBE4A44D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:DB6FE7674EFC12458A2FF231E3E9AA3DBE4A44D8
 magnet:?xt=urn:btih:6008C84B043E1EA7C04F0FCD77B1995B7750506D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:6008C84B043E1EA7C04F0FCD77B1995B7750506D
 magnet:?xt=urn:btih:BECB30CEB27E71700AEFAC296DB455FDC35AE184
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:BECB30CEB27E71700AEFAC296DB455FDC35AE184
 ```bash
 magnet:?xt=urn:btih:168391C3FC20AFD9185272764AC796301626EE64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:168391C3FC20AFD9185272764AC796301626EE64
 magnet:?xt=urn:btih:306D68EE883E11533B7FAD1E0385A4EE36223C25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:306D68EE883E11533B7FAD1E0385A4EE36223C25
 ```bash
 magnet:?xt=urn:btih:BC5D708F6093FA9EAEFF3FF3A4E4FB25311CF599
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,30 +683,7 @@ magnet:?xt=urn:btih:BC5D708F6093FA9EAEFF3FF3A4E4FB25311CF599
 magnet:?xt=urn:btih:77844FF8DA5AE177EEFFE44D28E6BD26FB4EBA3A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463481   (1020477) от 18.04.2021
-
-Нина Новолодская, Джо Кукурузный | Охота на древнего (2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь Алекс Кинг, девушки-некроманта, перевернулась с ног на голову, когда от лап неизвестного чудовища погиб ее приемный отец. Да еще и красавчик-детектив втянул в расследование серии убийств, где жертвами стали дети. Оборотни, вампиры, ведьмы – кому можно верить, а кого стоит опасаться?
-Водоворот невероятных событий затянул в сети и заставил наших героев раскрыть (   Читать дальше...   )Жанр: Городское фэнтези, Детективное фэнтези,Продолжительность: 06:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5982923344F4B235B5D47EB7C85A3C6E527B100D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

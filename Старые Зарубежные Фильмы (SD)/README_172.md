@@ -1,27 +1,3 @@
-###  Публикация: 1023007   (727680) от 03.06.2016
-
-День животных / Day of the Animals (1977) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрушение озонового слоя пагубно повлияло на поведение животных, обитающих на высоте пяти тысяч футов. Это становится неприятным открытием для группы туристов, которых доставил в горы вертолет, прежде чем был объявлен карантин. Животные становятся агрессивными и начинают нападать на людей. Чтобы остаться в живых, путешественникам предстоит сражаться с обезумевшими (   Читать дальше...   )Производство: СШАЖанр: Ужасы, Фантастика, ТриллерРежиссер: Уильям ГёрдлерАктеры: Кристофер Джордж, Лесли Нильсен, Линда Дэй Джордж, Ричард Джэкел, Майкл Ансара, Рут Роман, Джон Седар, Пол Манти, Уолтер Барнс, Эндрю СтивенсПеревод: Многоголосый закадровый, авторскийПродолжительность: 01:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:171C40A8D5B22186C16E3DD45E11A8FBD8C7DDCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023009   (727689) от 03.06.2016
 
 День животных / Day of the Animals (1977) BDRip [H.264]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:171C40A8D5B22186C16E3DD45E11A8FBD8C7DDCD
 ```bash
 magnet:?xt=urn:btih:EAC1651AF5C12D874A0409628451BB0B9E471B17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -66,6 +44,8 @@ magnet:?xt=urn:btih:EAC1651AF5C12D874A0409628451BB0B9E471B17
 ```bash
 magnet:?xt=urn:btih:67D55D9E6D9B5CA144B285D3A13C20332199C9B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +73,8 @@ magnet:?xt=urn:btih:67D55D9E6D9B5CA144B285D3A13C20332199C9B9
 magnet:?xt=urn:btih:B2271F6293D7B13AB5E383F39E6AA5B3BE6E1054
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +98,8 @@ magnet:?xt=urn:btih:B2271F6293D7B13AB5E383F39E6AA5B3BE6E1054
 ```bash
 magnet:?xt=urn:btih:6FEBDC95BFCB750AA2255B36CFCF62A18B91DB63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +125,8 @@ magnet:?xt=urn:btih:6FEBDC95BFCB750AA2255B36CFCF62A18B91DB63
 magnet:?xt=urn:btih:083674F7FC2779C364B2A850F2687C26BA8D2840
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:083674F7FC2779C364B2A850F2687C26BA8D2840
 ```bash
 magnet:?xt=urn:btih:0DA9FA7AC82B02825D6D94D888EAC29645E33704
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +177,8 @@ magnet:?xt=urn:btih:0DA9FA7AC82B02825D6D94D888EAC29645E33704
 magnet:?xt=urn:btih:F6AFB48C042E8570C08E2653EE682E20BC938EF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:F6AFB48C042E8570C08E2653EE682E20BC938EF6
 ```bash
 magnet:?xt=urn:btih:636289639E6A48917CF602556D5BC9234629A4DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +229,8 @@ magnet:?xt=urn:btih:636289639E6A48917CF602556D5BC9234629A4DB
 magnet:?xt=urn:btih:0B536D026229A31A5A2D6A1E9E7DE1DA2DE603B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:0B536D026229A31A5A2D6A1E9E7DE1DA2DE603B4
 ```bash
 magnet:?xt=urn:btih:34A8E1BA48D3A42443FF4C2952D2CCF6E6183BB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +282,8 @@ magnet:?xt=urn:btih:34A8E1BA48D3A42443FF4C2952D2CCF6E6183BB0
 magnet:?xt=urn:btih:96E2DC96FF2B115C13CA7DCC4FE7AD0508D23D5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +308,8 @@ magnet:?xt=urn:btih:96E2DC96FF2B115C13CA7DCC4FE7AD0508D23D5C
 magnet:?xt=urn:btih:484248BEF3409DA966B01AE714729C7ED48FC154
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +333,8 @@ magnet:?xt=urn:btih:484248BEF3409DA966B01AE714729C7ED48FC154
 ```bash
 magnet:?xt=urn:btih:CC1BE4B1CDFA44166E0F692378E88F637B10A941
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +361,8 @@ magnet:?xt=urn:btih:CC1BE4B1CDFA44166E0F692378E88F637B10A941
 magnet:?xt=urn:btih:FC0EC65CC89AB646EB3BA78F30CE89204B636DC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:FC0EC65CC89AB646EB3BA78F30CE89204B636DC1
 ```bash
 magnet:?xt=urn:btih:E3928AB6945435D8C1CC57C2120C52BBF3D48EA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +413,8 @@ magnet:?xt=urn:btih:E3928AB6945435D8C1CC57C2120C52BBF3D48EA8
 magnet:?xt=urn:btih:46D623A50AB23B2530D91B1F453D9C5145A7893E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +438,8 @@ magnet:?xt=urn:btih:46D623A50AB23B2530D91B1F453D9C5145A7893E
 ```bash
 magnet:?xt=urn:btih:D6758828C8C9B4CA6D45259610372399A6979570
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +465,8 @@ magnet:?xt=urn:btih:D6758828C8C9B4CA6D45259610372399A6979570
 magnet:?xt=urn:btih:48D02F02923A337022388392103A4A9301997CD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +490,8 @@ magnet:?xt=urn:btih:48D02F02923A337022388392103A4A9301997CD7
 ```bash
 magnet:?xt=urn:btih:328914D153BEF9D32A12C64CD762BE1253F39082
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +518,8 @@ magnet:?xt=urn:btih:328914D153BEF9D32A12C64CD762BE1253F39082
 magnet:?xt=urn:btih:05D7C6A1F418460795EE64BA68F81CF032B0EAC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +543,8 @@ magnet:?xt=urn:btih:05D7C6A1F418460795EE64BA68F81CF032B0EAC9
 ```bash
 magnet:?xt=urn:btih:027AB8F6CD716CD042CA7EC3EA4657CE0203A096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +571,8 @@ magnet:?xt=urn:btih:027AB8F6CD716CD042CA7EC3EA4657CE0203A096
 magnet:?xt=urn:btih:370B55427CC6B6FFE34D3E33F3C5DDDBE0EF4AA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +596,8 @@ magnet:?xt=urn:btih:370B55427CC6B6FFE34D3E33F3C5DDDBE0EF4AA3
 ```bash
 magnet:?xt=urn:btih:698048EB0B30225D1B046D80DF20D1CD40EE28B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +623,8 @@ magnet:?xt=urn:btih:698048EB0B30225D1B046D80DF20D1CD40EE28B7
 magnet:?xt=urn:btih:96A7F8B09C4C4614EFDA95B4F76638628B308B89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +649,35 @@ magnet:?xt=urn:btih:96A7F8B09C4C4614EFDA95B4F76638628B308B89
 ```bash
 magnet:?xt=urn:btih:A90C322D84B0FAE10143E13F131F7FE3B21207D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021725   (731770) от 30.05.2016
+
+Женщина в окне / Une femme а sa fenеtre (1976) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Греция 1936 год. Страна древней цивилизации охвачена гражданской войной. На улицах льётся кровь, а в аристократических салонах по-прежнему льётся шампанское и слышится смех. Но для Марго время беззаботного существования прекратит свой отсчёт. Однажды ночью в её спальне оказался Мишель — один из самых опасных коммунистов, скрывающийся от полиции.
+Любовь упрямая и (   Читать дальше...   )Производство: Франция, Италия, Германия (ФРГ) / Albina Productions S.a.r.l., Cinema 77, Rizzoli Film S.p.a., TC ProductionsЖанр: ДрамаРежиссер: Пьер Гранье-ДеферАктеры: Роми Шнайдер, Филипп Нуаре, Виктор Лану, Умберто Орсини, Гастоне Москин, Делия Боккардо, Мартина Брошар, Нели Рига, Йоахим Хансен, Карл МёнерПеревод: Двуголосый закадровый, авторскийСубтитры: ОтсутствуютПродолжительность: 01:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:513AA486DC09EE8453A6CB3353B41003D2142DC4
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

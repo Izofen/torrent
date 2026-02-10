@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:EC200C47F731EA77C180A10F0DE3BD53F2213F90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Anthony Onyekachukwu Okonta | React.js Design Patterns (2023) [PDF][EN]
 magnet:?xt=urn:btih:EC11F295EBE5DFFCD017C0533AB0E35CB8F0E4ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Opera 73.0.3856.257 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:80AC4E5C4F577B9858C8B34A573C8BD9DB6AFF85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:80AC4E5C4F577B9858C8B34A573C8BD9DB6AFF85
 magnet:?xt=urn:btih:79EFF497209BE254E865A088E874D0FA88D40789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:79EFF497209BE254E865A088E874D0FA88D40789
 magnet:?xt=urn:btih:8D45128F9AFF44740D11A5E453336C781C52E94A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Anti Spy Detector - Spyware 5.1.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DAB22C837801D4864D8F8A48A22C608B553FA90A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:DAB22C837801D4864D8F8A48A22C608B553FA90A
 magnet:?xt=urn:btih:74404B512068A5B3B08B1663448180646CB0DDE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Paul Richard | Введение в AutoCAD 2020 / Introduction to AutoCAD 2020: 
 ```bash
 magnet:?xt=urn:btih:2CEDD5B0D8B4D9D95DF35483A939D2A5A597E671
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:2CEDD5B0D8B4D9D95DF35483A939D2A5A597E671
 magnet:?xt=urn:btih:86639D85808DA03A51B880FE39857812C39E12FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:86639D85808DA03A51B880FE39857812C39E12FF
 ```bash
 magnet:?xt=urn:btih:B4B210A52E3A7384831138FBED6720CF4EB921B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ VA - Shazam Хит-парад World Top 200 Ноябрь (2021) [MP3|320 Kbps] <
 magnet:?xt=urn:btih:5D197E005DC158CE50E4161821F0BC54627C7FE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:5D197E005DC158CE50E4161821F0BC54627C7FE8
 magnet:?xt=urn:btih:AFC622B38307C0AE9495DE28D6484CAF0E67EC5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:AFC622B38307C0AE9495DE28D6484CAF0E67EC5E
 ```bash
 magnet:?xt=urn:btih:4D1D1B146EAA6AECBC8E247EE40B9A78CBD07548
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ Udemy, Nikita Sergeev | Аналитика в SPSS: от новичка до у�
 ```bash
 magnet:?xt=urn:btih:D4EFF5772AAB302DB4FAC69971C7C04476A0269C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ Tiptoe Lark (смотрите 1 скриншот)
 magnet:?xt=urn:btih:A3777D10D2776A2AE2C69D2DA9771259C4824B2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ Mansur - Karma (2020) Denovali Records [FLAC|Lossless|WEB-DL|tracks] <Darkjazz, 
 magnet:?xt=urn:btih:9ADB25919868CF3BEA31837286A6817176494995
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:9ADB25919868CF3BEA31837286A6817176494995
 ```bash
 magnet:?xt=urn:btih:06666840D72E63C4D85FE59D7411E0A73B591406
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:06666840D72E63C4D85FE59D7411E0A73B591406
 magnet:?xt=urn:btih:B7F35E029D6BCF665D980F008F6E22838BC3CC4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ Udemy, Martin Yanev, Plamen Yanev | The Complete Python Network Programming Cour
 ```bash
 magnet:?xt=urn:btih:C99ABE09AF220DD2EAE314077C907F5815AF634A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:C99ABE09AF220DD2EAE314077C907F5815AF634A
 magnet:?xt=urn:btih:A5FFD6D007C11726554A4740C7C05B8DE6CBD975
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:A5FFD6D007C11726554A4740C7C05B8DE6CBD975
 ```bash
 magnet:?xt=urn:btih:B1822CE44D81339388CCFDC1A8AA40AE5D41E975
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:B1822CE44D81339388CCFDC1A8AA40AE5D41E975
 magnet:?xt=urn:btih:AC5D9D26C8F5603CC5233259FEF9EB0AE5179EDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:AC5D9D26C8F5603CC5233259FEF9EB0AE5179EDA
 ```bash
 magnet:?xt=urn:btih:8EB505B7EF86028919BD47AA74EDC7D4AA969215
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:8EB505B7EF86028919BD47AA74EDC7D4AA969215
 magnet:?xt=urn:btih:24CB81A63B6FFA75461A8E1FC99D1B16256DE5AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ R-Studio - основанная на новейшей уникальной те
 ```bash
 magnet:?xt=urn:btih:4296099299313AC6C139465A49AC7842921765DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +688,8 @@ Ashampoo Photo Commander 17 - это мощное решение для прос
 ```bash
 magnet:?xt=urn:btih:1B0DA558010CA1DC0530153AC9526EEDACA013AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

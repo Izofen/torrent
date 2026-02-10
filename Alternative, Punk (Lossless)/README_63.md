@@ -22,6 +22,8 @@ Gengahr - Sanctuary (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternativ
 magnet:?xt=urn:btih:E18CF54973DC005E72B8DF34CD8F7A1AEF7DF234
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Sex Pistols - 76-77 (2021) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
 magnet:?xt=urn:btih:4B4BED6C9AC30EFF44B33D20F50CE87648679DC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ We Butter The Bread With Butter - Das Album (2021) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:22DAFE4682CEE05E21730B791C5E5E65F4061EFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ Nico Vega - Nico Vega (2009) [FLAC|Lossless]<Alternative, Indie>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +149,8 @@ The Pretenders - The Pretenders II (1981) [FLAC|Lossless]<New Wave>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +185,8 @@ Shaka Ponk - The White Pixel Ape (Smoking Isolate to Keep in Shape) (2014) [FLAC
 magnet:?xt=urn:btih:42A4FE8B0838095041ED908F3EF143F7720DFD98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +210,8 @@ The Offspring - Дискография (1989-2010) [FLAC|Lossless]<Punk Rock/Ska
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +246,8 @@ Avril Lavigne - Goodbye Lullaby (Japanese Ltd. Ed.) (2011) [FLAC|Lossless]<Pop-R
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -257,6 +273,8 @@ Sex Pistols - God Save The Queen (2002) Single [FLAC|Lossless|image + .cue] <Pun
 ```bash
 magnet:?xt=urn:btih:A72E52DC52EF97C8E04EDC64CD16FF8D852AF626
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +309,8 @@ Bloodhound Gang - Hefty Fine (2005) [FLAC|Lossless]<Alternative>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +343,8 @@ Foster the People - Supermodel (2014) [FLAC|Lossless]<Alternative Rock, Lo-Fi, I
 ```bash
 magnet:?xt=urn:btih:C37279C002532502A1A1C2EEC28C38BAA79F461D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +379,8 @@ Therapy? - Shameless (2001) [FLAC|Lossless]<Alternative Rock>
 magnet:?xt=urn:btih:BC32A2A7E91765E5E5661067BB3B910698EBFC80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +413,8 @@ Bloodhound Gang - Use Your Fingers (1995) [FLAC|Lossless]<Alternative>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +449,8 @@ The Pretty Reckless - Going To Hell (2014) Limited Edition [FLAC|Lossless]<Alt.R
 magnet:?xt=urn:btih:62E565AB3A012B163B932187A07C346F23A586C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +483,8 @@ Fall Out Boy - Save Rock And Roll (2013) /Scene/ [FLAC (tracks)|Lossless]<Pop-Pu
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +519,8 @@ Dia Frampton - Red (2011) [FLAC|Lossless]<Alternative Pop-Rock, Indie-Rock>
 magnet:?xt=urn:btih:A8262CA006F2B36407BFD399885A41D65F810868
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +547,8 @@ Panic! At The Disco - Death Of A Bachelor (2016) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:E4C97A7BC174C898F6DCCBB5C156A3BA6AEEE214
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +578,8 @@ Noel Gallagher's High Flying Birds - Chasing Yesterday (2015) [FLAC|Lossless]<In
 magnet:?xt=urn:btih:2BBA1CFA9C9CD8EEC41D6873C722B6F70868FCC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +606,8 @@ magnet:?xt=urn:btih:2BBA1CFA9C9CD8EEC41D6873C722B6F70868FCC6
 ```bash
 magnet:?xt=urn:btih:C89E4C0FA59277F5AEA20E2EDDA61DF7C0D8F247
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +637,8 @@ A Place to Bury Strangers - Transfixiation (2015) [FLAC|Lossless] <Indie Rock, P
 magnet:?xt=urn:btih:B7556C1F802FE8AE4522F0A9A5089E0C78D520EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +665,8 @@ Placebo - A Place For Us To Dream (2016) 3CD, Compilation, Japanese Edition [FLA
 ```bash
 magnet:?xt=urn:btih:94C7B243344627324C69F0B1953BFEC19D9CAB19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +695,8 @@ Billy Idol - The Roadside (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Ro
 magnet:?xt=urn:btih:C0D289D9905BE0926EEBF715641A1C605A80EF5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -680,6 +724,8 @@ Laura Marling - Song for Our Daughter (2020) [FLAC|Lossless|WEB-DL|tracks] <Indi
 magnet:?xt=urn:btih:8CEAE938639CAE2FE57055201A08BCCBBA687EF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -706,6 +752,8 @@ Walking Rumor - Symbiosis (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock
 ```bash
 magnet:?xt=urn:btih:6674F326B953CC2283A8BB259C6BFAA1D807D4DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -740,6 +788,8 @@ Vanilla Ninja - 3 альбома (2004-2006) [FLAC|Lossless]<Pop rock, hard rock
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -772,6 +822,8 @@ Vanilla Ninja - 3 альбома (2004-2006) [FLAC|Lossless]<Pop rock, hard rock
 ```bash
 magnet:?xt=urn:btih:744C45463253191CB29062CB79E57E0DDE88C3C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

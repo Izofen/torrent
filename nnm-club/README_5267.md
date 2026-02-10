@@ -22,6 +22,8 @@ Al Stewart - Songs on the Radio: The Complete U.S. Singles 1974-1981 (2023) Comp
 magnet:?xt=urn:btih:F652C420150F37322D54EB57F4953EC243B2E501
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.1 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:240523AC43B2CE9B9B99525546A332CD252DD81E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Radiant Photo - это программа для редактирования ф
 ```bash
 magnet:?xt=urn:btih:BC430F1CB3917218B100474F915833B7710831F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Application Wizard позволит запускать, завершать и а
 ```bash
 magnet:?xt=urn:btih:2BC02925B5A73E6B4291FB593879CCCDDC57C8D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Johnny Hodges - Storyville Masters Of Jazz (1943 - 1964) 2006, Storyville Record
 magnet:?xt=urn:btih:885D46013642BCF729DB66BDCA86B074B7FD08E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 ```bash
 magnet:?xt=urn:btih:44DAB50F76799569D1F0C5E4FCCC00C1DBF2CAB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ Erroll Garner - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, 
 magnet:?xt=urn:btih:39EC7DE205C6643074F0B1E8D48DD2D05AC3F141
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ Advanced Renamer хоть и бесплатная (   Читать дальше
 ```bash
 magnet:?xt=urn:btih:4A80E4874AFE8F0A994F8CAC9BA8546CA9208970
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ Secret Folder - Прячет данные с вашего компьютера �
 magnet:?xt=urn:btih:53A89A9875973692D5F46D5A47D95B61C63AAD19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:53A89A9875973692D5F46D5A47D95B61C63AAD19
 ```bash
 magnet:?xt=urn:btih:E222E9633DBE36E93AB40E405A7B584AB694990E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:4CD07B271679AC84004AB9A44AFA7CCD0D88D34B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:4CD07B271679AC84004AB9A44AFA7CCD0D88D34B
 magnet:?xt=urn:btih:26FD14C2D0EFF8FF20524AD6BD641E76DABCB654
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ TunesKit AceMovi Video Editor может отличаться от множес�
 ```bash
 magnet:?xt=urn:btih:4C4A37EF42152A9ED38B494A1243F2E3DFCCCE9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:4C4A37EF42152A9ED38B494A1243F2E3DFCCCE9A
 magnet:?xt=urn:btih:617E7E53EE4FBFC3CB30D06D7CBA564A0582FC13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ Duplicate Finder и Cleaner помогут вам избавиться (   Чи
 magnet:?xt=urn:btih:FEF88B79557081CD34A484108B6A510321B164DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:FEF88B79557081CD34A484108B6A510321B164DC
 ```bash
 magnet:?xt=urn:btih:2425CE09A9776DF8B9C6D77B3C90091C1585C488
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ George Loukissas - Apocalypse (2020) [FLAC|Lossless|tracks + .cue] <Hard & Heavy
 magnet:?xt=urn:btih:DFC00714D32A05FFCAB1ADAECBDEA6C1C52B48E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:DFC00714D32A05FFCAB1ADAECBDEA6C1C52B48E2
 ```bash
 magnet:?xt=urn:btih:8A383661D0ABF71FC7E76A0E467D18A6D21CB4F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +509,8 @@ TV+: Бесплатное Онлайн Телевидение
 magnet:?xt=urn:btih:BE2556F2DD61D7E0D5019F7E30C73225FA2DDCC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ PDF to PowerPoint используется для преобразования �
 ```bash
 magnet:?xt=urn:btih:CA7C8970535CF674FBAF1FFC7D1C040780DF87C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +564,8 @@ VA - IGNESCENT Drum & Bass Annual 2022 (2021) [AAC|~340 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:1D8F9E035A66F66EC5CF5392C84B6361A63F7303
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ PatterNodes - хорошо продуманный и настраиваемый 
 ```bash
 magnet:?xt=urn:btih:0B4258D00C7DAC0AC481852008790C973228A3D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ Whitney Houston - I Wanna Dance With Somebody (2022) [FLAC 2.0|44/24|tracks|WEB-
 magnet:?xt=urn:btih:E98FDFBEC3ECE1CC76DC2C0B8738AF03B6765F73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ magnet:?xt=urn:btih:E98FDFBEC3ECE1CC76DC2C0B8738AF03B6765F73
 magnet:?xt=urn:btih:2155B674844F513BDD34F00A5B18065E8E9AD903
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ Scroll 2.3 [En]
 ```bash
 magnet:?xt=urn:btih:0366D07DC34F62CE5352E0F8D49363FFCD6D229C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +700,8 @@ magnet:?xt=urn:btih:0366D07DC34F62CE5352E0F8D49363FFCD6D229C
 ```bash
 magnet:?xt=urn:btih:A18C6F1361FBBEEBC25244C3D3991A5D1CACAC6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

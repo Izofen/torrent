@@ -19,6 +19,8 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.1.1) Repack Other s
 magnet:?xt=urn:btih:FBAA2194B630820661096DC01F36D6AAD830B613
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Slayers X: Terminal Aftermath: Vengance of the Slayer (2023) [Ru/Multi] (1.0.0) 
 ```bash
 magnet:?xt=urn:btih:35A20CDA8A6A75230073CCEA979AD57F7866E646
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Second Sun - путешествие по живописному миру, соз
 magnet:?xt=urn:btih:31CDCD64F7C0FFD8A6895FAF68BEC60C7B4AC983
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Rise Eterna II (2) (2025) [Multi] (20251003) License GOG
 ```bash
 magnet:?xt=urn:btih:4233A59D34626AB330D26ED06D18765296B781F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ True Fear: Forsaken Souls Part 3 - заключительная глава тр�
 magnet:?xt=urn:btih:C60B567EBAAEBB102CED4850178D84BCEDFCD294
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Metal: Hellsinger (2022) [Ru/Multi] (rc2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:9141B31944885233CE72E278923E39C743B06681
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.17.38829.471) Scene FAIRLIGHT
 magnet:?xt=urn:btih:7BFA5F3F55C9AA457BA60879EE092DBE9B1CA5BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Homefront (2011) [Ru/Multi] (1.5.500001.0/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3D2ED90D7E2A8CDD4D26F278A0365BC3E9D289AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20668622) Repack Other s
 magnet:?xt=urn:btih:F86766D85D2A2A5BCFCBC2B0ED8DD95EC766C479
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Lord of the Rings: Gollum (2023) [Ru/Multi] (0.2.51064) Scene FAIRLIGHT
 ```bash
 magnet:?xt=urn:btih:70C369E8339C29FECB6BB2A873407FF9F2255EA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ TUNIC (2022) [Ru/Multi] (1.0-t1513-b45) License GOG
 magnet:?xt=urn:btih:AF20BFD277730BAC8B881FB8E286154DC626ACD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Lord of the Rings: Gollum - это официальная адаптация
 ```bash
 magnet:?xt=urn:btih:64187B21493691E857CD54F8C10E749D28B8A6EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Railway Empire 2 (2023) [Ru/Multi] (1.0.1.52027/dlc) Repack DjDI [Digital Deluxe
 magnet:?xt=urn:btih:86E2E57598B6C5BAF728E7CA186BE1A10EC7A56A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Star Trek: Resurgence - интерактивная новелла, событи�
 ```bash
 magnet:?xt=urn:btih:AFEE4D098E120D5EAC70C04998A38039C1846D5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Marvel’s Spider-Man: Miles Morales (2022) [Ru/Multi] (2.209.0.0/dlc) Repack Dj
 magnet:?xt=urn:btih:71D4E04EC4960D686A66D4FE1917B63F49BCB095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Greedventory - это захватывающий ролевой экшен, ко
 ```bash
 magnet:?xt=urn:btih:DE59D914C648457A989E1BEA3F71C73CB98D1E91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Thea 2: The Shattering – продолжение истории из перво
 magnet:?xt=urn:btih:77208DCDC6F8676590FFE6FF0B2D7A47676FF67E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Resident Evil 4 (2023) [Ru/Multi] (1.0/dlc) Repack Decepticon [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:6C0D26602954F130A48855C02D86042293A4488D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Resident Evil 4 (2023) [Ru/Multi] (11025382/dlc) Repack DjDI [Deluxe Edition]
 magnet:?xt=urn:btih:BE38DF31719DC87426DEC4BD183F6C916463A636
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Sunless Sea - это приключенческий rpg хоррор, в кот�
 ```bash
 magnet:?xt=urn:btih:36BE2ED7D7F007FD7A068661ECC7EC92770F193D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Mortal Sin - хаотичная и кровавая игра в жанре rogue
 magnet:?xt=urn:btih:13947CDC682F7A6E6B30FC17457D80A206BA4B23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Dread Templar - динамичный шутер от первого лица, с
 ```bash
 magnet:?xt=urn:btih:43E15AD6B06E8721AB3BA1D43918DA20ED67C566
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Machinika Museum (2021) [Ru/Multi] (1.22051101) License GOG
 magnet:?xt=urn:btih:448167CACE4EFD7258CC0755AC9A25A7D79201CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Wreckfest (2018) [Ru/Multi] (Build 16986367/dlc) Repack Other s [Complete Editio
 ```bash
 magnet:?xt=urn:btih:47CB0DA7D6AE76F0BB87CAF42B32A1817307666B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ HYKE: Northern Light(s) (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 magnet:?xt=urn:btih:70F76BEE8BC96CD841B5054942C90542DD35E617
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ SPARTA 2035 (2025) [Ru] (1.1.0(29)/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:1AB8419115AF4B5D2656A52DFB0C2B70BCF1B135
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

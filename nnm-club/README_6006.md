@@ -22,6 +22,8 @@ Maya - Maya (2004) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 magnet:?xt=urn:btih:7586F770FC7329D88FCDE0A97CAEA722813F6216
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Udemy, Andrei Neagoie и др. | JavaScript веб проекты: 20 проек
 magnet:?xt=urn:btih:CCA3A0B4201D43904C64D9684CE80E2A164417C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:CCA3A0B4201D43904C64D9684CE80E2A164417C3
 ```bash
 magnet:?xt=urn:btih:0324952FCADD54DF907EB99B20C8D547B76F2BB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Crimson Dawn - It Came From The Stars (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic
 magnet:?xt=urn:btih:5CFA097BB68695F1F1D1D36D6F4271F25B11B013
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Pixel, Татьяна Климань | Иллюстрации в Adobe Illustrat
 magnet:?xt=urn:btih:8E44743A89698D7ED21A56B23654FBF2F07C5E8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Sandboxie - yтилита для контроля за работой разли
 ```bash
 magnet:?xt=urn:btih:4396CAFEB43BC00F74D6A0BFA22FD8AECE0D8A28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ Terraria v.1.4.4.9 v3 (2011) [Multi/Ru] [macOS Native game]
 magnet:?xt=urn:btih:415F36022D1134FEC27573B07E6295CED7A45EDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:415F36022D1134FEC27573B07E6295CED7A45EDC
 magnet:?xt=urn:btih:B0D5C6DD1D1E73373B65BDD4F98BC880D4422517
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:B0D5C6DD1D1E73373B65BDD4F98BC880D4422517
 ```bash
 magnet:?xt=urn:btih:E2A843CA6778A997AD5A3E829AD06F7075213F05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ Maya - Kiss of Fire (2006) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 magnet:?xt=urn:btih:38E6B2875694D1088F9C527626705498ADBC98A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ Udemy, Lucy Iterman | Postman по полочкам + практика (2022) WE
 ```bash
 magnet:?xt=urn:btih:503496AF7B01FDA978197EADB8C3EBFD309F45AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:503496AF7B01FDA978197EADB8C3EBFD309F45AB
 magnet:?xt=urn:btih:CDD3670C8E681754500AD7971090C72570990266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:9F2449CA45DB714C94B7FBCD01CAB32EEDFD494E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ Russell Allen collaborative projects: Allen - Lande; Allen - Olzon - Studio Albu
 magnet:?xt=urn:btih:4AE33D38FE0C4657501A4F9D5C808A0FAECA230E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:4AE33D38FE0C4657501A4F9D5C808A0FAECA230E
 ```bash
 magnet:?xt=urn:btih:A670F4E4810B2A15D59355B733CD62C723D234BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ Udemy, Никита Сергеев | Power Point: от новичка до ув�
 magnet:?xt=urn:btih:D70CDA81431FB987FB2D2C623BFCD8B8DAB622FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:7A05ABCE7675E5BC0BF736F1000EA0E86F9EA673
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ Soen - Memorial (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Progressiv
 magnet:?xt=urn:btih:FB92F9AEFC20FAF4110D9187B4D70FE0B0602795
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:FB92F9AEFC20FAF4110D9187B4D70FE0B0602795
 ```bash
 magnet:?xt=urn:btih:5CEE4F0EA8BE939F2953B5367495BC5083337A5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ GeoGebra — мультиплатформенная программное об�
 magnet:?xt=urn:btih:CB39867843DED982B1E7474D3C8A57B3E664C8CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:CB39867843DED982B1E7474D3C8A57B3E664C8CE
 magnet:?xt=urn:btih:FD356E6C946C8C04AE241551DFBE784A3DE2A702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:FD356E6C946C8C04AE241551DFBE784A3DE2A702
 ```bash
 magnet:?xt=urn:btih:6B12B69CE748170A4796343B10B8CEADE3CDA7ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ VA - Kryder Presents Metaverse Volume 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Tr
 magnet:?xt=urn:btih:35D3A9AE5A59A838D7EE0D09793B1A8E1FFEFEEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:35D3A9AE5A59A838D7EE0D09793B1A8E1FFEFEEF
 ```bash
 magnet:?xt=urn:btih:37ED580CDFB91BF3AE170282C2E4DF4A6FB22556
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ Geekbrains, Александр Гаврилов и др. | Digital-страте�
 magnet:?xt=urn:btih:276B4BCE0899058887FB81DB15003C7455083519
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ magnet:?xt=urn:btih:276B4BCE0899058887FB81DB15003C7455083519
 ```bash
 magnet:?xt=urn:btih:C1156DE91BF03360A74F43AF06519611ED12B888
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

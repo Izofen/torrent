@@ -28,6 +28,8 @@ Hans Zimmer - Гладиатор / Gladiator (2000) [MP3|320 kbps]<OST>
 magnet:?xt=urn:btih:7FA992EE746B80F672489C89A819FE380B328916
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ Luna - 3 альбома (1992-1998) [MP3|256-320 кб/с]<New age>
 ```bash
 magnet:?xt=urn:btih:D9E07D283AA2F396537863E2241E0EC65D9509BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -88,6 +92,8 @@ Dynaudio - Acoustic Session Vol.1 (2010) [FLAC|Lossless]<Audiofile, Test>
 magnet:?xt=urn:btih:2CFBC51B8C42E6CB55C584F9F9A92844DCB1422C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +120,8 @@ The Piano Girls - Hey Guys, Listen to My Piano (2014) [MP3|320 кб/с] <New Age
 ```bash
 magnet:?xt=urn:btih:A2523C8E2FE24CD5F15CC60C099E359BA6DB6F19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +156,8 @@ Dynaudio - Sampler Vol.1 (2010) [FLAC|Lossless]<Audiofile, Test>
 magnet:?xt=urn:btih:6D2EB8167C6FD915E6C05571C415F4AAAF79652F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +191,8 @@ Dynaudio - Feeling Music (2005) [FLAC|Lossless]<Audiofile, Test>
 magnet:?xt=urn:btih:43A9D9A65D250F2E13079059CBBAE399DCF49128
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +218,8 @@ Dynaudio - Promo CD vol. 1 (2010) [FLAC|Lossless]<Audiofile, Test>
 ```bash
 magnet:?xt=urn:btih:D217D45BB1D83DFF4ACF5BF1C4AF203B41BB9DB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +247,8 @@ Marco Beltrami & Buck Sanders, VA - Ford V Ferrari / Ford против Ferrari (
 ```bash
 magnet:?xt=urn:btih:81D7CF592B81294BFA83C50745ED8E325C4F2EF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +283,8 @@ CD1
 magnet:?xt=urn:btih:C9D5571019C184CF517C8609ABE39524BF3FC0BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +317,8 @@ Dynaudio - Accentuations Guitar Impressions (2007) [FLAC|Lossless]<Audiofile, Te
 ```bash
 magnet:?xt=urn:btih:13EF887D7DABACD625F4590A1D6515ED3F930355
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +353,8 @@ The Gold Star Orchestra - Romantic Classics (2009) [FLAC|Lossless]<Instrumental,
 magnet:?xt=urn:btih:D7586F6DF7B577B80C3040C22FE2679312360BC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +381,8 @@ Marco Beltrami & Buck Sanders, VA - Ford V Ferrari / Ford против Ferrari (
 ```bash
 magnet:?xt=urn:btih:AB9EB5EF6CBF20FB40F42016DFC1F80FED2101F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +411,8 @@ Michele McLaughlin - Undercurrent (2015) [MP3|320 кб/с] <New Age, Piano>
 magnet:?xt=urn:btih:5A5BAD5BFA2A38F4AA57AFB46B967D8EC9984152
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +436,8 @@ Gentle Persuasion - Sound and Songs of the Humpback Whales (1992) [FLAC|Lossless
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +466,8 @@ Era - The Mass (2003) SACD [FLAC|Lossless|tracks + .cue] <New Age, Modern Classi
 magnet:?xt=urn:btih:CCA7DB4B211A8132AB2F552F1E24191575CA9B8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +495,8 @@ Vangelis - 1492 Conquest Of Paradise (1992) CDS [FLAC|Lossless]<Soundtrack, Elec
 magnet:?xt=urn:btih:1BAE41CAEDB215524360E9BF2AA72D367C7F459C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +523,8 @@ Thomas Newman - 1917 (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:B3301BA1AAA9C341C4E4B5C5AB5F90C2F0811DC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +559,8 @@ magnet:?xt=urn:btih:B3301BA1AAA9C341C4E4B5C5AB5F90C2F0811DC8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +594,8 @@ Glenn D. Wright & R. Arduini - Best Of New Age (2CD) (1999) [MP3|320 кб/с]<Ne
 magnet:?xt=urn:btih:2F67122AD107CA905BBAD5C475791FB5EF6B43D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +622,8 @@ Ah Nee Mah (Diane & David Arkenstone) - Ancient Visions (2005) [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:FC1BCBFF4F6333C98BF2DB75BAAA61229131F7B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +659,8 @@ CD 01
 magnet:?xt=urn:btih:6228FA71330FB490BCA68767DA796DB9E1A04F2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +688,8 @@ Rob - Gretel & Hansel / Гретель и Гензель (Original Motion Pictur
 magnet:?xt=urn:btih:BCABCDCC039A2BB72619ADCC624FFC2113BA0CA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +716,8 @@ Rob - Gretel & Hansel / Гретель и Гензель (Original Motion Pictur
 ```bash
 magnet:?xt=urn:btih:100D3D6290EE76F99674D326CC8E40452C08CF34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -705,6 +751,8 @@ Choir of Young Believers - 2 альбома (2008-2012) [FLAC|Lossless]<Avant-po
 magnet:?xt=urn:btih:6446DE5A916F2EAF80A5C685F653F2E87A188B02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -732,6 +780,8 @@ VA - Los clasicos argentinos Tango - Vol.06 (1996) [MP3|128 кб/с] <Tango>
 magnet:?xt=urn:btih:174C0A99090E24D5622F6E88E13F104D343A44D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -758,6 +808,8 @@ Justin Kaleb Driggers - Homesick Blues (2015) [MP3|320 кб/с] <Country Rock>
 ```bash
 magnet:?xt=urn:btih:70DE2DC094180E9622407A6F0A2ACAEB29E45342
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

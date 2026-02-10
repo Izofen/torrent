@@ -20,6 +20,8 @@ WinSnap позволяет делать скриншоты экрана мони
 magnet:?xt=urn:btih:CCD701199A3AF6D78FBAC94F60E34C8AB6BFB9E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Space Avenue - Voices From The Other Worlds (2006) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:EAFAD99619889EEABC4BF06E8603DA726C27A8ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ VA - Ballermann Frühlingsalarm 2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
 magnet:?xt=urn:btih:23C8EDC1697C7E18FB0A440E54454D7CBABB435F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ DMG Canvas создает образы дисков (.dmg). Процедура �
 ```bash
 magnet:?xt=urn:btih:36AFCBE24368D084805920FB175940917DEF5AB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Lynn Stokes & The Sol Surfers - Terra Nocturne (2008) [FLAC|Lossless|image + .cu
 magnet:?xt=urn:btih:BE69F1E828EB7D5908E15D69188F9DA9FE4F4531
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ Syrinx - Meteora (1980) LP [MP3|320 Kbps] <Electronic, Krautrock>
 ```bash
 magnet:?xt=urn:btih:0961EBEBE6FC5638EA6ED754DE7B412A4306FB0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +191,8 @@ Ghost Ship Octavius - Delirium (2018) [FLAC|Lossless|image + .cue] <Progressive 
 magnet:?xt=urn:btih:F5DC1A61294EAD1DB84A5DE8976B7E34CE1E9584
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +220,8 @@ Scratching Soil - War Experience (2003) [FLAC|Lossless|image + .cue] <Black Meta
 magnet:?xt=urn:btih:81D81CD2171B90AF5BD987E1C4FA3C22E42B3ADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -230,6 +246,8 @@ Soilwork - Feverish (2019) Single [FLAC|Lossless|Web-DL|tracks] <Melodic Death M
 ```bash
 magnet:?xt=urn:btih:DA564E5C1BA3D8768C499BE69782AFBF0BE109C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -258,6 +276,8 @@ Shylmagoghnar - Transience (2018) [FLAC|Lossless|image + .cue] <Melodic Black Me
 magnet:?xt=urn:btih:5D95AC3337DCFC80358906A96B65BF0C2685593B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +305,8 @@ John Coltrane - Plays For Lovers 1951 - 1958 (2003) Prestige [FLAC|Lossless|trac
 magnet:?xt=urn:btih:E99392B9B8C17A53BFDCDB5D0DCB723B05CBCE04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +333,8 @@ GrandTotal прекрасно работает в сочетании с TimeLog.
 magnet:?xt=urn:btih:2AE0C22FD1E167D0838A9E5112A768FE6EB25F57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +360,8 @@ Cisdem AppCrypt  - несложная  утилита, которая дает �
 ```bash
 magnet:?xt=urn:btih:4E64895223AD637CED145EF2936DF50DF343E02D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +390,8 @@ Visceral Disgorge - Slithering Evisceration (2019) [WavPack|Lossless|image + .cu
 magnet:?xt=urn:btih:75FE97738BA85B594D9A0C789FF69682F46B4115
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +416,8 @@ magnet:?xt=urn:btih:75FE97738BA85B594D9A0C789FF69682F46B4115
 magnet:?xt=urn:btih:DCAB5CE9E299F1A05B6B64682D0DF84CFC8F8347
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +441,8 @@ magnet:?xt=urn:btih:DCAB5CE9E299F1A05B6B64682D0DF84CFC8F8347
 ```bash
 magnet:?xt=urn:btih:EB5E598E037C9F4A26C13A48991AA2F8F5805425
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +472,8 @@ magnet:?xt=urn:btih:EB5E598E037C9F4A26C13A48991AA2F8F5805425
 magnet:?xt=urn:btih:5C5ACD0939238ECE85BB607310CDEAB2219B9682
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +497,8 @@ magnet:?xt=urn:btih:5C5ACD0939238ECE85BB607310CDEAB2219B9682
 ```bash
 magnet:?xt=urn:btih:27105A27D06D55A5EA102E96C3A41F1F195565D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +524,8 @@ magnet:?xt=urn:btih:27105A27D06D55A5EA102E96C3A41F1F195565D9
 magnet:?xt=urn:btih:ABCA5E41C89927F230AF0BB4B158BA92BAD84D97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +549,8 @@ magnet:?xt=urn:btih:ABCA5E41C89927F230AF0BB4B158BA92BAD84D97
 ```bash
 magnet:?xt=urn:btih:CEE061BBAB67EC4D81229D5C3E5267500BDEDB0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +577,8 @@ magnet:?xt=urn:btih:CEE061BBAB67EC4D81229D5C3E5267500BDEDB0C
 magnet:?xt=urn:btih:74DD8A68E035422A58D47DE4C5696BF4D4AD5777
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +602,8 @@ magnet:?xt=urn:btih:74DD8A68E035422A58D47DE4C5696BF4D4AD5777
 ```bash
 magnet:?xt=urn:btih:FD0BC191FE5B080D358A05344C419B4BED42A29C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +632,8 @@ magnet:?xt=urn:btih:FD0BC191FE5B080D358A05344C419B4BED42A29C
 magnet:?xt=urn:btih:B25F4B1F13E7A5104C292F9780BC89268572DE77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +661,8 @@ magnet:?xt=urn:btih:B25F4B1F13E7A5104C292F9780BC89268572DE77
 magnet:?xt=urn:btih:4C31D8B13E3FF066AF34C2AD4EBE76F822F92950
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +688,8 @@ magnet:?xt=urn:btih:4C31D8B13E3FF066AF34C2AD4EBE76F822F92950
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +713,8 @@ magnet:?xt=urn:btih:4C31D8B13E3FF066AF34C2AD4EBE76F822F92950
 ```bash
 magnet:?xt=urn:btih:A8D1A8B7A0AD1EBB417A6DF8C13FC7F8BAE45CF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

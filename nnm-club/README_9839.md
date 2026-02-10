@@ -1,57 +1,3 @@
-###  Публикация: 1332200   (316835) от 19.10.2019
-
-VA - Nothing But... Amsterdam Dance Essentials 2019 - Trance (2019) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ultimate - Ethereal (Mino Safy Extended Remix)
-02. Maratone feat. VIKA - Coming Home (Extended Mix)
-03. Danny Eaton - Kingdom Of Heaven (Original Mix)
-04. Daniel Perrelli - The Beginning (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A38983A26B6D8E7E9DA520FF5790CFD00150FC72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332296   (316836) от 19.10.2019
-
-Geekbench 5 v5.0.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Geekbench 5 – бенчмарк для измерения производительности в реальных задачах
-Когда мы покупаем Mac или когда мы хотим быть уверены, что все компоненты нашей системы работают хорошо, мы, как правило, используем программы для выполнения тестов.
-
-Geekbench 5 предлагает обновленный интерфейс и ряд новых бенчмарков, которые созданы специально для измерения быстродействия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2019Разработчик: Primate Labs Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C24F416B2AB5406CAF3E3F6633365161C35D9DFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332046   (316837) от 19.10.2019
 
 JixiPix Chromatic Edges 1.0.9 [En]
@@ -73,6 +19,8 @@ JixiPix переносит винтаж в совершенно новый эк�
 ```bash
 magnet:?xt=urn:btih:5F766E044765286024417165D6F8074BDB4D683A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +48,8 @@ SILKYPIX Developer Studio Pro — мощная программа, котора�
 magnet:?xt=urn:btih:87AB9662351843D125BADDBC57BFC85B7F1EFBC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +74,8 @@ PrefEdit - уникальное приложение для просмотра �
 ```bash
 magnet:?xt=urn:btih:480E39D811E08E3DD1F4CC54EC0CF5DE62D31E3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +102,8 @@ Vectoraster - программа для создания векторной гр
 ```bash
 magnet:?xt=urn:btih:5E492B862FF72BAD5D4A2C5C6D7C0AA34DEB7193
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +132,8 @@ Onaje Allan Gumbs - Dare To Dream (1991) [FLAC|Lossless|image + .cue] <Smooth Ja
 magnet:?xt=urn:btih:A86CE982B5DB95E23A345B9E6A776F25CBEEAEB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +159,8 @@ iTubeDownloader 6 v6.5.7 [En]
 ```bash
 magnet:?xt=urn:btih:391049A74C784D4DA598D98C7B17C155D8CA0491
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -231,6 +189,8 @@ DupeZap (бывший DupeZap Plus) - Утилита, позволяющая и�
 magnet:?xt=urn:btih:E27FC03025DCFEB087F0438C40075097FD19C266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +216,8 @@ Downie поддерживает более 1,000 популярных сайто
 ```bash
 magnet:?xt=urn:btih:6F4B8FBA0DE60302FB11C5E0A00C784383938B7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +245,8 @@ Acorn (   Читать дальше...   )Тип издания: macOS Software
 magnet:?xt=urn:btih:2DA46B60D5D8FEFB2B0958640C2DB891135D5CAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +271,8 @@ TurboMosaic — программа, позволяющая легко и быс�
 magnet:?xt=urn:btih:2E70DBFBE7F1201314F9FD953768B759716F55E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +296,8 @@ Tidy Up - приложение предназначено для поиска д
 ```bash
 magnet:?xt=urn:btih:74D18567B258BB5B042E1A75F6B26D1A1FBEA838
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +326,8 @@ Ken Peplowski - Last Swing Of The Century (1999) Concord Jazz [FLAC|Lossless|tra
 magnet:?xt=urn:btih:1AF6B724279C476EBF27D83DA9C7DE360AC108CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +353,8 @@ DiskCatalogMaker  - Простая утилита для управления и
 magnet:?xt=urn:btih:4611875D42201F6143A66C317516FBD56DAD7BB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +378,8 @@ magnet:?xt=urn:btih:4611875D42201F6143A66C317516FBD56DAD7BB7
 ```bash
 magnet:?xt=urn:btih:E454D331175941F1EB130D972E2AC31535CFB4FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +405,8 @@ magnet:?xt=urn:btih:E454D331175941F1EB130D972E2AC31535CFB4FC
 magnet:?xt=urn:btih:69EF18E99A4731E25C79E0243C777EA30503E7D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +430,8 @@ National Geographic: Острова Фиджи / Islands Fiji (2011) HDTVRip
 ```bash
 magnet:?xt=urn:btih:251140B945850FD3533478B54C5BA69B1076F8A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +461,8 @@ magnet:?xt=urn:btih:251140B945850FD3533478B54C5BA69B1076F8A4
 magnet:?xt=urn:btih:58B02B5A278BC2E5E7DAFAEF7946884481316CE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +486,8 @@ Primus - Pork Soda (1993) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:B9752CAD57729DA2A63D3B3532E8FFD777DE362D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +516,8 @@ Klint - Klint (2002) [FLAC|Lossless|tracks + .cue] <Blues Rock, Soft Rock, Pop R
 magnet:?xt=urn:btih:40AEB53814FE60052F0EA96B800FBB06365BEE87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +542,8 @@ Pulusha - Isolation (1997) Evolution [FLAC|Lossless|tracks+.cue] <Ambient>
 ```bash
 magnet:?xt=urn:btih:F93FFB427EDDFB1BB1403803917A9F4C2B69E47C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +572,8 @@ Primus - Antipop (1999) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 magnet:?xt=urn:btih:1EC328A91F0C7DA956E26BDA7698ECCFF6F56CF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +597,8 @@ magnet:?xt=urn:btih:1EC328A91F0C7DA956E26BDA7698ECCFF6F56CF9
 ```bash
 magnet:?xt=urn:btih:DDF34432B67316B5022FF3942C54F75C9A14B405
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +627,8 @@ Iapetus - Conifold Transition (2018) Bleego Industries [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:58020B7BFA2A245AD49DC1A2934B9B815AFAFBF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +655,64 @@ Hank Hobson - Unline Mix (2018) [FLAC|Lossless|WEB-DL|tracks|24Bit] <Ambient, Dr
 ```bash
 magnet:?xt=urn:btih:EE8325EA619BF085E14D571EE09F250837E18C5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259981   (316917) от 05.11.2018
+
+Primus - Sailing the Seas of Cheese (1991) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_316917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seas Of Cheese (0:42)
+ 02. Here Come The Bastards (2:55)
+ 03. Sgt. Baker (4:16)
+ 04. American Life (4:33)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C05DDCE4D6FF680585BC83FCA380596EE5950250
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259823   (316918) от 05.11.2018
+
+Алексей Сливицкий | Разоренное гнездо (1897) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_316918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повести и рассказы русских писателей.
+Рассказы для младшего и среднего школьного возраста.Жанр: Образование, обучение и развитие детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21E01EE03D78A44B045BB303429605199E685B0B
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

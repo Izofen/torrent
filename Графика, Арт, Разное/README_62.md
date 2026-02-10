@@ -1,52 +1,3 @@
-###  Публикация: 943709   (447113) от 04.10.2015
-
-Картинки - Digital Wallpapers Vol.1 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев на различную тематику с уклоном в цифру. Здесь Вы не найдёте пейзажи, зверюшек и тому подобного.
-Только цифровые обои.Формат: JPGРазрешение файлов: 1600х1200 - 6000х4188
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAD1363553F525589DC4A967B0A8C7ED42E4C613
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943687   (447206) от 04.10.2015
-
-Картинки - Лесные животные [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев с лесными животными.Формат: JPGРазрешение файлов: 1680х1050 - 7360х4912
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2D4607E3037147CA0CDCF986AE82EDEE2D5BBF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943671   (447212) от 04.10.2015
 
 Картинки - Семейство кошачих - идеальные убийцы [JPG]
@@ -67,6 +18,8 @@ magnet:?xt=urn:btih:A2D4607E3037147CA0CDCF986AE82EDEE2D5BBF6
 ```bash
 magnet:?xt=urn:btih:6E05FDC5623FE49234E59C1754D4566F2975E753
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +54,8 @@ jpg,Благовещение,открытка с Благовещением(   �
 magnet:?xt=urn:btih:B4579B79FFF0BEF780D6890E06C9E3E215AE4D3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +79,8 @@ Spanch Icons Pack
 ```bash
 magnet:?xt=urn:btih:DA96D9B85944BFCA2DADF202CD5518ED66CF49BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +106,8 @@ magnet:?xt=urn:btih:DA96D9B85944BFCA2DADF202CD5518ED66CF49BD
 magnet:?xt=urn:btih:BBC9B627CAB561C3556BE5CADFC8D009F6C228EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +131,8 @@ magnet:?xt=urn:btih:BBC9B627CAB561C3556BE5CADFC8D009F6C228EA
 ```bash
 magnet:?xt=urn:btih:BBEF8C2DB0E26CE7E74D7686E2CBE78AB3A9FDB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +158,8 @@ Digital Art (26.09.2012)
 magnet:?xt=urn:btih:716068FB7D09F1F29CF4DDD1FDB50BC5B3659805
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +184,8 @@ magnet:?xt=urn:btih:716068FB7D09F1F29CF4DDD1FDB50BC5B3659805
 magnet:?xt=urn:btih:DB0785B108CBC51435F0F37E170902F6700BB767
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +209,8 @@ magnet:?xt=urn:btih:DB0785B108CBC51435F0F37E170902F6700BB767
 ```bash
 magnet:?xt=urn:btih:547CF783B2568C155EB1D2D1A3864C1B6F67ED5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +237,8 @@ magnet:?xt=urn:btih:547CF783B2568C155EB1D2D1A3864C1B6F67ED5D
 magnet:?xt=urn:btih:361680569FE950D0FC78C869AB8BBA8849405156
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +262,8 @@ magnet:?xt=urn:btih:361680569FE950D0FC78C869AB8BBA8849405156
 ```bash
 magnet:?xt=urn:btih:ACEA3D920A315362E93F6FBCFF8156929D38FEFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +289,8 @@ Metropolitan Museum Of Art - European Paintings p.1
 magnet:?xt=urn:btih:3E4AB2938118392CDFB8F48B0EC7DB9E898E51EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +314,8 @@ magnet:?xt=urn:btih:3E4AB2938118392CDFB8F48B0EC7DB9E898E51EE
 ```bash
 magnet:?xt=urn:btih:20E6651A09850BB9532F99A15A7E04282783BBAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +341,8 @@ magnet:?xt=urn:btih:20E6651A09850BB9532F99A15A7E04282783BBAE
 magnet:?xt=urn:btih:F40F5395574939E93C0AEC60B04147546ED4BDC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +366,8 @@ magnet:?xt=urn:btih:F40F5395574939E93C0AEC60B04147546ED4BDC2
 ```bash
 magnet:?xt=urn:btih:FDB00EF3DB2B011B3EEFE122DCCDBA1EE93047F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +393,8 @@ Metropolitan Museum Of Art - European Paintings p.1
 magnet:?xt=urn:btih:FF8671817B329CE63B571142CF91198A5D6F8DA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +418,8 @@ magnet:?xt=urn:btih:FF8671817B329CE63B571142CF91198A5D6F8DA5
 ```bash
 magnet:?xt=urn:btih:FBE8B976C3BB57EBB680619042B4CAF2C4FD7EAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +448,8 @@ Pin-Up Art
 magnet:?xt=urn:btih:0C3153B16E3F7A8A1DF222CDBF6D8255ECA4FBC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +473,8 @@ Artworks by Digital Artists (23.09.12)
 ```bash
 magnet:?xt=urn:btih:B1AA274D8CA10854EAC36DDBF08F16AC9556D9EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +500,8 @@ Geoffroy Thoorens
 magnet:?xt=urn:btih:5082D27B82BD04A646CBFA94453D1BD588459B10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +525,8 @@ magnet:?xt=urn:btih:5082D27B82BD04A646CBFA94453D1BD588459B10
 ```bash
 magnet:?xt=urn:btih:A6C86A44C944D3F668E844967FD834028D13FB61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +552,8 @@ magnet:?xt=urn:btih:A6C86A44C944D3F668E844967FD834028D13FB61
 magnet:?xt=urn:btih:5AF9E6C7FD07FBDF96D75484CA1F74EEBB7DE202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +577,8 @@ magnet:?xt=urn:btih:5AF9E6C7FD07FBDF96D75484CA1F74EEBB7DE202
 ```bash
 magnet:?xt=urn:btih:2A5B8462E8CE0EA2C67A6367A8EEE2F9D28A9784
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +604,8 @@ magnet:?xt=urn:btih:2A5B8462E8CE0EA2C67A6367A8EEE2F9D28A9784
 magnet:?xt=urn:btih:C19EF3C2F2D2688B52D8187866B48264DA0216E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +629,60 @@ magnet:?xt=urn:btih:C19EF3C2F2D2688B52D8187866B48264DA0216E6
 ```bash
 magnet:?xt=urn:btih:757150A7CFBF1636124C53AD89282418039F8279
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942395   (455445) от 30.09.2015
+
+Обои - Beautiful Autumn HD Wallpapers Set 4 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние обоиФормат: JPGРазрешение файлов: 1920x1200 - 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC0F36852B6EFAB8EB38139299F21E7824D1630B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942397   (455601) от 30.09.2015
+
+Обои - Коты и кошки 7 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои с котами и кошкамиФормат: JPGРазрешение файлов: 1680x1050 - 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C586A7F61B58068B9FCFFAEE3A5F07C9119E2349
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

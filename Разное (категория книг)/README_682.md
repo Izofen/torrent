@@ -1,3 +1,29 @@
+###  Публикация: 753644   (936998) от 05.02.2014
+
+Ольга Романова | Соя против диабета и других заболеваний (2010) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Сегодня продукты из сои продаются в каждом магазине. Из них можно приготовить множество замечательных, вкусных блюд. Однако нужно разобраться, насколько все-таки полезна соя и стоит ли заменять ею натуральные продукты. Соя обладает целым рядом полезных свойств, она помогает при различных заболеваниях. Однако есть и индивидуальные противопоказания, при которых лучше исключить ее из своего рациона. Прочитав книгу, вы узнаете о составе и свойствах сои, о ее влиянии на организм человека, а также научитесь готовить вкуснейшие блюда из соевых продуктов.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55A26F7A58542D3E3D7AD5FFDCB7368E6040EDE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984858   (937014) от 10.02.2016
 
 Уильям Блум | Смертоносный экспорт Америки – демократия (2014) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:0491313A2320752918E4193A410EB762126FB0F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:0491313A2320752918E4193A410EB762126FB0F8
 magnet:?xt=urn:btih:71D345110F28B619677A1DC908407DDD26431F3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:71D345110F28B619677A1DC908407DDD26431F3E
 magnet:?xt=urn:btih:E830E71C98CC20196DF83CA6661B28A3BDDADCB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:E830E71C98CC20196DF83CA6661B28A3BDDADCB2
 ```bash
 magnet:?xt=urn:btih:373D92795B02F0AF313B00831D097FE33A1D1E10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:373D92795B02F0AF313B00831D097FE33A1D1E10
 magnet:?xt=urn:btih:B4F81B40B01D7E2822C630D5712771F312DC98E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:B4F81B40B01D7E2822C630D5712771F312DC98E1
 ```bash
 magnet:?xt=urn:btih:BC34EE61C90D309A52328AEE99DE70BC81E9C9B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:BC34EE61C90D309A52328AEE99DE70BC81E9C9B7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:BC34EE61C90D309A52328AEE99DE70BC81E9C9B7
 ```bash
 magnet:?xt=urn:btih:B8E89157F49BB3D287B7CE5DAE89E2736F04DD7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:B8E89157F49BB3D287B7CE5DAE89E2736F04DD7B
 magnet:?xt=urn:btih:D0804EF4F57ED5B1D7C742FA2E4BF3EFED066219
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:D0804EF4F57ED5B1D7C742FA2E4BF3EFED066219
 ```bash
 magnet:?xt=urn:btih:55AB443324627D9AD7975C93FCFB8F03FF3B6288
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:55AB443324627D9AD7975C93FCFB8F03FF3B6288
 magnet:?xt=urn:btih:EE19659BDE6A39207430897521F47BB759E84334
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:EE19659BDE6A39207430897521F47BB759E84334
 ```bash
 magnet:?xt=urn:btih:C7F36D161C599EB3E69720C2C9B0FFD497549308
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:C7F36D161C599EB3E69720C2C9B0FFD497549308
 magnet:?xt=urn:btih:7F92F9A7858DCEF6963BEB5C363A47D9678904A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:7F92F9A7858DCEF6963BEB5C363A47D9678904A2
 ```bash
 magnet:?xt=urn:btih:B64B0B899A5A0A597EBA4596D7446248C6F5A03C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:B64B0B899A5A0A597EBA4596D7446248C6F5A03C
 magnet:?xt=urn:btih:63DB67A5AAEC97988D46ACCBD28EEBA1EA7F6A6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:63DB67A5AAEC97988D46ACCBD28EEBA1EA7F6A6D
 ```bash
 magnet:?xt=urn:btih:420AE05811EABCD87D3DBB0BAB0363D103171FBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:420AE05811EABCD87D3DBB0BAB0363D103171FBD
 magnet:?xt=urn:btih:79EF1B52F165CBB25ED5FE61773F924D59A3E37F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:79EF1B52F165CBB25ED5FE61773F924D59A3E37F
 ```bash
 magnet:?xt=urn:btih:40CC0948DE2E360B8640BDD918F2CACDB91C92AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:40CC0948DE2E360B8640BDD918F2CACDB91C92AE
 magnet:?xt=urn:btih:375E4177D66C4F341D409FA451E1110B02F00D20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:375E4177D66C4F341D409FA451E1110B02F00D20
 ```bash
 magnet:?xt=urn:btih:5815821D47013035CE672956A9E237F3ACEAF5D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:5815821D47013035CE672956A9E237F3ACEAF5D2
 magnet:?xt=urn:btih:9AE867E23E6BF2AFFDFD1434DCEE77F22B6CC0A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:9AE867E23E6BF2AFFDFD1434DCEE77F22B6CC0A1
 magnet:?xt=urn:btih:579CA387CC5DFAB6D46F3082FD65AF3366DA87E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:579CA387CC5DFAB6D46F3082FD65AF3366DA87E6
 ```bash
 magnet:?xt=urn:btih:B9A4E5CCA694D391A752361D95A51653040F1E66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:B9A4E5CCA694D391A752361D95A51653040F1E66
 magnet:?xt=urn:btih:111CC97FE34743F8A2D24D859B2D423AC9DE62DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,32 +677,7 @@ magnet:?xt=urn:btih:111CC97FE34743F8A2D24D859B2D423AC9DE62DC
 magnet:?xt=urn:btih:97374EE068D3ADFFA62B27A13BA48E2116551F2D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984663   (938032) от 09.02.2016
-
-Игорь Манн и др. | Согласовано! Как повысить доходы компании, подружив продажи и маркетинг (2016) [FB2, EPUB, DOCX]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая книга о способах разрешения конфликтов между продажами и маркетингом. От авторов суперхитов "45 татуировок менеджера" и "Номер 1".
-
-По мнению Игоря Манна, в 90% российских компаний есть конфликт между маркетингом и продажами. От такого конфликта страдают и маркетинг, и продажи, и компания в целом.
-(   Читать дальше...   )Жанр: БизнесФормат: FB2, EPUB, DOCX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73349E9A357B8634F1856E7F06F5125C076010F9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

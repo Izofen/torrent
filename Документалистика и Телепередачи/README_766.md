@@ -1,3 +1,29 @@
+###  Публикация: 1441061   (1038001) от 20.01.2021
+
+Галактики / Galaxies (2017-2019) WEBRip [H.264/2160p] (серии 1-4)
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038001.jpg" />
+</div>
+
+
+###  Подробнее
+
+В нашей собственной галактике есть что-то увлекательное, даже если мы всё ещё не можем смотреть на неё сверху. Для меня центральная часть млечного пути - это самый зрелищный вид ночного неба. Это то, что вы можете чётко видеть невооруженным глазом, когда находитесь вдали от городских огней. Это зрелище, которое позволяет вам задаться вопросом о том, насколько мы (   Читать дальше...   )Производство: ФранцияЖанр: Документальный, видовойРежиссер: Адриан МодуйтПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:38+00:04:49+00:05:29+00:03:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5919C9F50F880A3A9D871988607211E63D8DB7D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441060   (1038004) от 20.01.2021
 
 Фантастический полёт / Flyin’ Fancy (2021) WEBRip [H.264/2160p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:D49FC1D6B2D3D004FF8F3B7A580B089D0D4CADD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:D49FC1D6B2D3D004FF8F3B7A580B089D0D4CADD0
 magnet:?xt=urn:btih:67F93EE99140AF862D394502BAC083B57307AA58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:67F93EE99140AF862D394502BAC083B57307AA58
 ```bash
 magnet:?xt=urn:btih:35AFF6AE15DB2F4AE25592DD77D0A4C68DACD545
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:35AFF6AE15DB2F4AE25592DD77D0A4C68DACD545
 magnet:?xt=urn:btih:CD033A41817FFD531CC1146AE1E70625F7F32756
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:CD033A41817FFD531CC1146AE1E70625F7F32756
 magnet:?xt=urn:btih:AA8A7C26AB2ACCE3F692ECFFB4ECA840B189DF3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +174,8 @@ magnet:?xt=urn:btih:AA8A7C26AB2ACCE3F692ECFFB4ECA840B189DF3D
 ```bash
 magnet:?xt=urn:btih:18F49A340C1C97C3B339F7E182F340D98D128FD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:18F49A340C1C97C3B339F7E182F340D98D128FD7
 magnet:?xt=urn:btih:C28DFB2E71E029D8A44EF9069B67D0CC1142DBB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:C28DFB2E71E029D8A44EF9069B67D0CC1142DBB9
 magnet:?xt=urn:btih:386F7286605B97E5411A2B250DDA57632FE9205E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:386F7286605B97E5411A2B250DDA57632FE9205E
 ```bash
 magnet:?xt=urn:btih:1E3633BE4AF680E6BD9332CA00777D1277A184C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:1E3633BE4AF680E6BD9332CA00777D1277A184C9
 magnet:?xt=urn:btih:8C7739B0C3B10B695CFC991AF92EC9AB144B882C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:8C7739B0C3B10B695CFC991AF92EC9AB144B882C
 ```bash
 magnet:?xt=urn:btih:5110908356379CB81C72FDA5EE6751F13B5BB691
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:5110908356379CB81C72FDA5EE6751F13B5BB691
 magnet:?xt=urn:btih:D86237503D5672C1DF66ACAA83D18395C85523BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:D86237503D5672C1DF66ACAA83D18395C85523BD
 ```bash
 magnet:?xt=urn:btih:1FEA2B7319A2EA1C9C75F57B287CA3D7EE035D89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:1FEA2B7319A2EA1C9C75F57B287CA3D7EE035D89
 magnet:?xt=urn:btih:0B9C7F0B091AE3F305BB1530B7BBAF01E2CB5C80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:0B9C7F0B091AE3F305BB1530B7BBAF01E2CB5C80
 ```bash
 magnet:?xt=urn:btih:4C18FF4EC251F1B3B020A42ECFDAD9233E2AC566
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:4C18FF4EC251F1B3B020A42ECFDAD9233E2AC566
 magnet:?xt=urn:btih:7E00433FF1BD9B6716F121D785A0F70274B76971
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:7E00433FF1BD9B6716F121D785A0F70274B76971
 ```bash
 magnet:?xt=urn:btih:C1C4E40470F439A3F8BC20B27CB5683F02DF5975
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:C1C4E40470F439A3F8BC20B27CB5683F02DF5975
 magnet:?xt=urn:btih:36898F695076F9DFFA2D3A897CE1BF3CDD9F5D91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:36898F695076F9DFFA2D3A897CE1BF3CDD9F5D91
 ```bash
 magnet:?xt=urn:btih:AF9475A7A79BC235A80819CA356F0AACE3F5B39E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:AF9475A7A79BC235A80819CA356F0AACE3F5B39E
 magnet:?xt=urn:btih:1D9B7FB7D893F3043EE7FDE26859938FD6CC67D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:1D9B7FB7D893F3043EE7FDE26859938FD6CC67D2
 ```bash
 magnet:?xt=urn:btih:6BFBFD6227017D49993D6C5768BCC33DF0BD76E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:6BFBFD6227017D49993D6C5768BCC33DF0BD76E1
 magnet:?xt=urn:btih:BA9A5A7CD54879AF1B3CCE6562F35BFA895E78ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:BA9A5A7CD54879AF1B3CCE6562F35BFA895E78ED
 ```bash
 magnet:?xt=urn:btih:0EF630F0CABC011D831A9BF515CE36FE8187893A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:0EF630F0CABC011D831A9BF515CE36FE8187893A
 magnet:?xt=urn:btih:D0DEEB4A98B7FA299A5C8E44259A093299B22F61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,29 +671,7 @@ magnet:?xt=urn:btih:D0DEEB4A98B7FA299A5C8E44259A093299B22F61
 magnet:?xt=urn:btih:CB3C6CD2AF167210C826F4771C326F157B7E369C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440975   (1038287) от 19.01.2021
-
-Агра / Agra (2018) WEBRip [VP9/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Агра, Индия, славится множеством удивительных архитектурных шедевров, три из которых внесены в список Всемирного наследия ЮНЕСКО: Тадж-Махал, Форт Агра и Фатехпур Сикри. Это видео охватывает самые известные памятники Агры.Производство: ИндияЖанр: Документальный, видовойРежиссер: Милош КитховичПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47014D47B8AB77969E27BB8D5FC985CA01839383
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

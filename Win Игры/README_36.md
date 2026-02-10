@@ -19,6 +19,8 @@ Who's at the door? (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 magnet:?xt=urn:btih:7CB6150D6637EE6CC26F939B344E5E72A337DFBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ RimWorld (2018) [Ru/Multi] (1.6.4528/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2C355C2A317E5DC3F0C647BFC888CF7D5BACC488
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dust Raiders - это стратегия в декорациях суровой 
 magnet:?xt=urn:btih:072C486318BBA0BFA4AC9EAE04FBFE272CE3E429
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Abiotic Factor - это научный экшен с видом от перво�
 ```bash
 magnet:?xt=urn:btih:FBC9F8A2C657AA3054FA090FBD08E9E02A664AEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Abiotic Factor - это научный экшен с видом от перво�
 magnet:?xt=urn:btih:0A50BB69A02BF4FFFE6ACEEAD304342CF895E258
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Abiotic Factor - это научный экшен с видом от перво�
 ```bash
 magnet:?xt=urn:btih:EFCA801CF6F63010881957FB2DD7D496C7175434
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Animal Shelter (2022) [Ru/Multi] (1.3.19-38.257/dlc) Repack FitGirl
 magnet:?xt=urn:btih:6F51CFEC704AE2CE0E31ADEE2C221243053BB294
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Plucky Squire - это очаровательная экшен-адвенч�
 ```bash
 magnet:?xt=urn:btih:BF7310D232832288C2A5D2AB558883CAE843BE1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Jacksmith: Weapons and Warriors (2025) [En] (1.0.1) Repack Necros1404
 magnet:?xt=urn:btih:680474BF470120963F220468C0580E561D2B241F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Inayah - Life after Gods (2025) [Ru/Multi] (1.0.5) License GOG
 ```bash
 magnet:?xt=urn:btih:285A9CD8195015A3D40A312B8A6048F24A811D14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Rangers in the South - это пиксельный экшн-рогалик, 
 magnet:?xt=urn:btih:D4C7228845C99BF5AA434C7784DE1BE9C9F06BD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Bloodshed - это захватывающий сплав элементов уп
 ```bash
 magnet:?xt=urn:btih:301FA0770A1D1A497127820F2E2E4E30903996A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Solium Infernum - увлекательная пошаговая стратеги
 magnet:?xt=urn:btih:410327EEA79DEAD0833808776F7B1E00778AC517
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Dungeons 4 - это фэнтезийная стратегия в реально�
 ```bash
 magnet:?xt=urn:btih:5A17B19EBE555F22A794FFC90A5817EFA8A324F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Them and Us - классический хоррор на выживание с �
 magnet:?xt=urn:btih:3BFC974F624146537B3FBF24C30908770802B7A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Cyberpunk 2077 приключенческая ролевая игра, дейс�
 ```bash
 magnet:?xt=urn:btih:C9D3921BF7017490C74D546C3D0FD6F1E0694422
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Who's at the door? (2025) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:4D31EDE953341080D64AB1C224BC6CEBDD1B4C77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.6.2.2489/dlc) Repack
 ```bash
 magnet:?xt=urn:btih:80DEF5F784906EE317D1A1D29D6C20C4D9F5A4D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Call to Arms - Gates of Hell: Ostfront – стратегия в реально�
 magnet:?xt=urn:btih:C7046A01CE1EF9877EC2CC7D8F8380BE76A631A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Taxi Life: A City Driving Simulator (2024) [Ru/Multi] (1.17.30088/dlc) Repack Le
 ```bash
 magnet:?xt=urn:btih:AC1FF74C7C9777CECFA52F57DC012C2C98681706
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Submersed 2 - The Hive (Улей) – это научно-фантастичес
 magnet:?xt=urn:btih:1121CFF5C5C20092637109A990BAA63E9254CD8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Grim Dawn (2016) [Ru/Multi] (1.2.1.6/dlc) Repack Let'sРlay [Complete Collection
 ```bash
 magnet:?xt=urn:btih:C12A4D82CD935960356DCE4CF677FCEFBD14A79E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Kingdom Ascension - это средневековая военная страт�
 magnet:?xt=urn:btih:AF95FFD0AE10EA4AF09A457575BFFFEC1A0C4944
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Unfinished Business - это новое самостоятельное прик�
 ```bash
 magnet:?xt=urn:btih:837A54AB11914610173A116768CD5B519140CFA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Strike Mission (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 magnet:?xt=urn:btih:E5E954A06A8511A35F4C61F9452760D572500A82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Xeno Rangers (2025) [Ru/Multi] (1.0.19B) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A865B98E5459FB83EF6579A991FDE8F73BF18198
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

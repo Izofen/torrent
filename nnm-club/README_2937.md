@@ -19,6 +19,8 @@ Morpheus [Ru] (P) 1998
 magnet:?xt=urn:btih:9F6CDCBA1F130F2931263C867D5C6DDFEA6043CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:9F6CDCBA1F130F2931263C867D5C6DDFEA6043CD
 magnet:?xt=urn:btih:9C075EB0CE03139CA777CF847CE071FE6EAFDDB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:9C075EB0CE03139CA777CF847CE071FE6EAFDDB7
 ```bash
 magnet:?xt=urn:btih:760FFFEDB4C193C2E52A09DA3969F5FB3F0590C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:760FFFEDB4C193C2E52A09DA3969F5FB3F0590C0
 magnet:?xt=urn:btih:5B3A0D0A80AD225CF9D643999645C3135A185076
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:5B3A0D0A80AD225CF9D643999645C3135A185076
 ```bash
 magnet:?xt=urn:btih:83967665FC3EBF901361F5FF3584F3FDC513D0CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ BBC: Век эгоизма. Часть 4 – Вся власть Хомячка�
 magnet:?xt=urn:btih:356092D8AF308F04D3F31E970C78BA97E4E1EFF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:356092D8AF308F04D3F31E970C78BA97E4E1EFF3
 ```bash
 magnet:?xt=urn:btih:799D97C2420995469F29F1C711E2A1124DA7AF1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Enable decoding of indexed textures (using (   Читать дальше...   )
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Enable decoding of indexed textures (using (   Читать дальше...   )
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Happy Chef / Веселый повар (L) [Ru] 2012
 magnet:?xt=urn:btih:A94CE61120DA497FFCE5A5BD5F8D581778F09E0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Adriana Balboa - Hommages (2004) [MP3|320 kbps]<Classical, Guitar>
 ```bash
 magnet:?xt=urn:btih:82EECB47E149EF5A8FE1F47D2FA0576B13F49861
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:82EECB47E149EF5A8FE1F47D2FA0576B13F49861
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:82EECB47E149EF5A8FE1F47D2FA0576B13F49861
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ CD 1.
 magnet:?xt=urn:btih:9329039E6D10EC026E8EC51F30E7283A4DC282B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ Witchaven [En] (RePack) 1995 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ Witchaven [En] (RePack) 1995 | Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ Witchaven [En] (RePack) 1995 | Pilotus
 ```bash
 magnet:?xt=urn:btih:99079C33A314E959C93EFBB6DABEAF3F32056BB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ The Cranberries - Roses (2012) [WavPack |Lossless|image + .cue]<Alternative>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ ClearOS - это комплексное решение для организац
 ```bash
 magnet:?xt=urn:btih:BD4864A0920AFC220EEFB507B4837F08E393326D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ PCSX2 SVN является открытым исходным кодом Sony Pla
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ PCSX2 SVN является открытым исходным кодом Sony Pla
 ```bash
 magnet:?xt=urn:btih:AA5B96AFBDBA2ECBFE4BCB9DBE263DAFFFF7FD50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:AA5B96AFBDBA2ECBFE4BCB9DBE263DAFFFF7FD50
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ VKontakteDJ – приложение для поиска, воспроизвед
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ VKontakteDJ – приложение для поиска, воспроизвед
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ VKontakteDJ – приложение для поиска, воспроизвед
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ VKontakteDJ – приложение для поиска, воспроизвед
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

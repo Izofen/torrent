@@ -19,6 +19,8 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.272) Scene Razor 1911
 magnet:?xt=urn:btih:70A7E86A01EA4E1F8603C082AA2A121C13F0FC5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Resident Evil: Operation Raccoon City - это командный шутер, р
 ```bash
 magnet:?xt=urn:btih:AC61222CADD212FECD63C3B71F1B8BED1E5F9BB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (1.0.0.0/dlc) Repack FitGirl [Deluxe
 magnet:?xt=urn:btih:E6C1FCFD3C71AE2DD52160A0D3EEC777DB945A7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.6-404-504czj3/dlc) Repack Wante
 ```bash
 magnet:?xt=urn:btih:064D824EB6C9F9DCC2E30F5462EB36D47E2F54BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Crime Boss Rockay City (2023) [Ru/Multi] (1.0.12.0/dlc) Repack FitGirl
 magnet:?xt=urn:btih:2D814A4704C894C6DD8CAC675A4BF6253A1B3CC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Unity of Command II (2019) [Ru/Multi] (Update 29/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3E1CA48DA8D4DF19E70F0DDF2B16B48142F3D421
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Don't Be Afraid 2 - хоррор с видом от первого лица и �
 magnet:?xt=urn:btih:C770446D6B8AFE53365B5C94CC39B48D50E9F76A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Shop Simulator: Supermarket (2024) [Ru/Multi] (1.0.3.1) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:DF2D1541BFB284CC6375D65C5CA05A7482FF53B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Frontier Hunter: Erza's Wheel of Fortune совмещает элементы п�
 magnet:?xt=urn:btih:E196EDD231278FCE341635552EE4CFE183A1FED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Sofie: The Echoes (2024) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B4D2A26281E80A0DE4D656A0EFEA32A1B9DA5607
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Subnautica (2018) [Ru/Multi] (Build 71288) Repack Other s
 magnet:?xt=urn:btih:732543A42A37E8DAC793FEDA0EBA7507341A5DA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Blockbuster Inc. погружает вас в самое сердце Голли
 ```bash
 magnet:?xt=urn:btih:ECAF636EA73BE0F47D065A2FB719CEC385CADDD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Riot Operator - симулятор сдерживания массовых бе�
 magnet:?xt=urn:btih:62464752ED8E11EB19D7688FBF48E37C8C6B06D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Jujutsu Kaisen: Cursed Clash (2024) [Multi] (20240925/dlc) Scene Tenoke [Ultimat
 ```bash
 magnet:?xt=urn:btih:ED1BD19BA6075D7E378518938E5999C78D5E44C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:ED1BD19BA6075D7E378518938E5999C78D5E44C1
 magnet:?xt=urn:btih:C2B2E5C0B3EBAED5D9D95666ADA64D3D816CC10A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Deadly Days - уникальная стратегическая игра в ан
 ```bash
 magnet:?xt=urn:btih:214E9A78A5CC1E016C1023D99744ED9255767E6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Brotato (2022) [Ru/Multi] (1.1.3.0/dlc) Repack seleZen
 magnet:?xt=urn:btih:071353CA34950BE0AB109AB1B81DF2C52D0BD409
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Don't Be Afraid 2 - хоррор с видом от первого лица и �
 ```bash
 magnet:?xt=urn:btih:56EB4B0F835CCCEDA1F2B6982C2C2FAAF0D6088B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:56EB4B0F835CCCEDA1F2B6982C2C2FAAF0D6088B
 magnet:?xt=urn:btih:F1C5C7ABB04CD09811FDF0C62E5B38B9452E1467
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Red Dead Redemption - компьютерная игра в жанре action-adv
 ```bash
 magnet:?xt=urn:btih:D3704FF7FE4CD0BB4A9E4CEDA67A8B5C1B67432F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Connection: The Nightmare Within (2024) [Ru/Multi] (Build 16187772) Repack FitGi
 magnet:?xt=urn:btih:DA4B0AF386A1742E9BDD6F6DDF42418AF587E135
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Crime Boss: Rockay City (2023) [Ru/Multi] (1.0.12.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:4027DEEB56169C35701D193BBAED0F9C4070DFDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Moon Mystery приглашает игроков в космическую од�
 magnet:?xt=urn:btih:EAA90CF2C87834186BB5D6B84A1D8E3909A90692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Red Dead Redemption (2024) [Ru/Multi] (1.0.0.82) Repack West4it
 ```bash
 magnet:?xt=urn:btih:1E175DCA592B1471B8C8EF1978EE197779BEE543
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Call of the Wild: The Angler (2022) [Ru/Multi] (2.0/dlc) Scene Rune
 magnet:?xt=urn:btih:94C4A087F48D6290842A37C7212D0BC21E001453
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Knock on the Coffin Lid - ролевая игра с элементами стр
 ```bash
 magnet:?xt=urn:btih:123352ABE9BFF159C955048FC7D76D0F66D46251
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

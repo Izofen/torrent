@@ -21,6 +21,8 @@ r3dfox — это форк веб-браузера с открытым исхо�
 magnet:?xt=urn:btih:109C4B655E625AB8D340566E6775FFC63EF7B8C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ MAX Desktop 25.14.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:508893D7B79DA24B5416991D48A759EB1CB4BB50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:508893D7B79DA24B5416991D48A759EB1CB4BB50
 magnet:?xt=urn:btih:25A8B384E25C489AB11DEBB33F860645BC5A65FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:25A8B384E25C489AB11DEBB33F860645BC5A65FB
 ```bash
 magnet:?xt=urn:btih:CE71F8B5A0AEBE1E49F3CF75C3C3889588964E50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:84790B4C4815886EF55804A113619F3DF4DB72BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ MassTube — очень простая в использовании прогр�
 ```bash
 magnet:?xt=urn:btih:76204F66377A62D944212D4D93B685141A9A6A4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:76204F66377A62D944212D4D93B685141A9A6A4A
 magnet:?xt=urn:btih:CC55845567E1CA34EF4E73E25F4CF4A92AEE5ADB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:D2D7A5AC9DB73E8E600B2EA2F2955D4E631F4FC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ MassTube — очень простая в использовании прогр�
 magnet:?xt=urn:btih:FA12390314269E6F78048AB592399438997D29D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ TraceRouteOK 3.33 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D34E37914612667C88BE42549DABBFE818B937B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:D34E37914612667C88BE42549DABBFE818B937B9
 magnet:?xt=urn:btih:7EFB08E102A82210C0DAE11323AD4C260B1E4430
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Blue Iris представляет собой профессиональное �
 magnet:?xt=urn:btih:B6DA5E909F6023126D1186DFB1A6A808E274DE89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ MyPublicWiFi - бесплатная программа, которая прев�
 ```bash
 magnet:?xt=urn:btih:E55B2369D9E1F03B52C03ACF23CC4D00938282F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Nmap — (Network Mapper) — мультиплатформенное прило�
 magnet:?xt=urn:btih:3CDC18507AF065A1CA21B7A4EC5356080657E2D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ WebBrowserPassView - небольшая программа для восстан
 ```bash
 magnet:?xt=urn:btih:B1D5D5C39CF32750013A7AD877F28F8B0DA99C9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Torrent Merkle Root Reader (TMRR) 2.0g Release [Ru/En]
 magnet:?xt=urn:btih:02409440A4882E123181844468E08BD42306C9AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ ClipGrab - программа для скачивания и конвертир�
 ```bash
 magnet:?xt=urn:btih:A2DD3F84D37E9AF610E77B67CE476BD2BC481AFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ EMCO Network Software Scanner - инструмент для выполнения
 magnet:?xt=urn:btih:729748C815530314D0D4FA060E8FC86B0376A976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:729748C815530314D0D4FA060E8FC86B0376A976
 ```bash
 magnet:?xt=urn:btih:2509E16565EAF42C8E5A9C307B4EFD82EBFA39D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Bootstrap Studio - мощная программа для создания кр�
 magnet:?xt=urn:btih:7EA45501379447D1C11DC6E411543DBB5ADC5297
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 ```bash
 magnet:?xt=urn:btih:DCFB0449106CF4C4E4B631FFABB17EB6D75B1ED8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ ByClick Downloader (бывший YouTube By Click) - отличный и удо�
 magnet:?xt=urn:btih:DC405BCF88FD29E328982A96A01BB44AA1AD5515
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:F329F220106DB31A32F0A7A93A23DCC5E7DE61B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ AnyDesk 9.6.3 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:2C4CE550B3839ACB13A7637E4EC9D05096004128
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ ScreenPic - это самый простой и легкий способ дел
 magnet:?xt=urn:btih:EAE45C529C3FFD1E5AF09D01123C1685AFED8518
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Deluge - полнофункциональный кросс-платформен�
 ```bash
 magnet:?xt=urn:btih:727C9753605D8DCCBD9376BDC315874D92CFC482
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

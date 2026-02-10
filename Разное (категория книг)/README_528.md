@@ -1,3 +1,31 @@
+###  Публикация: 1275685   (789900) от 12.01.2019
+
+А. М. Арго | Своими глазами. Книга воспоминаний (1965) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Абрам Маркович Арго — один из старейших советских поэтов-сатириков, мастер веселого и злого куплета, пародии. Он писал для театра, эстрады и цирка, художественной самодеятельности, переводил на русский язык классиков европейской поэзии и поэтов советских национальных республик.
+
+А. М. Арго встречался с выдающимися деятелями советской культуры и искусства, был очевидцем (   Читать дальше...   )Жанр: История, автобиография, поэзия, искусство, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4823A350C193D665399925BA2A2F14D1C44F761
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275699   (789904) от 12.01.2019
 
 Н. Д. Телешов | Записки писателя. Рассказы о прошлом и воспоминания (1950) [PDF]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:777EA37705472EE3AED3F168BBDF44264600A34E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +74,8 @@ magnet:?xt=urn:btih:777EA37705472EE3AED3F168BBDF44264600A34E
 ```bash
 magnet:?xt=urn:btih:51169AE6C034E068D78C9DCE68F760AE715847EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +104,8 @@ magnet:?xt=urn:btih:51169AE6C034E068D78C9DCE68F760AE715847EE
 magnet:?xt=urn:btih:1D57C344A40506BBB8F804116C7E5A829993E59E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +130,8 @@ magnet:?xt=urn:btih:1D57C344A40506BBB8F804116C7E5A829993E59E
 ```bash
 magnet:?xt=urn:btih:74D359E2CB8881B96B73EAA6EC572985E9A2AF3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +158,8 @@ magnet:?xt=urn:btih:74D359E2CB8881B96B73EAA6EC572985E9A2AF3F
 magnet:?xt=urn:btih:F2DFC37E21D8CA07F37AD39B7757AD72D44DB0E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +183,8 @@ magnet:?xt=urn:btih:F2DFC37E21D8CA07F37AD39B7757AD72D44DB0E5
 ```bash
 magnet:?xt=urn:btih:E5AB58A7A5C3822027AB6B611DFE1200ECAFF78C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +210,8 @@ magnet:?xt=urn:btih:E5AB58A7A5C3822027AB6B611DFE1200ECAFF78C
 magnet:?xt=urn:btih:3BEE99D3FDCE1A65021381F3CE9A8D6A2CB1A2D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +235,8 @@ magnet:?xt=urn:btih:3BEE99D3FDCE1A65021381F3CE9A8D6A2CB1A2D5
 ```bash
 magnet:?xt=urn:btih:CD4B21042A82CB28AB39D57DE5BBAF98C89209C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +262,8 @@ magnet:?xt=urn:btih:CD4B21042A82CB28AB39D57DE5BBAF98C89209C6
 magnet:?xt=urn:btih:88FE6925142EAF4CFF548BE344835F5F66ADA218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +288,8 @@ magnet:?xt=urn:btih:88FE6925142EAF4CFF548BE344835F5F66ADA218
 magnet:?xt=urn:btih:105E62383AF5A8F589E706652AA3591FBB5BC16A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +313,8 @@ magnet:?xt=urn:btih:105E62383AF5A8F589E706652AA3591FBB5BC16A
 ```bash
 magnet:?xt=urn:btih:45DC81A35BF023D2593CF8D0D5A54534A4C61049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +341,8 @@ magnet:?xt=urn:btih:45DC81A35BF023D2593CF8D0D5A54534A4C61049
 magnet:?xt=urn:btih:5683E3FCF75F2C2C735BABEC2AEDC8D31D6E6A01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +367,8 @@ magnet:?xt=urn:btih:5683E3FCF75F2C2C735BABEC2AEDC8D31D6E6A01
 magnet:?xt=urn:btih:8886385252AE1BDEAF83BDD99C82510846A61CC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +392,8 @@ magnet:?xt=urn:btih:8886385252AE1BDEAF83BDD99C82510846A61CC2
 ```bash
 magnet:?xt=urn:btih:296B40E418BCAD67FC20B9A29D5E9B79963FFCB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +420,8 @@ magnet:?xt=urn:btih:296B40E418BCAD67FC20B9A29D5E9B79963FFCB7
 magnet:?xt=urn:btih:7F3A66C82BCB8265DD8AA4134965DFDD8F8C144C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +447,8 @@ magnet:?xt=urn:btih:7F3A66C82BCB8265DD8AA4134965DFDD8F8C144C
 magnet:?xt=urn:btih:DD35CE0B40A460CE1285D4D918CBF80CFCDADD55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +472,8 @@ magnet:?xt=urn:btih:DD35CE0B40A460CE1285D4D918CBF80CFCDADD55
 ```bash
 magnet:?xt=urn:btih:DB3F8AE065798B9E3C3E44EAA719EFFD160D5E45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +500,8 @@ magnet:?xt=urn:btih:DB3F8AE065798B9E3C3E44EAA719EFFD160D5E45
 magnet:?xt=urn:btih:CE1D2692776BF213DE972809BDA4B71625A2C0C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +525,8 @@ magnet:?xt=urn:btih:CE1D2692776BF213DE972809BDA4B71625A2C0C3
 ```bash
 magnet:?xt=urn:btih:8A31E1A1BF4D44283C4CEB15F911DC3EC741F9EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +553,8 @@ magnet:?xt=urn:btih:8A31E1A1BF4D44283C4CEB15F911DC3EC741F9EA
 magnet:?xt=urn:btih:D7AD280BA890974B4A957A86CDF092BCF9C4F011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +578,8 @@ magnet:?xt=urn:btih:D7AD280BA890974B4A957A86CDF092BCF9C4F011
 ```bash
 magnet:?xt=urn:btih:41A70F86FA34EAF51B10DEF6D7153BF26114AF9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +605,8 @@ magnet:?xt=urn:btih:41A70F86FA34EAF51B10DEF6D7153BF26114AF9C
 magnet:?xt=urn:btih:003D53936356EAB16B606DD6CE979887CE2B6B9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +630,8 @@ magnet:?xt=urn:btih:003D53936356EAB16B606DD6CE979887CE2B6B9F
 ```bash
 magnet:?xt=urn:btih:240EA90CE02EDC91069DFE53017EF24A31DE242C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +657,8 @@ magnet:?xt=urn:btih:240EA90CE02EDC91069DFE53017EF24A31DE242C
 magnet:?xt=urn:btih:881FB9F7E846D79ED20FEFF6C114243A899CD347
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,30 +683,7 @@ magnet:?xt=urn:btih:881FB9F7E846D79ED20FEFF6C114243A899CD347
 magnet:?xt=urn:btih:FA4852541785F9AD0510D271509C64BDAF02535D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177801   (791170) от 02.06.2020
-
-Л.И. Воробьева (ред.) | Книга о вкусной и здоровой пище (1988) [DJVU]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга — справочное пособие по приготовлению домашней пиши — содержит современные данные науки о питании, полезные сведения о пищевых продуктах, рецепты приготовления закусочных, первых, вторых, сладких блюд и изделий из теста. Специальные разделы отведены домашнему консервированию, а также лечебному и детскому питанию.
-Книга рассчитана на широкий круг читателей. (   Читать дальше...   )Жанр: КулинарияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD7CE3A11DCCD3967A7CC53B940023F1931F7CE6
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

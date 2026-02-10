@@ -1,3 +1,29 @@
+###  Публикация: 760551   (523979) от 14.08.2015
+
+Курт Зонтхаймер | Как нацизм пришел к власти (2009) [DJVU] [UKR]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это книга о немецком опыте истории от конца Первой мировой войны до прихода к власти нацистов. Интерес человечества к событиям тех лет объяснять вряд ли надо – нацистская идеология, а затем практика воплощения идей национал-фашизма стоили человечеству десятков и десятков миллионов людей, убитых, уничтоженных, погибших от голода и болезней. Шаг за шагом автор описывает (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79596DFC88100AE2F486BE7619E6E2D91C4D306A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927838   (523980) от 14.08.2015
 
 Александр Селютин | Полицейская проверка: практические рекомендации адвоката по защите бизнеса (2015) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:3EA7E1E9F0C67622700BE8D23FBE10212D645615
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:3EA7E1E9F0C67622700BE8D23FBE10212D645615
 ```bash
 magnet:?xt=urn:btih:953ECF7C7756DF945007A4F9B30B9B477BA3EE37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:953ECF7C7756DF945007A4F9B30B9B477BA3EE37
 magnet:?xt=urn:btih:5E608337A7FD27D668077F13AA2F2EF2FAD25CE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:5E608337A7FD27D668077F13AA2F2EF2FAD25CE2
 ```bash
 magnet:?xt=urn:btih:24235B233CAC841D5CE7AA9A85ED0DD3AE81BDEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:24235B233CAC841D5CE7AA9A85ED0DD3AE81BDEE
 magnet:?xt=urn:btih:3DF0F83A279BCD47FA033DD9AA2B0780FD768985
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:3DF0F83A279BCD47FA033DD9AA2B0780FD768985
 ```bash
 magnet:?xt=urn:btih:95887FA289AD37AA6AE28331E8FB3790FF39F553
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:95887FA289AD37AA6AE28331E8FB3790FF39F553
 magnet:?xt=urn:btih:A082E5F07B9B5F3C76F4E607682511AF73B097DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:A082E5F07B9B5F3C76F4E607682511AF73B097DD
 magnet:?xt=urn:btih:3609F81937F8509BD14429FF408C5B9BF7D2DFD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:3609F81937F8509BD14429FF408C5B9BF7D2DFD3
 ```bash
 magnet:?xt=urn:btih:E3E7F8A16390317186AD89D6683BCCD856CB0415
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:E3E7F8A16390317186AD89D6683BCCD856CB0415
 magnet:?xt=urn:btih:055780E9FC9800D5E7B901DBDA8E98FCE3FD1358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:055780E9FC9800D5E7B901DBDA8E98FCE3FD1358
 ```bash
 magnet:?xt=urn:btih:79F45170604242FD93C337B2E528BB2A40C8C36E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +340,8 @@ magnet:?xt=urn:btih:79F45170604242FD93C337B2E528BB2A40C8C36E
 ```bash
 magnet:?xt=urn:btih:AF4E2286A5F3E25853480B89734D48397AEB117C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +370,8 @@ magnet:?xt=urn:btih:AF4E2286A5F3E25853480B89734D48397AEB117C
 magnet:?xt=urn:btih:B44BA0A540005D83E3CC178A75CBBA28D1E0A7F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +399,8 @@ magnet:?xt=urn:btih:B44BA0A540005D83E3CC178A75CBBA28D1E0A7F9
 magnet:?xt=urn:btih:06BD89BDF74230C5EBD3B323A98020AF2630DC97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +424,8 @@ magnet:?xt=urn:btih:06BD89BDF74230C5EBD3B323A98020AF2630DC97
 ```bash
 magnet:?xt=urn:btih:ECE1AB3C24B5A178704A5F85264CA7AFAC0001AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +452,8 @@ magnet:?xt=urn:btih:ECE1AB3C24B5A178704A5F85264CA7AFAC0001AB
 ```bash
 magnet:?xt=urn:btih:384FA3738DB71D646928533A5419449BE96C780B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +482,8 @@ Cвященник Сергий Косых (ред.-сост.) и др. | С мо
 magnet:?xt=urn:btih:ABB1C96D87200066C3B86C69F09CE921969AF7F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +507,8 @@ magnet:?xt=urn:btih:ABB1C96D87200066C3B86C69F09CE921969AF7F2
 ```bash
 magnet:?xt=urn:btih:293BB0F143C8130DCDB2B588257DF64D1191D51E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +537,8 @@ magnet:?xt=urn:btih:293BB0F143C8130DCDB2B588257DF64D1191D51E
 magnet:?xt=urn:btih:C35169642284DB7F0CA5E13039EDAF3AC88A4918
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +562,8 @@ magnet:?xt=urn:btih:C35169642284DB7F0CA5E13039EDAF3AC88A4918
 ```bash
 magnet:?xt=urn:btih:4A72A01BDB18BB7892B06E744878B03134A90D19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +591,8 @@ magnet:?xt=urn:btih:4A72A01BDB18BB7892B06E744878B03134A90D19
 magnet:?xt=urn:btih:E31AC1AB1F4DAAA981DB54652BEF7689477EC9A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +617,8 @@ magnet:?xt=urn:btih:E31AC1AB1F4DAAA981DB54652BEF7689477EC9A5
 magnet:?xt=urn:btih:53CFCB76563BB828E32B47099B43DB212B9DA2C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +642,8 @@ magnet:?xt=urn:btih:53CFCB76563BB828E32B47099B43DB212B9DA2C8
 ```bash
 magnet:?xt=urn:btih:98F3FF4BB7859809BFE31AA7637E3A6F84CCD2AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +671,8 @@ magnet:?xt=urn:btih:98F3FF4BB7859809BFE31AA7637E3A6F84CCD2AC
 magnet:?xt=urn:btih:01199AD7B1C0133A4AEEABD9B74C911705E81483
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,31 +699,7 @@ magnet:?xt=urn:btih:01199AD7B1C0133A4AEEABD9B74C911705E81483
 magnet:?xt=urn:btih:8F3CCF66C957630900C77B16B97706AEC879B8AA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053102   (524927) от 17.09.2016
-
-Гуру Мадхаван | Думай как инженер. Как превращать проблемы в возможности (2016) [EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путешествие внутрь умов, проектирующих и создающих наш мир.
-Небоскреб Бурдж-Халифа в Дубае - самое высокое здание в мире - совсем не похоже на программу Microsoft’s Office Suite, а цифровой объемный звук работает не так, как городская телевизионная сеть. Но с точки зрения инженера эти подвиги и достижения человеческого ума имеют много общего.
-Это книга о тех инструментах (   Читать дальше...   )Жанр: Бизнес, МенеджементФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFABD8097672BF44978A372CB03EAB6AB2F8FDE5
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

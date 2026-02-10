@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:AE02CC58574EFE9C0431100D6CB6655940A49BEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:AE02CC58574EFE9C0431100D6CB6655940A49BEB
 ```bash
 magnet:?xt=urn:btih:23E073D23484D61757568B35B75510D9E4440EF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:23E073D23484D61757568B35B75510D9E4440EF8
 magnet:?xt=urn:btih:A8D334653628D4EE8B5F300B42743D59E2931F86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:A8D334653628D4EE8B5F300B42743D59E2931F86
 ```bash
 magnet:?xt=urn:btih:DC8F339F62C6D19F2ED3CA52ED561C051CA3CE9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ NPR - Non-Photorealistic Rendering (нефотореалистичный рен�
 magnet:?xt=urn:btih:D1A0FD79FDD61CD3BB976A4DEF6F74BE27B3D396
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:D1A0FD79FDD61CD3BB976A4DEF6F74BE27B3D396
 ```bash
 magnet:?xt=urn:btih:CD9ED3C0B53E07B9AF5521A341455EF8B8B90B2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:CD9ED3C0B53E07B9AF5521A341455EF8B8B90B2D
 magnet:?xt=urn:btih:7D325AAEF8543D6EBC105ED4EA3A74DA349F79E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Black Hat Go исследует более скрытую сторону поп�
 ```bash
 magnet:?xt=urn:btih:4527C7BE31DA48597C98E4E3EF80A08AF898CA5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ CoolReader — это удобная программа для чтения эл
 magnet:?xt=urn:btih:9A55F7703920331AB13CCE1BCEEA0B1F548A45D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:9A55F7703920331AB13CCE1BCEEA0B1F548A45D2
 ```bash
 magnet:?xt=urn:btih:6BF6311134A9B3569023FA88D4EB1A957E078DA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:6BF6311134A9B3569023FA88D4EB1A957E078DA6
 magnet:?xt=urn:btih:CC2887DB2124B81B6709A8C12182C8E3F4FA1428
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:CC2887DB2124B81B6709A8C12182C8E3F4FA1428
 magnet:?xt=urn:btih:97F0406583DEEB6282F05E5ABF0E0AE1BBD43EFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Kirupa Chinnathambi / Кирупа Чиннатхамби | Javascript Absolute 
 ```bash
 magnet:?xt=urn:btih:D90C8ABBB543CC380D802E3BC83C2593A2269E45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Daryl Wise, Linda Hellfritsch | Секреты экспертов Corel Painter 
 magnet:?xt=urn:btih:556866B95711B299291232BDBEFB1D5C998D8543
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:556866B95711B299291232BDBEFB1D5C998D8543
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:556866B95711B299291232BDBEFB1D5C998D8543
 magnet:?xt=urn:btih:EC7FE07CA60F8A99C926C994F080A0F98E2BF04D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Mark L. Murphy / Марк Л. Мерфи | Elements of Android Jetpack / Эле�
 magnet:?xt=urn:btih:BA1CF845D26F4591006F7938727EF289492A13FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:BA1CF845D26F4591006F7938727EF289492A13FD
 ```bash
 magnet:?xt=urn:btih:17693B033D224D43CCE7E2BC52DF5908CA4F862A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:17693B033D224D43CCE7E2BC52DF5908CA4F862A
 magnet:?xt=urn:btih:DD52D98C3C66990BA5EEF9C4823F41C4E10A7FE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:DD52D98C3C66990BA5EEF9C4823F41C4E10A7FE9
 magnet:?xt=urn:btih:060BA262E7F863500259A7F8D831F749CAC78A3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:060BA262E7F863500259A7F8D831F749CAC78A3B
 ```bash
 magnet:?xt=urn:btih:2B697EB84517042FD85B9AB994209319148B0E0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ Mark L. Murphy / Марк Л. Мерфи | Elements of Android Room / Элеме
 magnet:?xt=urn:btih:74267BB6809B8980FD88B266EEC183322FDF1EE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ Willie Pritchett, David De Smet | BackTrack 5 Cookbook / Рецепты BackTrac
 ```bash
 magnet:?xt=urn:btih:BC923C047735C752E7D58DB2A6A6C095D9A9FD10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:BC923C047735C752E7D58DB2A6A6C095D9A9FD10
 magnet:?xt=urn:btih:EF7A67A2623024147172F86CFC7D4314C4F60B04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ magnet:?xt=urn:btih:EF7A67A2623024147172F86CFC7D4314C4F60B04
 magnet:?xt=urn:btih:6D8B0EE1545E6C384F5B15E16967BC93ABD466F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Mike Wooldridge, Brianna Stuart | Teach Yourself Visually Adobe Photoshop CS6 / 
 ```bash
 magnet:?xt=urn:btih:80D1703ECE1314DA563C6E9D917F279E81FA18D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

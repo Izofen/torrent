@@ -1,3 +1,31 @@
+###  Публикация: 1028719   (688574) от 23.06.2016
+
+С. Скляр (ред.) | 100 загадок древнего мира (2016) [FB2]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древний мир – эпоха, скрытая во мраке тысячелетий. Она таит массу поразительных тайн и невероятных фактов, которым до сих пор не могут дать однозначного толкования. Предлагаем вашему вниманию 100 самых удивительных загадок Древнего мира!
+
+Существовала ли Атлантида? Как были построены величественные египетские пирамиды? Какие тайны скрывает Чичен-Ица, мистический (   Читать дальше...   )Жанр: Загадки и тайны историиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:452CE433AE9363189F93A18010ABF28FAE43238D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028422   (688579) от 23.06.2016
 
 В.П. Бутромеев, В.В. Бутромеев (ред.) | Мир в картинках. Русская еда (2013) [PDF]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:79549CBDDC230F1884980B35C07B40113FAB113E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +75,8 @@ magnet:?xt=urn:btih:79549CBDDC230F1884980B35C07B40113FAB113E
 magnet:?xt=urn:btih:02EE85B8B483F401CF81232AD9C6ACC03420B546
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +103,8 @@ magnet:?xt=urn:btih:02EE85B8B483F401CF81232AD9C6ACC03420B546
 magnet:?xt=urn:btih:9CF87E8D3FE30A67A3B430A33901D4EB4792E3B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +129,8 @@ magnet:?xt=urn:btih:9CF87E8D3FE30A67A3B430A33901D4EB4792E3B5
 ```bash
 magnet:?xt=urn:btih:00C40E2ED3342B1F94D2F600C6E89F77C6B49A50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +159,8 @@ magnet:?xt=urn:btih:00C40E2ED3342B1F94D2F600C6E89F77C6B49A50
 magnet:?xt=urn:btih:BA865B1E54F9B6599D4952497B6BFC8AD369D630
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +186,8 @@ magnet:?xt=urn:btih:BA865B1E54F9B6599D4952497B6BFC8AD369D630
 magnet:?xt=urn:btih:7A88E9D88CEB7068A6B076DF3181A68FD769E264
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +212,8 @@ magnet:?xt=urn:btih:7A88E9D88CEB7068A6B076DF3181A68FD769E264
 magnet:?xt=urn:btih:B9CDA5AECBE658815855E8A0CF90E1491931D5BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +237,8 @@ magnet:?xt=urn:btih:B9CDA5AECBE658815855E8A0CF90E1491931D5BC
 ```bash
 magnet:?xt=urn:btih:C9EF9EA4141D86BAC72650FA6FA0FEE23251932B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +266,8 @@ magnet:?xt=urn:btih:C9EF9EA4141D86BAC72650FA6FA0FEE23251932B
 magnet:?xt=urn:btih:7C9E6839225CB30BD1F87F91FA91C6EE4CB45D5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +292,8 @@ magnet:?xt=urn:btih:7C9E6839225CB30BD1F87F91FA91C6EE4CB45D5A
 magnet:?xt=urn:btih:52A1B4E32FF9959AF832E98595AE0083C5864EB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +317,8 @@ magnet:?xt=urn:btih:52A1B4E32FF9959AF832E98595AE0083C5864EB5
 ```bash
 magnet:?xt=urn:btih:D9B4C0C1521C4430738E66F7B39C0376CD53DCE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +345,8 @@ magnet:?xt=urn:btih:D9B4C0C1521C4430738E66F7B39C0376CD53DCE6
 ```bash
 magnet:?xt=urn:btih:D73E5C6FEA2E10AFA085B705D9253DDA8FD6E74B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +375,8 @@ magnet:?xt=urn:btih:D73E5C6FEA2E10AFA085B705D9253DDA8FD6E74B
 magnet:?xt=urn:btih:29D625E0C1A9BAF2D8EF5B53A41B2DABC3FA5B4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +400,8 @@ magnet:?xt=urn:btih:29D625E0C1A9BAF2D8EF5B53A41B2DABC3FA5B4D
 ```bash
 magnet:?xt=urn:btih:ED90F93F7A79B292869BDBF661D8C8902A0B3F7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +429,8 @@ magnet:?xt=urn:btih:ED90F93F7A79B292869BDBF661D8C8902A0B3F7A
 magnet:?xt=urn:btih:191B8EA00EAF5C3D2D71F9099D5EA7523E1C4676
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +455,8 @@ magnet:?xt=urn:btih:191B8EA00EAF5C3D2D71F9099D5EA7523E1C4676
 ```bash
 magnet:?xt=urn:btih:A02B8013DFF332BF04B5917603E6AAA491DCDAC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +485,8 @@ magnet:?xt=urn:btih:A02B8013DFF332BF04B5917603E6AAA491DCDAC2
 magnet:?xt=urn:btih:C83FED90556596B584889A36398F6A042BF62C88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +511,8 @@ magnet:?xt=urn:btih:C83FED90556596B584889A36398F6A042BF62C88
 ```bash
 magnet:?xt=urn:btih:B720594C4129FF566FB03D1B8234E3ED97AB0420
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:B720594C4129FF566FB03D1B8234E3ED97AB0420
 magnet:?xt=urn:btih:43C3D5A9F22185B55F527BC9BD9A51C63C9E3C2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +565,8 @@ magnet:?xt=urn:btih:43C3D5A9F22185B55F527BC9BD9A51C63C9E3C2B
 ```bash
 magnet:?xt=urn:btih:97F535CC4ED5FD12B47660455DD73BD14C732747
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +592,8 @@ magnet:?xt=urn:btih:97F535CC4ED5FD12B47660455DD73BD14C732747
 ```bash
 magnet:?xt=urn:btih:FBC9553BFEBBF69E8E56497CC2B8D3421888A7F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:FBC9553BFEBBF69E8E56497CC2B8D3421888A7F4
 magnet:?xt=urn:btih:46B333F80AE972465CC1C246E59EE3395653B2CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:46B333F80AE972465CC1C246E59EE3395653B2CF
 magnet:?xt=urn:btih:162EF0F1C41D03844E268715CCD40AAC433752DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +674,8 @@ magnet:?xt=urn:btih:162EF0F1C41D03844E268715CCD40AAC433752DD
 ```bash
 magnet:?xt=urn:btih:13AACD2553524DE7B33CB4F0A8547A5E3FBBF839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,29 +703,7 @@ magnet:?xt=urn:btih:13AACD2553524DE7B33CB4F0A8547A5E3FBBF839
 magnet:?xt=urn:btih:5F3AFA3C60550053636A4B8E530BC0AF83D1D052
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221533   (691368) от 26.04.2018
-
-С. И. Ковалев | Миф об Иисусе Христе (1954) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691368.jpg" />
-</div>
-
-
-###  Подробнее
-
-В брошюре рассматривается происхождение и развитие мифических представлений об основателе христианской религии, показаны их место и роль в рабовладельческом обществе.Жанр: История, политология, мифология, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C435850AA74C85DE1E24F5FC8A9223EE83F49F7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

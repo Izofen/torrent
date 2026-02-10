@@ -1,3 +1,29 @@
+###  Публикация: 1616483   (1036402) от 02.03.2023
+
+Человек и природа: роман длиною в жизнь / A Natural Affair. The Human / Nature Connection (2019) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036402.jpg" />
+</div>
+
+
+###  Подробнее
+
+На протяжении тысячелетий люди чувствовали своё превосходство над растениями и животными Земли. Концепция доминирования и эксплуатации окружающей среды проходит через многие культуры. В наши дни, однако, растёт понимание того, что большинство других форм жизни на планете существуют гораздо дольше, чем мы. Чему мы можем научиться у природы?Производство: Австрия, Terra Mater Factual StudiosЖанр: документальный, познавательныйРежиссер: Сюзанна ЛюммерПеревод: двуголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB910C4BB942AA1E3B0ED607A8041EAD00337CFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616490   (1036425) от 02.03.2023
 
 Обитатели тени / Shadow Cats (2021) HDTVRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:3200964FFA00A072DFB43B7B32EF6C720649D195
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:3200964FFA00A072DFB43B7B32EF6C720649D195
 ```bash
 magnet:?xt=urn:btih:F7F0FF2F457DC9ECD35ADA6FC5FF506E26185B1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:F7F0FF2F457DC9ECD35ADA6FC5FF506E26185B1F
 magnet:?xt=urn:btih:4599CADC79414F2B28A3B8F7008FF181B4C58125
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:4599CADC79414F2B28A3B8F7008FF181B4C58125
 ```bash
 magnet:?xt=urn:btih:DD183C394A91D517B5D38033AC8C36D0200D67D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:DD183C394A91D517B5D38033AC8C36D0200D67D1
 magnet:?xt=urn:btih:26CB0E8F055DF02E6D3BC7C1FF1A0E70699FBFD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:26CB0E8F055DF02E6D3BC7C1FF1A0E70699FBFD3
 ```bash
 magnet:?xt=urn:btih:726531C7BD3033E895C09CA65390619BF19047FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:726531C7BD3033E895C09CA65390619BF19047FA
 magnet:?xt=urn:btih:CFB2D7DDE365365C8E8439F3B603F575182DC8D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:CFB2D7DDE365365C8E8439F3B603F575182DC8D7
 ```bash
 magnet:?xt=urn:btih:BC89D140F473143721C0BBFC6559AD7E142678B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:BC89D140F473143721C0BBFC6559AD7E142678B6
 magnet:?xt=urn:btih:08C1D77FD522E44DA256459E5872413C9C9972AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:08C1D77FD522E44DA256459E5872413C9C9972AA
 ```bash
 magnet:?xt=urn:btih:9B5F4CF316A4D2993444334CDE4BDCF05DFA4172
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:9B5F4CF316A4D2993444334CDE4BDCF05DFA4172
 magnet:?xt=urn:btih:EEB4430E56292E883267240C6BFD03EBE71450F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:EEB4430E56292E883267240C6BFD03EBE71450F1
 ```bash
 magnet:?xt=urn:btih:3407E644856BA5BEF1E4CF5C89AEE1E2702BAC76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:3407E644856BA5BEF1E4CF5C89AEE1E2702BAC76
 magnet:?xt=urn:btih:C3963DAA321990C6F54670642B2033708E7D4BBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:C3963DAA321990C6F54670642B2033708E7D4BBC
 ```bash
 magnet:?xt=urn:btih:1F4DDC0408DE3C3B9D319AA72E56E0CCCAB52F95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:1F4DDC0408DE3C3B9D319AA72E56E0CCCAB52F95
 magnet:?xt=urn:btih:1CB6A1F5F2F7F4C48A1E703CC69F5F76B26512B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:1CB6A1F5F2F7F4C48A1E703CC69F5F76B26512B8
 ```bash
 magnet:?xt=urn:btih:9F317769E0F5D0AA15D86505B9E640A2C423D7A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:9F317769E0F5D0AA15D86505B9E640A2C423D7A2
 magnet:?xt=urn:btih:6C6EE3CA0B76AAB460D446D14426174724F60995
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:6C6EE3CA0B76AAB460D446D14426174724F60995
 ```bash
 magnet:?xt=urn:btih:D046AF4EEC25A811FB3A325040CFAE7AA148B905
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:D046AF4EEC25A811FB3A325040CFAE7AA148B905
 magnet:?xt=urn:btih:701D345D05BBA892C5735D0FDF1714FE7250C0B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +539,8 @@ magnet:?xt=urn:btih:701D345D05BBA892C5735D0FDF1714FE7250C0B5
 ```bash
 magnet:?xt=urn:btih:BA76260A9C0542A7DDBC9A80197CDC97B845B6A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:BA76260A9C0542A7DDBC9A80197CDC97B845B6A8
 magnet:?xt=urn:btih:884221DED461DE61B9B630701DB38C6B8B3B7876
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +591,8 @@ magnet:?xt=urn:btih:884221DED461DE61B9B630701DB38C6B8B3B7876
 ```bash
 magnet:?xt=urn:btih:5A84FD227DA4A36BEF1D459D3A9BEB5F225923EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:5A84FD227DA4A36BEF1D459D3A9BEB5F225923EF
 magnet:?xt=urn:btih:B791955C2BAD5883D7B15D8F4DA8F4111E9CB767
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +643,8 @@ magnet:?xt=urn:btih:B791955C2BAD5883D7B15D8F4DA8F4111E9CB767
 ```bash
 magnet:?xt=urn:btih:D2CC471A8036A817C7FA131D3368F404FF418976
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,29 +670,7 @@ magnet:?xt=urn:btih:D2CC471A8036A817C7FA131D3368F404FF418976
 magnet:?xt=urn:btih:42AB4772583130E4250B5551EC47403CBDD7A540
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442382   (1036627) от 25.01.2021
-
-Остров Оркас / Orcas Island (2020) WEBRip [VP9/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Остров Оркас - самый большой и самый популярный из островов Сан-Хуан на северо-западе Тихого океана, штат Вашингтон. Остров славится своей природной красотой и удивительными видами с горы Конституция, Государственного парка Моран и горы Черепаха.Производство: СШАЖанр: Документальный, видовойРежиссер: Милош КитховичПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:07:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AF94D720BAD7C8983624F57B70B31A4146CB9EE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

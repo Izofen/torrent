@@ -21,6 +21,8 @@ Udemy, Rustam Kamalov | Python + Django: с нуля до коммерчески
 magnet:?xt=urn:btih:1CC1E41F6F685E44D267B0EFB8AA4D0F9A87F639
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Self-Learning, Виталий Трунин | Курс по T-SQL Путь про
 magnet:?xt=urn:btih:F38A3849C7F96CC8498B4788E05D64D3F40CCC4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:F38A3849C7F96CC8498B4788E05D64D3F40CCC4A
 ```bash
 magnet:?xt=urn:btih:F4D6272A518589DB68EE8DC80C43F77C13852D61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ Skillbox, Михаил Овчинников и др. | Профессия Раз
 magnet:?xt=urn:btih:615963F928F3623E844099958CF5B29C6756D55C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:615963F928F3623E844099958CF5B29C6756D55C
 ```bash
 magnet:?xt=urn:btih:95757CB97C20D30CD63D29F3E2688CB81873DEED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ Ironskills, Иван Гордынец | Онлайн-курс "Программ�
 magnet:?xt=urn:btih:FED89F01B556BA10C1F5DCD6E5A9ACC2D0577DEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ MindManager – одно из ведущих ПО по работе с инфо�
 magnet:?xt=urn:btih:B444653399273BD4861AF72BC6926156EBC00489
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ Udemy, Sonali Shrivastava | TCP/IP Socket programming HandsOn-Windows & Linux in
 ```bash
 magnet:?xt=urn:btih:119A328DFE5099D065A7958654F9AE3AD3D1C429
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ MindManager – ведущее ПО для работы с информацие�
 magnet:?xt=urn:btih:6F21101E4C6DF375823FF9D39E6C79733B8537C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ PowerShell для тестеров на проникновение (PFPT) - эт
 ```bash
 magnet:?xt=urn:btih:B06F0232AF4E10CAC0A6F4FF1561860A197B859A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:B06F0232AF4E10CAC0A6F4FF1561860A197B859A
 ```bash
 magnet:?xt=urn:btih:DB138B95CE5DD78D10DAE45826833D89582D71B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ OTUS, Дмитрий Котлов  | Программист 1С (Часть 1-4)
 magnet:?xt=urn:btih:6CD7993605FF952E97CB0518CA9FB6CE7628C2F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +354,8 @@ Ironskills, Иван Гордынец | Онлайн-курс "Работа с �
 ```bash
 magnet:?xt=urn:btih:75863BA76BD6A56725C6A6818A8C387E77EFB455
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +384,8 @@ The StationX Cyber Security School, Udemy, Nathan House | The Complete Cyber Sec
 magnet:?xt=urn:btih:A014F48B82AF569C6C38A9B94EE2102E1376C239
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ Udemy, Валерий Жданов | Google Офис (2021) PCRec
 ```bash
 magnet:?xt=urn:btih:8F1A7135ECA93BAA32641F5FBEA515FF1F8634F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +437,8 @@ magnet:?xt=urn:btih:8F1A7135ECA93BAA32641F5FBEA515FF1F8634F8
 magnet:?xt=urn:btih:CCDF74DEBEC42B295C9478480068F9506EE68800
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ Udemy, Denis Panjuta | Complete Android 11 Jetpack Masterclass (2021) PCRec [En 
 ```bash
 magnet:?xt=urn:btih:6381F2E5B7ABC29286CB38E7AB69AA7E89A5BE64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +492,8 @@ Udemy, We Secure © Training & Consultancy | The Information Security Masterclas
 magnet:?xt=urn:btih:07553E4F6DDE41F6FAC08A5A4087EC4B7271733A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +520,8 @@ magnet:?xt=urn:btih:07553E4F6DDE41F6FAC08A5A4087EC4B7271733A
 magnet:?xt=urn:btih:C7D82AEB82621D51519F6F3BCEE953984BD2B314
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ Svelte.js (или просто «Svelte») - это современный ко�
 ```bash
 magnet:?xt=urn:btih:0B47B7A52EDBF926958D363B081BEC42B4F6ECA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +574,8 @@ Udemy, Andrei Dumitrescu | Linux Administration: The Complete Linux Bootcamp 202
 ```bash
 magnet:?xt=urn:btih:6DAC2BA141D28DBD20924863CFF6B9B6C926566C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +604,8 @@ Udemy, Dmitri Nesteruk | Design Patterns in C# and .NET (2021) PCRec [En / En Su
 magnet:?xt=urn:btih:F7E302BABCD406894053AE5AC5E6A3AE9E2DC02C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +629,8 @@ Learn Enough, Michael Hartl | Разработка веб-приложений �
 ```bash
 magnet:?xt=urn:btih:E9AB2EB17947B26D30DAF0812A1A3F8002A742B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +656,8 @@ KnowThen, James Moore | Elixir и Phoenix для начинающих / Elixir &
 ```bash
 magnet:?xt=urn:btih:07C831F41D2C6A1761C79E6A4F37B5C72DC4CD33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +686,8 @@ Network for Everyone (NFE, N4E) | Работа с Wireshark (2023) WEB-DL [AD] [
 magnet:?xt=urn:btih:15C3CAEA41BE4C9945143E61CB2FC8E81B07C872
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ The Coding Gnome, Dave Thomas  | Elixir для программистов / Elix
 ```bash
 magnet:?xt=urn:btih:EA28F104F63045ECB26948E1AA7F23958B632C9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

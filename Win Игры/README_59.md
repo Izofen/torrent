@@ -19,6 +19,8 @@ Mini Settlers – это минималистичный градостроите
 magnet:?xt=urn:btih:CAA8F7B76FC7E875D5AB09D3776A8BB9A95134A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Ember Knights - динамичный роуглайт для 1–4 игроко�
 ```bash
 magnet:?xt=urn:btih:3672648CA2626332FC879BB16DCC4ACCFE379985
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Train Valley 2 - это железнодорожная экономическа�
 magnet:?xt=urn:btih:12F3A3A37331549F008739F1E5EEA411688CCEF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Toy Shop Simulator (2025) [Ru/Multi] (1.0.0b6) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:EFE54AFFEE2D174D4E565DE037F290F0C39420F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Space Engineers - это фантастическая песочница, где
 magnet:?xt=urn:btih:CD3264523E3088246CDC20742816DA7B163A761B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ LEGO Bricktales (2022) [Ru/Multi] (2.0 r21673) License GOG
 ```bash
 magnet:?xt=urn:btih:14FD92D0353F1B061630F4C6B739AE035654AB5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Beholder: Conductor передает управление старшим про�
 magnet:?xt=urn:btih:7A500A58E203DA87CDE0233CD744A9FD52836938
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Avowed (2025) [Ru/Multi] (1.4/dlc) Scene Rune [Premium Edition]
 ```bash
 magnet:?xt=urn:btih:A6A680BDA33221CC82B53420E294A284235EBAC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Omega Crafter (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 magnet:?xt=urn:btih:6AF6FFECADC4A9C2F013188918C81C8AADA2FF2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Trailmakers — это игра о строительстве транспорт
 ```bash
 magnet:?xt=urn:btih:47058DCE6619FACD799CA75E8F6626BA91228EF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0 HotFix 4) Repack Let'sРlay
 magnet:?xt=urn:btih:73E3BE1C28486D63643AB3F8199CA98F37003537
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ We Are Football 2024 (2024) [Multi] (1.4.0.18237532) License GOG
 ```bash
 magnet:?xt=urn:btih:530852320995D0990E1382A9B6CDBDC4D6C8E085
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Dome Keeper сочетает в себе рогалик, экшен и симу�
 magnet:?xt=urn:btih:5787EA45F18A10F61474593FCB2AA9BE8220AEDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Train Valley 2 - это железнодорожная экономическа�
 ```bash
 magnet:?xt=urn:btih:49D7C2E8F7872C9CBCD11D5FE1DB53BD413D061E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Yes, Your Grace 2: Snowfall - кинематографичная игра про
 magnet:?xt=urn:btih:1A2360167C328B8FD997A5926FF79554022ABE12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Sun Haven – увлекательный проект, разработанны�
 ```bash
 magnet:?xt=urn:btih:8C668969E3175E1FDD7E47B22BE01AFED7E75D5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Double Dragon Gaiden: Rise Of The Dragons (2023) [Multi] (Build 18402244) Repack
 magnet:?xt=urn:btih:8D7AC6BC4944C7EBC3387F6B3CF063D64077D0C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Precinct (2025) [Ru/Multi] (1.4.18135) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:087AA0F10AD2DAC78658EC7CCDCD98B263C380FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Everspace 2 (2021) [Ru/Multi] (1.4.47960/dlc) Repack seleZen
 magnet:?xt=urn:btih:2BCF51D9D1DD1D95CDEEBCD46B0F66F0C6FBF227
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Manivore (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D4A79E2AD0C04CAF72B9C1D7EC31C1BA1E819051
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Kingdom Come: Deliverance II - захватывающий сюжетный ро�
 magnet:?xt=urn:btih:D63A6DBA21FF78D5D8FB1009E356C2404C304F39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ A Haunting Novel 2: Surfaced Secrets / Проклятый роман 2: Тайн
 ```bash
 magnet:?xt=urn:btih:BEDF0893EEE18D5D81FF262D183CA1C758DBFDE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Wildermyth - ролевая игра с процедурно генерируе�
 magnet:?xt=urn:btih:3E5848C37554EAA838BE65CCF71BF0E65F24944C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ SpellForce: Conquest of Eo (2023) [Ru/Multi] (01.10.31934/dlc) Repack FitGirl [B
 ```bash
 magnet:?xt=urn:btih:8BB154A77F67F88F9397930FE1AA8B53713266B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Oxygen Not Included (2019) [Ru/Multi] (U55-663500-SCR/dlc) Repack Other s
 magnet:?xt=urn:btih:3928611775B990E938F817A4FA5D1AF402FE03AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Everspace 2 (2021) [Ru/Multi] (1.4.47960/dlc) Repack FitGirl [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:978AA283998132CD6EBC6C3E190E9992870D5CA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

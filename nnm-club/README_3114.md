@@ -28,6 +28,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@
 ```bash
 magnet:?xt=urn:btih:1A8F1302431FBE0D889ED3D194B21C6A3A57FFE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -83,6 +87,8 @@ Various Artists - Jungle Mania 94 (1994)
 magnet:?xt=urn:btih:1E548BF35225C6523457392E32980CDE555AF42C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -109,6 +115,8 @@ magnet:?xt=urn:btih:1E548BF35225C6523457392E32980CDE555AF42C
 ```bash
 magnet:?xt=urn:btih:F4123DCDB4B22B47114D30122D8726BC5FA2DCA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +151,8 @@ magnet:?xt=urn:btih:F4123DCDB4B22B47114D30122D8726BC5FA2DCA4
 magnet:?xt=urn:btih:3CE24B57BEBFA355D829AB23F9BDE6876EC365BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +185,8 @@ VA - Авто Дискотека DFM Зарубежная (2012) [MP3|256 kbps]<
 ```bash
 magnet:?xt=urn:btih:AD3FE8D81B5096B4ABB44AB9AA8C175198CC4235
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +221,8 @@ A.S.Y.S. - Bpm Is Dead (2012) [MP3|320 кб/с]<Techno, Hard Trance, Acid>
 magnet:?xt=urn:btih:916FFEEA0E653F2FE6512D40F6081DD4FF03320E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +246,8 @@ magnet:?xt=urn:btih:916FFEEA0E653F2FE6512D40F6081DD4FF03320E
 ```bash
 magnet:?xt=urn:btih:9705149AECE685D3F7D36F33E3052CF7F9F57854
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +282,8 @@ VA - Радио Energy - NRJ HOT30 (13.04.2012) [MP3|320 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:F2601A429674CE8C929C814078C1FF5F91D13E4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +307,8 @@ Tiger Eye 2: The Sacrifice (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:02ED635AAEE8D3993158559FF3B05CCFD35DA349
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +335,8 @@ magnet:?xt=urn:btih:02ED635AAEE8D3993158559FF3B05CCFD35DA349
 ```bash
 magnet:?xt=urn:btih:75CCD6D45DA29366293ACC51C35D548DCF71D404
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +371,8 @@ magnet:?xt=urn:btih:75CCD6D45DA29366293ACC51C35D548DCF71D404
 magnet:?xt=urn:btih:2B870DE4510B12982CEC834F87ED02C399ED8540
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +401,8 @@ magnet:?xt=urn:btih:2B870DE4510B12982CEC834F87ED02C399ED8540
 magnet:?xt=urn:btih:45C2CE112F3A48C64E0F39F04F61F4240546A88D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +427,8 @@ magnet:?xt=urn:btih:45C2CE112F3A48C64E0F39F04F61F4240546A88D
 magnet:?xt=urn:btih:E5871EB358012E8A29816463FB5F94E4F941DA34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +452,8 @@ VA - Spa Sounds Premium (2012) [MP3|320 кб/с]<Chillout, Relax>
 ```bash
 magnet:?xt=urn:btih:F795E51696B47B31DE0E3B584731BDDDF2982632
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +481,8 @@ magnet:?xt=urn:btih:F795E51696B47B31DE0E3B584731BDDDF2982632
 magnet:?xt=urn:btih:CECFBB6199AC036453CDD045FD7D3CF8BA60216C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +506,8 @@ magnet:?xt=urn:btih:CECFBB6199AC036453CDD045FD7D3CF8BA60216C
 ```bash
 magnet:?xt=urn:btih:0DE651331D4B045391D92FA1D317C29CF0C0BD17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +534,8 @@ magnet:?xt=urn:btih:0DE651331D4B045391D92FA1D317C29CF0C0BD17
 ```bash
 magnet:?xt=urn:btih:A3A6C05AB1BC64707945A42FD1E9A875C497C279
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +565,8 @@ Geordie - Unreleased Tapes (2005)[APE|lossless] <Classic Rock / Hard Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +590,8 @@ Geordie - Unreleased Tapes (2005)[APE|lossless] <Classic Rock / Hard Rock>
 ```bash
 magnet:?xt=urn:btih:79D8D51BB586D89D602B9DD784EE5C0D7831ACC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +618,8 @@ magnet:?xt=urn:btih:79D8D51BB586D89D602B9DD784EE5C0D7831ACC4
 magnet:?xt=urn:btih:6810E4CACF87DB831F90C8C9BB562BA9CB88EE3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +643,8 @@ Ningen Kousaten / Human Crossing Point / Точки соприкосновени
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +672,8 @@ Ningen Kousaten / Human Crossing Point / Точки соприкосновени
 magnet:?xt=urn:btih:CC8F8E90E846378E21BBBC243C785A9823F84D08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +698,8 @@ magnet:?xt=urn:btih:CC8F8E90E846378E21BBBC243C785A9823F84D08
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -675,6 +723,8 @@ magnet:?xt=urn:btih:CC8F8E90E846378E21BBBC243C785A9823F84D08
 ```bash
 magnet:?xt=urn:btih:9FDD346C174FD1AC8FA6CB049CE0CF5C6CCC5DE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -708,6 +758,8 @@ VA - Зарубежные Новинки Vol.41 from AGR (2012) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:17A7DD0027A7883A32A64F6F9BC3091BA813053A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

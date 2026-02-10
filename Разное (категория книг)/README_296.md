@@ -1,3 +1,29 @@
+###  Публикация: 946560   (425267) от 14.10.2015
+
+А. Подмазов | Старообрядчество в Латвии (1970) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425267.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассказывается об истории латвийских старообрядцев, об их положении при царизме, в буржуазной Латвии, в Советской Латвии.Жанр: История, религиоведение, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25C588F1E1152BB3198D4E370999F4BD5179403A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411775   (425276) от 26.09.2020
 
 Михаил Гернет | Инстинкт заключенного. Очерки тюремной психологии (2020) [EPUB]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:936568408D4288CD981B9BC8805B8A74C8B8D38E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:936568408D4288CD981B9BC8805B8A74C8B8D38E
 magnet:?xt=urn:btih:4EF2015064DB17F1D865FC92795482BEC4B5F70F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:4EF2015064DB17F1D865FC92795482BEC4B5F70F
 magnet:?xt=urn:btih:A3EFE5F34345481E0553EEA160F41EDEDC4A6F6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:A3EFE5F34345481E0553EEA160F41EDEDC4A6F6A
 ```bash
 magnet:?xt=urn:btih:8F690E38BF7A72BFFD4FE993896EFA52F01B5630
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:8F690E38BF7A72BFFD4FE993896EFA52F01B5630
 magnet:?xt=urn:btih:8651448F114871041516DEDE0A98AD9E00A9D44E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:8651448F114871041516DEDE0A98AD9E00A9D44E
 ```bash
 magnet:?xt=urn:btih:F841C8535C646B2E8C3C8826D1CB5D7680E9F8C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:F841C8535C646B2E8C3C8826D1CB5D7680E9F8C5
 magnet:?xt=urn:btih:3316CF18F6EB30FC0C865D45E2E9253D4AC31279
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:3316CF18F6EB30FC0C865D45E2E9253D4AC31279
 ```bash
 magnet:?xt=urn:btih:AB3C1F3B2C43642D8C9AFCEBC1D99CC7B87476C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:AB3C1F3B2C43642D8C9AFCEBC1D99CC7B87476C2
 magnet:?xt=urn:btih:9590DEE7CEDC3E09E707ABA46E5F9A1C5458CF9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ UX-стратегия, или стратегия опыта взаимодейс
 ```bash
 magnet:?xt=urn:btih:6A37773EBB2CCAD0941087E4C3A6130E4DBE87E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:6A37773EBB2CCAD0941087E4C3A6130E4DBE87E0
 magnet:?xt=urn:btih:4C8FD48C83A69C97F1A5E054969812075F7D5F1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:4C8FD48C83A69C97F1A5E054969812075F7D5F1E
 ```bash
 magnet:?xt=urn:btih:B54D3CEDE2833DA8CF4B7C30485FF97B728289A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:B54D3CEDE2833DA8CF4B7C30485FF97B728289A3
 magnet:?xt=urn:btih:6C6E0726015732EDFEE7FC8D2520A466BEC81B14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:6C6E0726015732EDFEE7FC8D2520A466BEC81B14
 ```bash
 magnet:?xt=urn:btih:1670EDAE11CCB9F3B621006A3A4CAE311EF0E9DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:1670EDAE11CCB9F3B621006A3A4CAE311EF0E9DF
 magnet:?xt=urn:btih:129CEC9D9BB679FC29AA22A16272C762DE0B7A0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:129CEC9D9BB679FC29AA22A16272C762DE0B7A0F
 ```bash
 magnet:?xt=urn:btih:A8D42D6F73D692C064BED5829F99F887FDB57007
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:A8D42D6F73D692C064BED5829F99F887FDB57007
 magnet:?xt=urn:btih:F6D30E7E6783578AA76324C70EEC55B1AD0E7AF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:F6D30E7E6783578AA76324C70EEC55B1AD0E7AF3
 ```bash
 magnet:?xt=urn:btih:2A69C6A1BF19875B83ACAFA704E878DCA1B27562
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:2A69C6A1BF19875B83ACAFA704E878DCA1B27562
 magnet:?xt=urn:btih:8FDA1ACBCB38C6F7CF4106D28E1EC872553CFFE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:8FDA1ACBCB38C6F7CF4106D28E1EC872553CFFE7
 ```bash
 magnet:?xt=urn:btih:F43B1257425009E52AD319C4DCBF148A95AA1F70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:F43B1257425009E52AD319C4DCBF148A95AA1F70
 magnet:?xt=urn:btih:FB250356BDAAD445BB41B7F6C57509E4ADA72BA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:FB250356BDAAD445BB41B7F6C57509E4ADA72BA8
 magnet:?xt=urn:btih:ED7153DCE24A784CEB6618F1B35AD541C9A42760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:ED7153DCE24A784CEB6618F1B35AD541C9A42760
 ```bash
 magnet:?xt=urn:btih:593DC38DC6D14BC10BF924650AA8D1CA91C84B62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:593DC38DC6D14BC10BF924650AA8D1CA91C84B62
 magnet:?xt=urn:btih:6142F50B1CF4D6DEAD010DF7419363DD5404C6FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,31 +678,7 @@ magnet:?xt=urn:btih:6142F50B1CF4D6DEAD010DF7419363DD5404C6FE
 magnet:?xt=urn:btih:AD3D143D2BC7A4E724E149718325DA51D8ACDFAE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946234   (426705) от 13.10.2015
-
-Эдриан Фернхэм | Психология. 50 идей, о которых нужно знать (2014) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессор Эдриан Фернхэм – психолог мирового уровня, профессор Оксфорда, Кембриджа и Лондонского университета. Он опубликовал более 700 научных статей и 57 книг. Журнал Human Resources включил профессора Фернхэма в список 20 самых авторитетных психологов мира.
-
-Современное общество немыслимо без психологии. Без знания основ психологии уже нельзя представить нашу (   Читать дальше...   )Жанр: Популярная психологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A2E0CAA668AEB2C8009F781559C1C0FB5B5636E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

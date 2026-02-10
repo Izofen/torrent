@@ -19,6 +19,8 @@ Prince of Persia Classic (2008) [PS3] [USA] 4.25 [CFW] [PSN] [En]
 magnet:?xt=urn:btih:6436394C63ADFFAB7BF4D425818C1DD23D6C5C0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Fatal Inertia – футуристические гонки на транспо�
 ```bash
 magnet:?xt=urn:btih:361D618E0214544C9C069F37121249D0BEBFC22F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Golden Compass – приключенческая игра, основанн
 magnet:?xt=urn:btih:0790DD935A3C8B88B91B98ABB861D4B25B2BE117
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Spec Ops: The Line (2012) [Xbox360] [RegionFree] 14719 [FreeBoot] [Unofficial] [
 ```bash
 magnet:?xt=urn:btih:B5DF35393644A6E6A1F850E19BB3C92D432A54E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Naval Assault: The Killing Tide перенесет вас во времена В
 magnet:?xt=urn:btih:418E4CA0ADDF1054F020A1434F34F76102C9C1FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Evil Dead: Regeneration (2005) [Xbox] [NTSC] 5101 [СофтМод] [Unofficial] 
 ```bash
 magnet:?xt=urn:btih:AE45C5EF01DE79DDBEF76D9185CAF22C3A368EB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Dogfight 1942 (2012) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial /
 magnet:?xt=urn:btih:88817AB7CB4CDCE12ABB76A29A6909F138BDF6AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Far Cry Classic - полная консольная версия самой пе
 ```bash
 magnet:?xt=urn:btih:BDA1B5AE8337282329EA13FFEFCECDFB4CB4353A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Ni no Kuni Wrath of the White Witch Remastered (2019) [Switch] [USA] 9.1.0 [NSP]
 magnet:?xt=urn:btih:011B12145070F8A144B393B8ED31CA367F673169
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ BioShock Remastered (2020) [Switch] [USA] 9.2.0 [NSP] [Repack / 1.0.2] [Ru/En]
 magnet:?xt=urn:btih:9E0D21F4ADBBD7780BF5F72ACB57C098FED44EF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ FIFA 18  – обновлённая версия знаменитой серии
 ```bash
 magnet:?xt=urn:btih:4A777CCC86148E6AFFF313B06EC8E267CF403A12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ JoJo's Bizarre Adventure — игра в жанре файтинг, разраб
 magnet:?xt=urn:btih:1657FEC7C62E3CADF96EFDD7E1EBF89D0B24172A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Skylanders: Imaginators (2016) [WiiU] [EUR] 5.5.1 [WUP Installer] [License] [Mul
 magnet:?xt=urn:btih:39A1F3F91D2FFBD644B7ABC73DBFE875F3EA8C0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Deus Ex: Human Revolution - Director's Cut (2013) [WiiU] [EUR] 5.3.2 [Loadiine G
 ```bash
 magnet:?xt=urn:btih:FDD905A34F5F91BE8035A595B71383D2121BA2EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Def Jam Fight For NY перенесет вас на ринг подпольно�
 magnet:?xt=urn:btih:254505D86E390DF88D29B1FF42778F9DE131C054
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ L.A. Noire: The Complete Edition (2011) [PS3] [USA] 3.72 [Cobra ODE / E3 ODE PRO
 ```bash
 magnet:?xt=urn:btih:E162F10F1291B38874D10EA4EEB092C435722AA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Shining Resonance Refrain (2018) [Switch] [USA] 8.1.0 [NSP] [Unofficial / 1.0.1]
 magnet:?xt=urn:btih:41122B1AA4811C37FEDC8285F87F358AC0483ECE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Grand Theft Auto: The Trilogy The Definitive Edition (2021) [Switch] [USA] 13.0.
 ```bash
 magnet:?xt=urn:btih:9BCF33B222903DE3DAE0EAB61725FB6AC132BC00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Dungeon Hunter: Alliance - это продолжение мобильной се
 magnet:?xt=urn:btih:091A6311AEB07CD1C9F2220B02A07461E88BFE0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Grand Theft Auto III (2001) [Xbox] [RegionFree] 5101 [СофтМод] [Unofficia
 ```bash
 magnet:?xt=urn:btih:1FDF987AAD1797F173E821E9CFF8EDBBAE6DC54F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Giana Sisters: Twisted Dreams — это увлекательный и дина�
 magnet:?xt=urn:btih:C275F86A277F38E93F4B4AA6750F0821C5A54188
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:C275F86A277F38E93F4B4AA6750F0821C5A54188
 magnet:?xt=urn:btih:3E5EB3AA683CDA9CC135C89F2F176F0779BFE586
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Imagine Champion Rider (Horsez ranch rescue) [ULES-01273] [RUS] (2009) [PSP] [EU
 ```bash
 magnet:?xt=urn:btih:0522A4DDA21E18ADB90DDF27B559ABDABC8A1287
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ Mortal Kombat: Deadly Alliance (2002) [Xbox] [NTSC] 5101 [СофтМод] [Licen
 magnet:?xt=urn:btih:5595F010C723D75A4027B47996790A8F4CFFB809
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ UFC 2009 Undisputed - симулятор жестоких боев без пра
 magnet:?xt=urn:btih:DEACB7BC0C253F99B7789AFB9BB681ECC809AAE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ R.A.W.: Realms of Ancient War – героическая hack & slash эпопе
 ```bash
 magnet:?xt=urn:btih:23603556864E114D7D348CC80FABCA6E48AF305F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Greedland - это игра, предоставляющая поклонника
 magnet:?xt=urn:btih:ABDA790DDDC5B4E879CD8CAC1CD59915D5710573
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:B71D3F00BC27AFF5C02893D11A450CE0E1C359B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.8.0/dlc) Repack Let'sРlay [Soundt
 magnet:?xt=urn:btih:40E5FBD0ACFE1799A7FFC292F700F08E8BEF7ABF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:40E5FBD0ACFE1799A7FFC292F700F08E8BEF7ABF
 ```bash
 magnet:?xt=urn:btih:F0153D86628EE3E8B45250AAAAF42CFD94B9112A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:F0153D86628EE3E8B45250AAAAF42CFD94B9112A
 magnet:?xt=urn:btih:08282D98D81EA3A1924F1764519E5F7248AF63E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ One Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19955863
 ```bash
 magnet:?xt=urn:btih:3228CF829D66A60B99DAD2A862515147CB799411
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Monolith (2023) [Ru/Multi] (1.1.7.001) Repack Other s
 magnet:?xt=urn:btih:1F9A6ADB647489D973B1587CDC802E1BEECE3423
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Rufus - небольшая утилита помогает отформатир�
 ```bash
 magnet:?xt=urn:btih:F9B85BF6DA600F8300D890769E5647C28D1CA379
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:F9B85BF6DA600F8300D890769E5647C28D1CA379
 magnet:?xt=urn:btih:41848B40AC14372B9064CE25EA411E78D6DFAF56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Kingdom Rush 5: Alliance TD бросает вас в мир, где враги �
 ```bash
 magnet:?xt=urn:btih:D70BBBD490A65BB14B69175D4DB71CF6961E1EA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:D70BBBD490A65BB14B69175D4DB71CF6961E1EA6
 magnet:?xt=urn:btih:568DBB42409BEB3375D461BD47A7FC587B5DC799
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:568DBB42409BEB3375D461BD47A7FC587B5DC799
 magnet:?xt=urn:btih:6A166AE6945FBA401F43AE00D63A423F6A5BB20F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Isekai Mokushiroku Mynoghra / Apocalypse Bringer Mynoghra / Апокалипси
 ```bash
 magnet:?xt=urn:btih:BB1DCB623C6060B77C7F1F39191BBD286203A9D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:BB1DCB623C6060B77C7F1F39191BBD286203A9D6
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ UltraPack 2k10 7.40 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:4007B272084592668E7E1238DD0E851E013B5F69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ C9PE 2k10 7.40 Unofficial [Ru/En]
 magnet:?xt=urn:btih:A267EC067FC4D0DDC58158BAEF58879539E9F98E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Hitman: Blood Money / Hitman: Кровавые деньги (2006) [Ru] (1.2) Re
 ```bash
 magnet:?xt=urn:btih:322CCEBB1B86B45A344A8C148772DACFE0A0D94B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ MultiBoot 2k10 7.40 Unofficial [Ru/En]
 magnet:?xt=urn:btih:7DF53ACA5774DEADBEE20445B78B979398E7562F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ W10 Digital License Activation - инструмент от Ratiborus для ак
 ```bash
 magnet:?xt=urn:btih:05999E3301B51311CE6B1C84633E30C480F0A135
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:05999E3301B51311CE6B1C84633E30C480F0A135
 magnet:?xt=urn:btih:E065C8D15D14B694C0E925B463635BDEDEFA106F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land (2025) [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C135356846F01A13CCEA24D9BCE21DADC5B45183
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:C135356846F01A13CCEA24D9BCE21DADC5B45183
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:C135356846F01A13CCEA24D9BCE21DADC5B45183
 ```bash
 magnet:?xt=urn:btih:9F130CA1E4C81AC8FF9B4E551743F809234BEB01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ Vintage Culture - Culture Shock 001-146 (2021-2025) [MP3|320 Kbps] <House, Tech 
 magnet:?xt=urn:btih:2B059CAA5DB8731376978C923EB724C5AE31D518
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:2B059CAA5DB8731376978C923EB724C5AE31D518
 magnet:?xt=urn:btih:DA9C3697BD9CE0F05003CE4F144AA75FF4B807D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Wartales (2021) [Ru/Multi] (1.0.43382 HF2/dlc) Repack Let'sРlay [The Mercenarie
 ```bash
 magnet:?xt=urn:btih:0F8AC47689D1EB309CA953F5CE5FFC45C20118C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

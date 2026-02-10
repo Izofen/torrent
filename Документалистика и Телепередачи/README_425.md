@@ -1,3 +1,29 @@
+###  Публикация: 1042136   (580537) от 11.08.2016
+
+Курортный роман с властью (2007) DVB
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мало кто знает, что в истории нашей страны был момент, когда столкнулись амбиции первого секретаря Ставропольского крайкома КПСС Михаила Горбачева и первого секретаря Краснодарского крайкома КПСС Сергея Медунова – того самого, чье имя получило знаменитое дело о хищениях на курортах Краснодарского края. Могло ли так статься, что в гору бы пошел Медунов, а не Горбачев? (   Читать дальше...   )Телекомпания: Россия, ООО Телекомпания "МИРА-Продакшн"Жанр: ДокументальныйПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E1092BE3D8F5E50D5AC740CC493A8DCDF27D810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042242   (580594) от 11.08.2016
 
 В теме. Ролевые игры (11.08.2016) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:06EB4FEE39A5DB63A4627764F8851C7AA047CEB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:06EB4FEE39A5DB63A4627764F8851C7AA047CEB5
 magnet:?xt=urn:btih:C9B8CBF7B4076869EC8F4BCEB7DAA51089CF1FF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:C9B8CBF7B4076869EC8F4BCEB7DAA51089CF1FF0
 ```bash
 magnet:?xt=urn:btih:178D9869EAD3A9D3C44C0B1B9360C29522031343
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ Nat Geo Wild . Дикое меню / Wild Menu (2014) HDTVRip [H.264/720p] [1-26
 magnet:?xt=urn:btih:3D7C1E76E00E91573BC86CDAE9152DB04B9C456E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:3D7C1E76E00E91573BC86CDAE9152DB04B9C456E
 ```bash
 magnet:?xt=urn:btih:C22617E5FD3147A0EDEE250EE89E11A664F8E456
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:C22617E5FD3147A0EDEE250EE89E11A664F8E456
 magnet:?xt=urn:btih:5267F601BF77FABFAD4AE1DB910FAC4F4B37A393
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:5267F601BF77FABFAD4AE1DB910FAC4F4B37A393
 ```bash
 magnet:?xt=urn:btih:620AF17A055F55244E0BAB26E942A1B0FEAAF73F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:620AF17A055F55244E0BAB26E942A1B0FEAAF73F
 magnet:?xt=urn:btih:60FDA42CACFB100A62E62B650CE0ED41C4728F4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:60FDA42CACFB100A62E62B650CE0ED41C4728F4C
 ```bash
 magnet:?xt=urn:btih:FB5D200ABF252EF438692196639C6117820A3297
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:FB5D200ABF252EF438692196639C6117820A3297
 magnet:?xt=urn:btih:8E3CD7C108AC6640AEF3D9764FA0A6A62570B008
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:8E3CD7C108AC6640AEF3D9764FA0A6A62570B008
 ```bash
 magnet:?xt=urn:btih:99A7FEAA468C78151883308118834B7C23511D5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:99A7FEAA468C78151883308118834B7C23511D5E
 magnet:?xt=urn:btih:00FE39730236E1F9B958F68768FAC747508AB881
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:00FE39730236E1F9B958F68768FAC747508AB881
 magnet:?xt=urn:btih:CCA8D141F2023ACA37319BAFBD4BEC2F5B5F38F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:CCA8D141F2023ACA37319BAFBD4BEC2F5B5F38F2
 ```bash
 magnet:?xt=urn:btih:26FD01365381667D6F3D4CBBAC949E506477213C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:26FD01365381667D6F3D4CBBAC949E506477213C
 magnet:?xt=urn:btih:665131C8D4ECCE1FCEBC596C1A675FF1BA736564
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:665131C8D4ECCE1FCEBC596C1A675FF1BA736564
 ```bash
 magnet:?xt=urn:btih:34CDEF76A6DA3F39FE412AECE1EB23E193BAE77F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:34CDEF76A6DA3F39FE412AECE1EB23E193BAE77F
 magnet:?xt=urn:btih:D83E2E31619676B1D3303525CA9D9F593AE434E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:D83E2E31619676B1D3303525CA9D9F593AE434E5
 ```bash
 magnet:?xt=urn:btih:DC0AD60AC8B84A707F03A4F08E1269CA3547A10D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:DC0AD60AC8B84A707F03A4F08E1269CA3547A10D
 magnet:?xt=urn:btih:CE7A266F1605F86AE1EFB4BB6DCB01D9F73FC633
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:CE7A266F1605F86AE1EFB4BB6DCB01D9F73FC633
 ```bash
 magnet:?xt=urn:btih:4ED3F6F1EF64A32A23F7F806B58AB1D9944B5F03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:4ED3F6F1EF64A32A23F7F806B58AB1D9944B5F03
 magnet:?xt=urn:btih:E4044F3DB7473B23711F4AF5B63C78B4572D39F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:E4044F3DB7473B23711F4AF5B63C78B4572D39F4
 ```bash
 magnet:?xt=urn:btih:50662A924E3D7C67ADE13F7857C6011BF2FD44C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:50662A924E3D7C67ADE13F7857C6011BF2FD44C0
 magnet:?xt=urn:btih:51D68D4B5A7E7E84A1F964D9294E9CCA4EC16AD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:51D68D4B5A7E7E84A1F964D9294E9CCA4EC16AD5
 ```bash
 magnet:?xt=urn:btih:F2154979C0BC994B4BDD1E6EC60D02930AD68414
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:F2154979C0BC994B4BDD1E6EC60D02930AD68414
 magnet:?xt=urn:btih:02E628FC09DE5D80EEA3BEADC4F52618F847FDB5
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041716   (582437) от 09.08.2016
-
-Вести в 20-00. Большие Вести. Россия 1 (09.08.2016) HDTVRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582437.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире - смотрите в последних выпусках новостей телеканала «Россия».Телекомпания: Россия 1 HDЖанр: ТелепередачаПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3641259C43106EB66AF9F3155A107685258B29D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

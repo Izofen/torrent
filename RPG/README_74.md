@@ -19,6 +19,8 @@ Torment: Tides of Numenera — компьютерная ролевая игра,
 magnet:?xt=urn:btih:6A69E614197E724A5EBC237E7D61C215058F1A0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ The Incredible Adventures of Van Helsing II/2 / Van Helsing 2: Смерти во
 magnet:?xt=urn:btih:05EEC8526D26F3DB4488A7017D6641638B13D72C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Atelier Firis: The Alchemist and the Mysterious Journey (2017) [En] (1.0.0.9/dlc
 ```bash
 magnet:?xt=urn:btih:9D118538B6075632C35C3EF597244E0D953B2DDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Vagrus - The Riven Realms (2021) [En] (1.0.00.1004H) License CODEX
 magnet:?xt=urn:btih:BD1820E80435C144B7C1D45C8E10B2A1BC04E678
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Mana Spark (2018) [Ru/Multi] (1.1.08) License GOG
 ```bash
 magnet:?xt=urn:btih:A4AA5E59CA05F83F6E31AE3622B461212C1E913A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Middle-earth Shadow of Mordor / Средиземье Тени Мордора (20
 magnet:?xt=urn:btih:22ACEC0312C3457480278B5FF252CA3F79CF0DE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Divinity: Original Sin – новый выпуск знаменитой сери
 ```bash
 magnet:?xt=urn:btih:FA5B4389AB02E99B272E2700D69C2D1A6863BA10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Hyper Light Drifter - фантастическая во всех смыслах 
 magnet:?xt=urn:btih:B04FA78C31ADDCD309E21A9FB4B18362D9181644
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Rustler — это игра в жанре экшен с открытым мир�
 ```bash
 magnet:?xt=urn:btih:05327EE611A5455B18D19A21E59F1F9DDAB03ED6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ BELOW — процедурно-генерируемое приключение �
 magnet:?xt=urn:btih:3C8B2C1B6789240C53F6201CB692BE41EB345730
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Iratus: Lord of the Dead (2020) [Ru/Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:5DA775030958D98137973486570DF07DC0BAA3BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ The Incredible Adventures of Van Helsing (2013) [Ru/Multi] (1.2.73c/7dlc) Repack
 magnet:?xt=urn:btih:962CDC53D3EBEA0AF5B130584963EFA38BBC2D09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Gothic II: Золотое Издание включает оригинальну
 ```bash
 magnet:?xt=urn:btih:1A2616DDBB3C79005EFCC612321B61AEF3A26A04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Gothic / Готика (2001) [Multi] (1.08j/1.08k) License PROPHET
 magnet:?xt=urn:btih:63400F18A4A42F1E8056B2446867E1708FCD13E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Ultima 9: Ascension (1999) [En] (1.00) License GOG
 ```bash
 magnet:?xt=urn:btih:D584E9D1C80FEAECA039682813D082DBEE052514
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Crystal Rift - это приключенческий паззл-хоррор п�
 magnet:?xt=urn:btih:A16E1C961BD8A26EECAF13CD58064A4DDEA402BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Konung Dilogy / Князь Дилогия (1999-2003) [Ru/En] (1.3/1.05) License
 ```bash
 magnet:?xt=urn:btih:4CE8008778C859E71E23978E557629C08F0C8B10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Guild of Ascension - это тактическая ролевая игра с э
 magnet:?xt=urn:btih:254EC313128074FAF8AF8C006A4C5F3421D832F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Leap of Fate - это уникальная смесь изометрическо
 ```bash
 magnet:?xt=urn:btih:EA47C31F6462DF45171E7C73E339C316E9B92F48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ Baldur's Gate: The Original Saga (1999) [Ru/En] (1.1.4315/1.3.5508/dlc) License 
 magnet:?xt=urn:btih:833E747B6156F61C71AFFFE0B0372EF5419D61B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ Divinity II (2012) [Ru/En] (1.4.700.49) Repack R.G. Origami [Developer's Cut]
 ```bash
 magnet:?xt=urn:btih:72937D9A4BC754B52F6A16892F244DA870F4993E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ NEO: The World Ends with You (2021) [Multi] (1.00) License CODEX
 magnet:?xt=urn:btih:466FB0C573D94209894A13CC3460AE5307A6B07F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ Stygian: Reign of the Old Ones (2019) [Ru/Multi] (1.1.7) License GOG (обнов
 ```bash
 magnet:?xt=urn:btih:A30C3B904031B8A09F1775B0960F07BB56F46C5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ Death's Door (2021) [Ru/Multi] (1.1.5) License GOG [Deluxe Edition]
 magnet:?xt=urn:btih:4456A4CDD4B9053748C673817E5F99EC17F75B48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ Torment: Tides of Numenera (2017) [Ru/Multi] (1.0.1) SteamRip Let'sPlay
 magnet:?xt=urn:btih:EED57036547E0DE4A3829199462EDE717A9B5B81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ magnet:?xt=urn:btih:EED57036547E0DE4A3829199462EDE717A9B5B81
 ```bash
 magnet:?xt=urn:btih:14BB620FF52D39839CA41A433A8B7C41B3EA1C76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

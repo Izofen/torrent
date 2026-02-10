@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:3F010774004CABACA35F85DF3E9A415F53769B4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Killer Elephant — невероятно тяжёлый шрифт, состоя
 ```bash
 magnet:?xt=urn:btih:EEE37E5C7DC1A22A8AC607AAC4338DED862EFDE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:EEE37E5C7DC1A22A8AC607AAC4338DED862EFDE5
 magnet:?xt=urn:btih:15734162C91767C9B662A3559F0B139B20CFE2BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:15734162C91767C9B662A3559F0B139B20CFE2BC
 ```bash
 magnet:?xt=urn:btih:5C021F5A5172B6702AB82CA9E438E82E41B09A8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:5C021F5A5172B6702AB82CA9E438E82E41B09A8F
 magnet:?xt=urn:btih:BEDCB91DD9194BC485C054F7F899B78B6DB11C7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Fyntra — современный акцидентный шрифт с засе�
 ```bash
 magnet:?xt=urn:btih:C0663B06409D616775097C99F02DAEAFE3E8D767
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Scusso — это не просто шрифт с индивидуальност
 magnet:?xt=urn:btih:77C6228DD69125E43F4C760567E2FA24A5664A4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Tusk — могущественный персонаж, призванный Д�
 magnet:?xt=urn:btih:C6CF2138C01B1224F38BA21C6482B12BAF945FDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Quirlone — высококонтрастный шрифт с переходны
 ```bash
 magnet:?xt=urn:btih:F3B308CCA8CA6A499D4AB8195606FDBCA5C2B899
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ DelaGothic - это плоский, очень толстый готически
 magnet:?xt=urn:btih:51FB6039E98B33119919F087671278FF6BEC26B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ Impacto — шрифт для заголовков, вдохновлённый �
 ```bash
 magnet:?xt=urn:btih:E49E9CC0DBCF12CAF47AC1E8F0DCFFAD78CF70E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:E49E9CC0DBCF12CAF47AC1E8F0DCFFAD78CF70E2
 magnet:?xt=urn:btih:A0EE8D92864D0E0E30019F79BCD1EE640C95A1C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ Ui Kits - UI8 - UI KIT | AI Art Generator App - bento & glassmorphism style [FIG
 ```bash
 magnet:?xt=urn:btih:F62E1FCDC28A9D9EF2E8E06C0FCBA7135048F08F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ Original Dark and Moody LR Presets — 31 теплый тон, черно-бел
 magnet:?xt=urn:btih:B4F1E15FFFB20D57E4D4FE3EA0E01E2EFB9874D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ ZT Otez — изысканный шрифт с засечками, создан�
 magnet:?xt=urn:btih:C08B9251638B24EA1A6AE1B4D9778472EF63BE83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ Banzai Bros — невероятно эффективный многофункц
 ```bash
 magnet:?xt=urn:btih:EBBB9D4A307C1BA69851003268970AE622E277A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:EBBB9D4A307C1BA69851003268970AE622E277A1
 magnet:?xt=urn:btih:80EC4D6D4BA74A1D2EBFBA4DA1DE56B789A86E14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ Native стремится найти баланс между индивидуа�
 magnet:?xt=urn:btih:9F64DD104749CE984690D9F9892CF3486548470D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ Dolphin VPN — это премиальный и высококачествен�
 ```bash
 magnet:?xt=urn:btih:5A2269153DE02C3925E09B70FED89BC4B2FA9D9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:5A2269153DE02C3925E09B70FED89BC4B2FA9D9C
 magnet:?xt=urn:btih:FE0807F0E9760B608381DDE72AB139E5C81E5A5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ Quickpen — непринуждённый и лёгкий шрифт, созда
 ```bash
 magnet:?xt=urn:btih:FC72D3F6329802C29F785C55BD4A943F6577FA0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ Byker — геометрический гротеск, сочетающий в �
 magnet:?xt=urn:btih:C098016457ABB659F4FF85E2EB81FB794D7A1BB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ Jouter Sans — семейство шрифтов без засечек, пре�
 ```bash
 magnet:?xt=urn:btih:341D0356BB747B8A296C28B21204B7FF4A29CE03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ Obrazec 2.0 - это модернизированная версия шрифт�
 ```bash
 magnet:?xt=urn:btih:875D86169E3E259E5B62776A19588ACEE5513829
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:875D86169E3E259E5B62776A19588ACEE5513829
 magnet:?xt=urn:btih:F539F301AFBAF126201A009A9BA2DA4F335D5361
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:F539F301AFBAF126201A009A9BA2DA4F335D5361
 ```bash
 magnet:?xt=urn:btih:BA1A32C8208CABC955FA8BBBB88071BAA9A81AF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

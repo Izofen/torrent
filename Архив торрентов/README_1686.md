@@ -19,6 +19,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:FD4F603BA99C761B70AB0BD9F8FAF6E353059300
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ reaConverter Pro - мощный инструмент для тех, кто им�
 ```bash
 magnet:?xt=urn:btih:D09144D8BB4272EC845422E23ED53ACCBEAEC1B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Java SE Development Kit - программное обеспечение необ
 magnet:?xt=urn:btih:E595227F61639C35DE93D013EDA8B3FE6D3C842D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ YT Saver Video Downloader & Converter for Mac 7.0.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:9AD6540AA8C021819E8D50423185B35A85651506
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Slimjet 39.0.4.0 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:E4850320C5A96ED9F8C9EF18FA6A71FDD774FF5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Dynamic Wallpaper Engine позволяет использовать живые 
 ```bash
 magnet:?xt=urn:btih:744D151921B606B81DCA32B9EB05733E7F62B2A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ iTubeGo YouTube Downloader Pro for Mac 7.0.2 [Multi]
 magnet:?xt=urn:btih:946B468CC7227F1DA0F279F27DB9C618EE0F06BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:4DCB6331DD19CFA11AC1A225D20A6C8029D69EF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Soft Organizer - утилита для полного удаления нену�
 magnet:?xt=urn:btih:768550A09EB0C4B16A8CCFE048CF63C359777BAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:768550A09EB0C4B16A8CCFE048CF63C359777BAD
 ```bash
 magnet:?xt=urn:btih:AC9E631FEB8E68C12AB5204FDA69F7446A9183E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Overlay 4.21 [En]
 magnet:?xt=urn:btih:42CF6CB7439CD20B24B6AA966F64831CD8649DF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:42CF6CB7439CD20B24B6AA966F64831CD8649DF3
 ```bash
 magnet:?xt=urn:btih:3DD0DF607DC4A46583BAB5BBAF40DE82AC08A9B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ VueScan - программа для работы со сканерами HP, Min
 magnet:?xt=urn:btih:97248882BFE754719F4B921C363A6300A3C28A39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ OCCT 12.0.5 Portable [En]
 ```bash
 magnet:?xt=urn:btih:545DB6C970E0DFD40FC5C0E189E5704422601BDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ PullTube 1.8.5.12 [Multi/Ru]
 magnet:?xt=urn:btih:26C1734A215BA180EB32C300859AE9B1E7387A4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ AOMEI Backupper – программа для создания резервно�
 ```bash
 magnet:?xt=urn:btih:EC8DD9A5A3F47E3A1F20D52E45A63E384B180C1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Athentech Perfectly Clear Video for Mac 4.5.0 [En]
 magnet:?xt=urn:btih:32971214D3FC3196A3C72A090DD48844F5B931FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ O&O ShutUp10 позволяет получить полный контроль �
 ```bash
 magnet:?xt=urn:btih:39D34B861B64C774FE70FF9567215B0F9097EDD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ PowerPhotos - позволяет разбить ваши изображения 
 magnet:?xt=urn:btih:C742C97A1EE676F1515C2A597AC337BC1078E2B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ PDF Reader Pro - это приложение для редактирования
 ```bash
 magnet:?xt=urn:btih:5DB92227B5A74499FD7196D1EFDB5DFCC9F7C02E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ Stats - это приложение с открытым исходным код�
 magnet:?xt=urn:btih:8A04FAD16B0FF36567F28DC015986069A6E97B91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Color Wheel 7.8 [Multi]
 ```bash
 magnet:?xt=urn:btih:ABA6D6DC4A9B4AAE21D879DA664E73E0EEB0925A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Malwarebytes Антивирус: Антивирус, защита от шпио�
 magnet:?xt=urn:btih:01EFF94DC3C5EF9BE44F2FB7C63898B5D65D5500
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ MWeb поддерживает расширенный синтаксис Github: 
 magnet:?xt=urn:btih:A99882A16A4A7DD075A8FE130D1F953C7E7A83DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Registry Finder - простая в использовании утилита д
 magnet:?xt=urn:btih:A7E67E55AF715BA645647300F95E7EC9DA679666
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 ```bash
 magnet:?xt=urn:btih:798DDB0BA95A24217DCB6131045C5EF2A3FCD964
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

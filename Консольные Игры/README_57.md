@@ -23,6 +23,8 @@ Star Trek: The Video Game [XBOX360] [PAL\NTSC\U] [Ru] [LT+2.0] (XGD3 / 16202) (2
 magnet:?xt=urn:btih:B4D4BDBD7842AE90E0E9EF2641BBB59C90F3584B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Star Trek: The Video Game [PS3] [USA] [En] [4.31 CFW] (2013)
 magnet:?xt=urn:btih:9FD90C85BA56BEF59322D0713A7FAF71657BF2DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Ferrari Challenge: Trofeo Pirelli - инновационная гоночная 
 magnet:?xt=urn:btih:4AE30353F2FCB8F785FE6B188D094644623660A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Binary Domain – командный шутер от создателей зна
 ```bash
 magnet:?xt=urn:btih:F35D04EAF9AD3B7E56E64D86DFF9374EBBB20A19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Just Dance 2015 - это отличный способ по-музыкально
 magnet:?xt=urn:btih:B21C237FCCBB2E091B413C37C7A14CF6B9D601DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ The Godfather II / Крестный Отец 2 [PS3] [EUR] [Ru/En] [2.52] [Cobra
 ```bash
 magnet:?xt=urn:btih:07249F602ABC252C034E8554090385B8077543EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Darksiders II [PS3] [EUR] [Ru/En] [4.21] [Cobra ODE / E3 ODE PRO ISO] (2012)
 magnet:?xt=urn:btih:6EA6745642784932FE12C9EB6350A878ED2C6BCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ Saints Row: The Third The Full Package [PS3] [USA] [Ru/En] [4.25] [Cobra ODE / E
 ```bash
 magnet:?xt=urn:btih:F4138F7399A0A7A468F47CE87513F509D876B6C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Dishonored - увлекательный и необычный экшен, в к�
 magnet:?xt=urn:btih:5E59329F899A375FA5515D8ED2704C4E7E02A708
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ Homefront [PS3] [EUR] [Multi7] [3.56] [Cobra ODE / E3 ODE PRO ISO] (2011)
 ```bash
 magnet:?xt=urn:btih:1A674E990C21935ACF9A75E69F470018FC3EA35D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ Score International Baja 1000: World Championship Offroad Racing [Wii] [NTSC-U] 
 magnet:?xt=urn:btih:A4D79BE4F76837440C3971B5888CFB72DF723B4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Trauma Center: New Blood [Wii] [NTSC] [ENG] (2007)
 ```bash
 magnet:?xt=urn:btih:7579C6627862EB24528B289774684F5C74CA8573
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:7579C6627862EB24528B289774684F5C74CA8573
 magnet:?xt=urn:btih:AAFA8C8CB937DC51A835230D93EDC271D531F751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:AAFA8C8CB937DC51A835230D93EDC271D531F751
 ```bash
 magnet:?xt=urn:btih:B8AB63921106EF048DC4D386AF283915C95705B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:B8AB63921106EF048DC4D386AF283915C95705B8
 ```bash
 magnet:?xt=urn:btih:9387056B3C5C89B589C5C81EBEDAC8EE6EDC21C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ Trauma Center: Second Opinion - римейк оригинальной игры �
 magnet:?xt=urn:btih:7670BE5D7CB90FB8A468BEE8F3FF9CD3240B861B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ Dragon's Dogma (2012) [PS3] [EUR] 4.11  [Cobra ODE / E3 ODE PRO ISO] [License] [
 ```bash
 magnet:?xt=urn:btih:E58BEB13C36F2BAAF442D0F1F1C3A0DEDC1D4B84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ Harry Potter and the Deathly Hallows: Part 1 / Гарри Поттер и Дар
 magnet:?xt=urn:btih:57354BE8BCA3736F49348D0CD1A7BEF1FF81F4B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ Harry Potter and the Deathly Hallows: Part 2 / Гарри Поттер и Дар
 magnet:?xt=urn:btih:E09AF6736D3E1CFE7E79C5BBF0EA4214C86C22CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ Tekken 5 продолжает традиции культового файтин
 magnet:?xt=urn:btih:685B33F156E38775EC5515BD793650DDF3BC577B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ Rango: The Video Game создана по мотивам одноименног�
 ```bash
 magnet:?xt=urn:btih:8F1CC9952580CB5B0760035C88122FD63D35A481
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ The Sims 2: Pets [Wii] [PAL] [Multi 5] (2007)
 magnet:?xt=urn:btih:451E8DC7B6AC5E0CD171B6FED1A79BFB1B855E37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:451E8DC7B6AC5E0CD171B6FED1A79BFB1B855E37
 ```bash
 magnet:?xt=urn:btih:9FDDA50FCBD1360AF9F56230EA8F8062085A8400
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:9FDDA50FCBD1360AF9F56230EA8F8062085A8400
 magnet:?xt=urn:btih:B13F01AA3C904661AA20180E22354612A4135A0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ LittleBigPlanet 2 / Little Big Planet 2 [PS3] [EUR] [Multi16] [3.50] [3k3y / Cob
 ```bash
 magnet:?xt=urn:btih:5ADB8AC0D1D95E2DDFD7F49FFF6863D128D05A0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +698,8 @@ GRID 2 [PS3] [EUR] [En] [4.40] [Cobra ODE / E3 ODE PRO ISO] (2013)
 ```bash
 magnet:?xt=urn:btih:05DD705B0C7CD44C6B93796C0B057ADB326CB600
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

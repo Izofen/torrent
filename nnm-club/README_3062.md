@@ -28,6 +28,8 @@ VA - Ретро Дискотека глазами диджеев Vol-2 (2012) [M
 magnet:?xt=urn:btih:20397A5DC9F01E6ACF0A6E0C2C64D308FFC440B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -59,6 +61,8 @@ Gunther Gobbel & Christian Greiner - Play For Pleasure. Finest Lounge Music (201
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -82,6 +86,8 @@ Gunther Gobbel & Christian Greiner - Play For Pleasure. Finest Lounge Music (201
 ```bash
 magnet:?xt=urn:btih:E486D498DE1C2CFB2D8EA3435D7B2948A54016C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ Madmen & Poets - Scandinavian Sunday (2010) 2CD [MP3|320 kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:27D4F62670E3B99278D6B8A0FDE8C7915EFB2488
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +151,8 @@ VA - Trance hits vol 2 (2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:8BE2A4D4B66CF7F6A5C0A4C355A83CE817A90E22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +185,8 @@ magnet:?xt=urn:btih:8BE2A4D4B66CF7F6A5C0A4C355A83CE817A90E22
 ```bash
 magnet:?xt=urn:btih:D42A09AC331D620A187D06702A63D1F31A5B9859
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +221,8 @@ Whisky Bar - Дура... (2008) [MP3|320 кб/с]<Funk, Punk, R&B>
 magnet:?xt=urn:btih:E4D74BF7E3BA3A9D1F7815FA848CB868188C45EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +248,8 @@ Braincell - Psychedelicious EP (2012) [MP3|320 кб/с]<Psy / Full On>
 ```bash
 magnet:?xt=urn:btih:D13BFF22A39680593AF72CC620A264C31A5FF82F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +278,8 @@ magnet:?xt=urn:btih:D13BFF22A39680593AF72CC620A264C31A5FF82F
 ```bash
 magnet:?xt=urn:btih:F9E6EA102F93A6B543F4513B001B81739DC53EB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +314,8 @@ Dancing Astronaut Radio presents Axis - Episode 01-04 (2012) [MP3|320 кб/с]<E
 magnet:?xt=urn:btih:54451919754A8AE4510522E4153998D3282FE746
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +340,8 @@ magnet:?xt=urn:btih:54451919754A8AE4510522E4153998D3282FE746
 magnet:?xt=urn:btih:C922906EC6CD1AF3A8783B6243214B0DF381FCD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +365,8 @@ magnet:?xt=urn:btih:C922906EC6CD1AF3A8783B6243214B0DF381FCD1
 ```bash
 magnet:?xt=urn:btih:9FF12C5473F7CD57BB51133F29F5E423553A6981
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +396,8 @@ magnet:?xt=urn:btih:9FF12C5473F7CD57BB51133F29F5E423553A6981
 magnet:?xt=urn:btih:91BCF12C0259CD7E4D608C263E309883CBAA21F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +421,8 @@ magnet:?xt=urn:btih:91BCF12C0259CD7E4D608C263E309883CBAA21F3
 ```bash
 magnet:?xt=urn:btih:CBC1701A22C22EE7F66C1CC493D74EB25658E258
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +457,8 @@ VA - NeРусский Шторм - 54 (2012) [MP3|320 кб/с]<Pop,Dance>
 magnet:?xt=urn:btih:D5AFE4607B2B6DF7A80ECFE5C24CBF4A010AC9D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +486,8 @@ magnet:?xt=urn:btih:D5AFE4607B2B6DF7A80ECFE5C24CBF4A010AC9D8
 ```bash
 magnet:?xt=urn:btih:35DD3E5D642158463733AFB373D6CA528772BE0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +522,8 @@ magnet:?xt=urn:btih:35DD3E5D642158463733AFB373D6CA528772BE0A
 magnet:?xt=urn:btih:81A9B0DEE539069A17A6E41BB3A877331878E908
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +547,8 @@ magnet:?xt=urn:btih:81A9B0DEE539069A17A6E41BB3A877331878E908
 ```bash
 magnet:?xt=urn:btih:30D2052DF62BDDB78BF110C897D8645ADF6B2EEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +577,8 @@ magnet:?xt=urn:btih:30D2052DF62BDDB78BF110C897D8645ADF6B2EEF
 ```bash
 magnet:?xt=urn:btih:E49A970804687B3F2F25A89501AD7ACE26A45FA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +613,8 @@ Dj DIESEL{BG} - Hangover (2012) [MP3|320 кб/с]<Club House, Progressive House>
 magnet:?xt=urn:btih:E4D708560A1D93E1D3BAB9D35A905D66BCCC507F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +647,8 @@ VA - Nation Of Trance Vol 1 (2012) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:492F79CBB2A42611195745CF06179B3D6A9A43EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +683,8 @@ VA - Ночная Авто Дискотека (2012) [MP3|192 кб/с]<Dance, Cl
 magnet:?xt=urn:btih:5E6778CDFC08DF03FD2EAD484BB0D378A3AAA13E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -674,6 +718,8 @@ VA - Чума-Дэнс (1995) [APE|Lossless]<Pop, pop-rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +745,8 @@ VA - Чума-Дэнс (1995) [APE|Lossless]<Pop, pop-rock>
 ```bash
 magnet:?xt=urn:btih:F9D143374878DF19214C85538A9CBDEBA4C91C05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -728,6 +776,8 @@ magnet:?xt=urn:btih:F9D143374878DF19214C85538A9CBDEBA4C91C05
 magnet:?xt=urn:btih:F538A2BAB06939F3CA62F34B57CA56ABAD9BEE8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -755,6 +805,8 @@ magnet:?xt=urn:btih:F538A2BAB06939F3CA62F34B57CA56ABAD9BEE8A
 ```bash
 magnet:?xt=urn:btih:4E55FCDDD5AE2F06F6C627827297AD7434DDAF23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

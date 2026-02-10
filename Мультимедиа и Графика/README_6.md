@@ -19,6 +19,8 @@ Total Movie Converter - многофункциональная программ�
 magnet:?xt=urn:btih:EAAE20DF28A4720AA58FABA28C1255CC68D41879
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Total Audio Converter - мощный конвертор всех музыкал�
 magnet:?xt=urn:btih:25664435D77D4C297511B74871A921E3A77F9BF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ CoolUtils Total Image Converter преобразует изображения в
 ```bash
 magnet:?xt=urn:btih:446677636798E2E9DF13B744EE8B7297CE34836D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Adobe Illustrator — это принятое в качестве отрасле
 magnet:?xt=urn:btih:04E3ED7B6ACD1547D096FEFB8CC8A553E5CE4978
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ PreSonus Studio One — Полноценный секвенсор(DAW) для с
 ```bash
 magnet:?xt=urn:btih:97FEFB13184000EA8079E7024D8D0309546AB7A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ PicPick - приложение, объединяющее в себе возмо�
 magnet:?xt=urn:btih:591A8C9DB4AD16E18ABA0D5E46A5222C107E2DAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ FastStone Image Viewer - просмотровщик, редактор и кон�
 ```bash
 magnet:?xt=urn:btih:D6E270A4A208EE08E6AC53E9D1F7C9D91E03FC23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ FastStone Image Viewer - просмотровщик, редактор и кон�
 magnet:?xt=urn:btih:902CB9AD2BB01CF3D7548F661C761D97091FF75E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Wave Arts - Power Suite 7 2025.7.17 VST, VST 3, AAX (x64) RePack by TCD [En]
 ```bash
 magnet:?xt=urn:btih:DE5BD33E547DAFBE59FC2489D35DCFC76184993B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ T-Racks 6 — это 62 прибора мирового класса для св
 magnet:?xt=urn:btih:5AC0C6BC501EA50E7DDB1327DA881702AD22AE30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Scaler 3 это уникальный и вдохновляющий MIDI-проц
 ```bash
 magnet:?xt=urn:btih:3D42621429C8AC3F1EDB1D2BB6C4460E8CA01C9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ FreeVimager 9.9.26 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:1C6EDE718B7671C11F08DBE1A42D60CF11FAEAB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ AVS4YOU Software AIO Installation Package — мощный мультимеди�
 ```bash
 magnet:?xt=urn:btih:2C02683FBD2FB2BED730284AA9F0478A2BCA3D5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Synapse Audio - The Legend HZ 2.0.2 VSTi, VSTi 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:72C2B545CFF35D697A7DDEE41B43A02EE3BA5043
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Synapse Audio - DUNE 3 3.6.4 VSTi, VSTi 3, AAX (x64) [En]
 magnet:?xt=urn:btih:21976A65EE4088A0EFF911954EC0108892857993
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ VSO ConvertXtoDVD - программа, предназначенная для п
 ```bash
 magnet:?xt=urn:btih:1617ADED1ADA7A38B9793255ADAA3CC66467BFE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ PhotoLine - простая в обращении программа, предс�
 magnet:?xt=urn:btih:E01DD91AD2A3B33B3089AF839800409096EDE1DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Nik Collection by DxO 8.1.101 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:17F37750C8556FE5C0314BE02AB8777D2F54DA14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Neuratron Photoscore Ultimate 6.1.0 Retail [Ru/En]
 magnet:?xt=urn:btih:F685099B47510B78097454643C3B5E7B50D0403C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Clip Studio Paint EX (ранее Manga Studio EX) - это ведущее в м�
 ```bash
 magnet:?xt=urn:btih:097DD2D93B4C0358CEEA50394A304C7494123BF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ Moho Pro – мощная программа для создания качес�
 magnet:?xt=urn:btih:FEB41D6257D481056EA49B5D61DF1355BFFAE07D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ IconCool Studio Pro - обновленная версия программы д�
 ```bash
 magnet:?xt=urn:btih:18F748F5C73318804C92E15DC4719917D31865E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Photo Supreme — вспомогательная программа для вл�
 magnet:?xt=urn:btih:05F3557F60715F186E1E83E9B6B066CF5E82E560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Cyberlink PhotoDirector Ultra — многофункциональный ред�
 ```bash
 magnet:?xt=urn:btih:F2A9199968C43FE9E24724B4753534B551B055F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ CyberLink PowerDVD Ultra 24.0.0716.62  (x64) RePack by TheBig [Multi/Ru]
 magnet:?xt=urn:btih:CD666EF1CCA491864E8B136EB4143B3948C3D90F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Irix HDR Pro — это инновационный редактор на баз�
 ```bash
 magnet:?xt=urn:btih:BB942738CDC03C874FF2677A59C828F26B29C6FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

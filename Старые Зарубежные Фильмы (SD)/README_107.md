@@ -1,28 +1,3 @@
-###  Публикация: 1256309   (356563) от 21.10.2018
-
-Полицейский (Легавый) / Un conde (1970) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356563.jpg" />
-</div>
-
-
-###  Подробнее
-
-По рассказу Пьера-Виала Лезу "Смерть легавого".
-Расследуя убийство владельца бара, в перестрелке погибает честный полицейский. Понимая, что законными способами наказать убийц напарника невозможно, детектив Фавенен прибегает к незаконным…Производство: Франция, Италия / Empire Films, Stéphan FilmsЖанр: Триллер, Драма, КриминалРежиссер: Ив БуассеАктеры: Мишель Буке, Франсуаза Фабиан, Джанни Гарко, Мишель Константен, Энн Каррер, Рюфюс, Тео Сарапо, Анри Гарсен, Пьер Массими, Бернар ФрессонПеревод: Профессиональный (многоголосый закадровый)Субтитры: ОтсутствуютПродолжительность: 01:34:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64DE29479EAC5606A5DA62988C0B77B454884297
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 255201   (356797) от 07.11.2010
 
 Зловещие мертвецы / The Evil Dead (1981) BDRip
@@ -43,6 +18,8 @@ magnet:?xt=urn:btih:64DE29479EAC5606A5DA62988C0B77B454884297
 ```bash
 magnet:?xt=urn:btih:ED811DA418946AFC410BF6F74C59310B69050EF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +45,8 @@ magnet:?xt=urn:btih:ED811DA418946AFC410BF6F74C59310B69050EF1
 magnet:?xt=urn:btih:32AC1D6AF0AE89D2A1C7F54FE768B236045DCDB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +70,8 @@ magnet:?xt=urn:btih:32AC1D6AF0AE89D2A1C7F54FE768B236045DCDB3
 ```bash
 magnet:?xt=urn:btih:14873217F7C55F3E97DE83B94344B925904E66DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +97,8 @@ magnet:?xt=urn:btih:14873217F7C55F3E97DE83B94344B925904E66DB
 magnet:?xt=urn:btih:C0F3362ACEAEF106070E54F7B8BD5EB5496CD6C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +123,8 @@ magnet:?xt=urn:btih:C0F3362ACEAEF106070E54F7B8BD5EB5496CD6C1
 magnet:?xt=urn:btih:7CE47E149B10CACD0EDF4AF13149D3C61907F69E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +148,8 @@ magnet:?xt=urn:btih:7CE47E149B10CACD0EDF4AF13149D3C61907F69E
 ```bash
 magnet:?xt=urn:btih:E612CC4D5E903EB3C2F06374A2716FF08FF31268
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +177,8 @@ magnet:?xt=urn:btih:E612CC4D5E903EB3C2F06374A2716FF08FF31268
 magnet:?xt=urn:btih:7297B07DDFD277E178B52D5FC2F32B19BC6E6599
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +202,8 @@ magnet:?xt=urn:btih:7297B07DDFD277E178B52D5FC2F32B19BC6E6599
 ```bash
 magnet:?xt=urn:btih:CE100E671A9F97351BE4BBD94F65B484F6AC9BA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +229,8 @@ magnet:?xt=urn:btih:CE100E671A9F97351BE4BBD94F65B484F6AC9BA8
 magnet:?xt=urn:btih:766BEDAB9D3F5B89A9012201896E55988D5F2245
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +254,8 @@ magnet:?xt=urn:btih:766BEDAB9D3F5B89A9012201896E55988D5F2245
 ```bash
 magnet:?xt=urn:btih:121B977D7FB7EBB1657D5BAD412B02F9356F99CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +281,8 @@ magnet:?xt=urn:btih:121B977D7FB7EBB1657D5BAD412B02F9356F99CA
 magnet:?xt=urn:btih:1F6915316A9D18C9F517A5C4BBFA6C6EB067E305
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +306,8 @@ magnet:?xt=urn:btih:1F6915316A9D18C9F517A5C4BBFA6C6EB067E305
 ```bash
 magnet:?xt=urn:btih:54C00C3693508E1FDCAE627A47CDDB8076C65FA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +333,8 @@ magnet:?xt=urn:btih:54C00C3693508E1FDCAE627A47CDDB8076C65FA8
 magnet:?xt=urn:btih:27D59E13A363CF47F6A29DC29D6C9BB7E049FD54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +358,8 @@ magnet:?xt=urn:btih:27D59E13A363CF47F6A29DC29D6C9BB7E049FD54
 ```bash
 magnet:?xt=urn:btih:49446E09D617E19E4E6BB5FC1FF6CBBC44852A22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +385,8 @@ magnet:?xt=urn:btih:49446E09D617E19E4E6BB5FC1FF6CBBC44852A22
 magnet:?xt=urn:btih:A81EB381E1C42316FB8A213B3DF9C5A9D5AB7481
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +410,8 @@ magnet:?xt=urn:btih:A81EB381E1C42316FB8A213B3DF9C5A9D5AB7481
 ```bash
 magnet:?xt=urn:btih:20634CE0E21916E07ABAF6638B1C72F98C320907
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +437,8 @@ magnet:?xt=urn:btih:20634CE0E21916E07ABAF6638B1C72F98C320907
 magnet:?xt=urn:btih:D57586503B4CB4BC3D71E2CA204010CB23A1BA29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +462,8 @@ magnet:?xt=urn:btih:D57586503B4CB4BC3D71E2CA204010CB23A1BA29
 ```bash
 magnet:?xt=urn:btih:16F56B78DD6F0F7E047330E1F1A5C1D922EDEC8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +490,8 @@ magnet:?xt=urn:btih:16F56B78DD6F0F7E047330E1F1A5C1D922EDEC8F
 magnet:?xt=urn:btih:8631EAAFC3280349CEC71A0B836EFD5A4C9A4CFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +515,8 @@ magnet:?xt=urn:btih:8631EAAFC3280349CEC71A0B836EFD5A4C9A4CFC
 ```bash
 magnet:?xt=urn:btih:6FE8DD0C0D16A1F2C40E661CAD7C54BB7B9D2CFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +543,8 @@ magnet:?xt=urn:btih:6FE8DD0C0D16A1F2C40E661CAD7C54BB7B9D2CFB
 magnet:?xt=urn:btih:94F42A5C64295D3298DF6BA04B9C100EC1DACE80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +569,8 @@ magnet:?xt=urn:btih:94F42A5C64295D3298DF6BA04B9C100EC1DACE80
 ```bash
 magnet:?xt=urn:btih:28A725EE8F3682A8516147A93348F9C6CC2AAAA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +598,8 @@ magnet:?xt=urn:btih:28A725EE8F3682A8516147A93348F9C6CC2AAAA3
 magnet:?xt=urn:btih:87F5E05C49744DFE18037A37954176F692FA621B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +623,8 @@ magnet:?xt=urn:btih:87F5E05C49744DFE18037A37954176F692FA621B
 ```bash
 magnet:?xt=urn:btih:50E40CCD25F2333E0F30D13C060C539F34F41B79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +650,34 @@ magnet:?xt=urn:btih:50E40CCD25F2333E0F30D13C060C539F34F41B79
 ```bash
 magnet:?xt=urn:btih:4F0D1856476327254459A1319F00C58D64126B60
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 54496   (360435) от 07.11.2011
+
+Туз / Asso (1981) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_360435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый картежник по прозивщу Туз (Челентано) женится и объявляет, что завязывает с картами, но в город приезжает на крупную игру Марселец. В этот вечер Челентано было не до любви и не до сна. Жена относится к страсти мужа с пониманием, и тот уходит играть. Страшно блефуя, он выигрывает кучу денег, но игра продолжается, а всем известно, что азартные игры до добра (   Читать дальше...   )Жанр: итальянская комедияРежиссер: Франко Кастеллано /Franco Castellano/Актеры: Адриано Челентано /Adriano Celentano/, Эдвиж Фенек /Edwige Fenech/, Ренато Сальваторе /Renato Salvatori/, Сильва Косина /Sylva Koscina/, Пиппо Сантонастазо /Pippo Santonastaso/, Джанни Маньи /Gianni Magni/, Мемо Диттоньо /Memo Dittongo/, Элизабетта Вивиани /Elisabetta Viviani/, Дино Кассио /Dino Cassio/, Сандро Гиани /Sandro Ghiani/, Раффаэле Ди Сипио /Raffaele di (   Читать дальше...   )Перевод: двухголосый профессиональныйПродолжительность: 1:30:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

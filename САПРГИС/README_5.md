@@ -19,6 +19,8 @@ AutoCAD Architecture — это версия AutoCAD, созданная спе�
 magnet:?xt=urn:btih:938B52999B03EF1E674EF55A9B985EA96EDD381E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ AutoCAD Electrical — это AutoCAD для проектирования эле
 ```bash
 magnet:?xt=urn:btih:0568A3ED71F7437BABFA2DD26FD98CF26C0DC755
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ AutoCAD Mechanical – это AutoCAD для машиностроительно�
 magnet:?xt=urn:btih:1D5BA43A88737A779CC22F8541F9225F3C7685CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Autodesk AutoCAD Plant 3D 2019 (M046.04)  [Ru/En]
 ```bash
 magnet:?xt=urn:btih:804CDDDE0EE711637D4BBE071125C7C50B1E0BA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Autodesk Inventor – содержит полный набор гибких ин
 magnet:?xt=urn:btih:AB25DFEB43B7489D6777A873131930F3576F773D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ AspenTech AspenONE 8.8 [En]
 ```bash
 magnet:?xt=urn:btih:DAAF9F7E3A09A6D7701153DED1A8CBADB21F323A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Autodesk СПДС модуль – новое дополнение к проду
 magnet:?xt=urn:btih:954AD9F4D2FC53E11CE0624BDF6B26D7A046A313
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ IMSI Turbocad Pro Platinum - это качественная профессио�
 magnet:?xt=urn:btih:FF623EE00E409BF3C1C3759D863430378F83EAF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ Bentley MicroStation CONNECT Edition 10.00.00.25 [En]
 ```bash
 magnet:?xt=urn:btih:864EC14922B51ABB9A0FF257A30712B984E4FAF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:864EC14922B51ABB9A0FF257A30712B984E4FAF6
 magnet:?xt=urn:btih:0AAB49730337CD48FEEF47B6FF4834A1820A4BB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ AutoCAD® Raster Design является надстройкой. Для уста
 magnet:?xt=urn:btih:B3BC8B505217278357E5084A652B5BA012BCD1EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ BricsCAD V18 – единственная в мире САПР, которая �
 ```bash
 magnet:?xt=urn:btih:2C33776607605C16F88F8C0C95BF4E037677C468
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ T-FLEX CAD - профессиональная конструкторская п�
 magnet:?xt=urn:btih:A00A3F1B1B87D78F0278C1E0857163DC169D55C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Autodesk EAGLE - это комплексное средство для разр�
 ```bash
 magnet:?xt=urn:btih:B384D9D831796CA560A5326C250773083F6C752F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Autodesk AutoCAD Design Suite Ultimate 2016 (x86, x64) [En]
 magnet:?xt=urn:btih:1DCC6D9BD159C67491823DBB5B30236D422C9FFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Nemetschek Allplan 2015 (30 Years Edition) Build 28.501.4211.1019 (x64) [Multi/R
 ```bash
 magnet:?xt=urn:btih:3C1F589963DCC06F452F0641E8507300B60539F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ AutoCAD Civil 3D - программа, базирующаяся на платф�
 magnet:?xt=urn:btih:00B354F86F51AEB4100D4D00EC3F01B773719978
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Autodesk Advance Steel предназначен для проектирован�
 ```bash
 magnet:?xt=urn:btih:554966CF35631B837664C71B687A9EBE6DCC13EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Autodesk Robot Structural Analysis Professional 2017 - программный к
 magnet:?xt=urn:btih:7E5833F2A9545BB41DEE6B35077901FFB121CDD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ AutoCAD 2018 – это больше, чем проектирование. Пр�
 ```bash
 magnet:?xt=urn:btih:0485F33248FE8664A6607FBFBCF5EFBF33B8DF8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ StairDesigner 7.05a [Multi]
 magnet:?xt=urn:btih:9624EE739F8EEF2C50BACDCEA33FEA17E0E09704
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Delcam PowerMILL – это независимая CAM-система для п�
 ```bash
 magnet:?xt=urn:btih:AEF3F805859C4832AA507EC3E1B85FDAD30F80DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ MapInfo Professional 9.0 Portable [RUS]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ MapInfo Professional – географическая информационна
 ```bash
 magnet:?xt=urn:btih:4C8B8020F156728123401EDBEDF2CC5B26C02CFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ MapInfo Professional – географическая информационна
 magnet:?xt=urn:btih:A6D8AD8DCD969360E359BDC127072D64086497A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Autodesk Inventor Professional - 3D-САПР для машиностроител
 ```bash
 magnet:?xt=urn:btih:BDF5386F0B0D588F1EB240214861C8674D66CBA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

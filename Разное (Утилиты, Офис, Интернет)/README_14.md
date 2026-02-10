@@ -19,6 +19,8 @@ Aiseesoft Screen Recorder 2.7.18 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:DAD7D69B4A800790873B459B118556C323A0F29F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ YUMI (Your Universal Multiboot Installer) - бесплатная програм�
 ```bash
 magnet:?xt=urn:btih:629F3AB7E7E43A9B86894050174DD9C74D0B563F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Directory Lister - полезная программа, которая позв�
 magnet:?xt=urn:btih:A86E456CF989AAFA13BEEF480BD375AD30C204A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Directory Lister - полезная программа, которая позв�
 magnet:?xt=urn:btih:E0C64FB846F9F618F5946F6820C316E40C592ABF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Dual Monitor Auto Mouse Lock - это инструмент, который по�
 ```bash
 magnet:?xt=urn:btih:5BEE61F034E8C857F30FB44CA4A1CF8BE55AFD7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ LogViewPlus значительно облегчает просмотр запи�
 magnet:?xt=urn:btih:5F13BA8C4E23641A596F82E7DB8CA72A0AC2AD94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ HitPaw Screen Recorder — популярная программа, разраб
 magnet:?xt=urn:btih:405E1501DE5B7F82DA8F60C708BBD10C83DFB79B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Screen Capture — это популярное и простое в исполь
 ```bash
 magnet:?xt=urn:btih:04B8A503B30E9145EEBF6637875CF9DF43283A76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Ekahau AI Pro 11.8.7 [Multi]
 magnet:?xt=urn:btih:0C00A7EA1F8C3326EEEA902B86BADCE95C023619
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Alfa eBooks Manager - одна из самых популярных програ
 magnet:?xt=urn:btih:D317ACD4019639533A477B6B7CF37BC43421876B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ IDPhotoStudio - интересная программа для создания 
 ```bash
 magnet:?xt=urn:btih:48C5F418DC8DA5A95D084A68C82C1D3FFD42ACB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ OBS Студия - бесплатное программное обеспече�
 magnet:?xt=urn:btih:B139AB1F866A5DF2B8B638C50563F4EB409C0E40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ MediaInfo — позволит узнать техническую информ�
 ```bash
 magnet:?xt=urn:btih:EF6737815CC280B1B105E94A928AADA2270988A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Quick Wallpaper — это программное обеспечение, кот
 magnet:?xt=urn:btih:6D79E26F2BD80128C55FF6D8553990F3FD956173
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:97E9AC33020FF7A7565EA93F245DEBB6DEA4676B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:AD5FEB261B69D0D34F7270B066A092436D8472E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Fast Screen Recorder — это программное обеспечение д
 ```bash
 magnet:?xt=urn:btih:582F7E34FF5B8971B5EA4A7523EA2139DAF58EB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ FavBackup – это простая в использовании утилита
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ MSAct++ 2.10 Portable by Ratiborus [Ru]
 ```bash
 magnet:?xt=urn:btih:A9900CEF54BD2E4B1033FA8A5D88656A1D4526A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ UltraSearch Professional находит файлы и папки на локал
 magnet:?xt=urn:btih:AAFFB3266374FA7501EF305C705181181E8CA29F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Microsoft Activation Scripts (MAS) 3.8 portable [En]
 ```bash
 magnet:?xt=urn:btih:314D2A914CAAE3D077E0BBE5DDFBF745FFCF43C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ PIDKey Lite предназначена для просмотра, обновле
 magnet:?xt=urn:btih:FB447E667629B29ED4A60673D10D0A4E03030703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ EveryLang - маленькая программа с большими возмо
 ```bash
 magnet:?xt=urn:btih:B05F463F20701652075A35E9EAADE24FFAD005E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ True Launch Bar 8.0 + portable [Multi/Ru]
 magnet:?xt=urn:btih:45FB4C55808CD801E0F6349A690415724766F6E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ TreeSize Professional 9.6.2.2158 [Multi/Ru]
 magnet:?xt=urn:btih:44C79DD3E986F9B078C84F6BF91D818A06BAA454
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:44C79DD3E986F9B078C84F6BF91D818A06BAA454
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

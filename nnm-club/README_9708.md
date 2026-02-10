@@ -22,6 +22,8 @@ VA - House Variety: Deep Edition (2017) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:CEC748BF16C1022532DFAEC6A0C12A975718140C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - Ori Uplift & Nick Turner - Uplifting Only 248 (2017) [MP3|320 Kbps] <Trance
 magnet:?xt=urn:btih:8D1E59FC895C8852A291B8B32ABA9C95B7B80707
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ R.E.L.O.A.D. - Macumba (Original Mix) (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:03EF1CCBEC1420FA7DBEABD59DED32743720ACF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ VA - Dance Hits Vol 3 (2017) [MP3|320 Kbps] <Trance,Progressive House>
 magnet:?xt=urn:btih:838749A66E1D5B6133BEB8EF829C527AA2D9DE40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Karim Farouk - Lost Soul (Original Mix) (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:7855562CA1243370FE60C30BA7795B6423C45408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ Dunkan - Dreamer (2017) [MP3|320 Kbps] <Trance,Progressive House>
 magnet:?xt=urn:btih:B0EAEC4995BF74B74792E13F0254A9F155F583BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:B0EAEC4995BF74B74792E13F0254A9F155F583BF
 ```bash
 magnet:?xt=urn:btih:D73958176A853153A4572E5490792959D9042731
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:D73958176A853153A4572E5490792959D9042731
 magnet:?xt=urn:btih:34D661527354FBDD7B5F6DF8D70D6BD84951217D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:34D661527354FBDD7B5F6DF8D70D6BD84951217D
 ```bash
 magnet:?xt=urn:btih:D338604979DF186FD79BB2EC40A862FB3B52C081
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:D338604979DF186FD79BB2EC40A862FB3B52C081
 magnet:?xt=urn:btih:20843085ED15BB219B75F4102442F12615371B23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:20843085ED15BB219B75F4102442F12615371B23
 ```bash
 magnet:?xt=urn:btih:DE4EA4F157FB5A9CB86104904892AC31E48E0AE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ ArtCraft | Цифровой Рисунок Online (2019) PCRec
 magnet:?xt=urn:btih:C82769EEEDE80EC9B7CE794A46FF992CB88B77F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ Skillbox | After Effects с нуля до PRO (2019) PCRec
 magnet:?xt=urn:btih:66FD740A92D4EC841429157247797E1A1A47F5EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ Skillbox | ArchiCAD для дизайнеров интерьера (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:E3C50BEF89F1FA1180C471F0F9B297CFCB1D75D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ AIC, Skillbox и Тэглайн подготовили для вас компл�
 magnet:?xt=urn:btih:1948FDFE1690B527BAA03D14A8A89DB7B3752D6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ Skillbox | Веб-дизайн с нуля до PRO (2018) PCRec
 ```bash
 magnet:?xt=urn:btih:AB7F3A7F64FC59AF88325F18275D370133F35F4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ Skillbox, Логомашина | Дизайнер логотипа и фирме
 magnet:?xt=urn:btih:1E6BFCDD67AFFC41637C4B2E42DA2BEC701AE1DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:1E6BFCDD67AFFC41637C4B2E42DA2BEC701AE1DB
 ```bash
 magnet:?xt=urn:btih:907B5544AAE519C9C31DE107A1AB9AA74397E744
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:907B5544AAE519C9C31DE107A1AB9AA74397E744
 magnet:?xt=urn:btih:7965F693314D602FDD0A94AD46CDFF125452C67D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ Windows 10 v20H2 plus v2004 by StartSoft Modernization 08-2020 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:69544147684F771D43C3F792597F60A5F29E16C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:69544147684F771D43C3F792597F60A5F29E16C2
 magnet:?xt=urn:btih:5A448A616F9F792B083FAC2FFA6E927CD33A2B40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:5A448A616F9F792B083FAC2FFA6E927CD33A2B40
 ```bash
 magnet:?xt=urn:btih:4808F8476625B4274E2AECEA6B1A8101890407CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:4808F8476625B4274E2AECEA6B1A8101890407CC
 magnet:?xt=urn:btih:56656126038951E483BB60386C0CFAB1845D5C6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:56656126038951E483BB60386C0CFAB1845D5C6A
 ```bash
 magnet:?xt=urn:btih:04C7296172D34BA6CC3252CC8C63D074E4953B6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +664,8 @@ Major 2nd (2020) | Второй Мэйджор [ТВ-2] [2020, TV, 25] WEBRip 72
 magnet:?xt=urn:btih:0335A31004DEC58BE9AEB64D2E96CA6E316931C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:0335A31004DEC58BE9AEB64D2E96CA6E316931C5
 ```bash
 magnet:?xt=urn:btih:D03873A9188E08116BA66A2D2B5C355F7F6B667F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

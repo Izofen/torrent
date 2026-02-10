@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:7F3E2F38CAA7032F08883DE1A76C11746F9C25D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:7F3E2F38CAA7032F08883DE1A76C11746F9C25D6
 magnet:?xt=urn:btih:DBF3EE09E8A43E6954BCFBFFA7CA7150B334703E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:DBF3EE09E8A43E6954BCFBFFA7CA7150B334703E
 ```bash
 magnet:?xt=urn:btih:B4CB7392DF0CA7AF6044EE7C40EF1F074564C45C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:B4CB7392DF0CA7AF6044EE7C40EF1F074564C45C
 magnet:?xt=urn:btih:6902524F73149D0689CE6D2C012CD9AD06BA9402
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:6902524F73149D0689CE6D2C012CD9AD06BA9402
 ```bash
 magnet:?xt=urn:btih:B318CE484964552020879A41216C0F683CD97A92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:B318CE484964552020879A41216C0F683CD97A92
 magnet:?xt=urn:btih:9613020715849AA72935B3CBD919D6CEAA3D5195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Permute - очень простой видео конвертер с миним�
 magnet:?xt=urn:btih:6B868860B504E1AF54E986BFFC1F92F0AAFB8C7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:6B868860B504E1AF54E986BFFC1F92F0AAFB8C7F
 ```bash
 magnet:?xt=urn:btih:43CA1582C8AB760CC1CF20CD2E4C9A5166BA382F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Guns N' Roses - Greatest Hits (2010) 2CD [APE|Lossless]<Rock>
 magnet:?xt=urn:btih:CF47E1A95C25DC6516B2CDB7D3DD852F78A17A89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:CF47E1A95C25DC6516B2CDB7D3DD852F78A17A89
 ```bash
 magnet:?xt=urn:btih:B80E83475EAAB9ACC44217768EF1B640AD88B0D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ NOIRESOR - Imprinted Memories (2022) авторская раздача [MP3|320 
 magnet:?xt=urn:btih:E48EF652032FE58B824E1F161298C21927D5F8CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ Domination - Infants Of Thrash (2015) [MP3|320 кб/с] <Thrash Metal>
 magnet:?xt=urn:btih:486A97F70D896BC0D2D099BB066D4C74DDF66A23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:486A97F70D896BC0D2D099BB066D4C74DDF66A23
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ SnapMotion имеет два режима:
 magnet:?xt=urn:btih:29EFCF765EBE3D8601304C0E096E055C220A4AFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:29EFCF765EBE3D8601304C0E096E055C220A4AFA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ Delta Force: Black Hawk Down / Delta Force: Операция "Черный Яс�
 magnet:?xt=urn:btih:1CE6421DF4DB454C2504F3775CE95D864699FC78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ ISO Workshop – небольшая программа для работы с о
 ```bash
 magnet:?xt=urn:btih:2EB745C18E00E0C42773CB1A0AAEADD4EA322D11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ Windows-Defender (По умолчанию выключен. Добавлен п�
 magnet:?xt=urn:btih:C1B33C5BFB94FB1ADED87348D5367F8AE9282778
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:C1B33C5BFB94FB1ADED87348D5367F8AE9282778
 ```bash
 magnet:?xt=urn:btih:9D69CFEA06CB395EF73D0CA2584A20823FDB00AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:9D69CFEA06CB395EF73D0CA2584A20823FDB00AD
 ```bash
 magnet:?xt=urn:btih:2C21043855F42DC80804BCFABE73130CDCC36669
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:2C21043855F42DC80804BCFABE73130CDCC36669
 magnet:?xt=urn:btih:77B9D0CB07E6F4E5776AD1986742696DB4E74A4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:77B9D0CB07E6F4E5776AD1986742696DB4E74A4B
 ```bash
 magnet:?xt=urn:btih:4E99AAFCC0E1D60C51EC0437119976C893101312
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +618,8 @@ VA - The Best Of Suanda Voice 2018 (Mixed By Dennis Graft) (2018) [MP3|320 Kbps]
 magnet:?xt=urn:btih:C93965510120586C9A1CBA2CA01DDCE131798095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +644,8 @@ magnet:?xt=urn:btih:C93965510120586C9A1CBA2CA01DDCE131798095
 magnet:?xt=urn:btih:5709316CC19F815D9ED944F47A103EDB6ACDD521
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ magnet:?xt=urn:btih:5709316CC19F815D9ED944F47A103EDB6ACDD521
 ```bash
 magnet:?xt=urn:btih:058BEFD66F602ADD60B8AE89A9FE060489D72000
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +698,8 @@ Birth Asphyxia - Human Obelisk (2012) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:F4E09CCBDF5CC8C5B8EE44A3AC33A31A201DD65F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

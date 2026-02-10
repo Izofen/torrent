@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:03111C6F0085A6030A56D6EDB630747F19F6341F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Thinknetica Pro, Евгений Фатеев | Подготовка к собе�
 ```bash
 magnet:?xt=urn:btih:A7418DEED7ED831DC871FE07537A00A05C458F9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ CG Cookie, Kent Trammell | Short Film Character Production in Blender (Creating 
 magnet:?xt=urn:btih:3A481B23553C63E4A8EAA95BE7C87A467C7D5D12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Sketchpark, Мария Мусиенко | Запредельная иллюст�
 ```bash
 magnet:?xt=urn:btih:C037FD684F5ABFFCEBF052A4AB77B6339ACB8185
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:C037FD684F5ABFFCEBF052A4AB77B6339ACB8185
 magnet:?xt=urn:btih:2DFA088B109A124D741B28CC5290C462034817AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ The Complete Cybersecurity Bootcamp, 2nd Edition - это ваше полное 
 ```bash
 magnet:?xt=urn:btih:47F7B3C87B0D6C45AF4B7F0D0C9E60BD2CED097C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:47F7B3C87B0D6C45AF4B7F0D0C9E60BD2CED097C
 magnet:?xt=urn:btih:0F4BFB213FE4A4E7BD5532135F566CE1AD6CBA4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ Pluralsight, Sophie Jameson | CINEMA 4D UV Mapping Fundamentals (2018) PCRec [EN
 magnet:?xt=urn:btih:16FD4EEEA57CA6244B2427EA4D5550E419C1A76A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ Cut&Sew | Курс Нижнее бельё 2.0 (2022) WEB-DL
 ```bash
 magnet:?xt=urn:btih:11D268C62F2DD3FDAF40418ADFE80D76A2212FD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:11D268C62F2DD3FDAF40418ADFE80D76A2212FD2
 ```bash
 magnet:?xt=urn:btih:B542DF541ACAC139A57B594A9C5DD79B77ADD71B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ Udemy, Lindsay Marsh | Graphic Design Masterclass - Learn GREAT Design (2022) WE
 magnet:?xt=urn:btih:BFB680003384D215388E2478FB88DC3A479C81BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:BFB680003384D215388E2478FB88DC3A479C81BD
 magnet:?xt=urn:btih:F02A3302FCCC0839EF075783D8A0117554BBF0A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ Udemy, Anthony Alicea | Understanding HTML and CSS (2022) WEB-DL [EN / EN Sub]
 ```bash
 magnet:?xt=urn:btih:9C9A5737EF49FFD3BE86D602AF59DA640AE9D29A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ Udemy, Maximilian Schwarzmüller | JavaScript Unit Testing - The Practical Guide
 magnet:?xt=urn:btih:17E103ADD63B72D84F8B954A17DC8C6A62206018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ The Gnomon Workshop, Vitaly Bulgarov | Robotic 3D Design for Entertainment (2018
 ```bash
 magnet:?xt=urn:btih:24690DB4F08E2E519BBF05A66F7A8834C4DFC079
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ CGMA, Nicolas Weis | Environment Design for Animation Workshops (2016) PCRec [EN
 magnet:?xt=urn:btih:4CCF55EC29A2854D58C4E00C366AFBEC14DB3359
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ The Gnomon Workshop, Jason Shum | Combat Animation for Games (2017) PCRec [EN, R
 ```bash
 magnet:?xt=urn:btih:91F25FF67F284080C5519DBDC6B911B334AAF317
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ Allegorithmic, Daniel Thiger | Creating Photorealistic Procedural Materials in S
 magnet:?xt=urn:btih:02712CFCB5B7B343E6858FE4F1BDF9576682FCE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ Pixel Front, Wesley Versteeg | An introduction to vellum grains, RBD & colliders
 ```bash
 magnet:?xt=urn:btih:F159A770270BB726062090F3148BA16DAA2380CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ Freelance Mastery, Brad Traversy, Kyle Prinsloo | Freelance Mastery For Develope
 ```bash
 magnet:?xt=urn:btih:D0BCB2DD092A0C10FEF68F30981852A4F961BD8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:D0BCB2DD092A0C10FEF68F30981852A4F961BD8F
 magnet:?xt=urn:btih:84002F6FAE17D885217642C119716EBB766A39CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ EC-Council, Greg Hirsch | Certified Ethical Hacker CEH v11 (2021) PCRec [AD] [EN
 ```bash
 magnet:?xt=urn:btih:B38A5DFE0BDEB46DB2D12B1FBA6D181313790C41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ Enterclass, Ольга Гусева | Весна (2023) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:950FBC21510343DE00FCF541B8991B8C4A1DE152
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ Skillshare, Tortor Smith | Stop Motion Cooking: How To Cut Anything (Even Batter
 magnet:?xt=urn:btih:9FBF464D942A74FD99634BA6E9CC60D328195F0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ Watermedia, Татьяна Ширбидова | Акварельные прак�
 magnet:?xt=urn:btih:0ED0009D9062DF3F32D607FB44FCF556F6445E22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ Udemy, Greg Wondra | Unreal Engine: Create an Arcade Classic! (2021) PCRec [EN /
 ```bash
 magnet:?xt=urn:btih:FCE3962C285C3306B39A42CCACD2EC18710D822D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

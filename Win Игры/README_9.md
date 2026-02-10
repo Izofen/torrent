@@ -19,6 +19,8 @@ Missing Hearts: Crimson Cruise (2025) [Multi] (1.0) Unofficial [Collector's Edit
 magnet:?xt=urn:btih:3D52ADAAA7B3073800B15965FD21E52D3AB64606
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Myth Finders / Искатели мифов (2025) [Ru] (1.0) Unofficial [Collect
 ```bash
 magnet:?xt=urn:btih:80091B469DA6E05EF8D054CE4A26582E44F00362
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Lost Eidolons – пошаговая тактическая ролевая иг�
 magnet:?xt=urn:btih:57B701F7644FE0A402B92DDAF9FC207798E43EDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Tokyo Underground Killer (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:DFD3A054CBD21580C06449FCBF2E696CE5461D31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ RoadCraft (2025) [Ru/Multi] (4.1.PATCH.529928/dlc) Repack Wanterlude
 magnet:?xt=urn:btih:2CFD923488F6225DA620CA997116AE416893283B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.1.0a) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:85DD219F011B1F7D3BFD090D6D4F98364BA1F0B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Cronos: The New Dawn - это новое слово в жанре survival horro
 magnet:?xt=urn:btih:9352D58F4E490E315107A16F6494E7BE1717768E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Dead Reset (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:89D03F89230429B80D9B32CB97C6431AD235F246
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Gas Station Simulator - это все о ремонте, развитии и э�
 magnet:?xt=urn:btih:10010A13E09C354123DF7E5047DB6E96586F5214
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ KeeperRL - симулятор с элементами рогалика, в ко�
 ```bash
 magnet:?xt=urn:btih:C3F264BB42D8711756786CD560D95D9BB3522194
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Riftbreaker (2021) [Ru/Multi] (Exe:1101 Data:732/dlc) Repack Let'sРlay [Com
 magnet:?xt=urn:btih:DDFCD1F99F1161025B54B71A56BBF0A263BF42E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Elder Scrolls IV: Oblivion Remastered представляет собой п
 ```bash
 magnet:?xt=urn:btih:F8ACBA3F9827DA4F7A442187753BF6C1F54A8AFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Metro Simulator (2019) [Ru/Multi] (5.1c) License GOG
 magnet:?xt=urn:btih:9268648F3D3A4388025D82FD6FA458718A481E88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Captain of Industry (2022) [Ru/Multi] (0.7.9) Repack seleZen [Early Access]
 ```bash
 magnet:?xt=urn:btih:F9FC8B361773ECE43EB35051DC5A90C5EC75FEBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Procession to Calvary – приключение, выполненное в 
 magnet:?xt=urn:btih:82258896EEBC691A781BD6BB4421FD20F7EB784E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Antioma (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6C285028D71334CB27A89C5FE8711CC17693457F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Infestation: Origins (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 magnet:?xt=urn:btih:2588504CCB905EEC053BBD2AC5043A6ECE1E8F33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Dream Engines: Nomad Cities - это градостроительный симу
 ```bash
 magnet:?xt=urn:btih:C39C3FD32D98CA77661CDA28D2ACFC02D61028DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Metro Simulator 2 - уникальная игра, в которой предс�
 magnet:?xt=urn:btih:C75C9B0AE8D012236E53531F8BC1B54C477812F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ X-Morph Defense (2017) [Ru/Multi] (SVN_29109.TC_129.DATA_12/dlc) Repack Let'sРl
 ```bash
 magnet:?xt=urn:btih:7E8CBF5B73424122AD889E78D339D717A502C7C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Gloomy Eyes (2025) [Multi] (1.0.0) License GOG
 magnet:?xt=urn:btih:D27EEBC25D0902107C8C563216E8B8C77AE909CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28561) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0CE03BB8464A0B5E7F1630DD662A544DF3D8F3B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Technobabylon (2015) [En] (3.6) License GOG [Deluxe Edition]
 magnet:?xt=urn:btih:8B5120041613D2892EFFA1DBF9CA3C1CB020C276
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Atari 50: The Anniversary Celebration приглашает игроков в и�
 ```bash
 magnet:?xt=urn:btih:B23230238D1669F1FC7DE708CF3BE87F1AA44C42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Ready or Not (2023) [Ru/Multi] (94572/dlc) Repack Let'sРlay [LSPD Bundle]
 magnet:?xt=urn:btih:640C8CBC3AA50829A2BAF78B6C2665B3E8E1A724
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Hearts of Iron 4 (IV) – отличный военный симулятор, в
 ```bash
 magnet:?xt=urn:btih:8DA5F2FA62E66EFFBD28E59F8A37D3E0550D8994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

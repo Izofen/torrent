@@ -1,3 +1,32 @@
+###  Публикация: 989201   (911366) от 25.02.2016
+
+Нирадж Давар | Идеальный маркетинг. О чем забыли 98% маркетологов (2015) [FB2, DOCX]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911366.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Вы не можете достойно конкурировать, уступая соперникам в свойствах продуктов, уровне и темпах их производства и обновления. Но для закрепления своего положения вам придется обеспечить превосходство и в работе с потребителями".
+Нирадж Давар
+
+О чем книга(   Читать дальше...   )Жанр: Бизнес, МаркетингФормат: FB2, DOCX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B98C1E24D19039BD782FD709063383238224BFFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989256   (911426) от 25.02.2016
 
 Филип Котлер, Фернандо Триас де Бес | Латеральный маркетинг. Технология поиска революционных идей (2010) [FB2]
@@ -19,6 +48,8 @@
 ```bash
 magnet:?xt=urn:btih:2478990B5692826F250CCF4DC48E4DBB9E56BD8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +76,8 @@ magnet:?xt=urn:btih:2478990B5692826F250CCF4DC48E4DBB9E56BD8A
 magnet:?xt=urn:btih:D37FCBC9D2393327A1F4A57872E949E021BA98D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +101,8 @@ magnet:?xt=urn:btih:D37FCBC9D2393327A1F4A57872E949E021BA98D4
 ```bash
 magnet:?xt=urn:btih:5EDF257E067580F40E390D636ADF07F3AF6B0CA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +128,8 @@ magnet:?xt=urn:btih:5EDF257E067580F40E390D636ADF07F3AF6B0CA3
 magnet:?xt=urn:btih:4FFD99480B1EB35D2DFE91A488E9BC17CFC5E8BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +153,8 @@ magnet:?xt=urn:btih:4FFD99480B1EB35D2DFE91A488E9BC17CFC5E8BC
 ```bash
 magnet:?xt=urn:btih:D9B51B39D7692DC480A32E350365E53344E8E308
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +181,8 @@ magnet:?xt=urn:btih:D9B51B39D7692DC480A32E350365E53344E8E308
 magnet:?xt=urn:btih:59516B610B64E3FBEE52E09D08160ABB0D777DFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +208,8 @@ magnet:?xt=urn:btih:59516B610B64E3FBEE52E09D08160ABB0D777DFC
 magnet:?xt=urn:btih:E352D345131FD9C5B62C1E3B25A6A08FE95CCC79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +233,8 @@ magnet:?xt=urn:btih:E352D345131FD9C5B62C1E3B25A6A08FE95CCC79
 ```bash
 magnet:?xt=urn:btih:B5CBAB9215CDDD9279D764EF87333EF95588704B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +260,8 @@ magnet:?xt=urn:btih:B5CBAB9215CDDD9279D764EF87333EF95588704B
 magnet:?xt=urn:btih:6434B7A4BA0CFB71AFB06529F90C6A26BE3776FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +285,8 @@ magnet:?xt=urn:btih:6434B7A4BA0CFB71AFB06529F90C6A26BE3776FF
 ```bash
 magnet:?xt=urn:btih:9E9A07CD511911C72B3E7453E9D13ED1F661D23E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +312,8 @@ magnet:?xt=urn:btih:9E9A07CD511911C72B3E7453E9D13ED1F661D23E
 magnet:?xt=urn:btih:1B59E34479CFF26889FC44D772DD76939BBEF042
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +337,8 @@ magnet:?xt=urn:btih:1B59E34479CFF26889FC44D772DD76939BBEF042
 ```bash
 magnet:?xt=urn:btih:107DAD31C151C8A8C33CE29E7D085460331CD66E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +367,8 @@ magnet:?xt=urn:btih:107DAD31C151C8A8C33CE29E7D085460331CD66E
 magnet:?xt=urn:btih:9247D8CACF98D9FCF721D491A79528F14720821F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +392,8 @@ magnet:?xt=urn:btih:9247D8CACF98D9FCF721D491A79528F14720821F
 ```bash
 magnet:?xt=urn:btih:2F25A8F769A7118CDB417060964FD63FEFB27034
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +419,8 @@ magnet:?xt=urn:btih:2F25A8F769A7118CDB417060964FD63FEFB27034
 magnet:?xt=urn:btih:91D5459F7C70DAF410B8AE3FCCC209AA882433FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +444,8 @@ magnet:?xt=urn:btih:91D5459F7C70DAF410B8AE3FCCC209AA882433FA
 ```bash
 magnet:?xt=urn:btih:B3026150B7283CC7A943FC10F8EDB0912030F339
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +471,8 @@ magnet:?xt=urn:btih:B3026150B7283CC7A943FC10F8EDB0912030F339
 magnet:?xt=urn:btih:F676573AFEDEDB75C36890C7BF901D21AA16498C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +497,8 @@ magnet:?xt=urn:btih:F676573AFEDEDB75C36890C7BF901D21AA16498C
 magnet:?xt=urn:btih:C276606B0AE058925098AD217ED07CF58B9D9916
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +522,8 @@ magnet:?xt=urn:btih:C276606B0AE058925098AD217ED07CF58B9D9916
 ```bash
 magnet:?xt=urn:btih:1173D8774CA4BE97D9F715FDC131943215959752
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +551,8 @@ magnet:?xt=urn:btih:1173D8774CA4BE97D9F715FDC131943215959752
 magnet:?xt=urn:btih:0FF9E301791E24C7F30181D8EEBBAF6B9426AAB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +577,8 @@ magnet:?xt=urn:btih:0FF9E301791E24C7F30181D8EEBBAF6B9426AAB3
 magnet:?xt=urn:btih:0257958200C48388115C121A597A94432E3F0E0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +602,8 @@ magnet:?xt=urn:btih:0257958200C48388115C121A597A94432E3F0E0F
 ```bash
 magnet:?xt=urn:btih:59F62579C50A819F33199B484D04C1A6F2172224
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +632,8 @@ magnet:?xt=urn:btih:59F62579C50A819F33199B484D04C1A6F2172224
 magnet:?xt=urn:btih:816BB727542611E41D94B574C9950A32B7901E3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +660,8 @@ magnet:?xt=urn:btih:816BB727542611E41D94B574C9950A32B7901E3F
 magnet:?xt=urn:btih:F216AA03DBAF8A3F20EC5A5D3091437C1EFEB52C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,29 +686,7 @@ magnet:?xt=urn:btih:F216AA03DBAF8A3F20EC5A5D3091437C1EFEB52C
 magnet:?xt=urn:btih:80076019D39EC71C9832623A47C6C5F729F011D8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990061   (913174) от 24.02.2016
-
-Ольга Копылова | Давление. Советы и рекомендации ведущих врачей (2016) [FB2]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один знаменитый доктор как-то сказал: "Гипертонию лечат все, но никто ее лечить не умеет". Большинству пациентов врачи прописывают таблетки, понижающие давление, и на этом "лечение" заканчивается. Однако прогрессивно мыслящие врачи убеждены: одними таблетками вылечить гипертонию невозможно. Главные условия для снижения давления – правильное питание (   Читать дальше...   )Жанр: Популярная и нетрадиционная медицинаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF2F4DABF4E3EE56173533FC3C39A8FB49B1736F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ BBC: Планеты / The Planets (1999) DVDRip (сезон 1, серии 1-8 и
 magnet:?xt=urn:btih:662B0336A701A79FE59E0BD8B49337C70F45398F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ BBC: Свет и Тьма / BBC: Light and Dark (2013) SATRip
 ```bash
 magnet:?xt=urn:btih:A9BC54ED3EE3F64B82EC478BC75983FBEF3EB6A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Animal Planet: Животный мир Дубая / Wild Dubai (2018) HDTVRip [H
 magnet:?xt=urn:btih:00D313E39CD15BB1350B00617364BCD77DC8C8CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Discovery. Легендарные места / Legendary Locations (2018) HDTVRi
 ```bash
 magnet:?xt=urn:btih:6D637BE9D5A714ACB1FD246D29808429BA44CA7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ NGW: Смертоносная Африка. Побережья / Africa's Deadly
 magnet:?xt=urn:btih:626AFBA3AD52D9BA3B9EB713825E1151322D3684
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:626AFBA3AD52D9BA3B9EB713825E1151322D3684
 ```bash
 magnet:?xt=urn:btih:2AA910DD5A770E9E19B20CED1A1A9C42F148ED02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:2AA910DD5A770E9E19B20CED1A1A9C42F148ED02
 magnet:?xt=urn:btih:B941A7E2DA366728D5B8F20872A257FC3E8F75BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:B941A7E2DA366728D5B8F20872A257FC3E8F75BA
 ```bash
 magnet:?xt=urn:btih:DB819124A5A98C7E22DF83E5CC2A64A63DB5999D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:DB819124A5A98C7E22DF83E5CC2A64A63DB5999D
 magnet:?xt=urn:btih:78292B1B530518023A96723845F552E7D430FAED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ BBC: Что такое свет / Light Fantastic (2004)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ BBC: Белый медведь - Шпион во льдах / BBC: Polar Bear - 
 magnet:?xt=urn:btih:A600007D48DCF369D02E9A1EABDDA2FCF2659D26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ BBC: Жизнь на земле / Life on Earth (1979) BDRip [H.264/720p-LQ] (Э
 magnet:?xt=urn:btih:2D6848D639A6177B0F4B3F85B2D9B9A6BA8DA112
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:2D6848D639A6177B0F4B3F85B2D9B9A6BA8DA112
 ```bash
 magnet:?xt=urn:btih:63F621A255CF6335063ADCD8EEFD94E21D72D653
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ History Channel. Боссы мафии / Kingpin (2018) HDTVRip (1-4 серия 
 magnet:?xt=urn:btih:EC50C032692AEA1AAAB2CD93ED06EC7E0E0E4AE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ History Channel. Боссы мафии / Kingpin (2018) HDTVRip [H.264/720p-LQ] 
 magnet:?xt=urn:btih:E0693DE9D4C36415B2A3932A408B98BF2E4106AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:E0693DE9D4C36415B2A3932A408B98BF2E4106AB
 ```bash
 magnet:?xt=urn:btih:7B0C8C97CE1789A7A7347E3C6000BDA67AB920F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ NG: Китайская мегагробница. Секреты терракот
 magnet:?xt=urn:btih:7EEF0234FCC8F68C71F01D235B1F7A844899CD56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:7EEF0234FCC8F68C71F01D235B1F7A844899CD56
 ```bash
 magnet:?xt=urn:btih:11711E23ECDDC25A56A09FF3675D16EEA5D55004
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ NG: Осушить океан. Титаник / The Drain Titanic (2015) HDTV [H
 magnet:?xt=urn:btih:E23252E57FDF4A1AA56AE1AC64172F5A6C018687
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ NG: Спасти Титаник с Бобом Баллардом / Save the Tita
 magnet:?xt=urn:btih:99FE3FF1E6F1244B9F44CC71B6555449F10D3472
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ BBC: Глубина / Deep Blue (2003) [720p]BDRip
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ BBC: Загадки истории. Век полетов: Легенды мир
 magnet:?xt=urn:btih:AE9D8977A9B145DBC9C3E37CC80C0B5F366D39B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ BBC: Величайшие явления природы / Nature's Great Events 
 ```bash
 magnet:?xt=urn:btih:9A1DA4DCDB12F0EBE373A0E0B2E66FACAD0B90A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ BBC. Horizon: Как дожить до 101 года? / How to live to 101? (2008
 magnet:?xt=urn:btih:AC42215AE9ADFC88695146DE29FC13BFFE2C9B99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ BBC: Сокрытые миры / Hidden Kingdoms (2014) BDRip [H.264/1080p] (С�
 ```bash
 magnet:?xt=urn:btih:EC9B7CD8B41E2F5ECF7DAE2F2556B3F411D505EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +675,8 @@ PBS. Природа - Дом животных / Nature - The Animal House (2007)
 ```bash
 magnet:?xt=urn:btih:4BBDC1CE309031B6E41261777F4A30B99BBEE9AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

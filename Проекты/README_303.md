@@ -19,6 +19,8 @@ Hollow Love - проект для создания слайд шоу.Форма�
 magnet:?xt=urn:btih:313567C0D97FD7B7109F43175EEA628C7E921A93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:313567C0D97FD7B7109F43175EEA628C7E921A93
 magnet:?xt=urn:btih:0EF485C541D14003C84FDC2D55D41E72E18D8356
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Caricature Toolkit | Face Cut Out | Explainer video toolkit - набор ани�
 ```bash
 magnet:?xt=urn:btih:25FFFEFBD1FB3399D9C86571BD5626037611BEC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:25FFFEFBD1FB3399D9C86571BD5626037611BEC3
 magnet:?xt=urn:btih:FDEE80694A4B98DF895885935FAF0B1B94598BC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Snowflake Slideshow - зимнее новогоднее слайд-шоу с п�
 ```bash
 magnet:?xt=urn:btih:92FE2192C5B09A5B8FF57DA8439952C5BD3C5DEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Photo Slideshow v2 - забавная фотогалерея с массой ф�
 magnet:?xt=urn:btih:2F8AD893ABBD27C370A3D4CD815EE18564C8EE26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Colored Blots Opener - проект для создания красочной �
 ```bash
 magnet:?xt=urn:btih:021057B28C6B76A9900CC9FDE2DD0A5E0CA528E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Parallax Winter - идеально подойдет для вашего всту
 magnet:?xt=urn:btih:6C7E4553907D78FEAE13CA9057602CC925B171E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Universal Slides - пригодится для любого типа презе�
 ```bash
 magnet:?xt=urn:btih:26C2744F3A1C5090FE82E1B563198038D316F167
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Retro Vintage Opener - это стильный шаблон After Effects со �
 magnet:?xt=urn:btih:EE85D11BD9E2AFC06D0FA3D49D1FCF40902CA62B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Colorful Slideshow - красочное слайд-шоу. Придайте ор
 ```bash
 magnet:?xt=urn:btih:460F7BE0773C76D433D32213CDE82F64EF22677C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:460F7BE0773C76D433D32213CDE82F64EF22677C
 magnet:?xt=urn:btih:CF82D6982457F73D8008B48E1968AE330219ACD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Extended Typography - проект для создания анимирован�
 ```bash
 magnet:?xt=urn:btih:82667986C0A4B0ADF810922EA13BC2DC1AF65CB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:82667986C0A4B0ADF810922EA13BC2DC1AF65CB9
 magnet:?xt=urn:btih:7DD00FB998185271FECCAAB375488F3F80663C7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:7DD00FB998185271FECCAAB375488F3F80663C7C
 ```bash
 magnet:?xt=urn:btih:C6707BEA28E4DF0881E5C0D531B3E358567E6F9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:C6707BEA28E4DF0881E5C0D531B3E358567E6F9C
 magnet:?xt=urn:btih:3E3A6F8FF77AAA577F4361FEAB791A16D93A3A5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:3E3A6F8FF77AAA577F4361FEAB791A16D93A3A5C
 ```bash
 magnet:?xt=urn:btih:6EAF82A2C5BE9A661C714D4D233F52B65C0BEE39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:6EAF82A2C5BE9A661C714D4D233F52B65C0BEE39
 magnet:?xt=urn:btih:FF2A03E5305DCF76AF96C97C3E6035C80D225A45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:FF2A03E5305DCF76AF96C97C3E6035C80D225A45
 ```bash
 magnet:?xt=urn:btih:951DEEF74C016B0C497B2D1E875F3586EF9BA6C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:951DEEF74C016B0C497B2D1E875F3586EF9BA6C4
 magnet:?xt=urn:btih:5E49E8EB3DF9DA5A706C6A2B113114C5CB3C4E2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:5E49E8EB3DF9DA5A706C6A2B113114C5CB3C4E2A
 magnet:?xt=urn:btih:E90B90E91D8E753EC5E7E0C0BBD392EEA3C8C214
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Connected Shapes Logo Reveal - красивая шейповая анимаци�
 ```bash
 magnet:?xt=urn:btih:248AEC12CA16B2CBDE26B780EAC09CFE73FFABA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Rose Parallax Slideshow - красивое слайд-шоу с применен
 magnet:?xt=urn:btih:3BA209CD0477895FB8DE005DE394A876AFD1CDED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:3BA209CD0477895FB8DE005DE394A876AFD1CDED
 ```bash
 magnet:?xt=urn:btih:C7BDA0E2F35BB4DDC437A368BFDF41F1E0FAB32C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Power Logo Reveal - проект для демонстрации вашего л
 magnet:?xt=urn:btih:D5D290293D704FB485D6F3D48EBEE5B8DEB6C8CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:D5D290293D704FB485D6F3D48EBEE5B8DEB6C8CA
 ```bash
 magnet:?xt=urn:btih:CC895450E19DCC9D410FA09E1DEFB2763DFC6EA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

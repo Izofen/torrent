@@ -19,6 +19,8 @@ MetaStealer пытается выдать себя за сертификат М�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ MetaStealer пытается выдать себя за сертификат М�
 magnet:?xt=urn:btih:EE5ECDC67F6B0B713455162D1F0299AD819261B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:EE5ECDC67F6B0B713455162D1F0299AD819261B7
 ```bash
 magnet:?xt=urn:btih:B766B6F3812BC03C7A92C549D3472027EDEF8635
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:B766B6F3812BC03C7A92C549D3472027EDEF8635
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:B766B6F3812BC03C7A92C549D3472027EDEF8635
 ```bash
 magnet:?xt=urn:btih:21643F0EAC1A502AC988FC5C33C27ADEC61643CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:21643F0EAC1A502AC988FC5C33C27ADEC61643CA
 magnet:?xt=urn:btih:FFEB5D61752F4D80CC270F9CB9021DC1C4A6FEAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:FFEB5D61752F4D80CC270F9CB9021DC1C4A6FEAA
 ```bash
 magnet:?xt=urn:btih:1E4B3AF12AA5800B1DA11EFD1874D0988C1EE425
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:1E4B3AF12AA5800B1DA11EFD1874D0988C1EE425
 magnet:?xt=urn:btih:764833FD74899A4D8052C6F251BE2A90CEC160C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:764833FD74899A4D8052C6F251BE2A90CEC160C2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Windows 10 v22H2 19045.3930 и Windows 10 Корпоративная LTSC v21H2 
 magnet:?xt=urn:btih:1BEBB300F51EB225D2C075CBFD2B83A51050D44E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:1BEBB300F51EB225D2C075CBFD2B83A51050D44E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Microsoft Office 2021 — новый офисный пакет от корпор
 magnet:?xt=urn:btih:E8611F114B7C0612401EC5DEEA251631D4B22953
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Avast прекратил работу своих антивирусов и пр�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Avast прекратил работу своих антивирусов и пр�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Avast прекратил работу своих антивирусов и пр�
 ```bash
 magnet:?xt=urn:btih:6B40BF3A9848BD05A1807576323C4B432192E2A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Half-Life: Alyx — это возвращение Valve во вселенную 
 magnet:?xt=urn:btih:F4417A374A0E65772E78693B2CF3A2F157AEB8D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:F4417A374A0E65772E78693B2CF3A2F157AEB8D2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:F4417A374A0E65772E78693B2CF3A2F157AEB8D2
 magnet:?xt=urn:btih:181D48FC17BF995E8C4765E815BAEC3A1A986091
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:181D48FC17BF995E8C4765E815BAEC3A1A986091
 ```bash
 magnet:?xt=urn:btih:957A600F8BEA43079DBA97E8C0FE2DB6AD5290CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:957A600F8BEA43079DBA97E8C0FE2DB6AD5290CE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:957A600F8BEA43079DBA97E8C0FE2DB6AD5290CE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Windows 11 23H2 Compact (22631.3007) by Flibustier [Ru]
 magnet:?xt=urn:btih:135D61197930CB5D0C09916E59F7B26217B91E24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ The Elder Scrolls V: Skyrim Special Edition — это улучшенное и �
 ```bash
 magnet:?xt=urn:btih:BB58EAB8809914B75507BA5FAB98024D4F2C68DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:BB58EAB8809914B75507BA5FAB98024D4F2C68DB
 magnet:?xt=urn:btih:10AB4D84309C807FC40B075207015A83E0BB4931
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:10AB4D84309C807FC40B075207015A83E0BB4931
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ Microsoft Store, .NET Framework 3.5, 7-zip и StartIsBack++ — устанавл
 ```bash
 magnet:?xt=urn:btih:7450652602A157DEBE1B9C83B720E8CFFC424ABF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1230122   (615320) от 12.06.2018
+
+Жил-был Шишлов (1987) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615320.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам пьесы Афанасия Салынского «Молва».
+Действие фильма происходит в 20-е годы в поселке Птюньки. Здесь пытается обустроить общественную жизнь молодой коммунист Иван Шишлов, полуграмотный человек, увлеченный идеей социалистической коммуны. Жизнь, подчиненная логике этого бездушного человека, превращается в ад для многих. Его чрезмерные старания приводят к трагической (   Читать дальше...   )Производство: Киностудия им. Довженко по заказу Гостелерадио СССРЖанр: ДрамаРежиссер: Владимир МотыльАктеры: Татьяна Догилева,Продолжительность: 01:18:44 + 01:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1707B4576E7287AB2521F9F02DFBFC0AFC84B5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 684910   (616285) от 30.07.2013
 
 А был ли Каротин (2 серии) (1989) DVDRip
@@ -19,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:4FF731C1C78CE9EAABABBF4A7F83C6E010057BC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@ magnet:?xt=urn:btih:4FF731C1C78CE9EAABABBF4A7F83C6E010057BC7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ magnet:?xt=urn:btih:4FF731C1C78CE9EAABABBF4A7F83C6E010057BC7
 ```bash
 magnet:?xt=urn:btih:5779E82141258A9B103681DAA9B03189D84D8698
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:5779E82141258A9B103681DAA9B03189D84D8698
 magnet:?xt=urn:btih:09FFD0EEEB71B3CDAC12A1F79426E8C37A0E8601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +150,8 @@ magnet:?xt=urn:btih:09FFD0EEEB71B3CDAC12A1F79426E8C37A0E8601
 ```bash
 magnet:?xt=urn:btih:9A1F17FFE025CC48F7817FF265A6DD2ACAF2FC22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +177,8 @@ magnet:?xt=urn:btih:9A1F17FFE025CC48F7817FF265A6DD2ACAF2FC22
 magnet:?xt=urn:btih:9DE03E0B4AC2BF89D1E606A22DE3962F7950B78D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +202,8 @@ magnet:?xt=urn:btih:9DE03E0B4AC2BF89D1E606A22DE3962F7950B78D
 ```bash
 magnet:?xt=urn:btih:5A527C221B2EA9D8BF8D8CDCF23E7E0A8F548756
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +232,8 @@ magnet:?xt=urn:btih:5A527C221B2EA9D8BF8D8CDCF23E7E0A8F548756
 magnet:?xt=urn:btih:6642B844BC920A21C803CD8A41A1FC0EFA20B40C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:6642B844BC920A21C803CD8A41A1FC0EFA20B40C
 ```bash
 magnet:?xt=urn:btih:EE69A1E94C1A9D83031DC72E5342515D1B5E186D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +285,8 @@ magnet:?xt=urn:btih:EE69A1E94C1A9D83031DC72E5342515D1B5E186D
 magnet:?xt=urn:btih:B05FC2EC746C1B1F2C0D5200EF0931B6ABE40912
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +310,8 @@ magnet:?xt=urn:btih:B05FC2EC746C1B1F2C0D5200EF0931B6ABE40912
 ```bash
 magnet:?xt=urn:btih:C74731595CCF62572148E66F635FA39D1BCACA0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +337,8 @@ magnet:?xt=urn:btih:C74731595CCF62572148E66F635FA39D1BCACA0D
 magnet:?xt=urn:btih:A8F131AAE0E164E73D1BEB67FA5187DFAD6E9CED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +362,8 @@ magnet:?xt=urn:btih:A8F131AAE0E164E73D1BEB67FA5187DFAD6E9CED
 ```bash
 magnet:?xt=urn:btih:FB429DD2C7FCEC2B85FA9E7B29EABC66C87E82EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +389,8 @@ magnet:?xt=urn:btih:FB429DD2C7FCEC2B85FA9E7B29EABC66C87E82EE
 magnet:?xt=urn:btih:13B140CA873F906091B9A4F28F6F1EA4C58A01AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +414,8 @@ magnet:?xt=urn:btih:13B140CA873F906091B9A4F28F6F1EA4C58A01AC
 ```bash
 magnet:?xt=urn:btih:A4CEE0B35B52084BFE0BB4052783191FBF44A8B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +442,8 @@ magnet:?xt=urn:btih:A4CEE0B35B52084BFE0BB4052783191FBF44A8B2
 magnet:?xt=urn:btih:9C5A94F83B71508D65B7A7BB35E6471EAC10B048
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +469,8 @@ magnet:?xt=urn:btih:9C5A94F83B71508D65B7A7BB35E6471EAC10B048
 magnet:?xt=urn:btih:92483B080C64BABB1EFFEDC50B9116C26216E54D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +494,8 @@ magnet:?xt=urn:btih:92483B080C64BABB1EFFEDC50B9116C26216E54D
 ```bash
 magnet:?xt=urn:btih:814D4F537A68B22EA3B4F3EACDADC754591F2229
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +523,8 @@ magnet:?xt=urn:btih:814D4F537A68B22EA3B4F3EACDADC754591F2229
 magnet:?xt=urn:btih:BFFD7DC5F0DA6277FE659DAF4ECE29A94383BBDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +549,8 @@ magnet:?xt=urn:btih:BFFD7DC5F0DA6277FE659DAF4ECE29A94383BBDA
 ```bash
 magnet:?xt=urn:btih:300CEBA3DDCF03665CA2202574896B70BCFF08A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +577,8 @@ magnet:?xt=urn:btih:300CEBA3DDCF03665CA2202574896B70BCFF08A6
 magnet:?xt=urn:btih:BC03CCC2754FA43C3DC27746257D877FFE75CDD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +602,8 @@ magnet:?xt=urn:btih:BC03CCC2754FA43C3DC27746257D877FFE75CDD9
 ```bash
 magnet:?xt=urn:btih:732B2718BFA3FE38157C9F33196923944CF2DA36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +629,8 @@ magnet:?xt=urn:btih:732B2718BFA3FE38157C9F33196923944CF2DA36
 magnet:?xt=urn:btih:2184621B0DF40EDA214CB44A2F917826A04F14F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +654,8 @@ magnet:?xt=urn:btih:2184621B0DF40EDA214CB44A2F917826A04F14F3
 ```bash
 magnet:?xt=urn:btih:F4F93719B415A52D1CCB7F4238DD90841C46A09B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,29 +681,7 @@ magnet:?xt=urn:btih:F4F93719B415A52D1CCB7F4238DD90841C46A09B
 нет
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543274   (631532) от 10.04.2022
-
-Подруги (1935) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три подружки слишком рано узнают о взрослой жизни. Их первой школой стали улицы революционного Петрограда.Производство: СССР, ЛенфильмЖанр: Драма, мелодрама, военныйРежиссер: Лев АрнштамАктеры: Янина Жеймо, Ирина Зарубина, Зоя Фёдорова, И. Антипова, Борис Бабочкин, Серафима Бирман, Борис Блинов, Мария Блюменталь-Тамарина, Николай Черкасов, Борис ЧирковСубтитры: ОтсутствуютПродолжительность: 01:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7964EC6A2AAE8BB24AA0615BABF176C26C301C38
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

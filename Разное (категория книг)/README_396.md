@@ -1,3 +1,29 @@
+###  Публикация: 916972   (589832) от 10.07.2015
+
+Михаил Казанцев | Школа B2B-продаж. От понимания ситуации клиента к сделке (2015) [PDF, EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – первое системное и последовательное пособие по B2B-продажам. Никогда раньше эти продажи не были выделены как самостоятельный тип сделок, требующих особого подхода и особых навыков продавцов. Между тем продажи B2B коренным образом отличаются от продаж B2C. Из этой книги вы узнаете, что такое ситуационный подход в продажах и как его успешно применять, научитесь (   Читать дальше...   )Жанр: БизнесФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51610E0011D08A9FDAEBDCE7E487A5A0CD057375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916984   (589833) от 10.07.2015
 
 Роджер Фишер, Даниэль Шапиро | Эмоциональный интеллект в переговорах (2015) [PDF, EPUB]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:AE675F40B61BEE01049691A46F03A4D84427DEC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:AE675F40B61BEE01049691A46F03A4D84427DEC3
 magnet:?xt=urn:btih:22FAB4ACAEAF652F0DABFA97E10A1DE98EB5ED88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:22FAB4ACAEAF652F0DABFA97E10A1DE98EB5ED88
 ```bash
 magnet:?xt=urn:btih:F94BE202A1E55E1B764226777A08C5997A95D9D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:F94BE202A1E55E1B764226777A08C5997A95D9D4
 magnet:?xt=urn:btih:4E237A6F9DFC24DED297976EFF75EA8265314E7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +155,8 @@ magnet:?xt=urn:btih:4E237A6F9DFC24DED297976EFF75EA8265314E7D
 magnet:?xt=urn:btih:F94DDE1CD6461CC6D508E598CAF4033B7696CD3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:F94DDE1CD6461CC6D508E598CAF4033B7696CD3A
 ```bash
 magnet:?xt=urn:btih:A46DFDFA270C9B967A721AAA5D79E126C50E2FA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +209,8 @@ magnet:?xt=urn:btih:A46DFDFA270C9B967A721AAA5D79E126C50E2FA8
 magnet:?xt=urn:btih:A6002AB8FC8BBB7369ED75786025D7B34ABEA105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +234,8 @@ magnet:?xt=urn:btih:A6002AB8FC8BBB7369ED75786025D7B34ABEA105
 ```bash
 magnet:?xt=urn:btih:E1F1AFCB2C59663D96AD00874713527ED98792E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +261,8 @@ magnet:?xt=urn:btih:E1F1AFCB2C59663D96AD00874713527ED98792E4
 magnet:?xt=urn:btih:E0B7E33739178B25467A3046FFF50CC0D0AB60F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:E0B7E33739178B25467A3046FFF50CC0D0AB60F3
 ```bash
 magnet:?xt=urn:btih:F0E3E778E10483F3788776BD6D2F110FEE63023E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:F0E3E778E10483F3788776BD6D2F110FEE63023E
 magnet:?xt=urn:btih:6E46D9FE8A5A92044CC1EB6A8B49049F802B1F7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:6E46D9FE8A5A92044CC1EB6A8B49049F802B1F7A
 ```bash
 magnet:?xt=urn:btih:ADBF08BCF07C7042A299283A3CE66DF635F429F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:ADBF08BCF07C7042A299283A3CE66DF635F429F6
 magnet:?xt=urn:btih:16FCC486BC6A750B8AE2CB78B996103B53257D7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:16FCC486BC6A750B8AE2CB78B996103B53257D7E
 ```bash
 magnet:?xt=urn:btih:579C01740E840439361E0A0119ACD7D050E57C06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:579C01740E840439361E0A0119ACD7D050E57C06
 magnet:?xt=urn:btih:BB40207657587D75D76FB848B7A2EFEB3C3BD286
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:BB40207657587D75D76FB848B7A2EFEB3C3BD286
 magnet:?xt=urn:btih:D51FD5F87A46128638DB92A1729BC2B1D169B6F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:D51FD5F87A46128638DB92A1729BC2B1D169B6F2
 ```bash
 magnet:?xt=urn:btih:D3A3AA89478C23AA30F69B5EDFD759D742E9B92F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:D3A3AA89478C23AA30F69B5EDFD759D742E9B92F
 ```bash
 magnet:?xt=urn:btih:F79A4C0EA86E9984805A290AB378BAE5E36168C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:F79A4C0EA86E9984805A290AB378BAE5E36168C6
 magnet:?xt=urn:btih:3471AAE779E80CBA5D1D9F3D4B76C8B9DF0B3FAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +554,8 @@ magnet:?xt=urn:btih:3471AAE779E80CBA5D1D9F3D4B76C8B9DF0B3FAA
 magnet:?xt=urn:btih:F4DE543F92EF151130AA29202E5C5B62EE4D9741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:F4DE543F92EF151130AA29202E5C5B62EE4D9741
 ```bash
 magnet:?xt=urn:btih:C52E6DB89D25FDEFBA079080F311FCAE03F7E2BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:C52E6DB89D25FDEFBA079080F311FCAE03F7E2BE
 magnet:?xt=urn:btih:700167F21CA6747198217E43D83ED213230DE254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:700167F21CA6747198217E43D83ED213230DE254
 ```bash
 magnet:?xt=urn:btih:4497E21D155BDF23539453228DEDF5E358EE1187
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:4497E21D155BDF23539453228DEDF5E358EE1187
 magnet:?xt=urn:btih:D4870A7343D3331A174173902F328A9FCA22762E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,32 +684,7 @@ magnet:?xt=urn:btih:D4870A7343D3331A174173902F328A9FCA22762E
 magnet:?xt=urn:btih:42933C2EDDFFC7D210CD38637C0F57B4C50CF08F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916827   (590382) от 09.07.2015
-
-Ю.В. Рычкова | Устройство и дизайн аквариума (1998) [PDF]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590382.jpg" />
-</div>
-
-
-###  Подробнее
-
-С незапамятных времен людям нравилось смотреть на воду и слушать легкий
-шум прибоя. Установлено, что вода благоприятно действует на человека,
-успокаивая его нервную систему и снимая напряжение. Стремясь к покою, человек
-изобрел аквариум и заселил его красивыми обитателями моря. Однако, как и всем(   Читать дальше...   )Жанр: Научная, Аквариумистика, ХоббиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96A9DDE1E2978D09E7F36FB45A5BA401CA050458
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

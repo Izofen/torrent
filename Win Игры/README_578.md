@@ -1,27 +1,3 @@
-###  Публикация: 1849271   (1053392) от 22.01.2026
-
-Thrae (2025) [En] (1.0) Repack FitGirl
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Thrae - это уютная приключенческая игра, в которой вы играете за кролика, идущего по пути превращения в легендарного пасхального кролика! Стройте отношения, создавайте, украшайте и доставляйте заколдованные яйца, чтобы исцелить своих лесных друзей! Глубокая система кастомизации с множеством цветов и узоров, спрятанных по всему миру.Тип издания: RepackРазработчик: skery gamesЖанр: Приключенческие игры, Казуальные игры, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:527A650F8E45B79FD99A464384A8B9F2ECC8E55E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849291   (1053401) от 22.01.2026
 
 The Last Faith (2023) [Ru/Multi] (2.0.0/dlc) Repack Let'sРlay
@@ -42,6 +18,8 @@ The Last Faith (2023) [Ru/Multi] (2.0.0/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:99F034314665B029F2AB6AABDB4300AB9BC32AEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Argonauts Agency 12: Patterns of Morpheus / Агентство Аргонавт�
 magnet:?xt=urn:btih:C9CE205538A01FD5408DCCC73DD9AE19A01C9BD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Night Swarm - это вампирский roguelite RPG в жанре bullet hea
 ```bash
 magnet:?xt=urn:btih:523570F5585062F04F8E6FCFC69BE4207764389F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Worldwide Rush позволяет вам испытать управление �
 magnet:?xt=urn:btih:12374882F1754A3674826383800D710C0B4BA387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land / Ателье Ю
 ```bash
 magnet:?xt=urn:btih:F700C02E9488E2B7BE70DF204E8BD9129A834256
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Aaero2 (2024) [Ru/Multi] (1.52) Repack FitGirl [Black Razor Edition]
 magnet:?xt=urn:btih:B8838BA895697C7489878C15FC6F4DBE1E41B652
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Head's Adventures: chibichibi (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B58A5B1FF647AC119848672A67F596BFEFED708C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Divinity: Original Sin II (2): Divine Edition (2017) [Ru] (30.04.2025) Unofficia
 magnet:?xt=urn:btih:EB17132B47F6D41C5392FB51CEDA4AB852D23F7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Divinity: Original Sin II (2) (2017) [Ru/Multi] (3.6.117.3735/3.0.226.993/dlc) R
 ```bash
 magnet:?xt=urn:btih:AAADD608791122BA5CF3B66B34C48BA7BFB1F5B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Divinity: Original Sin II (2) (2017) [Ru/Multi] (3.6.117.3735/dlc) Repack seleZe
 magnet:?xt=urn:btih:FD5073DA68AC3D24C3522122F1F1DEC49E6928F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Horses (2025) [Multi] (1.0.16497) License GOG
 ```bash
 magnet:?xt=urn:btih:648BCECFEB463C7692EF0953177D5C544284D3F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Perpetuo (2025) [Ru/Multi] (2.0e) Repack FitGirl
 magnet:?xt=urn:btih:972D954BBBBE4427BEB89C18C53A68FF40985FBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ Leaf Blower Co - медитативный симулятор, предлагаю
 ```bash
 magnet:?xt=urn:btih:6874511EADAC7EC854C1F45432A7DCB0A1CB4662
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ My Winter Car (2025) [Ru/Multi] (build 21360632) Repack seleZen [Early Access]
 magnet:?xt=urn:btih:4DD55BC1E2A4F48EEF4BE11CA94A9B2DE85814D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ I Sell Lemonade (2025) [Ru/Multi] (.05) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0D7732111ADBC28CBFD41CE04772C68CAF107FBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ Terra Invicta (2022) [Ru/Multi] (1.0.28) Repack Let'sРlay
 magnet:?xt=urn:btih:CF861282BB96E1A25701529BF3407474E8B354ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ King's Bounty: Dark Side / King's Bounty: Темная Сторона (2014) [Ru
 ```bash
 magnet:?xt=urn:btih:9D3D6747DB7F85F43CB508DC20A29C3C4DF8A4A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ The Legend of Heroes: Trails beyond the Horizon (2026) [Multi] (1.0.6/dlc) Licen
 magnet:?xt=urn:btih:33557D0301CF2B8BC050B1637F32FE6350E82562
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.15.979/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:2F119C716FBEC1AFA9CEF9F09D9CC826A10EB133
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.15.980/dlc) Repack Other s
 magnet:?xt=urn:btih:1CE8A9D0894AF2238B1210DD0556EF61B85815D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ Loot & (and) Ledger (2026) [Ru/Multi] (1.0) Reack FitGirl
 ```bash
 magnet:?xt=urn:btih:1E393A0112051B2810BCDD6196F33C877B532877
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ Caravan Sandwitch переносит на вымышленную пустынн�
 magnet:?xt=urn:btih:8B70C774EBAF17A9724EF7B266AA03F5F57CB72F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ They Are Billions (2019) [Ru/Multi] (1.0.14) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:FB1E0A68DF88E43B66A55BDDEDD306BC803D8217
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ RuneQuest: Warlords - это пошаговая боевая стратегия,
 magnet:?xt=urn:btih:59FB9BFDEF08ACAC15AC2AD0B8D6BD8404512BD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ DuneCrawl - это игра в жанре экшен-приключение с �
 ```bash
 magnet:?xt=urn:btih:33BC4B9431544500C019B65F018548B590F1BFFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849791   (1053861) от 24.01.2026
+
+The Legend of Heroes: Trails beyond the Horizon (2026) [Multi] (21493729/dlc) Scene Rune [Complete Edition]
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судьба всего континента решается в этой важной вехе серии Trails! Путешествуйте по огромной Республике Калвард с тремя протагонистами, развивайте отношения и оттачивайте мастерство в динамичных и тактических боях, проникая в сокровенные секреты Земурии! Предсказанный конец континента Земурия близок, и вместе с ним приближается запуск первой в истории человечества (   Читать дальше...   )Тип издания: SceneРазработчик: Nihon Falcom, PH3 GmbHЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EF6CCEB3B922B5F4FF7E76FC5BED967637A422A
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1159019   (487732) от 18.08.2017
+
+Деньги или позор (2017.08.17) WEB-DL [720p-LQ] (выпуск 5)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_487732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самое острое комедийное шоу с участием звёзд! Только на телеканале ТНТ4! В июле! Они пойдут ради денег на всё!Каждую неделю одна знаменитость будет опозорена на всю страну и заработает 1 миллион рублей. По условиям шоу каждый звездный гость получает на руки солидную сумму денег, после чего ведущий озвучивает самые откровенные, нелепые, а главное — правдивые факты (   Читать дальше...   )Телекомпания: ТНТ 4Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:23:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBEBFEBAA093FE9E660C5950CB1AF9CB4CC8F496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 819850   (487771) от 14.09.2014
 
 Золотая коллекция фильмов киностудии Центрнаучфильм (Диски 1-2 из 16) (1936 - 1975) DVDRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:6CED7C95626D976727EF75FFCB0A92E6B57EA778
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:6CED7C95626D976727EF75FFCB0A92E6B57EA778
 magnet:?xt=urn:btih:72CAB582CAC95C70D12467D9910189985EF1136A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:72CAB582CAC95C70D12467D9910189985EF1136A
 ```bash
 magnet:?xt=urn:btih:0F83FFC44790EDD6C0B6E73A7E03D8ED451FBA9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:0F83FFC44790EDD6C0B6E73A7E03D8ED451FBA9E
 magnet:?xt=urn:btih:C8A083AA11DC47F9E3F5BA1CEFAC57A887D192AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:C8A083AA11DC47F9E3F5BA1CEFAC57A887D192AF
 magnet:?xt=urn:btih:C8D2CA7FD84B941C69133A1A5771DF24F1B3DD6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +174,8 @@ magnet:?xt=urn:btih:C8D2CA7FD84B941C69133A1A5771DF24F1B3DD6C
 ```bash
 magnet:?xt=urn:btih:2F6DC02965F62D1E7A521B4848C7F5023966BF37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:2F6DC02965F62D1E7A521B4848C7F5023966BF37
 magnet:?xt=urn:btih:E61E45FEA79800E389BA51A274893C8C42B92FF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:E61E45FEA79800E389BA51A274893C8C42B92FF5
 ```bash
 magnet:?xt=urn:btih:5E7AB5FF611FC99003CE62CF49F5B61E2A1133CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:5E7AB5FF611FC99003CE62CF49F5B61E2A1133CF
 magnet:?xt=urn:btih:6A070057FE1A92A3BDA1AD780B3A95E6B865E645
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:6A070057FE1A92A3BDA1AD780B3A95E6B865E645
 ```bash
 magnet:?xt=urn:btih:DCD1D051F6FDDCD4295066CBC1452F5D927EA4F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:DCD1D051F6FDDCD4295066CBC1452F5D927EA4F0
 magnet:?xt=urn:btih:90B1055A07305B5911210630ECC2C6A24B2A3A3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:90B1055A07305B5911210630ECC2C6A24B2A3A3E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:90B1055A07305B5911210630ECC2C6A24B2A3A3E
 magnet:?xt=urn:btih:AA907388741B7668107EBD9B36EC497D3EA1E942
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:AA907388741B7668107EBD9B36EC497D3EA1E942
 ```bash
 magnet:?xt=urn:btih:A0E3B751C956F41045EDA649A3D45FC1BE582DC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:A0E3B751C956F41045EDA649A3D45FC1BE582DC5
 magnet:?xt=urn:btih:8503A6FF6A474BD617CB254A4C6873C103454E8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:8503A6FF6A474BD617CB254A4C6873C103454E8F
 ```bash
 magnet:?xt=urn:btih:FFEFF6D3B0EF3E035C4B478CE9EE165175090A5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:FFEFF6D3B0EF3E035C4B478CE9EE165175090A5A
 magnet:?xt=urn:btih:A5F17DB4751B7CFB0E7A89241A6E7AD542AB54E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:A5F17DB4751B7CFB0E7A89241A6E7AD542AB54E1
 ```bash
 magnet:?xt=urn:btih:26791E836DC093F4D1FBA2E4754F8D0DFFBD92E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:26791E836DC093F4D1FBA2E4754F8D0DFFBD92E1
 magnet:?xt=urn:btih:4522454EDB4A88856313C742277C22AB4AD20049
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:4522454EDB4A88856313C742277C22AB4AD20049
 ```bash
 magnet:?xt=urn:btih:71B8EF6D7B150F36FCA945AD66B2191739CD25D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +567,8 @@ magnet:?xt=urn:btih:71B8EF6D7B150F36FCA945AD66B2191739CD25D6
 magnet:?xt=urn:btih:CE75B78066E0364C4FD0CABE27902028AE0609E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +592,8 @@ magnet:?xt=urn:btih:CE75B78066E0364C4FD0CABE27902028AE0609E1
 ```bash
 magnet:?xt=urn:btih:895DF280AC75E0FEE81FCAFD2AF791CD8A636951
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:895DF280AC75E0FEE81FCAFD2AF791CD8A636951
 magnet:?xt=urn:btih:0223D85E463F9017CEA7752BF0DCB5C39E410B6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +644,8 @@ magnet:?xt=urn:btih:0223D85E463F9017CEA7752BF0DCB5C39E410B6A
 ```bash
 magnet:?xt=urn:btih:D2CFAF92ECC960F476D1CC09F9A9B246FA0EE033
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,29 +671,7 @@ magnet:?xt=urn:btih:D2CFAF92ECC960F476D1CC09F9A9B246FA0EE033
 magnet:?xt=urn:btih:95F37C697DA9A6851DD6AA8B35B4798A54E80956
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158917   (490162) от 17.08.2017
-
-60 минут. С России снимают санкции: санкционная машина США забуксовала (17.08.2017) SATRip
-
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ток-шоу с Ольгой Скабеевой и Евгением Поповым. В новом социально-политическом ток-шоу каждый день ведущие и гости программы обсуждают главную тему текущего дня. В студию приглашаются политические и общественные деятели, эксперты по актуальной проблематике.В этом выпуске: С России снимают санкции в первые Американская санкционная машина забуксовала и откатилась назад. Почему именно сейчас и в какой отрасли будут послабления. А так же Киев, один из самых не комфортных для жизни городов мира. Как получилось, что Киев - красивейшая Европейская столица - скатилась до уровня разрушенных войной Триполи и Дамаска. И на каком месте Москва. (   Читать дальше...   )Телекомпания: Россия 1Жанр: Политическое ток-шоуПродолжительность: 00:59:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AEB1FB1435EAC91E8D6D6C94D5BC45CF557006D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

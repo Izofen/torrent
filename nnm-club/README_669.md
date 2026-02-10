@@ -19,6 +19,8 @@ Train Valley 2 - это железнодорожная экономическа�
 magnet:?xt=urn:btih:C42CE3D1FD0D254B0E9B8704A8E9C82BC58EE3B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Windows 10 2022 Update (под кодовым названием "22H2") это 
 magnet:?xt=urn:btih:97B4342A1C6C3D17A16107657ED13C8FF6AC53C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Dying Light 2: Stay Human (2022) [Ru/En] (1.22.4/dlc) Repack Other s [Digital Ex
 ```bash
 magnet:?xt=urn:btih:6C49D65BF846504B18FA623D369326A7DE0B194A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Minecraft в кино / A Minecraft Movie (2025) WEB-DL [H.265/2160p] [4K, SDR 8
 magnet:?xt=urn:btih:D2F77DE03B4C87172D25FB0299B3436D285AB473
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Minecraft в кино / A Minecraft Movie (2025) WEBRip [Director's Cut] [зву
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Anoxia Station — игра об управлении подземной гор�
 magnet:?xt=urn:btih:2F484F414E8794D8C6FD19F5D6EB6F8A328CDA16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:2F484F414E8794D8C6FD19F5D6EB6F8A328CDA16
 ```bash
 magnet:?xt=urn:btih:48BC7A6715E63AC5D78D3197E8EC26250B7B21C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:48BC7A6715E63AC5D78D3197E8EC26250B7B21C2
 magnet:?xt=urn:btih:D4FD10DE07491E5A8797A0E443A4D766DBCFC9E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:D4FD10DE07491E5A8797A0E443A4D766DBCFC9E4
 ```bash
 magnet:?xt=urn:btih:0504AD2407AE63E362A0957CF4BF90D20BD11DDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:0504AD2407AE63E362A0957CF4BF90D20BD11DDC
 magnet:?xt=urn:btih:DFD9B5555EE21C4937711F02281C2D8E512949CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:DFD9B5555EE21C4937711F02281C2D8E512949CD
 ```bash
 magnet:?xt=urn:btih:BEE2B792ED095BF1AFF7C976F0E541A7B20712DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:BEE2B792ED095BF1AFF7C976F0E541A7B20712DB
 magnet:?xt=urn:btih:7D09F4D37ADB3335EFC9A97B7D1D362D31EDF844
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:7D09F4D37ADB3335EFC9A97B7D1D362D31EDF844
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:7D09F4D37ADB3335EFC9A97B7D1D362D31EDF844
 magnet:?xt=urn:btih:F555B408D1CCB9616E348428F8F513D06492791F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:F555B408D1CCB9616E348428F8F513D06492791F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Mini Settlers – это минималистичный градостроите
 magnet:?xt=urn:btih:CAA8F7B76FC7E875D5AB09D3776A8BB9A95134A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:CAA8F7B76FC7E875D5AB09D3776A8BB9A95134A2
 ```bash
 magnet:?xt=urn:btih:564D922C5296156CEA3BFD3C480EDFACB79E67E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:564D922C5296156CEA3BFD3C480EDFACB79E67E7
 magnet:?xt=urn:btih:B687292DD8EBEB519A113313B6195BA9CAAF0E93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:B687292DD8EBEB519A113313B6195BA9CAAF0E93
 magnet:?xt=urn:btih:3B411A1800CE0EB0595B219C5C864909C811CB52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Ember Knights - динамичный роуглайт для 1–4 игроко�
 ```bash
 magnet:?xt=urn:btih:3672648CA2626332FC879BB16DCC4ACCFE379985
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:3672648CA2626332FC879BB16DCC4ACCFE379985
 magnet:?xt=urn:btih:AE9C5CE795F33B4B962C95310E3C22A9CCB291BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:AE9C5CE795F33B4B962C95310E3C22A9CCB291BD
 ```bash
 magnet:?xt=urn:btih:3F738C060316DBFFAFFEEEC83DE8F8B7E9D92DDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ VA - Compilation Part 162 Electronic (2025) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:ACAF5AD00924CFCFF2DCAA9325B4B74EAAFEE8E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Sara Bendrick | Выходные в саду (2021) WEBRip [EN, RU]
 ```bash
 magnet:?xt=urn:btih:0F3EFDB693E87C6FC89483B72DC62AB2697E8E2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:0F3EFDB693E87C6FC89483B72DC62AB2697E8E2D
 ```bash
 magnet:?xt=urn:btih:03345D55D60869C09D92B3EF359FA01063EFFC45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +684,8 @@ VA - Music News For Forum vol.088 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:4CAC42D73DF72419B26FD2B77B5B08293E24ACBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

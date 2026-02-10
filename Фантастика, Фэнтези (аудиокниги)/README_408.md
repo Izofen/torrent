@@ -1,3 +1,29 @@
+###  Публикация: 1033083   (641418) от 09.07.2016
+
+Павел Корнев | Экзорцист (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641418.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Святых Землях бесы издревле тщатся проникнуть в траченные греховными помыслами души людей, но экзорцисты и экзекуторы, кто молитвой, а кто калёным железом, изгоняют потусторонних отродий обратно в породившую их Бездну. Но что случится, если этим нелёгким ремеслом придётся заняться случайному человеку – Себастьяну Марту, агенту королевской тайной службы?Жанр: Героическая фантастика, Боевое фэнтезиПродолжительность: 03:29:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44ED24C39AFADD2C1E9F8920CDBEB816DB34A893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032569   (641786) от 09.07.2016
 
 Евгений Шкиль | Стражи Красного Ренессанса (2015) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:D638C423C8A56F775BBFA5575B5910B48D9DEDDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:D638C423C8A56F775BBFA5575B5910B48D9DEDDD
 ```bash
 magnet:?xt=urn:btih:A7A4302533F1E96A21F199CBBFBECC2782915039
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:A7A4302533F1E96A21F199CBBFBECC2782915039
 magnet:?xt=urn:btih:29CA7A92109B4D319C7A0DBF677B30E8CE458C12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:29CA7A92109B4D319C7A0DBF677B30E8CE458C12
 ```bash
 magnet:?xt=urn:btih:B92F4ED0255FA7331CF02BCAAFC3A433F3753DE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:B92F4ED0255FA7331CF02BCAAFC3A433F3753DE3
 magnet:?xt=urn:btih:C86D64588FFB3C6765DBADC300A1A99506B4531C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:C86D64588FFB3C6765DBADC300A1A99506B4531C
 magnet:?xt=urn:btih:71BCE41D6A19D36C0B90E94EAB5F71BC9B413F27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:71BCE41D6A19D36C0B90E94EAB5F71BC9B413F27
 ```bash
 magnet:?xt=urn:btih:F48BFED2AD4602498C229477CB6035053A859EAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:F48BFED2AD4602498C229477CB6035053A859EAD
 magnet:?xt=urn:btih:56A066D43241CEDD4FCC40DE3F35A263ED9DDE0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:56A066D43241CEDD4FCC40DE3F35A263ED9DDE0F
 magnet:?xt=urn:btih:70E57D85B104540CDD39A45948511F45CA03F377
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:70E57D85B104540CDD39A45948511F45CA03F377
 ```bash
 magnet:?xt=urn:btih:E5B2F21F21CA42662FBEE50C050D2C0286624F72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:E5B2F21F21CA42662FBEE50C050D2C0286624F72
 magnet:?xt=urn:btih:4BE06D503D57312D651A08C4025E1AA51C7FEF03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:4BE06D503D57312D651A08C4025E1AA51C7FEF03
 ```bash
 magnet:?xt=urn:btih:0E204D52DE7EF0E448C0A84A9459E1C341B32FDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:0E204D52DE7EF0E448C0A84A9459E1C341B32FDF
 ```bash
 magnet:?xt=urn:btih:83DCFB1AB98B05F4D9BD7A17F0C85E1216214CE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:83DCFB1AB98B05F4D9BD7A17F0C85E1216214CE5
 magnet:?xt=urn:btih:22EE16CE7B0521BE17F7ED82C921FE747B2D4B65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:22EE16CE7B0521BE17F7ED82C921FE747B2D4B65
 magnet:?xt=urn:btih:82F7E43ABA8CEF0BC314529537A6DB7FE488A3C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:82F7E43ABA8CEF0BC314529537A6DB7FE488A3C9
 ```bash
 magnet:?xt=urn:btih:00B633CD2D68503A017E761502D88AE09CAB6F51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:00B633CD2D68503A017E761502D88AE09CAB6F51
 magnet:?xt=urn:btih:4C2A74BAD29B734345D090627BC5F957D65650D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:4C2A74BAD29B734345D090627BC5F957D65650D9
 ```bash
 magnet:?xt=urn:btih:6F45AEB8EF72D92CEE8D327121520E428CDD40A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:6F45AEB8EF72D92CEE8D327121520E428CDD40A1
 magnet:?xt=urn:btih:3CC93ABB3C3DB6E3774A5FDE198CDD4342B145CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:3CC93ABB3C3DB6E3774A5FDE198CDD4342B145CE
 ```bash
 magnet:?xt=urn:btih:7AEC5D4436A32554B5092D347A81F948D7E01BB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:7AEC5D4436A32554B5092D347A81F948D7E01BB7
 magnet:?xt=urn:btih:D33CC1E3870E775CE6A5AADA4CD5EDEFE298F843
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:D33CC1E3870E775CE6A5AADA4CD5EDEFE298F843
 ```bash
 magnet:?xt=urn:btih:FD32037317C1E94C43F0BFF5A6632620261D894B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:FD32037317C1E94C43F0BFF5A6632620261D894B
 magnet:?xt=urn:btih:98B5A6DA35F9BD6AD539EE0BBE35748E85076B13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:98B5A6DA35F9BD6AD539EE0BBE35748E85076B13
 ```bash
 magnet:?xt=urn:btih:63A03BFB97ECB328959CFF45B60B1C0BEEB75B08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,29 +684,7 @@ magnet:?xt=urn:btih:63A03BFB97ECB328959CFF45B60B1C0BEEB75B08
 magnet:?xt=urn:btih:E9FD90206CE2ACFE8182DAE1EB003D3B549585E4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541421   (646430) от 02.04.2022
-
-Евгений Южин | Инженер (Книга 6). Четвертый (2022) [MP3, Сергей Уделов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люди любознательны, но не у всякого есть возможность удовлетворить жажду познания. Главному герою повезло, он может получить ответы на многие вопросы, за каждый из которых многие расплачивались годами жизни. Но и его ждет плата. Он еще не знает цену, но уже понимает – пора делать выбор. Что главное в жизни? Для чего нужны знания? И что с ними делать?Жанр: Боевая фантастика, ПопаданцыПродолжительность: 07:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32402C6DC421FCF5BF6ACB6A731F79488F291351
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

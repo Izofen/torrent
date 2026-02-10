@@ -22,6 +22,8 @@ Joe Dassin - Le Jardin Du Luxembourg (1976) [FLAC 2.0 24/192|tracks(Vinyl-Rip)] 
 magnet:?xt=urn:btih:EB1792E8B78554439E52F65A953BD7C250C029B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ A4. Don't Stop The Music :: 06:05(   Читать дальше...   )Жанр: R
 ```bash
 magnet:?xt=urn:btih:2D71B7134D3CD9715CE8D997A43FAC4DA0BDDA34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ Slaughter (Сло́тер) — американская хард-рок груп
 magnet:?xt=urn:btih:5551D4F2EC9F35AD93C7175935EC410E81E47434
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ A4. The Future Never Dies 4:06(   Читать дальше...   )Жанр: Hard
 ```bash
 magnet:?xt=urn:btih:B9FED0FD723DB627313ACDA098D448025FFD28E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +139,8 @@ Rammstein - XXI (1995-2015) 7 x Double LP, The Vinyl Box Set, Remastered, 2015  
 magnet:?xt=urn:btih:BD734A0ECE8555FBB02F704089D36A51D544CD36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ A4. Fire Dance 4:30(   Читать дальше...   )Жанр: RockПродо�
 ```bash
 magnet:?xt=urn:btih:678C1E76A64F21449B32FE44894297827A3BABE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +197,8 @@ Alice Cooper – 20 Альбомов (1972-2011) [FLAC 2.0 24/96|tracks (Vinyl-R
 magnet:?xt=urn:btih:08B74910E7212F482E95BBBCF1D017F23A84101E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ Elvis Presley - Collection 11 Альбомов 13 LP (1956-2007) [FLAC/APE 2.0 2
 ```bash
 magnet:?xt=urn:btih:89756A37564880E170C3DA038AA4750728566609
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +252,8 @@ A4 Flying Saucers - Texas Calls You Home(   Читать дальше...   )Жа
 magnet:?xt=urn:btih:30DD3AB107DF4D912AB786B86DDFB48CD09C2554
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ A4 Help Me Make It Through The Night(   Читать дальше...   )Жанр
 ```bash
 magnet:?xt=urn:btih:447CC9A5174872247930E0E2AD535FC657F7CF80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +310,8 @@ A4 Katri Helena - Vain Hieman Rauhaa = A Little Peace(   Читать дальш
 magnet:?xt=urn:btih:0C584D45710EE4D9660F516AE982A349228EFF5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +335,8 @@ Metallica - 10 альбомов (1983-2008) [FLAC 2.0 24/192 |image + .cue, trac
 ```bash
 magnet:?xt=urn:btih:F5EACFB4F24BFC2BE25D2EF825526C7A13236BB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +365,8 @@ Great White (Грейт Уайт, с англ. — «Большая бела
 magnet:?xt=urn:btih:9756C2E3DDC6AE75B2359503FA693EAAF81635BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +393,8 @@ Secret Service - When The Night Closes In (1985) [FLAC 2.0 24/192|traks(Vinyl-Ri
 ```bash
 magnet:?xt=urn:btih:232E9787FB355287810D7BEC66858DEEB9DC4C28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +423,8 @@ B. B. King - Blues Masters (Compilation) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)] 
 magnet:?xt=urn:btih:4B633A2D7C7EF9837296F8875CFF415B8402336C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +449,8 @@ magnet:?xt=urn:btih:4B633A2D7C7EF9837296F8875CFF415B8402336C
 ```bash
 magnet:?xt=urn:btih:312CE21DCEF77E52055E731CEA0F02EB2550BA35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +479,8 @@ Robert Michaels - Paradiso (1998) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)] <Flamen
 magnet:?xt=urn:btih:CBBE624EF642C2696EFC1CEDFF8EBC92BDCDEE94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +507,8 @@ A3 Тихо Несет Вода(   Читать дальше...   )Жанр: Ele
 ```bash
 magnet:?xt=urn:btih:C79CD65CB638DEB9C2533F3F92EA9270B7BA4A2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +537,8 @@ A4 Ж. Рождественская - Запомни(   Читать дальш�
 magnet:?xt=urn:btih:8D4D8798B61275A39832BD010DF7D9D0A66C59E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +565,8 @@ magnet:?xt=urn:btih:8D4D8798B61275A39832BD010DF7D9D0A66C59E4
 ```bash
 magnet:?xt=urn:btih:EB7BE1138B9A9624E9B34BC04F56CF197453FE4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +595,8 @@ A4 Corner Of The Earth(   Читать дальше...   )Жанр: House, Acid 
 magnet:?xt=urn:btih:4C017953E84009F13E93D17A092D979D4F157CE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +623,8 @@ Aerosmith — музыкальная группа, вероятно, самый 
 ```bash
 magnet:?xt=urn:btih:893FBC5828368B3AAB3FC78EDEC256B17752735D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +653,8 @@ A4 Swept For You Baby(   Читать дальше...   )Жанр: Soul, DiscoП
 magnet:?xt=urn:btih:8E8BAD264AC7CAC6C7A680FF47AFCD1B71C20118
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +681,8 @@ A4. Someday {05:06}(   Читать дальше...   )Жанр: Arena RockПр�
 ```bash
 magnet:?xt=urn:btih:DF8ED3083FF09ED5E427AB8813ABDAAFC9DFE03C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -663,6 +711,8 @@ Boney M - Ночной полет на Венеру (1980) [FLAC 2.0 24/192|trac
 magnet:?xt=urn:btih:B3D1B3F57618B4E802E4A5A97D4A70337216A99F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -689,6 +739,8 @@ magnet:?xt=urn:btih:B3D1B3F57618B4E802E4A5A97D4A70337216A99F
 ```bash
 magnet:?xt=urn:btih:9B43F8206F0D3AE6FB02265F86A20A2DE1F487E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

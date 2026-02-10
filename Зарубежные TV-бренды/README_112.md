@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D2E7D456180EEF0B3919C0AF8A735C987902701E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:D2E7D456180EEF0B3919C0AF8A735C987902701E
 ```bash
 magnet:?xt=urn:btih:CA760EFC960E630BE15FCDFDED341570B374EE76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ History Channel. Мифы и правда о Карле Великом / Karl de
 magnet:?xt=urn:btih:9BE7106360F3C2E1073AE4546A30B9010B70DCB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BBC. Наша Первая мировая / Our World War (2014) HDTVRip (1-3 с
 ```bash
 magnet:?xt=urn:btih:230E483E34B94BBA5A9871945F908C69E18D40A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Discovery. Города живые и мёртвые. Совза - Вытегр�
 magnet:?xt=urn:btih:C5A371B8F37315A37A8F3B8BA8F0F64CDD87FCD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NG: Суперспособности животных / Animal Superpowers (2012
 ```bash
 magnet:?xt=urn:btih:0DA80D6E9B3EE84889DEACF29E9FD3227ED986F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Animal Planet:Дикие и опасные. Нападение леопарда 
 magnet:?xt=urn:btih:6232AF46984C9DC0FA5369674533F49812F6B752
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Discovery. Города живые и мёртвые. Аксай HDTVRip [H.264/
 ```bash
 magnet:?xt=urn:btih:707C25F2077869B15E5F905EE089CEB2E0EC64E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Discovery. Города живые и мёртвые. Губаха HDTVRip [H.26
 magnet:?xt=urn:btih:F8BB677D0A4AF6D61DAB5237A6B762EBE1AB4D36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ BBC. Наша Первая мировая / Our World War (2014) HDTVRip [H.264/
 ```bash
 magnet:?xt=urn:btih:14113ACB34AD19AAD0772948AAADBC29E2FF2283
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:14113ACB34AD19AAD0772948AAADBC29E2FF2283
 magnet:?xt=urn:btih:C0B975A7E82E3D6F24BC82817DE1CCCBD03BBC93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ BBC. Точность и погрешность измерений / Precision: 
 magnet:?xt=urn:btih:5FAB17E878E0809886AC182C965057C899473A85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ magnet:?xt=urn:btih:5FAB17E878E0809886AC182C965057C899473A85
 ```bash
 magnet:?xt=urn:btih:F00CB78A30D23CF9DEDE419528F857738F6393EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Discovery: Строительство небоскреба "Шард" / The Tall
 magnet:?xt=urn:btih:B269B6A63C158F3E9A389BDFD9A4681BB80F8E7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ BBC: Трагедия близнеца Титаника / Titanic's Tragic Twin:
 ```bash
 magnet:?xt=urn:btih:049B01293594A790622BAC5844A7A10F64750F1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:049B01293594A790622BAC5844A7A10F64750F1C
 magnet:?xt=urn:btih:C3EA4074A5D9B32823138494E205AEBDD6FB1D5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:C3EA4074A5D9B32823138494E205AEBDD6FB1D5E
 ```bash
 magnet:?xt=urn:btih:17DDB065412AD4D209E4ACCC58D6CA1CAC8BCEE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ Discovery. Города живые и мёртвые. Молога - Мышки�
 magnet:?xt=urn:btih:5FCF8A8374304A90C2E678128A2B4841763857E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Nat Geo Wild: Дикие острова: Невиданные острова / U
 ```bash
 magnet:?xt=urn:btih:EF99AC72B0C94FF50081BD89BC9E99FFF17F8CFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Nat Geo Wild: Секретный кубинский риф / Cuba's Secret Reef 
 magnet:?xt=urn:btih:74A5E00750B254A9EB6CDFF7172882FC05DD12C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ NG Потерянный рай Африки / Africa`s Lost Eden (2009) HDTVRip 
 ```bash
 magnet:?xt=urn:btih:5AF08BD658A5E913006123A2A092CE611BE52EB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ NG. Тайны истории. Распутин / Mystery Files. Rasputin (2009)
 magnet:?xt=urn:btih:0A59D89233BB7978E3DC8DCEDE978AA93663ABB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:0A59D89233BB7978E3DC8DCEDE978AA93663ABB1
 magnet:?xt=urn:btih:EDDB8A8BC2B36CAC1C44C67C80B44989E956EA7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ magnet:?xt=urn:btih:EDDB8A8BC2B36CAC1C44C67C80B44989E956EA7E
 ```bash
 magnet:?xt=urn:btih:A43ED2B2911A087653151F21E20030C2AB48366B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ Discovery. Техногеника. Буран (2016) HDTVRip [720p-LQ]
 magnet:?xt=urn:btih:4A95A04F1E4AC2A592B416EB265FEEE70419D461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ magnet:?xt=urn:btih:4A95A04F1E4AC2A592B416EB265FEEE70419D461
 ```bash
 magnet:?xt=urn:btih:D10532C7CE153EA17A6BAC032CD32E27E8F82973
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

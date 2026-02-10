@@ -22,6 +22,8 @@ inkerTool System 6 — новая версия утилиты для админ�
 magnet:?xt=urn:btih:198DE5558242227E4B5250790115F55138958D3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Vogue — женский журнал о моде, издаваемый с 1892 
 ```bash
 magnet:?xt=urn:btih:755E4747C844575A6879847EF11ACCDBE075BCEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ A'mbar - Love Maniac (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 magnet:?xt=urn:btih:7690127A3ED48F7DA6CDDA480B0133FE46889AD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ RadioMaximus 2.26.2 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BB1C6C3F8B16B511798058294AF327DDB7FDF5FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:BB1C6C3F8B16B511798058294AF327DDB7FDF5FB
 ```bash
 magnet:?xt=urn:btih:FE205EE598058A305195D6D60D9DF2FEB050D9CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ Escape With Romeo - Greatest Hits (1999) [FLAC|Lossless|tracks + .cue] <Electron
 magnet:?xt=urn:btih:9DF0C7BB1FB0A5FDA5E2CF99A45AC1EED32924B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ Marc Hartman - 4 Seasons To Chill (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:CC0C9A704EA70CCDC0FBA2BF668E0FA2C355C2E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -204,6 +218,8 @@ Vassafor - Malediction (2017) [FLAC|Lossless|tracks + .cue] <Black Metal>
 magnet:?xt=urn:btih:E487A5228B02929AAB8650071973AB18DC8772B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -230,6 +246,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:AF6DB3A3F40DFAC2B56AC284A981E34328188117
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -258,6 +276,8 @@ magnet:?xt=urn:btih:AF6DB3A3F40DFAC2B56AC284A981E34328188117
 magnet:?xt=urn:btih:65DBE2FF3E0779E40624AA7A5BDBDC827C85CDA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +302,8 @@ magnet:?xt=urn:btih:65DBE2FF3E0779E40624AA7A5BDBDC827C85CDA3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +327,8 @@ magnet:?xt=urn:btih:65DBE2FF3E0779E40624AA7A5BDBDC827C85CDA3
 ```bash
 magnet:?xt=urn:btih:3E2EE2BC493B5EC7A28B3DC8545D29B030B9606C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +356,8 @@ magnet:?xt=urn:btih:3E2EE2BC493B5EC7A28B3DC8545D29B030B9606C
 magnet:?xt=urn:btih:214FFEA2CD847C3CFDB59AA0647A1C1DB9B950B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ magnet:?xt=urn:btih:214FFEA2CD847C3CFDB59AA0647A1C1DB9B950B4
 magnet:?xt=urn:btih:6EF0B19551F6B708BF26D1F47BE3931789FC504F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ Opera 65.0.3467.42 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:D6D21E675F83AF572AAB605BF2D5DF1C2917A274
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ magnet:?xt=urn:btih:D6D21E675F83AF572AAB605BF2D5DF1C2917A274
 magnet:?xt=urn:btih:46FBBBB808F33F4B98D48A5406A30D7CCC17E2D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ magnet:?xt=urn:btih:46FBBBB808F33F4B98D48A5406A30D7CCC17E2D9
 ```bash
 magnet:?xt=urn:btih:5031DF15792EF88052560FD2B458614BCA61A68E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +488,8 @@ magnet:?xt=urn:btih:5031DF15792EF88052560FD2B458614BCA61A68E
 magnet:?xt=urn:btih:25F3D5ED00EE63EBE000FC2FBB83FF7960787903
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:25F3D5ED00EE63EBE000FC2FBB83FF7960787903
 ```bash
 magnet:?xt=urn:btih:E0E5BE7681DE999537E7458063F4002BD997A4E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +540,8 @@ Vogue — женский журнал о моде, издаваемый с 1892 
 magnet:?xt=urn:btih:AB1840833EFDC0285A09C6C92ADD2BE00A772211
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ Vogue — женский журнал о моде, издаваемый с 1892 
 magnet:?xt=urn:btih:C0035D7146EBED7CA2CD2BEC9ABF93394FB23DBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ Vogue — женский журнал о моде, издаваемый с 1892 
 ```bash
 magnet:?xt=urn:btih:3F114F1E5AA75CDFD472F65078353877C25A0A55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +621,8 @@ Eliane Elias - Love Stories (2019) Concord Jazz [FLAC|Lossless|tracks + .cue] <V
 magnet:?xt=urn:btih:F7152A86208BD95B3312A5244FA7C11501E9387F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +647,8 @@ magnet:?xt=urn:btih:F7152A86208BD95B3312A5244FA7C11501E9387F
 magnet:?xt=urn:btih:1DE7068B314EA14BAAC4A2FC6ABEBED7673229FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ Vogue — женский журнал о моде, издаваемый с 1892 
 ```bash
 magnet:?xt=urn:btih:FAC866F9C5E5F481F3321508AA6F1828C46E1337
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +701,8 @@ VA - A Tribute to Amateras (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Space
 ```bash
 magnet:?xt=urn:btih:FD23C8C3AF3A214076C7DA565DCD55481D763B26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

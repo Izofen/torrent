@@ -22,6 +22,8 @@ VA - 60 minutes. Old School Dance Music vol.18 (mixed by Dj V) (2023) [MP3|320 K
 magnet:?xt=urn:btih:5BAB46BF19E638EA3CD6A2732A8746FF2D7FDB68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - Abstract Electronic: Experimental Synth Pack (2021) [MP3|320 Kbps] <Synthwa
 magnet:?xt=urn:btih:16E5943B6931078C6A2AD50F98FE8F68D3A10935
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ GraphicConverter 11 — полнофункциональный графичес�
 ```bash
 magnet:?xt=urn:btih:203EC6AB573A89F85ECF6B3D9FCB3940CC5B902D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:203EC6AB573A89F85ECF6B3D9FCB3940CC5B902D
 magnet:?xt=urn:btih:0B1CFF9CA74B69D0D029F39CD2F720F34715E1B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ DesktopOK - небольшая бесплатная и портативная (�
 ```bash
 magnet:?xt=urn:btih:E2A838883A11C5EE9F83B91741BCBF43862B726A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:E2A838883A11C5EE9F83B91741BCBF43862B726A
 magnet:?xt=urn:btih:D41B07F98E1AA2715B1A9D094452DFE3D57830FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:D41B07F98E1AA2715B1A9D094452DFE3D57830FB
 magnet:?xt=urn:btih:DF3B41E5B09A4FEC38CBE53F12C9D3069BA2C77D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Icecream PDF Split & Merge Pro 3.47 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:122B1D54C446F8837AF0CF961B46934FF37D10F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ VA - Beatport Electro House: Sound Pack #238 (2021) [MP3|320 Kbps] <House, Deep 
 magnet:?xt=urn:btih:639518752B48D138FE08EEF87248D53D5BE9F83C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ SiteSucker умеет загружать (   Читать дальше...   )Т
 magnet:?xt=urn:btih:55E0EC7703E0AED0DBA4A5FFC474D05DF313748F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:55E0EC7703E0AED0DBA4A5FFC474D05DF313748F
 ```bash
 magnet:?xt=urn:btih:090E1A909FC72BB0C4DC870CACB6D0C687371A51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:090E1A909FC72BB0C4DC870CACB6D0C687371A51
 magnet:?xt=urn:btih:C65EE5748643D0ED9F1D8F4863ED78AF75453628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:C65EE5748643D0ED9F1D8F4863ED78AF75453628
 ```bash
 magnet:?xt=urn:btih:D967022557AAC53A99E37D7AEF60E0504B8EFEE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавля�
 magnet:?xt=urn:btih:17B982F6FA573867CC5A7D94C8338C6268658ED6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ WinMerge является весьма полезной для определе�
 magnet:?xt=urn:btih:76F5250750B230C69A4BAE7DB96FD563E10A284E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ Line 6 - The Metallurgy Collection 1.0.2 Standalone, VST 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:DF8FD1816DB61B2B1E7BAE77005C1749F0EA42A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 ```bash
 magnet:?xt=urn:btih:7CF90050257003CD286052C526BF75FBBFC7FCC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:7CF90050257003CD286052C526BF75FBBFC7FCC0
 magnet:?xt=urn:btih:0A5827F0DD33F2A75AB5061F7ED16C1CD9737B96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ Blast Brigade vs. The Evil Legion of Dr. Cread - двухмерная метро
 ```bash
 magnet:?xt=urn:btih:85A23ABE3E77C1195388788A2D0CF2CB82641F2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:85A23ABE3E77C1195388788A2D0CF2CB82641F2C
 magnet:?xt=urn:btih:55A0BD24D89F5F7C9DA8302B2ED68511D467F3CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:55A0BD24D89F5F7C9DA8302B2ED68511D467F3CF
 ```bash
 magnet:?xt=urn:btih:2AE1F20FF549C398C692E63DD7F9AF56EA2637D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 magnet:?xt=urn:btih:AFD617547F9D85D1E3D371F4E8B7425F5ED0C0B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:AFD617547F9D85D1E3D371F4E8B7425F5ED0C0B8
 ```bash
 magnet:?xt=urn:btih:32851BB87993E7B24B29CA9E336C57A5205DC84D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:32851BB87993E7B24B29CA9E336C57A5205DC84D
 magnet:?xt=urn:btih:27C05BD5C401995A898FF3F8D8F4B8E0B1B17FDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:27C05BD5C401995A898FF3F8D8F4B8E0B1B17FDD
 ```bash
 magnet:?xt=urn:btih:0DEE8D3E5FD10A6ADBC43BB3E1CB2E9A510BB196
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +686,8 @@ Ben Harper - Wide Open Light (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alter
 ```bash
 magnet:?xt=urn:btih:AE32585072DF5A8CC3FA33514FF10F35434B5159
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8E95AB7D08237350E3E32DBA9C4D3F3547EC46B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Pro Basketball Manager 2024 предлагает стать тренером и 
 ```bash
 magnet:?xt=urn:btih:E63E1A5FC844170C8835D95363DDD5A559C6C23E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Pure — это не симулятор квадроцикла, да и не г�
 ```bash
 magnet:?xt=urn:btih:B5773CA6701CF8E93BCE8C07F55743EA8D544309
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ The Dark Eye: Chains of Satinav [Ru/En] (RePack/1.1) 2012 | Audioslave
 magnet:?xt=urn:btih:E25D1F1B3DCF79EDAAA1372863605DF5407B4B22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ THE MULLER-POWELL PRINCIPLE погружает в межпространстве
 ```bash
 magnet:?xt=urn:btih:0CB77E3E1C2491167289AB8DC9032B8FF41FD87E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Skinwalker Hunt — это симулятор охоты, смешанный с 
 magnet:?xt=urn:btih:8B60A0E514BE039F3467FE7D27E1533F5A7EBBE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Ms. Holmes 5: The Milverton Plot (2023) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:8AE8AD1D38133EB8AEDEFF8D1E29A8A8BD51BEB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Ingenious / Ingenious. Все гениальное просто [Ru] (L) 2007
 magnet:?xt=urn:btih:67FF833AD7C561E23593AA33A144E9914AED9117
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.2.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:FD4FA91B665B4E79BC0F44E3A4FD3B574B6D9E45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Anvil Saga (2022) [Ru/Multi] (1.0) License GOG
 magnet:?xt=urn:btih:CB8F911B5CF7C039D91A347A855A5A9CC576448C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Forgive Me Father — мрачный, олдскульный шутер, соз�
 ```bash
 magnet:?xt=urn:btih:936F13EA122FE3733994D728D7C8D887452D90BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ THE MULLER-POWELL PRINCIPLE погружает в межпространстве
 magnet:?xt=urn:btih:952047232357F26E54A0B04F4623742250A082D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Car Mechanic Simulator 2021 - симулятор механика, позвол�
 ```bash
 magnet:?xt=urn:btih:773056ABDB85F6DF9D9DD020AD3D22AC3F13CEC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Epic Tavern (2017) [En] (1193) License GOG [Early Access]
 magnet:?xt=urn:btih:BE23A1C3F0BD7C3805D95DB2C2602E4CB862F9FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Gangs of Sherwood (2023) [Multi] (1.5.253310/dlc) Scene FAiRLIGHT [Lionheart Edi
 ```bash
 magnet:?xt=urn:btih:DBEAC4F441F81A1829A95482B4A006423846D738
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Last Train Home - это интригующий тайтл, погружающи
 magnet:?xt=urn:btih:F56379256540957695F01BBE57848AEB22BDD52C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Gangs of Sherwood (2023) [Multi] (1.5.253310/dlc) Repack DjDI [Lionheart Edition
 ```bash
 magnet:?xt=urn:btih:DCB7B2952FB4613EA6D762D298A388D1468D2ABA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Monstrum (2015) [En] (1.5.0) Repack Other s
 magnet:?xt=urn:btih:0C90F9333F06DF98F9085AB43829E04B541D4891
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Slender: The Arrival возвращается с долгожданным обн
 ```bash
 magnet:?xt=urn:btih:6A6C65CC5A8E523E444E4E3DD790C2C3BDAF8AA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ The Closing Shift (2022) [Multi] (1.10) Repack Other s
 magnet:?xt=urn:btih:A87068EEE56E49D7F4CD929437A6D3A8C9520332
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ MAMIYA: A Shared Illusion of the World's End (2021) [Multi] (7.1.2/dlc) Scene Te
 ```bash
 magnet:?xt=urn:btih:1377DA2E8E2CF94BD3576887B2758C53AA4F4F59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Call of Juarez: The Cartel / Call of Juarez: Картель [Ru/En/Multi9] (Stea
 magnet:?xt=urn:btih:FDB26200383A0A6310139C3C69B824C7BD53FA76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Mundaun — это жуткая история с карандашными ил�
 ```bash
 magnet:?xt=urn:btih:AD98460209CF6390332F34ADBD130B44361EB645
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ Ghoul Castle 3D: Gold Edition переносит пользователей в �
 magnet:?xt=urn:btih:24484DB03EAFF2D23477F5CE4CB6A4308D922ED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Royal Romances 5: Cursed Hearts / Королевские романы 5: Про�
 magnet:?xt=urn:btih:F0A583874F3BE3D715A7B678FA74CE07684E8AF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Mystery Case Files 26: A Crime in Reflection / За семью печатями 
 ```bash
 magnet:?xt=urn:btih:D2FE115B09990124D3ABB4CAB6FEE4B249AAFB4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

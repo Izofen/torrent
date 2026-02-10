@@ -1,51 +1,3 @@
-###  Публикация: 544811   (487003) от 09.09.2012
-
-Веселые картинки от австралийского художника Ferdinand Kreozot  [Графика]
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веселые картинки от австралийского художника Ferdinand Kreozot
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9556DA2F1A88FDD6E28FF2D162108F7C6DDE3230
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937562   (487633) от 15.09.2015
-
-Обои - Уж небо осенью дышало. 2560x1440 - 150 шт [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник разнообразных осенних пейзажей.Формат: JPGРазрешение файлов: 2560х1440
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A1A1E93F2BE69194B5408E137C60E75110D8D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937506   (487943) от 15.09.2015
 
 Обои - Лана Дель Рей. 1920x1080 - 3840x2160 - 70 шт [JPG]
@@ -66,6 +18,8 @@ magnet:?xt=urn:btih:14A1A1E93F2BE69194B5408E137C60E75110D8D0
 ```bash
 magnet:?xt=urn:btih:F3348C5A806DCCA7206177A0CC9489305FE6145A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +45,8 @@ magnet:?xt=urn:btih:F3348C5A806DCCA7206177A0CC9489305FE6145A
 magnet:?xt=urn:btih:CB9D69280759CB2A35C07B33471DD3C0DB0668D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +70,8 @@ magnet:?xt=urn:btih:CB9D69280759CB2A35C07B33471DD3C0DB0668D4
 ```bash
 magnet:?xt=urn:btih:52792D9097FDE4672A71A9C81B718E40229BAFEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +97,8 @@ Artworks by Tiziano Vecellio
 magnet:?xt=urn:btih:364826B18810636E35642D003E15D6CDD4060635
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +122,8 @@ magnet:?xt=urn:btih:364826B18810636E35642D003E15D6CDD4060635
 ```bash
 magnet:?xt=urn:btih:7167C1583E164796514E5C22319F272D77884963
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +149,8 @@ magnet:?xt=urn:btih:7167C1583E164796514E5C22319F272D77884963
 magnet:?xt=urn:btih:E8B6F8A065EF4E805B89B37B0F4292572AC662EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +174,8 @@ magnet:?xt=urn:btih:E8B6F8A065EF4E805B89B37B0F4292572AC662EC
 ```bash
 magnet:?xt=urn:btih:AD1552B2C25594304E41072684B3BE389092CD9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +201,8 @@ magnet:?xt=urn:btih:AD1552B2C25594304E41072684B3BE389092CD9E
 magnet:?xt=urn:btih:8C8DD3EC69197CCF7E52A01FD057271A7A978559
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +227,8 @@ magnet:?xt=urn:btih:8C8DD3EC69197CCF7E52A01FD057271A7A978559
 magnet:?xt=urn:btih:6EB8385AE9BFB848093887A59A08C30D7E8C0151
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +252,8 @@ magnet:?xt=urn:btih:6EB8385AE9BFB848093887A59A08C30D7E8C0151
 ```bash
 magnet:?xt=urn:btih:0447B04C46132959E443386A9494C13B1FFDAD90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +280,8 @@ magnet:?xt=urn:btih:0447B04C46132959E443386A9494C13B1FFDAD90
 magnet:?xt=urn:btih:B7B5FFE7840FCF8CA17864F5FD616F17DE3529A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +307,8 @@ magnet:?xt=urn:btih:B7B5FFE7840FCF8CA17864F5FD616F17DE3529A9
 magnet:?xt=urn:btih:C57092B60E99AE09C0F795A4C79877F7AD6B831A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +332,8 @@ magnet:?xt=urn:btih:C57092B60E99AE09C0F795A4C79877F7AD6B831A
 ```bash
 magnet:?xt=urn:btih:8BAE39C75493C416D4831D77D2983AF7B2704967
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +359,8 @@ magnet:?xt=urn:btih:8BAE39C75493C416D4831D77D2983AF7B2704967
 magnet:?xt=urn:btih:25D7F9D7D3BD37A1916BB614BF38FDE274E3D2DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +384,8 @@ magnet:?xt=urn:btih:25D7F9D7D3BD37A1916BB614BF38FDE274E3D2DC
 ```bash
 magnet:?xt=urn:btih:A63071276F42413918977ADD33F4F5B438BE00CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +411,8 @@ magnet:?xt=urn:btih:A63071276F42413918977ADD33F4F5B438BE00CC
 magnet:?xt=urn:btih:465F19E4625DCBAEBBFD434DD41F3D1EA775AAB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +436,8 @@ magnet:?xt=urn:btih:465F19E4625DCBAEBBFD434DD41F3D1EA775AAB4
 ```bash
 magnet:?xt=urn:btih:8DF4B8969288A9F7C36A78F48B12689980B6DCF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +463,8 @@ magnet:?xt=urn:btih:8DF4B8969288A9F7C36A78F48B12689980B6DCF0
 magnet:?xt=urn:btih:6DD4887BC31DA6B3001A6123B282A187DB88D6C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +488,8 @@ magnet:?xt=urn:btih:6DD4887BC31DA6B3001A6123B282A187DB88D6C8
 ```bash
 magnet:?xt=urn:btih:37E8A8097BF425AD5CF0A8610066C0349FFC3D60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +515,8 @@ magnet:?xt=urn:btih:37E8A8097BF425AD5CF0A8610066C0349FFC3D60
 magnet:?xt=urn:btih:B7A571D034A635754F9810A59A0D9409F2245FBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +540,8 @@ magnet:?xt=urn:btih:B7A571D034A635754F9810A59A0D9409F2245FBC
 ```bash
 magnet:?xt=urn:btih:D1019E406018EDFDFB74EBA0FBCD96883B231F05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +567,8 @@ magnet:?xt=urn:btih:D1019E406018EDFDFB74EBA0FBCD96883B231F05
 magnet:?xt=urn:btih:F24D4065E4A2775D0DA3814DF00385203CBF08B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +593,8 @@ magnet:?xt=urn:btih:F24D4065E4A2775D0DA3814DF00385203CBF08B1
 magnet:?xt=urn:btih:3A300BA98C075A1B32BD7E28D539606FED53EF31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +618,60 @@ magnet:?xt=urn:btih:3A300BA98C075A1B32BD7E28D539606FED53EF31
 ```bash
 magnet:?xt=urn:btih:7D5F1AEDB997ADBB9A40AF53CBA88ADE09F7F376
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936818   (492360) от 13.09.2015
+
+Обои - Водопады 7 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои на тему водопадовФормат: JPGРазрешение файлов: 1920x1080 - 2560x1440
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1667146517D90EB3D519AFB2D8A1213B70A58123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542923   (492828) от 06.09.2012
+
+[Wallpapers] HD обои высочайшего качества By Satirov
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492828.jpg" />
+</div>
+
+
+###  Подробнее
+
+представляю вам Очередную мою сборку HD обоев высочайшего качества рассортированные по категориям для вашего удобства чтоб не качать всю смесь целиком.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D073830A1C9EC0BD3C41CEC0FC87E0ABCEF956B7
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

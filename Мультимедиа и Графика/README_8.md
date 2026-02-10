@@ -19,6 +19,8 @@ dxRevive — это универсальный плагин для восста�
 magnet:?xt=urn:btih:9A63EBFC6EE7B0FD947FB18049DFBC7BAE285FBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Obliterate начинался как фильтр, но в коде была о�
 magnet:?xt=urn:btih:F41C79434A2968102DB9C2ACBA5EB3AEB1DD392D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Cockos Reaper является одной из самых продвинутых
 ```bash
 magnet:?xt=urn:btih:9AD59FB7CE76B323BEC9DFC0A098D9DA1A3EEC83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ MediaHuman Audio Converter - бесплатный аудио конвертер,
 magnet:?xt=urn:btih:55A0EF58D9BD0E892BEE1E664EE319BDD26C410E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ V-Ray for Blender - это плагин, разработанный компан
 ```bash
 magnet:?xt=urn:btih:565C1DF85E38023C9219CEEE66A069F6A073672C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Insofta Cover Commander позволяет создавать профессио
 magnet:?xt=urn:btih:3EEA0BBBDB205A2E93BDB223B88CB1B0637AB66F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Chameleon — это интеллектуальный аудиоплагин, к
 ```bash
 magnet:?xt=urn:btih:93D98EE2B416DD565734CE9DD9FF999B834A961D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 magnet:?xt=urn:btih:5CF18DF55C2357848B75CA8E08F46D637EE358B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ D16 Group - SilverLine Collection 2025.6 VST, VST 3, AAX (X86/X64) RePack by TCD
 magnet:?xt=urn:btih:B77A3CE7B4901E19302F624B6DB8B371B9625A60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ LANDR - Mastering Plugin Pro 1.1.34 VST 3, AAX (x64) RePack by R2R [En]
 ```bash
 magnet:?xt=urn:btih:5162AB826319F8E67E2BE0D6707C262DAEC40265
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Tonal Balance создан для отображения взаимодейст�
 magnet:?xt=urn:btih:68B7AA067E7DA29118A32CD79D3A912A4CAD6799
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ KORG - ARP 2600 1.1.5 Standalone, VSTi 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:CF0CEA72737B8E2446D1009BA2CED4E68847A827
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Modwave, выпущенный в 2021 году, основан на наслед
 magnet:?xt=urn:btih:7B0715F986D17192C438BD30D4C7BF775789D881
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Korg выпустила программную версию синтезатор
 ```bash
 magnet:?xt=urn:btih:8E520A14E87AF57CE166B674710475E936FD23C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ CherryPlayer - уникальный проигрыватель аудио -, в�
 magnet:?xt=urn:btih:077650009A8846CD2AA3F101311E9BBD80C7583C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Nectar 4 может похвастаться полным набором инс�
 ```bash
 magnet:?xt=urn:btih:7365C95FCFF8A5F493F4DE1505AE39B40A19E36B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ IK Multimedia официально представила новую верси�
 magnet:?xt=urn:btih:5BFF83AA21405DDAA6075D34D49647FDAF006613
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Steinberg - Cubase Pro 14 14.0.32 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A1751C9FB2572F3059809724F99E9CB287B51EA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ UJAM - BEATMAKER 3 3.0.0 VSTi, VSTi 3, AAX (x64) RePack by TCD [En]
 magnet:?xt=urn:btih:6782E32167A7BC546C284F93EDEC731FBB7B2401
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Baby Audio - Humanoid 1.2.0 VST, VST 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:FD8FF05CCEA6CAD2D2DD26161152764EA3BC47D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ MODO BASS 2 — это расширенное издание первого во
 magnet:?xt=urn:btih:607220B8CEFD9109A13B7E8BC271608B13D241C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Lurssen Mastering Console это новый новаторский инстру�
 magnet:?xt=urn:btih:0204460CF6698D95F10D55CF75F1A2E4C7DC8DCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ MixBox - это отмеченные множеством наград 71 луч
 ```bash
 magnet:?xt=urn:btih:703DA3877764A320823EA839E34CD1442D8A9781
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ Strymon - Plugins Effects 06.2025 VST 3, AAX (x64) RePack by R2R [En]
 magnet:?xt=urn:btih:7B9E14033ECD65D9BC8ACD80F5F17C6CB5BBA57F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Brainworx & Plugin Alliance - bx_masterdesk Bundle 2025.6 VST, VST 3, AAX (x64) 
 ```bash
 magnet:?xt=urn:btih:B750BAA37DEE392EECCDC5CC2A32AB70AC32F990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +682,8 @@ Media Player Classic - BE – универсальный проигрывате�
 ```bash
 magnet:?xt=urn:btih:5C8A1BBB9A648B3E64424A39471AFD1ECA06FE00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

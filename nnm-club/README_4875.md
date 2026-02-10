@@ -20,6 +20,8 @@ AIMP 5.01 Build 2356 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:BFFA2A99D6818A3CE8AF622970C556A219FA3133
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:BFFA2A99D6818A3CE8AF622970C556A219FA3133
 magnet:?xt=urn:btih:97FA85B56ABC443C94297DCCA95DCE77BCA0074E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:97FA85B56ABC443C94297DCCA95DCE77BCA0074E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:97FA85B56ABC443C94297DCCA95DCE77BCA0074E
 magnet:?xt=urn:btih:99211B5BF4AC0306C4F91510E7063BDA74EB35A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ AusLogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:1DA99073A48744274CD140878B5EB2F9A8F6D94F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:1DA99073A48744274CD140878B5EB2F9A8F6D94F
 magnet:?xt=urn:btih:5A58EC94091A269F8548AC37D162CDBE2F860D56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:5A58EC94091A269F8548AC37D162CDBE2F860D56
 ```bash
 magnet:?xt=urn:btih:28954D548FDD6E2E9B0B255D7440DF6B82153F64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:28954D548FDD6E2E9B0B255D7440DF6B82153F64
 magnet:?xt=urn:btih:76EAEAC5D144B2A559BC99AB0B37FACE197AEB5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:76EAEAC5D144B2A559BC99AB0B37FACE197AEB5E
 ```bash
 magnet:?xt=urn:btih:10004C5F15A4E312D5AD7928CBAA3E4ED97640E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Kenny Wayne Shepherd - Dirt On My Diamonds, Vol. 1 (2023) [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:F5A5C8CAACCD80520713F3BC3D9E1E74B35F5909
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:F5A5C8CAACCD80520713F3BC3D9E1E74B35F5909
 ```bash
 magnet:?xt=urn:btih:78AC6CED92E25270DC62023DA5D1B53AF96B3FE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:78AC6CED92E25270DC62023DA5D1B53AF96B3FE1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ Movavi Video Suite - пакет программ на русском языке,
 ```bash
 magnet:?xt=urn:btih:D6BE02EF10A479A1A81C90AD1F40D8352C6A49CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:D6BE02EF10A479A1A81C90AD1F40D8352C6A49CC
 magnet:?xt=urn:btih:238543288B65555230C2B5E786E15E97BBAF4D92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ OpenedFilesView 1.61 Portable [Ru/En]
 magnet:?xt=urn:btih:12EC39E600FEE960B25FD0B302A617653B72B85E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ Dungetris - классический пошаговый rogue-like, с нест�
 magnet:?xt=urn:btih:841BF16D7544ABED17B68EBECEEEA382A0930340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:841BF16D7544ABED17B68EBECEEEA382A0930340
 ```bash
 magnet:?xt=urn:btih:8EF8A12CE74D225613A884353D3D875F60BC88BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ Icecream Video Editor - видеоредактор, предлагающий б�
 magnet:?xt=urn:btih:11EBBAA06A9A30901D3313D7C86D60BFDC8A68D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ Houkago Saikoro Club | After School Dice Club | Клуб настольных и
 ```bash
 magnet:?xt=urn:btih:406BD704DE1BA62CA93AD887CB166DC43053F9A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:406BD704DE1BA62CA93AD887CB166DC43053F9A7
 magnet:?xt=urn:btih:712F0264F262952D9EEB955A825FF43067E0A108
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:712F0264F262952D9EEB955A825FF43067E0A108
 ```bash
 magnet:?xt=urn:btih:39FFD2A3D8C80052C4DEB1348025E150BC96CDC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ Seal 1.11.0-rc.3 [Ru/Multi]
 magnet:?xt=urn:btih:EBA85858483FE45A9EE33BE6DE386009EC632890
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:EBA85858483FE45A9EE33BE6DE386009EC632890
 ```bash
 magnet:?xt=urn:btih:2E37F4C09902B8E6EECE07200F0214E40F0B6746
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:2E37F4C09902B8E6EECE07200F0214E40F0B6746
 magnet:?xt=urn:btih:E54B66AC0BF4C0C88EC56E4B8DB4034D944C681F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:E54B66AC0BF4C0C88EC56E4B8DB4034D944C681F
 magnet:?xt=urn:btih:70EEAB22E9CE6A80828B525C5FEF929721657780
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:70EEAB22E9CE6A80828B525C5FEF929721657780
 ```bash
 magnet:?xt=urn:btih:17D25B0F9BB446B2CBDB50ED1765036F71084867
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

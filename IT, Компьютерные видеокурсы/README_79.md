@@ -19,6 +19,8 @@ Stepik, Никита Пестров и др. | Создание Web-сервис
 magnet:?xt=urn:btih:754DBC22B0DA507262CC2441EE770E2E2A3CD231
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Udemy, Илья Фофанов, Dmitri Nesteruk | Шаблоны проекти�
 ```bash
 magnet:?xt=urn:btih:EC53DE0D13168839D64C9B3168BABA9199AE25E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ CI/CD - универсальная штука, не привязанная к я
 magnet:?xt=urn:btih:55BFF1A7DD54E8BC6C0525738C0B41F8EE620E8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Udemy, Anfisa Breus | Elementor 2021- от новичка до профи (2021)
 magnet:?xt=urn:btih:87ACC155BE1E40813A5FA024879C6AE3F0F7D6E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ GeekUniversity | Первая четверть. Разработка Frontend-а
 magnet:?xt=urn:btih:4AEB458CDA9D8F3805A198639DDDF554C3AB6136
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:4AEB458CDA9D8F3805A198639DDDF554C3AB6136
 ```bash
 magnet:?xt=urn:btih:B2170CEB089312E3F1B219E0FA14D983B5F0E3C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ REST API.Как правильно проектировать, версиони�
 magnet:?xt=urn:btih:F4D5E2688997BDA48321D10D8EE9F73E3E0DEACD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ Udemy | Изучите HTML и CSS за несколько часов (2018) PCR
 ```bash
 magnet:?xt=urn:btih:100BB911CFD9EFD5E246FF54D6EAE8CBE3552CEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ HTML Academy | Профессиональный JavaScript, уровень 2 (20
 magnet:?xt=urn:btih:A72B1614100922EF8D9D7AFBD36E56A88F3C7509
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ Udemy | Основы работы с Git и GitHub (2018) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:950D7CC465CD5485A77D2D8EFF589532D74BC010
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ Udemy | Познавая вёрстку HTML, CSS и кое что ещё (2018)
 magnet:?xt=urn:btih:60EA859983149E2C7AB1713423D5FCA12A7B5974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:60EA859983149E2C7AB1713423D5FCA12A7B5974
 ```bash
 magnet:?xt=urn:btih:B2E127DAB75A98CEAEF4687C769112B9DEBEF4F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ Flutter - фреймворк, разработанный Google - позволя
 magnet:?xt=urn:btih:FC2A57F8DAC3D89C58195FBF45BE8B897CE97597
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ React -  чрезвычайно популярная библиотека, и р
 ```bash
 magnet:?xt=urn:btih:B604C5A8A799CDAC1E2F70F159A17BD72C240496
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ GeekBrains | Тестировщик ПО (2019) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:0E9AF0D5D1D331A3BD35C21379B506304CE802F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:0E9AF0D5D1D331A3BD35C21379B506304CE802F8
 ```bash
 magnet:?xt=urn:btih:AEDD07D2993A8AD6A2D8FA9810B9F03251A462A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ Frontend-разработчик создаёт интерфейсы, с кото
 ```bash
 magnet:?xt=urn:btih:44A6A16E8DC0D6E4212E00C5743F68EC8AACBE95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ GeekUniversity | Факультет информационной безопас�
 magnet:?xt=urn:btih:A453E656D76DD95DE9B7868B3647A55CBFA2D802
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ GeekUniversity | Факультет информационной безопас�
 ```bash
 magnet:?xt=urn:btih:14ED3B91E961E68CAAF2ACB6F6AF4391CE90331D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +543,8 @@ GeekUniversity | Факультет информационной безопас�
 magnet:?xt=urn:btih:1936108CFA3C4DEA32C3EF4BF52528702FD0C9F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ GeekUniversity | Факультет информационной безопас�
 magnet:?xt=urn:btih:48062D69320835C55AE4E7F457F3B6F0EBB87782
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ GeekUniversity | Факультет информационной безопас�
 ```bash
 magnet:?xt=urn:btih:1D61D882D173F70339DF11104E9A4785B91650B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +625,8 @@ Udemy, Daniel Orchard | Vehicles in Unreal Engine 4 (2020) PCRec [EN / EN Sub]
 magnet:?xt=urn:btih:09B08F1039E32D77BAF4674C47881CF2B22AA19D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ CG Cookie - 2010 Blender Training Series (full parts 1 & 2) [2010, ENG] PCRec
 ```bash
 magnet:?xt=urn:btih:1906DB3F21D783F0EB91E0E2B96056CAE816A521
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +680,8 @@ Udemy | Тестирование ПО. С нуля до Junior QA (2020) PCRec [
 magnet:?xt=urn:btih:95291D84B2ECE058A867FD75947B7A61A2CB30A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ Skillbox | PHP-разработчик с нуля до PRO (2018) PCRec
 ```bash
 magnet:?xt=urn:btih:B37F9947DFCFB3FA6A93446003B9ACD59E7036EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

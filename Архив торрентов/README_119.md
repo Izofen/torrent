@@ -19,6 +19,8 @@ FanControl – свободно распространяемый продукт,
 magnet:?xt=urn:btih:31D2EEC901CA40212CF938AB2BC645E8BECB3D05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ CherryTree - функциональная программа, которая п�
 ```bash
 magnet:?xt=urn:btih:81D417A747AA4797B198AB00062F0AE2E9DA8B49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Calibre - простая и удобная программа для управ�
 magnet:?xt=urn:btih:3B805273478959465B2809F02BF94B304140D48F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ jetAudio это музыкальный проигрыватель с 10/20 по�
 ```bash
 magnet:?xt=urn:btih:6EF96317F6B72904BD242696FCB4D9296C659CC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Antivirus Removal Tool - портативный набор официальны�
 magnet:?xt=urn:btih:B5F4E09531CC1ACA8102AD2AADF0135B6D5F162C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Atlantis Word Processor 4.4.4.0 Repack (& Portable) by elchupacabra [Ru/En]
 magnet:?xt=urn:btih:A896B3C61FFC37792FB323DF2359B8F8FD5515CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ VRadio - Online Radio App v2.7.7 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:ABBEE32DFEB830D7B1220A7D4561C6AD05DD1E58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ TweakNow WinSecret Plus! - позволяет пользователям исс�
 magnet:?xt=urn:btih:F1AB2F8C3AE1A86166E6C760396CD313E68ED67F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Total CAD Converter - программа для конвертации файл�
 ```bash
 magnet:?xt=urn:btih:CE340CD0123131D7C132D0B5623F94CEFD4F4EEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ R-Studio Network 9.4 Build 191430 RePack (& Portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:C711D5DFA6BA6244296BF7F27045C6489269E9ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 magnet:?xt=urn:btih:69AEFCCE89C44D9A6737A61B474C6C1F88570D96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Media Player Classic - BE – универсальный проигрывате�
 magnet:?xt=urn:btih:2C2546A989B18601B9977CC23DF6E186C4885BC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ jetAudio это музыкальный проигрыватель с 10/20 по�
 ```bash
 magnet:?xt=urn:btih:814C4344A7CFC157F5A684E1D9818A0D3DA9BD3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Snappy Driver Installer Origin (SDI Origin) - главная ветвь порт
 magnet:?xt=urn:btih:46A9E0FBF698FC225E25CEBC10DCD00B97177D6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:125530D5F3C831DB80D29A1ECCCE6BF605505014
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:125530D5F3C831DB80D29A1ECCCE6BF605505014
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ R-Studio Network 9.4 Build 191430 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3A5CB71D3D29BEE5B5ED158CD85FFD5BBA215766
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:3A5CB71D3D29BEE5B5ED158CD85FFD5BBA215766
 magnet:?xt=urn:btih:F411C674C945D5B9E2717099DFCEDCBA2147A387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:BC7E559AE30D99C0A2CC500C782676BCBBE5D64F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ PDFCreator –  бесплатная программа для конверти�
 magnet:?xt=urn:btih:FAB491736B65436BFB232A88E56AFC193FFF14BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ ToonApp карикатура фоторедактор лучшее прилож�
 magnet:?xt=urn:btih:47675BA35CA1A2B03F41C28B24207FEC889F6DF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ R-Studio - основанная на новейшей уникальной те
 ```bash
 magnet:?xt=urn:btih:824D7D3292ECB16917C9394A8383112D9A71010D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ Topaz Photo AI использует передовые алгоритмы иск
 magnet:?xt=urn:btih:B738FFEAA8CCF83A2E564FDF90A0B96A4DBBB8D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Topaz Gigapixel AI — это приложение, использующее с�
 magnet:?xt=urn:btih:54E93595227FC7D3C0A4480B81967022349017FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Tor Browser Bundle 14.0.5 [Multi/Ru]
 magnet:?xt=urn:btih:A1889D2C71D7C2544EBE2FFBB2FEFEE2FE4D1B1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ CPU-Z способен показать различную информацию 
 ```bash
 magnet:?xt=urn:btih:710A478EE47B716890D33903DF3B2A992FF963F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

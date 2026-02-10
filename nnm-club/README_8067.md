@@ -22,6 +22,8 @@ VA - Black Hole House Music 02-17 (2017) [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:D69FD8009CA9E9BD9245CB98B8067D54951975E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:D69FD8009CA9E9BD9245CB98B8067D54951975E1
 magnet:?xt=urn:btih:D1E30C3C6FEA387A3F3BD14B92E6F9EDEDC3E01A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:D1E30C3C6FEA387A3F3BD14B92E6F9EDEDC3E01A
 ```bash
 magnet:?xt=urn:btih:7BB2932554256E2A95A79E84F319251327173CDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ VA - Friends List Vol. 1 (2018) [AAC|~309 Kbps] <Deep House, Tech House>
 magnet:?xt=urn:btih:32C385F43903F1F418786CF3D3B7927C2A2CBC2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:32C385F43903F1F418786CF3D3B7927C2A2CBC2A
 ```bash
 magnet:?xt=urn:btih:D56AF047FFA2FE05B13B9DF0A77F20596BD49773
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ VA - Twelve Inch Nineties 90s - Loaded (2017) 3 CD [OGG Vorbis|480 Kbps] <Electr
 magnet:?xt=urn:btih:A73F3C28B45876FCB75AFE1741AF6D235EFB6471
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ VA - Global DJ Broadcast: Top 20 February (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:C092EB6660A39614F7CE6BEE8287402633CCF141
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ The Wheel of Time (1999) [En] (333b) License GOG
 magnet:?xt=urn:btih:119EEE06B95985C767E80F71DD41A5A6AD38E86A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:119EEE06B95985C767E80F71DD41A5A6AD38E86A
 ```bash
 magnet:?xt=urn:btih:94A2F0A0D313082EE987DC74EDABF72055D3F774
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:94A2F0A0D313082EE987DC74EDABF72055D3F774
 magnet:?xt=urn:btih:A0ABA131218A50680D999BFF65C83F3DBF9EF351
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:A0ABA131218A50680D999BFF65C83F3DBF9EF351
 ```bash
 magnet:?xt=urn:btih:B6D4AD63DC2E9C5B0F859B86F9F60A399273C739
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ CD - 1:
 magnet:?xt=urn:btih:8E44992CC7FD802C9E7BC80DF2B9F27F51230378
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ IconJar 1.0.6 [En]
 magnet:?xt=urn:btih:6BB5B2E24F2584E5413CD0E083AB0966C0EF00A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:6BB5B2E24F2584E5413CD0E083AB0966C0EF00A4
 ```bash
 magnet:?xt=urn:btih:B36B3EC96A655BA400C9B41E8948E9EB269F55CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +407,8 @@ Pattern-seeking Animals - Only Passing Through (2022) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:D1237355D1FB8F86C2E71DE6AECBE672CCE545B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ Jurassic World Evolution 2 — долгожданное продолжение �
 ```bash
 magnet:?xt=urn:btih:ADEC63D28F0E935338FD4E178F1F51CF38EAB1C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ VA - Black Hole Trance Music 02-17 (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:0261EB22AF924D74FE1BB9C3D2AB61036677A8C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +490,8 @@ magnet:?xt=urn:btih:0261EB22AF924D74FE1BB9C3D2AB61036677A8C4
 magnet:?xt=urn:btih:37E4C66EB760F601E2AC98131AF98935A5C0F362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:37E4C66EB760F601E2AC98131AF98935A5C0F362
 ```bash
 magnet:?xt=urn:btih:4096937E4D6413E174FF97AC45004E6B6D5DBD25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ One Commander V3 — это современный файловый менедж
 ```bash
 magnet:?xt=urn:btih:67E08B269A9E76E4D5414393FE7919C864FC877E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ Electric Huldra - Electric Huldra (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 magnet:?xt=urn:btih:B38DF71BF984D0D626F7623DC2FE76BE454252B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ magnet:?xt=urn:btih:B38DF71BF984D0D626F7623DC2FE76BE454252B7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +627,8 @@ VA - Chilled & Timeless Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 magnet:?xt=urn:btih:B2437885A31FA0F71C3540000DC4A6EEDABBA55A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +652,8 @@ magnet:?xt=urn:btih:B2437885A31FA0F71C3540000DC4A6EEDABBA55A
 ```bash
 magnet:?xt=urn:btih:683DF82ECAB1FDEFF28DF16AD9369DDBBA682734
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +682,8 @@ Sandrider - Enveletration (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Ston
 magnet:?xt=urn:btih:A07C01C09139B786BB15C9F0AB0474D277562D24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ magnet:?xt=urn:btih:A07C01C09139B786BB15C9F0AB0474D277562D24
 ```bash
 magnet:?xt=urn:btih:5EBBEAA2491CA40A0982ADF12832958526CFABD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

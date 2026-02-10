@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:72158C8699C25E2965C65C763B351C4550E56B01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Ashes of the Union (2024) [Ru/Multi] (0.3.5 Hotfix 2) Repack FitGirl
 magnet:?xt=urn:btih:B984BE60C4990A7F714A40B31D5607CCE72C36A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:B984BE60C4990A7F714A40B31D5607CCE72C36A5
 ```bash
 magnet:?xt=urn:btih:3FD1D54F051363F43FB6880F77D336870C15F1EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:3FD1D54F051363F43FB6880F77D336870C15F1EF
 magnet:?xt=urn:btih:58519D73C578F3FBF3149D40872165C3C9D6FF39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:58519D73C578F3FBF3149D40872165C3C9D6FF39
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:58519D73C578F3FBF3149D40872165C3C9D6FF39
 ```bash
 magnet:?xt=urn:btih:3E48E606328DB91E6004206FA8E252445B7FB24E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:3E48E606328DB91E6004206FA8E252445B7FB24E
 magnet:?xt=urn:btih:DEAD283EFD9BA7395EED1C760A4A8C555DD49A0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:DB1688C62BF5935393DBBDC17BE1DC4EBCE83376
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:DB1688C62BF5935393DBBDC17BE1DC4EBCE83376
 magnet:?xt=urn:btih:D137B339F3AAD3F517D5E2E7E86F5F229ED37322
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Jixo: The Season of Joy / Jixo: Сезон веселья (2024) [Ru] (1.0) Unof
 ```bash
 magnet:?xt=urn:btih:C46697B8CE00CA7C12C41B24716520774C3F8B4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Alaskan Truck Simulator – уникальная игра, в которой в�
 magnet:?xt=urn:btih:901CAA006BAB3FF2657F989DEAFAE9679F75FF08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Unsolved Case 6: Ash and Secrets / Нераскрытое дело 6: Пепел
 ```bash
 magnet:?xt=urn:btih:D01EE947F615FFB380DFEDA20A683CCD2D82A573
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Connected Hearts 5: Hour of the Witch / Связанные сердца 5: Ча�
 magnet:?xt=urn:btih:0E226AA5220F4F4D9646C0407CF74B4032A73E65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ RedNotebook - это простое GTK+ / Gnome приложение напис
 magnet:?xt=urn:btih:F0A69843249B9AF65E1685F236BB55E548AC5D80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:F0A69843249B9AF65E1685F236BB55E548AC5D80
 ```bash
 magnet:?xt=urn:btih:5A41DB6BA2CE4BAD392A3072C02B0E8BE38B29CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Laid Back - FOREVERGREEN (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:DD6D640888DC186C85CFBDF2F052523C72EC7098
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:CC457174AF392D79D7AB51A74D30DB77FECCA35F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:CC457174AF392D79D7AB51A74D30DB77FECCA35F
 magnet:?xt=urn:btih:0C28EF6723DAE8D6BA4FEBF87F78187B11245DA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:0C28EF6723DAE8D6BA4FEBF87F78187B11245DA7
 ```bash
 magnet:?xt=urn:btih:96605286BA1B4D4E80C5A5341DB491BE10B6244E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ StaxRip - инструмент для кодирования видео "все-
 magnet:?xt=urn:btih:56A0A1633ABD2CD49B3B69B923B28F51A1B75D1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:56A0A1633ABD2CD49B3B69B923B28F51A1B75D1E
 ```bash
 magnet:?xt=urn:btih:67AB2EBF8A1944D696108EF15F1CCC6D72986184
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Opsix Native - это программный синтезатор, не похо
 magnet:?xt=urn:btih:EAAF29068C73B6CB787A963FA2B2171F29D256BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:EAAF29068C73B6CB787A963FA2B2171F29D256BF
 ```bash
 magnet:?xt=urn:btih:335DD455880D37E4C8D435F8264783E412ED3A70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Ebenezer and the Invisible World (2023) [Ru/Multi] (1.2.0.1) Repack Let'sРlay [
 magnet:?xt=urn:btih:AA8B7199E92E9EE9A351E1B9ABB50E9B08C1AAF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ QownNotes – менеджер заметок, позволяющий четко
 magnet:?xt=urn:btih:4D323DF3759FEBAC0313643D5DAEAB9F41F4EAB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Woodsmith — журнал по столярному делу представл
 ```bash
 magnet:?xt=urn:btih:332F73AF736C87D0FE60554522950DED54F893BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

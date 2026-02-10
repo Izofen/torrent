@@ -19,6 +19,8 @@ BBC: Секреты Рейха. Тайны нацизма / Secrets of World War
 magnet:?xt=urn:btih:EC01875A15FB02A9EB89C265750E6E6BB8FBBC0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC: Солнечная система / Solar System (2024) BDRip [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:12262B84E953C1E21BCAE2E4C6CA5B7B0E714F80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC: В какой Вселенной мы находимся? / Which Universe 
 magnet:?xt=urn:btih:C4390A4CD227EB0EC77175BFB6A878CCE044D003
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BBC. Земля / Earth (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-
 ```bash
 magnet:?xt=urn:btih:309E5B2DC9E32F810ED36E4C52BE7942ECF106B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BBC. История математики / The Story of Maths (2008) SATRip (4 �
 magnet:?xt=urn:btih:AD9A4F16B19E164BBE3DCDB4DAA5BEE4B119BA98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:AD9A4F16B19E164BBE3DCDB4DAA5BEE4B119BA98
 ```bash
 magnet:?xt=urn:btih:F02542388FC80D3847020E276FACBEAD2F9B246A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ BBC: Конкорд. Гонка на сверхзвуковой скорости
 magnet:?xt=urn:btih:829A498B12AF9F614376AE96B5819450D1FBDDDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ BBC. Истоки жизни (Первая жизнь с Дэвидом Атте
 ```bash
 magnet:?xt=urn:btih:12C86C1618A12D4760A17729DEAD00EB8F53AE82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ BBC: Планета Земля 3 / Planet Earth III (2023) BDRip [H.264/1080p] (
 magnet:?xt=urn:btih:37C8A7A6C529277557FA044891EEE73A49C40156
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ BBC: Луи Теру. Разговоры с анорексией / Talking to An
 magnet:?xt=urn:btih:3ECA597D10659403C796076086128EDF214129C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:3ECA597D10659403C796076086128EDF214129C3
 ```bash
 magnet:?xt=urn:btih:FDEE35BFD87BD6B0113079428FECF0EC55D77116
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:FDEE35BFD87BD6B0113079428FECF0EC55D77116
 magnet:?xt=urn:btih:16696EDB930D924B117AA62F09F5B78E37E20C0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:16696EDB930D924B117AA62F09F5B78E37E20C0A
 ```bash
 magnet:?xt=urn:btih:49C05F1E015C8FB550B6D6DD4F0DFD2DAA141E05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:49C05F1E015C8FB550B6D6DD4F0DFD2DAA141E05
 magnet:?xt=urn:btih:F3C8AA79F26919559618AB8CDC97384B1B58EBF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:F3C8AA79F26919559618AB8CDC97384B1B58EBF4
 ```bash
 magnet:?xt=urn:btih:2164C11C7723A5C1520FEF9A77BEADC4122B02FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:2164C11C7723A5C1520FEF9A77BEADC4122B02FB
 magnet:?xt=urn:btih:327656F6139426249360623E80E5E3EEB9611F11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ BBC: Тайная наука. Химическое и биологическое
 ```bash
 magnet:?xt=urn:btih:5085871D528006D7D0DB6467D01F59A8167134A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ BBC: Шотландия. Последний рубеж Рима / Scotland: Rome
 magnet:?xt=urn:btih:BB7710A0E3777EC6615AB499702C1B796BEA7BCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ BBC: Юлий Цезарь без прикрас / Julius Caesar Revealed (2017)
 ```bash
 magnet:?xt=urn:btih:872A0BC425AC16E09575F0F763AE79FEEC264F18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:872A0BC425AC16E09575F0F763AE79FEEC264F18
 magnet:?xt=urn:btih:03C9AD311B0536099CBB5393130335F8E48A40D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ BBC: Чудеса заводного мира / Mechanical Marvels. Clockwork Dr
 ```bash
 magnet:?xt=urn:btih:D623CFF6C4284F1C43BC296B17C0D9B69366D614
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ BBC: Чудеса времен года / Seasonal Wonderlands (Earth's Greatest
 magnet:?xt=urn:btih:46ACF50D1C7E24D00A7B66671501C0F43A28308E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ BBC: Волшебные числа: таинственный мир матема
 magnet:?xt=urn:btih:2AFB3297C3F01369A44684B8643604EB01A0AB2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ BBC: По странам и континентам. Дикая Африка / Wi
 ```bash
 magnet:?xt=urn:btih:248A667D851FB6CDE1DF7B30D4FED376BC470282
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ BBC: Царство Растений / Kingdom of Plants (2012) HDTVRip [H.264/7
 magnet:?xt=urn:btih:A1758B08847320C6B455D844474A37838995310C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ BBC: Тайная жизнь кошек / The Secret Life of the Cat (2013) HDTV
 ```bash
 magnet:?xt=urn:btih:AB4F8E07E8F8FAA99B1F121888033AA71B8DC94A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

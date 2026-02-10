@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:F3DCA112CE0FB7D66DDF6364C726809EF16D0EE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:F3DCA112CE0FB7D66DDF6364C726809EF16D0EE8
 ```bash
 magnet:?xt=urn:btih:88005077326C3F5EEC07BCB452F2EB53E8810008
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Марш ВДВ. Часть 1 (2007) [FLAC|Lossless|tracks + .cue] <Шан�
 magnet:?xt=urn:btih:66EDC968292E562D08E476B4B7AC5A2AA21BE518
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:66EDC968292E562D08E476B4B7AC5A2AA21BE518
 ```bash
 magnet:?xt=urn:btih:0314D1628607CE69F3219FDE3857382A431D65A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:0314D1628607CE69F3219FDE3857382A431D65A9
 magnet:?xt=urn:btih:1C3E8F01FA45392260F98AB548FEC94E9FE67E95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Шоферской 17 (2005) [MP3|320 Kbps] <Шансон>
 ```bash
 magnet:?xt=urn:btih:C9EEA1EA1F3DBB2870EE0C99EE32236559FE1E9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:C9EEA1EA1F3DBB2870EE0C99EE32236559FE1E9E
 magnet:?xt=urn:btih:629A3BC8C3241910378E4F0F16352246C975BF71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Шоферской 6 (2001) [MP3|320 Kbps] <Шансон>
 ```bash
 magnet:?xt=urn:btih:5F689351CF97B97585D1D680886FB76FDA01B371
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:5F689351CF97B97585D1D680886FB76FDA01B371
 magnet:?xt=urn:btih:1A10EA95CD68607BD698756C14CB75C20719DCF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:1A10EA95CD68607BD698756C14CB75C20719DCF3
 ```bash
 magnet:?xt=urn:btih:736FD5B4547DE701D0268CFFD335314958E2AF1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Русский шансон часть 3 (1997) [MP3|320 Kbps] <Шансо�
 magnet:?xt=urn:btih:903E759813E08AF2CFA6C5A56E1173692E6E5874
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Песни фронтовых лет <<В память о Великой П
 ```bash
 magnet:?xt=urn:btih:59BADA88FE8D84692F53BEF1D9FFFBC1AF789B9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Песни фронтовых лет <<В память о Великой П
 magnet:?xt=urn:btih:202FBB24AB49E7D9D92719F3B574CA61F738189B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ magnet:?xt=urn:btih:202FBB24AB49E7D9D92719F3B574CA61F738189B
 ```bash
 magnet:?xt=urn:btih:8C6E3B88E5F8192E3E26C59824A5F82A449EB5C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Русский шансон часть 8 (2000) [MP3|320 Kbps] <Шансо�
 magnet:?xt=urn:btih:80F1ECEB56EEDF61B05AF7FE9139CA8EE362B234
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ magnet:?xt=urn:btih:80F1ECEB56EEDF61B05AF7FE9139CA8EE362B234
 ```bash
 magnet:?xt=urn:btih:21F3F4DF49608D75E66B416BE074A0DA75015FFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ magnet:?xt=urn:btih:21F3F4DF49608D75E66B416BE074A0DA75015FFF
 magnet:?xt=urn:btih:242B904A1029D5C6BB5A7DD99D33FB10697A782F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ magnet:?xt=urn:btih:242B904A1029D5C6BB5A7DD99D33FB10697A782F
 ```bash
 magnet:?xt=urn:btih:B3FCA23A471085B071ADB6354CBF118DD9C52D83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ magnet:?xt=urn:btih:B3FCA23A471085B071ADB6354CBF118DD9C52D83
 magnet:?xt=urn:btih:143B435C9E008B3458CDA6B6D55C680742ADAEEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - Русский шансон часть 5 (1998) [MP3|320 Kbps] <Шансо�
 ```bash
 magnet:?xt=urn:btih:93B3529F6257B03F35C8F85EABCD92764AA32C9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ magnet:?xt=urn:btih:93B3529F6257B03F35C8F85EABCD92764AA32C9F
 magnet:?xt=urn:btih:10BAAE9B0BE40DC5FDAD75CB82016BA4ADCBB8B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ magnet:?xt=urn:btih:10BAAE9B0BE40DC5FDAD75CB82016BA4ADCBB8B3
 ```bash
 magnet:?xt=urn:btih:3B8FACA2155C4AF2497250D5B852F3D7DDAFF815
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ magnet:?xt=urn:btih:3B8FACA2155C4AF2497250D5B852F3D7DDAFF815
 magnet:?xt=urn:btih:F28E2E5D5E79FE53C8B3DD1835B58311600147D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ VA – Русский шансон часть 2 (1996) [MP3|320 Kbps] <Шанс�
 ```bash
 magnet:?xt=urn:btih:56785FF732DDFBE6D51B36C8614EE33AC7750356
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ magnet:?xt=urn:btih:56785FF732DDFBE6D51B36C8614EE33AC7750356
 magnet:?xt=urn:btih:6207518C8751C27113C9542DA7D3D4B30DAD3179
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ magnet:?xt=urn:btih:6207518C8751C27113C9542DA7D3D4B30DAD3179
 ```bash
 magnet:?xt=urn:btih:2E2DF872A6A9EC0CDD603DDB62AE0EC8EE68D1D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

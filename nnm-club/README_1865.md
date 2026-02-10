@@ -19,6 +19,8 @@ Etera (2024) [En] (1.0.0) Scene SKIDROW
 magnet:?xt=urn:btih:4128250015C3F9D687A5FC518B9DD265E1F7C1EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:62EF20C3E03EAFD322DE3BE177E5A186E1DA8996
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ DefenderKiller - программа для удаления/восстановл
 magnet:?xt=urn:btih:EBA454A1CE9D0D7E34B56025FDB1917F8AE41412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:EBA454A1CE9D0D7E34B56025FDB1917F8AE41412
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:EBA454A1CE9D0D7E34B56025FDB1917F8AE41412
 magnet:?xt=urn:btih:8DA06E3C8FF3A7AEADA2A872565E5896CA852A53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Memento Database - это мощный и в то же время легкий �
 ```bash
 magnet:?xt=urn:btih:17127E5D7CB6F551D02C5D9202CE0B7FE7514069
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:17127E5D7CB6F551D02C5D9202CE0B7FE7514069
 magnet:?xt=urn:btih:F966ADB007BB4137F0ECF8723D14E1D853342D1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:F966ADB007BB4137F0ECF8723D14E1D853342D1A
 ```bash
 magnet:?xt=urn:btih:5391181CE3F5CB0C949DEE62070EBFE0EECA0E10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ George Vondriska | Основы работы с циркулярной пило�
 magnet:?xt=urn:btih:47E22040B3BBD1DEFCFFDF207D7271E9D5508803
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Riviera: The Promised Land - это не совсем обычная ролев�
 ```bash
 magnet:?xt=urn:btih:95DB03267416DF6F03731471653B893B54291702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ The Longing можно сразу назвать игрой уникальной
 magnet:?xt=urn:btih:10595FD892B054EF7C3CFEFB4C62B356599ABD1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:10595FD892B054EF7C3CFEFB4C62B356599ABD1F
 ```bash
 magnet:?xt=urn:btih:9C99E30F2B2DCAB18269457EC7ACB8E6E6F03ACF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:9C99E30F2B2DCAB18269457EC7ACB8E6E6F03ACF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:F61CFBA217287D01189F63DA1DD298D508B5E90A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Youtube Downloader HD - бесплатная и предельно проста�
 magnet:?xt=urn:btih:E337296C769FAF545FAA9449F17E5464281EB648
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:E337296C769FAF545FAA9449F17E5464281EB648
 magnet:?xt=urn:btih:6AF647AA5187C4BAE310B2115B0A089FCBA4D8BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:759B88036D6A55E37F5F1FB5AC8676D3C5075EB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ DIO - Holy Diver Live (2005) DVD9
 magnet:?xt=urn:btih:08C03473D557FF1EC36866D3C8E518D70B96B583
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:08C03473D557FF1EC36866D3C8E518D70B96B583
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:08C03473D557FF1EC36866D3C8E518D70B96B583
 magnet:?xt=urn:btih:31D425F661B2C216C356F97FCEFE419CA993A939
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:31D425F661B2C216C356F97FCEFE419CA993A939
 ```bash
 magnet:?xt=urn:btih:F421723F6B6D6A1F852B424F0DB5C8DE57689424
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:F421723F6B6D6A1F852B424F0DB5C8DE57689424
 magnet:?xt=urn:btih:3B2CE0CED2F1D1153F1ED8D06AE5AABD24BE851F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:3B2CE0CED2F1D1153F1ED8D06AE5AABD24BE851F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Nine Sols (2024) [Multi] (b7ca1880) Scene Rune
 ```bash
 magnet:?xt=urn:btih:BCFB4E4471D173E8C276D49B7F162F9799261C94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ Vivian Campbell - GuitarПеревод: ОтсутствуетЯзык: Англ
 magnet:?xt=urn:btih:EF549F670962B382D9C089645AB46ABCC4CB4F6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:EF549F670962B382D9C089645AB46ABCC4CB4F6D
 ```bash
 magnet:?xt=urn:btih:CF6BB23D1DED3BCE01E3BC496B5D89B16AE195A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

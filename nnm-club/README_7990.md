@@ -22,6 +22,8 @@ Andrea Pozza European Quintet - Gull's Flight (2011) Abeat Records [FLAC|Lossles
 magnet:?xt=urn:btih:D30B0C60C8B437D1F486A85BDD609837B8146615
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Total Video Converter Pro - полноценный и универсальный
 magnet:?xt=urn:btih:CA6784ECA0FA18E6CD877E988981B31BD5D83CA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Pixea Plus - это приложение для просмотра изобра�
 ```bash
 magnet:?xt=urn:btih:65B36F55C235A8F9E0B36CAEA3ABE040214D12AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:65B36F55C235A8F9E0B36CAEA3ABE040214D12AA
 magnet:?xt=urn:btih:1CAAAD25F9A25626387E2549B5DBB9527968044A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:1CAAAD25F9A25626387E2549B5DBB9527968044A
 ```bash
 magnet:?xt=urn:btih:0755917BF09FFEB5244B3D3BDDA6618B7C31A1B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ Corridors of Power — второй сольный студийный альбо
 magnet:?xt=urn:btih:CB9056D48C33103BB803E91F3A38B582AEEFAB32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:CB9056D48C33103BB803E91F3A38B582AEEFAB32
 ```bash
 magnet:?xt=urn:btih:1F0344B90A3A1844EB20ED0EF25654E41BBEEBDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ OCCT 12.0.6 Portable [En]
 magnet:?xt=urn:btih:FA8F3CB5AEF0229829D84FBFF756BC7FC8A7F055
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:FA8F3CB5AEF0229829D84FBFF756BC7FC8A7F055
 ```bash
 magnet:?xt=urn:btih:518B1205DF5CF9324AC0B1C899D653DB6CF8C94E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:518B1205DF5CF9324AC0B1C899D653DB6CF8C94E
 magnet:?xt=urn:btih:14DBF1B407801C48E4966C8B87956E921514CFF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ JPEG Jackal PRO 2.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:707A966FFE842FC47315E847AA6B514007B25247
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ Mitti имеет понятный, интуитивно простой поль�
 ```bash
 magnet:?xt=urn:btih:EF45EA0245129E3E7F20060E5C0C2E3327E9FB9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ RUMOURS - Neither Innocent nor Wavering (2020) EP [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:038FF1F8169A9A8E4A5517496C8C761307F2DEA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ VA - Big Room 2 (2023) [MP3|320 Kbps] <Big Room, Dance, Hands Up>
 magnet:?xt=urn:btih:F1BD96EE66EC93CDAB70D5B8F063B61E06EFC91A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:F1BD96EE66EC93CDAB70D5B8F063B61E06EFC91A
 ```bash
 magnet:?xt=urn:btih:971B2D4681EF992701F45B2ABA00F26880FC3C18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:971B2D4681EF992701F45B2ABA00F26880FC3C18
 ```bash
 magnet:?xt=urn:btih:829D9A1BFE327B654DF7FA300AA539DED1BE6503
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ Headon - Éxodo (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 magnet:?xt=urn:btih:9743910E9A68D9C986A63C3AACE542EE4C3E00DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ Schoolism, Scott Robertson | Rendering Reflective Surfaces (2015) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:A5AC87048410C1D41C60D1E789B8C85F772BF610
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +510,8 @@ Soulver предназначен для «быстрой математики» 
 ```bash
 magnet:?xt=urn:btih:594BCD07088455D64478AD91A8A9DAD2AE908C38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +540,8 @@ The Flower Kings - Paradox Hotel (2006) 2023, InsideOutMusic [FLAC|Lossless|WEB-
 magnet:?xt=urn:btih:D2B7C991D332D9C103A7444C78E27813C9E6750E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ magnet:?xt=urn:btih:D2B7C991D332D9C103A7444C78E27813C9E6750E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +595,8 @@ Leiden - L'Aube Spirituelle (2021) [FLAC|Lossless|image + .cue] <Gothic, Industr
 magnet:?xt=urn:btih:BCC884A78E7628F9E7F0CF9EC9F97B7759E6EBC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ DSLR Assistant 3.5.1 [En]
 ```bash
 magnet:?xt=urn:btih:E9E9A01C993BC6A4DB6B0C6B5BEB943B3F660FA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +653,8 @@ magnet:?xt=urn:btih:E9E9A01C993BC6A4DB6B0C6B5BEB943B3F660FA6
 magnet:?xt=urn:btih:FE3C4CE720C6B4FE8507A919DBA386BAA3FB2CC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ magnet:?xt=urn:btih:FE3C4CE720C6B4FE8507A919DBA386BAA3FB2CC6
 ```bash
 magnet:?xt=urn:btih:7F9F34F9780441E31689BCF388A298BE40DAD088
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +705,8 @@ magnet:?xt=urn:btih:7F9F34F9780441E31689BCF388A298BE40DAD088
 ```bash
 magnet:?xt=urn:btih:B0CCA8E7BCD21EB8DCD0391FA58E4225FF1B8921
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

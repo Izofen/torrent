@@ -19,6 +19,8 @@ Mega Man 11 (2018) [Multi] (1.0.0.1) Repack Other s
 magnet:?xt=urn:btih:F6A72D77FE7C966E5BC3CC02B4BC79F86A4372A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ My Memory of Us – это воспоминание о дружбе между �
 ```bash
 magnet:?xt=urn:btih:E0B537EC939809312DBDED78CFB50B519ED59A33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Evil Defenders – это забавная и невероятно увлека�
 magnet:?xt=urn:btih:AB35719FC6145C179AD99C80F15F0DD563B46B13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Orphan (2018) [Ru/Multi] (1.0.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:60B9D9A4DC862D08CDF28D43E52E271E86B39D33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Moorhuhn - Das verbotene Schloss (L) [Dе] (2010)
 magnet:?xt=urn:btih:1BB88BECABCF60569441F8264436CC19AF8E9614
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Abandon Ship (2019) [Ru/Multi] (1.3.14934) License GOG
 ```bash
 magnet:?xt=urn:btih:F409D43D644F68FCAD8A5CF0D20C64E8559B82F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Surf's Up! / Лови Волну! (2007) [Ru] (1.0) Repack Sash HD
 magnet:?xt=urn:btih:1EB1D98B0C3D5A523BA39F90569A0AD297FA2AD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Tokyo 42 — стилизованный изометрический шутер 
 ```bash
 magnet:?xt=urn:btih:211743D3FD0245BD49F6FEEA68CA23BE7BE6F350
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Metal Tales: Fury of the Guitar Gods (2016) [Ru/Multi] (1.0) License PLAZA
 magnet:?xt=urn:btih:1344D72200271A93FC5960B4D3B4878D36284DA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Circle Empires (2018) [Ru/Multi] (1.2.1/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:FD763C05CADDA8DDDC1796BE5314BC9FFE8E3F32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ LEGO The Lord Of The Rings / LEGO Властелин колец [Ru] (RePack/1.0
 magnet:?xt=urn:btih:DBC846F4AAB8DDB65B0C4ED896CEBAACFB7E503D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Infinifactory - великолепная пазл-песочница с видо
 magnet:?xt=urn:btih:4E3E7B945EB6F4BE38A0FF89C5360289EF111246
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ No Place for Bravery - мрачный пиксельный ролевой экш
 ```bash
 magnet:?xt=urn:btih:82389484AB127D56E51B0A866F0B7D45B22006A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Guns, Gore and Cannoli Dilogy (2015-2018) [Ru/Multi] (1.2.15/1.0.8) Repack R.G. 
 magnet:?xt=urn:btih:143305F3B9D3113816DF13F108C9AED8A3689FE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Trailblazers (2018) [Multi] (5.6.5.11926743) License GOG
 magnet:?xt=urn:btih:0FD3EDA6F4815AE5EE7DD3A03782B38A464053AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Lantern (2016) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B0F637F5F4559B71C3FD9C2C801998D6247E9F20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Pid – платформер, где вы выступаете в роли ма�
 magnet:?xt=urn:btih:0E46F63D21EA4E87FCF4255206EA87FFD171099E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Lantern (2016) [Ru/Multi] (1.0) License PLAZA
 magnet:?xt=urn:btih:D2C7DD3AF19B51EB484512E4C74821665BF24C46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Transistor - научно-фантастическая игра в жанре Ac
 ```bash
 magnet:?xt=urn:btih:EB5FAB59BA7BB728023A4673223889942F864D3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ LEGO The Lord of the Rings [En/Ru/Multi10] (L) 2012 l RELOADED
 magnet:?xt=urn:btih:8E2FE5381C0061FCBAA919E7101DE669EAB09FE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Family Guy: Back to the Multiverse [En/Multi4] (Repack/1.0) 2012 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:FE7F15B1C35437BE7423E8B8FECDEE18800267C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Sonic Lost World (2015) [En/Multi] (2.0.0) License CODEX
 magnet:?xt=urn:btih:F27E82CA3FF256C7BD6AA195AEE60A0B72A4655B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Abyss Odyssey (2014) [Ru/En] (1.0.8767.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:2D87543A0DC0B842AA1D234117AE13C40DD8BA79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Omensight - это экшн игра-головоломка. Вы - Предве
 magnet:?xt=urn:btih:F0D3EE520A5EB87EE6F817EFF479F1D823B5A213
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Creatures: Exodus / Creatures: Покорение космоса (2004) [En] (2.
 magnet:?xt=urn:btih:73221EECE9F65B5A59718BBB8D366303FF9153C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Mechanic Escape - красочный платформер события кот�
 ```bash
 magnet:?xt=urn:btih:1E363404A209AA33925EC07E7EE2C95B7FB7E336
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

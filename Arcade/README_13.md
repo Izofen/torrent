@@ -19,6 +19,8 @@ Cassette Beasts (2023) [Multi] (1.6.2/dlc) Scene Tenoke
 magnet:?xt=urn:btih:7780AEAB5EDB58858004E5E00211DF6E9C670962
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Aerial_Knight's We Never Yield - насыщенная напряженным д�
 ```bash
 magnet:?xt=urn:btih:45B3972175751B6F00DBD24CBF75060D12AF6DAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ CYGNI: All Guns Blazing (2024) [Ru/Multi] (1.01) Scene Rune
 magnet:?xt=urn:btih:09A7BE76E0815B4F3EB78FE5EC7C368D2283198D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ MARS 2120 - это приключенческая игра в жанре мет�
 ```bash
 magnet:?xt=urn:btih:5029FF60451D91F9AD1EAB1EA6D47B12C29C4D2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Motordoom - это спортивный фристайл-шутер, сочет�
 magnet:?xt=urn:btih:35CCA608A9918773F1F5A0C3531000EBC4EFD6E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Get To The Top (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E4659C83CB3C72BBD5934E563D66A775E4883806
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Neon White - приключенческий платформер от перво
 magnet:?xt=urn:btih:14506118BD3EE4C3D45F1F82EABD17249C7C5DC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ DAISY THE SWIMMER переносит пользователей в яркое п
 ```bash
 magnet:?xt=urn:btih:3167047073CE5537A116927D6F89BD6675846471
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Tomba! Special Edition предлагает ностальгический по�
 magnet:?xt=urn:btih:F98224BE2CACFD467C45A9EDF8B4C3BF501D2661
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Hannah’s Day (2024) [Ru/En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4DACD34E1FE9C20895017B62CB5FCE3AB42314BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Barrhell – в этой быстроразвивающейся и сложно�
 magnet:?xt=urn:btih:CA5FF466146299FA5991A77CAED58515A669D1F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Downward - это живописная приключенческая игра �
 ```bash
 magnet:?xt=urn:btih:A8C7C5A56EBF9B1919807CBEFC0D90D0181C882D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Pinball FX - это не пыльный аркадный автомат ваше
 magnet:?xt=urn:btih:16EB5DC9E824E4EBD1B84018D770E8FF3436F13C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Nickelodeon All-Star Brawl 2 - продолжение оригинальной �
 ```bash
 magnet:?xt=urn:btih:9648D1C0063D1D70360B28DE9120DCCB58F922E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Champion Shift – скорее берите разношерстных мифи
 magnet:?xt=urn:btih:C48052B475A1A3F07952D21DEDA804286C726F8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Barrhell – в этой быстроразвивающейся и сложно�
 ```bash
 magnet:?xt=urn:btih:4384BA6B6A9258E02990DEB8E97D613733AB30E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Hannah’s Day (2024) [Ru/En] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:6F9C365B910F2F1E3831A183756C580EB544770C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Sacred Acorn – откройте двери в уютное Souls-прик�
 ```bash
 magnet:?xt=urn:btih:53062077EF18A7E41631259DD185C6378B985141
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Beat Hazard 3 (2024) [Ru/Multi] (1.016) Scene Tenoke
 magnet:?xt=urn:btih:16852BDE4339BC3D8E598C045C9E98990B06110A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Double Dragon Gaiden: Rise Of The Dragons отправляет в захваты
 ```bash
 magnet:?xt=urn:btih:B683D0468B0C23282F6B1A20FD70C16324849A5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Tekken 8 - продолжение культового файтинга, нап�
 magnet:?xt=urn:btih:19E0381EF70D89C17129A04D1E6291D125C71FD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Raw Metal (2024) [En] (1.1.1) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:1D4721AD1CFAAD0DA35F23710700E036247F225C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Anger Foot - это молниеносная хардбасс-игра, где �
 magnet:?xt=urn:btih:612F2743395F1218323FA51BE2FCAEE4F60E29B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ ReRoad (2020) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B293E434AA149B8F3831129D4541B6F5BDDC228E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Only Up! (2023) [Ru/Multi] (1.0) Repack dixen18
 magnet:?xt=urn:btih:7234B4D4C9A2004D09CD35D1147238983C501136
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Asterix & Obelix Slap Them All! 2, захватывающее приключен
 ```bash
 magnet:?xt=urn:btih:1D359FA91A7CA142AAC9DC808C5712577F2B8BCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

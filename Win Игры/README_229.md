@@ -19,6 +19,8 @@ WARNO (2024) [Ru/Multi] (169014/dlc) Repack Other s [Gold Edition]
 magnet:?xt=urn:btih:3A4ABEC777A1395030D0188FE995E8E9C7A76AE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Eternal Dread 3 – это трехмерный ролевой экшен с в�
 ```bash
 magnet:?xt=urn:btih:8CFCB46CD78D714016ACE8B37C88DC9D7F55244D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ S.E.C.U. предлагает два захватывающих режима и�
 magnet:?xt=urn:btih:258BEAE460C1F73C526B119403921793F57D880E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Perfect Tides (2022) [En] (2.0.11) License GOG
 ```bash
 magnet:?xt=urn:btih:AF586A743B515EDF4F044AA521D1E00D26EC86E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Six Ages 2: Lights Going Out (2023) [En] (1.0.4) License GOG
 magnet:?xt=urn:btih:53DBA14881C16D56877450DF278B537D30C6BC17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Gone Rogue можно назвать иммерсивным симуляторо
 ```bash
 magnet:?xt=urn:btih:9B1742661E1EDE82EE6BA11A4A94F396ED6963AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Darkwood - это игра о выживании, исследовании и с
 magnet:?xt=urn:btih:CB987DCB3C402E5352D41C8430CA3FDCCB7F06CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Fort Solis - сюжетный триллер от третьего лица, р�
 ```bash
 magnet:?xt=urn:btih:90B3878379F93E6FCF1020A223A7FF36B5D40201
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Islanders (2019) [Ru/Multi] (1.04) License GOG
 magnet:?xt=urn:btih:3ACAB0E0C015408F0B1BCB71A472AE03FD1CAEC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Colossal Cave - это классическая текстовая приклю�
 ```bash
 magnet:?xt=urn:btih:2453EC3618A19AFC83919B1157A2033A8F5863A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Lakeview Cabin 2 – хоррор-приключение в открытом и�
 magnet:?xt=urn:btih:42190DEA1D53EA95C37AF31AF3D371D57943313C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Submachine - это рисованная приключенческая игра
 ```bash
 magnet:?xt=urn:btih:B7FFA0F0B2CE3AAE0E35D606BD49F7A39D561D18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Hotel Renovator (2023) [Ru/Multi] (1.0.6.6.285/dlc) Scene Tenoke
 magnet:?xt=urn:btih:A328C51436DAAEB0CE3216921726A49CF9D9F7F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Small Saga (2023) [En] (20231130) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:0100DD204C2960664A7DE89BF14BC39A59A93300
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Bluey: The Videogame предлагает погрузиться в душевн
 magnet:?xt=urn:btih:2DD66C66D781156EB5267E8A4E50CD13F606ADB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Oriental Dynasty - Silk Road defense war – это возможность от�
 ```bash
 magnet:?xt=urn:btih:692E43E5983FEC126A7B6652548321AE27F1B876
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Stellar Warfare совмещает в себе сразу несколько п�
 magnet:?xt=urn:btih:35C3B9635B21B016A2E9DCE2C9B69C2D9D4E1BA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ BEAST: False Prophet (2023) [Multi] (1.1.24118) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:6F11C5BB2BEA292CF544C01A6E1464EDA21A7872
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Dungeons of Sundaria – ролевая кооперативная видеои�
 magnet:?xt=urn:btih:C7A19DD140061B0CA2D109FA307FC1E0ECB21A7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Merchant of the Six Kingdoms - это игра, которая позволяе�
 ```bash
 magnet:?xt=urn:btih:0F35E2C3E82224EF6CE86F02C0136BBE546D9D8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Imperial Capital Burns - Muv-Luv Alternative Total Eclipse (2016) [Multi] (1
 magnet:?xt=urn:btih:B2496EAE686CEBAE50B21CE3700CAD366029121A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Christmas Fables 2: The Magic Snowflake / Рождественские небы�
 ```bash
 magnet:?xt=urn:btih:01ECE1E23F89B7E06AC7030A4F58B9F1BFF66B81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Dungeons of Sundaria – ролевая кооперативная видеои�
 magnet:?xt=urn:btih:8B4FAF28F875D2A8AD6AE72ED17E73C5F353F53D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Strayed Lights — это захватывающее экшен-приключе
 ```bash
 magnet:?xt=urn:btih:D1264D38A0BF128BAD81FB6F253B11911F3A64E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Ghost Trick: Phantom Detective приглашает игроков в мир з�
 magnet:?xt=urn:btih:AB34258CB7A22D02A798756BA3493285C6AA56A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Peaks of Yore - захватывающая экшен-адвенчура, пог
 ```bash
 magnet:?xt=urn:btih:3FBC1C67B91675E44CF9D7ACA1C8ED327DA52239
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

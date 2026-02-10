@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@
 magnet:?xt=urn:btih:B7EC1E7D7A84F628F120FD584BA2869334186FCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:B7EC1E7D7A84F628F120FD584BA2869334186FCE
 ```bash
 magnet:?xt=urn:btih:54488DF69584143005355D13C6FAB8B76895DECE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Ozzy Osbourne - Ozzmosis Part Two (2019) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 magnet:?xt=urn:btih:7F500B42225E833357344F07E17B570B0DB9AB6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ VA - Понемногу отовсюду by Yuridar #E-F (1956-2022) Compilation
 magnet:?xt=urn:btih:FD7C18289970CEE8B093DF286F0C0857CF536EA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 magnet:?xt=urn:btih:D17E1C413A20BE042CDDED2A4A65D3D098AE9964
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:D17E1C413A20BE042CDDED2A4A65D3D098AE9964
 ```bash
 magnet:?xt=urn:btih:18F228EC72606A17A1162DA5C6F16B2F26EFE5AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:18F228EC72606A17A1162DA5C6F16B2F26EFE5AC
 magnet:?xt=urn:btih:7F58427DD6FDA6C236308516B8D8F2A26C997A37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:7F58427DD6FDA6C236308516B8D8F2A26C997A37
 magnet:?xt=urn:btih:487F5D7FC110807A477CF3CF8844DAABAFD0E27F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:487F5D7FC110807A477CF3CF8844DAABAFD0E27F
 ```bash
 magnet:?xt=urn:btih:DAB583B8C8F2CA697BE2F07D8D6A078351CC0AB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:DAB583B8C8F2CA697BE2F07D8D6A078351CC0AB8
 magnet:?xt=urn:btih:26A192467CDADB620BEF5E60E31E30798932F262
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:26A192467CDADB620BEF5E60E31E30798932F262
 ```bash
 magnet:?xt=urn:btih:D9E12F6B3A47C3FC76073CC6D27C2B091B6A4AEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:D9E12F6B3A47C3FC76073CC6D27C2B091B6A4AEA
 magnet:?xt=urn:btih:DF7E6E55194C4BF0E2ECE068BF66C70F98B69340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:DF7E6E55194C4BF0E2ECE068BF66C70F98B69340
 ```bash
 magnet:?xt=urn:btih:ADD16079202A7B42F6506FF0B4F8A9BEDC84795B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:ADD16079202A7B42F6506FF0B4F8A9BEDC84795B
 magnet:?xt=urn:btih:F0ECA0D7EA65775C8EAA5B02ECFEA6985354E16F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:F0ECA0D7EA65775C8EAA5B02ECFEA6985354E16F
 ```bash
 magnet:?xt=urn:btih:EB71F605E5C49C948B708AE74F7A128D65F8DE16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:EB71F605E5C49C948B708AE74F7A128D65F8DE16
 magnet:?xt=urn:btih:56929F032607EBA5491970060A86C26C0EF48DB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ Gekijouban Fairy Tail -Dragon Cry- | Fairy Tail: Dragon Cry | Хвост Феи:
 ```bash
 magnet:?xt=urn:btih:8A998C9C116603AD062474A7C3D7CF19F5B6C366
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +509,8 @@ Scorpions - Best Of Scorpions (1979) Remastered, 2017, Audio Fidelity [OGG Vorbi
 magnet:?xt=urn:btih:076C50B4C1B1B0A60BB6368A7C916B82008B5A62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:076C50B4C1B1B0A60BB6368A7C916B82008B5A62
 magnet:?xt=urn:btih:A064F7BFBBDF7DF0C1E0FC455FCCC51DE4647A12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ Volume2 — альтернативный регулятор громкости, 
 ```bash
 magnet:?xt=urn:btih:C34F1A8802DFFA1127538C025C6B3A541EFBA90C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ Axel Rudi Pell - The Ballads V (2017) [FLAC|Lossless|image + .cue] <Heavy Metal,
 magnet:?xt=urn:btih:342D669805951493FE36DD02BFC2AC50B2BBD1B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:D34F26DDF87A060D17BD61F1543A2C78EE0C8AF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:D34F26DDF87A060D17BD61F1543A2C78EE0C8AF4
 magnet:?xt=urn:btih:290E4534686BCDA0599E22E48F9E72DF1EEB349D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ magnet:?xt=urn:btih:290E4534686BCDA0599E22E48F9E72DF1EEB349D
 magnet:?xt=urn:btih:9E1116F6297DCFEA368F66E537B41F043669C7C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ magnet:?xt=urn:btih:9E1116F6297DCFEA368F66E537B41F043669C7C5
 ```bash
 magnet:?xt=urn:btih:16E61A485B3D6A407E3697FCA0F7551C0712399B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

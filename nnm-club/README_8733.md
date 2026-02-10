@@ -22,6 +22,8 @@ The Ferrymen - 2 albums (2017-2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:9C87937604104FAAC9A58357D335E2DF3DE4A7E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Pianoбой - ХІСТОРІ (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:1597FC5A26954546254DCB3270167131FD34AC7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - A Very Joyful Bluegrass Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <Cou
 magnet:?xt=urn:btih:19861F651A36628C2F6A3E779799E95F84384BD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:19861F651A36628C2F6A3E779799E95F84384BD3
 ```bash
 magnet:?xt=urn:btih:7DD63B10518B0FDCC8235F640C1C500B70C35519
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ Shadow Tactics: Blades of the Shogun - Soundtrack (2016) [MP3|320 Kbps] <OST>
 magnet:?xt=urn:btih:D5DB9467824A3592B0C89143501FAD01AE60F00C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ Folx- бесплатный менеджер загрузок с удобным �
 ```bash
 magnet:?xt=urn:btih:DE255DAF056F0D1556BB29170289E30567343200
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +194,8 @@ VA - Best Of Dance 2019 (Presented by Spinnin' Records) [MP3|320 Kbps] <Progress
 magnet:?xt=urn:btih:96D5B31931C472131EF015E9AAE77BDF12A67200
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ magnet:?xt=urn:btih:96D5B31931C472131EF015E9AAE77BDF12A67200
 ```bash
 magnet:?xt=urn:btih:84EC22FE833BA7269E211CBDB6AB2E7F9AAC451B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +248,8 @@ magnet:?xt=urn:btih:84EC22FE833BA7269E211CBDB6AB2E7F9AAC451B
 magnet:?xt=urn:btih:6C0BE3F060CB88306BFAB3A404A80FD0111DFBA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ magnet:?xt=urn:btih:6C0BE3F060CB88306BFAB3A404A80FD0111DFBA3
 ```bash
 magnet:?xt=urn:btih:9D3433C88F951A5F2D475CA93A352DF3E3A7A0DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +303,8 @@ VA - Trance Miami (2019) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:0B106CAEAFDAE30FFE7A6E4E6EC5F4523C3BE9D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ Substance Designer - мощная программа, которая предн�
 ```bash
 magnet:?xt=urn:btih:2C293D4691E0DB0E4918D3DCDE499DC2152D9EE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +356,8 @@ magnet:?xt=urn:btih:2C293D4691E0DB0E4918D3DCDE499DC2152D9EE2
 magnet:?xt=urn:btih:8268C55FCC5A620938AE7AF0FEC5EFA70D588B33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ magnet:?xt=urn:btih:8268C55FCC5A620938AE7AF0FEC5EFA70D588B33
 ```bash
 magnet:?xt=urn:btih:8A70A8338235FEBA84312082C9623EE3110A4C82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ magnet:?xt=urn:btih:8A70A8338235FEBA84312082C9623EE3110A4C82
 magnet:?xt=urn:btih:D6738F578247B2F2855D32217E92BBF368C11950
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:D6738F578247B2F2855D32217E92BBF368C11950
 ```bash
 magnet:?xt=urn:btih:91AEE869086EDC1BC5754914FCC328B4A4173D46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ magnet:?xt=urn:btih:91AEE869086EDC1BC5754914FCC328B4A4173D46
 magnet:?xt=urn:btih:67CF214FD1435A53695F29FB2CBBD6350E997B4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ magnet:?xt=urn:btih:67CF214FD1435A53695F29FB2CBBD6350E997B4E
 magnet:?xt=urn:btih:EB4657552DE3B4CF7194D36637BC9CE747E72D20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ magnet:?xt=urn:btih:EB4657552DE3B4CF7194D36637BC9CE747E72D20
 ```bash
 magnet:?xt=urn:btih:0FF8153760839B9468ADF4E50A5533DFC91D53B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:0FF8153760839B9468ADF4E50A5533DFC91D53B0
 magnet:?xt=urn:btih:3CB323EA4CDD2FF3B8FA65CDD0324224E8D6557B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ magnet:?xt=urn:btih:3CB323EA4CDD2FF3B8FA65CDD0324224E8D6557B
 magnet:?xt=urn:btih:59A850D3AE9804DD15FF47A85C9018183932D9CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ magnet:?xt=urn:btih:59A850D3AE9804DD15FF47A85C9018183932D9CF
 magnet:?xt=urn:btih:854B090BBAAE9E9F2A038F28CA4BDD9156534DA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ magnet:?xt=urn:btih:854B090BBAAE9E9F2A038F28CA4BDD9156534DA9
 ```bash
 magnet:?xt=urn:btih:5853C3B3C283321BA7A65DE76B1D970558F45C88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +647,8 @@ magnet:?xt=urn:btih:5853C3B3C283321BA7A65DE76B1D970558F45C88
 ```bash
 magnet:?xt=urn:btih:97E77425297C3D4281D6DA67A4B1F4BAC7CF4B14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +677,8 @@ Sonic Syndicate - Only Inhuman (2007) [FLAC|Lossless|image + .cue] <Modern Melod
 magnet:?xt=urn:btih:150762412BAE72A88294A244467F085CBB2CBC71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ magnet:?xt=urn:btih:150762412BAE72A88294A244467F085CBB2CBC71
 ```bash
 magnet:?xt=urn:btih:D23F9737DEEF94733FC8487E88D223629C6FA842
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ ENDLESS Dungeon - это уникальный тактический roguelite-�
 magnet:?xt=urn:btih:7A803574B9E0E37DEE7C2AFB256342D7B81CF696
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Dwarven Realms (2022) [Ru/Multi] (1.4.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:24F476EE65D26A24BF2EFD7CAB00D9FFF8FDC68C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dustborn - дорожное приключение, вдохновленное �
 magnet:?xt=urn:btih:04FB666F12828B87753F6821CDB4C24705A0B717
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Empires of the Undergrowth – это уникальная по своей ме�
 ```bash
 magnet:?xt=urn:btih:7DFB09EBC8B2FD818614EF4AA05B9CCABE22870E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ JDM: Japanese Drift Master сочетает в себе реалистичную
 magnet:?xt=urn:btih:3B4A14B9DC65B17B215952A34C2D5BD72BAC3C1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Ai Limit (2025) [Ru/Multi] (1.0.022/dlc) Repack FitGirl [Deluxe Edition]
 magnet:?xt=urn:btih:57BCBBE9571B3398EAB53E96067990C780BCF53D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ DreadOut Remastered Collection (2025) [Ru/Multi] (2.2.18f/1.0.8) Repack Other s
 ```bash
 magnet:?xt=urn:btih:134AEA816A8045ABB317019F93405B7D1485A1FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ House Flipper 2 (2023) [Ru/Multi] (1.8 build 18474892/dlc) Repack seleZen
 magnet:?xt=urn:btih:D1ED429E81CE794B6688325C0BEB3A446051801D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2025) [Ru/Multi] (1.7.0.12606) Repa
 ```bash
 magnet:?xt=urn:btih:A69DCEDD4EA98312CB53D8C9410688B89C9C3C7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ RoadCraft (2025) [Ru/Multi] (0.1.D1.1.429865/dlc) Scene Rune
 magnet:?xt=urn:btih:78B0E6E0333B63DBBC01C4AD2F9E2E1B7122F958
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ RoadCraft (2025) [Ru/Multi] (0.1.D1.1.429865/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:017BC23877FDE36ACBF45255A2D63503E114861E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Tales & Tactics – перед вами классический автобат�
 magnet:?xt=urn:btih:B0871D60435E24B839519C118156A3303FA799E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ House Flipper 2 (2023) [Ru/Multi] (1.8/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:16ED5F90F5C09DEFA09C8AEE6611EDC88A1BC524
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Zoria: Age of Shattering (2024) [Ru/Multi] (1.1.8/dlc) Repack Let'sРlay [Deluxe
 magnet:?xt=urn:btih:528C4582D97165D570896D6A8BCF1FF978997037
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:528C4582D97165D570896D6A8BCF1FF978997037
 ```bash
 magnet:?xt=urn:btih:E4305859395531E91A0CECBAA7B71B9C6CED6430
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.4.1) License GOG [Patc
 magnet:?xt=urn:btih:ADEEC46B1725337CE81BDB13451EEA709D1B4450
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.1.6-74935/dlc) Repack Let's�
 ```bash
 magnet:?xt=urn:btih:22C0C08BBB95BBE55E0DC6BE9D42D2EA358EBEA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Dark Souls: Remastered - это переиздание самой первой �
 magnet:?xt=urn:btih:BCB5FF454320782EDE1883579B9B67B055BF7C30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Wilmot Works It Out - это игра-головоломка, приглашаю
 ```bash
 magnet:?xt=urn:btih:F7D1239A79E55D70414FAA1F6B8B4C3F9850659C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Undying Flower (2025) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:69410520113F5D38E02D70B4A47116F4F30AF369
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ S.T.A.L.K.E.R.: Зов Припяти – прямой сиквел к S.T.A.L.K
 ```bash
 magnet:?xt=urn:btih:BBAFEAA942D14145E625FF107116FF21158490C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ Crime Boss Rockay City (2023) [Ru/Multi] (1.15.1.0/dlc) Repack seleZen
 magnet:?xt=urn:btih:C4D2D19C0C3891CBFD80A96DB5C56B3637520331
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ The Planet Crafter (2022) [Ru/Multi] (1.518/dlc) Repack Let'sРlay [The Galactic
 ```bash
 magnet:?xt=urn:btih:06CCE9BF438DCBC1ECFE50CA11F79F493E3FB9FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ Train Valley 2 - это железнодорожная экономическа�
 magnet:?xt=urn:btih:C42CE3D1FD0D254B0E9B8704A8E9C82BC58EE3B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Dying Light 2: Stay Human (2022) [Ru/En] (1.22.4/dlc) Repack Other s [Digital Ex
 magnet:?xt=urn:btih:6C49D65BF846504B18FA623D369326A7DE0B194A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Anoxia Station — игра об управлении подземной гор�
 ```bash
 magnet:?xt=urn:btih:2F484F414E8794D8C6FD19F5D6EB6F8A328CDA16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

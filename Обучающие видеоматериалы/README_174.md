@@ -21,6 +21,8 @@ Skillbox, Ренат Шагабутдинов и др. | PowerPoint + Google П�
 magnet:?xt=urn:btih:72CE14ED876E59BA9678B63D0C23E8FBA5496FBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Skillbox, Павел Козлов и др. | MS Office и инструменты
 magnet:?xt=urn:btih:4A4F376D581BEB3A27DB0F808E3A21E4B59DE1A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ ITVDN | Алгоритмы и структуры данных (2015) PCRec [H.26
 ```bash
 magnet:?xt=urn:btih:11CA89F030E6FF938D5DB728C32A6B47B01188DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ DaVinci Resolve — знаменитый цветокорректор, кото�
 ```bash
 magnet:?xt=urn:btih:2B132EEEFDA94FB10B705EAB25AF795CA7617575
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Spring Framework - самая популярная среда Java для соз
 magnet:?xt=urn:btih:3A56B442DFC0FD04A1CA6504122F4E6ABD9E01D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ Hibernate - потрясающая среда для объектно-реляц
 magnet:?xt=urn:btih:8560ECA3C76B8D3E40F789D70AF23BF1439E1D06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ CG Cookie | Моделирование Sci-Fi шлема в Blender 2.71 / Model
 ```bash
 magnet:?xt=urn:btih:EF510DD064639DBB70DC696C8E2482BACD96B8F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ CG Cookie | Моделирование пост апокалиптическог
 magnet:?xt=urn:btih:A4CAD57FA559283CE94E5D271D70A37EAB4CC8BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ CG Cookie | Текстурирование и шейдинг Sci-Fi шлема �
 magnet:?xt=urn:btih:548AFE8AE7E33E5CCD9B55AD1BDBEEF4BAB26EE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ CG Cookie | Создание карт нормалей для игр в Blender 
 ```bash
 magnet:?xt=urn:btih:DE0DA2187925AD0E6B11C264FABD0B01E47631F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:DE0DA2187925AD0E6B11C264FABD0B01E47631F8
 magnet:?xt=urn:btih:BC125A069DD365992CB8C7D35ECC25834059BF1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:BC125A069DD365992CB8C7D35ECC25834059BF1B
 magnet:?xt=urn:btih:A9A3D963F35A9D6BF3487733F2665BC50190E335
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ Inferno — это новый ультра-интенсивный комплек
 ```bash
 magnet:?xt=urn:btih:CC9F455AD1A95EC532653C53953BD6A71E9894DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ Bob Harper | Inside Out Method - Kettlebell Sculpted Body (2010) DVDRip [EN]
 magnet:?xt=urn:btih:626417C5C2C8A207DF88DECEA3D1F0062906029B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:626417C5C2C8A207DF88DECEA3D1F0062906029B
 ```bash
 magnet:?xt=urn:btih:2BAEBEE77B70E67F0DCC18C8D2B47D1B0311F439
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ EMPO | Аналитика для SEO (2015) PCRec [H.264/720p]
 magnet:?xt=urn:btih:E36A1F89A7F5493ECA95B5E74BE60E94BE451190
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ Profileschool | МК Предметная съемка 2.0 (2014) PCRec
 ```bash
 magnet:?xt=urn:btih:0BB0E6B847ABE0BE0DAC7967E8FA8D4E0896DDDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ Sophie Black | Мастер-класс по обработке фотограф�
 magnet:?xt=urn:btih:86DB62762260CBE1A06C52B666B6DB10104BAEC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ Profileschool | Графический планшет для ретушера (2
 ```bash
 magnet:?xt=urn:btih:CE870A335A172BA90ED355FED4A234C12E393120
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ Denis Kozhar | UE4 by Denis Kozhar (2020) PCRec
 magnet:?xt=urn:btih:AB17EE364836D9EB09C92C8FFB7B900CD47F6A85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ CG Cookie | Моделирование оружия для шутера от п�
 ```bash
 magnet:?xt=urn:btih:98B7CCC61501310B6B2AB25C9BB313B34CA3B19E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ Profileschool | Коммерческая фотография. Рецепт ус
 magnet:?xt=urn:btih:7FE4F310F0E41EB7FE3CED45C8E0B71F372B0F3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ Udemy | Создание катаны для игр в Blender 2.83 и Substance
 ```bash
 magnet:?xt=urn:btih:8FC71AA4963AA166E12CF95F92007360A6A7D58C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +642,8 @@ CG Cookie | Текстурирование оружия в Blender 2.79 и Subst
 magnet:?xt=urn:btih:00BE28B60F19BD027671BAFA9900460575730B10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ Robby Branham | Multi Pass Rendering and Compositing (2017) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:5F697AA47D933AD4097FCD69ED2B0D9CEA01AC0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +694,8 @@ OTUS | Разработчик Java (Часть 1-3) (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:4062224E12BBCD8E82D9D5026AB3A13F86D47C37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,31 @@
+###  Публикация: 1215941   (754596) от 28.03.2018
+
+Джен Лин-Лью | Путь лапши. От Китая до Италии (2018) [FB2]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_754596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удивительно на первый взгляд, но лапша - это очень объединяющее блюдо. И объединяет она, пожалуй, чуть ли не все страны мира, ведь если подумать - макаронные изделия разных видов едят везде. Но откуда эта лапша взялась? И как стала популярной на всех континентах?
+
+Американка китайского происхождения Джен Лин-Лью решила выяснить, где же корни этого кулинарного феномена. (   Читать дальше...   )Жанр: КулинарияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0579F77155FEF4DFB31061DFFDBCA48BB8A9DB99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215890   (754606) от 28.03.2018
 
 К.Г. Капков | Духовный мир Императора Николая II и его Семьи (2017) [PDF, DJVU]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:AAED9B180C4C96CD82EAA39C558ED82DEDE48DF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +75,8 @@ magnet:?xt=urn:btih:AAED9B180C4C96CD82EAA39C558ED82DEDE48DF1
 magnet:?xt=urn:btih:297C5985CCC07B6AE2CAF388A499683F5D1E8657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +100,8 @@ magnet:?xt=urn:btih:297C5985CCC07B6AE2CAF388A499683F5D1E8657
 ```bash
 magnet:?xt=urn:btih:2F6AB5D604CDD058AB7811395092833A08CDAD95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +127,8 @@ magnet:?xt=urn:btih:2F6AB5D604CDD058AB7811395092833A08CDAD95
 magnet:?xt=urn:btih:CAFF6729C25DC967C4FDB089774046F5F3C6FD7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +152,8 @@ magnet:?xt=urn:btih:CAFF6729C25DC967C4FDB089774046F5F3C6FD7B
 ```bash
 magnet:?xt=urn:btih:40F2833C767275FB13B01BC9709C5902FA314B95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +179,8 @@ magnet:?xt=urn:btih:40F2833C767275FB13B01BC9709C5902FA314B95
 magnet:?xt=urn:btih:D9F3D4EA86F7FBEB9A273DC93D70D72A791700D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +204,8 @@ magnet:?xt=urn:btih:D9F3D4EA86F7FBEB9A273DC93D70D72A791700D3
 ```bash
 magnet:?xt=urn:btih:9FC8768ED62094872656CAD52D3041FDF9C605A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +231,8 @@ magnet:?xt=urn:btih:9FC8768ED62094872656CAD52D3041FDF9C605A0
 magnet:?xt=urn:btih:648B6B2AEE5E6140E93EA27BBC955549CF4299F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +257,8 @@ magnet:?xt=urn:btih:648B6B2AEE5E6140E93EA27BBC955549CF4299F4
 magnet:?xt=urn:btih:0275048B72E8180E12E3B81E40EF89A55D83187C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +282,8 @@ magnet:?xt=urn:btih:0275048B72E8180E12E3B81E40EF89A55D83187C
 ```bash
 magnet:?xt=urn:btih:F8C98388FE585BF0654413994AF828C403B1508B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +312,8 @@ magnet:?xt=urn:btih:F8C98388FE585BF0654413994AF828C403B1508B
 magnet:?xt=urn:btih:FE7D53CFF2B41D2749E1931783C4E9DE880DDB7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +337,8 @@ magnet:?xt=urn:btih:FE7D53CFF2B41D2749E1931783C4E9DE880DDB7B
 ```bash
 magnet:?xt=urn:btih:100DEAE80883FEC75F804339EA30D94F44A188A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +364,8 @@ magnet:?xt=urn:btih:100DEAE80883FEC75F804339EA30D94F44A188A3
 magnet:?xt=urn:btih:8C85D98CEAC66FE333512B87D1BE4842F67A5E04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +389,8 @@ magnet:?xt=urn:btih:8C85D98CEAC66FE333512B87D1BE4842F67A5E04
 ```bash
 magnet:?xt=urn:btih:8BCE9A81ED262915DC3D00887169D7E06B14D49C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +419,8 @@ magnet:?xt=urn:btih:8BCE9A81ED262915DC3D00887169D7E06B14D49C
 magnet:?xt=urn:btih:28AC9A81EBA96387AC6636AA6BCB122D41E31FD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +445,8 @@ magnet:?xt=urn:btih:28AC9A81EBA96387AC6636AA6BCB122D41E31FD5
 magnet:?xt=urn:btih:E522679594028B8F12AC49BF2B78A8AB80D673FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +470,8 @@ magnet:?xt=urn:btih:E522679594028B8F12AC49BF2B78A8AB80D673FF
 ```bash
 magnet:?xt=urn:btih:6E9D8130428BED1DD1649DB411E4259CB5FBA287
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +498,8 @@ magnet:?xt=urn:btih:6E9D8130428BED1DD1649DB411E4259CB5FBA287
 magnet:?xt=urn:btih:6AD1020067D739E5B95C58315B7AE00AF47F410C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +524,8 @@ magnet:?xt=urn:btih:6AD1020067D739E5B95C58315B7AE00AF47F410C
 magnet:?xt=urn:btih:C8C489AC544D659F73AB2E3407152E9F376A5A38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +549,8 @@ magnet:?xt=urn:btih:C8C489AC544D659F73AB2E3407152E9F376A5A38
 ```bash
 magnet:?xt=urn:btih:1356FA6CF289CF9C5F89A31AAF819FC932FD336B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +578,8 @@ magnet:?xt=urn:btih:1356FA6CF289CF9C5F89A31AAF819FC932FD336B
 magnet:?xt=urn:btih:C98A0A4EAB95C5C74520D1BE681CC4D5000F3CF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +603,8 @@ magnet:?xt=urn:btih:C98A0A4EAB95C5C74520D1BE681CC4D5000F3CF0
 ```bash
 magnet:?xt=urn:btih:361FF2303A1FE67CAABDB5C0815EC50B01751EC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +630,8 @@ magnet:?xt=urn:btih:361FF2303A1FE67CAABDB5C0815EC50B01751EC1
 magnet:?xt=urn:btih:C13A3ECF70E1C56260A8EA5E816BF7AEA0A1F38E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +655,8 @@ magnet:?xt=urn:btih:C13A3ECF70E1C56260A8EA5E816BF7AEA0A1F38E
 ```bash
 magnet:?xt=urn:btih:3C7C9F7FE171887B76DBBF139E33A9959C9C3CD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,29 +682,7 @@ magnet:?xt=urn:btih:3C7C9F7FE171887B76DBBF139E33A9959C9C3CD4
 magnet:?xt=urn:btih:7E6C3C0FD247047C0DB5CA9A0D93406E9D6E7AE6
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522631   (756783) от 08.01.2022
-
-Митрополит Симон (Новиков) | Воспеваю благодать Твою, Владычице (2016) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник проповедей, произнесённых митрополитом Симоном (Новиковым; 1928–2006) в рязанских храмах на Богородичные праздники. В издании также представлено краткое жизнеописание владыки.Жанр: ПравославиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1CD83B618D4757424B237B3EE47FE2A36B75F38
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

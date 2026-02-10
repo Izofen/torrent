@@ -1,3 +1,148 @@
+###  Публикация: 932165   (508926) от 29.08.2015
+
+Halsey - BADLANDS (2015) Deluxe Edition [MP3|320 кб/с]<Indie Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Castle
+ 02. Hold Me Down
+ 03. New Americana
+ 04. Drive(   Читать дальше...   )Жанр: Indie Pop, ElectronicПродолжительность: 00:55:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDE9F78EC8E546F194F9F7694699B6E279355564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932389   (509003) от 29.08.2015
+
+Modern Talking - The First Album & The Second Album (30th Anniversary Limited Special Edition) (2015) 3CD [MP3|320 кб/с]<Europop, Euro-Dance, Dance-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're My Heart, You're My Soul (05:35)
+02. You Can Win If You Want (03:51)
+03. There's too Much Blue in Missing You (04:42)
+04. Diamonds Never Made a Lady (04:06)(   Читать дальше...   )Жанр: Europop, Euro-Dance, Dance-PopПродолжительность: 02:06:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4528915B0D5C91BEF83663215FCDDA50E951A78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932442   (509269) от 29.08.2015
+
+Джинсовые мальчики - Mini Disco (2015) [FLAC|image+.cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Волна
+02. Выше тополей (feat. «140 ударов в минуту»)
+03. Mini Disco
+04. Дождик(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFAF395673715181E5A2610BC795563BDD00087E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932484   (509275) от 29.08.2015
+
+Brooklyn Funk Essentials - Funk Ain't Ova (2015) [MP3|320 кб/с]<Funk, Acid Jazz, Soul, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blast It!
+02. Dance or Die
+03. I'm Gonna Find Me A Woman (Cause It's Cold Outside)
+04. Prepare(   Читать дальше...   )Жанр: Funk, Acid Jazz, Soul, DiscoПродолжительность: 00:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB728340C9633CE0AE4ADDC03BE7B35EDC3805B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 376526   (510065) от 17.08.2011
+
+Bee Gees - 10 альбомов (1976 - 2001) /Studio Albums/ [FLAC|Lossless]<Disco, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510065.jpg" />
+</div>
+
+
+###  Подробнее
+
+1976 - Children Of The World
+1977 - Saturday Night Fever (OST)
+1979 - Spirits Having Flown
+1981 - Living Eyes(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 08:58:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 376342   (510201) от 17.08.2011
 
 Кай Метов - 7 альбомов (1994-2009) [FLAC|Lossless]<Pop>
@@ -18,6 +163,8 @@
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -52,6 +199,8 @@ Disc-1Жанр: PopПродолжительность: 01:19:54
 magnet:?xt=urn:btih:73E119A07109631EFFEB2BA4A82DDAF030B57636
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -85,6 +234,8 @@ Bad Boys Blue - 25 Best Songs (2012) [MP3|320 кб/с]<Euro Disco>
 magnet:?xt=urn:btih:B052BD410D911AB37785CFD4B3C6FD4D0FAA1629
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -111,6 +262,8 @@ F.R. David - The Best Of (2002) [FLAC|Lossless|image + .cue] <Electronic, Italo-
 ```bash
 magnet:?xt=urn:btih:F0DF2B3DCE4750B7AC3EF1F7E2222E169D04827A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +292,8 @@ magnet:?xt=urn:btih:F0DF2B3DCE4750B7AC3EF1F7E2222E169D04827A
 magnet:?xt=urn:btih:7F0427AE1F6D6A32C51CC232297A56B06CA8E90B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +321,8 @@ Andrea Schroeder - Where The Wild Oceans End (2014) [MP3|320 Kbps] <Pop-Nuar>
 magnet:?xt=urn:btih:B333B176880F60CA747EBBF25709F0F5C3FEBF70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +349,8 @@ Andrea Schroeder - Blackbird (2012) [MP3|320 Kbps] <Pop-Nuar>
 ```bash
 magnet:?xt=urn:btih:AC216A7F94421F14264515C7F6DFBC4A8D5F0B5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +385,8 @@ Ottawan - The Best (2006) [FLAC|Lossless]<Disco, Dance>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +414,8 @@ VA - ZYX Italo Disco New Generation. Vol. 1-6 (2012-2015) [FLAC|image+.cue]<Ital
 magnet:?xt=urn:btih:FE9F09456CAAE5320AD401BE9CA9BCF5361980EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +442,8 @@ Carol Douglas - 5 Albums (1975-1979) Collection [MP3|320 Kbps] <Funk Soul, Disco
 ```bash
 magnet:?xt=urn:btih:2FDEC4A6C5423D65A3D0F45AADA9B1F3B5B12FEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +478,8 @@ VA-Jennifer Lopez & Shakira - Battle (2012) [MP3|320 кб/с]<Pop, dance>
 magnet:?xt=urn:btih:154578C94943425765396C40BD7DA5F03DDA0A0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +510,8 @@ The Monotones - Disco Net - Wodka Da (1980) 2000 Remastered [APE|Lossless]<Pop, 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +538,8 @@ Barbra Streisand - Rose Of New York City: Barbra, 1961-1962 Live Recordings (202
 ```bash
 magnet:?xt=urn:btih:7326EFE759AE55AC49163F51D9F9A63A4019D6E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +568,8 @@ David Dundas - 2 Albums (1977, 1978) LP [MP3|320 Kbps] <Pop, Rock, Disco>
 magnet:?xt=urn:btih:65ACB484FB487A06F28D7B23C034E02156EAB6D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +596,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:B256F94C1CF22CCAA28F2BA66BC3B9BEEEA4AE0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +626,8 @@ Jackie Robinson - I'm Different (1976) [MP3|320 Kbps] <Funk Soul, Disco>
 magnet:?xt=urn:btih:2554CBF1819E49FA7F34A832DD7EF64B7DECB7E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +655,8 @@ C.C. Catch - Super Disco Hits (1989) [FLAC|Lossless]<Disco, Euro-Disco>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +680,8 @@ Modern Talking - Romantic Dreams (1988) [FLAC|Lossless]<EuroPop, Synth-pop, Disc
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +716,8 @@ VA - Best Of Dance '85 '86 '87 ZYX Music (1995-1997) [MP3|320 кб/с]<Pop, Disc
 magnet:?xt=urn:btih:EA37C1ED99AD719563DDD857F9A52F456300744B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +751,8 @@ Brainstorm - Another Still Life (English version) (2012) [MP3|320 kbps] <Indie-R
 magnet:?xt=urn:btih:039039F94DADF9620905260DEA248ABF51643780
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,140 +780,7 @@ Barbra Streisand - Rose Of New York City: Barbra, 1961-1962 Live Recordings (202
 magnet:?xt=urn:btih:1AADEB08F5E41EC0E9708FF4172AF2CFA3B91AF7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315356   (513721) от 19.07.2019
-
-VA - Best Radio Tracks, Vol. 17 (2019) [MP3|320 Kbps] <Dance, Pop, Electronic>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Элджей - Sayonara детка (feat. Era Istrefi)
-02. Rompasso - Paradise
-03. Dophamean - Hands on Me (feat. Saia Lake)
-04. Armin van Buuren - Don't Give Up On Me (feat. Josh Cumbee)(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A86C4E3BA0C50F0EDB31A581C97E82AD160E594E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315357   (513733) от 19.07.2019
-
-Вячеслав Малежик - Октябрь (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513733.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Однажды (Когда-нибудь)
-2. Ночной звонок
-3. Превратности любви (Про вора)
-4. Бред мой(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53F9548AE247B477C5B3CC4A279D5950D7904A71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930970   (513875) от 24.08.2015
-
-Duran Duran - Unleashed (2014) [FLAC|tracks + .cue]<New Wave, Pop-Rock, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soundburst Test   [0:06]
-  02. What Happens Tomorrow (Jiggy Joint Remix)   [3:52]
-  03. Serious (7-Inch Remix)   [4:32]
-  04. Someone Else Not Me (Peter's Honor Radio Mix)   [3:46](   Читать дальше...   )Жанр: New Wave, Pop-Rock, SynthpopПродолжительность: 01:18:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D3CF85D89BAD33ECA915B070F2F2B83717877C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315253   (513896) от 19.07.2019
-
-Johan Timman - Trip Into The Body (1981) Audio Works, Reissue CD, 1993 [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trip Into The Body (6:27)
-02. The Brain (5:51)
-03. The Heart (4:04)
-04. The Blood (The March Of The White And The Red Corpuscles) (6:28)(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 00:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6293A1B836B49B4C6937E59D3B73C41EDCEB7CFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315447   (513900) от 19.07.2019
-
-Peter Thomas Orchestra - In Discoland (1977) LP [MP3|320 Kbps] <Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Besame Mucho (3:07)
-02. Sunny (3:23)
-03. Chanson D'amour (3:21)
-04. Amor..., True Love, Caravan, Persian Market (5:32)(   Читать дальше...   )Жанр: Funk Soul, DiscoПродолжительность: 00:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94662E99365DCD3B26F1EA75BF740471F8115E09
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

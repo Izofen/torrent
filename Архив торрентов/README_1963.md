@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:80502B091B38345E58AC49161D6123B67E08E557
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ VA-Native American Dance - Remixes (2007) [MP3|192 кб/с]<Native American, New
 magnet:?xt=urn:btih:16F1768E1931E1421A9A0C870D05C4371B64AD6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:16F1768E1931E1421A9A0C870D05C4371B64AD6C
 magnet:?xt=urn:btih:16C9ACF79E9992A91E24068529BA83B909038A53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:16C9ACF79E9992A91E24068529BA83B909038A53
 ```bash
 magnet:?xt=urn:btih:D066CB5C7686EA93B4C691C15D10914F291E5C8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +139,8 @@ Steven Snyder & Wes Boatman - Ghostwolf (1991) [MP3|320 кб/с]<Native American
 magnet:?xt=urn:btih:1D7BA9D830A3B16C447C95D5E27613797673BF87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ magnet:?xt=urn:btih:1D7BA9D830A3B16C447C95D5E27613797673BF87
 magnet:?xt=urn:btih:655B3CB88701AE3AFA38D0AD5477A50F5C9C4B9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ Cпортивный инвентарь - мячРазрешение файлов
 ```bash
 magnet:?xt=urn:btih:6D21C3170BF1B26F4A86A81D68ACB935E7D93A07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +224,8 @@ BT - Flaming June (WEB) (2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:53578FD6423614932F0642DD5E4AA1DEEFF02240
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -233,6 +249,8 @@ magnet:?xt=urn:btih:53578FD6423614932F0642DD5E4AA1DEEFF02240
 ```bash
 magnet:?xt=urn:btih:0DCD9414131A66F9954FD4B666BFFC69472C1362
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +277,8 @@ uTorrent 3.1.3 Stable (build 27327) Portable [Multi/Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +302,8 @@ SUMo (Software Updates Monitor) - утилита для отслеживания
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +336,8 @@ Marina Raye - Wolf Sister (1995) [MP3|256 кб/с]<Native American, New Age, Flu
 magnet:?xt=urn:btih:7DA7CFAD6C187328324D9E5F32B0E703FE0AF2C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +368,8 @@ N/A(   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:6A1DC4F17C0E059B4B4B65761098C6301ED89CA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +404,8 @@ Ufo Project - Lemon (2012) [MP3|320 кб/с]<Breaks>
 magnet:?xt=urn:btih:D637BB3E251B8B10F41425E4C17ADBB5E100E8ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +429,8 @@ magnet:?xt=urn:btih:D637BB3E251B8B10F41425E4C17ADBB5E100E8ED
 ```bash
 magnet:?xt=urn:btih:D56F4371477F17679C4E92DA4FA68C289A38F5F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +461,8 @@ magnet:?xt=urn:btih:D56F4371477F17679C4E92DA4FA68C289A38F5F3
 magnet:?xt=urn:btih:F5BCBEC509C511FF847C19090C5BB22E00869DA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +486,8 @@ System Cleaner - программа для удаления с жесткого 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +522,8 @@ Coeter One - Schwarze Kiwi LP (2012) [MP3|320 кб/с]<Dark Techno, Minimal Tech
 magnet:?xt=urn:btih:2479E07DC319030500F38BB21BFA3F829714EB9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +551,8 @@ Ocster Backup Pro - отличное приложение для резервн�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +585,8 @@ VA - First Ladies of Trance (2012)
 magnet:?xt=urn:btih:CED9E6CE1196AF68900191EC9B339BF8BA368C72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +610,8 @@ magnet:?xt=urn:btih:CED9E6CE1196AF68900191EC9B339BF8BA368C72
 ```bash
 magnet:?xt=urn:btih:D81C242C4EEB506E54000F7E40F8B7687569BA24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +646,8 @@ Tiesto - Tiesto`s Club Life 270 [SBD] (2012) [MP3|320 кб/с]<Progressive House
 magnet:?xt=urn:btih:CB3435AF676C3E04F2DB9D21666DB7416CA55247
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +674,8 @@ Technicolour & Komatic - Stay (Spearhead SPEAR043DG, 2012) [MP3|320 кб/с]<Dru
 magnet:?xt=urn:btih:890782E6A2A5359EB00BDE940649B9BA84D44271
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +699,8 @@ Defraggler - программа для дефрагментации жестки
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -678,6 +726,8 @@ Defraggler - программа для дефрагментации жестки
 magnet:?xt=urn:btih:E1BAF32AECC80FC4376E1859A04B101DCB19EEF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -701,6 +751,8 @@ magnet:?xt=urn:btih:E1BAF32AECC80FC4376E1859A04B101DCB19EEF5
 ```bash
 magnet:?xt=urn:btih:5E288F249FB83673461BD67DF96790E5489E6B84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

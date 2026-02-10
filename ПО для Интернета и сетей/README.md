@@ -20,6 +20,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:F2712B033AF62A6FBB9A1BB57ACF350C6BE92C4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ MassTube — очень простая в использовании прогр�
 ```bash
 magnet:?xt=urn:btih:2009B3BBC4F0C61B9D4712E97E4BFF3394BE79B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ MassTube — очень простая в использовании прогр�
 magnet:?xt=urn:btih:99118EA0B3D7C59ED66DF3016FA101BC9D75620F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:D29235BD74AC5B02BB1EAF98CD0251DBA743DD2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:7B3E55CDCAC95F1B1EE43B7C0B56815DC76597CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:B87D20FB21F10ED4D6578392B23E75631D816DFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Psiphon - это новый инструмент обхода интернет-�
 magnet:?xt=urn:btih:C7DE8A46A73DB48D0E903DBFDF628548673F363F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:C7DE8A46A73DB48D0E903DBFDF628548673F363F
 magnet:?xt=urn:btih:87E2C60EAEA1DBCE560FA24A9447639852FA44B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Maxthon Browser — многофункциональный браузер со �
 ```bash
 magnet:?xt=urn:btih:81C701AFBBAFA5E80F954EF7FEDA27CA2B2501F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ uTorrent Pack 1.2.3.98 Repack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:ED54DE69E76E9B55005FCE5BC235D51A627080CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:ED54DE69E76E9B55005FCE5BC235D51A627080CE
 ```bash
 magnet:?xt=urn:btih:257651D57F04B7EC657BCE5235CAA6E920EDD4E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:D23F96D75D5CEAE77F3BC25B8A07FD9C6A6669F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:5A8924384E7F54ADCD33F33FD722C560174F5090
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:4A97570362454694E44CEEC547D8846C0DD06670
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Signal — это безопасное приложение для обмена 
 ```bash
 magnet:?xt=urn:btih:1E49F3609F71E501B8A71B08DC703065D75EF8D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ MediaHuman YouTube Downloader 3.9.16 (2409) RePack (& Portable) by elchupacabra 
 magnet:?xt=urn:btih:6CBAA4CAD4E05E1A0C447D715B99D543D42DE916
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ MediaHuman YouTube Downloader 3.9.16 (2409) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A106B5240466DC68E166724141B713594AABD862
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:A106B5240466DC68E166724141B713594AABD862
 magnet:?xt=urn:btih:D77815EFF6EABF0D727431A326B07AA038860EC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ MAX Desktop 25.11.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:65416A6406C9E5C2AF3031DF09DE7B03022F7A89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Chromium – веб-браузер с открытым исходным кодо
 magnet:?xt=urn:btih:5B654C656266AB3DA455F7212FC5E6694D32B2EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Vivaldi 7.6.3797.56 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CD8E0BA8C2F1F2E5763CEAB6F4B2ADD76ED0940A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:CD8E0BA8C2F1F2E5763CEAB6F4B2ADD76ED0940A
 magnet:?xt=urn:btih:97CECF3AB20F9DCE80418E990232B374801F3E9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:696BDFD6C91BC4524B90D045DCB5B363780ED728
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ Opera One 122.0.5643.71 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:B9F1383E5C8AAE57FA830323A26FCDD738C10AEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ OpenVPN – мощная программа для работы с частны�
 magnet:?xt=urn:btih:37BD627B22F1846A3B6C288A40F00C45647B3388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ v2rayN — это универсальный инструмент VPN и про�
 ```bash
 magnet:?xt=urn:btih:BFA09326E3F1BE0459E2EEF021079192B398DC93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

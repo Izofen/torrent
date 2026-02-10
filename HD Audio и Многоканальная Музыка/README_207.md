@@ -22,6 +22,8 @@ Whitesnake - Come An' Get It (1981) Japanese Edition, Reissue, 2010, Sunburst, S
 magnet:?xt=urn:btih:A11E7372CCDD148AA3F440945F3F4712DC9356CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ A4 Попытай Счастья В Любви (Taking A Chance Of Love)(   Чи
 ```bash
 magnet:?xt=urn:btih:3F4910120AA499928A0AF10C8DFF008F5891F23D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Chris Norman - The Best 2001 (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock
 magnet:?xt=urn:btih:5CC2BE8BC77F0BD504B809849D51FC0C00234024
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Paul Mauriat/Оркестр Поля Мориа - Музыка из кинофи
 ```bash
 magnet:?xt=urn:btih:96368F347797398978C270F1DF0D328A7FA1B988
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ A4 I Can't Live With You(   Читать дальше...   )Жанр: Pop Rock, 
 magnet:?xt=urn:btih:ADA16C759D651387337931A76B26DAACD737D873
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Uriah Heep - Gold From The Byron Era (2004) [DTS 5.1 CD-DA|44.1/16|image+.cue|Au
 ```bash
 magnet:?xt=urn:btih:B80234FF5CAABF65749D330C5039404DE8299019
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Overkill — американская трэш-метал-группа, осно
 magnet:?xt=urn:btih:DA79B0D8D4BF1B2D305537A46923BDBE826D231A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ A4. You Give Me All I Need(   Читать дальше...   )Жанр: Hard Roc
 ```bash
 magnet:?xt=urn:btih:C1D83B40EE1942AE7E89374231DC99BC6E5CB45C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Roma Trio - The Four Seasons (2008) Reissue, 2016, Venus Records [DSD64 2.0|1bit
 magnet:?xt=urn:btih:C05296AF3E2EE1AFC45FA2F288B800C9735475D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ A4		You And I	6:44(   Читать дальше...   )Жанр: PopПродол�
 ```bash
 magnet:?xt=urn:btih:F1658B77489D61A9EB9B53A0D0B3571339125FEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ A4 Baby I Love You 4:05(   Читать дальше...   )Жанр: Italo-Disco
 magnet:?xt=urn:btih:0516415DA150824AE74BA119DF738D99981E4E41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ Various - Flashdance - Original Soundtrack From The Motion Picture (1983) [FLAC 
 ```bash
 magnet:?xt=urn:btih:05919032C3DCDB93C8E83D52C977783D806CC3DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ Slide Guitar - Joe Walsh / Written-By - Don Henley, Glenn Frey
 magnet:?xt=urn:btih:4F8C9E13A0AE6F446FA87FD7EEE5C5C065CE956B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ VA - Звёзды шансона (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Ch
 ```bash
 magnet:?xt=urn:btih:E59F93A57D00DBF3E160F82898F2EDB6649956B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +427,8 @@ In Flames — шведская музыкальная группа, играющ
 magnet:?xt=urn:btih:28E212FBF43AC8B9EA9521815678762830BA9F98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +455,8 @@ Sonata No.1 In G Minor, BWV 1001
 ```bash
 magnet:?xt=urn:btih:3945962A1B79D961702C882FE79566827987774E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +485,8 @@ The Alan Parsons Project – The Turn Of A Friendly Card (1980) 2023 [DTS 5.1 CD
 magnet:?xt=urn:btih:F4595EF428B892223CE732B06255B6FA38F2F7EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ A4 Так Лучше · C'est Mieux Comme Ca(   Читать дальше...   )
 magnet:?xt=urn:btih:0BCFFDA9286168ECDA880FD6ABE74EA3A11A2871
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +542,8 @@ Enigma - Коллекция из 4 альбомов [DSD128|1 Bit / 5644 kHz|Vin
 ```bash
 magnet:?xt=urn:btih:5FB5A2A92CA80DDD61847CDCA19C791B5BFF3CA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +574,8 @@ magnet:?xt=urn:btih:5FB5A2A92CA80DDD61847CDCA19C791B5BFF3CA0
 magnet:?xt=urn:btih:EBE6929F3BA08AFE62D6090A86A77BC0B3707722
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +604,8 @@ magnet:?xt=urn:btih:EBE6929F3BA08AFE62D6090A86A77BC0B3707722
 ```bash
 magnet:?xt=urn:btih:977F3BA82A08F8B6E33D38DAE216E03AAB36A4C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +637,8 @@ Side One:
 magnet:?xt=urn:btih:4837B27E6E20DF1EAA4CDD7435D9AAA3AED3CEAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +665,8 @@ B1 Ikarus II(   Читать дальше...   )Жанр: Rock & Roll, Pop Rock�
 ```bash
 magnet:?xt=urn:btih:AE1CF28EF9E05935C863CA97D823895B01242E12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +695,8 @@ A4 Отпусти Меня • Wind Me Up (Let Me Go)(   Читать дальш
 magnet:?xt=urn:btih:E61452C9C6E7AEF199D480DD15A53C0FC43247D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -674,6 +722,8 @@ Haggard — немецкий музыкальный проект, исполня
 ```bash
 magnet:?xt=urn:btih:797F95D5B116B6390A84A57163CE1955E99D3179
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -701,6 +751,8 @@ A4 Wake Me(   Читать дальше...   )Жанр: Hard Rock, Classic Rock�
 ```bash
 magnet:?xt=urn:btih:23F2395F15CECEDD3EC5C0D21159D9AC9E6F83E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

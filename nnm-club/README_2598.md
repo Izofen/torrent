@@ -22,6 +22,8 @@ Perfume Genius - Glory (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop, Ar
 magnet:?xt=urn:btih:79018E46A4611B505B26BD47098A08CA0C025E4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Polo & Pan - 22:22 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Pop, Down
 ```bash
 magnet:?xt=urn:btih:C9161449458479B5C3295B4B307F478E81E64895
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ bandcamp
 magnet:?xt=urn:btih:8A9A5B41A4B0B0C72B1FDDA8D0A326FFED145AC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Chris Janson - Everybody (2017) [FLAC|Lossless|tracks + .cue] <Folk, World, & Co
 ```bash
 magnet:?xt=urn:btih:AD4BA0513C9DC902AF5A4D84C3FCDF6544B3CAA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +139,8 @@ magnet:?xt=urn:btih:AD4BA0513C9DC902AF5A4D84C3FCDF6544B3CAA1
 magnet:?xt=urn:btih:F20E953F36188E7204F45BE6C6436A36E07140F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ Within Fractals - Samsara (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Meta
 ```bash
 magnet:?xt=urn:btih:53BB63693689E1DC7CDCEF0E424CC03A241214D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +197,8 @@ Raven - Leave 'Em Bleeding (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:7DBE591185095D6757CDA7F6918D61773E8E292E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ magnet:?xt=urn:btih:7DBE591185095D6757CDA7F6918D61773E8E292E
 ```bash
 magnet:?xt=urn:btih:57C837C1BDBA59D23B3C4872282AA0DCB661D8B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +249,8 @@ magnet:?xt=urn:btih:57C837C1BDBA59D23B3C4872282AA0DCB661D8B0
 ```bash
 magnet:?xt=urn:btih:126839DE947FAE02559FAA1276A909F3A45CBF41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +279,8 @@ Red Rocks Worship - The King Is Coming (Live) (2025) [FLAC 24/48|Lossless|WEB-DL
 magnet:?xt=urn:btih:B1899155C3DECDACBE64A80164B3A48EF44F232C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +305,8 @@ magnet:?xt=urn:btih:B1899155C3DECDACBE64A80164B3A48EF44F232C
 magnet:?xt=urn:btih:BA63B8B269734AEDC3B4930FD0F98415CD6D85C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +330,8 @@ Tablacus Explorer - удобный в работе и простой в испо
 ```bash
 magnet:?xt=urn:btih:B3D193FB7366BFCF06A2DE18DE27A4181B900F13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +359,8 @@ magnet:?xt=urn:btih:B3D193FB7366BFCF06A2DE18DE27A4181B900F13
 magnet:?xt=urn:btih:F8779EAC69A39AC72D9370F7941E3528526A8C9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +384,8 @@ magnet:?xt=urn:btih:F8779EAC69A39AC72D9370F7941E3528526A8C9B
 ```bash
 magnet:?xt=urn:btih:78D7D84958BB0EE40F21CBBEEDD6C4C6417E6469
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +411,8 @@ magnet:?xt=urn:btih:78D7D84958BB0EE40F21CBBEEDD6C4C6417E6469
 magnet:?xt=urn:btih:BF6816EDF9DA4A3AE882DF65ABC70CBD6C993134
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +437,8 @@ magnet:?xt=urn:btih:BF6816EDF9DA4A3AE882DF65ABC70CBD6C993134
 magnet:?xt=urn:btih:0CBCFE8F9D6B79221C0119B5694C10C4C5B6CDFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:0CBCFE8F9D6B79221C0119B5694C10C4C5B6CDFA
 ```bash
 magnet:?xt=urn:btih:0B152639A35D0FF419742B01AD836952D0C113C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +491,8 @@ magnet:?xt=urn:btih:0B152639A35D0FF419742B01AD836952D0C113C6
 magnet:?xt=urn:btih:3AE7DC429CCA5BA50DF1101199D52C081E9FEE32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +519,8 @@ magnet:?xt=urn:btih:3AE7DC429CCA5BA50DF1101199D52C081E9FEE32
 magnet:?xt=urn:btih:D3CC1FDAD758E3F057E384FBB700FC3336EE15EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ magnet:?xt=urn:btih:D3CC1FDAD758E3F057E384FBB700FC3336EE15EE
 ```bash
 magnet:?xt=urn:btih:A95C661187D2A969A9DCADFC5F30F0F61BB178AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +576,8 @@ Paul Parker - Strong (The Album) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disc
 magnet:?xt=urn:btih:03BC475E4F094E9098A7AA8E0086CF001AFD93A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +602,8 @@ magnet:?xt=urn:btih:03BC475E4F094E9098A7AA8E0086CF001AFD93A8
 magnet:?xt=urn:btih:4FF0EB5785A090B2FB27485840E09143B8DB981E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ FolderSizes 9.7.512 Enterprise [En]
 ```bash
 magnet:?xt=urn:btih:48332EEC25C347879BBE1164638DE0679F25D35E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +656,8 @@ magnet:?xt=urn:btih:48332EEC25C347879BBE1164638DE0679F25D35E
 magnet:?xt=urn:btih:E0058A71B9150D62062BE333FA8A8B2C8B64C95C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ magnet:?xt=urn:btih:E0058A71B9150D62062BE333FA8A8B2C8B64C95C
 magnet:?xt=urn:btih:AAA0479AFEE300F476C8F451FE19C2F7CC39044D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ Vivaldi 7.3.3635.7 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7779E6201F33F926199BC880A88A2B3C1ABCBCBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

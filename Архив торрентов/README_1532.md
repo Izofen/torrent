@@ -19,6 +19,8 @@ MeinPlatz предлагает простой и быстрый способ с�
 magnet:?xt=urn:btih:1AF760AAD02A52940EB58F3B7E5C8AEBD349D5BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:71D639EE970B3CE469AA25A42EE3E6F9581B8D76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Icecream Video Converter 1.29 [Multi/Ru]
 magnet:?xt=urn:btih:9C106932F649341F5C7FA49781BA4CF4158B5270
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ CPUID HWMonitor - утилита предназначена для монито�
 ```bash
 magnet:?xt=urn:btih:B9388DA1767EF19B0A19215C2EDA1B5E432529AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Windows Update Viewer 0.5.11.0 + Portable [En]
 magnet:?xt=urn:btih:F3731817D70EFF3728DE038F758AA042D1CC43FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ MemTest86 - бесплатная программа, позволяющая пр
 ```bash
 magnet:?xt=urn:btih:39C014D63996A7B78F8D617BAEFC8DD7AD38FA0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Total Commander – самый популярный файловый менед�
 magnet:?xt=urn:btih:A307300E8C60A3F7E709D3167AF478E7A5D8FF62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 magnet:?xt=urn:btih:2EF76796C962AFC0C9C7792CEE8E2D9F1D44DE8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Soft Organizer Pro 9.32 [Multi/Ru]
 magnet:?xt=urn:btih:EEB67B9B2E3F52A50BC24CC39FBB5644E7AACCF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Wondershare UniConverter - простой в использовании виде
 ```bash
 magnet:?xt=urn:btih:1384FC9B3E6E4FE7B7F4C2A8BC1C1CEBF8864EA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:1384FC9B3E6E4FE7B7F4C2A8BC1C1CEBF8864EA6
 magnet:?xt=urn:btih:DC6EBAAFB0E69A32AA6D9165153BAC89CD2193F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ FastFlix - это простой и дружественный графичес�
 ```bash
 magnet:?xt=urn:btih:309779EBA326EFC9344C17AD0CB02D463A281C31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ DRmare Music Converter for Spotify 2.9.0 [En]
 magnet:?xt=urn:btih:50B9198AF6F4ACE612254959BCE7A1C86F92CCA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Mac FoneLab iOS Unlocker 1.0.38 [En]
 ```bash
 magnet:?xt=urn:btih:62A6DC738734F0D6148DCAE5B60F7457D72FB9CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Exif Pilot - EXIF редактор используется для просмо�
 magnet:?xt=urn:btih:3DAF96CB7B323E408E8EF560512027C887676041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ EF Commander  — замечательный двухпанельный файл
 ```bash
 magnet:?xt=urn:btih:C3895BA4675294DBE6EE9730A465932474D52F26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ IceCream Ebook Reader Pro 6.32 [Multi/Ru]
 magnet:?xt=urn:btih:6223928A55C0D17CE4A72CC344ECD7C0B275FA07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ PicPick - приложение, объединяющее в себе возмо�
 ```bash
 magnet:?xt=urn:btih:353C104363734F1FDA20C596173E6562C083DD5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ BELOFF [dp] 2022.10
 magnet:?xt=urn:btih:77811E0B5E5B3BDCF51348E03F4191C8D9DEC325
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Joplin - это бесплатное приложение для создани�
 magnet:?xt=urn:btih:DC382110501E3015DC4BE5BBE4C677904881C22B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:DC382110501E3015DC4BE5BBE4C677904881C22B
 ```bash
 magnet:?xt=urn:btih:ED48A46AF84287589E129DB9371754933055E4B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ Aiseesoft FoneLab for Android — это популярный инструмен
 magnet:?xt=urn:btih:4913A1B928A5C5FE0A4A1F2B39F1B9BEBF390C59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ Music Collection - неплохая программа для создания �
 ```bash
 magnet:?xt=urn:btih:2011467BA6258EE010ABABECD1382314C891AC74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ KStars - бесплатное, с открытым исходным кодом, 
 magnet:?xt=urn:btih:D3D21EF5D96F637D83D1AB75B4EC48E119C4B0A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ BitComet - это функциональный, быстрый и простой
 ```bash
 magnet:?xt=urn:btih:30713D1B3F653646C1BF437C7FBDFBE2A48F5903
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +673,8 @@ Sweet Home 3D – замечательная программа для созд�
 ```bash
 magnet:?xt=urn:btih:D0E765BED47BC354F0824313A36B992C0AD347C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1121633   (800508) от 02.04.2017
+
+Где логика? (2017.04.02) WEB-DL [H.264/720p-LQ]  (сезон 4, выпуск 7)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Звездные семейные пары, партнеры по съемочной площадке, просто хорошие друзья и знакомые будут вместе пытаться выстраивать логические связи между самыми, казалось бы, нелогичными событиями, предметами или фактами. Почему мы оставляем официантам на чай, но не оставляем врачам на бинты? Для чего нам мизинцы на ногах? Зачем мыть машину в ноябре? Почему существует сухое (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:358D9B75D4D2EDAEE55FC5F0BC522C9187ED69E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121472   (800513) от 02.04.2017
 
 Где логика? (2017.04.02) SATRip (сезон 4, выпуск 7)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:2655BBFD9D8224526763C804E0907A01EC68C833
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:2655BBFD9D8224526763C804E0907A01EC68C833
 magnet:?xt=urn:btih:121BA3E47A64795575667AA6BF48778E55555DB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:121BA3E47A64795575667AA6BF48778E55555DB4
 ```bash
 magnet:?xt=urn:btih:DE5A56A99644CDE1A3FEB9413BCB369B83016DAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:DE5A56A99644CDE1A3FEB9413BCB369B83016DAC
 magnet:?xt=urn:btih:323B144B108A74C99022C254EB4094EDC0357D9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:323B144B108A74C99022C254EB4094EDC0357D9F
 ```bash
 magnet:?xt=urn:btih:4FB74AEBC91D8CB22450942B0AF25B087E85274B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:4FB74AEBC91D8CB22450942B0AF25B087E85274B
 magnet:?xt=urn:btih:05833ADBCD3E3C1296F65DD1BE43BAD7E725666B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:05833ADBCD3E3C1296F65DD1BE43BAD7E725666B
 ```bash
 magnet:?xt=urn:btih:4324C908199B51DAAAC7A4C81991977DC1AAAB4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:4324C908199B51DAAAC7A4C81991977DC1AAAB4C
 magnet:?xt=urn:btih:B8CA03B2CDF1FEA22CA6606236F1EE630B0EAF0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:B8CA03B2CDF1FEA22CA6606236F1EE630B0EAF0D
 ```bash
 magnet:?xt=urn:btih:56492EEB02DE8C28ECE9FEA448FACB5131FC0269
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:56492EEB02DE8C28ECE9FEA448FACB5131FC0269
 magnet:?xt=urn:btih:DE0F713EBF47F5B1AB140612B9EE58675E7DF487
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:DE0F713EBF47F5B1AB140612B9EE58675E7DF487
 ```bash
 magnet:?xt=urn:btih:B0586D3400B964D1FD0745A1BE274405DA831E38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:B0586D3400B964D1FD0745A1BE274405DA831E38
 magnet:?xt=urn:btih:20A38CD93EACCD2B351A962FE63820C5941CD0DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:20A38CD93EACCD2B351A962FE63820C5941CD0DA
 ```bash
 magnet:?xt=urn:btih:0505FBA9411C1EC1BEC836D9D78E99784750B2B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:0505FBA9411C1EC1BEC836D9D78E99784750B2B0
 magnet:?xt=urn:btih:009699A43501F47E42A2D04CD8A51D8179833EB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:009699A43501F47E42A2D04CD8A51D8179833EB1
 ```bash
 magnet:?xt=urn:btih:ACA71A848359153C3C541338376B6792C9A65915
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:ACA71A848359153C3C541338376B6792C9A65915
 magnet:?xt=urn:btih:38B559F8BC7DEFC3D6198328AB79934C943B8DA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:38B559F8BC7DEFC3D6198328AB79934C943B8DA3
 ```bash
 magnet:?xt=urn:btih:5C71C9AD09D14EF59E1524F3929CADB010947819
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:5C71C9AD09D14EF59E1524F3929CADB010947819
 magnet:?xt=urn:btih:1318948658A0FD0D0AC381FB4D1FE4341EED3A9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:1318948658A0FD0D0AC381FB4D1FE4341EED3A9C
 magnet:?xt=urn:btih:8860A4E77938620A3B432AAB43367CC74BA51C50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:8860A4E77938620A3B432AAB43367CC74BA51C50
 ```bash
 magnet:?xt=urn:btih:B12B1A7411FFAA87AE4676DED35B5952BF80C4CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:B12B1A7411FFAA87AE4676DED35B5952BF80C4CC
 magnet:?xt=urn:btih:B64035A355F902841C789CBD92380E03F37A829F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:B64035A355F902841C789CBD92380E03F37A829F
 magnet:?xt=urn:btih:D2C7FF0F47462A6E1CE9C6649D53DFCB32ACE72B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:D2C7FF0F47462A6E1CE9C6649D53DFCB32ACE72B
 ```bash
 magnet:?xt=urn:btih:8E332FB4358493FF4325449BA28949FCE0BD013C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:8E332FB4358493FF4325449BA28949FCE0BD013C
 magnet:?xt=urn:btih:949098C287BAC31B0A432931CFCF28D38CE88C0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:949098C287BAC31B0A432931CFCF28D38CE88C0D
 magnet:?xt=urn:btih:22E72312DDE7AECD741782A31C5EC8FC23305001
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120989   (801197) от 01.04.2017
-
-Тростниковые жабы: Оккупация / Cane Toads: The Conquest (2010) BDRip3D [H.264/1080p][вертикальная анаморфная стереопара]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ядовитые тростниковые жабы были завезены в Австралию в 1935 году для борьбы с жуками, разорявшими сахарные плантации. С тех пор жабы размножились так, что стали представлять угрозу всей экосистеме страны. Передовые технологии позволили создать полный напряжения и юмора фильм с точки зрения жаб. Впервые человек имеет возможность с головой окунуться в мир этих загадочных (   Читать дальше...   )Жанр: Документальный, ВидовойРежиссер: Марк ЛьюисПеревод: Многоголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:23:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69892AFCE070AFF55EC4A62C47B84F5584B6E346
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

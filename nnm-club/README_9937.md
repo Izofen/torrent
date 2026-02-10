@@ -1,55 +1,3 @@
-###  Публикация: 1181560   (321704) от 08.11.2017
-
-Sodom - Live Depravity (2005) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концертная часть с двойного DVD Sodom "Lords Of Depravity Pt.1" Включает записи с концертов легендарных трэшеров в Софии (2004) и на фестивалях Wacken Open Air (2001) и With Full Force (2003). Также содержит несколько промо-клипов.Among The Weirdcong (mixclip)
-Vice Of Killing (Sofia 2004)
-Outbreak of evil (Sofia)
-Masquerade in blood (Sofia)(   Читать дальше...   )Производство: Steamhammer (Germany)Жанр: Thrash MetalРежиссер: Bernhard BaranПродолжительность: 01:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:788F3A4C46BE136C993A8AFE1958C65CFFA794BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181817   (321705) от 08.11.2017
-
-Растровый клипарт - Овощи с огорода [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт овощи на прозрачном фоне.
-Автор: ТусяФормат: PSDРазрешение файлов: 5000x5000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72896E2A3CACA728B45C5EE6CCBE7841D257B498
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181809   (321706) от 08.11.2017
 
 Растровый клипарт - Много овощей даёт мой любимый огород [PSD]
@@ -71,6 +19,8 @@ magnet:?xt=urn:btih:72896E2A3CACA728B45C5EE6CCBE7841D257B498
 ```bash
 magnet:?xt=urn:btih:EC59606FD70C551388795E0291A4B542A5347831
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +45,8 @@ magnet:?xt=urn:btih:EC59606FD70C551388795E0291A4B542A5347831
 ```bash
 magnet:?xt=urn:btih:D785CDEE1EAFF28A33A18A64A5DA7D1AE6749491
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +73,8 @@ magnet:?xt=urn:btih:D785CDEE1EAFF28A33A18A64A5DA7D1AE6749491
 magnet:?xt=urn:btih:D9ED85527E86CA3EF2322CC8ABAEE148F2D0B8BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +98,8 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:0296C9ADDBD9D507ECE4CA2C4C1310B61260E6DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +125,8 @@ magnet:?xt=urn:btih:0296C9ADDBD9D507ECE4CA2C4C1310B61260E6DC
 ```bash
 magnet:?xt=urn:btih:B387319FDE9D80C6A3242C61E86815D8F5D2519E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +155,8 @@ VA - Romantic Chill (2017) [MP3|320 Kbps] <Chillout , Lounge , Ambient>
 magnet:?xt=urn:btih:FBFF7656109A940D62DE941021AAECAA7DB79A4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +184,8 @@ VA - Magnatron (2015) [MP3|320 Kbps] <Synthwave, Darksynth>
 magnet:?xt=urn:btih:818D8F1B1B6979FEB6D935DFB51F502C1D9A52ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +209,8 @@ magnet:?xt=urn:btih:818D8F1B1B6979FEB6D935DFB51F502C1D9A52ED
 ```bash
 magnet:?xt=urn:btih:A6D0A15C2C903BE9E07F084CEF3B4AFA1050CB98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +239,8 @@ VA - Новогодний хоровод (2008) [MP3|320 kbps]<Детские п
 magnet:?xt=urn:btih:37B50FBB83BD2C278D5CC83DBB110E3080F32736
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +267,8 @@ magnet:?xt=urn:btih:37B50FBB83BD2C278D5CC83DBB110E3080F32736
 magnet:?xt=urn:btih:A3FB12842829C871DC58B06629F96BAE87736424
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +292,8 @@ magnet:?xt=urn:btih:A3FB12842829C871DC58B06629F96BAE87736424
 ```bash
 magnet:?xt=urn:btih:9E4134C7D307A25E800D600C58A8225020A11C9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +319,8 @@ magnet:?xt=urn:btih:9E4134C7D307A25E800D600C58A8225020A11C9F
 magnet:?xt=urn:btih:E3C4FCFB85DB9F4CB04C03D42AA4D6C34AA2CBCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +345,8 @@ magnet:?xt=urn:btih:E3C4FCFB85DB9F4CB04C03D42AA4D6C34AA2CBCE
 magnet:?xt=urn:btih:39899BCFE5B67A9ED2714CF50E28A91E2EC95727
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +370,8 @@ magnet:?xt=urn:btih:39899BCFE5B67A9ED2714CF50E28A91E2EC95727
 ```bash
 magnet:?xt=urn:btih:07BA4F125EAF34BCA20C13D3469EB153F22A9C5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +400,8 @@ VA - Drum And Bass Evolution (2015) [MP3|320 кб/с]<Drum And Bass, DubStep>
 magnet:?xt=urn:btih:37DEA1C8C54D27178DA7AF865FB73D1E6F2C5AFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +425,8 @@ magnet:?xt=urn:btih:37DEA1C8C54D27178DA7AF865FB73D1E6F2C5AFF
 ```bash
 magnet:?xt=urn:btih:4D58F8A3F253E2E63D89C4A9BA613257547EA2C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +455,8 @@ Quiver — это записная книжка, специально созда
 magnet:?xt=urn:btih:C0CE802F9182BBE660DCD9E9ABEA1B8FFEF7A414
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +484,8 @@ magnet:?xt=urn:btih:C0CE802F9182BBE660DCD9E9ABEA1B8FFEF7A414
 magnet:?xt=urn:btih:2AAA765E5C8B6DFA06859E0DE14E23B10250EB7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +509,8 @@ magnet:?xt=urn:btih:2AAA765E5C8B6DFA06859E0DE14E23B10250EB7C
 ```bash
 magnet:?xt=urn:btih:68063420935696B1C20EB1436B12DBF238B901C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +539,8 @@ Bon Jovi - Yokohama Stadium Japan Live (1996) VHSRip
 magnet:?xt=urn:btih:0AE729C72C963B39325CD717EA0AA88E71C0B715
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +565,8 @@ magnet:?xt=urn:btih:0AE729C72C963B39325CD717EA0AA88E71C0B715
 magnet:?xt=urn:btih:06662E6811B05FC0D114232090ED53C7A80BC8E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +590,8 @@ magnet:?xt=urn:btih:06662E6811B05FC0D114232090ED53C7A80BC8E6
 ```bash
 magnet:?xt=urn:btih:8F128848175832E9A9227B24A3B1973A812F6C62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +618,8 @@ magnet:?xt=urn:btih:8F128848175832E9A9227B24A3B1973A812F6C62
 magnet:?xt=urn:btih:E6A941909FE7FD8D22D3FD380DE362545D14ACD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +643,60 @@ magnet:?xt=urn:btih:E6A941909FE7FD8D22D3FD380DE362545D14ACD5
 ```bash
 magnet:?xt=urn:btih:D06F4653B3EFA751C49B1BF5F92D1F234867D1BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958594   (321756) от 22.11.2015
+
+Джерри Вайнтрауб. Голливудская Легенда / His Way (2011) HDTV [H.264/1080i-LQ]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальная биография Джерри Вайнтрауба, легендарного продюсера и музыкального промоутера, рассказанная им самим, его близкими и его коллегамиТелекомпания: США, HBO Documentary Films, Polsky Films, Consolidated DocumentariesЖанр: ДокументальныйПеревод: Многоголосый закадровый, профессиональный (AMedia)Продолжительность: 01:22:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C0C92DB0D097858D57222222BE27A68B0F6F81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958628   (321757) от 22.11.2015
+
+Моабитская тетрадь (1968) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о татарском поэте Мусе Джалиле. Во время Любанской наступательной операции Великой Отечественной войны Джалиль, получив ранение, попадает в плен к немцам. В немецком концентрационном лагере он пытается организовать подпольную антифашистскую организацию, но в результате предательства со стороны недругов снова попадает в застенки — на этот раз в берлинскую тюрьму (   Читать дальше...   )Производство: СССР, ЛенфильмЖанр: Военный, Драма, БиографическийРежиссер: Леонид КвинихидзеАктеры: Пётр Чернов, Азгар Шакиров, Рафкат Бикчентаев, Айварс Богданович, Хавза Мингашудинова, Лаймонас Норейка, Анатолий Шведерский, Ильдар Хайрулин, Дмитрий Барков, Ильдус Валиев, Виктор Колпаков, Стяпонас Космаускас, Александр Михайлов, Аркадий Пышняк, Владимир Шальтис, Сергей СвистуновПродолжительность: 01:28:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E2993562AB7CEC223BF2DCA8C938F1491531E38
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

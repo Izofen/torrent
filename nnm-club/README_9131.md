@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:90DDBA70001AB080638B471691DD1EB5D9D2A7BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ MobiTV v2.3 [En] - просмотр телеканалов со всего ми�
 magnet:?xt=urn:btih:B3BF6D9411238E20E82C94C7C02B50EFF80490B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:B3BF6D9411238E20E82C94C7C02B50EFF80490B5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:B3BF6D9411238E20E82C94C7C02B50EFF80490B5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:B3BF6D9411238E20E82C94C7C02B50EFF80490B5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:B3BF6D9411238E20E82C94C7C02B50EFF80490B5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ VA - Босса-нова - Самая красивая музыка в СССР 
 magnet:?xt=urn:btih:6C682551097415D3F765ACBCCCB24325B2CE8D1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ VA - Босса Нова - Всё ещё самая красивая музык�
 magnet:?xt=urn:btih:D09AE026F46A2F4EBB82A4808FC4A4F1C7EC9EAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:D09AE026F46A2F4EBB82A4808FC4A4F1C7EC9EAA
 magnet:?xt=urn:btih:EB71136DA1105E9366248AE9B79DFBD315FB6C32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Darkwood - это игра о выживании, исследовании и с
 ```bash
 magnet:?xt=urn:btih:A6829ACE6B30CB09992C968D9496C3880D7E578D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:A6829ACE6B30CB09992C968D9496C3880D7E578D
 magnet:?xt=urn:btih:551A0591D974CB0B58BBBDE6361B81881AD4FEF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:551A0591D974CB0B58BBBDE6361B81881AD4FEF3
 ```bash
 magnet:?xt=urn:btih:54BE3F284C67D29FF4EAFEC72C7C2A681E3CA0CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:54BE3F284C67D29FF4EAFEC72C7C2A681E3CA0CE
 magnet:?xt=urn:btih:311A91ECAA49937B565FA648D9F1C3292F2A5D22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:311A91ECAA49937B565FA648D9F1C3292F2A5D22
 ```bash
 magnet:?xt=urn:btih:9741809C8F3B4F22E88C177915E90C3D088342C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:9741809C8F3B4F22E88C177915E90C3D088342C3
 magnet:?xt=urn:btih:21E02E5D844B392445CCE4D826FC28A0FF6861EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:21E02E5D844B392445CCE4D826FC28A0FF6861EF
 ```bash
 magnet:?xt=urn:btih:BA3AE33BC80CF5BBBAEC7EDD213076AC20ED940B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:BA3AE33BC80CF5BBBAEC7EDD213076AC20ED940B
 magnet:?xt=urn:btih:F7DECBEA2ABCE3C44E52CDA1944F3E4A513D6EED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:F7DECBEA2ABCE3C44E52CDA1944F3E4A513D6EED
 ```bash
 magnet:?xt=urn:btih:C5C113426202DB2D5544716EB07C243F653A7359
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ Zutto Mae kara Suki Deshita. Kokuhaku Jikkouiinkai | I've Always Liked You: Conf
 magnet:?xt=urn:btih:D0F31B3F4AA7067D52E83FEF29A8F9BDDA19A1E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:D0F31B3F4AA7067D52E83FEF29A8F9BDDA19A1E0
 magnet:?xt=urn:btih:BE81FA8F683A8CC73A59BB90EEC41C9905352649
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:BE81FA8F683A8CC73A59BB90EEC41C9905352649
 ```bash
 magnet:?xt=urn:btih:8265619AD0DCA53F12FB82C84848C13911DAE4C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ VA - По волне моей памяти 2: Том16 (Compiled by Виктор
 magnet:?xt=urn:btih:DDDD3B38FAECC5F86C69614F070EA52F9A3C30CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:DDDD3B38FAECC5F86C69614F070EA52F9A3C30CF
 magnet:?xt=urn:btih:A406A6D661E593D1F46344984A52AB775A68CF0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:A406A6D661E593D1F46344984A52AB775A68CF0C
 ```bash
 magnet:?xt=urn:btih:5E3557BD6FBD75E57BFFA4B2E4E55870E98D5B98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ VA - По волне моей памяти 2: Том9 (Compiled by Виктор3
 magnet:?xt=urn:btih:AA5074611C7FD7CEF6D291C978968BE3123C00D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ Discovery Channel Россия. Техногеника. Русский колл�
 ```bash
 magnet:?xt=urn:btih:394531D116487A36D0828A0B46698D1E749842EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

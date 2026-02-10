@@ -20,6 +20,8 @@ My Night Job (2016) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:A3442E77FF89854AF7E8073E24B70D614402F6AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Garden Paws - красивая приключенческая RPG-песочни
 ```bash
 magnet:?xt=urn:btih:B8E37E9B6DDD5B814433C38EF69434B02816FDF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Demon Turf (2021) [En] (1.0) License DOGE
 magnet:?xt=urn:btih:F12C0AEBEBCEA89AB0E6C271563A4B0D224ABAC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Injustice 2 - снарядите легендарных героев и злод
 ```bash
 magnet:?xt=urn:btih:5A3F7EB883AFAC59989257C8A05D440D51400A9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Too Many Humans - это тактическая игра в реальном в�
 magnet:?xt=urn:btih:877FEF4165E0D1489535AD549BF13F0CB97FBEF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Danger Scavenger – это напряженный роуглайк в стил�
 ```bash
 magnet:?xt=urn:btih:A2F3DF7386C4CCFFF617A04B424F557B9D19EAF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Happy Game (2021) [Ru/Multi] (1.0rls) License TiNYiSO
 magnet:?xt=urn:btih:5D6BDC466358AD9E65486182A4E8D472D1FBA5ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Plants vs. Zombies (2009) [En] (1.2.0.1095) License CPY
 ```bash
 magnet:?xt=urn:btih:E4736129A8AE0F54CECB79D9A57A2F3A6EADF489
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Snake Pass (2017) [Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:A16F0CAECAC5652549F91490D450AEF3C5EB800B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Super Lucky’s Tale — весёлая и увлекательная платф
 ```bash
 magnet:?xt=urn:btih:789B5EBAC1CB143A21E3D1FF475C18FAE2175EF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Fury Unleashed создан в сочетании вдохновения от с
 magnet:?xt=urn:btih:1B3617E3B8933BE6D4FC1CDDE2BB903FB321160D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Death's Gambit — это хардкорный 2D-платформер с эле
 ```bash
 magnet:?xt=urn:btih:5737F047755437ACB60FC8124FA32B2AFD129A35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Not A Hero - пиксельный 2D шутер от независимого р
 magnet:?xt=urn:btih:0586841B3D0401ED7100F5BAE3387970FD1F435B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Skullgirls – это быстротечная двухмерная игра-ф�
 ```bash
 magnet:?xt=urn:btih:38ECB2ADF61D167BBAFBAC93F7254723940B93A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ R-Type Final 2 (2021) [Multi] (1.07/dlc) License GOG
 magnet:?xt=urn:btih:FBAD616A3C8DF7AF69324CD55F5AF4C69BC93D64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ The Smurfs - Mission Vileaf (2021) [Ru/Multi] (0.17.8) License GOG
 ```bash
 magnet:?xt=urn:btih:D3A340F81C3935081E78D9B5A23A80EDA47E618F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Sumoman – это приключенческий платформер с кру
 magnet:?xt=urn:btih:7BD23A502E74203B28E1294D3BBC91FE3CE2FB40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Enter the Gungeon - игра жанра “пулевая завеса в под
 ```bash
 magnet:?xt=urn:btih:227D0F6E10198D9708A0B2419493F9BF23A05100
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ The Howler – интересная аркада в которой вы попа
 magnet:?xt=urn:btih:3BCD5C3A66D96018985EAD3A2FB26055FD1D7CC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Dead or Alive 5: Last Round - это доработанная версия зн�
 ```bash
 magnet:?xt=urn:btih:B3F8EA3DA7CE0F5C7DAFD8187DC584520027C3EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Frederic: Resurrection of Music Director's Cut (2016) [En] (1.0) License PLAZA
 magnet:?xt=urn:btih:BD15075E5CCD2CD18CDA96E06734123ACBD10AFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Rogue Stormers (2016) [Ru/Multi] (b3100) License CODEX
 ```bash
 magnet:?xt=urn:btih:ACE9BB890A091A80ABF8D86E0150B18274F34F2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Pang Adventures (2016) [Ru/Multi] (1.0) License POSTMORTEM
 magnet:?xt=urn:btih:A19B49FD6449B3EB90C464E98AA66056951DCBF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ MELTY BLOOD: Actress Again Current Code - последнее поколение 
 ```bash
 magnet:?xt=urn:btih:95DB3ADE2A6D51A162F8E678AA743CB073C759B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ SpeedRunners - соревновательный платформер, с крю�
 magnet:?xt=urn:btih:935E2318D6B925B5D5B785F2B9F8111E978102B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ STEEL STRIDER - продолжение экшен-платформера Giganti
 ```bash
 magnet:?xt=urn:btih:17A878E7BD9250B10D568D62EA22B02CA8AC1B3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8D47470C3CF2A5357C0A43A38ED6DE0D2AF3CEA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ King Arthur: Knight`s Tale - это мрачная тактическая рол
 ```bash
 magnet:?xt=urn:btih:E05E24246DB16F2EBC473275919E1E7ACA2CE29E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:E05E24246DB16F2EBC473275919E1E7ACA2CE29E
 magnet:?xt=urn:btih:F6B088FCAE7527CE6941ACCE19294423962466F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Hellslave (2022) [Multi] (1.46) License GOG
 ```bash
 magnet:?xt=urn:btih:C4AA3975327B37B4714B7F2A5EC907617C70D90C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:C4AA3975327B37B4714B7F2A5EC907617C70D90C
 magnet:?xt=urn:btih:D8CA56DD76FF972B345FFEEE8B9889F6832F8023
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Mirthwood (2024) [Ru/Multi] (1.0.66) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:96B50DFC9BB5F99F19807372777CC52F3711E291
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:96B50DFC9BB5F99F19807372777CC52F3711E291
 magnet:?xt=urn:btih:4DEB05C709D8FAA735CBB53A28C6C97D4F7994A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:4DEB05C709D8FAA735CBB53A28C6C97D4F7994A0
 ```bash
 magnet:?xt=urn:btih:FC5D6CD17B0AF713533AA9BCAC469F21DF3C673F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:FC5D6CD17B0AF713533AA9BCAC469F21DF3C673F
 magnet:?xt=urn:btih:7161036C63FC09B2733B1CFD427B315ED0141EDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Empires of the Undergrowth – это уникальная по своей ме�
 ```bash
 magnet:?xt=urn:btih:E24F9050A056FAFE6092F2B3FB684689C1377C18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Lies Of P была вдохновлена знаменитой историей 
 magnet:?xt=urn:btih:777CAD81DF0964C44E747C76FCE5EB5CE7E4F5FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:777CAD81DF0964C44E747C76FCE5EB5CE7E4F5FD
 ```bash
 magnet:?xt=urn:btih:EB1996300FE2436CEEBB05F2D6F071612158D679
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Starcom: Unknown Space - это увлекательное сочетание к
 magnet:?xt=urn:btih:2E3D22C2885BF84057B494A5E420BDC83A9E782F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:2E3D22C2885BF84057B494A5E420BDC83A9E782F
 ```bash
 magnet:?xt=urn:btih:970AD489D64292EE759EC09135AC6C5D39F6B9D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:970AD489D64292EE759EC09135AC6C5D39F6B9D5
 magnet:?xt=urn:btih:A4230BE2476DD1DF55E9A6418F34BE33912DD8B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ InfraSpace дает возможность юзерам стать мэрами 
 ```bash
 magnet:?xt=urn:btih:2C2C964838E147124961D5E186DE7A97D9F69FE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Microsoft Activation Scripts (MAS) 3.4 portable [En]
 magnet:?xt=urn:btih:35DAC28A0B7F8F460EAA0224BFA76E6C4176E903
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ magnet:?xt=urn:btih:35DAC28A0B7F8F460EAA0224BFA76E6C4176E903
 ```bash
 magnet:?xt=urn:btih:0FF162229D461A351698B83AF3A772FD9B79A019
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:0FF162229D461A351698B83AF3A772FD9B79A019
 magnet:?xt=urn:btih:E34A989BD604DD58721E4B5B62A5085C4773A0D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ magnet:?xt=urn:btih:E34A989BD604DD58721E4B5B62A5085C4773A0D0
 ```bash
 magnet:?xt=urn:btih:4EAEBBC7A482922F3AD64E182A20675088F151DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:4EAEBBC7A482922F3AD64E182A20675088F151DA
 magnet:?xt=urn:btih:31D6BF9E2D99556B6735571DA7F1F1EB0C1ACB76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ magnet:?xt=urn:btih:31D6BF9E2D99556B6735571DA7F1F1EB0C1ACB76
 ```bash
 magnet:?xt=urn:btih:A464423F8DCAE1933AF6DCD204380609ED8D1169
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:A464423F8DCAE1933AF6DCD204380609ED8D1169
 magnet:?xt=urn:btih:5014956C86A17591B44C2B003FF7776207FC48ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ magnet:?xt=urn:btih:5014956C86A17591B44C2B003FF7776207FC48ED
 magnet:?xt=urn:btih:1CBB2DADB82E26B72D2ADEABCFAD656ABAE3F6DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +643,8 @@ magnet:?xt=urn:btih:1CBB2DADB82E26B72D2ADEABCFAD656ABAE3F6DF
 ```bash
 magnet:?xt=urn:btih:19211F2999B368A405A519FBFDC722B115DC649E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +672,8 @@ Chicago - Greatest Hits 1982-1989 (1989) CD, Compilation, Club Edition [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:F8EAF0A3B6AB89461AFC44C79532D890DD67AF00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 43858   (723860) от 14.02.2022
+
+Убийца авианосцев (2003) TVRip
+
+>>Документалистика и Телепередачи
+>>Флот
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм "Убийца авианосцев" расскажет о суперсекретной субмарине "К-162". Так ее прозвали натовские генералы. Эта подлодка должна была стать адекватным ответом на планы США по военно-морскому господству в мире.
+Для создания суперсекретной субмарины "К-162" была создана новая отрасль науки и промышленности — металлургия титановых (   Читать дальше...   )Жанр: ДокументальныйПеревод: ОригинальныйПродолжительность: 00:25:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:566AF5B20BB8E4EAB0D774B0BEC0D4937A561508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023652   (723959) от 05.06.2016
 
 Воскресный вечер с Владимиром Соловьевым (2016.06.05) SATRip
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:36DC716E4178DB4D816C3D2551A317AA8EC4C2B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:36DC716E4178DB4D816C3D2551A317AA8EC4C2B9
 magnet:?xt=urn:btih:BF73EB1C7EA03F9A84B4A843832647A043B07007
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:BF73EB1C7EA03F9A84B4A843832647A043B07007
 ```bash
 magnet:?xt=urn:btih:B003129456AC422AD95829D90713D5C576C43D49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:B003129456AC422AD95829D90713D5C576C43D49
 magnet:?xt=urn:btih:56D71274C6F7F90EC0C33AEFA8C665D2062C5EE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +150,8 @@ magnet:?xt=urn:btih:56D71274C6F7F90EC0C33AEFA8C665D2062C5EE8
 ```bash
 magnet:?xt=urn:btih:8A3608A1733091B79E2306364A09E9BD5607123C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +177,8 @@ magnet:?xt=urn:btih:8A3608A1733091B79E2306364A09E9BD5607123C
 magnet:?xt=urn:btih:3EBCDC1097E02BC4720543979436A8F646AE782E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +202,8 @@ magnet:?xt=urn:btih:3EBCDC1097E02BC4720543979436A8F646AE782E
 ```bash
 magnet:?xt=urn:btih:6526B7772E966D5A5B6804F366959BDFFF675818
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +229,8 @@ magnet:?xt=urn:btih:6526B7772E966D5A5B6804F366959BDFFF675818
 magnet:?xt=urn:btih:87A497A46EBB453CC1FB0F63308AAA3D9816E84D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +254,8 @@ magnet:?xt=urn:btih:87A497A46EBB453CC1FB0F63308AAA3D9816E84D
 ```bash
 magnet:?xt=urn:btih:A8934B7164DD8D516390BABC0F06AD2A69228CA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +281,8 @@ magnet:?xt=urn:btih:A8934B7164DD8D516390BABC0F06AD2A69228CA1
 magnet:?xt=urn:btih:8B13DEDA35425073F6FF5EBBD070F158C884E310
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +306,8 @@ magnet:?xt=urn:btih:8B13DEDA35425073F6FF5EBBD070F158C884E310
 ```bash
 magnet:?xt=urn:btih:E632068F0E74CDF03BB240642DD6266BBA54F716
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +333,8 @@ NG. Суперсооружения Третьего рейха: Война с А
 magnet:?xt=urn:btih:B7D7D068BC8BFCCA9263431F7D69186CA182C7EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +358,8 @@ magnet:?xt=urn:btih:B7D7D068BC8BFCCA9263431F7D69186CA182C7EA
 ```bash
 magnet:?xt=urn:btih:800C6215AE6FA8EE11FC768CF74631975D7A5A14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +387,8 @@ magnet:?xt=urn:btih:800C6215AE6FA8EE11FC768CF74631975D7A5A14
 magnet:?xt=urn:btih:93076402C5610E884E3CF68F6A77E2671773DF1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +412,8 @@ magnet:?xt=urn:btih:93076402C5610E884E3CF68F6A77E2671773DF1C
 ```bash
 magnet:?xt=urn:btih:13CAD0971B46B42539EB7776212365E48A20D270
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +442,8 @@ magnet:?xt=urn:btih:13CAD0971B46B42539EB7776212365E48A20D270
 magnet:?xt=urn:btih:B7D484DFA6DD2CC366FACE31F7A1416133947FE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +468,8 @@ magnet:?xt=urn:btih:B7D484DFA6DD2CC366FACE31F7A1416133947FE8
 magnet:?xt=urn:btih:542E4ED97AB9E87623FAE219D6CDB6735279CAC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +493,8 @@ magnet:?xt=urn:btih:542E4ED97AB9E87623FAE219D6CDB6735279CAC1
 ```bash
 magnet:?xt=urn:btih:CFE4AE5B625BEF395F30A6D52BBEC1276F12CE83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +521,8 @@ magnet:?xt=urn:btih:CFE4AE5B625BEF395F30A6D52BBEC1276F12CE83
 magnet:?xt=urn:btih:74111333FDDF6C4CC316C522D8FFCE8F0501F663
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +546,8 @@ magnet:?xt=urn:btih:74111333FDDF6C4CC316C522D8FFCE8F0501F663
 ```bash
 magnet:?xt=urn:btih:7B66FE1928B63E4968E43FF9F3E0D2868E8B24F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +574,8 @@ magnet:?xt=urn:btih:7B66FE1928B63E4968E43FF9F3E0D2868E8B24F0
 magnet:?xt=urn:btih:BE3ADCA119B2DF6EDB921316947074A58C1BACB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +599,8 @@ magnet:?xt=urn:btih:BE3ADCA119B2DF6EDB921316947074A58C1BACB8
 ```bash
 magnet:?xt=urn:btih:3DA94FBB10586191FA16C338916277586B1B043A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +626,8 @@ magnet:?xt=urn:btih:3DA94FBB10586191FA16C338916277586B1B043A
 magnet:?xt=urn:btih:FF83893FF40B76B69015E4DE2A85CC4587169FF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +651,8 @@ magnet:?xt=urn:btih:FF83893FF40B76B69015E4DE2A85CC4587169FF4
 ```bash
 magnet:?xt=urn:btih:8FBF287FF2CD07564BA2CB04D83D6FFAE306BF88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,29 +678,7 @@ magnet:?xt=urn:btih:8FBF287FF2CD07564BA2CB04D83D6FFAE306BF88
 magnet:?xt=urn:btih:706F8DCF3D91B7CC2AD1A1DBB94A9A1491F10202
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285097   (724608) от 24.02.2019
-
-Король, обманувший Гитлера / The King Who Tricked Hitler (2016) HDTVRip
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это одна из самых невероятных историй Второй мировой войны, рассказанная последним королем Румынии Михаилом I. Это история о решении короля, который в критический момент Второй мировой войны отказался от поддержки Германии, направив Румынию к союзникам. Считается, что это сократило войну на несколько месяцев, однако свобода Румынии была недолгой... Это история дворцовых (   Читать дальше...   )Производство: РумынияЖанр: Документальный, биография, война, историяРежиссер: Тревор ПоотсПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Субтитры: Английские на румынскую речь (вшитые)Продолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71020ABBC017AE43FCC6A1D249B25E6BA181652E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

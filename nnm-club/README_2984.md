@@ -19,6 +19,8 @@ Cases of Stolen Beauty / Дело об украденной красоте (P) [
 magnet:?xt=urn:btih:52E3B861A84B91E781DC4EF7FAC9072DAABEB354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:52E3B861A84B91E781DC4EF7FAC9072DAABEB354
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ magnet:?xt=urn:btih:52E3B861A84B91E781DC4EF7FAC9072DAABEB354
 magnet:?xt=urn:btih:9B94483C1F7568F7E0665F7184A21A573EADECE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ magnet:?xt=urn:btih:9B94483C1F7568F7E0665F7184A21A573EADECE3
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:9B94483C1F7568F7E0665F7184A21A573EADECE3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:9B94483C1F7568F7E0665F7184A21A573EADECE3
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:9B94483C1F7568F7E0665F7184A21A573EADECE3
 magnet:?xt=urn:btih:E5894FFB01797F1153446542BF48BA43B0A7DF23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:E5894FFB01797F1153446542BF48BA43B0A7DF23
 ```bash
 magnet:?xt=urn:btih:75F2DFE4AC5702F7A26CB0AF5B2EEC07F517AAD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:75F2DFE4AC5702F7A26CB0AF5B2EEC07F517AAD9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:75F2DFE4AC5702F7A26CB0AF5B2EEC07F517AAD9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ Hidden Expedition: Titanic / Секретная экспедиция: Титан
 magnet:?xt=urn:btih:3A976C11D5E74FC75A045A0F7C11AF42BB5957C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ Victorian Mysteries 2: The Yellow Room / Викторианские тайны. 
 magnet:?xt=urn:btih:6170290230D3B515B8F5B8D28EE2B357EF5C8EBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:6170290230D3B515B8F5B8D28EE2B357EF5C8EBC
 ```bash
 magnet:?xt=urn:btih:AE4F2C2B46EFBE5D6DC30CDEE84095D00C7B2EEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:AE4F2C2B46EFBE5D6DC30CDEE84095D00C7B2EEB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:AE4F2C2B46EFBE5D6DC30CDEE84095D00C7B2EEB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:AE4F2C2B46EFBE5D6DC30CDEE84095D00C7B2EEB
 ```bash
 magnet:?xt=urn:btih:B185017734DF7EE9738E61B17A282AC742A001E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:B185017734DF7EE9738E61B17A282AC742A001E8
 magnet:?xt=urn:btih:A7B8E55C64452322663ADE56C83375F6A9E28AAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:A7B8E55C64452322663ADE56C83375F6A9E28AAF
 ```bash
 magnet:?xt=urn:btih:1747B6CDB4789862209C182887C604687A895FB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +509,8 @@ IconTo 5.51 Professional [Мульти, есть русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ IconTo 5.51 Professional [Мульти, есть русский]
 ```bash
 magnet:?xt=urn:btih:B96DBA8C3F98F0C9FAB5CF4693F751A0AF8A4DB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:B96DBA8C3F98F0C9FAB5CF4693F751A0AF8A4DB3
 magnet:?xt=urn:btih:1015E2EFC5966A941ED85536CF9577D9A5310B6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:1015E2EFC5966A941ED85536CF9577D9A5310B6A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ Sandra - 18 Greatest Hits (1992) (Japan press) [FLAC|Lossless]<Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ Sandra - 18 Greatest Hits (1992) (Japan press) [FLAC|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:1E1C29CF2A2E3586D999AC0D1FC905943DF76ADF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ Daum PotPlayer - это мультимедийный проигрыватель 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ Daum PotPlayer - это мультимедийный проигрыватель 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

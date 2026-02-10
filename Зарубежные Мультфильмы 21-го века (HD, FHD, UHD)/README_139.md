@@ -1,27 +1,3 @@
-###  Публикация: 125654   (1043388) от 01.02.2023
-
-Хранители: История Чёрной Шхуны / Watchmen: Tales of the Black Freighter (2009) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043388.jpg" />
-</div>
-
-
-###  Подробнее
-
-История Черной Шхуны - комикс со страниц графического романа Watchmen, который читает мальчик Берни у газетного киоска (в фильме он будет в режиссерской версии). По сюжету молодой моряк отчаянно пытается добраться до родных земель, чтобы успеть предупредить о приближении корабля-призрака "Черная Шхуна".Производство: США, Warner Bros. Pictures Co.Жанр: приключения, ужасыРежиссер: Майк Смит, Даниэль Дел ПургаториоПеревод: Многоголосый закадровый (notabenoid)Субтитры: Русские, Английские (вшитые)Продолжительность: 0:25:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E194B801246F648C3B4762EE779E5E0143C76477
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 127619   (1043487) от 31.01.2023
 
 Ковчег / ARK (2007) HDRip [H.264/720p-LQ]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:E194B801246F648C3B4762EE779E5E0143C76477
 ```bash
 magnet:?xt=urn:btih:490652213D5E2ECEB26BB7453B9AEFD802991A57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:490652213D5E2ECEB26BB7453B9AEFD802991A57
 magnet:?xt=urn:btih:30C342AA1B9BF59F9FA88BD1A9D072E4AA2687E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:30C342AA1B9BF59F9FA88BD1A9D072E4AA2687E5
 ```bash
 magnet:?xt=urn:btih:FDF7B69153D1CE58057DE8C7ED2B1ADBFE37F498
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:FDF7B69153D1CE58057DE8C7ED2B1ADBFE37F498
 magnet:?xt=urn:btih:E10C185A616BD52DB09EF879E0C3FB02FAE276B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:E10C185A616BD52DB09EF879E0C3FB02FAE276B5
 ```bash
 magnet:?xt=urn:btih:099DE254ADD5F82BFD7F1D7552E0FEF63CD0ECC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:099DE254ADD5F82BFD7F1D7552E0FEF63CD0ECC6
 magnet:?xt=urn:btih:9E529902646FBEA304EDBFE73F65CE590BB5551B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:9E529902646FBEA304EDBFE73F65CE590BB5551B
 ```bash
 magnet:?xt=urn:btih:FE690D6C2EE205C4CF463F2650F7F618D01CCAF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:FE690D6C2EE205C4CF463F2650F7F618D01CCAF8
 magnet:?xt=urn:btih:FFC8436DF54E1FE4947DA9E9B90DBEE63F70E326
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ magnet:?xt=urn:btih:FFC8436DF54E1FE4947DA9E9B90DBEE63F70E326
 ```bash
 magnet:?xt=urn:btih:81FE7CCB01C64B82AF7699B20C39CE233EA89C7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:81FE7CCB01C64B82AF7699B20C39CE233EA89C7B
 magnet:?xt=urn:btih:438CDC7D3AC1378290B7A79459C1D1BB51667ECD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ magnet:?xt=urn:btih:438CDC7D3AC1378290B7A79459C1D1BB51667ECD
 ```bash
 magnet:?xt=urn:btih:2A7B6919394BE5F9C38F91A201CD25ECAD924AFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +306,8 @@ magnet:?xt=urn:btih:2A7B6919394BE5F9C38F91A201CD25ECAD924AFE
 magnet:?xt=urn:btih:025AA854096A783CAFB863595C7E7D613900E7BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +332,8 @@ magnet:?xt=urn:btih:025AA854096A783CAFB863595C7E7D613900E7BD
 ```bash
 magnet:?xt=urn:btih:DD007DA66BA6647E32FD10DB9537DB29D0A2ABDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +361,8 @@ magnet:?xt=urn:btih:DD007DA66BA6647E32FD10DB9537DB29D0A2ABDD
 magnet:?xt=urn:btih:8C6797D94DDC0307DE1DD18779F5588FF0BC76AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:8C6797D94DDC0307DE1DD18779F5588FF0BC76AC
 ```bash
 magnet:?xt=urn:btih:55AAF4B2707061286DA203F842A2D713C394EF68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +413,8 @@ magnet:?xt=urn:btih:55AAF4B2707061286DA203F842A2D713C394EF68
 magnet:?xt=urn:btih:B82FAFDA2AE6CD479CC05DBF138D70350D8F0DD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +438,8 @@ magnet:?xt=urn:btih:B82FAFDA2AE6CD479CC05DBF138D70350D8F0DD8
 ```bash
 magnet:?xt=urn:btih:BD2707EEAF7E739834CC2BC2CC0994BFADA8D241
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +465,8 @@ magnet:?xt=urn:btih:BD2707EEAF7E739834CC2BC2CC0994BFADA8D241
 magnet:?xt=urn:btih:24AED226BC8C1023B6D545F60FE53FE8FD4B9BC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +490,8 @@ magnet:?xt=urn:btih:24AED226BC8C1023B6D545F60FE53FE8FD4B9BC0
 ```bash
 magnet:?xt=urn:btih:8D38C3493F4DE3F94D5AAC45BD8CA40A7582486B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +517,8 @@ magnet:?xt=urn:btih:8D38C3493F4DE3F94D5AAC45BD8CA40A7582486B
 magnet:?xt=urn:btih:4B1EA584523879ECC448FD6650DF48307A777F86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +542,8 @@ magnet:?xt=urn:btih:4B1EA584523879ECC448FD6650DF48307A777F86
 ```bash
 magnet:?xt=urn:btih:2FE173EF48E49212B6EABE680CB7FBE736DFAE7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +569,8 @@ magnet:?xt=urn:btih:2FE173EF48E49212B6EABE680CB7FBE736DFAE7F
 magnet:?xt=urn:btih:44096424AB99D568DCD405B34BB0BADE86641C8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +594,8 @@ magnet:?xt=urn:btih:44096424AB99D568DCD405B34BB0BADE86641C8C
 ```bash
 magnet:?xt=urn:btih:EF3819A540F6E44A985A0280D221ED802D198750
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +621,8 @@ magnet:?xt=urn:btih:EF3819A540F6E44A985A0280D221ED802D198750
 magnet:?xt=urn:btih:F3C6E1A226F9A716EB2617FEFCE30C279AFFD539
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +646,34 @@ magnet:?xt=urn:btih:F3C6E1A226F9A716EB2617FEFCE30C279AFFD539
 ```bash
 magnet:?xt=urn:btih:8A2F01856023D7DBBDDB56DA598C454872994313
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845517   (1050741) от 
+
+Монстры на каникулах 3: Море зовёт / Hotel Transylvania 3: Summer Vacation (2018) WEB-DL [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050741.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз Дракула вместе со своими друзьями отправляется в круиз на шикарном лайнере. Развлечения там на любой вкус: от монстробаскетбола и экзотических экскурсий, до лунных ванн. Неожиданно Дракула влюбляется в капитана корабля — загадочную и прекрасную Эрику, и его дочка Мэвис понимает, что поездка может превратиться в кошмар: ведь Эрика хранит ужасный секрет, (   Читать дальше...   )Производство: США, Южная Корея / Sony Pictures Animation, Media Rights Capital (MRC), Rough Draft KoreaЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Генндий ТартаковскийПеревод: дублированныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA6F4D7BCB9E09C25450248C6ECECA8EF09605CD
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

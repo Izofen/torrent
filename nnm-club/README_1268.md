@@ -20,6 +20,8 @@ Balabolka 2.15.0.885 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:8986F458472B729B30A197CD8C8D6AC058E1C08E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:8986F458472B729B30A197CD8C8D6AC058E1C08E
 magnet:?xt=urn:btih:A8602AA11E74DED11AA199B08FF319662FF5AD1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:A8602AA11E74DED11AA199B08FF319662FF5AD1E
 ```bash
 magnet:?xt=urn:btih:B240FCCA3BF634DD4E94495EF7F363005BB1402C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ VA - 128 Bpm Afro House Workout Motivation Mix (2024) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:1656E19F7570B28CAFAE94251C1934E2914F0330
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Marc Gregoire | Professional C++ (6th Edition) (2024) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:F4BA8B6398A9B1F74216CB4BFCDBF502419E8127
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Nick Parlow | PowerShell 7 Workshop (2024) [PDF] [EN]
 magnet:?xt=urn:btih:63821D6109044805E1FD8F5ADF58B181B0746D31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Love Bomb / Love Bomb (2024) WEBRip [H.264/1080p] [DVO] [AD]
 ```bash
 magnet:?xt=urn:btih:EDAF54C8D97C85D2F3D8188FCF663F48FA54331D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Love Bomb / Love Bomb (2024) WEBRip [DVO] [AD]
 magnet:?xt=urn:btih:9F91707AF3CA77EC177B6A1580E133400A202202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:7D7525CB79E41750A0FA1CE7EE0E4600D0FA798F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Adam Freeman | Mastering Node.js Web Development (2024) [PDF] [EN]
 magnet:?xt=urn:btih:D732B1EC76FC07A6167AEAA548B8AB72ECFAC7EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Alex Rios | System Programming Essentials with Go (2024) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:E94F3B0A7CD7BDEFC4A557A38E6D6DE82BCFF63A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:E94F3B0A7CD7BDEFC4A557A38E6D6DE82BCFF63A
 magnet:?xt=urn:btih:6321E1F2625817BB2A63459A079A9FD4D2D0C8AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Dennis Vroegop | Systems Programming with C# and .NET (2024) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:B91F62D88FEC7E27A44FCFFE8822BFBA5ECAFE07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:B91F62D88FEC7E27A44FCFFE8822BFBA5ECAFE07
 magnet:?xt=urn:btih:84A28F7802F3013FC947873A113C9C05A567A3E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Neil Smyth | C# 13 Programming Essentials (2024) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:0C8578EEE99ABFD8487D92487AC55A2C80F710E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:0C8578EEE99ABFD8487D92487AC55A2C80F710E3
 magnet:?xt=urn:btih:37541ECD99DB66465AF4A572EEEE755FE06832B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:37541ECD99DB66465AF4A572EEEE755FE06832B3
 ```bash
 magnet:?xt=urn:btih:934542A0CDF65A84ACD365FC6DE1B1618C15E8CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:934542A0CDF65A84ACD365FC6DE1B1618C15E8CC
 magnet:?xt=urn:btih:8E4F1B5F9F5626DE5BDB7CEF2CA47A8BBB8A1510
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Carl Fredrik Samson | Asynchronous Programming in Rust (2024) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:2AA2ADFA667E8AA3C1325DB789B1D3B617798DEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:2AA2ADFA667E8AA3C1325DB789B1D3B617798DEC
 magnet:?xt=urn:btih:75BE422C703D720AC5624A36A55F7CB34AF22D59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:75BE422C703D720AC5624A36A55F7CB34AF22D59
 magnet:?xt=urn:btih:5A620239D338DCD4E8931DDECA230F5BF136ED2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:5A620239D338DCD4E8931DDECA230F5BF136ED2D
 ```bash
 magnet:?xt=urn:btih:FD83CA24DD057AE67F5741534E3288C6FB342902
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:FD83CA24DD057AE67F5741534E3288C6FB342902
 magnet:?xt=urn:btih:2FE65298BF2FECF572ADC35560B034E24E0BCBA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ Gema Socorro Rodríguez | Thriving in Android Development Using Kotlin (2024)  [
 ```bash
 magnet:?xt=urn:btih:321EFA040C326C85396D58530AF1688CFE782C96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:321EFA040C326C85396D58530AF1688CFE782C96
 magnet:?xt=urn:btih:B3FBABAE6F13665F8D7D5192CE710D7B736DB378
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Ranma 1/2 (2024) | Ранма 1/2 (2024) [2024, TV, 12 эп.] WebRip 720p 10-bit
 ```bash
 magnet:?xt=urn:btih:05185C87CD500E3068392CFFD28E96759BCD9F1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

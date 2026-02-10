@@ -19,6 +19,8 @@ MediaHuman YouTube Downloader 3.9.9.87 (1111) RePack (& Portable) by Dodakaedr [
 magnet:?xt=urn:btih:1E2FC35DEA1FA63D3EA623737E842438176D8859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Monkey's Audio — данная утилита предназначена для
 magnet:?xt=urn:btih:AE80A43BB22FB489811C68E95DC31BF3293C006F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Visual Studio Enterprise 2019 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:E5A7FB1D8AC6AE3650DAEC8C9489E26833053AAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:E5A7FB1D8AC6AE3650DAEC8C9489E26833053AAF
 magnet:?xt=urn:btih:2732916F75EB2F12B18629E763168C7CEF946625
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ MediaInfo - программа для получения подробной те
 magnet:?xt=urn:btih:69AC3934628CB043CB9D4016CC941664568BBECF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Psycho-Pass 2 / Психопаспорт 2 [TV-2] (2014, TV, 11) HDTV 720p Rus
 ```bash
 magnet:?xt=urn:btih:0ACF64AFD899FEB4FAAACD389C97B829BF5C7F11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ MacPilot 12 v12.0.7 [En]
 magnet:?xt=urn:btih:775BDB261C8037113D27F1513657AA849B11E078
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ MediaHuman Audio Converter 1.9.6.6 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:3FCE57AB61F62BF3B0B3F7FBBFCB9A2ABB838F62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ MediaHuman YouTube to MP3 Converter 3.9.9.87 (1111) RePack (& Portable) by elchu
 ```bash
 magnet:?xt=urn:btih:9272313D47FD7CD30E1DAF9E29819CDD47913968
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:9272313D47FD7CD30E1DAF9E29819CDD47913968
 magnet:?xt=urn:btih:EF220A0A6EA1B5BA6EF55DCD84D5333D336019AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Ashampoo Burning Studio - это всё то, о чём Вы просили. О�
 ```bash
 magnet:?xt=urn:btih:E31A00896B576AE4DA2D0BA1F58CB02221BACB20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ FireAlpaca - это достаточно простой, но удобный г�
 magnet:?xt=urn:btih:FD061E2900B25912E0DDE00DD84B32B1169850B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ XYplorer – удобный мультивкладочный файловый м
 ```bash
 magnet:?xt=urn:btih:5D67515F9110C673F661E9EBBD1555BBBAC9C75C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Glary Utilities - функциональный набор системных т�
 magnet:?xt=urn:btih:A21D4DB429F33426B3319AACDFEC5E1533BA2C2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Stellarium это бесплатный планетарий для вашего 
 ```bash
 magnet:?xt=urn:btih:AF8D5122E959AA15DC48CE0DA3AFD933F88CD87C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Project Hospital 1.1.17753 (2018) [Multi/Ru] [macOS Native game]
 magnet:?xt=urn:btih:229CA66143D122E4682EEB27A5BAA45D85966D46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Vivaldi 6.4.3160.42 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7ABF342C179162C461BC2DA51E30EDE3A6584646
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ Northern Light Orchestra - Ring Out The Bells [EP] (2013) [MP3|320 кб/с]<Melo
 magnet:?xt=urn:btih:CB5D674748A0BCF6DACB0B0D594031894001EA5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ Opera 57.0.3098.106 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:397BDAAD8158CD2ABA9D294E26EE5B750A170274
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 magnet:?xt=urn:btih:829FA057B6CD6C9AE18EC9C63D9D9445BB79F351
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:829FA057B6CD6C9AE18EC9C63D9D9445BB79F351
 ```bash
 magnet:?xt=urn:btih:F2D63BCC9DCA181F63BE52F33256E78D60416FD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ Media Player Classic Home Cinema – удобный во всех планах �
 magnet:?xt=urn:btih:7FFD96B7DC9F37BEA1EC5067658B95DD02AD49A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ Sumatra PDF — мощная, небольшая программа с прос�
 ```bash
 magnet:?xt=urn:btih:651F74B8836C06CEB038B84E7306C862CD418091
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ Psycharge - Unknown Existence (2013) [FLAC|Lossless|WEB-DL]<Darkpsy, Forest>
 magnet:?xt=urn:btih:6AD781E39D9301301160DD782992A01FB6256818
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 magnet:?xt=urn:btih:4E33E9110BBE3698F4890CA74596DADD57682A6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ RJ TextEd - мощный текстовый редактор с большим �
 ```bash
 magnet:?xt=urn:btih:A27233A473A2A849919D447D0C0C3244A23EFEB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

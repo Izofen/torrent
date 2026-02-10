@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:7C7DC7250381504F5E43DBF87E4ED2971A3FDF85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Secca — это новая и универсальная серия шрифт�
 magnet:?xt=urn:btih:76449F861A2B8683E93DDD5A06E756E635D3BB08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:76449F861A2B8683E93DDD5A06E756E635D3BB08
 ```bash
 magnet:?xt=urn:btih:325DD9E7D1751475DE34EDE375F08BEDDB8B92AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:325DD9E7D1751475DE34EDE375F08BEDDB8B92AC
 ```bash
 magnet:?xt=urn:btih:AA88BD223F4FDFB09F7C59BCFAAD9E4F91CFE0D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:AA88BD223F4FDFB09F7C59BCFAAD9E4F91CFE0D1
 magnet:?xt=urn:btih:5924917EA0CDA3B65B9E0CCA3824BA60F9D33765
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Perpetual Rage - The Beginning (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy
 magnet:?xt=urn:btih:8BDE7563C35A6D9CEBBC64307D11D21C584188E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:8BDE7563C35A6D9CEBBC64307D11D21C584188E0
 ```bash
 magnet:?xt=urn:btih:4566496251E2FE224CFA88646F4756C9F899D304
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:4566496251E2FE224CFA88646F4756C9F899D304
 magnet:?xt=urn:btih:67A2C18D0613896AD62768A96BE8DFF8D3CAB78D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Ui Kits - UI8 -   Painted Style Landscapes - Set of 20 [PNG, PSD]
 magnet:?xt=urn:btih:30D0CBB16A56B90FDFD189312406343F9F43065A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:30D0CBB16A56B90FDFD189312406343F9F43065A
 ```bash
 magnet:?xt=urn:btih:17BBC7323B421C2210828FC8498F4F0E5032D196
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:17BBC7323B421C2210828FC8498F4F0E5032D196
 magnet:?xt=urn:btih:9A9DB59A9CBF8E22036A7AEE9E1C1F6A347015AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:9A9DB59A9CBF8E22036A7AEE9E1C1F6A347015AD
 magnet:?xt=urn:btih:A8912B4F1DE986BB33233203A32F2D2AE4066A9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:A8912B4F1DE986BB33233203A32F2D2AE4066A9A
 ```bash
 magnet:?xt=urn:btih:3581A43B271FAEDBAAFBAED7473EEFD6024A7750
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:3581A43B271FAEDBAAFBAED7473EEFD6024A7750
 magnet:?xt=urn:btih:81DCA3042CA010C55D40BA12907BE798A00158FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:81DCA3042CA010C55D40BA12907BE798A00158FC
 ```bash
 magnet:?xt=urn:btih:59477886B4624508EC1024B77019FBB9FFA76F75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:59477886B4624508EC1024B77019FBB9FFA76F75
 magnet:?xt=urn:btih:203D2BF8A977D4C11B9F13CD1BF22495D1C8F7E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:203D2BF8A977D4C11B9F13CD1BF22495D1C8F7E1
 magnet:?xt=urn:btih:D62F61FEEA1EF387BF52F2EF4A4701FABDE7D42F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:D62F61FEEA1EF387BF52F2EF4A4701FABDE7D42F
 ```bash
 magnet:?xt=urn:btih:2E034D5A3E2B3F4AF5CA6C002FFD6F80EAC6AD41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:2E034D5A3E2B3F4AF5CA6C002FFD6F80EAC6AD41
 magnet:?xt=urn:btih:8C99A6BAE8A78C82CBA3D9232ECA2D300138074B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:8C99A6BAE8A78C82CBA3D9232ECA2D300138074B
 ```bash
 magnet:?xt=urn:btih:569B7738A46D191EBEEDDDCF241443A1E6663B57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:569B7738A46D191EBEEDDDCF241443A1E6663B57
 magnet:?xt=urn:btih:3689056662B46A6C20B0C2799F8F7F21EEF3D653
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ magnet:?xt=urn:btih:3689056662B46A6C20B0C2799F8F7F21EEF3D653
 magnet:?xt=urn:btih:973B115349C6BAC15E1E066A510A7EC9DDEFC47C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ magnet:?xt=urn:btih:973B115349C6BAC15E1E066A510A7EC9DDEFC47C
 ```bash
 magnet:?xt=urn:btih:0C379B72F517ACF479928A168EF865CADF5D71C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:0C379B72F517ACF479928A168EF865CADF5D71C7
 magnet:?xt=urn:btih:7F67348E6B5AFAA1BD3824500105645388ECAEA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:7F67348E6B5AFAA1BD3824500105645388ECAEA5
 ```bash
 magnet:?xt=urn:btih:1DBF68E544C7A06DA67779B11EE6EBACA856A0D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +690,8 @@ Paquero — современный геометрический гротескн
 ```bash
 magnet:?xt=urn:btih:F856C29C03FC7B47AB33EBCEE2B8868532EFF21C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

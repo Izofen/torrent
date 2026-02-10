@@ -19,6 +19,8 @@ AVS Media Player - полнофункциональный программный
 magnet:?xt=urn:btih:8B3C2BE5581642F5D0056220215BBC6931314238
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ AVS All-In-One Install Package 5.6.1.185 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2B0F2C473864A063588948DE0049E65A736F2755
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Resource Hacker - программа для просмотра, извлечен
 magnet:?xt=urn:btih:5A57106F1C2ACBE2A40AE09921B8197B9CD4E345
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 magnet:?xt=urn:btih:946A1F53F858CCA0898C9AE2267F79F20D3390E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Rufus - небольшая утилита помогает отформатир�
 ```bash
 magnet:?xt=urn:btih:BF3A7A051AED76128A94608CE551513788E91E1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Scrutiny проверит ваши изображения, ваши внутре
 magnet:?xt=urn:btih:C1F0FF47C652E3A83B185E6E31391127E662BBB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ QLPro Studio инструмент управления базами данных
 ```bash
 magnet:?xt=urn:btih:AE63C78205D6D7A7A54F35131971BA79ED1D18CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Typora дает вам безупречный опыт как читателя, 
 magnet:?xt=urn:btih:6116F2A942DC245B4861264B79394CE5FC815308
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ AutoKrypt 13 for Mac 13.08 [En]
 magnet:?xt=urn:btih:44EB0C019541B82E51FA6DD6FDFE781A15D79C48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Magic Disk Cleaner находит и удаляет временные файл�
 ```bash
 magnet:?xt=urn:btih:0A999A956E229862401914179895D823524A8976
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Wifi Signal Strength - отображение состояния уровня Wi
 magnet:?xt=urn:btih:84D3AD3677BAD9980937944A61CDE34D7715CF2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Wondershare Recoverit - профессиональное приложение, �
 magnet:?xt=urn:btih:EA65D39EBCB912B8705A69566DBA8929A611D4F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Master of Typing создан для тех, кто хочет научитьс�
 ```bash
 magnet:?xt=urn:btih:3FEB571DAEC3F6364A1A1E56D158F68F7D6B8A39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ ACDSee Photo Studio 10 for Mac v.10.0.3 [En]
 magnet:?xt=urn:btih:A87A56D86E94C723C11AA31570AEBA5BA5C96F67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Icecream Slideshow Maker - это приложение для создания �
 ```bash
 magnet:?xt=urn:btih:6C27CE9CD6C4C1CBAF732BAFE4F8E7FB9893999E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:F14BF751A7E3F39A0EB9C835A5E3627B0EBAF3F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ PhotoRoom v4.8.2 b1243 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:599A2EB251774A38858720D0B687AF72407FE69E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ PDF Expert - редактор  PDF. Быстрый, мощный и незаме
 magnet:?xt=urn:btih:30A2E22409BAC981ADD9A0B3151D9C844F7560B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Capture One 23 Enterprise — решение для редактирования
 magnet:?xt=urn:btih:80F5BBE5543FB58A8F8B91FE94C09807B4FEDBCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ IceCream Ebook Reader Pro 6.45 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:269A3AD10E0D85A026C6D24B6D4716B47F42AE8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Soul Browser - добротный браузер, что несмотря на �
 magnet:?xt=urn:btih:99C8C34A42A0DBC7EB5DFE4E48789666D6E6A427
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ TreeSize Professional 9.1.0.1868 (x64) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2E335E7D49713E48038602150E80704D09BA3F0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ Download Master эффективно решает 3 главных пробле�
 magnet:?xt=urn:btih:D476DA77DBBDE3E9AB397C272A1F0C23B6E64DEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ OneCommander V3 — это современный файловый менедж�
 ```bash
 magnet:?xt=urn:btih:1C09026E49ED4A284937EAE302091B3BBB1D189B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Fakin The Funk 5.4.0.158 [Multi/Ru]
 magnet:?xt=urn:btih:3D763A0B22A8201F7EB47E96FBC750D8D335C6E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:E61B0042AF661B06338BBDF80D90C8056FBE3FF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

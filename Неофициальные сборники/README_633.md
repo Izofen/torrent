@@ -1,3 +1,32 @@
+###  Публикация: 1358756   (967327) от 09.02.2020
+
+VA - Beatport Trance Pack #07 (2020) [MP3|320 Kbps] <Trance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967327.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Drival & Andromeda - Fade Away
+002. Ruben De Ronde - Baguette
+003. Misja Helsloot - Manos Arriba (Original Mix)
+004. Dan Schneider - Ramé (Extended Mix)(   Читать дальше...   )Жанр: Trance, ElectroПродолжительность: 12:57:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC214C188894143F9432A82ACAA0C33DC3F92286
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358797   (967328) от 09.02.2020
 
 VA - Beatport Progressive House: Pack 10 (2020) [MP3|320 Kbps] <Progressive House>
@@ -21,6 +50,8 @@ VA - Beatport Progressive House: Pack 10 (2020) [MP3|320 Kbps] <Progressive Hous
 ```bash
 magnet:?xt=urn:btih:85D9E1D5E7DABEE6B32E5950F2DF1F79741D6AAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - German Top 100 Single Charts 07.02.2020 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:36FF5135932CE57A86C26ADD9E66BE20C60882C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Звездный Mix. Улетная 100-ка (2016) [MP3|256-320 кб/с] 
 ```bash
 magnet:?xt=urn:btih:F93237578E4725D4ABE5E16578BF0BFDDA9B3019
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Звездный снегопад хитов (2016) [MP3|256-320 кб/с] <
 magnet:?xt=urn:btih:CA1DFE1EA1425BEDE6D54EB5F5CFBD559939E088
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +167,8 @@ VA - 90s & 00s Covers Playlist (2015) [MP3|320 кб/с] <Pop, Covers>
 magnet:?xt=urn:btih:17334A5770E572234201A134574A1321FBC04C55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +195,8 @@ VA - Battle DJ (2016) [MP3|320 кб/с] <Dance, Club, House, Trance>
 ```bash
 magnet:?xt=urn:btih:2E08E25BAD8F614A05E9AE5215737E3B95ACECBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +231,8 @@ VA- Dubstep Planet 4 (2013) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:068298B06EF182F0A6A22FE14A35AA7D6AEBA12A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +259,8 @@ VA - Morning Chill Out (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:616B40F1F7D7EF8436F715A08F8F8157E762CCB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +289,8 @@ VA - Private Lounge Cafe, Vol. 3 (25 Delicious Lounge Anthems) (2016) [MP3|320 �
 magnet:?xt=urn:btih:C5A1D973F3AEAABAD4C8B46D598FFB5301AF342F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +317,8 @@ VA - Luxury Chill Grooves - Cool Winter Edition (2016) [MP3|320 кб/с] <Downte
 ```bash
 magnet:?xt=urn:btih:559BF223F2A8DA12F0E83B72D25C51AFFEE926F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +353,8 @@ VA - Club Dubstep №28 (2013) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:A3EEA2EE783557E155DECD8A00DE52AA9B1EED19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +387,8 @@ VA - Best Of Dubstep 2012 (2012) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:9C16C4F06281A92BCEE01933642DB1F986FA858E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +423,8 @@ VA - Dj Compressor - Best 2012 Part 3 (2013) [MP3|320 кб/с]<House, Trance, Te
 magnet:?xt=urn:btih:4B1288092D0350132BBF342187C2CB6684DC54DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +457,8 @@ VA - D.J H i t s  777 ( 1990 - 2000 г ) (2010) [MP3|256 кб/с]<Eurodance, Pop
 ```bash
 magnet:?xt=urn:btih:FE81BED04998450209592774B241ED03978F6AEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +493,8 @@ CD1
 magnet:?xt=urn:btih:A3F0D86335DBB8576C94F9F5F444AFA0AFA7F1EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +521,8 @@ VA - ЕвроХит Топ 40 Europa Plus 07.02.2020 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:580F420E568552164A2BB7D5A18CD2492F32DE5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +551,8 @@ VA - The Official UK Top 40 Singles Chart 07.02.2020 [MP3|320 Kbps] <Pop, Dance,
 magnet:?xt=urn:btih:AE4300B3B6F912C93063BADCA227255AAC5A7EF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +579,8 @@ DJ Ikonnikov - The 80s Non-Stop Mix (Instrumen) vol. 1-2 (2015 - 2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:736FD419E811464887107C7DE23D5EB8AA418A2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +609,8 @@ VA - Ностальгия NNM-Remix (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:CF926B68EB52B90EE462C71CC9F4612E6BC75360
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +637,8 @@ VA - Панк-рок Волна (2016) [MP3|320 кб/с] <Панк-рок>
 ```bash
 magnet:?xt=urn:btih:7B060EDFE777B96D6D81F5126598CE754494E7F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +673,8 @@ CD1 - Скромное обаяние ’’Йе-Йе’’. Наивное ис
 magnet:?xt=urn:btih:1FDECE2FC6AB9E00A1245BCD90079856226E89C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +701,8 @@ VA - Dance Radio Edit: Celebrate Life (2016) [MP3|256-320 кб/с] <Dance, Club,
 ```bash
 magnet:?xt=urn:btih:98F300DDB8B26CBF0C1C2DC8CF0358B66F20B2F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +731,8 @@ VA - Trance Desire Volume 59 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
 magnet:?xt=urn:btih:12B7A1498190AAC94248145C478F24AFB5299B27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -684,6 +759,8 @@ VA - I Love Italo Disco ot Vitaly 72 - 6 (2015) [MP3|201 - 320 кб/с] <Italo-D
 ```bash
 magnet:?xt=urn:btih:CB8F1DE2D1B76FFE262AEEABA816383D4E4D372D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -712,32 +789,7 @@ VA - The Fitness Club House and Deep House Beats for Running (2016) [MP3|320 к�
 magnet:?xt=urn:btih:5B6FE014FED39D3086F00FB1672CF63995D17ABF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976432   (969830) от 17.01.2016
-
-VA - I Love Italo Disco ot Vitaly 72 - 5 (2015) [MP3|208 - 320 кб/с] <Italo-Disco, Synth-pop, Disco, Spacesynth>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D. White - One Wish (Extended Mix) (05:20)
-02. Liebe - I Believe In You (04:14)
-03. Italover - Forever Alone (04:09)
-04. Ken Laszlo - Tin Box (06:01)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, Disco, SpacesynthПродолжительность: 04:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6738A91D9649A3F99CA649AED76ED6231261D4D7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

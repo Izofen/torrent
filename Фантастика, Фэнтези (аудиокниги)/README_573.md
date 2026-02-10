@@ -1,3 +1,29 @@
+###  Публикация: 1848646   (1053080) от 18.01.2026
+
+Дмитрий Лим | Система: Империя нового мира (2026) [MP3, Иван Караваев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир устал от людей и пролившись красным дождем уничтожил треть населения. У выживших остался лишь один выбор - сдохнуть или бороться за жизнь убивая. Андрею повезло - на его стороне Система и страстная демонесса. Он получил статус Одаренный, а они - вершина эволюции и новые хозяева мира. Но не все хотят жить спокойно. И как теперь выжить в мире полном крови, предательства (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: ЛитРес: чтецПродолжительность: 07:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33161BE9BA1058E2EFE914CC0D77DE11AFE72035
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848712   (1053102) от 18.01.2026
 
 Александра Шервинская | Клиника «Вскрытие покажет», или Живым вход воспрещён (Части 1-2) (2024) [MP3, Дмитрий Филимонов]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:47F6D0421C14B80A0F113BD89A4CEB058D324862
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:47F6D0421C14B80A0F113BD89A4CEB058D324862
 magnet:?xt=urn:btih:CCB3384284C61CBB92A72BADB995EA64E73635EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:CCB3384284C61CBB92A72BADB995EA64E73635EA
 ```bash
 magnet:?xt=urn:btih:BD9E02B685ED9E1FBE6B863BC9DD929B0C5BC494
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:BD9E02B685ED9E1FBE6B863BC9DD929B0C5BC494
 magnet:?xt=urn:btih:94D44262B4047DAE57ED652CBF6610F41F3DE4AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:94D44262B4047DAE57ED652CBF6610F41F3DE4AD
 ```bash
 magnet:?xt=urn:btih:8B920C5AD74E791B44813DB3BB85D4AD490DC4D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:8B920C5AD74E791B44813DB3BB85D4AD490DC4D2
 magnet:?xt=urn:btih:8479DC8B8170840CBE0C7297D8F5036C5C3B3930
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:8479DC8B8170840CBE0C7297D8F5036C5C3B3930
 ```bash
 magnet:?xt=urn:btih:93FED8D7A01277EA3587973C7110FBD4EDB03C90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:93FED8D7A01277EA3587973C7110FBD4EDB03C90
 magnet:?xt=urn:btih:6A0DC411BB8F1586FB24F48BC6D605142FB99DF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:6A0DC411BB8F1586FB24F48BC6D605142FB99DF8
 ```bash
 magnet:?xt=urn:btih:09A3BBB481A5F4D0771AD6216E82504A49400725
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:09A3BBB481A5F4D0771AD6216E82504A49400725
 magnet:?xt=urn:btih:34F2B350DD7DB5959EB3FB206DBBA09912823AFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:34F2B350DD7DB5959EB3FB206DBBA09912823AFA
 ```bash
 magnet:?xt=urn:btih:46DA9EC01F5367C266E01EE045825E5E226D26A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:46DA9EC01F5367C266E01EE045825E5E226D26A5
 magnet:?xt=urn:btih:2217D16D8608E4DD3705BF4004D8164A731C1092
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:2217D16D8608E4DD3705BF4004D8164A731C1092
 ```bash
 magnet:?xt=urn:btih:863E6FD10A4266DF3C3350A840D6280147F0AD81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:863E6FD10A4266DF3C3350A840D6280147F0AD81
 magnet:?xt=urn:btih:ACEC20EC5242525955C1A13190F70D033A9D3E59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:ACEC20EC5242525955C1A13190F70D033A9D3E59
 ```bash
 magnet:?xt=urn:btih:A24B4E4800D0DD29C972258289432ECFEEF18EF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:A24B4E4800D0DD29C972258289432ECFEEF18EF9
 magnet:?xt=urn:btih:A09CC2DD60D9A0BA35FFD800DBB0B0C64616AA24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ Goblins | О бедном монахе замолвите слово (2026) [MP3
 ```bash
 magnet:?xt=urn:btih:9F4768D12B8B1858286BFCC55D439A15C7D5FA99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:9F4768D12B8B1858286BFCC55D439A15C7D5FA99
 magnet:?xt=urn:btih:84635F342C008E46C327CE885215D19B7F8FFC79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:84635F342C008E46C327CE885215D19B7F8FFC79
 ```bash
 magnet:?xt=urn:btih:779A9140FC8FFD6B084EED6E901518C8BDAA06D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:779A9140FC8FFD6B084EED6E901518C8BDAA06D0
 magnet:?xt=urn:btih:9DE25E8D8A0D7C780089FC25093B1E1FF7FC7313
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:9DE25E8D8A0D7C780089FC25093B1E1FF7FC7313
 magnet:?xt=urn:btih:E023D4D9FB0670A5083134E006B507214982FFE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:E023D4D9FB0670A5083134E006B507214982FFE5
 ```bash
 magnet:?xt=urn:btih:A58877A625CFAE9B0E746DCB9EA51EBF966D01AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:A58877A625CFAE9B0E746DCB9EA51EBF966D01AA
 magnet:?xt=urn:btih:9EB3EC556E1FB5A69913D8DFD490D1117E42476D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:9EB3EC556E1FB5A69913D8DFD490D1117E42476D
 ```bash
 magnet:?xt=urn:btih:7476A74E329127F118DF7EA4571A007E5263FAE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,32 +677,7 @@ magnet:?xt=urn:btih:7476A74E329127F118DF7EA4571A007E5263FAE4
 magnet:?xt=urn:btih:59109D439BC4181D9B41F9D06CA3F9738AA8B918
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849812   (1053569) от 24.01.2026
-
-Владимир Поселягин | Красноармеец (Книга 3). Фронтовик (2024) [MP3, Алексей Воскобойников]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третья книга в серии «Красноармеец»!
-
-Наступаем! Скоро Берлин возьмём, а что дальше? А дальше мирная жизнь. Вот только у Германа не всё так просто…
-(   Читать дальше...   )Жанр: Историческая фантастика, попаданцыИздательство: Аудиокнига (АСТ)Продолжительность: 12:14:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCDE65BD98F4A916000B2B5AFFA0CD4A911D42F5
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

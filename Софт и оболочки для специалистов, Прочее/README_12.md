@@ -20,6 +20,8 @@ RubyMine — умная и удобная интегрированная сре�
 magnet:?xt=urn:btih:EB2504EAF4A74CC9DD6F1ECE060D36EFD4E1A49E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ JetBrains PyCharm Professional – это мощная и многофункци
 ```bash
 magnet:?xt=urn:btih:711A2B4A1EB5486FEB01BD5EDA7403D339A2A832
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ PhpStorm – это интегрированная среда разработк
 ```bash
 magnet:?xt=urn:btih:6017B2C9AD8C93F56777BD7BA9281C43E3C9E79C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ IDE GoLand предлагает широкий спектр инструмент
 magnet:?xt=urn:btih:56FC4381A564A4DFA318C29F93394FAA04A78DBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ JetBrains IntelliJ IDEA Ultimate - это профессиональный ин�
 ```bash
 magnet:?xt=urn:btih:85C6F0817DA1DC587EDC64628462CDFF286B7287
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ WYSIWYG Web Builder – инструмент создания сайтов дл�
 magnet:?xt=urn:btih:DC7C7BC5F1AB8A87634DE0F45B7AEACA2A001058
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Rider — это кросс-платформенная интегрирован�
 ```bash
 magnet:?xt=urn:btih:E471497C4631C0D3229CE472F2CE869FF145DB5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ WiseImage — мощный интеллектуальный редактор и 
 magnet:?xt=urn:btih:3D32DA658165E4A249D85D333D42857010DE1471
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Intel Parallel Studio XE 2017 - набор инструментов, упрощ�
 magnet:?xt=urn:btih:C90596DE3CC08A78AAD765E777D6B34BFCA31E4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Gstarsoft GstarCAD 2016 Build 151116 (x64) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:69443F40538C8E1C472862F030BED2A35F34031B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Developer Express VCL — это программный пакет, в сост�
 magnet:?xt=urn:btih:5929F398F244E6D99E529E86B0CDE63B300659D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ IBM Rational Software Architect — это комплексное решение
 ```bash
 magnet:?xt=urn:btih:76E272E0C7D10B6D7DBEC606638887493D8D0007
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ MInstAll by StartSoft Lite 09-2020 [Ru/En]
 magnet:?xt=urn:btih:2DE334633EDEF74DE73436368BA3704A7A59010E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Geomagic Control X – это профессиональное программ�
 ```bash
 magnet:?xt=urn:btih:F3563C85E9BAA8233D6494231F3190353D030FF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Keysight EMPro 2023 Update 0.1 [En]
 magnet:?xt=urn:btih:BB15E8726C624C6AB58F818F8AE079E7A28235E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Configuration Manager помогает обеспечить использова
 ```bash
 magnet:?xt=urn:btih:7EB6A6F4ACC88E4EDAC04514A57909BADF4E8FC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ GameMaker - комплексное средство для разработки 
 magnet:?xt=urn:btih:ECC73975363BD296CC1093FF12ABE6AF2D4D94A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ PeStudio - компактная (портативная) утилита позв
 magnet:?xt=urn:btih:90485BFA87CFAB4CAC01A3D976D35E2E0A154A32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Turbo Studio - мощная программа для виртуализации
 ```bash
 magnet:?xt=urn:btih:CD025185669322D3F16AFC3EFBABB3D350FCC174
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Resource Tuner - это программа для просмотра, редак
 magnet:?xt=urn:btih:5615C6425433DBD3B2694E6E762C9A958045A636
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Altair SimLab — это ориентированная на процессы с
 ```bash
 magnet:?xt=urn:btih:F4838632D0EB6091CE84F46919C0392F82BDF7D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ Rapid PHP – полноценный и быстрый редактор PHP, в�
 magnet:?xt=urn:btih:4E8ABF9E3B41468819F23C58E77BBABE4EDA85B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ UltraCompare - это текстовый редактор, оптимизиро�
 ```bash
 magnet:?xt=urn:btih:2CAFDE07DFB5B2EA83BB76EEA476F4D274E6C62A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ Code Composer Studio 12.2.0.00009 [En]
 magnet:?xt=urn:btih:19D27C9E2455EBFEF0AD92CE392FB9B4737F9A74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Lahey/Fujitsu Fortran 7.9 [En]
 magnet:?xt=urn:btih:62B3581687212DFF767242FB9512BB532ECC4302
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ AMP Font Viewer 3.86 + Portable [Multi]
 ```bash
 magnet:?xt=urn:btih:B36C61D18243D9C4B22FD88A0475E68A439641A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

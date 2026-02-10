@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:E93D969A5639509408EBA45C0F916C210E15D18A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Real Steel Boxing Champions – продолжение игры всеми из�
 ```bash
 magnet:?xt=urn:btih:C68AA0975B797E0703386E94B5D7DB10ADBEF2C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ VA - Nye Recovery Session 2021 (2021) [AAC|~303 Kbps] <Lounge, Chill Out, Downte
 magnet:?xt=urn:btih:E62D5379FF1EC635CB84CC5F9AA478494D046528
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Broken Sword: Shadow of the Templars (2010) [Multi] (1.0.744/1.6.0) License GOG 
 ```bash
 magnet:?xt=urn:btih:F1228321F0CCCACC8AE53E9F48A029A723E3B5F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ VA - Best Of Trance Vol.09 (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:37835717940CC55639F2CB6390498B38FA364FB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:37835717940CC55639F2CB6390498B38FA364FB1
 ```bash
 magnet:?xt=urn:btih:5B5FE9FAAA11A13CC9C17A14B7237A615C4147D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Xentry OpenShell 12.2020 28.9.2.3 [Multi/Ru]
 magnet:?xt=urn:btih:52440708E88244C64F7A4A1325E9998561619051
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ Mastercastle - Last Desire (2010) [FLAC|Lossless|image + .cue] <Power Metal>
 magnet:?xt=urn:btih:309C34D90CD952E85F7BC9DC5358F069F8688DE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:309C34D90CD952E85F7BC9DC5358F069F8688DE0
 ```bash
 magnet:?xt=urn:btih:40CC5D09A6A88820BCD4630F0C96612F53FD35BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:40CC5D09A6A88820BCD4630F0C96612F53FD35BD
 ```bash
 magnet:?xt=urn:btih:154A79AD1F143691063AB1F3FFCE55EA038732FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ VA - Nye Bash Downtempo 2021 (2021) [AAC|~300 Kbps] <Lounge, Chill Out, Downtemp
 magnet:?xt=urn:btih:4D95C6CEC6367EE3AA0AFF96004FA42CD47F2F69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:4D95C6CEC6367EE3AA0AFF96004FA42CD47F2F69
 ```bash
 magnet:?xt=urn:btih:173E01FBCE9097277EC6CB8AE123095F20A32CE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ Phlebotomized - Deformation Of Humanity (2019) [FLAC|Lossless|Web-DL|tracks] <Pr
 magnet:?xt=urn:btih:FFBC210E22914ED3EA3D0E0D76B8A6AD28F113FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +379,8 @@ VA - Sunset Aperitive Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lo
 magnet:?xt=urn:btih:94B1CC9D06FFA217816AD408D1BB7B9FF8EF5D28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:94B1CC9D06FFA217816AD408D1BB7B9FF8EF5D28
 ```bash
 magnet:?xt=urn:btih:F06AB5117E0FCD2EAD64044EC0CD52B13C4838D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ magnet:?xt=urn:btih:F06AB5117E0FCD2EAD64044EC0CD52B13C4838D8
 magnet:?xt=urn:btih:D0C5A1AC505E6AFC577F9E004DBFEEC3A261E429
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:D0C5A1AC505E6AFC577F9E004DBFEEC3A261E429
 ```bash
 magnet:?xt=urn:btih:32A58D737D8A98F1AEAB42274003BF3769FDBDC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:32A58D737D8A98F1AEAB42274003BF3769FDBDC0
 magnet:?xt=urn:btih:88299E2AA924FA81493FE07A1183255D2C38D05C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ magnet:?xt=urn:btih:88299E2AA924FA81493FE07A1183255D2C38D05C
 ```bash
 magnet:?xt=urn:btih:9CDA418029DD838C25784A2DF5B4230E3A08082A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ Artie Shaw - 1939-1940 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big
 magnet:?xt=urn:btih:498FBE14363367840176C39FCFEA5AB4F5D7CA35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ magnet:?xt=urn:btih:498FBE14363367840176C39FCFEA5AB4F5D7CA35
 ```bash
 magnet:?xt=urn:btih:4B27ED6A16C86673A17368887FAFDF55A1E207D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ VA - Suprematic 2021 (2021) [AAC|~334 Kbps] <Deep House, Downtempo>
 magnet:?xt=urn:btih:3DBD0EA6A749DB787E0DA8938418F339C02E6E4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ Herjan - Nightfall of Humanity (2017) [MP3|320 Kbps] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:B88E8A31E27A9DAD505C836466EC5E4C8592C42A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ VA - King Of Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:40324A4A55596724E5EE677B9CD593E021F9A042
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +683,8 @@ VA - Top Hits 1996, 4 CDs (1996)  [FLAC|Lossless|image + .cue]<Eurodance, Euro H
 magnet:?xt=urn:btih:C7552643A289431BC46340CB92058DE5886089DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ magnet:?xt=urn:btih:C7552643A289431BC46340CB92058DE5886089DE
 ```bash
 magnet:?xt=urn:btih:7EBFDDD749043E1F6C4A90F6584F0A4082E629D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ SMD pro, Андрей Нифедов | Пишем трек с нуля. Виде
 magnet:?xt=urn:btih:7A0DD47BB239196BB6C2F7C21B03F9107CB2C625
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Udemy, Marat Zhman | React Animation Project SCSS (2023) WEB-DL [RU]
 magnet:?xt=urn:btih:EDB06A83FD91DE9A501BFFB64E5B941DE82AA533
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Udemy, Manik (Cloudaffle) | TypeScript Design Patterns And SOLID Principles (202
 ```bash
 magnet:?xt=urn:btih:C6AFCBD87BB60030A893C608032C677D4A3AA15E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Udemy, Neil Cummings | Build a Microservices app with .Net and NextJS from scrat
 magnet:?xt=urn:btih:50B1F8945FA794AC8B3F5F92FE9AB530E6634D1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:50B1F8945FA794AC8B3F5F92FE9AB530E6634D1D
 ```bash
 magnet:?xt=urn:btih:9FF1FD8B83B2FA5C62727DA364F79618715797B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Balun.Courses, Владимир Балун | System Design - 3-х недельн
 magnet:?xt=urn:btih:C20C52537F3A85AA5149BA88B39D255A11BC17FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Udemy, Jeremy Hazel | Affinity Designer - Design artistic text and Create Fonts 
 ```bash
 magnet:?xt=urn:btih:54E752CD5FF5A7CA5460DA2F12EF94312451BAB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:54E752CD5FF5A7CA5460DA2F12EF94312451BAB7
 magnet:?xt=urn:btih:1FD442AFA601BD781D185B0EF55A8FEF159BA3C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ Affinity Designer — это новое доступное программно�
 magnet:?xt=urn:btih:A16A8FCA43E808D33E581D41C799F443744E9562
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ Kaplan School, Диана Горбач | Танцующая кисть (2023) WE
 ```bash
 magnet:?xt=urn:btih:FDE39699BE61FDC584FC0E340296BEBD5A2495C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ Udemy, Valentina Grobler | Free To Speak Foundation (2023) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:395A2255C723A4237E4868E5CF246DE80285C36B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:395A2255C723A4237E4868E5CF246DE80285C36B
 magnet:?xt=urn:btih:7FA0D004C23CF90D55E4193DC64BEFF68BD64BC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ Bulavina School, Дарья Булавина | Стрим по композиц�
 magnet:?xt=urn:btih:41EA1F6288C94301C98560D9594991C37E64BE45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ Brick Visual, Andras Káldos, István Lovák, Péter Pazsiczky | Post-production
 ```bash
 magnet:?xt=urn:btih:9EEBCCC47B17D294BA847A80C1F923A7A7CAE32E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ Udemy, Louay Zambarakji | The Complete Adobe After Effects Bootcamp: Basic to Ad
 magnet:?xt=urn:btih:0B19E4BDC770F4359AE1775C774B079E69480EEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ Dbystritskaya, Дарья Быстрицкая | Съёмка для бренд�
 magnet:?xt=urn:btih:308AB5EE208E5B18E02057CA2D4911C9A3B2BCCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ Udemy, Joseph Heidari | Understanding Node.js: Core Concepts (2023) WEB-DL [EN /
 magnet:?xt=urn:btih:1E9D9D15030350027D44DC1E85FBFF4B7A66E901
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ Domestika, Jessica Roux | Natural Illustration with Digital Painting (2023) WEB-
 ```bash
 magnet:?xt=urn:btih:4D163D2E2388D6E301ADD38AA8F0B801177C97D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:4D163D2E2388D6E301ADD38AA8F0B801177C97D4
 magnet:?xt=urn:btih:E32C2D3ABD227BB04BE86F42109E9826CF06CF73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +543,8 @@ Udemy, Ankit Shrivastava | Moonvalley AI Text-to-Video: Full Masterclass, Make A
 magnet:?xt=urn:btih:90AA81ADC6A91EC90FDC1B438FB4150D209045EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ Lectoroom, Мария Павлова | Разноцветные пионы в к
 ```bash
 magnet:?xt=urn:btih:15B5B6D2EBAC56435039F0B900AC2B46FF4394C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ magnet:?xt=urn:btih:15B5B6D2EBAC56435039F0B900AC2B46FF4394C7
 magnet:?xt=urn:btih:586DEAD5B7362BEC2CAF41D4A2EF984BC937CDD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ Granich.Design, Вадим Гранич | Графсистема Нео-Гео (
 ```bash
 magnet:?xt=urn:btih:7F47F408C42F377AE0761E9933469997F8D69AFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ Granich.Design, Саша Буяк, Вадим Гранич | Графсисте�
 magnet:?xt=urn:btih:28AF36B1446384708D4783AA89F2800AE65A6722
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ magnet:?xt=urn:btih:28AF36B1446384708D4783AA89F2800AE65A6722
 ```bash
 magnet:?xt=urn:btih:F0AF87D507F68A77413EF0BBA993D111892ACB4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +706,8 @@ magnet:?xt=urn:btih:F0AF87D507F68A77413EF0BBA993D111892ACB4B
 ```bash
 magnet:?xt=urn:btih:932FBE7CEE6D5D58906CFE81FB19FCA7353A3683
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

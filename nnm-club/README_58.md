@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:6349B38BCDE59B4E9F0ED52AAFA3B5391A34BF51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MInstAll v.21.09.2025 By Andreyonohov (ISO) [Ru]
 ```bash
 magnet:?xt=urn:btih:B44486AA85094F153F5A840026F0D84CD77F2E1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Gachiakuta | Гачиакута [2025, TV, 11 из 24 эп.] WEBRip 720p raw
 magnet:?xt=urn:btih:CADA3106E99478DC0E2DAAD01D0A7800C92EAEFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Witch Watch | Ведьмнадзор [2025, TV, 24 из 25 эп.] WEBRip 720 raw
 ```bash
 magnet:?xt=urn:btih:2BF65E2558BB0BE563E4436821369A351794DCF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:2BF65E2558BB0BE563E4436821369A351794DCF3
 magnet:?xt=urn:btih:72C315113CFF13133C3BABBDF9216D4E0C8D0797
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:72C315113CFF13133C3BABBDF9216D4E0C8D0797
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:72C315113CFF13133C3BABBDF9216D4E0C8D0797
 magnet:?xt=urn:btih:3DC487A93FFE81EA5901E64B6C5E32C0FCAAFE86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:3DC487A93FFE81EA5901E64B6C5E32C0FCAAFE86
 ```bash
 magnet:?xt=urn:btih:1CD7FCCF1F839448F324B1BD806CFBD6165CC36C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:1CD7FCCF1F839448F324B1BD806CFBD6165CC36C
 magnet:?xt=urn:btih:727DFFE841643C2CE9179BD92196BCC1BB6D2D8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:727DFFE841643C2CE9179BD92196BCC1BB6D2D8C
 ```bash
 magnet:?xt=urn:btih:C82853C055BECB7AB7402677D4F03D2695B5D000
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Doug MacLeod - Between Somewhere and Goodbye (2025) [FLAC 24/192|Lossless|WEB-DL
 magnet:?xt=urn:btih:EBED2F5BC2B20A21731ED997AAA0CB9648F20766
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:EBED2F5BC2B20A21731ED997AAA0CB9648F20766
 ```bash
 magnet:?xt=urn:btih:726AA563879CEAA2F3817FCC336B9DF52827B87D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ Alice Armstrong - Fury & Euphoria (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 magnet:?xt=urn:btih:4A2E8E1B516634CA44FE1FEACC8C678C1DE1B7E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:4A2E8E1B516634CA44FE1FEACC8C678C1DE1B7E5
 ```bash
 magnet:?xt=urn:btih:7BAC6EDBED20C7BD92986228337DBE9046DA990A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ Ded - Resent (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Metal, Alternative
 magnet:?xt=urn:btih:DF3BE48A54081072B9ADD595CBFC2579A348C3D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ Rusty Ends & Hillbilly Hoodoo - Roadhouses, Juke Joints and Honky-Tonks (2025) [
 ```bash
 magnet:?xt=urn:btih:150AEE226318D0C322A9339F918B82B53572B8CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ Juri Amicabile - Geared Up (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:F13344A59DD68E6E5CA65461C0603E21B82557EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ magnet:?xt=urn:btih:F13344A59DD68E6E5CA65461C0603E21B82557EF
 ```bash
 magnet:?xt=urn:btih:C5420C154EF21E9BE45F39D597146BBD08C39343
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +518,8 @@ magnet:?xt=urn:btih:C5420C154EF21E9BE45F39D597146BBD08C39343
 magnet:?xt=urn:btih:5E42E6439B0047A8B341C20C81AE9FDDCD081671
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ Alan Arena - Deceived (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:AA261768ACFD821354D57F728B0266903DF23050
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +576,8 @@ magnet:?xt=urn:btih:AA261768ACFD821354D57F728B0266903DF23050
 magnet:?xt=urn:btih:8139C8D9F76CD0CBE438C800815F6A08E0225B66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +602,8 @@ Kotonoha no Niwa | Сад слов | The Garden of Words | Сад изящных
 magnet:?xt=urn:btih:759AA18AF77A6F24901A1AABC1EA42D72A096705
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ magnet:?xt=urn:btih:759AA18AF77A6F24901A1AABC1EA42D72A096705
 ```bash
 magnet:?xt=urn:btih:7F3A1E06BF8411BDA16E1E50CA35B712A05B1BB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +657,8 @@ Damiano David - FUNNY little FEARS (DREAMS) (2025) [MP3|320 Kbps] <Pop, Pop Rock
 magnet:?xt=urn:btih:202D78541E07D69C3427EEF34B2B07B5723F9176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +684,8 @@ Travela — это комплексный набор пользовательс�
 ```bash
 magnet:?xt=urn:btih:185E5A28B11270F3CCEF96CF370CDCF1D479CB79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -663,6 +713,8 @@ Bad Wolves - Die About It (Deluxe) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:CEE794F9986715206620F4275A2614EF85B20CA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

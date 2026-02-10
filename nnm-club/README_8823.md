@@ -22,6 +22,8 @@ Carmell Jones - Jay Hawk Talk 1965 (2014) Universal [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:C5BC75026AC0099F920340623C8A3DFDEF53CFEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:C5BC75026AC0099F920340623C8A3DFDEF53CFEE
 ```bash
 magnet:?xt=urn:btih:832499D55367DDF4C2497134786C93550C3EC8EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:832499D55367DDF4C2497134786C93550C3EC8EC
 magnet:?xt=urn:btih:6D23178B3A130A87A8726A739536378E01FA3B32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ SketchUP Pro - является профессиональной версией 
 ```bash
 magnet:?xt=urn:btih:AADAE68992C8708352E1D993A7C5C7D7F3268805
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Windows 7 22in1 (x86/x64) by Eagle123 11.2018 [Ru/En]
 magnet:?xt=urn:btih:DCDA9F265D9DE91324E9E6AD3247017D02DD6B5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:DCDA9F265D9DE91324E9E6AD3247017D02DD6B5C
 ```bash
 magnet:?xt=urn:btih:2189A2E0CF79A862315A0F9078A28E25FE9707F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ AutoCAD является мировым лидером среди решений
 magnet:?xt=urn:btih:B348289342783C7F6B91DDB008C11DCE4008A69A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:B348289342783C7F6B91DDB008C11DCE4008A69A
 ```bash
 magnet:?xt=urn:btih:4EC68A88BA9A7CD54016BB9C2969FD43CAEEF1DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Mike Mareen - Greatest Hits & Remixes (2017) 2CD [FLAC|Lossless|image + .cue] <I
 magnet:?xt=urn:btih:0A051BD4E13CADD8480198A991E91FD887D4A737
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Max Payne 2: Sprut (2007) [Ru]  (1.0) Mod
 ```bash
 magnet:?xt=urn:btih:02BF5849BDDE83EEEB9E3063AE06093086450D87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Neverhood (1996) [Ru] (1.0/dlc) Unofficial
 magnet:?xt=urn:btih:E6FDA8D0B1E94D1CF4AD8D8A26900FEADCF06910
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:E6FDA8D0B1E94D1CF4AD8D8A26900FEADCF06910
 ```bash
 magnet:?xt=urn:btih:C5E7555BFBF106A204326F339FD0DBF35A828A3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:C5E7555BFBF106A204326F339FD0DBF35A828A3F
 magnet:?xt=urn:btih:E7B93803A1F1CA68DFA0255A99B7581A8DC972F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ Principle — приложение для Mac OS, которое позволя�
 magnet:?xt=urn:btih:F54692CBE81D6346743C1F9F1AAEE672472ABC57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ javascript.ru | Курс по React.JS (2018) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:8EA994EC5463E71CB04276F69FA9558E7AB01AB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ BELOFF 2018.12 Unpacked [Ru]
 magnet:?xt=urn:btih:EA1D6A6E5918B112F4A257F51CDA6B37344922CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:EA1D6A6E5918B112F4A257F51CDA6B37344922CA
 ```bash
 magnet:?xt=urn:btih:3C0772F81573A28D85D16EE0B448BC9F14DBF508
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:3C0772F81573A28D85D16EE0B448BC9F14DBF508
 magnet:?xt=urn:btih:E8B8ECF8BCAACF5E0AF916988EE7857C8F90AA03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:E8B8ECF8BCAACF5E0AF916988EE7857C8F90AA03
 ```bash
 magnet:?xt=urn:btih:045EC19C363D4EA3D925BF17A160D33CAE92BD64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ javascript.ru | Продвинутый курс по Angular (2018) PCRec [H.264
 magnet:?xt=urn:btih:4B6F3957733B6176578F23673833E9A4B205EB47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ Udemy | Symfony с нуля на реальном проекте (2018) PCRec [H
 ```bash
 magnet:?xt=urn:btih:A9FC001F4B1A89CCEB60C19FCFB45BB13817E4FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:A9FC001F4B1A89CCEB60C19FCFB45BB13817E4FD
 magnet:?xt=urn:btih:3AB06D2DFBC1A7A6E70342029E05FC4D996856A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:3AB06D2DFBC1A7A6E70342029E05FC4D996856A5
 ```bash
 magnet:?xt=urn:btih:2B1B69C59FEA8622156178860AF5D4027C086D7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:2B1B69C59FEA8622156178860AF5D4027C086D7A
 magnet:?xt=urn:btih:CB466005267BCB42DAD24F20370F35560B16A113
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ FIFA 2012 - выводит жанр спортивных симуляторов 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +683,8 @@ FIFA 2012 - выводит жанр спортивных симуляторов 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

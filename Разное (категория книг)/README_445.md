@@ -1,3 +1,30 @@
+###  Публикация: 904964   (652875) от 04.06.2015
+
+Сьюзан Вайншенк | Законы влияния. Как побудить людей делать то, что вам нужно (2014) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пытаетесь ли вы заключить выгодную сделку или приучить членов семьи к порядку, вы неизбежно сталкиваетесь с проблемой мотивации других людей.
+Сьюзан Вайншенк предлагает не надеяться на удачу, а применять научный подход к прогнозированию поведения. Из книги вы узнаете о ключевых драйверах мотивации и о практических стратегиях для каждого из них. Вы научитесь использовать (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA147D80910AF1E0B8A588BAF4165DC80E7A829D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904878   (652988) от 04.06.2015
 
 Вадим Тушин | Во все тяжкие. История главного антигероя (2015) [FB2]
@@ -20,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:9CBEB81BDE0A15042E4AEFB5D89E5101387E7C01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@ magnet:?xt=urn:btih:9CBEB81BDE0A15042E4AEFB5D89E5101387E7C01
 magnet:?xt=urn:btih:9F8509CCDE03C6F69F1F1EF6AD2121270F868261
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:9F8509CCDE03C6F69F1F1EF6AD2121270F868261
 ```bash
 magnet:?xt=urn:btih:1886375BEED0960CF5D64CFDC6ED8886DAE3D2BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +126,8 @@ magnet:?xt=urn:btih:1886375BEED0960CF5D64CFDC6ED8886DAE3D2BD
 magnet:?xt=urn:btih:68AEF730612FEA8F10348B9B01FAD864274688EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +151,8 @@ magnet:?xt=urn:btih:68AEF730612FEA8F10348B9B01FAD864274688EC
 ```bash
 magnet:?xt=urn:btih:59F16F67B9C5237BEE9B22F78FF210819863D249
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +179,8 @@ magnet:?xt=urn:btih:59F16F67B9C5237BEE9B22F78FF210819863D249
 magnet:?xt=urn:btih:3F74F03BDB6A068DAAE2FA9B09734FBFE9832256
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +206,8 @@ magnet:?xt=urn:btih:3F74F03BDB6A068DAAE2FA9B09734FBFE9832256
 magnet:?xt=urn:btih:0A1FA65C9FE6EF54D9D2EE79041707E3AF00997C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +231,8 @@ magnet:?xt=urn:btih:0A1FA65C9FE6EF54D9D2EE79041707E3AF00997C
 ```bash
 magnet:?xt=urn:btih:2DFDB813E614A274216439F29637E5F4DE82F7C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +260,8 @@ magnet:?xt=urn:btih:2DFDB813E614A274216439F29637E5F4DE82F7C2
 magnet:?xt=urn:btih:C3B3B3A680F17916AA566E06372419581CB39A56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +288,8 @@ magnet:?xt=urn:btih:C3B3B3A680F17916AA566E06372419581CB39A56
 magnet:?xt=urn:btih:13DC60F99F324C94D953139E144DC6438050C7FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +313,8 @@ magnet:?xt=urn:btih:13DC60F99F324C94D953139E144DC6438050C7FB
 ```bash
 magnet:?xt=urn:btih:927E68F3F9E1BAACB8890370B864E23D984A8DC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +340,8 @@ magnet:?xt=urn:btih:927E68F3F9E1BAACB8890370B864E23D984A8DC5
 magnet:?xt=urn:btih:D1D92B60E42336DED3CB318978DC7367F836A73D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +365,8 @@ magnet:?xt=urn:btih:D1D92B60E42336DED3CB318978DC7367F836A73D
 ```bash
 magnet:?xt=urn:btih:A19D550286A1B9826AC2E6162E1D26D3C32B663B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +394,8 @@ magnet:?xt=urn:btih:A19D550286A1B9826AC2E6162E1D26D3C32B663B
 magnet:?xt=urn:btih:46ED01E3F3DC701A1AEDBB1C446DCFE9C55E2497
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +419,8 @@ magnet:?xt=urn:btih:46ED01E3F3DC701A1AEDBB1C446DCFE9C55E2497
 ```bash
 magnet:?xt=urn:btih:6EF0DE7BF30CABE96083DBD3EBA62BD8F0A4C0C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +446,8 @@ magnet:?xt=urn:btih:6EF0DE7BF30CABE96083DBD3EBA62BD8F0A4C0C2
 magnet:?xt=urn:btih:62B078BE5E0A26F3EF70D80F5FE462C683F75A4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +471,8 @@ magnet:?xt=urn:btih:62B078BE5E0A26F3EF70D80F5FE462C683F75A4C
 ```bash
 magnet:?xt=urn:btih:EFA238387DFB22182FFBB33513341E999780B74E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +498,8 @@ magnet:?xt=urn:btih:EFA238387DFB22182FFBB33513341E999780B74E
 magnet:?xt=urn:btih:FB4A929C41A6A6753ADB93BFA426913021CF60B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +523,8 @@ magnet:?xt=urn:btih:FB4A929C41A6A6753ADB93BFA426913021CF60B6
 ```bash
 magnet:?xt=urn:btih:26D9BA0CDC29C85B55A8271337551B3D461EF798
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +550,8 @@ magnet:?xt=urn:btih:26D9BA0CDC29C85B55A8271337551B3D461EF798
 magnet:?xt=urn:btih:1E8F6785A74C1BFEF99BF4DFC37911A70D5A148A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +575,8 @@ magnet:?xt=urn:btih:1E8F6785A74C1BFEF99BF4DFC37911A70D5A148A
 ```bash
 magnet:?xt=urn:btih:8A64AE51EFECA824AB62420C88F58531745EFC23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +602,8 @@ magnet:?xt=urn:btih:8A64AE51EFECA824AB62420C88F58531745EFC23
 magnet:?xt=urn:btih:66B9F9B68CD983492151CD2C51605B7EF08E4FDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +627,8 @@ magnet:?xt=urn:btih:66B9F9B68CD983492151CD2C51605B7EF08E4FDA
 ```bash
 magnet:?xt=urn:btih:B973CF97A7BBA82CF27FFE6585535CE9B0605E88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +654,8 @@ magnet:?xt=urn:btih:B973CF97A7BBA82CF27FFE6585535CE9B0605E88
 magnet:?xt=urn:btih:04DC35361745A0A96CDA6ACA02CC8B0AEB8B135F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,29 +680,7 @@ magnet:?xt=urn:btih:04DC35361745A0A96CDA6ACA02CC8B0AEB8B135F
 magnet:?xt=urn:btih:BF41B634B712D6B62A7AECA4FFD1F9C39106145D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516194   (653528) от 28.06.2012
-
-Святитель Тихон Задонский | Полное собрание творений (5 томов) [2003] [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653528.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Ежели кому покажется в каком рассуждении грубое нечто, тому охотно объявляю, что здесь ищется польза, а не услаждение, спасение, а не человекоугодие. Будет ли кто просвещенный имея разум, паче чаяния начитает что достойное исправления, то скудоумию моему, а не воли моей приписать прошу. Спасайся о Христе, любезный брат."Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:904F5C1A6EA0CF2BCD4EB197E36D90A41EE5BC89
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

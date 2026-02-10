@@ -22,6 +22,8 @@ VA - Tangled Audio: Best Of 2016 (Mixed by Duncan Newell) (2016) [MP3|320 Kbps] 
 magnet:?xt=urn:btih:F6FD42A5C30DF93040E6ED073DD7394249426EA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Orion Markup - image notes and annotations 3.0 [En]
 magnet:?xt=urn:btih:E119880AAFB292A7D666E1C5EEE07E7B968BE508
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:E119880AAFB292A7D666E1C5EEE07E7B968BE508
 magnet:?xt=urn:btih:7A0DEB1E97E21B0C49FEA26D191D3C4FA33F7153
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:A1FC796ED8BEE363FEA80A8EC3B1B672A96E2871
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ VA - The Best Of Trancemission (Mixed By Feel) (2016) [MP3|320 Kbps] <Trance, Pr
 magnet:?xt=urn:btih:AFA958B25FDF84053D5962044A805F3182FB90A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Dism++ - утилита предназначена для продвинутых
 magnet:?xt=urn:btih:ACB070DB887BDD07BB171E9B2EFC57A7CD70B5B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:ACB070DB887BDD07BB171E9B2EFC57A7CD70B5B2
 ```bash
 magnet:?xt=urn:btih:4D98315D4949CDAB7FAE80988C4C69EB48E0FAD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Nik Complete 2 Collection by DxO 2.3.1 [Multi/Ru]
 magnet:?xt=urn:btih:188BE8FBCE038D75BF33840036F181A5A6728A7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ Ocenaudio — аудио-редактор, распространяемый ав
 ```bash
 magnet:?xt=urn:btih:279B323DFE10D66828D95639B943A89129388843
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 magnet:?xt=urn:btih:D17E1C413A20BE042CDDED2A4A65D3D098AE9964
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:D17E1C413A20BE042CDDED2A4A65D3D098AE9964
 ```bash
 magnet:?xt=urn:btih:D9E12F6B3A47C3FC76073CC6D27C2B091B6A4AEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ Volume2 — альтернативный регулятор громкости, 
 magnet:?xt=urn:btih:C34F1A8802DFFA1127538C025C6B3A541EFBA90C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:D34F26DDF87A060D17BD61F1543A2C78EE0C8AF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ RAM Saver Pro - инструмент для профессионального �
 magnet:?xt=urn:btih:B3C1E5DABAAA698786838C1EF30844752459756D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ Serato DJ – продукт, ориентированный как на про�
 ```bash
 magnet:?xt=urn:btih:C5E2C5DB8D5EE167D9E9D63EBCBAC4B7461659DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ Notebooks является единственным блокнотом, кото
 magnet:?xt=urn:btih:DB54B22B1438D01137D6A67A65734F3093F2D518
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ Permute: Универсальный конвертер видео, аудио и
 ```bash
 magnet:?xt=urn:btih:8B8B3A4D43CA9FA4773E79A0F4D0677C3B6020D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ VA - The Best Of Suanda True 2016 (Mixed By Mark W) (2016) [MP3|320 Kbps] <Tranc
 magnet:?xt=urn:btih:85605F71A33D2D25E06ADF5EC99AD7EC4846F7BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ AOMEI Backupper – программа для создания резервно�
 ```bash
 magnet:?xt=urn:btih:784CBF9A958C6AF1B9AF17E14F98A906C3454C10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ Audacity - свободный, простой в использовании зв
 magnet:?xt=urn:btih:DF77E49AE2375955460772FC8C13542B1911EB22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ One Switch - это крошечное приложение, разработа�
 ```bash
 magnet:?xt=urn:btih:5EC6D082329E880B28AA97BECCFC39009136E158
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:5EC6D082329E880B28AA97BECCFC39009136E158
 magnet:?xt=urn:btih:44A8E09DA00FF77DE80A3624592136B74E2F19C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ AOMEI Backupper Pro (Professional) – комплексная, простая и
 ```bash
 magnet:?xt=urn:btih:CD1454DE73FE0ED985CD650A768CC1740219595C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:CD1454DE73FE0ED985CD650A768CC1740219595C
 magnet:?xt=urn:btih:A6231E49D7DF385D51F3DB3855051404309FCCCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ Vivaldi 5.0.2497.30 Portable by Cento8 [Ru/En]
 magnet:?xt=urn:btih:275E7BBBA656CEA9BAD9EB877DF1158ADD845CB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ SnagIt предлагает неограниченные возможности 
 ```bash
 magnet:?xt=urn:btih:B4D2CFF09EB5E35CC8A1DD71FD58C1307499C107
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

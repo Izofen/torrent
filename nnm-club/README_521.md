@@ -19,6 +19,8 @@ Hearts of Iron 4 (IV) – отличный военный симулятор, в
 magnet:?xt=urn:btih:AB84625A2A9AD86A8395F2E31E090A16D53A1A78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ DARK – ролевой стелс-боевик в антураже мира, г
 ```bash
 magnet:?xt=urn:btih:60FB28A94A09EA43B08D66B174B44DAFB3C5ABA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Shadows of Doubt (2024) [Ru/Multi] (40.03.1/dlc) License GOG
 magnet:?xt=urn:btih:75D1F9FB1807ED0B2433CBAE7F23C3823FA4F6A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Masterplan Tycoon - это самый минималистичный симул�
 ```bash
 magnet:?xt=urn:btih:D8ECA74BAB4B6CD4CEF4F8B48791E4B5224E951C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Movavi Video Editor – универсальный инструмент для �
 magnet:?xt=urn:btih:128C8E4C1AA4A3B91F79E210C23C1E244F536EDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:128C8E4C1AA4A3B91F79E210C23C1E244F536EDC
 ```bash
 magnet:?xt=urn:btih:6EDF2FA91269CD3C257713703E23D6A35CC7A83D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Adobe Photoshop 2025 - новая версия программы для обр�
 magnet:?xt=urn:btih:91DCD796C8D04993C8C297ED4DD83231AE2CA213
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:91DCD796C8D04993C8C297ED4DD83231AE2CA213
 ```bash
 magnet:?xt=urn:btih:D50A1FB65B1A0DFCAF93B4836E6BF0E1A346D885
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:D50A1FB65B1A0DFCAF93B4836E6BF0E1A346D885
 magnet:?xt=urn:btih:09B192E5BC5846D6118BCFCDF0AF56E722704110
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:09B192E5BC5846D6118BCFCDF0AF56E722704110
 ```bash
 magnet:?xt=urn:btih:627E0945AE2AFADBA0059D360432539B214C07C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:627E0945AE2AFADBA0059D360432539B214C07C7
 magnet:?xt=urn:btih:BEAFFA432E125033D0E66E62F31750D2CBF7813B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:BEAFFA432E125033D0E66E62F31750D2CBF7813B
 ```bash
 magnet:?xt=urn:btih:773588BA0CC103B494BB7E88EEA84ED06BB892FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:773588BA0CC103B494BB7E88EEA84ED06BB892FE
 ```bash
 magnet:?xt=urn:btih:AB4B0BDA2EFD0A5800DD55F3BF106C40762C4C7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ VA - National Pop Dance Music Vol.111 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 magnet:?xt=urn:btih:A21C02CFF6CB435FAEF0466E1FD3BD9417E3E992
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:A21C02CFF6CB435FAEF0466E1FD3BD9417E3E992
 ```bash
 magnet:?xt=urn:btih:7ED5C61FB281AD14E47F36E48F98BF9D7AB8E48F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Voyage: Journey to the Moon (2005) [Multi] (1.04) License GOG
 magnet:?xt=urn:btih:8013ECEEB0A740CC90371D15FEC2A0C1E507342C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Shazam (шазам) распознает любую песню за секунд
 magnet:?xt=urn:btih:4942B8EFD292AF8A39E6891F878976C430515B3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:4942B8EFD292AF8A39E6891F878976C430515B3A
 ```bash
 magnet:?xt=urn:btih:6448643EC827FC2CBBF783E76773890D2EDD1EBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:2A16E46738C879598953A82503A15BCB5C1AF18A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Jigsawscapes® - Пазлы v4.1.0 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:A4FAB0171838113785F7F65CC60E592AC981F184
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:A4FAB0171838113785F7F65CC60E592AC981F184
 ```bash
 magnet:?xt=urn:btih:5359CD2363E32E1A0D3AF7A9E3B6E0955434F5EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ VA - Music News For Forum vol.102 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:B27DDB3823761B171FD65538437D1F71FBE30FCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ Gimai Seikatsu | Days with My Stepsister | Жизнь со сводной сес
 ```bash
 magnet:?xt=urn:btih:7BE91537E545B5B28B2A197E56F72C21A5E5F34B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:7BE91537E545B5B28B2A197E56F72C21A5E5F34B
 magnet:?xt=urn:btih:8DB4958AB0F42497D4A53C3B297DB518A4D73915
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:8DB4958AB0F42497D4A53C3B297DB518A4D73915
 magnet:?xt=urn:btih:76E452C69E8238667851E69EDCE060DA8A8ED07A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ PhotoDirector v20.2.1 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:AC4AAF614B7329F6B3433FA33BEB0DB83323BE98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

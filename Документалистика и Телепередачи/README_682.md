@@ -1,3 +1,29 @@
+###  Публикация: 988413   (920684) от 20.02.2016
+
+Фотолюбитель. Дневник и фотоальбом немецкого офицера (2004) DVDRip
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920684.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Фотолюбитель» - киноэкспликация дневника и фотоальбома немецкого офицера, служившего в тылу Восточного фронта. В фильме нет ни одного чужого слова - только имитированный голос героя да свидетельства его фотоаппарата. Жутковатая история обыкновенного фашиста, который был по-своему неглуп («Если эту жизнь большевики называли раем, я не хочу знать, что такое ад» - (   Читать дальше...   )Телекомпания: Россия, Студия «Гранат»Жанр: Документальный, война, историяПродолжительность: 00:26:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A4E889F4349BF7BC7F3FD96EA7280933FF9D94F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988554   (920885) от 20.02.2016
 
 Территория заблуждений с Игорем Прокопенко (2016.02.20) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:4CC492926224DF5BCE7F7A2E7854DB4D52236400
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:4CC492926224DF5BCE7F7A2E7854DB4D52236400
 magnet:?xt=urn:btih:DF9076643C7D2D7F0F42095D341F57DD750F3EC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:DF9076643C7D2D7F0F42095D341F57DD750F3EC3
 ```bash
 magnet:?xt=urn:btih:CABC253F561B5858D2B1C2C4A889BCB946F0AAA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:CABC253F561B5858D2B1C2C4A889BCB946F0AAA5
 magnet:?xt=urn:btih:80F2B208A9E9CFEA37B420F9C3E16D9E25D4ACEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:80F2B208A9E9CFEA37B420F9C3E16D9E25D4ACEA
 ```bash
 magnet:?xt=urn:btih:C5F57207813B591BC37E3E098949CA47544B1D52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:C5F57207813B591BC37E3E098949CA47544B1D52
 magnet:?xt=urn:btih:88E09066F393A929DF61C2E7387B09FEEBB35DB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:88E09066F393A929DF61C2E7387B09FEEBB35DB0
 ```bash
 magnet:?xt=urn:btih:6FFF27C9248A6152AEE78A8488D414B7DCD57E3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:6FFF27C9248A6152AEE78A8488D414B7DCD57E3C
 magnet:?xt=urn:btih:1C090A0E106C1A65D515FB17CDCCFAF8E56A94EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:1C090A0E106C1A65D515FB17CDCCFAF8E56A94EA
 ```bash
 magnet:?xt=urn:btih:2C70EBE8E1F395EE077B941FE2159405CCF8E9E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:2C70EBE8E1F395EE077B941FE2159405CCF8E9E0
 magnet:?xt=urn:btih:8E2BD5E180EA17F4CAC1D5B2101C2DBD7268085D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:8E2BD5E180EA17F4CAC1D5B2101C2DBD7268085D
 ```bash
 magnet:?xt=urn:btih:23BF44776BF4C8A88A1178238CE76CB9E57A94B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:23BF44776BF4C8A88A1178238CE76CB9E57A94B8
 magnet:?xt=urn:btih:ACD2CA904F1940FB09850E6A10A5589239D74328
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:ACD2CA904F1940FB09850E6A10A5589239D74328
 ```bash
 magnet:?xt=urn:btih:68B657F31B783BF2AC1A715B45EF0FE1368119D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:68B657F31B783BF2AC1A715B45EF0FE1368119D9
 magnet:?xt=urn:btih:CCC88FFEF3C959F3088FEA551ED8FB81577682CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +408,8 @@ magnet:?xt=urn:btih:CCC88FFEF3C959F3088FEA551ED8FB81577682CA
 ```bash
 magnet:?xt=urn:btih:6B542ED8BAABCC0727B189E2D528F984B40246FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:6B542ED8BAABCC0727B189E2D528F984B40246FE
 magnet:?xt=urn:btih:026E9C576E3D9DC141B86E04B6F25BFFCCF74889
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ magnet:?xt=urn:btih:026E9C576E3D9DC141B86E04B6F25BFFCCF74889
 ```bash
 magnet:?xt=urn:btih:C07AB74C3C78DDB244A893110554D19E1FE2492B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:C07AB74C3C78DDB244A893110554D19E1FE2492B
 magnet:?xt=urn:btih:49E2B8442085B46A336E76AD2900D2E66F99E219
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +513,8 @@ magnet:?xt=urn:btih:49E2B8442085B46A336E76AD2900D2E66F99E219
 ```bash
 magnet:?xt=urn:btih:39FC46EAA286E0A95F3295EDC17FECA24208EE65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:39FC46EAA286E0A95F3295EDC17FECA24208EE65
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +565,8 @@ magnet:?xt=urn:btih:39FC46EAA286E0A95F3295EDC17FECA24208EE65
 ```bash
 magnet:?xt=urn:btih:52995F9E40A158F7ED2CDC40C6207EFD979231A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +592,8 @@ magnet:?xt=urn:btih:52995F9E40A158F7ED2CDC40C6207EFD979231A2
 magnet:?xt=urn:btih:986D56383326C7A1DA809B5F8E0E36A4A29D1E83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +617,8 @@ magnet:?xt=urn:btih:986D56383326C7A1DA809B5F8E0E36A4A29D1E83
 ```bash
 magnet:?xt=urn:btih:87918FA12FD21C931AA5FBAA740707B88F59F800
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:87918FA12FD21C931AA5FBAA740707B88F59F800
 magnet:?xt=urn:btih:AC19E48F9AC9EE22A3A4E0F07D023F3C7CB3FFE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,32 +671,7 @@ NG. Война генералов / Generals at War (2009) HDTVRip [H.264/720p] 
 magnet:?xt=urn:btih:85FA2021D3E271D6F7BB86E4BA9FFA4244B1AD49
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988038   (922219) от 19.02.2016
-
-58-я Церемония вручения Премии "Грэмми" 2016 / The 58th Annual Grammy Awards (2016) SATRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922219.jpg" />
-</div>
-
-
-###  Подробнее
-
-58-я церемония вручения наград в области музыки Grammy Award, проходящая в Staples Center в Лос Анжелесе 201601.Taylor Swift - "Out of the Woods"
-02.Carrie Underwood, Sam Hunt - "Take Your Time" / "Heartbeat"
-03.The Weeknd - "Can't Feel My Face" / "In the Night"
-04.Ellie Goulding, Andra Day - "Rise Up" / "Love Me Like You Do"(   Читать дальше...   )Жанр: Церемония награжденияФормат: MKVПродолжительность: 02:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A7E62E124E0A7CFC20E38C8EF19A6772C9E24B3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

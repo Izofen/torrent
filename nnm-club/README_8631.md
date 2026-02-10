@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:ECFCB51BC8F3DD13CF8D78340C096D801B30DD9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:ECFCB51BC8F3DD13CF8D78340C096D801B30DD9F
 ```bash
 magnet:?xt=urn:btih:D5254C7CE9E2DC26486B34F799DA9AC8DE776B24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Haunted by Silhouettes - метал-группа из Норвегии, осно
 ```bash
 magnet:?xt=urn:btih:1C614B7F2E75D8E9D51360923AC3473313262EDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ Disc1:
 magnet:?xt=urn:btih:1A61147FD49926C66E56ECF444DCC3C54A49A731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Balrum, хардкорная ролевая игра с открытым мир�
 ```bash
 magnet:?xt=urn:btih:BC20025F4ED0E035FB5533396FE0D48A485538E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Mystery Case Files 28: House That Love Built (2025) [En] (1.0) Unofficial [Colle
 magnet:?xt=urn:btih:204928AE833FDC394B8BC744998D37B4538F3355
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Farthest Frontier (2025) [Ru/Multi] (1.0.5) Repack Necros
 ```bash
 magnet:?xt=urn:btih:192665FE4547DAD0E7ADE9B2A2AB12ACF35404D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Of Ash and Steel - ролевая игра от третьего лица с о�
 magnet:?xt=urn:btih:C8658FE6481603430FF261C2094F1D6979C8511A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Winter Survival сочетает классические игровые мех�
 ```bash
 magnet:?xt=urn:btih:9F70EED26DA82A22D1B2D8F111BB1375D32F077F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:9F70EED26DA82A22D1B2D8F111BB1375D32F077F
 magnet:?xt=urn:btih:E5589ADA4E53DA5728F84F2B90691C50089A5DE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:E5589ADA4E53DA5728F84F2B90691C50089A5DE5
 ```bash
 magnet:?xt=urn:btih:1C849AA643731881EAA00515274DD698AC69BC76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:1C849AA643731881EAA00515274DD698AC69BC76
 magnet:?xt=urn:btih:EF9D305618F0189829E4940E03F4ED42FE54688B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:EF9D305618F0189829E4940E03F4ED42FE54688B
 ```bash
 magnet:?xt=urn:btih:77B8AFE217389CDE3B1F66844F498A0CD96EB02E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:77B8AFE217389CDE3B1F66844F498A0CD96EB02E
 magnet:?xt=urn:btih:18F0E58D8A11BBDBA5BA0A05092A9AAB3C15F4D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ PDF-XChange Editor — программа для просмотра, редак�
 ```bash
 magnet:?xt=urn:btih:0604F5B49C093B16BE2CAE3B9CCF89160D3D5C83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ NetLimiter - программа, решающая проблему контро�
 magnet:?xt=urn:btih:E5156E21E7C04DBEECA6F29234F5DFA25C6552F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:530F2A1AEDE2649734B6791CC80BAC9A7006E234
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:530F2A1AEDE2649734B6791CC80BAC9A7006E234
 magnet:?xt=urn:btih:6BF47FC272195C7529F0061CFB970501656859EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:6BF47FC272195C7529F0061CFB970501656859EF
 ```bash
 magnet:?xt=urn:btih:AC39FBD7FC6E40513EDD838997656C7EEAA8251B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:AC39FBD7FC6E40513EDD838997656C7EEAA8251B
 magnet:?xt=urn:btih:1D4D6F55C06BB36DADD3653533FC81C3AD43EBDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:1D4D6F55C06BB36DADD3653533FC81C3AD43EBDE
 ```bash
 magnet:?xt=urn:btih:8E9F96A27EEF753EE856839828F0776D66F5FAD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:8E9F96A27EEF753EE856839828F0776D66F5FAD3
 magnet:?xt=urn:btih:4BA3ED146E838BA06D9063F3BAC7341F2242D053
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:4BA3ED146E838BA06D9063F3BAC7341F2242D053
 ```bash
 magnet:?xt=urn:btih:DD2905BE10943DA9205BBD729D7756C2947C764B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:DD2905BE10943DA9205BBD729D7756C2947C764B
 magnet:?xt=urn:btih:D675E006A5240F4B900DB2EC25A175761DA32B6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:D675E006A5240F4B900DB2EC25A175761DA32B6F
 magnet:?xt=urn:btih:DF6BB411FC6B985C71F86CF14DFCCDE6E044EF03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:DF6BB411FC6B985C71F86CF14DFCCDE6E044EF03
 ```bash
 magnet:?xt=urn:btih:4546DA62C2C95C9B64E20D165AF8713F507BB9FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

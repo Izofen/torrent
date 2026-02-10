@@ -1,27 +1,3 @@
-###  Публикация: 1534218   (697403) от 28.02.2022
-
-Мазурка барона, святой девы и фигового дерева / La mazurka del barone, della santa e del fico fiorone (1975) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Барон Антео Пеллакани возвращается в семейное поместье, чтобы вступить в права наследника. В саду, примыкающем к старинному особняку, растет фиговое дерево, которое, согласно легенде, обладает чудодейственными свойствами. Более того, некоторым даже удавалось увидеть Святую Деву после того, как они прикасались к дереву. Но у барона свои воспоминания: он в юном возрасте (   Читать дальше...   )Производство: Италия / Euro International Film (EIA)Жанр: Драма, КомедияРежиссер: Пупи АватиАктеры: Уго Тоньяцци, Паоло Вилладжо, Делия Боккардо, Джанни Кавина, Джулио Пиццирани, Джанфранко Барра, Люсьенн Камилль, Андреа Маттеуцци, Боб Тонелли, Пина Борионе, Лучио Далла, Патриция Де КлараПеревод: Одноголосый любительский, Н. ЗолотухинСубтитры: ОтсутствуютПродолжительность: 01:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6034B54258EAFF34E397543462893413EB07EF9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1534283   (697526) от 28.02.2022
 
 Джон Банни. Проблемные падчерицы / The Troublesome Step-Daughters (1912) TVRip [H.264]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:6034B54258EAFF34E397543462893413EB07EF9D
 ```bash
 magnet:?xt=urn:btih:14F79ADFA747509425D56717A4F3F44D643BC898
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -66,6 +44,8 @@ magnet:?xt=urn:btih:14F79ADFA747509425D56717A4F3F44D643BC898
 ```bash
 magnet:?xt=urn:btih:029D0B8A255059C5C714BADDA76A118D5A50E5C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +72,8 @@ magnet:?xt=urn:btih:029D0B8A255059C5C714BADDA76A118D5A50E5C5
 magnet:?xt=urn:btih:EABD16D07821EA3E599DF586FB5D177E9C6EC9CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:EABD16D07821EA3E599DF586FB5D177E9C6EC9CC
 ```bash
 magnet:?xt=urn:btih:A966216039599ED4C859B48FC1F61DAAD7A68715
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +124,8 @@ magnet:?xt=urn:btih:A966216039599ED4C859B48FC1F61DAAD7A68715
 magnet:?xt=urn:btih:4E6315CB2EA69F0D65115F05BC0710EA450A3041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:4E6315CB2EA69F0D65115F05BC0710EA450A3041
 ```bash
 magnet:?xt=urn:btih:06FFE700A55F4C5C2415F4B4C7C53E1D65154D7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:06FFE700A55F4C5C2415F4B4C7C53E1D65154D7B
 magnet:?xt=urn:btih:92FA406A2A03484C28C21DDDA911F6BD58873E09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:92FA406A2A03484C28C21DDDA911F6BD58873E09
 ```bash
 magnet:?xt=urn:btih:0191CE5A567DE60A3FD59245F9E9C7E93381B17F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:0191CE5A567DE60A3FD59245F9E9C7E93381B17F
 magnet:?xt=urn:btih:F9D34CE9A1C18403F4BB36521A0A5330A19FE7C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:F9D34CE9A1C18403F4BB36521A0A5330A19FE7C8
 ```bash
 magnet:?xt=urn:btih:D157AF629FD0DE65B331E46B373E12F55161479B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:D157AF629FD0DE65B331E46B373E12F55161479B
 magnet:?xt=urn:btih:1781AD84213D48ABDC7063B54488EE9D7EAFEDFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:1781AD84213D48ABDC7063B54488EE9D7EAFEDFA
 ```bash
 magnet:?xt=urn:btih:E4D4E79C780FD55014BE13573C033EBAD825AA0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +332,8 @@ magnet:?xt=urn:btih:E4D4E79C780FD55014BE13573C033EBAD825AA0B
 magnet:?xt=urn:btih:0D0BE5D1FCFAF197E5294F180215F595510AD659
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:0D0BE5D1FCFAF197E5294F180215F595510AD659
 ```bash
 magnet:?xt=urn:btih:08D9CDE34263E78232BFDEE884E20BFB539A1AEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +384,8 @@ magnet:?xt=urn:btih:08D9CDE34263E78232BFDEE884E20BFB539A1AEF
 magnet:?xt=urn:btih:58BB5086EE1A512D70B3968133A2694C0F5B9D9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +410,8 @@ magnet:?xt=urn:btih:58BB5086EE1A512D70B3968133A2694C0F5B9D9C
 magnet:?xt=urn:btih:EABEF2BB961835D6C43D8DDD6381D7C013EE29F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +435,8 @@ magnet:?xt=urn:btih:EABEF2BB961835D6C43D8DDD6381D7C013EE29F9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:EABEF2BB961835D6C43D8DDD6381D7C013EE29F9
 magnet:?xt=urn:btih:440ADBD7E9A4705898AA62BF1960EDEF025CB858
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +489,8 @@ magnet:?xt=urn:btih:440ADBD7E9A4705898AA62BF1960EDEF025CB858
 ```bash
 magnet:?xt=urn:btih:E75F2430FB3A32B70CDF13F732E728BB6389D560
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +517,8 @@ magnet:?xt=urn:btih:E75F2430FB3A32B70CDF13F732E728BB6389D560
 magnet:?xt=urn:btih:A5E854DEEB10F45BC59ACEA1B146A11CB922D5B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +542,8 @@ magnet:?xt=urn:btih:A5E854DEEB10F45BC59ACEA1B146A11CB922D5B3
 ```bash
 magnet:?xt=urn:btih:20003952EDCF1EF02C23838147112D0C6C83E42E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +569,8 @@ magnet:?xt=urn:btih:20003952EDCF1EF02C23838147112D0C6C83E42E
 magnet:?xt=urn:btih:BE52BEA2F23FD5A9C232F423B7193A4A7C8D761E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +594,8 @@ magnet:?xt=urn:btih:BE52BEA2F23FD5A9C232F423B7193A4A7C8D761E
 ```bash
 magnet:?xt=urn:btih:3ACDA5A2EC6DC86A26D89FEA91B8007D6A87F915
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +622,8 @@ magnet:?xt=urn:btih:3ACDA5A2EC6DC86A26D89FEA91B8007D6A87F915
 magnet:?xt=urn:btih:070906D29E4D6791040C5A9EABF703D62424BEAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +647,34 @@ magnet:?xt=urn:btih:070906D29E4D6791040C5A9EABF703D62424BEAA
 ```bash
 magnet:?xt=urn:btih:350CD1FE239257512B5E11551A8F2A13FFBE6625
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 894848   (704672) от 03.05.2015
+
+Никита / Nikita (1990) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никита, молоденькая девушка, под действием наркотиков вместе с друзьями совершает ограбление и убийство. После суда приговор не приводится в исполнение, а Никиту отправляют в школу специальных агентов. Ее больше нет, она становится секретным агентом без прошлого и будущего…Производство: Франция, Италия / Gaumont, Cecchi Gori Group Tiger Cinematografica, Les Films du LoupЖанр: Боевик, ТриллерРежиссер: Люк БессонАктеры: Анн Парийо, Марк Дюре, Жан Рено, Патрик Фонтана, Лора Шерон, Жак Боде, Патрик Перес, Чеки Карио, Жан-Люк Карон, Жанна Моро, Филип Леруа, Хейке Фишер, Хосе Стайнманн, Жан-Юг Англад, Жан-Пьер Поли, Мишель Кампа, Жан БуизПеревод: Профессиональный (многоголосый закадровый), Профессиональный (двухголосый закадровый), Авторский (одноголосый закадровый)Субтитры: Вшитые (Отключаемые)Язык субтитров: Русский, АнглийскийПродолжительность: 01:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15A471E486EFE75493D6E87775F27D97B99B825B
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

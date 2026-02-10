@@ -21,6 +21,8 @@ Grandeur Tropical — роскошный ретро-шрифт с засечка
 magnet:?xt=urn:btih:A6B71D757A7FF3E4F56E50C3B0157E28D286CFA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Miguer Sans — это высококонтрастный, современны�
 ```bash
 magnet:?xt=urn:btih:EB1A3C52BA7C54389A645844B67E08235F31817A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:EB1A3C52BA7C54389A645844B67E08235F31817A
 magnet:?xt=urn:btih:BAC34FAA5344E57A8B060853CA8FEDCAD0972C13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:BAC34FAA5344E57A8B060853CA8FEDCAD0972C13
 ```bash
 magnet:?xt=urn:btih:F5215013B808006D6655617DADA85AD5F526FFEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:F5215013B808006D6655617DADA85AD5F526FFEA
 magnet:?xt=urn:btih:9BA9D79ECF27A035265E573E17541D61E5E32DF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Trade Gothic был разработан Джексоном Берком меж�
 ```bash
 magnet:?xt=urn:btih:4ACCE3F7E27C5D2AD9CBC1526F66A60827B3D87F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Ranstory - изысканный рукописный шрифт с прекра�
 magnet:?xt=urn:btih:7817033E6731AF904C2293F79BCA1DB1B3B85822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Irma Text Slab — это современная интерпретация ге
 ```bash
 magnet:?xt=urn:btih:2AEC85CF938A25FA1A563FFBF84E4C29341C8E0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:2AEC85CF938A25FA1A563FFBF84E4C29341C8E0A
 magnet:?xt=urn:btih:77D1DA5F83DBEB9C973A69D7C04BD9DC271051E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:77D1DA5F83DBEB9C973A69D7C04BD9DC271051E6
 ```bash
 magnet:?xt=urn:btih:FFCDA8270EF74C36AE98B434A76ED86B95A724C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:FFCDA8270EF74C36AE98B434A76ED86B95A724C8
 magnet:?xt=urn:btih:9C9C0EC9BA7A5156F2C4A14D581245263EC3A213
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ Restrike — элегантный рукописный шрифт, призва�
 ```bash
 magnet:?xt=urn:btih:1D962CA3B9A0F8803864A00FBB25909986315DC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:1D962CA3B9A0F8803864A00FBB25909986315DC7
 magnet:?xt=urn:btih:46D4E6BFFFADACB33ADB0DAE08C719F96D1E20C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:46D4E6BFFFADACB33ADB0DAE08C719F96D1E20C6
 ```bash
 magnet:?xt=urn:btih:E871DD8EF5717D377B9100E57E1DD5407FE3B6A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ Blue Mirage — это современный шрифт с засечками �
 magnet:?xt=urn:btih:ACE8EED9925F5F5CEFD8069BC4A13105E02EE066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ Frieren La Belle - современный дисплейный шрифт с з�
 ```bash
 magnet:?xt=urn:btih:03579A4BD19718BCDF7EFE94C514EA56F11009B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ Markile — жирный шрифт с округлой формой.
 magnet:?xt=urn:btih:5412401B49B3CDA6718908D0E5FE0C215DE95BC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ Endbrium — это современный шрифт с засечками, с�
 ```bash
 magnet:?xt=urn:btih:89E9BDD7736E06BDD028BA8E069282A516A3ED99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ magnet:?xt=urn:btih:89E9BDD7736E06BDD028BA8E069282A516A3ED99
 magnet:?xt=urn:btih:8DD0222323920331DB07D1ABA85675296A64DAD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ magnet:?xt=urn:btih:8DD0222323920331DB07D1ABA85675296A64DAD5
 magnet:?xt=urn:btih:A24534EF26656846CF653ED6E6305ED2B71AF70E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ Grima — это четкий современный акцидентный шр
 ```bash
 magnet:?xt=urn:btih:20F0DB11552095712036676DF719D6AE82C13526
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ Quila — это стильный ретро-шрифт с засечками. �
 magnet:?xt=urn:btih:1A3F7E33C6EEC4CE101742B117CF968ED8B88661
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ magnet:?xt=urn:btih:1A3F7E33C6EEC4CE101742B117CF968ED8B88661
 magnet:?xt=urn:btih:1762DB8BAEEA28283FEAA20738143723A93BB259
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +644,8 @@ Revia — семейство шрифтов display sans serif, доступно
 ```bash
 magnet:?xt=urn:btih:A34A34996E9E3B9E952F0B774DA580B9B11D4131
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:A34A34996E9E3B9E952F0B774DA580B9B11D4131
 magnet:?xt=urn:btih:7B85BA203EDBB6EB44D42F343D575CFE012BA90F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ Hiruko Pro — это совершенно новая, улучшенная ве
 ```bash
 magnet:?xt=urn:btih:B13EFAE6FED0F32EA4A83AD05B97C599FDCB144B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

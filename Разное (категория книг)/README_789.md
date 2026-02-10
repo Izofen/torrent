@@ -1,3 +1,32 @@
+###  Публикация: 1442282   (1036868) от 24.01.2021
+
+Игорь Прокопенко | Наш мозг в эпоху катаклизмов (2021) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы собрали новейшие открытия нейрофизиологии и нейробиологии, которые не просто перевернут ваше представление о работе нашей нервной системы, а буквально позволят вам изменить свою жизнь.
+• Похудеть, не вставая с дивана? Как заставить наш мозг работать на нас.
+• Съешь еще одну конфетку! Зачем нашему мозгу нужно, чтобы мы ели больше сладкого.
+• Почему в следующий (   Читать дальше...   )Жанр: Нейробиология, ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61FBFF1FCC7A1933E96F4675FE5E12D95E487B7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442094   (1036890) от 24.01.2021
 
 Евгений Жаринов | Империя Круппов. Нация и сталь (2019) [EPUB]
@@ -18,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:EA6273DFF4E4F1DCD287AB2CE3F60BD1F2C1EAD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +76,8 @@ magnet:?xt=urn:btih:EA6273DFF4E4F1DCD287AB2CE3F60BD1F2C1EAD4
 magnet:?xt=urn:btih:0D117A9C225D327A79FCEB9AE0FFE30B7FF9B9A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +102,8 @@ magnet:?xt=urn:btih:0D117A9C225D327A79FCEB9AE0FFE30B7FF9B9A6
 magnet:?xt=urn:btih:D9CAB2779D820F74E30870BC862C082B823748B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +127,8 @@ magnet:?xt=urn:btih:D9CAB2779D820F74E30870BC862C082B823748B4
 ```bash
 magnet:?xt=urn:btih:36D2679A9E87B5D58DEBDCB8C73C17AB5D0AA574
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +155,8 @@ magnet:?xt=urn:btih:36D2679A9E87B5D58DEBDCB8C73C17AB5D0AA574
 magnet:?xt=urn:btih:F597985E80AC6B464FE64E0CDEDDB397CE6F037C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +180,8 @@ magnet:?xt=urn:btih:F597985E80AC6B464FE64E0CDEDDB397CE6F037C
 ```bash
 magnet:?xt=urn:btih:38B7EADF354E1AA1DB05C5842C4D2A15ED052C6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +207,8 @@ magnet:?xt=urn:btih:38B7EADF354E1AA1DB05C5842C4D2A15ED052C6F
 magnet:?xt=urn:btih:39FAD13346DDFD8AD4446E98568337244756E022
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +232,8 @@ magnet:?xt=urn:btih:39FAD13346DDFD8AD4446E98568337244756E022
 ```bash
 magnet:?xt=urn:btih:E0EE6B658095EA5C99526B14BAE3F35763E121C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +259,8 @@ magnet:?xt=urn:btih:E0EE6B658095EA5C99526B14BAE3F35763E121C7
 ```bash
 magnet:?xt=urn:btih:33A6E834525D28DE90071383A27FF7D822453EC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +288,8 @@ magnet:?xt=urn:btih:33A6E834525D28DE90071383A27FF7D822453EC5
 magnet:?xt=urn:btih:D221B49B60A06C6EF786CCC77EF23EA334D709E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +313,8 @@ magnet:?xt=urn:btih:D221B49B60A06C6EF786CCC77EF23EA334D709E8
 ```bash
 magnet:?xt=urn:btih:2673C38738227F8780715E2849FA98ABA719F6DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +340,8 @@ magnet:?xt=urn:btih:2673C38738227F8780715E2849FA98ABA719F6DC
 magnet:?xt=urn:btih:CC093E667B50B0533F796993E3816633F162081D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +365,8 @@ magnet:?xt=urn:btih:CC093E667B50B0533F796993E3816633F162081D
 ```bash
 magnet:?xt=urn:btih:C0B687D2D90953CC34BA9CB94BD55142298689DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +392,8 @@ magnet:?xt=urn:btih:C0B687D2D90953CC34BA9CB94BD55142298689DF
 magnet:?xt=urn:btih:32786D4A08FCE8028CD2497A2E3FE3928F84A065
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +417,8 @@ magnet:?xt=urn:btih:32786D4A08FCE8028CD2497A2E3FE3928F84A065
 ```bash
 magnet:?xt=urn:btih:58EE36BFDD73E0A853482D95E531D0295B79FDEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +445,8 @@ magnet:?xt=urn:btih:58EE36BFDD73E0A853482D95E531D0295B79FDEC
 magnet:?xt=urn:btih:499195F1CF3DBC49969EF4F97C3755AD1A157CDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +470,8 @@ magnet:?xt=urn:btih:499195F1CF3DBC49969EF4F97C3755AD1A157CDF
 ```bash
 magnet:?xt=urn:btih:9A861BB0D966D4D7E489F46C697B8096B1A44256
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +499,8 @@ magnet:?xt=urn:btih:9A861BB0D966D4D7E489F46C697B8096B1A44256
 magnet:?xt=urn:btih:EFFD7E109567F6C2C60CEE7605BDDD5DE8580DB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +524,8 @@ magnet:?xt=urn:btih:EFFD7E109567F6C2C60CEE7605BDDD5DE8580DB0
 ```bash
 magnet:?xt=urn:btih:AA68EB9C3EA027565ED880C5312C4478313CAFA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +551,8 @@ magnet:?xt=urn:btih:AA68EB9C3EA027565ED880C5312C4478313CAFA5
 magnet:?xt=urn:btih:21E7FBD03A45574AC6A3A84A5677ABBE8060FE05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +576,8 @@ magnet:?xt=urn:btih:21E7FBD03A45574AC6A3A84A5677ABBE8060FE05
 ```bash
 magnet:?xt=urn:btih:F651353181238429B509792302510391A5DEAEAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +603,8 @@ magnet:?xt=urn:btih:F651353181238429B509792302510391A5DEAEAC
 ```bash
 magnet:?xt=urn:btih:3511EB040544748DB245CB261CC83F9B361262F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +632,8 @@ magnet:?xt=urn:btih:3511EB040544748DB245CB261CC83F9B361262F5
 magnet:?xt=urn:btih:8D6890AAAE77EF8C00084101EA21CAE169E8B54C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +657,8 @@ magnet:?xt=urn:btih:8D6890AAAE77EF8C00084101EA21CAE169E8B54C
 ```bash
 magnet:?xt=urn:btih:A1755AB5CFA67BAF05BE778C2D3506C650D2A7EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,31 +684,7 @@ magnet:?xt=urn:btih:A1755AB5CFA67BAF05BE778C2D3506C650D2A7EF
 magnet:?xt=urn:btih:6C6DD561BD673E618240A349C618A740A9B871F4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441207   (1037927) от 20.01.2021
-
-Harvard Business Review (HBR) | Управление изменениями (2016) [EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Harvard Business Review – главный деловой журнал в мире. Представляем новый выпуск серии «HBR: 10 лучших статей», посвященный управлению изменениями.
-Если ваша компания переживает серьезные перемены или вам это только предстоит, то эта книга для вас. Из сотен статей журнала, посвященных управлению изменениями, редакторы HBR отобрали самые полезные и актуальные.
-Из (   Читать дальше...   )Жанр: Организационный менеджмент, Управление бизнесомФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E7E34E94D8C6FD7A7A7525171F577F601E290B8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Ironskills, Иван Гордынец | Программист 1С: с нуля 
 magnet:?xt=urn:btih:91E9993B33FA7933DBDB97BF57312FFA0E430549
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:91E9993B33FA7933DBDB97BF57312FFA0E430549
 ```bash
 magnet:?xt=urn:btih:92B4154EE1F18B06657027FFECF4EBE8CE7BFCB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Pastebot - менеджер истории буфера обмена
 ```bash
 magnet:?xt=urn:btih:567139243775AD00FD13927F9A4A58B40C5280B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ Celldweller - Satellites (2022) Remixed, 2023, FiXT [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:B8B5AA352D019B1ED5037FABB38C05576F3CC101
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ Black Veil Brides - The Phantom Tomorrow (2021) [FLAC|Lossless|WEB-DL|tracks] <H
 magnet:?xt=urn:btih:2E15471805B3B8FC242EA27EB8A6E465AAED1DE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:2E15471805B3B8FC242EA27EB8A6E465AAED1DE0
 magnet:?xt=urn:btih:B26057D32C9C1541141878BEEC9475300273947D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:B26057D32C9C1541141878BEEC9475300273947D
 ```bash
 magnet:?xt=urn:btih:8A7100AD839D4F6BD88F6DF4522E5B9AE1604BBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:8A7100AD839D4F6BD88F6DF4522E5B9AE1604BBF
 magnet:?xt=urn:btih:25EDFE524157A349BD2122FC0BE146BF3C963248
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:25EDFE524157A349BD2122FC0BE146BF3C963248
 ```bash
 magnet:?xt=urn:btih:6425268350BA467F7B5B6E68D1F76D68A8C9D078
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ VA - Best Driving EDM 2020 (2019) [MP3|320 Kbps] <Progressive House>
 magnet:?xt=urn:btih:75C466C34EB11E278F86911264CB5C5BAF3486D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ QuartzCode — это быстрый, легкий и мощный инстру�
 magnet:?xt=urn:btih:431096CCAE4935DDF998EF218115CCE30CA0100B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:431096CCAE4935DDF998EF218115CCE30CA0100B
 ```bash
 magnet:?xt=urn:btih:3C1BD263D28959B97167077D7283868CBF88BD8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ Caroline Bernier (так же она - Carolyne Bernier) - канадская и
 magnet:?xt=urn:btih:96BDB6CF0AE6B9FADC284138B805AD3936C1DD02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:96BDB6CF0AE6B9FADC284138B805AD3936C1DD02
 ```bash
 magnet:?xt=urn:btih:B21E0F0CCC651AC988CD4156CACD04CB915A75ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:B21E0F0CCC651AC988CD4156CACD04CB915A75ED
 magnet:?xt=urn:btih:45D43982CBA23ED8060E3F81CD478B244D46C74F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:45D43982CBA23ED8060E3F81CD478B244D46C74F
 magnet:?xt=urn:btih:94D83F61DCB6E039EAC2FFBCBD4E350EDDA91A08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ Scudo - это гибридный брандмауэр для macOS, котор�
 ```bash
 magnet:?xt=urn:btih:01F6AF0E4695660CBFA18E01857F9D079B022C5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ XYZ School, Кирилл Золовкин | Продюсирование игр 
 magnet:?xt=urn:btih:37C2D3161ECD1982D5FAA07FBB2ED8A598E66C45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ Nova поддерживает отдельные задачи сборки, за
 ```bash
 magnet:?xt=urn:btih:A4BF43A5F43BAAC01BA537BEB62D9181B642F1F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ Khymera - Master Of Illusions (2020) Japanese Edition [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:69DF242AECDCE7C7460A52FD7E41C934AEB06858
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +570,8 @@ CD 01:
 magnet:?xt=urn:btih:C1E98D358049384F6334524C265C772E81718AC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ magnet:?xt=urn:btih:C1E98D358049384F6334524C265C772E81718AC0
 ```bash
 magnet:?xt=urn:btih:93BB347F46C74A05D192C05FB767665D180772B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +622,8 @@ magnet:?xt=urn:btih:93BB347F46C74A05D192C05FB767665D180772B6
 ```bash
 magnet:?xt=urn:btih:1D68A2C1EF37CB501927B22E604A5981E60CF8B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ Green Labyrinth - Sequences (2023) [MP3|320 Kbps] <Symphonic Metal, Female Vocal
 magnet:?xt=urn:btih:A89B0139B3A86F6AC1352FAEFD46643E29266ADD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:BA2CE250A9CB69800E7908DAB72D34F542223850
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:BA2CE250A9CB69800E7908DAB72D34F542223850
 ```bash
 magnet:?xt=urn:btih:27D4C3559684C826A7DF002BC0D854BC5A01FB36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

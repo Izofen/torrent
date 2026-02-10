@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:82726DE953B699871BDABD735E5722492968680E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Francis Goya & Norman Candler Magic Strings - More Than Ever (Remastered) (2024)
 magnet:?xt=urn:btih:7F8314741228500E214732DC9A4A34D9A26948DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Phase One Capture One - один из лучших профессиональн�
 ```bash
 magnet:?xt=urn:btih:368E035553946AA7F5A03BE411BC74E07FB5D05B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:368E035553946AA7F5A03BE411BC74E07FB5D05B
 magnet:?xt=urn:btih:54599C050322026201A05F5B8761C5605F4F49F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.2.0/dlc) Repack Other s [Digital Deluxe E
 ```bash
 magnet:?xt=urn:btih:BDAE34627FF8902C76F7455ED707B9418F4D7346
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ RedCrab Calculator 8.3.1 Portable [Multi]
 magnet:?xt=urn:btih:D6541D2B76F08FD7E525C7F1106B93470AD6203B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:D6541D2B76F08FD7E525C7F1106B93470AD6203B
 ```bash
 magnet:?xt=urn:btih:8A6C5BD9953C4AF872805B511D2DE2148D9C829D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Icoonia поможет вам лучше визуализировать (   Ч�
 magnet:?xt=urn:btih:FA28F0CD007869A3777C74B40DD0B993F9ECA18A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ WinNTSetup (Windows Setup Tool) – программа для создания �
 magnet:?xt=urn:btih:0FCDB98AA08D753644449D16C5F6AEFD2D0C3115
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:0FCDB98AA08D753644449D16C5F6AEFD2D0C3115
 ```bash
 magnet:?xt=urn:btih:8B7EED60EFDA38E3CEA2F7B2E8A25866CE4C219B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Enigma - Коллекция из 4 альбомов [DSD128|1 Bit / 5644 kHz|Vin
 magnet:?xt=urn:btih:5FB5A2A92CA80DDD61847CDCA19C791B5BFF3CA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:5FB5A2A92CA80DDD61847CDCA19C791B5BFF3CA0
 ```bash
 magnet:?xt=urn:btih:8817B3B5D813D6EDA53FD5BE0D3A9B42ED7471B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:8817B3B5D813D6EDA53FD5BE0D3A9B42ED7471B5
 magnet:?xt=urn:btih:932EE65639A73455526D707C6BF3052CD3E263C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ All-In-One Offline Maps v3.17b Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:051B5813D496C6A41DF50A6CE0CFE17B2848D277
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:051B5813D496C6A41DF50A6CE0CFE17B2848D277
 magnet:?xt=urn:btih:4BE084E658C3691DDFBD7DD7314F6459B6FC84D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ Endzone - A World Apart (2020) [Ru/En] (1.2.8630.30586/dlc) License GOG [Save th
 ```bash
 magnet:?xt=urn:btih:4E38AB7F1A39D9D4C33DA9A4308CC0E5273A38F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:4E38AB7F1A39D9D4C33DA9A4308CC0E5273A38F4
 magnet:?xt=urn:btih:64D1323A859332C78AAFCDBE20F9D49779E11108
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:64D1323A859332C78AAFCDBE20F9D49779E11108
 ```bash
 magnet:?xt=urn:btih:73D8FC3AF5D4FC4C9DB8C238A807BE20AC736EEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:73D8FC3AF5D4FC4C9DB8C238A807BE20AC736EEB
 magnet:?xt=urn:btih:994F3CF106BB8514FB546D9B6AA8094170C3AD33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ VN - это видеоредактор предназначенный специ
 ```bash
 magnet:?xt=urn:btih:567803F0BB454CE2DE455BE8D0A1A4D696616FF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:567803F0BB454CE2DE455BE8D0A1A4D696616FF2
 magnet:?xt=urn:btih:DF290DB3B66A7AFE2ECB732D9CE78A37B8885F46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:DF290DB3B66A7AFE2ECB732D9CE78A37B8885F46
 ```bash
 magnet:?xt=urn:btih:4BA77E7396D659AD73660D8119BA39EED069BB89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ Miles Kane - Sunlight In The Shadows (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:A66AD5062AB35F7BE50CCA9875F3F75FECEFF093
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:A66AD5062AB35F7BE50CCA9875F3F75FECEFF093
 magnet:?xt=urn:btih:B3A02DDF1416D569A41CA99350A32BF2BC8E6F13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:B3A02DDF1416D569A41CA99350A32BF2BC8E6F13
 ```bash
 magnet:?xt=urn:btih:7AECA9D2177F4E5D7535B73F0783B4E5A57E8743
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +686,8 @@ Elton John - Captain Fantastic And The Brown Dirt Cowboy (1975) 50th Anniversary
 ```bash
 magnet:?xt=urn:btih:508CE64078D09A2B47603A02B104599575E691FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

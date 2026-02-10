@@ -1,54 +1,3 @@
-###  Публикация: 959335   (317193) от 24.11.2015
-
-Comic Life 3.1.3 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Comic Life - великолепное приложение, с помощью которого можно создавать комиксы и сюжеты, используя личные фотографии или рисунки. Взгляните по-новому на свои фотографии из различных путешествий - приложение Comic Life поможет вам создать и красиво оформить собственную историю с эффектами из комиксов. Удивите своих друзей нестандартным оформлением. Стоит отметить (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24 ноября 2015Разработчик: plasq LLCПоддерживаемая ОС: OS X 10.6.5 +Язык интерфейса: Английский, Голландский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A7390D8FA422E4B594EEBC44C0865DCF384AAAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959353   (317194) от 24.11.2015
-
-VA - Charming Bourgeois Vol 1 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beach Solaire - Autentico - Original Mix
-02. Dee Lice - Derize - Chill Groovers Mix
-03. Maurice Sanders - Oise - Original Mix
-04. Room 100 - Reminiscing - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:688A1734558FEDF3E2D91184B52854E0BB2BAF7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959395   (317195) от 24.11.2015
 
 Tower 2.3.2 [En]
@@ -70,6 +19,8 @@ Tower - мощный и элегантный Git клиент для Mac
 ```bash
 magnet:?xt=urn:btih:28867F39F5043FD2E8172BF4A7ABDE4E5AA8B258
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +49,8 @@ VA - Charming Bourgeois Vol 3 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loun
 magnet:?xt=urn:btih:21F7DC8F0873C18925893B04E3D468D404CF0B81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +75,8 @@ magnet:?xt=urn:btih:21F7DC8F0873C18925893B04E3D468D404CF0B81
 ```bash
 magnet:?xt=urn:btih:FB33B774107D5EF42FA08DD099489DE8254BA5BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +105,8 @@ VA - Уголовочка на радио Шансон (2015) [MP3|256-320 кб/
 magnet:?xt=urn:btih:F54D8C0DA79D351A329D5E423101B13E468F47EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +133,8 @@ VA - Музыкальное свежье русский выпуск 6 (2015) [M
 ```bash
 magnet:?xt=urn:btih:5D143FB161BE671D35028922ECD247ED242B5504
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -204,6 +163,8 @@ Limp Bizkit - Интервью с Фредом Дерстом на радио UL
 magnet:?xt=urn:btih:ECC7C9F3A9804B51F0E2E32508BB3E30BF7BB71F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +188,8 @@ magnet:?xt=urn:btih:ECC7C9F3A9804B51F0E2E32508BB3E30BF7BB71F
 ```bash
 magnet:?xt=urn:btih:D0D1B9F1713CE1087C62576ED260101EE8A0B718
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +216,8 @@ magnet:?xt=urn:btih:D0D1B9F1713CE1087C62576ED260101EE8A0B718
 magnet:?xt=urn:btih:B20BC10A42676AA449858B64C058944239158A8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +242,8 @@ magnet:?xt=urn:btih:B20BC10A42676AA449858B64C058944239158A8E
 magnet:?xt=urn:btih:DFAF4663C9BDBE432CD1DCFCC9A34F39B714BAA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +267,8 @@ Dark Asylum: Mystery Adventure (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:3E20C499B0A726CF5E0E0B7702B7D3BF80DAFF6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +295,8 @@ magnet:?xt=urn:btih:3E20C499B0A726CF5E0E0B7702B7D3BF80DAFF6D
 ```bash
 magnet:?xt=urn:btih:F90F594F090A42FCED59FF9D4578FF48149B7B6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +325,8 @@ Anastacia - Ultimate Collection (2015) [FLAC|tracks + .cue]<Pop, Pop Rock, Funk,
 magnet:?xt=urn:btih:879671592EBD72749C5082483E2CDA6C2A563D19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +351,8 @@ magnet:?xt=urn:btih:879671592EBD72749C5082483E2CDA6C2A563D19
 magnet:?xt=urn:btih:9AB305FB7FE01D69A50150849E5A67D5D6C1A5E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +376,8 @@ magnet:?xt=urn:btih:9AB305FB7FE01D69A50150849E5A67D5D6C1A5E6
 ```bash
 magnet:?xt=urn:btih:B418BB02F678B313FFF0873D5B3C80BEC53240C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +406,8 @@ Texas - Texas 25 (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Pop, Pop-Rock>
 magnet:?xt=urn:btih:10121EE9E296439A6316A5477D7CE2CC7EB3EFCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +435,8 @@ VA - Dubstep Classic Hits Top 100 (2015) [MP3|320 кб/с]<Drumstep, Dubstyle>
 magnet:?xt=urn:btih:0E3DAF31C123E90B983C54ADAC75A2689CDDEE39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +460,8 @@ magnet:?xt=urn:btih:0E3DAF31C123E90B983C54ADAC75A2689CDDEE39
 ```bash
 magnet:?xt=urn:btih:48226F290FA153A9D23F6AB2B9D8F1B8EF203DC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +487,8 @@ magnet:?xt=urn:btih:48226F290FA153A9D23F6AB2B9D8F1B8EF203DC8
 ```bash
 magnet:?xt=urn:btih:0DF92C24F5FF61654AAFCE3CF4FACAF110899DFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +518,8 @@ Dead Rising [xbox 360] [pal] [eng] (2006)
 magnet:?xt=urn:btih:DDDF7FFBD1059BFBF258F21A42E714DDD11A4E9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +543,8 @@ magnet:?xt=urn:btih:DDDF7FFBD1059BFBF258F21A42E714DDD11A4E9B
 ```bash
 magnet:?xt=urn:btih:FC385FE673A0B4E3D0421079947CB03FEC10F648
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +570,8 @@ magnet:?xt=urn:btih:FC385FE673A0B4E3D0421079947CB03FEC10F648
 magnet:?xt=urn:btih:66D9752232FFFAAD2BCA949A99485B11EAE2981F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +595,8 @@ magnet:?xt=urn:btih:66D9752232FFFAAD2BCA949A99485B11EAE2981F
 ```bash
 magnet:?xt=urn:btih:B336423B91E6FC2F2246281880797FD50E078306
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +622,8 @@ magnet:?xt=urn:btih:B336423B91E6FC2F2246281880797FD50E078306
 magnet:?xt=urn:btih:D1247FE85BD8AF456D20B4CC88F0040C680BB760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +647,63 @@ magnet:?xt=urn:btih:D1247FE85BD8AF456D20B4CC88F0040C680BB760
 ```bash
 magnet:?xt=urn:btih:4EB7E1B4ED4714A34333F2D023297EAA314F80B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 417794   (317248) от 01.12.2011
+
+Журнал | Техника - молодежи №12 [декабрь 2011] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Техника – молодёжи» был основан в 1933 г. и отметил в 2008 г. 75-летний юбилей. Но, несмотря на почтенный возраст, «ТМ» был и остаётся одним из ведущих научно-популярных ежемесячных изданий России – живой легендой. А легенды – не умирают!Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB811BA77361CC5BED3219F2A8AAD34E1B19571E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182485   (317253) от 10.11.2017
+
+VA - Superordinate Electro House (2017) [MP3|320 Kbps] <Electro House, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317253.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. F3D - Magnum (Original Mix)
+002. HouseKeepKing - Nose Service
+003. ITRFS - Summertime (Extended Mix)
+004. Adriana Johnson - Summer Day (Original Mix)(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 10:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B5D66CB1E08DF572CBA1F5598CA485FFC4A72A0
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

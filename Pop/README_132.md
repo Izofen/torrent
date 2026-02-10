@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Stars on 45 - Звёзды дискотек (1981) [MP3|320 кб/с]<Disco>
 ```bash
 magnet:?xt=urn:btih:DBD862FDB601F533E8A76320FF79601CCA41C85A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Rasmus Seebach - Ingen Kan Love Dig I Morgen (2013) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:F252AEB212B8D73022D1BB00171280D60AF497D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ VA - Nu Cool Covers (Pop Classics ReStyled) (2017) [FLAC|Lossless|tracks] <Loung
 ```bash
 magnet:?xt=urn:btih:F3DF2158102FA81E3F0A10458528E545C478D46F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Madonna - Something To Remember (1995) [FLAC|tracks+.cue]<Downtempo, Ballad>
 magnet:?xt=urn:btih:FB05B86E55F756F2B94F0626D1B6A2BEFB331F83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ Roby Facchinetti & Riccardo Fogli - Insieme (2017) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:415416FE944E080159659749F6D7F839E94CA2FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +197,8 @@ VA-Александра Пахмутова - любимые песни (1975) [M
 magnet:?xt=urn:btih:9921CEBA9D279B2460670EAF900E68131066A2D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +231,8 @@ Demis Roussos - 14 Best Hits (2008) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:BE452D3477C7B5E3E5CE084C4D17CD0E55D2AF9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +267,8 @@ Bad Boys Blue - 25 Best Hits (2012) [MP3|320 кб/с]<Pop,Disco>
 magnet:?xt=urn:btih:79BB834A1B43957605955D2555AC71310E2F007D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +301,8 @@ Frank Duval - Touch My Soul (1989) [MP3|320 кб/с]<Pop-Rock>
 magnet:?xt=urn:btih:3DF0D0CEAAB2E7301FCB7DD74B0A4900770E7A02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +326,8 @@ Supermax - Hello, Kurt! (2011) [MP3|320 кб/с]<Funk,Disco,Reggae>
 ```bash
 magnet:?xt=urn:btih:44C3971DB0B674B081C2EE4727879E08CA4B4876
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +356,8 @@ Rare80 Volume 3 CD1
 magnet:?xt=urn:btih:063C4C27A44DFDC38B2902FAD9971A6D6B0FBA4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +384,8 @@ magnet:?xt=urn:btih:063C4C27A44DFDC38B2902FAD9971A6D6B0FBA4F
 ```bash
 magnet:?xt=urn:btih:23813FF2395AE1B8FC5EF0C88E8AE64FEEC55D91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +414,8 @@ magnet:?xt=urn:btih:23813FF2395AE1B8FC5EF0C88E8AE64FEEC55D91
 magnet:?xt=urn:btih:97769093AC60DCCCC671A79B0E633526DD6F657B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +443,8 @@ Sade - Lovers Live (2002) Epic 506125-2 [FLAC|Lossless|image + .cue]<Sophisti-Po
 magnet:?xt=urn:btih:44F1C03D98C1C97BDCE968B8075C3B5205C0F000
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +471,8 @@ Prince - 4Ever (2CD) (2016) [FLAC|Lossless|image + .cue] <Pop, Rock, Funk>
 ```bash
 magnet:?xt=urn:btih:4391B6B188039ADA2D9E38EECF3642B75D5A8BF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +502,8 @@ VA - Top Of The Pops '1978 (2018) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <19
 magnet:?xt=urn:btih:362B0C2798C78EA930A6E4AF85C16C4DED8A7913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +530,8 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:486A21C06777C6AF17C0FFE8D86654438274573D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +560,8 @@ CD1:
 magnet:?xt=urn:btih:65E6E21108068DE9F9A3F5CB3E31AE1FDE5AC500
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +588,8 @@ Kylie Minogue - Kylie Christmas (2016) [MP3|320 Kbps] <Christmas, Traditional Po
 ```bash
 magnet:?xt=urn:btih:4BD59C81841CBAD8C38896019BDB980D1D843542
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +618,8 @@ VA - Mega Hits Autumn/Fall 2022 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:EF96BEFFF8210BA68E78B9F9B478D7246816A0CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +646,8 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:A0ECF01E0AB955BCB300CEE81FE1013D677E14F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +676,8 @@ Long Tall Ernie & The Shakers - Meet The Monsters (1979) LP [MP3|320 Kbps] <Elec
 magnet:?xt=urn:btih:5DDAEC7344A16AD2BFE88FD560C300C02F1E6176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +704,8 @@ VA - 90s 00s and 10s Love Songs (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:00AAB8A708D1AE7DAA2982034F8BA620C4CEC1A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -686,6 +734,8 @@ Technotronic - Best Of (2012) Compilation [FLAC|Lossless|tracks + .cue] <Euro Ho
 magnet:?xt=urn:btih:3F1E43EC0C42B741578D95A00A2F0C9DA66B7179
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -712,6 +762,8 @@ VA - Disco Discharge (2009-2012) [MP3|184-320 кб/с]<Disco, Italo Disco, Hi NR
 ```bash
 magnet:?xt=urn:btih:1AB3CD71DF6506A72378672615223EC780283105
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

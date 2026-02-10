@@ -19,6 +19,8 @@ Debian GNU/Linux 10.3.0 + nonfree Buster [i386] 4xDVD
 magnet:?xt=urn:btih:2C9E90724DCC580AD95753F4157CBAF24E8668C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ KaOS Linux 2016.01 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:D3A51925CD9CC30F97A75C0151E14B7405B97DAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Mythbuntu 12.04.2 LTS [i386, x86-64] (2xCD)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Insofta Cover Commander позволяет создавать профессио
 ```bash
 magnet:?xt=urn:btih:D22D8C5AD12A6F8EC664901C7B30824CAB929070
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Parted Magic — готовое решение для работы с разде
 magnet:?xt=urn:btih:C026C71F9198C6CF419DF996FC52D61E6D414069
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ MultiBootUSB - кросс платформенная утилита для со�
 ```bash
 magnet:?xt=urn:btih:42DD1CDF7EE1D5F70DC0FAD0699072091F25D76A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Tails 0.22.1 закрывает очередные выявленные уязв
 ```bash
 magnet:?xt=urn:btih:07E73C227EE96EBF47C8641B9C95F5A761817629
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:07E73C227EE96EBF47C8641B9C95F5A761817629
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Scientific Linux 6.5 Live RC1 [i386, x86-64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:910F6D22C3DAF62FB88F664A7E75FFCBEE1BA5A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ Slackware Linux — один из старейших дистрибутивов 
 magnet:?xt=urn:btih:71F0FF283FA2EC11F290E8A10A847DE42BD8A6D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ MenuetOS не основана ни на Unix, ни на стандарте POSI
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ DSL: Damn Small Linux, что в переводе с  англ. означает
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ Frugalware Linux 1.8 [x86_64] (5xDVD+1xCD)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +381,8 @@ Q4OS - дистрибутив операционной системы Linux, с�
 magnet:?xt=urn:btih:61489AB9ABE8CA7FC12B6370418091377CE25B2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ Jondo Live-DVD предлагает безопасные, предварител
 magnet:?xt=urn:btih:C5012C6E829F8CD99B9CF8B943C432F4807F8139
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ Tor Browser for Linux - удобная и простая модификация 
 ```bash
 magnet:?xt=urn:btih:036CC1959D45D4EBA92D2FE3DC948A837BBFCBD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +463,8 @@ Eric Hameleers 24.12.2015 в своём блоге Alien Pastures сообщил
 magnet:?xt=urn:btih:370AC74004A23EA32467E4B92D41CB01BC78C7B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +490,8 @@ Kerio Operator — это телефонная система для предп�
 magnet:?xt=urn:btih:B0EBF15393FC7AFB512618E930C2A7676C25AC87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ Kerio Control — это комплексное решение в области
 ```bash
 magnet:?xt=urn:btih:352D444454AA90F9B1F3F4BA58BE5FE892B0A686
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ Manjaro Linux 15.12 (Arch + несколько рабочих столов) [x86
 magnet:?xt=urn:btih:2EC02540C4CF35CE4BF0CA837551F5E2210619B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ Manjaro Linux 15.12 (Arch + несколько рабочих столов) [i68
 magnet:?xt=urn:btih:C921AFEF0ACB18C7203E018B49C139DD28DE07CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ CentOS 7.2-1511 [i386] 4xDVD + 2xCD
 ```bash
 magnet:?xt=urn:btih:C3DD2A89FD91DD5A711A802ACC5C9BC88D89D396
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +622,8 @@ Jondo Live-DVD предлагает безопасные, предварител
 magnet:?xt=urn:btih:966064B91A4F6C5236657DD273A7056ECF2AA033
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ Scientific Linux 6.5 Live Beta [i386, x86-64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:8321E6E6334A2906BDAF04F2077435D2BDDBDDA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +678,8 @@ Calculate Linux 15.12 [i686] 1xCD, 6xDVD
 magnet:?xt=urn:btih:F157970A9741A4B5B9C1EC4C361BFD4C96CC94E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ Calculate Linux 15.12 [x86-64] 1xCD, 6xDVD
 ```bash
 magnet:?xt=urn:btih:B57374F74EAFEBFCF0761CDE7E15AD75F075260A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

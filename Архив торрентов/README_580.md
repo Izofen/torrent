@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ X-Men 2: Wolverine's Revenge [Ru] (Rip) 2003 | NICK0304
 ```bash
 magnet:?xt=urn:btih:692C740D3E612E6BD149F9EE33EE4F910E501EA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ PCSX2 SVN является открытым исходным кодом Sony Pla
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ XVII век. Два брата близнеца, Ферранте и Иппол�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ XVII век. Два брата близнеца, Ферранте и Иппол�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Paradise Lost - Tragic Idol (2012) Japanese Edition [FLAC|Lossless]<Gothic Metal
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Linux Mint Debian Edition (LMDE) является альтернативным �
 ```bash
 magnet:?xt=urn:btih:429AB5892DE6873D50F8402D24B529983B44F1ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:429AB5892DE6873D50F8402D24B529983B44F1ED
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:429AB5892DE6873D50F8402D24B529983B44F1ED
 ```bash
 magnet:?xt=urn:btih:F2F9222CD72887FBF589C6503465AF0CA1DD5EA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ TerraTime v2.7.3 - Виртуальная Земля с часовыми поя�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -282,6 +302,8 @@ Spyro Gyra - 5 Albums (2001 - 2007) [DTS 5.1|(SACD-Rip) tracks]<Jazz fusion, Smo
 magnet:?xt=urn:btih:09A22716119188FED4A5533CA3BF7E67A564A519
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ magnet:?xt=urn:btih:09A22716119188FED4A5533CA3BF7E67A564A519
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:09A22716119188FED4A5533CA3BF7E67A564A519
 ```bash
 magnet:?xt=urn:btih:1F59E2F33D13C533B19DD1D45D2AAB0B2C9EE086
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +381,8 @@ magnet:?xt=urn:btih:1F59E2F33D13C533B19DD1D45D2AAB0B2C9EE086
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:1F59E2F33D13C533B19DD1D45D2AAB0B2C9EE086
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:1F59E2F33D13C533B19DD1D45D2AAB0B2C9EE086
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ magnet:?xt=urn:btih:1F59E2F33D13C533B19DD1D45D2AAB0B2C9EE086
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ FreeBSD является очень удобной платформой для �
 magnet:?xt=urn:btih:D67EE297538ABF91500504AF69347F3411FB0D58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ Toast Titanum Pro - наверно самое мощное на сегодня �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ ClearOS - это комплексное решение для организац
 magnet:?xt=urn:btih:2FE5152750BCCD1D16CEB437D43FF6C89DF2996C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:2FE5152750BCCD1D16CEB437D43FF6C89DF2996C
 ```bash
 magnet:?xt=urn:btih:05208572DFEEBA7896E351EC6906B51A7EF2A9D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:05208572DFEEBA7896E351EC6906B51A7EF2A9D7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ Botanicula [Multi12/+] (RePack) 2012 l R.G. UniGamers
 ```bash
 magnet:?xt=urn:btih:8540866AA3AA24BA212B5281A8056B3F8B1EA17C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ CD-1 Maschinenwesen (00:50:55) (224-249 кб/с)
 magnet:?xt=urn:btih:8CE249D512216B4A1231C0CA3948C4624C0CA02A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ magnet:?xt=urn:btih:8CE249D512216B4A1231C0CA3948C4624C0CA02A
 magnet:?xt=urn:btih:C419B3F1FFC4E64F93B5776526A1BEF8658D3691
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ USB Safely Remove - отличный менеджер USB устройств, о
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

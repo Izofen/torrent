@@ -1,3 +1,32 @@
+###  Публикация: 1059154   (463729) от 03.10.2016
+
+Валерий Корж | Полный справочник пчеловода (2010) [FB2]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник поможет пчеловодам получить невиданный медосбор со своей пасеки и всю зиму угощать и лечить семью и друзей ароматным медом.
+ В издании рассматриваются такие темы:
+ - основные приемы содержания и разведения пчел;
+ - влияние внешних условий на жизнедеятельность пчел;(   Читать дальше...   )Жанр: Пчеловодство, ХоббиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5C745A8E6EDF42D7E9E740C4EB38695938F27B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 481430   (463928) от 19.09.2012
 
 Максим Котин | И ботаники делают бизнес [2011] [FB2]
@@ -27,6 +56,8 @@
 magnet:?xt=urn:btih:D5DB1F145FE04F6F65E0EEF4564FFA8E26993E84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +81,8 @@ magnet:?xt=urn:btih:D5DB1F145FE04F6F65E0EEF4564FFA8E26993E84
 ```bash
 magnet:?xt=urn:btih:FDD5190D43BB26F835600DA585DDB95C3D277C50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +109,8 @@ magnet:?xt=urn:btih:FDD5190D43BB26F835600DA585DDB95C3D277C50
 magnet:?xt=urn:btih:25214BBF78198A52CBF103F1AA58D3CFD3F962A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +134,8 @@ magnet:?xt=urn:btih:25214BBF78198A52CBF103F1AA58D3CFD3F962A4
 ```bash
 magnet:?xt=urn:btih:DDE5D363BBB8026CD6CFA3B5448DBB0CA086B863
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +161,8 @@ magnet:?xt=urn:btih:DDE5D363BBB8026CD6CFA3B5448DBB0CA086B863
 magnet:?xt=urn:btih:E005ACA2455551603A838480507125171E22921F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +186,8 @@ magnet:?xt=urn:btih:E005ACA2455551603A838480507125171E22921F
 ```bash
 magnet:?xt=urn:btih:8AA13BCEDEA0A89F7891AF372981A62D9EEDF787
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +214,8 @@ magnet:?xt=urn:btih:8AA13BCEDEA0A89F7891AF372981A62D9EEDF787
 magnet:?xt=urn:btih:22E941D06BFB84BDD3F5DE4F881ADAC85905E242
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +239,8 @@ magnet:?xt=urn:btih:22E941D06BFB84BDD3F5DE4F881ADAC85905E242
 ```bash
 magnet:?xt=urn:btih:63CCF7D21F37AF35E8890D55DF468BEF1EB10318
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +266,8 @@ magnet:?xt=urn:btih:63CCF7D21F37AF35E8890D55DF468BEF1EB10318
 magnet:?xt=urn:btih:BA183E227C93AE2BC690E7CBEC05D4E0046BE7C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +291,8 @@ magnet:?xt=urn:btih:BA183E227C93AE2BC690E7CBEC05D4E0046BE7C0
 ```bash
 magnet:?xt=urn:btih:1C6E741729339816C131531960CF630FD2F24A33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +318,8 @@ magnet:?xt=urn:btih:1C6E741729339816C131531960CF630FD2F24A33
 magnet:?xt=urn:btih:2B6575CFDE46D195E602AA28FBF09ADCC09C35AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +343,8 @@ magnet:?xt=urn:btih:2B6575CFDE46D195E602AA28FBF09ADCC09C35AC
 ```bash
 magnet:?xt=urn:btih:2F656F39AE45B55792C06F2240750C9F9D21879C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +370,8 @@ magnet:?xt=urn:btih:2F656F39AE45B55792C06F2240750C9F9D21879C
 magnet:?xt=urn:btih:718A6F3EB44BEF65D7FE0FEE4DDC65FFD33F6F6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +395,8 @@ magnet:?xt=urn:btih:718A6F3EB44BEF65D7FE0FEE4DDC65FFD33F6F6D
 ```bash
 magnet:?xt=urn:btih:84BBE33F0702FC102126865CF99633C25A5A0B0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +422,8 @@ magnet:?xt=urn:btih:84BBE33F0702FC102126865CF99633C25A5A0B0A
 magnet:?xt=urn:btih:33F8218A75EC0F0F3C98299A311B0026AF05DE33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +447,8 @@ magnet:?xt=urn:btih:33F8218A75EC0F0F3C98299A311B0026AF05DE33
 ```bash
 magnet:?xt=urn:btih:44893F632266A4DB0E35B351282A0CB289613826
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +474,8 @@ magnet:?xt=urn:btih:44893F632266A4DB0E35B351282A0CB289613826
 magnet:?xt=urn:btih:3ED6DEA213940FE55837AB460620EB4B77F8F135
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +499,8 @@ magnet:?xt=urn:btih:3ED6DEA213940FE55837AB460620EB4B77F8F135
 ```bash
 magnet:?xt=urn:btih:816EC9ACE7A877BCEC556B47B482CE30470785A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +526,8 @@ magnet:?xt=urn:btih:816EC9ACE7A877BCEC556B47B482CE30470785A7
 magnet:?xt=urn:btih:DC54309FA41DB5CD0E4D1AFF3295A7CC04AB4F74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +551,8 @@ magnet:?xt=urn:btih:DC54309FA41DB5CD0E4D1AFF3295A7CC04AB4F74
 ```bash
 magnet:?xt=urn:btih:D1A642B86B5A71EB088C5DE9DF65DECFB4B2A28B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +579,8 @@ magnet:?xt=urn:btih:D1A642B86B5A71EB088C5DE9DF65DECFB4B2A28B
 magnet:?xt=urn:btih:60E98D0FC540E4048546AC7C811CFA8757AB2B17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +604,8 @@ magnet:?xt=urn:btih:60E98D0FC540E4048546AC7C811CFA8757AB2B17
 ```bash
 magnet:?xt=urn:btih:8A61670084F6555A35111F044CF65093235F208A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +633,8 @@ magnet:?xt=urn:btih:8A61670084F6555A35111F044CF65093235F208A
 magnet:?xt=urn:btih:D35096F77C42E9382E0B2B83C8931793435D22EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +661,8 @@ magnet:?xt=urn:btih:D35096F77C42E9382E0B2B83C8931793435D22EC
 magnet:?xt=urn:btih:D7133F43F501D52120061FA240943DF5E51A9BEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,32 +688,7 @@ magnet:?xt=urn:btih:D7133F43F501D52120061FA240943DF5E51A9BEF
 magnet:?xt=urn:btih:CFC439FDDE9FE12D5EBE9A16F055938DE335748C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160632   (465363) от 29.08.2017
-
-Рустам Назипов | Лидогенерация: Клиентов много не бывает (2016) [FB2, EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой выжимку уникальных техник, созданных и отработанных на практике специалистами «Академии Лидогенерации», изложенных простым и понятным языком.
-Благодаря этим техникам наши ученики за два месяца из абсолютных новичков в сфере интернет-продвижения становятся профессионалами и достигают значительных результатов.
-Аудитория читателей книги:
-– владельцы (   Читать дальше...   )Жанр: О бизнесе популярноФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C44C7094F86ECE2C3E03BDBABD43C5F6013CB7B1
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

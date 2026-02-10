@@ -22,6 +22,8 @@ Proprofiling, Алексей Филатов | Ты - детектор лжи. К
 magnet:?xt=urn:btih:9B1D17BD95B3B50D936A1204D0266E54BC4DF719
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Proprofiling, Алексей Филатов, Илья Анищенко | Как 
 ```bash
 magnet:?xt=urn:btih:29F19417FF68D984AC76B2FFEC38074E9C3D1AAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ Skillbox, Даниил Пилипенко, Сурен Хоренян | Python-ф
 magnet:?xt=urn:btih:FB99AE3523CDC76939509C0169763E8F690B6B97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Skillbox, Алексей Pixelord, Сергей Saburov, Анна A.Fruit и д�
 ```bash
 magnet:?xt=urn:btih:189B9FD8E2F86E932DBDB906F89145AFAF272048
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ magnet:?xt=urn:btih:189B9FD8E2F86E932DBDB906F89145AFAF272048
 magnet:?xt=urn:btih:417CD54A57A74F7D2EA3F5DAA440C9AB19F2FFA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ Focus Film International Ltd., Кеннет Кнолл | Камасутра - п
 ```bash
 magnet:?xt=urn:btih:7F0D222DC2D7CA4B358E0B3D77BB5F63548A17BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +191,8 @@ Excel — самая популярная программа для работы
 magnet:?xt=urn:btih:71310AA419B0DF42695D85E23A41FABE07A84CB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ KalachevaSchool, Татьяна Головко | Digital сафари. Тари�
 ```bash
 magnet:?xt=urn:btih:3C83300628FDBDA6F61887A21715F81074BB1E5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +248,8 @@ magnet:?xt=urn:btih:3C83300628FDBDA6F61887A21715F81074BB1E5A
 magnet:?xt=urn:btih:1CE4731EFF1CAD0B1ABB5D6E19DF99345307BC46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +277,8 @@ magnet:?xt=urn:btih:1CE4731EFF1CAD0B1ABB5D6E19DF99345307BC46
 magnet:?xt=urn:btih:06820E89FCBBB4D92FF60B010DC1E728542F010E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +303,8 @@ Skillbox, Людмила Ганжа | Инструменты бухгалтер�
 ```bash
 magnet:?xt=urn:btih:4E02ECE2CA08D2A3332EB4EA8E2187DA635A53B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +333,8 @@ magnet:?xt=urn:btih:4E02ECE2CA08D2A3332EB4EA8E2187DA635A53B6
 magnet:?xt=urn:btih:2E8D5D89A7C6BA8EF955A3D32E5A5224F40D9020
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +360,8 @@ Liveclasses, Виталий Новиков | Как мыслят наши кли
 ```bash
 magnet:?xt=urn:btih:30644EA26FC0C9286DD9A2F1531FA834DF7F259E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +389,8 @@ Udemy, Ellen Chamilothoris | Master Any Language with ChatGPT: Boost Your Langua
 magnet:?xt=urn:btih:CB86A4CCF63D3114ECE968A47DC7417A5AB391C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +415,8 @@ magnet:?xt=urn:btih:CB86A4CCF63D3114ECE968A47DC7417A5AB391C9
 ```bash
 magnet:?xt=urn:btih:30BBFF6046D73D15713976C6382840E63B5EF1AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +443,8 @@ Udemy, Rajesh Thakar | Foundation of Video Editing with Adobe Premiere (2023) WE
 ```bash
 magnet:?xt=urn:btih:1F58E946A37873D28D5D465024DD08BDD597F1D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +473,8 @@ magnet:?xt=urn:btih:1F58E946A37873D28D5D465024DD08BDD597F1D4
 magnet:?xt=urn:btih:8674E59DE7C262041107DFE7E37FAF50B11DFED8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +498,8 @@ Udemy, Jones Granatyr | Midjourney in 2 hours: Practical Guide for Beginners Dis
 ```bash
 magnet:?xt=urn:btih:E3ACC30948A684C96CBBBFC95A2D6AE8A96EC40B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +528,8 @@ Udemy, Konstantin Fink | Нейросети: Chat GPT от Новичка до �
 magnet:?xt=urn:btih:A1893E597ECDA56E8FD9B59F0E82C5440AB05754
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +557,8 @@ Enterclass, Софья Романова | Озимое поле (2023) WEB-DL [A
 magnet:?xt=urn:btih:C6C848E9B6DEFC63809AC550EAE6C36946CF2BF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +583,8 @@ Bratec Lis School, Элиза Талентино | Эффекты гравюры
 ```bash
 magnet:?xt=urn:btih:CABC1FB487E5EAFD5DBF5E28BF26C7A417C85F84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +611,8 @@ Marker School, Юлия Максимова | Цифровая ботаничес
 ```bash
 magnet:?xt=urn:btih:E5E49A996627CD866343AD5236ABD05A6820EA1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +641,8 @@ magnet:?xt=urn:btih:E5E49A996627CD866343AD5236ABD05A6820EA1B
 magnet:?xt=urn:btih:6D82FBEDED0A6C9F8206D43F39B0A80BABDA9EAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +669,8 @@ Liveclasses, Виталий Новиков | Как работать с возр
 ```bash
 magnet:?xt=urn:btih:F8BC30C85E55439ECD04997C7D909056D78AB358
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +699,8 @@ Udemy, Lucas Bazilio | The Complete Lua Programming Course: From Zero to Expert!
 magnet:?xt=urn:btih:8B794290C4643E63E25A59490FF7E23BBAF1B88D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -677,6 +727,8 @@ magnet:?xt=urn:btih:8B794290C4643E63E25A59490FF7E23BBAF1B88D
 ```bash
 magnet:?xt=urn:btih:1F49D441BCCA0454D32B46E54496FAF9E83CB1CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,148 @@
+###  Публикация: 1281493   (751505) от 08.02.2019
+
+Макс Барских - 7 (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751505.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Берега
+2. Никто
+3. Зачем
+4. Неземная(   Читать дальше...   )Жанр: PopПродолжительность: 00:24:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA6A4F0A54C7DF91A80B25FB4F79A247678112B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523356   (751544) от 11.01.2022
+
+Minacelentano - The complete recordings (2021) 2xCD, Compilation, Remastered, Sony Music [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Релиз, приуроченный к двадцатипятилетию первого совместного альбома Мины и Челентано - "Mina Celentano" 1998 года, достигнувшего вершины итальянского хит-парада и получившего две платиновых сертификации. В 2016 году вышел ещё один студийный альбом дуэта - "Le migliori", который превзошёл успех предшественника, получив семь платин. На этом сборнике (   Читать дальше...   )CD - 1:
+01. Niente E' Andato Perso
+02. Eva
+03. A Un Passo Da Te(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15648CA7CE5657A0D173CDD0A0D0D9C929BD2224
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281504   (751608) от 08.02.2019
+
+Ariana Grande - thank u, next (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Hip-Hop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. imagine
+02. needy
+03. NASA
+04. bloodline(   Читать дальше...   )Жанр: Pop, Hip-Hop, R&BПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A8448677C845CFE762D759FDF4C14AADD754218
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281476   (751617) от 08.02.2019
+
+Lara Fabian - Papillon (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papillon
+02. Je Suis à Toi
+03. Changer Le Jeu
+04. Par Amour(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:629C6DFB84A0F72E1AE15D0451C558A4D7BD77CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281536   (751955) от 08.02.2019
+
+Curacao - 2 Albums (1988, 1989) CD [MP3|320 Kbps] <Electronic, Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Австрийская поп-группа, основанная в 1987 году Лео Корном.01. You (3:24)
+02. Curacao (3:10)
+03. I Feel Good (3:28)
+04. Time Up For Love (4:11)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 01:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FEF3A6FDA1AC4BDEDD15CCB4FBE8256A858929E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018911   (752171) от 22.05.2016
 
 Shania Twain - Still The One: Live From Vegas (2015) [FLAC|Lossless|image + .cue] <Pop, Country>
@@ -21,6 +166,8 @@ Shania Twain - Still The One: Live From Vegas (2015) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:E95FC3E985DA1898A065B9DD1B33C1B0A56CA0B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ VA - Discomax (Mixed by A & A Mixmasters) (2012) Partially Mixed, Limited Editio
 magnet:?xt=urn:btih:64DCFB536C95DD73824CBE88FDDE2CD78F9D81F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +224,8 @@ The Beloved - Where It Is (1988) Compilation [FLAC|Lossless|tracks + .cue] <Pop 
 ```bash
 magnet:?xt=urn:btih:E3081A86161D24E0B7E325CC9B930992373D77AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +254,8 @@ VA - The Yellow Collection (2016) [MP3|320 кб/с] <Disco, Nu-Disco>
 magnet:?xt=urn:btih:348282993F6E988E1A705373F8E7FCB67C18E582
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +282,8 @@ Jason Mraz - Look For The Good (2020) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:7E3B409C049444FC594387FFFCFE9484FA289C2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +312,8 @@ Soultans - 2 Albums (1997-1998) [MP3|320 Kbps] <Pop, Soul, Funk>
 magnet:?xt=urn:btih:FC3E2811CBA35BF498BE50FC57E97FACC4171E5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +340,8 @@ Umberto Tozzi - 26 Albums (1976-2019) Collection [MP3|320 Kbps] <Pop, Pop Rock, 
 ```bash
 magnet:?xt=urn:btih:238544E8B4107B2C3F43CBA91E829A08D6CEDE61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +370,8 @@ Lara Fabian & Igor Krutoi - Mademoiselle Zhivago (2010) [FLAC|Lossless]<Pop>
 magnet:?xt=urn:btih:8CA0D9AB89BEDD41BE20B87034A5657BC6BFF61B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +398,8 @@ Edgar Winter - The Edgar Winter Album (1979) LP [MP3|320 Kbps] <Electronic, Prog
 ```bash
 magnet:?xt=urn:btih:606C9FF2BF7F2B1CA238485DF436A5FD3A8BF867
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +428,8 @@ Alan Sorrenti - 2 Albums (1979, 1980) LP [MP3|320 Kbps] <Electronic, Pop, Pop Ro
 magnet:?xt=urn:btih:E6ED796CC383B83013594B943CDF93558E58D5D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +457,8 @@ VA - Суперхиты дискотеки 90-х... продолжение (2011
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +482,8 @@ Madonna - The Complete Studio Albums (1983-2008) Box Set, 11CD, 2012, Warner Bro
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +510,8 @@ Reflection - A Whiter Shade Of Pale (1978) LP [MP3|320 Kbps] <Electronic, Funk-S
 ```bash
 magnet:?xt=urn:btih:C53B7B74AA71D620261A0F1B9A8377890D742AC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +540,8 @@ Mary Chapin Carpenter (Мэри Чапин Карпентер) - State Of The He
 magnet:?xt=urn:btih:CC965D55EF67A35736655621EFE1B067A9215C36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +568,8 @@ magnet:?xt=urn:btih:CC965D55EF67A35736655621EFE1B067A9215C36
 ```bash
 magnet:?xt=urn:btih:10B94A270302E65A7AB43E8BA3A951C9D1863256
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +598,8 @@ Ke - I Am [...] (1996) [FLAC|Lossless|image + .cue] <Rock, Funk, Pop>
 magnet:?xt=urn:btih:72144767B98B361C6C365C1DC4787188FD7F4341
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +626,8 @@ VA - Super Hits Of The '70s: Have A Nice Day (1990-1996) 25CD [MP3|320 кб/с] 
 ```bash
 magnet:?xt=urn:btih:F0431B314B0C064029576B1478D2812EEFF8E30A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +656,8 @@ George Baker - Diamond Star Collection (1996) Unofficial Release [APE|Lossless|i
 magnet:?xt=urn:btih:7195846E09C37D37E3A0C07D48080EEB5C509233
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +684,8 @@ VA - The 80s (2003) [FLAC|Lossless]<Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:5E4F1D3834CB64C6CEE316FC3B9B459FF34FDF20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +714,8 @@ magnet:?xt=urn:btih:5E4F1D3834CB64C6CEE316FC3B9B459FF34FDF20
 magnet:?xt=urn:btih:090033AF1DBCAC13FECDD3E0C6E493B030A0AD3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,143 +743,7 @@ Arp-Life - Jumbo Jet (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 magnet:?xt=urn:btih:30F9AFF776188FC520CB425519D4AEAB3689458B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215596   (758221) от 26.03.2018
-
-Yan Tregger - Christopher Ried - Ducks & Drakes (1979) LP [MP3|320 Kbps] <Electronic, Psychedelic, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Friend Island (3:31)
-02. The Girl in the Gold (2:52)
-03. Dawn and Darkness (3:35)
-04. The Ivy Heart (0:18)(   Читать дальше...   )Жанр: Electronic, Psychedelic, DiscoПродолжительность: 00:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75B6887D884049DA258FA0684119D7D35D26698A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 662272   (758558) от 29.05.2013
-
-София Ротару - Звездная серия (2CD) (1999) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758558.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1Жанр: PopПродолжительность: 01:19:35
-
-01.Червона рута (3:52)
-02.Черемшина (3:24)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280510   (758724) от 04.02.2019
-
-Анна Резникова - Навсегда (2001) [FLAC|Lossless|image + .cue]<Рор>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Навсегда 4:24
-02. Прощальные слова 3:58
-03. Кто в доме генерал? 3:48
-04. Лист любви 4:42(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D56202B7D04F4EB17655BF016E9DC5FB9B4AE0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280512   (758726) от 04.02.2019
-
-Татьяна Лихачёва - Кофе с перцем (2002) [FLAC|Lossless|image + .cue]<Рор>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Всё теперь не так...
-02. Любовь - холодная война
-03. Кофе с перцем
-04. Я хочу забыть тебя(   Читать дальше...   )Жанр: РорПродолжительность: 00:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:054CA2665687AF277DA25D705ECAAEA4B7A3F27C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018015   (759271) от 18.05.2016
-
-Dave Edmunds - 2 Albums (1983, 1984) [MP3|320 кб/с] <New Wave, Pop Rock, Rock & Roll>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британский певец, гитарист и продюсер.
-Имел множество хитов в 1970-х и начале 1980-х годов.
-Наиболее известными стали эти два альбома, сделанных и спродюсированных совместно с лидером группы E.L.O. Джеффом Линном (Jeff Lynne), чей стиль
-исполнения невозможно не узнать!01. Slipping Away   (4:22)
-02. Don't You Double   (3:16)
-03. I Want You Bad   (2:36)
-04. Wait   (4:11)(   Читать дальше...   )Жанр: New Wave, Pop Rock, Rock & RollПродолжительность: 01:12:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2807C66814CFB4F74D988F358FB71967CD1378C8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

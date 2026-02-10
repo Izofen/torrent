@@ -19,6 +19,8 @@ AOMEI Backupper – программа для создания резервно�
 magnet:?xt=urn:btih:3E4E713AE19A306438F2C4CA67DE0BEFB9E33D5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ ReviverSoft PC Reviver - мощный многофункциональный и�
 ```bash
 magnet:?xt=urn:btih:D2ECC853884C7A786E7BB01D382649620915D26E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ ClassicDesktopClock - простые и красивые классически�
 magnet:?xt=urn:btih:571D7F070AA51C7377ECA0681778013D4DF92510
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ GPU Caps Viewer - информационная утилита, позволяю�
 ```bash
 magnet:?xt=urn:btih:9B8535904C842B73DD18A97EF5CFF6BE863880CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ GPU Shark - небольшая бесплатная и очень простая
 magnet:?xt=urn:btih:EE4BDBB989B6DC2D870B4CAC0552942EF0751016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Air Explorer Pro — один из лучших файловых менедже�
 ```bash
 magnet:?xt=urn:btih:103961CDAB9EB6FD6EED81EBAF884C603BA53959
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ GameSave Manager - незаменимая программа для любите
 ```bash
 magnet:?xt=urn:btih:60A9EADF0964C36D71E0F4F7C60B37E7326F6B1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ ToDesk — это программное обеспечение для удал�
 magnet:?xt=urn:btih:96B12DC2A6129D9FA23FE1EF2A91FCC7840DE069
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Driver Reviver – это приложение, которое проскани�
 ```bash
 magnet:?xt=urn:btih:2C05672997994F0ED9B04D2A6E38F95AF2B87BB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ AutoRuns - утилита для контроля автозагрузки пр�
 magnet:?xt=urn:btih:27A9B3FE68E905FDCEB3AF0CE935BD47827028D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Cobian Reflector - это программа, позволяющая польз�
 ```bash
 magnet:?xt=urn:btih:84C79612B5BAC489E82E24A664B06ECCFA845ECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Modern Tweaker - программная оболочка для твиков Win
 magnet:?xt=urn:btih:DF8E555948D527F933A5FFAAB3484D5C68E110C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:198543A75A0E04D8E90D1CCD660748C7426931B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:7283489011938FEA5BDB688B94A0EE5A359229C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:A936EB5857441AB8BDFA57CDCBADC8F95F3CFE4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ O&O Defrag Professional – инструмент дефрагментации д
 magnet:?xt=urn:btih:EB99B9DF7A1B30339AFC9700881645D2426D0BE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ MediaHuman YouTube Downloader 3.9.17 (1010) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:C29FE3FEFB4A23B7A134FAF8B4584560351F7AC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ PIDKey Lite предназначена для просмотра, обновле
 magnet:?xt=urn:btih:7E1411D37D58F125E356E2ED4A8F6A1C880B4608
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:6E880F7416B360387C6B34EF47D72DCFCD6E99BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ DBF Viewer 2000® - приложение для просмотра и редак
 magnet:?xt=urn:btih:BE40F8ADB71FE4FFE7F643E1AAE07E33C712A782
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ MediaHuman YouTube Downloader 3.9.17 (1010) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2C24ED2CC6D108201A414AC033261753E1FEF509
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ Karing - Утилита прокси с простым и мощным инте�
 magnet:?xt=urn:btih:3AC8BEBDFC67B417471F722AB4091DBEC53A02F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ AnyDVD HD - это программа для дешифрования CSS и с�
 ```bash
 magnet:?xt=urn:btih:81A0A6D8E64C5DA85D3F800759C0CA214FBCA61C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ Hetman RAID Recovery - это универсальное решение для �
 magnet:?xt=urn:btih:8728E6C80E2C5FC32BEA5FA0E8DF4F4820A5EC71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ Wise Duplicate Finder Pro 2.1.1.61 [Multi/Ru]
 magnet:?xt=urn:btih:70BBDF0AFE8BEFE143DE594345E7F6CC6D8F6586
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ HiBit System Information - программа для получения инфо
 ```bash
 magnet:?xt=urn:btih:FF4FAC9402B5E5807D700744D23709485C26D623
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

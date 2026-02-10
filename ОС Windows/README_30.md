@@ -1,3 +1,29 @@
+###  Публикация: 1504436   (811525) от 23.10.2021
+
+Microsoft Windows 11 x64 Release by StartSoft 03-2021 [Ru/En]
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка предназначена для установки на компьютеры Windows 11 с архитектурой разрядности x64 bit. В ее состав входит загрузочный образ ISO который предназначен для записи на флешку размером от 32 Гигабайт и выше. Загрузочная флешка, созданная на его базе, поддерживает установку операционной системы с компонентами офисного пакета Microsoft Office 2021 Standart с русскоязычным, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF9DCD2789E97E406B3F670A3ED8BC046F071764
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382856   (812810) от 14.05.2020
 
 Microsoft Windows 10.0.19041.208 Version 2004 - Оригинальные образы от Microsoft MSDN [Ru]
@@ -19,6 +45,8 @@ Microsoft Windows 10.0.19041.208 Version 2004 - Оригинальные обр�
 ```bash
 magnet:?xt=urn:btih:0F49E6840F7C774E26C0102B60AA79FDC98E83A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ Windows Server SAC - канал Semi-Annual Channel идеально подхо�
 magnet:?xt=urn:btih:D7095A0C80D1A13AAB3D292BD87E36C9D06290CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:D7095A0C80D1A13AAB3D292BD87E36C9D06290CA
 ```bash
 magnet:?xt=urn:btih:7682D32143702CF5E4D71EC825E8CD245B136286
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ Windows 10 (60in2) Sergei Strelec x86/x64 1909 (build 18363.836) [Ru]
 magnet:?xt=urn:btih:2FA049137B690BA77F40D15C0144D4D598E47279
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ Microsoft Windows 10 Insider Preview, Version 21H2 [10.0.19044.1288] - Ориг�
 ```bash
 magnet:?xt=urn:btih:DD0BC350B5C77EA442CA0ABB22FF56DCB5531D5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ Microsoft Windows 10.0.19041.208 Version 2004 - Оригинальные обр�
 magnet:?xt=urn:btih:80A3E2EA946720222CEF94046513E96085C9E441
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ Microsoft Windows 11 [10.0.22000.258], Version 21H2 (Updated October 2021) - О�
 ```bash
 magnet:?xt=urn:btih:5C2C8704AA282D23EAD3B5583DFE0BA387FFEF8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +233,8 @@ Microsoft Windows 10.0.19043.1288, Version 21H1 (Updated October 2021) - Ори�
 magnet:?xt=urn:btih:2D567D40EB579C8C6E8F608CEE899D228708F44D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +260,8 @@ Microsoft Windows 11 Insider Preview [10.0.22483.1000], Version Dev - Ориги
 magnet:?xt=urn:btih:F324C1B7E1BCE0985563B28D0437EA70585448D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +285,8 @@ Windows Server 2022 впервые обеспечивает расширенну
 ```bash
 magnet:?xt=urn:btih:94D299DAA56498BD4438A6FB5D77FE04DD597A54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +313,8 @@ Microsoft Windows 11 Insider Preview [10.0.22483.1000], Version Dev - Ориги
 magnet:?xt=urn:btih:E3592F7B826B4693994FDA9E16BD862DB679E2DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +339,8 @@ Microsoft Windows 10 Insider Preview, Version 21H2 [10.0.19044.1288] - Ориг�
 ```bash
 magnet:?xt=urn:btih:A79E40862FE2F7A52148E4C93AFA5271C9B34398
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +369,8 @@ Recovery USB-Flash for Asus K501UX / Windows 10 Home (х64) [Ru]
 magnet:?xt=urn:btih:8DDACA565516046182965AF1BAB664E35B811899
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +395,8 @@ Microsoft Windows 10.0.19043.1288, Version 21H1 (Updated October 2021) - Ори�
 ```bash
 magnet:?xt=urn:btih:02C1FB844EE97091A9CF9C0AB6B66AC929C6DA94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +423,8 @@ Microsoft Windows 10.0.19042.1288, Version 20H2 (Updated October 2021) - Ори�
 magnet:?xt=urn:btih:F4A9E42DAF4751ECCA98D4D1B60586D245C6B147
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +449,8 @@ Microsoft Windows 11 [10.0.22000.258], Version 21H2 (Updated October 2021) - О�
 ```bash
 magnet:?xt=urn:btih:5835DE13A01BE5D23413FA6764DDD72F53CB8ECF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +477,8 @@ Microsoft Windows 10.0.19042.1288, Version 20H2 (Updated October 2021) - Ори�
 magnet:?xt=urn:btih:9668C76AB19F18EB3125BDA356EF7EB57A71BE01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +502,8 @@ Windows Server SAC - канал Semi-Annual Channel идеально подхо�
 ```bash
 magnet:?xt=urn:btih:94A38B7FBDF5C93D59E744F90E208F11E504CD56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +530,8 @@ Microsoft Windows 10.0.19041.1288, Version 2004 (Updated October 2021) - Ори�
 magnet:?xt=urn:btih:3AF571EC6025910C5958993F0A0C86C144F4AAB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +557,8 @@ Microsoft Windows 10.0.19041.1288, Version 2004 (Updated October 2021) - Ори�
 magnet:?xt=urn:btih:ACC35437942A49B58C71D3D0264FB9B36759598B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +582,8 @@ Microsoft Windows x64 Release by StartSoft 02-2021 [Ru]
 ```bash
 magnet:?xt=urn:btih:C1F44E17D94E2235E2374C9D84D878BBD78FEF60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +612,8 @@ Recovery USB-Flash for Lenovo G5080 / Windows 8.1 (х64) [Ru]
 magnet:?xt=urn:btih:3F10D693BB42C5E629061BA58C5F1D5E7D2B91AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +638,8 @@ Windows 7 с интегрированным пакетом обновления 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +663,8 @@ Recovery USB-flash for Acer Predator Helios 300 PH317-52 / Windows 10 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:17542C07A4F01FC8B87709B172D3CC6BE88C06B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,29 +691,7 @@ Microsoft Windows 11 [10.0.22000.194] - Оригинальные образы о
 magnet:?xt=urn:btih:63DD5E5BF8A4802F8224A25DAC4C08B14414DEE2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004387   (835745) от 07.04.2016
-
-Microsoft Windows 8.1 Pro for Education with Update [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 8.1 (ранее известная как «Windows Blue») является комплексным обновлением для Windows 8. В новой версии Microsoft не отступается от интерфейса Modern UI (правильное название интерфейса, ранее называемого Metro). Windows 8.1 добавляет в пользовательский интерфейс множество настроек, наряду с некоторыми новыми и обновлёнными приложениям – и всё для того, чтобы (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5356D672026189DCAEEDB18B1ECB1DF2EF4738DC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

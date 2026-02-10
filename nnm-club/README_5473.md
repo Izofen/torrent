@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:6720C1EFCAC4B0D3CAC1C5343EBCBF17AE6254B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:6720C1EFCAC4B0D3CAC1C5343EBCBF17AE6254B8
 ```bash
 magnet:?xt=urn:btih:C08A0935467AF5B70093A753A7CFDF0A1C41ECB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mo
 magnet:?xt=urn:btih:9640B4A55CAA8A0BE27A3365F9611E37C6780C0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:9640B4A55CAA8A0BE27A3365F9611E37C6780C0B
 ```bash
 magnet:?xt=urn:btih:B9B8FCFFD69E518E9D4D8D2BFA9942F9DD70EB1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Sophie - 3 Albums (1989 - 1995) CD [MP3|320 Kbps] <Electronic, Italo-Disco, Euro
 magnet:?xt=urn:btih:EBF96F8A31A926C435EDB8AF3DFA2DEC21E626EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:EBF96F8A31A926C435EDB8AF3DFA2DEC21E626EC
 ```bash
 magnet:?xt=urn:btih:6894094CFE944222577CBC07994A275F7D625EAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Sublime Merge - клиент системы контроля версий, ко�
 magnet:?xt=urn:btih:FF46E815E70FBE1671360E051318B71CB4CF68BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:FF46E815E70FBE1671360E051318B71CB4CF68BC
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:3EC8577771B2FF25DB7753BD97A4671B1CB9557B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Calibre — это утилита с набором функций, необхо
 magnet:?xt=urn:btih:E04BDA5903E927AA06F484116597B9EECF97F936
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Sound Siphon делает аудиовыход вашего Mac доступны
 ```bash
 magnet:?xt=urn:btih:00009D1EDAFCFD31C5D318D05423ED8257A882FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:00009D1EDAFCFD31C5D318D05423ED8257A882FC
 magnet:?xt=urn:btih:30ED24F1E50B4634C647971BD165C626E5EFDD41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ XnView позволяет быстро и легко просматривать,
 ```bash
 magnet:?xt=urn:btih:40018BD581616889A66768FB3ECCAE4FCADC225D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Maxim является абсолютно уникальным журналом 
 magnet:?xt=urn:btih:C1919F1BF8BFE15BAF34089EEFD1C3171090E803
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ CamScanner - Мощное приложение для сканирования. 
 ```bash
 magnet:?xt=urn:btih:95545514E93CDD5D941E801C38346EB82D94E2C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ Mozergush - 2 Albums (2007-2008) [FLAC|Lossless|image + .cue] <Stoner, Doom Meta
 magnet:?xt=urn:btih:1674D63693245475ABD8B2EB06A2FB737351B924
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:1674D63693245475ABD8B2EB06A2FB737351B924
 magnet:?xt=urn:btih:6CE7B28A95381E6A8DB73AD7FC7AA10294038E63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ LEGO CITY Undercover (2017) [Switch] [EUR] [NSZ] [License / 1.0.2] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8FA0CDC1F3922171B21F73D4CEE3CDB671BD5CBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ Magic Sort List поставляется с нашим революционны�
 magnet:?xt=urn:btih:81ECC4F4F6D8950EE6B13759CF0CAA0CEBB4AE19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ Neon Mood Slideshow - Создайте невероятную атмосферу
 ```bash
 magnet:?xt=urn:btih:2C352EF5BEB5649C29985E4BA4D29FD9C8F44A1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ SyncTime - самое простое решение для синхрониза�
 magnet:?xt=urn:btih:ED37B1CEB1458331DCDEB2B2DCBDB8FAE0467919
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ Maxthon Browser — многофункциональный браузер со �
 ```bash
 magnet:?xt=urn:btih:6985D8DC350F3D6684C54DCD2A8A37A3AEFB2FCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:6985D8DC350F3D6684C54DCD2A8A37A3AEFB2FCB
 magnet:?xt=urn:btih:97B6594669DAD734760315719D7F581D282B5980
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ magnet:?xt=urn:btih:97B6594669DAD734760315719D7F581D282B5980
 ```bash
 magnet:?xt=urn:btih:9F5BE4D1F355FDFB9723E5E66E5F3C62456CF27B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:9F5BE4D1F355FDFB9723E5E66E5F3C62456CF27B
 magnet:?xt=urn:btih:D93B93119C38CF5E05556B43CCDC58491E2D31D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ magnet:?xt=urn:btih:D93B93119C38CF5E05556B43CCDC58491E2D31D5
 ```bash
 magnet:?xt=urn:btih:FFF4ACEC73AA160BEE3F1241297E30326DD01039
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

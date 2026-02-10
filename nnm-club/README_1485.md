@@ -19,6 +19,8 @@ XRecode 3 - популярный и мощный аудиоконвертер, �
 magnet:?xt=urn:btih:CFBF7D26E561FDB79D8136A3C72B65CE09ECD271
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:CFBF7D26E561FDB79D8136A3C72B65CE09ECD271
 ```bash
 magnet:?xt=urn:btih:621621B295BA49C32B02B7ED9246469A4AB85AE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ PdfSAM - бесплатная и простая в использовании у
 magnet:?xt=urn:btih:176ED270B5AE760020447A2ADBC3FB4355EF64E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:176ED270B5AE760020447A2ADBC3FB4355EF64E9
 ```bash
 magnet:?xt=urn:btih:F0F860EEDB08F6531B287BE4877BB477F9C3BEE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:F0F860EEDB08F6531B287BE4877BB477F9C3BEE8
 magnet:?xt=urn:btih:99CCB522569027A110CAF89193C9F721AD8E2646
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ WizTree - небольшая и полезная утилита для опре�
 ```bash
 magnet:?xt=urn:btih:0C484A22D623664925A97FB0D3C7F6672D0DD378
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Houkago Shounen Hanako-kun (2024) | After-school Hanako-kun (2024) | Ханак�
 magnet:?xt=urn:btih:B087B04FE9B24A9CB8BF965B46C00EAC599B4254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:1E413B656D6286818653279AA777B65612E12387
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ VA - Drum & Bass Party Hits, Mini Mix Vol. 1 - Extended Versions (2024) [MP3|320
 magnet:?xt=urn:btih:21438EA6917E26D47C220505E2B8952C90B8DD31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ VA - Music News For Forum vol.036 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:DCCFB5438A324436096E8FC9AD9AABD574321E72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:DCCFB5438A324436096E8FC9AD9AABD574321E72
 magnet:?xt=urn:btih:2CD1A882DE5123CD58DBC75D5A33132223168136
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:2CD1A882DE5123CD58DBC75D5A33132223168136
 magnet:?xt=urn:btih:4968A985A97E91338AD9F2898ACAB19F72B76333
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:4968A985A97E91338AD9F2898ACAB19F72B76333
 ```bash
 magnet:?xt=urn:btih:1BC6A49EEBF09C951DC6FFB48C7E8C5BA6597C23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ Aleksey Boychenko - Compilation of enigmatics (2024) [MP3|320 Kbps] <Enigmatic, 
 magnet:?xt=urn:btih:E1AF6FDF41F403E467C66265BC34B35C3A640FDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:E1AF6FDF41F403E467C66265BC34B35C3A640FDA
 magnet:?xt=urn:btih:84F930FB77FF8CA54F5950E6F742146E8D272783
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:84F930FB77FF8CA54F5950E6F742146E8D272783
 ```bash
 magnet:?xt=urn:btih:46B396B41D4BC6EBE560C9B5B4500C215B704A1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ Picture Mushroom — распознавайте грибы мгновенно. �
 magnet:?xt=urn:btih:04E17B5EE22325DDA2E0E3E9E2BC01C94FCFE1E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:04E17B5EE22325DDA2E0E3E9E2BC01C94FCFE1E0
 magnet:?xt=urn:btih:B7E4E7BF8135CF6FACE332C193C4017E05159CE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:B7E4E7BF8135CF6FACE332C193C4017E05159CE0
 ```bash
 magnet:?xt=urn:btih:F004AE41C01983294AFB71CF3401B9BB3DF37B42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ Evil West (2022) [Ru/Multi] (1.0.5/dlc) Repack Wanterlude
 magnet:?xt=urn:btih:8D51A34F9757DE000697229D2FAFFFF0F10F824C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:8D51A34F9757DE000697229D2FAFFFF0F10F824C
 ```bash
 magnet:?xt=urn:btih:97D1978A874C15026FFAF297A3EF862370DBB704
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ Finding Frankie (2024) [Ru/Multi] (1.0.0) Scene Tenoke
 magnet:?xt=urn:btih:0EB903DBE4E1FB4939244EADB065C3F7C5BE08DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:0EB903DBE4E1FB4939244EADB065C3F7C5BE08DC
 ```bash
 magnet:?xt=urn:btih:12238230B7BAAD2DDA4A18CAF2519E96F0996AB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:12238230B7BAAD2DDA4A18CAF2519E96F0996AB1
 magnet:?xt=urn:btih:4A92687B709E2C28180E0170DB7D2A6D99856A39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ The Coma 2B: Catacomb - корейская приключенческая игр
 magnet:?xt=urn:btih:36775F509416F63A548650AA2729E1B38352E004
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ NirLauncher Package - универсальный пакет из более че
 ```bash
 magnet:?xt=urn:btih:3D5FD8FFA511A3C4D80565B712F14EAA315F5D77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

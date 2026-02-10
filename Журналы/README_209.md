@@ -1,27 +1,3 @@
-###  Публикация: 959502   (317078) от 24.11.2015
-
-Журнал | Делаем сами №22 (ноябрь 2015) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Делаем сами» - полезные советы домашним мастерам и мастерицам - тем, кто шьет и вяжет, строит и ремонтирует, придумывает и творит. Для тех, кто любит делать красивые и полезные вещи своими руками, создает уют в доме. Схемы, чертежи и описания самоделок, другая полезная информация.Жанр: домоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F75AF36EBF1AF2C6D3D7F3307929BB11BDAD22F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182493   (317143) от 10.11.2017
 
 Журнал | National Geographic History [USA] №2 (март-апрель 2017) [PDF] [En]
@@ -42,6 +18,8 @@ Start your incredible journey into the past with National Geographic History. In
 ```bash
 magnet:?xt=urn:btih:6BC0E8A8F9E752446D6D3F28D2E4DFE062F7912F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:6BC0E8A8F9E752446D6D3F28D2E4DFE062F7912F
 magnet:?xt=urn:btih:75A2A2C743A325980322224CF9FE817667D81570
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Start your incredible journey into the past with National Geographic History. In
 ```bash
 magnet:?xt=urn:btih:257407EF18E303193EF1F5EDFA9660DDD45ACEA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:257407EF18E303193EF1F5EDFA9660DDD45ACEA5
 magnet:?xt=urn:btih:DA8206F892106671638A1BF0A06AA8DB7441E7B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:DA8206F892106671638A1BF0A06AA8DB7441E7B0
 ```bash
 magnet:?xt=urn:btih:03929C3E018677AA1B823B9BA33D0B9239D11946
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:03929C3E018677AA1B823B9BA33D0B9239D11946
 magnet:?xt=urn:btih:4683D48F82D06D41FEF5E5A4742BE306AF6CE1DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:4683D48F82D06D41FEF5E5A4742BE306AF6CE1DD
 ```bash
 magnet:?xt=urn:btih:F07F6D3DDFF737172A0514D4E3B03221A69A4490
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:F07F6D3DDFF737172A0514D4E3B03221A69A4490
 magnet:?xt=urn:btih:468429D60D41EC99B63D42D9F8758398ECDA23D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:468429D60D41EC99B63D42D9F8758398ECDA23D6
 ```bash
 magnet:?xt=urn:btih:5DFB29AFB719B5E0E2C5A6DFA6ACC2D100F4264F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:5DFB29AFB719B5E0E2C5A6DFA6ACC2D100F4264F
 magnet:?xt=urn:btih:74320CF58E68A4628C45A607991ECB8791A8FE6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ magnet:?xt=urn:btih:74320CF58E68A4628C45A607991ECB8791A8FE6A
 ```bash
 magnet:?xt=urn:btih:F2752D6857D2F78EB6EC3FE97AF359829517631F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:F2752D6857D2F78EB6EC3FE97AF359829517631F
 magnet:?xt=urn:btih:9CCDFE47186F61F12345D2E59BBE3E248DCE093E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ magnet:?xt=urn:btih:9CCDFE47186F61F12345D2E59BBE3E248DCE093E
 ```bash
 magnet:?xt=urn:btih:7B470EC3ADA5EA1459A309BBD0547E8B113069F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:7B470EC3ADA5EA1459A309BBD0547E8B113069F8
 magnet:?xt=urn:btih:A474F230B5F3DBBBA79759AEE748130FA238ADD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +383,8 @@ magnet:?xt=urn:btih:A474F230B5F3DBBBA79759AEE748130FA238ADD3
 magnet:?xt=urn:btih:342C2261F22372A7DAB662BFC720A48B3CA748C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +408,8 @@ magnet:?xt=urn:btih:342C2261F22372A7DAB662BFC720A48B3CA748C2
 ```bash
 magnet:?xt=urn:btih:17064CE9233D5CA496D6D7477CE6730D86381ED3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +436,8 @@ magnet:?xt=urn:btih:17064CE9233D5CA496D6D7477CE6730D86381ED3
 magnet:?xt=urn:btih:AF470760C0F2B43B8F8965E86002B971C87FCCBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +461,8 @@ magnet:?xt=urn:btih:AF470760C0F2B43B8F8965E86002B971C87FCCBB
 ```bash
 magnet:?xt=urn:btih:7A362125C1D1C988BCFE6877CBEC518AD22D127E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +488,8 @@ magnet:?xt=urn:btih:7A362125C1D1C988BCFE6877CBEC518AD22D127E
 magnet:?xt=urn:btih:934D36387A971F1F42FE41A85261687ABBB2941B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +513,8 @@ magnet:?xt=urn:btih:934D36387A971F1F42FE41A85261687ABBB2941B
 ```bash
 magnet:?xt=urn:btih:72C2E9889654E45D39C74B3BD1692E503652B9AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +540,8 @@ magnet:?xt=urn:btih:72C2E9889654E45D39C74B3BD1692E503652B9AB
 magnet:?xt=urn:btih:37D843F6BBAF730E5049AB3EA6E62639FAB91EF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +565,8 @@ magnet:?xt=urn:btih:37D843F6BBAF730E5049AB3EA6E62639FAB91EF6
 ```bash
 magnet:?xt=urn:btih:EAA4C0913AC382E222F8587A2CE02D1DFCEC90F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +592,8 @@ magnet:?xt=urn:btih:EAA4C0913AC382E222F8587A2CE02D1DFCEC90F6
 magnet:?xt=urn:btih:48A2C89F84EBC51EDF4810E9E0BC5AF94854C382
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +618,8 @@ magnet:?xt=urn:btih:48A2C89F84EBC51EDF4810E9E0BC5AF94854C382
 magnet:?xt=urn:btih:FC8A204D5FB5851A2F4232CEB4254D698FF1B08A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +643,35 @@ Linux Format (UK) - легендарный британский ежемесяч
 ```bash
 magnet:?xt=urn:btih:7B708A26EF1C6E0C638FA477ECE53810F2AC1F71
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182188   (318955) от 09.11.2017
+
+Журнал | Системный администратор №10 (октябрь 2017) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318955.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Системный администратор» – ежемесячное издание, цель которого – предоставление максимально полной и объективной информации о решениях, продуктах и технологиях современной ИТ-отрасли.
+Главная задача издания – популяризация лучших разработок ИТ-специалистов разных стран. Девяносто процентов статей в журнале носят прикладной характер, снабжены примерами, таблицами, (   Читать дальше...   )Жанр: Компьтерный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D9D13FE60026466F9B47E6B0D14047E370B319
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

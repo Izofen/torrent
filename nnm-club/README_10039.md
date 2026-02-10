@@ -1,57 +1,3 @@
-###  Публикация: 957434   (327651) от 17.11.2015
-
-Phildel - The Glass Ghost (2013) EP [MP3|320 кб/с]<Alternative Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven: An Introduction
-02. The Glass Ghost
-03. Comfort Me
-04. Celestial(   Читать дальше...   )Жанр: Alternative Pop, Indie PopПродолжительность: 00:23:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CBA7F987C43F9E8562505B780C15674D417847A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957069   (327652) от 17.11.2015
-
-VA - Clifford Brown Brownie Speaks: The Complete Blue Note Recordings (2014) [MP3|320 кб/с]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327652.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Get Happy (4:53)
-02.  Lover Man (3:56)
-03.  Capri (3:42)(   Читать дальше...   )Жанр: JazzПродолжительность: 03:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A119843155468409FBAB718086823B4D21F8085F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957047   (327653) от 17.11.2015
 
 Miles Davis Quintet with John Coltrane - The 1960 German Concerts (2010) Jazz Lips Music[FLAC|tracks+.cue]<Hard Bop>
@@ -75,6 +21,8 @@ Miles Davis Quintet with John Coltrane - The 1960 German Concerts (2010) Jazz Li
 ```bash
 magnet:?xt=urn:btih:2F3CAC071C5D9E8CB4DC1987C10F8BD6D4A946FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +51,8 @@ CD1:
 magnet:?xt=urn:btih:DF7B5A86352613C9429D0C4624A2E8E045B298C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +80,8 @@ Days Of Jupiter - Secrets Brought To Life (2012) [MP3|320 кб/с]<Hard Rock>
 magnet:?xt=urn:btih:975B49210778470631B3BA9E3E50AD2C3AB938B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +106,8 @@ TrancEye pres. Skull Crusher - Hexen (2015) Single [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:C6171F8ECCAACB26142C3809DE1DFECBD3305D77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +131,8 @@ magnet:?xt=urn:btih:C6171F8ECCAACB26142C3809DE1DFECBD3305D77
 ```bash
 magnet:?xt=urn:btih:585B68D2CAE54493D7132F01C26EDAE1BFC334D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +161,8 @@ Tony Bennett & Bill Charlap - The Silver Lining: The Songs Of Jerome Kern (2015)
 magnet:?xt=urn:btih:783D74A454E53DFB920F19DCA5C50B2053E26059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +189,8 @@ magnet:?xt=urn:btih:783D74A454E53DFB920F19DCA5C50B2053E26059
 magnet:?xt=urn:btih:BB20282102ECC4EEC75BDDB25183B6EF1305094D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +215,8 @@ magnet:?xt=urn:btih:BB20282102ECC4EEC75BDDB25183B6EF1305094D
 magnet:?xt=urn:btih:80C76BB1C358558F39259C2D11A717F3F484F7B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +240,8 @@ magnet:?xt=urn:btih:80C76BB1C358558F39259C2D11A717F3F484F7B4
 ```bash
 magnet:?xt=urn:btih:333D9AEFE1BE7799ADE1BD7BA155ABF7A517C015
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +270,8 @@ VA - Sunrise Avenue Vol 4 (20 Lounge & Chill-Out Pearls) (2015) [MP3|320 кб/с
 magnet:?xt=urn:btih:200B65A57BF1AA639F851159EEC240678773BF9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +298,8 @@ Sound Of Memories - To Deliverance (2015) [MP3|320 кб/с]<MDM>
 ```bash
 magnet:?xt=urn:btih:10FE0A46072887450BECD084575A1E4FCCD01B3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +328,8 @@ VA -  Driving Melodic & Trance Songstarters (2015) [MP3|320 кб/с]<Trance, Upl
 magnet:?xt=urn:btih:D77B4C8404D0A4E75ABD8BA5238300ED84FB1A0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +354,8 @@ magnet:?xt=urn:btih:D77B4C8404D0A4E75ABD8BA5238300ED84FB1A0A
 magnet:?xt=urn:btih:B25E95ACD987525DB0E8E55E246C20D0FA8BA33E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +379,8 @@ magnet:?xt=urn:btih:B25E95ACD987525DB0E8E55E246C20D0FA8BA33E
 ```bash
 magnet:?xt=urn:btih:DD22CE882BFA8966B1BF7C9671F3C785B12F4173
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +409,8 @@ VA - Recoverworld Radio 002 (Mixed by Rich Smith) (2015) [MP3|320 кб/с]<Tranc
 magnet:?xt=urn:btih:CC620BB9D169309BA9E1214715216AB3D16548AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +437,8 @@ Dave Pike & Charles McPherson - Bluebird (1988) 2015, Timeless Records[FLAC|trac
 ```bash
 magnet:?xt=urn:btih:0FB1049ECA0583EB90A5C9E75B4340D4979B8F11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +467,8 @@ VA - 5 Years Of Clear Conceptions  (2015) [MP3|320 кб/с]< Drum And Bass >
 magnet:?xt=urn:btih:325E697E59D0B93E78263543314E6B70592FAAB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +492,8 @@ magnet:?xt=urn:btih:325E697E59D0B93E78263543314E6B70592FAAB1
 ```bash
 magnet:?xt=urn:btih:000B511576FE8EA77920E530D9455A5CDCC1F0E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +520,8 @@ magnet:?xt=urn:btih:000B511576FE8EA77920E530D9455A5CDCC1F0E5
 magnet:?xt=urn:btih:0AC38557AE25BD83C0F543658A9371DE4F5D4409
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +547,8 @@ magnet:?xt=urn:btih:0AC38557AE25BD83C0F543658A9371DE4F5D4409
 magnet:?xt=urn:btih:2F4A2E02A796C51CD905CEA3F121D191F4B88586
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +573,8 @@ Need for Speed Hot Pursuit разрабатывается студией Criteri
 magnet:?xt=urn:btih:DEBC06273487A896B819DF9249EC8296099354A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +598,8 @@ magnet:?xt=urn:btih:DEBC06273487A896B819DF9249EC8296099354A5
 ```bash
 magnet:?xt=urn:btih:1BB0838AF40173D5717295179B76BC5EB99ABAF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +626,8 @@ magnet:?xt=urn:btih:1BB0838AF40173D5717295179B76BC5EB99ABAF6
 magnet:?xt=urn:btih:683A7EF03177B6028D497394E1C7342F1CAFB57C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +651,60 @@ magnet:?xt=urn:btih:683A7EF03177B6028D497394E1C7342F1CAFB57C
 ```bash
 magnet:?xt=urn:btih:274AF9382C0E718AC8DA733ED16E65BE4AD2C986
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 765237   (327778) от 04.10.2022
+
+Шрек / Shrek (2001-2010) Blu-Ray 3D [1080p] [Complete Collection]
+
+>>След.
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чем бы еще заняться огру, который уже сразился со злым драконом, спас прекрасную принцессу и уберег от беды королевство родственников по линии жены? Что ж, если вы Шрэк, то, сами того не заметив, вы вдруг сядете дома и станете наслаждаться покоем в кругу семьи. Вместо того чтобы как раньше пугать деревенских жителей, теперь Шрэк, хоть и с неохотой, но соглашается (   Читать дальше...   )Производство: США / DreamWorks SKGЖанр: Мультфильм, Фэнтези, Приключения, Комедия, СемейныйРежиссер: Майк МитчелПеревод: Полный дубляж, вкл. песниЯзык субтитров: Немецкий, Английский, Испанский, Французский, Итальянский, Корейский, Китайский, Датский, Португальский, Русский, ТурецкийПродолжительность: 01:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3006B578899E79A16E72ED39389914965A89E665
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546819   (327779) от 04.10.2022
+
+Обручённые кукушками | Сведённые кукушкой | Kakkou no Iinazuke | A Couple of Cuckoos [2022, TV, 24 из 24] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ещё младенцем Нáги Умино стал жертвой случая — его перепутали в роддоме с другим ребёнком. Спустя шестнадцать лет Нáги выпадает шанс увидеться со своими настоящими родителями, но и здесь судьба подкидывает ему сюрприз. По пути Нáги встречается с Эрикой Амáно, которую по ошибке принимает за самоубийцу. Пользуясь случаем, девушка рассказывает растерянному (   Читать дальше...   )Производство: Япония / Студия Shin-Ei Animation, SynergySPЖанр: Комедия, романтикаРежиссер: Акаги ХироакиЯзык озвучки: Русский многоголосый, закадровый (AniLibria.TV), ЯпонскийСубтитры: Русские (Софтсаб на надписи), Русские (Софтсаб полные)Продолжительность: 24 эп. по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E650667B6D5E646B6AC5CB9E9AECEA18EE95620
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

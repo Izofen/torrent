@@ -1,3 +1,31 @@
+###  Публикация: 1068943   (371539) от 05.11.2016
+
+И. И. Жерневская, Л. В. Шарманова | Куда ведет аллея сфинксов (1990) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга рассказывает о земной основе религиозных представлений древности, о происхождении религиозных обрядов, праздников, о суевериях, бытующих до сих пор.
+
+Для широкого круга читателей.Жанр: История, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:549640176AEF392E1676155514E9D4ED0B1B9CB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176294   (371612) от 21.10.2017
 
 Зоряна Ивченко | Штрудели, завиванцы, вертуты, блинные пироги, буреки (2017) [FB2]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:A6F5FCA16D517DC0161B7C952EA2DB5F628A2398
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:A6F5FCA16D517DC0161B7C952EA2DB5F628A2398
 ```bash
 magnet:?xt=urn:btih:D2144FCFBF946177129F72360C47ABE0CC3F232D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +102,8 @@ magnet:?xt=urn:btih:D2144FCFBF946177129F72360C47ABE0CC3F232D
 magnet:?xt=urn:btih:546F23CDB8CE021B52C22E0FDEAC01F1BF7B59BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +127,8 @@ magnet:?xt=urn:btih:546F23CDB8CE021B52C22E0FDEAC01F1BF7B59BA
 ```bash
 magnet:?xt=urn:btih:893EB2AF4E57FC5DF8280E8106767A5B4A8F1B50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +154,8 @@ magnet:?xt=urn:btih:893EB2AF4E57FC5DF8280E8106767A5B4A8F1B50
 magnet:?xt=urn:btih:D0310213F9E8A1952D015708330698A07DA8BE3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +179,8 @@ magnet:?xt=urn:btih:D0310213F9E8A1952D015708330698A07DA8BE3C
 ```bash
 magnet:?xt=urn:btih:BC59421CD46E52E9AD80A34EC5DB6D87DBEB177F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +207,8 @@ magnet:?xt=urn:btih:BC59421CD46E52E9AD80A34EC5DB6D87DBEB177F
 magnet:?xt=urn:btih:7248787FC6490FCFB0028AE8AF615CD3B3BD292F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +234,8 @@ magnet:?xt=urn:btih:7248787FC6490FCFB0028AE8AF615CD3B3BD292F
 magnet:?xt=urn:btih:72A7C6FE001E6B59577513B0D6CA09CE2A383F73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +260,8 @@ magnet:?xt=urn:btih:72A7C6FE001E6B59577513B0D6CA09CE2A383F73
 ```bash
 magnet:?xt=urn:btih:6FDDA94A5B7EEE5C46535EFBEB43B5F34B382361
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +289,8 @@ magnet:?xt=urn:btih:6FDDA94A5B7EEE5C46535EFBEB43B5F34B382361
 magnet:?xt=urn:btih:02E52431878B9C752B1D8EDA72A9A40994852E44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +317,8 @@ magnet:?xt=urn:btih:02E52431878B9C752B1D8EDA72A9A40994852E44
 magnet:?xt=urn:btih:977BE834977D522598C5EE895513A527D894FA5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +342,8 @@ magnet:?xt=urn:btih:977BE834977D522598C5EE895513A527D894FA5F
 ```bash
 magnet:?xt=urn:btih:DA88B3C51767835E88AE49271C7B75BA38D9EAC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +371,8 @@ magnet:?xt=urn:btih:DA88B3C51767835E88AE49271C7B75BA38D9EAC6
 magnet:?xt=urn:btih:284AB5E9F826C6817D4265BE30EFBAC34EE31EA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +396,8 @@ magnet:?xt=urn:btih:284AB5E9F826C6817D4265BE30EFBAC34EE31EA4
 ```bash
 magnet:?xt=urn:btih:23355D53354126C76ED7B7EA5B52CD1C7D240F61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +425,8 @@ magnet:?xt=urn:btih:23355D53354126C76ED7B7EA5B52CD1C7D240F61
 magnet:?xt=urn:btih:5913878414EB855BD037784838324D567D28212C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +451,8 @@ magnet:?xt=urn:btih:5913878414EB855BD037784838324D567D28212C
 magnet:?xt=urn:btih:6DE5BF69D9292B78BC0448FE14AA5930780470B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +476,8 @@ magnet:?xt=urn:btih:6DE5BF69D9292B78BC0448FE14AA5930780470B1
 ```bash
 magnet:?xt=urn:btih:671A41C3E82F8967BC7BC7322DB14CDBDAB95A59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +505,8 @@ magnet:?xt=urn:btih:671A41C3E82F8967BC7BC7322DB14CDBDAB95A59
 magnet:?xt=urn:btih:A886F6E5396DBC86CBA2182DC4BB2F527CEEED37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +530,8 @@ magnet:?xt=urn:btih:A886F6E5396DBC86CBA2182DC4BB2F527CEEED37
 ```bash
 magnet:?xt=urn:btih:50D7BD95E6AEBF9907E7ADE66A61B67117E4D399
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +559,8 @@ magnet:?xt=urn:btih:50D7BD95E6AEBF9907E7ADE66A61B67117E4D399
 magnet:?xt=urn:btih:9A88CFB550B6EA6B7A54254A13EE9F9C352294D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +584,8 @@ magnet:?xt=urn:btih:9A88CFB550B6EA6B7A54254A13EE9F9C352294D4
 ```bash
 magnet:?xt=urn:btih:3680C4FB8377B23BBC04F96D42922F366078E471
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +611,8 @@ magnet:?xt=urn:btih:3680C4FB8377B23BBC04F96D42922F366078E471
 magnet:?xt=urn:btih:442D83B1D239EA059C6681040FE3A0E0FAC5B8F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +636,8 @@ magnet:?xt=urn:btih:442D83B1D239EA059C6681040FE3A0E0FAC5B8F8
 ```bash
 magnet:?xt=urn:btih:905EBE6FAD8BAA503CC2EBFBA40293CB916A2F17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +665,8 @@ magnet:?xt=urn:btih:905EBE6FAD8BAA503CC2EBFBA40293CB916A2F17
 magnet:?xt=urn:btih:1A61634BB648F8CB53B9EA432BED694BF4E5E115
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,29 +691,7 @@ magnet:?xt=urn:btih:1A61634BB648F8CB53B9EA432BED694BF4E5E115
 magnet:?xt=urn:btih:EAD1C3FD36F8E13ED1A164FEFC3980BB15F3A874
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254555   (372414) от 14.10.2018
-
-Сергей Малозёмов | Еда живая и мертвая. Продукты для стройности, здоровья и долголетия. Коллекция из трех бестселлеров (2018) [FB2]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник книг Сергея Малозёмова – это настоящая энциклопедия по питанию для всей семьи. Вы узнаете всё о принципах здорового питания, получите полезную информацию о продуктах, которые составляют наш ежедневный рацион. Автор расскажет о продуктах, помогающих продлить молодость организма и не прибавить в весе.Жанр: Здоровое и правильное питание, Научно-популярная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:825AE7D52C84E7FD9DA5761116EC6B8D8B038863
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

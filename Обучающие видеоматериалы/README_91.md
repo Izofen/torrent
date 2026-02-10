@@ -22,6 +22,8 @@ SD.CODE, Сергей Дмитриевский | Мышление Програм
 magnet:?xt=urn:btih:4451ECCD042B734E2406E7E6A4FADA9A106F7344
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Udemy, Nikita Sergeev | Excel: основное для работы с масс�
 magnet:?xt=urn:btih:51D69FA165389C73A7811639156C6B61093DCE37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:51D69FA165389C73A7811639156C6B61093DCE37
 magnet:?xt=urn:btih:BFA1D438A849ACFAFF8ABE8C47138C649CC8D56B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:BFA1D438A849ACFAFF8ABE8C47138C649CC8D56B
 ```bash
 magnet:?xt=urn:btih:27939BC7AFE47B36FD5C58F244B2C8D7F64CF01F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Archviz Artist, Agnieszka Klich | 3ds Max Advanced Exterior Visualizations (2023
 magnet:?xt=urn:btih:C7B36F45DD365CF2DE30C775AC802E14C198BAEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Udemy, Unreal RPG Mastery | Unreal Engine 5: Soulslike Melee Combat System (2022
 magnet:?xt=urn:btih:4E46D19E60909968373F221667DDE9A922349130
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Archviz Artist, Agnieszka Klich | 3ds Max Advanced Interior Visualizations (2023
 ```bash
 magnet:?xt=urn:btih:87706AB39F82D9D08C949E68DFF62A47EACA8E81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:87706AB39F82D9D08C949E68DFF62A47EACA8E81
 magnet:?xt=urn:btih:1958DAAFEBDDD9AC509CB74E1F12CAC0969B6947
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ Unreal Engine 5 меняет правила игры. Это программн�
 ```bash
 magnet:?xt=urn:btih:24220512BFE0DC19D22C39DFA9D7B3AA69982CD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ Archviz Artist, Agnieszka Klich | 3ds Max Exterior & Interior Visualizations 2.0
 ```bash
 magnet:?xt=urn:btih:D46136C49366CC1C00DF1187B3F7BC22C1E8C65A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ Unreal Engine 5 сейчас очень востребован, но его из
 magnet:?xt=urn:btih:D5A3FA5A6B90A02887330BACC51BD4A617AAF4CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ Archviz Artist, Agnieszka Klich | 3ds Max Exterior & Interior Animations (2023) 
 ```bash
 magnet:?xt=urn:btih:0313E39D16684B206EA19A3E524D63103CE693D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ Podlodka Crew | Записи Go Crew #1 - «Внутренний тулинг» 
 magnet:?xt=urn:btih:D0832F165506C61B9D9080EF4E6EDB808A06543E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:D0832F165506C61B9D9080EF4E6EDB808A06543E
 ```bash
 magnet:?xt=urn:btih:CDA0D301CE971A707456DC0B43088B0ABDD1DF4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:CDA0D301CE971A707456DC0B43088B0ABDD1DF4A
 magnet:?xt=urn:btih:6621D342C989D093E4088B4DEBD6FC890B8DD990
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ drvik | Нейросеть Leonardo: Твори как бог дизайна, з
 ```bash
 magnet:?xt=urn:btih:974A92E89A736F5E1891D9EDA2EAB61C0A053B48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ magnet:?xt=urn:btih:974A92E89A736F5E1891D9EDA2EAB61C0A053B48
 magnet:?xt=urn:btih:FCE326E952CB3EFBDDD7DCBF868D20A2F917ED11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:FCE326E952CB3EFBDDD7DCBF868D20A2F917ED11
 ```bash
 magnet:?xt=urn:btih:445B2CA0219A2E54C552A993D28EAFCCC65DB9DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:445B2CA0219A2E54C552A993D28EAFCCC65DB9DF
 magnet:?xt=urn:btih:0D922CA879E9FF428866B2FF873B32A4BC5AD9B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ Hudozhnik Online, Полина Абдулаева | Создание комик�
 ```bash
 magnet:?xt=urn:btih:111C60493DE1DBE96B8EEE1EE5B69E223DA3C563
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ magnet:?xt=urn:btih:111C60493DE1DBE96B8EEE1EE5B69E223DA3C563
 magnet:?xt=urn:btih:A633EB852BEFA089DDC9E97AFA195C50D3EBEF61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +601,8 @@ Blender Bros | Rendering University - Platinum (2022) WEB-DL [EN / EN Sub]
 magnet:?xt=urn:btih:21864594B7793E1F401E5DD8F10A0E1891D2A30F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ magnet:?xt=urn:btih:21864594B7793E1F401E5DD8F10A0E1891D2A30F
 magnet:?xt=urn:btih:A00405080EA271C37D608FEA78E54646B153D82F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +652,8 @@ magnet:?xt=urn:btih:A00405080EA271C37D608FEA78E54646B153D82F
 ```bash
 magnet:?xt=urn:btih:63D5AF675A76C419CB99FEBDC0CE0404C32B692B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +682,8 @@ Learnsquared, Tim Zarki | Industrial Design Foundations (2023) WEB-DL [EN]
 magnet:?xt=urn:btih:989BC004D4862A2BAEA9619A8B1ABCCAA3243A94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +710,8 @@ magnet:?xt=urn:btih:989BC004D4862A2BAEA9619A8B1ABCCAA3243A94
 ```bash
 magnet:?xt=urn:btih:19B4F73EFF2DAD56EFF5FCDA2FD0408FCD7B1632
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

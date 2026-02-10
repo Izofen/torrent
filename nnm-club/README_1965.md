@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3B7C3ECCFB960C3480F5EFB21E5AEF7D5A5CA6A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:3B7C3ECCFB960C3480F5EFB21E5AEF7D5A5CA6A4
 ```bash
 magnet:?xt=urn:btih:8EE2D5FB2D2911879C6C2BFF1EAF93C695C37FBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ PictureThis - Plant Identification v4.0.1 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:CF3338DC7EFF187173DD84B04A18468DCBBE0DE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:CF3338DC7EFF187173DD84B04A18468DCBBE0DE4
 magnet:?xt=urn:btih:92E06DAA9A0A191F9CABCBFC3B0E62074E444D03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:92E06DAA9A0A191F9CABCBFC3B0E62074E444D03
 ```bash
 magnet:?xt=urn:btih:C73BAF7A95E95E78DF0A99DE45EA58E88594D182
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:C73BAF7A95E95E78DF0A99DE45EA58E88594D182
 magnet:?xt=urn:btih:5229D62421F5A6AA395A3466A689A465FED68214
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:5229D62421F5A6AA395A3466A689A465FED68214
 magnet:?xt=urn:btih:DB6E28AF314143E678EF5503B119DE0B63EE2463
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Double Commander - это свободный, с открытым исходны
 magnet:?xt=urn:btih:F531ABF2A7B453ECD71FC6F11ABFBEA0EA0221B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:F531ABF2A7B453ECD71FC6F11ABFBEA0EA0221B4
 ```bash
 magnet:?xt=urn:btih:56F9E73F515433BAB36225BC76C71727FAF7A87C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ VA - compilation  part 92 Relaxation (2024) [MP3|320 Kbps] <New Age, Relaxation>
 magnet:?xt=urn:btih:C5AF2D8A0F3E459EF74A69BBDF27C98EA1B6DB8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ CUETools - это программа, которая служит для пре�
 ```bash
 magnet:?xt=urn:btih:F150E4B7320E37C09E5AC6DF05DF727AF32EE4B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ Battery One - приложение направленное на то, чтоб�
 magnet:?xt=urn:btih:4D12A31900750B3D9E8C3493EFEF189D7D132FD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ VidCoder - небольшая утилита, с помощью которой �
 ```bash
 magnet:?xt=urn:btih:11051EA716C325AA966A7548A6D19A2451955445
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ VA - German Top 100 Single Charts 28.06.2024 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:855F142C2AA24D5AD9349C9286A682D42A4F6F7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:855F142C2AA24D5AD9349C9286A682D42A4F6F7F
 magnet:?xt=urn:btih:BD8D75F00D7D120271DA06B6D7F8CC209BF016BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:BD8D75F00D7D120271DA06B6D7F8CC209BF016BC
 ```bash
 magnet:?xt=urn:btih:96162F446BA9A9A85BE2F9D7F2922FB44F4C9DC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ Fae Farm - симулятор фермы с элементами ролевог�
 magnet:?xt=urn:btih:E5F0379AC4FF7FF1293D0C432FBE89C88A64D9D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Dystopika, градостроитель, разработанный студие
 ```bash
 magnet:?xt=urn:btih:E09A02A0557FB92878563242645E01F975D12A0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Chocolate Factory - это не обычный симулятор магната
 magnet:?xt=urn:btih:C03665AAD8C994555AF27784C38FA622EE1EC313
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:C03665AAD8C994555AF27784C38FA622EE1EC313
 ```bash
 magnet:?xt=urn:btih:F2142AA849AFC982431BCF0250A97C82C7577E62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:F2142AA849AFC982431BCF0250A97C82C7577E62
 magnet:?xt=urn:btih:775DD1CADFA58396DD2F884CB644E7882A89B229
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:775DD1CADFA58396DD2F884CB644E7882A89B229
 magnet:?xt=urn:btih:1FB266C732CD45EE0AE11B3F1DC627874722846A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Ashampoo WinOptimizer - новая линейка пакета программ,
 ```bash
 magnet:?xt=urn:btih:D1C15282EA6A5E5CEBAEBB83BCEA620F175ABB67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ Hibike! Euphonium 3 | Sound! Euphonium 3 | Играй, эуфониум! [ТВ-3
 magnet:?xt=urn:btih:59AB288178AE6EE707EF4443DDC7B2AAB121E420
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:59AB288178AE6EE707EF4443DDC7B2AAB121E420
 magnet:?xt=urn:btih:7EF2FA5037DF8653C7F7DD5A03C59346D30C6B5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:7EF2FA5037DF8653C7F7DD5A03C59346D30C6B5A
 ```bash
 magnet:?xt=urn:btih:4748799D569DABF2569180488FBA2F6D983AE10C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

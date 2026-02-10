@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:2EE40A3C190F72282FF33B97631F816565E3A477
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ V Recorder – качественный и простой экранный ре�
 ```bash
 magnet:?xt=urn:btih:A44B32ABF7A2D9BC229E1CD57376E2BDA5B9BE16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Norium - A Journey Through the Soul (2022) [FLAC|Lossless|WEB-DL|tracks] <Power 
 magnet:?xt=urn:btih:7CC232F38F605D4CEE084454EBBDE562E6EA79EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ PureSync — программа для синхронизации данных �
 magnet:?xt=urn:btih:EA5EA984326C18A7EB3FE478D7ADACB45CB2D0ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:EA5EA984326C18A7EB3FE478D7ADACB45CB2D0ED
 ```bash
 magnet:?xt=urn:btih:EEB2E09A38112AC0DCCBD12EB87E834D86036849
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Avaland - The Legend Of The Storyteller (2023) [FLAC|Lossless|WEB-DL|tracks] <Sy
 magnet:?xt=urn:btih:21729A883D0816102D5F8C5D4068FCD01E1CA558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Geezer - 9 Relises (2013-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Blues Rock, 
 magnet:?xt=urn:btih:B7F1538BBCB23BC7D997D2153F560334DD6DFF44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:B7F1538BBCB23BC7D997D2153F560334DD6DFF44
 magnet:?xt=urn:btih:B3CD7B087BFBD39B23AC0C9EF6EB96B3EEF12A29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Phase One Capture One - один из лучших профессиональн�
 ```bash
 magnet:?xt=urn:btih:BF4A3DBA99F028AFA72BD9D7AFDD26C8256AA5B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Dexter Gordon Quartet - Live in Chateauvallon (1978) 2CD, 2020, Elemental Music 
 magnet:?xt=urn:btih:607F0D94D98825529A98459F1E92F94D4F73FFD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ Kytowrath - Past to Become (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Gr
 magnet:?xt=urn:btih:F0372D012CF56F20A34DD1CCE3CA17E5A6282A6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ Maxthon Browser — многофункциональный браузер со �
 magnet:?xt=urn:btih:46E7C63E0D8D2E160B8C8CA872B57229C8DE98B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:46E7C63E0D8D2E160B8C8CA872B57229C8DE98B0
 ```bash
 magnet:?xt=urn:btih:7BC976FA2C6AA580495ADF29B8D070F5911866BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ Eufory - Fifth Dimension (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Meta
 magnet:?xt=urn:btih:C5D933B7D598C5B3BD7E4DB789F491921466481A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ R-Drive Image — является эффективной утилитой дл�
 ```bash
 magnet:?xt=urn:btih:D8388F720AA9B380A4F6D97AEA37DADF3C26107E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ VA - Halloween Chilling Time 2021 (2021) [AAC|~288 Kbps] <Downtempo, Lounge, Chi
 magnet:?xt=urn:btih:2B845ED0231025C1EF69919B90E6D6AF0EFF7D0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:2B845ED0231025C1EF69919B90E6D6AF0EFF7D0F
 ```bash
 magnet:?xt=urn:btih:B9181FDD5D3194C20F1A537217215AB6B215F002
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ Birdstone - Loss (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Stoner 
 magnet:?xt=urn:btih:965087249977B57F8636739E034041DCB172A535
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ DxO PhotoLab Elite 6.6.0 build 192 RePack by KpoJIuK [Multi]
 ```bash
 magnet:?xt=urn:btih:7146E2FDAC5001A2ED2D24350283950906937A21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:7146E2FDAC5001A2ED2D24350283950906937A21
 magnet:?xt=urn:btih:8CF39699251267747A456D9CF12B637FD901632B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ App Tamer 2.7.7 [En]
 ```bash
 magnet:?xt=urn:btih:44E592F99CE2046EA3DF079E69EA6B861D77748D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ KineMaster - ещё один представитель когорты виде�
 magnet:?xt=urn:btih:792C565C87211CFCBF32CC2C282FEAF9F1A88D07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:792C565C87211CFCBF32CC2C282FEAF9F1A88D07
 ```bash
 magnet:?xt=urn:btih:13DBFD42FDCD8C153970AF233F90FA245CFE0939
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ VA - Après Lounge Club (2021) [AAC|~323 Kbps] <Downtempo, Lounge, Chill Out>
 magnet:?xt=urn:btih:9DD1A90639311A6289C8B1B80736D840FFBADB66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ Mold - Hope Abandon All (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:4453506CF83A7F5CB41BD2739206B5F718F33B16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ RAR Extractor - Unzip ZIP 7Z 7.3 [En]
 ```bash
 magnet:?xt=urn:btih:D91177A520FB29E49C722D1A8598C9ED6215796A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

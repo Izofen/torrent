@@ -1,3 +1,32 @@
+###  Публикация: 1368018   (912031) от 18.03.2020
+
+VA - Kiss FM: Top 40 [15.03] (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren feat. Candace Sosa - Runaway 3:58
+02. SAINt JHN - Roses (Imanbek Remix) 3:58
+03. Верка Сердючка - Make It Rain Champagne 2:53
+04. Yves V & Ilkay Sencan feat. Emie - Not So Bad 2:34(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:20:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3DB1328644968354BBC82ED0175A71AF6051244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1491270   (912077) от 24.08.2021
 
 VA - New Rock 4 Русский (2021) [MP3|320 Kbps] <Rock>
@@ -21,6 +50,8 @@ VA - New Rock 4 Русский (2021) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:D236CBFF93ED4B0FDBE9D5670070136A0A60AD31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Best Dance Tracks N3 (2016) [MP3|192-320 кб/с] <Dance>
 magnet:?xt=urn:btih:DF3E1D7CBA9ECC0E5C7DC07183F88EBBA669CD6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Welkom To The Dancefloor (2016) [MP3|320 кб/с] <Dance, Club, Pop, Electr
 ```bash
 magnet:?xt=urn:btih:78697A79B9638736D288853D278F6D3BA3A092F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Collection (2016) [MP3|320 кб/с] <Electronic, Lounge, New Age>
 magnet:?xt=urn:btih:257DC35A45A3EC1E140355C4E1A85BE50DECD25E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Avantgarde Chillout Vol 1 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lo
 ```bash
 magnet:?xt=urn:btih:7BFC0CD4A1AEFB0D1990763DE32F5AF83F318610
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Pure Wellness 1 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:4C1CB5188E591949D06841B822405EB79CA6ED3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Songbird Voices Of Romance (2017) [MP3|320 Kbps] <Jazz, Vocal, Easy Listeni
 ```bash
 magnet:?xt=urn:btih:1B802BCEF0795BA021F8A85A7A010022A287DD84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Club Dance Ambience Vol.99 (2017) [MP3|320 Kbps] <Dance, Club, Club House, 
 magnet:?xt=urn:btih:110C763CDFB0139FC3C5262B72CED6DC89609320
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Музыкальный плен на Europa Plus выпуск №9 (2017) [
 ```bash
 magnet:?xt=urn:btih:7FFB891164AD8F32B3322752281F6418D30E4697
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Шансон года. Лучшие блатные хиты выпуск �
 magnet:?xt=urn:btih:7D381D17C0290FF3306BA7568AFF0EAC3313CD4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Снегопад новинок от Хит fm. Версия № 7 (2017) [
 ```bash
 magnet:?xt=urn:btih:A19C5888E325B6CA1072C3152640A65A82439825
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Снежный хит-парад. Сто русских хитов. Вып�
 magnet:?xt=urn:btih:5AC26C4AC7EC8538853330EBA1CCBBF2AF7FF6C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +399,8 @@ VA - Взрывной хит-парад выпуск № 9 (2017) [MP3|256 Kbps]
 magnet:?xt=urn:btih:D3A0E5E0DD1E18DE43671A81E72E83ED92F467B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +427,8 @@ VA - Дискотека Казанова Старые Песни По Новом
 ```bash
 magnet:?xt=urn:btih:C1B6B206A7E35A19D7873838CD24B52B679DA3D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +463,8 @@ VA - Весенняя волна хитов (2013) [MP3|320 кб/с]<Dance>
 magnet:?xt=urn:btih:7F7FA96B52EE3460A20EC9CD3C6483486A3A2297
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +497,8 @@ CD 1; 01:09:18
 ```bash
 magnet:?xt=urn:btih:12B9645ADE4A40C8B897B14712FCA6A28B7FB97D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +533,8 @@ VA - Super Dance Party-11 (2013) [MP3|320 кб/с]<Dance>
 magnet:?xt=urn:btih:00AE0959C0962AF153B15CD000B38D721CEF3166
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +564,8 @@ VA - The Official UK Top 40 Singles Chart (01-02-2015) [MP3|320 кб/с]<Pop, Da
 magnet:?xt=urn:btih:A5BC0E81B88055E7BC190927B74A5BC208E501A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +592,8 @@ VA - Лучшая клубная музыка ANDRS vol.34 (2016) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:B30AED4A196221F6A64F3C5B634CC0005938CA8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +622,8 @@ VA - Ностальгия 6 NNM-Remix (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:C51B07F92DC09FAAEB01B74D9FCE7DA724E841C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +650,8 @@ VA - Top50: Tracks Deep House Ver.19 (2020) [MP3|320 Kbps] <House, Deep House, E
 ```bash
 magnet:?xt=urn:btih:33FFFB5687889BDAE78917A4A0725D544632ABF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +680,8 @@ VA - Record Super Chart № 424 (2016) [MP3|320 кб/с] <Club House, Electro Ho
 magnet:?xt=urn:btih:AEE6968AF7D4676A2377CF58545D501FFE0E1BFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +708,8 @@ VA - Music Box DFM Vol.4 (2016) [MP3|256 кб/с] <Pop>
 ```bash
 magnet:?xt=urn:btih:87159E3DAA1A8B7E26BBAC0F13496E7CB7EE7EDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -663,6 +738,8 @@ VA - Italo & Space Disco Vol. 3 (2016) [MP3|320 кб/с] <Italo Disco, Spacesynt
 magnet:?xt=urn:btih:4402DA31E9BAD3EC8F112559D361CDA5FEF92AFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,32 +767,7 @@ VA - Beatport Trance: Electro Sound Pack #26 (2020) [MP3|320 Kbps] <Trance, Prog
 magnet:?xt=urn:btih:298813B263B1AE3002E95B07EC63E84F5828F82A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990030   (913712) от 24.02.2016
-
-VA - Red Hot Chilling (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sura Quintet - Shared Moments
-02. Chiffre 100 - Solmania
-03. Rhythmphoria - Highlights
-04. Mick Thammer - First - Chill Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:08:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F00C9440B43D0400C029BC829C2000CBD82115
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

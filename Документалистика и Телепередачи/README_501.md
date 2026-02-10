@@ -1,3 +1,29 @@
+###  Публикация: 1133571   (693143) от 13.05.2017
+
+Горбатые киты / Humpback Whales (2015) BDRip [H.264/1080p] [EN / RU Sub]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Горбатые киты, это - экстраординарное путешествие в сказочный мир одного из самых впечатляющих животных планеты. Съемки велись в красивейших местах Аляски, Гавайев и отдаленных берегов Тонги; во время этого приключения вы узнаете, как общаются киты между собой, как они поют, питаются, играют и заботятся о своем потомстве. Присоединяйтесь к команде путешественников (   Читать дальше...   )Производство: MacGillivray Freeman Films, СШАЖанр: Документальный, ВидовойРежиссер: Грег МакГилливрэйПеревод: ОтсутствуетСубтитры: Русские (uniss), английскиеПродолжительность: 00:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66001D3EAFDEF3C33B152132F735FE98E44B4065
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133764   (693144) от 13.05.2017
 
 Эволюция. Всё из ничего (2016) HDTVRip [H.264/720p-LQ]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:7A79FD1A100DAC42B3234B3767705640F1C29EE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:7A79FD1A100DAC42B3234B3767705640F1C29EE4
 magnet:?xt=urn:btih:B499AA0625F9E1F9ECB01E34BBE7F330EF293EAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:B499AA0625F9E1F9ECB01E34BBE7F330EF293EAE
 ```bash
 magnet:?xt=urn:btih:175A2D299DFC1A99AB3ABBFCC89573DA0821FFF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:175A2D299DFC1A99AB3ABBFCC89573DA0821FFF6
 magnet:?xt=urn:btih:D316995D8312DD84D18B4CF5DD851CE84322D51F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:D316995D8312DD84D18B4CF5DD851CE84322D51F
 ```bash
 magnet:?xt=urn:btih:234854BB53834D60644E7ED5D4C53E2779D2F2F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:234854BB53834D60644E7ED5D4C53E2779D2F2F9
 magnet:?xt=urn:btih:36DCAA9933E4E4D28BDFE0BADD2C61D5E7231EF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:36DCAA9933E4E4D28BDFE0BADD2C61D5E7231EF5
 magnet:?xt=urn:btih:8FE1E63D76E8DC371A81E7249B15B22867EFE281
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +226,8 @@ magnet:?xt=urn:btih:8FE1E63D76E8DC371A81E7249B15B22867EFE281
 ```bash
 magnet:?xt=urn:btih:4A156CA329B27819A66645788340074FF6567AF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:4A156CA329B27819A66645788340074FF6567AF8
 magnet:?xt=urn:btih:AF0AFC9DD813EB098394E45C735C3E3B239442DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:AF0AFC9DD813EB098394E45C735C3E3B239442DA
 ```bash
 magnet:?xt=urn:btih:968EEEEF36F51EB7E19E05F2CA3F70DEE5142170
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:968EEEEF36F51EB7E19E05F2CA3F70DEE5142170
 magnet:?xt=urn:btih:719D59EA2A7F9F9BD210AB95C9DF7EAFF1302448
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:719D59EA2A7F9F9BD210AB95C9DF7EAFF1302448
 ```bash
 magnet:?xt=urn:btih:45AF7E8B3C12297D6224B192E346680EE36FC83E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:45AF7E8B3C12297D6224B192E346680EE36FC83E
 magnet:?xt=urn:btih:F945F21F48D81CD713C0EAA694FF50D5B6965E1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:F945F21F48D81CD713C0EAA694FF50D5B6965E1B
 ```bash
 magnet:?xt=urn:btih:A5C391BCFCEEF610B9E9D04F751D7BCA2A8C74CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:A5C391BCFCEEF610B9E9D04F751D7BCA2A8C74CF
 magnet:?xt=urn:btih:948746EFD1FB4CE8DC5A96E99580E535437CA11E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:948746EFD1FB4CE8DC5A96E99580E535437CA11E
 ```bash
 magnet:?xt=urn:btih:BCA75D415D2F1C1BB39095620239E6D95483E5C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:BCA75D415D2F1C1BB39095620239E6D95483E5C1
 magnet:?xt=urn:btih:729C9EB0C51AC7770FBF27D0B7BFBA0A5D637F7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:729C9EB0C51AC7770FBF27D0B7BFBA0A5D637F7A
 ```bash
 magnet:?xt=urn:btih:300C57CB92B950077B2A06226DC7D259C23EC9C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:300C57CB92B950077B2A06226DC7D259C23EC9C4
 magnet:?xt=urn:btih:F8FDD9DBF7D6618D27C28872DCE318D6FB0E691E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:F8FDD9DBF7D6618D27C28872DCE318D6FB0E691E
 ```bash
 magnet:?xt=urn:btih:9CB7954B0D1E8A2209CA85EEB0791C4D46D46DDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:9CB7954B0D1E8A2209CA85EEB0791C4D46D46DDD
 magnet:?xt=urn:btih:F62CA765DB736C9196EE90D8E55A97B3E7AF3B85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:F62CA765DB736C9196EE90D8E55A97B3E7AF3B85
 ```bash
 magnet:?xt=urn:btih:E0AC1ED6719E66DFAADF26459288628E2E044F55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:E0AC1ED6719E66DFAADF26459288628E2E044F55
 magnet:?xt=urn:btih:DD031829E9EF652A52FD7D3194972D90AD19AC46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:DD031829E9EF652A52FD7D3194972D90AD19AC46
 ```bash
 magnet:?xt=urn:btih:CDC760F27953C26F4DA9A8D292C2186C441AED32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,29 +673,7 @@ magnet:?xt=urn:btih:CDC760F27953C26F4DA9A8D292C2186C441AED32
 magnet:?xt=urn:btih:D1A11AF6242D844B0EB7C05F43353CA67D79B003
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133332   (695117) от 12.05.2017
-
-Трискелион. Природа Бретани / Triskell. Bretagne Sauvage (2016) HDTVRip [H.264/1080i-LQ]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695117.jpg" />
-</div>
-
-
-###  Подробнее
-
-В северо-западной Франции лежит Бретань, огромный скалистый полуостров, который бросает вызов Атлантике в течение миллионов лет. Это земля контрастов славится своими многочисленными сокровищами и захватывающими дух пейзажами. Волшебство природного наследия раскрывается через череду впечатляющих кадров, каждый вид продолжает писать историю земли с живой душой и уникальным (   Читать дальше...   )Производство: Франция, Artisans du Film, FTЖанр: Документальный, фауна, флораРежиссер: Лукас Аллейн, Базиле Джербод Ромен Генард Мэтью МауПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: ОтсутствуютПродолжительность: 00:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D73862C8B7E5D12F76C1269ED34E5A5346A1780
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

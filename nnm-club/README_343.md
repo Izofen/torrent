@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3094DF29094B4E9C1D60CF19FE8D1CD0B6D260AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - Top 100 Legend Rock Hits vol.3 (2025) [MP3|320 Kbps] <Rock, Soft Rock>
 magnet:?xt=urn:btih:0E03F0020A1DFC08B72FA99B359EF9FCF110144E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:0E03F0020A1DFC08B72FA99B359EF9FCF110144E
 ```bash
 magnet:?xt=urn:btih:E434C6057995302D6AC85412697A2098E837437C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Luto - это психологический хоррор от первого л
 magnet:?xt=urn:btih:415509969717423EB684F6BEC55524FC9C833B67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:415509969717423EB684F6BEC55524FC9C833B67
 ```bash
 magnet:?xt=urn:btih:7C6E9656B93A8FC6354909F5E445D61890BFF395
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:7C6E9656B93A8FC6354909F5E445D61890BFF395
 magnet:?xt=urn:btih:F86FD02C2E5B0FF306DDE7A8EDAE7F520E9D995F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Bee Simulator: The Hive (2025) [Ru/Multi] (build 19461565/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5F4214C0895396C6926D28440C27E47C5CF65B93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:5F4214C0895396C6926D28440C27E47C5CF65B93
 magnet:?xt=urn:btih:BAE61B385A31BCBF9B1994788431802FA2CA26B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:BAE61B385A31BCBF9B1994788431802FA2CA26B4
 magnet:?xt=urn:btih:D9390FD2B85529B3E009DDDBC38B9228F9EFCE0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:D9390FD2B85529B3E009DDDBC38B9228F9EFCE0A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:D9390FD2B85529B3E009DDDBC38B9228F9EFCE0A
 magnet:?xt=urn:btih:8C9CDE1280C4F3085DAEA4DE448730B3331E5D71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ The Invincible (2023) [Ru/Multi] (Build:45.002 CL_57352) Repack Let'sРlay [Delu
 ```bash
 magnet:?xt=urn:btih:EB2BEC3D81B6AAEC65DF0F7E38CA9AD84ABB7A0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:EB2BEC3D81B6AAEC65DF0F7E38CA9AD84ABB7A0A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Future War Tactics: SOF vs Alien Invasion – Turn-Based Strategy (2025) [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:388E6CB9CEFF31557DF4BB74B70D4C9A8194DD76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:388E6CB9CEFF31557DF4BB74B70D4C9A8194DD76
 magnet:?xt=urn:btih:3D43D7C80AB1798E390C639BFF27436E553C95B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:3D43D7C80AB1798E390C639BFF27436E553C95B7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Discovery: Железная дорога Аляски / Railroad Alaska (2013) S
 magnet:?xt=urn:btih:55DD8C2ACCDF232816E2C8FCCCC9AFCA13596811
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:55DD8C2ACCDF232816E2C8FCCCC9AFCA13596811
 ```bash
 magnet:?xt=urn:btih:EFFDAB924E386B01F23FA29AC3CA8D13050C0B65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:EFFDAB924E386B01F23FA29AC3CA8D13050C0B65
 magnet:?xt=urn:btih:6119353EADDC4DE626902ED48977D2A417934B68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:6119353EADDC4DE626902ED48977D2A417934B68
 ```bash
 magnet:?xt=urn:btih:0BD563DE24447EBA1F610722E5E0BFACF41C0558
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:0BD563DE24447EBA1F610722E5E0BFACF41C0558
 magnet:?xt=urn:btih:3B091FC22E1A7F97E829AE3BEEC5D05F52C95913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:3B091FC22E1A7F97E829AE3BEEC5D05F52C95913
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:3B091FC22E1A7F97E829AE3BEEC5D05F52C95913
 magnet:?xt=urn:btih:9013755B8749755EE4B5A34A8CB9FD475B6B74C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:9013755B8749755EE4B5A34A8CB9FD475B6B74C2
 ```bash
 magnet:?xt=urn:btih:9EE0E1950CF70B0719229AC89F6CB8BD0719E784
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:9EE0E1950CF70B0719229AC89F6CB8BD0719E784
 magnet:?xt=urn:btih:582802ADBF16CD10389147CDEB33CA60FB896E79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:582802ADBF16CD10389147CDEB33CA60FB896E79
 ```bash
 magnet:?xt=urn:btih:9F8CD36B0A214BE6F358D1E7DBEBB0D8F70DB653
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

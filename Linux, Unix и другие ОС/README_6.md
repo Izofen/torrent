@@ -19,6 +19,8 @@ Red Hat Enterprise Linux 9.2 [x86-64] 1xDVD
 magnet:?xt=urn:btih:C8FF2491D84C1D68781B754F3EEDA1474F1DFB15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ openSUSE — это стабильный, легкий в использован
 magnet:?xt=urn:btih:3BE6652A22A181B7AE7FDCF2F7C9E4631D332FC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ OpenVMS (англ. Open Virtual Memory System, или просто VMS) — пр
 ```bash
 magnet:?xt=urn:btih:180B6565999E79085109B281B64CC9972BDC0C26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Uncom OS — операционная система для компьютеро
 magnet:?xt=urn:btih:98480C85897EB96820784EADD31AE61917F5104B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ BricsCAD Ultimate 23.2.04-1 [x64] (rpm,deb,tar.gz)
 ```bash
 magnet:?xt=urn:btih:15AB036053F5856CFE289E195D884DF6DE9E8573
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Rider (   Читать дальше...   )Язык интерфейса: Анг
 magnet:?xt=urn:btih:494E7EE5FF65F714C943EB8E449EB4938B52BD6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Debian GNU/Linux 11.7.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+2xCD
 magnet:?xt=urn:btih:D30F4B7C031AE4BA0898745F13236BA12E52B341
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Debian Edu, также известный как Skolelinux, является д
 magnet:?xt=urn:btih:8CDC4EA20DA278FA6AC19656591567427B50A060
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Kali Linux 2023.1 [amd64, i386, arm64] 8xDVD, 3xCD
 ```bash
 magnet:?xt=urn:btih:3F66A9826F1E330EBB30FC8ADFA40DA20A86CBED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Debian GNU/Linux 11.7.0 + nonfree (firmware) Bullseye [i386] 2xDVD+2xCD
 magnet:?xt=urn:btih:EED3913C30DB3C47858953AAD28132BA7EE6D6E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ Fedora — дистрибутив Linux, спонсируемый фирмой R
 ```bash
 magnet:?xt=urn:btih:6EEDAD76369616373DD304927CFF1CAD3C08AE73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ TrueNAS SCALE 22.12.2 [x64] 1xCD
 magnet:?xt=urn:btih:434A0FF76FD00759B161A536A13104D05B7A41E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ Ubuntu*Pack 22.04 Budgie (март 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:1A2377F6817E1E33F2B138DB4F7299DC463460DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ Ubuntu*Pack 22.04 Cinnamon (март 2023) [amd64] 1xDVD
 magnet:?xt=urn:btih:5A3A023A938B3A4DA82CB8CD11F9E44481C78E53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ Ubuntu*Pack 22.04 (март 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:1A4B339C7C49F8E3851C4BCB691B5BDBE69BC8FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ OpenMediaVault представляет собой новое поколение
 ```bash
 magnet:?xt=urn:btih:296EFFF237B9503616B49E2B353E65B94D754348
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ MxUntu 20.04 [x64] 1xDVD
 magnet:?xt=urn:btih:90094B191672B3677B929A0CDF1F04C654C58FB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ Kali Linux 2022.3 [amd64, i386, arm] 8xDVD, 3xCD
 ```bash
 magnet:?xt=urn:btih:CBD11516D761121144676DB86DEE7DFBE7B442F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ Zorin OS разработана так, чтобы быть простой, по
 magnet:?xt=urn:btih:DE3F59354D40DCE68E2D6B2C127ABDCF2A71D1AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ Network Security Toolkit (NST 36 SVN:13232) 36-13232 [x86 x64] 1xDVD
 magnet:?xt=urn:btih:FE41A7A8667CBCAF76D801958A7D728A8C378687
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ Parrot Security OS 5.1 [Хакинг, аудит, безопасность] 1xDV
 ```bash
 magnet:?xt=urn:btih:7DEE3B886CB010C4DA20E7D039EAD9466BFEAABE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ Ubuntu*Pack 20.04 DDE (май 2023) [amd64] 1xDVD
 magnet:?xt=urn:btih:55C7E1E6CED482CFF50F2BFCF92E94438647A2D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ Ubuntu*Pack 20.04 LikeWin (май 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:D0B61A7C6B027DB6F46B8BE9F63E1D40D5B585FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ Ubuntu*Pack 20.04 KDE / Kubuntu (май 2023) [amd64] 1xDVD
 magnet:?xt=urn:btih:BBF0D02C96E820BCDF8675ED824B9535B3EAA8AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ Ubuntu*Pack 20.04 Unity (май 2023) [amd64] 1xDVD
 magnet:?xt=urn:btih:13C8A43F39B82031978C40166A716E3CF1EE400B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ Ubuntu*Pack 20.04 LXqt / Lubuntu (май 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:1562D6956EF3AE0A78D21AF1EC76A11A0154EC86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

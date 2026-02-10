@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:18EE63D9AB08F15563CD9D8D4235275DBE9F12C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:18EE63D9AB08F15563CD9D8D4235275DBE9F12C8
 ```bash
 magnet:?xt=urn:btih:3A373F9866EFBDE62CCE8322137BF4CF79EB4D37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:3A373F9866EFBDE62CCE8322137BF4CF79EB4D37
 magnet:?xt=urn:btih:A2EF86CAA9E55C8BED6A6E0B03A555836952B5D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:A2EF86CAA9E55C8BED6A6E0B03A555836952B5D3
 magnet:?xt=urn:btih:89BDB28F3050D72E492787E04B813F0790560267
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:89BDB28F3050D72E492787E04B813F0790560267
 ```bash
 magnet:?xt=urn:btih:CEE6593456128C931C7374A8EF7E7AFFFE84C0E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Flyoobe (Ранее назывался Flyby11) — это простой пат
 magnet:?xt=urn:btih:A942D91C900A4D9F9C78A1FD4F72662A6DF379BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Topaz A.I. Gigapixel — это приложение, использующее �
 ```bash
 magnet:?xt=urn:btih:C8FC97FCAF2ACEE6F7C89AB9B24E251FC02B109A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:C8FC97FCAF2ACEE6F7C89AB9B24E251FC02B109A
 magnet:?xt=urn:btih:85B90E5AEE9394B8F654517EF96E94D807551EA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:85B90E5AEE9394B8F654517EF96E94D807551EA5
 ```bash
 magnet:?xt=urn:btih:70EC180D9FF687333B343EBEE4E53D90D5F0568F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Steel Division 2 (2019) [Ru/Multi] (165547/dlc) Repack seleZen [Total Conflict E
 magnet:?xt=urn:btih:C7D77D4931D1E1488875E8143F8B7CA500BA3E21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:81E54BCFAE248C766F245CC18EB54FEDE3305846
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:81E54BCFAE248C766F245CC18EB54FEDE3305846
 magnet:?xt=urn:btih:4C260ECF6BA52664F82FC4A1F61F6394DAC04DDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:4C260ECF6BA52664F82FC4A1F61F6394DAC04DDE
 ```bash
 magnet:?xt=urn:btih:B6FD17DCCFDF0F459AF4F78DBD19EA752B281626
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Firefighting Simulator: Ignite (2025) [Ru/Multi] (1.0003.28253.87380/dlc) Repack
 magnet:?xt=urn:btih:B162EBF46B52B33ABB8149BE44407AE5D59CDA7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:B162EBF46B52B33ABB8149BE44407AE5D59CDA7F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:B162EBF46B52B33ABB8149BE44407AE5D59CDA7F
 magnet:?xt=urn:btih:6D4EFC6E7A3016FE5CB33796F8458829FED263FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:6D4EFC6E7A3016FE5CB33796F8458829FED263FB
 ```bash
 magnet:?xt=urn:btih:F12671D1D41854EEFCBB78871DA769731B8BE349
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:F12671D1D41854EEFCBB78871DA769731B8BE349
 magnet:?xt=urn:btih:CD843C3F39BA75B8A30BF15457E5F75E876085DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Betrayer рассказывает историю героя, оказавшег�
 magnet:?xt=urn:btih:26AFEEC32C7C8E75C219CD3C5E7359369CB6FDAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:26AFEEC32C7C8E75C219CD3C5E7359369CB6FDAF
 ```bash
 magnet:?xt=urn:btih:1DA5E7902A5C5BF8C30B32B32F09E3D8A19233F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:1DA5E7902A5C5BF8C30B32B32F09E3D8A19233F0
 magnet:?xt=urn:btih:AFF5228020CBE4B1E2E84360BCA04F94D44A58BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:AFF5228020CBE4B1E2E84360BCA04F94D44A58BC
 ```bash
 magnet:?xt=urn:btih:E471D8B53DE9B9FB39233094D66438C43E1A0EA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:E471D8B53DE9B9FB39233094D66438C43E1A0EA3
 magnet:?xt=urn:btih:7562CE6CA284DDCC2AE48A3373021611DE1D7EB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:7562CE6CA284DDCC2AE48A3373021611DE1D7EB0
 ```bash
 magnet:?xt=urn:btih:83EB182AE9293D22CB537BAD8E7D42C632F91379
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:83EB182AE9293D22CB537BAD8E7D42C632F91379
 magnet:?xt=urn:btih:91187B8C3918F16DA076CBD1E60254B47BF4DAF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:91187B8C3918F16DA076CBD1E60254B47BF4DAF6
 ```bash
 magnet:?xt=urn:btih:2ED1E76616D0DED08B6C527A3BD6B0DDE5035063
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

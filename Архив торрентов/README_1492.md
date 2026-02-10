@@ -19,6 +19,8 @@ VueScan - программа для работы со сканерами HP, Min
 magnet:?xt=urn:btih:CB208F5FD7016FAD1FA29487860D584503B321D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ ExtraDisks - это набор инструментов для создания 
 magnet:?xt=urn:btih:E183A25196DFAA896DA47F21A748568066CDBA57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ WinX HD Video Converter Deluxe - профессиональное приложе
 ```bash
 magnet:?xt=urn:btih:D9F4E22BDFB709B624436FF54443B8C4493A9BB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ One Commander V3 — это современный файловый менедж
 magnet:?xt=urn:btih:6E7297672BEFD8F6D933B7BEB80756ECB7DCFDEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ AIMP 5.30 Build 2505 Beta + Portable [Multi/Ru]
 magnet:?xt=urn:btih:DB8FDE777EEDC14110430AD06DE76474D333F37A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Vivaldi 5.7.2921.60 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:217BF51EFBE6B161540221CAC5A097F4A18B72A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ RAR - это консольное приложение, позволяющее �
 magnet:?xt=urn:btih:980229942DA8FF40DDA144FB2704C0D8573B8F21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Ungoogled Chromium - версия веб-браузера Chromium без инт
 ```bash
 magnet:?xt=urn:btih:AA5BF698972F400373D43E5AA217871803E76404
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Ungoogled Chromium - версия веб-браузера Chromium без инт
 magnet:?xt=urn:btih:FF498B5894F31A00A435305E83F235361A69D725
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Run-Command - небольшая программа, которая создан
 ```bash
 magnet:?xt=urn:btih:80713E804A9C5C0956076BDCAF7DC9A6C7529A8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ GOM Player Plus - мультимедийный плеер со множеств�
 magnet:?xt=urn:btih:00398A089F84CB9791C9D4F57C709A06421EFA7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ WizTree - небольшая и полезная утилита для опре�
 ```bash
 magnet:?xt=urn:btih:8D1F62E5B7768DC613BFC3C8A936880F0E58E281
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:36157FA944B912E5B1DA2D90A4CB8268CD550360
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ GiliSoft Video Converter Discovery Edition (Repack & Portable) - легкий, �
 ```bash
 magnet:?xt=urn:btih:674086E38A9BB4D227E9942DA178C588F5D4B1B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ TreeSize Free 4.7.0.522 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:4AB2C50F256205E617AF5ACC492AA234872E0F79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Wondershare UniConverter - простой в использовании виде
 magnet:?xt=urn:btih:15F9B86FF7D0602394A3147E563858B1CD849A1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ BitComet - это функциональный, быстрый и простой
 ```bash
 magnet:?xt=urn:btih:F83A82D760DAB9DD8EED0612210641BB7B076C96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:B4A385E0D1969F19C6969DC2C2E91954E43B1C52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Vivaldi 6.1.3035.302 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7C7706BB7F8DC1C2C8B55582D86B1B99EDBF3699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ HD Video Converter Factory Pro - удобный конвертер всех на
 magnet:?xt=urn:btih:B39449C409014EE937B13E5F5FAABC7DC7A09CFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ OCCT 12.0.12 Final Portable [En]
 ```bash
 magnet:?xt=urn:btih:FB4137436AD569AFD167F284E431412C4E72D361
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Skype - бесплатная программа для текстового, г�
 magnet:?xt=urn:btih:08BB1B3B5929112784A76805B58965B3C4FB4A0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:B05FE3ECD3973B827A343E56EECBE70AF3504D24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ CudaText — абсолютно бесплатный мультиплатфор�
 magnet:?xt=urn:btih:A3FD9F8C770953787AC7828F2B37AE9586634026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Cobian Reflector - это программа, позволяющая польз�
 magnet:?xt=urn:btih:6C808F0AB5FE076C1DDC0DC759FEA1407E768785
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ NoMachine – это средство доступа к удаленным ра�
 ```bash
 magnet:?xt=urn:btih:DF5343E4C9AC3ECC22F81E7B115A9118335EDFE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,51 +1,3 @@
-###  Публикация: 934226   (503180) от 04.09.2015
-
-Обои - Требуется специалист по уборингу мусоринга. 2880х1620 - 80 шт [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тема очередного релиза довольно редкая для раздела Обои - свалка. Нет, никакой красоты вы здесь не увидите, скорее нечто противоположное. Тонны разнообразного мусора: бумаги, банки, бутылки, машины, железяки и даже окурки. Ворон, ищущих чем поживиться.  Да... как говорится, у золотой медали жизни в мегаполисе две стороны - эта самая нелицеприятная. Но ведь это факты, (   Читать дальше...   )Формат: JPGРазрешение файлов: 2880x1620
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E394B888D606DA6F2F0882B0A6A15D2BAB6903
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316935   (503216) от 29.07.2019
-
-Обои - Desktop Wallpapers (4K) Ultra HD. Part (257) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C3CC57AC26DD1345F0AB7F7D34BABDA77937C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316926   (503287) от 29.07.2019
 
 Обои - Desktop Wallpapers Full HD. Part (485) [JPG]
@@ -66,6 +18,8 @@ magnet:?xt=urn:btih:70C3CC57AC26DD1345F0AB7F7D34BABDA77937C6
 ```bash
 magnet:?xt=urn:btih:ED055E6623EE41AAF54EDEBA310A22D1225E93C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +45,8 @@ magnet:?xt=urn:btih:ED055E6623EE41AAF54EDEBA310A22D1225E93C0
 magnet:?xt=urn:btih:8FF8D2E913807ED2A9623ECB4C6C8D4568B6B816
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +70,8 @@ magnet:?xt=urn:btih:8FF8D2E913807ED2A9623ECB4C6C8D4568B6B816
 ```bash
 magnet:?xt=urn:btih:583F281C93598764A03AD07B2B4B82AF4BE59239
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +97,8 @@ magnet:?xt=urn:btih:583F281C93598764A03AD07B2B4B82AF4BE59239
 magnet:?xt=urn:btih:17C57420AEEB568BEAC52268C9568D47BCF69CFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +122,8 @@ magnet:?xt=urn:btih:17C57420AEEB568BEAC52268C9568D47BCF69CFA
 ```bash
 magnet:?xt=urn:btih:1131BF47518FDC84038A757E1C53645A9A245863
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +149,8 @@ Max Sauco (Макс Сауко). Фото-сюрреализм
 magnet:?xt=urn:btih:56F4D9986879B6EDC68E5E9672F029A2F63FF416
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +174,8 @@ magnet:?xt=urn:btih:56F4D9986879B6EDC68E5E9672F029A2F63FF416
 ```bash
 magnet:?xt=urn:btih:B71005B162D8D3BE40A212BB251149F9947C6BF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +201,8 @@ magnet:?xt=urn:btih:B71005B162D8D3BE40A212BB251149F9947C6BF2
 magnet:?xt=urn:btih:59655FEF4514C93E8E02E244F889AF01316F081D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +226,8 @@ magnet:?xt=urn:btih:59655FEF4514C93E8E02E244F889AF01316F081D
 ```bash
 magnet:?xt=urn:btih:CF8C245985B463377EB7B17E6E51F536BFCE6A6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +253,8 @@ magnet:?xt=urn:btih:CF8C245985B463377EB7B17E6E51F536BFCE6A6C
 magnet:?xt=urn:btih:FBB5D1DAC4C4867967C1A69D7AAC0A31BC209818
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +279,8 @@ magnet:?xt=urn:btih:FBB5D1DAC4C4867967C1A69D7AAC0A31BC209818
 magnet:?xt=urn:btih:B679EEA24FC5EAAC67D7927950E46CC4973BC3C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +304,8 @@ Artworks by Jeff Wack [Рисованая графика]
 ```bash
 magnet:?xt=urn:btih:9D4C195AF83ECA7B45ECA011EFC37AAB7F180F85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +340,8 @@ magnet:?xt=urn:btih:9D4C195AF83ECA7B45ECA011EFC37AAB7F180F85
 magnet:?xt=urn:btih:49FF99734AAE73D7DAE488D0AE76E84913B265F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +365,8 @@ magnet:?xt=urn:btih:49FF99734AAE73D7DAE488D0AE76E84913B265F3
 ```bash
 magnet:?xt=urn:btih:C0F814553021BFFB579E2FE76E6FB64EC2ED8B95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +392,8 @@ magnet:?xt=urn:btih:C0F814553021BFFB579E2FE76E6FB64EC2ED8B95
 magnet:?xt=urn:btih:B98B989D91EA0155D26D38C04B33A0FE54016086
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +417,8 @@ magnet:?xt=urn:btih:B98B989D91EA0155D26D38C04B33A0FE54016086
 ```bash
 magnet:?xt=urn:btih:92BB0BE30C337A0124999DB4BC2D64AB2168A7E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +444,8 @@ magnet:?xt=urn:btih:92BB0BE30C337A0124999DB4BC2D64AB2168A7E5
 magnet:?xt=urn:btih:D381920D5DAE6BBB3996B9669EC4B9AF6DE079B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +469,8 @@ magnet:?xt=urn:btih:D381920D5DAE6BBB3996B9669EC4B9AF6DE079B6
 ```bash
 magnet:?xt=urn:btih:00F8FEB003FAE46D58C8BF7F77ADD4B6525376A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +496,8 @@ magnet:?xt=urn:btih:00F8FEB003FAE46D58C8BF7F77ADD4B6525376A9
 magnet:?xt=urn:btih:D8217E5EAB8D7AF8F61FB0F606A05AE2175865BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +521,8 @@ magnet:?xt=urn:btih:D8217E5EAB8D7AF8F61FB0F606A05AE2175865BA
 ```bash
 magnet:?xt=urn:btih:22ED9C947F9BD820FB8735BBD4F6A24D57F6BA06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +548,8 @@ Artworks by Cyril Van Der Haegen
 magnet:?xt=urn:btih:B2F8941C66F856831AC58EE8210E3207C37EBCEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +573,8 @@ Maple Yuan
 ```bash
 magnet:?xt=urn:btih:42A5512D0DD4D0CA1DA107C78FAD811F4706C7A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +600,8 @@ ANIME-PATCHWORK (28.08.2012)
 magnet:?xt=urn:btih:1AC15276B82D6864255A4CE7A5A9E4A4DF7A7E28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +625,60 @@ Computer Desktop Wallpapers Collection (21.08.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:0B9487E9B30D8A4CFBB4BD0FB250066A8A2A80EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 537879   (504901) от 28.08.2012
+
+Mixed Wallpapers (21.08.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C80AC4957036491FA961FD5D057240C1146B74F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 537875   (504902) от 28.08.2012
+
+Best HD Wallpapers Pack (21.08.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5D3353590D637520A2A0E24876D382807030966
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

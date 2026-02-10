@@ -1,3 +1,29 @@
+###  Публикация: 1301603   (585183) от 11.05.2019
+
+Елена Звездная | Сияние Чёрной звезды (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждая девушка мечтает стать первой леди страны, но что делать той, для кого высокое положение лишь сделка, условия которой кесарь начинает безжалостно менять по собственному усмотрению? И у жены Властителя Эрадараса отныне нет права на ошибку, нет права на вольности, нет права на эмоции. Она – императрица поднимающейся с колен империи пресветлых. Её деяния безупречны, (   Читать дальше...   )Жанр: Романтическое фэнтези, ПопаданцыПродолжительность: 08:29:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:353CD3B69BD8465B2BAED41C3687BCBBCEC3C067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301508   (585208) от 11.05.2019
 
 Юрий Иванович | Месть колдуна (2019) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:8F85834C2F3FECBAC2C13E65B471BA05E70E9C61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:8F85834C2F3FECBAC2C13E65B471BA05E70E9C61
 magnet:?xt=urn:btih:F440A16DD0659CF087C5BE8B7CFC917D1B184FFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:F440A16DD0659CF087C5BE8B7CFC917D1B184FFF
 ```bash
 magnet:?xt=urn:btih:6572C0B646592AB88396A9DAB53C39CB689A9BE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:6572C0B646592AB88396A9DAB53C39CB689A9BE1
 magnet:?xt=urn:btih:25AB24382EBA95B9728B19D865225F3662C2BFAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:25AB24382EBA95B9728B19D865225F3662C2BFAC
 ```bash
 magnet:?xt=urn:btih:086504537F071FCC9F9EC1C3BB2AB4867DC0FCAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:086504537F071FCC9F9EC1C3BB2AB4867DC0FCAF
 magnet:?xt=urn:btih:BE803C601E75CEDAEDAEFEB0EE3C1E3B63C8319F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:BE803C601E75CEDAEDAEFEB0EE3C1E3B63C8319F
 ```bash
 magnet:?xt=urn:btih:7CA599CE3C5F457A03975B999F1B19966C6CDE24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:7CA599CE3C5F457A03975B999F1B19966C6CDE24
 magnet:?xt=urn:btih:ADE724C7E7416191159B4A0DE3174194F227092D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:ADE724C7E7416191159B4A0DE3174194F227092D
 ```bash
 magnet:?xt=urn:btih:5036E9D296F9B30B8724B059D1AD959D49084296
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:5036E9D296F9B30B8724B059D1AD959D49084296
 magnet:?xt=urn:btih:8E0ED6FCE90E320B0851BC249B462253662A80AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:8E0ED6FCE90E320B0851BC249B462253662A80AE
 ```bash
 magnet:?xt=urn:btih:D2D1D192C8C9D295785078D812BEE2684A7D10EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:D2D1D192C8C9D295785078D812BEE2684A7D10EA
 magnet:?xt=urn:btih:041256D57DDAF7F128EB35BED3AD38E21D09AFDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:041256D57DDAF7F128EB35BED3AD38E21D09AFDE
 ```bash
 magnet:?xt=urn:btih:19D0ECE2EB3B50B7A26DBBC8784FC07ECDB370E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:19D0ECE2EB3B50B7A26DBBC8784FC07ECDB370E8
 magnet:?xt=urn:btih:509C9DF0E6CE4C426807B90F637B3148F174C345
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:509C9DF0E6CE4C426807B90F637B3148F174C345
 ```bash
 magnet:?xt=urn:btih:B9B53B8DCEF1B87BBBDEB1A31BA937B07F139D7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:B9B53B8DCEF1B87BBBDEB1A31BA937B07F139D7B
 magnet:?xt=urn:btih:3D26351824692190688B5CF31D7184FE8E2FB610
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:3D26351824692190688B5CF31D7184FE8E2FB610
 magnet:?xt=urn:btih:EEE401726096D876208792EC2B276A6980D9A599
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:EEE401726096D876208792EC2B276A6980D9A599
 ```bash
 magnet:?xt=urn:btih:6ACC1491AC5F4E0CF18F8E37A48465BD762AE99A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:6ACC1491AC5F4E0CF18F8E37A48465BD762AE99A
 magnet:?xt=urn:btih:9C2DFD7EF2751CFD62B5084DEA1CC3F287CCAA49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:9C2DFD7EF2751CFD62B5084DEA1CC3F287CCAA49
 ```bash
 magnet:?xt=urn:btih:53E575214FDA3CCABF5C138F7545A514234B9808
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:53E575214FDA3CCABF5C138F7545A514234B9808
 magnet:?xt=urn:btih:1B967B056C068F5A422249AB8CDEEC6FEBABB09F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:1B967B056C068F5A422249AB8CDEEC6FEBABB09F
 ```bash
 magnet:?xt=urn:btih:FD10803ED4131314A4FF9EB68D5F9B7BC4104566
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:FD10803ED4131314A4FF9EB68D5F9B7BC4104566
 magnet:?xt=urn:btih:ABEF8A3DEB1D3F74D3E0EB68B143961F8272B56E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:ABEF8A3DEB1D3F74D3E0EB68B143961F8272B56E
 ```bash
 magnet:?xt=urn:btih:A76F9F4D47C5EFC74D4AC5158D98A24ACCB1A56B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:A76F9F4D47C5EFC74D4AC5158D98A24ACCB1A56B
 magnet:?xt=urn:btih:AD83E05260C2FF2BC0E1924C47D957A5D8E2BAA4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300861   (586964) от 09.05.2019
-
-Константин Калбазов | Рыцарь 3 | Кроусмарш (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Странный мир Средневековья, который местные жители вполне серьезно называют Царством Небесным. Правда, люди не являются его хозяевами, они здесь всего лишь незваные гости. И Андрей Новак, пенсионер МВД, по странной прихоти судьбы оказавшийся в этом мире, теперь уже знает это точно. За необъятной степью, населенной дикими орочьими племенами, затаилась могучая империя, (   Читать дальше...   )Жанр: Боевое фэнтези, попаданцыПродолжительность: 10:37:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A956CA9E370DBBE2C42F18E36DDA9C8C9BC9C20
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

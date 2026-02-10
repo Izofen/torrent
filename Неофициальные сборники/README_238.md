@@ -1,3 +1,32 @@
+###  Публикация: 713446   (401567) от 21.10.2013
+
+Camouflage - 25 Best Songs (2012) [MP3|220 - 259 кб/с]<Synthpop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_401567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Me and You 2003
+02. Love Is A Shield (Single Version) 1989
+03. Neighbours (Single Version) 1988
+04. Passing By 2006(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:47:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:745A9515AFF64500F697CB3A0D55AE80E556CAAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169842   (401589) от 29.09.2017
 
 VA - Pacific Trance Vol.09 (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
@@ -21,6 +50,8 @@ VA - Pacific Trance Vol.09 (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:5608173C881AE9C2A1C449213DEBE9276CB2C9DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ Alexander Bard's projects - 25 Best Songs (2012) [MP3|234 - 279 кб/с]<Eurodan
 magnet:?xt=urn:btih:2122F1D99CA8F0D1EE64A7936D58B86657B2979F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +109,8 @@ VA - Drum & Bass, Lounge Drive (2013)(3CD) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:42107BA911D6BFF0BFE189DCCDD744016C780D0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +134,8 @@ magnet:?xt=urn:btih:42107BA911D6BFF0BFE189DCCDD744016C780D0E
 ```bash
 magnet:?xt=urn:btih:340AD8B1D5A76E7E410FFC4D0759ACDBCAD18013
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -133,6 +170,8 @@ VA - Дискотека бездна Exclusive 9000 50/50 (2012) [MP3|128 кб/�
 magnet:?xt=urn:btih:FEDC57E386867B3F6179985D3511F536B7FC3B32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -159,6 +198,8 @@ Blue System - 25 Best Songs (2012) [MP3]320 кб/с]<Eurodisco>
 ```bash
 magnet:?xt=urn:btih:9A74B8824754C142327C2B64E55E80BC4186CC12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +234,8 @@ VA - Русский муз-хит (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:D5E8AEE8375042D4F941DC540336BB5784096C85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +269,8 @@ VA - Осенний Муз-Paradise (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:8445486D257E34338C901EEA39C9A432197BDC3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +297,8 @@ VA - Empire Records - Disco Chill Out (2017) [MP3|320 Kbps] <Dance, Club>
 ```bash
 magnet:?xt=urn:btih:773D56B3188505F9ABB52E98769F894CA525F999
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +333,8 @@ VA - Мобильная 200-ка Интернета (2012) [MP3|128 кб/с]<Pop
 magnet:?xt=urn:btih:4A47D7FC491128A9B569C7E1583D4648FB96E226
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +367,8 @@ VA - Осенний Top MTV (2012) [MP3|256 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:96DB88140CC2075A0603E4DF675044D49168D688
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +403,8 @@ VA - На Радиоволнах Хит FM (2012) [MP3|128 кб/с]<Pop>
 magnet:?xt=urn:btih:440F70FE19DC37F01B71FB7FDA174980065E9E4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +437,8 @@ VA - Сливки Русского радио: Лучшие песни 9 (2012) 
 ```bash
 magnet:?xt=urn:btih:650C9BEEE7C8F53848915584E58161866257FA45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +473,8 @@ VA - Вкусные хиты на Love Radio (2012) [MP3|256 кб/с]<Pop, Dance
 magnet:?xt=urn:btih:670B205C7DA25B9CAFABD8BAD8FCCE770B8B5B6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +507,8 @@ VA - Need for speed Drayvovy mix (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:F84BC1B1CF369FBDD171B8A915F0D8E05BE83CA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +543,8 @@ VA - Дискотека Non-Stop 7 от Русского радио (2012) [MP3|
 magnet:?xt=urn:btih:8D4F89EA2E12B444F84164939C5A3CFC95D3FF18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +577,8 @@ VA - Astro Lounge (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
 ```bash
 magnet:?xt=urn:btih:53E20DD6D05D26B315BE41CE6250F88F3E0CAB5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +613,8 @@ VA - Зажигаем все вместе (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:3CB606FECCACE98498B0230E64F411CD5387F3D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +648,8 @@ VA - Взрывная волна Русского Радио (2012) [MP3|256 к�
 magnet:?xt=urn:btih:1A366A237464BED0ED366782C1D9737A90CEACDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +676,8 @@ VA - Big Box Store Blues (2017) [MP3|320 Kbps] <Blues, Rock Blues, Lyric>
 ```bash
 magnet:?xt=urn:btih:78B119ACAACC804850C0B36FA8EC4BB5208BB9DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +712,8 @@ VA - Музыкальные Новости Русский (2012) [MP3|256 кб/�
 magnet:?xt=urn:btih:B136CE84EA659340755A21B14D359166E5CDE5F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +740,8 @@ VA - Musical Dreams: Popular Session Of September (2017) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:AE45FEBF02E092CA257A4C65E1FDF14B38A90CB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -697,6 +770,8 @@ VA - Music For Racing (2017) [MP3|320 Kbps] <Hands Up, Club, Dance>
 magnet:?xt=urn:btih:564EA5ADEBF156D9D54432025BAF4E53D8E6ED28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -723,6 +798,8 @@ VA - Deep House Collection Vol.137 (2017) [MP3|320 Kbps] <Deep House, Club House
 ```bash
 magnet:?xt=urn:btih:33FB3F9DD173FCAA438F81DA5A04DA7BCF990EF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -751,32 +828,7 @@ VA - Empire Records: Classic Disco (2017) [MP3|320 Kbps] <Disco>
 magnet:?xt=urn:btih:994794FC3874B27AAEA37430DB2EA4E937C4B81E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 712580   (403166) от 19.10.2013
-
-Michael Jackson - 25 Best Songs (2012) [MP3|235 - 272 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billie Jean 1982
-02. Beat It 1982
-03. Wanna Be Startin' Somethin' 1982
-04. Human Nature 1982(   Читать дальше...   )Жанр: PopПродолжительность: 01:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E54FC3C64C056711886B83104617C8B30639B95F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

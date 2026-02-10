@@ -22,6 +22,8 @@ CD - 1 - Voyage:
 magnet:?xt=urn:btih:E71C310776BD6FEDD2D51BACEE3836AD1FB70C39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ ABBA ушла тихо, без официальных объявлений о р
 ```bash
 magnet:?xt=urn:btih:AD2005842F8DAD83FF6713A7CFCDCC8265F2F499
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:AD2005842F8DAD83FF6713A7CFCDCC8265F2F499
 magnet:?xt=urn:btih:4E68FCBD07CCCD1E3189CBFEC8A64437D8C8E731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - 2018 Grammy Nominees (2018) [FLAC|Lossless|tracks] <Pop, Hip Hop>
 ```bash
 magnet:?xt=urn:btih:DA517C035B706A6FBDBCE67F6A1E8DABBB8D1FED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ CD - 1 - Romantica:
 magnet:?xt=urn:btih:BBEF02CDCEC95F548E248A01D9B53608FBFE0632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - The Best Christmas Album In The World...Ever! 2021 [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:3E3308F2CFC643DF98D4D2E688889D8EE3C977B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Jess Glynne - Always In Between (2018) Deluxe Edition [FLAC|Lossless|tracks + .c
 magnet:?xt=urn:btih:BEE4F0222793AEC9BDF53325AFE354A9B5E1EF85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Thomas Anders - Alles Anders Collection (2020) 3CD, Limited Edition [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:B74AF444A5628AD6F07AB6ADF42FE30AA824C68F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Michael Bolton - Michael Bolton: Greatest Hits (2020) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:A2F7DE99757F45A9E373592C2262BF5115B3A200
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Demis Roussos - Forever & Ever (the Best Of) (2013) [APE|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:A9446A1566CE2AF073884513C8301C9F1A138202
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Demis Roussos - Mon Île (Ile) (1997) Unofficial Release [APE|Lossless|image + .
 magnet:?xt=urn:btih:CA14CF475DA749F1927E830AD39CB745AA198ADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:4AD8368860AB57DF047DD11C3F263D2001FF59D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Kylie Minogue - DISCO (2021) Guest List Edition [FLAC|Lossless|WEB-DL|tracks] <D
 magnet:?xt=urn:btih:3A554A8019A6659A34AF83879194ADBA9BD47A61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Lady Gaga - Chromatica (2020) [FLAC|Lossless|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:25C5B40D6907CF59E65561A32134FB747E68A21B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ magnet:?xt=urn:btih:25C5B40D6907CF59E65561A32134FB747E68A21B
 magnet:?xt=urn:btih:3E4EA0FA12BC153A32956C541516962305F68F14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Little Mix - LM5 (2018) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop, R&B, 
 ```bash
 magnet:?xt=urn:btih:30F0952F6E3E5BE736258A8F7FF81A394E096E35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Lapsley / Låpsley / - Through Water (2020) [FLAC|Lossless|tracks + .cue] <Indie
 magnet:?xt=urn:btih:D93BCD38BBEC445164D7064131A4B45092790D96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Pentatonix - Evergreen (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:5A6F4957F71887241727B9C56A22B46849406645
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ ZAZ - Isa (2021) Japan Edition [FLAC|Lossless|image + .cue] <Pop>
 magnet:?xt=urn:btih:1D86FE2811DD7683836AA86E65A1E692DBBCC53A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Everything But The Girl - Amplified Heart (1994) 2013, RE, RM, 2CD [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:32C1ECAA999B496A204F4DAE53D2EDAC86AAF9B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Laura Wilde - Es ist nie zu spat (Deluxe Edition) (2018) [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:F1FF7879763FE2E411CE1957DC95C7FB02D0371E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ Adriano Celentano - 24.000 Baci (1987) [FLAC|Lossless|tracks + .cue]<Pop>
 ```bash
 magnet:?xt=urn:btih:298D29640D059DCA851B66A85764B5D562B1FFBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ Nik Kershaw - The Works (1989) Japanese Edition [FLAC|Lossless|image + .cue] <Po
 magnet:?xt=urn:btih:B4219C17C4441EF350106B2D1011E01D51035626
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ Charlotte Gainsbourg - IRM (2009) Limited Edition [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:67CC754DD081866DD8C24A44597AFFDE111AA1AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ Yumi Zouma - Willowbank (2017) [FLAC|Lossless|tracks] <Alternative Pop, Dream Po
 magnet:?xt=urn:btih:E3F449DC556E25F2723B6D63317C04C53D20B46D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ MARUV - No Name (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:865691CA74C096316782AD38FD14A38126A9E20E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

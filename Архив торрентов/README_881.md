@@ -19,6 +19,8 @@ PhotoDirector - функциональный, но весьма простой �
 magnet:?xt=urn:btih:BA71D336251B526194BEBDCF53E2A8D832EDB4A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ EmEditor Professional - профессиональная версия мощно
 magnet:?xt=urn:btih:77C1BEFF314657360EB4D84758837F58C75D21D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:1E1FEEA57694AEC103F9ED849009CA683B47EFB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ EmEditor Professional - профессиональная версия мощно
 magnet:?xt=urn:btih:68D50DDA5EFD0A449F6A7978CEF502271B3B9C7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Vivaldi 6.6.3271.45 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FC94FBD746CC5ED4DE371A321CBF3ADE2C4FE808
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Driver Booster сканирует и определяет устаревшие �
 magnet:?xt=urn:btih:FC36BC824888ACD166051F065359D11AE6509EDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:6B5D4B1A990ACC991D6FD292E70D56F6A5114C8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 magnet:?xt=urn:btih:5D9EEBFD7706EEAB1978EAB2AF26728F8D11A883
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:6B8D18FDD491294A54743E056D42A6F8FC76A246
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ VueScan - программа предназначена для замены ст
 magnet:?xt=urn:btih:B0006B6D177BD1797555760BA27A34CB7436F3E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:D0E05377358E3EEE51E4987C0F8BDF80AEBCAEDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Media Player Classic Home Cinema – удобный во всех планах �
 magnet:?xt=urn:btih:BFC4A59EE5C1620104A03868D326E7C37DD287DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:BFC4A59EE5C1620104A03868D326E7C37DD287DD
 ```bash
 magnet:?xt=urn:btih:A229F90628C833CF0A2387F84A84812887FD4838
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ VidCoder - небольшая утилита, с помощью которой �
 magnet:?xt=urn:btih:AE1F2F68AA44DA161F8EDFCFE89BC96568771BCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Media Player Classic Home Cinema - удобный во всех планах м�
 ```bash
 magnet:?xt=urn:btih:98ABC9905FCD828FFBECCC9B866C581615EC86FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Tixati — это полноценный и бесплатный клиент с
 magnet:?xt=urn:btih:2C8837E84AB90F76CF2A3DB71F5DCDD46D7F6139
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Windows хороша, но всегда есть, что улучшить. Во�
 magnet:?xt=urn:btih:2AD5ECF758BF484C183BE84A3D13F3EB46BD0D7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ EF Commander  — замечательный двухпанельный файл
 ```bash
 magnet:?xt=urn:btih:F62B912ADAF2D6A8BE68F23FB3C388F21FAE5219
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ XnConvert - бесплатная кроссплатформенная утили
 magnet:?xt=urn:btih:BFF1EDCB2F95AD21DEE3807FC966DCFAB8EAE608
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Adobe Bridge предоставит вам централизованный до
 ```bash
 magnet:?xt=urn:btih:D3E22801050FF10A49E08614A9163124A9FEAF13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Revo Uninstaller Pro 5.2.6 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:617398F17888B421C1480507AC37E1C59C1C3B40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Affinity Photo — обеспечивает более высокую скоро
 ```bash
 magnet:?xt=urn:btih:5977A3D52DF313C6A782137866263E645DB9DA43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 magnet:?xt=urn:btih:8F06645B29C225392E79CFEDF67B2EAAAE7109DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ Tails (The Amnesic Incognito Live System - Забывчивая Анонимна
 ```bash
 magnet:?xt=urn:btih:4A55DBAC3E1443FC24496A42C1C3DD2895890AF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ Visual Studio Code – визуальный редактор кода от ко�
 magnet:?xt=urn:btih:F6D566C3E0A994C126F7CD0449391C30C6C86F1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Windows 11 Manager - это универсальная утилита специ
 ```bash
 magnet:?xt=urn:btih:ED859CA3B4337915C316340EA5C078071273AAB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

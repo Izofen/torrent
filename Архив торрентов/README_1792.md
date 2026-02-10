@@ -19,6 +19,8 @@ WinSnap позволяет делать скриншоты экрана мони
 magnet:?xt=urn:btih:ED94E5616A34AB45D9175EE7124F6D34334B4588
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ SamDrivers 23.1 LAN [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6E617E5078C6444E914BBF045E58A49071E17E12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Text Edit Plus — это простой, но мощный текстовый �
 magnet:?xt=urn:btih:DA1F7215404C106640F9AE710AC49EF9A5B201CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Brave - защищенный браузер на базе Chromium, постро
 ```bash
 magnet:?xt=urn:btih:F696C4A4B5F0775A19C64AB82BAC45AFD521C548
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ DefenderUI значительно повышает удобство исполь
 magnet:?xt=urn:btih:792390E3AEC1A7729E4C4B3DCA44D092902B2818
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Stellarium - является настольным планетарием, ко�
 ```bash
 magnet:?xt=urn:btih:9155507D456B188970B728BB41949EDBFC5C423E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Data Guardian 6 v.6.0.7 [En]
 magnet:?xt=urn:btih:1A6706FE772E21229C7D41E51C443399911040DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Boxy SVG 3  v3.78.2 [En]
 ```bash
 magnet:?xt=urn:btih:C89F11B49EF0C1EAA9A9238344B5956CB8200C56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 magnet:?xt=urn:btih:0548A0A35D334A78B30F93DA8A789E3C299433ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 magnet:?xt=urn:btih:DE56BEDDC9EBE170B7178A70DAD9574207CB9ED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ O&O DiskImage позволяет создавать резервные копи�
 ```bash
 magnet:?xt=urn:btih:C01B29CC7E696B7A515BE1879CB6D95F3423C2DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ ScreenFlow - создаем свои скринкасты
 magnet:?xt=urn:btih:16EEA657496FA2F2139448AFF5BE2235948922CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ Templates for Pages – DesiGN 7.3 [Multi/Ru]
 magnet:?xt=urn:btih:939C673C06BDE19129BBE0ACBF1F2FA3E191BC10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:C3A68401C38334B9A267494DF82A6C0249DB0367
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Addictive Drums 2 представляет из себя полноценную 
 ```bash
 magnet:?xt=urn:btih:610F237D6BCD6ED09B36F8255C810932C5D6E3EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:610F237D6BCD6ED09B36F8255C810932C5D6E3EE
 magnet:?xt=urn:btih:C2A4E03936A18D54FFF02E25B5F8276B4DCFEA9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:C2A4E03936A18D54FFF02E25B5F8276B4DCFEA9C
 magnet:?xt=urn:btih:174388E5CCEB19D035382BE739C4F28D37D8F581
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ FreeTube использует собственный HTTP-API YouTube с наб�
 magnet:?xt=urn:btih:D9B361524DF1110ACA2D7A07379EFB9F67864EB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ Total Bundle - это набор всех плагинов FabFilter. С эти�
 ```bash
 magnet:?xt=urn:btih:2F75584DD31C28310AB0AC4AE4D92886EFF7D609
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ VA - Early Modulations - Vintage Volts (2000) Caipirinha Productions [FLAC|Lossl
 magnet:?xt=urn:btih:C4C48220F3CF255A2DF27224CA40A1C87EB96EAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ Airtool 2 v2.2.1 [En]
 ```bash
 magnet:?xt=urn:btih:EA108C34A2D0B3F7C6DADC95B0290C81B488F913
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ MemTest86 - бесплатная программа, позволяющая пр
 magnet:?xt=urn:btih:116072D0BEA6C0C7A85D8AEBECF0508EDAE8582F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ Metasequoia 4 v4.7.6 [En]
 magnet:?xt=urn:btih:DA7372BD1C9BEE5105D589610A61A91AA44A7150
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +633,8 @@ Topaz A.I. Gigapixel — это первое и единственное при�
 ```bash
 magnet:?xt=urn:btih:6030776DD861A42F6D8E6BF8F59D3F8E9B9A0B3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:6030776DD861A42F6D8E6BF8F59D3F8E9B9A0B3D
 magnet:?xt=urn:btih:4D3BF34A0C13BED5F3A5EFBB5C4F3589F0BCAAD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ VA - Raster-Noton. Oacis (2000) Raster-Noton [FLAC|Lossless|tracks+.cue] <Minima
 ```bash
 magnet:?xt=urn:btih:73F752A2C06DECE946AB05A50B6928806AEC1D95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

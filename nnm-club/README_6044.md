@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5745FD73C02B2500C80F07776B9C1AA12BC315E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:5745FD73C02B2500C80F07776B9C1AA12BC315E2
 magnet:?xt=urn:btih:D3FB67B22E9EDC42C2F439F9C66ED3DB7890C3AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:D3FB67B22E9EDC42C2F439F9C66ED3DB7890C3AF
 ```bash
 magnet:?xt=urn:btih:6F99110C6DD4E289104ADBB3DA13079E56D7EC70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ VA - Uplifting Only Top 15: September 2023 (Extended Mixes) (2023) [MP3|320 Kbps
 magnet:?xt=urn:btih:4D3892800944DF67E760FB4C7833B5CF69DAC4C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:4D3892800944DF67E760FB4C7833B5CF69DAC4C0
 ```bash
 magnet:?xt=urn:btih:C07794776A1666DC87152C2AD62907D15B22F59D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Billy's Band - В шляпе (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alco-ja
 magnet:?xt=urn:btih:F13DA94A03552E76CCE399ACED0957886CB769A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:F13DA94A03552E76CCE399ACED0957886CB769A6
 magnet:?xt=urn:btih:CC69C616B5FE8F3214F598909EE63AA7672CA95E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:CC69C616B5FE8F3214F598909EE63AA7672CA95E
 ```bash
 magnet:?xt=urn:btih:85ECF17A581580ABA3DEB6A200C6557BAA69CFE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:85ECF17A581580ABA3DEB6A200C6557BAA69CFE8
 magnet:?xt=urn:btih:D724DC872044075FCE8983DECCA21D0FF8153CB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:D724DC872044075FCE8983DECCA21D0FF8153CB3
 ```bash
 magnet:?xt=urn:btih:4266BC2E8F0D4CB42273A2223A80DE6369A28A2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:4266BC2E8F0D4CB42273A2223A80DE6369A28A2E
 magnet:?xt=urn:btih:D2BA034EDA9C447956D61DADED29BB6F24C7ED12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:D2BA034EDA9C447956D61DADED29BB6F24C7ED12
 magnet:?xt=urn:btih:68E006F2AE282490F4DE64214838CD673B7DAF61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:68E006F2AE282490F4DE64214838CD673B7DAF61
 ```bash
 magnet:?xt=urn:btih:4C2105E740453F6F3CC0835A9C06631D2CFACA55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:4C2105E740453F6F3CC0835A9C06631D2CFACA55
 magnet:?xt=urn:btih:BBCC998FC6EED87E093EDA60E160F88132A2948D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:BBCC998FC6EED87E093EDA60E160F88132A2948D
 ```bash
 magnet:?xt=urn:btih:7151202E0F9ADC173C280838CA7F17BDCFAB744C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:7151202E0F9ADC173C280838CA7F17BDCFAB744C
 magnet:?xt=urn:btih:75D3EE658FFD4582EB83EAC41A71EAEF6E7C6A66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:75D3EE658FFD4582EB83EAC41A71EAEF6E7C6A66
 ```bash
 magnet:?xt=urn:btih:20F25602611B816590EC76F6202E6B5527001694
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ John West - Days Of Destiny (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 magnet:?xt=urn:btih:51F94A81802878A9C627BEFFB3B4D273B1976DA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ TattooIN - По траектории (2023) [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:C06FBCEDE9DA65D873204C0AB210E3510160254A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ Never Obey Again - The End Of An Era (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.M
 magnet:?xt=urn:btih:93F7AD260A930639C55633341104D4BCFA0F8CA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:93F7AD260A930639C55633341104D4BCFA0F8CA5
 magnet:?xt=urn:btih:3AF8C2E7D690CC7BE71113B8B380B518531A1BE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ magnet:?xt=urn:btih:3AF8C2E7D690CC7BE71113B8B380B518531A1BE6
 ```bash
 magnet:?xt=urn:btih:B434DE030C1358E789E03E769C6E3BBFFA2EC2C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ Hurricane - Reconnected (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 magnet:?xt=urn:btih:E31DBBB8011179F9477F5538B6D5BBE8B02FEE74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:E31DBBB8011179F9477F5538B6D5BBE8B02FEE74
 ```bash
 magnet:?xt=urn:btih:15433E081C9FABB098B72EDABA78004E19F78278
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +668,8 @@ magnet:?xt=urn:btih:15433E081C9FABB098B72EDABA78004E19F78278
 magnet:?xt=urn:btih:80DBCA329B1BA353D51BCD27C3BF2FC4A95EC1AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ Vintage Culture - Live @ elrow, Ushuaia Ibiza, Spain (2023-09-06) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:60D43711FF032AC9C5EF1062D4317EE04B89CB07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

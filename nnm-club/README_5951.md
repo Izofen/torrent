@@ -22,6 +22,8 @@ VA - Dancing Services, Vol. 2 (2023) [MP3|320 Kbps] <Dance, Club, House, Electro
 magnet:?xt=urn:btih:201060555744FA92DE36AB7F7A2B2394B38F29D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:201060555744FA92DE36AB7F7A2B2394B38F29D4
 magnet:?xt=urn:btih:D58B205BC2BE1C613AF0396B90E8F137F5C66C94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ StressMyPC - крошечная утилита, которая выполняе�
 magnet:?xt=urn:btih:EAE2B92A458AA0C8A5C29A59F2881B80B8991CBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ GPG Suite 2020.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6F5218420BADA1E86A6BD66C32BB46FBF8EAEE1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:6F5218420BADA1E86A6BD66C32BB46FBF8EAEE1D
 magnet:?xt=urn:btih:35DBA038BA4898371414C2D4D36E8F7AA8B6C655
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Skype - бесплатная программа для текстового, г�
 ```bash
 magnet:?xt=urn:btih:14289547A826192B87CC5F52A09AD6B97556EA70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ Steven Wilson - The Harmony Codex (2023) [MP3|320 Kbps] <Progressive rock, Art r
 magnet:?xt=urn:btih:F804770C70A9F98E8FC37ECE9AD598FBF25DFFFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ Boogie People - Boogie People (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 ```bash
 magnet:?xt=urn:btih:CCA58FAA5C68F625D587DF78503358520ED0AE84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ Siskin - We Are Siskin (2023) Extended Mixes [MP3|320 Kbps] <Trance, Progressive
 magnet:?xt=urn:btih:1D9BD587CB092B5AC9B78423A21F5B7D3037154D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:1D9BD587CB092B5AC9B78423A21F5B7D3037154D
 magnet:?xt=urn:btih:1B5E80DDB39AC1C7BE60486F9526101D4092A113
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:1B5E80DDB39AC1C7BE60486F9526101D4092A113
 ```bash
 magnet:?xt=urn:btih:22D16E344A61AC40A0BA93D805977699A9F792E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ Danny Bryant - Rise (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
 magnet:?xt=urn:btih:7320377723082444AEEB2E7F67C387BF1370B6C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:7320377723082444AEEB2E7F67C387BF1370B6C3
 magnet:?xt=urn:btih:78DD762CF56319E27E0EDE8F038DF1C46EC593AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:78DD762CF56319E27E0EDE8F038DF1C46EC593AB
 ```bash
 magnet:?xt=urn:btih:512E4CFA27ADAB34AEC4F19CA3A18B9FFFB449DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ Trance Wax - Open Up The Night (2023) Extended Versions [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:6FBA9591AB085A71678325BFE989B736E1335C1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ Process Lasso позволяет вручную или автоматическ�
 magnet:?xt=urn:btih:2AEE97BE5EA45796DEDBCF7FBB1B0649B122952C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:2AEE97BE5EA45796DEDBCF7FBB1B0649B122952C
 ```bash
 magnet:?xt=urn:btih:3FFA100C8881D9FFD50CB2457E6B5CCA430E5318
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ Steven Wilson - The Harmony Codex (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pr
 magnet:?xt=urn:btih:B095283B5E923F1132865FC3957A27E85D1E6175
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ Jelusick - Follow The Blind Man (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ha
 ```bash
 magnet:?xt=urn:btih:000FEC67ECCC75B3D7035EAA3EB9A39FF96483E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:000FEC67ECCC75B3D7035EAA3EB9A39FF96483E1
 magnet:?xt=urn:btih:E7432DB5BB50C305D790C223EFC9711B30B25C3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:E7432DB5BB50C305D790C223EFC9711B30B25C3B
 ```bash
 magnet:?xt=urn:btih:96AA3F1AE25346F45AEE1475C0913552412A02ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:96AA3F1AE25346F45AEE1475C0913552412A02ED
 magnet:?xt=urn:btih:C165E5ECB378899AFB604A1E1548A176B7701AF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +626,8 @@ magnet:?xt=urn:btih:C165E5ECB378899AFB604A1E1548A176B7701AF0
 ```bash
 magnet:?xt=urn:btih:02F89D4262988899D49B0E3F009833CB3856784F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +656,8 @@ Jimmy Martin - The Singles (2020) [MP3|320 Kbps] <Melodic Rock>
 magnet:?xt=urn:btih:F4F556E7169F3216FC4CEC039DDF458B9EA6C34C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ magnet:?xt=urn:btih:F4F556E7169F3216FC4CEC039DDF458B9EA6C34C
 ```bash
 magnet:?xt=urn:btih:913FC383DC51BAE58E242736730BDB9EDEC059C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -660,6 +710,8 @@ Burning Witches - The Dark Tower (2023) [FLAC|Lossless|image + .cue] <Heavy, Pow
 ```bash
 magnet:?xt=urn:btih:032A16B5BA8C53D9D9974A88AA78EE67E0102A98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

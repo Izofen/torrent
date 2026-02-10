@@ -22,6 +22,8 @@ Corine - Un air de fete (2018) [MP3|320 Kbps] <Dance-Pop, Disco, Chanson>
 magnet:?xt=urn:btih:F34ED9D800BC0AC5B60AEB47E7E380F56FF46897
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ PhotoDiva — одна из лучших программ для ретуши п
 ```bash
 magnet:?xt=urn:btih:93E5B83E369D3F681BC7F6AB313A8E9CF806474A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ Carpe Diem - In Nomine Honoris (2023) [MP3|320 Kbps] <Symphonic Power Metal>
 magnet:?xt=urn:btih:CA6486B6EC1610AA92E42B1221D07FC1F02B2A6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ Insomniac Games | Артбук по играм Рэтчет и Кланк / The 
 magnet:?xt=urn:btih:AAD2AE152A8C07BD1FD48EE6F3C45DC58F69CBFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ MassTube Plus — очень простая в использовании про
 ```bash
 magnet:?xt=urn:btih:72C6F8E43AC77C9E4C5267E138CF58DC15E4BD36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ MacCleaner 2 PRO 2.5 [En]
 magnet:?xt=urn:btih:DFA4297ACFFD97EEE25AAE0AACCFD07750BED300
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:DFA4297ACFFD97EEE25AAE0AACCFD07750BED300
 ```bash
 magnet:?xt=urn:btih:8F2B38D486021EE1875E47F67EB065F9021D81DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ Feodoq - Смесь (Live) (2023) [MP3|320 Kbps] <techno-post-punk, jam>
 magnet:?xt=urn:btih:4976AEAE2AB6578008FD57212DD7B5B38FAD2D87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:4976AEAE2AB6578008FD57212DD7B5B38FAD2D87
 ```bash
 magnet:?xt=urn:btih:75C273A6FEFEF28173EBD57773F229B68FFB9F64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ Cosmopolitan — международный женский журнал. Сод�
 magnet:?xt=urn:btih:462EB07191A7463D46A1E279C1A15BDE1E13B93C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ Mandelbulber- экспериментальное приложение, разр�
 ```bash
 magnet:?xt=urn:btih:38849D0312F3C5D1DB7963E66935BDF846D074E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:38849D0312F3C5D1DB7963E66935BDF846D074E7
 magnet:?xt=urn:btih:5886E2517F7E9345F239C6576EB011A38E510452
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ File & Image Uploader - удобная и просто незаменимая п
 ```bash
 magnet:?xt=urn:btih:DA0B84552F254772BE017648BD0C05CB6BBFF44C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:DA0B84552F254772BE017648BD0C05CB6BBFF44C
 magnet:?xt=urn:btih:177674B4DF7C16BA31A08581908F82D187D53E11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:177674B4DF7C16BA31A08581908F82D187D53E11
 ```bash
 magnet:?xt=urn:btih:88C859BC7FD03643E6AE4114D45EA3EE698B6360
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ Blak29 - The Waiting (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:5F1C170973B689A6A33A9C816CA108AC5BA051DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ Disc One:
 ```bash
 magnet:?xt=urn:btih:9ED83488000EF2F909507EEC6FF50D5FBA69841B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ AutoPrompt  - это  интуитивный интерфейс для спис�
 magnet:?xt=urn:btih:F12248CC898BB56ECAAB32533298D69F823F6352
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ Revo Uninstaller Pro 4.5.5 (+ Portable) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:27177095DEB1068C565515DE1A03DC48CEAD0FBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ Mariana Bo - Live @ Que Se Arme Fest, Mexico 2020-03-31 [MP3|320 Kbps] <House, E
 magnet:?xt=urn:btih:7A79974CE709B57CDFEBD3678B4F256D58E17D83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ Bananarama - Masquerade (2022) 2CD, The Unmasked Edition, 2023, IN SYNK [FLAC|Lo
 magnet:?xt=urn:btih:05FE409186AD8A11236A9E1C7223F5A54C1C3C72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:82C79BF1EE4757F67F638770F0840160D51AE432
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +622,8 @@ Craving - Call Of The Sirens (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death
 magnet:?xt=urn:btih:D726C29FA56BBD1F6986B62EA378C41302BD52D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ AIMP – проигрыватель, включающий в себя множе
 magnet:?xt=urn:btih:E43CD3667F09185BA339506E5061B4FC06106ED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ Iris — это высокопроизводительный экранный р
 ```bash
 magnet:?xt=urn:btih:09698570B58F78B30935AEC5FB1B99DB4F28B974
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +702,8 @@ VA - I Love Lounge Beach (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:1829E77AE24F8CC8CE165115AA5649D87DE6D5C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

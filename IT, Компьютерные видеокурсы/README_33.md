@@ -22,6 +22,8 @@ Udemy, Gustavo Pezzi, Pikuma .com | Lua Scripting: Master complete Lua Programmi
 magnet:?xt=urn:btih:006206A1491BE741A9312A84E146C319BBE028FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ C++ — один из самых популярных языков програ�
 magnet:?xt=urn:btih:5AA0298B3A2DB78C5108B97E22DA60510CF42C18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Udemy, Kyle Schaub | Lua Programming and Game Development with LÖVE (2021) WEB-
 ```bash
 magnet:?xt=urn:btih:1E9A6DCEF396537D325ECE3F42289563A38F3293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:1E9A6DCEF396537D325ECE3F42289563A38F3293
 magnet:?xt=urn:btih:505B6F2E609C83D67E29FFDF46B5AAE68386F8CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:505B6F2E609C83D67E29FFDF46B5AAE68386F8CB
 magnet:?xt=urn:btih:9BE58F5701D62D8F9368ED12609AD0D54DC586D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Udemy, Mohamed Hajji | BUILD THE BEST ECOMMERCE WEBSITE EVER with REACT JS NEXT 
 ```bash
 magnet:?xt=urn:btih:23AC3C1DBF2F2C1DD211C901AD4E6C1DFF5C1F8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Udemy, Jonas Schmedtmann | Crash Course: Build a Full-Stack Web App in a Weekend
 magnet:?xt=urn:btih:CA4F5B47B0C33AF45E5E879D25E1F14765546535
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ PyPI — это репозиторий программного обеспече
 ```bash
 magnet:?xt=urn:btih:95ED1C7B0AA50D02CCA81B646F70489B849CD574
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ PySide6 — это официальный модуль Python из проект�
 magnet:?xt=urn:btih:0395A73E56BBF8B84832A3BB4C717B901E36A715
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ Udemy, Destiny Franks | Build a Video Upload Website Using Django (2023) WEB-DL 
 magnet:?xt=urn:btih:E09EBCB13FB0E2036AF63DC3C3756AB4E08960D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:E09EBCB13FB0E2036AF63DC3C3756AB4E08960D3
 magnet:?xt=urn:btih:7D860281256DE5F7D264D4F8201083C0F23C5439
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:7D860281256DE5F7D264D4F8201083C0F23C5439
 ```bash
 magnet:?xt=urn:btih:F251275B6420F967434B32CCF603BF2C33BFA465
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ Udemy, Jose Portilla | Python for Machine Learning & Data Science Masterclass (2
 magnet:?xt=urn:btih:6201609B27C17E6E5BD58654A402424A5DBE199E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ Udemy, John Purcell | Learn Advanced Java (2022) WEB-DL [EN / EN Sub]
 ```bash
 magnet:?xt=urn:btih:D8F34DCAFE934F335EA6BBA2ECF7BDB2D286F292
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ Udemy, Arno Pretorius | Python Django: Ultimate Web Security Checklist (2023) WE
 magnet:?xt=urn:btih:804877C8F5482B4DFC52880F1E0AA5E85F5D0DC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ Udemy, Arno Pretorius | Python Django: Build an E-commerce Store - 2023 (2023) W
 ```bash
 magnet:?xt=urn:btih:0B7EEE9E70DCF52C7027A199D17D845512D3E91A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ JavaBegin | Авторизация OAuth2 из frontend – на основе Ja
 ```bash
 magnet:?xt=urn:btih:3D1269408C700C5AF89D6C4F880BD5D82D5C67F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:3D1269408C700C5AF89D6C4F880BD5D82D5C67F6
 magnet:?xt=urn:btih:97BCAEE46B23031DE61C0153326BCEB305D2CD16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ ZTM Academy, Luis Ramirez Jr | Unity Bootcamp: 3D Game Development (2023) WEB-DL
 ```bash
 magnet:?xt=urn:btih:AFE5FFCEF3F80EC58F6416BB6B3923E444E2E46C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ Podlodka Crew | Java Crew #1 (2022) WEB-DL [RU]
 magnet:?xt=urn:btih:7BF7F4A59FE5DC7D43BFD4B4187508CDD03446C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ Podlodka Crew | Backend Crew #4 (2022) WEB-DL [RU]
 magnet:?xt=urn:btih:A233F63C0B9777B8B9585FCD9FFD26C0ADC752E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ Brad Traversy | Modern JavaScript From The Beginning 2.0 (2023) WEB-DL [EN]
 magnet:?xt=urn:btih:467C1A6CF71047620DA776DEEF9B83C41E8F890F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ HolyJS 2020 Piter | Конференция для JavaScript-разработч�
 ```bash
 magnet:?xt=urn:btih:898AC60F8B2A6E4DE592F46E8233B16F6353E619
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +649,8 @@ Work-волшебником: повелителем презентаций, за
 ```bash
 magnet:?xt=urn:btih:FDBC7FD7616E7F697857DF2FB2A47B9E3FDC14AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +679,8 @@ magnet:?xt=urn:btih:FDBC7FD7616E7F697857DF2FB2A47B9E3FDC14AB
 magnet:?xt=urn:btih:243A3489518E6371FF997A5F8CC22F1085164C61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ magnet:?xt=urn:btih:243A3489518E6371FF997A5F8CC22F1085164C61
 ```bash
 magnet:?xt=urn:btih:11577A8B861765EDDE3AF37CA55B8AF991C830FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

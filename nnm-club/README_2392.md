@@ -19,6 +19,8 @@ Into the Breach (2018) [Ru/Multi] (1.2.93) License GOG
 magnet:?xt=urn:btih:4565C8A987B6A93D0EAE0944B00ACAD28253BC89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Adobe Photoshop применяют для создания фотореалис�
 ```bash
 magnet:?xt=urn:btih:7C583DB39215626A2028555B1B2C0D2D792558DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:7C583DB39215626A2028555B1B2C0D2D792558DE
 magnet:?xt=urn:btih:B3DA1890F0ADBF8D31CA97695499D3F3E471B7B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:B3DA1890F0ADBF8D31CA97695499D3F3E471B7B3
 magnet:?xt=urn:btih:A827A8BCD9332328055CE0712597CAEA3A0F8F85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:A827A8BCD9332328055CE0712597CAEA3A0F8F85
 ```bash
 magnet:?xt=urn:btih:45B50E0C575C00AFB8E4BBD2DF549C1D68E599B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Enigma - Collection (2024) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:17FA17197E4CAFCB837A67FAE3B6D88B32950318
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:17FA17197E4CAFCB837A67FAE3B6D88B32950318
 magnet:?xt=urn:btih:54AD75878BE4758E10C8E0ED6299A09867410E73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ BBC. Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/1080p-
 ```bash
 magnet:?xt=urn:btih:27DCD10CB81155993491292327E1D8BD6732FD9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:27DCD10CB81155993491292327E1D8BD6732FD9F
 magnet:?xt=urn:btih:11C809D58481E54D803EC1DA7E2F86872821B1E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:11C809D58481E54D803EC1DA7E2F86872821B1E0
 ```bash
 magnet:?xt=urn:btih:DD73DA57947A88EBA240DAB113C459341464BB41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Slade с 1979 по 1987 годы. Slade — британская рок-груп
 magnet:?xt=urn:btih:A40D74866DB1E1721730C8303484C3661A4B33B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:A40D74866DB1E1721730C8303484C3661A4B33B5
 ```bash
 magnet:?xt=urn:btih:8B8E5B4B36E7B186262BC2B168B2C18F2E496435
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:8B8E5B4B36E7B186262BC2B168B2C18F2E496435
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:8B8E5B4B36E7B186262BC2B168B2C18F2E496435
 ```bash
 magnet:?xt=urn:btih:672ADEFC143A83745BE3506A25E95DC4145DD203
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:672ADEFC143A83745BE3506A25E95DC4145DD203
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:672ADEFC143A83745BE3506A25E95DC4145DD203
 ```bash
 magnet:?xt=urn:btih:7323FE06E71A3900A10AA8FE226FFAD8AADBF1E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Shadow of the Tomb Raider (2018) [Ru/En] (1.0.492.0/dlc) Repack Decepticon [Defi
 magnet:?xt=urn:btih:AF5D2257DB68B57B318A94B94CD63BF61941CF99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:AF5D2257DB68B57B318A94B94CD63BF61941CF99
 ```bash
 magnet:?xt=urn:btih:B96D0D6FA67667A8EFCA0834CD4594A6F2024F84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ VA - Reggae Sun music (2024) [MP3|320 Kbps] <Reggae, Ska>
 magnet:?xt=urn:btih:FB075DE97DA3F5616C85247D8B7F160833E6B8B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:FB075DE97DA3F5616C85247D8B7F160833E6B8B8
 magnet:?xt=urn:btih:6B857D60D2D1353216A75DA28C6D43AF8A7CB7A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:6B857D60D2D1353216A75DA28C6D43AF8A7CB7A1
 ```bash
 magnet:?xt=urn:btih:BEF4C3426DB05A681E191EA8CACA1B0D4A5C5B47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ VA - Rock & Blues Rock compilation part 65 (2024) [MP3|320 Kbps] <Rock & Blues R
 magnet:?xt=urn:btih:9623A9838993F3E3F79985ECCC2BFC657E80AE64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:9623A9838993F3E3F79985ECCC2BFC657E80AE64
 ```bash
 magnet:?xt=urn:btih:32D01860F0175D8215B279AEF1D10C1DE8D9CA23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ magnet:?xt=urn:btih:32D01860F0175D8215B279AEF1D10C1DE8D9CA23
 magnet:?xt=urn:btih:7B1EC5E658F6EFE161F84174AF4430B40B2655D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ magnet:?xt=urn:btih:7B1EC5E658F6EFE161F84174AF4430B40B2655D7
 magnet:?xt=urn:btih:B0AF19FB77A7338A9D2BA728E3D38DB67B4D1E4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ magnet:?xt=urn:btih:B0AF19FB77A7338A9D2BA728E3D38DB67B4D1E4E
 ```bash
 magnet:?xt=urn:btih:2C1D68C85AFF3E2EA4CF55E3CF57D86EB10180EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

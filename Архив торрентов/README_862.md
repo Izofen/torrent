@@ -20,6 +20,8 @@ Microsoft .NET 6.0.29 Runtime [Ru/En]
 magnet:?xt=urn:btih:381C43C7F3260F46E0F3F3943A1321B2C0736F17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ QuickTextPaste 8.79 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:679C5AF32D519F4891A5D8D249BCBAD169DE41CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Viber - десктопная версия популярного мобильн�
 magnet:?xt=urn:btih:E6DB10C640B441E6773AF8B42EC6295D93C261AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Wavesequencer - Hyperion 1.51 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
 ```bash
 magnet:?xt=urn:btih:A3A0937384899ECED7D18D3FB5574915F5CEA364
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Theia обеспечивает легкий доступ к мощному си�
 magnet:?xt=urn:btih:8DF5C85796B4DB7652A0D8982DEB23975216058D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ HDCleaner – многофункциональный программный пр
 magnet:?xt=urn:btih:E8657A8F72DF57AC3B989D1920751E928D44DE9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ OfficeSuite Pro + PDF - это полнофункциональный офисн
 ```bash
 magnet:?xt=urn:btih:D32535594D646E4C38638676602BA37BAA41CE83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ iZotope Trash описывается как модульный эффект ди
 magnet:?xt=urn:btih:9DA2CE4A4A237FD3BA234C7EBABD10AB95D50299
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Advanced Renamer хоть и бесплатная (   Читать дальше
 magnet:?xt=urn:btih:6B6C592CC666F1E3F85067409DD4A179D62BD35A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ RegCool 2.000 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F843E65D839CB59A6255CD673708DFFD994D3A4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:D3A0AEADB92A859AF8D86277449E7C5F2CEE4AE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Brave - защищённый веб-браузер на базе Chromium, по�
 ```bash
 magnet:?xt=urn:btih:82D4956EEC32DCBD339977672C60EB905293E8C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ StaxRip - инструмент для кодирования видео "все-
 magnet:?xt=urn:btih:AE5DAB29ED8A545F0F90ACA4ED249C28483EA692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ Balabolka 2.15.0.868 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:3EA5EAF310BC8D773841C1D45B76D63C528F4B7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ SQL Dynamite 2.5.2.2 [En]
 ```bash
 magnet:?xt=urn:btih:8C3CD56E99A45B172C658EE0FCD9796105F351B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ Attribute Changer - простенькая утилита для удобног�
 magnet:?xt=urn:btih:3D78C9FDABB47CF680AECDB68BFCCB12337A07D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ GPS АнтиРадар v42.0 Mod by 0x7d [Ru]
 ```bash
 magnet:?xt=urn:btih:4918F30CBE241E5197F6B4EF79906204491395A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Chromium – веб-браузер с открытым исходным кодо
 magnet:?xt=urn:btih:C97BD7C73F62CF10E9B4B246A6D3A20AD7BD9160
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Strava: бег, велоезда, хайкинг v354.7 Mod by ReVanced Team [Ru
 ```bash
 magnet:?xt=urn:btih:ECE970C8E8BF8A2A3026D693D7E7ECF25A9608B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ FireAlpaca - это достаточно простой, но удобный г�
 magnet:?xt=urn:btih:314D59F80B446DB07736C97369EDC54A42202716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ XYplorer – удобный многовкладочный файловый ме
 magnet:?xt=urn:btih:9002DDC515C1025F4698A565347F8B75A2DFC30B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Opera One 109.0.5097.38  Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:00A8059C9C88B3D53A45355D85041D3AC4F8E4C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ EmEditor Professional - профессиональная версия мощно
 magnet:?xt=urn:btih:11D90201A9E9DC524D1AB1C38848F37B07198DA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ CherryTree - функциональная программа, которая п�
 ```bash
 magnet:?xt=urn:btih:22744AEA567A855CAB23611DA08DA18C3F5E02F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ Advanced Renamer хоть и бесплатная (   Читать дальше
 magnet:?xt=urn:btih:B53620F1ED9058B2750F37A445C66306BA3C2771
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ FontCreator - Редактор шрифтов FontCreator может созда�
 ```bash
 magnet:?xt=urn:btih:120F8C35B5697F6A0A1178F0E8A08EAF908B099C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

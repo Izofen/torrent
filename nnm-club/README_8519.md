@@ -19,6 +19,8 @@ Campus Life (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:7E3C9D1E05B1AF9055D7F08A4A8A2BD7F0C4388B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Monster Care Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:97AD825AAC354522A46CC728CE83F316548938C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Electrical Calculations Pro / Электрические расчеты v11.0.3.
 magnet:?xt=urn:btih:32B8E89DFB79C8E064CF4401F82FA30671109F29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Lighting calculations / Расчеты освещения v6.1.10 Mod by Balatan
 magnet:?xt=urn:btih:97FD63AD57CD0C29EBA3513D2213D57DD75E8E49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Sushi Ben (2025) [Ru/Multi] (1.5.250918.5) Repack FitGirl [VR]
 ```bash
 magnet:?xt=urn:btih:1A6CE2E634EA48430DB67A21EE9E4BB4AF59FFF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:1A6CE2E634EA48430DB67A21EE9E4BB4AF59FFF9
 magnet:?xt=urn:btih:8D8372886877DCFAAC0E57BFC7C704321543FA60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Songs of Conquest (2024) [Ru/Multi] (1.7.3/dlc) Repack Necros [Complete]
 ```bash
 magnet:?xt=urn:btih:7F403CD3B8918EAD98010233A21955E46BC9BB2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:7F403CD3B8918EAD98010233A21955E46BC9BB2B
 magnet:?xt=urn:btih:87865EED6253000B9A8E82325B83983576C0F329
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Moon's Creed (2025) [Ru/Multi] (1.6) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:416894DB91795C775679A6A9D0296AE337B18DE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ LAN Party Adventures (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:05FD59B28E498FA94FB801CCF6D6434B8D72D995
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:05FD59B28E498FA94FB801CCF6D6434B8D72D995
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:05FD59B28E498FA94FB801CCF6D6434B8D72D995
 magnet:?xt=urn:btih:3A2139F3F70B089F95D06424EE7827684F51D82A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ Luminar Neo – это отдельный редактор, который вк�
 magnet:?xt=urn:btih:CE3F19AFD883192215A4856468B28EDE2895E0D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ MyLanViewer — программа для сканирования и монит
 ```bash
 magnet:?xt=urn:btih:655924C8D6B27E49FB744DA1032940902B0115D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 magnet:?xt=urn:btih:BBCF304DC71B171E24FB287A170C0A97F53EDC94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Agatha Christie - Death on the Nile / Агата Кристи - Смерть н�
 ```bash
 magnet:?xt=urn:btih:79911EB3E3626FB3807AA422C15ED14C2CB898DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ Deconstruction Simulator погружает игроков в бизнес по 
 magnet:?xt=urn:btih:B64DD128144D3AEE6D316F50DED6733346B1A2B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Dragon Song Tavern: Cozy and Adventurous (2025) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:1A3F43DED7AAC206F7C8324FAC7B8FA701625C57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:1A3F43DED7AAC206F7C8324FAC7B8FA701625C57
 magnet:?xt=urn:btih:3D13A32A34257D56B6523FD861DB9E8276D538E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:3D13A32A34257D56B6523FD861DB9E8276D538E6
 ```bash
 magnet:?xt=urn:btih:230161B8201D2500911A57273B4DC1BA2A9DF443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:230161B8201D2500911A57273B4DC1BA2A9DF443
 magnet:?xt=urn:btih:C448877ED373004CAAA6F3733E208AC9F1DB1AB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:C448877ED373004CAAA6F3733E208AC9F1DB1AB4
 ```bash
 magnet:?xt=urn:btih:238EA006EE3842A8DDE90BBB9A6DA2FCFCDD857F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Zero Hour (2020) [Ru/Multi] (Build 20792172/dlc) Repack FitGirl [Gold Edition]
 magnet:?xt=urn:btih:428446A44EE78587FC5A5CE2C52E711CDA79854D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:428446A44EE78587FC5A5CE2C52E711CDA79854D
 ```bash
 magnet:?xt=urn:btih:37A52B90A6FD244180D835E3C78B87F68D0FC50F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Topaz Gigapixel – это ведущий в отрасли, ИИ-усилите
 magnet:?xt=urn:btih:4D6E4BD33994E3C7CC3F3195CE97187A5472E17C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Police Stories – это история о двух полицейских: Д�
 ```bash
 magnet:?xt=urn:btih:3CB0B58F926FBD7832F0A7F304754218026E6D16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

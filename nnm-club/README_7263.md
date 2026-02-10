@@ -22,6 +22,8 @@ Nada - Panta Rei (2001) Naxos Jazz[APE|image+.cue] <Vocal Jazz>
 magnet:?xt=urn:btih:04F1F9066F6426BA0B9D4E4CADB7150EB68422BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:04F1F9066F6426BA0B9D4E4CADB7150EB68422BC
 ```bash
 magnet:?xt=urn:btih:1B978909544839FB8C06BB744B76BE1D29E90DB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:1B978909544839FB8C06BB744B76BE1D29E90DB1
 magnet:?xt=urn:btih:CF73ABFF56C4C7EAD68F11744AC183EE0A10EDCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:CF73ABFF56C4C7EAD68F11744AC183EE0A10EDCB
 ```bash
 magnet:?xt=urn:btih:E777671CF11AECA210374EAF33D59EBA7CAB97ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:E777671CF11AECA210374EAF33D59EBA7CAB97ED
 magnet:?xt=urn:btih:0F18C788D68D94A790C36208C4842C1CCD6EBE9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Unite позволяет быстро и легко превратить веб-
 ```bash
 magnet:?xt=urn:btih:055A33C47120082021049D539D37590B5E368200
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:055A33C47120082021049D539D37590B5E368200
 magnet:?xt=urn:btih:0E9B4CF1423F08D6DD018D74D7932BFD1C7B0E3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:0E9B4CF1423F08D6DD018D74D7932BFD1C7B0E3B
 ```bash
 magnet:?xt=urn:btih:9BF05B728CD325786109C31AF97469CAA3A8A6B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:9BF05B728CD325786109C31AF97469CAA3A8A6B2
 magnet:?xt=urn:btih:C525D9CDBD3DA8F527AACBF3180F3AD40538F44C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:C525D9CDBD3DA8F527AACBF3180F3AD40538F44C
 magnet:?xt=urn:btih:BD4A103B6CAA824618D9E537BCD1FDAAFA03104B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:BD4A103B6CAA824618D9E537BCD1FDAAFA03104B
 ```bash
 magnet:?xt=urn:btih:84EFDAC9928FF1B3C2712E5AD2311E417A4E6EA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ VA - German Top 50 Official Dance Charts 16.12. (2016) [MP3|320 Kbps] <Pop, Danc
 magnet:?xt=urn:btih:C369341CD00FF0E3C71862AFCDBA13780A8FD578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Smart Defrag - дефрагментатор, позволяющий довест
 ```bash
 magnet:?xt=urn:btih:2F0AE5148A4789791F8720FBBEB213358271FAD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ CD1
 magnet:?xt=urn:btih:CBC06DB3ADAF2076BDDCB1659DD1A810B820BE23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:CBC06DB3ADAF2076BDDCB1659DD1A810B820BE23
 ```bash
 magnet:?xt=urn:btih:2FE6AD795430B9DF9255663094054100DB9E4209
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ VA - Suggestive (Compiled by Alex Vilator) (2016) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:A32F9407727B84A604525975D2E32CC6FEDC4DE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:A32F9407727B84A604525975D2E32CC6FEDC4DE7
 ```bash
 magnet:?xt=urn:btih:F2FF4FD32929C20938DAF65FA51C3E1D8CB2D88F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ Phenomena - Still The Night (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Mel
 magnet:?xt=urn:btih:6007A4665C3E570DD5DEF1B7396BC51579806C89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:6007A4665C3E570DD5DEF1B7396BC51579806C89
 magnet:?xt=urn:btih:AEBE01E148183D6C89EAD76DF430D5A4771312D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ Assassin's Creed: Origins / Assassin's Creed: Истоки (2017) [Ru/Multi] (1.
 ```bash
 magnet:?xt=urn:btih:BBB5B85F5231B097779487BA6E30E6A6BC6B1C39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:BBB5B85F5231B097779487BA6E30E6A6BC6B1C39
 magnet:?xt=urn:btih:0D0B81323B0AA8658A6D0D617A17B089D89D79FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:0D0B81323B0AA8658A6D0D617A17B089D89D79FB
 magnet:?xt=urn:btih:2DD102EEE6699171043C19483DAB35E9D6CD4056
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:2DD102EEE6699171043C19483DAB35E9D6CD4056
 ```bash
 magnet:?xt=urn:btih:A8B428950C0850DB2E20E7EFDAAB4B4998004FF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:A8B428950C0850DB2E20E7EFDAAB4B4998004FF6
 magnet:?xt=urn:btih:26DBEBE961B77C5BA750491F8C38A4696B0D916A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:26DBEBE961B77C5BA750491F8C38A4696B0D916A
 magnet:?xt=urn:btih:FAD573D729F58AD9B57831EE1AFE80904A1D25C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:FAD573D729F58AD9B57831EE1AFE80904A1D25C7
 ```bash
 magnet:?xt=urn:btih:56A1EACEF213921208FDCC142CD0E0B90B8DF096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ FastFlix - это простой и дружественный графичес�
 magnet:?xt=urn:btih:85191646C5B564BA341AD5D3AE60650354DF6F34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Total Movie Converter - многофункциональная программ�
 ```bash
 magnet:?xt=urn:btih:67C3A34F83063CFF93D7586F3BB98E098871EE94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:67C3A34F83063CFF93D7586F3BB98E098871EE94
 magnet:?xt=urn:btih:92E70D18693FE2D9BF37161406F783785A60AC67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Smart AudioBook Player Pro v11.5.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CF661FE0EFF79A8705F5280315996734274ADB1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:CF661FE0EFF79A8705F5280315996734274ADB1C
 magnet:?xt=urn:btih:AA0DC874C22352BDB37B117764AD7D6FA9AD0ED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:AA0DC874C22352BDB37B117764AD7D6FA9AD0ED1
 ```bash
 magnet:?xt=urn:btih:CF646D803466ABB049F201E7EB9C9B5FFE15849A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:CF646D803466ABB049F201E7EB9C9B5FFE15849A
 magnet:?xt=urn:btih:59562D81962C4B878CB7BFF1BE40957D5FB79376
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:59562D81962C4B878CB7BFF1BE40957D5FB79376
 magnet:?xt=urn:btih:9590B7DA277D6454F67DA8B748C6DFA5BC6071BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ magnet:?xt=urn:btih:9590B7DA277D6454F67DA8B748C6DFA5BC6071BA
 ```bash
 magnet:?xt=urn:btih:A5E6E4797363993D52437F06ECDEF2E3C4A6EFB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:A5E6E4797363993D52437F06ECDEF2E3C4A6EFB9
 magnet:?xt=urn:btih:C66F6F12BCF82022424C03DEB81E0C4218C84833
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:C66F6F12BCF82022424C03DEB81E0C4218C84833
 ```bash
 magnet:?xt=urn:btih:B5A5EF8C32C6A3338003E889EBA060EAFE7333E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:B5A5EF8C32C6A3338003E889EBA060EAFE7333E9
 magnet:?xt=urn:btih:688D0397CFCF28963A28D3213C43EE93892D94B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Flux — это коллекция из 20 экспериментальных а
 ```bash
 magnet:?xt=urn:btih:496221DC695A10DDB198BA89FBAEDD3B0D383824
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Shift — это коллекция из 15 абстрактных вектор�
 magnet:?xt=urn:btih:2557F0329CE3D2789F1E1A9D90A74D99EAFF717A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Photo Editor - уникальная программа для обработки
 magnet:?xt=urn:btih:EE8169E51050806FC2E319D6A341D0DCC182664E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:EE8169E51050806FC2E319D6A341D0DCC182664E
 ```bash
 magnet:?xt=urn:btih:1697830406EF441DA53F902FFCF715490DA5FB9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:1697830406EF441DA53F902FFCF715490DA5FB9A
 magnet:?xt=urn:btih:FF0CF24D84673C953ED41BEAA30605E176C408CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:FF0CF24D84673C953ED41BEAA30605E176C408CF
 ```bash
 magnet:?xt=urn:btih:C5E03DCF3A9B53CC1068F8A029518E45A48D540A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:C5E03DCF3A9B53CC1068F8A029518E45A48D540A
 magnet:?xt=urn:btih:5D830BB5B4F6FB6B88B5E7E45DCBD9C72423BA27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:5D830BB5B4F6FB6B88B5E7E45DCBD9C72423BA27
 ```bash
 magnet:?xt=urn:btih:50D5E2E9E2C0845282BEF1A57140B0797DC19719
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Ashampoo Music Studio 12 дает Вам лучшие результаты с м
 magnet:?xt=urn:btih:2EB57F59897ED4FC511C64977703F28AD152A8B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Fast Video Cutter Joiner - программа 2-в-1 для быстрой ре�
 ```bash
 magnet:?xt=urn:btih:DBA350EDECBFCC24C8D4041A9958B453BDF35F20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ Fake GPS v5.6.2 Mod by Balatan [En]
 magnet:?xt=urn:btih:398205F5C2A69779BFD36028AAA1E2B89C3823CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:398205F5C2A69779BFD36028AAA1E2B89C3823CF
 ```bash
 magnet:?xt=urn:btih:AE330009D9D260771A890B6784F04AAF009E9A72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ Ventusky: Прогноз погоды v46.0 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:8235E267A627D216E5455E1A2677495CFB71D7F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.19.7 Mod 
 ```bash
 magnet:?xt=urn:btih:16004E9C1AFE45BFA3AC27C75F7C9FB7D863651B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

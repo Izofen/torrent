@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5E32030F79222A488B19D699F97652C86C397683
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:5E32030F79222A488B19D699F97652C86C397683
 ```bash
 magnet:?xt=urn:btih:9558375C284163E0B80BE02C568E65E706128A82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ ATOM RPG: Trudograd (2020) [Ru/Multi] (1.057/dlc) License GOG
 magnet:?xt=urn:btih:B950BD9F3A15F9362FB41D3AE11AB80CD5C672B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:B950BD9F3A15F9362FB41D3AE11AB80CD5C672B5
 ```bash
 magnet:?xt=urn:btih:BC45FF820CDEC685573BE0A0934CC632AB6B415D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Of Blades & Tails (2022) [Ru/Multi] (1.1.5) License GOG
 magnet:?xt=urn:btih:B4E08E35403674119B54A2F68C0B0F6CC19CCCEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:B4E08E35403674119B54A2F68C0B0F6CC19CCCEB
 ```bash
 magnet:?xt=urn:btih:CBF25E7819A6E725D1C805E0EEA90E4DB82C8CF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:CBF25E7819A6E725D1C805E0EEA90E4DB82C8CF1
 magnet:?xt=urn:btih:677AD23960ACF0FB9C46A455862B4425E917E6F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:677AD23960ACF0FB9C46A455862B4425E917E6F3
 ```bash
 magnet:?xt=urn:btih:E2ED968421340A903ED5A0A277F6C32A020FBC4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:E2ED968421340A903ED5A0A277F6C32A020FBC4A
 magnet:?xt=urn:btih:B30301D4DBD67F71AB957D309DB719AE94D8B449
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ AnyDesk 9.5.5 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:826EBC112141B0EE7199BA8EFC9DBEEEB2EFA283
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:826EBC112141B0EE7199BA8EFC9DBEEEB2EFA283
 magnet:?xt=urn:btih:A6BAEEB62965220761208B9D997511000A760CC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:A6BAEEB62965220761208B9D997511000A760CC7
 ```bash
 magnet:?xt=urn:btih:C8271A64BE57BE99F4609F997E0DB3121187F4A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Last Vanguard - шутер-платформер в жанре метроидва
 magnet:?xt=urn:btih:EC6FEA2F19F29E25D856BC9099B43BA3A0EAA2C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:EC6FEA2F19F29E25D856BC9099B43BA3A0EAA2C9
 ```bash
 magnet:?xt=urn:btih:376956AD8FB0680211429FC6122B0992AED31263
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:376956AD8FB0680211429FC6122B0992AED31263
 magnet:?xt=urn:btih:747C80104D2C4807AD3E2F365C95A50EF845A869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Valve подводит итоги традиционного опроса пол
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Valve подводит итоги традиционного опроса пол
 magnet:?xt=urn:btih:A5B090BAE33BF95C250C74090DC1DF451EB456B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Last Train Home (2023) [Ru/Multi] (1.0.0.32413/dlc) Repack Let'sРlay [Digital D
 ```bash
 magnet:?xt=urn:btih:128E1615247F19E867A08023B1BB3A24326843F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:128E1615247F19E867A08023B1BB3A24326843F2
 magnet:?xt=urn:btih:BE5CB99ADA664D63D23BC62E5EEF5A38AA355FB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ ContractVille (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E35F2792964096DE56C6B00B4EFCA9362EC81649
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ A4	Safe In My Garden(   Читать дальше...   )Жанр: Folk Rock, Pop
 magnet:?xt=urn:btih:6AC979B6F720A3C9B6DC25962AB31B6B97BD77F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:6AC979B6F720A3C9B6DC25962AB31B6B97BD77F2
 ```bash
 magnet:?xt=urn:btih:365159AB6E0D8B614B7608761E11E81C9BA5402E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:365159AB6E0D8B614B7608761E11E81C9BA5402E
 magnet:?xt=urn:btih:FC2464C61D82AD12E0F8E6C23CAD479D294C5E01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ magnet:?xt=urn:btih:FC2464C61D82AD12E0F8E6C23CAD479D294C5E01
 ```bash
 magnet:?xt=urn:btih:09DF9C76D097AB37BCFC4F16F802B562B27624E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:09DF9C76D097AB37BCFC4F16F802B562B27624E6
 magnet:?xt=urn:btih:0B5797F0868468F2527984E8ED60BF2A39A1F9B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:0B5797F0868468F2527984E8ED60BF2A39A1F9B7
 ```bash
 magnet:?xt=urn:btih:9F5C0D9575CE399A54A5E6076E2AE046897EC514
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

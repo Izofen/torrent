@@ -22,6 +22,8 @@ Hookah.school | Курс профессионального кальянщика
 magnet:?xt=urn:btih:69C17A4A0DD42DD2F4893DC6E14345E295E617D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Bestmarketing, Андрей Чепик | Как с нуля открыть св�
 ```bash
 magnet:?xt=urn:btih:453AD3FE3546128A7160642523121A1F27792981
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Archicad-Master | Новые возможности разверток в ArchiC
 magnet:?xt=urn:btih:CD5733B2F34F994CA4E4E63654EB2197C9C15F77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ magnet:?xt=urn:btih:CD5733B2F34F994CA4E4E63654EB2197C9C15F77
 magnet:?xt=urn:btih:7857D60033DA76D749081A272E608C961AC24D92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ magnet:?xt=urn:btih:7857D60033DA76D749081A272E608C961AC24D92
 ```bash
 magnet:?xt=urn:btih:7C43EEAB30E02FD40390ED80FA7985F3AB4EEB58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -155,6 +165,8 @@ magnet:?xt=urn:btih:7C43EEAB30E02FD40390ED80FA7985F3AB4EEB58
 magnet:?xt=urn:btih:A71EF927E6B42765C976E48A1C0E723AE91F4174
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ Redmadrobot | Практический онлайн-курс «Дизайн мо
 ```bash
 magnet:?xt=urn:btih:E9161462D6D39E1334B5C056BEEFB195833A99C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ ENTAGMA, Manuel Casasola | Creating Geometry With VEX (2016) PCRec [En, Ru]
 magnet:?xt=urn:btih:A19EBAEE6A487C92D482252F1B8D10D67FAE61F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ Houdini – это отличная платформа по созданию с�
 ```bash
 magnet:?xt=urn:btih:5589BA62BFE91F7BDBD4D08EAB47CAD4A2B2A766
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ Side FX, Ryan Goldade | Houdini 16 Flip Fluids (2017) PCRec [En, Ru]
 magnet:?xt=urn:btih:1FBA0AC5ACC176F4141FB8BF0384984CE84D93A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ Side FX, Kai Stavginski | Houdini 16.5 Masterclass Fur & Hair Grooming Toolset (
 ```bash
 magnet:?xt=urn:btih:1FED7E757D9BDB2076067A7969B0CF159234768F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ Side FX, Jeff Wagner | Geometry Workflows in Houdini 16 (2017) PCRec [En, Ru]
 magnet:?xt=urn:btih:1E8AC5441E9F05670FF507ACC1C4775B90BA41E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ Side FX, Andreas Glad | Curvesweeper Houdini for games (2017) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:9A57264F6386364378F9258CFE584DA15F4B5348
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ Side FX, Andreas Glad | Flowmaps Houdini for games (2017) PCRec [En, Ru]
 magnet:?xt=urn:btih:EBB041A20EE9688B062C2EDB2C5B36D05EC7CB05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ CG Academy, Borislav Petrov “Bobo” | MaxScript Fundamentalis 1-2 Advanced (2
 magnet:?xt=urn:btih:3C5A69A263111206E16066D21A46C46E6096E2F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ Side FX, Jeff Wagner | Houdini 15 Masterclass Loops (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:2C35FC025F21FBFC02F06506CFF7C66B4AB07703
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ Side FX, Marc Tucker | Houdini 15 Masterclass Material Stylesheets (2016) PCRec 
 ```bash
 magnet:?xt=urn:btih:39A085BE9AD4F5DEAB1B962306AD8D23ED51E79F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ magnet:?xt=urn:btih:39A085BE9AD4F5DEAB1B962306AD8D23ED51E79F
 magnet:?xt=urn:btih:26D5D17E5BDF73AC21841556C37405EC549ECDB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ Udemy, Pete Jepson | Blender Cyberpunk in Unity HDRP (2020) PCRec [EN / EN Sub]
 ```bash
 magnet:?xt=urn:btih:889B2F4FF27C7F930BD8D1CC552FC2B648DD5D7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ ITVDN, Евгений Мыца | Android User Interface (2020) PCRec
 magnet:?xt=urn:btih:8E900B9749068F98698BFB8F775D3DB2A099252E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ Udemy, Andrei Dumitrescu, Crystal Mind Academy | Master Python Programming: The 
 ```bash
 magnet:?xt=urn:btih:10F824AC8826E695932B6A19E44375B611AF6D1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ magnet:?xt=urn:btih:10F824AC8826E695932B6A19E44375B611AF6D1F
 magnet:?xt=urn:btih:265D480AD07D257A7F41A953E2984B910901D3D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ Proko, Stan Prokopenko | Anatomy of the Human Body: Legs (2018) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:2EDA15F05E0721EEEAFB435752318E0FE4C22B07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +649,8 @@ magnet:?xt=urn:btih:2EDA15F05E0721EEEAFB435752318E0FE4C22B07
 magnet:?xt=urn:btih:297EB91212573BE78048DDA402556B8641196D18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ Udemy, Helen Kapatsa | Ускоренный курс PyTorch (2021) PCRec [AD]
 magnet:?xt=urn:btih:36E36E60101653C1E7B9660524D5C4CA1E2582F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ MP4FM, Garrett Fry | Camera Projection Boot Camp Part 2 (2018) PCRec
 ```bash
 magnet:?xt=urn:btih:DD393261676E85EA0C204FDEE5452E8250FF51E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

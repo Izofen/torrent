@@ -1,3 +1,29 @@
+###  Публикация: 975380   (973298) от 14.01.2016
+
+Земля. Территория загадок. Тайна Великого Сфинкса (2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Какую тайну хранит Великий Сфинкс? В конце 20 века японские ученые проводили исследовательские работы у подножия египетского монумента. Радиометрическая аппаратура показала, что под лапой огромной скульптуры находится какой-то узкий тоннель. Все работы ученых были внезапно остановлены. Что же могли обнаружить исследователи?Телекомпания: МИРЖанр: ДокументальныйРежиссер: Алексей АртемьевПродолжительность: 00:23:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F091C2320421781E327C6A8948C227318A64EA0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975326   (973342) от 14.01.2016
 
 Еврейское счастье (2016.01.12) HDTV [H.264/1080i] (выпуск 6)
@@ -23,6 +49,8 @@
 magnet:?xt=urn:btih:B30AA5465E03C652AF6F8195ADAB10D4CBF7660D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:B30AA5465E03C652AF6F8195ADAB10D4CBF7660D
 ```bash
 magnet:?xt=urn:btih:44641CAE22CF07F243F0C58D44580AE288C9BA2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +101,8 @@ magnet:?xt=urn:btih:44641CAE22CF07F243F0C58D44580AE288C9BA2A
 magnet:?xt=urn:btih:A9EB33D7586A098A40C96C9C8650914B1F0DF262
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:A9EB33D7586A098A40C96C9C8650914B1F0DF262
 ```bash
 magnet:?xt=urn:btih:BAFBD1B480B849B3C85263B2E5C4EF6055BA81A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:BAFBD1B480B849B3C85263B2E5C4EF6055BA81A9
 magnet:?xt=urn:btih:63595BF395E886DD205F3D823AD30D730A4AF92A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:63595BF395E886DD205F3D823AD30D730A4AF92A
 magnet:?xt=urn:btih:EA552E74E8F8C76EEA97FB547C94AFB011A350E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:EA552E74E8F8C76EEA97FB547C94AFB011A350E9
 ```bash
 magnet:?xt=urn:btih:30797E3B0F17FF6458FBA59A6A4EBF974D8B7496
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:30797E3B0F17FF6458FBA59A6A4EBF974D8B7496
 magnet:?xt=urn:btih:A01DB05AF4E5562159B29B952E7D8D0AA1C7F55F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:A01DB05AF4E5562159B29B952E7D8D0AA1C7F55F
 magnet:?xt=urn:btih:ECD2D0632C660FF75CF604012E18B05C65666688
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:ECD2D0632C660FF75CF604012E18B05C65666688
 ```bash
 magnet:?xt=urn:btih:E3F3CD1A43506933B58366BF3C34160B179AF56C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +320,8 @@ Time-lapse это интервальная съёмка с частотой ка
 magnet:?xt=urn:btih:F78B4B89B592DFF5A4F3462B804C878D005403DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +346,8 @@ magnet:?xt=urn:btih:F78B4B89B592DFF5A4F3462B804C878D005403DF
 magnet:?xt=urn:btih:392179081E32476E164A5D9609644E0C1790F944
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +371,8 @@ magnet:?xt=urn:btih:392179081E32476E164A5D9609644E0C1790F944
 ```bash
 magnet:?xt=urn:btih:8EFCEF96D0EE5A0BA5543C10C79F36D2BF407A41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +402,8 @@ magnet:?xt=urn:btih:8EFCEF96D0EE5A0BA5543C10C79F36D2BF407A41
 ```bash
 magnet:?xt=urn:btih:D596BE7918529DFD87ADA4B186AD28FD8F36DC83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +435,8 @@ magnet:?xt=urn:btih:D596BE7918529DFD87ADA4B186AD28FD8F36DC83
 magnet:?xt=urn:btih:66F74BFB399696B92B03FCCB30EAF825474B7AF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +460,8 @@ magnet:?xt=urn:btih:66F74BFB399696B92B03FCCB30EAF825474B7AF1
 ```bash
 magnet:?xt=urn:btih:B110CD9FEB5680C30A570284AF988AF88D3D53E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +489,8 @@ magnet:?xt=urn:btih:B110CD9FEB5680C30A570284AF988AF88D3D53E1
 magnet:?xt=urn:btih:CD27E811BB70432F90080263143596F8165B009A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +516,8 @@ magnet:?xt=urn:btih:CD27E811BB70432F90080263143596F8165B009A
 ```bash
 magnet:?xt=urn:btih:7FDAB78469E7E65BADBD0D3FE71C332FA4B45447
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +545,8 @@ magnet:?xt=urn:btih:7FDAB78469E7E65BADBD0D3FE71C332FA4B45447
 magnet:?xt=urn:btih:84B6191B67175F0DB79001FEC03D86CACDF0B06A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +572,8 @@ magnet:?xt=urn:btih:84B6191B67175F0DB79001FEC03D86CACDF0B06A
 magnet:?xt=urn:btih:049ACF7169893B6A560E3F954795B53F899D6F0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +597,8 @@ magnet:?xt=urn:btih:049ACF7169893B6A560E3F954795B53F899D6F0B
 ```bash
 magnet:?xt=urn:btih:604EE49782736E9B723301411DA9A1485538BBDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +625,8 @@ magnet:?xt=urn:btih:604EE49782736E9B723301411DA9A1485538BBDD
 magnet:?xt=urn:btih:CBC2C9BAAC2D267986741846F2EB93E2D12012DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +650,8 @@ magnet:?xt=urn:btih:CBC2C9BAAC2D267986741846F2EB93E2D12012DA
 ```bash
 magnet:?xt=urn:btih:7BDECD976CDB20387546B90F2D7484C29B2E4E9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +677,8 @@ magnet:?xt=urn:btih:7BDECD976CDB20387546B90F2D7484C29B2E4E9A
 ```bash
 magnet:?xt=urn:btih:903DC90A6030F89C751473D317C906ED62CA61D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,30 +706,7 @@ magnet:?xt=urn:btih:903DC90A6030F89C751473D317C906ED62CA61D0
 magnet:?xt=urn:btih:D6825D9257AE32245FBEEC821DECDFE0AA2F9659
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974692   (975672) от 12.01.2016
-
-Паисий Святогорец. Последние дни земной жизни. (2012) DVDRip
-
->>Документалистика и Телепередачи
->>Религии и культы (Док/TV)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975672.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фильмах собраны воспоминания и свидетельства современников Старца Паисия Святогорца - его духовных чад, соотечественников, родных, духовенства и мирян. Фильмы снимались в местах земной жизни Старца Паисия - на Святой Горе Афон, в греческом монастыре Стомион (г. Коница), г.Салоники, северо-восточной, северо-западной частях Греции, в Афинах.
-1 фильм посвящен жизни (   Читать дальше...   )Телекомпания: ООО ПЦ "Покров"Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйЯзык субтитров: РусскийПродолжительность: 00:27:14 + 00:27:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E053D5A3ACD527C99CEA4593622326837B816FE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

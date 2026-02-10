@@ -19,6 +19,8 @@ The Sims 2 (2025) [Ru/Multi] (1.0.0.153/dlc) Repack dixen18 [Legacy Collection]
 magnet:?xt=urn:btih:E7977ED7CE62852DDCC0D26787C2BFC51FDD377E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Last of Us Part II (2) (2025) [Ru/Multi] (1.0.10402.1014/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E06924835DCACE820B1E57582CE3BD85F6B01CCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Microtopia (2025) [Ru/Multi] (1.0.8bb) Repack Other s
 magnet:?xt=urn:btih:48A8D0D7E83A1C6EE9EF999F45992FE9ED29641D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Paleo Pines (2023) [Ru/Multi] (1.5.22/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:DDF670C5CEF241742043CD2534F83F51AEBC5E67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ South of Midnight (2025) [Ru/Multi] (1.1.0 184977) Scene Rune
 magnet:?xt=urn:btih:15AF6F85989579535D2AD63C14F002C3EEFA627E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ South of Midnight (2025) [Ru/Multi] (1.1.0 184977) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:813AFBFC49DCC3FD6AA076B9D3AB5761154E9903
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ My Friend Pedro - это жестокая смесь дружбы, фантаз�
 magnet:?xt=urn:btih:8A86EA61E4F29FDCD8799C367DEF86DE848A855C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Orcs Must Die! Deathtrap - это безумные бои от третьего 
 ```bash
 magnet:?xt=urn:btih:53D1EF0507BB7EBA4FB6B358D534648BF5A8CD56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Planet Crafter (2022) [Ru/Multi] (1.410/dlc) Repack Pioneer
 magnet:?xt=urn:btih:F361ECB75356CC6A965E95580AAAACE5E8EF1986
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ American Truck Simulator (2016) [Ru/Multi] (1.54.2.3/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:D035CF3E7B9205309F57D35222E9F915B2600D61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Mars Vice - это приключенческая игра, действие к�
 magnet:?xt=urn:btih:C88B863D0FE0D3E2F6677347DB13C91F6DBBECFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Fiora (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A654A2A4189FAB9D32DD1F543A6C4EE434A220FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Ship Simulator: Maritime Search and Rescue (2014) [Multi] (1.0) Repack R.G. Ме
 magnet:?xt=urn:btih:4417F6725E33281462E3EF8E531EBDFF63A0C4CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Ship Graveyard Simulator 2 (2023) [Ru/Multi] (13195/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:51C7AC6457B308A00181EFD502D5948DAEB20FCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ MosGhost (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:894E673B13BDB430FC5DE14CD7ECA753ACFDBFCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Whispered Secrets 16: In the Cards / Нашептанные секреты 16: �
 ```bash
 magnet:?xt=urn:btih:4639A7FA37885207B0A133B661DFB041C16F60B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Train Yard Builder приглашает игроков в миниатюрный
 magnet:?xt=urn:btih:996823E47C7E52716B0A0202D917985407584AF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Virballs (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FB805172D04C0020C6518E0A08987325DD789DD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Haste: Broken Worlds - игра от третьего лица, в которо�
 magnet:?xt=urn:btih:002FFE2E442A6C93379E03E4B469BEB6708B7BE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ REYNATIS - это ролевая адвенчура в жанре городск
 ```bash
 magnet:?xt=urn:btih:F4789D167147186353D41456F47984C0038D332D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ KARMA: The Dark World (2025) [Ru/Multi] (Build 17844576) Repack Other s
 magnet:?xt=urn:btih:9C06DC8C0EC5B56B7D5EFD29D7C3B32DC492436F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Galacticare - это ваш шанс спасти галактику, заним
 ```bash
 magnet:?xt=urn:btih:9A5C5528C572EA4FB270B3077ACF6E3C7303BA58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Haste: Broken Worlds - игра от третьего лица, в которо�
 magnet:?xt=urn:btih:263FC489B8670F6458F4270DF97D897F2EF0ADA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Bio Prototype (2025) [Ru/Multi] (1.0.12) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:AB9D8CA698FEBE3BE805403A7D2C38586DC5D500
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ Avowed - фэнтезийная ролевая игра с видом от пе�
 magnet:?xt=urn:btih:36A2EEFDB94E36325EF820FC6898D668B9797E99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ House Party (2017) [Ru/Multi] (1.4.0.13093/dlc) Repack Other s [18+]
 ```bash
 magnet:?xt=urn:btih:876EDF6501609A3A8CB4D68CD7D4C96CD7D66D8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 944585   (440239) от 07.10.2015
+
+Яков Перельман | Чудо нашего века (1925) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440239.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге Я.И.Перельман рассказывает о нехитрых приемах, с помощью которых обманывают публику «отгадыватели мыслей» и прочие «феномены».Жанр: Образовательная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D8BFAA909E178B27E847F7732FA145B4233971E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944565   (440241) от 07.10.2015
 
 Сергей Копытцов | 11 правил успеха, или Как сложить 1+1, чтобы получить 11 (2015) [RTF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:6ED3E95CD5F5EEE454D616AE6F9CB3EC534C5C72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:6ED3E95CD5F5EEE454D616AE6F9CB3EC534C5C72
 ```bash
 magnet:?xt=urn:btih:BD8F2D4E83897C324C6B0A3BA36F8482CA269D33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +101,8 @@ magnet:?xt=urn:btih:BD8F2D4E83897C324C6B0A3BA36F8482CA269D33
 magnet:?xt=urn:btih:A762269E5F206541B048DEC39AA86FC51C29CD2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:A762269E5F206541B048DEC39AA86FC51C29CD2E
 magnet:?xt=urn:btih:32B4943A1927C60DF20817BC5BC0E3300832FD81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:32B4943A1927C60DF20817BC5BC0E3300832FD81
 ```bash
 magnet:?xt=urn:btih:486206CB3386CF766EC107777832ADA393A7D34D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:486206CB3386CF766EC107777832ADA393A7D34D
 magnet:?xt=urn:btih:8B0D3900BFD487457D14362BBC26A853FB2CE17A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:8B0D3900BFD487457D14362BBC26A853FB2CE17A
 magnet:?xt=urn:btih:A8833450A33463AF75030C8F1EEE7275251720DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:A8833450A33463AF75030C8F1EEE7275251720DF
 ```bash
 magnet:?xt=urn:btih:7FBCFEB4DB3E5DFF5ABA3A84E666F705CF7C2152
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +262,8 @@ magnet:?xt=urn:btih:7FBCFEB4DB3E5DFF5ABA3A84E666F705CF7C2152
 magnet:?xt=urn:btih:B98EAA16C584B6E676475FE2B236FBB7A79D84F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:B98EAA16C584B6E676475FE2B236FBB7A79D84F8
 ```bash
 magnet:?xt=urn:btih:A851DC74BFC8A6CD6778A8E8B2338CF667B5A86F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +315,8 @@ magnet:?xt=urn:btih:A851DC74BFC8A6CD6778A8E8B2338CF667B5A86F
 magnet:?xt=urn:btih:D02CF1EF2A02433ACD358FFF03EA1DD745E4B105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +342,8 @@ magnet:?xt=urn:btih:D02CF1EF2A02433ACD358FFF03EA1DD745E4B105
 magnet:?xt=urn:btih:5978E792E399012151B5AE0A6B9C7809532A1189
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +367,8 @@ magnet:?xt=urn:btih:5978E792E399012151B5AE0A6B9C7809532A1189
 ```bash
 magnet:?xt=urn:btih:2E6A9747B4C7BF41C819DA9D8C528C71D119775F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +395,8 @@ magnet:?xt=urn:btih:2E6A9747B4C7BF41C819DA9D8C528C71D119775F
 magnet:?xt=urn:btih:008E91095A938AB628FF3BA2B23E9F5C84933476
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:008E91095A938AB628FF3BA2B23E9F5C84933476
 ```bash
 magnet:?xt=urn:btih:7238488B34144E7745BE037B160A563385B6DF81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +447,8 @@ magnet:?xt=urn:btih:7238488B34144E7745BE037B160A563385B6DF81
 ```bash
 magnet:?xt=urn:btih:09D21D7BF14E58B29A36C233B477A28664FCF337
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +476,8 @@ magnet:?xt=urn:btih:09D21D7BF14E58B29A36C233B477A28664FCF337
 magnet:?xt=urn:btih:717EA4F7123A621A4B3BBE911E6A8192E12A3CE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +503,8 @@ magnet:?xt=urn:btih:717EA4F7123A621A4B3BBE911E6A8192E12A3CE9
 magnet:?xt=urn:btih:B11153EB724A06B82AECCBC5E8167E6B3EEF47A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +528,8 @@ magnet:?xt=urn:btih:B11153EB724A06B82AECCBC5E8167E6B3EEF47A1
 ```bash
 magnet:?xt=urn:btih:8604208547A466A1A03126EE29347EDC2FBAB35B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +555,8 @@ magnet:?xt=urn:btih:8604208547A466A1A03126EE29347EDC2FBAB35B
 magnet:?xt=urn:btih:D41D5E449F1AEA6BA5352F68A74E9B60332D7C20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +580,8 @@ magnet:?xt=urn:btih:D41D5E449F1AEA6BA5352F68A74E9B60332D7C20
 ```bash
 magnet:?xt=urn:btih:61B544122B5CA49E0214A49F855275829755FA36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +607,8 @@ magnet:?xt=urn:btih:61B544122B5CA49E0214A49F855275829755FA36
 magnet:?xt=urn:btih:594E4A1DEE04F1D14B66AA4703863C55F577C73B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +633,8 @@ magnet:?xt=urn:btih:594E4A1DEE04F1D14B66AA4703863C55F577C73B
 magnet:?xt=urn:btih:693508BB36F8E98504B70E79DEC9E9E07FCEDEBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:693508BB36F8E98504B70E79DEC9E9E07FCEDEBD
 ```bash
 magnet:?xt=urn:btih:F5DA6E7B1B62D0D026BA67FD099560ECFB7753E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,29 +686,7 @@ magnet:?xt=urn:btih:F5DA6E7B1B62D0D026BA67FD099560ECFB7753E9
 magnet:?xt=urn:btih:F8486A6B17BE511E35393C4F90B272C352CAB7E2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944245   (442501) от 06.10.2015
-
-Вирджиль Станислас Мартин | 50 упражнений, чтобы убедить кого угодно (2014) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вам порой не хватает этой уверенности, тогда этот сборник упражнений для вас. В нем вы найдете по-настоящему оригинальные и эффективные методы воздействия на людей, ведь умение убеждать помогает каждому добиться успеха во всех сферах жизни.Жанр: ПсихологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:159B0B4C312A080607AA7F6DA24A6452FF2C53B2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

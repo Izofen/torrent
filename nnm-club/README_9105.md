@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D614A64C20D09B3D8CB3E31CB3964D32768FA9F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:D614A64C20D09B3D8CB3E31CB3964D32768FA9F9
 ```bash
 magnet:?xt=urn:btih:289FAB75F2136721819B846320B89AE324EB9007
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ The Hoolios - God Invents Rock N Roll (2017) CD [MP3|320 Kbps] <Blues, Zydeco, R
 magnet:?xt=urn:btih:D674DC20EAB6AC6EE4707AC3F607E5011B6BF411
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:D674DC20EAB6AC6EE4707AC3F607E5011B6BF411
 ```bash
 magnet:?xt=urn:btih:0F91187A6341C18BA00E831CDE274CB2CCE49092
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:0F91187A6341C18BA00E831CDE274CB2CCE49092
 ```bash
 magnet:?xt=urn:btih:025C9F61C72096E64D6E7E491861E9DBD456B9D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ VA - Mixmag Germany Presents Kittball (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep
 magnet:?xt=urn:btih:22FF990C5E12F629142AF8581BBCF9B228A88ADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:22FF990C5E12F629142AF8581BBCF9B228A88ADC
 magnet:?xt=urn:btih:F4C9E8281DB563E80CA02B7D0B346FA380CD584C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:F4C9E8281DB563E80CA02B7D0B346FA380CD584C
 ```bash
 magnet:?xt=urn:btih:444265638328DFAC7230300502738C89C3B2371D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:444265638328DFAC7230300502738C89C3B2371D
 magnet:?xt=urn:btih:368B947DA97D7A80656BB7603BA0ED50DF509CB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:368B947DA97D7A80656BB7603BA0ED50DF509CB6
 magnet:?xt=urn:btih:FCA5629E272956369A8AF3AAA914E952D0C9499A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:FCA5629E272956369A8AF3AAA914E952D0C9499A
 ```bash
 magnet:?xt=urn:btih:1576FEE5ACF076CB43ED29AC9BD9F00CDE169D91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ Script Debugger предлагает пользователям всё, что �
 ```bash
 magnet:?xt=urn:btih:48BA2F090CBDD2AD2672B40375B36D630B0F13DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ Witch Queen - Witch Queen (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco
 magnet:?xt=urn:btih:CFB08AFAD1F810257FED7D6CE0DF471B9CF7268A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:CFB08AFAD1F810257FED7D6CE0DF471B9CF7268A
 ```bash
 magnet:?xt=urn:btih:297569021DA3037E1215033BCDD377F26E8A703E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ Frankie Miller - Frankie Miller's Double Take (2016) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:759D48696F4C8D474B623AF7BBBE5E8DF0AFCD33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ VA - Underground Festival Part. 3 (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:5C33C17C31DB295D796E8B0F33832354CB1C004E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:5C33C17C31DB295D796E8B0F33832354CB1C004E
 ```bash
 magnet:?xt=urn:btih:08037E38423080E386A7B396C810A4CEDA48A17D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ VA - Chill Deep House Moods (2017) [MP3|320 Kbps] <Deep House, Dance, Electro>
 magnet:?xt=urn:btih:2758E17E885F2D2DD2C351E20ABFA4ECA10EB9DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:2758E17E885F2D2DD2C351E20ABFA4ECA10EB9DE
 ```bash
 magnet:?xt=urn:btih:297FC77584059BDF7BA745E846AC512FCCF68F23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ VA - Soulful Ibiza Sound (2017) [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:3947E53548CEBB5990354801A3EBC60EEFAE8095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ UninstallPKG может использоваться для очистки св�
 ```bash
 magnet:?xt=urn:btih:CE0B543742E58DD82AAE07569571597CA229D9FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ Carola Grey - The Age of Illusions (1994) Jazzline [FLAC|Lossless|tracks + .cue]
 magnet:?xt=urn:btih:C7D6D2B9348B2BB42D795845D956411142B3833F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ Masters Of Balance - The Album (2012) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:643BAC27FD618342F30A3BA166D1DE0BE835A920
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:643BAC27FD618342F30A3BA166D1DE0BE835A920
 ```bash
 magnet:?xt=urn:btih:9315100BF39C30FA53FA7AE90AC0ED5BCC628637
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +680,8 @@ magnet:?xt=urn:btih:9315100BF39C30FA53FA7AE90AC0ED5BCC628637
 magnet:?xt=urn:btih:9A16D1E086E2F0CF5235180225D251301E689B1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ magnet:?xt=urn:btih:9A16D1E086E2F0CF5235180225D251301E689B1E
 ```bash
 magnet:?xt=urn:btih:C03EE503C5B82C940D5E528A8E19D042A738A8F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

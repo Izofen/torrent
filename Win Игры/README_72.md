@@ -19,6 +19,8 @@ TFC: The Fertile Crescent показывает геймерам период з�
 magnet:?xt=urn:btih:CF11115BD1534C137C938BCCDA050B1982FB4D31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 ```bash
 magnet:?xt=urn:btih:2719DE838948F139EB29359EB99CD0419EE814CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Grim Tales 26: Prisoners of the Past (2025) [En] (1.0) Unofficial [Collector's E
 magnet:?xt=urn:btih:8140F5137861C74A3FDC29B85807D2554B688CF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 ```bash
 magnet:?xt=urn:btih:20F97DB63ADBD63605CC13D4EFFC0F337C421F20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Myst (2021) [Ru/Multi] (3.0.4) Repack Let'sРlay [VR]
 magnet:?xt=urn:btih:E4AB033738553BFEE67FD220E835D9B2123DE004
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Storage Guys - это казуальная кооперативная много
 ```bash
 magnet:?xt=urn:btih:2AA13C12E12DFC271B4737BE5F65CA36A235085C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ CAPTURED (2024) [Ru/Multi] (1.2.1.0.2) Repack FitGirl
 magnet:?xt=urn:btih:7023B73345BF76FC4C8E6B500ECCFF2FA9F2DCF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 ```bash
 magnet:?xt=urn:btih:D100C0F2FA634B10AFA45F5CE4F6ED9DB155247E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.0) Repack seleZen
 magnet:?xt=urn:btih:E39FBD9F21097722BDB831D8875B4CC7747D12B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Slime Heroes (2025) [Ru/Multi] (1.0.0.5) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:5C884055847D1E80095B4E9614C14D642A8A61C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Tempest Rising (2025) [Ru/Multi] (1.0.0+43454/dlc) Repack seleZen
 magnet:?xt=urn:btih:7639CE8EC54D490C5A33DCA7A0BB1DE050FA2F95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Coridden (2025) [Ru/Multi] (1.2.3/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:7B1FA102009D81B9AE225D2DD82062187FA94A4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ ArkCraft: The Rebirth of the World / ArkCraft: Возрождение мира (
 magnet:?xt=urn:btih:48644AA0C069D02BD9876E4034E219EB6D9FDA3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Magenta Horizon от соло-разработчика Маддисона Бек
 ```bash
 magnet:?xt=urn:btih:39013E5F59916D2AB6224378B5F5E81307E21811
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.7.0) Repack Decepticon
 magnet:?xt=urn:btih:445F6ABD6170CDC106A860414C66F39F8A204054
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Alan Wake II (2) (2023) [Ru/Multi] (1.2.8/dlc) Repack seleZen [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:2B0E1F48E80093A335885EE1DC9A80294E19F839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Mystery of Myths: Mystery of the Fjords (2025) [Multi] (1.0) Unofficial [Collect
 magnet:?xt=urn:btih:810A95BFC31C804B34D5E7C80C4CD579EAF259EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:810A95BFC31C804B34D5E7C80C4CD579EAF259EC
 ```bash
 magnet:?xt=urn:btih:30E6784E270A1B8EC50C2A75C2F6C749447C0184
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Dark City 10: Barcelona (2025) [En] (1.0) Unofficial [Collector's Edition]
 magnet:?xt=urn:btih:7A9E977715DE78D410D5E716B4847DAFC47BC8ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Skelethrone: The Chronicles of Ericona – в этом достаточно не
 ```bash
 magnet:?xt=urn:btih:0CAA11D973EA2BEF4E3DD5393EB5CEF0774F125D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ magnet:?xt=urn:btih:0CAA11D973EA2BEF4E3DD5393EB5CEF0774F125D
 magnet:?xt=urn:btih:E878585B7067DEBEE6B57170675089822AACE0AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ StoryKeepers: Hidden Mystery / Хранители историй: Скрытая
 ```bash
 magnet:?xt=urn:btih:ECAFAD98F8DD0AE63CCFC1D7C282C0D1206A20C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Koira (2025) [Ru/Multi] (1.0.7/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:42191DA4B18574551B0AB35BB34BA7EAA26D8AF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Lushfoil Photography Sim – это невероятно красивая и р�
 ```bash
 magnet:?xt=urn:btih:A2D0CE82CFD6FB23D9FB35A37D7B14F50CAED231
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Space for Sale — межпланетный симулятор управлен�
 magnet:?xt=urn:btih:4398B1A6D22433DCB7795DC0E89ED3C63F068DB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6758295/dlc) Repack seleZen [Digi
 ```bash
 magnet:?xt=urn:btih:CEA399C3DD166B93E4F7E5AE9D7F81217D35C1BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

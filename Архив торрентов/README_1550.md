@@ -22,6 +22,8 @@ One Function - One (2016) [MP3|320 Kbps] <Progressive Psy-Trance>
 magnet:?xt=urn:btih:9AEE166E41F14AB04FB2F7D687E92E45AE32AFC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:9AEE166E41F14AB04FB2F7D687E92E45AE32AFC7
 ```bash
 magnet:?xt=urn:btih:C9CD3A460E8C8F5D441240880CBF4A49F1FB52D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:C9CD3A460E8C8F5D441240880CBF4A49F1FB52D3
 ```bash
 magnet:?xt=urn:btih:6B506C0AD3AFEFDBB7CFD783EA0C109938A2D72F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ VA - Goa Moon Vol. 8 (Selected by Ovnimoon) (2016) [FLAC|Lossless|tracks+.cue] <
 magnet:?xt=urn:btih:B754CE8E98A6651607B2D8A087D1FCCB29343BE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ Kryder - Kryteria Radio 163 (Amsterdam Dance Event, Netherlands) 2018-12-05[MP3|
 magnet:?xt=urn:btih:F8CB028DB3E08AB61034921E2AEE0B732D90AD23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:F8CB028DB3E08AB61034921E2AEE0B732D90AD23
 ```bash
 magnet:?xt=urn:btih:49254F2F7FB9FAF70EF1C407561E6D3F8F90C30D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ Opera 92.0.4561.33 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:4A441ADDD89D887989762192200540AE3457EDEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ After Effects — это ведущая в отрасли программа д�
 ```bash
 magnet:?xt=urn:btih:EB23CD3EB53C25E76AD50819B8495FA5FFE30B9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:EB23CD3EB53C25E76AD50819B8495FA5FFE30B9C
 magnet:?xt=urn:btih:8A25CB75B8FFDBE405629C4E7AD0610C8C245FF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ Aomei Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:57C887EC1835FBF2C2E7351D9B2474300A2DA421
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ VA - Angst (2004) [FLAC|Lossless|tracks+.cue]<IDM, Electro, Industrial, Experime
 magnet:?xt=urn:btih:C162F89C1A83AF80986B9569B7AC0022F905522F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ W10 Digital License Activation - инструмент от Ratiborus для ак
 ```bash
 magnet:?xt=urn:btih:A752430C2E13156F4FDBB46E30CD85BD4831F61C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:A752430C2E13156F4FDBB46E30CD85BD4831F61C
 magnet:?xt=urn:btih:1C199B6781099596CBAF57B1B9EFBAF96A20A7F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ Total Movie Converter - многофункциональная программ�
 ```bash
 magnet:?xt=urn:btih:A9CA15353E777293203FD1E5DEDFFC5BF44A9A58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:A9CA15353E777293203FD1E5DEDFFC5BF44A9A58
 magnet:?xt=urn:btih:164486B6453D6FF4662AB92E21AD308C1B104690
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ Comedy Woman  (2014.12.26) WEB-DL [H.264/720p-LQ]
 magnet:?xt=urn:btih:5246F66B6161FDB48BF88BB0F29AA34C5AD58320
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ WinSnap позволяет делать скриншоты экрана мони
 ```bash
 magnet:?xt=urn:btih:A4B444F3C034CCAD44642A76F7C5B342E4764B53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ Audiobook Builder 2.1 [Multi/Ru]
 magnet:?xt=urn:btih:FCEEC319690DD2A1E11F38A4478CE556B4CD5D82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ Universal Share Downloader - это программа для скачивани
 magnet:?xt=urn:btih:95C372BB465C9DC18A37AC4B1A2FBC139F21DB48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ Microsoft Edge – кроссплатформенный веб-браузер н
 ```bash
 magnet:?xt=urn:btih:E0B07DB44F23AC3DBFABA89602E94B9AFAA8EDE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ Blender - бесплатный редактор трехмерной графи�
 magnet:?xt=urn:btih:121E3738203145CA6B800012403869A783CC6DBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:121E3738203145CA6B800012403869A783CC6DBB
 ```bash
 magnet:?xt=urn:btih:7FD2EE12A87780279E87123CA4E134F763405B4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 magnet:?xt=urn:btih:63F0CA6DD0D312082A40DD8265D9589FC405D2E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ Vivaldi 5.5.2805.42 + Автономная версия (standalone) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A67EE0D1956D1B668A9291B48072B9D5A1069405
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ Desktop Calendar – бесплатный календарь рабочего с
 magnet:?xt=urn:btih:39DDBBCE6BD1AC12421588D92C75FA567E431F15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ FileZilla - популярный кроссплатформенный FTP кли
 ```bash
 magnet:?xt=urn:btih:3BD40041141DFB4DBFC3AD442A843F8E4208135A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

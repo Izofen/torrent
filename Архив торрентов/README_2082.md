@@ -19,6 +19,8 @@ Comedy Woman (2017.11.24) SATRip (Дайджест)
 magnet:?xt=urn:btih:DCB8628F2A94CDF2CC57AEF650844BBD0360AF81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ qBittorrent - бесплатный, мощный и удобный в работ
 magnet:?xt=urn:btih:BD0FE1414DED82964DA687A8946C76390A675A3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Ashampoo Photo Commander 15.0.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:95EBC2BE3607F88C287CAF834FDA7367944711D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Remotix — это быстрый, удобный и безопасный кли
 magnet:?xt=urn:btih:32CEAE1946B9B44B2D0EB1CB39655CC78C3A466C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:32CEAE1946B9B44B2D0EB1CB39655CC78C3A466C
 ```bash
 magnet:?xt=urn:btih:D962557D6CB0669E03BFEE12ABED515A47FEF964
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Didier Marouani & Space - Paris • France (1982) Remastered, 2002, BMG [FLAC|Lo
 magnet:?xt=urn:btih:C24D2F2CA21020B0F3C523E5C50F6F02729E8238
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Rae Sremmurd - Collection 3 Releases (2015-2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:16520BCAC14BEB6406C48F020671D2CAED11907C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ BetterTouchTool удобное приложение, которое позвол
 magnet:?xt=urn:btih:745B52067698C269014096DF25DD31A83395A615
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Enolsoft PDF Creator помогает создавать PDF-файлы в те�
 ```bash
 magnet:?xt=urn:btih:2F9FCE1B19EFEA784623C5B93C4CDA09DDF958F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ Perfectly Clear – мощный плагин для Adobe Lightroom и Adobe Ph
 magnet:?xt=urn:btih:AB1BC4312D69292AA08F3AFB67C6B2BBFC3D53D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ Submerge - это самый простой способ добавления с
 magnet:?xt=urn:btih:29C91EDF331047D1F932A3E35CAC8D0D1A298134
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ iMazing: отличная альтернатива iTunes
 ```bash
 magnet:?xt=urn:btih:1D31B693EB5DBF2A3377C30E65FDA4372574EC5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:1D31B693EB5DBF2A3377C30E65FDA4372574EC5A
 magnet:?xt=urn:btih:39B2AF9A58E5B2A7937A5AF5AE5AB8B7E0608738
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ Total Audio Converter - мощный конвертор всех музыкал�
 ```bash
 magnet:?xt=urn:btih:B03D70127D37E7DF81FFF97174112083FD8A17F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:B03D70127D37E7DF81FFF97174112083FD8A17F6
 ```bash
 magnet:?xt=urn:btih:C6D190E7EF4B32708F563BBC63B454C713468EFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ NXPowerLite Desktop 8 v8.0.7 [Multi]
 magnet:?xt=urn:btih:527DADB10E613B72EA212BF39DF44B513F90C99A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:527DADB10E613B72EA212BF39DF44B513F90C99A
 magnet:?xt=urn:btih:A4DFA140A6AABF8F9CACA48830211C507785DE09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ akaEasyMoney - программа для учета личных финансо�
 ```bash
 magnet:?xt=urn:btih:BAA786BCDF921727EFE9C33DFF38B5E16421C9D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:BAA786BCDF921727EFE9C33DFF38B5E16421C9D7
 magnet:?xt=urn:btih:FE3FB824E3A60E40832218923A900EEE88388C00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ Sip Pro 1.1.3 [En]
 ```bash
 magnet:?xt=urn:btih:9DE075B5A6FEF4D452AF5CF953CDF8F6B35AFF4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ RapidWeaver отлично подойдет тем, кто ищет ПО для 
 magnet:?xt=urn:btih:1B110A9A1582A3D315CBB8D2FE1AD18AF0A9E0AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ File Cabinet Pro - файловый менеджер строки меню Mac O
 ```bash
 magnet:?xt=urn:btih:5A7A5D1071FF6DAEFE2836B7EEB958AAC9E662C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +616,8 @@ TaskPaper - простое приложение для создания и ве�
 ```bash
 magnet:?xt=urn:btih:B8CC626DA19E81B18C26820CB7808268C8101091
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ magnet:?xt=urn:btih:B8CC626DA19E81B18C26820CB7808268C8101091
 magnet:?xt=urn:btih:32A482B73F06BCB5CA2113BD40B2A824CC2818DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ Path Finder - один из лучших файловых менеджеров, 
 magnet:?xt=urn:btih:2102C25995B73E655B6793392A6A865F6DD1CE04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ KCNcrew Pack - это огромнейший сборник серийников
 ```bash
 magnet:?xt=urn:btih:99E6CF133ED177732DF5EAC151EC99CB709693B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:FE86C1F1D6AD44B6D46906C32FA56813638CA461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Yaplakal.com — популярное информационно-развлек�
 ```bash
 magnet:?xt=urn:btih:61EE6CBB5A4E399D3469933FA914488C6A03A667
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ SoundHound — ваше лучшее музыкальное приложение
 magnet:?xt=urn:btih:562A1026567FC27A0C5ED75CD542B2C1F7EC5D21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ HiPER Calc Pro v11.2.7 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:122496E41F917733759934BEF4D519587F39D250
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:122496E41F917733759934BEF4D519587F39D250
 magnet:?xt=urn:btih:68D6FD9C32B1163FAF93C6240F9B9D3A93E783F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:68D6FD9C32B1163FAF93C6240F9B9D3A93E783F6
 ```bash
 magnet:?xt=urn:btih:82A419E856C135D900D54094C9E2057094EF9A75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Genius Art: Image AI Generator v1.4.9 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:93AF18D993343280CA6665673ECDFA3179B1436B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ OTT Онлайн прямое телевидение, в котором вы н�
 ```bash
 magnet:?xt=urn:btih:49000C89DA00067995C5D3D2E2CB2F17EF6B4CC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:49000C89DA00067995C5D3D2E2CB2F17EF6B4CC7
 magnet:?xt=urn:btih:A09FFD1B23E37C6BB603B4A6D1CD690E45839848
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ BZ Напоминания и Дни Рождения PRO v3.9.3 Mod by Viktor245
 ```bash
 magnet:?xt=urn:btih:72FF9648A6ED2795CD7A74C6B1C85A2431CF9975
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ LazyMedia Deluxe это Android TV приложение, которое можн
 magnet:?xt=urn:btih:56EDDC31EAAB75E44D5D96C9B95D431F56FAD2BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ PowerDirector – Video Editor v15.7.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7BF2C6F091E8026A29211DAFCA22CF4514E014FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ PhotoDirector v20.5.0 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:315D5A1088E7B456FB7162A36B6619EA721EB934
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:315D5A1088E7B456FB7162A36B6619EA721EB934
 ```bash
 magnet:?xt=urn:btih:58805C808BEC45F2C8D9A0077BB652E7B88F5E50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Talksy: Навык общения v0.1.7 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:FE598BA3EE7C96433D5C52BD861032AA30C4AD24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ WeNote: заметки блокнот планер v6.39 Mod by PieMods [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:8DB5E1FAAC21EF91B5239AE429E22555D5C03A54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ ToonApp карикатура фоторедактор лучшее прилож�
 magnet:?xt=urn:btih:E10F12DE2EF1ABC74FC6AD1973BB3D56022EF1AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Strava: бег, велоезда, хайкинг v428.10 Mod by PieMods [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:7143A5661E918938A87B6B6AC52F25888E8587F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Mindroid является АВС (устройство аудио-визуаль
 magnet:?xt=urn:btih:DFAD4509EB4BC2ED51375159F10C320ABC9FD2E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ aCalendar+ Calendar & Tasks v2.9.5 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C4EA3184861470AE72A4CAC6BB168548C130277E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ VIMAGE - AI Photo Animation v5.1.11 Mod by PieMods [En]
 magnet:?xt=urn:btih:62A7B98F106929505083287BC09D5EBC8DB9DF42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ jetAudio это музыкальный проигрыватель с 10/20 по�
 ```bash
 magnet:?xt=urn:btih:EDB6485832842E5A18A5E5FA770000D9ECD24ABA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:EDB6485832842E5A18A5E5FA770000D9ECD24ABA
 magnet:?xt=urn:btih:568A30989898B3D0272C3E957399CA8831F4B10B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Pro Pilkki 2 / Зимняя рыбалка v2.0.7 Mod by ShiroAndShuvi [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:179A011759F60E71B5E0B6D92665FE6AEC89DF58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ TVGuide v4.6.0 Premium Mod by Alex.Strannik [Ru]
 magnet:?xt=urn:btih:86FDAFFE200F20C8FA1083C9E412F25DEFBEFF06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Logic Circuit Simulator PRO предоставляет вам место для 
 ```bash
 magnet:?xt=urn:btih:4E0B8434D27DA9E48365B834F26DE8A11ED3D713
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

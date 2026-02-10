@@ -22,6 +22,8 @@ VA - Trance Music Lounge (2017) [MP3|320 Kbps] <Uplifting Trance>
 magnet:?xt=urn:btih:29BA4C5F5D241E11E7DD3F03FA2DC2122D61FF0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Summer Selection (2017) [MP3|320 Kbps] <Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:55A51E7D9A434C71839525B592C4E19F0189C97D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Summer In Space Vol. 5 (2022) [MP3|320 Kbps] <Spacesynth>
 magnet:?xt=urn:btih:9337AF121C358E7874FE1F5D507A29CB77A7FF8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Supersimmetria - Discography 6 Releases (2012-2019) Hands Productions [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:FA4043D13834EBB08F54753BD59A52ED9A3FC959
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Morning Delights (Beautiful Lounge Experience) Vol. 1 (2019) [MP3|320 Kbps]
 magnet:?xt=urn:btih:3204E081902B810EE2800145DA76B03421A5470E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Despacito (Summer Breeze Beach Chillout Beats Music) (2017) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:6E51CE3AC53BBAF539208530BC371A41AFC57CB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Lost Years - Amplifier (2013) [MP3|320 кб/с]<Electronic, Electro, Disco, Synt
 magnet:?xt=urn:btih:9259A7E3899B7F7DC954E40E08DED9A5CF9979C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Alter Nature - Chillout Collection Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chill
 ```bash
 magnet:?xt=urn:btih:E170B6C28324605FC36AB17BDB4B19E8E736EF6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Delicious Deep House Collection Vol.3 (2017) [MP3|320 Kbps] <Deep House, Ch
 magnet:?xt=urn:btih:82F30AA045235D70CC643C6409646075D68DB2B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Club St Tropez 2015 (Mixed By Dj Jack-E & Djette Benji De La House) (2015) 
 ```bash
 magnet:?xt=urn:btih:1939DF162AC814ED6050AC71CE885543D73E4C57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - A State Of Trance: Ibiza 2018 (Mixed By Armin Van Buuren) (2018) [MP3|320 K
 magnet:?xt=urn:btih:6FAE8F07FCDDF404871FE8590D8AEE77572358A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Fresh Moods Pres. Lazy Days, Vol. 2 (2015) [MP3|320 кб/с]<Lounge, Chill 
 ```bash
 magnet:?xt=urn:btih:25559833DCCF4C5256DE91084A35B2349AD2CD22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Ancestral Voices - Discography 7 Releases (2015-2018) Horo, Samurai Horo [FLAC|L
 magnet:?xt=urn:btih:E6FA9C3479DADDEDE70B4DE4AA297739A2088754
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Swedish House Mafia & The Weeknd - Live @ Coachella Stage, Coachella Festival We
 ```bash
 magnet:?xt=urn:btih:FBF60D1F07A4D1ADA77516FD606F4FE30613F411
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ David Guetta & MORTEN - Live @ kineticFIELD, EDC Las Vegas, United States (2022-
 magnet:?xt=urn:btih:170FB2D5DC435312D7A8C0B885F7AAB91204338E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Justus - Live at W Amsterdam, Netherlands (Exclusive Mix) (2022-05-30) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:69B6D0BDA111AAA1034A5135860A94B72DAD9EC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Lucid Sounds, Vol. 32 (A Fine and Deep Sonic Flow of Club House, Electro, M
 magnet:?xt=urn:btih:02623060E96D543D6ACE8C9F07D40E0E3FDF8CAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Liquid Bloom - ReGen (AtYyA Remixes) (2017) [FLAC|Lossless|WEB-DL|tracks] <PsyCh
 ```bash
 magnet:?xt=urn:btih:1590033ABEBCF0C398D9BFAF6CEDBC938ECE071C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - Goa Culture Vol.25 (2017) [MP3|320 Kbps] <Psy-Trance>
 magnet:?xt=urn:btih:08F1F91378E84637C8927787B22218B750985B9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Moon Boots - First Landing (2017) [MP3|320 Kbps] <Deep House, Progressive>
 ```bash
 magnet:?xt=urn:btih:9C3E45290EBF12A460B9FDCB2B368E35411C5B31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ VA - Warmth (Compiled by Alex Vilator) (2017) [FLAC|Lossless|WEB-DL|tracks] <IDM
 magnet:?xt=urn:btih:AFF8C1B11D772738403297DD44F368A31B59B9C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ Way Out West - Tuesday Maybe (Remixed) (2018) Extended Edition [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:D8759FC3DB31F6B48473C18F6C41C941D6F12FB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ VA - Ibiza Summer 2018: Deep & Tropical House (2018) [MP3|320 Kbps] <Deep House,
 magnet:?xt=urn:btih:700ABBF1AD2D59AC3F98EDC11235B13178B9B120
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ VA - Realm Of Consciousness Pt. III (2018) Afterlife [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:A34E34C8BEB41ADF74B6BFE8D26552AECA5C0FAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ VA - Top 50 Drops Summer '18 (2018) [MP3|320 Kbps] <House, Future House, Groove,
 magnet:?xt=urn:btih:303DDC3C85CA1D4A385B22C12305B77F48B6002B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ VA - OHM (2018) Ambidextrous Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid
 ```bash
 magnet:?xt=urn:btih:BD3DF2A30AA1ABD81956D6D8F228CE6DF95B8C0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

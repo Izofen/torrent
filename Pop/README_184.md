@@ -1,3 +1,148 @@
+###  Публикация: 1563576   (503513) от 15.07.2022
+
+Eruption - Eruption - The Best Of Eruption (1981) Compilation, Remastered, 2017, Big Break Records [MP3|320 Kbps] <Funk, Soul, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Stand The Rain (3:09)
+02. Go Johnny Go (Keep On Walking, John B.) (3:30)
+03. Leave A Light (I'll Keep A Light In My Window) (4:21)
+04. Movin' (4:27)(   Читать дальше...   )Жанр: Funk, Soul, Pop, DiscoПродолжительность: 01:16:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C12FA8D65282D348365E29516FFDBB5E23B994D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563723   (503519) от 15.07.2022
+
+Dina Summer - Rimini (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Italo Disco, Indie Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dominator (4:02)
+ 02. Mars (4:54)
+ 03. Uranos (5:32)
+ 04. Revenge (3:35)(   Читать дальше...   )Жанр: Electronic, Italo Disco, Indie DanceПродолжительность: 00:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02B59AAEF6CC2E3C508AE1313AB9560D533F071D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933720   (503650) от 04.09.2015
+
+Stella (Стелла) - Я в это верю (2003) [FLAC|image+.cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Just you and me
+02 Не в первый раз
+03 Майский ливень
+04 Он не вернется(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D280EBC7722FEC53762DB4F2990852F4B7EEA76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934180   (503654) от 04.09.2015
+
+Вячеслав Быков - Для неё весь мир (2003) [FLAC|image+.cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Для неё весь мир [03:34]
+02. Моя звезда [03:24]
+03. Лаура [03:48]
+04. Где я, где ты [03:56](   Читать дальше...   )Жанр: PopПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D9C508C90CBF6BCE55ECE4EE2D36CE049B1AD25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316891   (504045) от 28.07.2019
+
+VA - BRAVO Hits 106 (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Dance, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504045.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Shawn Mendes & Camila Cabello - Señorita  (3:12)
+02. Sarah Connor - Vincent  (4:43)
+03. Pedro Capó & Farruko - Calma (Remix)  (3:59)(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 02:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FB3383E3B8C54D3AA18681BF9DFACC19D00426A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316883   (504048) от 28.07.2019
 
 Стас Костюшкин - Караочен (2019) [MP3|320 Kbps] <Pop>
@@ -21,6 +166,8 @@
 ```bash
 magnet:?xt=urn:btih:91D4E38648116B21703036FA4D7B49E51345879A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +195,8 @@ CD3 - Always & Forever(   Читать дальше...   )Жанр: Pop, R&B and
 ```bash
 magnet:?xt=urn:btih:CE8BF47BA01B443E34F24ECDB142124C7D6C6432
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +231,8 @@ magnet:?xt=urn:btih:CE8BF47BA01B443E34F24ECDB142124C7D6C6432
 magnet:?xt=urn:btih:BDBC80BCB2A05B828EF5C10B3657B5144079DA3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +259,8 @@ Michael Jackson - Memorial (2019) 2CD [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:BD1C589702ABFC516D07880C387A9499D46E3A84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +289,8 @@ Zodiac - Disco Alliance & Music In The Universe (2003) Compilation[FLAC|image + 
 magnet:?xt=urn:btih:0DDD331CA6A65B3F36507D61874F43A88EDB72F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +318,8 @@ Lena Katina (Лена Катина) - Моно (2019) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:D554DA363C95C09348F1E41DD37D91C6910BAD24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +346,8 @@ Cliff Richard - Dynamite (2007) Compilation, Japanese Edition [WavPack|Lossless|
 ```bash
 magnet:?xt=urn:btih:B843DE45F4A80831054E1EBDE141C5EE92BC40D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +382,8 @@ VA - Wow That Was The 70's (1999) BoxSet 8CD[MP3|320 кб/с]<Pop, Rock, Oldes, 
 magnet:?xt=urn:btih:B606860953773BD18CD34540C4F252786FE6ACC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +410,8 @@ magnet:?xt=urn:btih:B606860953773BD18CD34540C4F252786FE6ACC7
 ```bash
 magnet:?xt=urn:btih:C82C977D734D547264C20146E1BA368603491A40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +440,8 @@ Katz - Female Of The Species (1986) Reissue, Remastered, 2017 [FLAC|Lossless|ima
 magnet:?xt=urn:btih:279ED738E543D398FD6DFDC1B31BB23F8F4A3A43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +468,8 @@ Elton John - Regimental Sgt. Zippo (2022) Stereo Mix [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:15F196BC3F975A048438D6453D3C03EF7BB5029A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +504,8 @@ Roxette - It's Possible (Unofficial Release) & The Sweet Hello, The Sad Goodbye 
 magnet:?xt=urn:btih:A64E4ED22D504C8F0B8956A1F0F37CA163A2DF80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +532,8 @@ Of Monsters And Men - FEVER DREAM (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Po
 ```bash
 magnet:?xt=urn:btih:9C0860860F773BA7954EE8C4509F2D2D5F40F6E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +562,8 @@ K.Flay - Solutions (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 magnet:?xt=urn:btih:9D039626AFF6D851105996DF469335B431F538DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +588,8 @@ Mylene Farmer & Sting - Stolen Car (2015) Single [FLAC|Lossless|WEB-DL]<Pop, Ele
 magnet:?xt=urn:btih:B4C1F266D150181AE56EB5DE695071C63B019253
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +613,8 @@ A-Ha - I'm In (2022) Single [FLAC 2.0|96/24|WEB-DL|tracks] <Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:C3A0549CB4CB95AAB91796DDC138FF82FEA6A10E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +649,8 @@ Lipps Inc. в течение 80-х годов записывала отличн�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +683,8 @@ VA - Testament Van De Sixties 1960-1969 (10CD) (2007) [MP3|320 кб/с]<Blues, F
 ```bash
 magnet:?xt=urn:btih:853CD5C1D12BC8B9766E90E7DC94856AB14AE5D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +719,8 @@ VA - Die Coolen 80er (2004) [MP3|320 кб/с]<Pop, Dance, Oldes>
 magnet:?xt=urn:btih:C6880411D5AAADB3F82D9C8D15C7FEC15A7278E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +749,8 @@ CD3 - Always & Forever(   Читать дальше...   )Жанр: Pop, R&B, So
 magnet:?xt=urn:btih:27788C7578B6A3FE14039C0790BB3DC5296743B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,140 +778,7 @@ Antonia - Dance With Me (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 magnet:?xt=urn:btih:F61B94619FC77184146D7971900330B5AAE9F347
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932165   (508926) от 29.08.2015
-
-Halsey - BADLANDS (2015) Deluxe Edition [MP3|320 кб/с]<Indie Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Castle
- 02. Hold Me Down
- 03. New Americana
- 04. Drive(   Читать дальше...   )Жанр: Indie Pop, ElectronicПродолжительность: 00:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDE9F78EC8E546F194F9F7694699B6E279355564
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932389   (509003) от 29.08.2015
-
-Modern Talking - The First Album & The Second Album (30th Anniversary Limited Special Edition) (2015) 3CD [MP3|320 кб/с]<Europop, Euro-Dance, Dance-Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're My Heart, You're My Soul (05:35)
-02. You Can Win If You Want (03:51)
-03. There's too Much Blue in Missing You (04:42)
-04. Diamonds Never Made a Lady (04:06)(   Читать дальше...   )Жанр: Europop, Euro-Dance, Dance-PopПродолжительность: 02:06:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4528915B0D5C91BEF83663215FCDDA50E951A78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932442   (509269) от 29.08.2015
-
-Джинсовые мальчики - Mini Disco (2015) [FLAC|image+.cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Волна
-02. Выше тополей (feat. «140 ударов в минуту»)
-03. Mini Disco
-04. Дождик(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFAF395673715181E5A2610BC795563BDD00087E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932484   (509275) от 29.08.2015
-
-Brooklyn Funk Essentials - Funk Ain't Ova (2015) [MP3|320 кб/с]<Funk, Acid Jazz, Soul, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blast It!
-02. Dance or Die
-03. I'm Gonna Find Me A Woman (Cause It's Cold Outside)
-04. Prepare(   Читать дальше...   )Жанр: Funk, Acid Jazz, Soul, DiscoПродолжительность: 00:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB728340C9633CE0AE4ADDC03BE7B35EDC3805B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 376526   (510065) от 17.08.2011
-
-Bee Gees - 10 альбомов (1976 - 2001) /Studio Albums/ [FLAC|Lossless]<Disco, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510065.jpg" />
-</div>
-
-
-###  Подробнее
-
-1976 - Children Of The World
-1977 - Saturday Night Fever (OST)
-1979 - Spirits Having Flown
-1981 - Living Eyes(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 08:58:10
-
-## Скачать торент
-```bash
-нет
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

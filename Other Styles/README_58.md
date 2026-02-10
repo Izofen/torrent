@@ -28,6 +28,8 @@
 magnet:?xt=urn:btih:CCCCCF0BFEB9198311AFC019A35CF9E7E8AA6900
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ Mark Mothersbaugh - Thor: Ragnarok / Тор Рагнарёк (Original Motion Pi
 ```bash
 magnet:?xt=urn:btih:8661D686F91294C0051308A401E72BC3BF28B6DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ Mark Mothersbaugh - Thor: Ragnarok / Тор Рагнарёк (Original Motion Pi
 magnet:?xt=urn:btih:0517EC09545EA89654164F9A15C343172FC05818
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ Kyle Dixon & Michael Stein - Stranger Things 2 / Очень странные д�
 ```bash
 magnet:?xt=urn:btih:119B32CC7F7AC50BF627D0F5B10F507630FA4E14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +144,8 @@ Estas Tonne - 8 альбомов (2002-2013) [MP3|320 Kbps] <Instrumental, Flame
 magnet:?xt=urn:btih:58E708999D5A6E33604E5A281704F95EFFA2A3CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +172,8 @@ Lorne Balfe - Geostorm / Геошторм (Original Motion Picture Soundtrack) (
 ```bash
 magnet:?xt=urn:btih:CD96A44C5406A811EBF29877B4D21D78EEF11DE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ Fridrik Karlsson - Chillout Heaven (2006) [APE|tracks+.cue]<New Age, Chillout, R
 magnet:?xt=urn:btih:E04C46ECCB286D9C56229842250545559C77B1AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ Lorne Balfe - Geostorm / Геошторм (Original Motion Picture Soundtrack) (
 ```bash
 magnet:?xt=urn:btih:038057D11C7E8A224350DB90584889FC65B0E696
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +260,8 @@ Hildur Gudnadottir - Joker / Джокер (Original Motion Picture Soundtrack) (
 magnet:?xt=urn:btih:95ECDD5FC991EAA221A7ADCB422D02943B7054B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +289,8 @@ Davide Brullo - Life (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano Solo, 
 magnet:?xt=urn:btih:FAEA5F61B7C90D11A26D107BBC2DCEBE28CEE5C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +317,8 @@ Hildur Gudnadottir - Joker / Джокер (Original Motion Picture Soundtrack) (
 ```bash
 magnet:?xt=urn:btih:79C64A48B5AF3B33E5D40C8881EA3D90F1E07DF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +349,8 @@ Hildur Gudnadottir - Joker / Джокер (Original Motion Picture Soundtrack) (
 magnet:?xt=urn:btih:8333EBF66518C51E60F091D73F376C489EDEDB5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +377,8 @@ DJ Taz Rashid - A Story of Satori (2015) [MP3|320 Kbps] <New age, World music, A
 ```bash
 magnet:?xt=urn:btih:46B1FE2E9973BB8BCD5F9DD8475B52AB3723CFD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +407,8 @@ Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдал
 magnet:?xt=urn:btih:09E3C8667E81CF36489939735230CC69E3E6BDE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +435,8 @@ Jennifer Thomas - The Fire Within (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrume
 ```bash
 magnet:?xt=urn:btih:153642211E77EF2B11516D4D18EA5CB2691343DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +465,8 @@ Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдал
 magnet:?xt=urn:btih:3B893CFE9751C9CE235E3DE209EA28A3A9731B45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +493,8 @@ Brian Tyler & John Carey - Escape Room / Клаустрофобы (Original Moti
 ```bash
 magnet:?xt=urn:btih:A80C8CD68B55419531012CF4FC6D129C685A5F60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +523,8 @@ Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдал
 magnet:?xt=urn:btih:010B545F1DADF20478E467A6567FE3A5D215594D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +551,8 @@ Jуhann Jуhannsson - The Theory of Everything / Вселенная Стивен
 ```bash
 magnet:?xt=urn:btih:DF3EBAD0FDC86A95BF2ABEB1EC85E41732D791F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +581,8 @@ Brian Tyler - The Devil We Know / Дьявол, которого мы знаем
 magnet:?xt=urn:btih:5219B60E23FB76262FAAC490F0083FBD29E436F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +609,8 @@ Brian Tyler & John Carey - Escape Room / Клаустрофобы (Original Moti
 ```bash
 magnet:?xt=urn:btih:B767A3CC194821AD9B66AB0F3AAE46D3BDEE2D47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +639,8 @@ Johann Johannsson - Mandy / Менди (Original Motion Picture Soundtrack) (201
 magnet:?xt=urn:btih:895C453BAD7471C936B1D9A8F67AEC2B08A12AF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +667,8 @@ Brian Tyler - The Devil We Know / Дьявол, которого мы знаем
 ```bash
 magnet:?xt=urn:btih:99B0697726DF45FF8C93804150EA24A0FBF50B44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +697,8 @@ Hildur Gudnadottir, Rutger Hoedemaekers, Johann Johannsson - Trapped / Капк�
 magnet:?xt=urn:btih:E54C597433E4DF7FB27A14ED5E18C66BCCDFBB16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,6 +726,8 @@ Hildur Gudnadottir, Rutger Hoedemaekers, Johann Johannsson - Trapped / Капк�
 magnet:?xt=urn:btih:9DC9E776F80B510ECFECEEEFD380A056AF21FF04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -704,6 +754,8 @@ VA - Los clasicos argentinos - Tango - Vol.12 - Ruben Juares: El bandoneon que c
 ```bash
 magnet:?xt=urn:btih:25AD65BC3F58BAC07E62AD2B765ADC44009BB5A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

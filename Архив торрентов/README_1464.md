@@ -19,6 +19,8 @@ Process Monitor 3.92 [En]
 magnet:?xt=urn:btih:BB52765213A1822074DBC6CCAD1CF0F49E61B5F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ StopUpdates10 – бесплатная утилита для Windows 10 и Windo
 ```bash
 magnet:?xt=urn:btih:C2C3B50A9413EA8B47BBEB0ED09FDBB86113F755
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:B44E270000EEC11B3A9E19960CC4966C2C6B441B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Media Player Classic - Black Edition (MPC-BE) – универсальный п�
 ```bash
 magnet:?xt=urn:btih:F90ADF53969CB8E4C3D5AF12CE21B661F934E4F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ ZEDGE - приложение в котором вы сможете найти н
 magnet:?xt=urn:btih:5D11C1CEEEB8A4A6216C1452F5CF95526E0A0882
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ PhotoRoom - приложение, что будет одинаково поле�
 ```bash
 magnet:?xt=urn:btih:6C66DA08C0AF9A2A7886A32A428BD4BB7C413438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Duolingo: изучай языки 5.117.4 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:17DEFAED13F16C3C2CCFCAC7BAF29D5F43E2AC2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Ocenaudio — аудиоредактор, распространяемый ав�
 ```bash
 magnet:?xt=urn:btih:368A0EC326863941B0595F3689C280C451F936E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Everyone Piano 2.5.8.31 [Multi/Ru]
 magnet:?xt=urn:btih:BEA3B08A210310751679B6BEEFE8BDFFC20EFA51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ DxO FilmPack — это подключаемый модуль для Adobe Photo
 ```bash
 magnet:?xt=urn:btih:75EDEB3612A19903E9580650E153895FEE7C47F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ QownNotes – менеджер заметок, позволяющий четко
 magnet:?xt=urn:btih:09701884FEC279EA43EC095ABC418F3CAF370345
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:09701884FEC279EA43EC095ABC418F3CAF370345
 magnet:?xt=urn:btih:9E48F677BD45151ACDF71C323D6AE9BC47AD24D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Lucky Patcher (Лаки патчер) – отличное решение есл
 ```bash
 magnet:?xt=urn:btih:5D18B888ED34632423A875D2AF840ED4F6A68BA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Mimestream сочетает в себе мощь macOS с расширенным
 magnet:?xt=urn:btih:27386800C321C83C13C7C44D93C541C9EB4AA968
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:27386800C321C83C13C7C44D93C541C9EB4AA968
 ```bash
 magnet:?xt=urn:btih:B4E40956EA7E0CACD4E323B5CA75635EA3D9ED58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ ZEDGE - приложение в котором вы сможете найти н
 magnet:?xt=urn:btih:A7ADCBFE3BC95AE99A65F20DC6804E96982F1CD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Photo Sherlock v1.89 [Ru/Multi]
 magnet:?xt=urn:btih:3993FB396054988E1A3441C0D3FC3F40562B2CAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:96BE7B72F2A531C88F7C2C58555E0545B161EFF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ FxFactory Pro включает  фильтры, генераторы и пере
 magnet:?xt=urn:btih:968FDB36F62980B2054C4B4309EA3A710C413906
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:E753C800CBF005A63DB0DD08430DF762ADE84FAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ TweakNow WinSecret Plus! - позволяет пользователям исс�
 magnet:?xt=urn:btih:58375CA714FC0C21799BA8CAD3B86386A88C0294
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ NetLimiter - программа, решающая проблему контро�
 ```bash
 magnet:?xt=urn:btih:BC3989DE5F433965B83E4D9350AD9C5D0DC22CA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ NetLimiter - программа, решающая проблему контро�
 magnet:?xt=urn:btih:35FDC75860AE16AC30FD90F43E2F96464DB4D401
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:35FDC75860AE16AC30FD90F43E2F96464DB4D401
 ```bash
 magnet:?xt=urn:btih:47C068C2C566594A5857AFDAE8A2BCEB2A5D87B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ Icecream Video Converter Pro 1.33 [Multi/Ru]
 magnet:?xt=urn:btih:65B0DE23A61B7B6803EF7644E33F02F4308F2E4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:65B0DE23A61B7B6803EF7644E33F02F4308F2E4C
 ```bash
 magnet:?xt=urn:btih:56531C0DDBDE59E1D81CCFBA16EC2A12C1768B39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

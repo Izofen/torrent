@@ -1,3 +1,32 @@
+###  Публикация: 1063135   (434017) от 16.10.2016
+
+VA - Дискотека 80-90 годов по-новому (Зарубежный выпуск - 40) (2016) [MP3|320 Kbps] <Italo-Disco, Pop, Euro-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_434017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. London Boys - London Nights (DJ NIKOLAY-D Remix ) (08:29)
+02. Pulsedriver & Andrew Spencer - Touch Me (Limelight Remix) (05:06)
+03. Beata - Maria Magdalena (K.C. Nightline Club Mix) (04:18)
+04. Yvan & Dan Daniel - Enjoy The Silence (George Acosta Remix) (07:25)(   Читать дальше...   )Жанр: Italo-Disco, Pop, Euro-Disco, DanceПродолжительность: 04:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:905DFBDAE3882EDCA52423BC9D34D41269616096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410752   (434052) от 22.09.2020
 
 VA - Expressed Rhythm & Sensual Blues (2020) [MP3|320 Kbps] <R&B, Soul>
@@ -21,6 +50,8 @@ VA - Expressed Rhythm & Sensual Blues (2020) [MP3|320 Kbps] <R&B, Soul>
 ```bash
 magnet:?xt=urn:btih:23D83881D35D91B2FA8940D085901031E317B5D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Mixed Feelings (2020) [MP3|320 Kbps] <R&B, Soul>
 magnet:?xt=urn:btih:2AC0FF1886D04A68194EFEAB491BEEC6914A5604
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Mixed Feelings (Vol.2) (2020) [MP3|320 Kbps] <R&B, Soul>
 ```bash
 magnet:?xt=urn:btih:86564A01B2B2B88F9948F61D3C92E6BA7EC61403
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +144,8 @@ VA - Kiss FM - Top-40 (02.10.2012) [MP3|320 кб/с]<Dance>
 magnet:?xt=urn:btih:3BFF615AD91BD9BD5CEE688F128B6971C4F77DD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +178,8 @@ VA - German Fashion Week Vol.2 (2012) [MP3|320 кб/с]<Pop, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:14699AB9BF9109B68D3E146AF52DBA419EDB3C75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +214,8 @@ VA - Звёзды эфира. Часть 3 (2012) [MP3|256 кб/с]<Шансон
 magnet:?xt=urn:btih:F082E42F951E7559999E8569E8430FBC8042812D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +249,8 @@ VA - Осенний Non-Stop Vol. 2 (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:FF4AA0FBAEF9069D5C96E3BDB251E64048DCFF7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +277,8 @@ VA - Для Тех, Кто Помнит! Русский Рок Vol.4 (от Ovvod
 ```bash
 magnet:?xt=urn:btih:EB941BFAE7C64108CC6AB52B06ABBA1DEF18F3D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +307,8 @@ VA - Back To The Seventies (Compiled by ВИКТОР31RUS) (2017) [MP3|320 Kbps]
 magnet:?xt=urn:btih:7DBE2860118A8430E8B0EB240AB4D4D5322AE36F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +335,8 @@ VA - Cosmotronica & Space Disco Vol.4 (2017) [MP3|320 Kbps] <Synthpop, Spacesynt
 ```bash
 magnet:?xt=urn:btih:F050AC47175AB2E4B0E4CD4007681238FA3D1AE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +365,8 @@ VA - Необузданный рай. Супер сборник русского
 magnet:?xt=urn:btih:C790BA42B382F55AB54FAC690B5D60A98D6B527C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +393,8 @@ VA - Новинки. Осенний выпуск Europa Plus (2016) [MP3|256 Kbp
 ```bash
 magnet:?xt=urn:btih:0AFEEFA701275DA9CBC1917B52A5F63498FD2E74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +423,8 @@ VA - German Top 100 Single Charts 24.10. (2016) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:B73790466B62DC931CE8A351BBD9B788454DA472
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +451,8 @@ VA - Empire Records - Positive Emotions (2017) [MP3|320 Kbps] <Downtempo, Lounge
 ```bash
 magnet:?xt=urn:btih:AB8844D66556A0D5E972AA88D99853377E01F299
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +481,8 @@ VA - Душевный Сборник От Радио Шансон 9 (2016) [MP3|
 magnet:?xt=urn:btih:5817758C7327344FE592C2D5E70D21FEBF7E135E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +509,8 @@ VA - Beatport Top 100 Deep House September (2016) [MP3|320 Kbps] <Deep House, Ho
 ```bash
 magnet:?xt=urn:btih:D76E27C3D063842F50C5F68DFF03189E1C5D095F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +539,8 @@ VA - Сегодня на радио хиты FM Vol.7 (2019) [MP3|320 Kbps] <Pop
 magnet:?xt=urn:btih:3F5FFEB9D632FF6867E8DC9E6CE01BE9E53F8A60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +567,8 @@ VA - Sports Megamix - Your Workout Favourite (2016) [MP3|256 Kbps] <Club, Tropic
 ```bash
 magnet:?xt=urn:btih:A6E245B1ED6AD18203AAED49B35C620D01B4E725
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +597,8 @@ VA - DanceFloor Standings Workout Hits (2016) [MP3|230-320 Kbps] <Breaks, Bassli
 magnet:?xt=urn:btih:DA64295D9C975A9D2F4DAB626F62F2FAEFB99892
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +626,8 @@ VA - Ностальгия 4 NNM-Remix (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:5B72D37D55DC0D975D4AD8AFD070383FE0740850
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +654,8 @@ VA - 135 The Shape DJ Loaded (2018) [MP3|320 Kbps] <Electro, Reggae, Big Room>
 ```bash
 magnet:?xt=urn:btih:2B32C3C0142329ADA0B72FFE7320AC01AB660044
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +690,8 @@ VA - Рок Нашествие Часть 2 (2012) [MP3|128 кб/с]<Рок>
 magnet:?xt=urn:btih:112C00CF8300E104247BCCEA7CED3734600B2FEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +718,8 @@ VA - Легче Лёгкого Авторская Лирика (2015) [MP3|256 �
 ```bash
 magnet:?xt=urn:btih:D03CA927273B28515642286E3A61FD370270E47A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +748,8 @@ VA - Trance Desire Volume 56 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 magnet:?xt=urn:btih:E81A1F032CDCD69A891369DCB7BD9E5D4D4A1C89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -700,32 +777,7 @@ Pino D'angio - Compilation (2022) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:8567182B3F39A3838EF52082EB94BC7DE56EF3DA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945032   (436168) от 09.10.2015
-
-Александр Буйнов - Место Встречи на HOROSHEE.FM с Валентином Малюговым (2015) [MP3|128 кб/с]<Поп, Интервью>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436168.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Две жизни
-2. В Париже ночь
-3. А ты мне не даёшь
-4. Нам с тобою по пути(   Читать дальше...   )Жанр: Поп, ИнтервьюПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2D60AF439003F184D2AF3C40C393E1FAE089E1A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

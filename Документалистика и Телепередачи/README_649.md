@@ -1,3 +1,29 @@
+###  Публикация: 998392   (870374) от 19.03.2016
+
+Постскриптум с Алексеем Пушковым (19.03.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельная аналитическая программа, посвящённая важнейшим событиям, происходящим в России и за её пределами. Гостями автора и ведущего программы Алексея Пушкова становятся видные российские и зарубежные политики, общественные деятели, представители науки и культуры. Программу отличают взвешенность оценок и выводов, компетентность экспертов, точность фактов и анализа. (   Читать дальше...   )В этом выпуске: Крым: два года в составе России. Специальный репортаж с полуострова. Сирия: российская военная операция и её результаты. Меркель: проигранные выборы как расплата за просчёт. Наша оценка. А также... Польский синдром: гибель Качиньского и больные фантазии Варшавы. Обогатились и не только культурно - скандал в Министерстве культуры.Телекомпания: ТВ-ЦентрЖанр: ТелепередачаПродолжительность: 00:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D8F1393FF52E8F63EF14EF2CA6C31E40CB11205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998339   (870375) от 19.03.2016
 
 Раскрывая мистические тайны. Магия животного мира (2016) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:D7415F2BED1A5673B3D57B3836987E4CE6418AC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:D7415F2BED1A5673B3D57B3836987E4CE6418AC2
 ```bash
 magnet:?xt=urn:btih:05C4E07D6B6F9E56CBCF0A54B12D31199C4D4559
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:05C4E07D6B6F9E56CBCF0A54B12D31199C4D4559
 magnet:?xt=urn:btih:6BA41F402462E3F274C26AB0EF6D3ACFDF1D2706
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:6BA41F402462E3F274C26AB0EF6D3ACFDF1D2706
 ```bash
 magnet:?xt=urn:btih:99DFC2A5FC831D803F47B940571DE24696BF221A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:99DFC2A5FC831D803F47B940571DE24696BF221A
 magnet:?xt=urn:btih:53CAABD636A3B7552B280EA7192B7A0DAFE867F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:53CAABD636A3B7552B280EA7192B7A0DAFE867F5
 magnet:?xt=urn:btih:6289D382070CE868019F25BABEB9CFAD5766F0F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:6289D382070CE868019F25BABEB9CFAD5766F0F6
 ```bash
 magnet:?xt=urn:btih:B03E3FE060B59C3F9B0EB41738563C4CBFFCC08F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:B03E3FE060B59C3F9B0EB41738563C4CBFFCC08F
 magnet:?xt=urn:btih:AB2F936BCED4BFB83730FC76AC62F7F5883FBE87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:AB2F936BCED4BFB83730FC76AC62F7F5883FBE87
 ```bash
 magnet:?xt=urn:btih:8F7ECFC07CE31C9AC0D9474101973E10D91AC9EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:8F7ECFC07CE31C9AC0D9474101973E10D91AC9EC
 magnet:?xt=urn:btih:B081F573D703AADED09FDCC822EBB2FB2AF6F6E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:B081F573D703AADED09FDCC822EBB2FB2AF6F6E2
 ```bash
 magnet:?xt=urn:btih:616C87FF8DD218D0D7CC850B3ECCC2A97AB17AED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:616C87FF8DD218D0D7CC850B3ECCC2A97AB17AED
 magnet:?xt=urn:btih:115C33D841B9EC88393444F99955EAE0A4FE934C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:115C33D841B9EC88393444F99955EAE0A4FE934C
 ```bash
 magnet:?xt=urn:btih:E65B50825228BC550BCC111D67892636BD55E9CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:E65B50825228BC550BCC111D67892636BD55E9CC
 magnet:?xt=urn:btih:B16E4EB71B6D94446836B04677D2E803B8E44114
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:B16E4EB71B6D94446836B04677D2E803B8E44114
 magnet:?xt=urn:btih:1ECC293418514BAC17D1211BF660121296BB7461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:1ECC293418514BAC17D1211BF660121296BB7461
 ```bash
 magnet:?xt=urn:btih:D89E7BEF94C5BA9AB658A05FF2EA41F90D863BE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:D89E7BEF94C5BA9AB658A05FF2EA41F90D863BE5
 magnet:?xt=urn:btih:DF94EEDCEFBE4BBA97C5C5F1F3034FF6171DEFFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:DF94EEDCEFBE4BBA97C5C5F1F3034FF6171DEFFF
 ```bash
 magnet:?xt=urn:btih:466D8E7AC8FC76033B2C50F3DF3D596F1579E680
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:466D8E7AC8FC76033B2C50F3DF3D596F1579E680
 magnet:?xt=urn:btih:D142BFC66EAB75CAFAEC9A805B2E855EEDD09BDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:D142BFC66EAB75CAFAEC9A805B2E855EEDD09BDE
 ```bash
 magnet:?xt=urn:btih:286DB835CFADEC94F8115660BC5A41795274BB53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:286DB835CFADEC94F8115660BC5A41795274BB53
 magnet:?xt=urn:btih:030A738DBF443BE1FCC5848119ACC66940016B86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:030A738DBF443BE1FCC5848119ACC66940016B86
 ```bash
 magnet:?xt=urn:btih:5592B0AD34AE4AF6F3FD6A9338D266208657FFE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:5592B0AD34AE4AF6F3FD6A9338D266208657FFE8
 magnet:?xt=urn:btih:93656886C6D0C3FEDC8A9459E4DAC382C079174B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:93656886C6D0C3FEDC8A9459E4DAC382C079174B
 ```bash
 magnet:?xt=urn:btih:DAFE6380A2F38998DD6885427D4764FDD0110535
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:DAFE6380A2F38998DD6885427D4764FDD0110535
 magnet:?xt=urn:btih:11133434F0329BF9D75202A0BE81243B88657AB6
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997978   (871469) от 18.03.2016
-
-Голос. Дети (2016.03.18) SATRip (сезон 3, выпуск 5)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871469.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Первый канал" представляет премьеру третьего сезона музыкального проекта "Голос. Дети". Детский конкурсный проект строится по тем же принципам, что и взрослый. Из тысяч заявок на участие, присланных в адрес "Первого канала", музыкальная редакция отобрала несколько сотен самых достойных. В ходе предварительных кастингов к участию в слепых (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТВ-Шоу, развлекательныйСубтитры: ОтсутствуютПродолжительность: ~ 01:28:37Реклама: Присутствуют вставки голосовой и текстовой рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA6907956EF5F770A8C4919FA3C1B30DA8A930F3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

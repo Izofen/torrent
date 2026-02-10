@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B8A946D532B5252D9D292E8C233520B5DC65E869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:B8A946D532B5252D9D292E8C233520B5DC65E869
 ```bash
 magnet:?xt=urn:btih:0BFD31E18FEB1E5F0ED34E84104082733F6A6B59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Epoha — семейство геометрических шрифтов без 
 magnet:?xt=urn:btih:DE10511E66BEDACB2846BDDC179A1EFC560FDA8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:DE10511E66BEDACB2846BDDC179A1EFC560FDA8B
 ```bash
 magnet:?xt=urn:btih:73584230BFC87B906FDE6B2A22A823509FA5685A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:73584230BFC87B906FDE6B2A22A823509FA5685A
 magnet:?xt=urn:btih:83D774A20C585CE9C7F79F03136ECAFB6E3FDE46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:83D774A20C585CE9C7F79F03136ECAFB6E3FDE46
 magnet:?xt=urn:btih:479F76679173C506A1C63D9926B9B30A07A573AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:479F76679173C506A1C63D9926B9B30A07A573AF
 ```bash
 magnet:?xt=urn:btih:BE429EB19AE0FAED337943CB92246C5001292EE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:BE429EB19AE0FAED337943CB92246C5001292EE2
 magnet:?xt=urn:btih:0E5303FFB3F1F064207724B97FEAA24E0E804BE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Glora Pro — это новая глава в истории Glora, тщател
 ```bash
 magnet:?xt=urn:btih:BF73B0058D02437239A4AB8F647C63B6CF2A40BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ Malvera — изысканный шрифт с вариативными засе
 magnet:?xt=urn:btih:A7F6BC99605FB36CC003759AE8EAB79BBE250CE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:A7F6BC99605FB36CC003759AE8EAB79BBE250CE5
 magnet:?xt=urn:btih:67E34BFA1B72B3DE65BEB9271AA1B2520976BB43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:67E34BFA1B72B3DE65BEB9271AA1B2520976BB43
 magnet:?xt=urn:btih:D32306B1BAE29D7D3A544CFA411E0532F9484B89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:D32306B1BAE29D7D3A544CFA411E0532F9484B89
 magnet:?xt=urn:btih:8AADF7DF95BEE3E8A76651189E267AEFAD2282B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:8AADF7DF95BEE3E8A76651189E267AEFAD2282B8
 ```bash
 magnet:?xt=urn:btih:B606705BAC7281C3EC49854A62ED26D2AC7C96DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ Marz — это не просто набор пользовательского 
 magnet:?xt=urn:btih:7604D54FDAE2582ED58EB23CDF0B725A1B6C1223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ PatternBoxx входит в группу цифровых библиотек, с
 ```bash
 magnet:?xt=urn:btih:6062F8088C4A4B11FEF5280A883E6A23823D42BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:6062F8088C4A4B11FEF5280A883E6A23823D42BA
 magnet:?xt=urn:btih:823CFE339E202EA90E037D0DFBCEF1AF327D1D37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ Balhattan - бесплатный шрифт. Шрифт Balhattan содержи
 ```bash
 magnet:?xt=urn:btih:25ABA9983C907CA3273C838AB6319526CBA9757E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:25ABA9983C907CA3273C838AB6319526CBA9757E
 magnet:?xt=urn:btih:E6EF4B321E124C7FF274A1183B7A69BFDE82B204
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:E6EF4B321E124C7FF274A1183B7A69BFDE82B204
 ```bash
 magnet:?xt=urn:btih:B4EEA9D51DEBBBDD2AE44910019A0FB12DBBC713
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +564,8 @@ Serati - бесплатный шрифт.
 magnet:?xt=urn:btih:11872B8FB2A3223CDFC591998DE64EC663592591
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:11872B8FB2A3223CDFC591998DE64EC663592591
 ```bash
 magnet:?xt=urn:btih:17D211CF85FC3A078D30D57EC494DE7F4FA1E5BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ Oxtopus — это элегантное и удобное мобильное п�
 magnet:?xt=urn:btih:2B53DB5D590FA73A6AF16E667FBD275A254752AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ Aquavit — это высококонтрастный гротесковый ш�
 magnet:?xt=urn:btih:C99818EF60EF2C80ACB269E03121AE349594422A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:C99818EF60EF2C80ACB269E03121AE349594422A
 ```bash
 magnet:?xt=urn:btih:C550B412AFC158ADFE9BEF6D88FBD5C0E8CC2356
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +701,8 @@ magnet:?xt=urn:btih:C550B412AFC158ADFE9BEF6D88FBD5C0E8CC2356
 ```bash
 magnet:?xt=urn:btih:8D334EE620BE9E35C08E3C19E8D3D5F0342117ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

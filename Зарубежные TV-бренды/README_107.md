@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4534747B9CAA53235B134F7264E92296970F2746
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC: Завтра нашего мира / Tomorrow's World: A Horizon Special (2
 ```bash
 magnet:?xt=urn:btih:A74193EAE96B21CFF1CEA6D6C885FAF8DB279F67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ BBC: Восхождение нацистов / Rise of the Nazis (2019) WEBRip [
 magnet:?xt=urn:btih:883B02F047AE64D55B12AD2F0BBE25E3041699E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ NG. Наука рукопашного боя / Fight Science (2006) HDTV [H.264/
 ```bash
 magnet:?xt=urn:btih:C0D6C0A43105A42B93179540CF1894B3504AC86D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ NG: Солнечное затмение / Eclipse (2010) HDTV [H.264/1080i-LQ]
 magnet:?xt=urn:btih:173DCF5AFA483BF17F2D7A24607E00D457AA55B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ NGW: Дикие животные Японии / Japan's Wild Year (2014) HDTV [H
 ```bash
 magnet:?xt=urn:btih:28782F7D189652B2B65E2C87E3548EE95D53CC1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ BBC. Купи моего ребенка / Louis Theroux's Altered States: Take M
 magnet:?xt=urn:btih:8860C5FD1CD8E36778BA8CF0E68EFD0C949ACE9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:8860C5FD1CD8E36778BA8CF0E68EFD0C949ACE9B
 ```bash
 magnet:?xt=urn:btih:E2FF1FD6FD0BF175FCD08E884B6C98CEE202FF29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Discovery. Аполлон: найденные видео / Apollo: The Forgotten
 magnet:?xt=urn:btih:170BA0619D48CC59068C7983D20E8339058AD47D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ BBC. Полиамория: Любовь без границы / Louis Theroux's 
 ```bash
 magnet:?xt=urn:btih:5FDFB9DB382CD5DFC1CE755CB8C366FC3CADB2F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:5FDFB9DB382CD5DFC1CE755CB8C366FC3CADB2F1
 magnet:?xt=urn:btih:206035BE3A64965AC3D1C10B0B7B2AC9DF0C9532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ NG: Секреты гробницы Христа: специальный реп�
 ```bash
 magnet:?xt=urn:btih:F0FFECEFE6494F8A82B197EB85BDAE2B888533EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ NGW: Пумы на краю света / Pumas At The End of The World (2020) WE
 magnet:?xt=urn:btih:DF12D8228DF9FDEA7AC511C20D06D837D9DCBB1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Discovery. Как устроена Вселенная / How the Universe Works (
 ```bash
 magnet:?xt=urn:btih:109CEB5B079AA73CD6416E0FE3CC1DFE100062A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ BBC. "Испанка". Грипп, унесший 50 миллионов жизн
 magnet:?xt=urn:btih:E937B1DB317C0C5F65692ED43BB60373140E8694
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Discovery. Северная Америка / North America (2013) HDTVRip [H.264
 magnet:?xt=urn:btih:FABCEC0E3ECF36421909F6ADC8FAD720B2C0204D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ NGW: Самая большая в мире белая акула / World's Bigge
 ```bash
 magnet:?xt=urn:btih:E95117546F8BFAF1B6FA0D5A5E8E960D97D2EFD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ NG: Гибель морского монстра / Death of a Sea Monster (2010)
 magnet:?xt=urn:btih:3E17546BBD5091EF194730D68C351722198733B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ History Channel. Наследие кельтов / The Celtic Legacy (2011) HDTV
 ```bash
 magnet:?xt=urn:btih:990E15ED6CB364F87C7E74D90DC4BA966E119D0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ History Channel. Островное помешательство Гитлера 
 magnet:?xt=urn:btih:4FE89DDDD91FFD90897CCA0ECD7076F328D2858F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ BBC: Признания серийного убийцы: Сэмюэл Литтл
 ```bash
 magnet:?xt=urn:btih:FD9927F4A54351E1B08372EFCD00BF358F505AF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ NG. Жизнь до рождения. Близнецы. Двойни, тройн
 magnet:?xt=urn:btih:3FC8569044B8BC623ABD78F02F652C4A76AE0321
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ Discovery: Секреты подземелья / Secrets of the Underground (201
 ```bash
 magnet:?xt=urn:btih:A23144537D431DB467BA03453C8B041240EDC781
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ NG: Дикий Секс / WILD Sex (2005) SATRip (Серии 1-6 из 6)
 magnet:?xt=urn:btih:E47C800B90023DC161CCABE53CBDEDBAC1362274
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ magnet:?xt=urn:btih:E47C800B90023DC161CCABE53CBDEDBAC1362274
 ```bash
 magnet:?xt=urn:btih:E36AD99F4128D1FA4FFD53B127AD8AF9F4D6621C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +673,8 @@ BBC. Панорама: Неонацизм в Германии. Новая вол
 ```bash
 magnet:?xt=urn:btih:A048EBDCE1D7EB71F98B1E8519D351A3141C46C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

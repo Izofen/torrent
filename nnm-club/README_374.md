@@ -19,6 +19,8 @@ Flud - простой и элегантный BitTorrent клиент для о�
 magnet:?xt=urn:btih:66F280ED75C6A0730AE734F7B0108E9227C0C015
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Kaifuku Jutsushi no Yarinaoshi | Redo of Healer | Маг-целитель: Но�
 ```bash
 magnet:?xt=urn:btih:CE15192B254B445CC16B70AC3504C2DBFB1ABF40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:CE15192B254B445CC16B70AC3504C2DBFB1ABF40
 magnet:?xt=urn:btih:B753BE077D48A584775BCB93354845CA9A01C3EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:B753BE077D48A584775BCB93354845CA9A01C3EA
 ```bash
 magnet:?xt=urn:btih:FFCBE331EDAC4CA957E0E45B1E7A777E8B9DE961
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ My TTS: Text-to-Speech v1.5.3 Mod by Alex.Strannik [En]
 magnet:?xt=urn:btih:F848990BB179E5DC98DC72DFB4BE3898785F7310
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:F848990BB179E5DC98DC72DFB4BE3898785F7310
 ```bash
 magnet:?xt=urn:btih:2DD605583E1711DCBC29B9E4C0BEE8766ADAD0CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:2DD605583E1711DCBC29B9E4C0BEE8766ADAD0CA
 magnet:?xt=urn:btih:264CBA221B7C83120CA5DEAE1514631816FC391A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:264CBA221B7C83120CA5DEAE1514631816FC391A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ The Last Spell - это тактическая ролевая игра с эле
 magnet:?xt=urn:btih:57739091DA5DC594C67BFAA4F696EAE2A0A7778E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:370A6BCD3DF65E8EE3B01CD1DBCE19C61C4CD114
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:370A6BCD3DF65E8EE3B01CD1DBCE19C61C4CD114
 magnet:?xt=urn:btih:FD81210CA64915F3AF0F815A12223315423FF38A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:FD81210CA64915F3AF0F815A12223315423FF38A
 ```bash
 magnet:?xt=urn:btih:C8D3EC4C6834264D6B9C4AA83B593D6CB6A8EB80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Balun.Courses, Владимир Балун | Глубокий Go — нюанс�
 magnet:?xt=urn:btih:BF708DA9B63C0B317C92AAC5A220AF7C63A0FDB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:BF708DA9B63C0B317C92AAC5A220AF7C63A0FDB5
 magnet:?xt=urn:btih:482ECE93FE920CBE069685506A3BE03C2F91AB08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:482ECE93FE920CBE069685506A3BE03C2F91AB08
 ```bash
 magnet:?xt=urn:btih:A7C0D6021DDE081C02097A923FF3F98D9BDA21A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ Balun.Courses, Игорь Панасюк | Профилирование в Golan
 magnet:?xt=urn:btih:D5C01DDB5710EE2FB09C168F64A3E6E6EC4337B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:D5C01DDB5710EE2FB09C168F64A3E6E6EC4337B1
 magnet:?xt=urn:btih:D058DB853605BBB916F3A1DC02F092F990AB8504
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ Luto - это психологический хоррор от первого л
 ```bash
 magnet:?xt=urn:btih:49F88D5D6D73134DF0A43786DB3B3DA66F1F9666
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:49F88D5D6D73134DF0A43786DB3B3DA66F1F9666
 magnet:?xt=urn:btih:CF7607F8DD10D7E5F64884C2ECE8A072EE3A9011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ My Garage – игровой проект, разработанный в жан�
 ```bash
 magnet:?xt=urn:btih:F604A1A60C28CBBBC7B4666D559871CCF45D4A8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Ratopia - это оригинальная стратегия, которая б�
 magnet:?xt=urn:btih:ADA6FBFBC74FD281EDE4A7773F3598D94DA4FD84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:ADA6FBFBC74FD281EDE4A7773F3598D94DA4FD84
 ```bash
 magnet:?xt=urn:btih:54FCD9589995F64C859C2FB3CEEAE329D36A2904
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ XIX век, Бразилия. Энн Дюроше была французско�
 magnet:?xt=urn:btih:4F66C1E323538A91A2C15C92F76529A99EDB09B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ History: Кевин Костнер: Запад / Kevin Costner's the West (2025)
 ```bash
 magnet:?xt=urn:btih:B9F6840A0BBB5C18EA8D70EAFD22539D73C102A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ The Last of Us Part II (2) (2025) [Ru/En] (1.6.10721.105/dlc) Repack Wanterlude 
 magnet:?xt=urn:btih:929D4602BFAC56A020AB6280713063F937C8BDDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:929D4602BFAC56A020AB6280713063F937C8BDDD
 ```bash
 magnet:?xt=urn:btih:591452AA0274F8F125F5A8CA1B662E921F962F3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

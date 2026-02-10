@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:41726B3148DDC46638795475A6542AB2722E726A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Viber - десктопная версия популярного мобильн�
 magnet:?xt=urn:btih:217B426F902DA1FC2E00FA7E0B2B06F45A2A1FEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:217B426F902DA1FC2E00FA7E0B2B06F45A2A1FEF
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:217B426F902DA1FC2E00FA7E0B2B06F45A2A1FEF
 magnet:?xt=urn:btih:24AF04BD71C915717E2E77BC6E8E1F692B42C520
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:24AF04BD71C915717E2E77BC6E8E1F692B42C520
 magnet:?xt=urn:btih:F8E6810F6EF2733BE34B8120FDD282F1B7B4E249
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Rayearth | Magic Knight Rayearth | Рыцари магии [1997, OVA, 3 из 3]
 ```bash
 magnet:?xt=urn:btih:16A19FFF9052F250A4867E95C02A1D91C8B36531
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ Progressive Rock - Rock Legends (2003) DVDRip
 magnet:?xt=urn:btih:7FBD2FBC4CD93B5C0201F22B34668703FD1FE51E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:7FBD2FBC4CD93B5C0201F22B34668703FD1FE51E
 ```bash
 magnet:?xt=urn:btih:7138E9325251A06E9C7CC7B3B28709FBC2F95C2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Mahou Kishi Rayearth | Magic Knight Rayearth | Рыцари магии [1994, TV
 magnet:?xt=urn:btih:D9E57DC9AA8D9DA7BF8D548BEA44B1350794D2D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:D9E57DC9AA8D9DA7BF8D548BEA44B1350794D2D2
 ```bash
 magnet:?xt=urn:btih:449C11BA949F11987894276DF66F7EBAB442FE93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ Zentimo xStorage Manager - (аналог USB Safely Remove) это менедж�
 magnet:?xt=urn:btih:65840A167218B150DE2AEC9C53595A6B6B29FA8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:65840A167218B150DE2AEC9C53595A6B6B29FA8B
 ```bash
 magnet:?xt=urn:btih:68C59C502878C0735A4DD44119F8F457FBDF39AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ AmigosCode, Nelson Djalo | Mastering Kubernetes (2023) WEB-DL [AD] [EN]
 magnet:?xt=urn:btih:9E04BC283D9F7F2F7297513D0EF58BB65F661AC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:9E04BC283D9F7F2F7297513D0EF58BB65F661AC1
 magnet:?xt=urn:btih:7FA0585B8859FA47DBDC81F191A318EB6D8D6808
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ New year wallpapers 2013 (30.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:52764B07E0F698B2FE943CF10269B27F521D3E7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ Covenant - Nexus Polaris (1998) [WavPack|Lossless]<Melodic Black Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ Covenant - Nexus Polaris (1998) [WavPack|Lossless]<Melodic Black Metal>
 ```bash
 magnet:?xt=urn:btih:8F4DDAC8246530E52CBE21C530CDA45D5B404600
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:8F4DDAC8246530E52CBE21C530CDA45D5B404600
 magnet:?xt=urn:btih:EB39878903832AF08FA915F638EC0B6F95896EAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:EB39878903832AF08FA915F638EC0B6F95896EAF
 ```bash
 magnet:?xt=urn:btih:BDB65553FD6BBB03553185E6C879045525948400
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2023) 
 magnet:?xt=urn:btih:1B63DD8C13F4EB5CAF1712F946A412C7B58DB856
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ magnet:?xt=urn:btih:1B63DD8C13F4EB5CAF1712F946A412C7B58DB856
 ```bash
 magnet:?xt=urn:btih:317916BC4E3DF4913A1AB04D3BD063682B683189
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ Mahou Kishi Rayearth 2 | Magic Knight Rayearth 2 | Рыцари магии 2 [19
 magnet:?xt=urn:btih:1E4EF5AD9933C4E96A5EF0359D0B290BFF02A8C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ magnet:?xt=urn:btih:1E4EF5AD9933C4E96A5EF0359D0B290BFF02A8C2
 ```bash
 magnet:?xt=urn:btih:289907F1397C7A2D1BC0668A7D7D801072545D94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ Klonoa Phantasy Reverie Series представляет собой мини-сб
 magnet:?xt=urn:btih:CEC02D36DDB531EB3A204AC6983FC6377DA454FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:CEC02D36DDB531EB3A204AC6983FC6377DA454FA
 magnet:?xt=urn:btih:EA1142D68B624A400D53E186ED9BA82CB971ADA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ magnet:?xt=urn:btih:EA1142D68B624A400D53E186ED9BA82CB971ADA7
 ```bash
 magnet:?xt=urn:btih:80FD51F71F5DF21D41F799F013981BE0EFDBDAD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Acrobat Pro — это полностью обновленная настоль�
 magnet:?xt=urn:btih:9D4931F58ED3C9A274BDEB172B2016FA2A8C2072
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ TeraCopy – утилита улучшает процесс копировани
 magnet:?xt=urn:btih:E382B817BA8E4134D96E390FDBFDDA61971B60D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ HitPaw Video Converter позволяет пользователям редак�
 ```bash
 magnet:?xt=urn:btih:65EA4880DB777BE279703528C29D5E66DE45E788
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ PhpStorm – это интегрированная среда разработк
 magnet:?xt=urn:btih:0033FF78028546CE45780E0CFDDD942198F5D1FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Realtek Ethernet Driver 11.25.015 | 10.68 [Ru/En]
 magnet:?xt=urn:btih:94DBBECC2E24ADCFFCEE4EF74DBB9C2A59DE7E38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ eM Client - отличный почтовый клиент с возможнос
 ```bash
 magnet:?xt=urn:btih:C6CE62133E98C00329992214BA0F354DF81111A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Transmission, в отличие от многих других BitTorrent кли
 magnet:?xt=urn:btih:D2EB720F806497AE097A87A0EDA0E930B135E579
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ WSCC (Windows System Control Center) - портативная программа
 ```bash
 magnet:?xt=urn:btih:75DC56DA96ED614A00E7157B997C3DD4BC1F256D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:C037F5176BB40A281D957A11CA9AD5C0088A7D87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:2F730FACDC24B47B5D67FD1720B0686BCD37E775
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ R-Studio Network 9.3 Build 191230 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:9AF912490EEE970B7B0506E29C375AE36799D181
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ DxO PhotoLab Elite 6.9.0 build 267 RePack by KpoJIuK [Multi]
 magnet:?xt=urn:btih:5BF75A53330BE0D4A5D09A9F6980959E1B375BA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ ExtraDisks - это набор инструментов для создания 
 ```bash
 magnet:?xt=urn:btih:5DD69F998EA3047287CB616BD70C0738349E4145
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Adobe After Effects — одно из ведущих в отрасли прил�
 magnet:?xt=urn:btih:BDDA8E2B4B6238F1226D399CA0A0DF249796B541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Macrorit Disk Scanner Unlimited - инструмент для проверки �
 ```bash
 magnet:?xt=urn:btih:A13AAA26D0B712F61377FBDF3AC5266B2365180D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Defender Remover Portable 12.5.4 [En]
 magnet:?xt=urn:btih:E662D7FD3708BD02D418D46D07D837AE551701BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Windows 11 Manager - это универсальная утилита специ
 ```bash
 magnet:?xt=urn:btih:D1EB7D7CDB984CDFBE79B9BF4397379F4CEE93DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Adobe Premiere Pro - профессиональная программа для 
 magnet:?xt=urn:btih:C4582879995EF418EBEDE823A13EFF7FF7FBED83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ LosslessCut — простой видеоредактор для нарезки 
 ```bash
 magnet:?xt=urn:btih:F40293EB33EB8117DF87791A63C4DEBD5FAA06AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Alfa eBooks Manager - одна из самых популярных програ
 magnet:?xt=urn:btih:B024C53553081375B8811D01E53CE7B4BF9C4691
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Adobe Media Encoder - это программа кодирования, кото
 ```bash
 magnet:?xt=urn:btih:3CF1AA54EF89306C1B6509EADC50E4337AB89994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Visual Studio Code – визуальный редактор кода от ко�
 magnet:?xt=urn:btih:B70BAA72F1D1203AE8C268BCDB27CB2E2EE30F7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:731F1C271A93D33296842E4B6599311FA720D406
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ TreeSize Professional 9.0.3.1852 (x64) [Multi/Ru]
 magnet:?xt=urn:btih:7AF493BA60AFF3D7ED4AB492494BCAF3095DBC7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ ByClick Downloader (бывший YouTube By Click) - отличный и удо�
 magnet:?xt=urn:btih:7C0DB030EC31425575E7C04BF3CE62B4FECA6A5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Windows 11 Manager - это универсальная утилита специ
 ```bash
 magnet:?xt=urn:btih:797DD75C586F7023543B5D78C7F0FBEF2561EFB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

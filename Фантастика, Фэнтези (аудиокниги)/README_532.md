@@ -1,3 +1,29 @@
+###  Публикация: 1466561   (1018348) от 30.04.2021
+
+Владимир Сорокин | Доктор Гарин (Книга 2). Доктор Гарин (2021) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Десять лет назад метель помешала доктору Гарину добраться до села Долгого и привить его жителей от боливийского вируса, который превращает людей в зомби. Доктор чудом не замерз насмерть в бескрайней снежной степи, чтобы вернуться в постапокалиптический мир, где его пациентами станут самые смешные и беспомощные существа на Земле, в прошлом – лидеры мировых держав. (   Читать дальше...   )Жанр: Современная русская литература, Социальная фантастикаИздательство: Аудиокнига (АСТ)Продолжительность: 17:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6EEA5807CD7E26A850952FCC65227831FC1117A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466523   (1018353) от 30.04.2021
 
 Юрий Уленгов | Полигон. Страж Предела. Книга 3 (2021) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:F9662DE7A092F60B4D7190D7DECEF7B64CA41E8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:F9662DE7A092F60B4D7190D7DECEF7B64CA41E8F
 magnet:?xt=urn:btih:DA237A55507092944F1E743AE5B82B19D9727F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:DA237A55507092944F1E743AE5B82B19D9727F32
 ```bash
 magnet:?xt=urn:btih:A2DF6EBF050B3D649EB4D2004CBB29135B1A66E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:A2DF6EBF050B3D649EB4D2004CBB29135B1A66E9
 magnet:?xt=urn:btih:DC92E9A6AD5051508D03C52A62126FDA5399AB68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:DC92E9A6AD5051508D03C52A62126FDA5399AB68
 ```bash
 magnet:?xt=urn:btih:947EA6451FDAB734823A34F576760F84976A513F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:947EA6451FDAB734823A34F576760F84976A513F
 magnet:?xt=urn:btih:4D23DDA1FD91A400A8EBF502488AECA48BC89D6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:4D23DDA1FD91A400A8EBF502488AECA48BC89D6E
 ```bash
 magnet:?xt=urn:btih:B16C70E91C855AE63E1D5497D2EFF49173F6351C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:B16C70E91C855AE63E1D5497D2EFF49173F6351C
 magnet:?xt=urn:btih:E1D89DC64B52984F14434BAA5FAEF5812E209772
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:E1D89DC64B52984F14434BAA5FAEF5812E209772
 ```bash
 magnet:?xt=urn:btih:61DA1F03C00AA459F98562C9AE3796D45A61CA84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:61DA1F03C00AA459F98562C9AE3796D45A61CA84
 magnet:?xt=urn:btih:819BB96737A48E47FA2B93EBD512B34352434CF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:819BB96737A48E47FA2B93EBD512B34352434CF6
 ```bash
 magnet:?xt=urn:btih:2DE763FB00E942F45BE131EE0945F565F2489AA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:2DE763FB00E942F45BE131EE0945F565F2489AA4
 ```bash
 magnet:?xt=urn:btih:C678FE7A6B626ADA6AB73ACA211FD0A2660FB1E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:C678FE7A6B626ADA6AB73ACA211FD0A2660FB1E7
 magnet:?xt=urn:btih:E8ABBCFEBFB61EA60EA61E47A3A757F23E261F97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:E8ABBCFEBFB61EA60EA61E47A3A757F23E261F97
 ```bash
 magnet:?xt=urn:btih:859C88F08FF49BE0DCD803C97212616E2ABC60CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:859C88F08FF49BE0DCD803C97212616E2ABC60CE
 magnet:?xt=urn:btih:CB7A8F751B27457751F59ABFEA4D7B7AF9169DFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:CB7A8F751B27457751F59ABFEA4D7B7AF9169DFC
 ```bash
 magnet:?xt=urn:btih:3BC6684336BC2D51A01DE292FBF6C11CEA72CC56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:3BC6684336BC2D51A01DE292FBF6C11CEA72CC56
 magnet:?xt=urn:btih:87A1BEFB184B95745D7EC5BDB09942174E987636
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:87A1BEFB184B95745D7EC5BDB09942174E987636
 ```bash
 magnet:?xt=urn:btih:FDD2CC0B7C54EDB9B5B1FBBE330C0F068D753653
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:FDD2CC0B7C54EDB9B5B1FBBE330C0F068D753653
 magnet:?xt=urn:btih:544CBE65717A449772C2F223708713C7C5AFDE8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:544CBE65717A449772C2F223708713C7C5AFDE8E
 magnet:?xt=urn:btih:77C136C3852BBD8CD52C4379407B7034B6626AD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:77C136C3852BBD8CD52C4379407B7034B6626AD4
 ```bash
 magnet:?xt=urn:btih:2A41E75EE3B45D6373BAE51AB7DEC90A82988E8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:2A41E75EE3B45D6373BAE51AB7DEC90A82988E8D
 magnet:?xt=urn:btih:091278DAD04F4668027C1E7E39C05B6A4E06E5EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:091278DAD04F4668027C1E7E39C05B6A4E06E5EF
 ```bash
 magnet:?xt=urn:btih:ED165FC9FCE3A2CD6C5CC87E6DE37C4196904491
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:ED165FC9FCE3A2CD6C5CC87E6DE37C4196904491
 magnet:?xt=urn:btih:69F9B77BB8914FB47C3A76B67E79ACD4F3BE2065
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,29 +680,7 @@ magnet:?xt=urn:btih:69F9B77BB8914FB47C3A76B67E79ACD4F3BE2065
 magnet:?xt=urn:btih:052028EB66BB56251E0AAE6FA9935727E6E899A9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465333   (1019284) от 25.04.2021
-
-Клиффорд Саймак | Фактор ограничения (2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследователи находят на необитаемой странной планете огромный вычислительный центр. Кто его построил и зачем?Жанр: Фантастика, РассказПродолжительность: 00:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F57F8256CC44C315BDA7FDE120868B3228F49C8C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

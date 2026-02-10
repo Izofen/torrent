@@ -19,6 +19,8 @@ Helicon Focus - программа, которая создает одно по�
 magnet:?xt=urn:btih:10C9DF0FC735C042725FE84A93F649693F20B523
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Astra Image PLUS - графический редактор, который по�
 ```bash
 magnet:?xt=urn:btih:20E082C7452D58DF6B5CFE9EA5ED1BD3515E1D08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ ACDSee Вышла новая версия одной из самых востр�
 magnet:?xt=urn:btih:71CF846940746776BFF88793D2DCB83E173DB198
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Apowersoft GIF - простая и профессиональная програ
 ```bash
 magnet:?xt=urn:btih:3665F373D72ED92EBC8724CC6599158C9F49286B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:3665F373D72ED92EBC8724CC6599158C9F49286B
 ```bash
 magnet:?xt=urn:btih:045B7C48D7884A56262CFDAB7F95091A47435D0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ EximiousSoft Business Card Designer - программа для создания
 magnet:?xt=urn:btih:ECA9766AA2460CA11BA5A0DCCF15EC11D75210B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Capture One Pro один из самых мощных профессиональ
 ```bash
 magnet:?xt=urn:btih:BD7F74F46490CFB67CA0C206D45A318726A74880
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Blumentals Easy GIF Animator – мощная и простая в исполь�
 magnet:?xt=urn:btih:13B5F650E0E7F3C730C7DB7AEDADAE0CDFCE27C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Lightroom CC имеет такой же функционал, как Photoshop �
 ```bash
 magnet:?xt=urn:btih:640B41C9895FEBEF078A8DD1E5E9B8B8A34A86E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Picture Cutout Guide - программа для отделения объект
 magnet:?xt=urn:btih:16ABBAE5B68F9F8596E1438804544426697AEF99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Photoshop CC — лучшее в мире ПО для графического �
 ```bash
 magnet:?xt=urn:btih:4656B1B696E675BD206A12A1C2CE41B8C572A648
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Beauty Box — плагин к Adobe Photoshop предназначенный д
 magnet:?xt=urn:btih:97096A235199BEC281270E0F3A38F1D12ADEFC01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ PhotoScissors - простой инструмент, позволяющий бу
 magnet:?xt=urn:btih:88F1861D802533202A9D9458FE216A906CFB997B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Topaz ReMask 5.0.1 (x64) [En]
 ```bash
 magnet:?xt=urn:btih:A53B4E584A9AD4074C7D2F763756AC9CA96E960B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ CD Label Designer - программа разработки дизайна и р
 magnet:?xt=urn:btih:73E6EC55E60F5EB6B6891A3DBDC118AA0654E2A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Redfield Unobtanium — плагин удаляет излишний фотор�
 ```bash
 magnet:?xt=urn:btih:B16273241D830D6B626FDE10187F3838A2A958BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Redfield Fractalius — плагин позволяет преобразоват
 magnet:?xt=urn:btih:73658B4587FAC84E8520A62E0AF4ABD7BB58A597
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Redfield Abstraction TX — плагин для Adobe Photoshop, который 
 magnet:?xt=urn:btih:D187AABE0D3A9C10F99B86AB6C52265D6D230EDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Adobe Animate CC 2018, пришедший на смену Flash Professional —
 ```bash
 magnet:?xt=urn:btih:89C181938E83371606822B5365B46EF87428B372
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Topaz Photoshop Plugins Bundle (   Читать дальше...   )Язык и�
 magnet:?xt=urn:btih:1F06801C10228B1C8CC91D6F28A56D9AD57C3977
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Adobe Photoshop CC 2019 - новая версия программы для об
 ```bash
 magnet:?xt=urn:btih:468C7CB87C1313B5008814EE77EDA93401E7423A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ CaptureGRID - это приложение для работы с цифровы�
 magnet:?xt=urn:btih:109911119F9CD5CC2BA72C45F103862FF1F3ED59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ AAA Logo - программа, предназначенная для созда�
 ```bash
 magnet:?xt=urn:btih:25C3A8729CD8B63F819DD2A831EB088127A1CAC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ InPixio Photo Eraser - программа для удаления ненужны
 magnet:?xt=urn:btih:D0EE2EE755049EAA4DEC2D19A3E047497E584A03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Easy Photo Denoise помогает убрать шумы с фотографи�
 magnet:?xt=urn:btih:8B3B956E8942836C60AC1F1F6070F91AB5BDEB84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Affinity Photo максимально возможно поддерживает 
 ```bash
 magnet:?xt=urn:btih:54D48D7B52928BC3566229A77DE87BE17E0A3B1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

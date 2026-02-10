@@ -20,6 +20,8 @@ PopClip появляется на экране при выделении мыш�
 magnet:?xt=urn:btih:0C0B6566B052BED072390A9A9ACAAB9B017F716F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Facebook, IM, Pinterest, Twitter, Instagram, Tumblr, Reddit и YouTube, Vimeo и
 magnet:?xt=urn:btih:7C8BFD913A9B56F19BE7F678A837E2C551BE92DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ DiskSlim - Disk Cleanup Pro 9.8.12 [En]
 ```bash
 magnet:?xt=urn:btih:D7B96C48023DDFBA7ABB67E19B0D443CFC3F8490
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ DuplicateViewer Pro 4.0 [En]
 magnet:?xt=urn:btih:23420FDE379456F39B4B1607F6ECA03423166519
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ PixelStyle Photo Editor легко редактирует фотографии �
 ```bash
 magnet:?xt=urn:btih:EAAB8DE81263FAB294FB60B427279728ACD9733F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Invisor основан на хорошо известной библиотеке
 magnet:?xt=urn:btih:6F1A0F16FD9CF8A2BA7941060FC6FC29A7825704
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ BatchPhoto Pro, представляет собой мощную универс�
 ```bash
 magnet:?xt=urn:btih:70FB2E4AAAB403A305500FBE97B18F424905A1EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Sound Siphon делает аудиовыход вашего Mac доступны
 magnet:?xt=urn:btih:B21DC084625F0AC2BFB0DA214A235A5A71A63898
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Aiseesoft DVD Creator 5.2.38 [En]
 ```bash
 magnet:?xt=urn:btih:E5C73B5CBB7A795DDCA5075FB0C4F0DFC14F44EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Path Finder - один из лучших файловых менеджеров, 
 magnet:?xt=urn:btih:B207B74DF5A024ABC15D19CB455C99997309D1ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ HitPaw Photo Object Remover for Mac 1.1.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:BDFCE54A68BA0FE825B95320AF52387A1C5EE1CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ Farrago предоставляет лучший способ быстрого в
 magnet:?xt=urn:btih:BEFEF0C3DF0769273047DD57A6E7AB53735176C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Millumin - создание аудиовизуальных и интеракти
 magnet:?xt=urn:btih:FEAA58AA066418634382B46610D32DCC2A2E9FE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Topaz Video Enhance AI for Mac 2.6.4 [En]
 ```bash
 magnet:?xt=urn:btih:594C21BFF239055D07F5ABC9F141235528739CF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Wallpaper Wizard - Более 25 000 обоев, все изображения �
 magnet:?xt=urn:btih:6314FDD994F8B6DD306701B4E9AA310059364B24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ NCH Crescendo Masters Pro 9.59 [En]
 ```bash
 magnet:?xt=urn:btih:723DA4DF5452A6D06B7651606DFF0B3161CE9EC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Recordia 2.6.1 [En]
 magnet:?xt=urn:btih:A3342849AA9058C6719D0C930247567EE7809DCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Exhibeo 2 - Создайте великолепные HTML5 презентаци
 magnet:?xt=urn:btih:CD078B3D4F13C0143A6AC9F1A6D549A3744D787B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ AnyMP4 DVD Ripper - приложение для копирования DVD-фи�
 ```bash
 magnet:?xt=urn:btih:A64C075992DDC50C5351F01033BA0F60AB5AA0E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Tipard DVD Ripper для Mac — одна из лучших программ д�
 magnet:?xt=urn:btih:15383D6D2070606C5A678133259AC08E37FB5B32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ FastScripts - Утилита для быстрого запуска AppleScript-
 magnet:?xt=urn:btih:9EC7B2211AEFA1700DE48872A765B566F53E4E3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ AnyMP4 Blu-ray Ripper разработан с наиболее эффектив�
 ```bash
 magnet:?xt=urn:btih:ECB4D1867F9B55D0D40F97BB87EA20D0DF3447DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Tipard Blu-ray Converter for Mac 10.0.56 [Multi/Ru]
 magnet:?xt=urn:btih:C489DB098947BFE6C9E20BF96DEBB5C20DA2972D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ iCollections 8.0.3 [Multi]
 ```bash
 magnet:?xt=urn:btih:50332134660927BDED988F26E3DBE5D3FD993C50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ camLAPSE 3.10 [En]
 magnet:?xt=urn:btih:8709DBFD4DF52FDA963B8F92DEB64E60D63C82D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ BusyCal - программа на Mac OS X, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:EB00F4BCD7987BDCA83A838AE8FB1A1D6105E713
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@ Dragon's Lair Трилогия [En] (RePack) 1991 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ SimAnt: The Electronic Ant Colony (RePack) [En] 1991 | Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ SimLife (RePack) [En] 1992 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Shortline [En] (RePack) 1992 | Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Sniper Elite [En/Ru] (RePack) 2005 l R.G. Catalyst
 magnet:?xt=urn:btih:56F6F8F888B2E35C1C629999EAA6F3B5553C068C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Laser Squad [En] (RePack) 1992 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Rings of Medusa и Return of Medusa [En] (RePack) 1990-1991 | Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Humans Коллекция [En] (RePack) 1993-1994 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Jungle Strike – это доведенный до ума Desert Strike, пус�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ A Savage Frontier Fantasy Role-Playing Epic Антология [En] (RePack) 199
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Battle Master [En] (RePack) 1991 | Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Stronghold Crusader (Rip) [Ru] 2003 | maestro1997
 magnet:?xt=urn:btih:02EE0A8E10D25152D6D2E1C60BC9C6176218ACA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Bad Blood - это пост-апокалиптическая РПГ от Origin 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ World Rally Fever – взрывная смесь боевика и сумасш
 magnet:?xt=urn:btih:3C969A74CDB9DF47AB10927114C1C04004E177CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Velen 2.0 / Велен 2.0 (2019) [Ru/Multi] (2.1.3) License
 ```bash
 magnet:?xt=urn:btih:0AC1760C24E9638096E06130BBFDF638B4616A9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ The Bard's Tale ARPG: Remastered and Resnarkled - фэнтезийное хак-
 magnet:?xt=urn:btih:4001A0B457780D5FACC62B659E374FCE5A4EB8AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Alexander (2004) [Ru] (1.60) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:301924C8EE433488F71405BE1238DFB8D7B306CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Cossacks: Back to War / Казаки. Снова война (2002) [Ru/En] (1.35
 magnet:?xt=urn:btih:64AF894D82575FC015E3061219401B4A0F787C28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ The Messenger / Louvre: The Final Curse / Лувр: Последнее прок�
 ```bash
 magnet:?xt=urn:btih:B47FFD3FD3CCB09E3C517EB5B039EBF933186202
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Panzer General 3 - третья глава популярной серии ст�
 magnet:?xt=urn:btih:F1A851BA54465D8AFE2ACB730CA96359C991934E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Sword of Moonlight / King's Field (2000) [En] (1.2) License
 ```bash
 magnet:?xt=urn:btih:D3F038E8051DCB350DAA625D0F4070BBE82F1279
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Star Wars: Jedi Knight II - Jedi Outcast (2002) [Multi] (1.04) License GOG
 magnet:?xt=urn:btih:2644B1BDE9E7809231294851333BF54D127EA5B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Dungeon Siege: Legends of Aranna / Осада подземелья: Легенд
 ```bash
 magnet:?xt=urn:btih:9887982EAE798CAD6241D68A93B09EA46674E614
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Perimeter 2: New Earth / Периметр 2: Новая Земля (2008) [Ru] (
 magnet:?xt=urn:btih:3D2E3DE584DB12188D05A339F3074A56A14A4FE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ DXX Rebirth - это модификация Descent 1 и 2 части для з�
 magnet:?xt=urn:btih:449BBD8A2789A74CBC5777A0B162CA35877D7EE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ BloodCM - это разрабатываемый в данный момент, н
 ```bash
 magnet:?xt=urn:btih:55B825E78D3E72FCFE2EC471B4CFE4DD85C72CD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

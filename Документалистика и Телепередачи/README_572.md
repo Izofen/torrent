@@ -1,3 +1,29 @@
+###  Публикация: 1208549   (779938) от 22.02.2018
+
+Александр Покрышкин (1985) SATRip
+
+>>Документалистика и Телепередачи
+>>Авиация
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Покрышкин был, да и остается одним из символов российской авиации времен Второй мировой войны. Легендарный военный лётчик, маршал авиации, трижды Герой Советского Союза Александр Покрышкин в этом фильме дал одно из последних своих интервью. Впервые он увидел самолёт в 12 лет, и с тех пор твёрдо знал, что будет лётчиком. Его имя овеяно легендой, в годы ВОВ, (   Читать дальше...   )Производство: СССР, Творческое объединение «Экран»Жанр: Документальный, биография, война, историяРежиссер: Дмитрий ДеминПродолжительность: 00:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94CBC56029BD809B578CA4C31D4C76DE43218DC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208136   (780086) от 21.02.2018
 
 Китай. Тайны Запретного города / Secrets of China's Forbidden City (2017) HDTVRip (Сезон 17, эпизод 3)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:8DBBAC781C47480DB9A20D098E8C92CEE1B06D99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:8DBBAC781C47480DB9A20D098E8C92CEE1B06D99
 magnet:?xt=urn:btih:8F7AAC4B5D31A81FF99BD08DD868FAFFE0E5C6A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:8F7AAC4B5D31A81FF99BD08DD868FAFFE0E5C6A9
 ```bash
 magnet:?xt=urn:btih:AC066542E30547F5082E5A263C91167DEBA7BA25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:AC066542E30547F5082E5A263C91167DEBA7BA25
 magnet:?xt=urn:btih:CF4468E1B836C7349DB65A473B8E16F876E75150
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:CF4468E1B836C7349DB65A473B8E16F876E75150
 ```bash
 magnet:?xt=urn:btih:BF1253E7655F352F06C9E8DC1412024A4AC4BEF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:BF1253E7655F352F06C9E8DC1412024A4AC4BEF0
 magnet:?xt=urn:btih:36061DD8A7CD17C6FAA7473D26ECB6187E94200D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:36061DD8A7CD17C6FAA7473D26ECB6187E94200D
 ```bash
 magnet:?xt=urn:btih:62EF3C6D2A45838ADD5A453F976D5EEA024BF3C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:62EF3C6D2A45838ADD5A453F976D5EEA024BF3C3
 magnet:?xt=urn:btih:A7371C043FDC460CD2A847C00669AA921AE166E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:A7371C043FDC460CD2A847C00669AA921AE166E2
 ```bash
 magnet:?xt=urn:btih:1B160455C79A6457C99271F4965FD823ED95CC4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:1B160455C79A6457C99271F4965FD823ED95CC4C
 magnet:?xt=urn:btih:B959F4DB44695F3C448FCC58C99B272F0FC0846D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:B959F4DB44695F3C448FCC58C99B272F0FC0846D
 magnet:?xt=urn:btih:E72B605AE97D3B1BAE70E432B1EDB2E62868EBFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +330,8 @@ magnet:?xt=urn:btih:E72B605AE97D3B1BAE70E432B1EDB2E62868EBFB
 ```bash
 magnet:?xt=urn:btih:9BBF8FC5B225DAF4EB3ED0C99566EA5D22BAF3F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:9BBF8FC5B225DAF4EB3ED0C99566EA5D22BAF3F1
 magnet:?xt=urn:btih:988BA068E988CBBD48369042FE9323BF6146AD71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:988BA068E988CBBD48369042FE9323BF6146AD71
 magnet:?xt=urn:btih:D7955FA4C4FDB8F00FE2B7E3FC0CD0ED88FA4EC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:D7955FA4C4FDB8F00FE2B7E3FC0CD0ED88FA4EC8
 magnet:?xt=urn:btih:F2EAE9DC65A62603703AE038A1E4C0B7139960B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:F2EAE9DC65A62603703AE038A1E4C0B7139960B7
 ```bash
 magnet:?xt=urn:btih:2153907FD0DD72379CEB00E336B42E75770CE538
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:2153907FD0DD72379CEB00E336B42E75770CE538
 magnet:?xt=urn:btih:7F7E8E9E66481E05A85D1E0FB843FB77BC6ACC3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:7F7E8E9E66481E05A85D1E0FB843FB77BC6ACC3D
 ```bash
 magnet:?xt=urn:btih:96F1DE438655A551C735DE601D110BE346696632
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:96F1DE438655A551C735DE601D110BE346696632
 magnet:?xt=urn:btih:93DE1ACA184C7E65AC0D84167E11CA8A45FD5501
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:93DE1ACA184C7E65AC0D84167E11CA8A45FD5501
 ```bash
 magnet:?xt=urn:btih:CF13469D7D1BD8F8A339E80222903F89365D3A04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:CF13469D7D1BD8F8A339E80222903F89365D3A04
 magnet:?xt=urn:btih:D5EC107981CD81D400560D753092D59A861A7412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:D5EC107981CD81D400560D753092D59A861A7412
 ```bash
 magnet:?xt=urn:btih:FF98CF750B59A8E18D556EB8036D000E89ECAA83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:FF98CF750B59A8E18D556EB8036D000E89ECAA83
 magnet:?xt=urn:btih:78BB6F477753DA6A2B12094B8D1C9C21D0D45CC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:78BB6F477753DA6A2B12094B8D1C9C21D0D45CC6
 ```bash
 magnet:?xt=urn:btih:03942FE8032178BD763C17FBF2A74B996A413554
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,30 +672,7 @@ magnet:?xt=urn:btih:03942FE8032178BD763C17FBF2A74B996A413554
 magnet:?xt=urn:btih:BFA735C1BFFD09CD448733710146CC3D4971517B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204631   (781199) от 16.02.2018
-
-Заговор генералов (2018) SATRip (серий 4 из 4)
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781199.jpg" />
-</div>
-
-
-###  Подробнее
-
-На основе недовольства правящей властью начали завязываться отношения лидеров буржуазной элиты и верхушки императорской армии. И в том и в другом случае движущими силами были личные амбиции участников событий.
-Целью цикла является наиболее полно и впервые в отечественной документалистике рассказать о роли императорской армии в событиях, связанных со свержением последнего (   Читать дальше...   )Производство: Россия, ООО «Студия-А»Жанр: Документальный, история, революция, войнаРежиссер: Татьяна АрхипцоваПродолжительность: 4 х ~00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:624BF100B374DB610AEEE437A894D3DDD6D160BA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

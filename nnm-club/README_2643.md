@@ -22,6 +22,8 @@ HolyName - Rock Against Traffic (Live In Pomona) (2025) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:C193A55014F23FBBC4A5B8412A8C0D589F5EE3A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:C193A55014F23FBBC4A5B8412A8C0D589F5EE3A1
 ```bash
 magnet:?xt=urn:btih:C9AE928649C5E7D76F1D32B6CF6AC41160EF0CC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ Bud Powell - Jazz Giant (1949, 1950) 2001, Verve Records [FLAC|Lossless|tracks +
 magnet:?xt=urn:btih:62FC82A8D2F13529D28B9B79D374B76B5A4D5E47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ Bud Powell - Bud's Bubble (1944 - 1947) 2000, EPM Musique [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:B4D1F62E027EE81D570A3106152EEAA3F9C69AE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +137,8 @@ Art Pepper - The Way It Was! (1956 - 1960) 1989, Original Jazz Classics [FLAC|Lo
 magnet:?xt=urn:btih:0747B04530DCCDCFCA42B86B62774146A58D3730
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Art Pepper - The Trip (1976) 1987, Victor [FLAC|Lossless|tracks + .cue] <Post-Bo
 magnet:?xt=urn:btih:E25E6EC71A36FBACB6915EF76166B84479D5CED5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +193,8 @@ magnet:?xt=urn:btih:E25E6EC71A36FBACB6915EF76166B84479D5CED5
 magnet:?xt=urn:btih:8B2C69BFB129A7DB27FC9E63C6165692D5E8AA60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ magnet:?xt=urn:btih:8B2C69BFB129A7DB27FC9E63C6165692D5E8AA60
 ```bash
 magnet:?xt=urn:btih:A0BDEEAF69C0EDD1A5C788CD291202EAD4E544C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +249,8 @@ VA - Smooth Moods Chill Out, Vol. 3 (2023) [MP3|320 Kbps] <Chillout, Lounge, Dow
 magnet:?xt=urn:btih:C34711AB0C5B5ED1CBCEE72241FB657F69180644
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +277,8 @@ Greg Mancol - Time For Relax (2018) [MP3|320 Kbps] <New Age, Relax>
 ```bash
 magnet:?xt=urn:btih:D8AFE46D1FD01058DA764F1B135DAD6FD2635642
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +307,8 @@ Greg Mancol - Chill Passion (2016) [MP3|320 Kbps] <New Age, Relax>
 magnet:?xt=urn:btih:45AC6480469B3CC604B74E223BAB228A4A31754C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +332,8 @@ magnet:?xt=urn:btih:45AC6480469B3CC604B74E223BAB228A4A31754C
 ```bash
 magnet:?xt=urn:btih:3A57CF7AD7A7CD418FD323720AA18AFC67CBA5C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +362,8 @@ Heidi Montag - Superficial (2010) Anniversary Edition, 2025, Pratt Productions [
 magnet:?xt=urn:btih:7989613652ABF4F1DD01024486792258AA8AC3AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +387,8 @@ magnet:?xt=urn:btih:7989613652ABF4F1DD01024486792258AA8AC3AE
 ```bash
 magnet:?xt=urn:btih:D1249819F8371F194E6242E7009B7AB031681F6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +414,8 @@ magnet:?xt=urn:btih:D1249819F8371F194E6242E7009B7AB031681F6E
 magnet:?xt=urn:btih:BB96535D0A7CD8F69B7082581ABCDB50D669A54D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +439,8 @@ magnet:?xt=urn:btih:BB96535D0A7CD8F69B7082581ABCDB50D669A54D
 ```bash
 magnet:?xt=urn:btih:77B753EBD70D3980731F4FA6009DC5B31332EEB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +468,8 @@ magnet:?xt=urn:btih:77B753EBD70D3980731F4FA6009DC5B31332EEB0
 magnet:?xt=urn:btih:CBCC901118ACE4A15FDC260F1F689CD9D22DA62A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +493,8 @@ magnet:?xt=urn:btih:CBCC901118ACE4A15FDC260F1F689CD9D22DA62A
 ```bash
 magnet:?xt=urn:btih:72BFE510A7FBF731B2E19B08859EEC18E11A8E26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +522,8 @@ magnet:?xt=urn:btih:72BFE510A7FBF731B2E19B08859EEC18E11A8E26
 magnet:?xt=urn:btih:45DC1C28D234B89CC449FC515DDB972778DE3717
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +549,8 @@ Fraiche — это очаровательный мягкий и округлый
 ```bash
 magnet:?xt=urn:btih:731210FA95C35F952C43D836B41784EA1FC9CEDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +578,8 @@ magnet:?xt=urn:btih:731210FA95C35F952C43D836B41784EA1FC9CEDB
 magnet:?xt=urn:btih:401BEE760DD64A38B3876D28835DD88BD0F84943
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +606,8 @@ Highland — это уплотненный брусковый шрифт с за
 magnet:?xt=urn:btih:9AF33F65569346CB208C93F495E66678D083AAED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +631,8 @@ magnet:?xt=urn:btih:9AF33F65569346CB208C93F495E66678D083AAED
 ```bash
 magnet:?xt=urn:btih:60D439DBFA459CBF88FC96790D1B2854F9BFD834
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +661,8 @@ magnet:?xt=urn:btih:60D439DBFA459CBF88FC96790D1B2854F9BFD834
 magnet:?xt=urn:btih:7E263EF479F6E29A657C0D7125D9680B12366609
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +690,8 @@ magnet:?xt=urn:btih:7E263EF479F6E29A657C0D7125D9680B12366609
 magnet:?xt=urn:btih:0B3F924AB04259BA24B59E9694011020778E9FE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +718,8 @@ Chick Corea - Now He Sings, Now He Sobs (1968) 2024, Universal [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:D11421191A2CC41A1B9939279E0FE49790A1B496
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

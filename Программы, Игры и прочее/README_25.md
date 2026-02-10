@@ -19,6 +19,8 @@ AudioLab: Audio Editor Recorder – это самый продвинутый к�
 magnet:?xt=urn:btih:EDCD05575D43858BC49D5A85E5EE5D0E94D45A7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Cleaner for WhatsApp — это мощный инструмент для очи�
 ```bash
 magnet:?xt=urn:btih:A62DB25E202AB54E0599E48CAC2B48FEE0E10843
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ ToonApp карикатура фоторедактор лучшее прилож�
 magnet:?xt=urn:btih:0C9C3D1B4CEFABC3769E13EBCD89E739F613B2AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Reface: Face Swap AI Generator v5.0.0 Mod by Mixroot [Multi]
 magnet:?xt=urn:btih:9C6E7EF51265494060B8354181250217AE07F32E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ PowerDirector – Video Editor v14.5.3 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:47DEF8951774D71D5247A2A8D8EBF15E6BC703E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Brotato: Premium 1.3.193 [Ru]
 magnet:?xt=urn:btih:F89BA58CEB608E50753CFE37BBF4BCEC181A77E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:9FBCAC764D7D5B290B830DC2255817569095E222
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Document Reader & Viewer 2024 v1.2.3 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5B7BB2BC2B4A98D79F0DB83ADDCB42D38063E5E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:5B7BB2BC2B4A98D79F0DB83ADDCB42D38063E5E4
 magnet:?xt=urn:btih:734E4FAC66EB21FC0089AA237069C548F44090D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:1E413B656D6286818653279AA777B65612E12387
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:1E413B656D6286818653279AA777B65612E12387
 magnet:?xt=urn:btih:5C703C2FDD61E41CE533D4EE2568F67A3C521106
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Ultimate Thumbnail Maker v1.7.5 Mod by Alex.Strannik [En]
 ```bash
 magnet:?xt=urn:btih:306E50A58E539FAF931F7E1706F3232F7CA9B78A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:306E50A58E539FAF931F7E1706F3232F7CA9B78A
 magnet:?xt=urn:btih:AD50861EC07F070D211663F235DC41662C47F06A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ MobiOffice - это полнофункциональный офисный пак
 ```bash
 magnet:?xt=urn:btih:014417B8A3C405698D7B447F94732DB516DF692C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Photo Editor - уникальная программа для обработки
 magnet:?xt=urn:btih:BDA3F9DDAF13C0CD066F74F41ECA20685EB77144
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Seven / 7 Минут Упражнение v9.20.01 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C484E46F28FEC29CA3D9C1C8D98B80A3B5573829
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ LazyMedia Deluxe это Android TV приложение, которое можн
 magnet:?xt=urn:btih:A2E2B05608185A208DC69D581C12D06B77211FDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Photo Editor - уникальная программа для обработки
 ```bash
 magnet:?xt=urn:btih:2B2374A06A97D356009BED9AE7EE0002AABA0E47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ SnapEdit — одно из лучших приложений для редакт
 magnet:?xt=urn:btih:740C6D3AA8FB0D92836D559B9F17C616DFE4E835
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ PowerDirector – Video Editor v14.5.2 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9F6D89105D8BF8D3AD43823685238CFCDFAC4EE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ IPTV Pro v8.2.3 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:07B8E746FF4B05FE6D741F7708C00A2D618F5BA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:3C64DA036DBF1CE3D35B037FAA69D90F93D931E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:3C64DA036DBF1CE3D35B037FAA69D90F93D931E8
 magnet:?xt=urn:btih:ABA578FE7AB3EEAABA453206883D6E8E38691DD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Real Guitar предоставляет все необходимые инстр�
 ```bash
 magnet:?xt=urn:btih:3A7A1B17F70BD9F51B1754D3DC87A5931A93F761
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ PhotoRoom v5.5.2 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:283C98A8472D76E2DB44F535C49EC0AA49568BB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Magic Eraser - это революционное приложение для р�
 ```bash
 magnet:?xt=urn:btih:B7F9436602262B5AA45D93684B8B8ED7A8F71CF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

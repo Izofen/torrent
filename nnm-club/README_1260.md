@@ -22,6 +22,8 @@ Sam Coulson - Gold Watch Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:5731D4889343D24A7DAA202DEAE657494AD2647B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Stacy Mitchhart - Midnight Breeze (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:5314B3985016F841CA9DDD37BC874101FE77EFE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Lions In The Street - Moving Along (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 magnet:?xt=urn:btih:37E4703542D7EE3F09E86CC0CD6C403BADD21B1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Catfish John Tisdell - No Slowing Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 magnet:?xt=urn:btih:E28F9C749468558668D4ACA8ADD468EEA8CF4C4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ OneCommander V3 — это современный файловый менедж�
 ```bash
 magnet:?xt=urn:btih:8F72DE35DCC638173E7E309CAABD480E7CC8D991
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -153,6 +163,8 @@ TapinRadio - интернет радио от компании RaimerSoft (ра�
 magnet:?xt=urn:btih:4CB385172CD0E4E6A706F0849FE4C8255A7AA5DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:4CB385172CD0E4E6A706F0849FE4C8255A7AA5DD
 ```bash
 magnet:?xt=urn:btih:AD38A5C4B1D225D5A45D14CC0D5BA42E9CA5FBA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ magnet:?xt=urn:btih:AD38A5C4B1D225D5A45D14CC0D5BA42E9CA5FBA0
 magnet:?xt=urn:btih:49D224DB5F75BE129A7FCB459B35F1176D095086
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:49D224DB5F75BE129A7FCB459B35F1176D095086
 magnet:?xt=urn:btih:B0F5BB34F4283D8B567EB5952C6DAF5AD866066A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:B0F5BB34F4283D8B567EB5952C6DAF5AD866066A
 ```bash
 magnet:?xt=urn:btih:E30A034E3B3B72683060781B0CDF2CD23FFBFC86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ Moving Out 2 - это уморительное продолжение всеми
 magnet:?xt=urn:btih:4570D7D8362A0226CE6AACB918F802D42E03EB9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ Trans Neuronica - это головоломка, в которой традиц�
 magnet:?xt=urn:btih:BA048E0BB6BA2F5C26641E7131E48D155BDDE3E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:BA048E0BB6BA2F5C26641E7131E48D155BDDE3E5
 ```bash
 magnet:?xt=urn:btih:B29323D890108B2AE687FAE08AC283362A35987F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ Woolly Boy and the Circus 1.0.0 [En]
 magnet:?xt=urn:btih:CCAE7CFF43257EFDE072C579619BAB36BFC1A130
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:CCAE7CFF43257EFDE072C579619BAB36BFC1A130
 ```bash
 magnet:?xt=urn:btih:BB408113E214D3DBD7E5FAD32015C8A4BBCD27D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:BB408113E214D3DBD7E5FAD32015C8A4BBCD27D1
 magnet:?xt=urn:btih:4AC2E626898A4122F656D57B006B0319B13EAEEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ Destiny Star Girlfriend 3 (2019) [Multi] (1.0.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:E4FEB8E8372A0080191EFEB702DABADDD4857BDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ Opening Encyclopaedia 2024 (2023) [En] (2024) License
 magnet:?xt=urn:btih:8DB00993E1FFE63930C828B61BF6EDF9A6F65FB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:8DB00993E1FFE63930C828B61BF6EDF9A6F65FB4
 magnet:?xt=urn:btih:84BD6E6586B7B979BAF8D4787671F7BA2647C086
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:84BD6E6586B7B979BAF8D4787671F7BA2647C086
 ```bash
 magnet:?xt=urn:btih:F581213DE7D3B6D0772D117E238CF26453598B21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ Apashe - Antagonist Remixes (Part II) (2024) [FLAC|Lossless|WEB-DL|tracks] <Elec
 magnet:?xt=urn:btih:D6A1F6D0C6A7D4D9A3A4AE150065FAF7B50056A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:D6A1F6D0C6A7D4D9A3A4AE150065FAF7B50056A9
 ```bash
 magnet:?xt=urn:btih:8D169DFEB04046AD058975D05F3390DF5B2B888A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ Corr Database 2024 (2023) [En] (2024) License
 magnet:?xt=urn:btih:4B50A359E1F1B562DFEF23F80ED00A15D10DBA7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:4B50A359E1F1B562DFEF23F80ED00A15D10DBA7C
 ```bash
 magnet:?xt=urn:btih:34F69574DCACACC67FCE02718A3F49275752F1D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:34F69574DCACACC67FCE02718A3F49275752F1D8
 magnet:?xt=urn:btih:59AA55FB88A22D7AE2E6216C191E6193FB0F722E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ OpenShot Video Editor - видеоредактор, позволяющий ле�
 ```bash
 magnet:?xt=urn:btih:7A5106A2B070F5D663E9C7E3EF01BAD742D8A3CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

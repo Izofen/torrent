@@ -21,6 +21,8 @@ The Solus Project: Blueprint Introduction полный и детальный к�
 magnet:?xt=urn:btih:E438EACA29A9F665216A9CF171CF5265553EF03E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ The Solus Project Level Intro – это полное и детальное ви
 magnet:?xt=urn:btih:A67F043D2E7229C7BFDDC6136280789104FC56AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Udemy.com | Adobe Illustrator Advanced Vector Artwork (2019) PCRec [H.264/720p-L
 ```bash
 magnet:?xt=urn:btih:2979676D29972A772B452DC78B2B7DBFCDA25671
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ Stepik, Алексей Голобурдин | Основы компьютерн�
 magnet:?xt=urn:btih:355AB9A00B333F3B87848D2BC6610C7A7C7C8CE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ ArtNest, Вера Величко | Игровой арт (2019) PCRec
 ```bash
 magnet:?xt=urn:btih:3346C0C863784FBE978C48E208ACAC690F04CB23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Schoolism, Alex Woo | Gesture Drawing (2016) PCRec
 ```bash
 magnet:?xt=urn:btih:69FF0BDF55F4949310F6AEF2C418A96A8361E885
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Agesandra, Александра Попова | Большой вокальный
 magnet:?xt=urn:btih:98AAF93F34F3E9C55C69116F96A5C6B0366D1425
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ Gumroad, Yu Cheng Hong | Armour tutorial (2016) PCRec [En, Ru]
 magnet:?xt=urn:btih:A5C83E77C1225394D6A4620DEDDE12A4D51DF231
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ RealLife English | Английский по сериалу «Друзья» / F
 ```bash
 magnet:?xt=urn:btih:3AB217022575446A4C7C9FBCF6E7986B94D680CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ Daniel Krafft | 200+ Helpful Blender 3D Hacks in Under 1 Hour (2020) PCRec [RU, 
 magnet:?xt=urn:btih:D3BCC0206D9341BE0187B0AD78CA3AD38E587710
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ Podlodka Crew | Podlodka iOS Crew [Сезон 1-5] (2020-2021) PCRec
 ```bash
 magnet:?xt=urn:btih:104071A751B0542B36FAADAA5D636C6B37D0EBFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ unrealskills.ru, Лихоманов Даниил | Unreal Basics (2018) PCRec
 magnet:?xt=urn:btih:48BA9925B0B57D8B1FFAE88C272CEFE9A55D4E94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ Zero To Mastery Academy (ZTM), Paul Mendes | The Complete Guide to Freelancing i
 magnet:?xt=urn:btih:B11F7321CDAEA600283BA34E8AC03B06FE143FB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ Udemy, Елизавета Кряжкова | Git и GitHub с нуля до пр
 ```bash
 magnet:?xt=urn:btih:38D15310F41732153EEB87155DE7370B04AFE353
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ Rebrain, Fevlake | ClickHouse онлайн-практикум (2021) PCRec [AD]
 magnet:?xt=urn:btih:FEFF85B663DE6A5C553ADCB91006864EE0C52A5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ Udemy, Исмаил Усеинов | Unity Bolt - визуальное прог�
 ```bash
 magnet:?xt=urn:btih:DD19745D0480A169E484CB0594A999ED41A1DE2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ magnet:?xt=urn:btih:DD19745D0480A169E484CB0594A999ED41A1DE2C
 ```bash
 magnet:?xt=urn:btih:110F578DCB919E4A0D6198F3AF5B4A42CFE0A357
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ SMM-специалисты. Освоите таргетинг, научитес�
 magnet:?xt=urn:btih:AF8D1471764346ECD455DC4C9E7CA1511A04AA86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ Zero To Mastery Academy (ZTM), Andrei Neagoie, Aleksa Tamburkovski | Web Securit
 ```bash
 magnet:?xt=urn:btih:D0D7BFD41EB5FEF91B8B348E1E92267EC8BF9CCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:D0D7BFD41EB5FEF91B8B348E1E92267EC8BF9CCF
 magnet:?xt=urn:btih:0FFAE3CD495BE61EAEFEF772D9375125A9FE1416
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ Zero To Mastery Academy (ZTM), Andrei Dumitrescu | DevOps Bootcamp: Learn Linux 
 ```bash
 magnet:?xt=urn:btih:0551471D5756F91ED3ADB9B1CC93AF729919931F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +595,8 @@ Udemy, Adnan Waheed | PostgreSQL Bootcamp : Go From Beginner to Advanced, 60+hou
 magnet:?xt=urn:btih:B2E0C657EB287DFD4133F18CB80B69E4D3BA87BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ Cybrary | CompTIA Security+ (SY0-601) (2021) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:9C15A8ACD2AACD1BF44B733FC6C02A9B07D8C418
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +651,8 @@ Udemy, Trevoir Williams | Entity Framework Core - A Full Tour (.NET 5 and up) (2
 magnet:?xt=urn:btih:9FA3D0A2CBD3A17FA5062CF66FBDE0A72A853F75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ Udemy, Coding Revolution | The complete React Fullstack course (2021 edition) (2
 ```bash
 magnet:?xt=urn:btih:38832428923E8C882D511522E4239AE4AA2747FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -657,6 +707,8 @@ Udemy, Dennis Ivy | Python Django 2021 - Complete Course  (2021) PCRec [En / En 
 ```bash
 magnet:?xt=urn:btih:B68444635DBE15B14349A7418A2576BADAAFB7D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

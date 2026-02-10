@@ -1,3 +1,29 @@
+###  Публикация: 1159455   (483818) от 20.08.2017
+
+Танцы (2017.08.19) HDTV [H.264/1080i] (сезон 4, выпуск 1)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Танцы 4 сезон, в очередном сезоне любимого миллионами танцевального проекта нас ждет противостояние полов, потому что Егора Дружинина больше нет в числе членов жюри. Его место заняла знаменитый хореограф Татьяна Денисова. С появлением нового судьи будут связаны крупные изменения новых деталей проекта. В проекте окажутся хореографы Татьяны, которые станут трудиться (   Читать дальше...   )Телекомпания: ТНТ HDЖанр: Реалити-шоу, танцы, развлекательный, хореографияСубтитры: ОтсутствуютПродолжительность: 01:33:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B1C104AA3CF020F73F376F966E59CB5A4925446
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159582   (483820) от 20.08.2017
 
 Воскресный вечер с Владимиром Соловьевым (2017.08.20) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:043AAD570EB7AC53BD1BE6ED5CC3CD9DA4845891
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:043AAD570EB7AC53BD1BE6ED5CC3CD9DA4845891
 ```bash
 magnet:?xt=urn:btih:38CAE1452EFF860AE7136E66CCB8AA0A829B09B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:38CAE1452EFF860AE7136E66CCB8AA0A829B09B3
 magnet:?xt=urn:btih:18CE15C72FAB5E02BA4F1BB733B1FD1A064A84C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:18CE15C72FAB5E02BA4F1BB733B1FD1A064A84C3
 ```bash
 magnet:?xt=urn:btih:ECD5516D94D9E80AA48F84E6C4C77AA110DDDD9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:ECD5516D94D9E80AA48F84E6C4C77AA110DDDD9D
 magnet:?xt=urn:btih:6257E40C4955E76D14080A020896A4CDFE3238BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:6257E40C4955E76D14080A020896A4CDFE3238BD
 ```bash
 magnet:?xt=urn:btih:3756FE018BCD517953FDB1C97DD86673E9FF6A9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:3756FE018BCD517953FDB1C97DD86673E9FF6A9A
 magnet:?xt=urn:btih:8BEAE0C79C16613BBC88C83B299CC97776250BDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:8BEAE0C79C16613BBC88C83B299CC97776250BDF
 magnet:?xt=urn:btih:3A126D1F3DBAB36CC1E580BD7BFD33FC66DAF1C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:3A126D1F3DBAB36CC1E580BD7BFD33FC66DAF1C2
 ```bash
 magnet:?xt=urn:btih:FE6AE0DA27858167E1793AF7F926C9A68BDE742E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:FE6AE0DA27858167E1793AF7F926C9A68BDE742E
 magnet:?xt=urn:btih:758FC97DE97AB634871881AD1D3C3B1F021DACE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:758FC97DE97AB634871881AD1D3C3B1F021DACE8
 ```bash
 magnet:?xt=urn:btih:45B45CBE43566ABAB91B43295605CBDEF0C0DB06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:45B45CBE43566ABAB91B43295605CBDEF0C0DB06
 magnet:?xt=urn:btih:2B610F4197525675AB539CF313F8E546DBF91B41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:2B610F4197525675AB539CF313F8E546DBF91B41
 ```bash
 magnet:?xt=urn:btih:1DB7010BAD58734680649A69D452DF3C4E50CFFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:1DB7010BAD58734680649A69D452DF3C4E50CFFE
 magnet:?xt=urn:btih:7BE0791DAACC0EC178312F9E615E84085BDD9F20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:7BE0791DAACC0EC178312F9E615E84085BDD9F20
 ```bash
 magnet:?xt=urn:btih:CFDFEAC33DE0676F2A6E115E84F5333ED2ED4FDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:CFDFEAC33DE0676F2A6E115E84F5333ED2ED4FDC
 magnet:?xt=urn:btih:08AFB1A0DF67755DD032F6F96A637101F9AC0C6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:08AFB1A0DF67755DD032F6F96A637101F9AC0C6E
 ```bash
 magnet:?xt=urn:btih:8B7B4770B1479045D4838EE28F3D35C25311D8F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:8B7B4770B1479045D4838EE28F3D35C25311D8F7
 magnet:?xt=urn:btih:664A98DA6CADA3723F077D743DF96BA2ABBDF407
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:664A98DA6CADA3723F077D743DF96BA2ABBDF407
 ```bash
 magnet:?xt=urn:btih:FA9987F790518B63E405B5D29E03F17AEC1030C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:FA9987F790518B63E405B5D29E03F17AEC1030C6
 magnet:?xt=urn:btih:32AC60C16C46F942399B3C8321C7784AE03E3929
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:32AC60C16C46F942399B3C8321C7784AE03E3929
 ```bash
 magnet:?xt=urn:btih:711FCAF6E6ED92F9DBA11F83B0D36CC87C7AB20D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:711FCAF6E6ED92F9DBA11F83B0D36CC87C7AB20D
 magnet:?xt=urn:btih:25E0FC1679500AB763CFA8F6B69614399DDECBB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:25E0FC1679500AB763CFA8F6B69614399DDECBB8
 ```bash
 magnet:?xt=urn:btih:192F923C91684190B613BC44328F27A95016A400
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:192F923C91684190B613BC44328F27A95016A400
 magnet:?xt=urn:btih:D15DA4F2CCC5D8B313A9AA7B282CE0330FF5A09C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,29 +671,7 @@ magnet:?xt=urn:btih:D15DA4F2CCC5D8B313A9AA7B282CE0330FF5A09C
 magnet:?xt=urn:btih:6E905F4FCF41AE155839FCF903F7AD8FA42BC001
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938262   (484064) от 17.09.2015
-
-Линия защиты. Воронежский маньяк (2015.09.16) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он объявил охоту на прокуроров и судей. Что это было? Месть за сломанную жизнь? Или маниакальный психоз? Почему скромный пенсионер взялся за оружие? Кто он - борец за справедливость, сектант, националист или обычный садист? Что нашли полицейские в доме убийцы? И где закончился его кровавый путь? Только в "Линии защиты" все подробности страшной охоты "воронежского (   Читать дальше...   )Производство: РоссияТелекомпания: ТВЦЖанр: ДокументальныйПродолжительность: 00:25:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A0A05CE40F6BBFDC5212FFB286112F871EC9A4F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8150361DA43E265CD16CB1E47777EA11E08EF8D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Colony Ship: A Post-Earth Role Playing Game - пошаговая ролевая 
 ```bash
 magnet:?xt=urn:btih:6ED9DAC14856BEA0EC75BC034A534534ADFA8FE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Auslogics Disk Defrag Pro - это профессиональная версия
 magnet:?xt=urn:btih:4E9485EB09F1A796A9983F4A88A0F12F728966D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:4E9485EB09F1A796A9983F4A88A0F12F728966D7
 ```bash
 magnet:?xt=urn:btih:A23F45080DFABF4336D8DB48086EF2EC78A96C73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:A23F45080DFABF4336D8DB48086EF2EC78A96C73
 magnet:?xt=urn:btih:4800449CD49FFF5895817B366C934D137ECB0316
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:4800449CD49FFF5895817B366C934D137ECB0316
 magnet:?xt=urn:btih:A07E3E0CB9E8132971CCFE629670FD8F74DBAC4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ MassTube Ultra — очень простая в использовании пр�
 ```bash
 magnet:?xt=urn:btih:091D1E27AFBAE263F6EE8F9F002A087AA8F07B0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Smokie - Compilation (2025) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:10B8439F05EA61416FBB5778399A27DCF4BA101D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:10B8439F05EA61416FBB5778399A27DCF4BA101D
 ```bash
 magnet:?xt=urn:btih:58A1EFF1C3FCF4FC8E7BAC178DBC62A9527AB214
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:58A1EFF1C3FCF4FC8E7BAC178DBC62A9527AB214
 magnet:?xt=urn:btih:4F19450F28E57FBB1CF5992BF2044A39C1D8F396
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:4F19450F28E57FBB1CF5992BF2044A39C1D8F396
 ```bash
 magnet:?xt=urn:btih:91673D067C2E22B2A1914A3244C7C44674C3D763
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:91673D067C2E22B2A1914A3244C7C44674C3D763
 magnet:?xt=urn:btih:B3EB7760867A4D798308F85DBBE331C5EE070D0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:B3EB7760867A4D798308F85DBBE331C5EE070D0D
 ```bash
 magnet:?xt=urn:btih:F566C279695E532FA9C4DCEB2C6C6BEE3108FB1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:F566C279695E532FA9C4DCEB2C6C6BEE3108FB1A
 magnet:?xt=urn:btih:9DA5887A37AF1CC8234BB301C920DBFA6BCA537A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:9DA5887A37AF1CC8234BB301C920DBFA6BCA537A
 ```bash
 magnet:?xt=urn:btih:92AA780D7CDC164063B0EBAC0AB42284A9135F1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:92AA780D7CDC164063B0EBAC0AB42284A9135F1C
 magnet:?xt=urn:btih:6FA9262C5B7E1DDFA0B44E66C04AB5BE748C63AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Captain Blood / Приключения Капитана Блада (2025) [Ru/Mu
 magnet:?xt=urn:btih:37AD2AAABE6FE8563C5F1616A867EF38596845E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Aquarist - иммерсивный симулятор, позволяющий п�
 ```bash
 magnet:?xt=urn:btih:430C3FCC8E50C63901C242058ADF7E11AD9365F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:430C3FCC8E50C63901C242058ADF7E11AD9365F9
 magnet:?xt=urn:btih:A3296BFC6BFE7B154BC4A6B2E739C17533D09F86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ MemTest86 - бесплатная программа, позволяющая пр
 ```bash
 magnet:?xt=urn:btih:A7644D923D9929ECE2467885022CFB188E8E4654
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:A7644D923D9929ECE2467885022CFB188E8E4654
 magnet:?xt=urn:btih:FE40EE565AA026F05C8ACA7C9366F46710FD0281
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:FE40EE565AA026F05C8ACA7C9366F46710FD0281
 ```bash
 magnet:?xt=urn:btih:EADD1A97AB99E4CDDC625377075652DA6B6DA095
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Another Crab's Treasure - это увлекательное подводное �
 magnet:?xt=urn:btih:C55E9051801C8A5CDD171F92CB1A39885B9DA916
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:C55E9051801C8A5CDD171F92CB1A39885B9DA916
 ```bash
 magnet:?xt=urn:btih:2B7F0F8011E9AB50C19DED81B52E2839318C0E86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ Office Installer - программа предназначена для online �
 magnet:?xt=urn:btih:396B7E6C70232984E3BE8EBDEACD17F93918B2EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Reignbreaker - динамичный roguelike, действие которого
 ```bash
 magnet:?xt=urn:btih:2088372B7459DA54532CE45DEC0ABE3B51E5243D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1DC4BC4DCA6E3DAC325B9945722B8E966F66B922
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack FitGirl [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:1E158A30F4AE99448B18B3DD5D2C0192C29DAEE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:1E158A30F4AE99448B18B3DD5D2C0192C29DAEE0
 magnet:?xt=urn:btih:30DF46F30F6031A52BA33FB72BBCF69D676BBD80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ IPTV# (ex. LazyIPTVDeluxe) v3.15 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5F4622B2442387142AF079B746B458914B6692D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ PowerWash Simulator (2022) [Ru/Multi] (1.10.0/dlc) Scene Tenoke
 magnet:?xt=urn:btih:EC74D5360D49A28B50B6E94DA9DDC334C6441ADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ USB Image Tool - бесплатная и очень простая в испол
 ```bash
 magnet:?xt=urn:btih:1B05B323B300CB5A0846AF6083F9DF8A591ED388
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Udemy, Marwan Sufyan | AutoCAD Architectural 3D Modeling (2025) WEB-DL [EN]
 magnet:?xt=urn:btih:441116D3EB84E7B010929294569D8F23CB16A369
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:441116D3EB84E7B010929294569D8F23CB16A369
 magnet:?xt=urn:btih:2F4BA2C11A38BB4BE9492CC91FF4EF3948C82492
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:2F4BA2C11A38BB4BE9492CC91FF4EF3948C82492
 ```bash
 magnet:?xt=urn:btih:4081E92A89B2DBEE0E5EA5233C971CFC2F596A0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Antivirus Removal Tool - портативный набор официальны�
 ```bash
 magnet:?xt=urn:btih:873ACC1805E09D0A803216C55C0EC0FE0CDA12F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Destruction — трэш-метал-группа из Германии, осно
 magnet:?xt=urn:btih:8F9AC54AAEE8B9849808BDACFEC0438B8E7C335D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ updated_feb_2025_x64_dvd_16fa7261.iso
 magnet:?xt=urn:btih:45691E6F5D2DC1651282A8EBAC8C0C1283B0D148
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ Udemy, Logan Wiesen | Realistic 3D Character Creation By Logan Wiesen (2025) WEB
 ```bash
 magnet:?xt=urn:btih:CA2F89B4FBE24FC2D9859E4A4885A0A89E511905
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ GPS Compass Navigator v2.20.33 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:028C28AF03746D57CB2FBDB7CFE672C5DCE2E43B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:028C28AF03746D57CB2FBDB7CFE672C5DCE2E43B
 ```bash
 magnet:?xt=urn:btih:93D8132E62C48014ED8179697F76075795B76C7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ XRecode 3 - популярный и мощный аудиоконвертер, �
 magnet:?xt=urn:btih:2DDB13D0570FE5C197DD57390E717C300FCA6AFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:2DDB13D0570FE5C197DD57390E717C300FCA6AFE
 ```bash
 magnet:?xt=urn:btih:5C7C09C96EB7B750F72CBF4CD429EF99148BA540
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:5C7C09C96EB7B750F72CBF4CD429EF99148BA540
 magnet:?xt=urn:btih:681B03D7113744D96FB8C3A7241600D00827F78A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:681B03D7113744D96FB8C3A7241600D00827F78A
 magnet:?xt=urn:btih:E4DD948EE987F366F97A31E3FFBC5B4F3D4CFC79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:E4DD948EE987F366F97A31E3FFBC5B4F3D4CFC79
 ```bash
 magnet:?xt=urn:btih:FDF0A89C196EC6A5D88D651DF93C3E0BAE7CACDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:FDF0A89C196EC6A5D88D651DF93C3E0BAE7CACDB
 magnet:?xt=urn:btih:8C4FCB20D428379CEF65A6D7DC6542AB7B220C97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:8C4FCB20D428379CEF65A6D7DC6542AB7B220C97
 magnet:?xt=urn:btih:344644E2413657EB3AE0D30D5ACD3D4702548D1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:344644E2413657EB3AE0D30D5ACD3D4702548D1E
 ```bash
 magnet:?xt=urn:btih:6920812F7C2149F46AB054397C0EA63BA41EA485
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:6920812F7C2149F46AB054397C0EA63BA41EA485
 magnet:?xt=urn:btih:17F21C34C602FD986003CAEE1233BAC0E0A6D1E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:17F21C34C602FD986003CAEE1233BAC0E0A6D1E5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ magnet:?xt=urn:btih:17F21C34C602FD986003CAEE1233BAC0E0A6D1E5
 ```bash
 magnet:?xt=urn:btih:072F95ACC41CF695A6346C4EEAA987B9EF35BE22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

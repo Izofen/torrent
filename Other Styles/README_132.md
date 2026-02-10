@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:50895595C4F6B115FF169FE69F992B65446617D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Guy Sweens - The Best of Guy Sweens (2018) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:72EF6BD4B6D9259D011D4DC11260B5A9544DA28C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Arthur Fieldler & The Boston Pops - Pop Concert Favorites (1992) [FLAC|Lossless|
 magnet:?xt=urn:btih:4944A80D033C4786762616683AD6799CAD6231DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:4944A80D033C4786762616683AD6799CAD6231DC
 ```bash
 magnet:?xt=urn:btih:47B19A48762073533024599D9A7BC27FEEB39274
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Will Brady - 3 альбома (1997-2009) [MP3|192 кб/с] <Instrumental, Blues
 magnet:?xt=urn:btih:BEF4A207FB9F5622E5A81E28605985B5EABC0801
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Medwyn Goodall - Eagle Spirit (1996) [FLAC|Lossless|tracks] <New Age, Celtic, In
 ```bash
 magnet:?xt=urn:btih:3CE95D445FCB04063321E1FC57CA4EC0C9297559
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Francis Goya - Collection 2CD,  (2005) [FLAC|Lossless|image + .cue] <Acoustic Gu
 magnet:?xt=urn:btih:D71B449632E79E20B436840030E489E74F6B818E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Valefim Planet - Heart Of The Sun (2018) [MP3|320 Kbps] <Enigmatic, New Age>
 ```bash
 magnet:?xt=urn:btih:6486BDEB83926AD1728D5A7740CE2313422AF247
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Hennie Bekker - Spring Rain (1992) Holborne [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:B18EC7007B24BF1B689F0613553E1B88FCD76296
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Hennie Bekker - Winter Reflections (1994) Holborne [MP3|256 Kbps] <New Age, Pian
 ```bash
 magnet:?xt=urn:btih:E4CAAC54184BD62706A8CC77E242BC63FE1C6BB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Hennie Bekker - Relaxing Pachelbel (2005) Tapestries [MP3|320 Kbps] <New Age, Tr
 magnet:?xt=urn:btih:D77E172901B40E50CE730836EBFE226F1C504256
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Hennie Bekker - Summer Breeze (1993) Holborne [MP3|256 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:24A14E350DF82FC9083802EB5D5AEC69580AB8B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Peder B. Helland - Bright Future (2018) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:71956ED16045B99C31B8701BA15C329071C204B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Sally Oldfield - The Enchanted Way (2018) [MP3|320 Kbps] <Folk, Pop, Singer-Song
 ```bash
 magnet:?xt=urn:btih:3CDBBDB59A52081D2575A7895BA79BDD7879C59D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Kitaro - India (1983) Reissue, 1985, Geffen Records [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:CA6041488440886A888442B0516C5D40D5148F5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Giovanni Marradi (17.04.1952). Он родился в Италии, учился
 ```bash
 magnet:?xt=urn:btih:4E2C18245A9773E46D581F089E1632D2AC675019
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Hennie Bekker - Jabula (The Joyful Spirit Of Southern Africa) (1998) Avalon Musi
 magnet:?xt=urn:btih:3D22DE30E604774C5939C4F1A0591B74593D8714
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Hennie Bekker - The Smoke That Thunders (1997) Holborne [MP3|320 Kbps] <New Age,
 ```bash
 magnet:?xt=urn:btih:3B6EB258D4886EC41C347EF40CA3D8709F86CB6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ Hennie Bekker - Kusasa (1999) Holborne [MP3|320 Kbps] <New Age, Tribal, African>
 magnet:?xt=urn:btih:FDE68841081424E8F06C3AD782D9051FA389BDD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Hennie Bekker - Temba (1995) Holborne [MP3|320 Kbps] <New Age, Tribal, African>
 ```bash
 magnet:?xt=urn:btih:3B198E03C633F1CBF250FE4A0E8A8E69DCF41D50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Lyn Avenue - Never Been to Nashville (2018) EP [FLAC|Lossless|tracks] <Country>
 magnet:?xt=urn:btih:4B5D8C544E6E498959E91F4AC4B14DB1D0BE879A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ Ludwig Goransson - Чёрная пантера / Black Panther (Original Motion 
 ```bash
 magnet:?xt=urn:btih:9E00662D5BDE3C9EA40A26C213C7EA797B3C911F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ David Arkenstone - Parisian Lounge (2018) [MP3|320 Kbps] <New Age, Chillout, Lou
 magnet:?xt=urn:btih:1026EB0D724F4182BD38441EB71626DC1071FC98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ Ludwig Goransson - Black Panther / Чёрная пантера (Original Motion 
 ```bash
 magnet:?xt=urn:btih:B386E49946407D2CAC2A9FD5CE600852152D165B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ Disc 1:
 magnet:?xt=urn:btih:2502ACAA8F3CE9D767C4A1681C3A3B7B34CDAB3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ Midori - The Healer (2018) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:76B07D438DBA32E548A2E46D8AFF2A7476428048
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

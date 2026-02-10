@@ -19,6 +19,8 @@ Marco Bucci | The Art Of Color And Light with (2015) PCRec [En, Ru]
 magnet:?xt=urn:btih:376E49E34463DE6B24E87396FDDDEA2D477E29B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Udemy, El Farouk Yasser и др. | Python REST APIs with Flask, Docker, MongoDB,
 ```bash
 magnet:?xt=urn:btih:F860775EDC2DC4191CA086E8E563E2F4E3BC36D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ ConvertMonster | Интернет-маркетолог 3.0 (2019) PCRec
 magnet:?xt=urn:btih:0D66B44C310A0642B3056D40B39CF7F5C93A1614
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Udemy, Sixon C Sunny | Архитектурный дизайн в Blender 2.82 �
 magnet:?xt=urn:btih:07D2859642C635E272DE7753BF87F7AE4884C381
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ FastAPI - один из самых интересных новых веб-фре
 ```bash
 magnet:?xt=urn:btih:9071212C748B222C14A3C8BFC1FD47CDCB1CE326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ David Connely | Texturing a Game Character in Substance Painter and Designer (20
 ```bash
 magnet:?xt=urn:btih:2231D40DD4426A76E95CA37714D549DDF2F67DB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Jama Jurabaev | Narrative Concept Art Part 1,2 (2017) PCRec
 magnet:?xt=urn:btih:D47D8899EAB6DAB183580002B5E409756EB1914F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ CG Cookie, Kenan Proffitt | Создание VFX видеоролика в Blend
 ```bash
 magnet:?xt=urn:btih:04D759338436FCA65DEC9A251D9F75D5A3E136B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ Udemy, 365 Careers | Курс Data Science 2020: Bootcamp Data Science / The Dat
 magnet:?xt=urn:btih:2AD8B1B1A2B43DE3C8A1E4F953B0CF664183DC73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ CGCookie | Concept Art Fundamentals (2015) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:2D4C65A5D3DF38D2A1AD0EAE76D4E1CBC25A1672
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ Udemy, Stephen Grider | Современный React и Redux [2020 Update] / Mo
 magnet:?xt=urn:btih:FE85534B6865F20B5099FDDE1F3F8143254ABC1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:FE85534B6865F20B5099FDDE1F3F8143254ABC1E
 magnet:?xt=urn:btih:453C69BCAE0BF29F08DE1E774ECB6FBBE4F09459
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ Ash Thorp | UI and Data Design for Film (2016) PCRec
 ```bash
 magnet:?xt=urn:btih:25AECD64894613899F593D58FFE81D036B60E89F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ Darren Kwach | Environment Design: Sci-Fi World Workshops (2015) PCRec [En, Ru]
 magnet:?xt=urn:btih:6204B90AF0CDF884CBBF03AE38865C78CBEDC3CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ Jason Scheier | Fundamentals for Creative Environment Design (2015) PCRec [En, R
 ```bash
 magnet:?xt=urn:btih:DF7B1D31BDC25ACF6DE8B973F1E389FF3260CD37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ Ryan Lang | The Art of Color And Light (2013) PCRec
 magnet:?xt=urn:btih:CDD50FB11E307B2FAFBFF80335A6004E5B48DDD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ Carlo Arellano | Character Design for Games Workshops (2011) PCRec [En, Ru]
 magnet:?xt=urn:btih:27DBB8C7710582F3AA2917904C6B04E652DDCF4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ James Paick | Vehicle/Mech Design Workshops (2011) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:37C67FDB5B15D4A3793EE4CD8A1688D9B7ED4DFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ Udemy, Soledad Galli | Deployment of Machine Learning Models (2020) PCRec [En / 
 magnet:?xt=urn:btih:AA70C66AE9528C99906035EB59DD9C8BF8804515
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:AA70C66AE9528C99906035EB59DD9C8BF8804515
 ```bash
 magnet:?xt=urn:btih:CBBB041AD4DC744501BF3A069F9D9F1F9B5F3C81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ CG Cookie, Kent Trammell | Шейдинг кожи в Cycles в Blender 2.69 / S
 magnet:?xt=urn:btih:7E3DFE6F3AECFFDAB6034A39F5D7381B16C4E0E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ CG Cookie, Kent Trammell, Jonathan Lampel | Основы шейдинга в Ble
 magnet:?xt=urn:btih:41B2522552D2FC52EAE04A8B801C0D0A0F45B376
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ Udemy, Заур Трегулов | Spring для начинающих (2020) PCR
 ```bash
 magnet:?xt=urn:btih:500E677B6714E83601D75346B1D5A16AD7BED56F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +641,8 @@ Data Scientist был назван работой номер один на Glass
 magnet:?xt=urn:btih:4D4CAA72BEA144143920EF841A602D2A5DF20B2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ Adam Swaab | Houdini Particles (2018) PCRec
 magnet:?xt=urn:btih:5589A76195E19E46DFC7A7804B388420242B6B6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ Michael Rigley | Design for Production: Workflow (2017) PCRec
 ```bash
 magnet:?xt=urn:btih:FC756B8FA85C84D4F98D3EE4EA73298BE252633A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

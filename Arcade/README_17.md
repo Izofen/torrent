@@ -19,6 +19,8 @@ War Tortoise - игра-кликер абсолютно нового уровн�
 magnet:?xt=urn:btih:F6304AC1C49A06A64B96E396301DBE0F74C10860
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ PJ Masks Power Heroes: Mighty Alliance призывает вас объедин�
 ```bash
 magnet:?xt=urn:btih:D2A3FEC8F75BE678636403446CA0D8376AB4A060
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Gridrunner. Revenge of the Mutant Camels. Tempest 2000. Llamatron. В брита
 magnet:?xt=urn:btih:039A3CDF410462B4BE6B5B2C98D165295D99128C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ STAR WARS: Battlefront Classic Collection возвращает любимые о
 ```bash
 magnet:?xt=urn:btih:DBED1D75BB54DC62DA16740CA81B552FC4206F15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ One Piece: Pirate Warriors 4 объединяет вселенную аниме 
 magnet:?xt=urn:btih:45B69751399CC553637A8347AA70F93C80941904
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Raw Metal (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C7BC3321B59AECAAE0D01B183749B25395AAD794
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ South Park: Snow Day! перенесет вас в хаотичный, засн�
 magnet:?xt=urn:btih:A066F2C690B79F829F1A3C93C1EB2EA0F2DC1F27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ South Park: Snow Day! перенесет вас в хаотичный, засн�
 ```bash
 magnet:?xt=urn:btih:11E92F78032E77306AC5BB8ECFB39985822C3571
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Tchia сама по себе воспринимается как легкая п
 magnet:?xt=urn:btih:DC56CA515BE5AAC4F54C92C161F88E917500BA61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Knight Witch скрещивает метроидванию с экшеном
 ```bash
 magnet:?xt=urn:btih:B7A7F7BA6981212B71B6DB2742FC382894B38803
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Hex Gambit: Respawned – многопользовательская аркад�
 magnet:?xt=urn:btih:36BDF43A6D7806ED715F4A07C345DFC5C8CEE66E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Crimzon Clover: World Ignition (2014) [Multi] (1.06) License GOG
 ```bash
 magnet:?xt=urn:btih:4FEF85F4E178D1FF0345F2DAB17E37A9D8B29B19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ WYRMHALL: Brush and Banter (2025) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:3C92CBA8643AE240C6D2090704D505A449CF77EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Castle Crashers - двумерный платформер от студии Behe
 ```bash
 magnet:?xt=urn:btih:190CE860BB8A48E3B86BB9B169C1F3EEAF543479
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Spin Rhythm XD - яркая и динамичная ритм-игра, в кот
 magnet:?xt=urn:btih:812C7A36E6455D97F66068D83EACAA3CE96E450C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Panic In The Woods - это одиночная или кооперативная
 magnet:?xt=urn:btih:CA7A77111555000AB4F5CC6FBC2D8F701E028A28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +434,8 @@ Captain Claw / Капитан Клык [Ru] (RePack) 1997 | WinterKiss
 ```bash
 magnet:?xt=urn:btih:3B5E136759B22772B164727689CB5837D52B7F50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ Blade Kitten (Р) [Ru] 2010
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Dustforce - стильный акробатический платформер �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ Mortal Kombat Ultimate HD Textures это переиздание одной из
 ```bash
 magnet:?xt=urn:btih:7A3D1C7F0FDAE4A026B14A44C562C0F3C82299AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Prince of Persia [En] (RePack) 1989 | pet9948
 magnet:?xt=urn:btih:A3449614A896B468E9E87226FC6468B4E5948D16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Gatling Gears [Ru] (RePack) 2011 | Naitro
 ```bash
 magnet:?xt=urn:btih:381477D0AC66BFA5C84162EC25DE993D3B118FD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ Rabbids Go Home / Бешеные Кролики [Ru] (RePack) 2010 l UltraISO
 magnet:?xt=urn:btih:53D9BCACD4FB338EC4CCD6D55ED4916B0EF18A25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ Warp [Ru] (RePack) 2012 | Fenixx
 ```bash
 magnet:?xt=urn:btih:F41D6426F165EB4DBB2915E5B027C25DB210CD9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ Clones / Клоны (2010) [Ru/Multi] (1.32) RePack Fenixx
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Warp [Ru/En] (RePack) 2012 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:B814937AC71AD22CC14D8B876EF95A3E1BCBB62E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

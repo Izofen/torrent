@@ -1,3 +1,29 @@
+###  Публикация: 991109   (907916) от 27.02.2016
+
+Экстрасенсы ведут расследование (2016.02.27) DVB [H.264] (сезон 7, выпуск 2)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный триллер-детектив с участием самых загадочных экстрасенсов России! Это не шоу, а демонстрация реальной мощи ясновидения. Участники и победители нескольких сезонов «Битвы экстрасенсов» приводят документальные доказательства того, как паранормальные способности способны помочь людям. В этом цикле экстрасенсы находят пропавших родственников и угнанные (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF469C6BE6F3B12238764DB667B4B60786B7448B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991055   (907917) от 27.02.2016
 
 Своя игра (27.02.2016) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:0A74F4099AD8B32C41B6C4A3520291FFFB7BA56B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:0A74F4099AD8B32C41B6C4A3520291FFFB7BA56B
 magnet:?xt=urn:btih:5C23C69FF474BEE5A33A31D67F09C8C818FE6DB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:5C23C69FF474BEE5A33A31D67F09C8C818FE6DB1
 ```bash
 magnet:?xt=urn:btih:8CD031A0F1722ED302DA40BFCAB5CAAA99085783
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:8CD031A0F1722ED302DA40BFCAB5CAAA99085783
 magnet:?xt=urn:btih:E7480F164714F8C70324C875989BC62FDC9361D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:E7480F164714F8C70324C875989BC62FDC9361D5
 ```bash
 magnet:?xt=urn:btih:C0F95B99A3B2E1AE848179E6EB781B9FED986940
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:C0F95B99A3B2E1AE848179E6EB781B9FED986940
 magnet:?xt=urn:btih:ADD39E112EB0477FC1E550B702AC5C527926B6EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:ADD39E112EB0477FC1E550B702AC5C527926B6EF
 ```bash
 magnet:?xt=urn:btih:7FCF67B708D2DB3431693CDB00EC6340F8BD24ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:7FCF67B708D2DB3431693CDB00EC6340F8BD24ED
 magnet:?xt=urn:btih:6C06841469BD757E7F13D34FDC149ECFB582D34B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:6C06841469BD757E7F13D34FDC149ECFB582D34B
 ```bash
 magnet:?xt=urn:btih:A0A63C1D33A8526641FF6C0671E533B57BCB17EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:A0A63C1D33A8526641FF6C0671E533B57BCB17EA
 magnet:?xt=urn:btih:21502C24F60198FAB1FAE5830E29480E4F8D2EB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:21502C24F60198FAB1FAE5830E29480E4F8D2EB5
 ```bash
 magnet:?xt=urn:btih:35C621625CF6F3C7A696C21B259392A612767A79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:35C621625CF6F3C7A696C21B259392A612767A79
 magnet:?xt=urn:btih:2F65864AB9E51AFAFD0DD4708C25D00A30B9E192
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:2F65864AB9E51AFAFD0DD4708C25D00A30B9E192
 ```bash
 magnet:?xt=urn:btih:873F3E160000DA09F4A0888EFCAF38A9B02C819F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:873F3E160000DA09F4A0888EFCAF38A9B02C819F
 magnet:?xt=urn:btih:B1A7E4993532916724581257A6D49FD7ACD71567
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +408,8 @@ magnet:?xt=urn:btih:B1A7E4993532916724581257A6D49FD7ACD71567
 ```bash
 magnet:?xt=urn:btih:408272F4EF1DACA74B7E742257C9AE704F85C6AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:408272F4EF1DACA74B7E742257C9AE704F85C6AC
 magnet:?xt=urn:btih:79539B570159126250846CB67B7CED0B8718515B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +460,8 @@ magnet:?xt=urn:btih:79539B570159126250846CB67B7CED0B8718515B
 ```bash
 magnet:?xt=urn:btih:A7425FE822FA7A856A88FE428487E2B58D240A40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:A7425FE822FA7A856A88FE428487E2B58D240A40
 magnet:?xt=urn:btih:E488CCFA16984AB7A63B857C1E4C0BFD1ACC8847
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +512,8 @@ magnet:?xt=urn:btih:E488CCFA16984AB7A63B857C1E4C0BFD1ACC8847
 ```bash
 magnet:?xt=urn:btih:3571C1C0F685C564FB7EEF1AAE2E0B0529464144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +539,8 @@ magnet:?xt=urn:btih:3571C1C0F685C564FB7EEF1AAE2E0B0529464144
 magnet:?xt=urn:btih:A229D59BC5D7554F6AC073A2957C001D3A499453
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +564,8 @@ XX съезд. Годовщина (2016) HDTVRip [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:FBD0D672B197E50C02AD35DBCEF4DAA7CA1025DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +591,8 @@ magnet:?xt=urn:btih:FBD0D672B197E50C02AD35DBCEF4DAA7CA1025DA
 magnet:?xt=urn:btih:F413C22E0154186334CD3DB4899F237A7572A0F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +617,8 @@ magnet:?xt=urn:btih:F413C22E0154186334CD3DB4899F237A7572A0F0
 magnet:?xt=urn:btih:FFEB7D9D5531CEA49835E05052131C0EB9CD5517
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +642,8 @@ magnet:?xt=urn:btih:FFEB7D9D5531CEA49835E05052131C0EB9CD5517
 ```bash
 magnet:?xt=urn:btih:5432FEC8CA3FA89B69BBD93F1E009368C6D77039
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,29 +670,7 @@ magnet:?xt=urn:btih:5432FEC8CA3FA89B69BBD93F1E009368C6D77039
 magnet:?xt=urn:btih:48CE820ABE5035F4D2A5911FDF44F525D4C79CED
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990955   (910041) от 26.02.2016
-
-Вести в 20-00. Большие Вести. Россия HD (26.02.2016) HDTVRip [720p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910041.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире - смотрите в последних выпусках новостей телеканала «Россия».В этом выпуске: Причина трагедии на шахте — взрыв метана. Спасательная операция в Воркуте. Недруги за бугром уже готовятся к осенним выборам в России. Владимир Путин на коллегии ФСБ определил для страны главные внешние и внутренние угрозы. За несколько часов до перемирия. Кто откажется сложить оружие, с теми борьба будет продолжена.Телекомпания: Россия HDЖанр: ТелепередачаПродолжительность: 00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D9BEB2844BD65942F005C8F87500920E60FFA4B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:8B7510BF8B6FD7A62E1D13A7B506E6E0B37D1C3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:8B7510BF8B6FD7A62E1D13A7B506E6E0B37D1C3D
 ```bash
 magnet:?xt=urn:btih:CE9B68141B78F7D8A62358ACBEE48CC97FF615A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Karing - Утилита прокси с простым и мощным инте�
 magnet:?xt=urn:btih:3E96C2860F1BEC592547B381D866D191935F1495
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Stray (2024) [Switch] [EUR] 18.1.0, Atmosphere 1.7.1 [License] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A0D8753DD8CC95A726CDE5DE3CFC78F40E76506A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Wicked West (2025) [En] (1.0) Scene TiNYiSO
 magnet:?xt=urn:btih:460FA3DCC98B77DE656814F7BDD18BA4EC79AFBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ PDF-XChange Pro — универсальное решение для работ�
 ```bash
 magnet:?xt=urn:btih:41C8A82E56E80E4ED414995D9672B6288C23BB29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:41C8A82E56E80E4ED414995D9672B6288C23BB29
 magnet:?xt=urn:btih:F3A558641ED4BE997D3E841F198003DCDCEFBC49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:F3A558641ED4BE997D3E841F198003DCDCEFBC49
 magnet:?xt=urn:btih:1660EC5692D6DEDC91BB4583FFB8F023C3C337D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:1660EC5692D6DEDC91BB4583FFB8F023C3C337D2
 ```bash
 magnet:?xt=urn:btih:077FCBF06F9B4A3CA6A844E0A46053CF2B0C8285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:077FCBF06F9B4A3CA6A844E0A46053CF2B0C8285
 magnet:?xt=urn:btih:40EAB73B707D7488FEE98F0356E6B78BB5561C52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:40EAB73B707D7488FEE98F0356E6B78BB5561C52
 magnet:?xt=urn:btih:32A975DA5C6416EE3CE8DD56D78E0B8E92DEBFF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Teenage Mutant Ninja Turtles: Splintered Fate (2024) [Switch] [EUR] 18.0.1, Atmo
 ```bash
 magnet:?xt=urn:btih:B693A8C0E725F5C42126C3A9CB0ECB5103385E5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:B693A8C0E725F5C42126C3A9CB0ECB5103385E5F
 magnet:?xt=urn:btih:7B44E24DD50CD3DCB67D8E9336F6D52956802E03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:7B44E24DD50CD3DCB67D8E9336F6D52956802E03
 ```bash
 magnet:?xt=urn:btih:A0AF57218B4F74DB5552C0247E554DFDD3C1D925
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ IsMyLcdOK - небольшая бесплатная программа для о
 magnet:?xt=urn:btih:396D2D9BB0D9EB7259E3AAF829EC9ACCDD7B307F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Hotline Miami 2: Wrong Number — это брутальное завершени
 ```bash
 magnet:?xt=urn:btih:07C92417CD6F5CE58671130BAEA89A0456D7B449
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:07C92417CD6F5CE58671130BAEA89A0456D7B449
 magnet:?xt=urn:btih:4D79D9F846EA6D9F47365731B4DE5148AB1752F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:4D79D9F846EA6D9F47365731B4DE5148AB1752F9
 magnet:?xt=urn:btih:6DE0D53927AE22526950A2863C79A301CDC2DBC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Dredge: Complete Edition (2023) [Switch] [EUR] 15.0.1, Atmosphere 1.4.1 [License
 ```bash
 magnet:?xt=urn:btih:681FD12F61F0E771F66EBF5AD72118C21214C10C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ Act&Create, Tasha Lumi | Всё, что тебе нужно знать для с
 magnet:?xt=urn:btih:C3262750837F018B70B26E005F5FCB4C78E35AED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ Ui Kits - UI8 - Lumine - Minimalistic Brand Guidelines [FIG]
 ```bash
 magnet:?xt=urn:btih:3E0D23FF77C40DE028368EDBBEAAD3A43693E712
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:3E0D23FF77C40DE028368EDBBEAAD3A43693E712
 magnet:?xt=urn:btih:BC3FE382A70FBA9AA7B79F0B9225E17C07E39CE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ Totally Accurate Battle Simulator - сумасшедшая тактическа�
 ```bash
 magnet:?xt=urn:btih:02CA1EFF42AE2C301E0EA65DAB100865D119307A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ VueScan - программа предназначена для замены ст
 magnet:?xt=urn:btih:A74BCEE874CA6DB482F7C6A247EDC24529624D37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ Kingdom's Deck (2025) [Ru/Multi] (1.1.3) Repack seleZen
 magnet:?xt=urn:btih:622EF34317D7BA646ED9A5DCC3D53E0E64AE522F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:41E8FDEABA75E57EC763E10DD0AAB7EBE8A116CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

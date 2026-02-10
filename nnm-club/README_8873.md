@@ -22,6 +22,8 @@ Steve Lacy - More Monk (1989) 1991, Soul Note [FLAC|Lossless|tracks + .cue] <Ava
 magnet:?xt=urn:btih:33670637700528D6F778EDA81A3E8CD27759ED16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Lou Levy - By Myself (1993) 1995, Verve [FLAC|Lossless|tracks + .cue] <Cool, Pia
 ```bash
 magnet:?xt=urn:btih:C90E57A2DB28A2AA1118C1D346F2568ED68392BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:C90E57A2DB28A2AA1118C1D346F2568ED68392BD
 magnet:?xt=urn:btih:E00850A7F70A271809620AD9C47D35C909A8B4F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Floris Kappeyne Trio - Interchange (2017) Challenge Records [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:3B0B7F3DD66729733641679124B171E5F4A18329
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:3B0B7F3DD66729733641679124B171E5F4A18329
 magnet:?xt=urn:btih:505BF2F54ADBD7D8B190D3EEE9C26CA4DDE8D3ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ magnet:?xt=urn:btih:505BF2F54ADBD7D8B190D3EEE9C26CA4DDE8D3ED
 ```bash
 magnet:?xt=urn:btih:742A6B10792A5610B44ECDC07A53856B44946ED4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -183,6 +195,8 @@ magnet:?xt=urn:btih:742A6B10792A5610B44ECDC07A53856B44946ED4
 magnet:?xt=urn:btih:B1BE284632829EB1C7716425592CB1173FB28EB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -209,6 +223,8 @@ magnet:?xt=urn:btih:B1BE284632829EB1C7716425592CB1173FB28EB7
 ```bash
 magnet:?xt=urn:btih:BDDF5F6999B725298D650C817D23016A071E4585
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +253,8 @@ magnet:?xt=urn:btih:BDDF5F6999B725298D650C817D23016A071E4585
 magnet:?xt=urn:btih:63765D456DF0178BF6B62375359F3DF943F315AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +281,8 @@ magnet:?xt=urn:btih:63765D456DF0178BF6B62375359F3DF943F315AD
 ```bash
 magnet:?xt=urn:btih:1AB25A2F14B0B422141077DA819FBCAEE0E0E68F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +311,8 @@ magnet:?xt=urn:btih:1AB25A2F14B0B422141077DA819FBCAEE0E0E68F
 magnet:?xt=urn:btih:15CB8FA500E67909B235750963898981C3CE1EE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ magnet:?xt=urn:btih:15CB8FA500E67909B235750963898981C3CE1EE5
 magnet:?xt=urn:btih:99C3F93B424B4373050516C5959C495FCD8B3B68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ magnet:?xt=urn:btih:99C3F93B424B4373050516C5959C495FCD8B3B68
 ```bash
 magnet:?xt=urn:btih:33B54D1C5454F0665EB1D071015A2F362ECCE744
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +394,8 @@ magnet:?xt=urn:btih:33B54D1C5454F0665EB1D071015A2F362ECCE744
 magnet:?xt=urn:btih:CD36CB3DB5B94482003676EC6ACB361788CFCA22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +421,8 @@ magnet:?xt=urn:btih:CD36CB3DB5B94482003676EC6ACB361788CFCA22
 ```bash
 magnet:?xt=urn:btih:C6FC3D0B6C5DF5EEB1212600E4EC86969B3E29DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +451,8 @@ Sonny Black - Heart And Soul (2015) [MP3|320 Kbps] <Blues, Jazz>
 magnet:?xt=urn:btih:0E73A0461F7AA3F23146DB44255A1D83CEF10FF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +476,8 @@ Translate Tab 2.0.8 [En]
 ```bash
 magnet:?xt=urn:btih:780ACF300815F915D9967B46625467061D61EF6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +506,8 @@ magnet:?xt=urn:btih:780ACF300815F915D9967B46625467061D61EF6C
 magnet:?xt=urn:btih:894CD7A5C20570ABE2F9B12EA216A5ACC0CAD780
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +535,8 @@ Lapalux - Amnioverse (2019) Brainfeeder [FLAC|Lossless|tracks+.cue] <Ambient, ID
 magnet:?xt=urn:btih:B7A8C55CA6B5FBAF9C761272A3C45CE480F5FEFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +561,8 @@ magnet:?xt=urn:btih:B7A8C55CA6B5FBAF9C761272A3C45CE480F5FEFA
 magnet:?xt=urn:btih:801A18A01C84C649AB5F6CAEF9D30C64275D1194
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +586,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:54060AAF9A321A3591CB0E7D92E253567C6000BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +614,8 @@ magnet:?xt=urn:btih:54060AAF9A321A3591CB0E7D92E253567C6000BA
 magnet:?xt=urn:btih:52817291A2D86A79AEDDE930A1FC341965B13F9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +639,8 @@ magnet:?xt=urn:btih:52817291A2D86A79AEDDE930A1FC341965B13F9A
 ```bash
 magnet:?xt=urn:btih:BA9E8E1E6BF7163FA8DF26110B0006E82D6563A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +666,8 @@ magnet:?xt=urn:btih:BA9E8E1E6BF7163FA8DF26110B0006E82D6563A6
 magnet:?xt=urn:btih:A92C11FD43FFF015CB13B22CA312A435DCB5BABA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +692,8 @@ magnet:?xt=urn:btih:A92C11FD43FFF015CB13B22CA312A435DCB5BABA
 magnet:?xt=urn:btih:BF9152DA3DFB5F11C2CE6134972F264CF6F658F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +717,8 @@ Opera 65.0.3467.38 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5BBDAF4ADBBF1B483081CFCEDF0DC49A7DB3AB2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

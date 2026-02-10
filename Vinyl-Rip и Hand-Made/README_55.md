@@ -22,6 +22,8 @@ B1 No Escape From Now(   Читать дальше...   )Жанр: Heavy MetalП
 magnet:?xt=urn:btih:AC930CB49178CE821FAA5917B03CB286D01ABE26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ A4 Ticket To The Moon(   Читать дальше...   )Жанр: Synth-pop, Sy
 ```bash
 magnet:?xt=urn:btih:F787043A0FC2CB2B0C08B19421C4317098EA5DB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ AC/DC  — австралийская рок-группа, сформирова�
 magnet:?xt=urn:btih:7B244C7F29869C1B9F72CAA8D9CD2C49EEF44573
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Eleine - шведская метал-группа, образованная в 2
 ```bash
 magnet:?xt=urn:btih:6E5CAD9E055657ADBC21805EB2D811DF9AF0DEE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +139,8 @@ A4	Louise(   Читать дальше...   )Жанр: Pop Rock, Classic RockП�
 magnet:?xt=urn:btih:EDE1ED0C9C05634CFAF60E03361524E05D29FEE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ Slipknot — американская ню-метал-группа, образо
 ```bash
 magnet:?xt=urn:btih:1050291E06C2252D8BA123877438EB18260F506E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +197,8 @@ Side A:
 magnet:?xt=urn:btih:5929F34C01947677489C02587F85081084710E76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ A4 Жасмин(   Читать дальше...   )Жанр: Pop RockПродо�
 ```bash
 magnet:?xt=urn:btih:F54016146C4B7B40ACA8DA37774976200B0234EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +256,8 @@ Immortal — блэк-метал-группа из Норвегии. Колле�
 magnet:?xt=urn:btih:504D540E874F75669070C2045EE6AB1C902C5D72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +284,8 @@ A4 Fat Bottomed Girls(   Читать дальше...   )Жанр: Classic Rock�
 ```bash
 magnet:?xt=urn:btih:6D7A6F02FA2D385BE5FCA924FA8301394EB6752E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +314,8 @@ A4 Michael Bolton - How Am I Supposed To Live Without You(   Читать дал
 magnet:?xt=urn:btih:1E9F590C921E9D61B07375F29E70216C75049BAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +343,8 @@ A3 Ken Boothe – Everything I Own(   Читать дальше...   )Жанр: 
 magnet:?xt=urn:btih:0A84CF59998A6BABC00C21E7C4A63BA5802AECB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +371,8 @@ A4 Black Boys On Mopeds(   Читать дальше...   )Жанр: Alternative
 ```bash
 magnet:?xt=urn:btih:E4683C0CCB354E4FACD74B1C635CD638EF8B49EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +402,8 @@ Megadeth — американская трэш-метал-группа из го
 magnet:?xt=urn:btih:84A6F9A9D23BA243BA5709BF7CC33F62DA0379A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +432,8 @@ Blackmore’s Night — фолк-рок-группа, основанная в 19
 magnet:?xt=urn:btih:C053294091A78AD79E78FAEA3F3D23B502A1EB28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +460,8 @@ A4 Drifters - Hello Happiness(   Читать дальше...   )Жанр: Pop R
 ```bash
 magnet:?xt=urn:btih:23BBC4E9ACA3EF0514DC61B52F614085D892AE85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +490,8 @@ A4 Roger Whittaker - Dirty Old Town(   Читать дальше...   )Жанр:
 magnet:?xt=urn:btih:FAD8D4E54EAE979C637F7A47C69564A37CD4CC0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +518,8 @@ Bloodbound — шведская метал-группа, сочетающая в
 ```bash
 magnet:?xt=urn:btih:DF9B50B56DEB4A690E67CDD03026A7F0B104D125
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +548,8 @@ Azul Y Negro - Digital (1983)  [FLAC|2.0 24/192|image (Vinyl-Rip)<Electronic>
 magnet:?xt=urn:btih:8D4BD9E87949CE71FE289F047EAF16A076B29EF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +576,8 @@ VA - Танцуем Без Перерыва (1973) [FLAC 2.0|192/24|image +.cue|
 ```bash
 magnet:?xt=urn:btih:484377A9E695C9E0DEAD36036F3A1CB9490D33BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +606,8 @@ magnet:?xt=urn:btih:484377A9E695C9E0DEAD36036F3A1CB9490D33BB
 magnet:?xt=urn:btih:C02762DD7A2E305447501C9C4AA8D425D81B0BD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +634,8 @@ A4 Танцевали Пары(   Читать дальше...   )Жанр: Lati
 ```bash
 magnet:?xt=urn:btih:E57C4B6B7ECC3820126283DEC211B08B454D5722
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +664,8 @@ A4 Сцена прощания(   Читать дальше...   )Жанр: Rock
 magnet:?xt=urn:btih:9EFF4AC77BF50A3704E82B84B4F0FB9D6C5FCD82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +692,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:50A56115793206BD7460245434412BB5EC6706E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -674,6 +722,8 @@ magnet:?xt=urn:btih:50A56115793206BD7460245434412BB5EC6706E1
 magnet:?xt=urn:btih:D080BC1187730DE3931B2E38C72E2E47942B736B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +747,8 @@ Bathory — шведская группа, внёсшая значительны
 ```bash
 magnet:?xt=urn:btih:407B5A3C6067B04B9BFBA040B26DADB14FCF09C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

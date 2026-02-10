@@ -21,6 +21,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:AC9476B24052076BFA736B947C6DDA7614360FAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 22.04.2023) [Ru]
 ```bash
 magnet:?xt=urn:btih:7193072AEFF0D1C265C86FE25C0DC6BAB85285CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ RegCool 1.334 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:46E89ACBB4C3D5C959EC8A6476F52D9FC9A976E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ nakst - Apricot Hybrid Synth 1.1.0 (FL Studio Native) [En]
 ```bash
 magnet:?xt=urn:btih:C9101046C034DF80627FA79C0D8FB0E803D1360D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ FastFlix - это простой и дружественный графичес�
 magnet:?xt=urn:btih:C5473F30204DFBDA0FEC536484CE70E867AD32E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Skype - бесплатная программа для текстового, г�
 ```bash
 magnet:?xt=urn:btih:33F3901552145BC0A2E3BDEC33C388E3A19B2896
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ uDock 3.7 [En]
 magnet:?xt=urn:btih:2DF88BFE16B4ED463F03E7421E4949FCA153DF60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Skype предназначен для личного и делового общ�
 ```bash
 magnet:?xt=urn:btih:FF8247F6F0D44B3FB785A87A6C399BB3FAE45548
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 magnet:?xt=urn:btih:641BEC8D8E562347EFB3C9A9359C8CC33C94D106
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ PeaZip — бесплатный архиватор и графическая о�
 ```bash
 magnet:?xt=urn:btih:9739B6872073439C885A6BE2EC8AB5DEAF0F6A92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ BurnAware - относительно небольшая мощная и прос
 magnet:?xt=urn:btih:EA26BAC60E46770F13E41343D2679822DC9D7462
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 magnet:?xt=urn:btih:F92F6B7082A215E747BE9444526D7778EFD388BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ P11 Abyss - это аудио компрессор-хамелеон, котор�
 ```bash
 magnet:?xt=urn:btih:A377AA3416D77A71241B2879A6509CA6C04DA986
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ BoFuri: Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu. 2 | 
 magnet:?xt=urn:btih:EC7498761EC3B365B81E83FBB77AADB3AB38C5B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:EC7498761EC3B365B81E83FBB77AADB3AB38C5B4
 magnet:?xt=urn:btih:884506D510C8C1222129E80CFE73F6593C93CB83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Infuse - прекрасный способ смотреть практическ
 ```bash
 magnet:?xt=urn:btih:3DD45453A3BA00C9F583180A0B4F366FD13728C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ PDF Expert - редактор  PDF. Быстрый, мощный и незаме
 magnet:?xt=urn:btih:DB4BDD8015C95B08A396D04720B9E4765DA70425
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 magnet:?xt=urn:btih:73A46CB19C357E8E9F0401F3939886FEFCAE84EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:ECB73F1D0BC55BC9BDF9981636B87A2370005C5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Text Edit Plus — это простой, но мощный текстовый �
 magnet:?xt=urn:btih:688A11BA64239815FC573A848A80BE1E578D0A1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Viber для Windows позволяет бесплатно отправлять 
 magnet:?xt=urn:btih:91B1000CE9FFB69DBB97446C705AC38BFC7EFBA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ BELOFF 2023.04
 ```bash
 magnet:?xt=urn:btih:D33A17E3A65567DA1B54D8B1F275D6AC6A040EC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ ru_windows_7_enterprise_with_sp1_x64_dvd_u_677671
 magnet:?xt=urn:btih:F3B57C15590B55CB9B473469E54C43BA7C22AACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ StaxRip - инструмент для кодирования видео "все-
 ```bash
 magnet:?xt=urn:btih:AC4D7A6B4D32616E3BB2A36BA926A89CC5BC8CA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 magnet:?xt=urn:btih:92CC67B0CF7CDD044604D21F8695B5BD7EA68AF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:E62BB58AFD17CA26543F6112E38CAB71E95B61FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

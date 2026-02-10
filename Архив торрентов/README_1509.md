@@ -19,6 +19,8 @@ Icecream Video Editor - простой редактор видео для Window
 magnet:?xt=urn:btih:7511390654759285A3546625C5E9C6B8558D1AC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:7511390654759285A3546625C5E9C6B8558D1AC0
 magnet:?xt=urn:btih:4003798594EEFC324C8790614A9F3882B815AE1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:9FE60D8D5AD992C9CA2C2751BCA1E339D68385A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ EssentialPIM - это отмеченное различными наградам
 magnet:?xt=urn:btih:5AB7DF1F6DC93B25A0D90C3A8E4970EA9CDB237D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:1446271CE38E2DC78522CD1633ABACD3E51BB977
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Final Cut Pro X включает основные функции аудиомо�
 magnet:?xt=urn:btih:41DDAAAB70FC4E3AB62F2C3316A9417676CCE7EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:489B5B0F3512E247248C29E7BF8895D97B8046FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ MobaXterm - это комплекс утилит, в котором есть в�
 magnet:?xt=urn:btih:F84043FDB1673BA174C509621D9298150BA308EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:D055327127132E0412C53CAE21BCFD18341668B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Quick CPU — это приложение, разработанное для т�
 magnet:?xt=urn:btih:A05584B25DD4075E88E345CE942026EBBD09CB90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ MediaHuman YouTube Downloader 3.9.9.79 (3101) RePack (& Portable) by TryRooM [Mu
 ```bash
 magnet:?xt=urn:btih:1D7874BBC5206DDC750F807F67D6CF5377431A20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ MediaHuman YouTube Downloader 3.9.9.84 (2007) RePack (& Portable) by elchupacabr
 magnet:?xt=urn:btih:BC575A14798BC6B2C524F04FA204A5FA372992C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Pixologic ZBrush - программа для трёхмерного модели
 ```bash
 magnet:?xt=urn:btih:C3726A1DB77FB48165EC5B4A88908E51FBF4BE7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ R-Studio Network 9.2 Build 191126 RePack (& portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:6BB1072680A2F3D8E65DAB8CE85E5ED23A766163
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Tablacus Explorer - удобный в работе и простой в испо
 ```bash
 magnet:?xt=urn:btih:20E701EEAEE5BAA7D779C5E87511B5F82E57F689
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:BB6289D83CD14F13CCCE5022D9F7176DAA3E17E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Mozilla Thunderbird –  легкая и безопасная бесплатна
 magnet:?xt=urn:btih:1B50C99897E8E3B61F1F1135DB4DE159EDECDFA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Volume2 — альтернативный регулятор громкости, 
 ```bash
 magnet:?xt=urn:btih:1F5740E105E39BD822E9996DB7A193AB69E6111C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Multi Commander - мощный многооконный менеджер фай�
 magnet:?xt=urn:btih:869E45E554B02D6C6245FE674A83FAD1BCCAA190
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Adobe Animate, пришедший на смену Flash Professional - это м
 ```bash
 magnet:?xt=urn:btih:CCC978C6D3CE5604481565B73559226D60F8F5DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ WhatsApp Messenger - кроссплатформенный мобильный м�
 magnet:?xt=urn:btih:7124A0756D3A1F5AA922B3340E76CD488A735B25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ MX Player — видеоплеер для Android с поддержкой огр
 ```bash
 magnet:?xt=urn:btih:384F821C3E18C240851FE846CB42AB6DB72FBA22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ MEmu позволит играть в любимые игры на персон�
 magnet:?xt=urn:btih:5FBE02A5FBCB1CEF443B46EA915553FE35913D27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Red Button – это мощная утилита для оптимизации 
 ```bash
 magnet:?xt=urn:btih:DD732B1F46F5B9125D452A5054229C0E70ED3D09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Macrorit Disk Scanner Unlimited - инструмент для проверки �
 magnet:?xt=urn:btih:CDE8DDDFAAD56AD6A89852FB24A685D48897C5D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ App Builder позволяет создавать приложения для с
 ```bash
 magnet:?xt=urn:btih:D94EB0746161AD83CB740E132CCE16A541E2D46D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

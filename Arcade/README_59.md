@@ -19,6 +19,8 @@ Pumpkin Jack — это дикая, но симпатичная 3D-игра, в 
 magnet:?xt=urn:btih:A32432323E73633C18E2ED36B27CACED77A430EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Punch A Bunch – аркадный симулятор бокса, в котор�
 ```bash
 magnet:?xt=urn:btih:87248BAD67CE71918B882300D643E2EF349A6035
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ WHALIEN - это короткое приключение, сосредоточе
 magnet:?xt=urn:btih:822038326D6730A1B9D65E86F5EDB72DE9523F9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Spirit and the Mouse (2022) [Multi] (1.2c) License GOG
 ```bash
 magnet:?xt=urn:btih:8E413CDDED22B6B89A32EAD2646C82BBC296C741
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Adventures of Chris (2020) [Ru/Multi] (1.4) License GOG
 magnet:?xt=urn:btih:AFE229AD67E24E7F38F0E00E512571AE555E8AE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Exit the Gungeon повествует о небольшом аркадном п�
 ```bash
 magnet:?xt=urn:btih:469D4C3C51439FB3FCCD09300D9FAE2FDA4707C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Portal - Игра от Valve для одного игрока. Portal, дейс�
 magnet:?xt=urn:btih:9FA8A8C2D3E08DBE8F5E81D48528F7C5961FE8C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Sapo 3D - классический трёхмерный платформер с 
 ```bash
 magnet:?xt=urn:btih:EDF1A89142D88920008362ECC4A06E590B13631C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Outshine (2022) [Ru/Multi] (0.24.3) License GOG
 magnet:?xt=urn:btih:CE60A166B6E2555E993F3ECE07202FC6AD958A1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ GigaBash - приключенческая игра про огромных мо�
 ```bash
 magnet:?xt=urn:btih:D9D0A07FEFF1443F1735BA8F83D29E3B10DC3663
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Egging On - суровое испытание, где каждое неверн�
 magnet:?xt=urn:btih:564E2B4752FB9576430296E047E28FCEF00E53BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ My Little Puppy (2025) [Ru/Multi] (1.0.2517.124175) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0EBB182122A4D9C1D6C7397DD1C4960033E20347
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Biped 2 – это продолжение увлекательной игры о
 magnet:?xt=urn:btih:7E8D3C629802E68C47CAD33A8DFBC152C51A883F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Biped 2 – это продолжение увлекательной игры о
 ```bash
 magnet:?xt=urn:btih:276EBC90F83B232666C1F5D5D0EE5ADABD0374F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Poly Bridge 3 - игра-головоломка, которая заключае
 magnet:?xt=urn:btih:50F47D5DB10193B1301A07490F89939D54387C9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ River City Girls (2019) [Ru/Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:016EB4A7FC60F4ED2C2D292ADC1859730B23A198
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Ammo and Oxygen (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:B8F925F87F37925D9C8473FDBB60A5C00C6CF310
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Garfield Kart 2: All You Can Drift (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:ED9D5AB00973CB632B7C027FF045E584E7746250
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ LEGO Voyagers (2025) [Ru/Multi] (1.0.6) Repack FitGirl
 magnet:?xt=urn:btih:4E7C09F98D7F76B91E9F180D67E0CA0BE1260A6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ LEGO Voyagers (2025) [Ru/Multi] (1.0.6) Scene Rune
 ```bash
 magnet:?xt=urn:btih:054EFD5B907806D310BFE01AEAC451C0635021E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ LEGO Voyagers (2025) [Ru/Multi] (build 19911812) Repack seleZen
 magnet:?xt=urn:btih:511AD289D49326D5471531B19CF088B58E784627
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Basingstoke – приключенческий экшен-рогалик с эл
 ```bash
 magnet:?xt=urn:btih:6AF59D83BE400B8BBB38C3DEA2F8C4F6CE5916BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Dragon Ball FighterZ – эпичный, яркий, динамичный и н�
 magnet:?xt=urn:btih:CDF31CDE367E8BBBD17A44253954185557ACB058
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Aaero2 (2024) [Ru/Multi] (1.52) License GOG [Black Razor Edition]
 ```bash
 magnet:?xt=urn:btih:E8E31883CE9D747BE33E782EE2DFC00C673BC54D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Speedball 2 HD - это современное воплощение класси
 magnet:?xt=urn:btih:D1014214274C4C1FDA689568F80EEEA84F81FF29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Escape from Lavender Island (2023) [En] (1.2c) License GOG
 ```bash
 magnet:?xt=urn:btih:4CE827B655A7AC79321A49C8B81C215023753076
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

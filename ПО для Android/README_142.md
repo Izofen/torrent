@@ -19,6 +19,8 @@ AI Photo Editor Pro - Polish v1.711.245 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:3C51938355DDBB5696930A24BB3DCD7548DBDC7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MX Player Pro v1.93.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:091E1539D8DCDACCF0365FCA2B38F1B4BA0AD4D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:091E1539D8DCDACCF0365FCA2B38F1B4BA0AD4D7
 magnet:?xt=urn:btih:2C1038187E47CF46B941F13464A8A4C2BC5C4D60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:2C1038187E47CF46B941F13464A8A4C2BC5C4D60
 ```bash
 magnet:?xt=urn:btih:D8B1FC6B08FED31B5921376E65E0ACE2838DD1FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ USB Camera Pro v11.9.0 Mod by ApplicazioniCR [Ru/Multi]
 magnet:?xt=urn:btih:31F0DCD86CE8265B9B807F8EFF7CC030C97AD2A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:31F0DCD86CE8265B9B807F8EFF7CC030C97AD2A4
 ```bash
 magnet:?xt=urn:btih:99E1838088568B253578563DF84F72AE2C1A6678
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Win 11 Launcher v9.33 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:AF8CCDD7DF7C3E94004D0B46D94C3802560334EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ```bash
 magnet:?xt=urn:btih:69AF92CE6C92AE5CC760B51217744CE6153AE8D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ FitAI имеет базу данных из более чем 3900 упражн�
 magnet:?xt=urn:btih:A7F16A8729117B99A9BE96B823F07CD3AE15E975
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:D6C16AC0B2E7EF66C44C4E8BF7E4E46362F3B27D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ DjVu Reader & Viewer (читалка дежавю на русском языке
 ```bash
 magnet:?xt=urn:btih:87A52D4763C0EC06102FDE85647F2A13F85C0A8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Solid Explorer - это приложение для управления фай�
 magnet:?xt=urn:btih:B2D7BD7E27FD87144B433609078BD627A8691F44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Eatr・Здоровые рецепты v2.11.1 Mod by vadj [Ru]
 ```bash
 magnet:?xt=urn:btih:CFA813CD8C7F5C7B87F8E854B192D81F08BE625B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 magnet:?xt=urn:btih:4B0BB378874AC46CC91EF595B0DA716170527192
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ NewPipe v0.28.1 Free + Mod by Alex.Strannik  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:ACC1664F2ACAC900809AADFC478DAA4C5ADE480F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ NewPipe x SponsorBlock x Return YouTube Dislike v0.28.1 Mod by baalajimaestro  [
 magnet:?xt=urn:btih:5C54D79964CB4D4A7D4147391D8ABD8AE41BD551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:5C54D79964CB4D4A7D4147391D8ABD8AE41BD551
 ```bash
 magnet:?xt=urn:btih:FBF10793BB7B53FCA0EEE824EAF2D805D18C8B83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:FBF10793BB7B53FCA0EEE824EAF2D805D18C8B83
 magnet:?xt=urn:btih:F8D700E74C3052A6759449434D012A3E7538DA6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Electrical Calculations Pro / Электрические расчеты v11.0.4 
 ```bash
 magnet:?xt=urn:btih:072BC1BEB3772F0B87E750ACC3C98C08CB83525B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ AR Plan 3D – инновационное приложение, использу
 magnet:?xt=urn:btih:AA11878E07D2EAF2777F02E587AF61B8DB8AB908
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ ARuler - лучшее и бесплатное приложение на Android 
 ```bash
 magnet:?xt=urn:btih:4FBE042958BBE9CC73977EDB5CF432301647769F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Photo Editor - уникальная программа для обработки
 magnet:?xt=urn:btih:9F43CD1A1AA7E296647EA4E74524FF78B4AD3AB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Electrical Cost / Стоимость электроэнергии v6.1.7 Mod by 
 ```bash
 magnet:?xt=urn:btih:30E732F91C812BBB24AE4B0A7D84ABD6E9C9A09D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Solid Explorer - это приложение для управления фай�
 magnet:?xt=urn:btih:832286F5F6426B8A4F2CDC58DDE3DBCA78928FBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 magnet:?xt=urn:btih:93E9EA947A47B1018C0456E3095D47ADC5F8C06E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Screen Mirroring - TV Miracast v4.0.0.221 Mod by vadj [En]
 ```bash
 magnet:?xt=urn:btih:D8313B0FB563083142F4066FBA3CE074EA78FA8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

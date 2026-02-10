@@ -20,6 +20,8 @@ Adobe Illustrator — это принятое в качестве отрасле
 magnet:?xt=urn:btih:2E919DABBD673D6FA9F7DD9C4ECF44D47A2B8EBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ PreSonus Studio One — Полноценный секвенсор(DAW) для с
 ```bash
 magnet:?xt=urn:btih:E58BD43DFFE4B4AD7B263BC5464ED45AC7B3F7A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Steinberg - Cubase Pro 14 14.0.40 [Multi/Ru]
 magnet:?xt=urn:btih:B6AE6327476C50366A37BFE9BCFB1776DA58C4A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ foobar2000 - это аудиоплеер, подкупающий своим ве
 ```bash
 magnet:?xt=urn:btih:D0DC8CC9E18DDB2496953BEECCEA28227AF288F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ BeeConverter Pro 2025 3.2.0 [Multi]
 magnet:?xt=urn:btih:6C977A8E6409625D1BE38FFA1A27CEEE6B79EB01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Zoom Player - мощный, гибкий и настраиваемый DVD/Blu-r
 ```bash
 magnet:?xt=urn:btih:77D913A8A01F8F8FFFCB33E3766CDE8FD13DDC94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Adobe Bridge предоставит вам централизованный до
 magnet:?xt=urn:btih:09F19D3D0AC99FD919EBA16CFADDC82798C16B9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Adobe Substance 3D Sampler лежит в основе рабочего проц�
 ```bash
 magnet:?xt=urn:btih:2AC0468A8EE839D1612723FB606BD37044CBE844
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Arturia V Collection 9 9.1.0 STANDALONE, VSTi, VSTi3, AAX (x64) [En]
 magnet:?xt=urn:btih:48A38AB77441C041CA9ED803F710DBA0AA9FAE34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Terragen - мощная среда, которая в умелых руках п
 magnet:?xt=urn:btih:002233A206445342445F39F1CCF8ADF2133055D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:002233A206445342445F39F1CCF8ADF2133055D8
 ```bash
 magnet:?xt=urn:btih:9A1FBBF8FE57E05F913601A6A97C70794A72B9C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ PTE AV Studio Pro - дальнейшее развитие программы Pic
 magnet:?xt=urn:btih:498510E4BD0B97D9BAE0F640B10E733EE3ECDAED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ GeoSetter - программа, которая предназначена для
 magnet:?xt=urn:btih:F34DA760B60F7178EE18D80FC531E81580F1C150
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Icecream Image Resizer - программа для удобного и быст�
 magnet:?xt=urn:btih:A7E59085AAA83E81E2573732D52A6759D1F96E8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ ZebraDesigner Pro 3.2.2 Build 611 [Multi/Ru]
 magnet:?xt=urn:btih:6B5101C7BA4657FAADA83D2ED41A26D34FF8805A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Capture One PRO - один из лучших профессиональных к
 ```bash
 magnet:?xt=urn:btih:C02912BE842534EC1ADAE5B2245BA1D19C6C1085
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ Noiseware – плагин для Adobe Photoshop, предназначенны�
 magnet:?xt=urn:btih:D1A429F874576988A81D5FED381E462B8BFA1066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ Spectrasonics Keyscape — это экстраординарный виртуа�
 ```bash
 magnet:?xt=urn:btih:2EDCA8110EA394F10A99FAFEC63B55CBE001181D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ Free Video Editor - это бесплатная программа для ред
 magnet:?xt=urn:btih:C8A7AF30A5FFE2D4DEA18AD23839A330A332B20B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ DxO FilmPack – очередной редактор фотографий с к�
 magnet:?xt=urn:btih:0093868D4D106FCE7FAB8AAD8B2C9BDF47F86D54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ Avidemux - небольшой, простой редактор для работ
 ```bash
 magnet:?xt=urn:btih:5604235A5549423E3EEA1B18EDF45B5317849ED8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ SpeedTree является мощным инструментарием, испо
 magnet:?xt=urn:btih:A0FB97E7FEC296BA372A6C4F34547C88FCA3AFA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ magnet:?xt=urn:btih:A0FB97E7FEC296BA372A6C4F34547C88FCA3AFA3
 ```bash
 magnet:?xt=urn:btih:2BBC3985E9F5B6F242BD81C6222561CA08799169
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ Parametric - Ducky Verb 1.0.0 VST 3 (x64) RePack by MOCHA [En]
 magnet:?xt=urn:btih:91BDD362D4081DC881B23157084B562F79D27574
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ Electra 3 - это не только один из самых мощных си�
 magnet:?xt=urn:btih:E5CCCE822EAEABC2C106330947A2853E2695CC97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ Saurus 4 - синтезатор, основанный на технологии 
 ```bash
 magnet:?xt=urn:btih:53DEF4A0324E60E9054B349857E67186BE91E246
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

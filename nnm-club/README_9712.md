@@ -22,6 +22,8 @@ Salaryman - Bird In The City EP (2015) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:999EF4787A3FA96EB79727AE52C070DCD2856B40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Anth M & Msdos - Soul On Fire (2014) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:B34D681B1BDA53FEC1EB09440BD4898CD90212CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:B34D681B1BDA53FEC1EB09440BD4898CD90212CF
 ```bash
 magnet:?xt=urn:btih:7EDF4C16E192F0243D3A4D1B3DB643CA7BF59655
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ Bop - Remix Your Mind (2010) [MP3|320 кб/с]<Drum & Bass, IDM>
 magnet:?xt=urn:btih:5190E744216E26D8A44FDD7115448E91BF2EBA05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ Elvin Jones - Mr. Jones (1969/1972) 2013, EMI Music[FLAC|tracks+.cue]<Post-Bop, 
 magnet:?xt=urn:btih:059104766FC30E81ACE05C82659299FFCC81A0DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:059104766FC30E81ACE05C82659299FFCC81A0DC
 ```bash
 magnet:?xt=urn:btih:9F75E7D06EA4668BC29F51AC0F36D0B3AD543F5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:9F75E7D06EA4668BC29F51AC0F36D0B3AD543F5B
 magnet:?xt=urn:btih:65E41D6C1C9D0B4B00777BF95458F9321C69BA26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:65E41D6C1C9D0B4B00777BF95458F9321C69BA26
 ```bash
 magnet:?xt=urn:btih:5C71DB2EDFCC8EE8E0C070400E457A09185DC174
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:5C71DB2EDFCC8EE8E0C070400E457A09185DC174
 magnet:?xt=urn:btih:5D469021434C90523ABEC25E7852C91A1970F728
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:5D469021434C90523ABEC25E7852C91A1970F728
 magnet:?xt=urn:btih:BFFD58F408B522B33E70DA63BB48A47B6DF56348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:BFFD58F408B522B33E70DA63BB48A47B6DF56348
 ```bash
 magnet:?xt=urn:btih:6517EF17BC6CC1DE8D419261413463C46BF14D6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ KCleaner разработан для того, чтобы быть самым э
 magnet:?xt=urn:btih:A051299358D68A73CD91690076B0D857B31BA81D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:A051299358D68A73CD91690076B0D857B31BA81D
 ```bash
 magnet:?xt=urn:btih:A0F1A300602C8C58FE7679F7A7F5F2A1D5E1CE02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:A0F1A300602C8C58FE7679F7A7F5F2A1D5E1CE02
 magnet:?xt=urn:btih:A513CA668DF98960CDF981FDC19BD187FB792FC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:A513CA668DF98960CDF981FDC19BD187FB792FC3
 ```bash
 magnet:?xt=urn:btih:6670FAC842CCD3BA8BE6BCB3B585849D9C1D3DF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:6670FAC842CCD3BA8BE6BCB3B585849D9C1D3DF1
 magnet:?xt=urn:btih:5E68744C54310C85D70FFA084851841FBE041CF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:5E68744C54310C85D70FFA084851841FBE041CF4
 ```bash
 magnet:?xt=urn:btih:BC318340EF0FF1979FE2378B7F3F57AA9CF80353
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ AC/DC - Power Up (2020) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 magnet:?xt=urn:btih:116355C390BBACDCBEEA4349FCB1932226AA401D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:116355C390BBACDCBEEA4349FCB1932226AA401D
 ```bash
 magnet:?xt=urn:btih:3D2250FEF2EC3074B453734571D29ADB35693FA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:3D2250FEF2EC3074B453734571D29ADB35693FA5
 magnet:?xt=urn:btih:908FABFE84A670AB57D0001A512AC3F52F8D4E8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:908FABFE84A670AB57D0001A512AC3F52F8D4E8E
 ```bash
 magnet:?xt=urn:btih:F0A55FE9C84DA8014C6C8B5E9F97C5C02A819799
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:F0A55FE9C84DA8014C6C8B5E9F97C5C02A819799
 magnet:?xt=urn:btih:D503DF7F28DBAF04963AA3D466153CC02AC136EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:D503DF7F28DBAF04963AA3D466153CC02AC136EB
 ```bash
 magnet:?xt=urn:btih:DB0B5FD061A9FC75319BB3F4273649A880CAA659
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:DB0B5FD061A9FC75319BB3F4273649A880CAA659
 magnet:?xt=urn:btih:217B3BEAF5E897E0BB89990E83BDAA5152A33104
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:217B3BEAF5E897E0BB89990E83BDAA5152A33104
 ```bash
 magnet:?xt=urn:btih:B30B1792721DC397E0CA2AD9CBD13D6717E00668
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +691,8 @@ Depeche Mode - Songs of Faith and Devotion - The 12" Singles (2020) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:1A3DE926F6B000A60D3B2FD6C673F961651F948B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

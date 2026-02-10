@@ -22,6 +22,8 @@ VA - Melodica Electronica Vol.1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House
 magnet:?xt=urn:btih:BFE018AB1621EC44685F60787E8521A1FAEBFB20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Cafe Bhutan (2020) Avatar Records [FLAC|Lossless|WEB-DL|tracks] <Psychill, 
 ```bash
 magnet:?xt=urn:btih:EB459A948459A6935D355BD325AC0DAA4F8CAED0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Electro Housearrest Of ADE (2016) [MP3|320 Kbps] <Progressive House>
 magnet:?xt=urn:btih:5461C6B9CEDCF1CCC465A5850BD88C9EC1BC270B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Midnight Man: Tribute to Songs and Sounds of Michael Cretu (2020) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:FDAB2210F7F4E26533B5A5B614607F57F9F06B52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Runaway Droid - LIGHTYEARS (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retr
 magnet:?xt=urn:btih:547D85F53D1AA19A4045439BCDCC3657B3813DBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Out To City 3.1 / Выход В Город 3.1 (2005) Салон АВ [FLAC
 ```bash
 magnet:?xt=urn:btih:9CA0289094337184F6E324939D05A9F11E544417
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Out To City Two / Выход В Город Два (2001) ChebuRec [FLAC|Los
 magnet:?xt=urn:btih:6E2446899B3507097C06D4A961110FD8E4900B1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Out To City 3 / Выход В Город 3 (2004) ChebuRec [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:7F778484EEC69D77BBF51FF95A35B6468A13DC22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +260,8 @@ VA - DJ Antoine - Stop (2008) [MP3|~190 кб/с (V2)]<Electro House, House>
 magnet:?xt=urn:btih:EFE35F1F095F73CC9A8484F1488AE93445E9FA2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +294,8 @@ DJ Грув - Я верю (2011) [MP3|320 kbps]<Progressive House, Electro House
 ```bash
 magnet:?xt=urn:btih:DB32FEE49481390CC12CED9A290512E575938180
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +330,8 @@ VA - DJ Antoine - Live In Bangkok (2008) [MP3|~190 кб/с (V2)]<Electro House /
 magnet:?xt=urn:btih:879645B879D43D5DFC777C5E8C3E8D3AE09D6A98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +358,8 @@ Daft Punk - Alive 2007 (2007) [FLAC|Lossless|tracks] <French House, House>
 ```bash
 magnet:?xt=urn:btih:051D8597B1E56E1F9255A1C30E887CAB9F8933EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +388,8 @@ Cosmic Armchair - Contact (2017) [MP3|320 Kbps] <Electronic, Synth-pop>
 magnet:?xt=urn:btih:4695889DF3C73C24BADC464A8714AECBFB7E78AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +414,8 @@ Ultra SKM - Radioactivity (2019) [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance
 ```bash
 magnet:?xt=urn:btih:C1F890E70C23320A6E1BF37AE83A7EE167046BE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +444,8 @@ magnet:?xt=urn:btih:C1F890E70C23320A6E1BF37AE83A7EE167046BE4
 magnet:?xt=urn:btih:7369574DBCFBFAD993351380C601D64EBD657950
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +472,8 @@ VA - Chillout King Ibiza - Aperitivo Del Mar - Sunset & House Grooves Deluxe (20
 ```bash
 magnet:?xt=urn:btih:752CD7498C7715BBD954015E3BA7DE688B731A7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +502,8 @@ VA - Uplifting Month Of The Year VA (2017) [MP3|320 Kbps] <Uplifting Trance>
 magnet:?xt=urn:btih:CE97146F594A160E97AF4C6873584AA213F4199C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +530,8 @@ VA - Funky House Classics (2018) 4CD [FLAC|Lossless|image + .cue] <House>
 ```bash
 magnet:?xt=urn:btih:1733B0EABFF4E58A2EB4E34FEF98620BB6EB640F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +560,8 @@ Modd - Guron (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
 magnet:?xt=urn:btih:252BE3064391412C0B38F1A76961FFF484491C19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +588,8 @@ Mlada Fronta - Discography (1993-2018) [FLAC|Lossless|tracks+.cue, tracks]<Rhyth
 ```bash
 magnet:?xt=urn:btih:6449F59B633F6C9BA02E107FB288378BE557E514
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +618,8 @@ Sk'p - Discography 9 Releases (2010-2020) [FLAC|Lossless|WEB-DL|tracks] <IDM, Am
 magnet:?xt=urn:btih:AD14B30EF05819691F8D8FA4531E13E48CA68638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +646,8 @@ Swedish House Mafia - BBC Radio 1 Essential Mix (Ushuaia Beach Club Ibiza, Spain
 ```bash
 magnet:?xt=urn:btih:4ACE4267E480B8C63C5A12976E2D91F98E1A3AB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +676,8 @@ Vintage Culture - BBC Radio 1 Essential Mix (Hï Ibiza, Spain) (2022-07-30) [MP3
 magnet:?xt=urn:btih:0CAF2BF9090BCF7C872FCFA1043805C56D6E4746
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +704,8 @@ Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, Luminosity 
 ```bash
 magnet:?xt=urn:btih:8EB06957CAF90CEFBB4D88B5D73F969547FE660F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -686,6 +734,8 @@ KAAZE - Live @ Bali, Indonesia (2022-07-20) [MP3|320 Kbps] <Big Room>
 magnet:?xt=urn:btih:83E350BD3B31882964E0FEC0CDC6B4418B462642
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -712,6 +762,8 @@ Sopor Aeternus & The Ensemble Of Shadows - Mitternacht (2014) [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:121DC57D9A39A2D47C013E1639C892E1FEC579EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

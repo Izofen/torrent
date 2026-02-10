@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:387D12CA973B691FF3379CDF39A0D2FCF5EB6F41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:387D12CA973B691FF3379CDF39A0D2FCF5EB6F41
 ```bash
 magnet:?xt=urn:btih:C650539C00BE1C3FB918F7755354828B5F44E8A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Utawarerumono: Futari no Hakuoro / Прославленный: Два белых
 magnet:?xt=urn:btih:81F183AD685A4B2DEC1A9A7570E027C14928ECA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:81F183AD685A4B2DEC1A9A7570E027C14928ECA7
 ```bash
 magnet:?xt=urn:btih:CE9722E1A7F373A4BC479069B17936F96A04594A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:CE9722E1A7F373A4BC479069B17936F96A04594A
 magnet:?xt=urn:btih:DA03A8522404B55109BC133B2A03B41C136721A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ GUNHEAD (2023) [Multi] (1.2) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:28E93BFCB54AEB06CF1B406B9CADD07DC94463FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Domestika, Liya | Manga Illustration with Procreate (2023) WEB-DL [DE / RU Sub]
 magnet:?xt=urn:btih:DEFC5E405A5540749B5CD2716943BE42A0FAE407
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:DEFC5E405A5540749B5CD2716943BE42A0FAE407
 magnet:?xt=urn:btih:5741640F4943C42C33BAACE9F0ADFABFF2CDBEFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Space Tail: Every Journey Leads Home переносит юзеров в косм
 ```bash
 magnet:?xt=urn:btih:40139FDD271E55BC60E5C50E79AC6ADCD90CB32C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Find my kids – это приложение для родителей, кото
 magnet:?xt=urn:btih:2A009AC6FEDDE9953C1AAE2EA54BABE03F90FD8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:2A009AC6FEDDE9953C1AAE2EA54BABE03F90FD8F
 ```bash
 magnet:?xt=urn:btih:F7741323B9CDE565CFB5F7EAA483F83457BAB7BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ VA - Reflection Of A Dream (2023) [MP3|320 Kbps] <Progressive, Trance, Electro>
 magnet:?xt=urn:btih:0FC01BE87E9A3C3BDEF1BAAD771C7A6A63D971FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ VA - Techno Universe (2023) [MP3|320 Kbps] <Techno, Minimal, Electronic>
 magnet:?xt=urn:btih:DCC39A2DAFA398ED8697E2A756BF1060898C2987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:DCC39A2DAFA398ED8697E2A756BF1060898C2987
 ```bash
 magnet:?xt=urn:btih:06666DB286BC4B04DBCEA2A3EBFCDBFD17395EDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:06666DB286BC4B04DBCEA2A3EBFCDBFD17395EDD
 magnet:?xt=urn:btih:72C3C26C7E4A2E3521FAB3FE399C0135D9EC31E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ My TTS: Text-to-Speech v1.1.6 [En/Ru]
 ```bash
 magnet:?xt=urn:btih:5A8BF15D0B83A58B0FE5E9AE1F681C4204E3D012
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:5A8BF15D0B83A58B0FE5E9AE1F681C4204E3D012
 magnet:?xt=urn:btih:07F47AF0A6CBD253477292236A45A347E8A0B824
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:07F47AF0A6CBD253477292236A45A347E8A0B824
 ```bash
 magnet:?xt=urn:btih:72716D0EBB2270A8AC01D150DCD6F9DE3230EA01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ CGcircuit, Florian Girardot | Mastering Nuke Vol 1 – 10 (2021) WEB-DL [EN]
 magnet:?xt=urn:btih:65FF263EFAA2E36F8212042E346CC688DF9716F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ Plugin Alliance - All Bundle 2022 VST / VSTi, VST3 / VSTi3, AAX [En]
 ```bash
 magnet:?xt=urn:btih:117BDAD795B8B22883677444F0E763D02DEB0444
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:117BDAD795B8B22883677444F0E763D02DEB0444
 magnet:?xt=urn:btih:62189FE68CB60FC94610239EF3B79DE2487B789E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ magnet:?xt=urn:btih:62189FE68CB60FC94610239EF3B79DE2487B789E
 ```bash
 magnet:?xt=urn:btih:1AA0763900601D47F1FE8465DF55764B3D186F96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ Uzaki-chan wa Asobitai! Double | Uzaki-chan Wants to Hang Out! W | Узаки х
 magnet:?xt=urn:btih:89735D7DAB2321C24C97812095D24E9601CB1E80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:89735D7DAB2321C24C97812095D24E9601CB1E80
 magnet:?xt=urn:btih:662BEC28F50AF53922955C51180C8F654557CD24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:662BEC28F50AF53922955C51180C8F654557CD24
 magnet:?xt=urn:btih:98A19EF831B0FCCDEF11EE4B097ADE657C07D47E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ Bocchi the Rock! / Одинокий рокер! [2022, TV, 12] WEBRip 720p raw
 ```bash
 magnet:?xt=urn:btih:ECA0D4030D214B52927FECEA0AF88F29E36B5B04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

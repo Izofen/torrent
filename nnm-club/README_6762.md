@@ -22,6 +22,8 @@ Jean-Michel Jarre - OXYMORE (2022) 2CD [MP3|320 Kbps] <Electronic, Experimental>
 magnet:?xt=urn:btih:A3DE000CDA60B686B1CC7C351D0C0A3669ED6FFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:A3DE000CDA60B686B1CC7C351D0C0A3669ED6FFF
 ```bash
 magnet:?xt=urn:btih:D708101614AF7CFF73FFFAA359F9DB805F49F07C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Nik Collection by DxO – это наиболее полная коллекци�
 magnet:?xt=urn:btih:8D6337986388268EBCED9C26F02760E1C15810A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Sketch - это инструмент для векторного дизайна 
 ```bash
 magnet:?xt=urn:btih:5C82F7C3819C1F6A76B9C9210E45162F5F9813D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ MAGIX Vegas PRO — профессиональная программа для �
 magnet:?xt=urn:btih:9FE89819A23AC9589B05E2F58613EFD425B5BF91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Adobe InDesign — профессиональный продукт для про
 ```bash
 magnet:?xt=urn:btih:61BA606004F7F2388CAEA811DBBD65EC79125919
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:61BA606004F7F2388CAEA811DBBD65EC79125919
 magnet:?xt=urn:btih:0794F123ECAD29398CCA333B3740DF1E9CC07ED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Adobe Illustrator 2023 27.0.0.602 RePack by PooShock [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2F7FCEC7E7ED8C775B8990E1B1DFCEEB9B81E1DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Adobe Audition 2023 23.0.0.54 RePack by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:5584103E727081B6474AFC05DF275E353576374D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (20221017_1052/dlc) Repack DjDI
 magnet:?xt=urn:btih:7D756C67B3DC1FA12AEDF3BC0A8FEFD3C18BB410
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ We Happy Few - история шайки не слишком приятных, �
 ```bash
 magnet:?xt=urn:btih:C507FF8655B10F27194346D9C36C6CCB94F6B1D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ VA - The Orient Collective: Oriental Expedition (2023) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:546121FFCF0C4AE0DED798E7B9884EC7ED4018E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:546121FFCF0C4AE0DED798E7B9884EC7ED4018E3
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ VA - The Orient Collective: Echoes of the East (2023) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:0D13457E7D0FA5076B12457C66E91092975BA7D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:0D13457E7D0FA5076B12457C66E91092975BA7D3
 ```bash
 magnet:?xt=urn:btih:326EECAB978E6CB89E18A285880796A8D1E2B613
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ OneLoupe 5.71 Portable [Multi/Ru]
 magnet:?xt=urn:btih:CE4B677AF9498753C100F0AF469C297DFED86A07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:CE4B677AF9498753C100F0AF469C297DFED86A07
 ```bash
 magnet:?xt=urn:btih:8739E00590186690683255B142580832433A283D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ GetWindowText - маленькая и портативная программа,
 magnet:?xt=urn:btih:ED657D90972CBED1A283F8A42397ABCF14356673
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:ED657D90972CBED1A283F8A42397ABCF14356673
 ```bash
 magnet:?xt=urn:btih:81EB8C698F7803A906A7FC2B221F22340D78B4E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ ProcessKO 6.31 Portable [Multi/Ru]
 magnet:?xt=urn:btih:9AD312796199D00F00C9D0F4889A5543E141F28B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Boku dake ga Inai Machi | Erased | Город, в котором меня нет
 ```bash
 magnet:?xt=urn:btih:64FFAB89B6982158893F72FB19B862690AD3D7B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:64FFAB89B6982158893F72FB19B862690AD3D7B3
 magnet:?xt=urn:btih:32819F7173B34DE4B969E66C9FAB79751DE3B774
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:32819F7173B34DE4B969E66C9FAB79751DE3B774
 magnet:?xt=urn:btih:1CFECC616A0AF722EA43FE1CA66871B8C0250D73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:1CFECC616A0AF722EA43FE1CA66871B8C0250D73
 ```bash
 magnet:?xt=urn:btih:893CC27891F2B316174C475280A23636879F3B08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:93A71DCA4FC536459B220169B5CE839D849C8851
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Adobe Animate, пришедший на смену Flash Professional - это м
 ```bash
 magnet:?xt=urn:btih:5D0F26EB483E1DB3262D0E01D2AB031D371E9E9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

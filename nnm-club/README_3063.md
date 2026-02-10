@@ -28,6 +28,8 @@ CD1 (01:19:03)
 magnet:?xt=urn:btih:A42A11B4525C841B15915E7902B2A041956B53F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ Lana Lane - El Dorado Hotel (2012) [FLAC|Lossless]<Progressive Metal / Symphonic
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ VA - Prodвинутые Новинки Радиостанций 50\50(2012) [MP3
 magnet:?xt=urn:btih:D26F63ED3240ECB048B8A9A36D100B086451EFE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +129,8 @@ VA - Get Sexy vol.1 (2012)Год: 2012
 ```bash
 magnet:?xt=urn:btih:92B89A1F2E44A2D23DCB432D6D50A16CFE7AE008
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +165,8 @@ VA - Swedish House Album (2012) [MP3|~245 кб/с (V0)]<House>
 magnet:?xt=urn:btih:1513E762128A87881843EF7A86CA77F660D7C372
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +200,8 @@ Municipal Waste - The Fatal Feast (2012) [MP3|320 кб/с]<Thrash Metal>
 magnet:?xt=urn:btih:395F85C473A0A849F1035DE32A016BC0E233842E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +230,8 @@ magnet:?xt=urn:btih:395F85C473A0A849F1035DE32A016BC0E233842E
 magnet:?xt=urn:btih:6859C45D2067726973B43B01400ECF12678D34CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +256,8 @@ magnet:?xt=urn:btih:6859C45D2067726973B43B01400ECF12678D34CA
 magnet:?xt=urn:btih:5EF6C00A77D4F769E6D422DFA18DB1C939BE9C77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +281,8 @@ magnet:?xt=urn:btih:5EF6C00A77D4F769E6D422DFA18DB1C939BE9C77
 ```bash
 magnet:?xt=urn:btih:68FC7F58F2AE58EA866DB7C6B91A60B6E4ADAC9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +317,8 @@ Artёm Puchkoff&Sasha Fresh - Jam Sation vol.2 (2012) /2012, Resonanse Records/ 
 magnet:?xt=urn:btih:8CE2EFD7CCBC8A6465C9792EC1556E6171D19814
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +343,8 @@ magnet:?xt=urn:btih:8CE2EFD7CCBC8A6465C9792EC1556E6171D19814
 magnet:?xt=urn:btih:1B96C3F39B06F8C3BAC4CE71CC8FDAD127B1F3BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +368,8 @@ magnet:?xt=urn:btih:1B96C3F39B06F8C3BAC4CE71CC8FDAD127B1F3BC
 ```bash
 magnet:?xt=urn:btih:29E5EC75BB2A98220E8DA1EF706FC090C893F104
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +399,8 @@ magnet:?xt=urn:btih:29E5EC75BB2A98220E8DA1EF706FC090C893F104
 magnet:?xt=urn:btih:9A2052B36D2F8236A1E139C0FFB6A678DC02D69F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +429,8 @@ magnet:?xt=urn:btih:9A2052B36D2F8236A1E139C0FFB6A678DC02D69F
 magnet:?xt=urn:btih:FAE2196E7C7474FA0BBED9BDB17D0A141BF7C24A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +455,8 @@ magnet:?xt=urn:btih:FAE2196E7C7474FA0BBED9BDB17D0A141BF7C24A
 magnet:?xt=urn:btih:DD955C23F747D2902FE43C35FBB77C77B2AB78FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +480,8 @@ magnet:?xt=urn:btih:DD955C23F747D2902FE43C35FBB77C77B2AB78FC
 ```bash
 magnet:?xt=urn:btih:3468C7FACB8EACA0056A6D73D4CF71BCA75ECB2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +515,8 @@ VA - Beat Generation 2 (2009) [MP3|320 кб/с]<Psy-Prog>
 magnet:?xt=urn:btih:BA9B21410AF39BDF56CB8560775B8668ADF3977E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +544,8 @@ magnet:?xt=urn:btih:BA9B21410AF39BDF56CB8560775B8668ADF3977E
 ```bash
 magnet:?xt=urn:btih:0077C968A33B7AE4A2E810A904FB016B8536A96F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +575,8 @@ magnet:?xt=urn:btih:0077C968A33B7AE4A2E810A904FB016B8536A96F
 magnet:?xt=urn:btih:2EF2635889029D43BDA055BDE56B9212C770B003
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +605,8 @@ magnet:?xt=urn:btih:2EF2635889029D43BDA055BDE56B9212C770B003
 magnet:?xt=urn:btih:AD48F16BBB94DAC2E89DD8457524139FD7AB7034
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +630,8 @@ magnet:?xt=urn:btih:AD48F16BBB94DAC2E89DD8457524139FD7AB7034
 ```bash
 magnet:?xt=urn:btih:AFB9A9D24D3E633A82675033F1B2F866D3E7D8A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +660,8 @@ magnet:?xt=urn:btih:AFB9A9D24D3E633A82675033F1B2F866D3E7D8A8
 ```bash
 magnet:?xt=urn:btih:F15FAAA55AF321846C0EE531B642260BDCB61F25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +696,8 @@ Patе de Fuа - Boquita Pintada (2011) [MP3|320 кб/с]<Ethnic Jazz, Easy Liste
 magnet:?xt=urn:btih:E2E15F6F4563F55DD8D74854344A64B918B437CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -685,6 +731,8 @@ Overkill - The Electric Age (2012) [MP3|~245 кб/с (V0)]<Thrash Metal>
 magnet:?xt=urn:btih:B72374426FBB158F9FD2CAAE04534E55D32E0FAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -708,6 +756,8 @@ magnet:?xt=urn:btih:B72374426FBB158F9FD2CAAE04534E55D32E0FAF
 ```bash
 magnet:?xt=urn:btih:B7695ABA69FAFB895C16F5C90ED17DEC2C911432
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -736,6 +786,8 @@ magnet:?xt=urn:btih:B7695ABA69FAFB895C16F5C90ED17DEC2C911432
 ```bash
 magnet:?xt=urn:btih:A5D173E7876C3CFAA959A6B245F140421B14EF1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

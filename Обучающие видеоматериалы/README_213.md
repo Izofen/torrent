@@ -21,6 +21,8 @@ Udemy | The Complete Android Oreo Developer Course - Build 23 Apps! (2020) PCRec
 magnet:?xt=urn:btih:874BA1914F36CAA2B464159B6ACD17FF8F32BF0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Cybrary - Advanced Penetration Testing
 magnet:?xt=urn:btih:641400B304612F97B26272013FA459ED3C6A44B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Udemy, Scott Harris | Character Art School: Complete Coloring and Painting Cours
 ```bash
 magnet:?xt=urn:btih:5D33F13668A473723B4259179C08899393FB198C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ GeekBrains | Основы сетей передачи данных. Модель
 magnet:?xt=urn:btih:F007EF77DF585DAE39AAFB77F2CCBF1A0108DC12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ insidetheedit.com | Видеомонтаж изнутри / Inside The Edit (201
 ```bash
 magnet:?xt=urn:btih:F570697ADF5C01EF38AFE5B9993AF5633A05B06F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ TRX TV - выпуск посвященный развитию балансаПр
 magnet:?xt=urn:btih:A86063FDA3209E11C59FA8CCA8224D9F3C500026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ TRX TV | Absolute Power (2011) WEB-DLRip [H.264][EN]
 ```bash
 magnet:?xt=urn:btih:489FF1C208F5EA329DE19D6013F936C6712711A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ TRX TV | Endurance (2011) WEB-DLRip [H.264][EN]
 magnet:?xt=urn:btih:B541B362E3166091855DF0778F2ACA0953B1B294
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ TRX TV | Power (2011) WEB-DLRip [H.264][EN]
 ```bash
 magnet:?xt=urn:btih:D1771D029ADB4AFA2340D5F59B8AEF30D651770D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ TRX TV | 3D Strong (2011) WEB-DLRip [H.264][EN]
 magnet:?xt=urn:btih:9C8CD647C25894BDAD23A4E203D9969453434480
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Tренировка на петлях TRX на развитие мобильно
 ```bash
 magnet:?xt=urn:btih:108D9150622C5D7A6CD0FF7707859AADF28EB21F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Gumroad, Josh Gambrell and Ponte Ryuurui | The ULTIMATE Guide to Hard Ops and Bo
 magnet:?xt=urn:btih:ADABAA42AB66CD3EB5E6501D02DF08DE89162B2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ TRX TV - выпуск посвященный развитию стабилиза
 ```bash
 magnet:?xt=urn:btih:7F2D52F9214BEC869CCBDDF9293B78D2105F3A11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ TRX TV | Strength (2011) WEB-DLRip [H.264][EN]
 magnet:?xt=urn:btih:1E66E5FEA7E09EEFD2D95F4659763115592655A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ TRX TV | Condition to Win (2011) WEB-DLRip [H.264][EN]
 ```bash
 magnet:?xt=urn:btih:3FEEC5315AC561D06902FDC2147D1B528422E279
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:3FEEC5315AC561D06902FDC2147D1B528422E279
 ```bash
 magnet:?xt=urn:btih:7CD91B24659CC044285ACE3BDD4A454B783FD36B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ ZoomSchool, Екатерина Степанова | Пошив нижнего б
 magnet:?xt=urn:btih:25CD7176E4D2F7395EA9541E67537F3AD5B8FE6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ PostgreSQL – одна из самых популярных свободно р
 ```bash
 magnet:?xt=urn:btih:AE67C24F8EF6636413A0552AAD9DCA57A0B74074
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ Profileschool | Я и фотолаборатория: правила взаим�
 magnet:?xt=urn:btih:478DA9AC65EB86C0DD9A44E38AB047B4E53F56FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:478DA9AC65EB86C0DD9A44E38AB047B4E53F56FB
 ```bash
 magnet:?xt=urn:btih:0EA6AA6C451CE767EF8423345351FD3BB7A34E75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ OTUS | Pазработчик BigData (2018) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:3309E50DA1C228721C1C506E410E5BDA56F0504B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:3309E50DA1C228721C1C506E410E5BDA56F0504B
 magnet:?xt=urn:btih:63204A91E84E3BC8FD3646B2812A69B9C8C225CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:63204A91E84E3BC8FD3646B2812A69B9C8C225CB
 ```bash
 magnet:?xt=urn:btih:FE05D7CBDE4403339E902B0D0707ECF6891BF9CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:FE05D7CBDE4403339E902B0D0707ECF6891BF9CE
 magnet:?xt=urn:btih:0142F8CB53C2C2F0F7D9020CFEE3D22ACE3D0D5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ magnet:?xt=urn:btih:0142F8CB53C2C2F0F7D9020CFEE3D22ACE3D0D5D
 magnet:?xt=urn:btih:59765C433980691F7E3AA18F5AD53CCF7B9B64AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:59765C433980691F7E3AA18F5AD53CCF7B9B64AB
 ```bash
 magnet:?xt=urn:btih:9FA8C3DE457CADCC8D99663C8771D85AE5D332DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

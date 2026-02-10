@@ -1,3 +1,29 @@
+###  Публикация: 1353527   (991693) от 18.01.2020
+
+Алексей Махров, Борис Орлов | Хозяин земли русской (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вместе с товарищами, прибывшими ему на помощь из нашего времени, новый «Хозяин Земли Русской» совершает грандиозный рывок: промышленность развивается невиданными темпами, стремительно растет уровень народного образования и культуры… Но любые наши успехи ненавистны врагам – и прошлым, и будущим. Для противодействия русским «прогрессорам» из XXIII века прибывает «регрессор» (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыПродолжительность: 09:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB1B5BC01317658401003E33543ECC6A8B3BBE6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353520   (991754) от 18.01.2020
 
 Алексей Махров, Борис Орлов | Десант из будущего (2019) [MP3]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:D2179569DB1D9309ECBC7F038A1266E19A2D74B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:D2179569DB1D9309ECBC7F038A1266E19A2D74B8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:D2179569DB1D9309ECBC7F038A1266E19A2D74B8
 ```bash
 magnet:?xt=urn:btih:448A870F3CBDC179B1C36ADD3E1954C1FF11121D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:448A870F3CBDC179B1C36ADD3E1954C1FF11121D
 magnet:?xt=urn:btih:C741C9026DA6896D49E3D562D713B88176414A09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:C741C9026DA6896D49E3D562D713B88176414A09
 ```bash
 magnet:?xt=urn:btih:55A0F05CEDA067F944E20CFDF759529C8B947E70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:55A0F05CEDA067F944E20CFDF759529C8B947E70
 magnet:?xt=urn:btih:6AAFECBAA2D9946259F195A06A40FAE92A137D7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:6AAFECBAA2D9946259F195A06A40FAE92A137D7E
 magnet:?xt=urn:btih:BDA31B4B4AD8911F5BDA9C1F3CE0CA677711A8EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:BDA31B4B4AD8911F5BDA9C1F3CE0CA677711A8EE
 ```bash
 magnet:?xt=urn:btih:88CFFD7BA0D32FD0B21931CEA031BAFF60469BCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:88CFFD7BA0D32FD0B21931CEA031BAFF60469BCF
 magnet:?xt=urn:btih:C165949572BD26E239909A42374188B2886742A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:C165949572BD26E239909A42374188B2886742A7
 magnet:?xt=urn:btih:ABF6F23A2631FA88D9C4A97B0798963DC5ADD86D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:ABF6F23A2631FA88D9C4A97B0798963DC5ADD86D
 ```bash
 magnet:?xt=urn:btih:D831AAFB8A4C9CA0ADF8CCD951A871EDB47AB96B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:D831AAFB8A4C9CA0ADF8CCD951A871EDB47AB96B
 magnet:?xt=urn:btih:15EDA70C169697B70CAC6E2F44C694152985FAC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:15EDA70C169697B70CAC6E2F44C694152985FAC0
 magnet:?xt=urn:btih:AE8C11BCEA354F76AF04DED8CA4F54F32BC3D5FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:AE8C11BCEA354F76AF04DED8CA4F54F32BC3D5FB
 ```bash
 magnet:?xt=urn:btih:1B98937E495FFB58E412EC24015AD0805F3B88B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:1B98937E495FFB58E412EC24015AD0805F3B88B0
 magnet:?xt=urn:btih:DB3110109DC1A684DB602F8DBFBF1806DC966205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:DB3110109DC1A684DB602F8DBFBF1806DC966205
 ```bash
 magnet:?xt=urn:btih:15FC4FB45157AF740841663E4D60F1FC54FCB9F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:15FC4FB45157AF740841663E4D60F1FC54FCB9F4
 magnet:?xt=urn:btih:A90F54DB231C184137A4D9EC459FE107B22D9D57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:A90F54DB231C184137A4D9EC459FE107B22D9D57
 ```bash
 magnet:?xt=urn:btih:D5205D554379BFCADABB064C12BCDE9F622B0BD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:D5205D554379BFCADABB064C12BCDE9F622B0BD0
 magnet:?xt=urn:btih:A77F366E8D37C82D08566FC740D6ED075198CA4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:A77F366E8D37C82D08566FC740D6ED075198CA4D
 ```bash
 magnet:?xt=urn:btih:B23895D38B43C1A53A86F5414A882BDE8C24F09E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:B23895D38B43C1A53A86F5414A882BDE8C24F09E
 magnet:?xt=urn:btih:8B787F37D40F1DE9AEAE9AAA18C336E894BC5774
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:8B787F37D40F1DE9AEAE9AAA18C336E894BC5774
 ```bash
 magnet:?xt=urn:btih:33FC6C47B179F28A7ED598F4DDC92FA3F0654DB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:33FC6C47B179F28A7ED598F4DDC92FA3F0654DB2
 magnet:?xt=urn:btih:F618BAAF86DF5FDCD1DD362BA7CCD90FB0BC0884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:F618BAAF86DF5FDCD1DD362BA7CCD90FB0BC0884
 ```bash
 magnet:?xt=urn:btih:72BA37944B38F98746F8AF2C3DB1DE13DB173B47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,29 +679,7 @@ magnet:?xt=urn:btih:72BA37944B38F98746F8AF2C3DB1DE13DB173B47
 magnet:?xt=urn:btih:0824E8CCFAE9ACA3ECA19066E34A1D037D2089AB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 94283   (995732) от 19.01.2013
-
-Анджей Сапковский | Крещение Огнем [1996] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Словно прислушавшись к многочисленным стенаниям читателей, сетовавших на то, что в предыдущей книге цикла о самом ведьмаке было сказано слишком мало, пан Анджей «исправился». В этой книге мы вновь будем наблюдать такую сложную и неоднозначную жизнь «простого» ведьмака. В поисках Цири он готов объехать весь мир. И в этих стремлениях он не одинок, хотя и странная компания (   Читать дальше...   )Жанр: Фэнтези
-
-## Скачать торент
-```bash
-нет
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

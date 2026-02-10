@@ -1,3 +1,29 @@
+###  Публикация: 204167   (704789) от 06.03.2019
+
+Валентина Рыженко | Выбор систем водяного отопления для загородного дома (2007) [PDF, DOC]
+
+>>Разное (категория книг)
+>>Строительство и ремонт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга предназначена не только для домашнего мастера, но и для тех, кто хочет установить в своем доме систему водяного отопления. Сведения, приведенные в ней, ознакомят вас с различными видами водяного отопления, их преимуществами и недостатками, что поможет вам принять оптимальное решение по обустройству своего дома.Жанр: Ремонт, СтроительствоФормат: PDF, DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FE8D640845CFCD18805365BC77202BCEC7E1EDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 672267   (704956) от 24.06.2013
 
 Виктор Савченко | Симон Петлюра [2006] [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:C0005582A14E582300B160A9C64CE171B91B3CD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:C0005582A14E582300B160A9C64CE171B91B3CD4
 ```bash
 magnet:?xt=urn:btih:117ECA32C311A77651003FB9244C4C46B0940F44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:117ECA32C311A77651003FB9244C4C46B0940F44
 magnet:?xt=urn:btih:539019AE4CCB2840B7DE1E42BF97EDFA4C1E36C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:539019AE4CCB2840B7DE1E42BF97EDFA4C1E36C6
 ```bash
 magnet:?xt=urn:btih:BCEF77746C69672A7A60E06A49DF5C9DFB2245FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +155,8 @@ magnet:?xt=urn:btih:BCEF77746C69672A7A60E06A49DF5C9DFB2245FD
 magnet:?xt=urn:btih:6A98B63A8D880CEDD02F4B01440AD0BECA2F264E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +181,8 @@ magnet:?xt=urn:btih:6A98B63A8D880CEDD02F4B01440AD0BECA2F264E
 magnet:?xt=urn:btih:DA6E13BDBE1553E93F116881A20E1C912C19D894
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:DA6E13BDBE1553E93F116881A20E1C912C19D894
 ```bash
 magnet:?xt=urn:btih:2549835B8487A89C443566A54B110904E47802EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +235,8 @@ magnet:?xt=urn:btih:2549835B8487A89C443566A54B110904E47802EB
 magnet:?xt=urn:btih:423F5414A9A94CC63EDF6F2E21F7637C06A5CE04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +261,8 @@ magnet:?xt=urn:btih:423F5414A9A94CC63EDF6F2E21F7637C06A5CE04
 magnet:?xt=urn:btih:29939D8AF411999557D63A8E79677A7A1CB459BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:29939D8AF411999557D63A8E79677A7A1CB459BE
 ```bash
 magnet:?xt=urn:btih:F4049F2C977AC55B1DFAAAB1DBA99644318DE6B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +314,8 @@ magnet:?xt=urn:btih:F4049F2C977AC55B1DFAAAB1DBA99644318DE6B9
 magnet:?xt=urn:btih:E88B486EC6B212A9AA98ACE96F186AEBA832EAE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:E88B486EC6B212A9AA98ACE96F186AEBA832EAE0
 ```bash
 magnet:?xt=urn:btih:2EDFCF4897A39E642167EEDB1CB660A15B8FEAC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:2EDFCF4897A39E642167EEDB1CB660A15B8FEAC3
 magnet:?xt=urn:btih:E5151FE7495763EDD79384A2B0EF19A04ACE0655
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:E5151FE7495763EDD79384A2B0EF19A04ACE0655
 ```bash
 magnet:?xt=urn:btih:1B771446C0F86D64C09A25D8264D66BB4A2BAAB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:1B771446C0F86D64C09A25D8264D66BB4A2BAAB8
 magnet:?xt=urn:btih:2D6D04A7C23133DAF45FCC9F237D428663886D0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:2D6D04A7C23133DAF45FCC9F237D428663886D0C
 ```bash
 magnet:?xt=urn:btih:F98F7B5F0C0FA5AC0706C4C1A1A2A8699E8310A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:F98F7B5F0C0FA5AC0706C4C1A1A2A8699E8310A8
 magnet:?xt=urn:btih:17757124FDA4A0E1EF59E8538644E8D3A39E7C44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:17757124FDA4A0E1EF59E8538644E8D3A39E7C44
 ```bash
 magnet:?xt=urn:btih:B49F53D26D7AC9004527C2DB1E558C6D81D977D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:B49F53D26D7AC9004527C2DB1E558C6D81D977D3
 magnet:?xt=urn:btih:DE8DD0011BF7FB73DBAB08B9C841F1E26CB07D40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +550,8 @@ Canon | Сборник инструкций по фототехнике фирм
 ```bash
 magnet:?xt=urn:btih:DBFA90B208148C7BC84A05441D24F3570E79D042
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:DBFA90B208148C7BC84A05441D24F3570E79D042
 magnet:?xt=urn:btih:9770E0D0A83B38D271E78E2DCD5A93BFD6A533EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:9770E0D0A83B38D271E78E2DCD5A93BFD6A533EE
 ```bash
 magnet:?xt=urn:btih:53FF35150F43D49B88F60CDA54BD7B374B860555
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:53FF35150F43D49B88F60CDA54BD7B374B860555
 magnet:?xt=urn:btih:77525EA0128DB5E0F1F2C6A8397506F93EC6C2D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:77525EA0128DB5E0F1F2C6A8397506F93EC6C2D6
 ```bash
 magnet:?xt=urn:btih:9E470DE9B6247499552AE4E629CB534691671A74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,30 +685,7 @@ magnet:?xt=urn:btih:9E470DE9B6247499552AE4E629CB534691671A74
 magnet:?xt=urn:btih:592CBF0CF6B08D669F95E33EDCD3A2C4D2C5231F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533277   (707183) от 23.02.2022
-
-Исахар Файнгар | Очерк развития германского монополистического капитала (1958) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель этой книги — показать на основе анализа фактов и документов развитие, главным образом в период господства фашизма, монополистического капитала Германии, развязавшего вторую мировую войну ради осуществления планов мирового господства германского империализма.
-В соответствии с этим в первой части книги (гл. I—V) рассматриваются основные экономические черты германского (   Читать дальше...   )Жанр: монография, история, экономика, политология, империализмФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD08A9643F8114642D196BB3158CCDF827CEC5FC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

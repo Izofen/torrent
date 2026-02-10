@@ -1,3 +1,31 @@
+###  Публикация: 926952   (531268) от 11.08.2015
+
+Лорен Грэхэм | Сможет ли Россия конкурировать? История инноваций в царской, советской и современной России (2014) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – серьезное исследование на тему, почему в России веками не удается коммерциализация технологических идей. Со времен Петра I и до «Сколково», будучи первопроходцами во многих важнейших отраслях науки, россияне серьезно отстают, как только речь заходит о получении выгоды.
+
+Автор, Лорен Грэхэм – известный исследователь советской науки, профессор MIT, преподаватель (   Читать дальше...   )Жанр: Зарубежная публицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E30C7F4CFE3071F5A1B2C6C5509324A74FAF0F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926653   (531277) от 11.08.2015
 
 Майкл Сэндел | Что нельзя купить за деньги. Моральные ограничения свободного рынка (2013) [FB2]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:47B397CA5216F9E3127B393F18A1CDC13A425B0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:47B397CA5216F9E3127B393F18A1CDC13A425B0B
 magnet:?xt=urn:btih:D67CE513ED1A932975337847F19A186A1D909C63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +98,8 @@ magnet:?xt=urn:btih:D67CE513ED1A932975337847F19A186A1D909C63
 ```bash
 magnet:?xt=urn:btih:088F981AC468A26078FB65412F136FC553CDCCD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +125,8 @@ magnet:?xt=urn:btih:088F981AC468A26078FB65412F136FC553CDCCD0
 magnet:?xt=urn:btih:C596BE5E2B2743D515A2FFF82AB0E7A07BAAA7BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +151,8 @@ magnet:?xt=urn:btih:C596BE5E2B2743D515A2FFF82AB0E7A07BAAA7BE
 magnet:?xt=urn:btih:27BAD28A8D3D5357B75D4BDB832AFA9397C5BE91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +176,8 @@ magnet:?xt=urn:btih:27BAD28A8D3D5357B75D4BDB832AFA9397C5BE91
 ```bash
 magnet:?xt=urn:btih:47F69B49F08D8544B56AC0B57D18F7534137C962
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +204,8 @@ magnet:?xt=urn:btih:47F69B49F08D8544B56AC0B57D18F7534137C962
 magnet:?xt=urn:btih:116728B455BDBECD035BC7D7F2FEAF1187A6025D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +230,8 @@ magnet:?xt=urn:btih:116728B455BDBECD035BC7D7F2FEAF1187A6025D
 magnet:?xt=urn:btih:0A11F8CB3D9D7B8CFB1A0A7BBCE894BBEC7B2EDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +255,8 @@ magnet:?xt=urn:btih:0A11F8CB3D9D7B8CFB1A0A7BBCE894BBEC7B2EDE
 ```bash
 magnet:?xt=urn:btih:814089A83CBFEA128750FA5E0D9D0CCE07946AAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +285,8 @@ magnet:?xt=urn:btih:814089A83CBFEA128750FA5E0D9D0CCE07946AAE
 magnet:?xt=urn:btih:49B09F611E8C2765C9CF695F1914216426071567
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +310,8 @@ magnet:?xt=urn:btih:49B09F611E8C2765C9CF695F1914216426071567
 ```bash
 magnet:?xt=urn:btih:1C0B703C4B156B643F3389C24AAD490B4432B746
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +337,8 @@ magnet:?xt=urn:btih:1C0B703C4B156B643F3389C24AAD490B4432B746
 magnet:?xt=urn:btih:53765302E6406328E5A7E6EB88D015D516F70EC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +362,8 @@ magnet:?xt=urn:btih:53765302E6406328E5A7E6EB88D015D516F70EC7
 ```bash
 magnet:?xt=urn:btih:51367D0EBB10FEF8CC74741B53071250D867C923
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +389,8 @@ magnet:?xt=urn:btih:51367D0EBB10FEF8CC74741B53071250D867C923
 magnet:?xt=urn:btih:55A5F3EE5D4125260ACE58792119D156CCFE34C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +414,8 @@ magnet:?xt=urn:btih:55A5F3EE5D4125260ACE58792119D156CCFE34C6
 ```bash
 magnet:?xt=urn:btih:ABBA7814D04B9EBF89223548212E5267DF7E9528
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +441,8 @@ magnet:?xt=urn:btih:ABBA7814D04B9EBF89223548212E5267DF7E9528
 magnet:?xt=urn:btih:9DC68582488B9E8ABB5CA204648DCCBFF5EA39BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +466,8 @@ magnet:?xt=urn:btih:9DC68582488B9E8ABB5CA204648DCCBFF5EA39BB
 ```bash
 magnet:?xt=urn:btih:65211B88AC9E32216F326D10571C0E10B11914F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +493,8 @@ magnet:?xt=urn:btih:65211B88AC9E32216F326D10571C0E10B11914F4
 magnet:?xt=urn:btih:FB6090A93FDFBE1C532358E1D25614E7C04CD014
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +519,8 @@ magnet:?xt=urn:btih:FB6090A93FDFBE1C532358E1D25614E7C04CD014
 magnet:?xt=urn:btih:F0FABFBA08C5856A9CF4C34A37E619FEC1C0DDB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +544,8 @@ magnet:?xt=urn:btih:F0FABFBA08C5856A9CF4C34A37E619FEC1C0DDB3
 ```bash
 magnet:?xt=urn:btih:B852D51FACCB711F473DFFA4D36414450F5C49A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +573,8 @@ magnet:?xt=urn:btih:B852D51FACCB711F473DFFA4D36414450F5C49A2
 magnet:?xt=urn:btih:D49CF2A81B5CBE3B2C9389312AEDABE14C4DA7C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +598,8 @@ magnet:?xt=urn:btih:D49CF2A81B5CBE3B2C9389312AEDABE14C4DA7C6
 ```bash
 magnet:?xt=urn:btih:386AA333838D72495ED668CDB3E835C6C70CF771
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +625,8 @@ magnet:?xt=urn:btih:386AA333838D72495ED668CDB3E835C6C70CF771
 magnet:?xt=urn:btih:903E5E32C8E7E2F0BE99183BEFBEF9B64E8ADBEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +650,8 @@ magnet:?xt=urn:btih:903E5E32C8E7E2F0BE99183BEFBEF9B64E8ADBEF
 ```bash
 magnet:?xt=urn:btih:3D69E6721A69E5247113A4E1788168598959C32F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,29 +680,7 @@ magnet:?xt=urn:btih:3D69E6721A69E5247113A4E1788168598959C32F
 magnet:?xt=urn:btih:0613C322D041FC2A5B46505DFE94FA7DA8BD468C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134195   (533266) от 19.06.2022
-
-Дэниэл Ласерда | 2100 асан. Вся йога в одной книге (2017) [PDF]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533266.jpg" />
-</div>
-
-
-###  Подробнее
-
-"2,100 асан. Вся йога в одной книге" – настоящий подарок для тех, кто готов каждый день открывать для себя новое в йоге. Здесь вы найдете асаны любой сложности и под любое настроение. Просто следуйте за своим сердцем и найдете то, что подойдет именно вам!Жанр: йогаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22540D2BB629EEBEF1CE729813B60B360F515A00
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

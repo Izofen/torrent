@@ -20,6 +20,8 @@ DesktopNoteOK – простая портативная программа дл�
 magnet:?xt=urn:btih:27C4CF793378E5BA553BF2CDAEA9B11D4085C619
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ FastStone Capture - мощная и многофункциональная пр
 ```bash
 magnet:?xt=urn:btih:64FC1989D64CB8F5A4D4FDEB14BE087EC7B4F7C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ ImgDrive - простой и надежный эмулятор дисков, п�
 magnet:?xt=urn:btih:054F4A3BF73D1B992854E40D3BB77F60BA8E23EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ AMD Radeon Software Adrenalin Edition представляет собой нов
 ```bash
 magnet:?xt=urn:btih:3347ED8CC8334D9C83140169EC0143AF2F21890C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ GOM Player Plus - мультимедийный плеер со множеств�
 magnet:?xt=urn:btih:FC1F3BC4EEE875539B70FA7EE43A825B7A21C1A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ PDF24 Creator - бесплатная программа, которая позв
 ```bash
 magnet:?xt=urn:btih:91E0B3F6F3486A81CB6B5B257DC5EF2310D66AB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ MSI Kombustor поддерживает тестирование (   Читат�
 magnet:?xt=urn:btih:B767FE92CFA5E4FD07ADFFC29C7325DCF7F1CAAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Pixelmator Pro — это невероятно мощный, красивый и
 magnet:?xt=urn:btih:C76E7B71D4843A71429270158175A6F4180FC373
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ FireAlpaca - это достаточно простой, но удобный г�
 ```bash
 magnet:?xt=urn:btih:3516F0EE3689541E845BE53B3B122078555C38AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Wallpaper Engine позволяет устанавливать живые обо
 magnet:?xt=urn:btih:1B987249A2AF1CBEF9C705E237CB20E57DBC109A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ VirtualBox - специальная программа для создания �
 magnet:?xt=urn:btih:77CB699642F6189121BFEE7641B966BFD7B3E434
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:A67FC652C6D0E9133CD919A86F59133A177943A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:A67FC652C6D0E9133CD919A86F59133A177943A0
 magnet:?xt=urn:btih:729DF4990DE44A681271059DA212CC40EC14FF84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ SONAR - это больше, чем просто цифровая аудио р�
 magnet:?xt=urn:btih:A16E54104A888354B353EBB87B6367A34DA05388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Vov Sticky Notes 8.6 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DBD5A7B758EB2EC899DC6270F1A425D2284C6B0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:DBD5A7B758EB2EC899DC6270F1A425D2284C6B0F
 magnet:?xt=urn:btih:641D05F28AE45A6B7F2B0B718B74B1857C753A92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ Visual Studio Enterprise 2019 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:CE72D3C7491CA4015E6B9BBEE0DC60363E9160D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:CE72D3C7491CA4015E6B9BBEE0DC60363E9160D9
 magnet:?xt=urn:btih:4FB03A29A760152947378FE874BA796F009E74F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Revo Uninstaller Pro 4.2.3 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:671592B153C0E0CE4D0A13219034F947DDFC4DF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:671592B153C0E0CE4D0A13219034F947DDFC4DF9
 magnet:?xt=urn:btih:8DB9841B525D7D01DAE5E88A69ACE01F61F3C742
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ FileZilla Server представляет собой очень простой, 
 ```bash
 magnet:?xt=urn:btih:19C62C339B342AAA552CFFCAE0B2B5689C8F3463
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ XnView MP - мощное многофункциональное приложен
 magnet:?xt=urn:btih:AD58A3F93B7F0C7D30C11004EA8374A7430C656B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ GPU Caps Viewer - информационная утилита, позволяю�
 ```bash
 magnet:?xt=urn:btih:18BC62B5A326A60CD81E0CDB62E2A9EA120E6D2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ VA - Tangled Audio Best Of 2015 (Mixed by Luigi Palagano) (2015) [MP3|320 кб/�
 magnet:?xt=urn:btih:70E9A292D4CBCD635FB5B5A60B8A87289C145AEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:70E9A292D4CBCD635FB5B5A60B8A87289C145AEE
 magnet:?xt=urn:btih:0E762AAB7366E14A9C2D2EDE782436C8DE85C169
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:0E762AAB7366E14A9C2D2EDE782436C8DE85C169
 ```bash
 magnet:?xt=urn:btih:59E3D1DDDF1C33338CD1E3832E514E14934A3436
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - Dark Amsterdam Trance (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:27338AFCA7F32FA2E0FF72422D45DB49820EB9E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:27338AFCA7F32FA2E0FF72422D45DB49820EB9E1
 ```bash
 magnet:?xt=urn:btih:AA4E734F5E788826C66A57E044C65E20985BD30F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:AA4E734F5E788826C66A57E044C65E20985BD30F
 magnet:?xt=urn:btih:367018F2B1F89EE81E0C5B01493923E9344AA505
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Finder Windows — это плавающая панель, которая дае
 ```bash
 magnet:?xt=urn:btih:F8083CD2F03FD9ACD84030AE0A4C1E0BE8C5EA9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Hydra от Creaceed SPRL – программа для создания HDR-из
 magnet:?xt=urn:btih:262D8775752C9CBAB7D80BD71DBF76C6546949C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:262D8775752C9CBAB7D80BD71DBF76C6546949C9
 ```bash
 magnet:?xt=urn:btih:48AF0C1A91743CFF334E5B6352703779DDD6A92E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Mastedon - 3 альбома Collection (1989-2009) [FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:0EA1EDC4D005B2EE8F7F6A47B0C2AF768898FF30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:0EA1EDC4D005B2EE8F7F6A47B0C2AF768898FF30
 ```bash
 magnet:?xt=urn:btih:2EC9B171147683C5838FD7A76BF5DA61D37390F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:2EC9B171147683C5838FD7A76BF5DA61D37390F9
 magnet:?xt=urn:btih:08B598E80CFB32DFD429C76AEB0E4835B59693AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:08B598E80CFB32DFD429C76AEB0E4835B59693AA
 magnet:?xt=urn:btih:664D5E17F17220740E079139D60299ABC689432C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:664D5E17F17220740E079139D60299ABC689432C
 ```bash
 magnet:?xt=urn:btih:233608FBB5E21229D104ED8B17A4D09BCB5CC1C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ Big Mean Folder Machine - интересное приложение, предн�
 ```bash
 magnet:?xt=urn:btih:BBE32AA06599EA2F7C84A8336906FC4368B3036D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ Maury Laws & Jules Bass - Сумасшедшая вечеринка чудови
 magnet:?xt=urn:btih:4A997603CF2DC3A4C615C9D16356B69B0DE25094
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:4A997603CF2DC3A4C615C9D16356B69B0DE25094
 magnet:?xt=urn:btih:D38A236844B6A6A46EB20A20290D85B255277DBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:D38A236844B6A6A46EB20A20290D85B255277DBE
 ```bash
 magnet:?xt=urn:btih:1B8B030D1AF8DAF7625373CC2C61FE6B9DADAA32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ VA - Techno Electro Sound: EDM Liveset (2019) [MP3|320 Kbps] <Techno, EDM>
 magnet:?xt=urn:btih:2EAE6566DC554D2053AB5ED825AEB1B3BA911E0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ ZveroБой (Зверобой) - Напиши на мне (2012) EP [MP3|320 Kbp
 magnet:?xt=urn:btih:31A065FEE3E7C774B23317412E856F58EB31AAFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:31A065FEE3E7C774B23317412E856F58EB31AAFA
 ```bash
 magnet:?xt=urn:btih:EC8BF1BDDFE36F52FBC397F5EDD651725E2C8101
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:EC8BF1BDDFE36F52FBC397F5EDD651725E2C8101
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ Jon Richards - Midwinter (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 magnet:?xt=urn:btih:0D7FD1F2AD336D65BCB7CBFF6B03E09EB4F64AFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ Topaz A.I. Gigapixel — это первое и единственное при�
 ```bash
 magnet:?xt=urn:btih:06AB4DB2464270D6C58A573A3AF69AD356CD775D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ Timo Tolkki - Classical Variations And Themes (1994) Reissue, 1996, NEMS Enterpr
 magnet:?xt=urn:btih:B98A69EFBB1A36DB2A301F8C1BEB2CE5564B277B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:B98A69EFBB1A36DB2A301F8C1BEB2CE5564B277B
 ```bash
 magnet:?xt=urn:btih:D174C05814EF1726BE9EA3D93753FDC6231E2966
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ ZveroБой (Зверобой) - Ток (2013) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:8EE1F6F9B6B09C645B7040CB2E8BF744EA6EE95B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ magnet:?xt=urn:btih:8EE1F6F9B6B09C645B7040CB2E8BF744EA6EE95B
 magnet:?xt=urn:btih:5A0C1D0997CE9541E0DDD64281B8C8DFB1A2F804
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ Taisou Zamurai | Самурай-гимнаст [2020, TV, 11] WEBRip 720p raw
 ```bash
 magnet:?xt=urn:btih:D8076508FFF54ED6904DDD45A7BCB5DAD7EC5E7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

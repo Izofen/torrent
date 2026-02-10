@@ -19,6 +19,8 @@ George Moller | 100+ React Infographics (2023) WEB-DL [EN]
 magnet:?xt=urn:btih:BC855918B54539F0E8F81C5B49990F2E8BE435C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Amigoscode, Nelson | Microservices and Distributed Systems Updated 3 (2022) WEB-
 magnet:?xt=urn:btih:6B76C8D7ABF59C7995A877A80112DBD40DA6B85C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:6B76C8D7ABF59C7995A877A80112DBD40DA6B85C
 ```bash
 magnet:?xt=urn:btih:7A9077F5BD9E251CF924C6B22829E342BFE6D83D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Lynda.com | CSS: Gradients (2013) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:771BA7C56FE094ED19ECE31FF7B9955CCC1C1E42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Next.js - мощный фреймворк для создания полноце
 ```bash
 magnet:?xt=urn:btih:318B1500B9146381ACE700356D2A87F9391B9EE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ IBM SPSS Statistics – программа для профессионально
 magnet:?xt=urn:btih:94366F7DAE4E8F976FB197EC43EF125E09E3F1AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ WordPress отлично подходит для блогов и электро�
 magnet:?xt=urn:btih:6DF54A68CB61BD3FFC14BBF98846F652C3E899FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ Dean Davis | UnixCBT Sol11x Edition (2015) WEB-DL [H.264] [EN]
 ```bash
 magnet:?xt=urn:btih:E25D19D66D5F81E38A1C4867D8AEE7198728262E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ Udemy, Lazy Programmer Team | Financial Engineering and Artificial Intelligence 
 ```bash
 magnet:?xt=urn:btih:B1AD0188A0DBC5B81AD4FFC282169673F023131F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +278,8 @@ magnet:?xt=urn:btih:B1AD0188A0DBC5B81AD4FFC282169673F023131F
 magnet:?xt=urn:btih:5448FCB78C792EC6DCFF93B3BE32EC55DD6B57EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +305,8 @@ magnet:?xt=urn:btih:5448FCB78C792EC6DCFF93B3BE32EC55DD6B57EF
 ```bash
 magnet:?xt=urn:btih:05B93A7FF93CFAA009094785CEC586800F25BB67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +335,8 @@ Udemy, Dzianis Matveyenka | Java для начинающих. Level 1 (2021) WEB
 magnet:?xt=urn:btih:F8E88C8951EF5845AFC4FA6AB45BE39F571F2712
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +360,8 @@ Udemy, Oleksiy Atroshchenko | Сети с нуля. Просто - о сложн
 ```bash
 magnet:?xt=urn:btih:1FA04FD1E625A6CF00AAE9D323FD572C57C57E91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +387,8 @@ Cypress чаще всего сравнивают с Selenium; однако Cypre
 magnet:?xt=urn:btih:CA9B607EC2FC4470E83D79C63CA27CA9E22C81CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +413,8 @@ SOLID - это аббревиатура, обозначающая SRP, OCP, LSP,
 ```bash
 magnet:?xt=urn:btih:1FBC63898F4E1E2C1661C95F2C01863DCC86E018
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +442,8 @@ Udemy, Roman Trukhtanov | CSS – Как анимировать интерфей
 magnet:?xt=urn:btih:07D573738BDF0030CDF188E3252823EA41A2468B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +467,8 @@ Udemy, Hussein Nasser | Fundamentals of Database Engineering (2021) WEB-DL [En /
 ```bash
 magnet:?xt=urn:btih:4D6DDC7ED32D8F80249038E233C5F2F57E7A2001
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +496,8 @@ Frontend-разработчик создаёт интерфейсы, с кото
 magnet:?xt=urn:btih:732D44AF06892F482340283B3901BE12295BA5B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +523,8 @@ Laravel - это надежный и простой для понимания PH
 ```bash
 magnet:?xt=urn:btih:CD94AEF67CCF6A7C8896CF973925790E309D8D54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +552,8 @@ SmartData — единственная в России специализиро�
 magnet:?xt=urn:btih:E078A289E23659D66D8FABA85852951A02D49BD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +577,8 @@ Udemy, Holczer Balazs | Параллелизм, многопоточность �
 ```bash
 magnet:?xt=urn:btih:5A1CBD92CC2942DC988C50FCA975FB5BB8FBCDB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +607,8 @@ Udemy, Clyde Matthew | *NEW* DOM 2020 Build Dynamic Websites with JavaScript Par
 magnet:?xt=urn:btih:2E7630B3F99359CE18EDBE45EEDB12D74D78748C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +633,8 @@ Udemy, Clyde Matthew | *NEW* JavaScript Complete Grandmaster 2020. Ongoing Updat
 ```bash
 magnet:?xt=urn:btih:5406FEF124C0944402225C01FA5E92A124A11122
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +663,8 @@ YO DO, Кирилл Семаев | Курс Linux v 2.0. От 0 до Linux Ад�
 magnet:?xt=urn:btih:524AAB92776D9775814F88957CB6139629ABCC4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +692,8 @@ magnet:?xt=urn:btih:524AAB92776D9775814F88957CB6139629ABCC4D
 magnet:?xt=urn:btih:11D517E24C7BBE099716B3A99A71AE4A634E618F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +719,8 @@ Frontend-разработчик создаёт интерфейсы, с кото
 ```bash
 magnet:?xt=urn:btih:583259D3F5DE286A5E0618132645506D56375F8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

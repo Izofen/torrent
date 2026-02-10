@@ -19,6 +19,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:C80896D9060294A3933499D2D8E31EF26A5962F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C80896D9060294A3933499D2D8E31EF26A5962F5
 ```bash
 magnet:?xt=urn:btih:72F2296BF837D9C6EB4C1044FAD059899A2FE69E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Avidemux - небольшой, простой редактор для работ
 magnet:?xt=urn:btih:797E0FDE866BC4D4BB5BAD62F88CC9F794419BFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Smart Launcher - лаунчер являющийся одним из самых 
 ```bash
 magnet:?xt=urn:btih:B6FA20DFB34502A134CA59FB1E5ABB2A26BD41E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:B6FA20DFB34502A134CA59FB1E5ABB2A26BD41E5
 magnet:?xt=urn:btih:6AA18B63240135ACDC0091702A37016DAC373FDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:6AA18B63240135ACDC0091702A37016DAC373FDC
 magnet:?xt=urn:btih:DFE527AA5364350F1175DFFD608EB77199A36220
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ magnet:?xt=urn:btih:DFE527AA5364350F1175DFFD608EB77199A36220
 ```bash
 magnet:?xt=urn:btih:A06F8A3A924675BF565B92FA3D3D32BC950126DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:A06F8A3A924675BF565B92FA3D3D32BC950126DD
 magnet:?xt=urn:btih:E53BA3B433F50F923C7020CB704B289AE233379C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:E53BA3B433F50F923C7020CB704B289AE233379C
 magnet:?xt=urn:btih:2DAC053A580F1BA27ACEB4CA4510690ED4C7AA76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:2DAC053A580F1BA27ACEB4CA4510690ED4C7AA76
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:2DAC053A580F1BA27ACEB4CA4510690ED4C7AA76
 magnet:?xt=urn:btih:1006E23AE163DF81DCBF25786E7A8995706DA1F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Windows 11 - это серия операционных систем, разра
 magnet:?xt=urn:btih:805A11E2306FD8A1793C4894239301247F99208E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Windows Server, версия 23H2 - это первый выпуск ежего�
 ```bash
 magnet:?xt=urn:btih:308C862FFFBDA83FD0143D033DBBF148F3F454CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Windows 10 2022 Update (под кодовым названием "22H2") это 
 magnet:?xt=urn:btih:596E834EB86238BCA93D1AD571FC3FBD6F194B8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:596E834EB86238BCA93D1AD571FC3FBD6F194B8C
 magnet:?xt=urn:btih:96C6C9D1A085B07E28F12D0994CF9CB40D7B169C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:96C6C9D1A085B07E28F12D0994CF9CB40D7B169C
 ```bash
 magnet:?xt=urn:btih:A5A02DF881196CBD078B4C9EB97B72E4FB9BCE30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:A5A02DF881196CBD078B4C9EB97B72E4FB9BCE30
 magnet:?xt=urn:btih:C8B3C60395877EE5C1DCA4EDE2E01EBE4CA78147
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:B291C04A7D7844A53B590ADF3BAB252465587396
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ JetBrains PyCharm Professional – это мощная и многофункци
 magnet:?xt=urn:btih:6E5EB239941218FD3A19A86C9AA053A09BCC7F67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:6E5EB239941218FD3A19A86C9AA053A09BCC7F67
 ```bash
 magnet:?xt=urn:btih:0B6C0EBB58A9358BC316EE4784280C54E221657A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:0B6C0EBB58A9358BC316EE4784280C54E221657A
 magnet:?xt=urn:btih:1CC05D8C6F8943F4B0BD72D13669FC5672D0CAA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:1CC05D8C6F8943F4B0BD72D13669FC5672D0CAA0
 ```bash
 magnet:?xt=urn:btih:0098D5E2BB7C764B70087DC55BF0A4DF7290E96D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:0098D5E2BB7C764B70087DC55BF0A4DF7290E96D
 magnet:?xt=urn:btih:AE18CBA79D486605F99A81D549A7E9C59D98315B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ NewPipe – это клиент для YouTube, который не исполь
 ```bash
 magnet:?xt=urn:btih:2666DDED9A499B7292EF418A762E0B7DA9C1975B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:2666DDED9A499B7292EF418A762E0B7DA9C1975B
 magnet:?xt=urn:btih:D644F613FBA8C000BA13A5DC1C705F9329B1CE4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:E3A792508564503879FED1239FE509D7BF2A57AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

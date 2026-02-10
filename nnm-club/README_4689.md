@@ -19,6 +19,8 @@ Aiseesoft Screen Recorder 2.9.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:7A7DBAE4D347E215B0187B69410D50119D518581
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:7A7DBAE4D347E215B0187B69410D50119D518581
 ```bash
 magnet:?xt=urn:btih:0D52733E1DCA3C39468AF40E5E861C8551EC576F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:0D52733E1DCA3C39468AF40E5E861C8551EC576F
 ```bash
 magnet:?xt=urn:btih:79862243FBFC9105D0810AD2449373BCB1191329
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ Adler (ex-Guns N' Roses) - Back From The Dead (2012) [FLAC|Lossless]<Hard Rock /
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ VA - Взрывной Хит-Парад выпуск № 4 (2016) [MP3|256 Kbps]
 magnet:?xt=urn:btih:B180E44F61D8FEFA1773BE28C79677D2A8C800E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:B180E44F61D8FEFA1773BE28C79677D2A8C800E5
 ```bash
 magnet:?xt=urn:btih:25C0E69860DE42688C3344FC106FCF059419779F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:25C0E69860DE42688C3344FC106FCF059419779F
 ```bash
 magnet:?xt=urn:btih:84C4B52370F2BD387AC2C213BA26C6879698443E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ Chris Rea - The Road To Hell (Parts 1 & 2) (1989) CDS [FLAC|Lossless|image + .cu
 magnet:?xt=urn:btih:E16B2A408CA17FD5FC19927BA51F924CF55E0725
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ Age of Civilizations II - продолжение геополитической 
 ```bash
 magnet:?xt=urn:btih:32096B8A66F3EE2BD932B17AA97DF04CCA33652C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:9BD7C8316FD4A0A58459E15B5F8EE7F37A06123B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:9BD7C8316FD4A0A58459E15B5F8EE7F37A06123B
 ```bash
 magnet:?xt=urn:btih:C9C165E99F60D38632428B9B823CC65028CD76D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:C9C165E99F60D38632428B9B823CC65028CD76D9
 magnet:?xt=urn:btih:911D8E0D46DA84AA6278B5EE34EB6B2D167FECFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ VA - Kerrang! Ultimate Rock Heroes! (2015) [MP3|320 кб/с] <Alternative Rock, 
 magnet:?xt=urn:btih:1D55EE4251CC35E1E72F5CF8B0511D4A9ABFE10D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ Xentry PassThru 12.2020 28.9.2.3 [Multi/Ru]
 magnet:?xt=urn:btih:A4A959B0D5F446A8261B0BF87F9D5E0C2578B32E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:A4A959B0D5F446A8261B0BF87F9D5E0C2578B32E
 ```bash
 magnet:?xt=urn:btih:F691643199DC1273586F6541C4C4185F926EED4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ magnet:?xt=urn:btih:F691643199DC1273586F6541C4C4185F926EED4A
 magnet:?xt=urn:btih:31783DC8A9A8D819D1BAC9D11FC9D1271E8E0928
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +465,8 @@ Melon VPN - это быстрый, неограниченный, стабиль�
 magnet:?xt=urn:btih:7C33CEF9837B440B182ABB9052EFE7A72C0C31F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +492,8 @@ magnet:?xt=urn:btih:7C33CEF9837B440B182ABB9052EFE7A72C0C31F3
 magnet:?xt=urn:btih:0E6E569AC58CCE62C2AB45DE763030860D1DE02A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ magnet:?xt=urn:btih:0E6E569AC58CCE62C2AB45DE763030860D1DE02A
 ```bash
 magnet:?xt=urn:btih:DC96947893850F82852E7BCF66989BE22657C620
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +545,8 @@ magnet:?xt=urn:btih:DC96947893850F82852E7BCF66989BE22657C620
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ magnet:?xt=urn:btih:DC96947893850F82852E7BCF66989BE22657C620
 ```bash
 magnet:?xt=urn:btih:2A5BD459B98B9753372A51735B402729C8D35CDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +600,8 @@ magnet:?xt=urn:btih:2A5BD459B98B9753372A51735B402729C8D35CDD
 magnet:?xt=urn:btih:23C4A7C7A0CB834FEA0D42BB427F2EDF83948042
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +629,8 @@ xrecode II – уникальный конвертер аудио , снабже
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ xrecode II – уникальный конвертер аудио , снабже
 ```bash
 magnet:?xt=urn:btih:15ADC0354E67D0765958073CCF6B1EBEE1846D1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +681,8 @@ magnet:?xt=urn:btih:15ADC0354E67D0765958073CCF6B1EBEE1846D1D
 magnet:?xt=urn:btih:12510DE6627CE2DEC7BE7E9CC432D9093370F178
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ VPN Germany v1.30 Mod [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1E08A1ACE5D1476466C3DB217233C1556E0E1ABB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

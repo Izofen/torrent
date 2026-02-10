@@ -19,6 +19,8 @@ The Scouring - это стратегия в реальном времени, в 
 magnet:?xt=urn:btih:4F207C9EF6CC028697227AE95901D0B7AEA70E24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Painkiller - это современное переосмысление куль
 ```bash
 magnet:?xt=urn:btih:C49C86871E3EAA1B604C854B22C7003ED50DEB99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Need for Speed Heat - это гоночная игра в открытом ми�
 magnet:?xt=urn:btih:78EB2156E55099013BE37F20C748ED90A1870C1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Painkiller / Крещёный кровью (2004) [Ru] (1.64) Repack Necros
 ```bash
 magnet:?xt=urn:btih:3DD7D99E1100F7BEB15CDAAEDBAF88258DC0BF40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:3DD7D99E1100F7BEB15CDAAEDBAF88258DC0BF40
 magnet:?xt=urn:btih:ED9EC805D76CB31E424D31BA415F4B1561EE4D1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ House Flipper 2 / Хаус Флиппер 2 (2023) [Ru/Multi] (1.10.2/dlc) Repac
 ```bash
 magnet:?xt=urn:btih:66309ED7F9B2AA89F13BF804C8C6415800C8B8E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Bench (2025) [Ru/Multi] (Build 20633602) Repack Necros
 magnet:?xt=urn:btih:E0B38BDA573842AAEB6A6757C5175394A94266FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Remains and The Residue — линейная приключенческая 
 ```bash
 magnet:?xt=urn:btih:F653E020EB3880386B56C63CEA12AB4A04529349
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Asterix & Obelix - Mission Babylon (2025) [Ru/Multi] (Build 20404417) Repack Let
 magnet:?xt=urn:btih:1DCB53ED285AE0B6F40B1BA10F9C2185D48C1E84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Need for Speed Heat - это гоночная игра в открытом ми�
 ```bash
 magnet:?xt=urn:btih:6D2FD4F66078FC015924BC581A7E82708231A515
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Dementium: The Ward (2025) [Multi] (1.1.5) Repack Necros
 magnet:?xt=urn:btih:53F34414309EA92031E60B52E17BB87E276D172D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Shrine's Legacy - это ролевая игра, вдохновленная л�
 ```bash
 magnet:?xt=urn:btih:109F6C9F6F7B34624406C82862AF0372C888EAB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:109F6C9F6F7B34624406C82862AF0372C888EAB4
 magnet:?xt=urn:btih:E0A764667028DF123D868EB8F034952D2AA34C3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:E0A764667028DF123D868EB8F034952D2AA34C3E
 ```bash
 magnet:?xt=urn:btih:21514A854E92F7117EDF65931730E28A48FD1B4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:21514A854E92F7117EDF65931730E28A48FD1B4D
 magnet:?xt=urn:btih:B2BAB054A483A4C7EA63412244F8D4C8CD241C83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:B2BAB054A483A4C7EA63412244F8D4C8CD241C83
 ```bash
 magnet:?xt=urn:btih:988BDE4F03C26A28C00937EE2672D5B6D1AC0294
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:988BDE4F03C26A28C00937EE2672D5B6D1AC0294
 magnet:?xt=urn:btih:18352DC673AFBE32246FDBD8C4C3FC0D28559DD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ magnet:?xt=urn:btih:18352DC673AFBE32246FDBD8C4C3FC0D28559DD4
 magnet:?xt=urn:btih:2F631433ACD2BFF292446704377F03468F3C1BFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +486,8 @@ magnet:?xt=urn:btih:2F631433ACD2BFF292446704377F03468F3C1BFD
 ```bash
 magnet:?xt=urn:btih:07D38041FE7AFD7447481091A618845761E927D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ magnet:?xt=urn:btih:07D38041FE7AFD7447481091A618845761E927D5
 magnet:?xt=urn:btih:813D40BB1246A42D0A144A02C211FEF64FAFFD8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ magnet:?xt=urn:btih:813D40BB1246A42D0A144A02C211FEF64FAFFD8E
 ```bash
 magnet:?xt=urn:btih:D549962932360AB3E025819ED49E6B3CEBCFF3ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:D549962932360AB3E025819ED49E6B3CEBCFF3ED
 magnet:?xt=urn:btih:BD3B107B01235AF8034FDA674ED741B2EBB5F9B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:BD3B107B01235AF8034FDA674ED741B2EBB5F9B2
 ```bash
 magnet:?xt=urn:btih:FEC66D856AC21F02F2BA660CDE0F645AC0F77055
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:FEC66D856AC21F02F2BA660CDE0F645AC0F77055
 magnet:?xt=urn:btih:ECACD7FFD3295D66DE48EFDA060FC1117B7D32F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ magnet:?xt=urn:btih:ECACD7FFD3295D66DE48EFDA060FC1117B7D32F4
 ```bash
 magnet:?xt=urn:btih:A057FD28095DCF283F1A863DADAF25DA820A70C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +673,8 @@ Spotify имеет громадный каталог музыки, поддер�
 ```bash
 magnet:?xt=urn:btih:9955498F65F07C2F64CD0DAA5D76C1DCD3256293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

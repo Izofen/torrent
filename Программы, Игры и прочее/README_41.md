@@ -20,6 +20,8 @@ eWeather HDF - это точный прогноз погоды от двух м�
 magnet:?xt=urn:btih:12F03519D586107B075B9C41EF40DE23A56C32B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Talkao Translate - голосовой переводчик. Talkao Translate —
 ```bash
 magnet:?xt=urn:btih:4346953BDF81E3642417BE90C303D122F3342CB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:4346953BDF81E3642417BE90C303D122F3342CB2
 magnet:?xt=urn:btih:F60E3600CA948BE49130FA027B768E48ED3DB7F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ IPTV Pro v7.1.6 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D1A0A934E83EF21027E085E936C370C29A3E48D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ BZ Напоминания и Дни Рождения PRO v3.3.10 Mod by Eco19 [R
 magnet:?xt=urn:btih:4CD248FA5FF7376EF395105742A0490F04AE7F33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ YouTube ReVanced - это реинкарнация проекта YouTube Vanced
 magnet:?xt=urn:btih:57F87344C8328156D5809DD30EFCF1A3A7375B86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ DailyRoads Voyager v8.1.1 (54) Mod by maxi123444 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B936278FF7A38C6C5BB9BEDB4A182AEA9EEF54E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:B936278FF7A38C6C5BB9BEDB4A182AEA9EEF54E3
 magnet:?xt=urn:btih:D77BFBCA64FA764FF60B661B4C6702FCE808D5D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Picsart AI Photo Editor, Video v24.6.4 Final Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3CF3C8866A480EC20B2B0FC64F36BB894C9A0D4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:3CF3C8866A480EC20B2B0FC64F36BB894C9A0D4E
 magnet:?xt=urn:btih:E7295AC6893B33F68DC44B6E0D32CD1D9F917FFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ BZ Напоминания и Дни Рождения PRO v3.3.7 Mod by Alex.Stra
 ```bash
 magnet:?xt=urn:btih:6F8EF90A904DA7DFA0D270149D31F7DD109C6A93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:6F8EF90A904DA7DFA0D270149D31F7DD109C6A93
 magnet:?xt=urn:btih:3328BE50B9C38237966567D596C343502FE1B5E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:6D4345586E4409F410F05D921D03BD553C454E32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ All-In-One Offline Maps v3.15 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:38AC2A142C05557BFE9D7CFC8B293667500911BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ ColorNote — ColorNote это простой блокнот. Он предос�
 ```bash
 magnet:?xt=urn:btih:622AA51A3F3FA142975FC02B9886933A8E4BC056
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ PicWish — фоторедактор с искусственным (   Чита
 magnet:?xt=urn:btih:ED3CB009382F385CBE0B28644243EC28780DE90E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:ED3CB009382F385CBE0B28644243EC28780DE90E
 ```bash
 magnet:?xt=urn:btih:9682A03191C4B08EBCE827408D3884691FA4D147
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ CapCut - Video Editor — бесплатный универсальный инс
 magnet:?xt=urn:btih:F197E23C713F9144E380762952FC88649DC758F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Thenx v5.50 [En] Mod by youarefinished
 ```bash
 magnet:?xt=urn:btih:FE8005C6059DB3D5B6E3A7DAD787A413E3A3C43D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ PrinterShare Mobile Print v12.14.10 Mod by derrin [Ru/Multi]
 magnet:?xt=urn:btih:8F397CBC268A6A028F82A1A12F87054F750002B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ GIF Maker - GIF Editor - видеоредактор, что создан для 
 ```bash
 magnet:?xt=urn:btih:8F9E39C56B4C667F3158D6932CBD9DCE0FA86BF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Blur Photo v6.2 Mod by Dymonyxx [En]
 magnet:?xt=urn:btih:B115ED57166B403D58984BB0AD4D62CDDE749354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Pencil Photo Sketch - профессиональное приложение дл
 ```bash
 magnet:?xt=urn:btih:1C6B95CCF25C8E619D29D91C5289F805C643056C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:1C6B95CCF25C8E619D29D91C5289F805C643056C
 magnet:?xt=urn:btih:B2E19C1B6825526B0518CC5874ACBFF53664BABE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Photomath v8.36.0 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:04FFFF07FCE51306DBE37272C7DE0BE34B167269
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ ARuler - лучшее и бесплатное приложение на Android 
 ```bash
 magnet:?xt=urn:btih:56D729EF7DE275EEFED127E155FBF276C7A10AF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Overlord II | Повелитель [ТВ-2] [2018, TV, 13 ep] BDRip 1080p raw+ru
 magnet:?xt=urn:btih:CF2BB0C7942D0C53010A1804EC500719113DD3BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Gokukoku no Brynhildr / Brynhildr in the Darkness / Брюнхильда во т
 ```bash
 magnet:?xt=urn:btih:ED38F1C48AFEF2C8CE061F7D162A4414C489E8BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Nazo no Kanojo X / Mysterious Girlfriend X / Загадочная девушка
 magnet:?xt=urn:btih:6C653678C69DD4E01966BF3D4B3C4C011DA64F4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Blade | Блэйд [2011, TV, 12] BDRip 720p raw+rus
 ```bash
 magnet:?xt=urn:btih:556EBB4BC0E759AAA497AF3A7678ED91303B01B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Ergo Proxy / Эрго прокси [2006, TV, 23 из 23] HDTVrip 720p raw + rus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Kumo no Mukou, Yakusoku no Basho / The Place Promised in Our Early Days / Beyond
 ```bash
 magnet:?xt=urn:btih:30ECB74A292487A7D06D6224B39F6EA3C777092C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Psycho-Pass 3: First Inspector | Психопаспорт 3: Первый инс
 magnet:?xt=urn:btih:F454812CCE85125D45CD2E82B007B1C8BCE74590
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Tales of Vesperia: The First Strike | Сказания Весперии: Пер�
 ```bash
 magnet:?xt=urn:btih:A80940FFA099DD421D8332A96C1BC2BC62E3579D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Mushishi Tokubetsu Hen: Hihamu Kage | Мастер Муси: Тень, погл�
 magnet:?xt=urn:btih:AD2DE4E1177793C407B82416AF4D03A2DD8C4FC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ Zoku Natsume Yuujinchou | Тетрадь дружбы Нацумэ [ТВ-2] [200
 magnet:?xt=urn:btih:27DA43B62ECFEB39B65E0E8A59C2874CD0626428
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ Hikari to Mizu no Daphne | Daphne in the Brilliant Blue | Дафна: Тайна
 ```bash
 magnet:?xt=urn:btih:5A1D6E6F4A345DCF9BB07B730F91749151A4FDC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ Baki | Баки (ONA-1) [2018, Web, 26 эп.] WEBRip 720p raw+rus
 magnet:?xt=urn:btih:7F323AA4136E8381FB7DD485154A9CEF1AC44C14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ Ima, Soko ni Iru Boku | Now and Then, Here and There | Здесь и сейча�
 magnet:?xt=urn:btih:FEC7A0F45F0C3AF5B1166214F8DFC41570053C28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Kamisama ni Natta hi | The Day I Became a God | День, когда я стал
 ```bash
 magnet:?xt=urn:btih:F6C36689B169D242D851CAB538E54CE3DF8AD643
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ Ore dake Haireru Kakushi Dungeon | The Hidden Dungeon Only I Can Enter | Сил�
 magnet:?xt=urn:btih:715D0C1C1F4448B5FD923529167BB248B6B906B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ Boys Be... | Мальчишки есть мальчишки [2000, TV, 13 + 1] D
 ```bash
 magnet:?xt=urn:btih:749FCA9BD3B5393274B326848D284730423BE43E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ Hyper Police | Гиперполиция [1997, TV, 25 из 25] DVDRip 478p 10-bi
 magnet:?xt=urn:btih:9258330FCB4D01AC15E52319CDCB31FD62CF9509
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ Majo Minarai o Sagashite | Looking for Magical Doremi | Дореми: В пои�
 ```bash
 magnet:?xt=urn:btih:2AE4CCF748AC75244A4F27F32F4ED87E169ABFB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ Zombie Land Saga Revenge / Зомбиленд. Сага [ТВ-2] [2021, TV, 12 e
 magnet:?xt=urn:btih:59DE79D69D2258B8AC97131255E7ABDE83020CEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ Tensura Nikki: Tensei Shitara Slime Datta Ken / The Slime Diaries: That Time I G
 ```bash
 magnet:?xt=urn:btih:83AD2F2DB9A8E7995F4F10AE972C07C637848FC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ Slime Taoshite 300-nen, Shiranai Uchi ni Level Max ni Nattemashita / Я 300 ле
 magnet:?xt=urn:btih:4098A27094B68E134B0925142428346BCDC1DD17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ Fruits Basket the Final TV-3 | Корзинка фруктов: Финал ТВ-
 magnet:?xt=urn:btih:FEB41CC96EB3182F9CF518904510242DFACF6321
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ Ayashi no Ceres | Ceres: Celestial Legend | Подозрительная Цер�
 magnet:?xt=urn:btih:C4B0E918DB771CE79DE155A3BCA434EDB5920B30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:C4B0E918DB771CE79DE155A3BCA434EDB5920B30
 ```bash
 magnet:?xt=urn:btih:2A0F153E337C229E7ABF238BF24E13ECF0E6F23A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +664,8 @@ Cтаршеклассник (   Читать дальше...   )Произво�
 magnet:?xt=urn:btih:9F6F2EB720C65CE5CB6925B546F3AB32EFC0A55A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ UFO Robo Grendizer | Grandizer | Инопланетный робот Гренд�
 ```bash
 magnet:?xt=urn:btih:92276AF137614564AD88123A5EE6DB6F3119BEC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

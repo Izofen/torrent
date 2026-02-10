@@ -19,6 +19,8 @@ Fort Solis — сюжетный триллер от третьего лица, �
 magnet:?xt=urn:btih:A3BD7C470D3433C6DB26F4CA0220D0E077FC8195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Unto The End – зрелищный рисованный платформер о
 ```bash
 magnet:?xt=urn:btih:B9377AB3A3B95C22AE0D149F8C6CB41B6545E49C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Fort Solis - сюжетный триллер от третьего лица, р�
 magnet:?xt=urn:btih:723D93BCD0C55E2A19C07248FD771525506A34B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Through the Darkest of Times (2020) [Ru/Multi] (1.04.03.1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:6D096C5C4DDCED78E2FA538520D17D98D60254D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Undead Wilderness: выживите в неумолимых джунглях, р
 magnet:?xt=urn:btih:485D47CF911CD452DDFD1907C2A9E95D4B0F7022
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Remorse: The List представляет собой мрачное прикл�
 ```bash
 magnet:?xt=urn:btih:263FE8C8B76D6A58A1A3B9AEF59C73A7AB1B379A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Midnight Scenes: The Highway - поинт-н-клик хоррор-жанре, �
 magnet:?xt=urn:btih:95B8DC53F2E958CB9B3B5D9B78AA10B83BC281C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Jenny LeClue - это увлекательный приключенческий 
 ```bash
 magnet:?xt=urn:btih:076E1C71A2123DA22E0E630A43930910E245F6F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Truberbrook / Trüberbrook: A Nerd Saves the World (2019) [Ru/Multi] (1.6-fix) L
 magnet:?xt=urn:btih:163363C20EFA22622CB94B141D426B901178CF02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Labyrinthine - кооперативная хоррор игра, которая 
 ```bash
 magnet:?xt=urn:btih:EC684EECD2CF30F242858785E3E5BE92290B0CBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Hike Isle предлагает игрокам отправиться в путе
 magnet:?xt=urn:btih:D5EDE0FD4E677979426E5C636753BD637CB76FE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Loretta - визуальная новелла, в которой предсто�
 ```bash
 magnet:?xt=urn:btih:BC0DB93218C2FEA282E3A83FAE7F8BDE5F4BDE44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The House of Da Vinci 3 (2022) [Ru/Multi] (1.0.1) License GOG
 magnet:?xt=urn:btih:512E602A2B97915391CA0C820D7A1A58F3061422
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Legend of Kyrandia: Hand of Fate - Book Two (1993) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:CAF2391A085175863DDC654EFFF5FDB613EEBBE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Legend of Kyrandia: Malcolm's Revenge - Book Three (1994) [Multi] (1.0) Lice
 magnet:?xt=urn:btih:BF377F4CC96C6A149B9A20CA2FB4733A6108737C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ PixARK - это огромный мир дикой природы, злобны�
 ```bash
 magnet:?xt=urn:btih:1E24752BF193D9EACFB257AAAF761A03CDCF6759
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Criminal Expert (2023) [Multi] (1.4) License GOG
 magnet:?xt=urn:btih:E4630128B4B87243714D9D0C98DFA1085C1563C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Prison Princess (2020) [Multi] (1.1) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:FA3998D02244B067216938E87A68D2E264B9DE81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Unforeseen Incidents — интерактивная детективная иг�
 magnet:?xt=urn:btih:1AF94693D525A61E945D5501C4AEA7CF7677A48F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Broken Pieces - приключенческая игра, сюжет которо
 ```bash
 magnet:?xt=urn:btih:3EAFF2EDDEC5757C9300CA1B62DF63A1E7881F5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (20221017_1052/dlc) Repack DjDI
 magnet:?xt=urn:btih:7D756C67B3DC1FA12AEDF3BC0A8FEFD3C18BB410
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Demetrios - The BIG Cynical Adventure (2016) [Ru/Multi] (1.2.1) License GOG
 ```bash
 magnet:?xt=urn:btih:BBBFA80943A5A0C0D3FB0003D6E1051D22E3124A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Plague Doctor of Wippra (2022) [Multi] (1.0.3) License GOG
 magnet:?xt=urn:btih:7F5D2AB68968F22B1163C015B0AF00189D365981
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ As Dusk Falls — это оригинальная интерактивная д�
 ```bash
 magnet:?xt=urn:btih:AB13018EE0FCEB293F75C57B7975690AAAC1397B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Knights and Bikes (2019) [En] (1.12_rc3_v0_u) License GOG
 magnet:?xt=urn:btih:3C3646E5AE792CBA0A7915ECEADB4AEA3EB97253
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Sludge Life (2021) [Ru/Multi] (251013) License GOG
 ```bash
 magnet:?xt=urn:btih:AC34C0422EC3E26EC777D4A9AEC5140E927976EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

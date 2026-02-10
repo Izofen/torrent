@@ -22,6 +22,8 @@ A3 Never In A Million Years(   Читать дальше...   )Жанр: Pop Roc
 magnet:?xt=urn:btih:1A42E6A5A78A9883EA18C93959CF9F44C9B54D5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Bullet For My Valentine — британская металкор-группа. 
 ```bash
 magnet:?xt=urn:btih:466E7FA09FB358B7CB319DDB9C206D2F8F126F5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ A4 Maximum Joy(   Читать дальше...   )Жанр: Electronic, Rock, Po
 magnet:?xt=urn:btih:438AFE97694D907AB666D22E3B16F6A61A682133
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Hanson - This Time Around (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Soft Rock, 
 ```bash
 magnet:?xt=urn:btih:987664214E6F11079542D287358ED422A18C20BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Orphaned Land — израильская рок-группа, объединяю
 magnet:?xt=urn:btih:3EFCC2A565AE0D72AEAF067B350E52991FB88680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Естрадна Палитра/Variety Palette (1973) [FLAC 2.0|192/24|ima
 ```bash
 magnet:?xt=urn:btih:8D6E9BE83D0223A49F259F34022772FCCCCBCCF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ A4 Good Rockin' Tonight(   Читать дальше...   )Жанр: Rock & Roll
 magnet:?xt=urn:btih:06D96FA5D25F62C8B3C9AEC976E2B649BE935301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ A4 Дует ''Акварел'' • Обич Неизбежна • Неизбе�
 ```bash
 magnet:?xt=urn:btih:74D83ACBC3B7D27A92BC85A6A507A68B677E5959
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ The Alan Parsons Project - Tales of Mystery and Imagination [40th Anniversary Ed
 magnet:?xt=urn:btih:5C34CB758DFA8DE2304D4769AFD7990C09BDCD40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ A4 Eva-Maria Pieckert - Maledetta Primavera(   Читать дальше...   )�
 ```bash
 magnet:?xt=urn:btih:4ADD5164C486517397B0807D42F6A1F0B686C002
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ A4 Alison(   Читать дальше...   )Жанр: Country Rock, Soft RockП
 magnet:?xt=urn:btih:1F7861D3A51DE2A409E76E5BC53E0E3E83478CF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Joe Dassin - Le Jardin Du Luxembourg (1976) [FLAC 2.0 24/192|tracks(Vinyl-Rip)] 
 ```bash
 magnet:?xt=urn:btih:EB1792E8B78554439E52F65A953BD7C250C029B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +371,8 @@ Slaughter (Сло́тер) — американская хард-рок груп
 magnet:?xt=urn:btih:5551D4F2EC9F35AD93C7175935EC410E81E47434
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ A4. Fire Dance 4:30(   Читать дальше...   )Жанр: RockПродо�
 ```bash
 magnet:?xt=urn:btih:678C1E76A64F21449B32FE44894297827A3BABE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +429,8 @@ Alice Cooper – 20 Альбомов (1972-2011) [FLAC 2.0 24/96|tracks (Vinyl-R
 magnet:?xt=urn:btih:08B74910E7212F482E95BBBCF1D017F23A84101E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +454,8 @@ Elvis Presley - Collection 11 Альбомов 13 LP (1956-2007) [FLAC/APE 2.0 2
 ```bash
 magnet:?xt=urn:btih:89756A37564880E170C3DA038AA4750728566609
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +484,8 @@ A4 Flying Saucers - Texas Calls You Home(   Читать дальше...   )Жа
 magnet:?xt=urn:btih:30DD3AB107DF4D912AB786B86DDFB48CD09C2554
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +512,8 @@ A4 Help Me Make It Through The Night(   Читать дальше...   )Жанр
 ```bash
 magnet:?xt=urn:btih:447CC9A5174872247930E0E2AD535FC657F7CF80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +542,8 @@ A4 Katri Helena - Vain Hieman Rauhaa = A Little Peace(   Читать дальш
 magnet:?xt=urn:btih:0C584D45710EE4D9660F516AE982A349228EFF5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ GNOB - 2 Albums (2018-2023) [FLAC|24/48|tracks|WEB-DL] <Heavy Psych, Fuzz, Stone
 ```bash
 magnet:?xt=urn:btih:F1EF2B759EAB75623C73843D9B0CBD933A719F3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +599,8 @@ Coffin Hag - Prairie Tyrant (2023) [FLAC|24/44.1|tracks|WEB-DL] <Psych Stoner Do
 magnet:?xt=urn:btih:2BBCDB8F39FE4FE53E7AA3D9CF15D85E9F1A70C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +627,8 @@ Great White (Грейт Уайт, с англ. — «Большая бела
 ```bash
 magnet:?xt=urn:btih:9756C2E3DDC6AE75B2359503FA693EAAF81635BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +657,8 @@ Secret Service - When The Night Closes In (1985) [FLAC 2.0 24/192|traks(Vinyl-Ri
 magnet:?xt=urn:btih:232E9787FB355287810D7BEC66858DEEB9DC4C28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +686,8 @@ B. B. King - Blues Masters (Compilation) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)] 
 magnet:?xt=urn:btih:4B633A2D7C7EF9837296F8875CFF415B8402336C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +712,8 @@ magnet:?xt=urn:btih:4B633A2D7C7EF9837296F8875CFF415B8402336C
 ```bash
 magnet:?xt=urn:btih:312CE21DCEF77E52055E731CEA0F02EB2550BA35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -691,6 +741,8 @@ Robert Michaels - Paradiso (1998) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)] <Flamen
 ```bash
 magnet:?xt=urn:btih:CBBE624EF642C2696EFC1CEDFF8EBC92BDCDEE94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

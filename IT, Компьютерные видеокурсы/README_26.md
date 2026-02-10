@@ -22,6 +22,8 @@ Node Микросервисы / Node Microservices
 magnet:?xt=urn:btih:5D79A34FF87B5B5A4407F2223D3B3BA26D08A514
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Josh W Comeau | The Joy of React (2023) WEB-DL [EN]
 magnet:?xt=urn:btih:EF0B99F12EE625D0820A6C3FADB694B75A43FD64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ HashiCorp Vaultэто инструмент с открытым исходным 
 magnet:?xt=urn:btih:3A59DFB139E10E1849B7EC8E81386DF3ABA91A8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Slurm (Слёрм), Денис Наумов, Антон Рязанцев | Pytho
 ```bash
 magnet:?xt=urn:btih:8D29B993691D4BC63DA32D8A0A450CAFD4EDBCEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Slurm (Слёрм), Пётр Щербаков | Микросервисы: про
 magnet:?xt=urn:btih:1C9E3EFA9E8F5947492F309743E8E6854BC1925C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ JS-разработчики соберутся в онлайне, чтобы о�
 ```bash
 magnet:?xt=urn:btih:35501C1D122314031B8C6362879A6D6727DB97D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ SQL для тестировщиков (2017)
 magnet:?xt=urn:btih:C5822C1BF3D083C693E8CAF75DA98AED47FC22D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ Udemy, Илья Фофанов | Алгоритмы и структуры дан
 ```bash
 magnet:?xt=urn:btih:0DC5D8CD06A69F4933F3B823FDFBD7CEA63EEBBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ Skillbox, Артём Володкин, Андрей Неляпин, Михаил
 magnet:?xt=urn:btih:A1F272C48CF3AFB560DCE900AF89ABA2DDCC0195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ Changellenge, Семен Бохер и др. | Excel для карьеры и п
 magnet:?xt=urn:btih:5FEA5693DCD46C8F2EABC784F052E9CC69CE81F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ magnet:?xt=urn:btih:5FEA5693DCD46C8F2EABC784F052E9CC69CE81F0
 magnet:?xt=urn:btih:F820BF2EF7D801ADB1CF6541A993B8F7F2D9F88A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ Udemy, Александр Сокирка (Alexandr Sochirca) | Весь WordPres
 magnet:?xt=urn:btih:895F1EA10203B369274D4CCA70195817D731994A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ Udemy, Александр Сокирка (Alexandr Sochirca) | Весь WordPres
 ```bash
 magnet:?xt=urn:btih:74F5701C70D7269E7007415681490898494F74F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ GeekBrains, Александра Чижова и др. | Анализ данны
 magnet:?xt=urn:btih:AFD2F9308FB0BAA9027E2BE66F51B18F854F3462
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +408,8 @@ magnet:?xt=urn:btih:AFD2F9308FB0BAA9027E2BE66F51B18F854F3462
 magnet:?xt=urn:btih:287419AFDEE40932AC1769BED58C7931B40527A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ Udemy, BHM Engineering Academy, Israel Gbati | ARM GNU Assembly Programming From
 magnet:?xt=urn:btih:723233D63BB82CAB19863B59591BAAED96664F10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ Python-разработчик создаёт бэкенд сайтов: мозг
 magnet:?xt=urn:btih:413FBCE677F65096727973D054CB0AC50DD087FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:413FBCE677F65096727973D054CB0AC50DD087FD
 ```bash
 magnet:?xt=urn:btih:81BEF772542827B4B12420D361BD4E7BCCB4A0B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ Softwaretesting, Арсений Батыров | Chrome DevTools: Инструм
 magnet:?xt=urn:btih:DF9490B61DCB61299DE6E84D34085232DAFFECCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:DF9490B61DCB61299DE6E84D34085232DAFFECCF
 ```bash
 magnet:?xt=urn:btih:72E0CA2DF87C90161E3C0FB365C5EBEEFD8EAD38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ Infostart | INFOSTART EVENT (2022) WEB-DL [AD] [RU]
 ```bash
 magnet:?xt=urn:btih:407BB963CF854F4C011E973F664D5945B767CDA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ Udemy, YouRa Allakhverdov | Android разработка - с нуля до пр
 magnet:?xt=urn:btih:3E179C1955ECFAABA6CC0F2A8916B47B177D0F98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ Slurm (Слёрм), Владислав Килин, Кирилл Борисов |
 ```bash
 magnet:?xt=urn:btih:5FAC3C5E1A8160D5D8DEF238BAC669B68FAD7896
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +657,8 @@ Slurm (Слёрм), Николай Колядко | Чистая архитек�
 magnet:?xt=urn:btih:992616037D46007ABD909539EBC297C12861D444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ magnet:?xt=urn:btih:992616037D46007ABD909539EBC297C12861D444
 ```bash
 magnet:?xt=urn:btih:8F63B394CF8DA486317C36A8ACB7883D2FCF5B17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +711,8 @@ Thinknetica Pro, Антон Давыдов | Dry-rb: что, зачем и ка�
 ```bash
 magnet:?xt=urn:btih:03E09F6E8BADB7C0DDF6CB70CAFEE53530F37B25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

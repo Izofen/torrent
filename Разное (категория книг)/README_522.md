@@ -1,3 +1,31 @@
+###  Публикация: 1204935   (783991) от 08.02.2018
+
+Лиза Барретт | Как рождаются эмоции. Революция в понимании мозга и управлении эмоциями (2018) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лиза Барретт проливает свет на потрясающую науку о наших эмоциях и показывает, почему она важна для таких разных областей жизни как здоровье, воспитание детей или романтические отношения.
+
+Классический взгляд на эмоции говорит, что у нас в мозгу есть много таких эмоциональных цепей, и каждая вызывает собственный набор изменений, то есть особый отпечаток. Возможно, (   Читать дальше...   )Жанр: Практическая психология, нейропсихологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CEF6E017B0A6D2D675F22DFD8C2FD8E5FF1DD23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204932   (784030) от 08.02.2018
 
 Марина Лукьянцева (сост.) | 1000 лучших впечатлений, которые все мечтают испытать (2017) [PDF]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:2AADF2BC00DEB7566BD3DE2B4347D2CF453A7A19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:2AADF2BC00DEB7566BD3DE2B4347D2CF453A7A19
 magnet:?xt=urn:btih:9C361A35CD21F69AD2D864D7568819EC0A4E1067
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +98,8 @@ magnet:?xt=urn:btih:9C361A35CD21F69AD2D864D7568819EC0A4E1067
 ```bash
 magnet:?xt=urn:btih:1B94785F05FEF91747B7B5C5D83CB269304988C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +125,8 @@ magnet:?xt=urn:btih:1B94785F05FEF91747B7B5C5D83CB269304988C1
 magnet:?xt=urn:btih:EFDB1A023945348C77EC3A4BF1F73380925BA142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +150,8 @@ magnet:?xt=urn:btih:EFDB1A023945348C77EC3A4BF1F73380925BA142
 ```bash
 magnet:?xt=urn:btih:4BA548017FFD1C78D8A93955CE34DC76DB50C651
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +177,8 @@ magnet:?xt=urn:btih:4BA548017FFD1C78D8A93955CE34DC76DB50C651
 magnet:?xt=urn:btih:7D3811F94231AADDACE738A3A2EA3330A5012AA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +202,8 @@ magnet:?xt=urn:btih:7D3811F94231AADDACE738A3A2EA3330A5012AA2
 ```bash
 magnet:?xt=urn:btih:0CA2100EC5883E1D1D9C86AA45ECF9F479B21813
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +231,8 @@ magnet:?xt=urn:btih:0CA2100EC5883E1D1D9C86AA45ECF9F479B21813
 magnet:?xt=urn:btih:E05D8A1ED2119DA06AFBB3CA78015D66F9FEB22A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +257,8 @@ magnet:?xt=urn:btih:E05D8A1ED2119DA06AFBB3CA78015D66F9FEB22A
 magnet:?xt=urn:btih:8B4392912383BBF515D485CD125C84FA8A0C803B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +282,8 @@ magnet:?xt=urn:btih:8B4392912383BBF515D485CD125C84FA8A0C803B
 ```bash
 magnet:?xt=urn:btih:C18787EDA05214D996478332FD329FFA73E33858
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +311,8 @@ magnet:?xt=urn:btih:C18787EDA05214D996478332FD329FFA73E33858
 magnet:?xt=urn:btih:390DCB98B2C04CDFE07D28C6052D589107D0F6FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +338,8 @@ magnet:?xt=urn:btih:390DCB98B2C04CDFE07D28C6052D589107D0F6FA
 magnet:?xt=urn:btih:4F4558AE8183F846A0E82C770C1E8ABB65B6CB5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +363,8 @@ magnet:?xt=urn:btih:4F4558AE8183F846A0E82C770C1E8ABB65B6CB5B
 ```bash
 magnet:?xt=urn:btih:058F2D4E6AAE3F07F62EE4CEA5079AF7AAB811EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +390,8 @@ magnet:?xt=urn:btih:058F2D4E6AAE3F07F62EE4CEA5079AF7AAB811EE
 magnet:?xt=urn:btih:4DC5F2B9251558643D38C61D51402D45339B0FE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +415,8 @@ magnet:?xt=urn:btih:4DC5F2B9251558643D38C61D51402D45339B0FE6
 ```bash
 magnet:?xt=urn:btih:2CEEDF3C41B5C74F42F75F58021901FF0913BC96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +444,8 @@ magnet:?xt=urn:btih:2CEEDF3C41B5C74F42F75F58021901FF0913BC96
 magnet:?xt=urn:btih:81A9E3935A26852AB2EE74806FA30DCD9D9657CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +472,8 @@ magnet:?xt=urn:btih:81A9E3935A26852AB2EE74806FA30DCD9D9657CD
 magnet:?xt=urn:btih:EC2AF232770AACCEA07419FB3884DCC76D0ED8FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +499,8 @@ magnet:?xt=urn:btih:EC2AF232770AACCEA07419FB3884DCC76D0ED8FD
 ```bash
 magnet:?xt=urn:btih:8B56D21B32BFC9C0BBD5E4AB95B97E88BAD19A89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +529,8 @@ magnet:?xt=urn:btih:8B56D21B32BFC9C0BBD5E4AB95B97E88BAD19A89
 magnet:?xt=urn:btih:95EF0E989C5F4F4D1CCDBA4BE905B6609FCF49A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +554,8 @@ magnet:?xt=urn:btih:95EF0E989C5F4F4D1CCDBA4BE905B6609FCF49A5
 ```bash
 magnet:?xt=urn:btih:B17D1171DEC4A901E1CA1FEACD895C6F11D0D6BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +581,8 @@ magnet:?xt=urn:btih:B17D1171DEC4A901E1CA1FEACD895C6F11D0D6BE
 magnet:?xt=urn:btih:49F5C63161B5D3627B262B2D7D7F13841D8D1703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +606,8 @@ magnet:?xt=urn:btih:49F5C63161B5D3627B262B2D7D7F13841D8D1703
 ```bash
 magnet:?xt=urn:btih:414E0D7CE16B046C5BE7C9FD6710C0CF941169C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +636,8 @@ magnet:?xt=urn:btih:414E0D7CE16B046C5BE7C9FD6710C0CF941169C7
 magnet:?xt=urn:btih:A4C036300D5B3400BAAA6F252E565DB65AA115D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +661,8 @@ magnet:?xt=urn:btih:A4C036300D5B3400BAAA6F252E565DB65AA115D7
 ```bash
 magnet:?xt=urn:btih:4661430F8B4982B3A5FC2567A754A9ABABE317A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,29 +691,7 @@ magnet:?xt=urn:btih:4661430F8B4982B3A5FC2567A754A9ABABE317A5
 magnet:?xt=urn:btih:E6674A842AB9178DA18E0EC9A567F73D9F24B828
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204272   (784842) от 05.02.2018
-
-Роберт Киган, Лайза Лейхи | Неприятие перемен (2017) [PDF, FB2, EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современные руководители и их команды зачастую сталкиваются с проблемой крайне тяжелого внедрения перемен в организации. Люди сопротивляются любым изменениям – даже если всем сердцем их поддерживают. Исследования в этой области показывают, что проблема перемен зачастую не является проблемой воли. Основной трудностью становится устранение разрыва между тем, чего мы (   Читать дальше...   )Жанр: Зарубежная деловая литератураФормат: PDF, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1A5F2171C70B335CF9D4A45686C125D2E903C11
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

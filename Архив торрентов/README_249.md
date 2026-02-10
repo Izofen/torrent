@@ -21,6 +21,8 @@ HomeBank можно настраивать полностью под себя, �
 magnet:?xt=urn:btih:C6A6D3F4B7011EDA5954EA8337935321F56C684D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 magnet:?xt=urn:btih:1345DF3A217E0B747FFA3DE5D206B16EAC5487FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:B6C4241234924561B64E8AAF5AD98D97B101C256
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:A59B756661D28BBF0CE748897DB244CDECD7C716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:A59B756661D28BBF0CE748897DB244CDECD7C716
 magnet:?xt=urn:btih:15E27EBE813F95AEC5463590116EA370D3F9F943
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ FastStone Capture представляет собой довольно мощн�
 ```bash
 magnet:?xt=urn:btih:F7BFEA64A8D4B22DF6DEDD31CF237439A71A11BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Spotify имеет громадный каталог музыки, поддер�
 magnet:?xt=urn:btih:CF557B88F4B2153801B48FBE9D0BACE81C9604D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ LosslessCut — простой видеоредактор для нарезки 
 magnet:?xt=urn:btih:DABB0623C5CEC90E73C0810178DF38376BFE80AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:DABB0623C5CEC90E73C0810178DF38376BFE80AA
 ```bash
 magnet:?xt=urn:btih:1CD20E756BAEF3B10B073C8E16CB7ABBD8CD6BBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Foxit PDF Editor Pro (ранее известный как Foxit PhantomPDF Busi
 magnet:?xt=urn:btih:7BE4F996753ACDEA6EB1D08762EA02DBB7ED4A66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:FFF3DA89FE0A4CE4FFDC6BE98B4883E9DBD4B81F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Total Commander 11.03 (22.05.2024) Portable by MiG [Ru/En]
 magnet:?xt=urn:btih:7C4B881AD2090E382A3FF45355BA3200CE26CDAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:7C4B881AD2090E382A3FF45355BA3200CE26CDAD
 ```bash
 magnet:?xt=urn:btih:5D92A9D925EC5C6241B76E20068244CBE85D1763
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Windows 10 Professional 22H2 x64 Game OS 1.6 by CUTA [Ru]
 magnet:?xt=urn:btih:0AF2A734FB47FA859BC7CE5F59E749E0EA98D89C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ SupRemo 4.11.2.2617 [Multi/Ru]
 magnet:?xt=urn:btih:6E2BEDA19E24FA3C4BC363758C71179DE0418714
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:5EB020AA7CD97D886D879428FC7D803AF93EF334
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ PictureThis - Plant Identification v3.84 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:DC15886850738E10E53805845CC741D85A423FC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ ES File Explorer (File Manager) — это полнофункциональны�
 ```bash
 magnet:?xt=urn:btih:AFB59099FF17E6BCD8BC15E724C910D71E52EB4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:A9DFCCDA9B4143C735C26827C494463ACEE85500
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Adobe Audition - Программа для работы с аудио-данны
 ```bash
 magnet:?xt=urn:btih:B4557CAA20521ECE3FA0D314B60DE0747815FDDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:FC2A4D5754B7742D0F06ECB220FE9497CC70CAC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ Bandizip — программа для работы с архивами. Дан�
 ```bash
 magnet:?xt=urn:btih:BB4D6C6969D2607BB06DDF5FBA0142FF2E27A84F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ SamDrivers 24.6 LAN [Multi/Ru]
 magnet:?xt=urn:btih:F2E6033F88EC30E28923D8BEBC05130C70EF623C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:13CA634A33FBAC332A891A094B0372376008B226
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:13CA634A33FBAC332A891A094B0372376008B226
 magnet:?xt=urn:btih:33FD0944146EC7914AD3102646E09014BCFCDAB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Files Inspector Pro 4.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E8BF1D74ACBC19F82C47C668CD61632679D9F3BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

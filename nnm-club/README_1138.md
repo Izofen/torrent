@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:E99CA51A74F09438E6A88B8DB63C615F945F54E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:E99CA51A74F09438E6A88B8DB63C615F945F54E0
 magnet:?xt=urn:btih:76C44843610243419892CB4A1554C34E5821F83C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:76C44843610243419892CB4A1554C34E5821F83C
 ```bash
 magnet:?xt=urn:btih:505DF172DD763609E7E5411956F4E87636CE01FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:505DF172DD763609E7E5411956F4E87636CE01FD
 magnet:?xt=urn:btih:C4D9A08FBCB4109714CCDFF57D58B4A12612D60A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (1417829 Patch 5/dlc) Repack Let'sР
 magnet:?xt=urn:btih:AE93A0E7226B4CC0702EE9A4791EE2D431F15EF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Frostpunk 2 открывает новые грани жанра выживани
 ```bash
 magnet:?xt=urn:btih:A940B6ED928AADE6CE79653E1979CB1EEDCD1C6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ VA - Понемногу отовсюду by Yuridar #S (1958-2022) Compilation A
 magnet:?xt=urn:btih:F770B820F55C9D0DF63AAE7DA316ADADF7A3C2E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:F770B820F55C9D0DF63AAE7DA316ADADF7A3C2E0
 ```bash
 magnet:?xt=urn:btih:3535C0417719CB9E246DCD7E17E86C603FBF835B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:3535C0417719CB9E246DCD7E17E86C603FBF835B
 magnet:?xt=urn:btih:A5B57D307FA2EE248A8C6EA6C9EF1C63A82F4E9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ BBC: Калигула. Что это было / Caligula with Mary Beard (2013) 
 ```bash
 magnet:?xt=urn:btih:099FC9FE2899DC8F3EBD100BCCB0C24EEBFFCCBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:099FC9FE2899DC8F3EBD100BCCB0C24EEBFFCCBF
 magnet:?xt=urn:btih:4928AAF2FD336D96DA71304F84164CEB3401D0D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:4928AAF2FD336D96DA71304F84164CEB3401D0D7
 ```bash
 magnet:?xt=urn:btih:147DAE1DE64064609CFAE912F1A138A8521C70EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:147DAE1DE64064609CFAE912F1A138A8521C70EC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ STAR WARS: Episode I: Jedi Power Battles (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:91CEA4130ADCFC23830BE36F2AD84720E708287F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:91CEA4130ADCFC23830BE36F2AD84720E708287F
 magnet:?xt=urn:btih:DF09020E1EDC59D27B6CA3D37364D68BFCBE36FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:DF09020E1EDC59D27B6CA3D37364D68BFCBE36FF
 ```bash
 magnet:?xt=urn:btih:AC4192493F4644EF092B04E4C7CD334579201353
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:AC4192493F4644EF092B04E4C7CD334579201353
 magnet:?xt=urn:btih:87827AC64693B3F499A962DDD57F541C5ADF5435
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:87827AC64693B3F499A962DDD57F541C5ADF5435
 ```bash
 magnet:?xt=urn:btih:BA9EA83D48CB48ED01E75D8EE5E2B520FA5B49E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Generic Typeface Collection — это серия шрифтов без засе
 magnet:?xt=urn:btih:F13ADA00507FA4C6E6095D5F5A844053A8DB2823
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:F13ADA00507FA4C6E6095D5F5A844053A8DB2823
 ```bash
 magnet:?xt=urn:btih:8986E5D3D8C70E5D83F478D91AF7259DE815E715
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:8986E5D3D8C70E5D83F478D91AF7259DE815E715
 magnet:?xt=urn:btih:B89AF9BE90831BA16B5054AEDFBEDA19EF05BC2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ InfoCity - Азербайджанский ежемесячный журнал о
 ```bash
 magnet:?xt=urn:btih:025DE7DBCC6400251F586C8EE80FEBA029FE9F32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:6C8DE1511CD6EED0F86F4C8C9F20CD2CDFB4C80F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:6C8DE1511CD6EED0F86F4C8C9F20CD2CDFB4C80F
 magnet:?xt=urn:btih:86EC67231D95062AD4BB1C47FF37B33AA9466A17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Emotive Type — это изысканный шрифт с засечками, �
 ```bash
 magnet:?xt=urn:btih:CE6909A165851EAF9A6F2C2071ACC24336F70AF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +682,8 @@ Neuron - Compilation 2 (2025) [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:103C121BD9576A3C1AC794A1AFAC3D9EE007F3A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

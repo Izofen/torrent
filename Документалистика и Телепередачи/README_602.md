@@ -1,3 +1,29 @@
+###  Публикация: 658172   (807688) от 19.05.2013
+
+Дунай: Европейская Амазонка. От Чёрных лесов до Чёрного моря / Danube: Europe's Amazon. From The Black Forest to The Black Sea (2012) HDTVRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дунай, протекающий по территориям 10 стран, является самой многонациональной рекой в мире и второй по протяжённости рекой в Европе (после Волги), объединяющей разнообразные ландшафты и природные зоны. Река берёт исток на территории Германии, в горах Шварцвальда. Далее Дунай протекает или является границей десяти государств: Германия, Австрия, Словакия, Венгрия, Хорватия, (   Читать дальше...   )Производство: Германия, Франция, США, ScienceVision, ORF Universum, Norddeutscher Rundfunk (NDR)Жанр: Документальный, природа, флора, фаунаРежиссер: Михаэль Шламбергер, Рита ШламбергерПеревод: Профессиональный одноголосый (АРК-ТВ, текст читал Игорь Тарадайкин)Продолжительность: 00:45:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008810   (807823) от 22.04.2016
 
 История игрушек. Оловянные солдатики (2013) HDTVRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:3C1DC4B7942609A0527025BDAC7DA06C05A9E2D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:3C1DC4B7942609A0527025BDAC7DA06C05A9E2D1
 magnet:?xt=urn:btih:20F72F06E9F1CFBC530241D5150D194F7B869ADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:20F72F06E9F1CFBC530241D5150D194F7B869ADC
 ```bash
 magnet:?xt=urn:btih:BAB4248DC450DDDD76DF5E8040E912D27FD7739E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:BAB4248DC450DDDD76DF5E8040E912D27FD7739E
 magnet:?xt=urn:btih:4A5BB8C5B661F65DACE952CA5265FEEFF77DB9EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:4A5BB8C5B661F65DACE952CA5265FEEFF77DB9EE
 ```bash
 magnet:?xt=urn:btih:CF96CDA106092C95452ABCFE662DF9228BD5E9C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:CF96CDA106092C95452ABCFE662DF9228BD5E9C7
 magnet:?xt=urn:btih:03367D97FC5279989966123C045F63D12C4D73F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:03367D97FC5279989966123C045F63D12C4D73F5
 ```bash
 magnet:?xt=urn:btih:3AD14E741A844E9DDE1E0E5F34F475CB5B84840F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:3AD14E741A844E9DDE1E0E5F34F475CB5B84840F
 magnet:?xt=urn:btih:9E851D400AF71440342A5A03E05DB2FB8F8B8DC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:9E851D400AF71440342A5A03E05DB2FB8F8B8DC3
 ```bash
 magnet:?xt=urn:btih:CCE7FED04A7FC230D5165274FEFD0F9F7CCB8FEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:CCE7FED04A7FC230D5165274FEFD0F9F7CCB8FEE
 magnet:?xt=urn:btih:634319E717E338A500E610B24B24E14FEF1CBCCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:634319E717E338A500E610B24B24E14FEF1CBCCD
 ```bash
 magnet:?xt=urn:btih:D5C58D6FF1893F613B2EAFC97F3AF1EF31CD8DAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:D5C58D6FF1893F613B2EAFC97F3AF1EF31CD8DAA
 magnet:?xt=urn:btih:8ED051747141E74B67074666C36080ED2042844C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:8ED051747141E74B67074666C36080ED2042844C
 ```bash
 magnet:?xt=urn:btih:DB38E1B995AD47BCE854E35660368251E8B8F3FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:DB38E1B995AD47BCE854E35660368251E8B8F3FB
 magnet:?xt=urn:btih:51C3F4A2FA6D27B79B2800D02E6B05B0387105C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:51C3F4A2FA6D27B79B2800D02E6B05B0387105C0
 ```bash
 magnet:?xt=urn:btih:D749DB4F9F6791EB5FF488B28180CDAC8232191A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:D749DB4F9F6791EB5FF488B28180CDAC8232191A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:D749DB4F9F6791EB5FF488B28180CDAC8232191A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:D749DB4F9F6791EB5FF488B28180CDAC8232191A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:D749DB4F9F6791EB5FF488B28180CDAC8232191A
 magnet:?xt=urn:btih:0D075708C14B69F943A1F12FEFB1316BC20B045C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:0D075708C14B69F943A1F12FEFB1316BC20B045C
 ```bash
 magnet:?xt=urn:btih:2CE30E62D92B6D974C162D6557AA83B4AA201F37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:2CE30E62D92B6D974C162D6557AA83B4AA201F37
 magnet:?xt=urn:btih:AD3EE518509EA338B7371476176EEE12DF0A08F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:AD3EE518509EA338B7371476176EEE12DF0A08F7
 ```bash
 magnet:?xt=urn:btih:18DD22F92848650F27E913869284E8AF972376E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:18DD22F92848650F27E913869284E8AF972376E1
 magnet:?xt=urn:btih:653D09E4485C955B2153197811DDE34CE67A7A66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:653D09E4485C955B2153197811DDE34CE67A7A66
 ```bash
 magnet:?xt=urn:btih:7097E71ED6C7F35052AD8E985461B53994BF8CFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:7097E71ED6C7F35052AD8E985461B53994BF8CFA
 magnet:?xt=urn:btih:0DF70E128D70CBF6F4760E333D362586664084A6
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187350   (809715) от 10.01.2018
-
-Проект «Наци»: Дьявольский замысел / Project Nazi: Blueprints of Evil (2017) HDTVRip (6 серий из 6)
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идея величия и процветания новой Германии стоила более 50 млн жизней и попытки уничтожить целый народ. Раскрываем дьявольский план самого страшного режима в истории. Как немцев соблазнила идеология нацизма с помощью выдающихся планов, отличной подготовки и коварной пропаганды.Производство: Великобритания, Midnight Oil PicturesЖанр: Документальный, война, историяРежиссер: Билл ТомасПеревод: ДублированныйПродолжительность: 6 х ~ 00:52:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C003AFE93ED44E69024408E7C052B54709380641
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

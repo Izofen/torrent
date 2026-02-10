@@ -19,6 +19,8 @@ NG. Осушить океан: корабли-призраки Атлантик�
 magnet:?xt=urn:btih:C651836074F6050FE2626D4B8039A1EDFCA6E535
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NG: Запреты. Экстремальная кухня / Taboo. Extreme Cuisi
 ```bash
 magnet:?xt=urn:btih:97ACE0B244481A92496207BE91169A376DC0A3C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG: Запреты. Кровавые Обычаи / Taboo. Blood Rites (2004) TV
 magnet:?xt=urn:btih:D85AC908930A3A1AB6FBB769F1FDD37EE6CFAEFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NG: Запреты. Деликатесы / Taboo. Delicatessen (2003) SATRip
 ```bash
 magnet:?xt=urn:btih:AE87598BC452B4C87F9C68AE735103AE0F0BD74D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NG: Запреты. Лечение живностью / Taboo. Creature Cures (2
 magnet:?xt=urn:btih:1733026EE283C0324613ABC23DAC5E581A0592D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NG. Суперсооружения Третьего рейха (1 сезон, 6 
 ```bash
 magnet:?xt=urn:btih:2BABB24B6DA437DED5EAFF8377346885475F19F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ NG: Апокалипсис: Восхождение Гитлера (2 часть)
 magnet:?xt=urn:btih:A7DBC8B3F75FBAD529B6DBAE602505B213681708
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ NG. Самурайский меч / Samurai Sword: The Making of a Legend (2007)
 magnet:?xt=urn:btih:DF58918FBDB10293AB692430CC8F0DD492779F84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ NG. Семейное оружие: Ковбойская перестрелка /
 ```bash
 magnet:?xt=urn:btih:94612D43C15BDA48B36C1B7628E5E413DA6ECFDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ National Geographic: Сканеры древнего мира. Египетск�
 magnet:?xt=urn:btih:74C76B0F99CD5A44BE367637E0D1BD576B499FEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ NG: Битва за Мидуэй. / The Battle for Midway. (1998) DVDRip
 ```bash
 magnet:?xt=urn:btih:182F33623DD93D64CE18DEF161FD3DE56977986F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ NG: Взгляд Изнутри. Путешествие в Космос / Inside
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ NG: Известная Вселенная. У Пределов Познания 
 ```bash
 magnet:?xt=urn:btih:9A0C2B652479425070FE70FC4DEEA338599FE211
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ NG. Когда крокодилы ели динозавров / When crocs ate d
 magnet:?xt=urn:btih:43C132EBA1945A5E871C267B7E0566AC94AB767C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ NG. Мухи и пиявки (мерзкие существа) / Flies and leech
 ```bash
 magnet:?xt=urn:btih:90A563B93E61924D305A43907C44B18296A0E9A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ NG: Снежный барс Афганистана / NG: Snow Leopard of Afghani
 magnet:?xt=urn:btih:938D0CEEDF3031FE975F56D96F548DC82E950972
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ NG. Затерянные царства Китая / The Hidden Kingdoms of Chin
 ```bash
 magnet:?xt=urn:btih:74AB48C5CB721E68756A11D1EA66074A39DACC7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:74AB48C5CB721E68756A11D1EA66074A39DACC7E
 magnet:?xt=urn:btih:AF1910AC97C2032F0E0C51E7C3DBB2C711E0CE37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Nat Geo Wild: Знакомьтесь - динозавры / Make Me A Dino (2010
 magnet:?xt=urn:btih:5F35AA81AC4B6530112C6ED90AA5E135BCA89C1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:5F35AA81AC4B6530112C6ED90AA5E135BCA89C1C
 ```bash
 magnet:?xt=urn:btih:B80680702E4FB1C8F71E61D3A37C8826CC53CF31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:B80680702E4FB1C8F71E61D3A37C8826CC53CF31
 magnet:?xt=urn:btih:34256DDD39E0EE3257198B1B74212B38D200E64C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ Nat Geo Wild: Дикая природа Амазонки [2 из 2] / Wild Amazo
 ```bash
 magnet:?xt=urn:btih:08569497E57EB6010F3DFBAFB25B2ABE03C2C8C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Nat Geo Wild: Самые опасные акулы / World's Deadliest Sharks (2
 magnet:?xt=urn:btih:BA2CCF7DC38C0ECB0C8ECB910D76500E8FA71480
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ NG: С точки зрения науки: Заселение Луны / Naked S
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ NG: Культ Марии / The Cult of Mary (2015) HDTVRip [H.264/720p]
 magnet:?xt=urn:btih:1C471AC64A885D95CF912153AFDD3DFB83A51568
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ National Geographic: Апокалипсис: Восхождение Гитлер
 ```bash
 magnet:?xt=urn:btih:929A99DDE0B0C4D9735B2FAFABDE49003F3D04D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1257221   (338115) от 29.10.2018
+
+Бёрдмэн / Birdman (2014) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_338115.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета бывший актер, некогда сыгравший роль популярного супергероя Бёрдмэна и теперь, переступая через свое эго, он решает принять участие в новой бродвейской постановке с целью вернуть себе былую славу, блеск и величие.Производство: США, Канада / New Regency Pictures, M Prods, Grisbi Productions, LeЖанр: Драма, КомедияРежиссер: Алехандро Гонсалес ИньярритуАктеры: Майкл Китон, Зак Галифианакис, Эдвард Нортон, Андреа Райзборо, Эми Райан, Эмма Стоун, Наоми Уоттс, Кенни Чин, Жамаль Гаррисон-Лоу, Джереми ШамосПеревод: Дублированный (лицензия)Субтитры: Русские (full, forced), АнглийскиеПродолжительность: 01:59:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DBBD226D7D919C65FFD494047B3E3A22C81EFEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258164   (338206) от 29.10.2018
 
 Небоскреб / Skyscraper (2018) BDRip [H.264/1080p-LQ]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:67879E653900F3EDE9FBA4BAA9FEDC4D7F087FAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:67879E653900F3EDE9FBA4BAA9FEDC4D7F087FAE
 magnet:?xt=urn:btih:BACC4929D1F499183AFCA96468572BC0983907B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:BACC4929D1F499183AFCA96468572BC0983907B0
 ```bash
 magnet:?xt=urn:btih:15AFA9DBF5F55A080955226B43986B8800941F82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:15AFA9DBF5F55A080955226B43986B8800941F82
 magnet:?xt=urn:btih:1AF890AF8307975F54D7748D30EFF67A1F119CA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:1AF890AF8307975F54D7748D30EFF67A1F119CA7
 ```bash
 magnet:?xt=urn:btih:C0BD25FCBB3BE845006600DEC2366DE6D94EC23E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:C0BD25FCBB3BE845006600DEC2366DE6D94EC23E
 magnet:?xt=urn:btih:6BABA2A7D3844DF42E9E502D7190E2BF774300E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:6BABA2A7D3844DF42E9E502D7190E2BF774300E5
 ```bash
 magnet:?xt=urn:btih:7F8F2617D01DA408365976F82AC87D3374ADD6D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:7F8F2617D01DA408365976F82AC87D3374ADD6D1
 magnet:?xt=urn:btih:55EC3F55EB07B57C1311C8C228012F8CD1B6AB4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:55EC3F55EB07B57C1311C8C228012F8CD1B6AB4A
 ```bash
 magnet:?xt=urn:btih:5FB80188153D9C4C70C1E4BE8EDB585D9FC06B0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:5FB80188153D9C4C70C1E4BE8EDB585D9FC06B0F
 magnet:?xt=urn:btih:D1D92C4BD78A2D772D90F703F6F202AF666CE037
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:D1D92C4BD78A2D772D90F703F6F202AF666CE037
 ```bash
 magnet:?xt=urn:btih:D696B05DC4FECA71E9C2D5F55E4EEC8C1613D435
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:D696B05DC4FECA71E9C2D5F55E4EEC8C1613D435
 magnet:?xt=urn:btih:BDBDD6B24844FBEF127D13C72D48F34DC0AA0D8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:BDBDD6B24844FBEF127D13C72D48F34DC0AA0D8A
 ```bash
 magnet:?xt=urn:btih:D7B0B2D565CC1A01ED6C770CC3FE5D44DF90A42B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:D7B0B2D565CC1A01ED6C770CC3FE5D44DF90A42B
 magnet:?xt=urn:btih:F0E5B05AEA7DEABC25CE7C31E3678C69DCD158EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:F0E5B05AEA7DEABC25CE7C31E3678C69DCD158EA
 ```bash
 magnet:?xt=urn:btih:E3476FBF18B021A9399CC56E5C15427AF97D3D87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:E3476FBF18B021A9399CC56E5C15427AF97D3D87
 magnet:?xt=urn:btih:AA46BED4B4E875E3BD291A7F3FC09C70FEE021D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ magnet:?xt=urn:btih:AA46BED4B4E875E3BD291A7F3FC09C70FEE021D1
 ```bash
 magnet:?xt=urn:btih:6E3D41FBF3C458CEAF9552A134F4FB0D0645EC74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:6E3D41FBF3C458CEAF9552A134F4FB0D0645EC74
 magnet:?xt=urn:btih:1B6023FB5CEA8E8C18324D0C1B7EE3B3180323D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +513,8 @@ magnet:?xt=urn:btih:1B6023FB5CEA8E8C18324D0C1B7EE3B3180323D8
 ```bash
 magnet:?xt=urn:btih:C6ED4BA92B1145E13696B154193E14325F4F7F3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:C6ED4BA92B1145E13696B154193E14325F4F7F3E
 magnet:?xt=urn:btih:21427147D5DFED301BBE9A713BBAF859D9B57FD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +565,8 @@ magnet:?xt=urn:btih:21427147D5DFED301BBE9A713BBAF859D9B57FD2
 ```bash
 magnet:?xt=urn:btih:6F5734630C5AB447E3B63C8E72EADE26E1EA54C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +592,8 @@ magnet:?xt=urn:btih:6F5734630C5AB447E3B63C8E72EADE26E1EA54C5
 magnet:?xt=urn:btih:5A1960EED12E7C9268A90C4412FF3721BE145A7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:5A1960EED12E7C9268A90C4412FF3721BE145A7F
 magnet:?xt=urn:btih:654A76566F5DE267EE228BD98E32BB2403BD2927
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +643,8 @@ magnet:?xt=urn:btih:654A76566F5DE267EE228BD98E32BB2403BD2927
 ```bash
 magnet:?xt=urn:btih:90285F3CF876826FC82A941ECE830B1664BF8C32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,29 +672,7 @@ magnet:?xt=urn:btih:90285F3CF876826FC82A941ECE830B1664BF8C32
 magnet:?xt=urn:btih:CEC2BA785C36778A26AD0BF5A114F83C0FFE2590
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953654   (339243) от 08.11.2015
-
-Азбука смерти / The ABCs of Death (2012) BDRemux [H.264/1080p] [USA Transfer]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый из режиссеров выбирает себе букву алфавита и слово, начинающееся на эту букву. Вокруг них и должен строиться сюжет отдельной новеллы. Зрители станут свидетелями самых изощренных убийств по алфавиту от A до Z.Производство: США, Новая Зеландия, Drafthouse Films, Magnet Releasing, Nishimura Eizo, Rita Films, Timpson FilmsЖанр: ужасыРежиссер: Кааре Эндрюс, Анджела Беттис, Элен КаттеАктеры: Ингрид Болсай Бердал, Кира Загорский, Даллас Маллой, Иван Гонзалез, Эрик Од, Ли Хардкэсл, Даренция, Сара Бонрепо, Люси Клементс, МатчПеревод: Профессиональный (многоголосый, закадровый)Субтитры: ОтсутствуютПродолжительность: 02:09:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8923F14393A089D2EE135412E5ECBFCFB14C0904
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

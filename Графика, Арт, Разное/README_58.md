@@ -1,53 +1,3 @@
-###  Публикация: 556477   (422444) от 07.10.2012
-
-[Wallpapers] Нравятся! Сотня № 035 (1920х1080-2560х1600)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
-Большое спасибо неизвестным авторам этих работ.
-Хотя на вкус и цвет...
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAD25EF5D64001FD2DC75EAC1C978DE735151F0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250943   (422547) от 29.09.2018
-
-Обои - Wallpapers Кошачьи #29 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник обоев на тему КошкиФормат: JPGРазрешение файлов: 1920x1080-3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:502B4B02C88CB41C122C007DEC9DA243E1966E22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946945   (422566) от 15.10.2015
 
 Обои - Муравляндия. 1920x1080-3840x2160 - 100 шт [JPG]
@@ -68,6 +18,8 @@ magnet:?xt=urn:btih:502B4B02C88CB41C122C007DEC9DA243E1966E22
 ```bash
 magnet:?xt=urn:btih:6AD0A9D893D5CB22BB0DB9BC03A14582F87E790F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +45,8 @@ magnet:?xt=urn:btih:6AD0A9D893D5CB22BB0DB9BC03A14582F87E790F
 magnet:?xt=urn:btih:4DBBAE4339B79E72891495B1DDF8E54A39379A03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +70,8 @@ magnet:?xt=urn:btih:4DBBAE4339B79E72891495B1DDF8E54A39379A03
 ```bash
 magnet:?xt=urn:btih:D97DD4C6E58150C4F30E222E1BE17CB6B36E270A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +97,8 @@ magnet:?xt=urn:btih:D97DD4C6E58150C4F30E222E1BE17CB6B36E270A
 magnet:?xt=urn:btih:52EBA1B379C21D71975669ECD1F2E6B9C2090224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +122,8 @@ magnet:?xt=urn:btih:52EBA1B379C21D71975669ECD1F2E6B9C2090224
 ```bash
 magnet:?xt=urn:btih:429FD494CC6A27D5DBFB4A20F6689414D630F3C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +149,8 @@ magnet:?xt=urn:btih:429FD494CC6A27D5DBFB4A20F6689414D630F3C0
 magnet:?xt=urn:btih:82F3BD0D6442B5B32947EDF50575D6796C14AEAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +174,8 @@ magnet:?xt=urn:btih:82F3BD0D6442B5B32947EDF50575D6796C14AEAC
 ```bash
 magnet:?xt=urn:btih:6FFDEDBAFCD33B4D57F6B0D616520910DB3C7CD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +201,8 @@ magnet:?xt=urn:btih:6FFDEDBAFCD33B4D57F6B0D616520910DB3C7CD2
 magnet:?xt=urn:btih:983B8B6992B4C8D6BC8B1ABC91352E2F06DFA61A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +226,8 @@ magnet:?xt=urn:btih:983B8B6992B4C8D6BC8B1ABC91352E2F06DFA61A
 ```bash
 magnet:?xt=urn:btih:467853AECB3C0618785C3C13EC9069FA81D4F681
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +253,8 @@ magnet:?xt=urn:btih:467853AECB3C0618785C3C13EC9069FA81D4F681
 magnet:?xt=urn:btih:C5EB4FDCE30C5B1A75292FEE4896E317C688DBA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +278,8 @@ magnet:?xt=urn:btih:C5EB4FDCE30C5B1A75292FEE4896E317C688DBA8
 ```bash
 magnet:?xt=urn:btih:2B5AEA214B1C1F22AB40FBA81FFE5473524C4C4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +305,8 @@ magnet:?xt=urn:btih:2B5AEA214B1C1F22AB40FBA81FFE5473524C4C4D
 magnet:?xt=urn:btih:F2AEEDDA782D7D592C3A182D4D3B7AA42D6D14EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +330,8 @@ Wallpapers - Sexy Girl Full HD 3 [JPEG]
 ```bash
 magnet:?xt=urn:btih:AE09DE21C8505577DCA79C7F7599A4E789DA3451
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +358,8 @@ magnet:?xt=urn:btih:AE09DE21C8505577DCA79C7F7599A4E789DA3451
 magnet:?xt=urn:btih:429C50805B1D75794B1179B90E4D5A104A98A515
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +383,8 @@ magnet:?xt=urn:btih:429C50805B1D75794B1179B90E4D5A104A98A515
 ```bash
 magnet:?xt=urn:btih:454299ECCB64246B0E98375A3756886727DF1A92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +411,8 @@ magnet:?xt=urn:btih:454299ECCB64246B0E98375A3756886727DF1A92
 magnet:?xt=urn:btih:0292CB9E34BA97D0F20690E7C9341F0E88646391
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +436,8 @@ magnet:?xt=urn:btih:0292CB9E34BA97D0F20690E7C9341F0E88646391
 ```bash
 magnet:?xt=urn:btih:253079C819A447E77D2832DC6410E0F6861E5771
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +463,8 @@ magnet:?xt=urn:btih:253079C819A447E77D2832DC6410E0F6861E5771
 magnet:?xt=urn:btih:604742286F428FD9C9EF712E9B9E4EE51BDD53AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +488,8 @@ magnet:?xt=urn:btih:604742286F428FD9C9EF712E9B9E4EE51BDD53AA
 ```bash
 magnet:?xt=urn:btih:F8344D96195F4E534B414C142862A21F6302C9DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +516,8 @@ magnet:?xt=urn:btih:F8344D96195F4E534B414C142862A21F6302C9DA
 magnet:?xt=urn:btih:26BEDCA9701070E4E36FB26A05541A89169298E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +541,8 @@ magnet:?xt=urn:btih:26BEDCA9701070E4E36FB26A05541A89169298E2
 ```bash
 magnet:?xt=urn:btih:C68EE53D32B4C91A8554F5DA59C4B17A54CC6BF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +568,8 @@ magnet:?xt=urn:btih:C68EE53D32B4C91A8554F5DA59C4B17A54CC6BF2
 magnet:?xt=urn:btih:E5BA8ED1B518007AC84CE933DB5BED4223BAD0CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +594,8 @@ magnet:?xt=urn:btih:E5BA8ED1B518007AC84CE933DB5BED4223BAD0CC
 magnet:?xt=urn:btih:7EAA59A19E2FA514F551AA69B9A84AE6285D7214
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +619,60 @@ magnet:?xt=urn:btih:7EAA59A19E2FA514F551AA69B9A84AE6285D7214
 ```bash
 magnet:?xt=urn:btih:A5AFAA05D87B287D3CFEBD9A00DC6F100A36AE51
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 829978   (430143) от 10.10.2014
+
+Wallpapers - Обои для рабочего стола - Разное (13000 шт.) [JPEG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_430143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник обоев для рабочего стола.Формат: JPEGРазрешение файлов: 1920х1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C37864AC0DFC36AA3B98BAFB32E3403146A7E503
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 555548   (430923) от 03.10.2012
+
+[Рисованая графика] Художница-иллюстратор Татьяна Доронина
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_430923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы художницы-иллюстратора Дорониной Татьяны.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55550FC5F34E15422F1678893F9D4DB34B2A7955
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

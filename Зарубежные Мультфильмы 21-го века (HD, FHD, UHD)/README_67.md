@@ -1,28 +1,3 @@
-###  Публикация: 1574256   (387759) от 04.09.2022
-
-Балто 3: Крылья перемен / Balto III: Wings of Change (2004) HDTVRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дело в том, что сани, которые служили универсальным средством передвижения на севере многие века, вытесняет странное крылатое устройство, которое легко может оставить упряжных собак «без работы». Ведь наступили новые времена! добраться до самых труднодоступных уголков на карте теперь можно при помощи самолёта.
-Однако это совсем не по вкусу нашему старому знакомому (   Читать дальше...   )Производство: США / Universal Cartoon StudiosЖанр: мультфильм, мюзикл, приключенияРежиссер: Фил ВайнштейнПеревод: Дублированный (R5)Субтитры: ОтсутствуютПродолжительность: 01:18:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22B1062D9C6EBA191933070F82B7EF096CFF6F2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 719020   (387815) от 04.11.2013
 
 Самолеты / Planes (2013) BDRemux [1080p] [Line]
@@ -43,6 +18,8 @@ magnet:?xt=urn:btih:22B1062D9C6EBA191933070F82B7EF096CFF6F2D
 ```bash
 magnet:?xt=urn:btih:2AE1CD4B239AE356C936F1817F797047B6BE175E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +45,8 @@ magnet:?xt=urn:btih:2AE1CD4B239AE356C936F1817F797047B6BE175E
 magnet:?xt=urn:btih:ADE4570ACAA0CF88DE7EBF8639F87E6FE2C8FC4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +70,8 @@ magnet:?xt=urn:btih:ADE4570ACAA0CF88DE7EBF8639F87E6FE2C8FC4B
 ```bash
 magnet:?xt=urn:btih:E798BEFA21C51EE87E87B0B0845A9F31BF38D53F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +97,8 @@ magnet:?xt=urn:btih:E798BEFA21C51EE87E87B0B0845A9F31BF38D53F
 magnet:?xt=urn:btih:D6A8D41F73D20A50F0D8602367516FC71F031E17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +122,8 @@ magnet:?xt=urn:btih:D6A8D41F73D20A50F0D8602367516FC71F031E17
 ```bash
 magnet:?xt=urn:btih:58A50D546E7305040A5738A0D8CC976FAAD194C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +149,8 @@ magnet:?xt=urn:btih:58A50D546E7305040A5738A0D8CC976FAAD194C3
 magnet:?xt=urn:btih:99C7F15E404823C8245E8678E43B8E8B4DC2F656
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +174,8 @@ magnet:?xt=urn:btih:99C7F15E404823C8245E8678E43B8E8B4DC2F656
 ```bash
 magnet:?xt=urn:btih:13E32F501436DC1CEA2F96716F4E54F0E1171D8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +201,8 @@ magnet:?xt=urn:btih:13E32F501436DC1CEA2F96716F4E54F0E1171D8F
 magnet:?xt=urn:btih:6F9D81698F2DC7A72C3FBAF4E21A564B1F483C97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +226,8 @@ magnet:?xt=urn:btih:6F9D81698F2DC7A72C3FBAF4E21A564B1F483C97
 ```bash
 magnet:?xt=urn:btih:5A13A1B64F553FED30A39918B003B5AABED1BD9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +253,8 @@ magnet:?xt=urn:btih:5A13A1B64F553FED30A39918B003B5AABED1BD9E
 magnet:?xt=urn:btih:B6A1C924E081237FE69C0A1AECD1BED839D5D618
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +278,8 @@ magnet:?xt=urn:btih:B6A1C924E081237FE69C0A1AECD1BED839D5D618
 ```bash
 magnet:?xt=urn:btih:5C68E5E48571241CCCDB2484366E492EA23A34E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +305,8 @@ magnet:?xt=urn:btih:5C68E5E48571241CCCDB2484366E492EA23A34E9
 magnet:?xt=urn:btih:9EC06A9B4899BE95F0D2A3CF0A213DC345F3C1E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +330,8 @@ magnet:?xt=urn:btih:9EC06A9B4899BE95F0D2A3CF0A213DC345F3C1E9
 ```bash
 magnet:?xt=urn:btih:BF9A0AC0547CEE2EA4D46F7ABFAEF0DC0938BD7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +357,8 @@ magnet:?xt=urn:btih:BF9A0AC0547CEE2EA4D46F7ABFAEF0DC0938BD7B
 magnet:?xt=urn:btih:64B7E3DC09122C988EA8D7B6C14F5270C90BE09B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +382,8 @@ magnet:?xt=urn:btih:64B7E3DC09122C988EA8D7B6C14F5270C90BE09B
 ```bash
 magnet:?xt=urn:btih:6BD7A716B1AC4210BE2D93A019270BB423DFE137
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +409,8 @@ magnet:?xt=urn:btih:6BD7A716B1AC4210BE2D93A019270BB423DFE137
 magnet:?xt=urn:btih:E6E33DC7E93EC8C933D5E441719ED78D0EBC0E8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +434,8 @@ magnet:?xt=urn:btih:E6E33DC7E93EC8C933D5E441719ED78D0EBC0E8D
 ```bash
 magnet:?xt=urn:btih:00531B7D414F805976EADA44A8F723537C0ACA31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +461,8 @@ magnet:?xt=urn:btih:00531B7D414F805976EADA44A8F723537C0ACA31
 magnet:?xt=urn:btih:BC33F13BB2E8389708EE479B2209E672F6A77B2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +486,8 @@ magnet:?xt=urn:btih:BC33F13BB2E8389708EE479B2209E672F6A77B2C
 ```bash
 magnet:?xt=urn:btih:3B75642FD9A3D50ACBE1EC925607BBFFBA925AD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +514,8 @@ magnet:?xt=urn:btih:3B75642FD9A3D50ACBE1EC925607BBFFBA925AD2
 magnet:?xt=urn:btih:BF7695BA61541892C16EB4CBF48C535947C01875
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +539,8 @@ magnet:?xt=urn:btih:BF7695BA61541892C16EB4CBF48C535947C01875
 ```bash
 magnet:?xt=urn:btih:CE7532F555E9FE39FB4E1300F7442E9A50FFE58E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +566,8 @@ magnet:?xt=urn:btih:CE7532F555E9FE39FB4E1300F7442E9A50FFE58E
 magnet:?xt=urn:btih:E025CCFF81AA74E51D830D1B417809EC0A13AA53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +591,8 @@ magnet:?xt=urn:btih:E025CCFF81AA74E51D830D1B417809EC0A13AA53
 ```bash
 magnet:?xt=urn:btih:010C1964AC3E99E7E1C26ACD932FD5EB749FD868
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +619,8 @@ magnet:?xt=urn:btih:010C1964AC3E99E7E1C26ACD932FD5EB749FD868
 magnet:?xt=urn:btih:E7AF9E903C3F2457EDCDEE6A956BD62F616E5CD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +644,34 @@ magnet:?xt=urn:btih:E7AF9E903C3F2457EDCDEE6A956BD62F616E5CD1
 ```bash
 magnet:?xt=urn:btih:DC30646A820590C8C786CD20B7E5C5AA9278F502
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 716045   (394426) от 28.10.2013
+
+Турбо / Turbo (2013) BDRip [720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_394426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ничто так не раздражает темпераментную, мечтающую о скорости улитку с говорящим именем Турбо, как неспешная жизнь, медленные разговоры, заторможенные соседи. Пусть наш герой выглядит большим чудаком в этом вялом, неторопливом мире, пусть он идёт вопреки закону природы о «рождённом ползать», но если в сердце горит «пламенный мотор», а душа верит в чудо, оно просто (   Читать дальше...   )Производство: США | DreamWorks AnimationЖанр: Мультфильм, , Комедия, Приключения, Семейный, СпортРежиссер: Дэвид Сорен ППеревод: Дублированный (Лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, Украинский, Английский (Full, SDH, SDH-Colored), Французкий, Португальский, ИспанскийПродолжительность: 01:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F500069E87141B30B34734555708516FE5AE163F
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

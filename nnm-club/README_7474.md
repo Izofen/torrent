@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:938AD6BAA20E0DE0C0F46EF267B79D532FF88E45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ The Beloved - Happiness (2020) Special Edition, RM.RE. [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:71C06FE18407C660F9C184BDF6D3D07647478E52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Bibi Blocksberg - Big Broom Race 3 (2018) [Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C4A1AE0EDA155A94B3CDB8540C70B632A3874990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ SubsMarine 1.3.0 fix [En]
 ```bash
 magnet:?xt=urn:btih:EF7AC70AE308C5E352DDBA7FEDA6CB1508D56344
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Frank Wess, Kenny Burrell, Joe Newman - Jazz For Playboys (1956, 1957) 2000, Sav
 magnet:?xt=urn:btih:D7AB2F42713F35027D62A369DB53D7BF0B0080E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ Slang - Slang (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Space Rock, Disco
 magnet:?xt=urn:btih:B12729EE8554A840F79CE477A1A04044021F833F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:B12729EE8554A840F79CE477A1A04044021F833F
 ```bash
 magnet:?xt=urn:btih:0310D75D6669F7FDFCB26F406E213074EFD12AC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ OK English School, Елена Вогнистая | Стать англогово
 magnet:?xt=urn:btih:3EBCB3B7A3B3DAD44235CC64F381EBFC2C659E63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:3EBCB3B7A3B3DAD44235CC64F381EBFC2C659E63
 ```bash
 magnet:?xt=urn:btih:48039314DD5083E4018D2B426EECEDDFA369FF53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ Meat Puppets - Santa Monica (1988) live, Remaster, 2023, [MP3|320 Kbps] <Pop Roc
 magnet:?xt=urn:btih:FD954CAF4BE11236B7098664512AC430634F8802
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:FD954CAF4BE11236B7098664512AC430634F8802
 magnet:?xt=urn:btih:02F884D59FEFDCC7523E70B10EE629F6F38A5607
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ Lontano Series - Label-Pack 23 releases (2018-2020) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:B09A7C4391323109746062B51373A67BBA3EA4C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ NetWorker - это приложение, которое удобно отобр�
 ```bash
 magnet:?xt=urn:btih:A4A70B757AE5F6295250D5FB2D4386168341A863
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +382,8 @@ V.A. - Суперхиты дискотеки 90-х - Золотые баллад
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ V.A. - Суперхиты дискотеки 90-х - Золотые баллад
 magnet:?xt=urn:btih:C34C407585282EAC0AB8ADCF7B7C9D26A728F7A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ Torch Browser - браузер на платформе Chromium с расшир�
 ```bash
 magnet:?xt=urn:btih:C3AE44DA35F7E25A52D4CAA44430AFB31E4CD14C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +465,8 @@ VA - не Громкие новинки недели 88 (2020) [MP3|320 Kbps] <P
 magnet:?xt=urn:btih:FE384E0FBFDA336D78C75D119BF4C12D5F1A1400
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +493,8 @@ Jonathan Cain - Back To The Innocence (1995) Japanese Edition [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:5D9A908D03E37DA00935F4C2F173F481F6DB8583
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +523,8 @@ VA - Kiez Beats: Retro Futuristic Sounds (Revisited 2k12) (2012) [FLAC|Lossless|
 magnet:?xt=urn:btih:7C5B023355D1C8C24456169A9FC90C895302D497
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +548,8 @@ magnet:?xt=urn:btih:7C5B023355D1C8C24456169A9FC90C895302D497
 ```bash
 magnet:?xt=urn:btih:79A0CB74289342848A3375C9D7D1B8022926F0A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +578,8 @@ magnet:?xt=urn:btih:79A0CB74289342848A3375C9D7D1B8022926F0A2
 magnet:?xt=urn:btih:D6F93DD24241802E6F943A84BEBFD508A1327083
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +607,8 @@ VA - Dark Melodies, Vol. 1 (2020) [AAC|~324 Kbps] <Progressive House, Techno>
 magnet:?xt=urn:btih:2BDEADDBA81BA0A31F366EAA993768187A9822B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +633,8 @@ magnet:?xt=urn:btih:2BDEADDBA81BA0A31F366EAA993768187A9822B1
 magnet:?xt=urn:btih:44D01A0017239935637A9A26CD26ECFA76DAD779
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +658,8 @@ magnet:?xt=urn:btih:44D01A0017239935637A9A26CD26ECFA76DAD779
 ```bash
 magnet:?xt=urn:btih:A34AE10E1908D26E47B748BEC2DF6BC9B41D4529
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +688,8 @@ Will The Thrill - Take It Sleazy (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam
 magnet:?xt=urn:btih:AD47D8D235431C292C46CA480B4C0E186B8BE6A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +713,8 @@ magnet:?xt=urn:btih:AD47D8D235431C292C46CA480B4C0E186B8BE6A5
 ```bash
 magnet:?xt=urn:btih:8E4AC6A74F19CC56CFEE0D5A2D530CCCE9ADE7D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

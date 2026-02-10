@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:29B7927CA2264AF5FAAF5AE5199867B4D0416093
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:29B7927CA2264AF5FAAF5AE5199867B4D0416093
 ```bash
 magnet:?xt=urn:btih:F7DE071440EE5994303125CF88C2D5631D6C6E0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ STEEZY - танцевальная студия №1 на вашем устрой
 magnet:?xt=urn:btih:7FA650BFBD4BA67F76A41FC7DFD6F549C9820C41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Parrot Timer / Кухонный таймер v2.10.0 Mod by Alex.Strannik [Multi
 ```bash
 magnet:?xt=urn:btih:76922B090ABCEFC10ADE59ED168604B7FAB5EAF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Taskito - это приложение для управления задачам
 magnet:?xt=urn:btih:0D57177042E450BDD18227F515E47C558EDCC137
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Billie - Domino - Butterfly effect (2024) WEBRip [H.265/2160p] [60fps]
 ```bash
 magnet:?xt=urn:btih:9DE06BC7899447E1E60F0EBFD63B4E2275534711
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:9DE06BC7899447E1E60F0EBFD63B4E2275534711
 magnet:?xt=urn:btih:D9D1B6A03E47946EA0A7402B431A7EA6F6F09F92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:D9D1B6A03E47946EA0A7402B431A7EA6F6F09F92
 ```bash
 magnet:?xt=urn:btih:C308EC06B3D2BFFB8F03C76F2E3AC4E881FC675F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ VA - Spacedance Vol. 7 (2025) [FLAC|Lossless|WEB-DL|tracks] <Spacedance, Spacesy
 magnet:?xt=urn:btih:E37A5586ED8666D6B6B085B9B9F588E022D571D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:E37A5586ED8666D6B6B085B9B9F588E022D571D9
 ```bash
 magnet:?xt=urn:btih:75F3D0EBD66B14192118F3E7CA325C2201751372
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:75F3D0EBD66B14192118F3E7CA325C2201751372
 magnet:?xt=urn:btih:9F062CF61A279EB5D82679E19902B497295D5D1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:9F062CF61A279EB5D82679E19902B497295D5D1E
 ```bash
 magnet:?xt=urn:btih:160DCB4D81D27D696DE00C62ABB016D297045B92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:160DCB4D81D27D696DE00C62ABB016D297045B92
 magnet:?xt=urn:btih:E001A80FCEBE713FE754E686F0EF69328E134FBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Nexline — это жирный шрифт без засечек, созданн
 ```bash
 magnet:?xt=urn:btih:60CDAF3DED56FDFEF1737CA2713BAB3A45248151
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:60CDAF3DED56FDFEF1737CA2713BAB3A45248151
 magnet:?xt=urn:btih:BFDE84F9E8EE929B87F2889996F6D40EC8EED8BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:BFDE84F9E8EE929B87F2889996F6D40EC8EED8BF
 ```bash
 magnet:?xt=urn:btih:97B6DCED05F0717A1013FC2DE0AF1DB5EE29B9C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:97B6DCED05F0717A1013FC2DE0AF1DB5EE29B9C9
 magnet:?xt=urn:btih:3CAF2F712CFF123B11F372A5E88E25A27AC9B2B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:3CAF2F712CFF123B11F372A5E88E25A27AC9B2B2
 ```bash
 magnet:?xt=urn:btih:DAF4D52F1392AFBAD5B6356915D680829B5355D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:DAF4D52F1392AFBAD5B6356915D680829B5355D0
 magnet:?xt=urn:btih:EA96B96397226D93955A988DCE42F74DAD4AF208
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ JetBrains CLion — интеллектуальная среда разработ
 ```bash
 magnet:?xt=urn:btih:787EBD05469D0399CFEE7BE325C3FB74DDB9DE9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ Deep Purple - Made in Japan (Steven Wilson Remix) (1972) Reissue, Remaster, Rhin
 magnet:?xt=urn:btih:A68350FD51706D167A0C383E45427ABE06D537D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:A68350FD51706D167A0C383E45427ABE06D537D7
 ```bash
 magnet:?xt=urn:btih:DF91D97B4FD75A6C20704B3B482F1B9335397D4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ Camtasia захватывает действия и звуки в любой ч�
 magnet:?xt=urn:btih:B89654D36509DFEF2B1D2591052F24A20D03DC38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:B89654D36509DFEF2B1D2591052F24A20D03DC38
 ```bash
 magnet:?xt=urn:btih:253925CA7BA169350156E5F515FDE06E6C7BF348
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ Squid - рукописные заметки v4.4.1 Mod by Alex.Strannik [Ru/Mult
 magnet:?xt=urn:btih:E11AB09DF754CA02ACBDD92458379F4DB8522BAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ VRadio - Online Radio App v2.8.7 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:251B4C14765852FD650D651FA4592DC2EF441D5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

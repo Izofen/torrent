@@ -19,6 +19,8 @@ Draw.io 27.0.2 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:755EB2547327B01447F00C7AFA1DD674F2ED7AFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ pdfFactory Pro - удобное приложение, представляюще
 magnet:?xt=urn:btih:D28556AE96C0A415B428ACE9B014E6751AB62CA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ FinePrint - многофункциональный драйвер для при�
 ```bash
 magnet:?xt=urn:btih:27448AD9D92653775B78A346287ED0FA1140D83B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ HomeBank можно настраивать полностью под себя, �
 magnet:?xt=urn:btih:F7DF90575A43FD1577356E4A3AC3C21E45AFB079
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ GeoGebra — мультиплатформенная программное об�
 magnet:?xt=urn:btih:2023EFBF2CC5A5D31514562C3E135971DA0F7F65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ QownNotes – менеджер заметок, позволяющий четко
 ```bash
 magnet:?xt=urn:btih:640DAAFE129F1860FF57EA9C9CE99F02BA0B1EA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Joplin - это бесплатное приложение с открытым и
 magnet:?xt=urn:btih:DC377FC19BB8A0C853AF256413806BF2A75D3840
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Desktop Calendar – бесплатный календарь рабочего с
 ```bash
 magnet:?xt=urn:btih:31A87A54BFE55ED837CC345C7DA29E1A8193BFD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ PDFCreator –  бесплатная программа для конверти�
 magnet:?xt=urn:btih:29B887773C08E2C672B932C1ACD0F09138229D38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Vov Sticky Notes 9.6 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:80CA8A48BCAC7720C3BAA7692C39E7F7470AE35D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Total Doc Converter — профессиональное решение для �
 magnet:?xt=urn:btih:760A1BB66A766CF27DA94864F2B68356665184B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ CoolUtils Total Excel Converter 7.1.0.91 RePack (& Portable) by elchupacabra [Mu
 ```bash
 magnet:?xt=urn:btih:1A62F0BA9633E2C1FEBFD987BFA9491B7C3298DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ PdfSAM - бесплатная и простая в использовании у
 magnet:?xt=urn:btih:A0EB4C6BECDD0CA39E822834369C88BFD89BAF0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ RedNotebook - это простое GTK+ / Gnome приложение напис
 magnet:?xt=urn:btih:4E214EE04C10F220B0C8CF2B3D9D12369CC1D223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ AntiPlagiarism.NET - инструмент, позволяющий исследо
 ```bash
 magnet:?xt=urn:btih:7B14E14A4BF57969AC24A39B12DA0B99DF1964A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ CoolUtils Total PDF Printer - будет полезен для печати не
 magnet:?xt=urn:btih:F9087FFC0D4216A109949EC322768945EC7340A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ FocusWriter 1.8.11 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:911B92DB02B4C0A9CCDC1E985A16BB473F847BF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ IceCream Ebook Reader Pro 6.52 [Multi/Ru]
 magnet:?xt=urn:btih:2957F0135AF1F4E3D003B7616188A99126876414
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Vovsoft Speech to Text Converter — это автоматическое про�
 ```bash
 magnet:?xt=urn:btih:193E90BF2571F8BA03EC10BF071E3862EA3256BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Koodo Reader 1.7.4 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:36E7ED9223DF60493D0763D01B7F8D71D17E107F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Qalculate! - это многоцелевой кросс-платформенны
 ```bash
 magnet:?xt=urn:btih:E4DB108A078E9FB28CBA57BDCDD41F433D751294
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Nitro Pro – программа, которая является альтерн
 magnet:?xt=urn:btih:D727C60F1F46E77AF12933FA10F462C9083864CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Simple Sticky Notes — простая в понимании программа 
 magnet:?xt=urn:btih:C65DF5901EA766F602F76F54845212D89229CF38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ PDF-XChange Editor — программа для просмотра, редак�
 ```bash
 magnet:?xt=urn:btih:0723F88A7A9BC8E2E23D9578C98C302EA25F479F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ CoolUtils Total CSV Converter - это надежный инструмент д�
 magnet:?xt=urn:btih:4226450BA8B9357F2D99279624AAC76188B1245B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ EssentialPIM - это отмеченное различными наградам
 ```bash
 magnet:?xt=urn:btih:93F078803973AE56D94EB9320EEE7C6864B347B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:2282B1DFE110A45F3D505B88A3CF65E5F07BF595
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Vexovoid - Call Of The Starforger (2017) [MP3|320 Kbps] <Progressive Thrash Meta
 ```bash
 magnet:?xt=urn:btih:BA83FB9773FF8167E1AF889EE98671FCC12CBD0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Vintage Reserve - Vintage Reserve (2017) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:F6FAEDE49F6887AA3786ECAB69FBB3C474863A7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ VA - Best of Trance (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:B3833623630A0F2039C7F2482993642C13A1B54A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ VA - Empire Records - Vanilla Sky (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:4ABC6A74B8B02F64D6EDF97E4D71A2722CA94070
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Art Farmer with Joe Henderson - Yama (1979) 2017, King Records [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:7943AE3F5C8593D1D4D8D1E77B8EB10812843C32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Junichi Akagawa - Consistency Test (2017) Hz-records [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:2206A930AB5EAA6736CE30CCB32C872B6D95517B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ VA - Enhanced Progressive - Best of 2017 (Mixed by Marcus Santoro) (2017) [MP3|3
 ```bash
 magnet:?xt=urn:btih:BCE3A7A908478B17F34A76DD189A2362E8F6D6DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ File Cabinet Pro  - менеджер документов из строки ме
 magnet:?xt=urn:btih:A376FC79A8CF0F6A378246321BACC60EA32D9D05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ Benjamin Herman featuring Daniel von Piekartz - Trouble (2014) Dox Records [FLAC
 ```bash
 magnet:?xt=urn:btih:1A2BFE2D534398C7FF9AD1140C9F389B32241817
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ CD1 - Here Comes Earl 'Fatha' Hines:
 magnet:?xt=urn:btih:0C0A4CB3CEE65C02A086FDF7D68D0FFF4FBCFA41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ VA - Inspectrum Recordings Best Of (Mixed by DJ Chris) (2017) [MP3|320 Kbps] <Up
 ```bash
 magnet:?xt=urn:btih:BC87D3252BC7303FB1D637F8F85A70C735518AF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ CD1 - Hamp's Blues:
 magnet:?xt=urn:btih:340FB57A90D83041930EC9A377B872E182DF2D36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +392,8 @@ magnet:?xt=urn:btih:340FB57A90D83041930EC9A377B872E182DF2D36
 ```bash
 magnet:?xt=urn:btih:C7C550AC64D40568312796AE5E22786724039625
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +419,8 @@ magnet:?xt=urn:btih:C7C550AC64D40568312796AE5E22786724039625
 magnet:?xt=urn:btih:95453C564956E376EEC3A889C30E7110F5CE23CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +445,8 @@ magnet:?xt=urn:btih:95453C564956E376EEC3A889C30E7110F5CE23CF
 magnet:?xt=urn:btih:44AD3F600AB10FAF12700114A51271E3706F7A32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +470,8 @@ magnet:?xt=urn:btih:44AD3F600AB10FAF12700114A51271E3706F7A32
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +498,8 @@ Wire имеет стандартный набор функций для месс
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +523,8 @@ Wire имеет стандартный набор функций для месс
 ```bash
 magnet:?xt=urn:btih:7E69F77B8C180154E8264497AE1C0F6AC7DF832E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +550,8 @@ magnet:?xt=urn:btih:7E69F77B8C180154E8264497AE1C0F6AC7DF832E
 magnet:?xt=urn:btih:82FF8898AAB5B031C30696BF06EA1A2678991D94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +575,8 @@ Comedy Woman (22.11.2019) WEB-DLRip (сезон 9, выпуск 10)
 ```bash
 magnet:?xt=urn:btih:4FFD84EB57D4FA4D302F21D0FEA618B4EB2B6442
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +602,8 @@ Proxifier для Mac позволяет пользователям получа�
 magnet:?xt=urn:btih:D71A43C95AF109B8BC846C0D96A586D0F6B7F578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ magnet:?xt=urn:btih:D71A43C95AF109B8BC846C0D96A586D0F6B7F578
 ```bash
 magnet:?xt=urn:btih:51E9D00B9D04FE71F2738200B5BBF0C586DED278
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ magnet:?xt=urn:btih:51E9D00B9D04FE71F2738200B5BBF0C586DED278
 magnet:?xt=urn:btih:56433956E1CD415207CCF2FCF594777F014E59A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +680,8 @@ magnet:?xt=urn:btih:56433956E1CD415207CCF2FCF594777F014E59A1
 magnet:?xt=urn:btih:1DD400D4DCC2E46B3B8E2225553151577B4D9E00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ magnet:?xt=urn:btih:1DD400D4DCC2E46B3B8E2225553151577B4D9E00
 ```bash
 magnet:?xt=urn:btih:9F3D3DC45A126ADC0D0AC8DD0B1EBB1D65E255FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1051500   (530421) от 12.09.2016
+
+Время "Ч": Чернобыль. 30 лет (2016) TVRip (серии 1-9 из 9)
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеканал «Время» представляет новый документальный проект «Время «Ч»: Чернобыль. 30 лет». Этот фильм — дань памяти, дань уважения всем и каждому, кого коснулась эта катастрофа. 26 апреля 1986 года на Чернобыльской АЭС произошла крупнейшая авария. Через семь месяцев, к 30 ноября 1986 года объект «укрытие», известный как саркофаг, был сдан. В устранении последствий (   Читать дальше...   )Телекомпания: Россия, ВремяЖанр: ДокументальныйПродолжительность: ~00:28:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E915B9A13291CCC48169C0F0F097E0716A22539D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018042   (530497) от 12.09.2016
 
 Засекреченная любовь (2006-) DVB (Серии 1-14 из 22) (Обновляемая)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:CA772A0C824BAE9CC373051E5393203553F960A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:CA772A0C824BAE9CC373051E5393203553F960A2
 magnet:?xt=urn:btih:DC5B82632894093C804A34C1C73DD7FAF030A42E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:DC5B82632894093C804A34C1C73DD7FAF030A42E
 ```bash
 magnet:?xt=urn:btih:53852F3875CB2727B65D326CC29CC16473D76B2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:53852F3875CB2727B65D326CC29CC16473D76B2F
 magnet:?xt=urn:btih:88C4C869730F90D36F442534C10A991E59AC01B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:88C4C869730F90D36F442534C10A991E59AC01B0
 ```bash
 magnet:?xt=urn:btih:78087D8F4981DB892D58BA3323E883C31CF627BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:78087D8F4981DB892D58BA3323E883C31CF627BE
 magnet:?xt=urn:btih:01FD178428AC2A419CFB8EBC7263F7D853168497
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:01FD178428AC2A419CFB8EBC7263F7D853168497
 ```bash
 magnet:?xt=urn:btih:F17CE1BBF78DBAA6DBB76221F27CA5C0913E3823
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:F17CE1BBF78DBAA6DBB76221F27CA5C0913E3823
 magnet:?xt=urn:btih:85F4187D8A83C456415C01251785082ED9C2B3FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:85F4187D8A83C456415C01251785082ED9C2B3FD
 ```bash
 magnet:?xt=urn:btih:0679B7438AFF38190FC309B2C1FCEB3A17205931
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:0679B7438AFF38190FC309B2C1FCEB3A17205931
 magnet:?xt=urn:btih:B018BC3AC7C7E0CE1098A6E771801A20CFA796E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:B018BC3AC7C7E0CE1098A6E771801A20CFA796E6
 ```bash
 magnet:?xt=urn:btih:A9D07C1F1C5E292BE53D5DB8B74BD6FFD3B43370
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:A9D07C1F1C5E292BE53D5DB8B74BD6FFD3B43370
 magnet:?xt=urn:btih:7E41E0C751561D2E0C53021A86E59B26267B86BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:7E41E0C751561D2E0C53021A86E59B26267B86BC
 ```bash
 magnet:?xt=urn:btih:1FE7FB14489BEA118A79FBE001EE5BCB1FA31E4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:1FE7FB14489BEA118A79FBE001EE5BCB1FA31E4B
 magnet:?xt=urn:btih:DC9BA58A12CC49E83B8FED71A97E69E13E07FF5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:DC9BA58A12CC49E83B8FED71A97E69E13E07FF5D
 ```bash
 magnet:?xt=urn:btih:B6BE4B4F4EE045492716835E1DD5B42FD62D19B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:B6BE4B4F4EE045492716835E1DD5B42FD62D19B1
 magnet:?xt=urn:btih:D745B1BB58DFD67D9C2BA79271B55877BE1A11C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:D745B1BB58DFD67D9C2BA79271B55877BE1A11C6
 ```bash
 magnet:?xt=urn:btih:3C15AE9AF419DCFECDD361DE537CF2ECF82CEA0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:3C15AE9AF419DCFECDD361DE537CF2ECF82CEA0C
 magnet:?xt=urn:btih:6AE9D24A107E41F79F2FC36E5009144075AF5986
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:6AE9D24A107E41F79F2FC36E5009144075AF5986
 ```bash
 magnet:?xt=urn:btih:8F0FAD002724A1C1190939EA2AB8DF497FE53D75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:8F0FAD002724A1C1190939EA2AB8DF497FE53D75
 magnet:?xt=urn:btih:737BFBA235446F834B2465A4FF42B92EB3D89224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:737BFBA235446F834B2465A4FF42B92EB3D89224
 ```bash
 magnet:?xt=urn:btih:BE4D2CAA7A74836BA178998DC671B2FCE705C08C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:BE4D2CAA7A74836BA178998DC671B2FCE705C08C
 magnet:?xt=urn:btih:E4FDF7F1C52C3AF7FAF39C1495F936D89CB30D94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:E4FDF7F1C52C3AF7FAF39C1495F936D89CB30D94
 ```bash
 magnet:?xt=urn:btih:E79BE53DFD55B37970152234886BF9BB735FE1C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:E79BE53DFD55B37970152234886BF9BB735FE1C5
 magnet:?xt=urn:btih:B3B706EE9AC73CB1D669AE54CBBEE3C349F1AB0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,29 +672,7 @@ magnet:?xt=urn:btih:B3B706EE9AC73CB1D669AE54CBBEE3C349F1AB0D
 magnet:?xt=urn:btih:666D04CF94E86B9BEAA32F6ADC60B9FAE2644B15
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051509   (532360) от 11.09.2016
-
-Танцы (2016.09.10) WEB-DL [H.264/720p-LQ] (сезон 3, выпуск 4)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532360.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 августа на ТНТ стартует 3-й сезон самого масштабного танцевального шоу страны! Создатели обещают, что проект станет еще круче, ярче и мощнее: новые города, новые герои, новые «ТАНЦЫ»! География участников третьего сезона шоу «ТАНЦЫ» впечатляет! На телевизионные кастинги попали представители более 100 городов. И не только России, но и Прибалтики, Европы, Америки (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 01:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:171AC1179193F27C8B62FED0BA5369BF20E9B58D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@
 ```bash
 magnet:?xt=urn:btih:8E80485A586C78E423793A9831599DE5C96F619C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -81,6 +85,8 @@ Paul Young - The Crossing (1993) [APE|Lossless]<Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ Paul Young - The Crossing (1993) [APE|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:86CF902B1246851FF24E03AAF850AF0488331A9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +150,8 @@ VA - 100 Взрывных Хитов в Авто (2012) [MP3|192-320 kbps]<Pop |
 magnet:?xt=urn:btih:70544E507B995F1F0CA1E013C5DF4EB1F74C50AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +176,8 @@ magnet:?xt=urn:btih:70544E507B995F1F0CA1E013C5DF4EB1F74C50AA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +201,8 @@ magnet:?xt=urn:btih:70544E507B995F1F0CA1E013C5DF4EB1F74C50AA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +237,8 @@ Lazlo - Lazlo (2012) [MP3|320 кб/с]<Electronic, Nu Jazz, Nu Swing, Nu Blues>
 magnet:?xt=urn:btih:2E5B764C8C6D4E612430D614AF4F3B3C6415D36A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +262,8 @@ magnet:?xt=urn:btih:2E5B764C8C6D4E612430D614AF4F3B3C6415D36A
 ```bash
 magnet:?xt=urn:btih:46EB1C9E2EE40E6F79BD89D02E5333B062E131D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +298,8 @@ VA -  Chill & Relax. 133 Tracks Positive Music Vol.5 (2012) [MP3|320 kbps]<Chill
 magnet:?xt=urn:btih:32DBDFD86BFE5865033D0E563FD5750357D7D543
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +323,8 @@ magnet:?xt=urn:btih:32DBDFD86BFE5865033D0E563FD5750357D7D543
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +350,8 @@ magnet:?xt=urn:btih:32DBDFD86BFE5865033D0E563FD5750357D7D543
 ```bash
 magnet:?xt=urn:btih:3548BB41DF192615C7B563C6BEAFE73FC69666DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +386,8 @@ Richard Harvey — Арабские ночи [Арабские приключе�
 magnet:?xt=urn:btih:B92760B7314A4C189F32BF9F6E36539D931CB5F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +421,8 @@ VA- Для Юбилея, Дня Рождения Иностранный (2012) [
 magnet:?xt=urn:btih:08026EBED256190B7AFEE8D35D2998E783A654D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +448,8 @@ Space-Rat: Xplode! (L) [Ge] 2012
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +484,8 @@ Symphony in F major, K.Anh. 223 (19a)
 magnet:?xt=urn:btih:7BEA4B3BE3855E94034D81390A5693B987A5696E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +509,8 @@ magnet:?xt=urn:btih:7BEA4B3BE3855E94034D81390A5693B987A5696E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +545,8 @@ VA - Звёзды царской эстрады (приложение к кни�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +580,8 @@ CD1 :
 magnet:?xt=urn:btih:86531B08ACAD656C4CAE67FC53798AD30DD537A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +605,8 @@ magnet:?xt=urn:btih:86531B08ACAD656C4CAE67FC53798AD30DD537A7
 ```bash
 magnet:?xt=urn:btih:AFA904EC0F31C85E680E169D8B4B2BCC735DFB32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +632,8 @@ magnet:?xt=urn:btih:AFA904EC0F31C85E680E169D8B4B2BCC735DFB32
 magnet:?xt=urn:btih:CC7C012AD0118D4253EFE0E4285B020A0FF63F33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +658,8 @@ magnet:?xt=urn:btih:CC7C012AD0118D4253EFE0E4285B020A0FF63F33
 magnet:?xt=urn:btih:8602486EE84CA950614D2E2C07DF242385CC32F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +683,8 @@ Orbit Downloader 4.1.0.5 Final [Multi/Rus]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +719,8 @@ for bassoon and orchestra
 magnet:?xt=urn:btih:4367E0A081D69C2481E8E3B189F52F668CBF1755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +745,8 @@ Archipelagoes / Ух-ты, бухты! (P) [Ru] 2011
 magnet:?xt=urn:btih:EF64A80ECE415F4B44E5A473B91FE76A7826EB03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -720,6 +770,8 @@ magnet:?xt=urn:btih:EF64A80ECE415F4B44E5A473B91FE76A7826EB03
 ```bash
 magnet:?xt=urn:btih:4DDEF907F5796F9C88F7B04B87D3D5900E1BD0DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

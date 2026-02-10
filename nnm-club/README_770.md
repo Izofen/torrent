@@ -22,6 +22,8 @@ Disc 1:
 magnet:?xt=urn:btih:244A384372CD7FD0AB927416601601F52E8B5868
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:244A384372CD7FD0AB927416601601F52E8B5868
 magnet:?xt=urn:btih:E20C17B8077771771C57B4F35D8634030FAE0D1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:E20C17B8077771771C57B4F35D8634030FAE0D1A
 ```bash
 magnet:?xt=urn:btih:8034743F67E72A2BBBC69AA57552628A2E3F2E6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:8034743F67E72A2BBBC69AA57552628A2E3F2E6A
 magnet:?xt=urn:btih:28B79C53B262687386989AEBE083A3A2290FA301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:28B79C53B262687386989AEBE083A3A2290FA301
 ```bash
 magnet:?xt=urn:btih:70F7547E5E7F635C094C99EF336FFAB22CA54C7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:70F7547E5E7F635C094C99EF336FFAB22CA54C7D
 magnet:?xt=urn:btih:FA54A334D6A6AFCFF46250D79F99F89937C5AE1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:FA54A334D6A6AFCFF46250D79F99F89937C5AE1F
 ```bash
 magnet:?xt=urn:btih:265AA78BAEC3E06FFF7C50204B9BAFDEE636199C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ VA - Kontor Sunset Chill 2025 (2025) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:EFE97686DC11298397EB04FB835162DA7E1566E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:EFE97686DC11298397EB04FB835162DA7E1566E4
 ```bash
 magnet:?xt=urn:btih:C8E0E2BD9836C70E415F56EBAA18B85125842ABF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:C8E0E2BD9836C70E415F56EBAA18B85125842ABF
 magnet:?xt=urn:btih:E5DADA87AF3DBFCBB0A3F9480D75A068D3441887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:E5DADA87AF3DBFCBB0A3F9480D75A068D3441887
 magnet:?xt=urn:btih:35CB63C632B5C4391F301B8D9D3D6762309EC161
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ Alice Cooper - Black Mamba (2025) Single [FLAC 24/48|Lossless|WEB-DL|tracks] <Ha
 ```bash
 magnet:?xt=urn:btih:F082084B80709C7F776FB1A31A66FD636143A4B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ VA - 12 Years Of Suanda Music (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
 magnet:?xt=urn:btih:CAB853991C8D20CCEE52AA810AB69815F0302084
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:CAB853991C8D20CCEE52AA810AB69815F0302084
 magnet:?xt=urn:btih:608F3265D8E28808013D9418E5565ACE0405E139
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:608F3265D8E28808013D9418E5565ACE0405E139
 magnet:?xt=urn:btih:7C91DA5D850EAB248FA2F0B169E8216B17924E06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ Onimusha: Warlords (2019) [Ru/Multi] (Build 17777991) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:DB84C1A8C906AB86E31E75BB00E8BD81DE2069E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:DB84C1A8C906AB86E31E75BB00E8BD81DE2069E2
 magnet:?xt=urn:btih:811AAF57851C420A5CF08CF31BA309D771AE5E00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ Perfectly Clear — приложение, которое позволяет вс
 magnet:?xt=urn:btih:DB9BB9A797C382DB2FDAF79985D18834418400D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ Total Doc Converter — профессиональное решение для �
 ```bash
 magnet:?xt=urn:btih:760A1BB66A766CF27DA94864F2B68356665184B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:760A1BB66A766CF27DA94864F2B68356665184B8
 ```bash
 magnet:?xt=urn:btih:F9E34C0334DB7421494CA386AD5CFA34F3BAB883
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ VA - Classic Road Trip Songs 100 Hits (2025) [MP3|320 Kbps] <Pop, Rock>
 magnet:?xt=urn:btih:ECA1B95F7293C1D45095D3187C1ACE58A0E5FD86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ OCCT 14.0.8 Portable [En]
 ```bash
 magnet:?xt=urn:btih:DCB69F11D6F456FCA50A2C7A77F7E2058B63779B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ Pro Pilkki 2 / Зимняя рыбалка v2.0.6 Mod by ShiroAndShuvi [Ru/Multi
 magnet:?xt=urn:btih:181B52CD25C05C2F04B24F9F1A6E97C3DC957784
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:181B52CD25C05C2F04B24F9F1A6E97C3DC957784
 ```bash
 magnet:?xt=urn:btih:DA14EEFF45A025088DC2B7BFF6F6E3670F64819D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +668,8 @@ Nachtblut - немецкая дарк-метал группа, основанн�
 magnet:?xt=urn:btih:7F777968699ED6F10B36BFFEBB3F57185143D602
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ magnet:?xt=urn:btih:7F777968699ED6F10B36BFFEBB3F57185143D602
 ```bash
 magnet:?xt=urn:btih:A9FA27FC507BF730A8C30D6483EEA9BFB61F0E38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

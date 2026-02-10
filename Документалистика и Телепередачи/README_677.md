@@ -1,3 +1,29 @@
+###  Публикация: 1098104   (912594) от 28.01.2017
+
+Подмосковные вечера (2017.01.28) SATRip (выпуск 20)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зрителям представится возможность попасть на веселую вечеринку, где соберутся известные в самых разных областях люди. Присоединяйтесь к веселью! Иван Ургант, Тимур Родригез, Михаил Галустян, Нюша, Иван Охлобыстин, участники "Квартета И", Елка, Александр Ревва, Анна Хилькевич, Максим Виторган и другие составят вам компанию. Звезды разделятся на команды, (   Читать дальше...   )Телекомпания: Первый каналЖанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F1C5C16F19E50D969FF27D622D458ED6A19F8FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097890   (912621) от 28.01.2017
 
 Главная дорога (2017.01.28) HDTV [H.264/1080i]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:067990A177A49224B6FE3E81E001772B6D67EA3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:067990A177A49224B6FE3E81E001772B6D67EA3E
 magnet:?xt=urn:btih:0CDE30472316D3CAF3C96BCEBD27FA3D1C63A3DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:0CDE30472316D3CAF3C96BCEBD27FA3D1C63A3DC
 ```bash
 magnet:?xt=urn:btih:73FBC34BEE72A97ABB49DE9A3D7747C2D6D7ABB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +128,8 @@ magnet:?xt=urn:btih:73FBC34BEE72A97ABB49DE9A3D7747C2D6D7ABB1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:73FBC34BEE72A97ABB49DE9A3D7747C2D6D7ABB1
 ```bash
 magnet:?xt=urn:btih:8006CB5D635D66A62782D3D8F0C068C614C818CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +181,8 @@ magnet:?xt=urn:btih:8006CB5D635D66A62782D3D8F0C068C614C818CE
 magnet:?xt=urn:btih:A7400E0A0756E50EAA7A9209E53B6619496AB73F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:A7400E0A0756E50EAA7A9209E53B6619496AB73F
 magnet:?xt=urn:btih:24554D1D3E1AAFDBDEFCFC380AEF665690D02B84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:24554D1D3E1AAFDBDEFCFC380AEF665690D02B84
 ```bash
 magnet:?xt=urn:btih:F2717BA1ADDA89982FC943ADD4EC617477098B64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +261,8 @@ magnet:?xt=urn:btih:F2717BA1ADDA89982FC943ADD4EC617477098B64
 magnet:?xt=urn:btih:F26AD1EEEEA7CDC1BB03244E58F5CBB6A52D6697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:F26AD1EEEEA7CDC1BB03244E58F5CBB6A52D6697
 ```bash
 magnet:?xt=urn:btih:77D8289E4938FC416F226734CE335FA426954E6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:77D8289E4938FC416F226734CE335FA426954E6C
 magnet:?xt=urn:btih:BCF0A91AAD8FB82437F92766DD20C720E95F2505
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:BCF0A91AAD8FB82437F92766DD20C720E95F2505
 ```bash
 magnet:?xt=urn:btih:50EE7E61C644529FABEA96539161BC5B00B26A40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:50EE7E61C644529FABEA96539161BC5B00B26A40
 magnet:?xt=urn:btih:D26E8CB9E1E626F84591C7E7B2EBB142CABFB1F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:D26E8CB9E1E626F84591C7E7B2EBB142CABFB1F0
 ```bash
 magnet:?xt=urn:btih:2321491A9A0E2D50AC9A14321099E4A8C1D6FBE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:2321491A9A0E2D50AC9A14321099E4A8C1D6FBE9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:2321491A9A0E2D50AC9A14321099E4A8C1D6FBE9
 magnet:?xt=urn:btih:D22AA53F01C4C14955D20D210E6D726BF2198D10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:D22AA53F01C4C14955D20D210E6D726BF2198D10
 ```bash
 magnet:?xt=urn:btih:F3FFFB44A141EB70281BDA4D6F39D11207165FDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:F3FFFB44A141EB70281BDA4D6F39D11207165FDC
 magnet:?xt=urn:btih:7B1D19A1EA4529847B4E7787BF9A447F48B89C34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:7B1D19A1EA4529847B4E7787BF9A447F48B89C34
 magnet:?xt=urn:btih:21B875C15EE6A4814C14C72130A3D9CDE06FB991
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:21B875C15EE6A4814C14C72130A3D9CDE06FB991
 ```bash
 magnet:?xt=urn:btih:31E08D74AB6F2D5D5A1AF0CFE5934F871CF41F6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:31E08D74AB6F2D5D5A1AF0CFE5934F871CF41F6D
 magnet:?xt=urn:btih:684EAF119BDD07D6CA22D432C94774568A2124F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:684EAF119BDD07D6CA22D432C94774568A2124F1
 ```bash
 magnet:?xt=urn:btih:C61BA0A03C4A96FDEDC166FD07DE39D370E2DC41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:C61BA0A03C4A96FDEDC166FD07DE39D370E2DC41
 magnet:?xt=urn:btih:7D2FC17CFC794DEE71EAEDD01BE6F80CBDDEB976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:7D2FC17CFC794DEE71EAEDD01BE6F80CBDDEB976
 magnet:?xt=urn:btih:67A971ADED12429D6881B1777E8EEBAC568F34D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,29 +683,7 @@ BBC. Секреты Кожи / Secrets of Skin (2020) WEB-DL [H.264/1080p] (се
 magnet:?xt=urn:btih:55E0F4153D7F19CFB96289F8B0F34A4E09FAF988
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989598   (915395) от 23.02.2016
-
-Мария Полякова. Своя среди чужих (2015) DVB
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает о судьбе одной из немногих советских женщин-резидентов Марии Поляковой. Она умерла 7 мая 1995 года за два дня до юбилея Великой Победы. Автору фильма удалось незадолго до ее смерти записать большое интервью с "резидентом Марией". Это интервью и легло в основу фильма.Телекомпания: Студия "Русский космос"Жанр: ДокументальныйПродолжительность: 00:54:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B05531C2AEF7A2BC24501FDD51066F0C95E3A111
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

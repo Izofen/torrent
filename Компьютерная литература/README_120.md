@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:DAA3FA3A9B5AF07D93CAB29575C28347830DE855
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:DAA3FA3A9B5AF07D93CAB29575C28347830DE855
 ```bash
 magnet:?xt=urn:btih:B6962E6081AEAFBADF770EC6E0CD7724B6F64F14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:B6962E6081AEAFBADF770EC6E0CD7724B6F64F14
 magnet:?xt=urn:btih:C160815309EBF984CE16EFE24DB33D8700E3B569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Since its release Windows has become the mainstay operating system for the begin
 ```bash
 magnet:?xt=urn:btih:EFC10BA081C2E9C25DDA83811305EC0D1F31B6EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ This book covers the core concepts of Python Programming to enable students unde
 magnet:?xt=urn:btih:53B2F915A796FCDFBCE288533451740060B10B07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Mathematical Foundations of Artificial Intelligence: Basics of Manifold Theory i
 ```bash
 magnet:?xt=urn:btih:7572D174F2C501EBD6089AC3066C78704ABF24BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:7572D174F2C501EBD6089AC3066C78704ABF24BF
 magnet:?xt=urn:btih:8CC8AFD27DB44BA9BF381FAB6D7302A102578596
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:8CC8AFD27DB44BA9BF381FAB6D7302A102578596
 ```bash
 magnet:?xt=urn:btih:C27885FB1727D624627F15EC4B78FBD1FEC11E18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Generative AI tools capable of creating text, images, and even ideas seemingly o
 magnet:?xt=urn:btih:CBD7B4C1F7B3878E5D8E042BCD47378CA607BC7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:CBD7B4C1F7B3878E5D8E042BCD47378CA607BC7B
 ```bash
 magnet:?xt=urn:btih:94072BFD2C75FF6150082636CA105A54E7834109
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:94072BFD2C75FF6150082636CA105A54E7834109
 magnet:?xt=urn:btih:3E7CF22EFA3D7BE2566A4D8A9BF6C829F49CBF1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:3E7CF22EFA3D7BE2566A4D8A9BF6C829F49CBF1B
 magnet:?xt=urn:btih:F2886F7A2D455564D14CF9434555802D708E8DE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:F2886F7A2D455564D14CF9434555802D708E8DE0
 ```bash
 magnet:?xt=urn:btih:40A25F5A27BB30C90BE61FE4EA06D1C222297A24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:40A25F5A27BB30C90BE61FE4EA06D1C222297A24
 magnet:?xt=urn:btih:B6D04CE6903B36400967D1A52FDC4C02704E1BAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Make Your Own PC Tricks & Tips is the perfect digital publication for the user t
 ```bash
 magnet:?xt=urn:btih:439736798BB521E3E85E33FD5F13B76411AF7F22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Home Networking Tricks and Tips is the perfect digital publication for the user 
 magnet:?xt=urn:btih:4A92C73E3A3358DC97867E490973C79F4613108F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Designing new algorithms in swarm intelligence is a complex undertaking. Two cri
 ```bash
 magnet:?xt=urn:btih:8017C893D235CF89668E23360C473D69EC53EA18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Generative AI and Agentic AI together are revolutionizing the technology landsca
 magnet:?xt=urn:btih:C19F94F7752E5841B63EE9CFA53D7EDDA41DC08E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ If you’re using Excel, this is the all-in-one manual you need—brimming with 
 ```bash
 magnet:?xt=urn:btih:31B4133F8C6DE68C612BA007A9745FF8A56C4BAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ The book is organized into eleven chapters. The first chapter introduces (   Ч
 ```bash
 magnet:?xt=urn:btih:AE1460BA1825A4E5AE9D638F52BBAFFE079FE076
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ In From Classical to Quantum Coding, a team of distinguished researchers deliver
 magnet:?xt=urn:btih:E241CB4B098A5233A5DAA3EC0C6B2AF6E5E7D0E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:E241CB4B098A5233A5DAA3EC0C6B2AF6E5E7D0E3
 ```bash
 magnet:?xt=urn:btih:09A9A29D66C65CB169E09CE057FB2AF2260D4A9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ Dive into Microsoft 365 administration and harness the full power of cloud scali
 magnet:?xt=urn:btih:C39E63F0F0D36C48D5BE5216AC0C4CBBF76728AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ Advance your Power BI skills by adding AI to your repertoire at a practice level
 ```bash
 magnet:?xt=urn:btih:D559D1F816E481CCD1CDDF4AC29FA81108A33224
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ Whether you’re maintaining legacy systems or seeking to understand the foundat
 magnet:?xt=urn:btih:BDD51282399CFEF77457E97EA2316E57CA9110F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:BDD51282399CFEF77457E97EA2316E57CA9110F4
 ```bash
 magnet:?xt=urn:btih:C74CCFF62227E1A2370645EA04AA32DCF405F634
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 908173   (633769) от 14.06.2015
+
+VA - Шансон о любви Сборник лирики (2015) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633769.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Александр Волгарь - Покаянная Любовь
+002. Дуэт Лиса - Содержанка
+003. Юрий Охочинский - Дождивый Лондон
+004. Folk Катрин Band - Русские Бабы(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:07:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B90974915B2C0F5BB4C341FDBC31DF21B2ED4D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 681880   (633844) от 21.07.2013
 
 VA - Disco 80's Collection (198*) [MP3|320 кб/с]<Disco, Euro Disco, Italo Disco>
@@ -18,6 +47,8 @@ VA - Disco 80's Collection (198*) [MP3|320 кб/с]<Disco, Euro Disco, Italo Dis
 ```bash
 magnet:?xt=urn:btih:9B6A2F5BE1EEF8FC9A06B8C43CCA36214AD5CAAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +77,8 @@ VA - Beatport Top 100 Downloads Summer (2015) [MP3|320 кб/с]<House, Electro, 
 magnet:?xt=urn:btih:EE7BDADA029C3B13DE767D756EEABB9B081843C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +103,8 @@ VA - Dreams of a shaman 2 (2015) [MP3|320 кб/с]<Native american, Ethnic, Folk
 ```bash
 magnet:?xt=urn:btih:5D77132637A1462828BC79D739227E2D1B68FD7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -104,6 +139,8 @@ VA - Passion Paradise (2012) [MP3|320 кб/с]<Trance, Progressive>
 magnet:?xt=urn:btih:32E33B1E0FD84032B9AAC13DF55FB881C0ED8079
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -137,6 +174,8 @@ VA - Club 86 Recordings Ibiza 2012 (2012) [MP3|320 кб/с]<House>
 magnet:?xt=urn:btih:5CA78E9D4EA616EC5550D89B061A6B8558488351
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +202,8 @@ VA - Vocal Trance Collection Vol. 135 (2015) [MP3|320 кб/с]<Trance, Vocal Tra
 ```bash
 magnet:?xt=urn:btih:170C8CE10A0CC38AC2BC93BAF8EB86A0FED52C1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +232,8 @@ VA - Vocal Drum & Bass Vol.14 (Compiled by Zebyte) (2018) [MP3|224-320 Kbps] <Dr
 magnet:?xt=urn:btih:A1A50E54987BA40DA8AFCE4307CB2F35603689D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +260,8 @@ VA - German Top 100 Single Charts 01.06.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:7F555AB8525F62378F4364B1AB93EA02D146E4E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +290,8 @@ VA - Top Hits Diskoteka 80s & 90s (2016) [MP3|320 Kbps] <Disco, Pop, Dance>
 magnet:?xt=urn:btih:1C042F9584146A7BE636A199B1092113F6A0C566
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +318,8 @@ VA - Мега Дискотека с Europa plus (2016) [MP3|256-320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:45B0FF5D66047E918A86D8EE17727CE6BB847F6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +348,8 @@ VA - Summer Session (2015) [MP3|320 кб/с]<Club House, Electro House, Deep Hou
 magnet:?xt=urn:btih:67243390EBAF8F52BE56571A15F53DE5DEB63A01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +376,8 @@ VA - Summer Is Coming House (2018) [MP3|320 Kbps] <Progressive, Groove, Funky, J
 ```bash
 magnet:?xt=urn:btih:F2B11771683E02171C26CEC706E036D6499E75AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +406,8 @@ VA - Disco Hits - Generation One (2016) [MP3|320 Kbps] <Disco>
 magnet:?xt=urn:btih:2C3DF52374C4EE4E82C70D83387BAD1723689218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +434,8 @@ VA - Лучшая Коллекция Исполнителей Шансона (20
 ```bash
 magnet:?xt=urn:btih:75978A5ED5ECFECFD2850BE1A143F157F9EBB759
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +464,8 @@ VA - The Best - In Music We Trust Vol.2 (2016) [MP3|320 Kbps] <House, Club, Danc
 magnet:?xt=urn:btih:F8C55B3A92EF18C93D8C141F7522BE7D0CE21092
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +492,8 @@ VA - Velvet Moonlight: Relax Partiture (2016) [MP3|320 Kbps] <Downtempo, Chillou
 ```bash
 magnet:?xt=urn:btih:768677830C3250C255D7BFD51313E4DE4EDE15D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +522,8 @@ VA - Motion Of Nature (2016) [MP3|240-320 Kbps] <Dance, Club, Electro House>
 magnet:?xt=urn:btih:4C9BB5FAD49F2F89A3B1C4B3124659BC3D5491DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +550,8 @@ VA - Endless Motion - Only Trance (episode2) (2016) [MP3|320 Kbps] <Trance, Upli
 ```bash
 magnet:?xt=urn:btih:591F3CB9319BF9DF2CC16CB7D518CA704C62D564
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +580,8 @@ VA - Endless Motion - Only Trance (episode1) (2016) [MP3|320 Kbps] <Trance, Upli
 magnet:?xt=urn:btih:0A8655F82C8F458CEAE86834FDC1AF7F517ADA23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +608,8 @@ VA - 250 Popular Planet Hits (2017) [MP3|256 Kbps] <Рор>
 ```bash
 magnet:?xt=urn:btih:CC0D856FC96F0A71248B4A4C5A94F9ACE78D5406
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +638,8 @@ VA - Reggae Sound System (2017) [MP3|320 Kbps] <Reggae, Soul>
 magnet:?xt=urn:btih:55D296C6DEB51D40136A2A15F1397EC41A8CF867
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +666,8 @@ VA - Summer Workout Hits (2017) [MP3|320 Kbps] <Tropical, Nu Disco, Club, Electr
 ```bash
 magnet:?xt=urn:btih:55D0A1A50C2B08B8B601DEAF6B0A2269670A744A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +705,8 @@ VA - Босса Нова - Cамая красивая музыка в СССР (
 magnet:?xt=urn:btih:CC7399CD44122FF9AD1F5396A3BB3688ACFDC46A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +733,8 @@ VA - Vocal Deep House Vol.30 (Retro Deep) (2017) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:F47EF8652F7B7691074E41DA70A423554A0F23DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -686,32 +763,7 @@ Dark Side:
 magnet:?xt=urn:btih:92AB78B1E1768619E454C186F2A20B37A50C9D28
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143693   (634970) от 18.06.2017
-
-140 ударов в минуту - Новое и лучшее (2017) [MP3|320 Kbps] <Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Ресницы
-03. Я тебя люблю
-04. Глупая девчонка(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 04:25:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8396FE37C39DB3B2D0860DDBEE256D5C6FB4737
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

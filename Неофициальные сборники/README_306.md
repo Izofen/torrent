@@ -1,3 +1,32 @@
+###  Публикация: 1241765   (517817) от 19.08.2018
+
+VA - Club Dance Ambience (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517817.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adrian Lux - Teenage Crime (Shevtsov & Krasavin Remix)
+002. Aiden Jude &  Max Landry - Sub Zero (Kue Remix)
+003. Alen Morris - Over You (Club Mix)
+004. Alma Ft. Tove Styrke - Good Vibes (Just Kiddin Remix)(   Читать дальше...   )Жанр: Dance, Club, House, Electro HouseПродолжительность: 07:30:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E12397C927CF0302875AA57162EDF25EDE5955A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241806   (517818) от 19.08.2018
 
 VA - Top50: Tracks Deep House Ver.2 (2018) [MP3|320 Kbps] <Deep House, Club House, GHouse, Voca lHouse>
@@ -21,6 +50,8 @@ VA - Top50: Tracks Deep House Ver.2 (2018) [MP3|320 Kbps] <Deep House, Club Hous
 ```bash
 magnet:?xt=urn:btih:4845922404A8FBE35247CF73E64ECAC3503ABA50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +79,8 @@ VA - Top50: Tracks Deep House (2018) [MP3|320 Kbps] <House, Deep House, Progress
 ```bash
 magnet:?xt=urn:btih:DCC6032BB65AF84CB31660C5C0D993B26346226A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +115,8 @@ VA - Seashore Desire #38 (2012) [MP3|320 кб/с]<Uplifting Trance, Dream Trance
 magnet:?xt=urn:btih:37D0210B65068A67EACA21F36C8376AB86CECA00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +143,8 @@ VA - Best of Intim Music (2015) [MP3|320 кб/с]<Chillout, lounge>
 ```bash
 magnet:?xt=urn:btih:B476A72DEE0BD3D2DC91D9DCD3698D12EE873175
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +173,8 @@ VA - Electro Life 38 (by ZiP)(2015) [MP3|320 kbps]<Electro House, Dubstep, House
 magnet:?xt=urn:btih:9672C2EAAA59027CDC229BC073066635F6053FD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +201,8 @@ Armin van Buuren - Armin Only: Episode 2015(Mix and Compiled by Dj Snow (DV)) (2
 ```bash
 magnet:?xt=urn:btih:CFAFE88E429D8178ACB2C2CF87A0BECA680B0F93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +231,8 @@ VA - Trance Desire Volume 53 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 magnet:?xt=urn:btih:8BF379C66E241ACDF9BE4DA2A512817C6AAFE6CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +260,8 @@ VA - Best Intim Music (2015) [MP3|320 кб/с]<Chillout, Lounge>
 magnet:?xt=urn:btih:89EDEB888E5C478CC4F6D6BCAA0BFFDAF61B88C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +285,8 @@ VA - Сборник Клубной Музыки Vol.13 От Seva57 (2012) [MP3|3
 ```bash
 magnet:?xt=urn:btih:5615B4DB0ABA6CC17EEEC0BF6252A2C1B3AE2DB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +314,8 @@ VA - Music News vol.199 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:0294EEBE9907D31ABFB68FBC2A6C90933F925698
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +350,8 @@ VA - Best Of MTV Hits (2012) [MP3|128 кб/с]<Dance, Pop, RnB, Hip Hop>
 magnet:?xt=urn:btih:A543F39B1D90F667362CC7C63011916E9E450ED8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +385,8 @@ VA - Trance In Motion Vol.123 (Mixed By E.S.) (2012) [MP3|320 кб/с]<Trance, V
 magnet:?xt=urn:btih:0D2C7B8FF5DFC9C9955C1D15D7C5DE185BED034D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +413,8 @@ VA - ЕвроХит Топ 40 Europa Plus 12.07.2019 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:216C3725EEB3D32FDF8A650476328ED0AD532363
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +443,8 @@ VA - The Official UK Top 40 Singles Chart 17.08.2018 [MP3|320 Kbps] <Pop, Dance,
 magnet:?xt=urn:btih:900A1DF65D35EFD561F9EED41A8D0063F9BEE2E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +471,8 @@ VA - Самые сочные русские хиты (2015) [MP3|256-320 кб/с
 ```bash
 magnet:?xt=urn:btih:F14ED08FF0B09349965C45BE35368183E18AD6A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +501,8 @@ VA - не Громкие новинки недели 24 (2019) [MP3|320 Kbps] <P
 magnet:?xt=urn:btih:09A88AD50EE3E56087F3CD21031E1001368EDB26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +529,8 @@ VA - The Official UK Top 40 Singles Chart 12.07.2019 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:C8CDB6E75DF6354147927A8DA2092690A035801A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +559,8 @@ VA - German Top 100 Single Charts 19.07.2019 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:30D1785181F5D5727307D48EFCA3CA27C4856AC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +587,8 @@ VA - Всё сразу 200 хитов 50х50 Выпуск 1 (2015) [MP3|128 - 32
 ```bash
 magnet:?xt=urn:btih:3540404FAB190B6FE56D9D9AE326D5498D264636
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +617,8 @@ VA - Лучшая 100-ка радио Шансон (2015) [MP3|256 кб/с]<Ша
 magnet:?xt=urn:btih:A488CB1FFA68733367DA25C84F00EE582CE9842C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +645,8 @@ VA - Sensual Lounge Chillout Traxx (2015) [MP3|320 кб/с]<Downtempo, Chillout,
 ```bash
 magnet:?xt=urn:btih:62C76712523A40418653B75C7F74DE4A9071E6C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +681,8 @@ VA-Танцуют все! - Популярные танцы народов ми�
 magnet:?xt=urn:btih:12097147EBE8F370D0CAED7D3F5F1B503BB916DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +709,8 @@ VA - Uplifting Trance Collection Vol.2 (2018) [MP3|320 Kbps] <Trance, Uplifting 
 ```bash
 magnet:?xt=urn:btih:9F0055A6F51C59AB2C87F244F48FC9BE34893F33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +745,8 @@ VA - Mega Dance Party Summer Vol.10 (2012) [MP3|320 кб/с]<Dance, Club>
 magnet:?xt=urn:btih:CC3F0375CD4BA6B1F3C59D09F62157AB6A086F99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,32 +774,7 @@ VA - My Favourite Hits of 1978 (14CD) (2015) [MP3|320 кб/с]<Chanson, Pop, Syn
 magnet:?xt=urn:btih:349CADDE73ECF27C10FC0B395FE29406B3AC09FC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 228274   (520470) от 20.08.2010
-
-VA - Italo Boot Mix vol. 1-16 (1983-1991)  [MP3 | 256 Kbps] <Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Italo Boot Mix vol.1 - 1983 - 00:18:49:
-01-Stylóo-Pretty Face
-02-Time-Shaker Shake
-03-Digital Game-I'm Your Boogie Man(   Читать дальше...   )Жанр: DiscoПродолжительность: 05:05:15
-
-## Скачать торент
-```bash
-нет
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

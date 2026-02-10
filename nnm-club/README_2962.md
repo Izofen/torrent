@@ -28,6 +28,8 @@ VA - Disco Hits 90's Русский (2012) [MP3|256 kbps]<Pop | Disco>
 magnet:?xt=urn:btih:B87FECC245DB3711B28E9A3522A3E86771AD348D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ Klaypex - Ready to Go (2012) [MP3|320 кб/с]<Dubstep,  Complextro, Electro>
 ```bash
 magnet:?xt=urn:btih:5357E5DEA827079513EF350D5440E9C6688D6604
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ VA - Disco Hits 90's Зарубежный (2012) [MP3|256 kbps]<Pop | Disco>
 magnet:?xt=urn:btih:EAB1A4C1E32C17D29BA1107262BBE2CA5BCA724B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +123,8 @@ magnet:?xt=urn:btih:EAB1A4C1E32C17D29BA1107262BBE2CA5BCA724B
 ```bash
 magnet:?xt=urn:btih:E9C79CFF70A30D3F9495D318FAE92B2E9252BC4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +157,8 @@ Gallo / (vocal - Alessandra Domingues) - Intimae Evening (Интимный ве�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +184,8 @@ Gallo / (vocal - Alessandra Domingues) - Intimae Evening (Интимный ве�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +210,8 @@ Gallo / (vocal - Alessandra Domingues) - Intimae Evening (Интимный ве�
 magnet:?xt=urn:btih:47C64E9727A48D9505E66285B9F6267EF87604F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +235,8 @@ magnet:?xt=urn:btih:47C64E9727A48D9505E66285B9F6267EF87604F1
 ```bash
 magnet:?xt=urn:btih:A666428A5241AD4EDD422BE6C21177E4C19F4FA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +263,8 @@ magnet:?xt=urn:btih:A666428A5241AD4EDD422BE6C21177E4C19F4FA9
 magnet:?xt=urn:btih:D262491179CDFEDB1B7CC3544F762F7545F5413C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ magnet:?xt=urn:btih:D262491179CDFEDB1B7CC3544F762F7545F5413C
 ```bash
 magnet:?xt=urn:btih:A1E4052C2BD57A519CF59F7875C24561C040AA40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +317,8 @@ OpenSUSE 12.2 Milestone 3 (KDE, GNOME) [i686 + x86-64] (4xCD)
 magnet:?xt=urn:btih:8499BB01D31C9629A419533DD87CA517CB52A94F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +342,8 @@ magnet:?xt=urn:btih:8499BB01D31C9629A419533DD87CA517CB52A94F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +378,8 @@ VA - Реальный Блатняк (2012) [MP3|192-320 кб/с]<Шансон>
 magnet:?xt=urn:btih:D58E9A7ED032A0E4FA43005563FCB86EEE925362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +403,8 @@ magnet:?xt=urn:btih:D58E9A7ED032A0E4FA43005563FCB86EEE925362
 ```bash
 magnet:?xt=urn:btih:6C65ADE6800F587138AF2621D65B3265CF718021
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +431,8 @@ Chip — первый компьютерный журнал в Европе, с�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +457,8 @@ Chip — первый компьютерный журнал в Европе, с�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ OpenSUSE 12.2 Milestone 3 [i686 + x86-64] (2xDVD)
 magnet:?xt=urn:btih:004DA97309360BCF282DF49E9C7BA544C9E60FEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +512,8 @@ magnet:?xt=urn:btih:004DA97309360BCF282DF49E9C7BA544C9E60FEE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +542,8 @@ Enable decoding of indexed textures (using (   Читать дальше...   )
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +567,8 @@ Enable decoding of indexed textures (using (   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:B921FD2CB41DE3D66BBFE478E08F32975EF82B1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +597,8 @@ Carl Heinrich Graun
 magnet:?xt=urn:btih:DB52489F329835895E49373E106A10407D26D7B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +622,8 @@ magnet:?xt=urn:btih:DB52489F329835895E49373E106A10407D26D7B0
 ```bash
 magnet:?xt=urn:btih:00701EA1F1F08103837DEC615633ED62C1005C3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +649,8 @@ magnet:?xt=urn:btih:00701EA1F1F08103837DEC615633ED62C1005C3F
 magnet:?xt=urn:btih:C812FA2D9AEF3D1BB6BB86F589714D73A18DA65F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +675,8 @@ magnet:?xt=urn:btih:C812FA2D9AEF3D1BB6BB86F589714D73A18DA65F
 ```bash
 magnet:?xt=urn:btih:9B9A0F685B812BCA888A867DA6301B1EEA2AE26C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +706,8 @@ magnet:?xt=urn:btih:9B9A0F685B812BCA888A867DA6301B1EEA2AE26C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -681,6 +731,8 @@ magnet:?xt=urn:btih:9B9A0F685B812BCA888A867DA6301B1EEA2AE26C
 ```bash
 magnet:?xt=urn:btih:95092221786610B80AB4F464C379F12D33E86192
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

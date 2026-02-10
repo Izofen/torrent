@@ -1,3 +1,29 @@
+###  Публикация: 1205410   (783422) от 10.02.2018
+
+Кайя Норденген | Мозг всемогущий. Путеводитель по самому незаменимому органу нашего тела (2017) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что делает нас нами? Где начинается мысль? Разум и память, влюбленность и ненависть, логика и обучаемость, – элементы, из которых состоит наше «я», находятся в самом незаменимом органе нашего тела – мозге. Приготовьтесь отправиться в увлекательнейшее путешествие по мозгу и узнать, где находится личность, почему важно уметь забывать, в каком отделе мозга спрятан компас, (   Читать дальше...   )Жанр: Практическая психология, нейропсихологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFBD50F34F8999CB695F10018DF2C82743DB88DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205589   (783427) от 10.02.2018
 
 Хейли Помрой | Формируем Пищевые Привычки для здоровья (2018) [PDF, FB2, RTF, EPUB, MOBI]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:41CEB2A5192C97B62171851EA700A63C8391E0E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:41CEB2A5192C97B62171851EA700A63C8391E0E5
 ```bash
 magnet:?xt=urn:btih:BF3050A08A707620DB65808AC78DA6151740E6B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +101,8 @@ magnet:?xt=urn:btih:BF3050A08A707620DB65808AC78DA6151740E6B2
 magnet:?xt=urn:btih:F41241067851B23C5F217EB1BB292670EB30C1DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:F41241067851B23C5F217EB1BB292670EB30C1DC
 ```bash
 magnet:?xt=urn:btih:84B21B743B35DA4F1884EF7CAE292B6DDF08010C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:84B21B743B35DA4F1884EF7CAE292B6DDF08010C
 magnet:?xt=urn:btih:54ED72A6D8210C69B6E718B8F0825C1CE9481E83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:54ED72A6D8210C69B6E718B8F0825C1CE9481E83
 ```bash
 magnet:?xt=urn:btih:E04F16499255B14A8B7E163136B9E720CD6325B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:E04F16499255B14A8B7E163136B9E720CD6325B1
 magnet:?xt=urn:btih:36534820CFA10642DC2E94E1A559A3E51D776B47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:36534820CFA10642DC2E94E1A559A3E51D776B47
 magnet:?xt=urn:btih:D0386D0DD074B4968B560EEE8452175DD905B655
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:D0386D0DD074B4968B560EEE8452175DD905B655
 ```bash
 magnet:?xt=urn:btih:A06A1363A874F78BCA32320E920B7EF53A9D1643
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:A06A1363A874F78BCA32320E920B7EF53A9D1643
 magnet:?xt=urn:btih:026ECE183C832C4C14A9A0738144207728647D0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:026ECE183C832C4C14A9A0738144207728647D0E
 magnet:?xt=urn:btih:0ED9268FAB697C0376F1CA2AEC4C89A6B78FDD02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:0ED9268FAB697C0376F1CA2AEC4C89A6B78FDD02
 magnet:?xt=urn:btih:2FB56F756EF6C08A8271B7717A4588F9E79BF371
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:2FB56F756EF6C08A8271B7717A4588F9E79BF371
 ```bash
 magnet:?xt=urn:btih:7CEADE8CAE1417C6D8454DFA4818867DB2436C50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:7CEADE8CAE1417C6D8454DFA4818867DB2436C50
 magnet:?xt=urn:btih:8C416B85000793E2C35BBBD45AC180C9A198E7C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:8C416B85000793E2C35BBBD45AC180C9A198E7C0
 magnet:?xt=urn:btih:AD591002B1D53F30B32C216EA8F46C947CE5DD70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:AD591002B1D53F30B32C216EA8F46C947CE5DD70
 ```bash
 magnet:?xt=urn:btih:28CC05C9EE07C1A3B063694A12D0B6AF4AC44401
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:28CC05C9EE07C1A3B063694A12D0B6AF4AC44401
 ```bash
 magnet:?xt=urn:btih:77E7641F0A8C8A3DED97C5981E05858720034F84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +500,8 @@ magnet:?xt=urn:btih:77E7641F0A8C8A3DED97C5981E05858720034F84
 magnet:?xt=urn:btih:471AA90B4DB178829E398CD4001B9DF71A7B4BD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:471AA90B4DB178829E398CD4001B9DF71A7B4BD0
 ```bash
 magnet:?xt=urn:btih:7DCE659E6435687ADE442DF5EFC283FC9239F9EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +553,8 @@ magnet:?xt=urn:btih:7DCE659E6435687ADE442DF5EFC283FC9239F9EB
 magnet:?xt=urn:btih:80D5991310AB9A98073AC248E3CAB8F903181266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:80D5991310AB9A98073AC248E3CAB8F903181266
 ```bash
 magnet:?xt=urn:btih:9375411524D10F4619A3F6654CBF6363DF6736B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:9375411524D10F4619A3F6654CBF6363DF6736B8
 magnet:?xt=urn:btih:1B37BB4624196F15790A59F8C1B5DD47DA940072
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:1B37BB4624196F15790A59F8C1B5DD47DA940072
 magnet:?xt=urn:btih:2CDDA84DECB4ED5D13BA9E43D0CE5ADB3CF09A06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:2CDDA84DECB4ED5D13BA9E43D0CE5ADB3CF09A06
 ```bash
 magnet:?xt=urn:btih:CA6A335CB707A30C706550D689E0E32804BE50D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,31 +684,7 @@ magnet:?xt=urn:btih:CA6A335CB707A30C706550D689E0E32804BE50D4
 magnet:?xt=urn:btih:D529BB6028896FE105F1257C5E5D3C339091A46E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204935   (783991) от 08.02.2018
-
-Лиза Барретт | Как рождаются эмоции. Революция в понимании мозга и управлении эмоциями (2018) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лиза Барретт проливает свет на потрясающую науку о наших эмоциях и показывает, почему она важна для таких разных областей жизни как здоровье, воспитание детей или романтические отношения.
-
-Классический взгляд на эмоции говорит, что у нас в мозгу есть много таких эмоциональных цепей, и каждая вызывает собственный набор изменений, то есть особый отпечаток. Возможно, (   Читать дальше...   )Жанр: Практическая психология, нейропсихологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CEF6E017B0A6D2D675F22DFD8C2FD8E5FF1DD23
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

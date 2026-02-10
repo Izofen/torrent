@@ -19,6 +19,8 @@ opencode — это кодирующий агент ИИ, созданный д�
 magnet:?xt=urn:btih:0E8E57F62F8F5BEBD95FB58785A9CD17FC589ED5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:0E8E57F62F8F5BEBD95FB58785A9CD17FC589ED5
 magnet:?xt=urn:btih:7C93991A49B561F2C65AC0ECDF9FCDE3D13DF19D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:7C93991A49B561F2C65AC0ECDF9FCDE3D13DF19D
 magnet:?xt=urn:btih:27DC1994E2FF14B8ED229603FBC93F2279CCD495
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:27DC1994E2FF14B8ED229603FBC93F2279CCD495
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Purvpn 9.7 [En/Farsi]
 magnet:?xt=urn:btih:1B39AA50469CF4EAA831F7DBEC1E9F9747EEAD61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ VidCoder - небольшая утилита, с помощью которой �
 ```bash
 magnet:?xt=urn:btih:D198EF4DB7E397892D63A6500D66C3A7C0EE9369
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:5A9C1CB0A4DD728224186FC6646D2265FB50DFAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Deva_Zheleznaya - это акцидентный гротеск с индустр
 ```bash
 magnet:?xt=urn:btih:5E22B39DD8262635453211CC1EA51A4290B13CC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:5E22B39DD8262635453211CC1EA51A4290B13CC9
 magnet:?xt=urn:btih:C11EAE828C72DDFF361443C07A53F01DF2F1871A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Phantom Squad погружает вас в хаос тактического б�
 ```bash
 magnet:?xt=urn:btih:B02A053A5E3E839D8674B701490238830EABD9F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Luma Island (2024) [Ru/Multi] (1.1.4.25451) Repack Let'sРlay
 magnet:?xt=urn:btih:2D4F659E34A3662F04E4D199182CD9BE12665ED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Chip ‘n Clawz vs. The Brainioids (2025) [Ru/Multi] (1.0.23477) Repack Let'sРl
 ```bash
 magnet:?xt=urn:btih:09314050D2321E7A468C944ACF782D6F461232D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:09314050D2321E7A468C944ACF782D6F461232D8
 magnet:?xt=urn:btih:92A296458D7DFEE0DF903ED614836E302A9A5954
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:92A296458D7DFEE0DF903ED614836E302A9A5954
 ```bash
 magnet:?xt=urn:btih:C50ED57995B6272F02ECBEEAE5BA6150F991973D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:C50ED57995B6272F02ECBEEAE5BA6150F991973D
 magnet:?xt=urn:btih:8C2838E082F3436D20E5894B987553C2A8501EAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:8C2838E082F3436D20E5894B987553C2A8501EAD
 ```bash
 magnet:?xt=urn:btih:BE7EB6CAE40A0E79D05DF270E1182FC92EE1D9CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:BE7EB6CAE40A0E79D05DF270E1182FC92EE1D9CC
 magnet:?xt=urn:btih:CA6AF7E88D5F6972C1DB70ECB5DE41EAAFCDB492
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:CA6AF7E88D5F6972C1DB70ECB5DE41EAAFCDB492
 ```bash
 magnet:?xt=urn:btih:262193A07E23C0EDD5D30329BD5949D1BD6A5EA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ VA - TERRA BEATS: Summer Edition 2025 (2025) [MP3|320 Kbps] <Deep House, Organic
 magnet:?xt=urn:btih:D0EDAED28D22E2E61C0E43EADE75A99EB272864A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:D0EDAED28D22E2E61C0E43EADE75A99EB272864A
 magnet:?xt=urn:btih:E574FF28EB41B67FEA8F8CA77757CE5626DA9FAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:E574FF28EB41B67FEA8F8CA77757CE5626DA9FAD
 ```bash
 magnet:?xt=urn:btih:AD951A81257BC1E76E45932C1400802AE43B17B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:AD951A81257BC1E76E45932C1400802AE43B17B2
 magnet:?xt=urn:btih:460E61DF3E84332353ABE36D2F834335C601AF45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Ookami Kodomo no Ame to Yuki | Wolf Children | Волчьи дети Амэ и �
 ```bash
 magnet:?xt=urn:btih:3B3033E42C17C069D2CBFD5BE2D66E7C7A9E6E65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:3B3033E42C17C069D2CBFD5BE2D66E7C7A9E6E65
 magnet:?xt=urn:btih:BB4B6AC63519B74BF8C5BFFF3E57C8F5A978D454
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:BB4B6AC63519B74BF8C5BFFF3E57C8F5A978D454
 magnet:?xt=urn:btih:79AA679B9773FC3FD09C0DEFD8D5ADE63F70CE7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:79AA679B9773FC3FD09C0DEFD8D5ADE63F70CE7D
 ```bash
 magnet:?xt=urn:btih:325DEF92586B636FC2C0A9ADB6032FA300566BDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

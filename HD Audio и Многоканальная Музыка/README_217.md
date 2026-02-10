@@ -22,6 +22,8 @@ Side-A
 magnet:?xt=urn:btih:71250EB162EEF4B4B01EC1FB5B23A5CCE28C9F2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ A4		Lucky Day - Удачный день	3:37(   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:7B71C09DB794D48807AFC21DFE38A10A7567B362
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ A4 Rivers(   Читать дальше...   )Жанр: Synth-popПродолжи
 magnet:?xt=urn:btih:9FDFDCBE2C468F6C9F04B51657C0E345DA18C741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ A2 Африка(   Читать дальше...   )Жанр: Pop RockПродо�
 ```bash
 magnet:?xt=urn:btih:B22C4D5475C42CBA2075D845E1B8F7DB34A49285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Pet Shop Boys - Fundamental (2006) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synt
 magnet:?xt=urn:btih:6A5187987BAECCFCCFD2433ACC6B1CA0F83A8CC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ System of a Down (SOAD) — армяно-американская альтерн
 ```bash
 magnet:?xt=urn:btih:A4B52FC75A5D695BEDD3F19D3BACF06980CD2F82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Мамина Пластинка (1991) Compilation [FLAC 2.0|96/24|image +.
 magnet:?xt=urn:btih:F4AD04C121AD55CCD779A5F7B3426D392DF983E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ B1		Industrial Disease	5:50(   Читать дальше...   )Жанр: RockП�
 ```bash
 magnet:?xt=urn:btih:5689AEFC2971FB9349215EB5769616E33F1CF2BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ B2 III. Allegro Vivance(   Читать дальше...   )Жанр: Classical, 
 magnet:?xt=urn:btih:859C363F4EC2DFB100ACF6E5157A4D94890FAA69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ A4 Private Eye 4:44(   Читать дальше...   )Жанр: Synth-popПро
 ```bash
 magnet:?xt=urn:btih:48DAC657497338BD5E9EF221B428E7D88B720060
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Rebellion — немецкая heavy metal группа. Была создана
 magnet:?xt=urn:btih:2086E899A69D23FA4FDEF886257285F302E36339
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ A4 Манана(   Читать дальше...   )Жанр: Jazz, PopПродо
 ```bash
 magnet:?xt=urn:btih:8B81F9591649B7234310FAA2F989D966510BBA32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ A4	Hi Hi Hi (Vtip)(   Читать дальше...   )Жанр: Blues Rock, Prog
 magnet:?xt=urn:btih:48B383381F211F2600167B9E196651428328B42B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ A4 И Утре Е Ден • И завтра будет день(   Читать
 ```bash
 magnet:?xt=urn:btih:26A0EF948F1A68E406BCA6542E1D05245B67CB82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ A1 1. Лирический вальс, 2. Танец (Пиццикато), 3. Р
 magnet:?xt=urn:btih:BDA781E64704F4679FE3E8297E08D77DE7F7E729
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ A4 III. Sequentia, No. 2 Tuba Mirum(   Читать дальше...   )Жанр:
 ```bash
 magnet:?xt=urn:btih:CAC52F838604E4303442A8DED893AE0B420EDC72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Side A:
 magnet:?xt=urn:btih:381353635F50F0CE9630D9E2A81AA95AC0C0A7B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ A4  Наваждение 3:32(   Читать дальше...   )Жанр: Ambie
 ```bash
 magnet:?xt=urn:btih:4A9514D5598BBA53B05794638FFB68692CA58A6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ A4 Moving In The Midnight 5:50(   Читать дальше...   )Жанр: Synt
 magnet:?xt=urn:btih:100367999221F87BB153636235C47021470FC9AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +573,8 @@ A4 Little T & A(   Читать дальше...   )Жанр: Classic RockПро�
 magnet:?xt=urn:btih:B16E4AD61C6AD3EEEFF5F7BF3E6204BD4DD851EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +598,8 @@ Rainbow - Down To Earth (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
 ```bash
 magnet:?xt=urn:btih:EF84881BE5C299EBD6ED99465AB5C841ED24A179
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +628,8 @@ A4 Hold On To Your Hat(   Читать дальше...   )Жанр: Classic Rock
 magnet:?xt=urn:btih:D680485C374BF47113F110DBA13F16E43D63A5F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +656,8 @@ Woodkid - The Golden Age (2013) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Alterna
 ```bash
 magnet:?xt=urn:btih:88BCBDF1BDCA787069819A2385B14439366D9C4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +686,8 @@ StormWarrior — пауэр-метал-группа из Германии, ос�
 magnet:?xt=urn:btih:70FA93F21C7CABF936F40DA99D146619844104F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +715,8 @@ A4 Kilimanjaro (Kilimanžáro)(   Читать дальше...   )Жанр: Folk
 magnet:?xt=urn:btih:4A421E812EBF042767196AF5C4BAD1D13E7767FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -692,6 +742,8 @@ Blazon Stone - шведская хэви-метал/пауэр-метал гру
 ```bash
 magnet:?xt=urn:btih:D4D70CFBEA06E88C501048457208A1E58F66599E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

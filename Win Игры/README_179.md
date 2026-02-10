@@ -19,6 +19,8 @@ Thriving City: Song предлагает перенестись в прошло�
 magnet:?xt=urn:btih:B449E7DC8AC92A08866BEC9956EE13D4F3A4F390
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Sinderfury бросает перчатку игрокам, жаждущим гл
 ```bash
 magnet:?xt=urn:btih:25A643BA6CF7CE67313F9DFE2D81E7E0E52C1446
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Scholar's Mate бросает вас в огонь. Стратегия и соо
 magnet:?xt=urn:btih:319D4640B4FC5D4ED96EDA0D9675D90466FACCD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Whispers in the Moss - это полномасштабная ретро JRPG, к
 ```bash
 magnet:?xt=urn:btih:33A12F5FD54200111CC78064DBFF40ABEC175249
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Chornobyl Liquidators - симулятор ликвидатора Чернобы
 magnet:?xt=urn:btih:6A1C04779D4946073873C4D21944927775F43B3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Autopsy Simulator – симулятор с элементами хоррора,
 ```bash
 magnet:?xt=urn:btih:55512C2EC861774051A630575F3592B44F69B90A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ An English Haunting - атмосферная приключенческая иг
 magnet:?xt=urn:btih:4E87C43C2DFE822BF915CF40F7788FD5B1457D79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Tour de France 2024 (2024) [Multi] (01.04.03.846/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:63452ADF7AD6DB7A14284119C37A4BC8EC45F077
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Potty Knight Saga бросает вас с головой в сложное пр
 magnet:?xt=urn:btih:416885CAD9FE19425D851E535572DF5A6D1A1273
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Corpse Keeper – это сложная боевая стратегия, в ко
 ```bash
 magnet:?xt=urn:btih:6C29AA8162EEE5F5EB5A8FE1E5B9B886DBD56523
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Cuisineer - восхитительная игра, сочетающая в се�
 magnet:?xt=urn:btih:3124B0219A2ACE4069A220BD12077F3165CAE0FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Scholar's Mate бросает вас в огонь. Стратегия и соо
 ```bash
 magnet:?xt=urn:btih:41F2F33689C57F7D3C246CE2650A8ADB12A2419B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Tomb Raider 1-3 Remastered Starring Lara Croft - ностальгический 
 magnet:?xt=urn:btih:F062C0296DE3A10DB10B7DEBF2D896A30031CBB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ I Am Alive – экшен-приключение с элементами выж�
 ```bash
 magnet:?xt=urn:btih:8841A04025EDB91851DFFC7ABCCDB35081889703
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Wild at Heart рассказывает про двух детей, кото�
 magnet:?xt=urn:btih:394DCDCF7909E5CA205139A71FFBBE8536BF3336
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Three Goblin Wobblin – гоблинам не разрешают посещат
 ```bash
 magnet:?xt=urn:btih:157CEB5AADF32A80EF2D671F539B136D985A4F3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Paranormal Files 11: Sacrifice to Shadows / Паранормальные явл�
 magnet:?xt=urn:btih:A8304F0743A8B63FB642127AA96E0FC5723C0346
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ NUKITASHI 2 возвращает игроков на место Дзюнносу
 ```bash
 magnet:?xt=urn:btih:AD21885E2FB7CA5A1319856DA7F7D0343C840790
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ ENDLOOP (2024) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:D2989C0652175579CC9B4B62B3954CFC9C293974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ SKALD: Against the Black Priory может понравиться любител
 ```bash
 magnet:?xt=urn:btih:CD04FFEB7D9D15A4B01D09D1EDB649C2C1FA69E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Baladins погружает вас в причудливое приключен�
 magnet:?xt=urn:btih:1EBD4F3B0AA29A7A7646B188A3BDB6CC8DA51BE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Braid (2024) [Multi] (20240603) Scene Tenoke [Anniversary Edition]
 ```bash
 magnet:?xt=urn:btih:6B3EA70CBBDDAD0793033E2274051CFEF149BE2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Long Way - это аркадный симулятор вождения, кото
 magnet:?xt=urn:btih:D434B0F53F491C72A79EFE1792BE3133BFB0855B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Lysfanga: The Time Shift Warrior бросает вас в битву, котор
 ```bash
 magnet:?xt=urn:btih:90AF71BEA709E09392ADFAB57399AD0BB102AA8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Slavania - двумерная метроидвания, включающая в 
 magnet:?xt=urn:btih:B4F1A40310A07D66D31448A405E1F29B95F14491
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Ghostrunner 2 (2023) [Ru/Multi] (0.40570.441/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:DFC85E849FFEF266A402E163137A85EFD9D57D0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

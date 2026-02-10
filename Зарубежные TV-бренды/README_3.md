@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3ACACBCE2E52C5598933643DE6E08CA6E432E687
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:3ACACBCE2E52C5598933643DE6E08CA6E432E687
 ```bash
 magnet:?xt=urn:btih:F02542388FC80D3847020E276FACBEAD2F9B246A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 magnet:?xt=urn:btih:E9DD4CA9AE4B9E1867EB2814AA759AC295238E02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:E9DD4CA9AE4B9E1867EB2814AA759AC295238E02
 ```bash
 magnet:?xt=urn:btih:C23673AE6B9FC5BFF6BFE405DF58614FB3A5A4B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:C23673AE6B9FC5BFF6BFE405DF58614FB3A5A4B2
 magnet:?xt=urn:btih:73EFF071A18CA149B3496BD974BE3D23BEEC5BCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:73EFF071A18CA149B3496BD974BE3D23BEEC5BCD
 ```bash
 magnet:?xt=urn:btih:9BBAB93398E9822512D66E73D40D284165C3338A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Discovery: 11 сентября: когда башни упали / 9/11: After T
 magnet:?xt=urn:btih:4F8BF82A2135F73C1BECC95210CADA6B9A4FE462
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:4F8BF82A2135F73C1BECC95210CADA6B9A4FE462
 ```bash
 magnet:?xt=urn:btih:CA1CA0D889A9B913943CCC8BC3B2A4AB95B190DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ BBC: Конкорд. Гонка на сверхзвуковой скорости
 magnet:?xt=urn:btih:829A498B12AF9F614376AE96B5819450D1FBDDDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ OceanXplorers приглашает зрителей на борт передов
 ```bash
 magnet:?xt=urn:btih:9123CC46417AF2A5D7A6E579BDA947FD2B20E741
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ NG: Пираты: Больше, чем легенда / Pirates: Behind the Lege
 magnet:?xt=urn:btih:90C5952E1EB925E4B93095C55D3607BF9EB5B853
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ BBC. Истоки жизни (Первая жизнь с Дэвидом Атте
 ```bash
 magnet:?xt=urn:btih:12C86C1618A12D4760A17729DEAD00EB8F53AE82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:12C86C1618A12D4760A17729DEAD00EB8F53AE82
 magnet:?xt=urn:btih:FC80D2FF195B286525307F17576D584EB691F358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:FC80D2FF195B286525307F17576D584EB691F358
 ```bash
 magnet:?xt=urn:btih:903DCB1819115BD8A4F93DE539E25C03BEF7BD4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:903DCB1819115BD8A4F93DE539E25C03BEF7BD4E
 magnet:?xt=urn:btih:29D277216AFBBAA4D32504822B71C27E2B8E13DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:29D277216AFBBAA4D32504822B71C27E2B8E13DB
 ```bash
 magnet:?xt=urn:btih:881C25970AB1C8A8F33EF7F02F6749251DE6FE01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Animal Planet & BBC: Сурикаты / The Meerkats (2008) BDRip [H.264/1080p]
 magnet:?xt=urn:btih:FF06527D9AA60A49F86D91F5BB951CC42477DF5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:FF06527D9AA60A49F86D91F5BB951CC42477DF5B
 ```bash
 magnet:?xt=urn:btih:157655428D171C1A6E89CB15A49913399CAB4820
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ TikTok-танцоры присоединяются к церковной ком�
 magnet:?xt=urn:btih:A1FD8DB6D2BF264FBAA6070F128CBA2ED262F454
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ magnet:?xt=urn:btih:A1FD8DB6D2BF264FBAA6070F128CBA2ED262F454
 ```bash
 magnet:?xt=urn:btih:EA47F9AFC3B77C1BB25E4A052DF0C85FF4CCAB3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ BBC: Планета Земля 3 / Planet Earth III (2023) BDRip [H.264/1080p] (
 magnet:?xt=urn:btih:37C8A7A6C529277557FA044891EEE73A49C40156
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ PBS. Величайшие природные памятники планеты /
 ```bash
 magnet:?xt=urn:btih:A96BAC06CE21E507D78E47727270480BB17E91AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:A96BAC06CE21E507D78E47727270480BB17E91AE
 magnet:?xt=urn:btih:38A916C8B044E243E06278D5F0618F6F247E53DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ PBS. Экспедиция со Стивом Бакшоллом / Expedition with
 ```bash
 magnet:?xt=urn:btih:245D3DD0A400217516C91A62E32DCF38D089ECD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 magnet:?xt=urn:btih:A6B831E6B6ADA84C599E57843A8818D528957452
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ BBC: Луи Теру. Разговоры с анорексией / Talking to An
 ```bash
 magnet:?xt=urn:btih:3ECA597D10659403C796076086128EDF214129C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

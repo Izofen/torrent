@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:C8F7B04507C9D7170C914B06863E96B2517AD477
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:C8F7B04507C9D7170C914B06863E96B2517AD477
 ```bash
 magnet:?xt=urn:btih:A693E322C96869F101A0A6E61E4C264083F142C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:A693E322C96869F101A0A6E61E4C264083F142C8
 magnet:?xt=urn:btih:BD6CFED0067BA4A19A1179B351CE3B34730C1D01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Beonmax | Курс Полный курс Python для начинающих – 
 ```bash
 magnet:?xt=urn:btih:1B7B14B71A3DD44DA840514999ACD6E5F9FD608A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Beonmax | Курс PHP / MySQL (2019) PCRec [H.264/1080p-LQ]
 magnet:?xt=urn:btih:030975175FDFAC76833D0D1E836DB080F6A4A9C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ WordPress – одна из самых популярных CMS для созд�
 ```bash
 magnet:?xt=urn:btih:BEB86A46F0F60B0AD8245432A44C68EB41523836
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Beonmax | Курс Linux / GIT (2019) PCRec [H.264/1080p-LQ]
 magnet:?xt=urn:btih:88D521C004088520528B323446FF78C469C108F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ Beonmax | Курс Photoshop для начинающих Веб-дизайнер
 ```bash
 magnet:?xt=urn:btih:9927B108ECBAAA0CCF681666FBAFBE4ED830877E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ Beonmax | Курс ВЕБ-разработчик 2019 - с нуля до рез�
 magnet:?xt=urn:btih:251FEDFDBA966DD2390D007ED8B2BD35BE78061F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ Muses содержит около пяти часов подробных инс�
 ```bash
 magnet:?xt=urn:btih:5B243EDF4390E6E4E89D6F8EB095B3521017E748
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ Michael Pavlovich | Creature Production by Michael Pavlovich (2016) PCRec [En, R
 magnet:?xt=urn:btih:F8E2FDF802BB6DAF1AA8081374D0D910054AB6D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:F8E2FDF802BB6DAF1AA8081374D0D910054AB6D0
 ```bash
 magnet:?xt=urn:btih:22921A2B59D89D69BA1202F799983455DF61A762
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:22921A2B59D89D69BA1202F799983455DF61A762
 ```bash
 magnet:?xt=urn:btih:6E0CD9F6E55A77AB23C4AF4766298DE255835F64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ Monecle, Вилена Малая | Пошив сумок с нуля до рез
 magnet:?xt=urn:btih:4610F3F4D9C620C737914B0F3CCE60E6F2BAED2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ magnet:?xt=urn:btih:4610F3F4D9C620C737914B0F3CCE60E6F2BAED2B
 magnet:?xt=urn:btih:B4C63312A25C1BD46E0546DAEF092ECFDCC5F18C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ Udemy | Angular и NgRx - пишем реальный проект с нуля (
 magnet:?xt=urn:btih:D8954F6A2AB6EF43287DFD9B69D71DED97BC73D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ magnet:?xt=urn:btih:D8954F6A2AB6EF43287DFD9B69D71DED97BC73D3
 ```bash
 magnet:?xt=urn:btih:3DED3E22786667D0BDE4957F4AA3F29E1B817CF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +488,8 @@ Udemy, Catalin Stefan | Android Jetpack masterclass in Kotlin (2021) WEB-DL [En 
 magnet:?xt=urn:btih:F9D4F77FE4579DDF89C3E8A47AE3AD48BF39A7C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ Udemy, Bryson Payne | Real-World Ethical Hacking: Hands-on Cybersecurity (2021) 
 magnet:?xt=urn:btih:0E8A891961428877DA33F5E7F95C7AEA71C5E1E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ SEC660: Advanced Penetration Testing, Exploit Writing, and Ethical Hacking ра�
 ```bash
 magnet:?xt=urn:btih:3ADCC0BCA5299EC7392BA3FDA429A95E05E9C587
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:3ADCC0BCA5299EC7392BA3FDA429A95E05E9C587
 magnet:?xt=urn:btih:EF2D974A86DBEF4E69275737400E7BBD8F1F9773
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ Udemy | Ultimate Ethical Hacking Course 2021 (2021) WEB-DL [En / En Sub]
 magnet:?xt=urn:btih:142E8C96FFA08FA90B78A213F09B77BC1C733589
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ CG Masters | Мастер создания автомобиля в Blender / Mas
 ```bash
 magnet:?xt=urn:btih:0BA7C29B802B93A29918E70B62711070B10F0C79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +650,8 @@ Rosella Vanon | The complete beauty & portrait retouching masterclass (2020) PCR
 magnet:?xt=urn:btih:0F7B4C68A3705A442523F2A0235D6572E355DEC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ Megan DiPiero | Следующий уровень - Онлайн-семинар 
 ```bash
 magnet:?xt=urn:btih:9E257B76B16518192F2653F9F10F9DFF13E48BA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +703,8 @@ VideoSmile, Артём Слаква | Мини-курс «Blender для нов�
 ```bash
 magnet:?xt=urn:btih:ADC3D6DF6AF839A6AF1E95903AAC0A071D4BDD12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

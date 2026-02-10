@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:8ADF41E9D00CBF4083FE3900FB52778AA57E08C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -53,6 +55,8 @@ Stephen Peppos - Still (2014) [MP3|320 кб/с]<New Age, Piano>
 ```bash
 magnet:?xt=urn:btih:DCBD0975B201F10330DD262589F5ED643B90A58B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -87,6 +91,8 @@ Kate Jaconello - Earth and Sky (2011) [MP3|320 кб/с]<New Age>
 magnet:?xt=urn:btih:9D05211415ACF65843570BA0FC9D2CD94BE0BF5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -113,6 +119,8 @@ VA - Encyclopedia of Ethnic Music, Vol. 1 (2010) [MP3|192 Kbps] <Native American
 ```bash
 magnet:?xt=urn:btih:2357563A425093B0D5C24C89C29292F2AAD55FCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +155,8 @@ Enrique Ugarte - 2 albums (2001, 2005) [MP3|320 kbps]<Instrumental / Accordeon>
 magnet:?xt=urn:btih:02DE49A2CA350A138EAB38111B7EB0D22AF9F49B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +183,8 @@ a noend of mine - Green Sketches (2017) EP [FLAC|Lossless|Web-DL|tracks] <Instru
 ```bash
 magnet:?xt=urn:btih:7F3365334683CC04475EBA5268A4B2BDEBC16030
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +213,8 @@ Oliver Scheffner - Sunlight Dreams (2015) [MP3|320 кб/с] <New Age>
 magnet:?xt=urn:btih:6923982CCA5C05F2C191F700CD3F9FA14C330611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +241,8 @@ John Adorney - The Essential John Adorney (2016) [MP3|320 кб/с] <New Age>
 ```bash
 magnet:?xt=urn:btih:7819CB8D95A44340A82D2162DBBE59529C4F73DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -255,6 +271,8 @@ Mauro Usai and friends - Ethnico (my wind instruments) (2016) [MP3|320 кб/с] 
 magnet:?xt=urn:btih:966B815154842A769D874AA8FBFAA525CF80414B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +300,8 @@ MIDIval Punditz - Light (2015) [MP3|320 кб/с] <New Age, World>
 magnet:?xt=urn:btih:49C04094EAAEAB9A053EA5C3609F68B06931A1C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +325,8 @@ Tomb Raider 1-5 - Music PS collection +Bonus (1996-2000) [MP3|320 кб/с]<GameR
 ```bash
 magnet:?xt=urn:btih:FF586AAB92584B6358986A1172ACC0538D2C256C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +361,8 @@ Troika (David Arkenstone) - Kingdom of the Sun (2003) [FLAC|Lossless]<New Age>
 magnet:?xt=urn:btih:00EF78907F4A3E28AB9FC619EA9E9AA22E1E60A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +386,8 @@ Jesper Kyd - Darksiders 2 (2CD) (2012) [MP3|320 кб/с]<OST>
 ```bash
 magnet:?xt=urn:btih:BCEB4ACC354874A8EC52B6BB2B7CFE18AB351A52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +422,8 @@ Wolfsheart - The Call of the Canyons (2010) [MP3|320 кб/с]<New Age, Native Am
 magnet:?xt=urn:btih:6DA02B55D354751F094D1B5BE92ADE98443691C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +450,8 @@ Fly Project - 50 Indian Spirit (2015) [MP3|320 Kbps] <Native American, New age, 
 ```bash
 magnet:?xt=urn:btih:94D40885C0E2DE8E1F3BA8A1D53F1BD3A994B14C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +486,8 @@ VA - Дорогой Джон / Dear John (Original Motion Picture Soundtrack) (2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +521,8 @@ Ibiza - Chill Guitars (2007) [FLAC|Lossless]<Relax / Instrumental>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +549,8 @@ Kitaro - Best Of Kitaro (2009) 4CD [FLAC|Lossless|tracks + .cue] <New Age, World
 ```bash
 magnet:?xt=urn:btih:8666226FEE0172DA7793CF7DC3FA19184084673A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +579,8 @@ Arne Woutersax - Beautiful Singles (2015) [FLAC|Lossless|WEB-DL|tracks] <Instrum
 magnet:?xt=urn:btih:F4D042C4BAB9FE9C2FFC263FA548E0E5C27CDAEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +607,8 @@ Fridrik Karlsson - Moods of Iceland (2016) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 ```bash
 magnet:?xt=urn:btih:B7C48194E7A56289308470DAC562CD527B46AE12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +637,8 @@ Bernward Koch - Remembering (2015) [FLAC|Lossless|tracks + .cue] <New Age, Piano
 magnet:?xt=urn:btih:6773DDA022EC68CE04518A65E3F33AE5AB61895A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +666,8 @@ Dan Gibson - Relax The Body (2006) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 magnet:?xt=urn:btih:BCF9920440E1DAD578F4B32BC6DEADAB3FC6D0B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +694,8 @@ Donna Stewart - Meditations to Heal Your Life (2013) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:665CAF414F4EEE5D42B952D16627CE04CC4049A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -684,6 +730,8 @@ magnet:?xt=urn:btih:665CAF414F4EEE5D42B952D16627CE04CC4049A0
 magnet:?xt=urn:btih:6B6C470A847DCEC85A221ECE9C2A32EA52224920
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -717,6 +765,8 @@ James Newton Howard&John Rzeznik - The Treasure Planet/Планета сокро
 magnet:?xt=urn:btih:C280B3169D6EDB552ED5FDBA58477D477DDA97EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -749,6 +799,8 @@ The Notwist - Close To The Glass (2014) [FLAC|Lossless]<Alternative, Indie Elect
 ```bash
 magnet:?xt=urn:btih:B141E9EDAFCEC53691B3054071A1CBACE0369003
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

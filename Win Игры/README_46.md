@@ -19,6 +19,8 @@ Adventures & Quests: The Black Crystal (2025) [En] (1.0) Unofficial [Collector's
 magnet:?xt=urn:btih:CC0EAA1D140F39F185E70621BE3D258EAE745974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Suit for Hire - захватывающий экшн с видом сверху, 
 ```bash
 magnet:?xt=urn:btih:8FEC18E09B6B093DF526586654DA3F633198F611
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ theHunter: Call of the Wild – наиболее реалистичный на �
 magnet:?xt=urn:btih:C4B508A2DE7F33605AC1343AF262BAA51AB65457
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Soulstone Survivors - это динамичный экшен-рогалик, г�
 ```bash
 magnet:?xt=urn:btih:7063C0A3EADC8EC6CFD0A2C25339B885C0B7ADA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Chinese Frontiers (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:03159A0BC80606FAC8400D7336C2C1BC2D4E5218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Empire of Sin - стратегическая игра от Romero Games и Parad
 ```bash
 magnet:?xt=urn:btih:CE82CCDC140552713DCEBEBC0FEAFDEEC8F8648B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ theHunter: Call of the Wild – наиболее реалистичный на �
 magnet:?xt=urn:btih:791EE4BE9504A9F2F3F6A660B2EF28D73B107164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Cryptmaster – здесь вы сможете говорить что угод�
 ```bash
 magnet:?xt=urn:btih:FA54719C156117C1B1E26C609F0A41AC442D43B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Chinese Frontiers (2025) [Ru/Multi] (1.0) Repack seleZen
 magnet:?xt=urn:btih:9C553299B60F6F425BAC8BB5891079DEA79B1A5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Thrive: Heavy Lies The Crown (2024) [Ru/Multi] (1.0.0203) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:54661AC5BBF71193BD03B7F870BB84BAA239EE61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Cultist Simulator - настольная игра о нелёгкой и пол�
 magnet:?xt=urn:btih:E4F9B56CA1154ACF575838C88792AF7708A315FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Firmament - это повествовательная пазл-адвенчур�
 ```bash
 magnet:?xt=urn:btih:5F4B2E94605B3E360773C72AC704D69F0FBF1C82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Heads Will Roll: Reforged позволит игроку примерить на 
 magnet:?xt=urn:btih:62E941ECA17CAD5F1AE9C99BA49E207F861614A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Monster Prom 3: Monster Roadtrip (2022) [En] (2.17.a/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:98EB0D8B69FB65891203816B19DA9E6FFCC1E394
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Riven (2024) [Ru/Multi] (1.7.4) License GOG [The Deluxe Edition]
 magnet:?xt=urn:btih:8D30A6E82E052A94E33C545ACFC384D67E41652E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Dreams in the Witch House (2023) [En] (1.08) License GOG
 ```bash
 magnet:?xt=urn:btih:C9D5F00B3D68DBBA829278406B7CE1FFC24C44A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Devil May Cry 4 (2015) [Multi] (1.0/dlc) License GOG [Special Edition]
 magnet:?xt=urn:btih:6DCED5EA851BC3E7E89D665401417D2E913D56CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Viscerafest (2021) [Ru/Multi] (1.25) License GOG
 ```bash
 magnet:?xt=urn:btih:791A92CF299313C701749E71BDCF062BF5352264
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ The Executive - Movie Industry Tycoon - это бизнес-симулятор, 
 magnet:?xt=urn:btih:CCEA34146A21F87C7D9FB8ED478C4E60693ED5B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Devil May Cry HD Collection - переиздание слэшера, включ�
 ```bash
 magnet:?xt=urn:btih:388EC9361A9A7DE2B0390535CE8B39961941AC40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Oirbo (2023) [En] (1.5.3) License GOG
 magnet:?xt=urn:btih:B8DE495A01C9AFF31F74130E553E0D723110B213
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Mortal Kombat XL - игровой сборник популярного арка
 ```bash
 magnet:?xt=urn:btih:7974D2C9CA359F6CD83D56C15F1492CB0BC15FA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Chains of Freedom (2025) [Ru/Multi] (1.0.3) License GOG
 magnet:?xt=urn:btih:8FDA2474B249F690B8920D85B7F43E33D2BD5CEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Dustwind: Resistance - это тактическая одиночная игра
 ```bash
 magnet:?xt=urn:btih:A5E9BC7B9DC8EB1D72270D8590A59FF9028BABE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.5/dlc) Repack seleZen
 magnet:?xt=urn:btih:61C3758BF8F1249E149473641FFE20FF03302ED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Kulebra and the Souls of Limbo (2025) [Multi] (1.0.13) Repack FitGirl [Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:3265880E3D17B742EE4A5486EBE1F51DC08832DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

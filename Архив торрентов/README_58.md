@@ -22,6 +22,8 @@ Solid Explorer - это приложение для управления фай�
 magnet:?xt=urn:btih:BA11EFC86FC3DCC000EE76FB286CE0279C51B0C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ aCalendar+ Calendar & Tasks v2.9.0 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B7151B1FFFED101E5F2FCE70F6138018FA163976
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:B7151B1FFFED101E5F2FCE70F6138018FA163976
 magnet:?xt=urn:btih:86AC81756F752DA55F9739CC13125A8B490B6B28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:545DAEEAF59D13B424539294BC100A8CEC19B56E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:545DAEEAF59D13B424539294BC100A8CEC19B56E
 magnet:?xt=urn:btih:456581164B5B70451389E26B8D35D3C94D33A3AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:456581164B5B70451389E26B8D35D3C94D33A3AF
 ```bash
 magnet:?xt=urn:btih:F765F633C509E530AB125CF5A1E62F6FB1A027E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:F765F633C509E530AB125CF5A1E62F6FB1A027E7
 magnet:?xt=urn:btih:B9AB00DF5CEA0588619B8EE6DF7C8F336C507256
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:B9AB00DF5CEA0588619B8EE6DF7C8F336C507256
 ```bash
 magnet:?xt=urn:btih:23838D27202C062352109955CAE469891F5CD7AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:92D6B502AE80DBA70B146DE39FBDAF5A84B2E3CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Abelssoft SSD Fresh - если вы счастливый обладатель SS
 ```bash
 magnet:?xt=urn:btih:D07743913A2B1DFD17ADEEB379FDC235103211D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Rufus - небольшая утилита помогает отформатир�
 magnet:?xt=urn:btih:A13C523758BC2B236CA5B4D3C6E2B6479C17EA40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:3371C3D6B6839B29436339D806C4E8C6EC820942
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 magnet:?xt=urn:btih:EAF7171C5C1933F29189C1ADC772A55F6F30D0F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ XnView MP - мощное многофункциональное приложен
 ```bash
 magnet:?xt=urn:btih:175428A3B60FCB4673DF662DB5393E77F414EC50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Allavsoft Video Downloader Converter - это мощный видео загру
 magnet:?xt=urn:btih:139A591A0ACFB025C853BF2FE93B26213C43DC89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:139A591A0ACFB025C853BF2FE93B26213C43DC89
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:139A591A0ACFB025C853BF2FE93B26213C43DC89
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ FxSound (ранее DFX Audio Enhancer) - отличное приложение,
 ```bash
 magnet:?xt=urn:btih:47643F04D88E69AAC81FBF499647C5954BEE0245
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ AOMEI Partition Assistant – мощная программа для работ�
 magnet:?xt=urn:btih:F396889FE9EFCF916766E55068358D697533D296
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:F396889FE9EFCF916766E55068358D697533D296
 ```bash
 magnet:?xt=urn:btih:2B84FCBAF230ADE35AB06D3C4501E074584F417C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ WinCatalog - это простая в использовании програм�
 magnet:?xt=urn:btih:D8700EDB3F71DF9996F6BDAB575934AEE62A91D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ FBReader Premium v3.8.12 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:471FB62100842DC07CB506A24A4C33BC442CA738
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:471FB62100842DC07CB506A24A4C33BC442CA738
 magnet:?xt=urn:btih:DB4ED964372D36BFC6BBE81EE578133B9A0A9652
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ VRadio - Online Radio App v2.8.2 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9F7247A2339ACB5ACA599B00612EAF7D7E2DA08B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:9F7247A2339ACB5ACA599B00612EAF7D7E2DA08B
 magnet:?xt=urn:btih:809566E1BA78FDA40A97D22F54324AB8F42FD2D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ TikTok - социальное приложение для тех кто пред
 ```bash
 magnet:?xt=urn:btih:CB87D71619B3CA5D731CF47C2D06444EC2940A99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

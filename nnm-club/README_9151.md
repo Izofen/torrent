@@ -22,6 +22,8 @@ Michel Sajrawy - Writings On The Wall (2009) [FLAC|Lossless|tracks + .cue] <Main
 magnet:?xt=urn:btih:5771479F8FF7DB088E7507A322C19774BC9C9A7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:5771479F8FF7DB088E7507A322C19774BC9C9A7A
 ```bash
 magnet:?xt=urn:btih:73B7D800657E8FC319B00E5F02BA74FC86F38DCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Who's Afraid Of 138?!  Best Of (2016) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:3774F2E512A79A7DD976499B792A90B424E28F37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Toshiko Akiyoshi & Charlie Mariano - Toshiko Mariano Quartet Live at Birdland (1
 ```bash
 magnet:?xt=urn:btih:D5D64DC34D3F82033C6746FDF2EC99D6465249DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Art Farmer - Soul Eyes: Live At The Blue Note (1992) Enja[FLAC|Lossless|tracks +
 magnet:?xt=urn:btih:DA7727F19B47FA676E6BE21C1B02E3D26C707C34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:DA7727F19B47FA676E6BE21C1B02E3D26C707C34
 ```bash
 magnet:?xt=urn:btih:BEA6E979B3181324C894135A5B0788A0658B52FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Cedar Walton - Among Friends (1982) 1990, Bellaphon[FLAC|Lossless|tracks + .cue]
 magnet:?xt=urn:btih:CA125E00032D6208AEF7AAE551E4619DC040BB69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ magnet:?xt=urn:btih:CA125E00032D6208AEF7AAE551E4619DC040BB69
 magnet:?xt=urn:btih:C1BA2F8F0342D5EE1C6FABBE0B20157EE7FEA117
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +252,8 @@ magnet:?xt=urn:btih:C1BA2F8F0342D5EE1C6FABBE0B20157EE7FEA117
 ```bash
 magnet:?xt=urn:btih:239DEC1B1EAF7291FCD1BFC2616EE608E5EB9780
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:239DEC1B1EAF7291FCD1BFC2616EE608E5EB9780
 magnet:?xt=urn:btih:E31D38088FCB538265CB834E5FD37F247E2B427B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +307,8 @@ magnet:?xt=urn:btih:E31D38088FCB538265CB834E5FD37F247E2B427B
 ```bash
 magnet:?xt=urn:btih:E2CEA7F9B9B98981B0EAA1710CAAFC93103B3033
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +334,8 @@ magnet:?xt=urn:btih:E2CEA7F9B9B98981B0EAA1710CAAFC93103B3033
 ```bash
 magnet:?xt=urn:btih:A06FD31458B0A2859621F9B16BF7FFDF1558707A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +364,8 @@ Ulf Wakenius - Vagabond (2012) [FLAC|Lossless]<Jazz, World Fusion, Contemporary 
 magnet:?xt=urn:btih:F6E44E2BD418947766A4446B9BCB3DE4E542988B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +393,8 @@ Minecraft это игра наподобие песочницы в которо�
 magnet:?xt=urn:btih:860B8BFD1E091F7A12C5D35C080AFE642394A9AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +418,8 @@ magnet:?xt=urn:btih:860B8BFD1E091F7A12C5D35C080AFE642394A9AA
 ```bash
 magnet:?xt=urn:btih:B39FCE5641A146AFBF308E5D1D31A505C87BFE0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +447,8 @@ magnet:?xt=urn:btih:B39FCE5641A146AFBF308E5D1D31A505C87BFE0F
 magnet:?xt=urn:btih:919D6BF56E7AD19DA325DB47C744938C9BD23645
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +472,8 @@ magnet:?xt=urn:btih:919D6BF56E7AD19DA325DB47C744938C9BD23645
 ```bash
 magnet:?xt=urn:btih:036D85328B132397B5662710775C5EFFBF568C57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +499,8 @@ magnet:?xt=urn:btih:036D85328B132397B5662710775C5EFFBF568C57
 magnet:?xt=urn:btih:0DE97D0FDDD1C11B7AC68E74E34BD76C4207828B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +524,8 @@ magnet:?xt=urn:btih:0DE97D0FDDD1C11B7AC68E74E34BD76C4207828B
 ```bash
 magnet:?xt=urn:btih:182A1290C60ADCDFC60E0DE6DDB9AA2B17B70E58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +551,8 @@ magnet:?xt=urn:btih:182A1290C60ADCDFC60E0DE6DDB9AA2B17B70E58
 magnet:?xt=urn:btih:7A004FF8C0D5A9D05B2A70B4CDA4DA9335954A26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +576,8 @@ magnet:?xt=urn:btih:7A004FF8C0D5A9D05B2A70B4CDA4DA9335954A26
 ```bash
 magnet:?xt=urn:btih:DAFE5C66D193F0F2C23BF330FB333236BA3A7A88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +603,8 @@ magnet:?xt=urn:btih:DAFE5C66D193F0F2C23BF330FB333236BA3A7A88
 magnet:?xt=urn:btih:1BEE72B27F5A50A0A4E445D737F3E04DE32B60E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +628,8 @@ magnet:?xt=urn:btih:1BEE72B27F5A50A0A4E445D737F3E04DE32B60E7
 ```bash
 magnet:?xt=urn:btih:9021DED341A216B9776786CC756C7EC02D088A73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +657,8 @@ magnet:?xt=urn:btih:9021DED341A216B9776786CC756C7EC02D088A73
 magnet:?xt=urn:btih:CF718880D4313296D1397B5DF37E4480028C5AA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ magnet:?xt=urn:btih:CF718880D4313296D1397B5DF37E4480028C5AA3
 ```bash
 magnet:?xt=urn:btih:CAF4E4D991D4B52652402B2704A9E751589AA0DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +709,8 @@ magnet:?xt=urn:btih:CAF4E4D991D4B52652402B2704A9E751589AA0DE
 ```bash
 magnet:?xt=urn:btih:A9201FBFFC6C7C5262BD93D44A0B518572BBAD0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

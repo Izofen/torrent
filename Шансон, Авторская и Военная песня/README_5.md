@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:23B4361B38BBEC3CAA0E28287EDE32CE0CBEEDCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:23B4361B38BBEC3CAA0E28287EDE32CE0CBEEDCB
 magnet:?xt=urn:btih:9B70229C293C8DBC8F0E12654B3F69B3BED5CBE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:9B70229C293C8DBC8F0E12654B3F69B3BED5CBE3
 ```bash
 magnet:?xt=urn:btih:D1B64C36D2716B90EFDD8B398F85C0AB8A648821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ VA - Золотая песня года 2024 (2024) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:007AC128A2340371388FE0A297383A8B4CD4F3E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ VA - Лучшие дуэты года 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:8AD1E99B2E445DAAE60A61287AFEC54C493E1425
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ magnet:?xt=urn:btih:8AD1E99B2E445DAAE60A61287AFEC54C493E1425
 magnet:?xt=urn:btih:9E9C94C88EA25997E91C42259FEC238C258281E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ magnet:?xt=urn:btih:9E9C94C88EA25997E91C42259FEC238C258281E9
 ```bash
 magnet:?xt=urn:btih:4C9C0FE43193A7E7C3C69491A933CBF2DF3248E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ VA - Новые хитовые песни 2024, Часть 10 (2024) [FLAC|Lossl
 magnet:?xt=urn:btih:2238188AD6A34A3FCE898DA8CC756A9AAC9FAADB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ VA - Самые душевные песни русского шансона 3 (2
 ```bash
 magnet:?xt=urn:btih:29C46F21745F685908E52827E98333D1266333EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ VA - Шансон для пацанов (2024) [FLAC|Lossless|WEB-DL|tracks] <Ш
 magnet:?xt=urn:btih:498171DA3C89705CB2FDC40E4738426116F47699
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ VA - Лучшие хиты шансона (2024) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:33E9B9EFEF755BCED7B24FC7DCC019415945372D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +338,8 @@ VA - Хитопад шансона (2024) [FLAC|Lossless|WEB-DL|tracks] <Шан�
 magnet:?xt=urn:btih:38006C8D66DD54B76FF436EEF011CD9584288E1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ VA - Самые новые песни о любви 6 (2024) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:4CF517525115CCB6DDEF3413D5B1E27D059CE441
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ magnet:?xt=urn:btih:4CF517525115CCB6DDEF3413D5B1E27D059CE441
 magnet:?xt=urn:btih:BA87756704A6A4B8626D04C5B32A3F2E5C0AAD29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ VA - Шансон премьера 2024 сентябрь (Новые песни.
 ```bash
 magnet:?xt=urn:btih:0AEE346D539D02586E3A484B022DA70A6F1B7987
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ VA - Самые душевные песни русского шансона 2 (2
 magnet:?xt=urn:btih:CBDC9E60FB6EEEE9DC02D5EF0BCF794D5BD45110
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ magnet:?xt=urn:btih:CBDC9E60FB6EEEE9DC02D5EF0BCF794D5BD45110
 ```bash
 magnet:?xt=urn:btih:C133FA6CA89C8A17DA88DF34E397F81AFA5A6145
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ VA - Новые хитовые песни 2024, Часть 9 (2024) [FLAC|Lossle
 magnet:?xt=urn:btih:038133812A68C949042BA4AB8BAA4B0E127640D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +540,8 @@ VA - Привет, менты! (Ништяк, браток!) (1998) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:C9E731E414FA2C51B8CEFB2379F88BEEB7E07117
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +570,8 @@ VA - Привет, менты! (Ништяк, браток!) (1998) [FLAC|Lossle
 magnet:?xt=urn:btih:86298436CD2C2F51B9FA8D9DF307BB05598950C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +598,8 @@ VA - Ништяк, браток! (Лучшее и новое) (2005) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:F8F09C69BAC23FAA5A84CB0E03A7E590CEABCB60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +628,8 @@ magnet:?xt=urn:btih:F8F09C69BAC23FAA5A84CB0E03A7E590CEABCB60
 magnet:?xt=urn:btih:B6C36A6FB5C89B3B16CB75D2915EC43A860FEDD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +656,8 @@ magnet:?xt=urn:btih:B6C36A6FB5C89B3B16CB75D2915EC43A860FEDD6
 ```bash
 magnet:?xt=urn:btih:3F8C8B72FEFE434571BD049CE0C17F4258585D1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +686,8 @@ magnet:?xt=urn:btih:3F8C8B72FEFE434571BD049CE0C17F4258585D1F
 magnet:?xt=urn:btih:319C3ED0F0873A28E9B8A837E541A9E45D545DF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +715,8 @@ VA - Шансон премьера 2024 август (Новые песни. Н�
 magnet:?xt=urn:btih:D64391C0E81D6D8D5DB67CD94C868619A5082AA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ VA - Самые новые песни о любви 5 (2024) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:0F93202406F3EB1DA110063B8AA98AB1D30E1D17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

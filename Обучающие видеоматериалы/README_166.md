@@ -19,6 +19,8 @@ Lynda, Aaron F. Ross | 3ds Max Advanced Materials (2016) PCRec [EN, RU]
 magnet:?xt=urn:btih:BAE0FDCAFF7CBBD52FBCACF8A05AADA7E929097E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Digital Tutors, Dan Cox | Designing a Modular Structure for Games in 3ds Max (20
 ```bash
 magnet:?xt=urn:btih:AD7F187D7DC0631673C77FAAF82481A2FE1957FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Substance Designer – это мощное, базирующееся на про
 magnet:?xt=urn:btih:AF76573E036010C26D05764683D1548046F6F31D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Bitmap2Material (B2M) это приложение от Allegorithmic, котор
 ```bash
 magnet:?xt=urn:btih:D912EC9231E9F1A9C9877EB46D6D4F80332946B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:D912EC9231E9F1A9C9877EB46D6D4F80332946B5
 magnet:?xt=urn:btih:1FB45E437C73379CE957E17C21A6DA31957D8EB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Windows 10 - это операционная система. Это основн
 ```bash
 magnet:?xt=urn:btih:FA4E05576B804B0FCA3F8B7B55E33E4EE8744729
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Gumroad, Josh Gambrell, Ponte Ryuurui | Дизайн Sci-Fi меха в Blender 
 magnet:?xt=urn:btih:6D1950CDD93BF7DA9649A1D2D3D6F8CD8554A2E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Profileschool | Панорамная фотография (2014) PCRec
 ```bash
 magnet:?xt=urn:btih:0E07F2FAE07D1AA4717CD1CF52C2376D377F1C32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Postgres Professional | Разработка серверной части пр�
 magnet:?xt=urn:btih:136489F24BD866812FFCEEDBE38BE59DF3729647
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:136489F24BD866812FFCEEDBE38BE59DF3729647
 ```bash
 magnet:?xt=urn:btih:FAF4EF5CA7FE524275BC523A24E967AFA7E0ED1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:FAF4EF5CA7FE524275BC523A24E967AFA7E0ED1F
 magnet:?xt=urn:btih:FF225F757567FBCAF85C37AC1BF51D5EF6A8648D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Cinema 4D - это важный инструмент для motion graphics arti
 ```bash
 magnet:?xt=urn:btih:645A3AD53AE97E26238AB3473F93B8D15CEFA742
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:645A3AD53AE97E26238AB3473F93B8D15CEFA742
 magnet:?xt=urn:btih:D5A312C861ABBF6F10F71789667F21C50E35B439
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:D5A312C861ABBF6F10F71789667F21C50E35B439
 ```bash
 magnet:?xt=urn:btih:010A2D66BB2B871E93B62521A15A86ECD407E781
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:010A2D66BB2B871E93B62521A15A86ECD407E781
 magnet:?xt=urn:btih:D3CC174BE48EB7D62EACEDEF3C227AC684CCA0C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:D3CC174BE48EB7D62EACEDEF3C227AC684CCA0C4
 magnet:?xt=urn:btih:143C4D7D84D65ACF3767F3C19F0993E7B4815717
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ Gilad | Fé Fit Women's Workout Program (2016) WEBRip [H.264] [EN]
 ```bash
 magnet:?xt=urn:btih:CB61659167C0F94196AD3CF424C5F466DDAC2A32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ Sabatovsky, Влад Сабатовский | After Effects от новичка 
 magnet:?xt=urn:btih:0668C97F2776E1D469E3EA2A977AEEB9C8DD5ECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ VMware vSphere – решение виртуализации масштаба п
 ```bash
 magnet:?xt=urn:btih:B43EEDE41225B6508A1DD8A05FC0C45842FE5538
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +543,8 @@ magnet:?xt=urn:btih:B43EEDE41225B6508A1DD8A05FC0C45842FE5538
 magnet:?xt=urn:btih:3756634CFCC4D6717761380401753B36699C96AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ The Gnomon Workshop, Justin Holt | Painting Realistic Skin in Mari 2.0 (2013) PC
 ```bash
 magnet:?xt=urn:btih:7A2C592B28ABB5BD0ABBE5D55ED22F4DA6451155
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +595,8 @@ magnet:?xt=urn:btih:7A2C592B28ABB5BD0ABBE5D55ED22F4DA6451155
 ```bash
 magnet:?xt=urn:btih:5FC6F9BFEDA464BD76BBC48AACE71CB0B3EE97DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +627,8 @@ magnet:?xt=urn:btih:5FC6F9BFEDA464BD76BBC48AACE71CB0B3EE97DE
 magnet:?xt=urn:btih:7FA07BCB43AD33D2D5FD151758CFF897C2852256
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ magnet:?xt=urn:btih:7FA07BCB43AD33D2D5FD151758CFF897C2852256
 magnet:?xt=urn:btih:1906883F2CECB36A25BB0707D01994D31A2EEFD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +680,8 @@ ProfIT | MySQL 8 (2019) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:97577F9716E5300EA4CC75F920DB2C8C6584A27E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ ProfIT | Про TDD, BDD и вот это всё (2019) PCRec [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:741613292C6DDCE0C4455BF5CD08ECA2A1F3B801
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

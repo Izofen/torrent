@@ -19,6 +19,8 @@ The Closing Shift (2022) [Multi] (1.10) Repack Other s
 magnet:?xt=urn:btih:A87068EEE56E49D7F4CD929437A6D3A8C9520332
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MAMIYA: A Shared Illusion of the World's End (2021) [Multi] (7.1.2/dlc) Scene Te
 ```bash
 magnet:?xt=urn:btih:1377DA2E8E2CF94BD3576887B2758C53AA4F4F59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Mundaun — это жуткая история с карандашными ил�
 magnet:?xt=urn:btih:AD98460209CF6390332F34ADBD130B44361EB645
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.10.13.12.03/dlc) Repack Oth
 ```bash
 magnet:?xt=urn:btih:FD25022680770E294211DFB5F22A91B1F337EF00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Youropa (2018) [Ru/Multi] (2.0.10) License DOGE
 magnet:?xt=urn:btih:0B42E1F8EE8C6E9CACB6A72D582208571AF8A13D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Expanse: A Telltale Series (2023) [Ru/Multi] (1.0.902523) Repack dixen18 [Ep
 ```bash
 magnet:?xt=urn:btih:938738DF08DE53B02AE41B68C1BEA6531418BCBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Finding Paradise (2017) [En/Ch] (1.2c) License GOG
 magnet:?xt=urn:btih:9D2A3846813F18F7CA4A00F73BEB0B6977016BAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Ken Follett’s The Pillars of the Earth (2017) [Ru/Multi] (1.1.636) License GOG
 ```bash
 magnet:?xt=urn:btih:F304493D964088622032223DFD057161C01D38DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Minecraft: Story Mode предлагает отправиться в попул�
 magnet:?xt=urn:btih:5BC39416C99EE6EA72BC16E186ABC4AD22DAC080
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Of Light and Darkness: The Prophecy (1998) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:94BA4D2750C6883972DE53E683D0551579FE23F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:94BA4D2750C6883972DE53E683D0551579FE23F5
 magnet:?xt=urn:btih:3B083865E502DECCD4FFC95B38F55C5237040BD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ UNCHARTED: Legacy of Thieves Collection (2022) [Ru/Multi] (1.4.21058) License GO
 ```bash
 magnet:?xt=urn:btih:8628F6EEC2D45AA9450620E6BF2118DD93187023
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Room Three (2018) [Ru/Multi] (1.0/upd1) License PLAZA
 magnet:?xt=urn:btih:222AA46DE0A9F22E531C939244A5F13071BE4B27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Daylight (2014) [Ru/Multi] (Build 432586/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0A1C5F49A5A0CF74DA66F2833BBE4AF2367FBEDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Amnesia: The Dark Descent – приключенческая игра с вид�
 magnet:?xt=urn:btih:77D47375934E28A3BDFBCC83A4A67B27C1E1ECE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Californium (2016) [Multi] (1.04) License GOG
 ```bash
 magnet:?xt=urn:btih:0FB07B2E44F9E87A2EE12525F840576753F49FB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Tormented Souls — это классическая хоррор-игра. Ка�
 magnet:?xt=urn:btih:539853599ADA568514321F3A35220A1E74247C55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Nerved – игровой проект, представленный в стил
 ```bash
 magnet:?xt=urn:btih:22EA8B1F30CA6F12722E91B032597E14A657BC4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Father's Day (2022) [Ru/En] (1.6.1) Repack Other s
 magnet:?xt=urn:btih:F297DB1FC17F732EE2465FC216DE936FA181B77D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Broken Sword 4: The Angel of Death / Сломанный меч 4: Ангел с�
 ```bash
 magnet:?xt=urn:btih:D9D5DB435FCAE85F7366904A2F63EDE67785F0B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) License GOG [Episodes 1-3
 magnet:?xt=urn:btih:7D808470C123E70B48CA68491EA5AEC9E2E43151
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Broken Sword: The Sleeping Dragon / Сломанный меч 3: Спящий д
 ```bash
 magnet:?xt=urn:btih:8A3D76222F28ADA0DD058227C11B77D774DA9DFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Amnesia: The Dark Descent / Амнезия: Призрак прошлого (201
 magnet:?xt=urn:btih:F8DE54F5CDA097992E93FE8191C2130A4630122C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Trine 5: A Clockwork Conspiracy (2023) [Ru/Multi] (1.2a) License GOG
 ```bash
 magnet:?xt=urn:btih:CAC81A33C572860C07897D59BBC02423829E9EBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ FIRSTDATE: LATE TO DATE — это романтически-комедийная
 magnet:?xt=urn:btih:A8DE198637B458215D945D0AF1B930F63079DBB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Death Stranding – один из самых ожидаемых релизов �
 ```bash
 magnet:?xt=urn:btih:846A3A8ABC1526821E58224B308D44EF7E4D99F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

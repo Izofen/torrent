@@ -19,6 +19,8 @@ IsMyLcdOK - небольшая бесплатная программа для о
 magnet:?xt=urn:btih:349C85D346952B113FF03B74575FA50138FD8F33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ OBS Студия - бесплатное программное обеспече�
 ```bash
 magnet:?xt=urn:btih:15DD464F8E3A7013D6855407A663CBB3A11D1ED0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ DVDFab – мощный, многофункциональный программ
 magnet:?xt=urn:btih:59B4D44A31AE4B17B68786C0DFE5C57218A08726
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ UsbTreeView - маленькая портативная утилита, реал
 ```bash
 magnet:?xt=urn:btih:140EE95F5B852AD47A0EFD90F99D0E1BA4879EC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ DVDFab StreamFab — это удобный и мощный инструмент 
 magnet:?xt=urn:btih:37527956E12C825E7B010CE943FF2A9F4061DDB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 ```bash
 magnet:?xt=urn:btih:077F964DFBADF12A3527622DE7F721830CAF2180
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ ApowerREC - это программа которая может записыва
 magnet:?xt=urn:btih:61084F1F9601CF1C4468663D610E4A70D55D75E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Bulk Image Downloader – это программа для загрузки из
 ```bash
 magnet:?xt=urn:btih:B631A02F280F41DA66E24D1FE987E17D93FFE493
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 magnet:?xt=urn:btih:2C732679196669C1393A2B3DA7EC5C0F8F019291
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Acrobat Pro — это полностью обновленная настоль�
 magnet:?xt=urn:btih:5C872AF1934243452D12B28737A8A85BEA065FE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Any Burn - небольшая бесплатная утилита для раб�
 ```bash
 magnet:?xt=urn:btih:78CD92436EFA57FA0998A6D44F743360ABF38062
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ SD Card Test Pro v2.2 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:51A383D1E07C164392B6E2CCC5C2163B41B41241
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ MediaHuman YouTube Downloader 3.9.9.93 (0713) RePack (& Portable) by elchupacabr
 magnet:?xt=urn:btih:BC196B9A53802270A0220BADB7CEC7B75F5C6290
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:6B55543E3F297B338F1DF14DB2F3AEB5B272C091
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ RESIZE ФОТО - Копир.изобр - Обрезка изображения 
 magnet:?xt=urn:btih:8B4467FF2BAC537C8E7BA856C6F000D1FB095B7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:8B4467FF2BAC537C8E7BA856C6F000D1FB095B7A
 ```bash
 magnet:?xt=urn:btih:B63AB14A5413730625B8608777A9419754395B15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Rosetta Stone: Изучение языков 8.26.0 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:5DA70332E34FE18D839028578F985AB0343FF302
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:69CDDA6D40ECBAF44D771FE9FC00E18A09B85B06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:69CDDA6D40ECBAF44D771FE9FC00E18A09B85B06
 magnet:?xt=urn:btih:FFEAB0354D3DBE04AFD077C3368184E93C1EACCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 magnet:?xt=urn:btih:33429F06A0DD819663BDFCC3295D975C58777D54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ MKVToolnix - функциональный набор инструментов д
 magnet:?xt=urn:btih:0637E472742CF01EEF1595983F7C23B007117AFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ OpenShot Video Editor - видеоредактор, позволяющий ле�
 ```bash
 magnet:?xt=urn:btih:EDE8D1D5825728BFD484215859A1616A2994E7AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ Imagine - это бесплатный просмотрщик изображен�
 magnet:?xt=urn:btih:3CBDFC6AD420BCCD18DD2CFB0F115D84EBD9EA67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ AVS Media Player - полнофункциональный программный
 ```bash
 magnet:?xt=urn:btih:7FEA3DCFE22FE93C98336AF8F7CE98D1C841D781
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ XtraTools — это универсальный инструмент для оп
 magnet:?xt=urn:btih:B8818E685F56FCAE5E2AA3BCA2AD7E98ACF7CCE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ R-Studio Network 9.4 Build 191338 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EE6F9A96435FABA0F8866488A9F3A202554FAF3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

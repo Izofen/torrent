@@ -22,6 +22,8 @@ A4 Звезден Път • Star Way(   Читать дальше...   )Жан�
 magnet:?xt=urn:btih:393D7668E3DA47E62A80F040BF2DF9D929E9EDA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ In Mourning - The Immortal (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressi
 magnet:?xt=urn:btih:739BE5DDE7782EB5C97FA45401AB8A5105063A3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:739BE5DDE7782EB5C97FA45401AB8A5105063A3E
 ```bash
 magnet:?xt=urn:btih:7AAF1E8ABEA4CB0A51402A7B17FDB49E8C4CB9B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:7AAF1E8ABEA4CB0A51402A7B17FDB49E8C4CB9B2
 magnet:?xt=urn:btih:63F8FA5D099CD51EBFA69FBE6DAA32DE9D74C1A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:63F8FA5D099CD51EBFA69FBE6DAA32DE9D74C1A0
 ```bash
 magnet:?xt=urn:btih:B2918E774207952B51522E32BC1DF6E250BD004E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Animal Well (2024) [Switch] [EUR] 19.0.1, Atmosphere 1.9.1 [License] [Ru/Multi]
 magnet:?xt=urn:btih:17B590584AC0D563404A6D6C80E03BA10C23F113
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Sea of Stars расскажет историю двух детей солнце�
 ```bash
 magnet:?xt=urn:btih:9097B0757402DE7DF787268D0F59A5F274C2AEC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Bayonetta Origins: Cereza and the Lost Demon (2023) [Switch] [EUR] 15.0.1, Atmos
 magnet:?xt=urn:btih:C1D447D471233B47B9D10E134C547DE1199412A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:C1D447D471233B47B9D10E134C547DE1199412A0
 ```bash
 magnet:?xt=urn:btih:B9CD07BCC13DD0656B886FC1647B760A9D96033A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Shin Megami Tensei V: Vengeance (2024) [Switch] [USA] 18.1.0, Atmosphere 1.7.1 [
 magnet:?xt=urn:btih:4C30A496AC18C2D88FF8504DAB6D9EFD7DE73C63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Ithya: Magic Studies / Итийя: Волшебные занятия (2025) [Ru/
 ```bash
 magnet:?xt=urn:btih:AF5F0450072C742D070BE801099FA693B4F02E89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Rage in Peace (2018) [Multi] (1.0) License GOG [Collector's Edition]
 magnet:?xt=urn:btih:B8FCA8302AF50220B972352C85F6FBC512DF3048
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:B8FCA8302AF50220B972352C85F6FBC512DF3048
 ```bash
 magnet:?xt=urn:btih:92D37DD63DD01CB536AA6A3B234A67AB40E60159
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ VA - Buddha Luxury 2025 (Compiled by Marga Sol) [FLAC|Lossless|WEB-DL|tracks] <O
 magnet:?xt=urn:btih:B316415A4D628124BAD502A205FF1B5E180D6598
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ VA - Best Driving EDM 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic
 magnet:?xt=urn:btih:FDBB875553B8E4B6D8C4CCD34235AFEB77F35796
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:FDBB875553B8E4B6D8C4CCD34235AFEB77F35796
 ```bash
 magnet:?xt=urn:btih:79F40FE4F07F35D73925393E7E09A7F89C72F43C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ Dog Scanner: Породы собак v22.2.15-G Mod by PieMods [Ru/Multi]
 magnet:?xt=urn:btih:B9DCF2227E76D5E786B3A199389F212F71A79F73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ A Little to the Left (2022) [Multi] (3.5.10/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:5DFD2F7C9BC302C027A596539D54B7D8056E35BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ Dave The Diver: Anniversary Edition (2023) [Switch] [EUR] 18.1.0, Atmosphere 1.7
 magnet:?xt=urn:btih:9F25CFCF53A0AA40894104D67E196DCC72949EBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:9F25CFCF53A0AA40894104D67E196DCC72949EBA
 magnet:?xt=urn:btih:57C9864B87321EEB10CD39F5F06501926DCA950F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:57C9864B87321EEB10CD39F5F06501926DCA950F
 ```bash
 magnet:?xt=urn:btih:730B9336EF5DB0965D4CA6F286FCE45AC5A15300
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:730B9336EF5DB0965D4CA6F286FCE45AC5A15300
 magnet:?xt=urn:btih:7F3EA6B785B4D7A4E2A371696EDB130E5E8923C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:7F3EA6B785B4D7A4E2A371696EDB130E5E8923C2
 ```bash
 magnet:?xt=urn:btih:4A8654002BCA8874BA4F4CC78BD15FB24C0159A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ magnet:?xt=urn:btih:4A8654002BCA8874BA4F4CC78BD15FB24C0159A6
 magnet:?xt=urn:btih:A3FC05F04365ADE2A770893EE68F59EC6ED0A8B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:A3FC05F04365ADE2A770893EE68F59EC6ED0A8B5
 ```bash
 magnet:?xt=urn:btih:9BE7E69651AA9F3C1BA9948F683FDAA679425F47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +685,8 @@ Bandicam поможет вам сделать запись игры с высо�
 ```bash
 magnet:?xt=urn:btih:4D8BA0ABF21D9146376F9833F4ABD1B5DF834B40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

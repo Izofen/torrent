@@ -20,6 +20,8 @@ Face Swap - AI Photo Editor v1.4.7 Mod by Balatan [Multi]
 magnet:?xt=urn:btih:ACAF6C3176AD7F6F8DD10459C897BD4E5E8E1420
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:ACAF6C3176AD7F6F8DD10459C897BD4E5E8E1420
 ```bash
 magnet:?xt=urn:btih:0310DA3E2E23C203BC5279E7A26FA6F1EE140CBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Ninja Gaiden: Ragebound - совершенно новая игра с боков
 magnet:?xt=urn:btih:318CB24C8191AD49C981295D69794E94430EF1A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ South of Midnight (2025) [Ru/Multi] (1.3.0 186489) Repack Other s
 magnet:?xt=urn:btih:78BB50294C7BE7BAF1EA88577866A638FB551ABA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:78BB50294C7BE7BAF1EA88577866A638FB551ABA
 ```bash
 magnet:?xt=urn:btih:4BF3289A97C6C35820D71C48C3CD16E01EB2AF2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:4BF3289A97C6C35820D71C48C3CD16E01EB2AF2A
 magnet:?xt=urn:btih:654D2271AA9F062DD24357FE4C40685F9EDBAB0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:654D2271AA9F062DD24357FE4C40685F9EDBAB0F
 ```bash
 magnet:?xt=urn:btih:AD2AF7521857CB22B7CD487822301F83EEC582FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:AD2AF7521857CB22B7CD487822301F83EEC582FB
 magnet:?xt=urn:btih:8A51D2396100DCD468D48142F94DE0DF57A8EE59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:8A51D2396100DCD468D48142F94DE0DF57A8EE59
 ```bash
 magnet:?xt=urn:btih:66D5934F1E8C94547B9BEABE41D374B15C936131
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Chasers Dash & Bash (2020) [Ru/Multi] (1.0.1) Repack FitGirl
 magnet:?xt=urn:btih:D12C3B2284D7954ABC7E16240E924C59C30BC3FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:D12C3B2284D7954ABC7E16240E924C59C30BC3FB
 ```bash
 magnet:?xt=urn:btih:086E0C6F2E5F1D524AC026C2F99D24FEB106C447
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:086E0C6F2E5F1D524AC026C2F99D24FEB106C447
 magnet:?xt=urn:btih:4E32BC0015A4469C1E2714ED435BA50C1D019B32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:4E32BC0015A4469C1E2714ED435BA50C1D019B32
 ```bash
 magnet:?xt=urn:btih:A5366D12BBA3DA71E78E2D28507F518B9CD04E4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Power & Revolution (2023) [Ru/Multi] (6.94/dlc) Repack FitGirl [2023 Edition]
 magnet:?xt=urn:btih:8976756C66C1291438FEC50B9660211ED1B09FB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:8976756C66C1291438FEC50B9660211ED1B09FB8
 ```bash
 magnet:?xt=urn:btih:E6CAB4E47DC210716FF754C0C9090675C5B3BAF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 magnet:?xt=urn:btih:311C71DD0187BD28B3E3AC42A2775987D41AA34D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:311C71DD0187BD28B3E3AC42A2775987D41AA34D
 ```bash
 magnet:?xt=urn:btih:701BFDF21E842C99FCEBC7ACD5FD981C04025145
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:701BFDF21E842C99FCEBC7ACD5FD981C04025145
 magnet:?xt=urn:btih:BF8C135AC5F62555F151B7BE5633C188A37EFB0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:BF8C135AC5F62555F151B7BE5633C188A37EFB0E
 magnet:?xt=urn:btih:4D29AD5E98E9B86F7CB885EC8061D7EFC4834D3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:5F29E11712AD4DA131DB2D301D5FB6E5F7C99E0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:5F29E11712AD4DA131DB2D301D5FB6E5F7C99E0F
 magnet:?xt=urn:btih:ABAE8D6425549A55C1BEA270BE336511C38D5300
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:ABAE8D6425549A55C1BEA270BE336511C38D5300
 ```bash
 magnet:?xt=urn:btih:6B66E8E0BE42ECF3A7A406E5FBC01FA3AB1B62A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Reef - 6 Albums, 9 Singles (1995 - 2019) 17 CD [FLAC|Lossless|tracks + .cue|imag
 magnet:?xt=urn:btih:98126A483D8924580589FA6C0E4861FC3FDE7AAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Tyrant's Realm (2025) [Ru/Multi] (20250731 Build 19375382) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:779E893C1D58F47A42E4980E922FA4CD944C6D19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ One-Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19401283
 magnet:?xt=urn:btih:F31BA18C12082D08A659EF39A9696A8F7A7E94DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:F31BA18C12082D08A659EF39A9696A8F7A7E94DD
 ```bash
 magnet:?xt=urn:btih:CF292693AC3ACB6817D8BD03F6E5632657C5FD23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - Mondo Records: The Best Of (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:BB1F41E955DF0D0F98D0EE05120C061BCBAD97AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:BB1F41E955DF0D0F98D0EE05120C061BCBAD97AE
 magnet:?xt=urn:btih:F06A221A57E8B86511F015B1CCA9038A26A4D004
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ WinToUSB - позволяет устанавливать и запускать �
 ```bash
 magnet:?xt=urn:btih:513E6DB05A6CEF646F784EE14610392B378B75CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -105,6 +111,8 @@ magnet:?xt=urn:btih:513E6DB05A6CEF646F784EE14610392B378B75CB
 magnet:?xt=urn:btih:8F78B80EA907E0BD36C66E94EA3B51580937B23C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ magnet:?xt=urn:btih:8F78B80EA907E0BD36C66E94EA3B51580937B23C
 ```bash
 magnet:?xt=urn:btih:7C5F2FE8F32B18FA198D758E4DBEDD143B59BF86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +166,8 @@ VA - Beatport Drum And Bass: Electro Sound Pack #214 (2020) [MP3|320 Kbps] <Drum
 magnet:?xt=urn:btih:7F31CB7F576B376F7C9F7483D31F6B862C4AF5E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +194,8 @@ VA - Black Mirror / Чёрное зеркало (Collection Original Soundtrack)
 ```bash
 magnet:?xt=urn:btih:FF0BE8BFA6F0CAFB2172053ECF2B8E79B3C95C84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +224,8 @@ A4 Jacqueline Schwab (Piano) - Battle Cry Of Freedom(   Читать дальш�
 magnet:?xt=urn:btih:93B017F13252E8C329EFA0AF9E569E69CC61BAD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ magnet:?xt=urn:btih:93B017F13252E8C329EFA0AF9E569E69CC61BAD0
 magnet:?xt=urn:btih:40341F73F1F47D090093E7052C988EBE7D854ECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -257,6 +275,8 @@ magnet:?xt=urn:btih:40341F73F1F47D090093E7052C988EBE7D854ECC
 ```bash
 magnet:?xt=urn:btih:FD6F46092AF12C811FDAE26B2829B943B24BECC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +305,8 @@ magnet:?xt=urn:btih:FD6F46092AF12C811FDAE26B2829B943B24BECC9
 magnet:?xt=urn:btih:0175C1B9D54E9A23FF4A6999FCC6BCE7B6E304BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +331,8 @@ SOLID - это аббревиатура, обозначающая SRP, OCP, LSP,
 ```bash
 magnet:?xt=urn:btih:1FBC63898F4E1E2C1661C95F2C01863DCC86E018
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +361,8 @@ magnet:?xt=urn:btih:1FBC63898F4E1E2C1661C95F2C01863DCC86E018
 magnet:?xt=urn:btih:9A4FE4C5E9E840B2F7BAA72D486712F32C9C5674
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +390,8 @@ magnet:?xt=urn:btih:9A4FE4C5E9E840B2F7BAA72D486712F32C9C5674
 magnet:?xt=urn:btih:DEB885BCD91884B307C4346E22D0193BC0BD6761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +415,8 @@ Owarimonogatari | Истории финала [2015, TV, 12 эп.] HDTV 720p raw
 ```bash
 magnet:?xt=urn:btih:7F45984935653BF206530E2A0294808B3F5C6692
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +442,8 @@ magnet:?xt=urn:btih:7F45984935653BF206530E2A0294808B3F5C6692
 magnet:?xt=urn:btih:C0C6A6F9CCD5CE5A3AFAABECFA78FA8AEE769223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +467,8 @@ magnet:?xt=urn:btih:C0C6A6F9CCD5CE5A3AFAABECFA78FA8AEE769223
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +494,8 @@ BurnAware - простая и в тоже время мощная програм
 magnet:?xt=urn:btih:4DE2575190DBCA4E61697BF7DB540C96B2F4F284
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +519,8 @@ magnet:?xt=urn:btih:4DE2575190DBCA4E61697BF7DB540C96B2F4F284
 ```bash
 magnet:?xt=urn:btih:5C29F2ABB41FCABA128CDB51D6371CC5EE4DAD8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +549,8 @@ Ozgur Hazar - Sad and Blue (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:B4694B899EDE8DA1114772EB034E904BCD46AF72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +575,8 @@ magnet:?xt=urn:btih:B4694B899EDE8DA1114772EB034E904BCD46AF72
 magnet:?xt=urn:btih:641C5EB95DC7B6ADCCB690573BE0C38D458B33ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +600,8 @@ magnet:?xt=urn:btih:641C5EB95DC7B6ADCCB690573BE0C38D458B33ED
 ```bash
 magnet:?xt=urn:btih:F94DD039B18B14E0F2DF2CDBF66B140522958FB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +630,8 @@ Stan Kenton - City Of Glass (1947 - 1953) 1995, Capitol [FLAC|Lossless|tracks + 
 magnet:?xt=urn:btih:B4E401A198837D2D1EF0DB8FCE9E83700564BD27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +658,8 @@ magnet:?xt=urn:btih:B4E401A198837D2D1EF0DB8FCE9E83700564BD27
 ```bash
 magnet:?xt=urn:btih:B46E827C6AD0E40FC2A61D1F1F05CA9090CBB33D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +688,8 @@ VA - Platipus - Archive 13 (Mixed by Luke Brancaccio) (2018) [MP3|320 Kbps] <Tra
 magnet:?xt=urn:btih:D91765094A197E9B9108F28AC80F6102D49D0F50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +713,8 @@ magnet:?xt=urn:btih:D91765094A197E9B9108F28AC80F6102D49D0F50
 ```bash
 magnet:?xt=urn:btih:6CE0CFAB176582B065DD167FE1D68F076DD951D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

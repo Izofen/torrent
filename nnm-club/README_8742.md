@@ -22,6 +22,8 @@ Terra Lightfoot - New Mistakes (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:741B38B4B68828C4C40E1A007090332864BC1F02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Tina Schlieske - Evil Gal Blues (2008) [MP3|320 Kbps] <Blues>
 magnet:?xt=urn:btih:41128CDA5F693296A72FD56AEA863F6CF72B3A04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ Neel & Filippo Scorcucchi present LF58 - Late Night Innominate, Volume Two (2017
 ```bash
 magnet:?xt=urn:btih:5513A8EF2368852F1B80CE16123DFA8F1A7F68A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ VA - Ice Dreams: December Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 magnet:?xt=urn:btih:D8FD3EA8F75DF308C61CDA9B642A8FE1E2B1608E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ Speed Limit - Anywhere We Dare (2017) [FLAC|Lossless|image + .cue] <Heavy Metal,
 ```bash
 magnet:?xt=urn:btih:5F4F06499D23ED7C6A32B1F3E00633CC06D06FA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +166,8 @@ Milt Jackson - Goodbye (1974) 2017, CTI [FLAC|Lossless|tracks + .cue] <Mainstrea
 magnet:?xt=urn:btih:A22157C6629520769C614A5EE4B5C0CC1098F01D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +194,8 @@ VA - Nothing But... The Future Of Trance Vol.05 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:07EF57B393AD81E64F2371F32177023B045B4E9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +224,8 @@ Pat Martino - Formidable (2017) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop
 magnet:?xt=urn:btih:83FE94969D7E7D0B3F6CE06397EB234307F4B625
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +252,8 @@ Toshiko Akiyoshi - Interlude (1987) Concord Jazz [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:6E481E5FE1920D91269630CDAE1CF5159F11831C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +282,8 @@ Tim Warfield - Jazz Is ... (2001) Criss Cross Jazz [FLAC|Lossless|tracks + .cue]
 magnet:?xt=urn:btih:75BF4488B1C4D65FF1188674610951FDACD1FCAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +310,8 @@ Jim Hall - ...Where Would I Be? (1971) 1999, Original Jazz Classics [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:EC35208FE399D94DD199C5C25F26F090A7C792C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +340,8 @@ Denny Zeitlin - Homecoming (1986) Living Music [FLAC|Lossless|tracks + .cue] <Po
 magnet:?xt=urn:btih:609D104F816B775DEA57AB9081A0B369157ED382
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +369,8 @@ Hal Galper - The Guerilla Band (1970) 2017, Solid Records [FLAC|Lossless|tracks 
 magnet:?xt=urn:btih:9AF77A87730CA87E72941C83946688150DDB4388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ VideoHive - Background Lights - 25005084 [AEP]
 magnet:?xt=urn:btih:7DE5ABCB893B9190587B488600DB77AE0E83E208
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +420,8 @@ magnet:?xt=urn:btih:7DE5ABCB893B9190587B488600DB77AE0E83E208
 ```bash
 magnet:?xt=urn:btih:992766F7DAF1B0228CD3A698A27C7C5C176B4340
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +448,8 @@ magnet:?xt=urn:btih:992766F7DAF1B0228CD3A698A27C7C5C176B4340
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +473,8 @@ magnet:?xt=urn:btih:992766F7DAF1B0228CD3A698A27C7C5C176B4340
 ```bash
 magnet:?xt=urn:btih:DEF158B6309D36D9356E3B00760356C54006481E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +500,8 @@ magnet:?xt=urn:btih:DEF158B6309D36D9356E3B00760356C54006481E
 magnet:?xt=urn:btih:C03886E0FDFDBBA31FE6256437C4AEB2518E2FAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +525,8 @@ magnet:?xt=urn:btih:C03886E0FDFDBBA31FE6256437C4AEB2518E2FAF
 ```bash
 magnet:?xt=urn:btih:78C5A28137B4D1471413C659DE05F6465BFD21D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +553,8 @@ magnet:?xt=urn:btih:78C5A28137B4D1471413C659DE05F6465BFD21D6
 magnet:?xt=urn:btih:1D29C933C3869B08028CBE44B52340D59823B47F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +578,8 @@ magnet:?xt=urn:btih:1D29C933C3869B08028CBE44B52340D59823B47F
 ```bash
 magnet:?xt=urn:btih:D82CF0FE51B3A22C637793AC5BCAD84353972E84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +605,8 @@ CDBurnerXP - программа для записи CD и DVD, включая Bl
 magnet:?xt=urn:btih:B3DA3B30976676C6D1071BF2E98CA3A0D258FB37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +630,8 @@ VSO ConvertXtoDVD - программа, предназначенная для п
 ```bash
 magnet:?xt=urn:btih:01465D2A7FC9EF30041B5F184E4FF2F7D79403C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +657,8 @@ Kitbash3D - Every City [MAX, MA, OBJ, FBX]
 magnet:?xt=urn:btih:F6369A13B859C337DAB4347CB52B786FF53AE475
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ Kitbash3D - Edo Japan [OBJ, FBX, C4D]
 ```bash
 magnet:?xt=urn:btih:58F14ADA06397261CC382BB47F356A0B618DF921
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -660,6 +710,8 @@ magnet:?xt=urn:btih:58F14ADA06397261CC382BB47F356A0B618DF921
 ```bash
 magnet:?xt=urn:btih:C38545ED2716491A9EB5F8EBDC211A3D77FFEA7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

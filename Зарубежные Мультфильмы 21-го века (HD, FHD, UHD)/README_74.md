@@ -1,27 +1,3 @@
-###  Публикация: 1164376   (441202) от 09.09.2017
-
-Беовульф / Beowulf (2007) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма разворачивается в Дании VI века. Король Хротгар празднует завершение строительства медового зала — Хеорота. Звуки музыки и веселья пробуждают и злят монстра Гренделя, который нападает на праздновавших. Но когда Хротгар вызывает его на битву, чудовище возвращается к своей матери — демону воды. Король закрывает свой зал и предлагает половину своего (   Читать дальше...   )Производство: США | ImageMovers, Paramount PicturesЖанр: мультфильм (компьютерная анимация), фэнтези, боевик, драма, приключенияРежиссер: Роберт ЗемекисПерсонажи: Рэй Уинстоун, Энтони Хопкинс, Робин Райт, Джон Малкович, Криспин Гловер, Брендан Глисон, Анджелина Джоли, Костас Мэндилор, Пол Бэйкер, Джон БилезикджянПеревод: Дублированный (лицензия)Субтитры: Русские, английскиеПродолжительность: 01:54:42Реклама: Отсутствуют
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9BAA94A1A6AE9B043B2D39BA4B41F0A610FA0D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 827667   (441748) от 05.10.2014
 
 Космический пират Харлок / Space Pirate Captain Harlock (2013) BDRip [720p] [hand made 60fps]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:E9BAA94A1A6AE9B043B2D39BA4B41F0A610FA0D0
 ```bash
 magnet:?xt=urn:btih:D30355B54447D4F50FB03CE677CE1F8280B180A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -66,6 +44,8 @@ magnet:?xt=urn:btih:D30355B54447D4F50FB03CE677CE1F8280B180A3
 ```bash
 magnet:?xt=urn:btih:6CCD456E9E8FF8B907741B3236FAF00C13842D55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +73,8 @@ magnet:?xt=urn:btih:6CCD456E9E8FF8B907741B3236FAF00C13842D55
 magnet:?xt=urn:btih:CECDD1C4F8573D547D36137F4C462EC4192B9280
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +98,8 @@ magnet:?xt=urn:btih:CECDD1C4F8573D547D36137F4C462EC4192B9280
 ```bash
 magnet:?xt=urn:btih:C2C4D3345F0D81D0FDBB0498E1BD2E80F3490256
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +125,8 @@ magnet:?xt=urn:btih:C2C4D3345F0D81D0FDBB0498E1BD2E80F3490256
 magnet:?xt=urn:btih:AEEA2B06239A1CA9B4E3EFB1CE502AA8CB098EC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:AEEA2B06239A1CA9B4E3EFB1CE502AA8CB098EC5
 ```bash
 magnet:?xt=urn:btih:2F54DC782FCAA42999236BBC45260576F2AEBFE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +177,8 @@ magnet:?xt=urn:btih:2F54DC782FCAA42999236BBC45260576F2AEBFE7
 magnet:?xt=urn:btih:8B2D8756735B1110FDC1A9A0849813118951338E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:8B2D8756735B1110FDC1A9A0849813118951338E
 ```bash
 magnet:?xt=urn:btih:4FD024706BE9CACAA32D4549D2D22E2DDD625A0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +229,8 @@ magnet:?xt=urn:btih:4FD024706BE9CACAA32D4549D2D22E2DDD625A0E
 magnet:?xt=urn:btih:326E2ADB3EF9B69BA924463EA984B495AB906DA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:326E2ADB3EF9B69BA924463EA984B495AB906DA8
 ```bash
 magnet:?xt=urn:btih:C6C758ACD99C28F40EC4A314FF1D8D5867E59C1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +282,8 @@ magnet:?xt=urn:btih:C6C758ACD99C28F40EC4A314FF1D8D5867E59C1D
 magnet:?xt=urn:btih:0E605B4C0AB0ED3627F0E345F106853253FE8A54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +307,8 @@ magnet:?xt=urn:btih:0E605B4C0AB0ED3627F0E345F106853253FE8A54
 ```bash
 magnet:?xt=urn:btih:FD1ECAFC45936BCCD6CCDF4B93C995AC5E3293B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +334,8 @@ magnet:?xt=urn:btih:FD1ECAFC45936BCCD6CCDF4B93C995AC5E3293B0
 magnet:?xt=urn:btih:E805A9ACF84F8C2F4CC1676F3DF0075D0B43B050
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +359,8 @@ magnet:?xt=urn:btih:E805A9ACF84F8C2F4CC1676F3DF0075D0B43B050
 ```bash
 magnet:?xt=urn:btih:CFA87B7D2A3B7DDDA620FC8C3A1411E8780E53BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:CFA87B7D2A3B7DDDA620FC8C3A1411E8780E53BC
 magnet:?xt=urn:btih:FC90772B76546ADEC7E1862DDC07534A3A95F03B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:FC90772B76546ADEC7E1862DDC07534A3A95F03B
 ```bash
 magnet:?xt=urn:btih:E147358B9A2858830B07D04CF04B6C8A4EC845A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +438,8 @@ magnet:?xt=urn:btih:E147358B9A2858830B07D04CF04B6C8A4EC845A5
 magnet:?xt=urn:btih:5583C52CA8B29F0035EFE6B9592A601434CF2C01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:5583C52CA8B29F0035EFE6B9592A601434CF2C01
 ```bash
 magnet:?xt=urn:btih:BE51E4344AD0FE3ECA6871181B404C2C9C4861CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +490,8 @@ magnet:?xt=urn:btih:BE51E4344AD0FE3ECA6871181B404C2C9C4861CF
 magnet:?xt=urn:btih:BD469DD40B9DA32485079B302B0D04FFD472F1A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +515,8 @@ magnet:?xt=urn:btih:BD469DD40B9DA32485079B302B0D04FFD472F1A6
 ```bash
 magnet:?xt=urn:btih:3F36CDE20E5A3B4F0B9EF70351A1174DDEE5F888
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +543,8 @@ magnet:?xt=urn:btih:3F36CDE20E5A3B4F0B9EF70351A1174DDEE5F888
 magnet:?xt=urn:btih:1A9622D93CD7942AE7D42CE9B45029BEF79C6362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +568,8 @@ magnet:?xt=urn:btih:1A9622D93CD7942AE7D42CE9B45029BEF79C6362
 ```bash
 magnet:?xt=urn:btih:2DD8DF52C90B7BA0ABF99EE36C9DD2588E5CFAF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +595,8 @@ magnet:?xt=urn:btih:2DD8DF52C90B7BA0ABF99EE36C9DD2588E5CFAF4
 magnet:?xt=urn:btih:F3574AFD51B6869AE1089853097A7C0B7D2C21E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +621,8 @@ magnet:?xt=urn:btih:F3574AFD51B6869AE1089853097A7C0B7D2C21E0
 magnet:?xt=urn:btih:3009C569EB2E501A8822102F2B27F88B23C91B43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +646,34 @@ magnet:?xt=urn:btih:3009C569EB2E501A8822102F2B27F88B23C91B43
 ```bash
 magnet:?xt=urn:btih:107CC8B2A87E25AC95390BDCAFC8F08DCC20614F
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942617   (451180) от 02.10.2015
+
+Барби: Рок-принцесса / Barbie in Rock 'N Royals (2015) WEB-DL [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь принцессы Кортни переворачивается с ног на голову, когда она меняется местами со знаменитой рок-певицей Эрикой. При отправлении в летний лагерь случается организационная путаница, и принцессу Кортни отправляют в лагерь для поп-певиц, а Эрику — в королевский лагерь. Пока начальники лагерей пытаются устранить беспорядок, Эрика и Кортни приспосабливаются к новой (   Читать дальше...   )Производство: США, Universal StudiosЖанр: Мультфильм, фэнтезиРежиссер: Карен Дж. ЛлойдАктеры: Джейсон О’Мара, Томас Гибсон, Морена Баккарин, Джанкарло Эспозито, Дэвид МакКаллум, Ксандер Беркли, Шон Маэр, Фред Татаскьор, Брюс Томас, Стюарт АлланКарен Дж. ЛлойдПеревод: Многоголосый, профессиональныйПродолжительность: 01:23:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2116A834378EC0F5F62967A0756791C7AE5F085A
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

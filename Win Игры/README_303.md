@@ -19,6 +19,8 @@ FIFA 20 - это спортивный симулятор футбола от Ele
 magnet:?xt=urn:btih:15D4C96F0F6D90C8F84F4229D93F322D3A11E059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Restaurats (2025) [Ru/Multi] (20727795) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:45C29F17F01FFC8C011D00BC14747A1F6BFB7023
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Once Twice Thrice - это головоломка в реальном време
 magnet:?xt=urn:btih:3D88102B3F23C5F7B07BCBD4CB7FC434D8E9AD79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Voidtrain (2023) [Ru/Multi] (1.0/dlc) Repack Let'sРlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:A981F5C121118ACCC0E8ACF41BE3DFFE26C13AB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Voidtrain (2023) [Ru/Multi] (1.0/dlc) Repack FitGirl
 magnet:?xt=urn:btih:51B3FDBB08EBAF04D388FE436681A9069E70A02F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Voidtrain (2023) [Ru/Multi] (1.0/dlc) Repack Pioneer [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:61A178A7F3B0540705EE10B9F26CE45DE062D2C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Sonic Racing: CrossWorlds (2025) [Ru/Multi] (1.1.2) Repack FitGirl
 magnet:?xt=urn:btih:87DE6ED539B67ADF03F47061C34D324F18D46B50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Star Crafter (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FB2BA101318ADDEDFC9335D4FE081703771AE0D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Atelier Resleriana: The Red Alchemist & (and) the White Guardian (2025) [Multi] 
 magnet:?xt=urn:btih:5C0713B7776FADB69550DBE09FD5C28192F205B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Bridge Constructor Stunts (2016) [Ru/Multi] (1.1-fix) License GOG
 ```bash
 magnet:?xt=urn:btih:76E5147958D79AA0DA7D7BA0C6897B6BF1E7AEC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Cat Town (2022) [Multi] (1.0) Scene DARKSiDERS
 magnet:?xt=urn:btih:4AAD89597E5B2BBB568BC9DF8E2F619E3A5E4C4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Hunter×Hunter Nen×Impact (2025) [Multi] (1.1.1/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:FCED184D787398C8BE3FB21C02513D941D2F52AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Acres - это уход за посевами и забота о земле дл
 magnet:?xt=urn:btih:07C11652E91C125CDBF847D1AD1AD69F28408B0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Ys vs Trails in the Sky: Alternative Saga (2025) [Multi] (1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:DC47E322BEBDBB62886CF44CC5799B5AE5301995
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Ys vs Trails in the Sky: Alternative Saga (2025) [Multi] (Build 20347223) Scene 
 magnet:?xt=urn:btih:67BCD17A114B500812A73944E2E31DD321F12910
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Battle Suit Aces (2025) [Multi] (Build 20305022) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:0AD258DDE0853A26F66CE00A0A9D427F8E086F09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Liuyin's World (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:4DE213C4DDA65F538E0931440CE9B660041EFA73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Bye Sweet Carole (2025) [Ru/Multi] (1.0.6) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:8A09A443B7495088987D8F867255A7C84D715200
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ The Bench (2025) [Ru/Multi] (1.0.107) Repack FitGirl
 magnet:?xt=urn:btih:12CB9A5D463A6BF21CA20143254270883E2A8525
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Majogami (2025) [Multi] (20659537) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:AEC4AF2063B228157E850ED7246FA7FA7E7D5E87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Voidtrain (2023) [Ru/Multi] (1.0/dlc) Repack Other s
 magnet:?xt=urn:btih:FE20A90E2547028091D1DEBA5E74AE5C705BCD4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Tropico 4 [Ru] (1.05/RePack) 2011 l UltraISO
 ```bash
 magnet:?xt=urn:btih:BA3C03D7760CB9764773864883716DE0D0092966
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Diablo III/3 [Multi9] (L) 2012
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Treasures of Hotei (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:495A953F2FB4F968B4E1ACCBA3A96BAA2D585A59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Creepy Tale: Some other place – это мрачная история, раск
 magnet:?xt=urn:btih:1EDAE6A91E41D76882B7F62898A5BA91F7B74F76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Paradise Killer (2020) [En] (1.3.0) License GOG [Perfect 25 Edition]
 ```bash
 magnet:?xt=urn:btih:B324B1DE94456B82808304A94D4720766AFD429F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:92A0422568CBDEAECC1BE20413FFEE6379222301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Benjamin Bobenrieth - Travels (2018) Laborie Jazz [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:34F774199F5FCAF19D5304F561A302F9E191FCD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:34F774199F5FCAF19D5304F561A302F9E191FCD8
 magnet:?xt=urn:btih:0FBB212E8F0FAAE584EE8071474AD0ACA467C718
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.8.0/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:D8DFB2310A08D552C81C3C459645407E1FDAF31E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:D8DFB2310A08D552C81C3C459645407E1FDAF31E
 magnet:?xt=urn:btih:C33178FA11882799D3DD13E99816C79F6C068A69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:C33178FA11882799D3DD13E99816C79F6C068A69
 ```bash
 magnet:?xt=urn:btih:936F5DF1A6D31261F2016CED532D17C2C6E5460C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:936F5DF1A6D31261F2016CED532D17C2C6E5460C
 magnet:?xt=urn:btih:E0186C1DBEDE8F6AF1644A32B64B20DEBEEC8B4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:E0186C1DBEDE8F6AF1644A32B64B20DEBEEC8B4E
 ```bash
 magnet:?xt=urn:btih:AB343EBA661DE66DB742070FA55CEE3F4B38F68E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Disc 1:
 magnet:?xt=urn:btih:290DB0AA55F57A1ECE22F8F2A9316BD0EDF4C370
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:290DB0AA55F57A1ECE22F8F2A9316BD0EDF4C370
 ```bash
 magnet:?xt=urn:btih:3415FC53B65720C28EFF32411233E3EB38CF21BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:3415FC53B65720C28EFF32411233E3EB38CF21BB
 magnet:?xt=urn:btih:3E6519EAFE59999A4135BF6F2133A29F0291E612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ W10 Digital License Activation - инструмент от Ratiborus для ак
 magnet:?xt=urn:btih:A752430C2E13156F4FDBB46E30CD85BD4831F61C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:A752430C2E13156F4FDBB46E30CD85BD4831F61C
 ```bash
 magnet:?xt=urn:btih:1C199B6781099596CBAF57B1B9EFBAF96A20A7F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ Warrel Dane - Shadow Work (2018) [FLAC|Lossless|image + .cue] <Heavy Metal, Powe
 magnet:?xt=urn:btih:615229275CD572C68FDF3F58F8A418A0F8BC744E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:615229275CD572C68FDF3F58F8A418A0F8BC744E
 ```bash
 magnet:?xt=urn:btih:A7F3FD8ED2DBB568B3DCFB6D5F6C1C3D1A289CF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:A7F3FD8ED2DBB568B3DCFB6D5F6C1C3D1A289CF8
 magnet:?xt=urn:btih:9D863C8CEDE299E369B590CFC641896BEF9612CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:9D863C8CEDE299E369B590CFC641896BEF9612CF
 ```bash
 magnet:?xt=urn:btih:FB5CAEAD89F5DC786A623889059550104EDDC720
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:FB5CAEAD89F5DC786A623889059550104EDDC720
 magnet:?xt=urn:btih:F1088BCF9296019DE94AFE684198365C2B903F79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ Ship Graveyard Simulator (2021) [Ru/Multi] (1.0.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:CE990B6402019DEB867DEBDB3E0FFFE187134079
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ Total Movie Converter - многофункциональная программ�
 magnet:?xt=urn:btih:A9CA15353E777293203FD1E5DEDFFC5BF44A9A58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:A9CA15353E777293203FD1E5DEDFFC5BF44A9A58
 ```bash
 magnet:?xt=urn:btih:AAEBD131CE6BA8B28B824170BABBDC9A22D7B08D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ Amy Lynne Johnson - Piano Poetry Peace to You (2015) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:AFCDF8703705808D3DADA103E16F0402E0EB1C1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ Disc 1:
 magnet:?xt=urn:btih:37A6C0E8CAD5C157AA8F6E5857C277E320C25E99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:37A6C0E8CAD5C157AA8F6E5857C277E320C25E99
 ```bash
 magnet:?xt=urn:btih:0A4C4022B7BA3AF7A01C9894B4450ACB448E9839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:0A4C4022B7BA3AF7A01C9894B4450ACB448E9839
 magnet:?xt=urn:btih:D7E1A52132016CAD039C9CC8FD6EF4C964B2176C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:D7E1A52132016CAD039C9CC8FD6EF4C964B2176C
 ```bash
 magnet:?xt=urn:btih:410534E0B642D6AFEAEBE1143F94F96647EC7256
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

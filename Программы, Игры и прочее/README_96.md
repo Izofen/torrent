@@ -19,6 +19,8 @@ Electrical Calculations Pro / Электрические расчеты v11.0.3.
 magnet:?xt=urn:btih:32B8E89DFB79C8E064CF4401F82FA30671109F29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Lighting calculations / Расчеты освещения v6.1.10 Mod by Balatan
 ```bash
 magnet:?xt=urn:btih:97FD63AD57CD0C29EBA3513D2213D57DD75E8E49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ DRM-play — приложение для бесплатного просмотр
 magnet:?xt=urn:btih:7782036191B10CF65F0160274D0E559D5EEAF716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ ProShot v8.32.1.3 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:85C92ED9DBC6612C2307580270722812D408BCFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Smart Tools® это набор инструментов состоящий из
 ```bash
 magnet:?xt=urn:btih:F3080AE81416D8A6B20F4C6F5FA0AF32FA2D03AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Sense V2 Flip Clock & Weather v8.91.0 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:ED326CAD291725CF077439995DC5B10001060C3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Sense Flip Clock & Weather v8.99.8 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5368DD14456F7F27F39D9F195B07F341092BC0EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ OsmAnd+ - это приложение с картами всего мира на
 magnet:?xt=urn:btih:FD9C1573E162BF91AFD8867A1A107059D73EDA9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:FD9C1573E162BF91AFD8867A1A107059D73EDA9B
 ```bash
 magnet:?xt=urn:btih:9274EC99FAB2F94EA43C1E346F63EF701F610C54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:9274EC99FAB2F94EA43C1E346F63EF701F610C54
 magnet:?xt=urn:btih:9444530487382F04115960509918C64FAE32D657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Web Video Caster® позволяет смотреть на вашем ТВ ви
 ```bash
 magnet:?xt=urn:btih:3543F00913076CF6FF801E0817DC4AD6F75D7665
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Listen Audiobook Player v5.3.5 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:A11BD1184F6DADA53447EF4293646289757D2ECB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:A11BD1184F6DADA53447EF4293646289757D2ECB
 ```bash
 magnet:?xt=urn:btih:53BE5164D3D85DBBEBC48E7C4C28427D95453AB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:53BE5164D3D85DBBEBC48E7C4C28427D95453AB3
 magnet:?xt=urn:btih:D0692E961F4E4F374EA1D9D93D890D388317A26F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ OTT Онлайн прямое телевидение, в котором вы н�
 ```bash
 magnet:?xt=urn:btih:11D597E3068582F071D4331492373E5C9170650F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:11D597E3068582F071D4331492373E5C9170650F
 magnet:?xt=urn:btih:22FAB7FD493DB226D875EE0263E789FD9E572B61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ Screenshot Touch – это удобное и простое приложени�
 ```bash
 magnet:?xt=urn:btih:70FA1FBE7D2A604996485DA80D16112F1060F3E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:70FA1FBE7D2A604996485DA80D16112F1060F3E2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ WiFi Analyzer v6.8 (b106) Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A23663D48689E3CF1ACF6DA20559C2E8380FB1B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ FacePic — приложение AI Face, приложение для легко
 magnet:?xt=urn:btih:9F475E1443071D11DA48B8EC5DE6ABBE966EE8C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Rock Identifier - Stone ID v2.3.56 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:48566462CA6E6F202ACD48905750467DB1A78F2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ magnet:?xt=urn:btih:48566462CA6E6F202ACD48905750467DB1A78F2A
 magnet:?xt=urn:btih:809704A9B83125444B95E07F9218E1C60EDFE350
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ LazyMedia Deluxe это Android TV приложение, которое можн
 ```bash
 magnet:?xt=urn:btih:53ADE9FFFFEC48DA3F7555A59A5377D532E81042
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ magnet:?xt=urn:btih:53ADE9FFFFEC48DA3F7555A59A5377D532E81042
 magnet:?xt=urn:btih:9E5C386BA639E1D0B1E175EEEA226C9E485FA278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ BZ Напоминания и Дни Рождения PRO v3.10.2 Mod by Viktor24
 magnet:?xt=urn:btih:4B43DB2A0C8062507DD15127F84A805E2B4D28AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Auto Reply: автоответчик v6.1 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BD877CABE4700C4F4C4CE625932A06FC9EC82CD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

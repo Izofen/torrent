@@ -28,6 +28,8 @@
 magnet:?xt=urn:btih:96316092AE5F4D9F2840E8F6CEBB7E4EF9FBDDC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ Cheyenne - 3 albums (2007) [MP3|192 кб/с]<Native american, New age, Meditativ
 ```bash
 magnet:?xt=urn:btih:F7B51B3AAF6AFF5E2DFB2BB217E01E02E83BED3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ Billy Grammer - Gotta Travel On [02:30](   Читать дальше...   )1920-
 magnet:?xt=urn:btih:0EC45185581300CC2E718DAF2D9FB6083087E5D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +132,8 @@ magnet:?xt=urn:btih:0EC45185581300CC2E718DAF2D9FB6083087E5D4
 ```bash
 magnet:?xt=urn:btih:6D5A4BEA76F8CAF77FA852E0754A152EAA267720
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +168,8 @@ Stormfagel - 3 albums (2005-2010) [FLAC|Lossless] <Neofolk, Martial Industrial, 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +203,8 @@ Francisco Garcia - Romantic Guitar Hits (3CD) (1993) [MP3|320 кб/с]<Instrumen
 magnet:?xt=urn:btih:F7CF1B7A34F678AFF61D597E38F40CF3FFE7B573
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +231,8 @@ Fausto Papetti - I Remember (1968) [FLAC 24/96|Lossless|WEB-DL|tracks] <Instrume
 ```bash
 magnet:?xt=urn:btih:C2C627E411B4E9A16EDB09D0C72D8CF052DED921
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +261,8 @@ Fausto Papetti - Somethin' Saxy (1968) [FLAC 24/96|Lossless|WEB-DL|tracks] <Inst
 magnet:?xt=urn:btih:55AD2B922D5C734D121982DF8ECC892047BA5B51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +289,8 @@ VA - Enigma-Forest-Transit 12 (1999) [OGG Vorbis|480 Kbps] <Electronic, Ambient,
 ```bash
 magnet:?xt=urn:btih:E6D007B7BA6DC55762F7EB72A90CC171888ED6E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +319,8 @@ Delerium - Signs (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
 magnet:?xt=urn:btih:08A3E8C4F8539D801564776801DF27867E8DD832
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +347,8 @@ VA - Enigma-Forest-Transit 9 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, 
 ```bash
 magnet:?xt=urn:btih:F241346423613248E9BC1F9E896486735B30F27B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +377,8 @@ Drayton Farley - Twenty On High (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk, Worl
 magnet:?xt=urn:btih:760BCC75D56CDDABB4974C7AD8B5440E53100CBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +405,8 @@ VA - Enigma-Forest-Transit 10 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient,
 ```bash
 magnet:?xt=urn:btih:39A15539F982D9B6996486351CD089DDF242CAC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +435,8 @@ VA - Lilja 4-ever OST (2002) [FLAC|Lossless|tracks + .cue] <OST>
 magnet:?xt=urn:btih:E96C476FEB9AE9B59D42C0901560ADCD8D1A754A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +463,8 @@ Blackmore's Night - Shadow of the Moon (1997) 25th Anniversary Edition, 2023, Mi
 ```bash
 magnet:?xt=urn:btih:0BBD45CA8565D5BC88BA6C8664D89E76115DC330
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +493,8 @@ VA - Enigma-Forest-Transit 6 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, 
 magnet:?xt=urn:btih:241A4122FB6441EC576ACE3A77736A1A7BCECBA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +521,8 @@ VA - Хорошо сидим ! Песни русского застолья (199
 ```bash
 magnet:?xt=urn:btih:BD04C0DFAACD4BF7C6293A13EC044F7482B7F3C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +557,8 @@ Alan Menken - Mirror Mirror/Белоснежка: Месть гномов (2012)
 magnet:?xt=urn:btih:4E7518E62CB099509C43ACD7457BAF8301FF7C31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +586,8 @@ magnet:?xt=urn:btih:4E7518E62CB099509C43ACD7457BAF8301FF7C31
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +613,8 @@ VA - Namaste II (2010) [MP3|112-256 кб/с]<New age, Meditative>
 ```bash
 magnet:?xt=urn:btih:D4959F1CD942F2741D483A02D933968E78DB90D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +643,8 @@ Ah Nee Mah - Native Spirit (2009) [FLAC|Lossless|tracks + .cue] <New Age, Native
 magnet:?xt=urn:btih:5FB0F8700B2138BA81DE66DB6E2A001E7DF830CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +672,8 @@ Whitney Houston & VA - The Bodyguard / Телохранитель (1992) [FLAC|L
 magnet:?xt=urn:btih:8A019F0A67615081DFFA7A4C568062315F477F4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +700,8 @@ VA - The Queen of the Damned / Королева Проклятых (2002) [APE|L
 ```bash
 magnet:?xt=urn:btih:5B343713649E246ECE00DBBE25CEAE56642CCF87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -690,6 +736,8 @@ VA - Namaste. Massage (2011) [MP3|320 кб/с]<New age, Relax>
 magnet:?xt=urn:btih:1A3D2544A4E6191F6BC299A6066257232487DD01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -723,6 +771,8 @@ Russell Brower - Diablo III Soundtrack (2012) [MP3|320 кб/с]<Soundtrack>
 magnet:?xt=urn:btih:8BB2E9F23EEB809A269EF87AC6B87BFD0A703117
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -749,6 +799,8 @@ VA - Украинские народные песни (2000) [FLAC|Lossless]<Fol
 ```bash
 magnet:?xt=urn:btih:083D35A08901DD07918225C0BF5A1D6BE6AD7D4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

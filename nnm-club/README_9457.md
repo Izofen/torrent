@@ -22,6 +22,8 @@ Deadmau5 - W:/2016ALBUM/ (2016) [MP3|320 Kbps] <Downtempo, Electro House, Progre
 magnet:?xt=urn:btih:5721228A4651C0B760B60C61FD3B1CB376598EED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Slimjet 12.0.10.0 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:63525BDCEA46E021CB8E57C09D71713E04D76A09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ QuickRes 4.4 [En]
 ```bash
 magnet:?xt=urn:btih:30AB475A42437F58CD1852C510F0656E021AF2BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Cashmere - Cashmere (1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco, Pop-
 magnet:?xt=urn:btih:77A61EE0A42198C7EC82856B8C5302B5715C2BEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Sverre Knut Johansen - Antarctica (2016) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:5AAA9ABF77AC30AF596BF9F10412A39E691D3E62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:5AAA9ABF77AC30AF596BF9F10412A39E691D3E62
 ```bash
 magnet:?xt=urn:btih:18E7B6E1823E8C353F4E85FFA6ECB956650E8241
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Polarr – это продвинутый, интуитивный и многос
 magnet:?xt=urn:btih:FA610FDEAC6789BCDD75B7E81D2A2731F5C5874C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:FA610FDEAC6789BCDD75B7E81D2A2731F5C5874C
 ```bash
 magnet:?xt=urn:btih:4AA7E45BBCAB5D58ED37C0F38BE88CD168AC7CDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ Serial Box 12-2016 [En]
 magnet:?xt=urn:btih:324C25A466CE57E827C14AB605982F4B8EF2A5FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ Gno (Gnô) - Sick Princess (2016) [MP3|320 Kbps] <Alternative Metal, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B3C67E2686FE254577F769E46B03B3E15C22D353
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +303,8 @@ Laments Of Silence - System Failure (2016) [MP3|320 Kbps] <Gothic, Melodic Death
 magnet:?xt=urn:btih:2369C80FCF2C8C15A98EF872245C0AB8EE6019DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +331,8 @@ TinkerTool System - утилита для управления скрытыми 
 magnet:?xt=urn:btih:286FD204B5B96AB131A0FEE6D89772448EE2ACE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +356,8 @@ HazeOver 1.8.8 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:195223F311EA24563C9CA6A3B78520B6CD93F69F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +384,8 @@ The Clock - The Best World Clock 4.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0C51034951629BB1DC855892D5CDCF3BEC0FA5C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +414,8 @@ Phog - This World (2020) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphon
 magnet:?xt=urn:btih:2FDDEAFC937671764AF13E87BE891982F564CFF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +442,8 @@ SounceSource позволяет настроить прямо из строки 
 magnet:?xt=urn:btih:D4C0BDCCCB82FEB47565DF1DA0C0170D62C2F574
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +469,8 @@ magnet:?xt=urn:btih:D4C0BDCCCB82FEB47565DF1DA0C0170D62C2F574
 ```bash
 magnet:?xt=urn:btih:8A05B6D457C3152F9AD38CE5E5D7400443764CED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +499,8 @@ CD1:
 magnet:?xt=urn:btih:D515EBE18CD4CA137A6F6C7EE99F9A2B3A0D0254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +524,8 @@ VideoPad - это мощное программное обеспечение д�
 ```bash
 magnet:?xt=urn:btih:FD8E3EDFF83DE419B4CAB51A13A9B6DDEF2CE93B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +551,8 @@ magnet:?xt=urn:btih:FD8E3EDFF83DE419B4CAB51A13A9B6DDEF2CE93B
 magnet:?xt=urn:btih:CAD492954D9A8A3CD721138D3FFFA68268B0D911
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +577,8 @@ magnet:?xt=urn:btih:CAD492954D9A8A3CD721138D3FFFA68268B0D911
 magnet:?xt=urn:btih:48F6E1DD396AF6DE0FE9CFF1CF1B3E41F05D7178
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +602,8 @@ magnet:?xt=urn:btih:48F6E1DD396AF6DE0FE9CFF1CF1B3E41F05D7178
 ```bash
 magnet:?xt=urn:btih:9526403EB45766FB4FEA8C3C875B59B8DA574E2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +632,8 @@ Rodrigo San Martin - Arcana (Act 1) (2020) [MP3|320 Kbps] <Progressive Rock>
 magnet:?xt=urn:btih:E68D24504EE97133DD7D4DDCF86F3094108540DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +657,8 @@ magnet:?xt=urn:btih:E68D24504EE97133DD7D4DDCF86F3094108540DD
 ```bash
 magnet:?xt=urn:btih:097D65D07CC7F28DB742AA56181B6319836F2C7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +686,8 @@ TaskPaper - простое приложение для создания и ве�
 magnet:?xt=urn:btih:22FA6F6FF4CE292A277716B0CF49116B132CBD5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +714,8 @@ Dwarrowdelf - Evenstar (2020) [FLAC|Lossless|image + .cue] <Epic Black Metal>
 ```bash
 magnet:?xt=urn:btih:C90E4F8130BDD7FE190B01A90052EF830699B757
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

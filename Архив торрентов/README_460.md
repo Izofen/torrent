@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:6BB0674FC678235DA6046AC1E32B6A81C18C3A34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ Cannibal Corpse - Torture (2012) [FLAC|Lossless]<Death Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -78,6 +82,8 @@ Cannibal Corpse - Torture (2012) [FLAC|Lossless]<Death Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ History Channel: Эволюция. Битва за жизнь. Челюсти / 
 ```bash
 magnet:?xt=urn:btih:62202B2EFDECC2F130D1968CEE9E4D6E1BC3E7E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ Shank - Дилогия [Ru/En] (RePack) 2010 - 2012 | R.G. Origami
 magnet:?xt=urn:btih:A02138C93513BC50512F73F4438C7B36C6A7F439
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:A02138C93513BC50512F73F4438C7B36C6A7F439
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:A02138C93513BC50512F73F4438C7B36C6A7F439
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:A02138C93513BC50512F73F4438C7B36C6A7F439
 ```bash
 magnet:?xt=urn:btih:FAA1E06DCF5CBD05798272B6A3DC323E7ED8713B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ Macross Frontier ~Itsuwari no Utahime~ / Macross Frontier ~The False Diva~ / М�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ Macross Frontier ~Itsuwari no Utahime~ / Macross Frontier ~The False Diva~ / М�
 ```bash
 magnet:?xt=urn:btih:D1CCC2CC5EFC72B6020EA3D069AAF1344B18C707
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ USDownloader 1.3.5.9 от 12.03.2012 [Multi/Rus]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +334,8 @@ VisioBible 2.1.0.1148 Beta + Portable [Russian, English]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +359,8 @@ VisioBible 2.1.0.1148 Beta + Portable [Russian, English]
 ```bash
 magnet:?xt=urn:btih:8264E374B93C55810BDB5166D12FC3CCD6461EDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +386,8 @@ magnet:?xt=urn:btih:8264E374B93C55810BDB5166D12FC3CCD6461EDB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +411,8 @@ Daylight Ocean - дневной океан высокого класса ани�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +438,8 @@ Daylight Ocean - дневной океан высокого класса ани�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ Daylight Ocean - дневной океан высокого класса ани�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +490,8 @@ Daylight Ocean - дневной океан высокого класса ани�
 magnet:?xt=urn:btih:D6FB3FE853168B2C73006C2C711BD5759B6122A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:D6FB3FE853168B2C73006C2C711BD5759B6122A5
 ```bash
 magnet:?xt=urn:btih:FD8F1D8CA826B8E2568CCD67F5E0EF83BD7AE987
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +543,8 @@ Dr.Web Security Space лучшее решение для комплексной 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +579,8 @@ Alborosie - 3 Альбома (2008, 2010, 2011) [MP3|320 кб/с]<Reggae>
 magnet:?xt=urn:btih:E435024DBCD5F1410B165348A1E6F2F81CD54952
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +608,8 @@ magnet:?xt=urn:btih:E435024DBCD5F1410B165348A1E6F2F81CD54952
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +633,8 @@ All Zombies Must Die! забросит четырех героев – Игро�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +663,8 @@ All Zombies Must Die! забросит четырех героев – Игро�
 magnet:?xt=urn:btih:103CEEFBFB865274744F8AAA3F2924DD22AB6CC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +688,8 @@ magnet:?xt=urn:btih:103CEEFBFB865274744F8AAA3F2924DD22AB6CC6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -666,6 +716,8 @@ Alexander the Great / Александр Македонский Золотое �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

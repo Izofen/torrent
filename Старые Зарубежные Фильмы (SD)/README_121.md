@@ -1,27 +1,3 @@
-###  Публикация: 1569480   (451650) от 13.08.2022
-
-Джонни О Клок / Johnny O Clock (1947) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает историю менеджера игрального клуба в Нью-Йорке, который после двух связанных с клубом убийств оказывается в центре сложной интриги с участием своего криминального босса, полицейского инспектора и двух влюблённых в него женщин...Производство: США, J.E.M. ProductionsЖанр: нуар, драма, криминал, триллерРежиссер: Роберт РоссенАктеры: Дик Пауэлл, Эвелин Кийес, Ли Дж. Кобб, Эллен Дрю, Нина Фош, Томас Гомес, Джон Келлогг, Джим Бэннон, Мэйбл Пейдж, Фил БраунПеревод: любительский одноголосый (Виктор Рутилов)Субтитры: русские (karlivanovich), английские SDHПродолжительность: 01:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4240A258B23DE59A4B4DFBC4179DBB7FC56DBBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569449   (451652) от 13.08.2022
 
 Удар на удар / Split Decisions (1988) WEB-DLRip [H.264] [AVO]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:C4240A258B23DE59A4B4DFBC4179DBB7FC56DBBC
 ```bash
 magnet:?xt=urn:btih:AFE105862B1F7FFD5F911DE7FFECBA94E02DEE70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +46,8 @@ magnet:?xt=urn:btih:AFE105862B1F7FFD5F911DE7FFECBA94E02DEE70
 magnet:?xt=urn:btih:2544CDAF3D090DC193180FB1353D39DB133052BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +72,8 @@ magnet:?xt=urn:btih:2544CDAF3D090DC193180FB1353D39DB133052BA
 magnet:?xt=urn:btih:53F09055B378D921C6972C85A863844967FA30B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:53F09055B378D921C6972C85A863844967FA30B3
 ```bash
 magnet:?xt=urn:btih:D903392DA886ABBCA3BF3E63194AB2337402507D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +125,8 @@ magnet:?xt=urn:btih:D903392DA886ABBCA3BF3E63194AB2337402507D
 magnet:?xt=urn:btih:E699F80E45982A0DB654F800063BA1B834A17303
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:E699F80E45982A0DB654F800063BA1B834A17303
 ```bash
 magnet:?xt=urn:btih:E90BF2635FB4215DF07DC990D5C7EFB44E919975
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +177,8 @@ magnet:?xt=urn:btih:E90BF2635FB4215DF07DC990D5C7EFB44E919975
 magnet:?xt=urn:btih:28D5FB1D578A7972A8C48A0D029442B6E6F9B120
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:28D5FB1D578A7972A8C48A0D029442B6E6F9B120
 ```bash
 magnet:?xt=urn:btih:847513AF7034DA928C32F50C1127681285B863ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +229,8 @@ magnet:?xt=urn:btih:847513AF7034DA928C32F50C1127681285B863ED
 magnet:?xt=urn:btih:9CD7F7F22D57243A7213CE39550A316A2E7659A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +255,8 @@ magnet:?xt=urn:btih:9CD7F7F22D57243A7213CE39550A316A2E7659A3
 magnet:?xt=urn:btih:2827855C0E65285A1BB844BA60DA6E5713AB5BB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:2827855C0E65285A1BB844BA60DA6E5713AB5BB6
 ```bash
 magnet:?xt=urn:btih:E19F6C25CE648D731A81E6554C641F5448A89CB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +308,8 @@ magnet:?xt=urn:btih:E19F6C25CE648D731A81E6554C641F5448A89CB9
 magnet:?xt=urn:btih:8B021F5A5DA167BD445215C18BF03B62D99F8425
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +333,8 @@ magnet:?xt=urn:btih:8B021F5A5DA167BD445215C18BF03B62D99F8425
 ```bash
 magnet:?xt=urn:btih:0B20993F5E9B19C322F8A6696D8DD45E609DBC85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +360,8 @@ magnet:?xt=urn:btih:0B20993F5E9B19C322F8A6696D8DD45E609DBC85
 magnet:?xt=urn:btih:DE72EB09AFAA8F08EBB794B1CCBB9006D783E5B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:DE72EB09AFAA8F08EBB794B1CCBB9006D783E5B8
 magnet:?xt=urn:btih:9CCEC682CBE693CB3C3819359C9A4F84385EB235
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:9CCEC682CBE693CB3C3819359C9A4F84385EB235
 ```bash
 magnet:?xt=urn:btih:7B6B503A765A07933B1DB5A3EE878F65D499BD16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +439,8 @@ magnet:?xt=urn:btih:7B6B503A765A07933B1DB5A3EE878F65D499BD16
 magnet:?xt=urn:btih:015F916D63A6B18338E39BE1B1E666651DAC9526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +466,8 @@ magnet:?xt=urn:btih:015F916D63A6B18338E39BE1B1E666651DAC9526
 magnet:?xt=urn:btih:2CADA69C4A394631F6BD792549F47D406B3FD703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +491,8 @@ magnet:?xt=urn:btih:2CADA69C4A394631F6BD792549F47D406B3FD703
 ```bash
 magnet:?xt=urn:btih:235A4D08E929D948FED568A220ACEA4DDADF0F91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +518,8 @@ magnet:?xt=urn:btih:235A4D08E929D948FED568A220ACEA4DDADF0F91
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +543,8 @@ magnet:?xt=urn:btih:235A4D08E929D948FED568A220ACEA4DDADF0F91
 ```bash
 magnet:?xt=urn:btih:3D5AF236596FF671F9DCF2B294E2B3A7FC1B9825
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +570,8 @@ magnet:?xt=urn:btih:3D5AF236596FF671F9DCF2B294E2B3A7FC1B9825
 magnet:?xt=urn:btih:CFCBC02CA42A06D2550BEC847555F0D5461418F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +595,8 @@ magnet:?xt=urn:btih:CFCBC02CA42A06D2550BEC847555F0D5461418F1
 ```bash
 magnet:?xt=urn:btih:5F7A82208515344E54F51F3B54BA1190DFD04717
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +622,8 @@ magnet:?xt=urn:btih:5F7A82208515344E54F51F3B54BA1190DFD04717
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +647,35 @@ magnet:?xt=urn:btih:5F7A82208515344E54F51F3B54BA1190DFD04717
 ```bash
 magnet:?xt=urn:btih:A2EE77E2A704CAD989654FF121A7B557FA550C8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247012   (456755) от 13.09.2018
+
+Плохая компания / Bad Company (1972) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главные герои — Дрю и Джейк, постепенно понимают, что романтичная жизнь бродяг не так сладка и безмятежна, какой представляется.
+На пути их поджидают лишения, насилие, предательство и много неприятных знакомств с мошенниками и ренегатами. Дорога преподаст друзьям много жизненных уроков, которые помогут им стать взрослее и мудрее.Производство: США / Jaffilms, Paramount PicturesЖанр: Драма, Приключения, ВестернРежиссер: Роберт БентонАктеры: Джефф Бриджес, Бэрри Браун, Джим Дэвис, Дэвид Хаддлстон, Джон Сэвэдж, Джерри Хаузер, Дэймон Кофер, Джошуа Хилл Льюис, Джеффри Льюис, Рэймонд ГутПеревод: Профессиональный (двухголосый закадровый)Субтитры: РусскиеПродолжительность: 01:32:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30A0519BE7E03C2A454903745313D6A1B04271CA
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

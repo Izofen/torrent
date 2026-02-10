@@ -21,6 +21,8 @@ DVDFab – мощный, многофункциональный программ
 magnet:?xt=urn:btih:E700DA9784BB2BB6CF4BC8BCFE376B121EA94CC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:E700DA9784BB2BB6CF4BC8BCFE376B121EA94CC5
 ```bash
 magnet:?xt=urn:btih:4F1AC6CAE2B1E79EBA293BBB0C0617B20B6D355B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ FontViewOK 8.58 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:70E25462DE5C3CE97BFBCBD9B6E6C8EFF58FC3E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ QownNotes – менеджер заметок, позволяющий четко
 ```bash
 magnet:?xt=urn:btih:D5CC5CE3F4B952600B9266D68E10E67C775E9A57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:D5CC5CE3F4B952600B9266D68E10E67C775E9A57
 magnet:?xt=urn:btih:5C4FF7A65EF1FBC81C7E623E8233427E8B3266A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Soft Organizer Pro 10.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:699FF9D6A3FD8D79745EA7773C0EC352292D9341
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Desktop Calendar – бесплатный календарь рабочего с
 magnet:?xt=urn:btih:94AA16F42B5EAE5624E527204A8C3D9C480AC4E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Dict Box - Английский словарь v8.9.7 Mod by Alex.Strannik [Ru/M
 ```bash
 magnet:?xt=urn:btih:BB12BF8D0706E7A679563C2CE772562585FBA9B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:7DDD7318D772E3B7650F093D4ACAF6A7DC020FB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:60595449D90ECCEDBC386F4D1D64AC2A50E77FF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Wondershare UniConverter - простой в использовании виде
 magnet:?xt=urn:btih:5EB8917344F6CAF8690DA6C2745FAF4990B287B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ SoftPerfect RAM Disk - программа для создания виртуал
 magnet:?xt=urn:btih:95DD5C0F6226191334E6D4DDC14CBB7E4B1721F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ WinTools.net – набор инструментов для оптимизаци
 ```bash
 magnet:?xt=urn:btih:742642347DD303351798CD0247B58C1C150C55EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Topaz Photo AI использует передовые алгоритмы иск
 magnet:?xt=urn:btih:FD97618A23FCD955BCBAB3AE6A909560EFA5667E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Open-Shell Menu - замена утилиты Classic Shell, разработк�
 magnet:?xt=urn:btih:853320E30AEAB57984C1E9EEDC4B9812C12220B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ AOMEI Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:30FDED9D04B9D0AF1D14DC50644787101EB6461C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ AIMP – проигрыватель, включающий в себя множе
 magnet:?xt=urn:btih:E9C68620AB00E9568C703174B3FF40DC7F5E3C0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ GPS АнтиРадар v47.0 Mod by 0x7d [Ru]
 ```bash
 magnet:?xt=urn:btih:F6A0E3B43D660FE6E16EAABBE2C11B6A8E9A2AFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Karing - Утилита прокси с простым и мощным инте�
 magnet:?xt=urn:btih:82A00E92B825F676B489B811882CB605478E9A01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:82A00E92B825F676B489B811882CB605478E9A01
 magnet:?xt=urn:btih:7C56552E2BD8D33BAA4F9336091973C80626266D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Youtube Downloader HD - бесплатная и предельно проста�
 ```bash
 magnet:?xt=urn:btih:B8A5BB11B6F7B09F7ED73DE3452B3CA72C7A5171
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Topaz A.I. Gigapixel — это приложение, использующее �
 magnet:?xt=urn:btih:7EA96B73AE7A679900E1199D1C428563B8191669
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:7EA96B73AE7A679900E1199D1C428563B8191669
 magnet:?xt=urn:btih:B47B614E08E8CDEB28FAC763101C486D6DD9DA35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ VMware Workstation — популярная программа для созда
 ```bash
 magnet:?xt=urn:btih:AD7E6A19993CC388AB9A09584F8B2605DC4CE12A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ Balabolka 2.15.0.886 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:8CFA14D0F2883C0FD04C50A32F7B4F47E8022D5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Ventusky: Прогноз погоды v40.0 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2BFA082B656E463D46312CE6B67C3A80197BA8D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

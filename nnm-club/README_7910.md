@@ -22,6 +22,8 @@ Lloyd Banks - The Course of the Inevitable 3: Pieces of My Pain (2023) [MP3|192 
 magnet:?xt=urn:btih:78B02CCB8721FCA99685FD3A09A4233E1BD2B10D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:78B02CCB8721FCA99685FD3A09A4233E1BD2B10D
 ```bash
 magnet:?xt=urn:btih:FFE2A7097C147468D0046681D30F62AFEF1A812D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ TunesKit Video Converter 2.1.0 [En]
 magnet:?xt=urn:btih:0C311E8B45967DB36418F650EC55CC820D206ED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:0C311E8B45967DB36418F650EC55CC820D206ED3
 ```bash
 magnet:?xt=urn:btih:189AD7FDF2C562E2123F27C69832AB3B057A00D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Newt - Phaseshifting (1998) Quantum Loop [FLAC|Lossless|tracks+.cue] <IDM, Drum 
 magnet:?xt=urn:btih:27578CAC3E34450565944598CD85CC077ED631C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Criminal Madhouse Conspiracy - Criminal Madhouse Conspiracy (2022) [FLAC|Lossles
 magnet:?xt=urn:btih:3D90868D15C26E683091B2CAF79CF129CC665C49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:3D90868D15C26E683091B2CAF79CF129CC665C49
 ```bash
 magnet:?xt=urn:btih:5CB550CF2111F90D88D1708A8A59AE32526D07D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:5CB550CF2111F90D88D1708A8A59AE32526D07D2
 magnet:?xt=urn:btih:C3C9A50FB8D85433E7E9E2CF9A93F6CB6CDEF5E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:FC57D728A7CA026AC5B2573DBABB98F279EDC97E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ Perfect Face - Pimple Remover 1.2 [En]
 ```bash
 magnet:?xt=urn:btih:B46E96242EDDF888C15DEF594109418CFCE1E699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ VA - New Disco House Lights (2023) [MP3|320 Kbps] <Nu Disco, Soulful, Dance, Fun
 magnet:?xt=urn:btih:FD6F2E6F00B753E622476DCAA54F52E0615DE62A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ TunesKit AceMovi Video Editor может отличаться от множес�
 ```bash
 magnet:?xt=urn:btih:73BCA5BF7CCE2B9019F30CA5ABAF94B366B049E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ VA - Music for Running Are You Ready?!? (2023) [FLAC|Lossless|WEB-DL|tracks] <Ro
 magnet:?xt=urn:btih:2FC57F3EA06AE3A2501881D9476DB27795BF6918
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ Deer Creek - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom Me
 ```bash
 magnet:?xt=urn:btih:7C2327E29FB201FA504920D9117C2EC374184513
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ VA - Fokuz Recap 2018 (2018) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 magnet:?xt=urn:btih:3E684737537B8DBE11B434B7B141762C7DFAF40E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:3E684737537B8DBE11B434B7B141762C7DFAF40E
 ```bash
 magnet:?xt=urn:btih:D03D9E2053CAFCD9B114F52F776A87F3D4BA4C1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ A4 Плач (Crying)(   Читать дальше...   )Жанр: Hard Rock, Hea
 magnet:?xt=urn:btih:21C439EF8CBBA8BCAEA6448CF53FD2A93F10D798
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:21C439EF8CBBA8BCAEA6448CF53FD2A93F10D798
 ```bash
 magnet:?xt=urn:btih:F0BCE3E241AD0B8ABBB26CC176A4D314C61D54FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ VA - Mega Hits 2013 (2023) [OGG Vorbis|480 Kbps] <Pop>
 magnet:?xt=urn:btih:1812BBAC2DD0286A2B340EDC691AE5E80432F416
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ VA - Keep It Disco Vol. 10 (2023) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funk
 magnet:?xt=urn:btih:20E9FA69696E6321F8F4E83FED7B87B07A12EE2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ magnet:?xt=urn:btih:20E9FA69696E6321F8F4E83FED7B87B07A12EE2E
 ```bash
 magnet:?xt=urn:btih:03FE48CCEDED141DDE7A4CF1D6EF9E04FB81F285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ magnet:?xt=urn:btih:03FE48CCEDED141DDE7A4CF1D6EF9E04FB81F285
 magnet:?xt=urn:btih:99810D9795E8ECFFE069731489F99127E01D3D83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ magnet:?xt=urn:btih:99810D9795E8ECFFE069731489F99127E01D3D83
 ```bash
 magnet:?xt=urn:btih:A05A9D9BDFC5202B5DC269B98EDFB1721A7CC042
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ Apoplexy - Infection (1997) [FLAC|Lossless|tracks] <Death Metal>
 magnet:?xt=urn:btih:B5FD1053425EA042EFCEE921A942488C729A70E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:B5FD1053425EA042EFCEE921A942488C729A70E2
 ```bash
 magnet:?xt=urn:btih:AB17F0D18260C28FE86BCB076E1EBF303C055E14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +700,8 @@ magnet:?xt=urn:btih:AB17F0D18260C28FE86BCB076E1EBF303C055E14
 ```bash
 magnet:?xt=urn:btih:0EF72C8FA187F27709FB114681FE35C59331E9A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

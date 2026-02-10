@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3BC5D64C53CECBF48B02E81EF1211E319FF14515
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:3BC5D64C53CECBF48B02E81EF1211E319FF14515
 ```bash
 magnet:?xt=urn:btih:7C8514C99EF27EE14996299DC400F565E7FAE61E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:7C8514C99EF27EE14996299DC400F565E7FAE61E
 magnet:?xt=urn:btih:39E078407023953A05F769DAB64796EFF64DE0CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Them and Us - классический хоррор на выживание с �
 ```bash
 magnet:?xt=urn:btih:F49BC1860BACAED6B0A914EC64D36617E368C5E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ RAR - это консольное приложение, позволяющее �
 magnet:?xt=urn:btih:ECB1359C21A95F9E720961A15B9CEBA92C3BC3A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Nobody Saves the World (2022) [Ru/Multi] (18.01.2023/dlc) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:78112C2FAF2067E2BCDE0F62B64E3137ED25A02F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:78112C2FAF2067E2BCDE0F62B64E3137ED25A02F
 magnet:?xt=urn:btih:8F63BAA5D112E8AFD04E8B2619FD04FC8FCF8616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:8F63BAA5D112E8AFD04E8B2619FD04FC8FCF8616
 ```bash
 magnet:?xt=urn:btih:229E628744103AB606EA327485B5284F5B8B964A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ HDCleaner – многофункциональный программный пр
 magnet:?xt=urn:btih:596EFF7568D344F12517FB12DFC7E754A8899B20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:596EFF7568D344F12517FB12DFC7E754A8899B20
 ```bash
 magnet:?xt=urn:btih:F9438EC615B7D21159E8536B053550B4A6DF7E71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ AdGuard — уникальный блокировщик рекламы без ro
 magnet:?xt=urn:btih:01DC3696EB14313762101002DB06E3D696D61B87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Myst (2021) [Ru/Multi] (3.0.1) Repack dixen18 [VR]
 ```bash
 magnet:?xt=urn:btih:3C2C53A368286D96A379959E5A56A5C5FFBE25F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:3C2C53A368286D96A379959E5A56A5C5FFBE25F1
 magnet:?xt=urn:btih:411DC8580AA1CB38E4EED7C1317375F5ECA070A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:411DC8580AA1CB38E4EED7C1317375F5ECA070A1
 ```bash
 magnet:?xt=urn:btih:CB40C742E405BAD96A30C29CFC9A58F14F08A35D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Thronebreaker: The Witcher Tales / Кровная вражда: Ведьмак. 
 magnet:?xt=urn:btih:F5E000E9840C20EE48983CEDCA607E5139C1BA35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:F5E000E9840C20EE48983CEDCA607E5139C1BA35
 ```bash
 magnet:?xt=urn:btih:16D8C58373A365DE99152989BC5086ADDDB15123
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:16D8C58373A365DE99152989BC5086ADDDB15123
 magnet:?xt=urn:btih:12F4248177AD04003726524D73DD6668CAFAAA37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:12F4248177AD04003726524D73DD6668CAFAAA37
 magnet:?xt=urn:btih:39FA6B8116F2F3EB78BA172EE14CC6DDDBD5F063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Chorus of Carcosa (2025 ) [Ru/Multi] (01.08) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A4D04C3B187AE6E50D7D0F0600BDE3FD94789E3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Unnamed Memory Act.2 | Безымянная память [ТВ-2] [2025, TV, 12 
 magnet:?xt=urn:btih:5D7DD629EE37A457CDFC316BC7178D23C9714C2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Rogue: Genesia – классическая ролевая видеоигра с
 ```bash
 magnet:?xt=urn:btih:1314FEE42FC048B352B1705D2660B0C392CB58F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Udemy, Hussein Nasser | NodeJS Internals and Architecture (2025) WEB-DL [EN]
 magnet:?xt=urn:btih:BA5FD84C9BAEAC6C44B917502463B05B24279839
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:BA5FD84C9BAEAC6C44B917502463B05B24279839
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ AIMP – проигрыватель, включающий в себя множе
 magnet:?xt=urn:btih:453115B78CE1F8623D7F050ECD65AB7DC5556090
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Blackthorn Arena: Reforged (2024) [Ru/Multi] (2.01g/dlc) Repack FitGirl
 magnet:?xt=urn:btih:580FBBAA5FFAD886C5EBBC6D834AA2539436C77A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Urban Jungle - это очаровательная и медитативная �
 ```bash
 magnet:?xt=urn:btih:839D996BF6A60B6D81A06265F02AE1EC5686430F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

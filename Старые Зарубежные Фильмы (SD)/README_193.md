@@ -1,29 +1,3 @@
-###  Публикация: 1001478   (844466) от 02.04.2016
-
-Батарейки не прилагаются (Батарейки в комплект не входят) / *batteries not included (1987) HDRip [H.264]
-
->>След.
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о любви, дружбе и семейке летающих тарелок.
-Дом, в котором живут наши герои, подлежит сносу, и горстка домочадцев — пожилая семейная пара Райли, бывший боксер Гарри, молодая пуэрториканка Мариса и художник Мэйсон — отчаянно борются за спасение милых сердцу трущоб.
-Беднягам остается надеяться только на чудо, и оно случается: помощь приходит от братьев по разуму. (   Читать дальше...   )Производство: США / Universal Pictures, Amblin EntertainmentЖанр: фантастика, фэнтези, комедия, семейныйРежиссер: Мэттью РоббинсАктеры: Хьюм Кронин, Джессика Тэнди, Фрэнк МакРей, Элизабет Пенья, Майкл Кармине, Деннис Буцикарис, Том Элдридж, Джейн Хоффман, Джон ДиСанти, Джон ПэнкоуПеревод: Профессиональный двухголосый, авторскийЯзык озвучки: русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7773D47F34D259D5C53D44E3E843A0C568801AB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002926   (844472) от 02.04.2016
 
 Юные соблазнительницы 2 / Blutjunge Verfuhrerinnen 2 (1972) BDRip [AVO]
@@ -44,6 +18,8 @@ magnet:?xt=urn:btih:7773D47F34D259D5C53D44E3E843A0C568801AB8
 ```bash
 magnet:?xt=urn:btih:A6FC36F1DA8AA9BFBDCB45C8586B5EC10F7CD347
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +45,8 @@ magnet:?xt=urn:btih:A6FC36F1DA8AA9BFBDCB45C8586B5EC10F7CD347
 magnet:?xt=urn:btih:713A6A26EB7EB2D4F22E8696D63EA69A3498F05C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +70,8 @@ magnet:?xt=urn:btih:713A6A26EB7EB2D4F22E8696D63EA69A3498F05C
 ```bash
 magnet:?xt=urn:btih:9EA4EB01FE461469A1387B5D8E8FB67C3DAD3CAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +97,8 @@ magnet:?xt=urn:btih:9EA4EB01FE461469A1387B5D8E8FB67C3DAD3CAB
 magnet:?xt=urn:btih:7DD67432521A603BF5F8E72232486A96C0C83BCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +123,8 @@ magnet:?xt=urn:btih:7DD67432521A603BF5F8E72232486A96C0C83BCF
 magnet:?xt=urn:btih:BA9C4C1203C6374C481766C757617066EAD89BB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +148,8 @@ magnet:?xt=urn:btih:BA9C4C1203C6374C481766C757617066EAD89BB0
 ```bash
 magnet:?xt=urn:btih:751EDDE9BBC8EF3FE834ECEA8FE7ABDF529E45C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +177,8 @@ magnet:?xt=urn:btih:751EDDE9BBC8EF3FE834ECEA8FE7ABDF529E45C7
 magnet:?xt=urn:btih:6BE9710260DA10FA92AEA925026153A627C5649C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +202,8 @@ magnet:?xt=urn:btih:6BE9710260DA10FA92AEA925026153A627C5649C
 ```bash
 magnet:?xt=urn:btih:DE8AEE4962AD7DE425A18039F63399473C8A7EC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +230,8 @@ magnet:?xt=urn:btih:DE8AEE4962AD7DE425A18039F63399473C8A7EC9
 magnet:?xt=urn:btih:6F3BCF920189895EA49FF7C1B6AB377BD7236B33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +257,8 @@ magnet:?xt=urn:btih:6F3BCF920189895EA49FF7C1B6AB377BD7236B33
 magnet:?xt=urn:btih:8314DB814DB65C3AA5425257743CFAC8F223086E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +282,8 @@ magnet:?xt=urn:btih:8314DB814DB65C3AA5425257743CFAC8F223086E
 ```bash
 magnet:?xt=urn:btih:9AA9A1E7D289C29D3D2F350E4DE2C24483C40242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +309,8 @@ magnet:?xt=urn:btih:9AA9A1E7D289C29D3D2F350E4DE2C24483C40242
 magnet:?xt=urn:btih:CCD58887876AD371F59DCCE003539AA9CECE939D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +334,8 @@ magnet:?xt=urn:btih:CCD58887876AD371F59DCCE003539AA9CECE939D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +361,8 @@ magnet:?xt=urn:btih:CCD58887876AD371F59DCCE003539AA9CECE939D
 magnet:?xt=urn:btih:C308D7EACF8F2FC157FF2770B6DF3D65A099ED89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +386,8 @@ magnet:?xt=urn:btih:C308D7EACF8F2FC157FF2770B6DF3D65A099ED89
 ```bash
 magnet:?xt=urn:btih:F5464D97C8B80C03C3A2F540A86F659FF49C20F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +413,8 @@ magnet:?xt=urn:btih:F5464D97C8B80C03C3A2F540A86F659FF49C20F8
 magnet:?xt=urn:btih:762288B9C152240A9672C6BE88237E1D74748610
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +438,8 @@ magnet:?xt=urn:btih:762288B9C152240A9672C6BE88237E1D74748610
 ```bash
 magnet:?xt=urn:btih:3EB4C6221192FF740F31AAF4FD7FA463BA737B51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +465,8 @@ magnet:?xt=urn:btih:3EB4C6221192FF740F31AAF4FD7FA463BA737B51
 magnet:?xt=urn:btih:5351A3AC374DBB06EAFF99D46A2826358556AB03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +490,8 @@ magnet:?xt=urn:btih:5351A3AC374DBB06EAFF99D46A2826358556AB03
 ```bash
 magnet:?xt=urn:btih:74D0BF985DDF30BA909FC37B324DCC63F41E1E3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +517,8 @@ magnet:?xt=urn:btih:74D0BF985DDF30BA909FC37B324DCC63F41E1E3A
 magnet:?xt=urn:btih:6F970118223278F5D3A3E8A3FE0C6A4B5FEA05BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +542,8 @@ magnet:?xt=urn:btih:6F970118223278F5D3A3E8A3FE0C6A4B5FEA05BB
 ```bash
 magnet:?xt=urn:btih:828A57E6A4F43C01CED64081796316EFF8967A47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +569,8 @@ magnet:?xt=urn:btih:828A57E6A4F43C01CED64081796316EFF8967A47
 magnet:?xt=urn:btih:70F9203A573FA4EF2692D601AC3830624941556E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +594,8 @@ magnet:?xt=urn:btih:70F9203A573FA4EF2692D601AC3830624941556E
 ```bash
 magnet:?xt=urn:btih:81448B88D7D0824892006D0C9F3E9668CE6DE32A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +621,8 @@ magnet:?xt=urn:btih:81448B88D7D0824892006D0C9F3E9668CE6DE32A
 magnet:?xt=urn:btih:3BBFA90EC0399B2665E49EEF9554096B2C78AC40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +646,34 @@ magnet:?xt=urn:btih:3BBFA90EC0399B2665E49EEF9554096B2C78AC40
 ```bash
 magnet:?xt=urn:btih:ABF399774177033C48B1EE56D7B1F9821844F204
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377875   (849484) от 23.04.2020
+
+Две датчанки в кожаных штанах / Zwei Daninnen in Lederhosen (1979) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_849484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Две стриптизерши из подпольного ночного клуба, спасаясь от облавы, уезжают на автомобиле своего приятеля-итальянца Борсалино. В багажнике девицы обнаруживают белый порошок и, думая, что это героин, решают спрятаться от греха подальше в первой попавшейся на пути баварской деревне Мутценбах. Однако, девушки ошиблись — порошком оказалось новейшее стимулирующее потенцию (   Читать дальше...   )Производство: Германия (ФРГ)/ Colena FilmЖанр: КомедияРежиссер: Франц МаришкаАктеры: Дебора Муни, Натали Ньюманн, Франц Мюксенедер, Питер Стейнер, Марго Малер, Гюнтер Ферш, Фред Штилькраут, Херберт Фукс, Ринальдо Таламонти, Долфи Кауэр, Луис Вилле, Франц Хелминджер, Сильвия ЭнгельманнПеревод: Одноголосый любительский, Немец c VHSСубтитры: ОтсутствуютПродолжительность: 01:28:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76B647BCEED9DCCB177453C26B68B1617C8AC648
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

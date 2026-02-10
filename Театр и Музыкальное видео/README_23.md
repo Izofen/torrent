@@ -19,6 +19,8 @@ Scooter - Video collection - Chapter 3 (2003 - 2005) DVDRip [H.264/1080p-LQ] [ha
 magnet:?xt=urn:btih:38DD2D9A81FA492F5E7FAD2E8DB8D3FEF999A81B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ NEMOPHILA - японская женская метал/рок группа, ос
 ```bash
 magnet:?xt=urn:btih:D664A9F564EF3BF110C01CE40A6466B40CA701D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:D664A9F564EF3BF110C01CE40A6466B40CA701D9
 ```bash
 magnet:?xt=urn:btih:1CCCC325CA4C3E82C9CE1AD0F1650C2C95DD647D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -110,6 +116,8 @@ Bob Marley And The Wailers - Live At The Rainbow, London Theatre (1977) DVDRip
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -134,6 +142,8 @@ Bob Marley And The Wailers - Live At The Rainbow, London Theatre (1977) DVDRip
 ```bash
 magnet:?xt=urn:btih:02C5424E82AEFE83C7A607092009ACC1D913EFDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +178,8 @@ magnet:?xt=urn:btih:02C5424E82AEFE83C7A607092009ACC1D913EFDA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +208,8 @@ NEMOPHILA - японская женская метал/рок группа, ос
 magnet:?xt=urn:btih:B3701FB5CC13D9D50267AB4D558EF2B264408425
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +235,8 @@ magnet:?xt=urn:btih:B3701FB5CC13D9D50267AB4D558EF2B264408425
 magnet:?xt=urn:btih:A8B0DE9B8C368DAFB954618799F32718E36C20F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +260,8 @@ Miyeon - Drive (Live) (2022) WEBRip [H.265/2160p]
 ```bash
 magnet:?xt=urn:btih:50F88101C29AA50609C53417AAAC1ADEEF80F4E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +290,8 @@ magnet:?xt=urn:btih:50F88101C29AA50609C53417AAAC1ADEEF80F4E7
 magnet:?xt=urn:btih:4E10B346B3D2CB761030C81BC1C35BBDF194ED95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +316,8 @@ magnet:?xt=urn:btih:4E10B346B3D2CB761030C81BC1C35BBDF194ED95
 ```bash
 magnet:?xt=urn:btih:C44A7E86F57D86C1C89CE2ACB378D453004EFEF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +345,8 @@ magnet:?xt=urn:btih:C44A7E86F57D86C1C89CE2ACB378D453004EFEF6
 magnet:?xt=urn:btih:A0E4F35D7ED6E581183A0643392BA4B8F0831D54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +371,8 @@ magnet:?xt=urn:btih:A0E4F35D7ED6E581183A0643392BA4B8F0831D54
 magnet:?xt=urn:btih:AF57D9181F0CEF6433A87A02938E28CFBE3DD093
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +396,8 @@ Suzy - Come back (2025) WEBRip [H.265/2160p]
 ```bash
 magnet:?xt=urn:btih:9FF5D4FC67D7BA04AAA4D0FFE5EC7CBBE3F69475
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +426,8 @@ magnet:?xt=urn:btih:9FF5D4FC67D7BA04AAA4D0FFE5EC7CBBE3F69475
 magnet:?xt=urn:btih:136AA3B9266F8E8D49B39C6D2C0216C57C2D8B62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +455,8 @@ Scooter - Live at Rocco del Schlacko festival (2019) WEBRip [H.264/1080p-LQ] [ha
 magnet:?xt=urn:btih:31ED7369CBA8BDA1B07D11545F251E0E21075A9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +480,8 @@ NiziU - Need U (2021) WEBRip [H.265/2160p] [60fps, Upscale AI]
 ```bash
 magnet:?xt=urn:btih:6B7324F2FBAFD25697EAAB7EE7E6D876AA2ED8B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +510,8 @@ Scooter - Live at Highfield festival (2016) WEBRip [H.264/1080p-LQ] [hand made u
 magnet:?xt=urn:btih:CDD6FD1CEF64602A18469AE12D052CD73D70222D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +537,8 @@ Dabro. Первый конфликт в истории Музлофт.
 magnet:?xt=urn:btih:27E833B7B793304E3693DC943BA2DD3945ED9DE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +563,8 @@ magnet:?xt=urn:btih:27E833B7B793304E3693DC943BA2DD3945ED9DE0
 ```bash
 magnet:?xt=urn:btih:5E277C684F542AC7C898C5C655FA5C95A7D40CE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +593,8 @@ Scooter - Live in Dnepropetrovsk (1999) VHSRip [H.264/1080p-LQ] [hand made upsca
 magnet:?xt=urn:btih:330AA1F0E74DFDFF4F1756863BB3DBFA69EB77A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +621,8 @@ Paul Van Dyk - Live at Green Valley (2010) HDTVRip [H.265/2160p] [hand made upsc
 ```bash
 magnet:?xt=urn:btih:0691C6310B7B0566C19D8997AC429F288765423C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +651,8 @@ Scooter - Jumping all over the world - Live in Berlin (2008) DVDRip [H.264/1080p
 magnet:?xt=urn:btih:353DC684206E2F57977147C6FF96B7F641AC7A83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +678,8 @@ Don Juan Dracula вернулись! Когда-то их называли од�
 magnet:?xt=urn:btih:FE3EBE4EBDD19608B5DFF673C95849DFF10A20D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +704,8 @@ Paul Van Dyk - Live at opening Kazantip Z17 (2009) TVRip [H.264/1080p] [hand mad
 ```bash
 magnet:?xt=urn:btih:60C6EC311429BAC89420A883C2C9F1C97970AF3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -683,6 +733,8 @@ magnet:?xt=urn:btih:60C6EC311429BAC89420A883C2C9F1C97970AF3C
 ```bash
 magnet:?xt=urn:btih:96DC2AD5DED3EE3631F7F10AAC4E782125842F5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

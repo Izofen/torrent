@@ -1,27 +1,3 @@
-###  Публикация: 1083111   (830968) от 15.03.2017
-
-Shadowrun: Dragonfall (2014) [Ru/En] (2.1.1.8) License GOG [Director's Cut]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830968.jpg" />
-</div>
-
-
-###  Подробнее
-
-На дворе 2052 год. Главный герой присоединяется к своей подруге Монике Шеффер, которая просит нас подстраховать ее на «плевом» деле, но, конечно же, все идет наперекосяк и наши герои будят дракона, погибшего в ужасной битве 50 лет назад, который, естественно, готовит страшную месть для оскорбившего его мира. Простая, на первый взгляд, завязка оказывается очень интересной (   Читать дальше...   )Тип издания: LicenseРазработчик: Harebrained SchemesЖанр: Add-on (Standalone), Strategy (Turn-based, Tactical), RPGЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:004DB6A928B98A34D216D80A9960A3A197EA93FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114722   (831368) от 15.03.2017
 
 Where is my Brain!? (2017) [Ru/Multi] (1.0) License PLAZA
@@ -42,6 +18,8 @@ Where is my Brain!? (2017) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:435C51E8E29B8BFCD1C3AF0AD8D8B712383393F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Monster Crown (2021) [Ru/Multi] (1.0.2) License PLAZA
 magnet:?xt=urn:btih:7A3E5DE74A6A5E55FF76D4254934C4A838D602A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Rewind - головоломка от первого лица с элемента
 ```bash
 magnet:?xt=urn:btih:BB9E8E3BBF896E18BAB3ADCEBB740D5A03FD9A0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Mind: Path to Thalamus – головоломка с видом от перво�
 magnet:?xt=urn:btih:123CF9020B77A57BCEC93BCC9401F1F0E8CABDD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Warden: Melody of the Undergrowth – приключенческая инди-и
 ```bash
 magnet:?xt=urn:btih:FFAC03FC3D7757AB8BFE7C45381847222EF89F08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Statues (2015) [Ru/Multi] (1.0) License RELOADED
 magnet:?xt=urn:btih:2C5701CE27EB1A07774AAEB5396F7BE7BAFB63A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Stairs - это атмосферный психологический хорро
 ```bash
 magnet:?xt=urn:btih:8BB65D57F2DD5AFDFF11C802E68931E7F89A3C62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Far Cry 3: Blood Dragon (2013) [Ru/En] (1.0.1) RePack R.G. Games
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Love Chronicles 5: Beyond the Shadows (2016) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:B960C126EB5A6CA4413F284C420C48831B0D9A9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +254,8 @@ Dead Rising 2 (2010-2011) [Ru/En] (1.0/1.0) SteamRip Let'sРlay [Complete Pack]
 magnet:?xt=urn:btih:297CD04C305BE4BA2C1D945C353D43910D0CF319
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ Save Our Souls (2017) [En] (1.0) License CODEX [Episode 1]
 ```bash
 magnet:?xt=urn:btih:AEBE5CFCAA96AC43CD61BAC6C3B71B1BA6CC3A88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +306,8 @@ Oceanhorn: Monster of Uncharted Seas (2015) [Ru/Multi] (3.4.51.419) License CPY
 magnet:?xt=urn:btih:3EEF424CA21291E2C822B4C089C47507B4F59D63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +331,8 @@ The Hand of Merlin (2021) [En] (675212/dlc) License GOG [Deluxe Edition] [Early 
 ```bash
 magnet:?xt=urn:btih:E7EEC6C49EC92EA84E441C4D7CD9D50BCBB7B6E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +358,8 @@ Out of Line (2021) [Ru/Multi] (1.0.1.2) License GOG
 magnet:?xt=urn:btih:5825C7D3ADF866BF91959D0E58DBFFDE868858D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +383,8 @@ magnet:?xt=urn:btih:5825C7D3ADF866BF91959D0E58DBFFDE868858D9
 ```bash
 magnet:?xt=urn:btih:A37D592EFEE4291CF21EEB5F6E460844DF2FEDB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +410,8 @@ Serin Fate (2021) [En] (1.0.22) License GOG
 magnet:?xt=urn:btih:68F69F32ABBD738FE286CC1346A37B3A3628BEA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +435,8 @@ The Magister (2021) [En] (1.0.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:FDF93279980334E77AB563547D29997C2EB19FE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +462,8 @@ Gone Viral – захватывающий игровой проект, разр�
 magnet:?xt=urn:btih:BDF984B8C6B599212AFA744815A48372758BEFBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +487,8 @@ Silver Bullet: Prometheus (2016) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:104ED535E2DBB69D862AB59419EA72547D701CBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +514,8 @@ magnet:?xt=urn:btih:104ED535E2DBB69D862AB59419EA72547D701CBA
 magnet:?xt=urn:btih:0AABB62BC552B45D4838BD31635A1A6750F29913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +539,8 @@ MXGP2 - The Official Motocross Videogame — это развитие преды�
 ```bash
 magnet:?xt=urn:btih:D80B0AF8CD35A160ECD11360D666C65672AF45FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +566,8 @@ Train Valley (2015) [Ru/Multi] (1.1/dlc) License TiNYiSO
 magnet:?xt=urn:btih:5FD52957D1F6ED386B1E42F7D75F901C4D6DB529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +591,8 @@ Fear for Sale 4: Phantom Tide (2014) [En] Unofficial [Collector’s Edition / К
 ```bash
 magnet:?xt=urn:btih:0EC72BEA1FCCF5BE4BC6E58FADB809F066DB2DAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +618,8 @@ Mad Max (2015) [Ru/Multi] (1.0.3.0/dlc) SteamRip R.G. Origins
 magnet:?xt=urn:btih:5FD4685EA4A25957B576079297A1B447C66746CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +643,34 @@ EA SPORTS™ FIFA Online 4 – это футбольная игра на рус�
 ```bash
 magnet:?xt=urn:btih:E0D1ABC12E36878B2FDF57D0D99A7649517F9B42
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379919   (835537) от 01.05.2020
+
+Follia Dear Father (2020) [Ru/Multi] (3.86) Repack xatab
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Follia Dear Father – это стелс-хоррор игра на выживание в лучших традициях жанра и декорациях университетского городка. Маркус отправляется на поиски своих родителей, но обнаруживает смертоносных чудовищ, готовое напасть в любой момент. Маркус Питт, студент, примечательный только тем, что его родители оба работают в университете, оказывается в гуще ужасных событий, (   Читать дальше...   )Тип издания: RepackРазработчик: Real Game MachineЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Английский, ИтальянскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87B9C11C8D3BD4C7AB606E81F1696C9E67697D81
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

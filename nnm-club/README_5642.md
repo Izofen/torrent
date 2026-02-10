@@ -19,6 +19,8 @@ Windows 11 - это серия операционных систем, разра
 magnet:?xt=urn:btih:231235E12576F169F4D25426F22503398F964946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:231235E12576F169F4D25426F22503398F964946
 magnet:?xt=urn:btih:50CDF01C82847526B319CA958DC1C65E81045F66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Ad Infinitum (2023) [Ru/Multi] (1.0.4.270196/dlc) Repack Other s [Supporter Edit
 ```bash
 magnet:?xt=urn:btih:C71D9E9DE32F9645A9953D28857B312E6C04D94D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Rufus - небольшая утилита помогает отформатир�
 magnet:?xt=urn:btih:49FAC5A6453EF4ED33DC42D4EB65796553E7E43B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:49FAC5A6453EF4ED33DC42D4EB65796553E7E43B
 ```bash
 magnet:?xt=urn:btih:3697F3BE344D574E5AB31A90BCA1219C874728B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:3697F3BE344D574E5AB31A90BCA1219C874728B5
 magnet:?xt=urn:btih:ED5D114BEFCB7027EE66B95DA83668E19A00EB05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Windows 10/11 x64 (18in1) by Updated Edition (18.10.2023) [Ru]
 ```bash
 magnet:?xt=urn:btih:414B06E35B0E269165D5084F78C7EA437CD770BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:414B06E35B0E269165D5084F78C7EA437CD770BE
 magnet:?xt=urn:btih:C6983D4C56E463B2BD80F33032F5703937480787
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:C6983D4C56E463B2BD80F33032F5703937480787
 ```bash
 magnet:?xt=urn:btih:54269712BEADA37D0D4CE140E53D38E7E3509D16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:54269712BEADA37D0D4CE140E53D38E7E3509D16
 magnet:?xt=urn:btih:181671C213DA764063277B9B4F4EF1919EFB0338
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:181671C213DA764063277B9B4F4EF1919EFB0338
 ```bash
 magnet:?xt=urn:btih:855B5BD703D0ECA786A3F1A3E9C8AC277ABA47D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ ADB AppControl - это новая и удобная программа для �
 magnet:?xt=urn:btih:E2D11CB5EA73D42C75C81F1C2A70C559D9AE2612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Reg Organizer® - это многофункциональная программ
 magnet:?xt=urn:btih:641DA18EA60AEE0EF3A315D3C03F6CC5341DB0AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Microsoft пугает пользователей «санкциями» за у
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Microsoft пугает пользователей «санкциями» за у
 magnet:?xt=urn:btih:28F784676021A515CB679DF67613A11846EEC10F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:28F784676021A515CB679DF67613A11846EEC10F
 ```bash
 magnet:?xt=urn:btih:5B2CAF19F326D480B78C459359A665E64FF118A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:5B2CAF19F326D480B78C459359A665E64FF118A7
 magnet:?xt=urn:btih:C8A2648669254CC3AD8ADE9D2DD0B48C19D4FE96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:C8A2648669254CC3AD8ADE9D2DD0B48C19D4FE96
 ```bash
 magnet:?xt=urn:btih:311A46AD6398173E9789F07C39DC78E198347667
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:311A46AD6398173E9789F07C39DC78E198347667
 magnet:?xt=urn:btih:895D3E9BFF77F86D54018B37C956602620D6A4F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:895D3E9BFF77F86D54018B37C956602620D6A4F9
 magnet:?xt=urn:btih:44EFCCE80433EB099373A60E9304A31103C51D5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:44EFCCE80433EB099373A60E9304A31103C51D5D
 ```bash
 magnet:?xt=urn:btih:8C70768B0FF09F9F2A23AA8E89A9315D847AA7BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:8C70768B0FF09F9F2A23AA8E89A9315D847AA7BD
 magnet:?xt=urn:btih:DAF534E6D955949F700E5CE2D4346FA1AA0C7137
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Transformers: Earthspark - Expedition (2023) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A91911C59204E54B304CFF957B5DF076DD6254A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:A91911C59204E54B304CFF957B5DF076DD6254A2
 magnet:?xt=urn:btih:F5DF63596A9B53335E145CCE88593DD66D138092
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:F5DF63596A9B53335E145CCE88593DD66D138092
 magnet:?xt=urn:btih:4055D4EB2CCD3305B260C010EA7E81C283756D10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Pascal Thormeier | Mastering CSS Grid (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:95E18E96A1AA2A801190BAED3300746822E0AFDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

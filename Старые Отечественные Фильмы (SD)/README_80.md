@@ -1,3 +1,30 @@
+###  Публикация: 438305   (976161) от 18.01.2012
+
+Ночное происшествие (1980) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976161.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам одноименной повести В. Морозова.
+Ночью в одном из московских переулков на женщину было совершено покушение. Ее ранение - всего лишь звено в цепи преступлений, связанных между собой и уже находящихся под наблюдением опытного следователя Митина.Производство: к/с им. М. ГорькогоЖанр: ДетективРежиссер: Вениамин ДорманАктеры: Петр Вельяминов, Галина Польских, Алексей Жарков, Юрий Каюров, Борис Сморчков, Валентина Грушина, Наталья Назарова, Татьяна Пельтцер, Юрий Волынцев, Андрей Юдин, Андрей НиколаевПродолжительность: 01:27:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B1BE2692F64BB11DBC7F76D9A2EAC866F5E903B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 438193   (976365) от 18.01.2012
 
 Телохранитель (1980) TVRip
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:0B12C50C9D8DC2482D27C67B7C41D99E8FDBB243
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +71,8 @@ magnet:?xt=urn:btih:0B12C50C9D8DC2482D27C67B7C41D99E8FDBB243
 ```bash
 magnet:?xt=urn:btih:43153954D88BA3C69E11856CC9E1E8214417B0BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +102,8 @@ magnet:?xt=urn:btih:43153954D88BA3C69E11856CC9E1E8214417B0BD
 magnet:?xt=urn:btih:F2EEC5E859B97423DF176E06E99DFEEE5125FA5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +128,8 @@ magnet:?xt=urn:btih:F2EEC5E859B97423DF176E06E99DFEEE5125FA5D
 magnet:?xt=urn:btih:44DCB86233F5D3C29C9DF42E4D11F2ADF1945156
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +153,8 @@ magnet:?xt=urn:btih:44DCB86233F5D3C29C9DF42E4D11F2ADF1945156
 ```bash
 magnet:?xt=urn:btih:954AD7A5127F2C02A543348B9D7EE59DE76EC7F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +181,8 @@ magnet:?xt=urn:btih:954AD7A5127F2C02A543348B9D7EE59DE76EC7F7
 magnet:?xt=urn:btih:28C44C30EF15BA8B15BE48987F3E364A4F1B1DA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +206,8 @@ magnet:?xt=urn:btih:28C44C30EF15BA8B15BE48987F3E364A4F1B1DA5
 ```bash
 magnet:?xt=urn:btih:D64478BC9F4BE0D3CB1BAE30E5EA0A34D5813805
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +234,8 @@ magnet:?xt=urn:btih:D64478BC9F4BE0D3CB1BAE30E5EA0A34D5813805
 magnet:?xt=urn:btih:16AC716E2ECC794F977AE93A993AC17BB08C636C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +259,8 @@ magnet:?xt=urn:btih:16AC716E2ECC794F977AE93A993AC17BB08C636C
 ```bash
 magnet:?xt=urn:btih:2D1B4A6C5343A5FC219B22E020D5D361D61D6D56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +286,8 @@ magnet:?xt=urn:btih:2D1B4A6C5343A5FC219B22E020D5D361D61D6D56
 magnet:?xt=urn:btih:87BCE168478187D2991B5AD6C4E953563267FFA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +311,8 @@ magnet:?xt=urn:btih:87BCE168478187D2991B5AD6C4E953563267FFA8
 ```bash
 magnet:?xt=urn:btih:41AA3C976DDD000FB54EC1B40D530F6636C4D4B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +338,8 @@ magnet:?xt=urn:btih:41AA3C976DDD000FB54EC1B40D530F6636C4D4B2
 magnet:?xt=urn:btih:3E5934F5CD200B552E6840F15114C6FC95D9A8E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +363,8 @@ magnet:?xt=urn:btih:3E5934F5CD200B552E6840F15114C6FC95D9A8E2
 ```bash
 magnet:?xt=urn:btih:BF47C9C4091203E5672A800A863304D466E3A588
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +391,8 @@ magnet:?xt=urn:btih:BF47C9C4091203E5672A800A863304D466E3A588
 magnet:?xt=urn:btih:6EC7FF866FC499360164F39D027F324ECB551282
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +416,8 @@ magnet:?xt=urn:btih:6EC7FF866FC499360164F39D027F324ECB551282
 ```bash
 magnet:?xt=urn:btih:5A30E5EA81F49F1514F48D1708C77FED96DC13D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +444,8 @@ magnet:?xt=urn:btih:5A30E5EA81F49F1514F48D1708C77FED96DC13D5
 magnet:?xt=urn:btih:EFAB8853D16C5FB856F7A3ECB05FC95FF94CFCB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +469,8 @@ magnet:?xt=urn:btih:EFAB8853D16C5FB856F7A3ECB05FC95FF94CFCB3
 ```bash
 magnet:?xt=urn:btih:12EEFB4A93F7153F6DE9BB92295D2D5612A1229B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +496,8 @@ magnet:?xt=urn:btih:12EEFB4A93F7153F6DE9BB92295D2D5612A1229B
 magnet:?xt=urn:btih:F49BC1670E7FB8968A23CE3632443EE11017384F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +521,8 @@ magnet:?xt=urn:btih:F49BC1670E7FB8968A23CE3632443EE11017384F
 ```bash
 magnet:?xt=urn:btih:FF48368771FE46454513C65EA5C98C743506C83D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +548,8 @@ magnet:?xt=urn:btih:FF48368771FE46454513C65EA5C98C743506C83D
 magnet:?xt=urn:btih:32457DA80FBBBBC62F8448AFFA0D267666A158EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +573,8 @@ magnet:?xt=urn:btih:32457DA80FBBBBC62F8448AFFA0D267666A158EE
 ```bash
 magnet:?xt=urn:btih:83734C32851A653BF8EA7EAECE459939BA426404
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +600,8 @@ magnet:?xt=urn:btih:83734C32851A653BF8EA7EAECE459939BA426404
 magnet:?xt=urn:btih:CAC373C0D22960839D22CF8670B1CEFC9178AB5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +625,8 @@ magnet:?xt=urn:btih:CAC373C0D22960839D22CF8670B1CEFC9178AB5B
 ```bash
 magnet:?xt=urn:btih:7FC74189E3E6F54DD0CEE9B0BB87544966395D9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +652,8 @@ magnet:?xt=urn:btih:7FC74189E3E6F54DD0CEE9B0BB87544966395D9E
 magnet:?xt=urn:btih:93FACFA27B61B6D46E9D53E6227E37D827A78555
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,29 +678,7 @@ magnet:?xt=urn:btih:93FACFA27B61B6D46E9D53E6227E37D827A78555
 magnet:?xt=urn:btih:B36CA868A5F676881ED820DF8A695EC1132664A3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 434937   (985183) от 11.01.2012
-
-Объяснение в любви (1979) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985183.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам романа Евгения Габриловича «Четыре четверти». Ровесник века, талантливый литератор Филиппок, мучительно ищущий свой путь в жизни, оказался свидетелем и участником важнейших исторических событий...Жанр: ДрамаРежиссер: Илья АвербахАктеры: Юрий Богатырев, Эва Шикульска, Ангелина Степанова, Бруно Фрейндлих, Кирилл Лавров, Дарья Михайлова, Никита Михайловский, Денис Кучер, Иван Бортник, Елена Санько, Анатолий Коваленко, Юрий Гончаров, Николай Ферапонтов, Светлана Крючкова, Борис СоколовПродолжительность: 01:31:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25C967F83391F4714EF1D45CE29FAC9D93B7CC5B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

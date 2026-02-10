@@ -20,6 +20,8 @@ Temtem: Swarm сочетает в себе минималистичный игр
 magnet:?xt=urn:btih:160060DDEE044382D6A6A084999AD5EF5919FF07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ New Arc Line (2024) [Ru/Multi] (0.250725) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:C4E82D8AA0B7EA883FCC6C8BA77A976485591ADA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ BeamNG.drive – автосимулятор, моделирующий повед
 magnet:?xt=urn:btih:A3E1708573BDB02A53D70D57EBEE12C0AF7AC64A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ ENDLESS Legend 2 – это фэнтезийная стратегия, где в
 ```bash
 magnet:?xt=urn:btih:FC3D23A8679C57AD2E65B6B7CA77EB478EA61CC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ ENDLESS Legend 2 – это фэнтезийная стратегия, где в
 magnet:?xt=urn:btih:318BD894470F376E80EF57D337917A309BC4D1B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Yet Another Zombie Survivors (2023) [Ru/Multi] (B.0.9.0a) Repack Let'sРlay [Ear
 ```bash
 magnet:?xt=urn:btih:33BB7237FBD3E2BB5420F7DCBA578AB667C8B51A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Swordhaven: Iron Conspiracy с головой окунает вас в полн�
 magnet:?xt=urn:btih:F223758DC46079B2F03C3637AC6B43DD495B7D85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ BeamNG.drive – автосимулятор, моделирующий повед
 ```bash
 magnet:?xt=urn:btih:3A089DC14C876056BB43CDFA67FD21594C95E941
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ SCP Pandemic – игровой проект, разработанный в жа
 magnet:?xt=urn:btih:8BC0DB7410D0276DE8ACF792464575A7E6D65582
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ TerraTech Worlds - игра на выживание с крафтом и стр�
 ```bash
 magnet:?xt=urn:btih:2F0C24196F617D5CB075C23282ADF59249B36227
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ inZOI - игра в жанре симулятора жизни, в которо�
 magnet:?xt=urn:btih:1BE28C988B87789A9E7670F52609321F5A85F71F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Captain of Industry (2022) [Ru/Multi] (0.7.9) Repack seleZen [Early Access]
 ```bash
 magnet:?xt=urn:btih:F9FC8B361773ECE43EB35051DC5A90C5EC75FEBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ SWAT Commander (2025) [Ru/Multi] (0.7.7.4) Repack Let'sРlay [Early Access]
 magnet:?xt=urn:btih:E455072B6E3FC95020059285C5598B7459923F38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ STORROR Parkour Pro - это игра о паркуре, которая испо
 ```bash
 magnet:?xt=urn:btih:A5DE78C86FD6ACCA1892177EDBA752F995C43F05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Sunkenland - это увлекательное приключение, пред�
 magnet:?xt=urn:btih:6D14E2D855B48AA8330909DE9F1947754A298062
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Universe Sandbox - основанный на реальной физике си�
 ```bash
 magnet:?xt=urn:btih:B90BB2306ACB61329100FDB76FC93218CF1CFD6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Travellers Rest (2020) [Ru/Multi] (0.7.2.2) License GOG [Early Access]
 magnet:?xt=urn:btih:64EAB9575D76FC59BB02D72179AEE1F8536D3728
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Enshrouded - увлекательная игра, действие которо�
 ```bash
 magnet:?xt=urn:btih:446B2F73C26D7360DCC35325F8D51B2F0A4EB3B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Titan Quest II (2025) [Ru/En] (0.1.2-PUBLIC.99841) Repack Wanterlude [Early Acce
 magnet:?xt=urn:btih:3C6A6E42B59D04F6286317814F5F6035FD19ECE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Stygian: Outer Gods (2025) [Ru/Multi] (220825) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:3CA1841B8C7FE7971F5B0B0C6A0278A9394AA6A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Valheim - The Bog Witch (2021) [Ru/Multi] (0.221.4) Repack Pioneer [Early Access
 magnet:?xt=urn:btih:60138992E8109604F05E30B53F0ADB067F62B317
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ DAVY x JONES (2025) [Ru/Multi] (0.12.1) Repack Other s [Early Access]
 ```bash
 magnet:?xt=urn:btih:0B99F0BCAA158577BA35A7589DF2549429E99D06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Enshrouded - увлекательная игра, действие которо�
 magnet:?xt=urn:btih:562CE3F2C0A27ECFADEDEE0013444467CAFBF266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Becastled – инди-стратегия в реальном времени, ч
 ```bash
 magnet:?xt=urn:btih:FAECF7F69348ACB84B45C9B71DD3D57E8D3CC326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ FOUNDRY - строительный симулятор с видом от пер�
 magnet:?xt=urn:btih:C69EEC5FF58DA167778857C8D175FF7137899ADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ inZOI - игра в жанре симулятора жизни, в которо�
 ```bash
 magnet:?xt=urn:btih:6C5844542B6F2F33D3C480473AA952FFFE0BBDFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

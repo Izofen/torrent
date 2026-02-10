@@ -1,3 +1,32 @@
+###  Публикация: 1415380   (376983) от 12.10.2020
+
+VA - Beatport Goa Trance: Electro Sound Pack #184-1 (2020) [MP3|320 Kbps] <Goa, Psy Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376983.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Owntrip - We Are Going For You
+002. Ph4se - Afrolicious
+003. Nozpera - T.F.G (Original Mix)
+004. Singularity - Virtual Reality(   Читать дальше...   )Жанр: Goa, Psy TranceПродолжительность: 12:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8E86F2034F3DB7BC21222E079354D5F73E3FA7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253900   (377157) от 12.10.2018
 
 VA - Зайцев.нет Лучшие новинки Октября 2018 [MP3|320 Kbps] <Pop>
@@ -21,6 +50,8 @@ VA - Зайцев.нет Лучшие новинки Октября 2018 [MP3|32
 ```bash
 magnet:?xt=urn:btih:3B4674FD02A309C8B56D4477C8DEBD282796553F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Private Dance: Jazz & Blues (2018) [MP3|320 Kbps] <Jazz, Blues, Romantic>
 magnet:?xt=urn:btih:3330A71F470DE8611FF5C292D65D5738472A44A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ Mystic Diversions - Лучшие хиты (2014) [MP3|320 кб/с]<Chillout, Amb
 ```bash
 magnet:?xt=urn:btih:0741D38A85270EC290955D1980CB30FAF733C2E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Most Wanted - Digital Dancefloor - Chapter 01-12 (2011) [MP3|320 кб/с]<E
 magnet:?xt=urn:btih:27629BCA229CE7FC08C2C15DF9DD9CEA76D8C736
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Winter Jazz: Chillout Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, 
 ```bash
 magnet:?xt=urn:btih:A4457923B3952EFCE33964ABA9A1DB84DC4DB2E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Balkan Dance Hits (2015) [MP3|320 кб/с]<Dance, Eurodance>
 magnet:?xt=urn:btih:3917EBB899650CDE779BF6735752EBE30D8DD8DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Negligee Lounge Vol 2 (30 Erotic Lounge & Chillout Tunes) (2015) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:F970C322FBDF45B245AF51B88E4786031E4BBA33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Negligee Lounge - 30 Erotic Lounge & Chillout Tunes (2013) [MP3|320 кб/с
 magnet:?xt=urn:btih:7ED410EAA14DC97D529924A9C7C07AB59B128579
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Original Mix Vocal Trance Vol.07 (2015) [MP3|320 кб/с]<Trance, Vocal Tra
 ```bash
 magnet:?xt=urn:btih:A6015BDB5A6F5F924669C23AB0A439C92A8B5FBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +318,8 @@ Swing Republic - Midnight Calling (2012) [MP3|320 кб/с]<Electro Swing, Nu-Jaz
 magnet:?xt=urn:btih:D5962876AE38875953DAE182A9C5FF6C0C8A698D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +346,8 @@ VA - Club Trance Shows (2015) [MP3|320 кб/с]<Trance, Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:ACC0A0D854CE12503855575795F63589B1F20E6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +376,8 @@ VA - Sunset Cafe Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Chill Hous
 magnet:?xt=urn:btih:EEAFBBB7E8D1F98610BFC49184A675A9F5174E93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +404,8 @@ VA - Club Night 2 (2017) [MP3|320 Kbps] <Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:B7FBDF3F0F05332227A4D3A5A6C27FE2292031AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +449,8 @@ CD 1:01. The Man Behind C. feat. Miriam - See You Again
 magnet:?xt=urn:btih:49C9AC8A4BDA41A6E25693D5687F594C5AD86C77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +483,8 @@ VA - Новинки Русского Рока (2012) [MP3|256 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:EC55F680DBE21C78C9346A9E934C802B9D8EDF7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +528,8 @@ VA - Лучшие клубные хиты Hot Club Hits (2012) [MP3|256 кб/с]
 magnet:?xt=urn:btih:1796993CE018B92A90B9552040D7777825D9663A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +556,8 @@ VA - Top 100 Зайцев.Нет Октябрь (2016) [MP3|128-320 Kbps] <Club 
 ```bash
 magnet:?xt=urn:btih:5EC2BDCCE4C6307B961A5AFB3083A3EE230B1162
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +586,8 @@ magnet:?xt=urn:btih:5EC2BDCCE4C6307B961A5AFB3083A3EE230B1162
 magnet:?xt=urn:btih:3AC95297A5B9163760A4629940F09457B5621BF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +614,8 @@ VA - Top 100 Downloads October (2016) [MP3|320 Kbps] <Nu Disco, Big Room, Future
 ```bash
 magnet:?xt=urn:btih:94AA979F5E3346974E1F66260BACFC5E220C498D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +644,8 @@ VA - Happy Tracks Play Sound (2016) [MP3|256-320 Kbps] <Pop, Gospel, Hip Hop, El
 magnet:?xt=urn:btih:71B215496A21BAF19C6898286E4C7AE0C5671035
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +672,8 @@ VA - Осенняя Дискотека По-Русски (2016) [MP3|256 Kbps] <
 ```bash
 magnet:?xt=urn:btih:8EE5DDC32C45DFF2B41F75DFCBC4558D72F911C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +702,8 @@ VA - Музыкальный Адреналин. Top Hits 9 (2016) [MP3|256 Kbps]
 magnet:?xt=urn:btih:F0523863F6F9A89BC7990377583872DEAFE24A9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +731,8 @@ VA - Sidney Nights -The Deep House Beats Vol.1 (2016) [MP3|192-320 Kbps] <House,
 magnet:?xt=urn:btih:26E42FF0F7E0E838E8E6048EDBC2968DDDB29378
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -684,6 +759,8 @@ VA - Dance Bigroom House (2016) [MP3|256-320 Kbps] <Dance, Club, House>
 ```bash
 magnet:?xt=urn:btih:5DCC6B3573FBE841AAED0CC4EA314DAC4C9AB7EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -727,38 +804,7 @@ CD1
 magnet:?xt=urn:btih:2D5F4D2A90854F0C1C800EDB4A5A955F82EAA724
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573464   (378559) от 11.11.2012
-
-VA - Русский Шторм - 80 (2012) [MP3|112-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-Sen - Карие (Remix)
-02. B.K. - Sex (Dj Oleg Perets And Dj Alexey Galin Remix)
-03. Dj Vengerov - Вечная молодость
-04. Dj Yankovski feat. Пропаганда - Горностай
-05. Dj Цветкоff & Mayo - Пусть Будет Так (Amen) (Club Mix)
-06. Iowa - Ищу мужа
-07. Mmdance - Лучший День
-08. Vlad Bostan - Москва Слезам Не Верит
-09. Алина Гросу - Бросай
-10. Афродита - ВиноватаЖанр: PopПродолжительность: 02:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAE10E779996EA02A6F3A419E6D42117654D5D16
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

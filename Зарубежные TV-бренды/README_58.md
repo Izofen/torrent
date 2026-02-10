@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D4A38A74F63312C5320BE09959449F9D3DF6DC13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Da Vinci Learning: Музыка мозга / Music of the Brain (2009) SATRip
 ```bash
 magnet:?xt=urn:btih:ABD90C10CDE1D5C0454CE2F6D3C86E7B8163D1D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC: Horizon. Океаны Солнечной системы / Oceans of the Sol
 magnet:?xt=urn:btih:9BCD4D09601025ED2CD559FDD492DE5801E5881B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 ```bash
 magnet:?xt=urn:btih:4C9F5BB2DFD167DCC8088AB06AA57D2328522845
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 magnet:?xt=urn:btih:541E8BBD9680D9C9D0FCA3E402B0479E2F12EB78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 ```bash
 magnet:?xt=urn:btih:A652116590E83140C64FF3BD85DC74ABF5921EA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 magnet:?xt=urn:btih:7C58CF19A7C9D254D6455E4688554A3EC7E2A2EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 ```bash
 magnet:?xt=urn:btih:627E38C069B43899D6BA0DB1C1D1A72FAACBED2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 magnet:?xt=urn:btih:5F0221D0BF6CE84C99848C9384A8F7D5AB71149D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Animal Planet: Заплыв с чудовищами / Swimming with Monsters (20
 ```bash
 magnet:?xt=urn:btih:D0D9E08385AC03267F517D892E5F1A961A37F357
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Discovery: История изобретений. С чего всё начин�
 magnet:?xt=urn:btih:B2A0929A9387ADA5C83E5706BC853DE6B7FA0492
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Animal Planet: Необычные животные Ника Бейкера. Ры
 ```bash
 magnet:?xt=urn:btih:AC9170010C7ACD69DE3F0F6AC7129F767B5A5524
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Animal Planet: В дикие края с Эваном. Обезьяны Амаз
 magnet:?xt=urn:btih:37A7DEFEE6B6C6AFA8C2E35C6FDC2C2DDD85253B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Animal Planet: Остров гигантской акулы / Island Of The Mega
 ```bash
 magnet:?xt=urn:btih:28E27CB5B20E3E36CB55A61B4627AAF4CEBD14CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:28E27CB5B20E3E36CB55A61B4627AAF4CEBD14CD
 magnet:?xt=urn:btih:A0470B6CAF82060D04A5B3F921F92E725D185758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Animal Planet: Кубинская акула / Cuban Shark (2015) HDTV [H.264/10
 ```bash
 magnet:?xt=urn:btih:5C1F45F81FA9F0B47DD9853C3A9F2A1359576AD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ NGW: Убийцы с большого озера / The lakeshore Killers (2015) 
 magnet:?xt=urn:btih:D21EECFCE841EB2517F2C83B5D05F6825D682140
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ NGW. Тигр в бегах / Tiger on the Run (2015) HDTV [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:99458BDAF2CCE926940D903C5D581D4A37D4F660
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ NGW. Стая: Львы / The Pack: Lions (Leslie Schwerin) (2010) HDTV [H.264/1
 magnet:?xt=urn:btih:6E42C2ACB345C8C2C471D8B7EEAE30F895A1BFC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ NGW: Городские джунгли / Urban Jungle (2014) HDTV [H.264/1080i-L
 ```bash
 magnet:?xt=urn:btih:FCE4A1E685E4B001CF3E4042AAA226755185A8F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ NGW: Тайны дикой природы / Secrets Of The Wild (2013) HDTV [H.2
 magnet:?xt=urn:btih:BB8B823AA87B38794FBE039D6F53DCDAA59924FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ NG: Герои Средиземноморья / Heroes of the Mediterranean (201
 ```bash
 magnet:?xt=urn:btih:6B3C6E11306658FC0CED627F2DB766E29BF83EB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ History Channel: Битвы богов / Clash of the Gods (2009) HDTVRip (10 с
 magnet:?xt=urn:btih:916E7B7BEF3F012248CD4CF7136DA895AA1309F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ History Channel: Битвы богов / Clash of the Gods (2009) HDTVRip HDTVRi
 ```bash
 magnet:?xt=urn:btih:BDABA95896EA6CA7401D7CC73FE5ABC9C2C2CBDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ BBC: Империя / BBC: Empire (2012) HDTVRip (Серии 1-5 из 5)
 magnet:?xt=urn:btih:B240CF0DCEA0C270354051BC1097A82B048A81C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ magnet:?xt=urn:btih:B240CF0DCEA0C270354051BC1097A82B048A81C2
 ```bash
 magnet:?xt=urn:btih:F5A9141D6A1C199FE2268645AEE041323740E0B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

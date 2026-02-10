@@ -21,6 +21,8 @@ Duckademy | Освоение SQL-инъекций / Mastering SQL injection (202
 magnet:?xt=urn:btih:003A24C7B5EA1E0A523E81109742613268E67FE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ JavaScript - ведущий язык программирования, и воп
 ```bash
 magnet:?xt=urn:btih:A28BF976A4889966283DD5CAB132FB30A9385A59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:A28BF976A4889966283DD5CAB132FB30A9385A59
 magnet:?xt=urn:btih:56412545EEFC22D43116C943164A3A8A20D760CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:56412545EEFC22D43116C943164A3A8A20D760CC
 ```bash
 magnet:?xt=urn:btih:024AB682AE8EFDDDDFD92458D66DBA0BB84FE961
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Stepik, Михаил Непомнящий | TypeScript для современн
 magnet:?xt=urn:btih:5FDC2C5E84262CB742A41D6A8B38C985644E7751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ lynda.com | Visual Studio 2010 Essential Training [2010] [EN] PCRec
 ```bash
 magnet:?xt=urn:btih:9E5D8E57D4E277E20DE8E76053936125292E6AE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:9E5D8E57D4E277E20DE8E76053936125292E6AE2
 magnet:?xt=urn:btih:7A1D69257AD854A7954FEF311F58E6E877229D47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:7A1D69257AD854A7954FEF311F58E6E877229D47
 magnet:?xt=urn:btih:89AF4364475FFB35ACDF7F1804EAD16966D0372C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:89AF4364475FFB35ACDF7F1804EAD16966D0372C
 ```bash
 magnet:?xt=urn:btih:3B44ECEBC24C876698C62E12C5011E21C3F6D54B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:3B44ECEBC24C876698C62E12C5011E21C3F6D54B
 magnet:?xt=urn:btih:5850DA4DD95B5CE1951D31452DEDC0233A6F1CB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ Cardio Sculpt - это программа по тренировке всего �
 ```bash
 magnet:?xt=urn:btih:AA07C7B7E963D0A58006E526BBBA7E56DA3AF957
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:AA07C7B7E963D0A58006E526BBBA7E56DA3AF957
 magnet:?xt=urn:btih:6E6AE513E926D8CD150AF4F910020554F9F80830
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:6E6AE513E926D8CD150AF4F910020554F9F80830
 magnet:?xt=urn:btih:D28B4382E77F8B8FD3FFAC280F1B1D65D969360D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ TRX TV | TRX - Endurance (2011) DVDRip [H.264] [EN]
 ```bash
 magnet:?xt=urn:btih:E42B872C452BEDDA88F8D471D7871002D7290735
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:E42B872C452BEDDA88F8D471D7871002D7290735
 magnet:?xt=urn:btih:4EC8A7A981862A1397E87CC7A77B59F3BDA4D018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ Innopolis University, Иван Кривов | Основы Frontend-разраб
 magnet:?xt=urn:btih:6A29CE7C52F6829B0F6E37F40474044B2079A353
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ Udemy, Joakim Tornhill | Become a Material Guru in Blender 2.8 (2019) PCRec [EN,
 ```bash
 magnet:?xt=urn:btih:2DA820FC5B2195388866AD0D87894A0663BD105E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ Innopolis University, Олег Игонин | Введение в разрабо
 magnet:?xt=urn:btih:6B6A4E95953D88D02155B4BB9DB11B6211F8AC8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ Profileschool | Мастер-класс Репортаж на заказ. Ком
 ```bash
 magnet:?xt=urn:btih:513E4ABA05B5FCB1F8EFDDB42DA4F32557A44385
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ magnet:?xt=urn:btih:513E4ABA05B5FCB1F8EFDDB42DA4F32557A44385
 magnet:?xt=urn:btih:8F1DCA8B97C07CB3D62EBBEF019240FB06B859EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:8F1DCA8B97C07CB3D62EBBEF019240FB06B859EA
 ```bash
 magnet:?xt=urn:btih:4B2F8D62DB3C9AC76917E36CAF31A673E0C03A31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:4B2F8D62DB3C9AC76917E36CAF31A673E0C03A31
 magnet:?xt=urn:btih:60ECE0BFC3C388327CB965A560B94F973BD3E735
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ Profileschool | Мастер-класс МК Концертная фотогра
 ```bash
 magnet:?xt=urn:btih:D0EFE0890D4DD847004B4DA0235DF07780723001
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ magnet:?xt=urn:btih:D0EFE0890D4DD847004B4DA0235DF07780723001
 magnet:?xt=urn:btih:7E7782D87D4B7E6E99827DBC5B5599B476A66F43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:7E7782D87D4B7E6E99827DBC5B5599B476A66F43
 magnet:?xt=urn:btih:D582027747104A835543F63423546550F777C888
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ Gumroad | Митч Леуве 7 книг + уроки / Mitch Leeuwe 7 Books + T
 ```bash
 magnet:?xt=urn:btih:2A8DC39DDF06E8795CD38D56AE792DD16C068242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

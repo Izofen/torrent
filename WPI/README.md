@@ -20,6 +20,8 @@ MInstAll v.21.09.2025 By Andreyonohov (Unpacked) [Ru]
 magnet:?xt=urn:btih:C534D649CF0B8C25A0E5D8C708D69A42B05E83BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ MInstAll v.21.09.2025 By Andreyonohov (ISO) [Ru]
 magnet:?xt=urn:btih:B44486AA85094F153F5A840026F0D84CD77F2E1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ SysAdmin Software Portable v.0.6.5.0 by rezorustavi (Update 21.04.2024) [Ru] (а
 ```bash
 magnet:?xt=urn:btih:299174C5655C514D378BB8D42537B5BD881903D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ MInstAll Enter-Soft Free -это сборник бесплатных прогр�
 magnet:?xt=urn:btih:B1FC9070B3C4A633BF80617FC963E3AEF5DE192C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Software Collection 2020.12 - коллекция основных компьют
 magnet:?xt=urn:btih:8BA1483E0DC0DCABAD696D4B3B6D38B36AC6FB4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ WPI x86-x64 by OVGorskiy® 10.2023 mini [Ru]
 magnet:?xt=urn:btih:AEFDFE0790823888D9BFC2A8BB8FE387D4111E7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ MInstAll by StartSoft Lite 09-2020 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:2DE334633EDEF74DE73436368BA3704A7A59010E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Portable vs MInstAll v.19.11.15 by Stranger47 [Ru]
 magnet:?xt=urn:btih:874AEBF88E31A290C0C1F2BAC6C690EEA4AD9475
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Windows Post-Install Wizard by StartSoft Cowboy Style Lite 07-2020 [Ru]
 ```bash
 magnet:?xt=urn:btih:82E187E52AC425C79C45CAB477E2C06335E2465B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Windows Post-Install Wizard by StartSoft Cowboy Style Full 06-2020 [Ru/En]
 magnet:?xt=urn:btih:07C88731DDF8B5862B67A07BE218C47F6D317B30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Windows Post-Install Wizard (WPI) by StartSoft Cowboy Style Retro 04-2020 [Ru]
 ```bash
 magnet:?xt=urn:btih:E028B43A6A1789923460AF6CEDE908F8A4C437D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ MInstAll By StartSoft Cowboy Style 05-2020 [Ru]
 magnet:?xt=urn:btih:A37BA0AD760164CF12CAD5344B868DA96296E7D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ WPI BADDGET 16.18 [Ru]
 ```bash
 magnet:?xt=urn:btih:03E4B395E195BC83690DD086EAB0672E8CCC1E8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ Cборник предназначен для установки програм�
 magnet:?xt=urn:btih:D805B0F0C78A13BD1AA008824CA32146B4992B8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ YTD Video Downloader позволяет загрузить нужный вам �
 ```bash
 magnet:?xt=urn:btih:B0B92EB435622577A2F47E1F955EDF29F26E3C75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ Chip BS Post Installer v.2014 - сборник самых свежих верс�
 magnet:?xt=urn:btih:AEFC1F267F9DD2DC805A480A75646807EEE28582
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ WPI 2016.3 by Software2013 [Ru]
 ```bash
 magnet:?xt=urn:btih:909B40B911775FF8BA74F4D82B67B73F178D347A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ Mini WPI 20.02 by DDGroup & vladios13 [Ru]
 magnet:?xt=urn:btih:E7856E1D7C8C13FFBE552F607B4C3098C8AD4757
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ AlexSoft WPI USB 1.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:7F97024BE5176FBD106900A80748B06505127929
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ MInstAll v.19.01.2020 By Denysenko Stas [Ru]
 magnet:?xt=urn:btih:FD748A17B12015CD2D4AEBB4D80F33F091DC9297
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ MInstAll v.27.11.2025 By Andreyonohov (ISO) [Ru]
 magnet:?xt=urn:btih:41086A97C4416ECBD496B692AEF1176161B3427B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ MInstAll v.27.11.2025 By Andreyonohov (Unpacked) [Ru]
 ```bash
 magnet:?xt=urn:btih:97ACF069388210277E01E5BAAB54D995A2014443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

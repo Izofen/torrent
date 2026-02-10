@@ -1,3 +1,30 @@
+###  Публикация: 523523   (617010) от 16.07.2012
+
+Антон Шаганов | Ловля карповых рыб [2010] [FB2]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617010.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге известный специалист Антон Шаганов рассказывает обо всех способах ловли рыб семейства карповые, наиболее многочисленных и широко распространенных в водах России и ближнего зарубежья.
+ Наряду со известными удочками и донками описаны применяемые для ловли карповых рыб сетные и другие рыболовные орудия, не относящиеся к спортивным.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3278BB4B7DA17ADC372DD3D17F97A96233897535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295343   (617027) от 14.04.2019
 
 К.Е. Скурат | Лампада Глинская. Старчество в современном мире (2005) [PDF, DJVU]
@@ -20,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:19371893CAE96E3711ED42E660FFE91E1CB4AF2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@ magnet:?xt=urn:btih:19371893CAE96E3711ED42E660FFE91E1CB4AF2C
 magnet:?xt=urn:btih:9ABBA5967E75AABB04E56176D1BF2BA67A36A32E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:9ABBA5967E75AABB04E56176D1BF2BA67A36A32E
 ```bash
 magnet:?xt=urn:btih:693191FDD55C92CA2AAADE5E8B8B7DAC61D34B62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +127,8 @@ magnet:?xt=urn:btih:693191FDD55C92CA2AAADE5E8B8B7DAC61D34B62
 magnet:?xt=urn:btih:766F8F762CE024C27CE7A5F3C2D39E620776E766
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +152,8 @@ magnet:?xt=urn:btih:766F8F762CE024C27CE7A5F3C2D39E620776E766
 ```bash
 magnet:?xt=urn:btih:C190E450F442FEA5A2341EDDC727E9213E5DE6AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +179,8 @@ magnet:?xt=urn:btih:C190E450F442FEA5A2341EDDC727E9213E5DE6AF
 magnet:?xt=urn:btih:F7FAB4B52FE172D99AC16E782D3D3E817F26DA6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +204,8 @@ magnet:?xt=urn:btih:F7FAB4B52FE172D99AC16E782D3D3E817F26DA6C
 ```bash
 magnet:?xt=urn:btih:A9E700CB3BF03147003A575ACFD86F20565CBBD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +232,8 @@ magnet:?xt=urn:btih:A9E700CB3BF03147003A575ACFD86F20565CBBD3
 magnet:?xt=urn:btih:EEB8D72FF4D2805A9737811517B2F9681BF06ED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:EEB8D72FF4D2805A9737811517B2F9681BF06ED3
 ```bash
 magnet:?xt=urn:btih:069AD1666EEE82BECDF0AC6C0A09F1D879DBA030
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +285,8 @@ magnet:?xt=urn:btih:069AD1666EEE82BECDF0AC6C0A09F1D879DBA030
 magnet:?xt=urn:btih:F6D1FD3F3D2E502E45BF0519113A7EAA51882D1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +312,8 @@ magnet:?xt=urn:btih:F6D1FD3F3D2E502E45BF0519113A7EAA51882D1C
 magnet:?xt=urn:btih:B1991CE79F779CEC92949DFD40A708E5E651E290
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +337,8 @@ magnet:?xt=urn:btih:B1991CE79F779CEC92949DFD40A708E5E651E290
 ```bash
 magnet:?xt=urn:btih:C667A4CB8AFBE37DB4640EF5FF958164EBD57246
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +364,8 @@ magnet:?xt=urn:btih:C667A4CB8AFBE37DB4640EF5FF958164EBD57246
 magnet:?xt=urn:btih:670691DF770A2D91ECCCDFCC87306B5996CAE231
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +389,8 @@ magnet:?xt=urn:btih:670691DF770A2D91ECCCDFCC87306B5996CAE231
 ```bash
 magnet:?xt=urn:btih:32B590FB6B0D1191FA2A9F267232063E311E784B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +416,8 @@ magnet:?xt=urn:btih:32B590FB6B0D1191FA2A9F267232063E311E784B
 magnet:?xt=urn:btih:4519FFB680B39E9E13A336E74E7C803D63942737
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +441,8 @@ magnet:?xt=urn:btih:4519FFB680B39E9E13A336E74E7C803D63942737
 ```bash
 magnet:?xt=urn:btih:939EDB0968AC5AE36A20C28118AA7428FA33A436
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +468,8 @@ magnet:?xt=urn:btih:939EDB0968AC5AE36A20C28118AA7428FA33A436
 magnet:?xt=urn:btih:01B72B317E1803E34022FE61F8D5FFFC1C3E9744
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +493,8 @@ magnet:?xt=urn:btih:01B72B317E1803E34022FE61F8D5FFFC1C3E9744
 ```bash
 magnet:?xt=urn:btih:F8382B2C1FB41C82E39837200D5086B419E60C72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +520,8 @@ magnet:?xt=urn:btih:F8382B2C1FB41C82E39837200D5086B419E60C72
 magnet:?xt=urn:btih:2EF6CBBFCD2F4CA91330E05B82AFAFAAF6A77FDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +545,8 @@ magnet:?xt=urn:btih:2EF6CBBFCD2F4CA91330E05B82AFAFAAF6A77FDA
 ```bash
 magnet:?xt=urn:btih:4BE887D8A071705E392BC204D09F74C3999ECF2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +572,8 @@ magnet:?xt=urn:btih:4BE887D8A071705E392BC204D09F74C3999ECF2C
 magnet:?xt=urn:btih:0E84D4CF46E41A4D0957954C8CA9A33C4AE7F8EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +598,8 @@ magnet:?xt=urn:btih:0E84D4CF46E41A4D0957954C8CA9A33C4AE7F8EA
 magnet:?xt=urn:btih:4E494EF09B8FF36E01D3616C2467CEA6CA202F72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +623,8 @@ magnet:?xt=urn:btih:4E494EF09B8FF36E01D3616C2467CEA6CA202F72
 ```bash
 magnet:?xt=urn:btih:413756E5BBC1ABBC0EE473C05E1922082149E309
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +651,8 @@ magnet:?xt=urn:btih:413756E5BBC1ABBC0EE473C05E1922082149E309
 magnet:?xt=urn:btih:13407944FB0DAF31BACD326A9C7260ABCBF6841B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,29 +677,7 @@ magnet:?xt=urn:btih:13407944FB0DAF31BACD326A9C7260ABCBF6841B
 magnet:?xt=urn:btih:3147C89258C18D02122243E59015A5632EB9AFCB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970287   (618824) от 21.07.2016
-
-Книжная серия | Биографии великих. Неожиданный ракурс [19 книг.Обновляемая] (2011-2016) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618824.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Биографии великих. Неожиданный ракурс» - новая биографическая серия издательства «Эксмо». В серии рассказывается об очень известных нам всем людях, но с неизвестной стороны. Раскрываются новые грани характеров популярных личностей от Кино, Спорта, Литературы...Жанр: Биографии и МемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4701923FDCBF97B2B1227B1EAAF70DA8BA141035
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

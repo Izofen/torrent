@@ -19,6 +19,8 @@ Spark Browser - быстрый, симпатичный и удобный бра�
 magnet:?xt=urn:btih:2057A6C7CE01F3D06FB2085039A0E29197357D26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ EmEditor Professional - профессиональная версия мощно
 magnet:?xt=urn:btih:EEC8F6B9E6DA8E6C29F104D3E4E11B058711E0BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Autorun Organizer - простое в использовании приложе�
 ```bash
 magnet:?xt=urn:btih:547DB6E2A50971DE680CD598186C0AC9241CFDF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ EmEditor Professional - профессиональная версия мощно
 magnet:?xt=urn:btih:3BF821BC9CF2966853889661054FA02A623FBA34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ mp3DirectCut 2.35 [Multi/Ru]
 magnet:?xt=urn:btih:83C6CFB04C8DB91033B91226F36E84178DFA9ACE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:83C6CFB04C8DB91033B91226F36E84178DFA9ACE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Linux Mint Debian Edition 2 (MATE) by Lazarus [64-bit] (1xDVD) [Авторска
 magnet:?xt=urn:btih:4DE64AD7B3AE430705E8CEB9594D7C1250CE2AC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:4DE64AD7B3AE430705E8CEB9594D7C1250CE2AC4
 ```bash
 magnet:?xt=urn:btih:3C91FC5613C909A5D4A545C1819F0BA3E41C26D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Blackmagic Design Fusion Studio 17.4.3 [En]
 magnet:?xt=urn:btih:8C0A71EFEBF2752B6AE0372CBF7D7515BF527745
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:8C0A71EFEBF2752B6AE0372CBF7D7515BF527745
 ```bash
 magnet:?xt=urn:btih:F0EA45C60B071D81433C356C2B67A89C9FFA9831
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ FastStone Image Viewer - вьювер, редактор и конвертор г
 magnet:?xt=urn:btih:156FC947836C7F76F30FFB9DC4A82C78BF2EFB59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:E1F76B3B9420E88EA464D7FDD09D919B020478B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:E1F76B3B9420E88EA464D7FDD09D919B020478B8
 magnet:?xt=urn:btih:58A432E8722CE63D02FE43679949C9A1C40DAC87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Dropbox 3.12.6 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0EB98134F2382BA81A8BD351EC4AA9ECE03F31C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:0EB98134F2382BA81A8BD351EC4AA9ECE03F31C2
 magnet:?xt=urn:btih:FC71E52D11E17854013FF01BAAA8C63B20F01400
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:933BF3EBB0E28F1EC74EAA970AAEF58C6CADE82B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Mirillis Action! - программа позволяет в режиме реа�
 magnet:?xt=urn:btih:09FAA9F1E30C4CA89FEBC44D12A056871F338B6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:09FAA9F1E30C4CA89FEBC44D12A056871F338B6D
 ```bash
 magnet:?xt=urn:btih:19A1882864421443E3CB860953BA72F29A48762E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Movavi Video Suite - пакет программ на русском языке,
 magnet:?xt=urn:btih:A92C74C0E73D2862E7C4236F644B7DCC0FB7C1F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ PopDo 2021.2.5 [Multi]
 ```bash
 magnet:?xt=urn:btih:6DC354A7FA1591960EF26D1ECAF0978E3B483A44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Nox App Player - мощный эмулятор операционной сист
 magnet:?xt=urn:btih:20573A02533C851771EEB3AF15C9F07818B01B38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ SRWare Iron - безопасный, удобный и быстрый в рабо
 ```bash
 magnet:?xt=urn:btih:67CEB97EC66E3EA107EB44226356F053F40F5669
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ Red Giant Color Suite - набор основных инструментов д�
 magnet:?xt=urn:btih:B3C88CBC426FB3A25158A131A5B4F6AF11EF81EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Sharpen AI - это первое программное обеспечение �
 ```bash
 magnet:?xt=urn:btih:F31D0C2486B34F77AA6E63D731BCFB19B92A137D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:F31D0C2486B34F77AA6E63D731BCFB19B92A137D
 magnet:?xt=urn:btih:FAD3ACB511B21AA26DAF7F62A8F679A1B60CB199
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ DVDFab - программа для копирования DVD и Blu-Ray дис�
 ```bash
 magnet:?xt=urn:btih:CD4C8C293CCA4102FF87BCA69779CB8313669A65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

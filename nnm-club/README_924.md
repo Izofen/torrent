@@ -19,6 +19,8 @@ Control (2020) [Ru/Multi] (1.30/dlc) Repack Other s [Ultimate Edition]
 magnet:?xt=urn:btih:511A967066EB467A509FF6035E19EB93BB6471F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MKVToolnix - функциональный набор инструментов д
 ```bash
 magnet:?xt=urn:btih:646F4FE9EF2EA87890DC4C25C9421D15AE2525C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:646F4FE9EF2EA87890DC4C25C9421D15AE2525C9
 magnet:?xt=urn:btih:FBBD52C0B11121EF856A23651307BE75B58834D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Playbook содержит стратегии и шаблоны для распр
 ```bash
 magnet:?xt=urn:btih:5A38F4C09BF72DC1BC52F6EADAD1EA784652823F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:5A38F4C09BF72DC1BC52F6EADAD1EA784652823F
 magnet:?xt=urn:btih:DF40A681C1DCF738119C5217C88ABC3138F74043
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ MiniOS — это лёгкий и быстрый модульный дистри
 ```bash
 magnet:?xt=urn:btih:0C6FAAC8EFC72BD791F96607DC541E93D6530D67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Siberian Way – детективная триллер-новелла. Погр�
 magnet:?xt=urn:btih:D5B655CE95EBDA1639CC2DF389697BDE8DB93171
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NINJA GAIDEN 2 Black (2025) [Ru/Multi] (1.0.7.0) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:BC075E8205AB9E6AE3C8518E8D03391A04D454C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Side A:
 magnet:?xt=urn:btih:0C680CED789F6E17F98B1447DEF9CB3520032C1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Eldrador Creatures Shadowfall (2025) [Multi] (20250131) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:25BD6498B510F0A7BFA8CE67B463A3A6CAE5C132
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Windows Repair Toolbox — графическая оболочка пакета 
 magnet:?xt=urn:btih:4B712AC4E3D60BD88491BABF92179F2EDFC2B878
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Ethereal Abyss - это однопользовательский шутер от
 ```bash
 magnet:?xt=urn:btih:BCB155A9FF53FBD2A9B50769FB85F13967192B06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:BCB155A9FF53FBD2A9B50769FB85F13967192B06
 magnet:?xt=urn:btih:0C3EDC8DE8E7C540C0E7895AB52DFC334E223BCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:0C3EDC8DE8E7C540C0E7895AB52DFC334E223BCD
 ```bash
 magnet:?xt=urn:btih:CEC17F64CA4F6DB12AC79013B251114FD105B45E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:CEC17F64CA4F6DB12AC79013B251114FD105B45E
 magnet:?xt=urn:btih:7E378D72DD6D34018C8B6A13BCEC6EE2F274C4DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ HD Video Converter Factory Pro - удобный конвертер всех на
 ```bash
 magnet:?xt=urn:btih:D2A713CCBF85A83520A5B725636D6D0A5232BBB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:D2A713CCBF85A83520A5B725636D6D0A5232BBB8
 magnet:?xt=urn:btih:A38249808111A5FD159632AC456751F01FABBA08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ NetLimiter - программа, решающая проблему контро�
 ```bash
 magnet:?xt=urn:btih:2A3F2830C5068559090DB56E9C57B097EEB30AEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:2A3F2830C5068559090DB56E9C57B097EEB30AEE
 magnet:?xt=urn:btih:3E51D63703CBB944BA689B5648A73B3288D3302B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ NetLimiter - программа, решающая проблему контро�
 ```bash
 magnet:?xt=urn:btih:0D6B742C6C22EEBA638D19A7D98FFB9597CCB389
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ One Lonely Outpost (2023) [En] (0.9.11a022-c4afe) Repack FitGirl
 magnet:?xt=urn:btih:6381F85ABDB83AE237A90E0D8757A1CFBB5745B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:6381F85ABDB83AE237A90E0D8757A1CFBB5745B2
 ```bash
 magnet:?xt=urn:btih:CE8B7FB6BDD8EFF5606D9CA52B6D77A64515F6E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:CE8B7FB6BDD8EFF5606D9CA52B6D77A64515F6E7
 magnet:?xt=urn:btih:58D38B054897346794E5502827CE1A1D70A6175A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Genjitsu Shugi Yuusha no Oukoku Saikenki 2 | How a Realist Hero Rebuilt the King
 ```bash
 magnet:?xt=urn:btih:60F3B75622161EAD3484C834BF59BB057EA4ABE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:60F3B75622161EAD3484C834BF59BB057EA4ABE3
 magnet:?xt=urn:btih:98FE25E5D99D1660764B2A6B6A9BACAA9BA315AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Oasis Mission: Colony Sim - это стратегический симулято
 ```bash
 magnet:?xt=urn:btih:41DF2CBC8B74CFE976A8D829B908902CFDEC34A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

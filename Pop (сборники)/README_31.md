@@ -22,6 +22,8 @@ VA - Pop Sampler Chart: November Hits Collection (2017) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:3BFF3785237BA5E3D30018966F9C4A38245A6ABF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Бомба года от Хит FM (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:7DD8D53400E8B15C1E33B34D658D36387F80CA72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - German Top 100 Single Charts 18.11. (2016) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:241053F9EACEAB860B5CBD72C356B334DEC91EBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Русская Дискотека. Волшебный Фонарь (2015) [
 ```bash
 magnet:?xt=urn:btih:9A230E9891EF596DEA3D4CBEF990EF60FC6C0723
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 009 (2017) [M
 magnet:?xt=urn:btih:C3124DB487E6584E2329B33079A94D14227C9A73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 005 (2017) [M
 ```bash
 magnet:?xt=urn:btih:0742E994260C60A2F5F7687DFB1A4257153203B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 006 (2017) [M
 magnet:?xt=urn:btih:AE0D3CBF53AD0F3C9EF01BA13F15B8BE9A1CEEA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 007 (2017) [M
 ```bash
 magnet:?xt=urn:btih:5CE4E9B6C86E3AE50F4A2090F3AF33D98EF995BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 008 (2017) [M
 magnet:?xt=urn:btih:B31C85F33FC3C2BA13656CDB136B92A6851BDF37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 004 (2017) [M
 ```bash
 magnet:?xt=urn:btih:CFA8FFBE8177908EFABCFB139DF5208855012D0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Feuerwerk der Schlagerhits (2015) [MP3|320 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:DAECD8EAED6489E036DEA192E5A4ED45D5214E2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Осторожно!!! Лавина хитов (2016) [MP3|256~320 Kbps] <Po
 ```bash
 magnet:?xt=urn:btih:1FA412DD8F14F1235DF78E3A3DF034D63A132B8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Громкие новинки месяца Vol.15 (2018) [MP3|320 Kbps] <Po
 magnet:?xt=urn:btih:C4680BB130E4589EA56FA88FFB37B3D92EFECA88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Мега хитовая осень на Europa Plus - 9 (2016) [MP3|256 Kbp
 ```bash
 magnet:?xt=urn:btih:CB9B4000CDFE26387B863F404BEB7026BCE339E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Горячие Осенние Новинки 50х50 (2016) [MP3|256 Kbps] <
 magnet:?xt=urn:btih:01C57D7035B6DB3648724A220E5F4FE252049F4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Горячие осенние новинки. Русская версия (
 ```bash
 magnet:?xt=urn:btih:0512F1E0B5901D35B80732C6B31C13D875835F24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Осенняя позитивная сотка. Выпуск 9 (2016) [MP3|
 magnet:?xt=urn:btih:FE80720ACBB3B2873E1A7D439BA11CC1E3C22764
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 001 (2017) [M
 ```bash
 magnet:?xt=urn:btih:6484F3F4B3925F2471D9E531D3874A2B074E3096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - ЕвроХит Топ 40 Europa Plus 03.11.2017 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:65926C7E165B266BF42AEA60E93B6193EF827CE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 002 (2017) [M
 ```bash
 magnet:?xt=urn:btih:EC3249E7B68E7290115B8EF2A64D9A9A4C3E87DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 003 (2017) [M
 magnet:?xt=urn:btih:680803BBCC1C78F2C4AB3C149F88249E64039C57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ VA - German Top 100 Single Charts 03.11.2017 (2017) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:B5C1A700027A5C0A2D0E7E3DD5331D4F22C64F23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ VA - German Top 100 Single Charts 29.10.2018 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:BACEFF5231A8053D71D29A6B55D92D5EA91970CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ magnet:?xt=urn:btih:BACEFF5231A8053D71D29A6B55D92D5EA91970CF
 ```bash
 magnet:?xt=urn:btih:CF80B22D87B8C25B27C8776452191A5B6CB7DA1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ VA - Только ты. Русский попсовый сборник (2015) [M
 magnet:?xt=urn:btih:FF6A0778BDBA052987CC6E17C6832BDF3AC165E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ VA - Eurobeat Classic (Vol.2) (2020) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:AF46F3305BE66AA29EE201193A5FBD4A4B7CD4A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

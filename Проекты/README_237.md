@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:74D5810011D729B721CC037B036127E994DFC398
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:74D5810011D729B721CC037B036127E994DFC398
 ```bash
 magnet:?xt=urn:btih:F0F83D3E550B7A5DA062B0F6D264DB41003B0E3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:F0F83D3E550B7A5DA062B0F6D264DB41003B0E3E
 magnet:?xt=urn:btih:89E4B6C122D55A2D8203AFB3E2C88C21BF278B85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Petals Logo Reveal - очень легко редактируемый проек
 ```bash
 magnet:?xt=urn:btih:820E4409CFBB54664CCCB6A24A61A871AB0BCE3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Kids Elements Package - настраиваемый и изменяемый па�
 magnet:?xt=urn:btih:651256EFE0B7CE1277F050B979A7654396FA0385
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Brushed Logo Reveal - проект, который подходит для пр�
 ```bash
 magnet:?xt=urn:btih:E6D97602E9BC1D31F976FAE4AAA2729355617E40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Media Reactor - это мощный шаблон After Effects со стильн
 magnet:?xt=urn:btih:D48ADAC62D740176F69082D3AA860E34886E696B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:D48ADAC62D740176F69082D3AA860E34886E696B
 ```bash
 magnet:?xt=urn:btih:11416C1D80B1561220D364E923A94E9852AB0C63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Text Message Kit - Набор текстовых сообщений, где ес
 magnet:?xt=urn:btih:BDA72C6F8190C4D3739BCAE18502A3FEAB6036B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Fast Racing Trailer - Это быстрая гонка дрейфующих ав
 ```bash
 magnet:?xt=urn:btih:654146E2A84316E2FF307C17C9FCF1DBADFABC2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Clean Logo V03 Water Ripples - проект для показа вашего л�
 magnet:?xt=urn:btih:8690CA22A5CCEB570D74E20DED8FB7B0A326BF56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Opener Media - Photo & Video Slideshow - неплохой красивый ва�
 ```bash
 magnet:?xt=urn:btih:B38331D679651A6548AFF9940407C109E4734449
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:B38331D679651A6548AFF9940407C109E4734449
 magnet:?xt=urn:btih:E69C2321004A4981949B947ED618A6CFFE9AD3EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Fashion Promo - привлекательная модная анимация д�
 ```bash
 magnet:?xt=urn:btih:D45D9F65B9D9AB955291446070C728AD8F2E93AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:D45D9F65B9D9AB955291446070C728AD8F2E93AD
 magnet:?xt=urn:btih:AA05BCA44E4A37D4E424A3E48F8F77569BC60DA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Comics Hero - это готовый дизайн для телевизионно
 ```bash
 magnet:?xt=urn:btih:12D352BA125D1C55114553FEB4B8A85CD56CF3D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:12D352BA125D1C55114553FEB4B8A85CD56CF3D3
 magnet:?xt=urn:btih:09E4629DAE34633450EDE057965F58CBFB4D8CC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Earth Cosmo Logo - шаблон After Effects, анимации своего л�
 magnet:?xt=urn:btih:AE7E34EB7E8098CA33F0364461507E525A3BEA4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Fast Colorful Opener -  быстрая красочная открывалка �
 ```bash
 magnet:?xt=urn:btih:103F83225678189A862C127A8F74FA8353CFB915
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:103F83225678189A862C127A8F74FA8353CFB915
 magnet:?xt=urn:btih:4F08EC6A5A4C7B93FE4D27B2A4236B7374207123
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:4F08EC6A5A4C7B93FE4D27B2A4236B7374207123
 magnet:?xt=urn:btih:7220DB719D7729AD1999A263AB85F431D4422429
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:7220DB719D7729AD1999A263AB85F431D4422429
 ```bash
 magnet:?xt=urn:btih:DCFB1CCF3896C4060E99DE31199176588269C793
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Minimalism 2 - обновленный проект с красивыми, про
 magnet:?xt=urn:btih:9A8A994AA41789338795DBA455B28E32F19B6ECB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Logo Light Reveal 2 - стильный, световой показ логоти
 ```bash
 magnet:?xt=urn:btih:23793D0CE56CA39126F41C3E30773C32C23B861F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Event Promo - мотивационный промо - для спортивно�
 magnet:?xt=urn:btih:9A95E6FB76CD3AF60A3AD1F30B97B532DA89EA7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:9A95E6FB76CD3AF60A3AD1F30B97B532DA89EA7D
 ```bash
 magnet:?xt=urn:btih:E11753D2E0818DC8929B83F6C41E03E7A15D10D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

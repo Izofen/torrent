@@ -19,6 +19,8 @@ BBC: Скрытые убийцы в домах... / Hidden Killers (2013-2014) W
 magnet:?xt=urn:btih:CF7AD0A08CBB10B71AC5E1680DC31AB9E46A300E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC. Horizon: Охота за бозоном Хиггса-Спец выпуск 
 ```bash
 magnet:?xt=urn:btih:3947533E0C60991E5ADD45C96440FF14A3C6F755
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC. Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/720p-L
 magnet:?xt=urn:btih:69A92C97410843B0AE4C409EC1D1487AEE411660
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/720p] 
 ```bash
 magnet:?xt=urn:btih:D116691246F63189B9942EA56DF02E72EDD9C8E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BBC. Панорама. Нелегальная торговля органами 
 magnet:?xt=urn:btih:B9F271049D5E820A2049687AE8412532802E74E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ BBC: Шок и Трепет. История электричества. Искр
 ```bash
 magnet:?xt=urn:btih:CA2E052DA5E5B8F3E5270C12F0D3DBBE46E69FE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ BBC. Horizon. Охота за бозоном Хиггса / BBC. Horizon. The Hu
 magnet:?xt=urn:btih:5DECDD1C77C92DBB9CF4F0C79B99E544DD17B23D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ BBC. Нетронутые уголки дикой природы / Nature's Micr
 ```bash
 magnet:?xt=urn:btih:88E11B54804C2A4CC84B46F4DD360310D0AF3AD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRemux [H.264/1080
 magnet:?xt=urn:btih:349FE6898EFEDF0BAD1C09F1D0A5356BD82C82B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ BBC. Искусство Китая / Art of China (2014) SATRip (серии 1-3 
 ```bash
 magnet:?xt=urn:btih:AB9030B28FF8F66BD5A548CBF486FDD4F233828E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ BBC: Невидимые миры / Richard Hammond's Invisible Worlds (2010) BDR
 magnet:?xt=urn:btih:7A2A1B5913403C53516FCBA88AC86F0D6A29A549
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ BBC. Гении из царства животных / Super Smart Animals (2012
 ```bash
 magnet:?xt=urn:btih:EBFEA989CBD2E363F829B713ABE1EDF3E39784DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ BBC: Европа: История континента / BBC: Wild Europe (2005)
 magnet:?xt=urn:btih:B5E47D6986BEFE14345A4409ACDF1752FBE5BB7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ BBC: Тайная жизнь льда / The Secret Life of Ice (2011) SATRip
 magnet:?xt=urn:btih:E0E9679E96323ABFD2960971E73B07F8C6301EA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +382,8 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ BBC: Сетевой мир / Niall Ferguson's Networld (2020) WEBRip [H.264/1080
 magnet:?xt=urn:btih:149B21ED7F41A6ED0B6CC38CA5AD1318FBF016FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ BBC. Таинственный мир гормонов / The Fantastical World of
 ```bash
 magnet:?xt=urn:btih:1ECC5494A16676CB7E6F0130196BB63F8E2AD26C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ BBC: Как это работает. Таинственный Мир Матер�
 magnet:?xt=urn:btih:7A169BE5C792C5DDDE76B1BFC5EF19B0772EAEE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ BBC Radio 1's Big Weekend Exeter 2016 / BBC Radio 1's Big Weekend Exeter 2016 (2
 magnet:?xt=urn:btih:2D351420B4D886FBBB5A4919B56F308CB7C3033B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ BBC Radio 1's Big Weekend Hull 2017 / BBC Radio 1's Big Weekend Hull 2017 (2017)
 ```bash
 magnet:?xt=urn:btih:BA562569CF76B1E7741675791699C55E52741BB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ BBC: 80 Чудес света (все 10 серий) / Around the World in 80 Tr
 magnet:?xt=urn:btih:5CA308C0AC4DAA2DED5F1DBF19E3986DF008BD54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ BBC: Эти загадочные животные / Weird Nature (2002) HDTVRip 
 ```bash
 magnet:?xt=urn:btih:DBFA7E94178FE719A2C303E997F4C81D99689CDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ BBC. Тропические островки Земли / Earth's Tropical Islan
 magnet:?xt=urn:btih:7C67864D7E0B9EB598C792B56675DC3B82EC3718
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ BBC: Завтра нашего мира / Tomorrow's World: A Horizon Special (2
 ```bash
 magnet:?xt=urn:btih:A74193EAE96B21CFF1CEA6D6C885FAF8DB279F67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ BBC: Восхождение нацистов / Rise of the Nazis (2019) WEBRip [
 magnet:?xt=urn:btih:883B02F047AE64D55B12AD2F0BBE25E3041699E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ BBC. Купи моего ребенка / Louis Theroux's Altered States: Take M
 ```bash
 magnet:?xt=urn:btih:8860C5FD1CD8E36778BA8CF0E68EFD0C949ACE9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

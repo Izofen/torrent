@@ -22,6 +22,8 @@ VA - Record Super Chart 18.10.2025 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:34C9FA4C41993327F6E8E2303CDDDBB96C2CF210
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Posthumous Blasphemer - Fracture The Worship (2008) [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:EE0ABBB5B513F24CF5282D8A68A12BF789524D17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - Digital Madness: Retrowave Music (2019) [MP3|320 Kbps] <Synthwave, Retrowav
 magnet:?xt=urn:btih:5B7A3F5F6BE74D8135B7ACF35075C206716ABCAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Autodesk Maya является ключевым инструментом ани�
 ```bash
 magnet:?xt=urn:btih:493B13BBCF04FBE15E85CF1EAACCF417726BBA10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Jim Snidero - Far Far Away (2023) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop
 magnet:?xt=urn:btih:0B85FC8E5E55A1012CF394C29B7D9C062381C5EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:0B85FC8E5E55A1012CF394C29B7D9C062381C5EA
 ```bash
 magnet:?xt=urn:btih:1C8B2F59DDB3B54A30E1B68878ED786708D5B69B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ Cerrone - Cerrone by Cerrone (2022) [FLAC|Lossless|image + .cue] <Disco, Dance, 
 magnet:?xt=urn:btih:97ABE0BD26FBBB68C5FEC381A134E453948AE8A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ Train Sim World 6 предлагает освоить три уникальны�
 ```bash
 magnet:?xt=urn:btih:29E118B393212CE34465293B8100370DE5960C60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ Spirit Legends 3: Time for Change (2019) [En] (1.0) Unofficial [Collector's Edit
 magnet:?xt=urn:btih:8FB7C725A7F8D8CF7374DA80AAC6C39A1181118E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ Discovery. Что убило Марадону? / What Killed Maradona? (2021) WE
 ```bash
 magnet:?xt=urn:btih:86C6137A3628423403E05299838447040670C6D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ Udemy, Peter Sidoriak | Advanced VFX Compositing with Nuke: Green Screen Keying 
 magnet:?xt=urn:btih:505853F58CF078278D301DFF9E2A39CF2C5B677F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:505853F58CF078278D301DFF9E2A39CF2C5B677F
 ```bash
 magnet:?xt=urn:btih:D1D438B3E296887B2198EFEE56D82E2AC5E2E3F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ The Whiskey Foundation - Leisure (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, So
 magnet:?xt=urn:btih:2253BE9998308910BA068C228130132CA5625B62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ Opera GX - это специальная версия браузера Opera, с
 ```bash
 magnet:?xt=urn:btih:D63BCA5E74DF6BFB7EEB54A98FD95F825F47C959
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:D63BCA5E74DF6BFB7EEB54A98FD95F825F47C959
 magnet:?xt=urn:btih:D340AE5A56B885727399A9B6601C3E7BA3A2ED74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:D340AE5A56B885727399A9B6601C3E7BA3A2ED74
 ```bash
 magnet:?xt=urn:btih:C07720028151DCB00A4A517EF5EB919D4340E7C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:C07720028151DCB00A4A517EF5EB919D4340E7C6
 magnet:?xt=urn:btih:B434FBE9577CB8878A0ACAACED4B5366C84B9BB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:B434FBE9577CB8878A0ACAACED4B5366C84B9BB7
 ```bash
 magnet:?xt=urn:btih:BE77B19885EC849B175588018AF51616CB8D4DD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:BE77B19885EC849B175588018AF51616CB8D4DD2
 magnet:?xt=urn:btih:53B46624FEE0AC0BAB4700F09B87081FE4E61AA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:53B46624FEE0AC0BAB4700F09B87081FE4E61AA6
 ```bash
 magnet:?xt=urn:btih:043CEBEB96329FD2A67E6EE7F1C42D85325A1E6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:043CEBEB96329FD2A67E6EE7F1C42D85325A1E6A
 magnet:?xt=urn:btih:F20B183C07A87F33B11651F253DC202C115D445A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:F20B183C07A87F33B11651F253DC202C115D445A
 ```bash
 magnet:?xt=urn:btih:B73852F7A072628593C96A0F32A8B150049B5578
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:B73852F7A072628593C96A0F32A8B150049B5578
 magnet:?xt=urn:btih:3AD3EE6458D77F00DB7CE8D8A616A0B0F258BC32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:3AD3EE6458D77F00DB7CE8D8A616A0B0F258BC32
 magnet:?xt=urn:btih:D8EB181102B4365BA929A22F420FC029C7984AED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:D8EB181102B4365BA929A22F420FC029C7984AED
 ```bash
 magnet:?xt=urn:btih:82D14BAE5241BC2B833CF1B515D7A7E025ABA86A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:82D14BAE5241BC2B833CF1B515D7A7E025ABA86A
 ```bash
 magnet:?xt=urn:btih:50EC426DF9120C9F7DAF5D423C3BAB1AE224CFFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

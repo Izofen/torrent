@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:CB372700D381D8FE33ABCDD9822D5115FFEA0571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ GoodSync - программа из серии высоконадежного, у
 ```bash
 magnet:?xt=urn:btih:CF0128F491EC711BA7147219B58B92C9A6A86F28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Desktop Calendar – бесплатный календарь рабочего с
 magnet:?xt=urn:btih:31A87A54BFE55ED837CC345C7DA29E1A8193BFD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ MobaXterm - это комплекс утилит, в котором есть в�
 ```bash
 magnet:?xt=urn:btih:0FFF8C8BEAD0FA2BDD3BC9E890B564FB52A21913
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Text Edit Plus — это простой, но мощный текстовый �
 magnet:?xt=urn:btih:9BC3597214656E1D915B1471FEE3B81AE443BD73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ PDFCreator –  бесплатная программа для конверти�
 ```bash
 magnet:?xt=urn:btih:29B887773C08E2C672B932C1ACD0F09138229D38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ WinMerge является весьма полезной для определе�
 magnet:?xt=urn:btih:218DAD727C173F77DC3A1FA06835E3ADD2EC01E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Vov Sticky Notes 9.6 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:80CA8A48BCAC7720C3BAA7692C39E7F7470AE35D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Alfa eBooks Manager - одна из самых популярных програ
 magnet:?xt=urn:btih:42464B7EE44E9462C37A4697DFE02BC859E11D0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Enigma Virtual Box - бесплатная система виртуализац�
 ```bash
 magnet:?xt=urn:btih:23317768E2E394969A1A0B490F9EE46538C3086F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ ApowerREC - это программа которая может записыва
 magnet:?xt=urn:btih:72B7515BA9E15A41A0D8BECA2F540ADFAEF2B779
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ eM Client - мощный клиент электронной почты. Пом�
 ```bash
 magnet:?xt=urn:btih:A14F84E795EBBE3672C2241510C2A97D720189F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ MiniTool Power Data Recovery - это инструмент предназнач�
 magnet:?xt=urn:btih:F35EA54D1C81A9CF2803925FF44A5A9D5E03200F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ FileZilla - популярный кроссплатформенный FTP кли
 ```bash
 magnet:?xt=urn:btih:612FB375D0C87925FAF55EC7F2F7C5C0F4052D9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ FreeCommander XE - это довольно-таки удобный в работ
 magnet:?xt=urn:btih:00E1F6FD2B9811F281301F34E33202064954F97F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Total Doc Converter — профессиональное решение для �
 ```bash
 magnet:?xt=urn:btih:760A1BB66A766CF27DA94864F2B68356665184B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ CoolUtils Total Excel Converter 7.1.0.91 RePack (& Portable) by elchupacabra [Mu
 magnet:?xt=urn:btih:1A62F0BA9633E2C1FEBFD987BFA9491B7C3298DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:D246A12EDAC9BC7D7641FEB290B0397CDF9ED5BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Multi Commander - мощный многооконный менеджер фай�
 magnet:?xt=urn:btih:23A463637CDF4AD579F5401043C335385A90BEEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Files Inspector Pro 4.30 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C5F69CE0551DDCBFCBEB5F347AA7389CDC88D972
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ OpenNumismat является удобным и надежным приложе�
 magnet:?xt=urn:btih:0166626D6C73F9BFCC8A27CCC258BFF85CEB342C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ PdfSAM - бесплатная и простая в использовании у
 magnet:?xt=urn:btih:A0EB4C6BECDD0CA39E822834369C88BFD89BAF0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ FileZilla Server представляет собой очень простой, 
 ```bash
 magnet:?xt=urn:btih:5AC0B6E291F22B3CD2AE30B0B1A53C911FAAC498
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Macrium Reflect – профессиональный инструмент рез
 magnet:?xt=urn:btih:3FDDADDA285BD72B6D6C23EAA51B4340A09475FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ PeaZip — бесплатный архиватор и графическая о�
 ```bash
 magnet:?xt=urn:btih:878DB1409D2E89004A36F9F3A81EA8F8D5637623
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ Telestream Wirecast является единственным в индустр�
 ```bash
 magnet:?xt=urn:btih:13576DC2F4960C2D1F83F3338EB8133DAD78B4CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

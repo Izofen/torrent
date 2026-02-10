@@ -22,6 +22,8 @@ Oscar Javelot - Inner Presence (2018) [MP3|320 Kbps] <Instrumental, New Age>
 magnet:?xt=urn:btih:A64233814E65B5814DDB35E8D9A79E2CC237BEAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:A64233814E65B5814DDB35E8D9A79E2CC237BEAC
 ```bash
 magnet:?xt=urn:btih:F86DA092D0753515235B091C21F6226B9F838119
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ David Wright & Carys - Prophecy (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, N
 magnet:?xt=urn:btih:CB1F9E576903B49C49E1D8D2B58348413ADF59D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Dark Country 1-5 (2012-2017) [FLAC|Lossless|WEB-DL|tracks] <Rock, Folk, Wor
 ```bash
 magnet:?xt=urn:btih:32F99BA3F465FD3835A9AD8C7627ADA42FB858DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:32F99BA3F465FD3835A9AD8C7627ADA42FB858DC
 magnet:?xt=urn:btih:A89D710CAA4C6CDB01DB3E31C69878D6C0011FC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Claudio Simonetti - Стальные руки / Hands of Steel - Vendetta dal Fu
 ```bash
 magnet:?xt=urn:btih:C094E9C8BFFB71343956594022A59C54913FA45F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Sons of Anarchy - The Complete Fantasy Playlist (2016) [FLAC|Lossless|WEB-D
 magnet:?xt=urn:btih:D710452ED138D03B69F5B1360D9BCDB2BEDEFFD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Willie Nelson - First Rose of Spring (2020) [MP3|320 Kbps] <Country>
 ```bash
 magnet:?xt=urn:btih:2CFE4B2E220989655B6CB53D61D2350A0985CD31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Blonker - Fantasia (1980) Remastered, 1994 [FLAC|Lossless|image + .cue] <New Age
 magnet:?xt=urn:btih:DEE5916A2D96AEDF1BC7CB426B352FBF0088ECA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ The Essence - Enigma Lounge (2003) [FLAC|Lossless|tracks + .cue] <Enigmatic, New
 ```bash
 magnet:?xt=urn:btih:C1C57950BAC6E7E800C0950B1FA8B126BA41D81B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Ulver - Svidd Neger (Original Motion Picture Soundtrack) (2003) [FLAC|Lossless|t
 magnet:?xt=urn:btih:133A35C1E4AE0C925F4557605C541C2B9FB80E62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Jim Brickman - Piano Tributes: Songs Of Carole King (2020) [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:F7228FA7FEF5299D855635BB0B3F51D80EC78D35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Vin Downes - When The Sea Lets Go (2017) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:4DA9651B332D174ABC779767E1BF2C87A6BBD270
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ The Gordon Brothers - Yoga Planet (2008) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:1D676ABAA85425254983F4772E49C49DDF53EDAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Евгенич (2021) [MP3|320 Kbps] <OST>
 magnet:?xt=urn:btih:2282AEC7337523035E54B7AB7AA3998F65CE2D22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ magnet:?xt=urn:btih:2282AEC7337523035E54B7AB7AA3998F65CE2D22
 ```bash
 magnet:?xt=urn:btih:CDA8C0707154760955874F6D757761C070094A38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ magnet:?xt=urn:btih:CDA8C0707154760955874F6D757761C070094A38
 magnet:?xt=urn:btih:3CAE6DE14976B955080AF11C215E43F6A24681F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Richard Clayderman - Ballade pour Adeline (2012) [FLAC|Lossless|image + .cue] <I
 ```bash
 magnet:?xt=urn:btih:497E4C7D79F086A73D2D02F996A111E265E9A755
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ John K. - Romantic Guitar II (2001) [FLAC|Lossless|image + .cue] <Instrumental, 
 magnet:?xt=urn:btih:1CB0CA91D8C7B39BDAD0BCE0CEFA4CB78E631B91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ c h a p e l s - Repertoire (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, P
 ```bash
 magnet:?xt=urn:btih:46FDA3C8D81B86108D0EF9FFA66DFCA9E9668C38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ magnet:?xt=urn:btih:46FDA3C8D81B86108D0EF9FFA66DFCA9E9668C38
 magnet:?xt=urn:btih:53C64A9FAB190273D17608D30F5F9B0B2AD60E3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ VA - Intouchables (Неприкасаемые / 1+1 /) - OST (2011) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:5D4747FECD47FD01720570B241B72A78F9B69A37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ Michel Legrand & His Orchestra - Strings On Fire (1962) LP /Columbia/ [MP3|320 �
 magnet:?xt=urn:btih:429C014CA4A5BD6744033701317E654EFD169294
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ Blackmore's Night - The Village Lanterne (2006) Box Set, Limited Edition [FLAC|L
 ```bash
 magnet:?xt=urn:btih:3835D70E6AC28C9B5B16A11196AB50EDA39CEA89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ magnet:?xt=urn:btih:3835D70E6AC28C9B5B16A11196AB50EDA39CEA89
 magnet:?xt=urn:btih:FFBFB4F002BA492E97A7ED94D7EBFC501B776156
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ Vangelis - Vangelis Nocturne-the Piano Album (2019) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:966263B0B4AA15E184745362DC147EA3F1414169
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

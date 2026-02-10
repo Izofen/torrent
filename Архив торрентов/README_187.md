@@ -19,6 +19,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:723A819EC1B16656901093A6A5FBFA3439EAB2C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Windows Manager - это универсальная утилита для Micros
 magnet:?xt=urn:btih:C4D1151CEC9EC0C8A6C464228CA0B9F584A3FEF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 magnet:?xt=urn:btih:09CB39A214F440B1FBDE431C4569B486D3FCFE2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Office Installer - программа предназначена для online �
 ```bash
 magnet:?xt=urn:btih:8576676318FEF2F7AF0B34E6CCA5A8F77E2029A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:A3CF87570A6512DCA15009A0FD6EA09AAF7CCFD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ R-Studio Network 9.4 Build 191359 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A07DFEFFB756A39ACE7DC9AB44571B7D2B13946A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Office 2013-2024 C2R Install + Lite 7.7.7.7 ++ r11 Portable by Ratiborus [Multi/
 magnet:?xt=urn:btih:9124CCA24C106FA78705FCDE1E59F096A69C1EB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:9124CCA24C106FA78705FCDE1E59F096A69C1EB5
 ```bash
 magnet:?xt=urn:btih:0B314D39F3525AEBE39A5A7A41475212B31E34FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Mirillis Action! 4.41.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:AF909EEABE290B3D7455D07BDAD41F32EF421ABB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ TikTok - социальное приложение для тех кто пред
 magnet:?xt=urn:btih:DDDCDC5E494FEAFCD2FEADF4985F4BDE8EC017EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Kdenlive - бесплатный нелинейный видеоредактор,
 ```bash
 magnet:?xt=urn:btih:5C0D1E779A9FAB466B977C872198465A914A94FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ ToneBoosters Plugin Bundle 1.8.5 VST / VSTi, VST3 / VSTi 3, AAX (x64) [En]
 magnet:?xt=urn:btih:A54AA84B4F79708D6E200C8F4D6C15B274789946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ OCCT 13.1.7 Portable [En]
 magnet:?xt=urn:btih:E274ABEBDD6FA52BF3F53C5577F5128FC0976218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ RedNotebook - это простое GTK+ / Gnome приложение напис
 ```bash
 magnet:?xt=urn:btih:8B2D92371F3AC0386E39EC5617CCA12A51641E07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ simplewall 3.8.4 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:8C7C85E31BF01D48FFAADEAFE502B35AE93C5014
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Hard Disk Sentinel — отличная программа для монитор
 ```bash
 magnet:?xt=urn:btih:B41FF6BAD0B1FEA66DD5CE1860CF84F581445F33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:B41FF6BAD0B1FEA66DD5CE1860CF84F581445F33
 magnet:?xt=urn:btih:1B617844BC521419EB5F810041CEED67A4AE2A4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ ZBrush — программа для 3D моделирования, создан
 ```bash
 magnet:?xt=urn:btih:29AD0E11544755AD920D9EE73B763F4BCC2D5B07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Shotcut - мощное кроссплатформенное приложение
 magnet:?xt=urn:btih:5C173162A7280D7D19864096277F6917F982F283
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Directory List & Print – менеджер каталогов, предназн
 ```bash
 magnet:?xt=urn:btih:3E0BFFA0D1703DA66864ED1EB911C1D2052F7859
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Araxis Merge – это обязательное приложение для р�
 ```bash
 magnet:?xt=urn:btih:F3286050068160B405FF95F2F6376224DEB12A07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ HomeBank можно настраивать полностью под себя, �
 magnet:?xt=urn:btih:34FBABBA25EF159942C29D212D29C2A3035A36DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Simple Sticky Notes — простая в понимании программа 
 ```bash
 magnet:?xt=urn:btih:84426DC6AAD087815C95331A4109E9443782CC60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ Disk Drill - простая и эффективная программа для 
 magnet:?xt=urn:btih:8F1867AB69C195BD0D4354A080EFD19EE3071032
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ FxSound (ранее DFX Audio Enhancer) - отличное приложение,
 magnet:?xt=urn:btih:73C1C40437E6AE093DAA9799A836E104EF5E051A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Microsoft Office 2021 — новый офисный пакет от корпор
 ```bash
 magnet:?xt=urn:btih:9E995B5879F2E2C2B8B5763ECC8C90B4AD5DA99A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:42309300A2CCCE635229A6FB79D4F609AC845A4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:42309300A2CCCE635229A6FB79D4F609AC845A4F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Chinese Frontiers (2025) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:9C553299B60F6F425BAC8BB5891079DEA79B1A5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Abelssoft SSD Fresh - если вы счастливый обладатель SS
 magnet:?xt=urn:btih:82E8A281CD4E3721A9B9A3F5F7CB44EAA3AD66CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:82E8A281CD4E3721A9B9A3F5F7CB44EAA3AD66CB
 ```bash
 magnet:?xt=urn:btih:24791CB5CB6CBF9B831FD5E1A285F7F15D527F31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:24791CB5CB6CBF9B831FD5E1A285F7F15D527F31
 magnet:?xt=urn:btih:560850E3C5C5DD784416A03450C82812909207A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ NG. Игры разума / Brain Games (2011-2016) IPTVRip [H.264] (сезон�
 ```bash
 magnet:?xt=urn:btih:1111DF3A5BC221878D36A0C2D43FD40127AA805C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:1111DF3A5BC221878D36A0C2D43FD40127AA805C
 magnet:?xt=urn:btih:1DDA8CC156948290038AF809CB0E4ED168A2F025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:1DDA8CC156948290038AF809CB0E4ED168A2F025
 ```bash
 magnet:?xt=urn:btih:CA96B467D280768273BE57115C43739C6190C97C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Thrive: Heavy Lies The Crown (2024) [Ru/Multi] (1.0.0203) Repack FitGirl
 magnet:?xt=urn:btih:54661AC5BBF71193BD03B7F870BB84BAA239EE61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:54661AC5BBF71193BD03B7F870BB84BAA239EE61
 magnet:?xt=urn:btih:7C21B5589E455691C14577EB4C28D6C5DB6E7170
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:7C21B5589E455691C14577EB4C28D6C5DB6E7170
 ```bash
 magnet:?xt=urn:btih:438D27CAC41358C782182BA0543FE23F87B9512D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Slime Taoshite 300-nen, Shiranai Uchi ni Level Max ni Nattemashita 2 / Убив�
 magnet:?xt=urn:btih:FEA08A54CD73DB3E3B6E93EE518035AE7F49B71E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:FEA08A54CD73DB3E3B6E93EE518035AE7F49B71E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 magnet:?xt=urn:btih:F22300AC9D575F4AEC9ACEAB00ACC5BCB7E40736
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:F22300AC9D575F4AEC9ACEAB00ACC5BCB7E40736
 ```bash
 magnet:?xt=urn:btih:FB81DD61FC2BD9DB4042CC9B169E52E7F70FB642
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Auslogics SSD Optimizer - специальный инструмент, разр�
 magnet:?xt=urn:btih:0EE3F34081B870216B2E46424A64646F76F0C56E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Everspace 2 (2021) [Ru/Multi] (1.4.48188 HotFix 3/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:EB6E85CDE9B8268BEAB2D726BAA15BE48B0153E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Cultist Simulator - настольная игра о нелёгкой и пол�
 magnet:?xt=urn:btih:E4F9B56CA1154ACF575838C88792AF7708A315FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:E4F9B56CA1154ACF575838C88792AF7708A315FD
 ```bash
 magnet:?xt=urn:btih:DFA70292439E1B1AC1848DD4D388799945A18CE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:DFA70292439E1B1AC1848DD4D388799945A18CE5
 magnet:?xt=urn:btih:30EE73A0CA30C23F23D4137294361F4507759130
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Firmament - это повествовательная пазл-адвенчур�
 ```bash
 magnet:?xt=urn:btih:5F4B2E94605B3E360773C72AC704D69F0FBF1C82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:5F4B2E94605B3E360773C72AC704D69F0FBF1C82
 magnet:?xt=urn:btih:44FC16F8A2EEEA3737BA870F35B3059D3E6CA433
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Heads Will Roll: Reforged позволит игроку примерить на 
 ```bash
 magnet:?xt=urn:btih:62E941ECA17CAD5F1AE9C99BA49E207F861614A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ Monster Prom 3: Monster Roadtrip (2022) [En] (2.17.a/dlc) License GOG
 magnet:?xt=urn:btih:98EB0D8B69FB65891203816B19DA9E6FFCC1E394
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Windows 11 3in1 x64 24Н2 (build 26100.4351) by ivandubskoj 20.06.2025 [Ru]
 ```bash
 magnet:?xt=urn:btih:541002E306A738B17077B20DEE34D50F1273B8C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

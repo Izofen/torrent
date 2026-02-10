@@ -1,3 +1,29 @@
+###  Публикация: 202822   (765651) от 22.05.2010
+
+Страсти по насекомым 2. Насекомые вне закона / Insectia 2. Outlaws (2000) HDTVRip (серия 12 из 13)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Снятый по строгим научным стандартам, сериал "Страсти по насекомым" один из самых лучших образовательных фильмов по энтомологии - науке, изучающей насекомых. Несомненно, заслуга в этом выдающегося популяризатора и прекрасного рассказчика Джорджа Броссара. После пятнадцатилетней карьеры нотариуса в возрасте 38 лет Броссар оставляет это скучное занятие и (   Читать дальше...   )Производство: Франция, Pixcom, Cineteve, La CinquiemeЖанр: Документальный, природа, энтомологияРежиссер: Герман ГутерресПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:22:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502844   (765790) от 01.01.2022
 
 Голос (2021) WEBRip (сезон 10, выпуски 1-13 из 13)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:37B4158768651123FDD1B295CD458F9BC171199E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:37B4158768651123FDD1B295CD458F9BC171199E
 ```bash
 magnet:?xt=urn:btih:43FA66A30D18FC57299627F1D6B2C293A7111191
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:43FA66A30D18FC57299627F1D6B2C293A7111191
 magnet:?xt=urn:btih:8152C0E3140A52BA914AA0E1D5ADAD524ED1A2E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:8152C0E3140A52BA914AA0E1D5ADAD524ED1A2E2
 ```bash
 magnet:?xt=urn:btih:A1187CAB262062EB32B6E5AD75A158EBDDA072BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:A1187CAB262062EB32B6E5AD75A158EBDDA072BE
 magnet:?xt=urn:btih:B48BE0AE965D365D6F64C824042083689837C82B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:B48BE0AE965D365D6F64C824042083689837C82B
 ```bash
 magnet:?xt=urn:btih:3BF4E5AD9DBF88F5222BF3C649F1E53876190505
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:3BF4E5AD9DBF88F5222BF3C649F1E53876190505
 magnet:?xt=urn:btih:5F0230528DC16C745F244F43D035CD6E667432C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:5F0230528DC16C745F244F43D035CD6E667432C4
 ```bash
 magnet:?xt=urn:btih:C5326082F5BAF80410A4007206B7201754AD34C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:C5326082F5BAF80410A4007206B7201754AD34C2
 magnet:?xt=urn:btih:BBF61CDACD549E15AB1F8E341984EB7F554E0A56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:BBF61CDACD549E15AB1F8E341984EB7F554E0A56
 ```bash
 magnet:?xt=urn:btih:10FE7285C30D3C6132ACB4C6590CFE60673DF9E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:10FE7285C30D3C6132ACB4C6590CFE60673DF9E7
 magnet:?xt=urn:btih:123ED95D7CDCFF770AC22444843396B23949555C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:123ED95D7CDCFF770AC22444843396B23949555C
 ```bash
 magnet:?xt=urn:btih:53FFA77F651E1A76181ACADBB751155CCB2C6906
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:53FFA77F651E1A76181ACADBB751155CCB2C6906
 magnet:?xt=urn:btih:F1C2FE205040D8CF83E7D3C9594873A52F589FD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:F1C2FE205040D8CF83E7D3C9594873A52F589FD1
 ```bash
 magnet:?xt=urn:btih:71780499CC4675266EC2300549E106F28EAB8EF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:71780499CC4675266EC2300549E106F28EAB8EF2
 magnet:?xt=urn:btih:2DC8E3E07FBBBBC7DC5E7AD63C89BEAE471AA7D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:2DC8E3E07FBBBBC7DC5E7AD63C89BEAE471AA7D1
 magnet:?xt=urn:btih:9068BDF7B6C08C9C7FE1DA78F24891CD08E90A6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ magnet:?xt=urn:btih:9068BDF7B6C08C9C7FE1DA78F24891CD08E90A6B
 ```bash
 magnet:?xt=urn:btih:8ED8D86AB609FC9489A14CFA0E1FC6C69E1A428F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:8ED8D86AB609FC9489A14CFA0E1FC6C69E1A428F
 magnet:?xt=urn:btih:8C716B36938FC33699116216ED932A952E5B1E11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:8C716B36938FC33699116216ED932A952E5B1E11
 ```bash
 magnet:?xt=urn:btih:53E5AFBC211A26EA27EAEEAFED643B5801176AD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:53E5AFBC211A26EA27EAEEAFED643B5801176AD6
 magnet:?xt=urn:btih:A7A1E9B0BA186833F05CA15FDC9BF95C2518BB16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:A7A1E9B0BA186833F05CA15FDC9BF95C2518BB16
 ```bash
 magnet:?xt=urn:btih:F585B34D6796E0FC6D9AEB0603CB231CA64973D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +593,8 @@ IMAX: Рождение океана (Происхождение океана) / 
 magnet:?xt=urn:btih:D05E5EC66A2BB278FC435947648982B6206558C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:D05E5EC66A2BB278FC435947648982B6206558C9
 ```bash
 magnet:?xt=urn:btih:194A971A17A7B2E5A6A4BC1C62B4FFF9122D822B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:194A971A17A7B2E5A6A4BC1C62B4FFF9122D822B
 magnet:?xt=urn:btih:DE15A3A3BF9244126E683BCE9016359002482807
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,29 +671,7 @@ magnet:?xt=urn:btih:DE15A3A3BF9244126E683BCE9016359002482807
 magnet:?xt=urn:btih:BF777087634A2AA1F991F61D1742AB1452DEB644
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279168   (766855) от 28.01.2019
-
-Планета кошек (2015) HDTV [H.264/1080i-LQ] (серии 1-8)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они есть везде: от Шпицбергена до Антарктиды. Они без борьбы победили социальные сети. И люди косятся на того, кто признается в нелюбви к ним. Кошки! Они очень-очень разные. Но автор программы Виктор Логинов обошел весь свет, чтобы познакомить зрителя с самыми-самыми. Каждый выпуск программы – одна порода. Откуда взялась шотландская вислоухая и почему ей не выжить (   Читать дальше...   )Производство: РоссияЖанр: Документальный, познавательный, кошкиРежиссер: Виктор ЛогиновЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 8 х ~00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD09F90153DBFAA1179B49689BD62FC60676D559
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Unholy - Rapture (1998) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
 magnet:?xt=urn:btih:8E64D4B3A0A2083CDCEAC6C5E4FB124018F6D9B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Khorada - Salt (2018) [FLAC|Lossless|image + .cue] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:3057EA43F5DC9F81820F90E1189F4F5066A0954F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Drakkar - Diabolical Empathy (2017) [FLAC|Lossless|image + .cue] <Power Metal>
 magnet:?xt=urn:btih:B681F8C133AC3296498D938F6177F845E0DD662E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Trucks Wallpapers (04.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:6ADDEF5CBF8E5D7FFDD53C89CBFCFB6AF4AF1FE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:6ADDEF5CBF8E5D7FFDD53C89CBFCFB6AF4AF1FE5
 magnet:?xt=urn:btih:B636FFA428833C280F0553FC815E7BEE4DA8285A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:B636FFA428833C280F0553FC815E7BEE4DA8285A
 magnet:?xt=urn:btih:E092E2D1997E0133B27F2F751D1A5B1EA539BB1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Humor Wallpapers (05.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:8711515923B16ACF1DD4A203892EC32089D1A89D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:8711515923B16ACF1DD4A203892EC32089D1A89D
 ```bash
 magnet:?xt=urn:btih:BDFD6A1305CD7C1594FB45265993B94BB3AB3655
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +248,8 @@ VA - Armageddon Riders OST (2009) [MP3|256 кб/с]<Soundtrack, Industrial, Rock
 magnet:?xt=urn:btih:355DD540D90A73F9A65275A39E7EE62B9493C6EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ HQ Wallpapers for a desktop (04.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:7C080AACA9B4955D43BEFB9FAAAD5F596CA8116A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +300,8 @@ Fantastic Wallpapers (04.12.12) [Wallpapers]
 magnet:?xt=urn:btih:CD98032D4D30652C24BDC95F2B096D5E7E64EECB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ Creative Wallpapers (05.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:342BA6B850BE5C5340190BB8ED770366B01EBE39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ magnet:?xt=urn:btih:342BA6B850BE5C5340190BB8ED770366B01EBE39
 magnet:?xt=urn:btih:38D2953130FADC515F3EC38AB334EAC05E2494B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:38D2953130FADC515F3EC38AB334EAC05E2494B8
 magnet:?xt=urn:btih:C77EB437E9642FE4367D3FFA35A4B65A76B3B1C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:C77EB437E9642FE4367D3FFA35A4B65A76B3B1C9
 ```bash
 magnet:?xt=urn:btih:1DF00CF91CF8127318B73ABB1B93B40D2CC4FCC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ Camera Auto Timestamp v2.48 Pro [En/Ru] - добавление различны�
 magnet:?xt=urn:btih:A4FD5CB74849B410B8439B014227777282EE0A74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ Fune o Amu | Fune wo Amu | Мы создаём корабль | Великое �
 ```bash
 magnet:?xt=urn:btih:1CE42D52D655CD068A812457B142859DDF9D366A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ Lutz Records, как-то раз попытавшись послушать эт�
 magnet:?xt=urn:btih:EDA5251AC474AE39333D8DD86675251C1D2614A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:EDA5251AC474AE39333D8DD86675251C1D2614A0
 ```bash
 magnet:?xt=urn:btih:ACAF0CE72C728854D0CBD23901E5BA5122F8BA18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ Vinci v2.2 (74) [Ru/Multi] - Обработка фотографий при по
 magnet:?xt=urn:btih:CDEB6148D0E7D77F2AAD3689BC43A51A1E3CA226
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:CDEB6148D0E7D77F2AAD3689BC43A51A1E3CA226
 ```bash
 magnet:?xt=urn:btih:73655DEB17414D81C9D2815B07591543745F3878
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:73655DEB17414D81C9D2815B07591543745F3878
 magnet:?xt=urn:btih:CB44D887AFEC0DCB8EB15C95DD643839FF17FF89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ The Bat! – общепризнанная система обработки эл
 ```bash
 magnet:?xt=urn:btih:4433CF6072B7A490CA96E7C8CA0884F5945D8D4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:4433CF6072B7A490CA96E7C8CA0884F5945D8D4D
 magnet:?xt=urn:btih:59D11D5018612ED216E4CE7B681E79995DA569DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ magnet:?xt=urn:btih:59D11D5018612ED216E4CE7B681E79995DA569DC
 magnet:?xt=urn:btih:62A4C1CAF2946F3529F24A825510FAD6BBA6B108
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ magnet:?xt=urn:btih:62A4C1CAF2946F3529F24A825510FAD6BBA6B108
 ```bash
 magnet:?xt=urn:btih:693A2D0B51A83A73AD2C46F421E22B4A94E1FED4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

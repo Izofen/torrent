@@ -1,672 +1,716 @@
-###  Публикация: 519638   (635483) от 07.07.2012
+###  Публикация: 1034269   (634230) от 13.07.2016
 
-На расстоянии удара / Striking Distance (1993) [H.264] HDRip
+Журнал | Оружие №6 (2016) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал "Оружие" адресован широкому кругу читателей, интересующихся стрелковым, охотничьим и холодным оружием. В каждом номере - достоверная и авторитетная информация о разработках, выпускаемых образцах, производителях и конструкторах оружия. Основное внимание уделено современным отечественным и зарубежным моделям, эволюции видов и образцов стрелкового оружия.Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDC41C369BB453D38031E10A73C2A61EBB5240F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033978   (634231) от 13.07.2016
+
+MAMP & MAMP PRO 3.5.1 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635483.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634231.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Полицейский Том Харди, переведенный в отряд речной полиции, начинает вести неофициальное расследование по делу серийного убийцы, терроризующего город. Его версия о преступнике отличается от той, которой придерживаются власти и коллеги. Он уверен, что маньяк — работник полиции, и только его напарница поддерживает эту идею. Продолжая поиск убийцы, они не догадываются о том, что тот, кого они разыскивают с таким упорством, сам ищет встречи с ними.Жанр: Боевик, Триллер, КриминалРежиссер: Роуди ХеррингтонАктеры: Брюс Уиллис, Сара Джессика Паркер, Деннис Фарина, Том Сайзмор, Брайон Джеймс, Роберт Пасторелли, Тимоти Басфилд, Джон Махони, Андре Брогер, Том Эткинс, Майк Ходж, Джоди Лонг, Роско Орман, Роберт Гулд, Гарет Уильямс, Эд ХуксПеревод: ДублированныйПродолжительность: 01:40:01
+Любому веб-разработчику в процессе создания того или иного сайта необходимо проверять его работоспособность. Делать это удобнее всего на локальном веб-сервере, поднятом на своем компьютере. Преимущества этого способа в том, что нет ограничений ни на размер сайта, ни на использование процессорного времени или оперативной памяти сервера, а главное – то, что любое сохранение (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 июля 2016Разработчик: Appsolute GmbH.Поддерживаемая ОС: OS X 10.6.8 +Язык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0208D021C170084856755E0D10898B5130B894FE
+magnet:?xt=urn:btih:CFB69F025639AEAD6EB5605996D788B1464644AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 519964   (635484) от 07.07.2012
+###  Публикация: 1034377   (634232) от 13.07.2016
 
-[Графика] Коллекция работ Andreea Cernestean
+Стреляй сразу, мальчик! / Anda muchacho, spara! (1971) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рой бежит из американской тюрьмы и скрывается от властей в небольшом шахтёрском посёлке у границы с Мексикой. Его появление нарушает планы криминального трио, воровавшего у шахтёров добытое ими золото.Производство: Италия, Испания / Copercines, Cooperativa Cinematográfica, Italian International Film, Roberto Cinematografica, Transeuropa FilmЖанр: ВестернРежиссер: Альдо ФлориоАктеры: Фабио Тести, Эдуардо Фахардо, Массимо Серато, Лучано Пигоцци, Даниэль Мартин, Чаро Лопес, Хосе Кальво, Бен Карра, Романо Пуппо, Хосе НьетоПеревод: Многоголосый закадровый (Intra Communications)Субтитры: ОтсутствуютПродолжительность: 01:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AA1342F984147F822F46AED55ED652A0DB5490A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034291   (634233) от 13.07.2016
+
+AirFoil 5.1.1 [En]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635484.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634233.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция работ Andreea Cernestean
+ AirFoil – специальная программа, позволяющая транслировать музыку с любого Mac или PC на AirPort Express, AppleTV, iPhone, iPod Touch, либо на другой компьютер, работающий на базе любой операционной системы. Стоит отметить, что такой же функцией обладает и iTunes, но здесь имеется существенное отличие – iTunes способен передать только ту музыку, которую воспроизводит (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 июля 2016Разработчик: Rogue Amoeba Software, IncПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB1094EC66EB93E699F2787F39E97C958D03183A
+magnet:?xt=urn:btih:6859263A7E7DFCB32FD598CF122E37C22B46373C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 519962   (635485) от 07.07.2012
+###  Публикация: 1034370   (634234) от 13.07.2016
 
-[Графика] Коллекция работ цифровой художницы Eva Lagnim
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция работ цифровой художницы Eva Lagnim
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7951FCD563188CA337AD75752B176940C0E1C74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293664   (635487) от 04.04.2019
-
-Векторный клипарт - Flag of different countries of the world #2 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Флаги разных стран мира.
-12 EPS + PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B0B433392E63B54BB3E4E128544693B9EB32D42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293666   (635488) от 04.04.2019
-
-Векторный клипарт - Beasts in the forest - Vector Graphics [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Звери в лесу.
-24 EPS + PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CABF1496251E1F871DB7F415D1C9A26077182EDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293644   (635489) от 04.04.2019
-
-Векторный клипарт - Hello Spring - 10 - Vector Graphics [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красочные фоны с цветами в векторе - Здравствуй, весна.
-9 EPS + PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55257745519E9D410A7B476BBDAE6B6A9458ED14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293529   (635490) от 04.04.2019
-
-Векторный клипарт - Happy easter - 9 - Vector Graphics [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Счастливой пасхи.
-20 EPS + PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D327A714D27918C26D03CA40A73104D04DDA74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293639   (635491) от 04.04.2019
-
-Векторный клипарт - Happy easter - 7 - Vector Graphics [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кролик и корзина с весенними цветами и яйцами - пасхальные векторные рисунки.
-7 EPS + PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3995FCEC8524800C5C53DDB5092366D48F95089
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293626   (635492) от 04.04.2019
-
-Zoner Photo Studio X 19.1904.2.140 RePack by KpoJIuK [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zoner Photo Studio - приложение, созданное для качественной обработки цифровых снимков. Одной из функций программы является извлечение из снимков информации о местонахождении фотографа во время совершения съемки и соотношение этих данных с картографическими программами. PhotoStudio работает с самыми различными моделями цифровых камер и содержит средства для редактирования (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D815941EE6A90E6A6CE4B4CF6828692ABA3C5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293673   (635493) от 04.04.2019
-
-Nine Inch Nails - Strobe Light (2019) [MP3|320 Kbps] <Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635493.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro Skit
-2. Everybody's Doing It (featuring Bono, Chris Martin & Jay-Z)
-3. Black T-Shirt
-4. Pussygrinder (featuring Sheryl Crow)(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C25DDF6F7598E1E7DA88E880A95AA9A021C70240
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293647   (635494) от 04.04.2019
-
-Векторный клипарт - Hello Spring - 7 - Vector Graphics [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весенние цветы на голубом фоне - вектор. Здравствуй, весна.
-22 EPS + PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E0FC7315AE7F64EA7581C2E5B85D821858FA7E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293415   (635495) от 04.04.2019
-
-VA - Italo Disco: Instrumental Versions (2016) 2CD, Limited Edition [MP3|320 Kbps] <Pop, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jules - I Want To (Instrumental Version) (6:44)
-02. Webo - Magic Moment (Instrumental Version) (5:58)
-03. Facts & Fiction - Supernova (Instrumental Version) (5:22)
-04. Lime - Unexpected Lovers (Instrumental Version) (5:04)(   Читать дальше...   )Жанр: Pop, Italo-DiscoПродолжительность: 02:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06CD6B63C6EDBDCA956D9D5E432D046D967B87DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293563   (635496) от 04.04.2019
-
-Aerosmith - Big Ones (1994) Unofficial Release [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walk On Water
-02. Love In An Elevator
-03. Rag Doll
-04. What It Takes(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:13:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD5CEEE9D58B4DDF06F1FD0B508A5646E6499D42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293414   (635497) от 04.04.2019
-
-VA - Pure Synthwave Vol. 1 (2018) [MP3|320 Kbps] <Synthwave, Retrosynth, Outrun, Electronic>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. September 87 - Ride All Night (5:56)
-02. The New Division - Vicious (3:15)
-03. Cosaquitos En Globo - Cruzando el Puente (Instrumental) (4:07)
-04. Oblique - I'm Your Mirror (4:45)(   Читать дальше...   )Жанр: Synthwave, Retrosynth, Outrun, ElectronicПродолжительность: 01:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:864273FD6762FC1A6067233326F07B1231FC78DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293682   (635498) от 04.04.2019
-
-VA - Dance - Pop Vol. 3 (2019) [MP3|320 Kbps] <Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roksana Wegiel - Anyone I Want To Be (2:58)
-02. Hailee Steinfeld - Back To Life (from ''Bumblebee'') (3:54)
-03. Lanberry - Nie Ma Mnie (3:29)
-04. Sigrid - Don’t Feel Like Crying (2:37)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA38EF6AF44CE89F57D853E4D9474923877E3DD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293698   (635499) от 04.04.2019
-
-Two Friends - Big Bootie Mix Vol.15 2019-04-03 [MP3|320 Kbps] <Electro House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635499.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Queen - Bohemian Rhapsody (Two Friends Intro Edit) w/Loud Luxury - Body (Instrumental) w/Disclosure - Latch (Acapella) w/Post Malone - White Iverson (Acapella) w/Nirvana - Smells Like Teen Spirit (Acapella) w/Zedd ft. Alessia Cara - Stay (Acapella)
-2. RetroVision - Found You (Instrumental)w/Gryffin ft. Bipolar Sunshine - Whole Heart (Acapella) w/Blink-182 - The (   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0CF80A0E439C21E1DA83390CFA8BB29DFC726D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293625   (635500) от 04.04.2019
-
-Мэри Нортон | Добывайки на реке. Приключения маленьких человечков - 3 (2018) [FB2]
+Владислав Крапивин | Избранное в двух томах [2] (1989) [DJVU]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635500.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634234.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вам представлена книга о необыкновенных существах — добывайках известной английской писательницы Мэри Нортон.Сказочные чудесные истории о маленьких человечках-добывайках, которые живут рядом с нами и потихоньку "одалживают" разные вещи. Мэри Нортон (1903—1992) — известная британская писательница, придумавшая крошек-добываек, получила за эти книги престижную (   Читать дальше...   )Жанр: детская литература, сказкиФормат: FB2
+В первый том "Избранного" известного детского писателя вошла повесть "Оруженосец Кашка" и роман "Мальчик со шпагой". В этих произведениях рассказывается о настоящей дружбе, о верности, честности и смелости.
+Во второй том вошли три произведения. В повести-сказке "Летчик для особых поручений" речь идет о светлом и сложном мире (   Читать дальше...   )Жанр: Проза для детейФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6EEEA60AC942B73AF7BDCA2183364038D9A73F4
+magnet:?xt=urn:btih:D6556B2291F1D563E11DB43041381BB8A0AAD15E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293610   (635501) от 04.04.2019
+###  Публикация: 1034401   (634235) от 13.07.2016
 
-WinUtilities Professional Edition 15.53 RePack (& Portable) by elchupacabra [Multi/Ru]
+USDownloader 1.3.5.9 Portable (12.07.2016) [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635501.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634235.jpg" />
 </div>
 
 
 ###  Подробнее
 
-WinUtilities - системный набор для настройки вашей системы, содержащий более 20 инструментов для увеличения и настройки производительности вашего компьютера. Программа предлагает привлекательный и легкий в использовании интерфейс, который организует все задачи по категориям и предоставляет графическую статистику там, где это возможно. В программу входят различные (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+Universal Share Downloader - это программа для скачивания файлов. В первую очередь оптимизирована под скачивание (в том числе полностью автоматическое) с различных файлообменных серверов типа Deposit и прочих, сайтов с видео YouTube.com, RuTube.com и прочих. Universal Share Downloader поддерживает более 120! Вам достаточно добавить в программу ссылки, нажать старт (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF69DF9D2518D34063DAD4ADD0435C556A912E58
+magnet:?xt=urn:btih:9E7A481B227397A97506712AEBF1108B13C43FB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293510   (635502) от 04.04.2019
+###  Публикация: 1033934   (634237) от 13.07.2016
 
-Tom Macdonald - Deathreats (2018) [FLAC|Lossless|tracks + .cue] <Hip Hop, Boom Bap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Pollitically Incorrect	4:11
-02.	Dear Rappers	3:22
-03.	Castles	4:20
-04.	Not Alone (Spoken Word)	2:10(   Читать дальше...   )Жанр: Hip Hop, Boom BapПродолжительность: 00:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38B4E7651376FA3C8D7A927EDA4BC4EA0C4DE600
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293667   (635503) от 04.04.2019
-
-BestReminder v2019.04.04.10 Super Final [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ну кто из нас не забывал поздравить близких друзей, родственников, сотрудников, знакомых с каким нибудь событием или знаменательной датой!
-Может это день рождения, или юбилей, а может крестины, или может годовщина свадьбы?
-А когда же поздравить? Когда покупать подарки? Какого же числа праздник?
-Эта версия программы - ни что иное, как новый свет от предыдущей Birthday. (   Читать дальше...   )Разработчик: Похилько Д.Ю. aka KilyaЯзык интерфейса: Русский, украинский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B4258FD530457955E192E63068F3D01BEA05508
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293678   (635504) от 04.04.2019
-
-VHS Dreams - The Bundle - Volume 1 (2017) [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Body Heat (4:41)
-02. Bodywork (12'' Extended Mix) (5:46)
-03. Downtown (12'' Extended Mix) (5:56)
-04. Miami's Finest (12'' Extended Mix) (6:18)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 01:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CCBBAB41167EF1FB326FFB059BF2B2EBCA88AFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293458   (635505) от 04.04.2019
-
-Happy Day Singers - Gospel Songs (2000) Box Set, 3CD, Compilation [FLAC|Lossless|image + .cue] <Gospel, Funk / Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635505.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-01.	Glory Glory Halleluja
-02.	Put A Little Love In Your Heart
-03.	We Are Going Down, Jordan(   Читать дальше...   )Жанр: Gospel, Funk / SoulПродолжительность: 02:20:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B553F2F82C555C2DDA5A1BBE3804EA6802FB4C42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293402   (635506) от 04.04.2019
-
-Wolf and Raven - Renegades (2016) [MP3|320 Kbps] <Synthpop, Synthwave, Retrowave, Outrun>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cassette Prelude (1:38)
-02. Neon Nights (4:30)
-03. Renegades (3:55)
-04. The Heist (4:19)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Retrowave, OutrunПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFE2F272739AECE47B0AA1D2DF6F6235E27C7AA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143447   (635507) от 18.06.2017
-
-VA - Drink and Beach Deep House Selection (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJGus - Sky Passage
-02. Psychopathic - X File
-03. PhiNek - Savage
-04. Stephen Barcella - Strong(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:08:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B7974AD1CE7A23B1ABC670D67A78AD67C8115DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143333   (635508) от 18.06.2017
-
-Mood - Slow Down (1997) [FLAC|Lossless|image + .cue] <Doom Metal>
+Valor - The Yonder Answer (2013) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635508.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634237.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.	One More Scar (Scars Pt. 2) 05:09
-02.	The Engine Is Burning 04:20
-03.	Through These Eyes 05:21
-04.	Left by the Living, Found by the Dead 06:55(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:59:44
+01.   The Journey Begins    02:12
+02.   The Answer’s Yonder    03:50
+03.   Crossroads    04:08
+04.   The Guides    06:03(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:42:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD900A13942DD43C5C10227388F85F79DCA79E4A
+magnet:?xt=urn:btih:C1464DDA8266C574296ED61174A4EAE6D7CFA52D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143671   (635509) от 18.06.2017
+###  Публикация: 1033793   (634238) от 13.07.2016
 
-VA - Heliopause: Energy Exdendet Trance Mix (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
+VA - The Best - In Music We Trust Vol.2 (2016) [MP3|320 Kbps] <House, Club, Dance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635509.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634238.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Mhammed El Alami & Ben Samy - Ocean Dream (Extended Mix)
-002. Johnny Yono - Severed Ties (Extended Mix)
-003. James Kiedis - Here I Stand
-004. Davey Asprey - Fallout (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 11:03:34
+001. W&W & Hardwell feat. Lil Jon -  Live The Night (Extended Mix) 4:34
+002. Scooter -  Mary Got No Lamb (Extended Mix) 4:24
+003. Armin Van Buuren ft. BullySongs -  Freefall (Extended Mix) 4:03
+004. Armand Voltage -  Go!! (Original Mix) 5:08(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 07:51:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC900AADEB090DD6123543915EFEE3341F54348D
+magnet:?xt=urn:btih:F8C55B3A92EF18C93D8C141F7522BE7D0CE21092
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034158   (634239) от 13.07.2016
+
+Мария Метлицкая | Дорога на две улицы (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторская серия Метлицкой не зря названа «За чужими окнами» — автор словно приглашает понаблюдать за чужой жизнью, выслушать историю другого человека, и у нас возникает стойкое ощущение, что мы давно знакомы с персонажами и их «маленькая жизнь» нам чрезвычайно интересна. Именно своей «настоящестью» книги Метлицкой и привлекают многочисленных читателей. Более того (   Читать дальше...   )Жанр: Современная проза, романПродолжительность: 12:22:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54ECAB3F9EDACD4BE518763F64E21E2E3711599D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034390   (634240) от 13.07.2016
+
+Журнал | Ландшафтный дизайн №3 (май-июнь 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634240.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ландшафтный дизайн» - первое российское издание о декоративном садоводстве. Журнал знакомит читателей с наиболее известными садами и парками России и мира, лучшими работами по ландшафтному дизайну. Здесь представлены модные стили и направления ландшафтного дизайна, информация о современных технологиях проведения ландшафтных работ. Журнал позволит вам взглянуть на (   Читать дальше...   )Жанр: Сад, ландшафтный дизайн, дизайн участкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74B1E07F102F09F93B81F31F17F2319F6A2CA859
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034237   (634241) от 13.07.2016
+
+Анатолий Курчаткин | Записки экстремиста (2014) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто знает это чувство свободы, что пьянит и кружит голову после казарменного затворничества, тот поймет меня. Человеку, обуянному этим чувством, под силу своротить горы и повернуть реки, было бы лишь кому поставить перед ним подобную цель.
+Проблема не только несбыточности, но и опасности социальных утопий, отзывающихся горечью отрезвления или бессмысленной жестокостью (   Читать дальше...   )Жанр: Социальная фантастикаПродолжительность: 04:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96F904BC63C8E49A315F60D9E069742DBED66F2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034630   (634242) от 13.07.2016
+
+А.Д. Панов. Лекция «Проблема поиска внеземного разума в XXI веке» (2016) WEBRip [H.264][MP4|1920х1080]
+
+>>Мультимедиа и прочее
+>>Мобильное Видео
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лекцию читает доктор физико-математических наук, старший научный сотрудник НИИЯФ МГУ имени М.В. Ломоносова.Жанр: Документальный, ЛекцияПродолжительность: 01:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6CB4B82D0DE1729C49D22715C2616527FF871E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908132   (634243) от 14.06.2015
+
+Kokomo Arnold - The Essential (2003) 2CD[MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Busy Bootin' (2:30)
+02.  Long And Tall (2:48)
+03.  Milk Cow Blues (3:10)
+04.  Dark Angel (With Alice Moore) (3:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:48:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:064149E27AC121EEC2DD469D9AE517854BAA5846
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908123   (634244) от 14.06.2015
+
+Borealis - Purgatory (2015) [MP3|320 кб/с]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Past The Veil
+02. From The Ashes
+03. The Chosen One
+04. Destiny(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E5D041C70CAB8F179013A347671FDA910BB0CCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907435   (634246) от 14.06.2015
+
+Benzmixer - Bakaface EP (2015) [MP3|320 кб/с]<Dubstep>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bakaface (04:43)
+02. Bakaface (Ratchet VIP) (04:43)
+03. Thai Musik (05:02)
+04. Choke Out (04:41)(   Читать дальше...   )Жанр: DubstepПродолжительность: 00:23:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53B590037B10E438FB37C0A7F1B5C88E95E570CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 800966   (634247) от 02.07.2014
+
+Рейд 2 / The Raid 2: Berandal (2014) BDRip [720p] [Line]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из трех полицейских, выбравшихся из кровавого ада первой части, в живых остается только офицер Рама. Уволившись из спецназа, он пробует начать жизнь заново, но вскоре прошлое жестко напоминает о себе - преступники убивают его брата. Чтобы отомстить, он внедряется в мощный криминальный синдикат, где быстро поднимается до самых вершин бандитской иерархии. Врагов здесь (   Читать дальше...   )Производство: Индонезия, США, Pt. Merantau Films, XYZ FilmsЖанр: Криминал, Триллер, БоевикРежиссер: Гарет ЭвансАктеры: Тио Пакусодево, Ока Антара, Дони Аламсях, Джули Эстелль, Яян Рухьян, Рюхэй Мацуда, Алекс Аббад, Арифин Путра, Сесеп Ариф Рахман, Ико ЮвайсПеревод: Дублированный (чистый звук), любительский одноголосый x2Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (А.Матвеев), английский (Forced)Продолжительность: 02:30:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD2A4137444E6A15CB3BA6AB393ADBDD5AD2F637
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907413   (634248) от 14.06.2015
+
+Dub Professors - Acts Of War (2013) [MP3|320 кб/с]<Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634248.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 The Acts of War (05:10)
+2 Destiny (05:13)
+3 The Ozone (05:10)
+4 Warlords Death (04:51)Жанр: Drum & BassПродолжительность: 00:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69FDF6FC7A7439FA242E007F46EFD8C85F9335C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908195   (634250) от 14.06.2015
+
+London Nebel - Death Rattle VIP (2015) [MP3|320 кб/с]<Dubstep, Riddim>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Combine (04:41)
+02. Death Rattle VIP (04:23)
+03. Stutter (04:03)
+04. Stop Him (04:08)Жанр: Dubstep, RiddimПродолжительность: 00:17:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3DBCB1FAF08C6C611FC5D1FF6356288800D847
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907388   (634252) от 14.06.2015
+
+Simskai - Swordfight / Apology (2015) [MP3|320 кб/с]<Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swordfight (03:51)
+02. Apology (04:24)Жанр: Drum & BassПродолжительность: 00:08:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09BF56795AA1DBEC44E8F4527DC7B09F1F8C7966
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908441   (634254) от 14.06.2015
+
+Yves Rousseau 4tet - Akasha (2015) [FLAC|Lossless|WEB-DL]<Contemporary Jazz, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'eau, Pt. 1 [06:41]
+02. L'eau, Pt. 2 [04:43]
+03. L'eau, Pt. 3 [04:03]
+04. La terre [06:31](   Читать дальше...   )Жанр: Contemporary Jazz, Modern CreativeПродолжительность: 00:55:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D01B4024531A3E21311591C43F5B5564E68852B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907429   (634256) от 14.06.2015
+
+Death Vibes - Biohazard EP (2015) [MP3|320 кб/с]<Dubstep, Riddim>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Biohazard (05:02)
+02. Biohazard VIP (04:27)
+03. Wazzup (04:23)Жанр: Dubstep, RiddimПродолжительность: 00:13:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7379509371CC0562BDD18EFA812FC495D974F82B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908116   (634258) от 14.06.2015
+
+Johnnie "Geechie" Temple - The Essential (2003) 2CD[MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lead Pencil Blues (3:06)
+02.  New Vicksburg Blues (2:48)
+03.  When The Breath Bids Your Girlfriend's (2:41)
+04.  Big Boat Whistle (3:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:44:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F42C205FCFFD8B683169F6670226BA06811B5C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908188   (634260) от 14.06.2015
+
+Curse the Flesh - Black Majesty (2015) [MP3|320 кб/с]<Blackened Melodic Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nocturnal Redemption
+02. Blasphemy Hymn
+03. Black Majesty
+04. A Cold Caress(   Читать дальше...   )Жанр: Blackened Melodic Death MetalПродолжительность: 00:32:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F71C41506C50737C512267A57F75CEC30AD0048
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908126   (634262) от 14.06.2015
+
+Jazz Gillum: The Essential (2CD) (2003) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Key To The Highway (2:42)
+02.  Sarah Jane (3:03)
+03.  My Old Suitcase (3:01)
+04.  You Are Doing Me Wrong (2:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED60F94AA3C80FF6F5935947B70E54018679F84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908192   (634264) от 14.06.2015
+
+Dying Humanity - Deadened (2015) [MP3|320 кб/с]<Melodic Death/Thrash Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deadened
+02. Delusion
+03. Beyond Redemption
+04. I Am King(   Читать дальше...   )Жанр: Melodic Death/Thrash MetalПродолжительность: 00:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBFD76D2A3E75CBDEA3A462871466A228E50B13A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908351   (634266) от 14.06.2015
+
+Служу Отчизне (14.06.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа «Служу Отчизне!» ориентируется и на будущих защитников отечества, для тех, кто ещe не сделал свой выбор. Для них мы рассказываем о разных воинских специальностях, боевых искусcтвах и военных видах спорта, новых образцах оружия и детских патриотических клубах. Для родителей наших юных зрителей мы каждый раз подробно рассказываем об особенностях и условиях (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТелепередачаПродолжительность: 00:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A32F769B7440158750F94400E94ADAE14319396
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

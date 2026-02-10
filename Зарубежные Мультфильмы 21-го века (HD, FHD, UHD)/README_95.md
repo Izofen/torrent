@@ -1,27 +1,3 @@
-###  Публикация: 1402433   (701319) от 14.08.2020
-
-Скуби-ду / Scoob! (2020) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды мальчик по имени Шэгги встречает бездомного щенка, которому дает довольно странную кличку – Скуби-ду. Это становится началом не только настоящей дружбы, но и множества удивительных событий, в которых главные герои принимают самое активное участие. При поддержке школьников Дафни, Фредди и Вельмы приятели создают частное детективное агентство, мечтая помогать (   Читать дальше...   )Производство: США / Warner Bros., Warner Animation Group, Hanna-Barbera ProductionsЖанр: Мультфильм, комедия, детектив, приключения, семейныйРежиссер: Тони ЧервонеПеревод: Дублированный (iTunes)Субтитры: Русские (Forced,Full), Английские (Full)Продолжительность: 01:33:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA8A28BACD8A0A27780B60FE5C502A33D25AA024
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402449   (701418) от 14.08.2020
 
 Скуби-ду / Scoob! (2020) UHD BDRemux [H.265/2160p] [4K, HDR+, 10-bit]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:CA8A28BACD8A0A27780B60FE5C502A33D25AA024
 ```bash
 magnet:?xt=urn:btih:48DE77F9BDDE00AE4B6666EB61F0FF3475F5EFEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:48DE77F9BDDE00AE4B6666EB61F0FF3475F5EFEF
 magnet:?xt=urn:btih:E19A3794E418FD2B53A0BCBC6585F91E78F9D78C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:E19A3794E418FD2B53A0BCBC6585F91E78F9D78C
 ```bash
 magnet:?xt=urn:btih:9557FA3AD040B2F4C19CB32B884D5F094CAA2CB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:9557FA3AD040B2F4C19CB32B884D5F094CAA2CB7
 magnet:?xt=urn:btih:D8071F657B57771BEDDD9BDB5309AC9CAE91D38D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +123,8 @@ magnet:?xt=urn:btih:D8071F657B57771BEDDD9BDB5309AC9CAE91D38D
 magnet:?xt=urn:btih:E16AB740916B6B1120DA7BBA962F91F989D13C37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +148,8 @@ magnet:?xt=urn:btih:E16AB740916B6B1120DA7BBA962F91F989D13C37
 ```bash
 magnet:?xt=urn:btih:89BF2CFE43FC70AA6D42EC55CDF1E920F5D57ECF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +177,8 @@ magnet:?xt=urn:btih:89BF2CFE43FC70AA6D42EC55CDF1E920F5D57ECF
 magnet:?xt=urn:btih:3BE2A52F3492E4B34B04051A9849B1037CC96CA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:3BE2A52F3492E4B34B04051A9849B1037CC96CA5
 ```bash
 magnet:?xt=urn:btih:4628AAC5F038CE9D068D00BB52A9277ED03731CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +229,8 @@ magnet:?xt=urn:btih:4628AAC5F038CE9D068D00BB52A9277ED03731CC
 magnet:?xt=urn:btih:103DF55885C7DC20EC48EB2974EC97CC8C964833
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +255,8 @@ magnet:?xt=urn:btih:103DF55885C7DC20EC48EB2974EC97CC8C964833
 magnet:?xt=urn:btih:697CBC712B4F05703E201A34AAA2029E54B9FFA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:697CBC712B4F05703E201A34AAA2029E54B9FFA5
 ```bash
 magnet:?xt=urn:btih:DFD931B01B4B80F8E37D1DD929B121DBA1FA884D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +309,8 @@ magnet:?xt=urn:btih:DFD931B01B4B80F8E37D1DD929B121DBA1FA884D
 magnet:?xt=urn:btih:F78A1B40D9B08E4F3DB33594B7F77A81991224BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +334,8 @@ magnet:?xt=urn:btih:F78A1B40D9B08E4F3DB33594B7F77A81991224BE
 ```bash
 magnet:?xt=urn:btih:646F4BBCA4BBBD6E44F8C845D3DA9CA818EDAB88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +361,8 @@ magnet:?xt=urn:btih:646F4BBCA4BBBD6E44F8C845D3DA9CA818EDAB88
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:646F4BBCA4BBBD6E44F8C845D3DA9CA818EDAB88
 ```bash
 magnet:?xt=urn:btih:DBAE93C164BB2A7BB2CE175A9A4FD85F5C9A6551
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +413,8 @@ magnet:?xt=urn:btih:DBAE93C164BB2A7BB2CE175A9A4FD85F5C9A6551
 magnet:?xt=urn:btih:97C22B09B45F6742F2D6CFBFB96277F7EEDE9501
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +438,8 @@ magnet:?xt=urn:btih:97C22B09B45F6742F2D6CFBFB96277F7EEDE9501
 ```bash
 magnet:?xt=urn:btih:9ACB40788184F8E7A90A1C37E2D3218D900043BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +467,8 @@ LEGO Супергерои DC: Флэш / Lego DC Comics Super Heroes: The Flash 
 magnet:?xt=urn:btih:CD75B42C5BAC421FA8B2E6F6475C459C926894D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +494,8 @@ magnet:?xt=urn:btih:CD75B42C5BAC421FA8B2E6F6475C459C926894D1
 magnet:?xt=urn:btih:126F6FC48ED4D3D527DE8CD18E1F63E70F7A18AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +519,8 @@ magnet:?xt=urn:btih:126F6FC48ED4D3D527DE8CD18E1F63E70F7A18AC
 ```bash
 magnet:?xt=urn:btih:87BBB4CF4FFBC8D75FCF0CC10EBC478C3E8815D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +547,8 @@ magnet:?xt=urn:btih:87BBB4CF4FFBC8D75FCF0CC10EBC478C3E8815D3
 magnet:?xt=urn:btih:B10DEC4E22EE7F055691309EA5BB903825A709EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +573,8 @@ magnet:?xt=urn:btih:B10DEC4E22EE7F055691309EA5BB903825A709EA
 magnet:?xt=urn:btih:3516AAB64EC41EDDCABD694E5F79B55D279599C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +598,8 @@ magnet:?xt=urn:btih:3516AAB64EC41EDDCABD694E5F79B55D279599C9
 ```bash
 magnet:?xt=urn:btih:DB4E697B8226DDCC4945E52F5AF978505BE15A2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +626,8 @@ magnet:?xt=urn:btih:DB4E697B8226DDCC4945E52F5AF978505BE15A2A
 magnet:?xt=urn:btih:625A0F863DA59046C14BBB07A26A5D57416138BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +651,35 @@ magnet:?xt=urn:btih:625A0F863DA59046C14BBB07A26A5D57416138BA
 ```bash
 magnet:?xt=urn:btih:87FDC430A286633CC74861E1A199B157712D527A
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024813   (713238) от 10.06.2016
+
+Кунг-фу Панда 3 / Kung Fu Panda 3 (2016) BDRip [H.264/720p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воссоединившись со своим давно потерянным отцом, По отправляется в тайный рай для панд, где его ожидает встреча с множеством веселых сородичей. Однако вскоре злодей Кай начинает зачистку — он уничтожает кунг-фу мастеров по всему Китаю.
+По предстоит сделать невозможное — обучить боевому искусству деревню, полную его веселых, неуклюжих собратьев, и тем самым превратить (   Читать дальше...   )Производство: Китай, США |  China Film Co., DreamWorks Animation, Oriental DreamWorksЖанр: Боевик, Комедия, Приключения, СемейныйРежиссер: Алессандро Карлони, Дженнифер ЮПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27991C88EF90FF06F912C59AF053EB33A541317D
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

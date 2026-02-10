@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:2A56C3432604AF22CB289FD15648A0668883792F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Room Arranger - программа специально предназначен
 ```bash
 magnet:?xt=urn:btih:453353219C38FCFBAEA579500DFB06120BEFC6DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:453353219C38FCFBAEA579500DFB06120BEFC6DF
 magnet:?xt=urn:btih:358709010DCC65F01A04580E9737B682D7682624
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ RAILGRADE (2023) [Ru/Multi] (7.3.63.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6A7FA09C2A751E7D9BDB69B7AE56E79B9906BA44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:6A7FA09C2A751E7D9BDB69B7AE56E79B9906BA44
 magnet:?xt=urn:btih:692BB0202BA0D33AD67910E883FB29131D2B442C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Nordic Ashes: Survivors of Ragnarok – динамическое приключ�
 ```bash
 magnet:?xt=urn:btih:AE3336668A1E97B1F7D33F910FEDE251DF5E9477
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.3) Repack Other s
 magnet:?xt=urn:btih:929DF32EEA4FE461A1A0E89C8820E7A1F4010BD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:929DF32EEA4FE461A1A0E89C8820E7A1F4010BD0
 ```bash
 magnet:?xt=urn:btih:C8D43BE6865658376E44EB5F89DA9413186A231E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:C8D43BE6865658376E44EB5F89DA9413186A231E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:C8D43BE6865658376E44EB5F89DA9413186A231E
 magnet:?xt=urn:btih:9173BC9F7C7F92A041FBEDCFAC4E765C481A131F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ The RPG (2025) [Ru/Multi] (1.001/1.004) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D385299A0C85B843C23AAB58962B20D923B22D8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:D385299A0C85B843C23AAB58962B20D923B22D8D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Hell Clock (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5A9C17E7EBB7A29444D7502CD8A5E2EA836D4EF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:5A9C17E7EBB7A29444D7502CD8A5E2EA836D4EF0
 magnet:?xt=urn:btih:5FDB547D126F494AAAC3EC1F767CEF32A9A644B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:5FDB547D126F494AAAC3EC1F767CEF32A9A644B0
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:5FDB547D126F494AAAC3EC1F767CEF32A9A644B0
 magnet:?xt=urn:btih:A6365E412A93F6FB13EEE542F4A710A313FC8845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:A6365E412A93F6FB13EEE542F4A710A313FC8845
 ```bash
 magnet:?xt=urn:btih:02AB051DA400F184A44D0E7AC14F56CF5595A2D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Ubuntu*Pack 22.04 DDE (июль 2025) [amd64] 1xDVD
 magnet:?xt=urn:btih:92CF5A0FB91E5884936D8143A5C9F59924078D25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Iron Core: Mech Survivor - это однопользовательская ро�
 ```bash
 magnet:?xt=urn:btih:A36DD25399849130D219B2DF65D969ACA22D478B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Total Commander – самый популярный файловый менед�
 magnet:?xt=urn:btih:0B28314A2FF48340DFDDAC3C2D0F622740BD1E74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Cent Browser является усовершенствованной верси�
 ```bash
 magnet:?xt=urn:btih:0DF8E628BF6132C72C7E9EAF9E5E358054026097
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Runa Illustra (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 magnet:?xt=urn:btih:FDBCF2EBFC477C8CFBB92E7770E1FD151711E8E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:FDBCF2EBFC477C8CFBB92E7770E1FD151711E8E2
 magnet:?xt=urn:btih:4141CA35A2679DC005362D62A065173D8818BCC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ MInstAll v.10.08.2025 By Andreyonohov (ISO) [Ru]
 ```bash
 magnet:?xt=urn:btih:858814CAAABB40FE18BC7393C46D8609735931B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:858814CAAABB40FE18BC7393C46D8609735931B6
 magnet:?xt=urn:btih:8954AF66FBC21C27761A9A19CD7ACBF512A09D78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:8954AF66FBC21C27761A9A19CD7ACBF512A09D78
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

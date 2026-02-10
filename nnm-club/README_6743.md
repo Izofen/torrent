@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:9F54DFA2001FC31082CF34799A459ACC246E4D12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:9F54DFA2001FC31082CF34799A459ACC246E4D12
 ```bash
 magnet:?xt=urn:btih:62B660DD9955B8FE3FAFCE104D50302739D07700
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:62B660DD9955B8FE3FAFCE104D50302739D07700
 magnet:?xt=urn:btih:0955DE77BC8AB7812E2DC03E1632FDAE8D8A06BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ PhotoCASA - красочный иллюстрированный журнал о 
 ```bash
 magnet:?xt=urn:btih:6DA8B1D21DD0A69FC0935717844C714281AC5D88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ PhotoCASA - красочный иллюстрированный журнал о 
 magnet:?xt=urn:btih:E2C50EC797F17FF2EFD1DAD862355C4F1BBC358F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:E2C50EC797F17FF2EFD1DAD862355C4F1BBC358F
 ```bash
 magnet:?xt=urn:btih:D0365032D77D10BE22954776BDEEF8AE73AAD7E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:D0365032D77D10BE22954776BDEEF8AE73AAD7E2
 magnet:?xt=urn:btih:6A4D8C6D79E9650AED5732345757BC04558F3656
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 ```bash
 magnet:?xt=urn:btih:041629336C1026098C8882F54BF84386A95A6E9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Udemy, iwayQ Technology | Project in DevOps: Jenkins CI/CD for Kubernetes Deploy
 magnet:?xt=urn:btih:28B8854AB06A28E983DF0483921601BF9AB6C896
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:28B8854AB06A28E983DF0483921601BF9AB6C896
 ```bash
 magnet:?xt=urn:btih:3C67A507070BC07B83BEAF8D2E830C6B4C3437D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:3C67A507070BC07B83BEAF8D2E830C6B4C3437D1
 magnet:?xt=urn:btih:9D98B603EF171DDF1AFABC124CE4FBC09F7AC0F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:9D98B603EF171DDF1AFABC124CE4FBC09F7AC0F9
 magnet:?xt=urn:btih:9E9012FF98A9F5FB3A1EEE65BA02FEBEE007CBE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:9E9012FF98A9F5FB3A1EEE65BA02FEBEE007CBE3
 ```bash
 magnet:?xt=urn:btih:D17ED2A7C8EDA2942E2EC74B6737ADE3DC0E5C46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:D17ED2A7C8EDA2942E2EC74B6737ADE3DC0E5C46
 magnet:?xt=urn:btih:A6185309C9403779BE47F0C42F6F30AB0AE8446C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ Aomei Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:A420B3BD6C74CA82B7A93C1C656D2EC7C2D0C2CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ DefenderUI - бесплатная программа, являющаяся ал�
 magnet:?xt=urn:btih:58542605B80E1035AC62F3BE8D50291D9689AA82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ ardanlabs.com, Miki Tebeka | Practical Go Foundations (2022) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:91DB653AEAE59000FE0E053FE8534DF31AF33BA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:91DB653AEAE59000FE0E053FE8534DF31AF33BA6
 magnet:?xt=urn:btih:226107CFBC4158EBCEA0FDE24BCE38A252C6234B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ HiPER Scientific Calculator Pro - очень полезное приложени
 ```bash
 magnet:?xt=urn:btih:94E4C2CBDF1C442C1510A667E983CB3CE68C4A93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ updated_dec_2022_x64_dvd_ee4b259d.iso
 magnet:?xt=urn:btih:7FE5A6AE234C45320A40FE9A5D06340C73B2046B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ Wireshark - бесплатный сниффер, предназначенный 
 ```bash
 magnet:?xt=urn:btih:0A22C8CE73AA534DDD6E4880838C0E3DD7A5DCCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ LDPlayer 9 — мощный бесплатный эмулятор устройс
 magnet:?xt=urn:btih:9157241542CCC4E1DF9AC67D6010088DC0DC64C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ VSDC Pro создан для тех, кто хочет освоить нелин
 magnet:?xt=urn:btih:E400D51DE1E06BAE83447DEFFF782DFCCFD1667A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ React это быстро! Да. Но любое приложение, кото�
 ```bash
 magnet:?xt=urn:btih:FAB753EF5AC50FAE99C99F2A250DDB5B61965FFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ VA - Music News vol.293 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:B3451C90EDC83C1295915ECCB894959C02E8765A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ magnet:?xt=urn:btih:B3451C90EDC83C1295915ECCB894959C02E8765A
 ```bash
 magnet:?xt=urn:btih:7456F48D3FB68E509758D01861F00C8D365DCE07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

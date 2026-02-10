@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A54C3B2B694CEC4B839787DD830AD65A05868F7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:A54C3B2B694CEC4B839787DD830AD65A05868F7C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ NASA сообщило о завершении подготовки космич�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ NASA сообщило о завершении подготовки космич�
 ```bash
 magnet:?xt=urn:btih:39A76C8C28C94198085D195D88DDB3E8A782151A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:39A76C8C28C94198085D195D88DDB3E8A782151A
 magnet:?xt=urn:btih:D0D5388F9860B07F22DABB7D65E963F5F0067FD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:D0D5388F9860B07F22DABB7D65E963F5F0067FD5
 ```bash
 magnet:?xt=urn:btih:2A0132C82BA1DA2425BA0ECE814170710376F103
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Windows 7 SP1 7601.27872 x64 3in1 by OneSmiLe [15.08.2025] [Ru]
 magnet:?xt=urn:btih:A0E4B9DDAF8CC1D6068A4452773BAFBA8681C1EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Impaler Gold - это динамичный минималистичный аре
 ```bash
 magnet:?xt=urn:btih:D605355E5FBA1591748321E7648B07A435D3D559
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:D605355E5FBA1591748321E7648B07A435D3D559
 magnet:?xt=urn:btih:29E17685B32B87C2B420E3B9686248655C80BA91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Ys: The Oath in Felghana (2012) [En] (2020.03.11) License GOG
 ```bash
 magnet:?xt=urn:btih:3C8379CA255157A63BA762532585A0BC0048F526
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Alexander Semenko | Вся необходимая база по Assembler (2022)
 magnet:?xt=urn:btih:A1604A34D6CE860744B950531F05AF72DC0EDF1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:A1604A34D6CE860744B950531F05AF72DC0EDF1C
 ```bash
 magnet:?xt=urn:btih:6029DB928F80A9ABDC90F41DB364DFDCDB69C927
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:6029DB928F80A9ABDC90F41DB364DFDCDB69C927
 magnet:?xt=urn:btih:C9127A130EC9B56415A8DA890DD17F3DCD053BEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:C9127A130EC9B56415A8DA890DD17F3DCD053BEB
 magnet:?xt=urn:btih:5DE781DBC0F6567B220931A22B27BB5B33DAD816
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:E568BF26246EA9FF5B20A247090051CCD5E14D60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 magnet:?xt=urn:btih:0CF678C24DC1BC6EA11BB8172D3DC623EF0E112A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:0CF678C24DC1BC6EA11BB8172D3DC623EF0E112A
 ```bash
 magnet:?xt=urn:btih:FDFE09DCD862A5C06E8E9C052C532995ECCEE584
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:FDFE09DCD862A5C06E8E9C052C532995ECCEE584
 magnet:?xt=urn:btih:7485F4A80A939B3137EA5E145592B2F312772B00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.16.02/dlc) Licens
 ```bash
 magnet:?xt=urn:btih:B9BC4FCC81D46AB6431C879CE5C27D509399C364
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.05.297/dlc) License GOG
 magnet:?xt=urn:btih:A81AB6E01E3169DBB6CA87068B992C6DA5BF63CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ Distant Worlds возвращается. Distant Worlds, космическая 
 ```bash
 magnet:?xt=urn:btih:874C37EBA62330C271517CEB5E5FEDED46AC2700
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ Project Zomboid - многообещающая Survival-RPG, в которой �
 magnet:?xt=urn:btih:38F677AA504594460DE4485EE95E7971F337B939
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ The Last Spell (2023) [Ru/Multi] (1.2.20.2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:F633813A2B6FE6DB6B2A63AE902B8970875A7205
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ SpellForce: Conquest of Eo (2023) [Ru/Multi] (1.9.6/dlc) License GOG
 magnet:?xt=urn:btih:26526B8BFDD8D543362D2DB065AB3397852E8C2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Vagrus - The Riven Realms – ролевая игра с элементами с
 magnet:?xt=urn:btih:B2B3B59427F43AF0B1AF23B14E3F9160E23D5AA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Darkest Dungeon – пугающе сложная пошаговая ролев�
 ```bash
 magnet:?xt=urn:btih:18F697FD74E1DDA68D748340B7D41C5BA9508154
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

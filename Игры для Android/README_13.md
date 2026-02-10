@@ -19,6 +19,8 @@ Clash of Clans - Эпическая андроид стратегия, в кот
 magnet:?xt=urn:btih:C8E3D680CCD9440621945B761B6AA72C8DC4660D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C8E3D680CCD9440621945B761B6AA72C8DC4660D
 ```bash
 magnet:?xt=urn:btih:CF84ABBB7558402F28A24B8BD83619318DFFC9E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:CF84ABBB7558402F28A24B8BD83619318DFFC9E7
 magnet:?xt=urn:btih:503EB96E6C4672CF22F9557BFECC7004C3BA3166
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:503EB96E6C4672CF22F9557BFECC7004C3BA3166
 ```bash
 magnet:?xt=urn:btih:ADF8AC3B41ACEA782FFE1E76C586A0E3390DF745
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Gangstar Vegas v2.0.1b [Ru]
 magnet:?xt=urn:btih:80808336D12BCB3CFC3FB1DD8861A44D41257729
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Warplanes: WW2 Dogfight v1.6 Mod [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4963BF935E69E83AD5E6DEA4B4960E9CA9231742
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Real Racing 3 — образец графических возможностей
 magnet:?xt=urn:btih:7B4F0B184D5FF1D3262D309DD2AD7B5F0D75C745
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Streets Of Rage Remake 2x - Неофициальное издание всеми
 ```bash
 magnet:?xt=urn:btih:AA3AE0FB01CCD1CF555AC348ACD19CCB4916A834
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Lara Croft GO 1.0.48285 [Ru/En]
 magnet:?xt=urn:btih:D594AD866BD0D61F8A4991DF5DA5B94D2D7ED7B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ This War of Mine – осада города продолжается уже д�
 magnet:?xt=urn:btih:17035AEEC63B688B25036697B82191554BBA2860
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:17035AEEC63B688B25036697B82191554BBA2860
 ```bash
 magnet:?xt=urn:btih:6F8C3735BBA0475A6286A4B0EB6DCB3B49846C8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Night Slashers X – Ремейк кровавой игрушки в жанре 
 magnet:?xt=urn:btih:9C08B8CE1771426F7A4E191F79BF90665DB323F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Mighty Final Fight 1.1.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:DE282B45A49AFC6A3F9A9B4E9562E1A8D4B36384
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:DE282B45A49AFC6A3F9A9B4E9562E1A8D4B36384
 magnet:?xt=urn:btih:2E3ADB22C2CA932ED29F3A7459C16CF45B93D3C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Billiards City - это современный аркадный пул с оди
 ```bash
 magnet:?xt=urn:btih:807E92ADDD9F0D6D4DF73F23CDC8C3490021D2FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:807E92ADDD9F0D6D4DF73F23CDC8C3490021D2FE
 magnet:?xt=urn:btih:8340FF634AE15DBE49C7A33F12FCE24053EFB87D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:8340FF634AE15DBE49C7A33F12FCE24053EFB87D
 magnet:?xt=urn:btih:D17F74A979E67753A4771010F3FC3386A4C8EB34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Asphalt 8: Airborne v2.0.0j МегаМод [Ru]
 ```bash
 magnet:?xt=urn:btih:BB7F7C13E30EA9D8F1D18269FD75ECC7D19647EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:BB7F7C13E30EA9D8F1D18269FD75ECC7D19647EC
 magnet:?xt=urn:btih:46797F3D0A11CE925875CD84ECF51A3F5198EC79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Atlantic Fleet - масштабная морская стратегия с по�
 magnet:?xt=urn:btih:16A5335671D59873F34AE4501F832D9B2F8193D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Plants vs. Zombies™ 2 - игра-хит, которая является пр�
 magnet:?xt=urn:btih:DFC0F12642F22594FC60755BCA764C7A6B4DC8B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:DFC0F12642F22594FC60755BCA764C7A6B4DC8B7
 ```bash
 magnet:?xt=urn:btih:6A2417DDB4C0DBDDC1ECE83AD108BCAD6C60826B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:6A2417DDB4C0DBDDC1ECE83AD108BCAD6C60826B
 magnet:?xt=urn:btih:50A9D3C9397F572209E5D433CF98B076DB0AC6B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Defense Zone 2 HD  МОДх4  1.5.1 [Ru]
 magnet:?xt=urn:btih:BDC8D77F1A83074D120B53BFC100E3B8AFC8B1DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ NeuroNation - brain training - игра с помощью которой вы с
 magnet:?xt=urn:btih:90F7435B978661FAA2FDC5B0FCE997A180B55C14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Wood Block Puzzle – классическая игра-головоломка �
 ```bash
 magnet:?xt=urn:btih:9193770F2051EB3E4F33107A25F85BDA8B6A695C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,51 +1,3 @@
-###  Публикация: 1237567   (551530) от 24.07.2018
-
-Обои - Wallpapers Full HD / Кошачьи #11 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник обоев на тему КошкиФормат: JPGРазрешение файлов: 1920x1080-3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1AEA0BD48D09ABC7440E60249B68D667410CBFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237357   (552354) от 23.07.2018
-
-Обои - Ultra HD 3840x2160 Wallpaper Pack 305 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552354.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хорошем качестве подборка обоев на различную тематикуФормат: JPGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B3BCEBE54F321099B33FECF7AF2FE30952374E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237356   (552358) от 23.07.2018
 
 Обои - Ultra HD 3840x2160 Wallpaper Pack 309 [JPG, PNG]
@@ -66,6 +18,8 @@ magnet:?xt=urn:btih:1B3BCEBE54F321099B33FECF7AF2FE30952374E0
 ```bash
 magnet:?xt=urn:btih:60D7AA20CE10CD51AA374D3FC5049CF7231C426C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +45,8 @@ magnet:?xt=urn:btih:60D7AA20CE10CD51AA374D3FC5049CF7231C426C
 magnet:?xt=urn:btih:7DAFE64F67DF6EB49813C2BAAACBABCF7F932CD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +70,8 @@ magnet:?xt=urn:btih:7DAFE64F67DF6EB49813C2BAAACBABCF7F932CD9
 ```bash
 magnet:?xt=urn:btih:31AF0AF7B20FCB8D4D2156D5DC3F842FC2C84A28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +97,8 @@ magnet:?xt=urn:btih:31AF0AF7B20FCB8D4D2156D5DC3F842FC2C84A28
 magnet:?xt=urn:btih:6BE503778492AC2E39E431E3DEA7C780C919FE62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +122,8 @@ magnet:?xt=urn:btih:6BE503778492AC2E39E431E3DEA7C780C919FE62
 ```bash
 magnet:?xt=urn:btih:3F0F8712F9D959FCB46196F80B535753848EB510
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +149,8 @@ magnet:?xt=urn:btih:3F0F8712F9D959FCB46196F80B535753848EB510
 magnet:?xt=urn:btih:39C092CF48AB2A014D2FFD8EDB4E0DC2A99802BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +174,8 @@ Wallpapers - Best Mixed Wallpapers Pack (22.08.14) [JPEG]
 ```bash
 magnet:?xt=urn:btih:0DBCC96F4C1FF698B1595C6D01879EED638546A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +201,8 @@ magnet:?xt=urn:btih:0DBCC96F4C1FF698B1595C6D01879EED638546A4
 magnet:?xt=urn:btih:FACFE73CA76C0DF4DD9A9AFA3F898B689B5BFDEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +226,8 @@ magnet:?xt=urn:btih:FACFE73CA76C0DF4DD9A9AFA3F898B689B5BFDEB
 ```bash
 magnet:?xt=urn:btih:6201D1AADAE27CC6DE8322CECC8DBD25A328C7E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +253,8 @@ magnet:?xt=urn:btih:6201D1AADAE27CC6DE8322CECC8DBD25A328C7E6
 magnet:?xt=urn:btih:DFE028DFA717A2AF240A174F30BA063ECC53DA46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +278,8 @@ magnet:?xt=urn:btih:DFE028DFA717A2AF240A174F30BA063ECC53DA46
 ```bash
 magnet:?xt=urn:btih:C08EE216379184503195C5C62CA48CDD8429AB6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +305,8 @@ magnet:?xt=urn:btih:C08EE216379184503195C5C62CA48CDD8429AB6A
 magnet:?xt=urn:btih:D19268F84CDE0C546CB8B1315A43ADCF3B4717E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +330,8 @@ magnet:?xt=urn:btih:D19268F84CDE0C546CB8B1315A43ADCF3B4717E8
 ```bash
 magnet:?xt=urn:btih:05BDB530AF5F73350DC30717D05D4D11F09D8807
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +357,8 @@ magnet:?xt=urn:btih:05BDB530AF5F73350DC30717D05D4D11F09D8807
 magnet:?xt=urn:btih:AADDECF678E46522C0619E697F8FDC86D314A3B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +382,8 @@ magnet:?xt=urn:btih:AADDECF678E46522C0619E697F8FDC86D314A3B9
 ```bash
 magnet:?xt=urn:btih:6595BCD1CBBB4EC94DC560F5EF670F3613F888F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +409,8 @@ magnet:?xt=urn:btih:6595BCD1CBBB4EC94DC560F5EF670F3613F888F4
 magnet:?xt=urn:btih:5854F5DF2AB3F3ABD11CDE34A41A5DCDF95CA36C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +434,8 @@ magnet:?xt=urn:btih:5854F5DF2AB3F3ABD11CDE34A41A5DCDF95CA36C
 ```bash
 magnet:?xt=urn:btih:DD4FC48B89612671607589AA18357B67422B7482
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +461,8 @@ magnet:?xt=urn:btih:DD4FC48B89612671607589AA18357B67422B7482
 magnet:?xt=urn:btih:B9965DB87C958C6E1B214A7CA8AC0B8F0B8F10F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +486,8 @@ magnet:?xt=urn:btih:B9965DB87C958C6E1B214A7CA8AC0B8F0B8F10F6
 ```bash
 magnet:?xt=urn:btih:38E137CFF3A4D07996AA6EE10E34B65FC6E4DB64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +513,8 @@ magnet:?xt=urn:btih:38E137CFF3A4D07996AA6EE10E34B65FC6E4DB64
 magnet:?xt=urn:btih:57B8A31D887C3D0A68B9A2F2099177FFF29C82A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +538,8 @@ magnet:?xt=urn:btih:57B8A31D887C3D0A68B9A2F2099177FFF29C82A2
 ```bash
 magnet:?xt=urn:btih:87264502FD9288EDB6CB036546E5D346AB2B643D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +565,8 @@ magnet:?xt=urn:btih:87264502FD9288EDB6CB036546E5D346AB2B643D
 magnet:?xt=urn:btih:0244767FAA32EE61A1DA4BF3537EA0F0DCFA41E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +591,8 @@ magnet:?xt=urn:btih:0244767FAA32EE61A1DA4BF3537EA0F0DCFA41E8
 magnet:?xt=urn:btih:A40DBC7D27AE689744A47CBF2FC493D6CD30EE65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +616,60 @@ magnet:?xt=urn:btih:A40DBC7D27AE689744A47CBF2FC493D6CD30EE65
 ```bash
 magnet:?xt=urn:btih:E4EFE59E3AF9AA459DCBCE1F38ECBBB06379FECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307560   (554855) от 10.06.2019
+
+Обои - Desktop Wallpapers (4K) Ultra HD. Part (246) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C8124555A7BA311A6F030A75B976EBAA50AE0C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307565   (554857) от 10.06.2019
+
+Обои - Desktop Wallpapers Full HD. Part (451) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4961AD5C93FC369CB6228A8B69E3C4548D41511F
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ NG. Кунг-Фу – Мастерство убийства / Kung Fu Killers (2
 magnet:?xt=urn:btih:AC64D41FC85E95F8E5F550BF01CA8FEA9718CE1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NG. Дикая природа Тайваня: остров джунглей / Wi
 ```bash
 magnet:?xt=urn:btih:D6B1247FC8D8C1D80925829FB9830906EA716416
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG: Самый опасный наркотик / The World`s Most Dangerous Drug
 magnet:?xt=urn:btih:9794E524ED30C159333E06503B3703A314D90699
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NGW: Холодное королевство снежного барса / The F
 ```bash
 magnet:?xt=urn:btih:22294EE7E4FAA5AEEAFC7F8EAAB73B707023EF7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NG. Дикие места Таиланда / Thailand's Wild Side (2019) WEBRip 
 magnet:?xt=urn:btih:EEC521910D3390AF57A32531413F3FDDAD99F047
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NGW: Дикие места Ирана / Iran's Wild Side (2019) WEBRip [H.264/10
 ```bash
 magnet:?xt=urn:btih:8A8D166ED8646DC33A41EF0F1E1E272DC827AC5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ NGW: Южная Африка: Земля контрастов / South Africa: La
 magnet:?xt=urn:btih:D83137CE78E3A629E2C2990362031E9A233666DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NGW: Кошачьи приемы / Cat Attack-Tics (2019) WEBRip [H.264/1080p-LQ
 ```bash
 magnet:?xt=urn:btih:B5A7D7849CFF2E61A59146323683F3CD1CB887A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ National Geographic: Самые опасные животные: Восьмин�
 magnet:?xt=urn:btih:8651ED639C50D466DBFC2AC246BD23DD1A9AFC8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ NGW: Холодные острова / Frozen Islands (2020) WEBRip [H.264/1080p
 ```bash
 magnet:?xt=urn:btih:DC8EB1DB10193D40E07FB185EC7F64693EA932F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ NG. Суперсооружения Третьего рейха / Nazi megastruct
 magnet:?xt=urn:btih:8937B583A682A915AE42CEDD7FBC9A8DA43829EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ NG. Джон Ф. Кеннеди. Пропавшая пуля / JFK: The Lost Bul
 ```bash
 magnet:?xt=urn:btih:0820375B5D005C6D54552E34BF8690CF7BC5D466
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ NG. Взгляд изнутри: Гугл / Inside: Google (2010) HDTVRip [H.264
 magnet:?xt=urn:btih:56578BFA94E93260448C6B971F1260D2FF668907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ NG. Освещённая пучина / Light the Ocean (2011) HDTVRip [H.264/10
 ```bash
 magnet:?xt=urn:btih:98E6E2696B8EBB0AEDE35ECAFE65B517D26639BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ NG. Файлы секретных служб: Охрана президента 
 magnet:?xt=urn:btih:9C9877764E85223FDA2F239E2CF122D9385FEF9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:9C9877764E85223FDA2F239E2CF122D9385FEF9B
 ```bash
 magnet:?xt=urn:btih:6E032295CE55FE102CDAC092C207D46405242AD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ NG. Львиное королевство / Lion Kingdom (2017) HDTV [H.264/1080
 magnet:?xt=urn:btih:6E14B7C64F895AF876AE40D003A631B40EC5AA0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:6E14B7C64F895AF876AE40D003A631B40EC5AA0E
 ```bash
 magnet:?xt=urn:btih:F8EEAAE6CD2463F6A48BB8B41A25BA322E4A2811
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:F8EEAAE6CD2463F6A48BB8B41A25BA322E4A2811
 magnet:?xt=urn:btih:C091AEAF7140859A4DC2D347448C3B245BCBDA32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ magnet:?xt=urn:btih:C091AEAF7140859A4DC2D347448C3B245BCBDA32
 ```bash
 magnet:?xt=urn:btih:4534747B9CAA53235B134F7264E92296970F2746
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ NG. Наука рукопашного боя / Fight Science (2006) HDTV [H.264/
 magnet:?xt=urn:btih:C0D6C0A43105A42B93179540CF1894B3504AC86D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ NG: Солнечное затмение / Eclipse (2010) HDTV [H.264/1080i-LQ]
 ```bash
 magnet:?xt=urn:btih:173DCF5AFA483BF17F2D7A24607E00D457AA55B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ NGW: Дикие животные Японии / Japan's Wild Year (2014) HDTV [H
 magnet:?xt=urn:btih:28782F7D189652B2B65E2C87E3548EE95D53CC1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ NG: Секреты гробницы Христа: специальный реп�
 ```bash
 magnet:?xt=urn:btih:F0FFECEFE6494F8A82B197EB85BDAE2B888533EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ NGW: Пумы на краю света / Pumas At The End of The World (2020) WE
 magnet:?xt=urn:btih:DF12D8228DF9FDEA7AC511C20D06D837D9DCBB1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ NGW: Самая большая в мире белая акула / World's Bigge
 ```bash
 magnet:?xt=urn:btih:E95117546F8BFAF1B6FA0D5A5E8E960D97D2EFD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

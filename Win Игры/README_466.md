@@ -1,27 +1,3 @@
-###  Публикация: 1125865   (766710) от 16.04.2017
-
-DiRT Rally (2015) [Ru/Multi] (1.23/dlc) SteamRip Let'sPLay
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766710.jpg" />
-</div>
-
-
-###  Подробнее
-
-DiRT Rally — самая реалистичная из ныне существующих гоночных игр. (Проверено игроками сообщества DiRT, прошедшими 80 милл. миль.) Почувствуйте напряжение пилота, который знает, как высока цена ошибки. На каждом этапе свои сложности, покрытие и погода. Все машины изнашиваются, но команда поможет вам не вылететь, хотя каждое ралли — марафонское испытание. DiRT Rally (   Читать дальше...   )Тип издания: SteamRipРазработчик: Codemasters Racing StudioЖанр: Arcade, Racing (Cars), 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9EF0582A043B33DABD332F696E77E22027AB3A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393743   (766717) от 01.07.2020
 
 Die Young: Prologue (2019) [Ru/Multi] (1.1.0.58.20) Repack Other s
@@ -42,6 +18,8 @@ Die Young: Prologue (2019) [Ru/Multi] (1.1.0.58.20) Repack Other s
 ```bash
 magnet:?xt=urn:btih:D9F37814DCA6C24B23ED3EC0BF3E7C77B85C7282
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Galactic Civilizations II (2011) [En] (2.1.0.3/dlc) License GOG [Ultimate Editio
 magnet:?xt=urn:btih:1C8FF0430EFE193CA3EB10D64942AB573548029E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Need For Drink - это шуточная мультиплеерная игра, 
 ```bash
 magnet:?xt=urn:btih:3F291C27CF39A57AA1512ADC1CD7F87035E04220
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ La-Mulana (2012) [Ru/Multi] (1.6.6.1b) License GOG
 magnet:?xt=urn:btih:85092F85DA607CF505BD55EE80611295F607975F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Dark City 2: Munich (2018) [En] (1.0) Unofficial [Collector's Edition / Колл
 ```bash
 magnet:?xt=urn:btih:66391E2A3C6A201798FBDEFF32B249789C48B1A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Haunted Manor 5: Halloween's Uninvited Guest (2018) [En] (1.0) Unofficial [Colle
 magnet:?xt=urn:btih:FBFF7B3EF6FDE972421D444AE573FA94BDA4DC3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Bound by Flame (2014) [Ru/Multi] (1.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:8F3C4B2F35F47777BC283F60987D90463F406661
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Motorbike Garage Mechanic Simulator (2018) [Multi] (1.0.0) License PLAZA
 magnet:?xt=urn:btih:97D130AB523C0E88FA4562150F953B449DFF206A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ White Noise 2 (2017) [Ru/Multi] (1.0/upd1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:55AF300D57AC3AC5044472D4651B8025E52BC059
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Ms. Holmes: The Monster of the Baskervilles (2019) [En] (Beta) Unofficial
 magnet:?xt=urn:btih:CEE87DF91B5C4FE2F972F2B0A72F85AB1B392EF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Snow Moto Racing Freedom – гонки на скоростных снегохо
 ```bash
 magnet:?xt=urn:btih:A32DD652B2F9E7ADEF24413DAE5672B48AE38250
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Crazy Buggy Racing (2017) [En] (1.0) License TiNYiSO
 magnet:?xt=urn:btih:DD544DC142C5AA4BEC78A15D9B91CB0F2BA187DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ Secret City 2: The Sunken Kingdom (2019) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:C8C2C347C7336202F7D928960CD5D964A0020F5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ White Noise 2 (2017) [Ru/Multi] (1.0/upd1) License SKIDROW
 magnet:?xt=urn:btih:8E0788B36D4AB050D0D225E976D76B6FB041C428
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ Queen's Quest 5: Symphony of Death (2019) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:B03B45F1822956BEC929E22AF74878A7999EFE58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ Fear For Sale 12: Tiny Terrors (2018) [En] (1.0) Unofficial [Collector's Edition
 magnet:?xt=urn:btih:92CD84BEED92D4EA613D781F8AF056CDC20BB740
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ Secrets of Great Queens 2: Regicide (2018) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:5C615B2E1182671437A4D85AF44CBFD743A938C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ Someday You'll Return (2020) [Multi] (1.3) Repack Other s
 magnet:?xt=urn:btih:965978A85C5008F4473CE1247C1CC5B304FB871F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ Black Mirror (2017) [Ru/En] (1.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B341660C92984B91FECB288124B48EBD6E63F175
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Bastion - ролевая игра с принципиально новым вз�
 magnet:?xt=urn:btih:42145A6D319DD1F8832C7D102A6E0ED7DE3205E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ Ready for Take off A320 Simulator (2017) [Multi] (1.0.1) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:D28B1AA264A301CF2CFD4565CB00808FB43B7089
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ Cosmic Star Heroine (2017) [En] (1.0) License TiNYiSO
 magnet:?xt=urn:btih:9C6A3EF0B7BFFAE5EF9D43E3E4941F57CF63EA69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ Demon Hunter V: Ascendance (2018) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:FFE158FB1C8893E7F89992913346243E490343B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ Duder (2018) [Ru/En] (1.0) License PLAZA
 magnet:?xt=urn:btih:97906BA4123AE45825D2D1214FEA90DFE8B7AE6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ Deadstep - психологическая игра ужасов от перво�
 ```bash
 magnet:?xt=urn:btih:7337337A707866CC6033A12914078668176F4775
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213305   (768786) от 16.03.2018
+
+The Raven Remastered (2018) [Ru/Multi] (1.1.0.654) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лондон, 1964 год. Из Британского музея пропал древний рубин, на месте преступления обнаружено вороново перо. Неужели кто-то пытается подражать знаменитому вору по кличке Ворон?T he Raven Remastered — полностью перерисованная игра с детективной историей, рассказанной от лица нескольких героев.Констебль Антон Якоб Зеллнер оказывается в центре загадочного преступления, (   Читать дальше...   )Тип издания: LicenseРазработчик: KING Art GamesЖанр: Приключение, Квест, ДетективЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CEBE95772F3FF3076177BCA39C002D8D189972E
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

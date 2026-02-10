@@ -19,6 +19,8 @@ Peter Royal | Building Modern Business Applications (2022) [PDF][EN]
 magnet:?xt=urn:btih:4E513004599AF3E5A1DB2C35C62A9470F24AE7D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:4E513004599AF3E5A1DB2C35C62A9470F24AE7D6
 ```bash
 magnet:?xt=urn:btih:13B9A82C6FE049E8055ABDD2DBE4AB59466FB05F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ SounceSource позволяет настроить прямо из строки 
 magnet:?xt=urn:btih:AB9F892E78BA7A0199CA1D3CA750532B59860E27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:AB9F892E78BA7A0199CA1D3CA750532B59860E27
 ```bash
 magnet:?xt=urn:btih:85F2567F895DFEE58DE1B86BC77A225D338CD423
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:85F2567F895DFEE58DE1B86BC77A225D338CD423
 magnet:?xt=urn:btih:0BA70E6F687781F435627419D8107140EBF7E8DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:0BA70E6F687781F435627419D8107140EBF7E8DD
 ```bash
 magnet:?xt=urn:btih:8BC1BA273D90C10CF258E9DA2199C440E990329E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ VA - Black Hole House Music 09-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 magnet:?xt=urn:btih:657D2505FEB2CFC61AE33E4F0EF3EDFF6469AD8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:657D2505FEB2CFC61AE33E4F0EF3EDFF6469AD8F
 ```bash
 magnet:?xt=urn:btih:03A58C092751726350F20CCFE9AB990C8FD553F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ VA - Ibiza Closing Party 2023 Trance [FLAC|Lossless|WEB-DL|tracks] <Trance>
 magnet:?xt=urn:btih:35BA798C4020344733C700090895343682B31511
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ Aiseesoft Mac FoneLab for iOS 10.3.82 [En]
 magnet:?xt=urn:btih:DB7F962F69E2AFFFE13AB2DA53F105D14605A154
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:DB7F962F69E2AFFFE13AB2DA53F105D14605A154
 ```bash
 magnet:?xt=urn:btih:6A6B09007457CB337ACB48ABEC49CAE9428E5747
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ Bonnie Tyler - Free Spirit (1995) [FLAC|Lossless|tracks + .cue] <Pop Rock, Soft 
 magnet:?xt=urn:btih:D53CA3E9F80C99A051AC7ED4B376333A60934937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ Cool Menu — это набор из 10 очень полезных функци
 ```bash
 magnet:?xt=urn:btih:8475EF200C85B11C252FEFE71F293BA673517765
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ VA - KuschelRock 11 (1997) 2CD [MP3|320 Kbps] <Pop, Rock>
 magnet:?xt=urn:btih:4CB90D23BE790E8B9918051C1588C821E784803F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:4CB90D23BE790E8B9918051C1588C821E784803F
 magnet:?xt=urn:btih:D4AC1797CA8B665821FDC0D3C216BEE744D68E8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:D4AC1797CA8B665821FDC0D3C216BEE744D68E8C
 ```bash
 magnet:?xt=urn:btih:D6952FA032CADD43E8C4FBF0B2EFA126D7F42AF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ Sullvation - The Beginning of the End (2023) [FLAC|Lossless|WEB-DL|tracks] <Heav
 magnet:?xt=urn:btih:63002D3DB79132AE6432BB37F55FB52A9A00AFCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:63002D3DB79132AE6432BB37F55FB52A9A00AFCC
 magnet:?xt=urn:btih:BE490FD5E9E03D6B4C33A085781FFC21B37FB164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:BE490FD5E9E03D6B4C33A085781FFC21B37FB164
 magnet:?xt=urn:btih:6F4BB1A92B45D9E893CF07FA9FA6E5A7B73B20FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ Magic Disk Cleaner находит и удаляет временные файл�
 ```bash
 magnet:?xt=urn:btih:515F277C0163356DA6DE4615BE06D3BCA08C8A42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ Giampiero Boneschi - Unusual Beat Sounds Fantasy (1979) LP [MP3|320 Kbps] <Elect
 magnet:?xt=urn:btih:D3059DA0289E88C850606B890E74EDCDAD471AB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ magnet:?xt=urn:btih:D3059DA0289E88C850606B890E74EDCDAD471AB4
 magnet:?xt=urn:btih:683D8336A963228A46160605C4980CC7AB2C6559
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ Web Dumper for Mac 3.4.5 [Multi]
 ```bash
 magnet:?xt=urn:btih:18635C89B5BE4C7DBE41F16F991A4ABEEEF578BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +647,8 @@ Manntra - Oyka! (2019) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
 magnet:?xt=urn:btih:1B981C28EC2405420112C5BFB7C36D5D311C9711
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ Mark Robert Boals (родился 5 декабря 1958 г.) - американ�
 magnet:?xt=urn:btih:6E9BF7D6F234F9345E1DB71915500F6983F1995D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ Principle — приложение для Mac OS, которое позволя�
 ```bash
 magnet:?xt=urn:btih:6BDC0DEB186AEA4D3C66166E22598BD71EC80CBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ https://t.me/izofen
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.6/dlc) Repack Other s 
 ```bash
 magnet:?xt=urn:btih:4D9D79C91FBFD527684FC31E4BAA99CD2E74CDCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ The Riftbreaker (2021) [Ru/Multi] (2.0.55174/dlc) License GOG
 magnet:?xt=urn:btih:B932123AD0AD167622A61F6653D3D40984F38B8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:B932123AD0AD167622A61F6653D3D40984F38B8B
 ```bash
 magnet:?xt=urn:btih:BDE5957A73958ACAEA59002FA9416BDBF3D43477
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:BDE5957A73958ACAEA59002FA9416BDBF3D43477
 magnet:?xt=urn:btih:14143377009146092ED75CE165F54CCBA75EA34D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Palworld это приключенческая игра, где вы иссле�
 ```bash
 magnet:?xt=urn:btih:4C8656578274999AE4976DBD0FBEF22654963368
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:4C8656578274999AE4976DBD0FBEF22654963368
 magnet:?xt=urn:btih:2C8B808CC43669A682546382418BA668F77AAFFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Palworld предлагает находить и использовать пр�
 ```bash
 magnet:?xt=urn:btih:161D2CC93F700A83593B223DC36701E8073302A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ UltraPack 2k10 7.40 [Ru/En]
 magnet:?xt=urn:btih:4007B272084592668E7E1238DD0E851E013B5F69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ C9PE 2k10 7.40 Unofficial [Ru/En]
 ```bash
 magnet:?xt=urn:btih:A267EC067FC4D0DDC58158BAEF58879539E9F98E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Hitman: Blood Money / Hitman: Кровавые деньги (2006) [Ru] (1.2) Re
 magnet:?xt=urn:btih:322CCEBB1B86B45A344A8C148772DACFE0A0D94B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ MultiBoot 2k10 7.40 Unofficial [Ru/En]
 ```bash
 magnet:?xt=urn:btih:7DF53ACA5774DEADBEE20445B78B979398E7562F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Vintage Culture - Culture Shock 001-146 (2021-2025) [MP3|320 Kbps] <House, Tech 
 magnet:?xt=urn:btih:2B059CAA5DB8731376978C923EB724C5AE31D518
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:2B059CAA5DB8731376978C923EB724C5AE31D518
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ X4: Foundations - долгожданное продолжение успешно
 ```bash
 magnet:?xt=urn:btih:7B7E986CF7BF45A186814BFA9DB26D316ED16A61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.6.0/dlc) Repack Let's�
 magnet:?xt=urn:btih:65E97C86C6BCAAAABFBEF7C8B53FAFB92B83B893
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Wartales - ролевое приключение в открытом мире, �
 magnet:?xt=urn:btih:C04329D79F92EC2A4D57975CECE2C0CE2809FFB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:C04329D79F92EC2A4D57975CECE2C0CE2809FFB5
 ```bash
 magnet:?xt=urn:btih:62CC2156856C865CD62B4BE5E9884D4B16637B81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Windows 10 Pro 22H2 19045.6332 x64 by SanLex [Lightweight] [Ru-En] (2025.09.25)
 magnet:?xt=urn:btih:1B18925852D7EE198DC26865A199E5928E4DA3C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:D78C54BD5A05D07C01E887C56DE5361D2F0D6E84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:D78C54BD5A05D07C01E887C56DE5361D2F0D6E84
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:D78C54BD5A05D07C01E887C56DE5361D2F0D6E84
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:D78C54BD5A05D07C01E887C56DE5361D2F0D6E84
 magnet:?xt=urn:btih:F0A576D3CFB89622D38939CACB9A9907FC70752B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:F0A576D3CFB89622D38939CACB9A9907FC70752B
 ```bash
 magnet:?xt=urn:btih:1B870FB8787128851150046122AAE1D60B1BF020
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:1B870FB8787128851150046122AAE1D60B1BF020
 magnet:?xt=urn:btih:8E9E0A11E93EF7408A313EB33FA60DC22035A9A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Cronos: The New Dawn - это новое слово в жанре survival horro
 ```bash
 magnet:?xt=urn:btih:E92E246A5E4431E0BB5BC74E0256A477D4B59E8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

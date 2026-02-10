@@ -19,6 +19,8 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.5-34484/dlc) Repack FitGirl [The Compl
 magnet:?xt=urn:btih:C4E6EC63A58923580CDC5D83136AE1740A48D600
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.5/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:D49D6872FFC6970B6518EB76C0EA829F32B4A145
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Five Nights at Freddy's: Into the Pit (2024) [Ru/Multi] (1.0.11.7) Repack EXROW
 magnet:?xt=urn:btih:02435E0258F9B201F840393ACDB996B77989AACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.5/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:09FC9848018BD0F5898BBCB3CEE3512D4F2672A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Near-Mage - нарративное приключение со щепоткой 
 magnet:?xt=urn:btih:545980482DB498A1033D20C84C224F267E50BC56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Lamplight City (2018) [Multi] (1.13.1) License GOG
 ```bash
 magnet:?xt=urn:btih:1E65BC402B0C6D6D12821F6DBE32E19DB2FCA57C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ South of Midnight (2025) [Ru/Multi] (1.3.0 186489) Repack Let'sРlay [Premium Ed
 magnet:?xt=urn:btih:FE7B8B4533CF64043695CBA68DA78AA50389C63B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Long Dark (2017) [Ru/Multi] (Build 2.44 157357 S/dlc) Repack Let'sРlay [Qui
 ```bash
 magnet:?xt=urn:btih:2AD9E1E8FDC4DA6D187793CFBECFA1E19EE1C931
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Crow Country (2024) [Multi] (1.0.7) License GOG
 magnet:?xt=urn:btih:67A3F887ACD03DF9C62EAB87699FCEB52077F3E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Repack Other s [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:3A592098B91E51F1EAEA0FCE702C601225AE275C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Suzerain (2020) [En] (3.1.0.1.137/dlc) License GOG [Expanded Edition]
 magnet:?xt=urn:btih:0015FC3DAE9089EA98E2824CEF35AE8D88F19508
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Five Nights at Freddy's: Secret of the Mimic погружает игроков �
 ```bash
 magnet:?xt=urn:btih:33935076178044F6CBE40964436048ADD261C27E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Smuta / Смута (2024) [Ru] (2.1.0/dlc) Repack Other s
 magnet:?xt=urn:btih:04475076F58152BFEBE4F7D1CBA79F0DC4DA98B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Alters (2025) [Ru/Multi] (1.0.1.46) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1DBB492FC235DB7F96F82FBE6A60605DFBA74DDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Loco Motive (2024) [Multi] (1.0.5a) License GOG
 magnet:?xt=urn:btih:C1B1C72BA0B23CDD59050B059AC7D4B5A5741FA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Last Guest (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:DC95FB57869D8609D853AD134195517F77AD7634
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Scene Rune [Deluxe Edition]
 magnet:?xt=urn:btih:7A19CFB4ACEE50D13FE252160C44B9AAEC9513EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Repack seleZen [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:EE1303DA3D306B76EF9ABB24AA3D50A512313961
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Rosewater (2025) [Multi] (1.05.0) License GOG
 magnet:?xt=urn:btih:8206C88FE4D9F7805A34B23C547A48C8D2DD0DE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Old Skies (2025) [En] (2.0a) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:75BCF98AFFCD6468BB7C187CCF8454B4D9FC4BED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Broken Sword - Shadow of the Templars: Reforged (2024) [Ru/Multi] (1.1.8.1) Lice
 magnet:?xt=urn:btih:AD7C4C56DCE675A281426AAD2A61F75C9990456B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Strangeland (2021) [Multi] (3.3) License GOG
 ```bash
 magnet:?xt=urn:btih:7C0DA7F1F1E4E615E0910F86A2C14F1EB00F68F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.814.9) Repack Other s
 magnet:?xt=urn:btih:FB43E351C1F33EDBCA46B2D0A882455E97B13E9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ SIGNALIS (2022) [Ru/Multi] (1.2.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:8C2B51579083FF798C8C8277DB67631C1A2EA213
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ The Sinking City – игра-расследование. События про�
 magnet:?xt=urn:btih:C16A8632E7C279EBCD7AC1E749A30CFDBFE89C5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (1.01b 731056) Scene Rune
 ```bash
 magnet:?xt=urn:btih:367E27DE8E514D9437859A9E3E2E96AC96C15DA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

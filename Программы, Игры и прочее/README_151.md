@@ -19,6 +19,8 @@ Partitions Backup & Restore - Храните на смартфоне слишк�
 magnet:?xt=urn:btih:983E48661BE6AFCF92FCDE460BF226095C4C5AA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MiXplorer – полнофункциональный менеджер файло
 ```bash
 magnet:?xt=urn:btih:7BAF09CFF10DA64357EA1EACF912F006264ADD66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ aCalendar+ Calendar & Tasks - Простой, и очень качественн
 magnet:?xt=urn:btih:2FEB967D24E8B7CB4CD3E97187C372A922E8AE3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Vimage 3.1.2.2 Mod by derrin, REALY [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:47D86052AF0DC3C0B61EF752DED2588D4C646C8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Alarm Clock Pro 2.9.9 [Ru/En]
 magnet:?xt=urn:btih:DCD7C5298592F4812E633F9939028E0B6226822D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Color Grab (Color Detection) - Любите рисовать? Или же тво
 ```bash
 magnet:?xt=urn:btih:881EA281869D53AB81321CAA7DDE8A9BF223C85B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Perfect365 One-Tap Makeover v8.57.17 [Ru/Multi] - создание виртуа�
 magnet:?xt=urn:btih:7EC83A9CC607C37536E77EFE5073650C027A9F54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Modern Combat 4: Zero Hour - новая сюжетная линия популя
 ```bash
 magnet:?xt=urn:btih:25227F10940619A9E96CAA3D1986AA9557B21B44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ odern Combat 3: Fallen Nation - один из лучших и реалистич
 magnet:?xt=urn:btih:582B768F0163A059F5F622880ACF95F9F13E7B61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Family Coloring book  является отличным приложением �
 ```bash
 magnet:?xt=urn:btih:41B26B819324ADD98310BD31CD3E4AD2CBD000FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:41B26B819324ADD98310BD31CD3E4AD2CBD000FF
 magnet:?xt=urn:btih:99A9FC2CBD150670D0AE89913A0CFB350EF35D02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:99A9FC2CBD150670D0AE89913A0CFB350EF35D02
 ```bash
 magnet:?xt=urn:btih:E445B76276583A5481E43C458DB594D06FB93F7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Spotify — один из тех счастливчиков, которые, н�
 magnet:?xt=urn:btih:CF731D73D9AFA005CD424498F3DF8783CE55A5BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Hi-Q MP3 Voice Recorder – бесплатный качественный MP3 д
 ```bash
 magnet:?xt=urn:btih:D918DB60A8DBC9802888C1350FD5510C1F227142
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ SwiftScan (Ранее Scanbot) - это мобильное приложение,
 magnet:?xt=urn:btih:2651E270EA1E8D0DA3B6A916C653F265E290AE4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Tiny Scan: PDF Document Scanner - Теперь преобразовать обы
 ```bash
 magnet:?xt=urn:btih:66196DD8AF756C0BA9FBED3A72F2ECA6A419BB4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Jasi Patcher — патчер для приложений. Программа д
 magnet:?xt=urn:btih:05DF0C42AC927F71F33C8E2097C81325EF184120
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Jeejen - отличный минималистичный лаунчер, с бо
 magnet:?xt=urn:btih:AB8361C6B7CE154B6B66C84FD205BD7CBD469F93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ AirDroid - быстрое, а главное бесплатное приложе
 ```bash
 magnet:?xt=urn:btih:037DE77CEA7E8F0C2868B30AC48EB41EE90BD10E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ ClockWork Tomato v3.7.0 [Ru/En]
 magnet:?xt=urn:btih:089D3FA3DFCE39A7DA3F31732FCC8D791F53663B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Machinarium - интересный квест на андроид, которы�
 ```bash
 magnet:?xt=urn:btih:BA7B0FCC65A7ED309383A21C32A3CE801162B5E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:BA7B0FCC65A7ED309383A21C32A3CE801162B5E9
 magnet:?xt=urn:btih:14FF86D958603267A220F9BBEB3679710712DC07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:14FF86D958603267A220F9BBEB3679710712DC07
 ```bash
 magnet:?xt=urn:btih:AAECFA50D6FA954C65281FCFAB3ED1ED93BED86C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ Robot Warfare — увлекательный многопользователь�
 magnet:?xt=urn:btih:B9B9030FB515CD510AF67E1D1064E2D9F5588C44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Shadow of Death: Dark Knight - Stickman Fighting - стильный слэшер
 magnet:?xt=urn:btih:688017625F72B09A42C45F6B2DD082565D40234F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ AutoResponder for WA / Автоответчик для WhatsApp v1.9.9 [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:D72A2B2CCA871D37152B1AA1A5874FBF8395EBB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

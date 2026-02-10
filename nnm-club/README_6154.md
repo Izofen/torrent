@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:D726DC5C28735871DB996305F68B23F090FAE622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:D726DC5C28735871DB996305F68B23F090FAE622
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:D726DC5C28735871DB996305F68B23F090FAE622
 ```bash
 magnet:?xt=urn:btih:724ECF49835415B3A3A5A704D08E5A2D11C8374D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ C.C. Catch - Strangers By Night (1988) [OGG Vorbis|480 Kbps] <Electronic, Disco,
 magnet:?xt=urn:btih:E6D6268FE783F11FC5EBB136CB5219F5849CEB3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Dark Mirror ov Tragedy - The Lord ov Shadows (2018) [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:FD07281B101E3AE7F44DB83C3205AE400A5D2106
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:FD07281B101E3AE7F44DB83C3205AE400A5D2106
 magnet:?xt=urn:btih:68FF10E16E0EC969432438ED4EAA17088C36E75C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:68FF10E16E0EC969432438ED4EAA17088C36E75C
 ```bash
 magnet:?xt=urn:btih:714DD91517A00FACB8AA4ABB850A6C2E7BE2030F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:714DD91517A00FACB8AA4ABB850A6C2E7BE2030F
 magnet:?xt=urn:btih:9FD520E06B9FEF8C0101697648A06784F5A457A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:9FD520E06B9FEF8C0101697648A06784F5A457A0
 ```bash
 magnet:?xt=urn:btih:6CAD2F6DD11897481665DF5AFF5B5375650C48DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ PrivaZer - полезная утилита, которая поможет вам
 magnet:?xt=urn:btih:9DFB45F122AA04294F8A74ED86FEE3AC486767E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:9DFB45F122AA04294F8A74ED86FEE3AC486767E0
 magnet:?xt=urn:btih:34A3E09D670E371A90EDAEFE68CD5C2C553E1C98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:FDC83761E574B2AEFA0EAD80B27713EE5789DB3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ Oduchu - Road to Home (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
 magnet:?xt=urn:btih:D1A0680C44101DC515E109F8FF0E39B0165D4937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:D1A0680C44101DC515E109F8FF0E39B0165D4937
 ```bash
 magnet:?xt=urn:btih:853D1F68EB6174A299691FC3AEFECE3A7A6E0310
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:853D1F68EB6174A299691FC3AEFECE3A7A6E0310
 magnet:?xt=urn:btih:79B142C96E0FA0C435B22B0ED960D91534942A64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:79B142C96E0FA0C435B22B0ED960D91534942A64
 ```bash
 magnet:?xt=urn:btih:950F0C819609C2960848A79703663A8C6CDA39BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:950F0C819609C2960848A79703663A8C6CDA39BC
 magnet:?xt=urn:btih:CE165E3F361EB6371CCA63D86C136111B09D8896
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:CE165E3F361EB6371CCA63D86C136111B09D8896
 ```bash
 magnet:?xt=urn:btih:ACB778A492D23FED7867E8958277652BB33E2C7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ Girl Genius: Adventures In Castle Heterodyne (2023) [Multi] (1.0.3a) Scene Skidr
 magnet:?xt=urn:btih:677FA7B913C35F56A196DE9208E46B96B01582C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:677FA7B913C35F56A196DE9208E46B96B01582C4
 ```bash
 magnet:?xt=urn:btih:450D753C9EE4D2A54EB48EA4BD1088269B708866
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ Molly Medusa: Queen of Spit (2023) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:738A1D34026AAC6314AC0E10CA9A5E31911C7111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:738A1D34026AAC6314AC0E10CA9A5E31911C7111
 magnet:?xt=urn:btih:6B51F20B7F907FE94CFC4A2C3438C436F20CFD3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:6B51F20B7F907FE94CFC4A2C3438C436F20CFD3C
 ```bash
 magnet:?xt=urn:btih:332B8A1F3A166912477DF26C2688DEDE56C3AD91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ magnet:?xt=urn:btih:332B8A1F3A166912477DF26C2688DEDE56C3AD91
 magnet:?xt=urn:btih:8526CD3E7DEBA0BA6E71BFEE4448D6ECC959A67D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ magnet:?xt=urn:btih:8526CD3E7DEBA0BA6E71BFEE4448D6ECC959A67D
 magnet:?xt=urn:btih:6CFA2395B7DB964AD2D53AC709F3807BE8E3D172
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:6CFA2395B7DB964AD2D53AC709F3807BE8E3D172
 ```bash
 magnet:?xt=urn:btih:BE8735880D4E2D060E7A04307F785C33D6568505
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

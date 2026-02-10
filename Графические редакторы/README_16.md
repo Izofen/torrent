@@ -20,6 +20,8 @@ Ashampoo Photo Commander 17 - это мощное решение для прос
 magnet:?xt=urn:btih:DA1C8157C2C7ABCB2697E7C6B93DE16FE6436140
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Hornil StylePix 3.0.7.0 [Multi/Ru]
 magnet:?xt=urn:btih:928F320AA06FCCB86024202344C162633B9DFF7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ SkinFiner - программа для редактирования фотогр�
 ```bash
 magnet:?xt=urn:btih:25A20BF97EE9170A96E5F2E9A628379C0423F6EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ Apowersoft Screen Capture Pro – многофункциональная про�
 magnet:?xt=urn:btih:2C34208598A5B6409832D397124C8DE6A75B19A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Cyberlink PhotoDirector Ultra — многофункциональный ред�
 ```bash
 magnet:?xt=urn:btih:28EF5DEE5D993F0A138D9A138A2B9A5C577A2608
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Greenfish Icon Editor Pro является мощным инструментом
 magnet:?xt=urn:btih:2AC77A745328FE185F311AA520C2E7B705348AA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ ArtRage настоящая художественная студия для по
 ```bash
 magnet:?xt=urn:btih:8B436F6DF6E186D2C5A728B378A5EED95DB49DBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Insofta Cover Commander позволяет создавать профессио
 magnet:?xt=urn:btih:7662AAE515A9A4244224E552CB1062E53FC4E25C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Image Tuner - простая в использовании утилита для
 ```bash
 magnet:?xt=urn:btih:5770E400D7E606C668CB3A66E3C9124EF0796A20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:5770E400D7E606C668CB3A66E3C9124EF0796A20
 magnet:?xt=urn:btih:2812D639E66BB09F7932CC0424DC1C5EF7A2448D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ DxO ViewPoint – это новое программное решение пос
 ```bash
 magnet:?xt=urn:btih:995276EE72095498D03F72316D216EDC711E4EEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ AMS ФотоМОНТАЖ – редактор фото с поддержкой �
 magnet:?xt=urn:btih:F44DBCA07B90F801257FA8E5DE6011F7AFDC0669
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ darktable — фоторедактор, предназначенный для о
 ```bash
 magnet:?xt=urn:btih:73836B176ECDB5CAB3492B0F5602A24E47C9488D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ RapidRAW — это современная высокопроизводител�
 magnet:?xt=urn:btih:CA74AA54F33B13FE531513F27A539AD5712F058A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ Smart Color Splash 1.0.0 [Rus]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ Affinity — полностью бесплатный с недавнего вр�
 magnet:?xt=urn:btih:B2E15C05B16C89B5F5F2FCA0BA6CBFB39C68C6E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ DxO PhotoLab 9.2.0 build 524 RePack by KpoJIuK [Multi]
 ```bash
 magnet:?xt=urn:btih:74719A896060E49835934F181B12B6FD245F7AE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ Capture One - один из лучших профессиональных кон
 magnet:?xt=urn:btih:B36D4587536BB629477F9C467286D25ADC39B4FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ Capture One - один из лучших профессиональных кон
 ```bash
 magnet:?xt=urn:btih:B803CBE58DB12B50B641FA940582D27EC8544BBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ Affinity — полностью бесплатный с недавнего вр�
 magnet:?xt=urn:btih:91A6CB4FAB1B61D6A8868AB33E9411CC9EF684CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:3FB86C8F39CC1241AE7D957A785B3B5E1BCBBE66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ FireAlpaca - это достаточно простой, но удобный г�
 magnet:?xt=urn:btih:A0CF4613026C0035B814DC4713F2F311991C2FA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ Paint.NET - Простой, но мощный и удобный редактор
 ```bash
 magnet:?xt=urn:btih:41F732D43AF7E3C9DA2C7CFADACF8F5AD071B41B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ Corel выпустили Painter 2020, обновление софта для ц
 ```bash
 magnet:?xt=urn:btih:AD0C34F223DAC78BB09F8AF99749DF3F54F5E3B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +660,8 @@ Corel Painter 2019 19.1.0.487 [En]
 magnet:?xt=urn:btih:E56D5AAC3F37A7621F56BD23F1558E8A5BA30361
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ Corel Painter 2018 меняет представление о реализме �
 ```bash
 magnet:?xt=urn:btih:B9F24935963F08E5FCCF99497D8CCF382260A3DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

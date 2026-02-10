@@ -19,6 +19,8 @@ Lovecraft’s Untold Stories - это экшен-роглайт с элемен�
 magnet:?xt=urn:btih:13446BB378831EA6CC12BBC4814EDA685A173701
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MXGP 2020 - The Official Motocross Videogame (2020) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:3BC5BB1626D0717B4494BD560BFCC70FD4E3FD7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Tell Me Why (2020) [Ru/Multi] (5510896) Repack xatab [18+]
 magnet:?xt=urn:btih:2088A1F859B2FD89135C806CBDBD57AAF6840935
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Folk Hero (2023) [Ru/Multi] (1.0.9) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:7F87F7A6A3A124D026B97B82E657D9AA7674FD37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ YesterMorrow (2020) [Ru/Multi] (1.0.4.1) License GOG
 magnet:?xt=urn:btih:487463DC1726A31968BF897C7AA8AF7F9447627A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Legacy: Witch Island 3 / Наследие: Остров ведьмы 3 (2020) [R
 ```bash
 magnet:?xt=urn:btih:000521EECB8C0A5C9994F352C51E9289F70079C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Enchanted Kingdom 8: Master of Riddles / Зачарованное королев
 magnet:?xt=urn:btih:A1917DABB4F37F58BF262D631C9E774DAE076BFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Dark Deity II (2) (2025) [En] (1.14) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:52371B8F896C926A424A120D33E11BC16BB90BC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Keeper (2025) [Ru/Multi] (1.121.2146.0) Repack FitGirl
 magnet:?xt=urn:btih:5729A590EB5A82A29F60124EF40A2A609BBD4A92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Keeper (2025) [Ru/Multi] (1.121.2146.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2E1726537AE88902B08B49DBB9D351A193E11996
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Firegirl: Hack 'n Splash Rescue (2021) [Ru/Multi] (1.017) License GOG
 magnet:?xt=urn:btih:883A164ABD163C77F20AB0A618B5F1308152847E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Overcooked возвращается с новой порцией безумно�
 ```bash
 magnet:?xt=urn:btih:12287F4DA5D4381080000E0F1507DE528CBE765E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Order of Battle: World War II – это первая ласточка в сер
 magnet:?xt=urn:btih:8ADF4BBAE81E5447077CCF04FD4170D2AA3E02B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Fantasy General II (2): Invasion (2019) [Ru/Multi] (01.02.12913.01/dlc) License 
 ```bash
 magnet:?xt=urn:btih:79937F58670B5CC947E85A4CC2573A419925A921
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ El Hijo - A Wild West Tale (2020) [Ru/Multi] (1.02(210331).1) License GOG
 magnet:?xt=urn:btih:642BB970FD33FAD3A2D010AEA8B1C3A23F3151D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ SUPERHOT: MIND CONTROL DELETE (2020) [Ru/Multi] (1.0.8b plus l1.1.36) License GO
 ```bash
 magnet:?xt=urn:btih:AAF87F6F993154432266F6E5A4918F6219085C19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Little Big Workshop (2019) [Ru/Multi] (2.0.14042.1/dlc) License GOG
 magnet:?xt=urn:btih:3D74DCBE99EDC4E866D3B69E233B7068E8A20304
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Keeper (2025) [Ru/Multi] (1.121.2146.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:D333DF3E862B95CCBAD71ECFFA63DBF8F60A3CC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Bridge to Another World 7: Secrets of the Nutcracker (2020) [En] (1.0) Unofficia
 magnet:?xt=urn:btih:A4184218C171DE58E510F5A24DFB2D385220988E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ One Eleven (2023) [Ru/En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B6E400F25CF0EB95E2D3E50D90883641EB31D71E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Filthy Us (2023) [Multi] (1.0) License GOG [Complete Edition]
 magnet:?xt=urn:btih:657D964A06E57B00BE4BC92CD8D76169688AFD6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Bridge to Another World 9: Christmas Flight (2021) [En] (1.0) Unofficial [Collec
 ```bash
 magnet:?xt=urn:btih:D28A6435BF99A84FB17E4A9BF16FDDF232D33033
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Cardaclysm: Shards of the Four (2020) [Ru/Multi] (1.1.2.6_fix) License GOG
 magnet:?xt=urn:btih:0AFBDF5B73684841B58D8F813BB77566C1CE8648
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ A Short Hike (2019) [Multi] (1.9_v3) License GOG
 ```bash
 magnet:?xt=urn:btih:7B86798A1B51EA259F1A50E300EAB468975B5386
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ SUPERHOT - это шутер от первого лица, где время д�
 magnet:?xt=urn:btih:E53FFC89378A982FCEA5996586C49AB5F54C7E86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Coma 2: Vicious Sisters (2020) [Ru/Multi] (1.0.6 fix/dlc) License GOG [Delux
 ```bash
 magnet:?xt=urn:btih:10A6DA9D384906EC4A167297F8F88D3C3A6B5D0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

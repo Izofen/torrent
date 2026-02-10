@@ -19,6 +19,8 @@ Udemy, Zaid Sabih | The Ultimate Dark Web, Anonymity, Privacy & Security Course 
 magnet:?xt=urn:btih:C4391393A1EE8BE32DDB9D8D54D495F2AADBA44F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Blender Cloud | Процедурный шейдинг в Blender 2.8 и 2.9 / Pr
 ```bash
 magnet:?xt=urn:btih:6B2394B451B51593ED70BFC2F540C527CBE457BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:6B2394B451B51593ED70BFC2F540C527CBE457BA
 magnet:?xt=urn:btih:E624A8C77591DC83EF28E69F57C53F89C8822DDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:E624A8C77591DC83EF28E69F57C53F89C8822DDF
 ```bash
 magnet:?xt=urn:btih:C1DEF40494F4E5FDE00C9E5C9C2F963BC65D509A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Geekbrains, Денис Катков и др. | Продуктовая анали
 magnet:?xt=urn:btih:F25D9A4F7D37AB4C61B104C2D04D8B15E5A02CFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:F25D9A4F7D37AB4C61B104C2D04D8B15E5A02CFB
 magnet:?xt=urn:btih:C1D5A94D572504D0A1EDEAA697BF16867B7E075D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:C1D5A94D572504D0A1EDEAA697BF16867B7E075D
 magnet:?xt=urn:btih:61653081A2A785DB8A6D1ECA8F6E83047BDA3394
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ James Paick | Environment Design 1 James Paick (2012) PCRec [En, Ru]
 magnet:?xt=urn:btih:2BB3F317A16DF7D5D232418479B88B848B1B9BCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:2BB3F317A16DF7D5D232418479B88B848B1B9BCF
 ```bash
 magnet:?xt=urn:btih:89C85279E1F0978852890E3CD45FFCE6B871FDBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ Dustin Hoffman | Уроки актёрского мастерства от Да�
 magnet:?xt=urn:btih:034B44462B22225A10F030BFEF75FEE39F341AA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ Creative Writing School, Павел Миронов | Сценарист виде
 ```bash
 magnet:?xt=urn:btih:A27464E5137366BBE9D96703684033AFE422956D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ Kent Trammell | Short Film Character Production in Blender (2013) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:7DB908C5DFF0B60000A1DB1CD9D3DF81E98A8404
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:7DB908C5DFF0B60000A1DB1CD9D3DF81E98A8404
 magnet:?xt=urn:btih:0C4C35E5F2E3BEA520DAEFD789941BC7537FDFC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +379,8 @@ Code w / Node - это курс для веб-разработчиков, кот
 magnet:?xt=urn:btih:3BCC64A195B5EAC3F4E7B9A4F9261FB24BE5EB4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ Chung Kan | 3D Creature Modeling for Production (2015) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:430C141DA4300C1E063E9D601AE91232F3E775F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ Jonathan Hamilton | Painting with Ambient occlusion (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:7EB012C9155FC09B8C734DCE1B60FD83DC6D2B83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +461,8 @@ Jonathan Lampel | Creating Plants in Blender (2016) PCRec [En, Ru]
 magnet:?xt=urn:btih:0A7904819C4926203DE547C1D7D96512464E8E62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ Udemy, Thomas Wiesner | The Complete Docker Bootcamp for Web Developers (2020) P
 ```bash
 magnet:?xt=urn:btih:BDCF5009152756950B46672231D09EE2B0BD2E0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +518,8 @@ magnet:?xt=urn:btih:BDCF5009152756950B46672231D09EE2B0BD2E0C
 magnet:?xt=urn:btih:A2E0C009BA5C0F7D164AA400A41E4BA4E204CF94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +543,8 @@ Michael Rigley | Design for Production: Animation (2017) PCRec
 ```bash
 magnet:?xt=urn:btih:40A3EF3598B6C7C0E717F431D9A1350590652778
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +573,8 @@ magnet:?xt=urn:btih:40A3EF3598B6C7C0E717F431D9A1350590652778
 magnet:?xt=urn:btih:0EF99D13C62319108F20C8DCB172552FF6594AE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +602,8 @@ magnet:?xt=urn:btih:0EF99D13C62319108F20C8DCB172552FF6594AE2
 magnet:?xt=urn:btih:B4D20086A2B5D996CA0CEEBC13F7FCADB7DFB1B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ magnet:?xt=urn:btih:B4D20086A2B5D996CA0CEEBC13F7FCADB7DFB1B0
 ```bash
 magnet:?xt=urn:btih:ADF2C2D6E36619A25811B88228A22ACA9AF6A050
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +656,8 @@ magnet:?xt=urn:btih:ADF2C2D6E36619A25811B88228A22ACA9AF6A050
 magnet:?xt=urn:btih:7908A17D587693D5C28F2DA6BB7325FDEB95D97E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +683,8 @@ magnet:?xt=urn:btih:7908A17D587693D5C28F2DA6BB7325FDEB95D97E
 ```bash
 magnet:?xt=urn:btih:F77044AD5DCF5DF70ABB480E46F41150949806D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -662,6 +712,8 @@ IQ English, Марина Озерова | IQ Speak + IQ English: Полный к
 ```bash
 magnet:?xt=urn:btih:7E1E5F049E0A93638BC64C551BA7F5577118D402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

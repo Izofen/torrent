@@ -19,6 +19,8 @@ NGW: Удивительные пауки / Incredible spiders (2015) HDTV [H.264
 magnet:?xt=urn:btih:718EF449375D45C7C439EEB66DB95CEFFDCA94FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NGW: Фантастические существа Мадагаскара / Mada
 ```bash
 magnet:?xt=urn:btih:C1AADE738CA1BA9E46852E45F4CD48CE17A3F380
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NGW: Глубоководные гиганты (Гиганты синей без
 magnet:?xt=urn:btih:70FF5EA8C6528935C482E148A4BFFEF5E5669C8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NGW: Дикая природа Китая. Царство дикой приро�
 ```bash
 magnet:?xt=urn:btih:4938A46B29DE1D40920226C85C96527FA9434E5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NGW: Воздушное сафари. Австралия / Sky Safari. Australia
 magnet:?xt=urn:btih:829D1B90D2557CB1B53D7B015444FA631F507C1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:829D1B90D2557CB1B53D7B015444FA631F507C1D
 ```bash
 magnet:?xt=urn:btih:6AC7F188BB9CC6FD8320D3F9F9989AA05FC49740
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:6AC7F188BB9CC6FD8320D3F9F9989AA05FC49740
 magnet:?xt=urn:btih:993DD6FF443A41AA8CE1490E20267FBB5A0EADD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ N.G. Нацистские тайны Второй мировой / Nazi weird wa
 ```bash
 magnet:?xt=urn:btih:D6AC0C960B23BAC7D84C17F4161A68B5B4E4F602
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ NGW: Потерянные акулы острова Пасхи / Lost sharks of 
 magnet:?xt=urn:btih:37493C716C6AEC12264336AC2C191C412C9041BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ NG: Осушить океан: глубокое погружение. Затон
 ```bash
 magnet:?xt=urn:btih:594CD01FD6BEB1735C4479342B1489AEDB87A924
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ NG: Гиганты мира животных / How Big Can It Get? (2011) WEB-DL
 magnet:?xt=urn:btih:4D61985F31225AF0C1163E77AE2CC85170C4B7EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ NGW: Дикая природа Новой Зеландии: затерянный
 ```bash
 magnet:?xt=urn:btih:34008F213B7B2FE666A946F90EA1FB0D1920DD7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ NG: В поисках неуловимой кошки / Hunt for the Shadow Cat 
 magnet:?xt=urn:btih:9CE22FFE3C4467CAC7227E483E4FD0CE21EA7DBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ NG: Неуловимая кошка / The Phantom Cat (2012) HDTV [H.264/1080i-L
 magnet:?xt=urn:btih:0504DDD57D9DB355E62476BCE4298B97DD56C438
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +382,8 @@ NG: Рекорд / Breaking 2 (2017) HDTV [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:6AF2746822F2D853D5B99717FCCC333681C91CDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ NGW: Дикая Монголия: страна крайностей. Степь 
 magnet:?xt=urn:btih:E4CCBEE60592D4D2D09E82DEBDA14629D3DA6773
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ National Geographic. Королева леопардов / Leopard Queen (2010) 
 ```bash
 magnet:?xt=urn:btih:11463C1E62BEA59B73915096E43AEE6258B04A6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ NGW: Планета хищников. Идеальные убийцы / Planet C
 magnet:?xt=urn:btih:52F236B2C32223B5C0BAA11CFAA33191B8F7C492
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ NG: Дайан Фосси. Секреты в тумане / Dian Fossey. Secrets
 ```bash
 magnet:?xt=urn:btih:918C85DFA9885B0368C10A020C9FE531A2A9F581
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ NGW: Смертоносная Африка. Саванна / Africa's Deadly Kin
 magnet:?xt=urn:btih:F94AE46B2BDEA7E9E88BC5262D21F66923643F88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ magnet:?xt=urn:btih:F94AE46B2BDEA7E9E88BC5262D21F66923643F88
 ```bash
 magnet:?xt=urn:btih:6560D0D28DE49630BB8B52C43C0CDC317729443E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ NG: Забытые персонажи Библии / Lost Face of the Bible (201
 magnet:?xt=urn:btih:3F1A234B5DBF352FD4E4EC4569DCF039EB25D478
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ NG: Проект: Динозавр / T.Rex: Autopsy (2015) HDTV [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:DE9496B3A4FB4BDA95001735534A086F9D73D7D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ NG: Прорыв / Breakthrough (2015) SATRip (Серии 1-6 из 6)
 magnet:?xt=urn:btih:9C1CF5DE0288166692F00BB6ED90E4B7F6793DDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ NG: Кусать, жалить, убивать / Bite, Sting, Kill (2017) HDTVRi
 magnet:?xt=urn:btih:250A9D8B94C6CB55C2CA8992F96F7A794E03D0E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ NG: Человекообразные обезьяны / Human Ape (2017) HDTV [H
 ```bash
 magnet:?xt=urn:btih:048F93714856C6417F677EA27F43D00467C7F0E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

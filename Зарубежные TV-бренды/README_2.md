@@ -19,6 +19,8 @@ BBC. Большой Барьерный риф с Дэвидом Аттенбор
 magnet:?xt=urn:btih:007FB67330726A42372B0CFEB5D034854A410747
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC: Грязные города / Filthy Cities (2011) HDTV [H.264/1080i] (се
 ```bash
 magnet:?xt=urn:btih:0B005D286C5720046C1E8745C4D652BCD5A7C6D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG. Приключения настоящего Флика / A Real Bug's Life (
 magnet:?xt=urn:btih:C5BF988886D678FD8ADF3AB18BA2AB226347D728
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BBC: Калигула. Что это было / Caligula with Mary Beard (2013) 
 ```bash
 magnet:?xt=urn:btih:099FC9FE2899DC8F3EBD100BCCB0C24EEBFFCCBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BBC: Апокалипсис динозавров / Dinosaur Apocalypse (2022) WE
 magnet:?xt=urn:btih:ECD1533720B1788B1C211295BF0B871DEEA1A21B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:ECD1533720B1788B1C211295BF0B871DEEA1A21B
 ```bash
 magnet:?xt=urn:btih:FD405A88B542E1437A120D5E0EB37EB8771FA96E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ BBC: Нацизм - Предостережение истории / The Nazis: A
 magnet:?xt=urn:btih:3687013FEA3675800DFF80984842ACFA50E877FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ NG. Приключения настоящего Флика / A Real Bug's Life (
 ```bash
 magnet:?xt=urn:btih:4CEEAF687D635AE0AD0473FAFA82C5BAE0375B08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ BBC. 1929: Великий крах / 1929: The Great Crash (2009) SATRip
 magnet:?xt=urn:btih:F8371D59474BB5F4486BF4BFE7F2227239DD0832
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ BBC. Horizon: Сколько людей может жить на Земле? / H
 ```bash
 magnet:?xt=urn:btih:BFDCBC47246DD91081E4B524BB979A06F48DD65E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ BBC. Древние державы / Ancient Powers (2023) WEB-DL [H.264/1080p] 
 magnet:?xt=urn:btih:796BCFB387CCFD3560536B12DD1C3BD3AD996551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ NG: Суперсооружения древности / Ancient Megastructures (
 ```bash
 magnet:?xt=urn:btih:88A7EC6667E4451EEFCE409E0DACEC64723D3480
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:88A7EC6667E4451EEFCE409E0DACEC64723D3480
 magnet:?xt=urn:btih:50BF565C5349ADB79245D10D37449B1963E800A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ History Channel: Хватай не глядя / Storage Wars (2021) PCRec [H.264
 ```bash
 magnet:?xt=urn:btih:CBDEAB4DD77F590055B7CC7DDE3293F2E67AF390
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:CBDEAB4DD77F590055B7CC7DDE3293F2E67AF390
 magnet:?xt=urn:btih:EAB4CE79FE3D1E901AD3577816EAAD55A9BF2CB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ BBC: Секреты Рейха. Тайны нацизма / Secrets of World War
 ```bash
 magnet:?xt=urn:btih:EC01875A15FB02A9EB89C265750E6E6BB8FBBC0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ BBC: Солнечная система / Solar System (2024) BDRip [H.264/1080p]
 magnet:?xt=urn:btih:12262B84E953C1E21BCAE2E4C6CA5B7B0E714F80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ BBC: В какой Вселенной мы находимся? / Which Universe 
 ```bash
 magnet:?xt=urn:btih:C4390A4CD227EB0EC77175BFB6A878CCE044D003
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:C4390A4CD227EB0EC77175BFB6A878CCE044D003
 magnet:?xt=urn:btih:28123A1D0920388EE7101AEC912FE90D123DC505
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ BBC. Земля / Earth (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-
 ```bash
 magnet:?xt=urn:btih:309E5B2DC9E32F810ED36E4C52BE7942ECF106B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ BBC. История математики / The Story of Maths (2008) SATRip (4 �
 magnet:?xt=urn:btih:AD9A4F16B19E164BBE3DCDB4DAA5BEE4B119BA98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ History Channel: Филадельфийский эксперимент / Vanishi
 ```bash
 magnet:?xt=urn:btih:A3EFC8D23A87041F522C2E9E4561CF35D7DEACB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ magnet:?xt=urn:btih:A3EFC8D23A87041F522C2E9E4561CF35D7DEACB0
 magnet:?xt=urn:btih:354C27777C133D87491A36691262A2C669EA9788
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ NG: Конкистадоры: Взлет и падение / Conquistadors: The 
 ```bash
 magnet:?xt=urn:btih:4FE503CDB620999CA9768D0DA2B42F01069D7A58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ History Channel: Древние пришельцы / Ancient Aliens (2024) WEB-D
 magnet:?xt=urn:btih:A66C60804711713955713E4A3A11BB6A7CD11051
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ magnet:?xt=urn:btih:A66C60804711713955713E4A3A11BB6A7CD11051
 ```bash
 magnet:?xt=urn:btih:BBBD6117CC89E9B581D7724834888DBB0F4CBE07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

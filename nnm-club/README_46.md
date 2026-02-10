@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D091051E76BC677C9C54A5594696219A11908AEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Adobe Photoshop — это приложение для редактирован�
 ```bash
 magnet:?xt=urn:btih:6F2851C639ABB959E9F7285E1D91BCE210894270
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Tourist Bus Simulator (2018) [Ru/Multi] (1.10.81093/dlc) Repack seleZen
 magnet:?xt=urn:btih:121D8CD1799F3DA71072007BA04A7D8BE66D8F1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ ENDLESS Legend 2 – это фэнтезийная стратегия, где в
 ```bash
 magnet:?xt=urn:btih:FC3D23A8679C57AD2E65B6B7CA77EB478EA61CC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:FC3D23A8679C57AD2E65B6B7CA77EB478EA61CC2
 magnet:?xt=urn:btih:2EA48A4A10FEBA97A586BC7A576E6FD4D5493ED2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ v2rayN — это универсальный инструмент VPN и про�
 ```bash
 magnet:?xt=urn:btih:BFA09326E3F1BE0459E2EEF021079192B398DC93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Lightkeeper - психологический хоррор, действие 
 magnet:?xt=urn:btih:3E92FBCCB73F0B5D3921FADFD3622F62BA0DEFD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Turkey! / Turkey! Time to Strike / Tёpки! [2025, TV, 12] WEBRip 720p raw
 ```bash
 magnet:?xt=urn:btih:307945DBA6A8BCCB63449ABDE50640A4FA277A99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:307945DBA6A8BCCB63449ABDE50640A4FA277A99
 magnet:?xt=urn:btih:073656441E5D0501861A49509A2D267656313C4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:073656441E5D0501861A49509A2D267656313C4A
 magnet:?xt=urn:btih:C136A93984C47264A85955781BF1029E1A6E9FE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ magnet:?xt=urn:btih:C136A93984C47264A85955781BF1029E1A6E9FE2
 ```bash
 magnet:?xt=urn:btih:A0D4AF61ABEF34194F27EF2A095E9D3FB7BBD66D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:A0D4AF61ABEF34194F27EF2A095E9D3FB7BBD66D
 magnet:?xt=urn:btih:05F9B9EE71C92804152443465839865E0216BA5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:05F9B9EE71C92804152443465839865E0216BA5F
 ```bash
 magnet:?xt=urn:btih:57A2A4EF2F974764F25A4FC67D101A9F06744579
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Kingdom Come: Deliverance II – это продолжение культово
 magnet:?xt=urn:btih:CBB08FBF03CE948F1DCB6CF5EBD28C05DDAE396F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:CBB08FBF03CE948F1DCB6CF5EBD28C05DDAE396F
 ```bash
 magnet:?xt=urn:btih:47D6023E35EAEF4C74E4BED92C21DA11120B9FEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Commandos: Origins (2025) [Ru/Multi] (1.4.1.85803/dlc) Repack Let'sРlay [Deluxe
 magnet:?xt=urn:btih:BCB3514F10AD878CCF1E6647A7FA3CBCDFE1D7A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:BCB3514F10AD878CCF1E6647A7FA3CBCDFE1D7A4
 ```bash
 magnet:?xt=urn:btih:A2FE3136D5D3F7642B46699EC31A8CA83D9ED6DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ WUCHANG: Fallen Feathers - это ролевая игра в жанре souls-li
 magnet:?xt=urn:btih:A9FED3A167E7192243CFDD1BB913CA2B2577A9C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:A9FED3A167E7192243CFDD1BB913CA2B2577A9C0
 ```bash
 magnet:?xt=urn:btih:D485A0AF0E8204CBF9077B7B17571E9CBC0DECED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3816947) Repack Let'sРlay
 magnet:?xt=urn:btih:B352C35FE1C2EFE167DD33A1BEC65BCFBD5B6001
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:B352C35FE1C2EFE167DD33A1BEC65BCFBD5B6001
 ```bash
 magnet:?xt=urn:btih:2567C94F868EC4AD163DF09D084BF224747845AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:2567C94F868EC4AD163DF09D084BF224747845AC
 magnet:?xt=urn:btih:592098CA5D4CD845796B09579C17B890740FA0A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:592098CA5D4CD845796B09579C17B890740FA0A0
 ```bash
 magnet:?xt=urn:btih:457408FB24A7A4FA8BDA36FC8C79DAFEC2424AA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ magnet:?xt=urn:btih:457408FB24A7A4FA8BDA36FC8C79DAFEC2424AA2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ magnet:?xt=urn:btih:457408FB24A7A4FA8BDA36FC8C79DAFEC2424AA2
 magnet:?xt=urn:btih:D4308EFA22C46742819FDDCE72AF380FBD383CDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ The Legend of Heroes: Trails through Daybreak II (2025) [Multi] (1.2.15/dlc) Lic
 ```bash
 magnet:?xt=urn:btih:C1E4783D9D1A1B7541339459461E4F1F2CA0E45B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

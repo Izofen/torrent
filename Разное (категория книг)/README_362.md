@@ -1,3 +1,29 @@
+###  Публикация: 925320   (539105) от 07.08.2015
+
+Людмила Волок | Афонская кухня (2015) [FB2]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539105.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Афонская кухня» – понятие несколько условное. На самой Святой Горе, конечно же, не задаются целью систематизировать и подогнать под некие каноны и правила местные кулинарные традиции. В основе этих традиций лежат, во-первых, православные принципы принятия пищи; а во-вторых – доступность продуктов, которыми богаты щедрые моря и земли Греции. Мы принимаем это условное (   Читать дальше...   )Жанр: КулинарияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A55A21235521A54FF60EC2F4E24F9821E3AD5DD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925637   (539207) от 07.08.2015
 
 Даниэль Герен | Анархизм: от теории к практике (2013) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:D320F714C1FDC9517964C3ED890F55058025F325
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:D320F714C1FDC9517964C3ED890F55058025F325
 ```bash
 magnet:?xt=urn:btih:0602F96E3B139FC43F339DA8556ECD1CF415D1A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:0602F96E3B139FC43F339DA8556ECD1CF415D1A0
 magnet:?xt=urn:btih:98FFD063F69B39E4900D9F2E101D17286A837A1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:98FFD063F69B39E4900D9F2E101D17286A837A1D
 ```bash
 magnet:?xt=urn:btih:5A670B545C3295299FE49F58431C9BED6F536896
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:5A670B545C3295299FE49F58431C9BED6F536896
 magnet:?xt=urn:btih:1D00F156A86F2161C609B5EDC17C29B9E8B5744D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:1D00F156A86F2161C609B5EDC17C29B9E8B5744D
 ```bash
 magnet:?xt=urn:btih:9991D3BF3116901871C1F942641F2A89FE3E214A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:9991D3BF3116901871C1F942641F2A89FE3E214A
 magnet:?xt=urn:btih:9BD270E49DA9588416FC3571D118A9870FE3DA0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:9BD270E49DA9588416FC3571D118A9870FE3DA0B
 ```bash
 magnet:?xt=urn:btih:D120BE11C0682A1DF86DCD52205E2006204354C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:D120BE11C0682A1DF86DCD52205E2006204354C1
 magnet:?xt=urn:btih:A0D0FC77E3732A9F4C707900BC42785EE1F96383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:A0D0FC77E3732A9F4C707900BC42785EE1F96383
 ```bash
 magnet:?xt=urn:btih:2F64E7F5B5735C625F2E839B06990D0042F83C48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:2F64E7F5B5735C625F2E839B06990D0042F83C48
 magnet:?xt=urn:btih:535E0755BFC73CC4DEC054891FF5B419672BB741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:535E0755BFC73CC4DEC054891FF5B419672BB741
 ```bash
 magnet:?xt=urn:btih:DF7C9AA118687F01C17E8979D94F06107DDD4C13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:DF7C9AA118687F01C17E8979D94F06107DDD4C13
 magnet:?xt=urn:btih:5BE5EDDBEB8D5B8268ED54DB1FEE2F09B79FFDC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:5BE5EDDBEB8D5B8268ED54DB1FEE2F09B79FFDC6
 ```bash
 magnet:?xt=urn:btih:1327093FD3769778A1010EDDFADD30C6CF0653F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:1327093FD3769778A1010EDDFADD30C6CF0653F7
 magnet:?xt=urn:btih:6DFEC0E32C673DA3089BD90FD4197DA7E64D544E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:6DFEC0E32C673DA3089BD90FD4197DA7E64D544E
 magnet:?xt=urn:btih:9B3235411948F92B44ABDC9775E5F3B6FB5B2385
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:9B3235411948F92B44ABDC9775E5F3B6FB5B2385
 ```bash
 magnet:?xt=urn:btih:A563344B366B8C454CED9F81E6C5BDAD8112F3E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:A563344B366B8C454CED9F81E6C5BDAD8112F3E0
 magnet:?xt=urn:btih:97F7E2D20B7CF484FCFDE7F7609DDE801E94470F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:97F7E2D20B7CF484FCFDE7F7609DDE801E94470F
 ```bash
 magnet:?xt=urn:btih:D4AB86974583EF8F98EAD2C4530335C1D30543A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:D4AB86974583EF8F98EAD2C4530335C1D30543A8
 magnet:?xt=urn:btih:A78DCA48751FCE2B639A09089DA3AA5BBDFB55F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:A78DCA48751FCE2B639A09089DA3AA5BBDFB55F0
 ```bash
 magnet:?xt=urn:btih:F37214FA105DA3FD4D2F4A2371115A2FCDE68362
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:F37214FA105DA3FD4D2F4A2371115A2FCDE68362
 magnet:?xt=urn:btih:751312579F4E0F0D565AAE2AA26B1560CB28C477
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:751312579F4E0F0D565AAE2AA26B1560CB28C477
 ```bash
 magnet:?xt=urn:btih:4BD7F8CE7FDCD0537D0DB66CFC83593760ADC647
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:4BD7F8CE7FDCD0537D0DB66CFC83593760ADC647
 magnet:?xt=urn:btih:BAF92A314D1E4996B3D3502580D162747DAF7D3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,29 +683,7 @@ magnet:?xt=urn:btih:BAF92A314D1E4996B3D3502580D162747DAF7D3C
 magnet:?xt=urn:btih:599A02601262F8AEBBD645B1688047B9548601A6
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925244   (540832) от 06.08.2015
-
-Дэвид ди Салво | Быстрые решения не приводят к успеху. Пойми, что хочет твой мозг, и сделай наоборот (2014) [FB2, RTF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему мы заведомо выбираем то, что согласуется с нашими сиюминутными желаниями, но ставит крест на далеко идущих целях? Почему мы охотно поддаемся искушениям, от которых так упорно пытались отказаться? Почему мы склонны придавать смысл обыкновенным совпадениям? Дело в том, что наш мозг не любит напрягаться. Ему нравятся готовые схемы, знакомые шаблоны, определенность (   Читать дальше...   )Жанр: Практическая психологияФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE31983C2677E4E8018C3897BF9AE457204F69D4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

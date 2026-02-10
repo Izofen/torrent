@@ -21,6 +21,8 @@ Vertex Workshop, Ackeem Durrant | Character Creation For Games by Ackeem Durrant
 magnet:?xt=urn:btih:5CBC4FA7B9DBA750E47BBDFF1A36489AE3F98885
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:5CBC4FA7B9DBA750E47BBDFF1A36489AE3F98885
 ```bash
 magnet:?xt=urn:btih:EF332E2B12BD68882FE7AECF50F8446B0BA42D47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Yiihuu, wingfox, Zaoeyo | Masterclass Motion Graphic Animation in Cinema 4D (202
 magnet:?xt=urn:btih:8CFBE18C732E023BA85876DE2103E56163F21310
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ The Art of Aaron Blaise, Aaron Blaise | How to Draw: Drawing Human Anatomy (2016
 ```bash
 magnet:?xt=urn:btih:18E3B8221F9FA49E800AC273E1C577EA2FECA207
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Thinknetica Pro, Виктор Маслов | Автоматизация тест
 magnet:?xt=urn:btih:ADFCD5EAD5FB675B31BB453E0089C1BD62160862
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ CGMA, Sean Mcewan | Procedural Modeling for Production in Houdini (2020) PCRec [
 ```bash
 magnet:?xt=urn:btih:95D869027D4C5EDE211348CC8FB0500EA6B203AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Skillshare, Darrin Lile | Create a Victorian Room with Blender and Substance Pai
 magnet:?xt=urn:btih:D1A53288D8145537A9746308B15FDAD4AD8678ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Mackley Studios, Chris Tedin | Autodesk Maya Mythical Creature Animation (2017) 
 magnet:?xt=urn:btih:BC8684932457BAA495A80D99A66C4E6D12F07A0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Gumroad, Zak Boxall | REALISTIC Creature Texturing Painting Tutorial Using Mari 
 ```bash
 magnet:?xt=urn:btih:F5A4DE3206D703C9B50FB2626B26CEB7948394A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:F5A4DE3206D703C9B50FB2626B26CEB7948394A0
 ```bash
 magnet:?xt=urn:btih:E981CD7C52A391FFD363403D4BED89242739F675
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:E981CD7C52A391FFD363403D4BED89242739F675
 magnet:?xt=urn:btih:62C86E19D96ED7AFD223D91E3F7C108731D22470
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Udemy, Coding Revolution | Starting with React & Redux: Build modern apps (2nd e
 ```bash
 magnet:?xt=urn:btih:1FDF1D11B8D88FA8FA3FD647346ED958B6B2FD4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ Udemy, Mitchell Nickerson | I use Blender - 3D Modeling - Stylized Tiki Mask (20
 magnet:?xt=urn:btih:DA5FDA542C523A6DB0D5ED70B06EAD702CA7FBC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ Udemy, Airlan Technologie Sieciowe | Mikrotik from scratch for everyone (2022) W
 ```bash
 magnet:?xt=urn:btih:0204C93960331F32208EBCEC7DA9725B65906C1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ Imagination, Ирина Пирогова | Fashion Иллюстрация Pro (2
 magnet:?xt=urn:btih:D6E516A6A5D7FBCDCF343F1B9D5F935B435B0B09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ You will learn about automating deployments with Elastic Beanstalk CLI and creat
 ```bash
 magnet:?xt=urn:btih:4941257D592FC3AB62D0168EFCDC566E47984FED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ Filschool, Софья Филиппова | Курс по веб-дизайну �
 magnet:?xt=urn:btih:58297FC66980437444E1C3CF88288C16ED51F15F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ Udemy, Nexttut, Daniel da Costa | Realistic Character Making in Blender 3.2 (202
 ```bash
 magnet:?xt=urn:btih:B9381F0A69731445EBBD424A8B13779F743655CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:B9381F0A69731445EBBD424A8B13779F743655CA
 magnet:?xt=urn:btih:B5852A194DEF4B555291F50F3FAA08EAFE9072C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ Udemy, Roman Dushkin | Введение в компьютерную логику
 magnet:?xt=urn:btih:E4ECB2844A57D0F3CD678B9F031DC9A55FEFBB99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ Udemy - Create a High Quality Asset in Blender and Substance Painter (2021) PCRe
 ```bash
 magnet:?xt=urn:btih:A9ACF4D85A7874FA0984977B545D7D1EBDF7A309
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ In this video course, I’m going to show you how to set up DevTools PERFectly�
 magnet:?xt=urn:btih:D5753B7B2FEA09E0BD6E9162A6362FF43621FB04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ Udemy, Victory3D LLC | Facial Anatomy & Character Portrait for Blender Artists (
 ```bash
 magnet:?xt=urn:btih:F8E5F1DD36B9C1C34DF6CB2642207FAB4031388F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ Gnomon workshop, Eric Keller | Creature modeling with zbrush and marmoset toolba
 ```bash
 magnet:?xt=urn:btih:1599B97CD7ECAF1BE7C7BEE77CAA204B4346D9C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +669,8 @@ Englishteacup, Мила Хабирова | My Successful English Plan (2022) WEB
 magnet:?xt=urn:btih:702F2365C5B8CEFBE8357C0E8CE6F9895E78617C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ Englishteacup, Мила Хабирова | Челлендж: 100 базовых 
 ```bash
 magnet:?xt=urn:btih:2ABFB7274460152FCBC325B2CA827901DBDB1CCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

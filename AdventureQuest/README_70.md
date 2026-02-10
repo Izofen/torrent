@@ -19,6 +19,8 @@ Firewatch – игра о взрослых людях, ведущих взрос
 magnet:?xt=urn:btih:865F7404E7D56207BBA4CF167BDB412711EFFF42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:865F7404E7D56207BBA4CF167BDB412711EFFF42
 ```bash
 magnet:?xt=urn:btih:A398534AF8A302CAD20BFC8576931BC16D07B147
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ magnet:?xt=urn:btih:A398534AF8A302CAD20BFC8576931BC16D07B147
 magnet:?xt=urn:btih:CD1BB144A7B21C8EE74476193D1B82A134DD60F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ The Walking Dead: The Telltale Definitive Series содержит все чет�
 ```bash
 magnet:?xt=urn:btih:E4A4E1D19F58FAF26D60D9F7040168420044BA2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Schizm: Mysterious Journey / Щизм (2001) [Ru/Multi] (b744) License GOG
 magnet:?xt=urn:btih:EEB4778A9E7E03213123A5F5C1D0AC7BA23D4A88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Broken Porcelain вносит в серию много долгожданных 
 ```bash
 magnet:?xt=urn:btih:DD5DFE354286ADFD355ED7B5C3FAC53D5DE57E5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ Pineview Drive - хоррор первого лица, действие кото
 magnet:?xt=urn:btih:0884E401520A438FD713029C8F291B1DD8366176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Rayon Riddles  Rise of the Goblin King (2016) [En/Ge] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:837BFD69B6C0BD9B974A9AAB6ED772E1BE1789E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Syberia. Cold Edition / Сибирь. Специальное издание (С�
 magnet:?xt=urn:btih:F114E0ACDF81BDA06B4F3E6E69C0214097992E8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ The Signifier (2020) [Ru/Multi] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:A195ED2E98DD1305EC9CF79FB1AF28545019CEC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ Return of the Obra Dinn (2018) [Ru/Multi] (1.0.86) License GOG
 magnet:?xt=urn:btih:22BE6A724F2054C949D26750F10122CD8039FB8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Yesterday Origins (2016) [Ru/Multi] (1.0/u8) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:1D434805980373987F5A55762D2726A1473CCE8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Lifeless Planet - новое трёхмерное приключение для 
 magnet:?xt=urn:btih:8F24FEACCDAB1736A644239FF71FDA2F4CB6118B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Atlantis: The Lost Tales (1997) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:64207D220183CA4D5DC5EA30A9168271307EDC0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ Reigns: Game of Thrones создана на основе знаменитого 
 magnet:?xt=urn:btih:B065CFD20D3EE7A925E3E60641DC9DBA4D6BEDF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ Cursed Mountain / Проклятая гора [Ru/En] (RePack) 2010 | R.G. Ме�
 ```bash
 magnet:?xt=urn:btih:9D17EC8E465ED641B091A2229F647F2DACFD1F60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ The Fall: Mutant City - это продолжение вышедшей и зав
 magnet:?xt=urn:btih:D901C869D04D50DEF87CF7F79F9F459D8AB17C6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ The Silver Case (2016) [En/Jp] (1.01) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:3E4DF16A9CAC1942D594D9FC2A742DF95B73210F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:3E4DF16A9CAC1942D594D9FC2A742DF95B73210F
 magnet:?xt=urn:btih:AC3128F9F80DB65BFD65CFC37E1699D8AA3F5610
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ Shiver (2017) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:DF81D35C189934813B44ED90B929DB373C7891FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ AER Memories of Old (2017) [Ru/Multi] (1.0.3.0) Repack Other s
 magnet:?xt=urn:btih:373E1D0B3AF303F42416FBA54247C65441DBE3F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ GRIM - Mystery of Wasules - это игра от первого лица, в к�
 ```bash
 magnet:?xt=urn:btih:95B23A0A94E68CC22CB600DB7407421B6A8A03DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ Reah - потрясающе атмосферная приключенческа�
 magnet:?xt=urn:btih:2EBBA9F685E000D478CFF76E3C304F9501E3C229
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ The Longest Journey Dilogy (2000) [Ru/En] Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:59C5C40AC03AD6E8EAB6EA933655612D4218A242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ Yomawari: Midnight Shadows (2017) [En/Jp] (1.0) License CODEX
 magnet:?xt=urn:btih:0014347F4D68FF23980B631594421A6CF85CE6CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Watchmaker / Тайна маятника (2002) [Ru] (1.0) License
 ```bash
 magnet:?xt=urn:btih:BE20D932078AFA5E75BAF30CE21D7C34291025C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

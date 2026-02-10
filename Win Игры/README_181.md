@@ -19,6 +19,8 @@ Myth or Reality 3: Snowbound Secrets (2024) [Multi] (1.0) Unofficial [Collector'
 magnet:?xt=urn:btih:5F8BE028AF604F1231F099BD1B2928105B611046
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ ALTF42 - это динамичный аркадный экшен от 3-го л�
 ```bash
 magnet:?xt=urn:btih:00D04959F3230EDCC037827D5F5880678BA291E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ FUBG: Fight Unknown Battleground - захватывающий одиночный
 magnet:?xt=urn:btih:177267EFB14D4E771FCDDD0131FB9C4AC06FF8ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ ALTF42 - это динамичный аркадный экшен от 3-го л�
 ```bash
 magnet:?xt=urn:btih:C0415995ED6CD6322F5F684B0F78480CFC18B536
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Autopsy Simulator – симулятор с элементами хоррора,
 magnet:?xt=urn:btih:5C8011381A8AD785B4A4C7C86AF96FD21C8B0EB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ DETECTIVE - Minerva case – постарайтесь раскрыть весь�
 ```bash
 magnet:?xt=urn:btih:A89B32FC96EDA3681313A423508A184A4A39972D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Elegy of Fate погружает вас в уникальное ролевое �
 magnet:?xt=urn:btih:FE782D10C8486E4EFF80A21F4C37C988EB768845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ SOS OPS! – отправьтесь навстречу забавной кооп
 ```bash
 magnet:?xt=urn:btih:9BE451E29673438FDC3D5FBD6A681796958B3703
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Outcast - A New Beginning – это продолжение знаменитог
 magnet:?xt=urn:btih:F4443221E1B6B432BAF36F973C46263B96F5AD08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Armored Brigade (2018) [En] (1.068b/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:A8DE0B44F3946D0AEE5D91A19EF4E914EFE20873
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Chef: A Restaurant Tycoon Game (2020) [Ru/Multi] (1.6/dlc) License GOG
 magnet:?xt=urn:btih:5372A5CA980572E1AD1E2F4EEF02D8FF6FF9E28C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Tamarindos Freaking Dinner – это невероятно яркое, мест�
 ```bash
 magnet:?xt=urn:btih:B046486B7C03D3987E7C68D4ED3F7E99BB5BFC2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Isles of Sea and Sky – стратегическое приключение с 
 magnet:?xt=urn:btih:0B2CF8C617AFF0B66E5CFCFE9293DD0ADCB007F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Smurfs - Village Party (2024) [Ru/Multi] (1.0) Scene DOGE
 ```bash
 magnet:?xt=urn:btih:606D20DC8F319F4866242327221AA080FC25CD8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Hotel Business Simulator ставит вас на место владельца 
 magnet:?xt=urn:btih:2E8E565805ECD532070B469217CD4C7DE553C548
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Pine Hearts (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:99CFB79C72B4BBFDCDE8FD99122EAC0AC99EF6FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Far Cry 3: Blood Dragon - футуристический шутер с видо�
 magnet:?xt=urn:btih:96C14096FDEF5855928D411906234F4435E31C58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Stray (2022) [Ru/Multi] (1.5#368) Repack FitGirl [Soundtrack Edition]
 ```bash
 magnet:?xt=urn:btih:9816BA47B5757511AF120E19C4D54C0774071CA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Magic City Detective 5: The Carnival Begins / Волшебный город 5: �
 magnet:?xt=urn:btih:909A3FB8C317BC9EE1ACDB36C12F513456FA9F72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Rolling Hills: Make Sushi, Make Friends – это погружение в бы�
 ```bash
 magnet:?xt=urn:btih:0CF4497314F95335D40DBC256CAA366C5324F699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Zet Zillions – перед вами классический одно-поль�
 magnet:?xt=urn:btih:C3F65E6C2504722839ED01F18A0821E40BA9EE96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Chernobylite (2019) [Ru/Multi] (49411/dlc) Repack FitGirl [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:65062100257BA8B3AEC486981688626E5C5E53BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Field of Glory: Kingdoms - это необычная стратегия, поз�
 magnet:?xt=urn:btih:2D827850BA4705F9D7DC3268E988641537F79B72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Sisters: The Last Day of Summer рассказывает историю моло
 ```bash
 magnet:?xt=urn:btih:E17618169AC52E242E958666F0282AD14E24914F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Cryptmaster – здесь вы сможете говорить что угод�
 magnet:?xt=urn:btih:20629DED352634B04ED9AFC0B38A27B6EB2CFBB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ SCP Operations (2024) [En] (1.0.0:73) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FDF2ADB4047B7572F083B57F95E760CF56989C82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Coolio - The Collection (2012) Compilation [FLAC|Lossless|WEB-DL|tracks] <Hip-Ho
 magnet:?xt=urn:btih:F8559B9D30B45366D33337F66770CBEB8EFCCD15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:F8559B9D30B45366D33337F66770CBEB8EFCCD15
 ```bash
 magnet:?xt=urn:btih:E44BBE519FE782E2961B26D562A8957239A63A39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Noize MC - Voyager-2 (2022) Live at Stadium [MP3|320 Kbps] <Rap, Hip-Hop, Rock>
 magnet:?xt=urn:btih:AD3D9A9B4823AE41952405C6C96ACA623F8A5C6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:AD3D9A9B4823AE41952405C6C96ACA623F8A5C6F
 ```bash
 magnet:?xt=urn:btih:DF2AFE1EDB74EE6A7CF195EFCC1BDC4042BDDE8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Busta Rhymes - Extinction Level Event 2: The Wrath of God (2020) [FLAC|Lossless|
 magnet:?xt=urn:btih:CC678D1F14E2478D2CB46D6C6103AD24D1AD7F1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Reggae Gold 2017 [MP3|320 Kbps] <Reggae, Ska, Dub>
 ```bash
 magnet:?xt=urn:btih:72C0887D3C53D7E894B69AD16D98C78E9B68FA3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Jelly Roll - Self Medicated (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Hip-H
 magnet:?xt=urn:btih:232E0925B1E25426F1C8748F66E0F96D0B197376
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ magnet:?xt=urn:btih:232E0925B1E25426F1C8748F66E0F96D0B197376
 ```bash
 magnet:?xt=urn:btih:A99BD51293D8074278E199B70A93AB2316143516
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +252,37 @@ magnet:?xt=urn:btih:A99BD51293D8074278E199B70A93AB2316143516
 magnet:?xt=urn:btih:E2C4190C2BF14B59E2028AC582D5E7A227BFE05A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 257215   (345669) от 12.11.2010
+
+Rihanna - Loud (2010) [FLAC|Lossless]<R&B>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_345669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S&M (4:04)
+02. What's My Name (Feat. Drake) (4:23)
+03. Cheers (Drink To That) (4:22)
+04. Fading (3:20)(   Читать дальше...   )Жанр: R&BПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +308,8 @@ magnet:?xt=urn:btih:E2C4190C2BF14B59E2028AC582D5E7A227BFE05A
 ```bash
 magnet:?xt=urn:btih:C3F0F9811CAE817BB8B9DFB0EB251E0E67412C23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +338,8 @@ magnet:?xt=urn:btih:C3F0F9811CAE817BB8B9DFB0EB251E0E67412C23
 magnet:?xt=urn:btih:71F7449A3C54514C84B31F6A0796BCAC1756D99E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +366,8 @@ magnet:?xt=urn:btih:71F7449A3C54514C84B31F6A0796BCAC1756D99E
 ```bash
 magnet:?xt=urn:btih:35904B238E4BB851D66490A604864DF4929CED48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +396,8 @@ Noize MC - #Мэйксамнойз (2015) Single [MP3|320 кб/с]<Rap, Rap-Rock
 magnet:?xt=urn:btih:A3125FFF1A13AE709BDD4FA47364E89DC7CFA094
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +424,8 @@ magnet:?xt=urn:btih:A3125FFF1A13AE709BDD4FA47364E89DC7CFA094
 ```bash
 magnet:?xt=urn:btih:8EF3255A6C3653C70CA21B319B9C1DF301FBDF98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +454,8 @@ Khalid - Suncity (2018) EP [MP3|320 Kbps] <R&B>
 magnet:?xt=urn:btih:A7CB2EF538374DD271C0852899CAE1AFAC4A6837
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +482,8 @@ magnet:?xt=urn:btih:A7CB2EF538374DD271C0852899CAE1AFAC4A6837
 ```bash
 magnet:?xt=urn:btih:8CC7BF7510CABE2325E4C3F7C3715568D7493F01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +518,8 @@ Rihanna - Unapologetic (2012) [FLAC|Lossless]<Pop, R&B>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +546,8 @@ Rihanna - Unapologetic (2012) [FLAC|Lossless]<Pop, R&B>
 ```bash
 magnet:?xt=urn:btih:28D0A215894BCFBA4017F1E3A3FA35D33C94163A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +576,8 @@ Kid Abstrakt & Emapea - Jazzy Vibes (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Ho
 magnet:?xt=urn:btih:5473E2D1186A84EF0CF5259928202AC2B683D79C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +601,8 @@ ST feat. Ленинград - Балалайка (2018) Single [MP3|320 Kbps] <R
 ```bash
 magnet:?xt=urn:btih:C8E022D48E56B533FA499AC51725594A65ED0186
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +631,8 @@ Travis Scott - Astroworld (2018) Limited Edition [FLAC|Lossless|tracks + .cue] <
 magnet:?xt=urn:btih:51E73EA8FC5CDA9DFDFAD333BBCA65C1C578DFB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +659,8 @@ magnet:?xt=urn:btih:51E73EA8FC5CDA9DFDFAD333BBCA65C1C578DFB9
 ```bash
 magnet:?xt=urn:btih:B22F53AEB271DD6CB85A416C5779E9BBE15667B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +689,8 @@ Apathy - Connecticut Casual (2014) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Under
 magnet:?xt=urn:btih:109C699D3E6DED512B7813CDC00E7F4FF49C773C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +717,8 @@ magnet:?xt=urn:btih:109C699D3E6DED512B7813CDC00E7F4FF49C773C
 ```bash
 magnet:?xt=urn:btih:EC900B0C2244CC27F6B442A67D2977DC55C6F620
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,32 +747,7 @@ magnet:?xt=urn:btih:EC900B0C2244CC27F6B442A67D2977DC55C6F620
 magnet:?xt=urn:btih:1F6DF4984ED7B78680F140EF4FD935F866A21B24
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328044   (368005) от 28.09.2019
-
-Влади - Другое слово (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368005.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Увлечение повально
-2. У цветного фонтана
-3. Купидон
-4. Кардиохирург(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:195756F6B10DC6EF1167A35463E568BDA669C93B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

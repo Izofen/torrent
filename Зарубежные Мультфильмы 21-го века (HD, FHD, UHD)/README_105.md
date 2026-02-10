@@ -1,27 +1,3 @@
-###  Публикация: 1510139   (791877) от 15.11.2021
-
-Ранго / Rango (2011) BDRip [H.264/1080p-LQ] [Extended Cut]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ранго - хамелеон, который живет в террариуме и считает себя героем, которому, к сожалению, никак не удается проявить свое бесстрашие. Но когда он внезапно оказывается в городке Грязь, у него появляется такая возможность. Ранго провозглашает себя борцом за справедливость и начинает вести себя как шериф на Диком Западе. Он еще не знает, что быть «хорошим парнем» в (   Читать дальше...   )Производство: США / Paramount Pictures, Nickelodeon Movies, Blind Wink ProductionsЖанр: мультфильм, комедия, приключения, семейный, вестернРежиссер: Гор ВербинскиАктеры: Джонни Депп, Айла Фишер, Эбигейл Бреслин, Нед Битти, Альфред Молина, Билл Найи, Стивен Рут, Гарри Дин Стэнтон, Тимоти Олифант, Рэй УинстоунПеревод: ДублированныйСубтитры: Русские (forced, full), английскиеПродолжительность: 01:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2697B6314019104E8C80B50A0DDDE0D141E883EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509984   (791912) от 15.11.2021
 
 Проект Альфа / Appleseed Alpha (2014) BDRip [H.264/1080p-LQ]
@@ -43,6 +19,8 @@ magnet:?xt=urn:btih:2697B6314019104E8C80B50A0DDDE0D141E883EE
 ```bash
 magnet:?xt=urn:btih:23CBDD51945D3EA7C8D1044F372371FC0437BDFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +46,8 @@ magnet:?xt=urn:btih:23CBDD51945D3EA7C8D1044F372371FC0437BDFF
 magnet:?xt=urn:btih:B4EE97D6E346AD013521B786CE194ABB69B75774
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +71,8 @@ magnet:?xt=urn:btih:B4EE97D6E346AD013521B786CE194ABB69B75774
 ```bash
 magnet:?xt=urn:btih:EA05456DA5ACFE898AEA96BFAE0BBC732768A743
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +98,8 @@ magnet:?xt=urn:btih:EA05456DA5ACFE898AEA96BFAE0BBC732768A743
 magnet:?xt=urn:btih:9828F70E264454A33F801D784F88A47A70F864FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +123,8 @@ magnet:?xt=urn:btih:9828F70E264454A33F801D784F88A47A70F864FE
 ```bash
 magnet:?xt=urn:btih:9755045B7A79B7E6CEC30CD0BE49A192BB5852EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:9755045B7A79B7E6CEC30CD0BE49A192BB5852EB
 magnet:?xt=urn:btih:5D84558CEF3D919DA5DC0E05A54A7800884D98CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:5D84558CEF3D919DA5DC0E05A54A7800884D98CA
 ```bash
 magnet:?xt=urn:btih:CE9FD9B4DB7264A20EFD07F2A9B41DC1C7CC5B2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:CE9FD9B4DB7264A20EFD07F2A9B41DC1C7CC5B2D
 magnet:?xt=urn:btih:EE75F3FFA40656C8F26732C96606BF96DF0EE09E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ magnet:?xt=urn:btih:EE75F3FFA40656C8F26732C96606BF96DF0EE09E
 ```bash
 magnet:?xt=urn:btih:7EFE0D551DAA2A88020512E0C5DBF4EBA87959E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:7EFE0D551DAA2A88020512E0C5DBF4EBA87959E2
 magnet:?xt=urn:btih:E36AC77684DEA0079EF9029A285CBE7775D7E28E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ magnet:?xt=urn:btih:E36AC77684DEA0079EF9029A285CBE7775D7E28E
 ```bash
 magnet:?xt=urn:btih:8B0786341BA8882847514A7FEEC26F2863B4E3BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +306,8 @@ magnet:?xt=urn:btih:8B0786341BA8882847514A7FEEC26F2863B4E3BF
 magnet:?xt=urn:btih:B420E6D0A3D765940E650FBF13CC9D98AEE13FE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +331,8 @@ magnet:?xt=urn:btih:B420E6D0A3D765940E650FBF13CC9D98AEE13FE7
 ```bash
 magnet:?xt=urn:btih:5A89BE697BA949710065C62EFDE26BD57BF4579E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +358,8 @@ magnet:?xt=urn:btih:5A89BE697BA949710065C62EFDE26BD57BF4579E
 magnet:?xt=urn:btih:04064DE43B18CD71F7FE52F3DB3B81FADA280C60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +383,8 @@ magnet:?xt=urn:btih:04064DE43B18CD71F7FE52F3DB3B81FADA280C60
 ```bash
 magnet:?xt=urn:btih:730000A6E924153059FFA71B2508401E4C4D0840
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +410,8 @@ magnet:?xt=urn:btih:730000A6E924153059FFA71B2508401E4C4D0840
 magnet:?xt=urn:btih:35F46DB675076E6B9FC709DA70B7C0D5FE966887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +435,8 @@ magnet:?xt=urn:btih:35F46DB675076E6B9FC709DA70B7C0D5FE966887
 ```bash
 magnet:?xt=urn:btih:A88B6414BDA22E24738557ED10F9A8BA8166D58F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +462,8 @@ magnet:?xt=urn:btih:A88B6414BDA22E24738557ED10F9A8BA8166D58F
 magnet:?xt=urn:btih:AB22BAB306160F0852106FEF8930AFDFF5FCED18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +487,8 @@ magnet:?xt=urn:btih:AB22BAB306160F0852106FEF8930AFDFF5FCED18
 ```bash
 magnet:?xt=urn:btih:20FE522B87EDC998476B17B0FAF949A84A343833
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +514,8 @@ magnet:?xt=urn:btih:20FE522B87EDC998476B17B0FAF949A84A343833
 magnet:?xt=urn:btih:F15CA2057D38CAF513EAF26ACC2F0EC21AAC631A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +539,8 @@ magnet:?xt=urn:btih:F15CA2057D38CAF513EAF26ACC2F0EC21AAC631A
 ```bash
 magnet:?xt=urn:btih:C43A5F0C4032A7DF7B93B9C87A867FE633E1F6AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +566,8 @@ magnet:?xt=urn:btih:C43A5F0C4032A7DF7B93B9C87A867FE633E1F6AB
 magnet:?xt=urn:btih:A1563D8123AA26D5E00EC1FFAA24504FBEE9C773
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +591,8 @@ magnet:?xt=urn:btih:A1563D8123AA26D5E00EC1FFAA24504FBEE9C773
 ```bash
 magnet:?xt=urn:btih:0871682FD3319BE93C840D7C2E6C962E690F89A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +618,8 @@ magnet:?xt=urn:btih:0871682FD3319BE93C840D7C2E6C962E690F89A4
 magnet:?xt=urn:btih:521B3EDFB6BFD968C88045D1C56D0B06E47186FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +643,34 @@ magnet:?xt=urn:btih:521B3EDFB6BFD968C88045D1C56D0B06E47186FD
 ```bash
 magnet:?xt=urn:btih:A141820B7DAFDC9DD0D51ABBBC8402E567D45C48
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507402   (798398) от 04.11.2021
+
+Напо / Napo (2020) WEBRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джон, неспособный понять болезнь, которая гонит его дедушку между прошлым и настоящим состояниями, натыкается на старый альбом, полный фотографий. Образы направляют его воображение, превращая воспоминания его деда в рисунки, которые формируют их отношения в историю создания памяти и воспоминаний.Производство: БразилияЖанр: Короткометражный, мультфильмРежиссер: Густаво РибейроПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: ОтсутствуютПродолжительность: 00:16:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D10BCC323060C72EE5EE1125E9231A70D3195688
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Doctor Who: The Eternity Clock – очередная игра в серии «D
 magnet:?xt=urn:btih:7CF60B55669CAF4E6E8964CC092A771FA4E63295
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Guitar Hero: World Tour [Wii] [PAL] [Multi 5] (2008)
 ```bash
 magnet:?xt=urn:btih:455B5CE3AD39E3176565D03C200B0E8ED0539EF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ NHL 16: Legacy Edition (2015) [PS3] [USA] [4.75] [Unofficial] [Ru] | Kashtan23 &
 ```bash
 magnet:?xt=urn:btih:664FF2DF299BE762657595B089EBE744CC5872D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ SEN Enabler 5.9.3 (2016) [PS3] [Unofficial / 5.9.3] [Ru/Multi]
 magnet:?xt=urn:btih:65FF65B9E1365843A458C090BE1BD0FB327EB36D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ SEGA Rally (2011) [PS3] [EUR] 1.82 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En
 ```bash
 magnet:?xt=urn:btih:AAC775747F42892871387118B52A94269156D072
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Marvel’s Avengers – первая игра про славных Мстите
 magnet:?xt=urn:btih:07E5FC750591EC2BA64282B6E3B2FE3A32C8AE6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ multiMAN 04.78.00 (2015) [PS3] [Unofficial] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:180D59042F4866CFA1BA136C34B78CFB303F28F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Spectral Force 3 / Spectral Force 3: Innocent Rage (2008) [Xbox360] [NTSC/J, NTS
 magnet:?xt=urn:btih:24F1411B07FB1DBDD430B42CE63FB6B3C001D838
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Endless Ocean 2 продолжает знакомить владельцев Wii
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ The Saboteur (2009) [PS3] [USA] 3.01 [License] [En]
 magnet:?xt=urn:btih:2A3B860C9E82F8FB4F28503EE7E4DFF77115C011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ LEGO Marvel's Avengers (2016) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Uno
 ```bash
 magnet:?xt=urn:btih:BE8D2F5178BAC9AEF0BE4F759E39A73AB131038C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ Silent Hill: Book of Memories (2012) [PSVita] [EUR] [HENkaku] [Unofficial] [Ru] 
 magnet:?xt=urn:btih:5165A119C5FE592CF2012B8B53B55D27A8475103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ Lost in Shadow [Wii] [NTSC] [ENG] (2011)
 ```bash
 magnet:?xt=urn:btih:B64E9B6C03CFF0ED9AEF7F8FCAF860EE1E84C2CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ LEGO Marvel Мстители от студии TT Games – первый про�
 magnet:?xt=urn:btih:4BA6EC64298C592FBE46E0C55350955DCAD71BEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ Kingdom Under Fire: Circle of Doom является четвертой игро�
 ```bash
 magnet:?xt=urn:btih:6A69A0A2B8FA461678D2798D4125CABBF913FB33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ Infinite Undiscovery (2008) [Xbox360] [PAL] 6690 [FreeBoot] [License] [En]
 magnet:?xt=urn:btih:B8C2EBF0E5D5E18A1EBA6C3F6CED7697956F299C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ F1 2010 (2010) [PS3] [EUR] 3.41 [Cobra ODE / E3 ODE PRO ISO] [License] [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:3070C20340E3AFB4512DAA0099A3A0DEB46A658C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ Lost Odyssey – jRPG, созданная компанией Mistwalker как �
 magnet:?xt=urn:btih:4B61C81C3703DFEE9AE1E565A828DA194599A2E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ Hitman: Absolution [PS3] [Ru/En] [Repack] 2012 | R.G. Inferno
 ```bash
 magnet:?xt=urn:btih:0DC0A4260C79B050FD0CE95A76C31FD1A9751139
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ Cпустя некоторое время после выхода Resident Evil 
 magnet:?xt=urn:btih:911054BCBFF453B1A13C4EAC17D03D87729F15F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ Rolling Stone: Drum King [Wii] [English] [NTSC-U] (2009)
 ```bash
 magnet:?xt=urn:btih:63D620EC01AFF9B1095BFA94076332BEA16B68A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ Onechanbara Z: Kagura продолжает серию экшен игр Oneechan
 magnet:?xt=urn:btih:2813EFE6786442249FC200798561C2E5C91524E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ Valkyria Chronicles [PS3] [EUR] [Ru] [2.42] [Cobra ODE / E3 ODE PRO ISO] (2008)
 magnet:?xt=urn:btih:F4355383B78433D3E77447DD6F5E553478934595
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ Perfect Dark Zero – шутер от первого лица, который я
 ```bash
 magnet:?xt=urn:btih:9C6ECA66BBC26A3499A0126DE7E0047EAD9D129C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +661,8 @@ Kameo: Elements of Power – приключенческий экшен, глав
 magnet:?xt=urn:btih:D1ADFE04E24EE1A2CFB09237D0BDCAEF9DC3BA28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ Command & Conquer 3: Tiberium Wars (2007) [Xbox360] [RegionFree] 4552 [FreeBoot]
 ```bash
 magnet:?xt=urn:btih:A84D982FE6FCF09D92BCDBEFF8FF8F69431B1769
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,58 @@
+###  Публикация: 1350865   (1002918) от 07.01.2020
+
+Эбигейл (2019) BDRip [H.264/1080p] [hand made 16:9]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая девушка Эбигейл живет в городе, границы которого закрыли много лет назад из-за эпидемии загадочной болезни. Отец Эбби был одним из заболевших — и его забрали, когда ей было шесть лет. Пойдя наперекор властям, чтобы разыскать отца, Эбби узнает о том, что ее город на самом деле полон магии. И в ней самой пробуждаются необыкновенные магические способности…Производство: Россия / KD StudiosЖанр: Приключения, фэнтези, семейныйРежиссер: Александр БогуславскийАктеры: Тинатин Далакишвили, Эдди Марсан, Артём Ткаченко, Равшана Куркова, Риналь Мухаметов, Глеб Бочков, Марта Тимофеева, Никита Тарасов, Ксения Кутепова, Петар ЗекавицаПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:027029791BB86E25F5DB58E23DBC6BBAA4DA8BA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350275   (1003141) от 06.01.2020
+
+Сборник клипов - Old School Hits от ALEXnROCK часть 1 (2019) WEBRip
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003141.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли самые хитовые клипы нулевых. Это 1я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK00. Old School Hits 1 — Intro
+01. Sugababes — Push The Button
+02. Justin Timberlake & Clipse — Like I Love You
+03. Alesha Dixon — The Boy Does Nothing(   Читать дальше...   )Жанр: PopПродолжительность: 02:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2158B631429375E2933B87591A0D22FD0D1533A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457363   (1003458) от 05.08.2021
 
 Трасса 60 / Interstate 60: Episodes of The Road (2002) DVDRip [H.264/720p] [handmade remastered upscale AI]
@@ -18,6 +73,8 @@
 ```bash
 magnet:?xt=urn:btih:612254FFC71C698CC29A42D4F11628FB920B331B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +101,8 @@ magnet:?xt=urn:btih:612254FFC71C698CC29A42D4F11628FB920B331B
 magnet:?xt=urn:btih:CAAD8B80035647E34A59A1969B5AFBF331A6E46C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +126,8 @@ magnet:?xt=urn:btih:CAAD8B80035647E34A59A1969B5AFBF331A6E46C
 ```bash
 magnet:?xt=urn:btih:FD07CE3E569A9ACE2C1B0BA84FFAF93F827EB51F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +153,8 @@ magnet:?xt=urn:btih:FD07CE3E569A9ACE2C1B0BA84FFAF93F827EB51F
 magnet:?xt=urn:btih:B3AAC958E4ACC5D3C60F10031E16D0BF55DE9730
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +178,8 @@ magnet:?xt=urn:btih:B3AAC958E4ACC5D3C60F10031E16D0BF55DE9730
 ```bash
 magnet:?xt=urn:btih:3FE9B4FA7128C842159B69DBE0B338627228D7CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +205,8 @@ magnet:?xt=urn:btih:3FE9B4FA7128C842159B69DBE0B338627228D7CC
 magnet:?xt=urn:btih:E2C6D4CA259F81E6D7B81EB667FD78CBE612227F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +230,8 @@ magnet:?xt=urn:btih:E2C6D4CA259F81E6D7B81EB667FD78CBE612227F
 ```bash
 magnet:?xt=urn:btih:623D8398934FAB31A37F0167D497E2F2866AC53D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +257,8 @@ magnet:?xt=urn:btih:623D8398934FAB31A37F0167D497E2F2866AC53D
 magnet:?xt=urn:btih:E6F8E6E9072EEE8E6EC28953950462F6C95C805A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +282,8 @@ magnet:?xt=urn:btih:E6F8E6E9072EEE8E6EC28953950462F6C95C805A
 ```bash
 magnet:?xt=urn:btih:BE3DC5C5B2DD6A9A61FCB7AABC1650E0D4C6F60B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +309,8 @@ magnet:?xt=urn:btih:BE3DC5C5B2DD6A9A61FCB7AABC1650E0D4C6F60B
 magnet:?xt=urn:btih:687FF538DACD467DFB6AEB0E6F8BD0CBD823A222
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +334,8 @@ magnet:?xt=urn:btih:687FF538DACD467DFB6AEB0E6F8BD0CBD823A222
 ```bash
 magnet:?xt=urn:btih:385EA28F390CA28EDF3983D93E77FAA5D567AB76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +361,8 @@ magnet:?xt=urn:btih:385EA28F390CA28EDF3983D93E77FAA5D567AB76
 magnet:?xt=urn:btih:99718F055444C0A9B5CCE499C9EE478937F236D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +386,8 @@ magnet:?xt=urn:btih:99718F055444C0A9B5CCE499C9EE478937F236D1
 ```bash
 magnet:?xt=urn:btih:9AEE54E01F59D80A8239A209A9A0EAF2EFCC84A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +413,8 @@ magnet:?xt=urn:btih:9AEE54E01F59D80A8239A209A9A0EAF2EFCC84A4
 magnet:?xt=urn:btih:C1333795E3F743B1D00DCD42163E8869EC9C363B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +438,8 @@ magnet:?xt=urn:btih:C1333795E3F743B1D00DCD42163E8869EC9C363B
 ```bash
 magnet:?xt=urn:btih:A1D98011502F9F8A71B35A0994B17294DA401726
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +465,8 @@ magnet:?xt=urn:btih:A1D98011502F9F8A71B35A0994B17294DA401726
 magnet:?xt=urn:btih:4347F61156634EA107E3250BEEAB16D9101A19F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +490,8 @@ magnet:?xt=urn:btih:4347F61156634EA107E3250BEEAB16D9101A19F3
 ```bash
 magnet:?xt=urn:btih:00D68F6B5634472B195A0C8B29084C592E945ED9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +517,8 @@ magnet:?xt=urn:btih:00D68F6B5634472B195A0C8B29084C592E945ED9
 magnet:?xt=urn:btih:20FA6A26BB04A3A7EC4AE7F8C0201BC0D51C72ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +542,8 @@ magnet:?xt=urn:btih:20FA6A26BB04A3A7EC4AE7F8C0201BC0D51C72ED
 ```bash
 magnet:?xt=urn:btih:2B9A5F27F39F540EBC04A886397798ACE6B7882E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +569,8 @@ magnet:?xt=urn:btih:2B9A5F27F39F540EBC04A886397798ACE6B7882E
 magnet:?xt=urn:btih:014108F264C4F057739C2C1B2D453B620710F7EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +594,8 @@ magnet:?xt=urn:btih:014108F264C4F057739C2C1B2D453B620710F7EE
 ```bash
 magnet:?xt=urn:btih:36D5AF829E950C0C092F76493E1711D359A8D9D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +621,8 @@ magnet:?xt=urn:btih:36D5AF829E950C0C092F76493E1711D359A8D9D4
 magnet:?xt=urn:btih:CFE9439B8C1566A9C7027725C1E8C3383BED097E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +646,8 @@ magnet:?xt=urn:btih:CFE9439B8C1566A9C7027725C1E8C3383BED097E
 ```bash
 magnet:?xt=urn:btih:CC7563A8E14CF5D5673E02FCE0DCFC1B431E83FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,55 +675,7 @@ magnet:?xt=urn:btih:CC7563A8E14CF5D5673E02FCE0DCFC1B431E83FF
 magnet:?xt=urn:btih:5BC00B99816563AA420335A3DA0E30E727AC1B02
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483805   (1006603) от 15.07.2021
-
-Старший сын (1975) DVDRip  [H.264/1080p-LQ] [upscale AI Remastered]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006603.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноименной пьесе Александра Вампилова "Старший сын".
-Непутевый великовозрастный балбес решает разыграть пожилого человека, назвавшись его сыном. Однако вскоре ему становится не до шуток: реакция «папаши» столь тепла и трогательна, что в парне пробуждается совесть. Неожиданно для себя он оказывается в психологическом тупике...Производство: СССР / ЛенфильмЖанр: драмаРежиссер: Виталий МельниковАктеры: Евгений Леонов, Николай Караченцов, Наталья Егорова, Владимир Изотов, Михаил Боярский, Светлана КрючковаПродолжительность: 02:08:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C32617C3DAEA127A1AC368E53C09ABDF6799AD68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483498   (1006622) от 15.07.2021
-
-Кодекс молчания 2: След чёрной рыбы (1993) TVRip [H.264/1080p-LQ] (5 серий из 5) [upscale AI Remastered]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой фильма — подполковник Тура Саматов. В первой части серии он с переменным успехом боролся с наркоторговцами в Узбекистане. Саматов попал в тюрьму по сфабрикованному на него делу. Его жена и ребёнок погибли в автокатастрофе. Прошло 6 лет.
-Наступает 1986 год, началась перестройка, и после пересмотра дела Саматова выпускают из тюрьмы за отсутствием состава (   Читать дальше...   )Производство: Узбекистан, Россия, ТПО «Паритет», «ИНСОН», ТО «Экран»Жанр: ДетективРежиссер: Зиновий РойзманАктеры: Мурад Раджабов, Александр Фатюшин, Борис Химичев, Елена Борзова, Д. Анимов, В. Медведев, Жан Байжанбаев, Расим Балаев, Гульнара Дусматова, Александр ГолобородькоПродолжительность: 01:02:33 + 01:02:38 + 01:12:21 + 01:02:57 + 01:16:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:398A4B3E7CCC9AFC242F17335483F3CD05C4261A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

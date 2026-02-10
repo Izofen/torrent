@@ -1,3 +1,38 @@
+###  Публикация: 568913   (392965) от 02.11.2012
+
+VA - Золотой Граммофон Осенний Выпуск (2012) [MP3|128 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392965.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Света - Лондон-Москва
+002. Анна Семенович - Любовь Под Облаками
+003. Reflex - Потому Что Не Было Тебя (Версия 2012)
+004. Тимати и Григорий Лепс - Лондон
+005. Елена Есенина - Синдерелла
+006. Стас Михайлов - Джокер
+007. Павел Воля - Я Танцую!
+008. Вера Брежнева и DJ Smash - Любовь На Расстоянии
+009. Дима Билан и Ева - Малыш
+010. Ёлка - Хочу(   Читать дальше...   )Жанр: PopПродолжительность: 11:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:197CA538733177CC20906711D39E8A5817AA748C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1172450   (393108) от 08.10.2017
 
 VA - Impulse 7: Супермузыка для супермашин (2017) [MP3|320 Kbps] <House, Deep House, Progressive>
@@ -21,6 +56,8 @@ VA - Impulse 7: Супермузыка для супермашин (2017) [MP3|3
 ```bash
 magnet:?xt=urn:btih:7ACA583574BE58F0EA4607D2BD84B44B819E82F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -55,6 +92,8 @@ VA - Из Каждого Утюга (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:BAA334B277E86115BD9396614651703D3D4A5402
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -87,6 +126,8 @@ VA - Взорви Танцпол. Русский Сборник (2012) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:3A5A8C568E813DBE292427727CC38FF606694A62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +162,8 @@ VA - 100 пудовые хиты осени 50/50 (2012) [MP3|128 кб/с]<pop>
 magnet:?xt=urn:btih:84B043C0BBBF4019BA030EAF5AEEA4125FCA3D74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +197,8 @@ VA - Осенняя бомба года 17 Зарубежный (2012) [MP3|128 
 magnet:?xt=urn:btih:E4747A92666BCBB520EDE7933047B55C3BD4CA44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +225,8 @@ VA - Deep House Collection Vol.139 (2017) [MP3|192-320 Kbps] <Deep House, Club H
 ```bash
 magnet:?xt=urn:btih:B767FC5E29DBD3C72B9A0A19187A37B26D8E8D6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +261,8 @@ VA - Believe Motion Love (2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:3FEBC5EB421E534923727C378A1BE7277B2436DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +295,8 @@ VA - Романтические мелодии (2012) [MP3|192-256 кб/с]<Inst
 ```bash
 magnet:?xt=urn:btih:E005D01625EE73B82ADB845FD8BB4E9B69AD3944
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +331,8 @@ VA - Европа Плюс: Включи Музон! (2012) [MP3|128 кб/с]<po
 magnet:?xt=urn:btih:0655F6B754EA53FFA5CB8D46595BB725A4403A75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +360,8 @@ VA - Record Super Chart #506 (2017) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:6DD1045C94F904E0F889078CBA0C225AC5B5C1C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +388,8 @@ VA - The Official UK Top 40 Singles Chart (06 October) (2017) [MP3|320 Kbps] <Po
 ```bash
 magnet:?xt=urn:btih:5332A8C0CA0033D0ABBE395B4A7A9141C587A253
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +424,8 @@ VA - Звездный Mix. Улетная 100-ка (2012) [MP3|256 кб/с]<pop>
 magnet:?xt=urn:btih:3CD9B19E08A3FE6E947C0520F3B59F140F4D8B9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +458,8 @@ VA - Trance Hits Great 100% (2012) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:37E643DD1646002052369F800EFDF9B2F7EDD492
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +494,8 @@ VA - XXXL Союз. Осенний драйв. Версия русская (2012
 magnet:?xt=urn:btih:294426CF0AB292879B86C3DDDB21B4C62E2735F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +529,8 @@ VA - Супертанцевальный TOP 200 50+50 (2012) [MP3|128 кб/с]<P
 magnet:?xt=urn:btih:B6120D3F11851F5DB6E2A95AE5F2AED44D18C45B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +557,8 @@ VA - Europa Plus - Eurohit TOP 40 October (2017) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:E69B6C2360AFCE27EB5B8D2283D8846CDD7F5343
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +587,8 @@ VA - Disco Chillout (2017) [MP3|320 Kbps] <Chillout, Lounge, Ambient, House>
 magnet:?xt=urn:btih:6CC02F0D676E078FA3C477F43A41CEDE22BBF1DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +615,8 @@ VA - Prelude To A Kiss Smooth Jazz Collection (2017) [MP3|320 Kbps] <Nu Jazz, In
 ```bash
 magnet:?xt=urn:btih:15365AB35119ED0A943F2C7C0ABFEF406AFFE4D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +645,8 @@ DJ Krush - Best of (2017) [Compiled by Firstlast] [MP3|192-320 Kbps] <Trip-Hop; 
 magnet:?xt=urn:btih:BD7FB9EB8878886C4AAF6303D547262116C6CFAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +673,8 @@ VA - Hits Cocktail Vol.13 (2017) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:485681419DC9383502EFAF4D29EF0D40A1E1920F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +703,8 @@ VA - Sunset Trance Euphoria Waterland (2017) [MP3|320 Kbps] <Harmonic, Emotional
 magnet:?xt=urn:btih:D99DABDA96C064ADB3D5E233B2725BE8B69C45E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +732,8 @@ VA - Drum Force Sound (2017) [MP3|320 Kbps] <Drum And Bass, Electro Bass>
 magnet:?xt=urn:btih:91AF06FA8628E3C31177E3F89B375C227B8D7BD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -681,6 +760,8 @@ VA - Magic House (2017) [MP3|320 Kbps] <House, Deep House>
 ```bash
 magnet:?xt=urn:btih:85234B9E9092813F88FB5CD093BD3955985AFB22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -715,6 +796,8 @@ VA - Музыкальный Топ Интернета (2012) [MP3|256 кб/с]<P
 magnet:?xt=urn:btih:723605FF3B5F3A41310A3BBDA95D082E0F0E8507
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -748,32 +831,7 @@ VA - Зажигай С Осенними Хитами (2012) [MP3|256 кб/с]<Da
 magnet:?xt=urn:btih:D92DB5CE6EC1AF36E0209BFA86D18CDB9B17D800
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171567   (395752) от 05.10.2017
-
-VA - Tropical Coctail: Chill Area Party (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395752.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aatoo Cito - Into The Clouds
-002. Rangiroa - Is There Anything (Original Mix)
-003. Tony Deep Fish - Sand Under My Feet
-004. Arnold T - Summertime Sadness(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 07:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ED4B04D447C8063312F49213E88703E1AF2A150
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

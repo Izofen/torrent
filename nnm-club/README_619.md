@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4637D37DA9B0398D1D23BD88654CBF950AA23134
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:4637D37DA9B0398D1D23BD88654CBF950AA23134
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Little Brave это захватывающая, приключенческа
 magnet:?xt=urn:btih:AE37D7A537D1DE5298D0CAE80C8DB45BD4C44A12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Vampire Survivors — казуальная игра в стиле готичес
 magnet:?xt=urn:btih:69C6DF5822A417D25EB7662B6C78F50C4748C5D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:69C6DF5822A417D25EB7662B6C78F50C4748C5D1
 ```bash
 magnet:?xt=urn:btih:9D19A1679FEA07526A623437372AFD8144D64F99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Liv Sin - Close Your Eyes (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Har
 magnet:?xt=urn:btih:91FE318D173B649604338D22ABB6644EBA678DD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:91FE318D173B649604338D22ABB6644EBA678DD5
 ```bash
 magnet:?xt=urn:btih:FDC0014E6BE0B1EA7E57F522BA01FDE4E0D1E844
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ VA - Rimini Summer Party, Vol. 2 (2025) [MP3|320 Kbps] <Progressive House, Melod
 magnet:?xt=urn:btih:968E3E6BC254531B9A6D3BB9C1E4C917A99B047B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ VA - Armin van Buuren - A State Of Trance 1237 (2025) [MP3|320 Kbps] <Trance, Pr
 ```bash
 magnet:?xt=urn:btih:CC4998A2110303CB51A4E20C0A2119E62B9EC16B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ VA - Ori Uplift - Uplifting Only Episode 652 (2025) [MP3|320 Kbps] <Trance, Upli
 magnet:?xt=urn:btih:04C0E65EFEE4F75EFA20892EDE9E1BD9225D3309
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:04C0E65EFEE4F75EFA20892EDE9E1BD9225D3309
 ```bash
 magnet:?xt=urn:btih:6D400770D9D35A96A416E60E2B63CED896E757EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:6D400770D9D35A96A416E60E2B63CED896E757EA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:6D400770D9D35A96A416E60E2B63CED896E757EA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:6D400770D9D35A96A416E60E2B63CED896E757EA
 ```bash
 magnet:?xt=urn:btih:A2BCCDB88A70CC863F5025D2FD140D2D26A73102
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:A2BCCDB88A70CC863F5025D2FD140D2D26A73102
 magnet:?xt=urn:btih:A2F499EBC70291F1E08812C7E0E31098333AEE3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ NG: Первозданная природа. Эдем жизни / The Living Ed
 ```bash
 magnet:?xt=urn:btih:541311272EBB0DBABD2357A19CC16934207D9297
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:541311272EBB0DBABD2357A19CC16934207D9297
 magnet:?xt=urn:btih:2D1B61F91B40933B845B4C99666373453F2B15DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ Workers & Resources: Soviet Republic / Workers and Resources: Soviet Republic (2
 ```bash
 magnet:?xt=urn:btih:DCCB22D9A5246DCD06FBFE1C8ECA61E278BE558F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:DCCB22D9A5246DCD06FBFE1C8ECA61E278BE558F
 ```bash
 magnet:?xt=urn:btih:CE4AABEC024ED57D8C41760456B047FD23D120A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ Slayer  — американская метал группа. Коллектив
 magnet:?xt=urn:btih:B376C4729165FA697E8B5322EE2C49EC2831A1F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ BBC: Мир природы. Смертоносные змеи Индии / BBC: 
 ```bash
 magnet:?xt=urn:btih:50893FB3C4F3C4487D7028C2C6E02BD951EF421C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:50893FB3C4F3C4487D7028C2C6E02BD951EF421C
 magnet:?xt=urn:btih:A0ECDB97DD61DD297722AB385F5356D0832E8CF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:A0ECDB97DD61DD297722AB385F5356D0832E8CF0
 ```bash
 magnet:?xt=urn:btih:04CDF9FF6FBA30A216676AFA2022E4F1891BA87A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ Guilty Gear Strive – новая глава знаменитой франшиз
 magnet:?xt=urn:btih:E9AC66D03F530A683487A6DF1724A069DBA1B9F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:E9AC66D03F530A683487A6DF1724A069DBA1B9F0
 magnet:?xt=urn:btih:1864FEA8C60094640FD4F9FCAA7D96261C8002C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ Udemy, Виктор Быстров | Как БЫСТРО находить люд
 ```bash
 magnet:?xt=urn:btih:1267B0808667BF0E6E58606797FA9E6561210998
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

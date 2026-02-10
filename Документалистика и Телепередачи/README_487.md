@@ -1,3 +1,30 @@
+###  Публикация: 1136768   (666576) от 27.05.2017
+
+Люди сотворившие ХХ век (У истоков ХХ века) / The 101 Who Made The Twentieth Century (2016) HDTV [H.264/1080p-LQ] (8 серий из 8)
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666576.jpg" />
+</div>
+
+
+###  Подробнее
+
+ХХ век был эпохой удивительных перемен: несказанных ужасов и поразительных научных открытий. Это столетие, в котором империи прошлого рассыпались, чтобы освободить место для новых сверхдержав и новой эпохи. Столетие, в котором мир был, втянут в одну войну за другой.
+Но где радио, кино, телевидение, автомобили, самолеты и, наконец, компьютеры привлекли нас ближе друг (   Читать дальше...   )Производство: Австралия, WildBear Entertainment, DRG HistoryЖанр: Документальный, познавательный, историяПеревод: ДублированныйПродолжительность: 8 x ~ 00:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA75FCCAB54AA14F02B58DD92BBE1F0CE1C7D1C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136777   (666582) от 27.05.2017
 
 Люди сотворившие ХХ век (У истоков ХХ века) / The 101 Who Made The Twentieth Century (2016) HDTVRip (8 серий из 8)
@@ -19,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:C1C000BBA6EBE3A6FDDAE398C125FC939735E4EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@ magnet:?xt=urn:btih:C1C000BBA6EBE3A6FDDAE398C125FC939735E4EC
 magnet:?xt=urn:btih:F5EF5F38FEA52CB29D2DAEEFA235C1D205727CE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:F5EF5F38FEA52CB29D2DAEEFA235C1D205727CE8
 ```bash
 magnet:?xt=urn:btih:3CC003A45BE5332632D9E1DF9FE1BD64316921E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +127,8 @@ magnet:?xt=urn:btih:3CC003A45BE5332632D9E1DF9FE1BD64316921E3
 magnet:?xt=urn:btih:A083399DA7EC75C21110939C6B993E7296817C1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +152,8 @@ magnet:?xt=urn:btih:A083399DA7EC75C21110939C6B993E7296817C1D
 ```bash
 magnet:?xt=urn:btih:256787CCAE8699C813E09DFFB1902F6839FD6CC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +179,8 @@ magnet:?xt=urn:btih:256787CCAE8699C813E09DFFB1902F6839FD6CC1
 magnet:?xt=urn:btih:70AB21E3156E729E988C34BA8B863CB22184C8C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +204,8 @@ magnet:?xt=urn:btih:70AB21E3156E729E988C34BA8B863CB22184C8C7
 ```bash
 magnet:?xt=urn:btih:0246206FCB7E8CB777A2F9EFC10124CF11FD9E61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +231,8 @@ magnet:?xt=urn:btih:0246206FCB7E8CB777A2F9EFC10124CF11FD9E61
 magnet:?xt=urn:btih:2B40F03BEDA32631B673347056E12774C2239E99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:2B40F03BEDA32631B673347056E12774C2239E99
 magnet:?xt=urn:btih:3128C393DEF4047A8ED4B3F55D760A812EDEDB7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ magnet:?xt=urn:btih:3128C393DEF4047A8ED4B3F55D760A812EDEDB7E
 ```bash
 magnet:?xt=urn:btih:BD35E3C14B101C26DA0F6ED22E6BE1134DA75A95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +310,8 @@ magnet:?xt=urn:btih:BD35E3C14B101C26DA0F6ED22E6BE1134DA75A95
 magnet:?xt=urn:btih:3D55E90F28712D3666A48A15E3E3CC3FAA5164BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +335,8 @@ magnet:?xt=urn:btih:3D55E90F28712D3666A48A15E3E3CC3FAA5164BC
 ```bash
 magnet:?xt=urn:btih:AEBF4D297096E350C3DAC4AC3C2DB4DE12A819CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +362,8 @@ magnet:?xt=urn:btih:AEBF4D297096E350C3DAC4AC3C2DB4DE12A819CE
 magnet:?xt=urn:btih:ABCC5936822B64C3E731552E4E800D1599D219AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +387,8 @@ magnet:?xt=urn:btih:ABCC5936822B64C3E731552E4E800D1599D219AF
 ```bash
 magnet:?xt=urn:btih:F598A5FE3C59AA7752C19529AEC8F523E39A1481
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +414,8 @@ magnet:?xt=urn:btih:F598A5FE3C59AA7752C19529AEC8F523E39A1481
 magnet:?xt=urn:btih:2C93E4DFE28CA3031A7CAF3A7D97506504E5FB5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +439,8 @@ magnet:?xt=urn:btih:2C93E4DFE28CA3031A7CAF3A7D97506504E5FB5F
 ```bash
 magnet:?xt=urn:btih:944FCAD7A561472CC0E2E0104F90202C849E84F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +471,8 @@ magnet:?xt=urn:btih:944FCAD7A561472CC0E2E0104F90202C849E84F7
 magnet:?xt=urn:btih:DB2D32A4AE5BEE2721F59409E7AD16893BBC86CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +502,8 @@ magnet:?xt=urn:btih:DB2D32A4AE5BEE2721F59409E7AD16893BBC86CE
 magnet:?xt=urn:btih:8DE430D7D621E295255F165B03FD7E72911EB5D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +529,8 @@ magnet:?xt=urn:btih:8DE430D7D621E295255F165B03FD7E72911EB5D8
 magnet:?xt=urn:btih:2FABE92FBFFA44CD8A9E94E563A74C31AD05FF99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +554,8 @@ magnet:?xt=urn:btih:2FABE92FBFFA44CD8A9E94E563A74C31AD05FF99
 ```bash
 magnet:?xt=urn:btih:860A45A86C6418097DC3976BFCA4C726FDAEC67E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +581,8 @@ magnet:?xt=urn:btih:860A45A86C6418097DC3976BFCA4C726FDAEC67E
 magnet:?xt=urn:btih:6ABC051943465545F55FA3519660FF286EBA8744
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +606,8 @@ magnet:?xt=urn:btih:6ABC051943465545F55FA3519660FF286EBA8744
 ```bash
 magnet:?xt=urn:btih:070DF2AED8891405DF52EA8C56622BAC5C2065C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +633,8 @@ magnet:?xt=urn:btih:070DF2AED8891405DF52EA8C56622BAC5C2065C7
 magnet:?xt=urn:btih:0D89A1C275C20FB2B94B260CF39DC757CAFCA3D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +658,8 @@ magnet:?xt=urn:btih:0D89A1C275C20FB2B94B260CF39DC757CAFCA3D4
 ```bash
 magnet:?xt=urn:btih:C0FF7C28FF860448749D95AFEE5A79656A71F324
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,29 +685,7 @@ magnet:?xt=urn:btih:C0FF7C28FF860448749D95AFEE5A79656A71F324
 magnet:?xt=urn:btih:71EE2513E5BF507F9DB5F9D8B715BDD2ABEF71A6
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031124   (668432) от 03.07.2016
-
-Антикиллер Xохлов. Исповедь предателя (2005) TVRip [H.264]
-
->>Документалистика и Телепередачи
->>Личности в истории
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой фильма Николай Xохлов – один из самых загадочных советских разведчиков – невозвращенцев, единственный, кто в 1954 году дал открытую пресс-конференцию, где заявил о своем переходе на сторону ЦРУ. Дальнейшая его судьба долгие годы оставалась засекреченной. Спустя 50 лет Николай Xохлов согласился рассказать свою историю для российских телезрителей. В центре (   Читать дальше...   )Телекомпания: РоссияЖанр: ДокументальныйРежиссер: Ольга БорщПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:108107FD44751B3D6CAE92ED1F7E6C4840EF8158
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

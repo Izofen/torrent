@@ -1,3 +1,29 @@
+###  Публикация: 1128206   (730037) от 23.04.2017
+
+Звезды сошлись (2017.04.23) SATRip (выпуск 1)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждую неделю по воскресеньям в центре дискуссии нового остро-звездного проекта НТВ может оказаться все, кроме политики. То, о чем вся страна говорит на кухне, спорит на форуме или судачит на скамейке у дома — от новой фотосессии известной балерины до неожиданного рождения детей от суррогатной матери у очередного артиста, от скандала в Instagram до свадьбы или развода (   Читать дальше...   )Производство: НТВЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:27:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2B7D65BA7F419EAC04CE89B9CB12BA611822B3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128212   (730042) от 23.04.2017
 
 Воскресный вечер с Владимиром Соловьевым (2017.04.23) WEB-DLRip [H.264/720p-LQ]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:87BEF34B74FBDD5F0648F900B6F9D469F33B7F21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:87BEF34B74FBDD5F0648F900B6F9D469F33B7F21
 ```bash
 magnet:?xt=urn:btih:BFF9450A8EFE32B969311FB6FF819A00AAD3ADF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:BFF9450A8EFE32B969311FB6FF819A00AAD3ADF7
 magnet:?xt=urn:btih:D84314740029B80B125F9668E2E4B7704AD15BAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:D84314740029B80B125F9668E2E4B7704AD15BAB
 magnet:?xt=urn:btih:9A946A0E24A47E11C0D9C9E9C2EA6D9EDA741017
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:9A946A0E24A47E11C0D9C9E9C2EA6D9EDA741017
 ```bash
 magnet:?xt=urn:btih:90848CC574D702A93AD3AE6EA6779E62D647A50E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:90848CC574D702A93AD3AE6EA6779E62D647A50E
 magnet:?xt=urn:btih:695E2B5C5A1A0E678176A87B1EA7984C1FC1B6C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:695E2B5C5A1A0E678176A87B1EA7984C1FC1B6C6
 ```bash
 magnet:?xt=urn:btih:84CF501B314E67BBC2DF8EDE28399F82B62417CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:84CF501B314E67BBC2DF8EDE28399F82B62417CD
 magnet:?xt=urn:btih:086E6D89FAD8A1F1C4C6F557E270FF3BE89C9E37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:086E6D89FAD8A1F1C4C6F557E270FF3BE89C9E37
 magnet:?xt=urn:btih:AD9CF52ED3E2AD402C6C975F8D13B7FF1A74BD71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:AD9CF52ED3E2AD402C6C975F8D13B7FF1A74BD71
 ```bash
 magnet:?xt=urn:btih:837AA7BAFE911F872F1D3C3E5D1C51575EB30BBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:837AA7BAFE911F872F1D3C3E5D1C51575EB30BBD
 magnet:?xt=urn:btih:A81B58D78705CF01E3D35AAFCBCAFEDF001AEE61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:A81B58D78705CF01E3D35AAFCBCAFEDF001AEE61
 ```bash
 magnet:?xt=urn:btih:6D290908F3253383FA157F8E91BBB46517204148
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:6D290908F3253383FA157F8E91BBB46517204148
 magnet:?xt=urn:btih:45D8BB864348E2BE4A29B87F8E599564AC3D50D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:45D8BB864348E2BE4A29B87F8E599564AC3D50D5
 ```bash
 magnet:?xt=urn:btih:C829DD6C996146C4A7A070D671D2E85FAF6FC070
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:C829DD6C996146C4A7A070D671D2E85FAF6FC070
 magnet:?xt=urn:btih:7ECD037491026A57253382C97EB8C06E1380E879
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:7ECD037491026A57253382C97EB8C06E1380E879
 ```bash
 magnet:?xt=urn:btih:255533E56CB23DD1063E285BB60E00697F7E6ECB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:255533E56CB23DD1063E285BB60E00697F7E6ECB
 magnet:?xt=urn:btih:767D45EEBB9A219326713C7B3130E29266D8DE13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:767D45EEBB9A219326713C7B3130E29266D8DE13
 ```bash
 magnet:?xt=urn:btih:39D9829075BBEBDB072E69BE218A3A371D101CE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:39D9829075BBEBDB072E69BE218A3A371D101CE1
 magnet:?xt=urn:btih:C39D63D0A5398CD1CC7EC97A671D18669BD4F969
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:C39D63D0A5398CD1CC7EC97A671D18669BD4F969
 ```bash
 magnet:?xt=urn:btih:0F050E0A0027F55CF2529A3B052E1ABA9B87E8A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:0F050E0A0027F55CF2529A3B052E1ABA9B87E8A3
 magnet:?xt=urn:btih:D1E52DD3A3E9D8178240C6288E1A7947D551B1D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ Discovery: Братья Дизель / Diesel Brothers (2017) HDTVRip (2-й Се
 ```bash
 magnet:?xt=urn:btih:03FB356F28001D3DF0A97AB07E143266EE48D682
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:03FB356F28001D3DF0A97AB07E143266EE48D682
 magnet:?xt=urn:btih:E0153CE809A8E11EA03DF46E7566221C8FC44E42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:E0153CE809A8E11EA03DF46E7566221C8FC44E42
 ```bash
 magnet:?xt=urn:btih:5F14DB90AE14552EC33834626BD2C0789E6A0554
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:5F14DB90AE14552EC33834626BD2C0789E6A0554
 magnet:?xt=urn:btih:94E0A65F95B827DD8A92B4100AF743C0D7BEBB7B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127810   (730975) от 22.04.2017
-
-Территория заблуждений с Игорем Прокопенко (2017.04.22) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый день приносит научные сенсации, которые противоречат нашим привычным знаниям. Невероятные находки археологов опровергают учебники истории. Новейшие открытия астрономов начисто ломают знания о жизни Вселенной. А последние исследования медиков - рушат, казалось бы, незыблемые истины даже о жизни и смерти. В результате даже ученые все чаще приходят к неутешительному (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 01:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:381A30F426F641509937EF81DAB033CBB8891577
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

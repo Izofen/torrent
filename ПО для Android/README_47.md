@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:0A0EF4BE8E5F91ACBAD6B9284FE1A425DDAF9B19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ RUTUBE — официальное приложение одноименной о
 magnet:?xt=urn:btih:128663686EAA74CF66DA053DCE8FAF914F1B7A25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ OfficeSuite Pro + PDF - это полнофункциональный офисн
 ```bash
 magnet:?xt=urn:btih:2AAB8D45B112CB8E782DF9F79F498EF33A96E82A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ AirReceiver — это универсальный потоковый (   Чит
 magnet:?xt=urn:btih:FE7E25CD969A51B6E85F45EC5C8BAC77A3583638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ My TTS: Text-to-Speech v1.2.2 Mod by Alex.Strannik [En/Ru]
 ```bash
 magnet:?xt=urn:btih:A7B63101B7BFD917C5CDD869063821ECA1CBAE03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ DtcFix -  универсальное приложение для диагнос�
 magnet:?xt=urn:btih:470F6082F6E0B7A150529406505521638204E200
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Strava: бег, велоезда, хайкинг v344.9 Mod by ReVanced Team [Ru
 ```bash
 magnet:?xt=urn:btih:33ED3C8C445D1398F17BC948937C42A076458FDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ ARuler - лучшее и бесплатное приложение на Android 
 magnet:?xt=urn:btih:DC9FC2A09C627D4BD0EA43F110C18B2B64C10D74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ PhotoTune - Улучшитель фото v4.4.9 Mod by maxi123444 [Multi]
 ```bash
 magnet:?xt=urn:btih:E66D3EF793EDA6EDFC9C90BC92BB45E679CFAC94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ PictureThis - Plant Identification v3.76.1 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:F7C937268D932689C0841A626992DCFE23674883
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Plus Messenger - неофициальное приложение для обме
 magnet:?xt=urn:btih:3205B93F1B1FB114244D158F94C33DFAD99F918E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Carista — мобильное приложение, с помощью кото�
 ```bash
 magnet:?xt=urn:btih:7BA31EA5370B591F0415E5851B200D2738ACB990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ MacroDroid - удобное приложение, которое позволя�
 magnet:?xt=urn:btih:0902B5DE1865AD68C2FE99E19C85C3953302A33B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ vpnify: лучший БЕСПЛАТНЫЙ, БЕЗЛИМИТНЫЙ и высок�
 magnet:?xt=urn:btih:553F207F486FD82084054713C5CDD1E5D0F9C320
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:553F207F486FD82084054713C5CDD1E5D0F9C320
 ```bash
 magnet:?xt=urn:btih:8F03BE36D0E755EC657312A80EB501E406A87437
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:FD2A9056D67A8AD71CE62056041CAC0D243A7CB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Documents To Go – это полноценный офисный пакет, в�
 ```bash
 magnet:?xt=urn:btih:97DB2F2ECA8E503BEAF33939D85FC857BB2007C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Pro Pilkki 2 / Зимняя рыбалка v1.9.3 Mod by Bubalex88 [Ru/Multi]
 magnet:?xt=urn:btih:A1641056DF8EF16449B0514B7ECE26EA8B9FB26C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ VK X 6.8.2 (29200) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:BD0777FF58681E5E016B8B2A8E452037BF93EACC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ InShot - Мощный видеоредактор и фоторедактор н�
 magnet:?xt=urn:btih:034EA64531B131615FE874CDF183AF02756EE5B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Gradient - это передовое приложение с лучшими AI-�
 ```bash
 magnet:?xt=urn:btih:6A57338EF896B6C781456C7A134E677EAEC8D0C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ Listen Audiobook Player v5.2.5 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:836C6642FDA803E519229B85F4FA1C6DA33063FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:836C6642FDA803E519229B85F4FA1C6DA33063FB
 ```bash
 magnet:?xt=urn:btih:9CCA5E25BFCCD955BB7C0D7F1803FAA14B77F5BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ Bazaart: Photo Editor & Graphic Design v2.4.4 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:C3C7B86FD882B2A764EBC070801A541ABF1787DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Sense V2 Flip Clock & Weather - одно из самых известных и �
 magnet:?xt=urn:btih:C84756C3C58A791AEBE742D8AB849C77EC067841
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:C84756C3C58A791AEBE742D8AB849C77EC067841
 ```bash
 magnet:?xt=urn:btih:6215D577CAC4E09C5718C968302304C0273431F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Kaspersky Free - бесплатный Антивирус Касперского 
 magnet:?xt=urn:btih:1C727440D4C69C4C94FE88F8FC183BC2A06957D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:1C727440D4C69C4C94FE88F8FC183BC2A06957D4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Linux Mint 19.1 Tessa (XFCE, Mate, Cinnamon) [32bit,64bit] 6xDVD
 ```bash
 magnet:?xt=urn:btih:7D5BA5A6EFD7B1BC299D0A832AB49EB3431EEC17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:7D5BA5A6EFD7B1BC299D0A832AB49EB3431EEC17
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ ATOM RPG это пост-апокалиптическая инди-игра вд
 ```bash
 magnet:?xt=urn:btih:AA31048406C01F4C4E9BD745113EA54D3FAD4CE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:AA31048406C01F4C4E9BD745113EA54D3FAD4CE4
 magnet:?xt=urn:btih:EA6B5EEB49765F12FBDBE47E5826116A2D8F3B30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Microsoft собирается добавить вкладки в интерфе
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Microsoft собирается добавить вкладки в интерфе
 magnet:?xt=urn:btih:C0E521ECC914FEDAA39DAE46368932D4B3CE6E83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:C0E521ECC914FEDAA39DAE46368932D4B3CE6E83
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:C0E521ECC914FEDAA39DAE46368932D4B3CE6E83
 magnet:?xt=urn:btih:C3C92FECEAB3A4D723A898ADF414ACC364CA83DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:C3C92FECEAB3A4D723A898ADF414ACC364CA83DE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:C3C92FECEAB3A4D723A898ADF414ACC364CA83DE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ MultiBoot USB HDD Utility and Windows & Linux CRUTCH 2016 v5.0 - MultiBoot сб�
 magnet:?xt=urn:btih:B7868E921147A85A5B2041E5CC072DD63CE439C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Imagenomic Portraiture - плагин для Adobe Photoshop и Photoshop Elemen
 ```bash
 magnet:?xt=urn:btih:D96C6B7B1BBFF2DB4024D969AD50398C14D89506
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ ESET Smart Security 10 поможет сделать работу в интер�
 magnet:?xt=urn:btih:9EFAB087974129F8C2134B2D74FC6948E72BB6B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ The Sims 4 (2014) [Ru] (1.25.136.1020/dlc) Repack xatab [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:D2A79A432A4B3974FBD23E16F6AE3086080F4076
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Windows 8.1 (x86/x64) 10in1 +/- Office 2016 SmokieBlahBlah 21.12.16 [Ru/En]
 magnet:?xt=urn:btih:0A7C105C24D62843860668FF3DA040BB9C55BEE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ The Walking Dead: A New Frontier (2016) [Ru/Multi] (1.0) Repack R.G. Механ�
 ```bash
 magnet:?xt=urn:btih:C2B5B75134BAA8F119AD223D88534DC3B51DD813
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:C2B5B75134BAA8F119AD223D88534DC3B51DD813
 magnet:?xt=urn:btih:291AC3D6F8440B3DD85745D6FA4B10B2D438B723
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:291AC3D6F8440B3DD85745D6FA4B10B2D438B723
 ```bash
 magnet:?xt=urn:btih:66DFA55C90102D5FF048A3F5118E54AB886E40C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:66DFA55C90102D5FF048A3F5118E54AB886E40C1
 magnet:?xt=urn:btih:7F6616961F51ACB537E2F513A1242666ADDDF75E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ iMindMap Ultimate 9.0.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6B17BDB78135BBDC311D71DDCBB68DFAD3030315
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:6B17BDB78135BBDC311D71DDCBB68DFAD3030315
 magnet:?xt=urn:btih:73AD4253032DA3BC23E35CB01AEF73586202C6D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:BF4C5FA6D6E36974A30907F056E03025B5A9C0DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ MultiBoot 2k10 7.30.1 Unofficial [Ru/En]
 magnet:?xt=urn:btih:009996F2BE4D16A5EE617861E085F357293F10F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:009996F2BE4D16A5EE617861E085F357293F10F9
 ```bash
 magnet:?xt=urn:btih:F0F042BF8C08F5531CFCEA0EAF608784ABB4E72D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

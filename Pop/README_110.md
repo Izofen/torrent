@@ -22,6 +22,8 @@ CD1
 magnet:?xt=urn:btih:53A76F90E7DFE898CC38B63D7D17C480BEC32180
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - ZYX Italo Disco New Generation Vol. 1 (2012) [OGG Vorbis|480 Kbps] <Italo-D
 ```bash
 magnet:?xt=urn:btih:9C86FD34029BCF6965E5F861ACD3C94EFD1227DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - It's Hits (2023) [OGG Vorbis|480 Kbps] <Pop>
 magnet:?xt=urn:btih:DCFB180C8FB712203408724A9F253922ED477488
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Electric Dreams (1993) [OGG Vorbis|480 Kbps] <Electronic, Rock, Synth-pop>
 ```bash
 magnet:?xt=urn:btih:494FCC4E60063386D9AF2896952ECAF9E6E757EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VLNY - Меня здесь нет (2023) [MP3|320 Kbps] <Indie Pop, Synth Pop>
 magnet:?xt=urn:btih:CC95B5E75D46418DFC7F2655BA897053B5C387F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Soul Collected (2023) [MP3|320 Kbps] <Soul, Funk, R&B>
 ```bash
 magnet:?xt=urn:btih:88EF62F1D71D470F03685C2A9C29BEFA31327BB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Mega Hits 2015 (2023) [OGG Vorbis|480 Kbps] <Pop>
 magnet:?xt=urn:btih:710D2E62EDECEB13BA818FC24F67897F97B20529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - timeless love tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:5A16A5731D226B0D175341C3F04044924BFA258C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Melanie Martinez - Portals (2023) [FLAC|Lossless|tracks + .cue] <Pop>
 magnet:?xt=urn:btih:527B208B3B910AD98412D1940AFFD3DBE809966A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ magnet:?xt=urn:btih:527B208B3B910AD98412D1940AFFD3DBE809966A
 ```bash
 magnet:?xt=urn:btih:645196E5B780BE60596581BE5815FFADA5E4C907
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ magnet:?xt=urn:btih:645196E5B780BE60596581BE5815FFADA5E4C907
 magnet:?xt=urn:btih:30AED8202C0CA1037402694A3EEA48AD7598EB3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ magnet:?xt=urn:btih:30AED8202C0CA1037402694A3EEA48AD7598EB3C
 ```bash
 magnet:?xt=urn:btih:80472C430B33412C24E78DC027347C74BB28BDAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ VA - Now That's What I Call Music! 27 (1994) 2CD [OGG Vorbis|480 Kbps] <Electron
 magnet:?xt=urn:btih:9C01A20468652A751E2C67CEF3BA0AF80C18CEB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ Discobonus - Different Shores (2020) [FLAC|Lossless|tracks + .cue] <Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:1817EF17FD5F1FC7814854FB3EBE21082FF1BC02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +425,8 @@ Scotch - Pictures Of Old Days (1987) Reissue, Remastered, Deluxe Edition, 2016 [
 magnet:?xt=urn:btih:AD424992245A61E1A23F70A2BA219176CDF772D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ magnet:?xt=urn:btih:AD424992245A61E1A23F70A2BA219176CDF772D4
 ```bash
 magnet:?xt=urn:btih:5420DC0C437F689053DD60125A08EB4FDD3F049D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ VA - Fresh Pop Hits 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 magnet:?xt=urn:btih:D7557D7E4F79245721CB095B519DDA1252D00913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ VA - 10s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:0A0C6B3FC847AAA60FAF66D92F6076CF6DF26D1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +547,8 @@ magnet:?xt=urn:btih:0A0C6B3FC847AAA60FAF66D92F6076CF6DF26D1E
 magnet:?xt=urn:btih:B43722FDB1FAF0BD97432CC8F3D3A5C41689CA09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +581,8 @@ Tom Jones - Spirit in the Room (2012) [MP3|320 кб/с]<Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:8A92C3065CB5C2734ED2B9D270767D3BA70D1205
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +617,8 @@ VA - Ils Chantent Dalida (2012) [MP3|320 кб/с]<French Pop>
 magnet:?xt=urn:btih:2B1EB39EC8537BDD61BDD0CDFF32DCE43B9E2F70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +645,8 @@ VA - The 80’s Greatest Hits (2008) 3 CD [OGG Vorbis|480 Kbps] <Rock, Funk / So
 ```bash
 magnet:?xt=urn:btih:CFB73509E5999B35A5D2BD024ED73FDB9B922EB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +675,8 @@ CD1:
 magnet:?xt=urn:btih:53C3634221609ABEFE14981F845DF6BFED393FAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +704,8 @@ Gwen Stefani - You Make It Feel Like Christmas (2025) Deluxe Edition [FLAC 24/48
 magnet:?xt=urn:btih:165A8E8B4066F6FFC52BBB6318DAA8122224BBB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -684,6 +732,8 @@ magnet:?xt=urn:btih:165A8E8B4066F6FFC52BBB6318DAA8122224BBB0
 ```bash
 magnet:?xt=urn:btih:C824976E61F45389D62F12B0657CAE768791624F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -717,6 +767,8 @@ Foster The People - Torches (2011) [FLAC|Lossless]<Indie Pop, Alternative>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

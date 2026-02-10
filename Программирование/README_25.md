@@ -19,6 +19,8 @@ Steve Santello, Alan R. Stagner | Building an RPG with Unreal / Построен
 magnet:?xt=urn:btih:62A7DC6E13EDB876F0C5FCBF1B24AC857444C048
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:62A7DC6E13EDB876F0C5FCBF1B24AC857444C048
 magnet:?xt=urn:btih:4BE198B6DBAAD395F379D027E4EFF4FC5AB4562A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:4BE198B6DBAAD395F379D027E4EFF4FC5AB4562A
 magnet:?xt=urn:btih:997E29637E242DA72705AA79A87C3691856B620E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:997E29637E242DA72705AA79A87C3691856B620E
 ```bash
 magnet:?xt=urn:btih:0C7774876927AA96ED2D5EFF397FD4601E0A89A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Did you know that most Python programmers waste 70% of their time Googling the s
 magnet:?xt=urn:btih:DD38CC09B981B80B25F328DCAF97DB4ABF2B300B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ JavaFX — это платформа для создания Rich Internet Appli
 magnet:?xt=urn:btih:3FFAF542D404CC915E25FCF5CB4E2715D8BFAA05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:3FFAF542D404CC915E25FCF5CB4E2715D8BFAA05
 ```bash
 magnet:?xt=urn:btih:CD030D8E7CA168825511F6FEFA9E52C0525FD5BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:CD030D8E7CA168825511F6FEFA9E52C0525FD5BD
 magnet:?xt=urn:btih:F9EED9684EB1EE622D58E46DFB3CE9ED6C57C4C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Matthew Dowst | Practical Automation with PowerShell (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:15C01A611C7C278D591590862FD7F61F140FD031
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ John Sharp | Microsoft Visual C# Step by Step, 10th Edition (2022) [PDF][EN]
 magnet:?xt=urn:btih:16E89A55FC201EEB7E2B2E4F010CF84981E15F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ Federico Kereki | Mastering JavaScript Functional Programming, 3rd Edition (2023
 magnet:?xt=urn:btih:1D60C7615AF2E2BE4B9020B609FE4A897AB40D95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Marten Deinum, и др. | Spring 6 Recipes: A Problem-Solution Approach to Sprin
 ```bash
 magnet:?xt=urn:btih:9EE4C63524B9BAD144E307373EBEA1637513077D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ Sveta Smirnova, Alkin Tezuysal | MySQL Cookbook, 4th Edition (2022) [PDF][EN]
 magnet:?xt=urn:btih:C2FF589E9D0F31B2924992D8731DF4FFC7A647F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ Florian Rappl | Modern Frontend Development with Node.js (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:896BFF2A13AFF210659947816296ABBC130897ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:896BFF2A13AFF210659947816296ABBC130897ED
 magnet:?xt=urn:btih:10368E934B922EC1C5C1871D08B146336B917FBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:10368E934B922EC1C5C1871D08B146336B917FBC
 magnet:?xt=urn:btih:95001E17347523590C5EE9B48FEAA47402E6DCEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:95001E17347523590C5EE9B48FEAA47402E6DCEF
 magnet:?xt=urn:btih:8AE03E36522385AF9E92FFB08FA08121373704D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:8AE03E36522385AF9E92FFB08FA08121373704D0
 ```bash
 magnet:?xt=urn:btih:79A8EC4856FD554547F812C076C297D9E18A4A7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ Stack Overflow | CSS для профессионалов. Руководство
 magnet:?xt=urn:btih:7357D913639D93528C77FBDFF2F5B73CEABE3521
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:7357D913639D93528C77FBDFF2F5B73CEABE3521
 ```bash
 magnet:?xt=urn:btih:C765CF2B796291B1062500256D9662E17EB2E3D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ magnet:?xt=urn:btih:C765CF2B796291B1062500256D9662E17EB2E3D7
 magnet:?xt=urn:btih:4976615980E53A1DD0DF3ADF8C87378DF2D7A14D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:4976615980E53A1DD0DF3ADF8C87378DF2D7A14D
 ```bash
 magnet:?xt=urn:btih:82CF5C4A42096A461E4E29A258E0F5E95803B08F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ Jaime Buelta | Python Automation Cookbook, 2nd Edition (2020) [PDF][EN]
 magnet:?xt=urn:btih:13BB9C4FA3A5D385A66DCECE26C7686DF2846A9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ Alberto Gonzalez | Linux Server Cookbook (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:CCF99447DCBD1A29E795DDCD0918DB262CBDC438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ Robert Benefield | Lean DevOps: A Practical Guide to On Demand Service Delivery 
 magnet:?xt=urn:btih:414D4F59262A0A6EAA7D4AFC995CE061C02B7DEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ Marian Montagnino | Building Modern CLI Applications in Go (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:F3AF1879ACAE661EFBB14B9B04167EC244A99F71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

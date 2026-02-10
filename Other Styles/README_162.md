@@ -22,6 +22,8 @@ Marco Beltrami - Gods Of Egypt (Music From The Motion Picture) (2016) [FLAC|Loss
 magnet:?xt=urn:btih:E0B662776492F8B395285C708CC8A9F9F1D3C283
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ Faun - Acoustic - Buch Der Balladen (2009) [MP3|320 kbps]<Medieval Folk>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -88,6 +92,8 @@ Faun - Acoustic - Buch Der Balladen (2009) [MP3|320 kbps]<Medieval Folk>
 magnet:?xt=urn:btih:E460C931835F3B472A5E82B9FB20E82584053DD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +120,8 @@ VA - Blade / Блэйд (1998) Unofficial [MP3|127-320 Kbps] <Soundtrack>
 ```bash
 magnet:?xt=urn:btih:E0F4C100B5900CABAAE9C6280FDDAD3AF7EFC1C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +155,8 @@ Vol.III
 magnet:?xt=urn:btih:6BA29EFB4C29E70FB6776573FEEB7022E2BF8D96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +184,8 @@ Pryapisme - Diabolicus Felinae Pandemonium (2017) [MP3|320 Kbps] <Instrumental A
 magnet:?xt=urn:btih:71253919298C4B275E65A9DA846078567F8527DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +211,8 @@ magnet:?xt=urn:btih:71253919298C4B275E65A9DA846078567F8527DD
 ```bash
 magnet:?xt=urn:btih:3432A01499D6F54F785CC4A323B1068A4F594CF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +247,8 @@ VA - Gold Star Ballroom - Viennese Waltz (2005) [MP3|320 кб/с]<Instrumental, 
 magnet:?xt=urn:btih:6016743B3B1EE37D793DB58AA7178BB7F0E381C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +275,8 @@ Trio Mandili - With Love (2015) [MP3|320 кб/с] <Ethnic / Georgian Folk>
 ```bash
 magnet:?xt=urn:btih:B71B917F084ED4B35C7D4F35D5F3300DA7C53CD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +305,8 @@ VA - Straight Outta Compton (Music From The Motion Picture) (2016) [FLAC|Lossles
 magnet:?xt=urn:btih:CED0CB509EDDCC05C1303A4632CA9EEF3F5C1D90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +333,8 @@ Wikluh Sky - Сербский фильм / A Serbian Film (2010) [MP3|320 kbps] 
 ```bash
 magnet:?xt=urn:btih:3A2C15A44D45AA3BAC3141986F4BC6D60EE7CCD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +363,8 @@ magnet:?xt=urn:btih:3A2C15A44D45AA3BAC3141986F4BC6D60EE7CCD2
 magnet:?xt=urn:btih:A500BE76D6E956477C13D91123BC88BD1A962510
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +388,8 @@ VA - 69 Must Have Chillout & Lounge Songs (2013) [MP3|320 кб/с]<Downtempo, Ch
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +418,8 @@ Enigma - 7 Albums, 2 Compilations (1990 - 2008) [FLAС|Lossless|tracks] <New Age
 magnet:?xt=urn:btih:878909B8A09DB1F1151C8DCD608360B2352587AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +446,8 @@ Phaedrus - Gravity, Vol. 1 (2007) [MP3|192 Kbps] <New Age, Enigmatic, World>
 ```bash
 magnet:?xt=urn:btih:7BD3DAC269870187E0B0309219BD4CA832AEA28D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +476,8 @@ Lesiem - 5 альбомов (2000 - 2005) [FLAC|Lossless|tracks + .cue] <New Age
 magnet:?xt=urn:btih:BD517EC0733C1D79F889DBA5F3990655183D80F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +504,8 @@ magnet:?xt=urn:btih:BD517EC0733C1D79F889DBA5F3990655183D80F4
 ```bash
 magnet:?xt=urn:btih:3B9FABFA6C5ED42C021EA15E2EE58AE6F31FB787
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +534,8 @@ Maurizio Filardo - Perfetti sconosciuti (Colonna sonora originale del film) (201
 magnet:?xt=urn:btih:A90EE06A23E405EEFDC5CAACC0DBF1ACAFAD595C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +559,8 @@ VA - Give Ireland Back To The Irish (10 CD) (2000) [MP3|320 kbps]<Irish folk, tr
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +589,8 @@ Spirit Of Africa - Sacred Verses And Tribal Chants Of Native Africa (1996) [MP3|
 magnet:?xt=urn:btih:DA65FACBA09C2CBC47A1450DA4C7EFB01F4D1338
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +618,8 @@ Spirit Of Africa 2 - The Unforgettable Musical Journey Continues (2008) [MP3|320
 magnet:?xt=urn:btih:485039A198B3B42894C630CA2142D296B6A2AE6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +643,8 @@ magnet:?xt=urn:btih:485039A198B3B42894C630CA2142D296B6A2AE6B
 ```bash
 magnet:?xt=urn:btih:E9F0F1B3C0B59C7678DD024E6F1DC8CD72E55BC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +672,8 @@ Klaus Back & Tini Beier - Enigma Of Faith (1995) [MP3|320 Kbps] <New Age, Enigma
 ```bash
 magnet:?xt=urn:btih:20F17C56DBA6832868860B3DCDD866B4B24D7392
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -662,6 +708,8 @@ ABBAЖанр: Easy Listening, InstrumentalПродолжительность: 00
 magnet:?xt=urn:btih:354C78FE2E39B91A5C4815019983540B109616D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +743,8 @@ magnet:?xt=urn:btih:354C78FE2E39B91A5C4815019983540B109616D1
 magnet:?xt=urn:btih:97C54EE7629B0598890B28E1500F767690A19072
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -718,6 +768,8 @@ Dandelium - Дискография (2006-2008) [MP3|256 kbps]<Instrumental symph
 ```bash
 magnet:?xt=urn:btih:D9CD029545E338494370D7B58917034DAD5D8EAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

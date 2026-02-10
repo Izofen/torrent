@@ -19,6 +19,8 @@ Svarog's Dream выделяется как увлекательная РПГ, п
 magnet:?xt=urn:btih:C794DB68F68B13F043D6609EAB5EB8DA0C2BB17B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Maniac - криминальный экшен в стиле rogue-lite, брос�
 ```bash
 magnet:?xt=urn:btih:9AA8E9647D381E7CCF06F55A8373F587DCAF226D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Metal Unit повествует трагическую историю о буд�
 magnet:?xt=urn:btih:B53EC6A466A4A57420991BF1AFEFD5E2C6B975F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Outcast - A New Beginning – это продолжение знаменитог
 ```bash
 magnet:?xt=urn:btih:D5283CB9A1910A227BE17F05AF47B7AA3D2ADB78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Three Kingdoms Zhao Yun погружает игроков в водоворот 
 magnet:?xt=urn:btih:F25E6900875B7FA1FBED614668A49E5E4AC2B3FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:F25E6900875B7FA1FBED614668A49E5E4AC2B3FC
 ```bash
 magnet:?xt=urn:btih:4407ADD60C78095157E0AAD90DDFE79ED81208A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Outcast - A New Beginning – это продолжение знаменитог
 magnet:?xt=urn:btih:8D9EE70D927ADB53D53BEB9C344F82F83EC04FAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Legend of Legacy HD Remastered (2024) [Multi] (1.0/dlc) Repack FitGirl [Laun
 ```bash
 magnet:?xt=urn:btih:A660DD55B28DCFDD7E35F21B03208CE689CBAB2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Phantom Tides (2024) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:35E604D5C09D7DA9D55BBABAC901534A6149CB42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Reverse Collapse: Code Name Bakery - тактическая RPG, события 
 ```bash
 magnet:?xt=urn:btih:B2E7C68C1D8066F8FDBC36B65886DF52334C3A0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Book of Demons это гибрид Hack & slash и карточной игры, 
 magnet:?xt=urn:btih:EAA9E99984B494A58E2B2C29B22D9BA4F2073605
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Sands of Aura (2021) [Ru/Multi] (1.01.25) License GOG
 ```bash
 magnet:?xt=urn:btih:2BA8A4D4BB822C523B40896865A4D51CCFB35D2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Outcast - A New Beginning – это продолжение знаменитог
 magnet:?xt=urn:btih:27AB00B72E518764253B404A57D075E3782DD45E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ EMPYRE: Earls of the Deep Earth - тактическая ролевая игра
 ```bash
 magnet:?xt=urn:btih:128BAD6935416DCC021EAE0CDD05F991DAAF3529
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Grand Soul Saga - чудом сбежав из страны, где назрев
 magnet:?xt=urn:btih:32816DAB48A4D170A06619BDFB7E5647F3D481AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Blade Prince Academy вливает свежую кровь в жанр такт
 ```bash
 magnet:?xt=urn:btih:C4F899E05694A5685AD91A5F2A0C826DAC9E8C42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ God of War – новый взгляд на популярную серию, г�
 magnet:?xt=urn:btih:96D7A85AC65BAA1D5BCFF15D4CEC6CD81C1632DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Goblin Stone - пошаговая ролевая игра, рассказыва�
 ```bash
 magnet:?xt=urn:btih:54D848914CAF8DCC75E6A9E30D76E76A394DF1D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Solasta - Crown of the Magister (2021) [Ru/Multi] (1.5.97/dlc) License GOG [Supp
 magnet:?xt=urn:btih:44720D99164312CD2464171E340782E067C4D588
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Outcast - A New Beginning – это продолжение знаменитог
 ```bash
 magnet:?xt=urn:btih:F5AE587D0B3A6ADAB7EAB60B1AD9708D907A4F6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Welcome to ParadiZe - это увлекательная изометрическ
 magnet:?xt=urn:btih:0CB8888438A7DD9859FF0FA721CE19D3ECBF4ECA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Microcosmum 2 - стратегическая игра, основная цель
 ```bash
 magnet:?xt=urn:btih:4AA5F010FC128B192DC1FFA15D7FD75515D31CA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Thaumaturge - изометрическая ролевая игра с глу
 magnet:?xt=urn:btih:5BE76C39E3A7FB289F6ECF3421A58280AE66D5BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Zoria: Age of Shattering – тактическая групповая стра�
 ```bash
 magnet:?xt=urn:btih:4CF0888BEB49E5A7029E6F2FC25E524D8408F127
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Questron II (1988) [En] (1.2) License GOG
 magnet:?xt=urn:btih:8EE28C8334955284F777C8C23F72A18B39302965
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Warhammer 40,000: Rogue Trader – это изометрическая роле�
 ```bash
 magnet:?xt=urn:btih:CAA01CA5E08FBE7CF44478C30BFDFF6E2FE201B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

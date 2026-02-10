@@ -19,6 +19,8 @@ Light Image Resizer - программа для изменения размер�
 magnet:?xt=urn:btih:2A09EDFB59684B17EC2F9BDBB163F3C52B69DE18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ RegCool 2.015 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:52F9170A33AE2F4A2FE72A07702CF925DB41CE29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ GeoGebra — мультиплатформенная программное об�
 magnet:?xt=urn:btih:CE4B9FF8656048E8CD4F387DD6FB0DAD5C49515A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:B956FF346F4DD041F849DF52DE3B0440E08EC28B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Opera One 114.0.5282.154 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AF0F7D4CF3BC7A7AAB913D1DFC084C8DDB6C63CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ NIUBI Partition Editor – программа для простого и над�
 magnet:?xt=urn:btih:1A1E36F207BC1D6896632D21C9DBBDC38816BCCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:1A1E36F207BC1D6896632D21C9DBBDC38816BCCD
 ```bash
 magnet:?xt=urn:btih:39860EB046899D33C6053E5F4EF26B905A45EFB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ FreeFileSync - это утилита, которая была разработа
 magnet:?xt=urn:btih:749CDC8A380565AFF1A845F4979E58E36524E450
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Aiseesoft Screen Recorder 3.0.86 RePack (& Portable) by elchupacabra (x64) [Mult
 ```bash
 magnet:?xt=urn:btih:D7D894BB87A7ADF1C0BCAADFAC24FF95742FC1D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:AC0E31E5134F5FEFEAA810F7E00E143EC73F8EF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ WinX VideoProc Converter - усовершенствованная версия, 
 ```bash
 magnet:?xt=urn:btih:472BEB53EDB21EF0C20867E8780C5BFEDE2F2601
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Movavi Video Editor – универсальный инструмент для �
 magnet:?xt=urn:btih:129D5DA877C8C20D25B20904F4F476B4A1E6D888
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Text Editor Pro 30.0.0 + Portable + Bonus [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:60014C3F1CDAA0356BBA2DFA79E96F19EED89719
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ File & Image Uploader - удобная и просто незаменимая п
 magnet:?xt=urn:btih:EB5A87F2200627D731F26A0DBFCBA41DA04BF06D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Soft Organizer Pro 9.56 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EB7AE804AB2D01DFFE15AC34146899FAB9F73335
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ EF Commander  — замечательный двухпанельный файл
 magnet:?xt=urn:btih:FE23B6DE435B1B947FFE732AE660493985C63A18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:FE23B6DE435B1B947FFE732AE660493985C63A18
 ```bash
 magnet:?xt=urn:btih:D82026F97474F6AD98E315834C68E8D401C9D307
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:D82026F97474F6AD98E315834C68E8D401C9D307
 magnet:?xt=urn:btih:E0D2D4B4CC02C9B4072D0D0541EF3EFCDE0C271C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 magnet:?xt=urn:btih:8558625C46A138D9FB12AC9B6C22F3AFFC356C76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ FinePrint - многофункциональный драйвер для при�
 magnet:?xt=urn:btih:BE04EA45D88B63281FB6A680B92F53EC1C222AD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ FileZilla - популярный кроссплатформенный FTP кли
 magnet:?xt=urn:btih:CE7CCA681E4CBC016CD615A358A5DAAACCCC6763
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ magnet:?xt=urn:btih:CE7CCA681E4CBC016CD615A358A5DAAACCCC6763
 ```bash
 magnet:?xt=urn:btih:5AF17A7190F3407D122E3C873AC8C022711B7721
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ CudaText — абсолютно бесплатный мультиплатфор�
 magnet:?xt=urn:btih:0F249504ACFBB7D850F61DB1FDC6E7D75D79B018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:BA08AC6B54E2FD6D4D37468B527C0952D5D1BD5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ FontViewOK 8.55 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:6C0C32FA1D1EAC6BACCA54220627576AA9C8FFF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Autorun Organizer - простое в использовании приложе�
 ```bash
 magnet:?xt=urn:btih:5B8A68640C9AAFBB8CFB84BBCFE8C26E1D55E2F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

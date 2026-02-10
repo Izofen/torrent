@@ -28,6 +28,8 @@ VA - Вокально-Инструментальные Ансамбли СССР
 magnet:?xt=urn:btih:C8A7594A5B37755FA64F8271D0B8EA93C1B77919
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -61,6 +63,8 @@ VA - Диско 80-х - Кумиры восьмидесятых. Выпуск р
 magnet:?xt=urn:btih:156D6DE166917317C9978A3468DEBCE63D5C0D59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -85,6 +89,8 @@ Bananarama - 15 альбомов + 8 синглов (1983 - 2010) [MP3|320 kbps]
 ```bash
 magnet:?xt=urn:btih:2F66B88E6FF79974C93D8A2AB96A61570763461A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +125,8 @@ Ottawan - Greates Hits (2007) [FLAC|Lossless]<Disco>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +159,8 @@ VA - Звёзды царской эстрады (приложение к кни�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +195,8 @@ CD1 :
 magnet:?xt=urn:btih:86531B08ACAD656C4CAE67FC53798AD30DD537A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +229,8 @@ Stefanie Heinzmann - Stefanie Heinzmann (2012) [MP3|320 кб/с]<Soul, Indie Pop
 ```bash
 magnet:?xt=urn:btih:7AEACAABB41F9DEB9F7D2391D64BE8E8558C8586
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +265,8 @@ VA - Родные хиты семидесятых (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:D2599B2A93A636D8943F1CE8F1053B94B3B88A08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +299,8 @@ VA - Диско 80-х - Кумиры восьмидесятых. Выпуск 50
 ```bash
 magnet:?xt=urn:btih:8F1888F8794DDCF1A3E5C2F3BF2EF7E623F6A209
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +335,8 @@ VA - Назад в 80-e Collection (2012) [MP3|320 kbps]<Disco | Pop | Rock>
 magnet:?xt=urn:btih:871CD7BF34F665F1367260B49B670F2654AB687E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +369,8 @@ CD 1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +405,8 @@ Madonna - MDNA (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:EC5D2E3D371C2E3B5D644B5DDEE49CEB235A4307
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +439,8 @@ Madonna - MDNA (Deluxe Edition) (2012) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:79D5633DE082A818D7E40E976C9ADFA9568673F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +475,8 @@ Katy Perry - Teenage Dream-The Complete Confection (2012) [MP3|320 кб/с]<Pop,
 magnet:?xt=urn:btih:12689EDA2C9EF2338F929E9B04C6F09E5BC8CA85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +503,8 @@ magnet:?xt=urn:btih:12689EDA2C9EF2338F929E9B04C6F09E5BC8CA85
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +539,8 @@ Beverley Craven - Promise Me - The Best Of Beverley Craven (2011) [MP3|320 кб/
 magnet:?xt=urn:btih:E14A701E96B50F435CED8CDFF134222102DF2E89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +573,8 @@ VA - XXXL Золотые 80-е Русский (2012) [MP3|224-256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:50C728D3AB492E041A505039666E1452DE52AF86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +609,8 @@ VA - Romantic Collection Disco 80 vol. 1 (2012) [MP3|256 kbps]<Disco>
 magnet:?xt=urn:btih:8289318092C5369C37A9AE184C50A40C77A18403
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +643,8 @@ VA - Romantic Collection Disco 80 vol. 2 (2012) [MP3|256 kbps]<Disco>
 ```bash
 magnet:?xt=urn:btih:55B55D80EB0411645704F33CD041BAE5E59A1F8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +688,8 @@ CD 1: (01:17:35)
 magnet:?xt=urn:btih:E976CF41E150E035823D074028F574E0A5B4EA0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -682,6 +722,8 @@ CD-1
 ```bash
 magnet:?xt=urn:btih:2B42B7AB9E76F6568E33D98D4A336DB9E0502C3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -716,6 +758,8 @@ Mozzart - Money (The Maxi-Singles Collection) (2007) [MP3|320 кб/с]<Italo-Dis
 magnet:?xt=urn:btih:7324F465B5D9345752CDDB6CF5052726E12ECB65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -748,6 +792,8 @@ VA - Love Songs Top 100 Box Set 5CD (1995) [FLAC|Lossless]<Pop, Rock>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -782,6 +828,8 @@ Chris de Burgh - Greatest Hits (2012) 2CD [FLAC|Lossless]<Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -815,6 +863,8 @@ Chris de Burgh - Greatest Hits (2012) 2CD [FLAC|Lossless]<Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -847,6 +897,8 @@ Annalisa - Mentre Tutto Cambia (2012) [MP3|320 кб/с]<Italian Pop>
 ```bash
 magnet:?xt=urn:btih:2262CF94FCD7EB282EC0C7013BE8EA7AAC396D08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

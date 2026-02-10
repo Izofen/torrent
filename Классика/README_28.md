@@ -22,6 +22,8 @@ Rv 248 - I. Allegro    05:03
 magnet:?xt=urn:btih:4DDFA2C880D16CDCFA366E069CD575D744954218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ The Purcell Quartet - Vivaldi: Variations On 'La Folia' And Other Sonatas (1985)
 ```bash
 magnet:?xt=urn:btih:DED85CA5880FC01FF369F5F764806E77ABC54CF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Flute Concerto No. 1 in G major, K. 313 (K. 285c)
 magnet:?xt=urn:btih:5E7D9CB4FFDC9884A11C46BC0916601A0D41BA68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Tango Suite for 2 guitars
 ```bash
 magnet:?xt=urn:btih:0C798761AB05018965852BFE8D427F61984F7860
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Beethoven - Symphony No.5 in C minor
 magnet:?xt=urn:btih:C26E36AA51813B5BFD22B5C7C876D81C03E43FD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Piano Concerto in A minor, Op. 16
 ```bash
 magnet:?xt=urn:btih:6352E252C29B7EE87EA75529E5C4CC80A354A4D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Wolfgang Amadeus Mozart
 magnet:?xt=urn:btih:EE201550A3E8B14D216219925895CA73FF6BEB94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Salvatore Accardo, Orchestra da Camera Italiana - Vivaldi: The Four Seasons / Ba
 ```bash
 magnet:?xt=urn:btih:CA2E8A51AFAEB99DB8CD78400BCE190A57510AD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ New London Chorale - The Young Puccini (A Tom Parker Project) (1991) [FLAC|Lossl
 magnet:?xt=urn:btih:93570C806848040ECB97E77F1AEEC0BE94CD7A45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Jose Miguel Moreno - Sylvius Leopold Weiss: Ars Melancholiae (1993) 2008, Glossa
 ```bash
 magnet:?xt=urn:btih:C6F102B4F5F7BBBEEF865560F8586BF045D099C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Jennifer Bate - British Organ Music - Elgar And His Contemporaries (1995) [FLAC|
 magnet:?xt=urn:btih:DB4A019E2F422F79C102B34CE8DB6C97F35D495B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ VA - Classical Voices (2007) [FLAC|Lossless|image + .cue] <Classical Crossover, 
 magnet:?xt=urn:btih:F343BE5DBFDFB05A157E0ABC0058AF5AC291B6ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ Joaquin Rodrigo - The Rodrigo Edition (1992) Concertos & Symphonic Works, 4 CDs 
 ```bash
 magnet:?xt=urn:btih:771A569A4C35AEBC2D4D8D850E969D74C195EF92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +395,8 @@ Variations (28) for Piano on a theme by Paganini, Op. 35
 ```bash
 magnet:?xt=urn:btih:D4198C8C3F3BE553CC6EEEABBA21D1F337AD8912
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +431,8 @@ Sergei Prokofiev - The complete piano sonatas 1 (1991) [FLAC|Lossless]<classical
 magnet:?xt=urn:btih:408CA19469D93A4B6B395471AE57A4C6F16F7111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +459,8 @@ Concerto for 2 Mandolins, Strings & Continuo G-Dur RV 532
 ```bash
 magnet:?xt=urn:btih:9E816B7486487B45BAE981E287B93072EF3FA155
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +489,8 @@ Symphony No.3 In F Major, Op.90
 magnet:?xt=urn:btih:97A58943C3BCA8DA3EC62D0DD1EC66AECFD963DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +517,8 @@ Missa defunctorum, for double chorus, 2 flutes, 2 violins & continuo:
 ```bash
 magnet:?xt=urn:btih:131053C36028793974736D98F4C810C4149F46AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +547,8 @@ Beethoven Sym No.7 in A major
 magnet:?xt=urn:btih:4D7C8F779EFC155E45EAC786EEC5A42B91C4FFEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +575,8 @@ Kriemhild Jahn - Mozart-Premiere (2006) [FLAC|Lossless|image + .cue] <Classical 
 ```bash
 magnet:?xt=urn:btih:0B275C84F9EC15AB042216AED02CF9F52E583778
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +605,8 @@ Sergey Slavsky - Gone (2015) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Pi
 magnet:?xt=urn:btih:6DFCE98013D588A24248967B60A8DBC6BF0B8ED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +633,8 @@ magnet:?xt=urn:btih:6DFCE98013D588A24248967B60A8DBC6BF0B8ED3
 ```bash
 magnet:?xt=urn:btih:296936BC41B5153381DC709E538760502AA5F080
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +663,8 @@ Ensemble Gilles Binchois, Dominique Vellard, Chœur Altitude: Franz Liszt - Sept
 magnet:?xt=urn:btih:A702FDD1599B67360C2CE24B0EDCC475C730B33F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +691,8 @@ VA - 100 Best Relaxing Classics (2019) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ```bash
 magnet:?xt=urn:btih:096ADC8B6CE0199035F0AEBDF9C5878C9D542B0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +721,8 @@ Secret Garden - Storyteller (2019) [FLAC|Lossless|WEB-DL|tracks] <Classical Cros
 magnet:?xt=urn:btih:77D97F45E53FF8A32964F628E47C6724C04B771C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +749,8 @@ Un soir de neige
 ```bash
 magnet:?xt=urn:btih:8A6656BB9BF503D8458A2062D4F870B81A2E207A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

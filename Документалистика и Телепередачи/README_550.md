@@ -1,3 +1,29 @@
+###  Публикация: 1018494   (755811) от 20.05.2016
+
+Знахари.  Целители под прицелом медицины (20.05.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Может ли нетрадиционное лечение представлять угрозу для фармацевтических корпораций? Некоторые альтернативные методы постоянно балансируют на грани полного запрещения. Однако до прошлого года никто не мог предположить, что нетрадиционное лечение может стать опасным для практикующего врача! Что это – новая теория заговора? Или противостояние официальной медицины и (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ДокументальныйПродолжительность: 01:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EFC0624C7B12600171254535DB542053808E976
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018353   (755918) от 20.05.2016
 
 Осторожно, мошенники! Дачный ужас (2016.05.18) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:1BE9FC985EF74E722A2CC88DAAB840AC2C7B38DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:1BE9FC985EF74E722A2CC88DAAB840AC2C7B38DA
 magnet:?xt=urn:btih:14C7B09B2BBD7AA0B9E17F7C3004D953D89EF4FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:14C7B09B2BBD7AA0B9E17F7C3004D953D89EF4FA
 ```bash
 magnet:?xt=urn:btih:65572F5642A1EF13EA839C4285AB61F8A7540627
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:65572F5642A1EF13EA839C4285AB61F8A7540627
 magnet:?xt=urn:btih:57C44A9A553D44C65F85C8FEDA63A5D81A0A7DA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:57C44A9A553D44C65F85C8FEDA63A5D81A0A7DA3
 ```bash
 magnet:?xt=urn:btih:CF1CF97839222320D448511B6F9E35620C78AC4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:CF1CF97839222320D448511B6F9E35620C78AC4A
 magnet:?xt=urn:btih:548B8E0CDBAD901E5E62FE1DA59FFD02EACF4562
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:548B8E0CDBAD901E5E62FE1DA59FFD02EACF4562
 ```bash
 magnet:?xt=urn:btih:99BB456714B7A67DCC816AC1F87D6923F9269287
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:99BB456714B7A67DCC816AC1F87D6923F9269287
 magnet:?xt=urn:btih:52E7ED0332423651B65F42D6531ADB4A082CA0A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:52E7ED0332423651B65F42D6531ADB4A082CA0A6
 ```bash
 magnet:?xt=urn:btih:E799E73AFB235CB93B402C68A3EB8EFB98EA1978
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:E799E73AFB235CB93B402C68A3EB8EFB98EA1978
 magnet:?xt=urn:btih:9BC19202E0A0E176F3ED3C214D5208BAF80CD646
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:9BC19202E0A0E176F3ED3C214D5208BAF80CD646
 magnet:?xt=urn:btih:6F82A919D3DF9120801624A97CE5394D8EE3F981
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +330,8 @@ magnet:?xt=urn:btih:6F82A919D3DF9120801624A97CE5394D8EE3F981
 ```bash
 magnet:?xt=urn:btih:293349C74E47440650DDAE5501A43EF514E4CF1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:293349C74E47440650DDAE5501A43EF514E4CF1D
 magnet:?xt=urn:btih:CC36961467D4BC003F133CF46DC7AA8BDD5DDE40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:CC36961467D4BC003F133CF46DC7AA8BDD5DDE40
 ```bash
 magnet:?xt=urn:btih:A77862FCE2C3A02AAF8F3B441262BD70EE5909D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:A77862FCE2C3A02AAF8F3B441262BD70EE5909D5
 magnet:?xt=urn:btih:95952D0BCD37E2A4B261DF3DE9FE8D15C89738CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:95952D0BCD37E2A4B261DF3DE9FE8D15C89738CF
 ```bash
 magnet:?xt=urn:btih:1C9C6D7FCB3CCF185F42866FBF7D137D7E19EDD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:1C9C6D7FCB3CCF185F42866FBF7D137D7E19EDD5
 magnet:?xt=urn:btih:084392D7D789A2D81DABD72699A0E768256BCADD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:084392D7D789A2D81DABD72699A0E768256BCADD
 ```bash
 magnet:?xt=urn:btih:35BAB41B3D40096965F83E9629D7917A3FF27EFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:35BAB41B3D40096965F83E9629D7917A3FF27EFD
 magnet:?xt=urn:btih:CC60162664D0C8155E29C2CED5BB72E1CACC88A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +539,8 @@ magnet:?xt=urn:btih:CC60162664D0C8155E29C2CED5BB72E1CACC88A5
 ```bash
 magnet:?xt=urn:btih:CF1B92F063981CE9959A6E6D1DD04134E12E9E32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:CF1B92F063981CE9959A6E6D1DD04134E12E9E32
 magnet:?xt=urn:btih:40CD3E0652BEE4E7050A91DC8410F349D46FBF5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +591,8 @@ magnet:?xt=urn:btih:40CD3E0652BEE4E7050A91DC8410F349D46FBF5C
 ```bash
 magnet:?xt=urn:btih:7B6BB188390272B831089725E23126B8ABBE63F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:7B6BB188390272B831089725E23126B8ABBE63F0
 magnet:?xt=urn:btih:DE74EFA00039185DE61FB97C2883CE3199D87BE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +643,8 @@ magnet:?xt=urn:btih:DE74EFA00039185DE61FB97C2883CE3199D87BE6
 ```bash
 magnet:?xt=urn:btih:D936E11D710FCB17FCBA57CF511703798DAF8C02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,29 +671,7 @@ magnet:?xt=urn:btih:D936E11D710FCB17FCBA57CF511703798DAF8C02
 magnet:?xt=urn:btih:F1133E4F5E610B55F0B5B461E5168CD705E8C614
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395196   (757193) от 09.07.2020
-
-Вызов вершин. Доломитовые Альпы (Италия) / Extreme Treks (2018) HDTV [H.264/1080i] (Сезон 2, эпизод 4)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757193.jpg" />
-</div>
-
-
-###  Подробнее
-
-На севере Италии, в Южных Известняковых Альпах, пролегает горный массив, который притягивает туристов своей живописной красотой и разнообразием форм. Любители активного отдыха приезжают испытать свои силы,   что бы посмотреть на красоту природы.Производство: EU, Ryan Pyle ProductionsЖанр: Документальный, познавательный, путешествияРежиссер: Райан ПилПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9A338813B300C76231304BB7557539D93F6B365
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

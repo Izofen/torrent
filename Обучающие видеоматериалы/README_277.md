@@ -20,6 +20,8 @@ Udemy, Cronis Academy | Complete Algorithms Complexity and Big O Notation Course
 magnet:?xt=urn:btih:82BDD598014218B4B18CB9BFBDECC6B35CCC7306
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Udemy, Skills Factory | Профессия разработчик Python. С н�
 ```bash
 magnet:?xt=urn:btih:3AF44B50279FB6092491D31651E61F1FC4DCB961
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:3AF44B50279FB6092491D31651E61F1FC4DCB961
 magnet:?xt=urn:btih:4D30920AA3D4024D868A4DE08AF0FB432B4BB9AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:4D30920AA3D4024D868A4DE08AF0FB432B4BB9AF
 ```bash
 magnet:?xt=urn:btih:D384601E1584834952EC59A9C9A490AA048CE797
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Udemy, Mrawan Hussain |  Создание и риггинг Железного �
 magnet:?xt=urn:btih:D3C128F40F7178BB1B3838A8800DE329F8E1A0BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ LABA | IT-рекрутер. Где искать и как нанимать ай�
 ```bash
 magnet:?xt=urn:btih:DE180E46FABC93009A5F571E030297EEEE99497B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Jeff Minakata | OSINT: Open-Source Intelligence (level 2) (2021) PCRec [En / En,
 magnet:?xt=urn:btih:0BD7F15DE0F5A63A144628890B4F3E9554C792C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Skillbox | Профессия Интернет-маркетолог от middle 
 ```bash
 magnet:?xt=urn:btih:192B3F4465BB1739A4A773F416F7BC15D49C49BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ JavaScript: улучшает поведение веб-страницы.(   Чи
 magnet:?xt=urn:btih:EE42A81836117BB315C9D1310393D28AB8B27719
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ Maven Analytics, Chris Dutton и др. | Become a Excel Specialist (2021) PCRec 
 ```bash
 magnet:?xt=urn:btih:C09C56BE3094E29B7BE099B824CD8DB540C5734D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ Maven Analytics, Chris Dutton и др. | Power BI Specialist (2021) PCRec [En]
 magnet:?xt=urn:btih:B2C0DCAA4173739DD272D57154C76FF6632E1166
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ Jeff Minakata | OSINT: Open-Source Intelligence (level 1) (2021) PCRec [En / En,
 ```bash
 magnet:?xt=urn:btih:CB9ABF04BCCECFEE89626664E5C7A2ECAF0E1F28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ Udemy, Mrawan Hussain | Создание и риггинг реалистичн�
 ```bash
 magnet:?xt=urn:btih:D8B9D7A32003CACC2BA390824117AA2F70C5587F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:D8B9D7A32003CACC2BA390824117AA2F70C5587F
 magnet:?xt=urn:btih:6A82E91FCBAF8EDEC6BD32E1768D4B9C5FF610D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ AlgoExpert, Clément Mihailescu | 150 Coding Interview Questions (2021) PCRec [E
 magnet:?xt=urn:btih:15583C9DE959E381C92313ABD7DA3CD4B288A1AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ Laravel - это надежный и простой для понимания PH
 magnet:?xt=urn:btih:D154465CFAEC7768CB41279CC9A8B22CA758E900
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ Udemy, Andrei Neagoie |  JavaScript: The Advanced Concepts (2021) PCRec [En / En
 ```bash
 magnet:?xt=urn:btih:BC61C77C459ADDC5DD9C578692F71DA971DDAA18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ CodingWithMitch, Mitch Tabian | Real-time Chat Messenger (2021) PCRec [En]
 magnet:?xt=urn:btih:234AD74ACE0626CFBECAAC0AD824E8788F5F4FCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ Udemy, Ladan Amirchoupani | Windows: Everything about NTFS & Share Permissions  
 ```bash
 magnet:?xt=urn:btih:CD8C328768BC90683F1ADAB8A9DD2C05B7A985AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +543,8 @@ Udemy, Bogdan Stashchuk | JavaScript Bible - JavaScript Bootcamp 2021 (2021) PCR
 magnet:?xt=urn:btih:3327DDC6422A95D7DF7464A7A50E5EDA1D4E96FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ magnet:?xt=urn:btih:3327DDC6422A95D7DF7464A7A50E5EDA1D4E96FE
 ```bash
 magnet:?xt=urn:btih:62E19D7B4673850AD6F8C293E8DD32CA07736920
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +597,8 @@ Udemy, Andrew Mead и др. | The Complete Node.js Developer Course (3rd Edition
 magnet:?xt=urn:btih:890409521C3165AAE14F587C4B0D58BBF4C2543E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ magnet:?xt=urn:btih:890409521C3165AAE14F587C4B0D58BBF4C2543E
 ```bash
 magnet:?xt=urn:btih:6E789407A1BA7649989B67880AEC9E88ACFBCA0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +650,8 @@ Docker - это платформа для простого создания, з�
 magnet:?xt=urn:btih:D8F8854D0100234B73EC50A4A9AAA79FF3104F23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ LiveLessons, Russ White | How Networks Really Work (Video Training)  (2021) PCRe
 ```bash
 magnet:?xt=urn:btih:1BB5928E42115EC751A099CB986926AB95B9C556
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +702,8 @@ Udemy, Mrawan Hussain | Создание Jeep Willys MP 1942 от начала �
 ```bash
 magnet:?xt=urn:btih:00C26C3BA1325F8D004EC24A6F6097737F105917
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

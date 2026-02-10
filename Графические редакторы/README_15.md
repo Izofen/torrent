@@ -19,6 +19,8 @@ EximiousSoft Business Card Designer 5.11 Standart / 3.75 Pro Repack (& Portable)
 magnet:?xt=urn:btih:0BF89AE3215D720EDEA5EEE56199C4753A8D3F46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Adobe Photoshop 2026 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:135F37EFDBB08C10E9E71B42B58824D50C533F09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Adobe Photoshop 2026 - новая версия программы для обр�
 magnet:?xt=urn:btih:3D8EA593796CBDF141D3D7D6A49CDE36ECDDA341
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Capture One - один из лучших профессиональных кон
 ```bash
 magnet:?xt=urn:btih:76CD52479B57C5D7E4A1A8C607A7B78D47BA4E5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ SoftOrbits Photo Retoucher 6.0 [Multi/Ru] (sharewareonsale до 11 декабр�
 magnet:?xt=urn:btih:F9499F6C3CBB12F3CC5000D0BD8F40F688737024
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ dslrBooth Professional 6.42.2011.1 [En]
 ```bash
 magnet:?xt=urn:btih:97DAEC8E430C648C2C069855419E3DB54D2E18E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Kolor Panotour Pro - революционная программа в созда
 magnet:?xt=urn:btih:01AC4AE4612668183373E0AAD5D54AF5B41B421E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Phase One Capture One PRO - один из лучших профессионал�
 ```bash
 magnet:?xt=urn:btih:2AB38C38C82CFA1E47ACAA627A84C0073F52CCCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Lightroom объединяет фотографии в «коллекции» �
 magnet:?xt=urn:btih:ACAE3DF6C727D68A6E7D3949D49FF86BC7458A84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Adobe Photoshop - новая версия программы для обрабо
 magnet:?xt=urn:btih:D939A79781F1FA3E2D4420A083B9823943C7D059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:B6B1E8FAE6EA422CADF532DA61A0B82723CA0DE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Adobe Illustrator — это принятое в качестве отрасле
 magnet:?xt=urn:btih:02A2A2CA43D515CDD5D9D344059EABCB2B3E953A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Adobe InDesign — профессиональный продукт для про
 ```bash
 magnet:?xt=urn:btih:D7E2080112CAE0AD26D78EBDD8C926C65B7C3603
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Corel PaintShop Pro 2023 Ultimate 25.1.0.28 (x64) [Multi]
 magnet:?xt=urn:btih:5F744BF85629E9446DCF82AB6603656F1616F03B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Picture Collage Maker — простой в использовании гене�
 ```bash
 magnet:?xt=urn:btih:55D7F7D6920539AF80FD7CB2DD1B8A13AB5B1D09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Astute Graphics Elite Bundle Plugin (Combined) Full Version for Adobe Illustrato
 magnet:?xt=urn:btih:A0859A1F36DE76084DEBEB591E7486642D1DEDB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ PT Portrait - легкий редактор для обработки портр
 ```bash
 magnet:?xt=urn:btih:509C4E8BC5B8EE5B7578817638EEE2619BB3C40A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Adobe Illustrator — это принятое в качестве отрасле
 ```bash
 magnet:?xt=urn:btih:2E919DABBD673D6FA9F7DD9C4ECF44D47A2B8EBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ PTE AV Studio Pro - дальнейшее развитие программы Pic
 magnet:?xt=urn:btih:498510E4BD0B97D9BAE0F640B10E733EE3ECDAED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ GeoSetter - программа, которая предназначена для
 magnet:?xt=urn:btih:F34DA760B60F7178EE18D80FC531E81580F1C150
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Icecream Image Resizer - программа для удобного и быст�
 magnet:?xt=urn:btih:A7E59085AAA83E81E2573732D52A6759D1F96E8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ ZebraDesigner Pro 3.2.2 Build 611 [Multi/Ru]
 magnet:?xt=urn:btih:6B5101C7BA4657FAADA83D2ED41A26D34FF8805A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Capture One PRO - один из лучших профессиональных к
 ```bash
 magnet:?xt=urn:btih:C02912BE842534EC1ADAE5B2245BA1D19C6C1085
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ Noiseware – плагин для Adobe Photoshop, предназначенны�
 magnet:?xt=urn:btih:D1A429F874576988A81D5FED381E462B8BFA1066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ DxO FilmPack – очередной редактор фотографий с к�
 magnet:?xt=urn:btih:0093868D4D106FCE7FAB8AAD8B2C9BDF47F86D54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:0093868D4D106FCE7FAB8AAD8B2C9BDF47F86D54
 ```bash
 magnet:?xt=urn:btih:2BBC3985E9F5B6F242BD81C6222561CA08799169
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

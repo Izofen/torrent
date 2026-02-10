@@ -23,6 +23,8 @@ Pola & Bryson - Fabriclive presents Pola & Bryson (2025) [MP3|320 Kbps] <Drum & 
 magnet:?xt=urn:btih:B337648107A3A40F516CA1BE97328DCBA5DDD699
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - This Is Bass 2024 (2024) [MP3|320 Kbps] <Breaks, Breakbeat>
 ```bash
 magnet:?xt=urn:btih:860963A2A700C19A9CED00FD3AB09E09367CAC29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ VA - Drum & Bass Party Hits, Mini Mix Vol. 2 - Extended Versions (2024) [MP3|320
 magnet:?xt=urn:btih:C41B319F2B36231F693560C765ED46007248435D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ VA - Drum & Bass Party Hits, Mini Mix Vol. 1 - Extended Versions (2024) [MP3|320
 ```bash
 magnet:?xt=urn:btih:21438EA6917E26D47C220505E2B8952C90B8DD31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +139,8 @@ VA - Spektra Compilation - Special 600 References (2024) [MP3|320 Kbps] <Breaks,
 magnet:?xt=urn:btih:F05CE557C0CDAA21E23591E03CB35745BFAC44EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ VA - Spektra's History - 17th Anniversary (2025) [MP3|320 Kbps] <Breaks, Breakbe
 ```bash
 magnet:?xt=urn:btih:836D046696ED11D13593CDC6AEA10C8322DC1EAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +203,8 @@ The Chemical Brothers - Don't Think (2012) [MP3|320 кб/с]<Electronic, Breakbe
 magnet:?xt=urn:btih:EBFC33C87AC7FF3A618614CAE899FA37E17A3D1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +237,8 @@ CD1:
 magnet:?xt=urn:btih:831B8C6247F6A906EE32D5CD0E94F2635A49B30D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +265,8 @@ VA - drama (2024) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:492D7BDEF96C6890B71BC5469E83F6DE80BCE6EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +295,8 @@ ShockOne - Organism Algorithm (2024) [MP3|320 Kbps] <drum 'n' bass, dubstep, dru
 magnet:?xt=urn:btih:80698B961E5CF2D123589BC2ADC859DF251110A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +323,8 @@ VA - Spektra's History - 16th Anniversary (2024) [MP3|320 Kbps] <Breaks, Breakbe
 ```bash
 magnet:?xt=urn:btih:EA9E98B068E442D4BE3229A2CAF0DC55F83D35E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +353,8 @@ VA - This Is Bass 2023 (2023) [MP3|320 Kbps] <Breaks, Breakbeat>
 magnet:?xt=urn:btih:068CAF88A9CCB62B92558CD58E132268B4937847
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +381,8 @@ DJ Muggs (Cypress Hill) - Sound Boy Killa (2012) EP [MP3|320 kbps] <Dubstep, Hip
 ```bash
 magnet:?xt=urn:btih:52D115B88AA10211FF74AB5ED59C2EF2866E3774
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +411,8 @@ VA - Liquid Drum & Bass Sessions Vol 14 (2016) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:80AF234AE9664736B3559A07CA8E9C3C5B8C33EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +439,8 @@ VA - RAM Drum & Bass Annual 2020 (2019) [MP3|320 Kbps] <Drum And Bass>
 ```bash
 magnet:?xt=urn:btih:6AD67D99E224550DDA51F4CDE3C4FD1D70CCE89F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +469,8 @@ magnet:?xt=urn:btih:6AD67D99E224550DDA51F4CDE3C4FD1D70CCE89F
 magnet:?xt=urn:btih:FE6C1174CB52158C39EBB3FE3457F065720005C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +497,8 @@ The Chemical Brothers - For That Beautiful Feeling (2023) [MP3|320 Kbps] <Big Be
 ```bash
 magnet:?xt=urn:btih:849A125B51165F4198106B01D690C669A012C1A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +527,8 @@ Stim Axel - Тишина (2006) [MP3|320 Kbps] <Drum & Bass, Vocal>
 magnet:?xt=urn:btih:F09700A417F65D095B5828FE69F56B220801623A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +556,8 @@ Aphrodite - Break In Reality (2007)
 magnet:?xt=urn:btih:1862E6D9530DCC12DB15EEB11AA375763823AD66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +581,8 @@ Stim Axel - AcousticA (2010) [MP3|320 kbps]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:300F5B20F18909A79879C7C3747D99DF3FFB20F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +611,8 @@ VA - Pirate Station X [Mixed by DJ Gvozd] (26.02.2010) [MP3|320 kbps]<Drum'n'Bas
 magnet:?xt=urn:btih:0D8818590CE445289A877411492B4078A92276D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +639,8 @@ Stim Axel - На Радиоволнах... (2008) [MP3|320 Kbps] <Drum & Bass, V
 ```bash
 magnet:?xt=urn:btih:794FE22CA8292907AE1B411F8050836764EB2C0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +669,8 @@ magnet:?xt=urn:btih:794FE22CA8292907AE1B411F8050836764EB2C0D
 magnet:?xt=urn:btih:7BD326903F389A3CDCDB94DDC2918533526A078C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +698,8 @@ John B - To Russia With Love (2008) [MP3|320 kbps]<Drum & Bass>
 magnet:?xt=urn:btih:13833B7CE48949C23A3CE5E7445A61027D9EF5CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -675,6 +723,8 @@ John B - Live At 7years Jungle Club Freiburg (28 Ноября 2008) [MP3|192 Kbp
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -702,6 +752,8 @@ Gunsta Sessions - Vol. 2 (2008) [MP3|320 kbps]<Drum&Bass>
 ```bash
 magnet:?xt=urn:btih:E24F006F78EBA23B5726FD8C157EC8B88D147244
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

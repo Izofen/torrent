@@ -19,6 +19,8 @@ IPTV Pro v8.1.3 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:B14C5FD6DEDA78901DB20BE250F26DCEF85082E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:B14C5FD6DEDA78901DB20BE250F26DCEF85082E9
 ```bash
 magnet:?xt=urn:btih:D957F6BB3DF0D2111F2AD5BFE5F3DD3A5AD53967
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:D957F6BB3DF0D2111F2AD5BFE5F3DD3A5AD53967
 magnet:?xt=urn:btih:221FBFEFF6B064781CF72583611E8A42B513B2FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:221FBFEFF6B064781CF72583611E8A42B513B2FC
 ```bash
 magnet:?xt=urn:btih:F92E3493E79C7A0965843AA60E280257DA6B06D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:F92E3493E79C7A0965843AA60E280257DA6B06D8
 magnet:?xt=urn:btih:68CA53D4EE69E06FBFD27BB4D490FE765E0C8E76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Call of Sentinels (2024) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:11BC0D0E3B96713F2CBED69FFA92C94AAA744173
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:11BC0D0E3B96713F2CBED69FFA92C94AAA744173
 magnet:?xt=urn:btih:7B6F42BF95B7FEE8207EAADAC73F4B004F0F59A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:7B6F42BF95B7FEE8207EAADAC73F4B004F0F59A8
 magnet:?xt=urn:btih:141B32E932A5A99F51B5DC471B44D732FFC4A634
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:141B32E932A5A99F51B5DC471B44D732FFC4A634
 ```bash
 magnet:?xt=urn:btih:1B2587AE89E0050F39BD04948BE97A71A65BD85D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:1B2587AE89E0050F39BD04948BE97A71A65BD85D
 magnet:?xt=urn:btih:84A8CAC28315A0982DE17B7B28B0C5B429FD8BAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:84A8CAC28315A0982DE17B7B28B0C5B429FD8BAA
 ```bash
 magnet:?xt=urn:btih:979608E90455E063B2C4799D0F3703F45A078F0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ DevOps-инженер отвечает за использование одно�
 magnet:?xt=urn:btih:42C59588556713BA8320E360691285A4E254EEB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:42C59588556713BA8320E360691285A4E254EEB1
 ```bash
 magnet:?xt=urn:btih:E9B45158B1452B2BBCB6672501D9EA67F7B81C07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.22.68871.33/dlc) License GOG
 magnet:?xt=urn:btih:53D5FE7778E2CF2C8B83EB8C018328B2A2AE27A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:53D5FE7778E2CF2C8B83EB8C018328B2A2AE27A8
 ```bash
 magnet:?xt=urn:btih:DD0AFE36DCE4988BDFE4DE25A61214C35E91452D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ Adobe Photoshop Lightroom Classic 2024 13.5.1.1 RePack by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:819EC42176B869DB842AF7B2CCBDA54077B8F155
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:819EC42176B869DB842AF7B2CCBDA54077B8F155
 ```bash
 magnet:?xt=urn:btih:685EF1FB4280AB0B392A332AD4194479AF4678AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ King's Bounty: Crossworlds / King's Bounty: Перекрестки миров (2
 magnet:?xt=urn:btih:DAB0EDC384A8B74BD2CF23A55A98B1E1EED2F41C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Republic of Pirates - это не типичная градостроитель�
 magnet:?xt=urn:btih:894805DC111498BBFD81CF729484DA8C0D2DC649
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:894805DC111498BBFD81CF729484DA8C0D2DC649
 ```bash
 magnet:?xt=urn:btih:9EFC57EA9B97797741740C1DC1146A09A2DB18EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ Joe Walsh - 17 Albums (1972 - 2012) 26 CD [FLAC|Lossless|tracks + .cue|image + .
 magnet:?xt=urn:btih:E2794AA5BFDFD71B8B0291556B028593A27FD7D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:E2794AA5BFDFD71B8B0291556B028593A27FD7D6
 ```bash
 magnet:?xt=urn:btih:C6C1EAAFAAEBB517E416CE8CD9C1890E52C68431
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:C6C1EAAFAAEBB517E416CE8CD9C1890E52C68431
 magnet:?xt=urn:btih:2AA2D11C641AFB0E8093A20EEE3B22B2983E911C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:2AA2D11C641AFB0E8093A20EEE3B22B2983E911C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Endless Days Z - напряжённая игра в жанре выживани�
 ```bash
 magnet:?xt=urn:btih:EDFE37BDF1A008401CA2DDAAE29A30729644E6B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +683,8 @@ magnet:?xt=urn:btih:EDFE37BDF1A008401CA2DDAAE29A30729644E6B3
 ```bash
 magnet:?xt=urn:btih:44C74273BE7030FB0B9BA0D5E461AF97599D60C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

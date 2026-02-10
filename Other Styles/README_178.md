@@ -22,6 +22,8 @@ Arash Behzadi - With Closed Eyes (2015) [MP3|320 кб/с] <New Age, Solo Piano>
 magnet:?xt=urn:btih:9D0391AA44ED603A6EE67FE25753D6C15EAD3F23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ David Wahler - Secret Dream (2012) [MP3|320 кб/с] <New Age, Meditative>
 ```bash
 magnet:?xt=urn:btih:5596590A888F9BDCCEEC98DBACB8EB6B152DEF54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Chris Benstead - The Gentlemen / Джентльмены (Original Motion Picture
 magnet:?xt=urn:btih:0F5460A08FFB5FF9FE20715FB83F32ADE9893AB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ David Arkenstone - Celtic Spa (2020) [FLAC|Lossless|WEB-DL|tracks] <New age, Fol
 ```bash
 magnet:?xt=urn:btih:7EDFAC3222573E019B2FFE46ACB88958945F7213
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Ultrasone - S-Logic Demo-CD (2008) [FLAC|Lossless|tracks + .cue] <Audiofile, Tes
 magnet:?xt=urn:btih:518AE897DF912A3ED244777BD2368198ADAA48A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:518AE897DF912A3ED244777BD2368198ADAA48A7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ CD1
 magnet:?xt=urn:btih:AC3EB0F2373416C43684AF0107AC9D1F241553B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ Tom Holkenborg - Sonic the Hedgehog / Соник в кино (Music from the Mot
 ```bash
 magnet:?xt=urn:btih:228E5A27791C5E8BB870A917C1DBCD25C45211CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +260,8 @@ Tom Holkenborg - Sonic the Hedgehog / Соник в кино (Music from the Mot
 magnet:?xt=urn:btih:1CF43BEB85A731389019CAFA4C80888125CBE0A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ Daniel Pemberton - Birds of Prey / Хищные птицы: Потрясающа
 ```bash
 magnet:?xt=urn:btih:81EAB3CEFF9D4A7D6553295F154AA6AFA8263C72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +318,8 @@ Of Monsters And Men - 3 Albums, 4 EP & singles (2011-2015) [MP3|320 кб/с]<Ind
 magnet:?xt=urn:btih:298A5602832D008461627A5F28FFFF93504DAF64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +346,8 @@ Bear McCreary - Остров фантазий  / Blumhouse's Fantasy Island (Ori
 ```bash
 magnet:?xt=urn:btih:0E52BB748314627E9E9259BEE841BDD7B1121803
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +376,8 @@ Nathaniel Rateliff - And It’s Still Alright (2020) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:1D3219F64F072A793B45AC5851BCA649E9CC80D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +404,8 @@ Steve Jablonsky - Bloodshot / Бладшот (Original Motion Picture Score) (20
 ```bash
 magnet:?xt=urn:btih:07C0918D3102684527877FAE0559CB626A2BAF27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +434,8 @@ Daniel Pemberton - Birds of Prey / Хищные птицы: Потрясающа
 magnet:?xt=urn:btih:27F40433441F3009E5E9644611739FCDECD7A0A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +462,8 @@ Bear McCreary - Остров фантазий  / Blumhouse's Fantasy Island (Ori
 ```bash
 magnet:?xt=urn:btih:C53FF2EE6154993427041E8134605A58E85AD7B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +492,8 @@ Daniel Pemberton - Birds of Prey / Хищные птицы: Потрясающа
 magnet:?xt=urn:btih:3114BB1060CA750666B7FD58ADD43FB0364DAB0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +520,8 @@ Steve Jablonsky - Bloodshot / Бладшот (Original Motion Picture Score) (20
 ```bash
 magnet:?xt=urn:btih:6BFB9A3CBF914AAA24A8713EA855C14A116B0EE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +550,8 @@ The Dali CD - DALI Audio Test CD (2006) [FLAC|Lossless]<Audiofile, Test>
 magnet:?xt=urn:btih:EDC48850F0EEA005EF6DD59B171A5D9964BBBAA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +578,8 @@ Chesky Records Guide to Critical Listening - The Ultimate Demonstration Disc (19
 ```bash
 magnet:?xt=urn:btih:EAE0164E7F7C5AF2652693D002DACCEB8D2C855A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +608,8 @@ Djivan Gasparyan - The World of the Duduk (2008) 2CD, 2009, Мелодия [FLAC
 magnet:?xt=urn:btih:B9E517E0330D25E1B3E7ECEB864843364358577A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +637,8 @@ Oliver Scheffner - The Magic of the Moon (2014) [MP3|320 кб/с] <New Age>
 magnet:?xt=urn:btih:3782AA2AE0C172EA491D75A34AF53B5BE6639550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +663,8 @@ VA - 10 CORSO COMO – Love 3 (2004) 3CD Box [FLAC|Lossless|tracks + .cue] <Indi
 ```bash
 magnet:?xt=urn:btih:6225A27D092770652E305C5F921C731E036EB0D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +693,8 @@ David Arkenstone - Parisian Nights (2016) [MP3|320 кб/с] <New Age>
 magnet:?xt=urn:btih:F6C661D8A982AD08E262700DEC598D5A36CFDBA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +720,8 @@ Huey Lewis & The News - The Power of Love / Back to the future (1985) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:F7D874007D18CCA92BD5A450ABAAAFE42681A91D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -699,6 +749,8 @@ Trance Lucid - Arise (1996) [FLAC|Lossless]<Instrumental>
 ```bash
 magnet:?xt=urn:btih:B7D3EF164A73A0E6188D8D764697CBDE42346025
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

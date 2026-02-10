@@ -20,6 +20,8 @@ FotoMagico – популярный пакет для создания слай�
 magnet:?xt=urn:btih:454EC67DC28CCA462422BED3BEE1BDD1A08F66F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Topaz Gigapixel AI. — это первое и единственное прил
 ```bash
 magnet:?xt=urn:btih:A2A693C1FB7B8156877B2120775A7086BEB15605
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Sante DICOM Editor — ведущее в отрасли приложение п�
 magnet:?xt=urn:btih:3132AA8169F162CD2DFFA2460F84D8D711888256
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Monkey's Audio — данная утилита предназначена для
 ```bash
 magnet:?xt=urn:btih:3BDE86B83C2ADF7C6AA4DD21717BDDDDE646E9C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ TablePlus 5.9.0 [En]
 magnet:?xt=urn:btih:837CF58CC101AA4DF8704DF6A492CCE8A2DBEC2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Microsoft .NET 6.0.27 Runtime [Ru/En]
 ```bash
 magnet:?xt=urn:btih:3236FB2A2C68A1725410551F3B48D63751C18343
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Privacy Eraser Free - комплексный инструмент для защ�
 magnet:?xt=urn:btih:EB595006B42A7BC43ED52822DAA4F784D9E4ACA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ PeaZip — бесплатный архиватор и графическая о�
 ```bash
 magnet:?xt=urn:btih:33C40FE8A1217621559DB939B4FE1CDF2D10E90F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ RJ TextEd - мощный текстовый редактор с большим �
 magnet:?xt=urn:btih:82C0D6F018B5322800BAB62BBEA80EE069C001AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Brave - защищённый веб-браузер на базе Chromium, по�
 ```bash
 magnet:?xt=urn:btih:6B34090F312CBDEF6CD1675BB4A1E48AF07BFC05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Opera Crypto Browser 107.0.5045.21 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:7011D39E3B3E36228CB0850E3AF5FAC2EDEFE8C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Opera One 107.0.5045.21 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:95023418DA71E614D3C6C72760B264D78CE64460
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Opera One 107.0.5045.21 Portable by Cento8 [Ru/En]
 magnet:?xt=urn:btih:91DFCB21B00892474D46397D063FC649ABE66A75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:D28671A3CCBC8ECB7B9B19F62FA38E5F52ABBD2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 magnet:?xt=urn:btih:D2683800F5FE29682C881BD2CF20DB45006EEEC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:15366EA741AE80CC025D9E9A3F2091BFF8226AE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ CrossOver 24.0-b3 [Multi/Ru]
 magnet:?xt=urn:btih:58B8638FB72342641D3E1979C3D1EA5BA6C5DC60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ WinSCP, это FTP и SFTP клиент с открытым исходным к�
 magnet:?xt=urn:btih:F61F90C2373B7FD628059784CDB469FA1CC489B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:D01A86DB82D2AE767C218D85768FBD486F99FDED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ Brave - защищенный браузер на базе Chromium, постро
 magnet:?xt=urn:btih:ABBEA600DCB865E18A2A1B11E8A06856934CAD3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ FanControl – свободно распространяемый продукт,
 magnet:?xt=urn:btih:BA8C352635B33EC2B1F314ED71E2E56D808D559A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Media Player Classic Home Cinema - удобный во всех планах м�
 ```bash
 magnet:?xt=urn:btih:B6CFB7C2DFBC22E01AE84B9838A06F9FC10A76CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ Sante DICOM Viewer Pro не является «еще одним средств�
 magnet:?xt=urn:btih:2FD941E022E5328ED38935F467F4157037E14F0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ Microsoft .NET 7.0.16 Runtime [Ru/En]
 magnet:?xt=urn:btih:4A415457807BBCC1097D22ADC6FC820AB486981B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:2DAA8FCF8DE522124F8837A34B751D1311FD6650
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +682,8 @@ Wireshark - бесплатный сниффер, предназначенный 
 ```bash
 magnet:?xt=urn:btih:C5F3E97782A541428122BB4BE81E137C9BD4D5D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

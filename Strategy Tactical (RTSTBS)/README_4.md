@@ -19,6 +19,8 @@ This War of Mine - первая игра, которая позволяет ув
 magnet:?xt=urn:btih:C23BE1CA4AF420A3762A9DA24AB0B2F901B13568
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Men of War II (2024) [Ru/Multi] (1.041/dlc) Repack Let'sРlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:7BAE598D5B0C1302B7C7978E9E87B9A764F76BFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Warhammer 40,000: Mechanicus (2018) [Ru/Multi] (1.4.11/dlc) Repack Let'sРlay [C
 magnet:?xt=urn:btih:512FE30E5B0BDBABD5F9A987710315EF80B543E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Legend of Heroes: Trails from Zero (2022) [Multi] (1.4.13) License GOG [Extr
 ```bash
 magnet:?xt=urn:btih:201027F79185EEF241A3952DEC225D03CBCF173B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Mount & Blade II: Bannerlord представляет собой долгожд�
 magnet:?xt=urn:btih:AB2EEAEF41656BA9F9C98BF8D2802775910F972C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Warcraft III: Reforged - это потрясающая переработанн�
 ```bash
 magnet:?xt=urn:btih:A9071A353A972EA90C8FB9DB7AF5647BBD2429D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ This War of Mine - первая игра, которая позволяет ув
 magnet:?xt=urn:btih:21A6AAE4FABC09A96CFE6BF77D3C85F980363718
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.15.0/dlc) Scene R
 ```bash
 magnet:?xt=urn:btih:420A251E92DDD174E039E8364B992DA1980BACBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ This War of Mine (2014) [Ru/Multi] (6.0.0/dlc) Repack Let'sРlay [Final Cut]
 magnet:?xt=urn:btih:F2E4E2C6D250E4FB7CFB42CB191009B6F852FFA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Troop (2023) [Ru/Multi] (Build 20241125/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:08CF2BCBC446E57AE8313A547DF7F342F5D0A46B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Dune Spice Wars – стратегический игровой проект, г
 magnet:?xt=urn:btih:DB861538315CC97321DC0B3B04454F38471DB727
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (1.02.001) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:032FD1565C320C9653252EF736D0F4E6E3AA7699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Victoria 3 - прямой сиквел одноименной игры, где �
 magnet:?xt=urn:btih:2A7568014F65E906719BF9BEB508BFB2292BD904
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Men of War II (2) (2024) [Ru/Multi] (1.040/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:8E34FBD5FD14A4845851641B8B867EEA9A85711F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Age of Empires II: Definitive Edition (2019) [Ru/Multi] (101.102.62906.0/dlc) Re
 magnet:?xt=urn:btih:4097E88CE42D62E2CA1C79E2B4FF5490BD16B6E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Men of War II (2) (2024) [Ru/Multi] (1.040/dlc) Scene Rune [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:24562C154AF85AEAC10C26B86B7B922B7890A2A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Inkulinati (2023) [Ru/Multi] (1.48.1.0/dlc) License GOG [Supporter Bundle]
 magnet:?xt=urn:btih:C9A35464297C808EFF70ABAC9FE086F53F0DE608
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Stargate: Timekeepers (2024) [Ru/Multi] (1.02.59) License GOG
 ```bash
 magnet:?xt=urn:btih:361FF4ABD4612063A56C8D0CF142EF9297119320
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Stargate: Timekeepers (2024) [Ru/Multi] (1.02.59) Repack seleZen
 magnet:?xt=urn:btih:0D0B31089844FB82A582084F09CE164D278C467C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Stargate: Timekeepers — тактическая игра, в которой в�
 ```bash
 magnet:?xt=urn:btih:A7B2987D3A6DDB999812FAB4F7D3124D8E82FA5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Combat Mission Shock Force 2 – заключительная часть в пр
 magnet:?xt=urn:btih:9FA950EFAB205E3B875FFE80CF92CB067BA104DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Ash of Gods: Redemption - тактическая пошаговая ролева
 ```bash
 magnet:?xt=urn:btih:62CE842F9065BD6F0AC1B1F90DE89B8090C77C70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Steamworld Heist (2016) [Ru/Multi]  (2.1/dlc) License GOG
 magnet:?xt=urn:btih:334A160723EDD6DC01EC8E6E52F6B17D90D4B03B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (28.16.0) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:5CC37D8BF90ED0902F133565A657D8CC026A65AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Hadean Tactics – это военная стратегия с элемента�
 magnet:?xt=urn:btih:07193F0A281EE05FD73C6C9F50D7BC63FBAF702F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Combat Mission: Battle for Normandy достоверно воссоздает о
 ```bash
 magnet:?xt=urn:btih:602B63FBCED20C2962BD67F83FCAF57997C6D6AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

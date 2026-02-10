@@ -22,6 +22,8 @@ Fear My Thoughts - немецкая метал-группа из Райнфел�
 magnet:?xt=urn:btih:7A3E9CC1880AC71F90764DDD82B41E5AA17CD40F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Exelerate - Hell For The Helpless (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:581420F3E7B98A726CF1029BC904864F857D9E8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:581420F3E7B98A726CF1029BC904864F857D9E8C
 magnet:?xt=urn:btih:12CEAB43DE918AE85284241DF13803A5E337C879
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:12CEAB43DE918AE85284241DF13803A5E337C879
 ```bash
 magnet:?xt=urn:btih:336D8EC837E05C09AD6A263CDE15FA4FCFE30C6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:336D8EC837E05C09AD6A263CDE15FA4FCFE30C6C
 magnet:?xt=urn:btih:19BF91E686A7DBE93AAC727D38342B9AB54189CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Music Visualizer Tunnel with Audio Spectrum — универсальный пр�
 ```bash
 magnet:?xt=urn:btih:566DA7141E0257D6B20EB8D9B10139BCD6344868
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:566DA7141E0257D6B20EB8D9B10139BCD6344868
 magnet:?xt=urn:btih:4F20C331A264A8C764FC46509FC9146C4456EF2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:4F20C331A264A8C764FC46509FC9146C4456EF2E
 magnet:?xt=urn:btih:2C7867A7F70F08BE6C319FAE307EB93E2F2A6596
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Gorillaz - The God of Lying ft. Joe Talbot (Studio Recreation) (2025) WEB-DL  [H
 ```bash
 magnet:?xt=urn:btih:10A86DD74AC013C87AD79B5DE47922AAD9D30612
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:10A86DD74AC013C87AD79B5DE47922AAD9D30612
 magnet:?xt=urn:btih:EAA6C2C34794D23407CC81BFD0646D6307D1519D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:EAA6C2C34794D23407CC81BFD0646D6307D1519D
 ```bash
 magnet:?xt=urn:btih:08D52F9628BBEDFFD4874CC9FF4FADA73F748978
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:08D52F9628BBEDFFD4874CC9FF4FADA73F748978
 magnet:?xt=urn:btih:38D1AF39B521D05664B3B1EE810B0A4FA02505C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:38D1AF39B521D05664B3B1EE810B0A4FA02505C9
 ```bash
 magnet:?xt=urn:btih:B396E70B9368D5D3CD5AA64D6D03C1EE7520E3ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ VA - A Spa & Wellness Chill Experience (2025) [FLAC|Lossless|WEB-DL|tracks] <Lou
 magnet:?xt=urn:btih:B9E9B17E871C075A57DE1902215321C01D50EC03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:B9E9B17E871C075A57DE1902215321C01D50EC03
 magnet:?xt=urn:btih:8B3E78F60E733C587E8048AAFA0FD20013A68733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:8B3E78F60E733C587E8048AAFA0FD20013A68733
 ```bash
 magnet:?xt=urn:btih:9DED89169237D27AC2BB42989D2FE72288C979C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ Keb' Mo' - Compilation (1980-2025) [MP3|320 Kbps] <Blues>
 magnet:?xt=urn:btih:9CE03F185D55680E426FC9DDB26B270571EB9C76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ VA - Песни от всей души. Женщины (2025) [MP3|320 Kbps] <Ch
 ```bash
 magnet:?xt=urn:btih:C054C8940FC2A140D908B221505233E646965B08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:C054C8940FC2A140D908B221505233E646965B08
 magnet:?xt=urn:btih:6E914784877AA74D850A99749993B16E839BBA27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:6E914784877AA74D850A99749993B16E839BBA27
 ```bash
 magnet:?xt=urn:btih:AE0BDE7315F1D1DAE0903E443E8E51664D20E467
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:AE0BDE7315F1D1DAE0903E443E8E51664D20E467
 ```bash
 magnet:?xt=urn:btih:45638A8045BB5DB5503AD0AD088BB5ADC3EFDAA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ VA - В родных местах (2024) [MP3|320 Kbps] <Pop, Chanson>
 magnet:?xt=urn:btih:70C22816FEA8DC460B80196D40BA0AD598FE7217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:70C22816FEA8DC460B80196D40BA0AD598FE7217
 magnet:?xt=urn:btih:FAE6FB351EA896258FB20ADC0947007BF6418AB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ magnet:?xt=urn:btih:FAE6FB351EA896258FB20ADC0947007BF6418AB5
 ```bash
 magnet:?xt=urn:btih:9D4947D77E61F2F8917A09F509FE9AE8AF425F41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +669,8 @@ magnet:?xt=urn:btih:9D4947D77E61F2F8917A09F509FE9AE8AF425F41
 magnet:?xt=urn:btih:7E072CFBCE73071778F677525C9B20D0D4E0E287
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ magnet:?xt=urn:btih:7E072CFBCE73071778F677525C9B20D0D4E0E287
 ```bash
 magnet:?xt=urn:btih:2DC21061E4488A675BABACEDF9913DFDCA4295CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

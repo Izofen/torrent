@@ -22,6 +22,8 @@ Carl Davis & Royal Liverpool Philharmonic Orchestra - ABBA for Orchestra (2014) 
 magnet:?xt=urn:btih:E6593371BD3133074682D8ACC5FDB011B110C2FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Fausto Papetti - Playlist: Fausto Papetti (2016) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:79F62D5A6A93EBA8C5509FFC94047E788CF22449
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Ernesto Cortazar - Infinite Love (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, 
 magnet:?xt=urn:btih:B9BDECBE478D006E8AA6DCB96938BEEEF5EC67F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - The Best Of Bond... James Bond (2021) Compilation, 2CD [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:887E725841D380665B3CF314294FC61E07A44D16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Greensky Bluegrass - Stress Dreams (2022) [FLAC|Lossless|WEB-DL|tracks] <Bluegra
 magnet:?xt=urn:btih:C45F5DCC94D025495E361549FDAD579B81F73638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Arctic Raindance - The Sound Of The Fjords (1998) [MP3|320 Kbps] <Native america
 ```bash
 magnet:?xt=urn:btih:136B0065A043318059226C235C351A600D650ABF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Restoration: The Songs Of Elton John And Bernie Taupin (2018) [FLAC|Lossles
 magnet:?xt=urn:btih:DDD2B115D14D7269759E74C95DFCDDBA0E6AA859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Ric Sandler - Hey Good Lookin' (Original Motion Picture Soundtrack) (2006) [MP3|
 ```bash
 magnet:?xt=urn:btih:B61B7DCA5CF4C35708382938713D00A31A6E5F55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ DelaDap - This Is DelaDap (2014) [FLAC|Lossless]<Ethnopop, World, Electronic, Ur
 magnet:?xt=urn:btih:17E6DB1376B7E9512B36778CEB6F55D1FF803471
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ Latin Jazz Relaxing Music Quartet - Besame Mucho (2014) [MP3|320 Kbps] <Instrume
 ```bash
 magnet:?xt=urn:btih:61E0FC24D398E90CA5F65D10460DAB48B63BE385
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ Gente de Zona - Visualizate (2012) [MP3|320 Kbps] <Reggaeton, Cubaton>
 magnet:?xt=urn:btih:2F87626419B05C136B225E750BA9BD75F22288F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +334,8 @@ Latin Jazz Relaxing Music Quartet - Besame Mucho (2014) [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:38536180C5A024F98112F3CEF44B44364A267661
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +364,8 @@ Gente de Zona - Que Suenen Los Metales (2010) [MP3|192 Kbps] <Reggaeton, Cubaton
 magnet:?xt=urn:btih:0B364A7DA6215B6EFE8DD6C9C2B80908BA2EE4C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +392,8 @@ Gente de Zona - Lo Mejor Que Suena Ahora (2007) [MP3|320 Kbps] <Reggaeton, Cubat
 ```bash
 magnet:?xt=urn:btih:4B13901CCB37BEECC02E077CE5CB497ECF0BAB7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +422,8 @@ Siavash - Hamsayeh Haa (1994) [FLAC|Lossless|tracks + .cue] <World Music>
 magnet:?xt=urn:btih:760B8A921B42EC1D123298886FB7508660F0A28E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +450,8 @@ Birds of Chicago - Love in Wartime (2018) [FLAC|Lossless|tracks + .cue] <Folk, W
 ```bash
 magnet:?xt=urn:btih:777384B586929D974785FAFF869FF7FEDADE3953
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +480,8 @@ VA - Smooth Piano for Romantic Lovers (2020) [FLAC|Lossless|WEB-DL|tracks] <New 
 magnet:?xt=urn:btih:2C4448CA511E2A22D4B57C6FAC4C0A9B6F37A09C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +508,8 @@ magnet:?xt=urn:btih:2C4448CA511E2A22D4B57C6FAC4C0A9B6F37A09C
 ```bash
 magnet:?xt=urn:btih:02FE6339B60A3862143E71559F97D7F57FA65D41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +538,8 @@ Jean-Michel Jarre - Original Album Classics Vol 2 (2018) 5CD Box Set [FLAC|Lossl
 magnet:?xt=urn:btih:03C30200A3D728C4861EB3D5F36DA4179E7A8148
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +567,8 @@ Dr. Jeffrey Thompson - Theta Meditation System (2001) 2CD [FLAC|Lossless] <New A
 magnet:?xt=urn:btih:0DD884D6206CFB1C5384D1E0916C1BF713CBDCAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +593,8 @@ Dr. Jeffrey Thompson - Journey of the Spirit (2016) [FLAC|Lossless] <New Age, Me
 ```bash
 magnet:?xt=urn:btih:5BFE4488F84C68B1DBB3BCFC115165684DAAFE88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +623,8 @@ CD1:
 magnet:?xt=urn:btih:F1B4F5470B734D09E05BAD959DE92459F67E2494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +651,8 @@ Sam Green - Just Stand Still (2017) [MP3|320 Kbps] <Acoustic Folk, Acoustic Rock
 ```bash
 magnet:?xt=urn:btih:C17F33553587EDBC11F51F10365988ACA4C0ADFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +681,8 @@ VA - Яркость / Bright: The Album (2017) [MP3|320 Kbps] <Soundtrack>
 magnet:?xt=urn:btih:C561AC05EF4E6D5A6F205778C79D04B0BD914544
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +710,8 @@ Erik Wøllo - Visions - Visions (2016) [MP3|320 кб/с] <Ambient>
 magnet:?xt=urn:btih:F31F26829CB240041039A97F709ECC2F0436AEF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -688,6 +738,8 @@ Parijat - Serenity (2018) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:9DA960B7B5D879631E90A0758843115B75C1F1F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

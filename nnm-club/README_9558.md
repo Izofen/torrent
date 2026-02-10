@@ -19,6 +19,8 @@ iFinance 4 позволяет вам отслеживать доходы и ра
 magnet:?xt=urn:btih:1B21A7F0A0B381B2EE30023EA16ADB554DCDEC09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ VA - Rephlexions! An Album Of Braindance! (2003) Rephlex [FLAC|Lossless|tracks+.
 ```bash
 magnet:?xt=urn:btih:BD7CCA152431B58D97ADAF6D253E0ED7D869721B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Mezzoforte - Playing For Time (1989) [FLAC|Lossless|image + .cue] <Fusion, Jazz-
 magnet:?xt=urn:btih:95664BC06954ADFA9C0CEE6E9230D54A68EC0039
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ VA - Beauty of Music Vol.1: Beautiful Relax Music (2016) [MP3|320 Kbps] <Downtem
 ```bash
 magnet:?xt=urn:btih:082B20E8AC12880770EF8CE943B75B74C2620106
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Mezzoforte - Surprise, Surprise (1982) 1989, RCA, Germany [FLAC|Lossless|image +
 magnet:?xt=urn:btih:FFC8930A5DFAE3CC1DB68C7127C6DEEBA6F5749E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Mezzoforte - Rising (1984) [FLAC|Lossless|image + .cue] <Fusion, Jazz-Funk>
 ```bash
 magnet:?xt=urn:btih:C39990047B577426CC30FE7397F6F34B4265CB44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ VA - Miami Beach Skateboarding Music (2016) [MP3|320 Kbps] <Minimal, Tech House>
 magnet:?xt=urn:btih:4C34D2BCA644FAA42F8CA3E4CA6A877066753D49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ VA - Chillout New York Bar Set (2016) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 ```bash
 magnet:?xt=urn:btih:28B2CA4A84D344CAE7A9782D1447ADFEFD5D8242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ VA - Noble Chillout Selection (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 magnet:?xt=urn:btih:9A0A05C9C6B3B8CB35CEED367FE6D1AF148AC17F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ Dave Ellis - In The Long Run (1998) Monarch Records[FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:6D5DDCE692081592477498CD8B1AC95FD565760D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ VA - Chill The Stress Away Vol. 1 (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:8DCDB3762FFD0A62238169EEDED9F92D93F0FF59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +338,8 @@ C4. Электрический пес (3:12)(   Читать дальше...   )
 magnet:?xt=urn:btih:1BCC212C7B6C9CD38316EABF13A0C0A990F34F49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +363,8 @@ magnet:?xt=urn:btih:1BCC212C7B6C9CD38316EABF13A0C0A990F34F49
 ```bash
 magnet:?xt=urn:btih:49AE697D95F60D1A1533750EED4E24DDD778BC80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +391,8 @@ magnet:?xt=urn:btih:49AE697D95F60D1A1533750EED4E24DDD778BC80
 magnet:?xt=urn:btih:CB04771620A6354047E223459DA7AE981C2865C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +416,8 @@ magnet:?xt=urn:btih:CB04771620A6354047E223459DA7AE981C2865C8
 ```bash
 magnet:?xt=urn:btih:369550F9AFB76E51B75FCD1A1EAE522D8A47C763
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +446,8 @@ magnet:?xt=urn:btih:369550F9AFB76E51B75FCD1A1EAE522D8A47C763
 magnet:?xt=urn:btih:77A77B1430A6BB9B282D327D033FC06E2AABB61B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +471,8 @@ Premium Quotes - это речевые пузыри, которые можно �
 ```bash
 magnet:?xt=urn:btih:AB38760D21273198640C56E4DE849273D18FCB5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +500,8 @@ magnet:?xt=urn:btih:AB38760D21273198640C56E4DE849273D18FCB5B
 magnet:?xt=urn:btih:2254396964B483AEDA30DB00E72EF93C4A6ACD1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +525,8 @@ magnet:?xt=urn:btih:2254396964B483AEDA30DB00E72EF93C4A6ACD1E
 ```bash
 magnet:?xt=urn:btih:CDF02B93DCE814C9C6B9C25A114280A932D3599A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +554,8 @@ magnet:?xt=urn:btih:CDF02B93DCE814C9C6B9C25A114280A932D3599A
 magnet:?xt=urn:btih:060B9488CCE17EBCAFA425FAE885C92CDABF33BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +579,8 @@ magnet:?xt=urn:btih:060B9488CCE17EBCAFA425FAE885C92CDABF33BA
 ```bash
 magnet:?xt=urn:btih:3E07D9BA6827F843E1E5544F3E8258240F828E16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +606,8 @@ magnet:?xt=urn:btih:3E07D9BA6827F843E1E5544F3E8258240F828E16
 magnet:?xt=urn:btih:052C0FB51E2E80356B78F0AFDA462C8D07CCC5A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +631,8 @@ magnet:?xt=urn:btih:052C0FB51E2E80356B78F0AFDA462C8D07CCC5A2
 ```bash
 magnet:?xt=urn:btih:68B2DDFB14604ECA98D2250B7B33491CAE3D3D04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +658,8 @@ magnet:?xt=urn:btih:68B2DDFB14604ECA98D2250B7B33491CAE3D3D04
 magnet:?xt=urn:btih:BC79701407E2C2BBDC2533A1560E736FC14B0CD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +684,8 @@ magnet:?xt=urn:btih:BC79701407E2C2BBDC2533A1560E736FC14B0CD2
 magnet:?xt=urn:btih:B35FA3D180335C56F92A2D83127840C5B3F82F97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ Animation Snow - данный экшен фотошоп, добавит на в�
 ```bash
 magnet:?xt=urn:btih:7C5A949ED784EA754B6B33ED8FE6B2E13CDE14F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

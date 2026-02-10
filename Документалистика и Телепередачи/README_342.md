@@ -1,3 +1,29 @@
+###  Публикация: 942356   (455960) от 30.09.2015
+
+Земля. Территория загадок. Тайна зазеркалья (2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древнейшее из найденных зеркал, изготовленных человеком, относится примерно к 7 тысячелетию до н.э. Об особых энергетических свойствах отражений знали еще древние люди. Сейчас специалисты говорят, что зеркала не только отражают, но и поглощают окружающую энергию. Какие суеверия связаны с отражениями, и почему мы до сих пор их соблюдаем? Может ли зеркало передать (   Читать дальше...   )Телекомпания: МИРЖанр: ДокументальныйПродолжительность: 00:23:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9C98F944D8D1194D56721C53D484536D8A4573
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942357   (455961) от 30.09.2015
 
 Земля. Территория загадок. Тайны невских сфинксов (2015) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:C84B672DB2164958E859AAD9A77F542A1722CBF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:C84B672DB2164958E859AAD9A77F542A1722CBF9
 magnet:?xt=urn:btih:FA2717B0F39C693BA51C501E5B320921DE1B4462
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:FA2717B0F39C693BA51C501E5B320921DE1B4462
 ```bash
 magnet:?xt=urn:btih:74C03D2F574F878731344005AF7F81505C92ED14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:74C03D2F574F878731344005AF7F81505C92ED14
 magnet:?xt=urn:btih:740809A807867146300B402F9340C2D539281458
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:740809A807867146300B402F9340C2D539281458
 ```bash
 magnet:?xt=urn:btih:D388A938D310A7CF268C263D14C96089AEFCA0D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:D388A938D310A7CF268C263D14C96089AEFCA0D9
 magnet:?xt=urn:btih:19E70C21F34213EF9851B0B4BADF4F619362416C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:19E70C21F34213EF9851B0B4BADF4F619362416C
 magnet:?xt=urn:btih:87304F65BB6D43217A8933F2DF7A7FEB9DB13AB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +226,8 @@ magnet:?xt=urn:btih:87304F65BB6D43217A8933F2DF7A7FEB9DB13AB7
 ```bash
 magnet:?xt=urn:btih:3B46F7574853C61C4E4E9D6022A0D05FE9852B19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:3B46F7574853C61C4E4E9D6022A0D05FE9852B19
 magnet:?xt=urn:btih:B532ACAF5BE9761621DA092CE2C1465D52490F7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:B532ACAF5BE9761621DA092CE2C1465D52490F7D
 ```bash
 magnet:?xt=urn:btih:9946FE6210C511DF00D8BFC6D68AD08326C01FB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:9946FE6210C511DF00D8BFC6D68AD08326C01FB3
 magnet:?xt=urn:btih:034E06BCD9C6B7BFE11B5D9E63BD44E6AE995C07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:034E06BCD9C6B7BFE11B5D9E63BD44E6AE995C07
 ```bash
 magnet:?xt=urn:btih:373B3594E7DBFC9AC3A8D6511E5EF65DF7170B76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:373B3594E7DBFC9AC3A8D6511E5EF65DF7170B76
 magnet:?xt=urn:btih:DD7B431F8BE691F33E967EDAD65F620708AE8E8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:DD7B431F8BE691F33E967EDAD65F620708AE8E8B
 magnet:?xt=urn:btih:717FE3800868F70C322A629D46DBB76D55C8F69B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:717FE3800868F70C322A629D46DBB76D55C8F69B
 ```bash
 magnet:?xt=urn:btih:6E3800528FE5BA7E219F43043F54AEDED3479EDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:6E3800528FE5BA7E219F43043F54AEDED3479EDE
 magnet:?xt=urn:btih:0C234DD84613018AD91BD3A62819F676A9AE4854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:0C234DD84613018AD91BD3A62819F676A9AE4854
 ```bash
 magnet:?xt=urn:btih:D15DE80CD76290E75EE111FB043878109D610A1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:D15DE80CD76290E75EE111FB043878109D610A1F
 magnet:?xt=urn:btih:87508623AB3FC9A48895A57F2B61F706986DE329
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:87508623AB3FC9A48895A57F2B61F706986DE329
 ```bash
 magnet:?xt=urn:btih:1BD4E6A973E33B8C0E072CA178545E085AC14F8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:1BD4E6A973E33B8C0E072CA178545E085AC14F8C
 magnet:?xt=urn:btih:1768AA2165C3B897C22A015F79B2FBD29BF2AA48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:1768AA2165C3B897C22A015F79B2FBD29BF2AA48
 ```bash
 magnet:?xt=urn:btih:902B705561C62F111604A33BD825D55EA0D6F75F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:902B705561C62F111604A33BD825D55EA0D6F75F
 magnet:?xt=urn:btih:7566C9B26D5B4C78FAD6DEE8AD5D8D303DEA5DE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:7566C9B26D5B4C78FAD6DEE8AD5D8D303DEA5DE2
 magnet:?xt=urn:btih:E92628D977354CB7C4FE93476E2479CAB1D3ACC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:E92628D977354CB7C4FE93476E2479CAB1D3ACC6
 ```bash
 magnet:?xt=urn:btih:6D544931B6D3FC9E121E670F9DDEFD75921F2F2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:6D544931B6D3FC9E121E670F9DDEFD75921F2F2B
 magnet:?xt=urn:btih:83AE988806E5D917CF9AC95DFBB8DD19A55DAF26
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059950   (457248) от 06.10.2016
-
-Белковский. Прямая линия (04.10.2016) WEB-DLRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный специалист телеканала "Дождь" ответил на вопросы телезрителей и Анны Монгайт.Телекомпания: ДождьЖанр: ТелепередачаПродолжительность: 00:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC16716B6FD6DBDA7F24C721E2F2ED4EB849FA53
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

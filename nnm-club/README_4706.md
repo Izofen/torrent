@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C2961F616F60727BAD0D5081F878335E077C304C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:C2961F616F60727BAD0D5081F878335E077C304C
 ```bash
 magnet:?xt=urn:btih:AE6C420E97155474CAF637594540A82B03899C6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -79,6 +83,8 @@ MJG - Bitches Money Guns (2012) [MP3|320 кб/с]<Dirty South, Southern Rap>
 magnet:?xt=urn:btih:7566C143AEDB8E5925D095ABD0FABC3626FA879E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:7566C143AEDB8E5925D095ABD0FABC3626FA879E
 ```bash
 magnet:?xt=urn:btih:FFE85E307AB69973AE59990E2E02D0B1A11C37C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ In Memory - LaKrima (2015) [FLAC|Lossless|image + .cue] <Progressive Metal>
 magnet:?xt=urn:btih:774F987AD905B3A57D6A7E0BA816AF4F362ACBE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:774F987AD905B3A57D6A7E0BA816AF4F362ACBE3
 magnet:?xt=urn:btih:F1C821997D426EEFA2A1194A344CEE18179DA577
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ magnet:?xt=urn:btih:F1C821997D426EEFA2A1194A344CEE18179DA577
 magnet:?xt=urn:btih:6C1E522CF4FF6AA89626ABB35390D8DCF645911E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ Winter landscapes Wallpapers (15.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:202BC9AD592350EA0EF5A27AC1CEA7765E4BA254
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -231,6 +247,8 @@ Metusa - 4 альбома (2009 - 2016) [FLAC|Lossless|image + .cue] <Folk Rock>
 magnet:?xt=urn:btih:51EDF73E66CA7A892E8C23F8E16282725DCC9DD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ The Unique Broadcast / Show Package - Уникальный, модный и яр
 ```bash
 magnet:?xt=urn:btih:033475B9CC5685857E6A582210AA24853AD2FB73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -282,6 +302,8 @@ Immortal Guardian - Age of Revolution (2018) [MP3|320 Kbps] <Progressive, Power 
 magnet:?xt=urn:btih:E114823A000FD63843845D6C8A5FCEBDE9129B69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ Eran Dinur | PNT205 3D Plants and Digital Environments (2013) PCRec [En, Ru]
 magnet:?xt=urn:btih:1F990C12CDF534A276340CF0162257E091FEB78B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:1F990C12CDF534A276340CF0162257E091FEB78B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +383,8 @@ Immortal Guardian - Revolution, Pt. 1 (2014) EP [MP3|320 Kbps] <Progressive, Pow
 magnet:?xt=urn:btih:DE00A374BDBC655BA0AAB31C499718C02CEC4DDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +408,8 @@ MarsEdit 4 v4.2.4 [En]
 ```bash
 magnet:?xt=urn:btih:A8031F729CD9B7284F7FCE035E2EBFAC97BE7E33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +438,8 @@ VA - Wir Lieben Sommerabende: Feinste Lounge Musik Selektion (2015) [MP3|320 к�
 magnet:?xt=urn:btih:5980EA472933BF14EF699F6379CDE32B5C8BE76A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +465,8 @@ magnet:?xt=urn:btih:5980EA472933BF14EF699F6379CDE32B5C8BE76A
 magnet:?xt=urn:btih:387696E4AD3683E1758E8D1E039CA0BD958C1101
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +490,8 @@ magnet:?xt=urn:btih:387696E4AD3683E1758E8D1E039CA0BD958C1101
 ```bash
 magnet:?xt=urn:btih:816B34A7F6F17B2F1ED41605AFCD23458367BD66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +520,8 @@ Exotheria - Angels Are Calling (2015) [FLAC|Lossless|image + .cue] <Progressive 
 magnet:?xt=urn:btih:1A6CB4BF78AF46D1FAD7867DA7BC94FCA691B6F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +545,8 @@ magnet:?xt=urn:btih:1A6CB4BF78AF46D1FAD7867DA7BC94FCA691B6F7
 ```bash
 magnet:?xt=urn:btih:541D59A02E32AB310676AF3FB1F012692BEF1445
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ Broken Sword 2: The Smoking Mirror (2011) [Multi] (3.4.3) License GOG [Remastere
 magnet:?xt=urn:btih:FEE93D9CFEEFB036918EF0E899A28F4ECB884D37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ magnet:?xt=urn:btih:FEE93D9CFEEFB036918EF0E899A28F4ECB884D37
 ```bash
 magnet:?xt=urn:btih:AF46F1342A789AFD2BD5BCBE9F72D4EDE90F0D7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +628,8 @@ Smooth Jazz Band - Raggae Rhythm of The Night 2023 (2023) [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:4CF790FB6AFFFFD2358DFCE663611A27AABC903C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ magnet:?xt=urn:btih:4CF790FB6AFFFFD2358DFCE663611A27AABC903C
 magnet:?xt=urn:btih:9A9B2ED853E4A8BD4969CCC37D7BE0614EEF0BBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ Humor Wallpapers (14.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:130D0EA081DB4153EC14FD6A434F69B9EEFECC72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -657,6 +707,8 @@ Nintendo Land (2012) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BA76EFB410814B86D33D612943E3EF9BCC3CB2E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

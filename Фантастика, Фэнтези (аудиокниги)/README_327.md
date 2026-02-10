@@ -1,3 +1,29 @@
+###  Публикация: 1173881   (388637) от 13.10.2017
+
+Артем Каменистый, Аля Холодова | S-T-I-K-S. Шесть дней свободы (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Меня зовут Элли и я иммунная. Теоретически, могу жить вечно в мире, который, возможно, бесконечен и у меня большие планы. Вот только с реализацией этих планов не все просто. За мной и теми, кто мне поверили, охотятся самые опасные хищники Стикса – такие же иммунные, как и я. Ну и чудовищ не стоит сбрасывать со счета, они здесь повсюду – от тупых и медлительных, до (   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастикаПродолжительность: 14:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CED76A1BDD809756D9B3EC0484D09DCE280B368
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1173756   (388759) от 13.10.2017
 
 Роман Злотников, Антон Корнилов | Последняя крепость. Том 1 (2017) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:E9722BD2DD677E1FCA6B4F55B84017D0E0E73716
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:E9722BD2DD677E1FCA6B4F55B84017D0E0E73716
 ```bash
 magnet:?xt=urn:btih:E67EAD0A8594B8AAFEC5AEF1C64D013D2DE1CC90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:E67EAD0A8594B8AAFEC5AEF1C64D013D2DE1CC90
 magnet:?xt=urn:btih:3F390E3309D153820C485035C88F1E97BEF3B948
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:3F390E3309D153820C485035C88F1E97BEF3B948
 ```bash
 magnet:?xt=urn:btih:7C069831087075279C0D23D7E292BFD7A585583F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:7C069831087075279C0D23D7E292BFD7A585583F
 magnet:?xt=urn:btih:51B0D99DE8360B431B480BC4A2A38997888D55D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:51B0D99DE8360B431B480BC4A2A38997888D55D0
 magnet:?xt=urn:btih:C3906BD3643F8F02D49FD32FE0D24318BE2E68C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:C3906BD3643F8F02D49FD32FE0D24318BE2E68C1
 ```bash
 magnet:?xt=urn:btih:2FB390ACCE47D9038301F6BB45F08D2DAC2DF27E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:2FB390ACCE47D9038301F6BB45F08D2DAC2DF27E
 magnet:?xt=urn:btih:B16059C273E9329B51B6B936C19FD03548E4EF2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:B16059C273E9329B51B6B936C19FD03548E4EF2D
 magnet:?xt=urn:btih:8B7746593E10ADBA71292B5EDFB9CA7CF761B765
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:8B7746593E10ADBA71292B5EDFB9CA7CF761B765
 ```bash
 magnet:?xt=urn:btih:ACE4F5978BEF4EFDCADFDC3718C0D0A9FC750F46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:ACE4F5978BEF4EFDCADFDC3718C0D0A9FC750F46
 magnet:?xt=urn:btih:82B39E66F7EDF3E8314CCC7FC5DB114C7F0AC88A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:82B39E66F7EDF3E8314CCC7FC5DB114C7F0AC88A
 ```bash
 magnet:?xt=urn:btih:75C07CC6B308896C8A96E8494940165A4174B6AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:75C07CC6B308896C8A96E8494940165A4174B6AB
 magnet:?xt=urn:btih:13B4A3CDEE277A0860FB9E8BB19F1909F98FD857
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:13B4A3CDEE277A0860FB9E8BB19F1909F98FD857
 ```bash
 magnet:?xt=urn:btih:9B67FBED83D3331F28A44362E39F7E91EB19D971
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:9B67FBED83D3331F28A44362E39F7E91EB19D971
 magnet:?xt=urn:btih:CF95812079B783834A1068368EC3BE00FD69E885
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:CF95812079B783834A1068368EC3BE00FD69E885
 ```bash
 magnet:?xt=urn:btih:CCC6F6D5BC1FEEB4228CF625C6447EBBE4CB9A84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:CCC6F6D5BC1FEEB4228CF625C6447EBBE4CB9A84
 magnet:?xt=urn:btih:1088241BD36A587DC4BFD0DB1D5C737527CBF52A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:1088241BD36A587DC4BFD0DB1D5C737527CBF52A
 magnet:?xt=urn:btih:9913F47100A5BB17685BB8BBA85D2E6CD8DB53FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:9913F47100A5BB17685BB8BBA85D2E6CD8DB53FC
 ```bash
 magnet:?xt=urn:btih:913AB71E0D9015B2CD69AB2D775AC13448A76DB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:913AB71E0D9015B2CD69AB2D775AC13448A76DB1
 magnet:?xt=urn:btih:DA1F916D15086EE14EFCFDE1DFC30E6E62FA47A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:DA1F916D15086EE14EFCFDE1DFC30E6E62FA47A7
 magnet:?xt=urn:btih:34A63AA1E4A2EF30F226D38505A2636731F8E260
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:34A63AA1E4A2EF30F226D38505A2636731F8E260
 ```bash
 magnet:?xt=urn:btih:C3D49047806DEA722B7CFD84D42850285702B9A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:C3D49047806DEA722B7CFD84D42850285702B9A7
 magnet:?xt=urn:btih:E509AC4B19DD1A6B1F944E72F70F928976042AD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:E509AC4B19DD1A6B1F944E72F70F928976042AD4
 ```bash
 magnet:?xt=urn:btih:3D8EB1641B57F801A9D4664A6C90E47E26C7FC45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:3D8EB1641B57F801A9D4664A6C90E47E26C7FC45
 magnet:?xt=urn:btih:11083593D6202215231A5765D1C7AF8373106A60
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568663   (393681) от 01.11.2012
-
-Роджер Желязны | Тоскливой октябрьской ночью... [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393681.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Night in the Lonesome October (русские переводы: "Тоскливой октябрьской ночью...", "Ночь в тоскливом октябре" или "Ночь в одиноком октябре") - последний роман американского мэтра фантастики Роджера Джозефа Желязны, опубликованный в 1993 году. Книга написана от имени умного и дельного пса Нюха в виде дневника, каждая из глав которого (   Читать дальше...   )Жанр: фэнтези
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1B0DF3F65890C7CCB6FA1BF936E6820D8C5A85F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

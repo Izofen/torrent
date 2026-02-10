@@ -1,3 +1,29 @@
+###  Публикация: 932768   (508043) от 30.08.2015
+
+Юлия Полюшко (сост.) | Студенту жизни на заметку (2015) [EPUB, RTF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждая мысль, изложенная здесь, не требует дополнительного объяснения, обнажает светлые и темные стороны человеческой жизни, не дает падать духом и помогает добиться успеха в жизни.Жанр: Афоризмы, ЦитатыФормат: EPUB, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EC703D93228FA8931A4229027743BFE396C10BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932720   (508154) от 30.08.2015
 
 Светлана Зернес | От всего сердца! 500 поздравлений в стихах (2011) [FB2, RTF]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:3CBF0E70BF8B29ED3EB26C1E09AF3DA174F4ABF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +76,8 @@ magnet:?xt=urn:btih:3CBF0E70BF8B29ED3EB26C1E09AF3DA174F4ABF6
 magnet:?xt=urn:btih:3E6DCAFFB1655466FDA6B9DFB2395C801EAE2A04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +101,8 @@ magnet:?xt=urn:btih:3E6DCAFFB1655466FDA6B9DFB2395C801EAE2A04
 ```bash
 magnet:?xt=urn:btih:AF6F5DF2B32A3F342933FC2CFA097C175EE844AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +128,8 @@ magnet:?xt=urn:btih:AF6F5DF2B32A3F342933FC2CFA097C175EE844AB
 magnet:?xt=urn:btih:574847E132B43CD543A19EFC6FC27F2798EB939B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:574847E132B43CD543A19EFC6FC27F2798EB939B
 magnet:?xt=urn:btih:CC03844236E22024F9C088EB35C8630B51DCD032
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:CC03844236E22024F9C088EB35C8630B51DCD032
 ```bash
 magnet:?xt=urn:btih:BACA4CB904E3E7E504CA52C09CDEDA43216BBD33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +208,8 @@ magnet:?xt=urn:btih:BACA4CB904E3E7E504CA52C09CDEDA43216BBD33
 magnet:?xt=urn:btih:46C39B14EE091DB01E9D17985D49BBA7552726A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:46C39B14EE091DB01E9D17985D49BBA7552726A9
 ```bash
 magnet:?xt=urn:btih:E39E613F5DB4C57B5F52022486E01F1FD99A9E92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +263,8 @@ magnet:?xt=urn:btih:E39E613F5DB4C57B5F52022486E01F1FD99A9E92
 magnet:?xt=urn:btih:27682DFA94D0F5835230562890A6737B4A08E2C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +288,8 @@ magnet:?xt=urn:btih:27682DFA94D0F5835230562890A6737B4A08E2C1
 ```bash
 magnet:?xt=urn:btih:3FB66FF4508C4CD6F4EA3A83CFC7B7CDEBC8B3A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +317,8 @@ magnet:?xt=urn:btih:3FB66FF4508C4CD6F4EA3A83CFC7B7CDEBC8B3A0
 magnet:?xt=urn:btih:435EF59BD716DF53C366763F2DAAC2889A956B36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +342,8 @@ magnet:?xt=urn:btih:435EF59BD716DF53C366763F2DAAC2889A956B36
 ```bash
 magnet:?xt=urn:btih:6AF08D801FDB38490172FEB4A31B01C0D4DBB5FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +370,8 @@ magnet:?xt=urn:btih:6AF08D801FDB38490172FEB4A31B01C0D4DBB5FF
 magnet:?xt=urn:btih:53272E38CF84A79C6C6B3BAE0C2EDBF35F13B1B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +395,8 @@ magnet:?xt=urn:btih:53272E38CF84A79C6C6B3BAE0C2EDBF35F13B1B1
 ```bash
 magnet:?xt=urn:btih:04DD925E9B4DF929A800752249DE50F9BA5FE561
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +424,8 @@ magnet:?xt=urn:btih:04DD925E9B4DF929A800752249DE50F9BA5FE561
 magnet:?xt=urn:btih:F8FC0D65BEAA82F21CBC943D83AE08B7A01E2D76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +449,8 @@ magnet:?xt=urn:btih:F8FC0D65BEAA82F21CBC943D83AE08B7A01E2D76
 ```bash
 magnet:?xt=urn:btih:72ABC4E21EB6E9D4B12FF2EF73CB1C15304501CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +479,8 @@ magnet:?xt=urn:btih:72ABC4E21EB6E9D4B12FF2EF73CB1C15304501CB
 magnet:?xt=urn:btih:BB63BBF83D8A5CEFF5CD4A88ECC3313FC14A5829
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +504,8 @@ magnet:?xt=urn:btih:BB63BBF83D8A5CEFF5CD4A88ECC3313FC14A5829
 ```bash
 magnet:?xt=urn:btih:BD2A2B7CE06A3782C24ABD5824AD4508998D6CDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +532,8 @@ magnet:?xt=urn:btih:BD2A2B7CE06A3782C24ABD5824AD4508998D6CDF
 magnet:?xt=urn:btih:49131FB4FB8C4CD6D1365297E9A68448E3626F22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +559,8 @@ Games Workshop | Warhammer 40000 - Полное собрание последн�
 magnet:?xt=urn:btih:03C1C2F5CD4DFA3F424CC2CEAE9BE710EE8A8F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +585,8 @@ magnet:?xt=urn:btih:03C1C2F5CD4DFA3F424CC2CEAE9BE710EE8A8F32
 magnet:?xt=urn:btih:5CA68F33080B0C9BB5F4AA8691761F1F94369CC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +610,8 @@ magnet:?xt=urn:btih:5CA68F33080B0C9BB5F4AA8691761F1F94369CC9
 ```bash
 magnet:?xt=urn:btih:194B79A90C555097EF2C2F693495DA4A6719A840
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +638,8 @@ magnet:?xt=urn:btih:194B79A90C555097EF2C2F693495DA4A6719A840
 ```bash
 magnet:?xt=urn:btih:8B43DDBC2A74AD6712B3F035D5231FBB8717608B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +668,8 @@ magnet:?xt=urn:btih:8B43DDBC2A74AD6712B3F035D5231FBB8717608B
 magnet:?xt=urn:btih:6A1A8BBE6370CCF35DFE5E72F80798BA6D4B4CDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,31 +694,7 @@ Games Workshop | Warhammer 40000 How to... [2009-2012] [PDF]
 magnet:?xt=urn:btih:A4E97564F7B2B636D7D67152AE903A0DA8CEA8B3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932168   (509864) от 28.08.2015
-
-Алекс Виада | Гибридный Атлет (2015) [PDF]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новинка! Абсолютный эксклюзив! Одна из лучших книг по функциональному тренингу!
-Знаменитая в своих кругах команда Juggernaut советует эту книгу всем, кому интересен функциональный тренинг. В книге вы узнаете как подготовить себя к сложным испытаниям, о том как преуспеть в реакции, силе, выносливости и красоте тела.
-Сам автор Алекс Виада - это гуру разностороннего (   Читать дальше...   )Жанр: ФитнесФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70AC03C78AE4260FED698211DF068254CE564E03
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

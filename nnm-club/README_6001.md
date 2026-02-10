@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:672A1ACB566310D9F5893ACA65043B95F366FD84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:672A1ACB566310D9F5893ACA65043B95F366FD84
 ```bash
 magnet:?xt=urn:btih:7C3491DEDDB5D7118A2E1440EED3B056B1F8CC34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Captain Black Beard - Neon Sunrise (2022) Japanese Edition [FLAC|Lossless|image 
 magnet:?xt=urn:btih:F3806D333B5B2497605C3A35B2374AB72CF71218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ MetaImage - это идеальный инструмент для чтения, 
 magnet:?xt=urn:btih:AD651961180EE303BB80A89286336559473B0257
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Exif Pilot - EXIF редактор используется для просмо�
 ```bash
 magnet:?xt=urn:btih:686C15398CFBB0EEFE3DFE84786E794E9A7EBB1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ Alicate - Butterfly (2022) [FLAC|Lossless|image + .cue] <Melodic Rock>
 magnet:?xt=urn:btih:3C43C92C3DE2C621702630BB87944E6AC263B780
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Holden Karau, Mika Kimmins | Scaling Python with Dask (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:86F317C3528E997D81BF61A6EFE26A68005693A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ Brother Jack McDuff - Down Home Style (1969) 1997, Blue Note [FLAC|Lossless|trac
 magnet:?xt=urn:btih:50E80F8A4EDB2D4639CDE56DABCB7679CF9B4164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ VA - Music News vol.301 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:ED1EF8EEF4C0DC54883FF3136906F30DCA4A9380
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ Mythosphere - Pathological (2022) [MP3|222-229 kbps VBR] <Psychedelic Prog Metal
 magnet:?xt=urn:btih:7F024963EF3158F08F7F4E747CFF4705FCC434FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ URI Handler – Open With Picker 1.8 [En]
 magnet:?xt=urn:btih:C827CF3F3ADD5FEC9BC55658DE29C4B0474807BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ PhotoChef 1.2 [En]
 ```bash
 magnet:?xt=urn:btih:A8D2BE7570C7CBBCB996623C8239A66C0131F937
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:A8D2BE7570C7CBBCB996623C8239A66C0131F937
 magnet:?xt=urn:btih:92D08347DA6275E87678CBFA4A157D14122B909E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ CGcircuit, Bishoy Khalifa | Sand Bag Tearing in Houdini (2021) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:A79FE2640C34A8BBFC1C78DD8124D2AD73404727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ Motive 1.3.0 [En]
 magnet:?xt=urn:btih:397AF0F504EF806497674ADED671ACB41887C1E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:397AF0F504EF806497674ADED671ACB41887C1E4
 ```bash
 magnet:?xt=urn:btih:D8F49C3B756A8147D7CB14C5F936C1072CA0E22A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ magnet:?xt=urn:btih:D8F49C3B756A8147D7CB14C5F936C1072CA0E22A
 magnet:?xt=urn:btih:EF72D9CA741220D994BFECE26E369C705D157FAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ Kosmik Tomb - Origins of the Horror (2022) [FLAC|Lossless|WEB-DL|tracks] <Death 
 magnet:?xt=urn:btih:3923DA6ECBF32315A85C7215A1DE3797155E60FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ Soulver предназначен для «быстрой математики» 
 magnet:?xt=urn:btih:DD5620F00FE810C42D4EB6358AEA7EE2EDD9FE9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:DD5620F00FE810C42D4EB6358AEA7EE2EDD9FE9A
 ```bash
 magnet:?xt=urn:btih:8094E0D48983F5B15477CDF5BD935461D1B964F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:8094E0D48983F5B15477CDF5BD935461D1B964F0
 magnet:?xt=urn:btih:EA9EDB0F347283EA8DD152C05A85E0C490C2558C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ Magic Sort List поставляется с нашим революционны�
 ```bash
 magnet:?xt=urn:btih:B2B3D77715E76367D40F403F99FDFB0136BDE904
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ Avatarium - The Fire I Long For (2019) Japan Edition [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:1D599682D2AA8F38EDE56B8FE45F23F1F7415DF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ SyncTime - самое простое решение для синхрониза�
 ```bash
 magnet:?xt=urn:btih:AD215F2081520CF17DBCFADDFF898BFEC2A9D0C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ Mirillis Action! 4.38.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:97918917EF8D504D947B08D5582834EA912920EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +705,8 @@ Crow's Flight - The Storm (2019) [FLAC|Lossless|image + .cue] <Heavy Metal, Powe
 ```bash
 magnet:?xt=urn:btih:096C31C7AEEA0DB013BD4BC2F7BAE4A04840D4F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

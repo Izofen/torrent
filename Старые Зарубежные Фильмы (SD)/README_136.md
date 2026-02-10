@@ -1,27 +1,3 @@
-###  Публикация: 1052150   (528918) от 13.09.2016
-
-Мистер Судьба / Mr. Destiny (1990) WEB-DLRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528918.jpg" />
-</div>
-
-
-###  Подробнее
-
-У простого служащего Ларри ломается машина. Он останавливается у придорожного кафе и в ожидании помощи решает пропустить стаканчик. Ларри жалуется бармену на свою неудавшуюся жизнь: если бы все сложилось иначе… Таинственный человек за стойкой молча выслушал его историю. С этого момента судьба Ларри полностью изменилась. Теперь он — один из управляющих преуспевающей (   Читать дальше...   )Производство: СШАЖанр: КомедияРежиссер: Джеймс ОррАктеры: Джеймс Белуши, Линда Хэмилтон, Майкл Кейн, Джон Ловиц, Харт Бокнер, Рене Руссо, Джэй О. Сэндерс, Мори Чайкин, Пэт Корли, Даглас Сил ...Перевод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:50:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFEB753BEB894EFD9C96362DC6A884EF1B3A1A6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052178   (529129) от 13.09.2016
 
 Возвращение надоедливой букашки / Fantasia chez les ploucs (1971) DVDRip [H.264] [АVO]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:DFEB753BEB894EFD9C96362DC6A884EF1B3A1A6A
 ```bash
 magnet:?xt=urn:btih:D4828D851BE19EBADC181D6ABA2E7A9C0187B9E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:D4828D851BE19EBADC181D6ABA2E7A9C0187B9E3
 magnet:?xt=urn:btih:840C778C0775B77A9103C0121E4FC50F48ECB74A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:840C778C0775B77A9103C0121E4FC50F48ECB74A
 ```bash
 magnet:?xt=urn:btih:2082F5CEC6E686853F227FFE22453AA74F2DFB9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:2082F5CEC6E686853F227FFE22453AA74F2DFB9F
 magnet:?xt=urn:btih:6B450A064674D7B4C8B7853C2A4207D32A08F4A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:6B450A064674D7B4C8B7853C2A4207D32A08F4A2
 ```bash
 magnet:?xt=urn:btih:9FECCED5DEC2FFF6AC8B4C6DF9178F379BD81B7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:9FECCED5DEC2FFF6AC8B4C6DF9178F379BD81B7B
 magnet:?xt=urn:btih:D697A63855EDE0E5845DD1FC0FAE2ED5D8825573
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:D697A63855EDE0E5845DD1FC0FAE2ED5D8825573
 ```bash
 magnet:?xt=urn:btih:EB17CA8C58ED8B87415CA6076FB142F9F5B89819
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:EB17CA8C58ED8B87415CA6076FB142F9F5B89819
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:EB17CA8C58ED8B87415CA6076FB142F9F5B89819
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +255,8 @@ magnet:?xt=urn:btih:EB17CA8C58ED8B87415CA6076FB142F9F5B89819
 magnet:?xt=urn:btih:08A99543713615F9A7B57CB3CBA03591AF5FEE8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:08A99543713615F9A7B57CB3CBA03591AF5FEE8E
 ```bash
 magnet:?xt=urn:btih:D45787654AEBD91C4D7233BD5D85439DCD095714
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +309,8 @@ magnet:?xt=urn:btih:D45787654AEBD91C4D7233BD5D85439DCD095714
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +334,8 @@ magnet:?xt=urn:btih:D45787654AEBD91C4D7233BD5D85439DCD095714
 ```bash
 magnet:?xt=urn:btih:8479F5BF52E5014B9E96D761D861E56B2B9E82FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +361,8 @@ magnet:?xt=urn:btih:8479F5BF52E5014B9E96D761D861E56B2B9E82FC
 magnet:?xt=urn:btih:5E387F96E5C61E4695CECB6023E2ADC3324BFC4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +387,8 @@ magnet:?xt=urn:btih:5E387F96E5C61E4695CECB6023E2ADC3324BFC4F
 magnet:?xt=urn:btih:9952E5910B87A2A24D9DCCDEE0D93363001A1A88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +412,8 @@ magnet:?xt=urn:btih:9952E5910B87A2A24D9DCCDEE0D93363001A1A88
 ```bash
 magnet:?xt=urn:btih:C4F1F1A136AEDA4BA97A427D89F0928C15F0A884
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +440,8 @@ magnet:?xt=urn:btih:C4F1F1A136AEDA4BA97A427D89F0928C15F0A884
 magnet:?xt=urn:btih:A4BF2C93C3DC144F8BA69A51576538E94960B40E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +465,8 @@ magnet:?xt=urn:btih:A4BF2C93C3DC144F8BA69A51576538E94960B40E
 ```bash
 magnet:?xt=urn:btih:48AE7F1DFF3E67068A325C940643159666F13887
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +492,8 @@ magnet:?xt=urn:btih:48AE7F1DFF3E67068A325C940643159666F13887
 magnet:?xt=urn:btih:1D93D089AAE78CA0CBA22E6E32756C5B1FDE092E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +517,8 @@ magnet:?xt=urn:btih:1D93D089AAE78CA0CBA22E6E32756C5B1FDE092E
 ```bash
 magnet:?xt=urn:btih:60AADF1FFABFDEB3F7D2F1F6288BF7137A5C44EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +544,8 @@ magnet:?xt=urn:btih:60AADF1FFABFDEB3F7D2F1F6288BF7137A5C44EE
 magnet:?xt=urn:btih:669C1AE9C73AA8C050753BD71DB120FE277D1C25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +569,8 @@ magnet:?xt=urn:btih:669C1AE9C73AA8C050753BD71DB120FE277D1C25
 ```bash
 magnet:?xt=urn:btih:2C05E0AE3F9B4C8FE3D4F86B2186A8C7B9F6517D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +597,8 @@ magnet:?xt=urn:btih:2C05E0AE3F9B4C8FE3D4F86B2186A8C7B9F6517D
 magnet:?xt=urn:btih:6D37818695E7CD416A5B16A5746E47D3ABAE3CEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +623,8 @@ magnet:?xt=urn:btih:6D37818695E7CD416A5B16A5746E47D3ABAE3CEA
 magnet:?xt=urn:btih:0B6FC0187D769F484913EB818F5F1E2810D02F86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +648,34 @@ magnet:?xt=urn:btih:0B6FC0187D769F484913EB818F5F1E2810D02F86
 ```bash
 magnet:?xt=urn:btih:2896407F04231E170C17ADA05BCEDA94D8907B24
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050508   (534806) от 10.09.2016
+
+Эта земля моя / This Land Is Mine (1943) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой скромный школьный учитель Альбер Лори «боится бомбежек, любит свою старую мать, свои удобства и свой стакан молока, почитает инспектора учебного округа и оккупационные власти…» и просто отчаянный трус. Но он находит в себе силы перед лицом неминуемой смерти выступить на суде с пламенной речью, обличающей нацизм.Производство: США, Jean-Renoir- Dudly Nichols Productions, RKO Radio PicturesЖанр: ДрамаРежиссер: Жан РенуарАктеры: Чарльз Лотон, Морин О`Хара, Джордж Сандерс, Уолтер Слезак, Кент Смит, Уна О`Коннор, Филип Меривэйл, Тьюрстон Холл, Джордж Кулурис, Нэнси Гейтс, Иван Ф. Симпсон, Фрэнк Альтен, Джон Баннер, Тревор БардеттПеревод: Многоголосый закадровыйПродолжительность: 01:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD2C179A2CFED7DAD2C30727DADAEEB69F01084
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

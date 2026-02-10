@@ -1,3 +1,148 @@
+###  Публикация: 1304305   (565528) от 25.05.2019
+
+Diva Gray And Oyster - Hotel Paradise (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. St. Tropez (5:29)
+02. Up And Down (6:12)
+03. Hotel Paradise (5:13)
+04. Good Good Tequila (6:29)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:27:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43D25639786D0AEEAD47D447B0A17B65AA86F21C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304400   (565532) от 25.05.2019
+
+Venus Dodson - Night Rider (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's My Turn (6:48)
+02. Shining (7:35)
+03. Night Rider (6:43)
+04. Where Are We Headed (4:14)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758C449A8D2B585B9D42DC275E53DA13278EC560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304251   (565560) от 25.05.2019
+
+Plastic Mermaids - Suddenly Everyone Explodes (2019) [FLAC|Lossless|WEB-DL|tracks] <Dream-pop, Indie-rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glow
+02. 1996
+03. Floating in a Vacuum
+04. 10,000 Violins Playing Inside an Otherwise Empty Head(   Читать дальше...   )Жанр: Dream-pop, Indie-rockПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A51BF5A0E5DC831C3895B75374750F56E8BF29F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234628   (565829) от 08.07.2018
+
+Daryl Hall & John Oates - Whole Oats (1972) 2008, American Beat Records [FLAC|Lossless|tracks + .cue] <Pop Rock, Folk Rock, Country Rock, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Sorry
+02. All Our Love
+03. Georgie
+04. Fall In Philadelphia(   Читать дальше...   )Жанр: Pop Rock, Folk Rock, Country Rock, SoulПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3274FC50BC928A3FEADD7E30A2BFF1E0B686793E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234909   (565918) от 08.07.2018
+
+Michelle - Tabu (Deluxe) (2018) 2CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565918.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Tabu
+02. Meine Welt
+03. Lieben, Lieben, Lieben(   Читать дальше...   )Жанр: PopПродолжительность: 01:25:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E795789C0F5A0091876941647482C7B3D4A4D6AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234883   (565998) от 08.07.2018
 
 VA - The Dome Summer (2018) 2CD [MP3|320 Kbps] <Pop, Dance>
@@ -22,6 +167,8 @@ CD1:
 magnet:?xt=urn:btih:F8C1FFA973D6C1FF1EAB46A96D41106F68AA8025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +192,8 @@ magnet:?xt=urn:btih:F8C1FFA973D6C1FF1EAB46A96D41106F68AA8025
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +222,8 @@ Now That's What I Call Music 59 - является 59-ым изданием  с�
 magnet:?xt=urn:btih:D0B1E8F89F748C557E3A1912F33CB97135CE9810
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +247,8 @@ magnet:?xt=urn:btih:D0B1E8F89F748C557E3A1912F33CB97135CE9810
 ```bash
 magnet:?xt=urn:btih:DD53330CDED4A8DFDB943E6D478CAABD74BC93B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +283,8 @@ Savage - Don't Cry (Greatest Hits) 2CD (1994) [FLAC|Lossless]<Italo-Disco>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +311,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:A94D3B1EAA299536E416192B114B936A46260740
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +341,8 @@ Digitalo - Say Yes (2016) [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-Disco
 magnet:?xt=urn:btih:C72244F43DF9D75579EDC4A4F6B1A08D071EAFB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +369,8 @@ Grand Prix - Mach 1 (1983) LP [MP3|320 Kbps] <Electronic, Italo-Disco, Electro>
 ```bash
 magnet:?xt=urn:btih:90C9B1C13A1366EF0F9FB3F7C1B4E1921AC1D580
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +399,8 @@ Christina Aguilera - AGUILERA (2022) [FLAC 2.0|44,1/24|tracks|WEB-DL] <Pop, Lati
 magnet:?xt=urn:btih:9E6F4141E3FD8AD03A4B79AFA002DA7096C21CD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +427,8 @@ magnet:?xt=urn:btih:9E6F4141E3FD8AD03A4B79AFA002DA7096C21CD4
 ```bash
 magnet:?xt=urn:btih:74CF23AFB6D8371C4F7EFD9CC3F1CC0576681EE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +458,8 @@ VA - Girls! Girls! Girls! The Best of Burlesque & Striptease Music vol. 1-2 (200
 magnet:?xt=urn:btih:155C6487F47C14F17F257A996E5FDD2A10CFCDC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +486,8 @@ ALEKSEEV - Моя звезда (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:1879697F6959CBF083A9A854DEC205AF4140BBA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +516,8 @@ VA - Disco Sound (Hits In Instrumentalfassung) (1978) LP [MP3|320 Kbps] <Disco, 
 magnet:?xt=urn:btih:57F66558965F0C83D182C457D19B8E41FCF76EA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +543,8 @@ Love Fever - Love Fever (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 ```bash
 magnet:?xt=urn:btih:83ADA94716AD1A04C89B8BB5CCEBE2D65DADBEF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +573,8 @@ Giorgio Scarpinelli Y Su Orquesta - Disc-O-Tango (1979) LP [MP3|320 Kbps] <Elect
 magnet:?xt=urn:btih:791C14A00E0A59477455DFF3E78E9180B3113D0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +601,8 @@ Kiki Dee - 3 Albums (1977-1981) Reissue CD [MP3|320 Kbps] <Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:5EE1D0D31694CC3C7F9C27BF5455CF42346C51D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +631,8 @@ J. C. Riffaud - Emotion Life And Happiness (1979) LP [MP3|320 Kbps] <Electronic,
 magnet:?xt=urn:btih:5C3090FA2AD2ECB22AEB66AEA5719808ED1FAEE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +659,8 @@ magnet:?xt=urn:btih:5C3090FA2AD2ECB22AEB66AEA5719808ED1FAEE4
 ```bash
 magnet:?xt=urn:btih:0F78E9415209D7A6CA469510DDDBE971211F6DD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +689,8 @@ magnet:?xt=urn:btih:0F78E9415209D7A6CA469510DDDBE971211F6DD3
 magnet:?xt=urn:btih:0EC7D780D5A8314AAEFBFAD8CE6D5581C82738F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +717,8 @@ magnet:?xt=urn:btih:0EC7D780D5A8314AAEFBFAD8CE6D5581C82738F2
 ```bash
 magnet:?xt=urn:btih:CA96D8359645D143B39BB79837D91A4C316AEE64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,146 +747,7 @@ Ken Laszlo - Best Of 1990-1998 (Maxi Singles & More) (2018) Compilation, Limited
 magnet:?xt=urn:btih:DCD2242656AB353B70AC54881B059A5F1EA74D21
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234551   (567954) от 07.07.2018
-
-Krono - Krono (1979) LP [MP3|320 Kbps] <Electronic, Space Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bareback (5:42)
-02. Jamaica Electric (6:30)
-03. Manhattan (6:29)
-04. Krono (6:51)(   Читать дальше...   )Жанр: Electronic, Space DiscoПродолжительность: 00:33:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DE7C9E1B521E6725B17ADD1715A6B6B971752FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922702   (568175) от 29.07.2015
-
-Kristine - Kristine (2015) [MP3|320 кб/с]<80's Retrowave, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Love [04:50]
-02. The Danger [03:40]
-03. Summer Long Gone [04:17]
-04. The Rhythm of Love [03:40](   Читать дальше...   )Жанр: 80's Retrowave, SynthpopПродолжительность: 00:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8E7AEF5857CC46D666161955DFE376841AB28D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529174   (568199) от 30.07.2012
-
-Madonna - Greatest Hits (2008) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568199.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1
-01. 4 Minutes
-02. Hung Up
-03. Miles Away
-04. Jump
-05. Die Another Day
-06. Hey You
-07. American Life
-08. American Pie
-09. Beatiful Stranger(   Читать дальше...   )Жанр: PopПродолжительность: 02:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB330780F784391EB8922A71C566D9209F9CAF63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922643   (568217) от 29.07.2015
-
-Bea Miller - Not An Apology (2015) [OGG|474-539 кб/с]<Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Young Blood (03:41)
-02. Fire N Gold (03:32)
-03. I Dare You (03:26)
-04. Paper Doll (03:36)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31288E2E404B25C1454344F31C08167D6D1CBC50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137722   (568438) от 21.07.2017
-
-Yulduz Usmanova (Usmonova) - 17 Albums (1993-2014) [MP3|128-320 Kbps] <Pop, Ethno-Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юлдуз Усманова (Усмонова) — известная как «примадонна восточной эстрады», узбекская эстрадная певица, композитор, поэт-песенник, продюсер, народная артистка Узбекистана, заслуженная артистка Таджикистана, Туркменистана, Казахстана. В её репертуар входит более 600 песен на узбекском, турецком, уйгурском, казахском, татарском, русском, таджикском, персидском и других (   Читать дальше...   )1993 - Alma Alma
-1995 - Jannona
-1996 - Binafscha
-1997 - The Selection AlbumЖанр: Pop, Ethno-PopПродолжительность: 15:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A85D4AEEB972F1A374B407166CF9C81DDDC64D1
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

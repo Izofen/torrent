@@ -22,6 +22,8 @@ VA - Anjunabeats presents Progressive House 01 (DJ Mix) (2024) [MP3|320 Kbps] <H
 magnet:?xt=urn:btih:DBE6292A3FE81EA65A813949B8B6827689F0607C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Harmonic and Melodic Laid-Back Ambiance Lounge Tunes (2024) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:48E02737E3C64713EE3DE821228B998031190648
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Luxurious, Relaxed & Sophisticated Atmosphere Soothing Tunes to Chill (2024
 magnet:?xt=urn:btih:BD05AC40AC168E3FC6EBB629A209A253B9A025DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Sorrow - Death Of Sorrow (2023) [FLAC|Lossless|image + .cue] <Death Metal>
 magnet:?xt=urn:btih:35DB1801148A96311B9BA825429B537135531D96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:35DB1801148A96311B9BA825429B537135531D96
 ```bash
 magnet:?xt=urn:btih:A978FD4C1202937B84AC7E0E1A245BD0CB7D5485
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:A978FD4C1202937B84AC7E0E1A245BD0CB7D5485
 magnet:?xt=urn:btih:C80BE356B853439C2034527263953024B42671FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:C80BE356B853439C2034527263953024B42671FB
 ```bash
 magnet:?xt=urn:btih:43FE28D70F49924D4585B96819799658CF4F5544
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ VA - AI song, AI music (2024) [MP3|320 Kbps] <Eurodisco, Eurodance>
 magnet:?xt=urn:btih:8AC25AE01115F573D67A26F67B04D5DBA0E547C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:8AC25AE01115F573D67A26F67B04D5DBA0E547C7
 ```bash
 magnet:?xt=urn:btih:E9D1B71BB8B8EB54AFDECDA515390A6BFDAB4ADE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ Linux Format — первый ежемесячный журнал, целико�
 magnet:?xt=urn:btih:DF953AC8B3C263457D3D32E4823B017531D3CBB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:DF953AC8B3C263457D3D32E4823B017531D3CBB0
 ```bash
 magnet:?xt=urn:btih:E85989D4AEF386799CD6AE41F07E971CEF6B6BF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ Advanced Renamer хоть и бесплатная (   Читать дальше
 magnet:?xt=urn:btih:D00BC4C8E5C22374538B1B731AC5EDB5C86A2657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ Folder Player Pro - это ориентированный на каталоги 
 ```bash
 magnet:?xt=urn:btih:0F53793535AA597CB2D1D60EA16355FF3270D8B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:0F53793535AA597CB2D1D60EA16355FF3270D8B6
 magnet:?xt=urn:btih:900AEE331DFB67B8FFEF090C0DF1DF4252796907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:900AEE331DFB67B8FFEF090C0DF1DF4252796907
 ```bash
 magnet:?xt=urn:btih:96D1AEBE5A73E4F37CF9EC7398009B9AF603095B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:96D1AEBE5A73E4F37CF9EC7398009B9AF603095B
 magnet:?xt=urn:btih:A1020D7AC1C1DB816E8328BBE24D91B8B2A156BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:A1020D7AC1C1DB816E8328BBE24D91B8B2A156BF
 ```bash
 magnet:?xt=urn:btih:94F50454D6E1B6A70334DE91DC48E2322277FCC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:94F50454D6E1B6A70334DE91DC48E2322277FCC7
 magnet:?xt=urn:btih:C76B9E66D1CE8DC53D263DA6D5F7277491C7CAEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ PictureThis - Plant Identification v4.4.2 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C53AA4BBB133ED43B8B03A03A1C5F6BD91CD43BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ VA - XX. Трибьют группе Артерия (2024) [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:27070749C8D02F7D3FD320E7454A0F92D6495D3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:27070749C8D02F7D3FD320E7454A0F92D6495D3C
 magnet:?xt=urn:btih:9C787337AD04A1DC12F2013FE2C6F3F7AB94B62A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:9C787337AD04A1DC12F2013FE2C6F3F7AB94B62A
 ```bash
 magnet:?xt=urn:btih:FCFEC957E1CFFB69641A3F47E420190CCA5F0243
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +617,8 @@ Pavarotti - Verdi  (1987) [FLAC|Lossless|tracks + .cue] <Classical, Opera>
 magnet:?xt=urn:btih:B061AA95B096AFBEF22F218AB68B6B88BC2D4798
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:B061AA95B096AFBEF22F218AB68B6B88BC2D4798
 ```bash
 magnet:?xt=urn:btih:B9CB205810BAD23D64B139442E6A31A1CFA16D86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ VA - Soothing & Soft Lounge Playlist to Unwind and Relax (2024) [FLAC|Lossless|W
 magnet:?xt=urn:btih:AF94031BCE7EF0DD2F0D3060A2985ECE145F1DB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:AF94031BCE7EF0DD2F0D3060A2985ECE145F1DB2
 ```bash
 magnet:?xt=urn:btih:975705A369EB20184763B34E4CE684D617E1F4CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

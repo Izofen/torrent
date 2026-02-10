@@ -19,6 +19,8 @@ CreativeLive.com | Cinematographer's Preparation (2016) WEB-DL [H.264/720p-LQ] [
 magnet:?xt=urn:btih:785676C900B07F900F71FF9B82D685C346676E04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Lynda.com | Video Production and Post Tips (Updated3/31/2017) WEB-DL [H.264/720p
 ```bash
 magnet:?xt=urn:btih:61DF4E04036E224D3BBB64652908FAF8323454AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:61DF4E04036E224D3BBB64652908FAF8323454AD
 magnet:?xt=urn:btih:0DD882833A89E0BB50D45BC903618E58BDC11667
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ ProfIT | DBA Введение в профессию (2015) PCRec [H.264]
 magnet:?xt=urn:btih:3A2CAB0103FDE02E0606898C8DBAA7A608910164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Lynda.com | Video Post Productivity Weekly (Updated5/1/2018) WEB-DL [H.264/720p-
 ```bash
 magnet:?xt=urn:btih:D118DE382AFA3AE5A91CC35AB7CF0C55C2B00090
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:D118DE382AFA3AE5A91CC35AB7CF0C55C2B00090
 magnet:?xt=urn:btih:2BA2241B20D14BAF52A8A2B3AD1B5AA99AC7BD19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ V-Stock | Торговля опционами (2015) PCRec
 ```bash
 magnet:?xt=urn:btih:C62D8A64220F61E6364669C5FFABDA12ECC1CB88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Udemy | Web приложение - My Resume на базе фреймворка 
 magnet:?xt=urn:btih:F2149344A55DEDA00F88F2B8FCBF8472A420CA7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:F2149344A55DEDA00F88F2B8FCBF8472A420CA7B
 ```bash
 magnet:?xt=urn:btih:BC031BF23F19A57CAE2EE7A9D6B04D448D790033
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Udemy | Web приложение - My Blog: Servlets, JSP, JSTL, JDBC, Eclipse (
 magnet:?xt=urn:btih:AB562C86CA2C9A988B1F9A9EA0F40B7513111811
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Udemy | Основы программирования - Крестики-нол�
 ```bash
 magnet:?xt=urn:btih:107B5603FDFE5835028F673E5CFB7455DEC7A5D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ Udemy | Макет интернет магазина - IShop: HTML, CSS, JS, Boo
 magnet:?xt=urn:btih:546DABD39D9AF3087DA80E281E2E3D65BDEF9DB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ CGMA | Mastering Destruction in Houdini (2019) PCRec[En, Ru]
 ```bash
 magnet:?xt=urn:btih:81F04178445E542D232921DADE27DBC3AF75FBDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ Udemy | Web приложение - IShop: Servlets, JSP, JSTL, Custom tags (2016
 magnet:?xt=urn:btih:8810E401103AECE3E91E7155DC0D53DAA41F3BC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ ITVDN | Unity 3D User Interface (2016) PCRec [H.264/720p]
 magnet:?xt=urn:btih:D2F44ACF6267E36E9B99EF88BD1BA7F04D0207C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ ITVDN | Видео курс Выполнение домашнего задани
 ```bash
 magnet:?xt=urn:btih:6BB0AD8A6A98BABD4F958535D59DDFE446F865CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ Polygon Runway | Стань 3D иллюстратором в Blender 2.8 / Becom
 magnet:?xt=urn:btih:E3446BF416ACD2521D15C460CFBF5755294D4296
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:E3446BF416ACD2521D15C460CFBF5755294D4296
 ```bash
 magnet:?xt=urn:btih:ADFE47A412F5872B4E767FFE081FCF0025DFF5CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ Polygon Runway | Создание 3D леттеринга в Blender 2.82 / Crea
 magnet:?xt=urn:btih:24332FE0CA08CCCBA8C61BFB1F3043297DA153C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:24332FE0CA08CCCBA8C61BFB1F3043297DA153C6
 magnet:?xt=urn:btih:9E9CC864DB0ACEFD1ED7875329D28096CD04A05F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:9E9CC864DB0ACEFD1ED7875329D28096CD04A05F
 ```bash
 magnet:?xt=urn:btih:446311D3ED9342FAFC20FB81623EA59CE161E60A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ Skillbox | Photoshop с нуля до PRO (2020) WEBRip [H.264/1080p-LQ]
 magnet:?xt=urn:btih:7D06803B1574F728F393E34AF075A41C4ACC4489
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ CG Cookie | Создание игры Portalethium часть 2: Дизайн у
 magnet:?xt=urn:btih:315A85C6F1E7DCE57D6AAA10BDA40E4DD1AC9C09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ Udemy | Unreal Engine Blueprints The Ultimate Developer Course (2020) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:3807A0F56E9780C7A03EA4A2634F037C3378A5D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +660,8 @@ Victory3D | Создание игрового окружения "Античны
 magnet:?xt=urn:btih:70D28C9200ECB64B83BD7C35737822526DD20204
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ CG Cookie | Основы цифрового скульптинга в Blender 2.
 ```bash
 magnet:?xt=urn:btih:FB88D1452810F92726CD4B5283FD441491B93F80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

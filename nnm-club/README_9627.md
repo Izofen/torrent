@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:6B1E195FF1A1AD1F96666FF0225C53C751B20B8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:6B1E195FF1A1AD1F96666FF0225C53C751B20B8B
 ```bash
 magnet:?xt=urn:btih:945EE8426AAC73638DEC291628DFA4CE6DDDDE4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Mozilla Firefox - очень быстро работающий браузер, �
 magnet:?xt=urn:btih:ACFA34B19470B667AF1F1A5445257E4754D46F1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:ACFA34B19470B667AF1F1A5445257E4754D46F1A
 ```bash
 magnet:?xt=urn:btih:63069B535AB4366E2EDA8EF3B3D76F297F75384B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Fedora 25 [i386] 11xDVD
 magnet:?xt=urn:btih:38CD168AEECEB1FEF1E2A717D1F70734DB383FCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:38CD168AEECEB1FEF1E2A717D1F70734DB383FCA
 magnet:?xt=urn:btih:7F7620B02E58029A2BA1F6C0CF11F46D33B47F25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:7F7620B02E58029A2BA1F6C0CF11F46D33B47F25
 magnet:?xt=urn:btih:E2F96703C5B189B7CDD142EFC46F01C7EFD19C98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Discovery. Дороги России: Трасса Колыма (2016) HDTVRip [
 ```bash
 magnet:?xt=urn:btih:91C40449B658969DC689DE3FA90DEE107CF02E74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Partita № 2,BWv 1004 - Chaccone (13:41)Жанр: Classical, PianoПродол�
 magnet:?xt=urn:btih:8C5EC1A6842B770D50B28FF6EF8F0790CE87C357
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:8C5EC1A6842B770D50B28FF6EF8F0790CE87C357
 ```bash
 magnet:?xt=urn:btih:C4F0AB36D29B55CE99153C461AF799AD0480D8B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:C4F0AB36D29B55CE99153C461AF799AD0480D8B3
 magnet:?xt=urn:btih:1A6B23123B50F58F896CCED7F145A088BA75D8B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:1A6B23123B50F58F896CCED7F145A088BA75D8B7
 magnet:?xt=urn:btih:D7E8E7F61851A47F331082724C371DB8781D0578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:D7E8E7F61851A47F331082724C371DB8781D0578
 ```bash
 magnet:?xt=urn:btih:9FCB4AF25F3780FDC3FDF8A31B6336B71B54AED1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:9FCB4AF25F3780FDC3FDF8A31B6336B71B54AED1
 magnet:?xt=urn:btih:2910192504240D39035A43D092C80BBC7AF60A11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:2910192504240D39035A43D092C80BBC7AF60A11
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:2910192504240D39035A43D092C80BBC7AF60A11
 ```bash
 magnet:?xt=urn:btih:89FA67E8B57FB0D1D2F7E4B5E94D1827384970EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ Bonded - Rest in Violence (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
 magnet:?xt=urn:btih:7E397794D48B76C10C99E61BAA5AE757EE27A673
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ VA - City Sunset Lounge: Chillout Your Mind (2020) [AAC|~316 Kbps] <Downtempo, L
 ```bash
 magnet:?xt=urn:btih:6BBD66BE2C50F96EDEE2697664BDEB959952DA73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ VA - After Sunset Lounge: Chillout Your Mind (2020) [AAC|~331 Kbps] <Downtempo, 
 magnet:?xt=urn:btih:6BC9E3F3D2C5EE51AC1FEE96121E253CEA02E32E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ VA - Breathe & Relax Lounge: Chillout Your Mind (2020) [AAC|~322 Kbps] <Downtemp
 ```bash
 magnet:?xt=urn:btih:AE2D8C4D72E751939E11A47598826498C88D7AB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +562,8 @@ VA - By the Lake Lounge: Chillout Your Mind (2020) [AAC|~327 Kbps] <Downtempo, L
 magnet:?xt=urn:btih:8546F7B8D92FC735B06C8F3C64ADF8357D857FC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ Sonny Rollins - Brass / Trio (1958) 1983, Verve Records [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:96954C0C128B9BB1BCFEF776951D7A5D11F1FE06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ The Art Farmer Benny Golson Jazztet - I Remember Clifford (1960) 1999, Jazz Hour
 magnet:?xt=urn:btih:C3B3C4BB56CDE79675EA7F7D049DA80AC919991A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ VA - Summer Memories Lounge: Chillout Your Mind (2020) [AAC|~315 Kbps] <Downtemp
 ```bash
 magnet:?xt=urn:btih:1866AC4083F463D0E8899F50C288E4BBE5B604E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +678,8 @@ VA - Electronic Species (1996) [AAC|~311 Kbps] <Dub, Downtempo, Ambient>
 magnet:?xt=urn:btih:E2B97D2839A2552257B71E344216DCCA22AA902B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ VA - The New Spirits Of Jazz (2000) [AAC|~308 Kbps] <Downtempo, Future Jazz, Tri
 ```bash
 magnet:?xt=urn:btih:DC4ECE9F3E7F6753BA8112460405FA597527EFE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

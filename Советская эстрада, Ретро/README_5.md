@@ -22,6 +22,8 @@ VA - Кружатся диски - Популярные исполнители 7
 magnet:?xt=urn:btih:E5D58F531EAA4DA05814A1DCB00810179A399413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ VA - 800 знаменитых поп хитов СССР (41CD) (1965-1991) [MP3
 magnet:?xt=urn:btih:10C1EE6F76193531859ADF5AF5DECCF626629697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +85,8 @@ magnet:?xt=urn:btih:10C1EE6F76193531859ADF5AF5DECCF626629697
 ```bash
 magnet:?xt=urn:btih:CD96A31069F77898E2C2F1BA6C674BC8725CC3F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +121,8 @@ VA - Disco шоу 80-х (2007) [MP3|320 кб/с]<Disco, Eurodisco>
 magnet:?xt=urn:btih:249C92841665DA779AF382CB79BB2E6BE8553994
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +146,8 @@ Stars On 45 - 25 Disco MegaMixes (2006) [MP3|192 кб/с]<Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:D32986695DA82FF8E81931797137A4EB240C5850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +173,8 @@ magnet:?xt=urn:btih:D32986695DA82FF8E81931797137A4EB240C5850
 magnet:?xt=urn:btih:5786207C0B6C2359E21CB2D771674E06592DB3FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +199,8 @@ Nani Bregvadze (Нани Брегвадзе) - Russian Love, Romance & Destiny (
 ```bash
 magnet:?xt=urn:btih:6490715F1C47A8FA733D9DBB6C76A85475CE283A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +235,8 @@ VA - Золотая русская коллекция. Облака в реке 
 magnet:?xt=urn:btih:7FB882EA4EC00A8D2BDF311B71D9AF6B082A24DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +264,8 @@ VA - Всем, кто любит песню 3 (1968) [MP3|320 кб/с] <Сове
 magnet:?xt=urn:btih:658B1C45763F954ABCB78CB237FA30555F2A8A67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +292,8 @@ VA - Всем, кто любит песню 2 (1968) [MP3|320 кб/с] <Retro, P
 ```bash
 magnet:?xt=urn:btih:56A769D9CE124E7EB202E4DA2EB5374304FB386B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +328,8 @@ magnet:?xt=urn:btih:56A769D9CE124E7EB202E4DA2EB5374304FB386B
 magnet:?xt=urn:btih:824FA7BAE7561546BC1C854B71CDD2BC898C9E67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +362,8 @@ VA - Greatest Ever - Memories - The Definitive Collection (2006) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:DD975ED6B83FBF90B348E818B5683019DE4FCE76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +398,8 @@ CD 162. Течёт Волга (Л.Ошанин, М.Фрадкин) Л.Зыкин
 magnet:?xt=urn:btih:C2D786866CB4F469D61B38B06787E82484C5CC86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +433,8 @@ VA - Smash Hits of the 40's (2004) [MP3|320 кб/с]<поп, ретро>
 magnet:?xt=urn:btih:DDF352F373F57878B6761E68C65034F9340D7463
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +461,8 @@ VA - Школьные годы (2002-2003) [MP3|2 CD] <Детские, школ�
 ```bash
 magnet:?xt=urn:btih:B70E6C3A5CD6E1D2A6FBAE0DD60B61492EAAC3D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +497,8 @@ CD1 - Under Paris Skies01. Dean Martin - Red Roses For A Blue Lady
 magnet:?xt=urn:btih:449EC2A1A7511939EDF07A46B7D8813EC6CC6C80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +531,8 @@ magnet:?xt=urn:btih:449EC2A1A7511939EDF07A46B7D8813EC6CC6C80
 ```bash
 magnet:?xt=urn:btih:0BC130F5D55E1BD6527C63ED45DBC1FAD4982643
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +567,8 @@ magnet:?xt=urn:btih:0BC130F5D55E1BD6527C63ED45DBC1FAD4982643
 magnet:?xt=urn:btih:F3AF806B6AABCE364013DE8AC2A0575A2C4FA0F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +601,8 @@ VA - ВИА 1960-х - О чём плачут гитары (2006) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:E74F8EDE927C71DB55DCC2B9B468888AC1B9A83F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +637,8 @@ magnet:?xt=urn:btih:E74F8EDE927C71DB55DCC2B9B468888AC1B9A83F
 magnet:?xt=urn:btih:12D7D052AE1ECE169D262D5BEA607947E251084D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +671,8 @@ magnet:?xt=urn:btih:12D7D052AE1ECE169D262D5BEA607947E251084D
 ```bash
 magnet:?xt=urn:btih:686550F270CCE2C0A48D9E4DF3B7089A81F04FFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -665,6 +707,8 @@ VA - Hits Of The 60's - 250 Hits Of The Supersixties (2009) 10CD[MP3|320 кб/с
 magnet:?xt=urn:btih:EB50E14EBE2ADA83A9A7BF5ACC3A78D16D913CC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +741,8 @@ magnet:?xt=urn:btih:EB50E14EBE2ADA83A9A7BF5ACC3A78D16D913CC5
 ```bash
 magnet:?xt=urn:btih:19C8DFA97FD15FDD569A68A936D9474B08C37304
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -731,6 +777,8 @@ VA - Песни Марка Фрадкина. Новая жизнь (1995) [MP3|2
 magnet:?xt=urn:btih:890A47293588456487DD39A0FC2F6A416B294412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -764,6 +812,8 @@ CD 101. Мой Азербайджан 03:06
 magnet:?xt=urn:btih:FF056B5AE1F523CCD1093293397FBA1E523757C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -796,6 +846,8 @@ CD1:01. У меня в Москве купола горят (А. Журбин - 
 ```bash
 magnet:?xt=urn:btih:5D18499B75B527A8A2F63F2347832546DA103D55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

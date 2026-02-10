@@ -28,6 +28,8 @@ Vaya Con Dios - Original Album Classics 3CD Box Set (2010) [FLAC|Lossless]<Soft 
 magnet:?xt=urn:btih:6E23D22157E4245A177CB3CCDDEFD5F95D3B06CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ Digest - Digest (1994) Qvalitet[FLAC|Lossless|image + .cue] <Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:1659B140BF775EC40A36503B58431DB9A4A1BEA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ Eero Koivistoinen - Altered Things (1991) Remaster, 2015, Solid Records[FLAC|Los
 magnet:?xt=urn:btih:9A0BA2342D07415BBAAEBBA8FBCEAC72ACAF0706
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -109,6 +115,8 @@ CD1:
 magnet:?xt=urn:btih:F3196674ED44C8301B0AF1A3B3F726A6C91559A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -133,6 +141,8 @@ Frank Wright - Unity (1974) 2006, ESP Disk [FLAC|Lossless|tracks + .cue] <Avant-
 ```bash
 magnet:?xt=urn:btih:753D9F9159CCC0427577B4FD6E9AAB463B8DE45C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +170,8 @@ Claude Hopkins - 1937 - 1940 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swin
 ```bash
 magnet:?xt=urn:btih:21695DA30C5E778F91E739F17603E1420269AFE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ Charly Antolini - 2 альбома (1999-2011) [FLAC|Lossless]<Contemporary Jazz
 magnet:?xt=urn:btih:8F1C0D34B1387CB7AEC87080D5ADFAD7E9EE0C5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +231,8 @@ Anders Wihk, Steve Gadd, Svante Henryson - Same Tree Different Fruit - ABBA (201
 magnet:?xt=urn:btih:EB05B9F319DA261217B0A38305B64771D8646861
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +259,8 @@ Papik - Cocktail Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ```bash
 magnet:?xt=urn:btih:A4A0E7A02994C16209A0144318864D0A1683F582
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +295,8 @@ Mighty Mo Rodgers - Black Paris Blues (2004) [FLAC|Lossless]<Contemporary Blues>
 magnet:?xt=urn:btih:E70C5D9FFEE51302B2CE48354459021F3E5B8032
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +329,8 @@ Vargas Blues Band - Heavy City Blues (2013) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:260A2B4ED64E7C11E1B6DC4357AD6F546A2698CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +365,8 @@ Johnny Smith - Kaleidoscope (2010) [FLAC|Lossless]<Bop>
 magnet:?xt=urn:btih:EAD2078A25490752E9DAC25BFE1A970C8847E108
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +399,8 @@ Michael Lee Firkins - Yep (2013) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:9257D17DE51EDFB4A5C2362246C4B76782B40305
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +435,8 @@ The Jeff Golub Band featuring Henry Butler - The Three Kings (2011) [FLAC|Lossle
 magnet:?xt=urn:btih:34B7F67715748F430E6F66F97506154386E0F219
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +464,8 @@ Michael Feinstein - The Sinatra Project, Vol. II: The Good Life (2011) Concord J
 magnet:?xt=urn:btih:3D4235D0AD17B7C39AE40F3336676FC0B0BF6E0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +492,8 @@ Lee Konitz - Stereokonitz 1968 (1998) BMG [FLAC|Lossless|tracks + .cue] <Cool, P
 ```bash
 magnet:?xt=urn:btih:9638CAC76B60465DD4D7DBC55ADD51B475125B2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +525,8 @@ Savoy Brown - Hellbound Train (2011) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:26962F5439AA25A4513E60D79224E86EC3EC5061
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +561,8 @@ Jon Balke and Batagraf - Say and Play (2011) [FLAC|Lossless]<Contemporary Jazz, 
 magnet:?xt=urn:btih:0430B2329E50276596535FD10D240A9B807F30BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +589,8 @@ The Ray Brown Trio featuring Gene Harris - Soular Energy (1984) 2013, Analogue P
 ```bash
 magnet:?xt=urn:btih:2779EC0531361DC276ECAEA0EE457294BEEDF12D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +625,8 @@ VA - Electro Swing Of Spirit (4CD)(2012) [MP3|320 кб/с]<Nu Jazz, Electro Swin
 magnet:?xt=urn:btih:7E1577911C12E2BC7DDB3833A33D24CDF197FA4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +655,8 @@ Eivind Aarset - Dream Logic (2012) [FLAC|Lossless]<Jazz, ECM, Electronic>
 ```bash
 magnet:?xt=urn:btih:C797652B2DB7B31F4D8552E4BC6A9643E33237FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +691,8 @@ Beegie Adair - Winter Romance (2009) [FLAC|Lossless]<Jazz, Christmas>
 magnet:?xt=urn:btih:6394E1EF53770A80D7FAFB407BE2380D63A91AAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,6 +720,8 @@ CD1:
 magnet:?xt=urn:btih:9903BE6F697E36E7522B30BA547CEEE5D98FEAA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -702,6 +748,8 @@ Charlie Barnet - 1940 (2003) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big 
 ```bash
 magnet:?xt=urn:btih:FF625380E4A345DB0A649A79668E10D6FA792789
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -736,6 +784,8 @@ Microwave Dave & The Nukes - Last Time I Saw You (2011) [FLAC|Lossless]<Blues-Ro
 magnet:?xt=urn:btih:9CB5368F69EACFE946AD075E01EF485F4FB65123
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -768,6 +818,8 @@ Too Slim and the Taildraggers - Blue Heart (2013) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:82B46F5EA472ECA6F675C378D1B08AFD237D6651
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

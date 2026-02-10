@@ -1,3 +1,32 @@
+###  Публикация: 1229718   (624445) от 07.06.2018
+
+VA - Billboard Hot 100 Singles Chart 09.06.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_624445.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Drake, Big Freedia, 5thward Weebie - Nice For What
+002. Post Malone - Psycho (feat. Ty Dolla $ign)
+003. Drake - God's Plan
+004. Childish Gambino - This Is America(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6305871983686AFB187183C07C0E0469E581E8C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035813   (624652) от 18.07.2016
 
 VA - Record Super Chart № 445 (2016) [MP3|320 Kbps] <House, Electro House, Club>
@@ -21,6 +50,8 @@ VA - Record Super Chart № 445 (2016) [MP3|320 Kbps] <House, Electro House, Clu
 ```bash
 magnet:?xt=urn:btih:7A1996C129F9CCEE6E0E55DD296E0C51C9ED0606
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Piano Moods: Peaceful Piano (2016) [MP3|320 Kbps] <Downtempo, Chillout, Ins
 magnet:?xt=urn:btih:FF5CB885ABAF421CACF0484F69185CA9AD970FAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Aurosonic Intro: Atmospheric Progressive Trance (2016) [MP3|320 Kbps] <Tran
 ```bash
 magnet:?xt=urn:btih:E607AADBE3CE6EB902AAD1D1180516D6D13F42D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Popular 150 Fun Dance House (2016) [MP3|270-320 Kbps] <Dance, Club, Funky H
 magnet:?xt=urn:btih:1CEEFACF7FB1150260C1FF42A27D292453E63F09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Best Vocal Around Energy (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, V
 ```bash
 magnet:?xt=urn:btih:448E334CAA151CC6F3EE50A99F3024A70BCB0C95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +202,8 @@ VA - Hoa Tau Guitar Latin (2CD) (2011) [MP3|320 кб/с]<Instrumental>
 magnet:?xt=urn:btih:16F57755B6F977C64A928618B2274C6B8DE2CB16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +231,8 @@ VA - Лучшие хитовые треки в стиле Electro, Deep, Techno 
 magnet:?xt=urn:btih:509491817133ABE9A513E6CAB84E317A24EB37E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +259,8 @@ VA - Lounge At The Seashore 15 (2014) [MP3|320 кб/с]<Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:A0237EE36A93FD40D8FE452467D7B8A517F05B5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +295,8 @@ VA - Bass Fusion 100 Percent Hardcore (2012) [MP3|320 кб/с]<Hardcore, Hardsty
 magnet:?xt=urn:btih:66C68FFFE58C6C2144FFB8FF3FB5C3EB7ABD28BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +330,8 @@ CD 1. Время звучания: 01:14:10
 magnet:?xt=urn:btih:496E7BE20FC4D733F75C0A1E4AD6431A8D863E95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +358,8 @@ magnet:?xt=urn:btih:496E7BE20FC4D733F75C0A1E4AD6431A8D863E95
 ```bash
 magnet:?xt=urn:btih:370BE932DCA1218AD6BF95BDE2B29A8AC0E23118
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +388,8 @@ magnet:?xt=urn:btih:370BE932DCA1218AD6BF95BDE2B29A8AC0E23118
 magnet:?xt=urn:btih:8C1B558755568EF7392F49340F124858F72BFE31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +416,8 @@ VA - Новинки Русского Рока. Выпуск 1 (2015) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:4043FE91F788E4ECF0E82DD7173E17C3BD16B328
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +446,8 @@ Buck 69 - Compilation (2022) [MP3|320 Kbps] <Rock, Blues Rock>
 magnet:?xt=urn:btih:FF452CE18A5C86E01401D11AF27260AF6A8676B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +474,8 @@ VA - Громкие новинки Апреля (2022) [MP3|320 Kbps] <Pop, Danc
 ```bash
 magnet:?xt=urn:btih:6979B07F14883C11EC98751E43C5B8C296471DC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +507,8 @@ Hits of My Soul - сборник электронной и инструмент�
 magnet:?xt=urn:btih:FD89F2CEB82D301564968CA303A2A5081F01FC61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +535,8 @@ VA - Ambient Compilation (2017) [MP3|320 Kbps] <Ambient, New Age, Chillout, Drea
 ```bash
 magnet:?xt=urn:btih:6542F8C61BE2000CE1F09BFA2A5AD590D0A5B416
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +565,8 @@ VA - Relax FM for a Good Evening (2022) [MP3|320 Kbps] <Pop, Easy Listening>
 magnet:?xt=urn:btih:DC82016E88BF087EBBF3EC38786CFFC23FE6C555
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +593,8 @@ VA - Floating Pyramids: Ambient Meditation (2022) [MP3|320 Kbps] <Ambient, Medit
 ```bash
 magnet:?xt=urn:btih:62D83893CA18861A756F812BD54AAA0ED757D49B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +623,8 @@ VA - Hypnotic Techno / Techno / 2022 / MP3 (2022) [MP3|320 Kbps] <Techno, Minima
 magnet:?xt=urn:btih:66707A29B0C1334D269621476DC4211071341112
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +651,8 @@ VA - Союз летних хитов на Europa Plus. Часть 2 (2015) [MP3
 ```bash
 magnet:?xt=urn:btih:10137E56AC154566933BA6E8D437C512F7EA0292
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +681,8 @@ VA - Полнолуние любви Самая свежая попса (2015) [
 magnet:?xt=urn:btih:6AE6878DF5D1F16080CAD8C783278660E1E03C1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +709,8 @@ VA - The Best Of The Rock`s #1 (2019) [MP3|320 Kbps] <Rock, Rock & Roll>
 ```bash
 magnet:?xt=urn:btih:A11092A19DBE3C58FC40DA8ED56467E5B1AA9079
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +739,8 @@ VA - Pop Sauce (2022) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:07367D9029A14BB8616EBEFB12F4E03ECB464F94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -691,32 +768,7 @@ VA - Charme de la France Vol.01-10 (2019) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:B59D2AFD8B7BA0772A32E38A66002016B1C24800
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543682   (625774) от 13.04.2022
-
-VA - Q-Dance Presents: Hardstyle Top 40 | February (2022) [MP3|320 Kbps] <Hardstyle, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sub Zero Project - Fly With Me (Extended Mix)
-02. Vertile - On My Own (Extended Mix)
-03. Rebelion - City Lights (Extended Mix)
-04. The Elite - Falling Angels (Extended Mix)(   Читать дальше...   )Жанр: Hardstyle, DanceПродолжительность: 02:34:50 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:330DA92BDA90B31108BA1CAEA8B4D2629DEE7990
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

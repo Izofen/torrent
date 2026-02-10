@@ -22,6 +22,8 @@ Raw Silk - Raw Silk (2018) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:48B2A6501CA55A2E59D0ECFF0C6E206606AA2B59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Cliff Martinez - The Neon Demon / Неоновый демон (Original Motion P
 ```bash
 magnet:?xt=urn:btih:CF2CD6FE48A53E55BBF92DF8C4F5F1A8858DB47D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Kamal - 17 Альбомов (1987 - 2010) [FLAC|Lossless|tracks] <New Age, Medit
 magnet:?xt=urn:btih:F0D85E8D29D2241B7D5DCBCC96036524D0FAD814
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Cliff Martinez - The Neon Demon / Неоновый демон (Original Motion P
 ```bash
 magnet:?xt=urn:btih:1F9A093ED9198EB5DAAD601A270C5AAD8FB6BFEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Alexandre Desplat - The Secret Life of Pets / Тайная жизнь домаш
 magnet:?xt=urn:btih:166D8140ABCFF48DFE3CAD61D506491529DD283F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Jam On Guitars (2009) [FLAC|Lossless|image + .cue] <Instrumental rock>
 ```bash
 magnet:?xt=urn:btih:DD891BCF5EC98C4A886CB99441B4827CF56ADBF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Music From The World Of Osho - Shadow Of The Pines (2000) [FLAC|Lossless|tracks]
 magnet:?xt=urn:btih:1C59A7BC80F898597C3A961311F21C4C04DCF83E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ Llewellyn - Angel Sleep: Music for Blissful Sleep (2014) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:7F4E66E9068805A631AC6BB281F9B746EFED2D88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ Paul Sills - Night Spa (2016) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:F834A88065C4083719463A607C451BF6CCE69EE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ Catherine Duc - Voyager (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:18A91698AC1D8518029B58D861F98B82B25C04AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ Joseph L Young - Every Moment (2018) [MP3|320 Kbps] <New age>
 magnet:?xt=urn:btih:4A4131B30A2C9FDDD19D10087560BF93E7289A07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +338,8 @@ Chris Snelling, Jonathan Sarlat - Peaceful Classical Music Playlist: 14 Relaxing
 magnet:?xt=urn:btih:A254F98660E00196ADAF1B85B4751FB0511B334E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ VA - Life Force: Natural Meditation, Total Relaxing, Anxiety Free Life (2017) [M
 ```bash
 magnet:?xt=urn:btih:E018D1CE640ADC371B4523C29FC01BF14D514BDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +402,8 @@ William Joseph - Be Still (2012) [MP3|320 кб/с]<Contemporary Instrumental, Ne
 magnet:?xt=urn:btih:FDC318126C53D550B73C8D6876B68769EFFADE52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +437,8 @@ Don Williams - The Best of Don Williams (2003) [MP3|320 кб/с]<Country>
 magnet:?xt=urn:btih:E4B43763D95FE9F7DF792ADA85F6347D88EBE8B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +465,8 @@ Atom Music Audio - Collision (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Ep
 ```bash
 magnet:?xt=urn:btih:233101C2E098D5738E94C8460ECFBFD573169F38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +495,8 @@ Indiajiva - Inner Sanctum (2017) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:7420D4F18F78AEC0896D979255B8B0A5FADC0C9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +523,8 @@ Atom Music Audio - Mechanize, Vol. 1: Industrial Hybrid Rock Tracks (2018) [MP3|
 ```bash
 magnet:?xt=urn:btih:4C0BBA16CA8FDD41D2D312F90170F1DFE40BBC65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +553,8 @@ Nikolya - Organic 3 The Longest Journey (2017) [MP3|320 Kbps] <New Age, Electron
 magnet:?xt=urn:btih:85F3FC98976715DCBADA458BEBD395310712560C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +581,8 @@ Marcin Przybylowicz & Mikolai Stroinski – The Witcher 3: Wild Hunt (2015) Unof
 ```bash
 magnet:?xt=urn:btih:336E87523ABD531C5C5A7DA79C88A209D496792C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +617,8 @@ magnet:?xt=urn:btih:336E87523ABD531C5C5A7DA79C88A209D496792C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +648,8 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:0066E73DC6C557091AE4BAA4276C7A3D364E1C35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +684,8 @@ Daniel Licht - Silent Hill: Downpour / Сайлент-Хилл: Ливень (20
 magnet:?xt=urn:btih:98776846F7DD875E8BAC768C43FE6AB49AB8552D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +715,8 @@ magnet:?xt=urn:btih:98776846F7DD875E8BAC768C43FE6AB49AB8552D
 magnet:?xt=urn:btih:755178FFC244F255C296C4471D3F4488A8E61235
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +743,8 @@ Marcin Przybylowicz & Mikolai Stroinski – The Witcher 3: Wild Hunt (2015) [FLA
 ```bash
 magnet:?xt=urn:btih:C4CBBCCAC60E9B0D31DB8521A1E87CFC8C40FD0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -728,6 +778,8 @@ VA - The Ultimate Classical Guitar Album (2008) 2CD [FLAC|Lossless]<Classical Gu
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

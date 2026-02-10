@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:F60EF7A0A4D8DB064AF4003605D5B628A7A57141
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Afterlove EP рассказывает драматичную историю лю
 ```bash
 magnet:?xt=urn:btih:B8963FDBD29C78CA043B0F1325242CA75AE65CD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:B8963FDBD29C78CA043B0F1325242CA75AE65CD0
 magnet:?xt=urn:btih:AA1FF5AA23FD47F1C5B0453C51B760E13EA26512
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Knights in Tight Spaces (2025) [Ru/Multi] (1.2.19225) License GOG
 magnet:?xt=urn:btih:78D0997D00634B089C40FC257281C62ED1EC95BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Twitch лишил пользователей из России трансляц�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Twitch лишил пользователей из России трансляц�
 magnet:?xt=urn:btih:8F97F33DD6482290331D209CE2D52F4B9959AB31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:8F97F33DD6482290331D209CE2D52F4B9959AB31
 ```bash
 magnet:?xt=urn:btih:11032FB437E17D5B7E849D66E1657BBAD6E44A2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:11032FB437E17D5B7E849D66E1657BBAD6E44A2B
 magnet:?xt=urn:btih:A863C086636F369FEF1F9A477F76C0C4E125290A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Shiunji-ke no Kodomo-tachi / The Shiunji Family Children / Дети семьи �
 ```bash
 magnet:?xt=urn:btih:9DECD44D0D702F3720721FEA8DA4D02971A82DB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Breach : 83 (2025) [En] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:D50BED21DFED1790440A38F026B9604DE21E946E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Railway Empire 2 (2023) [Ru/Multi] (1.7.0.64099/dlc) Repack seleZen [Digital Del
 ```bash
 magnet:?xt=urn:btih:BBA660C83F18D0E7AB4C14EBA7596377DD41436E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:BBA660C83F18D0E7AB4C14EBA7596377DD41436E
 magnet:?xt=urn:btih:AC84105E42591E59D7515B5A03C60219294CD5CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:AC84105E42591E59D7515B5A03C60219294CD5CB
 ```bash
 magnet:?xt=urn:btih:097856D5D32F3A6E6BEFC83632DB7B8CC9C2F49D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 magnet:?xt=urn:btih:224D7E1AE5BAABB1741B794D812443FA0F1F2C52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:224D7E1AE5BAABB1741B794D812443FA0F1F2C52
 ```bash
 magnet:?xt=urn:btih:0FE05A86E8FE4FC46B0CB450F8660AC019005DE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:0FE05A86E8FE4FC46B0CB450F8660AC019005DE2
 magnet:?xt=urn:btih:4C3138D3B4251ECBE20F55DC0C0F8E7ABB0D42F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Forgotten Mines - тысячу лет назад в шахтах Дорвгра�
 ```bash
 magnet:?xt=urn:btih:00242A6E00F7DD8E8B8D33E5EB35ED7B66C9C747
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ MSI Afterburner - утилита для разгона видеокарт люб
 magnet:?xt=urn:btih:F3505C7B2F262B5DE0C9E2499D6C74A27F4172A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Nazotoki wa Dinner no Ato de | The Dinner Table Detective | Разгадыван
 ```bash
 magnet:?xt=urn:btih:5171B7FE142E4069B7AB531E69BC8542343FFCDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:5171B7FE142E4069B7AB531E69BC8542343FFCDB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:5171B7FE142E4069B7AB531E69BC8542343FFCDB
 ```bash
 magnet:?xt=urn:btih:9132131403F5C378352553670F74D77FC67DB7CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:9132131403F5C378352553670F74D77FC67DB7CE
 magnet:?xt=urn:btih:0AB0FACB61A26C23C797AF2FB5A4B80DB0F9CB45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:0AB0FACB61A26C23C797AF2FB5A4B80DB0F9CB45
 ```bash
 magnet:?xt=urn:btih:785B0344EDADD079A5E48AEE32B2ED2A56B4241A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ magnet:?xt=urn:btih:785B0344EDADD079A5E48AEE32B2ED2A56B4241A
 magnet:?xt=urn:btih:AE1845209A0EA7146B89C334794B1256075BC905
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ magnet:?xt=urn:btih:AE1845209A0EA7146B89C334794B1256075BC905
 magnet:?xt=urn:btih:47ADC9BC47427BAF4C6C6B0DE1A47CF40961AD26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ magnet:?xt=urn:btih:47ADC9BC47427BAF4C6C6B0DE1A47CF40961AD26
 ```bash
 magnet:?xt=urn:btih:2C2CCA927ECBF7F1668EC2C5E6BAD73D95990311
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

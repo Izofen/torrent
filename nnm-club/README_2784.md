@@ -28,6 +28,8 @@ VA - The World's Greatest Ballads (2011) 3CD [FLAC|Lossless]<Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ VA - The World's Greatest Ballads (2011) 3CD [FLAC|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:EE819208D0CA27D53939F95EA8DF4D26025E1851
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ magnet:?xt=urn:btih:EE819208D0CA27D53939F95EA8DF4D26025E1851
 ```bash
 magnet:?xt=urn:btih:53D3986DB31187DF8DB2FBB94D83A11A9C98F7E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -106,6 +112,8 @@ Ludwig Van Beethoven - Missa Solemnis (1990) [FLAC|Lossless]<камерная>
 magnet:?xt=urn:btih:DE0F2795AB8100CC44245DEA2815A10A0CC9F08A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ magnet:?xt=urn:btih:DE0F2795AB8100CC44245DEA2815A10A0CC9F08A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +173,8 @@ Matia Bazar - 2 альбома (2006-2011) [FLAC|Lossless]<Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +200,8 @@ Matia Bazar - 2 альбома (2006-2011) [FLAC|Lossless]<Pop>
 magnet:?xt=urn:btih:886565DE8F63B5BAB716383E050B0A605A32A3B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ magnet:?xt=urn:btih:886565DE8F63B5BAB716383E050B0A605A32A3B6
 ```bash
 magnet:?xt=urn:btih:8DCD0736844C14240B342D554FD0680C6ACA306C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +253,8 @@ magnet:?xt=urn:btih:8DCD0736844C14240B342D554FD0680C6ACA306C
 magnet:?xt=urn:btih:77AB5193A3A7064924F8B60DB01FA2570CCB5DE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ magnet:?xt=urn:btih:77AB5193A3A7064924F8B60DB01FA2570CCB5DE3
 ```bash
 magnet:?xt=urn:btih:769BF1DC107990D2B693E708161AA9D701B1C067
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +311,8 @@ magnet:?xt=urn:btih:769BF1DC107990D2B693E708161AA9D701B1C067
 magnet:?xt=urn:btih:941E91610D949F71C7BE1F06B9157B4395A652FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ magnet:?xt=urn:btih:941E91610D949F71C7BE1F06B9157B4395A652FC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +362,8 @@ magnet:?xt=urn:btih:941E91610D949F71C7BE1F06B9157B4395A652FC
 ```bash
 magnet:?xt=urn:btih:12B252F9C12288A05BF44BE7EEC2E2C3DBA730FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +393,8 @@ Plies - On Trial (2012) [MP3|320 кб/с]<Dirty South>
 magnet:?xt=urn:btih:7239DFAF409EB4DE4B609939374F0A918AB06658
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +420,8 @@ magnet:?xt=urn:btih:7239DFAF409EB4DE4B609939374F0A918AB06658
 ```bash
 magnet:?xt=urn:btih:54F32C1EF380888D986B1C6A4CA73472E641867E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +456,8 @@ VA - Золотые хиты ВИА. Песни Вячеслава Добрын�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +481,8 @@ VA - Золотые хиты ВИА. Песни Вячеслава Добрын�
 ```bash
 magnet:?xt=urn:btih:4AFE0A152DFCD9E261BCE7CB12D2AF47BC3F8247
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +508,8 @@ magnet:?xt=urn:btih:4AFE0A152DFCD9E261BCE7CB12D2AF47BC3F8247
 ```bash
 magnet:?xt=urn:btih:E2FE5C0854C3B7B9D5B54BD307F26AC9D18B281A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +538,8 @@ Rockets - 6 Студийных альбомов (1976-1982) /2000-2003, Rockland
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +563,8 @@ Playboy: разденьте девушку / Undress a Woman (26.02.2012) SATRip
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +593,8 @@ Playboy: разденьте девушку / Undress a Woman (26.02.2012) SATRip
 magnet:?xt=urn:btih:1E5254E2342D20A4656498EA8F82B27D3A7BF58A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +619,8 @@ magnet:?xt=urn:btih:1E5254E2342D20A4656498EA8F82B27D3A7BF58A
 ```bash
 magnet:?xt=urn:btih:ED0EA7E23B5FD4183D81220B8850865F2776B61B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +655,8 @@ magnet:?xt=urn:btih:ED0EA7E23B5FD4183D81220B8850865F2776B61B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +687,8 @@ Dear Esther — экспериментальная компьютерная иг
 magnet:?xt=urn:btih:DDEA4D61C13FF01B1FF518BAC5C7F4F21A053119
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +712,8 @@ magnet:?xt=urn:btih:DDEA4D61C13FF01B1FF518BAC5C7F4F21A053119
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -690,6 +740,8 @@ Depth Hunter - симулятор подводной охоты, позволя�
 ```bash
 magnet:?xt=urn:btih:75878638E148433C80D438F123D4614D7D6B8C0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

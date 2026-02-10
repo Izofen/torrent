@@ -19,6 +19,8 @@ PullTube 1.7.4 [Multi/Ru]
 magnet:?xt=urn:btih:E3629E73344E21F8789D4228E3BAE54964550D22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Faithful Annie - Sideways (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:AEF18FAF63012BD5DEE36B8925307D4A4846E02F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Absent - Beaufort (2020) Airvent [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Do
 magnet:?xt=urn:btih:CA4C8ECA64521181EA555DD615CCE21157FA6D6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ GeoGebra — мультиплатформенная программное об�
 ```bash
 magnet:?xt=urn:btih:B39549189E8185BF57D2FEA512EA81E389B97758
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ MotoGP. Этап 04. Гран-при Испании. Гонка (30.04.2023) WEB
 magnet:?xt=urn:btih:B2795B68DB9B25F1A6A4198DE1F29E527413F7B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:B2795B68DB9B25F1A6A4198DE1F29E527413F7B1
 ```bash
 magnet:?xt=urn:btih:DF7D4B3206256F4B50BD00863753B52890D4B902
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ VA - A Chillout Affair (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:D63AFC5DA7EF5B85CE194B4036E87DEA250225E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:6A3E7F90CF427D8D8A2EC9334993018437299297
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ Power from Hell - Lust And Violence (2011) [FLAC|Lossless|image + .cue] <Black M
 magnet:?xt=urn:btih:E13FAC73D8F5DCB82276FBEEC7C776DB381E1EE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ Deckset 2.0.23 [En]
 ```bash
 magnet:?xt=urn:btih:4803DC23A42516068A3F306CE1C9BB070C02971D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ Invisible является простым в использовании и оч�
 magnet:?xt=urn:btih:83888A2D23B36FD3AF7660F774AF62EA5EA397A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:83888A2D23B36FD3AF7660F774AF62EA5EA397A8
 ```bash
 magnet:?xt=urn:btih:76442B81FE70F1D27B0F6330999112D1350EC126
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:76442B81FE70F1D27B0F6330999112D1350EC126
 magnet:?xt=urn:btih:778AB6DCB46150E2D461700D4C76299059D0DC58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:778AB6DCB46150E2D461700D4C76299059D0DC58
 magnet:?xt=urn:btih:E7F0D131D3B9D7F051CACC870C38E1BE3FFFB9DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:E7F0D131D3B9D7F051CACC870C38E1BE3FFFB9DC
 ```bash
 magnet:?xt=urn:btih:CA7E466DC955C77DAF686AE55C25A473E6BC56EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ CD - 1 - Hyper Violent:
 magnet:?xt=urn:btih:3817E94CB66638A032565F6FCDCEAF638D8E94AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ De Profundis - The Corruption of Virtue (2022) [FLAC|Lossless|WEB-DL|tracks] <Pr
 magnet:?xt=urn:btih:AE6C07D24F3D2F0401B1D2766B59075CCD6D7FB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ NirLauncher Package - универсальный пакет из более че
 ```bash
 magnet:?xt=urn:btih:313177696CD38E317F47774B7E89C13660E9A959
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ LDA - Shattered Feelings. (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 magnet:?xt=urn:btih:79BC3593AFF0D0A62D65212034A3DA81BD06139F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ Mastodon - это взрывная, неукротимая сила. Облад�
 magnet:?xt=urn:btih:D028BDD141DB4E704AB1DD226B7F5E67360BCC25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ magnet:?xt=urn:btih:D028BDD141DB4E704AB1DD226B7F5E67360BCC25
 ```bash
 magnet:?xt=urn:btih:574EE2F2C80286E54197C76A19B98894E109EAC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ Java SE Development Kit - программное обеспечение необ
 ```bash
 magnet:?xt=urn:btih:2E9448BF34BD6C22C8A2BE44659B40ADFE6A265B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +622,8 @@ Beleth - Silent Genesis (2021) [FLAC|Lossless|image + .cue] <Death Metal, Groove
 magnet:?xt=urn:btih:99F9D1644CBA36671B57CC71518127D8247AE25D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ Blaze Of Sorrow - Vultus Fati (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric 
 magnet:?xt=urn:btih:F1B71EA0665450BB75409AF7A0CDDC627F68D769
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +676,8 @@ magnet:?xt=urn:btih:F1B71EA0665450BB75409AF7A0CDDC627F68D769
 ```bash
 magnet:?xt=urn:btih:BF1AC7836CBF03FE25C9D13839502BEAD5147D14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +705,8 @@ Along with Jared Gold on organ and McClenty Hunter on drums, Stryker offers eigh
 ```bash
 magnet:?xt=urn:btih:98BFCB1C49A084CE76E119CCFE6BB4249C221135
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

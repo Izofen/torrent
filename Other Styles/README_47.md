@@ -22,6 +22,8 @@ Jean-Michel Jarre - Oxygene 3 (2016) [FLAC|Lossless|image + .cue] <New Age, Ambi
 magnet:?xt=urn:btih:4ECCC94C78F8094EAD6724617F95FF899B417B5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Kontor Top Of The Clubs: The Biggest Hits Of The Year MMXX (2020) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:015B556F5A7BDB72886642E1CDFE5689D62489FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Faith Hill - Take Me As I Am (1993) Warner 9 45389-2 [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:A17BA697B040A0EB222653BDDC66FE6D046CB57E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ The Irish Rovers (The Rovers) - 18 релизов (1995 – 2016) [MP3|192 kbps]
 ```bash
 magnet:?xt=urn:btih:9F8988E6FE1C924724948CF816B9F0BDB0A59B0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:9F8988E6FE1C924724948CF816B9F0BDB0A59B0D
 magnet:?xt=urn:btih:147174DFF3CD751C4FE0C71D961C7C5609A808DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:147174DFF3CD751C4FE0C71D961C7C5609A808DC
 ```bash
 magnet:?xt=urn:btih:D4798C3C5A44BA72ACBFCCE076CEF439E0E6598A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Sverre Knut Johansen - Antarctica (2016) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:5AAA9ABF77AC30AF596BF9F10412A39E691D3E62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Catherine MacLellan - Silhouette (2011) [FLAC|Lossless]<Acoustic/Indie/Folk>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Gregorian - Masters of Chant X: The Final Chapter (2015) [FLAC| (tracks + .cue)]
 magnet:?xt=urn:btih:629A420F2B4B1B099C556D135F96C1C4148AC67F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA – Super Instrumental Vol.3 (2002) Величайшие хиты XX века
 ```bash
 magnet:?xt=urn:btih:DCEBCFACA884D7FA89177392596FB5B72494FEA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Silent nook - С.О.М.А (2018) [MP3|320 Kbps] <Trip-Hop, Ambient>
 magnet:?xt=urn:btih:8EA0C09E0D4C15F18E8D98DFF90A1280BE7CAD97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - New Instrumental Ballads vol.2 (2002) [FLAC|Lossless|tracks + .cue]<Instrum
 ```bash
 magnet:?xt=urn:btih:38C7FF414C35790BC5A3D797749D6C601DD3FA4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Ultimate Pop Hits and Piano Tribute Players - New Pop Covers on Piano (2019) [MP
 magnet:?xt=urn:btih:F635E249E283F1BEBA6691279DB1A2E9CBECE68B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Sleep & Massage Music (2019) [MP3|320 Kbps] <New Age, Meditative>
 ```bash
 magnet:?xt=urn:btih:362C8C8FE33127A2FF63D3C8936B65EE3EAB46DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Llewellyn - Ancient Lands (2015) [MP3|320 кб/с]<New Age>
 magnet:?xt=urn:btih:0358E3FB3A9DF7EF06D001CD0E2133D5FD3A5AFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Tron Syversen - Sacred Dreams (2005) [FLAC|Lossless|WEB-DL|tracks] <New Age, Rel
 ```bash
 magnet:?xt=urn:btih:6073EF9C6422A229E5416AC40CF62FDFC2061C36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Riccardo Cocciante - Notre Dame De Paris, Opera Tratta Dal Romanzo Di Victor Hug
 magnet:?xt=urn:btih:C25BCFC8BA531DB90C5D22A84322B38469AF2167
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Astrocolor - Lit Up - Music for Christmas (2015) [MP3|320 кб/с]<New Age, Easy
 ```bash
 magnet:?xt=urn:btih:823980506B846EA0982F31A5C9E0FCB8A7ADBD30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ Riccardo Cocciante - Notre Dame De Paris  (2000) English Version [FLAC|Lossless|
 magnet:?xt=urn:btih:8445BD0743EEDECCB9D8501F4DA1252AA5014FE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock Vol. 3 (1990) [FLA
 ```bash
 magnet:?xt=urn:btih:D91084522EF2E652119060F6A231ED7C4BFE2A42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Mark Dwane - Astrology (2018) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:11C080C606251794F007C8B69CAE904055BA95E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ Various artists - Chip & Crack - best of (1995-2019) [OGG|128-350 Kbps] <Demosce
 ```bash
 magnet:?xt=urn:btih:3C23EDF98234F67E72D55DD1841965BC1B72E3E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ Michael Logozar - Passage (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
 magnet:?xt=urn:btih:75DA613E63B2F0A42DE289705686364A6561A052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +686,8 @@ David Ison - Ison sleep system (2009) [MP3|320 Kbps] <relax, meditative>
 ```bash
 magnet:?xt=urn:btih:BB4F214DD7389B1DD80125B30D0F9DA84085CC95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,6 +716,8 @@ Daniel Pemberton, VA - Spider-Man: Into the Spider-Verse / Человек-пау
 magnet:?xt=urn:btih:BFE4643A84B154C62C01743321387A736BC807C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ Daniel Pemberton, VA - Spider-Man: Into the Spider-Verse / Человек-пау
 ```bash
 magnet:?xt=urn:btih:681BAF529FFA30F50068A78E5B21BCAF815CF482
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

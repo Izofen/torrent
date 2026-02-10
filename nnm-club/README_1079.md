@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:72D6A38697E8B5D791B44CA1A2D892A65E5685B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:72D6A38697E8B5D791B44CA1A2D892A65E5685B8
 ```bash
 magnet:?xt=urn:btih:24AEC83A731E8F336A9C1447387ECA25102197BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Skillbox, Дмитрий Шадрин, Арсений Павлов | Специ�
 magnet:?xt=urn:btih:4577C8E999C786E92FC9323992C58E3B56046310
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:4577C8E999C786E92FC9323992C58E3B56046310
 ```bash
 magnet:?xt=urn:btih:27369C830C3E4FF4A5B0B23DF7F76A15D9668995
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Metal Slug Tactics (2024) [Multi] (1.0.3c) License GOG
 magnet:?xt=urn:btih:BE2AF9314D4319522C50C3F3194B45D3F1AC1F46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:BE2AF9314D4319522C50C3F3194B45D3F1AC1F46
 ```bash
 magnet:?xt=urn:btih:61B87D0A476BCBF3E026135682A9A25F33CD9768
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:61B87D0A476BCBF3E026135682A9A25F33CD9768
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:61B87D0A476BCBF3E026135682A9A25F33CD9768
 ```bash
 magnet:?xt=urn:btih:FC13B8C2A869E5D84CFBD619E0A08037E2B551E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Product University, Анна Филина, Дмитрий Жечков, Алек
 magnet:?xt=urn:btih:A27C2855509247CFB7D7DFFE8147B041313F1894
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ R-Studio Network 9.4 Build 191430 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3A5CB71D3D29BEE5B5ED158CD85FFD5BBA215766
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:3A5CB71D3D29BEE5B5ED158CD85FFD5BBA215766
 magnet:?xt=urn:btih:F411C674C945D5B9E2717099DFCEDCBA2147A387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:F411C674C945D5B9E2717099DFCEDCBA2147A387
 magnet:?xt=urn:btih:3A4239CCFFFB2F4AAF4300CA2704BECE17C5B44A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ magnet:?xt=urn:btih:3A4239CCFFFB2F4AAF4300CA2704BECE17C5B44A
 ```bash
 magnet:?xt=urn:btih:8EFE80BF41FA30DD0AEDA5E4C16CB487A034E857
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:8EFE80BF41FA30DD0AEDA5E4C16CB487A034E857
 magnet:?xt=urn:btih:DBF621B2C861BAE4367F3A825A33FB7314F433C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:DBF621B2C861BAE4367F3A825A33FB7314F433C1
 ```bash
 magnet:?xt=urn:btih:033F0F464FC6F525A6BC1C66A446B8E412115EE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:033F0F464FC6F525A6BC1C66A446B8E412115EE7
 magnet:?xt=urn:btih:B1F6A49F11704CB9656DD679D278090851DF15B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:BC7E559AE30D99C0A2CC500C782676BCBBE5D64F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:BC7E559AE30D99C0A2CC500C782676BCBBE5D64F
 ```bash
 magnet:?xt=urn:btih:91573862621A8355D305100BB22FD93A046EA207
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:91573862621A8355D305100BB22FD93A046EA207
 magnet:?xt=urn:btih:CAC5FE8BAE18E19546B30E1DAA9EEA8F4C6BAD05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:CAC5FE8BAE18E19546B30E1DAA9EEA8F4C6BAD05
 ```bash
 magnet:?xt=urn:btih:F54F53769E5E8AF663DDD299483B1E7B66A3D564
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:F54F53769E5E8AF663DDD299483B1E7B66A3D564
 magnet:?xt=urn:btih:0B3A9D6515DDFBA802B6C41F01D4CAE592B8C57B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:0B3A9D6515DDFBA802B6C41F01D4CAE592B8C57B
 ```bash
 magnet:?xt=urn:btih:CC411CC300CAD8B4A79345A240FE9685CE936761
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ PDFCreator –  бесплатная программа для конверти�
 magnet:?xt=urn:btih:FAB491736B65436BFB232A88E56AFC193FFF14BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:FAB491736B65436BFB232A88E56AFC193FFF14BE
 ```bash
 magnet:?xt=urn:btih:8CBBCAEAB215F0099908077C9211F8A2D2765E22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:8CBBCAEAB215F0099908077C9211F8A2D2765E22
 magnet:?xt=urn:btih:1C68DAB2818EB88D71506E17B59419C1272930C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ CoolUtils Total CSV Converter - это надежный инструмент д�
 ```bash
 magnet:?xt=urn:btih:4226450BA8B9357F2D99279624AAC76188B1245B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

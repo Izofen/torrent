@@ -21,6 +21,8 @@ Element X — это приложение для обмена сообщения
 magnet:?xt=urn:btih:1F078993A4A94830E009E5DD557F785B557B9000
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ RarmaRadio - программа для прослушивания и запис�
 ```bash
 magnet:?xt=urn:btih:EB9E71DE93171C4DA54F165544DBCF7B9700816E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Pale Moon - веб-браузер, созданный на базе популя
 magnet:?xt=urn:btih:D88F03AB810079169B400C06E0EF76262FDDECA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Slimjet 47.0.1.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BDF4E7A6E8C819CFC1075E22B08679602743A7A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ MiniBin — это легковесная, но мощная утилита дл
 magnet:?xt=urn:btih:E189F7276959CD4920C73E9B6FF2C899C13B1592
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Activation Program 1.12 b07 Portable by Ratiborus [En]
 ```bash
 magnet:?xt=urn:btih:F4499F3E9E27797B2436529BA8C29DE49DA9301A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Insofta 3D Text Commander 6.5.0 [Multi/Ru]
 magnet:?xt=urn:btih:E139D04F95944EA33C4D2CFAA3500E0BDC4F7411
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Uptooda (бывш. Image Uploader) – бесплатная программа �
 ```bash
 magnet:?xt=urn:btih:CA14B19FDC90C2AE44427FFC8D85CEC85B7D1FEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ FreeTube использует собственный HTTP-API YouTube с наб�
 magnet:?xt=urn:btih:26254A3EED354735F05A94D57FBA727F98BA9DAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ USB Safely Remove 7.1.2.1328 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:10153022526F7F80226B5F5B1D036001D8FFEBA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:4C95D6A8F6AD07377F6992647D766F58B048879F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ HiBit Uninstaller - идеальное решение для удаления п
 magnet:?xt=urn:btih:3A678C1AB291C51F56E41236326CB99146141CD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ UltraSearch Professional находит файлы и папки на локал
 ```bash
 magnet:?xt=urn:btih:F36F715092432BEACEB59A2E909E3857704B325A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ HEU KMS Activator — это простая в использовании про
 magnet:?xt=urn:btih:E5E12ADD098E097872CBB24DF3E112C17AEA3E6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ priPrinter - это виртуальный принтер, который вы �
 ```bash
 magnet:?xt=urn:btih:DE84E4E11E516FBC96C02931172C69F968924C5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ XYplorer – удобный многовкладочный файловый ме
 magnet:?xt=urn:btih:EFC1998731D1292FB393AEFC2F0A9ECDC6F4468F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ XYplorer – удобный многовкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:29C01DF4DE76A5BBFD7E990146A66E1E2307A4CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ SoundSwitch — легко переключаемся между звуковы�
 magnet:?xt=urn:btih:E9533B2DCCD2C36C35782716F205572ACA96E6F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Autorun Organizer - простое в использовании приложе�
 ```bash
 magnet:?xt=urn:btih:2C8AF8EB2548063A03C4D9F204D092A7FE1D15B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ LibreOffice — мощный офисный пакет, полностью со�
 magnet:?xt=urn:btih:4C97031B22F460162FBDAE31627CADB036E58A7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ ShareX - программа для снятия снимков и видеоза
 magnet:?xt=urn:btih:CABFD85964F38297B7119EE24136C6BE599A388E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Ditto Clipboard Manager 3.25.76 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C3B3AEE3601AABEBFF5B823D49D8D90B17EF3D3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ Foxit PDF Editor Pro (ранее носил название Foxit PhantomPDF Bu
 magnet:?xt=urn:btih:DF05348868AEDD2AE1EC274F0AFC5E5A2A978D12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:D862B7E0405BB021E58FAC5F3655A105F2FCCA08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ doPDF — программа для преобразования докумен�
 magnet:?xt=urn:btih:D6588E01EDE65E50EE5DA9A9C9E91958345B6D00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ Floorp Browser – это модифицированная версия Firefox,
 ```bash
 magnet:?xt=urn:btih:B2578BEEDCF7D6DCF9A53D729A83DD0258073D25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

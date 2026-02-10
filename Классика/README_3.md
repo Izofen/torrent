@@ -28,6 +28,8 @@ Sequentia
 magnet:?xt=urn:btih:39756A4D56C587AB1872A31D5054C923DB22F00A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ The organ the Church of Our Lady of Sorrows, Toronto
 ```bash
 magnet:?xt=urn:btih:65B42396879703F5B2ABDB2A041C54883F01E0A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ VA - Magic of Classic music (2012) [MP3|192-256 kbps]<Classic>
 magnet:?xt=urn:btih:D0E46F98DC7969D956D9EFB47FAE05B141B9FE90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +123,8 @@ magnet:?xt=urn:btih:D0E46F98DC7969D956D9EFB47FAE05B141B9FE90
 ```bash
 magnet:?xt=urn:btih:4442BCE3FC97DE38D9D3BD8439BF3A6D594FB9DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +157,8 @@ The Brandt Brauer Frick Ensemble - Mr. Machine (2011) [MP3|~245 кб/с (V0)]<Ex
 magnet:?xt=urn:btih:AB104999D53EA20EA3EA5E81B504911EE4DB6558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +182,8 @@ CD№1Жанр: ClassicalПродолжительность: CD№1 - 00:43:06, 
 ```bash
 magnet:?xt=urn:btih:A1D3EAE15D204C2803E53DC3921646A56BEAFE39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +214,8 @@ Sonata f-moll
 magnet:?xt=urn:btih:FFC2B8782C5DFD23E93E5D0BA3B29796A657ED44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -230,6 +244,8 @@ Johann Friedrich Fasch - Johann Friedrich Fasch Oboe Sonatas: Burkhard Glaetzner
 magnet:?xt=urn:btih:A75EF4A1461CEB4E306510DFC82F4B6DFEE3E20B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +272,8 @@ Concerto in E minor, RV484, F. VIII-6
 ```bash
 magnet:?xt=urn:btih:3A86C20ACD93F35DD8E0F79210A2E0925FA504BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +308,8 @@ Wolfgang Amadeus Mozart - Requiem in D minor, K 626 Transposition for a string q
 magnet:?xt=urn:btih:DB17F687EB2C616C9E9D83C558DADDE5D0EA0CAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +342,8 @@ CD1 (00:53:15):
 ```bash
 magnet:?xt=urn:btih:50D1E88F21DCC93608EED43776CEEE008CFD198B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +378,8 @@ Noella - Beautiful Sorrow (2010) [MP3|192 кб/с]<Neoclassical>
 magnet:?xt=urn:btih:A66D4EDC1D1D2385C08C29942C12B6D4812037F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +403,8 @@ VA - Super Classic Hits (2006) 2 CD [FLAC|Lossless]<Classic>
 ```bash
 magnet:?xt=urn:btih:CB22B9B37B68C01D5552CD8EE2AC74720DAA3365
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +432,8 @@ Carl Heinrich Graun
 ```bash
 magnet:?xt=urn:btih:DB52489F329835895E49373E106A10407D26D7B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +468,8 @@ Yehudi Menuhin - Vivaldi - Violin Concertos (2003) 2CD [FLAC|Lossless]<Classical
 magnet:?xt=urn:btih:9EEB7868DD35945FC899B3EFBE1381D947FC790B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +502,8 @@ Concerto in Fa maggiore «L'Autunno» (Осень), RV 293
 ```bash
 magnet:?xt=urn:btih:28D4E271BC30CF5A1E14D0371BF3549DD86D0E0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +538,8 @@ Concerto for Oboe, Strings and Basso Continuo in a minor [10:06]
 magnet:?xt=urn:btih:C723C52BA03CBD37A35AF029727EA4E541A5F5AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +572,8 @@ Jascha Heifetz - The Heifetz Collection (1994) Vol.16 Beethoven Violin Sonatas /
 ```bash
 magnet:?xt=urn:btih:AF5C202A00BE56861B651A3ADE38DF6ED3AD6F19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +608,8 @@ Kantate am Fest der Beschneidung Christi Cantata for the Feast of the Circumcisi
 magnet:?xt=urn:btih:3C5F3A9AC00282EE23770CA17CA355D7F5E3BE5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +637,8 @@ Sonate h-moll, BWV 1030
 magnet:?xt=urn:btih:C9B4730623B8E2A99BACFA7D70903811A4B3824C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +665,8 @@ Toccata and Fugue in D minor, BWV565
 magnet:?xt=urn:btih:6442D896A70ED50FE3F61A5BF22C7D81BD0E9C0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +691,8 @@ VA - The Magic of Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classica
 ```bash
 magnet:?xt=urn:btih:B04DFD97CFC05C19B871DC47F2B622324FB6349D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,6 +720,8 @@ VA - Autumn Sonatas (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ```bash
 magnet:?xt=urn:btih:A69C61469DBED484A3361C050F61DC99E94E558C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -710,6 +756,8 @@ Recorded: 21.II.1934, No.3 Studio Abbey Road, London
 magnet:?xt=urn:btih:D6C5A01D24413376913FFF8A2552FD88BD8CF864
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -737,6 +785,8 @@ VA - Relax Instrumental Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 magnet:?xt=urn:btih:CCB07C1EE9C8C5E28D39778573FCE5DE8670F5FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -763,6 +813,8 @@ Enrico Caruso - Grosse Tenore Der Musikgeschichte Vol.3 (2006) 2CD [WavPack|Loss
 ```bash
 magnet:?xt=urn:btih:371C8C9A4540CE3CC705A0C8D1EE3A748F084FEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

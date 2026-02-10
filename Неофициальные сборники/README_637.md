@@ -1,3 +1,38 @@
+###  Публикация: 614867   (976394) от 09.02.2013
+
+VA - Record Super Chart № 276 (2013) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Deorro - For President  (4:54)
+02. Movetown & Ray Horton - Here Comes The Sun  (3:32)
+03. Sunstroke Project - Walking In The Rain  (4:37)
+04. Will.I.Am & Britney Spears - Scream & Shout  (4:45)
+05. Tonic & Knife Party - Bitch Please Internet Friends (BL3ND Mashup)  (4:35)
+06. Alex Clare - Too Close (Slider & Magnit Remix)  (5:34)
+07. Dani B. & Jonathan Carey & Ari - Fire To The Floor  (4:28)
+08. Krewella - Come & Get It  (3:26)
+09. Fly Project - Back In My Life  (5:15)
+10. Fady & Mina - Kepler 22 (Andrew Rayel Aether Remix Edit)  (3:09)Жанр: TranceПродолжительность: 01:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80FA7E422CBC8B74E2A647FB39A14C6BC8BE2D95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 613292   (976410) от 09.02.2013
 
 VA - Dubstep Planet 4 - Official Promo Mix (by Profit) (2013) [MP3|320 kbps]<Dubstep>
@@ -28,6 +63,8 @@ VA - Dubstep Planet 4 - Official Promo Mix (by Profit) (2013) [MP3|320 kbps]<Dub
 magnet:?xt=urn:btih:5D825D1EB86B9E3BCCB4CCD9A7FAFB3AF5CAE5F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +92,8 @@ VA - 100 популярных супер хитов от Русского Рад
 magnet:?xt=urn:btih:760AF4DBC0A34113CA977F530313BA9DE0B86EB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +120,8 @@ VA - Night Dreams (2020) [MP3|320 Kbps] <Instrumental, Easy listening, Relax>
 ```bash
 magnet:?xt=urn:btih:90C06BE20BF7E59347725186FCCBC9BD6EEB488E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +156,8 @@ VA - Cубботний TWIST (2013) [MP3|320 кб/с]<Twist>
 magnet:?xt=urn:btih:7EC13363BDF0775DEF23D6E0FEAD5D91A800BCB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +184,8 @@ VA - Amphetanarchy: Hard Rock Cafe (2020) [MP3|320 Kbps] <Hard Rock, Alternative
 ```bash
 magnet:?xt=urn:btih:D3A4FAA3C23BD988DD9F56D9059CE4A0E5682146
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +220,8 @@ VA - Хулиганская душа (2013) [MP3|128 кб/с]<Шансон>
 magnet:?xt=urn:btih:4300FE2543D3E6D46EF55C06FA02ED32F2525458
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +255,8 @@ VA - Drum and Bass Pro V.7 from AGR (2013) [MP3|320 кб/с]<Drum&Bass>
 magnet:?xt=urn:btih:07D7147EB02F1E0BB62399FB0F2BBC89BEA3DD34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +283,8 @@ VA - Лучшие Trance треки Ver.13 (2020) [MP3|320 Kbps] <Trance, Uplift
 ```bash
 magnet:?xt=urn:btih:C145E5170374C1B87634194AABB776C686B5C48C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +313,8 @@ VA - ЕвроХит Топ 40 Europa Plus 31.01.2020 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:6B09B65EB5F8D32F5A143D98AC3725EC869438B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +342,8 @@ VA - Consolidated DnB Party (2020) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:9EA15315FDB150F1C37305CCF3D38894CAA82103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +370,8 @@ VA - The Official UK Top 40 Singles Chart 31.01.2020 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:580529C2F4FE64B5788F73AC08F94A2124C215F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +406,8 @@ VA - 20 Trance Hits (2005-2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:D0554A4AC41FE0D1E5A9F2D3F2B7868C94BD43EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +434,8 @@ VA - 50 Modern Club Tracks Party Beats (2016) [MP3|320 кб/с] <Funky, Club Hou
 ```bash
 magnet:?xt=urn:btih:2695D58972A3DBC22D0B544939C2C06A68E8D0C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +464,8 @@ VA - Coming Home - Pop Lounge Music Deluxe (2015) [MP3|320 кб/с] <Lounge, Eas
 magnet:?xt=urn:btih:7269B7B59D96CE4EF9E6BA189C54B602F31C65E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +492,8 @@ VA - Sunrise Avenue, Vol. 7 (20 Lounge & Chill-Out Pearls) (2016) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:89430474FCB206AF785D8A771F7CCBA9123A4936
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +528,8 @@ VA - Romantic Blues Collection (2013) [MP3|320 кб/с]<Pop,Blues>
 magnet:?xt=urn:btih:4FFB5F16B232B2342F186D30E9DFD31B70D8BFB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +563,8 @@ VA - 100 Huge Hits Of The 60s & 70s (2007) 4CD BoxSet[MP3|320 кб/с]<Pop-Rock,
 magnet:?xt=urn:btih:6E4A70E625E00AE7FB1A05EE0876EC26F42C17ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +591,8 @@ VA - Рок 2019 Главные Хиты (2020) [MP3|320 Kbps] <Rock, Alternativ
 ```bash
 magnet:?xt=urn:btih:2C9A0A0D9841ACB1B139BE6C31B3D76C01716DEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +627,8 @@ CD1 01. Bad Boys Blue - Don't Walk Away, Suzanne (Dance Mix)
 magnet:?xt=urn:btih:118DB247D8D23D180856ADD04F3DFA334D6D1DBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +659,8 @@ Hits of My Soul - сборник электронной и инструмент�
 magnet:?xt=urn:btih:80E0F600DCC20A7DD026CBF11EC5BB40C8483A0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +684,8 @@ VA - Новинки радио Maximum 2011 (2011) [MP3|192-320 kbps]<Pop-rock>
 ```bash
 magnet:?xt=urn:btih:6917D62F3B8670E5FBCCEF0C1CE908F5C3A604CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +720,8 @@ VA - Модный Зимний Выпуск Зарубежный (2013) [MP3|256
 magnet:?xt=urn:btih:A5E02BDD38E06BD91B0C021DBD03A7E78D61F2D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +748,8 @@ VA - Хиты на KISS FM. ТОП 40 (2016) [MP3|320 кб/с] <Club, Dance, Rem
 ```bash
 magnet:?xt=urn:btih:1CA3DE3E737E61A8D86A298E5222F7EF784C6A43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -697,6 +778,8 @@ VA - Дальнобойщики. 100 шофёрских хитов (2015) [MP3|2
 magnet:?xt=urn:btih:E5589BFB2F78A239D57985551B09FA9425B05467
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -722,32 +805,7 @@ VA - Dubstep 100 Top Hits Bass Massive DJ Mix (2016) [MP3|320 кб/с] <Dirty Du
 magnet:?xt=urn:btih:162093C4A5027E4DB63D7166ADE46869BCD3BE54
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973425   (978126) от 10.01.2016
-
-dj Sasha Tyson - 90-X REBOOT 2 rus (ПЕРЕЗАГРУЗКА) (2016) [MP3|320 кб/с] <House, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Русский Размер - Пластинки (Dj A'rchi Remix)
-02 Ненси - Чистый Лист (Remix)
-03 Марина Хлебникова - Чашка Кофею (Dj Brooklyn Edit)
-04 Мечтать - Летчик (Dj Vengerov Remix)(   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC5D2C61BC34A6766E371B28B37E6AFEBA408736
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

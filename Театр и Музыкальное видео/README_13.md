@@ -22,6 +22,8 @@ Genesis - The Video Show 2004 DVD
 magnet:?xt=urn:btih:707ADA769643AFC41B3F2633E1DE86796B141D6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Doro - 25 Years In Rock... And Still Going Strong (2010) 2хDVD9
 magnet:?xt=urn:btih:713EB98420AC447E4CF0C4FC4E8DE1A5A9C98656
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ DON'T KNOW WHAT YOU GOT (TILL IT'S GONE).
 ```bash
 magnet:?xt=urn:btih:8FBA194E10452FCAC950FE68092E7156A187A569
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -104,6 +110,8 @@ Status Quo - "XS All Areas" (2004) DVD9
 magnet:?xt=urn:btih:2AD8893E9EAB917BB7F649607B3499C30D063910
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -132,6 +140,8 @@ Ray Charles Live: In Concert with the Edmonton Symphony (19.09.2004) DVD5
 magnet:?xt=urn:btih:B5F62803628E9B3BE0040AAB31B9C9B635E4F4ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -158,6 +168,8 @@ DIO - Holy Diver Live (2005) DVD9
 ```bash
 magnet:?xt=urn:btih:08C03473D557FF1EC36866D3C8E518D70B96B583
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +201,8 @@ Vivian Campbell - GuitarПеревод: ОтсутствуетЯзык: Англ
 magnet:?xt=urn:btih:EF549F670962B382D9C089645AB46ABCC4CB4F6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ Judas Priest - British Steel Live - 30th Anniversary Deluxe Edition (2010) DVD9
 magnet:?xt=urn:btih:2FADB8E486B3270DD952DBE021C7EA22EF5C7710
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +255,8 @@ magnet:?xt=urn:btih:2FADB8E486B3270DD952DBE021C7EA22EF5C7710
 ```bash
 magnet:?xt=urn:btih:ED0346683CBE352CD8134614D78FC6AD9892304C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:ED0346683CBE352CD8134614D78FC6AD9892304C
 ```bash
 magnet:?xt=urn:btih:688E64754F5EFE5DAEAF048E5C28E0721276B03E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +311,8 @@ magnet:?xt=urn:btih:688E64754F5EFE5DAEAF048E5C28E0721276B03E
 ```bash
 magnet:?xt=urn:btih:31A7CCF9E9F9C0087301F099FDEB1F2CC4A3B0A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +343,8 @@ magnet:?xt=urn:btih:31A7CCF9E9F9C0087301F099FDEB1F2CC4A3B0A4
 magnet:?xt=urn:btih:047A22915BB13FE52C2A18E96050A0C6A7A231A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +369,8 @@ magnet:?xt=urn:btih:047A22915BB13FE52C2A18E96050A0C6A7A231A4
 ```bash
 magnet:?xt=urn:btih:51EC5BC965BE4713E5898E9097253B5CA7976D67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +399,8 @@ Bon Jovi - Greatest Hits The Ultimate Video Collection (2010) DVD9
 magnet:?xt=urn:btih:ABEC203FAB0E2F4781CDDC0CB21A5C536BF72A1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +427,8 @@ Tracklist:
 ```bash
 magnet:?xt=urn:btih:5341E0E800E9AB11AF88C476C4B5347C8C4DA4FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +459,8 @@ magnet:?xt=urn:btih:5341E0E800E9AB11AF88C476C4B5347C8C4DA4FB
 magnet:?xt=urn:btih:EE0ECE7B931242E44AC8F7C7A7377D8CE9F33362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +485,8 @@ magnet:?xt=urn:btih:EE0ECE7B931242E44AC8F7C7A7377D8CE9F33362
 magnet:?xt=urn:btih:033720EAD75F5DF5598ED7460A3416B44B58670D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +510,8 @@ magnet:?xt=urn:btih:033720EAD75F5DF5598ED7460A3416B44B58670D
 ```bash
 magnet:?xt=urn:btih:BA1EC316FB78841A9F07A05C5617D69522FD8E8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +539,8 @@ magnet:?xt=urn:btih:BA1EC316FB78841A9F07A05C5617D69522FD8E8E
 magnet:?xt=urn:btih:92E51EABDA567BE1FD248C19948053D401AF9BD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +564,8 @@ magnet:?xt=urn:btih:92E51EABDA567BE1FD248C19948053D401AF9BD7
 ```bash
 magnet:?xt=urn:btih:844D2C9CCC6C6A2BEA6FFB960CB180D905F4F69E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +594,8 @@ Marc Bolan And T.Rex - "Born To Boogie" (2005) 2xDVD9 (Special Edition)
 magnet:?xt=urn:btih:3B480AD53FA30D30D20F25E3780A0684CB56AD23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +622,8 @@ Whitesnake - Made In Japan (2013) DVD9
 ```bash
 magnet:?xt=urn:btih:773177F7A16AC555444AEEA7E1BF61607C753B42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +652,8 @@ Supertramp’s “Breakfast In America” был самым продаваемы
 magnet:?xt=urn:btih:6E7B5A4401D2452AFB891AE97715697D5F6B8485
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +677,8 @@ magnet:?xt=urn:btih:6E7B5A4401D2452AFB891AE97715697D5F6B8485
 ```bash
 magnet:?xt=urn:btih:0C11F8BFA93DB09568A8C53E5A7D35967B8D1EB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +704,8 @@ magnet:?xt=urn:btih:0C11F8BFA93DB09568A8C53E5A7D35967B8D1EB0
 magnet:?xt=urn:btih:5A4F9E97992610903371B0177B4F35553256B382
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -680,6 +730,8 @@ magnet:?xt=urn:btih:5A4F9E97992610903371B0177B4F35553256B382
 ```bash
 magnet:?xt=urn:btih:FB02BBD0247DAEB95CA7E0E85F7F532DF1972874
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

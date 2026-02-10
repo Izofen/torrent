@@ -19,6 +19,8 @@ Bloodstained: Ritual of the Night – это смесь готического �
 magnet:?xt=urn:btih:2C2801AF13643CC97917F4F0F73785025A866A76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Suppress Academician (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:BB4C755CDBE13F64A922ADD660E49EDC03252650
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Weko The Mask Gatherer - это не обычная прогулка по пар
 magnet:?xt=urn:btih:EEB2F735C36D560B2B8C406822D0DCDEAA4A7B6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Our Adventurer Guild - ролевая игра, где вы переместит
 ```bash
 magnet:?xt=urn:btih:6E670606A25DCEADDF3E5614B7BCC3F0741D8E57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Frontier Hunter: Erza's Wheel of Fortune совмещает элементы п�
 magnet:?xt=urn:btih:99765897F51701D3798D277B2617D2BDA8ADD360
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Esports Godfather (2024) [Multi] (1.3.21) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:98F4A568D8C54CAF769995C9C83D8CDD3C94FAC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Dungeons of Hinterberg - это не типичный данж-кролл. Ко�
 magnet:?xt=urn:btih:266FCC9B7787BD31662762B9AB5560118C776085
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Legend of Heroes: Trails through Daybreak (2023) [Multi] (1.3.5/dlc) License
 ```bash
 magnet:?xt=urn:btih:41D5FA5F561FF49E5B0512B98BC54A90407C4413
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Riviera: The Promised Land - это не совсем обычная ролев�
 magnet:?xt=urn:btih:95DB03267416DF6F03731471653B893B54291702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Serpent in the Staglands (2015) [En] (19) License GOG
 ```bash
 magnet:?xt=urn:btih:3E7EE4E93DCF8D6F9E50C85A7667EBAAB9549CA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ USC: Counterforce (2023) [Multi] (1.0) Scene Rune
 magnet:?xt=urn:btih:D0001FCBC3E98308165865ACB60B383224002B8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Stories from the Outbreak – в этой классической пошаго�
 ```bash
 magnet:?xt=urn:btih:525C4A24DC60F75E131D48D6BE861DE9D349B77D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Dragon Chronicles: Black Tears - это стратегическая ролев�
 magnet:?xt=urn:btih:64F747058441F305BEABA5AA9766FFEF8D3257DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Minecraft Dungeons (2020) [Ru/Multi] (1.17.0.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:792C4429EC23C73BC50E25AA594EEAECDCA7E08E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Flintlock: The Siege of Dawn с головой окунает вас в огро
 magnet:?xt=urn:btih:EDB2919DF41F3C5B83729DB58EC49B78821C17BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Thaumaturge - изометрическая ролевая игра с глу
 ```bash
 magnet:?xt=urn:btih:F69CA39B82D4AC9D8282254E225A3C4F2B4932C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Zero Division (2024) [Multi] (1.01f HotFix) Repack FitGirl
 magnet:?xt=urn:btih:F45DCB626E7D42AA6720B4A79B259EBEFF98E7E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Dark Envoy объединяет классическую механику RPG с
 ```bash
 magnet:?xt=urn:btih:C99B22F76BA99A50C371B50F64769F41EECAA32E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Clash II (2) (2022) [Multi] (497) License GOG
 magnet:?xt=urn:btih:4E7A4B5E7D4E26A94CCABD9090C356338C5F62B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ SaGa Emerald Beyond - это новейшая отдельная игра в с�
 ```bash
 magnet:?xt=urn:btih:05D63F23B47C3693DBB661E588951CAAB0F80B2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Mushoku Tensei: Jobless Reincarnation Quest of Memories (2024) [Multi] (14569299
 magnet:?xt=urn:btih:3945428ABEEE32E61092B21916A680CFDF90C207
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Baten Kaitos: Eternal Wings and the Lost Ocean и Baten Kaitos Origins тепе�
 ```bash
 magnet:?xt=urn:btih:9A3503276E088A5F85D2AED0A46576D2C91FDF16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Demeo (2021) [Multi] (1.36.256496) Scene Tenoke [VR]
 magnet:?xt=urn:btih:E1545647F354763286B29F5337947A73F649AAA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Robin Hood - Sherwood Builders – это приключенческая рол�
 ```bash
 magnet:?xt=urn:btih:8E2C2A955FDDED911D190ECE4267315D7AC09849
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ The Leviathan's Fantasy - это игра-симулятор, в которой 
 magnet:?xt=urn:btih:354B51E2785E9785ED4D6FC79B60C5EF7D56B493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Islands of the Caliph - это ролевая игра в жанре Action RPG,
 ```bash
 magnet:?xt=urn:btih:FBD7FB42E54607360CB8C4677CBD8889778D8F15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

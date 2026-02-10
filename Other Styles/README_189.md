@@ -28,6 +28,8 @@ Toto - Дюна/Dune (1984) [MP3|320 kbps]<OST/Score/Soundtrack>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ Dishonored (2012) [MP3|128 кб/с]<Soundtrack>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ Dishonored (2012) [MP3|128 кб/с]<Soundtrack>
 magnet:?xt=urn:btih:1B54EFBCF7F05C5481C5602DF0701F7EF29E0ADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +132,8 @@ Sax Mood 2
 ```bash
 magnet:?xt=urn:btih:6DA1A45F5F1560D41994F40F9BFECCB2691BB3DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +168,8 @@ Bel Suono - Мегаполис (2012) [MP3|320 кб/с]<Instrumental, Piano>
 magnet:?xt=urn:btih:987491B1617A0762BA46341999C5BADBCB055563
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +202,8 @@ James Last - Title Of Album: Christmas with Romance (2011) [MP3|320 кб/с]<Ins
 ```bash
 magnet:?xt=urn:btih:DB00C4F6D7478BD7303686FED263DCD324E1348B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +238,8 @@ Anthony Ventura - Romantische Momente (2010) [MP3|320 кб/с]<Instrumental>
 magnet:?xt=urn:btih:BC962415115965278C10CE33C7BF65E0EA645F46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +272,8 @@ Fausto Papetti - Movie Land (2011) [MP3|320 кб/с]<Instrumental>
 ```bash
 magnet:?xt=urn:btih:42D02D24FC60C33879EBB5C95F8B010CC0822FEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +308,8 @@ CD1:
 magnet:?xt=urn:btih:8BBBC911DF331113F9E476EF046940E229CB052B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +342,8 @@ magnet:?xt=urn:btih:8BBBC911DF331113F9E476EF046940E229CB052B
 ```bash
 magnet:?xt=urn:btih:A6B51B4E6567E481E7218CF1E9174166511477A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +378,8 @@ VA - Narada Guitar 2  The Best of Two Decades (2000) [MP3|320 кб/с]<Instrumen
 magnet:?xt=urn:btih:40E9402853263ED9D61592F3A518258B1E76D9D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +406,8 @@ Kenneth Hooper - Directions (2020) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:B9766A27218E70EB97ACB7B62050D1CB1CC65DDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +436,8 @@ magnet:?xt=urn:btih:B9766A27218E70EB97ACB7B62050D1CB1CC65DDC
 magnet:?xt=urn:btih:5E8328AC2162823F2C45010D643862284D0D468E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +464,8 @@ Frantz Amathy - Heavenly Ways (2004) [FLAC|Lossless|tracks + .cue] <New Age, Rel
 ```bash
 magnet:?xt=urn:btih:51E93916572FEA2A13FB4147D40AFDB908FDF11B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +494,8 @@ Era & Arielle Dombasle - Arielle Dombasle By Era (2013) /Special Edition/ [FLAC|
 magnet:?xt=urn:btih:E73FAF98A4569F40464EFFD3FFA0FC0D195C90ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +522,8 @@ Karunesh - Sounds of the Heart (1987) [FLAC|Lossless|tracks + .cue] <New Age, Do
 ```bash
 magnet:?xt=urn:btih:448EBD6B4E57E1565F2EA68C9D0F16E27DED2E70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +552,8 @@ David Garrett - не просто случайный любитель разны
 magnet:?xt=urn:btih:E243D48381952E8F0F7DBFA8E4A0BD59FAD12126
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +581,8 @@ Existence - Like A Shot Through My Heart (2004) [FLAC|Lossless|image + .cue] <Ne
 magnet:?xt=urn:btih:69E410186BDE3A22EAC5149B2C27B1E3990AB4A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +609,8 @@ Govi - Luminosity (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, New Flamenco>
 ```bash
 magnet:?xt=urn:btih:CCB5F9390FC8508EFD4B2FAEB440B063D47734E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +645,8 @@ Eivoer Polsdoeter (Eivør Pálsdóttir) - Trollabundin (Trøllabundin) (2005) [F
 magnet:?xt=urn:btih:5C5155E4E52221FE79CAE44871ECDB3A11FB09F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +673,8 @@ The Royal Philharmonic Orchestra - 33 альбома (1969-2019) [OGG|320 kbps]<
 ```bash
 magnet:?xt=urn:btih:837DABE8A786B3414D3E6D4113282CFE5A725A29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +703,8 @@ Igor Presnyakov - Acoustic Rock Ballad Covers (2011) [MP3|~190 кб/с (V2)]<ist
 magnet:?xt=urn:btih:F4B3F33DF487B80E2765F57DEF2796450C37054C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -687,6 +731,8 @@ Gandiva - Jago jharna (2016) [FLAC|Lossless|tracks + .cue] <Mantras, Meditative,
 ```bash
 magnet:?xt=urn:btih:437B47AE295C5458CDE8DBB3C19BBFBC3E124682
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -715,6 +761,8 @@ Films - Messenger (2010) (Midi Creative) [FLAC|Lossless|tracks + .cue] <Instrume
 magnet:?xt=urn:btih:4FA9655EE8C36B78C127E198B390D67CEB2B52BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -742,6 +790,8 @@ Films - A Forbidden Garden (2013) (Ricco) [FLAC|Lossless|tracks] <Instrumental, 
 magnet:?xt=urn:btih:321CB13B889FA98FA1FEC909CBAED234311470DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -768,6 +818,8 @@ Modern Spirit - Infinite Wisdom (2019) [MP3|320 Kbps] <New Age, Enigmatic>
 ```bash
 magnet:?xt=urn:btih:D7840141A0243FD684BD8D1085E0E9F261E88A89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

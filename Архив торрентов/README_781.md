@@ -19,6 +19,8 @@ Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -фа
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Auslogics Disk Defrag - бесплатная программа, призван�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Auslogics Disk Defrag - бесплатная программа, призван�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ FeedDemon - Одна из наиболее достойных программ �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ Neon NiteClub - Beauty & The Beats (2012) [MP3|320 кб/с]<Electropop, Synthpop
 magnet:?xt=urn:btih:C1E72E3053165B8B4676A85A1F4772698F150F8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:C1E72E3053165B8B4676A85A1F4772698F150F8C
 magnet:?xt=urn:btih:6D53ABD6E78C9B2A184884DE9120E7A651473993
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:6D53ABD6E78C9B2A184884DE9120E7A651473993
 ```bash
 magnet:?xt=urn:btih:59FC55CE042D40075C72F426A54E76624D96CB75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +223,8 @@ High Contrast - The Agony & The Ecstasy LP (NHS204CD, 2012) [FLAC|Lossless]<Drum
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +248,8 @@ Notepad++ - это бесплатный редактор текстовых фа
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +284,8 @@ Precious Wilson - Only Precious 2011 (1977-1982) [MP3|320 кб/с]<Disco, Dance-
 magnet:?xt=urn:btih:6425D48C56F4F566F76B00484D659EE74BDCF618
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +309,8 @@ magnet:?xt=urn:btih:6425D48C56F4F566F76B00484D659EE74BDCF618
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +343,8 @@ Foul Play - Suspected (1995)
 magnet:?xt=urn:btih:3E78813DA774B77DDCF7003CD5F0C5B4B7C9631C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +368,8 @@ BitTorrent - клиентская программа пиринговой сет
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +395,8 @@ BitTorrent - клиентская программа пиринговой сет
 magnet:?xt=urn:btih:6873DD238B670D2AC674A3D54543D15D7E200047
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +420,8 @@ magnet:?xt=urn:btih:6873DD238B670D2AC674A3D54543D15D7E200047
 ```bash
 magnet:?xt=urn:btih:E072F6EBAAE70A39EAB6D4285DBF7804861262A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +449,8 @@ Driver Magician - программа для создания резервных 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +474,8 @@ Driver Magician - программа для создания резервных 
 ```bash
 magnet:?xt=urn:btih:FCDF776A0B424B1D24E584BDDED3AB1C7610633B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +503,8 @@ magnet:?xt=urn:btih:FCDF776A0B424B1D24E584BDDED3AB1C7610633B
 ```bash
 magnet:?xt=urn:btih:A5559EB02784EC440EADED53435DEAA0BAB8BE82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +539,8 @@ Hot Chocolate - Their Greatest Hits (1993) [FLAC|Lossless]<Pop Rock, Ballad, Dis
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +567,8 @@ Hot Chocolate - Their Greatest Hits (1993) [FLAC|Lossless]<Pop Rock, Ballad, Dis
 magnet:?xt=urn:btih:73EF3F74FC638BA6761C9305FAC4275D5B1F073F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +592,8 @@ StartTime 1.0 [Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +619,8 @@ NG: Под островом Пасхи / Beneath Easter Island (2009) HDTVRip [7
 magnet:?xt=urn:btih:ADB4584D32DA0818D5C2E1451B77B90FFF253DBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +644,8 @@ magnet:?xt=urn:btih:ADB4584D32DA0818D5C2E1451B77B90FFF253DBA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +671,8 @@ magnet:?xt=urn:btih:ADB4584D32DA0818D5C2E1451B77B90FFF253DBA
 magnet:?xt=urn:btih:94DC5270F55925B6D8620EF4856F380597218ACB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +697,8 @@ magnet:?xt=urn:btih:94DC5270F55925B6D8620EF4856F380597218ACB
 magnet:?xt=urn:btih:1FD4D5B67B78081769B7D533E35BD990406F17A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +722,8 @@ magnet:?xt=urn:btih:1FD4D5B67B78081769B7D533E35BD990406F17A3
 ```bash
 magnet:?xt=urn:btih:573A87E9C3D7C716335CBD479D62DFFC87503010
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

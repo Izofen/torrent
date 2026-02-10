@@ -21,6 +21,8 @@ VMware vSphere – решение виртуализации масштаба п
 magnet:?xt=urn:btih:7602B24A25E3EFB60898ECE463F1A030A452F267
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:7602B24A25E3EFB60898ECE463F1A030A452F267
 ```bash
 magnet:?xt=urn:btih:90555B91AC18B750B93D9B39B28BC1B2EE9E2F70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:90555B91AC18B750B93D9B39B28BC1B2EE9E2F70
 magnet:?xt=urn:btih:A6C07F06BACDC02E02F154086782AD1F1E1AD266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:A6C07F06BACDC02E02F154086782AD1F1E1AD266
 ```bash
 magnet:?xt=urn:btih:5EE2A367EE18F570FD24D18802ED9109BB9A15B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Styled Components являются частью движения CSS-in-JS, гд
 magnet:?xt=urn:btih:4BCD48DD96D2EDD8168BAAF9DA53E4BC19DCAB69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ Skillbox | Основы математики для Data Science (2020) PCRec
 magnet:?xt=urn:btih:00788E2609A50B4A2EFBA4750B764355EF2C7C0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ Brian Yu, David J. Malan | CS50. Веб-программирование с Pyth
 ```bash
 magnet:?xt=urn:btih:432D530F17E11359AFD4670C983E9508082AE49E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ ZTM | SQL + Базы данных Bootcamp: Zero to Mastery / Complete SQL + Dat
 magnet:?xt=urn:btih:75D69019108CEDEDABC3CD684D74C87FCAEA10F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ Pluralsight.com | Advanced Python (2017) PCRec [H.264/720p-LQ] [RU/EN]
 magnet:?xt=urn:btih:E254107E2BE5491ED5C19F655AFEB3DC243EFE1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:E254107E2BE5491ED5C19F655AFEB3DC243EFE1C
 magnet:?xt=urn:btih:C1B7CEA5446D96C0F555EAFF50CD2B5BD9920159
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:C1B7CEA5446D96C0F555EAFF50CD2B5BD9920159
 ```bash
 magnet:?xt=urn:btih:2C8B0A8D961E24F1C4BD40581B55F5CB3DDEC28A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +327,8 @@ Web-клиенты для 1С - онлайн-митап, посвященный 
 magnet:?xt=urn:btih:1430610C7D60DD43CEC413DBE47F74E644BA5DB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +355,8 @@ magnet:?xt=urn:btih:1430610C7D60DD43CEC413DBE47F74E644BA5DB1
 ```bash
 magnet:?xt=urn:btih:EAABEE0DA370AB657204931EF9011010ABCD5713
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +385,8 @@ magnet:?xt=urn:btih:EAABEE0DA370AB657204931EF9011010ABCD5713
 magnet:?xt=urn:btih:590A9E91A532656CB39A6614ACFC4F68A30E5312
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +411,8 @@ magnet:?xt=urn:btih:590A9E91A532656CB39A6614ACFC4F68A30E5312
 magnet:?xt=urn:btih:BDAE0DA5DDFC4E39A66979C7FE408F29A925481E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ SoftwareTesting | Программирование на Python для тести
 ```bash
 magnet:?xt=urn:btih:B6F9EBCEA038CC356CC04AB430E75FB4ED918799
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +466,8 @@ magnet:?xt=urn:btih:B6F9EBCEA038CC356CC04AB430E75FB4ED918799
 magnet:?xt=urn:btih:1FB45E437C73379CE957E17C21A6DA31957D8EB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +491,8 @@ Windows 10 - это операционная система. Это основн
 ```bash
 magnet:?xt=urn:btih:FA4E05576B804B0FCA3F8B7B55E33E4EE8744729
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +521,8 @@ Postgres Professional | Разработка серверной части пр�
 magnet:?xt=urn:btih:136489F24BD866812FFCEEDBE38BE59DF3729647
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +550,8 @@ magnet:?xt=urn:btih:136489F24BD866812FFCEEDBE38BE59DF3729647
 magnet:?xt=urn:btih:D5A312C861ABBF6F10F71789667F21C50E35B439
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +576,8 @@ magnet:?xt=urn:btih:D5A312C861ABBF6F10F71789667F21C50E35B439
 ```bash
 magnet:?xt=urn:btih:010A2D66BB2B871E93B62521A15A86ECD407E781
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +604,8 @@ VMware vSphere – решение виртуализации масштаба п
 ```bash
 magnet:?xt=urn:btih:B43EEDE41225B6508A1DD8A05FC0C45842FE5538
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +636,8 @@ magnet:?xt=urn:btih:B43EEDE41225B6508A1DD8A05FC0C45842FE5538
 magnet:?xt=urn:btih:7FA07BCB43AD33D2D5FD151758CFF897C2852256
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +664,8 @@ magnet:?xt=urn:btih:7FA07BCB43AD33D2D5FD151758CFF897C2852256
 magnet:?xt=urn:btih:5C362326AC22BB27108CF1426842D6ED075A2CE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +690,8 @@ ProfIT | MySQL 8 (2019) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:97577F9716E5300EA4CC75F920DB2C8C6584A27E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +715,8 @@ ProfIT | Про TDD, BDD и вот это всё (2019) PCRec [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:741613292C6DDCE0C4455BF5CD08ECA2A1F3B801
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

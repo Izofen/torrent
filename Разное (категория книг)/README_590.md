@@ -1,3 +1,29 @@
+###  Публикация: 1108560   (862709) от 25.02.2017
+
+Наталия Попович | Улучшаем зрение народными средствами (2017) [FB2]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проверенные веками средства народной медицины эффективны при лечении самых разных заболеваний! Рецепты целебных отваров и настоев для внутреннего и наружного применения, примочек, мазей на растительной основе и капель с медом избавят вас от многих недугов. Безопасные натуральные ингредиенты, возможность домашнего лечения, специально подобранные упражнения и лечебные (   Читать дальше...   )Жанр: Болезни глаз, Коррекция зрения, Народные средстваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1409746D70DACFADEE0BA63744076FC8DED03EDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108570   (862712) от 25.02.2017
 
 Наталия Попович | Лечение геморроя и варикоза народными средствами (2017) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:2A0B318CA744C9E16DF18D52A2CF7CF48B6CC692
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:2A0B318CA744C9E16DF18D52A2CF7CF48B6CC692
 magnet:?xt=urn:btih:465C143F5F312527D739DAA133A54CC8A79CBF28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:465C143F5F312527D739DAA133A54CC8A79CBF28
 ```bash
 magnet:?xt=urn:btih:B3CC7D1FC8653F96E9AA867F2642D94F5EACE335
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:B3CC7D1FC8653F96E9AA867F2642D94F5EACE335
 magnet:?xt=urn:btih:7C6346A1CCDB35F9204592FB8AC27225B1DDE9A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:7C6346A1CCDB35F9204592FB8AC27225B1DDE9A2
 magnet:?xt=urn:btih:8972AD077FA66F2D4457545C1D747295E067060E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:8972AD077FA66F2D4457545C1D747295E067060E
 ```bash
 magnet:?xt=urn:btih:25FF3709A5A6D60C1FD02C8036C5CB417187461B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:25FF3709A5A6D60C1FD02C8036C5CB417187461B
 magnet:?xt=urn:btih:8E1B6DCC921F2B28E243B0BB5596CA04BAAE33A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:8E1B6DCC921F2B28E243B0BB5596CA04BAAE33A4
 ```bash
 magnet:?xt=urn:btih:F4380C34FCB45B8F5D691EB203AE84C19C174B7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:F4380C34FCB45B8F5D691EB203AE84C19C174B7D
 magnet:?xt=urn:btih:7FA9EF6B76AD2D159948D6D4E45047E74FDA206E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:7FA9EF6B76AD2D159948D6D4E45047E74FDA206E
 magnet:?xt=urn:btih:46132E9257317D548B52F3176A0BF4BEF390CBF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:46132E9257317D548B52F3176A0BF4BEF390CBF0
 magnet:?xt=urn:btih:AA8FAF196A5F36E8A26C6E88042C4A51CBA8E089
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:AA8FAF196A5F36E8A26C6E88042C4A51CBA8E089
 ```bash
 magnet:?xt=urn:btih:07EBF7EF40A0DC7E4B6F36172D0953B1715DE85B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:07EBF7EF40A0DC7E4B6F36172D0953B1715DE85B
 magnet:?xt=urn:btih:FBDEBB0E05C29EF2652CD438C9960C17C6DB7D95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:FBDEBB0E05C29EF2652CD438C9960C17C6DB7D95
 ```bash
 magnet:?xt=urn:btih:FDE9D62D214EC115AB686DA24AA9FDB87ED9AA54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:FDE9D62D214EC115AB686DA24AA9FDB87ED9AA54
 ```bash
 magnet:?xt=urn:btih:953D1A0D3737D87133FD0D85DD5C829537B0A397
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:953D1A0D3737D87133FD0D85DD5C829537B0A397
 magnet:?xt=urn:btih:68F58D3DF782B530BB15020C3EEB3AEA0DFB9E39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:68F58D3DF782B530BB15020C3EEB3AEA0DFB9E39
 ```bash
 magnet:?xt=urn:btih:2DC96AE8F5A496811A9DDE7B26DF95480F0EDF41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:2DC96AE8F5A496811A9DDE7B26DF95480F0EDF41
 magnet:?xt=urn:btih:C9383B0BFC6D6A6840464254CACDBE5C62046539
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:C9383B0BFC6D6A6840464254CACDBE5C62046539
 ```bash
 magnet:?xt=urn:btih:2B3652798BAAFD13382523288A59D4D48305AC9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:2B3652798BAAFD13382523288A59D4D48305AC9F
 magnet:?xt=urn:btih:8E1B9237C0E0EF05722AB2B91F794908FFE46170
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:8E1B9237C0E0EF05722AB2B91F794908FFE46170
 ```bash
 magnet:?xt=urn:btih:D6AD5831EAAD82C9AA48AE13B5C97D419177F9A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:D6AD5831EAAD82C9AA48AE13B5C97D419177F9A9
 magnet:?xt=urn:btih:38F6315EBC0811BF08EBD0EA7FDEFFE2F850EF58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:38F6315EBC0811BF08EBD0EA7FDEFFE2F850EF58
 ```bash
 magnet:?xt=urn:btih:4D67A6210DF980F6E00E96815A76EE10CECF5AA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:4D67A6210DF980F6E00E96815A76EE10CECF5AA3
 magnet:?xt=urn:btih:1484DD3B494E827078BB0FA621116B36E39D7A73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,29 +681,7 @@ magnet:?xt=urn:btih:1484DD3B494E827078BB0FA621116B36E39D7A73
 magnet:?xt=urn:btih:D9A7D3238E1CCDFA9DD5C14CB54B791E3AFA6AFF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375883   (863595) от 15.04.2020
-
-Себастьян Хафнер | Некто Гитлер. Политика преступления (2019) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863595.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Anmerkungen zu Hitler» («Примечания к Гитлеру») немецкого историка Себастьяна Хафнера (1907–1999) – аналитический комментарий к его художественному бестселлеру «История одного немца» (1939), написанный спустя сорок лет (1978). И сегодня – еще через сорок лет – это ясное и глубокое исследование феномена политического чудовища обладает всеми качествами безусловного (   Читать дальше...   )Жанр: Биографии и мемуары, Зарубежная публицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E66999A48D4192CA9E00EF7EDBC3353D08268D2B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

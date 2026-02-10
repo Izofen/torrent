@@ -19,6 +19,8 @@ NG. Путешествия с Гордоном Рамзи / Gordon Ramsay Unchar
 magnet:?xt=urn:btih:E18CAEF021E32ECCDE69955B8F9FF3958B04AA55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ NGW: Поместье луговой собачки / Prairie Dog Manor (2019) H
 magnet:?xt=urn:btih:166E4473161CE3614F20A58C4DF0EC7C2036D5FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:166E4473161CE3614F20A58C4DF0EC7C2036D5FA
 ```bash
 magnet:?xt=urn:btih:E17E2A93B63C3668DFC6A1BAF3523FD51167C6FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:E17E2A93B63C3668DFC6A1BAF3523FD51167C6FE
 magnet:?xt=urn:btih:2767A4A5A6FA5E29DD8C68D33C034B9E8CB6FEF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Cфинкс – чудовищная живая статуя. Ужасный п�
 ```bash
 magnet:?xt=urn:btih:3C032350B68EEFB544AAF360796EF78F12ADCA5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:3C032350B68EEFB544AAF360796EF78F12ADCA5D
 magnet:?xt=urn:btih:31EB7E30A22CEB8B30DB6AEB4D048DE677BC7153
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:31EB7E30A22CEB8B30DB6AEB4D048DE677BC7153
 ```bash
 magnet:?xt=urn:btih:021C98FDF72105EE8A1DE3AEE31673A57DD98F00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:021C98FDF72105EE8A1DE3AEE31673A57DD98F00
 magnet:?xt=urn:btih:10BE0C5440175546621CC93A4AFBE4AB7EF06B90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Discovery. Махинаторы. Машина мечты / Wheeler Dealers: Drea
 ```bash
 magnet:?xt=urn:btih:8FE54388AD3BB01B8F468B8F185983A252BFEFA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:8FE54388AD3BB01B8F468B8F185983A252BFEFA8
 magnet:?xt=urn:btih:E8E2D6CCFAFB68554F1DE0C9020978330286C6EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2023) 
 ```bash
 magnet:?xt=urn:btih:B706798D4F42DBFD9C256761E0C00AAB5617AB3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:B706798D4F42DBFD9C256761E0C00AAB5617AB3C
 magnet:?xt=urn:btih:26FD69B75D0C73499A2B77AA112366EFDFA2D001
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:26FD69B75D0C73499A2B77AA112366EFDFA2D001
 ```bash
 magnet:?xt=urn:btih:21BF88037AA635BA93B574A89BBAA00C99AFCA30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:21BF88037AA635BA93B574A89BBAA00C99AFCA30
 magnet:?xt=urn:btih:A04D75740694EDC0DF3237437B5F77FD033DB4F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ BBC. Чувствуешь ли ты это - Как танцевальная м�
 ```bash
 magnet:?xt=urn:btih:5F11FDE87FA4114BB141225863A5221C2706AA3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:5F11FDE87FA4114BB141225863A5221C2706AA3B
 magnet:?xt=urn:btih:3A7FBA1BA40BB014BA5BC7D15BDD9031B6E7BD37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ NGW: Чудеса океана / Wonders of The Ocean (2019) WEBRip [H.264/1080p
 ```bash
 magnet:?xt=urn:btih:84CB9ADF69CFAC568C4C1BDCCA17F8B50C0043CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:84CB9ADF69CFAC568C4C1BDCCA17F8B50C0043CB
 magnet:?xt=urn:btih:C2A2E1F0703C6EFE5F59227320F5672D5DD291A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ NGW. Путешествие по Атлантике / Facing The Atlantic (2011)
 ```bash
 magnet:?xt=urn:btih:0A7E65D3C45FB85AB46D0256E03109248EC61C08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ magnet:?xt=urn:btih:0A7E65D3C45FB85AB46D0256E03109248EC61C08
 magnet:?xt=urn:btih:B14EBCED85C8F128FFA0AD930D8C8A395E00CAED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ magnet:?xt=urn:btih:B14EBCED85C8F128FFA0AD930D8C8A395E00CAED
 ```bash
 magnet:?xt=urn:btih:9E5B4ED5086CD256ECAD4A5842CCF09867C193EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ NG. Тайны слонов / Secrets of the Elephants (2023) WEB-DL [H.264/1080
 magnet:?xt=urn:btih:4C1C76CE89AB80000E67124AC4205148E3A1CC7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ NG. Львы с Крокодильей реки / Lions of Crocodile River (2007
 ```bash
 magnet:?xt=urn:btih:3612B8D9A7CD8D0D6EA542A40B30444548E8B2C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ magnet:?xt=urn:btih:3612B8D9A7CD8D0D6EA542A40B30444548E8B2C0
 magnet:?xt=urn:btih:19129E4D26A08C6BBF8BDA2DC24B9AAC0765A563
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ NG. Море надежды. Подводные сокровища Америк�
 magnet:?xt=urn:btih:DADB9231AF439D6B9DE54ED99B05C3DB4F5D3EC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ magnet:?xt=urn:btih:DADB9231AF439D6B9DE54ED99B05C3DB4F5D3EC5
 ```bash
 magnet:?xt=urn:btih:72322489CBA0F320F5A530DF88EE06D288DF53DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:2C4EA05D5313BED5563684BE70B799C154798FCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -фа
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -фа
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ Gregori Klosman - Klosmania - Episode (01-09) (2011-2012) [MP3|160-192 kbps]<Hou
 magnet:?xt=urn:btih:CC4FF9442BFA74FC786CACEC725690549DE4C3A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ Daum PotPlayer - это мультимедийный проигрыватель 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ Superstars — профессиональная рестлинг шоу от м�
 magnet:?xt=urn:btih:3D14D71B619E4D97FCD65211CAFA03D2440574D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:3D14D71B619E4D97FCD65211CAFA03D2440574D2
 ```bash
 magnet:?xt=urn:btih:9B63E7AFEB2098F1FEB340AEB1FF6CCF04D55F9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:9B63E7AFEB2098F1FEB340AEB1FF6CCF04D55F9A
 magnet:?xt=urn:btih:AB3AF23F406CCF09FB0C66577E4AB0DF18139B6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:AB3AF23F406CCF09FB0C66577E4AB0DF18139B6F
 magnet:?xt=urn:btih:0DA069B9D163CB6B10C2FDB16EBECB1844B7761C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:0DA069B9D163CB6B10C2FDB16EBECB1844B7761C
 ```bash
 magnet:?xt=urn:btih:11C1A1164636B4D782EFA8B05FA39170DA299C60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:11C1A1164636B4D782EFA8B05FA39170DA299C60
 magnet:?xt=urn:btih:79FE948BC72B1B68EA4F11827CE8648AB1D0E826
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:79FE948BC72B1B68EA4F11827CE8648AB1D0E826
 magnet:?xt=urn:btih:A6BF435C57FD7ADA841BFB8145CDD0EA575EFEFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:A6BF435C57FD7ADA841BFB8145CDD0EA575EFEFC
 ```bash
 magnet:?xt=urn:btih:5FAFB89FAECC5D30766CAFADDC20C67127A240F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ Talpa - The Path (2011) [MP3|320 kbps]<Psychedelic Trance>
 magnet:?xt=urn:btih:8054AF759F290F21D060010FB0DC5B0B7A564E13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +408,8 @@ magnet:?xt=urn:btih:8054AF759F290F21D060010FB0DC5B0B7A564E13
 magnet:?xt=urn:btih:760E4ADE9581AA263E05AA53DAEAF37ABF97DBDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:760E4ADE9581AA263E05AA53DAEAF37ABF97DBDB
 ```bash
 magnet:?xt=urn:btih:35FEC0CAC7009E3E99C9C704515627E5593AB23E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ Q-Dir – бесплатный отличный файловый менедже�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ Q-Dir – бесплатный отличный файловый менедже�
 ```bash
 magnet:?xt=urn:btih:85F12716C5D2CD681C754A755D3F393091848955
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:85F12716C5D2CD681C754A755D3F393091848955
 ```bash
 magnet:?xt=urn:btih:443AC27A7A1A57D8B5279998BCDE8DBD5FAE5561
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +549,8 @@ Sunnery James played:
 magnet:?xt=urn:btih:4E3180CE693B84F9E2CA1DD12DF476D029D5668E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +584,8 @@ Stanislaw Soyka (4CDs, 1991-2004) [FLAC|Lossless] <Polish Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +614,8 @@ Stanislaw Soyka (4CDs, 1991-2004) [FLAC|Lossless] <Polish Jazz>
 magnet:?xt=urn:btih:2267F72201E6AC8AAA6C986887855E8C4909B95C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +643,8 @@ AudioGrail 7.0.1.178 [Multi]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +679,8 @@ Drakkar - When Lightning Strikes (2012) [FLAC|Lossless]<Power Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +712,8 @@ Divine Temptation - Killer Suites (2012) [MP3|320 kbps]<Modern Math Progressive 
 magnet:?xt=urn:btih:F70BEF6936E70B89C36EF336088F1BED5C43990E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +740,8 @@ magnet:?xt=urn:btih:F70BEF6936E70B89C36EF336088F1BED5C43990E
 ```bash
 magnet:?xt=urn:btih:855A164BAD56417F24FA8B19AA4D21FCFFC7A6F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

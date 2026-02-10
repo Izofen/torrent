@@ -22,6 +22,8 @@ Side A:
 magnet:?xt=urn:btih:71F207E6629AC8C46C0C88C5F6B30D40BCA9CBD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Hellish Form - 3 Albums (2020-2023) [FLAC|Lossless|WEB-DL|tracks] <Funeral drone
 ```bash
 magnet:?xt=urn:btih:FD89291CC1635D6773006CFC8D314BD75F6F2AFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Jay Jay Johnson Sextet - With Clifford Brown, Vol.1 (1953, 1954) 1995, Toshiba-E
 magnet:?xt=urn:btih:E065EBE8226DC8D5E0D04122F0FA8EC2E9099592
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ DaVinci Resolve — единственное в мире решение для �
 ```bash
 magnet:?xt=urn:btih:3B5C448E040BDA66A6F882AA099CC5D22E43470F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Helgrind - Insurrection (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thras
 magnet:?xt=urn:btih:FF03266FDB5CEC9BB9B7CE3B71E37749D8BC5F68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ VA - Meditation Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Meditation, Piano>
 magnet:?xt=urn:btih:D571D6CC3AD2B7D057AE834988F3D740C22347F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:D571D6CC3AD2B7D057AE834988F3D740C22347F6
 magnet:?xt=urn:btih:0CFFA12F06CBFC064650C6DA3A18BCE978A8B3A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:0CFFA12F06CBFC064650C6DA3A18BCE978A8B3A6
 ```bash
 magnet:?xt=urn:btih:6831425E35D5E552F610D0F9A48FED6A03047183
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ PDF24 Creator - бесплатная программа, которая позв
 magnet:?xt=urn:btih:288D8305551A9C1B9358615888A4CFD25344F25B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-
 magnet:?xt=urn:btih:CE7E08A626392FD68328FC3AD2E3693AE6425ACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ XYplorer – удобный мультивкладочный файловый м
 ```bash
 magnet:?xt=urn:btih:C3823528F9EC21789350404CE85968A7D54AA8AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:C3823528F9EC21789350404CE85968A7D54AA8AD
 magnet:?xt=urn:btih:3991AB0752C2A40BF120CC903776E5D365037136
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:3991AB0752C2A40BF120CC903776E5D365037136
 magnet:?xt=urn:btih:0870EFF83354ECAE82A926DF3B1F17E296C07FDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ Connected Hearts 3: The Musketeers Saga / Связанные любовью 3: �
 ```bash
 magnet:?xt=urn:btih:758807C819A1126A58074C93E7F1734342770D8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ MacPilot 13 v13.0.1 [En]
 magnet:?xt=urn:btih:75D9821757EB622F99DDFC3597E3861EEA6809EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ SimpleMind - это инструмент для построения интел�
 magnet:?xt=urn:btih:CC71042F30B2B377157930462E9BD750D930F362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:CC71042F30B2B377157930462E9BD750D930F362
 ```bash
 magnet:?xt=urn:btih:8F3B14235EECD2FD70A503F9E342E609842378D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:8F3B14235EECD2FD70A503F9E342E609842378D7
 magnet:?xt=urn:btih:6B853F1CF07BC7A02DB17C5B582B224C31341D27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:6B853F1CF07BC7A02DB17C5B582B224C31341D27
 magnet:?xt=urn:btih:7B4FA337445565D54677BC35613D0214CF84B2F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:7B4FA337445565D54677BC35613D0214CF84B2F1
 ```bash
 magnet:?xt=urn:btih:DCB90D3917B4C957BE1E32C897A0E192CB803798
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 magnet:?xt=urn:btih:64B24D2539EEF3D6281D4514011997A67340F74D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:64B24D2539EEF3D6281D4514011997A67340F74D
 ```bash
 magnet:?xt=urn:btih:0172C301F994FAA9A761AB94E25D659E2924313B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ Rob Tyner - Blood Brothers (1990) [FLAC|Lossless|tracks] <Rock, Classic Rock, Ha
 magnet:?xt=urn:btih:1245DF6DE6770D7FFE397D8DABD1AAEB24D26930
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ Recursive Ruin (2022) [Ru/Multi] (22.05.17) License GOG
 ```bash
 magnet:?xt=urn:btih:39CB569FDEA285632684E10397F231B84097CE6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ Music Editor / Музыкальный редактор - весьма и вес�
 magnet:?xt=urn:btih:F3350B9DD871227AAD19FC53CD8DB54DB5D88A17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ Opera Crypto Browser 99.0.4788.13 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AC23664D8CD4365F5A622AEAC88D780621ABE577
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

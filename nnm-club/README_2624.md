@@ -22,6 +22,8 @@ VA - Dream Electric (2018) 2LP [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowa
 magnet:?xt=urn:btih:D9CECE3E36E3B78CBBBD539BA4C0A12F2F47BFFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ TuneIn объединяет спортивные события, музыку, �
 magnet:?xt=urn:btih:30F1BAE9357D698D714CE960B0ED60E90AD2CB09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Lighting calculations / Расчеты освещения v6.1.1 Mod by Balatan 
 ```bash
 magnet:?xt=urn:btih:8CF37C9A064DDACAE8DDAFCD661E0469B34D8A47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ Xreveal работает в фоновом режиме, автоматичес�
 magnet:?xt=urn:btih:A778ED011CA300194C151A6F69A5D40B08B9798A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:A778ED011CA300194C151A6F69A5D40B08B9798A
 magnet:?xt=urn:btih:15D3B51B051CB4853239E81688D87EF295C61DFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:15D3B51B051CB4853239E81688D87EF295C61DFC
 ```bash
 magnet:?xt=urn:btih:31A9CE85B8B25A5C974CEFB7FE9C8E25CF2D88A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ CD1 - Overkill:
 magnet:?xt=urn:btih:39DB9901D80F21716E33E93B45965A3622D63096
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:39DB9901D80F21716E33E93B45965A3622D63096
 ```bash
 magnet:?xt=urn:btih:6B50120AADC23965CC63B76DE232224D3A7D803A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ VA - Disco Cuts (2018) [FLAC|Lossless|WEB-DL|tracks] <Disco, Pop>
 magnet:?xt=urn:btih:EC21AC153A0E26959DDE8F59D9EBE6D564AC2AE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:EC21AC153A0E26959DDE8F59D9EBE6D564AC2AE2
 ```bash
 magnet:?xt=urn:btih:E648C405B1BD0A0B4B30ED0F5FD405FA094403C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:E648C405B1BD0A0B4B30ED0F5FD405FA094403C5
 magnet:?xt=urn:btih:4EA4CC14A82CDD0E58D3D08998761BE422FD27B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:4EA4CC14A82CDD0E58D3D08998761BE422FD27B3
 magnet:?xt=urn:btih:4AF4B28E07D297DDCEAC45DB2DFDE790BF1E6EAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ reaConverter Pro - мощный инструмент для тех, кто им�
 magnet:?xt=urn:btih:3227A906115DCD711CE723D0810F4780F9280B6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:3227A906115DCD711CE723D0810F4780F9280B6B
 magnet:?xt=urn:btih:D1F2254AB31482253C7B93ACB53E6A79F88E1062
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:D1F2254AB31482253C7B93ACB53E6A79F88E1062
 ```bash
 magnet:?xt=urn:btih:13632A8B70E810E0FA5F1DEE52DF8407B274D0BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ AI - AzizRush. Я просто стал слеп (2025) [MP3|320 Kbps] <Metal>
 magnet:?xt=urn:btih:1A36F791610C985DD8D9A43374EE74633EBCC271
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ Victoria Nordmann - Love & Disco (2025) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disc
 magnet:?xt=urn:btih:657526DE6BC8DEDA2121554B81B06346050B2765
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ magnet:?xt=urn:btih:657526DE6BC8DEDA2121554B81B06346050B2765
 ```bash
 magnet:?xt=urn:btih:5F2E2B0B96DF2A86572C9001AC94FF9A4E9F0809
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:5F2E2B0B96DF2A86572C9001AC94FF9A4E9F0809
 magnet:?xt=urn:btih:CC66AB694980ED24BE4DB4BAD2A118445A74DFF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:CC66AB694980ED24BE4DB4BAD2A118445A74DFF8
 ```bash
 magnet:?xt=urn:btih:3A3360CBAEC298B6ADC60A7E79BC5DE5D7BAF23F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:3A3360CBAEC298B6ADC60A7E79BC5DE5D7BAF23F
 magnet:?xt=urn:btih:F5D3F1E785482D83857BAC480E060F67BC070716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ magnet:?xt=urn:btih:F5D3F1E785482D83857BAC480E060F67BC070716
 ```bash
 magnet:?xt=urn:btih:3EEF2F011311E2DD122B9DA49326DB479CFCE875
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +621,8 @@ magnet:?xt=urn:btih:3EEF2F011311E2DD122B9DA49326DB479CFCE875
 magnet:?xt=urn:btih:5E9DF7CE1F467460B24000BCC5DC87D5AACEADDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +647,8 @@ Ocean Match / Рыбки: Три в ряд v3.1.0 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:142E6A57A91B9B447D7569C69B179E0486CAAADC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +677,8 @@ magnet:?xt=urn:btih:142E6A57A91B9B447D7569C69B179E0486CAAADC
 magnet:?xt=urn:btih:9AE8E9645B8B8567F24BF5FB403165CA2168FE91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ magnet:?xt=urn:btih:9AE8E9645B8B8567F24BF5FB403165CA2168FE91
 ```bash
 magnet:?xt=urn:btih:7E63309E58AB73FED212D389F826A19B7EF3B548
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

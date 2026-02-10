@@ -1,27 +1,3 @@
-###  Публикация: 619323   (968411) от 15.02.2013
-
-Кокон / Cocoon (1985) [H.264] BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Трое старичков-приятелей монотонно коротали последние деньки в доме престарелых. Случайно по соседству на заброшеном участке они обнаружили бассейн. Жизнь приобрела смысл. Старики частенько стали уходить в "самоволку", дабы окунуться в прохладном бассейне. Через какое-то время в бассейне появляются загадочные коконы, поросшие водорослями и ракушками. Они превращают бассейн в источник живой воды: раз искупавшись, старики чувствуют невероятный прилив сил, они буквально молодеют на глазах... Старички резко возжелали омолодиться и увязались в увлекательную, но небезопасную авантюру, которая сопряжена со множеством нарушений и шумаЖанр: фантастикаРежиссер: Рон ХовардАктеры: Дон Амичи (Art Selwyn), Уилфорд Бримли (Ben Luckett), Хьюм Кронин (Joe Finley), Брайан Деннехи (Walter), Джек Гилфорд (Bernie Lefkowitz), Стив Гуттенберг (Jack Bonner), Морин Стейплтон (Mary Luckett), Джессика Тэнди (Alma Finley), Гвен Вердон (Bess McCarthy), Херта Уэр (Rosie Lefkowitz), Тэхни Уэлч (Kitty), Бэррет Оливер (David)Перевод: Дублированный, многоголосый закадровый, авторскийЯзык субтитров: Русские, английскиеПродолжительность: 01:57:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D6CA2ACCC7518D6BBBFD7FCC0515736EAA7E98E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976595   (968472) от 18.01.2016
 
 Эгон Шиле – Скандал / Egon Schiele - Exzesse (1980) DVDRip
@@ -44,6 +20,8 @@ magnet:?xt=urn:btih:5D6CA2ACCC7518D6BBBFD7FCC0515736EAA7E98E
 ```bash
 magnet:?xt=urn:btih:76D053CE13B88AF59852DA1B8A74774C598B186D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +47,8 @@ magnet:?xt=urn:btih:76D053CE13B88AF59852DA1B8A74774C598B186D
 magnet:?xt=urn:btih:924BBF351493C612D4EFE67F5F238D57A3213CC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +72,8 @@ magnet:?xt=urn:btih:924BBF351493C612D4EFE67F5F238D57A3213CC7
 ```bash
 magnet:?xt=urn:btih:C9787CC86E86C6C0A9EB9C871F91167B3A86E8D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +101,8 @@ magnet:?xt=urn:btih:C9787CC86E86C6C0A9EB9C871F91167B3A86E8D3
 magnet:?xt=urn:btih:D5B224996C1C9F5F4428D38168922F41CEB4F45A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +126,8 @@ magnet:?xt=urn:btih:D5B224996C1C9F5F4428D38168922F41CEB4F45A
 ```bash
 magnet:?xt=urn:btih:98A0299865A22B23ACB6831B1DBEC62DE260C75A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +153,8 @@ magnet:?xt=urn:btih:98A0299865A22B23ACB6831B1DBEC62DE260C75A
 magnet:?xt=urn:btih:507E1D74B0E03EB09B1EC3EBFA2F4F9A16A22CB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +178,8 @@ magnet:?xt=urn:btih:507E1D74B0E03EB09B1EC3EBFA2F4F9A16A22CB6
 ```bash
 magnet:?xt=urn:btih:BC4A1E1084F0FB21E0807AA6DE9E862F73000E31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +206,8 @@ magnet:?xt=urn:btih:BC4A1E1084F0FB21E0807AA6DE9E862F73000E31
 magnet:?xt=urn:btih:8DC872C5BAB1B53957C8CF612B672E910713619E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +231,8 @@ magnet:?xt=urn:btih:8DC872C5BAB1B53957C8CF612B672E910713619E
 ```bash
 magnet:?xt=urn:btih:FB049660323133289C64F52592BBA29B9FAAAEF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +258,8 @@ magnet:?xt=urn:btih:FB049660323133289C64F52592BBA29B9FAAAEF8
 magnet:?xt=urn:btih:C798BC2ABA709C56BA76C8D19FB5C42EB9F846AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +284,8 @@ magnet:?xt=urn:btih:C798BC2ABA709C56BA76C8D19FB5C42EB9F846AE
 magnet:?xt=urn:btih:11138E9C3D950D79A08AA9C8EC41AADAC25AED3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +309,8 @@ magnet:?xt=urn:btih:11138E9C3D950D79A08AA9C8EC41AADAC25AED3C
 ```bash
 magnet:?xt=urn:btih:8600F4D99DED8EFB8183ECC937C7564704F210AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +337,8 @@ magnet:?xt=urn:btih:8600F4D99DED8EFB8183ECC937C7564704F210AD
 magnet:?xt=urn:btih:BE84F209BF80FCECB96A4CE56465FC6C5EAADFDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +362,8 @@ magnet:?xt=urn:btih:BE84F209BF80FCECB96A4CE56465FC6C5EAADFDB
 ```bash
 magnet:?xt=urn:btih:CFA481C0D752F7074275A0D8DD6114CDD7C0BD35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +389,8 @@ magnet:?xt=urn:btih:CFA481C0D752F7074275A0D8DD6114CDD7C0BD35
 magnet:?xt=urn:btih:6A06A3C9C38D0E1D399A777B94295FD22E551440
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +415,8 @@ magnet:?xt=urn:btih:6A06A3C9C38D0E1D399A777B94295FD22E551440
 magnet:?xt=urn:btih:96CD0DFDA851502CC8302AF707C2016325B56897
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +440,8 @@ magnet:?xt=urn:btih:96CD0DFDA851502CC8302AF707C2016325B56897
 ```bash
 magnet:?xt=urn:btih:D68157677746426769D55A4E377284C8131D7158
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +469,8 @@ magnet:?xt=urn:btih:D68157677746426769D55A4E377284C8131D7158
 magnet:?xt=urn:btih:00AB087605588495C60DD9D664A82A7C82B0EE59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +495,8 @@ magnet:?xt=urn:btih:00AB087605588495C60DD9D664A82A7C82B0EE59
 magnet:?xt=urn:btih:95318AE7F20DA0D082065591E6041E60B69C4152
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +520,8 @@ magnet:?xt=urn:btih:95318AE7F20DA0D082065591E6041E60B69C4152
 ```bash
 magnet:?xt=urn:btih:C4E7D7E3C16F264836A413417AE0C1A6D11BD1B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +550,8 @@ magnet:?xt=urn:btih:C4E7D7E3C16F264836A413417AE0C1A6D11BD1B4
 magnet:?xt=urn:btih:E7459E809996DB8C5F09DC8FC7A778677D8D7DE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +576,8 @@ magnet:?xt=urn:btih:E7459E809996DB8C5F09DC8FC7A778677D8D7DE3
 ```bash
 magnet:?xt=urn:btih:FD93893A023E9E3F454833F91E1F3AB8954B1F60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +605,8 @@ magnet:?xt=urn:btih:FD93893A023E9E3F454833F91E1F3AB8954B1F60
 magnet:?xt=urn:btih:0A7D94EB638ED37634067E07EDFDF26ADBA5C502
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +630,8 @@ magnet:?xt=urn:btih:0A7D94EB638ED37634067E07EDFDF26ADBA5C502
 ```bash
 magnet:?xt=urn:btih:5A7BB6538E6E810E0CACCAABED7C2CA98B22A178
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +657,34 @@ magnet:?xt=urn:btih:5A7BB6538E6E810E0CACCAABED7C2CA98B22A178
 ```bash
 magnet:?xt=urn:btih:DF5BBFB06A08B2A23DF5457F4BB83C3B4236D394
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 744430   (971906) от 11.01.2014
+
+Свидание со смертью / Appointment with Death (1988) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+На месте археологических раскопок в Палестине произошло загадочное убийство. И, естественно, Пуаро берется за расследование.Жанр: Триллер, Драма, Криминал, ДетективРежиссер: Майкл УиннерПродюсер: Майкл Уиннер, Йорам Глобус, Менахем ГоланАктеры: Питер Устинов, Лорен Бэколл, Кэрри Фишер, Джон Гилгуд, Пайпер Лори, Хейли Миллз, Дженни Сигроув, Дэвид Соул, Николас Гест, Валери Джин РичардсПеревод: Одноголосый закадровый (Старый Бильбо)Продолжительность: 01:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACE48EEAC75F90221B0C03BF260B806255A04A5F
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

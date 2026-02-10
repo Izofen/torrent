@@ -22,6 +22,8 @@ VA - Defected present: For The Love Of House, Vol. 10 (2016) [MP3|320 Kbps] <Hou
 magnet:?xt=urn:btih:004EB96A1C6A434CF417C2E9E2A02EC265B48BD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Technique Summer (100 Percent Drum and Bass) (2019) [MP3|320 Kbps] <Drum & 
 ```bash
 magnet:?xt=urn:btih:D2A68C3DF025C8FE7A6E28F78F770510727011E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Yellow Bikini, Vol. 1 (2016) [MP3|320 Kbps] <Deep House, Electronic, Progre
 magnet:?xt=urn:btih:617B615422F5550030324FAA97677445B8861C4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - DUBAI: Best Lounge Music, Vol. 3 (2016) [MP3|320 Kbps] <Lounge, ChillOut>
 ```bash
 magnet:?xt=urn:btih:B6461C51FD7B4F17EC166CF07206437CF6D43745
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - I Love Chill: Finest Ambient Lounge and Chillout Music (2016) [MP3|320 Kbps
 magnet:?xt=urn:btih:0CB6A2DDCA491A9E65F3179D1AA67A42F10CC5C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Ibiza Beach Lounge And Chill House (Summer 2016) (2016) [MP3|320 Kbps] <Lou
 ```bash
 magnet:?xt=urn:btih:C9F5E91C76F9912E88092FA7076ACC881D5F4544
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - DUBAI: Best Lounge Music, Vol. 1 (2016) [MP3|320 Kbps] <Lounge, ChillOut>
 magnet:?xt=urn:btih:3A4913EEA828CCBD32B90E6562250EFEB2AA1807
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Biopsyhoz (Биопсихоз) - Осознание (2022) [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:0011FED949CD78D330FB537032CC1DDE8013A534
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Anthéne (Anthene) - Asymmetry (2019) Whitelabrecs [FLAC|Lossless|tracks+.cue] <
 magnet:?xt=urn:btih:FF6E8CDBAECF50EA3442116F4D6F1CD566BD25B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ HVL - Rhythmic Sonatas (2019) Bassiani [FLAC|Lossless|Vinyl|tracks] <Acid, Techn
 ```bash
 magnet:?xt=urn:btih:A312CBFA21BCB531BF79F6228462D80FD2FA43FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - !Kollections 01: The Club (2016) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:AC05DB39235D2D87F96EC64C3A7C217B49715454
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - My Favorite Selection Of Lounge (2015) [MP3|320 Kbps] <Downtempo, Chillout,
 ```bash
 magnet:?xt=urn:btih:E6C2EEB0671E22450306735CF726E74C61A265E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Permanent Vacation 4 (2016) [MP3|320 Kbps] <Deep House, Chillout>
 magnet:?xt=urn:btih:95871ACF376AFC01E81061F91AE3C1766804C1B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - After EDM Lounge Vol 1 (2015) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:83B150BCB460634EB19705524413B81971CCE36C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - After EDM Lounge, Vol. 2 (2015) [MP3|320 Kbps] <Lounge, ChillOut>
 magnet:?xt=urn:btih:2BA2DE76443176A5ED60404A495855DA499F18F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Coffee Break Vol.1: Wonderful Restaurant Lounge and Bar Background Music (2
 ```bash
 magnet:?xt=urn:btih:0003D791A1DAAC59F202F51D6F9195452B8A3B9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - A 40 Track Compilation: Hong Kong (2019) [MP3|320 Kbps] <House, Progressive
 magnet:?xt=urn:btih:E246E9B124B2F4F6C76C200EC99A3AF85788FD37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Slacker - Leviathan (2019) Lobster Theremin [FLAC|Lossless|WEB-DL|tracks] <Elect
 ```bash
 magnet:?xt=urn:btih:DD4C0D14DCE8299FD5B0E2E73C0B25D1CD796234
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - Planet of the Bass (2017) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:1268F203AD427100CE37D151108726E4E729CC67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +571,8 @@ Andy Pickford - Orgonon (2017) [MP3|320 Kbps] <Electronic, Ambient, Prog Rock>
 ```bash
 magnet:?xt=urn:btih:BDD4E414F2FBE70BDDB7D71B585BFF6C0CC7E4CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +601,8 @@ Rodriguez Jr. - Bittersweet (2011) [FLAC|Lossless|tracks + .cue] <Deep House, Te
 magnet:?xt=urn:btih:257CC3E966E2943C8063F5B01F652DDCFFD70843
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +629,8 @@ VA - Beach Party Ibiza 2017  [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:3BEC49918A491B49D28D815EC4C5FAF86BD4C938
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +659,8 @@ VA - 1st Ladies in the House (2017) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:735E08250E1C5B41D4E68A4BC2134A164FEE9247
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ VA - Best of Lounge 2018 (Special Selection) Vol. 3  [MP3|320 Kbps] <Balearic, D
 magnet:?xt=urn:btih:897B8EF2934BDC25DDE0BF6A78A94F12F5735043
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +715,8 @@ Label Pack - Supercell Recordings - 14 Releases (2015-2016) [MP3|320 Kbps] <Tran
 ```bash
 magnet:?xt=urn:btih:9C21A3C4079BDCF1A316BB80822FDCE3D18ADC05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -694,6 +744,8 @@ C.C.C.P. - Album & Compilation (1990, 1992) [MP3|320 Kbps] <Electronic, Industri
 ```bash
 magnet:?xt=urn:btih:5D370F2796EBC339972111CB9EC2AB3A86B000EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

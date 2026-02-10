@@ -20,6 +20,8 @@ RTimelapse — приложение предназначено исключит�
 magnet:?xt=urn:btih:31796BF975D123D1D209458FE1B7A2AD41D9B88B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ AutoKrypt 13 for Mac 13.09 U2B [En]
 ```bash
 magnet:?xt=urn:btih:8C63044CCD882F1D0643CA62C6FFEB08C7FFBCAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Automize - пакет программ автоматизации для пов�
 magnet:?xt=urn:btih:2FAB8088F226AB132F02F65B3D7A4C11435ADA95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ DoubleTake - приложение предназначено тем пользо
 ```bash
 magnet:?xt=urn:btih:ED4014AD1717FFD4D777D8411E23BBCFEF9B19D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Vellum 3.6.4 [En]
 magnet:?xt=urn:btih:D05E8B2256C3C7F9336CEBFDFE1E871D3CCA8C3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ TinkerTool System - утилита для управления скрытыми 
 ```bash
 magnet:?xt=urn:btih:A3FC76426DF7B5632142591E2F1B4C5A69343948
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Finder нежелательных файлов сканирует ваши фа�
 magnet:?xt=urn:btih:B625E9BB2A8F717E191E49145E157355D664A0C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Air Printer может превратить ваш Mac в виртуальный
 ```bash
 magnet:?xt=urn:btih:F5A46F2EEDB03426DB22883176D56F3A8D5CAF56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ RazorSQL – приложение  для управления основным�
 magnet:?xt=urn:btih:B7FC2067F07A6725B4557F9C872ABF6AA83E26ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:B7FC2067F07A6725B4557F9C872ABF6AA83E26ED
 ```bash
 magnet:?xt=urn:btih:09033423ABB3AA6260DF081C6C79243FA0D576EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Find Any File не содержит никаких подменю с настр�
 magnet:?xt=urn:btih:21857C8B7DA0F6E09CBA9B63AA2DCDFC04D3D508
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ ACDSee Photo Studio 10 for Mac v.10.0.4 [En]
 ```bash
 magnet:?xt=urn:btih:5A62BC0F54D494C18A4DB5DEB29327F240B2BA28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Mellel предлагает специальные инструменты для
 magnet:?xt=urn:btih:BECB93AB49DBDC13C9021EF966506EEEC4C88CE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ KOMPLETE KONTROL — это простой в использовании инс�
 ```bash
 magnet:?xt=urn:btih:9B8A8240962A45EE408C4626BF60A9B70B2545D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ EasyGantt Classic  4.3.0 [En]
 magnet:?xt=urn:btih:CCAD6C9F0E32E32B1DB9EEEC2FAC41C8F41A9D53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Myary 2.5.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:5AD0B2065F5449A3518D4CBA9C89E3A9B5469F95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:5AD0B2065F5449A3518D4CBA9C89E3A9B5469F95
 magnet:?xt=urn:btih:512E2EF1D302C549451135CE60D5642E62DD0331
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ FabFilter TotalBundle - содержит коллекцию последних �
 ```bash
 magnet:?xt=urn:btih:BA097249A2E258094B12128F04AEEB2CE1FF2DEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Cookie - (   Читать дальше...   )Тип издания: macOS Softw
 magnet:?xt=urn:btih:874BD405EBC1568851C34CE4E81EF5CC314C069B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Coming soon 3 v.3.20 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9DDD8B9F975E5572279B202951E5200E2F547220
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Moom 3.2.26 [En]
 magnet:?xt=urn:btih:F8DC895B536769D65D1421993306D6C4A3861F71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ BlueHarvest - утилита, помогающая автоматизирова�
 magnet:?xt=urn:btih:3DC392E88796D48926A483EB93C92BF3C76D6A46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ Video Cut&Crop&Join for Mac 3.8 [En]
 magnet:?xt=urn:btih:55EE18E2E10EA2F3477FB6AE5AD5916F2FF574C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Wirecast предлагает доступное программное обес
 ```bash
 magnet:?xt=urn:btih:EC949F319036F91C465DE3DA61C12871B78641EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Barcode предлагает Вам все необходимые инструм
 magnet:?xt=urn:btih:C494037B5CFA690F85730F46C1A547CFACACCA70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Persecond - это простой и увлекательный способ с�
 ```bash
 magnet:?xt=urn:btih:23D5A0EEFD10F9AE0EF4B0F87D145ADE7A2EB038
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

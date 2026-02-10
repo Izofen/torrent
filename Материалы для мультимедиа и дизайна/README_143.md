@@ -24,6 +24,8 @@ Editors Themekit 40: Flower Pop - Комплект анимации для оф�
 magnet:?xt=urn:btih:FC5FB6FCA2D90E76BD98FEB1139E6B4A08895F97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:FC5FB6FCA2D90E76BD98FEB1139E6B4A08895F97
 ```bash
 magnet:?xt=urn:btih:1899CAC9F4E8FE1BBE849051F2A0680839777976
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ Animated Canvases Collection 02: Starting Points - Эта коллекция р�
 magnet:?xt=urn:btih:54771EFCC0E3EB088062223189397E72B49A4A80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ Editor's Toolkit Pro Single 205:  Silver Splat - сборник анимиров
 magnet:?xt=urn:btih:E22CF24A72BFA787926D5F07F29863CA6FBC76A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:E22CF24A72BFA787926D5F07F29863CA6FBC76A8
 ```bash
 magnet:?xt=urn:btih:486474946D74359F9094A4A23D1967A35A2B39DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ Editors Themekit 37: Golden Flakes - Комплект анимации для о
 magnet:?xt=urn:btih:906490887490B68A7E42FD4F943EB2FF34BFC358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +195,8 @@ Editors Themekit 36: Spring Forward - Комплект анимации для �
 magnet:?xt=urn:btih:08D6629BCE47A771F39CA60C37C0BC7B97DD13BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +220,8 @@ magnet:?xt=urn:btih:08D6629BCE47A771F39CA60C37C0BC7B97DD13BE
 ```bash
 magnet:?xt=urn:btih:DED64B976B7DF161A944F8D285EB45FB20A93B98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Ready2Go 10 for AE - десятый сборник настраиваемых п
 magnet:?xt=urn:btih:D3B1D2F0C276E93555FA6C76996670D2B6524E12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ Zodd Nosferatu - sculpted by Sergio Khazov.Формат: STL, LYS
 ```bash
 magnet:?xt=urn:btih:A2E25854060FFAAB5F3E4E50B780AF3590451A90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +306,8 @@ Alliant Audio с гордостью представляет Neo Soul Essentials
 magnet:?xt=urn:btih:9BA57A6E1BA2E1B0EBF0785C0328D9278C72EA67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +332,8 @@ PowerChord Guitars - No.02 Power of Tangerine (PG02) - продолжение л
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +366,8 @@ Ready2Go 11 for AE - одинадцатый сборник настраивае�
 magnet:?xt=urn:btih:228DBBF0EC1ED91AF2350494F3E04252FE732919
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +393,8 @@ PSD-файлы с постобработкой так же включены в �
 ```bash
 magnet:?xt=urn:btih:4B34F6C22D151E3590D0FD008C1D497984FB00E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +425,8 @@ Analogue Drums - BuckShot by KRock[KONTAKT|EXS][английский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +450,8 @@ Analogue Drums - BuckShot by KRock[KONTAKT|EXS][английский]
 ```bash
 magnet:?xt=urn:btih:6071E1DFD1E68E1CCCB2F86223DA09904607B6E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +477,8 @@ Smart UI от Epic Stock Media — это единственная в своем
 magnet:?xt=urn:btih:CD1E2390363F561E98238A3567A0127F0916E8F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +502,8 @@ Vintage Mintage - жирный, округлый шрифт. Шрифт с ре�
 ```bash
 magnet:?xt=urn:btih:04946702F16B3BC3299BE6AA2294329F55A63C38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +532,8 @@ magnet:?xt=urn:btih:04946702F16B3BC3299BE6AA2294329F55A63C38
 magnet:?xt=urn:btih:AD018B7C88992FB7FD61DAC3B118EC599832A78B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +558,8 @@ Tecnica Slab Stencil состоит из 8 начертаний. 4 стиля «
 ```bash
 magnet:?xt=urn:btih:D27BC79BE2D2B940D92CC7BD6B7AAE3BEE20D5EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +586,8 @@ Libre Caslon Condensed - это шрифт с открытым исходным 
 magnet:?xt=urn:btih:45C05DD5A6706AA6C52C4723DF5935D844E659F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +611,8 @@ magnet:?xt=urn:btih:45C05DD5A6706AA6C52C4723DF5935D844E659F0
 ```bash
 magnet:?xt=urn:btih:A9168AC419AF7547DE8A24E0508EB14C5478EB53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +638,8 @@ magnet:?xt=urn:btih:A9168AC419AF7547DE8A24E0508EB14C5478EB53
 magnet:?xt=urn:btih:9BA935324DEE0C59AFCA0381E0CFD0A7543177C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +663,8 @@ magnet:?xt=urn:btih:9BA935324DEE0C59AFCA0381E0CFD0A7543177C7
 ```bash
 magnet:?xt=urn:btih:815DD5F66BFD5CABA9CAF4F967DA001B1C9AB0E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +690,8 @@ magnet:?xt=urn:btih:815DD5F66BFD5CABA9CAF4F967DA001B1C9AB0E2
 magnet:?xt=urn:btih:024F5A523980B6AF78AFB1BC182E62F75CB1D527
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +715,8 @@ magnet:?xt=urn:btih:024F5A523980B6AF78AFB1BC182E62F75CB1D527
 ```bash
 magnet:?xt=urn:btih:47314108E5B4225B26D8E985D18FDB59B3BB5488
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

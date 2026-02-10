@@ -19,6 +19,8 @@ PBS. Жизнь колибри. Волшебство в воздухе / Humming
 magnet:?xt=urn:btih:F1613451F6C372FE2BA8BD10792FA322FFAB6961
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ DV. Чудеса механики / Wonders of the Clockwork World / Mechanical 
 ```bash
 magnet:?xt=urn:btih:597DF8FA207226B95DB9019AE6D13A54E9CDFCD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC: Серенгети / Serengeti (2019) BDRip [H.264/720p] (сезон 1, с�
 magnet:?xt=urn:btih:C03209B49BB742EBD8FF4C033B875921C356086D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NG: В Поисках гигантского осьминога / Search for the
 ```bash
 magnet:?xt=urn:btih:785106CEE44E1EA44617A204A1002A03B8670968
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ NG: Карта ада / Map of Hell (2016) HDTVRip [H.264/720p-LQ]
 magnet:?xt=urn:btih:838AC5452C6752423C8B51EC4914A57F31825454
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:838AC5452C6752423C8B51EC4914A57F31825454
 ```bash
 magnet:?xt=urn:btih:2D2B5E3731DD4C4ABF938F20AA9018CCEFF01572
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ BBC: Бог любит Уганду / God Loves Uganda (2013) WEBRip [H.264/1080
 magnet:?xt=urn:btih:E6FEBFE3C35247D87CD6D62B034E7667DA4D28C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ PBS: Истории из королевской спальни / Tales from the 
 ```bash
 magnet:?xt=urn:btih:D03430CF7BBC7692C1B9EF821A893C662C277BE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ The Art of Russia - 3-х серийный фильм о русском иску�
 magnet:?xt=urn:btih:2FD71BDD1A38237141FB4E9898AA2CECFE43CB9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ BBC. Искусство Испании / The Art of Spain (2008) SATRip (сер�
 ```bash
 magnet:?xt=urn:btih:7D00ECDADDABFBB63E254218E00F5E242253190E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ BBC. Искусство Германии / Art of Germany (2010) HDTVRip (сер
 magnet:?xt=urn:btih:925BF9A960C42D08E95DC817CA85CF3699DCA453
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Discovery: Бушкрафт: лесная лига / Bushcraft Build-Off (2017) 
 ```bash
 magnet:?xt=urn:btih:B17FC5F40ACD26A6256CA0FFB8310022AF64C8B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ BBC. Искусство стран Бенилюкса / The High Art of the Low 
 magnet:?xt=urn:btih:1B278A3C183689316C8B07276C77FE76F8AD39D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ History Channel. Пропавший римский легион / Rome's Lost Le
 ```bash
 magnet:?xt=urn:btih:5FE5560557CB58BFA23BDCE8F9740461E590DAF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ History Channel. Пропавший римский легион / Rome's Lost Le
 magnet:?xt=urn:btih:D8879C8CE9E61E89E53B289234B2DD87BA80408E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ NG. Храм фашизма / Nazi Temple of DOOM (2012) HDTVRip [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:3031F1A5B02D7CB54D430440291FB42454350DE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ BBC. Взломщики кодов. Забытые герои Блетчли-П�
 magnet:?xt=urn:btih:B196D005648B7838CC4E4E8706D89164FBA906E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ BBC: Удивительный мир данных / The Joy of Data (2016) HDTVR
 ```bash
 magnet:?xt=urn:btih:B502D14C197B02A0619080A12BFBEC9F516509CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ NG: Земля под рентгеном / X-Ray Earth (2020) HDTVRip [H.264/720
 magnet:?xt=urn:btih:273B63947BE67FE5F43DF4CF5EA0354FE3853EC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ NG: Дикая природа Новой Зеландии: затерянный 
 ```bash
 magnet:?xt=urn:btih:EC092C0058120427AA2431C9FAAB5F9CED238514
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ NG. Мегазаводы: Wargaming / Ultimate Factories: Wargaming (2013) HDTVR
 magnet:?xt=urn:btih:3EA078F6C5A8AC9E63825656D58E3DAF0D67B7B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ magnet:?xt=urn:btih:3EA078F6C5A8AC9E63825656D58E3DAF0D67B7B2
 ```bash
 magnet:?xt=urn:btih:8AF4542DFB2C8A8F718CE45C6461A7661C637E6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ NGW: Дикие Филиппины. Скрытые чудеса / Untamed Philip
 magnet:?xt=urn:btih:1505CC979FEE060D6556510B2F16BE10A5921555
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ BBC. Тайны вселенной: Великие ученые своими с�
 ```bash
 magnet:?xt=urn:btih:107963D4BE49DCA6B108F27DAA26CFD9EA6FFC78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Discovery. Северная Америка / North America (2013) HDTV [H.264/10
 magnet:?xt=urn:btih:3CB90411C5C03E67CE35B45C4541DF340D75462A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ NGW: Дикие Филиппины. Скрытые чудеса / Untamed Philip
 ```bash
 magnet:?xt=urn:btih:26DCF40E52817A5DF1E23A42CE405FAD83A7E9A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

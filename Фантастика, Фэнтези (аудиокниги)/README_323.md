@@ -1,3 +1,29 @@
+###  Публикация: 1575313   (376894) от 09.09.2022
+
+Игорь Негатин | Лишнее золото (Книга 2). Без права на выбор (2022). [MP3, TED]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта история началась тогда, когда карты Нового мира пестрели белыми пятнами и лишь самые отчаянные рисковали отправиться в путь. Они открывали земли и города там, где «кончается география». Они искали золото и отбивались от нападения бандитов. Списки переселенцев содержали сухие строчки потерь, а драгоценный металл превращался в ничто. Лишние люди. Лишнее золото. (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыПродолжительность: 09:25:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CA819DCDB2BB7912B3AD8B191CB142C7A18BD0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575351   (376919) от 09.09.2022
 
 Игорь Чиркунов | Сага об орке (Книга 3). Некомандный игрок (2022) [MP3, Александр Чайцын]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:3EB08609567ACAE4E7AEF6D09061A30386855193
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:3EB08609567ACAE4E7AEF6D09061A30386855193
 magnet:?xt=urn:btih:DDACEBA07B8482B4E8292767C4C68A5F8AB1A152
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:DDACEBA07B8482B4E8292767C4C68A5F8AB1A152
 magnet:?xt=urn:btih:A4459795DA683E6B08D03CE93B815EC23391B1AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:A4459795DA683E6B08D03CE93B815EC23391B1AD
 ```bash
 magnet:?xt=urn:btih:136430136CC54E51957DD500D9F2848CF70AB890
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:136430136CC54E51957DD500D9F2848CF70AB890
 magnet:?xt=urn:btih:F3944AD8646130719D06BD810EA4448504115EE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:F3944AD8646130719D06BD810EA4448504115EE4
 ```bash
 magnet:?xt=urn:btih:B0A07FBB7BE5F4A8037DA2CE7908C8582A262379
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:B0A07FBB7BE5F4A8037DA2CE7908C8582A262379
 magnet:?xt=urn:btih:0C46A268AAA162FE49C6C72644D80C3A98A2D303
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:0C46A268AAA162FE49C6C72644D80C3A98A2D303
 magnet:?xt=urn:btih:AAFEAE19475DCCEC7D0DC84A0DEBD02D3FD88E49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:AAFEAE19475DCCEC7D0DC84A0DEBD02D3FD88E49
 ```bash
 magnet:?xt=urn:btih:2EE14433AE1E0EE8AE99ABCE35D1B587EDC50C98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:2EE14433AE1E0EE8AE99ABCE35D1B587EDC50C98
 magnet:?xt=urn:btih:EEF165C8ED776A5A0C52C1C83D04AF6260B104B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:EEF165C8ED776A5A0C52C1C83D04AF6260B104B0
 ```bash
 magnet:?xt=urn:btih:0B70F6B06C572790EF28392B98F6C8D70F72CE2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:0B70F6B06C572790EF28392B98F6C8D70F72CE2D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:0B70F6B06C572790EF28392B98F6C8D70F72CE2D
 magnet:?xt=urn:btih:F3E4375997ADA8FE79EBE1F8B5C1B80FDCBA6DC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:F3E4375997ADA8FE79EBE1F8B5C1B80FDCBA6DC1
 ```bash
 magnet:?xt=urn:btih:7AF8253E7C8ED85484FA7DA8445E020C462174D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:7AF8253E7C8ED85484FA7DA8445E020C462174D4
 magnet:?xt=urn:btih:FBB25B69B7FE6469869963486AE79901089D65FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:FBB25B69B7FE6469869963486AE79901089D65FD
 ```bash
 magnet:?xt=urn:btih:B4B0FA4795B5F0C24466D6A3A621E8F2EB274800
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:B4B0FA4795B5F0C24466D6A3A621E8F2EB274800
 magnet:?xt=urn:btih:344E325F9978916D690E8041D2B4A8008D513142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:344E325F9978916D690E8041D2B4A8008D513142
 ```bash
 magnet:?xt=urn:btih:8AC14C2F48BF2DAFC7C71534C08B7CE927ABBC9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:8AC14C2F48BF2DAFC7C71534C08B7CE927ABBC9B
 magnet:?xt=urn:btih:0B927D5A9D838F44DAAA103A828466932A5163A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:0B927D5A9D838F44DAAA103A828466932A5163A0
 ```bash
 magnet:?xt=urn:btih:81EA800021FA3717B0781F5CA59DC381C75F7BF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:81EA800021FA3717B0781F5CA59DC381C75F7BF7
 magnet:?xt=urn:btih:71CDADEA5259517B570502678039450A0FA2122C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:71CDADEA5259517B570502678039450A0FA2122C
 ```bash
 magnet:?xt=urn:btih:F3140AE9421199F6815F6FFD6B75A5173DF25C41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:F3140AE9421199F6815F6FFD6B75A5173DF25C41
 magnet:?xt=urn:btih:65B03E2CB788A67BE11564FB8C5DC15364D497AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:65B03E2CB788A67BE11564FB8C5DC15364D497AA
 ```bash
 magnet:?xt=urn:btih:37E318927066B6772016DABB9A4F7B5E18CF29CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,30 +678,7 @@ magnet:?xt=urn:btih:37E318927066B6772016DABB9A4F7B5E18CF29CF
 magnet:?xt=urn:btih:95F7639FE3245414CEE510AB2F767DAD7BFB63CC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575189   (379342) от 08.09.2022
-
-Ольга Коротаева | Докопаться до темного, или Архиомагия в действии (2022) [MP3, Ольга Богданова, Алексей Данков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Найти волшебную лампу? Откопать ковёр-самолёт? Добраться до рога изобилия? Я изучаю историю развития магии с лопатой в руке и неуёмной жаждой к полевой архиомагии! Но куратор попаданок считает мою работу бессмысленной и подаёт прошение о моём возврате. А ведь я только-только нашла своё место в мире чудес и не хочу обратно. Кабинетный червь!
-Мне нужно убедить суд, (   Читать дальше...   )Жанр: Фэнтези, ПопаданцыПродолжительность: 08:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6BADF734628D255F934B6FAB0B296A14D898182
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

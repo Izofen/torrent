@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A652CA1DD559E52844D23EBD525C449C6D326840
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Tor Browser for Linux - удобная и простая модификация 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Geekbrains | Профессия Программист Java (2015) PCRec [H.264/
 magnet:?xt=urn:btih:656B9D9415311390BD24BB56DB03EEEBBD31444D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:656B9D9415311390BD24BB56DB03EEEBBD31444D
 ```bash
 magnet:?xt=urn:btih:B2B8BD75B2965D38216DEEB158BC59793A6F8EBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Omni Toolbox - это обширный набор инструментов дл�
 magnet:?xt=urn:btih:C26503DBFE9DFD01687522DE8E5F4F9365BD588D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ SUSE Linux Enterprise Desktop Server 15
 ```bash
 magnet:?xt=urn:btih:AE1957AA503D2119EDA29D05321F5D9D35D78DD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:AE1957AA503D2119EDA29D05321F5D9D35D78DD3
 magnet:?xt=urn:btih:82A1D5F5F889DD7EA83EAFBBB855F4B546BEA32A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:82A1D5F5F889DD7EA83EAFBBB855F4B546BEA32A
 ```bash
 magnet:?xt=urn:btih:065C80BE4F420065D62C572F42A9BB171D7118C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ White String Orchestra - Aktuelle Hits im modernen Streichersound Vol. 2 (1996) 
 magnet:?xt=urn:btih:0B2E3A66FA537C9433430E07B0658444A54EAADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ Windows 10 Enterprise LTSB с обновлениями по декабрь 2015,
 ```bash
 magnet:?xt=urn:btih:3C136E16A2B6C68509335B8F00565A492C14D1C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ VA - The Best Christmas Album In The World...Ever! (2020) [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:D6963576D16E96152F62B6923FE3D40A8FD03377
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:D6963576D16E96152F62B6923FE3D40A8FD03377
 magnet:?xt=urn:btih:273521321A6938BDD26444EDBD3D816D9028A27C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:273521321A6938BDD26444EDBD3D816D9028A27C
 ```bash
 magnet:?xt=urn:btih:302CEAD48E120C5455B4B65AB049B42762DA4F2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ Imperialist - Zenith (2021) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 magnet:?xt=urn:btih:A4E8292DFD8ADC4DED8BDDB87991AC3D30B97A48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ Calibre - простая и удобная программа для управ�
 magnet:?xt=urn:btih:2263A6BB38D5852E304DA98984B5463689E68B3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:2263A6BB38D5852E304DA98984B5463689E68B3D
 ```bash
 magnet:?xt=urn:btih:E977BE30B09F3EDA5B7254408F3B3F6D34D0B9A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ AutoLogger [26.11.2021] Portable [Ru/En]
 magnet:?xt=urn:btih:46CB4240D96D6437E760C5A4659087090CE85EA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:46CB4240D96D6437E760C5A4659087090CE85EA8
 magnet:?xt=urn:btih:601F8BD9B315A3E5B49BC180777A82658794F310
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ Change MAC Address - весьма необычная утилита, с помо
 ```bash
 magnet:?xt=urn:btih:9EE8E82F52FF3DE4EE7E9ABDD851BED21B25F9A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:9EE8E82F52FF3DE4EE7E9ABDD851BED21B25F9A5
 magnet:?xt=urn:btih:E77E692CB23046CBE54C339A78659D536604B890
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ Icecream Video Editor - простая и бесплатная программ�
 ```bash
 magnet:?xt=urn:btih:F5D76734EE0943CFCD5F5E5F94CEFCFD6525A1E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ SolidWorks является ядром интегрированного комп
 magnet:?xt=urn:btih:A61D82505EA8B10D51F7311D9D7ACBA96C38B8A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:A61D82505EA8B10D51F7311D9D7ACBA96C38B8A1
 ```bash
 magnet:?xt=urn:btih:B69EDD80D343F80EEF216E832E73F5A1B974D627
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:B69EDD80D343F80EEF216E832E73F5A1B974D627
 magnet:?xt=urn:btih:CE1B5163E51374FBF56C526556219C0416927D71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ magnet:?xt=urn:btih:CE1B5163E51374FBF56C526556219C0416927D71
 ```bash
 magnet:?xt=urn:btih:9C1A16BE705A864EF46B41FB34025A9641FC57C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:9C1A16BE705A864EF46B41FB34025A9641FC57C9
 ```bash
 magnet:?xt=urn:btih:0B9ABA887B248DC4FE3041D3949DC983DE1359E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

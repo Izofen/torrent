@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A705E3711E23AE25EB0F8D548EF7C9050F921E89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - classic rock classics (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:C565A559066B82FB21D0B171C0BC56280E570629
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:C565A559066B82FB21D0B171C0BC56280E570629
 ```bash
 magnet:?xt=urn:btih:AC9EF8C646C220BD03352F8C6B7380C9674D9679
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:AC9EF8C646C220BD03352F8C6B7380C9674D9679
 magnet:?xt=urn:btih:C66A9D191C0FA67CB0100007155197097F8C1ED9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:C66A9D191C0FA67CB0100007155197097F8C1ED9
 magnet:?xt=urn:btih:401157B49E4A05DF61C65E7A81DCF27C82E08062
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Task Office 8.12 [Multi]
 ```bash
 magnet:?xt=urn:btih:BA204A995CFE7A7387EA45B8705D9C30BD75D12F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:BA204A995CFE7A7387EA45B8705D9C30BD75D12F
 magnet:?xt=urn:btih:46ADF02E36F36DF7F50BA575C322B84ABB53FB73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ HiBit System Information - управление списком всех прил
 ```bash
 magnet:?xt=urn:btih:59D973218A7F25F4B707E0990EBB0FAE43910D7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Thelemite - Survival Of The Fittest (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 magnet:?xt=urn:btih:65E2413223C6BC0954C9AE35710ED9D4370DCC95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:65E2413223C6BC0954C9AE35710ED9D4370DCC95
 magnet:?xt=urn:btih:F35361E9E68BB2A2BD80171B01A0130563BDE376
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:F35361E9E68BB2A2BD80171B01A0130563BDE376
 magnet:?xt=urn:btih:80BB8E3EBA7CE559F65E320388E0397CAFF0360F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ RedNotebook - это простое GTK+ / Gnome приложение напис
 ```bash
 magnet:?xt=urn:btih:ECE770DB86F0E126C7BCE6634AF7AB406FCCE75C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ VA - Tailgate rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:A2F4A1BD2CFB167474BA9B1597EBD10C6D308806
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ Paint.NET - Простой, но мощный и удобный редактор
 ```bash
 magnet:?xt=urn:btih:F4EF4DB64E71927F16D411DA25DA7C0B966F6F0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ FileZilla Server представляет собой очень простой, 
 magnet:?xt=urn:btih:2D17F5C72FFB1FA46AE2AAF3FF268485D6A1914A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ Eiyuu Ou, Bu o Kiwameru Tame Tenseisu: Soshite, Sekai Saikyou no Minarai Kishi |
 magnet:?xt=urn:btih:5A949FFDD6C0D6889ADF2FBD9E5FB902850F2FD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:5A949FFDD6C0D6889ADF2FBD9E5FB902850F2FD2
 ```bash
 magnet:?xt=urn:btih:C92C12036B137EB610B765B492A62D47D8706FCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ VA - Lounge Tribute, Vol. 8 (2014) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo
 magnet:?xt=urn:btih:41103D3A18C81741565BBD752A12810F594DC700
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:41103D3A18C81741565BBD752A12810F594DC700
 ```bash
 magnet:?xt=urn:btih:6455253DADCA48A3CEEB72E82EE6C4A8D6538751
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:6455253DADCA48A3CEEB72E82EE6C4A8D6538751
 magnet:?xt=urn:btih:5923A1B2302D0099FF69077642BD942C4205CFB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ Masou Gakuen HxH | Hybrid x Heart Magias Academy Ataraxia | Магическая
 ```bash
 magnet:?xt=urn:btih:6F687D437981590716FC178C4392FA22BB8CC228
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:6F687D437981590716FC178C4392FA22BB8CC228
 magnet:?xt=urn:btih:E9C72B33781B97D802EF0CB6C7CBB7FC1440897A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ Sound Siphon делает аудиовыход вашего Mac доступны
 ```bash
 magnet:?xt=urn:btih:315396311A5556D731B4B03BF8987D89098B1264
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ Screenium 3 v3.3.2 [Multi/Ru]
 magnet:?xt=urn:btih:2461F5801CF366147A0D6711949A1FA0379EFEEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:2461F5801CF366147A0D6711949A1FA0379EFEEC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ PullTube 1.8.5.11 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:ED5F3698D7013BB8EA2666D29B8B8DCCD9E7C556
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -28,6 +28,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ VA - Сборник Авторской Песни (2000) S&V #06/2000 [FLAC|Loss
 magnet:?xt=urn:btih:E33891268B7604B42A7A95778D7816F9D98EF111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +85,8 @@ magnet:?xt=urn:btih:E33891268B7604B42A7A95778D7816F9D98EF111
 ```bash
 magnet:?xt=urn:btih:5BDFA1C1A274D0CDD575FE944346C6FB3563643A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +121,8 @@ magnet:?xt=urn:btih:5BDFA1C1A274D0CDD575FE944346C6FB3563643A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +155,8 @@ magnet:?xt=urn:btih:5BDFA1C1A274D0CDD575FE944346C6FB3563643A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +191,8 @@ magnet:?xt=urn:btih:5BDFA1C1A274D0CDD575FE944346C6FB3563643A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +225,8 @@ magnet:?xt=urn:btih:5BDFA1C1A274D0CDD575FE944346C6FB3563643A
 ```bash
 magnet:?xt=urn:btih:E4FEBAC52324BA2B8E9EA3406E3306D265E1C130
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +261,8 @@ magnet:?xt=urn:btih:E4FEBAC52324BA2B8E9EA3406E3306D265E1C130
 magnet:?xt=urn:btih:F08F4E3ED371E42C42F4E8539BD5F0B21ABD19DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +291,8 @@ magnet:?xt=urn:btih:F08F4E3ED371E42C42F4E8539BD5F0B21ABD19DE
 magnet:?xt=urn:btih:841CC46D37D4DC59C7D3ED7196B1F8FF5ABA3CEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +319,8 @@ magnet:?xt=urn:btih:841CC46D37D4DC59C7D3ED7196B1F8FF5ABA3CEE
 ```bash
 magnet:?xt=urn:btih:FDBF2BB2775C4ACE149002EDBD088EC2A91CCE8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +355,8 @@ magnet:?xt=urn:btih:FDBF2BB2775C4ACE149002EDBD088EC2A91CCE8A
 magnet:?xt=urn:btih:BD7BEC44B5A666A61123580AA1FA6FC7FCF3B486
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +383,8 @@ magnet:?xt=urn:btih:BD7BEC44B5A666A61123580AA1FA6FC7FCF3B486
 ```bash
 magnet:?xt=urn:btih:D7FC61895CF94F9BAFB2C86B1041F3C5D1BD0D22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +413,8 @@ magnet:?xt=urn:btih:D7FC61895CF94F9BAFB2C86B1041F3C5D1BD0D22
 magnet:?xt=urn:btih:52D58BC7C34F25EE82E4322E00E75B131B618ABF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +439,8 @@ magnet:?xt=urn:btih:52D58BC7C34F25EE82E4322E00E75B131B618ABF
 magnet:?xt=urn:btih:0F7BAE9BBF02AF3DAED69A3E30F232A45821D606
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +464,8 @@ magnet:?xt=urn:btih:0F7BAE9BBF02AF3DAED69A3E30F232A45821D606
 ```bash
 magnet:?xt=urn:btih:68357807A0578BFB98251B42372D9EB924AB347B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +494,8 @@ magnet:?xt=urn:btih:68357807A0578BFB98251B42372D9EB924AB347B
 magnet:?xt=urn:btih:1AE38C24DB383945231CC784F7754530D3C347AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +519,8 @@ magnet:?xt=urn:btih:1AE38C24DB383945231CC784F7754530D3C347AD
 ```bash
 magnet:?xt=urn:btih:E69F5F6F045A741F2E0BB81DDD63647DD31C19C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +549,8 @@ VA - Per Un' Ora D' Amore (2002) [FLAC|Lossless|tracks + .cue] <Chanson, Vocal, 
 magnet:?xt=urn:btih:BEBF8E9D452FAFB226F11D041D1EB6EA950F384B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +577,8 @@ magnet:?xt=urn:btih:BEBF8E9D452FAFB226F11D041D1EB6EA950F384B
 ```bash
 magnet:?xt=urn:btih:51C50F12D9F49052693648FD3C0D508137571E96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +607,8 @@ CD4 - Я не люблю фатального исхода(   Читать да�
 magnet:?xt=urn:btih:02C0F2B15649A8F594901092E8ABCA4DF9801D82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +636,8 @@ magnet:?xt=urn:btih:02C0F2B15649A8F594901092E8ABCA4DF9801D82
 magnet:?xt=urn:btih:6AE6B324A9C45B83AAEBFE2EB42BAC165013F809
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +664,8 @@ magnet:?xt=urn:btih:6AE6B324A9C45B83AAEBFE2EB42BAC165013F809
 ```bash
 magnet:?xt=urn:btih:43841AA12A0C8C2F9D7154765E691F406FB88001
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +700,8 @@ magnet:?xt=urn:btih:43841AA12A0C8C2F9D7154765E691F406FB88001
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -679,6 +725,8 @@ magnet:?xt=urn:btih:43841AA12A0C8C2F9D7154765E691F406FB88001
 ```bash
 magnet:?xt=urn:btih:6BCE6DFEB530601CE7758D73267744D5480410A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -706,6 +754,8 @@ magnet:?xt=urn:btih:6BCE6DFEB530601CE7758D73267744D5480410A7
 ```bash
 magnet:?xt=urn:btih:638C3CAD5C035DA6BA853609FE54E9DC04FB2BC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -739,6 +789,8 @@ magnet:?xt=urn:btih:638C3CAD5C035DA6BA853609FE54E9DC04FB2BC2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

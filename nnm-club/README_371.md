@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Potion Craft: Alchemist Simulator – проработанный симулят�
 ```bash
 magnet:?xt=urn:btih:38994F757A338A456BB3FE9CF81A614DCFDCDA01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Call of Duty: Modern Warfare (2019) [Ru/En] (8.67/dlc) Repack Other s
 magnet:?xt=urn:btih:CDD72F5B5892F2AB2B7ED8EE9315C439A02B2603
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:CDD72F5B5892F2AB2B7ED8EE9315C439A02B2603
 magnet:?xt=urn:btih:7019EBAF837F2ECA15F345A8485678E061AF6F8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:7019EBAF837F2ECA15F345A8485678E061AF6F8B
 ```bash
 magnet:?xt=urn:btih:C5936D2552EB5943794D345AF895D40E02926F12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Ubuntu GamePack 22.04 (июль 2025) [amd64] DVD
 magnet:?xt=urn:btih:E9035C84AB1B304A56F51A34969612C0B3E60CDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:E9035C84AB1B304A56F51A34969612C0B3E60CDA
 magnet:?xt=urn:btih:98A10C67F1A7017DF4BBDC384A6E88CC939C3A98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Terminator: Dark Fate – Defiance позволяет окунуться в су
 ```bash
 magnet:?xt=urn:btih:6084F698C6C351D5EC1F9E22CA09061D6E18EBFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:6084F698C6C351D5EC1F9E22CA09061D6E18EBFE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Redneck Kentucky and the Next Generation Chickens / Куриное побоищ�
 magnet:?xt=urn:btih:ED388EF06AD9CD06C84DEFED9DEEEDB2C814CDBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:ED388EF06AD9CD06C84DEFED9DEEEDB2C814CDBA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Ubuntu*Pack 22.04 Xfce / Xubuntu (июль 2025) [amd64] 1xDVD
 magnet:?xt=urn:btih:083C8A0C2DB9126FF7D8E4D9DB67A1F12ADC8995
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Call of Duty: Modern Warfare (2019) [Ru/En] (8.67/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:8EA1A52BAFE80AA2979304EC10E48F9F9FD66859
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ ASTRONEER (2016) [Ru/En] (1.34.47.0) Repack Pioneer
 magnet:?xt=urn:btih:9258DF428DB8270D5152045DCB3A02F4087A4C51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:9258DF428DB8270D5152045DCB3A02F4087A4C51
 ```bash
 magnet:?xt=urn:btih:840F6AC69B7A4C976131330E4C5F5B618247FC53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Borderlands (2009) [Ru/En] (1.5.0/dlc) Repack FitGirl [Game of the Year Edition]
 magnet:?xt=urn:btih:5A1C88C99E30CC1496A0B3482548F93136BE0992
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Railway Empire 2 (2023) [Ru/Multi] (1.7.2.64310/dlc) Repack Let'sРlay [Deluxe E
 ```bash
 magnet:?xt=urn:btih:BF01DFD646BEC8EC42CADE74152D82489F8452F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ UNDERWARD - это кооперативная игра в жанре хорро�
 magnet:?xt=urn:btih:C04328C39156CC62FFA6A020D2C116E092977473
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Deca-Dence | Decadence | Декаданс | Дека-Данс [2020, TV, 12 из
 ```bash
 magnet:?xt=urn:btih:C926CBF7FAEF4FF6ECB29568448FB9F52B67F2B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:C926CBF7FAEF4FF6ECB29568448FB9F52B67F2B2
 magnet:?xt=urn:btih:00FF0E87D84739AC06516B5A391DF558A4442627
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ Fragments of Truth: An MCF Story / Осколки истины: История �
 ```bash
 magnet:?xt=urn:btih:994E4CFFBCA93789F6B52C841E223357DABCBBC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:994E4CFFBCA93789F6B52C841E223357DABCBBC1
 magnet:?xt=urn:btih:172262B36E7753902B6D4667AA14220190716B06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:172262B36E7753902B6D4667AA14220190716B06
 ```bash
 magnet:?xt=urn:btih:A8FD5DDF245F5A217EA92C4F015E4D105B6CCA9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ Ui Kits - UI8 - Landing page Bundle [FIG]
 magnet:?xt=urn:btih:7FD1A64C212F02909794EAB71EFECB07C2C5FC60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:7FD1A64C212F02909794EAB71EFECB07C2C5FC60
 magnet:?xt=urn:btih:CE334615D2571544B187868C9D8F0BF591D871D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Wingspan / Крылья (2020) [Ru/Multi] (1.7.1104.0611.1642/dlc) Repack FitGir
 ```bash
 magnet:?xt=urn:btih:C925500F5921DD3813B67A34EFC0A25BAFDB37DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

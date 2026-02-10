@@ -19,6 +19,8 @@ Multiple Slideshow - стильный проект АЕ. Подойдет для
 magnet:?xt=urn:btih:A80173322F115AEA25BE90C73E131E947ECEA045
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:A80173322F115AEA25BE90C73E131E947ECEA045
 magnet:?xt=urn:btih:99C4A21162F83DD6397A74216254C1E3DF38AAB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Flat Logo Animations - шейповая анимация для вашего л�
 magnet:?xt=urn:btih:32851A43462A42664216758BB44A319B050EBF5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Watercolor & Ink Slideshow 2 - Художественное и творческ�
 ```bash
 magnet:?xt=urn:btih:96C3629F6758BE5F966B871B89A0720480BCA044
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:96C3629F6758BE5F966B871B89A0720480BCA044
 magnet:?xt=urn:btih:2B3572B9140F403BE27340901EF6E5AA63C2273F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:2B3572B9140F403BE27340901EF6E5AA63C2273F
 ```bash
 magnet:?xt=urn:btih:AF3A4D01F33497C3DACB56CC9E251BD406323BFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Gold & Black Crystallized Glass Logo Reveal - Красивая анимация 
 magnet:?xt=urn:btih:55A749E60A85EC6816B5122441118F460F01208C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Modern Fashion Promo проект для создания слайд шоу.Фо
 ```bash
 magnet:?xt=urn:btih:EB9E0EF89BD10406B440CC1A591445B852B86953
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Particles Backgrounds -  приятное вступление или откры
 magnet:?xt=urn:btih:8A14F1C2E80FBD1400310F4669CFDF4FBAD00ACD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Love Story - In Motion это проект для создания презен�
 ```bash
 magnet:?xt=urn:btih:07262F258AED268E328ED59E165673C485B6E620
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:07262F258AED268E328ED59E165673C485B6E620
 magnet:?xt=urn:btih:6C86DF1314AEFDEFB7339ADD4AD74D6EE4BE679F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:6C86DF1314AEFDEFB7339ADD4AD74D6EE4BE679F
 ```bash
 magnet:?xt=urn:btih:41BD34C004FCCF7FEFC953ACD994885AA6BC67E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Elegant Mosaic Opener - простой, элегантный вариант сл
 magnet:?xt=urn:btih:5184A6B54CAA1AE3F8E803E3CF73A81F46FFA635
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Glitch Opener - короткий, быстрый слайд-шоу с эффек
 ```bash
 magnet:?xt=urn:btih:47C86F76DAE4927C12A58669DD4C9B29C87F403A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:47C86F76DAE4927C12A58669DD4C9B29C87F403A
 magnet:?xt=urn:btih:D3827DD8EB1A3F391CCD6C51D5C41EAA2A1E54C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:D3827DD8EB1A3F391CCD6C51D5C41EAA2A1E54C4
 ```bash
 magnet:?xt=urn:btih:ADAB96776B820C0C545050B224D9534E55AB9249
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:ADAB96776B820C0C545050B224D9534E55AB9249
 magnet:?xt=urn:btih:1D6C97C1DB8783C13F2C648661C7095726629B37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:1D6C97C1DB8783C13F2C648661C7095726629B37
 magnet:?xt=urn:btih:54AA31A973B6DF63E04AAE3717642632F29EC593
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Torn Paper Slideshow - это оригинальный шаблон AE, кото
 ```bash
 magnet:?xt=urn:btih:F9EA0DC93287B308E73BDB44EC225C3CD8CF9ACA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ Videohive - Moments Of Life Slideshow - 7751687 [AEP]
 ```bash
 magnet:?xt=urn:btih:D580CF6D667B105100D9CD640006ABCA92BF050A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ VideoHive - Clean Presentation - 7746018 [AEP]
 magnet:?xt=urn:btih:A60B2000DFAA325ACF990F21A89359C450FD1C6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:A60B2000DFAA325ACF990F21A89359C450FD1C6F
 ```bash
 magnet:?xt=urn:btih:B00E16BFB1CE80D4685BE9EEFB9CB23B119A7EAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Epic Particle Reveal - показ логотипа с помощью части�
 magnet:?xt=urn:btih:DFBE979D5BD5BEF3F67250DF95E85D83E8BB5919
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Corporate Slogan Image Logo Reveal - Чистая и элегантная 3D-а�
 ```bash
 magnet:?xt=urn:btih:1F3C5565AA82B6158B67102E2E1DF83488125F3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Elegant Slideshow - спокойный, чистый, элегантный ва�
 magnet:?xt=urn:btih:6A9B88DF8F2D3B0D3E3667C9D53D8FA3F330067B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Cinematic Slideshow - кинематографическое слайд-шоу �
 ```bash
 magnet:?xt=urn:btih:A086890F8C6491B04A538B8D11D0F0E7C82DB62F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

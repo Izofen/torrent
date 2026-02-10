@@ -22,6 +22,8 @@ LPCM Stereo 24/96(   Читать дальше...   )Жанр: Rock, Prog Rock, 
 magnet:?xt=urn:btih:27437A229FA297D4BDFE61590D2B56A1208DD09E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ A4 Undercover Agent For The Blues(   Читать дальше...   )Жанр: P
 magnet:?xt=urn:btih:B244ED4421BC554ABD789BA06C28E9C9F1672AEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Celine Dion - A New Day Has Come (2002) [DSD 5.1 1bit/2822,4kHz|SACD-R] <Pop>
 ```bash
 magnet:?xt=urn:btih:5ABCA6684D72975A62C6D2D4DAFFF70453404AFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -106,6 +112,8 @@ Disc 1 (Side A-B)
 magnet:?xt=urn:btih:3F0081D644863CFF8B5AD679ACEDFE6EC4C97CD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -137,6 +145,8 @@ magnet:?xt=urn:btih:3F0081D644863CFF8B5AD679ACEDFE6EC4C97CD1
 ```bash
 magnet:?xt=urn:btih:FCFACC48AF20B6756BED1487B710C5FAD7789288
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +181,8 @@ Uriah Heep - Magic Night /Live at Astoria Theatre, London/ [DST 2.0, 5.1 1bit/28
 magnet:?xt=urn:btih:B676222168E7AA4C36C45B3F2770328ED86B4B8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +210,8 @@ A4 Promises(   Читать дальше...   )Жанр: Easy Listening, Pop Roc
 magnet:?xt=urn:btih:F5E1C8A769C7A41F33C5BDDB8287514EE9743C55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +238,8 @@ A4 Лифт • The Elevator(   Читать дальше...   )Жанр: Reggae
 ```bash
 magnet:?xt=urn:btih:E52464339673B026A4B99DFF1ECC882203DD2AC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -258,6 +274,8 @@ Chris Rea - Road to hell (1989) [FLAC 2.0 96/24 |tracks(VinylRip)]<Rock>
 magnet:?xt=urn:btih:347B0C39054828C5477118EB37132CD600B5FCD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +302,8 @@ A4 Всю Ночь • All Night Long(   Читать дальше...   )Жан�
 ```bash
 magnet:?xt=urn:btih:BA387D8B0DCBC532BCA999543DC9270E9A70FED7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +332,8 @@ magnet:?xt=urn:btih:BA387D8B0DCBC532BCA999543DC9270E9A70FED7
 magnet:?xt=urn:btih:D52753032840E59A0DF8D7F55356562BB7F392C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +360,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:63342A13601F279899EF74185BFEEB361ED1B49D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +390,8 @@ magnet:?xt=urn:btih:63342A13601F279899EF74185BFEEB361ED1B49D
 magnet:?xt=urn:btih:9C03E4276109C1644BA065810D1ACE0900D64992
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +418,8 @@ magnet:?xt=urn:btih:9C03E4276109C1644BA065810D1ACE0900D64992
 ```bash
 magnet:?xt=urn:btih:73FA9FF347B4F1AAA4C072672C61DB7060B54E53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +448,8 @@ Side A:
 magnet:?xt=urn:btih:D83DFD9D94E49714D3753916CAB247CB1FEE1133
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +476,8 @@ magnet:?xt=urn:btih:D83DFD9D94E49714D3753916CAB247CB1FEE1133
 ```bash
 magnet:?xt=urn:btih:5AEF313BB98328F32BBC3F42071466A1FC146A78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +506,8 @@ magnet:?xt=urn:btih:5AEF313BB98328F32BBC3F42071466A1FC146A78
 magnet:?xt=urn:btih:2C52251CE9B7F099D860699B0E695E54D119DE4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +534,8 @@ A4 Стиви Уондър - Не Карай Кола, Когато Си Пил 
 ```bash
 magnet:?xt=urn:btih:C5FB4255553EA15F3134C1B9681F2C2950479B03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +570,8 @@ James Last - With Compliments (1970) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Eas
 magnet:?xt=urn:btih:5DD2D5A6E1311620EAFA9775CF28329A2426C987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +599,8 @@ Luca Mannutza Trio - Airegin (2021) Japanese Edition  [DSD64 2.0|1bit/2822,4kHz 
 magnet:?xt=urn:btih:61F035060DAE2F07C2AF4F8D6C07E25162ED2A80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +624,8 @@ magnet:?xt=urn:btih:61F035060DAE2F07C2AF4F8D6C07E25162ED2A80
 ```bash
 magnet:?xt=urn:btih:398464A479DF5841456C4B9611A73851B843E00F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +652,8 @@ B	Синтез-Труппа Игоря Гранова -	ДастарханЖан
 ```bash
 magnet:?xt=urn:btih:FFD2A22AB7EA781B043B1A1DDD71E329E0B89FCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +682,8 @@ A4 Over And Over • Отново И Отново • И Снова, И Снов
 magnet:?xt=urn:btih:01A8DF1CAAECB5E3B0C1FD216FC1FB6ED46AE3A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +710,8 @@ magnet:?xt=urn:btih:01A8DF1CAAECB5E3B0C1FD216FC1FB6ED46AE3A8
 ```bash
 magnet:?xt=urn:btih:6BFA8DADB63DACB79693DF52E62629A3E4E7F62F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -692,6 +740,8 @@ magnet:?xt=urn:btih:6BFA8DADB63DACB79693DF52E62629A3E4E7F62F
 magnet:?xt=urn:btih:83DD8E0C7BA4566AFB6AB201940DCC45AB7F3523
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -718,6 +768,8 @@ Pink Floyd - The Endless River (2014) [DTS 5.1 CD-DA|44.1 /16|image+cue|Blu-ray]
 ```bash
 magnet:?xt=urn:btih:8EB8B63FB7200470DDB61935D5DE5D36C76E6D14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

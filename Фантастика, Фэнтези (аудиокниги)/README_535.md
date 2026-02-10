@@ -1,3 +1,30 @@
+###  Публикация: 1463481   (1020477) от 18.04.2021
+
+Нина Новолодская, Джо Кукурузный | Охота на древнего (2021) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь Алекс Кинг, девушки-некроманта, перевернулась с ног на голову, когда от лап неизвестного чудовища погиб ее приемный отец. Да еще и красавчик-детектив втянул в расследование серии убийств, где жертвами стали дети. Оборотни, вампиры, ведьмы – кому можно верить, а кого стоит опасаться?
+Водоворот невероятных событий затянул в сети и заставил наших героев раскрыть (   Читать дальше...   )Жанр: Городское фэнтези, Детективное фэнтези,Продолжительность: 06:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5982923344F4B235B5D47EB7C85A3C6E527B100D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463477   (1020488) от 18.04.2021
 
 Лада Кутузова | Младшие боги (2021) [MP3]
@@ -19,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:BB987CDAD5188CCE8D06B5035198F67953A0F77E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:BB987CDAD5188CCE8D06B5035198F67953A0F77E
 ```bash
 magnet:?xt=urn:btih:C4CF885B28FE8B760FC9142729C6AE03BD41C3D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +100,8 @@ magnet:?xt=urn:btih:C4CF885B28FE8B760FC9142729C6AE03BD41C3D4
 magnet:?xt=urn:btih:7805E75AA1D553B5D368CC133116A89EBC6ECE3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +126,8 @@ magnet:?xt=urn:btih:7805E75AA1D553B5D368CC133116A89EBC6ECE3C
 magnet:?xt=urn:btih:B3689B0BB29093D2022DDCE685FDC9D007E7E545
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +151,8 @@ magnet:?xt=urn:btih:B3689B0BB29093D2022DDCE685FDC9D007E7E545
 ```bash
 magnet:?xt=urn:btih:8DE3B186BD4035AD9652B50C7BCAE3A25AE947E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +181,8 @@ magnet:?xt=urn:btih:8DE3B186BD4035AD9652B50C7BCAE3A25AE947E8
 magnet:?xt=urn:btih:178EEA3A61A7EB4C1877B34BA4BC787332585FA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +209,8 @@ magnet:?xt=urn:btih:178EEA3A61A7EB4C1877B34BA4BC787332585FA4
 magnet:?xt=urn:btih:CC71CAF238146BCC00CBE6B905E3C189B8DE0C89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +234,8 @@ magnet:?xt=urn:btih:CC71CAF238146BCC00CBE6B905E3C189B8DE0C89
 ```bash
 magnet:?xt=urn:btih:1F42E4A88BBE38D1BE1258833B132E16FF21729F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +263,8 @@ magnet:?xt=urn:btih:1F42E4A88BBE38D1BE1258833B132E16FF21729F
 magnet:?xt=urn:btih:F2448D00B9470B36BE2638CE329B66EFC1E41D43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +288,8 @@ magnet:?xt=urn:btih:F2448D00B9470B36BE2638CE329B66EFC1E41D43
 ```bash
 magnet:?xt=urn:btih:C9BC3C0ACFDE40E2F5841443647ABC1D94ABA555
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +315,8 @@ magnet:?xt=urn:btih:C9BC3C0ACFDE40E2F5841443647ABC1D94ABA555
 magnet:?xt=urn:btih:EDD48DD190E719D968E527E5A1F20BE1F3EA0F86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ magnet:?xt=urn:btih:EDD48DD190E719D968E527E5A1F20BE1F3EA0F86
 ```bash
 magnet:?xt=urn:btih:057CACD1477DEAA756899E22675B43B3DD8A396C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +368,8 @@ magnet:?xt=urn:btih:057CACD1477DEAA756899E22675B43B3DD8A396C
 magnet:?xt=urn:btih:A2CB27B64E6838DA6031B14D13F8A356F294B77F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +393,8 @@ magnet:?xt=urn:btih:A2CB27B64E6838DA6031B14D13F8A356F294B77F
 ```bash
 magnet:?xt=urn:btih:598509FE5C7DCB0BBDE3FB74618C41012F6A674D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +420,8 @@ magnet:?xt=urn:btih:598509FE5C7DCB0BBDE3FB74618C41012F6A674D
 magnet:?xt=urn:btih:F3BFB3B74FA06EEA4FC2C4AC21F0A795987EA755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +445,8 @@ magnet:?xt=urn:btih:F3BFB3B74FA06EEA4FC2C4AC21F0A795987EA755
 ```bash
 magnet:?xt=urn:btih:1C46880ECAC4BC3646C9FC598AE7B4519ACA352C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +472,8 @@ magnet:?xt=urn:btih:1C46880ECAC4BC3646C9FC598AE7B4519ACA352C
 magnet:?xt=urn:btih:0FB73CBE695119B12A4171C50F7316382EFB107B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +497,8 @@ magnet:?xt=urn:btih:0FB73CBE695119B12A4171C50F7316382EFB107B
 ```bash
 magnet:?xt=urn:btih:387A129E0CB0906ED7A29C163E048B8E8F329A52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +525,8 @@ magnet:?xt=urn:btih:387A129E0CB0906ED7A29C163E048B8E8F329A52
 ```bash
 magnet:?xt=urn:btih:07947F444ADA0321A9F7939968E23842BE8F98E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +555,8 @@ magnet:?xt=urn:btih:07947F444ADA0321A9F7939968E23842BE8F98E8
 magnet:?xt=urn:btih:FC7A2179CED530CE442FFEC2C3007B7B5486A02D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +583,8 @@ magnet:?xt=urn:btih:FC7A2179CED530CE442FFEC2C3007B7B5486A02D
 magnet:?xt=urn:btih:03651168D72806F0099B2D2E353FB75E71E70829
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +608,8 @@ magnet:?xt=urn:btih:03651168D72806F0099B2D2E353FB75E71E70829
 ```bash
 magnet:?xt=urn:btih:736ABBA619D11C1ED27A09CC531352E906C5B148
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +637,8 @@ magnet:?xt=urn:btih:736ABBA619D11C1ED27A09CC531352E906C5B148
 magnet:?xt=urn:btih:1D0EFC00A04A2695CCBD92AF4DD7660EF99990E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +662,8 @@ magnet:?xt=urn:btih:1D0EFC00A04A2695CCBD92AF4DD7660EF99990E9
 ```bash
 magnet:?xt=urn:btih:BFFF4DC19AE77C1468E0F14C63B22C35CC6FA56E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,29 +690,7 @@ magnet:?xt=urn:btih:BFFF4DC19AE77C1468E0F14C63B22C35CC6FA56E
 magnet:?xt=urn:btih:83C66A73D79098EB2B554CD12E0E24DCECD73319
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462079   (1021415) от 12.04.2021
-
-Кристофер Раули | Мастер боя (2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обедневший аристократ случайно находит древний артефакт, внутри которого обнаруживается нечто живое. Он нанимает молодого ученого Каролину Риз, чтобы разобраться с находкой. Граф не догадывается, что, оживив древнее существо, подписывает смертный приговор и себе, и, возможно, всему человечеству, ибо Мастер Боя – уникальная паразитическая форма жизни – практически (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 11:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8571B492E7193DBDB9097B85F4BB93EEEDFD53F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

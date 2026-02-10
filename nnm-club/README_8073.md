@@ -20,6 +20,8 @@ Omni Recover для macOS позволяет восстанавливать уд
 magnet:?xt=urn:btih:88E7AEBBBA7D37973E24C201C48C848DBDAE9CD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Icecream Screen Recorder - программа, позволяющая вести
 ```bash
 magnet:?xt=urn:btih:D39AF61E7946DC85C4B80C66DD64CC77EEB6A2EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ TabLauncher поможет вам быстро и легко, используя
 ```bash
 magnet:?xt=urn:btih:EED4A1F827A71FCC5300ED806146707342BBC697
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Herbie Mann - The Beat Goes On (1966, 1967) Remaster, 2014, Warner[FLAC|Lossless
 magnet:?xt=urn:btih:C0BF576852A15712B9DB3585A7D3630DA3EDFE08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:C0BF576852A15712B9DB3585A7D3630DA3EDFE08
 ```bash
 magnet:?xt=urn:btih:004B53C5E4C766824A24149E3AE6BDB0DCD0EEA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Renamer - это приложение для пакетного переимен
 magnet:?xt=urn:btih:E9E6F78B0935160B0746986AAD4AB4DF3FE1250A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ MKVToolnix - функциональный набор инструментов д
 ```bash
 magnet:?xt=urn:btih:69F22A61564A68B487DC7AE7899F55EC69F1C15E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ Kaioh - Emotional Fire (2021) [FLAC|Lossless|tracks] <Eurobeat>
 magnet:?xt=urn:btih:E135DB30A897C68A0D836EB97E7CBE561DED7B12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ Andrea Pozza Trio - Drop This Thing (2008) Dejavu [FLAC|Lossless|tracks + .cue] 
 magnet:?xt=urn:btih:671C5660BC06A5B529516C4DD795250D4E2F3BF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:671C5660BC06A5B529516C4DD795250D4E2F3BF4
 ```bash
 magnet:?xt=urn:btih:D25CC439AA4F2548CFD318A4F990DB01D95EC183
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:D25CC439AA4F2548CFD318A4F990DB01D95EC183
 magnet:?xt=urn:btih:44AF1C77F180A74E20ECA39FA7304041C612CFA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ Gnipahalan (Gnipahålan) - I Nordisk Vredeslusta (2022) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:36BF88E4ACDC793FF21F9D97BC395A1035285E15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:36BF88E4ACDC793FF21F9D97BC395A1035285E15
 magnet:?xt=urn:btih:84B63B56A18977C6B0BBA1E5DADE16E49CC55019
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:84B63B56A18977C6B0BBA1E5DADE16E49CC55019
 ```bash
 magnet:?xt=urn:btih:4F646CAA0FB4F7FDA92B96ED806EDC022AF4EFF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:4F646CAA0FB4F7FDA92B96ED806EDC022AF4EFF0
 magnet:?xt=urn:btih:DA7D0F883F7A93414BC206F2EC295F13756B4392
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ Krvna - For Thine Is the Kingdom of the Flesh (2022) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:48AB6BCEC4C932A13B64EB9AD83FD658C2098D9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ magnet:?xt=urn:btih:48AB6BCEC4C932A13B64EB9AD83FD658C2098D9C
 ```bash
 magnet:?xt=urn:btih:6B364BC7223547A518C74481A2561BDC276CE7D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:6B364BC7223547A518C74481A2561BDC276CE7D5
 magnet:?xt=urn:btih:94EBC74C4470284EA01D78B5CA67B9804EBA8F64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ magnet:?xt=urn:btih:94EBC74C4470284EA01D78B5CA67B9804EBA8F64
 ```bash
 magnet:?xt=urn:btih:8BEDEB94F7DD8B7529539F3D908EA1C8473CBD5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +540,8 @@ Mullvad Browser подойдет для пользователей, которы
 magnet:?xt=urn:btih:F46925F93D74D3FC7CFCFA2F7B7AED5E49BF806C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 ```bash
 magnet:?xt=urn:btih:380C6FB26628C165A8F48D1E6093D8F545284F46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ Endlevel - Weekend War (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Groov
 magnet:?xt=urn:btih:A33F2C3665FA683CCD87786F03A0E8EBB96A3F75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ VA - Armin van Buuren - A State Of Trance 1117 (2023) [MP3|320 Kbps] <Trance, Pr
 magnet:?xt=urn:btih:98022A155E6E74FB2D8A5794C209304F51B8D551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +652,8 @@ magnet:?xt=urn:btih:98022A155E6E74FB2D8A5794C209304F51B8D551
 ```bash
 magnet:?xt=urn:btih:C66309868D548BBF310F708159E83AFAFE252FFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +682,8 @@ VA - Beatport Techno Electronic: Sound pack #263 (2021) [MP3|320 Kbps] <Techno, 
 magnet:?xt=urn:btih:8473A97FA439512B6298307BA4BDEF5A46E2C261
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ magnet:?xt=urn:btih:8473A97FA439512B6298307BA4BDEF5A46E2C261
 ```bash
 magnet:?xt=urn:btih:F58A57374A6E62965C8A1C7CB5788F3A105BAD24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

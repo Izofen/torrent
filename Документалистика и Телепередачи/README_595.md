@@ -1,3 +1,29 @@
+###  Публикация: 1273524   (799736) от 02.01.2019
+
+Голос. Перезагрузка (2019.01.01) HDTV [H.264/1080i-LQ] (сезон 7, выпуск 13)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из самых ярких шоу-проектов в очередной раз продемонстрирует невероятные результаты от альянса обладателей незаурядных голосов и опытных наставников, позволяющих талантам раскрыться и расцвести. Великолепные голоса, уникальные музыкальные постановки, молодые и не очень участники, которым придется испытать радость творчества, счастье триумфа и слезы поражения (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТВ-шоуСубтитры: отсутствуютПродолжительность: 01:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EF61222E56110B4ADBEB0980C46ACC6418690B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506570   (799999) от 31.10.2021
 
 От рассвета до заката / Dawn To Dusk (2020) WEBRip [H.264/1080p] (серии 1-8 из 8)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:B6326BE3278C2489DA558322831E52F3788D387B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:B6326BE3278C2489DA558322831E52F3788D387B
 ```bash
 magnet:?xt=urn:btih:7BD74D0F80E65D7F9548DBE1C1F453D85160CF90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:7BD74D0F80E65D7F9548DBE1C1F453D85160CF90
 magnet:?xt=urn:btih:FCB9084D8870D4ED5B7A678BA3FC1566A1A0D7A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:FCB9084D8870D4ED5B7A678BA3FC1566A1A0D7A5
 ```bash
 magnet:?xt=urn:btih:F9F011C95C6A7C9269F914478CED50F6FDFD7773
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:F9F011C95C6A7C9269F914478CED50F6FDFD7773
 magnet:?xt=urn:btih:9B4E5DD574B0A26061D7A4D63DBFA1FE9BC3E1C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:9B4E5DD574B0A26061D7A4D63DBFA1FE9BC3E1C2
 ```bash
 magnet:?xt=urn:btih:BEF67C2BB76E7559C6113D1464E40E9F772B475C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:BEF67C2BB76E7559C6113D1464E40E9F772B475C
 magnet:?xt=urn:btih:B2EA1CDD451B6A52A867EEFBBB2FD1C441237E0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:B2EA1CDD451B6A52A867EEFBBB2FD1C441237E0F
 ```bash
 magnet:?xt=urn:btih:D119AB4A635321AB38B7EF828FDF99AF60DC6926
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:D119AB4A635321AB38B7EF828FDF99AF60DC6926
 magnet:?xt=urn:btih:57BF204419BB8A9A783F43B374D73AC9E3E5A476
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:57BF204419BB8A9A783F43B374D73AC9E3E5A476
 ```bash
 magnet:?xt=urn:btih:72790E7488986547673066561804E48ACF0D3D92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:72790E7488986547673066561804E48ACF0D3D92
 magnet:?xt=urn:btih:D3616F4E8B76A1C2FD1E33CEF3C546B92580117B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:D3616F4E8B76A1C2FD1E33CEF3C546B92580117B
 ```bash
 magnet:?xt=urn:btih:FCDDB9F659121C4E357026F6E67FBB9CCDF8878A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:FCDDB9F659121C4E357026F6E67FBB9CCDF8878A
 magnet:?xt=urn:btih:5E0D2B7859BE79E37690C254532FD08770B615A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:5E0D2B7859BE79E37690C254532FD08770B615A6
 ```bash
 magnet:?xt=urn:btih:FA59DA630FF9D0D241DCC4C6D8F2676568FFA30E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:FA59DA630FF9D0D241DCC4C6D8F2676568FFA30E
 magnet:?xt=urn:btih:C1F8FC9E11FADA3966E6970DCDC90F65EF4A2103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:C1F8FC9E11FADA3966E6970DCDC90F65EF4A2103
 ```bash
 magnet:?xt=urn:btih:51F9D8264DECB27E41792D7D30C0957D76B128D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:51F9D8264DECB27E41792D7D30C0957D76B128D0
 magnet:?xt=urn:btih:4121C620F5EACA67403DF4DF0EEB7A8F54F01206
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:4121C620F5EACA67403DF4DF0EEB7A8F54F01206
 ```bash
 magnet:?xt=urn:btih:B85DA81B75F660CD305A138A5B00CABD11FA6006
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:B85DA81B75F660CD305A138A5B00CABD11FA6006
 magnet:?xt=urn:btih:44D248403BD6D9D7CB71BA86BDBD4DA01B5DBBD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:44D248403BD6D9D7CB71BA86BDBD4DA01B5DBBD0
 ```bash
 magnet:?xt=urn:btih:6E691B480FCDEC0D519B8747C3B98A33B570DD0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:6E691B480FCDEC0D519B8747C3B98A33B570DD0E
 magnet:?xt=urn:btih:1695F948AC4BDBE5BA1F50F0F12B601440F9A613
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:1695F948AC4BDBE5BA1F50F0F12B601440F9A613
 ```bash
 magnet:?xt=urn:btih:8373092A64C18BFF8FC820169C962E8140A4344D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:8373092A64C18BFF8FC820169C962E8140A4344D
 magnet:?xt=urn:btih:848680DF73B6557EB5BFFCCBE861BF1F9562424C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:848680DF73B6557EB5BFFCCBE861BF1F9562424C
 ```bash
 magnet:?xt=urn:btih:8283C2B5B98199AC72FBD92C20C90FA0735451B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:8283C2B5B98199AC72FBD92C20C90FA0735451B0
 magnet:?xt=urn:btih:6E47F01278E4385ECF4CB4A7A0B898B5223F0BBE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121633   (800508) от 02.04.2017
-
-Где логика? (2017.04.02) WEB-DL [H.264/720p-LQ]  (сезон 4, выпуск 7)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Звездные семейные пары, партнеры по съемочной площадке, просто хорошие друзья и знакомые будут вместе пытаться выстраивать логические связи между самыми, казалось бы, нелогичными событиями, предметами или фактами. Почему мы оставляем официантам на чай, но не оставляем врачам на бинты? Для чего нам мизинцы на ногах? Зачем мыть машину в ноябре? Почему существует сухое (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:358D9B75D4D2EDAEE55FC5F0BC522C9187ED69E2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ ROSA Enterprise Desktop — операционная система, реком�
 magnet:?xt=urn:btih:D03EFC2CD2C1A5CE63C2C9222238EC10D14E3F14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ ROSA Desktop Fresh LXQT R6 [i586, x86-64] 2xDVD
 magnet:?xt=urn:btih:2A86A08D3DD18E442FC25B0B0DE5B01D48798CDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ openSUSE 13.1.1 Education Li-f-e [i686] 1xDVD
 ```bash
 magnet:?xt=urn:btih:017AF542CB49FE6B41693AE32461D2C64E850EB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ SUSE Linux Enterprise Desktop Server Workstation 15.2
 magnet:?xt=urn:btih:4DBF19A69D9F75D0CBF2DE1AE0783A7E4B7E9B3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ SUSE Linux Enterprise Desktop Server Workstation 15.1
 magnet:?xt=urn:btih:5874EB378E306F63875F3569564D1CA3764F0266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ SUSE Linux Enterprise Desktop Server 15
 ```bash
 magnet:?xt=urn:btih:AE1957AA503D2119EDA29D05321F5D9D35D78DD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Debian GNU/Linux 11.5.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+3xCD
 magnet:?xt=urn:btih:F8B5AFD5E5D75404649F461CF51B1D185B8FF494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Xubuntu 22.04 под кодовым названием Jammy Jellyfish — эт�
 magnet:?xt=urn:btih:23D897CD86C6230F27E3D790DC727D7A0ABF51D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Kali Linux 2022.1 (ex. BackTrack) [amd64, i386, arm] 8xDVD, 3xCD Аудит бе
 ```bash
 magnet:?xt=urn:btih:39061023E6A63AB8F8AAABF991778463E54333B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Debian GNU/Linux 11.4.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+3xCD
 magnet:?xt=urn:btih:AAD67E881832CEE7FDF1D2E9D3D4EC75DE413CA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ Debian GNU/Linux 11.4.0 + nonfree (firmware) Bullseye [i386] 2xDVD+3xCD
 magnet:?xt=urn:btih:D8CCF7C3FD41700A5C30187F86619E22F0897E40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Astra Linux Special Edition 1.7.4 успешно прошла комплекс �
 ```bash
 magnet:?xt=urn:btih:06B7FD08066766EE3201A2F57ED040E78EFF89D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ Red Hat Enterprise Linux (RHEL) - популярная коммерческая 
 magnet:?xt=urn:btih:17FE448278658634CAE114AB299FBA0C8E5E4B19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ KNOPPIX 8.6.1 [x32, x64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:74424385CE35C41AAB8FD9C909A2A6E2FC6C47D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ Debian GNU/Linux 10.2.0 + nonfree Buster [amd64] 4xDVD
 magnet:?xt=urn:btih:0BB1576AF79B0C65E0E934EAC651517026A39B60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ Debian GNU/Linux 10.2.0 + nonfree Buster [i386] 4xDVD
 magnet:?xt=urn:btih:7F538B4A9509D39B0671A993D8983E7A89A99ADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ Linux Mint — дистрибутив операционной системы Li
 ```bash
 magnet:?xt=urn:btih:B5D0FC27E17067A19F5FCD3D267413053D975F6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ Linux Mint — дистрибутив операционной системы Li
 magnet:?xt=urn:btih:FA299658EB7C185FC0092948ECACA3A909B7E4C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ CentOS 7.3(1611) [x86_64] 4xDVD + 2xCD
 ```bash
 magnet:?xt=urn:btih:79E910DD5DDF4F4C020D5BDFCCB53B793B8F5AFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ Red Hat Enterprise Linux 7.7
 magnet:?xt=urn:btih:425F4F78DA953919F6A07C4FEF4A837FC2EDE870
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ Red Hat Enterprise Linux 8.1
 ```bash
 magnet:?xt=urn:btih:1AF000F77DD712C9EC8995CF0BED0202809307F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ Linux Mint — дистрибутив операционной системы Li
 magnet:?xt=urn:btih:31F36166BB5B5194B106088BF1E0023D1415A576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ Linux Mint — дистрибутив операционной системы Li
 ```bash
 magnet:?xt=urn:btih:1EEA79BA37DB327913013D20CD3F9382EDAD375F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +642,8 @@ Linux Mint — дистрибутив операционной системы Li
 magnet:?xt=urn:btih:3AD0450CB227F9954CA0690A729D4C5C130FE073
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ openSUSE 13.2.1 Education Li-f-e [i686, x86-64] 2xDVD
 magnet:?xt=urn:btih:24B4DAC44309961E3EA291A2362DFD884C5F7D80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ Elementary OS Freya — это дистрибутив позиционируем
 ```bash
 magnet:?xt=urn:btih:82FCCCCA86184154170914CC82EEE8B5BCFDD4F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

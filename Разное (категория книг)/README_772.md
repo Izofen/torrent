@@ -1,3 +1,29 @@
+###  Публикация: 1468867   (1016868) от 09.05.2021
+
+Касия Везовски, Патрик Везовски | Я понимаю тебя без слов. Как читать людей по жестам и мимике (2020) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Словами можно передать лишь половину информации. Жесты, мимика, поза говорят о человеке едва ли не больше, чем он сам. С помощью языка тела легко добиться желаемого результата в переговорах, «читая оппонента», как открытую книгу. Правильная трансляция невербальных сигналов поможет вам одержать победу в тендере, выиграть выборы, получить работу мечты, добиться желаемой (   Читать дальше...   )Жанр: О психологии популярно, Практическая психология, Социальная психология, Саморазвитие / личностный ростПеревод: А. С. МоничФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AACA66F6D45051B1DCABCA72F6DE33E3EB7857B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468466   (1017098) от 08.05.2021
 
 А. Логунов (сост.) | Книга пасхальной радости. 50 дней от Пасхи до Пятидесятницы. Вдохновение на каждый день (2015) [FB2, EPUB]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:8BEC507774C3464FC03DCC762EFD96FA120901E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:8BEC507774C3464FC03DCC762EFD96FA120901E2
 magnet:?xt=urn:btih:ADF14112AB196BE5ABD13C2C912F5510DA765A21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:ADF14112AB196BE5ABD13C2C912F5510DA765A21
 ```bash
 magnet:?xt=urn:btih:FD520EA8C41AD901F404C02DD2D3F3E4E2380531
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:FD520EA8C41AD901F404C02DD2D3F3E4E2380531
 magnet:?xt=urn:btih:B1440B6685B0059E55F9083E339057932BE594BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:B1440B6685B0059E55F9083E339057932BE594BA
 ```bash
 magnet:?xt=urn:btih:36A8DCFBD28059C4CD4F9144ADF4EEAFB705B1AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:36A8DCFBD28059C4CD4F9144ADF4EEAFB705B1AA
 magnet:?xt=urn:btih:BFF3AF97614D294B41F61507A86CA5A52EE7C4C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:BFF3AF97614D294B41F61507A86CA5A52EE7C4C0
 ```bash
 magnet:?xt=urn:btih:C9B9BBC3242C94C7B3ABA631F7C1A014E33F93A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:C9B9BBC3242C94C7B3ABA631F7C1A014E33F93A3
 magnet:?xt=urn:btih:1E2AE90476486ABAD300759C0C1262FA928150C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:1E2AE90476486ABAD300759C0C1262FA928150C9
 magnet:?xt=urn:btih:97EAE20A8AB9339E33775BA3AE35EAA8B84B3524
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:97EAE20A8AB9339E33775BA3AE35EAA8B84B3524
 magnet:?xt=urn:btih:15F50CA3A6CA4C9D1D163F892E9DD2C7625A9AA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:15F50CA3A6CA4C9D1D163F892E9DD2C7625A9AA3
 ```bash
 magnet:?xt=urn:btih:65E624D7639762D62897E61E95BCDA73EB367E5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +342,8 @@ magnet:?xt=urn:btih:65E624D7639762D62897E61E95BCDA73EB367E5D
 magnet:?xt=urn:btih:33B1241AA5ADF0E598FEE5FB5E19EE5C3A0F0C75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +370,8 @@ magnet:?xt=urn:btih:33B1241AA5ADF0E598FEE5FB5E19EE5C3A0F0C75
 magnet:?xt=urn:btih:657628634F317CB00B5FB4051407954ECBD5E217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +396,8 @@ magnet:?xt=urn:btih:657628634F317CB00B5FB4051407954ECBD5E217
 ```bash
 magnet:?xt=urn:btih:90E098C8247F2AD51C2717C6BF7B3E18ED946B95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +424,8 @@ magnet:?xt=urn:btih:90E098C8247F2AD51C2717C6BF7B3E18ED946B95
 magnet:?xt=urn:btih:EFEEF5344A3F2A7BAA8BD1A00A1CC29A5C9013CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +449,8 @@ magnet:?xt=urn:btih:EFEEF5344A3F2A7BAA8BD1A00A1CC29A5C9013CA
 ```bash
 magnet:?xt=urn:btih:1F3A428EF8411BA8E271E94E1FD11098C5E7EB4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +476,8 @@ magnet:?xt=urn:btih:1F3A428EF8411BA8E271E94E1FD11098C5E7EB4B
 magnet:?xt=urn:btih:8AEE2E0A66946E31DE728B67241F1435B7EE13A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +501,8 @@ magnet:?xt=urn:btih:8AEE2E0A66946E31DE728B67241F1435B7EE13A6
 ```bash
 magnet:?xt=urn:btih:00C3EE8A4A59986D062D96139BE9B073A29B111E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +528,8 @@ magnet:?xt=urn:btih:00C3EE8A4A59986D062D96139BE9B073A29B111E
 magnet:?xt=urn:btih:C1AEACD4DDBB238991E7648BD9CC40C5F5C6CAC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +553,8 @@ magnet:?xt=urn:btih:C1AEACD4DDBB238991E7648BD9CC40C5F5C6CAC0
 ```bash
 magnet:?xt=urn:btih:2A285F6602537D282D43868E875B423E5B7A77DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +580,8 @@ magnet:?xt=urn:btih:2A285F6602537D282D43868E875B423E5B7A77DF
 magnet:?xt=urn:btih:03EE32A838BDED70633308E16FE29DF2D17DFB20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:03EE32A838BDED70633308E16FE29DF2D17DFB20
 ```bash
 magnet:?xt=urn:btih:6564DB9A4E5443DBF38A026F1198EDC40829DD29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +632,8 @@ magnet:?xt=urn:btih:6564DB9A4E5443DBF38A026F1198EDC40829DD29
 magnet:?xt=urn:btih:525BA0751A21369160F093222A5A43680B7E0B0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:525BA0751A21369160F093222A5A43680B7E0B0A
 ```bash
 magnet:?xt=urn:btih:8FC6F65C0B8B5CA76EB0E69AA893C1D4041A32A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,29 +685,7 @@ magnet:?xt=urn:btih:8FC6F65C0B8B5CA76EB0E69AA893C1D4041A32A3
 magnet:?xt=urn:btih:B9DA9B85583926957BA2324F3AC54ED92A8A419D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466858   (1018193) от 01.05.2021
-
-Эллисон Шрагер | Заходит экономист в публичный дом. Необычные примеры управления риском для повседневной жизни (2021) [EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга научит вас оценивать риски, а значит, принимать лучшие решения во всех областях жизни. На примерах необычных профессий Эллисон Шрагер подробно и доходчиво разбирает пять правил управления рисками. Они помогут повысить вероятность удачного исхода и не полагаться на волю неопределенности.Жанр: Экономика и бизнес, финансовые рискиПеревод: Василий ГороховФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1254E69C4E1359EF45698AFBAF76859C7D86883
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

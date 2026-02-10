@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5719C8E696E6948B9373E462EE3488F6D9F00928
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:5719C8E696E6948B9373E462EE3488F6D9F00928
 ```bash
 magnet:?xt=urn:btih:2699D728510BFB08A7C12DAAB5E26CE2B35990A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:2699D728510BFB08A7C12DAAB5E26CE2B35990A2
 magnet:?xt=urn:btih:923A628AD533DB18E7BB5F0C2A323CC2742AD43E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:923A628AD533DB18E7BB5F0C2A323CC2742AD43E
 ```bash
 magnet:?xt=urn:btih:E3059008F22B6376325894AE216B776B7A9D0227
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ PBS Nature: Тайная жизнь леопарда / Revealing the Leopard (20
 magnet:?xt=urn:btih:2DD8FB0B32AC6E169885688FE19347CF76DC9A35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:2DD8FB0B32AC6E169885688FE19347CF76DC9A35
 ```bash
 magnet:?xt=urn:btih:468FC9D96E04B8801C1C6060047E16CA1F5E03AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:468FC9D96E04B8801C1C6060047E16CA1F5E03AE
 magnet:?xt=urn:btih:099A2E9E7807F1B6E51F4E23672017479AC756AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NG. Прикасаясь к дракону (Приручить дракона) /
 ```bash
 magnet:?xt=urn:btih:B24590F15E48F7F62F94E694CC64F851B7932AD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ BBC. Зачарованное Королевство / Enchanted Kingdom (2013) 
 magnet:?xt=urn:btih:FBEC3F766189A7E00A4467D20E0F7ED50B6D71D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ NG: История великих озер / Drain the great lakes (2011) SATRip
 ```bash
 magnet:?xt=urn:btih:8A3DFE0260832DA11655E6269CCF2F456B6162DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Nat Geo Wild: Explorer (Исследование). Столкновение с �
 magnet:?xt=urn:btih:A7B2E2799F261E55433F6AAA510097132C5B2F43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:A7B2E2799F261E55433F6AAA510097132C5B2F43
 ```bash
 magnet:?xt=urn:btih:CD519779CD5AB9B7A6880B4BA90E9D20FC997AD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ BBC. Львы пустыни / Desert Lions (2007) BDRip [H.264/720p]
 magnet:?xt=urn:btih:3E0ACDC62F4936A53D93443FC0D25F1CB19D02B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Nat Geo Wild: Хищники Африки [3 из 3] / Africa’s Deadliest (201
 ```bash
 magnet:?xt=urn:btih:0EF3BAA92AFFF7B8F7CA7454CC1B94F5F7CC58AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ NGW: Дикие Гавайи. Тайны морских глубин / Wildes Ha
 magnet:?xt=urn:btih:C8775F27224731F231A7A2046B27FE8E2D554C02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ BBC: Горная горилла / BBC: Mountain Gorilla (2010) BDRip [H.264/720
 ```bash
 magnet:?xt=urn:btih:DEAEB1061DE5D5DC6F495EB01FA65EB4ECA01A85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ BBC: Горная горилла / BBC: Mountain Gorilla (2010) BDRip [H.264/108
 magnet:?xt=urn:btih:A82AEFC121AFD48AEBBD26B8CB8C931C0035D5C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ magnet:?xt=urn:btih:A82AEFC121AFD48AEBBD26B8CB8C931C0035D5C4
 magnet:?xt=urn:btih:71CBD85207F987326763D3364C185B58EC857951
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +486,8 @@ magnet:?xt=urn:btih:71CBD85207F987326763D3364C185B58EC857951
 ```bash
 magnet:?xt=urn:btih:456FBE98394D912084B3470E336DB655B587EAB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ magnet:?xt=urn:btih:456FBE98394D912084B3470E336DB655B587EAB6
 magnet:?xt=urn:btih:5056D8FA0E4D2E9D706421D5245B02F77C8CACCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ magnet:?xt=urn:btih:5056D8FA0E4D2E9D706421D5245B02F77C8CACCF
 ```bash
 magnet:?xt=urn:btih:0D1A7BAC9B12B0743632EC88261B1AC624C6D5B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ magnet:?xt=urn:btih:0D1A7BAC9B12B0743632EC88261B1AC624C6D5B4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ magnet:?xt=urn:btih:0D1A7BAC9B12B0743632EC88261B1AC624C6D5B4
 ```bash
 magnet:?xt=urn:btih:AA6C31E71F5F6E34F876610BEF322FCA472EEBAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ magnet:?xt=urn:btih:AA6C31E71F5F6E34F876610BEF322FCA472EEBAF
 magnet:?xt=urn:btih:EEB6A90A9B2B8BCF76E9659BC52737228F352235
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ magnet:?xt=urn:btih:EEB6A90A9B2B8BCF76E9659BC52737228F352235
 magnet:?xt=urn:btih:2637784D32FC3D1295F6B716B7AADEA9AAD43370
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ NG: Властелины бездны / Diving With Aliens (2004) DVDRip
 ```bash
 magnet:?xt=urn:btih:C6FA2F4C43100F2491A4EC10CB0F5786794168A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1033337   (639487) от 10.07.2016
+
+Дэвид Хорсагер | Час тишины. И еще 34 инструмента, которые сохранят ваше время и энергию (2016) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга для тех, кому не помешал бы дополнительный день в неделе, чтобы все успевать. Дэвид Хорсагер собрал великолепную коллекцию из 35 простых стратегий, которые позволят любому человеку взять свою жизнь под контроль. Каждый прием можно сразу применять на практике, и в итоге больше успевать как на работе, так и дома, при этом существенно экономить время и силы. (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, практическая психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CC10BF8B266DC791B30C8D1DC842EE87C429480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033261   (639488) от 10.07.2016
 
 Игорь Прокопенко | Тайны человека (2016) [FB2]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:F218C9644BC558A57DA89DAEA5417F072B671748
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -53,6 +81,8 @@ magnet:?xt=urn:btih:F218C9644BC558A57DA89DAEA5417F072B671748
 magnet:?xt=urn:btih:86FF3BB65C0DEA8400E59A6E16F7D0E1B3B4CAE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -79,6 +109,8 @@ magnet:?xt=urn:btih:86FF3BB65C0DEA8400E59A6E16F7D0E1B3B4CAE6
 magnet:?xt=urn:btih:AE832139B0E653B9997CFB8012C3C141EB88453B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +134,8 @@ magnet:?xt=urn:btih:AE832139B0E653B9997CFB8012C3C141EB88453B
 ```bash
 magnet:?xt=urn:btih:6E1BE7FBFD6C68C0A2E10DB78B657881CD094D01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +161,8 @@ magnet:?xt=urn:btih:6E1BE7FBFD6C68C0A2E10DB78B657881CD094D01
 magnet:?xt=urn:btih:3F0B16278E3AA6DEEDCD3632618DB2BF5D44F52B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +186,8 @@ magnet:?xt=urn:btih:3F0B16278E3AA6DEEDCD3632618DB2BF5D44F52B
 ```bash
 magnet:?xt=urn:btih:C9894C98CAA7239E69A00F2247F7D9372052ECE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +213,8 @@ magnet:?xt=urn:btih:C9894C98CAA7239E69A00F2247F7D9372052ECE1
 magnet:?xt=urn:btih:A36077058DD32C6C3F050432E3E36EFDC511A813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +238,8 @@ magnet:?xt=urn:btih:A36077058DD32C6C3F050432E3E36EFDC511A813
 ```bash
 magnet:?xt=urn:btih:92A840F2C233CB8484504C694BED2348047608DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +266,8 @@ magnet:?xt=urn:btih:92A840F2C233CB8484504C694BED2348047608DE
 magnet:?xt=urn:btih:AEE7D1D1F2E2FE997D4BAB8561BB4CCCF135CE3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +291,8 @@ magnet:?xt=urn:btih:AEE7D1D1F2E2FE997D4BAB8561BB4CCCF135CE3E
 ```bash
 magnet:?xt=urn:btih:40CF51230CD6EB60C83EF689F549C37B6698BE26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +318,8 @@ magnet:?xt=urn:btih:40CF51230CD6EB60C83EF689F549C37B6698BE26
 magnet:?xt=urn:btih:8801ED5028956B8810BABCEF0CEA3BD9E7AAC46A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +344,8 @@ magnet:?xt=urn:btih:8801ED5028956B8810BABCEF0CEA3BD9E7AAC46A
 magnet:?xt=urn:btih:2B9AC6E784E803C34FA26E2FAE7D021736D94CCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +369,8 @@ magnet:?xt=urn:btih:2B9AC6E784E803C34FA26E2FAE7D021736D94CCF
 ```bash
 magnet:?xt=urn:btih:59C681EBC42889AD6F7F4FEA8E88602927CEE675
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +397,8 @@ magnet:?xt=urn:btih:59C681EBC42889AD6F7F4FEA8E88602927CEE675
 magnet:?xt=urn:btih:C62EB2E4F7FEEA99063E6F4E2ABE0B50DAC0A52E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +422,8 @@ magnet:?xt=urn:btih:C62EB2E4F7FEEA99063E6F4E2ABE0B50DAC0A52E
 ```bash
 magnet:?xt=urn:btih:951979F8F563687E3561B0EB2B479DE817D951B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +450,8 @@ magnet:?xt=urn:btih:951979F8F563687E3561B0EB2B479DE817D951B5
 magnet:?xt=urn:btih:7ACC80DFED5C0F836320FEDC51DF3D818DC0F45D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +475,8 @@ magnet:?xt=urn:btih:7ACC80DFED5C0F836320FEDC51DF3D818DC0F45D
 ```bash
 magnet:?xt=urn:btih:18F95B451196D16EEB4FA596E4A5ECC9DBB6D427
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +502,8 @@ magnet:?xt=urn:btih:18F95B451196D16EEB4FA596E4A5ECC9DBB6D427
 magnet:?xt=urn:btih:AA168C2B44F700FE3CA01DDF10BBC5F4B6BA5BB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +527,8 @@ magnet:?xt=urn:btih:AA168C2B44F700FE3CA01DDF10BBC5F4B6BA5BB4
 ```bash
 magnet:?xt=urn:btih:D33550E8AB9E49A75F8B27CD106E21C1BBD5BD83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +554,8 @@ magnet:?xt=urn:btih:D33550E8AB9E49A75F8B27CD106E21C1BBD5BD83
 magnet:?xt=urn:btih:FA07D781CA50FD26B552E86484812015EFD53500
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +580,8 @@ magnet:?xt=urn:btih:FA07D781CA50FD26B552E86484812015EFD53500
 magnet:?xt=urn:btih:B75A549444236C1339324BF1002F8B1797DD1F1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:B75A549444236C1339324BF1002F8B1797DD1F1B
 ```bash
 magnet:?xt=urn:btih:F6300748EF941DB54A1DA384E788F494D9583CB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +634,8 @@ magnet:?xt=urn:btih:F6300748EF941DB54A1DA384E788F494D9583CB7
 magnet:?xt=urn:btih:86E145F1DCD641AA69E0231859951D4B5FCBA48F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +659,8 @@ magnet:?xt=urn:btih:86E145F1DCD641AA69E0231859951D4B5FCBA48F
 ```bash
 magnet:?xt=urn:btih:187AB02FD2F9A07FC449401A7671605125C47071
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,29 +687,7 @@ magnet:?xt=urn:btih:187AB02FD2F9A07FC449401A7671605125C47071
 magnet:?xt=urn:btih:570D25F3598E425FC445CB8FCDEBB8FE72AA3565
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292929   (641171) от 01.04.2019
-
-Питер Сингер | О вещах действительно важных. Моральные вызовы двадцать первого века (2019) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Питера Сингера часто называют самым влиятельным философом в мире. И он же является одним из самых противоречивых. Будучи автором таких важных книг, как "Освобождение животных" и "Практическая этика", он защищает права животных, поддерживает альтруистические движения и способствует развитию биоэтики. В своей новой книге "О вещах действительно (   Читать дальше...   )Жанр: Общество, ЭтикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E16ACC889DCDC565FAD91C84D5C8CE0626CCF4D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

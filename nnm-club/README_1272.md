@@ -22,6 +22,8 @@ Kodeseven - Dystopia (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Industrial>
 magnet:?xt=urn:btih:1F0B49CC6C4C3E3CDE7C838787BA31C040099F03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - DJ's 12" Club Tunes 2024: The Best Of (2024) [MP3|320 Kbps] <Dance, Club, H
 magnet:?xt=urn:btih:AF64FB638A9A05641F9CD94FEFB311EE1DA0DABD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:AF64FB638A9A05641F9CD94FEFB311EE1DA0DABD
 ```bash
 magnet:?xt=urn:btih:870BFA652897323F491B2668BB6955EFB8A22CAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ VA - The Best Of Summer 2024 Broken Beat Nu Disco (2024) [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:AA607861DFE7F139D3B558E0576BC3A88FA0F554
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:AA607861DFE7F139D3B558E0576BC3A88FA0F554
 ```bash
 magnet:?xt=urn:btih:08CB0B866FCEFDED50D4C125904372143E07CCC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:08CB0B866FCEFDED50D4C125904372143E07CCC8
 magnet:?xt=urn:btih:39395E6F391876B636044E40E180BE684B17168C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Jigsawscapes® - Пазлы v3.6.7 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7F218303C13023547BE825AC84C456D82A48CF2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:7F218303C13023547BE825AC84C456D82A48CF2F
 magnet:?xt=urn:btih:9566CAA71FB45E9D7BAFADB24D0772D98BBC72F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:9566CAA71FB45E9D7BAFADB24D0772D98BBC72F6
 ```bash
 magnet:?xt=urn:btih:1D2846DFE228B4201EE91B0E56B9F3ACE9D0EEC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:1D2846DFE228B4201EE91B0E56B9F3ACE9D0EEC1
 magnet:?xt=urn:btih:914A7BD4E445667C9D146A16FB7E1A20096F0937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:914A7BD4E445667C9D146A16FB7E1A20096F0937
 magnet:?xt=urn:btih:AB6935FDC81557AACB1DC587B139A67644359476
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ ToonMe v0.7.15 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:13DAE4345959D14F3A4CD23F36F44027A4048C1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ Reverso Translation Dictionary / Переводной словарь Reverso v14
 magnet:?xt=urn:btih:DB6286A1E5CDBF85FDA5FDF624007B94102D0983
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:DB6286A1E5CDBF85FDA5FDF624007B94102D0983
 ```bash
 magnet:?xt=urn:btih:7259217F162FFF7372960C160BD48DDA345AE26C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ The Idolmaster Shiny Colors 2nd Season | Идолмастер: Яркие цве
 magnet:?xt=urn:btih:75F3CD8A18A47FED7EF7A5F8B854859117712BF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:75F3CD8A18A47FED7EF7A5F8B854859117712BF5
 magnet:?xt=urn:btih:9E9D7CF14C15BAE2F21B65EDBB069C3E2A81EAB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:9E9D7CF14C15BAE2F21B65EDBB069C3E2A81EAB4
 ```bash
 magnet:?xt=urn:btih:2C5715855AF1900EFE1EDC1B3EBB44D3178E1612
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:2C5715855AF1900EFE1EDC1B3EBB44D3178E1612
 magnet:?xt=urn:btih:FEE4B52B176CDE3055AF726EA02F83F01C3AE107
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ VA - Cardio 3 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:E4350A1F7E5B8FCAA288C5E1A2137844086FA736
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:E4350A1F7E5B8FCAA288C5E1A2137844086FA736
 ```bash
 magnet:?xt=urn:btih:4DD0C2EE3D51342AF4DB9924C053A0B8CDE4C3FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:4DD0C2EE3D51342AF4DB9924C053A0B8CDE4C3FC
 magnet:?xt=urn:btih:9DD57465979FFC89F03F78BC10058B831F3BF233
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:9DD57465979FFC89F03F78BC10058B831F3BF233
 ```bash
 magnet:?xt=urn:btih:412383CFD1F2E575E5B3260E038957FF41CD9C47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +617,8 @@ magnet:?xt=urn:btih:412383CFD1F2E575E5B3260E038957FF41CD9C47
 magnet:?xt=urn:btih:94EBCEB6CCF520B35A7303F0C7F89795943C34B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:94EBCEB6CCF520B35A7303F0C7F89795943C34B7
 ```bash
 magnet:?xt=urn:btih:260A918D2ECAE44F2ABA7106D5203D986309952E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +669,8 @@ magnet:?xt=urn:btih:260A918D2ECAE44F2ABA7106D5203D986309952E
 magnet:?xt=urn:btih:F0B6EBCCA4E49B4654453E33A15689EBBD65EA9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ magnet:?xt=urn:btih:F0B6EBCCA4E49B4654453E33A15689EBBD65EA9A
 ```bash
 magnet:?xt=urn:btih:192D4B0E6D01F62D40BE6459AC0A2F81C819004F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

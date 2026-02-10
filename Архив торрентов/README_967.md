@@ -20,6 +20,8 @@ AnyTrans, не в пример iTunes, прост и интуитивен. Ка�
 magnet:?xt=urn:btih:3D4AA4173199464449BB655B2C6C4EF2200490DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ SUMo (Software Update Monitor-монитор обновлений програм
 ```bash
 magnet:?xt=urn:btih:F5FD6E6CCE14134AC2168750CB03A6DEE633AAB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ TreeSize Professional - данная программа показывает д�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ TreeSize Professional - данная программа показывает д�
 ```bash
 magnet:?xt=urn:btih:475698DDE659447B2A573992D262E5111F70C8D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ RadioBOSS - автоматизация радиовещания, озвучка 
 magnet:?xt=urn:btih:192B910752373E8D38C215672FDCFA3EDD6755D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Windows and Office Genuine ISO Verifier - компактная утилита д
 magnet:?xt=urn:btih:EF2227242D043F404281635A89CC611281A595E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Sandboxie 5.55.8 / Sandboxie Plus 1.0.8 RePack by Umbrella Corporation [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:EEA262A8A4D876E190A79A447C30F7C466EA3D29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:EEA262A8A4D876E190A79A447C30F7C466EA3D29
 magnet:?xt=urn:btih:CDE057F64A0A4DB2E68E9B64DA94A8B66E67521C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Sniper Elite V2 – возвращение лучшего симулятора �
 ```bash
 magnet:?xt=urn:btih:8B565FF92A64134AB2E58227AFBECB8EEC1AEB72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Smart Disk Image Utilities - это мощный инструмент для с�
 magnet:?xt=urn:btih:DC106969E33408C7D5B8C2DE0A2EDF2EBCB3C0C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 magnet:?xt=urn:btih:898989DBABDE681BDDA822DD44EE0674EE7DF3B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ MediaHuman YouTube Downloader - удобное приложение, с помо
 ```bash
 magnet:?xt=urn:btih:E85B6247E8B6E7735633C1B85B569AA91A3B16BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Duolingo Plus: изучение иностранных языков 5.41.1 XML-M
 magnet:?xt=urn:btih:7BC4EA7E55A38D6ECA054B60C382E9B6BFE50403
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Opera 83.0.4254.19 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:26B25F5C6E89EE240577E8E70A18BC691A9C06F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Sniper Elite V2 – возвращение лучшего симулятора �
 magnet:?xt=urn:btih:765363A4E02835B61136F2CCB29A024C69A9A526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ UnHackMe – антируткит и антишпион, который позв
 ```bash
 magnet:?xt=urn:btih:94B1CA3673308524145E79C512491DC3041E2E35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ VMware Workstation Player (ранее VMware Player) - виртуальная с
 magnet:?xt=urn:btih:D949DC8381704A0A4220CAFA62BA2295328D2050
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Ashampoo WinOptimizer - новая линейка пакета программ,
 magnet:?xt=urn:btih:1FB87CF203A749CA71A9E802C90AE4E34D9C7946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Ashampoo UnInstaller — это ваша подушка безопасности
 ```bash
 magnet:?xt=urn:btih:35D987C88A35948CA23096CAD55530D87038B9AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ Brave 10 / Десять храбрецов [2012, TV, 12] HDTV 720p raw + rus
 magnet:?xt=urn:btih:E3C3EA4D5AEDDA8FBA2ACFB631E9DB5C2E33CCFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:E3C3EA4D5AEDDA8FBA2ACFB631E9DB5C2E33CCFC
 ```bash
 magnet:?xt=urn:btih:9121D89B33F332BBF70417E9F7C567753D08E37A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ Portrait Professional - автономная программа для обра�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ ImTOO Video Converter является простой в использован�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ PowerCmd - очередная версия современного и удоб�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ Adobe Photoshop 2021 - новая версия программы для обр�
 magnet:?xt=urn:btih:9DA6B82C0A7039B18A557FB9F759AA59BDBC77DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:9DA6B82C0A7039B18A557FB9F759AA59BDBC77DC
 ```bash
 magnet:?xt=urn:btih:68FD0B5FE44FCD6F061F8C247C5CFDDC3E2142CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

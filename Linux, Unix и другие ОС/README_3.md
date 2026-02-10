@@ -20,6 +20,8 @@ Ubuntu*Pack 24.04 Budgie (июль 2024) [amd64] 1xDVD
 magnet:?xt=urn:btih:416E4B70BDD8DF4C401C691945C7493C0219905C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Ubuntu*Pack 20.04 Xfce / Xubuntu (март 2024) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:CA04A132DC024C0A817086238B063B1F2C4823BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Ubuntu*Pack 20.04 MATE (март 2024) [amd64] 1xDVD
 magnet:?xt=urn:btih:E8EC6AAB2C70951506F423A864BD17A0BA5E2A93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Ubuntu*Pack 20.04 Unity (март 2024) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:ED3771A4D97131FB05B4FE0CC928D25742603647
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Ubuntu*Pack 20.04 DDE (март 2024) [amd64] 1xDVD
 magnet:?xt=urn:btih:EB18D8E4F926A75DC4C7C8B9C284A82D09AA188A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Ubuntu*Pack 20.04 LXqt / Lubuntu (март 2024) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:8921AB60A3EE7D1351C7AA4AC0F8F7B7EEA38EAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Ubuntu*Pack 20.04 Budgie (март 2024) [amd64] 1xDVD
 magnet:?xt=urn:btih:D7312847B66281CAEC4A6D562CE5BA0427F26C8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Kali Linux 2024.1 [amd64, i386, arm64] 11xDVD
 ```bash
 magnet:?xt=urn:btih:5CF77367F0E6AC10018F09E7B004AE75534A7945
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Gentoo Linux (произносится дже́нту
 magnet:?xt=urn:btih:1424E846034A9020573444D1E8B64C4866DBBE3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ elementary OS – дистрибутив Linux с открытым исходн�
 magnet:?xt=urn:btih:19A84292A64E1A9935E7CA7B7C40D22F3E1CFFB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Parrot Security Lorikeet amd64 [Хакинг, аудит, безопасност
 ```bash
 magnet:?xt=urn:btih:627F91267B3207268074211B77A536329D60CD7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ FreeBSD - это современная операционная система 
 magnet:?xt=urn:btih:AABA82A154BC9DE64BDE692271FF6A587A823C64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ Simply Linux (Симпли Линукс) — бесплатная операци
 ```bash
 magnet:?xt=urn:btih:9E203A8BF55F93BD02B81CC175AAE9A8704B8092
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ Runtu Lite 22.04 [x64] 1xDVD
 magnet:?xt=urn:btih:5AFE432E8A8D2E9C63DAF87E1FA678419B32CA1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ Linux Mint 21.3 Virginia (Cinnamon Edition, Cinnamon (Edge) Edition, MATE Editio
 magnet:?xt=urn:btih:2E5567FC9D73EAFD66B8109E5C48C32D415D8E88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ KingStation - универсальный фронтенд для множест�
 ```bash
 magnet:?xt=urn:btih:3525E1082514EB684E9DC19EC6FC0495B17A576E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ Astra Linux Special Edition 1.6.14 [amd64] 2xDVD
 magnet:?xt=urn:btih:2EA83824303FE3DF3EFB8E8BC257C75463DF9A22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ Linux XP SMB Desktop – это программный продукт для р�
 magnet:?xt=urn:btih:74DACF01F7678A82E476BA75FCDE1E1E07462A6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ BricsCAD Ultimate V24.1.07-1 [x86_x64] (rpm, deb, tar.gz)
 ```bash
 magnet:?xt=urn:btih:CC379C16FD1A52A86E873FF2D4650C48C229FDCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ Wolfram Mathematica 13.3.1 [x64] (.sh)
 magnet:?xt=urn:btih:00BBCDE7B9B85F6DC46B7067ED0CDC398EA39770
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ CLion — умная IDE, предназначенная для разработ
 ```bash
 magnet:?xt=urn:btih:FC1335E544F6F08F30EAD8DA5990F36D869251E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ WebStorm - Легкий, но мощный IDE, прекрасно оборуд�
 magnet:?xt=urn:btih:C2359CA5E47D858515900D0E67C6FB78CEFF4DCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ IntelliJ IDEA – это ведущая среда быстрой разрабо
 ```bash
 magnet:?xt=urn:btih:766A7033CD37B9D08EE93E58516C3E200EAE3E19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ Astra Linux Special Edition 1.6.13 [amd64] 2xDVD
 magnet:?xt=urn:btih:BF1C20421F15D96B64CEB64D04FD141B6D114569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ Ubuntu ServerPack - полный комплект серверного ПО, к�
 magnet:?xt=urn:btih:0A3DC284F38C46ADCCF8466453E8B79DEB4477D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ Ubuntu ServerPack - полный комплект серверного ПО, к�
 ```bash
 magnet:?xt=urn:btih:574C8C008EB34CE499323A0F33685FC9CF509A70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

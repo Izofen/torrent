@@ -19,6 +19,8 @@ macOS INSTALLERS (WIN/BDU & MAC/DU) - ACTUALLY BUILDS 20.10.19 [Multi/Ru]
 magnet:?xt=urn:btih:C08006D79C249C6D843F68EBBCB86EB32E5C648C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C08006D79C249C6D843F68EBBCB86EB32E5C648C
 ```bash
 magnet:?xt=urn:btih:85B045A857E29F126116F760C464586D0C01EE99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:85B045A857E29F126116F760C464586D0C01EE99
 magnet:?xt=urn:btih:6CED8B908BFE72474DA83A5413DD7567342B18D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:6CED8B908BFE72474DA83A5413DD7567342B18D7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:6CED8B908BFE72474DA83A5413DD7567342B18D7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:6CED8B908BFE72474DA83A5413DD7567342B18D7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Dark Souls III / Dark Souls 3 (2016) [Ru/Multi] (1.15/reg1.35/dlc) License CODEX
 magnet:?xt=urn:btih:E6B7B7CAC0A0D5C12687FA187760734008A8A250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Endless Space 2 (2017) [Ru/Multi] (1.3.14/dlc) SteamRip R.G. Игроманы [D
 ```bash
 magnet:?xt=urn:btih:485104E8C1BFB753B5D141D7B14451E63E945E46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Subnautica - это ролевая игра от создателей Natural Se
 magnet:?xt=urn:btih:5F683DC601E9BCB2A4B1AD39D7852C2C276157D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ uTorrent 3.5.4 build 44846 Pro Portable by Коля3Д79 [MultiRu]
 ```bash
 magnet:?xt=urn:btih:0B6E80E8919BF2DAE074EA15934E698AE3D6AA46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Big Pack of Elements - Огромный и профессиональный на
 magnet:?xt=urn:btih:D56E75E7D3ED90C6ABF1AF8FDAFDAE7CF2B64FA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:D56E75E7D3ED90C6ABF1AF8FDAFDAE7CF2B64FA7
 ```bash
 magnet:?xt=urn:btih:41F30A24BF53DB3AE8A808C57315C345225A5E16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:41F30A24BF53DB3AE8A808C57315C345225A5E16
 magnet:?xt=urn:btih:643704B3AB868061EC8B72301490A99E282EC1BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:643704B3AB868061EC8B72301490A99E282EC1BB
 ```bash
 magnet:?xt=urn:btih:E85E5D3D9EF94EC4796C4B35387E691354774DB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Windows 10 (v1511) RUS-ENG x64 -18in1- (AIO)
 magnet:?xt=urn:btih:8DE9C6BB979D48D792FDB6CC2BC572266D06F80A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Z (2017) WEBRip [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:93FD8E09818B70BD50105C93920792C69C048E05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Vendetta: Curse of Raven's Cry представляет собой экшн-пр
 magnet:?xt=urn:btih:5B3EB93542FF137497091618FD54D79D0F954302
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ magnet:?xt=urn:btih:5B3EB93542FF137497091618FD54D79D0F954302
 ```bash
 magnet:?xt=urn:btih:DFF678750A6C86FDB4DB676516611CF60B1F5A24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Neverwinter: Underdark – игра в жанре фэнтези, созданн
 magnet:?xt=urn:btih:056342BE44A28AC7776C7611FCF8536FEF4F3E08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ StarDrive 2 — это захватывающее и увлекательное 
 ```bash
 magnet:?xt=urn:btih:C0EC4AEE7BAE25A3A13435BE6381EA8B9695E683
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:C0EC4AEE7BAE25A3A13435BE6381EA8B9695E683
 magnet:?xt=urn:btih:D540728F72F7FF6FE381F37E32AAF00AAA6EDC5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ WinRAR - один из самых известных архиваторов. Т�
 magnet:?xt=urn:btih:3B81700E23C850EBDBF2F0F642EC2D7EDBD6F8F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ magnet:?xt=urn:btih:3B81700E23C850EBDBF2F0F642EC2D7EDBD6F8F2
 ```bash
 magnet:?xt=urn:btih:46341DE3BBC63F02C8F3B206899FAA9BD5E10AF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ Windows 7 Home Premium x64 SP1 с автоустановкой, для незр�
 magnet:?xt=urn:btih:575ECF7566D8741DDB90F44FE89077EE4DAA9BC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ magnet:?xt=urn:btih:575ECF7566D8741DDB90F44FE89077EE4DAA9BC0
 ```bash
 magnet:?xt=urn:btih:A9FFA1445B0968FABF0A45A0C89701D1011EA9E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:A9FFA1445B0968FABF0A45A0C89701D1011EA9E6
 ```bash
 magnet:?xt=urn:btih:C2B16B7D7B70142F731D5C25462DD29EF3073FFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Groove Master Juno - The Last Prism (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthp
 magnet:?xt=urn:btih:23833DF01C5248AC421C25E547985BE47C098A93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:23833DF01C5248AC421C25E547985BE47C098A93
 ```bash
 magnet:?xt=urn:btih:E66E54391B34642C55A3F4C50C8BB1E0016BEECE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:E66E54391B34642C55A3F4C50C8BB1E0016BEECE
 magnet:?xt=urn:btih:874D056F30862B162809AD237B43097A646A5444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:874D056F30862B162809AD237B43097A646A5444
 magnet:?xt=urn:btih:4536651BF9F7709CE7828F996B4676207FDE45B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:4536651BF9F7709CE7828F996B4676207FDE45B5
 ```bash
 magnet:?xt=urn:btih:35326FEDE625CE411BB305C554AD82C1FDAD377A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Abbsynth - Back To The Sun (2008) [MP3|256 Kbps] <Electronic, Synth-pop>
 magnet:?xt=urn:btih:AE1A4B9D0CDB816C87D7D6C3DB546AFB3F6219C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Ugly (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:FA31DA147080696FAC34F7523CDF0A14DAF92E05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ Nancy Lee Sings - Catch You On The Other Side (2022) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:6504AFB33F31281DB6B7F46552B1092A8F81FAB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:6504AFB33F31281DB6B7F46552B1092A8F81FAB5
 magnet:?xt=urn:btih:653A0B9F704AA53EA555C3C4681EA13F05FF8526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:653A0B9F704AA53EA555C3C4681EA13F05FF8526
 magnet:?xt=urn:btih:CF739BE1974C2FC82F735A17E081C89A2A245046
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:CF739BE1974C2FC82F735A17E081C89A2A245046
 ```bash
 magnet:?xt=urn:btih:049248CF44A38F3CCBA1990CCCE653FD6B7BF644
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:049248CF44A38F3CCBA1990CCCE653FD6B7BF644
 magnet:?xt=urn:btih:2B33A365797F7D2F82C60863CC8F1AFDE69D74B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:2B33A365797F7D2F82C60863CC8F1AFDE69D74B2
 magnet:?xt=urn:btih:C46131FBD5BEADFA08DD5FC1C29D97E2726C3625
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:C46131FBD5BEADFA08DD5FC1C29D97E2726C3625
 ```bash
 magnet:?xt=urn:btih:D2A2C4B52A28588C9AE3FE9B4B45848C6329A0B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ Phil Woods & The Little Big Band - Real Life (1991) Chesky Records [FLAC|Lossles
 magnet:?xt=urn:btih:3CFADAC746EB5081790446BBB645EBF28A9445D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ AIDA64 - является мощным средством для идентиф�
 magnet:?xt=urn:btih:552BC66A162C05361BEA38733618E468F83E62ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:552BC66A162C05361BEA38733618E468F83E62ED
 ```bash
 magnet:?xt=urn:btih:8900DDF97C96A852E8889CFF5701B39AAE2AAFBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ The Hill Frequencies - Routine Break (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues
 magnet:?xt=urn:btih:0D6240BC9F8A069E902AE6D419A7DFF3E64AEE71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ Wielderfight - Black Coal/Black Smoke (2022) [FLAC|Lossless|WEB-DL|tracks] <Blue
 magnet:?xt=urn:btih:E95BB918AA3287012AAD0E354A5A1373EFA4D91C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:E95BB918AA3287012AAD0E354A5A1373EFA4D91C
 ```bash
 magnet:?xt=urn:btih:41FF28119CB8D1E75D0645C2650A24BFC872D4B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +565,8 @@ Shamanic Ritual - 4 Albums (2019-2022) [MP3|320 Kbps] <Doom, Stoner, Sludge Meta
 magnet:?xt=urn:btih:31FD74B7B12B6561B62477261456C3004DF7380B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:31FD74B7B12B6561B62477261456C3004DF7380B
 magnet:?xt=urn:btih:B5218C25A29BA0B90F02695C3A2A97370F673942
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:B5218C25A29BA0B90F02695C3A2A97370F673942
 ```bash
 magnet:?xt=urn:btih:119A53A1F88E10CCDF3167A434AC7940545D423F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ Timothee Robert - Quarks (2021) La Pluie Chante [FLAC|Lossless|tracks + .cue] <J
 magnet:?xt=urn:btih:D861AFEF157F010833C24AA3131BC9EE5F024B20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ Total Commander 11.01 Final - Titan v30 Portable by pcDenPro [Ru]
 ```bash
 magnet:?xt=urn:btih:CDACB29E05C7FABE95C14C3042B8E55859368379
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +700,8 @@ Karthago - A Rock Tribute to Mate Peter (2022) [FLAC|Lossless|WEB-DL|tracks] <Ha
 ```bash
 magnet:?xt=urn:btih:E7EAB72EED05226627132624DE8A12279FCB2CD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

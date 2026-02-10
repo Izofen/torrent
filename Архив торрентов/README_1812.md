@@ -19,6 +19,8 @@ BBC. Замерзшая планета. Зима [5 серия] / Frozen planet.
 magnet:?xt=urn:btih:C8655693F22FCAD4DD6DADE19A4DFDD06C5CF2F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C8655693F22FCAD4DD6DADE19A4DFDD06C5CF2F8
 ```bash
 magnet:?xt=urn:btih:14B616834C8011038C462670151473C71808BF97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ dj Alex Spark - Made In Russia (30.04.2012)
 magnet:?xt=urn:btih:64E233E611C02D77426FC745ECFE5E643DD5A8FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Ashampoo Snap - программа для создания скриншотов 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +137,8 @@ VA - Trance World Vol. 14 (Mixed by Shogun) (2012) 2CD [FLAC|Lossless]<Trance>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ VA - Trance World Vol. 14 (Mixed by Shogun) (2012) 2CD [FLAC|Lossless]<Trance>
 magnet:?xt=urn:btih:77801F9797CDC4D3C169DE3588FD4F3898B09406
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:77801F9797CDC4D3C169DE3588FD4F3898B09406
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ SAM CoDeC Pack – В кодек-паке собраны самые качест
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +252,8 @@ CD2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +286,8 @@ KeepRolling - Клуб Настоящих Мужчин (2012)[Mp3|320 kbps]<Punk
 ```bash
 magnet:?xt=urn:btih:2D13DA2B1341B3A3DF7E46772FDFB86CBD9F022A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +322,8 @@ Skelator - Agents Of Power (2012) [MP3|320 кб/с]<Epic Power/Heavy Metal>
 magnet:?xt=urn:btih:B7AC82155268853C6C9F653DF80C8A9A72777A88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +347,8 @@ Chromium – мощный, но простой в использовании б�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +383,8 @@ Katri Ylander - Valvojat (2009) [MP3|160 кб/с]<Pop/Rock>
 magnet:?xt=urn:btih:D8B077D1004110F33C6598A1052D3A3E2AF44D62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +417,8 @@ Tara Putra - In Dubland (2012) [MP3|320 кб/с]<Dub, Psy Dub, Psy Chill>
 ```bash
 magnet:?xt=urn:btih:2265E4FDC6AB8FA63DDABFDB4DA97639D120EFF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +453,8 @@ magnet:?xt=urn:btih:2265E4FDC6AB8FA63DDABFDB4DA97639D120EFF5
 magnet:?xt=urn:btih:834D6EDA80736E6A1578D0F3D951E3CAA4D8710D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +478,8 @@ magnet:?xt=urn:btih:834D6EDA80736E6A1578D0F3D951E3CAA4D8710D
 ```bash
 magnet:?xt=urn:btih:1E13ACFBA9AA631280EFFC1D5B677C78F1027EC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +512,8 @@ Sepalcure - Sepalcure (2011)
 magnet:?xt=urn:btih:157A78A25CCBD3F629B989401CA21F882F3D0D8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +538,8 @@ magnet:?xt=urn:btih:157A78A25CCBD3F629B989401CA21F882F3D0D8C
 magnet:?xt=urn:btih:4216A6B21675D6D97839B91F4D6A72F5B3D64ECF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +563,8 @@ VA - Club Night May (2012) [MP3|320 кб/с]<Pop,Dance, Club>
 ```bash
 magnet:?xt=urn:btih:1887DB0CA5910AFFA2A43E8EB8CE75099D0BB88A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +599,8 @@ VA - Клубная танцплощадка (2012) [MP3|192-256 кб/с]<Pop,Da
 magnet:?xt=urn:btih:CC3D3AD608FF0D83A0A38C07A79418FFCF286B1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +634,8 @@ magnet:?xt=urn:btih:CC3D3AD608FF0D83A0A38C07A79418FFCF286B1F
 magnet:?xt=urn:btih:A2E1D9947BFDB6D7942145357F40120A49ADBFB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +660,8 @@ magnet:?xt=urn:btih:A2E1D9947BFDB6D7942145357F40120A49ADBFB1
 magnet:?xt=urn:btih:E84283E1FED5E9959B8B098D26F21759CA56E7AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +685,8 @@ magnet:?xt=urn:btih:E84283E1FED5E9959B8B098D26F21759CA56E7AC
 ```bash
 magnet:?xt=urn:btih:9AA07D58F036D05CD2DB5CC68E844A5EA7C74526
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +713,8 @@ Google Chrome – браузер с открытым исходным кодом
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +738,8 @@ Google Chrome – браузер с открытым исходным кодом
 ```bash
 magnet:?xt=urn:btih:40397CB2BA3D56402D3BC36F1043DD141D795AFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -723,6 +773,8 @@ Scars 19 - Реальность из кошмарных снов (2009)[MP3|320 
 ```bash
 magnet:?xt=urn:btih:8A4B271D647C4C8C26971DB8BA94C917CB2EBE01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

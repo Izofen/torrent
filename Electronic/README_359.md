@@ -22,6 +22,8 @@ CHVRCHES - 4 Альбома, 3 EP, 2 Сингла (2013-2018) [FLAC|tracks|Lossl
 magnet:?xt=urn:btih:9ED84E4E813C74EBE586838E5F6500F2997CA97B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Giuseppe Ottaviani - Liberation V6: Wax Format 10 Years (Vinyl Set), Fabric Lond
 ```bash
 magnet:?xt=urn:btih:B91E47314BDECCC627379DD7F85E5DFCE8B55465
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Gregory Esayan - My Guiding Star (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 magnet:?xt=urn:btih:434DD6196961003E8D1E0D28BFC2DDD8C0727126
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Chris Wonderful - Music for Lovers, volume 1 (2013/2018) [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:BBBC65F933A75C7B098473F2EDD1DF07999BF430
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Weval - The Weight (2019) Kompakt [FLAC|Lossless|WEB-DL|tracks] <Dub, Downtempo,
 magnet:?xt=urn:btih:25A15B381E71A32ADC8005F96B39FCAE789C346F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Washed Out - Purple Noon (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Indie
 ```bash
 magnet:?xt=urn:btih:D00FDD4882AA554F26E3EA0DEF8A4C8E745282B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix) (2019) [MP3|320 K
 magnet:?xt=urn:btih:8B6D038CCA06258488C81009DC99393E023E0F10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -209,6 +223,8 @@ Lost Souls Of Saturn - Holes In The Holoverse (2019) EP [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:69656611788B3D1A9D829CE57C799C3D82F9FB64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +253,8 @@ Thomas Gandey - 4 Releases (2012-2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House
 magnet:?xt=urn:btih:4698174CCF5EA58F85A99F3B5591575F12E7422C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ magnet:?xt=urn:btih:4698174CCF5EA58F85A99F3B5591575F12E7422C
 ```bash
 magnet:?xt=urn:btih:17E2975A91B52D42EDB10C953362A54736F0BB4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +311,8 @@ CD1 Microgravity
 magnet:?xt=urn:btih:4D8CA3D96E2EA9653A2F51365A68808A503BF0DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ Label Pack - Rielism - 45 Releases (2015-2017) [MP3|320 кб/с] <Trance>
 ```bash
 magnet:?xt=urn:btih:E8326881C29A15EA88D3CCF64C2533C4BCD85077
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ Meteora - Gradients II Westerlies (2016) [MP3|320 кб/с] <Electronic, Spacesyn
 magnet:?xt=urn:btih:57BB58EA58471BAD1A79B1025EE0B4E35605670A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ VA - After Work Chillout Vol.1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:E8D66DDAA8977BA316281F31E2A99CEEAEFA2A76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +425,8 @@ VA - Black Hole Trance Music 04 (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:D56F1CED2AA7FA4712DB9FBD0BB62D34B04E7993
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ Thyladomid - Interstellar Destiny (2015) Diynamic Music [FLAC|Lossless|tracks+.c
 ```bash
 magnet:?xt=urn:btih:58904E433E89F49239F34DB859C8EBE527FBC938
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ Markus Schulz
 magnet:?xt=urn:btih:A5DC380DD3EA3AA4CD14B3882F1F46F7F1A5C73F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ Simon Cummings - 間 (2018) Crónica [FLAC|Lossless|WEB-DL|tracks] <Abstract, Ex
 ```bash
 magnet:?xt=urn:btih:4C351D82482FEC52D01B894D74B130DE8AC90511
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ VA - Markus Schulz - Global DJ Broadcast: Top 20 April (2018) [MP3|320 Kbps] <Tr
 magnet:?xt=urn:btih:1690848766C9A76776ABEF20B59D540D23ADE141
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +568,8 @@ Quirke - Whities 015 (2018) Whities [FLAC|Lossless|WEB-DL|tracks] <Techno, Illbi
 ```bash
 magnet:?xt=urn:btih:7B3B9268B72F9E25B23E22341CA1B801C5C96850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +598,8 @@ VA - Buddha-Bar - Clubbing (In Deep Session With DJ Ravin) (2017) [FLAC|Lossless
 magnet:?xt=urn:btih:3BC8FFBB068C9450DCB17FBC0D40FB403BB14243
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +626,8 @@ CHVRCHES - 4 Альбома, 3 EP, 3 Сингла (2013-2018) [MP3|320 kbps]<Syn
 ```bash
 magnet:?xt=urn:btih:60FC1C408E0914952676EB0F684B51305A64F53D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +656,8 @@ Frecvens - A New Day (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
 magnet:?xt=urn:btih:73F684E1CB0ED5672BD90F64796FFC85377CBDCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +684,8 @@ Zentriert ins Antlitz (E.M.I.T.R, Innovation Reality) - Discography 16 Releases 
 ```bash
 magnet:?xt=urn:btih:391A27F1C8D7AED1852C9C1BE88071C315009C7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -666,6 +714,8 @@ Astral Waves - Genesis (2017) [MP3|320 Kbps] <Experimental Electronic, Downtempo
 magnet:?xt=urn:btih:CB6C3AA2BF151CD724A82215632A18EDBBD490D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -692,6 +742,8 @@ Renton - Be Youself [Summer 2018 Mix] (2018) [FLAC|Lossless|WEB-DL|image + .cue]
 ```bash
 magnet:?xt=urn:btih:70EE2B6CCCA69E472BD16BB93502C6E5F2C7C62C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

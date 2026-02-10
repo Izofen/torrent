@@ -1,3 +1,29 @@
+###  Публикация: 983196   (945413) от 05.02.2016
+
+Верю - не верю. Ирландия (05.02.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любители путешествий, Андрей Бедняков зовет вас в увлекательный тур по невероятным странам! В места, где раньше никто и никогда не был. В уголки планеты, которые хранят вековые тайны. По городам, о которых вы нигде больше не узнаете. Бородатый ведущий с прекрасной эрудицией проведет эксклюзивную экскурсию по местам вашей мечты. О каждом из них он расскажет пять интересных (   Читать дальше...   )Телекомпания: Пятница!Жанр: ТелепередачаПродолжительность: 00:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0990FBDBB75F7EAF1A5ACF2923D8283A2B7839D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915652   (945503) от 07.01.2017
 
 Чудо техники (2012-2016) SATRip (выпуски 1-167) (Обновляемая)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:B4302F8341C90CB52F33E52535C6FDC18A091D60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:B4302F8341C90CB52F33E52535C6FDC18A091D60
 magnet:?xt=urn:btih:74F2146E42BF670441CCC2ED4A728B89F8D3DD7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:74F2146E42BF670441CCC2ED4A728B89F8D3DD7D
 magnet:?xt=urn:btih:F5807D17E7F93C4CFF834FC66524F24E4437B30D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:F5807D17E7F93C4CFF834FC66524F24E4437B30D
 ```bash
 magnet:?xt=urn:btih:701D018B729BE6395737D5EE7C559CCAE1E2AF1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:701D018B729BE6395737D5EE7C559CCAE1E2AF1C
 magnet:?xt=urn:btih:3F3347FBB7DFE57B244C5E3D01738EF8E9413B98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ Backstreet Boys: Покажи им, из какого ты теста / Backstre
 ```bash
 magnet:?xt=urn:btih:0ABDD0E7E047AB2E8569E20BFF46474951C1674F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:0ABDD0E7E047AB2E8569E20BFF46474951C1674F
 magnet:?xt=urn:btih:D683B081EEC38A4F3FDD7D8CE19EA1E44DB44D81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:D683B081EEC38A4F3FDD7D8CE19EA1E44DB44D81
 ```bash
 magnet:?xt=urn:btih:1572833AFD5DB30C2DF1EDCD17A3B17C703D215F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:1572833AFD5DB30C2DF1EDCD17A3B17C703D215F
 magnet:?xt=urn:btih:C21DB5FA860DCF7E4BF0B554EE565DC8CA4EA888
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:C21DB5FA860DCF7E4BF0B554EE565DC8CA4EA888
 magnet:?xt=urn:btih:CE6DEE74BF257FD346BB45A330C3B73602207AA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:CE6DEE74BF257FD346BB45A330C3B73602207AA2
 ```bash
 magnet:?xt=urn:btih:A6AC6B59DC5A4F54099B55DC7490938C8F353CC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:A6AC6B59DC5A4F54099B55DC7490938C8F353CC8
 magnet:?xt=urn:btih:2E01E0866B6D36CD4CE13BE39C2E3C7D1E1F435F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:2E01E0866B6D36CD4CE13BE39C2E3C7D1E1F435F
 ```bash
 magnet:?xt=urn:btih:94B05C11D63C5701130D0F509BA8A2897C6F41C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:94B05C11D63C5701130D0F509BA8A2897C6F41C0
 magnet:?xt=urn:btih:CE538893838C482377294079981A5AE9C73C774C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:CE538893838C482377294079981A5AE9C73C774C
 ```bash
 magnet:?xt=urn:btih:993CE106CB62FF9DFFEB61414878D9F55A62E3A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:993CE106CB62FF9DFFEB61414878D9F55A62E3A5
 magnet:?xt=urn:btih:9D70C0FDE630278A32410AEBCC6472DD58399974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:9D70C0FDE630278A32410AEBCC6472DD58399974
 ```bash
 magnet:?xt=urn:btih:63EC8EA609FAF5F6E428E3691BD82F2718D8C9B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:63EC8EA609FAF5F6E428E3691BD82F2718D8C9B1
 magnet:?xt=urn:btih:6091A14188D72F740B6C8E6DF2CD56F0F9C94421
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:6091A14188D72F740B6C8E6DF2CD56F0F9C94421
 ```bash
 magnet:?xt=urn:btih:D8E65D8D4AD97CF4B599C4CC12FAA6134343B029
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:D8E65D8D4AD97CF4B599C4CC12FAA6134343B029
 magnet:?xt=urn:btih:1F73B664C6B322F4EBFE1DF5C16CB7FB247C4E2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:1F73B664C6B322F4EBFE1DF5C16CB7FB247C4E2E
 ```bash
 magnet:?xt=urn:btih:7AB27E23488C5A2B5C372173D8952BB7110DF93E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:7AB27E23488C5A2B5C372173D8952BB7110DF93E
 magnet:?xt=urn:btih:067065CF1A4BEA7A21B4E98F5B6FBEFCEC138043
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:067065CF1A4BEA7A21B4E98F5B6FBEFCEC138043
 ```bash
 magnet:?xt=urn:btih:90795D1D49A9D37AEDF9651CADA3A293ED21BABF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:90795D1D49A9D37AEDF9651CADA3A293ED21BABF
 magnet:?xt=urn:btih:6F1AAC0F2BFA5BD7622F2024AD45C13A3423560D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,29 +672,7 @@ magnet:?xt=urn:btih:6F1AAC0F2BFA5BD7622F2024AD45C13A3423560D
 magnet:?xt=urn:btih:050D1A331862B47367533092851278A8A616690D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090485   (947316) от 06.01.2017
-
-В поисках Дон Кихота (2017.01.04) SATRip (серия 2)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Познер о своем проекте: "Это седьмая наша попытка рассказать о стране. Испания - одна из самых интересных стран Европы - с очень сложной историей, с выдающимися художниками и чем-то очень близкая, как это ни странно, России. Испания очень долго была под игом мавров, Россия - под игом монголо-татар. О России часто говорили, что это не совсем Европа. (   Читать дальше...   )Телекомпания: Первый каналЖанр: Документальный, биография, история, путешествияРежиссер: Валерий СпиринСубтитры: ОтсутствуютПродолжительность: 00:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3191903D51904A1EF384B619CA7A468F1D977888
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

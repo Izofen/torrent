@@ -19,6 +19,8 @@ The Smurfs - Dreams (2024) [Ru/Multi] (0.0.18/dlc) Repack FitGirl
 magnet:?xt=urn:btih:333E41920BE0413DCD71AC9AB714FB918AF6D2F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Deathbound - действие игры разворачивается в сре�
 ```bash
 magnet:?xt=urn:btih:FCFAB5B9C8EE5B638876DE6DC7303DBF5A942B20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Blasphemous 2 (2023) [Ru/Multi] (2.0.0/dlc) Scene Rune
 magnet:?xt=urn:btih:C90F188BC0184E2DD93471F15D5DE60A64AEED4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Resident Evil 6 / Biohazard 6 (2013) [Ru/Multi] (1.0.6/1.1.0/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:268657B3D2EB50F8F482B95397DF7D7758958DC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack Other s
 magnet:?xt=urn:btih:DE0624C62873D10A7565E13FA43DD3E9932B2BE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Call of Sentinels (2024) [Ru/Multi] (1.0.0.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A4609AFCBE2226A4696217DD3F90F073CF2B2896
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Demonologist - это кооперативная игра ужасов, в ко�
 magnet:?xt=urn:btih:0A60C956175F87C6FCB464913518371F0F7734AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Strategic Command WWII: War in Europe (2016) [Multi] (1.30.00.01) License GOG
 ```bash
 magnet:?xt=urn:btih:9E410815452436B52256B8C0F811B9C20C041B18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Dustland Delivery - это постапокалиптический бизнес
 magnet:?xt=urn:btih:DBE53C6C835BB637F8017802C9064934D1B90688
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Dungeon Defenders – интересная игра, которая сочета
 ```bash
 magnet:?xt=urn:btih:EAB40849807117F3AEA8622AA96AE96CC150DB79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ CATO: Buttered Cat — очаровательный платформер-гол�
 magnet:?xt=urn:btih:BA1BFE01052D51F4205F0385AE9ED4B1B4CBC90B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ MasterQuest Fantasy - это увлекательная ролевая игра,
 ```bash
 magnet:?xt=urn:btih:EF220DCDE6BC33D3E9328CD02E2DD973BD4E0E51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Zombie Flick / 僵尸快打 (2024) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:55C768163B32423AE0D4E2AF572D8F3D2FA884F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Dystopika, градостроитель, разработанный студие
 ```bash
 magnet:?xt=urn:btih:11AF1946F89E8720A791AEF38C4C3311E44BF57B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Bus Simulator 21 Next Stop (2021) [Ru/Multi] (2.34) License GOG
 magnet:?xt=urn:btih:1CE2EC5BA88739810441877AE5548130BB952467
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Techtonica представляет собой симулятор строите
 ```bash
 magnet:?xt=urn:btih:E8A626500C470AC9D08FE01348D2A528AE01DB55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Abyss School - это приключенческая игра с упором н
 magnet:?xt=urn:btih:93759C90A7DCCFA43F5226E19EA77EC0E7C96F6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Satisfactory - это игра от первого лица в открытом 
 ```bash
 magnet:?xt=urn:btih:E8D054FD2FE4ACA3F30CF0C3048C292085C7430C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Shadow Corridor 2 (2024) [Multi] (1.14.1) Scene Tenoke
 magnet:?xt=urn:btih:3C63A5C0AADAB0A331F62083393E0EDF519D45C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Easy Red 2 - шутер от первого лица с элементами с�
 ```bash
 magnet:?xt=urn:btih:0FD53D570C0A985C5A42EA6BF73E36834681A951
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Two Falls (Nishu Takuatshina) (2024) [Multi] (1.0) Scene Skidrow
 magnet:?xt=urn:btih:CB09AC80E04B70D89A843544288B9D904CEA86B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Goat Simulator: Remastered предлагает игрокам необычны�
 ```bash
 magnet:?xt=urn:btih:571FDE4B10563578F688976E04A7EC4B26FB7A6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Speedollama (2024) [Ru/Multi] (1.4.0b) License GOG
 magnet:?xt=urn:btih:CAE01A078A9FB6178120176DEF24BD5415253CDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Crimson Snow (2022) [Ru/Multi] (Build 11503562) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0FDB855E32DB3FA0437AA39D16F573022D8E4E9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Dust to the End (2020) [Ru/Multi] (1.0.4.3) License GOG
 magnet:?xt=urn:btih:50E5CFA059C104785EACF7CCC8FA3A8134CAC7D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Pine Harbor - мрачная игра в жанре экшен-хоррора, �
 ```bash
 magnet:?xt=urn:btih:948D2732BB94E4CCC84FFA68B1943E4094020BF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

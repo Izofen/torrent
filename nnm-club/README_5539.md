@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:E0BD65291E14699F7BBD9FDCF7650C3028F5440B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:E0BD65291E14699F7BBD9FDCF7650C3028F5440B
 ```bash
 magnet:?xt=urn:btih:4BCBEB651D98536D5516F167462F24637998FB57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Forces United - Hits From Metal Musicals (2021) [FLAC|Lossless|image + .cue] <He
 magnet:?xt=urn:btih:796DB5517A7424BB1480BD8FF0AB8F2576C9B2CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ MotoGP. Этап 17. Гран-при Тайланда. Квалификация 
 ```bash
 magnet:?xt=urn:btih:11908A9A07304B7AFFC84F4AAAC4C4B80FA17A0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:11908A9A07304B7AFFC84F4AAAC4C4B80FA17A0A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:11908A9A07304B7AFFC84F4AAAC4C4B80FA17A0A
 ```bash
 magnet:?xt=urn:btih:C10543B2A66261D2F6BF05FCE129B447BF4A93F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ VA - Psychedelic Goa Trance 2022 (2021) [AAC|~330 Kbps] <Psy Trance, Goa Trance>
 magnet:?xt=urn:btih:7F2B1FEF3BE4C8D95B80493C46EF2F75EA5E1EB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:7F2B1FEF3BE4C8D95B80493C46EF2F75EA5E1EB2
 magnet:?xt=urn:btih:A63C0CEB9A13116D487D642615D45C1DBF53E6B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:A63C0CEB9A13116D487D642615D45C1DBF53E6B9
 magnet:?xt=urn:btih:43612F37001D7EE9EB6A64C48520911DEE9CC8F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:43612F37001D7EE9EB6A64C48520911DEE9CC8F8
 ```bash
 magnet:?xt=urn:btih:DBDFDC23F119AF72716A7504833BCB7FBA2E425F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:DBDFDC23F119AF72716A7504833BCB7FBA2E425F
 magnet:?xt=urn:btih:8CB44570324E40632E697B6B48DB2CFB4A615C3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:8CB44570324E40632E697B6B48DB2CFB4A615C3E
 magnet:?xt=urn:btih:CF535A6C1CD408CA6A5C9B124F54F47782B8E52F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:CF535A6C1CD408CA6A5C9B124F54F47782B8E52F
 magnet:?xt=urn:btih:2385FE51F3AB5C5ED9A114D1C1F7710D157F8173
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:2385FE51F3AB5C5ED9A114D1C1F7710D157F8173
 ```bash
 magnet:?xt=urn:btih:392874761540598CB84A98DF69E592AB0C0284B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ VA - Best of Chill Jazz 4 (2020) [AAC|~348 Kbps] <Chill Out, Lounge, Smooth Jazz
 magnet:?xt=urn:btih:4974F3590F69AFC9431B3603FC2F0606B6A64AF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:4974F3590F69AFC9431B3603FC2F0606B6A64AF6
 ```bash
 magnet:?xt=urn:btih:1E95E3F48CE97677C655D5DD536C1E6C2EE4311C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:1E95E3F48CE97677C655D5DD536C1E6C2EE4311C
 magnet:?xt=urn:btih:6DCB6450D8DAE3646CBC9A73461B85404B8E81D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:6DCB6450D8DAE3646CBC9A73461B85404B8E81D4
 ```bash
 magnet:?xt=urn:btih:54C24FB615F46A7EC26CB5B16EADECA605290384
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ Picture Instruments Mask Integrator 2.0.10 fix [En]
 magnet:?xt=urn:btih:0BD8E8F30298DC9B6A6C0C26680F8B13A76E9C2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:0BD8E8F30298DC9B6A6C0C26680F8B13A76E9C2C
 ```bash
 magnet:?xt=urn:btih:9531506C697CE5FA3DCCEA8197F2A288B7A7FB2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:9531506C697CE5FA3DCCEA8197F2A288B7A7FB2F
 magnet:?xt=urn:btih:F59044B093DABC7F1C793C609F610037737ED821
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:F59044B093DABC7F1C793C609F610037737ED821
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +616,8 @@ VA - A Tribe Called Kotori 7 (2021) [AAC|~330 Kbps] <Progressive House, Deep Hou
 magnet:?xt=urn:btih:AF030F98BA4FE37E7AFBF4B08D74F4634F38C9C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:AF030F98BA4FE37E7AFBF4B08D74F4634F38C9C5
 magnet:?xt=urn:btih:2FB3CDB26B42F5A782394781CA954996F7863C69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ magnet:?xt=urn:btih:2FB3CDB26B42F5A782394781CA954996F7863C69
 ```bash
 magnet:?xt=urn:btih:8F2871374274947C4E79BA87BA5B7B9B24192C03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +696,8 @@ magnet:?xt=urn:btih:8F2871374274947C4E79BA87BA5B7B9B24192C03
 ```bash
 magnet:?xt=urn:btih:8BB21B5737918A3F04478E5F2EAE876AAAEAD366
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

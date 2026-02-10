@@ -21,6 +21,8 @@ Linguatrip, Веня Пак и др.| LinguaHits. Тариф Newbie (2022) WEB-D
 magnet:?xt=urn:btih:977ECEB563B6CF80571C2EC65D81B92268F37D61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Udemy, Bogdan Stashchuk | The Complete Apache Kafka Practical Guide (2022) WEB-D
 ```bash
 magnet:?xt=urn:btih:DED6BABB0032931A3E1D3965738BA61C49D9ACBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ CG Cookie, Jonathan Lampel | PRESS START: Your Simple First Blender Project (202
 magnet:?xt=urn:btih:5136A22B392BCB6F076A85ECF5FB67DA6002EE83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Advance, Ягодкин Николай | Как повысить уровень 
 ```bash
 magnet:?xt=urn:btih:C2620F1638002764CAA28ED251D481D7705460B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ range слайдеры для выбора стоимости(   Читать д
 magnet:?xt=urn:btih:4BFA95FFE51A246BE154087AA5DF1846720B7968
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Udemy, Arrimus 3D | Arrimus Ultimate 3D Modeling Course (2022) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:A463794679B336F4F613DC29726C8F03A3E10C97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ MographPlus, Kamel Khezri | Advanced 3d motion graphics in Cinema 4d and Realflo
 magnet:?xt=urn:btih:BB4092A5FD3D686D0A52180F3D7A2659F59406CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Profit | Современные фреймворки на PHP (2022) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:750633171D2DFBAC44100C5937185F295560C824
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Granich, Елизавета Черникова | Графические мета
 magnet:?xt=urn:btih:FC49764BBA37193F7E892B9C7BD8D572E2D48AAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ Udemy, Denis Panjuta | The Complete Android 12 & Kotlin Development Masterclass 
 magnet:?xt=urn:btih:6D40BEC0FCEB15E2C97C0A27D3FF4361A967EE6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ Udemy, Creativity Unleashed | Unreal Engine 5 Megacourse: Create Games in UE5 & 
 ```bash
 magnet:?xt=urn:btih:D685937D9FB37A95C0D33BCEFEE5301B5A1E53D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:D685937D9FB37A95C0D33BCEFEE5301B5A1E53D5
 magnet:?xt=urn:btih:70CAFAE4FC0CD9BF69D50D5238CA13E6C6133136
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ Enterclass, Татьяна Анисимова | Pro натюрморт (2023) WE
 ```bash
 magnet:?xt=urn:btih:8EAD495AF8FC87D07B7B6619D65AD019F3C2CC76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ Udemy, Poly Bot | Unreal Engine 5.1: Advanced Landscape creation (2023) WEB-DL [
 magnet:?xt=urn:btih:547629A960A7F8C61AF2B65276C6EBB8B3A6FFF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ SmartUp, Кирилл Дёмин | Сочный дизайн - 2.0 (2023) WEB-DL
 ```bash
 magnet:?xt=urn:btih:0AEB2450B2DE2F2E2C427D1DE5B5AB0CD240E083
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ Udemy, JSFILMZ | Unreal Engine 5 Introduction to Lighting by JSFILMZ (2023) WEB-
 magnet:?xt=urn:btih:89DDC360D2E1D5803296376795D065035B3E9A49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ SmartUP, Кирилл Дёмин | 30 дней / идей для твоего п
 magnet:?xt=urn:btih:0E8DCEEC62A053BCBE0FEE7066BAD4DA7AC2BB67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ pro.liga.ws, Штефан Ротарь | Autodesk Revit - Создание Ок�
 magnet:?xt=urn:btih:32B88B2CBEEC1CC89942804B9368477BCE138097
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ Hudozhnik Online, Екатерина Бердюгина | Анатомия ко�
 ```bash
 magnet:?xt=urn:btih:567ECC6C96DA1A9B855F692FBB25529064000FFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +545,8 @@ magnet:?xt=urn:btih:567ECC6C96DA1A9B855F692FBB25529064000FFD
 magnet:?xt=urn:btih:4CA5FE8E61E2CA08E4E3FE4871DA4A11738378BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +573,8 @@ magnet:?xt=urn:btih:4CA5FE8E61E2CA08E4E3FE4871DA4A11738378BC
 ```bash
 magnet:?xt=urn:btih:BCDED0E2B4E5635CB154960A1E147706675F7939
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +603,8 @@ Slurm (Слёрм), Всеволод Севостьянов | Ansible: Infrastru
 magnet:?xt=urn:btih:6ABE78AA2B5887B05A10F4C849B468E2B9954FE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +629,8 @@ Slurm (Слёрм), Марсель Ибраев, Павел Селиванов |
 magnet:?xt=urn:btih:2654C90A513F90EF7B5B72FF48B5EDFC43B6F2AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ Lectoroom, Елена Базанова | Безумное чаепитие с к
 ```bash
 magnet:?xt=urn:btih:A2E1E2DE5D1053B8885F45B1B9781FCD4E263718
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +683,8 @@ Marker School, Вера Шерстобитова | Основы маркерно
 magnet:?xt=urn:btih:9751FE09C0D1B3E653D0E4A22069F22DAE42F228
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ magnet:?xt=urn:btih:9751FE09C0D1B3E653D0E4A22069F22DAE42F228
 ```bash
 magnet:?xt=urn:btih:2C79BB8363E31EB7D87E90319998AA05A441A3EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

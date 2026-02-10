@@ -1,3 +1,29 @@
+###  Публикация: 1281071   (751603) от 08.02.2019
+
+Джон Фланаган | Освобождение Эрака (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Международный бестселлер The New York Times на протяжении многих лет, переведенный на 29 языков мира! Приключения Уилла продолжаются в седьмой книге серии. Предводителя Скандии Эрака похищают вероломные пустынные кочевники. Уиллу и его товарищу Холту предстоит отправиться в Арриду, чтобы найти Эрака и освободить его. Но раскаленная пустыня – опасное место даже для (   Читать дальше...   )Жанр: Героическое фэнтези, Зарубежное фэнтезиПродолжительность: 13:10:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40860EB7CE56A54C050E093D91D51178CC5E8EF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395869   (751697) от 12.07.2020
 
 Кирилл Шарапов | Отбросы Эдема (2020) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:8A6E02A1FDFEB52831C8EE28F2F92914234B3B91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:8A6E02A1FDFEB52831C8EE28F2F92914234B3B91
 ```bash
 magnet:?xt=urn:btih:874C1667FD44D5312A75F011EAD466B09E7961B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:874C1667FD44D5312A75F011EAD466B09E7961B5
 magnet:?xt=urn:btih:D254C69326461F9EAF46532BE41F87044D4DDF00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:D254C69326461F9EAF46532BE41F87044D4DDF00
 magnet:?xt=urn:btih:A47A118BD910CC426D9206FDC8753228F2BCA08A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:A47A118BD910CC426D9206FDC8753228F2BCA08A
 ```bash
 magnet:?xt=urn:btih:5D803433A1DC486C4428566515B019026D4BFEFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +181,8 @@ magnet:?xt=urn:btih:5D803433A1DC486C4428566515B019026D4BFEFC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +208,8 @@ magnet:?xt=urn:btih:5D803433A1DC486C4428566515B019026D4BFEFC
 ```bash
 magnet:?xt=urn:btih:B577F105A2857DA3B8F1DF355D3268BA557416A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +237,8 @@ magnet:?xt=urn:btih:B577F105A2857DA3B8F1DF355D3268BA557416A5
 magnet:?xt=urn:btih:CDCD6167061190B60D2576900104489A14F96DC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +263,8 @@ magnet:?xt=urn:btih:CDCD6167061190B60D2576900104489A14F96DC1
 magnet:?xt=urn:btih:1659C7E0D9E99149CF1BCE96002B2E84CB7A20AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +288,8 @@ magnet:?xt=urn:btih:1659C7E0D9E99149CF1BCE96002B2E84CB7A20AC
 ```bash
 magnet:?xt=urn:btih:9F75C27AB3D7C190B0F7BF83FC210D44DAD4B318
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +316,8 @@ magnet:?xt=urn:btih:9F75C27AB3D7C190B0F7BF83FC210D44DAD4B318
 magnet:?xt=urn:btih:EBDB0B66404B13B6C39FD6355A95CA33282165F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:EBDB0B66404B13B6C39FD6355A95CA33282165F8
 ```bash
 magnet:?xt=urn:btih:1F70EBE7AB084398561E519BE8F3037439A2AEE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +368,8 @@ magnet:?xt=urn:btih:1F70EBE7AB084398561E519BE8F3037439A2AEE0
 magnet:?xt=urn:btih:B34BA489B1855DD15AE728EBD63508085395CBE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +393,8 @@ magnet:?xt=urn:btih:B34BA489B1855DD15AE728EBD63508085395CBE2
 ```bash
 magnet:?xt=urn:btih:244D743F31FD925F1764FF8CEE229D214E24DA9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:244D743F31FD925F1764FF8CEE229D214E24DA9B
 magnet:?xt=urn:btih:2CCD22F6EBBCA2D0411FC2C16A1438765FE55BDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:2CCD22F6EBBCA2D0411FC2C16A1438765FE55BDE
 ```bash
 magnet:?xt=urn:btih:D1001CD6892F5BB03DAC8F5D9CD4FF76BA67858C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:D1001CD6892F5BB03DAC8F5D9CD4FF76BA67858C
 magnet:?xt=urn:btih:C3D4D607AD0DB8BBD94D7E54DFF2C6F8DA8BE9F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +500,8 @@ magnet:?xt=urn:btih:C3D4D607AD0DB8BBD94D7E54DFF2C6F8DA8BE9F6
 magnet:?xt=urn:btih:F795ADB7833013E9261B08CC19905A92EE46CFD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:F795ADB7833013E9261B08CC19905A92EE46CFD3
 ```bash
 magnet:?xt=urn:btih:8B65514D711D205BC6DDBCD8EC05FBE682F5C657
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:8B65514D711D205BC6DDBCD8EC05FBE682F5C657
 ```bash
 magnet:?xt=urn:btih:A8C4B72950CF349D6748F78C9B6679EDEA0234C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +581,8 @@ magnet:?xt=urn:btih:A8C4B72950CF349D6748F78C9B6679EDEA0234C8
 magnet:?xt=urn:btih:91056860127846C65B4050B2771B529E16DBC142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +609,8 @@ magnet:?xt=urn:btih:91056860127846C65B4050B2771B529E16DBC142
 magnet:?xt=urn:btih:6AE5AF39A39DDF9CCBE4EA92CD06D1C8FAB9D5B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +635,8 @@ magnet:?xt=urn:btih:6AE5AF39A39DDF9CCBE4EA92CD06D1C8FAB9D5B3
 magnet:?xt=urn:btih:F54080930838E3132B618A83ABA72B3EBA5761EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +660,8 @@ magnet:?xt=urn:btih:F54080930838E3132B618A83ABA72B3EBA5761EA
 ```bash
 magnet:?xt=urn:btih:38048E45227802CD95BC0A68ADC3427B4C81FC7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,29 +689,7 @@ magnet:?xt=urn:btih:38048E45227802CD95BC0A68ADC3427B4C81FC7D
 magnet:?xt=urn:btih:1E0E5735067C05C955DF75968244EFFB53496B4A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522820   (754940) от 09.01.2022
-
-Виталий Полосухин | Черный зверь (2020) [MP3, Андрей Кравец]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он — ВАМПИР, охотник. Кому ж, как не вампиру, и охотиться на вампиров, преступивших Закон? Кому ж, как не вампиру, и выполнять заказы таинственного всемогущего Навигатора?Цепь — есть. Заказ — есть. Отсчет пошел… А вот — каково вампиру снова и снова убивать СВОИХ? Это не интересно — НИКОМУ.Жанр: Ужасы, MистикаПродолжительность: 09:00:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D70BD4572AC1CACEB8B2CDDF80707DD6E30A34A5
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

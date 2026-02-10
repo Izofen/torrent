@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:8A54F16760BAA7A2297FD8D94BC7C91352B3EE03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:8A54F16760BAA7A2297FD8D94BC7C91352B3EE03
 magnet:?xt=urn:btih:CBCC109F03D542BACEE5F74D57C2603F1CC758D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:CBCC109F03D542BACEE5F74D57C2603F1CC758D8
 magnet:?xt=urn:btih:B4CD25C878C27D25792E3CF3B248B934DB336D31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:B4CD25C878C27D25792E3CF3B248B934DB336D31
 magnet:?xt=urn:btih:FE5DAE166CCBE671D47841EEB2E015793715D436
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Cycles — это движок рендеринга, который впервы
 ```bash
 magnet:?xt=urn:btih:63FAB2952696E70A35A6ADFC8ACDDD0B7F5FD197
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ EEVEE - это PBR-рендер (Physically Based Rendering) в реальном
 magnet:?xt=urn:btih:A6B95CC5BD2F2A796A5752BF8AED2B23618F3A96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:A6B95CC5BD2F2A796A5752BF8AED2B23618F3A96
 ```bash
 magnet:?xt=urn:btih:BDB7D16D7E8B3F8FEEA8134FC8CCC8D838B69493
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:BDB7D16D7E8B3F8FEEA8134FC8CCC8D838B69493
 magnet:?xt=urn:btih:633411ADB11168E25859E3968B959F721CBA18E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:633411ADB11168E25859E3968B959F721CBA18E1
 ```bash
 magnet:?xt=urn:btih:889196C526D91D2F0B28784FB4B2FFA77DB6D076
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:889196C526D91D2F0B28784FB4B2FFA77DB6D076
 magnet:?xt=urn:btih:6E8C00C098C447BB31439662FBF4A9A6DC391F2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:6E8C00C098C447BB31439662FBF4A9A6DC391F2C
 ```bash
 magnet:?xt=urn:btih:B6F48FFBAFEECDDC22572C3422277B0747519E01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:B6F48FFBAFEECDDC22572C3422277B0747519E01
 magnet:?xt=urn:btih:C1088DB0A4D6532C24E62CB6A691C76C681D58E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ Matt Zandstra | PHP 8 Objects, Patterns, and Practice (2021) [PDF, EPUB] [EN]
 ```bash
 magnet:?xt=urn:btih:7DB4F9DDE25CEE645C597A3CE4C51E75E840595A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ Micha Gorelick, Ian Ozsvald | High Performance Python. Practical Performant Prog
 magnet:?xt=urn:btih:5D1B0A3AA3794568C69DFC9A3F9BDF9668CFB0DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ Wei-Meng Lee | Go Programming Language For Dummies 1st Edition (2021) [PDF] [EN]
 magnet:?xt=urn:btih:C7F47AE1B1E22E45E8A9A9FEB358731C8C5C2B06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:C7F47AE1B1E22E45E8A9A9FEB358731C8C5C2B06
 ```bash
 magnet:?xt=urn:btih:716D22391949EB701B75C1FB175999468012DBE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ Fullstack React with TypeScript - это практическое руковод
 magnet:?xt=urn:btih:C589D282CB23F32DAD3BBB51C9B556A35542D913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ Eric Sarrion | Vue.js Advanced Concepts (2021) [EPUB, PDF, AZW3] [EN]
 ```bash
 magnet:?xt=urn:btih:B519948329282F64F91AEB0474EC6A48F796F5FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:B519948329282F64F91AEB0474EC6A48F796F5FF
 magnet:?xt=urn:btih:3E6D71EC23B7F568AA3AD558767054EAAE602CE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:3E6D71EC23B7F568AA3AD558767054EAAE602CE0
 ```bash
 magnet:?xt=urn:btih:6278EBBC0055E66F54DBF087DA3D51F5CE4175B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ C++ — превосходный выбор для разработки встр
 magnet:?xt=urn:btih:9C6B7C6D160A4972597EB0D7BC7E2F0178C9F760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:9C6B7C6D160A4972597EB0D7BC7E2F0178C9F760
 magnet:?xt=urn:btih:B5B12C7D88C815B9B326FAB927467360B7E31410
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:B5B12C7D88C815B9B326FAB927467360B7E31410
 ```bash
 magnet:?xt=urn:btih:9384E3AE2EE4C68ECFEB8079BBB96E5E33777693
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ PyTorch – это фреймворк от Facebook с открытым исхо
 magnet:?xt=urn:btih:B6D8F294B53B41446DCF4CDD948D76F1669065AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:B6D8F294B53B41446DCF4CDD948D76F1669065AF
 magnet:?xt=urn:btih:B81C00FA86BBF8D6C08B2AFF7A79D3A22A049E24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ magnet:?xt=urn:btih:B81C00FA86BBF8D6C08B2AFF7A79D3A22A049E24
 ```bash
 magnet:?xt=urn:btih:366E8EBD50D8CAFE428E2341B56AD60D0477A1E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Godstrike - топ-даун аркада, направленная на напр
 magnet:?xt=urn:btih:6C23024741DA3A121C05E8E5DAF7636B54A3AB33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Terra Nil – градостроительный симулятор-песочн
 ```bash
 magnet:?xt=urn:btih:8E4CFB70D034D1DC001FB20A14C2568BC53D2B6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.1.2/dlc) Repack FitGirl [20 Year 
 magnet:?xt=urn:btih:51C86B31924DC3B1FCBC7F0E2491ADF8DE6B1ACE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Trials Rising - продолжение популярной мотоаркады
 ```bash
 magnet:?xt=urn:btih:7F37FD92B4054395FE6E06ED882CA70DB897B71B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Arcane Path (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:9E0AF157D4655DBEA644EB9FA229F7398FAA108A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Total War: Three Kingdoms - эта игра из популярнейшей ст
 ```bash
 magnet:?xt=urn:btih:7B00FE73C832730C5BC719F94361A79EB7E24B00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ SuccuSeka: Resist Succubus Temptation - игра от компании Wakaba Sy
 magnet:?xt=urn:btih:CC260492F8A99FF0E72EF7AD7C8A6EE05E5DD95A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Plebby Quest: The Crusades перенесет вас в бои, происход
 ```bash
 magnet:?xt=urn:btih:185769AF9EB6F07C5F31B733877EB06F5DFC72B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Have a Nice Death - это экшен в жанре roguelike. Его главн
 magnet:?xt=urn:btih:DCB1B070D44299504617AE2F2A636F0AAF366B10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Drone Swarm (2020) [Ru/Multi] (7377621) Scene SKIDROW
 ```bash
 magnet:?xt=urn:btih:EA38951B3B9DB4355E15DDA8BE08EF1292B39202
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Monster Energy Supercross - The Official Videogame 6 (2023) [Multi] (1.0) Licens
 magnet:?xt=urn:btih:40B7CE6AB73DCABC91CE960FE275D6821DD02B03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Phantom Brigade - это гибридная тактическая ролева�
 ```bash
 magnet:?xt=urn:btih:D65DC31A4ADC7E353B01E536EA2000928CABEEF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Not For Broadcast (2022) [Ru/Multi] (2023.03.24a/dlc) Repack Chovka [Deluxe Edit
 magnet:?xt=urn:btih:529AAADA66745C9D23F4D77E422455ED821C04E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Life of Delta - приключенческий поинт-н-клик, отпр�
 ```bash
 magnet:?xt=urn:btih:D9A57A03326AFCBCB37E5F5C5961766E10F5FBA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ LEGO Pirates of the Caribbean: The Video Game - это аркада от тре�
 magnet:?xt=urn:btih:E9B4509929576C3FFD9857D20FD28203A7AC0FD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:E9B4509929576C3FFD9857D20FD28203A7AC0FD2
 ```bash
 magnet:?xt=urn:btih:7F03BAEC31C42E5051BDC29C2E41066AED665464
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Failure Drill (2023) [En] (0.9.4.0) Scene Tenoke [16+]
 magnet:?xt=urn:btih:4424B8182B33C860C08A2B901FC777204FB06D3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Super Trunko Go - это сложный шутер с видом сверху, �
 ```bash
 magnet:?xt=urn:btih:A7940D7E6DAA49B68401DE27612119DA30195F23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ A Building Full of Cats – игра-головоломка, предлагаю�
 magnet:?xt=urn:btih:F260AE96A799CFC67C2CAAF8B2AABA211A88734B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Cult of the Lamb (2022) [Ru/Multi] (1.1.5.208/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:9651C20461CBF12453CFEB975702C25DC65A5E82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Funtasia погружает игрока в автомобильные поез�
 magnet:?xt=urn:btih:D9E1E5D7FB2099C9312C3EF91D57AC4295D8C8D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ My Dream Setup (2023) [Multi] (20230224) License TENOKE
 ```bash
 magnet:?xt=urn:btih:09FD09BB9FE5F45D0CD3FB8C094CC51140E12737
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Ghost of a Tale (2018) [Ru/Multi] (8.33a) License GOG
 magnet:?xt=urn:btih:B2A352CC92290C0DFBECB487125B0FD25C56E03B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Kerbal Space Program 2 — продолжение полюбившегося п�
 ```bash
 magnet:?xt=urn:btih:C36A550579A2D5EFC34AECECC459AB193A719C49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Lone Soul - это рогалик в жанре hack-and-slash, сочетающ
 magnet:?xt=urn:btih:8628A79F143D3B401EB0F9037FA72CBEEB756372
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Subnautica — это подводная приключенческая игра
 ```bash
 magnet:?xt=urn:btih:B780180657A9A0956F4DF728080E96887829F26D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

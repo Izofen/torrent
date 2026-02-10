@@ -19,6 +19,8 @@ SUMo (Software Update Monitor-монитор обновлений програм
 magnet:?xt=urn:btih:C51362A84697B8726138AC08273346691963C523
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ EdgeView 2 - это новейший просмотрщик изображени
 magnet:?xt=urn:btih:723812701B2F56396B8A7EF5E5829849D09F7609
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:667890F393A31874DAA5071C03BF7DF4D5292FA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Xabec - Discography (6 Albums & 4 EP) (2000-2013) [MP3|192-320 кб/с]<Ambient,
 magnet:?xt=urn:btih:F918F61786E5575D6F7CA06795AE865BAC1A9D4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Comedy Woman (06.12.2019) WEB-DL [H.264/1080p-LQ]  (сезон 9, выпуск 1
 ```bash
 magnet:?xt=urn:btih:D791F130A2DAE32024FA8811300FBC8AE80E4B40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Ventoy - это инструмент с открытым исходным код
 magnet:?xt=urn:btih:E76F2B456E08BB15D5405A66050D20A4E2992A46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:E76F2B456E08BB15D5405A66050D20A4E2992A46
 ```bash
 magnet:?xt=urn:btih:1E162B96BEAF872A844AB052B54946A27AFFB61D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ iTrash - утилита для удаления приложений с ваше
 magnet:?xt=urn:btih:1CCE4E36078EA56795CBBA9120D0FBC3D461F8A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:1CCE4E36078EA56795CBBA9120D0FBC3D461F8A2
 ```bash
 magnet:?xt=urn:btih:526E41D760DD1E103B8D08A53CFF050459A71C11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:526E41D760DD1E103B8D08A53CFF050459A71C11
 magnet:?xt=urn:btih:2B0A6577BEF0EC945DB00E211172E027086AD945
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ Drag & drop столько папок, сколько вы хотите, и на
 magnet:?xt=urn:btih:CDF2DE1F23FA063094017940241DB463C35BF171
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ Permute - очень простой видео конвертер с миним�
 ```bash
 magnet:?xt=urn:btih:8B3B16D54C80A8F2BEEEAB36A40E9016400E1832
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ Comedy Woman (06.12.2019) WEB-DLRip (сезон 9, выпуск 12)
 magnet:?xt=urn:btih:DA03C2D75453AE7E7242CD132F538C636F1B2509
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:DA03C2D75453AE7E7242CD132F538C636F1B2509
 ```bash
 magnet:?xt=urn:btih:6203CD6E67EDA835EDFF5448957BF4F24F4CBCA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ EssentialPIM - высокофункциональный менеджер пер�
 magnet:?xt=urn:btih:0650F7AFEE3F51C7B0F65D175F73BB04A1D11F0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ Mail.RU Agent - бесплатная программа для быстрого 
 ```bash
 magnet:?xt=urn:btih:E154F9C261E48FB382663FC16A9F5D3A91140842
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ ESET NOD32 Internet Security - комплексное антивирусное �
 magnet:?xt=urn:btih:C1C0F26084581A0954D575B14577E6A835A45279
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ KCNcrew Pack - это огромнейший сборник серийников
 ```bash
 magnet:?xt=urn:btih:EAE4FF4724C5F6BE1C3B1193D29A71DC94DE5B19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ tsMuxeR – утилита для создания TS, M2TS файлов и об
 magnet:?xt=urn:btih:D863CCE536D68BF6454FA94D78281BB247E4D6FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ Trine 2 / Trine 2: Триединство. Collector's Edition [Ru/En/Multi14] (
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ Hell Yeah! Wrath of the Dead Rabbit – кровавый и жестокий п�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ Psiphon предназначен для предоставления вам от
 magnet:?xt=urn:btih:E3F7172937D7B3CD46F39D72784CA09015D2983E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:1704BCC2186DB82C66AD30C002E8E5CFDD380264
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ Sworkit позволяет настраивать и воспроизводит�
 magnet:?xt=urn:btih:53066A5E4FD0F88F021EF51A6A8BCB17E18D5355
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ SnippetsLab 1.8.2 [En]
 ```bash
 magnet:?xt=urn:btih:4903E74CEC7412B80EFD68403DCB8179CE4066C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +693,8 @@ magnet:?xt=urn:btih:4903E74CEC7412B80EFD68403DCB8179CE4066C5
 ```bash
 magnet:?xt=urn:btih:C0F5B10D00FB9B1FD7023D29E4DD6DE158E43880
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

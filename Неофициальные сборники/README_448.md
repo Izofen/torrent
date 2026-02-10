@@ -1,3 +1,36 @@
+###  Публикация: 669408   (715790) от 19.06.2013
+
+DJ Vlad Kardash - The best (2013) [MP3|320 кб/с]<Dubstep, House, Club.Electro-House, Electro, Hardstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715790.jpg" />
+</div>
+
+
+###  Подробнее
+
+1)Electro House 2012 New Year Party(Demo)
+2)My name is Optimus Praime (Electro Ver.) (New)
+3)Bass fucker
+4)Ecstasy
+5)Electro House dream for sky
+6)My Name Is Optimus Prime(New)
+7)Выключай интернет
+8)+100500Жанр: Dubstep, House, Club.Electro-House, Electro, HardstepПродолжительность: 01:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BDC65870C1E211E70F628969D4F0F00151B66E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219296   (715843) от 13.04.2018
 
 VA - Melodious Chill Vol.1 (2018) [MP3|320 Kbps] <Chillout, Lounge>
@@ -21,6 +54,8 @@ VA - Melodious Chill Vol.1 (2018) [MP3|320 Kbps] <Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:E034B5528B7E2A7EDF6BFDAD3C11513F0234CDC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +84,8 @@ VA - Spencer Vocal Trance (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
 magnet:?xt=urn:btih:289D20A850D6F94DA1A38495F83D247B9B6ED7B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +112,8 @@ VA - Tarjolla Tanaan - Rautalankaa (2013) [MP3|320 кб/с] <Instrumental, Guita
 ```bash
 magnet:?xt=urn:btih:D5A322A54DA26170064653298B0D7C596DBB1514
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +142,8 @@ VA - ЕвроХит Топ 40 от Европа Плюс - Апрель (2017) [
 magnet:?xt=urn:btih:DDC25599FE654241F99253BBEFDDAB6573AA9219
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +170,8 @@ VA - Pleasure Country (2016) [MP3|244-320 кб/с] <Blues Rock, Country>
 ```bash
 magnet:?xt=urn:btih:4140A09A0E61C205E580D33F4C1FDF77405F2532
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +200,8 @@ VA - Vision Of The Future (Compiled by Breeeze) (2016) [MP3|320 кб/с] <House,
 magnet:?xt=urn:btih:8279DF0D7E8AB31E06D035C7D2FF9E5A2FFE795A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +228,8 @@ VA - Chill Vibes (2016) [MP3|320 кб/с] <Deep House, Electro pop>
 ```bash
 magnet:?xt=urn:btih:451B575C270CE3A88047A64088B101AF9F22BC87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +258,8 @@ VA - Ultimate Summer Trance: SunLight Project (2016) [MP3|320 кб/с] <Trance, 
 magnet:?xt=urn:btih:79AB5122CAEC292656F611FBF3455F4CAF5E2A7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +286,8 @@ VA - Sky Air Trance: Progressive Session (2016) [MP3|320 кб/с] <Progressive T
 ```bash
 magnet:?xt=urn:btih:77D1069B2599405928E38412A35016D8DA442DB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +316,8 @@ VA - Surfer's Disco Waves (2016) [MP3|320 кб/с] <House, Funky, Club House>
 magnet:?xt=urn:btih:6EB0C62B56359EF0AE37762708D1513CAD3993DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +344,8 @@ VA - Пацаны - Ваще Ребята! Vol.33 (2017) [MP3|192-320 Kbps] <Pop
 ```bash
 magnet:?xt=urn:btih:6F4E4F2AE27A940A5F581F8DDA08B8CE234E8454
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +374,8 @@ VA - Beatport Chill Electronic: Sound Pack #405 (2022) [MP3|320 Kbps] <Electroni
 magnet:?xt=urn:btih:5C8444AE0D86EA29756B98C6DEED399DE8A767A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +402,8 @@ VA - The Official UK Top 40 Singles Chart 28.04.2017 (2017) [MP3|320 Kbps] <Pop,
 ```bash
 magnet:?xt=urn:btih:0F0B9858749BB64CDBB952DD2FD6AE7F55D93906
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +432,8 @@ VA - Песни для души от радио Шансон Выпуск № 4 
 magnet:?xt=urn:btih:50E4B88F12CB227430A1A1416B98BCF86A765BC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +460,8 @@ VA - Music News vol.166 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
 ```bash
 magnet:?xt=urn:btih:EE9B3023F9FF0889C539C5EC1B6C42E1CE11CB2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +490,8 @@ VA - Beatport Synth Electronic: Sound Pack #406 (2022) [MP3|320 Kbps] <Electroni
 magnet:?xt=urn:btih:4221CCC577D24CD4EB41ED0F5ACBC2DB7E8D77CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +518,8 @@ VA - German Top 50 Official Dance Charts 28.04.2017 (2017) [MP3|320 Kbps] <Dance
 ```bash
 magnet:?xt=urn:btih:A3E69F884870F3E3A04CC44B1844ED22F6CEB3BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +548,8 @@ VA - 100-ка блатных душевных песен (2017) [MP3|256 Kbps] <
 magnet:?xt=urn:btih:D2665E7FD718C73FD265511B7A058E52FBF9319E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +576,8 @@ VA - Весенний хит-парад от радио Шансон выпус�
 ```bash
 magnet:?xt=urn:btih:18862BB4B4E2DDFA59CC868BEBDFF39BD36956CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +606,8 @@ VA - New Legend Italo Disco (2017) [MP3|320 Kbps] <Disco, Pop, Dane>
 magnet:?xt=urn:btih:EE0AEF79F78DD686002FE859A69E035935395BCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +634,8 @@ VA - Ukrainian Hits - 33 Tracks (Volume 8) (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:FC596F988AE23B0672122075F5CC83F1622127FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +664,8 @@ VA - Beatport Tech House: Sound Pack #407 (2022) [MP3|320 Kbps] <Techno, Tech Ho
 magnet:?xt=urn:btih:EB812A3C3BCF62B8D8400E9A82962DFDAD7A132B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +692,8 @@ VA - Душевный сборник Русского радио выпуск �
 ```bash
 magnet:?xt=urn:btih:79A36C3C65DF6DEF5D5A372945A42F6C7BAD54B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +722,8 @@ VA - Шальной шансон в дорогу. Версия № 8 (2017) [MP3
 magnet:?xt=urn:btih:E8350AA864519A87F918DF2C80B86E651243219E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,32 +751,7 @@ VA - Русский отрыв Русского радио. Сборник № 4
 magnet:?xt=urn:btih:5E722073E6A079B43592C0E43506D7A928D23F11
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130420   (716651) от 01.05.2017
-
-VA - Любимые хиты весны. Выпуск № 12 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716651.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Те100стерон (Тестостерон) - Ti Amo 3:01
-002. Malika - Нет Лимита 2:48
-003. Ани Лорак - Просто Скажи 3:51
-004. Fargo - Взаимные Лайки 3:50(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C359CAA2A533481AF710CC9DBAC61BE4711928A1
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

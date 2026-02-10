@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:85DC225DF972D5FC9E435056259C3941986615C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Calibre - простая и удобная программа для управ�
 magnet:?xt=urn:btih:1F05E2BD1B99A81C92216CCD887BC00A7335E782
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Ashampoo Burning Studio - это всё то, о чём Вы просили. О�
 ```bash
 magnet:?xt=urn:btih:FA622EE7D2137C5C2781D48CEB2E0E49BEACFDA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ WidsMob Panorama - это профессиональная программа д
 magnet:?xt=urn:btih:AAB0E9EA04A2F7BFC378B0B54D4F7252EA423E73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Calibre — это утилита с набором функций, необхо
 ```bash
 magnet:?xt=urn:btih:7115150B0136167BBAD002BC943E4EFBB524D349
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ ByClick Downloader (бывший YouTube By Click) - отличный и удо�
 magnet:?xt=urn:btih:06B9E402589644317165AFA1B88D59E54F56B990
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Artlantis  – профессиональный набор инструмент�
 ```bash
 magnet:?xt=urn:btih:337987D0F9BB30E3C4E37EF85CF38C5DA5741869
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ MWeb оддерживает расширенный синтаксис Github: TO
 magnet:?xt=urn:btih:95467C26B365A4DCDA284E8D5ECA7CE840F29427
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:95467C26B365A4DCDA284E8D5ECA7CE840F29427
 ```bash
 magnet:?xt=urn:btih:089285702E2506F4C5FADAE3DE144E55D891FC72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Charles Web Debugging Proxy – это набирающий популярнос
 magnet:?xt=urn:btih:9ED68C4B9A9B9868ACD84D43522505AA9C0ABEB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Display Maestro - простая утилита, которая дает вам 
 ```bash
 magnet:?xt=urn:btih:E5CBE4DD6D770097B205C474BEDCF5F2E6031B2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ iShowU Studio предоставляет эффективные инструме
 magnet:?xt=urn:btih:D7856D1C2D0A77ED1B973533091105B7C50AF249
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ MacCleanse 9.0.4 Pre-Release [En]
 ```bash
 magnet:?xt=urn:btih:881E862DCF8148172DC37053AAB98A89F07BBDC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Alarm Clock Pro представляет собой многофункциона
 magnet:?xt=urn:btih:EAEBFDBD35B08F7128D1EBA0A7F9FB7018595F79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ VeraCrypt - бесплатный инструмент для шифровани�
 ```bash
 magnet:?xt=urn:btih:DD2D9A57BEA6388137847F970E2DF245D70B6090
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:DD2D9A57BEA6388137847F970E2DF245D70B6090
 magnet:?xt=urn:btih:7DB6A377D339F5F9D32F6ED286832CE7F7216E31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ SyncBird Pro - это файловый менеджер iPhone, который �
 ```bash
 magnet:?xt=urn:btih:ADBDD0E7896FA5FB47274F73FE668C2B8DD1C59C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Telegram Messenger - простой и бесплатный кросс-плат�
 magnet:?xt=urn:btih:63B4CDD608FB72BCD75531A2C621FCE16D8ED4D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Debut Professional 6.61 [En]
 ```bash
 magnet:?xt=urn:btih:196E46B2D7B198D5D58D92538C05C76FA045F0FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 magnet:?xt=urn:btih:0A8FE49CCCB380E59E477D80928B3048DF7A1890
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ Hookshot - позволяет привязывать окна с помощью 
 magnet:?xt=urn:btih:E837B8CEE2E91B4D75245B2A49015F7C9037720B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Inpaint - позволяет умно удалять нежелательные 
 ```bash
 magnet:?xt=urn:btih:D7091BE569A7638B2328DDBD0F2F9F2D44FD7B25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ DxO ViewPoint — программное решение, посвященное 
 magnet:?xt=urn:btih:C48D723E6BF522F4D0AF947219D08D984BEE088B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Extreme Picture Finder 3.65.10.0 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E0396DDB3EF19DA96E1711DC6D3CA6DEED542A49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Volume2 — альтернативный регулятор громкости, 
 magnet:?xt=urn:btih:B85929FBCA47B8CE3D6857A8394AB36293142712
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Grids переносит лучшее из Instagram на ваш Mac. Grids for 
 ```bash
 magnet:?xt=urn:btih:C5F874498C2BC2C9AE91EC957911587523DDD526
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

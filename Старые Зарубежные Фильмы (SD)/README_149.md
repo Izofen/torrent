@@ -1,27 +1,3 @@
-###  Публикация: 916872   (590345) от 09.07.2015
-
-Лето в поисках «Корвета» / Corvette Summer (1978) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Парень любит проектировать и строить экзотические автомобили. Со свалки при средней школе он собрал из рухляди шикарный автомобиль своей мечты "Corvette", который вскоре угоняют. И парень отправляется на увлекательные поиски своего авто, его ждет куча приключений и новая любовь...Производство: СШАЖанр: Комедия, приключенияРежиссер: Мэттью РоббинсАктеры: Марк Хэмилл, Энни Поттс, Юджин Роч, Уильям Брайант, Ричард МакКензи, Ким Милфорд, Филип БрунсПеревод: Авторский (А. Алексеев)Продолжительность: 01:44:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFF44A2A10BBB7427FE9267FA237CBED922E6694
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916731   (590355) от 09.07.2015
 
 Путешествие к центру Земли / At the Earth's Core (1976) BDRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:BFF44A2A10BBB7427FE9267FA237CBED922E6694
 ```bash
 magnet:?xt=urn:btih:48EBD7BE157E08E89A0838495BFDFF37ED3C7271
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:48EBD7BE157E08E89A0838495BFDFF37ED3C7271
 magnet:?xt=urn:btih:1635AECD6BA90943FF2C7406D4FCEDAED8E3C6D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:1635AECD6BA90943FF2C7406D4FCEDAED8E3C6D0
 ```bash
 magnet:?xt=urn:btih:02E7A04ABF42790E4F698776FB0FF4E83BF51F58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +98,8 @@ magnet:?xt=urn:btih:02E7A04ABF42790E4F698776FB0FF4E83BF51F58
 magnet:?xt=urn:btih:E697D36D7FB73C1BAAE8661D3258C7D431B0A9EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +123,8 @@ magnet:?xt=urn:btih:E697D36D7FB73C1BAAE8661D3258C7D431B0A9EE
 ```bash
 magnet:?xt=urn:btih:330C0053D5B9414A7C47F392A0296A5B4FDBB235
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:330C0053D5B9414A7C47F392A0296A5B4FDBB235
 magnet:?xt=urn:btih:A7A170F001B57AB78FA5FC142B45545D3A38EF23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:A7A170F001B57AB78FA5FC142B45545D3A38EF23
 magnet:?xt=urn:btih:2595B3546853A7259B86BC3075BCFB56646A7B59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:2595B3546853A7259B86BC3075BCFB56646A7B59
 ```bash
 magnet:?xt=urn:btih:1252D302E4EE4F8DEB083DB054907124AEF69F53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +229,8 @@ magnet:?xt=urn:btih:1252D302E4EE4F8DEB083DB054907124AEF69F53
 magnet:?xt=urn:btih:045ABCB81362CD401C9703E2BA1C637BB22F8239
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:045ABCB81362CD401C9703E2BA1C637BB22F8239
 ```bash
 magnet:?xt=urn:btih:2CBE3BDE61DE1521BDB6EC9A61061E8D4C07991F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +282,8 @@ magnet:?xt=urn:btih:2CBE3BDE61DE1521BDB6EC9A61061E8D4C07991F
 magnet:?xt=urn:btih:64A295286CF0DD5E2360CD3BD69C9E5DB61CEBF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +307,8 @@ magnet:?xt=urn:btih:64A295286CF0DD5E2360CD3BD69C9E5DB61CEBF7
 ```bash
 magnet:?xt=urn:btih:47DCAFFDC71A66AD536913DDE3D2AF0BA0C4CD41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +334,8 @@ magnet:?xt=urn:btih:47DCAFFDC71A66AD536913DDE3D2AF0BA0C4CD41
 magnet:?xt=urn:btih:785EF16FFAA5051506B0261FFA9EA2A550715541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +359,8 @@ magnet:?xt=urn:btih:785EF16FFAA5051506B0261FFA9EA2A550715541
 ```bash
 magnet:?xt=urn:btih:86D627FC1E69056AAC8E73A97EE8DDA61D9CBB33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:86D627FC1E69056AAC8E73A97EE8DDA61D9CBB33
 magnet:?xt=urn:btih:468314E5B6743C2FF383A2A89DC9C844268647E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:468314E5B6743C2FF383A2A89DC9C844268647E0
 ```bash
 magnet:?xt=urn:btih:1ADB97D840A324D2185EAF0BAC7FBCAC8CCCA7AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +438,8 @@ magnet:?xt=urn:btih:1ADB97D840A324D2185EAF0BAC7FBCAC8CCCA7AA
 magnet:?xt=urn:btih:E643CF0FFEEB9F3BAAD71FB7F50793ECF5E88535
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:E643CF0FFEEB9F3BAAD71FB7F50793ECF5E88535
 ```bash
 magnet:?xt=urn:btih:722E5F5585C5504F656DD8D739E1A047094FEEF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +490,8 @@ magnet:?xt=urn:btih:722E5F5585C5504F656DD8D739E1A047094FEEF1
 magnet:?xt=urn:btih:DAC2FDAB86D90BF6B024AFC76EB45F26D7152FD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +515,8 @@ magnet:?xt=urn:btih:DAC2FDAB86D90BF6B024AFC76EB45F26D7152FD4
 ```bash
 magnet:?xt=urn:btih:E9A5005ADAB51910DA3D800295D65272A7AF455C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +542,8 @@ magnet:?xt=urn:btih:E9A5005ADAB51910DA3D800295D65272A7AF455C
 magnet:?xt=urn:btih:C4996F15A44AF1D2478100EDE6DAA9E8499909A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +567,8 @@ magnet:?xt=urn:btih:C4996F15A44AF1D2478100EDE6DAA9E8499909A2
 ```bash
 magnet:?xt=urn:btih:4931D0792D4CACBAADE60F97199E42D2C7CC11EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +594,8 @@ magnet:?xt=urn:btih:4931D0792D4CACBAADE60F97199E42D2C7CC11EF
 magnet:?xt=urn:btih:E137CE57D83DDF45C5CE9FAD99682716641A8A7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +620,8 @@ magnet:?xt=urn:btih:E137CE57D83DDF45C5CE9FAD99682716641A8A7D
 magnet:?xt=urn:btih:20DFBF8A0C928242B44E90EFB0A95806C5B5F08E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +645,35 @@ magnet:?xt=urn:btih:20DFBF8A0C928242B44E90EFB0A95806C5B5F08E
 ```bash
 magnet:?xt=urn:btih:5EF0F3ECC8A3B6856D5372D9D057C2C01E9840A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232976   (594643) от 27.06.2018
+
+Полицейская в отделе нравов / La poliziotta della squadra del buon costume (1979) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новые приключения полицейской Джанны в исполнении блистательной Эдвиж Фенек.
+На этот раз к служительнице правопорядка обращается маленький мальчик, сбежавший из интерната, с просьбой найти его маму. Из показаний парнишки Джанна узнает, что мамаша, скорее всего, работает стриптизершей или ночной бабочкой. Полицейская решает внедриться в этот порочную среду и устраивается (   Читать дальше...   )Производство: Италия / Dania Film, Medusa DistribuzioneЖанр: Комедия, КриминалРежиссер: Мишель Массимо ТарантиниАктеры: Эдвиж Фенек, Альваро Витали, Лино Банфи, Марцио Онорато, Франко Диоджене, Джанфранко Барра, Сальваторе Боргезе, Джакомо Риццо, Фьямма Мальоне, Серджо Тардиоли, Джимми иль ФеноменоПеревод: Одноголосый закадровый (Andi999)Субтитры: ОтсутствуютПродолжительность: 01:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:853410DEE12C2B9D28473AB8B949860AA198C71A
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

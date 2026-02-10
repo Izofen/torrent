@@ -1,3 +1,29 @@
+###  Публикация: 1198698   (805914) от 12.01.2018
+
+Таша Эйрих | Инсайт. Почему мы не осознаем себя так хорошо, как нам кажется (2018) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805914.jpg" />
+</div>
+
+
+###  Подробнее
+
+В современном мире, полном иллюзий и самообмана, взаимодействовать с другими людьми и добиваться успеха день ото дня становится все сложнее, ведь каждый из нас живет в своей реальности и эти реальности часто конфликтуют друг с другом. Как избавиться от заблуждений относительно себя и научиться смотреть правде в глаза? Таша Эйрих направит читателя на путь, который (   Читать дальше...   )Жанр: Зарубежная психология, Саморазвитие / личностный ростФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FC811779C9F586EDC2892BCC6D13775BB832756
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371085   (806021) от 18.05.2020
 
 Николай Сергеев | Гидра [Том 1] (1998) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:06B302032FA5ED303DE6BC4F79F590533B860E3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:06B302032FA5ED303DE6BC4F79F590533B860E3A
 magnet:?xt=urn:btih:CA3100B25A3FE858E082D2FE9EEAA07A3C240B76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:CA3100B25A3FE858E082D2FE9EEAA07A3C240B76
 ```bash
 magnet:?xt=urn:btih:A27EDE7699E005B750AC3FB60E984CA8E2D403F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:A27EDE7699E005B750AC3FB60E984CA8E2D403F3
 magnet:?xt=urn:btih:BFB2E63BF6291C99E7AFE2C30CDC42844D1F2B11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:BFB2E63BF6291C99E7AFE2C30CDC42844D1F2B11
 ```bash
 magnet:?xt=urn:btih:58DC0F140808670D77AEBAADE5F486104A24E6AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:58DC0F140808670D77AEBAADE5F486104A24E6AD
 magnet:?xt=urn:btih:2A9DB58551ED302DF558A2CDB6E42BB580C982A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:2A9DB58551ED302DF558A2CDB6E42BB580C982A8
 ```bash
 magnet:?xt=urn:btih:83D776DC85DADA4FEEB09FB0DDEDA1C79F402AC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:83D776DC85DADA4FEEB09FB0DDEDA1C79F402AC1
 magnet:?xt=urn:btih:A877E0A9843974B07907FB01C6E5BA47D75ECD75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:A877E0A9843974B07907FB01C6E5BA47D75ECD75
 ```bash
 magnet:?xt=urn:btih:71224581F97FEEB398490180766CA975478B2D44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:71224581F97FEEB398490180766CA975478B2D44
 magnet:?xt=urn:btih:4D35C8FF6860BAD41BFB9BA647666FE00A5DE339
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:4D35C8FF6860BAD41BFB9BA647666FE00A5DE339
 ```bash
 magnet:?xt=urn:btih:3813DAD4FE0A0B62AACB0B7393363846644A49BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:3813DAD4FE0A0B62AACB0B7393363846644A49BF
 magnet:?xt=urn:btih:E85598963FB478D3E9B92120B5ACC3B3D5BB0F6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:E85598963FB478D3E9B92120B5ACC3B3D5BB0F6E
 ```bash
 magnet:?xt=urn:btih:A3AFC183DCFFE3CC87782D77ED4CCFB516521242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:A3AFC183DCFFE3CC87782D77ED4CCFB516521242
 magnet:?xt=urn:btih:8031B636F9B4ED06A24C41789E5906BA9D896289
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:8031B636F9B4ED06A24C41789E5906BA9D896289
 ```bash
 magnet:?xt=urn:btih:EAF16582E9452ADDF7E31B8C1A83B6F0D8E4D19A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:EAF16582E9452ADDF7E31B8C1A83B6F0D8E4D19A
 magnet:?xt=urn:btih:98AB8BF472826E1956F8FF14AD4ED40E02A2045E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:98AB8BF472826E1956F8FF14AD4ED40E02A2045E
 ```bash
 magnet:?xt=urn:btih:871B5CFDD31C36093A844371262155B20EFCB60C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:871B5CFDD31C36093A844371262155B20EFCB60C
 magnet:?xt=urn:btih:64185EFA284D8B38457E4B25BCF08526C71DA0DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:64185EFA284D8B38457E4B25BCF08526C71DA0DE
 ```bash
 magnet:?xt=urn:btih:ED9FCA5FBDCE38038895888E6A6BAE9B68E64E4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:ED9FCA5FBDCE38038895888E6A6BAE9B68E64E4A
 magnet:?xt=urn:btih:FEFEF1ACCACB531E8FF7CB1EC15973D12C6F9794
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:FEFEF1ACCACB531E8FF7CB1EC15973D12C6F9794
 ```bash
 magnet:?xt=urn:btih:1C6606700CAF7ED5FCCE0CDBACCE631173533DBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:1C6606700CAF7ED5FCCE0CDBACCE631173533DBB
 magnet:?xt=urn:btih:DEBA15DE7B88EF2DE44A1668D6D67F267858D92B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:DEBA15DE7B88EF2DE44A1668D6D67F267858D92B
 ```bash
 magnet:?xt=urn:btih:37E7BDA95DDBE61089CDCE4CABC0514823264CB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:37E7BDA95DDBE61089CDCE4CABC0514823264CB0
 magnet:?xt=urn:btih:111B67558854F2B3957B2EF9A414CE26FF25E98C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,30 +676,7 @@ magnet:?xt=urn:btih:111B67558854F2B3957B2EF9A414CE26FF25E98C
 magnet:?xt=urn:btih:3FFDCF84BD686DF933480774A1AF5751649492FE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383784   (807849) от 17.05.2020
-
-Ирина Михайлова (сост.) | Блюда из мультиварки. Большая энциклопедия рецептов (2013) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Согласитесь, что любая хозяйка хоть раз, да жалела о потере времени на приготовление пищи для себя и своей семьи. Разве ежедневные кухонные хлопоты делают нас более счастливыми и успешными? Мечта о том, чтобы готовить вкусно, не простаивая часами у плиты, казалась неосуществимой…
-Грезы стали явью, когда появилась мультиварка – многофункциональное устройство нового (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3674A2F256D6585128DF15AB9D66680645B38730
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

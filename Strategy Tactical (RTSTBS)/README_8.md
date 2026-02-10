@@ -19,6 +19,8 @@ Cliff Empire - небольшая экономическая стратегия.
 magnet:?xt=urn:btih:3B7330378C41C90AAFEFC4B57E0B6A3C5B158FB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Shadow Gambit: The Cursed Crew (2023) [Ru/Multi] (1.2.133.f.r40893/dlc) License 
 ```bash
 magnet:?xt=urn:btih:B02B3488A69BBDE99C7589E50D30FA0E06DF6238
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Field of Glory II (2) (2017) [Multi] (1.6.10/dlc) License GOG
 magnet:?xt=urn:btih:AAA9D1CA03718B396FA3FA4373C37DC03DB78965
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Showgunners (2023) [Ru/Multi] (1.1.2_58602/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:03E1ECB0FC4C78783C4AF796268EBBF2FE5B6A61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Aliens: Dark Descent (2023) [Ru/Multi] (98246/dlc) Repack Decepticon
 magnet:?xt=urn:btih:24AC4ECE7A933638EF7E76A4C53E80C1B4E581B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Last Train Home - это интригующий тайтл, погружающи
 ```bash
 magnet:?xt=urn:btih:F56379256540957695F01BBE57848AEB22BDD52C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Helldorado (2009) [Multi] (2.00) License GOG
 magnet:?xt=urn:btih:57DEABBCDFDFE1D3816437CE0E4F42B8A35B8DFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Shadow Tactics: Blades of the Shogun, основанная на скрытнос
 ```bash
 magnet:?xt=urn:btih:4D69E1C1F72E2E6687C44D82B51213109825176F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Shadow Tactics: Blades of the Shogun, основанная на скрытнос
 magnet:?xt=urn:btih:1CCB6D1364075943BD50281E7CC94D793D8A548A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Tooth and Tail (2017) [Multi] (1.1.0.2) License PLAZA [Season 2]
 ```bash
 magnet:?xt=urn:btih:59635C10CBD437AD3D5FEC77AEA1912DDBC5027A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Elven Legacy / Кодекс войны: Высшая раса (2009) [En] (1.0.9
 magnet:?xt=urn:btih:B1744F3CA45C1052370AED98C6DAF29D0C6CEB50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Worms Revolution – это самая последняя игра в серии
 ```bash
 magnet:?xt=urn:btih:D7E3750F373465ED6461DC35B41CBFD94AB56A8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Tooth and Tail построена вокруг экономической мод
 magnet:?xt=urn:btih:5A66E0389E24540B49176381C78B6D69E675EE5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Warhammer 40,000: Dawn of War II. Разработанная отмеченно�
 ```bash
 magnet:?xt=urn:btih:C8C466D5E1397FA6ED77E3C72CDA0FCAC2264667
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Worms Reloaded (2010) [Ru/En] (1.0.0.478/dlc) Repack Mizantrop1337 [Game of the 
 magnet:?xt=urn:btih:0FEF727B4B1B60B13AE9ED7B9947BF1D788F8C87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Nantucket – приключенческая стратегия, выполне�
 ```bash
 magnet:?xt=urn:btih:327D84B31987B005BB9E87EED4B5FB59B2A69AF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Everyone Must Die: A Western Standoff - захватывающая игра-го
 magnet:?xt=urn:btih:167933BE0B1B88021ACB0675B947488B2900BA27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Order of Battle: World War II – это первая ласточка в сер
 ```bash
 magnet:?xt=urn:btih:8ADF4BBAE81E5447077CCF04FD4170D2AA3E02B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Fantasy General II (2): Invasion (2019) [Ru/Multi] (01.02.12913.01/dlc) License 
 magnet:?xt=urn:btih:79937F58670B5CC947E85A4CC2573A419925A921
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Rogue Lords (2021) [Ru/Multi] (1.1.00/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F33D52129A4C51FF9656D6AC02F5A52E2335FACD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Phoenix Point - это новая стратегическая игра от с�
 magnet:?xt=urn:btih:01B8211420999A396C9CE8B9529C8572E29DA4EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Aiko's Choice - это новое автономное дополнение к �
 ```bash
 magnet:?xt=urn:btih:AC1A8756C6C0D681EBAC8FDE328CE080CBA8ED8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Shadow Tactics: Blades of the Shogun - Aiko's Choice (2021) [Ru/Multi] (3.2.25.F
 magnet:?xt=urn:btih:B97DE0C9207BF7EC5AF5FCD694DDA8EEC3158846
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Shadow Gambit: The Cursed Crew (2023) [Ru/Multi] (1.1.28r39001f) Scene Rune
 ```bash
 magnet:?xt=urn:btih:A06B21A22304534D30742148B6792C285AB188AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Hexarchy - стратегическая игра в быстром темпе. �
 magnet:?xt=urn:btih:ABDA78301A9AAFF04FB218D6FD3F68F391AD2870
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Valor & Victory - это быстрая, легкая в изучении игр
 ```bash
 magnet:?xt=urn:btih:EC09B030CF5EECA99DB95361E4F72B4574123109
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

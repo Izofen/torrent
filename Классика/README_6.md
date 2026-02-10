@@ -19,6 +19,8 @@ VA- Wien, 1850 Dances - Strauss, Diabelli, Lanner: Michael Dittrich (1993) [FLAC
 magnet:?xt=urn:btih:40F174617FDF56C2ADA8D468376E56408DA812A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Concerto Grosso no. 1 (1976-77)
 ```bash
 magnet:?xt=urn:btih:5763FF9D20E7EFDCF598C058A7250565D50DC296
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ Piano Concerto No.17 K.453 in G Major
 magnet:?xt=urn:btih:E312A518CE6405346242CECD4D31B0D3905FE70D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ Serj Tankian - Invocations (2023) Live [MP3|320 Kbps] <Classical, Modern>
 ```bash
 magnet:?xt=urn:btih:863D526D6704381C4A838E486701403DDC6D4B85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -135,6 +143,8 @@ Il Divo - The Greatest Hits (2012) 2CD Deluxe Edition [FLAC|Lossless]<Neo-Classi
 magnet:?xt=urn:btih:6689012B7A4F1AF492C2CA88B2B2FE3BC70F1A8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +172,8 @@ Lindsey Stirling - Best Of Christmas Classics (2023) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:4BDB115AEA91B1D2711D539EB104BF7A1D381663
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +200,8 @@ Mendelssohn - Piano Concertos 1 & 2, Songs without words: Schiff, Dutoit - SOBR 
 ```bash
 magnet:?xt=urn:btih:CE7E97F6E043669AB8FD4115548D8ECDBD146C31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +236,8 @@ Disc 1
 magnet:?xt=urn:btih:57F95E7449F48BEA48F471747A9DE5C0ADB27A55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +271,8 @@ Piano Sonata No. 21 in B flat major, D. 960:
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +305,8 @@ Yoko Fujita & Keiko Ogura - Stradivarius On Gold CD (2010) [FLAC|Lossless]<Violi
 ```bash
 magnet:?xt=urn:btih:092E0F9FBFED3CC941C61A69BD84168218057F7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +342,8 @@ magnet:?xt=urn:btih:092E0F9FBFED3CC941C61A69BD84168218057F7F
 magnet:?xt=urn:btih:0FA0C1A6F58BC72481354E9F0C22A0E23A833E2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +377,8 @@ Jose Carreras, Luciano Pavarotti, Mario Lanza, Placido Domingo - Opera Favourite
 magnet:?xt=urn:btih:36280E34846F9F2F584E763CB0779936BC4DEDE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +405,8 @@ PALLADIUM Electric Band - Energy (2011) [MP3|256 Kbps] <Instrumental, Classical 
 ```bash
 magnet:?xt=urn:btih:DFF04E2FF8F3851DD7DDA9B001817714983F101B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +435,8 @@ PALLADIUM Electric Band - Taboo (2012) [MP3|256 Kbps] <Instrumental, Classical C
 magnet:?xt=urn:btih:B3C32F92353C3EA94CC09CFAF70AAEFC416AF471
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +463,8 @@ Mozart - Requiem in D Minor, K. 626
 ```bash
 magnet:?xt=urn:btih:9C72A7CC84A7F87E6A052136D669D3C6A7B7EEC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +493,8 @@ bond - Play (2011) [FLAC|Lossless]<Classical Crossover>
 magnet:?xt=urn:btih:118CB9E55A35405AC9C42813EB68F7040C88DDE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +521,8 @@ Karl Jenkins - Symphonic Adiemus (2017) [FLAC|Lossless|tracks + .cue] <Classical
 ```bash
 magnet:?xt=urn:btih:0DB96D6BFF1E1D078573118254AC3301F331E32F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +551,8 @@ Andreas Scholl - Kantate: German Baroque Cantatas (1998) Harmonia Mundi France [
 magnet:?xt=urn:btih:C42B64332B1E8255D05B951997AC0C9D3D1A47A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +579,8 @@ Marc-Antoine Charpentier (1634 - 1704)(   Читать дальше...   )Жан
 ```bash
 magnet:?xt=urn:btih:53E5B55FDFE6BEA9C8B0AEF3258C0770C11B370B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +609,8 @@ J.S. Bach - Toccatas BWV 910-916 for piano (Wolfgang Rubsam) (1993) [FLAC|Lossle
 magnet:?xt=urn:btih:A34D15A4550B8DC8D80E7E2292F9338DACD02337
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +637,8 @@ Andre Rieu - Happy Together (2021) [MP3|320 Kbps] <Classical>
 ```bash
 magnet:?xt=urn:btih:C652F79415293745E6B2AAEC004BC89471D291A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +667,8 @@ Symphony no.8 in B minor, D.759 "Unfinished" **
 magnet:?xt=urn:btih:E6D9819C3FA547B94B67A2956FB6B8B440F3A9E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +695,8 @@ Bond - The Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover,
 ```bash
 magnet:?xt=urn:btih:82AE081B6C13CCBCD9DBA0CCDA649DE13CBDB321
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -679,6 +725,8 @@ Maria Pia De Vito, Francois Couturier, Anja Lechner, Michele Rabbia - Il Pergole
 magnet:?xt=urn:btih:F4928259673135ED39DCBCBEDAF0A4D04118A775
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -706,6 +754,8 @@ Nikolai Baskov - Christmas Songs (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, 
 magnet:?xt=urn:btih:7EC91F61D47127A3060545C0625D1D210DF820BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -731,6 +781,8 @@ VA - Winter Classical (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ```bash
 magnet:?xt=urn:btih:2E7458F4F8C871F04C4F9F40296ECEF02243B67C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

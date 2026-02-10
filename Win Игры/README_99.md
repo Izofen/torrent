@@ -19,6 +19,8 @@ Bore Blasters вводит высокооктановый экшн в класс
 magnet:?xt=urn:btih:334045C2E456EBB121C37D5E937EC36B69D2F00B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Drova - Forsaken Kin - это пиксельное экшен-RPG, вдохно�
 ```bash
 magnet:?xt=urn:btih:19D6A1F434522E96B3D978324A95C6EB9C35DA71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Connection: The Nightmare Within (2024) [Ru/Multi] (Build 17294620) Repack Let's
 magnet:?xt=urn:btih:F6D814BD2E188436130157554803C74A63BD5089
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Grief like a stray dog / А Горюшко вслед собакою... (2025) [
 ```bash
 magnet:?xt=urn:btih:2DBB4C4B2C77952B709F0645BC515C9D06AAB94D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Hero of the Kingdom II / Герой Королевства II (2015) [Ru/Multi] 
 magnet:?xt=urn:btih:6222D00C98315B8082DAA5746C27AAEFEA79428E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Backyard Boxing - это захватывающая игра о городско
 ```bash
 magnet:?xt=urn:btih:ACA28704F949436C11478838E7BFE270619F605C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ THE MUTE HOUSE (2025) [Multi] (1.0.39) Repack FitGirl
 magnet:?xt=urn:btih:6B7DE9CACA8F7DAFC996321C7373AF0684D4F4DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Techno Banter (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:892F1FF37C9A6E998AFF0EA133046CADF513516F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Suicide Squad: Kill the Justice League (2024) [Multi] (1.0.6.0/dlc) Repack DjDI 
 magnet:?xt=urn:btih:D1DAFB3C2D29D61E7973A19F3F655F95FDE825DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Hero of the Kingdom: The Lost Tales 2 / Герой Королевства: Ут�
 ```bash
 magnet:?xt=urn:btih:B7B262343D06323282F90A74C5158A5F062D1E29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Hero of the Kingdom: The Lost Tales 1 / Герой Королевства: Ут�
 magnet:?xt=urn:btih:BFEACDBF9ADF3E456CC4E6C8EE2769C4A81BAB19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Hero of the Kingdom III / Герой Королевства III (2018) [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:05897AD768CEA83A8DA88787CABBB93AE37B00FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Sword of the Necromancer: Resurrection (2025) [Multi] (1.0.3) Repack FitGirl
 magnet:?xt=urn:btih:5297F8AA90D946071E0B58551F5B6EACB68A8DEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Exogate Initiative (2023) [Multi] (1.0.0.97bd92b) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6BD9CE6812E40EBE2C5D2FF0428A1D7DA6D63F0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.20.0.0/dlc) Repack Decepticon
 magnet:?xt=urn:btih:6F10E603B85C87F15FEC83A55DDAB4BBFABCE1DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Only Lead Can Stop Them (2024) [Ru/Multi] (1.16) License GOG
 ```bash
 magnet:?xt=urn:btih:CA82BC5286B803E14A245507C75567BD9E2FED64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Keep Driving (2025) [En] (1.0.0.1) Repack FitGirl
 magnet:?xt=urn:btih:A55854612E0B7DD22B63BADC4B1720AE182E8A8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Immortals of Aveum, сочетающая в себе шутер от перво�
 ```bash
 magnet:?xt=urn:btih:0E3FD21A2DD8004FB489ECA85B608DEF388EA49F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ IN THE FACADE WE TRUST (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:9FC7E42A70E61CA3194CA2B141746A29DF54C13E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Sims Legacy Collection (2025) [Multi] (17149764/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B4DB96F63B4C3B58E504CE8A29A59E8A9DC923B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Immortals of Aveum - одиночный магический шутер от п�
 magnet:?xt=urn:btih:ECF4733127EE6A3994CB9FA0E749FB447C590531
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Assault Squad 2: Men of War Origins – новая часть знаменито
 ```bash
 magnet:?xt=urn:btih:35B36D883D68C82163D01D4DF69CCFB0C93F6836
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Hired 2 Die (2025) [Ru/Multi] (1.0.0.2) Repack FitGirl
 magnet:?xt=urn:btih:9B807559616909D8870EABE5B9EED5CF2A10D525
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ My Time at Sandrock (2023) [Ru/Multi] (1.4.2.1/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:98CE04F8AE85759817E35A720AABF9C439908008
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Sovereign Syndicate (2024) [Ru/En] (1.1.34) License GOG
 magnet:?xt=urn:btih:D62CFA43B67FC98C6573FC87F070E9A1C9C7DCFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Warcraft III: Reforged - это потрясающая переработанн�
 ```bash
 magnet:?xt=urn:btih:5D115B9A8C2A0D259AA6EAECD8BAAF47C5C11A64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

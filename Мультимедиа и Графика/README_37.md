@@ -19,6 +19,8 @@ AVI MP4 Converter — Это простой в использовании и в�
 magnet:?xt=urn:btih:EDF47C47D6967CC7F78598A36794D19BE49A1168
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ EximiousSoft Banner Maker – программа для создания рек�
 magnet:?xt=urn:btih:B04530DF130A12B3202805F907FB9788B9272250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Aimersoft Video Converter Ultimate - это отличный инструмен�
 ```bash
 magnet:?xt=urn:btih:C68346B98C709B43AC2314CEF4FAE0B6B1ED3A36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ WidsMob AI Retoucher 2.3.0.112 RePack by OctaneS [Multi/Ru]
 magnet:?xt=urn:btih:F701E29E773905CF6295F8838D84F9DCE566F9BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ WidsMob AI Retoucher 2.3.0.112 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:10A7A769161F5D2190F383DD2D1F6243836622BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ GX-80 - это не просто еще одна эмуляция CS-80. GX-80 �
 magnet:?xt=urn:btih:A2240C471E6F586EF3C04D772C7DBDF40A8D7E34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Dawesome - Kult 1.0.0 VSTi 3 (x64) [En]
 ```bash
 magnet:?xt=urn:btih:470D5C41AC2C37D0135E35112200F45637CF9FD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Plugin Alliance - All Bundle 2022 VST / VSTi, VST3 / VSTi3, AAX [En]
 magnet:?xt=urn:btih:117BDAD795B8B22883677444F0E763D02DEB0444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Serum – таблично-волновой синтезатор мечты, с�
 ```bash
 magnet:?xt=urn:btih:BC1EDB8C57E1473FC536945E4AA3C96DE4972A06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ FAW SubLab 1.1.9 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack by TeamCubeadooby
 magnet:?xt=urn:btih:C4F3A9E4A69183DE22D5EBC9234E11B3E9F2783A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ NAVIRA — синтезатор с легендарным мощным Hypersaw 
 magnet:?xt=urn:btih:D77C7C7DCBA3B2933AD7E8DB242FE260F73B19DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Avid Media Composer - программное решение с дополнит�
 magnet:?xt=urn:btih:6A149ADF04B2FADD7BC72DABABECB4C03F936871
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ DAZ Studio Pro Edition 4.22.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:C116B3408FC6D957F38D09CFD2F219A1E1D39F0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ SILKYPIX Developer Studio Pro 11 — мощная программа, котор
 magnet:?xt=urn:btih:4697FF5A53C23CFC060D4666ED48DA2C6BFE2B97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Photomatix может автоматически создавать HDR изоб
 magnet:?xt=urn:btih:18F02E06EADF1EB7183B7AA50B3B0FBB1A95CDA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ SILKYPIX Developer Studio Pro 11 — японская программа, поз
 magnet:?xt=urn:btih:DBCAA9AFB759DC329448A22B72FAB153C05856AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Boz Digital Labs - Pan Knob 1.0.2 VST, VST3, AAX (x86/x64) [En]
 ```bash
 magnet:?xt=urn:btih:F71AB8A95C643D57D118F563E88042FB97D08F83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ ProVocative - это микро питч-шифтер от Boz Digital Labs , к
 magnet:?xt=urn:btih:B803091A77FAAC57A343E1CFE680E46161FA572B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Sasquatch 2 - это специальный плагин для обработк
 ```bash
 magnet:?xt=urn:btih:877999E83478FF095E7DB3FF4062B6A44169EB2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ ShaperBox - это ваш незаменимый инструмент для р�
 magnet:?xt=urn:btih:2FBFF05A8D0B656676876857D8529E71B5DCABA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ VI Labs Audio - Ravenscroft 275 (UVI Falcon) [En]
 ```bash
 magnet:?xt=urn:btih:F18A5CDF6C0F847407FA57399002C761F3A3F522
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ UVI - Model D Falcon 1.6 [En]
 magnet:?xt=urn:btih:FDBFF74B2C8F55A1C756CBB652E4FDD3870C576B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ UVI - Austrian Grand v.1.0.3 (UVI Falcon) [En]
 ```bash
 magnet:?xt=urn:btih:2C178588D034E31F1AE3C89DD61A4EF8503C43F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ Antares - AVOX 4 v4.2.0 VST, AAX (x64) RePack by VR [En]
 ```bash
 magnet:?xt=urn:btih:6DFADBDA7BEC4F7C21A476F201F46468F1A42791
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ CODIJY Recoloring 4.2.0 [Multi/Ru]
 magnet:?xt=urn:btih:880BEAAD51789FBD60D5DD475A28872B471A68AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ reFX Nexus 3 имеет три столбца для навигации по п�
 ```bash
 magnet:?xt=urn:btih:FE06477A88CBC415D8ED71D2F73DEB2CFA02C559
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Jay Hooks - Tequila & Bullets (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:C7CBCB0E3A92055940F2A228D87C4A2E53022E11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ The Electro-Swing Band - A Fading Gleam (2025) [FLAC|Lossless|WEB-DL|tracks] <El
 magnet:?xt=urn:btih:E5B11E3202F70A226F4EF3948650AA7C30453E0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ WPS Office - очень полезное, офисное приложение д
 ```bash
 magnet:?xt=urn:btih:A03F33A7D9F39C70F1A1522567DC22810770E9A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ Electro Swing Groove - Vocal Nights, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:D6488E3B0EBACD83E58B13C56705CE723A2D5825
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Picsart AI Photo Editor, Video v28.6.7 Gold Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:5FC895E98823BD138DB2A5F6622032BC50DFF4B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ CCleaner - один из самых известных и популярных �
 ```bash
 magnet:?xt=urn:btih:D3652267B906FB747A3982554FF674B76D63D0AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Electro Swing - New York City of Swing (2025) [FLAC|Lossless|WEB-DL|tracks] <Ele
 magnet:?xt=urn:btih:2D29ED0168D3792E657B0012AD4BCC9FB2A1316C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ Spindle (2025) [Multi] (1.0.3) License GOG
 magnet:?xt=urn:btih:937EE4B099141ADCC0284E0679436B3D2B0700DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:937EE4B099141ADCC0284E0679436B3D2B0700DC
 ```bash
 magnet:?xt=urn:btih:2026FB09EBD0A9AF61DD38E43297AECB47A0E562
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:2026FB09EBD0A9AF61DD38E43297AECB47A0E562
 magnet:?xt=urn:btih:C949B32AB8CBFFECB0A5C5BD6C2C758C46A74B55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ Victoria 2 – масштабная компьютерная игра в жан�
 ```bash
 magnet:?xt=urn:btih:9DD4390CABAFF1E25727B824F3BED26D4369C0C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:9DD4390CABAFF1E25727B824F3BED26D4369C0C7
 ```bash
 magnet:?xt=urn:btih:ACCE7D7028903F3E542B6E075C91F8EFB54CEF5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ VA - CarMusic 3 for lady (2025) [MP3|320 Kbps] <Pop, House, Other>
 magnet:?xt=urn:btih:7CE36418C6B3DC910CD2539AF184BE6B44F1FACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ Into the Breach v.1.2.88 (2020) [Multi/Ru] [macOS Native game]
 ```bash
 magnet:?xt=urn:btih:4BD77450C7BCBD85ECF0758F30291AB1B0952786
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:4BD77450C7BCBD85ECF0758F30291AB1B0952786
 magnet:?xt=urn:btih:33D238F9080F70175277A35B843AAA77AD22514D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ Windows Server 2022 впервые обеспечивает расширенну
 ```bash
 magnet:?xt=urn:btih:EB3276551E5A7FB7A12C349A44F442ED7117FF5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:EB3276551E5A7FB7A12C349A44F442ED7117FF5A
 magnet:?xt=urn:btih:FDDD967327A5CDD8162B719CDAFA359961F2F342
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:FDDD967327A5CDD8162B719CDAFA359961F2F342
 ```bash
 magnet:?xt=urn:btih:64353A599200A5A5F55BDCD88F257B145DFF0303
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:64353A599200A5A5F55BDCD88F257B145DFF0303
 magnet:?xt=urn:btih:02A7501E6E003F351453C9B0177A35250B28F9C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:02A7501E6E003F351453C9B0177A35250B28F9C9
 ```bash
 magnet:?xt=urn:btih:3E47A6E5BE2918940917ABA7420A1D447BFD3F11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ Mundfish | Артбук по игре Atomic Heart / The World of Atomic Heart (
 magnet:?xt=urn:btih:F6E25BB09438D933E07FDB804C924783EBB544AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ Topaz DeNoise AI 3.7.2 RePack by KpoJIuK [En]
 magnet:?xt=urn:btih:D2D4BC44A8DD3866388DDE86124FD0FBA172E947
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:D2D4BC44A8DD3866388DDE86124FD0FBA172E947
 ```bash
 magnet:?xt=urn:btih:9ECF6EEA4AD82E89053DDB7297F297C2A83868B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ NewBlue FX plugins 2.0.0.34 [En]
 magnet:?xt=urn:btih:4A664ADF98AFBCD8E16E22C6BC8FD293F0216F1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:4A664ADF98AFBCD8E16E22C6BC8FD293F0216F1B
 magnet:?xt=urn:btih:EE6397199DDB17FCF708D0C895BC52BF34116D53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:2F41648AB7362AA3B60ED64262E2AC3D5F3A4A10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Cantoma - Just Landed (2016) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Do
 magnet:?xt=urn:btih:2760769EA205806A7FF1E0B48928D48CEC5AC6D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - Luxury No. 2 (The House Series) (2016) [MP3|320 кб/с] <ChillHouse, Loung
 ```bash
 magnet:?xt=urn:btih:DB7166B9246161198525C77D4D74556082D6186E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ VA - Defected In The House Ibiza (2016) [MP3|320 кб/с] <House, Tech House, De
 magnet:?xt=urn:btih:BDD077B3BDB57A242A227CD6DE316BA42BD95813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ VA - Ambient Spheres (2016) [MP3|320 кб/с] <Downtempo, Chillout, Electronica>
 ```bash
 magnet:?xt=urn:btih:2A45AB5C720B38741E02A7F95456EBDE07EC75D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ VA - Chillaxed Hawaii Nights (2016) [MP3|320 кб/с] <Chillout, Downtempo, Loun
 magnet:?xt=urn:btih:EE072637C3063BCFD4E1AE70020A01430707668D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ VA - Bar & Lounge Music Vol. 2 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lo
 ```bash
 magnet:?xt=urn:btih:DE0BCB163E569DBD30EC29E034C51AB8DF2AB361
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +194,8 @@ Between Interval - Discography 5 Albums (2005-2017) [FLAC|Lossless|tracks+.cue, 
 magnet:?xt=urn:btih:97F1C8A3C286F2172844B5CF145F44D78E63FABC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ VA - Paul Oakenfold - Dreamstate Volume One (Mixed by Paul Oakenfold) (2017) [FL
 ```bash
 magnet:?xt=urn:btih:D3C0E1B32F3DA11257F7680A27F5549A0269424C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +252,8 @@ Banco De Gaia - 30 Times Around the Sun (2019) [FLAC|Lossless|WEB-DL|tracks] <Ps
 magnet:?xt=urn:btih:5670C69A3289A1193E89067735B8EB78A09D33CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ VA - La Fete Au Jardin Selection Lounge Vol.5 (2017) [MP3|320 Kbps] <Downtempo, 
 ```bash
 magnet:?xt=urn:btih:EE91443326758886B2BE3E5C3284C809DD1E454B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +310,8 @@ VA - This Is My Church Vol.4 (The Chill Out Edition) (2017) [MP3|320 Kbps] <Down
 magnet:?xt=urn:btih:33FB35521931B71A34AAD7EC714642398B588046
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +335,8 @@ VA - Mantra House Vol. 1 (2017) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:5B737B6F13F1EDCB3175F26855EC16155E02407C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +365,8 @@ VA - Blue Sunset Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:117D3C4E881BFDFF67925D48701CC8936D2CFF1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +393,8 @@ Above & Beyond - Acoustic II (2016) [FLAC|Lossless|WEB-DL|tracks] <Downtempo , C
 ```bash
 magnet:?xt=urn:btih:ACDE3A644CB2FFFC8F24C9EF6E3C58434192E326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +423,8 @@ Pantha du Prince - The Triad (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronica, 
 magnet:?xt=urn:btih:DA1D42AC4BDCC3CBC82F9C1C2026C46ECEC103E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +451,8 @@ VA - House Traxx (Tracks 4 DJ's) (2016) [MP3|320 кб/с] <House, Tech House, De
 ```bash
 magnet:?xt=urn:btih:C5670FAA10F944A291EB47712363034CBDC24B27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +481,8 @@ VA - Winter Collection 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ho
 magnet:?xt=urn:btih:4E6D084778708E957A989D6B9C3C75F92AA001F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +509,8 @@ VA - Anjunadeep 10 (Mixed by Jody Wisternoff & James Grant) (2019) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:036B64C80552055A95C31FA0CDCA12E8FA81BA68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +539,8 @@ VA - Chill House: Something For Your Mind Your Body & Your Soul (2019) [MP3|320 
 magnet:?xt=urn:btih:8C4CFB176635B266A06572698A4504AB926C1499
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +567,8 @@ VA - Ibiza Overload '19 (2019) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:F055AFFB0410623F05434E6ECE592AE5FC379B03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +597,8 @@ VA - Melodic House Sessions, Vol.12 (2019) [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:61DA5D0FCA00EBA46C8D59F50DE971C2A68F40ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +626,8 @@ VA - The Annual Festival Sessions (2016) [MP3|320 кб/с] <Club House, Electro 
 magnet:?xt=urn:btih:8A3084B39C0F7F8EC73B2A265D19D503186698E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +653,8 @@ Woob - スリープ 研究 プログラム (2018) Time Limited [FLAC 2.0|44.1/24
 ```bash
 magnet:?xt=urn:btih:61DE2734BD534F1E81BB0925042B43BF4C392A6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +683,8 @@ VA - Neo-Cyberpunk 2015 (2015) [MP3|320 Kbps] <Dark Electro, Synth Pop, Electro 
 magnet:?xt=urn:btih:A54D53E9B8C10ED5A0592AF70043AC2154F58EFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +712,8 @@ Blank & Jones - Beyond Time (2019) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 magnet:?xt=urn:btih:58D892E77C5D9C92535C2EB187A32E85C26A45BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +740,8 @@ VA - Lovers Lounge (Chillout Your Mind) (2019) [MP3|320 Kbps] <Balearic, Downtem
 ```bash
 magnet:?xt=urn:btih:2D4E113A278C8A7BEF62A4449D52B637C25B8B82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1038560   (596982) от 31.07.2016
+
+Клинт Эмерсон | Выживание по методике спецслужб. 100 ключевых навыков (2016) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Угроза терроризма, рост криминала, стрельба на улицах - наш мир не становится безопаснее... Как защитить себя, вовремя заметить опасность и избежать ее? Мастер-класс по выживанию в чрезвычайных ситуациях дает один из самых профессиональных спецагентов на планете. Клинт Эмерсон, отставной офицер ВМФ, несколько лет прослуживший в Агентстве национальной безопасности, (   Читать дальше...   )Жанр: Выживание. СпецслужбыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5BA6B10BBD1072237D4FD20425484C2967E7DCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038380   (596991) от 31.07.2016
 
 А.А. Савельев | Сантехника в доме. Монтажные работы (2008) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:742C6588530A98390BDD7B2CF3582A7B3C7EAB97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:742C6588530A98390BDD7B2CF3582A7B3C7EAB97
 magnet:?xt=urn:btih:DB185804F5E7E69649737025FE47435404498FDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:DB185804F5E7E69649737025FE47435404498FDB
 ```bash
 magnet:?xt=urn:btih:CB5EA56F07367A3793EF21D27A707A1B8B86F472
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:CB5EA56F07367A3793EF21D27A707A1B8B86F472
 magnet:?xt=urn:btih:D4A3509A84D419F078122E2CFEB60CADAD3FCEFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:D4A3509A84D419F078122E2CFEB60CADAD3FCEFD
 ```bash
 magnet:?xt=urn:btih:45D93081C2FA45FB8D9C21B958597479F1ECA97E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:45D93081C2FA45FB8D9C21B958597479F1ECA97E
 magnet:?xt=urn:btih:2C50AC9F8612C4E8DBF95E67CBDE5932BF427324
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:2C50AC9F8612C4E8DBF95E67CBDE5932BF427324
 magnet:?xt=urn:btih:AF0319CA90E1901260D5383F2CF981BBFE19F67E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:AF0319CA90E1901260D5383F2CF981BBFE19F67E
 magnet:?xt=urn:btih:16E74572FD2D0368D9BCEC846BB9A45ED084E220
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:16E74572FD2D0368D9BCEC846BB9A45ED084E220
 ```bash
 magnet:?xt=urn:btih:9962C84582A89D16855752592BD1D7A70AAE9B98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:9962C84582A89D16855752592BD1D7A70AAE9B98
 magnet:?xt=urn:btih:F47E281AA613BAA17D27A06DC472243516B4D6A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +314,8 @@ magnet:?xt=urn:btih:F47E281AA613BAA17D27A06DC472243516B4D6A6
 magnet:?xt=urn:btih:6D71F9EAFAB70262BB6A4A410FED60FC72CF56B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:6D71F9EAFAB70262BB6A4A410FED60FC72CF56B7
 ```bash
 magnet:?xt=urn:btih:BB40E69719E1124259FCE0DE2750FBED581E8478
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:BB40E69719E1124259FCE0DE2750FBED581E8478
 magnet:?xt=urn:btih:146AE0CCDA6E65A8DFDE8067D9FF403CD9154C31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +392,8 @@ magnet:?xt=urn:btih:146AE0CCDA6E65A8DFDE8067D9FF403CD9154C31
 magnet:?xt=urn:btih:9667F50A1D45A73E2370D02E49DB79A8DC6DD58E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:9667F50A1D45A73E2370D02E49DB79A8DC6DD58E
 ```bash
 magnet:?xt=urn:btih:533DBB7C6B0A1782DB5569BFC0266BB4F17666B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +446,8 @@ magnet:?xt=urn:btih:533DBB7C6B0A1782DB5569BFC0266BB4F17666B7
 magnet:?xt=urn:btih:9EDAF9D28592E013F5C9C3637983CCFE9D8D733F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:9EDAF9D28592E013F5C9C3637983CCFE9D8D733F
 ```bash
 magnet:?xt=urn:btih:79751879B1DE1126B9B9B235621371DABA4FEDA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:79751879B1DE1126B9B9B235621371DABA4FEDA5
 magnet:?xt=urn:btih:B2B09643F04021FB85AC05BB8AE6AB2D136B8851
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:B2B09643F04021FB85AC05BB8AE6AB2D136B8851
 ```bash
 magnet:?xt=urn:btih:779309F7CDE6CDE0FE7D4E4E48C4C6C439607B22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:779309F7CDE6CDE0FE7D4E4E48C4C6C439607B22
 magnet:?xt=urn:btih:B251BAC6449D73ED4A8323E2B2C0692D47BE05F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:B251BAC6449D73ED4A8323E2B2C0692D47BE05F1
 ```bash
 magnet:?xt=urn:btih:9197DBD3783A8FEB504B05AF39FEC7C4ED0571BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:9197DBD3783A8FEB504B05AF39FEC7C4ED0571BE
 magnet:?xt=urn:btih:F5FCC6DFE65574C760B6B8F175CD85D48EBCE858
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:F5FCC6DFE65574C760B6B8F175CD85D48EBCE858
 ```bash
 magnet:?xt=urn:btih:3DECDA22990E24A8E33AC43713132804CDC18250
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +660,8 @@ magnet:?xt=urn:btih:3DECDA22990E24A8E33AC43713132804CDC18250
 magnet:?xt=urn:btih:1CD36406DD694E81788E3D96B4C7DD8E732C6665
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,31 +686,7 @@ magnet:?xt=urn:btih:1CD36406DD694E81788E3D96B4C7DD8E732C6665
 magnet:?xt=urn:btih:1FA502F82F1E9341B8F75BBD4D0BD2536D50B461
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914329   (598166) от 02.07.2015
-
-Фолио (изд.) | Суфийские притчи (2014) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый может насладиться мудростью суфийских притч. А уж помогут ли они человеку найти ответы на вопросы, зависит от него самого.
-– Посмотрите на этого горбатого урода! – закричал глупец, показывая пальцем на верблюда.
-– Ты позволяешь себе судить и тем самым создаешь мнение, – ответил верблюд. – Но знаешь ли ты, что таким образом ты подвергаешь сомнению смысл созданного (   Читать дальше...   )Жанр: Мифы. Легенды. Эпос, Афоризмы и цитатыФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5251EA174EB5C9871F2D8817245670AEA6C564FC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

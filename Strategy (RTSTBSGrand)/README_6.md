@@ -19,6 +19,8 @@ Company of Heroes 3 (2023) [En] (1.4.2.21612/dlc) Repack dixen18
 magnet:?xt=urn:btih:77E50A26DC4E0DDE07DFCE13617FE5B0BE76EC2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Armored Brigade (2018) [En] (1.068b/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:A8DE0B44F3946D0AEE5D91A19EF4E914EFE20873
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Medieval Kingdom Wars – глобальная стратегия в реаль�
 magnet:?xt=urn:btih:7743B27E0E5A9766F600C3F64910F8E96695F25F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Perimeter / Периметр (2024) [Ru/En] (3.1.3) Repack FitGirl [Legate Editi
 ```bash
 magnet:?xt=urn:btih:2B9E2DED279E73B701AFD8CD4318137FD5AAC3A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Medieval Kingdom Wars Story (2023) [Ru/Milti] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:95AA113AA74406D134027857EFEB4D187DF48922
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ StarCraft 2: Legacy of the Void - это третья, и заключитель
 ```bash
 magnet:?xt=urn:btih:63E2F0592176358D3F2A45F78C1CE6A881BEA739
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ StarCraft Remastered - это обновленная версия знамени
 magnet:?xt=urn:btih:D620ACC39B0E00B1B6F7FA3BA3908587FA0C06F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Perimeter / Периметр (2024) [Ru/En] (3.1.3) Scene Tenoke [Legate Edition
 ```bash
 magnet:?xt=urn:btih:FA52B061E0FE97AB8C11FC2A688D233EB5DD6373
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:FA52B061E0FE97AB8C11FC2A688D233EB5DD6373
 magnet:?xt=urn:btih:44BF099B8E3896B579EFE8E2879F49CAA70EE299
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ WARNO (2024) [Ru/Multi] (1.0/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:728A40E5998C77C98095FDB40AD4BFD2F067A570
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:728A40E5998C77C98095FDB40AD4BFD2F067A570
 magnet:?xt=urn:btih:F62117270541F4F09D5BA1A59A23F6392862FBD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ StarCraft Remastered - это обновленная версия знамени
 ```bash
 magnet:?xt=urn:btih:75FCC71AD4BAD1E9957AF36DC9CE7BE0220F7788
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Warcraft III - культовая компьютерная игра в жанр�
 magnet:?xt=urn:btih:EE39E3FE168B80637DE164B6859B840CBABBC496
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Warcraft II: Battle.net Edition / Военное ремесло 2: Боевое 
 ```bash
 magnet:?xt=urn:btih:963B84716CD1AE808EC717A34BB7B8847397FF9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Europa Universalis IV – продолжение знаменитой серии
 magnet:?xt=urn:btih:544C64E6F9B159755D7F21476619A4D52F9A6E30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Stronghold: Definitive Edition оживляет средневековую Ан�
 ```bash
 magnet:?xt=urn:btih:0A9B07CA6E5878531EAEDBE0381C8DE23430AF23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Medieval II (2): Total War (2006) [Ru/Multi] (1.52/dlc) Scene PROPHET
 magnet:?xt=urn:btih:FE8DE3A917720E68E087BEFAA1B23BE643404059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/M
 ```bash
 magnet:?xt=urn:btih:29594A5BF75A4D85585E70FC851ECA7A92FA0D24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Revival: Recolonization – 4X стратегия, события которой
 magnet:?xt=urn:btih:7E0BC705D49789B0F8050A982A2608D759172F40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Victoria 2 – масштабная компьютерная игра в жан�
 ```bash
 magnet:?xt=urn:btih:F65F19E830EF8958EBF332C7FEF7375FBD235262
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Lord of the Rings: War of the Ring предлагает полностью �
 magnet:?xt=urn:btih:4BD436694871A024AE71BFEBA43CB1CC850AB641
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Gord (2023) [Ru/Multi] (1.5.0/dlc) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:A0F5FCD6F00B812FD89546C1F5CEB7C5CB0F35C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Empire Earth 3 [Ru] (RePack/1.1) 2007 | MAJ3R
 magnet:?xt=urn:btih:F8B0846C987A0299B066086C6C28ACE5A4AA288E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Uprising представляет собой глобальное дополне
 ```bash
 magnet:?xt=urn:btih:52DE40CA58845DBBA8CB0229EA686375DBBA0983
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Galactic Civilizations 2 Ultimate Edition / Космическая Федера�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Rise of Nations: Rise of Legends [Ru] (RePack) 2006 | Naitro
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

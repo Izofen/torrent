@@ -1,3 +1,32 @@
+###  Публикация: 995012   (888219) от 09.03.2016
+
+VA - When Rock Goes Slow: Top Acoustic Rock Tracks (2016) [MP3|320 кб/с] <Downtempo, Rock, Instrumental>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anthony Zaro - For You
+02. Chris Eggarter - You're Playing with Fire - Acoustic Version
+03. Darusso - I Live for Love
+04. Kandinsky - Gold(   Читать дальше...   )Жанр: Downtempo, Rock, InstrumentalПродолжительность: 01:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40523BA8DA2E1DCF2CF628FE602CABB6B7FF9A96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994684   (888225) от 09.03.2016
 
 VA - Женщина любимая моя - 3 (2016) [MP3|256 кб/с] <Шансон>
@@ -21,6 +50,8 @@ VA - Женщина любимая моя - 3 (2016) [MP3|256 кб/с] <Шанс
 ```bash
 magnet:?xt=urn:btih:FEAFD4CC7589C3E16BD9C274728868863C0F244B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Seven City Heaven Uplifting Trance (2016) [MP3|320 кб/с] <Uplifting Tran
 magnet:?xt=urn:btih:57EE7B0714B51A2149CDA9A85C297325EDF3E5D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Mediterranean Music: The Italian Sun (2016) [MP3|320 кб/с] <Downtempo, C
 ```bash
 magnet:?xt=urn:btih:F9F71855184155ACAB99AE37AD2382B2D8FD1922
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ Carlos Santana - 100% Carlos Santana (2020) [MP3|320 Kbps] <Pop, Rock, Latin>
 magnet:?xt=urn:btih:C37B9FD8BD716E1791A40D03C389A6731223FB36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ ATL - Потреблять (2018) Неизданный и слитый альб�
 ```bash
 magnet:?xt=urn:btih:668B69161B14F7500DA55504B5121D833BB3C963
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - pure Melodic house 2 (2021) [MP3|320 Kbps] <Melodic House, Techno>
 magnet:?xt=urn:btih:F393D2A450B674D6C20E438465A0467F9774EB7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Record Russian Mix Top 100 February 07.02.2017 [MP3|307-320 Kbps] <Club Hou
 ```bash
 magnet:?xt=urn:btih:1555D63575E009953E90C192E709224BA32A6A90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - The Best - In Music We Trust Vol.13 (2017) [MP3|320 Kbps] <House, Melbourne
 magnet:?xt=urn:btih:35BA787584C596BD5BFDAA8111FF8A470FFE2266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - The Best - In Music We Trust Vol.12 (2016) [MP3|320 Kbps] <House, Electro H
 ```bash
 magnet:?xt=urn:btih:014CC3F0C19BC017AC74ABA749189E998054521B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Underwater The Shadow Of Life (2017) [MP3|320 Kbps] <Chillout, Lounge, Down
 magnet:?xt=urn:btih:C47C82429D678126AF75DE080E58F255344E44A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - На волне позитива. Русский сборник (2017) [MP3
 ```bash
 magnet:?xt=urn:btih:B79F89EE8C4E47B99BA828545A1F8999B3AA0267
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Я слушаю шансон. Зимние хиты. Версия № 5 (20
 magnet:?xt=urn:btih:9F38B10E4994CEA80952C2CA98A56DD75490DE56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - Молодежный бум хитовый. Сборник № 2 (2017) [MP
 ```bash
 magnet:?xt=urn:btih:8446BCB8B272031126BF4D0CA9E6DEA7865C8669
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Resident Advisor Top 50 Charted Tracks January (2017) [MP3|320 Kbps] <Micro
 magnet:?xt=urn:btih:E6F4AC362085B6B8549F90762311B28988959F51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ VA - Зимняя 100-ка хитовая выпуск № 5 (2017) [MP3|256 Kbp
 ```bash
 magnet:?xt=urn:btih:556947E4783B3DE0787350297D5FAD3406501046
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ VA - Снежный популярный отрыв. Выпуск № 4 (2017) [
 magnet:?xt=urn:btih:EF3234E30A585563A971B98D513A0C3AEB7F6175
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +514,8 @@ VA - Зимний музобоз русский. Версия № 6 (2017) [MP3|
 ```bash
 magnet:?xt=urn:btih:1AF57C27BCF88DC7EE0A74B97FB94F41CE187647
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ VA - 80-90th Discotheque In A New Way Vol.24 (2016) [MP3|320 кб/с] <Dance>
 magnet:?xt=urn:btih:763848254FD8D159D1222E52650C444FE7F15C45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +572,8 @@ VA - Trance Elegance On This Year 009 (2017) [MP3|320 Kbps] <Trance, Uplifting T
 ```bash
 magnet:?xt=urn:btih:6FAB03B57DE231FA8D5D63C462419D43FDA4274F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +602,8 @@ VA - 8 Марта Хиты Для Единственных И Любимых (20
 magnet:?xt=urn:btih:2C71FBF3A83DAB0A1268F29EF6E64AFC2F2E1751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +630,8 @@ VA - Самая лучшая женщина. Праздничный сборни
 ```bash
 magnet:?xt=urn:btih:316ED3DA261219725A5F101A776903B2D10C75E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +660,8 @@ Va - Подарок любимой женщине (2016) [MP3|320 кб/с] <По
 magnet:?xt=urn:btih:5B4F61B6B5BCBAC7B4C98AE303F99C92C8535AF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +688,8 @@ VA - Музыка для души на стильном радио (2014) [MP3|2
 ```bash
 magnet:?xt=urn:btih:9968854C1FFA292951F7B6F8398EB269E68FCB5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +718,8 @@ VA - Радио Шансон. Подарок любимой женщине (2016
 magnet:?xt=urn:btih:C6919EC60E5C3194F76642AEF71A5837C961F0EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,32 +747,7 @@ VA - Top 100 Order Vocal Trance (2016) [MP3|320 кб/с] <Vocal, Uplifting, Prog
 magnet:?xt=urn:btih:661515929CBE5DE7F1F1861EA201640DEF7F3375
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994462   (889823) от 08.03.2016
-
-VA - Clubничка №100 (2016) [MP3|256 кб/с] <Club , Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889823.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Damn - R - Butterfly (Radio Edit)
-002. Ahzee - My Passion (Radio Edit)
-003. Mark Wagner Feat. Jasmine Chloe - Better Off Alone (Extended Version)
-004. Randy Garcia & Ruben Moran & Dani Vars - High Energy (Energy Sax Mix)(   Читать дальше...   )Жанр: Club , DanceПродолжительность: 09:20:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F713E3063F0BB1264EB28E55639216ECEE0F778A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

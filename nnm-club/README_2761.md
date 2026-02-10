@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ FB2, TXT, Comic Book Archive (CBR или CBZ), TCR, PalmDoc(PDB), DCX и фор�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ Paul Rodgers  - Live in Glasgow (2006) BDRip
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ Cosmopolitan – женский глянцевый журнал №1 в Росс
 magnet:?xt=urn:btih:8828002ACBA3D10535A7203118161AFA581AB032
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:8828002ACBA3D10535A7203118161AFA581AB032
 ```bash
 magnet:?xt=urn:btih:F6A1E59C0689A0147248B7272F37B9072FF77709
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Glastonbury Festival of Contemporary Performing Arts, часто сокраща�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Vegas Movie Studio HD Platinum – видеоредактор, включающ�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Vegas Movie Studio HD Platinum – видеоредактор, включающ�
 ```bash
 magnet:?xt=urn:btih:61663526F6CF7417A7195A49E64666D50A72125C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:61663526F6CF7417A7195A49E64666D50A72125C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:61663526F6CF7417A7195A49E64666D50A72125C
 ```bash
 magnet:?xt=urn:btih:CB52CFBBC118CECD0F2DC0461E46CC3050C7E7F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ CCEnhancer использует встроенную в CCleaner систему 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ VA - К 80-ти летию В. Шаинского. Когда мои друзь�
 magnet:?xt=urn:btih:FC2A4A1DC9ECD1882D679454D44265FED7239D9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ London Symphony Orchestra - Classic Rock II: The Collector's Edition [4CD Box Se
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ London Symphony Orchestra - Classic Rock II: The Collector's Edition [4CD Box Se
 ```bash
 magnet:?xt=urn:btih:E059A77079E2D5DE8DD7D111264E268AB5A530BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:E059A77079E2D5DE8DD7D111264E268AB5A530BC
 magnet:?xt=urn:btih:345ED1A6B33F775DDAECE4757B83763BB068DBA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:345ED1A6B33F775DDAECE4757B83763BB068DBA4
 ```bash
 magnet:?xt=urn:btih:944E405A25C7181D83D2D790C05D9FFC7F9AD95A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:944E405A25C7181D83D2D790C05D9FFC7F9AD95A
 magnet:?xt=urn:btih:A0C342FE4FC90CB97D895A1E1B8957F90A80F6B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:A0C342FE4FC90CB97D895A1E1B8957F90A80F6B3
 magnet:?xt=urn:btih:2D9A8A135D43D4FFB1CDD1E1958CF88D82C36C16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:2D9A8A135D43D4FFB1CDD1E1958CF88D82C36C16
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:2D9A8A135D43D4FFB1CDD1E1958CF88D82C36C16
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ Vegas Movie Studio HD – видеоредактор, включающий в с
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ Vegas Movie Studio HD – видеоредактор, включающий в с
 ```bash
 magnet:?xt=urn:btih:EB1165E7BFA9DD62F9F4D3B5B94F63EB9222D956
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ Penthouse - приносит вам наши собственные обжига
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ Penthouse - приносит вам наши собственные обжига
 ```bash
 magnet:?xt=urn:btih:CD425B9ACE05243BDE07AC694BA04AE11F1483D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:CD425B9ACE05243BDE07AC694BA04AE11F1483D7
 magnet:?xt=urn:btih:D92B562C6A8747350B6D71D019C5B14ACF407A0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:D92B562C6A8747350B6D71D019C5B14ACF407A0F
 ```bash
 magnet:?xt=urn:btih:01BA43F4850AFA66D4A44324EEF9D3CEF993B56B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ So Blonde (2008) [En] (1.0) Scene Reloaded
 magnet:?xt=urn:btih:DD0DA566F331020893B32A814A2478456643E6E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Lord of the Rings: The Battle for Middle-earth (2004) [Ru/En] (1.03) Repack 
 ```bash
 magnet:?xt=urn:btih:7C62A68528E95BC189702F5D8DDA36EAE05C0902
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Shattered Union: Захват США - тактическая стратегия
 magnet:?xt=urn:btih:872A7821581DB616C0236F06EF6F7129248F5F2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Painkiller: Overdose / Painkiller: Передозировка (2007) [Ru/En] (1.
 ```bash
 magnet:?xt=urn:btih:F2411D32D09C8E5C57268F8A936BAC8AF0DB1946
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ X3: Reunion / X3: Воссоединение (2005) [Ru/Multi] (2.5b) Repack ale
 magnet:?xt=urn:btih:A096C13D9D578364906980A24EB2230D9396B819
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ X3: Reunion / X3: Воссоединение (2005) [Ru/En] (2.5b) License GOG
 ```bash
 magnet:?xt=urn:btih:42BE4B99876C60E71AF3A9BF608BC173F4E10FCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Heroes of Might and Magic III: Complete (1999) [Ru/En] (4.0/dlc) Repack Deceptic
 magnet:?xt=urn:btih:780B4214A54F1CBB711F3DAEF5BB7D9BBA3058C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Holiday Hare 2023 - это своего рода дань уважения кл�
 ```bash
 magnet:?xt=urn:btih:0D791ABAECD182234DBFC91D79B3D8E370DBE077
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Need for Speed: Hot Pursuit 2 (2002) [Ru/En] (2.42) Repack Decepticon
 magnet:?xt=urn:btih:CA222026170E98282C9D9517109FF0EC1CBE671E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Need for Speed: Porsche Unleashed – одна из лучших игр сери
 ```bash
 magnet:?xt=urn:btih:59033D3B40561934DA9D8FADDFE6D045AE9E0667
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Need for Speed: Underground 2 - это аркадный гоночный сим�
 magnet:?xt=urn:btih:2DC07E7106EA1E8CC8FB5D6C2AFE7B618B514898
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Need for Speed Most Wanted – легендарная часть NFS, в кот�
 ```bash
 magnet:?xt=urn:btih:15B0C82FB21CBE5C56E2647BF572D63335DF37B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Need for Speed Carbon – экшен гонки с открытым игровы
 magnet:?xt=urn:btih:B27411D8F197E65944B181F1E6544BDD5795A36D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Combat Mission: Beyond Overlord / Линия фронта. Нормандия (2
 magnet:?xt=urn:btih:4FB52E6CED79FF14F6D8C956C0DEF968EF4BAA72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +382,8 @@ Star Trek: Starfleet Command III (2002) [Ru/En] (1.00) Unofficial
 ```bash
 magnet:?xt=urn:btih:CE2BF77E265CCA5AE69F022BA7257D303C58482F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Enclave [Ru/En] (RePack) 2003 | R.G. Catalyst
 magnet:?xt=urn:btih:A82C7CA81B17AE1AD9C6BFDCD1ECA0BAFAE25462
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Devastation / Опустошение [En/Ru] (Rip) 2003 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:17CF132198DF4D80072ED7AEF92CB849F3753804
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Beyond Divinity / Beyond Divinity: Оковы судьбы [Ru/En] (L/1.5) 2004
 magnet:?xt=urn:btih:59288289D62B2E5AFF57F45B2C0E23EC2AE1F2AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ STAR WARS Empire at War - Gold Pack – сборник стратегий в р�
 ```bash
 magnet:?xt=urn:btih:116EAE12C56669A6CE23099F643DD9C7D00DEE44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ Anvil of Dawn (1995) [En] (1.1) License GOG
 magnet:?xt=urn:btih:12A10019087BA80DDC03351268063B15783963D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Operation Steel Tide - аркадный симулятор подводной л
 ```bash
 magnet:?xt=urn:btih:E97EFC138F687A7D6A0D090BC202C5A4EEBA5AFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ BioShock - шутер, не похожий ни на один из тех, в к
 magnet:?xt=urn:btih:DB652D17E8A0065CEC0AFC4CB77A62BEE9242673
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ Crysis - первая игра в популярной трилогии, дух�
 ```bash
 magnet:?xt=urn:btih:8569ADE2EEEABD58030C4DDC5621EF991B1B14E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ STAR FLEET II: Krellan Commander (1989) [En] (2.0.17) License GOG
 magnet:?xt=urn:btih:66EEAA45608A90AAA5F118D66E1E52DF327BC2EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ FlatOut 2 — это аркадный автосимулятор с акцент
 magnet:?xt=urn:btih:4FE321F247CBD5A54817B6DDE63D31CAF337C603
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Nexus: The Jupiter Incident - это культовая научно-фанта�
 ```bash
 magnet:?xt=urn:btih:D8DCBAD0D92115A390FA9297A46751577CEFCE9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

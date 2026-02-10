@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:AE39AE922F19684D37C853CE39E642344A8FBD25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ VA - The Ultimate Chilled Album (2008) [FLAC|Lossless]<Chillout, Lounge, Ambient
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -86,6 +90,8 @@ Orbital - Wonky (2012) [MP3|256 кб/с]<Techno, Big-Beat>
 ```bash
 magnet:?xt=urn:btih:8A205C66E51E62723667338412A8513B60551BF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +126,8 @@ VA - Русский Рэп 9 (2012) [MP3|256 кб/с]<Рэп>
 magnet:?xt=urn:btih:CD06AB81B125D0E5C33FC4C9B1514CCEA4B37BA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +151,8 @@ Frugalware Linux 1.6 [x86_64] (4xDVD)
 ```bash
 magnet:?xt=urn:btih:57A5D7880FFAA75E4881FF51111B1C4F04F3A3A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +187,8 @@ Uriah Heep - Logical Revelations (2012) [MP3|320 кб/с]<Hard rock, Progressive
 magnet:?xt=urn:btih:563740F81F61ADBEB3F70FF2ED44A03A39AD2766
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +212,8 @@ magnet:?xt=urn:btih:563740F81F61ADBEB3F70FF2ED44A03A39AD2766
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +240,8 @@ magnet:?xt=urn:btih:563740F81F61ADBEB3F70FF2ED44A03A39AD2766
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -258,6 +274,8 @@ CD 1:
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +300,8 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:38EA89177E1D183D82AEC128A22A7E92E9803F91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +336,8 @@ VA - Лучший Русский Шансон (2012) [MP3|256 кб/с]<Шанс�
 magnet:?xt=urn:btih:9F7AFE50769400CCA34BF24E1499B758F4CFA741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +361,8 @@ magnet:?xt=urn:btih:9F7AFE50769400CCA34BF24E1499B758F4CFA741
 ```bash
 magnet:?xt=urn:btih:ADAB1BC97524EAB88039B0235D8F9F05F7798432
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +393,8 @@ magnet:?xt=urn:btih:ADAB1BC97524EAB88039B0235D8F9F05F7798432
 ```bash
 magnet:?xt=urn:btih:D4523542CDDEB34BC3AFCAA5DD8F9B9D8E6CF3F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +429,8 @@ magnet:?xt=urn:btih:D4523542CDDEB34BC3AFCAA5DD8F9B9D8E6CF3F0
 magnet:?xt=urn:btih:115FFB2E629C67A4830F464BF065AF4A143DDE91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +461,8 @@ magnet:?xt=urn:btih:115FFB2E629C67A4830F464BF065AF4A143DDE91
 magnet:?xt=urn:btih:842645238041A132799A6FDF223905E68BF48D9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +488,8 @@ DVD-приложение к журналу Upgrade Special №3-4 [март-ап
 magnet:?xt=urn:btih:B684EF3AF2BC10F842B23B0CA9550BB825F1BCF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +513,8 @@ magnet:?xt=urn:btih:B684EF3AF2BC10F842B23B0CA9550BB825F1BCF0
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +549,8 @@ CD-1
 magnet:?xt=urn:btih:2B42B7AB9E76F6568E33D98D4A336DB9E0502C3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +584,8 @@ VA - Magic of Classic music (2012) [MP3|192-256 kbps]<Classic>
 magnet:?xt=urn:btih:D0E46F98DC7969D956D9EFB47FAE05B141B9FE90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +609,8 @@ magnet:?xt=urn:btih:D0E46F98DC7969D956D9EFB47FAE05B141B9FE90
 ```bash
 magnet:?xt=urn:btih:3152A199226A129BE9A80A6F182C06FB216FCFDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +639,8 @@ Christina Sturmer - [24 альбома] Дискография (2003-2010) [MP3|
 magnet:?xt=urn:btih:4AEB35E739FD6FCD6D2D4CC0DB7538CC7823EB2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +664,8 @@ magnet:?xt=urn:btih:4AEB35E739FD6FCD6D2D4CC0DB7538CC7823EB2D
 ```bash
 magnet:?xt=urn:btih:2FF20A99961197A95C138BDA9F604BC530554185
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +691,8 @@ Wise Disk Cleaner 7.15 build 472 Final + Portable [Multi(Rus)]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,6 +716,8 @@ Wise Disk Cleaner 7.15 build 472 Final + Portable [Multi(Rus)]
 ```bash
 magnet:?xt=urn:btih:81F8CF46A4F25516ED0924B021C5B2D988814C10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -704,6 +752,8 @@ VA - Вечеринка В Стиле Руки Вверх! 8 (2012) [MP3|192-320
 magnet:?xt=urn:btih:5F2B2A4EDE32CF70F0E17D9A6843AE4AE554DAC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -727,6 +777,8 @@ magnet:?xt=urn:btih:5F2B2A4EDE32CF70F0E17D9A6843AE4AE554DAC1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

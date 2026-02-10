@@ -1,30 +1,3 @@
-###  Публикация: 929645   (518513) от 20.08.2015
-
-VA - Mind Technologies Vol. 6 (2015) [MP3|320 кб/с]<Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Okuli - Game Over
-02. Invadhertz - Listen Up
-03. Thesys - Brain Data
-04. Double Helix, Host - Velvet Future(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:19:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5777AE93073FDA5D2F6F5699E665DBE9759E6816
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925801   (535380) от 09.08.2015
 
 Riya - Sublimation (2015) [MP3|320 кб/с]<Drum & Bass>
@@ -48,6 +21,8 @@ Riya - Sublimation (2015) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:DF03A6EF0D9DC4112A773A03AF22225B8BB0DF68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +51,8 @@ The Chemical Brothers - No Geography (2019) Japanese Edition [MP3|320 Kbps] <Bre
 magnet:?xt=urn:btih:9934BF286703A1050B7713B6FD82B11011795EC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +79,8 @@ S.P.Y - Dubplate Style (2019) [MP3|320 Kbps] <Drum & Bass, Liquid Funk>
 ```bash
 magnet:?xt=urn:btih:CB56C2BFC1D59F371D758F11DF53AA13D3112090
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +109,8 @@ VA - Technique Summer (100 Percent Drum and Bass) (2019) [MP3|320 Kbps] <Drum & 
 magnet:?xt=urn:btih:D2A68C3DF025C8FE7A6E28F78F770510727011E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +137,8 @@ VA - Planet of the Bass (2017) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:1268F203AD427100CE37D151108726E4E729CC67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +167,8 @@ magnet:?xt=urn:btih:1268F203AD427100CE37D151108726E4E729CC67
 magnet:?xt=urn:btih:C6855451956AE31AB47B849404F141339B89D86D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +195,8 @@ VA - Mind Technologies Vol. 7 (2016) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:60CC92BBC06F3B4A9247CE5D88385C3948C8E13A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +225,8 @@ Lukhash - The Other Side (2015) [MP3|320 кб/с]<Chiptune, Dubstep, Electronic,
 magnet:?xt=urn:btih:EBF1D95257F6ACA25540159E1E7B21D72A5A0D62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +253,8 @@ The Chemical Brothers - Born in the Echoes (2015) Deluxe Edition [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:AA2DC8B6A55CA46E82864DD190445C4394AB25E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +283,8 @@ The Chemical Brothers - Born In The Echoes (2015) [MP3|320 кб/с]<Breakbeat, E
 magnet:?xt=urn:btih:79D8371B56287345FF7E767FDEB0369C697D2823
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +311,8 @@ Sinister Souls - FCKN Hostile (2019) [MP3|320 Kbps] <Drum & Bass, Neurofunk, Cro
 ```bash
 magnet:?xt=urn:btih:E0DB05C6FD8528C8B45FD37AD73D1F7208F64390
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +341,8 @@ Pendulum - The Reworks (2018) [MP3|320 Kbps] <Drum'n'Bass / Electronic Rock>
 magnet:?xt=urn:btih:01A5D29BAAF5F5333B35E26280D04D3C5DA11301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +369,8 @@ Bassnectar - Into The Sun (2015) [MP3|320 кб/с]<Dubstep, Future Bass, Trap>
 ```bash
 magnet:?xt=urn:btih:BA358848BB474B15258747D529418F8BBCEDE6AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +399,8 @@ VA - Technique Summer (2018) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:E9F30A0056BDF549A3877142A8D52CA52F38A4E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +427,8 @@ Colombo - Beat Blender (2015) [MP3|320 кб/с]<Electronic, Breakbeat, Breaks>
 ```bash
 magnet:?xt=urn:btih:AD41719CDB21401AB4AA0A98E687BFEEE67C6850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +457,8 @@ The Chemical Brothers - No Geography (2019) [MP3|320 Kbps] <Electronic, Breakbea
 magnet:?xt=urn:btih:E867949920CD601D5FDEFA1FDA8A72364C21E01F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +483,8 @@ Arch Origin - Soul Castle (2017) EP [MP3|320 Kbps] <Deep Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:EDF0AF190071061D6AF356472011DAAF5F26F84E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +513,8 @@ Hybrid Minds - Elements (2017) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:EB882F2A4AE9E34CC031BE73E3967E96BA2FCFD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +541,8 @@ Major Lazer - 3 Albums + 2 EP + Singles + Remixes + Bonus (2009-2015) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:2C69F5E97389776C0C86BA2DD4C81DA039801E43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +571,8 @@ Spectrasoul - The Mistress (2015) [MP3|320 кб/с]<Electronic, Drum & Bass, Hip
 magnet:?xt=urn:btih:6ABBAD6DF24F40453B28E6AF16CB63FE00E571A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +600,8 @@ DJ Sports - Modern Species (2017) [MP3|320 Kbps] <House, Jungle, Ambient>
 magnet:?xt=urn:btih:E54FCE9E3BAE08E7CE9983F58FDB2976A5D219B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +628,8 @@ The Glitch Mob - Piece of the Indestructible EP (2015) [MP3|320 кб/с]<Electro
 magnet:?xt=urn:btih:422E2A9F0AD84D9E1905400AED134128F7F64990
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +653,8 @@ magnet:?xt=urn:btih:422E2A9F0AD84D9E1905400AED134128F7F64990
 ```bash
 magnet:?xt=urn:btih:85AA21E3A6064C732D4F03904421AED4AA0A940C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +683,8 @@ Fatboy Slim - The Best Of (2019) [MP3|320 Kbps] <Electronic, Big Beat, Breakbeat
 magnet:?xt=urn:btih:962A259C7DA5BDBB521FABD8DD37113BD0BDCA75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +711,37 @@ Wsahl - All Eyes On Wsahl (2017) [MP3|320 Kbps] <Breakbeat, Breaks>
 ```bash
 magnet:?xt=urn:btih:0B8C039F3FAC742D95E572FD225CD1C940663DF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904065   (655169) от 02.06.2015
+
+Fatboy Slim - Halfway Between The Gutter & The Stars (15th Anniversary) (2015) [MP3|320 кб/с]<Electronic, Breakbeat, Breaks, Electro, House, Big Beat>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655169.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Talking 'Bout My Baby (03:44)
+002. Star 69 (05:44)
+003. Sunset (Bird Of Prey) (06:50)
+004. Love Life (07:00)(   Читать дальше...   )Производство: SkintЖанр: Electronic, Breakbeat, Breaks, Electro, House, Big BeatПродолжительность: 02:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2092EBD8A240E62327E7E8460DB6F7B7FC1FB406
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

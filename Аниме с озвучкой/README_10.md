@@ -19,6 +19,8 @@ Jitsu wa Ore, Saikyou Deshita? | Am I Actually the Strongest? | Я что, си�
 magnet:?xt=urn:btih:72908385EEE62906846A45DD6235022EAE422C49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Sono Bisque Doll wa Koi o Suru | My Dress-Up Darling | Эта фарфорова
 ```bash
 magnet:?xt=urn:btih:4E0606FB5C21F4ECC4CDC477F3E7D295ED295E2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Gaikotsu Kishi-sama, Tadaima Isekai e Odekake-chuu | Skeleton Knight in Another 
 magnet:?xt=urn:btih:BEEA33ECD52A6158BA5587A56DF685645EE5C449
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Yuragi-sou no Yuuna-san | Yuuna and the Haunted Hot Springs | Юна из гос
 ```bash
 magnet:?xt=urn:btih:B53D80CBBD99A64B01F2C676F3D53CDF9B76430A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Majo to Yajuu | The Witch and the Beast | Ведьма и зверь [2024, TV, 
 magnet:?xt=urn:btih:696FCF8B4FD54AE0643B2D392726BE61B701DB46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в од
 ```bash
 magnet:?xt=urn:btih:B573FA571BC7F164E97A8F5468F045B873BE5965
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Sousou no Frieren | Sousou no Frieren | Фрирен, провожающая в 
 magnet:?xt=urn:btih:F6E68B38695775A36E0A7A25ACB28C923498CA38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Shingeki no Kyojin: The Final Season - Kanketsu-hen | Attack on Titan: Final Sea
 ```bash
 magnet:?xt=urn:btih:36442EC554EE1C31BFC85B7F826A1843D8B9D843
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Hime-sama "Goumon" no Jikan Desu | Время пытки, принцесса | T
 magnet:?xt=urn:btih:6D165504D9A0461125E1C085599B745DEDE35AB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:6D165504D9A0461125E1C085599B745DEDE35AB4
 ```bash
 magnet:?xt=urn:btih:7ACE7B381B9F109696869DE18C427139BC1A8E27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:7ACE7B381B9F109696869DE18C427139BC1A8E27
 magnet:?xt=urn:btih:0E8E08469B355443C5C5CDA7957BFB95911EDA1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в од
 ```bash
 magnet:?xt=urn:btih:F3B4301F2B195AE099E93DED75159E9AE48EB06D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:F3B4301F2B195AE099E93DED75159E9AE48EB06D
 magnet:?xt=urn:btih:78841EAA92E7A505A4A87BA2A1E9DFE609FBFC7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Great Pretender | Великий притворщик [2020, Web, 23 из 23] WE
 ```bash
 magnet:?xt=urn:btih:9C41CA3B013E6E5DD20FE9E5A9E291F4D786B6F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Oroka na Tenshi wa Akuma to Odoru | Глупый ангел пляшет с де
 magnet:?xt=urn:btih:87D0485148AE403EC6CF0A46B8DCB28FD911E433
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Akuyaku Reijou Level 99: Watashi wa Ura Boss Desu ga Maou de wa Arimasen | Зл�
 ```bash
 magnet:?xt=urn:btih:F1F42223E642692859438BE96378F998F5CEF86E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:F1F42223E642692859438BE96378F998F5CEF86E
 magnet:?xt=urn:btih:CED0A54C10BC86DF44AEF8ED06E745FB01BA288F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:CED0A54C10BC86DF44AEF8ED06E745FB01BA288F
 ```bash
 magnet:?xt=urn:btih:778A319DCBE1020B8EB9DC21F4D9470BDADCC572
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:778A319DCBE1020B8EB9DC21F4D9470BDADCC572
 magnet:?xt=urn:btih:ECB37CDA4338717601B47DDCAAE7AD68ED433C09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ magnet:?xt=urn:btih:ECB37CDA4338717601B47DDCAAE7AD68ED433C09
 ```bash
 magnet:?xt=urn:btih:E6031E2273D684C4D83A205705E2B3EB53CF6C45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Kekkon Yubiwa Monogatari | Легенда свадебных колец | Скa�
 magnet:?xt=urn:btih:27C7E4D5BC13102952DC1479ADB9EDD4461B5999
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Triage X | Искусственный отбор [2015, TV, 10 из 10 + OVA] BD
 ```bash
 magnet:?xt=urn:btih:F289854A8E8B3D7805975E0389BA61186D639F6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ magnet:?xt=urn:btih:F289854A8E8B3D7805975E0389BA61186D639F6C
 magnet:?xt=urn:btih:D16E5A77DA622C9EB60746728CCB55DD67866256
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ magnet:?xt=urn:btih:D16E5A77DA622C9EB60746728CCB55DD67866256
 ```bash
 magnet:?xt=urn:btih:E1F30003E47D624AD4DCB4939E040B62C97ADB29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Girls Bravo 2 | Браво, девушки! 2 [2005, TV, 13 из 13] DVDRip 480p
 magnet:?xt=urn:btih:7535F0083E0639C2163D75F65E7B974E0BAEEA48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ magnet:?xt=urn:btih:7535F0083E0639C2163D75F65E7B974E0BAEEA48
 ```bash
 magnet:?xt=urn:btih:B96A8F2B4C643C359BD51ADA5A66A78D90C55864
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ ProfIT | Что нового в PHP (7.3) (2018) PCRec [H.264]
 magnet:?xt=urn:btih:1E9314F7E0FE1A8A3F697B59998FC2CA9F8F382B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Convert Monster | Яндекс.Директ 2017 (2017) PCRec [H.264]
 magnet:?xt=urn:btih:4F6405C9A7CF8E70555D8B0DB6930B2C5EE55D02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ javascript.ru | Курс по React.JS (2018) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:8EA994EC5463E71CB04276F69FA9558E7AB01AB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ javascript.ru | Продвинутый курс по Angular (2018) PCRec [H.264
 magnet:?xt=urn:btih:4B6F3957733B6176578F23673833E9A4B205EB47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Udemy | Symfony с нуля на реальном проекте (2018) PCRec [H
 ```bash
 magnet:?xt=urn:btih:A9FC001F4B1A89CCEB60C19FCFB45BB13817E4FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ doge.codes | Онлайн интенсив по React и Redux (2018) PCRec [H.2
 magnet:?xt=urn:btih:66B54207B1B1E84AFCE4A7EE4F699DBA94CD1F95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ ProfIT | XDebug или Давайте искать баги быстро! (2018)
 ```bash
 magnet:?xt=urn:btih:02D3F28D15729B532B98F5EDB82A7D4D0D7F4533
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:02D3F28D15729B532B98F5EDB82A7D4D0D7F4533
 magnet:?xt=urn:btih:9A912C0487A8C2AF7C5FC8D3347C6738D98E6038
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Vue отлично подходит для итерационной разраб
 ```bash
 magnet:?xt=urn:btih:98A52E0C232CA3BA2E3B89F95E46DDFF26F66190
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Java Course | Начальный курс Java (2017) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:B4570908EF53A6284091B60B8B5FFD49F54D2436
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ JavaBegin | Основы Java (2012-2016) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:E4A299F059CCBA2C41ED499D3F7B6F4A3CA5E2F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ JavaBegin | Веб разработка (2015-2016) PCRec [H.264]
 magnet:?xt=urn:btih:42CC0677DCE5F15A4AB4572A9CF709B97C21271E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Convert Monster | Google Adwords 3.0 (2017) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:B9D6F59E72F30609F5EBC852DC65B549DC6C3FC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Pluralsight | Linux Encryption Security / Безопасность и Шифро
 magnet:?xt=urn:btih:3CF781717DCDCE1B9B1A2A8392431697960CDB23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:3CF781717DCDCE1B9B1A2A8392431697960CDB23
 ```bash
 magnet:?xt=urn:btih:2DC4435F350CE7A11FD754B1E9A280BF82DFC884
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Udemy | Полный курс по кибербезопасности: Сете�
 magnet:?xt=urn:btih:B99B29EBB16126A23C31E9F68AAED87F4C81867D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ jsexpert | Понятный JavaScript [Advanced] (2018) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:E0B1177EF7791A5F86EC903E3C0274039C930157
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ ITVDN | Node.js (2017) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:5E1A7B5887560C6CE4136ABB16A2467A47583F75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Itproger | Курс по изучению PHP и MySQL до профи (2018) PC
 magnet:?xt=urn:btih:1107C4F4ADFFD706BA066D22DF73A45B52F0F4EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Udemy | Основы Nginx / Nginx Fundamentals (2018) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:535E9A861D7AD9826DC2D590DAD9D678C1F49349
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Lynda.com | Creating Secure PHP Websites (2014) PCRec [H.264]
 magnet:?xt=urn:btih:7F4FBAD06C6C3FC37F88EE58778578B6E7F73F68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Udemy | Начальный курс SQL (2019) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:BFC5D9D99938692D7EBA127791B8BF202658068D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:BFC5D9D99938692D7EBA127791B8BF202658068D
 magnet:?xt=urn:btih:20DEAE0AA68E54D08AA9FAB2E635BE242B1AC7BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +633,8 @@ jsexpert | Понятный JavaScript [Beginner] (2017) PCRec [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:982E9E720121B9D0B4B8CEA164F88F1602CDAA0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ jsexpert | Понятный JavaScript [Middle] (2018) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:25360AB443EF70D31CDB16F440F6E98E17BD491F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ Udemy | Изучаем React.js 16.7 & Redux (2019) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:6AFB0C77532A3F8E93EEEEEA7E33CCD0F647D892
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ J Creole - Singular (2011) [H.264/720р] WEBRip
 magnet:?xt=urn:btih:1E8B55A1219E5945DCEC59FF474AE2071937F6DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:1E8B55A1219E5945DCEC59FF474AE2071937F6DB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ VA - The Sweetest Taboo Vol.1 (2009)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ VA - The Sweetest Taboo Vol.1 (2009)
 magnet:?xt=urn:btih:05566D884C6B48E70A6F683E00C27B25619D9C6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Diamond - Loose Screws (2012) [H.264/720р] WEBRip
 ```bash
 magnet:?xt=urn:btih:C6C2776389200E44761BA9614F1BFADD1BD915F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ Lotus Cars — британский производитель спортивн�
 magnet:?xt=urn:btih:768D878CF3B68154FA757431FAC12D7349276C0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ BurnAware - простая, но могучая программа для зап
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ BurnAware - простая, но могучая программа для зап
 ```bash
 magnet:?xt=urn:btih:7C90848ACBC2211CF0BA0BD08D042FAED12042DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -230,6 +246,8 @@ Armin van Buuren - A State of Trance 551 (2012) [MP3|256 кб/с]<Trance>
 magnet:?xt=urn:btih:47CAC63849C1EB92DBFFF586E96936F35341FFEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -фа
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +307,8 @@ Soulfly - Enslaved (2012) [MP3|256 кб/с]<Thrash Metal>
 magnet:?xt=urn:btih:4635BD7FC1DB20A19C9A71B356B7F544D76B4F66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +342,8 @@ VA - Generation of Psytrance Vol.8 (2012) [MP3|320 кб/с]<Psychedelic / Full O
 magnet:?xt=urn:btih:F8A23B9079126A7BC12FFDBDD6938165DEFFD41A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +367,8 @@ magnet:?xt=urn:btih:F8A23B9079126A7BC12FFDBDD6938165DEFFD41A
 ```bash
 magnet:?xt=urn:btih:82D5B950EE24236FBDD7ABC41C8BFE69ACAE017A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +403,8 @@ The Peanuts - Best Album (1992) [MP3|192 кб/с]<Dance, Pop, Disco>
 magnet:?xt=urn:btih:0E3A1270C966397289E66AE5AA206DC5B3AE50D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +428,8 @@ magnet:?xt=urn:btih:0E3A1270C966397289E66AE5AA206DC5B3AE50D5
 ```bash
 magnet:?xt=urn:btih:470B055A155398BCF08602C75912AB37F3CE93F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +456,8 @@ magnet:?xt=urn:btih:470B055A155398BCF08602C75912AB37F3CE93F3
 magnet:?xt=urn:btih:74375E3FC34E2631EACADFAE3AE93E2F93719A0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ magnet:?xt=urn:btih:74375E3FC34E2631EACADFAE3AE93E2F93719A0E
 magnet:?xt=urn:btih:9D1A00EB4EB8FEFE0BC3676F9C9995851E67F3B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +507,8 @@ SAM CoDeC Pack 4.00 RC2 Best [Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +538,8 @@ MKVToolnix 5.3.0.421 + Portable [Multi/Rus]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +565,8 @@ MKVToolnix 5.3.0.421 + Portable [Multi/Rus]
 magnet:?xt=urn:btih:72185CE6D257A894040D8B5101FAB031C43D1B2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +591,8 @@ magnet:?xt=urn:btih:72185CE6D257A894040D8B5101FAB031C43D1B2D
 magnet:?xt=urn:btih:8D9D9B950E06CCF46D86866F3026B940D4198740
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +616,8 @@ magnet:?xt=urn:btih:8D9D9B950E06CCF46D86866F3026B940D4198740
 ```bash
 magnet:?xt=urn:btih:134C56E312C45EFBBC6E24565532BF0C0E350BB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +644,8 @@ VkBot 2.0.6 [Ru]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +671,8 @@ Amaranthine - видеоклип на песню  с дебютного альб
 magnet:?xt=urn:btih:40881F7E02A3C1F303822AEA077B2CD1F8F70E5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +697,8 @@ Less Affair - Lights go down (2012) [H.264/1080р] WEBRip
 magnet:?xt=urn:btih:8522A5A520BBB547A8CB71BB7456F8AE3B796A25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +722,8 @@ magnet:?xt=urn:btih:8522A5A520BBB547A8CB71BB7456F8AE3B796A25
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:94443EEF8319BF31509337BD65E20054705E2FFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Chronos: Before the Ashes (2020) [Ru/Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:9287D10D2DBDBC8F717B76F3645C73D681B9F55A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Sonny Rollins & Heikki Sarmanto Trio - Live at Finlandia Hall Helsinki (1972) 20
 magnet:?xt=urn:btih:1E2547F03FA52D2E82F29914ADD47EBC568022D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:1E2547F03FA52D2E82F29914ADD47EBC568022D1
 ```bash
 magnet:?xt=urn:btih:F9A35AFA16E2824078A9E8EED6AD4BFEE77862B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Poisonblack - Lust Stained Despair (2006) [FLAC|Lossless|image + .cue] <Gothic M
 magnet:?xt=urn:btih:B636C4FE80AE7CAAE4B7990C548651A6FE265D54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Phoenix Point (2020) [Ru/Multi] (1.9.3/dlc) Repack xatab [Year One Edition]
 ```bash
 magnet:?xt=urn:btih:7AFCDCED633D5AEF1BE22C2DDC8012E705E7EA2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ Poisonblack - A Dead Heavy Day (2008) [FLAC|Lossless|image + .cue] <Gothic Metal
 magnet:?xt=urn:btih:6C81BF98506A0C0C9968DED8AEF58A59F467635F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:6C81BF98506A0C0C9968DED8AEF58A59F467635F
 ```bash
 magnet:?xt=urn:btih:F36E205BADF608F87DB2DF77A3C6D26FFD75EEEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Udemy, Илья Фофанов | Алгоритмы и структуры дан
 magnet:?xt=urn:btih:0DC5D8CD06A69F4933F3B823FDFBD7CEA63EEBBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:0DC5D8CD06A69F4933F3B823FDFBD7CEA63EEBBA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ Exhumed - Beyond The Dead (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Gri
 magnet:?xt=urn:btih:A358B66794A1E3C3066D73DC142A431B8BAE0FFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ VA - The Absolute Sound (TAS) (2012) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz, P
 magnet:?xt=urn:btih:3FFABD737768B2AA99CD20F5C35BE1FF78E246BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:3FFABD737768B2AA99CD20F5C35BE1FF78E246BF
 ```bash
 magnet:?xt=urn:btih:EBD637AB0F28BB830CC5CA720FE8EA99F447D9A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ Saltatio Mortis - Aus Der Asche (2007) [FLAC|Lossless|image + .cue] <Folk Metal>
 magnet:?xt=urn:btih:41DBEDBE3D66EA66B470BED4DD80C704BD0E767A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ Dragon Quest XI: Echoes of an Elusive Age (2018) [Ru/Multi] (1.0/dlc) Repack xat
 magnet:?xt=urn:btih:0F4CB91620C7911B29EF062773B2116DEA6BC304
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ macOS Ventura совершенствует все аспекты повседн�
 ```bash
 magnet:?xt=urn:btih:2E0B61444A374E53F0A21B19B13A810C397CC812
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:2E0B61444A374E53F0A21B19B13A810C397CC812
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:2E0B61444A374E53F0A21B19B13A810C397CC812
 ```bash
 magnet:?xt=urn:btih:CCB10868571297046622AC4DC49A0DB3AAF9B730
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ Hasleo Backup Suite — это бесплатное программное об�
 magnet:?xt=urn:btih:FD00276FA80EAAA5B21C64AE05ED0F7499033778
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:FD00276FA80EAAA5B21C64AE05ED0F7499033778
 ```bash
 magnet:?xt=urn:btih:D27605B5587E40E12B79E449AA976FCD1E3CC854
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.3767641/dlc) License GOG [Patches
 magnet:?xt=urn:btih:1944E6D5E35AAD9D7A920321ED5D3531FD408813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:1944E6D5E35AAD9D7A920321ED5D3531FD408813
 ```bash
 magnet:?xt=urn:btih:FFEB9597D159576CA3F692BCB7F546BEA1C8C143
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:FFEB9597D159576CA3F692BCB7F546BEA1C8C143
 magnet:?xt=urn:btih:F0E9D223D9F59C2A64BB65F9424024886A1E3771
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ WhatsApp Messenger - это кроссплатформенное приложе�
 ```bash
 magnet:?xt=urn:btih:9234850AC0B56DA82F94E3D8086330488E5F37AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:9234850AC0B56DA82F94E3D8086330488E5F37AC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ BandLab Technologies запустила «Cakewalk by BandLab» - заменив
 ```bash
 magnet:?xt=urn:btih:4F54EE2A67BE5A9D69B829431A5556B69379FA8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

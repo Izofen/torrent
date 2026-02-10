@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C8DCE2DE4648EA3E628C12F237D71A194407097C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C8DCE2DE4648EA3E628C12F237D71A194407097C
 ```bash
 magnet:?xt=urn:btih:B0F79BF23397F512E3CA25ABDF075DBCEC0D89C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:B0F79BF23397F512E3CA25ABDF075DBCEC0D89C9
 magnet:?xt=urn:btih:C1C7A67AB985F44BBAF0F9A42A32928911956B9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:C1C7A67AB985F44BBAF0F9A42A32928911956B9B
 ```bash
 magnet:?xt=urn:btih:B2D8FA05D6B413A4E4FA10F689AEBA657D6B8C68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:B2D8FA05D6B413A4E4FA10F689AEBA657D6B8C68
 magnet:?xt=urn:btih:5D59887E2D1A5B0F7D1ADAC0BF4075282614388C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:5D59887E2D1A5B0F7D1ADAC0BF4075282614388C
 magnet:?xt=urn:btih:C3CCA40930880D7D3FC138F265D88456AF2CC80B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ magnet:?xt=urn:btih:C3CCA40930880D7D3FC138F265D88456AF2CC80B
 ```bash
 magnet:?xt=urn:btih:A8E5EAB8FB4E437ABF71D127EEA38A9062E22323
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:A8E5EAB8FB4E437ABF71D127EEA38A9062E22323
 magnet:?xt=urn:btih:798F3EC8F326A01C26F0B255CB630CAE69623899
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:798F3EC8F326A01C26F0B255CB630CAE69623899
 ```bash
 magnet:?xt=urn:btih:EDC0E6B03CDD2C56401CDBA650EF448719D1A9C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:EDC0E6B03CDD2C56401CDBA650EF448719D1A9C0
 magnet:?xt=urn:btih:C40883C5A6A3EE4FB3E34726F78BBBA1F3ED906F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:C40883C5A6A3EE4FB3E34726F78BBBA1F3ED906F
 ```bash
 magnet:?xt=urn:btih:3E095D0649FC9AB507E955C739BEA0D29D3BD458
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:3E095D0649FC9AB507E955C739BEA0D29D3BD458
 magnet:?xt=urn:btih:4E73FCA5C4678AC2FDA2B5B3D5DBA12F5FDAE14D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:4E73FCA5C4678AC2FDA2B5B3D5DBA12F5FDAE14D
 ```bash
 magnet:?xt=urn:btih:B5BE23B3727E072321423A605A28F03D23F6759E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:B5BE23B3727E072321423A605A28F03D23F6759E
 magnet:?xt=urn:btih:D1659C4AC42F5490B23925A00CD171899BB065F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:D1659C4AC42F5490B23925A00CD171899BB065F7
 ```bash
 magnet:?xt=urn:btih:E7BEA208D1936385B8F75507408D723D458592A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:E7BEA208D1936385B8F75507408D723D458592A5
 magnet:?xt=urn:btih:94BD82EE0B4BDB741156143C3E47F3512882C84B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:94BD82EE0B4BDB741156143C3E47F3512882C84B
 ```bash
 magnet:?xt=urn:btih:20680F59A2CB48BD999DCFCF8CC97C74D86002C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:20680F59A2CB48BD999DCFCF8CC97C74D86002C2
 magnet:?xt=urn:btih:543712B302FA679E7D27B19AB94BF07D77F8D069
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:543712B302FA679E7D27B19AB94BF07D77F8D069
 magnet:?xt=urn:btih:B406C62B4A96E633676FC31E0323910E248FEDEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:B406C62B4A96E633676FC31E0323910E248FEDEF
 ```bash
 magnet:?xt=urn:btih:3D56870F337E826183F3A7C6D5B1307A441D79D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:3D56870F337E826183F3A7C6D5B1307A441D79D4
 magnet:?xt=urn:btih:91AB158C5A4C1D80E65AF33FBD38A9554056E1D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:91AB158C5A4C1D80E65AF33FBD38A9554056E1D7
 ```bash
 magnet:?xt=urn:btih:BA938BC57700BFAB1A4D0211DB1AA1639019D29D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:BA938BC57700BFAB1A4D0211DB1AA1639019D29D
 magnet:?xt=urn:btih:3FC705E6B551208728BD5366E3D0A0D76C593CB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ magnet:?xt=urn:btih:3FC705E6B551208728BD5366E3D0A0D76C593CB0
 ```bash
 magnet:?xt=urn:btih:394ED596F5ACE2D3655927C904CAA1C2C609580F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ Sanda | Санда [2025, TV, 1 из 12 эп.] WEBRip 1080p raw+eng
 magnet:?xt=urn:btih:E624DB18C90C0EE567BC982D79B5EE9A5E595287
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Toujima Tanzaburou wa Kamen Rider ni Naritai | Tojima Wants to Be a Kamen Rider 
 ```bash
 magnet:?xt=urn:btih:3EDC6D4D84E719AFAE5007B8D7F98ED4FE845018
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

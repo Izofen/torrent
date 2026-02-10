@@ -19,6 +19,8 @@ Daymare: 1994 Sandcastle - это сюжетный хоррор от треть�
 magnet:?xt=urn:btih:CDFAD05D63D7B5DAD730FF90E3D367D31D4F6BB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Trine 5: A Clockwork Conspiracy (2023) [Ru/Multi] (1.0) Scene FairLight
 ```bash
 magnet:?xt=urn:btih:B39F44FEEC149486D5F8AD9103678E7A6A27F925
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Flying Shark (2023) [En] (7) License GOG
 magnet:?xt=urn:btih:09DE2AA8B8822FEBAC615582F06262E5CB2F9657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Smurfs Kart (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B89DF256B3673B16DBD1AD2EA7E00EA9A2F95E21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Phasmophobia — это совместная онлайн-игра в жанре
 magnet:?xt=urn:btih:3CD6EDF06A56E11E3C3EE156D441D22A0655507D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Bridge Constructor (2013) [Ru/Multi] (1.3-fix/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:537AF26D418F7D79A06181D915B58E9A3339896E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Tunguska: The Visitation — это трёхмерный шутер с видо�
 magnet:?xt=urn:btih:6FCD512EFFB254FD6FA83272BE19601B6CC00A38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Gunfire Reborn - это приключенческая многоуровнев�
 ```bash
 magnet:?xt=urn:btih:1EBDDB76EA6A4C1C168D76BA8C5ACB74CBBA3E5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Paint the Town Red (2021) [Ru/Multi] (1.3.4 r5682) Repack Necros
 magnet:?xt=urn:btih:386D83E4E1CFE54EC021A43E87087A500495DD88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.2.0/dlc) Repack Other s [Digital Deluxe E
 ```bash
 magnet:?xt=urn:btih:BDAE34627FF8902C76F7455ED707B9418F4D7346
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Endzone - A World Apart (2020) [Ru/En] (1.2.8630.30586/dlc) License GOG [Save th
 magnet:?xt=urn:btih:4E38AB7F1A39D9D4C33DA9A4308CC0E5273A38F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Animal Shelter (2022) [Ru/Multi] (1.2.11-33.192/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:27026C198EE3DE25C063D4219CDBD6DBC37B62D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ RC Cars от Creat Studio - это гонки на радиоуправляем�
 magnet:?xt=urn:btih:AE54E91E272CF2C4F4B102423D012089F8B18B22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Punch Club – это менеджер уличного бойца в жанре
 ```bash
 magnet:?xt=urn:btih:0D6457675D65A0008879B77E40A78439DC2B14D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Farthest Frontier (2025) [Ru/Multi] (1.0.0) Repack Let'sРlay
 magnet:?xt=urn:btih:67BC9814DD6CB2A0B0A1116DFAC7AB70F5037354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Lord of the Rings: Gollum (2023) [Ru/Multi] (1.2.52488/dlc) License GOG [Pre
 ```bash
 magnet:?xt=urn:btih:730D63FD8120A46669D74B05CEDCE672A996EC7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Neon Abyss сочетает динамичный сюжет в стиле «ст
 magnet:?xt=urn:btih:67023D92506EB8CE9C4C11A0BBC09E9A5AF9E648
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ FAR: Lone Sails (2018) [Ru/Multi] (1.31) License GOG
 ```bash
 magnet:?xt=urn:btih:B56CBE2F30F367005951945CE5DA6D7FF85060AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ The Wreck (2023) [Multi] (1.0.0) License GOG [Supporter Edition]
 magnet:?xt=urn:btih:F64B0519B34EA4368B54778C8DE71A72990D459B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Darkest Dungeon II — это путешествие в жанре рогали�
 ```bash
 magnet:?xt=urn:btih:EBDAB308FAB65CDBF3A3BBED8632C20734E8FCC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Bleak Haven - это игра в жанре survival horror, в которой �
 magnet:?xt=urn:btih:225E49872F813F62F852C0C59D901358BA6C4758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Survival & Horror: Hangman's Rope расскажет историю прокля
 ```bash
 magnet:?xt=urn:btih:B523C27AC4BDA80503447FAD544CEEB448030B7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Adventure of Samsara - это двумерная приключенческая 
 magnet:?xt=urn:btih:65D41F81D31A82AEBE51F85A1B350C5D639D9116
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Tomb Raider рассказывает напряженную и захватыв�
 ```bash
 magnet:?xt=urn:btih:33479F5120A7AE17B800867914BA447EB5D19F55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Sunrider Legends Tactics поставит игрока во главе воен�
 magnet:?xt=urn:btih:0435D70F1BC7C5796B3DC018A229591B63C16A86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Unto The End – зрелищный рисованный платформер о
 ```bash
 magnet:?xt=urn:btih:B9377AB3A3B95C22AE0D149F8C6CB41B6545E49C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

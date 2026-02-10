@@ -19,6 +19,8 @@ Raghav Kandarpa, Shivangi Saxena | Data Wrangling with SQL (2023) [PDF][EN]
 magnet:?xt=urn:btih:3F598B222537DC0679586677E942AD65347150A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ FormatFactory - многофункциональный конвертер раз
 magnet:?xt=urn:btih:8A07BCB98CC8425E2BFF7AFB848396A8174488C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:8A07BCB98CC8425E2BFF7AFB848396A8174488C3
 ```bash
 magnet:?xt=urn:btih:D0D10B8E5634556959BC72E9E49C43F5314B36FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ VA - Крутые пушки Осень 2023 [MP3|320 Kbps] <Club, Dance, Other>
 magnet:?xt=urn:btih:F67161FDB14F8FA3F17E0D7B69E0D603D5E5E928
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:F67161FDB14F8FA3F17E0D7B69E0D603D5E5E928
 ```bash
 magnet:?xt=urn:btih:4CF7C7C804405EFD2A772BB7510ED3ECFEDAC22B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Windows 11 (v23h2) x64 PRO by KulHunter v1 (esd) [En]
 magnet:?xt=urn:btih:67F42D448E54A044183446013ACEDEA680AFE80E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:67F42D448E54A044183446013ACEDEA680AFE80E
 magnet:?xt=urn:btih:7A5C7725183891984846AFAA998A1F27C8BF8E97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:7A5C7725183891984846AFAA998A1F27C8BF8E97
 ```bash
 magnet:?xt=urn:btih:AF90CED1031311E5DA64CA7331F2F3D914C39D79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:AF90CED1031311E5DA64CA7331F2F3D914C39D79
 magnet:?xt=urn:btih:81C940C854AF254C5BC657BF107DE5E9B5F1B519
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:81C940C854AF254C5BC657BF107DE5E9B5F1B519
 ```bash
 magnet:?xt=urn:btih:FB369F07AE00948C0422770120A5568F9B4BBEC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ Level One, Анна Петрова | Грамотность без зубреж�
 magnet:?xt=urn:btih:8839F860CAF65606FD3FE040A02F7A95FBB16A2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:8839F860CAF65606FD3FE040A02F7A95FBB16A2A
 magnet:?xt=urn:btih:31EF67F05B08C6C992246C68D2F26204D04D0AC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:0684206520CE7D8BAC961D53AF224237755CE11B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:0684206520CE7D8BAC961D53AF224237755CE11B
 magnet:?xt=urn:btih:F8787D071BB29A68380EC4CD86963D1BCD387096
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ ABBA - Gold (Greatest Hits) 40th Anniversary Edition [3 CD] (1992/2014) hand mad
 ```bash
 magnet:?xt=urn:btih:35A540D5D0BA4B8AAEBEA5521BAF83520A045F99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:35A540D5D0BA4B8AAEBEA5521BAF83520A045F99
 magnet:?xt=urn:btih:B3BE064477C66C4F72670CCB460DB8EB14887171
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:B3BE064477C66C4F72670CCB460DB8EB14887171
 ```bash
 magnet:?xt=urn:btih:085EE0CE853F7795060506C4C5F56BF854B1A798
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ Planet VPN 2.1.26.1 [Multi/Ru]
 magnet:?xt=urn:btih:046FA10F509951A77A302E2333C57A160C872F16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:046FA10F509951A77A302E2333C57A160C872F16
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ VA - Soft Shades Of Deep House (2023) [MP3|320 Kbps] <Deep-House, Electro>
 magnet:?xt=urn:btih:3E161D077E7E7589555A4C3802483DE3ADBC9421
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ Little Goody Two Shoes - увлекательное приключение в ж
 ```bash
 magnet:?xt=urn:btih:F1AD5C794B31C1DEF6D14799FCFB4F7206B9CCB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ KeyShot автономное приложение для рендеринга. �
 magnet:?xt=urn:btih:A1FDE3C99B26559D33641132E8C63C7A18DB6AC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:A1FDE3C99B26559D33641132E8C63C7A18DB6AC2
 magnet:?xt=urn:btih:CD8B1CFA233C2E2EEF943EDCEFE854A7B5250C3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:CD8B1CFA233C2E2EEF943EDCEFE854A7B5250C3D
 ```bash
 magnet:?xt=urn:btih:8F3E8DB193A805B60A97BCA813A40AD84C60B04A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ magnet:?xt=urn:btih:8F3E8DB193A805B60A97BCA813A40AD84C60B04A
 magnet:?xt=urn:btih:7F683772F5E9F7F973006C9DB7018FFB40946A53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:7F683772F5E9F7F973006C9DB7018FFB40946A53
 ```bash
 magnet:?xt=urn:btih:0ED132C64B800848ADD08F307460516E1E4523BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

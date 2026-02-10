@@ -22,6 +22,8 @@ updated_may_2023_x64_dvd_8ae93bf4.iso
 magnet:?xt=urn:btih:6BD23BF78CC0E526FF82228679773CB60A22D746
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Soft skills — это навыки, которые помогают в рабо
 magnet:?xt=urn:btih:E96556FE49C0670903F621A6ED520270A5F299E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:E96556FE49C0670903F621A6ED520270A5F299E0
 ```bash
 magnet:?xt=urn:btih:C4C8DA923F6A19189C4EF8A6DCFF2B0537F6BDB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:C4C8DA923F6A19189C4EF8A6DCFF2B0537F6BDB2
 magnet:?xt=urn:btih:EF4F8361D753CC2FEB60252D82F70C4FB72DDF2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:EF4F8361D753CC2FEB60252D82F70C4FB72DDF2E
 ```bash
 magnet:?xt=urn:btih:539694E0A7EBCCC88A33598EBA012CBDC5ED9D2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:539694E0A7EBCCC88A33598EBA012CBDC5ED9D2D
 magnet:?xt=urn:btih:D5393514634FF4C6C4BB56067B3C03CAC8475096
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:D5393514634FF4C6C4BB56067B3C03CAC8475096
 ```bash
 magnet:?xt=urn:btih:355164D6CABDF8EB36225575F15521F483CDBCA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:355164D6CABDF8EB36225575F15521F483CDBCA3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Natsu e no Tunnel, Sayonara no Deguchi | The Tunnel to Summer, the Exit of Goodb
 magnet:?xt=urn:btih:6E3C888B44AEF7943CD425085847AF7F0B6E7342
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:6E3C888B44AEF7943CD425085847AF7F0B6E7342
 ```bash
 magnet:?xt=urn:btih:13620EF4B944C6FB1BBE6EFC72C7B23F43803FBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:13620EF4B944C6FB1BBE6EFC72C7B23F43803FBF
 magnet:?xt=urn:btih:034C5029E08787379AE60C49A2E2051FC54B7E30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:034C5029E08787379AE60C49A2E2051FC54B7E30
 ```bash
 magnet:?xt=urn:btih:8BD4B318DA362B0799807446D7679237E3EB4890
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:8BD4B318DA362B0799807446D7679237E3EB4890
 magnet:?xt=urn:btih:32963A1118CC6D6DBD3D2B9CF21872328625853A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:32963A1118CC6D6DBD3D2B9CF21872328625853A
 ```bash
 magnet:?xt=urn:btih:55542CCA6986336AD144EF4A9CB6AF39A5729A66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:55542CCA6986336AD144EF4A9CB6AF39A5729A66
 magnet:?xt=urn:btih:4E10D587892B21470B64CC12F22DC4A64CA4F539
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:4E10D587892B21470B64CC12F22DC4A64CA4F539
 ```bash
 magnet:?xt=urn:btih:EA2C544CB50BF993366F45A0D4FE7CD35330F14A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:EA2C544CB50BF993366F45A0D4FE7CD35330F14A
 magnet:?xt=urn:btih:0F1BADB246C3CE6B52AFAFC0CACD0BAC3FA448B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ Daum PotPlayer - бесплатный мультимедийный проигр�
 magnet:?xt=urn:btih:068BAEF459318EBCCD58EE8B3B6456AB53941D32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:068BAEF459318EBCCD58EE8B3B6456AB53941D32
 ```bash
 magnet:?xt=urn:btih:DE0AF4F939BBE85C6665D1DE537644808891EB91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ Tina Turner - The Best (2018) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Po
 magnet:?xt=urn:btih:FE915F497CCAE302451A3DB260423A78DC180F3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ LIII BitTorrent Client — это утилита для обмена файла�
 ```bash
 magnet:?xt=urn:btih:304CAA82D44BFFCB76D6301BBC903757C17686E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:304CAA82D44BFFCB76D6301BBC903757C17686E0
 magnet:?xt=urn:btih:3DF2170A44B5A7FA0D99A87648D60CCD396A3B86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:3DF2170A44B5A7FA0D99A87648D60CCD396A3B86
 ```bash
 magnet:?xt=urn:btih:8EEA510863D04B7A15D0E5CF8A9D99E27E4A32A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ AIDA64 - является мощным средством для идентиф�
 magnet:?xt=urn:btih:2E931F4FF1A0404BD20886D080700D222345AE40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:2E931F4FF1A0404BD20886D080700D222345AE40
 magnet:?xt=urn:btih:B8FC387CD516EBBEEF234B3CDB7DA0EF644EFFB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:B8FC387CD516EBBEEF234B3CDB7DA0EF644EFFB6
 ```bash
 magnet:?xt=urn:btih:51A83E9109622AC156DFDDC9700D81CAB76DF0E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Project Tower - это шутер от третьего лица, который
 magnet:?xt=urn:btih:F71142CAF1CBDBBA3FB351CFDFA8E8AD18AE5DD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Grand Theft Auto: The Trilogy (2021) [Ru/Multi] (1.112.48699928) Repack FitGirl 
 ```bash
 magnet:?xt=urn:btih:A9154E52E835B89043CD5FDFAAD3008D1987A44C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Priest Simulator - экшен от первого лица, где вы возь
 magnet:?xt=urn:btih:90D6CC1EFFB2B4F902FC09C3EF666A91074371AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Never Alone / Kisima Ingitchuna (2014) [Ru/Multi] (build 16726002) Repack dixen1
 ```bash
 magnet:?xt=urn:btih:4D6443F0B0434493BB9A81B089B96D3C455E5CCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Conscript (2024) [Ru/Multi] (107/dlc) License GOG
 magnet:?xt=urn:btih:4B0E010C3600810413CA15CE3EC825E92EF03674
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ G.O.P.O.T.A 2 / Г.О.П.О.Т.А 2 (2024) [Ru/En] (1.1) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:C747864E995B719E623D8442F34D7BE9B21FE182
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Living With Sister: Monochrome Fantasy (2024) [En] (20241219/dlc) Scene Tenoke
 magnet:?xt=urn:btih:02322C18E3C83C3E855FC3025F728FC18B5F654A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Joyville 2 - это хоррор-головоломка от первого ли
 ```bash
 magnet:?xt=urn:btih:9516A6FBBD3EE39027B700DBF43612D3D4D1B9E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Slipways (2021) [Multi] (1.3-1143) License GOG
 magnet:?xt=urn:btih:B0602135474CDC5C93109E87158006AFD03AEC0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Project Tower - это шутер от третьего лица, который
 ```bash
 magnet:?xt=urn:btih:A410239AAEA44C768144740FCA36BA063BFCB930
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ DREAMERS позволит тебе погрузиться в увлекател�
 magnet:?xt=urn:btih:468DDC91D00E89DE573171320E46910FA85C6236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Coromon – ролевое инди-приключение про прируче
 ```bash
 magnet:?xt=urn:btih:6CE877AA706CBFEFBCFC1C4DD5B97B9E3D3CCA64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Janosik – экшн-платформер с элементами метроид
 magnet:?xt=urn:btih:9A4AA37E155485485E59C9792946E02405EBBE4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Shop Simulator: Supermarket (2024) [Ru/Multi] (1.0.5.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9E1C1558DDB47DB92F188FFD0129B867B9C2DBD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Everybody's Gone to the Rapture (2016) [Ru/Multi] (1.01 Build 1197371) Repack Le
 magnet:?xt=urn:btih:C2C595D88A4438E415DB584A31C7C273048F180E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ This War of Mine - первая игра, которая позволяет ув
 ```bash
 magnet:?xt=urn:btih:C23BE1CA4AF420A3762A9DA24AB0B2F901B13568
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Satellite odyssey: Рrologue - открывающая часть серии иг
 magnet:?xt=urn:btih:339890C04B7ADD981ED192F0BB82489D447F884F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Beach Invasion 1945-Pacific - это шутер от первого лица в�
 ```bash
 magnet:?xt=urn:btih:6F38F20A3D745F97691A5A5B2197EB2AD44D170D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ From the Depths - это аркадный экшен, в котором игро
 magnet:?xt=urn:btih:B4A21C886B49727277F36A22FCF964D175F7E428
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Adventure Allies - это казуальная игра в жанре action-adv
 ```bash
 magnet:?xt=urn:btih:93A737325C88CC854084FDB235D3C1B824136A6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Heads Will Roll: Reforged позволит игроку примерить на 
 magnet:?xt=urn:btih:A80AA153F8F8164B72C2988B90638CE69725E49B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Only Up: Lizards Must Fall / Only Up: Восхождение Русов (2025) [
 ```bash
 magnet:?xt=urn:btih:F41B0DDE3B05EB5210B7A719D498807F70573086
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Grand Theft Auto IV (2020) [Ru/Multi] (1.2.0.59/dlc) Repack dixen18 [The Complet
 magnet:?xt=urn:btih:12EE8326FDBC0DB6CD7E09164A7FD928EDF4B3F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The House of Da Vinci 3 (2022) [Ru/Multi] (Build 10591427) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:28950A3CEF5F867CDA0C931C9DC2334159958231
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ The House of Da Vinci (2017) [Ru/Multi] (Build 5703690) Repack Let'sРlay
 magnet:?xt=urn:btih:639AD88E5BCA31E16900B1B21649FDC0A6000FDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The House of Da Vinci 2 (2020) [Ru/Multi] (Build 6381373) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:0EFE39ADDBF2C165B9693EED635EED7EBC038C4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

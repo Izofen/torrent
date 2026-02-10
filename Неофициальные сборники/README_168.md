@@ -22,6 +22,8 @@ VA - The Crystal Method - Best275z (1997 - 2015) [MP3|320 Kbps] <Breakbeat, Brea
 magnet:?xt=urn:btih:77E9F0E1A13A6AFF170F09A50F64A6616F568F46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - По волне моей памяти 2: Том11 (Compiled by Виктор
 ```bash
 magnet:?xt=urn:btih:9016296350948193FC1ADE4F5FA52EA58EB72273
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Зайцев.Нет - Лучшие Новинки Декабря (2016) [MP
 magnet:?xt=urn:btih:C096F97400B99D447929C7D0DB81280514C4DC0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Громкие новинки месяца Vol.17 (2018) [MP3|320 Kbps] <Po
 ```bash
 magnet:?xt=urn:btih:698DFA29A47696B4065F049EEB4B937C697E700D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Record Super Chart 611 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 magnet:?xt=urn:btih:61EC7D0B9D14892CEB0AC43F2D90DCEE4449A92D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - По волне моей памяти 2: Том8 (Compiled by Виктор3
 ```bash
 magnet:?xt=urn:btih:70CA5F9B6B212821C0CCB7B08D62F777232AFA34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Mayday 25 Years The History Of Rave (2016) [MP3|320 Kbps] <Rave, Techno, Ho
 magnet:?xt=urn:btih:058292372B168A2DCFCC710EED69B896184E8C21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - The Official UK Top 40 Singles Chart 01.11.2019 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:F60F5E158F50397C1BDB75E2DFE88D0B65942C6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ La Chinga - Country Mile (2017) Compilation  [MP3|320 Kbps] <Hard Rock>
 magnet:?xt=urn:btih:72E8B8724FD972B1EA22D2B29413F9FC9B316C58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Душевная музыка от радио Шансон. Версия 2 
 ```bash
 magnet:?xt=urn:btih:F0181248F23CDA516524DC65CF3C2EE0CD72EB02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - German Top 50 Party Schlager Charts 19.11.2018 (2018) [MP3|320 Kbps] <Pop, 
 magnet:?xt=urn:btih:A5D2D57150C484E8E719A626E1619321E725C1FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Traxsource Top 100 November (2016) [MP3|320 Kbps] <Afro House, Minimal, Sou
 ```bash
 magnet:?xt=urn:btih:084300E0CC0A4C90DA9B56046B9D549EFD78A59B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Сотка модных хитов. Выпуск 8 (2016) [MP3|256 Kbps] <P
 magnet:?xt=urn:btih:C489C7740B82719F6B111B2533731FEEF1E5FD10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Музыкальные Новинки 50x50 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:F1EBEF12EFE1FDBA301BEC06C6F26E7950941002
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Русские Свежаки Радиостанций (2016) [MP3|256 Kbps
 magnet:?xt=urn:btih:4D76E71AC60EB69E8BE112C98C4BB9AE60FA5869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Осенняя дискотека по-русски. Выпуск 7 (2016) 
 ```bash
 magnet:?xt=urn:btih:67540C716631CD49E71776F89FC1C669A6C3A1A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Club Hits Special Authors (2016) [MP3|320 Kbps] <House, Electro, Hands Up, 
 magnet:?xt=urn:btih:11334AD60C9480790CD730358D723D4B648B0479
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - Взрывной хит-парад. Версия 2 (2016) [MP3|256 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:35375BBD5879E68C6F093D7B908931A181EA8422
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - Радио Шансон. Высшая Лига Хитов Версия №8
 magnet:?xt=urn:btih:F22860EDF37E970850A148F7279785ADCD4A2656
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - Club Hits (2016) [MP3|204-320 Kbps] <Club, Vocal, Commercial, Progressive, 
 ```bash
 magnet:?xt=urn:btih:33C3B71CC9253277A12E83D4A15CF9E9AE46FDE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ VA - Масть крестовая. Зима на радио Шансон. Вы�
 magnet:?xt=urn:btih:7B655FF594BB6416180AA278AA52136402B21026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ VA - Музыкальные новинки mp3. Часть 5 (2016) [MP3|256 Kbp
 ```bash
 magnet:?xt=urn:btih:9F56500BBCA936FD8176C35B5F17A3166619C77A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ VA - Попсовая соточка от Хит fm 8 (2016) [MP3|256 Kbps] <Pop
 magnet:?xt=urn:btih:08A5D051F4DE618C551DAD8CBE2DE6C178047936
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ VA - Specialist Galactic Trance (2016) [MP3|320 Kbps] <Trance, Tech Trance, Melo
 ```bash
 magnet:?xt=urn:btih:782DA475382EB7B87266D10F4B6FA6BB9938BFB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ VA - Resident Advisor Top 50 Charted Tracks November (2016) [MP3|320 Kbps] <Micr
 magnet:?xt=urn:btih:C515F3A98FA5A855B333677341E56804970CD5CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ VA - Fabulous: Best Of (2016) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:7D535DAEDB3F27AEA4AD66689072CCE65DCFFA57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

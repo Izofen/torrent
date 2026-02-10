@@ -22,6 +22,8 @@ Mob Rules - Ethnolution A.D. (2006) [FLAC|Lossless|image + .cue] <Melodic Power 
 magnet:?xt=urn:btih:AF5E42412E255B985E46C2422940C80D2E2F3133
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:AF5E42412E255B985E46C2422940C80D2E2F3133
 ```bash
 magnet:?xt=urn:btih:67FEAE8881B6C13E41B8948BFC39067E0DD86837
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Mob Rules - Hollowed Be Thy Name (2002) [FLAC|Lossless|image + .cue] <Melodic Po
 magnet:?xt=urn:btih:9A1182EEEC342633940F6C53B0D1824844AC0E0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:9A1182EEEC342633940F6C53B0D1824844AC0E0A
 ```bash
 magnet:?xt=urn:btih:82870C3BEA87EE15CBAB8D572BDC2CD9652B0997
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ I Compagni di Baal - I Compagni di Baal (2012) [FLAC|Lossless|image + .cue] <Hea
 magnet:?xt=urn:btih:2CCAB03CE18F264DCB9C64E539E4BC60F054EEF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:2CCAB03CE18F264DCB9C64E539E4BC60F054EEF2
 ```bash
 magnet:?xt=urn:btih:D147348738086538CA351ACBDCEA4EAC51B507F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:D147348738086538CA351ACBDCEA4EAC51B507F8
 magnet:?xt=urn:btih:55C98635272A0135F1478E915F2DAB0002054132
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ Windows 11 Manager - это универсальная утилита специ
 ```bash
 magnet:?xt=urn:btih:1CE6B9267D9F857654F8BEE9074C96DFE151B318
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ magnet:?xt=urn:btih:1CE6B9267D9F857654F8BEE9074C96DFE151B318
 magnet:?xt=urn:btih:69299B13B5AC70A5F95E7159C37BBF7F1E5609D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:69299B13B5AC70A5F95E7159C37BBF7F1E5609D7
 ```bash
 magnet:?xt=urn:btih:9C5F8F080723CB5536D0A3B8A6769127D0B81FA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:9C5F8F080723CB5536D0A3B8A6769127D0B81FA2
 ```bash
 magnet:?xt=urn:btih:DC842B755730496870F8531A6FFE64D94D93F4E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:DC842B755730496870F8531A6FFE64D94D93F4E9
 magnet:?xt=urn:btih:AB138FC09264FB184504D8291079449EF12BF810
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:AB138FC09264FB184504D8291079449EF12BF810
 magnet:?xt=urn:btih:727037DFA3595E781F07E6EC2CD608CA2901A1AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:727037DFA3595E781F07E6EC2CD608CA2901A1AA
 ```bash
 magnet:?xt=urn:btih:2561E25577A06D580E8EF89F7AD8E72383F124F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ Xorsist - At the Somber Steps To Serenity (2023) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:3C96DE63D7D6BF38993086EB0A3BBFCAAEC5B219
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:3C96DE63D7D6BF38993086EB0A3BBFCAAEC5B219
 ```bash
 magnet:?xt=urn:btih:9F6207E0AF9069A9738884729A53383235E5EBF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +463,8 @@ magnet:?xt=urn:btih:9F6207E0AF9069A9738884729A53383235E5EBF4
 magnet:?xt=urn:btih:D5DDC8ECD36B2F0B2ABC0ABC988D83586A2F0FE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +492,8 @@ magnet:?xt=urn:btih:D5DDC8ECD36B2F0B2ABC0ABC988D83586A2F0FE5
 magnet:?xt=urn:btih:0ABA2A21FBD79FD2539096EE4F576B7C3BC88D31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +518,8 @@ magnet:?xt=urn:btih:0ABA2A21FBD79FD2539096EE4F576B7C3BC88D31
 magnet:?xt=urn:btih:E5B472E80B1778A0DF7E2587113BA1A8C4BCBF3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +543,8 @@ magnet:?xt=urn:btih:E5B472E80B1778A0DF7E2587113BA1A8C4BCBF3A
 ```bash
 magnet:?xt=urn:btih:17B8B85AC54E1D187787485E577136B71C430809
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +573,8 @@ Schokk - Л.О.Н. (2022) [MP3|320 Kbps] <Rap, Hip-hop>
 magnet:?xt=urn:btih:DFB83D50D87597D0F5A30BFA6A361478BDC59AF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:DFB83D50D87597D0F5A30BFA6A361478BDC59AF9
 magnet:?xt=urn:btih:EB913EFBB1AE3B90AC53B86F8C1FA0EAD55F833A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ Moon+ Reader Pro - проект-читалка которая весьма из�
 ```bash
 magnet:?xt=urn:btih:3230CBDD052E10D59F06FE1582DDEC8549C9B89D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ Hollywood Undead - New Empire, Vol. 2 (2020) [MP3|320 Kbps] <Alternative, Rapcor
 magnet:?xt=urn:btih:13C5D408730E3438DD4A9BAC3B884F41B96FABA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +680,8 @@ Resident Evil Village (2021) [Ru/Multi] (11260452/dlc) Repack Decepticon [Deluxe
 magnet:?xt=urn:btih:F6F30AB0D83006CC190A9EF6E5C983A57A62FC74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ Metallica - Lux Æterna (2022) Single [FLAC|Lossless|WEB-DL|tracks] <Metal>
 ```bash
 magnet:?xt=urn:btih:1CA64810D68102FD3588B8FF0FB45638E90B4408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

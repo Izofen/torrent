@@ -1,3 +1,29 @@
+###  Публикация: 633270   (1003374) от 27.11.2025
+
+Тайны советского кино. "Иди и смотри" (2010) SATRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003374.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1986 году состоялась премьера военной драмы Элема Климова "Иди и смотри". Главную роль в этой картине – и первую в богатой ныне фильмографии – сыграл Алексей Кравченко.Вообще-то, актером становиться он не собирался – пришел за компанию с другом. Однако не друг, а именно 14-летний Алеша был утвержден на роль Флеры. У режиссера было только одно условие (   Читать дальше...   )Жанр: Документальный, кинематограф, биография, история, культура, искусствоПродолжительность: 00:25:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8BEC6E0A565600BA8FCF18A369456D47692F6D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487666   (1003377) от 06.08.2021
 
 Дикие люди. Возвращение (Бен Фогл: Возвращение в дикую природу) (Фиджи) / Ben Fogle: Return To The Wild (2018) HDTV [H.264/1080i] (сезон 2, серия 5)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:794C835E3DBB696D49D10B20471ED7313B06F9DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:794C835E3DBB696D49D10B20471ED7313B06F9DA
 magnet:?xt=urn:btih:7AC55B417FCD4357B12A44DF532652D3E7AA6547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:7AC55B417FCD4357B12A44DF532652D3E7AA6547
 magnet:?xt=urn:btih:7F9E3374E8843190B2D6C25CE16CC053A98E9F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:7F9E3374E8843190B2D6C25CE16CC053A98E9F32
 ```bash
 magnet:?xt=urn:btih:96A09D820DEB4DCF831916228E734B9E6F7E94E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:96A09D820DEB4DCF831916228E734B9E6F7E94E2
 magnet:?xt=urn:btih:26C42F942600266E8A17018E1671C5E7B747C681
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:26C42F942600266E8A17018E1671C5E7B747C681
 ```bash
 magnet:?xt=urn:btih:C2B09FF20B34200C2581E5D50B4A9795B02C5271
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:C2B09FF20B34200C2581E5D50B4A9795B02C5271
 magnet:?xt=urn:btih:EBD2B35E4DC0F7A4E003F4FAFE49E068D011C076
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:EBD2B35E4DC0F7A4E003F4FAFE49E068D011C076
 ```bash
 magnet:?xt=urn:btih:01FB86A913777C5E1C682FC1C29299A1538D3495
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:01FB86A913777C5E1C682FC1C29299A1538D3495
 magnet:?xt=urn:btih:C86D3382F4FECD751CF5BA6D9A00734DDE718D0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:C86D3382F4FECD751CF5BA6D9A00734DDE718D0F
 magnet:?xt=urn:btih:62E7449C01E0F25CB334BEFD6D7C67614C1FD2E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:62E7449C01E0F25CB334BEFD6D7C67614C1FD2E0
 ```bash
 magnet:?xt=urn:btih:677975329414D8002545029BE9A91346E7B06CB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:677975329414D8002545029BE9A91346E7B06CB7
 magnet:?xt=urn:btih:63D49834C814C5250E829E4D9B35E6D0B772BBBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:63D49834C814C5250E829E4D9B35E6D0B772BBBE
 ```bash
 magnet:?xt=urn:btih:440EAAA03832AD6739ECD162290E24EB678FC94B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:440EAAA03832AD6739ECD162290E24EB678FC94B
 magnet:?xt=urn:btih:7949F1E21AB13C77931F86056313A4508E515B73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:7949F1E21AB13C77931F86056313A4508E515B73
 ```bash
 magnet:?xt=urn:btih:94410F10EC8899D74299B423FDADD01BF21F8E5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:94410F10EC8899D74299B423FDADD01BF21F8E5F
 magnet:?xt=urn:btih:CB09B5C5C52C2658CF827587D17884094F047BF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:CB09B5C5C52C2658CF827587D17884094F047BF7
 ```bash
 magnet:?xt=urn:btih:CC6E19D262535D6FC7BC17AE99E6C2EA5C7DAF18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:CC6E19D262535D6FC7BC17AE99E6C2EA5C7DAF18
 magnet:?xt=urn:btih:AFBACC0855A93949BB2A10D270C29348056B30A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:AFBACC0855A93949BB2A10D270C29348056B30A7
 magnet:?xt=urn:btih:B38D2C3EDBBCBA7956BB02E21E668B4A6EF39E84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:B38D2C3EDBBCBA7956BB02E21E668B4A6EF39E84
 ```bash
 magnet:?xt=urn:btih:8FDB6C0CDB63BE75D34C646D60313A75E138CD97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:8FDB6C0CDB63BE75D34C646D60313A75E138CD97
 magnet:?xt=urn:btih:9583BA3859180545E19ECC39573DA283132C1350
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:9583BA3859180545E19ECC39573DA283132C1350
 ```bash
 magnet:?xt=urn:btih:1C996011B9E75329F3CA19AB640E5DAC6C6692D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:1C996011B9E75329F3CA19AB640E5DAC6C6692D1
 magnet:?xt=urn:btih:C97D788E6D73387344CC649047AC43F03EA1B92A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:C97D788E6D73387344CC649047AC43F03EA1B92A
 ```bash
 magnet:?xt=urn:btih:B02B0B278C9651C0B6047844E1CB7A3FAFC076C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:B02B0B278C9651C0B6047844E1CB7A3FAFC076C1
 magnet:?xt=urn:btih:AA3F40A9D6F8D467D463E75DEA42AF96E789A820
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486115   (1005000) от 29.07.2021
-
-Тайная история водяной мельницы / The Secret Story Of Watermill (2021) WEBRip [VP9/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весна уже витает в воздухе, а зима прощается с нами.Производство: ПольшаЖанр: Документальный, видовойРежиссер: AeroMatПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2D8325B15FB5DEB89BDD654282222F4ED951ADD
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

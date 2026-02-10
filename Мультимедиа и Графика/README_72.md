@@ -20,6 +20,8 @@ WAVDSP - Magic Suite 1.1.1  VST, VST3, AAX (x64) RePack by R2R [En]
 magnet:?xt=urn:btih:E63147370D1E08DE53B42DF43484C1C347BBE6EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Pristine Peaks — это лимитер пиков со сверхнизким 
 ```bash
 magnet:?xt=urn:btih:21717FBF6D0B7B3181E5160CC0CD3CF5571FABC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ ISM - Kikzilla 1.0.3 VST, VST3, AAX (x86/x64) [En]
 magnet:?xt=urn:btih:E95875B8ABC397C7091DDD93E377F13A9F5471DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 ```bash
 magnet:?xt=urn:btih:6A6CBFC978CC1387C926D45785B300C496C9944C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ d16 Group - ToraVerb 2.0.2 VST, AAX (x86/x64) RePack by VR [En]
 magnet:?xt=urn:btih:5AC2AD77612183530BE8A3FC6CDE414E87BBD0BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Thorn - это программный синтезатор, прост в исп
 ```bash
 magnet:?xt=urn:btih:013AD65BA6CF66C2866FA4D20C9A7150FD2694EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Antresol это флэнджер со звучанием гитарной пед
 magnet:?xt=urn:btih:AAC7BF6495FCB3F35CCDCA2F968511CC9B2127B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Raising Jake Studios SideMinder Plu-ins 08.2022 VST, VST3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:4BA18BBD66D7ED6500FD33B3678CABE53B44A89B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Harry Frank's Cinematic Flares for Knoll Light Factory
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Nero Video 2017 18.0.00900 Retail [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E13AC2FD3D1632A3C47EBC0630919A19C5C2D4C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Bigasoft Audio Converter - является простым в использов
 magnet:?xt=urn:btih:497E6682CBFA84B51F0F8331AC3FE9191D7FA7D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Steinberg - VST Live Pro 1.0.41 (x64) [En]
 ```bash
 magnet:?xt=urn:btih:87C595B04B1164CA8C16B95367E566902E88C255
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ Steinberg - WaveLab Cast 1.2.10 (x64) [En]
 magnet:?xt=urn:btih:25D3A721DA9D1265C89BDBACF8979469CF322687
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ INFINITY EQ — это самый совершенный современный 
 ```bash
 magnet:?xt=urn:btih:761C7EB3435998628404D86D98D348BF4420F720
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ Nik Software Snapseed это инструмент для редактирова�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Sonarworks Reference 4 предназначено для калибровки с
 ```bash
 magnet:?xt=urn:btih:DDF4E4A86A823851C68F57D36FC3BCCC48B9FE64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ Arturia 4x3 FX 2019.8 VST, VST3, AAX (x86/x64) RePack by VR [En]
 magnet:?xt=urn:btih:7129B164CED4FC258D1E7EBB6DEC16A500CB51DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ GiliSoft Video Converter Discovery Edition (Repack & Portable) - легкий, �
 ```bash
 magnet:?xt=urn:btih:23853780E1032018D540AEE3D8227471CE668665
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ TunesKit Audio Converter 3.1.0.45 [En]
 magnet:?xt=urn:btih:64E5FC742A9DC5205495FF1CB78F4173490BEAD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Aiseesoft Audio Converter - простой в использовании ауд�
 ```bash
 magnet:?xt=urn:btih:8036605E331BDEDB929E358D34074216357BAF23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Ashampoo Video Optimizer Pro является эффективным решен�
 magnet:?xt=urn:btih:DC357A881FD6752CF7A36DFEA2B585D639E8231D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ Baby Audio Plugin Bundle 08.2022 VST, VST3, AAX (x86/x64) RePack by FLARE [En]
 ```bash
 magnet:?xt=urn:btih:451C4888B507CC0909C4A89FC616DF03184A25F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Lifeline Expanse создает аутентичность и реализм, и
 magnet:?xt=urn:btih:520F247E806055613537A76367CB32F6BFF6F727
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Excite Audio - Lifeline Console 1.1.0 Standalone, VST, VST 3, AAX (x32/x64) [En]
 ```bash
 magnet:?xt=urn:btih:A95B4465BE457656DB55710E7C5E28C0ADBBA13F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Nero Video 2016 17.0.12000 + ContentPack Portable by PortableWares [Multi/Ru]
 magnet:?xt=urn:btih:EB4EA81EEF5E92327E181B0D0E46AA198BD8440E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Tracktion Software Dawesome - Novum 1.08 VSTi 3 (x64) RePack by MORiA + Content 
 ```bash
 magnet:?xt=urn:btih:3D7AF00F9DD195585AFF9DFF3F0A980ADF9E1CDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

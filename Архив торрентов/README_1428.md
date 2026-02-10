@@ -19,6 +19,8 @@ Modern Tweaker - программная оболочка для твиков Win
 magnet:?xt=urn:btih:D18B7B2EE369F528F132473A8580CA5159B9275E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:5E77CC142F3F18E1781DA79067F4B82C69AEF019
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:AF9228DCE46B54047F9903799A191E564093CF90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Bandicam позволяет записать определенную облас
 ```bash
 magnet:?xt=urn:btih:210A015B581FB82B60CD9AB483316F5343B63D92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:210A015B581FB82B60CD9AB483316F5343B63D92
 magnet:?xt=urn:btih:48AEFFA5C542B9E7B1FCCF5419114EB1781F78AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ PDF-XChange Editor — программа для просмотра, редак�
 ```bash
 magnet:?xt=urn:btih:3BAFDBC389F756024E781C0A3B5AB6EEB9AD3C4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:3BAFDBC389F756024E781C0A3B5AB6EEB9AD3C4E
 magnet:?xt=urn:btih:49B15A34DEDD981009C34ABF01D867B5B27A57C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:A2D7CACD92AD03D42F4895FC73C4ACC54B5EA124
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ ZWCAD 2024 SP0 Professional [En]
 magnet:?xt=urn:btih:736DA3F96F5249001D0D8F14171409615396EEAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Start11 - очередная утилита от компании Stardock, из
 ```bash
 magnet:?xt=urn:btih:41C3C1F70905D23FD2D94E96045DB709457E2D29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ HiPER Scientific Calculator v10.2.3 [Ru/Multi]
 magnet:?xt=urn:btih:D09C4E82FB9495733C18CAD596F519B535FE4379
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Microsoft Office 2013 – лучший пакет прикладных прог�
 magnet:?xt=urn:btih:CDB65C826BD00BE6A4B5878F514D4D8B1204CF05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:0157A487BB494D85BF08F4E96174F283921DF4BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ uTorrent Pack 1.2.3.70 Repack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:49EE4EE970A057A123F8969EF9D04C69FB189340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Recuva - небольшая, но весьма эффективная утили
 ```bash
 magnet:?xt=urn:btih:75D056D627DF62B49601599692C97F79877576BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Phase One Capture One - один из лучших профессиональн�
 magnet:?xt=urn:btih:AC222672C2F10F73BA530009771CEF816F1ADE62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ OpenVPN – мощная программа для работы с частны�
 ```bash
 magnet:?xt=urn:btih:7C6D92079F38A24F9A66F8F7868DAE8D352AF7CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ R-Drive Image — является эффективной утилитой дл�
 magnet:?xt=urn:btih:7B719EA1B2B15D4D5F42E8297D14AB9799639FE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ BricsCad – лидер среди альтернативных DWG САПР п�
 magnet:?xt=urn:btih:C38A27A2C2AEC0D276442AE8F8EF5BF897D4E227
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Windows 11 Manager - это универсальная утилита специ
 ```bash
 magnet:?xt=urn:btih:A3D55ED8343C55929A12CF0E1A6F821474FCF95B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ iToolab UnlockGo это - Универсальный инструмент дл
 magnet:?xt=urn:btih:6CE848E8BEFA00DF79119D6FC95E165E5D47C51E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ uTorrent Pro 3.6.0 Build 46822 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:609F7A11BB1E05F5B68AB9A3D2AFE6915D5A427D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ CUETools - это программа, которая служит для пре�
 magnet:?xt=urn:btih:B17EB2F4FED18CA8E1396527DBD6A224CA9FDDFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Keyman 16.0.139 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:75F656296B30ED6B7126FC10D78A1B3E36D7852B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:75F656296B30ED6B7126FC10D78A1B3E36D7852B
 magnet:?xt=urn:btih:45D70C137600BDD1ADB5BE1DF8F686BE794CBA22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Far manager — бесплатный файловый менеджер с под
 ```bash
 magnet:?xt=urn:btih:749C87E6218720E37FC969B91E75361D0ED4729E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

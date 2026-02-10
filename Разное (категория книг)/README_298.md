@@ -1,3 +1,29 @@
+###  Публикация: 1064381   (427751) от 19.10.2016
+
+Пиппа Мэттинсон | Абсолютное послушание (2014) [FB2]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_427751.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: Многие владельцы собак испытывают трудности в управлении своим питомцем. Подавляющее большинство из них сталкиваются с одной и той же простой, но очень серьезной проблемой - собака не возвращается, когда ее зовут.  В этой книге Пиппа Мэттинсон подробно рассматривает подход по команде как важнейший навык послушания и предлагает пошаговую программу обучения (   Читать дальше...   )Жанр: Домашние питомцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308ABC83DB16EA5ED39ACA7C1F087698C5C81A8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064193   (427753) от 19.10.2016
 
 Karavan | Обмен WebMoney по Вашему курсу (2016) [PDF]
@@ -22,6 +48,8 @@ Karavan | Обмен WebMoney по Вашему курсу (2016) [PDF]
 magnet:?xt=urn:btih:A4B4C5EBBE50C0073C18CF1AEDDC1EEBC9CED864
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:A4B4C5EBBE50C0073C18CF1AEDDC1EEBC9CED864
 ```bash
 magnet:?xt=urn:btih:A006FD7B7844185ABC6351F19EEEA915D443C61D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +102,8 @@ magnet:?xt=urn:btih:A006FD7B7844185ABC6351F19EEEA915D443C61D
 magnet:?xt=urn:btih:ABB758E29501D3FF82D0603EF5792DFB9975FD69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:ABB758E29501D3FF82D0603EF5792DFB9975FD69
 ```bash
 magnet:?xt=urn:btih:D6346CA58DEEA9302B344F5B9B230DEAC8548E94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:D6346CA58DEEA9302B344F5B9B230DEAC8548E94
 magnet:?xt=urn:btih:B87617F18519CF893409A6D828AA5723EB7BFF57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:B87617F18519CF893409A6D828AA5723EB7BFF57
 ```bash
 magnet:?xt=urn:btih:851F6868B5AC4ACCDAAB2761C33581E7D5A50066
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:851F6868B5AC4ACCDAAB2761C33581E7D5A50066
 ```bash
 magnet:?xt=urn:btih:4E023BF6D6717437DFA66C88B9F982C0982DFDC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +236,8 @@ magnet:?xt=urn:btih:4E023BF6D6717437DFA66C88B9F982C0982DFDC3
 magnet:?xt=urn:btih:D34BB3B4D583EEEA5435A1ED1A12510DE1C4D11C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +261,8 @@ magnet:?xt=urn:btih:D34BB3B4D583EEEA5435A1ED1A12510DE1C4D11C
 ```bash
 magnet:?xt=urn:btih:44E490CBB5F1F39811A05CF0084D60489D064414
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +288,8 @@ magnet:?xt=urn:btih:44E490CBB5F1F39811A05CF0084D60489D064414
 magnet:?xt=urn:btih:B6DDDA43373F954C2AF88CF657ACCC537272C00B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:B6DDDA43373F954C2AF88CF657ACCC537272C00B
 ```bash
 magnet:?xt=urn:btih:CE332A3C938A8265805DDFC673707C587B6363F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +342,8 @@ magnet:?xt=urn:btih:CE332A3C938A8265805DDFC673707C587B6363F7
 magnet:?xt=urn:btih:47BD19D19EED190D83CD79C138EA49751C6AC16F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +367,8 @@ magnet:?xt=urn:btih:47BD19D19EED190D83CD79C138EA49751C6AC16F
 ```bash
 magnet:?xt=urn:btih:21C0D23C553DDA007D0C01F74524834DB34D89F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +396,8 @@ magnet:?xt=urn:btih:21C0D23C553DDA007D0C01F74524834DB34D89F8
 magnet:?xt=urn:btih:506CDEC4E1AC4A2DA124EA30C0F312D4EB4AE660
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +423,8 @@ magnet:?xt=urn:btih:506CDEC4E1AC4A2DA124EA30C0F312D4EB4AE660
 magnet:?xt=urn:btih:B7B2582C40D58EB40A9378162BD72B8C74963504
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +449,8 @@ magnet:?xt=urn:btih:B7B2582C40D58EB40A9378162BD72B8C74963504
 magnet:?xt=urn:btih:7A3532D708E8113C120E691540DF8EC316CADCB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +474,8 @@ magnet:?xt=urn:btih:7A3532D708E8113C120E691540DF8EC316CADCB3
 ```bash
 magnet:?xt=urn:btih:FD2E79481FD9F975287FFD139BAD29EB48672B2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +503,8 @@ magnet:?xt=urn:btih:FD2E79481FD9F975287FFD139BAD29EB48672B2A
 magnet:?xt=urn:btih:6D8BAA1D3D46427BE2B837AB55E488133DCF8E44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +530,8 @@ magnet:?xt=urn:btih:6D8BAA1D3D46427BE2B837AB55E488133DCF8E44
 ```bash
 magnet:?xt=urn:btih:AA2DA4F0A45B2AB2294C75A4A4DF23E226F27C16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +559,8 @@ magnet:?xt=urn:btih:AA2DA4F0A45B2AB2294C75A4A4DF23E226F27C16
 magnet:?xt=urn:btih:409EF197A5E890EFA22434F98FA9D8245DF05DDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +586,8 @@ magnet:?xt=urn:btih:409EF197A5E890EFA22434F98FA9D8245DF05DDE
 ```bash
 magnet:?xt=urn:btih:E917E5B8FCC0FE874C136A1713B4CC1EF2981AA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +615,8 @@ magnet:?xt=urn:btih:E917E5B8FCC0FE874C136A1713B4CC1EF2981AA3
 magnet:?xt=urn:btih:B767AF139C6882A05A87FB2F43136E2A79F7CE20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +640,8 @@ magnet:?xt=urn:btih:B767AF139C6882A05A87FB2F43136E2A79F7CE20
 ```bash
 magnet:?xt=urn:btih:5DAC41AB6B44B1BCE4B620EB0753FE445077D9FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +669,8 @@ magnet:?xt=urn:btih:5DAC41AB6B44B1BCE4B620EB0753FE445077D9FF
 magnet:?xt=urn:btih:B8AE3B8B8ABFFE97AEC4E50B534100A2040EE89D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,29 +695,7 @@ magnet:?xt=urn:btih:B8AE3B8B8ABFFE97AEC4E50B534100A2040EE89D
 magnet:?xt=urn:btih:39E66A5061A143910AC9D6BF5D3237815B2262F9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 793657   (430187) от 14.09.2017
-
-Геннадий Седов | Матильда Кшесинская. Любовница царей (2014) [FB2, PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Блистательная Малечка Кшесинская, прима-балерина и любимица театрального Петербурга стала любовницей Николая II, а затем двух великих князей. Родила сына от одного Великого князя, а жила на деньги второго. Соперницы ославили ее как взяточницу и карьеристку... Чего только не рассказывали о ней... И что ждет ее впереди? Эмиграция, нищета и забвение или успех или всемирная (   Читать дальше...   )Формат: FB2, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE77EADF6F934ECD08B1348FA322C11677228F88
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

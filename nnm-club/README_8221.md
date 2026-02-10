@@ -28,6 +28,8 @@ VA - Мистер Шансон (2012) [MP3|256 кб/с]<Шансон>
 magnet:?xt=urn:btih:53D856A429B725873900B2812DA9F7F0812AA8CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ magnet:?xt=urn:btih:53D856A429B725873900B2812DA9F7F0812AA8CE
 ```bash
 magnet:?xt=urn:btih:97FCF24243C8CBA12BEDC630026A73DCF83F68B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:97FCF24243C8CBA12BEDC630026A73DCF83F68B7
 magnet:?xt=urn:btih:2351546F12C9FC47350D289A0EFF47EAA8803E69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Dictionary .NET 4.8.4506 x32/x64 Portable [Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +137,8 @@ Cawatana - 4 albums (2003-2010) [mp3|192-320 kbps] <Neofolk, Apocalyptic Folk, N
 ```bash
 magnet:?xt=urn:btih:85008F1DD00A0DA3C38DBE9D3C1697E53E98C429
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -161,6 +171,8 @@ Irrelevant - I'll Be OK (2011)
 magnet:?xt=urn:btih:B2BE2E3A1098142BDC255E144D3CE87C54E19C58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:B2BE2E3A1098142BDC255E144D3CE87C54E19C58
 ```bash
 magnet:?xt=urn:btih:E2281C128BCB9A2F214EB5E8059338EC215F9AC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +223,8 @@ magnet:?xt=urn:btih:E2281C128BCB9A2F214EB5E8059338EC215F9AC3
 ```bash
 magnet:?xt=urn:btih:4C8658C493D0D674C3C126BDCE26FB6FC8B49D05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +259,8 @@ VA - Only DubStep Vol. 1 (2012) [MP3|128-320 кб/с]<DubStep>
 magnet:?xt=urn:btih:F515E43D6807619DC45BA36044AD78D362B03915
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +284,8 @@ magnet:?xt=urn:btih:F515E43D6807619DC45BA36044AD78D362B03915
 ```bash
 magnet:?xt=urn:btih:99407A827035B480AF4EED058C2878F60B27724D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +320,8 @@ magnet:?xt=urn:btih:99407A827035B480AF4EED058C2878F60B27724D
 magnet:?xt=urn:btih:FA7D4AA767EBF4E4532AB16B2EE69EFC127074A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +348,8 @@ magnet:?xt=urn:btih:FA7D4AA767EBF4E4532AB16B2EE69EFC127074A5
 magnet:?xt=urn:btih:2B7FD46AC46822D4833F620D43007E7D314A614C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +374,8 @@ magnet:?xt=urn:btih:2B7FD46AC46822D4833F620D43007E7D314A614C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ magnet:?xt=urn:btih:2B7FD46AC46822D4833F620D43007E7D314A614C
 ```bash
 magnet:?xt=urn:btih:DD13AF2CBFF510FF3A3D3E91F54EB5B5947BAB4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +435,8 @@ Watson's Riddle - Featuring Chuck Leavell (2012) [FLAC|Lossless]<Smooth Jazz, Fu
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +470,8 @@ VA - Весенняя Вечеринка Non-Stop (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:97DD2B12862588BFFCF4316C6941E183B8DDCB73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +499,8 @@ magnet:?xt=urn:btih:97DD2B12862588BFFCF4316C6941E183B8DDCB73
 ```bash
 magnet:?xt=urn:btih:5DF4E3D3287D450977B90433F11F3F002A7A86B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +535,8 @@ VA - Space Holidays vol.2 (2011) [MP3|192 кб/с]<Spacesynth>
 magnet:?xt=urn:btih:07354852B83CFB24EC752FC75385961605E594CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +562,8 @@ magnet:?xt=urn:btih:07354852B83CFB24EC752FC75385961605E594CE
 magnet:?xt=urn:btih:975125DB95FCB7E4EB1BE12C328F6C8F0A3FC6F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +587,8 @@ magnet:?xt=urn:btih:975125DB95FCB7E4EB1BE12C328F6C8F0A3FC6F0
 ```bash
 magnet:?xt=urn:btih:8E371E6D14033BEB776DCCF59E524AD37BEE7DA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +618,8 @@ magnet:?xt=urn:btih:8E371E6D14033BEB776DCCF59E524AD37BEE7DA1
 magnet:?xt=urn:btih:9DE87A628591AAE4CAF5A7E0AFE07DCF1A9EFA2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +645,8 @@ magnet:?xt=urn:btih:9DE87A628591AAE4CAF5A7E0AFE07DCF1A9EFA2F
 magnet:?xt=urn:btih:459545CF14298286F25CDE361F5DFB852E4DD02C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +671,8 @@ magnet:?xt=urn:btih:459545CF14298286F25CDE361F5DFB852E4DD02C
 magnet:?xt=urn:btih:1350CB46954674DE1E1726B828490C64BB3B3CA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +696,8 @@ magnet:?xt=urn:btih:1350CB46954674DE1E1726B828490C64BB3B3CA4
 ```bash
 magnet:?xt=urn:btih:36F1D4A87A8345357F5C8AC03A36CF053DAE567E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,6 +724,8 @@ magnet:?xt=urn:btih:36F1D4A87A8345357F5C8AC03A36CF053DAE567E
 magnet:?xt=urn:btih:37645489414C5AA252983D9B49EF1F67C1A26546
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +749,8 @@ magnet:?xt=urn:btih:37645489414C5AA252983D9B49EF1F67C1A26546
 ```bash
 magnet:?xt=urn:btih:E43C2F09EDCD0126D1AC94C5C2570F993A934D92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

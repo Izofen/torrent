@@ -19,6 +19,8 @@ NGW: Фантастические существа Мадагаскара / Mada
 magnet:?xt=urn:btih:C1AADE738CA1BA9E46852E45F4CD48CE17A3F380
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NGW: Глубоководные гиганты (Гиганты синей без
 ```bash
 magnet:?xt=urn:btih:70FF5EA8C6528935C482E148A4BFFEF5E5669C8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NGW: Дикая природа Китая. Царство дикой приро�
 magnet:?xt=urn:btih:4938A46B29DE1D40920226C85C96527FA9434E5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NGW: Воздушное сафари. Австралия / Sky Safari. Australia
 ```bash
 magnet:?xt=urn:btih:829D1B90D2557CB1B53D7B015444FA631F507C1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:829D1B90D2557CB1B53D7B015444FA631F507C1D
 magnet:?xt=urn:btih:6AC7F188BB9CC6FD8320D3F9F9989AA05FC49740
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:6AC7F188BB9CC6FD8320D3F9F9989AA05FC49740
 ```bash
 magnet:?xt=urn:btih:65C22AC2ED085956EACDE9962FEF86EC49A5EE6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ BBC. Horizon: Парадокс Хокинга / The Hawking Paradox (2005) SATRi
 magnet:?xt=urn:btih:51BA6419429EE35352DC2A93B39AFC72F9B6CF19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Discovery. World's TOP 5. Super Trains / Пятёрка лучших. Супер
 ```bash
 magnet:?xt=urn:btih:E18A05369CFC5F009DDCBC8CC6096A87030C4A94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 magnet:?xt=urn:btih:0AC0C81520E821534DA75042F88E0F468A842890
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 ```bash
 magnet:?xt=urn:btih:13E0AE08C9EBD91521655FE53F433F1E61A32E46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:13E0AE08C9EBD91521655FE53F433F1E61A32E46
 magnet:?xt=urn:btih:993DD6FF443A41AA8CE1490E20267FBB5A0EADD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ N.G. Нацистские тайны Второй мировой / Nazi weird wa
 ```bash
 magnet:?xt=urn:btih:D6AC0C960B23BAC7D84C17F4161A68B5B4E4F602
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ NGW: Потерянные акулы острова Пасхи / Lost sharks of 
 magnet:?xt=urn:btih:37493C716C6AEC12264336AC2C191C412C9041BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ NG: Осушить океан: глубокое погружение. Затон
 ```bash
 magnet:?xt=urn:btih:594CD01FD6BEB1735C4479342B1489AEDB87A924
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ NG: Гиганты мира животных / How Big Can It Get? (2011) WEB-DL
 magnet:?xt=urn:btih:4D61985F31225AF0C1163E77AE2CC85170C4B7EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:4D61985F31225AF0C1163E77AE2CC85170C4B7EA
 ```bash
 magnet:?xt=urn:btih:08B02A5E104E2A030BC20489676776F93FEF42EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ BBC. Одни ли мы во Вселенной? / Are We Alone In The Universe?
 magnet:?xt=urn:btih:8F3352FDD6A79970AB1C72CCA62FFFC57D2F43CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ NGW: Дикая природа Новой Зеландии: затерянный
 ```bash
 magnet:?xt=urn:btih:34008F213B7B2FE666A946F90EA1FB0D1920DD7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ NG: В поисках неуловимой кошки / Hunt for the Shadow Cat 
 magnet:?xt=urn:btih:9CE22FFE3C4467CAC7227E483E4FD0CE21EA7DBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ NG: Неуловимая кошка / The Phantom Cat (2012) HDTV [H.264/1080i-L
 ```bash
 magnet:?xt=urn:btih:0504DDD57D9DB355E62476BCE4298B97DD56C438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:0504DDD57D9DB355E62476BCE4298B97DD56C438
 magnet:?xt=urn:btih:D1D0811192372468B437DF2E7D8A28C212BE5D68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ BBC: Книга джунглей. Медведь Балу / BBC: Natural World. 
 ```bash
 magnet:?xt=urn:btih:CFD9C9FFF42749D8B9FE5C40ADA2C859B8F3DF57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ Animal Planet: Живой или вымерший. Белый ньюфаундл
 magnet:?xt=urn:btih:9B18593136CB2D47D6F8FD7425B1ECD936D19EA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ NG: Рекорд / Breaking 2 (2017) HDTV [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:6AF2746822F2D853D5B99717FCCC333681C91CDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ NGW: Дикая Монголия: страна крайностей. Степь 
 magnet:?xt=urn:btih:E4CCBEE60592D4D2D09E82DEBDA14629D3DA6773
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ BBC: Времена года Британии / The Great British Year (2013) BD
 ```bash
 magnet:?xt=urn:btih:60A3A1A8DBC649ACA3B9620B156A531D2DA68B2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

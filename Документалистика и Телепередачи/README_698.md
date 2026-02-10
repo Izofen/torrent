@@ -1,3 +1,29 @@
+###  Публикация: 983430   (944044) от 06.02.2016
+
+Центральное телевидение (06.02.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня мы вылавливаем новости в телеэфире и Интернете, обсуждаем в очередях и в блогах, обмениваемся ссылками на интересные видеоролики и фото и не делим новости на «официальные» и «из жизни». Чтобы вызвать цепную реакцию, любая тема должна отвечать единственному требованию — быть интересной. Тот же принцип положен в основу нового воскресного проекта НТВ «Центральное (   Читать дальше...   )Телекомпания: НТВЖанр: ДокументальныйПродолжительность: 00:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7542E3D52943317EDE0AE9980449629736A86D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090917   (944221) от 08.01.2017
 
 Богородица. Земной путь (2017) HDTVRip [H.264/720p-LQ]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:308687B37903BAC252A8C945C490FF5D78023517
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:308687B37903BAC252A8C945C490FF5D78023517
 magnet:?xt=urn:btih:F53D39C99B3CDF37D0763F8CA393D5C268AFF4CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:F53D39C99B3CDF37D0763F8CA393D5C268AFF4CB
 ```bash
 magnet:?xt=urn:btih:9413DCE28A3B85EFA791CB2DC574D3D4B3D45FF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:9413DCE28A3B85EFA791CB2DC574D3D4B3D45FF1
 magnet:?xt=urn:btih:E118B31AA3109F638E528348B90CBC300BB888CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:E118B31AA3109F638E528348B90CBC300BB888CD
 ```bash
 magnet:?xt=urn:btih:BCE4054F2F6E952DE3B66F3B0A89AD4FDC7227F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:BCE4054F2F6E952DE3B66F3B0A89AD4FDC7227F8
 magnet:?xt=urn:btih:B91525C5DD7EC063B5C84571A82A460D324D1332
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:B91525C5DD7EC063B5C84571A82A460D324D1332
 ```bash
 magnet:?xt=urn:btih:42DC2C10C8D780FA45147074376F4841C9AF80CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:42DC2C10C8D780FA45147074376F4841C9AF80CA
 magnet:?xt=urn:btih:87ED5473719B7282D9CAE61539A1D6981F884243
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:87ED5473719B7282D9CAE61539A1D6981F884243
 ```bash
 magnet:?xt=urn:btih:7AECB783E2D10AC384B904665CBF5ACEC87E2187
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:7AECB783E2D10AC384B904665CBF5ACEC87E2187
 magnet:?xt=urn:btih:E08A340FEB98DC0D33FD4EC72EDDA799B25C840C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:E08A340FEB98DC0D33FD4EC72EDDA799B25C840C
 ```bash
 magnet:?xt=urn:btih:57F170EBDB2F12F3987D4462460BA492AEEA9FE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:57F170EBDB2F12F3987D4462460BA492AEEA9FE1
 magnet:?xt=urn:btih:E3A1777A21CCDA4C4C1497F332370FA90079B0BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:E3A1777A21CCDA4C4C1497F332370FA90079B0BC
 ```bash
 magnet:?xt=urn:btih:C1B9D2D6CE8D93756E42D9F750E991BED515F0EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:C1B9D2D6CE8D93756E42D9F750E991BED515F0EF
 magnet:?xt=urn:btih:621E3C12540093861856256C87FA23499E5FF112
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:621E3C12540093861856256C87FA23499E5FF112
 ```bash
 magnet:?xt=urn:btih:E821DCFA1BD7C15984D35689C6BD80BBE4E58B52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:E821DCFA1BD7C15984D35689C6BD80BBE4E58B52
 magnet:?xt=urn:btih:BC3D0D42D47DED963D2A7790F0B4355FA8A1D51A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ magnet:?xt=urn:btih:BC3D0D42D47DED963D2A7790F0B4355FA8A1D51A
 ```bash
 magnet:?xt=urn:btih:CFAB9E88D761F72657521894F6BF17F96EFF0017
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:CFAB9E88D761F72657521894F6BF17F96EFF0017
 magnet:?xt=urn:btih:4935B38D4F9F1DEA374CA0C6FB73B118CEC110FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +513,8 @@ magnet:?xt=urn:btih:4935B38D4F9F1DEA374CA0C6FB73B118CEC110FA
 ```bash
 magnet:?xt=urn:btih:597086D7809349AD7BBB97DD35EA22CD6DBB2216
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:597086D7809349AD7BBB97DD35EA22CD6DBB2216
 magnet:?xt=urn:btih:1DCCE4728D18D38212BC6962A07654B07CDD82D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +565,8 @@ magnet:?xt=urn:btih:1DCCE4728D18D38212BC6962A07654B07CDD82D5
 ```bash
 magnet:?xt=urn:btih:22358644605649C61E2415E45921780F6CCDCA53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:22358644605649C61E2415E45921780F6CCDCA53
 magnet:?xt=urn:btih:6F216696DD6DB589C2CA1949999294D9776BDA18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:6F216696DD6DB589C2CA1949999294D9776BDA18
 ```bash
 magnet:?xt=urn:btih:B6100F5D51B3194B7848CC336217954CDC342ECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:B6100F5D51B3194B7848CC336217954CDC342ECD
 magnet:?xt=urn:btih:95700A8207DC03E0A90CDC98BCB3E2471DF797BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,29 +671,7 @@ magnet:?xt=urn:btih:95700A8207DC03E0A90CDC98BCB3E2471DF797BE
 magnet:?xt=urn:btih:592068EB2842271394F3067C5A80E9B2BC42CE60
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983196   (945413) от 05.02.2016
-
-Верю - не верю. Ирландия (05.02.2016) SATRip
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любители путешествий, Андрей Бедняков зовет вас в увлекательный тур по невероятным странам! В места, где раньше никто и никогда не был. В уголки планеты, которые хранят вековые тайны. По городам, о которых вы нигде больше не узнаете. Бородатый ведущий с прекрасной эрудицией проведет эксклюзивную экскурсию по местам вашей мечты. О каждом из них он расскажет пять интересных (   Читать дальше...   )Телекомпания: Пятница!Жанр: ТелепередачаПродолжительность: 00:41:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0990FBDBB75F7EAF1A5ACF2923D8283A2B7839D0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

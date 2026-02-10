@@ -22,6 +22,8 @@ Paul Lawler - Sleep Easy (2011) [FLAC|Lossless|tracks] <New Age>
 magnet:?xt=urn:btih:F0659F225BADC950321FC635A61CFA0AAA8CEABD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ magnet:?xt=urn:btih:F0659F225BADC950321FC635A61CFA0AAA8CEABD
 ```bash
 magnet:?xt=urn:btih:7010CB4D2B0A2A14F64CEDBE87BB91C0410B382C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -88,6 +92,8 @@ magnet:?xt=urn:btih:7010CB4D2B0A2A14F64CEDBE87BB91C0410B382C
 magnet:?xt=urn:btih:75A6353D8250F92BD2AC7CEE85FC8609096FA2F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +127,8 @@ magnet:?xt=urn:btih:75A6353D8250F92BD2AC7CEE85FC8609096FA2F6
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +155,8 @@ James Asher - Return of the Tiger (2011) [FLAC|Lossless|tracks + .cue] <New Age,
 ```bash
 magnet:?xt=urn:btih:28AAEE5C545C4A029A5C9EB54E574C1B8DC35193
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +185,8 @@ magnet:?xt=urn:btih:28AAEE5C545C4A029A5C9EB54E574C1B8DC35193
 magnet:?xt=urn:btih:D8F1A0736C6A8E43605B3FFF8E53746F7BE640F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +213,8 @@ The London Studio Orchestra - The Love Themes (1991) [MP3|320 kbps]<Instrumental
 ```bash
 magnet:?xt=urn:btih:8EE518609A405BDF6DE625F86AD1922368B38048
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +243,8 @@ David Wright - Beyond the Airwaves, Vol. 2 (2015) [MP3|320 кб/с]<Electronic, 
 magnet:?xt=urn:btih:D3767B632EA8C711DD831FF8C624597F552DAD33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +271,8 @@ Bernward Koch - Walking through Clouds (2014) Real Music [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:D0DA8E97DF8FF2252DA8100750CB3CEE58A95C6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +301,8 @@ VA - Me Before You / До встречи с тобой (Original Motion Picture 
 magnet:?xt=urn:btih:281AEF1FBE9369D024B13D9612273BBF45E7360E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +329,8 @@ Craig Armstrong - Me Before You / До встречи с тобой (Original Mo
 ```bash
 magnet:?xt=urn:btih:414FE1B84ABC93094A0256B3B67F534A6D91FF80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +359,8 @@ VA - Me Before You / До встречи с тобой (Original Motion Picture 
 magnet:?xt=urn:btih:859D07FD392A2A1F17B9F95875FD6D2E8B69911D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +387,8 @@ Craig Armstrong - Me Before You / До встречи с тобой (Original Mo
 ```bash
 magnet:?xt=urn:btih:043E4B142E544F18F7D2323C03C0585901CFF38E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +417,8 @@ Brian Tyler, Keith Power - Criminal (Original Motion Picture Soundtrack) (2016) 
 magnet:?xt=urn:btih:A4907639295B96BAC5657E56EE3D7AE080999BF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +445,8 @@ Empire Of Love - Mysterious I-II (2016-2017) [MP3|320 Kbps] <New Age, Enigmatic>
 ```bash
 magnet:?xt=urn:btih:83FDD83595B7688500A775CBD1605D783592C103
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +475,8 @@ Andy Hull and Robert McDowell - Swiss Army Man / Человек – швейца
 magnet:?xt=urn:btih:4301B005B315B4A7A9FE27C6876E6645E68DD0CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +503,8 @@ Andy Hull and Robert McDowell - Swiss Army Man / Человек – швейца
 ```bash
 magnet:?xt=urn:btih:365BBB2C96BBD2A022A81AA2593797BC196FE300
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +533,8 @@ VA - Eamonn Karran - I’ll Be With You (2018) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:810B6871D4F8792DF0A872AB45156E0A57AE22E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +562,8 @@ VA - Ghostbusters / Охотники за привидениями (Original Mot
 magnet:?xt=urn:btih:2B9B484F3153D607621C42170ED31F045DE46021
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +590,8 @@ VA - Ghostbusters / Охотники за привидениями (Original Mot
 ```bash
 magnet:?xt=urn:btih:81573188F13F784EF161975CABF29A79C905B981
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +626,8 @@ Ennio Morricone - Film Music - 5 Альбомов (1987-2004) [MP3|320 кб/с]<
 magnet:?xt=urn:btih:BD44401BCC9F58EE988F8752F3955D155A15FB23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +655,8 @@ Sean Christopher - Mystique (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 magnet:?xt=urn:btih:1678D02CA2D97BB3DFBD4805EF015C27ED82DB81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +683,8 @@ VA - Spirit Horse (2016) [MP3|320 Kbps] <New Age, World>
 ```bash
 magnet:?xt=urn:btih:1261736B5D2C19C7833DECF96323D54FC1E9A22C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +719,8 @@ Era - Greatest Hits 2 CD (2008) [MP3|320 kbps]<New Age, Enigmatic>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -700,6 +748,8 @@ Mass Effect Trilogy - Original Videogame Soundtrack (2007-2013) [MP3|320 кб/с
 magnet:?xt=urn:btih:57F6CBEBC13C9D03FBBB87DF3312A1854F0EC468
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -723,6 +773,8 @@ Franck Pourcel - plays Abba & The Beatles (2010) [MP3|320 kbps]<Instrumental>
 ```bash
 magnet:?xt=urn:btih:F55CFB65A89F5BC02BB3534E372BEB9521C33058
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

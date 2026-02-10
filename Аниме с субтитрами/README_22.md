@@ -19,6 +19,8 @@ Ajin 2 | Полулюди [ТВ-2] [2016, TV, 13] HDTV 720p raw
 magnet:?xt=urn:btih:635FE3EB79165A6412BC61B744F68F170172FEFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Rakudai Kishi no Cavalry / Rakudai Kishi no Eiyuutan / Chivalry of a Failed Knig
 ```bash
 magnet:?xt=urn:btih:975F04BF72B3ED92713A71DFA46687E69F8CEBC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Owarimonogatari | Истории финала [2015, TV, 12 эп.] HDTV 720p raw
 magnet:?xt=urn:btih:7F45984935653BF206530E2A0294808B3F5C6692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Momo e no Tegami / A Letter to Momo / Письмо для Момо [2011, Movie]
 magnet:?xt=urn:btih:A3F8D804E1F75BC8C58CF9233BEF8EA60134DB9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Chuukan Kanriroku Tonegawa | Менеджер среднего звена Тон
 ```bash
 magnet:?xt=urn:btih:0CBCBE6D23638BBC822525EA501E679F3F7E7A01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Hells / Hells Angels / Ангелы Ада [2008, MV] BDrip 1080p raw
 magnet:?xt=urn:btih:66299ADF2EAC680998CDB3AC4D0C0C6FB36F7627
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Momo e no Tegami / A Letter to Momo / Письмо для Момо [2011, Movie]
 ```bash
 magnet:?xt=urn:btih:54118B6D74D035A43B50BA37756AFD2A1BC0A592
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Seirei Gensouki | Seirei Gensouki: Spirit Chronicles | Духовные хрон
 magnet:?xt=urn:btih:1CC65D432365265CC64EB5F47BD5BAA1B685DF3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Al Caral no Isan | Наследие Ал Карал [1993, OVA] LDRip 480p raw
 ```bash
 magnet:?xt=urn:btih:8396CB2CA1AB2781E61A5F0757F6E3004D8B0FC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Soul Buster: Shousei Ran / Разрушитель душ [2016, TV, 12 из 12] 
 magnet:?xt=urn:btih:6DC4D57CB1C9930F8198BFE4B0284E7202953622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Ani ni Tsukeru Kusuri wa Nai! 4 | В случае с братом медицин
 ```bash
 magnet:?xt=urn:btih:5F183F2DE2A266EBCC674FA010466CF204F04511
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Deca-Dence | Дека-Данс | Декаданс [2020, TV, 12 из 12] BDRip 1
 magnet:?xt=urn:btih:1A84292D8717A5AB5ECA98A9D16C33A817682755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Cheating Craft / Искусство обмана [2016, TV, 12 из 12] WEB-DLRi
 ```bash
 magnet:?xt=urn:btih:AB66596BDFA1C8A7B5B50F57913DA8142E902CCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Komi-san wa, Komyushou Desu. | Komi Can't Communicate | У Коми пробле
 magnet:?xt=urn:btih:72445CB027E864DDB039560FD733693E74D5A2F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Ore ga Suki na no wa Imouto Dakedo Imouto ja Nai / My Sister, My Writer / Я л�
 ```bash
 magnet:?xt=urn:btih:DEBC8C50D20507F2B0BC7428B07A31D2BE269212
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Ken En Ken: Aoki Kagayaki | Xuan Yuan Sword Luminary | Меч Жёлтого и�
 magnet:?xt=urn:btih:45E3968BEF205A22EAEA1EF22988A1425805FDE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Release the Spyce / Выпустить Спайс [2018, TV, 12] HDTV 720p raw
 ```bash
 magnet:?xt=urn:btih:9FE6AB2AA6329EFAEB1075B52994EC95CB3C74BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Mahou Shoujo Nante Mou Ii Desu kara. Second Season / Меня достало б�
 magnet:?xt=urn:btih:BA2CB9D4904C896E12B0A82DEE2D37D31D6117CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Sentouin, Haken Shimasu! | Combatants Will Be Dispatched! | Бойцы буду�
 magnet:?xt=urn:btih:33A11D817D2C53E52C73BFC615AAF048EEE44966
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Kumo Desu ga, Nanika? | So I'm a Spider, So What? | Да, я паук, и что
 ```bash
 magnet:?xt=urn:btih:0A109AD9939FF799FCB5520702B9195101E0F744
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Ani ni Tsukeru Kusuri wa Nai! 3 | В случае с братом медицин
 magnet:?xt=urn:btih:0AC478403202B57E3376B993114183B44446EC65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ High Score Girl II | Девчонка не промах [ТВ-2] [2019, TV, 9] H
 ```bash
 magnet:?xt=urn:btih:ED272E6B13D032D114B5F7CD24CD9324F7970CC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ Meikyuu Black Company | The Dungeon of Black Company | Подземелье "Ч�
 magnet:?xt=urn:btih:48C287F506741409EC6EADFBBC45EFED22582552
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Adachi to Shimamura / Adachi and Shimamura / Адати и Симамура [202
 ```bash
 magnet:?xt=urn:btih:1F77AEB9D41761DCE488BA9A6CB2ADF2DB5D76A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ Kuma Kuma Kuma Bear / Ми-ми-ми-мишка [2020, TV, 12] WEBRip 720p raw
 magnet:?xt=urn:btih:81A57816B8419BB9469AC114F8FDD74E07420DCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Yuusha ni Narenakatta Ore wa Shibushibu Shuushoku o Ketsui Shimashita. / YuShibu
 ```bash
 magnet:?xt=urn:btih:09F97AC04BA28F65DAA259FD364402E2FBC8D885
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

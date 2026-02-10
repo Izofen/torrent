@@ -1,3 +1,148 @@
+###  Публикация: 1539645   (656116) от 27.03.2022
+
+Scotch - Disco Collection (2003) Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disco Band
+02. Take Me Up
+03. Mirage
+04. Money Runner(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:11:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C9CD34C302C4BDB418B96F76D47F63DC687863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539767   (656118) от 27.03.2022
+
+VA - The 80s (2022) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656118.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fleetwood Mac - Everywhere (2018 Remaster) (3:43)
+002. Joy Division - Love Will Tear Us Apart (3:24)
+003. The Smiths - This Charming Man (2011 Remaster) (2:42)
+004. a-ha - Take On Me (3:49)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 07:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4111D10955AE143BD6B33B4DFE9DAC3F720A7B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514173   (656242) от 25.06.2012
+
+Иван Дорн - Co'n'Dorn (2012) [MP3|320 kbps] <Pop/Funk>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Оуе Пахатам (01:23)
+02. Бигуди (04:51)
+03. Тем Более (02:45)
+04. Ненавижу (03:40)(   Читать дальше...   )Жанр: Pop/FunkПродолжительность: 01:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A22FBFFA7D433E744E25FB1A2A26BD03B301222
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904102   (656433) от 01.06.2015
+
+Maroon 5 - V (2014) Deluxe Edition [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maps
+02. Animals
+03. It Was Always You
+04. Unkiss Me(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD7F047049B0278B8B710F5000771DA4B9AED395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226146   (656651) от 19.05.2018
+
+Ірина Білик (Ирина Билык) - 11 Альбомов (1990-2014) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Того, кого
+02. Рассвет
+03. Моя любовь
+04. Не любовники(   Читать дальше...   )Жанр: PopПродолжительность: 10:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F1DED0498335CAB9F27FE218B911356E1A1EDFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140260   (656673) от 05.06.2017
 
 Егор Крид - Что они знают? (2017) [MP3|320 Kbps] <Pop>
@@ -21,6 +166,8 @@
 ```bash
 magnet:?xt=urn:btih:2E26FADBF555727BD00245FFF4BA5799F90A70BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ Robin Cook - Land Of Sunshine (1997) [FLAC|Lossless|tracks + .cue] <Eurodance, E
 magnet:?xt=urn:btih:80BDEB213A78F3B9CC74F0678395B49292E687C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +224,8 @@ VA - Eurodance Master (Rare & Unreleased tracks from Axel Breitung) (2008) [FLAC
 ```bash
 magnet:?xt=urn:btih:26B39BC89DD2C7EDE3754663EE119DA0B4BB0238
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +254,8 @@ VA - Гирлянды любви (2006) [APE|Lossless|tracks + .cue] <Pop>
 magnet:?xt=urn:btih:6694BA5D85518AA04435C44B7068123696105854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +282,8 @@ VA - Turbo Disco - Лучшие Хиты Дискотек (2001) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:594C4E23183E8383C140C080F71861D54FA5CAE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +312,8 @@ Fat Larry's Band - Lookin' For Love (1979) LP [MP3|320 Kbps] <Electronic, Funk S
 magnet:?xt=urn:btih:630C572B327D20C8A1EB49E28D31B8DD7BDFC10E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +341,8 @@ magnet:?xt=urn:btih:630C572B327D20C8A1EB49E28D31B8DD7BDFC10E
 magnet:?xt=urn:btih:294A499B91749A495BE0E23C54815E0A81A5A30D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +369,8 @@ VA - Ultimate 90s Playlist (2018) 5CD [MP3|320 Kbps] <Pop, Rock, Dance>
 ```bash
 magnet:?xt=urn:btih:CCEBDA49AC808D55617FA362F348E6A0DD4387AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +405,8 @@ VA - Different Shades Of Savage (2011) 2CD [APE|Lossless]<Italo-Disco, Synth-pop
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +434,8 @@ Francis Rimbert - Bionic Orchestra (1979) LP [MP3|320 Kbps] <Electronic, Disco, 
 magnet:?xt=urn:btih:41BD69C2BFB8F33BBE83579514B4770B30FA9F27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +462,8 @@ VA - Italo Disco Legacy (2017) Original Motion Picture Soundtrack [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:A809772B34BBFF1B996A0C47FC41976627E3C881
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +494,8 @@ VA - Top Of The Pops '1975 (2018) 3CD [FLAC|Lossless|tracks + .cue] <1970s, pop,
 magnet:?xt=urn:btih:155AC6B9DB9EF05DCF36D79DBF5704290C62B946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +522,8 @@ Cigarettes After Sex - Cigarettes After Sex (2017) [MP3|320 Kbps] <Indie Pop, Dr
 ```bash
 magnet:?xt=urn:btih:FDB2539EC68BEC9C7B813CCC1D7A5C07CDC1723B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +552,8 @@ VA - Nu Disco (2015) [MP3|320 кб/с]<House, Disco, Indie Dance, Nu-Disco>
 magnet:?xt=urn:btih:54B27A12AC5D269D0EB2A5957C660A3C8473BB24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +580,8 @@ VA - Workout (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:C4F9CEE17C28A393CB2FBAA69F975D67494C4618
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +610,8 @@ Montana - A Dance Fantasy Inspired By Close Encounters Of The Third Kind (1978) 
 magnet:?xt=urn:btih:DAD695A71762E419DABB7C38BDA2F1B24F8069D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +638,8 @@ P.L. - Space Dreams (1982) LP [MP3|320 Kbps] <Electronic, Electro, Disco>
 ```bash
 magnet:?xt=urn:btih:493028912025A3205E0E433D30BACCE28483EB63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +668,8 @@ Intonation - Passing The Planets (1982) Reissue LP , Electrecord, 1987 [MP3|320 
 magnet:?xt=urn:btih:60C046D56F766710E4F1326EC14D7001BA950F4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +696,8 @@ magnet:?xt=urn:btih:60C046D56F766710E4F1326EC14D7001BA950F4B
 ```bash
 magnet:?xt=urn:btih:B4DBCDE83470E11FC94881624E376CD70205060E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +726,8 @@ VA - Body Shaper Vol. 2 (2017) [MP3|320 Kbps] <Pop, Trance, Dance>
 magnet:?xt=urn:btih:3D7152EF2AAC333BC765DD98EA9DB143B89066D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,140 +755,7 @@ French Horn Rebellion - Next Jack Swing pt.I (2014) [MP3|320 кб/с]<Alternativ
 magnet:?xt=urn:btih:9460960E12EB88D7CE99262F46094CF7D3363087
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902899   (660224) от 29.05.2015
-
-HOLYCHILD - The Shape of Brat Pop To Come (2015) [OGG|522-579 кб/с]<Alternative Pop, Brat Pop, Electronic, Indietronica>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barbie Nation (03:20)
-02. Nasty Girls (03:15)
-03. Happy With Me (02:48)
-04. Tell Me How It Is (03:12)(   Читать дальше...   )Жанр: Alternative Pop, Brat Pop, Electronic, IndietronicaПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCDB4285CA4E76659322316D619FC76DC7FDA1B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225417   (660763) от 15.05.2018
-
-Syreeta - The Essential (2001) Compilation [FLAC|Lossless|image + .cue] <Soul, Disco, Funk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660763.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Spinnin & Spinnin'
-2	Your Kiss Is Sweet
-3	Harmour Love
-4	Come And Get This Stuff(   Читать дальше...   )Жанр: Soul, Disco, FunkПродолжительность: 01:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC0C0C612AE0771C1521E0FC67C8443D918608C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225340   (660765) от 15.05.2018
-
-Marian Hill - Unusual (2018) [MP3|320 Kbps] <Alternative Pop, Electronic, Minimalist>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Subtle Thing
-02. Differently
-03. All Night Long
-04. Don't Miss You(   Читать дальше...   )Жанр: Alternative Pop, Electronic, MinimalistПродолжительность: 00:36:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA44713CA9140FD7C664B05CDF69293382CD5481
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139248   (660901) от 01.06.2017
-
-Наргиз - Шум сердца (2016) [FLAC|Lossless|tracks + .cue] <Pop, Pop-Rock>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты - моя нежность (3:52)
- 02. Я не верю тебе (4:06)
- 03. Беги (3:52)
- 04. Пульс (4:03)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:00:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E681839C2040B654314463DD7780B94CE9EDE2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139266   (661099) от 01.06.2017
-
-VA - Summer Beach Party 3 (2017) [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever 80 - Carnaval De Paris (Club Mix) 05:21
-02. James Black Pitch - Pirate Life 06:15
-03. Olleo - Oblivium 06:12
-04. Forever 80 - Traces 05:19(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:696187696199B6DED897A30A433B1E90A1A8D853
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3AE5839C1C887DEED0C7B1BFFAB39E6EFB08F150
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:3AE5839C1C887DEED0C7B1BFFAB39E6EFB08F150
 magnet:?xt=urn:btih:4A5B81962EB8947830A00DBFEEDC647C7D153939
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:4A5B81962EB8947830A00DBFEEDC647C7D153939
 ```bash
 magnet:?xt=urn:btih:6F808F144B9EC39C95306FDC0603854D11094AFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:6F808F144B9EC39C95306FDC0603854D11094AFF
 ```bash
 magnet:?xt=urn:btih:B3623C69289AD0818ACC99D06BA0C50436F155E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:B3623C69289AD0818ACC99D06BA0C50436F155E8
 magnet:?xt=urn:btih:67DF0EE3062075A50D1416DE628EBF774A6699B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:67DF0EE3062075A50D1416DE628EBF774A6699B1
 ```bash
 magnet:?xt=urn:btih:25F446D9EFE3549D7508AE0ABEFFF1F8DBAA1228
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ magnet:?xt=urn:btih:25F446D9EFE3549D7508AE0ABEFFF1F8DBAA1228
 magnet:?xt=urn:btih:F8F4544CFA2D34A65AAEC3ECD9ED614CC90C9CF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ CD4 - The Best 12 Inch VersionsЖанр: Disco / PopПродолжительно
 magnet:?xt=urn:btih:B7B23993111CD18A8C01BC14A85233CA50F99B72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ Radiorama - 17 Albums +1 Bootleg+ 12  Compilations + 38 Singles (68 CD)  (1985 -
 ```bash
 magnet:?xt=urn:btih:2BF2D643E626E8F9D224D20CAB747BD1F348CB5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -255,6 +273,8 @@ magnet:?xt=urn:btih:2BF2D643E626E8F9D224D20CAB747BD1F348CB5F
 magnet:?xt=urn:btih:AC691A9A9DC1432B54B22BB66F4C88D877C14B5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +301,8 @@ magnet:?xt=urn:btih:AC691A9A9DC1432B54B22BB66F4C88D877C14B5C
 ```bash
 magnet:?xt=urn:btih:0BA252C834D77D883081FF00616877C1DBC51699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +331,8 @@ Sia - Reasonable Woman (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:DE4C36686BE932661C0C7E98C03820B3CD1370B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +359,8 @@ Dua Lipa - Radical Optimism (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:83E01EE3DEED478132B29628516CBF07A95F1BF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +389,8 @@ VA - Italo Disco Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 magnet:?xt=urn:btih:FFAF1A63BE7143979495B816ABB8EBBD7E1B9268
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +417,8 @@ Little Big - Lobster Popstar (2024) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:658FF12392EF07F4E68E242982190521E2BDBA95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +447,8 @@ Rod Stewart - The Best Of The Great American Songbook (2011) Japanese Edition, C
 magnet:?xt=urn:btih:760FC36355AC67D427DAAF03635645E28F6D8616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +475,8 @@ Various Artists - ZYX Italo Disco Remastered (2024) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:616E0D26AEBCEC940A20409F03C47F732C90FD49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +505,8 @@ Mildlife - Chorus (2024) [FLAC|Lossless|WEB-DL|tracks] <cosmic disco>
 magnet:?xt=urn:btih:B5AED6D5F69D874A62B10BFA18437E0735AB44C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +533,8 @@ VA - Summer Party - Beach Evergreens (2024) [MP3|320 Kbps] <Pop, Dance, Club, Ho
 ```bash
 magnet:?xt=urn:btih:C064C7BBECC23F5C79B5288175F5C4B265BAC250
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +563,8 @@ Mylene Farmer - Remix XL (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:C964BC65ED898FD78366A267B1D14C2C71F3FB03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +591,8 @@ Taylor Swift - The Tortured Poets Department: The Anthology (2024) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:480560598C47C100BDCC471AFB9A66DE644C5FB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +621,8 @@ Modern Heroes - Magic-The 1st Album (2024) [FLAC|Lossless|tracks] <Euro-Disco>
 magnet:?xt=urn:btih:C25125B59E3F144509D266DDF4EB48493318F17C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +649,8 @@ A La Carte - 6 Albums (1982-2016) Remastered, 2024, Coconut Music [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:CD6F6887303625804494475A165230FD558D700B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +679,8 @@ Arabesque - 40th Anniversary Best (2017) [MP3|320 Kbps] <Disco>
 magnet:?xt=urn:btih:4020B80D5634955543C9843963CCE93D9E8BED06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +708,8 @@ VA - We Love Italo Dance (vol. 2) (2014) [FLAC|Lossless|WEB-DL|tracks] <Italo Da
 magnet:?xt=urn:btih:F8293C706DAFA96F88FD7D5274159016711ACCC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -686,6 +736,8 @@ VA - 40 Italo Dance Tunes 2014 (2014) [FLAC|Lossless|WEB-DL|tracks] <Italo Dance
 ```bash
 magnet:?xt=urn:btih:224DC53B9CE1FF8574CFD3F20A5BBA101433A93C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

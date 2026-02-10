@@ -19,6 +19,8 @@ Age of Empires IV (4) (2021) [Ru/En] (13.0.4343.0/dlc) Repack seleZen [Anniversa
 magnet:?xt=urn:btih:713508954C3F3187B6787A00F8D5C2D7CAD8515E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ PROGRESS ORDERS (2025) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:F751596FA2970DDAB64649F1DCD3BF30619097C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Fate: Reawakened - это сборник из четырёх экшен-РПГ, 
 ```bash
 magnet:?xt=urn:btih:4603B9E589CD3E3ED09A21DBF9E7BBD6F65F48AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ LEGO City Undercover (2017) [Ru/Multi] (1.0) License GOG
 magnet:?xt=urn:btih:CB95982D6A28E2B85EC27DE3F62CBE7869B8AE17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Rogue Loops представляет собой экшен, посвященны
 ```bash
 magnet:?xt=urn:btih:F45F6422F16F4915EB0D9835A7AC0D467FA0E6C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Wigmund - изометрическое приключение, выполнен�
 magnet:?xt=urn:btih:44EF8A15CD35AECD11ED45E46345831B6EDFDD14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Field of Glory 2: Medieval - пошаговая стратегия, перено
 ```bash
 magnet:?xt=urn:btih:5B71A45A229AC32C547F53A48FF8A11E404EA299
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Driftmoon (2013) [En] (2.0.2) License GOG [Enhanced Edition]
 magnet:?xt=urn:btih:9A9909CA94281F11F9B01D5C4BA462D49A7262EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Knock on the Coffin Lid - ролевая игра с элементами стр
 ```bash
 magnet:?xt=urn:btih:5E1ACEE511B41606223F8CBB499F8AF651423F6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Middle-earth: Shadow of War / Средиземье: Тени войны (2017) [
 magnet:?xt=urn:btih:8A5041FC6ABC3A2B129958C9BB90747E70837F34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Middle-earth: Shadow of Mordor / Средиземье: Тени Мордора (
 ```bash
 magnet:?xt=urn:btih:76B4601062233F9A2C237D20A9F5D20238CE63C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Venus Vacation PRISM: DEAD OR ALIVE Xtreme (2025) [Multi] (1.02/dlc) Repack FitG
 magnet:?xt=urn:btih:1A2CE47B52A350B672538BDD235D2713A705C2AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Bleak Faith: Forsaken - ролевой экшн в духе соулс-сери�
 ```bash
 magnet:?xt=urn:btih:194AEC673F7A9DE9559961AC2EAD0EEC0F8B6E91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Front Mission 2: Remake - обновленная версия классичес
 magnet:?xt=urn:btih:A16BCF82D9CF7CC0A2DEC542CE88568EE4C1455E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Astrea - игра c уникальными особенностями: здес�
 ```bash
 magnet:?xt=urn:btih:DF63198E3494FDE76647983BC4ED91F80E7C6636
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ FRONT MISSION 2: Remake (2024) [Ru/Multi] (1.0.9) Repack Let'sРlay
 magnet:?xt=urn:btih:49D26C80E2F75E3772B92EC773CABF564A47E164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ Sacred Fire - психологическая ролевая игра. Вы бе�
 ```bash
 magnet:?xt=urn:btih:EBF2855AD4FA507C98BCE277EBBEA8BB6F128342
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ Monaco 2 (2025) [Ru/Multi] (1.0.0+18962) Repack FitGirl
 magnet:?xt=urn:btih:8E4073D1F66158D83F197F8407CB69C9ECDCACF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ SNOW BROS. 2 SPECIAL - это ремейк Snow Bro. 2, выпущенной TOA
 ```bash
 magnet:?xt=urn:btih:F8AA9A6CA5E3AA566BE06C42780641C0F8A47005
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Hollywood Animal (2025) [Ru/Multi] (0.8.7ea) Repack seleZen [Early Access]
 magnet:?xt=urn:btih:EBDF10374659846C39739C7CD931AC0185187822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ SNOW BROS. 2 SPECIAL - это ремейк Snow Bro. 2, выпущенной TOA
 ```bash
 magnet:?xt=urn:btih:678EC5E2639638D1B6E8C7A0927338800375221B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ SnowRunner (2020) [Ru/Multi] (35.0/dlc) Repack Other s [4-Year Anniversary Editi
 magnet:?xt=urn:btih:3E7338EB5E44D8B5003DB60E595E7AA1EE98F59F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ Monaco 2 (2025) [Ru/Multi] (1.0.0+18962) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:FB286CBE54663A906D7CC64D47325AD9F752D52C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ Dave the Diver - это казуальная приключенческая RPG 
 magnet:?xt=urn:btih:D05B1DB78FFD859F9535C8B790CF5A274E2DBF07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ DeTechtive 2112 (2025) [Ru/Multi] (1.1.2) Repack Let'sРlay
 magnet:?xt=urn:btih:D7B1A2FA4A451A478179B6CADA736DC382CC8CFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Rise of the Ronin - динамичная ролевая игра, в котор�
 ```bash
 magnet:?xt=urn:btih:22CC3BA77B466BA85E012E66D627C5E89E40DB31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

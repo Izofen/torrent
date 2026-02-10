@@ -1,3 +1,148 @@
+###  Публикация: 945008   (437897) от 08.10.2015
+
+Selena Gomez - Revival (2015) Japanese Edition [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revival
+02. Kill Em With Kindness
+03. Hands to Myself
+04. Same Old Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC2DACEF2F7D4700FB2B2FC402B8F0B25A3200BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570421   (438055) от 19.08.2022
+
+Dr. Alban - One Love (The Album) (1992) Vinyl-rip [OGG|485 Kbps] <Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction	1:45
+02. It's My Life	4:00
+03. Sing Hallelujah!
+04. Groove Machine 4	3:41(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FF81ACE4F521DA3116102AE8A23BFEB4D1A5D33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944957   (438058) от 08.10.2015
+
+Celine Dion - Loved Me Back To Life (2013) Deluxe Edition [FLAC|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loved Me Back to Life [3:51]
+02. Somebody Loves Somebody [3:42]
+03. Incredible (duet with Ne-Yo) [3:56]
+04. Water and a Flame [3:42](   Читать дальше...   )Жанр: PopПродолжительность: 01:00:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B909EC02CAC0384E9DC58EEEB24906C6F1AF1AD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944803   (438078) от 08.10.2015
+
+Шура Кузнецова - Молчи И Обнимай Меня Крепче (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вспоминай и вдыхай
+ 02. Льёт
+ 03. Не тонуть, а плыть
+ 04. Весь промок(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E17C883A73EBCAB30A0B8DC6FB1E419356EBA6EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570834   (438180) от 19.08.2022
+
+Radiorama - Desires And Vampires (1986) [OGG|485 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desire	3:50
+02. Flight To Fantasy	3:55
+03. Hey Hey	4:30
+04. Wacha Gonna Do	5:25(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7D394720EC8482B22F6BE6B54251D628E0F972E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571049   (438192) от 19.08.2022
 
 Sandra - The Long Play (1985) [OGG|485 Kbps] <Synth-pop>
@@ -21,6 +166,8 @@ Sandra - The Long Play (1985) [OGG|485 Kbps] <Synth-pop>
 ```bash
 magnet:?xt=urn:btih:9FFB3AD000826BA8145134B30FAF8DE49FF37AE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ VA - 90er Hits (2020) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:8DA898E1EB21148624CF4457B047C5641FCBA448
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +224,8 @@ Shania Twain - Greatest Hits (2014) [OGG|485 Kbps] <Pop, Folk, World, & Country>
 ```bash
 magnet:?xt=urn:btih:3EBA77D82B27B34876A7D30023AEDF9505EA6CB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +254,8 @@ Janet Jackson - Unbreakable (2015) [FLAC|tracks]<Pop, Soul, RnB>
 magnet:?xt=urn:btih:8462D4A8B680029E5F0F34524FE1D2BD51656518
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +282,8 @@ Londonbeat - Londonbeat (2019) [OGG|485 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:464FC43A51A5A9901BC54C0B5BCA1EBFAFA25F09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +312,8 @@ magnet:?xt=urn:btih:464FC43A51A5A9901BC54C0B5BCA1EBFAFA25F09
 magnet:?xt=urn:btih:5AADEB3CAACCF2B118A87685B671CB08C9BE1DE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +340,8 @@ magnet:?xt=urn:btih:5AADEB3CAACCF2B118A87685B671CB08C9BE1DE2
 ```bash
 magnet:?xt=urn:btih:43C8F9BA9904779396EC9C4D309CB5D41691D556
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +370,8 @@ magnet:?xt=urn:btih:43C8F9BA9904779396EC9C4D309CB5D41691D556
 magnet:?xt=urn:btih:58E6E35AC5B309912AE3AD0A90C8B5DD59B1E90B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +398,8 @@ Ray Conniff - Рэй Коннифф в Москве (1974, 2007) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:944A071AE85682CB1E3F4309ACB0D512415B6BD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +428,8 @@ Mike Mareen - 2 Albums, 4 Singles (1977-1988) HQ Vinyl Collection [MP3|320 Kbps]
 magnet:?xt=urn:btih:EB281A5118629ED9ACE590AE3FF03EF31312DE2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +456,8 @@ Ava Max - Heaven & Hell (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:28535DB503FC20E8DCA2CCDEB313F394C79C5872
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +486,8 @@ Modern Talking - Let's Talk About Love - The 2nd Album (1985) Vinyl-rip [OGG|485
 magnet:?xt=urn:btih:269EB3ACB4358A9E3BA7CF3A51BAC8EEBD24A220
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +514,8 @@ VA - Подарок любимой женщине (2002 - 2007) 3 Альбома
 ```bash
 magnet:?xt=urn:btih:27CB1780D890E8B6F1EF46997AB60118357074A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +544,8 @@ magnet:?xt=urn:btih:27CB1780D890E8B6F1EF46997AB60118357074A9
 magnet:?xt=urn:btih:D641A3C4979F9A0692561FDAC429EDDC2534CD0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +573,8 @@ Sault - Untitled (Rise) (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 magnet:?xt=urn:btih:E36FE4F853B134D5BBFED9824D7B4365DA85ED58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +601,8 @@ Mylène Farmer - Live 2019 (2019) [OGG|485 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:5BE67415C29DE65339F813349B541757916C8E8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +637,8 @@ VA - 80 Greatest Songs of All Times (2012) [MP3|320 кб/с]<Rock N Roll, Rock. 
 magnet:?xt=urn:btih:7B0A99543CE7CF206BCAB1767481423D4B73B9A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +672,8 @@ VA - I Love Disco! (2012) [MP3|320 кб/с]<Pop, Disco>
 magnet:?xt=urn:btih:1BA433A2BD130BF016D03B72E68026F9EA176B43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +700,8 @@ Cerrone - Afro (2016) [FLAC|Lossless|WEB-DL|tracks] <Disco>
 ```bash
 magnet:?xt=urn:btih:E9650FAEA95F9D41E01C5D61BDAB9309BA04C04B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +730,8 @@ Lady Lily - Get Out Of My Life (1987) [MP3|320 Kbps] <Disco,Europop>
 magnet:?xt=urn:btih:EBF58AD8ABEF8B8046E8D0C43B78AC437BF313CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,140 +759,7 @@ Explorer (by Tony Carey) - Explorer (1982) LP [MP3|320 Kbps] <Electronic, Disco,
 magnet:?xt=urn:btih:A9E208334E13681119CE631B8AFF02A2533AB5DB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322961   (442226) от 01.09.2019
-
-Raf - Raf (1984) LP [MP3|320 Kbps] <Electronic, Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Change Your Mind (5:28)
-02. Why In The World (3:54)
-03. She's A Criminal (4:59)
-04. Imagination Lover (4:16)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 00:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5166258A9DB8FE05EFB6950BA8E069B9713020F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248666   (442386) от 20.09.2018
-
-The Spotnicks - Never Trust Robots (1978) LP [MP3|320 Kbps] <Electronic, Synth-Pop, Space Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Trust Robots (4:04)
-02. Amazing Stories (3:31)
-03. Close Discussions Of The Hird Kind (3:11)
-04. A World Of Spotnics (4:12)(   Читать дальше...   )Жанр: Electronic, Synth-Pop, Space RockПродолжительность: 00:27:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9AB4F22A5F217C028A2E650A8D4970861005B75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944293   (442936) от 06.10.2015
-
-Julio Iglesias - Mexico (2015) [FLAC|Lossless|WEB-DL]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Usted
-02. Jurame
-03. Ella
-04. Fallaste Corazon(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:861F2DF667C5AC56F438D1692C26007C0212D2AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409641   (443018) от 18.09.2020
-
-NK (Настя Каменских) - Ecléctica (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443018.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Elefante
-2. A Huevo
-3. Yea Or Nay
-4. Película(   Читать дальше...   )Жанр: PopПродолжительность: 00:20:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41D222B508EC3783804577E88252C3B6D82E6715
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409643   (443148) от 18.09.2020
-
-Тина Кароль - Найти своих (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443148.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Найти своих
-2. Лодочка
-3. Тина и Евгений Филатов
-4. Небо(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51F44822B478F4414406D54BA37E0C6CBCA051B2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Cantata (2023) [En] (1.01/dlc) Scene Tenoke
 magnet:?xt=urn:btih:D715E02DFEEAB963D0D092B88C58EA87CBE0CB95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Trek to Yomi (2022) [Ru/Multi] (build 10443135) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:47A70BE383996C256E1C6F079AEB7D88758E4CCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Railroad Corporation (2019) [Ru/Multi] (1.1.13418/dlc) Scene Rune [Deluxe Editio
 magnet:?xt=urn:btih:959C29F50FAFB5B9373C17FBA619D9E3FB12E499
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Clover Day's Plus (2023) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:3FCFA0042E5ED5BE2E515677FE9CC2E438E8A87E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Labyrinthine — кооперативная хоррор-игра с одино�
 magnet:?xt=urn:btih:EC71D978090BF7CE08C2AF2B7C858B0C8178BE73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Zombie Shooting Star (2022) [Multi] (1.1) License GOG [16+]
 ```bash
 magnet:?xt=urn:btih:F822FDD9CBE85EC7C54EAD3CAB39F0DA8F8DAF35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Lynn, The Girl Drawn On Puzzles (2020) [Ru/Multi] (1.0.01) License GOG
 magnet:?xt=urn:btih:39D27614246564FEBA3656616ED6A15259ADFC8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Death in the Water 2 — это сочетание в себе напряжен�
 ```bash
 magnet:?xt=urn:btih:3E373E504FBBC7EDE33D46A418AF2822BD732846
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Turbo Overkill (2022) [Ru/Multi] (1.0) Repack DjDI
 magnet:?xt=urn:btih:7485716A8A967210D02A87E65461171A2752CE46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ M.E.R.C. Genesis (2023) [En] (1.0.0.00) Repack Other s
 ```bash
 magnet:?xt=urn:btih:DC1E26B8516DFAAB3FAA99AA9F142C0EA0BEB408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Master's Pupil - видеоигра с ручной раскраской, п
 magnet:?xt=urn:btih:94475EED4DF2EA86602122709098D90DCF2E39E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Zombie Shooting Star: ARCADE (2022) [Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:B6837806E8676EE8A969A4421B2B560AEC626E41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Verne: The Shape of Fantasy (2023) [Multi] (1.4) License GOG
 magnet:?xt=urn:btih:01C1D29C3F2DFF2922CF89A38F526B46D1956612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Turbo Overkill (2022) [Ru/Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:F2006C69A98F0F2E1D0A1FDA753513962C24AB80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Moving Out 2 — это уморительное продолжение всем
 magnet:?xt=urn:btih:D0AB42F04DBD2B9F449CDED32EC5AB51D24CA9A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Neon Noodles - Cyberpunk Kitchen Automation (2023) [Ru/Multi] (0.9.71) License G
 ```bash
 magnet:?xt=urn:btih:51FEC2CDCF0487D1ADD05B4EC08493155D5DB618
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Red Line - это сюжетная хоррор-игра с умеренными
 magnet:?xt=urn:btih:C7B429FA45A778B188A0EC7F56F0FC94606A076A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Sugar Sweet Temptation (2023) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A17D93C1DE12196C20DDE05F7AC560BB727A7929
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Nightmare Manor (2023) [Ru/Multi] (Build 11921472) Repack Other s
 magnet:?xt=urn:btih:29D1D9DFDB484734851009AE0F009EF0509C5475
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Ultimate Epic Battle Simulator 2 (UEBS 2) – приключенческий б�
 ```bash
 magnet:?xt=urn:btih:1F050F94CB78DC8FB7F3F6130B5E230BB07843BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Cat's Request (2023) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:E2A9088A66AAB55F313DAD8B5725F76635993143
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Greyhill Incident – проект, разработанный в жанре х�
 ```bash
 magnet:?xt=urn:btih:80D80D2C5FDEE8DD0A012643B190515F5E827078
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Mail Time переносит пользователей в мирный и сп�
 magnet:?xt=urn:btih:BC4B5BEF68FFAFF3D9464FD598F567BD37C87674
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Nightmare Manor (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:BA5E2041FFA6DBB6AB99B651833EEC15EEA396B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Yakuza: Like a Dragon рассказывает о парне по имени И�
 magnet:?xt=urn:btih:91BCE4783D0E9B3E2AF84A5BE8B104CA94419BCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Do Not Feed the Monkeys 2099 (2023) [Ru/Multi] (1.0.19) License GOG
 ```bash
 magnet:?xt=urn:btih:FA05EC4DCD8AB2489C8B3A29C3D853728B22FF45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

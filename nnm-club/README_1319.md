@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:24221994F7F534BD5F34D5997A2F34812F8E9FD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:24221994F7F534BD5F34D5997A2F34812F8E9FD1
 magnet:?xt=urn:btih:27F0529C572FDC559D5468774EBEBF8C3D639A59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Strange Investigations 4: Truth Will Out / Удивительные рассле
 ```bash
 magnet:?xt=urn:btih:21457761FCF322083EFDC31DCF7850497AEE14FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:21457761FCF322083EFDC31DCF7850497AEE14FF
 ```bash
 magnet:?xt=urn:btih:BDF9EAA6CCFD4E37F3E103629CDB68EDB41A267E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ CD1:
 magnet:?xt=urn:btih:33240C6BA2133A205C72C6F21D16137B57D0F90D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:33240C6BA2133A205C72C6F21D16137B57D0F90D
 ```bash
 magnet:?xt=urn:btih:3F0AEC552FB08D7AF79CE4927A5195259C4F6C8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:3F0AEC552FB08D7AF79CE4927A5195259C4F6C8F
 ```bash
 magnet:?xt=urn:btih:F7C83C0718650204EE5F5B7726131DD8688ED955
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ The Orb - Orboretum: The Orb Collection (2024) 2CD [FLAC|Lossless|tracks + .cue]
 magnet:?xt=urn:btih:9BC19571818A95FC189294C327A5E915F1F4882D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:9BC19571818A95FC189294C327A5E915F1F4882D
 ```bash
 magnet:?xt=urn:btih:2369457188B9DB60FC400B92642D3CF4C168803D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:2369457188B9DB60FC400B92642D3CF4C168803D
 ```bash
 magnet:?xt=urn:btih:0772E466AD78F4A5A557442C9404ADC7C87E9EB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:0772E466AD78F4A5A557442C9404ADC7C87E9EB3
 magnet:?xt=urn:btih:B96C0235BA502B50728B1E76FAF369B3E2700555
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:B96C0235BA502B50728B1E76FAF369B3E2700555
 ```bash
 magnet:?xt=urn:btih:0C1E8D53073B58B71C5C56A5052678933ED5B86C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:0C1E8D53073B58B71C5C56A5052678933ED5B86C
 magnet:?xt=urn:btih:60500111803BD7B3B91BF591539716E41F864B21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:60500111803BD7B3B91BF591539716E41F864B21
 ```bash
 magnet:?xt=urn:btih:7C55FBE792A5124D99F6718310BD2E9A40C185CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:7C55FBE792A5124D99F6718310BD2E9A40C185CD
 magnet:?xt=urn:btih:C4B9F658000DB79FC38CFF40FF71962C80E48BE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:C4B9F658000DB79FC38CFF40FF71962C80E48BE7
 ```bash
 magnet:?xt=urn:btih:2714781327DB153D82C9CCEEFA9775B0F95D56E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ Alphaville - I Die For You Today (2023) The Blank & Jones Mixes [FLAC|Lossless|W
 magnet:?xt=urn:btih:1E0713072041B681D78B0F86FBB059CB086776DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:1E0713072041B681D78B0F86FBB059CB086776DD
 magnet:?xt=urn:btih:5B85331474EE29EF3D54635150C483E2841545E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:5B85331474EE29EF3D54635150C483E2841545E0
 ```bash
 magnet:?xt=urn:btih:7713B77127779989C5C4C8F3777EAFE59D6CE978
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ VA - Lounge Philosophy Vol 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill
 magnet:?xt=urn:btih:8A1C073D196C5AC17BD5AD2F9FB85B1E973EF59A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ TSA - Soft Noir Jazz for Winter Evenings (2024) [MP3|320 Kbps] <Jazz, Electro, N
 ```bash
 magnet:?xt=urn:btih:7F9F92817D0EA4473E6C91A604E48FB38BF8F459
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:E88373500D6AADA4BEA9A35885B02861680B68C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:E88373500D6AADA4BEA9A35885B02861680B68C0
 magnet:?xt=urn:btih:6C290384D14CBF56EAB4AA40B90516E3467E5B99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:6C290384D14CBF56EAB4AA40B90516E3467E5B99
 ```bash
 magnet:?xt=urn:btih:7311A583A39D95CC410D3823807024866DF35B32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ magnet:?xt=urn:btih:7311A583A39D95CC410D3823807024866DF35B32
 magnet:?xt=urn:btih:968C9DF3C3C2839F8C2E48AE0D8B0FB57A6DC865
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:968C9DF3C3C2839F8C2E48AE0D8B0FB57A6DC865
 ```bash
 magnet:?xt=urn:btih:BE9BFEBC2AAD8821BD41FD8DACFACD48A65BC0C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

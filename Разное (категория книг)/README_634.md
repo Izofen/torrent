@@ -1,3 +1,29 @@
+###  Публикация: 993979   (890965) от 07.03.2016
+
+Марк Меерович, Лариса Шрагина | Технология творческого мышления (2016) [FB2, DOCX]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга — ответ на вызов времени о необходимости познать природу креативности и научить человека управлять своей интеллектуальной деятельностью. Развивая возможности знаменитой теории решения изобретательских задач (ТРИЗ), созданной Г.С.Альтшуллером, авторы разработали уникальную методику формирования творческого мышления как осознанного, целенаправленного и управляемого (   Читать дальше...   )Жанр: Психология, Креативность, Творчество, ТРИЗ, ТРИСФормат: FB2, DOCX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA897BC09A4605D90A73941C038E9F67806252A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 762614   (890988) от 03.03.2014
 
 Ривка Рабинович | Сквозь три строя (2013) [PDF]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:20B92C568F3CD2B31526E2931C259689F1B66455
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -52,6 +80,8 @@ magnet:?xt=urn:btih:20B92C568F3CD2B31526E2931C259689F1B66455
 magnet:?xt=urn:btih:C55815438F63F02419D63814BFB0D06B1F788869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -77,6 +107,8 @@ magnet:?xt=urn:btih:C55815438F63F02419D63814BFB0D06B1F788869
 magnet:?xt=urn:btih:76199CA6DC3DBF34B42341F9C28EA924A31F88B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +132,8 @@ magnet:?xt=urn:btih:76199CA6DC3DBF34B42341F9C28EA924A31F88B0
 ```bash
 magnet:?xt=urn:btih:40B705E04ECC27369ED7008A288FB5A3C7F8841B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +163,8 @@ magnet:?xt=urn:btih:40B705E04ECC27369ED7008A288FB5A3C7F8841B
 magnet:?xt=urn:btih:EE45FB5CA3CE9833E5D8FAA654D49AF81767EFFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +188,8 @@ magnet:?xt=urn:btih:EE45FB5CA3CE9833E5D8FAA654D49AF81767EFFD
 ```bash
 magnet:?xt=urn:btih:5B49DD6638E1A48E38FB20A2878A74EE5778134A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +215,8 @@ magnet:?xt=urn:btih:5B49DD6638E1A48E38FB20A2878A74EE5778134A
 magnet:?xt=urn:btih:6317C02C8CF87312A7BE8022B44D0D491BC7BCE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +240,8 @@ magnet:?xt=urn:btih:6317C02C8CF87312A7BE8022B44D0D491BC7BCE0
 ```bash
 magnet:?xt=urn:btih:56FC701E1A6B2F56EA00F4772F67BF718970E1B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +268,8 @@ magnet:?xt=urn:btih:56FC701E1A6B2F56EA00F4772F67BF718970E1B9
 magnet:?xt=urn:btih:61C21FC5A311314E22EB85E8E7D04A2925C89702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +293,8 @@ magnet:?xt=urn:btih:61C21FC5A311314E22EB85E8E7D04A2925C89702
 ```bash
 magnet:?xt=urn:btih:2144D4298A2596658B8D965F7E46A90D722F1C9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +322,8 @@ magnet:?xt=urn:btih:2144D4298A2596658B8D965F7E46A90D722F1C9A
 magnet:?xt=urn:btih:6D3D3CBFA9BDBE197C18F639F77DAB9EEC1D814D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +348,8 @@ magnet:?xt=urn:btih:6D3D3CBFA9BDBE197C18F639F77DAB9EEC1D814D
 magnet:?xt=urn:btih:16E9F912D5EE05EDAFF5FD0919A5FD4C4BBF1759
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +373,8 @@ magnet:?xt=urn:btih:16E9F912D5EE05EDAFF5FD0919A5FD4C4BBF1759
 ```bash
 magnet:?xt=urn:btih:83FAE254A884EAE1C769D09A69FB11F9F3A124C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +402,8 @@ magnet:?xt=urn:btih:83FAE254A884EAE1C769D09A69FB11F9F3A124C8
 magnet:?xt=urn:btih:C970F7D3285629110DA78BE1044FE8D7DC0EDC73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +427,8 @@ magnet:?xt=urn:btih:C970F7D3285629110DA78BE1044FE8D7DC0EDC73
 ```bash
 magnet:?xt=urn:btih:EBDBA91C0F3097E6AEDC27A1F70F530628B59292
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +454,8 @@ magnet:?xt=urn:btih:EBDBA91C0F3097E6AEDC27A1F70F530628B59292
 magnet:?xt=urn:btih:F1BDD7B74C3508E7A3CD301F9B5077C353808E90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +479,8 @@ magnet:?xt=urn:btih:F1BDD7B74C3508E7A3CD301F9B5077C353808E90
 ```bash
 magnet:?xt=urn:btih:C70D26B904E678FA89146699B2245C75308BD418
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +506,8 @@ magnet:?xt=urn:btih:C70D26B904E678FA89146699B2245C75308BD418
 magnet:?xt=urn:btih:C20DA4D498844DC1B9194A3328C6DCD50EE63448
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +531,8 @@ magnet:?xt=urn:btih:C20DA4D498844DC1B9194A3328C6DCD50EE63448
 ```bash
 magnet:?xt=urn:btih:426C13F99ACDBBD931611FCEB2BF58C1733480C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +558,8 @@ magnet:?xt=urn:btih:426C13F99ACDBBD931611FCEB2BF58C1733480C1
 magnet:?xt=urn:btih:897803BF83B281FD4834EF6F948C5824CA8F37F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +584,8 @@ magnet:?xt=urn:btih:897803BF83B281FD4834EF6F948C5824CA8F37F4
 ```bash
 magnet:?xt=urn:btih:FA171441FA6E5C72B75854C3411A12FCD059C3FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +613,8 @@ magnet:?xt=urn:btih:FA171441FA6E5C72B75854C3411A12FCD059C3FD
 magnet:?xt=urn:btih:C1BCD69E88E72A4411FEAE53F804340727AA247F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +640,8 @@ magnet:?xt=urn:btih:C1BCD69E88E72A4411FEAE53F804340727AA247F
 magnet:?xt=urn:btih:A7D313F651AFA01A2F5FD520339FD237E2989E3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +665,8 @@ magnet:?xt=urn:btih:A7D313F651AFA01A2F5FD520339FD237E2989E3B
 ```bash
 magnet:?xt=urn:btih:FB9373F451439FA916C2942FCF7F856AEB91608B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,30 +692,7 @@ magnet:?xt=urn:btih:FB9373F451439FA916C2942FCF7F856AEB91608B
 magnet:?xt=urn:btih:077989D94DF065865376C64463884A7D8781A093
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 296083   (892224) от 15.02.2011
-
-Это вы можете!!! [DJVU]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Это подборка раздела "Маленькие хитрости" из старых номеров Науки и жизни. Множество советов, собранных в журнале именно "по письмам читателей". В свое время многие вырезали эти страницы из журнала, собирая в одну папочку. В этом издании энтузиаст видно решился опубликовать свою коллекцию (не указав источник и годы издания...)
- Будет интересна, кто любит заниматься ремонтом, самоделками инструментов и приспособлений.Жанр: Ремонт, домоводствоФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2EDDAC1B1645B1E653B98337017693C3904048A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

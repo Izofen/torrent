@@ -20,6 +20,8 @@ Affinity Publisher 2 v.2.0.3 [Multi]
 magnet:?xt=urn:btih:C4A0C4A02ADF5C944333A24607D262028362CA78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - Pure Synthwave Vol. 3 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Synt
 ```bash
 magnet:?xt=urn:btih:8BC0D194718708BA06751CD1C12D6C3733F2390F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ VA - The Disco Dream (2021) [MP3|320 Kbps] <Disco, Dance, Funky House, Nu Disco>
 magnet:?xt=urn:btih:BB4AA85DC639A903F88773F18AD6DB6C7CCBDD6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ VA - Love Songs & Romantic Ballads (2020) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:3A5060B0793FE59F1C8B3104CF2A79F221C1A164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:3A5060B0793FE59F1C8B3104CF2A79F221C1A164
 magnet:?xt=urn:btih:176C30D0F985F05A922B6855660AF601803E6E01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:176C30D0F985F05A922B6855660AF601803E6E01
 ```bash
 magnet:?xt=urn:btih:509D1A5EF024345295D6DD3F4087F291C37E6BD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:509D1A5EF024345295D6DD3F4087F291C37E6BD2
 magnet:?xt=urn:btih:4ACFC86C13217EE0427BBB48D70D25B06B46577F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ AnyMP4 iPhone Unlocker — это профессиональный инстру�
 magnet:?xt=urn:btih:C9B6BB313A6CFCD281C5FBE2228CEE427FDD673A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:C9B6BB313A6CFCD281C5FBE2228CEE427FDD673A
 ```bash
 magnet:?xt=urn:btih:730E4F0B8984778DE5FBD358E6238ABD81860C78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ Paul McCartney - McCartney III (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:C9A0604F8F7A79D6517E6C8AE828978DABD95802
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ Reeder 5.2.2 [En]
 ```bash
 magnet:?xt=urn:btih:9D22BED0DB0D28AB34BB9D34E1517BD060B26280
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:9D22BED0DB0D28AB34BB9D34E1517BD060B26280
 ```bash
 magnet:?xt=urn:btih:3682AF52A21FAF249B5864112004BCE45CA12E0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ VA - ЕвроХит Топ 40 Europa Plus 03.11.2023 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:26A373BEE0B601E7F8950EDFFD93A851B68D557C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:26A373BEE0B601E7F8950EDFFD93A851B68D557C
 magnet:?xt=urn:btih:D93A94AFCDBDEB9DF856C0B19ADEED2C738BF0A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:D93A94AFCDBDEB9DF856C0B19ADEED2C738BF0A9
 ```bash
 magnet:?xt=urn:btih:DCC93041D50F999DC018E2DE5FCED8E9EE58E01F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:DCC93041D50F999DC018E2DE5FCED8E9EE58E01F
 magnet:?xt=urn:btih:F7F86DA51AF8192AF70EF3EEC194E1AA719A3365
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:F7F86DA51AF8192AF70EF3EEC194E1AA719A3365
 ```bash
 magnet:?xt=urn:btih:7621C7D61269A96B398BB104C623E50D0B36554A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:7621C7D61269A96B398BB104C623E50D0B36554A
 ```bash
 magnet:?xt=urn:btih:2EEB8A54E112B6B1601C0C1B03F98F9FD2FF3218
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ Sonum X - Metamorpher (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner>
 magnet:?xt=urn:btih:24D7816CDF46F7BC0BD2EB9123F5D75D0BCEEF5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:24D7816CDF46F7BC0BD2EB9123F5D75D0BCEEF5B
 magnet:?xt=urn:btih:29376A9686D9D66CFC9FA2433EB9431470983178
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:29376A9686D9D66CFC9FA2433EB9431470983178
 ```bash
 magnet:?xt=urn:btih:4E027FF68681C959248269D6D8197695AB2B224C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ Eagles - One Of These Nights (1975) Reissue, Remastered, 2022, Mobile Fidelity S
 magnet:?xt=urn:btih:7E59C717B9E9C5B08E6AB713DA1D06E749AF56AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ magnet:?xt=urn:btih:7E59C717B9E9C5B08E6AB713DA1D06E749AF56AE
 ```bash
 magnet:?xt=urn:btih:9B0A47512BF59065E31BF3A93583BD65E85FB3D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ Filthy Us (2023) [Multi] (1.0) License GOG [Complete Edition]
 magnet:?xt=urn:btih:657D964A06E57B00BE4BC92CD8D76169688AFD6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:657D964A06E57B00BE4BC92CD8D76169688AFD6F
 ```bash
 magnet:?xt=urn:btih:01EB657B0CBE6C995B25B5385BC4CCBBC82E9787
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +697,8 @@ magnet:?xt=urn:btih:01EB657B0CBE6C995B25B5385BC4CCBBC82E9787
 ```bash
 magnet:?xt=urn:btih:97FE248562289022DA04C3A54CCCEB9B2DA1905A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

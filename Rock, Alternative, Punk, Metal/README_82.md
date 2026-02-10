@@ -28,6 +28,8 @@
 magnet:?xt=urn:btih:485B0B3BA7E3D0822AEF47EF308D29317EA523B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ Cliff Lin - This Is War (2012) [MP3|192 кб/с]<Alternative rock/Industrial Met
 ```bash
 magnet:?xt=urn:btih:A31017EB44417F159C67C0B744C738E76CA0C7DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ Fort Royal - 4 Альбома (2000-2010) [MP3|128-320 кб/с]<Rock>
 magnet:?xt=urn:btih:D195E59A7E35BBE45B6923E8F25B1143200ED923
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +128,8 @@ magnet:?xt=urn:btih:D195E59A7E35BBE45B6923E8F25B1143200ED923
 ```bash
 magnet:?xt=urn:btih:E5A9D51268B6247D9063088B375751B9A6787DE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +164,8 @@ magnet:?xt=urn:btih:E5A9D51268B6247D9063088B375751B9A6787DE2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +198,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:BC33053F836F39B4773AFB688509ADC49CC2CE2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +234,8 @@ Lacuna Coil - Dark Adrenaline (2012) [MP3|320 кб/с]<Gothic Metal, Alternative
 magnet:?xt=urn:btih:B49D433BD7DDB66FE331BF6F5DEC5D32FF6036A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +263,8 @@ Sweet (The sweet) - 4 альбома (1974-1982) [FLAC|Lossless]<Hard Rock>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +299,8 @@ Alice Cooper - Halloween Night Of Fear (2011) [MP3|320 кб/с]<Hard Rock>
 magnet:?xt=urn:btih:4473A4D1124946D675BAF740CF84F0656B2A6946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +334,8 @@ Heaven's Gate (Heavens Gate) - 3 альбома (1989-1992) [FLAC|Lossless]<Heav
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +362,8 @@ Tiamat – Wildhoney (1994) Original Non-Remastered Pressing /1994, Century Medi
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +398,8 @@ ZZ Top - The Best Blues & Ballads (2001) [MP3|320 кб/с]<Rock, Blues>
 magnet:?xt=urn:btih:B72841F63A088F1D4A1E951B7E9655FF34664DD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +432,8 @@ Lee Small - Jamaica Inn (2012) [FLAC|lossless]<Hard Rock / Blues>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +468,8 @@ Lee Small - Jamaica Inn (2012) [FLAC|lossless]<Hard Rock / Blues>
 magnet:?xt=urn:btih:4BB524280073410C9018DCDF3021CFE04377BA82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +502,8 @@ Blue October - Any Man In America (2011) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:6D553BA33585B1F0950D14F6C4687D1E21184915
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +538,8 @@ Shocking Blue - The Very Best Of (1989) G.G.K. [APE|Lossless]<Rock, Nederbeat, P
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +563,8 @@ Shocking Blue - The Very Best Of (1989) G.G.K. [APE|Lossless]<Rock, Nederbeat, P
 ```bash
 magnet:?xt=urn:btih:7F630D9136CC911051A79E25C5A6991D791E95A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +599,8 @@ magnet:?xt=urn:btih:7F630D9136CC911051A79E25C5A6991D791E95A3
 magnet:?xt=urn:btih:AA3892D2884915820C170728E692D398AC8543C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +633,8 @@ magnet:?xt=urn:btih:AA3892D2884915820C170728E692D398AC8543C2
 ```bash
 magnet:?xt=urn:btih:1FC25AF8F42024013096CEF1BD82D6BE14B846F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +669,8 @@ George Strait - [41 альбом] Дискография (1981 - 2009) [MP3|~192
 magnet:?xt=urn:btih:C01CED82220A2F68D0E20566438CD391F9E6D9F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +704,8 @@ Soen - Cognitive (2012) [FLAC|Lossless]<Progressive Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -688,6 +730,8 @@ Marilyn Manson - No Reflection (Single) (2012) [MP3|320 кб/с]<Alternative, In
 ```bash
 magnet:?xt=urn:btih:5D36375F93D9F6A5AAB926D94D020CA66C437CD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -722,6 +766,8 @@ Soulfly - Enslaved (2012) [FLAC|Lossless]<Groove Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -755,6 +801,8 @@ Led Zeppelin - The Best Ballads (2002) [MP3|320 кб/с]<Classic Rock | Blues Ro
 magnet:?xt=urn:btih:D3B47D3AD4ED2ED6A62A390A6C53A65A3470BEB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -781,6 +829,8 @@ Judas Priest - 16 Альбомов (1974-90) 2011 Remastered / 2012, Sony Music,
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -813,6 +863,8 @@ Manny Charlton Band (ex-Nazareth) - Stonkin' (2000) [FLAC|Lossless]<Classic Rock
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

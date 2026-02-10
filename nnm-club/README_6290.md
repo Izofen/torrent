@@ -19,6 +19,8 @@ Unfiltered Audio - Instant Delay 1.3.0 VST, VST3, AAX RePack by TeamCubeadooby [
 magnet:?xt=urn:btih:AD2E7064D05373EDEFE6661C6793CC4B7FAE9274
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:AD2E7064D05373EDEFE6661C6793CC4B7FAE9274
 ```bash
 magnet:?xt=urn:btih:05444348A1CCF87A6FFE586A9D05D57E4060E700
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:05444348A1CCF87A6FFE586A9D05D57E4060E700
 magnet:?xt=urn:btih:BB1DEC75CF0C5B770F6FF540A1BF50A0FA98231D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:BB1DEC75CF0C5B770F6FF540A1BF50A0FA98231D
 ```bash
 magnet:?xt=urn:btih:33315890BA828B9F895B6E7AF795CF47A30AA1E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Duolingo: изучай языки 5.118.2 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:121A5E807FF0C90D12C356D856DF7DB60B9A367B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:121A5E807FF0C90D12C356D856DF7DB60B9A367B
 ```bash
 magnet:?xt=urn:btih:C0EB8E1B65EB10B9C858E8AF9E3C54254D13824F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Meldis - Цветок омелы (2010) [FLAC|Lossless|image + .cue] <Folk, Celt
 magnet:?xt=urn:btih:97367E6E64C47119D6D4680DF362A5C95992BE7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:97367E6E64C47119D6D4680DF362A5C95992BE7C
 ```bash
 magnet:?xt=urn:btih:655226642B26A061E6F93BD82AC5713B993881F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:655226642B26A061E6F93BD82AC5713B993881F8
 magnet:?xt=urn:btih:CF475D06FFCB1117A9AC81032AE308B9A7FC08CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Moon Reader - проект-читалка которая весьма извес
 ```bash
 magnet:?xt=urn:btih:AD1413DA18AF15FDA158DAA79A0C46376D8E35F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Vevaki (Vévaki) - Fórnspeki (2022) [FLAC|Lossless|WEB-DL|tracks] <Neo Folk>
 magnet:?xt=urn:btih:5968EC2AA145B589BF407FE0C37E75F50BB45071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ UFO - Hollywood '76 (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock
 magnet:?xt=urn:btih:6CEAD9EF5A8ADA7B9307F0BC55E4C5DD5DC1ACC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:6CEAD9EF5A8ADA7B9307F0BC55E4C5DD5DC1ACC0
 ```bash
 magnet:?xt=urn:btih:7E4B41C3E39F96E2EF920117B6C25C858B649C36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:BAA3C137AE0CA0B542DD5285B9C36A11036CD7AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:BAA3C137AE0CA0B542DD5285B9C36A11036CD7AF
 magnet:?xt=urn:btih:8212EBB52232DC71BD8AC771546D8AB3CDA4C55A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:8212EBB52232DC71BD8AC771546D8AB3CDA4C55A
 ```bash
 magnet:?xt=urn:btih:F79D19ED4F7DC83DD3F2800671C686C75A3D4926
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ UFO - Live In Vienna 1998 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock>
 magnet:?xt=urn:btih:471DCF8A0126153BCDBE285FC26A36754ADAE926
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:471DCF8A0126153BCDBE285FC26A36754ADAE926
 ```bash
 magnet:?xt=urn:btih:D517653A295C8233B793522FA068B490B21D6401
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ Patrik Jansson - Game Changer (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock
 magnet:?xt=urn:btih:295F4951864C358FD5753B660D6D552FA091C39F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:DCD08DD7F5EFDCB0868D763646B4B895D4B46D4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:DCD08DD7F5EFDCB0868D763646B4B895D4B46D4A
 magnet:?xt=urn:btih:4651BF5F6294BCB0D994C13E141F6E8B24557E41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ magnet:?xt=urn:btih:4651BF5F6294BCB0D994C13E141F6E8B24557E41
 ```bash
 magnet:?xt=urn:btih:11A0C5E69952130D58EC43CCE39FB27F8C97FA76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:11A0C5E69952130D58EC43CCE39FB27F8C97FA76
 magnet:?xt=urn:btih:731B8012F21D850B86410C7D35C71E2B50B59E30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:731B8012F21D850B86410C7D35C71E2B50B59E30
 magnet:?xt=urn:btih:5256B193B71E61D8F71F7727171C203C03D05E27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ magnet:?xt=urn:btih:5256B193B71E61D8F71F7727171C203C03D05E27
 ```bash
 magnet:?xt=urn:btih:FCAECFDF1473B5D817673E4DE70857897DB0BA72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:FCAECFDF1473B5D817673E4DE70857897DB0BA72
 ```bash
 magnet:?xt=urn:btih:C33754520C6091A16CCE1C022013820F8799CD6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

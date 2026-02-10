@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D21A225516658499D0451F40067FA5BCFC0A57AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Charade - Charade I & II (2004) Special Edition, 2CD [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:FC6C4317CBF9FB1E5C679F9A73539A0CEADC935E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:FC6C4317CBF9FB1E5C679F9A73539A0CEADC935E
 ```bash
 magnet:?xt=urn:btih:AC616EAC33B2068230FA1E37D9DC63B238743DAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ John S. Weekley - Dread Templar (Original Game Soundtrack) (2023) [FLAC|Lossless
 magnet:?xt=urn:btih:00182F68AB71EC7C5D988B2946E9A49059484C97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:00182F68AB71EC7C5D988B2946E9A49059484C97
 ```bash
 magnet:?xt=urn:btih:A12876D013E6FF7FFF38735C36060B76E0B5ABC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:A12876D013E6FF7FFF38735C36060B76E0B5ABC3
 magnet:?xt=urn:btih:23C49718ACB04F75E86A08D84BFD4EF09DAC8FB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Chasys Draw IES — бесплатная программа, представл�
 ```bash
 magnet:?xt=urn:btih:9512DB436EA9496C3E6A86E69553E34235CAD3AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ Takunomi. | Алкогольные посиделки [2018, TV, 12] BDRip 720p 
 magnet:?xt=urn:btih:C63FC307A69221155D0356B1CD65F05B295A74C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Smartpoly | Unreal Engine 5 Multiplayer Steam Survival Game Course (2022) PCRec 
 ```bash
 magnet:?xt=urn:btih:0C8951F3440707EC9F4C6B862D4018981F74914A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Sabbra Cadabra - Kissmoker (A Stoner Rock Tribute To Kiss) (2023) [MP3|320 Kbps]
 magnet:?xt=urn:btih:B8D868E4BCB4B0D8683F1B49C71E14C04369F9E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ Text Edit Plus — это простой, но мощный текстовый �
 magnet:?xt=urn:btih:B06B759D1A1A3670B9B4F2DAC6B28FF8FA7C73A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ Instinct рассказывает альтернативную историю с
 ```bash
 magnet:?xt=urn:btih:C356233F224E32901B022AFDC261AB5E6C5C4CFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:C356233F224E32901B022AFDC261AB5E6C5C4CFB
 ```bash
 magnet:?xt=urn:btih:33EBC63D261526CAA7F6E6EBE19BF3FE21461F86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:33EBC63D261526CAA7F6E6EBE19BF3FE21461F86
 magnet:?xt=urn:btih:3C65CACBB4FE824EE786715BCADF5B63387EB3A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:3C65CACBB4FE824EE786715BCADF5B63387EB3A9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:3C65CACBB4FE824EE786715BCADF5B63387EB3A9
 magnet:?xt=urn:btih:726A629BE068F8FDEC7849A7A8BE7635F78C747F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:726A629BE068F8FDEC7849A7A8BE7635F78C747F
 ```bash
 magnet:?xt=urn:btih:45FF5A1857245FF4747B456A892282D177F573E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ LP Giobbi - Light Places (2023) Deluxe Edition [FLAC 24/44.1/48|Lossless|WEB-DL|
 magnet:?xt=urn:btih:55DE6AB75D5484F9E170A266DF6F28C2554A0D93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:55DE6AB75D5484F9E170A266DF6F28C2554A0D93
 magnet:?xt=urn:btih:1862E0CCDACF3891D6107F246BACD8D964560076
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:1862E0CCDACF3891D6107F246BACD8D964560076
 ```bash
 magnet:?xt=urn:btih:B93E1B1C46D240410FA493AE8FECF0127AC20276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:B93E1B1C46D240410FA493AE8FECF0127AC20276
 magnet:?xt=urn:btih:0D1043EE82038B50A9364935830FC70FBADCDA0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:0D1043EE82038B50A9364935830FC70FBADCDA0C
 magnet:?xt=urn:btih:1FEE34C4B48FC0A84F3407AA34D5B87FC0F59038
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ Relayer Advanced (2022) [Multi] (01.10.04/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:4C99AF2D8B7EAFE20AAB9A4F6C434EE8198BB2D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +643,8 @@ VA - Romantic Melodies - Moonlight Sax (2004) [APE|Lossless|image + .cue] <Instr
 magnet:?xt=urn:btih:0979A8896E5A669C7496AB4043B68A27D897CFE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ Autograf - Affirmations (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Pro
 magnet:?xt=urn:btih:A54AB74722904F698D8859E45DFEB3D2A8592965
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ magnet:?xt=urn:btih:A54AB74722904F698D8859E45DFEB3D2A8592965
 ```bash
 magnet:?xt=urn:btih:7D3D152CFB43A966398D42D29B979AD1AE9E75C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

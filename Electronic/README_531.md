@@ -22,6 +22,8 @@ CD1:
 magnet:?xt=urn:btih:F4CE1C6C0793730D4420A228A753ED9D079D8A4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ The Midnight - Heroes (2022) [FLAC|Lossless|tracks + .cue] <Synthwave, Synth-pop
 ```bash
 magnet:?xt=urn:btih:C82361E1BCE379568E6077454F30F844CAA94E30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:C82361E1BCE379568E6077454F30F844CAA94E30
 magnet:?xt=urn:btih:8E49F5FF72026723FD4B703C5947609F06F0F156
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:8E49F5FF72026723FD4B703C5947609F06F0F156
 ```bash
 magnet:?xt=urn:btih:85F2D23EE5E6E1510AA28F9384A7C8C034E4650A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Chill & Relax: Chillout Your Mind (2023) [FLAC|Lossless|tracks] <Balearic, 
 magnet:?xt=urn:btih:EF9E632336071F93C3A24B47AA24AE26F244D3F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Orax - Crash (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
 ```bash
 magnet:?xt=urn:btih:F20F2D94E8DA739DC4643EC0F9682A3A2B4EE152
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Bob Moses - Коллекция [3 Albums] (2020-2021) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:BA58809A62D47C1ADAEEB771283554ABD47AA506
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ AzizRush - Under Pressure (2023) Debut [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:50B43F585ABEC5BBA7462A7D280B9B715DBD9471
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Hoten - 29 Summers Album Remixes (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 magnet:?xt=urn:btih:819ADFB00F024B7D4DBA3DA18B282FCB095AAD81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Monflame - Voyager (2023) [MP3|320 Kbps] <Synthwave, Retrowave>
 ```bash
 magnet:?xt=urn:btih:1019337513F570F61CF9F8EF456796DDA52E2039
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Tyconic - Coastline Nights (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retr
 magnet:?xt=urn:btih:EBB5D080BE7E1381ACBF322F461EB8A9976A3BC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Sahara Universe 2022 (2023) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:69574296298B11779FAD5EDEA84914F1A65BEE32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Vocal Trance 2021 (2020) [FLAC|Lossless|tracks] <Trance, Vocal Trance>
 magnet:?xt=urn:btih:7660F9D7C3EAE1828DA7D97219AA3BBE96C5187D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Cozy Weekend: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Bale
 ```bash
 magnet:?xt=urn:btih:58329C12FF6A1EB988002148E1B20CCADB4CB620
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Black Hole Recordings - Best Of (2020) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:24F6BBA96ABE1421F58945BE80ABDF9334156002
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Best Of FSOE (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:034E25F8B588C7AC42BAB627447FBEC0D669208E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Danny Oh Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Uplift
 magnet:?xt=urn:btih:51A99DEDF279092FD70B7ABBE3A11809782FB721
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - Henry Moe Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Uplif
 ```bash
 magnet:?xt=urn:btih:48AA5DBC67F42A61B9882D860DFA4963F9549369
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - Best Of FSOE Parallels (2020) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:494066399465827E17D7EA4F3D017531FCE350BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - Best Of FSOE Fables (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:63F4154030AE4FE5F53A53C21707FDFA175E528A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ VA - DreamLife Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Uplif
 magnet:?xt=urn:btih:04C6EA971A636EB514A7ABF61C8C0BB57EB17A29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +631,8 @@ VA - Kiyoi & Eky Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Upl
 magnet:?xt=urn:btih:05893712AEBD775E02F03D4DE8CE8A3CB2348281
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +657,8 @@ VA - Han Beukers Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Upl
 ```bash
 magnet:?xt=urn:btih:F60320A4F13CF9C4C2321A61F6200DCB779E6503
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +687,8 @@ VA - Erotic Chillout Education (2021) Explicit [MP3|320 Kbps] <Chillout, Lounge,
 magnet:?xt=urn:btih:32E005B5D001D4C75DC9E69ADAE667F3242BA66F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +716,8 @@ VA - A State of Trance: Year Mix (Mixed by Armin van Buuren) (2020) [MP3|320 Kbp
 magnet:?xt=urn:btih:DB63641525407D0998E8A3DB7DA4E115A07C03E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ Starsplash - Back By Popular Demand (2004) [FLAC|Lossless|image + .cue] <Trance,
 ```bash
 magnet:?xt=urn:btih:123CA1AD664E700C0924DB8EA620A7D9EFE84549
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

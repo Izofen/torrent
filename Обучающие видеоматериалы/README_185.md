@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:4124BD2DB61CD064AD133C7C05744E6847BFD7E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Front-end Science | БЭМ-платформа (2016) PCRec
 ```bash
 magnet:?xt=urn:btih:A8815117E6FEF0DF90524E991D2B6FEFF814D8D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:A8815117E6FEF0DF90524E991D2B6FEFF814D8D3
 magnet:?xt=urn:btih:D6D9A2BC0081B02C29C65519C2F448321F6998F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ magnet:?xt=urn:btih:D6D9A2BC0081B02C29C65519C2F448321F6998F2
 magnet:?xt=urn:btih:A22B6DA5FE33D2498D0074D8C1FB964738B144F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:A22B6DA5FE33D2498D0074D8C1FB964738B144F4
 ```bash
 magnet:?xt=urn:btih:CC99AFD8B0F821C7C115D2C2AD206E1A8A666DED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +162,8 @@ Hollywood Camera Works: Visual Effects For Directors - эти видео-уро�
 magnet:?xt=urn:btih:956C0EAE59D4312805148AC69ACD634D307C1B22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:956C0EAE59D4312805148AC69ACD634D307C1B22
 magnet:?xt=urn:btih:56E9BE87FDA7FCE190FAFCE89E313259D7707F55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ Skillbox | Excel c 0 до PRO (2015-2016) PCRec
 ```bash
 magnet:?xt=urn:btih:E5BAA50CCC87F88B090D65DCB854281654F6EF5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ ProfIT | Redis - основы и практическое использован
 magnet:?xt=urn:btih:F45ADD364031415F783A5D827E892A66255495FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ Git – распределенная система управления вер�
 ```bash
 magnet:?xt=urn:btih:5AD584595369BC409BC642A0DE4D20F66204008F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ BeMax Fitness | BodyMax (2017) DVDRip [H.264] [EN]
 magnet:?xt=urn:btih:809AD665EDCF68E7C827068FB1E0A866D2DFF88F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ GeekUniversity | Четвертая четверть. Разработка Highl
 magnet:?xt=urn:btih:0FC8BB015D11CF7E4E91ADA6AB96579F498DA861
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ GeekUniversity | Третья четверть. Социальная сеть и
 ```bash
 magnet:?xt=urn:btih:F75C2647BED4EE9390FA273AD511FDE83850257C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:F75C2647BED4EE9390FA273AD511FDE83850257C
 magnet:?xt=urn:btih:DE3978E4A6D4359D2E4832D78B6C4C2F4C5A8C2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ OTUS | Подготовительный курс «Разработчик Java»
 magnet:?xt=urn:btih:73C9234C297457BA8656A5E02C950820D2381ACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ JavaBegin | Hibernate (2017) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:E500A2554638D940EFB8E7FD21B37A6F6471E1B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:E500A2554638D940EFB8E7FD21B37A6F6471E1B6
 magnet:?xt=urn:btih:3CE16D9D61C1186AAE44BBFCC33977F58B89C708
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:3CE16D9D61C1186AAE44BBFCC33977F58B89C708
 magnet:?xt=urn:btih:859305F9E0DDEDE01C6181D3E0E11114EA30962C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ Lynda.com | Working with Data on the Web (2013) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:A0153CC605CDF892A6A2BEBCF9C7A5BE144AE642
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ Python - это отличный динамический язык для веб
 magnet:?xt=urn:btih:EDCD93E04ED61CE18D9C7B2AC57B6CA3C437A8E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ Hand-paint — это почти всегда стилизация. А стил�
 magnet:?xt=urn:btih:05A44ACACFD636810EDAFCB771C416A5ADD70AD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ Motion Design School, Ihor Karas | Logo Animation in After Effects (2020) WEB-DL
 ```bash
 magnet:?xt=urn:btih:35F80C32C5C356050EB93B9FA49B46BDBA9795AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:35F80C32C5C356050EB93B9FA49B46BDBA9795AA
 magnet:?xt=urn:btih:E32ABB1B0EA0E38E2817F9AC2D7B7C48C21B1921
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ Geekbrains | PHP. Быстрый старт Личный блог на PHP с н
 magnet:?xt=urn:btih:1D88C8145BD7C994680FE1EAE0D641D482092B37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ Lynda.com | WordPress (2010-2014) [PCRec] [EN]
 ```bash
 magnet:?xt=urn:btih:1818DD97B37D26EC574073EE72B3FDAD767499FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:1818DD97B37D26EC574073EE72B3FDAD767499FE
 ```bash
 magnet:?xt=urn:btih:C7DE5C98CA6724A9EDAE900E63F5BA6E78F9FF6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

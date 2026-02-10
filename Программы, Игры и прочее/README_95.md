@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:E7469DE856C3810E77B8DFFC5369B35019A9DE3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:8D750A36AC6C9044A48D3B529EA022724A3432CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ WPS Office - очень полезное, офисное приложение д
 magnet:?xt=urn:btih:6610F916375D73409828EB7F005EB812FBA82044
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:6610F916375D73409828EB7F005EB812FBA82044
 ```bash
 magnet:?xt=urn:btih:8A40C2EDC42821484AC24DF3AB5A4EA5BC264010
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Words of Wonders: Игра в слова v5.3.5 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:46BEE0A5C1CCE5920551424568B7D3BEE822881F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Photo Studio — не просто приложение для редактир�
 magnet:?xt=urn:btih:C9329F7EB6EB248DACCA5D96D8D7050C66CB1F98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Background Video Recorder Pro — это приложение, которое п
 ```bash
 magnet:?xt=urn:btih:FBF21113163878C6A10EDDCBAF6D42C185C96797
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Beat Find / Распознавание музыки v1.6.61 Mod by NURIK [Ru/Mul
 magnet:?xt=urn:btih:D986AABD5C819604FEBFCF277B9821F7304271D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ RAR компании RARLAB способен создавать RAR и ZIP и р
 ```bash
 magnet:?xt=urn:btih:B47A89BB2395ABE32BB42AA1C552C3FB277B9D26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Lexilize FlashCards v4.8.5 [Ru/Multi]
 magnet:?xt=urn:btih:CBD99B0CBEB104712F69A15B79670DDFB0C15694
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:CBD99B0CBEB104712F69A15B79670DDFB0C15694
 ```bash
 magnet:?xt=urn:btih:BAC7A161709901BDF3F647919A9A44E7C76BFD45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Vanced — это модифицированная версия YT, котора
 magnet:?xt=urn:btih:872B2A2E6D3B0A18B92EABF9E01E3C4675FBB210
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Mary’s recipes: рецепты, меню v6.7.0 Mod by Alex.Strannik [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:C127CF5B4B379B92DCB78E64F5A4A29FC21D623F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Bria Mobile: VoIP Softphone v6.21.3 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:EE933F157DFE76C7D1625743396F61B7224708A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ PhotoDirector v20.7.1 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0B7F4D2CC43A03DF96E4D5EF791E1CE25F879077
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ FBReader Premium v3.8.21 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:9D8B930FE6A8AF2595A27AC59CA716298668095E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:B432307916CC9B5BF776A80BF72ED0E062076FE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ All File Reader and Viewer v55 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:C2CEF75F12DAEAEC36E931FD845FF9144D042E5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ MIUI Hidden Settings Activity v1.6.11 Mod by TryRoom [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7AB3B0E2993E12B58BC5363E6D01A22B395070BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:7AB3B0E2993E12B58BC5363E6D01A22B395070BF
 magnet:?xt=urn:btih:563974ABD368C3338EBE4FCFBAA1BB90ABDF9580
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ PictureThis - Plant Identification v5.16.0 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D5E27B6C1EAB27AC64F321B8784ED99C5DB35F38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:D5E27B6C1EAB27AC64F321B8784ED99C5DB35F38
 magnet:?xt=urn:btih:7073E96D944424304437AA8DA18458C3C747E09B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ Photo Studio — не просто приложение для редактир�
 ```bash
 magnet:?xt=urn:btih:CB11FCBA50B25E6402401BBDFD3F18DE19E6932C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ magnet:?xt=urn:btih:CB11FCBA50B25E6402401BBDFD3F18DE19E6932C
 magnet:?xt=urn:btih:C48E1651A38DEBD72A94185A622F83EA90C616EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ magnet:?xt=urn:btih:C48E1651A38DEBD72A94185A622F83EA90C616EC
 ```bash
 magnet:?xt=urn:btih:2F9DDECD27B885CF90C14C0CE51AE623BA59D8BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +671,8 @@ Ocean Match / Рыбки: Три в ряд v3.3.0 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0C2293F0B7C42C96220A0CB85887BB3474298B56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

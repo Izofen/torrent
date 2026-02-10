@@ -1,3 +1,29 @@
+###  Публикация: 943265   (449120) от 03.10.2015
+
+Маг Радимир (А. А. Базарнов) | Учебное пособие для адептов белой и черной магии (2013) [PDF]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449120.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Учебное пособие для адептов белой и черной магии" - настольная книга для неофитов и профессионалов оккультного ремесла, которая содержит в себе ценные обряды и ритуалы (например: вернуть утраченное здоровье, привлечь удачу, наказать обидчика), авторские молитвы и обереги, которые будут полезны в самых сложных ситуациях. Материал представлен следующим образом: (   Читать дальше...   )Жанр: Практическая магияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E92069D74FE5D5ABC07CFAEDFD63C4FAFB961E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943114   (449123) от 03.10.2015
 
 Джо Джирард, Роберт Шук | Как заключить любую сделку (2015) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:5F86ABA29CFBE492015B8B6E082CAB7BFDDE6DC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:5F86ABA29CFBE492015B8B6E082CAB7BFDDE6DC7
 magnet:?xt=urn:btih:685A339C4EB4A4F5B262029A65A2BD6DC7B76020
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:685A339C4EB4A4F5B262029A65A2BD6DC7B76020
 ```bash
 magnet:?xt=urn:btih:2F13162F5FC35668B50A7424D5A1BDB14A749095
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:2F13162F5FC35668B50A7424D5A1BDB14A749095
 magnet:?xt=urn:btih:4697FD92838FBBCC9554BA3B747CD268278319DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:4697FD92838FBBCC9554BA3B747CD268278319DA
 ```bash
 magnet:?xt=urn:btih:985EC917A94172A787DF09A33046BB0FEDB0B36E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:985EC917A94172A787DF09A33046BB0FEDB0B36E
 magnet:?xt=urn:btih:8B865AE3C0E079E275B794B317152EDEFB648E11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:8B865AE3C0E079E275B794B317152EDEFB648E11
 magnet:?xt=urn:btih:6A633311879444EEF8D65209ED617B472262DCF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:6A633311879444EEF8D65209ED617B472262DCF9
 ```bash
 magnet:?xt=urn:btih:DA23525ADC97AAEE6953CAE3D69ACC8C5FA7382B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:DA23525ADC97AAEE6953CAE3D69ACC8C5FA7382B
 magnet:?xt=urn:btih:E6E29704AE762A5BB099E014F4100AA5A3EA6552
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:E6E29704AE762A5BB099E014F4100AA5A3EA6552
 ```bash
 magnet:?xt=urn:btih:95A78FB11F4CDF07377BB7394D0E0F51169A1CFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:95A78FB11F4CDF07377BB7394D0E0F51169A1CFA
 magnet:?xt=urn:btih:86E28E7DFE53C7BC41381BCC7D1752F0C947E584
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:86E28E7DFE53C7BC41381BCC7D1752F0C947E584
 ```bash
 magnet:?xt=urn:btih:5D89A5C4F7FC9927E4404CB9EA54B6F7548E2BCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:5D89A5C4F7FC9927E4404CB9EA54B6F7548E2BCA
 magnet:?xt=urn:btih:D79EE12DB86D1CA6DA6E1A7C6B4E4F49EE8F6D51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:D79EE12DB86D1CA6DA6E1A7C6B4E4F49EE8F6D51
 ```bash
 magnet:?xt=urn:btih:5103D3429733D4716A073F63528D26F09B8F3CEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:5103D3429733D4716A073F63528D26F09B8F3CEB
 ```bash
 magnet:?xt=urn:btih:2BDF2D16197A85954257252E8A50C8E2F222AFD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:2BDF2D16197A85954257252E8A50C8E2F222AFD5
 magnet:?xt=urn:btih:020381A384F6329931C04B3CBE91B9AD208DF062
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:020381A384F6329931C04B3CBE91B9AD208DF062
 magnet:?xt=urn:btih:7B37A3E91176917131382B9DD1BE525FB63C8EE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:7B37A3E91176917131382B9DD1BE525FB63C8EE4
 ```bash
 magnet:?xt=urn:btih:A955F42B689C7EAAFE463F7F9BC4342216936C13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +524,8 @@ magnet:?xt=urn:btih:A955F42B689C7EAAFE463F7F9BC4342216936C13
 magnet:?xt=urn:btih:F825DAF12879A6BCB4E0E710A1958B3939247168
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:F825DAF12879A6BCB4E0E710A1958B3939247168
 ```bash
 magnet:?xt=urn:btih:6EAF40121BB6C88CEE9811AA82FA9D126AD13EDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:6EAF40121BB6C88CEE9811AA82FA9D126AD13EDA
 magnet:?xt=urn:btih:5F2ECFF46D700B4720936B1613FFD70644198E01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:5F2ECFF46D700B4720936B1613FFD70644198E01
 ```bash
 magnet:?xt=urn:btih:3E1B18DF6DCFA9EA5B9F67D286E3E5C673F0BAE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +634,8 @@ magnet:?xt=urn:btih:3E1B18DF6DCFA9EA5B9F67D286E3E5C673F0BAE5
 magnet:?xt=urn:btih:3315BB3D35F4BB4A4FA0CEB7C8C8D20A7BCD9E6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +659,8 @@ magnet:?xt=urn:btih:3315BB3D35F4BB4A4FA0CEB7C8C8D20A7BCD9E6D
 ```bash
 magnet:?xt=urn:btih:C3D972CCF04D8EE42BE2E25AA87BCB2B097EB740
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,29 +686,7 @@ magnet:?xt=urn:btih:C3D972CCF04D8EE42BE2E25AA87BCB2B097EB740
 magnet:?xt=urn:btih:7C1EF6C58EBE95D059C3C01D9327DCD96EBCE793
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942749   (451190) от 02.10.2015
-
-Герберт Шелтон | Правильное сочетание продуктов (2015) [FB2]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы никак не можете избавиться от лишних килограммов? После сытного обеда вас клонит в сон и вы ощущаете тяжесть в желудке? Вы чувствуете усталость в течение дня, хотя и не голодны? Значит, вы что-то делаете неправильно – ведь пища нужна человеку как раз для получения энергии, а не для ее потери. Чтобы питаться любимыми блюдами, но при этом не мучиться угрызениями (   Читать дальше...   )Жанр: Здоровое и раздельное питаниеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3363AFC2B9D07A184115CE042AC21C5E50FA6C3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

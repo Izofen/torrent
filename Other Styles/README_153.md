@@ -22,6 +22,8 @@ Deva Premal - Password (2011) [FLAC|Lossless|tracks + .cue] <New Age, Mantras>
 magnet:?xt=urn:btih:529E93E9C7AB8A17EC706E30A216B702FBAD11CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:0C40728459FDF0EA0C11A6B25718FCE6842E9A5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Bedouin Nights (2015) [MP3|320 Kbps] <Arabic, Arabic Pop, New Age, World>
 magnet:?xt=urn:btih:AEB37F6B93B98000A57877C783110731F964E6D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ VA - Музыка и песни из к/ф Л.Гайдая (2003) [MP3|320 kbps]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Govannen - Celtic Air (2016) [MP3|320 Kbps] <New Age, Celtic>
 magnet:?xt=urn:btih:70329CE8EE8B360BAC7F98B77D634FE1A48B398F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ VA - Sirtaki Planet: The Best Of Sirtaki (1998) [FLAC|Lossless|image + .cue] <Fo
 magnet:?xt=urn:btih:E4F3F73335E62E28B94CBAE4D535A8F4DEBF4C63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ Slowgold - Aska (2020) [FLAC 2.0|88.2/24|tracks|WEB-DL] <Folk, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:A5FE2B05D316A09297C31D006426C7D91C769D01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +228,8 @@ Patrick Ball - 8 альбомов (1983-2003) [MP3|320 кб/с]<Instrumental, Ce
 magnet:?xt=urn:btih:D9AE21EAC68F2D0F2F2B4324DD5545581B465C29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +256,8 @@ Jason Graves - Far Cry Primal (Original Game Soundtrack) (2016) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:8F16F3ADB1117A0751960FC7BD15175E8087F407
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +292,8 @@ Metronomy - Love Letters (2014) [FLAC|Lossless]<Indie Pop, Indie Rock>
 magnet:?xt=urn:btih:0BF2CBD41A6D46BE8937066D095DFA541CF38EE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +326,8 @@ VA - 40 Kansainvalista Iskelmahittia (2011) 2CD [MP3|320 кб/с]<Instrumental, 
 ```bash
 magnet:?xt=urn:btih:A66C8B95494B684FDE410D409B0C64F258366779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +362,8 @@ Elephant - Sky Swimming (2014) [FLAC|lossless] <Indie>
 magnet:?xt=urn:btih:F9665DC527E17F12FC74F636B16A4A98F42F6EE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +394,8 @@ Diane Arkenstone - Aquaria (2001) [FLAC|Lossless]<New Age, Ethereal>
 ```bash
 magnet:?xt=urn:btih:B3C26A5B731A365B30766AC0B0E2F239D06869DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +430,8 @@ Dustin Lynch - Dustin Lynch (2012) [FLAC|Lossless]<Country>
 magnet:?xt=urn:btih:4914D7D15976DE10A34A76A93157FBF0F1F2B90F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +464,8 @@ VA - Lounge Coffee, Vol. 9 - Vol. 11 (2014) [MP3|320 кб/с]<Downtempo, Lounge,
 ```bash
 magnet:?xt=urn:btih:1EAC04374A2681DB1C4E655990A8A561E79F1294
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +500,8 @@ Tim Wheater - Mistral. The Wind Of Change (1991) [MP3|320 кб/с]<New age, Inst
 magnet:?xt=urn:btih:5A441F1A56451F21920710DED26CD8E6A479B13D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +535,8 @@ John Herberman - Rejuvenating Rain (2009) [MP3|320 кб/с]<New Age, Instrumenta
 magnet:?xt=urn:btih:26D8FC7448ABEFECEA3BBD1EF2D60BEAACAC6CD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +568,8 @@ VA - The Platinum New age Collection (2010) [MP3|320 kbps]<New age, Enigmatic>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +593,8 @@ VA - New Age Hits - Relax (2010) [MP3|320 kbps]<New age, Relax, Meditative>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +624,8 @@ Henry Jackman & Matthew Margeson - Kingsman: Секретная служба / K
 magnet:?xt=urn:btih:C8AD9807C35429FB787763ABF8FD174B331CD526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +649,8 @@ VA - Cafe Del Mars - Spacelounger Vol. 1, 2 (2008, 2009) [MP3|320 kbps]<Chillout
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +680,8 @@ Karunesh - A Journey to India (2015) [MP3|320 кб/с]<New Age>
 magnet:?xt=urn:btih:1A72A99CFE53A8AFFD1CC57F7760D2E37D52D3CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +710,8 @@ Gustavo Santaolalla & VA - Книга жизни / The Book Of Life (Original Sc
 magnet:?xt=urn:btih:8737A770A1FBD004DD117EB1F4C95254B9777EA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -692,6 +738,8 @@ Enigma - 100% Enigma (2020) [MP3|320 Kbps] <Enigmatic, New age, Pop>
 ```bash
 magnet:?xt=urn:btih:0147A29BCBBDD8915DFC3D9A9530739C43622AF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -721,6 +769,8 @@ Mike Rowland - 24 albums (1982-2006) [MP3|192-320 kbps]<New age, Neoclassical, I
 magnet:?xt=urn:btih:BAA78EA324471661B90919695399E96BCB306ABE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -747,6 +797,8 @@ Phillip Norman Watson - Mists (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:833A3495829665121E0ED0BD4F6FF8A3FFD0BF69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

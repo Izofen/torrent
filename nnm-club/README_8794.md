@@ -22,6 +22,8 @@ CD 1:
 magnet:?xt=urn:btih:4D2440ED4FA7A52E0C5FD3A7C29F6BE7E327ACBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:4D2440ED4FA7A52E0C5FD3A7C29F6BE7E327ACBC
 ```bash
 magnet:?xt=urn:btih:EBE9E7313BFBC6B2821A1549B7DCA95589A86847
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:EBE9E7313BFBC6B2821A1549B7DCA95589A86847
 magnet:?xt=urn:btih:3712A34B3854F24957292F6029E152B832B1F370
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Stand Up (2017.12.10) SATRip (сезон 7, выпуск 11: Дайджест)
 ```bash
 magnet:?xt=urn:btih:476CD1E3CF649527B883D369BE67E1E96ABB76F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:476CD1E3CF649527B883D369BE67E1E96ABB76F3
 magnet:?xt=urn:btih:10E60F6ED4D806B8E4D6687F1615147C3D74C0F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:10E60F6ED4D806B8E4D6687F1615147C3D74C0F4
 magnet:?xt=urn:btih:35B3E992C8B74D0483F0A6584B3ABB0DDB8D2E2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:35B3E992C8B74D0483F0A6584B3ABB0DDB8D2E2E
 ```bash
 magnet:?xt=urn:btih:7C79FD30AC46E17B1F01F26ABF137D591FF8F6EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ VA - La Musique Sovietique L’ete 1969 От Паланги до Гурзуфа 
 magnet:?xt=urn:btih:7C174199AB13379C2745D7DBA1BDF32C33B0946F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ New Order - Singles (2005) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <New W
 magnet:?xt=urn:btih:60601CD8CC1197CE7164CDC200DC573BF51FFE2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:60601CD8CC1197CE7164CDC200DC573BF51FFE2E
 ```bash
 magnet:?xt=urn:btih:5519189D61E0004204273BB7EB3744348475E38B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:5519189D61E0004204273BB7EB3744348475E38B
 magnet:?xt=urn:btih:152C8422E64C0F6DE50C6D1D480E22E77BD58334
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:152C8422E64C0F6DE50C6D1D480E22E77BD58334
 magnet:?xt=urn:btih:88E56258B6DC64C122C26AE4968CA3A010067A5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:88E56258B6DC64C122C26AE4968CA3A010067A5C
 ```bash
 magnet:?xt=urn:btih:A6C0B469C0AA75E4AE27FFFE776BB0A761E0202E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ Liquid - интегрированные shortcuts для обычных ежед
 magnet:?xt=urn:btih:1528E9960BB4C5FB9845E6D5F9A73FCB420B1610
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:1528E9960BB4C5FB9845E6D5F9A73FCB420B1610
 ```bash
 magnet:?xt=urn:btih:D96A0FFB44DE68CE6719EE1D328B987C7AFC1EFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:D96A0FFB44DE68CE6719EE1D328B987C7AFC1EFC
 magnet:?xt=urn:btih:AF1FA4852A45699422E6DF8A0B91B07FD4A956EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ Royal Detective 6: The Last Charm / Королевский детектив 6: �
 magnet:?xt=urn:btih:D7176A2FF7EB3C853BAD8D76583E5F62AD71E474
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:D7176A2FF7EB3C853BAD8D76583E5F62AD71E474
 ```bash
 magnet:?xt=urn:btih:AA8C553D5AC61D437AFC4C02768DCFDB00EB588F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ Christophe Beck, VA - Frozen 2 / Холодное сердце 2 (Оригина
 magnet:?xt=urn:btih:F51E0044EB5917B86704AB727EF09AF190939279
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ Skype — программа от Microsoft, с помощью которой в
 ```bash
 magnet:?xt=urn:btih:86695CD746F85A71983608F6FEF9ACEFCD5330B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:86695CD746F85A71983608F6FEF9ACEFCD5330B1
 magnet:?xt=urn:btih:14965A7968860AA7F41C3FD7A4640E3188BE0BB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:14965A7968860AA7F41C3FD7A4640E3188BE0BB6
 magnet:?xt=urn:btih:2347199AEBED48F48422EF27E7A36F6F7B123A51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:2347199AEBED48F48422EF27E7A36F6F7B123A51
 ```bash
 magnet:?xt=urn:btih:E8D7C7D994C917EB63289130C69299DF783A9192
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ CD 1:
 magnet:?xt=urn:btih:8DBD0E7632A4E2D9085EB08ECF20457888464E8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ Christophe Beck, VA - Frozen 2 / Холодное сердце 2 (Original Motio
 magnet:?xt=urn:btih:ABD975F8111585B5803938D728A0172E806451E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ Vector elements set of flowers for wedding invitations card [EPS]
 ```bash
 magnet:?xt=urn:btih:A441AC7489DE7DA0C2573794FB487D1311BBDD26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

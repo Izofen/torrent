@@ -21,6 +21,8 @@ BrowsingHistoryView (Portable) — небольшая программа, кот
 magnet:?xt=urn:btih:AF63B8E4A463CD0CE9D81E59BBBBD11EDC581EB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:AF63B8E4A463CD0CE9D81E59BBBBD11EDC581EB9
 magnet:?xt=urn:btih:B2CA79DF67370BE6E699A8FED88D6F774DFB9CE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ AnyDesk 9.6.4 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:96BABA831EB073F44787111D117080D3B8F76CA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ SupRemo 4.11.6.2928 [Multi/Ru]
 magnet:?xt=urn:btih:29CC8E02B84382659C4A0649CB8A227F4402DB75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:29CC8E02B84382659C4A0649CB8A227F4402DB75
 ```bash
 magnet:?xt=urn:btih:D7DB4CD554C2DECF7DD8E147E9BB7F61A6FFB9B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:D7DB4CD554C2DECF7DD8E147E9BB7F61A6FFB9B0
 magnet:?xt=urn:btih:508BB1110DF49B31128E0250F056D1A5322F9055
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Allavsoft Video Downloader Converter - это мощный видео загру
 ```bash
 magnet:?xt=urn:btih:04007E6629E984FE494DD3AE2AE55690E3F806D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ BitTorrent – программа-клиент пиринговой сети. П
 magnet:?xt=urn:btih:EFEAB1EA53DAD2B09DA5887FF63D13E7FC467CFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ MyLanViewer — программа для сканирования и монит
 ```bash
 magnet:?xt=urn:btih:DDE7FB91B21446D43895FD872721CA719E2B287B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 magnet:?xt=urn:btih:0EFDF6BEECF259EAE83CC9085ECFD1624441D1C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ iDownerGo – это приложение для загрузки мультим
 ```bash
 magnet:?xt=urn:btih:49218945DC852557C21AA1C5C5E6114E2958C54D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:E04D1EE7F2F88A6A49DB4B00A25FC7414A98E5CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:4D588DF1496298D92FAE03FBBB140C8034AE66FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:4D588DF1496298D92FAE03FBBB140C8034AE66FB
 magnet:?xt=urn:btih:9EC84F4A851B354A326630267483351D398D498A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ MyLanViewer — программа для сканирования и монит
 ```bash
 magnet:?xt=urn:btih:B9609CCC9ADB9EC2F2D7116993217C717185E031
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ ArrowDL — это автономное приложение, содержаще
 ```bash
 magnet:?xt=urn:btih:620620D2447360EE37F399EC37B34477C804E9BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Karing - Утилита прокси с простым и мощным инте�
 magnet:?xt=urn:btih:8D77DAC8720F8ACFCDB5F781A4BE31D859B4D370
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ DLNow Video Downloader - быстрое, полезное, практичное 
 ```bash
 magnet:?xt=urn:btih:064DA0BFB46D66BABB3D55EA05E5441DAC1EC7C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Chromium – веб-браузер с открытым исходным кодо
 magnet:?xt=urn:btih:33F1697E70ACD96F723AFB3768A15E81577D55E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:E67B633B7A587FACFB64B57EAD7C9F2550F6B2E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:E67B633B7A587FACFB64B57EAD7C9F2550F6B2E9
 magnet:?xt=urn:btih:9DBECC0F90ED767104AF1BB5985A80A7F536F06E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:178745947D03AFC3BB848D50F885FDC55C2D96E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Opera One 123.0.5669.47 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4DD1E993D37E0FEF09D1147D6F6EAE9318F0AC05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ AnyVid позволяет пользователям легко сохранят
 magnet:?xt=urn:btih:B9B3641E56FE1178D10D612AA58C63EF62C2124C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Social Video Downloader обладает понятным и (   Читать �
 magnet:?xt=urn:btih:34B8751A65EBFBE745435EC7978640C4CFC035BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:95770ECC0251C3F2C9468B84F729AFA481859E27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

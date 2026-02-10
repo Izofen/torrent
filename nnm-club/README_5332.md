@@ -19,6 +19,8 @@ Jaja-uma Quartet | Wild Cardz | Crown Knights | Дикие карты [1997, OVA
 magnet:?xt=urn:btih:E4F5413DA389A22DB01B3EFADFD8FD903E53FFC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:E4F5413DA389A22DB01B3EFADFD8FD903E53FFC9
 ```bash
 magnet:?xt=urn:btih:7386A76E0E72411F5E0CBFEA32CEA505F0DC36F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:7386A76E0E72411F5E0CBFEA32CEA505F0DC36F6
 magnet:?xt=urn:btih:6BE35952F9B530B5DE2D0BE8C25BBAA553091505
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:6BE35952F9B530B5DE2D0BE8C25BBAA553091505
 ```bash
 magnet:?xt=urn:btih:68607FC97AB5D7C777147764C4CACF1F1939F0BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:68607FC97AB5D7C777147764C4CACF1F1939F0BF
 magnet:?xt=urn:btih:5C319951FDFE8F14B183C23EC812102F1189FBA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:5C319951FDFE8F14B183C23EC812102F1189FBA0
 ```bash
 magnet:?xt=urn:btih:4E3773A1C8AC3D3D0E27077E5AD0FAECFE3A7282
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Ernesto Cortazar - The Best of Ernesto Cortazar, Vol. 1 (2022) [FLAC|Lossless|WE
 magnet:?xt=urn:btih:B71225143E2B54AE2C8C3600E5B3D7FD03609C3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:B71225143E2B54AE2C8C3600E5B3D7FD03609C3A
 ```bash
 magnet:?xt=urn:btih:B57B31D8BDDA1EC18AB7BE53C0ADCBE58E77A2E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:B57B31D8BDDA1EC18AB7BE53C0ADCBE58E77A2E4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:B57B31D8BDDA1EC18AB7BE53C0ADCBE58E77A2E4
 magnet:?xt=urn:btih:A25E1A24FA60F134FE7869354F3037EA8C24961F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Discovery: Последние тайны долины Царей / Valley of the
 ```bash
 magnet:?xt=urn:btih:DF8DA48B8038C8FA6CAA9633096BB64B7281DFF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ VA - Yoga Music Session 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Relax, Chillout,
 magnet:?xt=urn:btih:579333AF9AC08D38FF92CEA1BF085186E292D57D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:579333AF9AC08D38FF92CEA1BF085186E292D57D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:579333AF9AC08D38FF92CEA1BF085186E292D57D
 magnet:?xt=urn:btih:A1BFB033566F2F6DE86B3C954CC49A35F143DF4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Revo Uninstaller Mobile - полезное приложение для любо�
 ```bash
 magnet:?xt=urn:btih:24DAC67852836AB4C7CCDD444AA5FE9054CAA84C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:24DAC67852836AB4C7CCDD444AA5FE9054CAA84C
 magnet:?xt=urn:btih:BDB02D11849DE22AE18561416FC481E5634F318C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:BDB02D11849DE22AE18561416FC481E5634F318C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:BDB02D11849DE22AE18561416FC481E5634F318C
 magnet:?xt=urn:btih:795AAFC6E38628DC89614CF482E26D8031AA069C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Nami yo Kiite Kure | Wave, Listen to Me! | Волна, слушай меня! | 
 magnet:?xt=urn:btih:59550C7A13535DBC191EC7ED072159350DE3CA8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ BBC: Планета Земля 2. Мир чудес / Planet Earth II: A World o
 ```bash
 magnet:?xt=urn:btih:54DD2FBCB7CF41B208908149C1ECA66470902B07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:54DD2FBCB7CF41B208908149C1ECA66470902B07
 magnet:?xt=urn:btih:DEA3F5F3D14C8FDB67AE4AA5C01BDB41C7B8F293
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:DEA3F5F3D14C8FDB67AE4AA5C01BDB41C7B8F293
 magnet:?xt=urn:btih:E9A1C7913ED8BF4319B2EB9F832D3169FC8AACA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:E9A1C7913ED8BF4319B2EB9F832D3169FC8AACA9
 ```bash
 magnet:?xt=urn:btih:CF186431D959DE3FC77557AFFC45700968103287
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:CF186431D959DE3FC77557AFFC45700968103287
 magnet:?xt=urn:btih:B26D43B8C9927C50389064D450C93DF90AC17F3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ magnet:?xt=urn:btih:B26D43B8C9927C50389064D450C93DF90AC17F3E
 magnet:?xt=urn:btih:5C2FFA8683857581CD30DE438A22A7F265346FBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:5C2FFA8683857581CD30DE438A22A7F265346FBA
 ```bash
 magnet:?xt=urn:btih:8B96572EFA0D3B765C7D43C94696FA211CC9B365
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

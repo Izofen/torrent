@@ -1,3 +1,29 @@
+###  Публикация: 1286716   (710978) от 03.03.2019
+
+IMAX: Амазонка / Amazon (1997) BDRemux [VC-1/1080p] [VO]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскройте тайны Амазонки через объективы потрясающих камер IMAX. Эта река славится своей красотой, животными и феноменом быстро исчезающих тропических лесов. С громоздкими камерами и оборудованием наперевес создатели фильма преодолевают множество трудностей, чтобы запечатлеть столь редкие тропические ландшафты и представить их зрителям со всей присущей этим камерам (   Читать дальше...   )Производство: США, Image EntertainmentЖанр: Документальный, природа, флора, фаунаРежиссер: Кит МерриллПеревод: Одноголосый закадровый, любительскийСубтитры: РусскиеПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7C2C3C63FF81522CDC8749DB0416AA06DD138AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286721   (710990) от 03.03.2019
 
 IMAX: Африка - Серенгети / Africa - The Serengeti (1994) BDRemux [MPEG-2/1080p] [VO]
@@ -18,6 +44,8 @@ IMAX: Африка - Серенгети / Africa - The Serengeti (1994) BDRemux 
 ```bash
 magnet:?xt=urn:btih:52372EEBE3DFD9BF8683323C7BCDA8F59234372B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:52372EEBE3DFD9BF8683323C7BCDA8F59234372B
 magnet:?xt=urn:btih:812A70330A640CCA5FC838A6AA5679DA165E1A73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:812A70330A640CCA5FC838A6AA5679DA165E1A73
 ```bash
 magnet:?xt=urn:btih:AC79364CE69AD631071468BC0E0F01B784AD7A65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:AC79364CE69AD631071468BC0E0F01B784AD7A65
 magnet:?xt=urn:btih:F95057139B8CFF2B569CF1BB04E13CBB00EE15CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:F95057139B8CFF2B569CF1BB04E13CBB00EE15CF
 ```bash
 magnet:?xt=urn:btih:34961A8C2096F81938B2FA626CB3857ECE2B0E44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:34961A8C2096F81938B2FA626CB3857ECE2B0E44
 magnet:?xt=urn:btih:F1FCEA6AA83434B85238253CAF6F989B53441D12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:F1FCEA6AA83434B85238253CAF6F989B53441D12
 magnet:?xt=urn:btih:9EEB48F083410ABF294C861509F7F9F858750042
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:9EEB48F083410ABF294C861509F7F9F858750042
 ```bash
 magnet:?xt=urn:btih:D616664900A65A65B7352A82B446F4D0367D09C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:D616664900A65A65B7352A82B446F4D0367D09C0
 magnet:?xt=urn:btih:5F2ADD42CE0CE77F86BD6CC1627CF0E4A6D84774
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:5F2ADD42CE0CE77F86BD6CC1627CF0E4A6D84774
 ```bash
 magnet:?xt=urn:btih:D83CF564CAA222D3D8F8B0D623FF066908B42799
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:D83CF564CAA222D3D8F8B0D623FF066908B42799
 magnet:?xt=urn:btih:E3360CCB3CB8CFD7E241A213281D6C4027D05CFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:E3360CCB3CB8CFD7E241A213281D6C4027D05CFC
 ```bash
 magnet:?xt=urn:btih:88633FA65CE595EDF3CF0017B7ADA0AEDAD10937
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:88633FA65CE595EDF3CF0017B7ADA0AEDAD10937
 magnet:?xt=urn:btih:8C63D6AA918C4313CB5E780089B7E723D20EF723
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:8C63D6AA918C4313CB5E780089B7E723D20EF723
 ```bash
 magnet:?xt=urn:btih:C677C31C67556FB588CFF8A752929961FC61FC24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:C677C31C67556FB588CFF8A752929961FC61FC24
 magnet:?xt=urn:btih:81C774E43A8F407986D4B46F51046DD95FB1A4A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:81C774E43A8F407986D4B46F51046DD95FB1A4A8
 ```bash
 magnet:?xt=urn:btih:E5EDE94BE145281E6DBFB143707A29D54165D433
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:E5EDE94BE145281E6DBFB143707A29D54165D433
 ```bash
 magnet:?xt=urn:btih:D44A92E1591158EF92C756A15E056D20E787DE76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:D44A92E1591158EF92C756A15E056D20E787DE76
 magnet:?xt=urn:btih:3F233066F35A8CE732DB1E155ADFBAA5D4D64CED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +524,8 @@ magnet:?xt=urn:btih:3F233066F35A8CE732DB1E155ADFBAA5D4D64CED
 ```bash
 magnet:?xt=urn:btih:47EC22DEF4F937E5ADED4E7555DAC6C2D34C8BA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +553,8 @@ magnet:?xt=urn:btih:47EC22DEF4F937E5ADED4E7555DAC6C2D34C8BA6
 magnet:?xt=urn:btih:229BE6038F3BD35EA7914DADB668421D6A6894F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +580,8 @@ magnet:?xt=urn:btih:229BE6038F3BD35EA7914DADB668421D6A6894F4
 magnet:?xt=urn:btih:2867FE868A6B840EFEC073BA74A40693C285A61C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:2867FE868A6B840EFEC073BA74A40693C285A61C
 ```bash
 magnet:?xt=urn:btih:2297B78AB78A711A6E7495C8AF2CB5236158F116
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +632,8 @@ magnet:?xt=urn:btih:2297B78AB78A711A6E7495C8AF2CB5236158F116
 magnet:?xt=urn:btih:BE4785C91C91490413CECC6269986EB24D2C81C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:BE4785C91C91490413CECC6269986EB24D2C81C6
 ```bash
 magnet:?xt=urn:btih:E64D381D1C4F47C721EC028911A9D2D43A2C4399
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,29 +684,7 @@ magnet:?xt=urn:btih:E64D381D1C4F47C721EC028911A9D2D43A2C4399
 magnet:?xt=urn:btih:25078A90067D67F7AFFC3CB5EFB6667BAC8AE158
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025208   (712050) от 11.06.2016
-
-Научное расследование Сергея Малозёмова. Еда живая и мертвая (2016.06.11) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712050.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Еда живая и мертвая» – новый научно-популярный цикл Сергея Малозёмова, репортера с медицинским образованием, автора и ведущего программы «Чудо техники» и научных расследований о климате, технологиях, бессмертии и экологии.Производство: НТВЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63E92B139CE46259E26AC2E7AD25B4C309B7A20A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

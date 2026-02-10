@@ -19,6 +19,8 @@ Wondershare Filmora - удобный видеоредактор, содержа�
 magnet:?xt=urn:btih:77FF902FD1AB0F026E628B7686A4607BC895E995
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ AIMP 5.40.2700 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:9521233873A4598F2DD0810B341DDC501C866698
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Absynth - мощный синтезатор от компании Native Instrum
 ```bash
 magnet:?xt=urn:btih:78FD4540A0CE7FDD865DC6054FA75872AF594B45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Godfazer также включает в себя все стандартные �
 magnet:?xt=urn:btih:6B086C8F13FBF6443F860A8C1E7CC64BA3893F1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ JPEGmini – программа для сжатия размеров фотог�
 ```bash
 magnet:?xt=urn:btih:1F1EA55D912556643991E557D5580F7B9EC5136B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Exoside QuadRemesher 1.01 for Cinema 4D [En]
 magnet:?xt=urn:btih:FC610F7BF2338A3382D9EABE2BFBB510786AFC57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Acrok Video Converter Ultimate – это конвертер для Blu-ray, DVD
 ```bash
 magnet:?xt=urn:btih:0CBF5899AF9793D8066317EEA557BCC78EF261D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Superluminal Stardust - уникальная модульная система �
 magnet:?xt=urn:btih:592CBBFD09842986AC060E5234BD647CE318A9BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ CLO Enterprise 3.2.45 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2154374EAFD52C457E0378683E4581D63B2ED06F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Spek 0.8.2 Portable [Multi/Ru]
 magnet:?xt=urn:btih:DA4278059DCD15E5C6F308FB525FD368E3A939A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ VSO ConvertXtoDVD - программа, предназначенная для п
 ```bash
 magnet:?xt=urn:btih:01465D2A7FC9EF30041B5F184E4FF2F7D79403C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Ashampoo Home Designer 5 поможет Вам создать дом Вашей 
 magnet:?xt=urn:btih:A4F445F7BEB2243319B8C9EB75B537844874AA91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Red Giant Shooter Suite — комплект инструментов подго
 magnet:?xt=urn:btih:BC852DA9793058DFE363DDBF08DC072BC5166CD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Astra Image PLUS - графический редактор, который по�
 ```bash
 magnet:?xt=urn:btih:20E082C7452D58DF6B5CFE9EA5ED1BD3515E1D08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ proDAD Heroglyph 4.0
 magnet:?xt=urn:btih:31A8C6E45CC562B06C4AC89F7D9758DC2CB060D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Ashampoo Cinemagraph 1.0.2 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:28820F9C958DDB3E0DFDACE6F34C5ADF4F310D2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ NewBlueFX.Titler.Pro.v5.0 Наиболее быстрый и эффективн�
 magnet:?xt=urn:btih:8D01E94655208C848ED6A77AB839E3D0C3AA5DF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Apowersoft GIF - простая и профессиональная програ
 ```bash
 magnet:?xt=urn:btih:3665F373D72ED92EBC8724CC6599158C9F49286B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:3665F373D72ED92EBC8724CC6599158C9F49286B
 magnet:?xt=urn:btih:045B7C48D7884A56262CFDAB7F95091A47435D0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Abyssmedia Audio Converter Plus 6.3.0.0 RePack (& Portable) by TryRooM [Ru/En]
 magnet:?xt=urn:btih:84EF0B129D052DF49C232BEC3698DC9CA5A1E030
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Arturia - Synclavier V 2.0.2.1891 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack 
 ```bash
 magnet:?xt=urn:btih:8869F8286E9431A5BBDFFB9909C5C8409DE2B277
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Arturia - Matrix-12 V2 2.3.2.1889 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack 
 magnet:?xt=urn:btih:4062275BC56F52E93DA5A5C34F7AA8E3C995B19D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Bridge — это мощное средство управления ресур�
 ```bash
 magnet:?xt=urn:btih:C6EDF1FBCAE7E8E50BAB85EDB8B7056B7F34C9E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Movavi Photo Manager 2.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:951229134F58FD47CAFFE4D4EBB3EBAAEE1AFEA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ TV Distortion Bundle - Набор из пяти плагинов для созд
 magnet:?xt=urn:btih:F558C00947CC5E4896654B650F845F23861B3F50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Hammond B-3X, инновационный виртуальный орган c ф�
 ```bash
 magnet:?xt=urn:btih:6450002C13C2D42E6AF3454B64A36C7E676B9F26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Teeny Tucker - Put On Your Red Dress Baby (2018) [MP3|320 Kbps] <Blues>
 magnet:?xt=urn:btih:0866AC8B1228C10005B7EE672FAB412403AF2F34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:0866AC8B1228C10005B7EE672FAB412403AF2F34
 ```bash
 magnet:?xt=urn:btih:15585BAAA99ACA5AAE6E1724234482F16B81D1F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Avi Rosenfeld & Marco Buono - Tell Me Something (2020) [MP3|320 Kbps] <Classic R
 magnet:?xt=urn:btih:3E26E2C4F3D611F2BC0F099E62394A7FB65BAF14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Apollo Brown & Planet Asia - Anchovies (2017) [FLAC|Lossless|Web-DL|tracks] <Hip
 magnet:?xt=urn:btih:395B9D49BC95E514829D1E60213A54206CD14B4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:395B9D49BC95E514829D1E60213A54206CD14B4E
 ```bash
 magnet:?xt=urn:btih:29D75724137BB3F23ED1820BC82CEBE0644D4169
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:29D75724137BB3F23ED1820BC82CEBE0644D4169
 magnet:?xt=urn:btih:63568B288ADF066E5B76B85E965FC132FF66B2ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Windows 8.1 with Update 3 - Оригинальные образы от Microsoft
 ```bash
 magnet:?xt=urn:btih:2F7D04E7F4B3D29AEF3AB54D86016B47A80AE7B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ CD1:
 magnet:?xt=urn:btih:C5A94F7C0FAAD25BC35979C35A60C11A03AAA122
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ Dark Messiah of Might and Magic (2006) [Ru/En] (1.02) License
 magnet:?xt=urn:btih:A21D157716CB3FC716761DB427B81587F422BE60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:A21D157716CB3FC716761DB427B81587F422BE60
 ```bash
 magnet:?xt=urn:btih:8F0E2C48F53799F8CA107A48E7DBF65454B260D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:8F0E2C48F53799F8CA107A48E7DBF65454B260D6
 magnet:?xt=urn:btih:A855D9753D682578DB632ADB3F989BE1C45D2D82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:A855D9753D682578DB632ADB3F989BE1C45D2D82
 magnet:?xt=urn:btih:02695E1E2B8D36DFA3C0DA3D7F73A14C39C2ACB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:02695E1E2B8D36DFA3C0DA3D7F73A14C39C2ACB2
 ```bash
 magnet:?xt=urn:btih:BE7D48FD69F7DCA238ED20308F05AC69E94C1586
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:BE7D48FD69F7DCA238ED20308F05AC69E94C1586
 ```bash
 magnet:?xt=urn:btih:44DE516CF46D8BEB6763C8A8A3D66E5339E57C65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ Eric Reed - For Such A Time As This (2020) Smoke Sessions Records [FLAC|Lossless
 magnet:?xt=urn:btih:0DF18B36E4084FF2DACB3C932BECEB8BB894DDF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:0DF18B36E4084FF2DACB3C932BECEB8BB894DDF2
 ```bash
 magnet:?xt=urn:btih:81472B83A679021E7CB79E509B13438A7CA1C4D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ Miles Davis - Workin' (1956) 2016, Jazz Images [FLAC|Lossless|tracks + .cue] <Ha
 magnet:?xt=urn:btih:8E3CAFE31AB1A3A640ADF739B250452F606B0858
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:8E3CAFE31AB1A3A640ADF739B250452F606B0858
 ```bash
 magnet:?xt=urn:btih:56F2D5241BFBA5BE519C922F158605BAD82BCF2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:56F2D5241BFBA5BE519C922F158605BAD82BCF2A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:56F2D5241BFBA5BE519C922F158605BAD82BCF2A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +565,8 @@ Satin - Appetition (2022) [FLAC|Lossless|WEB-DL|tracks] <AOR>
 magnet:?xt=urn:btih:1683B03C859F8700B260A48A00404098BCB78FDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ Dropshare - приложение строки меню для Drag & Drop заг
 magnet:?xt=urn:btih:4835E2A7AEAF4D72AA492C3AF54EC45CF5649BF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ One Piece TV Special 3:Mamore! Saigo no Daibutai / One Piece: Protect! The Last 
 magnet:?xt=urn:btih:5C60A02A6FF142F36BC9FF82E2918A9CF8EC2878
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:5C60A02A6FF142F36BC9FF82E2918A9CF8EC2878
 ```bash
 magnet:?xt=urn:btih:9AA07115AAEA3043C880C102C3C348BE51E6B7A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:9AA07115AAEA3043C880C102C3C348BE51E6B7A3
 magnet:?xt=urn:btih:00BE3E357C4A59E3057EBA6D6E0C912899F18FD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ magnet:?xt=urn:btih:00BE3E357C4A59E3057EBA6D6E0C912899F18FD9
 ```bash
 magnet:?xt=urn:btih:90E91C32AD8E2C4F1DFD038C94B6FE23E5DABB8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

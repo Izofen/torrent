@@ -22,6 +22,8 @@ VA - Uplifting Only: Top 15 - November (2017) [MP3|320 Kbps] <Trance, Uplifting 
 magnet:?xt=urn:btih:8F1C5DF640EFCD848F217A68E856EAFB940DB759
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Olga Stankevich (Ольга Станкевич) - Alone with the City (2014) [FL
 ```bash
 magnet:?xt=urn:btih:CB27711524DE823DBBE91FC5654A1129DE59FA97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ L'Orange & Mr. Lif - The Life & Death Of Scenery (2016) EP [MP3|320 kbps] <Hip-H
 magnet:?xt=urn:btih:AB82172C3863B5B8F9776753B20073760CC0E0B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Michael Rother - 9 Studio Albums (1977-2004) CD [MP3|320 Kbps] <Electronic, Krau
 ```bash
 magnet:?xt=urn:btih:721E152D492C75C694645437B7682AF8E3904C11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Forecast Bar - точный прогноз погоды  Forecast.io  прямо
 magnet:?xt=urn:btih:82706FD88BB7C58AD81ACB328EE608D6A7E3040A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ magnet:?xt=urn:btih:82706FD88BB7C58AD81ACB328EE608D6A7E3040A
 magnet:?xt=urn:btih:D6E95AC352D67EA6542B52B348DF2FC8E4BCEC9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ Kinza Browser - японский браузер на базе Chromium с доп
 ```bash
 magnet:?xt=urn:btih:2FBF536C76BEEEF1CC38A2863F94C463B48106BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ magnet:?xt=urn:btih:2FBF536C76BEEEF1CC38A2863F94C463B48106BB
 magnet:?xt=urn:btih:10DB19BA048326CB7F22006221618B73978812DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:10DB19BA048326CB7F22006221618B73978812DC
 ```bash
 magnet:?xt=urn:btih:A98420EBD2E3AA339CF5CF5AB0BF3196AD284335
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ VA - Disco Swing (2017) [MP3|320 Kbps] <Swing, Jazz, House>
 magnet:?xt=urn:btih:01898D15419B62A04F9302FC0A1610D38CEF7274
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ Gabriel & Dresden - Gabriel & Dresden - Live at Cielo (2015) [MP3|320 Kbps] <Tra
 ```bash
 magnet:?xt=urn:btih:3EFEE679FC0D10F72FE3FAA904F48477D9772368
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +330,8 @@ VA - Dяgilev Proжект - Residents (2007) [MP3|204-320 Kbps] <House>
 magnet:?xt=urn:btih:418D7E99AA91E2D026C6D4DC6FED0D8DD6EFD5D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +358,8 @@ magnet:?xt=urn:btih:418D7E99AA91E2D026C6D4DC6FED0D8DD6EFD5D0
 ```bash
 magnet:?xt=urn:btih:6A662281C3481C73976547401E1D460AD3ADD0BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +388,8 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 022 (2017) [M
 magnet:?xt=urn:btih:E9E684606F54BFCAE96E861D65CD2D09B4EF42CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +416,8 @@ Elina Duni - Partir (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Balkan Jaz
 ```bash
 magnet:?xt=urn:btih:4C03F205B499FFC2CA0720FCBB7E1EB3D88442FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +446,8 @@ Mark Dwane - Cerebral Hemispheres (2017) [MP3|320 Kbps] <Electronic, Ambient, In
 magnet:?xt=urn:btih:559FFFD9A260C873DF740783DE32DBC9854CDE8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +475,8 @@ magnet:?xt=urn:btih:559FFFD9A260C873DF740783DE32DBC9854CDE8E
 magnet:?xt=urn:btih:F28EF6C89F63602470C1D254AABCC0F32E7EF8B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +500,8 @@ VA - EDM 2018 (2017) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:6E8BC521128DB4CDE831F26FC488A909836D10A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +530,8 @@ VA - Spring Tube 9th Anniversary Compilation, Part 1 (2018) [FLAC|Lossless|WEB-D
 magnet:?xt=urn:btih:BF2EC303B4314FF2BBBB5D443EA3EF4B16951270
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +555,8 @@ Dig Into History - журнал, в котором история и архео�
 ```bash
 magnet:?xt=urn:btih:31C94283C9857BC21B23C51457F488D99833A1FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +585,8 @@ magnet:?xt=urn:btih:31C94283C9857BC21B23C51457F488D99833A1FE
 magnet:?xt=urn:btih:9C4774474B0E01E5F791FB60800E031BEF43D63D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +610,8 @@ magnet:?xt=urn:btih:9C4774474B0E01E5F791FB60800E031BEF43D63D
 ```bash
 magnet:?xt=urn:btih:7E1D205F8F2DC134C341CCF20EDF31552859CB54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +640,8 @@ magnet:?xt=urn:btih:7E1D205F8F2DC134C341CCF20EDF31552859CB54
 magnet:?xt=urn:btih:1452344C4B16BA7F0BA8AD07B8CAFD112EA1F4DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +665,8 @@ magnet:?xt=urn:btih:1452344C4B16BA7F0BA8AD07B8CAFD112EA1F4DE
 ```bash
 magnet:?xt=urn:btih:24801E6B991F3D387DB5F48FDFD16005F4EFBB7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +695,8 @@ Andrew Bayer ft. Alison May - Open End Resource (2018) Single [FLAC|Lossless|WEB
 magnet:?xt=urn:btih:655A255448334FB06B68BB51A8799892DB644528
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,6 +723,8 @@ Buck Clayton - Jam Session: How Hi The Fi (1953, 1954) 2005, Membran Music [FLAC
 ```bash
 magnet:?xt=urn:btih:69E271ADA1B017EE30F1A1BFE6BC15A0E214EB00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:E06BC5627C02C3265320ADBEEEBA126990743473
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:E06BC5627C02C3265320ADBEEEBA126990743473
 ```bash
 magnet:?xt=urn:btih:C482D8DBDFAD10A6E2DF864E0048F1445D3FDD6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:C482D8DBDFAD10A6E2DF864E0048F1445D3FDD6B
 magnet:?xt=urn:btih:E7215F624301D8FE722A6AAAC62B8731532D90AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ magnet:?xt=urn:btih:E7215F624301D8FE722A6AAAC62B8731532D90AA
 magnet:?xt=urn:btih:D5B0324CD79B65F97B209BCB2D89EB7C65352022
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ Bazanova Art, Ольга Базанова | Практика художника.
 ```bash
 magnet:?xt=urn:btih:87162EF4A33F6380F51060D018C6BE3A7432AA2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +166,8 @@ Bazanova Art, Ольга Базанова | Тёплые пейзажи. Тар�
 magnet:?xt=urn:btih:5DB297B0188C30AA682D002A4C1D8035A75DBB35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +194,8 @@ magnet:?xt=urn:btih:5DB297B0188C30AA682D002A4C1D8035A75DBB35
 ```bash
 magnet:?xt=urn:btih:21FD575F024504BBCA7325BA0E4D5800F56E9538
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:21FD575F024504BBCA7325BA0E4D5800F56E9538
 magnet:?xt=urn:btih:CCC099EAB713041C7AF60FB7C716B70168575FD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ Enterclass, Илья Ибряев | Состояние неба. Пейзажи 
 magnet:?xt=urn:btih:B2B0A00ABE0430660402A4E4D1D183522E6AAFE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -257,6 +275,8 @@ magnet:?xt=urn:btih:B2B0A00ABE0430660402A4E4D1D183522E6AAFE6
 ```bash
 magnet:?xt=urn:btih:1C90C68AE93AC6E9EF85DBE56D96C95D9BCF4CCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +305,8 @@ magnet:?xt=urn:btih:1C90C68AE93AC6E9EF85DBE56D96C95D9BCF4CCF
 magnet:?xt=urn:btih:F049C774B6989530E2563D4771CAEBD692116C99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +332,8 @@ Bazanova Art, Ольга Базанова | Практика художника 
 ```bash
 magnet:?xt=urn:btih:EEAE76D9FE36B62EF01C06D41DCA3A9A528B9906
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +362,8 @@ Stepik, Дмитрий Фокеев | Adobe After Effects 2023. С нуля до
 magnet:?xt=urn:btih:C559DDB679BEF4EF516C0058F4EE9477F4CB497B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +391,8 @@ Udemy, Studio Wander | Complete Guide to Unreal Engine 5 : 3D Architecture & Des
 magnet:?xt=urn:btih:385A8B74EC69DE85D57F34D5F79A89A9E13ACCC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +416,8 @@ World of Portraits | Master Retouch Collection (2023) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:1219EA03EA5AA70864DB016F101E61493D887198
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +446,8 @@ magnet:?xt=urn:btih:1219EA03EA5AA70864DB016F101E61493D887198
 magnet:?xt=urn:btih:1135B1C2102213E0B3315629D5B95CF9C8C68F49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +474,8 @@ magnet:?xt=urn:btih:1135B1C2102213E0B3315629D5B95CF9C8C68F49
 ```bash
 magnet:?xt=urn:btih:9979EDD740BC7D31B72EB6952E90A340E5CE75CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +504,8 @@ magnet:?xt=urn:btih:9979EDD740BC7D31B72EB6952E90A340E5CE75CE
 magnet:?xt=urn:btih:5079EF1D40651CB082172DA4DB3C9016713FC190
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +531,8 @@ magnet:?xt=urn:btih:5079EF1D40651CB082172DA4DB3C9016713FC190
 ```bash
 magnet:?xt=urn:btih:47DFA506808F2492F858EC312E6974611DFCDB7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +561,8 @@ ArtStation, Florian Neumann | Post Apocalyptic Knife - Game Asset Tutorial (2022
 magnet:?xt=urn:btih:0FFBECCCE8F9E05D7F42E9DB59F70F824FDFC0FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +587,8 @@ Hudozhnik Online, Полина Абдулаева | Практическая и�
 ```bash
 magnet:?xt=urn:btih:C16002AFA9B44D19F005B6B202C6BD95270D65A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +617,8 @@ magnet:?xt=urn:btih:C16002AFA9B44D19F005B6B202C6BD95270D65A0
 magnet:?xt=urn:btih:FC7F58672C26DA4204A6BBFBA6937D9C2E23E04C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +646,8 @@ magnet:?xt=urn:btih:FC7F58672C26DA4204A6BBFBA6937D9C2E23E04C
 magnet:?xt=urn:btih:543DB51AF060925FA8B95DB86F90443C5AA4BF5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +671,8 @@ magnet:?xt=urn:btih:543DB51AF060925FA8B95DB86F90443C5AA4BF5D
 ```bash
 magnet:?xt=urn:btih:1E8A4BA25C30BFF75E915CA8458CFB932E89BD31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +699,8 @@ magnet:?xt=urn:btih:1E8A4BA25C30BFF75E915CA8458CFB932E89BD31
 magnet:?xt=urn:btih:DE2132D0C327E308E85F26371679623F71CAD91E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,6 +726,8 @@ Domestika, Alexander Steenhorst | Drawing the Human Figure & Expressive Poses (2
 ```bash
 magnet:?xt=urn:btih:176636BAF3A06580A97F4CD5C55CA57291313933
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

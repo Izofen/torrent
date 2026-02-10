@@ -1,3 +1,29 @@
+###  Публикация: 1192679   (816990) от 06.01.2018
+
+Космические ЧП / Secret Space Escapes (2015) HDTVRip (1 сезон: 8 серий из 8)
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_816990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал расскажет о самых сложных, непредвиденных и опасных ситуациях, происходивших в космосе с людьми и космическими аппаратами. Вы уведите самые невероятные, опасные и ранее никогда не демонстрировавшиеся аварийные ситуации и опасные происшествия с космонавтами за всю историю космических путешествий. Каждая серия длиной в час с помощью компьютерной графики и документальных (   Читать дальше...   )Телекомпания: СШАЖанр: Документальный, космос, катастрофы, историяПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 8 х ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C10B155EE783B0F4F5E6B005DFA806E5C1B8864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 836795   (817001) от 06.01.2018
 
 Королевство океанов / Kingdom of the Oceans / Le Peuple des Oceans (2011) BDRip [H.264/720p] (1-4 серия из 4)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:B9E388CA0415196E61C08AFEADDE0675E390F54C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:B9E388CA0415196E61C08AFEADDE0675E390F54C
 magnet:?xt=urn:btih:6BD90522B4ADBF385D3B257EB32336D113367B02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:6BD90522B4ADBF385D3B257EB32336D113367B02
 ```bash
 magnet:?xt=urn:btih:59ECC88AB1168804EA11C1BE9DA82A0473C1DB9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:59ECC88AB1168804EA11C1BE9DA82A0473C1DB9C
 magnet:?xt=urn:btih:B2224D0FC5D311928107D1A72802C912995581ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ Imagine Dragons. Дым и зеркала / Imagine Dragons: Smoke + Mirrors Liv
 ```bash
 magnet:?xt=urn:btih:45F815C666E11D7CC6652E89AFF8C6114F836C41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:45F815C666E11D7CC6652E89AFF8C6114F836C41
 magnet:?xt=urn:btih:D9A4A0E7488123BBABC7C94B5884D3A10661E7E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:D9A4A0E7488123BBABC7C94B5884D3A10661E7E7
 ```bash
 magnet:?xt=urn:btih:288AA4957CCFD0CFA38EFE8C99A52EC6816F4827
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:288AA4957CCFD0CFA38EFE8C99A52EC6816F4827
 magnet:?xt=urn:btih:8D98330457342CD646E2B1B55535E7C651E74896
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:8D98330457342CD646E2B1B55535E7C651E74896
 ```bash
 magnet:?xt=urn:btih:D9187071FE3AC803EEB917FB57ACC4C217F808B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:D9187071FE3AC803EEB917FB57ACC4C217F808B3
 magnet:?xt=urn:btih:844298DEFAF15D247F133071B81004681C6B2712
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:844298DEFAF15D247F133071B81004681C6B2712
 ```bash
 magnet:?xt=urn:btih:2851A4E77B3D55A56A147742DD1C2C9B5A98F2F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:2851A4E77B3D55A56A147742DD1C2C9B5A98F2F8
 magnet:?xt=urn:btih:27A4E381E6469B30A775BA7281279950F25AD0A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:27A4E381E6469B30A775BA7281279950F25AD0A8
 magnet:?xt=urn:btih:FEC5B819F18A7D50A6DF59C166451648D54B5FD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ History Channel. Как Черчилль предал Польшу / Churchill's
 ```bash
 magnet:?xt=urn:btih:EB62C5673BD41558A4CED58253914101BA9619DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:EB62C5673BD41558A4CED58253914101BA9619DF
 magnet:?xt=urn:btih:AD3FAEF63294A51C305C62E81C81A53D98953141
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ NG. Кевин Ричардсон - Заклинатель львов / Kevin Ri
 ```bash
 magnet:?xt=urn:btih:4D3C4251D76DF3901765DFA1584DAC988299E705
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:4D3C4251D76DF3901765DFA1584DAC988299E705
 magnet:?xt=urn:btih:188E3AA32E085AF74E57A69CF4DDC1F513ABB175
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:188E3AA32E085AF74E57A69CF4DDC1F513ABB175
 ```bash
 magnet:?xt=urn:btih:C7B42925B80EC76D8153E665ED833D9332DCABA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:C7B42925B80EC76D8153E665ED833D9332DCABA9
 magnet:?xt=urn:btih:A1B6E1FDA4ABBEF91E60A760218841757AC11389
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:A1B6E1FDA4ABBEF91E60A760218841757AC11389
 magnet:?xt=urn:btih:1839B2AF1CD78EAD0929B5FE1A76987ABCD12022
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:1839B2AF1CD78EAD0929B5FE1A76987ABCD12022
 ```bash
 magnet:?xt=urn:btih:503F9A4DEC714FEC76F4DA2C10F1AC5080F67688
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:503F9A4DEC714FEC76F4DA2C10F1AC5080F67688
 magnet:?xt=urn:btih:506364102F6D5F219B3A6B7A02D88692F268A1DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:506364102F6D5F219B3A6B7A02D88692F268A1DC
 ```bash
 magnet:?xt=urn:btih:813B18AE808951D4CCC3F5819DC8B66564AA2A6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:813B18AE808951D4CCC3F5819DC8B66564AA2A6E
 magnet:?xt=urn:btih:2110E86B628F044B1A4DE9029FE3349A6C12486F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:2110E86B628F044B1A4DE9029FE3349A6C12486F
 magnet:?xt=urn:btih:65D91EA0EAC4A9B31790FD8809E50F574B8457B3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008238   (817932) от 17.04.2016
-
-Где логика? (2016.04.17) SATRip (выпуск 13)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Звездные семейные пары, партнеры по съемочной площадке, просто хорошие друзья и знакомые будут вместе пытаться выстраивать логические связи между самыми, казалось бы, нелогичными событиями, предметами или фактами. Почему мы оставляем официантам на чай, но не оставляем врачам на бинты? Для чего нам мизинцы на ногах? Зачем мыть машину в ноябре? Почему существует сухое (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:48:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:034E85B59C7DC0495F1620169DBAF88443B13665
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

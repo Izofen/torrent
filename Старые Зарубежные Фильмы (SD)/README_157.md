@@ -1,27 +1,3 @@
-###  Публикация: 1228816   (631821) от 03.06.2018
-
-Без четверти два до нашей эры / Deux heures moins le quart avant Jesus-Christ (1982) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цезарь помпезно готовится принять Клеопатру, в то время как жители его страны находятся на грани полной нищеты.Производство: Франция/ Carthago Films S.a.r.l., Renn ProductionsЖанр: КомедияРежиссер: Жан ЯннАктеры: Колюш, Мишель Серро, Жан Янн, Франсуаза Фабиан, Мишель Оклер, Мими Кутелье, Дарри Коул, Поль Пребуа, Даниэль Эмильфорк, Андре ПуссПеревод: Профессиональный (многоголосый закадровый)Субтитры: Русские (на сцены без перевода)Продолжительность: 01:33:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A69A6CB53BF3F0632BE8D06923FA28ECAAC936D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543395   (631839) от 10.04.2022
 
 Аста Нильсен. Девушка без родины / Das Madchen ohne Vaterland (1912) TVRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:A69A6CB53BF3F0632BE8D06923FA28ECAAC936D2
 ```bash
 magnet:?xt=urn:btih:376B3B26C950543C8CD0A062B241E2722A4B372D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:376B3B26C950543C8CD0A062B241E2722A4B372D
 magnet:?xt=urn:btih:CFAA2516EEFE5122A9830061961888BA533D7DF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:CFAA2516EEFE5122A9830061961888BA533D7DF8
 ```bash
 magnet:?xt=urn:btih:B9B4F107C08F1888DCD9D06AED57D0736A90FA85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:B9B4F107C08F1888DCD9D06AED57D0736A90FA85
 magnet:?xt=urn:btih:741F2235CBA730AF5C6F540A2BE922D41E2478AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:741F2235CBA730AF5C6F540A2BE922D41E2478AB
 ```bash
 magnet:?xt=urn:btih:4ADB0AB300251F41E91CB37C1A27C3A064B7D12C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:4ADB0AB300251F41E91CB37C1A27C3A064B7D12C
 magnet:?xt=urn:btih:BAEBA843CFCB1224BC05E031A7A122895FF1E87D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:BAEBA843CFCB1224BC05E031A7A122895FF1E87D
 magnet:?xt=urn:btih:E793B748B30EC03FB44C0B97F673BEE63D77A7A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:E793B748B30EC03FB44C0B97F673BEE63D77A7A3
 ```bash
 magnet:?xt=urn:btih:A978E564D58CB86EF538B758581A1F6B7E0DBA5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +229,8 @@ magnet:?xt=urn:btih:A978E564D58CB86EF538B758581A1F6B7E0DBA5D
 magnet:?xt=urn:btih:6FFEA353A1D3F325083A5BD0DAFD74EE5D428EC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:6FFEA353A1D3F325083A5BD0DAFD74EE5D428EC6
 ```bash
 magnet:?xt=urn:btih:1AC1A35B63B76EC46B198B44CAC8C74BF920C8BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +282,8 @@ magnet:?xt=urn:btih:1AC1A35B63B76EC46B198B44CAC8C74BF920C8BE
 magnet:?xt=urn:btih:292FDDA80FB6BBE3840CB735943B22C6227D6C45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +307,8 @@ magnet:?xt=urn:btih:292FDDA80FB6BBE3840CB735943B22C6227D6C45
 ```bash
 magnet:?xt=urn:btih:3F1EF3FD1E3B74BB06DA86BD0ED521C48656C8E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +334,8 @@ magnet:?xt=urn:btih:3F1EF3FD1E3B74BB06DA86BD0ED521C48656C8E7
 magnet:?xt=urn:btih:E4530D66B25D697398888F578C9591A06C393358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +359,8 @@ magnet:?xt=urn:btih:E4530D66B25D697398888F578C9591A06C393358
 ```bash
 magnet:?xt=urn:btih:9AA1342F984147F822F46AED55ED652A0DB5490A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:9AA1342F984147F822F46AED55ED652A0DB5490A
 magnet:?xt=urn:btih:32E4CDB4B687BCAA95426A005A869C88A08434C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:32E4CDB4B687BCAA95426A005A869C88A08434C7
 ```bash
 magnet:?xt=urn:btih:47EF0BD079F7B17F0389124BE6BBEA948390F9AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +438,8 @@ magnet:?xt=urn:btih:47EF0BD079F7B17F0389124BE6BBEA948390F9AE
 magnet:?xt=urn:btih:9D82FCDAC216D8BE74E2FF3F9F3B14CD7C566BA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:9D82FCDAC216D8BE74E2FF3F9F3B14CD7C566BA7
 ```bash
 magnet:?xt=urn:btih:074DB5233C7F1CB723BDB8E850B952545C411B2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +490,8 @@ magnet:?xt=urn:btih:074DB5233C7F1CB723BDB8E850B952545C411B2D
 magnet:?xt=urn:btih:3293B0137EE5E605C89D8E1482ACAEA5D8A67B86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +515,8 @@ magnet:?xt=urn:btih:3293B0137EE5E605C89D8E1482ACAEA5D8A67B86
 ```bash
 magnet:?xt=urn:btih:06D810119C1AC72CE48DEFAA960C04D2D568C27A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +542,8 @@ magnet:?xt=urn:btih:06D810119C1AC72CE48DEFAA960C04D2D568C27A
 magnet:?xt=urn:btih:87DAA34B923A6EC251BBEBAD45CD798B2889088A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +567,8 @@ magnet:?xt=urn:btih:87DAA34B923A6EC251BBEBAD45CD798B2889088A
 ```bash
 magnet:?xt=urn:btih:18CAE7D002114189C9CC6D4D9C0E0E4C9BFDF65B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +594,8 @@ magnet:?xt=urn:btih:18CAE7D002114189C9CC6D4D9C0E0E4C9BFDF65B
 magnet:?xt=urn:btih:1192CAF2EE046F43FD4475B700AAEA9041DB73BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +620,8 @@ magnet:?xt=urn:btih:1192CAF2EE046F43FD4475B700AAEA9041DB73BB
 magnet:?xt=urn:btih:06EA1F8FFA9285E79C42A6FB973F4AC6426FF141
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +645,35 @@ magnet:?xt=urn:btih:06EA1F8FFA9285E79C42A6FB973F4AC6426FF141
 ```bash
 magnet:?xt=urn:btih:C8560459C4EBE74FDA6B5F1B756336CBAA91C114
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542638   (637251) от 07.04.2022
+
+Аста Нильсен. Чужая птица / Der fremde Vogel (1911) TVRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет прост. Почтенный и состоятельный мистер Маннеринг из Нью-Йорка, с дочерью и племянником приехал на вакации в Германию, в Шпреевальде. Его молоденькая дочь Мэй умудрилась влюбиться в местного лодочника. Но папаша конечно же против. И уж коли в этом фильме снимается Аста Нильсен, то вы конечно же уже поняли, что ничем хорошим это все не закончится.
+Вот чем хорош (   Читать дальше...   )Производство: Германия, Deutsche Bioscop GmbH / Projektions-AG Union (PAGU)Жанр: Драма, мелодрама, немое киноРежиссер: Урбан ГадАктеры: Карл Клевинг, Аста Нильсен, Ханс Мирендорф, Евгения Вернер, Луис Ральф, Фрау Карстен, Ханнс Кралы, Агда НильсонПеревод: Немой с интертитрамиСубтитры: Немецкие интертитры, русские вшитые отключаемыеПродолжительность: 00:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D85EA547401A3DA83AE9C833042825114DE406C
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

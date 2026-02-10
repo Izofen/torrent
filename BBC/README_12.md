@@ -19,6 +19,8 @@ BBC: Коронация (Коронация с ее Величеством Ко�
 magnet:?xt=urn:btih:D52987DF58D1D7BF3B4DD183A60FDA2DB3105D2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:D52987DF58D1D7BF3B4DD183A60FDA2DB3105D2B
 ```bash
 magnet:?xt=urn:btih:F5EC27B34AEAAF4EAD725564748DCD83223DD13A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC: Уникальные способности животных / Animal Super
 magnet:?xt=urn:btih:E57B9CC9E692CD2DD693B6A13B93BA1D6E48A63B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BBC: Тайная жизнь близнецов / The Secret Life of Twins (2015
 ```bash
 magnet:?xt=urn:btih:2A3727A4E8A41EFBE1363EB546D8D1846DFCA672
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BBC: Джек Потрошитель: следствие возобновляе�
 magnet:?xt=urn:btih:78EFA717177C8DCDAADBF329525BAAC1ABF3758A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ BBC: Знакомьтесь, ваши предки неандертальцы / 
 ```bash
 magnet:?xt=urn:btih:9D25CA3C6CDDB47E672BEDFF4AD173F4D48B30C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ BBC: Horizon. Как победить хакеров / Defeating the Hackers (20
 magnet:?xt=urn:btih:FFB15108062DA5398736513E71AAB1B2FBFC5B92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ BBC: Райские птицы с Дэвидом Аттенборо / Attenborou
 ```bash
 magnet:?xt=urn:btih:59678E6FE81B4DE26CD578DC064179A2089E4ACA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ BBC. Дикая природа: шпион среди антилоп гну / Tr
 magnet:?xt=urn:btih:28933CFD453E3D89FFCB5D0C373D0DD12FBC13AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:28933CFD453E3D89FFCB5D0C373D0DD12FBC13AF
 ```bash
 magnet:?xt=urn:btih:B2704A6BEF60CDB7CE23F3C2FB6806344F4A0D72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ BBC: Новая Европа с Майклом Пэйлином / New Europe Wit
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ BBC: Новая Европа с Майклом Пэйлином / New Europe Wit
 ```bash
 magnet:?xt=urn:btih:F0E92D819C16C0ECDEFD0F7D8EB92C5C7343266D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ BBC: Супервулкан / BBC: Supervolcano (2005) HDTV [1080p]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ BBC: Супервулкан / BBC: Supervolcano (2005) HDTV [1080p]
 magnet:?xt=urn:btih:6068576CEB0E47451CA24B4ED4AD614510124EDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ BBC Horizon: Человек на Марсе. Экспедиция на крас�
 ```bash
 magnet:?xt=urn:btih:4E7FF21D587C60D1EFF2627E12D981C9127CD76B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ BBC: История хирургии.  Кровавое начало [5 из 5] 
 magnet:?xt=urn:btih:BB42F23F49F0E6A10DC4D12BF55E628B90D35D72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ BBC. История Христианства / A History of Christianity (2009) 
 ```bash
 magnet:?xt=urn:btih:2FFF64C801232129068458292BAAD4EF3C97F1E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ BBC. Тайные агенты Елизаветы I / Elizabeth I's Secret Agent
 magnet:?xt=urn:btih:5BA01DCFFA1B0B91AEF6CDBA394B8A4DE302DD22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ BBC: Ада Лавлейс: первая леди программировани
 ```bash
 magnet:?xt=urn:btih:3DC2199743ECFEE6DA26DB9D319BB5F48F0E1376
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ BBC. Horizon: Юпитер раскрывает свои тайны / Jupiter Re
 magnet:?xt=urn:btih:439CC8D54E5B807CC2386FE224F88CC07F954D92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 ```bash
 magnet:?xt=urn:btih:BF14692A981EE7F528833468BFBFE8414A58523C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ BBC: Двадцатка самых опасных наркотиков /BBC: The
 magnet:?xt=urn:btih:0DD32EF7AE85CD69ADB06D172F8FE4E734D424C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ BBC. Самые опасные дороги мира / World's Most Dangerous Ro
 ```bash
 magnet:?xt=urn:btih:DD377F74244B9B118773CAE32B070D70A171DF4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ BBC: Каковы размеры Вселенной? / How Big is the Universe? 
 magnet:?xt=urn:btih:87B1475A2F1A61457E482D83F17B59C2ECE1138D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ BBC: Мужчина и Женщина / The Human Sexes (1997) [H.264] DVDRip
 magnet:?xt=urn:btih:B55ED82C47AB98B726AC18CEA6DF317BD7D9B158
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ BBC Horizon: В какой Вселенной мы находимся? / Which U
 ```bash
 magnet:?xt=urn:btih:5417BF223C2B1FE0576B99E422BA26455DD8CDCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

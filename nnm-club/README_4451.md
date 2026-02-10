@@ -21,6 +21,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Memoirs of Murder 3: Behind the Scenes / Воспоминание об убий�
 ```bash
 magnet:?xt=urn:btih:659158D5A706469C8472E91D0B4277FD73266A0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Rockets - Time Machine (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Space Rock,
 magnet:?xt=urn:btih:CE35F6F5CCB4DFC90BB0B4C2773A9886A2CCF7E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:9F49464C0F052DA496B6A57DD72DCD7530407C6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ reaConverter Pro - мощный инструмент для тех, кто им�
 ```bash
 magnet:?xt=urn:btih:8C5B4ABD984A10F9AD8093A605506F9337E3AB66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ A4  I'm Alive(   Читать дальше...   )Жанр: Classic Rock, Prog Ro
 magnet:?xt=urn:btih:8F1BA2F737F46C0D386C8682EC6C51D1C277974D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:8F1BA2F737F46C0D386C8682EC6C51D1C277974D
 ```bash
 magnet:?xt=urn:btih:CCC511DE1239ED0C893FC52ECE8D514528D3B53E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:CCC511DE1239ED0C893FC52ECE8D514528D3B53E
 magnet:?xt=urn:btih:5A65DD3BB38C370A77E5776810462BC193872310
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ Punto Switcher — автоматический переключатель ра�
 ```bash
 magnet:?xt=urn:btih:451F1155CD721163342D81E2783602EF52F04D4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ CD1:
 magnet:?xt=urn:btih:0ABA56530EE919D51B7599239097A751704FD048
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ Ninja Gaiden Sigma Plus (2012) [PSVita] [EUR] [HENkaku] [Unofficial] [Ru] | R.G.
 ```bash
 magnet:?xt=urn:btih:0DB69D171FD4B60C2BCEC498110E323E8989FDCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ Loftschool, Дмитрий Полос | Разработка сайта на CMS
 magnet:?xt=urn:btih:9F26A0204634149C872FD6479356A72DB134E704
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:63D062ED2B9461A8CE497437ACEC73D64E156B62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:63D062ED2B9461A8CE497437ACEC73D64E156B62
 ```bash
 magnet:?xt=urn:btih:23972438106F4AF2A2DC1051C45379421CDC0572
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:23972438106F4AF2A2DC1051C45379421CDC0572
 magnet:?xt=urn:btih:61C1B25150A0245BC91D6ECDA02AC802592153EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:61C1B25150A0245BC91D6ECDA02AC802592153EA
 magnet:?xt=urn:btih:F982A5F784BA6D3F9F64F2F6E902B53C996CEC96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:F982A5F784BA6D3F9F64F2F6E902B53C996CEC96
 ```bash
 magnet:?xt=urn:btih:F154D6E7FF7D29D824E99CE530B673CB3F42BB15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ Devil’s Train - 3 Studio Albums (2012-2022) 3xCD [FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:EEB4FC5DD3FEA6D4E8F5AC09ECF279718E51A83F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ magnet:?xt=urn:btih:EEB4FC5DD3FEA6D4E8F5AC09ECF279718E51A83F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:EEB4FC5DD3FEA6D4E8F5AC09ECF279718E51A83F
 ```bash
 magnet:?xt=urn:btih:61359EA004E439AB475026DFDBDBBF414E432C7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +566,8 @@ magnet:?xt=urn:btih:61359EA004E439AB475026DFDBDBBF414E432C7B
 magnet:?xt=urn:btih:7E74EEDA187CD25047FE1D16A3195C9C191CC93B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ magnet:?xt=urn:btih:7E74EEDA187CD25047FE1D16A3195C9C191CC93B
 magnet:?xt=urn:btih:68E7F39EC91FF1EEBA13B298BCFFD0A0DBF37D88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ Hades (2020) [Ru/Multi] (1.37133) Repack xatab
 ```bash
 magnet:?xt=urn:btih:C910BB2AAAF6E2C5E5B2D75A99CCEB5C39F0A188
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +647,8 @@ VA - Italo Disco Extended  Versions Vol. 10 - Italo Holiday (2018) [MP3|320 Kbps
 magnet:?xt=urn:btih:82FA423BB0BB3F9A2156E8729C020591F31FE701
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ magnet:?xt=urn:btih:82FA423BB0BB3F9A2156E8729C020591F31FE701
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ magnet:?xt=urn:btih:82FA423BB0BB3F9A2156E8729C020591F31FE701
 ```bash
 magnet:?xt=urn:btih:74BDCD30519A91A21C43492CDBF096A3417B2D4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

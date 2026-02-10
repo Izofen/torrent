@@ -19,6 +19,8 @@ OTUS | Руководитель разработки (2019) PCRec
 magnet:?xt=urn:btih:187879C394A056CB21FB8F0AD88E1CD27F387B22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ React был выпущен командой веб-разработчиков F
 ```bash
 magnet:?xt=urn:btih:1F4A10A9F868A448F36482D21E5AC519CD4E7E2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Udemy, Coding Minutes, Prateek Narang | Data Structures & Algorithms Essentials 
 magnet:?xt=urn:btih:8A87CDE2D48E9330FCD5BFB48A6EADBE7E93DB36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ OTUS | Deep Learning Engineer (2018) PCRec
 ```bash
 magnet:?xt=urn:btih:801D94557CCD9534EC83018AE22337C395B277EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Allan McKay | FX Technical Director Transformation Module 12 (2015) PCRec
 magnet:?xt=urn:btih:464711C742D3B53A779620D682188E2D013CC7DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Allan McKay | FX Technical Director Transformation Module 11 (2015) PCRec
 magnet:?xt=urn:btih:034CDF6B5D542AD41357014F789784C0F40F1432
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:034CDF6B5D542AD41357014F789784C0F40F1432
 ```bash
 magnet:?xt=urn:btih:C084C377DE11E01B49B851270A318F3760014CE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Highlights School | Основы фотографии (2016) PCRec
 magnet:?xt=urn:btih:C8FE7171AF60CF27BCC5BF2043519E2BE8920513
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:C8FE7171AF60CF27BCC5BF2043519E2BE8920513
 ```bash
 magnet:?xt=urn:btih:B52A5F913EB859333489D2426DB183564637C917
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:B52A5F913EB859333489D2426DB183564637C917
 magnet:?xt=urn:btih:AB31CAE806FEC3511E8AFFE82D6F8E44F35439E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Softwaretesting, Арсений Батыров, Виталий Котов | SQL:
 ```bash
 magnet:?xt=urn:btih:A8A2C9FB0B8B827C249837FA6818118D8976F1A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ PythonYoga, Leo Trieu | Build Your Own UberEats system with Python/Django and Sw
 ```bash
 magnet:?xt=urn:btih:E38133FB84F70CE4955B54EB5866EF9B731A1381
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:E38133FB84F70CE4955B54EB5866EF9B731A1381
 magnet:?xt=urn:btih:F2560EBF1C860BF1361ED7B020B3AC042CF08D61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:F2560EBF1C860BF1361ED7B020B3AC042CF08D61
 ```bash
 magnet:?xt=urn:btih:9247555CB09E09C845BFED0539921BF7BFD9CEC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:9247555CB09E09C845BFED0539921BF7BFD9CEC7
 magnet:?xt=urn:btih:0C7D472D5A7F728A0CAE452566EF629715C737E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:0C7D472D5A7F728A0CAE452566EF629715C737E0
 ```bash
 magnet:?xt=urn:btih:4DED02DF0CAD9A5000EF5A987A2DA08F328D9305
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:4DED02DF0CAD9A5000EF5A987A2DA08F328D9305
 magnet:?xt=urn:btih:C1CC8EB11D55C4AF502DB1A0D879F79BC1CF7991
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:C1CC8EB11D55C4AF502DB1A0D879F79BC1CF7991
 ```bash
 magnet:?xt=urn:btih:A69627215D48B8480C91ECB36AA51688F6DA209F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:A69627215D48B8480C91ECB36AA51688F6DA209F
 magnet:?xt=urn:btih:1EEA178AD944D8C7347A1FAFBBACBBFD8221020F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:1EEA178AD944D8C7347A1FAFBBACBBFD8221020F
 magnet:?xt=urn:btih:9E0B9EBFB8A04E647DBEE0DF6959AAAA28FBB892
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:9E0B9EBFB8A04E647DBEE0DF6959AAAA28FBB892
 magnet:?xt=urn:btih:7BE3750B61E59437D0D4C2BDAF622F08A51B6059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:7BE3750B61E59437D0D4C2BDAF622F08A51B6059
 ```bash
 magnet:?xt=urn:btih:338FA3295101322E0517267F7D2511D0BD719F7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:338FA3295101322E0517267F7D2511D0BD719F7A
 magnet:?xt=urn:btih:E0E1C1C660BBDAE7935A1FC7BFAA1CD3EC778282
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ VFX Grace | Volcanic Eruption | Pyro FX (2021) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:69278E39FE829E2313234E28B9655C7406633816
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +665,8 @@ Sapphire FX | Houdini Ship Destruction (2020) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:684C88AF569A2B1D4BD11F58A0C756F57A57055C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +694,8 @@ magnet:?xt=urn:btih:684C88AF569A2B1D4BD11F58A0C756F57A57055C
 ```bash
 magnet:?xt=urn:btih:78B76B291B7D69D4D004A2889BF6C0C076212056
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

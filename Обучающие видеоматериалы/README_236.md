@@ -21,6 +21,8 @@ FlippedNormals | Скульптинг инопланетянина в Blender 2.
 magnet:?xt=urn:btih:34DA0134486F00CB8804193A5888F3A53918538B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:34DA0134486F00CB8804193A5888F3A53918538B
 magnet:?xt=urn:btih:9B9516A1714A24477B074E5B3B070CC0F9B5C992
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ ProfIT | Правильный деплой приложений на PHP (2015) 
 ```bash
 magnet:?xt=urn:btih:55EDD79B07F4F407629A8038B3C9525FFBB3132C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Yandex  Speech Kit, Энтони Роббинс | Деньги. Мастер и�
 magnet:?xt=urn:btih:F12ECF2B3E2A33D8FD73DD2073D4A189926C498A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ kalachevaschool, Анна Михеева | Ювелирные украшения
 magnet:?xt=urn:btih:2D9E5976816C8D07299B2FAC5FB6D7F2DC9937D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Motion Design School | Cinema 4D Journey (2019) PCRec [H.264/1080p-LQ] (урок
 ```bash
 magnet:?xt=urn:btih:2BA8D09F91B785175C254C741D5B906E025F57ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:2BA8D09F91B785175C254C741D5B906E025F57ED
 magnet:?xt=urn:btih:7C768F13DE304CA8E9F1EC711AB3176F8CB54CA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ kalachevaschool, Александра Балашова | Мужские перс
 magnet:?xt=urn:btih:BE2DEBE0656AD45E12A145F2D50DFD1002A2018F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ kalachevaschool, Александра Балашова | Волшебные су
 ```bash
 magnet:?xt=urn:btih:1C3CE65172860D3721D50D2D9CFEB4E453EE320B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ kalachevaschool, Александра Балашова | Героини сказ
 magnet:?xt=urn:btih:3DE782442E98D0FCB3601D71C565585142489960
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ kalachevaschool, Светлана Плакасова | Лиловая глици
 magnet:?xt=urn:btih:F74FA34F0C21E7A1376A7389F9C4770C10AF90BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Cisco CCNP Enterprise ENCOR от ITProTV (350-401) поможет вам изу�
 ```bash
 magnet:?xt=urn:btih:3F8A567EABBB5F3795458375EC37F42110BFA600
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ kalachevaschool, Светлана Плакасова | Синий ирис (2018
 magnet:?xt=urn:btih:61238F259DCEFFDF44097290355B2A1DFA2D59A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ kalachevaschool, Светлана Плакасова | Красный пион (
 ```bash
 magnet:?xt=urn:btih:0C2AC226DC0251AC33B0B00490878F50D9E0A98D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ kalachevaschool, Анна Михеева | Вечерние платья (2018) 
 ```bash
 magnet:?xt=urn:btih:440B1AB2900908EA43941F534E3948FD767ABDB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ kalachevaschool, Анна Михеева | Стильные аксессуары
 magnet:?xt=urn:btih:DE3D3C8B7CF963681AB5FCFD04D94517230B126A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Pluralsight.com | JavaScript объекты, прототипы и классы 
 ```bash
 magnet:?xt=urn:btih:E90E1C5B0E8E452B1404A3B02329D88BE5C7B52F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ Pluralsight.com | Объединение и фильтрация данных в
 magnet:?xt=urn:btih:DA8F87DE397557AB245FC8FEE8D754A376184554
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ ProfIT | Git для профессионалов (2016) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:16AAC77B12E400A47C6AD6C51720759C7042779F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:16AAC77B12E400A47C6AD6C51720759C7042779F
 magnet:?xt=urn:btih:1EC81CF054655F50337151C76E28EEFB50C1033C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:1EC81CF054655F50337151C76E28EEFB50C1033C
 ```bash
 magnet:?xt=urn:btih:90A85F5FF7DD213185E571108D49F7CB675C5B4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ Profileschool | Введение в предметную съемку (2015) PCR
 magnet:?xt=urn:btih:B054DF758B273640380084F534C39B00F752B256
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ FL Studio Guru - Видеоуроки от оффицального сайта. 
 ```bash
 magnet:?xt=urn:btih:FB2CB6480E1A5048323410DBED866E254C7AC784
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ Udemy, Диана Голяш | Профессия SEO специалиста с 
 ```bash
 magnet:?xt=urn:btih:C3FDDAAC69CBF327FA7B2D50FF09B5060D61E0B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +660,8 @@ YanSculpts | Скульптинг для начинающих в Blender 2.79 и
 magnet:?xt=urn:btih:980AAC7FE8B40F5F58F23A43CDFE9D9367D0570F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ Udemy, Neil Bettison | Создание средневековой катапу�
 ```bash
 magnet:?xt=urn:btih:EAA9C405E2F03510A1400EB5C325B4C587616112
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

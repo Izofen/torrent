@@ -19,6 +19,8 @@ Andain - Much Too Much (Official Music Video)Жанр: МузыкаРежисс�
 magnet:?xt=urn:btih:3F07D3132C410B961D86B52D16D0DEE0DB303028
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Larry Coryell & Emily Remler - Together (1985) [FLAC|Lossless]<Concord Jazz>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ Gromth - The Immortal (2011) [MP3|240 - 320 кб/с]<Symphonic Black Metal>
 magnet:?xt=urn:btih:C20BFB57D75CB40FAC9A9C9655D855D7B1412E3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +120,8 @@ Ruff Ryders - Past Present Future (Hosted By DJ Khaled) (2012) [MP3|160 кб/с]
 ```bash
 magnet:?xt=urn:btih:54E54488B14501640A297B542F25FA6404665C36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +156,8 @@ Roadstar - Grand Hotel (2006) [MP3|320 кб/с]<Hard Rock>
 magnet:?xt=urn:btih:A1C3E27FF94D73EC7B86CF68277F6FC62C97F7CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +186,8 @@ Emika - 3 Hours EP (2012) [MP3|320 kbps]<Electronic>
 magnet:?xt=urn:btih:72678659BC436D93B45D9513ABC230C1FE995B46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +211,8 @@ magnet:?xt=urn:btih:72678659BC436D93B45D9513ABC230C1FE995B46
 ```bash
 magnet:?xt=urn:btih:72DAAC0D8B5D0012FC0A4F3E5D88013E5367B62F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +247,8 @@ Red Samara Automobile Club - Прозрачно (2012) [MP3|320 кб/с]<Rock, I
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +282,8 @@ Armin van Buuren - A State of Trance 549 SBD (23.02.2012) [MP3|320 кб/с]<Tran
 magnet:?xt=urn:btih:864178E2C1FDE593B005FDCBC25F44E9F0AC5BAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +307,8 @@ magnet:?xt=urn:btih:864178E2C1FDE593B005FDCBC25F44E9F0AC5BAB
 ```bash
 magnet:?xt=urn:btih:64EA005C97B698584A04E1A35A04C8B846D82F35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +342,8 @@ Infinity - Control Group (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +369,8 @@ Infinity - Control Group (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 magnet:?xt=urn:btih:B8BD5849DC07493AB3C6D4F467A4F7ADFE2A992C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +394,8 @@ magnet:?xt=urn:btih:B8BD5849DC07493AB3C6D4F467A4F7ADFE2A992C
 ```bash
 magnet:?xt=urn:btih:B6B73F52614694FFF52E4B329CDB39D07FCB5A1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +430,8 @@ Dj VoJo - CLUB DESIRE vol.10 - Dancing Humanity (2012) [MP3|320 кб/с]<Electro
 magnet:?xt=urn:btih:CB353CF9B0781DC554FFFDDBA8E98A84EF01939E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +455,8 @@ magnet:?xt=urn:btih:CB353CF9B0781DC554FFFDDBA8E98A84EF01939E
 ```bash
 magnet:?xt=urn:btih:D267F5C5CCEA013062E0ABB8A33F20B06716FBDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +482,8 @@ magnet:?xt=urn:btih:D267F5C5CCEA013062E0ABB8A33F20B06716FBDB
 magnet:?xt=urn:btih:75942822412E6546157010C4AC4BAF5DC16C0EF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +507,8 @@ magnet:?xt=urn:btih:75942822412E6546157010C4AC4BAF5DC16C0EF5
 ```bash
 magnet:?xt=urn:btih:D2306C95D917E33B5DD2A5416F9D30F8C38C0B24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +543,8 @@ Fuge (Венгрия) - Fuge (2010) [MP3|320 кб/с]<Progressive/Math Metal>
 magnet:?xt=urn:btih:A201C94DDB1EC6678937E470305F74F41526EEA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +577,8 @@ Mena Brinno - Icy Muse (2007) [MP3|192 кб/с]<Symphonic Gothic Metal>
 magnet:?xt=urn:btih:3A29D3DBD6E22B869F473693D0FA0F52165C6133
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +604,8 @@ magnet:?xt=urn:btih:3A29D3DBD6E22B869F473693D0FA0F52165C6133
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +629,8 @@ magnet:?xt=urn:btih:3A29D3DBD6E22B869F473693D0FA0F52165C6133
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +658,8 @@ magnet:?xt=urn:btih:3A29D3DBD6E22B869F473693D0FA0F52165C6133
 magnet:?xt=urn:btih:BFA7759587AEA19D76DF67D0D28AD039D1DD0CF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +683,8 @@ Esquie — экспериментальный шрифт, состоящий и�
 ```bash
 magnet:?xt=urn:btih:8B836C219187371FEB14FA2215214622C9B53A28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +713,8 @@ VA - The Orient Collective: Nomadic Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:0D1ACD7FE87F3D8E707FC61B06F36763905F5F62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -691,6 +739,8 @@ NG. Затерянные в джунглях / Lost in the Jungle (2025) WEB-DL 
 magnet:?xt=urn:btih:7E0396BC980C8891E946D0825E09E1563F9B9426
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -714,6 +764,8 @@ magnet:?xt=urn:btih:7E0396BC980C8891E946D0825E09E1563F9B9426
 ```bash
 magnet:?xt=urn:btih:608B4AFE008848DED0254BD35B8B3723702F439E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

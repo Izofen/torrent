@@ -1,3 +1,29 @@
+###  Публикация: 950899   (367409) от 27.10.2015
+
+Александр Сосновский | Кабинет доктора Либидо. Том I (А – Б) (2015) [FB2]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книжная серия из девяти томов. Уникальное собрание более четырехсот биографий замечательных любовников всех времен и народов. Только проверенные факты, без нравоучений и художественного вымысла. С приложением иллюстраций и списков использованной литературы. Персоналии, которые имеют собственное описание, в тексте других статей выделены полужирным шрифтом. В оформлении (   Читать дальше...   )Жанр: Биографии и мемуары, историяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED0972CDD13A091F8CD08A35457EE071EF2EF8D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950905   (367410) от 27.10.2015
 
 Александр Сосновский | Кабинет доктора Либидо. Том II (В – Г) (2015) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:4212388A3973072259BFCF592F3EFC04A7AC3A10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:4212388A3973072259BFCF592F3EFC04A7AC3A10
 magnet:?xt=urn:btih:6F670245033A0206A710982CAAC0E40112B47825
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:6F670245033A0206A710982CAAC0E40112B47825
 ```bash
 magnet:?xt=urn:btih:C010E54F65A2A13C6379EEFDEDC7781B822C5D9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:C010E54F65A2A13C6379EEFDEDC7781B822C5D9B
 magnet:?xt=urn:btih:BEA5C5C7C2A2E2BE21EFF48B83274D2B605EF273
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:BEA5C5C7C2A2E2BE21EFF48B83274D2B605EF273
 magnet:?xt=urn:btih:362E64102738402B969FDD9A5A86AEE238691501
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:362E64102738402B969FDD9A5A86AEE238691501
 ```bash
 magnet:?xt=urn:btih:9929A8C761BCEF0EFD863230B2D76EB12C2FAC5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:9929A8C761BCEF0EFD863230B2D76EB12C2FAC5C
 magnet:?xt=urn:btih:AAFDD8859B6EF616896AAB98BEFB918A0361F257
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:AAFDD8859B6EF616896AAB98BEFB918A0361F257
 magnet:?xt=urn:btih:8A4EEFFE3541F57947B1BBD4845052034E07478F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:8A4EEFFE3541F57947B1BBD4845052034E07478F
 ```bash
 magnet:?xt=urn:btih:C3571281D0319A5563A0A20D70DFFAA7F6266C7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:C3571281D0319A5563A0A20D70DFFAA7F6266C7B
 magnet:?xt=urn:btih:C91FA4E14E7B44D44923677AE932ED1A31397E87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:C91FA4E14E7B44D44923677AE932ED1A31397E87
 ```bash
 magnet:?xt=urn:btih:EAC4C1584917F2C38EBA4185F9F29EB478738987
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:EAC4C1584917F2C38EBA4185F9F29EB478738987
 magnet:?xt=urn:btih:0AF0CCDD4EBE6C99C8C2162D163AA42D1BC31FB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:0AF0CCDD4EBE6C99C8C2162D163AA42D1BC31FB7
 magnet:?xt=urn:btih:B2CD5BF8C46D22A8C9970B970588FE21E4C9932A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +392,8 @@ magnet:?xt=urn:btih:B2CD5BF8C46D22A8C9970B970588FE21E4C9932A
 magnet:?xt=urn:btih:6F08B6EB5F761BA7B23F19BED3D92A093724C54E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:6F08B6EB5F761BA7B23F19BED3D92A093724C54E
 ```bash
 magnet:?xt=urn:btih:2F66719C2727D436CF3B6585C15087CA757B031C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +446,8 @@ Ten-Kort | Как сделать лук и арбалет в домашних у
 magnet:?xt=urn:btih:B9D0C7AE79157B8DAA43BF45FB43A40CA2BED607
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:B9D0C7AE79157B8DAA43BF45FB43A40CA2BED607
 ```bash
 magnet:?xt=urn:btih:D6380161F12D1ED75D511F5E8D8C88497903672D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +500,8 @@ magnet:?xt=urn:btih:D6380161F12D1ED75D511F5E8D8C88497903672D
 magnet:?xt=urn:btih:DA8642EA58F13984A2389548F299F3205094BC7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +528,8 @@ magnet:?xt=urn:btih:DA8642EA58F13984A2389548F299F3205094BC7B
 magnet:?xt=urn:btih:19DF148FEE2EA658C9BB9C16D4F61DEAD9FB7A25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +554,8 @@ magnet:?xt=urn:btih:19DF148FEE2EA658C9BB9C16D4F61DEAD9FB7A25
 magnet:?xt=urn:btih:5B7F1E511C64C5BF0E7AF7E11378A2072AF25168
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:5B7F1E511C64C5BF0E7AF7E11378A2072AF25168
 ```bash
 magnet:?xt=urn:btih:16CED25B07A9B325F2FA27BF55862397BAAC2ECA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +608,8 @@ magnet:?xt=urn:btih:16CED25B07A9B325F2FA27BF55862397BAAC2ECA
 magnet:?xt=urn:btih:6544E334BCFE93FE434E51F37B0570A67F06355F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +633,8 @@ magnet:?xt=urn:btih:6544E334BCFE93FE434E51F37B0570A67F06355F
 ```bash
 magnet:?xt=urn:btih:C3C54DD8588F8DFDA800988401A504A831890DEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +660,8 @@ magnet:?xt=urn:btih:C3C54DD8588F8DFDA800988401A504A831890DEC
 magnet:?xt=urn:btih:F4F16F6B97D2A8477E576035CA7C091D2EA38731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,29 +686,7 @@ magnet:?xt=urn:btih:F4F16F6B97D2A8477E576035CA7C091D2EA38731
 magnet:?xt=urn:btih:F8EE4C55FF008CA80BA58A65770220806CC9AF96
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254757   (367937) от 16.10.2018
-
-Нора Гоан | Энциклопедия узоров. Косы, жгуты, араны. Вязание на спицах (2017) [PDF]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые на русском языке революционное практическое руководство знаменитого во всем мире дизайнера Норы Гоан по вязанию потрясающих узоров и мотивов с косами, жгутами и аранами. Автор, известная разрушением всех стереотипов в подходе к современному вязанию, представляет свой уникальный авторский метод: наглядно и подробно показывает как не только использовать ее (   Читать дальше...   )Жанр: Домоводство; ЭнциклопедииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FF39404A839B92C6244C3E1BD5C1AB5499628C0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

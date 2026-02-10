@@ -19,6 +19,8 @@ L. A. Noire The Complete Edition [Ru/En] (1.3.2613/Repack) 2011 | UltraISO
 magnet:?xt=urn:btih:170D55FAB8373EDD900F463FDBBA1A4DEE986D1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ VA - Русский Хитовичок (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:088F16344BA5B3A0634AA583DC1AA3C7311B9AA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -83,6 +87,8 @@ Myrkvar - Als Een Woeste Horde (2008) [MP3|320 кб/с]<Folk\Viking Metal>
 ```bash
 magnet:?xt=urn:btih:0261D4139EE3CEF72C4FDFCFA6B47D3D763E1D56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +123,8 @@ S'n'D - Место для свалки(2010)[MP3|320kbps]<Punk>
 magnet:?xt=urn:btih:ECB1EAA231D99F7A54A74DBD0C3AE211E46694AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +153,8 @@ VA - 6 Blues Giants Live! - vol.2 (2007) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:8B94EFC5F58624922C5789B33D26F7FF80D111A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +185,8 @@ magnet:?xt=urn:btih:8B94EFC5F58624922C5789B33D26F7FF80D111A0
 magnet:?xt=urn:btih:9BDA045BBF00CB2602ECCB9C0C9E9A7363F82B78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +211,8 @@ magnet:?xt=urn:btih:9BDA045BBF00CB2602ECCB9C0C9E9A7363F82B78
 magnet:?xt=urn:btih:118E35A681DB23923A65704DFDD5688AAF51C6F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +236,8 @@ magnet:?xt=urn:btih:118E35A681DB23923A65704DFDD5688AAF51C6F5
 ```bash
 magnet:?xt=urn:btih:63E8C881771FEF83DBB88D25C5E10777CA2F526F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +272,8 @@ VA - Доля Воровская Выпуск 5 (2012) [MP3|256 кб/с]<Шан�
 magnet:?xt=urn:btih:C8D77D8420593F4C6CE6AD76DD16E5CA186CBD3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +306,8 @@ Disc 01
 ```bash
 magnet:?xt=urn:btih:3EDC8F2AB585C9835533B216047C00B9006ECC61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +342,8 @@ VA - High Contrast Presents: Miami 2012 (2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:CA6E5E6F980FBE63180573C1F6248BCB46BA6012
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +375,8 @@ BCee feat. Robert Owens - Keep The Faith (Spearhead SPEAR042DG, 2012) [MP3|320 �
 magnet:?xt=urn:btih:09B13A9874B6AB3B8E7D0592092E40E9E3FCBCC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +400,8 @@ magnet:?xt=urn:btih:09B13A9874B6AB3B8E7D0592092E40E9E3FCBCC1
 ```bash
 magnet:?xt=urn:btih:7F5F443CC3806D00BF6AAB2B0C62F24021EDB070
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +432,8 @@ magnet:?xt=urn:btih:7F5F443CC3806D00BF6AAB2B0C62F24021EDB070
 ```bash
 magnet:?xt=urn:btih:418E6517D3308E8F9D57E2E76F02ED7890A7CB03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +468,8 @@ magnet:?xt=urn:btih:418E6517D3308E8F9D57E2E76F02ED7890A7CB03
 magnet:?xt=urn:btih:F1410C8EA110B60A95A9FB1E7AEF26608BC75FF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +503,8 @@ VA - Trance Energy May (2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:EB5AA9D117423B4FBA66E2BC1AA83ADE1402C731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +533,8 @@ magnet:?xt=urn:btih:EB5AA9D117423B4FBA66E2BC1AA83ADE1402C731
 magnet:?xt=urn:btih:805F132A89391C8DCE3BB015723749BE800D07E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +559,8 @@ magnet:?xt=urn:btih:805F132A89391C8DCE3BB015723749BE800D07E3
 magnet:?xt=urn:btih:886D1BD5CBDA75046DB9F925FDBE0773DB42DB22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +584,8 @@ magnet:?xt=urn:btih:886D1BD5CBDA75046DB9F925FDBE0773DB42DB22
 ```bash
 magnet:?xt=urn:btih:94E528F5124DE95B3B4757F0C944394E42A03A88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +616,8 @@ VA - 6 Blues Giants Live! - vol.1 (2007) [MP3|320 кб/с]<Blues>
 magnet:?xt=urn:btih:385FFDCC94EACD5EAA03935134BCBFE61A722AE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +642,8 @@ magnet:?xt=urn:btih:385FFDCC94EACD5EAA03935134BCBFE61A722AE0
 magnet:?xt=urn:btih:7027748BC7765FDED7A5A8DF03439C5EA7AB850A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +667,8 @@ magnet:?xt=urn:btih:7027748BC7765FDED7A5A8DF03439C5EA7AB850A
 ```bash
 magnet:?xt=urn:btih:3B7AD9D45A7E61B25A574C1A399011FA63DFB6C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +703,8 @@ VA - Диджей качает ритм (2012) [MP3|256 кб/с]<Dance, Club>
 magnet:?xt=urn:btih:100CD2B03DED85D45EC9A15C41E2F57DCDE154ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -685,6 +731,8 @@ The story of John Goodnight continues.
 magnet:?xt=urn:btih:4D75E6FBFEF06CAC67DE450B36EB6D3B40C6A766
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -710,6 +758,8 @@ magnet:?xt=urn:btih:4D75E6FBFEF06CAC67DE450B36EB6D3B40C6A766
 ```bash
 magnet:?xt=urn:btih:D937696458EE8A17A70D5B00254C6BD55CCC16A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -743,6 +793,8 @@ Molly Hatchet - Regrinding The Axes (2012) [MP3|224 кб/с]<Hard Rock/Southern 
 ```bash
 magnet:?xt=urn:btih:B499315F2C2A85F0A56A1E9682FA485873E0C468
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D4BD77C2C468FF877CDDD5481DBDAA6DE47A055B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Text Editor Pro 27.7.1 + Portable + Bonus [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0BA6EB23E71EC7FEFEF38663380DDA39EF0D06E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 magnet:?xt=urn:btih:2510FCDE276DCD1027AD186640D84E6D348442F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 magnet:?xt=urn:btih:29601E2CBD7201F24F22C09AF87224212BC5367D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Skype - бесплатная программа для текстового, г�
 ```bash
 magnet:?xt=urn:btih:94D8C891F7655A6E3E309AA2D4EB4862B657D388
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Noize MC - Царь Горы (2016) [FLAC|Lossless|tracks] <Rap, Rap-Rock, Alter
 magnet:?xt=urn:btih:883F5A9A9D20B65352B30EE28D25FE062130B305
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Live - это быстрое и гибкое программное обеспе
 magnet:?xt=urn:btih:F705AA91ED837536B0FC27E2B51F8A0532941E23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:4DCD942CFE509B1EA0008250C0FA859C9CA81960
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ VA - Digital Society Recordings 2015 - The Yearmix (Mixed by Cold Rush) (2015) [
 magnet:?xt=urn:btih:4F62A6F8F1596E51C0CFD9286E154D7F89D42A62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Smart Defrag - дефрагментатор, позволяющий довест
 ```bash
 magnet:?xt=urn:btih:93DC7919B09B11F7E60027F75A31B43C6AC478FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Air Explorer Pro — один из лучших файловых менедже�
 magnet:?xt=urn:btih:DEB6559FF94B4D4ADA84C0BC1C6A80E7B8343C14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Luminar Neo 1.14.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:020F006189D429DFD9EEFF526AA6817DE967C5D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Antivirus Removal Tool - портативный набор официальны�
 magnet:?xt=urn:btih:58DBCDE9D151633EDCAEF8700B4178BEC48FE574
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:58DBCDE9D151633EDCAEF8700B4178BEC48FE574
 ```bash
 magnet:?xt=urn:btih:AB4A706072A75219FD02CF3F46698E88AA51AB84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ NAMO - это приложение, которое помогает запуст
 magnet:?xt=urn:btih:93413C5B61DA035476EE960CF7E376D503AF6F90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Apowersoft Screen Capture Pro – многофункциональная про�
 ```bash
 magnet:?xt=urn:btih:05E27B0F28FCB12B5993645A036A1386E8F0CAED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ Audio Playr App может обрабатывать почти все, если 
 magnet:?xt=urn:btih:9AD873EEFBAD02C2A4E50C8847B4F7CA7D4EBF72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ Omni Recover для macOS позволяет восстанавливать уд
 magnet:?xt=urn:btih:083FADFF4DAB26645F0F1E173ED96FE6D355A9EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ Get Backup Pro - Универсальная утилита для выполне
 ```bash
 magnet:?xt=urn:btih:7127C7DB52406D1C5527D75A30322839DFC843EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ AnyTrans, не в пример iTunes, прост и интуитивен. Ка�
 magnet:?xt=urn:btih:5CECB34B7FFBA45D597FCB3206B9BF291F2BA69A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ R-Wipe & Clean - программа для невосстановимого уд
 ```bash
 magnet:?xt=urn:btih:959EEC1D66DC29376094A39ECE91E5546C3C7BDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ Swift Publisher - это пакет графических утилит для m
 magnet:?xt=urn:btih:BA4F12FB3A11C6A1EDFB9A77DFD122FD700F5E04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ Dont Sleep - утилита, которая временно может откл
 magnet:?xt=urn:btih:3C5556FE0F40119B2D2C80A962B29CAC7C614BF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ Storyist для Mac OS - является мощной средой для ра�
 ```bash
 magnet:?xt=urn:btih:C2BB632EE7D2D1C30D04A3FDAEA7F02CBFA303D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ Text Edit Plus — это простой, но мощный текстовый �
 magnet:?xt=urn:btih:57A91D1E0DF67FDC010CC5DBDD05B490259966CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ DxO PureRAW 3 for Mac v.3.6.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:2B31472FAF76E0B74D7A9D4DEC084882DBB71612
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

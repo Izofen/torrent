@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5CA932612AE6F9BBDA2060A669A0B217BD97B688
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:5CA932612AE6F9BBDA2060A669A0B217BD97B688
 magnet:?xt=urn:btih:491CAA3E5BD97262DC6F950815CE0453646901A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:491CAA3E5BD97262DC6F950815CE0453646901A5
 ```bash
 magnet:?xt=urn:btih:02540FEB3F4C672003D916436B3F69A8A4D5D0E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ VA - The Very Best Of Vocal Trance (2014) [MP3|320 кб/с]<Trance, Vocal Trance
 magnet:?xt=urn:btih:FC14C730011382CE1C0C583BF8BD550C0F07BC4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Fast Video Cutter Joiner - программа 2-в-1 для быстрой ре�
 ```bash
 magnet:?xt=urn:btih:6FC42473EA56A88AC77D360034580E299EA23049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Bobina - Speed Breaker (2016) [MP3|320 кб/с] <Progressive Trance, Progressive
 magnet:?xt=urn:btih:D8B745988951118D55D373C76CC54CF4265C5ECA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Priest Simulator - экшен от первого лица, где вы возь
 magnet:?xt=urn:btih:90D6CC1EFFB2B4F902FC09C3EF666A91074371AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:90D6CC1EFFB2B4F902FC09C3EF666A91074371AD
 ```bash
 magnet:?xt=urn:btih:42D189F92B2699819127E47CFF0021208B93EBDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:42D189F92B2699819127E47CFF0021208B93EBDB
 magnet:?xt=urn:btih:67B19C65DCECCB82E5F72B178DE1A53E60C79669
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:67B19C65DCECCB82E5F72B178DE1A53E60C79669
 ```bash
 magnet:?xt=urn:btih:CD850E27837E71888B6F620FECB6EE35CB3514D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ VA - Vocal Trance Hits 2015-02 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 magnet:?xt=urn:btih:B2810102C450DA58DB4107FF9A0838F43800C53F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:B2810102C450DA58DB4107FF9A0838F43800C53F
 magnet:?xt=urn:btih:7AC54E7423A35E4817A8D2737E5CD11722B06984
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:7AC54E7423A35E4817A8D2737E5CD11722B06984
 ```bash
 magnet:?xt=urn:btih:0FEDF7E4C3291BA74F0F3C0523E625610E89E089
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:0FEDF7E4C3291BA74F0F3C0523E625610E89E089
 magnet:?xt=urn:btih:C285F2EA983DC42147620A14673FC98D7F1FA7A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:C285F2EA983DC42147620A14673FC98D7F1FA7A3
 ```bash
 magnet:?xt=urn:btih:B0D1678405FDA01E6D646EA1BC8261145E5714E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ Never Alone / Kisima Ingitchuna (2014) [Ru/Multi] (build 16726002) Repack dixen1
 magnet:?xt=urn:btih:4D6443F0B0434493BB9A81B089B96D3C455E5CCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ Conscript (2024) [Ru/Multi] (107/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:4B0E010C3600810413CA15CE3EC825E92EF03674
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:4B0E010C3600810413CA15CE3EC825E92EF03674
 magnet:?xt=urn:btih:EA3A8E147E41DF4353038D227230C9AEC5F42FBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ G.O.P.O.T.A 2 / Г.О.П.О.Т.А 2 (2024) [Ru/En] (1.1) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:C747864E995B719E623D8442F34D7BE9B21FE182
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:C747864E995B719E623D8442F34D7BE9B21FE182
 magnet:?xt=urn:btih:37E320D615B07A371A4E6BA0EB71EDFF98234FFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:37E320D615B07A371A4E6BA0EB71EDFF98234FFA
 magnet:?xt=urn:btih:C2406AFDA7F19A04BD0232B716F1C9E84EBC48DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:C2406AFDA7F19A04BD0232B716F1C9E84EBC48DE
 ```bash
 magnet:?xt=urn:btih:6C3DA813A796542BB1C1DBC82EC250FC9430D7A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:6C3DA813A796542BB1C1DBC82EC250FC9430D7A6
 ```bash
 magnet:?xt=urn:btih:68882F7E9EB6AB68182B169F02C430F65CE7DB05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ Didier Marouani & Space  - New Collection (2009) [MP3|320 кб/с]<Synthpop>
 magnet:?xt=urn:btih:2ACDB3BABE1148F29DCDA6E6CAFB2EF41B83BC8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:2ACDB3BABE1148F29DCDA6E6CAFB2EF41B83BC8D
 ```bash
 magnet:?xt=urn:btih:9DF5BCA77B1E1A11DAE01A5741DE76ABCB736998
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +688,8 @@ Garmin: Дороги России Топо 6.47 [Ru]
 ```bash
 magnet:?xt=urn:btih:FA7FDD02F0443139357F65BF331DC475171EF8D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

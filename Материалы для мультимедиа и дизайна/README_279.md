@@ -1,3 +1,134 @@
+###  Публикация: 1228485   (635555) от 01.06.2018
+
+Экшены - GraphicRiver - NEOarch Architecture Vintage Antique PS Action Advanced - 21930957 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635555.jpg" />
+</div>
+
+
+###  Подробнее
+
+NEOarch Architecture Vintage Antique - творческий многофункциональный экшен фотошоп в считанные минуты превратит ваши изображения в профессиональные художественные работы в винтажном стиле. Легко настраивается и улучшается.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:856D06862C2A0AA164EB0953DF62802AEAB03266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228095   (635561) от 01.06.2018
+
+Текстуры - Creative Market - Marbleized Gold Patterns & Textures - 575378 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные золотые текстуры и узоры под металл и акварель.
+Автор: Blixa 6 Studios.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB7C4A937CD9157EC99B60BE836C682F609F1BA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033494   (635688) от 12.07.2016
+
+Пресеты - VideoHive - Text Preset Volume I for Animation Kit [JSXBIN, JSXINC]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Text Preset Volume I for Animation Kit - представляет собой набор из предустановленных эффектов, которые превращают ваши статичные тексты, формы или изображения в "живую" анимацию. После установки, просто перетащите нужный пресет в вашу предварительно подготовленную композицию на тайм-лайне.Формат: JSXBIN, JSXINC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16C29B28DF5413B4395B244DFABD9B9EEB1BCE82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 681727   (635791) от 20.07.2013
+
+Шаблоны - GraphicRiver - CD/DVD Disc & Cover Mockups [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635791.jpg" />
+</div>
+
+
+###  Подробнее
+
+6 уникальных макетов CD-DVD дисков для ваших музыкальных сборников.Формат: PSDРазрешение файлов: 2400x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF9DA782D54840602CD0F777C1CFE75E4767CC7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 681457   (635793) от 20.07.2013
+
+Растровый клипарт - Вынос мозга / Fracture Of The Head [JPEG,PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вынос мозгаРазрешение файлов: 1200х1800-6000х4600Формат: JPEG,PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DCFC02F41E5418C23B203381B60789C103F68E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 681737   (635797) от 20.07.2013
 
 Шаблоны - GraphicRiver - CD/DVD Mockups V.1 [PSD]
@@ -18,6 +149,8 @@
 ```bash
 magnet:?xt=urn:btih:BCBD1039B21D44ED118C951CF797E46CB35E0B92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +176,8 @@ magnet:?xt=urn:btih:BCBD1039B21D44ED118C951CF797E46CB35E0B92
 magnet:?xt=urn:btih:7772BADEDFEFB8C2A02660CDEE0D8DAD51993F82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +202,8 @@ magnet:?xt=urn:btih:7772BADEDFEFB8C2A02660CDEE0D8DAD51993F82
 magnet:?xt=urn:btih:00BD0F4EC5913F738792395BE557594C419007FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +227,8 @@ magnet:?xt=urn:btih:00BD0F4EC5913F738792395BE557594C419007FE
 ```bash
 magnet:?xt=urn:btih:EDB2313C2A8981D6FCE8CAC26ACBAA590665CE6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +257,8 @@ magnet:?xt=urn:btih:EDB2313C2A8981D6FCE8CAC26ACBAA590665CE6F
 magnet:?xt=urn:btih:85946DA89D2FABC40AF1E871ECD9378206B4F960
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +283,8 @@ magnet:?xt=urn:btih:85946DA89D2FABC40AF1E871ECD9378206B4F960
 magnet:?xt=urn:btih:E28109DFEDBB9069AB48F5F2CCE5079BA5977957
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +308,8 @@ SketchyMood - экшен для Вашего творчества. Многие 
 ```bash
 magnet:?xt=urn:btih:D930C6170CEBAC33258BF087C49CEE314F12D006
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +338,8 @@ magnet:?xt=urn:btih:D930C6170CEBAC33258BF087C49CEE314F12D006
 magnet:?xt=urn:btih:C4FE26819A87ACCFC38A6C37B605A8C28B36312F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +363,8 @@ Scene Creator 5K - это инструмент высокого разрешен
 ```bash
 magnet:?xt=urn:btih:E770A31488B4A7AEB401275FDB932D0679417326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +390,8 @@ magnet:?xt=urn:btih:E770A31488B4A7AEB401275FDB932D0679417326
 magnet:?xt=urn:btih:6A28527200D5CDB621A1F3AA53342BACFE125F3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +416,8 @@ magnet:?xt=urn:btih:6A28527200D5CDB621A1F3AA53342BACFE125F3B
 magnet:?xt=urn:btih:00550108FF98757BEC266AC2CA42D08E30A7D6F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +441,8 @@ magnet:?xt=urn:btih:00550108FF98757BEC266AC2CA42D08E30A7D6F7
 ```bash
 magnet:?xt=urn:btih:C8D0DB06A9F2C7A11B3A01D2A184E248CB1A67A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +470,8 @@ magnet:?xt=urn:btih:C8D0DB06A9F2C7A11B3A01D2A184E248CB1A67A0
 magnet:?xt=urn:btih:33F7137BCEF47C7E6654BC0AF41BEBEB8C90A18E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +498,8 @@ magnet:?xt=urn:btih:33F7137BCEF47C7E6654BC0AF41BEBEB8C90A18E
 magnet:?xt=urn:btih:7E39FFF13BABAB23DFCD1E1C15FED888EEFB993E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +523,8 @@ magnet:?xt=urn:btih:7E39FFF13BABAB23DFCD1E1C15FED888EEFB993E
 ```bash
 magnet:?xt=urn:btih:1283EE8F45419BC037A09806305D0DC98E878FBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +550,8 @@ magnet:?xt=urn:btih:1283EE8F45419BC037A09806305D0DC98E878FBE
 magnet:?xt=urn:btih:0BD10F122E7587113F75577C39D3F034479D132B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +576,8 @@ magnet:?xt=urn:btih:0BD10F122E7587113F75577C39D3F034479D132B
 magnet:?xt=urn:btih:DE030FB02321A2670EEB34F50D06A724BF535F40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +601,8 @@ magnet:?xt=urn:btih:DE030FB02321A2670EEB34F50D06A724BF535F40
 ```bash
 magnet:?xt=urn:btih:C56239CC28525E506D94F8C7D2713A8E1EBB00A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +630,8 @@ magnet:?xt=urn:btih:C56239CC28525E506D94F8C7D2713A8E1EBB00A1
 magnet:?xt=urn:btih:16E88955CA8952AFD0A78A5DE34AD0A78DC6381B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +658,8 @@ magnet:?xt=urn:btih:16E88955CA8952AFD0A78A5DE34AD0A78DC6381B
 magnet:?xt=urn:btih:071101F0B1B0B5388F0026E74803C9D733C4ED50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,130 +685,7 @@ Aquarelleum - Urban Sketcher - творческий многофункциона
 magnet:?xt=urn:btih:009A7F123F27ED9C5C8DE06D9EACF902226484EA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293149   (639049) от 02.04.2019
-
-Растровый клипарт - Spring flowers set stock photo [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весенние цветы, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3200x4800-5601x2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:398FC28979436AC1702776510FF91B2194692C5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293144   (639053) от 02.04.2019
-
-Векторный клипарт - Cartoon Easter Bunnies [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Мультяшные пасхальные кролики.
-3 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70B6B3A2F07F4B3E4C8023D8B9326FF08715C13A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227942   (639136) от 30.05.2018
-
-Текстуры - GraphicBurger - Paper Marbling Textures Vol.4 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мраморные текстуры. 100% Бесплатно.
-Автор: Aurora Prints & Goods.Формат: JPGРазрешение файлов: 3364 x 2398 - 6183 x 4702
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1165531E75869D3C588BC808594B2B8BB42A5F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228087   (639140) от 30.05.2018
-
-Текстуры - Creative Market - Vector vivid marble patterns - 1625595 [JPG, AI, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Яркие мраморные узоры в векторе и не только.
-Автор: Merydolla Studio.Формат: JPG, AI, EPSРазрешение файлов: 8333 x 8333
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47879C0B31268E66DBA6C24F986467BF19D6AE0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227937   (639143) от 30.05.2018
-
-Текстуры - GraphicBurger - Paper Marbling Textures Vol.1 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мраморные текстуры. 100% Бесплатно.
-Автор: Aurora Prints & Goods.Формат: JPGРазрешение файлов: 4500 x 3091 - 4500 x 3224
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:116AC913B5DCC7CE12116BCA3484877A1225F159
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

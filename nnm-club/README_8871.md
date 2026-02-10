@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:76EBB3E5BE206B8ED20450FEEDFDEF0DE8858136
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:76EBB3E5BE206B8ED20450FEEDFDEF0DE8858136
 ```bash
 magnet:?xt=urn:btih:C8C28FA7B97FB6DBBAA825FA6FA06F5AB8C9ACEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:C8C28FA7B97FB6DBBAA825FA6FA06F5AB8C9ACEA
 magnet:?xt=urn:btih:F59905A7DD240034D9EF3690F4CD653A22D035FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:F59905A7DD240034D9EF3690F4CD653A22D035FC
 magnet:?xt=urn:btih:80EAFB6D334DD56F7B549D6304EEA14CA6AA2114
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:80EAFB6D334DD56F7B549D6304EEA14CA6AA2114
 magnet:?xt=urn:btih:13EE54D6189B370B60535F0E33D8B10083468157
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 ```bash
 magnet:?xt=urn:btih:86B3D171D204BC07DC213EE66E309387F530DD06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ VA - Лучшие клубные новинки Vol.5 (2017) [MP3|320 Kbps] <Hou
 magnet:?xt=urn:btih:5CFEB5D9E67AEFF7427D681A85800C3DAF54FECB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:5CFEB5D9E67AEFF7427D681A85800C3DAF54FECB
 magnet:?xt=urn:btih:86F0D623FF6F7DD3BBBA09CD4AC0F55F83201696
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:86F0D623FF6F7DD3BBBA09CD4AC0F55F83201696
 magnet:?xt=urn:btih:C125912BA1CF224675E8F2B0162F7AF66316BE09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ National Geographic. Американская мафия изнутри / Inside
 ```bash
 magnet:?xt=urn:btih:288547A26E499DC6EECDA30AAA876C9390D0CDB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:288547A26E499DC6EECDA30AAA876C9390D0CDB0
 magnet:?xt=urn:btih:B23347E4CB0140149A3DC6332961651F56371543
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:B23347E4CB0140149A3DC6332961651F56371543
 ```bash
 magnet:?xt=urn:btih:88874DE21AAE72D6E48920DD43A5F7E82C27D071
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ Samuel Eddy - 2 Albums (1991 - 1995) Discography, Full-lenght albums [FLAC|Lossl
 magnet:?xt=urn:btih:4F6651451DAA0369AA0377C3014A509A643E780D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:4F6651451DAA0369AA0377C3014A509A643E780D
 magnet:?xt=urn:btih:2021E1AEFD7BDFE626D67902AB5414796B2B5EAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:2021E1AEFD7BDFE626D67902AB5414796B2B5EAE
 magnet:?xt=urn:btih:8AE2382FBD34F62B9E52A6228DE5190CCB6455AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ NG. Американская мафия изнутри / Inside the American Mob
 ```bash
 magnet:?xt=urn:btih:3ACD1F0F93203D0B8530E9647FA5A94CCD85C798
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ Fingers In The Noise - 11 Releases (2011-2017) [FLAC|Lossless|tracks+.cue, track
 magnet:?xt=urn:btih:7F482C3017643BB7911520753B9932C586DBC397
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:7F482C3017643BB7911520753B9932C586DBC397
 magnet:?xt=urn:btih:E64039B2CFA2448A09C3E24F6ECB104A4309F810
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:E64039B2CFA2448A09C3E24F6ECB104A4309F810
 ```bash
 magnet:?xt=urn:btih:7206B7F78D51B0FBD1413D6F7BB5F1B95AFE12F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ VA - Dance Charts - Dance 50 (Dazu Tanzt Ganz Deutschland) (26.11.2017) [MP3|192
 magnet:?xt=urn:btih:24A005795D75DD12D09B541988F527C7FE696C3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:24A005795D75DD12D09B541988F527C7FE696C3D
 ```bash
 magnet:?xt=urn:btih:F60C107FD822DE201B4069A4F4F971B1EBD948CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ Tale of Us - Endless Remixes (2017) Deutsche Grammophon [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:11340B7E20CF9B4396F872B825D224E3981772EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ magnet:?xt=urn:btih:11340B7E20CF9B4396F872B825D224E3981772EE
 ```bash
 magnet:?xt=urn:btih:F1AAD8F19B930549C90268E5B5C80F7DBD32E4E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ magnet:?xt=urn:btih:F1AAD8F19B930549C90268E5B5C80F7DBD32E4E3
 ```bash
 magnet:?xt=urn:btih:C7C4FB4CD559F59E6501D5D468D3374A554049E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ Count Basie - Basie's Beatle Bag (1966) 1998, Verve [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:1A210996C9F4EC07254BCB6554C68E1ED97FAAAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ VA - Seasons To Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:9D8E6F56E7D68061FF1D4D0DD8578E79427D7610
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

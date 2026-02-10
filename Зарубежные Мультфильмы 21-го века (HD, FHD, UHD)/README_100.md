@@ -1,27 +1,3 @@
-###  Публикация: 890296   (744371) от 20.04.2015
-
-Книга жизни / The Book of Life (2014) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744371.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мультфильме описывается романтическая история любви на фоне празднования Дня мертвых в Мексике.Производство: США, Twentieth Century FoxЖанр: Фэнтези, Мелодрама, Комедия, Приключения, СемейныйРежиссер: Хорхе Р. ГутьерресАктеры: Диего Луна, Зои Салдана, Ченнинг Татум, Рон Перлман, Кристина Эпплгейт, Айс Кьюб, Кейт дель Кастильо, Гектор Элизондо, Дэнни Трехо, Карлос АласракиПеревод: Дублированный (Лицензия Blu-ray EUR)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, украинский, английскийПродолжительность: 01:35:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECF55EF475D2053BA7BB1F82969EC39C4E04F45D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524028   (744642) от 15.01.2022
 
 Монстры на каникулах: Трансформания / Hotel Transylvania: Transformania (2022) WEB-DL [H.265/2160p] [4K, HDR, 10-bit]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:ECF55EF475D2053BA7BB1F82969EC39C4E04F45D
 ```bash
 magnet:?xt=urn:btih:EF7E37A42F0E9FADC90843F303FD6B3C47E81219
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:EF7E37A42F0E9FADC90843F303FD6B3C47E81219
 magnet:?xt=urn:btih:549A5F12CBCA3BD8B6825782BC156C884F83AA6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:549A5F12CBCA3BD8B6825782BC156C884F83AA6C
 ```bash
 magnet:?xt=urn:btih:65E68187A66720D2F9EDD5A0F4697638BA2B523A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:65E68187A66720D2F9EDD5A0F4697638BA2B523A
 magnet:?xt=urn:btih:7F46DBF9F5C014FFC308948DC074DB3D5E220D2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:7F46DBF9F5C014FFC308948DC074DB3D5E220D2E
 ```bash
 magnet:?xt=urn:btih:9396C3E57B4DC40EC77976FF21B49A1FF1B0F382
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:9396C3E57B4DC40EC77976FF21B49A1FF1B0F382
 magnet:?xt=urn:btih:51598869B49C7A2C1D614F581EBCD5A0E0FD9CC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:51598869B49C7A2C1D614F581EBCD5A0E0FD9CC7
 ```bash
 magnet:?xt=urn:btih:EF59BC2C8E703815C75459E90BB6D3527A409C2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:EF59BC2C8E703815C75459E90BB6D3527A409C2F
 magnet:?xt=urn:btih:C3F6B6468D307615111BC736CCC99B42E1A6FF51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ magnet:?xt=urn:btih:C3F6B6468D307615111BC736CCC99B42E1A6FF51
 ```bash
 magnet:?xt=urn:btih:F3DD7850BE9E92FCEE597D4BD670E33402694B1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:F3DD7850BE9E92FCEE597D4BD670E33402694B1B
 magnet:?xt=urn:btih:628391B9624DA3ED871812B42BF60546C258F110
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ magnet:?xt=urn:btih:628391B9624DA3ED871812B42BF60546C258F110
 ```bash
 magnet:?xt=urn:btih:37888909F9B5B2B02B24D459730F392A085C561B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +306,8 @@ magnet:?xt=urn:btih:37888909F9B5B2B02B24D459730F392A085C561B
 magnet:?xt=urn:btih:FFC0BB406F5E403B043ED191123C074ECC80EFE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +331,8 @@ magnet:?xt=urn:btih:FFC0BB406F5E403B043ED191123C074ECC80EFE5
 ```bash
 magnet:?xt=urn:btih:9EB345E75F2B5E227B806A6E2D17713A72FE3A48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +358,8 @@ magnet:?xt=urn:btih:9EB345E75F2B5E227B806A6E2D17713A72FE3A48
 magnet:?xt=urn:btih:45256A2FC46C818A52A106705CD9D757F4069B63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +383,8 @@ magnet:?xt=urn:btih:45256A2FC46C818A52A106705CD9D757F4069B63
 ```bash
 magnet:?xt=urn:btih:7EE918728AB7B13EF523C7C45C25427B98780D7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +410,8 @@ magnet:?xt=urn:btih:7EE918728AB7B13EF523C7C45C25427B98780D7F
 magnet:?xt=urn:btih:D28DEBFFE44461C381C446414EA682F19D31913F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +436,8 @@ magnet:?xt=urn:btih:D28DEBFFE44461C381C446414EA682F19D31913F
 magnet:?xt=urn:btih:2BC57AEC48445B1A11D3E7954B0AFBAB934EFE7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +461,8 @@ magnet:?xt=urn:btih:2BC57AEC48445B1A11D3E7954B0AFBAB934EFE7A
 ```bash
 magnet:?xt=urn:btih:1BB323C47970DC138B32E07CA7BE377CB8288AD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +489,8 @@ magnet:?xt=urn:btih:1BB323C47970DC138B32E07CA7BE377CB8288AD1
 magnet:?xt=urn:btih:F56C43AD27030DD9611784CBDE622373F7549448
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +514,8 @@ magnet:?xt=urn:btih:F56C43AD27030DD9611784CBDE622373F7549448
 ```bash
 magnet:?xt=urn:btih:7EAA1147275B596FE1F5C8C73DB40B2D18F53853
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +541,8 @@ magnet:?xt=urn:btih:7EAA1147275B596FE1F5C8C73DB40B2D18F53853
 magnet:?xt=urn:btih:703FB317BC4BE1F2DF1A83A2E92CAD5379AE4C53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +566,8 @@ magnet:?xt=urn:btih:703FB317BC4BE1F2DF1A83A2E92CAD5379AE4C53
 ```bash
 magnet:?xt=urn:btih:A49D0025110242303DABAD075FDFFE0F74855446
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +593,8 @@ magnet:?xt=urn:btih:A49D0025110242303DABAD075FDFFE0F74855446
 magnet:?xt=urn:btih:518B435AC1BFBA6377B0B2B44E2D11C733D8879C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +619,8 @@ magnet:?xt=urn:btih:518B435AC1BFBA6377B0B2B44E2D11C733D8879C
 magnet:?xt=urn:btih:2DE441BA4133BAAF1C473F0BCCDC52B296E72A68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +644,34 @@ magnet:?xt=urn:btih:2DE441BA4133BAAF1C473F0BCCDC52B296E72A68
 ```bash
 magnet:?xt=urn:btih:AEE174F1974ECF2865B9E4AEFA12ADD9B92A1ABA
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395891   (751817) от 12.07.2020
+
+Скуби-ду / Scoob! (2020) BDRip [H.264/1080p] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды мальчик по имени Шэгги встречает бездомного щенка, которому дает довольно странную кличку – Скуби-ду. Это становится началом не только настоящей дружбы, но и множества удивительных событий, в которых главные герои принимают самое активное участие. При поддержке школьников Дафни, Фредди и Вельмы приятели создают частное детективное агентство, мечтая помогать (   Читать дальше...   )Производство: США / Warner Bros., Warner Animation Group, Hanna-Barbera ProductionsЖанр: Мультфильм, комедия, детектив, приключения, семейныйРежиссер: Тони ЧервонеПеревод: Многоголосый закадровыйСубтитры: Русские (Focs), английские (Full, SDH), французские (Full)Продолжительность: 01:33:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94278B3C1AA68295C1CADAA198C299A958BA570E
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

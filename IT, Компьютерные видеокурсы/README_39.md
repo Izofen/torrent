@@ -22,6 +22,8 @@ Udemy, Роман Сакутин и др. | Unity 2019 - Полный курс �
 magnet:?xt=urn:btih:1FE95920588C5EDAD5352CC73B36AD1EEAFEC386
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Udemy, Кирилл Жданов | Тестировщик ПО, стань Junio
 ```bash
 magnet:?xt=urn:btih:427AB472478A6E9B5C7E46CDB7C06CF4EECB066B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Udemy, Dr. Angela Yu | 100 Days of Code - The Complete Python Pro Bootcamp for 2
 magnet:?xt=urn:btih:55D39614A52FD23A3E5538F5082D4CD480D9A1F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ The AWS Certified DevOps Engineer is one of the most valuable and in-demand clou
 ```bash
 magnet:?xt=urn:btih:CFFA1F42699C92961DF595F89A00F714D1A015AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ IT Jane | Создание мобильных приложений с нуля �
 magnet:?xt=urn:btih:4BB27997D4559261D30B189D038E213BC78123BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Vue проще, чем Angular и React, при этом Vue не уступае
 ```bash
 magnet:?xt=urn:btih:8E382EBD7973969DD966F3B7444791D0EC251196
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:8E382EBD7973969DD966F3B7444791D0EC251196
 magnet:?xt=urn:btih:8166702CAD10141408BC020D8BFA5C5F170F9B19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:8166702CAD10141408BC020D8BFA5C5F170F9B19
 magnet:?xt=urn:btih:B1293B598EE6C4971776BEF9A91FA64FA1AA25FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ OTUS, Владислав Родин | Супер-интенсив «СУБД в 
 ```bash
 magnet:?xt=urn:btih:5C346B12DB2F1BE7B38F8030E78FBC8F482D5CB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ Lynda.com | Dreamweaver and WordPress: Building Themes (Dreamweaver и WordPress
 magnet:?xt=urn:btih:216F51FC4E5C34FEDD681300A3EC76C84FF71C0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ Lynda.com | Dreamweaver and WordPress: Building Sites (Dreamweaver и WordPress:
 ```bash
 magnet:?xt=urn:btih:5AC08EF53FF9BC1587EE3D43C21A9DFB8454690E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +327,8 @@ Slurm (Слёрм), Марсель Ибраев и др. | Kubernetes: Мега 
 magnet:?xt=urn:btih:1AA6738B45EF6A958E48D8A10ACA6DAF0642A761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +356,8 @@ Javabegin | Микросервисы на Spring Cloud (2022) WEB-DL [RU]
 magnet:?xt=urn:btih:3B802A837252F02CB429105B1638C1E7994C7132
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ MonsterLessons, Александр Кочергин | Vue и Vuex - пишем �
 ```bash
 magnet:?xt=urn:btih:28FFCD3B0ADFC610598C569893567B7FBD60CC57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +410,8 @@ Udemy, Исмаил Усеинов | Frontend разработчик на HTML, 
 magnet:?xt=urn:btih:CE979726032B953444A20CF50C8A9EBD7CEC0816
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ Udemy, Никита Хохлов | Разработка Telegram ботов на
 ```bash
 magnet:?xt=urn:btih:7AD75CF04237B8B97136E9821A6DF4F53F89F4C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ iOS разработчик создаёт игры и приложения дл�
 ```bash
 magnet:?xt=urn:btih:37112C8AC040408631245782AF6BA82DB12288B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +492,8 @@ Udemy, Дмитрий Безуглый | React + Redux 2020, с нуля до п
 magnet:?xt=urn:btih:0B512EABC3E6943E7F31B9ADCC726F3D9AB39EB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ JavaScript-разработчики могут создавать графику
 ```bash
 magnet:?xt=urn:btih:3B140C4F371A4873D03AAAEA74F655BBC1491C81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +545,8 @@ Udemy, Tarkan Aguner | Python Real World Data Science Mega Project: Car Buyer Ap
 magnet:?xt=urn:btih:5E04339378BD504211E93226161B00D9ECBBD90A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ Udemy, Jesse E. Agbe | Learn Streamlit Python (2020) PCRec [En / En Sub]
 magnet:?xt=urn:btih:34B73744CAD3ABC4273BB71CA9297581A40B905E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ Janathan Daley | Creating Gameplay Systems using Blueprint Features in Unreal En
 ```bash
 magnet:?xt=urn:btih:771479EF4D2924BB550D11191402F6A7DC1D87DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ Udemy, Ben Tristem, Sam Pattuzzi, Gavin Milroy | Unreal Engine C++ Developer: Le
 ```bash
 magnet:?xt=urn:btih:553197793CF4D2D7D014E3C330037922D2A67C84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +653,8 @@ Android (   Читать дальше...   )Производство: UdemyЖа
 magnet:?xt=urn:btih:A6B77D9B80D1DF8680461B613BA44C984C0DE192
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ magnet:?xt=urn:btih:A6B77D9B80D1DF8680461B613BA44C984C0DE192
 ```bash
 magnet:?xt=urn:btih:241C97225722589D2740751955F4CF353E0E9F36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -657,6 +707,8 @@ Convert Monster | Идеальный Landing Page, Яндекс.Директ, Go
 ```bash
 magnet:?xt=urn:btih:4C40135DC470D444240F6B8905CA727ADCE3C812
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Wayne Gratz - Spring Rain / Piano and Rainfall (2005) [FLAC|tracks+.cue]<New Age
 magnet:?xt=urn:btih:E73DD0AF8060FC869C2410E5B9F7C3CFBC2A0E77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Jeff Smart - Super Moon (2016) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:C6C60FE44C31E2E8B9D78F6AF7F770182B511E56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ magnet:?xt=urn:btih:C6C60FE44C31E2E8B9D78F6AF7F770182B511E56
 magnet:?xt=urn:btih:470B13173163BCF560CF1D8624075AB51C002311
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ magnet:?xt=urn:btih:470B13173163BCF560CF1D8624075AB51C002311
 ```bash
 magnet:?xt=urn:btih:0AC5D49E151CECA6A3A3548A6E7DB854390D0412
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +144,8 @@ Laura Sullivan - Paris Enjoue (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental
 magnet:?xt=urn:btih:F6B5DA7086849D678C757935B0569332A0C64172
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +172,8 @@ magnet:?xt=urn:btih:F6B5DA7086849D678C757935B0569332A0C64172
 ```bash
 magnet:?xt=urn:btih:9880F290AC523095BBF7FAE1A67E28A46634B03A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ VA - E-Energy vol. 1-16 (2014-2016) [MP3|320 Kbps] <Ambient, Chillout, Instrumen
 magnet:?xt=urn:btih:7EC79E4EE435AC286C6D89F35975F7E997B132AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ Clint Eastwood, Christian Jacob & The Tierney Sutton Band - Sully / Чудо н�
 ```bash
 magnet:?xt=urn:btih:B29F04A01FE4E7E4B28CD921512F8110DF473014
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +260,8 @@ Senyawa - Sujud (2018) [MP3|320 Kbps] <World, Other, Folk>
 magnet:?xt=urn:btih:67A37CA63B036679ED2F9835E1769C3334F3F504
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ VA - Disco Dancer (OST Танцор диско) (1982) [MP3|320 Kbps] <OST>
 ```bash
 magnet:?xt=urn:btih:F7B8044B4230C3CFF01BD812999E0AB9B4A8A9A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +318,8 @@ VA - We Love Latin 2017 (Only Djs Extended Versions) [MP3|320 Kbps] <Latin Dance
 magnet:?xt=urn:btih:B0FE15FCED75B7008E26403D6A2F75FFA981D35D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +347,8 @@ Deep Forest - Boheme (1995) [FLAC|tracks+.cue]<New Age, Ambient, Folk>
 magnet:?xt=urn:btih:B2476CAC549764D2B3F158A50580B3D02C2F3529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +375,8 @@ Karushanti - Silence Meditation (2015) [FLAC|tracks]<New Age, Relax>
 ```bash
 magnet:?xt=urn:btih:741A3F6345631820B7313AC73022E08BB9B0D64F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +411,8 @@ magnet:?xt=urn:btih:741A3F6345631820B7313AC73022E08BB9B0D64F
 magnet:?xt=urn:btih:802C7C1F6C156936904EAF63B198044C9B01A7B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +439,8 @@ Celtic Woman - Voices of Angels (2016) [MP3|320 Kbps] <Celtic, Folk, World>
 ```bash
 magnet:?xt=urn:btih:0B11035F057C0273A2719F24F5D0F1795F47E9B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +469,8 @@ magnet:?xt=urn:btih:0B11035F057C0273A2719F24F5D0F1795F47E9B1
 magnet:?xt=urn:btih:36CC58CA086B0557B511B40E06C42AFAF0C7492B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +497,8 @@ VA - For Men vol. 1-3 (2014-2016) [MP3|320 Kbps] <Chillout, Electronic, Instrume
 ```bash
 magnet:?xt=urn:btih:1770C34719A0CA06F5E2DAF7C73674E0F319C9DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +527,8 @@ VA - For Women vol. 1-3 (2014-2016) [MP3|320 Kbps] <Ambient, Electronic, Instrum
 magnet:?xt=urn:btih:12E0F91CA0BC5FD035CE3A1C05C1F8393C39B8DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +555,8 @@ VA - Xmas Jukebox 2016 (2016) [MP3|320 Kbps] <Soundtracks>
 ```bash
 magnet:?xt=urn:btih:F5C48070B7CB8E4258784C7DFDB7A330C3FAFC36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +585,8 @@ Janis Ian - The Bottom Line Encore Collection (Live album) (999) Compilation [FL
 magnet:?xt=urn:btih:FD79B9BEA89E72456E7D84C01AD5A2EAFD1CC3EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +614,8 @@ Yanni - The Very Best of Yanni (2000) [FLAC|tracks+.cue]<New Age>
 magnet:?xt=urn:btih:1B074487E6AD567A655B15296C7B221822392220
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +642,8 @@ Shaun Hopper - Lower Case Letters (2011) [FLAC|Lossless|tracks + .cue] <Acoustic
 ```bash
 magnet:?xt=urn:btih:A669631A380F47C1649EAB7C954A743232B0129B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +678,8 @@ Jesse Cook - 11 albums (1995-2012) [MP3|320 кб/с]<New age, Flamenco, Instrume
 magnet:?xt=urn:btih:C5BCF0E63C3B0BF88930B22BEB2653681D2B62B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +706,8 @@ Jamie Christopherson - Stranglehold (Complete Video Game Score) (2007) [MP3|192-
 ```bash
 magnet:?xt=urn:btih:FABD745DC52485DCB533455230D3048A8A137A08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -688,6 +736,8 @@ Ennio Morricone - Morricone Segreto (2020) [FLAC|Lossless|WEB-DL|tracks] <Instru
 magnet:?xt=urn:btih:F4EEACDFF4142686D8F7872873AD1B08B6E7A326
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -711,6 +761,8 @@ VA - Ocean Music Love. Best Relax And Sex Music (2010) [MP3|128-256 kbps]<Relax>
 ```bash
 magnet:?xt=urn:btih:B327FEEB3CB5E0963A8B1B52317E39ECC0D4E2E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

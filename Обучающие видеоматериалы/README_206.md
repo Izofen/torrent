@@ -21,6 +21,8 @@ CGcircuit, Daviv CGMK | Houdini Elements - Smoke (2021) PCRec [EN]
 magnet:?xt=urn:btih:4E83520A515CE7A43D666FF603468CA2AC237D00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:4E83520A515CE7A43D666FF603468CA2AC237D00
 ```bash
 magnet:?xt=urn:btih:DE18B416BE4669687FB0469471E083E05FC62265
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:DE18B416BE4669687FB0469471E083E05FC62265
 magnet:?xt=urn:btih:D6A3272465C6F0322E1926E4DFE2CF0DBB4BC994
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ magnet:?xt=urn:btih:D6A3272465C6F0322E1926E4DFE2CF0DBB4BC994
 ```bash
 magnet:?xt=urn:btih:054625855972B2008AE936DD60B4A75ABF0686ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +137,8 @@ magnet:?xt=urn:btih:054625855972B2008AE936DD60B4A75ABF0686ED
 magnet:?xt=urn:btih:0102F04D2BDA87FFBA092383B5DEAC5B0EE8B54B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ magnet:?xt=urn:btih:0102F04D2BDA87FFBA092383B5DEAC5B0EE8B54B
 ```bash
 magnet:?xt=urn:btih:4ED115102173EBC9D0C2C5816B7476611044B62C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ magnet:?xt=urn:btih:4ED115102173EBC9D0C2C5816B7476611044B62C
 magnet:?xt=urn:btih:3EC82AF529A92AF032E6D540097F36378F2995EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ ASP.NET Core MVC для .NET 5. Первая часть.
 magnet:?xt=urn:btih:247CBECA2D514717595D47AF16B5363D7F6645A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +248,8 @@ magnet:?xt=urn:btih:247CBECA2D514717595D47AF16B5363D7F6645A1
 magnet:?xt=urn:btih:6C9A5400DA403724F5CFA7FAA7574EAFB7600DDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ magnet:?xt=urn:btih:6C9A5400DA403724F5CFA7FAA7574EAFB7600DDC
 ```bash
 magnet:?xt=urn:btih:AB8F10D6E439CF2F3D0FC1EB3F57893104CC3007
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +303,8 @@ GeekBrains | Профессия Веб-аналитик (2020) PCRec
 magnet:?xt=urn:btih:8367F07E6368AC4C3FEEF81A663845288075C182
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +329,8 @@ magnet:?xt=urn:btih:8367F07E6368AC4C3FEEF81A663845288075C182
 ```bash
 magnet:?xt=urn:btih:25E7C408B7B130F65684292ED951D8BE4DC04CB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +359,8 @@ magnet:?xt=urn:btih:25E7C408B7B130F65684292ED951D8BE4DC04CB8
 magnet:?xt=urn:btih:3FF4F2D8B06F7CF7FF9B4ADD72C2FE369D3735F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +385,8 @@ magnet:?xt=urn:btih:3FF4F2D8B06F7CF7FF9B4ADD72C2FE369D3735F9
 ```bash
 magnet:?xt=urn:btih:81E0B94C8D4B028FE89467D79D8DD61931D2282D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +413,8 @@ magnet:?xt=urn:btih:81E0B94C8D4B028FE89467D79D8DD61931D2282D
 magnet:?xt=urn:btih:ED1D3CB109633B1FF668E8472AB39CF7605F4E4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +438,8 @@ magnet:?xt=urn:btih:ED1D3CB109633B1FF668E8472AB39CF7605F4E4D
 ```bash
 magnet:?xt=urn:btih:F0AD08D093A6A199A6707FFA2663C525E60DC2B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +466,8 @@ Microsoft – мировой лидер продаж программного о
 ```bash
 magnet:?xt=urn:btih:A0ADD695AD8C5517A1FB6D98BF3C169288C346F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +496,8 @@ magnet:?xt=urn:btih:A0ADD695AD8C5517A1FB6D98BF3C169288C346F2
 magnet:?xt=urn:btih:332E7B8491DA30393C6F386BC42F2AC268DBC5E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +525,8 @@ magnet:?xt=urn:btih:332E7B8491DA30393C6F386BC42F2AC268DBC5E7
 magnet:?xt=urn:btih:B4F3501745C2CE27EBC374996ED742C48456E0CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +551,8 @@ Levelup.Digital, Simon Barle | Game-Ready Tree Creation from Maya to Unreal (201
 ```bash
 magnet:?xt=urn:btih:CFFE2A1D09A4D3178512057BE411D5DADE736652
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +580,8 @@ magnet:?xt=urn:btih:CFFE2A1D09A4D3178512057BE411D5DADE736652
 magnet:?xt=urn:btih:0447F12233E23E00B3D569944A8F00060D41EC29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +608,8 @@ magnet:?xt=urn:btih:0447F12233E23E00B3D569944A8F00060D41EC29
 magnet:?xt=urn:btih:C80B3B5DB29D240DBE7E99FB43AE392B4120FE22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +634,8 @@ C# Express – курс третьей стадии обучения – пос�
 magnet:?xt=urn:btih:386FA9B9E84C27DC840B44A73FF96D842D219D02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +659,8 @@ magnet:?xt=urn:btih:386FA9B9E84C27DC840B44A73FF96D842D219D02
 ```bash
 magnet:?xt=urn:btih:371F36657248ABD68B3FA3084A6B01C208815F31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +689,8 @@ magnet:?xt=urn:btih:371F36657248ABD68B3FA3084A6B01C208815F31
 magnet:?xt=urn:btih:629CEF28AB3E25C4871239C31C588B9F4E5D3D90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +715,8 @@ Vladimir Chopine | Изучение цифрового композитинга 
 ```bash
 magnet:?xt=urn:btih:74E56D700683CD79F14E82464EE964B980FF1530
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

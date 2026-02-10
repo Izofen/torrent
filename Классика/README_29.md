@@ -22,6 +22,8 @@ Ludovico Einaudi - Seven Days Walking (Day 1) (2019) Decca Records [FLAC|Lossles
 magnet:?xt=urn:btih:9E3B1A7D37E65842B83F63A206563D85BCCF3362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Beethoven - Choral Fantasy & Triple Concerto (2019) [FLAC 2.0|96/24|tracks|WEB-D
 ```bash
 magnet:?xt=urn:btih:1FAEE5AD4564107628B5A6C67941DF51D372461C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Mario Carrara - Un Amore Cosi Grande (1997) [FLAC|Lossless|image + .cue] <Classi
 magnet:?xt=urn:btih:3C9A028246D419C6A8DD0560552BFC478CBB51B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Ludovico Einaudi - Seven Days Walking (Day 2) (2019) Decca Records [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:3FC3F8B9919A3069AFDDD70C98AB6BA421BA0927
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Jean-Michel Blais - Dans ma main (2019) Deluxe Edition [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:E5552A0DF7331E918E10502349FC18811A18AD6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Ludovico Einaudi - Elements (The Remixes) (2016) Decca Records [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:19EDA66E286B4B1632ACA5207360FED726B82A3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ ACT 1
 magnet:?xt=urn:btih:34BD4D5CD4E4503B66AAA03E60A417549054221F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Danzi - Der Berggeist, Oder Schicksal und Treue (2013) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:616728C9DE0C66BAAF390C57C64F92A1AA6AD3C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Concerto For Piano And Orchestra No. 2 In B Flat Major Op. 83
 magnet:?xt=urn:btih:8CB69A240887365F2CCFFF913A0A8EE55F04BD5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ The Third group - Ушедшие (2017) [MP3|320 Kbps] <Classical, Neo-classical
 magnet:?xt=urn:btih:8EF9B2B62038E1FABD2EA7A039BEB61783C29426
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +309,8 @@ Philip Glass:
 ```bash
 magnet:?xt=urn:btih:EB0A7E21D21CE8E6AD6259896BA46CE0081371C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +339,8 @@ Symphony No.4 in G major
 magnet:?xt=urn:btih:23EF3BB27E1ADCE50DD28FC1F1671FBA9CE4EDFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +367,8 @@ Piano Concerto No.1
 ```bash
 magnet:?xt=urn:btih:6DE40494F8537E9FDB07649AB11009DB03F4DDC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +397,8 @@ Cello Concerto in E minor, Op.85
 magnet:?xt=urn:btih:D6E53BFA67F5408CE26DAD5DBC8FA88909AB537A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +425,8 @@ Katherine Jenkins - One fine day (2011) [FLAC|Lossless|image + .cue] <Classical 
 ```bash
 magnet:?xt=urn:btih:33C13C2CE0B9C2FE9A175FF048706E134B94E8BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +455,8 @@ magnet:?xt=urn:btih:33C13C2CE0B9C2FE9A175FF048706E134B94E8BE
 magnet:?xt=urn:btih:F2C9252E999E4DF949BF28008C15DBA2454571C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +484,8 @@ Chequerboard - The Unfolding (2013) [FLAC|Lossless|tracks] <Folk, Modern Classic
 magnet:?xt=urn:btih:7CA48CF96444CE9C26F465ECDEA6ED56E1664253
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +509,8 @@ Tomazzo Albinoni - Музыка, неподвластная времени (2007
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +545,8 @@ Part 3: Evening
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +580,8 @@ Wolfgang Amadeus Mozart – Gran Partita K.361, Wind Pieces K.484b, K.410, K.411
 magnet:?xt=urn:btih:3AC73FBC0375FACA29D1ADB6229B8375C442626B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +608,8 @@ Eleni Karaindrou - Concert In Athens (2013) [FLAC|Lossless|tracks] <Classical, S
 ```bash
 magnet:?xt=urn:btih:9F8EB973E09F7FB10DB430DC74E6FDA9027E259B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +638,8 @@ Serenade No. 13 for strings in G major  - "Eine kleine Nachtmusik":
 magnet:?xt=urn:btih:35D943BA2419C28CE76B7E1CD49AB402093F07F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +666,8 @@ II - Quintet No 2 In G Minor, G426	11:35(   Читать дальше...   )Жа
 ```bash
 magnet:?xt=urn:btih:FD7F3DFD0A293053CD80B70C743A3F0282D1093E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +696,8 @@ magnet:?xt=urn:btih:FD7F3DFD0A293053CD80B70C743A3F0282D1093E
 magnet:?xt=urn:btih:CC21CBDB9BF8D6CDBAD48BA463BF9B6F04179CC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -677,6 +725,8 @@ magnet:?xt=urn:btih:CC21CBDB9BF8D6CDBAD48BA463BF9B6F04179CC9
 magnet:?xt=urn:btih:992BBD2A171051B04E08ED2F76ECA3EBDF799ED8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -703,6 +753,8 @@ VA - Classical Chill Guitar (2019) [MP3|320 Kbps] <Classical>
 ```bash
 magnet:?xt=urn:btih:E6BF06944F21DB244CEC722C4A525A8CA7326D86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

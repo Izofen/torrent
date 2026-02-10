@@ -19,6 +19,8 @@ El Dorado: The Golden City Builder – это увлекательная стр�
 magnet:?xt=urn:btih:95ED1F7526B9B2633A7A8F652945D61ABFFC4C25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:95ED1F7526B9B2633A7A8F652945D61ABFFC4C25
 magnet:?xt=urn:btih:945E49E6193D9A9740A7E251D27FADCE3EC6546A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:945E49E6193D9A9740A7E251D27FADCE3EC6546A
 ```bash
 magnet:?xt=urn:btih:3ED66BFEE1F7555AF6A26C414A61836B7C2E62AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ ZEDGE - приложение в котором вы сможете найти н
 magnet:?xt=urn:btih:B16742568F4ADF6C76318629A3FBF3DE705FC138
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:B16742568F4ADF6C76318629A3FBF3DE705FC138
 ```bash
 magnet:?xt=urn:btih:64ACEFE3A01A7A7697CAC13005DCC8F4D78F168F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Kona II (2): Brume (2023) [Ru/Multi] (2023-11-24) License GOG
 magnet:?xt=urn:btih:1F3D1EEEB6B217D68B97208FBA89C2CA5EF42B09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ SpaceX впервые представила официальные изобра
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Tensei Kizoku, Kantei Skill de Nariagaru / Переродившись арист
 magnet:?xt=urn:btih:031789B9F0CAD4B17FA5F51663E76D689AA6306F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ The Invisible Hand (2021) [En] (1.2.3) License GOG [Deep Pockets Edition]
 ```bash
 magnet:?xt=urn:btih:A03DC771756C58CE3574CDAB73E5D80CA5BA56D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:A03DC771756C58CE3574CDAB73E5D80CA5BA56D3
 magnet:?xt=urn:btih:754EEB570003E9DF8B0890D618D2EA273C050549
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:754EEB570003E9DF8B0890D618D2EA273C050549
 ```bash
 magnet:?xt=urn:btih:5C2EBEB519BBDE29AD169629972C781950CBFE6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:5C2EBEB519BBDE29AD169629972C781950CBFE6C
 magnet:?xt=urn:btih:71CF4C75266F431364271880CBF2B94C3424DCE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:71CF4C75266F431364271880CBF2B94C3424DCE7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ JetBrains IntelliJ IDEA Ultimate - это профессиональный ин�
 magnet:?xt=urn:btih:E2F0EC2D806D2F47377259327C1913B7EB61CE4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:E2F0EC2D806D2F47377259327C1913B7EB61CE4F
 ```bash
 magnet:?xt=urn:btih:6A44B82893D126AFD83FBCBC29C06F2D0AA33DA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Kuroshitsuji: Kishuku Gakkou Hen | Black Butler: Public School Arc | Тёмны�
 magnet:?xt=urn:btih:F7833A7B13CE82416AAEC80C095D1CFBFBB8266B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ iTop Easy Desktop 2.5.0.14 [Multi/Ru]
 magnet:?xt=urn:btih:4FA20BE2563A27E2D8672B08D3D1FF3ADC85ED8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:4FA20BE2563A27E2D8672B08D3D1FF3ADC85ED8C
 ```bash
 magnet:?xt=urn:btih:58EE092A8C175F2B7B89FDF0CF1CFF736FC36DA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Shinigami Bocchan to Kuro Maid (2024) | The Duke of Death and His Maid (2024) | 
 ```bash
 magnet:?xt=urn:btih:1012B135C1322CABB47467B8A79008E79BFF2C7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:1012B135C1322CABB47467B8A79008E79BFF2C7C
 magnet:?xt=urn:btih:EBA5654575C2F345E79C751F8021DDF7840F63AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ Crab God – это увлекательная подводная крабост
 ```bash
 magnet:?xt=urn:btih:86D29D96F5D837C7B0E8076E84A23376AB51F710
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:86D29D96F5D837C7B0E8076E84A23376AB51F710
 magnet:?xt=urn:btih:E40F88E5F3ABAC557F1DBAC7C3BEC443FFDCCA3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Windstorm: Start of a Great Friendship - Remastered (2024) [Multi] (0.7.3) Scene
 ```bash
 magnet:?xt=urn:btih:3EF02AD7A7B23920A47CE93BAD2C7742D02471DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ Champion Shift – скорее берите разношерстных мифи
 magnet:?xt=urn:btih:1CA35FBF47140C5AB231C3B1788A78A0DDA150B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 magnet:?xt=urn:btih:CB961AD57546A69CA72C9BA3D4BDCD6001638F6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.0.41/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:97E54A9048A6B93445BEC51C8769E139B400DD71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

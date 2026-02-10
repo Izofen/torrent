@@ -19,6 +19,8 @@ TcpLogView 1.25 Portable [Ru/En]
 magnet:?xt=urn:btih:1C6CDA1B9F41A6D15982E932E887FEFAE444C7CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:1C6CDA1B9F41A6D15982E932E887FEFAE444C7CF
 magnet:?xt=urn:btih:F5F88996471D8B187B8ACE0283924731E5E12DCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Transmission Remote GUI - удобная программа с множеств�
 magnet:?xt=urn:btih:A7FF77EDF8812D3E84E95ADEC75C8AD989548A3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ KeepSolid VPN Unlimited – кроссплатформенный VPN серви�
 ```bash
 magnet:?xt=urn:btih:2DB7D3A680B1454934261887918D4040968D8916
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:2DB7D3A680B1454934261887918D4040968D8916
 magnet:?xt=urn:btih:9907E4E7A638ADF4734C1ED406394B33E141DBA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Audials Radiotracker является ведущим мировым рекорд
 magnet:?xt=urn:btih:AE977A5DEDF95E18E60E203914A96796BC232333
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ uTorrent 3.5.5 Build 46552 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7A63E025919CD8E04255A54A6B04D7CCAD770B3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:7A63E025919CD8E04255A54A6B04D7CCAD770B3B
 magnet:?xt=urn:btih:2AF2216D9C74DC3593147E3C8D0BCC7E50D4365A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Proxifier — программа, позволяющая сетевым прог
 ```bash
 magnet:?xt=urn:btih:695C5741618BF8C63FA4E62BAAA3A824102B3F1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ WebDrive представляет собой мощный и простой в �
 magnet:?xt=urn:btih:BD421072CBE6AB6D898B6563E51448BC81E17DA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ Free YouTube Download на сегодняшний день самое попул
 magnet:?xt=urn:btih:2CBB878601C28AB7873583BD692EACC4D3D31265
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:2CBB878601C28AB7873583BD692EACC4D3D31265
 ```bash
 magnet:?xt=urn:btih:153B21A3FDAE6D905EBD221D91178A23DCAA5E26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ Network Scanner 4.4 build 221 [Ru/En]
 magnet:?xt=urn:btih:0A46EFB6224DEE607113A96324584650CB7FDFF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ MediaHuman YouTube Downloader 3.9.17 (3010) [Multi/Ru]
 magnet:?xt=urn:btih:55126C19BAE4A32B815521763A38C47BC014EDDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ MAX Desktop 25.15.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:C8F6059795BA151486038F49431FB379985A165D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ SmartGit одинаково хорошо подходит как новичка�
 magnet:?xt=urn:btih:1275D1D2DF19C66BA3E5EDF2967735DCDEDF0D07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ MediaHuman YouTube Downloader 3.9.17 (3010) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:09A40172E2ACECAF77D783390181E49404237218
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ Ant Download Manager - отличный менеджер загрузки сам
 magnet:?xt=urn:btih:6DA2F0ED7D92638B2422C1D9613D613A72F2F780
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:6DA2F0ED7D92638B2422C1D9613D613A72F2F780
 ```bash
 magnet:?xt=urn:btih:6F511326FD740EEA3769C084AD00C49619FCEC2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ Universal Maps Downloader - программное решение для ска�
 magnet:?xt=urn:btih:999C2EB520AB33BC6B5D1836A05096F402A36712
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Bulk Image Downloader (BID) - это программа для загрузки 
 ```bash
 magnet:?xt=urn:btih:DEF2270693DC918245893B9461431600D70DF856
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ FTP Rush — бесплатная версия FTP клиента, для пер
 magnet:?xt=urn:btih:C0076B68569F4FD5923E0D103B16E83F2FF111A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ WeBuilder – редактор веб-страниц с подсветкой с�
 ```bash
 magnet:?xt=urn:btih:FE4038359CC6356D9BE774F0A29D252982F62DD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ save2pc Ultimate - это простая в использовании прог�
 magnet:?xt=urn:btih:9FAA6714661B8E726AE50FDD8B06895504C995F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ MiPony Pro 3.2.2 [Multi/Ru]
 magnet:?xt=urn:btih:4E09D2C99BBD1A0CA4D392EE7451F66863C4288B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ MDaemon дает следующие возможности: - Связь по э
 ```bash
 magnet:?xt=urn:btih:07FDAFC42959F3A61AC0F62292F4A148066906BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Rick Wakeman - Piano Odyssey (2018) [MP3|320 Kbps] <Modern Classical, Piano, Ins
 magnet:?xt=urn:btih:823DC0D27F831CE6FCFF850ACB8005C1091B6114
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ TRACKLIST:
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ TRACKLIST:
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ David Garrett - Alive – My Soundtrack (2020) Deluxe Edition [MP3|320 Kbps] <Ne
 magnet:?xt=urn:btih:AD91390EAA75EF1955379F7BF5487D7977D462E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ IIlyin - EP_005 Else Lie (2020) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:B909D2B5B23FC4DEC0994CA10F18045C5CF76033
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -153,6 +163,8 @@ The Goldberg Variations, BWV 988
 magnet:?xt=urn:btih:E0874719E0E014790CD7406EAA1EDB275098CE1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ David Garrett - Explosive (2015) 2CD [FLAC|image+.cue]<Classical, Crossover>
 ```bash
 magnet:?xt=urn:btih:5B43DAEA47ABECC90495A55F2C85BDF0EAEF7F12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -207,6 +221,8 @@ Bach transcription. London Symphony Orchestra.
 magnet:?xt=urn:btih:CEF2C8AA2F2FB0C3F030F9EB2F0A7004E09E60ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -233,6 +249,8 @@ Ludovico Einaudi - Seven Days Walking (Day 7) (2019) Decca Records [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:3520B867C0DC040DBFBACAD284F1B6D87F596594
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +285,8 @@ Concerto in Fa maggiore op. 8 No. 3 - RV 293 - L'Autunno
 magnet:?xt=urn:btih:13D650DEA05E1C9A9BF0C6FA0B5DE739993C8C37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +313,8 @@ Benny Andersson - Piano (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
 ```bash
 magnet:?xt=urn:btih:AA800CA1E2A9F8FB2E5CF6E6FF77D912D68BD8B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +345,8 @@ Charles de Wolff - голландский органист и дирижер, р
 magnet:?xt=urn:btih:F252473FDC8B66F85E2AC8F8BAE40E0C7D00D018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +374,8 @@ J.S.Bach - Ouvertures (The 4 Orchestral Suites) (Bach Collegium Japan, Masaaki S
 magnet:?xt=urn:btih:30F038AC468370CAD92602EC0865498059EC4EAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +402,8 @@ Allegro (4:28) • SONATA NO. 3 IN D MINOR, BWV 527 : 7. I. Andante (6:20) • 8
 ```bash
 magnet:?xt=urn:btih:3476A8BC029D9BC6D142B5A1D3480D9C81C32634
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +438,8 @@ Concerto In G Minor After BWV 1056
 magnet:?xt=urn:btih:02B6BEA72D0DE5DD61826292459678E7FC3CBB91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +472,8 @@ Sonata In G BWV 1021 (Maria Lindal, Violin)
 ```bash
 magnet:?xt=urn:btih:3F9E86B81259C46D6DBF1E102124D77EF4652B81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +508,8 @@ Brandenburg Concertos 1-3 (Disc 1)
 magnet:?xt=urn:btih:39984B6DD2C98C22860072B5B5B0F83ABC021827
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +542,8 @@ Gregor Piatigorsky, cello/ RCA Victor SO/Alfred Wallenstein
 ```bash
 magnet:?xt=urn:btih:3B44B4A94F66E3B277FD219AA0557475F7C6BFBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +578,8 @@ Partita No.1 in B minor, BWV 1002
 magnet:?xt=urn:btih:61C7B542221EEDFEDDEC65016B0F49429B39FE44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +603,8 @@ magnet:?xt=urn:btih:61C7B542221EEDFEDDEC65016B0F49429B39FE44
 ```bash
 magnet:?xt=urn:btih:3F80B305749B0F2B5CAEC43D1A39E11BB003CF09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +639,8 @@ Hungarian Dances:
 magnet:?xt=urn:btih:21CBEB7C4C9994DBA93C0CFAD3F08F440C4C8CAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +667,8 @@ Virgil Fox - The Bach Gamut: Live in San Fracisco 1976 (2006) [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:C455A340D8E5314BD5FC336CF830C272EF5D0F97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +697,8 @@ Anne Horsch - Brahms - Organ Works (2008) [DST 5.0, 2.0 1bit/2822,4kHz |SACD-R]<
 ```bash
 magnet:?xt=urn:btih:296F7B65D9BEB624D51E4B129EB719942B6687E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -687,6 +733,8 @@ Martin Schmeding - Brahms - Organ Works (2007) [DST 5.1, 2.0 1bit/2822,4kHz |SAC
 magnet:?xt=urn:btih:1C5D328E6C358C9E4C99A8D74A79531DA20460AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -712,6 +760,8 @@ UNSER MUND SEI VOLL LACHENS, BWV 110
 ```bash
 magnet:?xt=urn:btih:7E95E1B268B607AF7D061055825F4D3B8F5C4054
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -745,6 +795,8 @@ MENDELSSOHN
 ```bash
 magnet:?xt=urn:btih:B2D257D8E227C0A246D10A5722C61B8D4DFE2955
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

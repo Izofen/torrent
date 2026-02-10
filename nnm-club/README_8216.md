@@ -19,6 +19,8 @@ Wreckreation (2025) [Ru/Multi] (0.9c) License GOG
 magnet:?xt=urn:btih:E779AA92977C4473E70214CA91D46845B6D4A6C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Silly Polly Beast (2025) [Ru/Multi] (0.97) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C786A907B2E6FAC47D7197D09AC176EEA9DB0F9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Bleak Haven - это игра в жанре survival horror, в которой �
 magnet:?xt=urn:btih:5031B8EB8A9FE614FCBEE1E17668C0DE624D8B48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Avernum 4 Greed and Glory - мрачное фэнтезийное приключ
 ```bash
 magnet:?xt=urn:btih:74D0D3D6426D58464353C1E3CD91C531C8F04CFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Beyond Compare — мощнейшая программа для сравнени
 magnet:?xt=urn:btih:E8C5AC927E86EC56910E0D1613D73DDCC818F52A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Allavsoft Video Downloader Converter - это мощный видео загру
 ```bash
 magnet:?xt=urn:btih:04007E6629E984FE494DD3AE2AE55690E3F806D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Revo Registry Cleaner Pro - это мощное и эффективное про
 magnet:?xt=urn:btih:B85049611BF5AB4123EFA713B0B85CD3E10C6655
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:B85049611BF5AB4123EFA713B0B85CD3E10C6655
 ```bash
 magnet:?xt=urn:btih:0E820801A55AA767C3BB71EF83B74C0024B68DBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:0E820801A55AA767C3BB71EF83B74C0024B68DBF
 magnet:?xt=urn:btih:79D681B56F6916D6DBC5E6D220D137E8D9A47B2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:79D681B56F6916D6DBC5E6D220D137E8D9A47B2D
 ```bash
 magnet:?xt=urn:btih:D4DD11380CD1877CF8A88CFD3A6D961DEEFBFF6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Mars First Logistics (2025) [Ru/Multi] (Build 20566341) Repack Necros
 magnet:?xt=urn:btih:6736A258A4C10FAB49C1AA61CD73700B7CEE69F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Rafa Souza Academy, Rafa Souza | Introdução ao ZBrush (2023) PCRec [RU, PT]
 ```bash
 magnet:?xt=urn:btih:EEEA17574E054CB20DB2B9A45B9B15F78ADA35A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Mortal Kombat (2013) [Ru/En] (1.07/dlc) Repack Necros [Komplete Edition]
 magnet:?xt=urn:btih:8052F931CDC693B03AAA862CBC920A4F2AE57ECE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:8052F931CDC693B03AAA862CBC920A4F2AE57ECE
 ```bash
 magnet:?xt=urn:btih:53D0753A408D31C417199DFF3622774C91596916
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Rafa Souza Academy, Rafa Souza | Anatomia de Personagens 2.0 (2021) PCRec [RU, P
 magnet:?xt=urn:btih:010049A27EFC70C69FA95D15A14C5DDE36C2CA98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:010049A27EFC70C69FA95D15A14C5DDE36C2CA98
 ```bash
 magnet:?xt=urn:btih:C5681863FE5EBEBDDF4E9A9837B98CD1EEF75997
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:C5681863FE5EBEBDDF4E9A9837B98CD1EEF75997
 magnet:?xt=urn:btih:60C1C5883D19B25C23CF8D244C27F0B3F2DE8D72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ PowerISO - программа позволяет создавать, конве�
 ```bash
 magnet:?xt=urn:btih:58E771F6B1294AE91FBE6A6713186BA91CB1072E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:58E771F6B1294AE91FBE6A6713186BA91CB1072E
 magnet:?xt=urn:btih:7A9363D7A7867008B27700AF27B8FACD248ADD8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:7A9363D7A7867008B27700AF27B8FACD248ADD8A
 ```bash
 magnet:?xt=urn:btih:70875AECEA999B871C4E7566F21C9E20B9FA783D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:70875AECEA999B871C4E7566F21C9E20B9FA783D
 magnet:?xt=urn:btih:0900CB77FE695F07F155EA5F320EA459FE2FFFB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:0900CB77FE695F07F155EA5F320EA459FE2FFFB9
 ```bash
 magnet:?xt=urn:btih:0E6546A16C153F1070139C3F00AC336CFC529510
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Rauda состоит из 8 начертаний. Каждое содержит 
 magnet:?xt=urn:btih:982870974902B65E0B96F63A4BFF3AB37DCBBD41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:982870974902B65E0B96F63A4BFF3AB37DCBBD41
 magnet:?xt=urn:btih:B55704CE15E5D9243F2B1B8B12EB6598212961FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:B55704CE15E5D9243F2B1B8B12EB6598212961FC
 ```bash
 magnet:?xt=urn:btih:D5D5E594B299CEBA177788418F2E17ABD8CE73A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:D5D5E594B299CEBA177788418F2E17ABD8CE73A4
 ```bash
 magnet:?xt=urn:btih:450FD07E19843FA9591485042F6E1456026417E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

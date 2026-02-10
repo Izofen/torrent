@@ -1,3 +1,29 @@
+###  Публикация: 978260   (1003898) от 03.01.2020
+
+Решала 2 (2015) WEB-DL [H.264/1080p-LQ]
+
+>>След.
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003898.jpg" />
+</div>
+
+
+###  Подробнее
+
+После событий, произошедших в первой части, прошло 4 года. Обстановка в городе напряженная, за сферы влияний борются два криминальных авторитета — Витя Черный и Добрый. В это время из тюрьмы выходит Завгар, и Витя Черный надеется на его поддержку. Но Завгар горит желанием отомстить Каше, ведь по его наводке он отправился за решетку. Каша уехал в другой город, он (   Читать дальше...   )Производство: Россия, Байкалкино, ГринбоксЖанр: Драма, КриминалРежиссер: Роман АсхаевАктеры: Александр Фролов, Моисей Куртанидзе, Константин Озеров, Чингиз Аздаев, Арина Есина, Руслан Балакшиев, Алина НамсараеваПеревод: Не требуется (русский)Продолжительность: 01:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDD6F9F7C11686AEFBAA908E918A2A72D280AF80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349693   (1003904) от 03.01.2020
 
 Лев Яшин. Вратарь моей мечты (2019) WEB-DL [H.264/720p-LQ]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:0E51D1646ACF36DF3020236552093B1466EE0216
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:0E51D1646ACF36DF3020236552093B1466EE0216
 magnet:?xt=urn:btih:AA28187ED3695E7A36F2BF7A55C5A8EF9328449A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:AA28187ED3695E7A36F2BF7A55C5A8EF9328449A
 ```bash
 magnet:?xt=urn:btih:9B32A3758FDEC3CFC8AEE75B997503A6260D6B5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:9B32A3758FDEC3CFC8AEE75B997503A6260D6B5C
 magnet:?xt=urn:btih:5E7826825F22FFB17AF7D41D9D79315C10AD0DCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:5E7826825F22FFB17AF7D41D9D79315C10AD0DCD
 ```bash
 magnet:?xt=urn:btih:B7CBF7404FCF40AAD3C204BCC12E83B7D3643EC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:B7CBF7404FCF40AAD3C204BCC12E83B7D3643EC3
 magnet:?xt=urn:btih:D47A6C7E286DE8E6AF7A4E21070712975DF715C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:D47A6C7E286DE8E6AF7A4E21070712975DF715C0
 ```bash
 magnet:?xt=urn:btih:18C76E808971E2AE0D6BDF1780AB8B9F2E7F9E90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:18C76E808971E2AE0D6BDF1780AB8B9F2E7F9E90
 magnet:?xt=urn:btih:D74C6CF8A1F15DF4EB59FAD842EBEE31455BBBE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:D74C6CF8A1F15DF4EB59FAD842EBEE31455BBBE0
 ```bash
 magnet:?xt=urn:btih:B05D71E16192CA01385041A60B4741392009CB3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ A prima vista (2020) WEBRip [H.264/720p-LQ]
 magnet:?xt=urn:btih:B2DA1D660C6602D8DFE4EF081FE4FFE3C4D50C9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:B2DA1D660C6602D8DFE4EF081FE4FFE3C4D50C9C
 ```bash
 magnet:?xt=urn:btih:D2481470BC986284FF0105D0416411A049DF113C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:D2481470BC986284FF0105D0416411A049DF113C
 magnet:?xt=urn:btih:716661A39CCDE20A12A014DE3C01E7106A684AF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:716661A39CCDE20A12A014DE3C01E7106A684AF4
 ```bash
 magnet:?xt=urn:btih:043DF12EBDCFF41ABF4AF1782B91D77842192753
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:043DF12EBDCFF41ABF4AF1782B91D77842192753
 magnet:?xt=urn:btih:66317C8C19BAF8DE6EF744E7C3910E60B5A218FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:66317C8C19BAF8DE6EF744E7C3910E60B5A218FB
 ```bash
 magnet:?xt=urn:btih:A2BD9968DFF0A2E3F82272EAD2BA765A014E2FCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:A2BD9968DFF0A2E3F82272EAD2BA765A014E2FCC
 magnet:?xt=urn:btih:9220F0103ED21014941901BA393DD129544CCA8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:9220F0103ED21014941901BA393DD129544CCA8D
 ```bash
 magnet:?xt=urn:btih:81C5EDBD4D84310FCA01EBA9FDFF543B4DC9D531
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:81C5EDBD4D84310FCA01EBA9FDFF543B4DC9D531
 magnet:?xt=urn:btih:ED8FA81B89990933367C2B3E1EB162125C500025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:ED8FA81B89990933367C2B3E1EB162125C500025
 ```bash
 magnet:?xt=urn:btih:9FA712DA673B67B847EADF447E16777482962B15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:9FA712DA673B67B847EADF447E16777482962B15
 magnet:?xt=urn:btih:72142672D590095012EF020F5C77F871C8D8CA07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:72142672D590095012EF020F5C77F871C8D8CA07
 ```bash
 magnet:?xt=urn:btih:690CA6400346A165203FC9F3C80AA7A3DECC621F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:690CA6400346A165203FC9F3C80AA7A3DECC621F
 magnet:?xt=urn:btih:9AA4F747338FA1CE2FF5CC0AE655C817B453796C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:9AA4F747338FA1CE2FF5CC0AE655C817B453796C
 ```bash
 magnet:?xt=urn:btih:8AA2BC9EA60A7773C930CC87C4C89C6C7003FBD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:8AA2BC9EA60A7773C930CC87C4C89C6C7003FBD7
 magnet:?xt=urn:btih:F8839C214D2BDCBE953B0E9E917D18B64F25C2BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,29 +671,7 @@ magnet:?xt=urn:btih:F8839C214D2BDCBE953B0E9E917D18B64F25C2BE
 magnet:?xt=urn:btih:7E2DC4D26D3A7CAE27D70F5ADEDA7F90E800DE6F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479974   (1008768) от 29.06.2021
-
-Девятаев (2021) WEBRip [H.264/1080p]
-
->>След.
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лето 1944 года. Советские войска ведут наступление, но враг еще очень силен. В бою с немецкими истребителями советский летчик сбит над вражеской территорией и попадает в плен. Теперь ему предстоит сделать выбор: умереть в концлагере или снова подняться в небо — но на стороне немцев. Летчик выбирает третий вариант — побег. Но как угнать самолёт с особо охраняемой (   Читать дальше...   )Производство: Россия / Военфильм, Базелевс ПродакшнЖанр: Военный, биография, драма, историяРежиссер: Тимур Бекмамбетов, Сергей ТрофимовАктеры: Павел Прилучный, Павел Чинарёв, Тимофей Трибунцев, Алексей Филимонов, Дмитрий Лысенков, Евгений Серзин, Олег Чугунов, Никита Кологривый, Антон Ксенев, Владимир ЛысенкоПеревод: Не требуется (Русский)Субтитры: русские (форсированные)Продолжительность: 01:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD9765858CE73835B1583DF1E4F29F86816494E4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 938262   (484064) от 17.09.2015
+
+Линия защиты. Воронежский маньяк (2015.09.16) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он объявил охоту на прокуроров и судей. Что это было? Месть за сломанную жизнь? Или маниакальный психоз? Почему скромный пенсионер взялся за оружие? Кто он - борец за справедливость, сектант, националист или обычный садист? Что нашли полицейские в доме убийцы? И где закончился его кровавый путь? Только в "Линии защиты" все подробности страшной охоты "воронежского (   Читать дальше...   )Производство: РоссияТелекомпания: ТВЦЖанр: ДокументальныйПродолжительность: 00:25:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A0A05CE40F6BBFDC5212FFB286112F871EC9A4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1055715   (484077) от 24.09.2016
 
 Страсти по Толстому / The Trouble with Tolstoy (2011) SATRip (2 серии из 2)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:530A045E32B07301A4CD03950548F787AA5882DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:530A045E32B07301A4CD03950548F787AA5882DC
 magnet:?xt=urn:btih:EA3B9132BF380C134C31D6DFEDFE3178C4F14CAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:EA3B9132BF380C134C31D6DFEDFE3178C4F14CAC
 ```bash
 magnet:?xt=urn:btih:89D09C0D460E4192FABBA756D3E991B5D3D4435E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:89D09C0D460E4192FABBA756D3E991B5D3D4435E
 magnet:?xt=urn:btih:AA187E93360FC63C03F4B90438C727FBD093D1A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:AA187E93360FC63C03F4B90438C727FBD093D1A8
 ```bash
 magnet:?xt=urn:btih:EF12A208B6EB4FCE97B3AA144C4D11B9FBD9A879
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:EF12A208B6EB4FCE97B3AA144C4D11B9FBD9A879
 magnet:?xt=urn:btih:6E36EB5A695017317E782F32BB0744D7C1BC330B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:6E36EB5A695017317E782F32BB0744D7C1BC330B
 ```bash
 magnet:?xt=urn:btih:721754F7C15E5119272B79455EF63569D5566384
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:721754F7C15E5119272B79455EF63569D5566384
 magnet:?xt=urn:btih:CBAF441073F0982E881E9C53A9A4D3744477EECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:CBAF441073F0982E881E9C53A9A4D3744477EECC
 ```bash
 magnet:?xt=urn:btih:90ADC84818873C5F5BD71962BC760B0875F970EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:90ADC84818873C5F5BD71962BC760B0875F970EB
 magnet:?xt=urn:btih:FA1AF8D397F2586DBD49E8A8D51A6FDBD308F224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:FA1AF8D397F2586DBD49E8A8D51A6FDBD308F224
 ```bash
 magnet:?xt=urn:btih:17EA1B67E3595FA1C07281DB38CBBF43D8133722
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:17EA1B67E3595FA1C07281DB38CBBF43D8133722
 magnet:?xt=urn:btih:B499381D4351570E9D6934922DC44D94ECE784D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:B499381D4351570E9D6934922DC44D94ECE784D5
 magnet:?xt=urn:btih:5730AEC2C1C263049E7A0B69DD0C08DE35568CB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:5730AEC2C1C263049E7A0B69DD0C08DE35568CB7
 ```bash
 magnet:?xt=urn:btih:A7B18731B3CB5BAAC4F1A3EED616473406E00EFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:A7B18731B3CB5BAAC4F1A3EED616473406E00EFA
 magnet:?xt=urn:btih:818240E016029A94B40CAED2382ACF030527AF15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:818240E016029A94B40CAED2382ACF030527AF15
 ```bash
 magnet:?xt=urn:btih:78CA082540823551459A46B5CF0BF9D6AF81D043
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:78CA082540823551459A46B5CF0BF9D6AF81D043
 magnet:?xt=urn:btih:6560EF0117BC423B6B19E4CCEDA9D0DFDD84585E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:6560EF0117BC423B6B19E4CCEDA9D0DFDD84585E
 ```bash
 magnet:?xt=urn:btih:72C168C8F47E5951EC16FCF13F895658A9C2D74D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:72C168C8F47E5951EC16FCF13F895658A9C2D74D
 magnet:?xt=urn:btih:9C0FEC479502A44056C044B086A721834CF54659
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +540,8 @@ Viasat History: Как болезни монархов изменили исто
 ```bash
 magnet:?xt=urn:btih:8AA4B450961D0DB9AF289C99D8C32C40F5F7F039
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +567,8 @@ magnet:?xt=urn:btih:8AA4B450961D0DB9AF289C99D8C32C40F5F7F039
 magnet:?xt=urn:btih:C30D7876F23537A7C64A944D2475324A2F0D80AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +592,8 @@ magnet:?xt=urn:btih:C30D7876F23537A7C64A944D2475324A2F0D80AC
 ```bash
 magnet:?xt=urn:btih:0D5BB5C36A93776BC50F4D5A69BF5E5890E76968
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:0D5BB5C36A93776BC50F4D5A69BF5E5890E76968
 magnet:?xt=urn:btih:293CD11C02C16C95BE72ACF234AE0262B31EC20D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +644,8 @@ magnet:?xt=urn:btih:293CD11C02C16C95BE72ACF234AE0262B31EC20D
 ```bash
 magnet:?xt=urn:btih:1389C33FC012B59470DEF83743BC8097C8C6FCD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:1389C33FC012B59470DEF83743BC8097C8C6FCD3
 magnet:?xt=urn:btih:7D6465BEB36B6141E451A11463D2C6CE10B2ABA0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053999   (485893) от 23.09.2016
-
-Джонни Квест. Документальный фильм / Jonny Quest Documentary (2012) WEB-DL
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Релиз приурочен к годовщине выхода на ТВ классического сериала о Джонни Квесте (18.09.1964 г.). Авторский фан-фильм про историю создания шедевра и интересных моментах, взятых из интервью Дага Уайлди, фактического отца приключений Джонни Квеста.Телекомпания: File O-37 productionЖанр: Документальный, ВидовойПеревод: Одноголосый закадровый, Трамвай-фильмПродолжительность: 02:21:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C8B11F169139C667BBA3CAC445884908BA0D10B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

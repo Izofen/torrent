@@ -20,6 +20,8 @@ Burn / Пекло (2007) [Ru] (1.0) License
 magnet:?xt=urn:btih:B4510F71CC8F58ADB039039E0C8EBC54F8B0715B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ X-COM: Interceptor (1998) [En] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:82E0651E8560E0762860AAB1AB7770CF38F0801B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Nelly Cootalot: The Fowl Fleet - это приключенческий квес�
 magnet:?xt=urn:btih:A8102C5BA574D3880611F9E62B891FF18A9F3F62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Tiberian Sun продолжает развивать тему противост
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Hidden & Dangerous 2: Sabre Squadron (2003-2004) [Multi] (1.12) License GOG
 magnet:?xt=urn:btih:941D6976B1F8B6BE7D06D694154C25FA032A0347
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Hidden & Dangerous Anthology (2002-2005) [Ru/En] (1.51/1.12/1.50) License
 ```bash
 magnet:?xt=urn:btih:78A790FCF611DA61BD6354165D30B70B182BBBE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ X-COM – это сверхсекретное боевое подразделе�
 magnet:?xt=urn:btih:6D7C6F056E1AD9A6BDFFB9919B6AAF1CCC9AD438
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Arcanum: Of Steamworks and Magick Obscura (2001) [En] (1.0.7.4hf) License GOG
 ```bash
 magnet:?xt=urn:btih:E8614647E01921281F8F6F9F33F0FE03AF8128DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Crime Cities - это оригинальная комбинация шутера
 magnet:?xt=urn:btih:449C7072473AA644BDD849DF063467306584F21B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ METAL GEAR SOLID 2 SUBSTANCE (2003) [Multi] (1.0cu) License GOG
 ```bash
 magnet:?xt=urn:btih:09B32A45EA9F6E73F9941BCBA9F86EAFAD13D0E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Star Trek: Voyager Elite Force (2000) [Multi] (1.2) License GOG
 magnet:?xt=urn:btih:BF7E27DCE095D537AA89796215C98F79F82D2D56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Star Trek: Elite Force II (2003) [En] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:2FB7723E44F10FCEDCA93454520DEBF09B608DFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Star Trek: Hidden Evil (1999) [En] (1.0) License GOG
 magnet:?xt=urn:btih:8449A61C4EB5E517774915D9E57C312A9662CD3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Medal of Honor: Pacific Assault (2004) [Multi] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:93E462D01E838DCFE1391E3CBE103E019D229410
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Rally Championship 2000 [Ru] (L) 2000
 magnet:?xt=urn:btih:C88A3FE6C5758A5CEF268F3FBF8450575E158573
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:C88A3FE6C5758A5CEF268F3FBF8450575E158573
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Psychonauts (2005) [Multi] (1.1.603.0) License GOG
 magnet:?xt=urn:btih:753AE6A83C4D945391AB643746DEE94BC29E66A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Shadowgrounds – эпическая научно-фантастическая �
 ```bash
 magnet:?xt=urn:btih:041B7AB099518AB6606728F1965B9057F8BAA2A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ The Colonel's Bequest (1989) [En] (1.000.046) License GOG
 magnet:?xt=urn:btih:15DB74000D571D910D5E950267307DC9251E79FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ The Dagger of Amon Ra (1992) [En] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:61AAA8874BBA07247BA3512E768C5BAB500AF686
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Farming Simulator 15 - это открытый мир и улучшенная г
 magnet:?xt=urn:btih:DE5EF5C3D7606D849C0F95EA2A0316AF7A222E69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ SiN (1998) [En] (1.13b/dlc) License GOG [Gold]
 ```bash
 magnet:?xt=urn:btih:54BCACB0FB9E1D111C7DB6F68BDF0234B1ADB543
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ Tom Clancy's Ghost Recon (2001) [En/Ge] (1.4.0.0) License GOG
 magnet:?xt=urn:btih:EB7A076A093F731166A160E4F870509A0A58A802
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ Tom Clancy's Rainbow Six (1998) [En] (1.04) License GOG
 ```bash
 magnet:?xt=urn:btih:367671AF8F8B22960F5B18B5FF1DF519CEAAD4CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ Leisure Suit Larry 6: Shape Up or Slip Out (1994) [En] (1.000.000) License GOG
 magnet:?xt=urn:btih:0147A9F53BFD8FF2189DC5C95F8D237689C5BDBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Cultures:The Discovery of Vinland / Деревня Викингов [Ru] (P) 200
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

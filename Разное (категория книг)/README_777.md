@@ -1,3 +1,32 @@
+###  Публикация: 1458506   (1023796) от 29.03.2021
+
+Джаред Даймонд | Кризис (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Что такое кризис?
+Почему одни страны успешно преодолевают его последствия, а другие нет?
+И каков механизм преодоления?
+Как шесть стран – Япония, Финляндия, Чили, Индонезия, Германия и Австралия – оказались в кризисном положении и как они нашли из него выход?(   Читать дальше...   )Жанр: История, Политология, ПублицистикаПеревод: В. ЖелниновФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25C67FAFB8663196A176E1EFCF493BE71DAA30F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458645   (1023872) от 29.03.2021
 
 Сатисъ (изд.) | Взыщите Господа. Из писем Святителя Феофана Затворника (2007) [FB2]
@@ -18,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:B543FEA8113DB5656209B5871416F4C42E4BA07B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +74,8 @@ magnet:?xt=urn:btih:B543FEA8113DB5656209B5871416F4C42E4BA07B
 magnet:?xt=urn:btih:50A1CBFE51DCAACB089058A4EABE34B5340C0D09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +99,8 @@ magnet:?xt=urn:btih:50A1CBFE51DCAACB089058A4EABE34B5340C0D09
 ```bash
 magnet:?xt=urn:btih:5E68E67006338AC801FDC9B95B35FFF0AF323609
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +126,8 @@ magnet:?xt=urn:btih:5E68E67006338AC801FDC9B95B35FFF0AF323609
 magnet:?xt=urn:btih:1181338F50CD717BA85DFE162F4158EF5125AF0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +151,8 @@ magnet:?xt=urn:btih:1181338F50CD717BA85DFE162F4158EF5125AF0A
 ```bash
 magnet:?xt=urn:btih:F044B61D3D60B079D8EC641D5D954546CCBCF7E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +179,8 @@ magnet:?xt=urn:btih:F044B61D3D60B079D8EC641D5D954546CCBCF7E9
 magnet:?xt=urn:btih:E74CCC8BE14997A8F6B8D5BC21001F566EA71ABD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +205,8 @@ magnet:?xt=urn:btih:E74CCC8BE14997A8F6B8D5BC21001F566EA71ABD
 magnet:?xt=urn:btih:CBDCA1FFC69C52227780FCAEBA473D087C7FF902
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +230,8 @@ magnet:?xt=urn:btih:CBDCA1FFC69C52227780FCAEBA473D087C7FF902
 ```bash
 magnet:?xt=urn:btih:CA57C8ED6D12CEC055193F2123EAF0B33572E20E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +258,8 @@ magnet:?xt=urn:btih:CA57C8ED6D12CEC055193F2123EAF0B33572E20E
 magnet:?xt=urn:btih:7F9E857369E5F5CCD87EDFAAFCBB1DFF75B6BAF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +283,8 @@ magnet:?xt=urn:btih:7F9E857369E5F5CCD87EDFAAFCBB1DFF75B6BAF1
 ```bash
 magnet:?xt=urn:btih:7392B78F4229465901DD23044390CB317972EEB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +311,8 @@ magnet:?xt=urn:btih:7392B78F4229465901DD23044390CB317972EEB2
 magnet:?xt=urn:btih:870A96FD465D0B36AA5C245952B796EAF1EFE1E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +338,8 @@ magnet:?xt=urn:btih:870A96FD465D0B36AA5C245952B796EAF1EFE1E1
 magnet:?xt=urn:btih:1EE4ED403098463FF669E4010833F903FBAEE51A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +363,8 @@ magnet:?xt=urn:btih:1EE4ED403098463FF669E4010833F903FBAEE51A
 ```bash
 magnet:?xt=urn:btih:6483868A935CB80BAC357CF3028DD4451D528599
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +392,8 @@ magnet:?xt=urn:btih:6483868A935CB80BAC357CF3028DD4451D528599
 magnet:?xt=urn:btih:23C1C38DAD9181A99587F1CC4DD4FC6D02BE6E44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +417,8 @@ magnet:?xt=urn:btih:23C1C38DAD9181A99587F1CC4DD4FC6D02BE6E44
 ```bash
 magnet:?xt=urn:btih:A7D7557D6A22AB1556BAE0CEF42A34455ED69E10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +445,8 @@ magnet:?xt=urn:btih:A7D7557D6A22AB1556BAE0CEF42A34455ED69E10
 magnet:?xt=urn:btih:CE6AB666B82F43FC3B23BE8243A960032CCD4240
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +472,8 @@ magnet:?xt=urn:btih:CE6AB666B82F43FC3B23BE8243A960032CCD4240
 magnet:?xt=urn:btih:1FD4D7F90DDF74C00E6D116B11D6A1E4618BE818
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +497,8 @@ magnet:?xt=urn:btih:1FD4D7F90DDF74C00E6D116B11D6A1E4618BE818
 ```bash
 magnet:?xt=urn:btih:BEFA2C428F3EB3180A35CC6C929747679EA7E884
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +524,8 @@ magnet:?xt=urn:btih:BEFA2C428F3EB3180A35CC6C929747679EA7E884
 magnet:?xt=urn:btih:1890ED3B848383FB6E2EFFD41FE018D0CBC612FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +550,8 @@ magnet:?xt=urn:btih:1890ED3B848383FB6E2EFFD41FE018D0CBC612FD
 magnet:?xt=urn:btih:1A898FF76DF0055930835F57AFECF99186F5D990
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +575,8 @@ magnet:?xt=urn:btih:1A898FF76DF0055930835F57AFECF99186F5D990
 ```bash
 magnet:?xt=urn:btih:757BF071686B87973DB658EB4A8B51A9F19D5DC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +603,8 @@ magnet:?xt=urn:btih:757BF071686B87973DB658EB4A8B51A9F19D5DC2
 magnet:?xt=urn:btih:21DF3EED75FDEFE537EB2988D4C01D723E4869F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +628,8 @@ magnet:?xt=urn:btih:21DF3EED75FDEFE537EB2988D4C01D723E4869F2
 ```bash
 magnet:?xt=urn:btih:4CB1CB5966B463D8957904149071BD841D0202AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +655,8 @@ magnet:?xt=urn:btih:4CB1CB5966B463D8957904149071BD841D0202AD
 magnet:?xt=urn:btih:96006DBAC3B08B07C046CC66A89C48F327A595E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,29 +681,7 @@ magnet:?xt=urn:btih:96006DBAC3B08B07C046CC66A89C48F327A595E0
 magnet:?xt=urn:btih:3553FAA77A3F4898127BA2970D29C65527B34786
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456969   (1024787) от 24.03.2021
-
-Иеродиакон Никон (Муртазов) | Ворон. Рассказы (2007) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024787.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге иеродиакона Никона (Муртазова) собраны рассказы, посвящённые современной русской жизни. Какими бы ни были судьбы героев, в центре каждой судьбы, в центре всей жизни — Божий храм и путь человека к Истине.Жанр: Современная проза. ПравославиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56A7F951AF1D72B887D1A28C6EC23187FB08C1A4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

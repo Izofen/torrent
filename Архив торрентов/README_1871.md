@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8C490517D418CFCD35CE849F5EFF0DAE2C1CDF8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ DIO - Back Alive (2008) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:35323031E3F51C216B037FCDA504027E13671764
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -85,6 +89,8 @@ VA - Реальный Блатняк часть 2 (2012) [MP3|256 кб/с]<Ша�
 magnet:?xt=urn:btih:38B3DC78F27B802A75C1DFAA3068007DF9ACC755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -111,6 +117,8 @@ NFOPad - небольшой, быстрый и удобный текстовый
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +143,8 @@ NFOPad - небольшой, быстрый и удобный текстовый
 magnet:?xt=urn:btih:E006A463E9BEDF7F816264DC779B8E8B5C83AC95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -158,6 +168,8 @@ magnet:?xt=urn:btih:E006A463E9BEDF7F816264DC779B8E8B5C83AC95
 ```bash
 magnet:?xt=urn:btih:1952200686931FDDBEF815F49ED478ED06031AEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +203,8 @@ VA - Iboga Records Label Party Vol. 01 (2012) [MP3|320 кб/с]<Psychedelic / Pr
 magnet:?xt=urn:btih:FBB68FBEC8501E01087F39050BBCEB5FBF6BBE1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +228,8 @@ artsb Service Controller - это простой и удобный способ 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +264,8 @@ VA - Stone Cold Queen - A Tribute To Queen (2001) [WavPack|Lossless]<Rock, Hard 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +299,8 @@ Earl Hines - Earl Hines and His Orchestra (1937-1939) (1990) [FLAC|Lossless]<Big
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +324,8 @@ Earl Hines - Earl Hines and His Orchestra (1937-1939) (1990) [FLAC|Lossless]<Big
 ```bash
 magnet:?xt=urn:btih:98CEF1B451D5F813FAACB859840D7A3B58956771
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +353,8 @@ magnet:?xt=urn:btih:98CEF1B451D5F813FAACB859840D7A3B58956771
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +378,8 @@ magnet:?xt=urn:btih:98CEF1B451D5F813FAACB859840D7A3B58956771
 ```bash
 magnet:?xt=urn:btih:CC068EA48537855927B2AE91843A7E91AAFEC5C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +414,8 @@ VA - Танцевальный DFM Русский Выпуск (2012) [MP3|256 к
 magnet:?xt=urn:btih:7ED97F938112EBB1941AB491E9B0EB1BA1154262
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +439,8 @@ Hypersnap - инструмент для захвата изображения, �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +467,8 @@ High Maintenance - With You / Nowhere (Audioporn APORN015, 2011) [MP3|320 кб/�
 magnet:?xt=urn:btih:B2C00CDA0CB65C7B4AA04FCF02DD2EA701D556D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +493,8 @@ magnet:?xt=urn:btih:B2C00CDA0CB65C7B4AA04FCF02DD2EA701D556D4
 magnet:?xt=urn:btih:88CBF6813AB79723E8A5B412A28A5C4A8A744714
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +518,8 @@ AkelPad - текстовый редактор с открытым исходны
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +548,8 @@ AkelPad - текстовый редактор с открытым исходны
 magnet:?xt=urn:btih:DBBFB4BD3967E6016FEA20BD50D75C029C96904F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +573,8 @@ magnet:?xt=urn:btih:DBBFB4BD3967E6016FEA20BD50D75C029C96904F
 ```bash
 magnet:?xt=urn:btih:10B4577835F3D72B7165A1CAF29B3A5116B5F32B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +600,8 @@ SRWare Iron - браузер с открытым исходным кодом, р
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +625,8 @@ SRWare Iron - браузер с открытым исходным кодом, р
 ```bash
 magnet:?xt=urn:btih:DFB26EF1274C93D604CD71320C5B081C281041CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +661,8 @@ Slim Gaillard - Slim Gaillard (1939-1940) (1993) [FLAC|Lossless]<Vocal Jazz, Swi
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +686,8 @@ Slim Gaillard - Slim Gaillard (1939-1940) (1993) [FLAC|Lossless]<Vocal Jazz, Swi
 ```bash
 magnet:?xt=urn:btih:503F8D57B848EA2364E41FEDE48CD4D545DAE6A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -674,6 +722,8 @@ VA - Instrumental Lounge (2012) [MP3|320 кб/с]<Instrumental, Lounge, Chill Ou
 magnet:?xt=urn:btih:4CF22F727E81ED4AC772F030B9C694BA064A66A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +749,8 @@ Parted Magic - пакет утилит для работы с разделами
 ```bash
 magnet:?xt=urn:btih:4DB83A0687EFD7E69D10FF264C64A0EE1D1C170D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Total Chaos (2025) [Ru/Multi] (1.035) Repack Other s
 magnet:?xt=urn:btih:105DA40F043B2A24E8A9B6ABE962FE4C953C6CDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Lost Ember: Rekindled Edition (2025) [Ru/Multi] (Build 20965378/dlc) Repack FitG
 ```bash
 magnet:?xt=urn:btih:289C7F7A046752B52CCC0F75C8D85C33E606DD71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Bloodface - ролевой экшен, события которого разв�
 magnet:?xt=urn:btih:91F6FCEBBE25B7D147C54A5B167B892C10CB167F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Project Motor Racing - это не просто симулятор гоночн�
 ```bash
 magnet:?xt=urn:btih:10960189ABEB53F4F95EEFF34667946ADBB03E04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Sleep Awake - завораживающий психоделический хор
 magnet:?xt=urn:btih:67E441E817B04359CE3468693793678FDBB3772E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Sleep Awake - завораживающий психоделический хор
 ```bash
 magnet:?xt=urn:btih:03E977473791751806B8D257628DB583A92137AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Slyders (2025) [Ru/Multi] (1.0.12) Repack FitGirl
 magnet:?xt=urn:btih:E02AAE3B76B3DB0E8EF3D273FE9C2CCB8E374C4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Yakuza Kiwami 2 (2025) [Ru/Multi] (2.11) Scene Rune
 ```bash
 magnet:?xt=urn:btih:A52B51DF0AED1E7E9D940119DFF50CC73683242B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Yakuza Kiwami (2025) [Ru/Multi] (2.11) Scene Rune
 magnet:?xt=urn:btih:18DBC22D6EAF49321AA233E0862203CB76049432
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Routine – это sci-fi хоррор от первого лица в стил�
 ```bash
 magnet:?xt=urn:btih:1ADBA5D54D5CEFC975C20002342CCFCEE41B4DDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Terminator 2D: NO FATE (2025) [Ru/Multi] (Build 20805989) Repack FitGirl
 magnet:?xt=urn:btih:D12CA15984F9709E2B67F24A0A38F2CECCB4B0BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Terminator 2D: NO FATE (2025) [Ru/Multi] (Build 20805989) Repack Other s
 ```bash
 magnet:?xt=urn:btih:AB523209CAE1C622D1A878EE4E1DF6D2D158FA17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Ayasa: Shadows of Silence приглашает игроков в мир, где 
 magnet:?xt=urn:btih:EA446B834496F86BAE6E85AAFE55053706C72CD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Samurai Academy Paws of Fury (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:704D3CBDF3D83CAF13326C1003C2C88E2E80C01C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ FEROCIOUS (2025) [Ru/Multi] (Build 21057229) Repack seleZen
 magnet:?xt=urn:btih:256F733A69BA92C558E46CB04059D45E1C5DD873
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ FEROCIOUS (2025) [Ru/Multi] (Build 21057229) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:50BCFF54DDC6A8EFAB087581932F36922BFF5DDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Constance - это двумерный приключенческий экшен 
 magnet:?xt=urn:btih:B83D023C11848641125B33077AEFE1CA61A8104D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Yakuza Kiwami (2025) [Ru/Multi] (2.11) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:E6402C1BAAFA90C9572F46E69B82D054397DE2F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Yakuza Kiwami 2 (2025) [Ru/Multi] (2.11) Repack Let'sРlay
 magnet:?xt=urn:btih:166A078D9D0CEDAFEBAB3C23E191185D4ED6C7C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Yakuza Kiwami 2 (2025) [Ru/Multi] (2.11) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:EED77E4DC4321A022C94020AFE993F9782C46354
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Morsels (2025) [Multi] (0.28.13) Scene Tenoke
 magnet:?xt=urn:btih:F5DD287A5091A2C82EE9A46DD94567C1D244DD83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ HELL OF FEAR Mind Breach (2025) [Ru/Multi] (161.5.1.f) Repack Other s
 ```bash
 magnet:?xt=urn:btih:133C2CB1AEB90587E55FE31089F20E4EDDB50993
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Yakuza Kiwami 2 (2025) [Ru/Multi] (2.11) Repack FitGirl
 magnet:?xt=urn:btih:D35B664171DA403E8CCC82C6A73DB6B3F50499CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ ANGST - мрачная, сюжетно-ориентированная survival-�
 ```bash
 magnet:?xt=urn:btih:E17723559629516D3D5826719B01FE0C1A038450
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ The Last Case of John Morley погружает игроков в роль де�
 magnet:?xt=urn:btih:88544032A103ACD626CFAB8F3D476A99D3785489
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Cold White (2024) [Ru/Multi] (0.0.11) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:AB1FC9A341681C4A318C401F93D5595DF7B3E9BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

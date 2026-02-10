@@ -19,6 +19,8 @@ WPI Pack v.03.12 [Rus/Multi/x32/x64]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ WPI Pack v.03.12 [Rus/Multi/x32/x64]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ WPI Pack v.03.12 [Rus/Multi/x32/x64]
 magnet:?xt=urn:btih:682DF869717A18AD9FB258FF4CF5A97A8089C526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:682DF869717A18AD9FB258FF4CF5A97A8089C526
 ```bash
 magnet:?xt=urn:btih:EA832C9D34DD1CA878548AA0505D0F4310AC14A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:EA832C9D34DD1CA878548AA0505D0F4310AC14A5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:EA832C9D34DD1CA878548AA0505D0F4310AC14A5
 ```bash
 magnet:?xt=urn:btih:162EE39FB5C6853F357D102602F1F49FFD1AC323
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:162EE39FB5C6853F357D102602F1F49FFD1AC323
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Windows 7x64 Ultimate UralSOFT v.3.4.12 ( 2012) [Rus]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Windows 7x64 Ultimate UralSOFT v.3.4.12 ( 2012) [Rus]
 magnet:?xt=urn:btih:70E3D38316558F831DE837ECD9A922A6F8BB6052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:70E3D38316558F831DE837ECD9A922A6F8BB6052
 ```bash
 magnet:?xt=urn:btih:FE4C8ADE5EDAA8C9BC4750AF64A02DC97BECA469
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:FE4C8ADE5EDAA8C9BC4750AF64A02DC97BECA469
 magnet:?xt=urn:btih:4C12E4BC48C396486FDE1D2029528F1E0BE435DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:4C12E4BC48C396486FDE1D2029528F1E0BE435DE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ HTML5 и CSS3 - будущее веб-разработки, но не обяза
 magnet:?xt=urn:btih:16467D53D52807854F277D67BA21F68EFFA1D4C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Deep Black Reloaded [Multi6/+] (RePack/1.5) 2012 | R.G. Catalyst
 magnet:?xt=urn:btih:01895B5B496BB4C126A2281FF2D713A8C3622F69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:01895B5B496BB4C126A2281FF2D713A8C3622F69
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:01895B5B496BB4C126A2281FF2D713A8C3622F69
 magnet:?xt=urn:btih:930A48CBC1F560694847F194F32301B6F5FFDA02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:930A48CBC1F560694847F194F32301B6F5FFDA02
 ```bash
 magnet:?xt=urn:btih:CC6B0C3576CC9F444D8493F92548D24941BC86EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Microsoft Windows 7 Ultimate Ru x86 SP1 WPI Boot by OVGorskiy 16.03.2012
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ Windows Server 2003 доступен в четырёх основных изда
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ Need for Speed: The Run Limited Edition +DLC [Ru/En] (RePack/1.1) 2011 | Naitro
 magnet:?xt=urn:btih:8A874952F20DAFD3DA78AD023BE9258506DC78DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ Borland C++ Builder 6 Build 10.161 Enterprise Edition [Английский]
 ```bash
 magnet:?xt=urn:btih:76AD53CB3B7179D63C7028D983830AC17DA2F67A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:76AD53CB3B7179D63C7028D983830AC17DA2F67A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ One Key Recovery 7 для Lenovo 7.0 [rus]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ One Key Recovery 7 для Lenovo 7.0 [rus]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ USB universal FINAL [русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +692,8 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (L/Steam-Rip) 2012
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ The Lord of the Rings: Return to Moria (2024) [Multi] (1.3.2.157411) Scene Rune
 magnet:?xt=urn:btih:0ECA5CA2700311FDF75B44C94BCE062843DB89B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Terminator Zero | Терминатор Зеро [2024, Web, 8 эп.] WebRip 1080
 magnet:?xt=urn:btih:FE42C358CFC9CEDA6B6884493FC4573463F95196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:FE42C358CFC9CEDA6B6884493FC4573463F95196
 magnet:?xt=urn:btih:2C8D67658A680D7A3D901FD43A1CF603470AF3F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ FOOTAGE BODYCAM / FOOTAGE REC (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4E001E7AB82679089A7E898C9F2ABDC8F1BB11A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:4E001E7AB82679089A7E898C9F2ABDC8F1BB11A3
 magnet:?xt=urn:btih:32658FC434F1C816A55F6BDEBA7214B0E55EDB96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ The Dawning Clocks of Time Remake (2024) [En] (1.0.4.0820.26) License GOG
 ```bash
 magnet:?xt=urn:btih:696549DC99FBEDCC4A71949016802E0FFE0A329B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ XVIII век. Легендарный гуцульский атаман Олек�
 magnet:?xt=urn:btih:7003E89480CB14113643A491F695267C8AB4066B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:7003E89480CB14113643A491F695267C8AB4066B
 ```bash
 magnet:?xt=urn:btih:86F1C5285B54199628152B811DD52CB5E95C5089
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Zoom Player - мощный, гибкий и настраиваемый DVD/Blu-r
 magnet:?xt=urn:btih:285E683F949AAE44291BEB8363E6E54801D47B9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ NetLimiter - программа, решающая проблему контро�
 ```bash
 magnet:?xt=urn:btih:ED7911F8F6D0503E5FDBAFD54147A8E5AE17DBC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:ED7911F8F6D0503E5FDBAFD54147A8E5AE17DBC4
 magnet:?xt=urn:btih:A49E69B264AEF79446F0733CD3DDFC13E72CEE20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:A49E69B264AEF79446F0733CD3DDFC13E72CEE20
 ```bash
 magnet:?xt=urn:btih:C15DFCE984D26634E388AB6A197153F4C0AF1557
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Ventusky: Прогноз погоды v36.2 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:A76DB084DBB0C0DE72A4F6F1F0A3F6186BBD0455
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:A76DB084DBB0C0DE72A4F6F1F0A3F6186BBD0455
 ```bash
 magnet:?xt=urn:btih:C8CBC9BDDFCD5D69652E2B691A515D25479C72B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:C8CBC9BDDFCD5D69652E2B691A515D25479C72B2
 magnet:?xt=urn:btih:1D5B734B9884DF6117A5B9069448F11694822162
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:1D5B734B9884DF6117A5B9069448F11694822162
 ```bash
 magnet:?xt=urn:btih:AC014CCB142B17B00367267310A4866691859B60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Cockos Reaper является одной из самых продвинутых
 magnet:?xt=urn:btih:99E5FA9B8226D965D8C691416B583719F45094C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Fast Video Cutter Joiner - программа 2-в-1 для быстрой ре�
 ```bash
 magnet:?xt=urn:btih:77BD3215415E7F3849D7BD1194792AE88B1DB401
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:65E346E5C5FA288723DE5BA1ED77D47FC8F014D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:65E346E5C5FA288723DE5BA1ED77D47FC8F014D3
 ```bash
 magnet:?xt=urn:btih:3A24248DFED1F4CBFDAF0A071E5359D82D6BA2D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:3A24248DFED1F4CBFDAF0A071E5359D82D6BA2D5
 magnet:?xt=urn:btih:4107F0908D963BB8A4E1BD8D3AEB4FCF989EE1E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:CD389F678BF4DFFAF6AAA51F19CDFCA85BC5FC5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:C88F7F3B0D535B80A9C85D08C54956D7236A6CBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ magnet:?xt=urn:btih:C88F7F3B0D535B80A9C85D08C54956D7236A6CBE
 ```bash
 magnet:?xt=urn:btih:8139BF1DC227E54F9DAB6585BB92F7875EE725E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ magnet:?xt=urn:btih:8139BF1DC227E54F9DAB6585BB92F7875EE725E2
 magnet:?xt=urn:btih:1A357B6E625306A55BDD19391885AE50004A454C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ WinCatalog - это простая в использовании програм�
 ```bash
 magnet:?xt=urn:btih:364F212F69C41D5C87A199A666AABEF17FC83AB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

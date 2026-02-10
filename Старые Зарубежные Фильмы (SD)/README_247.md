@@ -1,27 +1,3 @@
-###  Публикация: 1842372   (1048738) от 18.12.2025
-
-Уютные норки / Pelisky (1999) BDRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комедия о двух соседствующих семьях, главы которых не сходятся в политических взглядах. Наступает новый 1968 год. Молодежь грезит о западном образе жизни, слушает рок-н-ролл и смотрит на проекторе французское кино с Жаном Маре. Тем временем, взрослых не отпускают старые обиды. Националист и ветеран сопротивления собачится с соседом, военным коммунистом, о том, кто (   Читать дальше...   )Производство: Чехия / Ceská Televize, Total HelpArt T.H.A.Жанр: драма, комедияРежиссер: Ян ГржебейкАктеры: Майкл Беран, Мирослав Донутил, Симона Сташова, Кристина Новакова, Иржи Кодет, Ева Голубова, Эмилия Вашариова, Болек Поливка, Ярослав Душек, Стелла ЗазворковаПеревод: профессиональный многоголосый (MVO Eurochannel), любительский одноголосыйЯзык озвучки: русский, чешскийСубтитры: русские, английскиеПродолжительность: 02:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFE75BE7F43B04D32E38D4EF847905834E07214B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843091   (1048943) от 18.12.2025
 
 Цвет денег / The Color of Money (1986) BDRip [H.264]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:AFE75BE7F43B04D32E38D4EF847905834E07214B
 ```bash
 magnet:?xt=urn:btih:8DB80618375591CA41D63278B43C2D8B9298E57E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:8DB80618375591CA41D63278B43C2D8B9298E57E
 magnet:?xt=urn:btih:8AB8B1518380CD61FC4B44CBBC754E444F1E614F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:8AB8B1518380CD61FC4B44CBBC754E444F1E614F
 ```bash
 magnet:?xt=urn:btih:B8A10217F5F85FEACDF4946A1BB6BA26FAFACEA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:B8A10217F5F85FEACDF4946A1BB6BA26FAFACEA3
 magnet:?xt=urn:btih:DF623BC8897DCC0462E077C0816A24F8D32241CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:DF623BC8897DCC0462E077C0816A24F8D32241CC
 ```bash
 magnet:?xt=urn:btih:8FB382893392E8FCDB24912A6EEADEFC19106A84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:8FB382893392E8FCDB24912A6EEADEFC19106A84
 magnet:?xt=urn:btih:62D0FDFEABBE1382A9570B28EA58B680B74F8372
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:62D0FDFEABBE1382A9570B28EA58B680B74F8372
 ```bash
 magnet:?xt=urn:btih:C1B519E78692D952C1EBD8CF60A0DDEB9A030EED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:C1B519E78692D952C1EBD8CF60A0DDEB9A030EED
 magnet:?xt=urn:btih:1F65E7E9ADA7E25AA15313A865E614BCE3AC49FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:1F65E7E9ADA7E25AA15313A865E614BCE3AC49FB
 ```bash
 magnet:?xt=urn:btih:34DFA65B8AF327B8C94700A98CA179DD17BA14E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:34DFA65B8AF327B8C94700A98CA179DD17BA14E5
 magnet:?xt=urn:btih:446A90C11E8299E0A1F650C53DCD471D841E5BC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ magnet:?xt=urn:btih:446A90C11E8299E0A1F650C53DCD471D841E5BC5
 ```bash
 magnet:?xt=urn:btih:867FAE7E50DE19EEE3EDEF637F66762D40E0293C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:867FAE7E50DE19EEE3EDEF637F66762D40E0293C
 magnet:?xt=urn:btih:D797E61261E08FE2C39C7BECCB034DC5FB9AC5A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ magnet:?xt=urn:btih:D797E61261E08FE2C39C7BECCB034DC5FB9AC5A9
 ```bash
 magnet:?xt=urn:btih:2E62EB8E332F49083E0D5C15E19DB018309935E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:2E62EB8E332F49083E0D5C15E19DB018309935E8
 magnet:?xt=urn:btih:FAA22D9841865206467321320CC28F832EBEE0D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ magnet:?xt=urn:btih:FAA22D9841865206467321320CC28F832EBEE0D7
 ```bash
 magnet:?xt=urn:btih:C90044CEB814C34505842AA8FBA4083A1FE6BBBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ magnet:?xt=urn:btih:C90044CEB814C34505842AA8FBA4083A1FE6BBBB
 magnet:?xt=urn:btih:141F7B9E2724580AB457448108B62730CEE14322
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ magnet:?xt=urn:btih:141F7B9E2724580AB457448108B62730CEE14322
 ```bash
 magnet:?xt=urn:btih:63E1F170755E8D9500EC307456198F1174111317
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ magnet:?xt=urn:btih:63E1F170755E8D9500EC307456198F1174111317
 magnet:?xt=urn:btih:AC17A1EF03E1E539B6EF337397082B6C69C7B8D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ magnet:?xt=urn:btih:AC17A1EF03E1E539B6EF337397082B6C69C7B8D7
 ```bash
 magnet:?xt=urn:btih:DCBCE802665D33BC961BFC74AB082C0D2E68B986
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ magnet:?xt=urn:btih:DCBCE802665D33BC961BFC74AB082C0D2E68B986
 magnet:?xt=urn:btih:6E636E6EFE44205DF2AB85547AF58728D99AB201
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ magnet:?xt=urn:btih:6E636E6EFE44205DF2AB85547AF58728D99AB201
 ```bash
 magnet:?xt=urn:btih:7B2818C5312F95099B081619C3DE6223007B1730
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ magnet:?xt=urn:btih:7B2818C5312F95099B081619C3DE6223007B1730
 magnet:?xt=urn:btih:620D4AEFC3836EF3A3925E034C6D89D616EBBB8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ magnet:?xt=urn:btih:620D4AEFC3836EF3A3925E034C6D89D616EBBB8B
 ```bash
 magnet:?xt=urn:btih:352AB01D8051A62917CEE98E51C06FF23510D10A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ magnet:?xt=urn:btih:352AB01D8051A62917CEE98E51C06FF23510D10A
 magnet:?xt=urn:btih:6A5CE370A4AC9ED992F157914D18922BDE9A1FDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ magnet:?xt=urn:btih:6A5CE370A4AC9ED992F157914D18922BDE9A1FDF
 ```bash
 magnet:?xt=urn:btih:33B3048E6D0E5F0EDA88EEE0F1003E7D1F687ED2
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847272   (1051874) от 11.01.2026
+
+Музей восковых фигур / Waxwork (1988) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неизвестно откуда в городе появляется музей восковых фигур, в котором собраны самые страшные монстры в истории мистики - Дракула, маркиз Де Сад, Призрак оперы, Франкенштейн и многие другие. Зловещий хранитель музея приглашает группу школьников, модерновых припанкованных подростков, на презентацию открытия музея, которая должна состояться ровно в полночь. Придя в (   Читать дальше...   )Производство: США, Германия (ФРГ), Великобритания / Contemporary Films, Electric Pictures, Vestron PicturesЖанр: ужасы, комедияРежиссер: Энтони ХикоксАктеры: Зак Гэллиган, Дебора Формен, Мишель Джонсон, Дэна Эшбрук, Дэвид Уорнер, Михай «Миху» Месарош, Патрик Макни, Майлз О`Киффи, Джон Рис-ДэвисПеревод: профессиональный многоголосый (OPT), авторский (Сергей Визгунов; Андрей Гаврилов)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CF84C60DB7CF295D9189EA0CF3A54600C25FF1D
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

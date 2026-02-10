@@ -19,6 +19,8 @@ Living Legends 13: Haunting Melody (2025) [En] (1.0) Unofficial [Collector's Edi
 magnet:?xt=urn:btih:033E75EDFBE81296D9DB84E9B75050F61AF039FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:033E75EDFBE81296D9DB84E9B75050F61AF039FE
 ```bash
 magnet:?xt=urn:btih:67C72C9A89394006958BF4ED20C07C0F723D61C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ VA - Music News For Forum vol.145 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:CF70B5E88906CE07E855E39F43DDCD228F7C89F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:BB7428A2DEB4DA83F64798D64E512E973CE75C0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:BB7428A2DEB4DA83F64798D64E512E973CE75C0C
 magnet:?xt=urn:btih:12FA6C5A97C8BFC14E2FF48427555BC9D113BD53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:12FA6C5A97C8BFC14E2FF48427555BC9D113BD53
 ```bash
 magnet:?xt=urn:btih:09C2944912BDEBB8E4385665E5F8A9F8323F1B8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:09C2944912BDEBB8E4385665E5F8A9F8323F1B8B
 magnet:?xt=urn:btih:D38E3F8ED2891A037CC3FE5ACA21B114E2530653
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ Advanced Renamer имеет достаточно (   Читать дальше.
 magnet:?xt=urn:btih:343A333DF25BC5F1D61CFFD442AC481975FA0DC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ True Fear: Forsaken Souls (2016) [Ru/Multi] (2.0.10) License GOG [Part 1]
 magnet:?xt=urn:btih:FC69C3F0FD4DC12F3BDAE0AD5DDB4D86857DAAB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:AAFB753C28DAD10DE1EECBDC61C4AE336FD43027
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ Kings Of Leon - EP #2 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Rock, Al
 magnet:?xt=urn:btih:01872B8A2739682BC6D9F349F8239D27ED63D3D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ Jimi Hendrix (The Jimi Hendrix Experience) - Bold As Love Sessions (2025) [FLAC|
 magnet:?xt=urn:btih:9DA5082CF3EADEA4DAD3493EDABFD9027F138B71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:9DA5082CF3EADEA4DAD3493EDABFD9027F138B71
 ```bash
 magnet:?xt=urn:btih:75715C57E6FD00306C2B083B15FBB60A2614E396
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ Finger Eleven - Last Night On Earth (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:57E877519F64A1339E5804BB24DE625206398892
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:57E877519F64A1339E5804BB24DE625206398892
 ```bash
 magnet:?xt=urn:btih:49E42994F6FA2224D33491F536A912B53C6A5BAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:49E42994F6FA2224D33491F536A912B53C6A5BAD
 magnet:?xt=urn:btih:8843ED6D8AE6ED0F20223EE7C564CA460B3B609A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ B3DSERK с гордостью представляет скульптуру Да
 ```bash
 magnet:?xt=urn:btih:A17B3C9A5D2148B9A3F4EFC3290C800C4B0AF48B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ Biped 2 – это продолжение увлекательной игры о
 magnet:?xt=urn:btih:19C8FFEA2530CB2F829829BD2E8141C22AE933B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ Deltarune - это пошаговая ролевая игра от Тоби Фо
 ```bash
 magnet:?xt=urn:btih:DDE74123D282FE23182721E6A2489B688F32658B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:DDE74123D282FE23182721E6A2489B688F32658B
 magnet:?xt=urn:btih:E98C23A32AF86367378F2D749142461DA850DDE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ Secrets of Salem 2: The Phantom Cab / Секреты Салема 2: Призр�
 ```bash
 magnet:?xt=urn:btih:419AB5D7F59E5A8C9937543587DBBEF51A3604F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ Alcatrazz - Prior Convictions (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, H
 magnet:?xt=urn:btih:85102222026138C372841B025EEDBE2356DE16D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ RADIO TAPOK - БЛИЦКРИГ (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy
 ```bash
 magnet:?xt=urn:btih:ADA334297EAE336F91A938249F2D6DECE2E2D2A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +643,8 @@ RADIO TAPOK - БЛИЦКРИГ (2025) [MP3|320 Kbps] <Heavy Metal>
 magnet:?xt=urn:btih:83CEF0464F936A607D5433D1BC8B48A24A7EDFA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ Second Sun (2025) [En] (1.0.5b) Repack Necros
 magnet:?xt=urn:btih:C99A68CB5D35018C1C29A15E930BF82E141972A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ magnet:?xt=urn:btih:C99A68CB5D35018C1C29A15E930BF82E141972A2
 ```bash
 magnet:?xt=urn:btih:856271FC00BD77D2A9B79B53C66D11C09E7235C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

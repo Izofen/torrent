@@ -1,3 +1,30 @@
+###  Публикация: 1493604   (893563) от 04.09.2021
+
+Владимир Корн | Теоретик (Книга 3). Реквием по мечте (2021) [MP3, Игорь Ломакин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игорь Черниговский не знает, за какие провинности оказался в другом мире, но быстро понимает, что погибнуть здесь можно в один момент – либо от рук бандитов, либо от зубов плотоядного монстра. Прибившись к одной из банд, герой получает кличку Теоретик и осваивает главные правила: лишнего не болтать и никому не верить.
+Всё больше Игоря мучают вопросы, зачем он здесь, (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыПродолжительность: 08:36:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EFE1378EDBB9E691F181CC7AF985284B0D72107
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 761851   (893566) от 01.03.2014
 
 Андрей Белянин | Замок Белого Волка (2014) [MP3]
@@ -20,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:82A956921B25A66E1DD647C22FBA9AA9F05BA930
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@ magnet:?xt=urn:btih:82A956921B25A66E1DD647C22FBA9AA9F05BA930
 ```bash
 magnet:?xt=urn:btih:E34CF4D1B178CD7F70D80D278D942A03DC58D0A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +104,8 @@ magnet:?xt=urn:btih:E34CF4D1B178CD7F70D80D278D942A03DC58D0A5
 magnet:?xt=urn:btih:047891E2C5054B2083AC723767D1D2779BC3F680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +130,8 @@ magnet:?xt=urn:btih:047891E2C5054B2083AC723767D1D2779BC3F680
 ```bash
 magnet:?xt=urn:btih:797249AD9EC6816B664BCAA34EFB10750A4AD54F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +159,8 @@ magnet:?xt=urn:btih:797249AD9EC6816B664BCAA34EFB10750A4AD54F
 magnet:?xt=urn:btih:8CF7E4B1C696A00157F45A1C24AB05C0579458FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +184,8 @@ magnet:?xt=urn:btih:8CF7E4B1C696A00157F45A1C24AB05C0579458FB
 ```bash
 magnet:?xt=urn:btih:F31D03A87EB681160D5268B84D5AEC9DCB74F95E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +211,8 @@ magnet:?xt=urn:btih:F31D03A87EB681160D5268B84D5AEC9DCB74F95E
 magnet:?xt=urn:btih:C62788A3EB620CA9CE00C00C3746CB9A76D1D433
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +236,8 @@ magnet:?xt=urn:btih:C62788A3EB620CA9CE00C00C3746CB9A76D1D433
 ```bash
 magnet:?xt=urn:btih:2B605C8528AEC96F908B6AA7A50822885CC6B6FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +264,8 @@ magnet:?xt=urn:btih:2B605C8528AEC96F908B6AA7A50822885CC6B6FF
 magnet:?xt=urn:btih:55FCF9E43536F8B62F5C7D466EB4E43D40F2F0BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +289,8 @@ magnet:?xt=urn:btih:55FCF9E43536F8B62F5C7D466EB4E43D40F2F0BB
 ```bash
 magnet:?xt=urn:btih:5DEE6CE2A796B64895E0C34EF09D15563B6327A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +318,8 @@ magnet:?xt=urn:btih:5DEE6CE2A796B64895E0C34EF09D15563B6327A3
 magnet:?xt=urn:btih:73EF2AD5CFC583AE681F25F965D0652715F54355
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +343,8 @@ magnet:?xt=urn:btih:73EF2AD5CFC583AE681F25F965D0652715F54355
 ```bash
 magnet:?xt=urn:btih:53D59D0CC5A43B2E8DA2A3EA7DAB643CDCAC4F4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +371,8 @@ magnet:?xt=urn:btih:53D59D0CC5A43B2E8DA2A3EA7DAB643CDCAC4F4F
 magnet:?xt=urn:btih:C5F7A698B65A4D452CB1BFE138F36484E6802499
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ magnet:?xt=urn:btih:C5F7A698B65A4D452CB1BFE138F36484E6802499
 magnet:?xt=urn:btih:351C7EE8E3926774BFBF9DE8DF70D0EC4040BAC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +423,8 @@ magnet:?xt=urn:btih:351C7EE8E3926774BFBF9DE8DF70D0EC4040BAC9
 ```bash
 magnet:?xt=urn:btih:F4D27A55299427EDA3D79BE462626E4D19C811FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +450,8 @@ magnet:?xt=urn:btih:F4D27A55299427EDA3D79BE462626E4D19C811FA
 magnet:?xt=urn:btih:188519807CD56CAAE39F51083B51114BDB2ACDB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +476,8 @@ magnet:?xt=urn:btih:188519807CD56CAAE39F51083B51114BDB2ACDB2
 magnet:?xt=urn:btih:44F95FB8BB36AE6CC240274FCE8C3B2BA1895CB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +501,8 @@ magnet:?xt=urn:btih:44F95FB8BB36AE6CC240274FCE8C3B2BA1895CB6
 ```bash
 magnet:?xt=urn:btih:76728464ED966FE1E4764A43448F359A0FDB004C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +529,8 @@ magnet:?xt=urn:btih:76728464ED966FE1E4764A43448F359A0FDB004C
 magnet:?xt=urn:btih:2562C5F54834AFB6887B3FBAAB520FD5B1C14895
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +555,8 @@ magnet:?xt=urn:btih:2562C5F54834AFB6887B3FBAAB520FD5B1C14895
 ```bash
 magnet:?xt=urn:btih:146C4ED69160ADB9D906BF9F76FCD196F720A5B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +583,8 @@ magnet:?xt=urn:btih:146C4ED69160ADB9D906BF9F76FCD196F720A5B9
 magnet:?xt=urn:btih:889E11D8F409509289DF6BA23A7A08FB3F5B6DD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +610,8 @@ magnet:?xt=urn:btih:889E11D8F409509289DF6BA23A7A08FB3F5B6DD2
 magnet:?xt=urn:btih:E4D2D92CCE7C9FEC892EFB71D8B09868391C3019
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +636,8 @@ magnet:?xt=urn:btih:E4D2D92CCE7C9FEC892EFB71D8B09868391C3019
 magnet:?xt=urn:btih:A8C6944B72B69D335DAF1D429AD07D312BFF6FDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +661,8 @@ magnet:?xt=urn:btih:A8C6944B72B69D335DAF1D429AD07D312BFF6FDB
 ```bash
 magnet:?xt=urn:btih:E22B0FDE4915D23CD304276CCFF09885A1CC15B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,31 +691,7 @@ magnet:?xt=urn:btih:E22B0FDE4915D23CD304276CCFF09885A1CC15B9
 magnet:?xt=urn:btih:CEC5EBCA2FAA5217D8BA34E3637594A6E1ADA0DE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493261   (897282) от 02.09.2021
-
-Иван Лагунин | «Темный баффер» (Книга 2). Темный баффер (2021) [MP3, Александр Поликарпов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897282.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Темный баффер" – фантастический роман Ивана Лагунина, вторая книга одноименного цикла, жанр ЛитРПГ, боевое фэнтези.
-
-Представители профессии «Маг Поддержки», как правило, пользуются в Онлайне почетом и уважением. Их оберегают и прокачивают сильные кланы, их уважает местное население. Но что, если твои чары усиления требуют плату болью? И немного найдется (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтезиПродолжительность: 08:14:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B9E8B69E54A958DAF33B49F42EA9D72246AB700
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

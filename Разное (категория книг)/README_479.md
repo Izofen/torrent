@@ -1,3 +1,29 @@
+###  Публикация: 1024713   (714319) от 10.06.2016
+
+Диакон Димитрий Пономаренко | Любить друг друга (2015) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга рассказывает о пастырском подвиге одного из выдающихся священнослужителей Русской Православной Церкви XX века епископа Можайского Стефана (Никитина). Его земной путь и все выпавшие на его долю испытания – яркое отражение пути гонимой Русской Церкви в прошлом столетии. В течение долгих лет он совмещал тайное священническое служение с деятельностью врача, затем (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D898D726A7A310E62C01694D8A37F85EFF08897D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024680   (714321) от 10.06.2016
 
 Архимандрит Тихон (Агриков) | Жизнеописание, проповеди, письма (2008) [PDF, DJVU]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:2623A372024F5882C3E7ECBB64CC80D1BAED1252
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:2623A372024F5882C3E7ECBB64CC80D1BAED1252
 magnet:?xt=urn:btih:15837C589128EEE381BD52E4AD037220B3C39433
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:15837C589128EEE381BD52E4AD037220B3C39433
 ```bash
 magnet:?xt=urn:btih:172C8B76A2558EE5BE9AB2402AD4EC890EE1E25E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:172C8B76A2558EE5BE9AB2402AD4EC890EE1E25E
 magnet:?xt=urn:btih:C3390D5F151CD6E4A52C61C2D5329D4CE4CBF823
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:C3390D5F151CD6E4A52C61C2D5329D4CE4CBF823
 magnet:?xt=urn:btih:258123909529163F402F8AB9A4D9F37842FFA44E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +174,8 @@ magnet:?xt=urn:btih:258123909529163F402F8AB9A4D9F37842FFA44E
 ```bash
 magnet:?xt=urn:btih:4652104339664BC93ABDF3897B8C8059111EED9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:4652104339664BC93ABDF3897B8C8059111EED9F
 magnet:?xt=urn:btih:5EA49CAE710B05F4FD1B1162E3E99F905C4B0587
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:5EA49CAE710B05F4FD1B1162E3E99F905C4B0587
 magnet:?xt=urn:btih:E5159BE1BACB3AD4FC903EC89AEF29088C5080C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:E5159BE1BACB3AD4FC903EC89AEF29088C5080C7
 ```bash
 magnet:?xt=urn:btih:989937DBC269D7A5438BAD770ACCB5AF8A452422
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:989937DBC269D7A5438BAD770ACCB5AF8A452422
 magnet:?xt=urn:btih:2E6C6E6FB114C443706A5BEBAA41F7366EA4966F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:2E6C6E6FB114C443706A5BEBAA41F7366EA4966F
 ```bash
 magnet:?xt=urn:btih:75EDB100581A908E6BF2ED02C9AE9E082886A465
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:75EDB100581A908E6BF2ED02C9AE9E082886A465
 magnet:?xt=urn:btih:40F019F28D14B2AE26D405A8BEFFA18F4DF81059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:40F019F28D14B2AE26D405A8BEFFA18F4DF81059
 ```bash
 magnet:?xt=urn:btih:F6552F49FAE58C21F4C91F01721B51BB6CD24DBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:F6552F49FAE58C21F4C91F01721B51BB6CD24DBB
 magnet:?xt=urn:btih:BEB2B13EB34E54619B3B488E91C18E9262C1C78C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:BEB2B13EB34E54619B3B488E91C18E9262C1C78C
 ```bash
 magnet:?xt=urn:btih:8B5AABE52390D909F28367B68585287FB4B664FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:8B5AABE52390D909F28367B68585287FB4B664FD
 magnet:?xt=urn:btih:801D74D42047DB3A50F6B5C5AE53953FF45B992C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:801D74D42047DB3A50F6B5C5AE53953FF45B992C
 magnet:?xt=urn:btih:F6DB87B7CBBBCF484AB1BF8774821C14C1BA280A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:F6DB87B7CBBBCF484AB1BF8774821C14C1BA280A
 magnet:?xt=urn:btih:A61F9422A67C6DE1490CABA4BE1BA087C31E1CB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:A61F9422A67C6DE1490CABA4BE1BA087C31E1CB3
 ```bash
 magnet:?xt=urn:btih:B41BB29228587AE139278F1A852754B45B4F57C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:B41BB29228587AE139278F1A852754B45B4F57C4
 magnet:?xt=urn:btih:E8B082D294006F30B2809373B23A59E405D178BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:E8B082D294006F30B2809373B23A59E405D178BB
 magnet:?xt=urn:btih:75FC55496963BE1230E481E9B8CF352FD53E79B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:75FC55496963BE1230E481E9B8CF352FD53E79B8
 ```bash
 magnet:?xt=urn:btih:A726BCDF7E866D118CD1A075B992AC1DC893F4E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:A726BCDF7E866D118CD1A075B992AC1DC893F4E5
 magnet:?xt=urn:btih:98FF23A11ECD8700D6D60A8524511BC37C518703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:98FF23A11ECD8700D6D60A8524511BC37C518703
 magnet:?xt=urn:btih:4B2806687E7C098F609F08CA198DF82DD3B33576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,31 +684,7 @@ magnet:?xt=urn:btih:4B2806687E7C098F609F08CA198DF82DD3B33576
 magnet:?xt=urn:btih:949C86FFA0059A64DA04667AF5206EE89806AEBD
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130357   (716041) от 01.05.2017
-
-С.Л. Корякин-Черняк, А.А. Маркин | Справочник дачного мастера. Вода, газ, электричество, отопление, охрана и не только... (2010) [PDF]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга создана для того, чтобы научить миллионы дачников, владельцев загородных домов быть счастливыми, безопасно жить, работать и отдыхать за городом. Рассматриваются в комплексе вопросы защиты дома как от посягательств злоумышленников, так и от вредных природных факторов: огня, молнии, холода, влаги, грязи, диких животных, насекомых, птиц, сорняков.
-
- Вода будет (   Читать дальше...   )Жанр: Умелые рукиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F7007900FBD18F4BCD94E4B52683008DFAB6F28
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

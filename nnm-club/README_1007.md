@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:0C646B755DC5554D57D631FE4D520528F0AB0BFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:0C646B755DC5554D57D631FE4D520528F0AB0BFA
 magnet:?xt=urn:btih:D43BBEC3F4C2FE3C908BB24B968430958F9F7DBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:D43BBEC3F4C2FE3C908BB24B968430958F9F7DBC
 ```bash
 magnet:?xt=urn:btih:DBF09E3A77110588150F3A8947E7232A502579B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ VA - Music News For Forum vol.063 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:2500F158867636C58E7938236C760556D562162A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ CherryTree - функциональная программа, которая п�
 ```bash
 magnet:?xt=urn:btih:B9A95785F798E78C7A14972664EF667DC794900A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:B9A95785F798E78C7A14972664EF667DC794900A
 magnet:?xt=urn:btih:AECA4DD6CFEB3A1C6FEF39B423214822266E47D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ RedNotebook - это простое GTK+ / Gnome приложение напис
 magnet:?xt=urn:btih:6166FC90437688B27AD5DAC5613CE4A2DC3C6DD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ O&O DiskImage Professional позволяет создавать резервн�
 ```bash
 magnet:?xt=urn:btih:E300907003B0B31C288EA8CDC422974763368EEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ VA - Modern 80's - The Best Of Discopop Vol.2 (1999) [AAC|320 Kbps] <Electronic,
 magnet:?xt=urn:btih:D2D79607761DB2971D2745A35D788DCA14580B6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ HiPER Calc Pro v11.0.8 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:105F3D48C9A4B38110B2D5BAC2DC2BE13FA9B708
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ VA - House Charts 2025 [FLAC|Lossless|WEB-DL|tracks] <House>
 magnet:?xt=urn:btih:9DA8DF436EDF31F68B793B81DA0A2722FE2DEDD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ VA - Evening Kaleidoscope (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:35458A1AD3C3A37BB560D038573173BA0E62D5A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ Draw.io 26.0.16 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:901B2809D59EFEEDD8F5B4AA017BA51540CD9233
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:901B2809D59EFEEDD8F5B4AA017BA51540CD9233
 magnet:?xt=urn:btih:1D193D5CEC27B0ECA72B32CC8B3F2F7CDABA4685
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:1D193D5CEC27B0ECA72B32CC8B3F2F7CDABA4685
 ```bash
 magnet:?xt=urn:btih:264F71614DA4DD24F95F8AB8BEB9979A764ADE59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 magnet:?xt=urn:btih:4F94A26F9CFD371BD0A8B503E383503F0AB1DE17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ Bria Mobile: VoIP Softphone v6.19.1 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:48E57A10E0AFF8FA85881699140C470B9C5DE867
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ Microcat Hyundai 2016/02- 2016/03 [Multi/Ru]
 magnet:?xt=urn:btih:A36EAE3DBF32C787E692ABFD40344B22A03A09CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:A36EAE3DBF32C787E692ABFD40344B22A03A09CB
 ```bash
 magnet:?xt=urn:btih:C5AADD1D2B19DB520636EC5C366D0FF6DA74D2C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ MiHome v10.2.702 Mod by Vevs [Ru]
 magnet:?xt=urn:btih:7DE765E243A3F95A3FE530EC1F5012D44707C415
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:7DE765E243A3F95A3FE530EC1F5012D44707C415
 magnet:?xt=urn:btih:8BF763FB0F6E8ED46AED0DD6718363FA810E1622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:8BF763FB0F6E8ED46AED0DD6718363FA810E1622
 ```bash
 magnet:?xt=urn:btih:BB4D4C43500F33FA5BFC8B8A15593C0067E71BBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:BB4D4C43500F33FA5BFC8B8A15593C0067E71BBE
 magnet:?xt=urn:btih:CB33A7782FCAD5BD0B15A6D6D554A07B935A24E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ magnet:?xt=urn:btih:CB33A7782FCAD5BD0B15A6D6D554A07B935A24E3
 magnet:?xt=urn:btih:85AB43793F5A3AA1A75E003AD6334135C17F4630
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ KiCad – уникальный в своем роде программный п�
 magnet:?xt=urn:btih:5B885BAACB12EB3F1E8DB01C2F7036AC1CDD2722
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:5B885BAACB12EB3F1E8DB01C2F7036AC1CDD2722
 ```bash
 magnet:?xt=urn:btih:75E6C5ED6F990D3E080953BA8D67D978E5820433
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8CE767200BF6955BA8061A1E6DD3DFB2D012C878
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ Waylon Jennings - 5 Original Album Classics (2008) [MP3|320 кб/с]<Country>
 magnet:?xt=urn:btih:6D86AF35020BCD4FFF87052B6987E679EBA2F5D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:6D86AF35020BCD4FFF87052B6987E679EBA2F5D4
 ```bash
 magnet:?xt=urn:btih:7117BD7B21922D83C5FAA129E89B95D98B2B1E40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -105,6 +111,8 @@ VA - Хиты на радио клубнячек и попса vol.10 (2012) [MP
 magnet:?xt=urn:btih:D648A4849FF5AD930084F2D6D528C79E7A6575D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ magnet:?xt=urn:btih:D648A4849FF5AD930084F2D6D528C79E7A6575D8
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +173,8 @@ Johnny Hodges аnd His Orchestra - Hodge Podge[FLAC|Lossless]<Swing, Big Band>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +206,8 @@ VA - Case One (1999)
 magnet:?xt=urn:btih:055E7E5D63E15DA40CF0F1849753D8B3B307ADAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +231,8 @@ magnet:?xt=urn:btih:055E7E5D63E15DA40CF0F1849753D8B3B307ADAD
 ```bash
 magnet:?xt=urn:btih:83668095240496819AEC985AE81B24FD47EDCAB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +267,8 @@ VA - На Вершине Музыкальных Чартов 4 (2012) [MP3|256 �
 magnet:?xt=urn:btih:DDBBDA8D2206577EAEF275531DC967B9B5204063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +296,8 @@ magnet:?xt=urn:btih:DDBBDA8D2206577EAEF275531DC967B9B5204063
 ```bash
 magnet:?xt=urn:btih:DDEB5C0D3ECF2F58005B23523EA8C34D42EFC041
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +329,8 @@ Motorcitysoul - Technique (2008)
 ```bash
 magnet:?xt=urn:btih:A6497036A572BA4BFEA08079E2B3FD840A61C3E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +365,8 @@ Lumus - Bacchus Curse (2012) [MP3|192 кб/с]<Gothic Metal/Symphonic Metal>
 magnet:?xt=urn:btih:7EFD8B20DF93537965FD14A7B3E6397E9F29A870
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +390,8 @@ magnet:?xt=urn:btih:7EFD8B20DF93537965FD14A7B3E6397E9F29A870
 ```bash
 magnet:?xt=urn:btih:2B699B059F03F59845FB00D98C56838FC4E3FDDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +417,8 @@ magnet:?xt=urn:btih:2B699B059F03F59845FB00D98C56838FC4E3FDDF
 magnet:?xt=urn:btih:A7DF21A4FD51B372C784E19F894B7686184F77F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +442,8 @@ magnet:?xt=urn:btih:A7DF21A4FD51B372C784E19F894B7686184F77F2
 ```bash
 magnet:?xt=urn:btih:AEC186262482C6EC934A6A712D1D07D5F685A872
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +469,8 @@ magnet:?xt=urn:btih:AEC186262482C6EC934A6A712D1D07D5F685A872
 magnet:?xt=urn:btih:4968B6559780BAC13B8F6178E6BD2616AB33A686
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +494,8 @@ magnet:?xt=urn:btih:4968B6559780BAC13B8F6178E6BD2616AB33A686
 ```bash
 magnet:?xt=urn:btih:6F6FA900E94A11C7A51DD62B2B13E939873E28F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +530,8 @@ DJ Kocmoc - Electro Sensation vol.25 (17.04.2012) [MP3|320 кб/с]<Electro Hous
 magnet:?xt=urn:btih:F97ADB8A79B1AD688B2CB4B009660A0DD5767794
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +556,8 @@ magnet:?xt=urn:btih:F97ADB8A79B1AD688B2CB4B009660A0DD5767794
 magnet:?xt=urn:btih:5760C0CD263E03E120C077643C5C66199F1F7FD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +581,8 @@ Fear Factory - Recharger [Single] (2012) [MP3|256 кб/с]<Death Industrial / Gr
 ```bash
 magnet:?xt=urn:btih:7AD4BF189C6D8AAF14890B4B2B5A4D884B48EEC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +617,8 @@ VA - Весенняя Атмосфера Танцевальная (2012) [MP3|25
 magnet:?xt=urn:btih:D2B7CD08D1E4021AB828337E9692D1F25854FEA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +651,8 @@ VA - Dancefloor Matrix 2012 (2012) [MP3|320 кб/с]<Club, House, Dance, Trance>
 ```bash
 magnet:?xt=urn:btih:DDBDEAE19F64A1A586C5FF15D0E3157CE52E056C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +687,8 @@ DJ Kocmoc - Electro Sensation vol.26 (23.04.2012) [MP3|320 кб/с]<Electro Hous
 magnet:?xt=urn:btih:5043E2DDD9E9F38254174D8AA5432BA623FDB7C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +712,8 @@ magnet:?xt=urn:btih:5043E2DDD9E9F38254174D8AA5432BA623FDB7C9
 ```bash
 magnet:?xt=urn:btih:2C24FED8A479BA40C0741F80DF55334482A4D26C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -700,6 +748,8 @@ CD 1 | Продолжительность: 01:15:08
 magnet:?xt=urn:btih:C8C30C7993310AAA6F861561E3F0C2A4116B02B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -723,6 +773,8 @@ Disfunktion - Snooki (2011) [H.264/720р] WEBRip
 ```bash
 magnet:?xt=urn:btih:83C93425535CC9F8798A11239A3200504186315E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

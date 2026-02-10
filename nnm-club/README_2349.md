@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:0098572632A86E1DBAE778D8C382933FA3909110
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ ExtraDisks - это набор инструментов для создания 
 ```bash
 magnet:?xt=urn:btih:E10A69809DB9E94F1761557174E01D61EBBEF3A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ VA - Electronic compilation part 66 (2024) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:72E72600646F55CABEAFB82E2372C5A33DAE29A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:72E72600646F55CABEAFB82E2372C5A33DAE29A8
 ```bash
 magnet:?xt=urn:btih:8D3F52B06F1499B8E668D8C7BB2642309607F777
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:8D3F52B06F1499B8E668D8C7BB2642309607F777
 magnet:?xt=urn:btih:1EDDD7BC99BCB57842B8888D68D811BBE51B0C3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:1EDDD7BC99BCB57842B8888D68D811BBE51B0C3B
 magnet:?xt=urn:btih:91E9FD548DE0CAC72FD6750F9B80E234C077D513
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:91E9FD548DE0CAC72FD6750F9B80E234C077D513
 ```bash
 magnet:?xt=urn:btih:66249AFCE2D441E409B5AA551C2F1C1B057AE38B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:66249AFCE2D441E409B5AA551C2F1C1B057AE38B
 magnet:?xt=urn:btih:9D2761ED5BC548DD6D74699C07491D5028CF082C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ MediaInfo — позволит узнать техническую информ�
 ```bash
 magnet:?xt=urn:btih:9BEECB245A39A8A67A8123E6732B7F39A8575485
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Psiphon - это новый инструмент обхода интернет-�
 magnet:?xt=urn:btih:F2AACB66524B5CEFBA87F8CA93BFA9DF6C5C3CA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:F2AACB66524B5CEFBA87F8CA93BFA9DF6C5C3CA2
 ```bash
 magnet:?xt=urn:btih:0E9707C836554987AC82DF269CD779940006E7E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 magnet:?xt=urn:btih:6F925A4176F74D28F284E9324BBEB28C6374DF2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ MediaHuman YouTube Downloader 3.9.9.90 (0321) RePack (& Portable) by TryRooM [Mu
 ```bash
 magnet:?xt=urn:btih:273F382104BC48ADCCEDF574102473E8A84BF0D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Topaz A.I. Gigapixel — это приложение, использующее �
 magnet:?xt=urn:btih:AF82AAA33CCDB4FA760CA21B187FEBDBAE777D21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:AF82AAA33CCDB4FA760CA21B187FEBDBAE777D21
 ```bash
 magnet:?xt=urn:btih:F3ACFFAAF7C2E1DD611232B3495DFEFD485CDD97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:F3ACFFAAF7C2E1DD611232B3495DFEFD485CDD97
 magnet:?xt=urn:btih:414B0D44CB90A8920CE5579B94F4E33C23763556
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 magnet:?xt=urn:btih:5B0AE0385ABAB4C083D4DBA332CA839B49B62AC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Room Arranger - программа специально предназначен
 ```bash
 magnet:?xt=urn:btih:60BD0AD5D5EC0083629E3A3A949C36D2BFB44078
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Elmedia Player PRO (   Читать дальше...   )Тип издания: m
 magnet:?xt=urn:btih:D7F9185B6932C8F4163C4E78DBC5E934F9721242
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:D7F9185B6932C8F4163C4E78DBC5E934F9721242
 magnet:?xt=urn:btih:49F3E7BF8A6267C527A86821BDF493CC004130BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Devonthink Pro Office — программное обеспечение для �
 ```bash
 magnet:?xt=urn:btih:71B1AE873EA03E7F776A4E7AFEA7F1D2E1A19EE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ DJ Aurm - Compilation Version 2 (2024) [MP3|320 Kbps] <Instrumental, Piano, Elec
 magnet:?xt=urn:btih:0CCE7AA6DB4A5B428982E351249CCC4331AD0967
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:0CCE7AA6DB4A5B428982E351249CCC4331AD0967
 ```bash
 magnet:?xt=urn:btih:227FC4BA083B70FAFBFBD354465AB8C6DEB0D954
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ Deep Purple - Machine Head (Remix 2024, Remaster 2024) (1972) Remix, Remaster, 2
 magnet:?xt=urn:btih:20DBF197FF82FB55288BC899BB5BB9F23F156C46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:20DBF197FF82FB55288BC899BB5BB9F23F156C46
 magnet:?xt=urn:btih:C777488A9B239EAF2F03D99E8C4AEB20F41BF0A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Macrorit Partition Extender - утилита, доступная также в �
 ```bash
 magnet:?xt=urn:btih:4D8918D9D1DC3D370B5AAFE35DA45E2A30AEAAE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

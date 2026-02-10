@@ -1,27 +1,3 @@
-###  Публикация: 1495504   (880384) от 12.09.2021
-
-Тролли. Мировой тур / Trolls World Tour (2020) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поп-тролли в шоке — оказывается, мир музыки гораздо больше, чем они думали. Рейвы, оупен-эйры, классические концерты и, конечно, хип-хоп баттлы — впереди их ждет головокружительное веселье. Но неудержимая королева Рокс планирует уничтожить всё, чтобы миром безоговорочно правил хард-рок! Розочка, Цветан и их новые друзья отправляются в невероятное путешествие: им (   Читать дальше...   )Производство: США, DreamWorks AnimationЖанр: Мультфильм, мюзикл, фэнтези, комедия, приключения, семейный,Режиссер: Уолт Дорн, Дэвид П. СмитПеревод: ДублированныйСубтитры: Русские (Forced, Full), Английские (SDH)Продолжительность: 01:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:537704CCB15DA973E04D233E3E86A306E4797EFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495453   (880387) от 12.09.2021
 
 Босс-молокосос 2 / The Boss Baby: Family Business (2021) UHD WEB-DL [H.265/2160p] [4K, SDR, 10-bit] [DVO]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:537704CCB15DA973E04D233E3E86A306E4797EFD
 ```bash
 magnet:?xt=urn:btih:E8483153043A9EFDBD40BD097537B057B9CFDD3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:E8483153043A9EFDBD40BD097537B057B9CFDD3C
 magnet:?xt=urn:btih:F0B8C9C9249F33E4F5E831A0470247106DA59EF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:F0B8C9C9249F33E4F5E831A0470247106DA59EF5
 ```bash
 magnet:?xt=urn:btih:AF25A9F208E55F8D17E6B30B2542D06E07D9F727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:AF25A9F208E55F8D17E6B30B2542D06E07D9F727
 magnet:?xt=urn:btih:E8A335233D74B62821D73ACE0274B2A9F72FCAB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:E8A335233D74B62821D73ACE0274B2A9F72FCAB4
 ```bash
 magnet:?xt=urn:btih:9DAB8D6870EC23142F051460B98B7090AFE1E947
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:9DAB8D6870EC23142F051460B98B7090AFE1E947
 magnet:?xt=urn:btih:A82A7A790D83EC749CD04FD6803AD66A0BB78276
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:A82A7A790D83EC749CD04FD6803AD66A0BB78276
 ```bash
 magnet:?xt=urn:btih:6032C32FF444439CB27DD2DEB57B330FB3E7749F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:6032C32FF444439CB27DD2DEB57B330FB3E7749F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:6032C32FF444439CB27DD2DEB57B330FB3E7749F
 ```bash
 magnet:?xt=urn:btih:EB82D636231BA830249C93DE80F30EBEC391C5F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:EB82D636231BA830249C93DE80F30EBEC391C5F5
 magnet:?xt=urn:btih:A1C77855B3864D04B8907BC846E9C33C3C2860C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ magnet:?xt=urn:btih:A1C77855B3864D04B8907BC846E9C33C3C2860C7
 ```bash
 magnet:?xt=urn:btih:6CE0FB0E63301E974AF3D11120D378682F2FD1D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:6CE0FB0E63301E974AF3D11120D378682F2FD1D9
 magnet:?xt=urn:btih:8AE711D55B628983E6B063EE4080D9CCEFBA2218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ magnet:?xt=urn:btih:8AE711D55B628983E6B063EE4080D9CCEFBA2218
 ```bash
 magnet:?xt=urn:btih:4F050F0097CD369CCA5209B978E57E19EAEC4217
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:4F050F0097CD369CCA5209B978E57E19EAEC4217
 magnet:?xt=urn:btih:DC2CEBCE24E4B336D0A899F0950100C2FC056439
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +383,8 @@ magnet:?xt=urn:btih:DC2CEBCE24E4B336D0A899F0950100C2FC056439
 magnet:?xt=urn:btih:8620B24F969A4807C8ACF6B6C3EA0AB8D3D20289
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +408,8 @@ magnet:?xt=urn:btih:8620B24F969A4807C8ACF6B6C3EA0AB8D3D20289
 ```bash
 magnet:?xt=urn:btih:540B1795CB97EA652586D363401079FCD24C3B1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +436,8 @@ magnet:?xt=urn:btih:540B1795CB97EA652586D363401079FCD24C3B1D
 magnet:?xt=urn:btih:45D371E597F838C17F06DE9F6F7BDF0FC35C7313
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +461,8 @@ magnet:?xt=urn:btih:45D371E597F838C17F06DE9F6F7BDF0FC35C7313
 ```bash
 magnet:?xt=urn:btih:AE10268475A15089ACF2EBBE5490B68C89CBA612
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +489,8 @@ magnet:?xt=urn:btih:AE10268475A15089ACF2EBBE5490B68C89CBA612
 magnet:?xt=urn:btih:9BA6B2BB8174421C0600A82C5B6E7E487E69D04C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +514,8 @@ magnet:?xt=urn:btih:9BA6B2BB8174421C0600A82C5B6E7E487E69D04C
 ```bash
 magnet:?xt=urn:btih:D1B6030BE2D01C41B5693379711EC301C27F2A1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +541,8 @@ magnet:?xt=urn:btih:D1B6030BE2D01C41B5693379711EC301C27F2A1A
 magnet:?xt=urn:btih:024E1B133E2BE171D5249B3761B439721C1EFC0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +566,8 @@ magnet:?xt=urn:btih:024E1B133E2BE171D5249B3761B439721C1EFC0F
 ```bash
 magnet:?xt=urn:btih:041EDB57A625504F5DC864EA8FC6D78972FF7D87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +593,8 @@ magnet:?xt=urn:btih:041EDB57A625504F5DC864EA8FC6D78972FF7D87
 magnet:?xt=urn:btih:92D1D186FC5D7F5141756B08740018F61ACB3580
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +618,8 @@ magnet:?xt=urn:btih:92D1D186FC5D7F5141756B08740018F61ACB3580
 ```bash
 magnet:?xt=urn:btih:D26D58830E52942CFB370683103E6515F402E3A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +646,34 @@ magnet:?xt=urn:btih:D26D58830E52942CFB370683103E6515F402E3A4
 ```bash
 magnet:?xt=urn:btih:15C04EB2531563AB2B45F8E891111C125DD99251
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494676   (887459) от 08.09.2021
+
+Инопланетный кошмар / The Alien Nightmare (2021) WEBRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Посреди ночи на Землю приземляется НЛО с тремя пришельцами. Они намеревались открыть для себя этот особенный и совершенно неизвестный мир.Производство: ФранцияЖанр: Короткометражный, рисованная анимацияРежиссер: Marc Antoine Alonso, Lauriane Balestrat, Elie Berthoumieu, Alexis Sabalza, Lucas SoupouПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: ОтсутствуютПродолжительность: 00:06:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:141E23200545EA11C44AB268BA2B39A85B1EB4AD
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

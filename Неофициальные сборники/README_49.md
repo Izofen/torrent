@@ -28,6 +28,8 @@ VA - Последние новинки в мире музыки от Vanovlad 50
 magnet:?xt=urn:btih:2C7753739B2C6F545C19C9BDC5368BF2A4A9D245
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ VA - Avto Club March (2012) [MP3|320 кб/с]<Dance, House, Club>
 ```bash
 magnet:?xt=urn:btih:FF5B03F1EC97B869AD073237D6BB734532574817
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -85,6 +89,8 @@ VA - Turkish Hits. Жаркие хиты из Анталии (2008) [MP3|112 kbp
 magnet:?xt=urn:btih:4E9A5FEEC5B0CAD2155877BA50A6C2C55E6177B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +123,8 @@ VA - Территория Кайфовой Музыки (2012) [MP3|256 кб/с]
 ```bash
 magnet:?xt=urn:btih:ACA1928F53F538DC92F091FC5DCCF9111B74B0B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +159,8 @@ VA - Очень Горячая Штучка Русский (2012) [MP3|256 kbps]
 magnet:?xt=urn:btih:0241AAC2E31C1C0180D35F75E226350890C4A7CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +193,8 @@ VA - First Contact (2011) [MP3|320 кб/с]<Psychedelic / Full On, Psy-Prog>
 ```bash
 magnet:?xt=urn:btih:270545D5C5E22DF75378290E35916BC22D76EBBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +229,8 @@ VA - Soul of Ibiza Volume 27 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Tr
 magnet:?xt=urn:btih:61EE60C83C869E3DCDF08A227A192AB16611CDE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +263,8 @@ VA - XXXL Хитовый сезон Русский (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:25D208FD18D7577B271623076A50351FBE451205
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +299,8 @@ VA - Весенний хит-парад по-русски (2012) [MP3|256 кб/�
 magnet:?xt=urn:btih:2300BF4AD758B5F8D714E20077855B9B7FCDB7E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +333,8 @@ VA - Rock Romantic (Russian) (2012) [MP3|192-320 кб/с]<Rock, Hard Rock, Blues
 ```bash
 magnet:?xt=urn:btih:E63E2956CFC341225568D1D34495322DDBECCE1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +369,8 @@ VA - Русская Супер 200-ка (2012) [MP3|128 kbps]<Pop>
 magnet:?xt=urn:btih:9FBC9F53D30E37D2245A7EE6734CBCD767E37164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +403,8 @@ Top 10
 ```bash
 magnet:?xt=urn:btih:7A9AFFF8142DE9A7574FC3754A3694AA208CA93C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +439,8 @@ CD-1:
 magnet:?xt=urn:btih:ACE3027555180BE7D97954791DEB82867DECAA9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +473,8 @@ VA - Ретро Дискотека глазами диджеев Vol-2 (2012) [M
 ```bash
 magnet:?xt=urn:btih:20397A5DC9F01E6ACF0A6E0C2C64D308FFC440B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +509,8 @@ VA - Prodвинутые Новинки Радиостанций 50\50(2012) [MP3
 magnet:?xt=urn:btih:D26F63ED3240ECB048B8A9A36D100B086451EFE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +540,8 @@ VA - Get Sexy vol.1 (2012)Год: 2012
 ```bash
 magnet:?xt=urn:btih:92B89A1F2E44A2D23DCB432D6D50A16CFE7AE008
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +576,8 @@ VA - Мощная Dance Атака. Зарубежный (2012) [MP3|256 кб/с
 magnet:?xt=urn:btih:DDB2F29EFCA8898D7B91FE85C1185AFE525C9A33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +610,8 @@ VA - Лучшая 100ка - Взорви танцпол 2 (2012) [MP3|256 кб/�
 ```bash
 magnet:?xt=urn:btih:FE86E61E711995F160CA5DB63568A5BE73CA844E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +646,8 @@ VA - Весенние Танцевальные Хиты. Зарубежный (2
 magnet:?xt=urn:btih:793F300312D8159CEA0059BC8CB100FB0F6B2561
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +680,8 @@ VA - 200-ка Самых Самых 50/50 (2012) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:DC926A4708FAC5B3E98B99E1E716AABD0B210FEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,6 +716,8 @@ VA - 50 Chillout Lounge Tracks (2012) [MP3|320 кб/с]<Downtempo, ChillOut, Lou
 magnet:?xt=urn:btih:3E82130866613BFBAE5B98F18DB60C25E0C5A013
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -708,6 +750,8 @@ VA - Into The Cosmic Jungle (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Ful
 ```bash
 magnet:?xt=urn:btih:BD93DBA03CB9BD42D5274A5F370A263DD5CEC6FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -742,6 +786,8 @@ VA - Sound RMX (2012) [MP3|320 kbps]<Club | Dance | House>
 magnet:?xt=urn:btih:08712387B5C91C5A5A78E973A7C5B73386FD959E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -774,6 +820,8 @@ VA - XXXL Клубный Весна (2012) [MP3|192 kbps]<Club | Dance>
 ```bash
 magnet:?xt=urn:btih:244458298CC507A5E3291D285D28A519ECB2AEA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -808,6 +856,8 @@ VA -Top-Hits.Только хиты на Танцполе (2012) [MP3|256 кб/с
 magnet:?xt=urn:btih:06F67E58C6AE2AD102DFD4BBD30F60743099C9D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -840,6 +890,8 @@ VA - XXXL Дворовой Весна (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:21D65A11BBFDF2F0383DD4F43EB66CE6A5CD22D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ History Channel: Вселенная. Бог и Вселенная / The Universe
 magnet:?xt=urn:btih:D9F852A71A0C8E60A4B0738E3C1E878DD0D2560B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ History Channel: Вселенная.  Как возникла Солнечная
 ```bash
 magnet:?xt=urn:btih:45A7BDA23CB66CDCE139EC726DD5892D441C8F47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ BBC: История Шотландии с Нейлом Оливером [Сез�
 magnet:?xt=urn:btih:CCDFD829586E371A5F0EAA711A646DDC69D48982
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Discovery Channel и Морган Фримен снова ведут зрите�
 ```bash
 magnet:?xt=urn:btih:38789D36BB4DD93F30068152F469939C7AD9BFB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Discovery. Уличные гонки: Новый Орлеан / Discovery. Stree
 magnet:?xt=urn:btih:D12921B79FBAE4446DE3137215DF1F2196E2FD72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Discovery: Внутри планеты Земля / Inside Planet Earth (2009) B
 ```bash
 magnet:?xt=urn:btih:0032C88B5E4B8CF01B3F767C5C509AD4853B2E55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Discovery: Крушение Concordia: Взгляд изнутри / Cruise Ship
 magnet:?xt=urn:btih:30F51BFD08B6D3ED7796C6B3EC07C9D3B657CBAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Discovery. Встречи на краю света / Encounters at the End of th
 ```bash
 magnet:?xt=urn:btih:C59D6C8D557D822A02EE6E4B23BC1D5925A1493A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ NGW: Могущественные рептилии / Planet of the Reptiles (201
 magnet:?xt=urn:btih:8BBCAE697A4A80BA97A907A44C052BCEC81A635E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ NG: Прекрасная Америка: Величественный Север
 ```bash
 magnet:?xt=urn:btih:93C500DA5616672D94B2068CF307BFD33A543D6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Discovery. Игра на жизнь / Survive That! (2014) HDTVRip [Сезон 2
 magnet:?xt=urn:btih:E17CF543726DFB6FAF4437D0B0EA6B01AB1E9B51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Discovery. Игра на жизнь / Survive That! (2013) HDTVRip [Сезон 1
 ```bash
 magnet:?xt=urn:btih:F30D1997C7EA0F54FD6D9C970CCA8D79E76C7063
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ DV: Невероятное вокруг нас. Следы ДНК [12 из 28] /
 magnet:?xt=urn:btih:C9408382CCC2B3ABC617EE2C0D0973033369AFA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ BBC: Первобытная Америка / BBC: Wild New World (2002) DVDRip (
 ```bash
 magnet:?xt=urn:btih:D134AF9519FFA599F54C9B43B2497BE5924D94C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:D134AF9519FFA599F54C9B43B2497BE5924D94C9
 magnet:?xt=urn:btih:596E7441F13E3F1CA2D9999E2950EF1A0FFF2CCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ NGW: Гризли Аляски бросают вызов. Осада белым�
 ```bash
 magnet:?xt=urn:btih:8EE11D3DD0251287A3B4D3405F91EB2BBC3FD2CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ NGW: На прогулке с жирафами / Walking with Giraffes (2017) HD
 magnet:?xt=urn:btih:0F1DF0EA8A2C3359FAFA0122C8A75FFF90E559BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Discovery. Природа человека / Human Nature (2012) SATRip [Сер�
 ```bash
 magnet:?xt=urn:btih:2FDE40E5ECF2367E6C42CD9CF48F47A9F5919E0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ National Geographic. В Святом Иерусалиме / Secrets of Jerusalem
 magnet:?xt=urn:btih:C7C83144BEA7C2E05AB377BB8867BA0390BA0003
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Discovery. Почему пал Древний Египет? / Why Ancient Egypt 
 ```bash
 magnet:?xt=urn:btih:D2891D24D51B7134036A769C8648AB6808C062E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Discovery. Эд Стаффорд: Игра на вылет / Ed Stafford: First 
 magnet:?xt=urn:btih:19934483BE563978993ACF98F88834E5E86C8377
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ NG. Мегазаводы: Тата Нано / Megafactories: Tata Nano (2023) HD
 ```bash
 magnet:?xt=urn:btih:7C0424CB5CDA930D4DEAB7B4285FE0244AF298D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ NGW: Секреты зоопарка. Ждем малыша! / Secrets of the Zo
 magnet:?xt=urn:btih:367BCC13795FFD9DF6CC0E1216AE802C3A486D9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ Discovery: Как устроена Земля / How the Earth Works (2013) HDTVR
 ```bash
 magnet:?xt=urn:btih:B24C4C02AA93A0F88650A530EDE81C0C6F7B1FA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ BBC: Таинственный мир гормонов / The Fantastical World of
 magnet:?xt=urn:btih:5B54A7F4679DB818880A97E5F7FA87C95083C01B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ magnet:?xt=urn:btih:5B54A7F4679DB818880A97E5F7FA87C95083C01B
 ```bash
 magnet:?xt=urn:btih:6BE5A5489DC64F1B23CDDD13498E8DF503625006
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

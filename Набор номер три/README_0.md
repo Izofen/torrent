@@ -20,6 +20,8 @@ Google признал: Белый дом диктовал, кого блокир
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Google признал: Белый дом диктовал, кого блокир
 magnet:?xt=urn:btih:4376542E075AAA2BBAD9F403638E25DB59C1C340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.6/dlc) License GOG [Ul
 ```bash
 magnet:?xt=urn:btih:472A9CCD714C58D3817A495357B9069CC7D31D95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Euro Truck Simulator 2 дарит вам опыт управления самы�
 magnet:?xt=urn:btih:AB9582DD16587671B493DF7556DA21DA3D718427
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ X4: Foundations - это космический симулятор, продол
 ```bash
 magnet:?xt=urn:btih:C5B4D29FECBADEE2CF4E402D2E9CF7CD3D273EA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ American Truck Simulator (2016) [Ru/Multi] (1.56.1.2s/dlc) Repack SE7EN
 magnet:?xt=urn:btih:DB1EF40A0000E957F3713D56A61E1D93CC013616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:DB1EF40A0000E957F3713D56A61E1D93CC013616
 ```bash
 magnet:?xt=urn:btih:89BF9941954EC2715FD2EB76284F7C974882D7B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.6/dlc) Repack Deceptic
 magnet:?xt=urn:btih:4FD22280975F6614C2863A57DD63BFAF84477EAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.1.0c/dlc) Repack Let'sРl
 ```bash
 magnet:?xt=urn:btih:CC0CBBB3AF824DCA906401072B7D0D52D184A3A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ The X-Com Files: Transdimesional Express (1994-2025) [Ru/En] (3.9.1b) Repack/Mod
 magnet:?xt=urn:btih:C0C2D5BC497F64FE8C13FD5776F9B122CEE44239
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:C0C2D5BC497F64FE8C13FD5776F9B122CEE44239
 ```bash
 magnet:?xt=urn:btih:00D97848883598FC37CA7ABD5B2C57AA8371A634
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:00D97848883598FC37CA7ABD5B2C57AA8371A634
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:00D97848883598FC37CA7ABD5B2C57AA8371A634
 ```bash
 magnet:?xt=urn:btih:57A2A4EF2F974764F25A4FC67D101A9F06744579
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Kingdom Come: Deliverance II – это продолжение культово
 magnet:?xt=urn:btih:CBB08FBF03CE948F1DCB6CF5EBD28C05DDAE396F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:CBB08FBF03CE948F1DCB6CF5EBD28C05DDAE396F
 ```bash
 magnet:?xt=urn:btih:47D6023E35EAEF4C74E4BED92C21DA11120B9FEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:47D6023E35EAEF4C74E4BED92C21DA11120B9FEF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:47D6023E35EAEF4C74E4BED92C21DA11120B9FEF
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.6/dlc) Repack seleZen 
 magnet:?xt=urn:btih:9529278670827669AB95719D27CC29D039BED8D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Hell is Us - это приключенческий экшен от третье�
 ```bash
 magnet:?xt=urn:btih:C22DC96429EE29DACF8083AB9839082343D08AE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Gachiakuta | Гачиакута [2025, TV, 11 из 24 эп.] WEBRip 720p raw
 magnet:?xt=urn:btih:CADA3106E99478DC0E2DAAD01D0A7800C92EAEFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Witch Watch | Ведьмнадзор [2025, TV, 24 из 25 эп.] WEBRip 720 raw
 ```bash
 magnet:?xt=urn:btih:2BF65E2558BB0BE563E4436821369A351794DCF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:2BF65E2558BB0BE563E4436821369A351794DCF3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:2BF65E2558BB0BE563E4436821369A351794DCF3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:2BF65E2558BB0BE563E4436821369A351794DCF3
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Code of Brawl OST(   Читать дальше...   )Тип издания: Comm
 magnet:?xt=urn:btih:F7BBAA57AF6E756FBDEFA30576FE8EA6597782CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Linux предлагает стабильность и кастомизацию,
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

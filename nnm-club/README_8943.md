@@ -19,6 +19,8 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 magnet:?xt=urn:btih:8F45052E9D2151EA364FA3864A40BE1EAEAAC6C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - Massive Attack - Best275z (1991 - 2016) [MP3|320 Kbps] <Electronic, Trip ho
 magnet:?xt=urn:btih:D78B5EDD8F4ABDEB50098396778DCC9134143DA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:D78B5EDD8F4ABDEB50098396778DCC9134143DA7
 ```bash
 magnet:?xt=urn:btih:C90EFEB3C602820A83F958D36E07C7A3EF437D1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:C90EFEB3C602820A83F958D36E07C7A3EF437D1F
 magnet:?xt=urn:btih:38AFE2E31E9C56B126A0DF08BE240926BFBFCA26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:38AFE2E31E9C56B126A0DF08BE240926BFBFCA26
 ```bash
 magnet:?xt=urn:btih:A19D3E77190DA6EBB80B840CA5EA9B299747E84D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:A19D3E77190DA6EBB80B840CA5EA9B299747E84D
 magnet:?xt=urn:btih:C81B4823769C70D0F94807918F80538C8AFD4FD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:C81B4823769C70D0F94807918F80538C8AFD4FD2
 ```bash
 magnet:?xt=urn:btih:A60233A2F6C4597117B8D23DBC0274342B094E87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ Rainbow - 10 SHM-CD (Japanese Press 2008)[Limited Release] (1975-1986/2008) [FLA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ Miles Davis - The Complete Live at the Plugged Nickel [8CD BoxSet] (1965 (1995 r
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ CADintosh позволяет ускорить проектные работы и
 ```bash
 magnet:?xt=urn:btih:AEBAC5012B120CD767B0E09C092C8D4334DFDBFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:AEBAC5012B120CD767B0E09C092C8D4334DFDBFF
 magnet:?xt=urn:btih:ADF36E87036295505634E37C3E75672BECE818B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ Debit & Credit - Учет финансов 2.5.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6984558A200F780879A4079072D912B9F040C523
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ Zed Mitchell - Summer in L.A. (2017) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:6675C812EBC58DE298A5162C0004C06BC39D2EC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:6675C812EBC58DE298A5162C0004C06BC39D2EC7
 magnet:?xt=urn:btih:635CE6952751DE068632E741533DAF2502D29455
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:635CE6952751DE068632E741533DAF2502D29455
 ```bash
 magnet:?xt=urn:btih:59444D9BA5E323BFB6B7EBB3C80F8110D23E46E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:59444D9BA5E323BFB6B7EBB3C80F8110D23E46E1
 ```bash
 magnet:?xt=urn:btih:CB76A7574D6C86E947AE224EFE5556F9A19F514B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ magnet:?xt=urn:btih:CB76A7574D6C86E947AE224EFE5556F9A19F514B
 magnet:?xt=urn:btih:E6C1BAF2B0D6DC8E475A43F473B14B6F40C1BEB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:E6C1BAF2B0D6DC8E475A43F473B14B6F40C1BEB4
 magnet:?xt=urn:btih:F0330ADBD6350DAACC15BD52E957C21489D2947F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:F0330ADBD6350DAACC15BD52E957C21489D2947F
 ```bash
 magnet:?xt=urn:btih:314714121FCC058E389855A5DA9F70129549C300
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ VA - По волне моей памяти 2: Том26 (Compiled by Виктор
 magnet:?xt=urn:btih:183C3F36BB0C6719EACD959810D5D5D857EDE222
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:183C3F36BB0C6719EACD959810D5D5D857EDE222
 ```bash
 magnet:?xt=urn:btih:9A3ABB039B5AC45BCA4849B7FC105F114E79EF6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +594,8 @@ Deuter, Parijat and Kamal - Spa Lounge (2017) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:F5BD19A3F64D5E7D259F49E4B1B5C73FB9B3F589
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:F5BD19A3F64D5E7D259F49E4B1B5C73FB9B3F589
 magnet:?xt=urn:btih:71DFE7D7CE4297144D3E37A0D26CDE646AC60473
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:71DFE7D7CE4297144D3E37A0D26CDE646AC60473
 ```bash
 magnet:?xt=urn:btih:71016247DC0E5E346EC7BF163728DCCB788BDECE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +675,8 @@ VA - Record Super Chart #514 (2017) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:BB69C938E37F1CEA9D2CCAC059FF775A6EF887C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ magnet:?xt=urn:btih:BB69C938E37F1CEA9D2CCAC059FF775A6EF887C4
 ```bash
 magnet:?xt=urn:btih:2B5D2B32BC0A84CF5392A3FDC59C6A92EC86BE00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

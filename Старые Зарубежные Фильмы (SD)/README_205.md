@@ -1,27 +1,3 @@
-###  Публикация: 1097703   (912481) от 28.01.2017
-
-Бюро пропавших без вести / Bureau of Missing Persons (1933) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бутч Сондерс, дерзкий и бескомпромиссный детектив, был переведён из полиции в Отдел пропавших без вести. Когда молодая женщина просит его помочь найти ее мужа, он выясняет, что на самом деле она — некая Норма Филлипс, разыскиваемая полицией Чикаго за убийство своего мужа. Норма инсценирует самоубийство путём утопления и исчезает, и Сондерс заимствует труп из морга (   Читать дальше...   )Производство: США, First National Pictures Inc., Warner Bros. PicturesЖанр: Драма, Комедия, КриминалРежиссер: Рой Дель РутАктеры: Бетт Дэвис, Льюис Стоун, Пэт О’Брайен, Гленда Фаррелл, Аллен Дженкинс, Рут Доннелли, Хью Херберт, Алан Дайнхарт, Мерджори Гатесон, Тад АлександрПеревод: Одноголосый закадровыйПродолжительность: 01:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E47A8EDBC55B2F7B3EF342312386C2FE27473B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097725   (912493) от 28.01.2017
 
 Выжженная зона / Torrid Zone (1940) DVDRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:3E47A8EDBC55B2F7B3EF342312386C2FE27473B2
 ```bash
 magnet:?xt=urn:btih:C283E25E7E171F3AD85E8107761E82112D0C4E5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -66,6 +44,8 @@ magnet:?xt=urn:btih:C283E25E7E171F3AD85E8107761E82112D0C4E5B
 ```bash
 magnet:?xt=urn:btih:93F17AACAEEB6E363B33C5BBE7DADD8ED0C360AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +72,8 @@ magnet:?xt=urn:btih:93F17AACAEEB6E363B33C5BBE7DADD8ED0C360AF
 magnet:?xt=urn:btih:2E7FD5A9D388DF0D0AA5F45404317F13D44CC48B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +98,8 @@ magnet:?xt=urn:btih:2E7FD5A9D388DF0D0AA5F45404317F13D44CC48B
 magnet:?xt=urn:btih:BBCC093ACC5AE5274A61806DCB27336DB55E7EA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +123,8 @@ magnet:?xt=urn:btih:BBCC093ACC5AE5274A61806DCB27336DB55E7EA7
 ```bash
 magnet:?xt=urn:btih:23F0301990C4B99E9FD716773A8E4D599BA59721
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +151,8 @@ magnet:?xt=urn:btih:23F0301990C4B99E9FD716773A8E4D599BA59721
 magnet:?xt=urn:btih:F314060CE057DD6CAD97B8CB7EAD23A698B6DEE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:F314060CE057DD6CAD97B8CB7EAD23A698B6DEE8
 ```bash
 magnet:?xt=urn:btih:46FA27651682256A07A5685FE94A5C0E7D7C063F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +203,8 @@ magnet:?xt=urn:btih:46FA27651682256A07A5685FE94A5C0E7D7C063F
 magnet:?xt=urn:btih:B9B2421CD7CAB1FA1563A2EF508A0542A3E4E7ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +229,8 @@ magnet:?xt=urn:btih:B9B2421CD7CAB1FA1563A2EF508A0542A3E4E7ED
 magnet:?xt=urn:btih:34513B3C875C5A6B3FE2018114AF2E1A9D022924
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:34513B3C875C5A6B3FE2018114AF2E1A9D022924
 ```bash
 magnet:?xt=urn:btih:86ABB0D72D64A985DFBD96DCD3741F359AAF9947
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +282,8 @@ magnet:?xt=urn:btih:86ABB0D72D64A985DFBD96DCD3741F359AAF9947
 magnet:?xt=urn:btih:0113808AD049CB814AA88C0DD3636AD0B4B2ECBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +307,8 @@ magnet:?xt=urn:btih:0113808AD049CB814AA88C0DD3636AD0B4B2ECBE
 ```bash
 magnet:?xt=urn:btih:85C3CD2911C4CAE06E4558AE84B90752B379F5AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +334,8 @@ magnet:?xt=urn:btih:85C3CD2911C4CAE06E4558AE84B90752B379F5AD
 magnet:?xt=urn:btih:4318E33C3118C89235BD210AB939C8B11D898B19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +359,8 @@ magnet:?xt=urn:btih:4318E33C3118C89235BD210AB939C8B11D898B19
 ```bash
 magnet:?xt=urn:btih:48FAF6F0991E8FC320F764467EA009B6FBCFEEE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:48FAF6F0991E8FC320F764467EA009B6FBCFEEE2
 magnet:?xt=urn:btih:3A9C43E21D270D36FA28CB1BFCBDC2130BD5766D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:3A9C43E21D270D36FA28CB1BFCBDC2130BD5766D
 ```bash
 magnet:?xt=urn:btih:00ED5D461A4BEC37229F1E3211366C490D3DCEBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +438,8 @@ magnet:?xt=urn:btih:00ED5D461A4BEC37229F1E3211366C490D3DCEBB
 magnet:?xt=urn:btih:D8EAEA2F5CC3890174258783DD048544ECD90F46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +464,8 @@ magnet:?xt=urn:btih:D8EAEA2F5CC3890174258783DD048544ECD90F46
 magnet:?xt=urn:btih:195BF14A17DBD11F3A49039F412688F6F2D510A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +489,8 @@ magnet:?xt=urn:btih:195BF14A17DBD11F3A49039F412688F6F2D510A1
 ```bash
 magnet:?xt=urn:btih:D81065DD46C621869DAE8B8878B71973A07FE0D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +517,8 @@ magnet:?xt=urn:btih:D81065DD46C621869DAE8B8878B71973A07FE0D8
 magnet:?xt=urn:btih:60FCF25660E4C595A9191DDA2BA931A2CFDD2CFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +544,8 @@ magnet:?xt=urn:btih:60FCF25660E4C595A9191DDA2BA931A2CFDD2CFE
 magnet:?xt=urn:btih:E44890E240EEF26A7F690703A7A067F6A2CC4258
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +570,8 @@ magnet:?xt=urn:btih:E44890E240EEF26A7F690703A7A067F6A2CC4258
 magnet:?xt=urn:btih:A3487CB02A9FD6B83946F070F04E909DE69B5205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +595,8 @@ magnet:?xt=urn:btih:A3487CB02A9FD6B83946F070F04E909DE69B5205
 ```bash
 magnet:?xt=urn:btih:AEA7AAB2C9CC15CFBC8A9E4EDE473E11D94A7A79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +623,8 @@ magnet:?xt=urn:btih:AEA7AAB2C9CC15CFBC8A9E4EDE473E11D94A7A79
 magnet:?xt=urn:btih:19203DD06D120A3DAA301502E9A1F19A552B4085
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +649,37 @@ magnet:?xt=urn:btih:19203DD06D120A3DAA301502E9A1F19A552B4085
 ```bash
 magnet:?xt=urn:btih:04B8F92D64ADCD03F7624F76C314E06E04E3290A
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 288633   (922015) от 29.01.2011
+
+Ордер на смерть / Death Warrant (1990) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ван Дамм в роли офицера Луиса Берка, полицейского детектива, отправляется под видом осужденного в тюрьму "Харрисон", чтобы раскрыть серию убийств заключенных. В стенах тюрьмы он сталкивается с жестокостью сокамерников, с коррумпированными охранниками, со смертью и предательством всех мастей.
+Когда Берк узнает шокирующую тайну тюрьмы, он должен совершить дерзкий побег - его последний шанс вырваться из лап сотен осужденных головорезов, возглавляемых его кровным врагом.Жанр: БоевикРежиссер: Деран Сарафьян / Deran SarafianАктеры: Жан-Клод Ван Дамм /Jean-Claude Van Damme/, Роберт Гийом /Robert Guillaume/, Синтия Гибб /Cynthia Gibb/, Джордж Дикерсон /George Dickerson/, Патрик Килпатрик /Patrick KilpatrickПеревод: Двухголосный (закадровый) - канал НТВ
+Одноголосный (Андрей Гаврилов)
+Оригинал (ENG)Продолжительность: 01:29:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD07E8B35ED2E3604AC12BA15552639CA6B28875
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:65AA441130970AEC315E7105AEFA150B11B99C10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Balabolka 2.15.0.900 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:EFE2FDCA82DBE4BB605562AD2A8A8545E070E13B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:EFE2FDCA82DBE4BB605562AD2A8A8545E070E13B
 ```bash
 magnet:?xt=urn:btih:2E6F9D0B09567A7695C5EB941060320199E194A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:2E6F9D0B09567A7695C5EB941060320199E194A5
 magnet:?xt=urn:btih:BD39F534E9BF295579F44F81BA425EBEAEFEF2B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:BD39F534E9BF295579F44F81BA425EBEAEFEF2B7
 ```bash
 magnet:?xt=urn:btih:40927771CB4EEF0016CB4ED347ECE85C3EE9EC24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Light Image Resizer - программа для изменения размер�
 magnet:?xt=urn:btih:25F00E78BC43FF9F270B3B3C96678DD1E8054D1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:25F00E78BC43FF9F270B3B3C96678DD1E8054D1E
 ```bash
 magnet:?xt=urn:btih:012CDA21905CC828D37FE0AC30DEF418F0022D0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:012CDA21905CC828D37FE0AC30DEF418F0022D0D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:012CDA21905CC828D37FE0AC30DEF418F0022D0D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:012CDA21905CC828D37FE0AC30DEF418F0022D0D
 magnet:?xt=urn:btih:398B721CC9504DE2C40DCB6C3A9BF9E1D0074CD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:398B721CC9504DE2C40DCB6C3A9BF9E1D0074CD6
 ```bash
 magnet:?xt=urn:btih:3E6181BA59BC76901652DCE428263B1E68B66272
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Acrobat Pro — это полностью обновленная настоль�
 magnet:?xt=urn:btih:A091C0740E9BC1F5142CF41CC271045F4A5F7F40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:A091C0740E9BC1F5142CF41CC271045F4A5F7F40
 magnet:?xt=urn:btih:CC6882A62CC842BAC7A92AC3C46EEF3942A1E6A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Cyberpunk 2077 приключенческая ролевая игра, дейс�
 ```bash
 magnet:?xt=urn:btih:C9D3921BF7017490C74D546C3D0FD6F1E0694422
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ VA - Top 100 Legend Rock Hits vol.2 (2025) [MP3|320 Kbps] <Rock, Soft Rock>
 magnet:?xt=urn:btih:9CC07D12F26A0625852502C3BA58A9508EFF9508
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:9CC07D12F26A0625852502C3BA58A9508EFF9508
 ```bash
 magnet:?xt=urn:btih:122954F5B2489C70B75B6FD92CD188A03D63FB51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:122954F5B2489C70B75B6FD92CD188A03D63FB51
 magnet:?xt=urn:btih:D46CFE9EEED776FCAF71103115A212A7769E82D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:D46CFE9EEED776FCAF71103115A212A7769E82D8
 ```bash
 magnet:?xt=urn:btih:65CBAD7704EF5E832D7AED7807EEA72EAF9C2DF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ ByeByeDPI v1.6.2 [Ru/Multi]
 magnet:?xt=urn:btih:ADA865E2DA87F56FC85788F4F24614C0A72DC22A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:ADA865E2DA87F56FC85788F4F24614C0A72DC22A
 magnet:?xt=urn:btih:3A3DBE4AC3330070F6E5C6504B5F93807A9A564C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ W10Privacy - программа для изменения настроек си�
 ```bash
 magnet:?xt=urn:btih:A8B9DC5A8306E425A31A0B091F53078F290321AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:A8B9DC5A8306E425A31A0B091F53078F290321AD
 magnet:?xt=urn:btih:DA8B80AAEB62535BBD739B278B73D8CB87C1F9BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Who's at the door? (2025) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:4D31EDE953341080D64AB1C224BC6CEBDD1B4C77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:4D31EDE953341080D64AB1C224BC6CEBDD1B4C77
 magnet:?xt=urn:btih:DA4FFB1146A4AA4EB4C61BA5181D593132A91B3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:DA4FFB1146A4AA4EB4C61BA5181D593132A91B3A
 magnet:?xt=urn:btih:0B1EF40F724E7ADC0CE3AEB9D3685162CDC8CB4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:D18EF964C2454A6290EFD4C8C88189EADCC9C994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

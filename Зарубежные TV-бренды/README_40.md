@@ -19,6 +19,8 @@ Discovery: Я - это зло (сезон 1, 12 серий из 12) / Discovery.
 magnet:?xt=urn:btih:DE33AD1FF82405D111BD071538DD1FAF4C742141
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:DE33AD1FF82405D111BD071538DD1FAF4C742141
 ```bash
 magnet:?xt=urn:btih:0DE74B193FFF9A7D740F046C18AE321488977A70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC: Битва экзопланет / Battle of the exoplanets (2018) IPTVRip [
 magnet:?xt=urn:btih:993F3ABEBC2BE30AF4ADC14D24461222C251B67D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:993F3ABEBC2BE30AF4ADC14D24461222C251B67D
 ```bash
 magnet:?xt=urn:btih:F6572F247615D69B345E4514511805736238420B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:F6572F247615D69B345E4514511805736238420B
 magnet:?xt=urn:btih:EA316A293AB9919FB7064DA90D6351C2AAD4E6DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ BBC. Британские времена года / The Great British Year (2013
 ```bash
 magnet:?xt=urn:btih:3D491BC6059C6A276A8E4B5133ED10EA945D5EEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:3D491BC6059C6A276A8E4B5133ED10EA945D5EEA
 magnet:?xt=urn:btih:83698371FB0DA79E57B5CB937330B7D876E4DC51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:83698371FB0DA79E57B5CB937330B7D876E4DC51
 ```bash
 magnet:?xt=urn:btih:65F3AD744B49981E36071C43B9396B8B68944446
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:65F3AD744B49981E36071C43B9396B8B68944446
 magnet:?xt=urn:btih:0342BE9D8B38D98B76C5D6E826D0620A8185F2C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ NGW: В неизвестность с Джеком Рэнделлом / Out Ther
 ```bash
 magnet:?xt=urn:btih:07D33967290FEF543CAD46398BA839E06813E868
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Animal Planet: Expedition Mungo / Экспедиция Мунго (2017) HDTVRip
 magnet:?xt=urn:btih:311B8CEA3735489A47CCBF09C94E7524C14730BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ BBC: Что такое красота? / What is beauty? (2009) DVBRip
 ```bash
 magnet:?xt=urn:btih:783D9EE7813EB12F9F8C46325C56C8960EBCA1F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ PBS. Nova. Тайна кода майя / Cracking the Maya Code (2008) SATRip
 magnet:?xt=urn:btih:E7CE1ABCD133D2CAB11EF3714C0BAA8CD7E60E20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Discovery. Дороги России: Трасса А-161: Саянский пе
 ```bash
 magnet:?xt=urn:btih:EAAE3A6FCC17DB6DAD114B12747B1E3DF71651EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Animal Planet: Океанариум / The Aquarium (2019) HDTV [H.264/1080i] (э
 magnet:?xt=urn:btih:929DF2CFE43C92F3DA11ABD473C89FA92049BD34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ History Channel: Библия - Секретные материалы / Bible Se
 ```bash
 magnet:?xt=urn:btih:5CCE7E91834E15E4FFC1ED447B5922B3CA4B809D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Discovery. Дикие эксперименты Адама Сэвиджа / Savag
 magnet:?xt=urn:btih:D90DC242E62CBA43C4FC556D727EFB2A5A1D08AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ NGW: Замбези / The Zambezi (2010) HDTVRip [H.264/720p-LQ] (эпизоды
 ```bash
 magnet:?xt=urn:btih:8CD57015D11550AE48F701258EECC88AAEE56793
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:8CD57015D11550AE48F701258EECC88AAEE56793
 magnet:?xt=urn:btih:1760DB4BC66C84BF4BB3C9B6C56609C38FC462BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ NG. Черные фараоны: империя золота / Black Pharaohs of
 ```bash
 magnet:?xt=urn:btih:42BE7CE6801E0CC0B640A95F5D7F2EBD063E9C54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ NG. Линии Наска: Древние тайны / Nasca Lines. Ancient Secr
 magnet:?xt=urn:btih:2B4D8D09B357090A7E7874A514A5B810DB7555C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Discovery: 100 величайших гаджетов со Стивеном Фр�
 ```bash
 magnet:?xt=urn:btih:0791A512775C934BF0C7E436590830EC89A6BE16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ GoPro HD: Dreams with Kelia Moniz - Roxy Wahine Classic 2011 (Music from SKY) [1
 magnet:?xt=urn:btih:E70E9BC6BD0ECC4A4FEF6EAA6B9866F80B464BE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ NG. Экстремальный Китай. Горы Сыгунян / Extreme Chi
 ```bash
 magnet:?xt=urn:btih:F0C0B39A9D0C20D00B6BD83F5B1B01BDFFEB1B97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Discovery. Торговцы космосом (космические дилер�
 magnet:?xt=urn:btih:C993E99231B3705BDA43A465060A3896DD1ED8E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ BBC. Тайны взросления / The Secret Life of Growing Up (2016) DVB 
 ```bash
 magnet:?xt=urn:btih:081AA7C85B0D909B06B63112D341CF0BBD797A99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

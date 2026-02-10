@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:EF8D4ED65F1048AA7020DBF77B57B18545837FD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:EF8D4ED65F1048AA7020DBF77B57B18545837FD8
 magnet:?xt=urn:btih:EEA682402812A4A1AB8B4D76EA4E95728ACE8B95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ JSX. Это — синтаксическое расширение JavaScript, к
 ```bash
 magnet:?xt=urn:btih:724E3F1D1C1D114E410BD9BA42D8A710C2436D74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:724E3F1D1C1D114E410BD9BA42D8A710C2436D74
 magnet:?xt=urn:btih:F10203A7AAD49E51F6165ABF29D61E38819254E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:F10203A7AAD49E51F6165ABF29D61E38819254E3
 ```bash
 magnet:?xt=urn:btih:7FF16EA3DAC0F86105FE0B4520C10FD4CA750AAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -155,6 +165,8 @@ VideoSmile, Дмитрий Кузнецов | Супер Photoshop (2023) WEB-DL
 magnet:?xt=urn:btih:C669E711F8F7DDA8E84A1D1F5ECBE210448E904A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ SolidWorks Simulation представляет собой программу д�
 ```bash
 magnet:?xt=urn:btih:CC5B81D858D69B8F2BE820AB4921016561526B64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ Ripple Training, Mark Spencer | Advanced Color Grading in DaVinci Resolve 17/18 
 magnet:?xt=urn:btih:61562D0E538B77904B736016F70C5339D0EBC7DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ Solid Factory, Антон Ильин | SolidWorks. Базовый курс (2020
 ```bash
 magnet:?xt=urn:btih:F91C67500C65686D365F9C6DDB8637D3DD028150
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ Udemy, Daren Perincic | 2024 Blender Beginner Course - Create Cinematic Scenes (
 magnet:?xt=urn:btih:96CE1342EC8AD917EE6266D3E7E4D11ACE590641
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ DaVinci Resolve 18 Core Training — это учебное пособие нач
 magnet:?xt=urn:btih:2217B489D9B33170449CFD434526665EF526B0C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ Blender Market, Ducky 3D | Intro To Motion Graphics (Blender Course) (2023) PCRe
 ```bash
 magnet:?xt=urn:btih:84266F31246ADDF31F1E0E0897284BED4BF206F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ Artefacto school, Любовь Титова | Цветы и стеклянные
 ```bash
 magnet:?xt=urn:btih:F9C23C479C465ED1DA337C3856FCEC11C2127643
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ Bazanova Art, Ольга Базанова | Как начать писать м�
 magnet:?xt=urn:btih:307C60A00B9DCA757854AE80C570493651D1A4FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ Mircourse, Ольга Привалова | Художник-дизайнер и�
 magnet:?xt=urn:btih:7F062FA7981E251CE2C22890E23F34EF464A802E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:7F062FA7981E251CE2C22890E23F34EF464A802E
 ```bash
 magnet:?xt=urn:btih:EFAF98CA1DE5E46518538E3AB80455386EB79A17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +461,8 @@ Bazanova Art, Ольга Базанова | Практика художника 
 ```bash
 magnet:?xt=urn:btih:259E965755EC07ACD34F6662138C8A0F8C498D6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +491,8 @@ magnet:?xt=urn:btih:259E965755EC07ACD34F6662138C8A0F8C498D6D
 magnet:?xt=urn:btih:9102423F2D1A6C15D0F98F6644BF8C32EFBDAFE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ Coursera, МФТИ | Электричество и магнетизм - част
 magnet:?xt=urn:btih:DEC0BC8998FDFC76DEB7137D706D453511BC0DF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ Coursera, МФТИ | Электричество и магнетизм - част
 ```bash
 magnet:?xt=urn:btih:371626484C7B6DC98B25F513BF34331504B57E87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ Udemy, Phil Ebiner | Affinity Photo Complete Guide to Photo Editing in Affinity 
 magnet:?xt=urn:btih:B2025399EA573742183ED7362FF2F9F30B480995
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +601,8 @@ MasterClass, Marques Brownlee | Make Compelling Videos That Go Viral (2022) WEB-
 magnet:?xt=urn:btih:6F9DDBADD4782250129A8523B0E5045E0232419D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +626,8 @@ Ardan Labs, Bill Kennedy | Ultimate Go: Software Design with Kubernetes (2023) W
 ```bash
 magnet:?xt=urn:btih:91F59AF494DBD7527BE69AC57E84721C4721293E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +656,8 @@ After Effects - это мощное приложение для создания
 magnet:?xt=urn:btih:3D4F23A0893B8977E885B74926A64135F4D16C1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +685,8 @@ OK English School, Елена Вогнистая | Учебные материа
 magnet:?xt=urn:btih:11996E925A472A3C05CDC828F1B79B62A185F37D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +710,8 @@ Udemy, David Nixon | Unreal Engine 5: The Intermediate Course (2023) WEB-DL [EN 
 ```bash
 magnet:?xt=urn:btih:8E60E206238FD09EE2BACCD1CE0FFE193FD58469
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

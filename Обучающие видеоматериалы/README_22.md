@@ -19,6 +19,8 @@ Sefki Ibrahim | Hyperreal 3D Character Creation Course [Tutorial] [EN/EN Sub] (2
 magnet:?xt=urn:btih:ED439CCBE19C51EAA5566E02D79FB1F3F99824A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ George Vondriska | Настройка и использование фуганк
 ```bash
 magnet:?xt=urn:btih:1349F1293EFD5EB984C2B0C5128A1DD924C4726A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ George Vondriska | Основы работы с фрезерным столом 
 magnet:?xt=urn:btih:F00440B998E8D8984BF47230865840535F76F81E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ George Vondriska | Техники работы с ручным фрезером 
 magnet:?xt=urn:btih:386E0E7332EF949BFB4E59B0F00F4877BD267488
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ YanSculpts | Master Sculpting Heads - 3D Blender Course (V1.3) (2023) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:A0BF2036BF1604F9CF70228921ED2B931006A9B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:A0BF2036BF1604F9CF70228921ED2B931006A9B2
 magnet:?xt=urn:btih:3D349BE8AB6B4000FEE2E2D470F5411A7A29F254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Doug Stowe | Основы изготовления шкатулок (2007) DVDRi
 ```bash
 magnet:?xt=urn:btih:DB62840A97020010D6D23A05806457C06F071025
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:DB62840A97020010D6D23A05806457C06F071025
 magnet:?xt=urn:btih:37CE7A825DA5A8245D1F55732113268CE589D027
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:37CE7A825DA5A8245D1F55732113268CE589D027
 ```bash
 magnet:?xt=urn:btih:B4925793BC2A7375E428474C9F01E33299FC6F81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ magnet:?xt=urn:btih:B4925793BC2A7375E428474C9F01E33299FC6F81
 magnet:?xt=urn:btih:DB8263D7F53980A9027CAC2004A6E324A36757D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +301,8 @@ ColorSchool, Наталья Маркевич | Свет в саду (2024) WEB-D
 magnet:?xt=urn:btih:1A0C47C2805DBBB6560C14772F359EFC334C5581
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ George Vondriska | Основы работы с циркулярной пило�
 ```bash
 magnet:?xt=urn:btih:47E22040B3BBD1DEFCFFDF207D7271E9D5508803
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +357,8 @@ magnet:?xt=urn:btih:47E22040B3BBD1DEFCFFDF207D7271E9D5508803
 magnet:?xt=urn:btih:F3F7DF1162AEEDD53A4C58C1AA0026A74025C62F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ magnet:?xt=urn:btih:F3F7DF1162AEEDD53A4C58C1AA0026A74025C62F
 ```bash
 magnet:?xt=urn:btih:43991077AAC4C2B7F23F998266E909290ECD88D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +413,8 @@ magnet:?xt=urn:btih:43991077AAC4C2B7F23F998266E909290ECD88D8
 magnet:?xt=urn:btih:CC9DC7A9A6406DDC1391D114615194D9371B06EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +440,8 @@ magnet:?xt=urn:btih:CC9DC7A9A6406DDC1391D114615194D9371B06EE
 magnet:?xt=urn:btih:BBE23BA1D880AF18ACD944A8C50F0E41D79B9E2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +466,8 @@ George Vondriska | Основы работы с ленточной пилой (2
 ```bash
 magnet:?xt=urn:btih:5A8FEBAB40D41665587965D7DA5CFBCE766722E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +496,8 @@ magnet:?xt=urn:btih:5A8FEBAB40D41665587965D7DA5CFBCE766722E7
 magnet:?xt=urn:btih:26B137D3FEB7472B12E5C5858421AF5883D0C98F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +522,8 @@ Stepik, Codemoon | Создаем корпоративного Telegram бота
 ```bash
 magnet:?xt=urn:btih:70C981F0D17EC45CF21340F3782F9BF7825A8EF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +552,8 @@ George Vondriska | Деревообработка: Все о дереве (2018)
 magnet:?xt=urn:btih:60AF611E31F08BE19B2C1B3836ADABE74CD4E6B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +577,8 @@ Alan Turner | Отделка выполненная вручную (2020) WEBRip
 ```bash
 magnet:?xt=urn:btih:ECF4691296B12E9A2470195A0376B53464149213
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +607,8 @@ magnet:?xt=urn:btih:ECF4691296B12E9A2470195A0376B53464149213
 magnet:?xt=urn:btih:016139FBC47DF3003480CCFAECD76BAE09935F59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +636,8 @@ magnet:?xt=urn:btih:016139FBC47DF3003480CCFAECD76BAE09935F59
 magnet:?xt=urn:btih:75769AE170DE168E9C9571DF9EB28C53CFE4AC52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +662,8 @@ magnet:?xt=urn:btih:75769AE170DE168E9C9571DF9EB28C53CFE4AC52
 ```bash
 magnet:?xt=urn:btih:E7840D0DF181BFA73D1F966C2C86DECFC5948DE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +690,8 @@ Udemy, Вадим Прокопчук | Верстка сайта c исполь�
 magnet:?xt=urn:btih:455CFD0077B649AE38ACEA16685980BC38383793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +717,8 @@ plants.coach, Яна Строинская | Мини-курс по переса�
 ```bash
 magnet:?xt=urn:btih:5C15084829CD3B2AD31459539409F76BE6FC63B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

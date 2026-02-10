@@ -1,3 +1,29 @@
+###  Публикация: 1522631   (756783) от 08.01.2022
+
+Митрополит Симон (Новиков) | Воспеваю благодать Твою, Владычице (2016) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник проповедей, произнесённых митрополитом Симоном (Новиковым; 1928–2006) в рязанских храмах на Богородичные праздники. В издании также представлено краткое жизнеописание владыки.Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1CD83B618D4757424B237B3EE47FE2A36B75F38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 887956   (756801) от 13.04.2015
 
 Аллен Карр | Начни худеть сейчас (2010) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:C09007C43DC79DB11FBEABFE1543D75AD88887FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:C09007C43DC79DB11FBEABFE1543D75AD88887FA
 magnet:?xt=urn:btih:E20BF63F4A48363DDC4DD5EF0FFF2D498DA2A06A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:E20BF63F4A48363DDC4DD5EF0FFF2D498DA2A06A
 ```bash
 magnet:?xt=urn:btih:9C68695EF2D98E4E5E997454CA75EA65BBE6ECB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:9C68695EF2D98E4E5E997454CA75EA65BBE6ECB0
 magnet:?xt=urn:btih:683E299D86A94010F3ECA4BEAF8078A7FBD335C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:683E299D86A94010F3ECA4BEAF8078A7FBD335C5
 ```bash
 magnet:?xt=urn:btih:92A3C215C8678AA9AB15AD52F9133B723D6FA610
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:92A3C215C8678AA9AB15AD52F9133B723D6FA610
 magnet:?xt=urn:btih:068A8FB2BCC886ACB8C76F7B496E2E2C1B515C16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:068A8FB2BCC886ACB8C76F7B496E2E2C1B515C16
 ```bash
 magnet:?xt=urn:btih:C8056C44F39D8FC12ED063B9B9F4011497DC4012
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:C8056C44F39D8FC12ED063B9B9F4011497DC4012
 magnet:?xt=urn:btih:69DFECCCF653B5AC39E21AB6D89A1ECB46925395
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:69DFECCCF653B5AC39E21AB6D89A1ECB46925395
 ```bash
 magnet:?xt=urn:btih:383A4BD49CFC92DF624114E947E35EB22C788E18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:383A4BD49CFC92DF624114E947E35EB22C788E18
 magnet:?xt=urn:btih:B2CFAEE71D94E6F65889485515B7B90DB9CB22EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:B2CFAEE71D94E6F65889485515B7B90DB9CB22EB
 ```bash
 magnet:?xt=urn:btih:683D94E06C5510423BD8702339A33DC4EC91C93F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:683D94E06C5510423BD8702339A33DC4EC91C93F
 magnet:?xt=urn:btih:CCD815B1AE23B0EBD700B0A71ADFAF650520BA7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:CCD815B1AE23B0EBD700B0A71ADFAF650520BA7A
 ```bash
 magnet:?xt=urn:btih:82A394588CDE0FBDBC311683781F00954B42B9C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:82A394588CDE0FBDBC311683781F00954B42B9C0
 magnet:?xt=urn:btih:BF0C07C40A35291921526E77ED783C438A29C458
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:BF0C07C40A35291921526E77ED783C438A29C458
 ```bash
 magnet:?xt=urn:btih:40D7C7420B06EF3194DD2F7C56846B9730E25A0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:40D7C7420B06EF3194DD2F7C56846B9730E25A0A
 magnet:?xt=urn:btih:4C6C7269C19B9D21D49EEB513CA3B332534C9528
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ magnet:?xt=urn:btih:4C6C7269C19B9D21D49EEB513CA3B332534C9528
 ```bash
 magnet:?xt=urn:btih:76241A6CA0E93F7D32AA79B189CB853C2D2C99B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:76241A6CA0E93F7D32AA79B189CB853C2D2C99B6
 magnet:?xt=urn:btih:131BB69CC64E9BD3A25DB8413EC42FD42A738ED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +513,8 @@ magnet:?xt=urn:btih:131BB69CC64E9BD3A25DB8413EC42FD42A738ED1
 ```bash
 magnet:?xt=urn:btih:2AF6597DDD54E79D9D38D3F0CEFF4FB8E9CAD2C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:2AF6597DDD54E79D9D38D3F0CEFF4FB8E9CAD2C8
 magnet:?xt=urn:btih:0A84D095D353B21583400BC6C2630D09F40491A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +565,8 @@ magnet:?xt=urn:btih:0A84D095D353B21583400BC6C2630D09F40491A3
 ```bash
 magnet:?xt=urn:btih:9F92CE51C6C613E7779930ECA0097BE14900B715
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:9F92CE51C6C613E7779930ECA0097BE14900B715
 magnet:?xt=urn:btih:711F189AE2ACD415925AA4FDF36FD9C0A624BFC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:711F189AE2ACD415925AA4FDF36FD9C0A624BFC3
 magnet:?xt=urn:btih:4DF3459AE78C73639EE76089A2835225A69B8B44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:4DF3459AE78C73639EE76089A2835225A69B8B44
 ```bash
 magnet:?xt=urn:btih:DE685872E479CB5835A74E1A3DE8B69F87CC68EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:DE685872E479CB5835A74E1A3DE8B69F87CC68EB
 magnet:?xt=urn:btih:E219EA35E4C7CE49A50B263701776D9643AC1FA0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395097   (758645) от 08.07.2020
-
-Иван Крастев, Стивен Холмс | Свет, обманувший надежды. Почему Запад проигрывает борьбу за демократию (2020) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эпоха великих перемен, которая, как считалось, наступила после краха коммунизма и «конца истории», стала временем не реальной трансформации государств по западной модели, а имитации, часто – весьма поверхностной. Но притворство рано или поздно приводит к обратной реакции. Через три десятилетия игры по западным правилам многим «ученикам» надоело терпеть моральное (   Читать дальше...   )Жанр: Политология, ПублицистикаПеревод: Александр СоловьевФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C87510010303F4D528E136F4EB021A15E521579
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

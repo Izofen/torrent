@@ -19,6 +19,8 @@ Material Pods: батарея AirPods v6.68 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:632EA445FA729B6C930CEE2E9BF05E9FE94D2D9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ My TTS: Text-to-Speech v1.5.4 Mod by Alex.Strannik [En]
 ```bash
 magnet:?xt=urn:btih:5E43B420D86F8292936882EBC351AFD2BD18897D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Purvpn 9.5 [En/Farsi]
 magnet:?xt=urn:btih:49CB05D33D75580A189FB0195480C95423A29612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Mi Home - это приложение для управления умным д�
 ```bash
 magnet:?xt=urn:btih:BF3FBFE28C897CB20938E720FDEDB25D1161B639
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Relax Rain: sleeping sounds v9.0.1 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:3B1DC488455EF4CB6427DEA4C46126E7D8FB9626
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ HiPER Calc Pro v11.2.7 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A925ECEA5531EAEF171030E0D19E9E47EF14A670
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ SnapEdit — одно из лучших приложений для редакт
 magnet:?xt=urn:btih:7D922137E94ECB2523DAF3800F20C8B88DEDB661
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Remini / Улучшение Фото v3.7.1126.202516929 Mod by Mixroot [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:5DBC0F121088C729650D50D9D06783A026C8065E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Flud - простой и элегантный BitTorrent клиент для о�
 magnet:?xt=urn:btih:DFE4DEE93D066C791B7A2BD182DBCEF829877D86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Jigsawscapes® - Пазлы v4.2.1 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F1C0C0E21434536F83BC325CDC50C8B42558AE34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Device Info — простое, но мощное приложение для An
 magnet:?xt=urn:btih:5EED5CC41CDD170D49EE51A13B652269A59CA155
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:5EED5CC41CDD170D49EE51A13B652269A59CA155
 ```bash
 magnet:?xt=urn:btih:55569C30298B1A56F3821AB99FF53329D328D847
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ ES File Explorer (File Manager) — это полнофункциональны�
 magnet:?xt=urn:btih:52462F217923C361EF480DC7A3947FE33A6917B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Sense Flip Clock & Weather v8.44.2 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:30D4EC7513BDEDBBC9712D904CA9FC6914FFB7E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ IPTV Pro v9.1.8 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DE0FACB6726E5925C7135404DE877B6DEBCB9D55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Sense V2 Flip Clock & Weather v8.45.2 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:05826C83EE9B7A5054AD2C5A324E7016D7C462C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ jetAudio это музыкальный проигрыватель с 10/20 по�
 ```bash
 magnet:?xt=urn:btih:F78C4F8EAD7A3E8979F93A0AA8E40C38904FAC69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Plus Messenger - неофициальное приложение для обме
 magnet:?xt=urn:btih:03C851B2475DAB7B84C8D949A52EABE1931E6BB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Notification Dots v1.2.76 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:AE2F5C4662E42C0DB60DB00BF9628E26168BEB12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ BikeComputer Pro - возможно, одно из лучших приложен
 magnet:?xt=urn:btih:A6658DF9F771D936AA638A2FEAB47FC3B2828655
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Notification Widget v1.5.194 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:F3F7B71943BF5EA19D37B2EA28DE71856B5CA218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ AirBrush: ИИ Фоторедактор v7.17.0 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9827DD0A58F0365FD06A320BA2D402644D1CD19D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Cartoon Photo PRO v1.21 [En]
 magnet:?xt=urn:btih:E1418CBE07337FD02A3FFE84A9C73B43CECF1A85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:E1418CBE07337FD02A3FFE84A9C73B43CECF1A85
 magnet:?xt=urn:btih:F2A8A9D0B6356ED2A0A80EDC4C514751C4E957F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ IPTV# (ex. LazyIPTVDeluxe) v3.16 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:7F6F40796221426F80002BFAD0EAA3AD0193E5E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Bria Mobile: VoIP Softphone v6.21.1 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A67BD456EBB30248F042928B7DF4CBE2AB42E983
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

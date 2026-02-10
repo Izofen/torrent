@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:72A764C16AAAFD82A125DAD29134F964FBF3AF12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:72A764C16AAAFD82A125DAD29134F964FBF3AF12
 magnet:?xt=urn:btih:42525CF65C401CFCB474CF7071D3C045877E7777
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:42525CF65C401CFCB474CF7071D3C045877E7777
 ```bash
 magnet:?xt=urn:btih:B5527B24BECF329F9E57CCE84CFFF765B59908DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:B5527B24BECF329F9E57CCE84CFFF765B59908DB
 magnet:?xt=urn:btih:E5BD001CFCD3E44728BDEE02AFBE7E0DB901348B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:E5BD001CFCD3E44728BDEE02AFBE7E0DB901348B
 ```bash
 magnet:?xt=urn:btih:AA50BD70ACFC92A06210E826C08A4DAF0ADDD52B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:AA50BD70ACFC92A06210E826C08A4DAF0ADDD52B
 magnet:?xt=urn:btih:1A383BAF75410BE7DD819BD1246042A6129EC1C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:1A383BAF75410BE7DD819BD1246042A6129EC1C4
 ```bash
 magnet:?xt=urn:btih:D84F128D6A53B5C08908CEA43F4A59E45C0FE94F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:D84F128D6A53B5C08908CEA43F4A59E45C0FE94F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Armitage III: Poly Matrix | Армитаж: Полиматрица [1996, Movie]
 ```bash
 magnet:?xt=urn:btih:5492E97C86D5ECF3190335757109BDD040AA7D7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:40007CA01793BFAD4E0178F81915603D00D53CA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:40007CA01793BFAD4E0178F81915603D00D53CA1
 ```bash
 magnet:?xt=urn:btih:FDC7377446448C6DF61AC74A9BEEFFF74C3C5D1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ VA - Summer House 2023 [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:EAB0AD72662F71A1B6175E572407EDCAA5586AF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:EAB0AD72662F71A1B6175E572407EDCAA5586AF9
 ```bash
 magnet:?xt=urn:btih:A8BABAB89BE27F66141477DF58096ECC9721CF59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:A8BABAB89BE27F66141477DF58096ECC9721CF59
 magnet:?xt=urn:btih:F8BF4210330C142DB15EC24FBF05BA6DA2598467
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Grand Tactician: The Civil War (1861-1865) (2021) [En] (1.09) License GOG
 magnet:?xt=urn:btih:695BEEBEB37414021509A52011D3F90CACED71B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:695BEEBEB37414021509A52011D3F90CACED71B3
 ```bash
 magnet:?xt=urn:btih:EF78722B4D8B0AE3B714A2153DC82A4F257F15DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:EF78722B4D8B0AE3B714A2153DC82A4F257F15DD
 magnet:?xt=urn:btih:207060EFED9383DF574A466F73B887C53B8EA3CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:207060EFED9383DF574A466F73B887C53B8EA3CB
 ```bash
 magnet:?xt=urn:btih:2664FEC80E1FF0720B9D4442AA872DEFCB1CDFEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ KStars - бесплатное, с открытым исходным кодом, 
 magnet:?xt=urn:btih:012966AF75FE8C663160772914E1BDF93485648F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:012966AF75FE8C663160772914E1BDF93485648F
 magnet:?xt=urn:btih:D4E70DB82BC0C3A3B315B8BC92BD284A894A1FAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:D4E70DB82BC0C3A3B315B8BC92BD284A894A1FAA
 ```bash
 magnet:?xt=urn:btih:40C6FDD944C7070C613DDED5A15F8EC933BA9751
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:40C6FDD944C7070C613DDED5A15F8EC933BA9751
 magnet:?xt=urn:btih:D3E5B5FE88C3E0A2F1914FF5CAE30F52778E6ED8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:D3E5B5FE88C3E0A2F1914FF5CAE30F52778E6ED8
 ```bash
 magnet:?xt=urn:btih:38AA4EBADE5AE735A001D766FF06DCEAA6CD2BE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:38AA4EBADE5AE735A001D766FF06DCEAA6CD2BE7
 magnet:?xt=urn:btih:2D39DA837EF0B2A6C074B37B5A5F7A0D9C4039DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:2D39DA837EF0B2A6C074B37B5A5F7A0D9C4039DD
 ```bash
 magnet:?xt=urn:btih:91321EAB0EDB08E42F3E40BD77D3D1601CDEAB5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:91321EAB0EDB08E42F3E40BD77D3D1601CDEAB5E
 ```bash
 magnet:?xt=urn:btih:57345E6223E9BE08989E1EB3F2841DEEC0CB9ECB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

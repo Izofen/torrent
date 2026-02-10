@@ -19,6 +19,8 @@ NG. Бушующие миры: Смертоносная пыль / Storm Worlds:
 magnet:?xt=urn:btih:D61F5CF566ACD79A347B67E92DC6B1D2D6F68918
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:D61F5CF566ACD79A347B67E92DC6B1D2D6F68918
 ```bash
 magnet:?xt=urn:btih:46186DD0A06BB1898E5F96F974E86BA444F829F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:46186DD0A06BB1898E5F96F974E86BA444F829F9
 magnet:?xt=urn:btih:AFDC11B08138033159B4083C061F41F17046D6FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NG: Дикая природа России / NG: Wild Russia (2009) HDTVRip (с�
 ```bash
 magnet:?xt=urn:btih:FD27CBE189E46A23949C8F37F1D60B5644328A88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NG: Затерянные сокровища Майя / Lost Treasures of the May
 magnet:?xt=urn:btih:5E042A15E24E4FB1D49C60C0862D0A10888C17E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NGW. Львы: как братья стали королями / Lion Brothers: 
 ```bash
 magnet:?xt=urn:btih:444DC399D65F8EFF44B1D5AF675E57F9B917794C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Nat Geo Wild: Дикие земли Европы / Europe's Great Wilderness (20
 magnet:?xt=urn:btih:3358397D3C758737E61D8C64A4E38F5E6F44B2EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Nat Geo Wild: Зимний сезон / Wild Winter (2016) HDTVRip [H.264/720p-L
 ```bash
 magnet:?xt=urn:btih:4930548404DF6816C8B21B39DF972F3B3ABE476C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ NG: Насекомые дьявола / Insects From Hell (2009) SATRip [сер�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ NG: Осторожно - Яд / Poison (2009) TVRip
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ NG: Инженерные идеи с Ричардом Хаммондом. Маш
 magnet:?xt=urn:btih:DAC37AFC557F8D942AC4248BE1C9425BC18E9868
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ NG: Дикая природа России / Wild Russia (2009) BDRip [H.264/720
 ```bash
 magnet:?xt=urn:btih:9CCE43DD86D64358D0E0362623D7279E8CBA7504
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ NG. Дикие болота / Wild Swamplands (Серия 1) (2013) HDTVRip [720
 magnet:?xt=urn:btih:18BA812FCECC121768B7A4FFE615DDEAA85EE1E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ NG: Секретное оружие Японии / Japan's Secret Weapon (2009) 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ NG: Наука будущего Стивена Хокинга / Stephen Hawking'
 magnet:?xt=urn:btih:8096CE5403E4E10B2076962234F3DD4A64E5780A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ NG: Дикая Флорида  / Wild Florida (2013) BDRip [H.264/720p] (сер�
 ```bash
 magnet:?xt=urn:btih:7392AB12FF6FBA9F491CBF6B0DFF28AF9DCE3F65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ NG. Пути эволюции  / Evolutions (2008) HDTVRip [H.264/720p] (3 се�
 magnet:?xt=urn:btih:C40EE25A06AD16FD2B984DB4FF1AF49FB16E046A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ NG: Паранормальное. Морские чудовища / Paranormal. 
 ```bash
 magnet:?xt=urn:btih:7A9007485EABEF06E0E631AEB1D73BC4DEDE71B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ NG: Суперспособности животных / Animal Superpowers (2012
 magnet:?xt=urn:btih:0DA80D6E9B3EE84889DEACF29E9FD3227ED986F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ NG. Нападения акул. Красный треугольник /  Shark 
 ```bash
 magnet:?xt=urn:btih:E6E2908F769B8B8FC63756FC0A31BF95DB8A2481
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ NG. Дикие сердцем / Wild at Heart (2007) HDTV [H.264/1080i]
 magnet:?xt=urn:btih:B8DAD4E4DBFFD36F79D5C6F572631CD30E2ED42C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ NG: Земля: Биография Планеты / Earth: Making of a Planet (2
 ```bash
 magnet:?xt=urn:btih:A610E1F8E636AC9AB24AAA9CE626F8BCCDEE4986
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ NG: С точки зрения науки: Экспедиция "Апокали�
 magnet:?xt=urn:btih:37104E1BFCD318B222E87FDA0D94C18BC5345836
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ NG. Неизвестная Бразилия / Secret Brazil (2012) HDTV [H.264/1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Nat Geo Wild: Дикие острова: Невиданные острова / U
 magnet:?xt=urn:btih:EF99AC72B0C94FF50081BD89BC9E99FFF17F8CFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Nat Geo Wild: Секретный кубинский риф / Cuba's Secret Reef 
 ```bash
 magnet:?xt=urn:btih:74A5E00750B254A9EB6CDFF7172882FC05DD12C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Altirra 2.4 [Английский] (2011) [Atari 800]
 magnet:?xt=urn:btih:3966B0282A975C7EBD82A3C3369CA05645FC9351
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Dark Souls II (2014) [PS3] [EUR] 3.30 [HEN / CFW] [Repack / 1.10 / DLC] [Ru/Mult
 magnet:?xt=urn:btih:7BF93A4EDE33A2B3916C26CBA6DBFE4364311FC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Rayman Raving Rabbids [Wii] [PAL] [Multi 6] (2006)
 magnet:?xt=urn:btih:DEB344BFBB0244E90C4B37B9DE05E7E5C1867D20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Reload [Wii] [PAL] [Multi 5] (2011)
 ```bash
 magnet:?xt=urn:btih:BC03E0E385CBFD829C6BC26D7DE7A74A84B50E8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:BC03E0E385CBFD829C6BC26D7DE7A74A84B50E8A
 magnet:?xt=urn:btih:8423D258DB0184121BDE3EC38F2A13B25A7A6136
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Family Ski & Snowboard [Wii] [PAL] [Eng] (2009)
 magnet:?xt=urn:btih:8C7466561A72A7DB531D7738D7A265C193E15755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Terraria [PS3] [En] [4.30] [Cobra ODE / E3 ODE PRO ISO] (2013) [PS3]
 ```bash
 magnet:?xt=urn:btih:108048566C937A7D93D1F00F224F5D017BD1816A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Muramasa: The Demon Blade [Wii] [PAL] [Multi 6] (2009)
 magnet:?xt=urn:btih:087440C1B389A916766E986EC4AD9B9BCAF970EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Guilty Gear XX Accent Core Plus [Wii] [PAL] [Eng] (2011)
 magnet:?xt=urn:btih:6F79462FF2EAD072FC77A11585F47D1443094E42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:6F79462FF2EAD072FC77A11585F47D1443094E42
 ```bash
 magnet:?xt=urn:btih:C1A1DC40032414E0BCAF3C8019AB57AB1A2F157F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ Batman: Arkham Asylum GoTY Edition [XBOX360] [RUSSOUND] [Freeboot] (2009) | R.G.
 magnet:?xt=urn:btih:DFC4EA85238A58EC3B57923CEC43293FCFF72A29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Hunted: The Demon's Forge / Hunted: Кузня демонов [XBOX360] [FULL] [
 ```bash
 magnet:?xt=urn:btih:44CC162D4B68C470F407CF0F3C563B46D4E732C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ K-POP Dance Festival - танцевальная игра в которой бу�
 magnet:?xt=urn:btih:F5E5207F0DA12DCA787980CA7B6D29FF73766CC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ ModNation Racers [PS3] [Ru/En] [Repack / 1.11 / DLC] (2010) | R.G. Inferno
 ```bash
 magnet:?xt=urn:btih:3A406199122CB72C12BF35AADD1A5F0A90136FB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ The Ant Bully [Wii] [NTSC] (2006)
 magnet:?xt=urn:btih:5D9BFDB304E9ED22E345293E19C7981065C122CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ Worms Revolution [PS3] [Ru] [Repack] 2012 | R.G. Inferno
 ```bash
 magnet:?xt=urn:btih:116FA0321746E54E0F514A90F07CD740FFCBA41D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ The Cave — новая приключенческая игра от автор�
 magnet:?xt=urn:btih:1EF7B8C5D9E2CE686499DAF0DAEE9617278FEA8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ The Cave [PS3] [PAL] [Ru] [Repack] 2013 | R.G. Inferno
 ```bash
 magnet:?xt=urn:btih:15B97B345F20FC8E5F7E02EB7CBEA26280FA24E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ Catherine [PS3] [EUR] [Ru] (CFW 3.41 / 3.55 / 4.21+) (2011)
 magnet:?xt=urn:btih:F6DCC96DA10964511CFBD1169B7AA6E0805BB49C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ The Amazing Spider-Man [PS3] [+MOVE] [EUR] [Ru] [4.30] [3k3y ODE ISO] (2012)
 ```bash
 magnet:?xt=urn:btih:F9435F5CFB99B4CA00D13190982165758576AE00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ Shadows of the Damned - новый проект легендарных япон�
 magnet:?xt=urn:btih:8C6AFCF44CC8676CE67FBDFD3796D0F56455CD4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ Transformers: Revenge of the Fallen - Безжалостная война про
 ```bash
 magnet:?xt=urn:btih:EB1DA80D58A65EA8920707D597FD075F691784E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:EB1DA80D58A65EA8920707D597FD075F691784E9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ BOOM BLOX Bash Party знает толк в качественном разру�
 ```bash
 magnet:?xt=urn:btih:F02B07192E70B781D162F2A87C00B423F4012146
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ Fit & Fun это современный фитнес-тренер для ваш�
 magnet:?xt=urn:btih:7FD6B5361D32FC1A1634AF5FD89A7B7368E9EED8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ Opoona - это игра-инопланетное приключение. Опу
 ```bash
 magnet:?xt=urn:btih:FA63E5EAB8978ADCC54A62976EC345139E5AE597
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

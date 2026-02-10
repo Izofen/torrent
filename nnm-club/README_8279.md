@@ -28,6 +28,8 @@ VA - Best Of Deep House (2012) [MP3|320 кб/с]<Deep House>
 magnet:?xt=urn:btih:FFD86A539653A92152A05A0734A811221468ED6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ Jan Gerfast Trio - Electric Blues Power (2012) [FLAC|Lossless]<Blues, Blues-Rock
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ VA - Sunset Del Mar Vol.8 Finest In ibiza Chill (2011) [MP3|320 кб/с]<Downtem
 magnet:?xt=urn:btih:5B2EDB72EA62CFD71E623AC6D723863D66B8B47E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +123,8 @@ K-Lite Codec Pack в различных вариантах содержит вс
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +152,8 @@ K-Lite Codec Pack в различных вариантах содержит вс
 magnet:?xt=urn:btih:285E37EFB27A0A251034041506DEC95ED42104F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +178,8 @@ magnet:?xt=urn:btih:285E37EFB27A0A251034041506DEC95ED42104F2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +203,8 @@ magnet:?xt=urn:btih:285E37EFB27A0A251034041506DEC95ED42104F2
 ```bash
 magnet:?xt=urn:btih:D1C43750B1CF5AB4C02CB87274BB2A309A840510
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +239,8 @@ VA - Клубный Хит в Машину! Vol.1 (2012) [MP3|320 кб/с]<Dance
 magnet:?xt=urn:btih:23587A09C11746AB2404814DD123E34810AD4AD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +266,8 @@ magnet:?xt=urn:btih:23587A09C11746AB2404814DD123E34810AD4AD4
 ```bash
 magnet:?xt=urn:btih:BF2DC3A4A4E65D86C91A7225BCEF33E432FA6E2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +302,8 @@ VA - The Best Metal Duets (2011) [MP3|320 кб/с]<Gothic Rock, Rock, Metal>
 magnet:?xt=urn:btih:9EE7B6850A536DD68C2C610241A2FB995B6A8BA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +327,8 @@ magnet:?xt=urn:btih:9EE7B6850A536DD68C2C610241A2FB995B6A8BA5
 ```bash
 magnet:?xt=urn:btih:8AF6534B53984C7B1829B1FFB26B29DB75C3E72E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +363,8 @@ VA - Anthology Of Drum & Bass Arena (2012) [MP3|320 кб/с]<Drum and Bass>
 magnet:?xt=urn:btih:54E41D4887E91D26466FA16A43C912AE5EC7760D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +398,8 @@ Stone Temple Pilots - Shangri-La Dee Da (2001) [APE|Lossless]<Grunge Hard Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +425,8 @@ Stone Temple Pilots - Shangri-La Dee Da (2001) [APE|Lossless]<Grunge Hard Rock>
 magnet:?xt=urn:btih:E70CFF710B7F0C775BA67F8ADE7CE411E28FF661
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +450,8 @@ magnet:?xt=urn:btih:E70CFF710B7F0C775BA67F8ADE7CE411E28FF661
 ```bash
 magnet:?xt=urn:btih:3EF2682EAB340781DC290E42B20921F82EC1EB18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +486,8 @@ Tom Jones - Greatest Love Songs (2003) [APE|Lossless]<Soul, Rock, Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +519,8 @@ Tom Jones - Greatest Love Songs (2003) [APE|Lossless]<Soul, Rock, Pop>
 magnet:?xt=urn:btih:FA895CE44F39C5F74B05BB5854C4603E8F7BEBEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +547,8 @@ magnet:?xt=urn:btih:FA895CE44F39C5F74B05BB5854C4603E8F7BEBEA
 magnet:?xt=urn:btih:21429DD6E5B0E4A6A046278F32E0736C61223A67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +574,8 @@ ForkLift невероятно быстр, но иногда может потр�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +610,8 @@ Laurent Garnier - Unreasonable Behaviour & The Cloud Making Machine (2000,2004) 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +636,8 @@ Laurent Garnier - Unreasonable Behaviour & The Cloud Making Machine (2000,2004) 
 magnet:?xt=urn:btih:FCB10DB3344572B294B86BD7EF0F6A3C0B27FBAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +661,8 @@ magnet:?xt=urn:btih:FCB10DB3344572B294B86BD7EF0F6A3C0B27FBAC
 ```bash
 magnet:?xt=urn:btih:1524DF726967D0CCAD50BB3E580392E5FB932ABC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +692,8 @@ Black Sabbath – Undead And Alive (2004) DVD5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +718,8 @@ Black Sabbath – Undead And Alive (2004) DVD5
 ```bash
 magnet:?xt=urn:btih:7B0F9BAA3DE010D0F7BFA2B2EA455BBE418ADD33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -700,6 +748,8 @@ magnet:?xt=urn:btih:7B0F9BAA3DE010D0F7BFA2B2EA455BBE418ADD33
 magnet:?xt=urn:btih:9E22E5AE66D663A890B2BBF0A21F94CE187736E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -727,6 +777,8 @@ TwistedBrush Open Studio - бесплатный графический реда�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

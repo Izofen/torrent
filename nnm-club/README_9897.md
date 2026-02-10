@@ -1,54 +1,3 @@
-###  Публикация: 1421441   (319708) от 04.11.2020
-
-Рысь выходит на тропу (1982) DVDRip [H.264]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Художественный кинофильм режиссёра Агаси Бабаяна "Рысь выходит на тропу" является продолжением киноповести "Тропой бескорыстной любви", рассказывающей о судьбах рысёнка Кунака и лесника Михалыча, в которых переплетены интересные приключения и необыкновенная дружба человека и опасного хищника.Производство: СССР, ЦентрнаучфильмЖанр: Драма, семейныйРежиссер: Агаси БабаянАктеры: Дмитрий Орловский, Филимон Сергеев, Сергей Юртайкин, Игорь Кашинцев, Евгений Москалев, Анатолий Харланов, Игорь ЧуриковЯзык озвучки: Русский, Английский, ФранцузскийСубтитры: ОтсутствуютПродолжительность: 01:07:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B4F040CF864E288C52CC30E3FF8BD34F48C0F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421346   (319709) от 04.11.2020
-
-Pearl Jam - MTV Unplugged (2020) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Grunge, Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oceans (03:52)
-02. State Of Love & Trust (03:53)
-03. Alive (05:31)
-04. Black (05:32)(   Читать дальше...   )Жанр: Alternative Rock, Grunge, AcousticПродолжительность: 00:35:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C27BB1A9D8415110457D62A5C9462526EB3C91C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421408   (319710) от 04.11.2020
 
 Puscifer (Maynard James Keenan of Tool & A Perfect Circle) - What Is... Puscifer (2013) Live [FLAC|Lossless|tracks + .cue] <Alternative, Progressive Rock, Experimental>
@@ -72,6 +21,8 @@ Puscifer (Maynard James Keenan of Tool & A Perfect Circle) - What Is... Puscifer
 ```bash
 magnet:?xt=urn:btih:149E3324D3DD886708898AF91DA543212829CBF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +48,8 @@ Need For Speed: Hot Pursuit – новая часть в серии безумн
 magnet:?xt=urn:btih:56A28DF5608EAF39A1B565C9535008977F667939
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +73,8 @@ magnet:?xt=urn:btih:56A28DF5608EAF39A1B565C9535008977F667939
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +102,8 @@ magnet:?xt=urn:btih:56A28DF5608EAF39A1B565C9535008977F667939
 magnet:?xt=urn:btih:C0E59E9969B63318CF35CBD680B866F287B75245
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +127,8 @@ magnet:?xt=urn:btih:C0E59E9969B63318CF35CBD680B866F287B75245
 ```bash
 magnet:?xt=urn:btih:6FC8FC4BBFF5F6479243FBE116F64D21E031E4CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +156,8 @@ magnet:?xt=urn:btih:6FC8FC4BBFF5F6479243FBE116F64D21E031E4CE
 magnet:?xt=urn:btih:204BD50C0A0747AF7F579A820B2F2DACA104646B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +181,8 @@ magnet:?xt=urn:btih:204BD50C0A0747AF7F579A820B2F2DACA104646B
 ```bash
 magnet:?xt=urn:btih:5C317F7882C02CEF8030565E7D90B1E0F8F16837
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +208,8 @@ magnet:?xt=urn:btih:5C317F7882C02CEF8030565E7D90B1E0F8F16837
 magnet:?xt=urn:btih:A5870C2300C919D94CD13F18822C65FB841E6932
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +233,8 @@ magnet:?xt=urn:btih:A5870C2300C919D94CD13F18822C65FB841E6932
 ```bash
 magnet:?xt=urn:btih:B7EC6BE98C066223457122CBE84120EAD6A21040
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +260,8 @@ magnet:?xt=urn:btih:B7EC6BE98C066223457122CBE84120EAD6A21040
 magnet:?xt=urn:btih:B07F3240BB62D83844613561798DF1663181764D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +286,8 @@ magnet:?xt=urn:btih:B07F3240BB62D83844613561798DF1663181764D
 magnet:?xt=urn:btih:EC9C94DD7973421313302D153F9C431E02B72CEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +311,8 @@ magnet:?xt=urn:btih:EC9C94DD7973421313302D153F9C431E02B72CEB
 ```bash
 magnet:?xt=urn:btih:83F7878CDF37430A72699F3367D8F1CE8FFDD689
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +342,8 @@ Mujuice - Mistakes & Regrets (2012) [MP3|320 кб/с]<Electronic, Indie, IDM, Gl
 ```bash
 magnet:?xt=urn:btih:2BE6098987820546346D7B67F3730D1429235AE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +376,8 @@ Black & Decker - The Complete Guide to Wiring (Fifth Edition) / Руководс
 magnet:?xt=urn:btih:AF22400BF1E688E5A4E3203C8225F0221487A0D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +401,8 @@ magnet:?xt=urn:btih:AF22400BF1E688E5A4E3203C8225F0221487A0D8
 ```bash
 magnet:?xt=urn:btih:73B067D9E2EA91A5633EF427EE8E5E698511444D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +428,8 @@ magnet:?xt=urn:btih:73B067D9E2EA91A5633EF427EE8E5E698511444D
 magnet:?xt=urn:btih:80C47EA7FC3A63D97000DA6E164BB9A7064EB0EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +453,8 @@ magnet:?xt=urn:btih:80C47EA7FC3A63D97000DA6E164BB9A7064EB0EA
 ```bash
 magnet:?xt=urn:btih:4ACB2245F6CED3B5D4A6EC1938CEF6F2AFD6405F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +480,8 @@ Alien Skin Eye Candy 7 — новая версия набора из 30 филь
 magnet:?xt=urn:btih:23BA119AE3EA08538AFF79538A4D8B475272211D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +506,8 @@ magnet:?xt=urn:btih:23BA119AE3EA08538AFF79538A4D8B475272211D
 magnet:?xt=urn:btih:437D555B601A03BEC104F22743DE57DF34FAF20B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +531,8 @@ magnet:?xt=urn:btih:437D555B601A03BEC104F22743DE57DF34FAF20B
 ```bash
 magnet:?xt=urn:btih:03B1E69E0ABAECDE6A954E78236FAABC114B36CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +559,8 @@ magnet:?xt=urn:btih:03B1E69E0ABAECDE6A954E78236FAABC114B36CE
 magnet:?xt=urn:btih:9A0226E9FE9F287550F1D9F3557BCC2B2FC30593
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +586,8 @@ Kinza Browser - японский браузер на базе Chromium с доп
 magnet:?xt=urn:btih:A81F226E2BDBBB9451D7F18B43849BDF171FF28D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +612,8 @@ Opera 72.0.3815.200 [Multi/Ru]
 magnet:?xt=urn:btih:085C9CD53DB43F0729474627223EB6A6B9D6A15C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +637,61 @@ Zoc terminal - является довольно известным telnet/SSH/S
 ```bash
 magnet:?xt=urn:btih:84028CF44436422067E2F3A3EC47713FD4DC3D08
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421365   (319805) от 04.11.2020
+
+Без явных признаков / No obvious signs (2018) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319805.jpg" />
+</div>
+
+
+###  Подробнее
+
+История женщины, которая возвращается с войны. Разговаривая с психологами, борясь с посттравматическим стрессовым расстройством и приступами паники, она изо всех сил пытается вернуться к нормальной жизни.Производство: Украина / Tabor ProductionsЖанр: Документальный, драмаРежиссер: Алина ГорловаСубтитры: английские (hardsub)Продолжительность: 01:02:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0BCA6416D15D1DED6ECC5FF6D55784A3E9F4CEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421524   (319806) от 04.11.2020
+
+CudaText 1.117.4 Portable + addons [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319806.jpg" />
+</div>
+
+
+###  Подробнее
+
+CudaText — абсолютно бесплатный мультиплатформенный редактор текста, но скорее, предназначен для написания кода. Как и все современные редакторы кода, поддерживает подсветку синтаксиса и готовые блоки кода для быстрой вставки готовых последовательностей. На данный момент программа поддерживает полторы сотни различных языков программирования.
+Дополнительно, возможности (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C127053F9669BDFF9370F6C0735F18C6484F84
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 magnet:?xt=urn:btih:EA8C002E2111157E24A8AE3730632CC0FA13C175
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:C56EB1C966E3CE0727C28B1037B3DF10323DCFB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Psiphon - это новый инструмент обхода интернет-�
 magnet:?xt=urn:btih:D48E9B3B673A2EBE5FE0FA6EA4D7BAECAA5DB9D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:FEDEC30B71E475A225F59992AB864494B3E6957F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:FCDBE3BDCCBDCA523367AC6B1ED86A0C31B16294
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Auslogics Registry Cleaner - поможет вам избавиться от о�
 ```bash
 magnet:?xt=urn:btih:4B387B91BBC30C7AA5D3E36F5C0E645D68F59F36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Auslogics SSD Optimizer - специальный инструмент, разр�
 magnet:?xt=urn:btih:2CF2C59124B19C89CB43E8317F73A67E922BA20E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ OCCT 15.0.13 Portable [En]
 ```bash
 magnet:?xt=urn:btih:8C87425F46B1BB038C64C7A4C767EFDB8E2F994B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 magnet:?xt=urn:btih:AD4408D696C07DB63142D64DFFC395AAEDC271EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Auslogics Registry Defrag - программа для дефрагментаци
 ```bash
 magnet:?xt=urn:btih:8200A0C621C09917F63FE248B30A2314FD931FEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Windows Slimmer поможет вам в удалении ненужных ко�
 magnet:?xt=urn:btih:18F2C3BA4FB45A501109F178C1BAFC455FE63D47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Driver Easy Professional — профессиональная и в тоже в�
 magnet:?xt=urn:btih:33B2BD3D4585D965E290F0D8E6404225206A5CF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Driver Easy Professional — профессиональная и в тоже в�
 ```bash
 magnet:?xt=urn:btih:7BC57F1B724DC5F492163D88FFABA87D478FCE34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Windows Slimmer поможет вам в удалении ненужных ко�
 magnet:?xt=urn:btih:D17881A6D98C97C56C75E50EB60A0AADAAD18CF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Total Uninstall - утилита, предназначенная для корр
 magnet:?xt=urn:btih:AFF188C66BBAE3971A1776C6A96EA1552449B677
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:AFF188C66BBAE3971A1776C6A96EA1552449B677
 ```bash
 magnet:?xt=urn:btih:505A87784CB114C0647AB059495DA84063FE5713
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Kalmuri не имеет встроенного редактора изображ
 magnet:?xt=urn:btih:DEE9601290F37FFE3DC4E9EDE0706CFB50419B83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Auslogics SSD Optimizer - специальный инструмент, разр�
 ```bash
 magnet:?xt=urn:btih:4C702F334D57DFC0D44FE415ECD1DE9F67A71603
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:4C702F334D57DFC0D44FE415ECD1DE9F67A71603
 magnet:?xt=urn:btih:15C3FE860E1FD62E47A5B6A625B5B76F1AA3715B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Auslogics Disk Defrag - это профессиональная версия к�
 ```bash
 magnet:?xt=urn:btih:5BF81867B8D9F654EB081E09F034FBE8D651E1BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ MediaHuman YouTube Downloader 3.9.18 (2512) RePack (& Portable) by elchupacabra 
 magnet:?xt=urn:btih:D669F28901BE85079F068790F32E9907B294D49B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Macrorit Data Wiper Unlimited Edition – мощная утилита, кото�
 ```bash
 magnet:?xt=urn:btih:E7F4382F8ABBA27A005FB9D10A4B67960EF91D7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Double Commander - это свободный, с открытым исходны
 magnet:?xt=urn:btih:E9157C1D340DFBDBA7C7FA4D10421620784F51B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 magnet:?xt=urn:btih:0875721FD9F66B44E6112858914613CF806E0DC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ CareUEyes служит для изменения цветовой темпера
 magnet:?xt=urn:btih:EA181B8C6A3A29F1CD8761E770A45BBC0361AA0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:E6389F5B7265EC8BFAD09C40C09F086ABC5F38D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:7A95DEB8F4D8EC5576F4CB1B4AB2733D1F50D43D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ VA - Pool Loungue Emotional & Sensual Grooves (2012) [MP3|320 кб/с]<Deep Hous
 magnet:?xt=urn:btih:51939E46A41813459B95DD435E4458F787BECFA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:51939E46A41813459B95DD435E4458F787BECFA2
 magnet:?xt=urn:btih:F7581F29FB6D6501034FBD6B47732BC648F45EE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:F7581F29FB6D6501034FBD6B47732BC648F45EE8
 ```bash
 magnet:?xt=urn:btih:569AA4841F1B8B26C221098069AE0E1B05526EB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:569AA4841F1B8B26C221098069AE0E1B05526EB8
 magnet:?xt=urn:btih:8A301100C17A9A21112B6FA777894DE7790CDBD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ Eledees (Elebits) [Wii] [PAL] [Multi 5] [2007]
 magnet:?xt=urn:btih:110863C1E43AF99106A350BDEA4F0553106DDD08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:110863C1E43AF99106A350BDEA4F0553106DDD08
 ```bash
 magnet:?xt=urn:btih:93F4D5A46217BF90D53496254CBB605AFB7E5955
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:93F4D5A46217BF90D53496254CBB605AFB7E5955
 magnet:?xt=urn:btih:1C5CF48DFD0EE7DE4B7A3ECF6403B21A6C3F3A1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:1C5CF48DFD0EE7DE4B7A3ECF6403B21A6C3F3A1D
 ```bash
 magnet:?xt=urn:btih:C83F8D14B650BDF13054F39E1AAB12AFDE919A9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:C83F8D14B650BDF13054F39E1AAB12AFDE919A9E
 magnet:?xt=urn:btih:E1DA59CEEE8052CEFEDE1A7D78C83961E3792397
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:E1DA59CEEE8052CEFEDE1A7D78C83961E3792397
 ```bash
 magnet:?xt=urn:btih:EC118319275FD41AFA9D6A864F18091DD685167A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:EC118319275FD41AFA9D6A864F18091DD685167A
 magnet:?xt=urn:btih:71D79C4456054A4B0220AAF4CFE033AAD123C55C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:71D79C4456054A4B0220AAF4CFE033AAD123C55C
 ```bash
 magnet:?xt=urn:btih:965645D74A6A0A121906F87D46C962302C12186A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ CherryPlayer - уникальный проигрыватель аудио -, в�
 ```bash
 magnet:?xt=urn:btih:F3E5B7041AC1EE8B50A74A4FABC5435F3E03B44C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ VA - Мюзикл "Бал вампиров" (2017) [MP3|320 Kbps] <мюзикл,
 magnet:?xt=urn:btih:8663B55FCFED56B143C26CA560192168370217CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ Armin van Buuren - Live @ Amsterdam Music Festival, Netherlands (2020-11-07) [MP
 ```bash
 magnet:?xt=urn:btih:D2F6C563BFEDB8B8CDAE8C3648DCB22CABF81F45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +461,8 @@ Whitesnake - Love Songs (2020 Remix) (2020) [FLAC|Lossless|image + .cue] <Hard R
 magnet:?xt=urn:btih:9AE2D288EE45BD66474879FEF9BEEDCEC4F2496D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +490,8 @@ Whitesnake - Love Songs (2020 Remix) (2020) [AAC|~338 Kbps] <Rock>
 magnet:?xt=urn:btih:6EF51F608B54052D6B11CD1A706ED001A3B4DEB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ Soukyuu no Fafner: Dead Aggressor - Heaven and Earth / Fafner: Heaven and Earth 
 magnet:?xt=urn:btih:1266EB3280F2910912327037D8F2F21D06C80A6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ HD Video Converter Factory Pro - удобный конвертер всех на
 ```bash
 magnet:?xt=urn:btih:3477B14203780E751D67FAAD2FDB95D3C0DBA2AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ The Cure - Concert: The Cure Live (1984) Fiction 823 682-2 [FLAC|Lossless|image 
 magnet:?xt=urn:btih:C7BF53D492348ED23D832BF0775F47D7305D7DC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +600,8 @@ Juicy Lucy - Juicy Lucy (1995) Reissue, Remastered, 2010, Japanese Edition [MP3|
 ```bash
 magnet:?xt=urn:btih:FA1D6874A4C1DC2E21C4B518856E0232F01624EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +630,8 @@ VA - Wine & Sunset Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:C8770CC6079305DB098BD69C815DC981DE21EE71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +656,8 @@ magnet:?xt=urn:btih:C8770CC6079305DB098BD69C815DC981DE21EE71
 magnet:?xt=urn:btih:F795B4DB5CF3B6FC13E4F5BFBB985F64E5245064
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ magnet:?xt=urn:btih:F795B4DB5CF3B6FC13E4F5BFBB985F64E5245064
 ```bash
 magnet:?xt=urn:btih:6616A4009A9029CD02C666018B99B3D49D1AEEC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -660,6 +710,8 @@ VA - The Official UK Top 40 Singles Chart 06.11.2020 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:3E3681FE2783FEA58A606D9C682EA57A8827BF93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

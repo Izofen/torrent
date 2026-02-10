@@ -22,6 +22,8 @@ VA - Dance Generation: EDM Megamix (2018) [MP3|320 Kbps] <Dance, Club, Electro D
 magnet:?xt=urn:btih:3C69BD62359061CE476FDA03896C1B0A4EC76664
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Cher - Believe (2018) Remix [MP3|320 Kbps] <Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:8C1EA4F77E887A64176FDDC2CD37913EB19E204F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:8C1EA4F77E887A64176FDDC2CD37913EB19E204F
 magnet:?xt=urn:btih:0B2B9A5E32796B30CA20C6881C7565A217C78236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ The Wolf Among Us (2013) [Ru] (1.0.0.1) Repack xatab [Episodes 1-5]
 ```bash
 magnet:?xt=urn:btih:27229CB3490D771E2274F60AEADF9AFCD8711242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:27229CB3490D771E2274F60AEADF9AFCD8711242
 magnet:?xt=urn:btih:209DD5A10FEB5C6A6A452FD2C103ADF729E05136
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:209DD5A10FEB5C6A6A452FD2C103ADF729E05136
 ```bash
 magnet:?xt=urn:btih:6B9F764B99A626FB91F256EE6363D898288C2338
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:6B9F764B99A626FB91F256EE6363D898288C2338
 magnet:?xt=urn:btih:A66AEDEC4A45A80EF2B0A41FF69D8A0D2A520197
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:A66AEDEC4A45A80EF2B0A41FF69D8A0D2A520197
 ```bash
 magnet:?xt=urn:btih:5FCD39AC98E2632DC12A2095FA9DD5C1A963B3C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:5FCD39AC98E2632DC12A2095FA9DD5C1A963B3C9
 magnet:?xt=urn:btih:417679AC08BA88B81298D1A286023CDFF442AAFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:417679AC08BA88B81298D1A286023CDFF442AAFC
 ```bash
 magnet:?xt=urn:btih:4604EEA854287D9173A03F996CBFEC979B610A21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:4604EEA854287D9173A03F996CBFEC979B610A21
 magnet:?xt=urn:btih:A2F77C99A5EFA43234DD9715D58C95CB47205D32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:A2F77C99A5EFA43234DD9715D58C95CB47205D32
 ```bash
 magnet:?xt=urn:btih:BA8168415FE2621A7D59624892B88E3570E81559
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:BA8168415FE2621A7D59624892B88E3570E81559
 magnet:?xt=urn:btih:4E5B1585425D60D0A6C27C5A943D12C5B3A6CFB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Halo: Сумерки / Halo: Nightfall (2014) WEBRip (сезон 1, серии 1
 ```bash
 magnet:?xt=urn:btih:C66205D26C9C06141E5B1F2711FF069AF42A4C4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:C66205D26C9C06141E5B1F2711FF069AF42A4C4A
 magnet:?xt=urn:btih:2238889ABA52DF78608B6806E890EEFD4F07943F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:2238889ABA52DF78608B6806E890EEFD4F07943F
 ```bash
 magnet:?xt=urn:btih:79D5B6D5D643BC7C24A30ECAEBCBAD501FF73338
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:79D5B6D5D643BC7C24A30ECAEBCBAD501FF73338
 magnet:?xt=urn:btih:011C9C36147582C9374976915C825BC05131956A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:011C9C36147582C9374976915C825BC05131956A
 magnet:?xt=urn:btih:381B5E88C5611769F3619E686D0AFC94E2A4B94B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ KMSAuto Helper 1.1.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:033A4ED64BF1C8BA68CC2BB82BAD3E7CE2230A5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:033A4ED64BF1C8BA68CC2BB82BAD3E7CE2230A5D
 magnet:?xt=urn:btih:99241B010C19A521E4E4C68A82A4E7793E9150A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ RadioBOSS - это программа для автоматизации эфир
 magnet:?xt=urn:btih:555B56F31E4A86F01BA65A7D298208EA4257380E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Action Promo - создайте экстремальный, эффектный �
 ```bash
 magnet:?xt=urn:btih:74B4675CC6B59F997C6BE057A4F9DE6301D0D989
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ Affinity Photo — профессиональный фоторедактор д�
 magnet:?xt=urn:btih:42AC6E0B47B01FCBF725C017CD99D4BD4FD7A6F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:1AA39449AD9208AEC232E836BE0DEE5F1CB3F8C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:1AA39449AD9208AEC232E836BE0DEE5F1CB3F8C2
 magnet:?xt=urn:btih:86FBCFA457097BF11BABEA6A88CBBF909C330060
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:86FBCFA457097BF11BABEA6A88CBBF909C330060
 ```bash
 magnet:?xt=urn:btih:3BF7B29BD5DA477031B2195512871F9AB9DDF1FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

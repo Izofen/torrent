@@ -19,6 +19,8 @@ EARTHLOCK (2018) [Ru/Multi] (1.0.6) License CODEX
 magnet:?xt=urn:btih:5F920B08CF39552D91DCC561E6F7323C6EFD6FEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Torchlight 2/II (2012) [Ru/Multi] (1.25.5.2) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:7EF2C09AA557705F37772D86F69BD59EABD3EB77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Game of Thrones / Игра престолов (2012) [Ru/En] (1.5.0.0/3dlc) Repa
 magnet:?xt=urn:btih:4449BF4A3EC00F186A943A8DA05A05390ABF2A2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Operencia: The Stolen Sun – РПГ от первого лица с пошаг�
 ```bash
 magnet:?xt=urn:btih:5A81E75D94F570453DB552D0B5D5DE7FF1422012
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Ys Origin [En] (L) 2012 | Reloaded
 magnet:?xt=urn:btih:6C13E4F335A63362DBCCB5D45C019E3EFFB2B9BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ City of Brass (2018) [Ru/Multi] (1.5.1/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:1C4D5B47E808B5A40E76823CF3E6616276D9A9AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Moonlighter – игра в жанре action-RPG с элементами rogue-
 magnet:?xt=urn:btih:8A6F518E7D6D9A30E397E5CE274D551946C63BA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ The Witcher: Anthology / Ведьмак: Антология (2008-2015) [Ru/En/P
 ```bash
 magnet:?xt=urn:btih:971B0CDF0C2FA5F4FD0FA2254E68CB5EA2F6E323
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Moonlighter (2018) [Ru/Multi] (1.0) License PLAZA
 magnet:?xt=urn:btih:7FF80AC28DE83E95A12D5C5AAD43A4D0D036A9DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Hyperdimension Neptunia Re;Birth1 (2015) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:68238F2969650D7F67B027C3E113F204E5489A94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Pillars of Eternity (2015) [Ru/Multi] (3.06.1254/dlc) SteamRip R.G. Игрома
 magnet:?xt=urn:btih:3294AFD87C7E6238D686CE9F321B04CA3B6CA5FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Smoke and Sacrifice — сюжетная RPG в открытом мире. Со�
 ```bash
 magnet:?xt=urn:btih:38067A3D9CA3BF34F92E10AC8A693FF442956309
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Expeditions: Viking (2017) [Ru/Multi] (1.0.5/dlc) SteamRip Let'sPlay
 magnet:?xt=urn:btih:A75E5383E311354DC2803EF8CAEC6E6634DEFB00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Survivalist (2015) [Ru/Multi] (57) SteamRIP ALiAS
 ```bash
 magnet:?xt=urn:btih:5D04E5DBF698C4493871352417D405A02CFD4848
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Two Worlds II / Два Мира 2 (2010) [Multi] (2.0/dlc) License CODEX
 magnet:?xt=urn:btih:3A726EDFFC704100AFAC619B19F5394585A30588
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Darkest Dungeon - это готическая ролевая игра с пош�
 ```bash
 magnet:?xt=urn:btih:80E2B47E500C9F9FEA4AB0B27FFAA8DF35C368A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Hand of Fate (2015) [Ru/Multi] (1.3.19/dlc) License GOG
 magnet:?xt=urn:btih:F442EEC83DDF978824CB9577FB4912E6830E67CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Victor Vran - это изометрический ролевой экшен с �
 ```bash
 magnet:?xt=urn:btih:615BD240CB8CB0D13469D4AF9C8DE27E2C8440C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Grim Dawn (2016) [Ru/En] (1.1.1.0/dlc) Repack R.G. Механики
 magnet:?xt=urn:btih:64738982D3B4AE817CAE65EFA8B83FFCFCE90713
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Final Fantasy VII Remake Intergrade (2021) [Ru/Multi] (1.001.202/dlc) Repack Dec
 ```bash
 magnet:?xt=urn:btih:E9EC5038DD9BB24698DAFA48F05A424068257F61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Operencia: The Stolen Sun – РПГ от первого лица с пошаг�
 magnet:?xt=urn:btih:0A3F334266B825CC190E08FA8A34A4CD8708857B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Celestian Tales: Old North (2015) [En] (1.1.2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:B36FCA7579A161766EF759C0866BE4223E7E4F11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Goliath - это Action/Adventure от третьего лица с элемен
 magnet:?xt=urn:btih:359AA7543180CA468304367C5DD41D9AA48F20D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Megadimension Neptunia VII (2016) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:F0200725FD1F1C4A5D80C866DDC5A9192B22DFAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ DARK SOULS™: REMASTERED …Затем появился огонь. Занов�
 magnet:?xt=urn:btih:1EB026DBB20622CADDF73A56534F4961ADEFBDDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ The Legend of Heroes: Trails in the Sky (2014) [En] (2019.03.24) License GOG
 ```bash
 magnet:?xt=urn:btih:5F910D38F433657616E35B0B32F330F308611363
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:9C021654A0D3FB2ED908FCBA123D13D47DC04F93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Voidness - Lidar Horror Survival Game - это леденящий душу �
 ```bash
 magnet:?xt=urn:btih:4F3D5E2012DCB38912E987AD9AD3887B4892D3CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Bathhouse Restored Edition – перед вами невероятный я
 magnet:?xt=urn:btih:CD8B1412771FBFF03BB12E0B21B74600E447E6B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:CD8B1412771FBFF03BB12E0B21B74600E447E6B6
 ```bash
 magnet:?xt=urn:btih:CCABCA4813DBED752D38732E9C5D1D8EFE1D69A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ MMCodingWriter 2.1 [Ru/En]
 magnet:?xt=urn:btih:D433C1F39706420D4C06EBAFFEA98888BB00DA67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:D433C1F39706420D4C06EBAFFEA98888BB00DA67
 magnet:?xt=urn:btih:C9427EFD760E443EA32672DC000EF91A79670648
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Tokyo Coffee: Grinding in the Pandemic (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E43D8F4F93855CCD7647F4E4E4CDE367CACAFCDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Blender - бесплатный редактор трехмерной графи�
 magnet:?xt=urn:btih:7C141FD7BAD3D663D9436E864D902521DEDB09EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ TikTok - социальное приложение для тех кто пред
 ```bash
 magnet:?xt=urn:btih:E7D3E35595A5642043807874C6F7AAA2A5B86E82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ The Crush House бросает вас в жестокий мир реалити-
 magnet:?xt=urn:btih:A436B67C454E2C7FFBDCE69E2AB771C0D6617729
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Hero's Adventure - это ролевая адвенчура с открытым 
 ```bash
 magnet:?xt=urn:btih:A41E649912B237D5E6A2002A6D0242D57F504D1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Among the Sleep - удостоенная множеству наград игр�
 magnet:?xt=urn:btih:091AB4FC075DB3E45491FA3F749E1DF2407F2623
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:091AB4FC075DB3E45491FA3F749E1DF2407F2623
 ```bash
 magnet:?xt=urn:btih:71303597ABE67096DEABB7FFEA4D37511447B9FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:71303597ABE67096DEABB7FFEA4D37511447B9FF
 magnet:?xt=urn:btih:2D38B5F7566080079EAB5378C38C36F89811C113
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:2D38B5F7566080079EAB5378C38C36F89811C113
 ```bash
 magnet:?xt=urn:btih:E6EAA2AB792FAB299A4A4513FEA6B237AEB7FB1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:E6EAA2AB792FAB299A4A4513FEA6B237AEB7FB1A
 magnet:?xt=urn:btih:112FF90AC0AF508322C772FC728F86BADAD65CBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:112FF90AC0AF508322C772FC728F86BADAD65CBC
 magnet:?xt=urn:btih:0D561D05AAB89F46EAB42A7A2ACAB8298E9EE796
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:0D561D05AAB89F46EAB42A7A2ACAB8298E9EE796
 ```bash
 magnet:?xt=urn:btih:3E12DD83BBC636DA7AC0656AAC70266676060DDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:3E12DD83BBC636DA7AC0656AAC70266676060DDC
 magnet:?xt=urn:btih:1FA12CE2C812C5251739FA8BBF01E7D94F2B696C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:1FA12CE2C812C5251739FA8BBF01E7D94F2B696C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:1FA12CE2C812C5251739FA8BBF01E7D94F2B696C
 magnet:?xt=urn:btih:F8CAA8BDA40FC307E351681E5BFD034A2B69650C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Batman: Arkham Origins (2013) [Ru/Multi] (1.0/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:2B650319D9EA89208988DA7C1F4BCF5C23A40ABF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:2B650319D9EA89208988DA7C1F4BCF5C23A40ABF
 magnet:?xt=urn:btih:F7FAD71BD65E635531CD5D36798F1C1403033557
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:CA5F09B05B6B31937BDC01A88D0D356B0647205F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:CA5F09B05B6B31937BDC01A88D0D356B0647205F
 ```bash
 magnet:?xt=urn:btih:24EB5039B75E4EC13AC953E16080949FBD2F7D4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:24EB5039B75E4EC13AC953E16080949FBD2F7D4D
 ```bash
 magnet:?xt=urn:btih:19DEA91CCC9123C880603C07181648768B5BA558
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

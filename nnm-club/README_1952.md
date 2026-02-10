@@ -19,6 +19,8 @@ Good Company — это симулятор менеджера в жанре «т
 magnet:?xt=urn:btih:DFE80D5428BB5766CA3D554E4D24C16F6D605195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ KUNAI - динамичная смесь экшн-платформера и ме�
 ```bash
 magnet:?xt=urn:btih:EC780C2BA7F4555230E100F3062778B53EE1760A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Winkeltje - игра о строительстве, украшении и упр
 magnet:?xt=urn:btih:3A0DAD4B90CBDA6C5183B1E1BBAB9C8AF6731E80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:3A0DAD4B90CBDA6C5183B1E1BBAB9C8AF6731E80
 ```bash
 magnet:?xt=urn:btih:4A498508C4F7985C0246D0F398FEE972ADCA1A0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:4A498508C4F7985C0246D0F398FEE972ADCA1A0A
 magnet:?xt=urn:btih:5E10EE81026F052D17A1733C3ACFF0CB1CE00C82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ IXION (2022) [Ru/Multi] (1.0.7.0) License GOG
 ```bash
 magnet:?xt=urn:btih:1E994F2F057EB03B703686F04E3FFE0695FAAD98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Stray Gods: The Roleplaying Musical (2023) [Multi] (8863.1/dlc) License GOG
 magnet:?xt=urn:btih:BCA8D94878C8CADBF47EF19DF8CB97031043B62C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:BCA8D94878C8CADBF47EF19DF8CB97031043B62C
 ```bash
 magnet:?xt=urn:btih:F85B748D242BDCAE132047B7EDD69A9CB90BC169
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:F85B748D242BDCAE132047B7EDD69A9CB90BC169
 magnet:?xt=urn:btih:5FAE038EC606737C4CCF39F4964B708D3EC31FF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:5FAE038EC606737C4CCF39F4964B708D3EC31FF8
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:5FAE038EC606737C4CCF39F4964B708D3EC31FF8
 magnet:?xt=urn:btih:12F4B14DCDDA0D442896E7CFBF5B2A421648A5E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Kimitachi wa Dou Ikiru ka | The Boy and the Heron | Мальчик и птица
 ```bash
 magnet:?xt=urn:btih:6073293135B922995383E5C28D7AC09023C6C561
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:6073293135B922995383E5C28D7AC09023C6C561
 magnet:?xt=urn:btih:1A270D03F5389E5070A65EC98B55650D2A93F860
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:1A270D03F5389E5070A65EC98B55650D2A93F860
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:1A270D03F5389E5070A65EC98B55650D2A93F860
 magnet:?xt=urn:btih:DEE4639EE7026CC10C043EA57ABD7BB411694F07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Comodo Dragon - быстрый универсальный браузер на б
 ```bash
 magnet:?xt=urn:btih:27442D08CFD647B3D8C4FC4722E499E13CBEADC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ VA - Bossa nova Lounge (2024) 2CD [MP3|320 Kbps] <Bosa Nova, Chillout, Electroni
 magnet:?xt=urn:btih:4265B1B86B56A1ED8FD4B6767E49605B3ACBFB12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Bandicam позволяет записать определенную облас
 magnet:?xt=urn:btih:1A90049BFF6FB52BF65E25945BDA80584EE16244
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:1A90049BFF6FB52BF65E25945BDA80584EE16244
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:1A90049BFF6FB52BF65E25945BDA80584EE16244
 magnet:?xt=urn:btih:FF8C5FD194EA79856452C08B81E80A129F01FEA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Crocodile Technology 3D объединяет в себе электронный 
 ```bash
 magnet:?xt=urn:btih:84B9844A3A442676A980A023687D1F7B5654D4F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ VA - compilation part 93 Eurodisco (2024) [MP3|320 Kbps] <Dance, Eurodisco>
 magnet:?xt=urn:btih:C8ABC6CB8E6717A30112819C17E725F1EFF5C281
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:C8ABC6CB8E6717A30112819C17E725F1EFF5C281
 ```bash
 magnet:?xt=urn:btih:705F2896A51DC8C90193A2AA07F3949BC12C4582
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ AOMEI Backupper – программа для создания резервно�
 magnet:?xt=urn:btih:EFC303FA7B52BB2739EED2914EA283BA4F3EA08F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:EFC303FA7B52BB2739EED2914EA283BA4F3EA08F
 magnet:?xt=urn:btih:D4F0908F6C6A8F9BE3B2757E18589595AA8B8386
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 ```bash
 magnet:?xt=urn:btih:EA7FDABA856B93C5D90C4587E8D12013F3049C5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

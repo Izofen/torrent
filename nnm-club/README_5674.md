@@ -19,6 +19,8 @@ Mirror for Android TV 2.8 [En]
 magnet:?xt=urn:btih:A4AD5E9B5D08963E83623041E86161145D309B4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:A4AD5E9B5D08963E83623041E86161145D309B4A
 magnet:?xt=urn:btih:823B19D2F96920808563717B03BB3C50934D91A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Icecream Screen Recorder - программа, позволяющая вести
 ```bash
 magnet:?xt=urn:btih:8996BBB0D30F314C8A1318B3DBC733B455C55D5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ CD-02 - MEDUZAЖанр: Electronic, Dance, EDM, HouseПродолжительн�
 ```bash
 magnet:?xt=urn:btih:D979D041939552D4B7BF05ADA9582EAA061ED578
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ The Who - Who’s Next (1971) Steven Wilson remix, 2023, UMC [FLAC 24/96|Lossles
 magnet:?xt=urn:btih:E46A71DF904B1B41813B31AF1CEF6D758105F421
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Ringo Starr - Rewind Forward (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 magnet:?xt=urn:btih:7861AA5DAD8CFBB12288F534F0D80EF37149B8CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Ashampoo Photo Optimizer 9 представляет собой программ�
 magnet:?xt=urn:btih:539F950533430519FAB966D7561DA9E9EA69D1E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ PDFelement Pro - профессиональный инструмент, кото
 ```bash
 magnet:?xt=urn:btih:8E57533E3B6F2F3243C6EF5551FC22F5F72FC4A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Gory Blister - Reborn From Hatred (2023) [FLAC|Lossless|WEB-DL|tracks] <Technica
 magnet:?xt=urn:btih:FA84E605F5385DF47C345825FE30E97BD30BE4EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:FA84E605F5385DF47C345825FE30E97BD30BE4EC
 magnet:?xt=urn:btih:1972E135250D76378D34B154F1F3247A5606C81F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:1972E135250D76378D34B154F1F3247A5606C81F
 ```bash
 magnet:?xt=urn:btih:1DE72BDC41CEC949B54CCD5DE4F009E60458D8E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ Cosmic Gate - Live @ Rock Bar Bali Sunset Set, Indonesia (2023-10-06) [MP3|320 K
 magnet:?xt=urn:btih:F809158F540F3C7EB93EF5E3A0A3BA22C81B6FEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ VA - Figura Autumn 2023 [MP3|320 Kbps] <Melodic House,Tech House>
 magnet:?xt=urn:btih:D79A462ABCB8AF70BA034D3DE787433BDF9E9052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:D79A462ABCB8AF70BA034D3DE787433BDF9E9052
 ```bash
 magnet:?xt=urn:btih:7316427E0CEF55BE9380CEFD5BE3F28999612A5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ magnet:?xt=urn:btih:7316427E0CEF55BE9380CEFD5BE3F28999612A5F
 magnet:?xt=urn:btih:568F962DF07124799F6377A59CF2442312ADB474
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:568F962DF07124799F6377A59CF2442312ADB474
 ```bash
 magnet:?xt=urn:btih:59935E6BFDD7345A8B5D49A2346D7B3B2894C526
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ magnet:?xt=urn:btih:59935E6BFDD7345A8B5D49A2346D7B3B2894C526
 magnet:?xt=urn:btih:7E54F488F1EB27923A4F4D382D7CAB06DDF85756
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ Megadeth - Unplugged In Boston (2006) (Reissued-2021) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:4059F58D023C8C3B65EE5D00472E875AD509BD09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +518,8 @@ Mitchell's Kiss Of The Gypsy - Unfinished Business (2022) [FLAC|Lossless|image +
 magnet:?xt=urn:btih:1D02804951B3410944D1DA885187E2BC5CACECDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ Rian - Wings (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard 
 ```bash
 magnet:?xt=urn:btih:1E0F8C4C0263991D3953D34B6B587BD4AD1D0551
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +576,8 @@ Oni - The Silver Line (2023) [MP3|320 Kbps] <Progressive Metalcore, Djent>
 magnet:?xt=urn:btih:FA5A382A4D67DCD92C820E582631A50B2617E094
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +604,8 @@ Bullet - шведская хэви-метал группа, основанная
 ```bash
 magnet:?xt=urn:btih:C661170641C51765D8D63B43D70D698525AF3E1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +634,8 @@ The Lion's Daughter - Bath House (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 magnet:?xt=urn:btih:F8A0EC3C888BD8E70D1616C4D70FE595D8058D07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +662,8 @@ magnet:?xt=urn:btih:F8A0EC3C888BD8E70D1616C4D70FE595D8058D07
 magnet:?xt=urn:btih:F8F638F920507E4A42280164B1B001BDBCA634B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +689,8 @@ Scrivener сочетает в себе возможности текстовог
 magnet:?xt=urn:btih:E2E4949FDA037D770A98A61D2CE1B49A9834EA80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +714,8 @@ magnet:?xt=urn:btih:E2E4949FDA037D770A98A61D2CE1B49A9834EA80
 ```bash
 magnet:?xt=urn:btih:8F498930E8299C0AEAC915C3D62E5073A8AF749E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

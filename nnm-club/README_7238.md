@@ -19,6 +19,8 @@ Fairy Godmother Stories 3: Little Red Riding Hood / Сказки Феи-Крёс
 magnet:?xt=urn:btih:22CCECCDB3572D45C6870BFA2764623BE24A4C25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:22CCECCDB3572D45C6870BFA2764623BE24A4C25
 magnet:?xt=urn:btih:F32E4C2A32E5E621830EF2016F1F233FD0B61675
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:F32E4C2A32E5E621830EF2016F1F233FD0B61675
 ```bash
 magnet:?xt=urn:btih:F37FE18513A13AE08E5E96766D454BEE48F2352F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:F37FE18513A13AE08E5E96766D454BEE48F2352F
 magnet:?xt=urn:btih:78C20FCE0B02234D157723122B98F066F49EDE4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ iNet показывает устройства, подключенные к ва
 ```bash
 magnet:?xt=urn:btih:B391176C1E6607EABED0C981D904FF97FFC09A74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ CD1:
 magnet:?xt=urn:btih:86B41FF2D3FB92B4FAF039A145D57B1462DEA041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ Sting - 26 Albums, 1 Box Set, 1 EP (1985 - 2021) 44 CD [FLAC|Lossless|image + .c
 magnet:?xt=urn:btih:B09693B501A63B3E1DB68889F123FF773288D2FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:B09693B501A63B3E1DB68889F123FF773288D2FE
 ```bash
 magnet:?xt=urn:btih:B3F55A2595B1F458C76979DA632762EC3F2184A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:B3F55A2595B1F458C76979DA632762EC3F2184A1
 magnet:?xt=urn:btih:BC8A933EC202BD3E5348EB4273C2D45E6F2E02A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ Various - Pure... 80s (2012) 4 CD [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:33982F406A02C00A2D59053EC86ACAE93C93E73B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +305,8 @@ The Cross (Roger Taylor) - 3 CD (1988 - 1991) [FLAC|Lossless]<Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +330,8 @@ Arturia - 6x3 FX Collection 2020.10 VST, VST3, AAX (x64) RePack by VR [En]
 ```bash
 magnet:?xt=urn:btih:8EB6B7A7B45D6E80CA65632EF61869C6FB65E063
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +360,8 @@ Pamala Stanley - 2 Albums (1979, 1990) [MP3|320 Kbps] <Electronic, Disco, Hi NRG
 magnet:?xt=urn:btih:7FF58EAD80061CB4A494F66A16D949C3F1D672DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +389,8 @@ Strident - Paranoia of the Tyrant (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 magnet:?xt=urn:btih:6C3E8BE24D4570876D48396F23C6C93E1D3C8C1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +414,8 @@ MediaHuman YouTube Downloader 3.9.9.76 (2410) RePack (& Portable) by 9649 [Multi
 ```bash
 magnet:?xt=urn:btih:DA3D691CA0C26B2470A7A28D2F879E15281BD08B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +443,8 @@ Udemy, Elchin Jamalov | VMware vSphere 6 - полный видеокурс (2021
 ```bash
 magnet:?xt=urn:btih:11AEDFC424F206EADA15DFEBBD22CAD8796A089A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +479,8 @@ Young Jeezy - Its Tha World (2012) [MP3|320 кб/с]<Dirty South, Southern Rap>
 magnet:?xt=urn:btih:49FC340744525D029E5D1353FC7388397BCE60DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +508,8 @@ VA - The Greatest Xmas Song (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <J
 magnet:?xt=urn:btih:BBDC08F3D2D1FFCCF8524B88DB8CA92F3C13024D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +533,8 @@ magnet:?xt=urn:btih:BBDC08F3D2D1FFCCF8524B88DB8CA92F3C13024D
 ```bash
 magnet:?xt=urn:btih:207761D2F6F3AFCE16BA3F17E66A56BEA58AE31E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +563,8 @@ magnet:?xt=urn:btih:207761D2F6F3AFCE16BA3F17E66A56BEA58AE31E
 magnet:?xt=urn:btih:4625854501E5E596FD35A2A5CAF66496EAA22668
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +592,8 @@ magnet:?xt=urn:btih:4625854501E5E596FD35A2A5CAF66496EAA22668
 magnet:?xt=urn:btih:0D702C8EBD456133609E07403D91EF75FD9DBC6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +618,8 @@ magnet:?xt=urn:btih:0D702C8EBD456133609E07403D91EF75FD9DBC6C
 magnet:?xt=urn:btih:D04E416D1ECF05EB4B418B63AD8B581D2F9B7FA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +643,8 @@ magnet:?xt=urn:btih:D04E416D1ECF05EB4B418B63AD8B581D2F9B7FA0
 ```bash
 magnet:?xt=urn:btih:CD63F2878AA6F69AD3D0EE22D26B2DB76C324E37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +671,8 @@ Baking Soda более проста, чем Vinegar 2.3.9Тип издания: 
 magnet:?xt=urn:btih:935D0C748EEFF663D24C46CF21002097AB2FD353
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +696,8 @@ magnet:?xt=urn:btih:935D0C748EEFF663D24C46CF21002097AB2FD353
 ```bash
 magnet:?xt=urn:btih:59A8E9679D09AC3C94E81A802D02E2714A6F5FDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +723,8 @@ magnet:?xt=urn:btih:59A8E9679D09AC3C94E81A802D02E2714A6F5FDA
 ```bash
 magnet:?xt=urn:btih:544F388C1534CB3F59C9F385E915DEE711C4AAF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

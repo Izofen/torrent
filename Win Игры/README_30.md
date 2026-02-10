@@ -19,6 +19,8 @@ Deck of Haunts (2025) [Ru/Multi] (1.16) Scene Tenoke
 magnet:?xt=urn:btih:0E1C2632262A74486589245B46CAAF5E6703D76D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ LEILA (2025) [Ru/Multi] (20250803 Build 19462323) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:865F1E4E8744244CFD26344891D316197E3EA15B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Satisfactory - это игра от первого лица в открытом 
 magnet:?xt=urn:btih:93C2BE4EA5F506747AC451A3654B7C4CF46477F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ RIPOUT - это хоррор-шутер с режимом совместной �
 ```bash
 magnet:?xt=urn:btih:B50C1D26E92A1A54B48BFB716F1399638B60FBAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Castle Crashers (2012) [Ru/Multi] (3.0/dlc) Repack Let'sРlay [Complete Bundle]
 magnet:?xt=urn:btih:9043A90D91D4ABB1A4810BFE2D2F347D3E0885B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:9043A90D91D4ABB1A4810BFE2D2F347D3E0885B0
 ```bash
 magnet:?xt=urn:btih:71AD579366B650D83D38A96BEA991B48161025C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Luto - это психологический хоррор от первого л
 magnet:?xt=urn:btih:415509969717423EB684F6BEC55524FC9C833B67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Bee Simulator: The Hive (2025) [Ru/Multi] (build 19461565/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5F4214C0895396C6926D28440C27E47C5CF65B93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Invincible (2023) [Ru/Multi] (Build:45.002 CL_57352) Repack Let'sРlay [Delu
 magnet:?xt=urn:btih:EB2BEC3D81B6AAEC65DF0F7E38CA9AD84ABB7A0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Future War Tactics: SOF vs Alien Invasion – Turn-Based Strategy (2025) [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:388E6CB9CEFF31557DF4BB74B70D4C9A8194DD76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ House Flipper 2 (2023) [Ru/Multi] (1.9.1.1) Repack dixen18
 magnet:?xt=urn:btih:B6C0BB7340ECECE86DD2D39ABAE6DC4CD1AADE8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Blood West (2023) [Ru/Multi] (4.5.0/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:06DC9010E07C46C92C0F8CDD74F927203A3FCE50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ RIPOUT — это хоррор-шутер с режимом совместной
 magnet:?xt=urn:btih:42B82CC86A5C1A75B46A3FE5966A98A33560486C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Necrophosis - это хоррор-приключение от первого л�
 ```bash
 magnet:?xt=urn:btih:C1539A23A3C5D5422056DE7993F3495674F0C65C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Headquarters: World War II - это динамическая пошаговая 
 magnet:?xt=urn:btih:74C11DEF80EA9438CAD6439827E0318AB3B05918
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Tall Trails дает под контроль Альпа, маленького г
 ```bash
 magnet:?xt=urn:btih:80CDBE9966346625B5C2AF22E8AAADE8D334958C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Mars Base (2022) [Multi] (1.107) License GOG
 magnet:?xt=urn:btih:AF6A8FFCF036291F133B2ACCE3BF3CCED9CFBECF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Soulstone Survivors - это динамичный экшен-рогалик, г�
 ```bash
 magnet:?xt=urn:btih:4A258883120773D78ABC0B4A3B84F9956C527C4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ dotAGE - игра, где вы будете пошагово управлять 
 magnet:?xt=urn:btih:B6BA08FA91C972DC99EC2DB41E63A9CC2606D55B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ God Of Weapons (2023) [Ru/Multi] (1.5.65/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:E1507B172577C4F554636B3B59AA147BCD2FCB60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Lucy Dreaming (2022) [Multi] (2.0) License GOG
 magnet:?xt=urn:btih:5FED4406030F10567B1B875071233397821AB7F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (2.04.132116) Repack Let'sРlay [Sou
 ```bash
 magnet:?xt=urn:btih:1C60512D5A4C3654601D7ACD103B991799E8D43A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Steel Seed - захватывающая приключенческая экше�
 magnet:?xt=urn:btih:2DA9B14515F04261149BD83664C0B9E4CF59817A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Pilgrims / Пилигримы (2019) [Ru/Multi] (1.1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:BD1373310E5F00490ADFAB045A81805CE67F6624
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Ikarus Parkour (2025) [Ru/Multi] (2.7) Repack FitGirl
 magnet:?xt=urn:btih:F1BD54DB109007DADABAB4F1BFB6AE21901095DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Captain Bones - это приключенческий боевик действ�
 ```bash
 magnet:?xt=urn:btih:2F760A31A1F85F5A5DC9F7FA58FE427AAF8FBDEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

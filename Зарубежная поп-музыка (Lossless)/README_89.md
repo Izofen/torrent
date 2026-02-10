@@ -28,6 +28,8 @@ Loredana Berte - Sei Bellissima 2CD (2004) [FLAC|Lossless]<Pop>
 magnet:?xt=urn:btih:CF4FF0209F49ADB798EC2AC3C4DC3A2380AE16E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -61,6 +63,8 @@ Raffaella Carra - Raffica Carra (2007) 2CD [APE|Lossless]<Pop>
 magnet:?xt=urn:btih:FFE069E0FC1A2E6E0317E8179A55885D2F0ABD2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +97,8 @@ Toto Cutugno - Insieme (2004) 2CD [FLAC|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:AA9B465F9E7A9A069EEA153B9B854B17E6C94CB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +135,8 @@ Engelbert Humperdinck - Greatest Hits And More (2CD) (2007) [APE|Lossless]<Pop R
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +170,8 @@ Dum Dum Girls - Too True (2014) [FLAC|Lossless]<Indie-Pop>
 magnet:?xt=urn:btih:04A19D62E53DE3701163839F8337C2A1E2719086
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +198,8 @@ Ria Mae - Ria Mae (2016) [FLAC|Lossless|tracks + .cue] <Alternative Pop, Alterna
 ```bash
 magnet:?xt=urn:btih:AEE10FBC34F61F31315E79D11C3B6A3653B84C7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +234,8 @@ Falco - Golden Hits (1995) [FLAC|Lossless]<Pop-rock>
 magnet:?xt=urn:btih:A69E9876A386DB4FE628A9993FF2CA3EFD38EDF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +269,8 @@ Tom Jones - The Best Of... (1997) [APE|Lossless]<Pop>
 magnet:?xt=urn:btih:1E55A50C09E876F47E2AA0B094F810C48D5EC9A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +297,8 @@ Krzysztof Krawczyk - Największe Przeboje (Najwieksze Przeboje) (1993) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:71FC2292FB0712533D70B0F3FF49BE3A3B7BEF84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +327,8 @@ VA - 00s Workout (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 magnet:?xt=urn:btih:B04DF781626C8596ABF4401315B8B7A6D6F9CD69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +355,8 @@ Asgeir (Ásgeir) - Bury The Moon (Sátt) (2020) [FLAC|Lossless|tracks + .cue] <I
 ```bash
 magnet:?xt=urn:btih:EAB22B9DBACF7374AD474C1E05E227AF30080CE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +385,8 @@ ABC - Skyscraping (1997) [FLAC|Lossless|tracks + .cue] <Pop, Rock, New Romantic>
 magnet:?xt=urn:btih:6D7B97977F64010B4DFA32925E1BE4BFB769D304
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +413,8 @@ Tindersticks - The Waiting Room (2016) [FLAC|Lossless|tracks + .cue] <Chamber Po
 ```bash
 magnet:?xt=urn:btih:7B479C9923418CFB0C9CC4751ACCE7FD2EBEF668
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +443,8 @@ Demis Roussos - Demis (2009) [FLAC|Lossless|image + .cue] <Pop>
 magnet:?xt=urn:btih:00C7402FB26BC49156D2ACB2A43255B913E2ABBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +471,8 @@ Kwabs - Walk (2014) EP [FLAC|Lossless|WEB-DL] <Alternative, Electronic>
 ```bash
 magnet:?xt=urn:btih:9526A0F93447A31CFC7D7BAF200FF1F8729DF91D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +501,8 @@ Kevin Krauter - Full Hand (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 magnet:?xt=urn:btih:99E1DADB268ED7E125B0B18F3DC61C6F011FBF2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +529,8 @@ Kevin Krauter - Toss Up (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:A8B4D7E065438D94835A365145556FCDB4EBBA0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +559,8 @@ Nina Nesbitt - Modern Love (2016) EP [FLAC|Lossless|tracks] <Pop, Indie Pop, Fem
 magnet:?xt=urn:btih:1A3EC11C20045F3F165EA793CBDCD41CC35805E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +587,8 @@ Monica Naranjo - Lubna (2016) [FLAC|Lossless|tracks + .cue] <Latin,  Rock, Class
 ```bash
 magnet:?xt=urn:btih:FAA385A7EAD105C25164A31FFC6A4046ABE5D141
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +617,8 @@ Chilly - For Your Love(1978)-Come To L.A(1979)-Secret Lies(1982) [FLAC+Cue|940 k
 magnet:?xt=urn:btih:518B8467F9DEB7EE9AD5F832F96225986A162BDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +645,8 @@ Suzanne Vega - Retrospective: The Best Of Suzanne Vega (2003) [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:5B90DF1F2C3F1162E88EBC306ED04C4514B1DF48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +675,8 @@ VA - It Had To Be You • The Ultimate Love Songs (2014) 3CD [FLAC|Lossless|trac
 magnet:?xt=urn:btih:08D0908087D68FDC080EAFDB9A12133EBB0453CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +703,8 @@ VA - Women Of 80s Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:8583585809BCE72134A4CCAE087E961A5DD57F13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -688,6 +734,8 @@ VA - Pure... Drive (2011) Box Set, 4 CD [FLAC|Lossless]<Pop, Dance, Rock, Other>
 magnet:?xt=urn:btih:5EA0F0A39D73CB6B405B03C9F2F52999F5773F5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -715,6 +763,8 @@ VA - Ultimate Love • 4CDs Of Great Love Songs (2015) Box Set, 4CD [FLAC|Lossle
 magnet:?xt=urn:btih:FCDEE974BB612930E8486F829ACD0520D95C2FA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -741,6 +791,8 @@ Al Bano & Romina Power - Raccogli l'attimo (2020) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:F338B5D94AD10D5806543AF7C05632915955BC5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

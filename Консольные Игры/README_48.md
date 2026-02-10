@@ -19,6 +19,8 @@ Ice Age 4: Continental Drift - Arctic Games / Ледниковый период 
 magnet:?xt=urn:btih:53D8E3D0B84FCD27A43EEDA02BEE038B75FDFE39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Ratatouille / Рататуй (2007) [PS3] [EUR] 1.80 [Cobra ODE / E3 ODE PRO ISO
 ```bash
 magnet:?xt=urn:btih:8E01A28C0F3E441B3D179396E9023265F0C51948
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ M&M's Adventure [Wii] [English] [NTSC-U] (2008)
 magnet:?xt=urn:btih:0171239C0DE89176FEE6839045D1B789FDAC507F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Mortal Kombat vs DC Universe [USA] [En] [2.50] [Cobra ODE / E3 ODE PRO ISO] (200
 ```bash
 magnet:?xt=urn:btih:CA7413E312D499DE1D23668A3B9AF975137D53CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ DARK SOULS II: Scholar of the First Sin (2015) [PS3] [EUR] 4.65 [Cobra ODE / E3 
 magnet:?xt=urn:btih:794031ED1ED3EF1FFDD3D1FD98240458882AAB4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Amazing Spider-Man / Новый Человек-Паук (2012) [PS3] [EUR] 4
 ```bash
 magnet:?xt=urn:btih:363F42DD1F4B1295985F929A2E855359B2D8679A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Tales of Graces f / Сказания Милосердия б (Undub) (2012) [PS3
 magnet:?xt=urn:btih:D4299A33E751BDA36537C53A5B69028B7C1D2FD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Tales of Graces f / Сказания Милосердия б (2012) [PS3] [EUR] 
 ```bash
 magnet:?xt=urn:btih:2BF546B46ECCF39AD1736C6DFCFF742F8BB69E98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ RAGE (2011) [PS3] [EUR] 3.70 [Cobra ODE / E3 ODE PRO ISO] [License / 3 DLC] [Ru]
 magnet:?xt=urn:btih:59B6CE23C00462CEC6FD88690079137586FAB7E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Bully: Scholarship Edition (2008) [Xbox360] [Region Free] FreeBoot [Unofficial] 
 ```bash
 magnet:?xt=urn:btih:11DC0896EE095E628F45F2FAEB424F57C02BB124
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Soulcalibur: Broken Destiny – это продолжение культовог
 magnet:?xt=urn:btih:26BF045D59BB70B1C2F26E55D9D46154BC5CAA5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Costume Quest 2 (2014) [PS3] [USA] 3.40 [Cobra ODE / E3 ODE PRO ISO] [PSN] [En]
 ```bash
 magnet:?xt=urn:btih:8603CC9CF4A50895C1A047846958FAA9DF06A55F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Super Mario Party (2018) [Switch] [EUR] 6.0.0 [License] [Ru/Multi]
 magnet:?xt=urn:btih:673E2716AC46A4CA3B7D223883892F704741B816
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ F.E.A.R. 3 (2011) [PS3] [EUR] 3.60 [OFW] [DLC] [Repack] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3F0B2CD7FE8DDF60046C9A31BC1E209880926745
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Super Smash Bros. Brawl Project M (2015) [Wii] [USA] 4.3Е [Repack / 3.6+mf] [En
 magnet:?xt=urn:btih:690431D21976A987EA54AD31D23839DA5AD84BA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Need for Speed: Most Wanted U (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License]
 ```bash
 magnet:?xt=urn:btih:25EBD4A9C52D6D1DD589AF1770A8D3C0508C88EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ NES Remix (2013) [WiiU] [USA] 5.3.2 [Loadiine GX2] [eShop] [En]
 magnet:?xt=urn:btih:764E05B2C9351F8E08AC2DAA5EB1A6BFB59BB1DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Sonic Lost World (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Multi]
 ```bash
 magnet:?xt=urn:btih:90ACC5750D7BD915C26DBF22E05FC6B5359891D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ How to Survive (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [En]
 magnet:?xt=urn:btih:ED9B4C1E88880089B27F11A3F558A9EB4BB39B13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Just Dance 2019 (2018) [Wii] [EUR] [License] [Multi]
 ```bash
 magnet:?xt=urn:btih:F8E803343F5966B80A5B28FD63E14B650A0D3600
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ Pullblox World / Pushmo World (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [
 magnet:?xt=urn:btih:1763B8E399AA3209E46160FBBF9C0A1D1FEB0FA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Call of Duty: Ghosts (2013) [WiiU] [USA] 5.3.2 [Loadiine GX2] [Repack] [Multi] |
 magnet:?xt=urn:btih:75DCA6C7DC6839B67A4A4282C4184DA73E29B162
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ RUNBOW (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack] [Multi]
 ```bash
 magnet:?xt=urn:btih:E80DFBE8B2A5F6901E23EB21A355BA371133905C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ Armillo (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [Multi]
 magnet:?xt=urn:btih:43240682C50EDC59854C67316F034B9ECED8D9DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ DeathSpank – ролевая игра, являющаяся пародией н
 magnet:?xt=urn:btih:C58A7BCF6F4CC725F54156760DFD99631C975F75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Deus Ex: Human Revolution - Director's Cut (2013) [WiiU] [EUR] 5.3.2 [Loadiine G
 ```bash
 magnet:?xt=urn:btih:DDA5EE0D784BA0349195772D0F0F3F4A275F6E98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -27,6 +27,8 @@ Despondency - Revelation IV (Rise Of The Nemesis) (2009) [FLAC|Lossless]<Slammin
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ Undertow - Два альбома (2006,2009) [FLAC (image+cue)|Lossless]<Thrash 
 magnet:?xt=urn:btih:6B11EBFCA677CBC50602C79EB54DB56E8C165E5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -83,6 +87,8 @@ magnet:?xt=urn:btih:6B11EBFCA677CBC50602C79EB54DB56E8C165E5F
 ```bash
 magnet:?xt=urn:btih:250DD11B40AE284C1C1086C7C3CFF27FC837FAFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +123,8 @@ Fastway - 14 альбомов (1983 — 2011) Дискография [MP3|192-32
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +158,8 @@ Crimes Of Passion - To Die For (2012) [MP3|320 kbps]<Heavy Metal / Power Metal>
 magnet:?xt=urn:btih:2CB4F72477D74D54418F85507770FFF5F8A85550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +184,8 @@ magnet:?xt=urn:btih:2CB4F72477D74D54418F85507770FFF5F8A85550
 ```bash
 magnet:?xt=urn:btih:93AE8437F10A3541B171C56428809ED65BA09CAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +213,8 @@ Sub Zero - Bi Polar EP (2012) [MP3|320 kbps]<Drum'n'Bass>
 ```bash
 magnet:?xt=urn:btih:BD69DD9AE06238EF36A5FB46A940BE5C69F9BFFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +249,8 @@ Saltillo - Monocyte (2012) [MP3|320 kbps]<Trip-Hop, Downtempo, Experimental>
 magnet:?xt=urn:btih:1F26F6BD0D20CF86871D7EA012E8E959FDACA0C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +275,8 @@ magnet:?xt=urn:btih:1F26F6BD0D20CF86871D7EA012E8E959FDACA0C2
 magnet:?xt=urn:btih:A4834C882E48E481E79E80222E48DB3FE63843A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +300,8 @@ WinMend System Doctor - усовершенствованный центр без
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +336,8 @@ VA - Le Salon de Sophie (Selected by RoseMary) (2011) [MP3|192-320 kbps]<Vocal J
 magnet:?xt=urn:btih:045A4B67B69734EAFDC8770B9B7163E4EDB262FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +362,8 @@ DVDFab Passkey 8.0.5.2 [Multi/Rus]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +397,8 @@ Opera IX - Maledictae In Aeternum (2012) [FLAC|Lossless]<Black Metal,Gothic Meta
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +435,8 @@ PH Electro - Stereo Mexico (2011) [MP3|320 kbps]<House>
 magnet:?xt=urn:btih:AF5D02629A3B05058AC00398E6FC9941879543CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +470,8 @@ magnet:?xt=urn:btih:AF5D02629A3B05058AC00398E6FC9941879543CA
 magnet:?xt=urn:btih:C461E129AB7B9F46BFC0303DEBD0115F5C0CB0DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +496,8 @@ magnet:?xt=urn:btih:C461E129AB7B9F46BFC0303DEBD0115F5C0CB0DA
 ```bash
 magnet:?xt=urn:btih:92CD61A1DE7BC5D6C2096B85E307322B06E28849
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +532,8 @@ Kingtone - Law of the Jungle (2011) [FLAC|Lossless]<Blues-Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +566,8 @@ Ascoil Sun - Emergence (2012) [MP3|192-320 kbps]<Psychedelic / Psybient, Dub, Do
 ```bash
 magnet:?xt=urn:btih:AFC0A5A6BDDB756074F5114C62366A801A6201EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +602,8 @@ VA - Colors of Sounds (2012) [MP3|320 kbps]<Psychedelic / Progressive>
 magnet:?xt=urn:btih:D84956709E6980D8305AA93F3594491B25557D48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +637,8 @@ Jimmy Witherspoon - The Very Best Of (2004) [FLAC|Lossless]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +670,8 @@ Cyklones - Paris By Night (2011) [MP3|320 kbps]<Psychedelic / Progressive>
 ```bash
 magnet:?xt=urn:btih:0B3DBD0F3867138FC5CAA05F5326F74695E55A97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +706,8 @@ MC L.E. - Illegal (2006) [FLAC|Lossless]<Rap>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +740,8 @@ VA - 538 Dance Smash 2012 Vol.1 (2012) [MP3|320 kbps]<Dance>
 ```bash
 magnet:?xt=urn:btih:654663B3A737A2B4BDC2D9249CE78A6E46139B9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -730,6 +776,8 @@ Ndidi Onukwulu - Move Together (2009) [FLAC|Lossless]<Vocal Jazz, Jazz-Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -763,6 +811,8 @@ Broken Mirrors - The Universal Disease (2012) [MP3|260-320 kbps]<Melodic Death M
 magnet:?xt=urn:btih:F41790036C370571AE865C80AFD0AE66629460D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -786,6 +836,8 @@ magnet:?xt=urn:btih:F41790036C370571AE865C80AFD0AE66629460D7
 ```bash
 magnet:?xt=urn:btih:4472FB0D8E07288C9819B6D23455C66A165D1BE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

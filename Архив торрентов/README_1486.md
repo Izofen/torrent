@@ -19,6 +19,8 @@ Duolingo: изучай языки 5.114.4 Mod by RBMods [Ru/Multi]
 magnet:?xt=urn:btih:521D50E0B4BBD2396D0E656B1CA2B76EC67224B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ OmniReader - полифункциональное приложение для ч
 ```bash
 magnet:?xt=urn:btih:0F1F7CD1CE40554FDF833AB471FD7A2861194215
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:0F1F7CD1CE40554FDF833AB471FD7A2861194215
 magnet:?xt=urn:btih:A053DF9495C0DEF37037CA382AB2454589249E61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Boxy SVG 4.6.1 [En]
 ```bash
 magnet:?xt=urn:btih:1EA3983F5E978C05C97B93C75354C97072779F99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Colibri поддерживает воспроизведение всех поп�
 ```bash
 magnet:?xt=urn:btih:E2129951B32E3066AAAA71D7F5133B36110559F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Simply Linux (Симпли Линукс) — бесплатная операци
 magnet:?xt=urn:btih:80D9E94937044047FC9FD87C288D9B7A6C90CC61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Speedtest - это приложение предназначено для опр
 ```bash
 magnet:?xt=urn:btih:430278818084F5E64FBB3392E17415FE39F920BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ NCH DreamPlan Plus 8.37 [En]
 magnet:?xt=urn:btih:DD527AFD78F0C77181BC3FA6AA519412AA15BB1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ FireAlpaca - это достаточно простой, но удобный г�
 ```bash
 magnet:?xt=urn:btih:AD96B9178C25C0C2B9BF5F317A139F6D3BCA06C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ YouTube5 был расширением Safari, когда Flash был еще в
 magnet:?xt=urn:btih:9C1FD701769179A7C6BBA506E5CADD89A83D8241
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ AmanVPN - качественное программное решение как 
 ```bash
 magnet:?xt=urn:btih:DA96D1E7EE24BC4A85EA6C793A129BB39DA62C17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ Wi-Fi Scanner — удобная программа, с помощью кото�
 magnet:?xt=urn:btih:B8F03250D2F10164DDAE9713456CA8D3C13BDC90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ GoodbyeDPI 0.2.2. Launcher 5.4 [Ru]
 magnet:?xt=urn:btih:3A71554F0F300DB379FC0202A97E4A97A8CF7CA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ Project Office X — это полнофункциональное прилож�
 ```bash
 magnet:?xt=urn:btih:482B4927CF3019320B9A611F8F355A25DF0389B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ Calcpad — бесплатное программное обеспечение �
 magnet:?xt=urn:btih:E902102A8F5E34AE5180C30D7DAE5DBAFA5C9919
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ CamScanner - Мощное приложение для сканирования. 
 ```bash
 magnet:?xt=urn:btih:3CF743BD723D817525682A1513251BC819A7744C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:43FA428EC32FD1F5D009D201084BD6F327F12EB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ Nitro Pro – программа, которая является альтерн
 ```bash
 magnet:?xt=urn:btih:B907405304DFA1005611EE0BD0E64F008D83C43B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:B907405304DFA1005611EE0BD0E64F008D83C43B
 magnet:?xt=urn:btih:1D8EC6FE1EF9B544ED14FBE190C106DA6EC71B3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ Speedtest - это приложение предназначено для опр
 ```bash
 magnet:?xt=urn:btih:A81D5B1FF1BD61486E965E9A03740B24CC85239B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:A81D5B1FF1BD61486E965E9A03740B24CC85239B
 magnet:?xt=urn:btih:23345A324CB5B43CC72BACDDF97D42C205EFBC6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:23345A324CB5B43CC72BACDDF97D42C205EFBC6E
 ```bash
 magnet:?xt=urn:btih:54D061BBB1101D9AA29762F19524E9D1232843BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ EssentialPIM - это отмеченное различными наградам
 magnet:?xt=urn:btih:4BD5E3B6785B9E40ED291DAC16325A7AB4EE904F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ Reverso Translation Dictionary / Переводной словарь Reverso - �
 ```bash
 magnet:?xt=urn:btih:B2668EE568C8FE65949C5EB3926E9FBAA0086E8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ magnet:?xt=urn:btih:B2668EE568C8FE65949C5EB3926E9FBAA0086E8F
 magnet:?xt=urn:btih:103C56DC008CC40473FA447158A7C80574D662F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ Spotify имеет громадный каталог музыки, поддер�
 ```bash
 magnet:?xt=urn:btih:50BC97FF8E708D9022344553EBE19A8E4DBCA0C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

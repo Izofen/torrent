@@ -1,3 +1,29 @@
+###  Публикация: 990061   (913174) от 24.02.2016
+
+Ольга Копылова | Давление. Советы и рекомендации ведущих врачей (2016) [FB2]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один знаменитый доктор как-то сказал: "Гипертонию лечат все, но никто ее лечить не умеет". Большинству пациентов врачи прописывают таблетки, понижающие давление, и на этом "лечение" заканчивается. Однако прогрессивно мыслящие врачи убеждены: одними таблетками вылечить гипертонию невозможно. Главные условия для снижения давления – правильное питание (   Читать дальше...   )Жанр: Популярная и нетрадиционная медицинаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF2F4DABF4E3EE56173533FC3C39A8FB49B1736F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989951   (913378) от 24.02.2016
 
 К. Секачева (редактор) | Люди под Дождем. Избранные беседы за 5 лет (2015) [FB2, PDF, DOCX]
@@ -21,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:F60B9B62A8855FE871486B0F3D48AC8EB8AC459E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:F60B9B62A8855FE871486B0F3D48AC8EB8AC459E
 magnet:?xt=urn:btih:F71F642681E1F34E033AC5D82C688CF25A7C5EAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:F71F642681E1F34E033AC5D82C688CF25A7C5EAF
 ```bash
 magnet:?xt=urn:btih:B22F8FF910E71BC7327E47E9EBA5F0A86F86E308
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:B22F8FF910E71BC7327E47E9EBA5F0A86F86E308
 magnet:?xt=urn:btih:6E6CD431F43BC0B8169B607B8A9354B7A305A5C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:6E6CD431F43BC0B8169B607B8A9354B7A305A5C6
 ```bash
 magnet:?xt=urn:btih:37C41E85A843DC5D9F934CFA88F33CA737336DE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:37C41E85A843DC5D9F934CFA88F33CA737336DE9
 magnet:?xt=urn:btih:6F2F8A26AB0B1B01876BCB5E21C3B3D4DC0828B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:6F2F8A26AB0B1B01876BCB5E21C3B3D4DC0828B8
 magnet:?xt=urn:btih:A6EB4896A9C95AC43AC353BB3A4550AC6A680BC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:A6EB4896A9C95AC43AC353BB3A4550AC6A680BC1
 ```bash
 magnet:?xt=urn:btih:FF972D5483D29095F3FE4AB4147FA945B03D5CBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:FF972D5483D29095F3FE4AB4147FA945B03D5CBF
 magnet:?xt=urn:btih:403EF8D7335684A06D84DA75131AFB5F640ABDE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:403EF8D7335684A06D84DA75131AFB5F640ABDE1
 ```bash
 magnet:?xt=urn:btih:6791F79E149739CE230B732684BEFDCC95662822
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:6791F79E149739CE230B732684BEFDCC95662822
 magnet:?xt=urn:btih:13E20F75AE18816BB8E48ED769178694CEA11FC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:13E20F75AE18816BB8E48ED769178694CEA11FC2
 ```bash
 magnet:?xt=urn:btih:B0F8290B7675FB6413FECBF4A501151C7E732B38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:B0F8290B7675FB6413FECBF4A501151C7E732B38
 magnet:?xt=urn:btih:F772089D589A3DBC88137B0E4F0645B65D2FCE0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:F772089D589A3DBC88137B0E4F0645B65D2FCE0B
 ```bash
 magnet:?xt=urn:btih:BB58D26CC07996B2DAF9CD40848150D3DA5E0802
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:BB58D26CC07996B2DAF9CD40848150D3DA5E0802
 magnet:?xt=urn:btih:C34EE0F7D92FBB24D98E03FBE7E650EF60FD8B2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:C34EE0F7D92FBB24D98E03FBE7E650EF60FD8B2A
 ```bash
 magnet:?xt=urn:btih:5BFB06E594C629789D236A6F10B14F0CD25371D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:5BFB06E594C629789D236A6F10B14F0CD25371D3
 magnet:?xt=urn:btih:F17AC2429C7A220327A97400C70A6C4CACDD5CE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:F17AC2429C7A220327A97400C70A6C4CACDD5CE6
 ```bash
 magnet:?xt=urn:btih:F0829E67EEF36F4EA53E2C410FD0C354EB5D1CBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:F0829E67EEF36F4EA53E2C410FD0C354EB5D1CBF
 magnet:?xt=urn:btih:CD0637F3721BF01632764D4525BB2918A484A01A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:CD0637F3721BF01632764D4525BB2918A484A01A
 ```bash
 magnet:?xt=urn:btih:9513865A544F6CFCD0B9DDDF6FC10BADB9E2B995
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:9513865A544F6CFCD0B9DDDF6FC10BADB9E2B995
 magnet:?xt=urn:btih:6890045DE59709650E963600048ECBBCEAFFE620
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:6890045DE59709650E963600048ECBBCEAFFE620
 ```bash
 magnet:?xt=urn:btih:7E4531C0AE3F5B4C89EBD6CB0DA7CA6C03403B6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:7E4531C0AE3F5B4C89EBD6CB0DA7CA6C03403B6E
 magnet:?xt=urn:btih:088B26D19187F186DADFA8F8C6137FF06F132F65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:088B26D19187F186DADFA8F8C6137FF06F132F65
 ```bash
 magnet:?xt=urn:btih:E8D90535C8CC05E85F2634F932BC8212292BE8FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,30 +676,7 @@ magnet:?xt=urn:btih:E8D90535C8CC05E85F2634F932BC8212292BE8FA
 magnet:?xt=urn:btih:EDFE33B575DFF0AC2269790C0AC6F3B0508B64A7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095269   (915694) от 26.01.2017
-
-К Исламу (ред.) | Основы имана (2017) [PDF, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга содержит необходимый минимум знаний основ исламского вероучения и разъяснение каждого из них.
-Рассчитана на широкий круг читателей, интересующихся мусульманским вероучением, в частности, рекомендуется в качестве учебного пособия для вечерних курсов основ Ислама в мечетях и медресе.Жанр: ИсламФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:721D798B7D1F632F3DAE7194CEA3A018E8D1A5FE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

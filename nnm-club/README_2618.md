@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:96154C74F3B3B13CB5808DF5972D23A5913FB24A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Mia Morgan - Silber (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Deutschrock>
 magnet:?xt=urn:btih:C9D297A26202E9982E3EFFCDE4A4385FB337D347
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:C9D297A26202E9982E3EFFCDE4A4385FB337D347
 ```bash
 magnet:?xt=urn:btih:1CF146EC8BC7D452B15F810917BF76CED53324E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:1CF146EC8BC7D452B15F810917BF76CED53324E5
 magnet:?xt=urn:btih:0EFA9C42D2D6B0248AB39896AE76DDA30A08792F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Tina Turner - Private Dancer (1984) 40th Anniversary Edition, 2025, Rhino [FLAC|
 magnet:?xt=urn:btih:28E2CF979C43C429DF2EFCEA16DFE06E28A2F461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:28E2CF979C43C429DF2EFCEA16DFE06E28A2F461
 ```bash
 magnet:?xt=urn:btih:ACE2DFCAABA35E5596F4E90891867D338F88B2F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:ACE2DFCAABA35E5596F4E90891867D338F88B2F6
 magnet:?xt=urn:btih:1499266CF78CFA0E594AA24E886C47AEEB41C4F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ Unit Converter Pro / Конвертер Единиц Pro v2.6.3 Mod by Balatan [
 magnet:?xt=urn:btih:2700D9D29609913745E1AC5DFAF13D4E1A4DF558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:2700D9D29609913745E1AC5DFAF13D4E1A4DF558
 ```bash
 magnet:?xt=urn:btih:00B51F3BA3172633966C35D7731425B955DC6C70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:00B51F3BA3172633966C35D7731425B955DC6C70
 magnet:?xt=urn:btih:55B562600F56C7EB20950284AD3839A84283057B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:55B562600F56C7EB20950284AD3839A84283057B
 ```bash
 magnet:?xt=urn:btih:AB7DCAA6ECADE205D4225689BD9BC8403C60D113
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:AB7DCAA6ECADE205D4225689BD9BC8403C60D113
 ```bash
 magnet:?xt=urn:btih:88D738FC5290E8F8AAD3ED7E12CB5F2693DA300E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ VA - Compilation Part 149 Electronic (2025) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:FE5815E07003B79FD063AE0EDDC0FAAB55531AFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:FE5815E07003B79FD063AE0EDDC0FAAB55531AFD
 ```bash
 magnet:?xt=urn:btih:1623912F47431A1C5CF24710E71A91D05E962DBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ Tina Turner - Private Dancer (1984) 40th Anniversary Edition, 2025, Rhino [MP3|3
 magnet:?xt=urn:btih:FADAE20D67E543C75A973092A96C2304524AA68B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:FADAE20D67E543C75A973092A96C2304524AA68B
 ```bash
 magnet:?xt=urn:btih:5DBFFAA2887C4C44A11118836DDC340C66122F9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ magnet:?xt=urn:btih:5DBFFAA2887C4C44A11118836DDC340C66122F9C
 magnet:?xt=urn:btih:9D1A8CCC21590490ABAF39D254326F2926E3680D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ Fallujah - Empyrean (2022) [FLAC|24/96|image + .cue|Vinyl-Rip] <Progressive, Tec
 magnet:?xt=urn:btih:31D9B697B65D111F24127BB2283EAA5801F778A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ B. Confessing My Desolation (06:52)Жанр: Epic Doom MetalПродолжите
 ```bash
 magnet:?xt=urn:btih:AF9FF58432445197438227242571790583F28E23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +544,8 @@ A2. Solitude (Candlemass Cover) (06:27)Жанр: Epic Doom MetalПродолжи
 magnet:?xt=urn:btih:4ADA5D9761A6F576F8F4F4ED01D46333FC8D679F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ magnet:?xt=urn:btih:4ADA5D9761A6F576F8F4F4ED01D46333FC8D679F
 ```bash
 magnet:?xt=urn:btih:C77102E189F8F60DDC38479DBB527B595EC74DA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +600,8 @@ Flor de Loto - Cosmos (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 magnet:?xt=urn:btih:F56581C3E31EB4EC3ACB9235DB135788528BF5A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:F56581C3E31EB4EC3ACB9235DB135788528BF5A2
 ```bash
 magnet:?xt=urn:btih:D18456E73F725047B01C3B92D35F24587BB3E2D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +653,8 @@ STH Tyranes - органический готический шрифт, вдох
 ```bash
 magnet:?xt=urn:btih:A0DA1A98DE37381C9123D55C25C3471B8E39BBB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +683,8 @@ The Cat Empire - Bird in Paradise (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Sk
 magnet:?xt=urn:btih:D8A035E589548B5BF3202E794ED5CF2039AC6CE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +710,8 @@ magnet:?xt=urn:btih:D8A035E589548B5BF3202E794ED5CF2039AC6CE3
 ```bash
 magnet:?xt=urn:btih:811CDA7250C9BC19D2AEA56AC80C54B0B0531D30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

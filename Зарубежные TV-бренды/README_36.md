@@ -19,6 +19,8 @@ NGW. Дикий Нил / Wild Nile (2014) HDTVRip [H.264/720p-LQ] (1-3 сери�
 magnet:?xt=urn:btih:C31A79A1988F578C15DD3AB35C470002282911D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C31A79A1988F578C15DD3AB35C470002282911D8
 ```bash
 magnet:?xt=urn:btih:742627A913D774AA7D9B435622C477626AFC21FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:742627A913D774AA7D9B435622C477626AFC21FF
 magnet:?xt=urn:btih:2924CA40E78CC0CA2701E7C9FD4281127F9F5F23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BBC: Гении современного мира / Genius Of The Modern World (
 ```bash
 magnet:?xt=urn:btih:C9F80E7F5FAD7EFEB6C92D80A7A2D0DF4006E24D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NG: Чудеса инженерии / Big Bigger Biggest (2008-2009) HDTVRip [H.
 magnet:?xt=urn:btih:6275B08E37410CF417C9BFB42A8B9ADE79D215A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:6275B08E37410CF417C9BFB42A8B9ADE79D215A1
 ```bash
 magnet:?xt=urn:btih:BC033750624297A467313FA7BAAA1AC6E2397DA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:BC033750624297A467313FA7BAAA1AC6E2397DA4
 magnet:?xt=urn:btih:FA17888A20790296C08E8358F2C0F7995EDA1761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ BBC: Питомцы - дикие в душе / Pets: Wild at Heart (2016) HDTVRi
 ```bash
 magnet:?xt=urn:btih:CEB96800D9337EFC6C9FF1797748FA01F92DFD2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ BBC: Волшебные числа: таинственный мир матема
 magnet:?xt=urn:btih:28024496FCFB0D8A66495BB36390EE9B2FA04D44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ NG: Дикая природа Чили / Wild Chile (2017) WEB-DLRip [H.264/720p
 ```bash
 magnet:?xt=urn:btih:0ED3DCEE15119FAB3DF2A49A6D311D4B84B31189
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ NG: Дикая природа Чили / Wild Chile (2017) WEB-DL [H.264/1080p] 
 magnet:?xt=urn:btih:CD340EF2943C16005C9CBE14DD3BAC108C5A7D46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Discovery: Мятежники ледяного озера / Ice Lake Rebels (201
 ```bash
 magnet:?xt=urn:btih:E2E387E5D632296C810C87C314F032224AD5C856
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:E2E387E5D632296C810C87C314F032224AD5C856
 magnet:?xt=urn:btih:1F1462D94A59387527EC687D0F8F17DBB4CD9978
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ NG. Франциск-бунтарь / Rebel Pope (2016) DVB
 magnet:?xt=urn:btih:F6634092415D970780F6E48361122FA3119C5327
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ NG: Затерянный храм империи инков / Lost Temple of The
 ```bash
 magnet:?xt=urn:btih:79819ED0D4FE56991248687014A8D0F315DFEAD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ NG: Затерянный храм империи инков / Lost Temple of The
 magnet:?xt=urn:btih:1821DF20F0A1417BB7A7624BE15FA8668740466B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ BBC: Тайны атомной эры / Secret of Our Nuclrear Age (Britains Nuc
 ```bash
 magnet:?xt=urn:btih:38CBA7D7449604BD0D54B10601914B3F8E9CA048
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Discovery. Юпитер: близкий контакт / Jupiter: Close Encounte
 magnet:?xt=urn:btih:74C8B8DC690D6E5E986DFB61F37734750B9C7152
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:74C8B8DC690D6E5E986DFB61F37734750B9C7152
 ```bash
 magnet:?xt=urn:btih:BEA7F9B214BB57BA63707CE46481AA49BB6BC029
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:BEA7F9B214BB57BA63707CE46481AA49BB6BC029
 magnet:?xt=urn:btih:754FEC85985B2821F914F3F057B984D2D74C5F06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:754FEC85985B2821F914F3F057B984D2D74C5F06
 ```bash
 magnet:?xt=urn:btih:9EC20D04058FE865F4A13D1691C7BD544477D219
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ BBC: Зачем нам Луна? / Do We Really Need the Moon? (2011) WEB-DL [H.
 magnet:?xt=urn:btih:25E3B7CB4164ADE7B786BD5D1F23A3140441EF0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ BBC: Инопланетяне. Мозговой штурм / Aliens: The Big Thi
 ```bash
 magnet:?xt=urn:btih:AD03F4CEA72D99EBA948CFBDCAF29AA63F7AC66B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ NG. Мумии, застывшие во времени / Mummies. Frozen in Time
 magnet:?xt=urn:btih:164835725F2DF35340FFCFBBD3FF4D88952C8DEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ magnet:?xt=urn:btih:164835725F2DF35340FFCFBBD3FF4D88952C8DEE
 magnet:?xt=urn:btih:3C70C4EC808D0546C8D8D7B9C3C68FF6A1FFBF7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ magnet:?xt=urn:btih:3C70C4EC808D0546C8D8D7B9C3C68FF6A1FFBF7A
 ```bash
 magnet:?xt=urn:btih:96BC8293464037552C12AF3C2BA8241FF8CD4DC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

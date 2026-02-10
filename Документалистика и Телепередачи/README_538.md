@@ -1,3 +1,29 @@
+###  Публикация: 1217861   (741035) от 06.04.2018
+
+Роковые роли. Напророчить беду (2018) DVB
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый актёр знает: он избрал не только тяжёлую, но и просто опасную профессию. Проживая на сцене или на экране чужую жизнь, мастера перевоплощения порой настолько сживаются с персонажем, что чувствуют: маска становится второй кожей. А что, если герою предписано умереть? Роли будто берут актёров в заложники. И порой этот мучительный альянс действительно приводит (   Читать дальше...   )Телекомпания: Россия / ТВ ЦентрЖанр: Документальный, Биография, ИскусствоСубтитры: Русский, teletext (888)Продолжительность: 00:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDE0A93199A0EC7DD241A387D6401F57A24085A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021321   (741066) от 29.05.2016
 
 Земля. Территория загадок. Проклятые президенты (2016) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:D0A4FD0DE8C646C2B54DDD7BB4660E2A519F8ABF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:D0A4FD0DE8C646C2B54DDD7BB4660E2A519F8ABF
 magnet:?xt=urn:btih:178388D89C64A71981F9459B53BECA50A96D0524
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:178388D89C64A71981F9459B53BECA50A96D0524
 ```bash
 magnet:?xt=urn:btih:5D68A86C7034805B3D62EC59AB6C1FF3DAE2DF54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:5D68A86C7034805B3D62EC59AB6C1FF3DAE2DF54
 magnet:?xt=urn:btih:DFA1B269020E8A10A048DD41EEAFBDF33A7F1CFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:DFA1B269020E8A10A048DD41EEAFBDF33A7F1CFA
 ```bash
 magnet:?xt=urn:btih:67A875FD3E45B9A329961AEED60D9745B8536508
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:67A875FD3E45B9A329961AEED60D9745B8536508
 magnet:?xt=urn:btih:AD9ED1E7295BBD95E926BA86E156283AFB2F878C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:AD9ED1E7295BBD95E926BA86E156283AFB2F878C
 ```bash
 magnet:?xt=urn:btih:E4A736BE26A740982D9CDCB2F33C18997B51F84D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:E4A736BE26A740982D9CDCB2F33C18997B51F84D
 magnet:?xt=urn:btih:95AD89E0E5C6F61AF2DD87FC03C68E4403DFA318
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:95AD89E0E5C6F61AF2DD87FC03C68E4403DFA318
 magnet:?xt=urn:btih:FC99EF3C859BD1EE6B5F9458C259F63AFAA4CED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:FC99EF3C859BD1EE6B5F9458C259F63AFAA4CED0
 ```bash
 magnet:?xt=urn:btih:7BB91B4C286EB7852AF2BF8E2037CF7777A1E0FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:7BB91B4C286EB7852AF2BF8E2037CF7777A1E0FB
 magnet:?xt=urn:btih:BB36AF059AC217EBD0C126C25EEEF766756127E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:BB36AF059AC217EBD0C126C25EEEF766756127E4
 ```bash
 magnet:?xt=urn:btih:864565A6353B48E1F6B0583DBB89F3F26E8A01B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:864565A6353B48E1F6B0583DBB89F3F26E8A01B6
 magnet:?xt=urn:btih:7BC401F86DF4E61FF1DEC161465767BD360232ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:7BC401F86DF4E61FF1DEC161465767BD360232ED
 ```bash
 magnet:?xt=urn:btih:C69FD83107FDAA9A82B5839849A454BC049B3ABC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:C69FD83107FDAA9A82B5839849A454BC049B3ABC
 magnet:?xt=urn:btih:C017B15561F0E2263E8D31CF49BA4576ADE1E10C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:C017B15561F0E2263E8D31CF49BA4576ADE1E10C
 magnet:?xt=urn:btih:8319BAA270B499B2CD1D838DC2A51FBC9D6817DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:8319BAA270B499B2CD1D838DC2A51FBC9D6817DE
 ```bash
 magnet:?xt=urn:btih:317627669C592F9A8B8FBAB65DEB3F425AC5F387
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:317627669C592F9A8B8FBAB65DEB3F425AC5F387
 magnet:?xt=urn:btih:A6B39D1EB14DC20B5BE2D6D71BEAA7984A0E5B1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +522,8 @@ NG. Австралия. Путеводитель путешественника 
 ```bash
 magnet:?xt=urn:btih:95A5E801C1094967509953EEA87D68CC266DEE0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:95A5E801C1094967509953EEA87D68CC266DEE0E
 magnet:?xt=urn:btih:FBB829EE8D44A8D5D9D4D148A31B0C709049A44D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:FBB829EE8D44A8D5D9D4D148A31B0C709049A44D
 ```bash
 magnet:?xt=urn:btih:7F2EAF1B0A89C0D5487C1FDD68DCCD32C48AB939
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:7F2EAF1B0A89C0D5487C1FDD68DCCD32C48AB939
 magnet:?xt=urn:btih:A03CFB19DE85BF8D865528288841D34AEE26DF1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:A03CFB19DE85BF8D865528288841D34AEE26DF1C
 ```bash
 magnet:?xt=urn:btih:78D65CACFCA8F24F28EB7F850F5E8BBE3F51CE25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:78D65CACFCA8F24F28EB7F850F5E8BBE3F51CE25
 magnet:?xt=urn:btih:C18F6E82638E3589DB6A1D48F457CB221B860812
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,29 +679,7 @@ magnet:?xt=urn:btih:C18F6E82638E3589DB6A1D48F457CB221B860812
 magnet:?xt=urn:btih:3315D7B039C58EAAA1714F22CDBECB7E5A85BB91
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021054   (742180) от 28.05.2016
-
-Научное расследование Сергея Малозёмова. Еда живая и мертвая (2016.05.28) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742180.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Еда живая и мертвая» – новый научно-популярный цикл Сергея Малозёмова, репортера с медицинским образованием, автора и ведущего программы «Чудо техники» и научных расследований о климате, технологиях, бессмертии и экологии.Производство: НТВЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DE525F6BECF763BCE17BFB1ED66E4BF1D29529A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

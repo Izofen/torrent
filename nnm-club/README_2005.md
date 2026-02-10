@@ -19,6 +19,8 @@ DOOM  (2016) [Ru/En] (1.0/upd2) Repack R.G. Games
 magnet:?xt=urn:btih:BEE97C1F143E54AB4BCEE5A8083398ABB8BE1E7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ ELDEN RING – ролевая игра в жанре фэнтези и самы�
 ```bash
 magnet:?xt=urn:btih:5AF352A25D37F7A83B79A1D32F41FF0E9BA67029
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Cypress Hill — американская хип-хоп и рэпкор груп
 magnet:?xt=urn:btih:CB8D3C68732ECFCDEE375B34B7A5EC4AABE73C79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:CB8D3C68732ECFCDEE375B34B7A5EC4AABE73C79
 ```bash
 magnet:?xt=urn:btih:5EDE2F993F4067360C43057213564592B42C8175
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:5EDE2F993F4067360C43057213564592B42C8175
 magnet:?xt=urn:btih:C602EBFB8DF946C93787A0C8DE567424AD7FCD3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:C602EBFB8DF946C93787A0C8DE567424AD7FCD3A
 ```bash
 magnet:?xt=urn:btih:BFAC581E53F472EF8C102554C7235BEF89F6DDCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:BFAC581E53F472EF8C102554C7235BEF89F6DDCA
 magnet:?xt=urn:btih:8288A9CD27DC010A1802631AAB3367E7A7BC2847
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:8288A9CD27DC010A1802631AAB3367E7A7BC2847
 ```bash
 magnet:?xt=urn:btih:DF743997FE624EC0FF75BF5E22A9D146A0AD800B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:DF743997FE624EC0FF75BF5E22A9D146A0AD800B
 magnet:?xt=urn:btih:2593AEF13AF7AB98DD00751158FFB98D7C04D5D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:2593AEF13AF7AB98DD00751158FFB98D7C04D5D7
 ```bash
 magnet:?xt=urn:btih:7ECF7A340E8F9EBC288C29C7B9BF336550CF6CF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:7ECF7A340E8F9EBC288C29C7B9BF336550CF6CF7
 magnet:?xt=urn:btih:FAE13D6E6CCDA723F9886686D204CDD9E0182EA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Windows 7 SP1 with Update [7601.27170] AIO 44in2 (x86-x64) by adguard (v24.06.11
 magnet:?xt=urn:btih:C539E91549D66D4AA55FF87157E08EE748582E9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:C539E91549D66D4AA55FF87157E08EE748582E9D
 ```bash
 magnet:?xt=urn:btih:D231DF2E5278675E592018E7CC76F41591D9E2BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Undercover Animal
 magnet:?xt=urn:btih:BEE36FFDB3959821F1B133FBF35390FB737FE06B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ Magnum — британская рок-группа, образованная в
 magnet:?xt=urn:btih:36BD39DBAB7D17B1132011DAAE342B784BFD01E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:36BD39DBAB7D17B1132011DAAE342B784BFD01E8
 magnet:?xt=urn:btih:032EF1C7FD8C10570A02B575EEEEB28BA287DBB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:032EF1C7FD8C10570A02B575EEEEB28BA287DBB4
 ```bash
 magnet:?xt=urn:btih:26A8C178B8FF61C496BA8F8641889E0DE2A36F6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:26A8C178B8FF61C496BA8F8641889E0DE2A36F6E
 magnet:?xt=urn:btih:C55C69F9CAE15A206CD797898EDF9983967F88DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Despair: Blood Curse (2024) [Ru/Multi] (1.02) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:D262F3539D81996357093C98ECB16ED2A0B7756E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:D262F3539D81996357093C98ECB16ED2A0B7756E
 magnet:?xt=urn:btih:78142D8A9DDB8FD0EC30B613284A83124FA2DFE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:78142D8A9DDB8FD0EC30B613284A83124FA2DFE2
 magnet:?xt=urn:btih:0C50E9DA9CB6FA78609CD50373BA8339BA5050F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:0C50E9DA9CB6FA78609CD50373BA8339BA5050F4
 ```bash
 magnet:?xt=urn:btih:7CF21A15BADD5A34661316617EC6E2C157113BF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:7CF21A15BADD5A34661316617EC6E2C157113BF5
 magnet:?xt=urn:btih:00BEDD90C960BBF44AC321FAB6EDE6C74F42CCB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:00BEDD90C960BBF44AC321FAB6EDE6C74F42CCB3
 ```bash
 magnet:?xt=urn:btih:D69C89C7215CC66789182868A3249C451699F167
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ OCCT 13.0.1 Final Portable [En]
 magnet:?xt=urn:btih:8E12EE1297E9980C437100CF79F48307D6CD6C40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ RizomUV VS - это полнофункциональное приложение 
 ```bash
 magnet:?xt=urn:btih:1511486B95C417287187CE862CC95810331EA5CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

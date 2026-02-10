@@ -20,6 +20,8 @@ Vertex, Дмитрий Зиновьев | Основы конструирова�
 magnet:?xt=urn:btih:4DD4F613920583966A04EC0047DDE066C4157B20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ CD1 - Evil: (01:17:42)
 magnet:?xt=urn:btih:D02C47CC545925BD301B9519835587013AE6787B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:D02C47CC545925BD301B9519835587013AE6787B
 ```bash
 magnet:?xt=urn:btih:83E1F47606B0FFB0FC5496B4C8095B2A1EBEBD3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:83E1F47606B0FFB0FC5496B4C8095B2A1EBEBD3A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:83E1F47606B0FFB0FC5496B4C8095B2A1EBEBD3A
 magnet:?xt=urn:btih:34AE41CF66E2BA66F4CE0667B2191A914AF13783
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Fast Video Cutter Joiner - программа 2-в-1 для быстрой ре�
 ```bash
 magnet:?xt=urn:btih:65895EF29BEFA8904793EE17C581F12D42F1E3A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:65895EF29BEFA8904793EE17C581F12D42F1E3A8
 magnet:?xt=urn:btih:62E988839164B26E46A13CE8C4448DF0D8EED134
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Total Control (RePack) [Ru] 1995 | Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ MAYWEATHER vs. COTTO / WBA SUPER WELTERWEIGHT TITLEПеревод: Одного�
 magnet:?xt=urn:btih:6B85856B8158984C9FEA5103F6C709D739CE0979
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ Beyond the Kingdom 2 / За пределами королевства 2 (2025) [
 ```bash
 magnet:?xt=urn:btih:00326E6D2C96BFC682F897236AA0181681E5D11D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:00326E6D2C96BFC682F897236AA0181681E5D11D
 magnet:?xt=urn:btih:0B10DB08038B277B8C13C534282AA8F9127F59FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:0B10DB08038B277B8C13C534282AA8F9127F59FE
 ```bash
 magnet:?xt=urn:btih:A90102E884FB52FF41264D288D20DEE7C9E087D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:A90102E884FB52FF41264D288D20DEE7C9E087D1
 magnet:?xt=urn:btih:CFDDDC890A86B9186384E6E5570F0E41E4A04C96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:CFDDDC890A86B9186384E6E5570F0E41E4A04C96
 magnet:?xt=urn:btih:FC45C4E431A695EAE6F757F0E13FE347617C5824
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:FC45C4E431A695EAE6F757F0E13FE347617C5824
 ```bash
 magnet:?xt=urn:btih:916A76C7126FBF2EB7A73A599097195273C74827
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ Philip Morgan Lewis - Under The East End Sky (2025) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:0EE94311181FCA2B9BC9EB10769E14AA8A2C1085
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ Paul Filipowicz - Breakwater (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:DDEB146D56ACBC78229116224A071F9EF9F51826
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ magnet:?xt=urn:btih:DDEB146D56ACBC78229116224A071F9EF9F51826
 ```bash
 magnet:?xt=urn:btih:E0ACCB3A32FACB5F2F0030792190C141FE8E21DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +516,8 @@ Lyre Luciano - Music For Your Grand Daddy: The Book Of Valentino Slim (2025) [FL
 magnet:?xt=urn:btih:A60AB799583299E8376857ACF85B649DB648DBCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ magnet:?xt=urn:btih:A60AB799583299E8376857ACF85B649DB648DBCA
 magnet:?xt=urn:btih:141D7BFA8E464756440EA84E948CD543799AD295
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:141D7BFA8E464756440EA84E948CD543799AD295
 ```bash
 magnet:?xt=urn:btih:1FC4CC79579D2E6580E2A7637BE8FB84704B31F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +595,8 @@ magnet:?xt=urn:btih:1FC4CC79579D2E6580E2A7637BE8FB84704B31F9
 ```bash
 magnet:?xt=urn:btih:E4E2FEBD2FF91FFE6C24CF982C677285FDF07705
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:E4E2FEBD2FF91FFE6C24CF982C677285FDF07705
 magnet:?xt=urn:btih:5F745056C85B5DE88DA5CB649EBF3C9B578FD797
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:5F745056C85B5DE88DA5CB649EBF3C9B578FD797
 ```bash
 magnet:?xt=urn:btih:07C06B0220996D282BC7BDA694282053C3D9F547
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +677,8 @@ Risen 2: Dark Waters строится вокруг пиратской темат
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ Risen 2: Dark Waters строится вокруг пиратской темат
 ```bash
 magnet:?xt=urn:btih:503027055645F07281C15FAC9AB3E7E8856DE242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

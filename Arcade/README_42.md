@@ -19,6 +19,8 @@ Zombie Forest 2 (2018) [Ru/En] (1.01) Repack Other s
 magnet:?xt=urn:btih:CCDCE26590E013351A40DDB72B2D3D23A204AC02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Zombie Forest 2 (2018) [Ru/En] (1.01) License PLAZA
 ```bash
 magnet:?xt=urn:btih:9DBCEF46D061F39570F1D528AC34FECB381089DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Impact Winter (2017) [Ru/Multi] (1.0.10) License CODEX
 magnet:?xt=urn:btih:5A7F3AF1CD06785628253830BDB9D0240374A0E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Pinball FX 2 — это пинбол с трёхмерной графикой, �
 ```bash
 magnet:?xt=urn:btih:B0A9802C239704C8933992391525F2E534189151
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Fossil Echo (2016) [En] (1.0) Repack Other s
 magnet:?xt=urn:btih:8C0597FA169CB1C27B4C50CEA7747EAB41BB9977
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Party Hard (2015) [Ru/Multi] (1.4.030.r/dlc) License GOG
 magnet:?xt=urn:btih:BCCB7C74A75C517EB92F64549824C1BBE95DDB3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ The Last Blade (1997) [Ru/Multi] (1.0.12541) License GOG
 ```bash
 magnet:?xt=urn:btih:5E31C4033ADDD809E2D4D37310199EAAB531574C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Harold – смесь платформера, гонки и головоломк
 magnet:?xt=urn:btih:08F792A683AB87BA08BE3A6FE75A5FA772BF8B72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Brigador - это изометрический экшен, в котором и�
 ```bash
 magnet:?xt=urn:btih:0290C5C4233B9FAECBEEAB7FB6F16ED8674A6844
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ TEKKEN 7 (2017) [Ru/Multi] (2.21/dlc) License CODEX [Ultimate Edition]
 magnet:?xt=urn:btih:039CA7C75773674486CAE5B53D172D69C7E66D33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Brigador - это изометрический экшен, в котором и�
 ```bash
 magnet:?xt=urn:btih:F82AC799F32FD05C593C430C22E389B83C4E5E09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Lemma (2015) [Multi] (1.0.7.0) Repack R.G. Механики
 magnet:?xt=urn:btih:C57F0237B894975FFED68C3C6CE04543EEDA9614
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Chicken Shoot 2 Edition 2012 (Р) [Multi9\+] 2012
 ```bash
 magnet:?xt=urn:btih:F2BF5884253EB778B68A502628F35257F442C90F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ LEGO Batman 2. DC Super Heroes (RePack/1.0.0.18994) [Ru/En] 2012 l Fenixx
 magnet:?xt=urn:btih:798D9189CE065F865330962C022CF5BC0B693648
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Spider: Rite of Shrouded Moon - играем за паука, плетём се�
 ```bash
 magnet:?xt=urn:btih:3DAEF5BB65ABA4E9B023985172DA4FB098941F20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ The Mercury Man - это научно-фантастическая изомет�
 magnet:?xt=urn:btih:C047F76CC66775D3F89143A32BF6B18D2AC62790
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Aztech Forgotten Gods - это динамичное приключение в а
 magnet:?xt=urn:btih:D712514DBA6C96D894E0EA1432692D08D8496A14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Hirilun (2022) [Ru/Multi] (1.0c) License GOG
 ```bash
 magnet:?xt=urn:btih:A14CD5734E784C8172B266A05E27A02986E1553E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Guitar Hero Antology / Антология Guitar Hero [En] (RePack) 2007-2009 | 
 magnet:?xt=urn:btih:8D3F61286FC3CBEF56E4F5355A2C915999830E7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Creepy Road (2018) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:EF2CB63FBFDB58766F2A90C18A213047FFE48748
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (1.0/dlc) License FAIRLIGHT [Deluxe Edition]
 magnet:?xt=urn:btih:A61909FD40910884AAF47A5E3EEC49C840E2D776
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Lara Croft GO предлагает довольно необычный взгл�
 ```bash
 magnet:?xt=urn:btih:DA3A25A2ABEAB6B1E05D325FB56C85A7979D1199
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ EXAELLA (2018) [Ru/En] (1.0) Repack Other s
 magnet:?xt=urn:btih:F0F06B46710B0773DF81810F1FAD5574DDEEE429
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Marvel vs Capcom: Infinite – плод совместной работы ком
 ```bash
 magnet:?xt=urn:btih:632F1CFAE7A1ABABA084957E2FF86AF4CD3EB4CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Tokyo 42 — стилизованный изометрический шутер 
 magnet:?xt=urn:btih:9743565F6070C072B97C040BFA8DC84C214D6E9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ SYNTHETIK - это беспощадный шутер-рогалик в мире,
 ```bash
 magnet:?xt=urn:btih:09640F2E28F658CFCDAA0E69D6ADCB05BA191C65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ The Dame Was Loaded (1996) [Multi] (1.0cs) License GOG
 magnet:?xt=urn:btih:AC45B9B541BE1C4A1489CA3FC429482034B67F06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Love, Money, Rock'n'Roll / Любовь, Деньги, Рок-н-Ролл (2022)
 ```bash
 magnet:?xt=urn:btih:60A158FD9CC91D37364D491B7507D120DC8569B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ House of Caravan - атмосферный инди-хоррор с голово�
 magnet:?xt=urn:btih:8AC9C9BE1BA758811343D3CE807142DF3CA2CA68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Nine Sols — это насыщенная сюжетом двухмерная и
 ```bash
 magnet:?xt=urn:btih:A972A0C361E4F1EA8C3D8AA98B6263A6B9CB385C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ MainFrames (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:BC20CCF2DE39D01F0DB6BEFB51108C8285F43273
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Playtown Genesis (2025) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C5FBB12710187958D8D75382EF5BCA7121D301A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Carmen Sandiego (2025) [Multi] (1.0/dlc) Repack FitGirl [Deluxe Edition]
 magnet:?xt=urn:btih:2330CF20DDB7E04E6CD3BB4DE82C55BFFA3AD5C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Uncursed - это психологическая игра ужасов от пе
 ```bash
 magnet:?xt=urn:btih:7220C4CB3B9A2DE637CD6984E3907C722C12931B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Dark Return - это игра в жанре ужасов и мистики, в �
 magnet:?xt=urn:btih:CF2143C5AD10FFECE9E8734CD2EAC0D6356E1CE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Split Fiction (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:22DCB7182F0DCD8C151C3580FB10058BE6426DB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Biohazard: Siberia - это психологический хоррор от п�
 magnet:?xt=urn:btih:7F0FC373BBB63F15EC3E25DCCC7FB53BD0003E46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Romance Club - Stories I Play (2023) [Ru/Multi] (1.0.39200) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:0ADB1A63367C655D1AD09336683502125E9B6229
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Split Fiction (2025) [Multi] (1.0) Scene Rune
 magnet:?xt=urn:btih:9885A626F7AF605FB0F3B48B0DB40E0BE7A0113D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (Build 811.8) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:56FFC9067858B0B34C0A3A1B06F74A620866EF61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Split Fiction (2025) [Ru/Multi] (1.0) Repack seleZen
 magnet:?xt=urn:btih:0C3A39ACD51718F0D80BB94B799BD39BB59FE26B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.811.14) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:85BDEC308AD2171AE042FD25F05B3E5599339B09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Liminal Border Part I+II+III (2023-2025) [Multi] (1.0.1/1.0.2/1.0.2/dlc) License
 magnet:?xt=urn:btih:F7B5CA2AB6E57202B76C8EB70C588C00EF623AF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Lyndaria - нелинейная эротическая визуальная но
 ```bash
 magnet:?xt=urn:btih:A3CD104A66420E656BE71C14AB3224F7353E199B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Peaks of Yore - захватывающая экшен-адвенчура, пог
 magnet:?xt=urn:btih:C18176D76BCA9EC77C2C66368DCEA7CC6BE959FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Dark Eye: Chains of Satinav (2012) [Ru/Multi] (3.0.351.5517) License GOG
 ```bash
 magnet:?xt=urn:btih:62690C401E886146068CD86AE4436B198EBA5E0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Phoenix Springs (2024) [En] (1.1.7) License GOG
 magnet:?xt=urn:btih:F679D3AFF6DCC34697738513C94A7599D0D847FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Slay the Princess (2023) [Ru/Multi] (1.4a) License GOG [The Pristine Cut]
 ```bash
 magnet:?xt=urn:btih:DCB8ECED3F546EBE738B64DB81114DD9B326642A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ My Hotel – в этом странном и пугающем месте скр�
 magnet:?xt=urn:btih:B0EB364F3CF15896A433A0890032FD3429A374AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Connection: The Nightmare Within (2024) [Ru/Multi] (Build 17385646) Repack Decep
 ```bash
 magnet:?xt=urn:btih:4D3EDE9E1007C37A77509FA7D01F92776D8331D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ The Strange City (2024) [Multi] (1.0.6) Repack Let'sРlay
 magnet:?xt=urn:btih:526D4769B04150D9093F7849F1D54C9A377588CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Monospaced Lovers сочетает в себе несколько жанров. 
 ```bash
 magnet:?xt=urn:btih:CAE0E47CDC648EEEE172FEAFB88A1314C3D735D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:802DD6D04C880B803A36F31802851BBA174B24B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Yaplakal.com — популярное информационно-развлек�
 ```bash
 magnet:?xt=urn:btih:B0B5897490DC7B57BF4A7B2447E845DED2A8DCCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:B0B5897490DC7B57BF4A7B2447E845DED2A8DCCA
 magnet:?xt=urn:btih:F10FD93CB4E809328D27FE6A616213845EF1DF23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ uTorrent - официальное приложение на Андроид. Бл
 ```bash
 magnet:?xt=urn:btih:5995C9716ED8743D8B10ABC28D55FD70F808E297
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:5995C9716ED8743D8B10ABC28D55FD70F808E297
 magnet:?xt=urn:btih:57B93F3CA3BA1F58A24D9A0CBBAF3B549C3F7230
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:57B93F3CA3BA1F58A24D9A0CBBAF3B549C3F7230
 ```bash
 magnet:?xt=urn:btih:AE395F8EFD97F2E7453C9CBF3F3E06B05386C319
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:AE395F8EFD97F2E7453C9CBF3F3E06B05386C319
 magnet:?xt=urn:btih:28A46F7416CF29E1D55AD34758842B782B02A968
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:28A46F7416CF29E1D55AD34758842B782B02A968
 ```bash
 magnet:?xt=urn:btih:CCACACB7B5709A14BD66CE18FF3B16C524693C9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:CCACACB7B5709A14BD66CE18FF3B16C524693C9B
 magnet:?xt=urn:btih:6908A7273CDC8AC17E35FA0DDEED7F53D4EF906E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Search By Image v8.3.0 [En/Ru]
 ```bash
 magnet:?xt=urn:btih:7D445DDBADA4D9C898C5A9E0944292887ECE6EC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Photo Editor - уникальная программа для обработки
 magnet:?xt=urn:btih:62E8EB9FF7CA5F2D1086D20956DD11A1013459B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:62E8EB9FF7CA5F2D1086D20956DD11A1013459B8
 ```bash
 magnet:?xt=urn:btih:EA508412D34448F1A6DB1A9B87E8CEBB189B99AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:EA508412D34448F1A6DB1A9B87E8CEBB189B99AE
 magnet:?xt=urn:btih:E6CFDA1C80924BD64F00DC9E8D03619A49486172
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ ElectroCalc - DIY Electronics v3.7 (88) Mod by derrin [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:55CF33DCDCD2EC839B5C4DD7B02C03BB254D6B75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ BackCountry Navigator TOPO GPS v7.3.8 [En]
 magnet:?xt=urn:btih:E0FC4FBE30245973489AE580F726D8B1306842AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Bikemap: велотрекер и маршруты v19.1.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2B47BCCF113A5F4B15DF8B696A5CFF5F922687BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Rock Identifier - Stone ID v2.3.9 [Ru/Multi]
 magnet:?xt=urn:btih:8E0A0F89BE0A722BD95C11A21ACA2CCD9FB4940F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Text Scanner [OCR] v9.9.4 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1EC39894A56E20994A721752C9C1C46288E76BF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Telegram — это облачный мессенджер для мобильн�
 magnet:?xt=urn:btih:4013E0DBFB925924C943116613B8945F09EBDB1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Dual Space — Multiple Accounts & App Cloner — невероятно поле�
 ```bash
 magnet:?xt=urn:btih:F2DE80FCE26B2BB1D66343DF5C0752AFAED2EE19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Rosetta Stone: Изучение языков 8.34.3 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:C3CCAC25268E7EA21F0694ACFACB3E43A38CB3F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ magnet:?xt=urn:btih:C3CCAC25268E7EA21F0694ACFACB3E43A38CB3F6
 ```bash
 magnet:?xt=urn:btih:E120494E5DD8D36AD2712AD500CF2C39A4451A18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Smart Book / Параллельный перевод книг v3.2 Mod by Dymony
 magnet:?xt=urn:btih:66937DA2F2B3C0A8D6A8E03021DB0CA814E28A49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ SD Maid поможет держать Ваше устройство в чист�
 ```bash
 magnet:?xt=urn:btih:EE4BAA44F5BCBD2186624A8BF215ADDA43912EF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ VPN.lat — это бесплатный VPN-сервис для Android с се�
 magnet:?xt=urn:btih:8D1C07574DDA611DF97212B70E7EDAE9DBD0FB72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Enhance it v4.1.4 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2E5A504DBEA8D7F08F083D74239D3F820C3D5CE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

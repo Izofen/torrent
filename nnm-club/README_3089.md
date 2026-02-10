@@ -28,6 +28,8 @@ VA - Дискотека Новые Звезды 12 (2012) [MP3|320 kbps]<Pop | D
 magnet:?xt=urn:btih:961F1A3A73D55925BE23D95F0FD628EE666EDF00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ magnet:?xt=urn:btih:961F1A3A73D55925BE23D95F0FD628EE666EDF00
 magnet:?xt=urn:btih:868A23547F0AE56C1900869179DB9493800D9E23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:868A23547F0AE56C1900869179DB9493800D9E23
 ```bash
 magnet:?xt=urn:btih:98999959CC7639DE7C751168F29CF28B2266FD1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +109,8 @@ magnet:?xt=urn:btih:98999959CC7639DE7C751168F29CF28B2266FD1D
 ```bash
 magnet:?xt=urn:btih:A61C84302BDA1D9B90CC2E6B0B64811D7FD45C7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -137,6 +145,8 @@ The Blues Band - Be My Guest (2003) [APE|Lossless]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +180,8 @@ Modern Day Escape - Under The Gun (2012) [MP3|320 кб/с]<Alt. Rock / Post-Hard
 magnet:?xt=urn:btih:F0122C9277FADDD11A94FDE751ACD1341FCE6ED9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +210,8 @@ magnet:?xt=urn:btih:F0122C9277FADDD11A94FDE751ACD1341FCE6ED9
 magnet:?xt=urn:btih:5D4CB33858759551C3828662149C31CDA871DE54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +237,8 @@ magnet:?xt=urn:btih:5D4CB33858759551C3828662149C31CDA871DE54
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +273,8 @@ Mike Reinhardt Trio - Road Song (2012) [MP3|320 кб/с]<Jazz, Fusion>
 magnet:?xt=urn:btih:DC18D94B2A850B576348BA7C89424A1429D94D74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +298,8 @@ magnet:?xt=urn:btih:DC18D94B2A850B576348BA7C89424A1429D94D74
 ```bash
 magnet:?xt=urn:btih:7FAE65D444D30CBFEFC925B8D2F752FA63508C7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +334,8 @@ Curtis Salgado & Terry Robb - Hit It 'n Quit It (1997) [FLAC|Lossless]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +359,8 @@ Curtis Salgado & Terry Robb - Hit It 'n Quit It (1997) [FLAC|Lossless]<Blues>
 ```bash
 magnet:?xt=urn:btih:3D79436E1D89483C0A0DB03B13054DB31BFB9CA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +395,8 @@ Dana Gillespie & Joachim Palden - Big Boy (1992) [FLAC|Lossless]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +421,8 @@ Dana Gillespie & Joachim Palden - Big Boy (1992) [FLAC|Lossless]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +446,8 @@ Wise Registry Cleaner 7.12 build 448 Final + Portable [Multi(Rus)]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +482,8 @@ The Soul Snatchers - Scratch My Itch (2012) [MP3|320 кб/с]<Soul, Funk>
 magnet:?xt=urn:btih:C48EECB21F0AB629FD96874ED3F11B6FD526DCED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +517,8 @@ VA - Союз Хитовый Часть 2 (2012) [MP3|256-320 kbps]<Pop>
 magnet:?xt=urn:btih:7690A806B9F7298E2331651FBB6AC22894DA04F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +542,8 @@ magnet:?xt=urn:btih:7690A806B9F7298E2331651FBB6AC22894DA04F8
 ```bash
 magnet:?xt=urn:btih:E3317DD4BD67F14083CC86082D6E942CE61C697A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +569,8 @@ Wise Disk Cleaner v7.16 build 473 Final + Portable [Multi(Rus)]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +594,8 @@ Wise Disk Cleaner v7.16 build 473 Final + Portable [Multi(Rus)]
 ```bash
 magnet:?xt=urn:btih:8F298371862E0D9532471D9D4E2CC94EB173B832
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +630,8 @@ VA - MAXI. Новое на MTV (2012) [MP3|256-320 kbps]<Pop | Dance>
 magnet:?xt=urn:btih:98D354E83DDF096CA56B545BD5EA8FDECEF49A90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +664,8 @@ VA - Клубный АвтоЗвук Весна (2012) [MP3|256 kbps]<Club | Dan
 ```bash
 magnet:?xt=urn:btih:5309237905F83348979D45ED302955D4B937FEA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +700,8 @@ Carolyn Wonderland - Peace Meal (2011) [FLAC|Lossless]<Blues-Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -679,6 +725,8 @@ Carolyn Wonderland - Peace Meal (2011) [FLAC|Lossless]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:5BF57AFB7E7EC11625279A48ED94D59FA3972C57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -708,6 +756,8 @@ Disc One
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -731,6 +781,8 @@ Disc One
 ```bash
 magnet:?xt=urn:btih:9E7696A7571CF38E7FAEAFEC6234D07E1E6C21D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

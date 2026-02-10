@@ -1,3 +1,32 @@
+###  Публикация: 1031719   (651649) от 04.07.2016
+
+VA - 120 European EDM: July Mix (2016) [MP3|320 Kbps] <Dance, Electro, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651649.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. First State Feat Sarah Howells - Skies On Fire
+002. Rudy Mc & Alivo Feat. Splitten - Home (Extendet Mix)
+003. James Marley Feat. Nathan Brumley - Summer Won't Wait (Extended Mix)
+004. Felix Jaehn Feat. Lost Frequencies & Linying - Eagle Eyes(   Читать дальше...   )Жанр: Dance, Electro, HouseПродолжительность: 10:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E547C5A9FA8845A217D3FAC0142D7A81FBC14BF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031579   (651668) от 04.07.2016
 
 Альберт Артемьев - Око Сахары (2016) [MP3|320 Kbps] <New Age>
@@ -21,6 +50,8 @@
 ```bash
 magnet:?xt=urn:btih:E3C75E5C861B216A9507086B227FEE8A40488B4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -55,6 +86,8 @@ VA - Женщина Любимая Моя (2012) [MP3|256 kbps]<Pop>
 magnet:?xt=urn:btih:345AA07E1A702C1EB57E5E4F805AC16FAA4804A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +114,8 @@ VA - Acoustic Chill Playlist 2 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Aco
 ```bash
 magnet:?xt=urn:btih:0E1BEE1F20007AABB79CDCD22D9D4BDBA59538B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +144,8 @@ VA - Русская Дискотека ХХ Века - 28 (2010) [MP3|320 Kbps]<
 magnet:?xt=urn:btih:904A07E2E1150487F5AA7AEC17332D0BAB837110
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +172,8 @@ VA - Русская Дискотека ХХ Века - 26 (2010) [MP3|320 Kbps]<
 ```bash
 magnet:?xt=urn:btih:B63AC0A11E585B2CCBEAACD166B3346EF9766E24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +202,8 @@ VA - Uplifting Trance Free Producer (2016) [MP3|320 Kbps] <Trance, Uplifting Tra
 magnet:?xt=urn:btih:8291E44A6D06E55CDBAE7ADF3C8E756EDEA7762E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +230,8 @@ VA - Зарубежная Дискотека ХХ Века - 60 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:CF9BB0BE5BA71A7A250B72CEF365079C5605027F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +260,8 @@ VA - Русская Дискотека ХХ Века - 27 (2010) [MP3|320 Kbps]<
 magnet:?xt=urn:btih:936C2555A86F2F16A9198BE21D5DC23228773292
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +288,8 @@ VA - Русская Дискотека ХХ Века - 25 (Именной) (2010
 ```bash
 magnet:?xt=urn:btih:B3BFF36176C1DB7B337C2987D1DF8DCB5ED4171F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +318,8 @@ VA - Record Super Charts # 443 (2016) [MP3|320 Kbps] <House, Electro House, Prog
 magnet:?xt=urn:btih:38785F1ECD3DAA15048EA8819BAD960822B6F891
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +347,8 @@ VA - Trance Collection Vol.47 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, V
 magnet:?xt=urn:btih:DDA34A8304C67A49747DEC41157F6A26A6FD7504
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +375,8 @@ VA - Русская Дискотека ХХ Века - 21 (2010) [MP3|256-320 Kb
 ```bash
 magnet:?xt=urn:btih:8DA66F76E8D25E3E757B8044335DCAD881F4A061
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +411,8 @@ VA - Танцевальный рай 29 (2012) [MP3|192 кб/с]<Pop-Dance>
 magnet:?xt=urn:btih:93F27C04FD6FF20F12F631C7B82FF5991135C311
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +445,8 @@ VA - Trance In Motion vol.118 (Mixed By E.S.) (2012) [MP3|320 kbps]<Trance, Voca
 ```bash
 magnet:?xt=urn:btih:25B1DF6F2EF991BBFC997893ABB6015C5D997464
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +481,8 @@ VA - Лето Хитами Пропето! Party Music Love Radio 50/50 (2012) [
 magnet:?xt=urn:btih:6333D5B855B7B001E9FC393A0ECAF0F4E871EA03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +506,8 @@ VA - Дискотека в ритме Карибских островов (2012)
 ```bash
 magnet:?xt=urn:btih:6DA0E65F864ED06FED8F935C999C0C6097012C17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +536,8 @@ VA - Русская Дискотека ХХ Века - 23 (2010) [MP3|320 Kbps]<
 magnet:?xt=urn:btih:B9D17F3C2E41047123FF32DA877663F8F5EC6E5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +564,8 @@ VA - Sleepy Hollow 2 Remasters Deep House (2016) [MP3|320 Kbps] <House, Minimal 
 ```bash
 magnet:?xt=urn:btih:46390A78D835776F10434043EBBC2196C87FD4EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +594,8 @@ VA - Зарубежная Дискотека ХХ Века - 54 (2016) [MP3|320 
 magnet:?xt=urn:btih:C90365BC780DC751B239A13D1973388E2226D90C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +622,8 @@ VA - Русская Дискотека ХХ Века - 22 (2010) [MP3|320 Kbps]<
 ```bash
 magnet:?xt=urn:btih:A62053363924157E615D01E68611610E73394471
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +652,8 @@ VA - Русская Дискотека ХХ Века - 24 (2010) [MP3|320 Kbps]<
 magnet:?xt=urn:btih:DD9FB7A1733AB92934076F728F537B9EED1EE8F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +680,8 @@ VA - Emotional Day And Trance Beyond (2016) [MP3|320 Kbps] <Trance, Uplifting Tr
 ```bash
 magnet:?xt=urn:btih:E81C3EA9D558EBB1D1C8DA49D4029840A296D1D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +710,8 @@ VA - Зарубежная Дискотека ХХ Века - 57 (2016) [MP3|320 
 magnet:?xt=urn:btih:0E3C25C6377BB9DAD42E6BC7FA06CFBD9F3512A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +738,8 @@ VA - Зарубежная Дискотека ХХ Века - 59 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:A1CDCC4DE809D72345DF497C990780822A1AAB34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -691,32 +768,7 @@ VA - Зарубежная Дискотека ХХ Века - 56 (2016) [MP3|320 
 magnet:?xt=urn:btih:C43A1C0EA9A838852B0455055F43051EB2060F9A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031507   (652011) от 04.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 52 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magazine 60 - Rendez-Vous Sur La Costa Del Sol ( Maxi Version 1985 )
-02. Linda Jo Rizzo - Heartflash ( Tonight ) ( 1986 )
-03. Max & Company - Passion Of Fire ( Radio Mix 1991 )
-04. Cruisin' Gang - China Town ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A329A1AE56CED85A890A62F7E5855F2A15F5B82
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

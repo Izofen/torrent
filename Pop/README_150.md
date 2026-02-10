@@ -1,3 +1,154 @@
+###  Публикация: 574979   (370897) от 14.11.2012
+
+Eros Ramazzotti - Noi (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noi
+ 02. Un Angelo Disteso Al Sole
+ 03. Questa Nostra Stagione
+ 04. Io Sono Te (feat. Giancarlo Giannini)
+ 05. Fino All'Estasi (feat. Nicole Scherzinger)
+ 06. Abbracciami
+ 07. Balla Solo La Tua Musica
+ 08. Infinitamente
+ 09. Polaroid
+ 10. Sotto Lo Stesso Cielo(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB5EE60573323584F509A31D72846F3CA1E0B4AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070091   (370997) от 05.11.2016
+
+Serebro - Сила трёх (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мало тебя
+02. Kiss
+03. Mimimi
+04. Перепутала(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C89DE9F854AAD3695DBA7BFFBAD33CD9ABEDFCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069623   (371290) от 05.11.2016
+
+Jack Savoretti - Sleep No More (2016) [FLAC|Lossless|image + .cue] <Pop, Folk, Acoustic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When We Were Lovers 03:31
+ 02. Deep Waters 03:46
+ 03. I'm Yours 03:08
+ 04. Helpless 03:14(   Читать дальше...   )Жанр: Pop, Folk, AcousticПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A93DACE3C0BDDCD88E4258C978F739235FCF5903
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069990   (371320) от 05.11.2016
+
+Champagne - The Best Of (2007) CD [MP3|320 Kbps] <Disco, Funk-Soul, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Их называли - "Голландский ответ АВВА". К сожалению выпустили всего два альбома в 1977 и 1979 годах, которые полностью и поместились на этот диск.01. Oh Me, Oh My, Goodbye (3:24)
+02. No Love At All (2:27)
+03. Rock 'n Roll Star (2:53)
+04. Kiss You Baby (3:05)(   Читать дальше...   )Жанр: Disco, Funk-Soul, PopПродолжительность: 00:57:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4A295D7496E32A6B34A936D138EA80F45436742
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069655   (371401) от 05.11.2016
+
+VA - Studio 57 vol.1 (1983) 2xLP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мегамикс из творчества американского музыканта, композитора и продюсера Bobby Orlando.01. The Flirts - Passion (7:11)
+02. Bobby "O" - I'm So Hot For You (6:11)
+03. Bobby "O" - She Has A Way (8:10)
+04. Free Enterprise - Make It On My Own (6:25)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:24:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:853DB2947168DDDAFD97D3FCD08A329F1BA25403
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176327   (371648) от 21.10.2017
 
 Варвара Визбор - Многоголосье (2017) [MP3|320 Kbps] <Pop>
@@ -21,6 +172,8 @@
 ```bash
 magnet:?xt=urn:btih:859536D6D079E4F3BD02DF1FD506E9BF8B97243D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +202,8 @@ Shobizz - Shobizz (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 magnet:?xt=urn:btih:36B51D4408FC4BBB27816B763AD916DBA9BC9C0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +230,8 @@ Albert One - Everybody (1988) Reissue CD, ZYX Music, 2001 [MP3|320 Kbps] <Electr
 ```bash
 magnet:?xt=urn:btih:A70AFB91601C7C08FDA06E4ADC101C80435BD352
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +260,8 @@ Bat & Ryyd - Ehtaa Tavaraa (1989) Reissue CD, Snap Records, 2000 [MP3|320 Kbps] 
 magnet:?xt=urn:btih:805B1E389D46C25FEDF57F27134B162274ECCAE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +288,8 @@ Mozzart - Devil's Rendezvous - Greatest Hits & More (2019) Compilation, Remaster
 ```bash
 magnet:?xt=urn:btih:9A860B50CAB22D0D04A3CF7471E9A67EB76A65B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +318,8 @@ Naomi - 2 Albums (2018, 2019) [MP3|320 Kbps] <Electronic, Italo-Disco>
 magnet:?xt=urn:btih:D323A2F0C89A52C74E4F27C14A499CF4FCF9B919
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +346,8 @@ Stars On 45 - Disco Collection (2002) [MP3|320 кб/с]<Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:C7E228ED76ABA57461A492342BA290E3ABB8D136
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +376,8 @@ Silver Pozzoli - Around My Dreams (1987) CD [MP3|320 Kbps] <Electronic, Italo-Di
 magnet:?xt=urn:btih:59CF81C6FBC364E7B7AC8C471615EA45258D621E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +404,8 @@ Ricchi E Poveri - The Best Dance Remixes (2015) [MP3|320 кб/с]<Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:8A6C3BC973C8BB8741708BE3F86DAC9A414E8196
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +434,8 @@ September - September (2004) [MP3|256 кб/с]<Pop, Dance, Eurodance>
 magnet:?xt=urn:btih:3C25E9D3FA41895075A80B283CA9C9D8D774DC12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +459,8 @@ Louis Prima & Keely Smith - Buona Sera (1999) [MP3|320 кб/с]<pop>
 ```bash
 magnet:?xt=urn:btih:03BE22EA6FBD0B0C308D2B46016E0B3B6A296B73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +489,8 @@ The Beloved - X (1996) [FLAC|image+.cue]<House, Pop>
 magnet:?xt=urn:btih:F287EBF142F39336B049FBBCD29452A45C6ACA1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +514,8 @@ VA - Звездная Италия. Хиты 80-х (2010) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:4FD6CB8A1F6E26879ACBFF27C85A7D7B4D0FB272
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +544,8 @@ Giorgio And Chris - Love’s In You, Love’s In Me (1978) Remaster, 2010, Gold 
 magnet:?xt=urn:btih:560C4F39E808CCDBB93D7CFCF27D072A951CB1C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +572,8 @@ Gotham Flasher - Gotham Flasher (1979) [MP3|320 Kbps] <Electronic, Funk/Soul, Di
 ```bash
 magnet:?xt=urn:btih:7C4EF20C60FFA0ECEF6EE97E344DCAA6695685BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +602,8 @@ Boney M - Oceans Of Fantasy + Single Hits (2000) [FLAC|Lossless|image + .cue] <F
 magnet:?xt=urn:btih:85AFDEF6E6EAFE74B336E1B58C240B08DDA3B03A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +629,8 @@ Innocence - Natural Thing (1989) Maxi-Single, 1990, Chrysalis [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:4F006843CF644E2D5B5FDD729DDB81CA97477FD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +659,8 @@ Christian Kolonovits - 3 Albums (1976-1984) LP Collection [MP3|320 Kbps] <Electr
 magnet:?xt=urn:btih:72E175719FB19E0DE78A22C18C4069E95C88239B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +687,8 @@ magnet:?xt=urn:btih:72E175719FB19E0DE78A22C18C4069E95C88239B
 ```bash
 magnet:?xt=urn:btih:6A254D2427866491171ECE8D57A0AE1D0455973D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +717,8 @@ Cook County - Pinball Playboy (Playboy Theme) (1979) LP [MP3|320 Kbps] <Disco, S
 magnet:?xt=urn:btih:EDA73F19401171F6B1AB738BEBD7AF606922C2D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,140 +746,7 @@ Brigitte Bardot - B.B. (Remastered) (2017) [MP3|320 Kbps] <Pop, Chanson>
 magnet:?xt=urn:btih:CB22655815E64F80C8AA9FBA6DF9952E6AB29577
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175862   (374427) от 20.10.2017
-
-Hi-Gloss - You'll Never Know (1981) Reissue CD, Unidisc, 1992 [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You'll Never Know (5:27)
-02. It's Up To You (5:48)
-03. Cash (6:55)
-04. I'm Totally Yours (5:17)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD945A923E6E7481E141707C569676877DC193E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318516   (374501) от 25.09.2019
-
-Bat For Lashes - 14 releases (2007-2019) [FLAC|Lossless|tracks + .cue|tracks] <Dream Pop, Indie Rock, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374501.jpg" />
-</div>
-
-
-###  Подробнее
-
-2007 - Fur and Gold
-2009 - Two Suns (Special Edition)
-2012 - The Haunted Man
-2016 - The BrideЖанр: Dream Pop, Indie Rock, Indie PopПродолжительность: 05:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F33085E69001598FABD6F314DD330CF65E4A312
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949661   (374745) от 24.10.2015
-
-Selena Gomez - Revival (2015) Japanese Edition [FLAC|image+.cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revival
-02. Kill Em With Kindness
-03. Hands to Myself
-04. Same Old Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E55A00A06D371BCCFFC39FE04ECCE9123F332B98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575662   (375037) от 10.09.2022
-
-Dr. Alban - The Very Best Of 1990 - 1997 Remastered, 2019, Sony Music [OGG Vorbis|485 Kbps] <Electronic, Reggae, Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.		It's My Life	4:00
-02.		Let The Beat Go On	4:04
-03.		Look Who's Talking	3:13
-04.		Gimme Dat Lovin	4:07(   Читать дальше...   )Жанр: Electronic, Reggae, PopПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3471EF225C5993E087383D1FCA3E8691C67A3522
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254359   (375122) от 13.10.2018
-
-Taco - Puttin' On The Ritz (2000) CD, Compilation [MP3|320 Kbps] <Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Puttin' On The Ritz (4:43)
-02. La Vie En Rose (4:52)
-03. Cheek To Cheek (4:51)
-04. After Eight (3:35)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A8E40200EBC03C4F9DF49A07B4EA6A4F1F03754
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

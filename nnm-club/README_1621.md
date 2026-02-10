@@ -19,6 +19,8 @@ Icecream Video Converter Pro 1.45 [Multi/Ru]
 magnet:?xt=urn:btih:97BB82339756C2694214E20CC721960BA2FC7C37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Three Alpha One Nine – это сложный и одновременно ул�
 ```bash
 magnet:?xt=urn:btih:BBFBCAD01DA8C08E8EE76E4E4BAA1634540DDE45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ FormatFactory - многофункциональный конвертер раз
 magnet:?xt=urn:btih:D38F2CBEF1D1EA3166ED938457DD8FB25CCB6032
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Abnormal1999:The Compass and the Sand - это загадочная голово
 ```bash
 magnet:?xt=urn:btih:C465A2E7ED2C74A69CACF01C908D946851BC2E85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:C465A2E7ED2C74A69CACF01C908D946851BC2E85
 magnet:?xt=urn:btih:A2E1DAEDE619F7FF9184E6FA70C0AA006CAD48CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Icecream Video Editor - простой редактор видео для Window
 ```bash
 magnet:?xt=urn:btih:B117E43D79320098CF958EF8E941328FE1D97841
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:B117E43D79320098CF958EF8E941328FE1D97841
 magnet:?xt=urn:btih:6EE3E200734F263608957C98E68B6CC8511CC62F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:6EE3E200734F263608957C98E68B6CC8511CC62F
 ```bash
 magnet:?xt=urn:btih:711131B1D2BB91A31C250814864F6D911FE7D24F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ The Emptiness (2015) [En] (1.0) Scene PROPHET [Deluxe Edition]
 magnet:?xt=urn:btih:A97783DADF64062C99C8707B36C19041AE7CEAF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:A97783DADF64062C99C8707B36C19041AE7CEAF7
 magnet:?xt=urn:btih:70A1489B604D31BA8D9A27E3C23807E022758774
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ OCCT 13.1.8 Portable [En]
 ```bash
 magnet:?xt=urn:btih:051F376544218371FDD6A36F14DF96A9B6F5062F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Goblin Slayer II | Убийца гоблинов [ТВ-2] [2023, TV, 12 из 12]
 magnet:?xt=urn:btih:82A2D58F6648E8068B82141EDD24108D213942F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:82A2D58F6648E8068B82141EDD24108D213942F3
 ```bash
 magnet:?xt=urn:btih:5C578C29F428386475DAFBCDE2DA4A4DE481C4CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ VA - Galactic Synthwave (2024) [MP3|320 Kbps] <Synthetic, Space, Electronic>
 magnet:?xt=urn:btih:E852C82090F46EFB8FEA11283F0CAC741A2C0D78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ VA - My Live In Blue (2024) [MP3|320 Kbps] <Blues, Blues Rock>
 magnet:?xt=urn:btih:B4395EF9D121BA62466DFEEF1A004E09E7C7BC88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:B4395EF9D121BA62466DFEEF1A004E09E7C7BC88
 ```bash
 magnet:?xt=urn:btih:FA7BDF18E999A5AB33947ED25D39A5AB9B6ECE9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ VA - compilation musical kaleidoscope part 3 (2024) [MP3|320 Kbps] <Electronic, 
 magnet:?xt=urn:btih:355F87C5CACFDD6B17575BC03D6824E5E354C974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ Grapple Dogs: Cosmic Canines - это 2D экшен-платформер, рас
 ```bash
 magnet:?xt=urn:btih:008B73DC8318C680AF729D8D3E9DA817C4989B12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ VA - Шансон премьера 2024 сентябрь (Новые песни.
 magnet:?xt=urn:btih:0AEE346D539D02586E3A484B022DA70A6F1B7987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ Metal Church - американская хеви-метал-группа. Пер
 magnet:?xt=urn:btih:6FA9A1DE82C6223C1BDBF70BB9541F719EEC2A34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ magnet:?xt=urn:btih:6FA9A1DE82C6223C1BDBF70BB9541F719EEC2A34
 ```bash
 magnet:?xt=urn:btih:0C1B831701307846E5C38EA5E1593606E5B62C9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:0C1B831701307846E5C38EA5E1593606E5B62C9E
 magnet:?xt=urn:btih:DF90471CE5B5BDF7E8B1E03B68BB13F8B33C28FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ SpaceX хочет запустить пять кораблей на Марс д�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ SpaceX хочет запустить пять кораблей на Марс д�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ SpaceX хочет запустить пять кораблей на Марс д�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ IceCream Ebook Reader Pro 6.51 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:23CE92C0B0377F10CB5B91978B3320BF8BF05FEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

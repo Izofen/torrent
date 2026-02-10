@@ -19,6 +19,8 @@ AIDA64 2.05 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:E810C71A6CDB21C688F69ED8216F2B3724646AAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Umagic AI / ИИ Рисует v1.7.2 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CEE7B8402C83DE84DCFDF2B58B5930C4ACF1462D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Time and Memo / Время и Памятка v0.8.95 Mod by Alex.Strannik [Ru/Mu
 magnet:?xt=urn:btih:B3A0010576C965FE10EE646E95EAA9470275482B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Picsmaster Photo Editor Pro, также известный как Picsmaster, �
 ```bash
 magnet:?xt=urn:btih:05999D511F2F84618CA7A99EC8680C4478EF8200
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Bananastreet: Deep House & EDM v4.1.60 Mod by 0x7d [Ru/Multi]
 magnet:?xt=urn:btih:70D2C581C7DD7E052B749BB361E133111B9046D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Talking Translator / Говорящий переводчик v2.7.5 Mod by Alex.
 ```bash
 magnet:?xt=urn:btih:6D92B6324757696007E22496ADBE2D30738C9DEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ All Language Translate App v3.4 Premium Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:D42B206DD41618ABE92A155A9ECEFDE1B01413D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Panels – набор панелей на краю экрана, которые 
 ```bash
 magnet:?xt=urn:btih:A1D8EAA41D943A3D432E9C262888381DAD817485
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ ASR - это одно из лучших приложений-диктофоно�
 magnet:?xt=urn:btih:D7FC829EB42B90EE74EC92A8332265D9CE3A401B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:D7FC829EB42B90EE74EC92A8332265D9CE3A401B
 ```bash
 magnet:?xt=urn:btih:8EB8CFE2C4A4D0D035B527894DC4A83A294ADA5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:8EB8CFE2C4A4D0D035B527894DC4A83A294ADA5C
 magnet:?xt=urn:btih:A8F1B62DFDA9F643F1D4F49A69B922A58EDC8D51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ TikTok - социальное приложение для тех кто пред
 ```bash
 magnet:?xt=urn:btih:4987C79B1B6622C24FD3F41678275E6B68C6EFBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:4987C79B1B6622C24FD3F41678275E6B68C6EFBD
 magnet:?xt=urn:btih:4EC4CDDDD6C51C6C0CEF19E2A55903551A02E4C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:4EC4CDDDD6C51C6C0CEF19E2A55903551A02E4C6
 magnet:?xt=urn:btih:F782ACDF9D2C249251A1D0E0707684ED9AEA8404
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Auto Blur: Авторазмытие v2.7.0 Mod by 0x7d, oflarm [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:06172A27F67A309039E2988460A47C2938C665C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ XDownloader — это мощный инструмент, который поз�
 magnet:?xt=urn:btih:52964AC955A436A2BFA9C86E9547CB4928271762
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:52964AC955A436A2BFA9C86E9547CB4928271762
 ```bash
 magnet:?xt=urn:btih:523B7AEE3F9342AC62CA4D0D668A692E15E0B4DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:523B7AEE3F9342AC62CA4D0D668A692E15E0B4DE
 magnet:?xt=urn:btih:F83F5168EA4DA4EAD9F81A583589F2C5831B4E5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ ToonMe v0.7.15 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:13DAE4345959D14F3A4CD23F36F44027A4048C1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:13DAE4345959D14F3A4CD23F36F44027A4048C1C
 magnet:?xt=urn:btih:EA5FABF7632304AAF2C00652229BE49217F94DA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Beat Find / Распознавание музыки v1.6.51 Mod by Alex.Strannik
 ```bash
 magnet:?xt=urn:btih:DBEBFF8854EBE26F89D089942C8F131C5CB9E35F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ MiHome v10.0.702 Mod by Vevs [Ru]
 magnet:?xt=urn:btih:388FFCCFC93BAE42B65BD8F56821D16DE690E76C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ Metrolist 10.7.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CF500AE6F9D6997752C97C83DD613A6855F70243
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ TV+: Бесплатное Онлайн Телевидение
 magnet:?xt=urn:btih:CD93BB809C4D4F3199F154CA01D2D1B0AE1A4085
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ PicLab - Photo Editor v2.10.0 Mod by Balatan [En]
 ```bash
 magnet:?xt=urn:btih:A305E451587923FE5925564329698EC3AE8A1719
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +686,8 @@ MiHome v9.10.700 Mod by Vevs [Ru]
 ```bash
 magnet:?xt=urn:btih:944C880B6EDE2402002A5C0E690022994BD2617B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

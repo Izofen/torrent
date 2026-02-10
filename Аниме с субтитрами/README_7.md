@@ -19,6 +19,8 @@ Edens Zero 2 | Нулевой Эдем [ТВ-2] [2023, TV, 25 эп.] BDRip 1080p
 magnet:?xt=urn:btih:EA476CE9C5C5F6ABA379597BDB876A0E9BCC80D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Dead Mount Death Play (2023) | Смертельная игра мёртвой г
 ```bash
 magnet:?xt=urn:btih:E59C55B607BBA71F30ECAE6D5E0650A2FB38E5EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Ani ni Tsukeru Kusuri wa Nai! 5 | В случае с братом медицин
 magnet:?xt=urn:btih:CE2C66B2D4B289A7C80F24280B45FD53B5AFDAC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Uzumaki | Спираль [2024, TV, 4 эп.] WebRip 720p raw+eng
 ```bash
 magnet:?xt=urn:btih:4F89AF63D30F5B5806D989FD9B85AAC496805A7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Yuru Camp Season 3 | Лагерь на свежем воздухе [ТВ-3] [202
 magnet:?xt=urn:btih:4D887B9463EC1F99B4FF1FA41A7A97EC39C2A72A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Gekijouban Blue Lock: Episode Nagi | Синяя тюрьма: Блю Лок - Э
 ```bash
 magnet:?xt=urn:btih:C3D93FD34A0AD17FCC458C3C21EF575AC459D7CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Gekijouban Blue Lock: Episode Nagi | Синяя тюрьма: Блю Лок - Э
 magnet:?xt=urn:btih:070F29A7F7AE788C0FA830CBA2353C17FCD45658
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Monogatari Series: Off & Monster Season | Легенды: Межсезонье �
 ```bash
 magnet:?xt=urn:btih:E604D643F1EBADD07047D7056D86FD133F56E95F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Boku no Hero Academia Season 7 | Моя геройская академия [Т�
 magnet:?xt=urn:btih:D44B9544774F5C5200790046C7C45590585BB22A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Yozakura-san Chi no Daisakusen | Mission: Yozakura Family | Операция: С
 ```bash
 magnet:?xt=urn:btih:45046068B38A62961959F79E2B98572587765226
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Yano-kun no Futsuu no Hibi | Yano-kun's Ordinary Days | Обыкновенные
 magnet:?xt=urn:btih:07D9776361AC45A91BBEA8A0C01D3578726F8CFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Oshi no Ko 2 | Звёздное дитя [ТВ-2] [2024, TV, 13 из 13] WEBRip 
 ```bash
 magnet:?xt=urn:btih:C27A760F75C05C45D2D8216D873AE4ACEB0A26D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Atri: My Dear Moments | Атри: Мои бесценные мгновенья [
 magnet:?xt=urn:btih:8D35B6E46267AAB55EAFD4DFF0C11A78A2103D53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Shikanoko Nokonoko Koshitantan | My Deer Friend Nokotan | Моя подруга-
 ```bash
 magnet:?xt=urn:btih:33DC7959C4FF833CE6FD09F98C0C3BE290C9C850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Kami no Tou: Ouji no Kikan | Tower of God 2nd Season | Башня Бога: Во
 magnet:?xt=urn:btih:2AF447473512214710883D480C30634468BC0586
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Make Heroine ga Oosugiru! / Too Many Losing Heroines! / Слишком мног�
 ```bash
 magnet:?xt=urn:btih:875EA3469790E837D22E71C88F484EF47660F28D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Mecтo дeйcтвия — фeoдaльнaя Япoния вo вpeмeнa мeждy �
 magnet:?xt=urn:btih:7521030A761E6F743FAD6CBDBAF8803294ABD786
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Dungeon no Naka no Hito | Dungeon People | Люди подземелья [2024, 
 ```bash
 magnet:?xt=urn:btih:CB4091304D65A4C683D727A2052F0B08DB13C69E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ Tensui no Sakuna-hime | Sakuna: Of Rice and Ruin | Сакуна: Рис и ру�
 magnet:?xt=urn:btih:D3E54297621753CA2396C373A05FCB78CD3BF3D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Naze Boku no Sekai o Dare mo Oboeteinai no ka? / Why Does Nobody Remember Me in 
 magnet:?xt=urn:btih:811BCB8873439FCC1A6AFDEF260FC49F9A212E5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Senpai wa Otokonoko / Senpai is an Otokonoko / Моя сэмпай — паре�
 ```bash
 magnet:?xt=urn:btih:2C2AC4538D0CE9ADD7C0658E97A1CD35EC604B48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ NieR:Automata Ver1.1a | Ниер: Автoмaтa Ver 1.1a [2023, TV, 24 эп.] We
 magnet:?xt=urn:btih:80B0AD7DFE455C98F5616020C2B89DE32800F5D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ B цeнтpe пoвecтвoвaния пapeнь пo имeни Дзюн, кoтopый 
 ```bash
 magnet:?xt=urn:btih:59CAE2E32750BEFE3DDC7857E555E81975E8E048
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ Shy | Стесняшка [2023, TV, 24 эп.] WebRip 720p raw
 magnet:?xt=urn:btih:596B537642A34E5EC9E0E8FB69C0EDA2F2ED10F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Katsute Mahou Shoujo to Aku wa Tekitai Shite Ita. | The Magical Girl and the Evi
 magnet:?xt=urn:btih:532DE0FC199E30A53D6A73C100A630C90C2CF230
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Mayonaka Punch | Полуночный удар [2024, TV, 12 эп.] WEBRip 720p 
 ```bash
 magnet:?xt=urn:btih:2649EFBC4745606BD30B66502CEAC13153244719
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

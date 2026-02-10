@@ -1,3 +1,29 @@
+###  Публикация: 1288136   (697270) от 10.03.2019
+
+Джеффри Лайкер, Йорго Трахилис | Лидерство на всех уровнях бережливого производства. Практическое руководство (2018) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания может расти и развиваться ровно настолько, насколько она развивает своих лидеров. Времена, когда организациям нужны были только грамотные исполнители, остались в прошлом. Сегодня развитие невозможно без личного участия каждого. Именно так выглядит настоящее лидерство: руководитель, который побуждает коллег постоянно совершенствоваться. Каждый процесс должен (   Читать дальше...   )Жанр: МенеджментПеревод: Ю. СеменихинаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1198683CDADA4074D83EDB69BB089A525998502
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288216   (697366) от 10.03.2019
 
 Чип Хиз, Дэн Хиз | Переключайтесь. Как меняться, когда это непросто (2018) [PDF, EPUB, MOBI]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:F218E95B9E740B34106AE0F148A91ABBAB65C053
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:F218E95B9E740B34106AE0F148A91ABBAB65C053
 ```bash
 magnet:?xt=urn:btih:194D5425E8C22126CA0697C8705F863B87DCEB60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:194D5425E8C22126CA0697C8705F863B87DCEB60
 magnet:?xt=urn:btih:390BC5903021C2286A4C43E4B1A9A238F9D4F70A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:390BC5903021C2286A4C43E4B1A9A238F9D4F70A
 ```bash
 magnet:?xt=urn:btih:0269901639F94DB90029D618082FB8E02A31BED2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +155,8 @@ magnet:?xt=urn:btih:0269901639F94DB90029D618082FB8E02A31BED2
 magnet:?xt=urn:btih:4F7AABAB7DBAD474ED05B0D37C3BBAC47E4312FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +183,8 @@ magnet:?xt=urn:btih:4F7AABAB7DBAD474ED05B0D37C3BBAC47E4312FE
 magnet:?xt=urn:btih:4F357AF8E96F0C622EB1CAE6FC129DC7AC1DB49D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +208,8 @@ magnet:?xt=urn:btih:4F357AF8E96F0C622EB1CAE6FC129DC7AC1DB49D
 ```bash
 magnet:?xt=urn:btih:4CB664A42B7FE58B75C825FD1A0A3348AD5F8F08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +237,8 @@ magnet:?xt=urn:btih:4CB664A42B7FE58B75C825FD1A0A3348AD5F8F08
 magnet:?xt=urn:btih:59ACF140CF0CEA98F47DFBB5B78B06E0481B4DEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +262,8 @@ magnet:?xt=urn:btih:59ACF140CF0CEA98F47DFBB5B78B06E0481B4DEF
 ```bash
 magnet:?xt=urn:btih:249087EA835C13C91BAD815783C1A67C52A630D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +290,8 @@ magnet:?xt=urn:btih:249087EA835C13C91BAD815783C1A67C52A630D6
 ```bash
 magnet:?xt=urn:btih:E234D9AECA9DBAC4FCC19B87386379B104D0C57B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +320,8 @@ magnet:?xt=urn:btih:E234D9AECA9DBAC4FCC19B87386379B104D0C57B
 magnet:?xt=urn:btih:F0D3DBD8EF66FA0FE4856AF081BA4B29BFB7F62C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +345,8 @@ magnet:?xt=urn:btih:F0D3DBD8EF66FA0FE4856AF081BA4B29BFB7F62C
 ```bash
 magnet:?xt=urn:btih:EF131934556FA85897D6140E083A9CFE716D9B2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +372,8 @@ magnet:?xt=urn:btih:EF131934556FA85897D6140E083A9CFE716D9B2C
 magnet:?xt=urn:btih:143D9E9985F799E82FFDC5292C1917DD2E3638D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +397,8 @@ magnet:?xt=urn:btih:143D9E9985F799E82FFDC5292C1917DD2E3638D2
 ```bash
 magnet:?xt=urn:btih:23789031ED8E05585EBD8DDE90E1700DB6916ABD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +424,8 @@ magnet:?xt=urn:btih:23789031ED8E05585EBD8DDE90E1700DB6916ABD
 magnet:?xt=urn:btih:894A7109C920AE86B3A4569805BEF61DD9948760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +449,8 @@ magnet:?xt=urn:btih:894A7109C920AE86B3A4569805BEF61DD9948760
 ```bash
 magnet:?xt=urn:btih:A831847764FA3A30988C3A6DC58F78C44FBA0DE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +476,8 @@ magnet:?xt=urn:btih:A831847764FA3A30988C3A6DC58F78C44FBA0DE3
 ```bash
 magnet:?xt=urn:btih:1D1491990FA97BC8F3D78049B8EF5BE2F3DA295C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +505,8 @@ magnet:?xt=urn:btih:1D1491990FA97BC8F3D78049B8EF5BE2F3DA295C
 magnet:?xt=urn:btih:2B4C882B832B419C041F4150715BC194CC197F6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +531,8 @@ magnet:?xt=urn:btih:2B4C882B832B419C041F4150715BC194CC197F6D
 magnet:?xt=urn:btih:26C125117166D8688164912BDBBF100EFFCB51F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +556,8 @@ magnet:?xt=urn:btih:26C125117166D8688164912BDBBF100EFFCB51F3
 ```bash
 magnet:?xt=urn:btih:1C2ADC1EE48DD1CC23CC33728F92DFC8F0D32200
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +585,8 @@ magnet:?xt=urn:btih:1C2ADC1EE48DD1CC23CC33728F92DFC8F0D32200
 magnet:?xt=urn:btih:B77D064713B671A50DFEEA1BF734EF72E1E30FC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +610,8 @@ magnet:?xt=urn:btih:B77D064713B671A50DFEEA1BF734EF72E1E30FC1
 ```bash
 magnet:?xt=urn:btih:E44CBD4A5EB51D947A215BF7427CA8ECE5E275B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +637,8 @@ magnet:?xt=urn:btih:E44CBD4A5EB51D947A215BF7427CA8ECE5E275B1
 magnet:?xt=urn:btih:7E45090C371ED249A5707449739304BADD8FDEB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +662,8 @@ magnet:?xt=urn:btih:7E45090C371ED249A5707449739304BADD8FDEB5
 ```bash
 magnet:?xt=urn:btih:4FB4D34AF633F7B7B2AFEBB11BD87D9071BCEAEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,29 +689,7 @@ magnet:?xt=urn:btih:4FB4D34AF633F7B7B2AFEBB11BD87D9071BCEAEF
 magnet:?xt=urn:btih:9D95C13DA9BF6C361824C0ED7C49787D93AE5AC3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132756   (698369) от 10.05.2017
-
-Наташа Закхайм | Все идеи Роберта Кийосаки в одной книге (2017) [FB2, RTF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698369.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Наташа Закхайм – одна из самых успешных учениц Роберта Кийосаки, популярный бизнес-тренер и автор курса по инвестированию. В книге она разбирает основные идеи знаменитого учителя и рассказывает, как они помогли лично ей в достижении целей. Начать применять их вы сможете сразу, ведь перед глазами будет не просто теория, а только самые эффективные и работающие (   Читать дальше...   )Жанр: Общий менеджментФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C719D08AA06B796B3A11B3514A2DB6E33EFAABD6
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

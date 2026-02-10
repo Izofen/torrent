@@ -19,6 +19,8 @@ Plants vs. Zombies 3 20.0.265726 + MOD [En]
 magnet:?xt=urn:btih:C858C6B82D241A4B3D0A756F4D6D2B761B182620
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ The Bat! Voyager - это мобильный почтовый клиент, ко
 magnet:?xt=urn:btih:C28A1BA5B9E119557DCDD0BA9B228907001BA53E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 ```bash
 magnet:?xt=urn:btih:D6B0335512D9C592DB1ACA40639E66B53669E8AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ PyCharm – это самая интеллектуальная Python IDE с п�
 magnet:?xt=urn:btih:9DD48C722DB9B004EFE8FA59C36BE99BFA76B1E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:9DD48C722DB9B004EFE8FA59C36BE99BFA76B1E5
 ```bash
 magnet:?xt=urn:btih:FF638C9C61097F6F7D3A93FFD82F1DD1D46C830A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:FF638C9C61097F6F7D3A93FFD82F1DD1D46C830A
 ```bash
 magnet:?xt=urn:btih:0023569416A112DD8EBD050DCA1B3B9D8D9EF7BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:0023569416A112DD8EBD050DCA1B3B9D8D9EF7BB
 magnet:?xt=urn:btih:70ACCB8D5CA8556D6EF84306849D7660CCE66A0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ MKVToolnix - функциональный набор инструментов д
 ```bash
 magnet:?xt=urn:btih:62FC5D1C70EC539A40196A399BAE4BE48AF638BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:62FC5D1C70EC539A40196A399BAE4BE48AF638BB
 magnet:?xt=urn:btih:70194EDBEBDC884D59EE886CF688B4D5DB591AFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:3EB446E39C5C0B7F7A3BB59AD86C875B47AAA3E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Memory Clean - приложение для оптимизации памяти �
 magnet:?xt=urn:btih:B1A57D9EEB952AF58B767209A150FA9A5C6AF018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ PyCharm - это главная среда разработки Python (инте
 magnet:?xt=urn:btih:9D76D6B978F94A70F664226714B3FBD4EB747128
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:9D76D6B978F94A70F664226714B3FBD4EB747128
 ```bash
 magnet:?xt=urn:btih:F029CF02B03E194FAE664A26F98D3F4F0DDEE3B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ Colossus - Apollo/Riptide (2014) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:70C5A7E3E6E42154E92EA04388D2F27800865351
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:70C5A7E3E6E42154E92EA04388D2F27800865351
 ```bash
 magnet:?xt=urn:btih:F04E56F3DA6E97B91D67A185281D96CA9CA4AF4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ CopyClip 2 - Clipboard Manager 2 v2.9.3 [En]
 magnet:?xt=urn:btih:C7E954436CD7BEF121CEA3F1D3923B274056E51C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ XnViewMP - мощное многофункциональное приложен�
 ```bash
 magnet:?xt=urn:btih:7B0EA9847B58DEF38E2E1DC595F4AB5322B392DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ PDF Eraser Pro - программа для редактирования файл
 magnet:?xt=urn:btih:2CA5F7B891F0A33B19ACD33E55FC19F7C3BB0B03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ VidCoder 2.60 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6456C1787B9FF2D7467FB41C641CEC2A689877A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:6456C1787B9FF2D7467FB41C641CEC2A689877A9
 magnet:?xt=urn:btih:02E804072D2E49B6DF0D842CCDCF4C01220F6BC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:02E804072D2E49B6DF0D842CCDCF4C01220F6BC7
 ```bash
 magnet:?xt=urn:btih:7ED172C9E4595AE3BC6F1A6AFFD252D5006E7176
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ Endurance - это приквел к Ailment (еще одна научно-фа�
 magnet:?xt=urn:btih:305407B53BFBC0835C86C0068ADFA7CCB165DED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:305407B53BFBC0835C86C0068ADFA7CCB165DED1
 ```bash
 magnet:?xt=urn:btih:144BAF8278B3E9049916BDB5493ED9A167A526C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ World Rally Championship 2010 первая игра из серии гоночн
 magnet:?xt=urn:btih:9F9999458C94B1F9C1D5E7C0B0DB83CDDC3E1B10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ The Dwarves (2016) [Ru/Multi] (1.1.2.57) License RELOADED
 magnet:?xt=urn:btih:80444734B1D841760B0CA2B959E44BEE4C934062
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:B3EA27A7F368CF7D385A7B56FE65462BBAD69807
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

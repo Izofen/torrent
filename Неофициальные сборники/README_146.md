@@ -22,6 +22,8 @@ VA - Понемногу отовсюду by Yuridar #O-P-Q (1962-2023) Compilati
 magnet:?xt=urn:btih:4D0E7E5BA8E7D425B45FB967BA7D19226AE15E16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Compilation  part 17 Rock (2023) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:30DECE352B23EB4DEDFC5402AD31C8B96FD25D1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Swing Jazz Wonder Of Romance (2023) [MP3|320 Kbps] <Swing Jazz, Nu Jazz>
 magnet:?xt=urn:btih:25DAAD0769FC083717FB32F7554EFCCB04A8B252
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Vocal Melodic House For U (2023) [MP3|320 Kbps] <Progressive House, Techno 
 ```bash
 magnet:?xt=urn:btih:57B93D0EA59AE93810E29D48336E7B9DA2CD15FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Disco Generation Freedom (2023) [MP3|320 Kbps] <Disco, House, Soulful, Nu-D
 magnet:?xt=urn:btih:C4F69D1510826BD93402DF57F722EDE27F76E329
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Disco Party Weekend Plays (2023) [MP3|320 Kbps] <Indie Dance, Soulful, Disc
 ```bash
 magnet:?xt=urn:btih:B3DBA9059BA3922C04E745054FBC2A53D7110B1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Лучшие рок баллады 20-го века Vol.1 (2023) [MP3|320 K
 magnet:?xt=urn:btih:8C914AAB8BA6DCA789D2D78045D8676642559069
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - The Official UK Top 100 Singles Chart 06-04-2023 [MP3|320 Kbps] <Pop, Dance
 ```bash
 magnet:?xt=urn:btih:2A6A4343E9E6FEC0F96B66A23D9AEA3BB1BE5B3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Weekend Freestyle (2025) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:60937999CC76C8092B1BBA463BC1DA861C5E2EB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Oblivion - Collection (2021) [MP3|320 Kbps] <Spacesynth>
 ```bash
 magnet:?xt=urn:btih:9177B8EB8B543887ACE91EFE403C013FE469CFF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +318,8 @@ VA - Музыкальные летние хиты (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:6368C688259339555DE146404CA966A51F2E1975
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +346,8 @@ John Lee Hooker and John Lee Hooker, Jr. - Best of (1959-2006) Compilation Album
 ```bash
 magnet:?xt=urn:btih:95938193B5D3E98E62157C2F072A6A0677B69FF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +382,8 @@ VA - Trancern 35.1 - Official Compilation (May 2012) [MP3|320 кб/с]<Trance, V
 magnet:?xt=urn:btih:F2186A8661C21703F25C4C34451947C8FEC2827C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +416,8 @@ VA - Ночное движение хитов (2012) [MP3|256-320 кб/с]<Pop, 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +452,8 @@ VA - XXXL Союз: Super новинки 50/50 (2012) [MP3|236-320 кб/с]<Pop,
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +486,8 @@ VA - XXXL Союз: Super новинки 50/50 (2012) [MP3|236-320 кб/с]<Pop,
 ```bash
 magnet:?xt=urn:btih:B8C11B9008EC8D07A5DCEACAF2EA7E737214BF82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +522,8 @@ VA - Клубные Новинки Vol.81 from AGR (2012) [MP3|320 кб/с]<Club
 magnet:?xt=urn:btih:234B09B3FF4D3FF4E5EC9E9CE5032C8D92D3B24E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +556,8 @@ VA - Танцевальная Dискотека from AGR (2012) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:0AD1971A471BAB45B63A6F7D0BE8A782C41555EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +592,8 @@ VA - Зарубежные Новинки Vol.52 from AGR (2012) [MP3|320 кб/с
 magnet:?xt=urn:btih:A10BC05562B60F74099B81E9D8FF33B1842AFA94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +627,8 @@ VA - Sexy Trance #35 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance>
 magnet:?xt=urn:btih:D4E521AB2C7C46BFD2A73832AE806C3C835A4B47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +655,8 @@ VA - National Pop Dance Music Vol.122 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 ```bash
 magnet:?xt=urn:btih:F532839AA67AE66346B667C3A150DC0738B9F134
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +691,8 @@ VA - Fitness Health Creator (2012) [MP3|320 кб/с]<Funky, Club House>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -682,6 +726,8 @@ VA - Euro Football Cup 2012. The Super Goal Compilation (2012) [MP3|320 кб/с]
 magnet:?xt=urn:btih:70C9B9620F4DC13367DD117A5D5A98E1A4CDFEDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -706,6 +752,8 @@ VA - Инструментальная музыка (2012) vol. № 48 [MP3|320 �
 magnet:?xt=urn:btih:827AB9020B919D4DF26F80FF86D4542D0402B7B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -729,6 +777,8 @@ VA - Инструментальная музыка (2012) vol. № 50 [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:F9260C00B67FDF3ECAB9A110C190D6AF5D6533C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -756,6 +806,8 @@ VA - Sexy Bath 7 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:AF6514FBD9B3B44FABAB86203C098961A994E696
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

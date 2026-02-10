@@ -1,3 +1,29 @@
+###  Публикация: 37896   (793148) от 06.04.2017
+
+Истина / фильм о геноциде сербов (2004)
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недавно в белградском Савва-Центре состоялась демонстрация страшного фильма о геноциде сербского народа после распада Югославии. В фильме, названном авторами "Истина", показаны документальные кадры зверств хорватских усташей, боснийских и косовских моджахедов над мирными сербами. Демонстрация фильма вызвала огромный интерес сербской общественности. Зал (   Читать дальше...   )Жанр: документальныйПеревод: Любительский, одноголосыйПродолжительность: 01:01:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29A0B6D41C3CF73C0B9C83AAAD392660874782F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121953   (793237) от 06.04.2017
 
 Иммунитет. Код вечной жизни (2014) HDTVRip [H.264/720p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:96C80F0CAFB652022F0BFFA68BF820AF456720ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:96C80F0CAFB652022F0BFFA68BF820AF456720ED
 magnet:?xt=urn:btih:91EECC6B9C42E7FC6D3F90EE0A47D8A0C202E90B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:91EECC6B9C42E7FC6D3F90EE0A47D8A0C202E90B
 ```bash
 magnet:?xt=urn:btih:6ACFAA3ADCB8C8BD502C8A61BE327436FFA233B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:6ACFAA3ADCB8C8BD502C8A61BE327436FFA233B8
 magnet:?xt=urn:btih:B4DE3611850417BE00B03466FC6DCFF2B1EA3B05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:B4DE3611850417BE00B03466FC6DCFF2B1EA3B05
 magnet:?xt=urn:btih:A4B2B660E53B21784D9CE517D17C15FE7F2B23B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:A4B2B660E53B21784D9CE517D17C15FE7F2B23B2
 ```bash
 magnet:?xt=urn:btih:52686016FED4A5BFFFB80407A9B9291843EC62EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:52686016FED4A5BFFFB80407A9B9291843EC62EF
 magnet:?xt=urn:btih:29AF59F0A6C92506D73C86D1673039EA3F923E68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:29AF59F0A6C92506D73C86D1673039EA3F923E68
 ```bash
 magnet:?xt=urn:btih:ED8BAF6FE94B80306722A76272A4E59989A45B89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:ED8BAF6FE94B80306722A76272A4E59989A45B89
 magnet:?xt=urn:btih:61725A381CFBCE9EA3D1873D07C3C7F426AC3998
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:61725A381CFBCE9EA3D1873D07C3C7F426AC3998
 ```bash
 magnet:?xt=urn:btih:EA0496F69F2C39330585018441851F9B33DC248D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:EA0496F69F2C39330585018441851F9B33DC248D
 magnet:?xt=urn:btih:C78B368C4B07622ED231CAB129CCF04525100279
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:C78B368C4B07622ED231CAB129CCF04525100279
 ```bash
 magnet:?xt=urn:btih:B3DC26D7C943A59EA21B32FD29F01FBFF3D323ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:B3DC26D7C943A59EA21B32FD29F01FBFF3D323ED
 magnet:?xt=urn:btih:C4D1E34460DC9130CF45F580344B6CD1351CAB0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:C4D1E34460DC9130CF45F580344B6CD1351CAB0E
 ```bash
 magnet:?xt=urn:btih:9C8CF9BB3F683905D905788C34A04A728E0E312A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:9C8CF9BB3F683905D905788C34A04A728E0E312A
 magnet:?xt=urn:btih:EA610A5C8AF3064209A604F548C57C7D116F2CCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:EA610A5C8AF3064209A604F548C57C7D116F2CCC
 ```bash
 magnet:?xt=urn:btih:E55F49EF280CC3870C0E4D98342FE956A7EB1380
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:E55F49EF280CC3870C0E4D98342FE956A7EB1380
 magnet:?xt=urn:btih:D16E0B86477326F7DFFAC04A7D19BE308554C9D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:D16E0B86477326F7DFFAC04A7D19BE308554C9D6
 ```bash
 magnet:?xt=urn:btih:EA7E2EA10B77443A00BADFC617416BE069918434
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:EA7E2EA10B77443A00BADFC617416BE069918434
 magnet:?xt=urn:btih:FC26CD4C87AE403916989C37C871F364990F4772
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:FC26CD4C87AE403916989C37C871F364990F4772
 ```bash
 magnet:?xt=urn:btih:DED16EFB4DD86F23189F4229ED574D5CBDD2AD03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:DED16EFB4DD86F23189F4229ED574D5CBDD2AD03
 magnet:?xt=urn:btih:5A5783941E637475A1607FC994DC53396383D0CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:5A5783941E637475A1607FC994DC53396383D0CD
 ```bash
 magnet:?xt=urn:btih:F0C6CD5C7B23408F35674430B58E0114C65FAED3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:F0C6CD5C7B23408F35674430B58E0114C65FAED3
 magnet:?xt=urn:btih:2CCD604EB08EB5128443E6ADEE828589362D7E72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:2CCD604EB08EB5128443E6ADEE828589362D7E72
 ```bash
 magnet:?xt=urn:btih:574F274E7F2BD4FC7736BF42A2E2705F6AFD2B71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:574F274E7F2BD4FC7736BF42A2E2705F6AFD2B71
 magnet:?xt=urn:btih:804AA211EA004055E89AA3E49780CF07F92A0684
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201119   (793952) от 23.01.2018
-
-Сирийские хроники. Военная полиция. Патруль в Алеппо (2017) WEBRip [H.264]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эксклюзивные съемки, интервью, факты и только факты. "Сирийские хроники" охватывают период с осени 2015 года по июнь 2017 года. Героями телепроекта стали жители сирийских городов, представители различных религиозных конфессий, хранители исторического и культурного наследия страны, российские военнослужащие, а также раскаявшиеся боевики, сложившие оружие (   Читать дальше...   )Телекомпания: Россия, Техно 24, ООО «Телеиндустрия», ООО «НКС-Медиа»Жанр: ДокументальныйРежиссер: Максим ИвановПродолжительность: 00:27:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92428983360766DBE91738BAA4980884A2A8F01F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

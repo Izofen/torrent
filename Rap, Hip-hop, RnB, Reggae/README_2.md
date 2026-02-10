@@ -22,6 +22,8 @@ Bob Marley - Greatest Hits (2007) [MP3|320 кб/с]<Reggae>
 magnet:?xt=urn:btih:94D0584F582A444D4C1D52F9822EB09F7FF2EA0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ Prodigy - H.N.I.C. 3 from AGR (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +85,8 @@ Prodigy - H.N.I.C. 3 from AGR (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:0502B31A7DD614A9F7F1902239130A932F5490EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +121,8 @@ magnet:?xt=urn:btih:0502B31A7DD614A9F7F1902239130A932F5490EB
 magnet:?xt=urn:btih:7453DE33C2D8E9DF5EDB1EC3BC3B83DCD148EC59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +149,8 @@ The Greatest Hits Vol.2 (2010)(   Читать дальше...   )Жанр: Rap,
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +185,8 @@ The Greatest Hits Vol.2 (2010)(   Читать дальше...   )Жанр: Rap,
 magnet:?xt=urn:btih:6F669E1F60DCDA098FA2876565B95DD7274522DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +219,8 @@ Nicki Minaj - Pink Friday: Roman Reloaded (2012) (Deluxe Edition) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:D114D5E81865BCDAC9810BAA80D1ED47AFB53529
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +255,8 @@ magnet:?xt=urn:btih:D114D5E81865BCDAC9810BAA80D1ED47AFB53529
 magnet:?xt=urn:btih:DABEBB70E8690300BF4E315AC55F2F2B834884CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +290,8 @@ magnet:?xt=urn:btih:DABEBB70E8690300BF4E315AC55F2F2B834884CA
 magnet:?xt=urn:btih:3CE24B57BEBFA355D829AB23F9BDE6876EC365BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +320,8 @@ Snoop Dogg & Dr. Dre - Missionary (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 magnet:?xt=urn:btih:925A6FBB85ED13186436974D3ACCD1243A8935C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +348,8 @@ Apollo Brown & CRIMEAPPLE - This, Is Not That (2024) [FLAC|Lossless|Web-DL|track
 ```bash
 magnet:?xt=urn:btih:131FC46ADD1BBAD2F907209819FB9892673D1F7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +378,8 @@ Apollo Brown - This Must Be The Place (2022) [FLAC|Lossless|tracks + .cue] <Inst
 magnet:?xt=urn:btih:44B5EBEE0FC088F15D3781C1904C99BC029FFA49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +406,8 @@ Apollo Brown & Planet Asia - Sardines (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-
 ```bash
 magnet:?xt=urn:btih:47855419A001E1E4180804BA42067FB7E80AA129
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +436,8 @@ Apollo Brown & Philmore Greene - Cost of Living (2022) [FLAC|Lossless|Web-DL|tra
 magnet:?xt=urn:btih:ED12E74DD6EBFFCAD5C6AA923BBC89D88CAA52EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +464,8 @@ Apollo Brown & Stalley - Blacklight (2021) [FLAC|Lossless|tracks + .cue] <Hip-Ho
 ```bash
 magnet:?xt=urn:btih:B952FF9B47092ABFAD57175D81A7A9383CD99749
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +494,8 @@ Jim Jones - Pray IV Reign (2009) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rap>
 magnet:?xt=urn:btih:8091BD45C702588A791998A9A97AA0AC477FACF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +522,8 @@ VA - Omakase (2023) Mello Music Group [FLAC|Lossless|tracks + .cue] <Hip-Hop, Ja
 ```bash
 magnet:?xt=urn:btih:66CF94922F03130D12C4898306F97E75DCB83BD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +552,8 @@ Max Lorens - Танцы под луной (2008) [FLAC|Lossless|tracks + .cue] <
 magnet:?xt=urn:btih:8BE6B014D293F4520FC188A78721C1A10E6703B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +580,8 @@ Ice Cube - Man Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
 ```bash
 magnet:?xt=urn:btih:63C4BCD023602DFBCFE5F74E2A40562EBD25843D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +610,8 @@ Denzel Curry - KING OF THE MISCHIEVOUS SOUTH (2024) [FLAC|Lossless|Web-DL|tracks
 magnet:?xt=urn:btih:A21E99675CE49ED6548707B2BDA26FF43E860EA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +638,8 @@ VA - Девчонки R'n'B (2007) [WavPack|Lossless|image + .cue] <Pop Rap, RnB
 ```bash
 magnet:?xt=urn:btih:A63034CD6CE54CDC7761860F9CC33763C6C39B81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +668,8 @@ magnet:?xt=urn:btih:A63034CD6CE54CDC7761860F9CC33763C6C39B81
 magnet:?xt=urn:btih:CE4A2C8BB492FD6608F06C83D2F9C969727CDCAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +696,8 @@ Slim *CENTR - Холодно (2009) [WavPack|Lossless|image + .cue] <Rap, Hardco
 ```bash
 magnet:?xt=urn:btih:E29A410A22D2A68FB4B38977090863B703602BA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -680,6 +726,8 @@ magnet:?xt=urn:btih:E29A410A22D2A68FB4B38977090863B703602BA2
 magnet:?xt=urn:btih:9BCC34D61870776910F2A920ED7772F0DE1EAC4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -707,6 +755,8 @@ magnet:?xt=urn:btih:9BCC34D61870776910F2A920ED7772F0DE1EAC4A
 magnet:?xt=urn:btih:BCECC631A298071A0C220D853324E129CB19597B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -733,6 +783,8 @@ Master Spensor - Чужой (2009) [WavPack|Lossless|image + .cue] <Rap, Hip Hop
 ```bash
 magnet:?xt=urn:btih:B02D0285D00459BAEEDA8C91871EE780C307A2BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

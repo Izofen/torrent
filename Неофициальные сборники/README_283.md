@@ -1,3 +1,32 @@
+###  Публикация: 1406282   (474637) от 03.09.2020
+
+VA - Native American Lounge Bar (2020) 5CD [MP3|320 Kbps] <Native American, Enigmatic, World music>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sacred Spirit - O-Loa-Ki-Lee
+02. Joanne Shenandoah - Tadodaho - Snakes in His Hair
+03. Oliver Shanti & Friends - White Mother Of The Universe
+04. Karunesh - Earthsong(   Читать дальше...   )Жанр: Native American, Enigmatic, World musicПродолжительность: 18:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B44E73B6D81E9B841111758BF57EA6A84DE635E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320127   (475194) от 16.08.2019
 
 VA - Trance Hits: Next Generation (2019) [MP3|320 Kbps] <Trance>
@@ -21,6 +50,8 @@ VA - Trance Hits: Next Generation (2019) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:D6BF3D7B18FFB493BC6FE7C69036EB396AC07CF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Neon Glow: Techno Sound Party (2019) [MP3|320 Kbps] <Techno>
 magnet:?xt=urn:btih:2546425C68D84F70314238C0FEDDABC6E2F9526D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Let The Music Play: Disco-Pop 80s (2016) [MP3|320 Kbps] <Disco-Pop, Italo D
 ```bash
 magnet:?xt=urn:btih:3552B169703F03F6DF5CEEE25A862FF2F2EC695E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Infectious Sounds: Bass Line (2016) [MP3|188-320 Kbps] <Drum and Bass, Dubs
 magnet:?xt=urn:btih:321F50E1537B7195D17206891EB29099A68078FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Лучшие новинки сентября 2015 от Зайцев.Нет 
 ```bash
 magnet:?xt=urn:btih:2FFA81D3A9B209F7107824132AA209C23A753375
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ Disc 01
 magnet:?xt=urn:btih:11DB87C10DF3AC464A1E7327A2B067E0EBECE4BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ Disc 01
 ```bash
 magnet:?xt=urn:btih:8C25932E01B8F3BBD58B249A7B49271F816DA35A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ Disc 01
 magnet:?xt=urn:btih:BFB189008FEFE0C03688E4B2FC69706EDB4EC249
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Не царское это дело - тихо музыку слушать 
 ```bash
 magnet:?xt=urn:btih:FBD216023D6750A79619730D5FB5F50365F0EBD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Top 100 Зайцев.Нет Август 2018 [MP3|320 Kbps] <Pop, Dance, O
 magnet:?xt=urn:btih:FFC076C8E19A62FE648DEAD2DB9AF64CA018DA02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Music compilation September (2015) [MP3|320 кб/с]<House, Electro, Progre
 ```bash
 magnet:?xt=urn:btih:DF992F4D81DD89CE5BCC1616B2CFCFFFB2055D41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - XXXL блатнячок на радио Шансон. Сборник 4 (201
 magnet:?xt=urn:btih:E3DB147B5B296E18C38012C02CF083B42F683790
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - South Beach Vocal Trance Party (2015) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:1EAC4439399F7ADA4BA0C03928FBB07D50140D2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Summer Trance Confession United (2017) [MP3|320 Kbps] <Trance, Melodic, Upl
 magnet:?xt=urn:btih:99AF8A33DCF56043772066C1E7928A6B28B729F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ VA - Lounge At The Seashore 17 (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill
 ```bash
 magnet:?xt=urn:btih:E27D3927B163E46217A89A4F856CF61FE2C12500
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +492,8 @@ VA - Golden Accordion (2012) [MP3|320 кб/с]<instrumental>
 magnet:?xt=urn:btih:CB034ADA9D88F8D983E220F90D213A92D57D5047
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +527,8 @@ VA - RM Electro Sensation Vol.33 (2012) [MP3|320 кб/с]<Electro House, Electro
 magnet:?xt=urn:btih:9CFD3C6F2151DBD9375261A405036BDB2961B4B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +555,8 @@ VA - Impressive Sound 2022.1: Volume V (2022) Compilation [MP3|320 Kbps] <Instru
 ```bash
 magnet:?xt=urn:btih:B9328A9BFEE0853E89B72A83219B87D86C9B6F38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +585,8 @@ VA - Impressive Sound 2022.1: Volume IV (2022) Compilation [MP3|320 Kbps] <Jazz-
 magnet:?xt=urn:btih:4153E3D265FCFD5E71D6A2D46B9DAF0307E40235
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +613,8 @@ VA - Impressive Sound 2022.1: Volume I (2022) Compilation [MP3|320 Kbps] <Progre
 ```bash
 magnet:?xt=urn:btih:4BF379CB5B89F3AFF46CC24315C9B0A0AB4E66EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +643,8 @@ VA - Impressive Sound 2022.1: Volume II (2022) Compilation [MP3|320 Kbps] <Techn
 magnet:?xt=urn:btih:313B25290483F2B6B43BCA32A88A3FE01F221F55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +671,8 @@ VA - Impressive Sound 2022.1: Volume III (2022) Compilation [MP3|320 Kbps] <Post
 ```bash
 magnet:?xt=urn:btih:772D392AB77009FCCD4D26F140F05091B6124571
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +707,8 @@ VA - Главный сборник Радио Шансон 3 (2011) [MP3|128 kbp
 magnet:?xt=urn:btih:54F4422EDB1BE01ECF216E745B35AFDD73537AD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +741,8 @@ VA - DJ Anna Lee - 7 Days Of Love (2005) [MP3|320 кб/с]<Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:8C030CD614FE5C124845A91AF2C7D722A597DDDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -700,32 +777,7 @@ VA - Night Flight (2012) [MP3|320 кб/с]<Vocal Trance>
 magnet:?xt=urn:btih:66E63DAF0A4D314D80D0F4F32D904CADC7919E40
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406188   (476829) от 02.09.2020
-
-VA - Лучшие из лучших Top 100 хитов радиостанций за Август (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476829.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ЛАПКА - Грустный смайл (2:29)
-002. JOVI - Твой рай (3:35)
-003. Anji - Beautiful Eyes (3:09)
-004. Bastard! - F..k That (3:38)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:21:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F2CF986AC1019E356C9E62C64373A4D952E9886
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

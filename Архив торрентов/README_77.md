@@ -19,6 +19,8 @@ LazyMedia Deluxe это Android TV приложение, которое можн
 magnet:?xt=urn:btih:E3BCA207F18AC57B0195C64CC4A3359CBE74A098
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ GPS Эмулятор v3.00 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2C7C04371B21926EC977579689C15B11A2D70E72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Vanced — это модифицированная версия YT, котора
 magnet:?xt=urn:btih:C9F753718B3D921BCF3359E5DABDD6D106866E64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:29FA8530619C103B071FBF7762118432F5398FC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Beyond Compare — мощнейшая программа для сравнени
 magnet:?xt=urn:btih:B9DDEF980874D44A8EE50ED48C229971403249A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ IPTV Pro v9.0.14 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A16B8C20FB634ECA96BCFAB10983AA43C3EF9F19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Soft Organizer - утилита для полного удаления нену�
 magnet:?xt=urn:btih:4B388AE6F199E5DFF69CD27781CAADEAB9FDE0A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:8F6B5DF40A77D6EAA5C07693976C482DCBEB1C82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Reg Organizer® - это многофункциональная программ
 magnet:?xt=urn:btih:0F36184672221D1BFFB75EBCE1AFA5F378CDB03F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ BitComet - это функциональный, быстрый и простой
 ```bash
 magnet:?xt=urn:btih:B4EFA83B5B375BF7243AC06BC3BBBFA8CB3111BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ MediaHuman YouTube Downloader 3.9.10 (1804) RePack (& Portable) by Dodakaedr [Mu
 magnet:?xt=urn:btih:B8F793FAC96648BE2CF68ADB7AAD337FAD2D46D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Media Player Classic Home Cinema – удобный во всех планах �
 ```bash
 magnet:?xt=urn:btih:929FFCA4870F918430F71C430AF0247A39402DA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Steinberg Halion 7 представляет собой программу вир
 magnet:?xt=urn:btih:19E580C899E8EA453EBC4185C6F1418463B06C74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ dBpoweramp Music Converter не пытается завоевать пользо
 ```bash
 magnet:?xt=urn:btih:79CFF5ACA4AAAAC2B245BDD03E3DB9FB08535EA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ MobiOffice - это полнофункциональный офисный пак
 magnet:?xt=urn:btih:859405E887E77DE7EBB6B3FC16CA2E95235FD53E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Reg Organizer® - это многофункциональная программ
 magnet:?xt=urn:btih:D7860154A32AE9F492F17F173F0363E0FA7B2810
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:1246659A1963E431041E86B70CBDCC1C16C511FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Media Player Classic - BE – универсальный проигрывате�
 magnet:?xt=urn:btih:3408E07B339BBCFA5EC426673C4D82858CA70280
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ MediaHuman YouTube Downloader 3.9.10.0 (1804) RePack (& Portable) by elchupacabr
 ```bash
 magnet:?xt=urn:btih:9535AA8D4BFD24E92285F7C025E7F54F810AB276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Athentech Perfectly Clear Complete 4.7.0.2780 RePack (& Portable) by elchupacabr
 magnet:?xt=urn:btih:EB567E471D4045CA8616549B6D4AA0FF4806BC76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Windows Manager - это универсальная утилита для Micros
 ```bash
 magnet:?xt=urn:btih:A30D398AE73E1527693CC3A3BC1994A3348DF263
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Activation Program 1.10 Portable by Ratiborus [En]
 magnet:?xt=urn:btih:7BAE3901CA1AE34878CF1619CD4D5BE6D17B9C66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ AdwCleaner - программа, которая ищет и удаляет ре�
 ```bash
 magnet:?xt=urn:btih:B6324E8322E9C3A6CF792DD0D1224C7AA7D782FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Alfa eBooks Manager - одна из самых популярных програ
 magnet:?xt=urn:btih:F1239732278958BB21AB97BD27A18B5330870228
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ FileZilla - популярный кроссплатформенный FTP кли
 ```bash
 magnet:?xt=urn:btih:8CB0D4D05B3B44D9AA14C24617DC49D30BB39B1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +676,8 @@ StaxRip - инструмент для кодирования видео "все-
 ```bash
 magnet:?xt=urn:btih:894B4AFE47EF9FBD30285E0FAD05FF10FF8BCB77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

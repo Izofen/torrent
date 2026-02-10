@@ -19,6 +19,8 @@ Statue Of Liberty. The Lost Symbol (2014) [En] Unofficial
 magnet:?xt=urn:btih:61F37775C9A6108F303BE831513E857023CA2661
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Immortal Love: Letter From The Past (2015) [En] Unofficial [Collector's Edition 
 ```bash
 magnet:?xt=urn:btih:D860DA552BCF17E8D98EA794D12DADCC9B7C4B67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Secret of the Pendulum (2015) [En] (1.0) Unofficial
 magnet:?xt=urn:btih:F9EEC6B8BC6B8D6C2827BBC4D9D4D4CB2F5437EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Ominous Objects 3: Trail of Time (2015) [En] Unofficial [Collector's Edition / �
 ```bash
 magnet:?xt=urn:btih:CC70E21E24D4ECEA701874AEC75382F12A695449
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ DUSK возвращает вас в мир, где, если вы хотите �
 magnet:?xt=urn:btih:DA634C0BFF118273DE84B79B6066B8ED1B83F2E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Generation Zero (2019) [Ru/Multi] (12431825/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:9FDC0C6B9A5F0E3219E3F9EF67497B2BF848592A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Mothergunship (2018) [Ru/Multi] (1.0.980.203/dlc) License GOG
 magnet:?xt=urn:btih:A3B58B135CF7025DED918D9D466934103C12C084
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Saints Row (2022) [Ru/Multi] (1.6.1.4735700/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:2935FB277EEF57FB0809239C120F6150F1318B34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Executive Assault 2 (2023) [En] (1.0.4.0) Scene Tenoke
 magnet:?xt=urn:btih:CB217D70A14B192CD770588E24CB4D606ED301E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ TT Isle Of Man: Ride on the Edge 3 (2023) [Ru/Multi] (20231109/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:B764C32D55E377231D4C9CFB967B5CC180F02B09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ DYSMANTLE (2021) [Ru/Multi] (1.3.0.55/dlc) Scene Rune
 magnet:?xt=urn:btih:2A48E4756B42A8266188902AF110D271A3AECA64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Project Lazarus является смесью упрощенного рогал�
 ```bash
 magnet:?xt=urn:btih:2F562182B2E62F823FB1FE856169FBE5FEB13842
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ GUNHEAD (2023) [Multi] (1.2) Scene Tenoke
 magnet:?xt=urn:btih:28E93BFCB54AEB06CF1B406B9CADD07DC94463FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Space Tail: Every Journey Leads Home переносит юзеров в косм
 ```bash
 magnet:?xt=urn:btih:40139FDD271E55BC60E5C50E79AC6ADCD90CB32C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Alluna and Brie (2019) [En] (1.0) Scene TinyIso
 magnet:?xt=urn:btih:1783551C4091B0A8D47C1421F3A45C175711384E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Cursed Fables 2: Twisted Tower / Проклятые предания 2: Двул
 ```bash
 magnet:?xt=urn:btih:4A59F0CD0C89AF7625F41230F2B87B830B8F58BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Grim Tales 24: All Shades of Black (2023) [En] (1.0) Unofficial [Collector's Edi
 magnet:?xt=urn:btih:F376AE575070459604E8C5475B39163D950363AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Colony Ship: A Post-Earth Role Playing Game - пошаговая ролевая 
 ```bash
 magnet:?xt=urn:btih:ACF8A8E056192111D6054F1F55162DC0F4C507AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ GUNHEAD (2023) [Multi] (1.2) License GOG
 magnet:?xt=urn:btih:112B5F0D6E7EC68C886A9542D5CCEF02E389D288
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Molten Horn (2023) [En] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:E94E97DAED14F642744080AEEA68C133F4F2F1EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Svoboda 1945: Liberation (2021) [Multi] (1.1) License GOG
 magnet:?xt=urn:btih:4777A99B2D949650C38713ED244C1341C1013D8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Attentat 1942 – исторически точная приключенческ
 ```bash
 magnet:?xt=urn:btih:A897CB321059F22E56310C638FB2DB465EFD6E97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Alexey's Winter: Night Adventure (2021) [Ru/Multi] (Build 10121369) Repack Other
 magnet:?xt=urn:btih:B4B69FF5CD474DDA6B30D26042C5150CB687444D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Christmas Fables: Holiday Guardians / Рождественские Притчи:
 ```bash
 magnet:?xt=urn:btih:EA92C8D016277FC4521D1521DBEFB78622510022
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Frozen Cortex – пошаговая тактическая игра с проц
 magnet:?xt=urn:btih:EB2E1EFAB5E63D4532167C03FF459A8C9A5536CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Serious Sam: Siberian Mayhem (2022) [Ru/Multi] (1.06) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:15BE1085080FABF5603C5EEF995D4DFA16ED5F6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

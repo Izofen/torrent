@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C3E9D4987D1752B77EC1C93D59A7CCD63BFE5EE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:C3E9D4987D1752B77EC1C93D59A7CCD63BFE5EE7
 magnet:?xt=urn:btih:34207924D5280FE859B873A8646BBAB36EE54A8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:34207924D5280FE859B873A8646BBAB36EE54A8E
 ```bash
 magnet:?xt=urn:btih:5B82716CDA8690F1B4D5C1F692021BFE75B8BC1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ Break on Through (To The Other Side)(   Читать дальше...   )Жанр
 magnet:?xt=urn:btih:F69A01E9B3C02E5532865382195E1AFE67BDF4C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ The Doors - Live In Europe - 1968 (DVD5)
 magnet:?xt=urn:btih:D52D60A077A14E44D04F19C2AACD7E38F3E0D3F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:D52D60A077A14E44D04F19C2AACD7E38F3E0D3F4
 magnet:?xt=urn:btih:5A15798FFAD9A0111B593D2173482FACF51D73DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ VA - Live At Knebworth (2002) DVD9 + DVD5
 ```bash
 magnet:?xt=urn:btih:DF6122FCE1F482B2808C06100064D49D51E869D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ Ronnie James Dio - (vocals)(   Читать дальше...   )1. Intro 1.44
 magnet:?xt=urn:btih:9AA55FD84CBEFC4B5B975B0F0D8228262123EE5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ The Doors - 30 Years Commemorative Edition  (2001) DVD9
 ```bash
 magnet:?xt=urn:btih:589FB1AB2367A9CDAFBE5E3C267DD99C8AC10124
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +275,8 @@ Ritchie Blackmore's Rainbow - Black Masquerade (1995) DVD9
 magnet:?xt=urn:btih:3FFEE0281B653F23C3D1895667B389148D94CBF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +304,8 @@ Led Zeppelin - Celebration Day (Live at London O2 Arena 2007) (2012) DVD9
 magnet:?xt=urn:btih:5B4FAE9E91B9102F370B8F678903E733FA16D545
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +329,8 @@ LIVING LOUD - Live Sydney Fox Studios (2004) DVD
 ```bash
 magnet:?xt=urn:btih:98986C43749DD427221F86925ECA0E4E3FCF8489
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +362,8 @@ Tommy Shaw(   Читать дальше...   )Формат: DVD videoКачес�
 magnet:?xt=urn:btih:0E2F0EC619FD6225A9386EAD54EFDC9E883AEED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +390,8 @@ Craig Frost(   Читать дальше...   )Продолжительност�
 ```bash
 magnet:?xt=urn:btih:BA45CC4AD4F07714EFF97A8144F5A690B7B457DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +420,8 @@ Cinderella - In Concert: (1991) Remastered Edition! (2011) DVD9
 magnet:?xt=urn:btih:6515EC24E1EEDCBED3BAE2B9BA1B20397CF55588
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +445,8 @@ Judas Priest - Screaming for Vengeance (Special 30TH Anniversary Edition) (Bonus
 ```bash
 magnet:?xt=urn:btih:8DC4B5BCF539A178F5B5E7A1128C83B9FF065C15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +475,8 @@ METALLICA  -  Cunning stunts (live at Texas, 1997) DVD9+DVD
 magnet:?xt=urn:btih:F9C8252A9AAF282EDCACFC64AED6E44111121AA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +500,8 @@ Metallica - Quebec Magnetic (2012) DVD9+DVD5
 ```bash
 magnet:?xt=urn:btih:14C78EB8BCC94D4E265AEA48FC09BCEDF5AA8ADA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +534,8 @@ Pick Withers: DrumsФормат: DVD VideoКачество: DVD5Продолжи
 magnet:?xt=urn:btih:D1374F61F33AA88C29C02EE406EDD4AFBF295D07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +562,8 @@ Eurythmics Ultimate Collection  (2005) DVD5
 magnet:?xt=urn:btih:E22B95AD279DE9D61647D9526254C5F07D473879
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +587,8 @@ magnet:?xt=urn:btih:E22B95AD279DE9D61647D9526254C5F07D473879
 ```bash
 magnet:?xt=urn:btih:85196DF50D3B7CF2033AA29665445E3FC0B6F543
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +615,8 @@ magnet:?xt=urn:btih:85196DF50D3B7CF2033AA29665445E3FC0B6F543
 ```bash
 magnet:?xt=urn:btih:9EAA0648857E2F1FFE639D669363255F4DFCC553
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +645,8 @@ Nothing Else Matters 6:24(   Читать дальше...   )Жанр: Thrash Me
 magnet:?xt=urn:btih:C13D03A5F1BE0C28C6CFA302237E5DFF8B813BD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +670,8 @@ Metallica - Live Shit: Binge & Purge (San Diego 1992 & Seattle 1989) (2002) (2xD
 ```bash
 magnet:?xt=urn:btih:047E94687EC9E03B97968B762BA2275D106A5963
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +701,8 @@ Deep Purple - Live In California 74 это пожалуй самый гранд�
 magnet:?xt=urn:btih:62BA483B9D5F5611812CF47C830B9F316CA989E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -680,6 +730,8 @@ Vaya Con Dios - the ultimate collection (2006) DVD5
 ```bash
 magnet:?xt=urn:btih:AFC0096427052FE6DEA688F758794FB3FE9777A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

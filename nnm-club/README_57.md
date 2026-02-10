@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:72043A2E2EAA7657FDC97D8E2321DA0A4F9ECFCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Uglymug, Epicfighter | Busamen Gachi Fighter | Всё тот же невзрач
 ```bash
 magnet:?xt=urn:btih:7C2DAA25E3448D464B6AD60C18BBDA7A9567153F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Arctic Monkeys - AM (2013) [FLAC|tracks + .cue]<Indie Rock>
 magnet:?xt=urn:btih:9BD61A03AE18CDF7B5E32F7690AD09EB80710D2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:9BD61A03AE18CDF7B5E32F7690AD09EB80710D2A
 ```bash
 magnet:?xt=urn:btih:3DBE2CBC17DE4BCC6B36FA2BCD60D453848D7515
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:3DBE2CBC17DE4BCC6B36FA2BCD60D453848D7515
 magnet:?xt=urn:btih:0EB8D1E9A06AAB8B222764E8782322BC0BF49B5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:0EB8D1E9A06AAB8B222764E8782322BC0BF49B5B
 ```bash
 magnet:?xt=urn:btih:8833A1DE84D603BA1FB18635C8902713CB49EE3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:8833A1DE84D603BA1FB18635C8902713CB49EE3E
 magnet:?xt=urn:btih:0DFEA83DB17DE0BDA1289F2181A6414A2881539A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:0DFEA83DB17DE0BDA1289F2181A6414A2881539A
 ```bash
 magnet:?xt=urn:btih:50C25EA3A20E090640083B20D6EFF2285BBE769C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:50C25EA3A20E090640083B20D6EFF2285BBE769C
 magnet:?xt=urn:btih:0838DA412C46D8BF2A13381FC7C24A4D9BB2F55A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Topaz Gigapixel – это ведущий в отрасли, ИИ-усилите
 ```bash
 magnet:?xt=urn:btih:6F89727F7D8101B27912607131A7E3171387CBCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:6F89727F7D8101B27912607131A7E3171387CBCC
 magnet:?xt=urn:btih:F429885AD2C3295979F6FA501D7E3B0EA763049D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Dekin no Mogura | The Earthbound Mole | Запрещённый крот [2025, T
 ```bash
 magnet:?xt=urn:btih:F4709E9B18A28E4282249024808B7D5DFB74FDE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:F4709E9B18A28E4282249024808B7D5DFB74FDE9
 magnet:?xt=urn:btih:A737682F85A58C0013977102568BE75DD7F099EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Jigoku Sensei Nube (2025) | Hell Teacher | Адский учитель Нубэ 
 ```bash
 magnet:?xt=urn:btih:B5AA76B553F3C43509F1A91FD5BD3D4A0E24A1EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Hell is Us - это приключенческий экшен от третье�
 magnet:?xt=urn:btih:75158107F16DB95827147CFD2F097364335F0BA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:75158107F16DB95827147CFD2F097364335F0BA4
 ```bash
 magnet:?xt=urn:btih:B120994B9141DA761030A4551340419AD5FBD9F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:B120994B9141DA761030A4551340419AD5FBD9F7
 magnet:?xt=urn:btih:82A353611851DCD138ED54D9C09F74E5F4669AFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:82A353611851DCD138ED54D9C09F74E5F4669AFB
 ```bash
 magnet:?xt=urn:btih:87C032C45C7FA12F58BCA0891B3C9FEEAB6C064C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:87C032C45C7FA12F58BCA0891B3C9FEEAB6C064C
 magnet:?xt=urn:btih:409CAA07453A0CDEC13F577BB231438A3EF028C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ BeamNG.drive – автосимулятор, моделирующий повед
 ```bash
 magnet:?xt=urn:btih:3A089DC14C876056BB43CDFA67FD21594C95E941
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ GoodbyeDPI 0.2.3rc3 Launcher 10.1 [Ru/En]
 magnet:?xt=urn:btih:52F3005782FC6FB8E7D639BE947472F99246B65C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:52F3005782FC6FB8E7D639BE947472F99246B65C
 magnet:?xt=urn:btih:C68A01D2BEE366D660F253630BFDC9BFE2456E13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ Dan Da Dan (2025) | Дандадан [ТВ-2] [2025, TV, 12 из 12] WEBRip 720p
 ```bash
 magnet:?xt=urn:btih:DC15C3CD06D88A596134D179C789A84C7AEDD60B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:DC15C3CD06D88A596134D179C789A84C7AEDD60B
 magnet:?xt=urn:btih:DDF227DE9D87BC2AD7AE56543B03EB10EA1BBB01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:DDF227DE9D87BC2AD7AE56543B03EB10EA1BBB01
 ```bash
 magnet:?xt=urn:btih:5E268A0A9DB7105B6D19C08D66DA1043307446C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:5E268A0A9DB7105B6D19C08D66DA1043307446C3
 ```bash
 magnet:?xt=urn:btih:2F05B71C95A16C25F0B7056AF1AE560BD9703532
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

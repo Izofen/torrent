@@ -1,3 +1,29 @@
+###  Публикация: 1169457   (403144) от 27.09.2017
+
+Борис Сырков | Прослушка. Предтечи Сноудена (2013) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разоблачения сотрудника американских спецслужб Эдварда Сноудена покажутся детским лепетом по сравнению с фактами, изложенными в этой книге. В ней перед читателем в строгом хронологическом порядке предстает мировая история разведки средствами связи. Детально прослеживается, как из экзотической разновидности разведывательной деятельности, какой она была в начале прошлого (   Читать дальше...   )Жанр: История, СпецслужбыФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA2249DBE2D06DC97BFD73D7D09BA172AA3AC4ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169200   (403177) от 27.09.2017
 
 Михаил Докучаев | Я охранял Брежнева и Горбачева. Откровения генерала КГБ (2016) [FB2, EPUB]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:2E0D78E682A2DDE8FDACCE53534EA485D7C1F85C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:2E0D78E682A2DDE8FDACCE53534EA485D7C1F85C
 magnet:?xt=urn:btih:B256A56547C46C678A5DD6B5BEB2AD4F1CF7B573
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:B256A56547C46C678A5DD6B5BEB2AD4F1CF7B573
 ```bash
 magnet:?xt=urn:btih:097B7BF8AF1E42E90825833C988C7874DA0F558C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +128,8 @@ magnet:?xt=urn:btih:097B7BF8AF1E42E90825833C988C7874DA0F558C
 magnet:?xt=urn:btih:F259ADC13B3C0E9C09EA8DC631AD87F5D4EFB58D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:F259ADC13B3C0E9C09EA8DC631AD87F5D4EFB58D
 ```bash
 magnet:?xt=urn:btih:72D69ABBBA198631A1DD72BF21AF7D90E1B48D3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +182,8 @@ magnet:?xt=urn:btih:72D69ABBBA198631A1DD72BF21AF7D90E1B48D3A
 magnet:?xt=urn:btih:DE5862FDFF3B9E7A1B439C1AB52BCA6D36536751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +208,8 @@ magnet:?xt=urn:btih:DE5862FDFF3B9E7A1B439C1AB52BCA6D36536751
 ```bash
 magnet:?xt=urn:btih:E451969E598481B751944A915BCABCE7E0271CDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +236,8 @@ magnet:?xt=urn:btih:E451969E598481B751944A915BCABCE7E0271CDB
 magnet:?xt=urn:btih:1DF0030E3929625CBD777C7F78BD2638414BAFA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +262,8 @@ magnet:?xt=urn:btih:1DF0030E3929625CBD777C7F78BD2638414BAFA3
 ```bash
 magnet:?xt=urn:btih:8A74CD1E6FB0422AB5E1141B5D33939E3E8F388A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +291,8 @@ magnet:?xt=urn:btih:8A74CD1E6FB0422AB5E1141B5D33939E3E8F388A
 magnet:?xt=urn:btih:BE118D010EB0A81C5DF4510F997F0806CB22D3F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +317,8 @@ magnet:?xt=urn:btih:BE118D010EB0A81C5DF4510F997F0806CB22D3F7
 ```bash
 magnet:?xt=urn:btih:E5FBC7C1FACC6C9332A7FFDCE864464B0E5924F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +345,8 @@ magnet:?xt=urn:btih:E5FBC7C1FACC6C9332A7FFDCE864464B0E5924F1
 magnet:?xt=urn:btih:DAB3F4C14CCB1CA4BAEC43B123A4039E26D9DAFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +370,8 @@ magnet:?xt=urn:btih:DAB3F4C14CCB1CA4BAEC43B123A4039E26D9DAFD
 ```bash
 magnet:?xt=urn:btih:6DE5597BFF1CEDB99A4D1A53EA2D449B3B14F041
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +398,8 @@ magnet:?xt=urn:btih:6DE5597BFF1CEDB99A4D1A53EA2D449B3B14F041
 magnet:?xt=urn:btih:7A5B33677D2B9A0DCC4F3E20765D0547317FF188
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +423,8 @@ magnet:?xt=urn:btih:7A5B33677D2B9A0DCC4F3E20765D0547317FF188
 ```bash
 magnet:?xt=urn:btih:4F54A2AF3A65F60DB6D075F247575D0A6A249926
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +453,8 @@ magnet:?xt=urn:btih:4F54A2AF3A65F60DB6D075F247575D0A6A249926
 magnet:?xt=urn:btih:DA5CBF82B8FD5224316AD7625698A573DADB1012
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +478,8 @@ magnet:?xt=urn:btih:DA5CBF82B8FD5224316AD7625698A573DADB1012
 ```bash
 magnet:?xt=urn:btih:09F0E419BE4B2DBEAB221616BC5ABC626E4653B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +507,8 @@ magnet:?xt=urn:btih:09F0E419BE4B2DBEAB221616BC5ABC626E4653B4
 magnet:?xt=urn:btih:B51400D2006445349C52262EF61BA45CBBC22861
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +533,8 @@ magnet:?xt=urn:btih:B51400D2006445349C52262EF61BA45CBBC22861
 ```bash
 magnet:?xt=urn:btih:B6C4AD825494FDE6732FD8F7ED7C8E2BFEB4CE96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +562,8 @@ magnet:?xt=urn:btih:B6C4AD825494FDE6732FD8F7ED7C8E2BFEB4CE96
 magnet:?xt=urn:btih:D4894BCBA3B545DF876DFD9CDA89FC24603C236C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +588,8 @@ magnet:?xt=urn:btih:D4894BCBA3B545DF876DFD9CDA89FC24603C236C
 ```bash
 magnet:?xt=urn:btih:695D8CA01ED394B37376079E9D4C5B5E7F5DC154
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +617,8 @@ magnet:?xt=urn:btih:695D8CA01ED394B37376079E9D4C5B5E7F5DC154
 magnet:?xt=urn:btih:D597659AF48E0FCDCA27B0F1A491CD5A288FD62F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +644,8 @@ magnet:?xt=urn:btih:D597659AF48E0FCDCA27B0F1A491CD5A288FD62F
 ```bash
 magnet:?xt=urn:btih:7AF225E816504ED86978F83F662207023EFDD866
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +674,8 @@ magnet:?xt=urn:btih:7AF225E816504ED86978F83F662207023EFDD866
 magnet:?xt=urn:btih:298F49062322CFCE035ADCF7EED30BD1050DFA8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,32 +700,7 @@ magnet:?xt=urn:btih:298F49062322CFCE035ADCF7EED30BD1050DFA8F
 magnet:?xt=urn:btih:E430856A18650833016541BD5C488D365535D763
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168724   (404894) от 25.09.2017
-
-Татьяна Шишкина | #Умные женщины не спят в одиночку, или Как сорвать джек-пот в личной жизни (2017) [FB2, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Татьяна Шишкина – психолог-консультант, автор нескольких книг об отношениях и целого ряда статей в глянцевых журналах.
-Создательница «Школы Лучших Женщин», более 8000 выпускниц которой обрели свое женское счастье.
-Как из миллиона мужчин выбрать САМОГО-САМОГО, чтобы стать единственной, ненаглядной и обожаемой?
-Каких мужчин надо обходить стороной, а к каким можно падать (   Читать дальше...   )Жанр: Психология семьиФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE45CEDB1EF1C66F3C6031478F139D87088A15D5
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

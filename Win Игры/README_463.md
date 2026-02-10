@@ -1,27 +1,3 @@
-###  Публикация: 1280522   (760330) от 03.02.2019
-
-Haunted Train 3: Clashing Worlds / Поезд привидений 3: Столкновение миров (2016) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра, завершающая трилогию Haunted Train/Поезд привидений. Странные сверхъестественные явления стали происходить в Амстердаме, что привело к многочисленным жертвам. События развиваются с неимоверной скоростью и грозят перерасти во вселенский катаклизм. Харон немедленно отправляется в эпицентр бедствия, сопровождаемый верным спутником Даниэлем. Мир сотрясается от (   Читать дальше...   )Тип издания: UnofficialРазработчик: Deep ShadowsЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A1CA812F7112F17E0A2F2C1C4B9CC3A0D330199
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280410   (760527) от 03.02.2019
 
 Dark City: London (2017) [En] (1.0) Unofficial [Collector's Edition]
@@ -42,6 +18,8 @@ Dark City: London (2017) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:01D341955DFFED8A4447DB346551348873324D93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Beyond the Invisible 2: Darkness Came (2017) [En] (1.0) Unofficial [Platinum Edi
 magnet:?xt=urn:btih:CFE118740176B2D42F25FD92694E4902FA9057F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Danganronpa 2: Goodbye Despair является продолжением Danganr
 ```bash
 magnet:?xt=urn:btih:BD86983A370A1E3C1AAE0804302C9774574565BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Panzer Elite Action - Dunes of War (2007) [Ru] (1.44.12) Repack =nemos=
 magnet:?xt=urn:btih:5AD2E547D239AB380CF152610ABFBC8217BAE754
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ The Song of Seven покажет игрокам необычный мир и р�
 ```bash
 magnet:?xt=urn:btih:D4C19FD30EECD62383475ED7BA0E42CB5EE87480
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Shadwen, нервная игра о ремесле средневекового 
 magnet:?xt=urn:btih:5969A453F49D579AE3BB90EA757576126ACB8827
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ Insane Decay of Mind – хоррор с видом от первого лица
 magnet:?xt=urn:btih:843B0721B8196DA0E4FD8C7B032B4DD6252CE894
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +200,8 @@ Dark Romance 4: Kingdom Of Death / Мрачная история 4: Загово
 ```bash
 magnet:?xt=urn:btih:F228F9EAEA3E1FB8912676258C709CB6AB9F338B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:F228F9EAEA3E1FB8912676258C709CB6AB9F338B
 magnet:?xt=urn:btih:19520F70CBE98558D5ECE22AF40ACB1B56014C8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +254,8 @@ Redemption Cemetery 8: At Death's Door (2016) [En] (1.0) Unofficial [Collector's
 magnet:?xt=urn:btih:02AC64A465B8BA3ADD6EEA1FCFC5E1283D9A4243
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ Mars Taken - шутер от третьего лица, основанный н�
 ```bash
 magnet:?xt=urn:btih:8F8FCE14A60CB588C44ADF9C55F304839E382059
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +308,8 @@ ShellShock Дилогия [Ru] (RePack) 2004-2009 | tukash
 magnet:?xt=urn:btih:7CEB95ADCEF027DB32C55642761E14EC72915938
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +333,8 @@ Arc Savior (2019) [En] (1.01) License CODEX
 ```bash
 magnet:?xt=urn:btih:3DBCF3A0E06FD0EA63B3721522C3C8CE9ACAD49F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +360,8 @@ Not in Heaven – это сюрреалистичное приключение �
 magnet:?xt=urn:btih:7E89DF01EFE6FA92773DB7C86A4945CF25359092
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +385,8 @@ Charterstone (2020) [Multi] (1.2.7) License GOG [Digital Edition]
 ```bash
 magnet:?xt=urn:btih:2D66F7A2214E7C15E871122D7CB029D6E07680DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +412,8 @@ Gigapocalypse (2021) [Multi] (1.9.81) License GOG
 magnet:?xt=urn:btih:71E9535A1730E626B942E5AE1EA4E82026ED036D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +437,8 @@ Riddlord: The Consequence (2019) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:2F219CF58DAE9A2F6E7DED6A1FCBC391EDBDA2EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +464,8 @@ Armored Evolution (2019) [En] (2.0.b) License PLAZA
 magnet:?xt=urn:btih:C73B88C6AD1A4CEE42F66ADF88B5E958386D3828
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +489,8 @@ final m00n - Defender of the Cubes — это игра в жанре аркад�
 ```bash
 magnet:?xt=urn:btih:5289B5158821548BC2262467C82207821A3318C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +517,8 @@ Adam’s Venture: Origins – новое прочтение серии игр о
 magnet:?xt=urn:btih:2373056C4024475BFCC67ED9EAD9FCDA800578AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +542,8 @@ Contract with the Devil (2015) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3AB6A1600C90B742D2016EB5DDFA4F321A6B8B2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +569,8 @@ Queen's Tales 2: Sins of the Past (2015) [En] Unofficial [Collector's Edition / 
 magnet:?xt=urn:btih:2EB80CCD4F89946225EEED7B5D6DF8107571AC9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +594,8 @@ Enoch: Underground (2018) [Ru/En] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:FB01E2AB7FF9F30727E03DB571A312DF69077203
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +621,8 @@ Chronicles of Magic: Divided Kingdoms / Магические Хроники: Р�
 magnet:?xt=urn:btih:8FDED447909741C597C739B927D1FD7B77447C49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +646,34 @@ Re-Legion (2019) [Ru/Multi] (1.0.0.194-j) License CODEX
 ```bash
 magnet:?xt=urn:btih:11F6E851FC8417F6470EA74E303300D79A70E5FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279938   (763201) от 01.02.2019
+
+Warhammer Quest 2: The End Times (2019) [Ru/Multi] (1.0) Repack xatab
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763201.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Warhammer Quest 2: The End Times вы проведете свой отряд через объятые войной земли и отправитесь в подземелье за славой и сокровищами! Мечом, стрелами и заклинаниями пробивайтесь сквозь ряды порождений Хаоса, которые грозят миру Warhammer.Тип издания: RepackРазработчик: PerchangЖанр: 3D, StrategyЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8463FF1C42CC76C4488AD645E68E82645C30E7D7
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

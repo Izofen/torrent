@@ -1,3 +1,57 @@
+###  Публикация: 570918   (389902) от 05.11.2012
+
+Аквариумные впечатления / Aquarium Impressionen (2012) [H.264/1080p-LQ] BDRip
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_389902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в мир виртуального аквариума со всеми морскими обитателями, который будет
+находится у вас дома столько времени сколько вы захотите.Жанр: Документальный, релаксПеревод: Не требуется (нет диалогов и комментариев)Продолжительность: 01:06:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA32B392E7C7AD3C0A4BD658CCCBB1A97BC3829F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569791   (390138) от 05.11.2012
+
+Ватикан / The Vatican city (2011) DVDRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_390138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм состоит из 3 частей. Ватикан (части 1 и 2) и Папский дворец. В них рассказывается о достопримечательностях и красотах Ватикана. На видео Вы увидите:
+Ватикан: Basilica of Saint Peter * Pieta by Michelangelo * Sistine Chapel * Raphael's School of Athens * Papal Audience * и т.д...Жанр: ДокументальныйРежиссер: Лука де Мата / Luka de MataПеревод: Одноголосый закадровый, профессиональный (Евгений Вагин)Продолжительность: 01:21:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9142418EB93166FDEE14B9A9A4682F0BD187B1E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 570393   (390145) от 05.11.2012
 
 Пятое клеймо (2001) TVRip
@@ -18,6 +72,8 @@
 ```bash
 magnet:?xt=urn:btih:36FE6BD9F431E1C912B906CFA6E92CE8CB83BCB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +99,8 @@ magnet:?xt=urn:btih:36FE6BD9F431E1C912B906CFA6E92CE8CB83BCB6
 magnet:?xt=urn:btih:0ACA72DBE82DC86B923680077DEFAD411E5851FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +124,8 @@ magnet:?xt=urn:btih:0ACA72DBE82DC86B923680077DEFAD411E5851FE
 ```bash
 magnet:?xt=urn:btih:A312AA237A99029E56EA8E56623D5DE2A758772F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +152,8 @@ magnet:?xt=urn:btih:A312AA237A99029E56EA8E56623D5DE2A758772F
 magnet:?xt=urn:btih:A55E36E31F610A59147BCAAFE9676B4D44AB5FFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +177,8 @@ magnet:?xt=urn:btih:A55E36E31F610A59147BCAAFE9676B4D44AB5FFA
 ```bash
 magnet:?xt=urn:btih:BD3C86E8DC69083CE743A5352FA0786DCA402CAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +204,8 @@ magnet:?xt=urn:btih:BD3C86E8DC69083CE743A5352FA0786DCA402CAE
 magnet:?xt=urn:btih:D163E33CF0E1EEC63ADAC8C456FACED89D6B6AE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +229,8 @@ magnet:?xt=urn:btih:D163E33CF0E1EEC63ADAC8C456FACED89D6B6AE9
 ```bash
 magnet:?xt=urn:btih:89C3F25ED57C7E2954E312586A1FD614F1E1EAB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +256,8 @@ magnet:?xt=urn:btih:89C3F25ED57C7E2954E312586A1FD614F1E1EAB7
 magnet:?xt=urn:btih:F24E739DF29520FEDE15F1376CBCBF39A8A1AE9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +281,8 @@ magnet:?xt=urn:btih:F24E739DF29520FEDE15F1376CBCBF39A8A1AE9A
 ```bash
 magnet:?xt=urn:btih:D9D7D08B1EE8AED91D62546080D3AAFE404FCCF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +308,8 @@ magnet:?xt=urn:btih:D9D7D08B1EE8AED91D62546080D3AAFE404FCCF8
 magnet:?xt=urn:btih:4E1C93A1055834D5AF299C43FE0048F83D4C96E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +333,8 @@ magnet:?xt=urn:btih:4E1C93A1055834D5AF299C43FE0048F83D4C96E6
 ```bash
 magnet:?xt=urn:btih:95C390A854F0545B452571FED9BF02F97CE68947
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +360,8 @@ magnet:?xt=urn:btih:95C390A854F0545B452571FED9BF02F97CE68947
 magnet:?xt=urn:btih:84585F7399F7CE25887E6F813E2B950BAC93CC53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +386,8 @@ magnet:?xt=urn:btih:84585F7399F7CE25887E6F813E2B950BAC93CC53
 magnet:?xt=urn:btih:912D51C898EC4A2E6BC14F886D88928F48E4FCFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +411,8 @@ magnet:?xt=urn:btih:912D51C898EC4A2E6BC14F886D88928F48E4FCFB
 ```bash
 magnet:?xt=urn:btih:9F50425D2E609E03193051B51D092EC9C5150C27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +440,8 @@ magnet:?xt=urn:btih:9F50425D2E609E03193051B51D092EC9C5150C27
 magnet:?xt=urn:btih:1EE52A0263EB52E426B243CD80A0FC0836069A39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +465,8 @@ magnet:?xt=urn:btih:1EE52A0263EB52E426B243CD80A0FC0836069A39
 ```bash
 magnet:?xt=urn:btih:02598A14F470BCF8391972DDA623454D7863223C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +492,8 @@ magnet:?xt=urn:btih:02598A14F470BCF8391972DDA623454D7863223C
 magnet:?xt=urn:btih:35D8AD41C56D3950368665CDDE474C35844F6493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +518,8 @@ magnet:?xt=urn:btih:35D8AD41C56D3950368665CDDE474C35844F6493
 magnet:?xt=urn:btih:FCA301DAB4D1E596E1FD290559C7E5DDB8066325
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +543,8 @@ magnet:?xt=urn:btih:FCA301DAB4D1E596E1FD290559C7E5DDB8066325
 ```bash
 magnet:?xt=urn:btih:F3D269692CFC72F47E6A7C4602AAD9089C91D3DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +571,8 @@ magnet:?xt=urn:btih:F3D269692CFC72F47E6A7C4602AAD9089C91D3DB
 magnet:?xt=urn:btih:BE4921BEB6476F3601FB5E97CE995631CEB6B684
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +597,8 @@ magnet:?xt=urn:btih:BE4921BEB6476F3601FB5E97CE995631CEB6B684
 magnet:?xt=urn:btih:90EA96539707AB6E87BCF8A111758693C7B4A47A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +622,8 @@ magnet:?xt=urn:btih:90EA96539707AB6E87BCF8A111758693C7B4A47A
 ```bash
 magnet:?xt=urn:btih:40B381778D49084465766AB2D98C4B3554B249C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +650,8 @@ magnet:?xt=urn:btih:40B381778D49084465766AB2D98C4B3554B249C5
 magnet:?xt=urn:btih:82EF3B8B363C077426A64B1394CDD5B9D301774F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,56 +676,7 @@ magnet:?xt=urn:btih:82EF3B8B363C077426A64B1394CDD5B9D301774F
 magnet:?xt=urn:btih:9639B6ABCBC66D4D797D85FCF56C2E290DAC6106
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172600   (393123) от 08.10.2017
-
-Лучше всех (2017.10.08) SATRip (сезон 3, выпуск 4)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое детское телевизионное шоу талантов, куда приглашаются юные участники от трех до 12 лет. Если ваш ребенок проявляет экстраординарные способности, то его ждут в нашем шоу!Телекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 01:17:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ABA158ED9502C66C64E63485AB05379F14E07ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172401   (393183) от 08.10.2017
-
-Бесогон ТВ. Ах, санкции, санкции (21.03.2015) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторская Программа Никиты Михалкова Бесогон TV на канале Россия 24 выходит 1 или 2 раза в месяц.
-Цель этого авторского канала, - поделится мыслями и опровергнуть домыслы появляющиеся в сети и не отражающие истинного мнения автора передачи, - Никиты Михалкова о том или ином событии.
-Темы выпусков самые разные, но доминируют политика и общество.
-(   Читать дальше...   )Телекомпания: Россия 24Жанр: Телепередача, общественно-политическая программаПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:643B4694E2AE5A1ABD16B4F690332DBCDCC7B240
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

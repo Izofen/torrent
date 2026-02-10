@@ -21,6 +21,8 @@ Treasure Trap [En] (RePack) 1990 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Treasure Trap [En] (RePack) 1990 | Pilotus
 ```bash
 magnet:?xt=urn:btih:6B2B659C7D272CDA9FE2DA4AED10A0B9C21DE433
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:6B2B659C7D272CDA9FE2DA4AED10A0B9C21DE433
 magnet:?xt=urn:btih:2627ECA283E5F6CCA59F32603B93CC65E4D44D32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:2627ECA283E5F6CCA59F32603B93CC65E4D44D32
 ```bash
 magnet:?xt=urn:btih:4D0E299E21233CE8DE5475C75489A5FFB7D82E11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:4D0E299E21233CE8DE5475C75489A5FFB7D82E11
 ```bash
 magnet:?xt=urn:btih:EEDA0DE974EBCEB6147FA4D0D9F4B1CA49EE12E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ VA - Deep House Lessons Vol. 2 (2012) [MP3|320 кб/с]<Deep House>
 magnet:?xt=urn:btih:CF6F59104FEF691EF56BB175AF2E5CAAE0412DC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ Mono — британский поп-дуэт, прославившийся в �
 magnet:?xt=urn:btih:467D8C1853B729207FAE3867ED823717138A0936
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:467D8C1853B729207FAE3867ED823717138A0936
 ```bash
 magnet:?xt=urn:btih:EDA242FB320FDC346D5674FD783150F7CA38007F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -230,6 +246,8 @@ magnet:?xt=urn:btih:EDA242FB320FDC346D5674FD783150F7CA38007F
 magnet:?xt=urn:btih:0B4BE56DE9B33A5FC206B8675F0D7A0ACE27179F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:0B4BE56DE9B33A5FC206B8675F0D7A0ACE27179F
 ```bash
 magnet:?xt=urn:btih:2152D8A70268FC37330C6223B0DBBE1AF7A4816E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +300,8 @@ magnet:?xt=urn:btih:2152D8A70268FC37330C6223B0DBBE1AF7A4816E
 magnet:?xt=urn:btih:E322F8DA269004E6E66AF5527C627B4600AB0DE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +327,8 @@ magnet:?xt=urn:btih:E322F8DA269004E6E66AF5527C627B4600AB0DE3
 magnet:?xt=urn:btih:737063026B213148FADF7A9ECE71502705C57F8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ magnet:?xt=urn:btih:737063026B213148FADF7A9ECE71502705C57F8F
 ```bash
 magnet:?xt=urn:btih:398DBEF1E2E0913A76F3A0CF57659DA7C1A6DCF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +387,8 @@ Digicult - The Lucid Nation (2012) [MP3|320 кб/с]<Psychedelic / Full On>
 magnet:?xt=urn:btih:D703B1E721356663D9747B46B11F5C16787404B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +412,8 @@ magnet:?xt=urn:btih:D703B1E721356663D9747B46B11F5C16787404B3
 ```bash
 magnet:?xt=urn:btih:B8BF43645DB5EA2474C6182DF50BA1FCB66FA771
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +448,8 @@ VA - Cari Lekebusch Archeology Exc.1 (2012) [MP3|320 кб/с]<Techno>
 magnet:?xt=urn:btih:901AEB8A238190087EB32996ABC8A184162188F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +477,8 @@ Rootkit (по-русски, "руткит") — программа или наб
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ Sven Wittekind - Broken Mirrors (2012) [MP3|320 кб/с]<Techno>
 magnet:?xt=urn:btih:52483103D1AB25768C4B217A7A1C09712A9B9940
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +537,8 @@ magnet:?xt=urn:btih:52483103D1AB25768C4B217A7A1C09712A9B9940
 ```bash
 magnet:?xt=urn:btih:0861B6776C345B8793AA167D9943CD2822A767E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +569,8 @@ DJ Alex Spark - Made In Russia ver.2 (2012)
 magnet:?xt=urn:btih:252BA809948E492C219885559C86354E7C32E2C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +600,8 @@ Noisia & Phace & The Upbeats - Imperial EP (Vision VSN012, 2012) [MP3|320 кб/�
 magnet:?xt=urn:btih:B9F4819018CECD371B35A21800626639F8F06021
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +627,8 @@ magnet:?xt=urn:btih:B9F4819018CECD371B35A21800626639F8F06021
 ```bash
 magnet:?xt=urn:btih:CF6F7968E3A1F7380733B543CF54200F1CBB83C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +656,8 @@ magnet:?xt=urn:btih:CF6F7968E3A1F7380733B543CF54200F1CBB83C2
 magnet:?xt=urn:btih:0088C80F4BD5B6BD8AEAEF7A9179C0312D793897
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +682,8 @@ NG: Как Нерон спас Рим / How Nero saved Rome (2009) SATRip
 magnet:?xt=urn:btih:8C5D3457E63A30FF174464C41F8A395C6DA77452
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +707,8 @@ magnet:?xt=urn:btih:8C5D3457E63A30FF174464C41F8A395C6DA77452
 ```bash
 magnet:?xt=urn:btih:4DAB7A5B42A16A08E559F21115639D7CC229EDC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -692,6 +742,8 @@ Armin Van Buuren - A State Of Trance 561 (17.05.2012) [MP3|256 кб/с]<Trance, 
 ```bash
 magnet:?xt=urn:btih:FB72034FADC72278758900AAB26CEBE6BDCC94F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

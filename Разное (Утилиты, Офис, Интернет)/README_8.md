@@ -21,6 +21,8 @@ PortableApps.com Platform - это функциональная платформ
 magnet:?xt=urn:btih:C864A0A49E2F77B4A118E173367E821F66FFE19D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:DC36E8AA90E80BBF29F1839CF3AD91F49421B07F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ DesktopSnowOK 6.26 Portable [Multi/Ru]
 magnet:?xt=urn:btih:20973901C9E7CABD76D994F109E1247DF0AC2AB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ WinPaletter 1.0.9.3 Standalone [En]
 ```bash
 magnet:?xt=urn:btih:400AB55548A5E4C171D793F2817774ABDF2833F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ DirPrintOK 6.96 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:F94BC31F764F1E499261B0DAAE795BB782DADAF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ ReffPassGen - программа предназначенная для гене�
 ```bash
 magnet:?xt=urn:btih:6AA1749A38BEAE29093DA4B6CC3AFFDD82A1F8CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ WizTree - небольшая и полезная утилита для опре�
 magnet:?xt=urn:btih:53BBF3032D966D12D961DCCF486404367A7C2F12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ MeinPlatz предлагает простой и быстрый способ с�
 ```bash
 magnet:?xt=urn:btih:1E24D3AF8B6135AC02EF54D99AA8A20C2F251385
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Stardock Start11 – новая версия приложения для нас�
 magnet:?xt=urn:btih:7B25339E1D5623462687741B47C5805175125FAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ DesktopClock3D - простые, но в то же время красивые 3
 ```bash
 magnet:?xt=urn:btih:468392C10DC548968B4AC644AE44A72D85BC3045
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Ivideon Server 1.3.2 / Client 3.4.1 [Multi/Rus]
 magnet:?xt=urn:btih:2D26DC9DF83C5CA33F7678390166F30C7EAFC23A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ ImageUSB - бесплатная портативная утилита, с пом
 ```bash
 magnet:?xt=urn:btih:FFFFA36DC6D55A7B62B52566BE1BC3FA65DAB282
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ OneLoupe 5.77 Portable [Multi/Ru]
 magnet:?xt=urn:btih:017861FE9AB74FB9AB116A92514F1B568AC51F8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ ClassicDesktopClock - простые и красивые классически�
 magnet:?xt=urn:btih:571D7F070AA51C7377ECA0681778013D4DF92510
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ PIDKey Lite предназначена для просмотра, обновле
 ```bash
 magnet:?xt=urn:btih:7E1411D37D58F125E356E2ED4A8F6A1C880B4608
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Stardocks Fences - программа, которая помогает Вам с
 magnet:?xt=urn:btih:B90934C74A0C66B6F883C9A470B76AC8A06FF6D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Celestia - бесплатная трёхмерная астрономическ�
 ```bash
 magnet:?xt=urn:btih:F85E70B82B654392D8E8BC843C36832F29AD465D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ oCam - неплохая бесплатная программа для запи�
 magnet:?xt=urn:btih:124F8E56C408B8AAEF668F8ED5F76F2371FF5972
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Volume — альтернативный регулятор громкости, �
 ```bash
 magnet:?xt=urn:btih:B44F58D2A9FF24FE1898E499C924BE3BF8300AC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ W10 Digital License Activation - инструмент от Ratiborus для ак
 magnet:?xt=urn:btih:D44CB586B456A57EA03F66CC2D507B5F6FE20AF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Camtasia Studio - мультимедийная программа для зап�
 ```bash
 magnet:?xt=urn:btih:D38E3AC46CC23865CACD4130DF966BF653D7C267
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ O&O ShutUp10 позволяет получить полный контроль �
 magnet:?xt=urn:btih:03CC84D3B2FE9EDDC22161C8D7ACB813E61A8BA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ FastStone Capture представляет собой довольно мощн�
 ```bash
 magnet:?xt=urn:btih:C059DD3D7B0D7ACEFC13474E7CCAB6C9E6D16904
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Wise Windows Key Finder Portable 1.0.2.13 [Multi]
 magnet:?xt=urn:btih:18B8E85810882CB1FF2394DEAB22BD710EAEDF2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Maxlim New Year 2020 - подборка из 4-х программ от Maxlim �
 magnet:?xt=urn:btih:30C5382528BD621CCF8CBFFDA188AD8989C72606
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ imyPass Windows Password Reset Standart / Platinum / Ultimate 1.0.16 [En]
 ```bash
 magnet:?xt=urn:btih:030F4145A14EF486A40FFCC648CDD61DBE3E4A80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

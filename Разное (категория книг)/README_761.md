@@ -1,3 +1,29 @@
+###  Публикация: 1352637   (1000789) от 15.01.2020
+
+Беа Джонсон | Дом без отходов. Как сделать жизнь проще и не покупать мусор (2019) [EPUB]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Беа Джонсон – активистка движения «ноль отходов» (Zero Waste). Ее семья из четырех человек и собаки оставляет только одну банку отходов в год и экономит до 40 процентов бюджета. В этой книге автор делится своим опытом и подробно описывает, как организовать быт в соответствии с правилом пяти «О»: отказаться от ненужного; ограничить необходимое; опять использовать (   Читать дальше...   )Жанр: ДомоводствоФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AA9ADCFE445AFAA0AC7FA0DB920A200E3080528
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351075   (1000795) от 15.01.2020
 
 Кевин Круз | Сильные лидеры нарушают правила. Нестандартные принципы управления командой и бизнесом (2020) [PDF, EPUB]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:66F8A9865C3F566391DDAFB195DC51C7200476EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:66F8A9865C3F566391DDAFB195DC51C7200476EE
 magnet:?xt=urn:btih:8EE8F3BDCBB31AC93D109D7792A844B686646808
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:8EE8F3BDCBB31AC93D109D7792A844B686646808
 ```bash
 magnet:?xt=urn:btih:E14643857D1818ECED87485DF0C6ECBFE8B69CE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:E14643857D1818ECED87485DF0C6ECBFE8B69CE5
 magnet:?xt=urn:btih:5CBE395757F81DB86EC4CA8C0A130A396EDD57D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:5CBE395757F81DB86EC4CA8C0A130A396EDD57D8
 magnet:?xt=urn:btih:F2B66C3793B5C7570FD4DD0D6FAADD27B0772AD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:F2B66C3793B5C7570FD4DD0D6FAADD27B0772AD9
 ```bash
 magnet:?xt=urn:btih:C6E36A725A9D3271AF877F09D18D96D0D739F55C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:C6E36A725A9D3271AF877F09D18D96D0D739F55C
 magnet:?xt=urn:btih:5124FDD7CAA65A5DAFCE33BC6C4058FB937A9595
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:5124FDD7CAA65A5DAFCE33BC6C4058FB937A9595
 ```bash
 magnet:?xt=urn:btih:1BD98AB04387E1151DAA4898EB8C2A7BE3DC37B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:1BD98AB04387E1151DAA4898EB8C2A7BE3DC37B8
 magnet:?xt=urn:btih:00B9CD07D049136B65BD263945BB9527974F93AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:00B9CD07D049136B65BD263945BB9527974F93AD
 magnet:?xt=urn:btih:6FEF1A15F9F9C55A320825FF9D0AEA5FD52F8922
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:6FEF1A15F9F9C55A320825FF9D0AEA5FD52F8922
 ```bash
 magnet:?xt=urn:btih:4CA6922D0812A49A84C51DCF95D8BB06CC7C37A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:4CA6922D0812A49A84C51DCF95D8BB06CC7C37A6
 magnet:?xt=urn:btih:B6AE3DAD061D4EB846D9A13E2E49509099E512AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:B6AE3DAD061D4EB846D9A13E2E49509099E512AF
 ```bash
 magnet:?xt=urn:btih:7B4C94128B98B78F34641C02643ABB0A27AD63C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:7B4C94128B98B78F34641C02643ABB0A27AD63C8
 magnet:?xt=urn:btih:A3666495E71A15B41F25804CD837C36D1C39D5CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:A3666495E71A15B41F25804CD837C36D1C39D5CA
 ```bash
 magnet:?xt=urn:btih:146EE0BF7DBD3BCB8FDDEEC49ED01E89D2521183
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:146EE0BF7DBD3BCB8FDDEEC49ED01E89D2521183
 magnet:?xt=urn:btih:677A280D508B11292CF0A3650B10E33AAB4F0494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:677A280D508B11292CF0A3650B10E33AAB4F0494
 ```bash
 magnet:?xt=urn:btih:D922C8379AFF2F9F0FD513ACEB12DD4732507853
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:D922C8379AFF2F9F0FD513ACEB12DD4732507853
 magnet:?xt=urn:btih:664D7340E1FDDCF3A47AF5769300B1EEF6EE40CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:664D7340E1FDDCF3A47AF5769300B1EEF6EE40CE
 ```bash
 magnet:?xt=urn:btih:EF543AAFB544A194CC8F3769DBD5EB138EFB2A9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:EF543AAFB544A194CC8F3769DBD5EB138EFB2A9E
 magnet:?xt=urn:btih:0A362D085EF1050BFE405804CD8939252C0222BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:0A362D085EF1050BFE405804CD8939252C0222BB
 ```bash
 magnet:?xt=urn:btih:9AA9F9F11123ABFB368B1D7F19364823FA9D9CF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:9AA9F9F11123ABFB368B1D7F19364823FA9D9CF9
 magnet:?xt=urn:btih:A117D7CD730BC17A307BD69197962239AA89F33F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:A117D7CD730BC17A307BD69197962239AA89F33F
 ```bash
 magnet:?xt=urn:btih:48B652456BF4DF2B24BE9319F58F343979F79ECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:48B652456BF4DF2B24BE9319F58F343979F79ECD
 magnet:?xt=urn:btih:9BC4E7B49E2B40D32AA83CF92476542A7779A0A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,29 +683,7 @@ magnet:?xt=urn:btih:9BC4E7B49E2B40D32AA83CF92476542A7779A0A8
 magnet:?xt=urn:btih:3416623B2476EFFE13D95A894D657E896DFE898D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488485   (1001395) от 13.08.2021
-
-Александр Остервальдер и др. | Непобедимая компания: Как непрерывно обновлять бизнес-модель вашей организации, вдохновляясь опытом лучших (2021) [EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Просто быть лучшим уже недостаточно. Сегодня в конкурентной борьбе побеждают компании, у которых готовность к изменениям вшита в бизнес-модель. В четвертой книге серии Strategyzer Алекс Остервальдер и его соавторы Ив Пинье, Фред Этьембль и Алан Смит рассказывают о стратегиях адаптации успешных компаний, которые не раз перепридумывали свои бизнес-модели: Amazon, IKEA, (   Читать дальше...   )Жанр: Управление проектами и процессамиФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4469CA010BD461BE766D2BF57DA0F01AE44C775
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

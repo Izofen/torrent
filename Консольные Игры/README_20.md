@@ -19,6 +19,8 @@ Blade Strangers (2018) [Switch] [USA] 8.1.0 [NSP] [License / 1.3.0] [En]
 magnet:?xt=urn:btih:28D0C074B4192541509A4BF5CEB4FE33B4260253
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Pokеmon Ultra Moon (2017) [3DS] [EUR] [CIA] [Unofficial] [Multi]
 magnet:?xt=urn:btih:873DC999E6F8307698DBD775B2FAF4991A1B9AEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Eledees (Elebits) [Wii] [PAL] [Multi 5] [2007]
 ```bash
 magnet:?xt=urn:btih:110863C1E43AF99106A350BDEA4F0553106DDD08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Tearaway / Сорванец (2013) [PSVita] [EUR] 3.60 [HENkaku] [PSN / 1.01] [R
 magnet:?xt=urn:btih:41EA0D522FA22D35D429C3797B816CD4E08546E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Tales from the Borderlands – эпизодическое приключение
 magnet:?xt=urn:btih:1368C2D7F16D7ADFAE7278BAE92798DE6852BD12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Crysis Remastered (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.5.0] [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:E7811855FF50EFAC706432D090B0C436026B9197
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Jurassic World Evolution: Complete Edition (2020) [Switch] [USA] 10.2.0 [NSZ] [L
 magnet:?xt=urn:btih:B6D8BA50D52A6A923A5460511B770D99BD885504
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:B6D8BA50D52A6A923A5460511B770D99BD885504
 ```bash
 magnet:?xt=urn:btih:7AD480BC763D9C13DAAC66C820B2158B8B302DB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ The Witcher 3: Wild Hunt - Complete Edition / Ведьмак 3: Дикая Ох�
 magnet:?xt=urn:btih:6897CA21ECA017154E15C15F542B7EB80F4674B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ SoulCalibur V [PS3] [USA] [Ru] [4.46] [Cobra ODE / E3 ODE PRO ISO] (2012)
 ```bash
 magnet:?xt=urn:btih:374C4B454F434DA0FC1568F8714844130CFB5D71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ Hellboy: The Science of Evil (2008) [PS3] [EUR] 2.20 [License] [En]
 magnet:?xt=urn:btih:814C7D3F12BDBD0122B2E1DE161EC62E262B5EF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Game of Thrones: A Telltale Games Series – эпизодическая игра
 ```bash
 magnet:?xt=urn:btih:688E7F64FB4999A4879457B2265444D69AEA2C64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ MySims SkyHeroes (2010) [PS3] [EUR] 3.41 [Cobra ODE / E3 ODE PRO ISO] [License] 
 magnet:?xt=urn:btih:1AAE9567D8ECC1EA47E466925958541D0AAB47B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Hot Wheels: Track Attack [Wii] [PAL] [Multi 5] (2010)
 ```bash
 magnet:?xt=urn:btih:CAC77B34838C42C3BE4F6578E69AF042C5F430B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ Chasm (2018) [PSVita] [USA] 3.65 [NoNpDrm] [Unofficial / 1.05] [Ru/En]
 magnet:?xt=urn:btih:F79B70A546B751F3B8F2472BC5451F183A65030D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ Chasm (2018) [Switch] [USA] 9.0.1 / NSP [Unofficial / 1.0.71 ] [Ru/En]
 ```bash
 magnet:?xt=urn:btih:7507E02E81BA786BE48178C8304F3988A76DF65A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ NHL Legacy Edition (2015) [PS3] [EUR] 4.21 [Repack / 1.01] [Ru/Multi]
 magnet:?xt=urn:btih:18D934B1F0194FA03A1A372B2875B8BCA10C9A9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ Warhammer Battle March [xbox 360] [Region Free] [rus] (2008)
 magnet:?xt=urn:btih:8A73476B8BEA6ECA9AB7C79040ED748F3B79377A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ Killzone: Shadow Fall / Killzone: В плену сумрака (2013) [PS4] [EUR
 ```bash
 magnet:?xt=urn:btih:005FC9305264BB2AFA99E3CB5F1320C2004945AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ Dead Rising [xbox 360] [pal] [eng] (2006)
 magnet:?xt=urn:btih:DDDF7FFBD1059BFBF258F21A42E714DDD11A4E9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ Lego Indiana Jones: The Original Adventures [Wii] [PAL] [Multi 6] (2008)
 ```bash
 magnet:?xt=urn:btih:2641691EA946197442357AF22934FE34898E0981
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ Samba de Amigo [Wii] [PAL] [Eng/De] (2008)
 magnet:?xt=urn:btih:E67FA43799B9D55074A7C078D24C2F0E37D5A83A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ Resident Evil / Biohazard HD REMASTER (2014) [PS3] [JPN] 4.65 [Cobra ODE / E3 OD
 ```bash
 magnet:?xt=urn:btih:264C90BDE8E3BB8D985BA25EF376A582303BE504
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ TEKKEN 7 (2017) [PS4] [EUR] 5.05 [HEN] [License / 5.01 / DLC] [Ru/Multi] [Ultima
 magnet:?xt=urn:btih:66E5A157E63EBB1F6FA4F9DE3D5A7C076D510BDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ LEGO The Lord of the Rings (2012) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [Ru/En
 magnet:?xt=urn:btih:1348E55B4F1D013CD2A43B56EDBAB6D4CB665E26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ Rodea: The Sky Soldier - это аркадный аэро-экшн с привл
 ```bash
 magnet:?xt=urn:btih:8321619CEFFE4FA8E75677D3F111B9961EB0FDA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

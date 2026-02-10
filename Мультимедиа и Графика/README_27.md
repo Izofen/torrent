@@ -19,6 +19,8 @@ Kdenlive - бесплатный нелинейный видеоредактор,
 magnet:?xt=urn:btih:E0DA58BC725223500477A8A7DE710FD1C6156174
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Robotic Bean - Portatron 1.5.0 VST 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:234120F13DF94742E08C9C2A778A235BAE589DD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Waldorf - Microwave 1 Plugin 1.2.0 VSTi, VSTi 3, AAX (x64) [En]
 magnet:?xt=urn:btih:046F1F2A5BA7D29D0CA0536974B0DDECB9DA02E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ KORG - multi/poly native 1.0.4 Standalone, VSTi 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:6C97316B88B6F466A525DEAC70FA5838D4FFD1A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ KORG - ARP 2600 1.1.5 Standalone, VSTi 3, AAX (x64) RePack by TCD [En]
 magnet:?xt=urn:btih:B9ACA3C1B9A7D6B784DC10017A73E4B45DBC4C2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Kraftur был тщательно спроектирован для обогащ
 ```bash
 magnet:?xt=urn:btih:706B802D817B83C2C781387A47E4BE9807BB41CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Smooth Operator Pro - Спектральный балансировщик сиг
 ```bash
 magnet:?xt=urn:btih:D7804D96795A6482E132CFCDE30A3675733DAACC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ ANA 2 Ultra Bundle — невероятно мощный синтезатор, �
 magnet:?xt=urn:btih:CE688984C45862723E6F7C77E4EDA5052128728C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Plugin Alliance & Brainworx - bx_glue 1.1.0 VST, VST 3, AAX (x64) RePack by TCD 
 ```bash
 magnet:?xt=urn:btih:C6EAC643B422A8FCB7A6DEE675833C2745680319
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Theia обеспечивает легкий доступ к мощному си�
 magnet:?xt=urn:btih:0B3AA7C59797399355766789DEE013597BD19C8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ TAL-J-8 от популярного разработчика эмуляций в
 ```bash
 magnet:?xt=urn:btih:08F07C992240B0D86713A175D4486A607EA2A35F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ TAL-U-NO-LX - это подключаемый модуль для синтеза
 magnet:?xt=urn:btih:22395EA1BC52709D8230774C8B9A2F72FF27CD92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ LANDR - Synth X 1.0.38 VSTi 3 (x64) RePack by R2R [En]
 ```bash
 magnet:?xt=urn:btih:AF37B25982517FDA07DE2F58DC73317837949B25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Klevgrand - OneShot 1.0.3 VSTi, VSTi 3, AAX (x64) [En]
 magnet:?xt=urn:btih:9A7DFAB7457883B9BFC628D563A9945D21375403
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Dear Reality - dearVR PRO 2 2.1.0 VST 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:C4A0866DB1414BDA4D96A1F9AB1FCD419384C6E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Dear Reality - dearVR MIX 1.17.0 VST 3, AAX (x64) [En]
 magnet:?xt=urn:btih:59034AC550A7EF91D4E05BD9F86D5D73C552CA27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ EXOVERB предлагает 50 реалистично звучащих акус
 ```bash
 magnet:?xt=urn:btih:BCD82F26403D8C1D460BC63D9802C68F690F584D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Sweep — фильтрующий эффект.
 magnet:?xt=urn:btih:BA51E6673EE16E3A96D4CAE4DD4D0F7691E92816
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ VO-TT (VOcal-oTT) — это интуитивный многополосный �
 ```bash
 magnet:?xt=urn:btih:22B9D774D5D637E9053AE1F854FFB80DA678FF20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ Excite Audio запечатлел широкий спектр перкуссии
 magnet:?xt=urn:btih:86346E9AD5A780B952B26C75E2006277C1591D46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ W.A. Production - Detroubler 1.0.0 VST, VST 3, AAX RePack by BUBBiX [En]
 magnet:?xt=urn:btih:5E51883BCD1D1D9B3640CF3C1ACD290B8D8D4795
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Kiive Audio XTComp — FET-компрессор с британским режи
 ```bash
 magnet:?xt=urn:btih:C31EE7C4DF24F4AAAC1DE947E39312F7615C31A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ Plugin Boutique - DC Snares 1.2.0 VSTi 3, AAX (x64) RePack by BUBBiX [En]
 magnet:?xt=urn:btih:BF7E2654D804A0FCD8AB321722300642B1CBFFE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ VSS-2 берет (   Читать дальше...   )Язык интерфей�
 magnet:?xt=urn:btih:290C5C8FA6873CC9346D0446FE9C8CC93D9087E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ W.A. Production - Put Me On Drums by K391 1.0.4 VST, VST3, AAX RePack by BUBBiX 
 ```bash
 magnet:?xt=urn:btih:E325793B421342E1FB974F6F301A798B0436F6F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +683,8 @@ MusicBrainz Picard - простая в использовании програм
 ```bash
 magnet:?xt=urn:btih:393E44C9DA9DF38F7319E5C6BE6FA2FA172E5E30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

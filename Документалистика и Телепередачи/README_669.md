@@ -1,3 +1,29 @@
+###  Публикация: 1100332   (901798) от 03.02.2017
+
+Первая студия (03.02.2017) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прямой информационный канал — эксперты, политики и политологи о главных событиях страны и мира.В этом выпуске: Каждый день новости, поступающие с Донецка, становятся всё тревожнее и тревожнее. Сегодня ночью обстреляли Донецк из систем залпового огня, есть погибшие среди мирных жителей. Потому что обстреливают жилые и спальные районы, где живут мирные жители. Мы не знаем, что это за люди и зачем они это делают, да и люди ли они? С этим срочно надо что-то делать, то, что делают, (   Читать дальше...   )Телекомпания: Первый каналЖанр: Политическое ток-шоуПродолжительность: 01:13:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0225542667BD95EF4C0F144D4C6F4C46B15F5C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100249   (901865) от 03.02.2017
 
 В центре событий с Анной Прохоровой (03.02.2017) SATRip
@@ -21,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:0A9C2E2D9D8CC2DCC394337983AA13EC9B59EDCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:0A9C2E2D9D8CC2DCC394337983AA13EC9B59EDCB
 magnet:?xt=urn:btih:C379F459A7AE989982868B6524781F96142A41FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:C379F459A7AE989982868B6524781F96142A41FD
 ```bash
 magnet:?xt=urn:btih:53B510F76A6E85649E7A7A9D5DA42CD909A83D16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:53B510F76A6E85649E7A7A9D5DA42CD909A83D16
 magnet:?xt=urn:btih:1F6C3C085A58BDBE26D0A731929A190127FB9BD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:1F6C3C085A58BDBE26D0A731929A190127FB9BD7
 magnet:?xt=urn:btih:CB313848AC0722DCC1046549B771D818220616DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:CB313848AC0722DCC1046549B771D818220616DB
 ```bash
 magnet:?xt=urn:btih:64BCDDA8EA7B7B108A9B94AF62D6BFED6D086962
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:64BCDDA8EA7B7B108A9B94AF62D6BFED6D086962
 magnet:?xt=urn:btih:B424C44FDB478AF31D97BA7DFA113585B0E11BB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:B424C44FDB478AF31D97BA7DFA113585B0E11BB4
 ```bash
 magnet:?xt=urn:btih:B6308E85EAD2876A36A339ED4047E17792B51161
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:B6308E85EAD2876A36A339ED4047E17792B51161
 magnet:?xt=urn:btih:BC4D931F0F300AC5BDC006266C57F46DE7B4360E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:BC4D931F0F300AC5BDC006266C57F46DE7B4360E
 ```bash
 magnet:?xt=urn:btih:10BE5AA2508B635620CEE03CD0CDAB5AFADAC4D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:10BE5AA2508B635620CEE03CD0CDAB5AFADAC4D1
 magnet:?xt=urn:btih:725A510A779E135E6C2A459AF4D7E148C75B84D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:725A510A779E135E6C2A459AF4D7E148C75B84D3
 ```bash
 magnet:?xt=urn:btih:9394983FAD67A1981F5043FA8E69C454F77B4963
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:9394983FAD67A1981F5043FA8E69C454F77B4963
 magnet:?xt=urn:btih:A93DF88B16A5F62EB406A167FE556D752C21294B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:A93DF88B16A5F62EB406A167FE556D752C21294B
 ```bash
 magnet:?xt=urn:btih:5D7819C54E5345DA298D0F2069AEEB788DF4B489
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:5D7819C54E5345DA298D0F2069AEEB788DF4B489
 magnet:?xt=urn:btih:9B92ABDD7E76B2F122742844AD9CD2F3143071F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:9B92ABDD7E76B2F122742844AD9CD2F3143071F6
 ```bash
 magnet:?xt=urn:btih:3FEB906CAE11AD2A9438D2DA253C63BC1D7B385A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:3FEB906CAE11AD2A9438D2DA253C63BC1D7B385A
 magnet:?xt=urn:btih:D2DFD1644457D7BE84EECC31A73786126BFB7E1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:D2DFD1644457D7BE84EECC31A73786126BFB7E1C
 ```bash
 magnet:?xt=urn:btih:95F426ACBE53858D048246C0942F791D74F12F7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:95F426ACBE53858D048246C0942F791D74F12F7E
 magnet:?xt=urn:btih:0CB97BA31EB3BC569CCCB2001678642B8D047FC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:0CB97BA31EB3BC569CCCB2001678642B8D047FC1
 magnet:?xt=urn:btih:9D59A414BD0C325FE8C0C6F9CC084C566D4BD59E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:9D59A414BD0C325FE8C0C6F9CC084C566D4BD59E
 ```bash
 magnet:?xt=urn:btih:CFED0CFCE7353828D10F7C386BCE4F831DA96D32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:CFED0CFCE7353828D10F7C386BCE4F831DA96D32
 magnet:?xt=urn:btih:5A4D8094150E6CD9C08D995B4B31670AB872C760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:5A4D8094150E6CD9C08D995B4B31670AB872C760
 magnet:?xt=urn:btih:1E36BA0BE33FF43FE3545648B6A4BF26DB90AF56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:1E36BA0BE33FF43FE3545648B6A4BF26DB90AF56
 ```bash
 magnet:?xt=urn:btih:A57188745EC032C391D6098907DF846EE3EC5D28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,30 +680,7 @@ magnet:?xt=urn:btih:A57188745EC032C391D6098907DF846EE3EC5D28
 magnet:?xt=urn:btih:87380450A098DA62D0386B0701C321507BE2B879
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 254951   (903340) от 29.08.2021
-
-Discovery: Во вселенную со Стивеном Хокингом / Into The Universe With Stephen Hawking (2010) BDRip (сезон 1, серии 1-3 из 3)
-
->>Документалистика и Телепередачи
->>Космос
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903340.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 серия: Внеземные существа / Aliens
-По мнению Хокинга инопланетная жизнь существут в разных формах, начиная от простейших организмов, до развитых цивилизаций. Но мы должны избегать контактов с инопланетным разумом, т.к. это может привести к катастрофическим последствиям...Телекомпания: Discovery ChannelЖанр: ДокументальныйПеревод: ДублированныйПродолжительность: 00:57:50+01:26:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35640B96AF4464A699D99774BBFC8278B111F2CC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

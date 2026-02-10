@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D172A7222026C2803BF2968A0FEA8F430D8EB575
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Twelve themed chapters are broken down into easy-to-follow 15-minute daily lesso
 ```bash
 magnet:?xt=urn:btih:67C988787514623B1C1B80DA029EC07E5924FAA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Based on a 50 million word corpus, A Frequency Dictionary of Turkish provides a 
 ```bash
 magnet:?xt=urn:btih:C5B95ABC190F94F0BAED47B2AD55EA85FF6E8432
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ each grammar point explained initially (   Читать дальше...   )Жа
 magnet:?xt=urn:btih:8A973F47F99FB5E20C9DE3A8D886A0B0F4973E32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ This book provides an up-to-date and comprehensive overview of research methods 
 ```bash
 magnet:?xt=urn:btih:D808CCCB3B9D44057E97A02FBEB2A78076C06AFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ The book?s ESL lessons connect (   Читать дальше...   )Жанр: у
 magnet:?xt=urn:btih:C3FF2ACD96DAF3806705AB0DD56054432CD05927
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ The types of games include: lateral thinking (   Читать дальше...  
 magnet:?xt=urn:btih:61C80478D7D798F2CB850E7FA06492F755F5B989
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ Materials Development in Language Teaching aims to help readers apply current th
 ```bash
 magnet:?xt=urn:btih:B34CDA85EA06E8ED262157C6E1716ACAB1235E43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ A variety of extensive exercises for practice. (   Читать дальше...
 magnet:?xt=urn:btih:3269CCD1501EE290515AEE6EE2A306C10D55D4AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ Rod Ellis is the Distinguished Professor of Applied Language Studies in the (  
 ```bash
 magnet:?xt=urn:btih:28494274DC632D6D0D9CFE4B3CF32AB197E0EE74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ A review of required academic skills, including note taking, (   Читать �
 magnet:?xt=urn:btih:6A4CE4EDBC9A53D701FBDC365BA105A32D95818E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ The book features a wide variety of reading, writing, speaking and listening gam
 ```bash
 magnet:?xt=urn:btih:5997703CF08B402DED99BA614728EE10A4947FB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ Each section covers a different aspect of teaching and offers a selection of 10�
 ```bash
 magnet:?xt=urn:btih:C9C036D1F5055520696401D55BC33976D21B59BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ Online access- FREE Downloadable worksheets (   Читать дальше...   
 magnet:?xt=urn:btih:940E9536FAA056F260E75F1E5E103DD034DF2C83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ This is an third edition of our popular introduction to language teaching method
 magnet:?xt=urn:btih:5719691AEE22CCAB10F86697A3091DFEEC0E3CCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:5719691AEE22CCAB10F86697A3091DFEEC0E3CCD
 ```bash
 magnet:?xt=urn:btih:DCD3CB647C5ECC14475A5DA50028F6BA39EC0755
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ Sandra N. Elbaum was an ESL Instructor at Truman College, one of the City Colleg
 magnet:?xt=urn:btih:B472457BE0A0326F54AE672900310E50AFBA1B13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:B472457BE0A0326F54AE672900310E50AFBA1B13
 ```bash
 magnet:?xt=urn:btih:A4B14BE6C7550020E9D37823627AEFD9F6CD5FFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:A4B14BE6C7550020E9D37823627AEFD9F6CD5FFD
 magnet:?xt=urn:btih:AF2E05BAD1A33F01CE5AC1DF15DFBEAD408B2CCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:AF2E05BAD1A33F01CE5AC1DF15DFBEAD408B2CCC
 magnet:?xt=urn:btih:FEE2F644B80AE9144FEA55062CA6E070E542DEA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:FEE2F644B80AE9144FEA55062CA6E070E542DEA6
 ```bash
 magnet:?xt=urn:btih:83417B2E781CF87AAE941F6CFCE8886C74827C5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:83417B2E781CF87AAE941F6CFCE8886C74827C5D
 magnet:?xt=urn:btih:23217A817DA2F8BED5980FD5089895F3A3BA7E63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:23217A817DA2F8BED5980FD5089895F3A3BA7E63
 magnet:?xt=urn:btih:1F7F3C7F5D85B6BE944519A5D737E7B68903DAC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:1F7F3C7F5D85B6BE944519A5D737E7B68903DAC9
 ```bash
 magnet:?xt=urn:btih:76BFCCEF91FBA7341605771890C64A8A3F4380A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ magnet:?xt=urn:btih:76BFCCEF91FBA7341605771890C64A8A3F4380A3
 magnet:?xt=urn:btih:C20CF9EBFAFA381646E001B1774A854CAB447BB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:C20CF9EBFAFA381646E001B1774A854CAB447BB5
 ```bash
 magnet:?xt=urn:btih:090D2BAAC017EEDAB987DFA7113C802DA6CFC977
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

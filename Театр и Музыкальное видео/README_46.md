@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:AC8814EE002C691747DA86281DC2D4E832C8A77F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ DJ Tiesto in Concert 2003 (2012) BDRip 720p
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -78,6 +82,8 @@ DJ Tiesto in Concert 2003 (2012) BDRip 720p
 ```bash
 magnet:?xt=urn:btih:34931F950715188986AE15404ACE3728767C3686
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -112,6 +118,8 @@ Hammerfall: Gates of Dalhalla (2012) [1080p] Blu-Ray
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +143,8 @@ Hammerfall: Gates of Dalhalla (2012) [1080p] Blu-Ray
 ```bash
 magnet:?xt=urn:btih:F87D653D1B14E0E9AA882841EBFFD5DF9D9FF8C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +170,8 @@ magnet:?xt=urn:btih:F87D653D1B14E0E9AA882841EBFFD5DF9D9FF8C0
 ```bash
 magnet:?xt=urn:btih:6C250F4D1940E695CA5FB74958399BCD01C3A666
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +200,8 @@ magnet:?xt=urn:btih:6C250F4D1940E695CA5FB74958399BCD01C3A666
 magnet:?xt=urn:btih:C3EF45E9AE90E4B6097EA5BA34BA3FAFF178418C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ IVE – «Off The Record» (2023) WEB-DL [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:B347E627EEA7140082399B28F15A50F52462789B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:B347E627EEA7140082399B28F15A50F52462789B
 ```bash
 magnet:?xt=urn:btih:F9D491C01466CA724487A30CDA9382302A783B5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +287,8 @@ Eisbrecher (с нем. — «Ледокол») — немецкий NDH-ко
 magnet:?xt=urn:btih:855092B9586BE6EA2ED96F65129B55B13C6449E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +312,8 @@ magnet:?xt=urn:btih:855092B9586BE6EA2ED96F65129B55B13C6449E2
 ```bash
 magnet:?xt=urn:btih:84E904F24B7C98337663D8B8C26187DA5B7CE632
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +342,8 @@ Top Of The Pops 70s (vol.1) (2008) DVDRip
 magnet:?xt=urn:btih:A2A5BE3552FCF83F69E413E6EF1BB37D5E360F57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +371,8 @@ Top Of The Pops 70s (vol.2) (2009) DVDRip
 magnet:?xt=urn:btih:AB9C2C05C2A11242E83CF6D0C19277ECFCA2DA79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ magnet:?xt=urn:btih:AB9C2C05C2A11242E83CF6D0C19277ECFCA2DA79
 magnet:?xt=urn:btih:DDD54082282071DCFC28D96E3D2D5A35AB10F860
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +423,8 @@ magnet:?xt=urn:btih:DDD54082282071DCFC28D96E3D2D5A35AB10F860
 ```bash
 magnet:?xt=urn:btih:47CF88BE1FECBE7042DA4A3948B7450CB8FA9B65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ Confessions Tour — седьмой концертный тур американ
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +480,8 @@ Confessions Tour — седьмой концертный тур американ
 ```bash
 magnet:?xt=urn:btih:D1FFB5CE4859D73252939B8B310A5CE93A04A738
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +510,8 @@ George Thorogood & The Destroyers / Live at Montreux (2013) BDRip
 magnet:?xt=urn:btih:229FA4B5FE9AD02B2C23DEB7C8E2EEE68DB30D39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +535,8 @@ magnet:?xt=urn:btih:229FA4B5FE9AD02B2C23DEB7C8E2EEE68DB30D39
 ```bash
 magnet:?xt=urn:btih:DD4B828BE066F7F6483703CECD9D2FAA29E8915B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +562,8 @@ magnet:?xt=urn:btih:DD4B828BE066F7F6483703CECD9D2FAA29E8915B
 magnet:?xt=urn:btih:716916180A385232D7F50F05FC48BA05A03A4348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +588,8 @@ Symphonic Terror - Live at Wacken - концертный альбом немец
 magnet:?xt=urn:btih:D5537F49EED0C6DC3B7EC209D893F7CE1D96A6D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +613,8 @@ IVE – «I Want» (2023) WEB-DL [H.264/2160p] [4K, SDR]
 ```bash
 magnet:?xt=urn:btih:473B383D80024C899E65FB6028A8F56A5C0C7BF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +644,8 @@ magnet:?xt=urn:btih:473B383D80024C899E65FB6028A8F56A5C0C7BF0
 magnet:?xt=urn:btih:233CB39B3328387CDE76C16172F8DF78F325E5F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +672,8 @@ magnet:?xt=urn:btih:233CB39B3328387CDE76C16172F8DF78F325E5F7
 ```bash
 magnet:?xt=urn:btih:709D94301DDBC53215C596FE465BEAE45231DF51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +702,8 @@ magnet:?xt=urn:btih:709D94301DDBC53215C596FE465BEAE45231DF51
 magnet:?xt=urn:btih:6721032F071982FD879067D2049E94F142207E5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,6 +728,8 @@ magnet:?xt=urn:btih:6721032F071982FD879067D2049E94F142207E5E
 ```bash
 magnet:?xt=urn:btih:C1622A9D1FCE6268621FCA91AFCCD6D4DF1A45E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Udemy, Craig McVicker | IELTS Advanced Speaking (Band 8-9) (2021) PCRec [En / En
 magnet:?xt=urn:btih:D8866397723C65F141455C1508989D09CB5069E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:D8866397723C65F141455C1508989D09CB5069E2
 magnet:?xt=urn:btih:EE06A6701CB3651CE339497D7B3F6A444B16E37A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ Udemy, Serhii Zashkaruk | 7 шагов к доминированию на Upwork
 magnet:?xt=urn:btih:0EFD170609AB10C474A38808890B07F3A6DCAFCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Udemy, Глеб Михайлов | Анализ Данных на Python с Гл
 ```bash
 magnet:?xt=urn:btih:1AAAEC0736995DD08E0F1715BCB6367D71609766
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Web Dev Simplified | Упрощенный JavaScript - Advanced (Beta) / JavaScr
 magnet:?xt=urn:btih:34B12E492AA1CC9EA45B347BA2CC9DE951FA2CBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Udemy, Colt Steele | The Git & Github Bootcamp  (2021) PCRec [En / En Sub]
 ```bash
 magnet:?xt=urn:btih:669A0A5AB5FEFEAAFDAD03503F6A6F106B9BE6EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Udemy, Andrei Neagoie и др. | Complete React Native Developer in 2021: Zero t
 magnet:?xt=urn:btih:9A46C70DFF2DCB7DF978134F652D195F325FF182
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ PyCharm - это лучшая Python IDE (интегрированная сре�
 ```bash
 magnet:?xt=urn:btih:150E834A8313173DB1E1ECB54E2675FAC174029C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ TalkPython, Chris Moffitt | Move from Excel to Python with Pandas Course (2020) 
 magnet:?xt=urn:btih:AE94CC2963575A18A51D2C632A1C24BFFFB03DF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ TalkPython, Michael Kennedy | Python Jumpstart by Building 10 Apps Course (2020)
 ```bash
 magnet:?xt=urn:btih:C1004398B416611C683F338D8DC55E1B96C832A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ TalkPython, Michael Kennedy | Write Pythonic Code Like a Seasoned Developer Cour
 magnet:?xt=urn:btih:A2E95C8281CE3CF84886024975430210CF0540CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ MongoDB - одна из самых захватывающих технологи
 ```bash
 magnet:?xt=urn:btih:2747A09F4EB858D779DE059412FF1BDF3B626781
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Python 3 давно отсутствует и является лучшей ве
 magnet:?xt=urn:btih:12CBCA6127441FBEB48B00DD633C3FAE3BA0DD67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ TalkPython, Michael Kennedy | Python for the .NET Developer Course (2019) PCRec 
 ```bash
 magnet:?xt=urn:btih:8E9E8CA82538D5F3D00E3CFA73070FE6BE615C81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ TalkPython, Michael Kennedy | Python for Decision Makers and Business Leaders Co
 magnet:?xt=urn:btih:36B5157A1A23556BF1377792F436549D5F1EF6FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ ScienceVideoLab | Дамп Youtube-канала ScienceVideoLab (2015-2021) WEB-
 ```bash
 magnet:?xt=urn:btih:72A2ECD7C0FBDFF5ED72328B17A6A0B76FF69FC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ Infosec - единственный провайдер обучения по во
 magnet:?xt=urn:btih:C961B960E3136B8248FCEB2E111B17DCBE29891D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ Eve - это фреймворк Python REST API с открытым исходн
 ```bash
 magnet:?xt=urn:btih:8377D94E23E5BF3750816C71BE49BD980EB24BAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ TalkPython, Matt Makai | Introduction to Ansible Course (2020) PCRec [En]
 magnet:?xt=urn:btih:9F3BA18915D347805A14F8CFE25DFE5FC61E4DF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ TalkPython, Michael Kennedy | Managing Python Dependencies Course (2020) PCRec [
 ```bash
 magnet:?xt=urn:btih:70429AF25D55BC96C2E8CDA7E9167E282B0A6142
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ Skillbox | Руководитель digital-проектов (2020) PCRec
 magnet:?xt=urn:btih:E0FBBC8036032B9C7548811A1359D6C5BEB2C4F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ SQL Server 2016 Reporting Services (SSRS) – программа, предста
 ```bash
 magnet:?xt=urn:btih:44D2B26588A68EE6A91C61473639E79D63AFA6F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:44D2B26588A68EE6A91C61473639E79D63AFA6F9
 magnet:?xt=urn:btih:2B8E7EAD70F7B193C951CD7562056FA8FB2BD9A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ Infosec - единственный провайдер обучения по во
 ```bash
 magnet:?xt=urn:btih:DB447A0DAF3626B8C789196BCAE5DD9F7207FF1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +665,8 @@ Infosec - единственный провайдер обучения по во
 magnet:?xt=urn:btih:EB89262CEA6B856FCA9553FF8EBDAA70A386AEFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ magnet:?xt=urn:btih:EB89262CEA6B856FCA9553FF8EBDAA70A386AEFE
 ```bash
 magnet:?xt=urn:btih:601B9323AD0814AE39084910ECACE1E2A2B14118
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

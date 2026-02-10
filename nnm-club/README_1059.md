@@ -21,6 +21,8 @@ Ventoy - это инструмент с открытым исходным код
 magnet:?xt=urn:btih:C4506BBCFDA27A3F7B487EB62FB3B593AAE17D02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:C4506BBCFDA27A3F7B487EB62FB3B593AAE17D02
 ```bash
 magnet:?xt=urn:btih:D04E599B15D9EDA23BEAF706B9A682540DFC0E2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:D04E599B15D9EDA23BEAF706B9A682540DFC0E2D
 magnet:?xt=urn:btih:12829EF2D513F305995963714B546056B19C4F0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:12829EF2D513F305995963714B546056B19C4F0A
 ```bash
 magnet:?xt=urn:btih:72B9F10E4C3E8C811ED296C8F6472ED3D0B3569B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:72B9F10E4C3E8C811ED296C8F6472ED3D0B3569B
 magnet:?xt=urn:btih:958252B900B5ED628DA724183D02D7478FAB7591
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:958252B900B5ED628DA724183D02D7478FAB7591
 ```bash
 magnet:?xt=urn:btih:12998C400163199BC44436EFA4B0AA4F76A32C05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Kеома / Keoma / Django Rides Again (1976) BDRip [H.264720p]
 magnet:?xt=urn:btih:C51724D453DDE4D9E6B2EB3D3D1B08402DDD5721
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:C51724D453DDE4D9E6B2EB3D3D1B08402DDD5721
 magnet:?xt=urn:btih:6F9A150B2F935CEFFC986684B7C0E406848D026E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ HiPER Calc Pro v11.0.7 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:475A801C63947B0E8DC7B752C64BBF45169CEFD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Elvis Presley - The King (2025) Remastered [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:00B96AA5A997FE534443193051927DA507DF7BE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:00B96AA5A997FE534443193051927DA507DF7BE8
 ```bash
 magnet:?xt=urn:btih:68324109EA7A1132B914F4CF4A0EA39AA573915E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:68324109EA7A1132B914F4CF4A0EA39AA573915E
 magnet:?xt=urn:btih:85DA45C64DACD56FAE635AD50F609A161D5CC4BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:85DA45C64DACD56FAE635AD50F609A161D5CC4BA
 ```bash
 magnet:?xt=urn:btih:A0019C688BB7D1AD43BE81D7161EFA45EE01F50B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Brainstorm - Plague Of Rats (2025) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 magnet:?xt=urn:btih:E73F3132E3F4B38522E5263E1D13E2A070BBB2C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:E73F3132E3F4B38522E5263E1D13E2A070BBB2C8
 magnet:?xt=urn:btih:3E42BE2201D33C99EBB9C881BF6D5558BE15B05D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:3E42BE2201D33C99EBB9C881BF6D5558BE15B05D
 magnet:?xt=urn:btih:CD6DB2FD796647614327D4CBB0726325C3015BE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:CD6DB2FD796647614327D4CBB0726325C3015BE9
 ```bash
 magnet:?xt=urn:btih:05491B916FF60AFD9922B459487CA6C46FCFA611
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:05491B916FF60AFD9922B459487CA6C46FCFA611
 magnet:?xt=urn:btih:D2434231A707988B6983C64DE27629080481CD4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:D2434231A707988B6983C64DE27629080481CD4A
 ```bash
 magnet:?xt=urn:btih:DB7F4EB939DAADD216CCB95FBCA3E09C47812173
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:DB7F4EB939DAADD216CCB95FBCA3E09C47812173
 magnet:?xt=urn:btih:B7B88219C3C1A09D8E23A185D965EDB100B5288D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ VA - Gentle Rhythms: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Ba
 magnet:?xt=urn:btih:CECB15E19788F4D0A55F8A7F0A769B326E839C51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:CECB15E19788F4D0A55F8A7F0A769B326E839C51
 magnet:?xt=urn:btih:9BF56D67AE72006E9E3B5D836D1196059C0DD306
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:9BF56D67AE72006E9E3B5D836D1196059C0DD306
 ```bash
 magnet:?xt=urn:btih:D57691B7B970BB62DA271387AF938BFE3951EF6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ VA - Billboard Top Hits 1976 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock,
 magnet:?xt=urn:btih:B9EBCE8BA3E2161FDB510C23E7A75EEB423D8F4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:B9EBCE8BA3E2161FDB510C23E7A75EEB423D8F4B
 ```bash
 magnet:?xt=urn:btih:43707E4105192FBA1DB83EEA93E76A4B16BE0737
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:43707E4105192FBA1DB83EEA93E76A4B16BE0737
 ```bash
 magnet:?xt=urn:btih:E604D85BF7614FF637168396A22C5C7D6DE72466
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

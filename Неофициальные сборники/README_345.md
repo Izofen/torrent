@@ -1,3 +1,32 @@
+###  Публикация: 920613   (578839) от 23.07.2015
+
+VA - Гламурная летняя дискотека (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MBAND - Сделай Это Прямо Сейчас
+02. НеАнгелы - Сердце
+03. Elliphant - Never Been In Love
+04. Inna feat. Eric Turner - Bop Bop(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8BEFDF696C83723DCFE955191E1DEB6D9C178B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1553918   (578858) от 29.05.2022
 
 VA - Music News vol.191 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -21,6 +50,8 @@ VA - Music News vol.191 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:267E236A08CCA01AD2372EA9D7E12D6CC95E3827
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ Laura Pausini - Compilation (2022) [MP3|320 Kbps] <Pop, Italo pop>
 magnet:?xt=urn:btih:6F7FB4528016F5B553ECA13934EB54BDC6828B5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - German Top 100 Single Charts 27.05.2022 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:FBFCCB099158C740EF3949D647384125BCDA06B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Music News vol.190 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:6BBB2D937C833C0B8F99123901A30D65C220996A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +163,8 @@ VA - Забавная Штучка (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:3C2DB855BC89CD3EBA74531D17CA00201B130ADA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +193,8 @@ VA - Blues and Rock Ballads Vol.2 (2014) [MP3|320 кб/с]<Blues, Blues Rock>
 magnet:?xt=urn:btih:CC3BEA5132D9328C78998AF5D4B69CF68A034B91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +221,8 @@ magnet:?xt=urn:btih:CC3BEA5132D9328C78998AF5D4B69CF68A034B91
 ```bash
 magnet:?xt=urn:btih:7890EDF295915DEB659965FC03A401C5EC9F23FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +251,8 @@ Joy Harjo - Sweet Dreams (Collection) (2019) [MP3|~245 Kbps (V0), CBR ] <Native 
 magnet:?xt=urn:btih:5DF8667D0C0AD45A930E8D2172DB816D753D0263
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +280,8 @@ VA - Billboard Hot 100 Singles Chart 20.08.2016 (2016) [MP3|128-320 Kbps] <Pop, 
 magnet:?xt=urn:btih:83B75E21838CFC556274FB493FB50CC6BD74B9AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +305,8 @@ VA - Музыкотерапия. Повышение потенции (2011) [MP3
 ```bash
 magnet:?xt=urn:btih:821A6F8225836AEAC19B9A05832507DA3F3D1563
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +335,8 @@ VA - Летняя хитмания №4 Best (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:1F9D54C1AAADE1AAB4116155E8B2C2399BA08294
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +363,8 @@ VA - Music For Everyone - Progressive house Vol.5 (2016) [MP3|320 Kbps] <Progres
 ```bash
 magnet:?xt=urn:btih:328A5C4BA090129A8F11BEBDC8F7AA9E958A54B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +393,8 @@ VA - Ultra Pleasure Music DJ (2016) [MP3|320 Kbps] <UK Garage Club, Funky, Jacki
 magnet:?xt=urn:btih:53DB39D9BAB8AED873922C3B533374BFDB4D7AEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +421,8 @@ VA - I Met Her in Ibiza (2016) [MP3|320 Kbps] <Club, Tech House, Funky, Tribal>
 ```bash
 magnet:?xt=urn:btih:C6203CF39C3F12AD53CE5F2205D5B433C6F02EAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +451,8 @@ VA - Hot Dance Summer 2015 Vol. 4 (2015) [MP3|320 кб/с]<Club , Dance , House>
 magnet:?xt=urn:btih:6EC0D4F184CFDEAC1B46D851D20EA311F5B5EE8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +480,8 @@ VA - The Sound of Summer (2016) [MP3|320 Kbps] <Funky, Deep, Minimal, Tech, Hous
 magnet:?xt=urn:btih:8419C4ED1EC418CDC352416173DB5A65C0A3CD6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +508,8 @@ VA - Electro House Session (2016) [MP3|320 Kbps] <House, Electro House, Progress
 ```bash
 magnet:?xt=urn:btih:1ECF56645081781EDBB3FD5E39E7FE15555C51E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ magnet:?xt=urn:btih:1ECF56645081781EDBB3FD5E39E7FE15555C51E7
 magnet:?xt=urn:btih:D63931412E6D0C6805F0ABB2217C8FD60D5B7F93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +569,8 @@ VA - Жаркие Хиты Лета (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:8CBC2240CAEAE2D3244612F62D8C132184227E63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +598,8 @@ VA - Deep Night Deep House 3 (2022) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:A0C354141FA01CF722785728DA9A99CA7783BDC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +634,8 @@ VA - Зарубежные клубные новинки vol.8 (2011) [MP3|320 kb
 magnet:?xt=urn:btih:AACEC25B4E2DB208502584DAA48928DCF1449A14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +669,8 @@ VA - Зарубежные клубные новинки vol.4 (2011) [MP3|320 kb
 magnet:?xt=urn:btih:9BA82A305CF55C9FFF1687C7BEA097C74E1027E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +694,8 @@ VA - Зажигательное лето (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:129B91F68DE02600FB5DC8A8B6B124D8336F4921
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +724,8 @@ VA - (Score) Sonic The Hedgehog 4 Episode I & II (2012) [MP3|320 кб/с]<Score>
 magnet:?xt=urn:btih:D6A05E5EF48C0CE1C62915DA8DB02A5A63C78092
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,32 +753,7 @@ VA - Дискотека 2015 Deep House - The Best (2015) [MP3|320 кб/с]<Deep
 magnet:?xt=urn:btih:40D99FEE1BFFA3AC01307789058BA316FEB23B35
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553747   (580015) от 28.05.2022
-
-VA - Armada Music: New Dance Now (2022) [MP3|320 Kbps] <House, Trance, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicane - Sunstroke (Disco Citizens Evolution Mix) (3:12)
-02. MUNTII - Matter Of Time (2:50)
-03. Signum - Beyond This Earth (Richard Durand Remix) (4:18)
-04. Bond - Focus (4:31)(   Читать дальше...   )Жанр: House, Trance, DanceПродолжительность: 03:13:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D8571E6ED3D44E2CB9DD7CD7E736CEEEFB1433
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

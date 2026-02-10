@@ -22,6 +22,8 @@ VA - " Золотой фонд эстрады " - Многое в жизни б�
 magnet:?xt=urn:btih:1FFD1ACEA34397A272E41DCBD5A1E103CEA16E03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:1FFD1ACEA34397A272E41DCBD5A1E103CEA16E03
 ```bash
 magnet:?xt=urn:btih:56AEC4C851AFB46379FEDDAEE3EE29E9527E657F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:56AEC4C851AFB46379FEDDAEE3EE29E9527E657F
 magnet:?xt=urn:btih:613F50DB4727036508CC987A15604FE641C3EFD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:613F50DB4727036508CC987A15604FE641C3EFD5
 ```bash
 magnet:?xt=urn:btih:BCB29E6886569FD77160D928D62B6DBD11A7F7AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:BCB29E6886569FD77160D928D62B6DBD11A7F7AD
 magnet:?xt=urn:btih:B0FE8DFD6DEC54DC3B5B293F82900CD1BE4B4ACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:B0FE8DFD6DEC54DC3B5B293F82900CD1BE4B4ACC
 ```bash
 magnet:?xt=urn:btih:DEE3ABA4D99850F0F826B7DD2C5A2BAD36CFA3F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Яростный стройотряд (Repress 2007) [FLAC|Lossless]<Retro,
 magnet:?xt=urn:btih:F3D74031BF404213C690F60D12C434589523A4B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - 100 Greatest 2020 Songs [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:FD76DED1C42106CD0327C95592B0015076A91AC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Юрий Силантьев. Памяти маэстро (2010) [APE|Lossle
 magnet:?xt=urn:btih:8615B5D2358FABC220A508F340A60AD642E3FF7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:8615B5D2358FABC220A508F340A60AD642E3FF7E
 ```bash
 magnet:?xt=urn:btih:E3772DB09EEEAEB3C3AF05933A292594AD0ADC13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Anna German - Recital Opole '71 (2013) [FLAC|Lossless]<Retro|Pop>
 magnet:?xt=urn:btih:181289081D2736E1F33DE5B5147CC05F2BC2DFE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Love Songs & Romantic Ballads (2020) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:3A5060B0793FE59F1C8B3104CF2A79F221C1A164
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ magnet:?xt=urn:btih:3A5060B0793FE59F1C8B3104CF2A79F221C1A164
 magnet:?xt=urn:btih:8D0DA170C18D60725A41C3CBE5F1A15B54BD7272
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Mellow Easy Chilled Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:5C52EAF881EA48D16393ADBBA7EB333241907CD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Ramon Roselly - Herzenssache (Platin Edition) (2020) [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:FA5371AEDCF67FCE0F7CD56E10DCE5645F3D321B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Whitney Houston - I Wanna Dance With Somebody (2022) [FLAC 2.0|44/24|tracks|WEB-
 ```bash
 magnet:?xt=urn:btih:E98FDFBEC3ECE1CC76DC2C0B8738AF03B6765F73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ CD 1: (01:18:35)
 magnet:?xt=urn:btih:86D759FBB229364C92F08A6535EF17EE2060EFDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - Хиты 80-х. Как молоды мы были (в 4-х частях) (2
 ```bash
 magnet:?xt=urn:btih:F7B29F1B3465E01270C4FDD232623E3566E4E6AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ magnet:?xt=urn:btih:F7B29F1B3465E01270C4FDD232623E3566E4E6AD
 magnet:?xt=urn:btih:EA8A8907E5DE57A2E46C8EA9A02570F43842F29E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ magnet:?xt=urn:btih:EA8A8907E5DE57A2E46C8EA9A02570F43842F29E
 ```bash
 magnet:?xt=urn:btih:F93BA6F5C98623FFC3F221E2622049FCD0368F26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ magnet:?xt=urn:btih:F93BA6F5C98623FFC3F221E2622049FCD0368F26
 magnet:?xt=urn:btih:37C05C73CF4769C82862E8D2BD7BE23D186272F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +631,8 @@ VA - Старая танцплощадка. Незабываемые имена 
 magnet:?xt=urn:btih:EC1CD3D3CDDE2170F17859A891B5AA417B7E8883
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +659,8 @@ CD 1Жанр: RetroПродолжительность: 00:49:00
 ```bash
 magnet:?xt=urn:btih:4674D4D77930EF0E82F6C39013990C3F7B5295C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +695,8 @@ VA - Кружатся диски. Хиты 70-х (2002) CD № 1-2 [APE|Lossless
 magnet:?xt=urn:btih:D487DFF400A9A84A2991F8F844694E1311C60D3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,6 +724,8 @@ magnet:?xt=urn:btih:D487DFF400A9A84A2991F8F844694E1311C60D3E
 magnet:?xt=urn:btih:F5E3840F4E60FC439D0DB7F777407F5604751C03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -702,6 +752,8 @@ magnet:?xt=urn:btih:F5E3840F4E60FC439D0DB7F777407F5604751C03
 ```bash
 magnet:?xt=urn:btih:A7B7D73B76D845E2D848C55D0CF110D1E2DBAEB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

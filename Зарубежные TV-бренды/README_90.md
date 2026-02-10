@@ -19,6 +19,8 @@ NG: V3: суперпушка Гитлера / Building Hitler's Supergun / Hitle
 magnet:?xt=urn:btih:CB266DACE256379717449CF4842BF125A24AFD02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Cледите за работой археолога Майка Паркер-П�
 magnet:?xt=urn:btih:55BB15C7110008912C2FD77A17944AECE924A2C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:55BB15C7110008912C2FD77A17944AECE924A2C4
 ```bash
 magnet:?xt=urn:btih:690AF1C32790E50EECCFFB17AF3AEF005D7135A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ V3: суперпушка Гитлера / Building Hitler's Supergun / Hitlers S
 magnet:?xt=urn:btih:1326794AE0E133A82604A98A40D23C711628A0A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ BBC: Антарктическая полярная станция / Ice Station 
 ```bash
 magnet:?xt=urn:btih:B8CAD2008270D11D24F2802EAA6D34E7C02742C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ BBC: Живая Природа. Райские птицы / BBC: Natural World. 
 magnet:?xt=urn:btih:106CFC6005DF1C5B1282028A26325A758EE00BB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ BBC. Зелёная планета / The Green Planet (2022) WEB-DL [H.264/1080p
 ```bash
 magnet:?xt=urn:btih:567CFDCF151ADFB8F8C5A0173974B5C1C8FCCCB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Discovery. Техногеника. Петербургский метрополи
 magnet:?xt=urn:btih:C11D69D7ECB362B6F138D8D14DFC4F9E9E749748
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:C11D69D7ECB362B6F138D8D14DFC4F9E9E749748
 ```bash
 magnet:?xt=urn:btih:2C6074BC6E0DC6B490EA8F6F7BC34E0BF289EDDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:2C6074BC6E0DC6B490EA8F6F7BC34E0BF289EDDF
 magnet:?xt=urn:btih:8C62EE30BF12F90DD52FEB0D9B38047A73420A49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ NG. Гении / American Genius (2015) WEB-DLRip [H.264/720p-LQ] (Сезон 1,
 ```bash
 magnet:?xt=urn:btih:F584BDAF814C64833896DBA90F90464A819D2449
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ BBC: Удивительный мир крови / The Wonderful World of Blood w
 magnet:?xt=urn:btih:2CBE048DBC01A90215C9EF9EEC544B7F11BF3003
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ NG: Титаник. Дело закрыто / Titanic. Case Closed (2012) HDTV [
 ```bash
 magnet:?xt=urn:btih:43BB1AB5A7F6C1565E01C9130B6C5FC23980D9AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ NG: Война Гитлера против прессы / Hitler's Battle Agains
 magnet:?xt=urn:btih:2808600C8B065A7F75F26FF387EF4B4D7C977E38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ NGW: Царство леопардов / Leopard Kingdom (2018) HDTV [H.264/1080
 ```bash
 magnet:?xt=urn:btih:1DC472E2DC66B4EE21A0CD6948EEE0A357B0C0DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ NGW: Охотница / Malika. Leopard Huntress (2018) HDTV [H.264/1080i-LQ]
 magnet:?xt=urn:btih:D595F4A4C5D7459FB6049BE84B7FF3D4C8B58CD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:D595F4A4C5D7459FB6049BE84B7FF3D4C8B58CD0
 ```bash
 magnet:?xt=urn:btih:154CD6DAE6F732C8A8981D89742C2C1B8A36CDAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ NG: Вторжение на Землю / Invasion Earth (2014) HDTVRip [H.264/72
 magnet:?xt=urn:btih:618FCB6D29AB63A5F3762B0D7C0272C79E4E9B74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ BBC. Horizon. Гибель океана / The Death of the Oceans (2010) HDTVRip
 magnet:?xt=urn:btih:BCD06A20A4E0B9FADC5C58E82DFF468D9C53FE44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ magnet:?xt=urn:btih:BCD06A20A4E0B9FADC5C58E82DFF468D9C53FE44
 ```bash
 magnet:?xt=urn:btih:22458F8E3B6BB6F01EAB819AE7DD3605913B6CE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ BBC: Да будет вода / There Will Be Water (2016) WEB-DLRip [H.264/1080
 magnet:?xt=urn:btih:80EEA734B98210F9EBC49D159038E7F6E7E86EC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:80EEA734B98210F9EBC49D159038E7F6E7E86EC8
 ```bash
 magnet:?xt=urn:btih:D9F8AF603C5B621FFFF2D0448677F1B3E83D43E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:D9F8AF603C5B621FFFF2D0448677F1B3E83D43E1
 magnet:?xt=urn:btih:657AB97058969EF3784D09DEFA722C9768F62464
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:657AB97058969EF3784D09DEFA722C9768F62464
 ```bash
 magnet:?xt=urn:btih:9017522D5301914B6C807B64D5478E9A173F3FB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:9017522D5301914B6C807B64D5478E9A173F3FB2
 magnet:?xt=urn:btih:296C716C917D267CE69C54C8F0826AD1E0C5AC0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:296C716C917D267CE69C54C8F0826AD1E0C5AC0A
 ```bash
 magnet:?xt=urn:btih:B748FD48188423431C9ACCFD887FCA9175A3C28B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

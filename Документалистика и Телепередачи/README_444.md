@@ -1,3 +1,29 @@
+###  Публикация: 113117   (604383) от 29.07.2016
+
+Тихие подводные войны (2008) [DVDRip]
+
+>>Документалистика и Телепередачи
+>>Флот
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_604383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как только закончилась Вторая Мировая война, почти сразу началась другая - "холодная". Началась она и в безднах Мирового океана. Прежде всего, "холодная война" состояла в состязании военной мощи одной страны с военной мощью другой страны. Морская военная мощь, прежде чем воплотиться в металл и сойти со стапелей, сначала рождалась в тиши конструкторских (   Читать дальше...   )Телекомпания: Киностудия "БАЛТИК ВИДЕО"Жанр: ДокументальныйРежиссер: Юрий ЗанинПеревод: ОригинальныйПродолжительность: 158 минут
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546674   (604412) от 25.04.2022
 
 Маска (2022) WEBRip [H.264/1080p] (сезон 3, выпуск 11)
@@ -21,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:DEF90EBCE6AE6763C3881BC654F1EDC60DE21383
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:DEF90EBCE6AE6763C3881BC654F1EDC60DE21383
 magnet:?xt=urn:btih:A0CCB8ED50A31C1D737D4E75204CC061E4DE703B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:A0CCB8ED50A31C1D737D4E75204CC061E4DE703B
 ```bash
 magnet:?xt=urn:btih:8AABDC98B850AD2951944EB00B56A440DF766148
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:8AABDC98B850AD2951944EB00B56A440DF766148
 magnet:?xt=urn:btih:9B7005989F77DD5F5D3AB007603A5249E55FAA22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:9B7005989F77DD5F5D3AB007603A5249E55FAA22
 ```bash
 magnet:?xt=urn:btih:63C02669F3E48E68AF5DAB6D3CE6C86ABFAD1676
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:63C02669F3E48E68AF5DAB6D3CE6C86ABFAD1676
 magnet:?xt=urn:btih:318017FA998ACFD480B4A220AA9561F5CFB0DB14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:318017FA998ACFD480B4A220AA9561F5CFB0DB14
 ```bash
 magnet:?xt=urn:btih:2068CAF2428914282203BBDD72BBC1D5210E35E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:2068CAF2428914282203BBDD72BBC1D5210E35E7
 magnet:?xt=urn:btih:FF5D2B9C922F1455BBC08E1428B6B7840E704511
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:FF5D2B9C922F1455BBC08E1428B6B7840E704511
 ```bash
 magnet:?xt=urn:btih:8AB48BAE918D9188858D5BD2C5446AF2B7D01787
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:8AB48BAE918D9188858D5BD2C5446AF2B7D01787
 magnet:?xt=urn:btih:C1129A5B9BEF0D26B81309E58E6F05D23A853BFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:C1129A5B9BEF0D26B81309E58E6F05D23A853BFF
 ```bash
 magnet:?xt=urn:btih:3A4A6036FE348DBA8BBA6D21BD9E878088458642
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:3A4A6036FE348DBA8BBA6D21BD9E878088458642
 magnet:?xt=urn:btih:0E46CD95556D26675CB9F286D1D39E5CB6BC86D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:0E46CD95556D26675CB9F286D1D39E5CB6BC86D1
 ```bash
 magnet:?xt=urn:btih:90E8500FD8FEAB59A439C36AE7A246328CB4DE28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:90E8500FD8FEAB59A439C36AE7A246328CB4DE28
 magnet:?xt=urn:btih:B3EF2E0F3E8A0EBFF72A6B9336D0CD3D4ACF8B77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:B3EF2E0F3E8A0EBFF72A6B9336D0CD3D4ACF8B77
 magnet:?xt=urn:btih:23128604228EF3CFFCD75AA596B90CF5165218DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:23128604228EF3CFFCD75AA596B90CF5165218DF
 ```bash
 magnet:?xt=urn:btih:4ED161789EA1776B657524B85C6B3438670933F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:4ED161789EA1776B657524B85C6B3438670933F9
 magnet:?xt=urn:btih:43B4F334401F526A022761F2ECE40C4228CAA677
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:43B4F334401F526A022761F2ECE40C4228CAA677
 ```bash
 magnet:?xt=urn:btih:A62460BB608BFF7A827479B4609442BBC21C121D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:A62460BB608BFF7A827479B4609442BBC21C121D
 magnet:?xt=urn:btih:4E45D0F10F0B73C2CBA8D4FB1AA76DD5749D3A96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:4E45D0F10F0B73C2CBA8D4FB1AA76DD5749D3A96
 ```bash
 magnet:?xt=urn:btih:6F773DF1B916791EABB215F8F753F6C5C8A4911E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:6F773DF1B916791EABB215F8F753F6C5C8A4911E
 magnet:?xt=urn:btih:2347F8E5418F228B7628582CD04130B441646F7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:2347F8E5418F228B7628582CD04130B441646F7E
 ```bash
 magnet:?xt=urn:btih:B19F55523F6A3AD9D0CDCC045DF77B930920395B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +625,8 @@ SophieCo. Приёмы взлома (29.06.2015) HDTVRip [Xvid/720p-LQ] [PR]
 magnet:?xt=urn:btih:4FBD9E09319099619DBF47C1504A85A7725A530F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:4FBD9E09319099619DBF47C1504A85A7725A530F
 ```bash
 magnet:?xt=urn:btih:AC27AC400CE87917DA1DD07BBD270D997A2D1D49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:AC27AC400CE87917DA1DD07BBD270D997A2D1D49
 magnet:?xt=urn:btih:DC8CA1E0CC721BB5396E7E2BA31B97CA5D34F021
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525549   (605515) от 22.07.2012
-
-Святой воин адмирал Федор Ушаков (2004) SATRip
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605515.jpg" />
-</div>
-
-
-###  Подробнее
-
-...Величественно и благородно встает из века восемнадцатого Федор Ушаков - адмирал, флотоводец, дипломат, стратег, политик, доброделатель, милосердец. Блестящей победой под Тендрою, Федонисею, Калиакрией, а затем Корфу прославили Ушакова. Он создал тогда в конце XVIII века новую тактику парусного флота, разрушил каноны, установленные адмиралами и владычицей морей. Адмирал Ушаков канонизирован в лике святых 4-5 августа 2001 года в Санаксарском Рождества Богородицы монастыре.Жанр: ДокументальныйПродолжительность: 00:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:601BE9E3B9E7B08053A4E8265B6457BDDC25043F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

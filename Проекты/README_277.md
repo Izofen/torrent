@@ -19,6 +19,8 @@ Elegant Brush Photo Slideshow - это простой в использован�
 magnet:?xt=urn:btih:3A47F8E989E244CE95A95CDF8FBCE20E0E57CE72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Youtube Promo Kit - этот большой пакет анимации, кот�
 ```bash
 magnet:?xt=urn:btih:77E349D1EE7AECA5F63041C1B5948CDBAC14F389
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:77E349D1EE7AECA5F63041C1B5948CDBAC14F389
 magnet:?xt=urn:btih:96B931910985E83C7EEA728842F918B3B834CA0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Quick Logo Reveal Pack 2 - 40 вариантов специальных прос
 ```bash
 magnet:?xt=urn:btih:BE90E8C7F3F7C277A439A2CD3B9A1F024E3EA8A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:BE90E8C7F3F7C277A439A2CD3B9A1F024E3EA8A7
 magnet:?xt=urn:btih:B58222A4915E4E81F959C6FC2067C8350AE06D31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Inspired Parallax Slideshow - проект для создания слайд-ш
 ```bash
 magnet:?xt=urn:btih:8812CCB6E1FA4025D0ACDA7766F83235D8D84A9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Comic Strip 4 - идеально подходит для отображения 
 magnet:?xt=urn:btih:2D6CDB9B1BF3DC80D9A2BF4DC12D36F0543F7563
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:2D6CDB9B1BF3DC80D9A2BF4DC12D36F0543F7563
 ```bash
 magnet:?xt=urn:btih:470A6EE7FA65870B9BD02246C4FF6C06B51F88F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Minimal Slideshow - проект для создания слайд-шоу с м
 magnet:?xt=urn:btih:CCD5514560B13C68EEF154AA491368186C5205A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:CCD5514560B13C68EEF154AA491368186C5205A5
 ```bash
 magnet:?xt=urn:btih:549DE1F1154B1EF9D73B0B51434853284ABF6C60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:549DE1F1154B1EF9D73B0B51434853284ABF6C60
 magnet:?xt=urn:btih:C9E727B4A55150DC305366119325DAF00781A868
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:C9E727B4A55150DC305366119325DAF00781A868
 ```bash
 magnet:?xt=urn:btih:2E4BCC937B10C442E9A709C5AE73ADDEE0E883E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ NewsStudio 100 - это полностью настраиваемая и ред�
 magnet:?xt=urn:btih:6567CD9900DA09538E3A9206AFECD471B0AF8FEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:6567CD9900DA09538E3A9206AFECD471B0AF8FEC
 magnet:?xt=urn:btih:4E4965FE85F4E7672B982E3FC9A74B6D7D572B6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:4E4965FE85F4E7672B982E3FC9A74B6D7D572B6E
 ```bash
 magnet:?xt=urn:btih:F9A5FFB3795A1B5DE08401494CA6D8EA1A40E790
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:F9A5FFB3795A1B5DE08401494CA6D8EA1A40E790
 magnet:?xt=urn:btih:E8C315B5811CA1512ED00D6C311FE38DE8FC0C12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:E8C315B5811CA1512ED00D6C311FE38DE8FC0C12
 ```bash
 magnet:?xt=urn:btih:6301C0403BB917CA027DD0A83E4B884061BF2AC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Crime Scenes - потрясающая гранж-анимация. Отличн�
 magnet:?xt=urn:btih:DD4D113D8C1C99F5DA596861E2080E3E7226999E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Cinematic Typo Intro - представляет собой шаблон кине
 ```bash
 magnet:?xt=urn:btih:DC884B503BEE5C6388C356B1958DCB68CF019A7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Modern Photographer Slideshow Opener - является подходящим п�
 magnet:?xt=urn:btih:21FC0662F6FC8A51E45CEF0FC47ADE4AD443C8BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Fashion - Проект для создания модного слайд-шоу,
 ```bash
 magnet:?xt=urn:btih:07A51ED88EF066B1E98695C4AFCCF4FD43B4A7AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ New Show v.2 -  это шаблон с многоцелевым использо
 magnet:?xt=urn:btih:D61C1DE3D7BAED9D43F7BBF134093A5E8F73B301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Shapix - Shape Elements Pack - 2 версия анимационных элем�
 magnet:?xt=urn:btih:F06BA55401395142786DB177AD539C3A182FEEAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:F06BA55401395142786DB177AD539C3A182FEEAC
 ```bash
 magnet:?xt=urn:btih:538592C57D964A2A9E68961DAA0E36657551ED02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:538592C57D964A2A9E68961DAA0E36657551ED02
 magnet:?xt=urn:btih:3A5320CA5EEA532B2882AC6BDDCA5F98F5C2813A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:3A5320CA5EEA532B2882AC6BDDCA5F98F5C2813A
 ```bash
 magnet:?xt=urn:btih:97FA90124F28CE39A29CAA0328C6570C953AB444
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

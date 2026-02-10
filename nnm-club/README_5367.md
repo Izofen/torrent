@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:15C361031E5E41B21021F3C73A9998A41F3886BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ FireAlpaca - это достаточно простой, но удобный г�
 ```bash
 magnet:?xt=urn:btih:6607406FFA3401D35C6E0196B9EA74A70AA11B20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Horus - Рагнарёк и точка (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:21189C6D26C43E2D648FE9E44EBB4D2B58CDC7C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:21189C6D26C43E2D648FE9E44EBB4D2B58CDC7C1
 ```bash
 magnet:?xt=urn:btih:77228B6B3DAD0B3267F97499A0C788C27D0F9676
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:77228B6B3DAD0B3267F97499A0C788C27D0F9676
 magnet:?xt=urn:btih:6C4E19B2C0A5491D873AF3664358F351B6230B4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ NG: На Марс: история марсохода Персеверанс / Bu
 ```bash
 magnet:?xt=urn:btih:879D4E3F969CE6DA78E78F3CFA8004CEEE62DD86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:879D4E3F969CE6DA78E78F3CFA8004CEEE62DD86
 magnet:?xt=urn:btih:305AF83DE1E5851E330594D41506507442906635
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ VideoProc включает 4 модуля: Видео-конвертер, DVD Р
 ```bash
 magnet:?xt=urn:btih:316590BF9F3C46ACF96F37FB03AC6B63F747BD0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:316590BF9F3C46ACF96F37FB03AC6B63F747BD0F
 magnet:?xt=urn:btih:F3939AEC92E1687DF58F9C219CEB4F8FBB66FB6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:F3939AEC92E1687DF58F9C219CEB4F8FBB66FB6D
 ```bash
 magnet:?xt=urn:btih:C4004B536B147F17D428CE1F0B2FEEA3969B4998
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:C4004B536B147F17D428CE1F0B2FEEA3969B4998
 magnet:?xt=urn:btih:D9D429EAFD6C33411514033544B746158A73342F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:D9D429EAFD6C33411514033544B746158A73342F
 ```bash
 magnet:?xt=urn:btih:D61C009170E110B56F9EA6C750AFF9E971EDB5F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Waterfox — это браузер, основанный на исходном �
 magnet:?xt=urn:btih:2501725F5A07A6226209ED341BC16AE9DF5151E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:2501725F5A07A6226209ED341BC16AE9DF5151E2
 ```bash
 magnet:?xt=urn:btih:17887665E691AFE78520787B65BAD6A0B462361D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:17887665E691AFE78520787B65BAD6A0B462361D
 magnet:?xt=urn:btih:A7E7DE3D0FF3D585711D5E81051DC0330662B693
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:A7E7DE3D0FF3D585711D5E81051DC0330662B693
 ```bash
 magnet:?xt=urn:btih:8375BAEE4DA19596D639CFB421089788BE7D24FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:8375BAEE4DA19596D639CFB421089788BE7D24FF
 magnet:?xt=urn:btih:72C8027CE20D4B390D82820CBBA73BBF249F6DBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:72C8027CE20D4B390D82820CBBA73BBF249F6DBD
 ```bash
 magnet:?xt=urn:btih:FACAE2DD20D124E3803D54EBF141B8A79B64B6BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:FACAE2DD20D124E3803D54EBF141B8A79B64B6BD
 magnet:?xt=urn:btih:8F5D7D65E0C2F5D93E7DF16ACB5CB19612D72EEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:8F5D7D65E0C2F5D93E7DF16ACB5CB19612D72EEE
 ```bash
 magnet:?xt=urn:btih:1978543063D9DE0E4B82332E0EA3D5047B4F11A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:1978543063D9DE0E4B82332E0EA3D5047B4F11A7
 magnet:?xt=urn:btih:1CA066A145D3F1FD4AD5A209BC60CB6C157F32A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ Houkago Shounen Hanako-kun | After-School Hanako-kun | Ханако после �
 magnet:?xt=urn:btih:5D059FB45B67E29A82987B21C641ED727F172B52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:5D059FB45B67E29A82987B21C641ED727F172B52
 ```bash
 magnet:?xt=urn:btih:073EA0F7468839ACD8DC221BC5E68E49B3F7F3A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ Helix® Native: реализует в плагине мощную и тонал�
 magnet:?xt=urn:btih:7C42F88F019A7A7A301AE1668C27C78D9DC018D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:7C42F88F019A7A7A301AE1668C27C78D9DC018D0
 ```bash
 magnet:?xt=urn:btih:0A48B8A1A5BB0F530F27671CB31C67557CE5927D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +686,8 @@ Julien Daian Quintet - Cut-Up (2021) [FLAC|Lossless|tracks + .cue] <Jazz-Pop>
 ```bash
 magnet:?xt=urn:btih:E4E3E3A817798B3EEE628637366620C1A214E9C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

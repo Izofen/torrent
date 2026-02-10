@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:9122938EF71FB6C5E1CB9345FC01B139BB915547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:9122938EF71FB6C5E1CB9345FC01B139BB915547
 ```bash
 magnet:?xt=urn:btih:F43D381F131F79768E91F5A3C6C15147CDCD7191
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:F43D381F131F79768E91F5A3C6C15147CDCD7191
 magnet:?xt=urn:btih:2C5CF2AF0D2F24CDBD9C65E6451183C45C38F162
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Darksiders: Wrath of War [Ru/En/Multi9) (Steam-Rip/1.1) 2010 | R.G. Origins
 magnet:?xt=urn:btih:485814A367BC7F83A9019613621CCA02B8AD4200
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:485814A367BC7F83A9019613621CCA02B8AD4200
 ```bash
 magnet:?xt=urn:btih:49AB0B0CA17C81986D8B1ED660CEC01F619C6ADF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Tak And The Guardians Of Gross создана в соответствии с л�
 magnet:?xt=urn:btih:1981E017114D9193CF5D6762F7A87CA3E3D35CBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:1981E017114D9193CF5D6762F7A87CA3E3D35CBA
 magnet:?xt=urn:btih:C195A8E8C965F913DCF2CC4AF3292714E5737E7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:C195A8E8C965F913DCF2CC4AF3292714E5737E7F
 ```bash
 magnet:?xt=urn:btih:04DA8F356DD0E40200CBE68AC468D2B847319BF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:04DA8F356DD0E40200CBE68AC468D2B847319BF0
 magnet:?xt=urn:btih:7A8BB2A9AC03A1C9B3CD751ECDAF119066AC1145
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Assassin's Creed Odyssey / Assassin’s Creed: Одиссея (2018) [Ru/Multi] 
 ```bash
 magnet:?xt=urn:btih:E6491858E258AA3174851F88F17FC670460A95D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ OfficeSuite является наиболее полным приложение 
 magnet:?xt=urn:btih:4A9D5112596F51C3015EE71F70C08321A2773CA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:4A9D5112596F51C3015EE71F70C08321A2773CA1
 ```bash
 magnet:?xt=urn:btih:6658786CE677E8CC1DD09A1E592632A9E24A8F6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:6658786CE677E8CC1DD09A1E592632A9E24A8F6C
 magnet:?xt=urn:btih:24E3F138C110EF16620B5AB648BC0428800C9D23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Star Wars: Republic Commando (2005) [Ru/Multi] (1.2.1) License GOG
 ```bash
 magnet:?xt=urn:btih:9BED345579C4D70BEBFEC60E3F18724062CE15D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:9BED345579C4D70BEBFEC60E3F18724062CE15D4
 magnet:?xt=urn:btih:A54DAB3AC3EAC4E70EA54CF45095274A8F23ABD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Dark Souls III / Dark Souls 3 (2016) [Ru/Multi] (1.15/reg1.35/dlc) Repack Seraph
 ```bash
 magnet:?xt=urn:btih:4A73B212287FAC91B6E7FED32B8DD56C39F930E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Crashlands – ARPG с захватывающим сюжетом и возмож
 magnet:?xt=urn:btih:925EEC391E91ED4B6A11399B13735F4E062F4D70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:925EEC391E91ED4B6A11399B13735F4E062F4D70
 ```bash
 magnet:?xt=urn:btih:B7C62AC8C5ED0E7C3278AFDB50DB2D877E3FC7D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:B7C62AC8C5ED0E7C3278AFDB50DB2D877E3FC7D5
 magnet:?xt=urn:btih:E96CAA47AA44CE5543690C651D0A8EE2BE5E0FF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:E96CAA47AA44CE5543690C651D0A8EE2BE5E0FF7
 ```bash
 magnet:?xt=urn:btih:DB5B8D0CCEAD8859578A9D8F243EB63AEEDDED68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ VA - Громкие новинки месяца Vol.16 (2018) [MP3|320 Kbps] <Po
 magnet:?xt=urn:btih:1729802A8AB2A7A09FA23E453D2FE3A558BA474B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:1729802A8AB2A7A09FA23E453D2FE3A558BA474B
 ```bash
 magnet:?xt=urn:btih:48F2D8CBA67D775CDB642814F1FC164B9C742BB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:48F2D8CBA67D775CDB642814F1FC164B9C742BB0
 magnet:?xt=urn:btih:B9BDFEEEFF5F9959CA73CDAD8508848596D1110C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:B9BDFEEEFF5F9959CA73CDAD8508848596D1110C
 ```bash
 magnet:?xt=urn:btih:C4A6E4691A7F9549D61E085A64700C272C1B8778
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ magnet:?xt=urn:btih:C4A6E4691A7F9549D61E085A64700C272C1B8778
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:C4A6E4691A7F9549D61E085A64700C272C1B8778
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

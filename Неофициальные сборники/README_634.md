@@ -1,3 +1,32 @@
+###  Публикация: 976432   (969830) от 17.01.2016
+
+VA - I Love Italo Disco ot Vitaly 72 - 5 (2015) [MP3|208 - 320 кб/с] <Italo-Disco, Synth-pop, Disco, Spacesynth>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D. White - One Wish (Extended Mix) (05:20)
+02. Liebe - I Believe In You (04:14)
+03. Italover - Forever Alone (04:09)
+04. Ken Laszlo - Tin Box (06:01)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, Disco, SpacesynthПродолжительность: 04:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6738A91D9649A3F99CA649AED76ED6231261D4D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976472   (969837) от 17.01.2016
 
 VA - Super Bomb Electro 53 (2015) [MP3|320 кб/с] <Electro House, Electro>
@@ -21,6 +50,8 @@ VA - Super Bomb Electro 53 (2015) [MP3|320 кб/с] <Electro House, Electro>
 ```bash
 magnet:?xt=urn:btih:E76EB485F3BA60A076AA5F608ADA9181905D643C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Super Bomb Electro 54 (2015) [MP3|320 кб/с] <Electro House, Electro>
 magnet:?xt=urn:btih:0286981BE50AFD711C1F090A07F4F240BC65119E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +109,8 @@ VA - Winter Chill Essentials (2016) [MP3|320 кб/с] <Downtempo, Chillout, Loun
 magnet:?xt=urn:btih:DD1ED29BD1479C7CE8E41135EC667E9F514F2002
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +135,8 @@ VA - Promo DJ Top 100 Remixes Winter 2015-2016 (2016) [MP3|320 кб/с] <Club Ho
 ```bash
 magnet:?xt=urn:btih:C2C74BDF5B4AA687F8A3678276506FE0F705C070
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -134,6 +171,8 @@ VA - Top 100 Самые скачиваемые треки (2013) [MP3|256 кб/�
 magnet:?xt=urn:btih:B9B0B26F4DF8B4349249D22F0806B8AC0C0E2011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -160,6 +199,8 @@ VA - 100 Greatest Guitar Solos (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:721DD14AD990EDE89C3A5471961BB5B20573DD96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +229,8 @@ VA - Beatport Top 100 (15.01.2016) [MP3|320 кб/с] <House, Electro, Progressiv
 magnet:?xt=urn:btih:D7C1CA919AF9917C3FB508F1BA83133C802EB4AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +257,8 @@ VA - 100 Greatest BRIT Awards Winners (2020) [MP3|320 Kbps] <Pop, Rock, R&B>
 ```bash
 magnet:?xt=urn:btih:36FF9610D4ABC7E6C90D4B0A4F5FCCC784A24180
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +287,8 @@ VA - Вечное движение с лучшими хитами радио Ш�
 magnet:?xt=urn:btih:AAF9C666C85C93DB5200B06F3B8A81170DF88847
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +315,8 @@ VA - Disco Party Nights (2016) [MP3|320 кб/с] <Disco, Italo Disco, Eurodisco>
 ```bash
 magnet:?xt=urn:btih:8F55827469263974D2E5A65392B657DD1D23032A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +345,8 @@ VA - Top 100 Sounds Inception Massive DJs (2016) [MP3|320 кб/с] <Club, House,
 magnet:?xt=urn:btih:A19BCBF1115E9901188A467B791EB382F38CCF48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +373,8 @@ VA - I Love Italo Disco ot Vitaly 72 - 4 (2015) [MP3|320 кб/с] <Italo-Disco, 
 ```bash
 magnet:?xt=urn:btih:D9F6500CDE5AD50243039720FC5330E0AF30D02D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +403,8 @@ VA - Lounge Music For Your Soul (2016) [MP3|320 кб/с] <Downtempo, Lounge, Chi
 magnet:?xt=urn:btih:95DBF2743ADDE5B92522160EDFDC325CDC58ED97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +431,8 @@ VA - Beatport Indie Dance / Nu Disco Top 100 December 2015 (2016) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:3AC9E529CB6D2CD9AC5FC2DD58F897B1EE805F7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +461,8 @@ VA - Super Bomb Electro: The Best Hit 13 (2016) [MP3|320 кб/с] <Electro House
 magnet:?xt=urn:btih:EFE9174D2830536A84EB44FEB016BF7E2A1CD796
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +489,8 @@ VA - Fly to the Sky Fines Selection Of First Class Chillout Music (2016) [MP3|32
 ```bash
 magnet:?xt=urn:btih:91CCD5D5BCD17934F4C4419E4E18BF0185137510
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +519,8 @@ VA - Super Bomb Electro 55 (2015) [MP3|320 кб/с] <Electro House, Electro>
 magnet:?xt=urn:btih:B08B86C0A51AB5AFBC51F6C0A3A02B88BD0CCE32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +547,8 @@ VA - Best Chillhouse Tunes for Everyday (2016) [MP3|320 кб/с] <House,Deep Hou
 ```bash
 magnet:?xt=urn:btih:4D3149E67F6D9E6C7E5A398265BF99D26D079322
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +577,8 @@ VA - From Sunset to Sunrise, Vol. 3 (20 Midnight Lounge Tunes) (2016) [MP3|320 �
 magnet:?xt=urn:btih:4CE1EE18E9926DEB63D4A327ABD52CA5FE3B074A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +605,8 @@ VA - Дискотека 2016 Dance Club Vol. 147 от NNNB (2016) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:D022F85BAB8BF5336FCBB1A4B4AA946B9326D707
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +635,8 @@ VA - 500 Лучших И Самых Ярких Композиций За 10 Ле
 magnet:?xt=urn:btih:5D63E2F6417EBD1A98F124B5A7BEFB405E743650
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +663,8 @@ VA - не Громкие новинки недели 54 (2020) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:CD5BA8961ED7B789E40DC80EEEE1274003726350
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +693,8 @@ VA - Music Collection Vol.2 (2019) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:DF2C0861044C5934F823A35AC028EA927A18770D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +721,8 @@ VA - Luxury Soul (2016) [MP3|320 кб/с] <R&B, Soul>
 ```bash
 magnet:?xt=urn:btih:278B21C6E339A5386AEAD76E617D4731A2CFE905
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -674,32 +751,7 @@ VA - Trap Sound: Experimental Electronic (2020) [MP3|320 Kbps] <Electronic, Synt
 magnet:?xt=urn:btih:A405FF3FC5FF5E6E9BBFF834BBBD239D2D435685
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357771   (971907) от 05.02.2020
-
-VA - Luxury Deep House (2020) [MP3|320 Kbps] <Deep, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971907.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Renato Gratis - Wolf (Original Mix)
-002. Nnatn - Lost (Original Mix)
-003. Re.You - Work It Now
-004. The Loop - Take Control (Pacific Time Mix)(   Читать дальше...   )Жанр: Deep, Chill HouseПродолжительность: 11:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A179F5FFAA957F95DAB14F28CA2D2BE02F2614FB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

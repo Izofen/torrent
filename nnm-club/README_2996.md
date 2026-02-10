@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Autodesk® Inventor® – это семейство машиностроител
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Autodesk® Inventor® – это семейство машиностроител
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Autodesk® Inventor® – это семейство машиностроител
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Autodesk® Inventor® – это семейство машиностроител
 magnet:?xt=urn:btih:EB9A6D96A4968A988CDD02AA624A6D1A145C7DB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Linux GamePack это сборник содержащийТип издания: 
 ```bash
 magnet:?xt=urn:btih:CC351144E20A6BD8DE0FD63D8DE3355353F480A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ Running Wild - Shadowmaker (2012) [FLAC|Lossless]<Heavy Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ Running Wild - Shadowmaker (2012) [FLAC|Lossless]<Heavy Metal>
 magnet:?xt=urn:btih:AA1BD16B2367B5918507102915E7D3CEBEB65920
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ BitTorrent - клиентская программа пиринговой сет
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ BitTorrent - клиентская программа пиринговой сет
 ```bash
 magnet:?xt=urn:btih:2D1D0A6C875314EC7FA315CAB1FFBC8479BD1518
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +305,8 @@ Kreuzweg Ost - 3 albums (2001-2012) [FLAC|Lossless] <Martial Industrial, Neoclas
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +331,8 @@ Kreuzweg Ost - 3 albums (2001-2012) [FLAC|Lossless] <Martial Industrial, Neoclas
 magnet:?xt=urn:btih:EAD7A20268F0757BAE9C44E9BDC5C2EF9029775E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +356,8 @@ magnet:?xt=urn:btih:EAD7A20268F0757BAE9C44E9BDC5C2EF9029775E
 ```bash
 magnet:?xt=urn:btih:AA3F7BC619FC3E992E29E65E6C143CA179483F27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +384,8 @@ magnet:?xt=urn:btih:AA3F7BC619FC3E992E29E65E6C143CA179483F27
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ magnet:?xt=urn:btih:AA3F7BC619FC3E992E29E65E6C143CA179483F27
 ```bash
 magnet:?xt=urn:btih:9C839EFB28FAE8AEEAF452F0441B3A77B2EEF507
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ magnet:?xt=urn:btih:9C839EFB28FAE8AEEAF452F0441B3A77B2EEF507
 magnet:?xt=urn:btih:C0B45C9232CD7DD1C96CC3338AF9EA6E0295C311
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ Fantasy wallpapers 001
 ```bash
 magnet:?xt=urn:btih:CE3134C89DDC99421EFB4F25F601D000C8A80C28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +497,8 @@ Disc: 1
 magnet:?xt=urn:btih:B5EA84405C8D9D5C290869981E45BC89F333E5C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +522,8 @@ Revo Uninstaller — утилита для удаления нежелатель
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +549,8 @@ Revo Uninstaller — утилита для удаления нежелатель
 magnet:?xt=urn:btih:4477654AEBDAAAA16826C160A12C93EB5FB7B22C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +575,8 @@ magnet:?xt=urn:btih:4477654AEBDAAAA16826C160A12C93EB5FB7B22C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +600,8 @@ NG: Омар-монстр / Monster lobster (2000) SATRip
 ```bash
 magnet:?xt=urn:btih:D0D0D53D73A62656B453FF063C5B3F97976DAF1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +629,8 @@ Ivy Bridge — это первые процессоры Intel, производ�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ Ivy Bridge — это первые процессоры Intel, производ�
 ```bash
 magnet:?xt=urn:btih:8A841668277F2E7438659BAF0F531487140E3FDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +681,8 @@ magnet:?xt=urn:btih:8A841668277F2E7438659BAF0F531487140E3FDE
 ```bash
 magnet:?xt=urn:btih:8E41578C44F139773752DF0700EFA2EA16BEDD4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -666,6 +716,8 @@ VA - В Машину! Русский Vol.2 (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:B05B399A0FB1C855B836EECD4F80B23E611C7357
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

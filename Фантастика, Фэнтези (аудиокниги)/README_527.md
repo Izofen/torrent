@@ -1,3 +1,29 @@
+###  Публикация: 1476194   (1011761) от 10.06.2021
+
+Сергей Савинов, Антон Емельянов | Царь зверей. Побег с Земли. Книга 1 (2021) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгожданный контакт с инопланетными пришельцами принес землянам новые технологии, в том числе и в игровой индустрии. Людям стала доступна игра Джи – единственная во Вселенной, в которую играют все разумные расы. Миллиарды миров, собранных в одну бесконечную планету. Отличный способ развлечься для старых рас и великолепная возможность заработать для новых. Количество (   Читать дальше...   )Жанр: Героическая фантастика, киберпанк, космическая фантастика, LitRPGПродолжительность: 09:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF8F1D99F19AE358AC1919CB47CD46A4CFF2B919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1476213   (1011788) от 10.06.2021
 
 Анатолий Дроздов | Штуцер и тесак. Кровь на эполетах. Книга 3 (2021) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:32034090C0C15DCE0576417FE480E6E40FEBADFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:32034090C0C15DCE0576417FE480E6E40FEBADFA
 ```bash
 magnet:?xt=urn:btih:7E344EE1B5B8B9A805CE7738AB27078FA1F300C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:7E344EE1B5B8B9A805CE7738AB27078FA1F300C2
 magnet:?xt=urn:btih:F2237E20A61556B64F40CD01C6FCD86D5248FDA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:F2237E20A61556B64F40CD01C6FCD86D5248FDA9
 ```bash
 magnet:?xt=urn:btih:483D6A7DF5319E1BEF4A8FFE721193086209F742
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:483D6A7DF5319E1BEF4A8FFE721193086209F742
 magnet:?xt=urn:btih:BEB11F0B90C8AAA0EED81A8DCE5793053C12E6F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:BEB11F0B90C8AAA0EED81A8DCE5793053C12E6F1
 ```bash
 magnet:?xt=urn:btih:A11729D0BBB36F248084C9B275DE69C79732A928
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:A11729D0BBB36F248084C9B275DE69C79732A928
 magnet:?xt=urn:btih:D20789C0C3FC06C90C55881753F4864A305E6F0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:D20789C0C3FC06C90C55881753F4864A305E6F0D
 ```bash
 magnet:?xt=urn:btih:724C87398587B1656DFF09A69CE3E8C996D59385
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:724C87398587B1656DFF09A69CE3E8C996D59385
 magnet:?xt=urn:btih:12EE748795D4D75827CF05A3D010E77BC7D3D635
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:12EE748795D4D75827CF05A3D010E77BC7D3D635
 ```bash
 magnet:?xt=urn:btih:745233132F76D0641B671804A5806EDADC79BA3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +314,8 @@ magnet:?xt=urn:btih:745233132F76D0641B671804A5806EDADC79BA3C
 magnet:?xt=urn:btih:3E94E48049CAD71D7E6780B0E0CACE5C0DA82413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:3E94E48049CAD71D7E6780B0E0CACE5C0DA82413
 ```bash
 magnet:?xt=urn:btih:85346944F59C4E123982CBDA31D8C1045941915A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +369,8 @@ magnet:?xt=urn:btih:85346944F59C4E123982CBDA31D8C1045941915A
 magnet:?xt=urn:btih:DAE628BFC2EB55B0297038DC8DA4601F73D4639C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:DAE628BFC2EB55B0297038DC8DA4601F73D4639C
 ```bash
 magnet:?xt=urn:btih:489BFEA2EF75659DC5EF849BE5668CB2612EA0A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +421,8 @@ magnet:?xt=urn:btih:489BFEA2EF75659DC5EF849BE5668CB2612EA0A4
 magnet:?xt=urn:btih:31A6499E834FF5051865E6F436E183FC19B3D39A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +447,8 @@ magnet:?xt=urn:btih:31A6499E834FF5051865E6F436E183FC19B3D39A
 magnet:?xt=urn:btih:A25C7DCCD6B5A7A66C0A1170CCB6DB999E3324F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +472,8 @@ magnet:?xt=urn:btih:A25C7DCCD6B5A7A66C0A1170CCB6DB999E3324F8
 ```bash
 magnet:?xt=urn:btih:270F3FC2651CF2F04E468632126D363F1ECF3D73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +501,8 @@ magnet:?xt=urn:btih:270F3FC2651CF2F04E468632126D363F1ECF3D73
 magnet:?xt=urn:btih:1E196E45942DD59CDD14E1D8D86FCD7C15E43F94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:1E196E45942DD59CDD14E1D8D86FCD7C15E43F94
 ```bash
 magnet:?xt=urn:btih:D31756D0C51AAC4E8F9F25F60E2E1FDD311484DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +553,8 @@ magnet:?xt=urn:btih:D31756D0C51AAC4E8F9F25F60E2E1FDD311484DC
 magnet:?xt=urn:btih:05C003991A01F7E90EC63BB0D9F52A4CF00FBBE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:05C003991A01F7E90EC63BB0D9F52A4CF00FBBE8
 ```bash
 magnet:?xt=urn:btih:6DF862736C9C6D5E26760C84F7055019A56B45E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:6DF862736C9C6D5E26760C84F7055019A56B45E5
 magnet:?xt=urn:btih:1EBB755B2F99A833B1ABB65107647E513BCD312A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:1EBB755B2F99A833B1ABB65107647E513BCD312A
 magnet:?xt=urn:btih:9AED512F98992CDBECE1E8276AD8DA18983D25FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:9AED512F98992CDBECE1E8276AD8DA18983D25FA
 ```bash
 magnet:?xt=urn:btih:70A418FA69CF42A9362BA8831BCD4BE5AF894780
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,29 +684,7 @@ magnet:?xt=urn:btih:70A418FA69CF42A9362BA8831BCD4BE5AF894780
 magnet:?xt=urn:btih:F094ADAA8BA1BBC617918707B96CF83AD7E51DBE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472917   (1013959) от 27.05.2021
-
-Андрей Чвалюк | Хроники забытых колоний. Преодолеть табу. Книга 1 (2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сотни лет люди жили на этой планете родовыми общинами и вели натуральное хозяйство. Каждое племя сообща выращивало примитивные сельскохозяйственные культуры, выпасало мелкий рогатый скот и добывало полезные ископаемые для своих нужд, которые были весьма скромными, так как в долинах царил поздний железный век. Людям были неведомы такие понятия, как религия, война (   Читать дальше...   )Жанр: Боевая фантастика, космическая фантастика, научная фантастикаПродолжительность: 03:17:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCF5D71010B100343191D609E81DCC472CF1EA0F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

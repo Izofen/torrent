@@ -28,6 +28,8 @@ Pat Benatar - Live In New Haven (2001) DVD5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ Pat Benatar - Live In New Haven (2001) DVD5
 ```bash
 magnet:?xt=urn:btih:EFD287E9FC6EE3E79C05D9A3FA59DCF6A86FA62E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -78,6 +82,8 @@ magnet:?xt=urn:btih:EFD287E9FC6EE3E79C05D9A3FA59DCF6A86FA62E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ magnet:?xt=urn:btih:EFD287E9FC6EE3E79C05D9A3FA59DCF6A86FA62E
 ```bash
 magnet:?xt=urn:btih:21C68CC4DD06C0C61FF9BFF5CBC866B0085D6F25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ magnet:?xt=urn:btih:21C68CC4DD06C0C61FF9BFF5CBC866B0085D6F25
 magnet:?xt=urn:btih:3EA768019FFDE407F747410C88F0450EF01CDA60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:3EA768019FFDE407F747410C88F0450EF01CDA60
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ Skyla - Disco Drum (2012) HDRip [720p]
 magnet:?xt=urn:btih:67633CB6574F076564A37C7AFA94BD654B240A62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ Dj  Sava выпустил новый клип в сотрудничестве с
 magnet:?xt=urn:btih:11EB2FC01CEBDFE3D0279DA022820F7F6D982CD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:11EB2FC01CEBDFE3D0279DA022820F7F6D982CD8
 ```bash
 magnet:?xt=urn:btih:9DEEF47D83EFFE523A62DC3BE30F617CD7BF8A97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:9DEEF47D83EFFE523A62DC3BE30F617CD7BF8A97
 ```bash
 magnet:?xt=urn:btih:07B48AEBC87E52E191F6EF0D67051C611B83C65F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +304,8 @@ Tony Carey - (полное имя Anthony Lawrence Carey; 16 октября 1953
 magnet:?xt=urn:btih:9A81FA78FC1D9D6D4897CCBE8F634D893681C5BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +339,8 @@ Bonus :
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +364,8 @@ Evanescence - Клипы  (2003-2011) DVDRip-AVC, WEBRip-AVC
 ```bash
 magnet:?xt=urn:btih:8BA757F31B21972301135A510A71AC50A475009A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +400,8 @@ Scorpions - Live: Get Your Sting & Blackout 3D (2011) [1080p] Blu-Ray
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +435,8 @@ Scorpions - Live: Get Your Sting & Blackout 3D (2011) [1080p] Blu-Ray
 magnet:?xt=urn:btih:8F8819EF5A1ADC7FCD4006504AB4A015856BC641
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +469,8 @@ magnet:?xt=urn:btih:8F8819EF5A1ADC7FCD4006504AB4A015856BC641
 ```bash
 magnet:?xt=urn:btih:D62BDAB81AD267DC2BCEDF6AD71E41559843AB35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +510,8 @@ magnet:?xt=urn:btih:D62BDAB81AD267DC2BCEDF6AD71E41559843AB35
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +550,8 @@ magnet:?xt=urn:btih:D62BDAB81AD267DC2BCEDF6AD71E41559843AB35
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +575,8 @@ magnet:?xt=urn:btih:D62BDAB81AD267DC2BCEDF6AD71E41559843AB35
 ```bash
 magnet:?xt=urn:btih:CCB8D3E642F1F0F1BBD395D073AC739150B9998C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +606,8 @@ magnet:?xt=urn:btih:CCB8D3E642F1F0F1BBD395D073AC739150B9998C
 magnet:?xt=urn:btih:9E2BDEA4AB841EFF6CF4EDF17DA75A47D0CA1BB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +635,8 @@ magnet:?xt=urn:btih:9E2BDEA4AB841EFF6CF4EDF17DA75A47D0CA1BB1
 magnet:?xt=urn:btih:56E2597C4BFA4732B3EC1B9F94FE04C277C0814A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +663,8 @@ magnet:?xt=urn:btih:56E2597C4BFA4732B3EC1B9F94FE04C277C0814A
 magnet:?xt=urn:btih:8F2A109D9A7B0B5A464B22CA7678D6E1C1182F29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +688,8 @@ magnet:?xt=urn:btih:8F2A109D9A7B0B5A464B22CA7678D6E1C1182F29
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -679,6 +725,8 @@ This special live concert was shot at the Palais de Bercy, in Paris, France. It'
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -713,6 +761,8 @@ This special live concert was shot at the Palais de Bercy, in Paris, France. It'
 magnet:?xt=urn:btih:114DFE3F7771CE2EBB9A18A4A2C642F06BA79111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -736,6 +786,8 @@ Madonna feat Nicki Minaj & M.I.A. — Give Me All Your Luvin (2012) HDRip [720p]
 ```bash
 magnet:?xt=urn:btih:F625B053DCE81CA617C4F529C6B6842B79D04225
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

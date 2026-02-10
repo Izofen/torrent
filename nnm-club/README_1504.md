@@ -22,6 +22,8 @@ Sarah Vaughan - A Time In My Life (1971) 1987, Mobile Fidelity Sound Lab [FLAC|L
 magnet:?xt=urn:btih:55E9568E192A840E6B8A965561392A879CB721C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:55E9568E192A840E6B8A965561392A879CB721C7
 ```bash
 magnet:?xt=urn:btih:C41330EB1EA7E1EA15EF43E2B3E32010E442399B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Beth Hart - You Still Got Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:A64BC716FC6FA46B39CA10F54443A6976D202B09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:449C7E6842D5CF72D3B863922057772A6A28BABB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Sarah Vaughan & Friends - A Night Of Sass & Brass (1986) 2006, Immortal [FLAC|Lo
 magnet:?xt=urn:btih:DD101898C89140DF37B0561214E15C00150DA1B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:DD101898C89140DF37B0561214E15C00150DA1B9
 ```bash
 magnet:?xt=urn:btih:C0173EFB435037BD257EBB169BE64920FCD5AC5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ Steps Ahead - Magnetic (1986) 2013, Elektra [FLAC|Lossless|tracks + .cue] <Jazz 
 magnet:?xt=urn:btih:B4F896A220E23BA525F92A7E9580F6A113D17DAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:B4F896A220E23BA525F92A7E9580F6A113D17DAE
 ```bash
 magnet:?xt=urn:btih:CB7048B0D379F8C23AC1D857CBE080F8E5B1D817
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -230,6 +246,8 @@ Sarah Vaughan - Compact Jazz: Sarah Vaughan Live! (1987) Mercury[FLAC|Lossless|t
 magnet:?xt=urn:btih:DC5A1B431C9FBBF21A01E10E0C533185B555F135
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ Ann Hampton Callaway - From Sassy to Divine: The Sarah Vaughan Project (2014) Sh
 ```bash
 magnet:?xt=urn:btih:D80682075D02A0097B861DEC3BF856DA48A7D7F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +304,8 @@ Sarah Vaughan - Sassy Swings Again (1967) Mercury [FLAC|Lossless|tracks + .cue] 
 magnet:?xt=urn:btih:507EBBCE06E28C732B694E3E977112E5AE6D2E6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +331,8 @@ Balabolka 2.15.0.879 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:B89DFA33957843A1E55E79EB545B99A590A00AD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +356,8 @@ magnet:?xt=urn:btih:B89DFA33957843A1E55E79EB545B99A590A00AD5
 ```bash
 magnet:?xt=urn:btih:E68B6C4A0F02D3B4D23A848DA6C9D1AB939B344E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +386,8 @@ Blue System - Диско 80-х (2007) [OGG Vorbis|480 Kbps] <Electronic, Pop, Di
 magnet:?xt=urn:btih:29F168A38287AA8BDAD640D400C256A1FC01B66D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +415,8 @@ Sarah Vaughan - The Magic of Sarah Vaughan (1940-e - 1960-e) 1998, Newsound 2000
 magnet:?xt=urn:btih:7FBE05D6D2F51EAD091AAB3514E32B5A8FC22661
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +440,8 @@ magnet:?xt=urn:btih:7FBE05D6D2F51EAD091AAB3514E32B5A8FC22661
 ```bash
 magnet:?xt=urn:btih:65888A3F5EB49991FCD1CBD050C7355641B84493
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +467,8 @@ magnet:?xt=urn:btih:65888A3F5EB49991FCD1CBD050C7355641B84493
 magnet:?xt=urn:btih:393BC9E518D8FF0DAD889B6349C887A37A5DF9DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +492,8 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:7668267DAC926981338522322F0C62FA95C8C265
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +519,8 @@ magnet:?xt=urn:btih:7668267DAC926981338522322F0C62FA95C8C265
 magnet:?xt=urn:btih:5A4F918053357A549C4B56C0E1CC1D4D5E9A0DFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:5A4F918053357A549C4B56C0E1CC1D4D5E9A0DFE
 ```bash
 magnet:?xt=urn:btih:5C397F6A6B0BCC77D3116A935F32FAF45BB85276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ magnet:?xt=urn:btih:5C397F6A6B0BCC77D3116A935F32FAF45BB85276
 magnet:?xt=urn:btih:7FBB65A2609DD3EDAF639BA6A986A0713C57C210
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ magnet:?xt=urn:btih:7FBB65A2609DD3EDAF639BA6A986A0713C57C210
 magnet:?xt=urn:btih:816794135027E83F2A016A1805843ECA7A5AE42F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ Northend Tower Defense – динамичное приключение, собы
 ```bash
 magnet:?xt=urn:btih:DFE2451A12A7A3F210943C349F9FB63CA7DBC065
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ David Gilmour - Fifth Night Of Residency (2024) [FLAC 24/44.1|Lossless|tracks] <
 magnet:?xt=urn:btih:5C00D3B81A6BC6C47CBA4B50299A974088F67B2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ WinX VideoProc Converter - усовершенствованная версия, 
 magnet:?xt=urn:btih:2A53B7B18FBD23342784D21BFA00868271AB1D2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:02FC2D6AF8878B4DFD83C2F2ADD71C154CDBA6FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

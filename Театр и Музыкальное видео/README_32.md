@@ -19,6 +19,8 @@ Marilyn Manson & Rammstein - The Beautiful People (2012) [H.264/720p] HDTVRip
 magnet:?xt=urn:btih:120FF1A0C9E068C90188EA0E945E912876E70FA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:120FF1A0C9E068C90188EA0E945E912876E70FA6
 ```bash
 magnet:?xt=urn:btih:A88C705C9A4012FEA73B6F37C79C4CB06A6296C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:A88C705C9A4012FEA73B6F37C79C4CB06A6296C5
 magnet:?xt=urn:btih:FEAEE1813C4550DB300093FBE180F52581610A28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:FEAEE1813C4550DB300093FBE180F52581610A28
 ```bash
 magnet:?xt=urn:btih:388B8706D05532F446188894210DC9B25CCA8901
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:388B8706D05532F446188894210DC9B25CCA8901
 magnet:?xt=urn:btih:121726663A7626D5D5860A591BA5974DDFCB1F7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Libera Official websiteЖанр: BoysChoirРежиссер: Phillip ByrdАкте
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Libera Official websiteЖанр: BoysChoirРежиссер: Phillip ByrdАкте
 ```bash
 magnet:?xt=urn:btih:08473766AA3BB816C424AA3CA54040BBCA01C4D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ Jean Michel Jarre - Paris Electronic night (1998) VHSRip
 magnet:?xt=urn:btih:995CE951AECDA64541011EA47E9D52B45E1D09C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ EMI 26 марта выпускают новый концертный релиз 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +274,8 @@ Iron Maiden: En Vivo! (2011/2012) [720p] BDRip
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +310,8 @@ Bass player and founding member Steve Harris comments, For The Final Frontier To
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +348,8 @@ AC/DC Live At River Plate, a definitive live concert DVD documenting AC/DC’s m
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +374,8 @@ Hammerfall - Клипы (1997 - 2009) DVDRip-AVC
 magnet:?xt=urn:btih:30F1B1D93C5EC67326741A32FFD3A23AFE704E6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ Iron Maiden: En Vivo! (2012) BDRip
 ```bash
 magnet:?xt=urn:btih:8EC4D15511F2ADD3DE37A4C8F5842FCAAC972521
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden (2011) [1080p
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +465,8 @@ Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden (2011) [1080p
 magnet:?xt=urn:btih:962690D442D71048491D4C65877E0192FAF4D4BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +500,8 @@ ZAZ - Sans Tsu Tsou (2011) DVDRip
 magnet:?xt=urn:btih:09905D5CB0A714B157CD9F509DCCCC2597BB30A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +525,8 @@ magnet:?xt=urn:btih:09905D5CB0A714B157CD9F509DCCCC2597BB30A7
 ```bash
 magnet:?xt=urn:btih:7139303D63F6C06D99794BD8A38368F79774E76A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +561,8 @@ Chickenfoot - Live At Dsseldorf, Mitsubishi Electric Halle (2012) SATRip
 magnet:?xt=urn:btih:5DEC568634BE1EB590648E0A33FE58E38D9F9022
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +596,8 @@ Armin van buuren video asot 550 live in Kiev (2012) (CamRip/DVD5)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +621,8 @@ Armin van buuren video asot 550 live in Kiev (2012) (CamRip/DVD5)
 ```bash
 magnet:?xt=urn:btih:308B6A76FEB2C578831193D2598865C581F9C58C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +651,8 @@ Rammstein - Live Aus Moskau 2012-02-11 (2012) HDCamRip[1080p] (Ver. 2)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +680,8 @@ Armin van Buuren / Ultra Music Festival (2012)[1080p] HDTV
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +705,8 @@ Rammstein - Live Aus Moskau 2012-02-11 (2012)[1080p] HDCamRip (Ver. 1)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -684,6 +732,8 @@ Rammstein - Live Aus Moskau 2012-02-11 (2012)[1080p] HDCamRip (Ver. 1)
 magnet:?xt=urn:btih:251B090A077C905DBAE2C9DCB85B3B530F7E0FAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -707,6 +757,8 @@ magnet:?xt=urn:btih:251B090A077C905DBAE2C9DCB85B3B530F7E0FAB
 ```bash
 magnet:?xt=urn:btih:81E181F0D66E1FC8E4F68E0E20857137AA4EC9E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

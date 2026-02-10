@@ -1,27 +1,3 @@
-###  Публикация: 1027864   (693880) от 20.06.2016
-
-Youtubers Life (2016) [Ru/Multi] (0.7.11) Repack Other s
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Youtubers Life - самый реалистичный симулятор летсплейщика! Попробуйте себя в роли ведущего канала на YouTube, узнайте каково это зарабатывать себе на жизнь, публикуя ролики. Помимо сиденья за компьютером Вы также будете заниматься повседневными делами, как в The Sims. Начните вести первые трансляции из «уютной спальни родителей», зарабатывая на новое оборудование (   Читать дальше...   )Тип издания: RepackРазработчик: U-Play onlineЖанр: Simulation, Strategy, IndieЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61EFA97FBAC6D70B96CB61B97ED5A4D2B25AAEDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027970   (693896) от 20.06.2016
 
 Heavy Fire: Shattered Spear (2015) [En/Multi] (1.1.8) Repack Other s
@@ -42,6 +18,8 @@ Heavy Fire: Shattered Spear (2015) [En/Multi] (1.1.8) Repack Other s
 ```bash
 magnet:?xt=urn:btih:E8D5D11FE7E8816408612DA92A81EB61106FE38A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Demon Hunter 4: Riddles of Light (2017) [En] (1.0) Unofficial [Collector's Editi
 magnet:?xt=urn:btih:9D2296BCB9001283656C627AF466E00B649AEA10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Noir Chronicles: City of Crime (2018) [En] (1.0) Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:6B43C6DD0F87C69D6D699EBCAD882147D68211A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Cadenza 5: The Eternal Dance (2018) [En] (1.0) Unofficial [Collector's Edition]
 magnet:?xt=urn:btih:2B3960437954FFFC6C12CCB74368B130A30B96B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ A Second Before Us (2017) [Ru/En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:EAC9F3264FE55B58CB9ABD3A69079A1684902AF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ MX vs ATV Supercross Encore (2015) [Multi] (1.0/dlc) License CODEX
 magnet:?xt=urn:btih:15401040E71BB5F7436C0861A3F5A1D39738039D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Moccasin (2017) [Ru/En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:ADF5C5F190DE17DA7000F1DA563AA29AF366BE26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Deadly Tropics - действие происходит на прекрасном
 magnet:?xt=urn:btih:4BE670E3628D35456F23447106F4D52C383F318C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Secret of Harrow Manor (2018) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:398CAC42B9C396A887FE973C27654A5A1A3E59DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +254,8 @@ Men of War: Assault Squad / В тылу врага 2: Штурм (2011) [Ru/Mult
 magnet:?xt=urn:btih:69EAC4714CF024F66A1E6899F7916D0D9F4DC231
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ Milky Way Prince The Vampire Star (2020) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:07608501F8913B7BD01E42FB011D0F0460A55C99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +308,8 @@ King's Bounty: Crossworlds / King's Bounty: Перекрестки миров (2
 magnet:?xt=urn:btih:694ABCF2BA9A18CF7FF975E6CF05FD50F80E5B3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +333,8 @@ Magic: The Gathering - Duels of the Planeswalkers 2014 – новая часть
 ```bash
 magnet:?xt=urn:btih:E469C2983E30F6A069F19351CA6C553B540C7F25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +360,8 @@ Saga Of The Nine Worlds 2: The Four Stags / Сага о Девяти Мирах 
 magnet:?xt=urn:btih:68C630EBC14B5C73219BDFE45545EF575694EE1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +385,8 @@ Dragon Kingdom War (2017) [En] (1.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:CCBC9ED5037D39A2FB1E95DC23C96595000D204A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +412,8 @@ Nevertales 7: Creators Spark / Несказки 7: Искра Создателя
 magnet:?xt=urn:btih:85DD7644768834F5C30FC8F82AA9AB3B294485ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +437,8 @@ Mystery Trackers 11: Train to Hellswich / Охотники за тайнами 1
 ```bash
 magnet:?xt=urn:btih:C51D9287443F49706A3F1E4AECC723AEBAF16688
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +464,8 @@ Dark Dimensions 5: Homecoming / Темные измерения 5: Возвра�
 magnet:?xt=urn:btih:079F2E72A6D76A1C8CFF0C00B0BB058F4289CBD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +489,8 @@ Automobilista 2 – вторая часть гоночного симулято�
 ```bash
 magnet:?xt=urn:btih:F6250BAFEC902CBF741F5BAA4CE6D60ECB60569E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +516,8 @@ Labyrinths of the World 9: Lost Island / Лабиринты Мира 9: Зате
 magnet:?xt=urn:btih:06564E15F8ABDC4090D867B84B64813F14E44354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +541,8 @@ Haunted Legends 6: The Dark Wishes (2015) [En] Unofficial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:8CDDE5F84A29C060D5DF69468FDE4D154AA6A865
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +573,8 @@ King's Bounty: Принцесса в доспехах* - Новая приклю
 magnet:?xt=urn:btih:738E6DA8CC77432B9BF2710D32EE3835911D69F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +598,8 @@ Joe Dever's: Lone Wolf HD Remastered (2014) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:5C76793A032DF9B4E2F1183A3AAB4533C1696BA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +625,8 @@ War Truck Simulator (2016) [Ru/Multi] (1.20) License PLAZA
 magnet:?xt=urn:btih:CCBEA08160B5FD9288BDCAA52BA230C219822365
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +651,34 @@ Rebel Galaxy – это удалое приключение в открытом 
 ```bash
 magnet:?xt=urn:btih:D6BA28A832FDCBBD61FA68236523EF1DE921773D
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027366   (697700) от 18.06.2016
+
+Deathtrap (2015) [Ru/Multi] (1.0.6) License DEFA
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deathtrap является смесью жанров tower defence и экшен-РПГ. Под контролем игрока находится герой, но основной мощью в противостоянии толпам неприятелей выступают всевозможные ловушки. Всякий смрад из темных глубин снова возвращается в наш мир, чтобы разбавить и без того мрачную обыденность вечной тьмой. Лишь опустелые форты являются последним препятствием на пути (   Читать дальше...   )Тип издания: LicenseРазработчик: NeocoreGamesЖанр: Strategy (Tower Defense), RPG (Rogue, Action), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D918BDFBD00347B6EA44641E002FFFD717F351A
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

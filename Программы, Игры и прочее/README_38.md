@@ -19,6 +19,8 @@ Colorize Images - это сервис, основанный на автомат�
 magnet:?xt=urn:btih:DA179F82C72C82B7DFA28334D5C5124AD4661B10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:408C8EBFF5AECB72FF22CFCE66920AC89538E4F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ PhotoTune - Улучшитель фото v4.6.0 Mod by Mixroot, 0x7d [Multi]
 ```bash
 magnet:?xt=urn:btih:E143C25FB2AF0A757D4B5A2ED0B28D35F8C4F389
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:E143C25FB2AF0A757D4B5A2ED0B28D35F8C4F389
 magnet:?xt=urn:btih:A8D70C79B1FE4931CC2A2E6721E0BEA76265AA68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Adobe Acrobat Reader - знаменитое приложение названи�
 ```bash
 magnet:?xt=urn:btih:675CE111F67FB2BFC1D728167AFAF063CB7F9476
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ ibis Paint X - известное благодаря своим качества
 magnet:?xt=urn:btih:69C81500265D3F651E6E589A3E68875B39649040
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Via - весьма популярный и востребованный Брау
 ```bash
 magnet:?xt=urn:btih:4A8732984480F0588522DEDD55A6BEDFA03AA5F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Via - весьма популярный и востребованный Брау
 magnet:?xt=urn:btih:DCBCB96D4668265E6A079D8F97293417F2C6FBA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Via - весьма популярный и востребованный Брау
 ```bash
 magnet:?xt=urn:btih:8A0755156FB390D5D6604B02F62CC8550695DA77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ D Notes - крайне симпатичный блокнот, что, как и 
 magnet:?xt=urn:btih:C82FC2882C156FC503F911718BEEC089275CA96B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ ibis Paint X - известное благодаря своим качества
 ```bash
 magnet:?xt=urn:btih:1A0EAFCAAA1AD020E718427158F3114F7FBAEB04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ VirusTotal Mobile дает возможность проверить все ус
 magnet:?xt=urn:btih:FA2CDE32B907B733FABD9BA69447948C44234415
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Cube ACR - удобное приложение для записи исходя�
 ```bash
 magnet:?xt=urn:btih:D49DD0E548C28093ACDD199F112DA7E3946D6D97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:D49DD0E548C28093ACDD199F112DA7E3946D6D97
 magnet:?xt=urn:btih:5260A18704C9F318FE473AFD1D8C26CEBD683D3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Microsoft SwiftKey — это интеллектуальное приложен�
 ```bash
 magnet:?xt=urn:btih:4D15F80F7891B3F3BF8EB549C6E60033EC9D26B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Mirror Plus: Mirror with Light / Зеркало Плюс v4.3.12 Mod by srajawwa
 magnet:?xt=urn:btih:7E1FECC1824D4FDD91AF1423E6AFB0F91D4B8E09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ GPS АнтиРадар v44.1 Mod by 0x7d [Ru]
 ```bash
 magnet:?xt=urn:btih:A96C211C0BA347F1875A978CE9518B1B24123806
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Spotify 8.9.38.494 Mod by LITEAPKS [Ru/Multi]
 magnet:?xt=urn:btih:5B24B1B3739A4E16BD0FD08235AEB348F4E255E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Melon VPN - это быстрый, неограниченный, стабиль�
 magnet:?xt=urn:btih:50C8E2F30F9CF88A7497FEA4C44D30DD5AE60A4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ BSPlayer - один из тех мультимедийных плееров, ч�
 ```bash
 magnet:?xt=urn:btih:1F22B4F9772AABD60A70198B38F398C876C8BD53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Prisma Art Effect Photo Editor / Арт - Фото в Рисунок v4.6.1.615 
 magnet:?xt=urn:btih:B36914CF5AC5F54A042E14A97C682149D5481351
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Gaia GPS (Topo Maps) v2024.4 b7881 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:068BE1D96280EA734E8EE89CDB210AE605D98BE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ HeadUp Display (HUD) – это возможность использовать 
 magnet:?xt=urn:btih:229B386681889537AD1BF964E3D65BF5FA2972D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ tvQuickActions позволяет назначить до 5 действий н�
 ```bash
 magnet:?xt=urn:btih:A9BD23B4F71FD1932B583B0F3AA06A04847C8D87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ Spotify 8.9.36.616 Mod by LITEAPKS [Ru/Multi]
 magnet:?xt=urn:btih:A79F83B8E0872D003A5BEA633FCF0EA72D426B23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ VPN Servers for OpenVPN 46 [Ru]
 ```bash
 magnet:?xt=urn:btih:1A0140672F3CCD41D113530F21F772251429AB26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

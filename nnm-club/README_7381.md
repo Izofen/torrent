@@ -21,6 +21,8 @@ Application Wizard позволит запускать, завершать и а
 magnet:?xt=urn:btih:C54789F7BE144732B7B574B27F285F1F41A72D76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:C54789F7BE144732B7B574B27F285F1F41A72D76
 magnet:?xt=urn:btih:460323D64E8D4C097737899316BD80BAA8BFB64A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:460323D64E8D4C097737899316BD80BAA8BFB64A
 ```bash
 magnet:?xt=urn:btih:E055F9A1106C6E20117CAAF5356735431EA9E5C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ iTubeDownloader 6 v6.5.9 [En]
 ```bash
 magnet:?xt=urn:btih:7F572094B113018C490C6B345C9307DBC85A942D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Bloody Hell - Bloody Hell (2015) [MP3|320 кб/с] <Heavy Metal>
 magnet:?xt=urn:btih:262B20340222D3E57FCB8FE8F0FCF8D447B84DFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Eternal Idol - Renaissance (2020) [FLAC|Lossless|image + .cue] <Symphonic Power 
 ```bash
 magnet:?xt=urn:btih:775563EABC92868B607B9D042FC473D4C5F2D75E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ Black Space Riders - We Have Been Here Before (2022) [MP3|320 Kbps] <Psych, Spac
 magnet:?xt=urn:btih:8BC98D1F61A9B144C9EDDDD7B88ACC1ECB6079EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:8BC98D1F61A9B144C9EDDDD7B88ACC1ECB6079EE
 magnet:?xt=urn:btih:8941CC8672281BBBE2F984895B70038FF9943D2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:8941CC8672281BBBE2F984895B70038FF9943D2C
 ```bash
 magnet:?xt=urn:btih:3CBF54D4F371CC7F8C229B66E4A00DFBD411DEB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ Tamara Kuldin - This May Only Be a Dream (2020) [FLAC|Lossless|tracks + .cue] <V
 magnet:?xt=urn:btih:9CCA820FE4C20E211DBDB760E881744AD16A6F70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:9CCA820FE4C20E211DBDB760E881744AD16A6F70
 ```bash
 magnet:?xt=urn:btih:9B68361AAF4177C0DA60A094B0CAEDB80A61B8DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ VA - Beatport Techno 01 (2019) [MP3|320 Kbps] <Techno, Edm>
 magnet:?xt=urn:btih:30392162F4B49749EFA78B9EA668E7D3C2D46358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:30392162F4B49749EFA78B9EA668E7D3C2D46358
 ```bash
 magnet:?xt=urn:btih:EDEB73AD524CB7C65C413637098242D4247411FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +383,8 @@ The End At The Beginning - 3 Albums (2014-2022) [MP3|320 Kbps] <Progressive Meta
 magnet:?xt=urn:btih:6A1304BE9A717D049D554AD20C4B626F47281532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +410,8 @@ magnet:?xt=urn:btih:6A1304BE9A717D049D554AD20C4B626F47281532
 magnet:?xt=urn:btih:D402B6CC19F60E41920F9289BD768570C112FBCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:D402B6CC19F60E41920F9289BD768570C112FBCA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +465,8 @@ magnet:?xt=urn:btih:D402B6CC19F60E41920F9289BD768570C112FBCA
 magnet:?xt=urn:btih:55A898FF70726782FCEAF369354EFCB498A77BE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +490,8 @@ magnet:?xt=urn:btih:55A898FF70726782FCEAF369354EFCB498A77BE7
 ```bash
 magnet:?xt=urn:btih:7A3F8F3E17EA68109D58FDFB97A082AC38EBC809
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +520,8 @@ Jay-Z - Reasonable Doubt (1996) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:E379766416400E66343B4B285F0C9F16E391BCC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +548,8 @@ Playingtheangel - INFINITY (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:745DA81605B7A4925A67DE16705015CDEB21EC21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +578,8 @@ VA - Soothing Music Finest in Chillout (2015) [MP3|320 кб/с] <Downtempo, Chil
 magnet:?xt=urn:btih:27DF882E346D155DD8C59A5919BC0D3F25FCECBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +607,8 @@ Snakeskin Boozeband - Open For Boozeness (2021) [FLAC|Lossless|WEB-DL|tracks] <H
 magnet:?xt=urn:btih:51E9AB646E56629C0218B4FEB2D79ECF57AB292B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +632,8 @@ magnet:?xt=urn:btih:51E9AB646E56629C0218B4FEB2D79ECF57AB292B
 ```bash
 magnet:?xt=urn:btih:631A567C46863E3D8BA5A9DAF2EA2FB3CE5F2901
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +659,8 @@ magnet:?xt=urn:btih:631A567C46863E3D8BA5A9DAF2EA2FB3CE5F2901
 ```bash
 magnet:?xt=urn:btih:E7DEE1DC8772CC6AA40933C1CD663DEBFC70DB35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +689,8 @@ magnet:?xt=urn:btih:E7DEE1DC8772CC6AA40933C1CD663DEBFC70DB35
 magnet:?xt=urn:btih:BD956F68671F2853AF8AAF05D59B1C91A862A33B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +716,8 @@ magnet:?xt=urn:btih:BD956F68671F2853AF8AAF05D59B1C91A862A33B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

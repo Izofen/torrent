@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:6C4C95DCBEA3ADA3600581DDF465DE124B7ECEBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:6C4C95DCBEA3ADA3600581DDF465DE124B7ECEBF
 ```bash
 magnet:?xt=urn:btih:23514DEE3E3490E21E051F8299FD4FD589F43D0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:23514DEE3E3490E21E051F8299FD4FD589F43D0B
 magnet:?xt=urn:btih:360314CE52E0457987E99A42FCE0CD065FA23F1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ WinDirStat - небольшой бесплатная программа на р�
 ```bash
 magnet:?xt=urn:btih:91D4C1C5B8EE32853F6D6B8B64C66485C71B0067
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:91D4C1C5B8EE32853F6D6B8B64C66485C71B0067
 magnet:?xt=urn:btih:94DD4FA12D5CB8E807EC31B986D94C4EB3BCBDBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:94DD4FA12D5CB8E807EC31B986D94C4EB3BCBDBA
 ```bash
 magnet:?xt=urn:btih:F960BDC9499E9C436A6871E0145A5CD194937079
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:F960BDC9499E9C436A6871E0145A5CD194937079
 magnet:?xt=urn:btih:11BB528619FCC4A1393DB66D194E6A01DCD63988
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:11BB528619FCC4A1393DB66D194E6A01DCD63988
 ```bash
 magnet:?xt=urn:btih:20B09D9FEFC29014E1D742CA242E2EE1F95DC465
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:20B09D9FEFC29014E1D742CA242E2EE1F95DC465
 magnet:?xt=urn:btih:BCF24FFFCDB450B2F704EB300DBBA8F0AACA21AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ The Lord of the Rings: Gollum - это официальная адаптация
 ```bash
 magnet:?xt=urn:btih:64187B21493691E857CD54F8C10E749D28B8A6EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Railway Empire 2 (2023) [Ru/Multi] (1.0.1.52027/dlc) Repack DjDI [Digital Deluxe
 magnet:?xt=urn:btih:86E2E57598B6C5BAF728E7CA186BE1A10EC7A56A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:86E2E57598B6C5BAF728E7CA186BE1A10EC7A56A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Windows 10/11 PE (x86/x64) by Ratiborus v.8.2023 [Ru]
 magnet:?xt=urn:btih:7E9CDB53835C8D43D15B57171DB8058104597ED2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:7E9CDB53835C8D43D15B57171DB8058104597ED2
 ```bash
 magnet:?xt=urn:btih:701769F577C99C4A81480254831A826F7DA4D0A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:701769F577C99C4A81480254831A826F7DA4D0A5
 magnet:?xt=urn:btih:6608406465F2B6380EAA0803B1BA80F225BFD5C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:6608406465F2B6380EAA0803B1BA80F225BFD5C6
 ```bash
 magnet:?xt=urn:btih:CE18C9B492489F107CAB2396C90E9D3F5A4ED959
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:CE18C9B492489F107CAB2396C90E9D3F5A4ED959
 magnet:?xt=urn:btih:8961A2AF2CCF882297044C1E15B49813F8851EF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:8961A2AF2CCF882297044C1E15B49813F8851EF0
 ```bash
 magnet:?xt=urn:btih:08F4DD5EED389EAE2663ECCF45DD0FBFEBA1EB41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:08F4DD5EED389EAE2663ECCF45DD0FBFEBA1EB41
 magnet:?xt=urn:btih:AF23D56A187926CB1FEFE26EB53CEA00238E273F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Wild West Dynasty (2023) [Ru/Multi] (0.1.8238) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:194B85461E925754C71C2F5E6AE2976EAFE9A601
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:194B85461E925754C71C2F5E6AE2976EAFE9A601
 magnet:?xt=urn:btih:6B2E29CA84BCE6935B574290D6B48A92749E5F47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:6B2E29CA84BCE6935B574290D6B48A92749E5F47
 ```bash
 magnet:?xt=urn:btih:2F910E102896DC8F5C4E8EC6A131ED59A744CACA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:2F910E102896DC8F5C4E8EC6A131ED59A744CACA
 magnet:?xt=urn:btih:9C410584D89C6F36097C138F319257087D0878B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ magnet:?xt=urn:btih:9C410584D89C6F36097C138F319257087D0878B4
 ```bash
 magnet:?xt=urn:btih:B92E844D50C4F850CC982539BB0A992BC67F8362
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:B92E844D50C4F850CC982539BB0A992BC67F8362
 magnet:?xt=urn:btih:5179C58B0A5879555F91D7DD15EF04F0F8B3C194
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:5179C58B0A5879555F91D7DD15EF04F0F8B3C194
 ```bash
 magnet:?xt=urn:btih:B5E3502A888E31C0FFD9D15EDBFD5FAD6B782A12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

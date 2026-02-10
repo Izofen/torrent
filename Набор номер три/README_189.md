@@ -19,6 +19,8 @@ FIFA 2012 - выводит жанр спортивных симуляторов 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ FIFA 2012 - выводит жанр спортивных симуляторов 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ FIFA 2012 - выводит жанр спортивных симуляторов 
 ```bash
 magnet:?xt=urn:btih:5D91D3E8A6E69EEA61CB778DA36D64210F8035E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:5D91D3E8A6E69EEA61CB778DA36D64210F8035E5
 magnet:?xt=urn:btih:D10367191962BAFDEFDB564F0A9B1C442115D953
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Google объявил о запуске бюджетной версии Android
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Google объявил о запуске бюджетной версии Android
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Far Cry 5 (2018) [Ru/Multi] (1.011/dlc) Repack Other s [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:194B879BA1195BF681E84B119B295D50A795FBF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Doom 3 (2004) [Ru/En] (1.3.1/dlc) Repack R.G. Механики
 magnet:?xt=urn:btih:95F03C8F5BA0C599E3DB239A19DB41B498FC2FB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:95F03C8F5BA0C599E3DB239A19DB41B498FC2FB8
 ```bash
 magnet:?xt=urn:btih:CB152DAAFB73AF8DC5D6CCD2A7EF8B3E60082C4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ A Plague Tale: Innocence (2019) [Ru/Multi] (1.07/dlc) Repack Other s
 magnet:?xt=urn:btih:43157305533A6BDC5E1A6EF81502959E0C34077E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:43157305533A6BDC5E1A6EF81502959E0C34077E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:43157305533A6BDC5E1A6EF81502959E0C34077E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:43157305533A6BDC5E1A6EF81502959E0C34077E
 magnet:?xt=urn:btih:58CC7E1AEE7ED19FEAEE3A2DDB9FB699FF3AC9D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:58CC7E1AEE7ED19FEAEE3A2DDB9FB699FF3AC9D9
 ```bash
 magnet:?xt=urn:btih:A6B63BC021F82AB0C1DC935176BD843DE426879F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:A6B63BC021F82AB0C1DC935176BD843DE426879F
 magnet:?xt=urn:btih:407DA9E4BCE71DBDAA8336D366496F323E832C8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Windows 7 xDark ™ Deluxe x64 RG - Codename: State Of Independence 4.3 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:F833A2D69BD1B931D8567F5856058738ECB7008B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Intel приступила к распространению новых унив
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Intel приступила к распространению новых унив
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ Intel приступила к распространению новых унив
 magnet:?xt=urn:btih:4F66D1B4ABB9C1C369C338C29E3DC52A131A9AEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ Mozilla Firefox Quantum 57.0.2 Final [Ru]
 ```bash
 magnet:?xt=urn:btih:AB710FB191583B0C1419770EE7D17576B26CAE0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:AB710FB191583B0C1419770EE7D17576B26CAE0E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:AB710FB191583B0C1419770EE7D17576B26CAE0E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:AB710FB191583B0C1419770EE7D17576B26CAE0E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ magnet:?xt=urn:btih:AB710FB191583B0C1419770EE7D17576B26CAE0E
 ```bash
 magnet:?xt=urn:btih:369AF0F286CCE5E3504DC2AFEE0A5B84136D7B48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ RAGE 2 (2019) [Ru/Multi] (1.09 Update 4) SteamRip =nemos= [Deluxe Edition]
 magnet:?xt=urn:btih:F9F46684D7FFCF93CCA00559993349F213D92CD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ RAGE 2 (2019) [Ru/Multi] (1.09) License CODEX
 ```bash
 magnet:?xt=urn:btih:D931D426C54EB7077DBD3F063DEFE13941E8FB3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

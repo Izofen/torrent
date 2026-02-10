@@ -1,3 +1,30 @@
+###  Публикация: 1370051   (900281) от 25.03.2020
+
+К.И. Ананьева (ред.) | Это ее дело. 10 историй о том, как делать бизнес красиво (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900281.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 вдохновляющих историй о женщинах, которые добились исключительного успеха в бизнесе.
+Раиса Демина, прошедшая путь от мастера цеха Микояновского мясокомбината в эпоху перемен до совладелицы «Велком»; Ольга Муравьева, бывшая учительница по физике, а ныне владелица кондитерской фабрики с оборотом в 100 млн долларов, и другие выдающиеся женщины российского бизнеса (   Читать дальше...   )Жанр: Просто о бизнесе, Истории успехаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5C4689BA6E881EF6CFCF621F022A105A1940638
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 761077   (900284) от 26.02.2014
 
 Анджей Белат | Иосиф Обручник как икона отца (1995) [DOC]
@@ -20,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:FA2DF9E4F193070779566E487C52E35D4B7C4BEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@ magnet:?xt=urn:btih:FA2DF9E4F193070779566E487C52E35D4B7C4BEA
 magnet:?xt=urn:btih:0AD65B73AF3232A7F04DC157071EC9344712542C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:0AD65B73AF3232A7F04DC157071EC9344712542C
 ```bash
 magnet:?xt=urn:btih:3D86AA512FEDFD84513DCC06414D69A19E21DF2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +126,8 @@ magnet:?xt=urn:btih:3D86AA512FEDFD84513DCC06414D69A19E21DF2E
 ```bash
 magnet:?xt=urn:btih:6F4080448C24691FD618331DAAE37D905375066A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +155,8 @@ magnet:?xt=urn:btih:6F4080448C24691FD618331DAAE37D905375066A
 magnet:?xt=urn:btih:5C2EC733ADBD0E54704084B67ECCE41AA4BFEE38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +181,8 @@ magnet:?xt=urn:btih:5C2EC733ADBD0E54704084B67ECCE41AA4BFEE38
 magnet:?xt=urn:btih:DED3F5F582EDBDF13AC4BF76A07769594312EE14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +206,8 @@ magnet:?xt=urn:btih:DED3F5F582EDBDF13AC4BF76A07769594312EE14
 ```bash
 magnet:?xt=urn:btih:BCD1DDC64B582A702D17A7456853BD50C2949C74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +235,8 @@ magnet:?xt=urn:btih:BCD1DDC64B582A702D17A7456853BD50C2949C74
 magnet:?xt=urn:btih:7B392FF22517061ECADD2E1B4C951681DB11E23A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +260,8 @@ magnet:?xt=urn:btih:7B392FF22517061ECADD2E1B4C951681DB11E23A
 ```bash
 magnet:?xt=urn:btih:3F1CC32311ED735AFF949E2647C2F454867C12D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +287,8 @@ magnet:?xt=urn:btih:3F1CC32311ED735AFF949E2647C2F454867C12D0
 magnet:?xt=urn:btih:DDB8D8528D9430A545731597B82BF43BD3D56D2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +312,8 @@ magnet:?xt=urn:btih:DDB8D8528D9430A545731597B82BF43BD3D56D2D
 ```bash
 magnet:?xt=urn:btih:8E276C9642CE71302CF643FE8CFEB72E9595BBF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +339,8 @@ magnet:?xt=urn:btih:8E276C9642CE71302CF643FE8CFEB72E9595BBF0
 magnet:?xt=urn:btih:2DBEC2140D8C5C3B15601A7D228993CFEFC7F393
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +364,8 @@ magnet:?xt=urn:btih:2DBEC2140D8C5C3B15601A7D228993CFEFC7F393
 ```bash
 magnet:?xt=urn:btih:8542CFBE36481527B790840F3E0262377A9B44B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +391,8 @@ magnet:?xt=urn:btih:8542CFBE36481527B790840F3E0262377A9B44B8
 magnet:?xt=urn:btih:D16712E27A6B0EECF986A6362F3E8768725AC8AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +416,8 @@ magnet:?xt=urn:btih:D16712E27A6B0EECF986A6362F3E8768725AC8AF
 ```bash
 magnet:?xt=urn:btih:F59D334875C46267FC879B5FF5CD8761A08B2B92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +443,8 @@ magnet:?xt=urn:btih:F59D334875C46267FC879B5FF5CD8761A08B2B92
 magnet:?xt=urn:btih:73166FEE5BCA785F21E967EBD76329CAA98ADC88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +469,8 @@ magnet:?xt=urn:btih:73166FEE5BCA785F21E967EBD76329CAA98ADC88
 magnet:?xt=urn:btih:76A2FE5272F628B2C92AA6E3F99D5975EF603581
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +494,8 @@ magnet:?xt=urn:btih:76A2FE5272F628B2C92AA6E3F99D5975EF603581
 ```bash
 magnet:?xt=urn:btih:BAC7B03622E0EA56684E12FD56CEFEBF3FEBF0FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +524,8 @@ magnet:?xt=urn:btih:BAC7B03622E0EA56684E12FD56CEFEBF3FEBF0FC
 magnet:?xt=urn:btih:1B8BC71847CF8AF6C1287EB6A691729CFFE91A79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +550,8 @@ magnet:?xt=urn:btih:1B8BC71847CF8AF6C1287EB6A691729CFFE91A79
 ```bash
 magnet:?xt=urn:btih:4F693601FABD2C38D637EAA30ABFE7DEAEF34A3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +578,8 @@ magnet:?xt=urn:btih:4F693601FABD2C38D637EAA30ABFE7DEAEF34A3E
 magnet:?xt=urn:btih:969324FFD75BBDB07EF4A7A53C605527D062593D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +603,8 @@ magnet:?xt=urn:btih:969324FFD75BBDB07EF4A7A53C605527D062593D
 ```bash
 magnet:?xt=urn:btih:CF504B8144ECEFD7BDAD6F587E456C5D84728C9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +630,8 @@ magnet:?xt=urn:btih:CF504B8144ECEFD7BDAD6F587E456C5D84728C9C
 magnet:?xt=urn:btih:355A3381CDD86672553A53DA80BC70FBD642B0F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +655,8 @@ magnet:?xt=urn:btih:355A3381CDD86672553A53DA80BC70FBD642B0F0
 ```bash
 magnet:?xt=urn:btih:DDD308DEB80F80D052AEF57952F83ADDA71B09DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,29 +682,7 @@ magnet:?xt=urn:btih:DDD308DEB80F80D052AEF57952F83ADDA71B09DF
 magnet:?xt=urn:btih:996007EB072DFECBB843014BCAA3E4A3ADC0FB5A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992476   (900917) от 02.03.2016
-
-Дарья Нестерова | Вяжем для животных (2011) [PDF]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900917.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом издании приводится множество разнообразных моделей для собак и кошек самых разных пород: для борзых и пинчеров, для доберманов и болонок, для благородных сфинксов и грациозных абиссинских кошек. Эта книга для тех, кто хочет окружить своих домашних питомцев теплом и заботой, а заодно избавить себя от хлопот, связанных с необходимостью выгуливать животное в (   Читать дальше...   )Жанр: Хобби, рукоделиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BA12AC15F7A369AD905FF1AE93C2D47F8223AAE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

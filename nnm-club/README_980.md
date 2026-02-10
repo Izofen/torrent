@@ -19,6 +19,8 @@ Combat Mission: Barbarossa to Berlin (2002) [En] (1.03 rdna fix) License GOG
 magnet:?xt=urn:btih:9832767ECB1D4BC8ADD6E483FCB0CCF1C0019606
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Easy Notes - записная книжка, блокнот бесплатно, �
 ```bash
 magnet:?xt=urn:btih:A9330315CAA56DD6B64B171631AA0C6B38E4B3C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:A9330315CAA56DD6B64B171631AA0C6B38E4B3C4
 magnet:?xt=urn:btih:A4128BCFAEE2C7EF4625A6F3398CBA11E8EBEA25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:A4128BCFAEE2C7EF4625A6F3398CBA11E8EBEA25
 ```bash
 magnet:?xt=urn:btih:9A2E8850647C2B38C896C1789CC15314F7595DE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:9A2E8850647C2B38C896C1789CC15314F7595DE8
 magnet:?xt=urn:btih:18D7C367935BC3F70584893CE593FF8E88A9C475
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:18D7C367935BC3F70584893CE593FF8E88A9C475
 ```bash
 magnet:?xt=urn:btih:101527E404BCB65A93F07E1471B87BB2FA1AF086
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:101527E404BCB65A93F07E1471B87BB2FA1AF086
 magnet:?xt=urn:btih:E7DBAA7BC6D8FECAF7F125A52BE75E2C85265A74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ IsMyLcdOK - небольшая бесплатная программа для о
 ```bash
 magnet:?xt=urn:btih:6EED08CEB644FBA5CF8568674172A3F3DBEF9D66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Unity Asset Bundle 1 февраля 2025 года предлагает обши�
 magnet:?xt=urn:btih:56790C34E417BC90533E5009EAFDBE545833E94C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:56790C34E417BC90533E5009EAFDBE545833E94C
 ```bash
 magnet:?xt=urn:btih:20AD7D64FD7794CCA7573BF0905FC5AE4A6C1550
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:20AD7D64FD7794CCA7573BF0905FC5AE4A6C1550
 magnet:?xt=urn:btih:6097E5093EE2B2E855C393925467238B1FA10C1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Folder Player Pro - это ориентированный на каталоги 
 ```bash
 magnet:?xt=urn:btih:ABECC605D87844485838D8529F3B414D404FF23F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:ABECC605D87844485838D8529F3B414D404FF23F
 magnet:?xt=urn:btih:C6B534A2883F4C756637BC1CC37EF6E32036A291
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ METRO QUESTER (2023) [Multi] (1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:8517D0551EBB78BF3B309621F14161F8A6D990F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:8517D0551EBB78BF3B309621F14161F8A6D990F9
 ```bash
 magnet:?xt=urn:btih:CA76CE7610740DBFCDD438C662D904EEB1E5A6A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ VA - Masters of Rock & Metal - The Best Rock & Metal Tracks ever... (2025) [MP3|
 magnet:?xt=urn:btih:5696136FEF7E3B02A845B76682125BE388716863
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:8F25F03C630ADAD9FFA38AC50D86D7B03F6941B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:8F25F03C630ADAD9FFA38AC50D86D7B03F6941B0
 magnet:?xt=urn:btih:156CB16F833AA0273A10CB3D314204689FC02F2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Combat Mission: Afrika Korps (2003) [Multi] (1.03 rdna fix) License GOG
 ```bash
 magnet:?xt=urn:btih:5501D35AB0A30770DA5426AC43591273A679F8E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:5501D35AB0A30770DA5426AC43591273A679F8E0
 magnet:?xt=urn:btih:30E0639D911AC0737F04C9839B8C3A3C841ACDEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:30E0639D911AC0737F04C9839B8C3A3C841ACDEC
 ```bash
 magnet:?xt=urn:btih:85AFAECC000B886C6CD2C682D87A894E89F4DA7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:85AFAECC000B886C6CD2C682D87A894E89F4DA7D
 magnet:?xt=urn:btih:977FC992406C43D22632D434B72F902CACC12F33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ IsMyHdOK 4.21 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2187277DAD3E8BF0096235422832D0C4CC71EF25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ OCCT 13.1.15 Portable [En]
 magnet:?xt=urn:btih:726A64C4D2EBC2AA398E525EE6B3CC470E0E66DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ magnet:?xt=urn:btih:726A64C4D2EBC2AA398E525EE6B3CC470E0E66DD
 magnet:?xt=urn:btih:22D760B016A24041D1CCD53550137F8C712C82B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:22D760B016A24041D1CCD53550137F8C712C82B7
 ```bash
 magnet:?xt=urn:btih:E69B27271806A84F879116B6B4960398345ECB03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1012213   (794485) от 30.04.2016
+
+Голос. Дети (2016.04.29) HDTV [H.264/1080i] (сезон 3, выпуск 11)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794485.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Первый канал" представляет премьеру третьего сезона музыкального проекта "Голос. Дети". Детский конкурсный проект строится по тем же принципам, что и взрослый. Из тысяч заявок на участие, присланных в адрес "Первого канала", музыкальная редакция отобрала несколько сотен самых достойных. В ходе предварительных кастингов к участию в слепых (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТВ-Шоу, развлекательныйСубтитры: ОтсутствуютПродолжительность: ~ 02:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12E404EF34282FD2CE09D7CE6759334175B6C9FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012323   (794487) от 30.04.2016
 
 Путь Христа (2016) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:66810915CAA007A295E874E172F39960ADDDB87A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:66810915CAA007A295E874E172F39960ADDDB87A
 magnet:?xt=urn:btih:9ED4AD61D8F4170AD902652EE2D89156D7F2A944
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:9ED4AD61D8F4170AD902652EE2D89156D7F2A944
 ```bash
 magnet:?xt=urn:btih:40BB255831CD9808FAC0EF7F95BC127DF44F4026
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:40BB255831CD9808FAC0EF7F95BC127DF44F4026
 magnet:?xt=urn:btih:9051D3D41D8E20B475740E9B87CF2028CBA3AA54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:9051D3D41D8E20B475740E9B87CF2028CBA3AA54
 ```bash
 magnet:?xt=urn:btih:52CF912C7AFD5BE8B7E13E11AB317E3A596935B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:52CF912C7AFD5BE8B7E13E11AB317E3A596935B2
 magnet:?xt=urn:btih:C393FF3CB5767F6102757945A634FBE58ABB575D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:C393FF3CB5767F6102757945A634FBE58ABB575D
 ```bash
 magnet:?xt=urn:btih:27D5C2B58EC75016DCC73325A51820EDE6219B93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:27D5C2B58EC75016DCC73325A51820EDE6219B93
 magnet:?xt=urn:btih:61292410969C9E2F3743D6AB5ED2C0364609E897
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:61292410969C9E2F3743D6AB5ED2C0364609E897
 ```bash
 magnet:?xt=urn:btih:B13CE6BF3F36FA134F0110946C1E26728E36A4E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ Genesis: Части целого / Genesis: Together and Apart (2014) HDTV [H.26
 magnet:?xt=urn:btih:5932BABF3881BB437F22655FA4391875B9867480
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:5932BABF3881BB437F22655FA4391875B9867480
 ```bash
 magnet:?xt=urn:btih:334869BA4D1380102304E605B04B9E0DAAF06BDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:334869BA4D1380102304E605B04B9E0DAAF06BDA
 magnet:?xt=urn:btih:5414B25E07B04EABBE28AA2F13194EE52C9A8C8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:5414B25E07B04EABBE28AA2F13194EE52C9A8C8F
 ```bash
 magnet:?xt=urn:btih:55850E615897253FE0D8EE9731C20A34B74612A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:55850E615897253FE0D8EE9731C20A34B74612A2
 magnet:?xt=urn:btih:E42EDC887D004FD260D7D4E475B9237F3C2FCE7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:E42EDC887D004FD260D7D4E475B9237F3C2FCE7C
 ```bash
 magnet:?xt=urn:btih:C3AEE975DAE5881BCD57186308D77D40B8BA5564
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:C3AEE975DAE5881BCD57186308D77D40B8BA5564
 magnet:?xt=urn:btih:CA7AC3BF82204F2AE6CCB89E484CA302D5A8D623
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:CA7AC3BF82204F2AE6CCB89E484CA302D5A8D623
 ```bash
 magnet:?xt=urn:btih:E85A00FCB64036E05F467D6EC75C7E64AE0C2477
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:E85A00FCB64036E05F467D6EC75C7E64AE0C2477
 magnet:?xt=urn:btih:776DA49918DDA9EBE9B5EE00AE6C75EC2E45DF5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:776DA49918DDA9EBE9B5EE00AE6C75EC2E45DF5F
 magnet:?xt=urn:btih:69CC234F84599A842EA1F34C7D21BA3BCD2AC241
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:69CC234F84599A842EA1F34C7D21BA3BCD2AC241
 ```bash
 magnet:?xt=urn:btih:AE4FAB274502510D33612347991D66C05B90E6F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:AE4FAB274502510D33612347991D66C05B90E6F3
 magnet:?xt=urn:btih:8FB4964A8E95AF2A01C7FB491AA0C1EBF8890E80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:8FB4964A8E95AF2A01C7FB491AA0C1EBF8890E80
 ```bash
 magnet:?xt=urn:btih:6282751E7E1AEBBD72AB6F9457ADF8E8263D5287
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:6282751E7E1AEBBD72AB6F9457ADF8E8263D5287
 ```bash
 magnet:?xt=urn:btih:90A00B7531735135F702176BB2D7C12EEC2D8D29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:90A00B7531735135F702176BB2D7C12EEC2D8D29
 magnet:?xt=urn:btih:3BC5EF79228F6DECDBF8D3384281017A0C71ABC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:3BC5EF79228F6DECDBF8D3384281017A0C71ABC6
 magnet:?xt=urn:btih:8394DF694172077E6F26C6739B0AB542B43B8A8F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509515   (794831) от 12.11.2021
-
-Покидая Неверленд / Leaving Neverland (2019) WEB-DL [H.264/1080p] (серии 1-2 из 2)
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый скандальный документальный фильм года, разделенный каналом HBO на две части. «Покидая Неверленд» рассказывает о Уэйде Робсоне и Джеймсе Сэйфчаке, которые, по их словам, в детстве подвергались сексуальным домогательствам со стороны Майкла Джексона. Посредством душераздирающих интервью лента раскрывает историю продолжительного абьюза и исследует сложные противоречия, (   Читать дальше...   )Производство: Великобритания, США, Amos Pictures, Channel 4, Home Box Office (HBO)Жанр: Документальный, история, биографияРежиссер: Дэн РидПеревод: Двуголосый профессиональныйСубтитры: Русские, английские (SDH)Продолжительность: 2:01:00 + 02:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AF7A83FA4A45ABFBE40F6614B7834CBE92EF8EF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

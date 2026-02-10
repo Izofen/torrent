@@ -19,6 +19,8 @@ AIMP – проигрыватель, включающий в себя множе
 magnet:?xt=urn:btih:A92BCD20682E58C741B1EC15239BD71DCEB59B6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ qBittorrent - бесплатный, мощный и удобный в работ
 magnet:?xt=urn:btih:973C741011D6E74DD5A0E4E247408774D53C1195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Revo Uninstaller Pro 5.2.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:48386BDBDABB7F0D2A6954A409E6C0BDA5422AE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:48386BDBDABB7F0D2A6954A409E6C0BDA5422AE2
 magnet:?xt=urn:btih:795AF355EA24B978CEB668E1B21A2A396495953D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Nox App Player 7.0.0.7200 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AF893D0C5008C67E6B5688D6992E170E194EA1AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Total Commander 11.01 (09.10.2023) Portable by MiG [Ru/En]
 magnet:?xt=urn:btih:E5DC5444D31C1548222C824A053B9860A0327571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:E5DC5444D31C1548222C824A053B9860A0327571
 ```bash
 magnet:?xt=urn:btih:D765C7E6BFF31320DC0B581472B297379AC7054A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ DaVinci Resolve — единственное в мире решение для �
 magnet:?xt=urn:btih:CE89BB3E005E20EFFCBD1EAC122E29DF456AF102
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Auslogics File Recovery® - легкая и эффективная в испол
 ```bash
 magnet:?xt=urn:btih:0E6CB70DE854060DEE31BED103FDA6462824870C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Media Player Classic - Black Edition (MPC-BE) – универсальный п�
 magnet:?xt=urn:btih:748B7BE6FDF0A6D271DC9AA4AA41FC94BCC17F3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Snagit предлагает неограниченные возможности 
 ```bash
 magnet:?xt=urn:btih:1B09C4FF6A62C51DE05B7D39004D032A0851B9E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 magnet:?xt=urn:btih:DD67933DFBC2BC1E577083632CEE06FF32AF9361
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Dr.Web CureIt! определяет и удаляет почтовые и сет
 ```bash
 magnet:?xt=urn:btih:FF3F1B8DE63F7AF5CD70341F1849EFBD1FB3C1CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ KMSAuto Lite + Установщик офиса + Некоторые нужные
 magnet:?xt=urn:btih:31C220D72A0CBC460F76ACAB1A49D3CCC614EEF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ FBackup — это свободно распространяемое прогр�
 ```bash
 magnet:?xt=urn:btih:21705B469D7C86986E7C3BA10888A23501F747DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Icecream Screen Recorder - программа, позволяющая вести
 magnet:?xt=urn:btih:805DA26C6D3B2C1F355427C5850D8BA38CF8ACF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ GOM Player Plus - мультимедийный плеер со множеств�
 ```bash
 magnet:?xt=urn:btih:6568D6AADA1A39141F7DAA027D86D76B882858C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:6E86FCC6240A9457E6A3C1938F7584A39AA47BA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Wondershare UniConverter - простой в использовании виде
 ```bash
 magnet:?xt=urn:btih:1210FE3BFB5AD1862626BF0689D08B3FB5E9F190
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ doPDF — программа для преобразования докумен�
 magnet:?xt=urn:btih:89F73BB80E1FCE62B3ED6C1DF099CAFE4707E4E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ DNS Changer - это простой и эффективный инструмен
 ```bash
 magnet:?xt=urn:btih:9413C780E4F3342589BD8DD96BFB366553FFAC0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ Whale Browser -  южнокорейский быстрый интернет-бр
 magnet:?xt=urn:btih:3F533659C0193023175EA02E28C2C2DBC4F85343
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Kaspersky Virus Removal Tool - бесплатный антивирусный с�
 magnet:?xt=urn:btih:C6086CC968CFDE113975CB29E9FEA88D8708EC78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ PDF-XChange Pro — универсальное решение для работ�
 ```bash
 magnet:?xt=urn:btih:6EB47827B48AA74505CC8BE6D3D72B4C8FAFDCB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ PhotoLine - простая в обращении программа, предс�
 magnet:?xt=urn:btih:62CCDF78459682710156F6B526A01B5089F631BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Mozilla Thunderbird –  легкая и безопасная бесплатна
 ```bash
 magnet:?xt=urn:btih:3F416CC4EAEFD5AB9AE6F5C14FF4F6BE3840EA7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

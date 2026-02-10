@@ -22,6 +22,8 @@ Danielle Nicole - The Love You Bleed (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:8442648FF846146649095589CB3654E119AC566D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Dymytry - Five Angry Men (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Heavy Meta
 magnet:?xt=urn:btih:9F71D5D85B9FEC69164B7970565C6C3D7E2A3B65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ PhotoDirector - функциональный, но весьма простой �
 ```bash
 magnet:?xt=urn:btih:BB861DA096026801AFB420FC3E9475453248893D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ China - China (1988) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
 magnet:?xt=urn:btih:F414D3091AE8EB065F5BB717AA6CD15870129C0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ Bohse Onkelz - 40 Jahre Onkelz (Live im Waldstadion 2022) (2024) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:2195E0732AB918973E431FE9837A29A5808507F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ VA - Uplifting Only Top 15: December 2023 (Extended Mixes) (2023) [MP3|320 Kbps]
 magnet:?xt=urn:btih:10ED146209A2F762D21FB3EB89D99FF3D3C3001F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ EverWeb даже создает мобильные сайты, которые о
 ```bash
 magnet:?xt=urn:btih:FB93C91989BE1781A1EF98B162C882CA5C262167
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ magnet:?xt=urn:btih:FB93C91989BE1781A1EF98B162C882CA5C262167
 magnet:?xt=urn:btih:B09BC7EB48711D732D0545E054D540EB94283163
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ AnyGo 7.0.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CA5294093777A6A16BFF03BCAA40F709EB369071
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ Fate/Apocrypha | Судьба: Апокриф [2017, TV, 25 из 25] BDRip 1080p
 magnet:?xt=urn:btih:4F4902E2DF38C6D830CC2C5888E99B8A3DDD14F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ ArenaNet | Артбук по игре Guild Wars 2 / The Art of Guild Wars 2 (20
 ```bash
 magnet:?xt=urn:btih:C78BD82A64740883C37D7E6701914202B7348C2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:C78BD82A64740883C37D7E6701914202B7348C2A
 ```bash
 magnet:?xt=urn:btih:6F96D9F8893FF982B7A3FE99EFA5E614E5F1E40D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ VA - Winter Car Music Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Elect
 magnet:?xt=urn:btih:AAD78644B45A531C719EF8F8E3F167D544DFFEE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:AAD78644B45A531C719EF8F8E3F167D544DFFEE6
 ```bash
 magnet:?xt=urn:btih:4CE2B675A98128069B9F5C4F79F36ABD1BC2E1C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ magnet:?xt=urn:btih:4CE2B675A98128069B9F5C4F79F36ABD1BC2E1C0
 magnet:?xt=urn:btih:108B87A223020BA2B7D8637F456F1D2B979E3A52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +437,8 @@ Quirk - Quality Control (1999) [FLAC|Lossless|tracks + .cue] <Psy-Trance, Experi
 magnet:?xt=urn:btih:A937EE085761A290DA91ECCBCEDB7D5BFB5F8594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:A937EE085761A290DA91ECCBCEDB7D5BFB5F8594
 ```bash
 magnet:?xt=urn:btih:0F5C6D722489EAAF288BDEA82E612544B8155C82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ magnet:?xt=urn:btih:0F5C6D722489EAAF288BDEA82E612544B8155C82
 magnet:?xt=urn:btih:EDB04D65AAE7FA594E2267262201974C833C6FC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:EDB04D65AAE7FA594E2267262201974C833C6FC1
 ```bash
 magnet:?xt=urn:btih:E19F1B3FD0BDD625BBCE8B7C904A464315DA6A88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +544,8 @@ Cyberwalker - Become Human (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retr
 magnet:?xt=urn:btih:A2B853A617D2D98F6F9607AF719520B8DB51CBFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ VA - Electronic Music 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic
 ```bash
 magnet:?xt=urn:btih:F8941034524DA0435317A165C4B11A95998518B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +602,8 @@ VA - Bravo Hits 30 (2000) [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Funk
 magnet:?xt=urn:btih:C9FCC9807AA727B3778FFF63375BA4CCB04C1806
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ Soul Browser - добротный браузер, что несмотря на �
 ```bash
 magnet:?xt=urn:btih:A72A08BE56B3232D3F3F69359E7EF9213AAC46FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +657,8 @@ Dolly Parton - Rockstar (2024) Deluxe Edition [FLAC 24/48|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:046BCD8AD0AAF36879F7CD1581B1FB099925E23B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ magnet:?xt=urn:btih:046BCD8AD0AAF36879F7CD1581B1FB099925E23B
 ```bash
 magnet:?xt=urn:btih:75384CBBFFA7FD28ED738824D4DC310D68F7FB8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +711,8 @@ VA - Techno Club Vol. 71 (2024) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:D7141D8A6ED1AA6C23C3E124C29C9E05EFEDFC1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

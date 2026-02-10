@@ -1,3 +1,30 @@
+###  Публикация: 1197562   (815432) от 07.01.2018
+
+Юрий Максимов | Зиккурат (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815432.jpg" />
+</div>
+
+
+###  Подробнее
+
+2479 год. Земля получает сигнал от инопланетной цивилизации с приглашением посетить планету, а также с техинформацией и чертежами сверхсветового звездолета. В полет отправляются шесть человек – представителей различных народов и рас Земли.
+И вот, первый контакт человечества с внеземными «братьями по разуму» состоялся. Однако миролюбивые гуманоиды-сангхиты не просто (   Читать дальше...   )Жанр: Фантастика, ПриключенияПродолжительность: 11:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72187DE72A6E1F871E12420C26FF051BA167F223
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503933   (815540) от 21.10.2021
 
 Юрий Тарарев, Александр Тарарев | Космический дьявол (Книга 1). Вторжение (2021) [MP3, Михаил Обухов]
@@ -21,6 +48,8 @@
 ```bash
 magnet:?xt=urn:btih:C6D9F08E06D5FF6BDE1CCE9F146753D14A29AA35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +76,8 @@ magnet:?xt=urn:btih:C6D9F08E06D5FF6BDE1CCE9F146753D14A29AA35
 magnet:?xt=urn:btih:DE11E7238F3F993C533FE2D81C8E2D7CFB39BA25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +101,8 @@ magnet:?xt=urn:btih:DE11E7238F3F993C533FE2D81C8E2D7CFB39BA25
 ```bash
 magnet:?xt=urn:btih:B736814CB8256A92EF7B832044A043E9EDA0C06D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +129,8 @@ magnet:?xt=urn:btih:B736814CB8256A92EF7B832044A043E9EDA0C06D
 magnet:?xt=urn:btih:684E91936B6C09DB0B5EF28FDA62D26D0482A403
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +154,8 @@ magnet:?xt=urn:btih:684E91936B6C09DB0B5EF28FDA62D26D0482A403
 ```bash
 magnet:?xt=urn:btih:67411808B4513BF7A9984B768EE14695FFBEF381
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +181,8 @@ magnet:?xt=urn:btih:67411808B4513BF7A9984B768EE14695FFBEF381
 magnet:?xt=urn:btih:B33F000F35A92DD955F01BF9890CE7341FACC158
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +206,8 @@ magnet:?xt=urn:btih:B33F000F35A92DD955F01BF9890CE7341FACC158
 ```bash
 magnet:?xt=urn:btih:6634E8576CB775541BAABFF98FA87893AB5C5999
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +233,8 @@ magnet:?xt=urn:btih:6634E8576CB775541BAABFF98FA87893AB5C5999
 ```bash
 magnet:?xt=urn:btih:160CC781F12968F4DCAB4BCBF68722CC49BDAACC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +262,8 @@ magnet:?xt=urn:btih:160CC781F12968F4DCAB4BCBF68722CC49BDAACC
 magnet:?xt=urn:btih:F3838182B743DAE2630391D430EC9FCD20832A7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +287,8 @@ magnet:?xt=urn:btih:F3838182B743DAE2630391D430EC9FCD20832A7C
 ```bash
 magnet:?xt=urn:btih:790108C83EB64506BECBB76C60BADDB25AF4BC40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +314,8 @@ magnet:?xt=urn:btih:790108C83EB64506BECBB76C60BADDB25AF4BC40
 magnet:?xt=urn:btih:EA9D12E04A1830876F30BECAECA4A4A9B97A8103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ magnet:?xt=urn:btih:EA9D12E04A1830876F30BECAECA4A4A9B97A8103
 magnet:?xt=urn:btih:A23F06E8DF1563C2D06387D80C70D17C4F441441
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +365,8 @@ magnet:?xt=urn:btih:A23F06E8DF1563C2D06387D80C70D17C4F441441
 ```bash
 magnet:?xt=urn:btih:36F1249D2813035DD9004053015627E3D0E056F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +393,8 @@ magnet:?xt=urn:btih:36F1249D2813035DD9004053015627E3D0E056F7
 magnet:?xt=urn:btih:5A91C227B9E001F2481CD970AD560083986391E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +418,8 @@ magnet:?xt=urn:btih:5A91C227B9E001F2481CD970AD560083986391E9
 ```bash
 magnet:?xt=urn:btih:47301711CAA6AA475E2530032D9E616D27FB2AB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +445,8 @@ magnet:?xt=urn:btih:47301711CAA6AA475E2530032D9E616D27FB2AB5
 magnet:?xt=urn:btih:3D4A45EDE1621B8E55F2CDBCDF3B093CB342FF73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +470,8 @@ magnet:?xt=urn:btih:3D4A45EDE1621B8E55F2CDBCDF3B093CB342FF73
 ```bash
 magnet:?xt=urn:btih:F8A398F31C0074648EE1AC84FDFAE2EA2E04E4E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +498,8 @@ magnet:?xt=urn:btih:F8A398F31C0074648EE1AC84FDFAE2EA2E04E4E4
 magnet:?xt=urn:btih:973AE9E67FCFD0ECF5B53BA5B47F52293B9FD30F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +523,8 @@ magnet:?xt=urn:btih:973AE9E67FCFD0ECF5B53BA5B47F52293B9FD30F
 ```bash
 magnet:?xt=urn:btih:F697A97F86FC28B6B3865A7D1957C210E3555C30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +550,8 @@ magnet:?xt=urn:btih:F697A97F86FC28B6B3865A7D1957C210E3555C30
 magnet:?xt=urn:btih:16498C7D931152C5E266E1960C4B8600A0FBFE7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +576,8 @@ magnet:?xt=urn:btih:16498C7D931152C5E266E1960C4B8600A0FBFE7F
 magnet:?xt=urn:btih:DB096F616D71CEA5DC020E8F4E91D3DE760C13E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +601,8 @@ magnet:?xt=urn:btih:DB096F616D71CEA5DC020E8F4E91D3DE760C13E5
 ```bash
 magnet:?xt=urn:btih:29568BA45BCC8DF000B7742CEC6B1C8D445F43C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +630,8 @@ magnet:?xt=urn:btih:29568BA45BCC8DF000B7742CEC6B1C8D445F43C8
 magnet:?xt=urn:btih:E20FADDAB8C1E67B8565ACA611E08ABD4BC03C7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +655,8 @@ magnet:?xt=urn:btih:E20FADDAB8C1E67B8565ACA611E08ABD4BC03C7E
 ```bash
 magnet:?xt=urn:btih:704AA12D9E0E8468EF3D4BFD643B324F8DA69274
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,31 +683,7 @@ magnet:?xt=urn:btih:704AA12D9E0E8468EF3D4BFD643B324F8DA69274
 magnet:?xt=urn:btih:7D9008EB45715217FA86E517253366837E64F73D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196990   (818773) от 05.01.2018
-
-Ольга Громыко | Космоэколухи. Том 2 (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работа космического дальнобойщика рутинна и скучна. Ну разве что некондиционный груз попадется, безбилетники на борт пролезут, авария приключится, пассажиры забудут кое о чем предупредить, инопланетные чудища нападут или старые знакомые на огонек бластера заглянут. А так - тишь да гладь… И чего капитан вечно недоволен?!
-
-Ольга Громыко | Космоэколухи. Том 1 (2017)Жанр: фантастика, юморПродолжительность: 08:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6C7FE79227CCA782A7D16CCAF8ACAAF04E2992F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

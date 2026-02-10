@@ -19,6 +19,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:E8F8410C63E6B1A8CE14992270AEE0D21505D27B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Transmission, в отличие от многих других BitTorrent кли
 ```bash
 magnet:?xt=urn:btih:88B1133F5F9E5B041F60A4043751834AB9ABC6D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ DxO PureRAW 3.1.0 build 532 RePack by KpoJIuK [Multi]
 magnet:?xt=urn:btih:CF53AF592B4200446E77F78AC15F6A69D33839A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:B9D73A338808674A5D5E86F852BAFEC6B49FDF7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ NetSetMan - бесплатная и удобная для повседневно
 ```bash
 magnet:?xt=urn:btih:0BCB7507BBFD4E81C48A8363C1AA66DF32C1AC4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ CrossManager - это автономное программное обеспеч
 magnet:?xt=urn:btih:43AA35323EFB1D2A8E08C9E2DB38E9A1A2A9A36F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ NetBalancer — это удобное приложение, предназнач
 magnet:?xt=urn:btih:BCB7A545295AD432F6B9FF8C7010D4B53D68445C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Advanced Installer - приложение, с помощью которого, �
 ```bash
 magnet:?xt=urn:btih:172D448FD2E7794AE1D48A5B1C8646821B5262B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:172D448FD2E7794AE1D48A5B1C8646821B5262B2
 magnet:?xt=urn:btih:144E79EC99BE2C95D083332EB00DB1A6A4D6E653
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:326498135C71E7C16BE3A77993AED8E4C616CD85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ AIO Boot NewGen - это мощное программное обеспечен�
 ```bash
 magnet:?xt=urn:btih:554F25AD2F30199D4A13C488FED9D5AA683A76C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ ClipboardFusion - утилита для настройки и удобной р�
 magnet:?xt=urn:btih:2EDF86CEB8BB145D8F052F28391A2C297D5D0B73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:366AD135BA1B93FB99ACC82982C72E537616541D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:89F403FF7C51F30D0F510477539F705B9DD7861A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:89F403FF7C51F30D0F510477539F705B9DD7861A
 ```bash
 magnet:?xt=urn:btih:C98F64CBD0370D75C90BABA7A12EA5FA02A0970D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 magnet:?xt=urn:btih:B0A668EF054D3AD2DDA51CD84D6A8A516B23D017
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ NetLimiter - программа, решающая проблему контро�
 ```bash
 magnet:?xt=urn:btih:0B424562D4DAC976B9E23D710D80D3E0BB00F085
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Total Commander 10.52 (08.04.2023) Portable by MiG [Ru/En]
 magnet:?xt=urn:btih:A78F84E2B17735825A5DF4D83669765D2B1D5621
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ DxO PhotoLab Elite 6.5.0 build 171 RePack by KpoJIuK [Multi]
 magnet:?xt=urn:btih:E0841FF7661C02AF6049D1AF1C11028732FC361B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 ```bash
 magnet:?xt=urn:btih:F812E4C1210CD0AA527CB56788A66A04254237DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ LDPlayer 9 — мощный бесплатный эмулятор устройс
 magnet:?xt=urn:btih:AD925FE5D45EE8E5766F4B221DF955275FA1CD60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Microsoft Edge – кроссплатформенный веб-браузер н
 ```bash
 magnet:?xt=urn:btih:3F9593B5EEC743FEEB4E34778013C6D96F3F519B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ PlayerFab - совершенно новый проигрыватель PlayerFab
 magnet:?xt=urn:btih:BBED2466EB2068C391663B1E7AB772E5A756FA11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ SamDrivers 23.2 LAN [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3D2131E4430F144989052A2A49AC2111AFAAA56A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ Visual Studio Code – визуальный редактор кода от ко�
 magnet:?xt=urn:btih:35BCAC1045D79A8522AC749C3282C4E68F0257FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Antivirus Removal Tool - портативный набор официальны�
 ```bash
 magnet:?xt=urn:btih:F9972B0B84DC72D955A55C844F3E98FCDFDC3AA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

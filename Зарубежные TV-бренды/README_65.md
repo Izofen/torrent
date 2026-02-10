@@ -22,6 +22,8 @@ BBC: Дикая Африка и Маленькие гиганты / Wild Africa 
 magnet:?xt=urn:btih:834560D0701607003424C60FC5E6C52438F4DC28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:834560D0701607003424C60FC5E6C52438F4DC28
 magnet:?xt=urn:btih:C2973B9EF5DD2AF02C44EB033B961C4DDC3F883C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:C2973B9EF5DD2AF02C44EB033B961C4DDC3F883C
 ```bash
 magnet:?xt=urn:btih:57597BE4A1A19E098778E32AA20A8E5616C0DF79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Discovery. Мужские берлоги / Epic Man Cave Builds (2015) HDTVRip [
 magnet:?xt=urn:btih:7130D7751A4D66D9C94E3DF52A14138E4516B594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ NG: Дикая река Конго / Wild Congo (2013) HDTVRip [H.264/720p-LQ] (
 ```bash
 magnet:?xt=urn:btih:E4F489D7B59EEF9D2D8001DAA9DE6EE34E5817C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ NG: Дикая сторона кошек / Wild Side of Cats (2012) HDTVRip [H.2
 magnet:?xt=urn:btih:1B92441950B0A8CD2FF0EB72EBD01A5E092A0AAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:1B92441950B0A8CD2FF0EB72EBD01A5E092A0AAA
 magnet:?xt=urn:btih:3F089EEA8E3B8FA918340BC3FFE74175B21C660E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Discovery. Гаражное золото / Garage Gold (2014) HDTVRip [Сезо�
 ```bash
 magnet:?xt=urn:btih:222EC25E6D62C4CD4502C36ACDA302232FB93272
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Da Vinci Learning: BBC: Музыка простых чисел / The Music of th
 magnet:?xt=urn:btih:020D9ADD46DB791DE98E3310FB8743C75DB156ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:020D9ADD46DB791DE98E3310FB8743C75DB156ED
 ```bash
 magnet:?xt=urn:btih:02DDFA90FDCDB983FC44CA062B51D28ECD74723F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:02DDFA90FDCDB983FC44CA062B51D28ECD74723F
 magnet:?xt=urn:btih:67FB7A4DFF14FBA36742D98C632CBFB11C9487C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ BBC: Зараженный. Жизнь с паразитами / Unfested! Living
 ```bash
 magnet:?xt=urn:btih:A3E940A4D4C5AA09B69EFE8FECE303E5A4231D26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Discovery: Разрушители легенд. Спецвыпуск Симпс�
 magnet:?xt=urn:btih:7EF2844342730EBC543B62059820599861F60622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Discovery: Разрушители легенд. Спецвыпуск Индиа�
 ```bash
 magnet:?xt=urn:btih:28A060D4E213F3737CC45C48DC2BA23002E49C57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Animal Planet. Природа Ближнего Востока / Wildest Middle E
 magnet:?xt=urn:btih:EFDC49E75EE56D32F7A8AE8BB61AC043331508D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Discovery: Разрушители легенд. Спецвыпуск Симпс�
 ```bash
 magnet:?xt=urn:btih:126E9A6958762635FAFCE3A274DC891969C86B71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Discovery. Реальные дальнобойщики / Outback Truckers (2014-
 magnet:?xt=urn:btih:BF791A3684804F7DA48C9882ADE0A47DA05DBB78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Discovery: Разрушители легенд. Спецвыпуск Индиа�
 magnet:?xt=urn:btih:3BBEC24EC53B8A212AC261E9CFEE463EF6C464CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Discovery. Хуже не бывает / World's Worst (2014) HDTVRip [Серии
 ```bash
 magnet:?xt=urn:btih:9E4001625244BB60A406CDED1E4FA2BC42DE729B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Discovery. Аэропорт изнутри / Airport from within (2015) HDTVRip 
 magnet:?xt=urn:btih:223183704DC72D2DEB7719CA278FEAEFC6DA1FD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Animal Planet. Тайная жизнь домашних питомцев / Secre
 ```bash
 magnet:?xt=urn:btih:DB334723E0BBD276C28F51FE406F604C4934720C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Animal Planet. Королева львов / The Lion Queen (2015) HDTVRip [Се
 magnet:?xt=urn:btih:012797E82EA3A76608AFCB8FFB7B024A43411885
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Animal Planet. Большие и страшные / Biggest and Baddest (2014) H
 ```bash
 magnet:?xt=urn:btih:1523EB8991A835B61C7AAA462E4D48F9697F407E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Discovery Channel приглашает вас забраться повыше - 
 magnet:?xt=urn:btih:5F450C70967E9C23FD7617CC097EC167F99FCBF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Animal Planet. Большие и страшные / Biggest and Baddest (2014) H
 magnet:?xt=urn:btih:AA869747A78CC07E927C2A1C8EAAF1D125A81578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Discovery: Разрушители легенд. Посадка в самолёт
 ```bash
 magnet:?xt=urn:btih:B7BD394A0E5E2FE63961DCE6126C6CD2CD1D7741
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

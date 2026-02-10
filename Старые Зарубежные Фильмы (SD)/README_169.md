@@ -1,27 +1,3 @@
-###  Публикация: 894848   (704672) от 03.05.2015
-
-Никита / Nikita (1990) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никита, молоденькая девушка, под действием наркотиков вместе с друзьями совершает ограбление и убийство. После суда приговор не приводится в исполнение, а Никиту отправляют в школу специальных агентов. Ее больше нет, она становится секретным агентом без прошлого и будущего…Производство: Франция, Италия / Gaumont, Cecchi Gori Group Tiger Cinematografica, Les Films du LoupЖанр: Боевик, ТриллерРежиссер: Люк БессонАктеры: Анн Парийо, Марк Дюре, Жан Рено, Патрик Фонтана, Лора Шерон, Жак Боде, Патрик Перес, Чеки Карио, Жан-Люк Карон, Жанна Моро, Филип Леруа, Хейке Фишер, Хосе Стайнманн, Жан-Юг Англад, Жан-Пьер Поли, Мишель Кампа, Жан БуизПеревод: Профессиональный (многоголосый закадровый), Профессиональный (двухголосый закадровый), Авторский (одноголосый закадровый)Субтитры: Вшитые (Отключаемые)Язык субтитров: Русский, АнглийскийПродолжительность: 01:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15A471E486EFE75493D6E87775F27D97B99B825B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1533438   (705182) от 24.02.2022
 
 Экспресс в Лунном округе / Moonshine County Express (1977) BDRip [H.264] [VO]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:15A471E486EFE75493D6E87775F27D97B99B825B
 ```bash
 magnet:?xt=urn:btih:36C2ED520AD8A3FF2608A40DB4022560F0829CD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:36C2ED520AD8A3FF2608A40DB4022560F0829CD7
 magnet:?xt=urn:btih:B5EFA915CB9ABECEFAA743BF7B451C4B53C4A606
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:B5EFA915CB9ABECEFAA743BF7B451C4B53C4A606
 ```bash
 magnet:?xt=urn:btih:E4C127155F5DADEC75171610AE8AFADDB326E2B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:E4C127155F5DADEC75171610AE8AFADDB326E2B3
 magnet:?xt=urn:btih:A62F67F087071FBE3011BB0C2B9C29E8507D1183
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:A62F67F087071FBE3011BB0C2B9C29E8507D1183
 ```bash
 magnet:?xt=urn:btih:62A26B50ADF9F6DAC8DFCCAE33CD52C76E93ECDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:62A26B50ADF9F6DAC8DFCCAE33CD52C76E93ECDA
 magnet:?xt=urn:btih:97F22270E9385ABBBD21D66AA3435033EA355C6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:97F22270E9385ABBBD21D66AA3435033EA355C6C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:97F22270E9385ABBBD21D66AA3435033EA355C6C
 magnet:?xt=urn:btih:DAE45370B10A1E79AF2DAF079D5A196034FAA63E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:DAE45370B10A1E79AF2DAF079D5A196034FAA63E
 ```bash
 magnet:?xt=urn:btih:2E41BA23F2C3F7E9015C48B0803A28CD9B22C6F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:2E41BA23F2C3F7E9015C48B0803A28CD9B22C6F3
 magnet:?xt=urn:btih:BF7FD523253435C1A01EAA290DF19A3822A3B2AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ magnet:?xt=urn:btih:BF7FD523253435C1A01EAA290DF19A3822A3B2AF
 ```bash
 magnet:?xt=urn:btih:03F0A587D5C317FE9E2C1859F25E4FB79C3A102A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:03F0A587D5C317FE9E2C1859F25E4FB79C3A102A
 magnet:?xt=urn:btih:1E6CCE954D0DAD5B56A8A86232BE49510D8CE1FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ magnet:?xt=urn:btih:1E6CCE954D0DAD5B56A8A86232BE49510D8CE1FE
 ```bash
 magnet:?xt=urn:btih:6919B96413AD07640A0686541264BA8C41E90F1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:6919B96413AD07640A0686541264BA8C41E90F1A
 magnet:?xt=urn:btih:A656E31AD63A191F54C1FE546EA93231E5D0A205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ magnet:?xt=urn:btih:A656E31AD63A191F54C1FE546EA93231E5D0A205
 ```bash
 magnet:?xt=urn:btih:1A08491DBF1F60C9F85CA45C49F04D900FAD58F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:1A08491DBF1F60C9F85CA45C49F04D900FAD58F3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +436,8 @@ magnet:?xt=urn:btih:1A08491DBF1F60C9F85CA45C49F04D900FAD58F3
 ```bash
 magnet:?xt=urn:btih:356DAC4C449C63663B8803E03A194A51D27C045E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:356DAC4C449C63663B8803E03A194A51D27C045E
 magnet:?xt=urn:btih:ED190012DFAA9EB9F8026DD9805FCD205197FD83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +489,8 @@ magnet:?xt=urn:btih:ED190012DFAA9EB9F8026DD9805FCD205197FD83
 magnet:?xt=urn:btih:4DEC790A716F7ED5ED512B99078C313CD4F66000
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +514,8 @@ magnet:?xt=urn:btih:4DEC790A716F7ED5ED512B99078C313CD4F66000
 ```bash
 magnet:?xt=urn:btih:71AD99CC77F28D753848FFCF640539089BF7C7F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +542,8 @@ magnet:?xt=urn:btih:71AD99CC77F28D753848FFCF640539089BF7C7F4
 magnet:?xt=urn:btih:7B26EC8BABAFC447BCA8B81D090BF33873072FCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +567,8 @@ magnet:?xt=urn:btih:7B26EC8BABAFC447BCA8B81D090BF33873072FCE
 ```bash
 magnet:?xt=urn:btih:87FF1F97D925185142B877DD711A8E4B31606EFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +595,8 @@ magnet:?xt=urn:btih:87FF1F97D925185142B877DD711A8E4B31606EFD
 magnet:?xt=urn:btih:6DD154550B000A13860A925662478BC1AF6B35D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +621,8 @@ magnet:?xt=urn:btih:6DD154550B000A13860A925662478BC1AF6B35D8
 magnet:?xt=urn:btih:A9584E0E4457AC307212577C9EBF695813E9E5CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +646,34 @@ magnet:?xt=urn:btih:A9584E0E4457AC307212577C9EBF695813E9E5CE
 ```bash
 magnet:?xt=urn:btih:C6E046DADF2FA2AAF976C34334DAD87E221F6AB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532448   (714526) от 19.02.2022
+
+Орел или решка / Pile ou face (1980) WEB-DLRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жена Эдуара Морле выпала из окна. Инспектор Барни уверен, что Эдуар избавился от жены, чтобы осуществить свою давнюю мечту — вместе с любовницей уехать на тропический остров. Несмотря на то, что дело закрыто за неимением улик, старый полицейский пёс продолжает копать. Но почему он так уверен в своей версии?Производство: Франция / Antenne 2 (A2), FDRЖанр: Триллер, Драма, КриминалРежиссер: Робер ЭнрикоАктеры: Филипп Нуаре, Мишель Серро, Дороте, Андре Фалькон, Бернар Ле Кок, Гаэль Легран, Фред Персонн, Пьер Ардити, Жан Дезайи, Антониетта МойяПеревод: Дублированный, двуголосый профессиональныйСубтитры: Русские, французские, английскиеПродолжительность: 01:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95A4DAE7B892B0C025EB69102AC01D0C5706AC80
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

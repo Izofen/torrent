@@ -19,6 +19,8 @@ Sacred Almanac: Traces of Greed / Священный Альманах: След�
 magnet:?xt=urn:btih:F5FBC88C5C695C698D13156453D9402BBAEDEE9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ In Silence (2020) [Ru/Multi] (0.43) Repack Pioneer [Early Access]
 ```bash
 magnet:?xt=urn:btih:483B4D805C8D31D5A2ED469FF8629B5E68E213DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Lost Lands 3:The Golden Curse (2015) [En] Unofficial [Collector's Edition / Ко
 magnet:?xt=urn:btih:43D78719F16487AAD573DCB3482CFF3C1FF66542
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Halloween Chronicles 3: Cursed Family / Хроники Хэллоуина 3: П�
 ```bash
 magnet:?xt=urn:btih:89A5BF17C268B5A532FB46CDBE9518B0319FFF3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Mystery Case Files 12: Key To Ravenhearst (2015) [En] Unofficial [Collector's Ed
 magnet:?xt=urn:btih:61B7FBF3BBC8CEABBFB8C0E8641018B08892FAD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Fear for Sale 7: City of the Past (2015) [En] Unofficial [Collector's Edition / 
 ```bash
 magnet:?xt=urn:btih:38D05F0E022BC565BA68FF15B3E1656208943FC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Haunted Legends 7: The Secret of Life (2015) [En] Unofficial [Collector's Editio
 magnet:?xt=urn:btih:38D9696C1BB7CCFCE006015F9A60757C912B2A36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Haunted Hotel 10: The X (2015) [En] Unofficial [Collector's Edition / Колле
 ```bash
 magnet:?xt=urn:btih:A69BC32E1877AF27E3B1DAFD725E23E816355C9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ European Mystery 3: Flowers of Death (2015) [En] Unofficial [Collector's Edition
 magnet:?xt=urn:btih:A7FF76FEC8C66A4A7C2DF99521D3764D30313BF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Spear of Destiny: The Final Journey (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:8B0317E0553994E35B5C1E5A6EE227C8D01111A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Elixir 2: The League of Immortality (2015) [En] Unofficial
 magnet:?xt=urn:btih:77596EE97777E25815B6BA91114AFFB24C7DE2CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Secret Case: Paranormal Investigation (2015) [En/Multi] Unofficial
 ```bash
 magnet:?xt=urn:btih:621DE0A9A9262FF3BA742DC2F5FD8304A3AE6830
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Absolute Tactics: Daughters of Mercy - увлекательное пошагов
 magnet:?xt=urn:btih:70146FC12DC30B3C7EB25413F8C166126E4E54A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Orphan (2018) [Ru/Multi] (1.0.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:60B9D9A4DC862D08CDF28D43E52E271E86B39D33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Moorhuhn - Das verbotene Schloss (L) [Dе] (2010)
 magnet:?xt=urn:btih:1BB88BECABCF60569441F8264436CC19AF8E9614
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Void Bastards (2019) [Ru/Multi] (2.0.24/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A6105CCFD0E82BF5616C8BE5B3A7DF1DDB1277EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Remnant: From the Ashes — шутер на выживание от третье
 magnet:?xt=urn:btih:DDD96B6EF456BD4F078444D905CC003F5ED23138
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Stronghold: Crusader II - это долгожданный сиквел ориг�
 ```bash
 magnet:?xt=urn:btih:3BE06E6A82829732BEAC081A642815A7070D0F56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Battlefleet Gothic: Armada 2 — это новая стратегия в реа�
 magnet:?xt=urn:btih:7FCAD8AF0956A981A5EA0E535681E4A484D20392
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Abandon Ship (2019) [Ru/Multi] (1.3.14934) License GOG
 ```bash
 magnet:?xt=urn:btih:F409D43D644F68FCAD8A5CF0D20C64E8559B82F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Night in the Opera / Ночь в Опере (2012) [Ru] (1.0) Unofficial
 magnet:?xt=urn:btih:C25824926948C7CC269441FBCAE67649094EFB96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ John Wick Hex это динамичная экшен-стратегия, в ко
 ```bash
 magnet:?xt=urn:btih:5AF8724EF7750698F029659499FA528BAD95A36F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Haunted Manor 6: Remembrance (2019) [En] (1.0) Unofficial [Collector's Edition]
 magnet:?xt=urn:btih:FFC9D8FEA6F223857CF4F241DF2DF8BFBC1A7ABC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Alwa's Legacy - современная игра в стиле ретро, пол
 ```bash
 magnet:?xt=urn:btih:DF3490BFB1632179203B0BF4798676FF1237ED10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ FURIDASHI: Drift Cyber Sport - это симулятор автоспорта д
 magnet:?xt=urn:btih:1E9811B2458ECEA9EA1190676D90FCDB487C4811
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ FURIDASHI: Drift Cyber Sport - это симулятор автоспорта д
 ```bash
 magnet:?xt=urn:btih:A3BEB4DC556D4789F2032ED856E8DA72043AE4ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

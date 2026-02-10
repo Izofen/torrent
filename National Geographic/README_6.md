@@ -19,6 +19,8 @@ NGW: Самые мощные челюсти / World's Deadliest Bite (2021) WEBR
 magnet:?xt=urn:btih:3F8B65CB5BA34E0C233764990D8AB5FB31F5152C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NG. Тутанхамон: Цветная Версия / King Tut In Colour (2020
 ```bash
 magnet:?xt=urn:btih:97CDCFD5A82C51AC3F52DF1D4244F3B998CFA685
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG: Инстинкт выживания. Экстремальные джунгл
 magnet:?xt=urn:btih:88161E14D4E5A71FD9008A386F41293BC8860A57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NG: Дикая природа Америки / Untamed Americas 2012 BDRip [4 и
 ```bash
 magnet:?xt=urn:btih:E16DFFF2221C1A676E124663C5CBB1226AF9672D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NG: От Парижа до Питтсбурга / Paris to Pittsburgh (2018) DVB
 magnet:?xt=urn:btih:2FD347D90681B3F29ADF42D47E852855058ED753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NGW: Зов малыша белухи / Call of the Baby Beluga (2016) HDTV [H.2
 ```bash
 magnet:?xt=urn:btih:48404C7336509A61CDA518702CFE59678566E9B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ NG: Больше чем фокусы с Ди Эм Си: Разорванный /
 magnet:?xt=urn:btih:B93CA423339D5A1C08CB9D3AB0B4CBE772DB71C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NG. Превосходство бегемота / The Hippo Supremacy (2012) HDT
 ```bash
 magnet:?xt=urn:btih:AEE8FFE40683F31D75B142DB2115AB73E70AAA0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ NG. Пир драконов / Dragons Feast (2012) HDTVRip [H.264]
 magnet:?xt=urn:btih:198E0917047E87641C8DDC0E66B108D85FBD847A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:198E0917047E87641C8DDC0E66B108D85FBD847A
 ```bash
 magnet:?xt=urn:btih:39FD5BBF706E85A9A2B037E334C38F0D804CAC52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ NG. Петра: тайны древних строений / Petra. Secrets of t
 magnet:?xt=urn:btih:A0BEA54B8F29EA0253F04909F7185B8ADB62D7B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ NG. Потерянный и найденный / Lost and Found (2019) HDTV [H.2
 ```bash
 magnet:?xt=urn:btih:F2D9AF16EE5A3CAA06D035D24418AC095D26CB1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ NG: Затерянные сокровища Египта / Lost Treasures of Egy
 magnet:?xt=urn:btih:40F11748D661F671B8BD1FA7CD156BFB69FED52B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ NG: С точки зрения науки: Секреты Пиротехники
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ NG: Место Жительства - Марс / Living on Mars (2009) SATRip
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ NG: Место Жительства - Марс / Living on Mars (2009) SATRip
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ NG:  В поисках Атлантиды / Finding Atlantis (2011) HDTVRip
 magnet:?xt=urn:btih:7EC2FE9C257DDB4939023EE15B58A254B23F759F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ NG: Осушить океан: Подводные лодки-убийцы / Drai
 ```bash
 magnet:?xt=urn:btih:1D7FA98729B8263F79BC306A6B5C190DB5E579D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ NGW. Странная природа: сумасброды / Stranger than Natur
 magnet:?xt=urn:btih:9A76E948B2D1B26F2C3CCB58C1E40A110F361100
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ NG: Российские секретные материалы / Russia's Myster
 magnet:?xt=urn:btih:4F4BDD8EB2023BDF0710F9118B1AA155B1F24C1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:4F4BDD8EB2023BDF0710F9118B1AA155B1F24C1C
 ```bash
 magnet:?xt=urn:btih:92A314E77A5452B50DBF83120F67CD66AFD49886
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ NGW: Дикие места Африки. Рожденные выживать / A
 magnet:?xt=urn:btih:080CCE550384B8A2CA8F1A6159735B6EADB79B0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ NGW: Самые странные в мире: ползучие целители 
 magnet:?xt=urn:btih:6D44DBA79DF0A79D62240C54E6DB4F618A7E00CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ NGW: Медвежья школа / Bearhood (2014) HDTV [H.264/1080i-LQ]
 ```bash
 magnet:?xt=urn:btih:EE8D54646039B90952FEE5F118AD1FBBA5697CE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ NG: Злоключения за границей / Banged up Abroad (2020) IPTV 
 magnet:?xt=urn:btih:8EE1B2D3DE2FE237F93000DE1A65E6B5BF213A63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ NG: Внутри живого тела / Inside the Living Body (2007) HDTVRip
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

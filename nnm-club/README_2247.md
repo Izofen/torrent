@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5F5AE01EA922C760E0E966F0E2BC6A87B61ADBCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Aquamarine - это созерцательное, пошаговое прикл�
 ```bash
 magnet:?xt=urn:btih:A473C887F96886EEF6079037BB0EF93DC7FD4428
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:A473C887F96886EEF6079037BB0EF93DC7FD4428
 magnet:?xt=urn:btih:CA0676B1DE1DC1EC40666DE9A472FB1A303FD521
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:CA0676B1DE1DC1EC40666DE9A472FB1A303FD521
 ```bash
 magnet:?xt=urn:btih:8786B11BD4DC65B621A9CD3A619E2195F2506FC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Laika: Aged Through Blood – вдохновлённая вестернами р
 magnet:?xt=urn:btih:E10A2541B686A9EFD26C16B827A302C953839E63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:E10A2541B686A9EFD26C16B827A302C953839E63
 magnet:?xt=urn:btih:410018330446D5289409109C461670FCE6829E7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ magnet:?xt=urn:btih:410018330446D5289409109C461670FCE6829E7B
 ```bash
 magnet:?xt=urn:btih:8B29A0AE3353EC24E927A148659B2AF3757F33CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:8B29A0AE3353EC24E927A148659B2AF3757F33CD
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:8B29A0AE3353EC24E927A148659B2AF3757F33CD
 ```bash
 magnet:?xt=urn:btih:DB71AADFA2C61E92AA239777FF41527C4235C09C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:DB71AADFA2C61E92AA239777FF41527C4235C09C
 magnet:?xt=urn:btih:02CC81526B9A85112F44F8CD65980C8799C6A14C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:02CC81526B9A85112F44F8CD65980C8799C6A14C
 ```bash
 magnet:?xt=urn:btih:4358F0D5432F507A6EF2F2A9A4C8367133586371
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ UFO Robot Grendizer - The Feast of the Wolves предлагает взять н
 magnet:?xt=urn:btih:128BA769692049559F663C33E3D0CB553A8A6EC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Demon Lord Reincarnation (2023) [En] (1.0.6.1/dlc) License GOG
 magnet:?xt=urn:btih:F61F3820B1E600DD60BC676CC81CBD1A37354FD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:F61F3820B1E600DD60BC676CC81CBD1A37354FD4
 ```bash
 magnet:?xt=urn:btih:63DBCC164F603A8180DBDBBE38037C7199DFFB8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ VA - Music News vol.368 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:74FFA16AB26B487F8B96A0C40EAB6EB161B7B852
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ BananaVisualLibraries - программный продукт от BananaBrain, 
 ```bash
 magnet:?xt=urn:btih:1D226BFB74A6DD630AC85B6FE5278FCCE6226E96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Soft Organizer - утилита для полного удаления нену�
 magnet:?xt=urn:btih:77146DB50572B45ED77B8088D2B288B7F05E4DAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ TikTok - социальное приложение для тех кто пред
 magnet:?xt=urn:btih:011C953E9404101CEA7E6B87D04940DD54AB6586
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Double Commander - это свободный, с открытым исходны
 ```bash
 magnet:?xt=urn:btih:E869BFF17A222CE0BE2090194845FB15E3DAE9EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:9B23920DB95FFD4B1BC0DCD7BBDD57D7CB15EC97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:9B23920DB95FFD4B1BC0DCD7BBDD57D7CB15EC97
 ```bash
 magnet:?xt=urn:btih:E5E2743A9C3DD6003C0205E31E47A7BD680BC1D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:E5E2743A9C3DD6003C0205E31E47A7BD680BC1D8
 magnet:?xt=urn:btih:AA5BC7BE89FF058A8BFBD50F862C2EAC3029BC3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:AA5BC7BE89FF058A8BFBD50F862C2EAC3029BC3F
 ```bash
 magnet:?xt=urn:btih:0A0BF28A1DA567F81E21F243BFD62D741AE628F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:0A0BF28A1DA567F81E21F243BFD62D741AE628F1
 ```bash
 magnet:?xt=urn:btih:F13D7E76DE0BD4668EF5425D99FC85DEE4791BAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ V.A. - Bossa Nova Covers of Popular Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:8F92CE7A82D9C6417E6521920BCB93BFB9DBABC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:8F92CE7A82D9C6417E6521920BCB93BFB9DBABC3
 ```bash
 magnet:?xt=urn:btih:E4649517BC46BB6E0D6ED9D5E9C1585023AE8D7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

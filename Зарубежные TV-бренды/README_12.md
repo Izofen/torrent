@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8E08B8497F0422D91127346A9555CED9BCB1926B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NGW: Дикий рай Индии / India's Wild Edens (2016) HDTVRip [H.264/720
 ```bash
 magnet:?xt=urn:btih:22C51E9A54D33E64FAAEF0878A21D4B75EE2F352
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NGW: Выжить несмотря ни на что / Extreme Survivors (2014) H
 magnet:?xt=urn:btih:5F448273AB2E461219C6DA575649302E97306635
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:5F448273AB2E461219C6DA575649302E97306635
 ```bash
 magnet:?xt=urn:btih:5C29F2ABB41FCABA128CDB51D6371CC5EE4DAD8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BBC. Гарри Поттер: История Магии / Harry Potter: A Histor
 magnet:?xt=urn:btih:BD639897732D7327DFAC0A81E24DD88C5D6E7060
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:BD639897732D7327DFAC0A81E24DD88C5D6E7060
 ```bash
 magnet:?xt=urn:btih:E5760C80A688145493BE199C7660AC4A07CEF5F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ BBC: Атлантида в джунглях / Jungle Atlantis (2014) HDTVRip [H.
 magnet:?xt=urn:btih:1D0760556894B96C896170EBAA2B749FA15EAB94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ BBC: Земля: Мощь планеты / Earth: The Power of the Planet (2007)
 ```bash
 magnet:?xt=urn:btih:F9CE269FCF87F22BD9D868024F9881F4C92ED8C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ NGW: Братья сафари / Safari Brothers (2016) HDTV [H.264/1080i-LQ] (�
 magnet:?xt=urn:btih:0C4CA1FB12068B69565C38BA7020024AC2320D0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:0C4CA1FB12068B69565C38BA7020024AC2320D0E
 ```bash
 magnet:?xt=urn:btih:3351658DDB8092AD3EDB1FDE37784C8D775E2545
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ NGW: Испытания в дикой природе / Trials of the Wild (2018)
 magnet:?xt=urn:btih:15FE6073D527467A6EEEEB1137A6D86CA9DEEC15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:15FE6073D527467A6EEEEB1137A6D86CA9DEEC15
 ```bash
 magnet:?xt=urn:btih:D98829A924AD53BA4381CDFDDD06C2BA6FEE1E29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ BBC отмечает столетие Октябрьской революции 
 magnet:?xt=urn:btih:B34F732DC4F385EC2C45CF9B1F50035E4F53B7AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ NG: Майкл Пэйлин в Северной Корее / North Korea: Michae
 ```bash
 magnet:?xt=urn:btih:9AA9391324F1E352B4EEF2B98AC2B5667EE0DAEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:9AA9391324F1E352B4EEF2B98AC2B5667EE0DAEF
 magnet:?xt=urn:btih:0E7266F668F2AAB08113033F99083D004681C673
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ NG: Помпеи. Тайны мёртвых (Последние беженцы �
 ```bash
 magnet:?xt=urn:btih:480ACCC6CC3C6CB4A26BDC4D48544B6A32FC9B04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:480ACCC6CC3C6CB4A26BDC4D48544B6A32FC9B04
 magnet:?xt=urn:btih:C28EF201A18FD8CFDCF07DC0D43AB9C56AAFF857
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ NGW: Динорыба / Dinofish (2011) HDTV [H.264/1080i-LQ]
 ```bash
 magnet:?xt=urn:btih:4D81F49EFEB37A2B05C15932AD21C99300958921
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Nat Geo Wild: По следам мифических чудовищ: Кошма�
 magnet:?xt=urn:btih:7D73A5B8B4FE6B39583457AF2C3B9CFB554D14F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ NG. Королевство белых медведей / Kingdom of the Polar Be
 ```bash
 magnet:?xt=urn:btih:EB76E39FC5D0C62BE59E55E19B64549A687E6C50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ NG: Человечество из космоса / Mankind from Space (2015) HDT
 magnet:?xt=urn:btih:F4A6C4200E22CEFB68830B3D4DC1E2211FFBB66E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ NG. Затерянная гробница царя Ирода / Herod's Lost Tom
 ```bash
 magnet:?xt=urn:btih:28CA61BDE09EBAD0A4A6E44EF02D2E428249E8F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Animal Planet: Спасение слонов с Яо Мином / Saving Africa'
 magnet:?xt=urn:btih:B665085018134F84EDDF5D8641C4915719B8AB50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ magnet:?xt=urn:btih:B665085018134F84EDDF5D8641C4915719B8AB50
 ```bash
 magnet:?xt=urn:btih:B5D0EDAC4FE1A4C1EDDEF07BF126D2B1D79C5235
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Discovery: Чикаго времен Аль Капоне / Al Capone's Chicago (
 magnet:?xt=urn:btih:F71EA5A4B9E30A002A0890A9838DCEDE55EE2B81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ magnet:?xt=urn:btih:F71EA5A4B9E30A002A0890A9838DCEDE55EE2B81
 ```bash
 magnet:?xt=urn:btih:65D7B7FC6CF9D0332960703DA0F4B41B27C9AA1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

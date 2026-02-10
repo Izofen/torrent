@@ -23,6 +23,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ GPS HUD Speedometer является передовым приложением, 
 ```bash
 magnet:?xt=urn:btih:DDCB0EC557389DD7CB282FBD688A8E15E96AD216
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:DDCB0EC557389DD7CB282FBD688A8E15E96AD216
 magnet:?xt=urn:btih:F86208C69D397986F8CBCF94EBBE7829BB83597F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:F86208C69D397986F8CBCF94EBBE7829BB83597F
 ```bash
 magnet:?xt=urn:btih:630A4CF73971F9D3D0E2842F6C69C86CBAC06DE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ No Smoking 2.1.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:FD20366425FBCA6F34917A1195DFA1FC099C9F9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Volume Styles позволит вам полностью настроить па
 magnet:?xt=urn:btih:AC3F7DD96732F57032E25010F6323784886C6C4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ eBooks.com Ebook Reader позволяет читать любимые книг�
 ```bash
 magnet:?xt=urn:btih:7B8215A0BF9C166D96FC6725704BC92C381137EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:7B8215A0BF9C166D96FC6725704BC92C381137EC
 magnet:?xt=urn:btih:DE812804F6FE4D69B4D1EE264829D5382265CDA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Diabetes:M v8.0.8 Premium [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E07C17CADFAF6A1CAE94B418E336D791BDEF010D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ Don't Starve: Shipwrecked — вторая часть инди-игры Don't St
 magnet:?xt=urn:btih:2BDE68300C921BBB894E9202EF22DF4AC69057B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ Facetune 1.1.4 [RU]
 ```bash
 magnet:?xt=urn:btih:EA179300017AC9377CE97E1F4E8603F1F924823D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ ASR - это одно из лучших приложений-диктофоно�
 magnet:?xt=urn:btih:C2263B8595B44B0D0F06E410072CF0DE6F3F4670
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ ABBYY FineScanner – ваш карманный сканер для любых �
 ```bash
 magnet:?xt=urn:btih:B10FEF38007DC70BA89591964EFF84A7B4BCA395
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ Marine Aquarium v3.3.21 PRO [Ru\En]
 magnet:?xt=urn:btih:3BED0D3FC5597C21830D8D17D8A13389A8B02FCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Tail Gun Charlie v1.3.36 Mod [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8AA6B5C76F28BD39D8B82DDBEF115884BDF2DD95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ DailyRoads Voyager - приложение для устройств под уп�
 magnet:?xt=urn:btih:32CA11A7DF77D7F55EAC5F7DBE4CC090956A139B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:32CA11A7DF77D7F55EAC5F7DBE4CC090956A139B
 ```bash
 magnet:?xt=urn:btih:476A9E3359398BD6F3AEAE242004333A9911ADDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Terraria - это знаменитая игра из жанра "песочни�
 magnet:?xt=urn:btih:A70226F0A9478E1BDFE5110EC4B8A04252AAF677
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Flud - простой и элегантный BitTorrent клиент для о�
 ```bash
 magnet:?xt=urn:btih:0F9EBA0DCA3B0867CBDC5D463741048D3D509F6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Tools for Google Maps 5.30 [Ru]
 magnet:?xt=urn:btih:C9F834CF030C553D894F809575DC8980BD1A727C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Panels - sidebar (edge screen) 1.364 [Ru]
 ```bash
 magnet:?xt=urn:btih:4F5502BA4245DBFBD06C231719BB73B32898CC5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ Baby Sleep Sound Machine 1.1.104 [Ru]
 magnet:?xt=urn:btih:7F2A0640CB75ACACF0D7BD4AB018D06E98D569B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:7F2A0640CB75ACACF0D7BD4AB018D06E98D569B1
 ```bash
 magnet:?xt=urn:btih:8906829C725A5871AFF18671485C531D641122E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ Doninn Audio Editor Pro 1.08 [Ru/En]
 magnet:?xt=urn:btih:A45781495FF81B5633FD83A9B0978565CB929EB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:A45781495FF81B5633FD83A9B0978565CB929EB4
 magnet:?xt=urn:btih:FDFA824D2C6D6C7B8000556F18660EDA5A48AF20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Grammatisch 2.4.6 [En]
 ```bash
 magnet:?xt=urn:btih:0E3C6734182E0458AB3E57B39EA005FA462D1E0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

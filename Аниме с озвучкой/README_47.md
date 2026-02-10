@@ -19,6 +19,8 @@ Sewayaki Kitsune no Senko-san | Заботливая Лисица Сэнко [20
 magnet:?xt=urn:btih:ADE5B58BC5109E6C86FDF9D5E78D206D6F2E364C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Ajin (2016) / Получеловек [2016, TV, 13 ep] HDTV 720p Raw+Rus
 ```bash
 magnet:?xt=urn:btih:8701DC6D8F3DF2AF60CF13F3228FD4F7F41625CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Noragami | Noragami Aragoto | Бездомный Бог | Бог-Бродяга 
 magnet:?xt=urn:btih:72D22C595FF35B5FBAF4D21FEA05240951214AB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ TV-1 (AniDub), (Anilibria), (Animedia), (AniPlay), (AniStar), (JWA Project), (SH
 magnet:?xt=urn:btih:38A92609456A22DBA90DE91E07D6531054518D1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ New Game! | Новая игра! [TV-1] [2016, TV, 12 ep + OVA] BDRip 1080p 10-b
 ```bash
 magnet:?xt=urn:btih:73754895EDC24FF2D7AC9FD1FEB96AD06A129308
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Shokugeki no Souma: San no Sara | Кулинарные поединки Сомы
 magnet:?xt=urn:btih:C1F4910CD7FC9283F6A3E482CC81286BBC7E030D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Shokugeki no Souma: Ni no Sara | Кулинарные поединки Сомы 
 ```bash
 magnet:?xt=urn:btih:00F446BFAFDB4C75AE051E053FDCAEC59909A39B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Kuroshitsuji / Black Butler / Темный дворецкий [2008, TV, 24 ep] 
 magnet:?xt=urn:btih:6467C518C0ABA748B3FFFFED1CA9BF77D07A30CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Gabriel Dropout | Габриэль Бросает Школу [2017, TV, 12 ep + 
 ```bash
 magnet:?xt=urn:btih:E1DEAD722F87DF2BA7A95D68F59ED522588EA005
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Strike Witches the Movie | Штурмовые Ведьмы Фильм [2012, Mov
 magnet:?xt=urn:btih:7AC2CBFE16F0BEBE98F806B4A072991A4165DDCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Gokudou-kun Manyuuki | Gokudo | Путешественник Гокудо [1999,
 ```bash
 magnet:?xt=urn:btih:DD32941BC346DA0F689284F036F3C42BA16AAA0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Go-Toubun no Hanayome | Пять Невест [TV-1] [2019, TV, 12 ep] BDRip 108
 magnet:?xt=urn:btih:90621A8CDC4226594A9351BFB64085255E109930
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Yagate Kimi ni Naru | В Конечном Счёте я Стану Твоей [2
 ```bash
 magnet:?xt=urn:btih:C5C9981C58584C02F6110ABB1AFDF3E7CB20C43D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Denpa Teki na Kanojo | Электромагнитная Подружка [2009, 
 magnet:?xt=urn:btih:FB622B4421CEE9505C81B32BA262BF57A6914075
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Anime-Gataris | Аниме Истории [2017, TV, 12 ep] BDRip 1080p raw+rus
 ```bash
 magnet:?xt=urn:btih:7CD928FAF6930D1D936FF4C0E8149B6FF615E8F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Strike Witches: Operation Victory Arrow | Штурмовые Ведьмы: Оп�
 magnet:?xt=urn:btih:6AE36F81B9A26723726C2949597606D8815CA93D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Kidou Senshi Gundam F91 | Mobile Suit Gundam F91 | Мобильный воин �
 ```bash
 magnet:?xt=urn:btih:C6FED04186D68781009CFC2C481CEFEF775D0E02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Non Non Biyori | Деревенская Глубинка [TV-1] [2013, TV, 12 ep
 magnet:?xt=urn:btih:4051E74A4EA0CF520B8901F28B3AA25AE82B0360
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Shirobako | Белая Коробка [2014, TV, 24 ep + 2 Specials] BDRip 1080p
 ```bash
 magnet:?xt=urn:btih:588AEBAADC0F321B046B930136742DC91CC8656C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Chaos;Child / Хаос; Дитя [2017, TV, 12] HDTV 720p rus
 magnet:?xt=urn:btih:48DA0EB7CF810D24BEB18AC85F878ABD1317F95B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Youjo Senki / Saga of Tanya the Evil / Военная хроника мален�
 ```bash
 magnet:?xt=urn:btih:3A62A7288A584ECC7165EA617AFBF7D4BCFE22F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Tenki no Ko | Weathering with You | Дитя погоды [2019, Movie] BDRip 72
 magnet:?xt=urn:btih:13407642CE23D22F6961AC8807A1F001CBFAF84D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ Godzilla. Kaijuu Wakusei  | Годзилла. Планета Чудовищ [201
 ```bash
 magnet:?xt=urn:btih:15B78FE0D857459C4693846999542CF486E0D503
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ Godzilla. Hoshi wo Kuu Mono | Годзилла. Пожиратель звёзд 
 magnet:?xt=urn:btih:C3C31E8635CA37B359F09249484F61835BEA9F69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Godzilla. Kessen Kidou Zoushoku Toshi | Годзилла. Город на Гра
 magnet:?xt=urn:btih:B18E73368505FFC406C399AD00CA5D78F7FAC42B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Yakusoku no Neverland | Обещанный Неверленд [2019, TV, 12 ep] 
 ```bash
 magnet:?xt=urn:btih:B2D32458CD06A059D3A0548FD1A34445F86732CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

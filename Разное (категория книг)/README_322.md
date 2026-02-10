@@ -1,3 +1,30 @@
+###  Публикация: 1160456   (473768) от 25.08.2017
+
+В.И. Андрейчук | Самозащита (1991) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор брошюры - В. И. Андрейчук, старший преподаватель кафедры рукопашного боя и спортивных единоборств Военного института физической культуры (ВИФК), мастер спорта СССР по борьбе самбо и дзю-до, один из авторов учебника "Рукопашный бой" и книги "Первый шаг к кунгфу", автор книги "Как себя  защитить".
+В потоке большого количества ныне (   Читать дальше...   )Жанр: Спорт, СамооборонаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF3D9D2071D274BC32E417A882B83952E61DBAC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160470   (473907) от 25.08.2017
 
 Лоретта Чиральдо | Безупречная кожа за 6 недель (2008) [FB2, EPUB]
@@ -19,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:AEC73BB2FF48850A7600C789EA982664F8542997
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +75,8 @@ magnet:?xt=urn:btih:AEC73BB2FF48850A7600C789EA982664F8542997
 magnet:?xt=urn:btih:7EF28344934FDF3071E21A890A5454F7195B5BC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +100,8 @@ magnet:?xt=urn:btih:7EF28344934FDF3071E21A890A5454F7195B5BC6
 ```bash
 magnet:?xt=urn:btih:784966B7240F614927305713C1CFFC18B823703F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +130,8 @@ magnet:?xt=urn:btih:784966B7240F614927305713C1CFFC18B823703F
 magnet:?xt=urn:btih:B933C5A6FB458D78ECDB61BF0D5237AF644D0F5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +158,8 @@ magnet:?xt=urn:btih:B933C5A6FB458D78ECDB61BF0D5237AF644D0F5E
 magnet:?xt=urn:btih:DAAD99C1AABFA5607377D4005B1D0D7BA62AD216
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +183,8 @@ magnet:?xt=urn:btih:DAAD99C1AABFA5607377D4005B1D0D7BA62AD216
 ```bash
 magnet:?xt=urn:btih:5842EB35F29BBE71059469A554A9A4DE3BDC4EE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +210,8 @@ magnet:?xt=urn:btih:5842EB35F29BBE71059469A554A9A4DE3BDC4EE9
 magnet:?xt=urn:btih:DB148B49B8031098795A63B3FE65ACCFA2BF68C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +235,8 @@ magnet:?xt=urn:btih:DB148B49B8031098795A63B3FE65ACCFA2BF68C8
 ```bash
 magnet:?xt=urn:btih:DE925B7D32CEBC19CF3ABC7C0D85465DFE6CD1E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +263,8 @@ magnet:?xt=urn:btih:DE925B7D32CEBC19CF3ABC7C0D85465DFE6CD1E1
 magnet:?xt=urn:btih:B1BEAD97C14584F75BFDB18DF5B47208F478D694
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +288,8 @@ magnet:?xt=urn:btih:B1BEAD97C14584F75BFDB18DF5B47208F478D694
 ```bash
 magnet:?xt=urn:btih:3E5EF04D1087D3574A3804ABFAFD468617B64A95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +315,8 @@ magnet:?xt=urn:btih:3E5EF04D1087D3574A3804ABFAFD468617B64A95
 magnet:?xt=urn:btih:171198A654D7CA761BB3D4EE70624B26563ABCC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ magnet:?xt=urn:btih:171198A654D7CA761BB3D4EE70624B26563ABCC7
 ```bash
 magnet:?xt=urn:btih:8E03F1BCCD8CE58652AD7C9EABA18BFDD887162F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +367,8 @@ magnet:?xt=urn:btih:8E03F1BCCD8CE58652AD7C9EABA18BFDD887162F
 magnet:?xt=urn:btih:5CF0E1F823C02158BC300DF7F9FFD761C6B8405B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +393,8 @@ magnet:?xt=urn:btih:5CF0E1F823C02158BC300DF7F9FFD761C6B8405B
 ```bash
 magnet:?xt=urn:btih:A72CC358F86BEC4AC7700C391E008227CD39AB40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +423,8 @@ magnet:?xt=urn:btih:A72CC358F86BEC4AC7700C391E008227CD39AB40
 magnet:?xt=urn:btih:3D5B779FC3AFE8E52A6CAE968F173D0B5E36BBC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +450,8 @@ magnet:?xt=urn:btih:3D5B779FC3AFE8E52A6CAE968F173D0B5E36BBC4
 ```bash
 magnet:?xt=urn:btih:C138B47A3BDE58DA0011BAA52E0C9B1E49707D91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +480,8 @@ magnet:?xt=urn:btih:C138B47A3BDE58DA0011BAA52E0C9B1E49707D91
 magnet:?xt=urn:btih:D1B364DBE804A50D8D3271F8063A3667DAF6D963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +506,8 @@ magnet:?xt=urn:btih:D1B364DBE804A50D8D3271F8063A3667DAF6D963
 magnet:?xt=urn:btih:159F45D0CE5DC88603FD1CB22C6EF8983962DDE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +531,8 @@ magnet:?xt=urn:btih:159F45D0CE5DC88603FD1CB22C6EF8983962DDE6
 ```bash
 magnet:?xt=urn:btih:578F8674DC41C9110FE6BBF0B1BB3ECED146AD2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +560,8 @@ magnet:?xt=urn:btih:578F8674DC41C9110FE6BBF0B1BB3ECED146AD2E
 magnet:?xt=urn:btih:053F67F1C6B380C5B77D2FA61844C2C9B303E8C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +586,8 @@ magnet:?xt=urn:btih:053F67F1C6B380C5B77D2FA61844C2C9B303E8C5
 magnet:?xt=urn:btih:61B14B09127BFEDCD2CD8EAA6205B70654F18D73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +611,8 @@ magnet:?xt=urn:btih:61B14B09127BFEDCD2CD8EAA6205B70654F18D73
 ```bash
 magnet:?xt=urn:btih:469CD672E7ECC362047A5119E2010639C80607E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +641,8 @@ magnet:?xt=urn:btih:469CD672E7ECC362047A5119E2010639C80607E5
 magnet:?xt=urn:btih:D35651FF0D9023DC3A8BD37C23AABB3513DD2550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +666,8 @@ magnet:?xt=urn:btih:D35651FF0D9023DC3A8BD37C23AABB3513DD2550
 ```bash
 magnet:?xt=urn:btih:75DDE41CEBD989787A997D7579585715AC1E4075
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,29 +695,7 @@ magnet:?xt=urn:btih:75DDE41CEBD989787A997D7579585715AC1E4075
 magnet:?xt=urn:btih:F4570303F01F5DF2D6BE15646A3D1540B53F8421
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939159   (475359) от 21.09.2015
-
-В. А. Кузьмин, Т. М. Тибилова | Как качественно оценить человека. Настольная книга менеджера по персоналу (2010) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если перед вами стоит задача в кратчайшие сроки и с оптимальными затратами качественно оценить претендента на открывшуюся вакансию – эта книга для вас. В ней рассмотрены основные методики и инструменты (технологии поиска, интервьюирования и составления профиля идеального кандидата, методы оценки и т. п.), которые используют в своей работе специалисты по подбору и (   Читать дальше...   )Жанр: Управление, Подбор персоналаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A26E2AA5321D66876574E7A3447485C0E939670
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

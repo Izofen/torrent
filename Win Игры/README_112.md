@@ -19,6 +19,8 @@ Go Home Annie (2024) [Ru/Multi] (1.0.23) Repack FitGirl
 magnet:?xt=urn:btih:74F6EB108E76C83DE94C55D12206C1148B85405C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Tekken 8 - продолжение культового файтинга, нап�
 ```bash
 magnet:?xt=urn:btih:0499B81AD5AE6F0A309969DB06618D741CC2BDC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Sam and Max: The Devil's Playhouse - ремастированное приклю
 magnet:?xt=urn:btih:CCD818412EDA0C7CBD3B60364574F68DF8522615
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Guardians of the Sanctree (2024) [Ru/Multi] (1.1.2f6/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:5B918E3CA9AB2E9A2169CC555D349297F3F6D38D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Doomsday Hunters (2023) [Ru/En] (1.1.0/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:C36516DD30697C123BA2D1B906300F6EE5BD6D89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Dark Eye: Chains of Satinav (2012) [Ru/Mullti] (3.0.351.5498) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:3E84CCB7D565E83F885175AF548EE754784C532D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Universim, симулятор бога, в котором успех ваш�
 magnet:?xt=urn:btih:D663C9AD8507F4CC13F2CEAED0899CA48FE41A94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Pizza Tower - это энергичный 2D-платформер, завяза�
 ```bash
 magnet:?xt=urn:btih:FD3A00692DF97DEF23BD6C3C53B6702AD2A2626A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Flashing Lights - Police, Firefighting, Emergency Services Simulator (2023) [Ru/
 magnet:?xt=urn:btih:DB0C61D8BFC5DB8CF2AAC0C1CD9F42EB294B2CFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Locked In Mind (2023) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B7E3E45DACA3C208A2B8076050708D223DD0DF27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Joyville 2 - это хоррор-головоломка от первого ли
 magnet:?xt=urn:btih:F59ADABDF04C480DCC2A1CAFE40BACE8955CD8BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Limoria (2025) [Ru/Multi] (build 16883517) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:570F3DFB0150F2F0E83D5E63998ED3E588D3736C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Spectacular Sparky (2021) [Ru/Multi] (1.0.1) Repack Let'sРlay
 magnet:?xt=urn:btih:538CD4ACFB0E73116F0E57671C8BAE16951D0363
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Nelly Cootalot: Spoonbeaks Ahoy! HD – переиздание оригинал�
 ```bash
 magnet:?xt=urn:btih:92B1C8242A7EFCE000FC089AF95FB8AFD4461AA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Slay the Princess — это психологический хоррор с вы
 magnet:?xt=urn:btih:F256B0986AFBE86B7644C414F2DAEBE250D98B0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Nelly Cootalot: The Fowl Fleet - приключенческий квест, в �
 ```bash
 magnet:?xt=urn:btih:7F82ABB3792A091191631E643E7F80EB28064216
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ SUPER BOMBERMAN R2 (2023) [Ru/Multi] (1.3.1) Repack Let'sРlay
 magnet:?xt=urn:btih:93D32ED9C922C86ED996E7CFD9DF7F33EC48A560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Slay the Princess (2023) [Ru/Multi] (build 16887603) Repack seleZen [The Pristin
 ```bash
 magnet:?xt=urn:btih:13BADD3A17E1ED57F351FC537C086636E2AF8C92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:13BADD3A17E1ED57F351FC537C086636E2AF8C92
 magnet:?xt=urn:btih:3868E9ABF5812EADA0AC96AD8D661885F0FF59B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Limoria (2025) [Ru/Multi] (build 16883517) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:3244F6AE41A741AFE70202EEB3DC9C92291F5B1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Starcom: Unknown Space - это увлекательное сочетание к
 magnet:?xt=urn:btih:EFA049055C007B2B65564E828BE16EF346CFF48C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Snufkin: Melody of Moominvalley - это приключенческая игра
 ```bash
 magnet:?xt=urn:btih:6FAB344E2AD011ABF4477A13D4E646D8982603CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Goalgetter / Torschutzenkonig (2023) [Multi] (2.1.1) License GOG
 magnet:?xt=urn:btih:E6ADDBB47FEC0732BE7E53033B6B9C2E68C94F1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Slave Zero X (2024) [Ru/Multi] (1.06/dlc) Repack Let'sРlay [Digital Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:8A64F9F4CFBBD6BE7AB78291BE6BCF834706A633
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.0.1.1) Repack Wanterlude
 magnet:?xt=urn:btih:CDF0B283A939B34183567265D5814616000E08FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Janosik 2 – продолжение истории, начатой в перв�
 ```bash
 magnet:?xt=urn:btih:DD9D6ECABA211D9589F84793919C18271D65361C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -28,6 +28,8 @@ Shirley Rumsey - Music of the Renaissance - 2 альбома (1993-1994) [FLAC|L
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ Todd Snider - Cash Cabin Sessions, Vol. 3 (2019) [FLAC|Lossless|tracks + .cue] <
 magnet:?xt=urn:btih:89C8F87F345367F778ED33759A6A45DDE2F97BA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +85,8 @@ VA - The Witcher (Collection Original Soundtrack) (2008-2016) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:8BA2888041D1BA1B8C17FFCFEE21C8E254FD0EAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -112,6 +118,8 @@ John Stanford - Deep Space (1999) [FLAC|Lossless]<New Age, Ambient>
 ```bash
 magnet:?xt=urn:btih:9FD125067A384F6235260B6EA11D6411D846BF75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +153,8 @@ Gregor Samsa - 6 albums (2002-2009) [FLAC|Lossless] <Post-Rock, Ambient, Instrum
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +181,8 @@ Royal Philharmonic Orchestra London - Rock Dreams (Unknown) Box Set, 4CD, Compil
 ```bash
 magnet:?xt=urn:btih:72B0B9DF50C278247C1B9BA22800114653E36827
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +211,8 @@ Aetos - Aetos (2016) [FLAC|tracks|WEB-DL]<Post-Metal, Post-Rock, Instrumental>
 magnet:?xt=urn:btih:5C9E19C73B308D6BA71CE0C4C55FDA1CF42D21FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +239,8 @@ Louis Landon - Ebb and Flow - Solo Piano (2016) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:37FBACD3FD13539F3D09043A502FDBB62D884205
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +269,8 @@ Offrandes - Best of 2008-2015 (2016) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:51737C26A5283887250317EE3788D99D4B042170
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +297,8 @@ The Bodarks - Uprooted (2018) [FLAC|Lossless|tracks + .cue] <Contemporary Folk, 
 ```bash
 magnet:?xt=urn:btih:3E0F92DB062575CF3A97B4E32259D8EB8FDB7C24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +327,8 @@ VA - Baywatch / Спасатели Малибу (Music From The Motion Picture) 
 magnet:?xt=urn:btih:1CE8FA1C0CF4EFC2006F5976FBB641C14AE843BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +355,8 @@ VA - Thai Massage Lounge: Asian Zen Spa Relaxation (2017) [MP3|320 Kbps] <New Ag
 ```bash
 magnet:?xt=urn:btih:20D6ADC03F8E0C6B1048629195DC09FD598ED09F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +385,8 @@ VA - Music to Help You Sleep: Deep Restful Sleeping (2017) [MP3|320 Kbps] <Downt
 magnet:?xt=urn:btih:54F40B70A3192E9F9D23788B097E4D874F8AA4C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +413,8 @@ Holly Benton - Road Trip (2017) [MP3|320 Kbps] <Country>
 ```bash
 magnet:?xt=urn:btih:EACFEC4AB43B65D0C2E4AEDF8BAEEE43B13914CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +443,8 @@ VA - Kamasutra Divine: Harmonious Lessons for Love (2013) [MP3|320 Kbps] <New Ag
 magnet:?xt=urn:btih:05D29A62BD9F0AC185F566FC432D28C44FDCC894
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +471,8 @@ Lullatone - Music For Museum Gift Shops (2019) 2CD [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:15D8207138D0378B804A49CCC2D657E0DAD3AF4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +501,8 @@ Tom Russell - October in the Railroad Earth (2019) [FLAC|Lossless|tracks + .cue]
 magnet:?xt=urn:btih:241C5EE253344BB563B0B0ADBB5DBA216A79792C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +529,8 @@ J Stallworth - Unleashed (2016) [MP3|320 Kbps] <Instrumental>
 ```bash
 magnet:?xt=urn:btih:6251934FABCF92BDD462EAD168B18D965DB6655B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +559,8 @@ NeillyRich - Here Now Forever (2017) [FLAC|Lossless|tracks] <Country>
 magnet:?xt=urn:btih:E187B2A3264D710D67A07F671942012693201ADD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +584,8 @@ magnet:?xt=urn:btih:E187B2A3264D710D67A07F671942012693201ADD
 ```bash
 magnet:?xt=urn:btih:04FC98668590DAD06370E38E9409490767CEA812
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +618,8 @@ VA - Вечерняя Коллекция (Звуки природы) (2010) [FLA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +646,8 @@ Jeff Beal - House Of Cards - Season 6: Music From The Netflix Original Series (2
 ```bash
 magnet:?xt=urn:btih:53A0D8CD617742F3B0746282B92DAE909F51FE0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +676,8 @@ Victor Reyes - Down A Dark Hall (2018) [FLAC|Lossless|tracks + .cue] <Soundtrack
 magnet:?xt=urn:btih:AF94431591EC27233F6DFBDCD55FB5C2D3AED0F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +704,8 @@ The Allegorist - Botanical Utopia (2016) [MP3|320 Kbps] <Electronic, Nu Disco, A
 ```bash
 magnet:?xt=urn:btih:6E6F7153C7BBD69F0CF53133EAE92C63FD9CF267
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -688,6 +736,8 @@ Jakob - 5 albums (1999-2006) [FLAC|Lossless] <Post-Rock, Ambient, Instrumental>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -721,6 +771,8 @@ Steve Von Till - 3 albums (2000-2008) [FLAC|Lossless] <Acoustic, Neofolk, Ambien
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

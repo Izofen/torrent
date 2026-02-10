@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:635374EE35C8A9860DCE1B33E367ACD245BD89E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 ```bash
 magnet:?xt=urn:btih:4FFF255E838B2D85C46D52B39B7B2024C578B4FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Crashlands 2 v100.1.407 [Ru]
 magnet:?xt=urn:btih:7FF8E90394196F1548194EB616A1CA02C186579F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:7FF8E90394196F1548194EB616A1CA02C186579F
 ```bash
 magnet:?xt=urn:btih:3A94BBA9912FD570C7527AD3A029BB50B6CCAD77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:3A94BBA9912FD570C7527AD3A029BB50B6CCAD77
 magnet:?xt=urn:btih:A76120EE0F96B21C69B457D7B5D2F1382819BDC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:A76120EE0F96B21C69B457D7B5D2F1382819BDC8
 magnet:?xt=urn:btih:03ADCDC83FE1BA5247E8298FE7287B32806B7041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ magnet:?xt=urn:btih:03ADCDC83FE1BA5247E8298FE7287B32806B7041
 ```bash
 magnet:?xt=urn:btih:560A511891E4341D6C33D1CF5B4702ADF5F88579
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Araxis Merge – это обязательное приложение для р�
 magnet:?xt=urn:btih:D880390F040AC7341ABAF168E7A39B262D8E6E85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:D880390F040AC7341ABAF168E7A39B262D8E6E85
 ```bash
 magnet:?xt=urn:btih:50A146287D2BCC74ADC97E3474303702EC275930
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ ML5 также работает с устройствами с клавиату�
 magnet:?xt=urn:btih:BEC20246BB1A5195063591FE581790FFE9D4D06F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:29C7518C293EEBA35D1EE8E7B4DC2804E4A95916
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:29C7518C293EEBA35D1EE8E7B4DC2804E4A95916
 magnet:?xt=urn:btih:53775AB7BAA5FE6AA27BC45DD3B46CCA5F3419B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Vov Sticky Notes 9.6 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:80CA8A48BCAC7720C3BAA7692C39E7F7470AE35D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Tixati — это полноценный и бесплатный клиент с
 magnet:?xt=urn:btih:5CD5B4918DBB5F3983930FEA43CC378285B56996
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:5CD5B4918DBB5F3983930FEA43CC378285B56996
 ```bash
 magnet:?xt=urn:btih:7BAEEBB0CE9623F15FE51DBA43F9D6CA360844FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:7BAEEBB0CE9623F15FE51DBA43F9D6CA360844FF
 magnet:?xt=urn:btih:1A6DF366624342C340DFEB30185F1D8660C8F304
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:1A6DF366624342C340DFEB30185F1D8660C8F304
 ```bash
 magnet:?xt=urn:btih:F644D46CEF595AD20A6FD8439645E8CC971137EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:F644D46CEF595AD20A6FD8439645E8CC971137EB
 magnet:?xt=urn:btih:042327FB6DB60C943D7BB63A5B8497F9ED190693
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:042327FB6DB60C943D7BB63A5B8497F9ED190693
 ```bash
 magnet:?xt=urn:btih:9565F61B0D8877868BBE56E9D0D85B09C8C0AB5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ MediaHuman YouTube Downloader 3.9.11 (3004) RePack (& Portable) by elchupacabra 
 magnet:?xt=urn:btih:47CA42AD1B3929696F06603621499C8FCEBBEC3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:47CA42AD1B3929696F06603621499C8FCEBBEC3F
 ```bash
 magnet:?xt=urn:btih:7E4E8127CEF7B3BA584B9D77FC74B14A7F850248
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Garry's Mod - физическая песочница. В отличие от о
 magnet:?xt=urn:btih:E7903F367D82DB6E78D675BA1A552A1AAECD97B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Age of Reforging: The Freelands (2023) [Ru/Multi] (1a) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:57C0BEA866900ED85090CBB24FE275E361883E51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:57C0BEA866900ED85090CBB24FE275E361883E51
 magnet:?xt=urn:btih:8D00278CE15B2E74E8E0D7EF1A4F7348123EB412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Mirthwood (2024) [Ru/Multi] (1.0.65p2) Repack FitGirl
 magnet:?xt=urn:btih:3502E4E61EAD7A4309555DB32EEE9B1116F4207B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:3502E4E61EAD7A4309555DB32EEE9B1116F4207B
 ```bash
 magnet:?xt=urn:btih:ACB9F0183B7764D9E428E09C3BFCB20571CD07C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

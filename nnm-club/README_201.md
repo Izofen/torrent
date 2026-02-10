@@ -19,6 +19,8 @@ Stellaris (2016) [Ru/Multi] (4.0.23/dlc) License GOG [Galaxy Edition] (обно�
 magnet:?xt=urn:btih:896519AE3FE2139DE89FA2F8AEFEAFFA19D4A6ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ RimWorld (2018) [Ru/Multi] (1.6.4566/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:C5FDB0D7B50CA339C41C2C6A47CB3A3564786BC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Old World - это историческая стратегия, в которо�
 magnet:?xt=urn:btih:88120BB1E456720853CBA29A0E032E595CB78779
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Panzer Corps 2 - Field Marshal Edition - ультимативное люксов
 ```bash
 magnet:?xt=urn:btih:CFC3E5553B6E29987731DEA35CFDDFD94AEBCBEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:CFC3E5553B6E29987731DEA35CFDDFD94AEBCBEF
 magnet:?xt=urn:btih:D7483E2A9C7B68AB6AF257D1E81504D20BD3A7DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Diplomacy is Not an Option (2022) [Ru/Multi] (1.0.73r) License GOG
 ```bash
 magnet:?xt=urn:btih:7F2C296007F7918A0BD45DE67FEE766FE6777F09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:7F2C296007F7918A0BD45DE67FEE766FE6777F09
 magnet:?xt=urn:btih:C3326AE6F57C5BEFB5B450F8E0B1699FF520AB74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Knights of the Chalice 2 - это 2D-ролевая игра с пошаговы
 ```bash
 magnet:?xt=urn:btih:9C85BBC5F9BB069E0445FC3E2660A84F32B553BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Workers & Resources: Soviet Republic / Workers and Resources: Soviet Republic (2
 magnet:?xt=urn:btih:9E1AE5917953F43E84EDAABF7F1BA0D3B6096A43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Caves of Lore - это мрачная тактическая ролевая иг
 ```bash
 magnet:?xt=urn:btih:7FD8C368173F982E09C5E552DEF5F3E45AB25A88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Kynseed - это ролевая игра в приключенческом жа�
 magnet:?xt=urn:btih:8C05DD5C415CD4610BB45922003E8639B3562198
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ The Last of Us Part I – игра для ПК от 3-го лица, предс�
 ```bash
 magnet:?xt=urn:btih:64A629C08E0304299718AF68489F7ADBEDB93233
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Legends of Amberland 2: The Song of Trees - это увлекательная Р
 magnet:?xt=urn:btih:D3C658B4F235400317E7205EF48353DFF99315E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Elden Ring – фэнтезийное экшен-РПГ приключение, 
 ```bash
 magnet:?xt=urn:btih:A2FBD093AAEFDE70BAED10DB773C583C2D41AF37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Dragon is Dead - хардкорный 2D экшен-платформер с эл
 magnet:?xt=urn:btih:5D704D3BDDCB604B1848F2EB301622ABD9436B72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:5D704D3BDDCB604B1848F2EB301622ABD9436B72
 ```bash
 magnet:?xt=urn:btih:2C73E06E14B44A2CCD5D72599BCB79569CFFB1F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Telepath Tactics Liberated позволяет использовать стра�
 magnet:?xt=urn:btih:840C76528CBFF7D011DCB6D212DBE179BF758BE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:840C76528CBFF7D011DCB6D212DBE179BF758BE7
 magnet:?xt=urn:btih:DF9A0BDA49F8CE943F5A99ECDF60CC53EF96EC1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Skyrim + West of Loathing + Supraland. RPG-lite приключение с нам
 ```bash
 magnet:?xt=urn:btih:CD5E835B70C0A217978A49F623B4E5894E80FFBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Dragonsfire - Rebirth of the Beast (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:F0BEFDB2C4B0D72C925C47E4146D734F22592039
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Rising Steel - Legion Of The Grave (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <H
 ```bash
 magnet:?xt=urn:btih:BFDC78F57E11D384911DBDAEE38A4BFD00D3F7D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Rory Block - Heavy On The Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 magnet:?xt=urn:btih:476CDAAEC693BBA9458A8DA331EF250565F9C539
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ Evocatus - Inevitable Death (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash
 ```bash
 magnet:?xt=urn:btih:204E195516EF644DBA5095E9C13F1413FAAC12D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ VA - Ori Uplift - Uplifting Only Episode 655 (2025) [MP3|320 Kbps] <Trance, Upli
 magnet:?xt=urn:btih:DD384547E0662A9F57DCF55DBB727ADF4A00D0C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:DD384547E0662A9F57DCF55DBB727ADF4A00D0C7
 ```bash
 magnet:?xt=urn:btih:9DC18700ACE1208CA7C74F0F59EFA363B2771868
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +687,8 @@ VA - Chill Mode On: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Bal
 ```bash
 magnet:?xt=urn:btih:157B0320981BEC2D4A83AFAD43594B869886B177
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

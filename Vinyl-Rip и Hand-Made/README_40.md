@@ -22,6 +22,8 @@ A2 З. Невская – Дни Проходят(   Читать дальше..
 magnet:?xt=urn:btih:FBA01373695CCE41022568A170CF85B733F267CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Lacuna Coil - Broken Crown Halo (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Got
 ```bash
 magnet:?xt=urn:btih:1C3527333B9B6EFC6800DAB15D6A6ACC2278019F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ A4 Within Me(   Читать дальше...   )Жанр: Gothic Metal, Rock, Al
 magnet:?xt=urn:btih:EFF61C18CE046F4AF6EC1951C909EA2384DB6A89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Xentrix — британская трэш-метал-группа из Прес�
 ```bash
 magnet:?xt=urn:btih:EAA218895C43B067A97497D345320CB4398A1453
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ A4 - My Wings(   Читать дальше...   )Жанр: Gothic Metal, Alterna
 magnet:?xt=urn:btih:883767E7AE364641ECAA4A80DDE31931CC2B8A78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ A4 Ramund(   Читать дальше...   )Жанр: Atmospheric Black Metal, 
 ```bash
 magnet:?xt=urn:btih:5ED376654036B0920377373ACCEAAC855CCD647C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ A4 Byssan Lull(   Читать дальше...   )Жанр: Atmospheric Black Me
 magnet:?xt=urn:btih:6DF39500BFC0B3C0B038E5EE2892A261311FD103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ A4 Vølvens Spådom(   Читать дальше...   )Жанр: Atmospheric Bla
 magnet:?xt=urn:btih:737582707B432ED1CE9E4C5C2F085355CCC02B2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +252,8 @@ Brutus - норвежская хард-рок-группа из Осло, Нор
 ```bash
 magnet:?xt=urn:btih:222B5D0E09D75613B3C530324777BEF7B6A97287
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +282,8 @@ A4 Crown(   Читать дальше...   )Жанр: Atmospheric Black Metal, F
 magnet:?xt=urn:btih:9828534FC90C6994C3D4D55A35E1C2D993E508E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +311,8 @@ Orchestra – Эстрадный Оркестр П/у Ю. Силантьева( 
 magnet:?xt=urn:btih:877AEA31E1E1748B138278241DAB73BDFB4C02B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +338,8 @@ URNE - британская рок-группа. Сложно определит
 ```bash
 magnet:?xt=urn:btih:8D3D90B3739BF06799A27D9662E946428322A2AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +368,8 @@ B1 Latvian Fegurð(   Читать дальше...   )Жанр: Atmospheric Blac
 magnet:?xt=urn:btih:EE6C74709662552E4386128EF8CA6785B40D02CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +396,8 @@ Acolyte - Studio Albums (2 releases) (2016-2021) hand made [restored, declipped]
 magnet:?xt=urn:btih:6227DBFF2E1CD0143806A6224B37846455483A2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +422,8 @@ Shadow - Мелодик-дэт-метал группа из города Оса�
 ```bash
 magnet:?xt=urn:btih:18E033CE6ED97A9DB7BC7845ACCA5F67013B68F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +452,8 @@ Serenity — австрийская группа, исполняющая муз�
 magnet:?xt=urn:btih:5B147A7C1CD655A21F2FFA5D8E88F8FE20389CE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +480,8 @@ Guns N' Roses - Use Your Illusion II (1991)[FLAC|24/192|image + .cue|Vinyl-Rip] 
 ```bash
 magnet:?xt=urn:btih:31BB76F9211DE5B98D4792B7E949E952FD25CD1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +510,8 @@ Guns N' Roses - Use Your Illusion I (1991) [FLAC|24/192|image + .cue|Vinyl-Rip] 
 magnet:?xt=urn:btih:6A95BC5A40D544C64309FE56CC02056CE09A8752
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +538,8 @@ Guns N' Roses - The Spaghetti Incident? (1993) [FLAC|24/192|image + .cue|Vinyl-R
 ```bash
 magnet:?xt=urn:btih:C4233611F0A677A5E154E5D4A830CC020585F706
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +568,8 @@ Guns N' Roses - Chinese Democracy (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <H
 magnet:?xt=urn:btih:1334DD2E772241781EFDBD0E1FFA3171C44763B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +596,8 @@ A4 Дорогая, Сядем Рядом(   Читать дальше...   )Жа
 ```bash
 magnet:?xt=urn:btih:491E5A9CCAA242B7769F10759F6F74B452BBE99E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +626,8 @@ Guns N' Roses - Appetite for Destruction (1987) [FLAC|24/192|image + .cue|Vinyl-
 magnet:?xt=urn:btih:4C442A97E71BEA7AB3B36B5D28953CB0CA5445DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +655,8 @@ G Side 1986
 magnet:?xt=urn:btih:4DFC6BE21DC587F20D4ADFCBF2D23F4A309C9BEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +682,8 @@ Avenged Sevenfold — американская метал-группа из Ха
 ```bash
 magnet:?xt=urn:btih:3F436D16D58B42632B7C4B0722617C550EE1214D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +712,8 @@ Reign of Fury - мелодик-трэш-метал группа из Велик�
 magnet:?xt=urn:btih:8934EE90D1F6E22BD222517F5E5D8FF3AE53A89B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +740,8 @@ Still Remains - The Serpent (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Metalco
 ```bash
 magnet:?xt=urn:btih:418ACE6BF65EEF9BB925C1254AAFAB010D346F2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

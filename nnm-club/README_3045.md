@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A8EA012C6A39C6EE1B5B66BDB72A3AE99D05F318
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:A8EA012C6A39C6EE1B5B66BDB72A3AE99D05F318
 ```bash
 magnet:?xt=urn:btih:7126B9CFFB7062411A3DD207A08E495DEC16633E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Corona - Sonar Luminescence (2012) [MP3|~257 кб/с (V0)]<Psychedelic / Progres
 magnet:?xt=urn:btih:C6697379FE12E9E230F7B9F36C1BC9DC8B6EBD9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ IBM представляет терабитный трансивер
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ IBM представляет терабитный трансивер
 ```bash
 magnet:?xt=urn:btih:32C759A3C4AA456BEAE2808830B93E34D944DAA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +167,8 @@ Mina Agossi - Red Eyes (2012) [FLAC|Lossless]<Vocal Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +201,8 @@ VA - The best from the West (2012) [MP3|256 кб/с]<Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:E9106830318C63D678DAE5B92F13115F63B62A3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +237,8 @@ VA - Italo - Eurodisco (2012) [MP3|256 кб/с]<Italo-Disco, Euro-Disco, Pop>
 magnet:?xt=urn:btih:6F985BB60A8EC53BAFE7719E27E7995563BB2308
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +264,8 @@ Kaspersky TDSSKiller 2.7.19.0 [Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -282,6 +300,8 @@ VA - Ретро Дискотека глазами диджеев (2012) [MP3|256
 magnet:?xt=urn:btih:C7E0B5BC016C1E686745017E64FEBE5AD0A586F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +333,8 @@ CD1 - 23:00
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +360,8 @@ Chrome спроектирован сотрудниками Google с нуля, �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +396,8 @@ Alex Band - We've All Been There [Deluxe Edition] (2010) [MP3|320 кб/с]<Alt. 
 magnet:?xt=urn:btih:D8370A649AEE91003C5ACE58A50E65253E5FF843
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +422,8 @@ magnet:?xt=urn:btih:D8370A649AEE91003C5ACE58A50E65253E5FF843
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +458,8 @@ The Album
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +493,8 @@ Freaked Frequency - FF Syndrome (2007) [FLAC|Lossless]<Psychedelic / Full On>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +519,8 @@ Freaked Frequency - FF Syndrome (2007) [FLAC|Lossless]<Psychedelic / Full On>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +544,8 @@ Freaked Frequency - FF Syndrome (2007) [FLAC|Lossless]<Psychedelic / Full On>
 ```bash
 magnet:?xt=urn:btih:94CAEB2775F002F02D0F746D615E3C13DD0C163E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +580,8 @@ magnet:?xt=urn:btih:94CAEB2775F002F02D0F746D615E3C13DD0C163E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +606,8 @@ magnet:?xt=urn:btih:94CAEB2775F002F02D0F746D615E3C13DD0C163E
 magnet:?xt=urn:btih:1DAA0FE4CBC58DABA584A4AC979F5597CED34476
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +631,8 @@ magnet:?xt=urn:btih:1DAA0FE4CBC58DABA584A4AC979F5597CED34476
 ```bash
 magnet:?xt=urn:btih:C7522A962A99A1130C8F1B0EB924B71DE6F26AAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +667,8 @@ Elane - Arcane (2011) [MP3|320 кб/с]<Celtic, Gothic, Fantasy Folk Rock>
 magnet:?xt=urn:btih:3719FC83C1C3A0A6EFB614BE73358107CF9DBD76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +700,8 @@ Les Dudek - Ghost Town Parade (1978) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:3463170ED102E23A4185412AD5DD4EF3EDFA5BC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -690,6 +736,8 @@ VA - Попсовый всесезонный хит (2012) [MP3|256 кб/с]<Pop
 magnet:?xt=urn:btih:2E7FF6CFAAB51A37FD0A0D338BF14D2D17B621B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -723,6 +771,8 @@ VA - House Vip (11.03.2012) [MP3|320 кб/с]<Electro House>
 magnet:?xt=urn:btih:6FEC392BB3A64052ACE64393F9C32D4E6CCBD9A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -755,6 +805,8 @@ Apollo - Cap Inedit (1999) [FLAC|Lossless]<Contemporary Jazz>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

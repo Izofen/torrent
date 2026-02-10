@@ -19,6 +19,8 @@ Viorel Rudareanu, Daniil Baturin | Linux for System Administrators (2023) [PDF][
 magnet:?xt=urn:btih:4BB0A7D6D26F604328533ECD2CFBA07D17387FBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:4BB0A7D6D26F604328533ECD2CFBA07D17387FBF
 ```bash
 magnet:?xt=urn:btih:F0E6BA8C42CB57AB2AE2EC79AE85F589472149EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:F0E6BA8C42CB57AB2AE2EC79AE85F589472149EF
 magnet:?xt=urn:btih:FF9F7138792C51246F0DE3BC33FF2CF234E8A0F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:FF9F7138792C51246F0DE3BC33FF2CF234E8A0F6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Network Kit 9.0.1 [Multi]
 magnet:?xt=urn:btih:9F16AFBAD8D646A7743B29A6A3F5D98DD4964108
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:9F16AFBAD8D646A7743B29A6A3F5D98DD4964108
 magnet:?xt=urn:btih:30ED8D77A9732FFAEB345A1263EBDC7BE7F8FD7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:30ED8D77A9732FFAEB345A1263EBDC7BE7F8FD7E
 ```bash
 magnet:?xt=urn:btih:C17DFD24B1DB59C1E4782749DFBC486A019D98C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Jean-Michel Jarre - Oxymoreworks (2023) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 magnet:?xt=urn:btih:DF82FFAF4B6063168047A29F9D675A437FE3ACE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ PullTube 1.7.6 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:14543C72E8F215F137BA4F32EFBF3755DAE6A349
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Adobe Premiere Rush v1.5.40 [Multi/Ru]
 magnet:?xt=urn:btih:A2C5D338848FDDF94A10314BC19BAE7F368088C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Olatunde Adedeji | Full-Stack Flask and React (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:72A2743692B15FBCABFD075148D9F511339EF90C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ Sketch 81 [En]
 magnet:?xt=urn:btih:54A8B657224ADBC9FACE2ACCE7152F3CEECDB036
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Audirvana - мощный аудиофильский плеер с широчай
 magnet:?xt=urn:btih:A7C563DC9675EA2374DC1007A7BD1784D26C57F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:A7C563DC9675EA2374DC1007A7BD1784D26C57F1
 ```bash
 magnet:?xt=urn:btih:092D05D890CE1B8FE271C7B030793C86778C9A21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Jean Michel Jarre - Oxymoreworks (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ele
 magnet:?xt=urn:btih:0C3538DF15A47E89772A927DC89FAF4C09759980
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:EC28BEF0149343B53288FF5C5DD81A5790E4DD41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ Simon Franglen - Аватар: Путь воды / Avatar: The Way of Water (202
 magnet:?xt=urn:btih:104BFB51007CA1B9946ED1846256EBA1950DC93C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:104BFB51007CA1B9946ED1846256EBA1950DC93C
 ```bash
 magnet:?xt=urn:btih:097B11F33F17125B234423BB708000EDACC3082A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Aiseesoft FoneLab for Android — это популярный инструмен
 magnet:?xt=urn:btih:F5AA810AA13CB209E5EC4B8AD13DC993F406A42B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:F5AA810AA13CB209E5EC4B8AD13DC993F406A42B
 ```bash
 magnet:?xt=urn:btih:D87DE77D9DFED80E4663470123075EF1A454369F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ Dire Straits - Live 1978 - 1992 (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ro
 magnet:?xt=urn:btih:84E8804374FD5C9144C00F2257B0296659E39F80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Opera 73.0.3856.284 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:696C687D1AE2047426483BA31CADFF2ED9813E5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ Pixelmator Pro — это невероятно мощный, красивый и
 magnet:?xt=urn:btih:39A3FA03310053DCE7ABBF7E8884D5A4D5D49B05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:39A3FA03310053DCE7ABBF7E8884D5A4D5D49B05
 ```bash
 magnet:?xt=urn:btih:97AADCF38F31D7A21D5B49DCFB80719661230339
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ VA - Golden Lounge (2021) [AAC|~293 Kbps] <Lounge, Chill Out>
 magnet:?xt=urn:btih:5680C3A0FC73FF3122B684A1A979F3367012485F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ magnet:?xt=urn:btih:5680C3A0FC73FF3122B684A1A979F3367012485F
 ```bash
 magnet:?xt=urn:btih:E347A303DD0A30F63FFDF43797B5846D49F433EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

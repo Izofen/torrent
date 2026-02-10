@@ -1,3 +1,32 @@
+###  Публикация: 1041016   (584560) от 07.08.2016
+
+VA - Летний Заряд Хорошего Настроения (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тамара Викберг - Надежда На Любовь
+02. Мила Нитич - Верни Мою Любовь
+03. Сардор Милано - В Небо
+04. Кристалл - Летим Вдвоем(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62BC9D8054EB685C16E873022E0EDC7D268C5CD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552896   (584697) от 23.05.2022
 
 VA - Record Super Chart 21.05.2022 [MP3|320 Kbps] <Pop, Dance>
@@ -21,6 +50,8 @@ VA - Record Super Chart 21.05.2022 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:711BD14CBEAD3D7E9F29F0A22464EB6F460E584F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - National Pop Dance Music Vol.36 (2022) [MP3|320 Kbps] <Pop, Dance, Folk>
 magnet:?xt=urn:btih:C3F5DBA383AA3371C7605B31205ED2171F630206
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +109,8 @@ VA - Шальное лето (2015) [MP3|160-256 кб/с]<Pop>
 magnet:?xt=urn:btih:1108827B79734BC53714977CA65F9684D704DA94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +134,8 @@ VA - Самые популярные песни лета (2011) [MP3|256 kbps]<P
 ```bash
 magnet:?xt=urn:btih:CC7E554DE159DF2634B110AA7B374B22382B844E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +167,8 @@ Hits of My Soul - сборник электронной и инструмент�
 magnet:?xt=urn:btih:B765A0A4A2BFD99C22553398EC82B65DC428AD8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +192,8 @@ VA - The Blues Has Got Me Vol.10  (2011) [MP3|320 kbps]<Blues / Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:37C5A87320B9DC4BAE743089D1CC880F27972E9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +221,8 @@ Adriano Celentano - 25 Best Songs (2016) [MP3|~245 Kbps (V0)] <Pop>
 ```bash
 magnet:?xt=urn:btih:6273CB183DDAB4B69BA4BDFB959AEB61E0D117BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +257,8 @@ VA - Amnezia Super Hits 60 (02.07.2011) [MP3|320 kbps]<Dance, Euro Dance>
 magnet:?xt=urn:btih:EF4A7E1524A4F097C8446BE45C2DC07BB8EBD2C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +285,8 @@ VA - Smooth Jazz for Deep Relaxation: Background Music for Lounge Mood (2016) [M
 ```bash
 magnet:?xt=urn:btih:FB347DAA91CE2A79486AE512AEEC3443E76AE874
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +315,8 @@ VA - Новая Жажда Скорости Без Тормозов vol.4 (2016)
 magnet:?xt=urn:btih:13FEC4C074AFB730C67710BA70900D756FABE74C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +343,8 @@ VA - Nu Disco Vol.5 [Compiled by Zebyte] (2016) [MP3|320 Kbps] <Nu Disco>
 ```bash
 magnet:?xt=urn:btih:4FD8345ECBA1A98834228F909389F75EEEA45E71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +373,8 @@ VA - 50 Summer Hits Across Workout (2016) [MP3|320 Kbps] <House, Progressive, Cl
 magnet:?xt=urn:btih:79F9100D9F32C73F4EA8CAC3C898829B81958BF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +401,8 @@ VA - Best Time to Chill (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:0126921B9A412268DCA46B6FA896EBBC4AAA0890
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +431,8 @@ VA - Starts Games 125 Splash (2016) [MP3|241-320 Kbps] <House, UK Garage, Future
 magnet:?xt=urn:btih:9E7900EDE4BB5CCE64C9B6FD07F0101C8153F243
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +457,8 @@ VA - Горячие Клубные Треки Русских Ди-Джеев Ч�
 magnet:?xt=urn:btih:8AEA3EF0A59B9E7AD6C2CE69DABAEED44218FE1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +482,8 @@ VA - Hot Ibiza Dance (2011) [MP3|256 kbps]<Club / Dance>
 ```bash
 magnet:?xt=urn:btih:7478D24335281A57BD420334184A4D9B3D50C4D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +512,8 @@ VA - За рулем. Зарубежный (2015) [MP3|256-320 кб/с]<Pop>
 magnet:?xt=urn:btih:1EE1F2C9EA7C123C9037D4416CDEA199528B7EF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +537,8 @@ VA - Gold Retro Hits 80-90-X (2011) [MP3|256 kbps]<Pop / Disco>
 ```bash
 magnet:?xt=urn:btih:CB31E4869A7947F3637E9BC1FE52CC5E73F2D1C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +567,8 @@ VA - Idol Classic Rock (2015) [MP3|256 кб/с]<Classic Rock>
 magnet:?xt=urn:btih:5839309616C3AB1A17D3337C72391D34EA7B025A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +592,8 @@ VA - Русский Хип-Хоп 80-90х (2011) [MP3|224 kbps]<Рэп / Хип-
 ```bash
 magnet:?xt=urn:btih:2537EE041732ADE808159402E49D4D9F882E6D8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +620,8 @@ VA - Dreams of a shaman 3 (2015) [MP3|320 кб/с]<Native American, World, Ethni
 ```bash
 magnet:?xt=urn:btih:CBEA5E3D7B5EBEE8894C572769E4F5E0C90FFCB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +650,8 @@ VA - Summer Top House Music (2015) [MP3|320 кб/с]<Dance, Club, House>
 magnet:?xt=urn:btih:F01E8E367E10644F47AAB0013BA16D19115399CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +675,8 @@ VA - Пиратская Станция Exclusive (2011) [MP3|256-320 kbps]<Pop, 
 ```bash
 magnet:?xt=urn:btih:CD31440E6526479A01419718ECBD944AAF59B402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +705,8 @@ Gary Glitter - Greatest Hits (2019) 2CD [MP3|320 Kbps] <Glam Rock, Rock>
 magnet:?xt=urn:btih:38F8C17D76A081B5C3A0C77ECA7BB9D3E5DB82CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,29 +731,7 @@ VA - Дискотека: Летний отрыв Русский №100 (2011) [M
 magnet:?xt=urn:btih:0DB56A23F93798E49B8BA9C28459E977BE846440
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357916   (586286) от 02.07.2011
-
-VA - Новинки Года 6 (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4D76A4DE92DAD9AC6640EDA9EBF8EAA50AF2339
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

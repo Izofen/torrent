@@ -21,6 +21,8 @@ OBS Студия - бесплатное программное обеспече�
 magnet:?xt=urn:btih:E55E5D34CCC1863A5AA650B88577A2A7276A3CEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ BBC: Помпеи: Новые раскопки / Pompeii: The New Dig (2024) WEB
 magnet:?xt=urn:btih:D48586F9357235DDD566FF0841295673130CD9F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:B36B7C02D5580A21D9C725C3F86412BF126271F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:B36B7C02D5580A21D9C725C3F86412BF126271F6
 magnet:?xt=urn:btih:790D4E501572ABF50BADE9DD44284A160DABD3AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Udemy, Eyevenear | An Ultimate Premiere Masterclass: Beginner to Pro Editing (20
 ```bash
 magnet:?xt=urn:btih:0E18B253ECA697868AD04F17EAD5D5D0D51E44EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:0E18B253ECA697868AD04F17EAD5D5D0D51E44EC
 magnet:?xt=urn:btih:9F85C94A05AA44EE88A6F3472F93594190B0E869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Driver Easy Professional — профессиональная и в тоже в�
 ```bash
 magnet:?xt=urn:btih:772275DFAEFD877136DB13B338C24C9FDFABE3E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Balun.Courses, Владимир Балун | Concurrency в GO (2025) WEB-DL
 magnet:?xt=urn:btih:14A84FE07F70123C8D7633D4FE5639E23A19017A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:14A84FE07F70123C8D7633D4FE5639E23A19017A
 ```bash
 magnet:?xt=urn:btih:62F06B83DCF3E6DB71C1491433CB05599253562E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Windows 11 - это серия операционных систем, разра
 magnet:?xt=urn:btih:94B46D63A0F7267FC44FBCA1D3BE681E948AD9A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:570B2EACDF60261A1DE83DBF935D0EBAB0577E5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ MAGIX Vegas PRO — профессиональная программа для �
 magnet:?xt=urn:btih:5343ECBFD25896F71B2618619FBDD8FCCFAACC53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:5343ECBFD25896F71B2618619FBDD8FCCFAACC53
 ```bash
 magnet:?xt=urn:btih:4EC0BDE627C4D4B7D2D61710B3CAE8BD33FB750A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:4EC0BDE627C4D4B7D2D61710B3CAE8BD33FB750A
 magnet:?xt=urn:btih:862B417898C37766BD99F044B74BD3FA342A3D90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:862B417898C37766BD99F044B74BD3FA342A3D90
 ```bash
 magnet:?xt=urn:btih:6C287AC3D6A15A669A3CA343213271CEF81A8362
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:6C287AC3D6A15A669A3CA343213271CEF81A8362
 magnet:?xt=urn:btih:FC78F4E2B3BCE9A5A8FA971BA6A71CFB2031AFFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:FC78F4E2B3BCE9A5A8FA971BA6A71CFB2031AFFD
 ```bash
 magnet:?xt=urn:btih:B48BCF67A54005EA59FF617ED6ECFF90CEA507A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:B48BCF67A54005EA59FF617ED6ECFF90CEA507A7
 magnet:?xt=urn:btih:A5B10FBB1C0DA88A3149F49B02BF185EA4C15AFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:A5B10FBB1C0DA88A3149F49B02BF185EA4C15AFD
 ```bash
 magnet:?xt=urn:btih:5913DE9AAEA6BA547F727CD841FB859D5A0E21AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:5913DE9AAEA6BA547F727CD841FB859D5A0E21AC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:5913DE9AAEA6BA547F727CD841FB859D5A0E21AC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:5913DE9AAEA6BA547F727CD841FB859D5A0E21AC
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.03) License GOG
 magnet:?xt=urn:btih:D6BDF7FAF923A7C125FEA6070B90E19F4617C847
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:D6BDF7FAF923A7C125FEA6070B90E19F4617C847
 ```bash
 magnet:?xt=urn:btih:7CCE6B213D0AB572DDA45B21F82DC58BD37DC3EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:7CCE6B213D0AB572DDA45B21F82DC58BD37DC3EA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:7CCE6B213D0AB572DDA45B21F82DC58BD37DC3EA
 ```bash
 magnet:?xt=urn:btih:8DBC92FD6C9D88094848DB5731D23EF87FE5AF47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

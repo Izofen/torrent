@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1DF602955F01F3560DA9A6B54DBE907D9F2DE03E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:1DF602955F01F3560DA9A6B54DBE907D9F2DE03E
 ```bash
 magnet:?xt=urn:btih:97F9F6E5752D557FAA10270C77A395F1E6AB8CDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:97F9F6E5752D557FAA10270C77A395F1E6AB8CDA
 magnet:?xt=urn:btih:DD102A0C058C690EC42E84CB8548F7AFE250C026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:DD102A0C058C690EC42E84CB8548F7AFE250C026
 ```bash
 magnet:?xt=urn:btih:35F83DDF078CCAAB6B9332B5721889714C866677
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ It Takes Two (2021) [Ru/Multi] (1.0.0.4) Repack dixen18
 magnet:?xt=urn:btih:4B0F575E5FBA59C0BCF4226A1DB2E4AA92CEDEAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:4B0F575E5FBA59C0BCF4226A1DB2E4AA92CEDEAD
 ```bash
 magnet:?xt=urn:btih:8C854E4FFB4966BCF58CF6B852D6A70C16D284AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:8C854E4FFB4966BCF58CF6B852D6A70C16D284AA
 magnet:?xt=urn:btih:EFE13BD185EB8F33D09D09B85A73ABEBDFCB97CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:EFE13BD185EB8F33D09D09B85A73ABEBDFCB97CD
 ```bash
 magnet:?xt=urn:btih:38B25A4A16F051A0BDD5DBFE313388B92F9B6E41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:38B25A4A16F051A0BDD5DBFE313388B92F9B6E41
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:38B25A4A16F051A0BDD5DBFE313388B92F9B6E41
 ```bash
 magnet:?xt=urn:btih:3CC291E48A476543CB0DDE51E191DA25DB4CF6EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Darkside Detective (2017) [Multi] (2.127.4.167d) License GOG
 magnet:?xt=urn:btih:6C690D20A8DA12E69B615F6AFAD22AEA5228FEA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:6C690D20A8DA12E69B615F6AFAD22AEA5228FEA5
 ```bash
 magnet:?xt=urn:btih:0B7FBEDC0E8BA39D2C8B60ACADC68F2AF102273F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Fabledom - это волшебный градостроительный симу
 magnet:?xt=urn:btih:F9C0FF8F133A91B08DB64C1F3255D3DA1DDD5F10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:F9C0FF8F133A91B08DB64C1F3255D3DA1DDD5F10
 ```bash
 magnet:?xt=urn:btih:F64B368F249202B08283177DE10D600B8B03F1D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Stray (2022) [Ru/Multi] (1.5#368) Repack dixen18
 magnet:?xt=urn:btih:678B009A600D40348A895CCEA75C149ED40E7118
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:678B009A600D40348A895CCEA75C149ED40E7118
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:678B009A600D40348A895CCEA75C149ED40E7118
 magnet:?xt=urn:btih:08271349ED20AE0720C019434F2A9CFC0AD60A17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Snappy Driver Installer Origin (SDI Origin) - главная ветвь порт
 ```bash
 magnet:?xt=urn:btih:633B44C839BC3514A8F6AE832C434C788F20DB8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Dead Space 3 (2013) [Ru/En] (1.0.0.1/dlc) Repack FitGirl [Limited Edition]
 magnet:?xt=urn:btih:C42EDB14F8B5E309ABD7D1B8E7242599E962C189
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ magnet:?xt=urn:btih:C42EDB14F8B5E309ABD7D1B8E7242599E962C189
 ```bash
 magnet:?xt=urn:btih:685026663AD9FBC4A98B7180CB11763EAB06832B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Fabledom - это волшебный градостроительный симу
 magnet:?xt=urn:btih:36CD0882E9BD1627D44F3D32061FC5BEF92E7A5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ EF Commander  — замечательный двухпанельный файл
 ```bash
 magnet:?xt=urn:btih:9B4C79622E8109CE4FB2E69B111446FC05E16001
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ magnet:?xt=urn:btih:9B4C79622E8109CE4FB2E69B111446FC05E16001
 magnet:?xt=urn:btih:C013475877C05D378F95C6D9CBA82764873CDB1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ magnet:?xt=urn:btih:C013475877C05D378F95C6D9CBA82764873CDB1A
 ```bash
 magnet:?xt=urn:btih:4B4ED954FA1D887D553BADFBBF357ED1419C85F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ magnet:?xt=urn:btih:4B4ED954FA1D887D553BADFBBF357ED1419C85F6
 magnet:?xt=urn:btih:D317F98AD255E8090AB0823AFA61D3FCC22824B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Cursed Fables 5: A Gilded Rose (2024) [En] (1.0) Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:1ADA5DA3002552594B28F1F8AE435742F6A14EA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

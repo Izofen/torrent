@@ -19,6 +19,8 @@ World to the West (2017) [Multi] (1.0.1) License CODEX
 magnet:?xt=urn:btih:E187FB7CFC7E3928CF6AA8D1EF87387EF14B452C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Swords of Ditto — незамысловатая игра в жанре Action R
 ```bash
 magnet:?xt=urn:btih:DF11896F2F320CDD89A356455AD7F25A31CA7216
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Moccasin (2017) [Ru/En] (1.0) Repack R.G. Механики
 magnet:?xt=urn:btih:ADF5C5F190DE17DA7000F1DA563AA29AF366BE26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Gift / Подарочек (2000) [Ru] (1.0) License
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ War Truck Simulator (2016) [Ru/Multi] (1.20) License PLAZA
 magnet:?xt=urn:btih:CCBEA08160B5FD9288BDCAA52BA230C219822365
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Deathtrap является смесью жанров tower defence и экшен
 ```bash
 magnet:?xt=urn:btih:4D918BDFBD00347B6EA44641E002FFFD717F351A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Bud Spencer & Terence Hill - Slaps And Beans (2018) [Ru/Multi] (0.96) License PL
 magnet:?xt=urn:btih:3DFF3D6346A327EF9FDE505FF8B2F19AAEEAE531
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Steampunk Tower 2 - уникальная экшн-стратегия в альт
 ```bash
 magnet:?xt=urn:btih:EC389815741F85ACB1D44E45A7B754CAA31F8DF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Roguelands (2015) [En] (1.0) Repack Other s
 magnet:?xt=urn:btih:C9789972E1A9AB46640DE34323AD08C0CB16F5D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Ruin of the Reckless (2017) [En/Fr] (1.0.1b) License GOG [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:4EC56BD5D94A6D1395B12F7F1023A5B230057D2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Trials of the Blood Dragon (2016) [Ru/Multi] (1.0) License SKIDROW
 magnet:?xt=urn:btih:D69417F67204C0F175EE8643A549C02CF2E1337B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ The King of Fighters превратилась в популярную (особ�
 magnet:?xt=urn:btih:5885AAA4F38F9478C36BE6A9E9E31356C4B9BF8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ Ori and the Blind Forest: Definitive Edition (2016) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:96C17054306ACF5D8B17D721DC6D418C298504D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Impact Winter (2017) [Ru/Multi] (3.2) Repack Other s
 magnet:?xt=urn:btih:647DC680431594C104359DFABA4157896F212181
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ LEGO Marvel's Avengers / LEGO Marvel Мстители (2016) [Ru/Multi] (1.0.0.2
 ```bash
 magnet:?xt=urn:btih:E3BA7267944B693A35CDF55DFB4F2ED0EE962954
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Monster Slayers – это карточный RPG рогалик, в котор�
 magnet:?xt=urn:btih:C9D0DC06E4B34B368A3E13CC6D6D2E2D50B50B58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ Farm Together — от создателей Avatar Farm. Начните с ну�
 ```bash
 magnet:?xt=urn:btih:5E3579194AFEC70FBE4881D67D8EA9D334214550
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ Farm Together — от создателей Avatar Farm. Начните с ну�
 magnet:?xt=urn:btih:2ABF48E114E57521E2F58D24097D0CA206396F8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Macrotis: A Mother's Journey (2019) [Ru/Multi] (1.0.2) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:227FD6F24D48A7383FE366EF273FD457C0FC258D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Distrust (2017) [Ru/Multi] (1.1.4/Upd4) Repack Other s [Cruise Edition]
 magnet:?xt=urn:btih:D16F3D497F036C4B074C9BB782935FF0FABD6696
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Gold Rush! 2 (2017) [En/De] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:346EA6FBD62FAA15CAE42E870EA2472620F617DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ Fimbul — это динамичные бои в викингском антур
 magnet:?xt=urn:btih:DC9E67225524260E11CAB69829F2F66E10F5322F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ HeartZ: Co-Hope Puzzles - увлекательный экшен-платформ
 ```bash
 magnet:?xt=urn:btih:4C1715CEEE2003A4A2F6468AE15398E0B69AF7D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ Guns, Gore and Cannoli Dilogy (2015-2018) [Ru/Multi] (1.2.21/1.0.8) Repack R.G. 
 magnet:?xt=urn:btih:022512AFA6874A3E29EB4B38C8B4323AD49E5EAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ TurnOn (2016) [Ru/Multi] (1.0.0.7) Repack Other s
 magnet:?xt=urn:btih:AB53BCB33CAE556C035798D21590305A9515F32A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Adele: Following the Signs (2016) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:780A79403B51D3BFA52FB97C25B65C1FFFFEC984
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ World of Horror - это ролевой хоррор, нарисованный �
 magnet:?xt=urn:btih:F5003880A403000BEB4C0E8714FC6737879F0D35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Trials Rising — продолжение популярной мотоаркад
 ```bash
 magnet:?xt=urn:btih:C8F492BA1851B493E569E1CDEF570F34159D81EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ SPINDLE — это классический приключенческий бо�
 magnet:?xt=urn:btih:DE7759C66696F5B2166DD89495E2B8BA094E0A22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Croc: Legend of the Gobbos (2025) [Multi] (1.04) Repack Necros
 ```bash
 magnet:?xt=urn:btih:B82B739A5AE0FF458D4BFDBD1749A1D98C89245C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Bye Sweet Carole - это уникальная хоррор-игра, сочет
 magnet:?xt=urn:btih:578E4826F574196CA6E59D6A2219235ACB84CAF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Borderlands 2 (2012) [Ru/En] (Build 9218157/dlc) Repack Wanterlude [Game of the 
 ```bash
 magnet:?xt=urn:btih:38613B5884CA6DCBE237A71289130D6586BB4C52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Chimeras 14: The Lost Film / Химеры 14: Потерянный фильм (2
 magnet:?xt=urn:btih:C6D70C8A2C76B46B060A34C5926D5240D3A2429E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Anna’s Quest - это чудесная игра с нарисованной о
 ```bash
 magnet:?xt=urn:btih:5139D33A798859CDC47B3E4AD15DDAEB2F1E9715
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Space Engineers - это фантастическая песочница, где
 magnet:?xt=urn:btih:EECB8AF7406302F8743D0969698BCE24D840E51A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Kimagure Temptation (2021) [Multi] (1.0.5.0/dlc) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:12E0108B3C3C4D3436F2A4E7F67C95A1E9E521EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Prison Tycoon: Under New Management – симулятор, в котором п
 magnet:?xt=urn:btih:A1A7DB2D51658DE5B38643C248064C2EE04932C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Startup Panic (2022) [Ru/Multi] (3.15) License GOG
 ```bash
 magnet:?xt=urn:btih:8E3F669BA6DD266F20080234FF9164C5FA556902
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Against the Storm - это игра c элементами roguelite и стро
 magnet:?xt=urn:btih:39FAB2B42315A1D3FD89D6B4B4F469797492232F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Detectives United 5: Deadly Debt (2022) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:F4CB50D786DE0CBE21047B48F8D3208F387FBD21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Destroyer: The U-Boat hunter - это уникальный кроссжанро�
 magnet:?xt=urn:btih:85116970A7C1141E9796EEF4BD1246EC9F80658C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Blackwind - это фантастический экшен с видом све�
 ```bash
 magnet:?xt=urn:btih:42D9646900CCE7656C53F7663B213AE47C676606
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:42D9646900CCE7656C53F7663B213AE47C676606
 magnet:?xt=urn:btih:A3F8A05F8A909D616FABBCB96CBD0C72045DE5FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Gardenscapes: Mansion Makeover. Collector's Edition / Дивный сад 2. А�
 ```bash
 magnet:?xt=urn:btih:204F102C7966347EE761EB0E2C8721051C04CFFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Urtuk: The Desolation (2021) [Ru/Multi] (1.0.091b) License GOG
 magnet:?xt=urn:btih:399122B0C1256BD51A9806EE62133EC77489417E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Tetris Effect: Connected - классический тетрис, вводящи
 ```bash
 magnet:?xt=urn:btih:5E1C27368D9CF8631226E03AD507533D9CE6C56F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Three Minutes To Eight - это интригующая двухмерная ад
 magnet:?xt=urn:btih:D57B508E4043AAF8F81F7D3C147C1201E28EC1D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:3012942D184CC5E2FF5A743A487C6F9BA5B9FCB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Blanc - это атмосферная и трогательная адвенчу
 magnet:?xt=urn:btih:2498982078F6FD89366A1C8271E3CE2CC83B5D59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ SGS Battle For: Madrid погружает в исторический конте
 ```bash
 magnet:?xt=urn:btih:789E0C1C6DB850EEB7A47387DA308E1E412D7EBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Blasphemous II (2) (2023) [Ru/Multi] (1.1.0-cs44446) Repack dixen18
 magnet:?xt=urn:btih:205A4EC4153EAFC68FEF14ED90AD8832EBE74745
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ SGS We The People - это полная самостоятельная игра,
 ```bash
 magnet:?xt=urn:btih:CC0653BD8CE48757F05E43D377FCF54A899B3030
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

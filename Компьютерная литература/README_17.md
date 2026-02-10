@@ -19,6 +19,8 @@ Expressif Systems | ESP32-C3: Беспроводное приключение: �
 magnet:?xt=urn:btih:5747B52018A5866060E205A8AE8C178D46D28930
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:5747B52018A5866060E205A8AE8C178D46D28930
 ```bash
 magnet:?xt=urn:btih:78BE290F87AC501417391F37EDB648A0DCB681C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:78BE290F87AC501417391F37EDB648A0DCB681C4
 magnet:?xt=urn:btih:92F8157093146CB6513956BD5D78DBEFE8926DA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:92F8157093146CB6513956BD5D78DBEFE8926DA6
 ```bash
 magnet:?xt=urn:btih:396F6348EFC91F5ACC6DE6DCED705F4A4F9F047D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ David Both | Using and Administering Linux: Volume 3, 2nd Edition (2023) [PDF][E
 magnet:?xt=urn:btih:BBEFF8CB65702908BB0506661E8D01FAA6283FDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Andres Colubri | Processing for Android, 2nd Edition (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:53425F49BCB6E828ED4745C43463AEFCC139AC3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:53425F49BCB6E828ED4745C43463AEFCC139AC3A
 magnet:?xt=urn:btih:DAB583B8C8F2CA697BE2F07D8D6A078351CC0AB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:DAB583B8C8F2CA697BE2F07D8D6A078351CC0AB8
 ```bash
 magnet:?xt=urn:btih:A064F7BFBBDF7DF0C1E0FC455FCCC51DE4647A12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:A064F7BFBBDF7DF0C1E0FC455FCCC51DE4647A12
 magnet:?xt=urn:btih:52BE729D285311BA35EC7F3B7EA6EDF5D6B89F7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:52BE729D285311BA35EC7F3B7EA6EDF5D6B89F7E
 ```bash
 magnet:?xt=urn:btih:9410C2E9B4AFB73B672DCE1DCCB0BA23F3A0C32F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:9410C2E9B4AFB73B672DCE1DCCB0BA23F3A0C32F
 magnet:?xt=urn:btih:463BF19CA9BD741A877C04742C53ABE4C1BE3762
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:463BF19CA9BD741A877C04742C53ABE4C1BE3762
 ```bash
 magnet:?xt=urn:btih:C088342D50007CAA42E76524A5BB7F7CDC467FAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:C088342D50007CAA42E76524A5BB7F7CDC467FAC
 magnet:?xt=urn:btih:01E244AA3E7BA4F6738C06017AA0E675B432621F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Steven F. Lott | Python Real-World Projects (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:39B2677B4F54FDC0AE4AF846E18709844695AF4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:39B2677B4F54FDC0AE4AF846E18709844695AF4E
 magnet:?xt=urn:btih:7D8E3B3B90A26F94821DA9A873ACF3A706763747
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ The KiCad Team | Мануал для ПО "KiCad" [10 книг] (10.2021) [PDF, 
 ```bash
 magnet:?xt=urn:btih:0BE9C2FFB229879129DF19543F3EA66F98B1D5CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Thomas Valentine | Database-Driven Web Development, 2nd Edition (2023) [PDF][EN]
 magnet:?xt=urn:btih:147946F1A48C3F2E73C0A957006E7B4FBF52A1F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ magnet:?xt=urn:btih:147946F1A48C3F2E73C0A957006E7B4FBF52A1F3
 ```bash
 magnet:?xt=urn:btih:6A931A9C3F2BFE203A5902488C648E8A722E363B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:6A931A9C3F2BFE203A5902488C648E8A722E363B
 magnet:?xt=urn:btih:86748D0B28BC10E0B4C3FC6E6E5BAEBF08B7BC7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ magnet:?xt=urn:btih:86748D0B28BC10E0B4C3FC6E6E5BAEBF08B7BC7F
 ```bash
 magnet:?xt=urn:btih:3E1F581FAAEEB56FA5FD67345A91A56E608687FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:3E1F581FAAEEB56FA5FD67345A91A56E608687FC
 magnet:?xt=urn:btih:917D2AA1B8385CD3CFAEC585941D40871C1C0A83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:917D2AA1B8385CD3CFAEC585941D40871C1C0A83
 ```bash
 magnet:?xt=urn:btih:4B89CF69E6ED74BE43C36013132CCBDC878EE492
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:4B89CF69E6ED74BE43C36013132CCBDC878EE492
 magnet:?xt=urn:btih:438B6B53B38DADC2F9BB649C7F232E9A6C257CEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:438B6B53B38DADC2F9BB649C7F232E9A6C257CEA
 ```bash
 magnet:?xt=urn:btih:4F4C33E51E1FABECF61B3D7A756E36E9777A9519
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ Selenium WebDriver is a popular browser automation framework. Testers or develop
 magnet:?xt=urn:btih:2B30ED60890E73CD7628CABF39347E736A4E4A43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Nabendu Biswas | TypeScript Basics (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:A83D67E32BCF0AFC8A13B081E9E4BBDE3D448C2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

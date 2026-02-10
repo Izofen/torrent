@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:773E7EF1B8541C7B87DB387ED8C858715CEBD08C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:773E7EF1B8541C7B87DB387ED8C858715CEBD08C
 ```bash
 magnet:?xt=urn:btih:6D82FBD96EA161B04CC50DF560DA88943D95DFA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:6D82FBD96EA161B04CC50DF560DA88943D95DFA5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:6D82FBD96EA161B04CC50DF560DA88943D95DFA5
 ```bash
 magnet:?xt=urn:btih:793762F403D167E81F2683180B02AAA0BFFD38FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:793762F403D167E81F2683180B02AAA0BFFD38FF
 magnet:?xt=urn:btih:3F30FB92FB5D1CAA1149B56DCD7880A46092F7A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:3F30FB92FB5D1CAA1149B56DCD7880A46092F7A3
 magnet:?xt=urn:btih:A255B1E3F47ACFEC5243B69077E1F024DE8ACF64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:A255B1E3F47ACFEC5243B69077E1F024DE8ACF64
 ```bash
 magnet:?xt=urn:btih:39098949B6E5435FCB1D87B5DF87AD0C85989380
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:39098949B6E5435FCB1D87B5DF87AD0C85989380
 magnet:?xt=urn:btih:AB2BE92095BAD91FC1425B510D61C3E6C5D12E10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:AB2BE92095BAD91FC1425B510D61C3E6C5D12E10
 ```bash
 magnet:?xt=urn:btih:A757C54DF09D11A0C922DE9B217D747C9D16E3A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

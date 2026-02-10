@@ -20,6 +20,8 @@ Heroes of Might and Magic V: Gold Edition / Heroes of Might and Magic V: Зол�
 magnet:?xt=urn:btih:1BC3A1FF7F0A9BC31CD1395065F7E5B93AFB45B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Civilization 2 Test of Time (Rip) [Ru] 1999 | Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Civilization 2 Test of Time (Rip) [Ru] 1999 | Pilotus
 magnet:?xt=urn:btih:391EA63330495231E31146A65EA7470FCF60DA20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Xbox LIVE Arcade хит "Toy Soldiers" приходит на PC!
 magnet:?xt=urn:btih:C270C45761171B3A07BAE5EEE8BC0B89FF07C639
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ A.R.S.E.N.A.L Taste the Power - очень интересная стратеги
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Stronghold Crusader (Rip) [Ru] 2003 | maestro1997
 magnet:?xt=urn:btih:02EE0A8E10D25152D6D2E1C60BC9C6176218ACA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Gord (2023) [Ru/Multi] (1.5.0.42146/dlc) Repack Other s [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:BBD9235A1D03B30FB36DA2A12E87105EBD8B69D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Alexander (2004) [Ru] (1.60) Repack Decepticon
 magnet:?xt=urn:btih:301924C8EE433488F71405BE1238DFB8D7B306CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Hearts of Iron III позволит вам сыграть в стратегию 
 ```bash
 magnet:?xt=urn:btih:DF0973350B6802221C2EB19114E70AF3C72C8C08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Cossacks: Back to War / Казаки. Снова война (2002) [Ru/En] (1.35
 magnet:?xt=urn:btih:64AF894D82575FC015E3061219401B4A0F787C28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Panzer General 3 - третья глава популярной серии ст�
 ```bash
 magnet:?xt=urn:btih:F1A851BA54465D8AFE2ACB730CA96359C991934E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Perimeter 2: New Earth / Периметр 2: Новая Земля (2008) [Ru] (
 magnet:?xt=urn:btih:3D2E3DE584DB12188D05A339F3074A56A14A4FE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ WARNO (2024) [Ru/Multi] (169014/dlc) Repack Other s [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:3A4ABEC777A1395030D0188FE995E8E9C7A76AE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ The Lord of the Rings: The Battle for Middle-earth (2004) [Ru/En] (1.03) Repack 
 magnet:?xt=urn:btih:7C62A68528E95BC189702F5D8DDA36EAE05C0902
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Heroes of Might and Magic III: Complete (1999) [Ru/En] (4.0/dlc) Repack Deceptic
 ```bash
 magnet:?xt=urn:btih:780B4214A54F1CBB711F3DAEF5BB7D9BBA3058C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Company of Heroes 3 (2023) [Ru/Multi] (1.4.2.21612/dlc) Repack Decepticon
 magnet:?xt=urn:btih:5108731E191F032AE934140BC9284D98BB53BCA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Combat Mission: Beyond Overlord / Линия фронта. Нормандия (2
 ```bash
 magnet:?xt=urn:btih:4FB52E6CED79FF14F6D8C956C0DEF968EF4BAA72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Star Trek: Starfleet Command III (2002) [Ru/En] (1.00) Unofficial
 magnet:?xt=urn:btih:CE2BF77E265CCA5AE69F022BA7257D303C58482F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ SGS Taipings - военный и политический симулятор, к
 ```bash
 magnet:?xt=urn:btih:275FE7ABECC2AEC58B453627D4BF86D48B6CB12D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Demigod / Demigod. Битвы богов [Ru/En] (RePack/1.30.154) 2009 | R.G. �
 magnet:?xt=urn:btih:06A844F104E7EA73058D13D35435A0B828640D0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ STAR WARS Empire at War - Gold Pack – сборник стратегий в р�
 ```bash
 magnet:?xt=urn:btih:116EAE12C56669A6CE23099F643DD9C7D00DEE44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ Nexus: The Jupiter Incident - это культовая научно-фанта�
 magnet:?xt=urn:btih:D8DCBAD0D92115A390FA9297A46751577CEFCE9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Total War: THREE KINGDOMS - эта игра из популярнейшей ст
 ```bash
 magnet:?xt=urn:btih:113EC2D076954D421B9015BF544F2FC91A290187
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ Champions of Anteria – тактическая стратегия, расска
 magnet:?xt=urn:btih:53D586173FBEA11E63342F8F4B06A86C2AD9BE7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Wargame: Red Dragon – первый выпуск популярной сери�
 magnet:?xt=urn:btih:4E8977137DA5B053F8AD78D2AF4B626D295F712F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Champions of Anteria – тактическая стратегия, расска
 ```bash
 magnet:?xt=urn:btih:80D4C6AB4DE8780AEA8A231F44107C09AC0F144B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

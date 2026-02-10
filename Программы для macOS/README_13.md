@@ -21,6 +21,8 @@ ProPresenter — это удобный многоцелевой инструме
 magnet:?xt=urn:btih:171B53715987B45B336EAE0A9BF38CE42A4CD311
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Ulysses разработан преимущественно для писате�
 magnet:?xt=urn:btih:3FF2E86EBE5F862927979090A8C5B50554EFD78D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ DRmare Tidal Music Converter — это универсальный загруз�
 ```bash
 magnet:?xt=urn:btih:AABB1E618AD8AD96521D83DEAFE9C3DE5D242BEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Aiseesoft FoneEraser — самая мощная утилита для пост�
 magnet:?xt=urn:btih:701E3082C0ECF7BD422DEE8555E36006C574EE1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ OmniZip - Universal Extractor Pro for Mac 2.1.6 [En]
 ```bash
 magnet:?xt=urn:btih:27193A857203F42377580EB6F3272DFAA5C3A59E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ TinkerTool System - утилита для управления скрытыми 
 magnet:?xt=urn:btih:3325496CE73B744D23D9CB6E8514F8DCCF2700D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Iridient Developer - мощное приложение для обработки
 magnet:?xt=urn:btih:EA34F8A3A7FF9F35152EE4102B8926D13EAE87B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Master of Typing создан для тех, кто хочет научитьс�
 ```bash
 magnet:?xt=urn:btih:B984B66F62EABE5970A396A921EF1390E6C5F966
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ AnyTrans, не в пример iTunes, прост и интуитивен. Ка�
 magnet:?xt=urn:btih:CACDEFA336A16FE7A0B708411FBE4852EFB7DEC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Acorn (   Читать дальше...   )Тип издания: macOS Software
 ```bash
 magnet:?xt=urn:btih:F0CEAEB7D81D17FA0C50BE39595D9AAF85CD901C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Final Draft — профессиональное программное обес
 magnet:?xt=urn:btih:68A07EB5D3371E0EF61C3D202720BAA31EFD9514
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Aiseesoft AnyCoord for Mac 1.0.36 [Multi]
 ```bash
 magnet:?xt=urn:btih:62BAF644960FD08E38A4044F5BFA594E787B1C79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ DirEqual - это инструмент сравнения папок, котор
 magnet:?xt=urn:btih:2C2167DFDA85F17E74E7551A9952EE2316F4CD5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Texifier — это редактор LaTeX, предназначенный дл�
 ```bash
 magnet:?xt=urn:btih:F07E993692CD7FA50D4453EC92B01784B0F96EE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ PhotoSweeper — отличный способ поиска дубликатов
 magnet:?xt=urn:btih:67A505157F19A17AB5EA8E9F19845A6A54E652D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Path Finder - один из лучших файловых менеджеров, 
 ```bash
 magnet:?xt=urn:btih:036E8DA706A4D8CA246BB46BEC47C6B5DD2ED534
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ Music Tag Editor - редактор музыкальных тегов помож
 magnet:?xt=urn:btih:0F33C277BD0C76CBF2565FD6E482CB7A78F5A74C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Iris — это высокопроизводительный экранный р
 ```bash
 magnet:?xt=urn:btih:AA0F77CA735BC1C2B7A0C8B9A77AA186F7DCEC57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Sound Siphon делает аудиовыход вашего Mac доступны
 magnet:?xt=urn:btih:DF5868AA128AB42F2D8574D6FFED5FC32EE3E93C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Markdown + 3.3.0 [En]
 ```bash
 magnet:?xt=urn:btih:35F73139DDFFFEFA393105F1CFC8D7FB32177BB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ JixiPix Artista Impresso Pro 1.8.26 [En]
 ```bash
 magnet:?xt=urn:btih:C54114DA702447F822278E4A0F8B4D78793E8687
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ PhotoMill X (aka Reformator) помогает Вам преобразовать 
 magnet:?xt=urn:btih:7BA03F290E1C62AD36E60292BE640C8AEC199F94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ Stats - это приложение с открытым исходным код�
 ```bash
 magnet:?xt=urn:btih:A080C682672117C9186273E5ADB8C1F44117D83B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ Aiseesoft Mac FoneTrans 9.2.36 [En]
 magnet:?xt=urn:btih:ED873CFE1ED7BAEC61DFA2D1F0DCE9EB158F241B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ Aiseesoft Video Repair — мощное программное обеспече�
 magnet:?xt=urn:btih:88A7F74DC79C09F2679FA7145CCB5401A30C0380
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ Merlin Project — это стандарт управления проектам
 ```bash
 magnet:?xt=urn:btih:1D90ECF9D510018B0CDA9380E23A9CE778DD62D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

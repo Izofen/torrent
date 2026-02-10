@@ -1,3 +1,29 @@
+###  Публикация: 1021452   (731642) от 30.05.2016
+
+Роберт Маккаммон | Лебединая песнь (2016) [MP3, BIGBAG, Елена Полонецкая]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зло явилось в страну, которая некогда поклялась “жить по закону Божьему и людскому”, но стала жить – по закону жадности и ненависти. Зло явилось во облике человеческом – в облике Человека Многоликого. Человека, точно знающего, КАК воздействовать на каждого из встреченных им на страшном его Пути. Ибо темная бездна ненависти, зависти и вожделения – есть душа человеческая. (   Читать дальше...   )Жанр: ПостапокалипсисПродолжительность: 37:28:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26940E6916CF024DD8F8162EFE9F1CAC3583DCA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283645   (731701) от 18.02.2019
 
 Пэт Кэдиган | Алита. Боевой ангел (2019) [MP3]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:6C3126CAA37D971778035BF6D143C50E44AC3074
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:6C3126CAA37D971778035BF6D143C50E44AC3074
 magnet:?xt=urn:btih:0DB61A034BA0AD60CFD261F0FEACAB4ADFC92B2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:0DB61A034BA0AD60CFD261F0FEACAB4ADFC92B2E
 magnet:?xt=urn:btih:915C3C9CA134C67139576FDBE223960B629DEC76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:915C3C9CA134C67139576FDBE223960B629DEC76
 ```bash
 magnet:?xt=urn:btih:13D62FB1E02D3266096955BEE1A1E478B4965C1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:13D62FB1E02D3266096955BEE1A1E478B4965C1F
 magnet:?xt=urn:btih:2080C5C78AE03D59D3D707421B329E25C41E0CCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:2080C5C78AE03D59D3D707421B329E25C41E0CCB
 magnet:?xt=urn:btih:90C216915C95E4C926B773C475297477386BEFFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:90C216915C95E4C926B773C475297477386BEFFB
 ```bash
 magnet:?xt=urn:btih:E276EF908D285581F5BC1339A9D5E9AE7E74501F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:E276EF908D285581F5BC1339A9D5E9AE7E74501F
 magnet:?xt=urn:btih:26F461E7A93F0E01D217E4F2907FA3B4CD851D8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:26F461E7A93F0E01D217E4F2907FA3B4CD851D8F
 magnet:?xt=urn:btih:CF1026302DAF586B8AB8E76FBF8D9FBC537A492F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:CF1026302DAF586B8AB8E76FBF8D9FBC537A492F
 ```bash
 magnet:?xt=urn:btih:9F1C7141FDC533CD40915C50726755ABD2F60C2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:9F1C7141FDC533CD40915C50726755ABD2F60C2D
 magnet:?xt=urn:btih:F2E93CD441C6B1C4372E9AB3B7A29221F5E848A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:F2E93CD441C6B1C4372E9AB3B7A29221F5E848A6
 ```bash
 magnet:?xt=urn:btih:5CD7F27979BF7E99AE7F69F09CC6CEE3B047B2CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:5CD7F27979BF7E99AE7F69F09CC6CEE3B047B2CE
 magnet:?xt=urn:btih:D4250FEC16B7E93CF05591E146914C86CF16212F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:D4250FEC16B7E93CF05591E146914C86CF16212F
 ```bash
 magnet:?xt=urn:btih:E0B31659B8229CE6E7FEF509FD4608D96E18AEB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:E0B31659B8229CE6E7FEF509FD4608D96E18AEB1
 magnet:?xt=urn:btih:48A98974C52E39AE1D7E7144F24FDB4E0E9D462B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:48A98974C52E39AE1D7E7144F24FDB4E0E9D462B
 magnet:?xt=urn:btih:8C21CF047A7E3B744E87CB27B2EA8FE3BA10517B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:8C21CF047A7E3B744E87CB27B2EA8FE3BA10517B
 ```bash
 magnet:?xt=urn:btih:0D094443F876617949E1AE0A9915365AA90A5173
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:0D094443F876617949E1AE0A9915365AA90A5173
 magnet:?xt=urn:btih:01DD9AB38784D89E458D1E7A984D3E3E4A6DD551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:01DD9AB38784D89E458D1E7A984D3E3E4A6DD551
 ```bash
 magnet:?xt=urn:btih:BF16FFD4B0C5B6C4E9116C84AA6B199B0261377F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:BF16FFD4B0C5B6C4E9116C84AA6B199B0261377F
 magnet:?xt=urn:btih:CF22A574BE2D74BC07E2E033897CE198986FEAB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:CF22A574BE2D74BC07E2E033897CE198986FEAB6
 ```bash
 magnet:?xt=urn:btih:BA5DB7E06537C23D086DC14DEA7DBEBA7FE30CB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:BA5DB7E06537C23D086DC14DEA7DBEBA7FE30CB9
 magnet:?xt=urn:btih:27FA85AB35B6C1C0FB502AF933DCBD1176AB43C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:27FA85AB35B6C1C0FB502AF933DCBD1176AB43C6
 ```bash
 magnet:?xt=urn:btih:02247DBF73FCD7627F10892261798F1BA86FC021
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:02247DBF73FCD7627F10892261798F1BA86FC021
 magnet:?xt=urn:btih:E781876C4ED3A2DECE361F3F1D5BDF51528DB2D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,31 +681,7 @@ magnet:?xt=urn:btih:E781876C4ED3A2DECE361F3F1D5BDF51528DB2D9
 magnet:?xt=urn:btih:D78A3E947CD8DE9F5AAD4AF7B578977DA7423F35
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528257   (734875) от 01.02.2022
-
-Дмитрий Ра | Это мы не проходили... (Книга 1). Орканутый (2022) [MP3, Радион Нечаев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Упал, очнулся, попал. Всё как всегда. Молодой парень в магическом мире. Но не в теле эльфийского дворянина, а в страшном чудище в разгаре кровавого побоища. Пошаманив со своими силами, он понимает, что может переселяться в других. Но не все же так просто, правда?
-
-«Попаданство», где у эльфиек в кишках не радуга. Соединяем атмосферу, где главному герою хочется сопереживать, (   Читать дальше...   )Жанр: Боевое фэнтези, Попаданцы, Эротическое фэнтезиПродолжительность: 09:05:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D1B0E656829ADA38534CE87D423879CE4A9D188
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

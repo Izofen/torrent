@@ -1,3 +1,38 @@
+###  Публикация: 638379   (895167) от 03.04.2013
+
+VA - Mirage (2013) [MP3|320 кб/с]<Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Tune - Flute [04:55]
+02. The Musix - Let the Tramp Play [04:21]
+03. For Emotion - Mental 1 - One Mix [03:58]
+04. Fast Connection - Oltreoceano [04:24]
+05. Night Fruit - Velocity Roll [04:43]
+06. Esotica - Indu Passion [04:20]
+07. Aldemario - Radio Copan [04:27]
+08. Diego polimeno & Alberto Vigano - Tramonto Di un Giorno D'estate [04:51]
+09. LB Sound - Impact [06:01]
+10. Kanto - Cosmic Gate [04:27](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D238F1AA9D52545FA693C151C9F702EF2DB0D88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 638364   (895202) от 03.04.2013
 
 VA - Destination Jet Set (2013) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
@@ -28,6 +63,8 @@ VA - Destination Jet Set (2013) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 magnet:?xt=urn:btih:4E0538AB5A32426C02A042D59F3167B14EE62A66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +91,8 @@ VA - Hundred Percent Drum And Bass (2020) [MP3|320 Kbps] <D&B, Bass, Dubstep>
 ```bash
 magnet:?xt=urn:btih:CA6BD27FCE5053F2BEF109324A7A372D12AC6161
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +121,8 @@ VA - The Official UK Top 40 Singles Chart 27.03.2020 [MP3|320 Kbps] <Pop, Dance,
 magnet:?xt=urn:btih:BBC7744489FF29A2E0D711D0334E78C96F1E3A68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +149,8 @@ Dj Ikonnikov - Synth Dance Non Stop Mix Vol. 01 - 13 (2009-2015) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:E9FA93013EAEDAF04F1910ED68505F6961909D3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +185,8 @@ VA - Aperitif (2013) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 magnet:?xt=urn:btih:CE5F0FB5061CC3D5C2A6C92B12C69EDA6B4A83C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +213,8 @@ VA - Music News vol.128 (2021) [MP3|320 Kbps] <Pop, Soul, Dance, (Other)>
 ```bash
 magnet:?xt=urn:btih:1AD2FB96FE584E8CD0FBF6F7B0ACE31EEF932D06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +243,8 @@ VA - Top DJ. Клубный хит (2017) [MP3|320 Kbps] <Dance, Club>
 magnet:?xt=urn:btih:FEA4F8AB13A57359FC2D23A770E509DAAF950E8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +271,8 @@ VA - 8 Марта. Корпоратив №1 (2016) [MP3|256-320 кб/с] <По�
 ```bash
 magnet:?xt=urn:btih:89F4F46BCFDEBC3F98C659B3679BF3A0AA37C16D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +301,8 @@ VA - Best of Piano and Acoustic Guitar: Spa Music for Yoga Massage and Healing (
 magnet:?xt=urn:btih:A1A0D78289FF52897FFFDAD3DCD04A6C35A238E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +329,8 @@ VA - Smooth and Sexy - Premium Jazz Grooves (2016) [MP3|320 кб/с] <Jazz, Chil
 ```bash
 magnet:?xt=urn:btih:8FCCBBB993EFB88A7D32159B51856C1842B1F6F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +359,8 @@ VA - Зажигательный музыкальный отрыв (2016) [MP3|32
 magnet:?xt=urn:btih:4BF5984F0DCC9916E07DBA7B2A3B45CB8D55BFC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +387,8 @@ VA - Калина Красная (Шоферской Спецвыпуск) (2016
 ```bash
 magnet:?xt=urn:btih:E773A51DEECAAB966EB9FC1D064777B273B43763
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +417,8 @@ VA - Шоферской Хит (2016) [MP3|256 кб/с] <Шансон>
 magnet:?xt=urn:btih:BF139EC06779C8C8E39603E5093F4AA3695B828F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +445,8 @@ VA - Имена на все времена. Застольные песни (201
 ```bash
 magnet:?xt=urn:btih:E62AA642361FCFF30E5AF3E1CDF70BA96D121653
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +475,8 @@ VA - Девочки продолжают танцевать (mixed by Dj V) (201
 magnet:?xt=urn:btih:C9DA876484589B6AAD902622E1B7231D1D2C5A33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +503,8 @@ VA - Дискотека новые звезды 56 (2016) [MP3|320 кб/с] <П�
 ```bash
 magnet:?xt=urn:btih:174C5EC29FE83D61FEB839D9FE05C3D5A655E638
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +533,8 @@ VA - Любимая женщина. Душевный шансон (2016) [MP3|25
 magnet:?xt=urn:btih:D9B5DD7B230EC9B2E848927200906A0717FDE223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +561,8 @@ VA - Top 100 Зайцев.Нет Январь 2017 [MP3|192-320 Kbps] <Pop, Danc
 ```bash
 magnet:?xt=urn:btih:35EBE1D7286410DE27AD88CCEF48370FD894D85D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +591,8 @@ VA - Блатной хит 4 (2016) [MP3|256 кб/с] <Шансон, Автор�
 magnet:?xt=urn:btih:D88E11C77D710FF9DAB7C89B82E7604B7D058143
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +619,8 @@ VA - 70s: The Collection (2017) [MP3|320 Kbps] <Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:28857D0768258ABCC735950827596F1C4BB8C21B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +649,8 @@ VA - Хиты зимы. За рулем. Выпуск 50/50 (2017) [MP3|256 Kbps
 magnet:?xt=urn:btih:B033C1B76E1A8CD3EC8DC2DF20B1AA0BA2282738
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +677,8 @@ VA - Дискотека зимних дорог. Индустрия поп му�
 ```bash
 magnet:?xt=urn:btih:5D7D9FAA0DFA11CA3DB691A888F7B04406E4348E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +707,8 @@ VA - Tabletka - FM Top 20 Radio Hits January (2017) [MP3|320 Kbps] <Trance, Voca
 magnet:?xt=urn:btih:874275DC142CE59B66E77C646A6F926FDFBE55A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +735,8 @@ VA - The Essential #LOVE (2017) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:B5E5FD64C313A37D17C89653DDC43FEDF27168D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -682,32 +765,7 @@ VA - Dinner With My Darling (2017) [MP3|320 Kbps] <Jazz, Soul, Pop>
 magnet:?xt=urn:btih:9217EDE095B30FA91D36EA34B32730D5E5D3B554
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 761635   (896728) от 28.02.2014
-
-VA - Lounge At The Seashore 6 (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896728.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Creep N00m - Otherworldly (Original Mix)
-002. 44th Floor - Saint Placid - New York Sunset Mix
-003. Sombra Modos - Sem Ноrа Marcada
-004. Cj NiksoN - My Story(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:16:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69138D90B8E3A03BFC5B94555276AA7C0CAEEC98
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

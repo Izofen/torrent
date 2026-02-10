@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:7B1EE41E0704A74A2A620301A26A072AE72C087D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Mechabellum - это эпический автобаттлер в научно-�
 ```bash
 magnet:?xt=urn:btih:6C70028A616B5043A10EA186E5B719B45091D9C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Mechabellum - это эпический автобаттлер в научно-�
 magnet:?xt=urn:btih:B253D6EA96DC586CE852F3921A0C5A8534F28E2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Ara: History Untold (2024) [Ru/Multi] (1.0.0.316/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:485219350486B5EE464507CFBAEE850FEC80FABC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Ara: History Untold (2024) [Ru/Multi] (1.0.0.316/dlc) Repack FitGirl [Deluxe Edi
 magnet:?xt=urn:btih:C10DC4EFEA46A7154AA9A1C90CE6FE58E195AE2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Ara: History Untold (2024) [Ru/Multi] (1.0) Scene FairLight
 ```bash
 magnet:?xt=urn:btih:B72222769C67FD78E7EC2593ECB8671A156EF848
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Scourge of War - Remastered бросает вас с головой в хаос 
 magnet:?xt=urn:btih:AE416B7C396410D315F4CCEF6B7A75AE05F9B4A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ StarCraft 2: Legacy of the Void - это третья, и заключитель
 ```bash
 magnet:?xt=urn:btih:A9A70439700E420ECB46B49939306DD2FEFF0817
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Three Kingdoms: The Last Warlord - двумерная пошаговая стр�
 magnet:?xt=urn:btih:2B835D80CA5B43B014980C7248FC50A8DBA5DA78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Age of Mythology: Retold - игра от создателей культовой
 ```bash
 magnet:?xt=urn:btih:B69018E7C2E231BB320C7AE93164528DB67FF5B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ King's Bounty: Crossworlds / King's Bounty: Перекрестки миров (2
 magnet:?xt=urn:btih:DAB0EDC384A8B74BD2CF23A55A98B1E1EED2F41C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Regiments – стратегия в реальном времени, где Хо
 ```bash
 magnet:?xt=urn:btih:4CBFD9ED527907AEC1661309F2E8389419CD1CDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Northgard (2018) [Ru/Multi] (3.5.15.39065/dlc) Repack Other s [The Viking Age Ed
 magnet:?xt=urn:btih:62EC03B817E3824E6C900BEE1B374DE203034A46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:62EC03B817E3824E6C900BEE1B374DE203034A46
 ```bash
 magnet:?xt=urn:btih:778CE9490E5061A627072F4325845D73625B5C12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Regiments – стратегия в реальном времени, где Хо
 magnet:?xt=urn:btih:3E5810436AC3B7DE750196C13D00BD8EEC08DD5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Northgard (2018) [Ru/Multi] (3.5.15.38668/dlc) Scene Tenoke [The Viking Age Edit
 ```bash
 magnet:?xt=urn:btih:B131D51C04EEC9E8E2669DBB05F2BF1B7EE18529
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Age of Empires IV (4) (2021) [Ru/Multi] (11.0.0782.0/dlc) Repack dixen18 [Annive
 magnet:?xt=urn:btih:12FEF07B85126A874BE412C16D1C477DA4F996DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Age of Empires IV (4) (2021) [Ru/Multi] (11.0.782/dlc) Scene Rune [Anniversary E
 ```bash
 magnet:?xt=urn:btih:5784E01B2720E11106CE86C205029C77165CA541
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Age of Empires IV (4) (2021) [Ru/Multi] (11.0.0782.0/dlc) Repack Decepticon [Ann
 magnet:?xt=urn:btih:DC2EC1F5A0AB746F1D05BA125B83D555A4095890
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Great Houses of Calderia с головой окунает вас в жесток
 ```bash
 magnet:?xt=urn:btih:FE4035DF7DF2E54938CE678D14CB066EEC89FCB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ War for the Overworld (2015) [Ru/Multi] (2.1.1/dlc) Repack FitGirl [Ultimate Edi
 magnet:?xt=urn:btih:AB62C32FB312E046D979047440B3249525CF5435
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Spirits of The Silicium Forest – карточная игра с примесь
 ```bash
 magnet:?xt=urn:btih:5200CC71C4C64F90B1AAC28F7F067D2E1B963295
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Songs of Steel: Hispania (2024) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:D2AD81C4F29A5B92D12B3386612EBF16171DE8B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Stronghold (2023) [Ru/Multi] (1.34/dlc) Repack Let'sРlay [Definitive Edition]
 ```bash
 magnet:?xt=urn:btih:C2E6D346D47A09939734C196D1569B7E742F28CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/M
 magnet:?xt=urn:btih:30A13C8DC1156477BA38818EAE1A385C1BD4A501
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Stronghold: Definitive Edition оживляет средневековую Ан�
 ```bash
 magnet:?xt=urn:btih:4E4F423878A44E54C27235D59322952CE4F2AB35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

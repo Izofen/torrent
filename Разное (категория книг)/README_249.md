@@ -1,3 +1,29 @@
+###  Публикация: 1257006   (347353) от 25.10.2018
+
+Дэвид Перлмуттер, Кэрол Колман | Здоровый мозг. Программа для улучшения памяти и мышления (2017) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Потеря памяти – это не естественное следствие процесса старения, а симптом разрушительных процессов, происходящих в нашем мозге. Хорошая новость заключается в том, что разрушение мозга не следует считать необратимым процессом: вы можете его остановить и даже повернуть вспять. Вам не придется отказываться от мечты или идти на неприятные компромиссы просто потому, (   Читать дальше...   )Жанр: Популярная психология, Личная эффективность, ЗдоровьеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4916E91B56D06B318952CCC8ACCA6D0648843DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257255   (347357) от 25.10.2018
 
 Вячеслав Носко, Максим Бурков | Книга о криптовалюте № 1 (2018) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:8415EF9DE3AC6E653C9824E64986FA4BC1BA866C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:8415EF9DE3AC6E653C9824E64986FA4BC1BA866C
 ```bash
 magnet:?xt=urn:btih:FDF397D026508D22EA0BE02B2481C543C2887D54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:FDF397D026508D22EA0BE02B2481C543C2887D54
 magnet:?xt=urn:btih:BFF444E1117371BC811DC89E2938FBC9BB4A179F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:BFF444E1117371BC811DC89E2938FBC9BB4A179F
 ```bash
 magnet:?xt=urn:btih:6DC5A5153D2C7B5CD3535DDE44DE8FCBD8B900EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:6DC5A5153D2C7B5CD3535DDE44DE8FCBD8B900EE
 magnet:?xt=urn:btih:1EEE59B3911996DBCEDAB16B70E387AD8B19664C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:1EEE59B3911996DBCEDAB16B70E387AD8B19664C
 ```bash
 magnet:?xt=urn:btih:1DE74817B1E4431FA503E2B14D4FC8CFE5F02893
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:1DE74817B1E4431FA503E2B14D4FC8CFE5F02893
 magnet:?xt=urn:btih:AC4C12CE96F14570CEB06944A8C7796213167DF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:AC4C12CE96F14570CEB06944A8C7796213167DF4
 ```bash
 magnet:?xt=urn:btih:516E07E23C21A0ED5BA5BC2CBC4B434484CB968D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:516E07E23C21A0ED5BA5BC2CBC4B434484CB968D
 magnet:?xt=urn:btih:ABC8584F05E9970E40D9864A91D73053591F0C80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:ABC8584F05E9970E40D9864A91D73053591F0C80
 ```bash
 magnet:?xt=urn:btih:9C925E91A70753534024A385A9C6A92D9ACE915D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:9C925E91A70753534024A385A9C6A92D9ACE915D
 magnet:?xt=urn:btih:10AA075C5FE3EFA830947CCBE5C653EC6748B90A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:10AA075C5FE3EFA830947CCBE5C653EC6748B90A
 ```bash
 magnet:?xt=urn:btih:CBCAC1766C4025C8331ED5813B4B9148D09900E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:CBCAC1766C4025C8331ED5813B4B9148D09900E7
 magnet:?xt=urn:btih:94A0288956ABAD09859B3758ACBF4F32E1E86CE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:94A0288956ABAD09859B3758ACBF4F32E1E86CE6
 magnet:?xt=urn:btih:667BD8C6A1EFDCB001EB69B0717A10D686230350
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:667BD8C6A1EFDCB001EB69B0717A10D686230350
 ```bash
 magnet:?xt=urn:btih:EA9001FEC30DDD282074463FFC4ECDB5645BD59A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:EA9001FEC30DDD282074463FFC4ECDB5645BD59A
 magnet:?xt=urn:btih:FF168A944F3FDBE029ECF8F7072D3271518C202D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:FF168A944F3FDBE029ECF8F7072D3271518C202D
 ```bash
 magnet:?xt=urn:btih:9520CCB07F370FE9695CC71150BDD2F926A307C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:9520CCB07F370FE9695CC71150BDD2F926A307C4
 magnet:?xt=urn:btih:87700F8324C8E0EFF6908817C4C54DEEC6D12AD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:87700F8324C8E0EFF6908817C4C54DEEC6D12AD7
 magnet:?xt=urn:btih:35C86C4DABD78B1CEE476BBBCC69AED05063BB07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:35C86C4DABD78B1CEE476BBBCC69AED05063BB07
 magnet:?xt=urn:btih:62F1C15B9891D5A4B09355FE637C2E0B8765EB34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:62F1C15B9891D5A4B09355FE637C2E0B8765EB34
 ```bash
 magnet:?xt=urn:btih:332939B725E89332AF70D4D7EAF4BCF04DD1DC15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:332939B725E89332AF70D4D7EAF4BCF04DD1DC15
 magnet:?xt=urn:btih:DE45AE2CCEE17C4982F70ABC5F9A2295CE9D7797
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:DE45AE2CCEE17C4982F70ABC5F9A2295CE9D7797
 magnet:?xt=urn:btih:7843178A3E4B54C636B7B06E84BAF47D9C2CC14D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:7843178A3E4B54C636B7B06E84BAF47D9C2CC14D
 ```bash
 magnet:?xt=urn:btih:395B38622266DCB9C5F7037975519CE128624905
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,29 +684,7 @@ magnet:?xt=urn:btih:395B38622266DCB9C5F7037975519CE128624905
 magnet:?xt=urn:btih:74236EB1A5FD8FB56B01383A9DEE9C3C8892A8D7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952951   (349153) от 04.11.2015
-
-Скотт Макферсон | Миллионер. Чего не знает большинство (2015) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349153.jpg" />
-</div>
-
-
-###  Подробнее
-
-А вы знаете, кто такие миллионеры? А уверены, что правильно относитесь к деньгам и знаете все о них? В этой книге издательства AB Publishing мы расскажем вам не только об этом. Также вы узнаете о секретах и правилах богатства, о том, как превращать идеи в деньги, и то, чем же богачи отличаются от обычных людей. А советы известных миллионеров и рекомендации о пути (   Читать дальше...   )Жанр: Ценные бумаги, инвестиции, о бизнесе популярноФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:188B386C854A81411376FF27982C3D911CC08F56
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

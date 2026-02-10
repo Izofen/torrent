@@ -21,6 +21,8 @@ Kingdoms of Amalur: Reckoning - это совершенно новая RPG в м
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Jurassic Park: The Game – эпизодическая игра, созданн�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Kingdoms of Amalur: Reckoning - это совершенно новая RPG в м
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Kingdoms of Amalur: Reckoning - это совершенно новая RPG в м
 ```bash
 magnet:?xt=urn:btih:7CAC5EA103CF324276669556EBE2EEC1E6D38B61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:7CAC5EA103CF324276669556EBE2EEC1E6D38B61
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:7CAC5EA103CF324276669556EBE2EEC1E6D38B61
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:7CAC5EA103CF324276669556EBE2EEC1E6D38B61
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:7CAC5EA103CF324276669556EBE2EEC1E6D38B61
 ```bash
 magnet:?xt=urn:btih:142DAC374153968DB9806032609F6FB336B6BD43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -231,6 +247,8 @@ magnet:?xt=urn:btih:142DAC374153968DB9806032609F6FB336B6BD43
 magnet:?xt=urn:btih:721BE6AC766617CB4997AEA3DBC359A73EB6C922
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ magnet:?xt=urn:btih:721BE6AC766617CB4997AEA3DBC359A73EB6C922
 ```bash
 magnet:?xt=urn:btih:F0D3B108247F9D58499CB3CFCA417FE100A90ECB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +300,8 @@ AIDA64 Extreme - утилита является очень мощным инс�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ AIDA64 Extreme - утилита является очень мощным инс�
 ```bash
 magnet:?xt=urn:btih:A719CEAB32EE63779C68769C3F28477B3E48BDBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +359,8 @@ magnet:?xt=urn:btih:A719CEAB32EE63779C68769C3F28477B3E48BDBB
 magnet:?xt=urn:btih:86364B2944C6B6FD20BA132BF0E9EE5A612F6C84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +387,8 @@ AkelPad умеет запоминать расположение курсора 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +412,8 @@ Volume² - очень удобная программа, дающая польз
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +448,8 @@ VA - Record Dance Radio Grand Opening With Axwell - Live at Izvestiya Hall Mosco
 magnet:?xt=urn:btih:C36DE0FB3B97CFA25F322494C2A1403D923B63F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +476,8 @@ magnet:?xt=urn:btih:C36DE0FB3B97CFA25F322494C2A1403D923B63F4
 magnet:?xt=urn:btih:F69831B27F61AC09BFED67155061FC52A01A0708
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +502,8 @@ Rainmeter - программа для мониторинга ресурсов к
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +527,8 @@ Easy CD-DA Extractor - один из самых универсальных па�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +563,8 @@ Gorillaz - Gorillaz Rip Arms Off (2011) [MP3|256 kbps]<electro music, hip hop>
 magnet:?xt=urn:btih:7D056678B6C2A434C4BC17BD037F565D36726794
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +588,8 @@ magnet:?xt=urn:btih:7D056678B6C2A434C4BC17BD037F565D36726794
 ```bash
 magnet:?xt=urn:btih:3494FF86409DC165B279123C5D8A25381A5FF0AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +615,8 @@ magnet:?xt=urn:btih:3494FF86409DC165B279123C5D8A25381A5FF0AB
 magnet:?xt=urn:btih:D2B60A690245D0FFEDAAFA030B975DFA9CE27BC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +641,8 @@ magnet:?xt=urn:btih:D2B60A690245D0FFEDAAFA030B975DFA9CE27BC1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +666,8 @@ magnet:?xt=urn:btih:D2B60A690245D0FFEDAAFA030B975DFA9CE27BC1
 ```bash
 magnet:?xt=urn:btih:06A79FB22AFFE673AE97E76F130B44AD8CDB47C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +695,8 @@ magnet:?xt=urn:btih:06A79FB22AFFE673AE97E76F130B44AD8CDB47C4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,6 +720,8 @@ magnet:?xt=urn:btih:06A79FB22AFFE673AE97E76F130B44AD8CDB47C4
 ```bash
 magnet:?xt=urn:btih:D2F67C8B23855619BA08BF5706A48DC4998C70E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

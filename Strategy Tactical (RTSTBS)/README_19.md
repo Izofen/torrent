@@ -19,6 +19,8 @@ Age of Wonders: Planetfall (2019) [Ru/En] (1.300.41692/dlc) Repack Other s [Prem
 magnet:?xt=urn:btih:C0290C644A586F0FEAFCEF73822FD93A3D26BE59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Skulls of the Shogun (2013) [Ru/Multi] (1.1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:369BCEDDF6792FDEB4CA16733F4B40CC3C58EE73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Nantucket (2018) [En] (1.0a) Repack Other s
 magnet:?xt=urn:btih:5F7E569F0463EB682AAD4A1E8762A30349209EC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Void Eclipse - пошаговая тактическая ролевая стра
 ```bash
 magnet:?xt=urn:btih:BD817074F87604115CDB7A286D3BEBAB8E363658
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Call to Arms – тактическая стратегия в реальном �
 magnet:?xt=urn:btih:E90EC74A56C0090F8B10E3667AD2D13EE49C27FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Banner Saga Collection (2014-2016) [Ru/Multi] (2.36.15/2.39.02) SteamRip Let
 ```bash
 magnet:?xt=urn:btih:2C7D03C5B90528E023304C4D0DBDE9084B06BDC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ XCOM: Отряд «Химера» открывает новую главу в и
 magnet:?xt=urn:btih:3B52A2286A2AB30C48AF442211233DA01C452EBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Battle of Empires: 1914-1918 / Битва империй: 1914-1918 (2015) [Ru] 
 ```bash
 magnet:?xt=urn:btih:74DD9BD56A5536F9FEB8D95D1AEE530F51F68E3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Battle of Empires: 1914-1918 / Битва империй: 1914-1918 (2015) [Ru] 
 magnet:?xt=urn:btih:D15852C8DF2EC14411B3FD52CAEBDD5E44F6D996
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Super Robot Wars 30 (2021) [Multi] (7571902) License Fairlight
 ```bash
 magnet:?xt=urn:btih:961B109746C76C478E0C410B8892EB43FEDF2CE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Banner Saga (2014) [Ru/Multi] (2.18.08/dlc) License PROPHET [Gold Edition / 
 magnet:?xt=urn:btih:26D27D74F08A4748493A4C1DFB884618AA48EB44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Anomaly Defenders - третья и последняя игра в серии An
 ```bash
 magnet:?xt=urn:btih:DEAFC89CDDDCABA0A5CAC99C2D2BDC850C52B8B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Anomaly: Warzone Earth - необычная смесь экшена и стра�
 magnet:?xt=urn:btih:E2312ECB88BD000D9DAB5575F95F243FBF1C6B80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Nomad Fleet (2016) [En/Es] (1.0) License CODEX
 magnet:?xt=urn:btih:23629957A4521086007AB6B7A7E82B49DC328CDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +382,8 @@ Star Wolves 3: Civil War / Звездные Волки 2: Гражданская
 ```bash
 magnet:?xt=urn:btih:FB083680386A2744AE5CA00C6DDAAACA7BFA5103
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Royal Heroes PC - сбалансированная и достаточно сл�
 magnet:?xt=urn:btih:E7DC12EAB083EAA911FF63C2E789C76387BC055F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ Survivor Squad: Gauntlets (2015) [En] (1.03) Repack ARMENIAC
 ```bash
 magnet:?xt=urn:btih:85B88A43F13BF6539AA28AFED1E8B94C792CB2D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Shadowrun Returns (2013) [Ru/Multi] (1.2.7/dlc) SteamRip R.G. Origins [Deluxe Ed
 magnet:?xt=urn:btih:CEDFACF62605DFD868BEA0383E43F290398DDFB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Blitzkrieg 2 Anthology / Антология Блицкриг 2 (2008) [Ru] (1.6.
 ```bash
 magnet:?xt=urn:btih:5DF83CADCE243A181323768017DBAFB2BFB6E95A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ War Mongrels - это изометрическая тактическая игр
 magnet:?xt=urn:btih:9AAC4C52636D354A93CD57A3CD6109BFF56E74AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Anomaly Korea – дополнительная кампания к Anomaly Warzo
 ```bash
 magnet:?xt=urn:btih:A375A5B424B1F545746C1FD87477853700BA00E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Codex of Victory (2017) [Ru/Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:61B4E12E87B466104FB0647FF5EC6BC98389D112
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ The Riftbreaker (2021) [Ru/Multi] (7526729) License CODEX
 ```bash
 magnet:?xt=urn:btih:57E7DA4578227738F82CDE13E81E2F8D58A7980B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ Rabiez-Epidemic - это тактическая реал-тайм игра в с
 magnet:?xt=urn:btih:A6B3931EB02E6EE2CCF8AA1B8A7E9DEFEA290F85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Gears Tactics - динамичная пошаговая стратегия, со
 magnet:?xt=urn:btih:9238D7623EBC08AFEA951810C40C2CC51FD48B3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Warhammer 40,000: Dawn of War II. Разработанная отмеченно�
 ```bash
 magnet:?xt=urn:btih:2B1A30CDF77F01B61A46AF7774ACA8E21EB06677
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

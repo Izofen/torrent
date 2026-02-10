@@ -20,6 +20,8 @@ Alexander Gol | Full-Stack разработка веб приложений с J
 magnet:?xt=urn:btih:423990BE3B7643173F4A2F78BF91773787748BFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Udemy, YouRa Allakhverdov | Основы Современного JavaScript с 
 magnet:?xt=urn:btih:74FF50CA136B05C34DC470B96BEA64957558220C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Udemy, Ben Tristem и др. | RPG Core Combat Creator: Learn Intermediate Unity 
 magnet:?xt=urn:btih:7B9852023FDE5F9E842C2EA584D942D7D6524E11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Udemy, Maksim Zhashkevych | GOLANG NINJA - Разработка Веб-Прил�
 ```bash
 magnet:?xt=urn:btih:8C8F07DB42722D5CC410F77A91856DE86907F451
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Google также работает над (   Читать дальше...   )�
 magnet:?xt=urn:btih:34DF3C9459C38AF3FF9849D8F961F7F8A253A1FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Udemy, Dzianis Matveyenka | Apache Maven (2023) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:B3D153484B0D2FDA9486BA83B264A1458123E30F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ HTML Academy | HTML и CSS. Адаптивная вёрстка и автома�
 magnet:?xt=urn:btih:840194A5F7592F9781899478C71855AA92EF2F99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:840194A5F7592F9781899478C71855AA92EF2F99
 magnet:?xt=urn:btih:C1F37D17B98ED11A7E68EC7115ABE1E7DF1FE53C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ Udemy, Артём Воров | Java с полного нуля + ДЗ + тест
 ```bash
 magnet:?xt=urn:btih:2DDE5040BEF1F7C3CBA7C933560DEB7DF9636766
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:2DDE5040BEF1F7C3CBA7C933560DEB7DF9636766
 magnet:?xt=urn:btih:B22D8E951A2DAFF4377283F48761A82BF7860DDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ Udemy, Andrei Neagoie и др. | Complete React Developer in 2021 (w/ Redux, Hoo
 ```bash
 magnet:?xt=urn:btih:283FB7B07F017AAD76F515DC74E598F2186815DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ Udemy, Maximilian Schwarzmüller | React Native - The Practical Guide [2021 Edit
 magnet:?xt=urn:btih:1D30EEF208F634D4012A99EE54AD2E3CE8C3F5F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ Django - это веб-фреймворк с открытым исходным �
 magnet:?xt=urn:btih:9AA9A97314F88D2F63290D6B6E48F46191F0D2D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ Udemy, Ben Tristem и др. | Discovering Godot: Make Video Games in Python-like
 magnet:?xt=urn:btih:736CBD0FF7D4C3AFABF4F3D1AD5FFAE12B7121DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ Udemy, Stephen Grider |  Microservices with Node JS and React (2021) PCRec [En /
 ```bash
 magnet:?xt=urn:btih:2522DCA31F434C1F5C586041231C41014B7CF0EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ CodeWithMosh, Mosh Hamedani | The Ultimate HTML/CSS Mastery Series. Part 1-3 (20
 ```bash
 magnet:?xt=urn:btih:DB9B0994C8FDB54477D67C9C1498863A8BF31D9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ Udemy, Maximilian Schwarzmüller  | Understanding TypeScript - 2021 Edition (202
 magnet:?xt=urn:btih:EA22E443DAB418EF334CE3645355146B1478F18D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ Linux - операционная система номер один для ко�
 ```bash
 magnet:?xt=urn:btih:E35835F69F6838BF9FD63F16C35719FA8865312B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ Udemy | Аве Кодер: Практический Курс по Продвин
 magnet:?xt=urn:btih:1D4BD85A533258A34346DC21BB90A6F677EA4EC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ Stepik, Иосиф Дзеранов | Алгоритмы поиска и сор�
 magnet:?xt=urn:btih:12E67DA6605A7B9B8B9D734A183FE6F7A6F0F447
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ Zero To Mastery Academy (ZTM), Jayson Lennon | Rust Programming: The Complete De
 ```bash
 magnet:?xt=urn:btih:7DCC5D68445445FB41F3A16140496A4434E9BD4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +594,8 @@ Angular и Spring Boot - две из самых популярных техно�
 magnet:?xt=urn:btih:8A4E9356522067E143200135DA7FCE1AD78C4603
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ Udemy,  Dr. Angela Yu  | 100 Days of Code - The Complete Python Pro Bootcamp for
 magnet:?xt=urn:btih:4A0A3A09A268B9DA566B82EA89EBF413002BEE86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ Unity - это невероятный 3D-пакет, используемый д
 ```bash
 magnet:?xt=urn:btih:3DC8E8207722880D3BF57B8CA0C6F19FE115594F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ Angular разрабатывалась Google почти десять лет. У
 magnet:?xt=urn:btih:EF923E8BE56DD2B102253C94333D893466454578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ Udemy, Dr. Angela Yu | The Complete 2023 Web Development Bootcamp (2023) WEB-DL 
 ```bash
 magnet:?xt=urn:btih:102A74F8C175E88089B5DC9F32E69BF1E5FEFBE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

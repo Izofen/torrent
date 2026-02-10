@@ -1,3 +1,29 @@
+###  Публикация: 903337   (659049) от 30.05.2015
+
+Танцуй. Выпуск №9 (2015.05.30) SATRip
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659049.jpg" />
+</div>
+
+
+###  Подробнее
+
+На Первом канале стартует беспрецедентный по размаху всероссийский танцевальный конкурс. Самые яркие участники из разных уголков страны – от Калининграда до Владивостока – окажутся на большой сцене, чтобы на глазах миллионов телезрителей сразиться за звание лучшего. Их имена пока не известны широкой публике, у них нет званий и наград, но каждый из них любит и умеет (   Читать дальше...   )Производство: РоссияТелекомпания: Первый каналЖанр: ТВ-ШоуРежиссер: Илья АвербухПродолжительность: 02:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56D818D0C1D443C98F266AF79B91128838011062
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903012   (659053) от 30.05.2015
 
 Территория заблуждений с Игорем Прокопенко (2015.05.29) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:85081852CFE47050AD987DE3CD509B2B0BC31830
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:85081852CFE47050AD987DE3CD509B2B0BC31830
 magnet:?xt=urn:btih:A56B7E105465BE8D71F2864569B99BC337B9EA35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:A56B7E105465BE8D71F2864569B99BC337B9EA35
 ```bash
 magnet:?xt=urn:btih:7209996BD3B6C8690B65AB6DB074E88156255B34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:7209996BD3B6C8690B65AB6DB074E88156255B34
 magnet:?xt=urn:btih:E23B95147AFC10932851602963237947B4078B86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:E23B95147AFC10932851602963237947B4078B86
 ```bash
 magnet:?xt=urn:btih:456FBE98394D912084B3470E336DB655B587EAB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:456FBE98394D912084B3470E336DB655B587EAB6
 ```bash
 magnet:?xt=urn:btih:5056D8FA0E4D2E9D706421D5245B02F77C8CACCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:5056D8FA0E4D2E9D706421D5245B02F77C8CACCF
 magnet:?xt=urn:btih:64BDFBC85CF4F90C1C72884F7E14F95C128D4940
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:64BDFBC85CF4F90C1C72884F7E14F95C128D4940
 ```bash
 magnet:?xt=urn:btih:9B87AC3A29E7B3DFCA7B50B0552D12AF33CEAC70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:9B87AC3A29E7B3DFCA7B50B0552D12AF33CEAC70
 magnet:?xt=urn:btih:5AD48C67FC204440188504E1A0BF9E34B5764E81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:5AD48C67FC204440188504E1A0BF9E34B5764E81
 ```bash
 magnet:?xt=urn:btih:3C1E6434A542491A62698791E3A448B6624F0DD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:3C1E6434A542491A62698791E3A448B6624F0DD0
 magnet:?xt=urn:btih:ABC0A4CAF0E716DF178D829B506573FDB2F5858E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:ABC0A4CAF0E716DF178D829B506573FDB2F5858E
 ```bash
 magnet:?xt=urn:btih:0E695046AE722819471658A069FD5AFF558A0214
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:0E695046AE722819471658A069FD5AFF558A0214
 magnet:?xt=urn:btih:43120E4663CCA81DE7E259765A687D8C7A5B96EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:43120E4663CCA81DE7E259765A687D8C7A5B96EE
 ```bash
 magnet:?xt=urn:btih:61FC069EDBF135D325274F225E2D0C0C3882F122
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:61FC069EDBF135D325274F225E2D0C0C3882F122
 magnet:?xt=urn:btih:292F76DCE50971027097F1FEAD8E36BD250B2888
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:292F76DCE50971027097F1FEAD8E36BD250B2888
 ```bash
 magnet:?xt=urn:btih:1430870D1794AD06807C8D53BDAA51093839618B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:1430870D1794AD06807C8D53BDAA51093839618B
 magnet:?xt=urn:btih:66F3A73EF31A82353CB3E291FC4EC770DA13FC45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:66F3A73EF31A82353CB3E291FC4EC770DA13FC45
 ```bash
 magnet:?xt=urn:btih:0619E7479EB7F4F0AB01E25E63CD20CD00B9DC47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:0619E7479EB7F4F0AB01E25E63CD20CD00B9DC47
 magnet:?xt=urn:btih:65D0EDA458A9819664EE75A272A677EB613FC6D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:65D0EDA458A9819664EE75A272A677EB613FC6D9
 ```bash
 magnet:?xt=urn:btih:C6CD76D3AD789FFA282C08659909579A39422922
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:C6CD76D3AD789FFA282C08659909579A39422922
 magnet:?xt=urn:btih:70F1E312FA8D357C3549F516BD3F84E7497943AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:70F1E312FA8D357C3549F516BD3F84E7497943AF
 ```bash
 magnet:?xt=urn:btih:7E7E480B70B2E96DD9C76D45026E6EFD22A95284
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:7E7E480B70B2E96DD9C76D45026E6EFD22A95284
 magnet:?xt=urn:btih:984BDBEA1BCC969CA1DFFB22AF9910FBEEFC66B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:984BDBEA1BCC969CA1DFFB22AF9910FBEEFC66B4
 ```bash
 magnet:?xt=urn:btih:148E664E2F923AEA57FEE5536BBE009D2B7CAA70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:148E664E2F923AEA57FEE5536BBE009D2B7CAA70
 magnet:?xt=urn:btih:3B47E12B97D0B06764EA22B3A8329CB71A1AB0EC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139535   (660181) от 02.06.2017
-
-Александр Калягин. "За дона Педро!" (2017) HDTV [H.264/1080i-LQ]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он блестяще сыграл десятки ролей в кино и театре и всегда был разным, но сам с иронией признается: помнить меня будут по тетке Чарли. В 1974 году неизвестного молодого актера Сашу Калягина пригласил сняться в комедии режиссер Виктор Титов. В это же время он снимался у Михалкова в «Рабе любви». Но именно «тетка» сделала его знаменитым. Будут и другие блестящие роли: (   Читать дальше...   )Телекомпания: Россия / Первый каналЖанр: Документальный, БиографияЯзык субтитров: РусскийПродолжительность: 00:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0700A68D5FFC67A2729A9E68A84222628C4CB5D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

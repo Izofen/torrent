@@ -21,6 +21,8 @@ Grant Warwick | Hard Surface Modeling Lessons 1 - 14 (2014) PCRec [En, Ru]
 magnet:?xt=urn:btih:683BD542FF0C10ECB8D4493D67BA630EF3D694FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:683BD542FF0C10ECB8D4493D67BA630EF3D694FC
 ```bash
 magnet:?xt=urn:btih:1E58C689B3FAB259ACCFA077742A1BA72BA7C737
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:1E58C689B3FAB259ACCFA077742A1BA72BA7C737
 magnet:?xt=urn:btih:9B067A5C0F064AC307575D330B2AC02E06725863
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Allan McKay | FX Technical Director Transformation Module 9 (2015) PCRec
 ```bash
 magnet:?xt=urn:btih:05903B4C82618BA211D443FEF18D9E816968BD18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:05903B4C82618BA211D443FEF18D9E816968BD18
 magnet:?xt=urn:btih:210476F5142392A91FDF3E80DF8C8068B6B4458C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:210476F5142392A91FDF3E80DF8C8068B6B4458C
 ```bash
 magnet:?xt=urn:btih:C79FB116906A3080FF4B527D82B1EFC7D092F606
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ Skillbox, Дмитрий Заец и др.  | Профессия Экономи�
 magnet:?xt=urn:btih:85BCE108C35537E1D99FB1B141011D8041E81E39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:85BCE108C35537E1D99FB1B141011D8041E81E39
 magnet:?xt=urn:btih:A18D3AEDDA347B0BFE8A9C45BFB7D92289AA6312
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ Profileschool | Пленочная фотография: за и против (2
 ```bash
 magnet:?xt=urn:btih:58989D89A2F16781CD1261B1835BA836E6919F15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:58989D89A2F16781CD1261B1835BA836E6919F15
 magnet:?xt=urn:btih:F81FCADE37BD3A7204BA51B173954AA53AA87CC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ Shaun T | FOCUS T25 (2013) DVDRip [EN]
 ```bash
 magnet:?xt=urn:btih:C73367A3C8969AAADC5948E55A0A5D6853F07440
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +334,8 @@ magnet:?xt=urn:btih:C73367A3C8969AAADC5948E55A0A5D6853F07440
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +363,8 @@ Lynda.com | 3D Printing with ZBrush (2014) PCRec [H.264/720p-LQ] [RU/EN]
 magnet:?xt=urn:btih:ABDBEA72DE5507831764FBBCCB411697FCA43CAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +390,8 @@ Udemy.com | Introduction to 3D Coat (2015) PCRec [H.264/720p-LQ] [RU/EN]
 ```bash
 magnet:?xt=urn:btih:488AA5CBE189497316AC23405617355952E1A144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +420,8 @@ CtrlPaint.com | Arena Design. Portfolio Builder (2016) PCRec [H.264/1080p-LQ] [R
 magnet:?xt=urn:btih:A08648467506363D5C878B6C044B90330821D239
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +445,8 @@ FlippedNormals, Henning Sanden | Switching to Blender for Experienced Artists (2
 ```bash
 magnet:?xt=urn:btih:D197511576B361A2EF44F0A30E416B648675DCFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +475,8 @@ magnet:?xt=urn:btih:D197511576B361A2EF44F0A30E416B648675DCFD
 magnet:?xt=urn:btih:AD56B0C6AAFC34F6A5470DF1CDD39DDC7C8A6C20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +504,8 @@ magnet:?xt=urn:btih:AD56B0C6AAFC34F6A5470DF1CDD39DDC7C8A6C20
 magnet:?xt=urn:btih:973EA2B49138B56F58CDED0B0261D5EFF75C6978
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +529,8 @@ ITVDN | Онлайн курс Golang (2018) PCRec [H.265]
 ```bash
 magnet:?xt=urn:btih:01CD182660383FD5579B51A191A81169C0E0ED7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +558,8 @@ magnet:?xt=urn:btih:01CD182660383FD5579B51A191A81169C0E0ED7C
 magnet:?xt=urn:btih:24EEFD0F1646BBD35C11078FD313A361E0E9A845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +583,8 @@ FilmeditingPRO | Секреты креативного монтажа / Secrets 
 ```bash
 magnet:?xt=urn:btih:9B2CC101B6D3B6683DA15597E517E50B6584B5DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +613,8 @@ magnet:?xt=urn:btih:9B2CC101B6D3B6683DA15597E517E50B6584B5DB
 magnet:?xt=urn:btih:191E51A66703A92579416F0E72BF2FFA03697EC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +641,8 @@ magnet:?xt=urn:btih:191E51A66703A92579416F0E72BF2FFA03697EC6
 magnet:?xt=urn:btih:F7DD2F35B40C9885FC2CEF8DDF8E24F813D1AEF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +666,8 @@ Lynda.com | Основы построения бренда (2014) HDRip [H.264/7
 ```bash
 magnet:?xt=urn:btih:9CD4750EF934EFCA1745A446334E7E7A2A11B863
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +694,8 @@ CG Cookie | Моделирование мотоцикла в Blender 2.69 / Mode
 magnet:?xt=urn:btih:985374F3463D3BC9D2AE4DB6BCADA4044088FE45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +719,8 @@ CG Cookie | Моделирование и анимация Sci-Fi люка в Bl
 ```bash
 magnet:?xt=urn:btih:559A9CFF97B177D1243EF305E04D9886EA10A8AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

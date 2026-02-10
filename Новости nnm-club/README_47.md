@@ -19,6 +19,8 @@ Shinchou Yuusha: Kono Yuusha ga Ore Tueee Kuse ni Shinchou Sugiru | Этот г�
 magnet:?xt=urn:btih:66C90F5BDCC05643906443718E42C526CC53DFAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Hataage! Kemono Michi | Kemono Michi: Rise Up | Дорога зверя [2019, T
 ```bash
 magnet:?xt=urn:btih:AB3E0CC5451833F0C0E50315015C3E41747EF7BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Kerish Doctor — комплексное решение для автомати�
 magnet:?xt=urn:btih:8C43F0E530F7DA95971A843099DCDCCFD7957488
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:8C43F0E530F7DA95971A843099DCDCCFD7957488
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:8C43F0E530F7DA95971A843099DCDCCFD7957488
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:8C43F0E530F7DA95971A843099DCDCCFD7957488
 ```bash
 magnet:?xt=urn:btih:6EFD4877E935700DA59D43FEBA27B9273E7FE51D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:6EFD4877E935700DA59D43FEBA27B9273E7FE51D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:6EFD4877E935700DA59D43FEBA27B9273E7FE51D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ Hitman: Absolution – долгожданное продолжение сери�
 ```bash
 magnet:?xt=urn:btih:FFE8BAC65D1B466649F7E7D04D5326606F0E2252
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:FFE8BAC65D1B466649F7E7D04D5326606F0E2252
 magnet:?xt=urn:btih:07326CE87B52E00ECD4F95E69631B7DA79A1BAFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:07326CE87B52E00ECD4F95E69631B7DA79A1BAFA
 ```bash
 magnet:?xt=urn:btih:CD53E80FDBCD007DB4DEBB0316BE0BE77E289E2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Windows-Defender (По умолчанию выключен. Добавлен п�
 magnet:?xt=urn:btih:041275CE0065C02836F4731FE49B3B3BED773D22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:041275CE0065C02836F4731FE49B3B3BED773D22
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Need for Speed: Hot Pursuit (2010) [Ru/En] (1.0.5.0s) RePack =nemos= [Limited Ed
 magnet:?xt=urn:btih:839C2F7C527AFDEE7F7A701260F7ACAA4E49BCFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Counter-Strike (от англ. - «Контрудар»; сокр. CS или К�
 ```bash
 magnet:?xt=urn:btih:710826DF35A5B1021590B23DC3729CF15D7A42AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:710826DF35A5B1021590B23DC3729CF15D7A42AC
 magnet:?xt=urn:btih:FC3BC6B49D59BD10FCEC29400DFBF8F500191F87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2016.12.29 [Ru]
 magnet:?xt=urn:btih:5E0AB5D9274F488D2131CE3D87CCDBD49F1F9BBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:5E0AB5D9274F488D2131CE3D87CCDBD49F1F9BBD
 ```bash
 magnet:?xt=urn:btih:6700842E6E53120596E747CC89CA8A7BE94FF9DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Garmin: Дороги России Топо 6.29 [Ru]
 magnet:?xt=urn:btih:1126DA7786864E80FEA350A49995D47383E84320
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ One-Punch Man / Ванпанчмен [2015, TV, 12 из 12 + 1 из 6 SP] HDTV 7
 magnet:?xt=urn:btih:95D31C94F37A941DEA932000612B46B3ED49B64D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:95D31C94F37A941DEA932000612B46B3ED49B64D
 ```bash
 magnet:?xt=urn:btih:A4FD998322949024928E3AE0A043BD1DA4B8C71C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:A4FD998322949024928E3AE0A043BD1DA4B8C71C
 magnet:?xt=urn:btih:4C9F0404AE4D484C043EBA9303E7A7FD49F0C39E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:4C9F0404AE4D484C043EBA9303E7A7FD49F0C39E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:4C9F0404AE4D484C043EBA9303E7A7FD49F0C39E
 magnet:?xt=urn:btih:17DC27FC840341BF0424A70A0BCC13FBBB3AD35C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:17DC27FC840341BF0424A70A0BCC13FBBB3AD35C
 magnet:?xt=urn:btih:4F2EB9C36FC377598DE327A5BC39794A463FB0E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Wondershare Filmora Effect Packs 4 RePack by elchupacabra [Ru]
 ```bash
 magnet:?xt=urn:btih:80A0B3852DBE94E4F7F6792CE8D0438D1AE8C039
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

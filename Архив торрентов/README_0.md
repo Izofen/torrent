@@ -22,6 +22,8 @@ Purvpn 9.4 [En/Farsi]
 magnet:?xt=urn:btih:48BD2D7D320C642B7D1F3C33FDEB1F5FC30D2A2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:FBFD016E4EC5205C3BC1143E6514FA245C070437
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Vivaldi 7.6.3797.55 include standalone [Multi/Ru]
 magnet:?xt=urn:btih:1E0E2A17CE17ABBC2BDFB6B9CE5F9C726A62BD49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Imagine - это бесплатный просмотрщик изображен�
 ```bash
 magnet:?xt=urn:btih:A3F22A557C095B3EDE7D42976F2F2E41699CA7C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Affinity Designer — самое быстрое, удобное и точное 
 magnet:?xt=urn:btih:ADFB45FA7B34B24F9285E821817B2F699D103EDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ ExamDiff - мощная и легкая в использовании прогр
 magnet:?xt=urn:btih:A6DA05E142B9BF445A62D144DC57738A195C1EF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Affinity Publisher - программное обеспечение нового 
 ```bash
 magnet:?xt=urn:btih:F5726C7181343E105FE00374F6560F1E684204F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Purvpn 9.3 [En/Farsi]
 magnet:?xt=urn:btih:BB3CBBF94887066434BB09406F4B13A27693427E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:A8168BAA6A559BCF53D1DF897F12EBDEA63106CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:6FB7ECA433E29E23368186D369F727CAB99FD02D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:CCB2C4677BA051BF90BD71D1A7460460499F29CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Psiphon - это новый инструмент обхода интернет-�
 magnet:?xt=urn:btih:53D0F210B37257D350B0A57F4950066CBBE05A80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ PictureThis - Plant Identification v5.12.0 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0F70AA916686B1225E8AAB927F5266A03FDCDFC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ RUTUBE — официальное приложение одноименной о
 magnet:?xt=urn:btih:81396621216D15D73713F7C62F91C85FB06E416C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:81396621216D15D73713F7C62F91C85FB06E416C
 ```bash
 magnet:?xt=urn:btih:9845510116886A912E37F00EF122A6EA42769706
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Affinity Photo — обеспечивает более высокую скоро
 magnet:?xt=urn:btih:BC51011FF9866FA64A04FDADA1D696F243B4E8D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Remini / Улучшение Фото v3.7.1070.202515697 Mod by Mixroot [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:1070B25D5E33CC9551D0433BB3923C127FDE218A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Flyoobe (Ранее назывался Flyby11) — это простой пат
 magnet:?xt=urn:btih:A942D91C900A4D9F9C78A1FD4F72662A6DF379BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:8971E36CF5DA0E45CECE4E51FF413F528AFFA955
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:0DDB432D22B0DA74A2464D7C919AFF89C8EA0D02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:66B70B84F8CB95903601A225D2D96793922ED812
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:66B70B84F8CB95903601A225D2D96793922ED812
 magnet:?xt=urn:btih:C0FE53FA413594700C02F50BEBEAFB6C798CE0E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:01146279BFA78B5FB6D0E36092BE9EE292C51821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ MassTube — очень простая в использовании прогр�
 magnet:?xt=urn:btih:D40DE4D3CC5160613D84AF714D5BFE0C8989E4A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Opera One 122.0.5643.51 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:4CA8360DE63950B26032D114640DFB675CB245A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Vivaldi 7.6.3797.52 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B4325190832BAD3252B314BEFB25D1FDD7E588CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

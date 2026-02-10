@@ -22,6 +22,8 @@ Octohpera - Bons Amigos (2002) [FLAC|Lossless|tracks + .cue] <(GentleGiantish) E
 magnet:?xt=urn:btih:2C4902F9CF0644C8A45DB75C14632F2001C81E84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:2C4902F9CF0644C8A45DB75C14632F2001C81E84
 ```bash
 magnet:?xt=urn:btih:20CF67DE9D6A8D8C5BA58F738F6437AF647B3BA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Chill Out Perfection, Vol. 2 (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Dow
 magnet:?xt=urn:btih:7D677AAE8DE5A3D7A677D38F754956FB8E231A11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Stepik | Делаем бота с Aiogram, SQLAlchemy(PostgreSQL) и Docker (202
 magnet:?xt=urn:btih:55E5E6A2D9E4FF689324AFC97A93CDB9E7737E35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:55E5E6A2D9E4FF689324AFC97A93CDB9E7737E35
 magnet:?xt=urn:btih:3CB48F1765D18F303CC136FE2174A756DCFDC251
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:3CB48F1765D18F303CC136FE2174A756DCFDC251
 ```bash
 magnet:?xt=urn:btih:2AAEF4502718C7CAC9199DA090CA9AC6F89C72A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ ru-ru_windows_10_business_editions_version_22h2_x64_dvd_61849fe8
 magnet:?xt=urn:btih:5361156BBB2602FAE2A446F23A222AC01DB78CB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ TurboMosaic — программа, позволяющая легко и быс�
 ```bash
 magnet:?xt=urn:btih:7332BFA4A0D0437F22BB955A15623854A3D536DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:7332BFA4A0D0437F22BB955A15623854A3D536DC
 magnet:?xt=urn:btih:6FF28986EBC63D1497D176321EAB16FDA3DB9FB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ Cloud Paint - простое в использовании действие фо
 ```bash
 magnet:?xt=urn:btih:ACED9677A4959D4C93DD8CAAC5D7B867F1D6332A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ VA - EDC Fundamental Wave (2020) [MP3|320 Kbps] <Techno, Tech House, Electro>
 magnet:?xt=urn:btih:EA3B69F304ED416926DDF0F737DB0F3BD0D108D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ VA - Mystical Frequencies (2021) [AAC|~328 Kbps] <Psy-Trance>
 magnet:?xt=urn:btih:1F9AA5805516709F616270359A737B2A6264F034
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:1F9AA5805516709F616270359A737B2A6264F034
 ```bash
 magnet:?xt=urn:btih:40546BDB6F053571472523EA82070A23D822F002
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:40546BDB6F053571472523EA82070A23D822F002
 magnet:?xt=urn:btih:4E00996C2CA1C78A6DE1DE503945C8CAEEA05718
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ Apple Remote Desktop – лучший инструмент для управле
 ```bash
 magnet:?xt=urn:btih:DEB4C86E3D0AA85269ADF371955322F02FECB3CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:DEB4C86E3D0AA85269ADF371955322F02FECB3CA
 magnet:?xt=urn:btih:AEE86C05B2E74040FD45B31AE7F608064AEEDCBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:AEE86C05B2E74040FD45B31AE7F608064AEEDCBC
 ```bash
 magnet:?xt=urn:btih:B05F3A8960E18B538A5623EA27D1B7FBE7DDBA7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ Workspaces запускает все, что вам нужно для вашег
 ```bash
 magnet:?xt=urn:btih:4444C8D2E3204F23E573E9E93DE1FE228819F490
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ Doro - Maximum Celebration - Strong and Proud (2023) Promo EP [FLAC|Lossless|ima
 magnet:?xt=urn:btih:7BB6B845D35C1525BBEC9EFAEEE728B135C3F26D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ Geometric Christmas Patterns. Идеально подходит в качест�
 magnet:?xt=urn:btih:9DD3D9362EF142E3AF01FA26F9F7133256743DF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ GraphicConverter 11 — полнофункциональный графичес�
 ```bash
 magnet:?xt=urn:btih:845228189D005A9AD60246ED320F036858399A7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ Vibrion - Bacterya (2016) [FLAC|Lossless|image + .cue] <Death Metal>
 magnet:?xt=urn:btih:D871CEC512A67884C5524478CFA415D954B9ECA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:D4B5EAF6A70B39A1AE042704F6DBE46471409522
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ magnet:?xt=urn:btih:D4B5EAF6A70B39A1AE042704F6DBE46471409522
 magnet:?xt=urn:btih:54533C6C93FA469A8A0E696D32481FD0BBFC32DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ Lynda.com | JavaScript: Прототипы / JavaScript: Prototypes (2018) PCRec
 magnet:?xt=urn:btih:F9CCAC1E6F0F9361E3D27F2E5F30937C245BC424
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:F9CCAC1E6F0F9361E3D27F2E5F30937C245BC424
 ```bash
 magnet:?xt=urn:btih:52E2C15AAE96596827E7EAA043579DB71934B608
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

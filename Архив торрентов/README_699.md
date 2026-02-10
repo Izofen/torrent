@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:74AF2133761AA731314CCDAF921D26EE8A48D98D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ VA - (I Got No Kick Against) Modern Jazz (1995) [MP3|320 кб/с]<Jazz-Pop, Voca
 ```bash
 magnet:?xt=urn:btih:517EC1A9F6F0B67CF9DB873DD214447B04A2B85D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -88,6 +92,8 @@ magnet:?xt=urn:btih:517EC1A9F6F0B67CF9DB873DD214447B04A2B85D
 magnet:?xt=urn:btih:D29BE8C01FA9BA0CD374B8475A46D948E4AA6CFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +127,8 @@ VA - Весенняя капель хитов Europa Plus (2012) [MP3|202-272 kb
 magnet:?xt=urn:btih:94196B2C4C3330AE21EF4D21E6B2D78E30CBFAAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +157,8 @@ magnet:?xt=urn:btih:94196B2C4C3330AE21EF4D21E6B2D78E30CBFAAA
 magnet:?xt=urn:btih:72105CFB83A91FB4344D80311A04CF26DABE5B52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +183,8 @@ Marlene Dietrich - Falling In Love Again (2009) [MP3|320 кб/с]<Retro, Cabaret
 magnet:?xt=urn:btih:54D6244AA0AE78349AC9B4C9633C7ECACD907EC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +208,8 @@ NG: Жизнь до рождения: Собаки / In The Womb. Dogs (2008) HD
 ```bash
 magnet:?xt=urn:btih:2CC6829D322F6264E92D3661E3E0BAB14975BE76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +240,8 @@ magnet:?xt=urn:btih:2CC6829D322F6264E92D3661E3E0BAB14975BE76
 magnet:?xt=urn:btih:024F52F93CE3927D71A5A292B006D9978E1BF487
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +265,8 @@ magnet:?xt=urn:btih:024F52F93CE3927D71A5A292B006D9978E1BF487
 ```bash
 magnet:?xt=urn:btih:0943E448BD5DC2989BB91C4FB01025E13A7CDEF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +295,8 @@ magnet:?xt=urn:btih:0943E448BD5DC2989BB91C4FB01025E13A7CDEF9
 ```bash
 magnet:?xt=urn:btih:25523BEA685EAFCE95FDA22EF8BE16412E33D46C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +327,8 @@ magnet:?xt=urn:btih:25523BEA685EAFCE95FDA22EF8BE16412E33D46C
 magnet:?xt=urn:btih:C104FE33B69B09221DEB39219FF7B95392A4DFD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +353,8 @@ magnet:?xt=urn:btih:C104FE33B69B09221DEB39219FF7B95392A4DFD1
 magnet:?xt=urn:btih:F8454CF47D1A4A12E666F6DB3606F70159D018A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +378,8 @@ magnet:?xt=urn:btih:F8454CF47D1A4A12E666F6DB3606F70159D018A0
 ```bash
 magnet:?xt=urn:btih:51421D89F83A002FCB59A9EAD63295F1EE174D51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +414,8 @@ VA - Devil In The Detail (2007) [MP3|320 Kbps]<Downtempo, Ambient, Psy Chill, Ps
 magnet:?xt=urn:btih:C2FBA9C4851AB3A70CCAE04BD26D6CDFA445A279
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +449,8 @@ Gabriel & Dresden - Live at Pacha, NYC (02-03-2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:F9685F9C55DC9B1E452D38CAB315C55B0DF16BDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +478,8 @@ magnet:?xt=urn:btih:F9685F9C55DC9B1E452D38CAB315C55B0DF16BDE
 ```bash
 magnet:?xt=urn:btih:2D5F207DD55BFE42780B2D7C0EFC93137A3FCBF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +514,8 @@ magnet:?xt=urn:btih:2D5F207DD55BFE42780B2D7C0EFC93137A3FCBF2
 magnet:?xt=urn:btih:339A94761B38ECB238F5F8F24BF35896CCD0367E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +544,8 @@ magnet:?xt=urn:btih:339A94761B38ECB238F5F8F24BF35896CCD0367E
 magnet:?xt=urn:btih:598A09B002BB0E2CEFCC9CB3F6B193C3099E05FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +571,8 @@ magnet:?xt=urn:btih:598A09B002BB0E2CEFCC9CB3F6B193C3099E05FA
 magnet:?xt=urn:btih:8BEDC84964F55047E0D83B8ED7D0EAF72E4B6D2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +596,8 @@ Playboy — легендарный журнал для мужчин, основ�
 ```bash
 magnet:?xt=urn:btih:B1C2C8D34A84E050F393BFF5A6AABA19154BE871
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +623,8 @@ Orbit Downloader 4.1.0.4 Final [Multi/Rus]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +649,8 @@ Orbit Downloader 4.1.0.4 Final [Multi/Rus]
 magnet:?xt=urn:btih:497EBA61DF655B5F69C9EEBDCD568C093502922F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +674,8 @@ magnet:?xt=urn:btih:497EBA61DF655B5F69C9EEBDCD568C093502922F
 ```bash
 magnet:?xt=urn:btih:3B022A0C567A755B7C7F3B6564C52755D486240B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +710,8 @@ Hour 1:
 magnet:?xt=urn:btih:B0DEE6A43050D6F3E0B7FB97BE50714F20026441
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -691,6 +739,8 @@ magnet:?xt=urn:btih:B0DEE6A43050D6F3E0B7FB97BE50714F20026441
 ```bash
 magnet:?xt=urn:btih:086818E04E6BB81151903A7E9A48BD97F1730F0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -724,6 +774,8 @@ Sebastian Ingrosso - Refune Radio (2012) [MP3|320 kbps]<House, Progressive House
 ```bash
 magnet:?xt=urn:btih:C1D1C08EC9EB2730D6C67A7DEE3E306DCE4401F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:39E001D6FDC1B3975A8013BDC1A73CCA297071DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:39E001D6FDC1B3975A8013BDC1A73CCA297071DD
 ```bash
 magnet:?xt=urn:btih:7E76739ED8AA6E0AD9255953E24E9F48C6DCAC22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:7E76739ED8AA6E0AD9255953E24E9F48C6DCAC22
 ```bash
 magnet:?xt=urn:btih:35EA89CB0536022E0D2BD3A353F7F80848A190A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ VA - Now That's What I Call Merry Christmas (2018) [FLAC|Lossless|tracks + .cue]
 magnet:?xt=urn:btih:9940BA00180FF74CE3BA9AC5730F2BD44289A667
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:9940BA00180FF74CE3BA9AC5730F2BD44289A667
 magnet:?xt=urn:btih:176EA1EAD1E4012B87685203C0BBE517774F840F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ GreenCloud Printer – драйвер виртуального принтера,
 ```bash
 magnet:?xt=urn:btih:068DCD18939CE4A191D47D019907189D25F40BC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Prisma — приложение, которое превратит любую, �
 magnet:?xt=urn:btih:0AC9A3DB5F53416F3511BAD69175F2F5C879F07B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:0AC9A3DB5F53416F3511BAD69175F2F5C879F07B
 ```bash
 magnet:?xt=urn:btih:3F8A4B813B016CEC7BDBA59D4D049ECD29B844CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Asterix & Obelix XXXL: The Ram From Hibernia (2022) [Ru/Multi] (1.03.2) License 
 magnet:?xt=urn:btih:602E19F437B25510660B510DA88D64FA731B6D47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Q-Dir - бесплатный, отличный файловый менеджер
 ```bash
 magnet:?xt=urn:btih:8FAA512EFFB4E3DB411F8688549E59107367F283
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:8FAA512EFFB4E3DB411F8688549E59107367F283
 magnet:?xt=urn:btih:9762E03A16633E0D239013CAB77437858E1BC042
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:9762E03A16633E0D239013CAB77437858E1BC042
 ```bash
 magnet:?xt=urn:btih:9D4CBE02DCE49EA7EB5A0D99424B2A1EFA454757
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:9D4CBE02DCE49EA7EB5A0D99424B2A1EFA454757
 magnet:?xt=urn:btih:E8594BD1381FC9891529A31E8026A111A9568175
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:E8594BD1381FC9891529A31E8026A111A9568175
 ```bash
 magnet:?xt=urn:btih:FFB0464D9388DB28E4C76609E21B4DA5739F0B0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ MusicBrainz Picard - простая в использовании програм
 magnet:?xt=urn:btih:8C53EEAF87D361C11365FF529BABFDAC8866E458
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Icarus – free-to-play многопользовательская коопер�
 ```bash
 magnet:?xt=urn:btih:04742FE9E6A2B14A050BBF80CE27383B5FC83E9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:04742FE9E6A2B14A050BBF80CE27383B5FC83E9C
 magnet:?xt=urn:btih:8E70A4F40D49EE9B0A8936A2AC6999AF842A9BA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:8E70A4F40D49EE9B0A8936A2AC6999AF842A9BA2
 ```bash
 magnet:?xt=urn:btih:33C00F7D62A4BA950E306BCDCBBDCCB755709EF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ The Piano Guys - The Piano Guys (2013) [FLAC|Lossless|WEB-DL|tracks] <Classical 
 magnet:?xt=urn:btih:E3C40C4786C00A855D0DD6FFA2F9DAFF0557129A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Linux Magazine - журнал, целиком посвященный опера�
 ```bash
 magnet:?xt=urn:btih:F0A6573A0E04F1F75447AD91DB85CEF23FBDF7E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:F0A6573A0E04F1F75447AD91DB85CEF23FBDF7E5
 magnet:?xt=urn:btih:9770FF82218E586D4142FBEFC668E89323B8BD3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:9770FF82218E586D4142FBEFC668E89323B8BD3F
 ```bash
 magnet:?xt=urn:btih:59FF43FB2367BF7EAEC07E51DC9CA752E2A17237
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ System Ninja - бесплатная утилита для быстрого и а
 magnet:?xt=urn:btih:A639C9D9F6C772CE9FFB604F2F5AAF2A6524AF90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Frolomuse - бесплатный музыкальный плеер, с мощн�
 ```bash
 magnet:?xt=urn:btih:FA95900799867662F2AA976C68DBD6FF9EFFAE64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ Leonore O'Malley - First Be A Woman (1980) LP [MP3|320 Kbps] <Electronic, Funk/S
 magnet:?xt=urn:btih:85C04B109A340DFEFD6245BB9942E62017264842
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:85C04B109A340DFEFD6245BB9942E62017264842
 ```bash
 magnet:?xt=urn:btih:A9DB3AAA9D4211DBAD40B80F94FA991590BB36E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

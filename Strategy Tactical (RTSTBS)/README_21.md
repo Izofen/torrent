@@ -19,6 +19,8 @@ UFO: Alien Invasion (с англ. «НЛО: Вторжение Иноплане
 magnet:?xt=urn:btih:440D3F50B6747282EE10FC0255CBA0F01A0CD2F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Eador: Masters of the Broken World / Эадор: Владыки миров (2013
 ```bash
 magnet:?xt=urn:btih:F895B3DEAC5C0CCF26E6D7D3403ABE69FFF43085
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Siegecraft Commander (2017) [En] (1.2.3962) License PLAZA
 magnet:?xt=urn:btih:E868EDF2D606D8F2629723586C3F397118CC7FF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Warhammer 40,000: Mechanicus (2018) [Ru/En] (1.3.7/dlc) Repack xatab [Omnissiah 
 ```bash
 magnet:?xt=urn:btih:5E32D003195C2E42B8E039E85FD8E35A72EF8410
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Warlock: Master of the Arcane - новая стратегическая игра
 magnet:?xt=urn:btih:B07086AB3C8D7D324B27638F6DE1538D7E065534
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Battletech - это пошаговый ролевой экшен с робота
 ```bash
 magnet:?xt=urn:btih:D9D0B8DF17E128418CA9768D185E75382429A4B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ TВьетнамская война — один из самых неоднозн
 magnet:?xt=urn:btih:F58FEA8F04DD9AE565DDA8BED764283A20A24D87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Shadow Tactics - реалистичный тактический стелс-си
 ```bash
 magnet:?xt=urn:btih:43900CC81DEBD25A28840037C8F5EB2363E2C16A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ CORRUPTION 2029 – это новая тактическая стратегия 
 magnet:?xt=urn:btih:A8B19EB10F530991D624B50946985F5F9241FE77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ XCOM: Enemy Unknown (2012) [Ru/En] (1.0.0.4963/1.0.0.9040) Repack R.G. Меха�
 ```bash
 magnet:?xt=urn:btih:62248F70CA143632F8EBE7A03C4BF5ADBDC9B363
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Eador: Masters of the Broken World / Эадор: Владыки миров (2013
 magnet:?xt=urn:btih:00178D62819825AF17178D4D46311286596C9A37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ WARSHIFT совмещает в себе сразу несколько жанро
 ```bash
 magnet:?xt=urn:btih:CE6742137EAD8A264874B81375931C00435F2B1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Worms Ultimate Mayhem / Worms: Убойные разборки (2011) [Ru/Multi]
 magnet:?xt=urn:btih:959744F4F0478CC8B4954582A95458650F253899
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Men of War: Red Tide — это великолепная смесь страте
 ```bash
 magnet:?xt=urn:btih:9B0E8D5D507D88DE97ECEA791F37F52E577706C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Highborn [En] (Repack) 2013 | FANISO
 magnet:?xt=urn:btih:00EE1CEE02751C73656497BC541E41C1A4D7624E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Sword Legacy Omen (2018) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:474F07A64224E3E17445B40E9EAFF33E67C2A11F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ March of the Eagles [En] (RePack) 2013 | FAIRLIGHT
 magnet:?xt=urn:btih:3DC3FBD907BCF3355B4B4547D6F18C533694EC76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Warlock: Master of the Arcane - новая стратегическая игра
 ```bash
 magnet:?xt=urn:btih:6AFF3D86F693FA2695728617B93527F8F8EB914E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Man of Prey / Мародер [En] (L) 2009 | PROPHET
 magnet:?xt=urn:btih:436A2309B2E5A8D8A9AED9886098D6CC082C9B1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Praetorians - HD Remaster (2020) [Ru/Multi] (4.22) License PLAZA
 magnet:?xt=urn:btih:A04096E6567C7A1E3E1B0D0B8EBB7099ECEF564E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Automachef (2019) [Multi] (1.1.0.0.380) License PLAZA [Lunar Update]
 ```bash
 magnet:?xt=urn:btih:4D89D8E9951545F8B904394AE583AD4A39A34A73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Men of War: Assault Squad Game of the Year Edition [Ru/En/Multi7] (L/2.05.15) 20
 magnet:?xt=urn:btih:009584835471FD613E446ECD6CABA9BAE2BDA1A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Warlock: Master of the Arcane - это новая стратегическая �
 magnet:?xt=urn:btih:A529476614347EB52EC88597AB732CC8452EE107
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ Desperados Anthology / Антология Desperados [Ru] (RePack) 2001-2009 | a
 ```bash
 magnet:?xt=urn:btih:919B0E0BEC869DEB952ECABCD45D333208521F58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ Helldorado [En/Multi5] (L) 2009 | *PROPHET*
 magnet:?xt=urn:btih:AF9AB2B4F7217CAEC5BC67C9C53372C22D6A363E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Fantasy Wars / Кодекс войны [Ru] (RePack/1.0.9.3) 2007 | Audioslave
 ```bash
 magnet:?xt=urn:btih:6A92B438191C0DBA40ABE8FFB291704A457B0AB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

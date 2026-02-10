@@ -19,6 +19,8 @@ MySims Kingdom [Wii] [PAL] [Multi 9] (2008)
 magnet:?xt=urn:btih:7A517C7D555BE5929F87ADFF303378887DC8024A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Fire Emblem: Heroes of Light and Shadow (2010) [NDS] [JPN] [Unofficial] [En]
 magnet:?xt=urn:btih:92EEB9932C51F528515506AB10DACC816ABE4643
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Fallout 3: Game of the Year Edition (2008) [PS3] [EUR] 4.21+ [Repack / ALL DLC] 
 ```bash
 magnet:?xt=urn:btih:5D4C63B05139508DC7A6BE6E0E40348E2DC65EE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Fallout 3 (2008) [PS3] [EUR] 2.60 [License / 5 DLC] [Ru] | HiddenEX-PS3
 magnet:?xt=urn:btih:D3E8CD39287C7485EB72E2C5FF37A4327ADDC69F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Left 4 Dead: Dilogy (2008 - 2009) [Xbox360] [RegionFree] 7371 - 8507 [Freeboot] 
 magnet:?xt=urn:btih:E0CF7162A654D9D2F37FDFDE5C5C48C7DDE1E900
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Silent Hill HD Collection [PS3] [USA] [Ru] [3.40] [Cobra ODE / E3 ODE PRO ISO] (
 ```bash
 magnet:?xt=urn:btih:A2896E9433A38A6EEA12A552787642A3B499CB33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Puppeteer / Кукловод [PS3] [MOVE] [EUR] [RUS] [4.46] [Cobra ODE / E3 ODE
 magnet:?xt=urn:btih:90A12AD81B684B921A5BFDCB2D5185E6D1C6DBDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ The Simpsons Game [PS3] [EUR] [En] [1.93] [Cobra ODE / E3 ODE PRO] (2013)
 ```bash
 magnet:?xt=urn:btih:F052A86118D7DF00015AEF199DC21A9C056081D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Metal Gear Solid: [ENG] (2010) [PSP]
 magnet:?xt=urn:btih:15E661200B630B0F81B515686D933EFE5B753C56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Furu Furu Park уникальный аркадный сборник, насчи�
 ```bash
 magnet:?xt=urn:btih:77DA2943C246DD431F6F6EF1DF4EF300F28DD8E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Sega Bass Fishing (2011) [PS3] [EUR] 4.21 [PSN] [Multi] [MOVE]
 magnet:?xt=urn:btih:80F925346EF75777328FBF729A4A2796D5255150
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Ace Attorney Investigations 2: Miles Edgeworth: Prosecutor's Path (2011) [NDS] [
 ```bash
 magnet:?xt=urn:btih:0CAC95D2AEC0C1A7A3393399F4253C118F446DD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ South Park: The Stick of Truth / Южный парк: Палка Истины [R
 magnet:?xt=urn:btih:B5B10E0C6AE7AB5751916E1A6F71999EB4029180
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ Metal Gear Solid V: Ground Zeroes является прологом к игре 
 magnet:?xt=urn:btih:CA6BDB334E94162B71C521D3A7CED42A2F8F66B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ Tekken 5 продолжает традиции культового файтин
 magnet:?xt=urn:btih:EFF90C104A454B6A0AD61C4394E9E5C4C66B2B9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ Let’s Dance with Mel B - это единственная танцевальн�
 ```bash
 magnet:?xt=urn:btih:9983BD359C31567DB6A27940676203BF1835FD4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ Super Street Fighter IV: Arcade Edition  [PS3] [USA] [Eng] [3.60] [Cobra ODE / E
 magnet:?xt=urn:btih:447769C52F64C7FEE2EB9D10771FF74D6DD0DAA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ Battle of the Bands [Wii] [PAL] [English] (2008)
 magnet:?xt=urn:btih:E94B4ECBF3243177DDD0C2BB38C24EF5D68F97DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ Gravity Rush (2012) [PSVita] [USA] 3.60 [HENkaku] [Unofficial] [Ru]
 ```bash
 magnet:?xt=urn:btih:3D4429A7D56DF07E0FE7D5214EEA85E78761E0F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:3D4429A7D56DF07E0FE7D5214EEA85E78761E0F6
 magnet:?xt=urn:btih:77FD8C48919993DBE6831CEACDC48C69C7E93B94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ Just Dance 4 – следующая игра в популярной танце�
 magnet:?xt=urn:btih:1414509AD2AFD597081DBED38EA1DD2CB966A020
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:1414509AD2AFD597081DBED38EA1DD2CB966A020
 ```bash
 magnet:?xt=urn:btih:D536BDFFC6CBD129E98125DF7BA63E6EA3D6C95F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:D536BDFFC6CBD129E98125DF7BA63E6EA3D6C95F
 magnet:?xt=urn:btih:981FFCA84AC47DB23D04553B03905EE8C9827157
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:981FFCA84AC47DB23D04553B03905EE8C9827157
 ```bash
 magnet:?xt=urn:btih:89B481BB1CFE596EFF4A12D9CAED53DD756113A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +664,8 @@ FIFA Street - футбольная игра повторяющая стиль у
 magnet:?xt=urn:btih:B3B59BD9FB0D4B70073559AEFFC50EFA7AAC30D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ Just Dance 3 – новая часть серии Just Dance, состоящая
 ```bash
 magnet:?xt=urn:btih:7A437196486C1AC88D6B0846BF6796B85736C61E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

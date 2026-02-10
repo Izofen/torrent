@@ -19,6 +19,8 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack Wanterlude [Digital Delu
 magnet:?xt=urn:btih:D2EE55D3D1A45B4FF7E4835D7445EAE21C4CB977
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack FitGirl [Digital Deluxe 
 ```bash
 magnet:?xt=urn:btih:0B8E11587C8FAB87FCBA1E9DB5A57261A04E30F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack seleZen [Digital Deluxe 
 magnet:?xt=urn:btih:16D26A85AA61D2ADD34F3B1E93BE78D9C01D4AF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Scene Rune [Digital Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:BB8CADC93A14D76B3B5EB36357D35ED79E7BC786
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Craft the World объединяет в себе наиболее интерес
 magnet:?xt=urn:btih:E1FD295911293C7295010D33DD92A575A28AC241
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Yet Another Zombie Survivors (2023) [Ru/Multi] (B.0.9.0a) Repack Let'sРlay [Ear
 ```bash
 magnet:?xt=urn:btih:33BB7237FBD3E2BB5420F7DCBA578AB667C8B51A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Project Warlock II (2) (2022) [Ru/Multi] (1.0.1.26) License GOG
 magnet:?xt=urn:btih:4384C11F5EAE9EE0EF7EC281A95D2700057C4A41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Reality Break (2025) [Multi] (1.1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:1D265ED7707760381B6AF09330F409653C2AAC2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Frostpunk 2 открывает новые грани жанра выживани
 magnet:?xt=urn:btih:51C5A4A5001DEED05C15BF56A04F564E874EB35D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Swordhaven: Iron Conspiracy с головой окунает вас в полн�
 ```bash
 magnet:?xt=urn:btih:F223758DC46079B2F03C3637AC6B43DD495B7D85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Star Valor - космическая игра в жанре экшен-РПГ, г
 magnet:?xt=urn:btih:15CD3C7B898FA0DDD6546BAB71F695908943F176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ DRAGON BALL: Sparking! ZERO - продолжение легендарной се
 ```bash
 magnet:?xt=urn:btih:AFE2CEDBBB6DC734295776C1CE030833D966BE08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Hell Clock (2025) [Ru/Multi] (1.0.3 HF4/dlc) Repack Let'sРlay [Supporter Editio
 magnet:?xt=urn:btih:F2B757E904F21326EA119A02381ACEE88D6A75E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Static Dread: The Lighthouse - это игра в жанре хоррор, гд�
 ```bash
 magnet:?xt=urn:btih:2B389637A0612D8A57D53C83B4E257BF2CD83988
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack West4it [Digital Deluxe 
 magnet:?xt=urn:btih:61FFD9BC624778AAE50B8DF7BF8D7056A4726D72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Ctrl Alt Ego (2022) [Ru/Multi] (1.5.5) License GOG
 ```bash
 magnet:?xt=urn:btih:57F8735EBCFCE009F6D90950D8FE760467CF5408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ POSTAL: Brain Damaged - это новая динамичная версия ку
 magnet:?xt=urn:btih:A8BF2DE404B0964AA4974338E640392FD83AB1C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Orcs Must Die! Deathtrap — это безумные бои от третьег�
 ```bash
 magnet:?xt=urn:btih:712A482DE04B161E355458D3137BD332EE666D01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Headquarters: World War 2, увлекательная пошаговая стр�
 magnet:?xt=urn:btih:E3BB2E770383DEC240EE4BDE045F62A587F4A7EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:4764EFBC5FC882C922213FE4CCDD9491298680DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Do No Harm - это симулятор доктора с лавкрафтовс�
 magnet:?xt=urn:btih:FE5FFA1B8ACC08060A27ED0F7B3FC38C3C01CAA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ City Game Studio - стратегический симулятор, в кото�
 ```bash
 magnet:?xt=urn:btih:54321E6BEAB03ADDF74037D5556F0B293BCEF282
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Echoes of the End - кинематографичный приключенчес�
 magnet:?xt=urn:btih:067CAADA4F84C431E36FD63C6ADC93EE2FFDD8F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Fate: Reawakened - это сборник из четырёх экшен-РПГ, 
 ```bash
 magnet:?xt=urn:btih:FD0E8CDBD8DB8165345DF9706CACA014A1718FCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3781977) Repack dixen18
 magnet:?xt=urn:btih:D04E20940CB788A5B40677E91538E2AF5989FA13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Hell is Us - это приключенческий экшен от третье�
 ```bash
 magnet:?xt=urn:btih:75158107F16DB95827147CFD2F097364335F0BA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

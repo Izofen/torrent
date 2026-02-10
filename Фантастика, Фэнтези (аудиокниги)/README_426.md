@@ -1,3 +1,29 @@
+###  Публикация: 1131651   (704709) от 07.05.2017
+
+Наталья Косухина | Двадцать два несчастья (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда в город духов придут ветра, родятся семь ведьм, разной магии, но одной сущности. Большое и чистое сердце каждой будет открыто навстречу чужой беде, и, решившись помочь одному, спасут они многих. От зеленого проклятья, синего заклятья, красной ворожбы, желтой изводи. Белый яд проявится, кто-то черным отравится, а сиреневая беда доведет все до конца. Это первый (   Читать дальше...   )Жанр: Романтическое фэнтезиПродолжительность: 01:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BDAEB1EDAB2278EB2FDC58A4B4E988E882FF42B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1533475   (704750) от 24.02.2022
 
 Александр Шишковчук | Схрон. Дневник выживальщика (Книга 1) (2022) [MP3, Проводник]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:15243B6FF8649C05E5904B523A817512CBC8DFAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:15243B6FF8649C05E5904B523A817512CBC8DFAE
 ```bash
 magnet:?xt=urn:btih:FB54C26ECB7CD0755F6A04AB8B9465742DB0BECF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:FB54C26ECB7CD0755F6A04AB8B9465742DB0BECF
 magnet:?xt=urn:btih:09A590805CAA7D363398CFB687D9C6F5561BECBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:09A590805CAA7D363398CFB687D9C6F5561BECBA
 ```bash
 magnet:?xt=urn:btih:D9CB6D9233D5023CEF00A7257A4BDA17FBA92889
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:D9CB6D9233D5023CEF00A7257A4BDA17FBA92889
 magnet:?xt=urn:btih:7C2E3F31CA75CE4D1718A0AA8CCB656EF8048981
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:7C2E3F31CA75CE4D1718A0AA8CCB656EF8048981
 ```bash
 magnet:?xt=urn:btih:C1F5B45910F4C58DBD257054529FA7E20E4BD24A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:C1F5B45910F4C58DBD257054529FA7E20E4BD24A
 magnet:?xt=urn:btih:D86C3FCBEAA6DBE38BBD91857EAC4C0EB553C0C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:D86C3FCBEAA6DBE38BBD91857EAC4C0EB553C0C9
 ```bash
 magnet:?xt=urn:btih:DDC03BEDC15E9811F571ECB02EEF21A156AF5CA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:DDC03BEDC15E9811F571ECB02EEF21A156AF5CA4
 magnet:?xt=urn:btih:00AAA7CDC630059FBAF938CFA9D1D397A960A004
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:00AAA7CDC630059FBAF938CFA9D1D397A960A004
 ```bash
 magnet:?xt=urn:btih:09B89809726DA50D9D42BB857B2B39DD7F5F0C63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:09B89809726DA50D9D42BB857B2B39DD7F5F0C63
 magnet:?xt=urn:btih:57BF1C6A15EE165654CF2D2A0A3C635BB51EF0BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:57BF1C6A15EE165654CF2D2A0A3C635BB51EF0BD
 ```bash
 magnet:?xt=urn:btih:B363751C484E7386A5D849AD789C3DD0F95F5F4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:B363751C484E7386A5D849AD789C3DD0F95F5F4A
 magnet:?xt=urn:btih:E9EFA329B561730345740C2BBB8272954E580BC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:E9EFA329B561730345740C2BBB8272954E580BC8
 ```bash
 magnet:?xt=urn:btih:E61B04228CA2D3CF37499B3D86D2C4E0514BF8EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:E61B04228CA2D3CF37499B3D86D2C4E0514BF8EF
 magnet:?xt=urn:btih:3775DC80680D152BDEFC0F5467E606FF406EF422
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:3775DC80680D152BDEFC0F5467E606FF406EF422
 magnet:?xt=urn:btih:77B8715139C580981E1C281D9C587E287AF657E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:77B8715139C580981E1C281D9C587E287AF657E7
 ```bash
 magnet:?xt=urn:btih:EE27FB38D7D2A3BB7951E507C7B719014B40F7F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:EE27FB38D7D2A3BB7951E507C7B719014B40F7F3
 magnet:?xt=urn:btih:2CE3A930CB1E518F42F698576D6330E78B33B92F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +524,8 @@ magnet:?xt=urn:btih:2CE3A930CB1E518F42F698576D6330E78B33B92F
 magnet:?xt=urn:btih:E083CF017807C4AD313A90153188529C00FE8E80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:E083CF017807C4AD313A90153188529C00FE8E80
 ```bash
 magnet:?xt=urn:btih:D63AD25B0214B229DCF07F241C641269B07821D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:D63AD25B0214B229DCF07F241C641269B07821D4
 magnet:?xt=urn:btih:CD262589D94129F2184592B77F84150ACBF7D1BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:CD262589D94129F2184592B77F84150ACBF7D1BC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:CD262589D94129F2184592B77F84150ACBF7D1BC
 ```bash
 magnet:?xt=urn:btih:4CCA35010DD491144B806ACB87055934DA638B1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:4CCA35010DD491144B806ACB87055934DA638B1F
 magnet:?xt=urn:btih:6935EEA959EB42093A3D872CED5B924A4BD0BE07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,30 +681,7 @@ magnet:?xt=urn:btih:6935EEA959EB42093A3D872CED5B924A4BD0BE07
 magnet:?xt=urn:btih:F55EDB5187358498A1F926B7E7E68DA3B2601B32
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220146   (707995) от 17.04.2018
-
-Джон Фланаган | Волшебник Севера (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключения Уилла продолжаются в пятой книге серии. Пять лет прошло с заключения мирного договора между скандианами и аралуианцами. Уилл наконец становится рейнджером и отправляется на место своей службы. И скоро понимает, что даже на маленьком острове могут быть проблемы, которые не дадут ему расслабиться.
-Уилл и его давняя подруга Элис отправляются в новое опасное (   Читать дальше...   )Жанр: Героическое фэнтезиПродолжительность: 09:22:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26F709B43CF839D8B7CB33605FFFB2824D97D9F2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

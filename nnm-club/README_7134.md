@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:938F79F58D3D7A8CEF1F2AA675D573E0C740C727
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:938F79F58D3D7A8CEF1F2AA675D573E0C740C727
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Sandboxie - yтилита для контроля за работой разли
 ```bash
 magnet:?xt=urn:btih:2D6F162287032786B803C9933B1955E49958721C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ VA - Зима БЕГ (2019) [MP3|320 Kbps] <Dance, House, Other>
 magnet:?xt=urn:btih:4849D07FD85A88D05A5E43D0D47EEA68E5CB62FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:4849D07FD85A88D05A5E43D0D47EEA68E5CB62FB
 ```bash
 magnet:?xt=urn:btih:B720982A1DEBC17DDA59733A93D80D67FEEFC9BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ Arranged By, Conductor – Tom Baker (3)
 magnet:?xt=urn:btih:10C3CD64A5FD37154284C1894C2EC556916D5CF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ VIKINGS WOLVES OF MIDGARD™: Рагнарек. Легенда гласит, ч�
 ```bash
 magnet:?xt=urn:btih:5E8D4B9632D642B97EFAD802289615072ECB6568
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ Smokin' Joe Kubek & Bnois King - Fat Man's Shine Parlor (2015) [FLAC|Lossless|im
 magnet:?xt=urn:btih:63FA7B098225CA530B49036B1A106B6174915333
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ Dave Koz & Friends - The 25th of December (2014) [FLAC|Lossless]<Jazz, Smooth Ja
 magnet:?xt=urn:btih:1758E3A14ED4C15B7FA7F367049A6AE03C3C74F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:1758E3A14ED4C15B7FA7F367049A6AE03C3C74F2
 ```bash
 magnet:?xt=urn:btih:B9652FA02B04038A4EDF19170907A9C5FDEB71EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ VA - Best Jazz Pop Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal, Pop>
 magnet:?xt=urn:btih:DC7C0558EA3796C31914E2C0D8EE21F3533AE23D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ magnet:?xt=urn:btih:DC7C0558EA3796C31914E2C0D8EE21F3533AE23D
 ```bash
 magnet:?xt=urn:btih:513A17C49B820BE2AE01A8AAB0673BEBA780DB5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +356,8 @@ VA - Love And Heartbreak (2019) [MP3|320 Kbps] <R&B, Soul, Pop>
 magnet:?xt=urn:btih:E986982A711E86231A692EB3C95605736A9EBBA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ magnet:?xt=urn:btih:E986982A711E86231A692EB3C95605736A9EBBA5
 ```bash
 magnet:?xt=urn:btih:6DBA3C574F9B48CF1382223EA4D99FD25BF82821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +409,8 @@ CrossOver 19.0 (build 32192) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D83356A889ADE24B8CA358B3A60287352EBE1926
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +439,8 @@ VA - Best of Bedrock 2016 (2016) [MP3|320 Kbps] <Tech House, Techno, Progressive
 magnet:?xt=urn:btih:586E896A86C162D42F798B02A215645D8FF4447E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +464,8 @@ magnet:?xt=urn:btih:586E896A86C162D42F798B02A215645D8FF4447E
 ```bash
 magnet:?xt=urn:btih:FF396A51560C7B4BCFCA584DD09E51C97D91F915
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +494,8 @@ Fit For A King - The Hell We Create (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalc
 magnet:?xt=urn:btih:4CFD0453DA971A52D2D247597981052023609EBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +519,8 @@ magnet:?xt=urn:btih:4CFD0453DA971A52D2D247597981052023609EBA
 ```bash
 magnet:?xt=urn:btih:D73DB5ADD0FD697DC70AA604C1D43F115DF4F522
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +546,8 @@ magnet:?xt=urn:btih:D73DB5ADD0FD697DC70AA604C1D43F115DF4F522
 magnet:?xt=urn:btih:40582AADB49FEF05B3D76ECCFF5669C91B08DC8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ magnet:?xt=urn:btih:40582AADB49FEF05B3D76ECCFF5669C91B08DC8C
 ```bash
 magnet:?xt=urn:btih:9541CFD93DF0B5EA717CC3265515EC192862CE0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ magnet:?xt=urn:btih:9541CFD93DF0B5EA717CC3265515EC192862CE0A
 magnet:?xt=urn:btih:1365C949D03F1DBE659359FB640C18FE733F4294
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ magnet:?xt=urn:btih:1365C949D03F1DBE659359FB640C18FE733F4294
 ```bash
 magnet:?xt=urn:btih:5527DD644AE0173C2F8C82DB94CADBF971E79FDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +653,8 @@ Malice - License To Kill (1987) Japanese Edition, Reissue, 2014, Atlantic [FLAC|
 magnet:?xt=urn:btih:80F11911DCF4CCAD2C3CA378DC33B83414973DC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:D34C7CF4BAB2347A50732C12B4667F1C4987B6FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +705,8 @@ magnet:?xt=urn:btih:D34C7CF4BAB2347A50732C12B4667F1C4987B6FE
 ```bash
 magnet:?xt=urn:btih:307D02DEB48C8A47DA06D05192D2CB1DA7F728FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

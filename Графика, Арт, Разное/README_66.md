@@ -1,51 +1,3 @@
-###  Публикация: 547648   (473736) от 15.09.2012
-
-[рисунки] Сказочные картины Жозефины Уолл
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жозефина Уолл родилась и живёт в Англии. Работы известной английской художницы в стиле фэнтези уже давно популярны во всём мире, их можно увидеть во многих галереях Англии и Америки. Рисуя персонажей любимых всеми сказок и мифов, она увлекает нас в волшебный мир собственного воображения. Черпая вдохновение из творчества художников-сюрреалистов, окружающей природы и книг, Жозефина Уолл создаёт необычные картины, наполненные множеством скрытых образов и деталей, которые завораживают взгляд и никого не оставляют равнодушными. Популярность картин Жозефины Уолл огромна, особенно среди женщин. Художница помогает смотреть на мир другими глазами, соединяет реальность и иллюзию, пробуждает воображение и вносит в жизнь взрослых людей сказочные фантазии детских снов, которые казались давно забытыми.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11103F8E579DABB63588D2BC728767029760F92E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939459   (474929) от 21.09.2015
-
-Современное искусство - Art of Vehemel - Vincent D [JPG]
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vincent D (Vehemel) французский художник график выполняющий свои работы в стиле фэнтези, варвары, хищники, инопланетяне, амазонки и так далее....Формат: JPGРазрешение файлов: от 548х1031 до 1716х1558
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C18A09A9DE4E2CF9D42564078B18E3AC404C8FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 547291   (475652) от 14.09.2012
 
 Чужой/Aliens/Alien vs. Predator/Хищники [Графика]
@@ -66,6 +18,8 @@ magnet:?xt=urn:btih:1C18A09A9DE4E2CF9D42564078B18E3AC404C8FB
 ```bash
 magnet:?xt=urn:btih:CD6C1695869731FD112415DFD78594BBA1DBD74D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +45,8 @@ magnet:?xt=urn:btih:CD6C1695869731FD112415DFD78594BBA1DBD74D
 magnet:?xt=urn:btih:BD73C8284F8B3A9337D68E56CDA98DC0C2F5ACF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +70,8 @@ magnet:?xt=urn:btih:BD73C8284F8B3A9337D68E56CDA98DC0C2F5ACF0
 ```bash
 magnet:?xt=urn:btih:9E20DD08110BDD09ED11720730FA4FC0C16FAE2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +97,8 @@ magnet:?xt=urn:btih:9E20DD08110BDD09ED11720730FA4FC0C16FAE2A
 magnet:?xt=urn:btih:75D58C072C1AC0616697BFD5443A2CB032F2334A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +122,8 @@ magnet:?xt=urn:btih:75D58C072C1AC0616697BFD5443A2CB032F2334A
 ```bash
 magnet:?xt=urn:btih:471EA50B1B52252063B1BF073CFFBDA5397911F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +149,8 @@ magnet:?xt=urn:btih:471EA50B1B52252063B1BF073CFFBDA5397911F4
 magnet:?xt=urn:btih:DA00A88FF8A043142F0C64C199E3FD7BD933B4E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +174,8 @@ magnet:?xt=urn:btih:DA00A88FF8A043142F0C64C199E3FD7BD933B4E6
 ```bash
 magnet:?xt=urn:btih:D397FBF1F7D7B6844D71447C5956CEC8A9B2F1F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +201,8 @@ Lois van Baarle — голландская цифровая художница (
 magnet:?xt=urn:btih:58565637B5FEFC189605D2E2C3E89D545E0C4BC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +226,8 @@ Artworks by Daniel Lucanu & Ismael Municio
 ```bash
 magnet:?xt=urn:btih:B3F26F4CC29B47027F03B3ED590313E3829F99A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +253,8 @@ magnet:?xt=urn:btih:B3F26F4CC29B47027F03B3ED590313E3829F99A8
 magnet:?xt=urn:btih:169F384478D8B5E06EEE64FC188DF3AE33106F87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +278,8 @@ magnet:?xt=urn:btih:169F384478D8B5E06EEE64FC188DF3AE33106F87
 ```bash
 magnet:?xt=urn:btih:6F133421D2005E02EF15B24B612FC9DA09C21445
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +305,8 @@ magnet:?xt=urn:btih:6F133421D2005E02EF15B24B612FC9DA09C21445
 magnet:?xt=urn:btih:2D0C531C3076513ADA418D913B71F98244F3385B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +330,8 @@ magnet:?xt=urn:btih:2D0C531C3076513ADA418D913B71F98244F3385B
 ```bash
 magnet:?xt=urn:btih:533B4DE7233906F266578EB126090575A01CF59E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +357,8 @@ magnet:?xt=urn:btih:533B4DE7233906F266578EB126090575A01CF59E
 magnet:?xt=urn:btih:BA3156644687A3A1799002293F6859A3157EBD3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +382,8 @@ magnet:?xt=urn:btih:BA3156644687A3A1799002293F6859A3157EBD3F
 ```bash
 magnet:?xt=urn:btih:B360E945E4A9B61CD026DA4E58F91A94A0C2611E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +409,8 @@ magnet:?xt=urn:btih:B360E945E4A9B61CD026DA4E58F91A94A0C2611E
 magnet:?xt=urn:btih:93FFA3691C17081F0A6D9E0BFA585327D396B474
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +434,8 @@ magnet:?xt=urn:btih:93FFA3691C17081F0A6D9E0BFA585327D396B474
 ```bash
 magnet:?xt=urn:btih:4E7A63A2A35692462FB8ADDF94112E97F2D28C2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +461,8 @@ magnet:?xt=urn:btih:4E7A63A2A35692462FB8ADDF94112E97F2D28C2C
 magnet:?xt=urn:btih:8C92A2951C35FBEB7B9E9947203EE5BE0EB6D016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +486,8 @@ magnet:?xt=urn:btih:8C92A2951C35FBEB7B9E9947203EE5BE0EB6D016
 ```bash
 magnet:?xt=urn:btih:D9AF881B767CCC39CE9F76E7FE39734AA157DB4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +513,8 @@ magnet:?xt=urn:btih:D9AF881B767CCC39CE9F76E7FE39734AA157DB4B
 magnet:?xt=urn:btih:D9F9AA1BA988D92182897215A212AAB1A3C07DE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +538,8 @@ Artworks by Jan Brueghel The Elder (1568-1625)
 ```bash
 magnet:?xt=urn:btih:5BD7699580270CD8226B278A7F7379AE3F9F0E5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +565,8 @@ Best HD Wallpapers Pack (14.09.12) [Wallpapers]
 magnet:?xt=urn:btih:0380081A8FF6DC4D9B6870802DF76784999BBF3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +591,8 @@ Nature Wallpapers (14.09.12) [Wallpapers]
 magnet:?xt=urn:btih:766C826848A923148F0F17EF8AE86D61A4E9BF1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +616,62 @@ magnet:?xt=urn:btih:766C826848A923148F0F17EF8AE86D61A4E9BF1F
 ```bash
 magnet:?xt=urn:btih:21CD8259C5A67BF55AEE16E82E4D4513A9547B06
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 700872   (478314) от 17.09.2013
+
+Фотография - Времена года (Photo Seasons HD) [JPEG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Художественная фотография "Времена года" HD.
+Фотография рассортирована по сезонам года.
+Всего 416 фото.Разрешение файлов: 1920x1080 - 6048x4032Формат: JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B781B46D68D121AFF7F4BC14149F5ED42B2AEDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 384320   (478433) от 08.09.2011
+
+[Фото знаменитости] Кристина Агилера / Christina Aguilera
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высококачественные фото
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C39CF69AEA8ADA2215AECD23DFB82DB2AE4E87A8
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

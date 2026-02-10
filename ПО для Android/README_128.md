@@ -19,6 +19,8 @@ Vimage 3.1.2.2 Mod by derrin, REALY [Ru/Multi]
 magnet:?xt=urn:btih:47D86052AF0DC3C0B61EF752DED2588D4C646C8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Alarm Clock Pro 2.9.9 [Ru/En]
 magnet:?xt=urn:btih:DCD7C5298592F4812E633F9939028E0B6226822D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Color Grab (Color Detection) - Любите рисовать? Или же тво
 ```bash
 magnet:?xt=urn:btih:881EA281869D53AB81321CAA7DDE8A9BF223C85B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Perfect365 One-Tap Makeover v8.57.17 [Ru/Multi] - создание виртуа�
 magnet:?xt=urn:btih:7EC83A9CC607C37536E77EFE5073650C027A9F54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:7EC83A9CC607C37536E77EFE5073650C027A9F54
 ```bash
 magnet:?xt=urn:btih:99A9FC2CBD150670D0AE89913A0CFB350EF35D02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:99A9FC2CBD150670D0AE89913A0CFB350EF35D02
 magnet:?xt=urn:btih:E445B76276583A5481E43C458DB594D06FB93F7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Spotify — один из тех счастливчиков, которые, н�
 ```bash
 magnet:?xt=urn:btih:CF731D73D9AFA005CD424498F3DF8783CE55A5BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Hi-Q MP3 Voice Recorder – бесплатный качественный MP3 д
 magnet:?xt=urn:btih:D918DB60A8DBC9802888C1350FD5510C1F227142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ SwiftScan (Ранее Scanbot) - это мобильное приложение,
 ```bash
 magnet:?xt=urn:btih:2651E270EA1E8D0DA3B6A916C653F265E290AE4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Tiny Scan: PDF Document Scanner - Теперь преобразовать обы
 magnet:?xt=urn:btih:66196DD8AF756C0BA9FBED3A72F2ECA6A419BB4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Jasi Patcher — патчер для приложений. Программа д
 ```bash
 magnet:?xt=urn:btih:05DF0C42AC927F71F33C8E2097C81325EF184120
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Jeejen - отличный минималистичный лаунчер, с бо
 magnet:?xt=urn:btih:AB8361C6B7CE154B6B66C84FD205BD7CBD469F93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ AirDroid - быстрое, а главное бесплатное приложе
 ```bash
 magnet:?xt=urn:btih:037DE77CEA7E8F0C2868B30AC48EB41EE90BD10E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ ClockWork Tomato v3.7.0 [Ru/En]
 magnet:?xt=urn:btih:089D3FA3DFCE39A7DA3F31732FCC8D791F53663B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ AutoResponder for WA / Автоответчик для WhatsApp v1.9.9 [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:D72A2B2CCA871D37152B1AA1A5874FBF8395EBB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:D72A2B2CCA871D37152B1AA1A5874FBF8395EBB6
 magnet:?xt=urn:btih:ADC3D0758BE272324321E7D3779BB52221DFE70C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ YAATA SMS 1.44.10.21936 Mod by papasha55, unz1p, solokot, Uksus17, Mare12 [Ru/En
 magnet:?xt=urn:btih:DF510E55C022A865BBF8C8BDC92F634C609A7526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:DF510E55C022A865BBF8C8BDC92F634C609A7526
 ```bash
 magnet:?xt=urn:btih:C254A8962EFE5EF7392F8F5887D70313E356F57F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Car Radio v1.1.3 [En] - for Android Stereo Head Units
 magnet:?xt=urn:btih:28FAFE7901F3700F09413C389003D89281FA593F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Tingles ASMR v3.4.1 [Ru/En] - звуки для сна и расслаблени
 ```bash
 magnet:?xt=urn:btih:876F09A40B61EB535A724C85D23AEE5874E4F99D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Picture Mushroom v2.0 [Ru/Multi] - Mushroom ID
 magnet:?xt=urn:btih:72BF177C5CD127BEC8E37892A65004E3747912AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Picture Bird v2.1 [Ru/Multi] - Bird Identifier
 magnet:?xt=urn:btih:9F6246F39F0796629FBA1936C5907AE908685B76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Rock Identifier v1.2 [Ru/Multi]
 magnet:?xt=urn:btih:06F9C44844E6A304008BD60EEB5EB9EE8D0C45EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Atlas Напоминания v1.8.1 Pro [Ru]
 ```bash
 magnet:?xt=urn:btih:6758E5D7186ACFD8D67B98FA4F1069A75966B9DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ VOA Learning English - специальная программа Voice of Americ
 magnet:?xt=urn:btih:EDAEDF5D9F8D849D01FBBE9887CCB816AF6EB3A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ BackCountry Navigator TOPO GPS - Отличный навигатор, с кот�
 ```bash
 magnet:?xt=urn:btih:AC54D98252AFCAA0FD1C836DB3B35A80DBF3BE32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

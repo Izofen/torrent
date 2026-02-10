@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:2D984224DAC437E133CBAA4E75A3339AE4456199
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:2D984224DAC437E133CBAA4E75A3339AE4456199
 ```bash
 magnet:?xt=urn:btih:B3FD4467EA7462F325827675B47F2A1156E2C8B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:B3FD4467EA7462F325827675B47F2A1156E2C8B4
 ```bash
 magnet:?xt=urn:btih:5CEA4667A99386AD1BEF6A48ADB8BE6CC9A616B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:5CEA4667A99386AD1BEF6A48ADB8BE6CC9A616B4
 magnet:?xt=urn:btih:59E9E1878B81AA518E7F568AB2D3495D88B4B0BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Aurum Project - Collection (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
 magnet:?xt=urn:btih:292E29DDC97D6BC1016D8AE47891C372423445BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:292E29DDC97D6BC1016D8AE47891C372423445BD
 magnet:?xt=urn:btih:F59FACC239D0EAD607F6CCAB9EDA8E462D33E4D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:F59FACC239D0EAD607F6CCAB9EDA8E462D33E4D2
 ```bash
 magnet:?xt=urn:btih:23D2BBD3B22D67FD0714C38E4F04BE25B8B6987F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Satra - In Tears of Her Reign (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Sympho
 magnet:?xt=urn:btih:DA5A3D55B04709E9372999B7E578261F99CDC65B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:DA5A3D55B04709E9372999B7E578261F99CDC65B
 ```bash
 magnet:?xt=urn:btih:0A87D0F90B71FA43F48D5C6CC132E60984F9DBA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:0A87D0F90B71FA43F48D5C6CC132E60984F9DBA9
 magnet:?xt=urn:btih:1CA9D2FC12202A6AEB9A5F2BFA331D3DB494845A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:1CA9D2FC12202A6AEB9A5F2BFA331D3DB494845A
 ```bash
 magnet:?xt=urn:btih:877731F06CB13945C344D61247C36F2F7EFBFCE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:877731F06CB13945C344D61247C36F2F7EFBFCE5
 magnet:?xt=urn:btih:F0A4AF6C46BF0846A1BA1DC6243EFC64BC1A46D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:F0A4AF6C46BF0846A1BA1DC6243EFC64BC1A46D5
 ```bash
 magnet:?xt=urn:btih:8B84E53D8352AB577BD8B0929F8DC6EA74007889
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:8B84E53D8352AB577BD8B0929F8DC6EA74007889
 magnet:?xt=urn:btih:5C02781592D6FA81864B38D185B84C3972D47348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:5C02781592D6FA81864B38D185B84C3972D47348
 ```bash
 magnet:?xt=urn:btih:C2DA3DA9410FF995E77C715016B064328BCA378E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:C2DA3DA9410FF995E77C715016B064328BCA378E
 magnet:?xt=urn:btih:F922A83422EEEB1FA3F6A1C91E227BF62A046B2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:F922A83422EEEB1FA3F6A1C91E227BF62A046B2C
 ```bash
 magnet:?xt=urn:btih:55D293EFA1E82158AF30CE58E0938FDB8CF1709F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:55D293EFA1E82158AF30CE58E0938FDB8CF1709F
 magnet:?xt=urn:btih:97AF83C66080228AF27D86D20D22DF2E4AEE785A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:97AF83C66080228AF27D86D20D22DF2E4AEE785A
 ```bash
 magnet:?xt=urn:btih:043AC03CA65A14FE45A92F525396BAE88719FB95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ CD1:
 magnet:?xt=urn:btih:59928C9A4A52BD10AE085DAAFFBB8658CAFB580C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:59928C9A4A52BD10AE085DAAFFBB8658CAFB580C
 ```bash
 magnet:?xt=urn:btih:4360F794D2EFAA9E55AD7E58A1058024F1B87892
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ magnet:?xt=urn:btih:4360F794D2EFAA9E55AD7E58A1058024F1B87892
 ```bash
 magnet:?xt=urn:btih:0A3624AEB8E7E2C3BD24E7ABA14CF8E322A4EE86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ VA - No name compilation Deep Chill Vocal House part 16 (2025) (2025) [MP3|320 K
 magnet:?xt=urn:btih:AC29E433A6CB4C394BA446D4BA6C4521212055A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ Green Dolls - Dark Cabaret Nights (2025) [MP3|192-320 Kbps] <Electro Swing, Nu-J
 magnet:?xt=urn:btih:A95E29851B5818EA8B53664DD2A21569BC3F8F5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ magnet:?xt=urn:btih:A95E29851B5818EA8B53664DD2A21569BC3F8F5C
 ```bash
 magnet:?xt=urn:btih:99D59AC85B7942874C6DA129FBBBAAD8D7A562EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +697,8 @@ VA - Club Top 13 International (1988) [OGG Vorbis|480 Kbps] <Electronic, Rock, P
 ```bash
 magnet:?xt=urn:btih:EB86700065D12E0453A75F431DF32A0B7787CA78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

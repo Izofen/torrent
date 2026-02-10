@@ -19,6 +19,8 @@ Field of Glory II (2) (2017) [Multi] (1.6.10/dlc) License GOG
 magnet:?xt=urn:btih:AAA9D1CA03718B396FA3FA4373C37DC03DB78965
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Blood: Fresh Supply (2019) [Ru/En] (1.9.10-1/dlc) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:0EFB9207953563EB62B06B502231034334D91154
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ RUN: The World In-Between – чрезвычайно динамичный пла
 magnet:?xt=urn:btih:D1D75E17DBB221AF4423EEC9A6294168A7F79E07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Computer Repair Shop (2024) [Ru/Multi] (1.01) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:9CD5B2D082383C8C62EFC7E26A93EAD580688AE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Retreat To Enen переносит пользователей в 3600-й год 
 magnet:?xt=urn:btih:5A1A18F994194F5EEA01A5F76E3A4CF4890EACF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ First Feudal (2021) [Ru/Multi] (1.4.6) License GOG
 ```bash
 magnet:?xt=urn:btih:6EE1F00A8428FCC8DDBF45C8F08401D36FAD353A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Stellar Tactics – увлекательное путешествие по ко�
 magnet:?xt=urn:btih:294F52AF5C406344DD41CDD07F653C0657199205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ MotoGP 22 (2022) [Multi] (1.0.8.0/dlc) Scene DINOByTES
 ```bash
 magnet:?xt=urn:btih:BB4F8583313915218055AE717B06F0046DB60AED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Beer Factory - это увлекательный симулятор, в кото
 magnet:?xt=urn:btih:E0FFCF2379B8B2C780BCE24BA7D0DCCCADC63D35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Remnant 2 - это атмосферная и брутальная комбина
 ```bash
 magnet:?xt=urn:btih:5F0349D2CD652AC9671DF0010ED199627CF7AB74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Supernormal (2024) [En] (1.3.3) Scene Tenoke
 magnet:?xt=urn:btih:5A8250FFA679D1A2809E95483B2DC9E97426F38A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ THE DESCENT (2024) [Ru/Multi] (1.0.8) Repack Other s
 ```bash
 magnet:?xt=urn:btih:6310172414A82BBA0595B4D7043401B6DF12BE0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ A Boy and His Blob Retro Collection (2023) [Multi] (1.0.0) License GOG
 magnet:?xt=urn:btih:6D8BF48FAE19CA2D4FA9808F0D3A66DE1BB70E53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Shining Song Starnova повествует о попытках девушек-а
 ```bash
 magnet:?xt=urn:btih:0FC529F2E68A1D1F02BCDB4FFCDC10323E74A3FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Dragon Quest Treasures - ролевое приключение, в центре 
 magnet:?xt=urn:btih:D67FDCF4C7B5E3E21E8A3147FA8EFB443FAF44E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Pro Cycling Manager 2023 (2023) [Multi] (1.9.0.443) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:4184572A50CDEDDA05F47CA76991C5B4383E289E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Aquarium (2023) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:92D913B314EDB15E0E8B7C34A32A36B992DD8B18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Above Snakes (2023) [Ru/Multi] (1.4.4/dlc) Repack Other s [Collectors Edition]
 ```bash
 magnet:?xt=urn:btih:D8E348050C19857A9768D8DB47EAA711D1556B3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Vagrus - The Riven Realms – ролевая игра с элементами с
 magnet:?xt=urn:btih:6DCAA5892C06DE16D1E5A69CA69B8CC7F6D874FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Bootlegger's Mafia Racing Story переносит в 1920-е годы, во в�
 ```bash
 magnet:?xt=urn:btih:85378993442FC73237428DFD81C3CCC3AE7BC9AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Arma Reforger - экшн, делающий огромный упор на реа
 magnet:?xt=urn:btih:670B0E48ECCE6BACD24CF4401B887C020341C5FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Around the World 2: Travel to Canada (2024) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:FC99F1AA60121FF4DCF4D446E88787667C9CBF53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ GoreBox – проект, исполненный в жанре песочниц�
 magnet:?xt=urn:btih:B0F8855764082391765694370F89D6B1960A9137
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Twistingo 4: Hummingbird Haven (2023) [En] (1.0) Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:495DD105ABC65AEF6BDDCED3D53AA032C9A1823E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Maze of Realities 3: Ride in the Sky / Лабиринт реальностей 3
 magnet:?xt=urn:btih:267F4E6E8B245D4B3C64FF4724898083B5B4EE7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Everspace 2 (2021) [Ru/Multi] (1.1.36529) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:FB359ABC3EB41CC426C22CA45C1CB999C3225B3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

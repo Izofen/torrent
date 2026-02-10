@@ -22,6 +22,8 @@ VA - Anjunadeep 11 (Mixed by Jody Wisternoff & James Grant) (2020) [FLAC|Lossles
 magnet:?xt=urn:btih:191DA17744B8197B76EAD61CBEB75907A1291FD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Zimmer - Zimmer (2019) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Nu Disco,
 ```bash
 magnet:?xt=urn:btih:6D63B16F7EECC6AF613A93D496B26825139C6596
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Koan - Eddur: Second Scroll (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient Dub, P
 magnet:?xt=urn:btih:BA1DB2F794BF11EFD9FEA68E0D4284376FBADD66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - OWSLA Worldwide Broadcast (2016) [MP3|320 кб/с] <Dubstep, Future Bass, T
 ```bash
 magnet:?xt=urn:btih:F9263634202E5FB9FE86D7A76F688E08FDBDC32C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Dubstep 2017 (30 Top Best Of Hits) (2016) [MP3|320 Kbps] <Dirty Dubstep, Tr
 magnet:?xt=urn:btih:8A7E739F88A69E0275351507794540B8D8F85F74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ VA - Hed Kandi: Nu Disco (2010) [MP3|128-192 kbps]<House / Vocal House / Disco H
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ VA - Relaxing Music for Massage: Relax Chill Out Music for Relaxation Massage (2
 magnet:?xt=urn:btih:6405919F8465EFB740E7B9661B149D110C7F4358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ VA - Electro House Hits January Top 10  2017  [MP3|320 Kbps] <Electro House>
 ```bash
 magnet:?xt=urn:btih:E01F819F9C15F5D497EF8989F5AC20320F6213C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ VA - Romantic Lounge Music Winter Session (2016) [MP3|320 Kbps] <Downtempo, Chil
 magnet:?xt=urn:btih:AB10761D91A8EE786BE7A631A74A89D89E5C6C24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ VA - Acoustic Songs: 14 Classic Songs Reimagined Acoustically (2016) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:50BB2C48231AA26AF407B7C975A574669F5B4355
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ VA - Spring Blossom: 20 Smooth & Relaxing Jazz Lounge Tunes (2016) [MP3|320 Kbps
 magnet:?xt=urn:btih:F939AD5D48A23CF9BE053AD81157111C4CF3C959
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ VA - Late Night Acoustic Sessions (2016) [MP3|320 Kbps] <Downtempo, Chillout, In
 ```bash
 magnet:?xt=urn:btih:63324CD36801345FF14EAF55D3E781C378569D3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ VA - Bikini Lounge: The Best Chillout 2017  [MP3|320 Kbps] <Downtempo, Chillout,
 magnet:?xt=urn:btih:96A1E6405E5A054062A7D0CD2188A6AF98428F59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ VA - Global Chillout Ambient: New Year Pack 2017 (2016) [MP3|320 Kbps] <Downtemp
 ```bash
 magnet:?xt=urn:btih:2061C9472F7A125FD4F56418323C99F2BAF5AA76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +425,8 @@ VA - If House Like To Party (2017) [MP3|320 Kbps] <Progressive House>
 magnet:?xt=urn:btih:519E81750EF90AC136D84617AED045024A4A1C34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ VA - 6 Years Of CibiCaldi Records (2017) [MP3|320 Kbps] <Minimal, Tech House>
 ```bash
 magnet:?xt=urn:btih:6FF1242F61C1BFB26E6398D7DA4DE9E41B744EF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ VA - Chill In The Summer: Chillout Collection (2016) [MP3|320 Kbps] <Chillout, L
 magnet:?xt=urn:btih:42357AE81CED6E8809ADE4884091F46CA5E71CF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ VA - Just Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:98EAC45182F1CE4E0AE666A044E0AFEF7D49029C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ VA - Christmas Chill (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:9848130A230F0DD87ABCF8112D8C00FC9ABE7AC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ VA - Atmosfera Records Best Of 2016 (2017) [MP3|320 Kbps] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:730889C090C28D327B2E1B4F93E31870BC5BFAD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +599,8 @@ VA - Magics - Reflex Recordings Masterpieces (2017) [MP3|320 Kbps] <Downtempo, C
 magnet:?xt=urn:btih:E09F358B4E34725102C9C1E668926FB13AD8027C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +627,8 @@ VA - Hot Wave Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:DF9D04A034A5DD1DE1E74FD6BF48BBCFB27D8267
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +657,8 @@ VA - Touch Me with House (Sensual House Music Dance) (2020) [MP3|320 Kbps] <Hous
 magnet:?xt=urn:btih:1E13DA02862A2D6D5D9D638079BF6AB7B9CAC4F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +682,8 @@ Biosphere - Substrata (1997) [FLAC|Lossless|tracks+.cue]<Ambient, Abstract>
 ```bash
 magnet:?xt=urn:btih:CD70B237FB6CD22715BAAEFE266BFACEBBDB30EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +712,8 @@ VA - Retro Promenade: Carpenter (2015) [MP3|320 кб/с] <80's Retrowave, Synthp
 magnet:?xt=urn:btih:FE82CD68F2878875B00BFF613F403C2CD6C2C2F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +740,8 @@ VA - Serenity Sexy Lounge & Chill out Pearls Vol 2 (2016) [MP3|320 кб/с] <Dow
 ```bash
 magnet:?xt=urn:btih:CB575233DC0D5DFA99B9F9575BB05914B81357B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

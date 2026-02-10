@@ -1,3 +1,29 @@
+###  Публикация: 1353399   (991746) от 18.01.2020
+
+Маняшино озеро (2017) WEB-DL [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленькая добрая девочка из сибирской глубинки Маняша очень рано потеряла маму и осталась с отцом Иваном. Пока несчастный вдовец целыми днями проводит на работе, Маняша ищет способ, как исполнить свою мечту — обрести материнскую любовь и заботу. И однажды в их дом приходит молодая медсестра Светлана.Производство: Кинокомпания "МЕЧТА"Жанр: драмаРежиссер: Андрей ГавриловАктеры: Владимир Сычев, Марина Федункив, Юлия Беретта, Иван Шаповалов, Яна Исакова, Савелий НепомнящийСубтитры: ОтсутствуютПродолжительность: 01:29:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD191B3E5037CA1852B91618723D26C4285ACB93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315137   (992327) от 17.01.2020
 
 Игра (2018) WEB-DL [H.264/1080p-LQ]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:3C350E36A74BAEC84C9E494BAE5F957D7E9E1D82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:3C350E36A74BAEC84C9E494BAE5F957D7E9E1D82
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:3C350E36A74BAEC84C9E494BAE5F957D7E9E1D82
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:3C350E36A74BAEC84C9E494BAE5F957D7E9E1D82
 magnet:?xt=urn:btih:1CB8063EF14E8F202BA20A2513CB96FA811E852E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:1CB8063EF14E8F202BA20A2513CB96FA811E852E
 ```bash
 magnet:?xt=urn:btih:1D8FEBCC60F42377229AAD65C6CC8FE730EE6B61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:1D8FEBCC60F42377229AAD65C6CC8FE730EE6B61
 magnet:?xt=urn:btih:222DC5942360AEA70133BE19DE4729756E849200
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:222DC5942360AEA70133BE19DE4729756E849200
 ```bash
 magnet:?xt=urn:btih:F7CED75E3DB92EFC1B7CE55C87ECAB21025A8C8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:F7CED75E3DB92EFC1B7CE55C87ECAB21025A8C8E
 magnet:?xt=urn:btih:12958F5D0AD0060B7C25A2541AF0F2D1D6A3C754
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:12958F5D0AD0060B7C25A2541AF0F2D1D6A3C754
 ```bash
 magnet:?xt=urn:btih:2284B534C357C0F37AD282FE64DB9ABF2A65B0EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:2284B534C357C0F37AD282FE64DB9ABF2A65B0EA
 magnet:?xt=urn:btih:4A7534BDF81A26452E274C904370215D2509E10C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:4A7534BDF81A26452E274C904370215D2509E10C
 ```bash
 magnet:?xt=urn:btih:5C9C1C3E446C7A5C51477672FB735E746F84D98F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:5C9C1C3E446C7A5C51477672FB735E746F84D98F
 magnet:?xt=urn:btih:594BC44F742A30209970A38513F253888F5F2F94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:594BC44F742A30209970A38513F253888F5F2F94
 ```bash
 magnet:?xt=urn:btih:CF5FD7A657F6531E45C3ADA568BF7F1BB31BFE3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:CF5FD7A657F6531E45C3ADA568BF7F1BB31BFE3B
 magnet:?xt=urn:btih:2065DEA815BE274DB3B62FC5EFEB70CF3F7AB5FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:2065DEA815BE274DB3B62FC5EFEB70CF3F7AB5FF
 ```bash
 magnet:?xt=urn:btih:28F841DA6634B360048AE5B34DFAB5BBB801B87C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:28F841DA6634B360048AE5B34DFAB5BBB801B87C
 magnet:?xt=urn:btih:B73FFF5F2E4D517CC07CA594E099E76040AAA34F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ magnet:?xt=urn:btih:B73FFF5F2E4D517CC07CA594E099E76040AAA34F
 ```bash
 magnet:?xt=urn:btih:8CF73B2DAA7790F63F98E3713229C54BB783CE01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:8CF73B2DAA7790F63F98E3713229C54BB783CE01
 magnet:?xt=urn:btih:04EBC1AAB061879A51CD6E04A3B7CA1534762E67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +513,8 @@ magnet:?xt=urn:btih:04EBC1AAB061879A51CD6E04A3B7CA1534762E67
 ```bash
 magnet:?xt=urn:btih:AFC663128120EE63F249B10B74D846FAAEF4D9F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:AFC663128120EE63F249B10B74D846FAAEF4D9F3
 magnet:?xt=urn:btih:479054EDFBCCCD5500F9D6F644E1BAEBDD295DD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +565,8 @@ magnet:?xt=urn:btih:479054EDFBCCCD5500F9D6F644E1BAEBDD295DD8
 ```bash
 magnet:?xt=urn:btih:E2C8134347A603BFE19032AF14DDE8B92418364A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +592,8 @@ magnet:?xt=urn:btih:E2C8134347A603BFE19032AF14DDE8B92418364A
 magnet:?xt=urn:btih:9673685FB1117E1130895F6D0301DB7181CAAD3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +617,8 @@ magnet:?xt=urn:btih:9673685FB1117E1130895F6D0301DB7181CAAD3D
 ```bash
 magnet:?xt=urn:btih:6BA4A591D32669454BD77D7559779AD54E24E2C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:6BA4A591D32669454BD77D7559779AD54E24E2C7
 magnet:?xt=urn:btih:099CFD377ECE4A5E74FE09EC8AA836564A0E40E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,29 +671,7 @@ magnet:?xt=urn:btih:099CFD377ECE4A5E74FE09EC8AA836564A0E40E2
 magnet:?xt=urn:btih:23DB3E2B29901410629606CB8AD0EE5A12F138E5
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978260   (1003898) от 03.01.2020
-
-Решала 2 (2015) WEB-DL [H.264/1080p-LQ]
-
->>След.
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003898.jpg" />
-</div>
-
-
-###  Подробнее
-
-После событий, произошедших в первой части, прошло 4 года. Обстановка в городе напряженная, за сферы влияний борются два криминальных авторитета — Витя Черный и Добрый. В это время из тюрьмы выходит Завгар, и Витя Черный надеется на его поддержку. Но Завгар горит желанием отомстить Каше, ведь по его наводке он отправился за решетку. Каша уехал в другой город, он (   Читать дальше...   )Производство: Россия, Байкалкино, ГринбоксЖанр: Драма, КриминалРежиссер: Роман АсхаевАктеры: Александр Фролов, Моисей Куртанидзе, Константин Озеров, Чингиз Аздаев, Арина Есина, Руслан Балакшиев, Алина НамсараеваПеревод: Не требуется (русский)Продолжительность: 01:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDD6F9F7C11686AEFBAA908E918A2A72D280AF80
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

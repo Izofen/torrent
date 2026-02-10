@@ -22,6 +22,8 @@ UNIX (Linux/FreeBSD) Level 3. Creating a high availability (clustering) solution
 magnet:?xt=urn:btih:981E3E52CD958731A10FF81356B1B5F549775A2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:981E3E52CD958731A10FF81356B1B5F549775A2D
 magnet:?xt=urn:btih:90A52AA291A81252335375DF7E8C40191122486E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ OTUS | Data Engineer (2019) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:FEB995554BAB0DB95F6099761E1DC5D31CB497C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ OTUS | MS SQL Server разработчик (2019) PCRec [H.264]
 magnet:?xt=urn:btih:0A02DEAEA7771FD017C6C66261C433CD930B235B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ OTUS | Разработчик Golang (2019) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:62C81B7DFF7A94C7392B6454FCEF571FE4126BE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ OTUS | Безопасность Linux (2019) PCRec [H.264]
 magnet:?xt=urn:btih:28EFDAE00876F855FAD3A2D86C66DF789B3B5141
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ OTUS | Архитектор высоких нагрузок (2019) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:7E6FA07B447E2E920D89ABB776D68BCDEF2E3DCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Pluralsight.com | Синтаксис и операторы JavaScript / JavaScri
 ```bash
 magnet:?xt=urn:btih:B01B2C9ABC0718FAABFCE83DB324212049C2AB13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Computer Hacking Forensic Investigator
 magnet:?xt=urn:btih:9C3110FF02F5410E24A51B25B97C2B5541B9F475
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:9C3110FF02F5410E24A51B25B97C2B5541B9F475
 ```bash
 magnet:?xt=urn:btih:1555B65C768F6A339122F56455924EC94E0FE91E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ DevOps решает задачу взаимодействия инженеров
 magnet:?xt=urn:btih:0275254037CD07B77F91CB7DDF325A525F55070F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ OTUS | Алгоритмы для разработчиков (2019) PCRec
 magnet:?xt=urn:btih:E42AE9E3108CB3EB9A37603BF27E549DF9E0C980
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:E42AE9E3108CB3EB9A37603BF27E549DF9E0C980
 ```bash
 magnet:?xt=urn:btih:5955F7FCC4D7F0F5FCF85F1397E6617CD8A25A4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ javascript.ru | Интенсив по продвинутой разработк�
 magnet:?xt=urn:btih:05E65EE2EE45A9523F19FFA58028ED9B65D1C1D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ Lynda.com | Git обучение основам / Git Essential Training (2012) 
 ```bash
 magnet:?xt=urn:btih:EC4613303CA7AC383DC84924735B0DEBD3940131
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:EC4613303CA7AC383DC84924735B0DEBD3940131
 magnet:?xt=urn:btih:F962595A70BFED942C6C0A8259FE02C3B089BB22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:F962595A70BFED942C6C0A8259FE02C3B089BB22
 magnet:?xt=urn:btih:7420520300B70C34E0CF049D13CBCB713300D6AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:7420520300B70C34E0CF049D13CBCB713300D6AD
 ```bash
 magnet:?xt=urn:btih:07C6529990424B19479ED9CE7E1D71167514D4D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ magnet:?xt=urn:btih:07C6529990424B19479ED9CE7E1D71167514D4D4
 magnet:?xt=urn:btih:C30BDCE828BDC252FDEDD23277D96C517D96CEA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ ITVDN | Видео курс Unity3D Starter 2015 | PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:D35171A21E292C80ED35F1E7EACBE6AE337386E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +566,8 @@ PentestIT | Корпоративные лаборатории тестирова
 magnet:?xt=urn:btih:0EAC891E37AC318F8F5794ABC6604E7E7900DBD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ magnet:?xt=urn:btih:0EAC891E37AC318F8F5794ABC6604E7E7900DBD5
 magnet:?xt=urn:btih:BF43DA4E59D8060A676D9E082B6C2E6C938B6431
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ Udemy | Web-разработчик 2020 (2019) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:3F0EA50DE5407530428CCA573B3CAC721283E809
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +647,8 @@ magnet:?xt=urn:btih:3F0EA50DE5407530428CCA573B3CAC721283E809
 magnet:?xt=urn:btih:C935A9B60D1EBC4CB30E23B1E4F21D92D04B498D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +676,8 @@ IBM SPSS Statistics – программа для профессионально
 magnet:?xt=urn:btih:1B5E04EA870D702240D7198CD8BCEC0BE4FCC708
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ OTUS | Нейронные сети на Python (2019) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:6AC3CFBDA1070F2D3DB272EE33EA37CAAD47C506
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

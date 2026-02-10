@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:21DC989AC595E742881AAED2151CF9867F3460DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ MiniTool Power Data Recovery - это инструмент предназнач�
 ```bash
 magnet:?xt=urn:btih:9A5BFCDFFC5197C240DDD511534DDB6AA2CD46C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Beyond Compare — мощнейшая программа для сравнени
 magnet:?xt=urn:btih:6367BD667C9F8A1C4CB8C9E209EE65C861EB22F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Calibre - простая и удобная программа для управ�
 magnet:?xt=urn:btih:A234F309C428A5EF0C54C44169EB40A513E3B2F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Vivaldi 6.8.3381.48 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B1013555BA7ADD58A8E9FD0843C300BA3B4E0F34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Balabolka 2.15.0.874 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:6D306A3657A1CBE6D078674149AAF0B112CFF7DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ FastFlix - это простой и дружественный графичес�
 ```bash
 magnet:?xt=urn:btih:34B42BB8CA83FF60DBDF9E06F2A21BDE19EE1468
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ UltraSearch Professional - находит файлы и папки на лока
 magnet:?xt=urn:btih:0C94A4D4D6F5D64860C20A56DCE5A09B0E8B67A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Opera One 112.0.5197.30 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:51773CF659DE075AD7B27B7008885A2A03CE951C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ R-Studio Network 9.4 Build 191340 RePack (& Portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:7007843632449E1087C1332F5F06BDBCFD8B461A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Atlantis Word Processor 4.4.0.2 Repack (& Portable) by elchupacabra [Ru/En]
 ```bash
 magnet:?xt=urn:btih:9B34A5E3A15045788AD85D80FFD7CC8687C8EF9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Radiant Photo - это программа для редактирования ф
 magnet:?xt=urn:btih:1E2E837C3BD0BFBC45271DEC9229289BA7B527F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ PDF Candy Desktop — универсальный инструмент, кото�
 ```bash
 magnet:?xt=urn:btih:FBA2EEB1BE43D708E121A964C115E8A679DBB670
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ AMD Radeon Software Adrenalin Edition представляет собой нов
 magnet:?xt=urn:btih:F6A2ECAC8A1F11C6013AF777D91ED2D281A2540F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Desktop Calendar – бесплатный календарь рабочего с
 magnet:?xt=urn:btih:CA0C42CF5A081AA56DD263A20FBB0700D777EC48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:CA0C42CF5A081AA56DD263A20FBB0700D777EC48
 ```bash
 magnet:?xt=urn:btih:49A4D5350CF116C684F58E33098CEA374564F4A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ BenVista PhotoZoom Pro 9 — это программное решение ном
 magnet:?xt=urn:btih:1230FBD82476E1C6B5C3640C851B6A55406DCE2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:1230FBD82476E1C6B5C3640C851B6A55406DCE2D
 ```bash
 magnet:?xt=urn:btih:9FC557CF851B68C64D2AF7F8D914DF477AFA3941
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ uTorrent Pro 3.6.0 Build 47132 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 magnet:?xt=urn:btih:2E04D8B402ECE80C21F94D9E4BD33573DDBF9858
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ KeepStreams — это удобный и мощный инструмент дл�
 ```bash
 magnet:?xt=urn:btih:064C90A0320ED7F1662DA4283E4E1ADA0C95D89C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ EssentialPIM - это отмеченное различными наградам
 magnet:?xt=urn:btih:AAE62D5746B57DF89A1684785E71B23D4B0F26B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ WindowManager - программа от разработчиков EarthView и 
 ```bash
 magnet:?xt=urn:btih:324ECADE73B21F4C84833108576854F94961B901
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ ApowerREC - это программа которая может записыва
 magnet:?xt=urn:btih:E2A59BFC4FD4E2CA3D287189FC0252100FD59BE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Audacity - свободный, простой в использовании зв
 ```bash
 magnet:?xt=urn:btih:2C9EAA1FAACFEA87279418CEFBC0FB381865FA5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Plugin Boutique - Scaler EQ 1.1.2 Standalone, VST, VST 3, AAX (x86/x64) RePack b
 magnet:?xt=urn:btih:21B68DBB852649FABF85D76634201457DD1CF6CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:C70CCF02593CA409129533A5E8EB3CF9EA7ACCDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1253290   (385538) от 08.10.2018
+
+VA - New Music Releases Week 40 of 2018 (2018) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385538.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kim Petras - Close Your Eyes
+002. Lane 8, Poliça - No Captain (Dirty South Remix)
+003. Mario - Goes Like That
+004. J.S. Ondara - American Dream(   Читать дальше...   )Жанр: Dance, Pop, RockПродолжительность: 13:11:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB6A9372E3932E40EA8AC8CB8E9FA61E1533BD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253319   (385542) от 08.10.2018
 
 VA - German Top 100 Single Charts 08.10.2018 [MP3|320 Kbps] <Pop>
@@ -21,6 +50,8 @@ VA - German Top 100 Single Charts 08.10.2018 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:F8CF726BD1820DF1321A1318A880C499BE875FD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ Spacekraft - The Legend Of The Samurai (2017) [MP3|~210 Kbps - 320 Kbps] <Synth 
 magnet:?xt=urn:btih:3F306658A75951F28410C8AB0881294EA815D42A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +109,8 @@ Redbone - One More Time (2022) Compilation [MP3|320 Kbps] <Rock, Native American
 magnet:?xt=urn:btih:FAFB964BB2DE88BC4E9E245466237980CE2F640B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +137,8 @@ VA - Beatport Bassline: Sound Pack # 185 (2020) [MP3|320 Kbps] <D&B, Bassline, B
 ```bash
 magnet:?xt=urn:btih:89954B0A8026E5AF55FF55A77976037FB26DBF63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +173,8 @@ VA - Самые скачиваемые треки Vol.10 (2012) [MP3|256 кб/с
 magnet:?xt=urn:btih:B4D8E345F47D13E6586B0EDCC9CD971C45FAE989
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +207,8 @@ VA - Музыкайф Европы Плюс Часть 10 (2012) [MP3|128 кб/�
 ```bash
 magnet:?xt=urn:btih:AD9A2519240839C1AB8AD29E6802D82459DCDB7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +243,8 @@ VA - Дискотека По Заявкам (2012) [MP3|128 кб/с]<Pop>
 magnet:?xt=urn:btih:7E8855A8797F5043A7C66603529F8AD167A5C13F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +277,8 @@ VA - Осенняя Жажда Скорости (2012) [MP3|256 кб/с]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:DB5165BE47FE8268E80C8FD17CD2F92AA2387C41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +313,8 @@ VA - Русская дискотека Vol.10 (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:49C7C82EED0C47F3160D22F9601F0A7ABACF73FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +348,8 @@ VA - Взорви Танцпол. Модный Хит (2012) [MP3|256 кб/с]<P
 magnet:?xt=urn:btih:1D2055629A70E691358FE8E4FEBFC35CCAFC350F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +376,8 @@ VA - Ностальгия 5 NNM-Remix Зарубежка (2020) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:2B0507AFF37A65DEC9FAE1A0FAD19084586D77CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +406,8 @@ magnet:?xt=urn:btih:2B0507AFF37A65DEC9FAE1A0FAD19084586D77CF
 magnet:?xt=urn:btih:1C162789833EF97AA16B74B13D9F5156A083D208
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +435,8 @@ VA - Любимая Музыка ВКонтакте ( Часть 2 ) Октяб�
 magnet:?xt=urn:btih:3785D6ABF3180CC92DE1C2EC3104FD2991C87C65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +463,8 @@ VA - Любимая Музыка ВКонтакте ( Часть 1 ) Октяб�
 ```bash
 magnet:?xt=urn:btih:AF569AA94E667AA5D362E8C540BD79ABFD3DEE16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +508,8 @@ VA - Созвездие хитов. Шансон 1-12 (2002-2012) [MP3|320 кб/
 magnet:?xt=urn:btih:87F9D098631B58C41197727CDD4BF3DB345C8F50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +537,8 @@ VA - The Official UK Top 40 Singles Chart 13.10.2017 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:14D1897EF0F36BF1FC967C6413A8186CC0124DAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +565,8 @@ Disc 01
 ```bash
 magnet:?xt=urn:btih:BB1939107625FE8DFF58790112A0FE958E259902
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +601,8 @@ VA - Лучшие Хиты Наше Радио Часть 10 (2012) [MP3|128 к�
 magnet:?xt=urn:btih:AFE5A0A8288F52C07833B13F1D80AB7DB841EF17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +629,8 @@ VA - Чарт Яндекс.Музыки 05.10.2018 (2018) [MP3|192 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:81B1BE24C4E13645BA0C672A239392270E93C97C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +659,8 @@ VA - Музыкальные Новинки Интернета (2016) [MP3|320 Kb
 magnet:?xt=urn:btih:A8C5F13FEBF5457D5233E16B88AB32A629C71C19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +687,8 @@ VA - All Stars Disco #3 (2016) [MP3|192~224 Kbps] <Disco, Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:E9F3DD069DD3AFAEE9DE3EA20BD072FAC9A1917D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +717,8 @@ Metallica - 30th Birthday Chopped and Twisted (2018) Live, 2CD [MP3|320 Kbps] <H
 magnet:?xt=urn:btih:172FF464F43DEE40C77CF283F18FDEEBFFD8F67A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +745,8 @@ VA - Future Garage Vol.41 (Compiled by ZeByte) (2017) [MP3|320 Kbps] <Downtempo,
 ```bash
 magnet:?xt=urn:btih:4EA015C8DFE8B9B1ACBCC571DFA44AB07D752E6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -700,6 +775,8 @@ VA - Indie/Rock Playlist: October (2017) [MP3|~217-277 Kbps] <Indie>
 magnet:?xt=urn:btih:8F9EE58C1828C30904B053A0F7DB7AFB483C5703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -727,32 +804,7 @@ VA - Зайцев.нет: Музыкальные новинки Октябрь 2
 magnet:?xt=urn:btih:7CAC555C2C9A3FEF779EF847EACF90F02DCFC024
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174127   (387541) от 14.10.2017
-
-VA - Progressive House Vol.6 (Compiled by ZeByte) (2017) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Biologik & K Nass - Corrupted (Biologik Remix)  7:17
-02.  Yunta - Revolution (Uvo Remix)  7:18
-03.  Desaturate - Inundate (Original Mix)  8:14
-04.  Rick Pier O'neil - Crystallized (Wes Straub Remix)  6:36(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:30:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F40842B62FD5B4A291F728A1D2CC90F1DFC3A979
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

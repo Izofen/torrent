@@ -1,3 +1,29 @@
+###  Публикация: 1108307   (864739) от 24.02.2017
+
+Габриэль Кампо Вильегас cmf | Умирая, они пели (2000) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864739.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 июля 1936 г. во время кровавого религиозного преследования в Испании группа революционеров напала на общину Миссионеров Кларетинов в городе Барбастро (провинция Уэска), состоявшую из 9 священников, 12 братьев и 39 семинаристов, и арестовала всех ее членов. Миссионеры, в большинстве своем молодёжь, приготовились к мученичеству в атмосфере молитвы и радостного принятия (   Читать дальше...   )Жанр: ЖитиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B14E051BDC914332132CC0D88D229E5D6C9D7EA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108032   (864741) от 24.02.2017
 
 И. Даров | Бехаизм. Новая религия Востока (1930) [DJVU]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:17461BEFE9B39D794EB68D7A5FF898883D1EBB21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:17461BEFE9B39D794EB68D7A5FF898883D1EBB21
 magnet:?xt=urn:btih:C892633E39D85F28B0C5C36CAC989470FE27AB2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:C892633E39D85F28B0C5C36CAC989470FE27AB2A
 ```bash
 magnet:?xt=urn:btih:8B84A3CDD1A3739A5FBD8413AD6B6B3385A228D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:8B84A3CDD1A3739A5FBD8413AD6B6B3385A228D7
 magnet:?xt=urn:btih:AC1CA165F44A11394599BC4D0AF15D1CBD67CC8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:AC1CA165F44A11394599BC4D0AF15D1CBD67CC8F
 ```bash
 magnet:?xt=urn:btih:FF41D5D04D71E51134719E3822CDDE643E515EBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:FF41D5D04D71E51134719E3822CDDE643E515EBB
 magnet:?xt=urn:btih:9C77B9A3C35B44F7086D13AFF22DC28E81DC6B33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:9C77B9A3C35B44F7086D13AFF22DC28E81DC6B33
 ```bash
 magnet:?xt=urn:btih:49BB58699D83EEC14981E44A653F8254B22E6C63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:49BB58699D83EEC14981E44A653F8254B22E6C63
 ```bash
 magnet:?xt=urn:btih:07B89DD2F2E9E06309D5897553686BBC8CA7D3D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ Harvard Business Review | HBR Guide. Стресс на работе (2019) [EPUB
 magnet:?xt=urn:btih:5F1491460DB31C0BDD93E94EAEB0B3DF1FE69050
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ StarDict | Подборка словарей для букридера [unpacked
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ StarDict | Подборка словарей для букридера [unpacked
 magnet:?xt=urn:btih:2FC8F815E98D0823F89BDE26BA51FEE19DB69111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:2FC8F815E98D0823F89BDE26BA51FEE19DB69111
 ```bash
 magnet:?xt=urn:btih:A37C20AFCD47CD17EC85A967F3F32DBC8515EEC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:A37C20AFCD47CD17EC85A967F3F32DBC8515EEC5
 magnet:?xt=urn:btih:9E2C5466FC587B8FED967D9B201FE00B3D9DA8E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:9E2C5466FC587B8FED967D9B201FE00B3D9DA8E1
 ```bash
 magnet:?xt=urn:btih:ACD67B1C9DE3D40BC35713646214E2AE7605E360
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:ACD67B1C9DE3D40BC35713646214E2AE7605E360
 magnet:?xt=urn:btih:D804DDF197A6E2BCD4CE4F2697A96F07D87744C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:D804DDF197A6E2BCD4CE4F2697A96F07D87744C5
 ```bash
 magnet:?xt=urn:btih:C5B1007FFE44F39575CB213B8E0E8C07798BF94D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:C5B1007FFE44F39575CB213B8E0E8C07798BF94D
 magnet:?xt=urn:btih:BA8C328CDA403DCB30E1EE69480CD96A7D4F8AA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +501,8 @@ magnet:?xt=urn:btih:BA8C328CDA403DCB30E1EE69480CD96A7D4F8AA5
 magnet:?xt=urn:btih:1C8B5988ED173E0284A8A2E0FD9DDB0BF8F1140F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:1C8B5988ED173E0284A8A2E0FD9DDB0BF8F1140F
 ```bash
 magnet:?xt=urn:btih:12BC213EC26E9DD8BE5B62989746F1DCDFABDD26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +553,8 @@ magnet:?xt=urn:btih:12BC213EC26E9DD8BE5B62989746F1DCDFABDD26
 magnet:?xt=urn:btih:AAAC35B89C977C7F7D6BB6044A57ADD063BA4ED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:AAAC35B89C977C7F7D6BB6044A57ADD063BA4ED3
 magnet:?xt=urn:btih:491541B31A976C3FD8EF3AC0C15EF8852C40E9DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:491541B31A976C3FD8EF3AC0C15EF8852C40E9DE
 ```bash
 magnet:?xt=urn:btih:ECB7273B5F76523737726B2AB399A88B020B2070
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +633,8 @@ magnet:?xt=urn:btih:ECB7273B5F76523737726B2AB399A88B020B2070
 magnet:?xt=urn:btih:2E48AF55343D6F96531D9CB8CF039B20BBD014DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:2E48AF55343D6F96531D9CB8CF039B20BBD014DE
 ```bash
 magnet:?xt=urn:btih:8DF92F00B91CA100E1623F5F265172A4C8A95ACE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,30 +685,7 @@ magnet:?xt=urn:btih:8DF92F00B91CA100E1623F5F265172A4C8A95ACE
 magnet:?xt=urn:btih:B2A85F0BFC8510931BA37A8EACAD7D74F26EDC87
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 767333   (865409) от 17.03.2014
-
-Валентин Катасонов | О проценте ссудном, подсудном, безрассудном [в 2-х томах] (2011) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Системный анализ глубинных причин мирового финансово-экономического кризиса даёт богатейший проблемный материал для исследования на семинарских и лекционных занятиях со студентами и слушателями старших курсов экономических вузов и факультетов.
-Автор рассматривает зарождение и становление так называемой «денежной цивилизации» или рыночной экономики в контексте духовно-нравственной эволюции общества. Преодоление перманентного кризиса, по убеждению автора, возможно лишь при полном демонтаже «денежной цивилизации». Достаточно радикальный вывод автора позволяет удерживать и углублять интерес к изучению экономических дисциплин. Ретроспективно-прогностическая подача материала позволяет читателю строить собственные причинно-следственные сценарии, модели настоящего и будущего, позволяет соглашаться с автором или оппонировать ему, что делает книгу эффективным учебным пособием.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CAAA13EFF667DDFB8F2C67BFC84595CE6F39E6C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

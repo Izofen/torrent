@@ -1,27 +1,3 @@
-###  Публикация: 1611620   (1041167) от 12.02.2023
-
-Журнал | Вопросы кибербезопасности №5 (51) (2022) [PDF] [Ru, En]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041167.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вопросы кибербезопасности» - это научный, периодический, информационно-методический журнал с базовой специализацией в области информационной безопасности. На страницах журнала печатаются статьи российских и иностранных ученых в области информационной безопасности и информационного противоборства, в первую очередь материал по кибербезопасности, безопасности приложений, (   Читать дальше...   )Жанр: КибербезопасностьЯзык: Русский, английскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB6D0D9FFCAD14099D0FB43336384EC8938EF339
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611730   (1041168) от 12.02.2023
 
 Журнал | Information security / Информационная безопасность №5 (ноябрь 2022) [PDF]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:FB6D0D9FFCAD14099D0FB43336384EC8938EF339
 ```bash
 magnet:?xt=urn:btih:6EDA601B8C0A9F30FACCE146422BD007DBA9E216
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:6EDA601B8C0A9F30FACCE146422BD007DBA9E216
 magnet:?xt=urn:btih:29791F2457BD4A0144DE6F9A5CC41D1C5F1BA1AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:29791F2457BD4A0144DE6F9A5CC41D1C5F1BA1AF
 ```bash
 magnet:?xt=urn:btih:2A75CBDBC651B1F577393EDBBB279F25AABEB9CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:2A75CBDBC651B1F577393EDBBB279F25AABEB9CC
 magnet:?xt=urn:btih:63B026E81B91471095F21F2010A7530BBCB6F2B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:63B026E81B91471095F21F2010A7530BBCB6F2B4
 ```bash
 magnet:?xt=urn:btih:B9510F1E7E224217AED08F28BFEF57E4FA867F51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:B9510F1E7E224217AED08F28BFEF57E4FA867F51
 magnet:?xt=urn:btih:0C7E669D129083806177A06BCEFD2ED45392253D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:0C7E669D129083806177A06BCEFD2ED45392253D
 ```bash
 magnet:?xt=urn:btih:B723EEC6ABE0AA91A4EE142BC6DF04FC6B1D4874
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:B723EEC6ABE0AA91A4EE142BC6DF04FC6B1D4874
 magnet:?xt=urn:btih:2E3E47AC27CE3FE36922D13590711456CE78AF97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:2E3E47AC27CE3FE36922D13590711456CE78AF97
 ```bash
 magnet:?xt=urn:btih:F2BAD83EFBC2DAED265A48FF675720F076E9C871
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:F2BAD83EFBC2DAED265A48FF675720F076E9C871
 magnet:?xt=urn:btih:C5FECDF1AF7BEBB07BC670361837EC77BDE2BB0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ magnet:?xt=urn:btih:C5FECDF1AF7BEBB07BC670361837EC77BDE2BB0B
 ```bash
 magnet:?xt=urn:btih:5A85D87D610549C7B1EAAE14CB3EE380A6EF97FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:5A85D87D610549C7B1EAAE14CB3EE380A6EF97FA
 magnet:?xt=urn:btih:0EFAC61505496891A3E2ED83BF2A6A0A3CF7F8DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ magnet:?xt=urn:btih:0EFAC61505496891A3E2ED83BF2A6A0A3CF7F8DB
 ```bash
 magnet:?xt=urn:btih:A1823D61667AAC5EEDA6191147DF491F3727D15F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:A1823D61667AAC5EEDA6191147DF491F3727D15F
 magnet:?xt=urn:btih:43AF50C68C3A3E5134D205B6AE8B64309E98BE33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ magnet:?xt=urn:btih:43AF50C68C3A3E5134D205B6AE8B64309E98BE33
 ```bash
 magnet:?xt=urn:btih:8BF5F9430A0D0A54A372FA6E25E330C7858B8727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ magnet:?xt=urn:btih:8BF5F9430A0D0A54A372FA6E25E330C7858B8727
 magnet:?xt=urn:btih:C20006AC4BCC1B854DC95042808284D4AB1912B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ magnet:?xt=urn:btih:C20006AC4BCC1B854DC95042808284D4AB1912B0
 ```bash
 magnet:?xt=urn:btih:AF0ABD5CB0BC429BA7D83F6CD654F44A388CF288
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ magnet:?xt=urn:btih:AF0ABD5CB0BC429BA7D83F6CD654F44A388CF288
 magnet:?xt=urn:btih:963C45E8D771DC2F4399E08D95A82C274B60B400
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ magnet:?xt=urn:btih:963C45E8D771DC2F4399E08D95A82C274B60B400
 ```bash
 magnet:?xt=urn:btih:C37B155548E0D0AA7EF93DE61D9032BB0FCACE80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ magnet:?xt=urn:btih:C37B155548E0D0AA7EF93DE61D9032BB0FCACE80
 magnet:?xt=urn:btih:7A9E7843F379DDA47F98FC5D315CB35C90FD59E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ magnet:?xt=urn:btih:7A9E7843F379DDA47F98FC5D315CB35C90FD59E2
 ```bash
 magnet:?xt=urn:btih:8E8253458336E41D15905C4F0ECD44A490AC45FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ magnet:?xt=urn:btih:8E8253458336E41D15905C4F0ECD44A490AC45FB
 magnet:?xt=urn:btih:FA2B1B2EF9316E99B73EB474ADF99FAD3A6EF4BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ magnet:?xt=urn:btih:FA2B1B2EF9316E99B73EB474ADF99FAD3A6EF4BF
 ```bash
 magnet:?xt=urn:btih:9A0E70D2D51877448AAA5B271618379F5CD90770
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ magnet:?xt=urn:btih:9A0E70D2D51877448AAA5B271618379F5CD90770
 magnet:?xt=urn:btih:4FB466BE38EB879AA333E4A054E36E2ABD666AF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ magnet:?xt=urn:btih:4FB466BE38EB879AA333E4A054E36E2ABD666AF0
 ```bash
 magnet:?xt=urn:btih:D236111AF89316B2BB18F62C2E4A13A76B28456E
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842687   (1048910) от 16.12.2025
+
+Журнал | ТехИнсайдер №19 (декабрь 2025) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048910.jpg" />
+</div>
+
+
+###  Подробнее
+
+ТехИнсайдер – это расширенная вселенная бренда «Популярная механика», проекта о том, как устроен мир. ТехИнсайдер – это собственные эксклюзивные материалы о новейших достижениях в сфере науки, цифровых технологий, в авиации, вооружении, автомобилестроении и даже в сфере обустройства дома. На всех своих площадках ТехИнсайдер знакомит с инновационными технологиями (   Читать дальше...   )Жанр: Научно-популярный журналИздательство: ООО "Фэшн Пресс"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8E173FAE6B806D55B4CA28210F18317AF702DAF
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

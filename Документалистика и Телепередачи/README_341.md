@@ -1,3 +1,29 @@
+###  Публикация: 1163000   (454863) от 03.09.2017
+
+Вести недели (03.09.2017) SATRip
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454863.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вести недели» - еженедельная итоговая информационная программа Всероссийской государственной телерадиокомпании, выходящая в эфир по воскресеньям в 20.00, с хронометражем от 1 часа 10 минут до 1 часа 30 минут. Программа «Вести недели» не имеет рубрик, но внутри неё может показываться в кратком виде фрагменты из программы «Специальный корреспондент».Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 01:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D80E7C173BECB8BF362A3C62D5280A435DEAD42F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1162881   (454954) от 03.09.2017
 
 Новая Фабрика Звезд (2017) WEB-DL [H.264/720p-LQ] (1 выпуск)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:603F21E0150B8B73A32DE24ED7E155D29894940B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:603F21E0150B8B73A32DE24ED7E155D29894940B
 magnet:?xt=urn:btih:1F94B07CAA08FB07E5F81E47D7797AA48577B64A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:1F94B07CAA08FB07E5F81E47D7797AA48577B64A
 ```bash
 magnet:?xt=urn:btih:2716FE1A70B8233E11C54DF4238FE45C6FC6EAD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:2716FE1A70B8233E11C54DF4238FE45C6FC6EAD8
 magnet:?xt=urn:btih:CEB5DE7AEE8577E7D00E96927E3B7552BFEB31D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:CEB5DE7AEE8577E7D00E96927E3B7552BFEB31D1
 ```bash
 magnet:?xt=urn:btih:7C3662FB6B19E79D2EC41A9CA31B0CBBB5AD3ADD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:7C3662FB6B19E79D2EC41A9CA31B0CBBB5AD3ADD
 magnet:?xt=urn:btih:020ADE7425E2525CB7DDE8E799B1C3379838D47B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ Rammstein - In Amerika (Disc 2) (2015)  BDRip [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:FECF5F2224EEECD09025B918EFC7CA6EADF8C090
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:FECF5F2224EEECD09025B918EFC7CA6EADF8C090
 magnet:?xt=urn:btih:C0214BC24E1BD6682FE57C2466EC777DDB4408BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:C0214BC24E1BD6682FE57C2466EC777DDB4408BA
 ```bash
 magnet:?xt=urn:btih:DCF7198B7D12D6AC5E9F421585CCBBA069F24D84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:DCF7198B7D12D6AC5E9F421585CCBBA069F24D84
 magnet:?xt=urn:btih:BF83BBA31384AE691F2E6848F7E2FC93F6EDFD5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:BF83BBA31384AE691F2E6848F7E2FC93F6EDFD5E
 magnet:?xt=urn:btih:EB68E9618F31F7A114C7EC4B66D8882357D1C369
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:EB68E9618F31F7A114C7EC4B66D8882357D1C369
 ```bash
 magnet:?xt=urn:btih:48D733205CB352C0C6B35BB86B3C3ECDEAC97C80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:48D733205CB352C0C6B35BB86B3C3ECDEAC97C80
 magnet:?xt=urn:btih:272F61A44C038144866435311DD0DEFCEE2DF704
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:272F61A44C038144866435311DD0DEFCEE2DF704
 ```bash
 magnet:?xt=urn:btih:CB6E56622F98DE4DAA20A250124B1DEE24347659
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:CB6E56622F98DE4DAA20A250124B1DEE24347659
 magnet:?xt=urn:btih:AA342F512284050B2DF845595226C1055F551BD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:AA342F512284050B2DF845595226C1055F551BD6
 magnet:?xt=urn:btih:C9E2844036F5F97091D5F0458451097E971ED7FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:C9E2844036F5F97091D5F0458451097E971ED7FB
 ```bash
 magnet:?xt=urn:btih:72F375DDE61D75F9FF67FD44BD7C826400DBD6DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:72F375DDE61D75F9FF67FD44BD7C826400DBD6DD
 magnet:?xt=urn:btih:6F1A63DEAAF8CE496D7416BAA2CC94EC7B0E6DD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:6F1A63DEAAF8CE496D7416BAA2CC94EC7B0E6DD7
 magnet:?xt=urn:btih:53793B91D32CB88359E0A065F06A44B3030D5721
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:53793B91D32CB88359E0A065F06A44B3030D5721
 ```bash
 magnet:?xt=urn:btih:5DE044F84957B6AC83913C1FCC585701251EEC7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:5DE044F84957B6AC83913C1FCC585701251EEC7A
 magnet:?xt=urn:btih:AE5854FBA628FB24441D1C88DF0CBE5AD375EFB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:AE5854FBA628FB24441D1C88DF0CBE5AD375EFB5
 ```bash
 magnet:?xt=urn:btih:A73CD8F8BD19B68300B9ABA352DA6B29118F2AB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:A73CD8F8BD19B68300B9ABA352DA6B29118F2AB3
 magnet:?xt=urn:btih:C3E2919394F56495DAFA7EA02EDE02F86615A454
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:C3E2919394F56495DAFA7EA02EDE02F86615A454
 ```bash
 magnet:?xt=urn:btih:8F26FD052C11E9FCB6A973EE1D00775C5F5BC13B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:8F26FD052C11E9FCB6A973EE1D00775C5F5BC13B
 magnet:?xt=urn:btih:64405035D41EC1E422AB4C5571265428B3A71137
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942356   (455960) от 30.09.2015
-
-Земля. Территория загадок. Тайна зазеркалья (2015) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Древнейшее из найденных зеркал, изготовленных человеком, относится примерно к 7 тысячелетию до н.э. Об особых энергетических свойствах отражений знали еще древние люди. Сейчас специалисты говорят, что зеркала не только отражают, но и поглощают окружающую энергию. Какие суеверия связаны с отражениями, и почему мы до сих пор их соблюдаем? Может ли зеркало передать (   Читать дальше...   )Телекомпания: МИРЖанр: ДокументальныйПродолжительность: 00:23:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D9C98F944D8D1194D56721C53D484536D8A4573
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1216432   (751237) от 30.03.2018
+
+Александр Митта. О любви, компромиссах, предчувствиях... (2018) DVB [H.264/1080i-LQ]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выдающийся кинорежиссер, строгий воспитатель, озорной выдумщик» — с такой формулировкой всеми любимого Александра Наумовича Митту награждали призом «За вклад в кинематограф». «Неисправимый оптимист», как он сам себя называет, автор буквально взорвавшего киноэкраны страны «Экипажа» празднует 85-летие. За его плечами популярные киноленты и сериалы, навсегда вошедшие (   Читать дальше...   )Телекомпания: Россия / ТК «Останкино»Жанр: Документальный, Биография, ИскусствоСубтитры: Русские, телетекст (888)Продолжительность: 00:51:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A86EB55BEE34EDA9146B2404FF61A191921CBB63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501222   (751280) от 11.01.2022
 
 Если бы стены могли говорить / Si les murs pouvaient parler (2020) HDTVRip [H.264] (серии 1-2 из 4) [FR / RU Sub] (Обновляемая)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:DCEBF46499630A42AE319A5FF35211FCD1219170
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:DCEBF46499630A42AE319A5FF35211FCD1219170
 magnet:?xt=urn:btih:F0ED7DE79E5A0FFB9EB48724C0EC3FAE875F5780
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:F0ED7DE79E5A0FFB9EB48724C0EC3FAE875F5780
 ```bash
 magnet:?xt=urn:btih:DA1668DD33D0AAAB427D68250790CEF4391A94E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:DA1668DD33D0AAAB427D68250790CEF4391A94E9
 magnet:?xt=urn:btih:8DDD61778C2F5DF9911EA75BEC30BD865D5B9666
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:8DDD61778C2F5DF9911EA75BEC30BD865D5B9666
 ```bash
 magnet:?xt=urn:btih:D2C1BAA2761642663307D315A3ABFB36F382C342
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:D2C1BAA2761642663307D315A3ABFB36F382C342
 magnet:?xt=urn:btih:95D7353C87498D2C1D291F0141E246B4D92992B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:95D7353C87498D2C1D291F0141E246B4D92992B1
 ```bash
 magnet:?xt=urn:btih:EE80331F5A608E127E65FBCAF6C51C8B696FCF60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:EE80331F5A608E127E65FBCAF6C51C8B696FCF60
 magnet:?xt=urn:btih:27B304BDA71DCE4014A9FAC5F505480A12BBB6C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:27B304BDA71DCE4014A9FAC5F505480A12BBB6C7
 ```bash
 magnet:?xt=urn:btih:F40079E3A901328782E223E6A9CCB8CA29B3E4E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:F40079E3A901328782E223E6A9CCB8CA29B3E4E2
 magnet:?xt=urn:btih:BA2F483D006B3C0D01ADB9BFAB189173F76F9167
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:BA2F483D006B3C0D01ADB9BFAB189173F76F9167
 ```bash
 magnet:?xt=urn:btih:38BAAAEA4EA48ECAC05E00735F7C17AEDBC53C39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:38BAAAEA4EA48ECAC05E00735F7C17AEDBC53C39
 magnet:?xt=urn:btih:EB04B10B5D089D9AB67BA53D5C6729D6EB9B9932
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:EB04B10B5D089D9AB67BA53D5C6729D6EB9B9932
 ```bash
 magnet:?xt=urn:btih:D0381C5BDB040819149A6D0E590162E38162FFFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:D0381C5BDB040819149A6D0E590162E38162FFFB
 magnet:?xt=urn:btih:A189F8BB24FE32DD75211E19BAA5D831E8E89022
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:A189F8BB24FE32DD75211E19BAA5D831E8E89022
 ```bash
 magnet:?xt=urn:btih:6067197A1E281E00E6E7E4F25F4504704B711D52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:6067197A1E281E00E6E7E4F25F4504704B711D52
 magnet:?xt=urn:btih:4AEFDF370495EBCB794208FC2C5575E01432C8B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:4AEFDF370495EBCB794208FC2C5575E01432C8B1
 magnet:?xt=urn:btih:69DD0816D26AE41D08F3B7C0062892695373AEA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:69DD0816D26AE41D08F3B7C0062892695373AEA6
 ```bash
 magnet:?xt=urn:btih:20730BE5E9AEC3BFFE2250CE1DBF0585E4C22270
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:20730BE5E9AEC3BFFE2250CE1DBF0585E4C22270
 magnet:?xt=urn:btih:FB66FC593A9AFF7A78C4C2E5804F7DBF819939E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:FB66FC593A9AFF7A78C4C2E5804F7DBF819939E5
 ```bash
 magnet:?xt=urn:btih:C6D6973E8E75BE32B390BFBAFA18B0807A1581CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:C6D6973E8E75BE32B390BFBAFA18B0807A1581CD
 magnet:?xt=urn:btih:0A2B2563C966AA166223699F146576642E1DE27E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:0A2B2563C966AA166223699F146576642E1DE27E
 ```bash
 magnet:?xt=urn:btih:26BA629FB10DF3E9E2D9F397C8EC423E3B28F590
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:26BA629FB10DF3E9E2D9F397C8EC423E3B28F590
 magnet:?xt=urn:btih:B91840439822E3EEBCD6EAC86F6011F2102910C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:B91840439822E3EEBCD6EAC86F6011F2102910C8
 ```bash
 magnet:?xt=urn:btih:AFB65A86CB6193CFCBD6ADD173CEC334330171E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,31 +672,7 @@ magnet:?xt=urn:btih:AFB65A86CB6193CFCBD6ADD173CEC334330171E1
 magnet:?xt=urn:btih:63E334807838CBB244112141FE99C1A451B149DC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395793   (752126) от 12.07.2020
-
-Город на берегу. Амстердам (Нидерланды) / Waterfront Cities Of The World (2015) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Амстердам - столица и крупнейший город Нидерландов, расположенный на севере страны в месте впадения рек Амстел и Эй в Северное море.
-Жемчужина Северной Европы, город удивительной архитектуры, сотен канал и тысяч мостов...
-Самая счастливая ведущая Софи Фурон приглашает на прогулку по городу мечты.Производство: Канада, TV5Жанр: Документальный, познавательный, путешествияРежиссер: Николя Буше, Этиен ДесирэПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:485807C9645A512A2646ED905523B74FE6C6D7BE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

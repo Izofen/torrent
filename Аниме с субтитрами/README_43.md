@@ -19,6 +19,8 @@ Suki ni Naru Sono Shunkan o. Kokuhaku Jikkou Iinkai | The Moment You Fall in Lov
 magnet:?xt=urn:btih:41FD565DD65DEB2D274450E9CCABF529CB18E37E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ DNA2: Dokoka de Nakushita Aitsu no Aitsu | ДНК 2 [1994, TV+OVA, 15 эп.] BDR
 magnet:?xt=urn:btih:4DAC9B493A07E19DD0ADF30077974BCCAE69691E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Onii-sama e... | Dear Brother | Уважаемый старший брат [ТВ
 ```bash
 magnet:?xt=urn:btih:F4782B88DB12F3DAF7F34E6E725B1FB5FBC4CE24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Ichiban Ushiro no Daimaou Год выпуска: 2010
 magnet:?xt=urn:btih:96EA0512A42BB2F65E3C5EE283691A71E9C5F5E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ _____К XXII веку человечество освоило космическ
 ```bash
 magnet:?xt=urn:btih:2521D771D793334BC5C896476987A3658254FEB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Alice to Zouroku | Алиса и Дзороку [2017, TV, 12 эп.] BDrip 1080p
 magnet:?xt=urn:btih:D36C9B748066602E4DD92DC64E136F9DE07200E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ GATE | Gate: Jieitai Kanochi nite, Kaku Tatakaeri | ВРАТА: искусств
 ```bash
 magnet:?xt=urn:btih:637B80D2323CA206B1D24C42F0F039AE47402BE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Slayers Return | Slayers Return | Рубаки (фильм второй) | Ру�
 magnet:?xt=urn:btih:F003F8D03C4337D5DC3ADF4B56292C09B7D3AC09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Taboo-Tattoo | Запретная татуировка [2016, TV, 12 эп.] BDri
 ```bash
 magnet:?xt=urn:btih:A02526D61D67A525F325D81CA4754EC8150D1097
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Peter Grill to Kenja no Jikan | Peter Grill and the Philosopher's Time | Пёт�
 magnet:?xt=urn:btih:B8826201E8EA494677BF52CC9F1438925E22443C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ The Idolm@ster Xenoglossia | Idolmaster Xenoglossia | Idol Master Xenoglossia | 
 ```bash
 magnet:?xt=urn:btih:1F33A3283A69A1A288F16478044312A34D85342E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Kanata no Astra | Astra Lost in Space | Астра, затерянная в ко
 magnet:?xt=urn:btih:D4704D4E3B1CD2544B124A04D2202C2E9DACE567
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Musaigen no Phantom World | Myriad Colors Phantom World | Красочный м�
 ```bash
 magnet:?xt=urn:btih:548078BE0DE1A93284F18954C5029C72D0157BD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Ranma Nibun No Ichi: Nettohen / Ranma 1/2 / Ранма пополам [1991-2008
 magnet:?xt=urn:btih:EC14569F2274B65277ACB0C446B93BCC6C80E8FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Ranma 1/2: Akumu! Shunmin Kou | Ranma 1/2: Nightmare! The Incense of Spring Slee
 ```bash
 magnet:?xt=urn:btih:8C662F80CED2FB62F509E7D9DA8F339CE4C1DE58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Uta Kata | Ута-Ката [2004, TV, 12 эп. + 1 OVA] DVDRip 576p 10bit raw
 magnet:?xt=urn:btih:3EBF663C01513CDC0489CC0B5FD8EF2A90A6444B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Frame Arms Girl | Боевые куколки | Вооружённая малы�
 ```bash
 magnet:?xt=urn:btih:C72ACDBAD806487B48385175D3700F479668A37A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Yoake Tsugeru Lu no Uta | Lu Over The Wall | Песня Лу на рассвет
 magnet:?xt=urn:btih:27238DAD16EDC13DE798ACC5454B7A1C883D2F3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ THE iDOLM@STER SHINY FESTA | The Idolmaster: Shiny Festa [2012, OVA, 3 эп.] BD
 ```bash
 magnet:?xt=urn:btih:7BC938C4603E7E00F631B5952CCA8672BAA12F08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Trinity Seven / Святая Семёрка [2015, OVA, 1] BDRip 720p Hi10P raw
 magnet:?xt=urn:btih:62E8117938F8ADB83BFBD2598DE7B4B9FBD86D78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Eiga Chuunibyou demo Koi ga Shitai! Take on Me | Чудачество любви
 ```bash
 magnet:?xt=urn:btih:51899FA3F54AB8EF484C70D755B9D022A4F68903
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:51899FA3F54AB8EF484C70D755B9D022A4F68903
 magnet:?xt=urn:btih:FB6295F38C165379A7378610232F4FF0B252BDA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Love Live! The School Idol Movie | Живая любовь! (фильм) [2015, 
 ```bash
 magnet:?xt=urn:btih:D31BDDF70E79CB191944E6AF1A7534A190329E62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ Clione no Akari | Lights of the Clione | Свет морского ангела 
 magnet:?xt=urn:btih:0F07FA0EA8C9CF1CA0C44BDD6AA8E2F340FB97CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Hoshi o Ou Kodomo | Hoshi wo Ou Kodomo | Children Who Chase Lost Voices | Лов
 magnet:?xt=urn:btih:C1F681EFD947D701903E17BB0E086459FC71A3BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Akage no Anne | Anne of Green Gables | Энн из Зеленых Мезонин
 ```bash
 magnet:?xt=urn:btih:BA4AC5FD3469A6B7A426D70E0CE0674E908F76A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

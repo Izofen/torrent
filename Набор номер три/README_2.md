@@ -19,6 +19,8 @@ Cyberpunk 2077 приключенческая ролевая игра, дейс�
 magnet:?xt=urn:btih:1F5817DA89C2E5EB7A7D65523AC1C80069C76C96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Cyberpunk 2077 приключенческая ролевая игра, дейс�
 ```bash
 magnet:?xt=urn:btih:B1C18A21D8AFCEB36CF22EB8BB630C06F3DAD22B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.11.371/dlc) License GOG
 magnet:?xt=urn:btih:E79BB75773E20E9C2CD858E9A092D7D0EDC4E25B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:E79BB75773E20E9C2CD858E9A092D7D0EDC4E25B
 ```bash
 magnet:?xt=urn:btih:D74F41FB9E5095AA2DACDA049DF23E7311E80346
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:D74F41FB9E5095AA2DACDA049DF23E7311E80346
 magnet:?xt=urn:btih:82DE13F9B36E38DAE74CB6421DDE4B6A7EF4B9EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2025.09.07 [Ru]
 ```bash
 magnet:?xt=urn:btih:98A9B7B93589CBCA441455A7FCB2319C2FF59375
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:98A9B7B93589CBCA441455A7FCB2319C2FF59375
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:98A9B7B93589CBCA441455A7FCB2319C2FF59375
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Cyberpunk 2077 — приключенческая ролевая игра, де�
 magnet:?xt=urn:btih:2091A110C4A0A27D09F0C56EEA87EB4CCF407E3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ XMedia Recode - отличная утилита, цель которой - по�
 ```bash
 magnet:?xt=urn:btih:2F9C4EE44EC4650AC4D784427723A910F858DA15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ No Man's Sky (2016) [Ru/Multi] (6.04) License GOG [VR]
 magnet:?xt=urn:btih:E93988216EB2E6CB4684F89E9A44F16B65874C54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:E93988216EB2E6CB4684F89E9A44F16B65874C54
 ```bash
 magnet:?xt=urn:btih:D5C71D4F93B76C6AADA4407E70ED67858ED80536
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:D5C71D4F93B76C6AADA4407E70ED67858ED80536
 magnet:?xt=urn:btih:E4C4A62BDB64A8CF850FB84025D814618522AD57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack Decept
 ```bash
 magnet:?xt=urn:btih:982C3AAC52684768D8FA62FAFEBDE9667064E4CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ MAX в августе заблокировал около 67 тысяч подо
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ MAX в августе заблокировал около 67 тысяч подо
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Valheim – динамичный и увлекательный приключе�
 magnet:?xt=urn:btih:3757B184F46E57C16E81AE84B83FD73D70068EFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:3757B184F46E57C16E81AE84B83FD73D70068EFE
 ```bash
 magnet:?xt=urn:btih:14764B9341F5FE7B4B0807DD25E04A0D4E9BECD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:14764B9341F5FE7B4B0807DD25E04A0D4E9BECD4
 magnet:?xt=urn:btih:6020EC10AAD5BC1A9FB624EC70C31143866B138F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:6020EC10AAD5BC1A9FB624EC70C31143866B138F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:6020EC10AAD5BC1A9FB624EC70C31143866B138F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:6020EC10AAD5BC1A9FB624EC70C31143866B138F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:6020EC10AAD5BC1A9FB624EC70C31143866B138F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack Let's�
 magnet:?xt=urn:btih:3227ABC1DF055EB406562CD1654BE406CE432BE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:3227ABC1DF055EB406562CD1654BE406CE432BE3
 magnet:?xt=urn:btih:9B1DD3247D61296F998AD89AA8A8318471222811
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:9B1DD3247D61296F998AD89AA8A8318471222811
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

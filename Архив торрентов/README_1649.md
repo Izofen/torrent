@@ -21,6 +21,8 @@ ExpanDrive 4.2.1 [En]
 magnet:?xt=urn:btih:772297020298B82B16CDD8EDBDE03EA7C398905B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ SVR Radio - программа для прослушивания и записи
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Comedy Баттл. Суперсезон. Выпуск №37  / Комеди Кл
 magnet:?xt=urn:btih:71BE366CBC94EEDB3C40F4F6C3E86AD659565D8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:71BE366CBC94EEDB3C40F4F6C3E86AD659565D8B
 ```bash
 magnet:?xt=urn:btih:3807C80875F67911FE81498742DB4A8C18171F0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:3807C80875F67911FE81498742DB4A8C18171F0E
 magnet:?xt=urn:btih:EA7475DEAAF6A626C15306830F68E61C86F4E32D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:A28CF16EA4EBD90CCDEDE3EEA7311945D20E6223
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Capo – это музыкальный плейер, но предназначе
 magnet:?xt=urn:btih:76FD25922FC76AC241393E22874C9F7562F89EA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:76FD25922FC76AC241393E22874C9F7562F89EA6
 ```bash
 magnet:?xt=urn:btih:3EF470DF40498664388AE95970C31B8E3596605B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ AllDup - бесплатный инструмент для поиска и уда
 magnet:?xt=urn:btih:7A8612A92243051B06C6EB8AD857D8A39F01F7F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:7A8612A92243051B06C6EB8AD857D8A39F01F7F0
 magnet:?xt=urn:btih:3F0F620ACD944393FAA591059992BA3877186474
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ DVDFab - программа, предназначенная для создан�
 ```bash
 magnet:?xt=urn:btih:C401C722AFB5C63D9EA488EFCB64CC49964E6CC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:C401C722AFB5C63D9EA488EFCB64CC49964E6CC0
 magnet:?xt=urn:btih:D1FE98052CAA57DB59DBEB0CDC1DEF7ACA96582E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Photo Calendar Studio 2014 - программа для дизайна и печ�
 ```bash
 magnet:?xt=urn:btih:01A668277216B8FC5B2240403D0CA39CCF2EC15D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:01A668277216B8FC5B2240403D0CA39CCF2EC15D
 magnet:?xt=urn:btih:4F0ABB49FA76545769DCA562C85E6AEAD1B3AD79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Comedy Woman  (2014.12.19) SATRip
 magnet:?xt=urn:btih:A3FE0AD3228FC512ABAC7991A7ED12C64BB6C65B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:A3FE0AD3228FC512ABAC7991A7ED12C64BB6C65B
 ```bash
 magnet:?xt=urn:btih:16F0AAA67A7F060316E1A419048263546685FBB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ PrivaZer - полезная утилита, которая поможет вам
 magnet:?xt=urn:btih:EB2B510D12195CB95EC6149845195275F0FD809B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:EB2B510D12195CB95EC6149845195275F0FD809B
 ```bash
 magnet:?xt=urn:btih:B6DA1C8A8031DB2F0E5027AAFDBA32442E627E26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ Luminar первый в мире редактор фотографий, кото
 magnet:?xt=urn:btih:A260CE463288C6BC8B411A58AC8887B2C12EAE8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ AkelPad - компактный, но при этом удобный и быст�
 ```bash
 magnet:?xt=urn:btih:BF78949735D556C15FE0B31379729EC77219184C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ The Best. Children - интересная серия для детей. Публ
 magnet:?xt=urn:btih:318F6F5EA4049E744B6D0EA1DBD80EDC60FFD701
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Floorp Browser – это модифицированная версия Firefox,
 magnet:?xt=urn:btih:45CC7CCD6CCE78355C92B73AC51DFD2294766BB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:45CC7CCD6CCE78355C92B73AC51DFD2294766BB4
 ```bash
 magnet:?xt=urn:btih:A70ED4CDF6E869F6472E28DAC4DE2E393BAE1DD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ Boki мечтает в один день стать героем, и чтобы 
 magnet:?xt=urn:btih:075DF54AFAE2536DF626BBEA339C218C79ED94F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 magnet:?xt=urn:btih:D8146434CA03B228BBB956FC67F18CD9010A9573
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:D8146434CA03B228BBB956FC67F18CD9010A9573
 ```bash
 magnet:?xt=urn:btih:66733F7D1DD355A344337272B6DDE0EFE69D0D40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

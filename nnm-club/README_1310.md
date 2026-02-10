@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5FE50733F0CAA45539C01B9C67010294D905C366
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Machinarium 3.1.8 [Ru/Multi]
 magnet:?xt=urn:btih:6AC53199E342FACB8CCC0CD7D7878F982045C0AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:6AC53199E342FACB8CCC0CD7D7878F982045C0AB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:6AC53199E342FACB8CCC0CD7D7878F982045C0AB
 magnet:?xt=urn:btih:4B0C2758D3290D676FEB07599C533533244967EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:4B0C2758D3290D676FEB07599C533533244967EC
 ```bash
 magnet:?xt=urn:btih:231F639BADB5ED9A241B0EFDCB6F38B412C4C839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Lollipop Chainsaw RePOP - это стремительный hack-and-slash, по
 magnet:?xt=urn:btih:36ECAE5945C55EA8FD90949A7809EEAF801FFA12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ CPU-Z способен показать различную информацию 
 ```bash
 magnet:?xt=urn:btih:42C31435B09BE9AF0573780525AEEE3DA44A46C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:42C31435B09BE9AF0573780525AEEE3DA44A46C3
 magnet:?xt=urn:btih:27E3FC82D32D5BFA1DCCF7555BE196D5E62544E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:27E3FC82D32D5BFA1DCCF7555BE196D5E62544E4
 ```bash
 magnet:?xt=urn:btih:7D30199D785C3BC628C8C25DBEBC604E90928132
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Movavi Photo Editor – это простой фоторедактор для к
 magnet:?xt=urn:btih:412808CB8116B1D79F910F151473FAD6A3B78B3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Sifu – стильная, но суровая игра в жанре «избе
 magnet:?xt=urn:btih:BF6F79391A9F6B5DF170D8786530F5EC074949CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:BF6F79391A9F6B5DF170D8786530F5EC074949CB
 ```bash
 magnet:?xt=urn:btih:DEA6A7F86237AA3D9DD24E2AB39CB7B8DCA75F89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:DEA6A7F86237AA3D9DD24E2AB39CB7B8DCA75F89
 magnet:?xt=urn:btih:2193DD378EDDBA0B6450D31744AFEB6CC4957A31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:2193DD378EDDBA0B6450D31744AFEB6CC4957A31
 magnet:?xt=urn:btih:38F88B3DA60F628A66E7530CAA571FD832A6A86D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ AlmaLinux 9.5 (Gnome, Xfce, KDE, Mate) [x86_64] 8xDVD
 ```bash
 magnet:?xt=urn:btih:D051FE33EE5CC573C823D4A9FC186A01CABEE35A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:D051FE33EE5CC573C823D4A9FC186A01CABEE35A
 magnet:?xt=urn:btih:ACD7EDDC62BD6FF1386A78F2D197080BEE9F7EFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:ACD7EDDC62BD6FF1386A78F2D197080BEE9F7EFA
 ```bash
 magnet:?xt=urn:btih:D7BF8C1CCE6B74E46C946CB9E71E07DFB964F02E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:D7BF8C1CCE6B74E46C946CB9E71E07DFB964F02E
 magnet:?xt=urn:btih:46439E4AA1DAD95553ADC407399B4263EF010865
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Ready or Not (2023) [Multi] (66884/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:495E5AB643F0245520B2231101FD1C966E4F2D5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:495E5AB643F0245520B2231101FD1C966E4F2D5A
 magnet:?xt=urn:btih:DEF63496E81173867604C1D73C8FA748796F2CC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:DEF63496E81173867604C1D73C8FA748796F2CC6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7
 magnet:?xt=urn:btih:94397BC0D03C9392041D27E876ADB009BEFFD9CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:94397BC0D03C9392041D27E876ADB009BEFFD9CE
 ```bash
 magnet:?xt=urn:btih:11294EC70696C740458F7EE9A87409D0AD36F186
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:11294EC70696C740458F7EE9A87409D0AD36F186
 magnet:?xt=urn:btih:2511B00ABA48F21E6F51D79E530F9B34CE7E3521
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:2511B00ABA48F21E6F51D79E530F9B34CE7E3521
 magnet:?xt=urn:btih:D1FB129CECD69CFD5F0DFEFDCBF6D60EBECB38F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:D1FB129CECD69CFD5F0DFEFDCBF6D60EBECB38F4
 ```bash
 magnet:?xt=urn:btih:BB65AB2681C4060355590D059F60BFADFF838CAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

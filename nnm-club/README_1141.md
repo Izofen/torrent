@@ -22,6 +22,8 @@ Manowar - Compilation (2025) [MP3|320 Kbps] <Metal, Glam Metal, Hard Rock>
 magnet:?xt=urn:btih:26A8419E00DF2207755D77427880D1C0D5469C49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:0E87F5D4AB1E5AE5C6EC50F031E3BEE28A94AFAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:0E87F5D4AB1E5AE5C6EC50F031E3BEE28A94AFAB
 magnet:?xt=urn:btih:6CDCAE1F41A639674C066CEC767E82C644B6566E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Wild Woods - экшн-игра про лесных существ и взаим�
 ```bash
 magnet:?xt=urn:btih:C8300B59AFB32771AD2D1D160A08B2E38D0F08ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ DISORDER (2025) [Ru/Multi] (build 17062976) Repack seleZen
 magnet:?xt=urn:btih:A22B383BA91C723CE8CE6396176B8D7B99A95A14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:1A141B8C44083CF7B18D9C597671FD6303DCB27C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:1A141B8C44083CF7B18D9C597671FD6303DCB27C
 magnet:?xt=urn:btih:0E2220845AE1CBBAB28275B68450699F7E49E8A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:0E2220845AE1CBBAB28275B68450699F7E49E8A4
 ```bash
 magnet:?xt=urn:btih:3CDB786D052A0416FCA306A81EEB759F517A43DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:3CDB786D052A0416FCA306A81EEB759F517A43DB
 magnet:?xt=urn:btih:3D43236312169046F33B5DFC8D49F3BFC0750A96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Eximius представляет собой гибрид шутера от пе�
 ```bash
 magnet:?xt=urn:btih:4052D8FC8922CF84F1EA01AC58AC8BC294F6F500
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:4052D8FC8922CF84F1EA01AC58AC8BC294F6F500
 magnet:?xt=urn:btih:4BBE62D70CFF6ED82FCEFA13AB64ABD40E19B8CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:4BBE62D70CFF6ED82FCEFA13AB64ABD40E19B8CD
 ```bash
 magnet:?xt=urn:btih:A102E3274B72D03024F4DF416C4B7C4428258058
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Vanced — это модифицированная версия YT, котора
 magnet:?xt=urn:btih:2033EDE131106C35EC6D9D4F40A42A3C404EAD0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ WeNote: заметки блокнот планер v6.25 Mod by PieMods [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:B99AFB1110E4CF375CD98A7BDA105EB7A01B2959
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ NewPipe v0.27.5 Free + Mod by Alex.Strannik  [Ru/Multi]
 magnet:?xt=urn:btih:A34779D292889D30FE51D2A5A5BEBDCAE8EDCAEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:A34779D292889D30FE51D2A5A5BEBDCAE8EDCAEA
 ```bash
 magnet:?xt=urn:btih:51D1576C4D59C054D8A8F52AD9195FFEF3905C5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Hekasoft Backup & Restore — это комплексное решение дл�
 magnet:?xt=urn:btih:735361B7395AF57BB3F227979F7D65BCF4280628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:FEAB6ADA579F76DB1EE78C5F50727D55912CD625
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:FEAB6ADA579F76DB1EE78C5F50727D55912CD625
 magnet:?xt=urn:btih:B645358E6C5B8243A09941E78D54CEA771F19E9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Digiarty AIArty Image Matting — это инновационное програ
 ```bash
 magnet:?xt=urn:btih:AE26B99B5EFDD3766EAD4DF830535C3F524EACA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:AE26B99B5EFDD3766EAD4DF830535C3F524EACA1
 magnet:?xt=urn:btih:28DCF7D4ACAEBAC8BFA868DA7C59BDB10D248F04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ BBC: Апокалипсис динозавров / Dinosaur Apocalypse (2022) WE
 ```bash
 magnet:?xt=urn:btih:ECD1533720B1788B1C211295BF0B871DEEA1A21B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:ECD1533720B1788B1C211295BF0B871DEEA1A21B
 magnet:?xt=urn:btih:F58ECBF56F3D5D983E1C515B9B9ACB673A934B5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:F58ECBF56F3D5D983E1C515B9B9ACB673A934B5E
 magnet:?xt=urn:btih:72C90A95B03E3033028710BFBC87AEE4D29B51B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Craft The World – уникальная стратегия-песочница, 
 ```bash
 magnet:?xt=urn:btih:36E10CA137589CBB60B356D36B8B88ABC9489AB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ Udemy, Bogdan Stashchuk | Docker - Полный курс Docker (2022) WEB-DL [R
 ```bash
 magnet:?xt=urn:btih:F347A2286EB9E81E941BDC9E0EFB36DEB247D3C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

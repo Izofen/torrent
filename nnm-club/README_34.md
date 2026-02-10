@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3816947) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:6BFBA59C25706FD704306CFFC8329C9E1A78D370
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Mizu Zokusei no Mahou Tsukai / The Water Magician / Маг воды [2025, TV, 1
 magnet:?xt=urn:btih:44788FE55997FB46D26E4C525E3A465110C7D00D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:44788FE55997FB46D26E4C525E3A465110C7D00D
 ```bash
 magnet:?xt=urn:btih:F0A576D3CFB89622D38939CACB9A9907FC70752B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:F0A576D3CFB89622D38939CACB9A9907FC70752B
 magnet:?xt=urn:btih:1B870FB8787128851150046122AAE1D60B1BF020
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Cities: Skylines II - это живая экономическая систем�
 ```bash
 magnet:?xt=urn:btih:ACFE649186AB6344C945DDD732D4F791F2CFC997
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:ACFE649186AB6344C945DDD732D4F791F2CFC997
 magnet:?xt=urn:btih:8E9E0A11E93EF7408A313EB33FA60DC22035A9A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.24.2/dlc) Repack Let'sРlay [Digi
 ```bash
 magnet:?xt=urn:btih:B4BA00A0DA1DA5DDF9F898D817FD36DFA61CDE7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:B4BA00A0DA1DA5DDF9F898D817FD36DFA61CDE7C
 magnet:?xt=urn:btih:760715898F75444CB01D485EF6EEC516A994EA96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Kingdom Come: Deliverance II - захватывающий сюжетный ро�
 ```bash
 magnet:?xt=urn:btih:8C5A46070376DE0514002309B996957EE8BB3F9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Cronos: The New Dawn - это новое слово в жанре survival horro
 magnet:?xt=urn:btih:E92E246A5E4431E0BB5BC74E0256A477D4B59E8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:E92E246A5E4431E0BB5BC74E0256A477D4B59E8D
 ```bash
 magnet:?xt=urn:btih:25BB59F14B6B634C5B4E77984226654AA82EBD3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:25BB59F14B6B634C5B4E77984226654AA82EBD3D
 magnet:?xt=urn:btih:8B4BCEDBA0DECEF51A23539C289EC698962BAEF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:8B4BCEDBA0DECEF51A23539C289EC698962BAEF4
 ```bash
 magnet:?xt=urn:btih:FD861B43E921035B87E8EA44D9C92D9CE05BF300
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:FD861B43E921035B87E8EA44D9C92D9CE05BF300
 magnet:?xt=urn:btih:FA951D8F700E90F754167AE9C4AD24449569AFBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Dying Light The Beast (2025) [Ru/En] (1.2.2/dlc) Repack Let'sРlay [Deluxe Editi
 ```bash
 magnet:?xt=urn:btih:807579930906A2EEC7209B00EC833ABCB928EB1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:807579930906A2EEC7209B00EC833ABCB928EB1B
 magnet:?xt=urn:btih:360ADCEBAB7D2E5A469B754DE90BDFDF3A45742A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:360ADCEBAB7D2E5A469B754DE90BDFDF3A45742A
 ```bash
 magnet:?xt=urn:btih:69108D541954C0AE3731604C1572AC1AC9336E82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:69108D541954C0AE3731604C1572AC1AC9336E82
 magnet:?xt=urn:btih:124FD9BB157C8F69E5E38AE32CFDEACCF2851F93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Farmer's Life (2023) [Ru/Multi] (1.0.38/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:6F5AA91DADE71EEFC15D4D6D237AADC3835D66D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ magnet:?xt=urn:btih:6F5AA91DADE71EEFC15D4D6D237AADC3835D66D1
 magnet:?xt=urn:btih:DBF06745A8CD5AD3BCEC578A35FE8B5BCBC38E26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Hollow Knight Silksong (2025) [Ru/Multi] (1.0.28750) Repack Let'sРlay
 magnet:?xt=urn:btih:E0EFF8AC63DB0FCBF1B4E076F731DB33EB398FB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +590,8 @@ Dying Light (2016) [Ru/En] (1.54.0/dlc) Repack Let'sРlay [Definitive Edition]
 ```bash
 magnet:?xt=urn:btih:F9832D97DF4E1128E2EEB6A93C3E0FFDE282F36C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ Filippo Bianchini - Mood Indigo (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz
 magnet:?xt=urn:btih:149B3AF7E4AD28600407048F5FDBB2728AFF6550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Dave Weld & The Imperial Flames - Bluesin' Through the Years (Remastered) (2025)
 magnet:?xt=urn:btih:420228FFF329F3753CFE31CD9FA878E703912F49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Karina Kozhevnikova & Krugly Band - Polyphonic Circle (2025) [FLAC 24/44.1|Lossl
 ```bash
 magnet:?xt=urn:btih:19D4F9E2E9A24FE582D4BD2A2C6F8F9E8556BE69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

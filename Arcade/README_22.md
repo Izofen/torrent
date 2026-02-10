@@ -19,6 +19,8 @@ Skeletal Avenger (2021) [Ru/Multi] (1.0.6.4) License GOG
 magnet:?xt=urn:btih:BD7124D41866C26CBBC09B89947D7BCC5F79E411
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Hero Survival - это игра, в которой вы будете истре�
 ```bash
 magnet:?xt=urn:btih:00EBEFAECA8D9E0F424340E67192CC2F58A1F2A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Freaky Trip (2023) [En] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:F402C355A6079005CF5482D760F8FDEA01B4153F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Transformers: Earthspark - Expedition (2023) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A91911C59204E54B304CFF957B5DF076DD6254A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Knight vs Giant: The Broken Excalibur (2023) [En] (1.0.0) License GOG
 magnet:?xt=urn:btih:1C47FFEB3D84F4096B6AF79C49617034F119DE92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Paleo Pines (2023) [Ru/Multi] (1.1.26) Scene Rune
 ```bash
 magnet:?xt=urn:btih:18EB708DBC60A42C7932E4808EB0D6A09A333DBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Plants vs. Zombies 2 - продолжение забавной аркадной 
 magnet:?xt=urn:btih:2DBD0CA2E3AEE6C679ABEE7D29C406175016A42C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Plants vs. Zombies (2009) [Ru/En] (1.2.0.1096) Repack Necros [Game of the Year E
 ```bash
 magnet:?xt=urn:btih:D4E04385706A0F4CC835BD98E66BC4136092253E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ OmniBus (2016) [Ru/Multi] (1.0) License GOG
 magnet:?xt=urn:btih:A8905952B3F890CD6EF417447EE308F93EB6760C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Starri - это ритм-игра, управляемая телом, в кот�
 ```bash
 magnet:?xt=urn:btih:33E30AEB4262C99E7BD13DAE65D7F7F12E1D524C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Worms Armageddon (1999) [Ru/Multi] (3.8) Repack Other s
 magnet:?xt=urn:btih:C6008EBBED1408F718FB7F29989E976467D68C00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Destroy All Humans! 2 - Reprobed (2022) [Ru/Multi] (1.6a/dlc) License GOG [Dress
 ```bash
 magnet:?xt=urn:btih:F5ED5B6E6EA123D0197EE29797F0DB42006E4C4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Bang-On Balls: Chronicles (2023) [Ru/Multi] (0.5.9) Scene Rune
 magnet:?xt=urn:btih:0AC682EA939740C002EDB6FF2E123F786FEBFAFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Leisure Suit Larry - Wet Dreams Don't Dry (2018) [Ru/Multi] (1.2.0.49b) License 
 ```bash
 magnet:?xt=urn:btih:A9BCBF0C45A4EFAEFCFE22575E0DC34C82DAA8C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Alien Shooter 2 - The Legend (2020) [Ru] (1.2.0) Repack Other s
 magnet:?xt=urn:btih:521DF52A64255CF29FF66B33160C89F11DF59B9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Magicka 2 (2015) [Ru/Multi] (1.2/dlc) License HI2U
 ```bash
 magnet:?xt=urn:btih:2CAF3250A6EAF0DCF98556DF954337A1BDBA18FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Warhammer 40000: Shootas Blood & Teef (2022) [Ru/Multi] (1.0.23) License GOG
 magnet:?xt=urn:btih:EA806A7167E3A5465119B0A2BB6EFC27901F09DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ God's Trigger (2019) [Ru/Multi] (1.2.58760) License GOG
 ```bash
 magnet:?xt=urn:btih:B7069B15B8E98461C2370451FEFE32334B5B37E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Goat Simulator 3 - очередная абсолютно бестолковая 
 magnet:?xt=urn:btih:DF59E6D37671C747948E6739CDC3CE44AF6BA4E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ LEGO Batman 3: Beyond Gotham (2015) [Ru/Multi] (1.6/dlc) License GOG [Premium Ed
 ```bash
 magnet:?xt=urn:btih:B6F01B875408ECC1B91D1C7DE1B9A4D3BC75D376
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Rabat Protocol: Metal Rhapsody (2023) [Multi] (20230802) Scene Tenoke
 magnet:?xt=urn:btih:30E8E871330CF338EEEDDF8203CA2815D5C4537B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Shank 2 (2012) [Ru] (1.0dc120305) Repack Necros
 ```bash
 magnet:?xt=urn:btih:CCBB1F3661E2D37DB86414D450C769AE70D8A164
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Shank - это культовое возрождение классическо�
 magnet:?xt=urn:btih:EECEEB87F52ACFCFA9FC7F07A42F68528A6C4E65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ CrossCode (2015) [Multi] (1.4.2-3/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:F972A52EF33C8B1B02CC0EC5A319A99889FDA04E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Avatar: The Last Airbender - Quest for Balance (2023) [Multi] (1.0) Scene Rune
 magnet:?xt=urn:btih:A979952660BCC711C0095A5274C23CF981F8B823
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Lost Dreams – это новая глава из серии игр Suicide 
 ```bash
 magnet:?xt=urn:btih:5BB31AFC1CADEFF91C42248DCA83FE33D410C9BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1095749   (924337) от 21.01.2017
+
+Советские мафии. Пираты Южного порта (2017.01.18) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автомобиль в советское время был не средством передвижения, а социальной меткой. Есть "Москвич" - молодец! А если модные "Жигули" и дорогая "Волга", значит жизнь абсолютно удалась! Но машин на всех не хватало, и в стране процветали спекулянты, которые добывали дефицитные автомобили по сложным схемам и толкали за три цены. А в 70-е годы (   Читать дальше...   )Телекомпания: ТВЦЖанр: Документальный, расследование, криминалПродолжительность: 00:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B2959C9739845F2DBAEBCE57E9A85EFA134CDC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095490   (924374) от 21.01.2017
 
 Научное расследование Сергея Малозёмова. Еда живая и мертвая (2017.01.21) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:DF71159D25FD8C5C70E250EB9B1ACE7AC18B4022
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:DF71159D25FD8C5C70E250EB9B1ACE7AC18B4022
 magnet:?xt=urn:btih:B13DC6706FD3BF861FFC886E1D1A36E3A7136BD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:B13DC6706FD3BF861FFC886E1D1A36E3A7136BD7
 ```bash
 magnet:?xt=urn:btih:B88A9145B78029756442CE7ED0A3910F59FDA339
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:B88A9145B78029756442CE7ED0A3910F59FDA339
 magnet:?xt=urn:btih:AF7B0801CC98C26C7094E8A2085400D7A4A1DC7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:AF7B0801CC98C26C7094E8A2085400D7A4A1DC7E
 ```bash
 magnet:?xt=urn:btih:061DE157A21CFB99F047928CDFAF71DDE54DA90C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:061DE157A21CFB99F047928CDFAF71DDE54DA90C
 magnet:?xt=urn:btih:D673AFD0B21C5A830BBDF5B69BF97F20974611C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:D673AFD0B21C5A830BBDF5B69BF97F20974611C6
 ```bash
 magnet:?xt=urn:btih:A495DEE8EC12CE89F759A3AB50ACDB963C2933B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:A495DEE8EC12CE89F759A3AB50ACDB963C2933B1
 magnet:?xt=urn:btih:93A80CD82560DBDA435D61FB0843D6CCFC887033
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:93A80CD82560DBDA435D61FB0843D6CCFC887033
 ```bash
 magnet:?xt=urn:btih:CF4858236F0A45A038328C565C9C96FBBD912357
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:CF4858236F0A45A038328C565C9C96FBBD912357
 magnet:?xt=urn:btih:2BA86A08CA1E5F9686C06379D3930B80D3ADFD37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:2BA86A08CA1E5F9686C06379D3930B80D3ADFD37
 ```bash
 magnet:?xt=urn:btih:16188C18914B8DB30559AC652015E0ADA542E7E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:16188C18914B8DB30559AC652015E0ADA542E7E8
 magnet:?xt=urn:btih:24D7DF5C714D4FD9CF2287FD67C1163EE4640739
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:24D7DF5C714D4FD9CF2287FD67C1163EE4640739
 magnet:?xt=urn:btih:79B938179BE26162068B46DB981513A850947962
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:79B938179BE26162068B46DB981513A850947962
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ AMBRA - Child of the Universe [часть 2] Fascination of Sound and Nature (20
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ AMBRA - Child of the Universe [часть 2] Fascination of Sound and Nature (20
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ AMBRA - Child of the Universe [часть 2] Fascination of Sound and Nature (20
 magnet:?xt=urn:btih:530FD5D4FF32A47EC1E98AFEE71D53C27470169D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:530FD5D4FF32A47EC1E98AFEE71D53C27470169D
 magnet:?xt=urn:btih:F4D2B13466729E56A2C4322623CE5C846AD68118
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:F4D2B13466729E56A2C4322623CE5C846AD68118
 ```bash
 magnet:?xt=urn:btih:77452C74A70AAE4B886CA09945CFE319AFBE32A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:77452C74A70AAE4B886CA09945CFE319AFBE32A5
 magnet:?xt=urn:btih:7831DA9495452E87AF9EF3FB439654322F9F1AA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:7831DA9495452E87AF9EF3FB439654322F9F1AA7
 magnet:?xt=urn:btih:C5F904CB8C0E72F1A8BE2EDE666B3982681E9A27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:C5F904CB8C0E72F1A8BE2EDE666B3982681E9A27
 ```bash
 magnet:?xt=urn:btih:78A6CBC428B3D3AAD3100C769F49D37D616B05DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:78A6CBC428B3D3AAD3100C769F49D37D616B05DC
 magnet:?xt=urn:btih:03E1A2E2C7C4702296655A329BC7AD9BE19C6D71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:03E1A2E2C7C4702296655A329BC7AD9BE19C6D71
 ```bash
 magnet:?xt=urn:btih:AD989EBD306095225B31E754A37B47007261D2AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:AD989EBD306095225B31E754A37B47007261D2AC
 magnet:?xt=urn:btih:84CB16991C1546CBE8FFE81EF71D2DC5A34CFD19
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987594   (926140) от 17.02.2016
-
-Открытая студия.  «Самоубийственная политика Украины» (17.02.2016) SATRip
-
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Украинские радикалы продолжают блокировать фуры с российскими номерами. Охоту на наших водителей они начали еще на прошлой неделе. Для этого в одиннадцати областях Незалежной на дорогах выставили блок-посты. По машинам, которые пытались прорваться через кордоны, боевики открывали стрельбу. За неделю в транспортный плен попало около шестисот фур из России. Вернуться (   Читать дальше...   )Телекомпания: 5 канал, РоссияЖанр: общественно-политическое ток-шоуПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29409965FF64609849A6CE5B8C62B898295BC42A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

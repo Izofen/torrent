@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:B2DBC6834C7279597A3AF890F42E3A8857841B98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Windows Server 2008 R2 — продукт, позволяющий построи
 magnet:?xt=urn:btih:1B330D58A748C4786E26642CF8595385DD6C4C24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:1B330D58A748C4786E26642CF8595385DD6C4C24
 magnet:?xt=urn:btih:53CCCD03311CFE2435570F9D8C25317122A66912
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Epic Games, Wes Bunn | UMG UI Inventory Unreal Engine (2014) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:EB9ED836978FF23B890FD01239339A7156485E69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Unreal Engine, Paulo Souza | Profiling and Optimization in UE4 | Unreal Indie De
 magnet:?xt=urn:btih:A6025CC0D3B4BCF742E62220156FB1FD2E6D4692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Enterclass, Татьяна Каштальян | Нарциссы пастель�
 ```bash
 magnet:?xt=urn:btih:7AA5EDE0C5FD795EAC9D7C62AFEC5B7A293FF76D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ GoFingerstyle, Максим Ярушкин | Техника Фингерстай
 magnet:?xt=urn:btih:F38AD8B1C83DE4BC263ED9887E22397A61D643B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ GoFingerstyle, Максим Ярушкин | Аккордовая камасут
 ```bash
 magnet:?xt=urn:btih:5C1DC7CF553BE37B093C51E82F3A8ECABE59C03A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ magnet:?xt=urn:btih:5C1DC7CF553BE37B093C51E82F3A8ECABE59C03A
 magnet:?xt=urn:btih:82E4BBFFEF49008A9D042C76B5601C54B8BA2864
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ Konsa, Ира Александрова | Классическая гитара (
 ```bash
 magnet:?xt=urn:btih:E75DD60B7680E375F372F31909E5F1C49EE5C450
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +299,8 @@ Konsa, Марина Юракова | Лёгкие пьесы для фортеп
 magnet:?xt=urn:btih:575F6C6F1C5488E61DCF837D529F0D786B450F9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ Konsa, Максим Ярушкин | Фингерстайл специи. Кур
 ```bash
 magnet:?xt=urn:btih:5E9B234875964EE179A0714D94716D8C2A108F99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ Konsa, Ровшан Мамедкулиев | Классическая гитар
 magnet:?xt=urn:btih:79CC38AAF300D9E92CD61869D50783A0EA329EF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:79CC38AAF300D9E92CD61869D50783A0EA329EF3
 ```bash
 magnet:?xt=urn:btih:E77A78B5384014F1121F2203D03316E86234EA54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +409,8 @@ hipflask, Fraser Shiers | Houdini Made Easy The Core Essentials (2019) PCRec [EN
 magnet:?xt=urn:btih:7C4C96A1334A6269B56643E323AEB773304BF5F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ Rebelway, Sjors De Laat | The Basics of Substance Designer for Realtime FX (2021
 magnet:?xt=urn:btih:86A7AB56F221D38BCD27B61C8B76FB7005222B88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ Bandband, Мария Галина и др. | Литературная масте
 ```bash
 magnet:?xt=urn:btih:1BEE6EEB8A95AF6DF8C4D10FE92773C98A16F973
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +488,8 @@ Wingfox, Amit Ginni Patpatia | Intro to Unreal Lighting (2021) PCRec [EN]
 magnet:?xt=urn:btih:A60005C68E66B1EA9446B437433AB0AFC3B8DD0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ CGMA, Ben Keeling | Advanced Substance for Environment Art (2020) PCRec [RU]
 ```bash
 magnet:?xt=urn:btih:0F5EA5F1BCB97939CB21422FC1C36539198E2894
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +540,8 @@ Junichiro Horikawa | VEX for Algorithmic Design Part 1-6 (2020-2021) PCRec [EN, 
 magnet:?xt=urn:btih:4AE015DED5499599C56293B28E275932A7734CBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ Helloluxx, Rich Nosworthy | Houdini In Bloom (2021) PCRec [RU]
 magnet:?xt=urn:btih:692FF11B83C36EC2466A4BF198D3F4EA2AEB2F71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ CGMA, Adam Swaab | Abstract FX in Houdini (2019) PCRec [RU]
 ```bash
 magnet:?xt=urn:btih:F45953EE8BCA99C5D672303BD02AFD63B7FED6CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ CGcircuit, Tyler Bay | Houdini For The Artist Modeling I (2019) PCRec [RU]
 magnet:?xt=urn:btih:327452EBE538A02C0866556223EAD79BD159024D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ Gumroad, Chris Legaspi | Shading Techniques in Photoshop (2016) PCRec [EN, RU]
 magnet:?xt=urn:btih:2C8BE85E9BC1F3070AEB9D18827F73EC4D04C9D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ CGMA, Johannes Richter | VEX in Houdini with Johannes Richter (2019) PCRec [RU]
 magnet:?xt=urn:btih:89F61A7BC0A5C379649EFF5AC689682502CAB4A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ Applied Houdini ("практический Houdini", "Houdini в практич�
 ```bash
 magnet:?xt=urn:btih:71CCAA7BF52DBBD7D77359583F0E898DF443688E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

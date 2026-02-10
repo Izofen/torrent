@@ -22,6 +22,8 @@ Khotin - Beautiful You (2018) Khotin Industries [FLAC|Lossless|WEB-DL|tracks] <A
 magnet:?xt=urn:btih:A42B57E610E016AD7FBA0EF69CA8EB3E1151F49D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Orphx - Pitch Black Mirror (2016) Hands Productions [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:E2D82FF04C66952D8A731D7F1CFA8D14D8A65B0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Doux Pour La Nuit, Vol. 4 - A Whisper for Deep Moments Selection Chillout b
 magnet:?xt=urn:btih:9BC90812EAE5982EFD6563DE8DAF90359C4DACD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Sundown Flavor of Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, Loun
 ```bash
 magnet:?xt=urn:btih:8B21C6F07ED33E12A1CD1C18CE72C06DB304CDAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Talla 2XLC - Fascinated (2019) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:B23A26B39C86A7F4D3C5588B49CF97C6D95220BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Sunrise Lounge and Chillout Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillou
 ```bash
 magnet:?xt=urn:btih:5727076E3FD8134AECA2706E399B2D4C63C02676
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - This Is Deep House Vol.1 (2016) [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:EFAFBDE8746452115BF2824D9AD8BE010BDD240E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Afterglow Vol.2: Deep Electronic Sounds (2016) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:F49B9628E7C583A55C24C2A0E85AEC63BB5962BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Gleaming Rhythms: Glamorous Vibes Only (2016) [MP3|320 Kbps] <Deep House, C
 magnet:?xt=urn:btih:D951BC9CE38852BFB6715D34F17BDDA81700BD3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Definitely Chillout: Summer Special Edition (2016) [MP3|320 Kbps] <Downtemp
 ```bash
 magnet:?xt=urn:btih:9604DAF6DBF8FC2953C86C8A7016051DBAC911FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Deep November: 25 Groovy Deep-House Beats (2016) [MP3|320 Kbps] <Deep House
 magnet:?xt=urn:btih:8EF25CE796305AC6CA411101507C6CFF4534ECD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Uplifting Only Top 15 September (Extended Mixes) (2022) [MP3|320 Kbps] <Upl
 ```bash
 magnet:?xt=urn:btih:0E6DB1D489ABF11A04FD0E99C8B104F52230A548
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Sol Selectas Records - Label-Pack 55 Releases (2007-2019) [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:0AC14FE69B32C0118DE8A74ADA07976E739FE825
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ VA - Uplifting Trance Top 25 (2022) [MP3|320 Kbps] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:9DAB1FADAFFFC9DB29C8F85188BB1EDD99003B97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +425,8 @@ VA - Silent Shore Trance - Autumn (2022) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:BDB085EF2C008B6087626A6036226B73FB2F6DC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ VA - Redux Selection Vol.10 (2022) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:013D66363F7CFBA77E2AF4BD6AA4D822CECDF005
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ VA - The Classic Chillout - Chill Out For The Modern World (2018) [MP3|320 Kbps]
 magnet:?xt=urn:btih:FCB30F7893CEC19990337D8CCB9545C6E07E4BA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ VA - Meditation & Love (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:B22CB3EB63E163118102CF28A6304A43E9E39822
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ VA - Ibiza Dance House (2018) [MP3|320 Kbps] <House,Dance,Big Room>
 magnet:?xt=urn:btih:8DF04A5875C2ADE4327088837D5083008B0BBE72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ State Of Mind - Land Of The Blind (2019) [FLAC|Lossless|WEB|tracks] <Drum & Bass
 ```bash
 magnet:?xt=urn:btih:456541DE17E6A56A5040F49303B02C8D7F529EA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +599,8 @@ VA - Techno Club Vol.56 (Mixed By Talla 2XLC & Taucher) (2019) [FLAC|Lossless|CD
 magnet:?xt=urn:btih:9E6C772C09C78631E82FA59D90ED99F7A6FE017A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +627,8 @@ Moby - Long Ambients Two (2019) [MP3|320 Kbps] <Ambient>
 ```bash
 magnet:?xt=urn:btih:E72C76DA65E4BF9B3DA0F67D2D2CD15882BD803F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +657,8 @@ VA - Equilibrium In The Cosmos (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:262A87CAAFE55F0C84D59DA455FF3BEBA764C13E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +685,8 @@ VA - Trance Autumn Essentials (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:760493E73FCB7C371C173A68EFF0A48E9B298DDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +715,8 @@ Tinlicker - This Is Not Our Universe (2019) [FLAC|Lossless|WEB|tracks] <Progress
 magnet:?xt=urn:btih:8A048C6E78562A207D7EDCE01986B0CD4675FDC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ Pryda - Pryda 15 Vol III (2019) [FLAC|Lossless|WEB|tracks] <House, Progressive H
 ```bash
 magnet:?xt=urn:btih:5B5B87BC4B09FE351F1CAFE27896227D7ED756CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

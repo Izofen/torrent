@@ -1,3 +1,29 @@
+###  Публикация: 1602236   (1046199) от 04.01.2023
+
+Джон Уиндем | Странный случай (2022) [MP3, Владимир Коваленко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идя домой одним из тёплых летних вечеров, мистер Астер обратил внимание на старика. Тот, схватившись за барьер, отделяющий тротуар Тенет-стрит от мостовой, беспомощно и изумленно оглядывался....Жанр: ФантастикаПродолжительность: 00:23:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E20347D703D2B192C7BA4BD9489E1E3516805012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602089   (1046206) от 04.01.2023
 
 Лана Клонис | Эреш. Книга пепла (2022) [MP3, Полина Карева]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:F6FF246C10AF3898B7D238963E1E6EA8C080678D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:F6FF246C10AF3898B7D238963E1E6EA8C080678D
 magnet:?xt=urn:btih:76B043A88F1EB54404320DF50EE29E905FC2E7FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:76B043A88F1EB54404320DF50EE29E905FC2E7FE
 ```bash
 magnet:?xt=urn:btih:C640FD2ED2D3B899E9924A21E9FFD57A3A975FA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:C640FD2ED2D3B899E9924A21E9FFD57A3A975FA2
 magnet:?xt=urn:btih:A59077F32739FFF8CCE66343B6A8119062DA6013
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:A59077F32739FFF8CCE66343B6A8119062DA6013
 ```bash
 magnet:?xt=urn:btih:936727759D26139106155086F46E34B79487C2F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:936727759D26139106155086F46E34B79487C2F1
 magnet:?xt=urn:btih:571998B2A0DBD464B966BB42289339B01F3BF5C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:571998B2A0DBD464B966BB42289339B01F3BF5C1
 magnet:?xt=urn:btih:2A882ED65EC64706D7BA8F5789A808F64C96BD62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:2A882ED65EC64706D7BA8F5789A808F64C96BD62
 ```bash
 magnet:?xt=urn:btih:80BBFE7AC6F08DA4CCECB516C2E96781FE194A77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:80BBFE7AC6F08DA4CCECB516C2E96781FE194A77
 magnet:?xt=urn:btih:E5A308527B32C02C067CE6AE2A2446D08D1707AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:E5A308527B32C02C067CE6AE2A2446D08D1707AA
 ```bash
 magnet:?xt=urn:btih:9D752A01FC7E765D7B9629A524648793C2355941
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:9D752A01FC7E765D7B9629A524648793C2355941
 magnet:?xt=urn:btih:E334BCAC3984A702BDC7A79432C3B943EEAF3412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:E334BCAC3984A702BDC7A79432C3B943EEAF3412
 ```bash
 magnet:?xt=urn:btih:984641B62969AF0BD276CC34B82C2A474CFE5AF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:984641B62969AF0BD276CC34B82C2A474CFE5AF1
 magnet:?xt=urn:btih:69DD1FC62F9B71C6E6C350FC425E872027A8414E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:69DD1FC62F9B71C6E6C350FC425E872027A8414E
 ```bash
 magnet:?xt=urn:btih:3C13BE8BF9B16AB7778E526AD40E2598B9EF7F7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:3C13BE8BF9B16AB7778E526AD40E2598B9EF7F7A
 magnet:?xt=urn:btih:8E21F4D065561AE643A25A3F0728555DD4B61E2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:8E21F4D065561AE643A25A3F0728555DD4B61E2D
 magnet:?xt=urn:btih:00C54C02D94040C2F7E1E47089D10054E66F836D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:00C54C02D94040C2F7E1E47089D10054E66F836D
 ```bash
 magnet:?xt=urn:btih:8603CF6C910374DD8FFC9F3954C5DCE80A36D304
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:8603CF6C910374DD8FFC9F3954C5DCE80A36D304
 magnet:?xt=urn:btih:E6B5E8647F08A197B0090A73882A0133C9E76847
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:E6B5E8647F08A197B0090A73882A0133C9E76847
 magnet:?xt=urn:btih:61F54731AC85B5174B613DF831F409D6F2DB2355
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:61F54731AC85B5174B613DF831F409D6F2DB2355
 ```bash
 magnet:?xt=urn:btih:6B669BFC00DA449955A3DBE1C80DBCAE58DE78BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:6B669BFC00DA449955A3DBE1C80DBCAE58DE78BC
 magnet:?xt=urn:btih:D9EDAF450A31A97346631199008F4ACD23C7A26E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:D9EDAF450A31A97346631199008F4ACD23C7A26E
 magnet:?xt=urn:btih:C0F2EB7A828BB4DB7174CD077C7671FB5651F401
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:C0F2EB7A828BB4DB7174CD077C7671FB5651F401
 magnet:?xt=urn:btih:38758FE04AEA225EC3EC2A3464093858FC5CA1A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:38758FE04AEA225EC3EC2A3464093858FC5CA1A9
 ```bash
 magnet:?xt=urn:btih:301ED6BFBC24AECFE481357C703C7CEFE2DC94D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,30 +684,7 @@ magnet:?xt=urn:btih:301ED6BFBC24AECFE481357C703C7CEFE2DC94D8
 magnet:?xt=urn:btih:798B0FEF1362235813CFEC98C2BBDAB60BC12326
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840415   (1047226) от 05.12.2025
-
-Гай Юлий Орловский | Ричард Длинные Руки (Книга11). Бургграф (2025) [MP3, Александр Чернов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наконец-то сэр Ричард Длинные Руки сменил каменные застенки замков на портовый город, где все только и делают, что торгуют и развлекаются. Но Ричарду не до веселья, ведь неприятности поджидают героя на каждом шагу…
-Семейство Бриклайтов, городских авторитетов, совершенно распоясалось. Что уж и говорить о мелких воришках и хулиганах. Ричарду придется найти на них управу, (   Читать дальше...   )Жанр: Фэнтези, приключения, попаданцыИздательство: МедиаКнигаПродолжительность: 12:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ED484B4FBD6F0D778B9A21BA3396F647621324F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

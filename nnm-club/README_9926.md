@@ -1,54 +1,3 @@
-###  Публикация: 1259364   (321265) от 03.11.2018
-
-Эволюция в действии / Evolution on the Move (2014) HDTVRip (серии 1-4)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал о поразительных особенностях поведения животных. В Саудовской Аравии, в Канаде, в Сенегале и в России ученые, обнаружили виды, которые проходят через удивительный эволюционный скачок.Производство: Франция, Arte France & Les Films en VracЖанр: Документальный, природа, эволюцияРежиссер: Жан-Франко БартодПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2358E262FC70F17277B8ED83C0CDDFCD72C5D190
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259235   (321266) от 03.11.2018
-
-Italove - Extended And Remixed (2018) Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Italove - Stockholm Is Calling (Extended Mix) (4:44)
-02. Italove - Follow Me To Mexico (Extended Mix) (4:43)
-03. Italove feat. TQ - Rhythm Of Love (Extended Mix) (7:11)
-04. Italove - Too Late To Cry (Matt Pop Club) (7:20)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 01:11:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9096F40ABB3AB8F5ABFF3C6CA3573F530CCE0D15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259330   (321267) от 03.11.2018
 
 VA - ЕвроХит Топ 40 Europa Plus 02.11.2018 [MP3|320 Kbps] <Pop, Dance>
@@ -72,6 +21,8 @@ VA - ЕвроХит Топ 40 Europa Plus 02.11.2018 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:EC60856CCA602A12CC2FBB62022D22B9E542EE18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +51,8 @@ Savage Garden - Truly Madly Completely: The Best Of Savage Garden (2005) [FLAC|L
 magnet:?xt=urn:btih:FA22EC7C213AC15E66F244D75D7D8527D8D409DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +76,8 @@ Wirecast предлагает доступное программное обес
 ```bash
 magnet:?xt=urn:btih:A7E8B813368A96888A2778F4C7472692B00275DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +103,8 @@ magnet:?xt=urn:btih:A7E8B813368A96888A2778F4C7472692B00275DD
 magnet:?xt=urn:btih:3FBE3B57764413C2E9058A399202A394C442C872
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +129,8 @@ magnet:?xt=urn:btih:3FBE3B57764413C2E9058A399202A394C442C872
 magnet:?xt=urn:btih:C2EF161BCE3C7035474F32B04996439C193FEEF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +154,8 @@ magnet:?xt=urn:btih:C2EF161BCE3C7035474F32B04996439C193FEEF5
 ```bash
 magnet:?xt=urn:btih:DFD02403F9E574D28569AF9D10A767F65BB7B08D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +184,8 @@ Command Strange - Spotlight On: Command Strange (2016) [MP3|320 Kbps] <Drum & Ba
 magnet:?xt=urn:btih:9EBEFDAA83D1DB065178676380D27E847368EA47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +213,8 @@ Eddy "The Chief" Clearwater - Reservation Blues (2000) [FLAC|Lossless|image + .c
 magnet:?xt=urn:btih:CEA7EC319DFCD717C980E763F6EFF8F5833961E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +238,8 @@ magnet:?xt=urn:btih:CEA7EC319DFCD717C980E763F6EFF8F5833961E5
 ```bash
 magnet:?xt=urn:btih:6DE0A0E88F36FC5708AF949286116943444DA34B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +267,8 @@ magnet:?xt=urn:btih:6DE0A0E88F36FC5708AF949286116943444DA34B
 magnet:?xt=urn:btih:88D08DA4154633607A80FEE0460C6C5E534590E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +292,8 @@ magnet:?xt=urn:btih:88D08DA4154633607A80FEE0460C6C5E534590E3
 ```bash
 magnet:?xt=urn:btih:20BFAE9796784BAFDB784FFC7D17FD0249EB0C2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +322,8 @@ SYU - You Play Hard (2016) [FLAC|Lossless|image + .cue] <Instrumental Power Meta
 magnet:?xt=urn:btih:A58D68E20C2E25C7DEB844411DFB30A20BD7E6E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +350,8 @@ VA - Soul Sessions Vol. 2 (2016) [MP3|320 Kbps] <Drum & Bass, Liquid Funk>
 magnet:?xt=urn:btih:F1AC23C17A4363FB814C64BFF26084C5AE451982
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +376,8 @@ magnet:?xt=urn:btih:F1AC23C17A4363FB814C64BFF26084C5AE451982
 magnet:?xt=urn:btih:CFF3E1AF25CC87E667ED1220ED6F2D4F5552F146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +401,8 @@ magnet:?xt=urn:btih:CFF3E1AF25CC87E667ED1220ED6F2D4F5552F146
 ```bash
 magnet:?xt=urn:btih:1624CB32E4A53030AE53F309C993DCF1E64E60EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +431,8 @@ VA - State Of House Club Mix (2016) [MP3|320 Kbps] <Club House, Dance, Electro>
 magnet:?xt=urn:btih:80984DA2B6FB79829F02A8AE1102755FE80E55CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +459,8 @@ Loudness - Warner Years (2012) Japanese Edition [WavPack|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:DDB633B0371B2C8E1997D11EF30FA4A2698DA128
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +489,8 @@ Witchwood - Handful of Stars (2016) [FLAC|Lossless|tracks + .cue] <Prog Rock, He
 magnet:?xt=urn:btih:9D166B41A4A65F964AB71B92017D00274A324F5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +514,8 @@ magnet:?xt=urn:btih:9D166B41A4A65F964AB71B92017D00274A324F5C
 ```bash
 magnet:?xt=urn:btih:88A77BEBE2046DFDC86A970AEF429D6866A1DF91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +544,8 @@ VA - Eau Solaire: Deep and Love Sensations (2016) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:7A09BA6D058F977E3DA34446B5FAA71F0AB8B575
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +573,8 @@ Loudness - Columbia Years (2012) Japanese Edition [WavPack|Lossless|image + .cue
 magnet:?xt=urn:btih:C1308A9FE989558AEA280EE0709C77C919B48F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +600,8 @@ magnet:?xt=urn:btih:C1308A9FE989558AEA280EE0709C77C919B48F32
 magnet:?xt=urn:btih:32D838F05E248CFE5A96DDCCD319B505AE065D2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +626,8 @@ magnet:?xt=urn:btih:32D838F05E248CFE5A96DDCCD319B505AE065D2D
 magnet:?xt=urn:btih:8232B34180D5C984E3B281C897B5784B9AA26C92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +651,60 @@ magnet:?xt=urn:btih:8232B34180D5C984E3B281C897B5784B9AA26C92
 ```bash
 magnet:?xt=urn:btih:9C86180B531D4629279E95952CBAB609C73DC07C
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181961   (321303) от 08.11.2017
+
+Шаблоны - Creative Market - Future CD Cover Artwork [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот шаблона обложки компакт-диска предназначен для создания собственного неповторимого альбома.Формат: PSDРазрешение файлов: 1441x1441-1847x1469
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8395C4BBAF0DF7ACB53F5C98A87F840042351BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181799   (321304) от 08.11.2017
+
+Any Video Converter Ultimate 6.2.0 RePack (& Portable) by ZVSRus [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Any Video Converter Ultimate - предоставляет пользователям DVD риппер все-в-одном, конвертер видео и создание DVD, который поможет вам преобразовывать DVD во все популярные видео форматы, включая MP4, AVI, RM, RMVB, QT, MOV, 3GP, 3G2, FLV, MPEG-1, MPEG-2, DVR-MS, VOB, MKV, ASF, DivX, OGM в MP4, AVI, WMV, 3GP, 3G2, FLV, MPG и SWF с быстрой скоростью преобразования (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF9400F6CA8E322D413EDB9808D4E1D10D78246
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

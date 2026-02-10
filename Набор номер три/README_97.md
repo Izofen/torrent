@@ -26,6 +26,8 @@ The War Z – клиентская MMOG во враждебном мире зо�
 magnet:?xt=urn:btih:51DD61EEA63AC39495AE8D9D94000FA36FB331B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:51DD61EEA63AC39495AE8D9D94000FA36FB331B4
 ```bash
 magnet:?xt=urn:btih:11BD7C7CD876FAFC6ADD9F4C1B7D8560703A59B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ Navitel / Навител Навигатор v9.13.73 для карт Q3 2023 v9 
 magnet:?xt=urn:btih:9556BB5865F3C9612503CD302358C906C3C023AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Windows 8.1, включающая в себя 10 русских и 10 англи
 ```bash
 magnet:?xt=urn:btih:C3C06C4EF8BB791792D651CDC0C9AE056B0902AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:C3C06C4EF8BB791792D651CDC0C9AE056B0902AE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:C3C06C4EF8BB791792D651CDC0C9AE056B0902AE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:C3C06C4EF8BB791792D651CDC0C9AE056B0902AE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Far Cry 3 Deluxe Edition [Ru] (RePack/1.04) 2012 | Fenixx
 magnet:?xt=urn:btih:DED3ACFB35E6891F34354DAD3FF4ACB9FA932E34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:DED3ACFB35E6891F34354DAD3FF4ACB9FA932E34
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ Alan Wake's American Nightmare - экшен с элементами хоррор
 ```bash
 magnet:?xt=urn:btih:F603D458BB43A13F8911E6A20CA685FE0CB7470F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:F603D458BB43A13F8911E6A20CA685FE0CB7470F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ Tonari no Kaibutsu-kun / Мой безбашенный сосед [2012, TV, 13 
 ```bash
 magnet:?xt=urn:btih:E81CF75402A11DC41069129A65CEA69B09F69DC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ Mirillis Action! - позволяет в режиме реального вре�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ First Squad - The Moment Of Truth / Первый отряд. Момент ист
 ```bash
 magnet:?xt=urn:btih:28709F5B7E5F1BD3CCDA1BF8142FD891CE709D60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ Pharaoh: A New Era - градостроительный симулятор, оп
 magnet:?xt=urn:btih:34A67D5EFBC24685BA0EF4C3CEF84CEE4334B2DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:34A67D5EFBC24685BA0EF4C3CEF84CEE4334B2DC
 magnet:?xt=urn:btih:DA3544BD1EA996E4134BC0D7870E8340A8E533C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:DA3544BD1EA996E4134BC0D7870E8340A8E533C1
 ```bash
 magnet:?xt=urn:btih:4695FCA1CAA0794B282FBBB086340F349D84BC9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:4695FCA1CAA0794B282FBBB086340F349D84BC9A
 magnet:?xt=urn:btih:7040B466CC1A7A079E90AC49F400C50171E3C2A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.4.0.0/00.014.037/dlc) Repack Other s [A
 magnet:?xt=urn:btih:AD229EFB0307934A4AB1DCB4D083E726ACA7D340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:AD229EFB0307934A4AB1DCB4D083E726ACA7D340
 ```bash
 magnet:?xt=urn:btih:B40DEAB932266887C7E7E644FB23CA76D83C0619
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:B40DEAB932266887C7E7E644FB23CA76D83C0619
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ Adobe Photoshop применяют для создания фотореалис�
 magnet:?xt=urn:btih:92CF5C3960B2CD7A33F99002839F03FCA352FCAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:92CF5C3960B2CD7A33F99002839F03FCA352FCAB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:92CF5C3960B2CD7A33F99002839F03FCA352FCAB
 magnet:?xt=urn:btih:2DB62B70447CA62DCDEE14FB18D292650A115334
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ Singularity [Ru/En] (RePack/1.1) 2010 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:FBC795E38F4EAE5767F975901AA9308367C72289
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +694,8 @@ Far Cry 3 [Ru] (RePack/1.04) 2012 | Audioslave
 ```bash
 magnet:?xt=urn:btih:E79B722A855C3CBE0B995D525A4B088CF9428204
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

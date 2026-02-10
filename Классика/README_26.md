@@ -22,6 +22,8 @@ Rondo Veneziano - Fantasia d'Inverno -Fantasien zur Winterzeit (1998) [FLAC|trac
 magnet:?xt=urn:btih:669214257F0DAA70056E44503B08890FF070C8B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Rondo Veneziano - Concerto (1987) [FLAC|Lossless|tracks + .cue] <Modern Classica
 ```bash
 magnet:?xt=urn:btih:0145CEBA8582D97B7385663B5B1BCBF6EAEFDF27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ Symphony No. 1, Op. 23 in D major
 magnet:?xt=urn:btih:3DC00F76E033DA670DD6F332EC90A6703FAF5A53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Rondo Veneziano - Scaramucce (1982) [FLAC|Lossless|tracks + .cue] <Modern Classi
 ```bash
 magnet:?xt=urn:btih:46BDDC41FFF5D17FA0B7418C1BF26873B9EB1E71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -137,6 +145,8 @@ Allison Brewster Franzetti - The Unknown Piazzolla (1999) [FLAC|Lossless]<Classi
 magnet:?xt=urn:btih:09F1290647E5304D2DBC6140161C9ABFDAA4DBB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +173,8 @@ VA - Золотые Хиты Классики в современной обра
 ```bash
 magnet:?xt=urn:btih:C619D6B2090C88CF4F8EFFC090852BE7C15C98E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +203,8 @@ Lindsey Stirling - Brave Enough (2016) Deluxe Edition [FLAC|Lossless|image + .cu
 magnet:?xt=urn:btih:0648761C7A93C9C6CB978473DC70A2DD0AEF9601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +231,8 @@ Lindsey Stirling - Shatter Me (2014) Limited Edition, 2015, Lindseystomp Music [
 ```bash
 magnet:?xt=urn:btih:9F7073F492EB31054D8425FC069695C27A513B98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +261,8 @@ Ludovico Einaudi - Seven Days Walking (Day 4) (2019) Decca Records [FLAC|Lossles
 magnet:?xt=urn:btih:3987793E0C4A428DC5B85225ADBF59D9AC04109D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +290,8 @@ Yevgeny Mravinsky - Shostakovich Friendship (2016) [FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:5AEC1F2EFCF3A822C84408AF219A004BC4AC57CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +316,8 @@ Cats - musical
 ```bash
 magnet:?xt=urn:btih:50F329E526014A6C8F78D9D1636CB72AE8916EF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +346,8 @@ Carreras, Domingo, Pavarotti - The Best of The 3 Tenors (2002) Live [MP3|320 Kbp
 magnet:?xt=urn:btih:8B52C697CA636AF421A42847F9B6E36083CABCC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +374,8 @@ Adya - Classic (2011) [FLAC|Lossless|image + .cue] <Classical Crossover, Pop, In
 ```bash
 magnet:?xt=urn:btih:525D5724537B3B244577BD1A9228752468E47ED2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +404,8 @@ VA - Шедевры классической музыки в рок-обрабо
 magnet:?xt=urn:btih:DF7FCF5DE3EADB87AD175A65C177244F1B945EB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +433,8 @@ VA - Шедевры классической музыки в рок-обрабо
 magnet:?xt=urn:btih:66AE1C1CDCD4F3180BDDBD77422BD757B7571B80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +461,8 @@ The Royal Philharmonic Orchestra - Plays Hits Of Phil Collins (1990) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:F4FF666CAF70B3F5F640BA47CD69AB86B94673E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +497,8 @@ The Beatles Symphonic Orchestra - 3 CD (1999) [MP3|320 кб/с]<Classical, Symph
 magnet:?xt=urn:btih:9F6AB2A1802B936C18344BDEAEF7D5436150773C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +522,8 @@ magnet:?xt=urn:btih:9F6AB2A1802B936C18344BDEAEF7D5436150773C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +558,8 @@ Sergei Prokofiev - The complete piano sonatas 3 (1991) [FLAC|Lossless]<classical
 magnet:?xt=urn:btih:7512CE6551AF5C0EDD726636D32B178499F88EDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +586,8 @@ Nova Era - Fortissimo (2014) [MP3|320 кб/с]<Classical crossover, New Age>
 ```bash
 magnet:?xt=urn:btih:0ECA22FC002449F6837BAF7CEF95E8BCF893A390
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +616,8 @@ Lindsey Stirling - Brave Enough (2016) [MP3|320 Kbps] <Classical Crossover, Pop,
 magnet:?xt=urn:btih:E0BB44661C6FEFB296BFEAFBFE94895E65CE8600
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +644,8 @@ Antonio Vivaldi - Violin Concerto in E major “The Four Seasons”, op. 8 no. 1
 ```bash
 magnet:?xt=urn:btih:E16D1103FE17AD1C1F8AD41650CC891E850D11F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +674,8 @@ CD - 1:
 magnet:?xt=urn:btih:1ED756C23C9199A885C339CA0EB8DEFD7476023A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +702,8 @@ magnet:?xt=urn:btih:1ED756C23C9199A885C339CA0EB8DEFD7476023A
 ```bash
 magnet:?xt=urn:btih:C6C007CB39F851794E3F37BD7B091CE08430C580
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -684,6 +732,8 @@ Mikhail Gnesin - Russian Futurism (Vol.4)(Konstantin Krimets & Russian Philarmon
 magnet:?xt=urn:btih:CEBFADFD8F32DCD7500103EEEBDD75FF20E00446
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -710,6 +760,8 @@ Lindsey Stirling - Brave Enough (2016) Limited Deluxe Edition [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:EDE26942494E63A5C90D9F83A3D7C060614D688B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

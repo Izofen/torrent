@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4E8A6E15AF6FE09C8833AB5FA1C2549426D57664
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:4E8A6E15AF6FE09C8833AB5FA1C2549426D57664
 magnet:?xt=urn:btih:67715BF304021BA6C2395D6A6B99E9C747B34C85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:67715BF304021BA6C2395D6A6B99E9C747B34C85
 ```bash
 magnet:?xt=urn:btih:445E81937770E639DCA3E4808DC73452AD448909
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Silverlight может воспроизводить WMV, WMA и MP3 для вс�
 ```bash
 magnet:?xt=urn:btih:6D8180332510E81BD73A526994F94EBE54E03DFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:6D8180332510E81BD73A526994F94EBE54E03DFA
 ```bash
 magnet:?xt=urn:btih:E893D85B9E33349CEF042107E64D776CE64F0F37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -153,6 +163,8 @@ magnet:?xt=urn:btih:E893D85B9E33349CEF042107E64D776CE64F0F37
 magnet:?xt=urn:btih:46E1FE41412049EB9647347286628E73849EAC6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:46E1FE41412049EB9647347286628E73849EAC6D
 ```bash
 magnet:?xt=urn:btih:93ECEC502A7532B00B49549B840256167DA4727C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:93ECEC502A7532B00B49549B840256167DA4727C
 magnet:?xt=urn:btih:53DFCC33B6FCB9B3F8B6DF3E83D65302F1648964
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:53DFCC33B6FCB9B3F8B6DF3E83D65302F1648964
 ```bash
 magnet:?xt=urn:btih:CD3D13145E0303E09859A6D059D794165943D061
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:CD3D13145E0303E09859A6D059D794165943D061
 magnet:?xt=urn:btih:324D3A476878D6BAB0A7C2A67D024655705279AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:324D3A476878D6BAB0A7C2A67D024655705279AE
 magnet:?xt=urn:btih:8F35E6AE9DB2FBD922C2665DE9479C8606BD537D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:8F35E6AE9DB2FBD922C2665DE9479C8606BD537D
 ```bash
 magnet:?xt=urn:btih:FA8EADFFF99D8A34E51C662981311A8857D063C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ The book starts with an overview of AI engineering, explaining how it differs fr
 magnet:?xt=urn:btih:FC119190AE9946E8957D5F6C7807A91844CE8A50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:FC119190AE9946E8957D5F6C7807A91844CE8A50
 magnet:?xt=urn:btih:0BF51C705F3EC997D0202C1E2C62BCD3237D9147
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ As algorithmic data processing increasingly pervades everyday life, it is also m
 ```bash
 magnet:?xt=urn:btih:0F2402FB03CFF93DA037F074D7479E00FAA0A3A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ Die (   Читать дальше...   )Жанр: учебное пособие
 magnet:?xt=urn:btih:D4A35ADB8481D76BCC1DF3BF3A7E83DE0BB225A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:D4A35ADB8481D76BCC1DF3BF3A7E83DE0BB225A3
 magnet:?xt=urn:btih:E15CB3DC1D3103BDF86420DBA017A5974D94C78F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ Python. Самое полное руководство по разработке
 ```bash
 magnet:?xt=urn:btih:AC84E72DE4EB969FFFCF12A571C9E58AACA632CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:AC84E72DE4EB969FFFCF12A571C9E58AACA632CF
 magnet:?xt=urn:btih:753142A488FE2A36A96D97CEEDE12943D3E197E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:753142A488FE2A36A96D97CEEDE12943D3E197E5
 magnet:?xt=urn:btih:BC56C0D144C0E88D65F5C7E08BF6C7C70CAA11EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:BC56C0D144C0E88D65F5C7E08BF6C7C70CAA11EB
 ```bash
 magnet:?xt=urn:btih:E5DE344E26E43E13160FEB5D656215254476A76E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:E5DE344E26E43E13160FEB5D656215254476A76E
 magnet:?xt=urn:btih:38F68279440F5CF667D5236534BAB26902C4E638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:38F68279440F5CF667D5236534BAB26902C4E638
 ```bash
 magnet:?xt=urn:btih:85DA227297BE5189075C79DBD0FCD70DF8E656B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:85DA227297BE5189075C79DBD0FCD70DF8E656B3
 magnet:?xt=urn:btih:51C0CA4CF740651571FA5B67CEC92CA5D74B13CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ Nanik Tolaram | Software Development with Go (2022) [PDF][EN]
 magnet:?xt=urn:btih:514D18A4E815FBB761CCFBB27926929EFAC17C99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ August Lilleaas | Pro Kotlin Web Apps from Scratch (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:6579BD7AE089F0B1B72FF28B27C1D6CA645E5468
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

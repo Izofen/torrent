@@ -1,27 +1,3 @@
-###  Публикация: 1214255   (765624) от 20.03.2018
-
-Attack on Titan 2 - A.O.T.2 (2018) [Multi] (1.0) License CODEX
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отриньте все страхи. A.O.T. 2 — это продолжение игры, основанной на популярном во всем мире аниме «Attack on Titan».Тип издания: LicenseРазработчик: KOEI TECMO GAMES CO., LTD.Жанр: Action, 3D, 3rd PersonЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Немецкий, ЯпонскийЯзык интерфейса: Английский, Немецкий, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D71C83D73EDE6A8040F2E3305ADC8DF7D5E5BAB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214159   (765713) от 20.03.2018
 
 Greed 3: Old Enemies Returning / Жадность 3: Старые враги возвращаются (2017) [Ru] (1.0) Unofficial
@@ -42,6 +18,8 @@ Greed 3: Old Enemies Returning / Жадность 3: Старые враги в�
 ```bash
 magnet:?xt=urn:btih:A43C9585665D260158326B9F05B1ECDD7F6A3C3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ The House of Da Vinci 2 (2020) [Ru/Multi] (1.0.3) License GOG
 magnet:?xt=urn:btih:3D90BBD664C048C3B724625D94ABFC4529CF2551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Beholder 2 (2018) [Ru/En/Ch] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:5181B86DC457B30E309E81319334A2569EF0E347
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ The Catch: Carp & Coarse (2020) [Ru/Multi] (1.0) Repack xatab
 magnet:?xt=urn:btih:216B11BF94658078A0DD26611AC2173C53C0831A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Moonfall это side-scrolling 2D action RPG в жанре Beat ’em up, офо
 ```bash
 magnet:?xt=urn:btih:6DE2903997458F979AED9DDA5ADE7E3B4CAD647B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Haydee (2016) [Ru/Multi] (1.09.1) SteamRip Let'sPlay
 magnet:?xt=urn:btih:1BA5EFAE8E88F4CB1490D16FB2044C31A74BAF3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Mr Shifty – хардкорный изометрический стелс-эк�
 ```bash
 magnet:?xt=urn:btih:73344E8C60EAF8745B07DF94A2A5351A5785CEAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +202,8 @@ On the Road - реалистичный симулятор грузовиков �
 magnet:?xt=urn:btih:0A695A6EF6C6E636922E48C86783E286E497CB41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ Asura» - игра, в которой вы будете играть за дем
 ```bash
 magnet:?xt=urn:btih:927C2624BCAC27759499D101CCD0A7FDEF9A4734
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +254,8 @@ Paranormal Files: Fellow Traveler / Паранормальные явления:
 magnet:?xt=urn:btih:4B907F6AC1C1625D4607E6D8E544D049E03C5181
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ The Wild Eternal – приключение от первого лица, рас
 ```bash
 magnet:?xt=urn:btih:15EA7B6D7204B7A2F5062706FEDC54F840748088
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +306,8 @@ Save Jesus (2016) [En] (1.0) Repack R.G. Механики
 magnet:?xt=urn:btih:8C85469B5E59A3301BD0DC5BDB6D38650EAFD219
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +331,8 @@ Halloween Chronicles: Monsters Among Us (2018) [En] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:F2092F2C0E186CFF4A6E465608093D8C4075C5B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +358,8 @@ Chimeras 9: Wailing Waters (2019) [En] (Beta) Unofficial
 magnet:?xt=urn:btih:55092E25B4F1F1BF7A7E53224E9F456E03E0F87C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +383,8 @@ DillyBall почти классический марбл платформер. �
 ```bash
 magnet:?xt=urn:btih:66A4DB3E9AC1B8E52E82630B2B20992A0F7F59EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +410,8 @@ Thimbleweed Park (2017) [Ru/Multi] (1.0.958/dlc) License GOG
 magnet:?xt=urn:btih:7065F1F46A839754C10D41EA36030F19C3A358A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +435,8 @@ Mirror's Edge Catalyst (2016) [Ru/Multi] (1.0.3.47248/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:022A6E28BB31BB51634DE15E93D854071DB0628B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +462,8 @@ Shadowhand - приключенческая карточная ролевая с
 magnet:?xt=urn:btih:8F7BA3ACA3846E1B00270EBEF4336B1879C774DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +487,8 @@ The Coma: Recut (2017) [Ru/Multi] (2.53) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:17E61367869000832BD2BEECA52E198021EA66E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +514,8 @@ Hellmut: The Badass from Hell (2018) [Ru/Multi] (1.0.3/dlc) License GOG
 magnet:?xt=urn:btih:8844481BA55485F6379470A63F6B8042FCA25535
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +539,8 @@ Where the Water Tastes Like Wine (2018) [Ru/Multi] (1.0.5) License GOG
 ```bash
 magnet:?xt=urn:btih:C394E328896A4B43E33BEC4DF44B6D2DF6B2585B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +566,8 @@ Vermillion Watch 4: In Blood / Алый дозор 4: Ценою крови (201
 magnet:?xt=urn:btih:B20E3C817E1D6AB87DAB55F49A331F24A613E181
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +591,8 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (1.03/upd5/dlc) License PLAZA [Gold
 ```bash
 magnet:?xt=urn:btih:BB68E0DC9300A52D8DD4F8A34B41C401B7429B1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +618,8 @@ Queen's Quest: Tower of Darkness / Королевский квест: Тёмна
 magnet:?xt=urn:btih:4E23575C8FBCF81A6D6145475A940F6FD217BC5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +643,34 @@ This Is the Police (2016) [Ru/Multi] (1.1.3.0) License GOG
 ```bash
 magnet:?xt=urn:btih:5AE1ECC5D67A7CCD884AFF16DC39932DA831A638
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125865   (766710) от 16.04.2017
+
+DiRT Rally (2015) [Ru/Multi] (1.23/dlc) SteamRip Let'sPLay
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766710.jpg" />
+</div>
+
+
+###  Подробнее
+
+DiRT Rally — самая реалистичная из ныне существующих гоночных игр. (Проверено игроками сообщества DiRT, прошедшими 80 милл. миль.) Почувствуйте напряжение пилота, который знает, как высока цена ошибки. На каждом этапе свои сложности, покрытие и погода. Все машины изнашиваются, но команда поможет вам не вылететь, хотя каждое ралли — марафонское испытание. DiRT Rally (   Читать дальше...   )Тип издания: SteamRipРазработчик: Codemasters Racing StudioЖанр: Arcade, Racing (Cars), 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9EF0582A043B33DABD332F696E77E22027AB3A4
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

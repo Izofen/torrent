@@ -22,6 +22,8 @@ VA - Summer Uplifting Trance (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
 magnet:?xt=urn:btih:72B48961D8790B3DFCA505EB9617BD1F48FA0EFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Mylene Farmer - Remixes (2004) [FLAC|Lossless|tracks + .cue] <Progressive House,
 ```bash
 magnet:?xt=urn:btih:38BE7E734F0383C8AF6D5F788C62788CE584FCBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Digiseeds (Compiled by Ambientium) (2015) Ultimae Records [FLAC|Lossless|WE
 magnet:?xt=urn:btih:B118C50744C7C93329D0D1692A5F137D13C9EDE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - House Clubhits Megamix 2021 (2020) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:2FEDB64704ADAE646D194724F2EA67E3FAC02A74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Deep House Relief (2023) CD, Compilation [MP3|320 Kbps] <Deep House, Downte
 magnet:?xt=urn:btih:B055011C83A1125349C8994CC42AE6F0190D9882
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Fancy - Strip Down (2000) [FLAC|Lossless|tracks + .cue] <Synth-pop, Disco>
 ```bash
 magnet:?xt=urn:btih:66E224B5296E58333F530DA982BCBAF7100A135E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Ferry Corsten presents Gouryella - From The Heavens (2016) [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:7019541723F89632E5940877AE70D301EADEC6EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -209,6 +223,8 @@ Naono - Discography 6 Releases (2002-2012) Vibrant Music, Archaic Horizon [FLAC|
 ```bash
 magnet:?xt=urn:btih:298B9BDDE40A07DF998DB9BCF2AFBD17C097BB9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +253,8 @@ VA - Suanda Music Radio Top 20 (December) (2019) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:5D77A5496B3C05FE92106DE88DD4B9F0B22841EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +281,8 @@ VA - EFX - Club 3rd Compilation (1996) [FLAC|Lossless|tracks] <Hard Trance>
 ```bash
 magnet:?xt=urn:btih:81005FB152AA7625D9EEFF72D4C32C18E22328BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +311,8 @@ VA - Ibiza Dance Party (2023) CD, Compilation [MP3|320 Kbps] <Electro, Club, Fut
 magnet:?xt=urn:btih:5A027AC7FB4C789B9A8902EED7E6212AACADC3B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +339,8 @@ VA - Ori Uplift & Phoenix - Uplifting Only 356 (2019) [MP3|320 Kbps] <Trance, Up
 ```bash
 magnet:?xt=urn:btih:6F40A3FA85D1E7E78FA86A242FB9A7606C45D963
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +369,8 @@ Dj De Key - Anniversary Edit (2019) [MP3|320 Kbps] <Progressive House, Progressi
 magnet:?xt=urn:btih:F8866265690443FA7CAA817769348E334D247CE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +397,8 @@ VA - Private Room - The Lounge Session Vol. 17 (2016) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:AFA95607B6E45221D49C879B98FF3F8753390EA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +427,8 @@ VA - Markus Schulz -Global DJ Broadcast  - World Tour Montreal (2019) [MP3|320 K
 magnet:?xt=urn:btih:6DBCA1AE733CD3F994A42BF0B8D4DB5D71089052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +455,8 @@ VA - Dancing Pirates Vol. 1 (House Radio Edits) (2023) [MP3|320 Kbps] <Electro H
 ```bash
 magnet:?xt=urn:btih:8B98AB4A04E13E2684AC04F508F097059B71EF0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +485,8 @@ Dither - Souma (2020) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Glitch, Abstr
 magnet:?xt=urn:btih:A76AE8E81AF9291A1237D66639BC148DCE425DB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +513,8 @@ Hybernoid - Advanced Technology (1998) [FLAC|Lossless|image + .cue] <Breakbeat, 
 ```bash
 magnet:?xt=urn:btih:7EFC8F8DA0625F94692A3D0EB94D48B519192C59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +543,8 @@ VA - Best of Progressive Vocal Trance (2021) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:FF4E4E1FEAAAD3D24624484F295242D52B47D6AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +571,8 @@ Dement3d Records - Label-Pack 23 Releases (2011-2019) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:B38D3D0341D5D34E5B014793FD065564F2B790BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +601,8 @@ Moon Boots - Ride Away (Remixed) (2023) [FLAC|24/44.1|tracks|WEB-DL] <Deep House
 magnet:?xt=urn:btih:0717CC1E21692349709ABA110D770224952B1739
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +629,8 @@ VA - Calm Winter Sea: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <B
 ```bash
 magnet:?xt=urn:btih:C8B089B49EEB98C004CE1C35ECFD69E78D0236D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +659,8 @@ Angela Werner - 2 Albums (1981, 1982) LP [MP3|320 Kbps] <Electronic, New Wave, S
 magnet:?xt=urn:btih:DB3D969900433EC1B85F6C8641C9170BC4CCD2C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +687,8 @@ E-Mantra - Discography 13 Releases + Bonus (2008-2014) [MP3|320 кб/с]<Goa Tra
 ```bash
 magnet:?xt=urn:btih:C7DF237793E8607CAEA80C73875A5AA890A74FD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -669,6 +717,8 @@ Suduaya - Venus (2016) [FLAC|Lossless|WEB-DL|24Bit] <Psybient, Downtempo, Breaks
 magnet:?xt=urn:btih:C12250283BC21FE28EDE5864998438F3138FCFD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ VA - Best of 2019 Dance Music (2019) [MP3|320 Kbps] <Dance, House, Electro House
 ```bash
 magnet:?xt=urn:btih:3DCF918CEFBF98BA26B8988E6F545EC72C4E552D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

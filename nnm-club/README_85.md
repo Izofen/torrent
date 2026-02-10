@@ -19,6 +19,8 @@ S.T.A.L.K.E.R.: Clear Sky (2008) [Ru/Multi] (1.10.0.26261) Repack Let'sРlay [En
 magnet:?xt=urn:btih:14A8F607C4345C35BB733D1BE83369A2748364C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:14A8F607C4345C35BB733D1BE83369A2748364C2
 ```bash
 magnet:?xt=urn:btih:E6ED1CFAEE2038291E5AACA873A82C91FAE3CA70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Shape of Dreams (2025) [Ru/Multi] (r.1.0.6.2_s) Repack Let'sРlay
 magnet:?xt=urn:btih:52313D83A070DCDDDFA83B5A9ACB7E8A05EE7CCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:52313D83A070DCDDDFA83B5A9ACB7E8A05EE7CCF
 ```bash
 magnet:?xt=urn:btih:3E1345B536F42676C91689CA9B087FDC48C591E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:3E1345B536F42676C91689CA9B087FDC48C591E5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:3E1345B536F42676C91689CA9B087FDC48C591E5
 ```bash
 magnet:?xt=urn:btih:6BA1594DF508ADCCC6196BDF2A4FADBAA33A3879
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:6BA1594DF508ADCCC6196BDF2A4FADBAA33A3879
 magnet:?xt=urn:btih:443D5E9CE1FE99FDF80BB59B8BC73EE9D9E52C25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Clevatess: Majuu no Ou to Akago to Shikabane no Yuusha | Clevatess | Клева�
 magnet:?xt=urn:btih:18D27BD1DB1F69F8F4264D6799D8152DC11BED69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:18D27BD1DB1F69F8F4264D6799D8152DC11BED69
 ```bash
 magnet:?xt=urn:btih:D8F886109186D6527E719ABF7F280ADFD8784365
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Capture One Pro - один из самых мощных профессионал
 magnet:?xt=urn:btih:68D49B604FCA615B87AE7C515F20690A89F4A0B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:68D49B604FCA615B87AE7C515F20690A89F4A0B4
 ```bash
 magnet:?xt=urn:btih:D4A125A608C343BD510BCEF3D62B72A88A18C279
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Rising Lords представляет смесь стратегии с карт�
 magnet:?xt=urn:btih:16F344194D18E1F980BB2F66EBC3520841138B7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Tsuihousha Shokudou e Youkoso! / Welcome to the Outcast's Restaurant! / Добр
 ```bash
 magnet:?xt=urn:btih:C47DA8F273302DDF6B9AD398ED4F2A272DD345F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ The Precursors / Предтечи (2009) [Ru] (2.2) Repack Foxx [ReBuild]
 magnet:?xt=urn:btih:8A4F7C6025735FCC8BF3B7493BF7090B6AFAFF87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ The Plucky Squire - это очаровательная экшен-адвенч�
 ```bash
 magnet:?xt=urn:btih:D4C652D975A8D1BE3A8A7B8B9E4E5E67055D9859
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Ammo and Oxygen (2025) [Ru/Multi] (1.2) Repack Let'sРlay
 magnet:?xt=urn:btih:EE558C27DEA3CD930E8E18DCB7CAA9DD1491B702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:EE558C27DEA3CD930E8E18DCB7CAA9DD1491B702
 ```bash
 magnet:?xt=urn:btih:7F22235E10E12032C6DE24D3DA9E7B95B6492B64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:7F22235E10E12032C6DE24D3DA9E7B95B6492B64
 magnet:?xt=urn:btih:78C2B4C8DD6D1D685EC3C727379F6192779B5D7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Dying Light – это боевик на выживание от первого 
 ```bash
 magnet:?xt=urn:btih:B5B7BA6761E05A378AF82A8B2E312D43A704C8DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ RoadCraft (2025) [Ru/Multi] (4.2/dlc) Repack Let'sРlay [Rebuild Edition]
 magnet:?xt=urn:btih:EA21A1E6EC114DECE4DBF3CB21E24B178BC55B46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Stronghold Crusader: Definitive Edition (2025) [Ru/Multi] (1.05) Repack Let'sРl
 ```bash
 magnet:?xt=urn:btih:9664D6A6DA305E06AD54EC0F04CECB290CBFC06B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ TerraScape позволяет игрокам осуществить свою м�
 magnet:?xt=urn:btih:7E21C6459A2C7C126CF4DF82F0C1410A76818CB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Terra Nil – градостроительный симулятор-песочн
 ```bash
 magnet:?xt=urn:btih:E901C8009950C4616AEA01E94145FAF9F233FD5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Echoes of the End - кинематографичный приключенчес�
 magnet:?xt=urn:btih:53A9DF15F63E5F08B009373343F196DB64979E4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Door Kickers 2: Task Force North (2025) [Ru/Multi] (1.12) Repack Let'sРlay
 magnet:?xt=urn:btih:2DF8A782E6602DA35353EE5DE336F0AF77D5FEB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:2DF8A782E6602DA35353EE5DE336F0AF77D5FEB0
 ```bash
 magnet:?xt=urn:btih:5D921D660FFCC15C6CD5CA60336E4006A3DFCC73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

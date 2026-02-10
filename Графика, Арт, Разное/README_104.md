@@ -1,56 +1,3 @@
-###  Публикация: 509757   (675464) от 12.06.2012
-
-[Wallpapers] Обои с прекрасными уголками природы (66 снимков)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675464.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Обои с прекрасными уголками природы (66 снимков)
-Название: Обои с прекрасными уголками природы (66 снимков)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680x1050 - 3844x2544
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи:  c 17-00 до 5-00 (время Киевское (GMT+02:00))
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA395849EFE22791B07A7D7916D50AF0EE02ECB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290636   (675938) от 21.03.2019
-
-Иконки - Flaticon - Essential Set [SVG, EPS, PNG, PSD]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675938.jpg" />
-</div>
-
-
-###  Подробнее
-
-380 Иконок в векторе и растре с дополнениями.
-Автор: SmashiconsФормат: SVG, EPS, PNG, PSDРазрешение файлов: 512 x 512
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CD4A61AB95A17670527C2B4A64417EB2ED1ABF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290734   (675952) от 21.03.2019
 
 Иконки - Flaticon - Interaction Collection [SVG, EPS, PNG, PSD]
@@ -72,6 +19,8 @@ magnet:?xt=urn:btih:4CD4A61AB95A17670527C2B4A64417EB2ED1ABF5
 ```bash
 magnet:?xt=urn:btih:8609BDF86BADA6674212CF7486661593546B91A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +47,8 @@ magnet:?xt=urn:btih:8609BDF86BADA6674212CF7486661593546B91A7
 magnet:?xt=urn:btih:788C4837FBC8794CD33336FE770D34CAADD5D82A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +73,8 @@ magnet:?xt=urn:btih:788C4837FBC8794CD33336FE770D34CAADD5D82A
 ```bash
 magnet:?xt=urn:btih:110773E1B4450AC5BB60D1FC34824A58EF2DE7BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +101,8 @@ magnet:?xt=urn:btih:110773E1B4450AC5BB60D1FC34824A58EF2DE7BF
 magnet:?xt=urn:btih:19795AAA91E7FB2EDF1F0B0F43EE05167D3BF6B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +127,8 @@ magnet:?xt=urn:btih:19795AAA91E7FB2EDF1F0B0F43EE05167D3BF6B3
 ```bash
 magnet:?xt=urn:btih:24308448990B937236FD04E305787A7D614F0ED7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +155,8 @@ magnet:?xt=urn:btih:24308448990B937236FD04E305787A7D614F0ED7
 magnet:?xt=urn:btih:EB8A657C9974A8D1653704FE13AE0C2A676895BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +181,8 @@ magnet:?xt=urn:btih:EB8A657C9974A8D1653704FE13AE0C2A676895BF
 magnet:?xt=urn:btih:DF68C79C940CAE61B6ECA7EA65DB7AFBCE66E293
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +206,8 @@ Wallpapers - Big Mixed HD Wallpapers Pack (17.06.14) [JPEG]
 ```bash
 magnet:?xt=urn:btih:E132ED924DE3A925BA4BF14CA65F8A35279B2B97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +234,8 @@ magnet:?xt=urn:btih:E132ED924DE3A925BA4BF14CA65F8A35279B2B97
 magnet:?xt=urn:btih:7B80A5990113B434A531387FD46FA70533A517DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +260,8 @@ magnet:?xt=urn:btih:7B80A5990113B434A531387FD46FA70533A517DA
 ```bash
 magnet:?xt=urn:btih:FBD127BBA7BE0C4732C961E770178E6144D76703
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +288,8 @@ magnet:?xt=urn:btih:FBD127BBA7BE0C4732C961E770178E6144D76703
 magnet:?xt=urn:btih:1475EF47269D3E0B7A68B60D3AC7219B2839C2E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +313,8 @@ magnet:?xt=urn:btih:1475EF47269D3E0B7A68B60D3AC7219B2839C2E9
 ```bash
 magnet:?xt=urn:btih:F7FF0EBEE9F05CD30A34EAC0D1106100132163B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +340,8 @@ magnet:?xt=urn:btih:F7FF0EBEE9F05CD30A34EAC0D1106100132163B0
 magnet:?xt=urn:btih:9776CFDE738C7D61C87373247B72817FECD603F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +365,8 @@ Wallpaper - Logo Windows (обои для рабочего стола - лого
 ```bash
 magnet:?xt=urn:btih:27360FC8C5F8B6E8F945989DEBA5D4838C69DB9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +392,8 @@ magnet:?xt=urn:btih:27360FC8C5F8B6E8F945989DEBA5D4838C69DB9E
 magnet:?xt=urn:btih:642E7933DC32C9633986E5F3E18E5FBCE2A413B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +417,8 @@ magnet:?xt=urn:btih:642E7933DC32C9633986E5F3E18E5FBCE2A413B5
 ```bash
 magnet:?xt=urn:btih:FD368D1D6F6B97D15C3E088D98558622CB75D9AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +444,8 @@ magnet:?xt=urn:btih:FD368D1D6F6B97D15C3E088D98558622CB75D9AC
 magnet:?xt=urn:btih:6204DE0E65078CAA6965756B3A394F59713CE963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +469,8 @@ Wallpapers - New Mixed HD Wallpapers Pack (14.06.14) [JPEG]
 ```bash
 magnet:?xt=urn:btih:1210C7EE546677C135B0EA7B3E923D0EE31C0D7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +496,8 @@ magnet:?xt=urn:btih:1210C7EE546677C135B0EA7B3E923D0EE31C0D7C
 magnet:?xt=urn:btih:50F8210549272C5002915C31CC1D45043590FB1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +521,8 @@ magnet:?xt=urn:btih:50F8210549272C5002915C31CC1D45043590FB1D
 ```bash
 magnet:?xt=urn:btih:00130EFF44566C88D1C22C90053E7D5510407C10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +548,8 @@ magnet:?xt=urn:btih:00130EFF44566C88D1C22C90053E7D5510407C10
 magnet:?xt=urn:btih:2F3B969088CD12B2C96789285FA418F039ACD9B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +573,8 @@ magnet:?xt=urn:btih:2F3B969088CD12B2C96789285FA418F039ACD9B3
 ```bash
 magnet:?xt=urn:btih:F1109C17106602F5BBEB22632801B9BB9ABB3EB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +600,8 @@ magnet:?xt=urn:btih:F1109C17106602F5BBEB22632801B9BB9ABB3EB4
 magnet:?xt=urn:btih:2ABBC4AEE4346818F34D0FDC78A00C796E37CC87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +625,65 @@ magnet:?xt=urn:btih:2ABBC4AEE4346818F34D0FDC78A00C796E37CC87
 ```bash
 magnet:?xt=urn:btih:3A33CF2541646A417FF00BA5E1D365C8B80D686A
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 506757   (685672) от 07.06.2012
+
+[Wallpapers] Широкоформатные обои - Яркие пейзажи
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685672.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Широкоформатные обои - Яркие пейзажи
+Название: Широкоформатные обои - Яркие пейзажи
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 4199х2362
+Расширение (тип) файлов: JPEG 30штВремя раздачи: (24/7)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89526ECA640E0255E2E890A1818B09042694A2F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288588   (685980) от 16.03.2019
+
+Иконки - WebdesignerDepot - 100 GRADIENT ICONS [PNG, EPS, SVG, AI]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685980.jpg" />
+</div>
+
+
+###  Подробнее
+
+100% бесплатные иконки в векторе и растре (бесплатно для коммерции и личного пользования). Материал раздается с официальными дополнениями.
+Автор: WDD STAFFФормат: PNG, EPS, SVG, AIРазрешение файлов: 48 x 48 - 121 x 121
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80DFAD128063CC0CCE25CDD159AD4EF787FF37DF
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

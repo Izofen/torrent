@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8A1C607159512B31B767D8BBE3A0766BC59AACCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:8A1C607159512B31B767D8BBE3A0766BC59AACCF
 magnet:?xt=urn:btih:F07676792BA47083A99552151B0318C44F721799
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:F07676792BA47083A99552151B0318C44F721799
 ```bash
 magnet:?xt=urn:btih:57CB87CE1DC39EFDAEBEA572523447800E4CCD65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:57CB87CE1DC39EFDAEBEA572523447800E4CCD65
 ```bash
 magnet:?xt=urn:btih:BD3E6C198589BF98255B0C8066BF059816B28952
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ VA - Свежий Русский Хит от ALEXnROCK часть 8 (2021) [MP3|
 magnet:?xt=urn:btih:FE948AD0FC392F4B47A5903135861990D50C17A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:FE948AD0FC392F4B47A5903135861990D50C17A0
 ```bash
 magnet:?xt=urn:btih:CF6396DE1C086E0D2FFA1B0E4723EBA9516CA640
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ VA - Acoustic 90's (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
 magnet:?xt=urn:btih:B589A9A6C3AE16C4CB99A635886959B3A734EBB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ Dropshare - приложение строки меню для Drag & Drop заг
 magnet:?xt=urn:btih:E72F0D1EDA31A1C066629F9003B902037CE4612E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:E72F0D1EDA31A1C066629F9003B902037CE4612E
 ```bash
 magnet:?xt=urn:btih:5E1671611607EAF5B854C6DC25294E8E310FA982
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:5E1671611607EAF5B854C6DC25294E8E310FA982
 magnet:?xt=urn:btih:13E214944925170F36B96DDC104001FE1915C47D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:13E214944925170F36B96DDC104001FE1915C47D
 ```bash
 magnet:?xt=urn:btih:AB9ABDC27B96C57798DB34D3225C8CAD42D9D911
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 magnet:?xt=urn:btih:CE982D6C903E0A0077F80451164681C4923E85B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ Vehemence - Forward Without Motion (2015) [FLAC|Lossless|tracks + .cue] <Metal, 
 magnet:?xt=urn:btih:E74F9410BA4D63C29A5DC6CA6E3ABA74AC51B87D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:E74F9410BA4D63C29A5DC6CA6E3ABA74AC51B87D
 magnet:?xt=urn:btih:EB7C733821316B7AD9339D27977492C05041D483
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:EB7C733821316B7AD9339D27977492C05041D483
 ```bash
 magnet:?xt=urn:btih:3571711971E0476F9C8E46107AEC46D963BBE747
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:3571711971E0476F9C8E46107AEC46D963BBE747
 magnet:?xt=urn:btih:1DCA6B39E84201F6DB4DC91D4146908617D3D82D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:1DCA6B39E84201F6DB4DC91D4146908617D3D82D
 ```bash
 magnet:?xt=urn:btih:14A5C4445E86960C6DF30D824830512C6166EA88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:14A5C4445E86960C6DF30D824830512C6166EA88
 magnet:?xt=urn:btih:F6CC232C02C32394DF8D0489C2C54FA5395E2388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:F6CC232C02C32394DF8D0489C2C54FA5395E2388
 ```bash
 magnet:?xt=urn:btih:36DF5990FBB18C95AAA501451B3CD849F3ED3082
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ Lindi Ortega (Линди Ортега) - Little Red Boots (2011) Last Gang Recor
 ```bash
 magnet:?xt=urn:btih:3A4A246E1526B49438E3F9714390CD559E956C2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:3A4A246E1526B49438E3F9714390CD559E956C2A
 magnet:?xt=urn:btih:01178BD63CA9D3A3E75EF682ECB579B355024A44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ magnet:?xt=urn:btih:01178BD63CA9D3A3E75EF682ECB579B355024A44
 ```bash
 magnet:?xt=urn:btih:B1422ACB7992C190976D28AF27B713BF93224357
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ Veil of Mist - Another End Is Possible (2023) [FLAC|Lossless|WEB-DL|tracks] <Sym
 magnet:?xt=urn:btih:FF53E2B453A46682AFECB4C746444AB8B481CFD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ magnet:?xt=urn:btih:FF53E2B453A46682AFECB4C746444AB8B481CFD3
 ```bash
 magnet:?xt=urn:btih:789E4062139E4B1468609142E9AED1C606D92706
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +678,8 @@ Chaos Control Premium 1.11 [En/Ru]
 magnet:?xt=urn:btih:B9101A27FD4218771BFFEF83BDE2EAA2C2D7F0A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:B9101A27FD4218771BFFEF83BDE2EAA2C2D7F0A4
 ```bash
 magnet:?xt=urn:btih:93F03AFDE5C8C6510639177DC656AD6F617DE24B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

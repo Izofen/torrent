@@ -1,3 +1,29 @@
+###  Публикация: 1107074   (867864) от 22.02.2017
+
+Юрий Брайдер, Николай Чадович | Ищейка (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867864.jpg" />
+</div>
+
+
+###  Подробнее
+
+После травмы у милиционера Кулькова ослабло зрение, но чрезвычайно обострилось обоняние. Он стал различать тончайшие запахи. Вначале эта его новая способность доставляла ему множество неприятностей, но затем он свыкся с ней и даже научился её использовать.Жанр: ФантастикаПродолжительность: 02:25:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F805381C97156BEADC6361B4B1D274AC30FB2354
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497021   (867895) от 20.09.2021
 
 Александр Рудазов, Ксения Рудазова | Паргоронские байки. Том 2 (2021) [MP3, Павел Шехов]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:32CD276B4F6ECC9A2A921C6753F276E0FF0F91C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:32CD276B4F6ECC9A2A921C6753F276E0FF0F91C0
 magnet:?xt=urn:btih:CC2EB72D338DC8BB7FA26F46C207E047048AD77E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:CC2EB72D338DC8BB7FA26F46C207E047048AD77E
 ```bash
 magnet:?xt=urn:btih:BEBFC89DDA270905FD71D39796A74D7A247A4DDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:BEBFC89DDA270905FD71D39796A74D7A247A4DDB
 magnet:?xt=urn:btih:47916E21D7D9373623099B816E296B5D1ECA1815
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:47916E21D7D9373623099B816E296B5D1ECA1815
 magnet:?xt=urn:btih:224D69ABF062008AF095AB2D49A3C2A0A2971DC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:224D69ABF062008AF095AB2D49A3C2A0A2971DC4
 ```bash
 magnet:?xt=urn:btih:C1820E01D190B9EC6C1F7BBF2ADD24D15CCB9ACE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:C1820E01D190B9EC6C1F7BBF2ADD24D15CCB9ACE
 magnet:?xt=urn:btih:7BC02AEFE70223F3A6F72877D79F3FD0D133897C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:7BC02AEFE70223F3A6F72877D79F3FD0D133897C
 ```bash
 magnet:?xt=urn:btih:3DF362404FA8A73CD8D4010C1ED95471A37D63DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:3DF362404FA8A73CD8D4010C1ED95471A37D63DB
 magnet:?xt=urn:btih:7FC3EC61BAC170B301B0F80EDDF6E7B5178DB720
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:7FC3EC61BAC170B301B0F80EDDF6E7B5178DB720
 ```bash
 magnet:?xt=urn:btih:83ED986808E3BA843740A9D3BFDFEA25DD822720
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:83ED986808E3BA843740A9D3BFDFEA25DD822720
 magnet:?xt=urn:btih:D6BB2870D9E2BB5450CA1D56A748EED7983D4B3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:D6BB2870D9E2BB5450CA1D56A748EED7983D4B3A
 magnet:?xt=urn:btih:1CCE261A29305DE413F0A0174EEC186D48C82E46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:1CCE261A29305DE413F0A0174EEC186D48C82E46
 ```bash
 magnet:?xt=urn:btih:F54DABA0F1B5C625EE4586FF0E1AABC078F60B55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:F54DABA0F1B5C625EE4586FF0E1AABC078F60B55
 magnet:?xt=urn:btih:8615CCF2AA3F9F50071377D50F8F830078D665A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:8615CCF2AA3F9F50071377D50F8F830078D665A8
 ```bash
 magnet:?xt=urn:btih:A707B16D747CB94C19CF7880EE40750DCBA1BB1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:A707B16D747CB94C19CF7880EE40750DCBA1BB1E
 magnet:?xt=urn:btih:7A1BFCABC6BCB3EE2BC57D3A1F527982A09B7E75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:7A1BFCABC6BCB3EE2BC57D3A1F527982A09B7E75
 ```bash
 magnet:?xt=urn:btih:E22EF83BF4CA0B9CC752DCE1D0DAF5C900D18627
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:E22EF83BF4CA0B9CC752DCE1D0DAF5C900D18627
 magnet:?xt=urn:btih:A7154DD78BB05DC99F113AA11A43416089E868D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:A7154DD78BB05DC99F113AA11A43416089E868D3
 ```bash
 magnet:?xt=urn:btih:5D7E54B6CF83E649858E421E58422DD6E6965C5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:5D7E54B6CF83E649858E421E58422DD6E6965C5B
 magnet:?xt=urn:btih:7259280DDE8FE4160DFE144D7DE48C72819163FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:7259280DDE8FE4160DFE144D7DE48C72819163FF
 magnet:?xt=urn:btih:D6E2C068332FAE3E52BDED41F2518A06000F82A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:D6E2C068332FAE3E52BDED41F2518A06000F82A5
 ```bash
 magnet:?xt=urn:btih:C228995A2130F29ECFEA079383C4AD9367614DE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:C228995A2130F29ECFEA079383C4AD9367614DE9
 magnet:?xt=urn:btih:C95ADAE141295B39BCF6D1D760CB0B0A889F2F7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:C95ADAE141295B39BCF6D1D760CB0B0A889F2F7D
 ```bash
 magnet:?xt=urn:btih:2CDE6AD6AFF5AF3B177710439599066ADAC8C713
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:2CDE6AD6AFF5AF3B177710439599066ADAC8C713
 magnet:?xt=urn:btih:C7466ECBEC244C3D7C7B38D038DD200791175837
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 243592   (870258) от 11.04.2020
-
-Вячеслав Шалыгин - Тринадцатый сектор (S.T.A.L.K.E.R.) (2010) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая Вспышка породила в Зоне еще более страшных монстров, чем предыдущие катаклизмы. И среди них Хозяина — Главного Врага, обладающего могущественным артефактом, открывающим обитателям Зоны проход во внешний мир. Вольный ходок, в прошлом наемник Андрей Лунев, которому совсем недавно удалось спасти все живое в Зоне, еще не знал, что очередное задание генерала Остапенко (   Читать дальше...   )Жанр: Фантастика, АудиокнигаПродолжительность: 10:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEBE5A49303F12D7EC56AD3CEC1E9847233060F2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

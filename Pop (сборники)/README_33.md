@@ -1,3 +1,32 @@
+###  Публикация: 1072086   (354106) от 12.11.2016
+
+VA - Хорошая Музыка на Все Времена (2016) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eurithmics - Sweet dreams
+02. Madonna - This Used To Be My Playground
+03. Tony Braxton - Unbreak My Heart
+04. Joe Dassin - A Toi(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:855035280DB70501793E52A16DB70F188D79A9BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577527   (354499) от 19.09.2022
 
 VA - New Music Releases September 2022 #3 (2022) [MP3|320 Kbps] <Pop, Dance, Rock, Hip-Hop>
@@ -21,6 +50,8 @@ VA - New Music Releases September 2022 #3 (2022) [MP3|320 Kbps] <Pop, Dance, Roc
 ```bash
 magnet:?xt=urn:btih:F23684D61DE9DA134573A10209FE0E14EED81FEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Rare Disco Dance (2018) [MP3|320 Kbps] <Electronic, Disco>
 magnet:?xt=urn:btih:670D4726A0882B3BE96925EF401756C21F4657D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - 80s Top Tracks (2022) [MP3|320 Kbps] <Pop, Rock, R&B>
 ```bash
 magnet:?xt=urn:btih:DB56F8CA409AA1346520B380BDC258FA980F7836
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Songs for the Car (2022) [MP3|320 Kbps] <Pop, Rock, R&B, Dance>
 magnet:?xt=urn:btih:476EBBDD84500AC670105B11A2A60F32FB39021A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Зайцев.Нет - Самые Горячие Новинки (2016) [MP3|
 ```bash
 magnet:?xt=urn:btih:60EC44A3A6A769AF3864F0D2B7EDFE4D9B3D95D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Танцы до рассвета. Русский сборник от Хит
 magnet:?xt=urn:btih:AEEE3B7FE7D725731BA9C549379A5B32558AAD88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Popular Hits Nation: Pop Slam Music (2019) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:C8215324E0FD2165F50B4B7A581A9D1D0F26FCC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - German Top 100 Single Charts 22.10.2018 (2018) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:DEFD88C77389D1F0192CB59FEF92C9A5DB1A8407
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Мегахитовая осень на Europa Plus. Часть 8 (2016) [MP
 ```bash
 magnet:?xt=urn:btih:282F9517C42AC55D4A6FBFDA70AB4A59FA3FE407
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Сотка модных хитов 4 (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:2EDC2008570112963754246D68F0725CB8A6E41A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Осенняя позитивная сотка. Выпуск 8 (2016) [MP3|
 ```bash
 magnet:?xt=urn:btih:A62290664A1FA826B052794C880A043317BDC4BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +376,8 @@ VA - Disco 80х: Зарубежный Выпуск В Современной О�
 magnet:?xt=urn:btih:84618B50CAC4922C7B528D24FF99D7DCF423899A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +404,8 @@ VA - Новогодний Супер Сборник (2004) [MP3|256 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:449B17571848B8B3F68B94B93461CCBCCB012705
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +440,8 @@ VA - 100% Русское радио: Все будет хорошо! 16 (2012) [
 magnet:?xt=urn:btih:95ABAC59BA4FE56F71542C282D45DDC542772694
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +475,8 @@ VA - Новейшие Зарубежные Треки (2012) [MP3|256 кб/с]<P
 magnet:?xt=urn:btih:C2ADC51BED7841FDE53E5E4F021E75B32B0E039C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +503,8 @@ Love Radio
 ```bash
 magnet:?xt=urn:btih:8354E58CCE20672101993D079C25370E475D8F60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +539,8 @@ VA - Союз Хитовый - 5 (2012) [MP3|128 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:A381CD61F05A61C1E652BDA5590471F7CC45F613
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +573,8 @@ VA - Топ-лист осенний 6. Лучшие из лучших (2012) [MP
 ```bash
 magnet:?xt=urn:btih:6B879053253E9AF97E52F8E7C08512CF9EBC5E11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +609,8 @@ VA - XXXL Осенний хитовый сезон (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:44F6AB1A494D4F97E14DB80778825D2E1AD8EE6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +637,8 @@ VA - Попсовая соточка от Хит fm 4 (2016) [MP3|256 Kbps] <Pop
 ```bash
 magnet:?xt=urn:btih:527E68AFD8682EEF4B3EFD96A0856E7795594924
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +667,8 @@ VA - The Best Hits of 80s 1 (2005) [MP3|192-224 кб/с]<Pop, Disco, Retro>
 magnet:?xt=urn:btih:7686A2270F0B2F839328E402A802BDA9A234EB99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +695,8 @@ Milli Vanilli - Good Songs (2015) [MP3|256-320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:D86826ED84BCAAD7C64495D4C4FEFF18BA35D16E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +731,8 @@ VA - Европа Плюс Включи Весь Мир! Часть 12 (2012) [M
 magnet:?xt=urn:btih:46E14A74E6EF00E3A6B83EFF5872CC61EB9D1C50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -684,6 +759,8 @@ VA - New Disco Funky Mode (2019) [MP3|320 Kbps] <Disco, Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:8FC68387712B2DA8DD47CE139797DE8437652855
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -712,32 +789,7 @@ VA - Wild Love: Romantic Collection (2018) [MP3|320 Kbps] <Pop, Rock, Blues>
 magnet:?xt=urn:btih:D0937CB8C789E49CC5D5DBE8FEF82BAB547BEC38
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951419   (363472) от 29.10.2015
-
-VA - MTV Ballads (2005) [MP3|192 - 224 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363472.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. E. Lanto - I Can Do It (Watch Me Now)
-002. Al Di Meola & Leonid Agutin - If I'll Get A Chance
-003. Mylene Farmer - Ange, Parle-Moi
-004. Jenifer - C'est De L'or(   Читать дальше...   )Жанр: PopПродолжительность: 06:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C93712CE1F6B025EDCAE9603C3A1E92041C41E9A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

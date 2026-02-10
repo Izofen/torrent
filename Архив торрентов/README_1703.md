@@ -20,6 +20,8 @@ Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-
 magnet:?xt=urn:btih:CE7E08A626392FD68328FC3AD2E3693AE6425ACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ XYplorer – удобный мультивкладочный файловый м
 ```bash
 magnet:?xt=urn:btih:C3823528F9EC21789350404CE85968A7D54AA8AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ MacPilot 13 v13.0.1 [En]
 magnet:?xt=urn:btih:75D9821757EB622F99DDFC3597E3861EEA6809EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ SimpleMind - это инструмент для построения интел�
 ```bash
 magnet:?xt=urn:btih:CC71042F30B2B377157930462E9BD750D930F362
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 magnet:?xt=urn:btih:64B24D2539EEF3D6281D4514011997A67340F74D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Opera Crypto Browser 99.0.4788.13 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AC23664D8CD4365F5A622AEAC88D780621ABE577
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Feeder - это полнофункциональное приложение дл
 magnet:?xt=urn:btih:3F6FC5D4F20B3E77D0D51CC4FF55B8A9563C6863
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Windows and Office Genuine ISO Verifier - компактная утилита д
 magnet:?xt=urn:btih:6A27E0CEDE11F0CD67C5C556A8C183012E940DEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ PhotoRoom - приложение, что будет одинаково поле�
 ```bash
 magnet:?xt=urn:btih:6EF26BB175F64EC8AF43F760DF21EE29F6FF2E1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:6EF26BB175F64EC8AF43F760DF21EE29F6FF2E1B
 magnet:?xt=urn:btih:ABD4D737E9A3146567E26F56C84DF2E717DD5870
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Color Wheel 6.5 [Multi/Rus]
 ```bash
 magnet:?xt=urn:btih:F25FA30F12056F7A96DB0ECD56A0EC2AA78725CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ WinUtilities - набор утилит WinUtilities Professional для наст
 magnet:?xt=urn:btih:E105FDD129FC8F821A94FE8518AE4484A10DF4DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ Dato поддерживает все языковые стандарты и яз
 ```bash
 magnet:?xt=urn:btih:0B50967CA22ABE252271081E9BCC089BE485041E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ simplewall 3.6.7 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:5CCE17E1A75F06FA4E90AE6BF31D13141397AD77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ Macrorit Data Wiper Unlimited Edition – мощная утилита, кото�
 ```bash
 magnet:?xt=urn:btih:4CF21018D93F80EE7436482EFD7766458793819C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ Mellel предлагает специальные инструменты для
 magnet:?xt=urn:btih:FA9153CAD15D4E238D0D3D47727DD8DB8C882F58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ Theine 3.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8598DB9A661D55ABC567D9CA2B28EB711B387B03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ FastStone Capture представляет собой довольно мощн�
 magnet:?xt=urn:btih:CF5ACB37602EFC27D0B47E6A76D2BDF4750C5720
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Dash - очень удобное приложение, включающее в �
 ```bash
 magnet:?xt=urn:btih:C6D2A3B925C28E4D07A545FEF1A0E0B861962D49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ BusyContacts приносит в управление контактами те 
 magnet:?xt=urn:btih:A45B09086BDCD8BF479394B3BA11C5CBE64CB826
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ CADintosh позволяет ускорить проектные работы и
 ```bash
 magnet:?xt=urn:btih:304902DBB933B4FDB023119E47906CC98BFEF00B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ SUXOV v2.2.1 [Ru/Multi]
 magnet:?xt=urn:btih:0775287AC530CB084C159A62B86B2A67F7808FB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Deliver Express - это автоматическое решение для бы
 ```bash
 magnet:?xt=urn:btih:4E32ABED9E9AAE48D330340147904A3B809E1B2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ Easy New File - это расширение для поиска, которое 
 magnet:?xt=urn:btih:452E918B574C5410F5B8465CB3BE753B1B444805
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Aspect Ratio X - калькулятор для расчёта соотношен
 magnet:?xt=urn:btih:48F6A1A1D19C475A748336BBC5C402E5223B4F4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Android ToolKit - предоставляет вам полное решение 
 ```bash
 magnet:?xt=urn:btih:F04B6F83E3348217AB981584A62865B293221ABA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

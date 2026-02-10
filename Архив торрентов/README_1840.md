@@ -21,6 +21,8 @@ PageEdit изначально разрабатывался как замена �
 magnet:?xt=urn:btih:5F167AC1EA77773090F419CC62B76760033A0EE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Sigil — программа представляет собой мощный р
 ```bash
 magnet:?xt=urn:btih:A01EA45231D3BEC4EBAA22653F8051F51A18ED6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Nik Collection by DxO – это наиболее полная коллекци�
 magnet:?xt=urn:btih:66F3E301EBEC5B6909245599D2629E8F7834627A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:2CCEF2AED1B5D73554601E3E5A2B582D72AA44DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Movavi Picverse – фоторедактор для Mac. Программа вк
 magnet:?xt=urn:btih:97735491D7FF5E2B494582C5E9F13168B39A4336
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Comodo Dragon - быстрый универсальный браузер на б
 ```bash
 magnet:?xt=urn:btih:FB236FA7399B0662A48FB5F29CDDE36ED6029CC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ SoftPerfect RAM Disk - программа для создания виртуал
 magnet:?xt=urn:btih:F7FB108668924D7910A43EF40F16484FFBBFA9D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ HitPaw Video Converter позволяет пользователям редак�
 ```bash
 magnet:?xt=urn:btih:47B4F0F65CBF71A954747319FCF003BB82BB9DAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ BurnAware Free - бесплатная и простая в использова�
 magnet:?xt=urn:btih:88F75A53F714A391347EEACF60392A9093A77339
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Marmoset Toolbag 4.03 (4036) [En]
 ```bash
 magnet:?xt=urn:btih:92A114342B341D16CEF2DBF6AC9A52FA66FF2552
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Sumatra PDF — мощная, небольшая программа с прос�
 magnet:?xt=urn:btih:64E3021B6A8AE86FEB3529819844FA8338B1875A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Luxion KeyShot Pro представляет собой средство инте
 magnet:?xt=urn:btih:713F5E5CBAAEB4ACFFD389D2B8BECC54786E0332
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ AOMEI Backupper – программа для создания резервно�
 ```bash
 magnet:?xt=urn:btih:E4836BD4CF39F2FDE3FFA3C68BD443D01A1BC67D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ PhotoLine - простая в обращении программа, предс�
 magnet:?xt=urn:btih:519F36514693DAAC424B26E5D6A90343838B5AE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Files Inspector Pro 3.21 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:43786238ABEF61D0F0A3B76D5D637E651FBDACD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ R-Drive Image — является эффективной утилитой дл�
 magnet:?xt=urn:btih:F77FB62EAF159C3A4AA7F8F9CF67462FF22E0DC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:CE9BBF660FCC25F834581A8ACD8DAC9BCAEB4658
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:CE9BBF660FCC25F834581A8ACD8DAC9BCAEB4658
 magnet:?xt=urn:btih:A077EF506AC6428A6EC17E7332D5D1C26AAB5C6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Ultimaker Cura - популярный слайсер для 3d-печати. О�
 ```bash
 magnet:?xt=urn:btih:A7CDD15B5086C6E3C07DC682F433F7664988115A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:1476E87F564B175B9772B0313D52A1089DDA7BC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 magnet:?xt=urn:btih:2C12D3FF5036CC6AAD781C1DAF934FC3A372B586
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ zCommander - мощный, быстрый, функциональный, с уд
 ```bash
 magnet:?xt=urn:btih:46179D771A3547FFF5CE6DF9F918A652B66C8567
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ BELOFF [dp] 2022.03.2
 magnet:?xt=urn:btih:9E3FFDE24AD9E49001FDF357798BC4B2578A564B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Office Tool Plus - функциональная программа для раб
 ```bash
 magnet:?xt=urn:btih:E5ED973E49566DE5E052683C7EB7C41B5530684C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 magnet:?xt=urn:btih:95A99BF2BEA6CF3924C3BF6BAA2825B48DF66A9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:5C6EE903151CB643C6C18829F4E68F712EF9F62E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

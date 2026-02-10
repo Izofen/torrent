@@ -22,6 +22,8 @@ Helloween - Compilation (1985-2025) [MP3|320 Kbps] <Power metal, Speed metal>
 magnet:?xt=urn:btih:EFDD5F9B6A27563FC9FDCDC83234BABC14A48972
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:EFDD5F9B6A27563FC9FDCDC83234BABC14A48972
 ```bash
 magnet:?xt=urn:btih:F5639BB368FA642C6A45B67A708DDE04073BEB71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:F5639BB368FA642C6A45B67A708DDE04073BEB71
 magnet:?xt=urn:btih:7E878EE8C6E3A640840E77FC56906780A80B10A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:7E878EE8C6E3A640840E77FC56906780A80B10A2
 ```bash
 magnet:?xt=urn:btih:06F158B1D20F58D5904F769A5D125E9074B01273
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:06F158B1D20F58D5904F769A5D125E9074B01273
 magnet:?xt=urn:btih:9913B28EC01D3384F286A78C2623148E2E141BE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:9913B28EC01D3384F286A78C2623148E2E141BE1
 ```bash
 magnet:?xt=urn:btih:09017B05D02E11890C28B871CE423C5CD45AF538
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:09017B05D02E11890C28B871CE423C5CD45AF538
 magnet:?xt=urn:btih:D50CC0DE04302FE75A690D21D3DF1A330DE324AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Farming Simulator 25 – это увлекательное приключени�
 ```bash
 magnet:?xt=urn:btih:8DA4931B3D0B8F08DD0F262200F5CB9E44E0519C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:8DA4931B3D0B8F08DD0F262200F5CB9E44E0519C
 magnet:?xt=urn:btih:7BA99CFD4EB0AF18AC3E0AC1DF3D3DD925C2D919
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:7BA99CFD4EB0AF18AC3E0AC1DF3D3DD925C2D919
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:7BA99CFD4EB0AF18AC3E0AC1DF3D3DD925C2D919
 magnet:?xt=urn:btih:4488F448E6D252A157379EF455812E5C6D160041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:4488F448E6D252A157379EF455812E5C6D160041
 magnet:?xt=urn:btih:B2B0FC83418111A7F0DD1B16E364221C79883DB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:B2B0FC83418111A7F0DD1B16E364221C79883DB2
 ```bash
 magnet:?xt=urn:btih:A94CC520FFB5940C0D3EEA009897249D7E9156AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Infostart, Владимир Лушников | Новое в 1С: Докумен
 magnet:?xt=urn:btih:827ACBBCFCBC25A5039E1369E38DDBD44824D7B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Gems of War - логическая головоломка в жанре три �
 ```bash
 magnet:?xt=urn:btih:B37D48FA902EFE91722EEC12B6BDAEF56C2F8357
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.4) Repack Let'sРlay
 magnet:?xt=urn:btih:A1A2F98D53B1DA7CFA3995DDFBA0B6B25A61B929
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:A1A2F98D53B1DA7CFA3995DDFBA0B6B25A61B929
 ```bash
 magnet:?xt=urn:btih:E7EB2A4D906327EDA5FD7F77E19538B2757BF54E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:E7EB2A4D906327EDA5FD7F77E19538B2757BF54E
 magnet:?xt=urn:btih:530375F78AC2871ACB252EC665204C03654FC781
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.15.1.0/dlc) Repack Let'sРlay [Backstage
 ```bash
 magnet:?xt=urn:btih:152F51B1A52C50D7FDAA733B88951613FD0C9FF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ No Man's Sky (2016) [Ru/Multi] (6.02/dlc) Repack dixen18
 magnet:?xt=urn:btih:DCE87AEA371F8F549F56BEB049E477A2E3412C8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Cronos: The New Dawn - это новое слово в жанре survival horro
 ```bash
 magnet:?xt=urn:btih:A468F8BA0348F258BA6A459010EB4EFA3972B564
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:A468F8BA0348F258BA6A459010EB4EFA3972B564
 magnet:?xt=urn:btih:5B0AE312C2E71B5B13F0B6139B88AD56F9C66BEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:5B0AE312C2E71B5B13F0B6139B88AD56F9C66BEC
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ VA - 50 лучших хитов, Часть 5 (2025) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:3C57E2DDBC81EA1109697794A93602566773FD96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ VA - Новые хитовые песни 2025, Часть 9 (2025) [FLAC|Lossle
 magnet:?xt=urn:btih:8E71BEB91BC97AAB969DC49DBC9A6DBC96DE7F7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ VA - 50 лучших хитов, Часть 4 (2025) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:4CDDF069A129EEE686F3F7DEFAA08A6D2081C907
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

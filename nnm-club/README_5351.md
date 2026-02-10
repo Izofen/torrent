@@ -19,6 +19,8 @@ Stats - это приложение с открытым исходным код�
 magnet:?xt=urn:btih:8C92C82D982D8A8744471B4619771D2E7F9A4A9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:8C92C82D982D8A8744471B4619771D2E7F9A4A9C
 ```bash
 magnet:?xt=urn:btih:1DEF71CAFF70A388E59860DAC95B843847E3807A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ PaintCode 3 v3.5.1 [En]
 magnet:?xt=urn:btih:B5A604E86787967F5D953BD097D356A87190E8A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Lanark Artefax - Live - No Bounds Festival 2019 (2019) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:023A877284D6982F3D4214C9FD736A4599C5516D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Noir — это расширение для Safari, которое автома�
 magnet:?xt=urn:btih:51AB48D05403F51E90869044E900D7816B2D68E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:51AB48D05403F51E90869044E900D7816B2D68E9
 ```bash
 magnet:?xt=urn:btih:1489184746D9CAC866D5FFFA8C2B32327816206E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Galactic Civilizations III (2015) [Ru] (4.01.1/dlc) Repack xatab
 magnet:?xt=urn:btih:8630A9FCB217FA617AB36177AFF925D13AB70DBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:8630A9FCB217FA617AB36177AFF925D13AB70DBC
 ```bash
 magnet:?xt=urn:btih:1A420F7782CC9BB0E18545FBE2FC6007B5354460
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Office 2013-2021 C2R Install + Lite 7.5.0.1 ++ Portable by Ratiborus [Multi/Ru]
 magnet:?xt=urn:btih:3E8AF82F96F39588BE89A112C2D8C9FC72E09AF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ GoodNotes 5 v5.7.54 [Multi/Ru]
 magnet:?xt=urn:btih:F8BA1704D4494CFE4D4DF256024F9FF5875F1425
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Magic Disk Cleaner находит и удаляет временные файл�
 magnet:?xt=urn:btih:5CD36CB4C775DDE823AA7DA097EA42099BC456FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Devil May Cry 5 (2019) [Ru/Multi] (1.0.5962864/dlc) Repack Other s [Deluxe Editi
 ```bash
 magnet:?xt=urn:btih:EA15E06F789056CB7E6FA79F196CBC828CC26397
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Hostbuddy это самый простой способ для управлен�
 ```bash
 magnet:?xt=urn:btih:9347282A3F71B8E17DF335D5B9B4C609B8A9CE24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ Aeonian Sorrow - Into the Eternity a Moment We Are (2018) [FLAC|Lossless|image +
 magnet:?xt=urn:btih:BBFF390C924917F15ECCBB50D14E2E896BB2F37A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ Benko Dixieland Band - A Jazz Szuletesetol Napjainkig (2002) Bencolor [FLAC|Loss
 magnet:?xt=urn:btih:24A023AD6106028C06C3441CFCC6E19037CA5F42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:24A023AD6106028C06C3441CFCC6E19037CA5F42
 magnet:?xt=urn:btih:5D24141E526629969DD7A1E397D45A9FC92DAE8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:5D24141E526629969DD7A1E397D45A9FC92DAE8B
 ```bash
 magnet:?xt=urn:btih:B70A79A03A9A1F2A960E7677179583E14748D5A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ FastScripts - Утилита для быстрого запуска AppleScript-
 magnet:?xt=urn:btih:1278CAF884E3A2E1CDFA055D291111B4825C15E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:1278CAF884E3A2E1CDFA055D291111B4825C15E2
 ```bash
 magnet:?xt=urn:btih:10E94A580F6C1A5472F7909D8EFB2F3DDEC8D265
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ Yojo - Yojo (2013) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Post Rock, Psychede
 magnet:?xt=urn:btih:2702A1D1F9517965EB6A801B661D04D0253392D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ magnet:?xt=urn:btih:2702A1D1F9517965EB6A801B661D04D0253392D4
 ```bash
 magnet:?xt=urn:btih:51D2A68B8B91967AF562C0015F09BBA664A12853
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ The Gnomon Workshop, Luis Carrasco | 3D Creature Design in ZBrush, Keyshot and P
 magnet:?xt=urn:btih:9BE84C2B25A5DF1D8FFA449E083721D716BFE9A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ Klokki - это отслеживание времени на основе пра
 ```bash
 magnet:?xt=urn:btih:E1BDB5812653858893369808C36F3D6D84541304
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ Edenbridge - MyEarthDream (2008) [FLAC|Lossless|image + .cue] <Symphonic Power M
 magnet:?xt=urn:btih:3268C05062D3269815C19898B2CB409B9628FBE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:3268C05062D3269815C19898B2CB409B9628FBE8
 magnet:?xt=urn:btih:C824E19D8023C14C760F9A5730828D0337CF4D97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ Cocktail - комплекс утилит по всестороннему обс�
 ```bash
 magnet:?xt=urn:btih:2BB61FF0C412A51C1D3128BE7FB2587C754F1473
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

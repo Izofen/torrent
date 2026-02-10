@@ -22,6 +22,8 @@ VA - Bangin' Future House, Vol. 1 (2018) [MP3|320 Kbps] <House, Progressive Hous
 magnet:?xt=urn:btih:8412FEF75AF430FDBC61372956DE03100E8963D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Robbie van Doe - 16 Singles, 11 Remixes, 1 Tracks (2007 - 2016) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:279E2C613B253043DC6C4E25CF8DFE417AFB9D60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Malk & StarJam - Elements (2016) [MP3|320 кб/с] <Electronic, Deep Dubstep>
 magnet:?xt=urn:btih:881492AF5FFE3E0F6915030C8F9206AACEC1DAF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Infected Mushroom - More than Just a Name (2020) [MP3|320 Kbps] <Psy-Trance, Dub
 ```bash
 magnet:?xt=urn:btih:DC3E0BFFA6E6ABFC06E6190E01870B9C8C97FCE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Red Velvet Erotic Lounge (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chill Ou
 magnet:?xt=urn:btih:2ACE67D463416B0F8A6E1BA547D1330E16C4E604
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Vocal Chillout 2017. Chill Out Songs  [MP3|320 Kbps] <Downtempo, Chillout, 
 ```bash
 magnet:?xt=urn:btih:D0A656A830367F0CF40D3DC905FA7E2281D1AC18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Ibiza Soundset 2017: Beach Lounge and Chill Out  [MP3|320 Kbps] <Downtempo,
 magnet:?xt=urn:btih:F21CA4CF05325DFD8FD0AA11535E985383ABE671
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Universal Language Lounge Anthems Vol.1 (2017) [MP3|320 Kbps] <Downtempo, L
 ```bash
 magnet:?xt=urn:btih:0ACE5EE109AB023F149EA5C6343B3EAAC6F1123D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - KID Recordings presents: Compilations Collection - 6 Releases (2016-2019) [
 magnet:?xt=urn:btih:B3B92620AD8B97EA45168E4B102F1F3B073EA425
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Jazz Lounge Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
 ```bash
 magnet:?xt=urn:btih:86001B52B71FDF61ECCBDEB6CBA3E469B2812E13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Smoking Lounge: Luxury Chill-Out & Lounge Tunes Vol.7 (2017) [MP3|320 Kbps]
 magnet:?xt=urn:btih:2CE2852394BDB89544380CBEB0DC8FB9BF26A95F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Midnight Lounge Vol.25 Allure (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chi
 ```bash
 magnet:?xt=urn:btih:C8D326575ACA37731A6C868CF93F47542665A4CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Krewella - zer0 (2020) [FLAC|Lossless|WEB-DL|tracks] <Dance, Electronic>
 magnet:?xt=urn:btih:33DC624602526E103624A83770F60491903B6FCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Heogen - Odd Radio Circle (2021) Touched Music [FLAC|Lossless|WEB-DL|tracks] <ID
 ```bash
 magnet:?xt=urn:btih:5DC076ED13EAA9B777735D8A39EEEF4052DD6C82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Astrix - He.Art (2016) [MP3|320 кб/с] <Psy-Trance, Full On>
 magnet:?xt=urn:btih:334A9F0980CFA27AEEC62378E28B2A3B27A31731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Klubb House 2006 (2006) [FLAC|Lossless|tracks + .cue] <House>
 ```bash
 magnet:?xt=urn:btih:72871E309313454A596EC5CA6E56A15924FA0028
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Cafe Chillout Lounge del Mar (2017) [MP3|320 Kbps] <Chillout, Lounge, Downt
 magnet:?xt=urn:btih:C705B657D2C821249731245D0CC2CC99BCFFB978
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ Scann-Tec | Broadcast Of Variants | Rotozey - 7 Releases (2010-2019) Celestial D
 ```bash
 magnet:?xt=urn:btih:36D501C2ADEE9783974BA464BF3B22D306FBC130
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ Kettel - Discography 27 Releases (2001-2020) [FLAC|Lossless|tracks+.cue, tracks]
 magnet:?xt=urn:btih:1B7D2ED721AC7D921F4732C7BC46DF3BB58E4D4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ VA - Lovers Lounge: Chillout Your Mind (2017) [MP3|320 Kbps] <Chillout, Lounge, 
 ```bash
 magnet:?xt=urn:btih:CAE3A1E0FF0673FE5AA5FB9495CB22B4207EFD01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +599,8 @@ Schiller - Die Einlassmusik 10 (2013) [FLAC|Lossless]<Ambient, Chillout>
 magnet:?xt=urn:btih:4CC4A084746FDA6EB56EC0D8E59800C95DC12897
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +624,8 @@ Minor Rain - Discography 29 Releases (2012-2021) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:7F3DF0E95E74B35114BEB0C01FCC8AFFE639D692
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +654,8 @@ Glåsbird (Glasbird) - Discography 8 Releases (2018-2021) Whitelabrecs [FLAC|Los
 magnet:?xt=urn:btih:D1073F7572F22E63389985FFAE5970DCD436BB9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +679,8 @@ Soap&Skin - Discography 20 Releases (2008-2020) [PIAS] Recordings [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:49028D425DFAF76CAAA0A19F3CD6306336BADBC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +709,8 @@ Christian Loffler - Lys (2020) [FLAC 2.0|96/24|tracks|WEB-DL] <Electronic, Tech 
 magnet:?xt=urn:btih:2870011C560B36AD035035C5D92B9FAA406F7694
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -687,6 +737,8 @@ VA - Tea Time Lounge: Chillout Your Mind (2017) [MP3|320 Kbps] <Chillout, Lounge
 ```bash
 magnet:?xt=urn:btih:F2D862D7384508CF7F364FB4FDD2B66AF2625628
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

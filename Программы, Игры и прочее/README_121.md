@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:2E3815C87DBF4FF6D0AD6A1D1871BAA360DF8EF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:2E3815C87DBF4FF6D0AD6A1D1871BAA360DF8EF3
 ```bash
 magnet:?xt=urn:btih:9E903EDB73C69C3BBB69BFF69F033C9832C28183
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ HERE WeGo v2.0.11424.114741 [Multi]
 magnet:?xt=urn:btih:D490DE2C174940DF9D3730ADC32945805E3F9825
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ DuckTales: Remastered / Утиные истории 1.0.2 + Mod [Money] [Ru]
 magnet:?xt=urn:btih:91B608C811AAC7687C5418965CC914D568B4DE50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:91B608C811AAC7687C5418965CC914D568B4DE50
 ```bash
 magnet:?xt=urn:btih:67F388A62D29C1624186FF6583E63AA8AA258905
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Chicken Invaders ставит вас на передней край битвы �
 magnet:?xt=urn:btih:8A69884E03EB1D1F4E5952B73DF27CCA2D198E44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Mobi Калькулятор PRO приложение, которое будет 
 magnet:?xt=urn:btih:D99AE79D38CCB65CF0D50DBADD28097FD40D1698
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Mobi Калькулятор PRO приложение, которое будет 
 ```bash
 magnet:?xt=urn:btih:7451792F2ED556877E0C4897F84D09A5F8A6FE77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ AndroiTS Compass Pro 1.01 - Компас (2012) <En>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ HTC Sync 3.2.20 - синхронизация для HTC Android-устройст
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ Deezer v6.2.48.37 [Ru] - музыка, плейлисты и подкасты (�
 ```bash
 magnet:?xt=urn:btih:D44A68A7D1D1C5046735A49FE72D9D51047D7427
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ TIDAL Music v2.56.0 [En] (обновляемая)
 magnet:?xt=urn:btih:0AC03C16E1FEF13E3CD70F07F3C83EC2A9E3A69A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ CalcKit это калькулятор Все-в-одном, о котором в
 ```bash
 magnet:?xt=urn:btih:606441A2D6FA0BE790803C003AF514B66784D420
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:606441A2D6FA0BE790803C003AF514B66784D420
 magnet:?xt=urn:btih:CF36D716B2B1C10EF4C72E521A7BBF435CAEA0FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ Microsoft Outlook 2.1.209 [Ru]
 magnet:?xt=urn:btih:0782681F6F77C410815F68BDEE899118932AD805
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ Smart Compass Pro 2.6.5 [Ru]
 ```bash
 magnet:?xt=urn:btih:BAF1D02FEB6B591F017B0E1619D4652819AFA837
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ Any Balance v3.9.808 [Ru/En] - баланс телефона на экране
 magnet:?xt=urn:btih:4003E5C02ECF505A3AAA89DEC2FBC30552A9F019
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ Knights of Pen & Paper 2 v2.5.30 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:670F94C28D71CA498B9A949AC3565315D68E4E52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:670F94C28D71CA498B9A949AC3565315D68E4E52
 magnet:?xt=urn:btih:60C06D7D732E6DECD03B96E4AF9551AF07AC7DD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:60C06D7D732E6DECD03B96E4AF9551AF07AC7DD4
 ```bash
 magnet:?xt=urn:btih:7E84FF813D92909EABD2FD1E4A3DC652824D8C76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:7E84FF813D92909EABD2FD1E4A3DC652824D8C76
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ Holiday Gift объединяет в себе потрясающую физик�
 magnet:?xt=urn:btih:1722B454F87A3B4792C191739D2DDBD4F0AEC5E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ VK Music Player - неофициальное приложение для про�
 ```bash
 magnet:?xt=urn:btih:1527A48710529C858CC9AEABC2373B8979A4BB36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:1527A48710529C858CC9AEABC2373B8979A4BB36
 magnet:?xt=urn:btih:F128E1D8DF0F56215E92E0C71841484B9F0D2309
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ GTA: Chinatown Wars 1.01 [En]
 magnet:?xt=urn:btih:9D498BE6457381119C2C865BEBA10CA9A8384E32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ Stupid Zombies 3 - продолжение интересного проекта 
 ```bash
 magnet:?xt=urn:btih:34761E2EED398AE27631E55505C1B0F6623F368E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

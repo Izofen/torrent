@@ -20,6 +20,8 @@ Mirage: Ignis Fatuus - изометрическая головоломка с э
 magnet:?xt=urn:btih:9BCF4F06B5D44E0CE989EF6C8D75B425093207E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ The Alters (2025) [Ru/Multi] (550832/dlc) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:3EE5BF83E8E39C2D00E423546EE0E6856624FB89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ SOMA - научно-фантастический хоррор от Frictional Ga
 magnet:?xt=urn:btih:785FFBE1D772E6931C8092855053138E4888335F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ One Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19955863
 ```bash
 magnet:?xt=urn:btih:3228CF829D66A60B99DAD2A862515147CB799411
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Monolith (2023) [Ru/Multi] (1.1.7.001) Repack Other s
 magnet:?xt=urn:btih:1F9A6ADB647489D973B1587CDC802E1BEECE3423
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ The Mystery of Woolley Mountain - это потусторонняя приклю
 ```bash
 magnet:?xt=urn:btih:5AD04D8838F69734894FC9D7EF5B89A0411232FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Revenge of the Savage Planet - это оптимистичный, сатирич
 magnet:?xt=urn:btih:AEFC2F63D40E9DB3625CAFCD8B2AC052AD6B7DB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (738144) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B2F0B8D68D5CD1106D94229C5B28C82C6636B9A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Daymare Town - это рисованная от руки приключенче�
 magnet:?xt=urn:btih:804C197950C4A5EE4295073289C833F99CAE1B70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Static Dread: The Lighthouse - это игра в жанре хоррор, гд�
 ```bash
 magnet:?xt=urn:btih:2B389637A0612D8A57D53C83B4E257BF2CD83988
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Chants of Sennaar (2023) [Ru/Multi] (1.0.0.9) Scene Tenoke
 magnet:?xt=urn:btih:D98B4B2CA309367360C1C5993FE4D5A33D1F3ACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack dixen1
 ```bash
 magnet:?xt=urn:btih:6BC2CFC0921D6F29C5478677B2826D808F7C5ADF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.10.0/dlc) Repack Wante
 magnet:?xt=urn:btih:7A0976676064DB267EB66E7375715B35DB6A157C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ The Plucky Squire - это очаровательная экшен-адвенч�
 ```bash
 magnet:?xt=urn:btih:D4C652D975A8D1BE3A8A7B8B9E4E5E67055D9859
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ The Witch's Cauldron - это мрачная история, в которой �
 magnet:?xt=urn:btih:78F85A66E7241DBEB6088C3790D00A6E870B22BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Five Nights at Freddy's: Secret of the Mimic - это игра в жанре sur
 ```bash
 magnet:?xt=urn:btih:3DE010C6911D8E44167B10A5EFBD85178D7D01AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Elroy and the Aliens (2025) [Multi] (1.1.3) License GOG
 magnet:?xt=urn:btih:C98B1DC6B9B343D95A8D26A1E9F2E00FA7F35292
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Monster Prom (2018) [Multi] (8.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:C7C5BB89AD8209063707C56264A02A3AD3C1BA2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Cubic Odyssey (2025) [Ru/Multi] (1.0.3.4) Repack Let'sРlay
 magnet:?xt=urn:btih:ACCBD9B0B85640529F7458FECDA0A2D1C70E4516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (Build 889.22 Online 1.71) Repack 
 ```bash
 magnet:?xt=urn:btih:27B3053FFB894BBDD8F7328E1C86491641C46433
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ The Midnight Walk (2025) [Ru/Multi] (Build 18854438) Repack Let'sРlay [VR]
 magnet:?xt=urn:btih:B2FD5F8C95056FE3EACD81518A5CA501DDF9BF1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ The Alters - амбициозная научно-фантастическая и
 ```bash
 magnet:?xt=urn:btih:CE9A902A18EFFD558F8C9F95627F4F0CC89E931A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ The Procession to Calvary – приключение, выполненное в 
 magnet:?xt=urn:btih:82258896EEBC691A781BD6BB4421FD20F7EB784E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Technobabylon (2015) [En] (3.6) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:8B5120041613D2892EFFA1DBF9CA3C1CB020C276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ The Blackwell Unbound (2007) [En] (4.5) License GOG
 magnet:?xt=urn:btih:C2A7378ABE23C3DA15BD1F652A6EC86FCB0D41B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0 Build 19682311/dlc
 ```bash
 magnet:?xt=urn:btih:96F95A764280A31B0840BED765A2C957A40E232E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

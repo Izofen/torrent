@@ -19,6 +19,8 @@ National Geographic. Подземный мир майя: настоящий ко
 magnet:?xt=urn:btih:105A050AA6E52A2A285BF486B886F53007946E9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:105A050AA6E52A2A285BF486B886F53007946E9A
 ```bash
 magnet:?xt=urn:btih:F237C7E2A53B173E5C02DBB960469272E969F946
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:F237C7E2A53B173E5C02DBB960469272E969F946
 magnet:?xt=urn:btih:7EE7DD3997F3F7BF8E60AB6EC7B5C3B82155617E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:7EE7DD3997F3F7BF8E60AB6EC7B5C3B82155617E
 ```bash
 magnet:?xt=urn:btih:2378AB720E3A45372F67D0FE00DD15D31FB84E66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:2378AB720E3A45372F67D0FE00DD15D31FB84E66
 magnet:?xt=urn:btih:D545F39FA3AACEE9BD2D11E646543B99A7F88CC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:D545F39FA3AACEE9BD2D11E646543B99A7F88CC2
 ```bash
 magnet:?xt=urn:btih:A51FBB1D83F3A07733A691FB76B20E8E039AE638
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:A51FBB1D83F3A07733A691FB76B20E8E039AE638
 magnet:?xt=urn:btih:2FC889965B1BB0223354444EAA78ED9EF8C21F62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ BBC: Французские сады с Монти Доном / Monty Don's Fren
 ```bash
 magnet:?xt=urn:btih:E1CB5053BA50D7815B45D3DD6CCF47BDC39292EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Discovery: На дне океана / Expedition Deep Ocean (2021) WEBRip [H.264
 magnet:?xt=urn:btih:9F62C33E6CD7C7FF91132F7900F15117704E42C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Discovery. Опасная работа / Hard to Kill (2018) HDTVRip [H.264/720p
 ```bash
 magnet:?xt=urn:btih:DE643F4E11948F1A735C721B8FF220687072C43B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:DE643F4E11948F1A735C721B8FF220687072C43B
 magnet:?xt=urn:btih:C169FF1CBDF245A869C425141E459FF472E7B04A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ History Channel: Тайны египетских пирамид / Lost Secrets o
 ```bash
 magnet:?xt=urn:btih:EB3A662A505EB5C6196A58BFB670C0298FE76817
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Discovery: Нострадамус / Nostradamus (2006) IPTVRip [H.264]
 magnet:?xt=urn:btih:17EC1C09FEFEDBF7D19A6B88D4385D70488A6AC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:17EC1C09FEFEDBF7D19A6B88D4385D70488A6AC7
 magnet:?xt=urn:btih:5B8464922C09324669110C9D59CD48F7463EA97B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:5B8464922C09324669110C9D59CD48F7463EA97B
 ```bash
 magnet:?xt=urn:btih:5DAF9B72AEA9026006EFE16B742054F1C6A24854
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:5DAF9B72AEA9026006EFE16B742054F1C6A24854
 magnet:?xt=urn:btih:6FC8FFE6A51FB71E083D0508395D221862E1F22D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ BBC: Итальянские сады с Монти Доном / Monty Don’s It
 ```bash
 magnet:?xt=urn:btih:BC905CC2C28EA9EF5B71BEC2D6C6B34BBACB6C8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ BBC. Искусство Франции / Art Of France (2017) DVB (серии 3 
 magnet:?xt=urn:btih:B5D9E12D066CEAADAAF97AFC1B743EBA2FB446AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Discovery: Секс у тираннозавров / Tyrannosaurus sex (2010) HDT
 magnet:?xt=urn:btih:88F0381B53DCDF0FB3B141D377C05773631F8975
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ PBS. Первые цивилизации / First Civilizations (2018) HDTVRip (1
 ```bash
 magnet:?xt=urn:btih:AD6AD97441FE95E41F48AEB9E9D501BC76E31404
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:AD6AD97441FE95E41F48AEB9E9D501BC76E31404
 magnet:?xt=urn:btih:755F3A2D4BADF5121A6F747D71F6C6AE95D42F7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Discovery: Почему? Вопросы мироздания. Как дейст�
 ```bash
 magnet:?xt=urn:btih:718CD96C89457655919B35ABAFF10C66B594B68E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ PBS. Первые цивилизации / First Civilizations (2018) HDTVRip [H
 magnet:?xt=urn:btih:A6899FB923C56E9D8BE4B1739AF099CBA9590408
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Animal Planet: Удивительный мир животных (часть 2) /
 ```bash
 magnet:?xt=urn:btih:58EEAC668A28E88D1849A919545E79C1C92E297A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ NG: Служба безопасности аэропорта: Первый кл�
 magnet:?xt=urn:btih:77A3FC72F31C73BB022E437ED04D120E4F89BD4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:77A3FC72F31C73BB022E437ED04D120E4F89BD4F
 ```bash
 magnet:?xt=urn:btih:F4285B2B48A0D8B833382EB5014CE345AD55B1BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

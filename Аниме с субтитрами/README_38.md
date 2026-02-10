@@ -19,6 +19,8 @@ Fuyu ni Saku, Kiseki no Sakura / One Piece Movie 9 - Episode of Chopper Plus / �
 magnet:?xt=urn:btih:2239A88808D59CE747EEBC7C574AD06F869A798E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ One Piece Movie 2 - Nejimaki Tou no Daibouken / Ван-Пис: Фильм вто
 magnet:?xt=urn:btih:F4C3E4AB99FE4F6A961B6DE487E018088D09B9FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ One Piece Movie 4 - Dead end no Bouken / One Piece: Dead End / Ван-Пис: Ф
 ```bash
 magnet:?xt=urn:btih:76FDB78B95A0F4FD957E4B2F017A04E9B43EC914
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ maeve2 | пользователь № 20381 | 2008.03.15
 magnet:?xt=urn:btih:CBA9ADE5C36AD0676128D4DBBED1FD63172DE12E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Luffy и компании попадают на остров животных, �
 magnet:?xt=urn:btih:B2F3133B9CC3C8464A0DAB2FABC9189DA1660A43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Yatogame-chan Kansatsu Nikki Yonsatsume | Заметки Ятогамэ [ТВ-4]
 ```bash
 magnet:?xt=urn:btih:9AC91A76C52F799B8107E1C48BFB00017BDE247B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ Koukyoushihen: Eureka Seven - Hi-Evolution | Эврика Семь: Высока
 magnet:?xt=urn:btih:689B8B2423FF06104BAC4B97B1502033F28893D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Mahou Tsukai no Yome: Nishi no Shounen to Seiran no Kishi | Невеста ча�
 ```bash
 magnet:?xt=urn:btih:DCF7CA8F7F43CF4513EBF25FDA03B2C9BC3F5169
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ Boku ga Aishita Subete no Kimi e | To Every You I've Loved Before | Для ка�
 magnet:?xt=urn:btih:1C9F7326645609E0369E28359E41C510E440853C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ Kimi o Aishita Hitori no Boku e | To Me, The One Who Loved You | Единств�
 magnet:?xt=urn:btih:98781E847E928DDE573796A7D4FD584454AC0090
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ Saikin Yatotta Maid ga Ayashii | The Maid I Hired Recently Is Mysterious | Мо�
 magnet:?xt=urn:btih:3DD39CB55D80FC48CAB51B3386D66BADB29C93EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ Renai Flops | Love Flops | Любовные неудачи [2022, TV, 12 эп.] 
 ```bash
 magnet:?xt=urn:btih:6942CFBC71493D3D3C9B415B9B560AD532B33DB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ Fuufu Ijou, Koibito Miman. | More Than a Married Couple, But Not Lovers | Бол
 magnet:?xt=urn:btih:ED2CAF04E4B6A1ACD63EE966ABD2B59097B08ECF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ Uzaki-chan wa Asobitai! Double | Uzaki-chan Wants to Hang Out! W | Узаки х
 magnet:?xt=urn:btih:0BE859A927AFF1EB53B397A2B61B3DB60D340F3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ Estab-Life: Great Escape | Утверждение в жизни [2022, TV, 12 э
 magnet:?xt=urn:btih:2DCD090C4ED9121E1AA2D1B398344D4C31AD671A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ Bai Yao Pu 3 | Manual of Hundred Demons 3 | Руководство сотен д
 ```bash
 magnet:?xt=urn:btih:54130E48920119B851FCDC9F4AB351A0DE12A4EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ Senkaiden Houshin Engi | Soul Hunter | Охотник за душами [ТВ-1]
 magnet:?xt=urn:btih:8A87CB8BA49668AA9E30CA9CC5D12D0C881B749D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ Sidonia no Kishi: Ai Tsumugu Hoshi | Knights of Sidonia: Love Woven in the Stars
 ```bash
 magnet:?xt=urn:btih:B2B2D58293B2841B8F89967C50F83A8C5048EBDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ Masou Gakuen HxH | Hybrid x Heart Magias Academy Ataraxia | Магическая
 magnet:?xt=urn:btih:6F687D437981590716FC178C4392FA22BB8CC228
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ Gekijouban Jujutsu Kaisen 0 | Магическая битва (фильм) [2021
 ```bash
 magnet:?xt=urn:btih:3901629BFFDABDBF3436081BD1D0020F2E060B86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ Kumichou Musume to Sewagakari | The Yakuza's Guide to Babysitting | Дочка �
 magnet:?xt=urn:btih:3A5859A9C6EDF46FFE0AEE08C72B659E819F39B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ RWBY: Hyousetsu Teikoku | RWBY: Ice Queendom | RWBY: Ледяная импери
 ```bash
 magnet:?xt=urn:btih:CE25524CB4CA9139E210DB5F41CBA3BA2C670D70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ Azur Lane: Bisoku Zenshin! | Azur Lane: Slow Ahead! | Лазурный путь:
 magnet:?xt=urn:btih:4640292033AE9DCE2BE3DDD5317751E78D8CBFA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ Thermae Romae Novae | Новые римские бани [2022, Web, 11 эп.] W
 magnet:?xt=urn:btih:FB583527B8DD6F0760229E2D8055F873CA3DE183
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ Fate/strange Fake: Whispers of Dawn | Судьба/странная поддел
 ```bash
 magnet:?xt=urn:btih:A9EB31A70AF2BA8458840A4951287286081AECC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +693,8 @@ Princess Connect! Re:Dive 2 / PriConne 2 / Связь принцесс! Ново
 ```bash
 magnet:?xt=urn:btih:561EC4C789FD2C1EAEDBA20E866C84A91564176D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

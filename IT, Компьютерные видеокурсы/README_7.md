@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:247D92DC62EF7ABD7B1F65C8F744190FFFC1AA23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Udemy, Bogdan Stashchuk | MongoDB - Полный Курс по MongoDB (2024) WE
 ```bash
 magnet:?xt=urn:btih:3B82C8AD4939DBB7B79260D78BDA028690B76C0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ OTUS, Андрей Буранов | Administrator Linux. Basic (2024) WEB-DL [RU
 magnet:?xt=urn:btih:E675A2F6A6CA9727648F056C0811A43AAFD651EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:E675A2F6A6CA9727648F056C0811A43AAFD651EA
 ```bash
 magnet:?xt=urn:btih:041793FA9512B2028D68856146DA90C8BB57BBA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Skillbox | Профессия Аналитик 1С (2024) WEB-DL [RU]
 magnet:?xt=urn:btih:61D3445A7C83F25A4A6B6A97366AD2F38DC3473D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ OTUS, Виталий Юшкевич | Архитектор высоких наг
 ```bash
 magnet:?xt=urn:btih:6D11D53A5A4828A2974F1C7D61650C1862BA1C5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Java-разработчик - это специалист, который с п�
 ```bash
 magnet:?xt=urn:btih:A67DE51351F11E955DB009F8CB65F4ABC268BA6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:A67DE51351F11E955DB009F8CB65F4ABC268BA6C
 magnet:?xt=urn:btih:FDE62AB16845F15EB878ABACEDFF886E177FF10F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:FDE62AB16845F15EB878ABACEDFF886E177FF10F
 magnet:?xt=urn:btih:BB5DAA6DE488218FD3B9497C656C0A3DC13E31E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:BB5DAA6DE488218FD3B9497C656C0A3DC13E31E8
 ```bash
 magnet:?xt=urn:btih:BD63A6B38E848147189E54BB3DC4B70F7B61965B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ HTML Academy | PHP. Профессиональная веб-разработка
 magnet:?xt=urn:btih:0211FFAE87CF576A126ED88C466C4B730C85400D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ Django - это среда Python для веб-разработки. Он им�
 ```bash
 magnet:?xt=urn:btih:0AA9E9A104B08A375DC805F3862CEAEECBA00A1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ Coursera, Dr. Tim Chamillard | C# Programming for Unity Game Development Special
 magnet:?xt=urn:btih:E987053607DABC5B07CCFF0A6A49A852CA35A780
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ Udemy, Code Monkey | Ultimate Unity Overview (70+ Tools and Features Explained!)
 ```bash
 magnet:?xt=urn:btih:BDE5CA4380FC084D9FFEBDDD432A3163DE74A5E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ Coursera, Dr. Tim Chamillard | C++ Programming for Unreal Game Development Speci
 magnet:?xt=urn:btih:422CAA62B9FBEDFCBC103BCA6148CAB86089777F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ Udemy, Pete Jepson | Make a Multiplayer Game in Unity 2024-1 (2024) WEBRip [EN]
 magnet:?xt=urn:btih:F21ED2097FA4329FB2271266CDF16A7F1960D306
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ Linkedin.com, Brenda Romero | Основы игрового дизайна, ча
 ```bash
 magnet:?xt=urn:btih:F78905571D07A546A4A4FB0582D54D179A295A0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ The Complete Unity C# Bootcamp (Часть 1 из 2) - единственный 
 magnet:?xt=urn:btih:4988F288EB3F0085A1E6F951D54FCDBAB48F11F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ The Complete Unity C# Bootcamp (Часть 2 из 2) - единственный 
 ```bash
 magnet:?xt=urn:btih:0C5C41E958C6E51C231993D1C9D908B4E164101D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +545,8 @@ Udemy, GameDev.tv Team, Gary Pettie, Ben Tristem | Математика для �
 magnet:?xt=urn:btih:CEDAC75223E2F6AD1A1727CCA290D98AE4CC3CF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +573,8 @@ magnet:?xt=urn:btih:CEDAC75223E2F6AD1A1727CCA290D98AE4CC3CF2
 magnet:?xt=urn:btih:54C4A6FFA6A64200E5BA4EFC8A0E9BACE7EB4DB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:54C4A6FFA6A64200E5BA4EFC8A0E9BACE7EB4DB1
 ```bash
 magnet:?xt=urn:btih:629C81297B426A77C5B1B954A0DE7C4B6C197CA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +627,8 @@ Udemy, Elchin Jamalov | Windows Server 2016 (70-740) полный видеоку
 ```bash
 magnet:?xt=urn:btih:88CEEC11E0215F85A2582643C88EC7D5AA7972CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +657,8 @@ DevOps-инженер отвечает за использование одно�
 magnet:?xt=urn:btih:42C59588556713BA8320E360691285A4E254EEB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +686,8 @@ Codeby | Тестирование Веб-Приложений на проник�
 magnet:?xt=urn:btih:F08B85EF117389709A69BE175A4C4145C304D6B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +714,8 @@ magnet:?xt=urn:btih:F08B85EF117389709A69BE175A4C4145C304D6B8
 ```bash
 magnet:?xt=urn:btih:92E1C1133D021F78997F3C4552E939FD846B02F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

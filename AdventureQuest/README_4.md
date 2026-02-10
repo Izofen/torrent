@@ -19,6 +19,8 @@ Myst (1999) [Multi] (2.0.5) License GOG [Masterpiece Edition]
 magnet:?xt=urn:btih:984F1F73222BDD951603B2E38482F916AA4C5217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MythForce (2023) [Ru/Multi] (1.2.4.2) Repack Let'sРlay [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:659F2F4FDEEE1F04F50C5DBDB40867B6489D1BEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ UNDERWARD - это кооперативная игра в жанре хорро�
 magnet:?xt=urn:btih:B2D77E261211C3E0FEF41A2BFE878EEA38B82052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ UNDERWARD - это кооперативная игра в жанре хорро�
 ```bash
 magnet:?xt=urn:btih:D656143589B0F5B4CECC638B835517249DE4B488
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Girls Made Pudding повествует о двух героинях, котор
 magnet:?xt=urn:btih:AD6384CED16FE690F020A2C008FA87C0631B5E46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ UNDERWARD - это кооперативная игра в жанре хорро�
 ```bash
 magnet:?xt=urn:btih:C04328C39156CC62FFA6A020D2C116E092977473
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Luto - это психологический хоррор от первого л
 magnet:?xt=urn:btih:49F88D5D6D73134DF0A43786DB3B3DA66F1F9666
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ My Friendly Neighborhood погружает юзеров на роль прос�
 ```bash
 magnet:?xt=urn:btih:0D58C7586050C4B4BC201664127A2BAF86328115
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Dark Resolve (2025) [Ru/En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:C35B9A3D3ED0F379E5BD69AE95FAA51B2461FA3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Laser Tag Massacre – это хоррор-игра с сюжетом, вдох�
 ```bash
 magnet:?xt=urn:btih:8D7A13895E2E1F43A3CD1E8DAB04A21121C8E3FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Tintin Reporter Cigars of the Pharaoh (2023) [Ru/Multi] (1.0.39277) Repack Let's
 magnet:?xt=urn:btih:C71BC5FFED41DA7A49FC8E3962C1397AD56552FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Death Relives (2025) [Ru/Multi] (0.14.68.398) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:14D8BA0C07F7B9624CB3CB5C7BB5C80B3F320542
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Fruitbus (2024) [Ru/Multi] (1.0.12) Repack FitGirl [Fine Dining Edition]
 magnet:?xt=urn:btih:E13E1EFA9730FEE2BC37EB49FCA9D6C3B0147207
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Squirreled Away (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3DB848B2D9FA66E8856D5AA2CC5AEC73C239D50E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Dread: The Cold Case - это психологический хоррор от �
 magnet:?xt=urn:btih:AF6F549074EAE7D0A5EE9629BBD1395A06769651
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ to a T - это сюжетная приключенческая игра о не
 ```bash
 magnet:?xt=urn:btih:DFAAA6F13F791F40C72EAFF993A8E20728FDCBBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Who's at the door? (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 magnet:?xt=urn:btih:7CB6150D6637EE6CC26F939B344E5E72A337DFBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Plucky Squire - это очаровательная экшен-адвенч�
 ```bash
 magnet:?xt=urn:btih:BF7310D232832288C2A5D2AB558883CAE843BE1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Them and Us - классический хоррор на выживание с �
 magnet:?xt=urn:btih:3BFC974F624146537B3FBF24C30908770802B7A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Who's at the door? (2025) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:4D31EDE953341080D64AB1C224BC6CEBDD1B4C77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Submersed 2 - The Hive (Улей) – это научно-фантастичес
 magnet:?xt=urn:btih:1121CFF5C5C20092637109A990BAA63E9254CD8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Danger Zone - постапокалиптический 2.5D шутер с в
 ```bash
 magnet:?xt=urn:btih:6D1342C9D4D2B05FB7B6C69A0A7CCB503A52197F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.2) Repack FitGirl
 magnet:?xt=urn:btih:171B382B4A9C6A9A231AD520F1821F78D38AA8C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Murky Divers с головой окунается в кооперативную 
 ```bash
 magnet:?xt=urn:btih:5163C6B990A9F43111474CB86BF59454005EFD54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Do Not Press The Button / Or You'll Delete The Multiverse (2025) [Multi] (1.0) R
 magnet:?xt=urn:btih:5823AEF89C0A5ED4996147F20C8523522143316C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Forest Asylum 2 (2025) [Multi] (1.1.5) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0D01F8A0248F25B4537787194C5303BC9FAAD466
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

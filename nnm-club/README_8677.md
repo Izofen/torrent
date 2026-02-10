@@ -21,6 +21,8 @@ NeoOffice создан на основе офисного пакета OpenOffic
 magnet:?xt=urn:btih:68A66456FD005EEE4FF93F3F6B3C6251CDBD6661
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:68A66456FD005EEE4FF93F3F6B3C6251CDBD6661
 magnet:?xt=urn:btih:123C95CDFDC320B078294B3ECEE99AA07FB83D68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:123C95CDFDC320B078294B3ECEE99AA07FB83D68
 ```bash
 magnet:?xt=urn:btih:FEC3DB57CC19298A38BE035072CE82732CFA607D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:FEC3DB57CC19298A38BE035072CE82732CFA607D
 magnet:?xt=urn:btih:C0B61026FA6E7ED45A46EEF628D2A6777B96BFAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:C0B61026FA6E7ED45A46EEF628D2A6777B96BFAB
 ```bash
 magnet:?xt=urn:btih:E28B53D369B45A60ABE9529EE1EDA7AD10F315B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ VA - Empire Records - Classic (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 magnet:?xt=urn:btih:49299D74359C0B123C1F401654154512074FD24D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:49299D74359C0B123C1F401654154512074FD24D
 magnet:?xt=urn:btih:ABAD415F972A0A3ECD23AA590D227665F75EE190
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ Zach H (Apparent Symmetry, Synthetic Void, Script, Vs. Artificial Intelligence) 
 magnet:?xt=urn:btih:7D7EEE724FB60B3D8ED3382F188E16DA80A23F31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:7D7EEE724FB60B3D8ED3382F188E16DA80A23F31
 ```bash
 magnet:?xt=urn:btih:E6561EB5012E3D522FD9019C554727B33E3F7C6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.14 (Compiled by Викто
 magnet:?xt=urn:btih:148E8A703B8BF756A5774017A474611ABCEC9358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ Les McCann - Live at Montreux (1972) 2014, Warner [FLAC|Lossless|image + .cue] <
 magnet:?xt=urn:btih:121961EC58FF15F71B5B8D9C63F102C217A41EED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:121961EC58FF15F71B5B8D9C63F102C217A41EED
 ```bash
 magnet:?xt=urn:btih:7F3DB09494E6C7C007D00FFAD841855671157F7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ magnet:?xt=urn:btih:7F3DB09494E6C7C007D00FFAD841855671157F7B
 magnet:?xt=urn:btih:70F2CC2F438877D935E8335941A121BBE545E9BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ Central Industrial - Flaring Blue In A Timeless Space (2016) Auxiliary [FLAC|Los
 magnet:?xt=urn:btih:3D302EB445914B4ACD9AD7A88AE5A9960B742BC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:3D302EB445914B4ACD9AD7A88AE5A9960B742BC3
 ```bash
 magnet:?xt=urn:btih:7643C32F3DA2AD63F50024157F0337AEEEDE1280
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ magnet:?xt=urn:btih:7643C32F3DA2AD63F50024157F0337AEEEDE1280
 magnet:?xt=urn:btih:EEFC39D6127C1CCC2385C63E39906E7B1288FF0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ magnet:?xt=urn:btih:EEFC39D6127C1CCC2385C63E39906E7B1288FF0A
 ```bash
 magnet:?xt=urn:btih:EEAD29AACC957327934E5E703AFAAC017BA097BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ magnet:?xt=urn:btih:EEAD29AACC957327934E5E703AFAAC017BA097BF
 ```bash
 magnet:?xt=urn:btih:9894B4C9180416E8282870401D8646D30570C576
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +519,8 @@ VA - Extrema Global Music Best Of (2017) [MP3|320 Kbps] <Trance, Uplifting Tranc
 magnet:?xt=urn:btih:EA1DBE19C68F43D36D02F7D6F5572B8C89131E9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +547,8 @@ VA - Odin (2017) Wildfang Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech Ho
 ```bash
 magnet:?xt=urn:btih:09FDC88B09341AB396411039A0BF217C505571B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +577,8 @@ Central Industrial - Tuned to a Dead Channel (2013) Auxiliary [FLAC|Lossless|tra
 magnet:?xt=urn:btih:AB574316D281749516E187EBD8411E14812FAD40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +604,8 @@ magnet:?xt=urn:btih:AB574316D281749516E187EBD8411E14812FAD40
 ```bash
 magnet:?xt=urn:btih:58AC1B8D808B54D7E9D87D30AC1B1CFA37822B90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +634,8 @@ Ralph Moore - Images (1989) Landmark Records [FLAC|Lossless|tracks + .cue] <Hard
 magnet:?xt=urn:btih:98A54028B3D71F11CA7BB1F177EBBFD0DC2B9297
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +662,8 @@ Ralph Moore - Round Trip (1985) 1987, Reservoir [FLAC|Lossless|tracks + .cue] <H
 ```bash
 magnet:?xt=urn:btih:AA6A053CA844D5D8306E0864D3BE04141029CB2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +692,8 @@ magnet:?xt=urn:btih:AA6A053CA844D5D8306E0864D3BE04141029CB2B
 magnet:?xt=urn:btih:108AFFDAE63A03E6C90E5354C6883F8F20F6753F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +719,8 @@ magnet:?xt=urn:btih:108AFFDAE63A03E6C90E5354C6883F8F20F6753F
 ```bash
 magnet:?xt=urn:btih:B66937E7CBE8AE6935AE8D7887CBF2E83C109F35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

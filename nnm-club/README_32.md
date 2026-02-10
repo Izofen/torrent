@@ -19,6 +19,8 @@ Acrobat Pro — это полностью обновленная настоль�
 magnet:?xt=urn:btih:71BF9DB50110E7970293B727E4609E61A84574B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:71BF9DB50110E7970293B727E4609E61A84574B3
 ```bash
 magnet:?xt=urn:btih:579FD5643E92761AAEC972AF32581A955B16454E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:579FD5643E92761AAEC972AF32581A955B16454E
 ```bash
 magnet:?xt=urn:btih:D63DF34211924E3F8CEB1944A5A064F565D56819
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ LitRPG — миры, построенные по правилам ролевых
 magnet:?xt=urn:btih:CC806A314509F98FF358BAC1EB1CFB2F0AA0A046
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:CC806A314509F98FF358BAC1EB1CFB2F0AA0A046
 ```bash
 magnet:?xt=urn:btih:EA50380757F52173BA26335445DC42DC2490D476
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ PowerShell — это язык для написания скриптов, ин�
 magnet:?xt=urn:btih:8D8AB2B899B2FFD3F65D61E8DBEE574D0084C7D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:8D8AB2B899B2FFD3F65D61E8DBEE574D0084C7D5
 ```bash
 magnet:?xt=urn:btih:49D20875EED4FBAF1FAE76B6F5B3C371FD498544
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Hollow Knight: Silksong (2025) [Switch] [USA] 20.1.5, Atmosphere 1.9.4 [License]
 magnet:?xt=urn:btih:88990C0B5375EFF78F212A32104C6247BCEF3923
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ PAC-MAN WORLD 2 Re-PAC (2025) [Ru/Multi] (1.0/dlc) Repack Let'sРlay [Deluxe Edi
 magnet:?xt=urn:btih:C74D4B92C7A559C1402278E6007E919F7BB7FA61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Hades II (2) (2024) [Ru/Multi] (1.131346) Repack Other s
 ```bash
 magnet:?xt=urn:btih:7A88CB3C66BD8E94E15AD8F2B9297C2AA50DA03B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:7A88CB3C66BD8E94E15AD8F2B9297C2AA50DA03B
 magnet:?xt=urn:btih:90EC58698B9662E8B4CABFBD9C9D94EBA1484834
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:90EC58698B9662E8B4CABFBD9C9D94EBA1484834
 ```bash
 magnet:?xt=urn:btih:52AF8D344A02B6439E28801C068F6EAC492E6890
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:52AF8D344A02B6439E28801C068F6EAC492E6890
 magnet:?xt=urn:btih:A19B75F530CA093D2D284E50AE3027B3C4F66D9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:A19B75F530CA093D2D284E50AE3027B3C4F66D9D
 ```bash
 magnet:?xt=urn:btih:021A4C069BC475D916645B57820F30223F40FA40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:021A4C069BC475D916645B57820F30223F40FA40
 magnet:?xt=urn:btih:7C4614FBE846DA6DFC7D08847944992C9AAC2AC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ DOOM Eternal от id Software – прямое продолжение хита D
 ```bash
 magnet:?xt=urn:btih:A971580136666036DE264BE2086238A00D274F3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:A971580136666036DE264BE2086238A00D274F3E
 magnet:?xt=urn:btih:7B64C1F32CA94BC50ED5BB862F043452EED29FAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:7B64C1F32CA94BC50ED5BB862F043452EED29FAC
 ```bash
 magnet:?xt=urn:btih:9E059A1C00658CF20DD9A0AFF05259AC7DF82CEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:9E059A1C00658CF20DD9A0AFF05259AC7DF82CEC
 magnet:?xt=urn:btih:807F26909559CFD247EFCD5EC95944F330149696
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:807F26909559CFD247EFCD5EC95944F330149696
 ```bash
 magnet:?xt=urn:btih:5D7578AE63966446BF5DFB9366329C17F32013A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Futari Solo Camp | Solo Camping for Two | Соло кемпинг на двои�
 magnet:?xt=urn:btih:030FE576D3327CE0AC40B14094C899DD4D3A48F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:030FE576D3327CE0AC40B14094C899DD4D3A48F7
 ```bash
 magnet:?xt=urn:btih:B305EAEF88627360A130D7F156721E0BA492BCB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:B305EAEF88627360A130D7F156721E0BA492BCB5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:B305EAEF88627360A130D7F156721E0BA492BCB5
 ```bash
 magnet:?xt=urn:btih:20550D418744331A9988A4F823BF2F2A4B47F0A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:20550D418744331A9988A4F823BF2F2A4B47F0A7
 magnet:?xt=urn:btih:6347FDFA7AFA790E9450267A002FAFA37706F41B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:6347FDFA7AFA790E9450267A002FAFA37706F41B
 ```bash
 magnet:?xt=urn:btih:7BB8BB0C8F0FAE5628B347378BC410B4833D9137
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

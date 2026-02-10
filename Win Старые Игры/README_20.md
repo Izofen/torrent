@@ -19,6 +19,8 @@ Startopia (2001) [En] (1.00) License GOG
 magnet:?xt=urn:btih:3E157027D03177351E5CF4CE2C51426CB19F1050
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Silent Hunter 2 (2001) [En] (1.00.06) License GOG
 ```bash
 magnet:?xt=urn:btih:376DA7CA64FA9752923B5E7351DFAEA558EDA8D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Screamer 2 (1996) [En] (1.00) License GOG
 magnet:?xt=urn:btih:ACA4FA710FFBE7B319BE58E3B719F677002DCDC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Screamer (1995) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:FF9EA9037040C8CEFFC730B8A333187445448CB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Jade Empire (2005) [Ru/En] (1.00) License GOG [Special Edition]
 magnet:?xt=urn:btih:CA093B177B23C70A3D659A4DCF523DB406DD63FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Descent 3 (2000) [En] (1.4/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:CB6742DD09570E9DCC5E60CCA3397E31F716F3CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Albion (1995) [Multi] (1.38) License GOG
 magnet:?xt=urn:btih:D554E5C55BBA8A718BADADDB1C377B88657BFA27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Prison Architect - симулятор тюремного магната, с по
 ```bash
 magnet:?xt=urn:btih:A4115553AE05FFD2C4D6E0D4AC348F6F545756EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Settlers® 3 (2000) [En/Ge] (1.60/dlc) License GOG [Ultimate Collection]
 magnet:?xt=urn:btih:354CAA27A955DADEE51AD8A7D4BEAC92B55E9640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Settlers® 2 (1996) [En/Ge/Fr] (1.51) License GOG [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:8D9EF729C912CF1F9EAC6FC6003CD400C2A08911
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Original War (2001) [Ru/Multi] (1.10b) License GOG
 magnet:?xt=urn:btih:14A4F9F970FBDAA641CEB658367B9F0DA5A19B5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Tomb Raider III – присоединяйтесь к Ларе Крофт в е�
 ```bash
 magnet:?xt=urn:btih:5D63971AA57622AE6C3B33608AB6E1745A2D1C57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ GZM9 – наиболее крупномасштабный проект на б�
 magnet:?xt=urn:btih:5FC00E7680DC57C9561F51C0DB974E88A50EED4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Blitzkrieg / Блицкриг (2003) [Ru] (1.2) Repack/Mod Sprut [Сборник
 ```bash
 magnet:?xt=urn:btih:95C28F9896379C7DF7A97B05BB248A57C31C2EF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Magic Chronicle (2003) [En] (1.1) License
 magnet:?xt=urn:btih:BAD988D5BDF9F8EB151D0C145A5C965A977CAED5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ ObsCure II является продолжением ObsCure, в котором 
 ```bash
 magnet:?xt=urn:btih:C03CFB60162959F1FF613CE64010A4859778FADF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Serious Sam: The Second Encounter / Serious Sam. Второе пришестви
 magnet:?xt=urn:btih:4F703D74B6D8FDF2A870986D34191C817229F6DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 ```bash
 magnet:?xt=urn:btih:37B63239DF79948E3D0E2DF1EBF9676D7C220955
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ The Moment Of Silence / Момент истины [Ru] (L) 2005
 magnet:?xt=urn:btih:53B11B8E57E6E7FDC8B94D6B13CBB122E79EA0E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Tale of Imerion (2002) [Multi] (1.0.3) License
 ```bash
 magnet:?xt=urn:btih:8D045925FFB408E2503F8CCFB2E8781FBB03F676
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Painkiller (2004) [Ru/En/Fr] (1.64_lang_update/dlc) License GOG [Black Edition]
 magnet:?xt=urn:btih:19CE4E3EF38CC7B2DF4052F103B0E7E13A634F71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Rise of the Dragon (1990) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:4A49FD5CFC61D44ED76B4CF257AA6F48D120F4C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Silence - The Whispered World 2 (2016) [Ru/Multi] (1.1.20227) Repack R.G. Мех
 magnet:?xt=urn:btih:BBFBB86AD5ACDCAFF456FF9739A4EA63EFE5890D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Tom Clancy's Splinter Cell: Double Agent (2006) [Ru/En] (1.02a) Repack Samael
 ```bash
 magnet:?xt=urn:btih:392F5A75A6FEFE6F38EDD37DB7DE8668EB845CBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Conqueror A.D. 1086 (1995) [En] (1.0) License GOG
 magnet:?xt=urn:btih:91D0693EF8502909F11B19D791732507903DA2A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Supreme Ruler 2020. Курс доллара обвалился за одну н�
 ```bash
 magnet:?xt=urn:btih:8F00163D2A5161B763538758FBB434CFF9550093
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

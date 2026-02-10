@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5AE4F10FCC6ABD13F5ACF8FA3317CD8A9AB34015
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:5AE4F10FCC6ABD13F5ACF8FA3317CD8A9AB34015
 ```bash
 magnet:?xt=urn:btih:603DEAB6321690190205426FB90B4818070C3EAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:603DEAB6321690190205426FB90B4818070C3EAA
 magnet:?xt=urn:btih:98B608F6FD12D8EABADD47E001C8EA54BD3D13D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ GRID - это уникальная гоночная игра. Неповтори
 ```bash
 magnet:?xt=urn:btih:8961575F9E624A66EB11ECFB8F948DD9D821875F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Citizen Sleeper 2: Starward Vector - это научно-фантастичес�
 magnet:?xt=urn:btih:F2123525EB66D4F48B0B1BE6A86FDE97AC6F3633
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ VidCoder - небольшая утилита, с помощью которой �
 ```bash
 magnet:?xt=urn:btih:EC073D6FE0A7F7B86297AEE4F26F858153DCE04E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Jane Air - 9 (2025) [MP3|320 Kbps] <Alternative>
 magnet:?xt=urn:btih:C6451972E5669E9221092FBE574520DB79279381
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Moonspell - Opus Diabolicum - The Orchestral Live Show (Live) (2025) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:AB2A121588ECC0B294B397A0224EA61EDD632861
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Fallen Lillies - Cran (2025) [MP3|320 Kbps] <Glam Metal, Hard Rock>
 magnet:?xt=urn:btih:53F11966837F9DE163A4B75BEE58B2CCED41415D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ Avatar - Don’t Go In The Forest (2025) [MP3|320 Kbps] <Modern-Metal, Groove-Me
 ```bash
 magnet:?xt=urn:btih:5113C3474D3BB054FC46445483C03A7330AB41BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ Biohazard - Divided We Fall (2025) [MP3|320 Kbps] <Rapcore, Hardcore, Crossover>
 magnet:?xt=urn:btih:1A168B2FFBE35C08E108191FE5145B078FA536C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ Aranda - Four0Five Sessions (2025) [MP3|320 Kbps] <Alternative-Rock>
 magnet:?xt=urn:btih:1AA27F88A62DFD20F7781BBC1E61158D1D761756
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:1AA27F88A62DFD20F7781BBC1E61158D1D761756
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:1AA27F88A62DFD20F7781BBC1E61158D1D761756
 ```bash
 magnet:?xt=urn:btih:4F969DD9A83154BDC9197A6BA9D2D9E9D0C85B12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ Traveling Wilburys - The True History Of The Traveling Wilburys (2007) 2CD [FLAC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ Traveling Wilburys - The True History Of The Traveling Wilburys (2007) 2CD [FLAC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ Traveling Wilburys - The True History Of The Traveling Wilburys (2007) 2CD [FLAC
 ```bash
 magnet:?xt=urn:btih:5F2E246EF14CDF046449FB4157732F1AB0D9D95C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ Wondershare PDF Converter - это мощный инструмент, котор
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ Wondershare PDF Converter - это мощный инструмент, котор
 ```bash
 magnet:?xt=urn:btih:255431C9008CD86A696CCCEE970D29D652753D55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +546,8 @@ VA - Лучшие Хиты Радио Дача Часть 8 (2012) [MP3|256 кб
 magnet:?xt=urn:btih:11FEAAE8A02F87A7C0C4B856A499AF7A60FC068F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +573,8 @@ magnet:?xt=urn:btih:11FEAAE8A02F87A7C0C4B856A499AF7A60FC068F
 ```bash
 magnet:?xt=urn:btih:61DFF34EB17AD53DB77F20D58B1ECB44DCFBBF34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +609,8 @@ Pitbull - Original Hits (2012) [MP3|~245 кб/с ]<Rap, RnB, Hip-Hop>
 magnet:?xt=urn:btih:AD9C9D303CDF8DD2DC9425378541D27348801D06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +637,8 @@ Sons of Ashes - Favorites Collection (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:EE5B16607C18EDA9E588954BFD000997EB0FFA33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +667,8 @@ Enlly Blue - Favorites Collection (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
 magnet:?xt=urn:btih:58CD7661271FE351EBE60EA89741D832C2509C71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +692,8 @@ magnet:?xt=urn:btih:58CD7661271FE351EBE60EA89741D832C2509C71
 ```bash
 magnet:?xt=urn:btih:13DD40849ABAC6DD362CAE77E5B6F68BBD184B24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -671,6 +721,8 @@ Ilaria Argento - Favorites Collection (2025) [MP3|320 Kbps] <Blues, Blues Rock, 
 ```bash
 magnet:?xt=urn:btih:977A7918720C70217673582F9F13C11743347E50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

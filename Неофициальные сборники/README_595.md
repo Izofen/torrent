@@ -1,3 +1,32 @@
+###  Публикация: 1492125   (902398) от 30.08.2021
+
+VA - Peak Time: Techno Party (2021) [MP3|320 Kbps] <Techno, Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902398.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bass Modulators - Teckzoom
+002. Phase Objekt - Wasp-12b
+003. Agustin Giri - Spectare
+004. Eduardo De La Calle - The Dub Math(   Читать дальше...   )Жанр: Techno, Tech House, ElectroПродолжительность: 11:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A75AE7FFF5F4429E80593D09E299A7B24D62571D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492077   (902399) от 30.08.2021
 
 VA - 7 Club: Exclusive Chill House (2021) [MP3|320 Kbps] <Chill House, Chillout, Deep House>
@@ -21,6 +50,8 @@ VA - 7 Club: Exclusive Chill House (2021) [MP3|320 Kbps] <Chill House, Chillout,
 ```bash
 magnet:?xt=urn:btih:3A04B9068B97C0F5C4393E57C7A85548A1DA5A9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Space Psychedelic Trance (2021) [MP3|320 Kbps] <Psychedelic Trance>
 magnet:?xt=urn:btih:2A9C7B6340FDC9603B5B8099EC325BFFE51C0165
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Beatport Trance: Sound Pack #335 (2021) [MP3|320 Kbps] <Trance, Electro Pro
 ```bash
 magnet:?xt=urn:btih:9F0002AD5F08BA4335FF4B1A07FBA6F0F1C25764
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Beatport Jackin House: Sound Pack #337 (2021) [MP3|320 Kbps] <Jackin, Funky
 magnet:?xt=urn:btih:D2551F80FBA5267E7C00BCC7C2EA58CF66A64682
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - NRW: Clubbing Tech House (Vol.01) (2021) [MP3|320 Kbps] <Club, Dance, Tech 
 ```bash
 magnet:?xt=urn:btih:3F815EA0151481DAFF71B5793102B17BD59ACDEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Afro Bass (2021) [MP3|320 Kbps] <Jungle, D&B, Electro Bass>
 magnet:?xt=urn:btih:616E322F0A05DFDC397E4CAE1E97DC56B44A82F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Музыка хорошего настроения 2 (2016) [MP3|256 кб/�
 ```bash
 magnet:?xt=urn:btih:41322A23333268CCE6087C9292F2C7D802428C08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Guided By The Heart (2021) [MP3|320 Kbps] <Alternative, rock indie>
 magnet:?xt=urn:btih:383CC47F80861E615EEEA1112CD22EA654902DE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Beatport Hardstyle: Sound Pack #336 (2021) [MP3|320 Kbps] <Hardstyle, Hard 
 ```bash
 magnet:?xt=urn:btih:5B78A924DDBD67BEA36E0D55DCD5D2C92E60B8BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Золото Русского Диско - 11 (2013) [MP3|128-320 кб/с] 
 magnet:?xt=urn:btih:759E49212E57B7F689174641D070AAC3FF0E2FA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Liquid Bass Drive (2016) [MP3|320 кб/с] <Drum and Bass, Dubstep>
 ```bash
 magnet:?xt=urn:btih:BC18B3B01E6B0043DBA01678EF4B433F5FBCC2D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Songs Of Love Lyric (2016) [MP3|320 кб/с] <Pop, Lyric, Romantic Rock>
 magnet:?xt=urn:btih:9B95B6BBD90F837C477795919A341AF4DA7FB41A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - Шикарный шансон на закате (2016) [MP3|256-320 кб/с
 ```bash
 magnet:?xt=urn:btih:195D8700418D29C64D193819EE3780FD5E373AC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Kiss FM Top 40 February (3rd week) (2016) [MP3|320 кб/с] <Pop, house, tr
 magnet:?xt=urn:btih:D615E3639CDC85B8693D5FCDAE1FE5985F95632B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +457,8 @@ VA - Alternative Winter by Evaluator (2016) [MP3|128 - 320 кб/с] <Alternative
 magnet:?xt=urn:btih:5984BBCDE60453A8232B80E769652DE109587A19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +485,8 @@ VA - Радио Шансон. Энциклопедия шансона (2016) [MP
 ```bash
 magnet:?xt=urn:btih:530A8B79F4CED569F6CDF0D15FD9009502B55E64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +521,8 @@ VA - Гламурная весенняя дискотека (2013) [MP3|160-320 
 magnet:?xt=urn:btih:7F9466DB4772FEA6CAA8275E7E02CA08A49B299F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +549,8 @@ VA - Best Driving EDM (2016) [MP3|320 кб/с] <Progressive, Bigroom, Club>
 ```bash
 magnet:?xt=urn:btih:1853EC0D991D86635D93A00447C7D76BBB2D0F53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +579,8 @@ magnet:?xt=urn:btih:1853EC0D991D86635D93A00447C7D76BBB2D0F53
 magnet:?xt=urn:btih:6B197A3796DE5776115923ED9CA26C3B84C2F8BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +607,8 @@ VA - Magic Instrumental Music Vol.4 (2017) [MP3|320 Kbps] <Instrumental, New Age
 ```bash
 magnet:?xt=urn:btih:DAFAA706B70F2BDB5839F523B134563F1BD6B6B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +637,8 @@ VA - Клубные хиты в тачку на прокачку (2017) [MP3|320
 magnet:?xt=urn:btih:A3E9B11F731784F226BEE89AEAC75C3F4BA06F5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +665,8 @@ VA - Kiss FM: Top 40 [22.03] (2020) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:97B83BB1780A7E1151CD41BDF9F91E269821A315
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +695,8 @@ VA - Зимняя 100-ка хитовая. Сборник 4 (2017) [MP3|256 Kbps
 magnet:?xt=urn:btih:5719F847FE417E87C7EEA6D212E9D0D2866C4DA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +723,8 @@ VA - Rock Drive 10 (2020) от DON Music [MP3|320 Kbps] <Hard Rock, Rock, Blues 
 ```bash
 magnet:?xt=urn:btih:9BFF5F65D1BA7BD49D3D25125328E2AA3A79F4CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,32 +753,7 @@ VA - Снежный презент. Сборник №3 (2017) [MP3|256 Kbps] <P
 magnet:?xt=urn:btih:8B46BF9C4041E921144BB7C75F2CE82B3AE95F66
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492326   (903772) от 29.08.2021
-
-VA - Kings Of The Blues (2021) [MP3|320 Kbps] <Blues, Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robert Nighthawk - Black Angel Blues (02:59)
- 02.  Elmore James - Dust My Broom (02:55)
- 03. Otis Rush - I Can't Quit You Baby (03:18)
- 04. Little Rain - Jimmy Reed (Compiled by Stones Rick) (03:22)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 04:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13A62A20BA7E09C1FDCEECC591E95AD73C4BA27C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

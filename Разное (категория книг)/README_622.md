@@ -1,3 +1,29 @@
+###  Публикация: 641753   (882741) от 09.04.2013
+
+Лора  Дэй | Самоучитель по развитию интуиции [2000] [PDF]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Интуиция - великая способность, которой одарила человека природа. Подсознание, разговаривающее с нами языком интуиции, знает ответы на многие волнующие человека вопросы. Нужно только научиться правильно их задавать и уметь расшифровывать ответы, которые интуиция дает в виде образов и символов.Эта книга в легкой и доступной форме, шаг за шагом будет вести вас к овладению этими знаниями и приемами, которые помогут вам поверить в свои силы и добиться успеха в жизни.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA9F58A3620CC68F20BA43BB91248E58119BE8EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103803   (882763) от 13.02.2017
 
 Ричард Талер | Новая поведенческая экономика. Почему люди нарушают правила традиционной экономики и как на этом заработать (2017) [EPUB, FB2, MOBI]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:52C9AB72E4F9E7EE1FC995483919C03A6EB846BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:52C9AB72E4F9E7EE1FC995483919C03A6EB846BC
 magnet:?xt=urn:btih:6E332314797069C63724E125BCB3F09AC37642E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:6E332314797069C63724E125BCB3F09AC37642E7
 ```bash
 magnet:?xt=urn:btih:ECA03A49DA93D06851B69772FC90291F119987E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:ECA03A49DA93D06851B69772FC90291F119987E2
 magnet:?xt=urn:btih:5803F6AA12B19CEE432A292EE65CAAD3578655C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:5803F6AA12B19CEE432A292EE65CAAD3578655C2
 magnet:?xt=urn:btih:1F4D8DE06608C7EE836965AEB6ECE287F704A398
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:1F4D8DE06608C7EE836965AEB6ECE287F704A398
 ```bash
 magnet:?xt=urn:btih:4CB5AC4022221FED0369ABA4C0F13C5F9551FF6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:4CB5AC4022221FED0369ABA4C0F13C5F9551FF6D
 magnet:?xt=urn:btih:B3FCB87EA25AC0E58A86DCF7124FCD4F194AEDC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:B3FCB87EA25AC0E58A86DCF7124FCD4F194AEDC6
 magnet:?xt=urn:btih:E024FD823864A4B9961F2E254301118462A575C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:E024FD823864A4B9961F2E254301118462A575C0
 ```bash
 magnet:?xt=urn:btih:C0A27C87C8F3589878CCA0A0AA863FEDC831C098
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:C0A27C87C8F3589878CCA0A0AA863FEDC831C098
 magnet:?xt=urn:btih:3B6EEE2CE6ED97C084933D6BEC2394A1B2ABDFE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:3B6EEE2CE6ED97C084933D6BEC2394A1B2ABDFE6
 magnet:?xt=urn:btih:5B8FC6A0C1445964A16EC10DF820DF18A0E68920
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:5B8FC6A0C1445964A16EC10DF820DF18A0E68920
 ```bash
 magnet:?xt=urn:btih:FD668BA6B29A92AC80BBEF92077D2D01559DE8E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:FD668BA6B29A92AC80BBEF92077D2D01559DE8E1
 magnet:?xt=urn:btih:1ED45CBB3757F8EBA501FCBEC7F6F848953F0A49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:1ED45CBB3757F8EBA501FCBEC7F6F848953F0A49
 ```bash
 magnet:?xt=urn:btih:FC370028EE5A9AC60A3CFC64EC232FD1FDD0A095
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:FC370028EE5A9AC60A3CFC64EC232FD1FDD0A095
 magnet:?xt=urn:btih:0E51E913BA479975E9C9F51B69A7B00CEA650262
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:0E51E913BA479975E9C9F51B69A7B00CEA650262
 ```bash
 magnet:?xt=urn:btih:AAC863648D726805CA3E6CF8D4F9D4E43411916A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:AAC863648D726805CA3E6CF8D4F9D4E43411916A
 magnet:?xt=urn:btih:3EAFB72A144721C7BC1D5301BC0DA7D30D54B4D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:3EAFB72A144721C7BC1D5301BC0DA7D30D54B4D3
 ```bash
 magnet:?xt=urn:btih:35A17CF922BACE891B4CF018F9ADB2322F7C02EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:35A17CF922BACE891B4CF018F9ADB2322F7C02EC
 magnet:?xt=urn:btih:FF31A95264A17D346A62B19E208EE850A4AE1EBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:FF31A95264A17D346A62B19E208EE850A4AE1EBD
 ```bash
 magnet:?xt=urn:btih:8349B927C00B668FF85F31493FB9E5F8AF33CF9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:8349B927C00B668FF85F31493FB9E5F8AF33CF9E
 magnet:?xt=urn:btih:6355D91B2A4CE0DB250F56A9B00F0CECF419C6C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:6355D91B2A4CE0DB250F56A9B00F0CECF419C6C5
 magnet:?xt=urn:btih:142E374F58C3992EAB77A586D37B2D591126E1A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:142E374F58C3992EAB77A586D37B2D591126E1A0
 ```bash
 magnet:?xt=urn:btih:1F491BD85A7D013239B90AB5F64F3FB2BEECDDE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:1F491BD85A7D013239B90AB5F64F3FB2BEECDDE0
 magnet:?xt=urn:btih:FDEFA8866B5BAC4AD5FB186AF7885412723C8F3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,29 +679,7 @@ magnet:?xt=urn:btih:FDEFA8866B5BAC4AD5FB186AF7885412723C8F3D
 magnet:?xt=urn:btih:926066A75C97BDC284A000496EBA81EEDB37C67C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 763922   (883828) от 07.03.2014
-
-Алевтина Корзунова | Боль в животе (2013) [PDF]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Боль – это грозный охранник, который стоит на страже нашего физического благополучия. Если возникает боль, то это означает, что в организме что-то не в порядке и нужно искать причину. Когда болит живот, причиной могут являться самые разные заболевания. Поэтому вы должны быть вооружены знаниями и не пропустить болезнь. Данная книга расскажет вам, как выяснить основные причины боли в животе и как справиться с ней немедикаментозными способами. Правильное питание и фитотерапия – вот нужные ключи к выздоровлению и избавлению от боли.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B142DE6F767CFFB52F199226C31336AD2806A1A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

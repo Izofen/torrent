@@ -1,3 +1,29 @@
+###  Публикация: 1556595   (558225) от 10.06.2022
+
+Вечер с Владимиром Соловьевым (09.06.2022) IPTVRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558225.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Мы ставили задачу сделать программу для умного, неравнодушного зрителя, которая позволит обсуждать актуальные проблемы в разных форматах: от интервью "один на один" до "круглого стола". Надеемся, она будет такой же острой, как политическое ток-шоу "Поединок". Но если в "Поединке" сталкиваются две полярные точки зрения, (   Читать дальше...   )Телекомпания: РоссияЖанр: Политическое ток-шоуПродолжительность: 02:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80FD5FE2A23FE80B177DFE6EC95C062C8868C7BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556657   (558227) от 10.06.2022
 
 Операция Валькирия: Заговор Штауффенберга по убийству Гитлера / Operation Valkyrie: The Stauffenberg Plot to Kill Hitler (2008) WEBRip [H.264/720p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:EC1B4B947219C31157F4FCF8CD3CE0D9BC7115F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:EC1B4B947219C31157F4FCF8CD3CE0D9BC7115F4
 magnet:?xt=urn:btih:01180F29F08505A89F0CE0D8D58089FFEDCC5721
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:01180F29F08505A89F0CE0D8D58089FFEDCC5721
 ```bash
 magnet:?xt=urn:btih:8C650B623D2A031FB5404209630DC68AB6A49094
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:8C650B623D2A031FB5404209630DC68AB6A49094
 magnet:?xt=urn:btih:818000026E6E6ACB94BBCE7C9DC50A680F5A9FB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:818000026E6E6ACB94BBCE7C9DC50A680F5A9FB6
 ```bash
 magnet:?xt=urn:btih:2CAEDEF17AD803FA9BA13BD32779535D4A77CE83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:2CAEDEF17AD803FA9BA13BD32779535D4A77CE83
 magnet:?xt=urn:btih:F81576CC64F84F9504022EEF1200AC7C66ED619B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:F81576CC64F84F9504022EEF1200AC7C66ED619B
 ```bash
 magnet:?xt=urn:btih:4602C513E5C0B1BFA7FDF74BA84C94B6824DBC3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:4602C513E5C0B1BFA7FDF74BA84C94B6824DBC3D
 magnet:?xt=urn:btih:C478C4C2CB0CC2C5177002DDCA5C60C0579E2C9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:C478C4C2CB0CC2C5177002DDCA5C60C0579E2C9C
 ```bash
 magnet:?xt=urn:btih:141618FD0C1D76B59750DF8AF9FACBBEA6FD7409
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:141618FD0C1D76B59750DF8AF9FACBBEA6FD7409
 magnet:?xt=urn:btih:97B52A1C60CA1B57436474FDEF2CCEC954933DFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ Nat Geo Wild: Самые опасные змеи Азии / Asia's Deadliest sna
 ```bash
 magnet:?xt=urn:btih:5765E298021D004D24E4853B90271B59016D4290
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:5765E298021D004D24E4853B90271B59016D4290
 magnet:?xt=urn:btih:4285D3D1D8169DEF262B4EB6E37A6389E54557A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:4285D3D1D8169DEF262B4EB6E37A6389E54557A2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:4285D3D1D8169DEF262B4EB6E37A6389E54557A2
 magnet:?xt=urn:btih:D36EFC5E12D78F2D7592C5AAFE4FE53A9E045603
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:D36EFC5E12D78F2D7592C5AAFE4FE53A9E045603
 ```bash
 magnet:?xt=urn:btih:09C30B90A73C29795D29467A6B3B2C42A44AC106
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:09C30B90A73C29795D29467A6B3B2C42A44AC106
 magnet:?xt=urn:btih:2275458082212DE1E30316142C78D7788CE872A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:2275458082212DE1E30316142C78D7788CE872A6
 ```bash
 magnet:?xt=urn:btih:619411190F05AE792D383D867B5FA4C9AF92225B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:619411190F05AE792D383D867B5FA4C9AF92225B
 magnet:?xt=urn:btih:5B2B21E51F882C3D5BDF024713C6603DC95E1ACE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:5B2B21E51F882C3D5BDF024713C6603DC95E1ACE
 ```bash
 magnet:?xt=urn:btih:1BC84A5EA267DB0383891396B063BDFFE379BCC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +544,8 @@ Mystic Forests (2012) HDDVDRip [MPEG2/1080i]
 magnet:?xt=urn:btih:FD437FE916498C886F8319F80B1CBB65C37236C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:FD437FE916498C886F8319F80B1CBB65C37236C1
 ```bash
 magnet:?xt=urn:btih:E104D17F05DD7B4C4046B65D89D7AE397FC1A8F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:E104D17F05DD7B4C4046B65D89D7AE397FC1A8F8
 magnet:?xt=urn:btih:94E20F07B71C66AA81309C621980F7BD8CFAB2B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:94E20F07B71C66AA81309C621980F7BD8CFAB2B9
 ```bash
 magnet:?xt=urn:btih:4B419C3AA3DBA7143C9EB4F6664AB8CF4F0964BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:4B419C3AA3DBA7143C9EB4F6664AB8CF4F0964BD
 magnet:?xt=urn:btih:EAFCBDF67114E353469C149A5F9D0D4D9AA0A201
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:EAFCBDF67114E353469C149A5F9D0D4D9AA0A201
 magnet:?xt=urn:btih:B5C722590DD99C9A28ACE0AD6888DDE917541A7F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556391   (559592) от 09.06.2022
-
-Вечер с Владимиром Соловьевым (08.06.2022) IPTVRip [H.264]
-
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559592.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Мы ставили задачу сделать программу для умного, неравнодушного зрителя, которая позволит обсуждать актуальные проблемы в разных форматах: от интервью "один на один" до "круглого стола". Надеемся, она будет такой же острой, как политическое ток-шоу "Поединок". Но если в "Поединке" сталкиваются две полярные точки зрения, (   Читать дальше...   )Телекомпания: РоссияЖанр: Политическое ток-шоуПродолжительность: 02:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA8A1C98EA23A6F84CF5F788576EAC33FE9EB967
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

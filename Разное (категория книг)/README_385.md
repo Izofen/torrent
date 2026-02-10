@@ -1,3 +1,29 @@
+###  Публикация: 1233729   (576238) от 02.07.2018
+
+Святой Ефрем Сирин | Творения [8 Томов] [Репринт 1907 г.] (1993-1995) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преподобный Ефрем Сирин всегда пользовался общим уважением в Церкви, как за свою жизнь, так и за свои писания. Святитель Григорий Нисский говорит: «Прославлять мне надобно того, который на устах у всех христиан, Ефрема, которого жизнь и учение сияют во всем мире. Ибо он известен почти всей подсолнечной, и только разве те его не знают, которые не знают великое светило (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DA64C67FBDA71D38E5AFF4FF2B87F8BA15352D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 527619   (576244) от 26.07.2012
 
 В.Солодовник, А.Повшенко| Уроки фотографии от А до Я [2012] [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:20A7B2661F026C9575776C5C7A8B6B156838A6C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:20A7B2661F026C9575776C5C7A8B6B156838A6C9
 magnet:?xt=urn:btih:3147EC12E1A4B726EB80EFD8102E6F62BE926B6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:3147EC12E1A4B726EB80EFD8102E6F62BE926B6E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:3147EC12E1A4B726EB80EFD8102E6F62BE926B6E
 magnet:?xt=urn:btih:88AA49A2FA58A05D3556D15446EC5858117C53BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:88AA49A2FA58A05D3556D15446EC5858117C53BF
 magnet:?xt=urn:btih:09735537CE7772DB6A3A4DDCD504C784EBB49953
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:09735537CE7772DB6A3A4DDCD504C784EBB49953
 magnet:?xt=urn:btih:84E466E3F54FA4273E9BAFABA7F97A2435D4D9DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:84E466E3F54FA4273E9BAFABA7F97A2435D4D9DB
 ```bash
 magnet:?xt=urn:btih:8B8F57D32DC65F83C1D26D02CC96BB783DFBDD82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:8B8F57D32DC65F83C1D26D02CC96BB783DFBDD82
 magnet:?xt=urn:btih:3488972A748E72E2CEFFECA888396F892E6993DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:3488972A748E72E2CEFFECA888396F892E6993DB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:3488972A748E72E2CEFFECA888396F892E6993DB
 ```bash
 magnet:?xt=urn:btih:9133D3F0586884C016FD6F36320255F06CD518D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:9133D3F0586884C016FD6F36320255F06CD518D0
 magnet:?xt=urn:btih:FC6A2B9A5B5D79B38AB3D74EA67D625670D6FDFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:FC6A2B9A5B5D79B38AB3D74EA67D625670D6FDFF
 magnet:?xt=urn:btih:658C4EEDDD237A1ECA0F3A96C06294C183DC3C06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:658C4EEDDD237A1ECA0F3A96C06294C183DC3C06
 ```bash
 magnet:?xt=urn:btih:903C58E8A8C49C35237EF4E9A3D1FF9420663949
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +396,8 @@ magnet:?xt=urn:btih:903C58E8A8C49C35237EF4E9A3D1FF9420663949
 magnet:?xt=urn:btih:32217E650C307E1C738678031282F241E85449D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +425,8 @@ magnet:?xt=urn:btih:32217E650C307E1C738678031282F241E85449D3
 magnet:?xt=urn:btih:2475FF5D5625DDCE41314B82E45892B4AD5D1481
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +451,8 @@ magnet:?xt=urn:btih:2475FF5D5625DDCE41314B82E45892B4AD5D1481
 ```bash
 magnet:?xt=urn:btih:F2BEAC328358ECB71FF3A6EC0C1430B7B2095D90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +481,8 @@ magnet:?xt=urn:btih:F2BEAC328358ECB71FF3A6EC0C1430B7B2095D90
 magnet:?xt=urn:btih:E162BBA356B1C6668F7F85E4C26BD9F3A03827D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +506,8 @@ magnet:?xt=urn:btih:E162BBA356B1C6668F7F85E4C26BD9F3A03827D9
 ```bash
 magnet:?xt=urn:btih:FD51DE2A1EB563A967A59FAE1AADF48E3F56162B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +533,8 @@ magnet:?xt=urn:btih:FD51DE2A1EB563A967A59FAE1AADF48E3F56162B
 magnet:?xt=urn:btih:E9DA1B514E05D7160F287ED4827C4CC05715ADF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +558,8 @@ magnet:?xt=urn:btih:E9DA1B514E05D7160F287ED4827C4CC05715ADF1
 ```bash
 magnet:?xt=urn:btih:7F92C73467347FD4668F08F4891D248A68C32D2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +588,8 @@ magnet:?xt=urn:btih:7F92C73467347FD4668F08F4891D248A68C32D2E
 magnet:?xt=urn:btih:FF86B3085D2DBA8049C2B1B34F78AB6B9DD58FA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +615,8 @@ magnet:?xt=urn:btih:FF86B3085D2DBA8049C2B1B34F78AB6B9DD58FA8
 magnet:?xt=urn:btih:9F78DEED06DD38E9993B09BAC9F1B54295AEA6D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +640,8 @@ magnet:?xt=urn:btih:9F78DEED06DD38E9993B09BAC9F1B54295AEA6D8
 ```bash
 magnet:?xt=urn:btih:D7FE9EC8C46222DD89309C072F854A7D5CACECF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +667,8 @@ magnet:?xt=urn:btih:D7FE9EC8C46222DD89309C072F854A7D5CACECF8
 magnet:?xt=urn:btih:2EBCFC50EE6B83AD0BFC5AF4592C62BF6A736BD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,29 +693,7 @@ magnet:?xt=urn:btih:2EBCFC50EE6B83AD0BFC5AF4592C62BF6A736BD6
 magnet:?xt=urn:btih:CD4D066D2F1270633192DED6EFD7C85FDE352197
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150857   (577559) от 16.07.2017
-
-Линда Холмс | Шерлок Холмс. 5 минут на расследование (2017) [FB2]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Под обложкой этой книги собраны двадцать увлекательных криминальных историй и сорок шесть головоломных задач различной степени сложности. Это – прекрасный способ интересно и пользой провести досуг, поупражнять свой мозг и развить интеллект.Жанр: Зарубежная прикладная литература, Развлечения, ГоловоломкиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4076B8261F8373DAFE49B666190EB595AAAEB59
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

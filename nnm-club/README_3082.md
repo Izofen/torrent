@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:FA6C3D2015FCE6414254B200136BC5799B3B5240
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:FA6C3D2015FCE6414254B200136BC5799B3B5240
 ```bash
 magnet:?xt=urn:btih:E23690A864177A978B36EEE4D92FBFF55C6CCC23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:E23690A864177A978B36EEE4D92FBFF55C6CCC23
 ```bash
 magnet:?xt=urn:btih:551548FEB913A9C3651FAA065312A6B414B4D8F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -104,6 +110,8 @@ magnet:?xt=urn:btih:551548FEB913A9C3651FAA065312A6B414B4D8F8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -136,6 +144,8 @@ VA - Клубные Новинки Vol.56 from AGR (2012) [MP3|320 кб/с]<Club
 ```bash
 magnet:?xt=urn:btih:A9AF18F6C7E334F90AFA2D331DEC8C1F8F007BC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +180,8 @@ VA - Территория Звезд (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:773951AC3F540158A7A7533FB51D46F116F5931C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +214,8 @@ Spectro Senses - Power Core (2012) [MP3|320 кб/с]<Psychedelic / Full On>
 ```bash
 magnet:?xt=urn:btih:F41B48E1BD2E7C8A25EDF5B20EE8EB4543065FB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +250,8 @@ VNP - Trance Traveling 24 (2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:41839DF44E411AC820C8F819B6AC956FFD49AB97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +284,8 @@ Firebrand Super Rock - Firebrand Super Rock (2012) [MP3|320 кб/с]<Heavy Metal
 ```bash
 magnet:?xt=urn:btih:47F1730DFC8A0674E6677AD6CB192D28416E8E83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +320,8 @@ VA - Clubber.RU (2012) [MP3|320 кб/с]<Dance, Club>
 magnet:?xt=urn:btih:D9DECD66D2F6D091B2B218B6318B1EC740DE2C3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +354,8 @@ Shadowgarden - Ashen (2010) [FLAC|Lossless]<Gothic Dark Metal>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +390,8 @@ DJ Kocmoc - Electro Sensation vol.22 (12.03.2012) [MP3|320 кб/с]<Electro Hous
 magnet:?xt=urn:btih:156C1CCEEAEF8A5C6CE81A84854BD493A968FBFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +415,8 @@ magnet:?xt=urn:btih:156C1CCEEAEF8A5C6CE81A84854BD493A968FBFB
 ```bash
 magnet:?xt=urn:btih:F4B161308A18FEA8941E86EFDBAA0B88A31FCFB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +451,8 @@ VA - Клубная 100-ка (2012) [MP3|160-320 kbps]<Club>
 magnet:?xt=urn:btih:BBBB217C8C599001F9C6F49DDD1C6AF767064EE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +480,8 @@ magnet:?xt=urn:btih:BBBB217C8C599001F9C6F49DDD1C6AF767064EE5
 ```bash
 magnet:?xt=urn:btih:5E23F25A925691A0D58CB2B61716382C69B80E10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +516,8 @@ VA - Зажигательная Дискотека Non-Stop №15 (2012) [MP3|25
 magnet:?xt=urn:btih:FA6E91B896C42385395BB7AB5351DAEE3C213ACF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +541,8 @@ magnet:?xt=urn:btih:FA6E91B896C42385395BB7AB5351DAEE3C213ACF
 ```bash
 magnet:?xt=urn:btih:A815480EC3DFDE6BDE107FA77121D46448308EC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +577,8 @@ VA - Against Humanity (2011) [MP3|~249 кб/с (V0)]<Psy-Prog, Full On>
 magnet:?xt=urn:btih:28D8B565300B3D7B8C8F6D47F8E055F77473F96A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +612,8 @@ magnet:?xt=urn:btih:28D8B565300B3D7B8C8F6D47F8E055F77473F96A
 magnet:?xt=urn:btih:B41D6059B7B2537B27627D67909D601CF5E9049F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +637,8 @@ magnet:?xt=urn:btih:B41D6059B7B2537B27627D67909D601CF5E9049F
 ```bash
 magnet:?xt=urn:btih:545C96F06B3CDDF8FF5224D70ED4290FD844BB56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +673,8 @@ VA - Жаркие Танцы (2012) [MP3|160-256 kbps]<Club>
 magnet:?xt=urn:btih:FB17E265E07F8049F41264838B883CABCC7ED3F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +708,8 @@ Torchbearer - Death Meditations (2011) [WavPack|Lossless]<Melodic Death Metal/Bl
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -691,6 +735,8 @@ Ako - одна из четырех короткометражек входящи
 ```bash
 magnet:?xt=urn:btih:A9A6DAF581A24F82EC6625A45C442FB850040B3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -722,6 +768,8 @@ Excess Luggage - Hand Luggage Only (2011) [FLAC|Lossless]<Bop, Post-bop, Soul-ja
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -756,6 +804,8 @@ Lojaz - Полный бак (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
 magnet:?xt=urn:btih:AF73A25B7159D1BF409B7347864D715C0F83E22E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -783,6 +833,8 @@ magnet:?xt=urn:btih:AF73A25B7159D1BF409B7347864D715C0F83E22E
 ```bash
 magnet:?xt=urn:btih:739ECB56010723974B87E8B303597317802C5AB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:EC9954FD470A66E36FDC9BADC6B6426CE31BD3E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Chris Rea - Whatever Happened to Benny Santini? (1978) Reissue, 1991, EastWest [
 magnet:?xt=urn:btih:1F6B1D776FBE32564AD480F83291AED70D199E9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:1F6B1D776FBE32564AD480F83291AED70D199E9E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Tom Petty & The Heartbreakers - Live at the Fillmore (1977) 2022, Warner Records
 magnet:?xt=urn:btih:B7915ECCC27923BEB347A1761EA89557BA9555FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:B7915ECCC27923BEB347A1761EA89557BA9555FA
 ```bash
 magnet:?xt=urn:btih:214FE65D82853C17E3436F6FA57280773114C61E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:214FE65D82853C17E3436F6FA57280773114C61E
 magnet:?xt=urn:btih:BCBA3B1760D9B1289487E8865B6DCEA5F03D0481
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Camtasia Studio - мощная утилита для записи изображ
 ```bash
 magnet:?xt=urn:btih:85DCB10E5E433A647AFD3D3A53298A90107633BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Brain for the Masses - Monachopsis (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Meta
 magnet:?xt=urn:btih:5A46DA73525BEFF434A77F24EA6D4A30E033B197
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ David Maxim Micic - BILO IV (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 magnet:?xt=urn:btih:36BCE561C15016461D29DE4067A8BFD540C50608
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:36BCE561C15016461D29DE4067A8BFD540C50608
 magnet:?xt=urn:btih:88FF3A1AF1C1A0FA9F88B7FE987C4610619DBA0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:88FF3A1AF1C1A0FA9F88B7FE987C4610619DBA0F
 ```bash
 magnet:?xt=urn:btih:81A3C595E9DB3A0776D718CD1EFDC446E0A6FBA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:81A3C595E9DB3A0776D718CD1EFDC446E0A6FBA1
 magnet:?xt=urn:btih:B86CE0FA29B643D924A89F36E59C03ED38B71E6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:B86CE0FA29B643D924A89F36E59C03ED38B71E6D
 ```bash
 magnet:?xt=urn:btih:7CE334FA07CABCEA411E87E95E61B15938AEF0B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:7CE334FA07CABCEA411E87E95E61B15938AEF0B9
 magnet:?xt=urn:btih:F8593BB50D039A9C4435FC0E371503C740B65476
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:F8593BB50D039A9C4435FC0E371503C740B65476
 magnet:?xt=urn:btih:9C58887F6C0280A3D67C07015595EF08405E41AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:9C58887F6C0280A3D67C07015595EF08405E41AB
 ```bash
 magnet:?xt=urn:btih:36E355D0650C14F38D5FD32D1C1CAE2B8C14AFEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ Lari Basilio - The Sound of My Room (2015) [FLAC|Lossless|image + .cue] <Instrum
 magnet:?xt=urn:btih:51A84971B0552CF1D70C86199CA4F6F3018AE4A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:51A84971B0552CF1D70C86199CA4F6F3018AE4A7
 ```bash
 magnet:?xt=urn:btih:C633E585F0468292832EA39F2824835B36488A2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +510,8 @@ FlippedNormals, Emiel Sleegers | Создание научно-фантасти�
 magnet:?xt=urn:btih:3C609695CBAEDE8DD2FA49694A45E762E13ED360
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:3C609695CBAEDE8DD2FA49694A45E762E13ED360
 ```bash
 magnet:?xt=urn:btih:BC04434D104DBABC01AFB48D3ED5E2F58BD7E991
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:BC04434D104DBABC01AFB48D3ED5E2F58BD7E991
 magnet:?xt=urn:btih:F5F80D57CC1D1609821136B1AA70F758E7C535CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:F5F80D57CC1D1609821136B1AA70F758E7C535CD
 ```bash
 magnet:?xt=urn:btih:4B84350D043C941DE0124EA8E4E1D590B9A8DB36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:4B84350D043C941DE0124EA8E4E1D590B9A8DB36
 magnet:?xt=urn:btih:5087B14E33BD8D35F42108B24E33B6A8C4092EC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:5087B14E33BD8D35F42108B24E33B6A8C4092EC4
 ```bash
 magnet:?xt=urn:btih:7F90F2182AF82C9EC80A4C4A685AE6F1EEEC6F9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:7F90F2182AF82C9EC80A4C4A685AE6F1EEEC6F9D
 magnet:?xt=urn:btih:8C1248BF741F35CD011D921A08801D35D8DDF434
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ Leo's Fortune – интересный платформер, в котором �
 ```bash
 magnet:?xt=urn:btih:02033140BEF27AECD69FFFED11E9771E2DB8ACC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

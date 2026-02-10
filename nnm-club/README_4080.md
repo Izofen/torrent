@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:03B3FB3EA8A0A929D7C13E04648BED4CFD637A2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ AI - Russian Covers Part 2 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:416DAE0C3BCBD4DD1B253F190704494524E011B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Frezee - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Swing Jazz, Nu Jazz,
 magnet:?xt=urn:btih:181B831EA86D7C468BE1F84528AC8FBDB7AF4216
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ J.R. Waldram | The Theory of Thermodynamics (1987) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:4FC180A22052FB9DDCBD1C79C9F2E4BFCBB1912C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:4FC180A22052FB9DDCBD1C79C9F2E4BFCBB1912C
 magnet:?xt=urn:btih:FC7B560D37A4F694AE515088752C1E2639562C54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:FC7B560D37A4F694AE515088752C1E2639562C54
 ```bash
 magnet:?xt=urn:btih:6049B867171F351EE1D990D570F2BAD98C5A2BE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:6049B867171F351EE1D990D570F2BAD98C5A2BE1
 magnet:?xt=urn:btih:1318265D817124A80D202DA0B6ED2D5A9F955BA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:1318265D817124A80D202DA0B6ED2D5A9F955BA4
 ```bash
 magnet:?xt=urn:btih:2EFCC8754D7F853D4DC8399413BAF8F86CC16C40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:2EFCC8754D7F853D4DC8399413BAF8F86CC16C40
 magnet:?xt=urn:btih:43D90AE7C4B0AE3D52A7756FEF2441390EAEC172
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ ProFinansy, Наталья Котовская | Финансовая подуш�
 ```bash
 magnet:?xt=urn:btih:A0A41CA257F5A4FDCB3BBDAE195CC6B954753C84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:A0A41CA257F5A4FDCB3BBDAE195CC6B954753C84
 magnet:?xt=urn:btih:1EEB6E65ED38CD93A3EC98E648389940979664F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ Linux Magazine - журнал, целиком посвященный опера�
 ```bash
 magnet:?xt=urn:btih:900F1C6968AE199716E917E099CC20A1E7DDDA10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:900F1C6968AE199716E917E099CC20A1E7DDDA10
 magnet:?xt=urn:btih:FF6F4178293B75D4ECB26622E10CB8BB8D302EAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:FF6F4178293B75D4ECB26622E10CB8BB8D302EAB
 magnet:?xt=urn:btih:5028488BC79C02969E27E0946819800001872014
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:5028488BC79C02969E27E0946819800001872014
 ```bash
 magnet:?xt=urn:btih:81A68B9950BB16A6DA7527BF7463608D507F4869
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:81A68B9950BB16A6DA7527BF7463608D507F4869
 magnet:?xt=urn:btih:96A9A73743B692DD5A65F2B8184B2641754B707D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:96A9A73743B692DD5A65F2B8184B2641754B707D
 ```bash
 magnet:?xt=urn:btih:749A3FA02B6C867A3C57CD95B73C113F17BD3107
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:749A3FA02B6C867A3C57CD95B73C113F17BD3107
 magnet:?xt=urn:btih:89784B21BEBD8D4902456E80477635A133B9E4CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:89784B21BEBD8D4902456E80477635A133B9E4CE
 magnet:?xt=urn:btih:EB8A613D3AEDE14B84E8617C5B499B1D89EA2AEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:EB8A613D3AEDE14B84E8617C5B499B1D89EA2AEC
 ```bash
 magnet:?xt=urn:btih:6CECE3E30C6AE393483CD917BF7242A5767EB579
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ Little Nightmares III - это новая часть серии, предста�
 magnet:?xt=urn:btih:8C0D2801D88EB9DF47E667D6B099CD1A2D50B030
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:8C0D2801D88EB9DF47E667D6B099CD1A2D50B030
 ```bash
 magnet:?xt=urn:btih:4DE722628D64C6E729CF5D7EFEBF665763AC86AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ StageBoxx входит в группу цифровых библиотек, сп
 magnet:?xt=urn:btih:CDCF7C073BB3A36A193C9091A63E126A4723C6BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ TextureBoxx входит в группу цифровых библиотек, с
 ```bash
 magnet:?xt=urn:btih:973B900F76559B3A5983EC019E653983AA9D7CBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ Greyhaven - Keep It Quiet (2025) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Chaot
 magnet:?xt=urn:btih:E78B42A27CAC1613D03B32137D413E857D48C2A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ A4 Sa-ti Spun Adio(   Читать дальше...   )Жанр: Europop, Synth-p
 ```bash
 magnet:?xt=urn:btih:F753AB424058B8324B87ED6F6C24B08177C85591
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

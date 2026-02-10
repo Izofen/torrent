@@ -1,28 +1,3 @@
-###  Публикация: 576638   (362547) от 17.11.2012
-
-Легенда о МорДу / The Legend of Mor'Du (2012) [H.264/720p-LQ] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легенда о королевстве МорДу рассказанная ведьмой из мультфильма
-Храбрая сердцемЖанр: короткометражный, мультфильмРежиссер: Брайан ЛарсенПеревод: ДублированныйПродолжительность: 00:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A492B16F78733DC1A6C86D0FDAEC77549CF7990
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951238   (362602) от 29.10.2015
 
 Шевели ластами! / Sammy's avonturen: De geheime doorgang (2010) BDRemux [H.264/1080p]
@@ -43,6 +18,8 @@ magnet:?xt=urn:btih:7A492B16F78733DC1A6C86D0FDAEC77549CF7990
 ```bash
 magnet:?xt=urn:btih:E58F4F93EB8FEE39E5A95B5955096A187672121E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +45,8 @@ magnet:?xt=urn:btih:E58F4F93EB8FEE39E5A95B5955096A187672121E
 magnet:?xt=urn:btih:29FCEDAD6AAED3D6795215F7B6B51B4A1E2AF039
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +70,8 @@ magnet:?xt=urn:btih:29FCEDAD6AAED3D6795215F7B6B51B4A1E2AF039
 ```bash
 magnet:?xt=urn:btih:52EF5CDA50A6B8F88E8EC7CBA9E34A77FBB7D386
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +97,8 @@ magnet:?xt=urn:btih:52EF5CDA50A6B8F88E8EC7CBA9E34A77FBB7D386
 magnet:?xt=urn:btih:BF3E0975AFC33862AA9177BAF00375CA016035F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +122,8 @@ magnet:?xt=urn:btih:BF3E0975AFC33862AA9177BAF00375CA016035F4
 ```bash
 magnet:?xt=urn:btih:B4B36731889F42969F2E50680FC1E4D2867E70B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +149,8 @@ magnet:?xt=urn:btih:B4B36731889F42969F2E50680FC1E4D2867E70B1
 magnet:?xt=urn:btih:A2759F837B26EC6D533A976F69159E36DBD7A034
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +174,8 @@ magnet:?xt=urn:btih:A2759F837B26EC6D533A976F69159E36DBD7A034
 ```bash
 magnet:?xt=urn:btih:B1715C2A6F095666A7EA3D070D791A3E8E8935CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +201,8 @@ magnet:?xt=urn:btih:B1715C2A6F095666A7EA3D070D791A3E8E8935CE
 magnet:?xt=urn:btih:7207872257E526C6B0B417BE2B3088C496A782FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +226,8 @@ magnet:?xt=urn:btih:7207872257E526C6B0B417BE2B3088C496A782FD
 ```bash
 magnet:?xt=urn:btih:A8D1794CEA372B529E3CCC78092F50D191F3003C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +253,8 @@ magnet:?xt=urn:btih:A8D1794CEA372B529E3CCC78092F50D191F3003C
 magnet:?xt=urn:btih:728C630AE77A1718E33491B5990D9D36906392E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +278,8 @@ magnet:?xt=urn:btih:728C630AE77A1718E33491B5990D9D36906392E0
 ```bash
 magnet:?xt=urn:btih:D31803CF890C6498FF27755598F8F3C33D75CFFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +305,8 @@ magnet:?xt=urn:btih:D31803CF890C6498FF27755598F8F3C33D75CFFC
 magnet:?xt=urn:btih:358A257CCD370745BE8716A9576A0EF76857F673
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +330,8 @@ magnet:?xt=urn:btih:358A257CCD370745BE8716A9576A0EF76857F673
 ```bash
 magnet:?xt=urn:btih:7D0C5EFB47A10D3FD9ED445DB9185132A9DBD58E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +357,8 @@ magnet:?xt=urn:btih:7D0C5EFB47A10D3FD9ED445DB9185132A9DBD58E
 magnet:?xt=urn:btih:1778765CC8D4F59B48241FE45F594F36340D6D4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +382,8 @@ magnet:?xt=urn:btih:1778765CC8D4F59B48241FE45F594F36340D6D4F
 ```bash
 magnet:?xt=urn:btih:7B63433BA85F736758E542F085FB7B52A2393645
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +409,8 @@ magnet:?xt=urn:btih:7B63433BA85F736758E542F085FB7B52A2393645
 magnet:?xt=urn:btih:125F2975C339E0130FC6BDCD84643FD13D6A41FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +434,8 @@ magnet:?xt=urn:btih:125F2975C339E0130FC6BDCD84643FD13D6A41FC
 ```bash
 magnet:?xt=urn:btih:A6AB4543CD067EF960170F2E084D8797851F1583
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +461,8 @@ magnet:?xt=urn:btih:A6AB4543CD067EF960170F2E084D8797851F1583
 magnet:?xt=urn:btih:D61EEC7E1711A23CB004DC2DE46FD2EC57EB13F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +486,8 @@ magnet:?xt=urn:btih:D61EEC7E1711A23CB004DC2DE46FD2EC57EB13F2
 ```bash
 magnet:?xt=urn:btih:3F4F49D35E207BED56FEAB0870F677628D87E225
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +513,8 @@ magnet:?xt=urn:btih:3F4F49D35E207BED56FEAB0870F677628D87E225
 magnet:?xt=urn:btih:23C3DE45F8B0500138F2E18E9DEA11DE563127EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +538,8 @@ magnet:?xt=urn:btih:23C3DE45F8B0500138F2E18E9DEA11DE563127EC
 ```bash
 magnet:?xt=urn:btih:CC53E9E3B7B9049D8B26405772B7641C087750EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +565,8 @@ magnet:?xt=urn:btih:CC53E9E3B7B9049D8B26405772B7641C087750EF
 magnet:?xt=urn:btih:CE13524CC100E42116650894E93D01A9EAF8D210
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +590,8 @@ magnet:?xt=urn:btih:CE13524CC100E42116650894E93D01A9EAF8D210
 ```bash
 magnet:?xt=urn:btih:C78771E6E45D2EDC2A02099CCB4F14A7753F01CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +617,8 @@ magnet:?xt=urn:btih:C78771E6E45D2EDC2A02099CCB4F14A7753F01CF
 magnet:?xt=urn:btih:5DB2DBE27E394664B1B38ACCA2B76ADE72E467A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +642,34 @@ magnet:?xt=urn:btih:5DB2DBE27E394664B1B38ACCA2B76ADE72E467A9
 ```bash
 magnet:?xt=urn:btih:E4AFA381D7C37E4BD4E5B97499DFCF594E7BDA07
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254901   (369802) от 15.10.2018
+
+Константин: Город демонов / Constantine: City of Demons (2018) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь экзорциста Джона Константина может закончится в любой момент. Его убивает не только пагубная привычка выкуривать по десятку сигарет в день, но и утомительная работа, ведь изгонять демонов из человеческого мира — дело непростое. Каждое новое столкновение с силами зла заставляет Джона вступать в схватку, где победу способны принести не только острый ум и знание (   Читать дальше...   )Производство: США /  Warner Bros. Animation,DC Comics,DC EntertainmentЖанр: МультфильмРежиссер: Даг МерфиАктеры: Лора Бэйли (Trish / Asa the Healer, озвучка), Робин Аткин Даунс (Nergal, озвучка), Мэтт Райан (John Constantine, озвучка), Кевин Майкл Ричардсон (Mahonin, озвучка) и др.Перевод: Многоголосый закадровый (ненормативная лексика)Озвучка / Автор перевода: Flarrow Films / ColdFilmСубтитры: Английские, французские, немецкие, испанскиеПродолжительность: 01:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95A8C988D3DA3C849E29B7023D9F1ABECF3B614F
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

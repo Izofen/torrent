@@ -1,3 +1,166 @@
+###  Публикация: 1317969   (498501) от 03.08.2019
+
+Adriano Celentano - World Name (2003) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Confessa
+02. Amore No
+03. Dimenticare E Recominciare
+04. I Passi Che Facciamo(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB71890D3499C2C7EC48DF60D4B684B686E6984A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564774   (498577) от 20.07.2022
+
+King Sporty - Mr. Rhythm (1977) [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Rhythm (4:18)
+02. Good Loving (4:34)
+03. Shake It, Shake It (3:43)
+04. Keep On Dancing (4:09)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:31:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C691EAD2E01218CFD86779E1A2F7D78E55313B28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 235446   (498602) от 11.09.2010
+
+Lenka - Lenka (2008) [MP3|320 kbps]<Pop, Easy-listening>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498602.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Show (3:55)
+2. Bring Me Down (3:28)
+3. Skipalong (3:52)
+4. Don't Let Me Fall (2:50)
+5. Anything I'm Not (3:18)
+6. Knock Knock (3:40)
+7. Dangerous And Sweet (3:31)
+8. Trouble Is A Friend (3:35)
+9. Live Like You're Dying (3:49)
+10. Like A Song (3:20)(   Читать дальше...)Жанр: Pop, Easy-listeningПродолжительность: 00:44:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542075   (499053) от 02.09.2012
+
+VA - Pop & Rock Klub80 (2007) 2CD[FLAC|Lossless]<Pop, Rock, Disco, Oldes>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Status Quo - In The Army Now [06:17]
+02. Fine Young Cannibals - She Drives Me Crazy [07:06]
+03. Nik Kershaw - The Riddle [05:11]
+04. Sandra - Little Girl [05:11]
+05. Maxi Priest - Wild World [06:10]
+06. Roxette - Dangerous [06:26]
+07. Cock Robin - The Promise You Made [06:39]
+08. The Stranglers - Midnight Summer Dream [10:37]
+09. Duran Duran - Rio [06:42]
+10. Tears For Fears - Shout [08:02](   Читать дальше...   )Жанр: Pop, Rock, Disco, OldesПродолжительность: 01:19:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542313   (499108) от 02.09.2012
+
+VA - Disco Discharge - Euro Disco (2009) 2CD [FLAC|Lossless]<Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gaz Nevada - I.C. Love Affair [06:30]
+02. Advance - Take Me To The Top [06:18]
+03. Change - Change Of Heart [07:06]
+04. Kano - I'm Ready [07:15]
+05. Laura Branigan - Self Control [05:01]
+06. Eighth Wonder - I'm Not Scared (Disco Mix) [08:00]
+07. Propaganda - P Machinery (Polish) [09:24]
+08. Mike Maureen - Dancing In The Dark [05:36]
+09. Fun Fun - Happy Station ( Scratch Mix) [05:57]
+10. Time Bandits - Live It Up (Album Version) [07:26](   Читать дальше...   )Жанр: Disco, PopПродолжительность: 01:16:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 542305   (499115) от 02.09.2012
 
 VA - Disco Discharge - Classic Disco (2009) 2CD [FLAC|Lossless]<Disco, Pop>
@@ -27,6 +190,8 @@ VA - Disco Discharge - Classic Disco (2009) 2CD [FLAC|Lossless]<Disco, Pop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -60,6 +225,8 @@ Silvetti - Spring Rain  (2006) [FLAC|Lossless]<Disco,Funk,Soul>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -86,6 +253,8 @@ Prince - HITnRUN Phase One (2015) [MP3|320 кб/с]<Pop, Soul, Funk>
 ```bash
 magnet:?xt=urn:btih:C4BE45E735922725509896E8A45FA9DE2AC49B47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -114,6 +283,8 @@ CD1:
 magnet:?xt=urn:btih:956BFDE689604453869768B8E59DDCFF787F7CD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +312,8 @@ Phildel - The Disappearance Of The Girl (2013) [OGG| 397-475 кб/с]<Alternativ
 magnet:?xt=urn:btih:81A9431831C189AF24FECA0D45307A65F62E8DC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +340,8 @@ Patchwork - Hair Of The Dog (1978) LP [MP3|320 Kbps] <Space Rock, Disco>
 ```bash
 magnet:?xt=urn:btih:9278CE766F03B5DF16B6DAE2BD6A4FE4C085243E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +376,8 @@ VA - Compact Disc Club - Dreams (1997) 4CD BoxSet[FLAC|Lossless]<Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +411,8 @@ VA - Disco Discharge - Cruising The Beats (2011) 2CD [FLAC|Lossless]<Disco, Funk
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +442,8 @@ CD3 - Waterloo 1974(   Читать дальше...   )Жанр: Pop, Pop Rock, 
 ```bash
 magnet:?xt=urn:btih:D2680431E941EC7D8B70058B74C0683E942760CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +478,8 @@ VA - Pop Icons [The Mail On Sunday] (2003) [FLAC|Lossless]<Pop, Europop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +513,8 @@ VA - Pop Icons [The Mail On Sunday] (2003) [FLAC|Lossless]<Pop, Europop>
 magnet:?xt=urn:btih:5590535113E93064C64F3AFC7F1BF0E055B1291F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +541,8 @@ George Michael - White Light (CD Single) (2012) [FLAC|Lossless]<Pop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +577,8 @@ Umberto Tozzi - Yesterday Today  1976-2012  (2012) 2CD [FLAC|Lossless]<Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +612,8 @@ VA - Best Of Comeback United (2004) 2CD [FLAC|Lossless]<Europop, Pop Rock, Euro 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +641,8 @@ Martina - Disco 'Round The World (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul
 magnet:?xt=urn:btih:CD54451F9566D0F006848ED3CD575F1BD9D902A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +669,8 @@ A-Ha - Cast In Steel (2015) 2CD [FLAC|tracks+.cue]<Pop>
 ```bash
 magnet:?xt=urn:btih:0AEA118B4006F4F6F0127D95C1196DD6F1F305BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +705,8 @@ V.A. - Королева красоты (Золотой Фонд) (2000) [FLAC|Lo
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +733,8 @@ VA - The Greatest Hits / Singer-Songwriter (2015) 2CD[FLAC|image + .cue]<Pop, Ro
 ```bash
 magnet:?xt=urn:btih:4406A3538D05EA2963E87DB91C6E9E98764DA51D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +763,8 @@ Fun Fun - The 12'' Singles (2022) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 magnet:?xt=urn:btih:F29717F25B51E9F55039A39EECF0626F06A867FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +788,8 @@ Jessie J - Who You Are (2011) Deluxe Edition [MP3|320 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:64FC0EC728BF2F654620961BC3EF12B656EEEF69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,140 +819,7 @@ CD2 - 00:26:47Треклист CD1:
 magnet:?xt=urn:btih:DC93295853AE16815FAD714C4C44BF5031C5A6A3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563576   (503513) от 15.07.2022
-
-Eruption - Eruption - The Best Of Eruption (1981) Compilation, Remastered, 2017, Big Break Records [MP3|320 Kbps] <Funk, Soul, Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Stand The Rain (3:09)
-02. Go Johnny Go (Keep On Walking, John B.) (3:30)
-03. Leave A Light (I'll Keep A Light In My Window) (4:21)
-04. Movin' (4:27)(   Читать дальше...   )Жанр: Funk, Soul, Pop, DiscoПродолжительность: 01:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C12FA8D65282D348365E29516FFDBB5E23B994D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563723   (503519) от 15.07.2022
-
-Dina Summer - Rimini (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Italo Disco, Indie Dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dominator (4:02)
- 02. Mars (4:54)
- 03. Uranos (5:32)
- 04. Revenge (3:35)(   Читать дальше...   )Жанр: Electronic, Italo Disco, Indie DanceПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02B59AAEF6CC2E3C508AE1313AB9560D533F071D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933720   (503650) от 04.09.2015
-
-Stella (Стелла) - Я в это верю (2003) [FLAC|image+.cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Just you and me
-02 Не в первый раз
-03 Майский ливень
-04 Он не вернется(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D280EBC7722FEC53762DB4F2990852F4B7EEA76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934180   (503654) от 04.09.2015
-
-Вячеслав Быков - Для неё весь мир (2003) [FLAC|image+.cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Для неё весь мир [03:34]
-02. Моя звезда [03:24]
-03. Лаура [03:48]
-04. Где я, где ты [03:56](   Читать дальше...   )Жанр: PopПродолжительность: 00:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9C508C90CBF6BCE55ECE4EE2D36CE049B1AD25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316891   (504045) от 28.07.2019
-
-VA - BRAVO Hits 106 (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Dance, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504045.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Shawn Mendes & Camila Cabello - Señorita  (3:12)
-02. Sarah Connor - Vincent  (4:43)
-03. Pedro Capó & Farruko - Calma (Remix)  (3:59)(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 02:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FB3383E3B8C54D3AA18681BF9DFACC19D00426A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

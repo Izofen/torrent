@@ -1,3 +1,29 @@
+###  Публикация: 1395196   (757193) от 09.07.2020
+
+Вызов вершин. Доломитовые Альпы (Италия) / Extreme Treks (2018) HDTV [H.264/1080i] (Сезон 2, эпизод 4)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757193.jpg" />
+</div>
+
+
+###  Подробнее
+
+На севере Италии, в Южных Известняковых Альпах, пролегает горный массив, который притягивает туристов своей живописной красотой и разнообразием форм. Любители активного отдыха приезжают испытать свои силы,   что бы посмотреть на красоту природы.Производство: EU, Ryan Pyle ProductionsЖанр: Документальный, познавательный, путешествияРежиссер: Райан ПилПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9A338813B300C76231304BB7557539D93F6B365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395181   (757195) от 09.07.2020
 
 Наше кино. История большой любви (2007-2020) IPTVRip [H.264/720p-LQ] (серии 83-136 из ?) (Обновляемая)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:D81F7C5CC1CACCC17387825345A67C6A1171A56E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ NG. Дикая природа Амазонки / Wild Amazon (2010) HDTVRip [H.2
 magnet:?xt=urn:btih:920989782C6A0589102E44CEFC2281DCAB198CAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:920989782C6A0589102E44CEFC2281DCAB198CAD
 ```bash
 magnet:?xt=urn:btih:50DCF7BF32DB85508ADADFAF9A19BB414C3A986F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:50DCF7BF32DB85508ADADFAF9A19BB414C3A986F
 magnet:?xt=urn:btih:1BF9750CCCF66A68AD30F34F98EF4561C4DBFDA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:1BF9750CCCF66A68AD30F34F98EF4561C4DBFDA9
 ```bash
 magnet:?xt=urn:btih:A4DDD5FA0EBDE152813919D4980C1D65CD74EB76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:A4DDD5FA0EBDE152813919D4980C1D65CD74EB76
 magnet:?xt=urn:btih:B504F613919ECC6815AF183F864D2DCDA6A6FF32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:B504F613919ECC6815AF183F864D2DCDA6A6FF32
 ```bash
 magnet:?xt=urn:btih:D3C91283F81F8380DFB8C04AF782EF4FD8C9BAE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:D3C91283F81F8380DFB8C04AF782EF4FD8C9BAE2
 magnet:?xt=urn:btih:0FCD9F769CA7DD8D8F96C7160311A8BC91FB6782
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:0FCD9F769CA7DD8D8F96C7160311A8BC91FB6782
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ Viva Amiga: история прекрасной машины / Viva Amiga: The S
 magnet:?xt=urn:btih:3A18A2B52FBDE5A5478D934F4DACC090542CB494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:3A18A2B52FBDE5A5478D934F4DACC090542CB494
 ```bash
 magnet:?xt=urn:btih:D78B3B5E1C15EF94F56ED55CE307F198F8AE30A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:D78B3B5E1C15EF94F56ED55CE307F198F8AE30A3
 magnet:?xt=urn:btih:53B960984D0C7F0795F5EEC512FDF3440E8A5A38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:53B960984D0C7F0795F5EEC512FDF3440E8A5A38
 ```bash
 magnet:?xt=urn:btih:C6B30D6E1AD6C3167147D8EB521204A52235CE8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:C6B30D6E1AD6C3167147D8EB521204A52235CE8A
 magnet:?xt=urn:btih:5582E888FD737E4E9A5B7946C1BBDD8F6CCDD3F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:5582E888FD737E4E9A5B7946C1BBDD8F6CCDD3F3
 ```bash
 magnet:?xt=urn:btih:2B2E5CCFC5A6AB5F428DCA250754D87F847F4C74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:2B2E5CCFC5A6AB5F428DCA250754D87F847F4C74
 magnet:?xt=urn:btih:5AC3696E9A8A9A7D7F5F6EB745EFB549152C8857
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ magnet:?xt=urn:btih:5AC3696E9A8A9A7D7F5F6EB745EFB549152C8857
 ```bash
 magnet:?xt=urn:btih:9A91BF347DA12BC600DCE74C0B6137DAAE27C4F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:9A91BF347DA12BC600DCE74C0B6137DAAE27C4F0
 magnet:?xt=urn:btih:164B1F5EB5F10A9B828AE9D283ACC2E6A6FEBBDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +513,8 @@ magnet:?xt=urn:btih:164B1F5EB5F10A9B828AE9D283ACC2E6A6FEBBDF
 ```bash
 magnet:?xt=urn:btih:A8F73F2CFE60170BDCD8994889287CA80670482F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:A8F73F2CFE60170BDCD8994889287CA80670482F
 magnet:?xt=urn:btih:649AC8F5594791DDA0FBC1538638426EC24A37EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +565,8 @@ NG. Тайная жизнь хищников / Secret Life of Predators (2013) H
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +592,8 @@ NG. Тайная жизнь хищников / Secret Life of Predators (2013) H
 magnet:?xt=urn:btih:CF8F6427AF41DB6BBDDB6721E7B8F67B492D2430
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +617,8 @@ magnet:?xt=urn:btih:CF8F6427AF41DB6BBDDB6721E7B8F67B492D2430
 ```bash
 magnet:?xt=urn:btih:E18C24BEDA41F5C30F46C30C7718DD3E0C840C26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +644,8 @@ magnet:?xt=urn:btih:E18C24BEDA41F5C30F46C30C7718DD3E0C840C26
 magnet:?xt=urn:btih:AC55E581B6F35F9C09FFF0EFEF1723CAA796E344
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,29 +670,7 @@ magnet:?xt=urn:btih:AC55E581B6F35F9C09FFF0EFEF1723CAA796E344
 magnet:?xt=urn:btih:F9C7B8E927B4B9D9555C5F51626C13EE3A277E40
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215166   (759725) от 25.03.2018
-
-Голос. Дети (23.03.2018) WEBRip [H.264] (сезон 5, выпуск 7)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759725.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Первый канал" представляет премьеру пятого сезона музыкального проекта "Голос. Дети". Детский конкурсный проект строится по тем же принципам, что и взрослый. Из тысяч заявок на участие, присланных в адрес "Первого канала", музыкальная редакция отобрала несколько сотен самых достойных. В ходе предварительных кастингов к участию в слепых (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТВ-шоуПродолжительность: 01:30:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B16034EC469C2ACDC27E4D773F61B2F44605B147
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

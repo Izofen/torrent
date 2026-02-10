@@ -1,3 +1,29 @@
+###  Публикация: 1316396   (505771) от 26.07.2019
+
+Тайное царство: Грибы, определившие наш мир / The Kingdom: How Fungi Made Our World (2018) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_505771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всей сушей правит одно скрытое от глаз царство. Грибы можно встретить не только в лесу – они повсюду: на наших ногах, в наших легких, чего бы вы не коснулись и куда бы вы не пошли. Окунитесь в мир неизведанных и могучих древних организмов.Производство: Канада, Real to Reel Productions, Smith & NashtЖанр: Документальный, познавательныйРежиссер: Annamaria TalasПеревод: Двуголосый профессиональный, 1ТВЧПродолжительность: 00:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0333061FDCCE2FB31F4E4E82BD3564044B29812
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316496   (505908) от 26.07.2019
 
 Дикая Южная Африка: Сафари / Wildlife South Africa: Safari (Wildlife Südafrika) (2012) BDRemux [H.264/1080p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:A90FA4DD3676EE384E79C44C1B2A8103336CF9E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:A90FA4DD3676EE384E79C44C1B2A8103336CF9E7
 magnet:?xt=urn:btih:4660033C0AC7E5D6CCC22C7B6C2D2132F7B77423
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:4660033C0AC7E5D6CCC22C7B6C2D2132F7B77423
 ```bash
 magnet:?xt=urn:btih:B4B58294E22DE1B8EF15B13555E0DBDA280BBE30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:B4B58294E22DE1B8EF15B13555E0DBDA280BBE30
 magnet:?xt=urn:btih:09616C8F42580C47969723DBE1E71966AA7D8979
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:09616C8F42580C47969723DBE1E71966AA7D8979
 ```bash
 magnet:?xt=urn:btih:653F753D33EE975CB0FA23E26CBCF4B014463485
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:653F753D33EE975CB0FA23E26CBCF4B014463485
 magnet:?xt=urn:btih:E19D590C6299BC13B5B0FC636E2A3768F197B5DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:E19D590C6299BC13B5B0FC636E2A3768F197B5DF
 ```bash
 magnet:?xt=urn:btih:1C526C31A443F32C401FBDB6D120A836A5E968BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:1C526C31A443F32C401FBDB6D120A836A5E968BC
 magnet:?xt=urn:btih:5E505A2516B4AA91CB471537C218D08F093BC0F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:5E505A2516B4AA91CB471537C218D08F093BC0F1
 ```bash
 magnet:?xt=urn:btih:46D3401C949DFFB94861E1CD94EC233CFCD61122
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:46D3401C949DFFB94861E1CD94EC233CFCD61122
 magnet:?xt=urn:btih:273D14FD54EE540D021FCA909C280D6340C93F69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:273D14FD54EE540D021FCA909C280D6340C93F69
 ```bash
 magnet:?xt=urn:btih:F0B63E2156314E8905AE30AD51F3ACAAAF7B46C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:F0B63E2156314E8905AE30AD51F3ACAAAF7B46C4
 magnet:?xt=urn:btih:7CA53FE9C0BBD7FF12823584E4E8B0751629AF4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:7CA53FE9C0BBD7FF12823584E4E8B0751629AF4A
 ```bash
 magnet:?xt=urn:btih:1D1DAA8A2E54BA0E42640EDF83737DCC9A768EB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:1D1DAA8A2E54BA0E42640EDF83737DCC9A768EB4
 magnet:?xt=urn:btih:E9F0D22D9D1E3C63B6D64B641420AF76748C6414
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:E9F0D22D9D1E3C63B6D64B641420AF76748C6414
 magnet:?xt=urn:btih:04583D58701DD704605A22B590BD9F9876749789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:04583D58701DD704605A22B590BD9F9876749789
 ```bash
 magnet:?xt=urn:btih:053C066607663C2210C66E010B5557ED904AE92A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:053C066607663C2210C66E010B5557ED904AE92A
 magnet:?xt=urn:btih:C1D0A667E3D9380EA32BA1488098DE2F0B7A9EA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:C1D0A667E3D9380EA32BA1488098DE2F0B7A9EA7
 ```bash
 magnet:?xt=urn:btih:1EB01AD6353E75120583EBDE6DD79472ED447FF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:1EB01AD6353E75120583EBDE6DD79472ED447FF7
 magnet:?xt=urn:btih:8EDA4326B7229EB2F1E8314AB2E9EB4A28471C80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:8EDA4326B7229EB2F1E8314AB2E9EB4A28471C80
 ```bash
 magnet:?xt=urn:btih:4E0A2556060B86E44CB6875195E95F0B2EF09E55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:4E0A2556060B86E44CB6875195E95F0B2EF09E55
 magnet:?xt=urn:btih:E20B916940FFD7E1E7755203FF2770E4E5B986BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:E20B916940FFD7E1E7755203FF2770E4E5B986BF
 ```bash
 magnet:?xt=urn:btih:7628A92822446A11C5AAF1424C1272EA484B76BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:7628A92822446A11C5AAF1424C1272EA484B76BF
 magnet:?xt=urn:btih:24D654ABA63397E34FFFA9C62654E0543052ED91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:24D654ABA63397E34FFFA9C62654E0543052ED91
 ```bash
 magnet:?xt=urn:btih:DC5584AB1F55344E5ABB19B75A758B84CC26A7D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,32 +674,7 @@ magnet:?xt=urn:btih:DC5584AB1F55344E5ABB19B75A758B84CC26A7D1
 magnet:?xt=urn:btih:62E4DE9E4558A4986887CE731F342C1D01722981
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 377987   (507366) от 20.08.2011
-
-Военная тайна (2011) SATRip (114 выпусков)
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507366.jpg" />
-</div>
-
-
-###  Подробнее
-
-- Операция "Сокрытие": Как неопознанный космический корабль оказался на дне Балтийского моря?;
-- Неизвестные страницы Чеченской войны. Герои нашего времени;
-- Боевая колесница Цахала. Почему израильский танк считается лучшим в мире?;
-- Пасха - остров тайн и загадок, территория неизведанного;(   Читать дальше...   )Жанр: ДокументальныйПеревод: ОтсутствуетПродолжительность: 01:12:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5CADBBB678F5664FF57D17B88B25B9F7B1D29D3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

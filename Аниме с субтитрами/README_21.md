@@ -19,6 +19,8 @@ Vivy: Fluorite Eye's Song | Виви: Песнь флюоритового гла
 magnet:?xt=urn:btih:7BE3C18E3357EDEC2C49F6F72EA67A85D74A30C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Seishun Buta Yarou wa Bunny Girl Senpai no Yume o Minai / Rascal Does Not Dream 
 ```bash
 magnet:?xt=urn:btih:9399C0D8A7CF332CC74932B2A5E023D0A3E8D94C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Hataraku Saibou | Cells at Work! | Клетки за работой [2018, TV, 1
 magnet:?xt=urn:btih:BEE60E07336E6BEECD61D0CC7714FAE693176879
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Sono Toki, Kanojo wa. | И тогда она... [2018, TV, 12] WEBRip 720p raw
 ```bash
 magnet:?xt=urn:btih:3AFDF290A721C6B54FC1B52D0045622E604AD378
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Ushio to Tora / Усио и Тора [ТВ-1] [2015, TV, 26 из 26] HDTV 720p R
 magnet:?xt=urn:btih:FED9AFC610D1C23D5240B1243CB9EF1C1CFB5691
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Magic-Kyun! Renaissance / Магия-кюн: Ренессанс [2016, TV, 13 и
 ```bash
 magnet:?xt=urn:btih:69FDECD1422C83759E86E57C12E2F6F96043C50A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Anitore! EX / Anime de Training! EX / Тренировки с аниме! [2015,
 magnet:?xt=urn:btih:47416C99B43E7A57C41F298B641BA39CA357A26C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Sidonia no Kishi: Daikyuu Wakusei Seneki | Knights of Sidonia: Battle for Planet
 ```bash
 magnet:?xt=urn:btih:995DDDDEE836F9728CCDDB72314507C70EC265F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Mama wa Shougaku Yonensei / Mama is a 4th Grader / Мама-четверокла
 magnet:?xt=urn:btih:D5CABB375BB9D8AA19BE291FFDA370C5F304F7FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Iwa Kakeru! Sport Climbing Girls | Скалолазки [2020, TV, 12 эп.] WEB
 magnet:?xt=urn:btih:699472943A3EFCF7D6DDFA92315B5B776DEE8B2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ Visual Prison | Визуальная тюрьма [2021, TV, 12 эп.] WEBRip 72
 ```bash
 magnet:?xt=urn:btih:B9E3C96D8FEA6B13FBDD088B39E97F1439287BD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Golden Kamuy (2020) | Золотое божество [ТВ-3][2020, TV, 12 эп
 magnet:?xt=urn:btih:85A48A4F69073107F09F9808F273EC5B35B88800
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Assault Lily: Bouquet | Штурмовая Лилия: Букет [2020, TV, 12 
 ```bash
 magnet:?xt=urn:btih:60C974D30E8253F2F2435A38870E9807B448832A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Youkai Apartment no Yuuga na Nichijou | Elegant Yokai Apartment Life | Элег�
 magnet:?xt=urn:btih:DDFC3012A616E6D4CFEDB645D9929EDB4B728300
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Code:Realize Sousei no Himegimi | Код понимания: Страж пере
 magnet:?xt=urn:btih:157264B685CB89BBCEC400B482A67065496B8E94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Kino no Tabi: The Beautiful World - The Animated Series | Kino`s Journey: The Be
 ```bash
 magnet:?xt=urn:btih:D8AA59A53C5B244ECC54E66668DC9868EC020CA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Zombieland Saga | Zombie Land Saga | Зомбиленд. Сага [2018, TV, 12 
 magnet:?xt=urn:btih:DE43A0341C2E9FA0B628A5F69495B74C110873E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Keijo!!!!!!!! / Кейджо !!!!!!!! [2016, TV, 12] HDTV 720p raw
 ```bash
 magnet:?xt=urn:btih:86C4A4606A3FCED0DFDA746B15662D84D8C579EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Tonari no Kyuuketsuki-san | Ms. Vampire Who Lives in My Neighborhood. | Госп
 magnet:?xt=urn:btih:411017BD9F833A73931CE4033B57B875D6017AA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Conception / Зачатие [2018, TV, 12] HDTV 720p raw
 ```bash
 magnet:?xt=urn:btih:0FAE5506C85968E3470FD2EDC0ED2EC5569CF685
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Sora to Umi no Aida | Between the Sky and Sea | Между небом и мор�
 magnet:?xt=urn:btih:B1B4A1CC3EC21B1BDDBF4DD97D71B0A90E26282F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Bermuda Triangle: Colorful Pastorale | Бермудский треугольни
 ```bash
 magnet:?xt=urn:btih:D532F1537A89D568DB76B8ED4DB93766F52058D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ Beelzebub-jou no Oki ni Mesu Mama. | As Miss Beelzebub Likes | Как госпо
 magnet:?xt=urn:btih:774507E2CC37CCC29A844736D3F4A93D35F00B1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ Drifters | Скитальцы [2016, TV, 12] HDTV 720p raw
 ```bash
 magnet:?xt=urn:btih:14BC70421F95E5941CBD1ED037257D615EA96C2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ Watashi ga Motete Dousunda / Kiss Him, Not Me / Целуй его, а не ме�
 magnet:?xt=urn:btih:CF00BF889804E1626CABFE721DAF9B25C5298FCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Touken Ranbu: Hanamaru / Дикая пляска мечей: Ханамару [2
 ```bash
 magnet:?xt=urn:btih:397BE8830923ED9F4364C1FD769133FEF003EBE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

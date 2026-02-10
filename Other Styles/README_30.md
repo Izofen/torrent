@@ -22,6 +22,8 @@ Rupert Gregson-Williams - Aquaman / Аквамен (Original Motion Picture Soun
 magnet:?xt=urn:btih:07341E9A24B3A72CB0F63BC8C9851B2F46241D1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Tom Holkenborg aka Junkie XL - Mortal Engines / Хроники хищных го
 magnet:?xt=urn:btih:A0DEBE8CB2B5D123B78F4EFB9C0FA1D1414543B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ Rupert Gregson-Williams - Aquaman / Аквамен (Original Motion Picture Soun
 ```bash
 magnet:?xt=urn:btih:1FC2CA5BEA282F7B31F708536E17D782AA6BD885
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ KamaSutra - Kama Sutra Erotic Massage (2011) [MP3|320 кб/с]<New Age, Relax>
 magnet:?xt=urn:btih:4D6D4ACFEDC4839F21A3E6A5927C731807AC439B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +143,8 @@ Tom Holkenborg aka Junkie XL - Mortal Engines / Хроники хищных го
 ```bash
 magnet:?xt=urn:btih:4EE002060B6E230601DC27E24400FE8441010DB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +173,8 @@ Steve Jablonsky - Skyscraper / Небоскреб (Original Motion Picture Sound
 magnet:?xt=urn:btih:FFB2CD312B9DE8C95BFC8B9A4CC010853457D98D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +202,8 @@ Steve Jablonsky - Skyscraper / Небоскреб (Original Motion Picture Sound
 magnet:?xt=urn:btih:47619DFC3AEE548A6EF1EA4B617180FAAA8ACFC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ Enigma - MCMXC a.D. (1990) [FLAC|Lossless|tracks + .cue] <Abstract, Ambient>
 ```bash
 magnet:?xt=urn:btih:E1B62C5966E26E515A6CB632A033389372217245
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +266,8 @@ magnet:?xt=urn:btih:E1B62C5966E26E515A6CB632A033389372217245
 magnet:?xt=urn:btih:E81A95EED29914C7C8675EF39141A3CC54F58A37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +294,8 @@ Rezodrone - Gods Of Metal Ragnarock (2023) [FLAC|Lossless|WEB-DL|tracks] <OST, E
 ```bash
 magnet:?xt=urn:btih:DC87D80FCAB00DBED11F519006CA6C790BA6D075
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +324,8 @@ Michael Giacchino - Rogue One: A Star Wars Story / Изгой-один: Звёз
 magnet:?xt=urn:btih:7F7FD3F822B02828D0E31F46541CC6E88AD08A38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +352,8 @@ Abel Korzeniowski - Penny Dreadful / Страшные сказки: Seasons 2 & 
 ```bash
 magnet:?xt=urn:btih:7E779B025F094867A68CBEC4693E445A284C8C8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +382,8 @@ Abel Korzeniowski - Penny Dreadful / Страшные сказки: Seasons 2 & 
 magnet:?xt=urn:btih:843E1C979723BC3193E22375AC6BBADD376745E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +410,8 @@ Faith Hill - It Matters To Me (1995) Warner W2 45872 [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:C6D0F606A43E7539030EAF62CF8AA1AA61B0CBED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +440,8 @@ Tom Barabas - Sedona Suite (1992) [FLAC|Lossless|tracks + .cue] <New Age, Piano>
 magnet:?xt=urn:btih:CAAADF2E89100C4632778ECE748E06277EEE5CD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +468,8 @@ magnet:?xt=urn:btih:CAAADF2E89100C4632778ECE748E06277EEE5CD0
 ```bash
 magnet:?xt=urn:btih:188892C453E405F28819EAD8EEFAC9AD8F341AD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +498,8 @@ Amure (Alexey Khatsko) - Geo (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enig
 magnet:?xt=urn:btih:6BAFB477885A7B964656228CFE2F5874D8CE0887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +526,8 @@ VA - Sweet Saxophone (2000) 3 CD [FLAC|Lossless|image + .cue] <Pop, Instrumental
 ```bash
 magnet:?xt=urn:btih:F8CFBFC8BC97DEC78A809584E35D641650086A77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +556,8 @@ magnet:?xt=urn:btih:F8CFBFC8BC97DEC78A809584E35D641650086A77
 magnet:?xt=urn:btih:34D38B8AF61EB8205B5A36258EA85463F731FA98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +585,8 @@ CD1 - Playback FM & Radio Los Santos (Hip Hop):
 magnet:?xt=urn:btih:839B7F2B976EE9F827E0B35E5030267A0E7158DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +613,8 @@ Serial Cleaner - Soundtrack (2017) [MP3|320 Kbps] <Soundtrack>
 ```bash
 magnet:?xt=urn:btih:730133466277A06E9A1261695214BED2E6B51CFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +649,8 @@ Epic North Music - Masters of the Sea (2014) [MP3|192 кб/с]<Trailer Music>
 magnet:?xt=urn:btih:586172BCCA18072F2CC7A5F1E39B2B41BC94208B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +684,8 @@ Cavendish Trailers - Action Thriller 6 (2014) [MP3|320 кб/с]<Trailer Music>
 magnet:?xt=urn:btih:B6B39BAD0304167A5E6559A4C7840B67B13E2388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +718,8 @@ Naseer Shamma - Viaje de las almas (Travelling souls) (2011) [MP3|320 кб/с]<F
 magnet:?xt=urn:btih:434B8BE7D0716345915D60F02EEFC95FFC4F93B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -698,6 +746,8 @@ Santiago Lara - 2 альбома (2007, 2012) [MP3|320 кб/с]<Folk, Flamenco>
 ```bash
 magnet:?xt=urn:btih:42D59CBEDD482238FA1B2143C127FBA917900832
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -731,6 +781,8 @@ PostHaste Music - Courage And Power (2014) [MP3|320 кб/с]<Trailer Music>
 ```bash
 magnet:?xt=urn:btih:20448B0ADF156C7AFCBE12DA77AF643231D38D86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

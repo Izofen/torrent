@@ -20,6 +20,8 @@ NGW: Невероятная Африка. Закума / Extraordinary Africa. Z
 magnet:?xt=urn:btih:822B4BFDCE2AAC6072E49320E984BEFBDFD37496
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ NGW: Самые опасные змеи в мире / World's deadliest snakes (
 ```bash
 magnet:?xt=urn:btih:000951E33A02CB1F7687FC7258B6A7B0D2CC0B27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ NG: Путешествие к ядру Земли / Down to the Earth's core (20
 magnet:?xt=urn:btih:AB0333F20F35BFB97B2E944048C6360B73F5DA89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ NG: Растения - монстры ( Секс, наркотики и раст
 ```bash
 magnet:?xt=urn:btih:6A3F271D2638680DE6484F9CB7C3C5AADBBA0EE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ NG: Рассвет человечества / Dawn of Humanity (2015) HDTV [H.26
 magnet:?xt=urn:btih:8E363A146497223259F646F5AA5916C97B7256D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:8E363A146497223259F646F5AA5916C97B7256D1
 ```bash
 magnet:?xt=urn:btih:B12620574694346A72DA66B2A801AEEDDD27845F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ NG: Египет с высоты птичьего полета / Egypt from Abov
 magnet:?xt=urn:btih:A9B4D000444CDD9D68F92112D47EBB26F158013C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ NG: Последние шаги Гитлера / Hitler's Last Stand (2018) HDTV
 ```bash
 magnet:?xt=urn:btih:3AAE5E22933D9B365AD9FDEA652EAC26EAE7B35F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ NG. Пирамиды смерти / Pyramids of Death (2005) HDTVRip [H.264/720p
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ NG: 80-е: Десятилетие, которое сотворило нас / Th
 ```bash
 magnet:?xt=urn:btih:3951B43C4E447E1BF402EE47A457B15820DA81E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ NGW: Дикое море России / Russia's Wild Sea (2018) HDTV [H.264/108
 magnet:?xt=urn:btih:39BF9F7A81E87CAA631916D389360F0498AE2653
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ NG. Американская пума / American Cougar (2011) HDTV [H.264/1080i
 ```bash
 magnet:?xt=urn:btih:906AF1D4D9E690A889063E61910D1F332D061452
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ NG: Explorer (Исследование). Наука о кошках / Explorer. 
 magnet:?xt=urn:btih:DCAA69E0DCC6F68E781B25B12D5C8DB566857319
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:DCAA69E0DCC6F68E781B25B12D5C8DB566857319
 ```bash
 magnet:?xt=urn:btih:DF7647DD1C516BED3A8B5CC25908E89F5CA5502B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ NG: Вызов бездне / Deepsea Challenge (2014) BDRemux (1080p)
 magnet:?xt=urn:btih:5CE235221CDC2EA7992F576FA15432DD853A7198
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ NGW: Самые опасные животные Африки: Ботсвана /
 ```bash
 magnet:?xt=urn:btih:F342157C215BBE87DE0C7A9001AE4A263F91A771
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ NG: С точки зрения науки: Магнитное поле Земл�
 magnet:?xt=urn:btih:12796301C707DA2EFFE7AADA27CEFBC9D3339E75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:12796301C707DA2EFFE7AADA27CEFBC9D3339E75
 ```bash
 magnet:?xt=urn:btih:E9C4C442AF9C1939B9AE66314E7445A268E83916
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ NGW: Акула против тунца / Shark vs Tuna (2018) HDTV [H.264/1080i
 magnet:?xt=urn:btih:B1E4AE6F36372274EA897B6151FCC63E404EF6F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ NG: Осушить океан: глубокое погружение. Сабот
 ```bash
 magnet:?xt=urn:btih:E532A1F66F9CE7B000DEE6F317BC8081051E5BBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ NG: Осушить океан: глубокое погружение. Затон
 magnet:?xt=urn:btih:63709DD3A34E095046D0E0BFCE91DBBD7488C276
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ NG. Разгадка тайн Мачу-Пикчу / Machu Picchu Decoded (Ghosts
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ NG. Эвакуация Земли / Evacuate Earth (2013) HDTVRip [H.264/720p]
 magnet:?xt=urn:btih:D0150F82F89FFA53703CB4BCD0ECC21199DD8455
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ NG.Запреты: Подростковый секс / NG.Taboo: Tenn Sex (2012)
 ```bash
 magnet:?xt=urn:btih:7A1CA6583DE39047B8FECC6262B3F0CF0A2D528B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ NGW: Там, где встречаются океаны / Where Oceans Collide (
 magnet:?xt=urn:btih:4BCED9C4BE651C8CE0C32C3E4446598AF640F106
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ NGW: Первобытный бойцовский клуб / The Original Fight C
 ```bash
 magnet:?xt=urn:btih:479910934671AD026787EF21AFDFBC2D7947FEAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

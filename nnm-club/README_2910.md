@@ -28,6 +28,8 @@ VA - Disco Remix Hits Зарубежный (2012) [MP3|320 kbps]<Dance | Disco |
 magnet:?xt=urn:btih:B1423267E8117E2FDF97501BBC5525B3DC059E05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -53,6 +55,8 @@ magnet:?xt=urn:btih:B1423267E8117E2FDF97501BBC5525B3DC059E05
 magnet:?xt=urn:btih:0D480317EA75D82FB3282E9E83DCA26D144B95DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:0D480317EA75D82FB3282E9E83DCA26D144B95DD
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ Angry Birds Space - главная особенность новой игры - 
 magnet:?xt=urn:btih:61215BA81AC9A026F1A1954073C32A578A31E506
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:61215BA81AC9A026F1A1954073C32A578A31E506
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +168,8 @@ magnet:?xt=urn:btih:61215BA81AC9A026F1A1954073C32A578A31E506
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +193,8 @@ magnet:?xt=urn:btih:61215BA81AC9A026F1A1954073C32A578A31E506
 ```bash
 magnet:?xt=urn:btih:2F5D5B36C80D907C9A69824DEAB040C3260435AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -206,6 +220,8 @@ magnet:?xt=urn:btih:2F5D5B36C80D907C9A69824DEAB040C3260435AF
 ```bash
 magnet:?xt=urn:btih:B6EF715BD329051D1BAF67C6D975B3CF5022C264
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +256,8 @@ Fox - 2012 (2012) [FLAC|Lossless]<Melodic Hard Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +291,8 @@ Tokyo Ska Paradise Orchestra - Walkin’ (2012) [MP3|320 кб/с]<Ska>
 magnet:?xt=urn:btih:2888523CF2EFF71D527AEBEA618A9BC935483B6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +319,8 @@ magnet:?xt=urn:btih:2888523CF2EFF71D527AEBEA618A9BC935483B6E
 magnet:?xt=urn:btih:8264D2A958123E0CAF22F0D75ED912ABE0B6D05F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +344,8 @@ magnet:?xt=urn:btih:8264D2A958123E0CAF22F0D75ED912ABE0B6D05F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +380,8 @@ VA - Top 200 Радио DFM Весна 50/50 (2012) [MP3|128 kbps]<Pop>
 magnet:?xt=urn:btih:7A8C6461DABDAEEC0839EF08D0BAF1232495BFBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +414,8 @@ Mozzart - Money (The Maxi-Singles Collection) (2007) [MP3|320 кб/с]<Italo-Dis
 ```bash
 magnet:?xt=urn:btih:7324F465B5D9345752CDDB6CF5052726E12ECB65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +450,8 @@ Mario Biondi And The Unexpected Glimpses - Due (2011) [FLAC|Lossless]<Jazz, Soul
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +484,8 @@ Tito Rodriguez - Indian Spirit Meditation. Only Instrumental (2008) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:ACA610FEBBBFF09141D17AE9068ADF82554C6231
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +520,8 @@ Warren Wolf - Warren Wolf (2011) [FLAC|Lossless]<Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +546,8 @@ Warren Wolf - Warren Wolf (2011) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +575,8 @@ SAM CoDeC Pack & SAM DeCoDeR Pack 2012 v4.05 Final[Best]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +611,8 @@ VA - From Russia With Italo Disco (2012) [FLAC|Lossless]<Italo Disco>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +636,8 @@ VA - From Russia With Italo Disco (2012) [FLAC|Lossless]<Italo Disco>
 ```bash
 magnet:?xt=urn:btih:712C77AACA50A40FA5959C47957EF30BB08F244B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +664,8 @@ magnet:?xt=urn:btih:712C77AACA50A40FA5959C47957EF30BB08F244B
 ```bash
 magnet:?xt=urn:btih:6F5D1C50A04AADB673CA3574D71066E8947C5213
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +695,8 @@ magnet:?xt=urn:btih:6F5D1C50A04AADB673CA3574D71066E8947C5213
 magnet:?xt=urn:btih:A76E32000E17FA5513DE406E938801010C3258F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -674,6 +720,8 @@ magnet:?xt=urn:btih:A76E32000E17FA5513DE406E938801010C3258F4
 ```bash
 magnet:?xt=urn:btih:251B090A077C905DBAE2C9DCB85B3B530F7E0FAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -708,6 +756,8 @@ VA - Дискотека Бездна Original 50/50 vol. 3 (2012) [MP3|128-320 k
 magnet:?xt=urn:btih:A520584EA4957F78BDFC4E0A532DF0095FAA3531
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -731,6 +781,8 @@ magnet:?xt=urn:btih:A520584EA4957F78BDFC4E0A532DF0095FAA3531
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,38 @@
+###  Публикация: 573897   (366124) от 16.11.2012
+
+VA - Улетная сотня осеннего Trance vol.12 (2012 год) [MP3|320 кб/с]<Trance, Vocal Trance, Progressive Trance, Uplifting Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_366124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 19 Hz - Round & Round (Original Mix) (8:14)
+02. Ad Brown & Anushka De'sai - Apsara (Original Mix) (7:16)
+03. Adam Szabo & Willem De Roo - Lego (Original Mix) (7:32)
+04. Aerofoil, E&g - Super Sopha! (Original Mix) (7:09)
+05. Airwalker - United (Original Mix) (10:00)
+06. Airwave vs. Nico Parisi - Romeo And Juliet (Album Version) (9:39)
+07. Alex M.O.R.P.H. & Woody Van Eyden feat. Tiff Lacey - I See You (Original Mix) (8:09)
+08. Alexandre Bergheau - Colors Of Persia (Original Mix) (7:55)
+09. Andrew Rayel feat. Jano - How Do I Know (Original Mix) (8:03)
+10. Angry Man - After Dawn (8:35)Жанр: Trance, Vocal Trance, Progressive Trance, Uplifting Trance, ProgressiveПродолжительность: 12:13:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950936   (366183) от 28.10.2015
 
 VA - Chillhouse Excitation Two - 25 Smooth & Tasty House Tunes (2015) [MP3|320 кб/с]<Funky, Club House, Deep House>
@@ -21,6 +56,8 @@ VA - Chillhouse Excitation Two - 25 Smooth & Tasty House Tunes (2015) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:02EF8E44776C8A50624005B351A9B7104E395A02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +86,8 @@ VA - I Love HardHouse (2015) [MP3|320 кб/с]<Club, Electro, Progressive House,
 magnet:?xt=urn:btih:51AFAB8BEAAB00EDE65075D5CBE2D8051EF8B6B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +114,8 @@ VA - Chillhouse Excitation One - 25 Smooth & Tasty House Tunes (2013) [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:DE9A250480F49EEDDECF83BC7D23CB395B5DF9A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +144,8 @@ VA - More Than Ever (2015) [MP3|320 кб/с]<Uplifting Trance, Club, Electro>
 magnet:?xt=urn:btih:797D2D31E234E31DA5D2AA5FE975C4E612DA5B70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +173,8 @@ VA - Sunshine People (2019) [MP3|320 Kbps] <Dancehall, Reggae, Latin>
 magnet:?xt=urn:btih:2449F9FA5374F9F4FCC8A80C78B48F848153C33B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +201,8 @@ VA - Hedkandi: Summer House Set (2019) [MP3|320 Kbps] <House, Dance, Club>
 ```bash
 magnet:?xt=urn:btih:F6A8FF5C6087F92DAFBCAE649922D4BAC9B9E6CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +237,8 @@ VA - И Снова Лирика (2012) [MP3|256 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:150FE17A4B8B61191EFF1E9B74B1128809895793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +266,8 @@ VA - Hedkandi: Summer Trance Set (2019) [MP3|320 Kbps] <Trance, Electro, Compila
 magnet:?xt=urn:btih:39E313DC7CD82392FEB2D1D252C874F8B448EBB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +294,8 @@ VA - Have A Good Time: Electropop Compilation (2019) [MP3|320 Kbps] <Synyhpop, E
 ```bash
 magnet:?xt=urn:btih:654B469F09DC30F5E318694021F5034655251AFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +330,8 @@ VA - Осенние Русские Хиты (2012) [MP3|256 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:761B1D94F37F2218178BDD54057EF3B0A57E1B76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +364,8 @@ VA - Coca-Cola Music Чарт 3 (2012) [MP3|256 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:2DCAAEC313BDB5DDD64DAC1318EA1270B81B5AA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +409,8 @@ VA - TOP 100 Club Hits #5 (2012) [MP3|320 кб/с]<Club, Dance, Pop>
 magnet:?xt=urn:btih:60586D0F60F628D0E23A4FB4B5CC84FC5315A2AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +434,8 @@ N/AЖанр: HouseПродолжительность: 00:59:11
 ```bash
 magnet:?xt=urn:btih:AC7C0DE3187E2D9285EC5480B6FEBFA7A245BE5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +464,8 @@ VA - Big 1990s Twisted Hits (2016) [MP3|192~320 Kbps] <Pop, Techno, Rock, Dance>
 magnet:?xt=urn:btih:6682852BBC8F90C94F451B08F6B692771D735036
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +492,8 @@ VA - Stereo 100 Hits Dance (2016) [MP3|234-320 Kbps] <Club, Progressive, Vocal, 
 ```bash
 magnet:?xt=urn:btih:D16B6E152E37E69DAFA154E2B482EFF4BD1A8244
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +528,8 @@ VA - Музыкальное путешествие Европы плюс 50/50 (
 magnet:?xt=urn:btih:357477EC6D3A94496C86216FA166520F87772580
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +556,8 @@ VA - Rock Drive 11 (2020) от DON Music [MP3|320 Kbps] <Hard Rock, Rock, Blues 
 ```bash
 magnet:?xt=urn:btih:F7BB1DA3B7FDBBB1BCD75F274F95BDBC92CACBE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +592,8 @@ VA - Легенды Русского Рока (2012) [MP3|128 кб/с]<Русс�
 magnet:?xt=urn:btih:456801B918D29AB41147D213B3ED128478CA67AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +620,8 @@ VA - Всё сразу 200 хитов Выпуск 10 (from Valik) (2015) [MP3|1
 ```bash
 magnet:?xt=urn:btih:25B725928BA38FBD846B9BA6BC824231F0DEB5B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +650,8 @@ VA - 50 Tracks Piano Background Music (2015) [MP3|320 кб/с]<Instrumental,Easy
 magnet:?xt=urn:btih:6184B07F69F9A35B9A9D74B8F2872F9B4348F25C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +678,8 @@ The Beat Goes On! Vol.01
 ```bash
 magnet:?xt=urn:btih:CF7CDB8B9FB379A4F418E43A39EFAA5D3F301242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +708,8 @@ VA - Breathing Earth (2015) [MP3|320 кб/с]<Chillout, Lounge, Ambient>
 magnet:?xt=urn:btih:2D5DD66AE97A21930DC44ECB649D74C2FF4E7E6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +736,8 @@ VA - Relaxed Waves Party (2015) [MP3|320 кб/с]<Chillout, Longe, Ambient>
 ```bash
 magnet:?xt=urn:btih:6EFBD6FAB6E52ED4EE4A7D95A4A0E16DBC0187DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -685,6 +766,8 @@ September - Dancing In Orbit (2008) [MP3|~225 кб/с (V1)]<Pop, Dance, Eurodanc
 magnet:?xt=urn:btih:E1E6DCCDCBB87BEE0047AA8E746B93AAA64C527B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -712,38 +795,7 @@ CD1
 magnet:?xt=urn:btih:E9DAD8F7765192E954E3329230220BB83C3740E3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575302   (368277) от 15.11.2012
-
-VA - Лучшие Хиты Радио DFm Часть 10 (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368277.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Джиган - Держи меня за руку
-002. Fidel Wicked - Rock The Disco (Radio Edit)
-003. Sasha Dith & Steve Modana feat. Nadya - Улечу
-004. Bob Sinclar - Groupie (Radio Edit)
-005. Иракли - Осень (Remix)
-006. Xonia - Remember (Radio Edit)
-007. Руки Вверх - Я тебя люблю
-008. In-Grid - La Trompette (Bernasconi Radio Edit)
-009. ChinKong и Девушки Эйнштейна - #ДискотекаHomeParty16+
-010. Arash feat. Sean Paul - She Makes Me Go(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 6:00:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89616D160E7428BE0D94EDBC6BEAB1CDBF393AFC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

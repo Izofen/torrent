@@ -19,6 +19,8 @@ NG: Запреты. Деликатесы / Taboo. Delicatessen (2003) SATRip
 magnet:?xt=urn:btih:AE87598BC452B4C87F9C68AE735103AE0F0BD74D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NG: Запреты. Лечение живностью / Taboo. Creature Cures (2
 ```bash
 magnet:?xt=urn:btih:1733026EE283C0324613ABC23DAC5E581A0592D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC: Планеты, похожие на Землю / The Planets: Inner Worlds 
 magnet:?xt=urn:btih:921DBF5CC3D09E0CBD9442ED9CE0DC0D6D4164F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:921DBF5CC3D09E0CBD9442ED9CE0DC0D6D4164F8
 ```bash
 magnet:?xt=urn:btih:F8469EADA584814B57830C14E49C5D46C2C83646
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ History Channel: Вселенная. Микровселенна / The Universe. 
 magnet:?xt=urn:btih:459FD39D40CE6732FAABB1783C1F7A752E6F4B68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ History Channel: Вселенная. Звуки из космоса / The Univer
 ```bash
 magnet:?xt=urn:btih:2B36473D0A475293D180C608D59FF107FBECAE27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ PBS: Сканеры древнего мира / Time scanners (2013) HDTVRip [H.
 magnet:?xt=urn:btih:8F53637ABBC40FF6D5EB6470199F1686DAB51AAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NG. Самурайский меч / Samurai Sword: The Making of a Legend (2007)
 ```bash
 magnet:?xt=urn:btih:DF58918FBDB10293AB692430CC8F0DD492779F84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:DF58918FBDB10293AB692430CC8F0DD492779F84
 magnet:?xt=urn:btih:FF304FCE65E937D7E95068B934FA14C39A80A44D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ What Is Our Future? Каково наше будущее?Профессор Бр
 magnet:?xt=urn:btih:578AF42ACB64CE1B876594E11220963A249C76FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ NG. Семейное оружие: Ковбойская перестрелка /
 ```bash
 magnet:?xt=urn:btih:94612D43C15BDA48B36C1B7628E5E413DA6ECFDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ National Geographic: Сканеры древнего мира. Египетск�
 magnet:?xt=urn:btih:74C76B0F99CD5A44BE367637E0D1BD576B499FEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Discovery: Дикая кухня / Kings of the Wild (2015) HDTVRip (сезон 
 ```bash
 magnet:?xt=urn:btih:CF97A71B44D025E00092F2DED4E4F7F092D845C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:CF97A71B44D025E00092F2DED4E4F7F092D845C1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ NG. Мухи и пиявки (мерзкие существа) / Flies and leech
 magnet:?xt=urn:btih:90A563B93E61924D305A43907C44B18296A0E9A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ NG: Снежный барс Афганистана / NG: Snow Leopard of Afghani
 ```bash
 magnet:?xt=urn:btih:938D0CEEDF3031FE975F56D96F548DC82E950972
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:938D0CEEDF3031FE975F56D96F548DC82E950972
 magnet:?xt=urn:btih:17FF7432AEBE2B11DA159274C22EAE60E1E46D76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:17FF7432AEBE2B11DA159274C22EAE60E1E46D76
 ```bash
 magnet:?xt=urn:btih:7FCBAE3E06F45D79EDA4BCC82DA02A607BACBC82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ NG. Затерянные царства Китая / The Hidden Kingdoms of Chin
 magnet:?xt=urn:btih:74AB48C5CB721E68756A11D1EA66074A39DACC7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Discovery: Смертельный улов / Deadliest Catch (2011) SATRip (Се
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Discovery: Смертельный улов / Deadliest Catch (2011) SATRip (Се
 magnet:?xt=urn:btih:1B1371E71F40452A0626F273109DA19F1C26E60F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Discovery: Выживание в засуху / Surviving The Drought (2008) Blu
 magnet:?xt=urn:btih:A41EDF4E1287A3983F4B503E1B1B381E8F7F945B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ History channel: Вселенная / The Universe (2007) BDRemux [H.264/1080p] 
 ```bash
 magnet:?xt=urn:btih:7D894AC068C5ABBDF8301FB200C4235682F886E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Viasat History: Как климат изменил ход истории / How C
 magnet:?xt=urn:btih:2DC1055C9D93B65083599867B403CA427653B2AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ BBC: Сокровища Древней Греции / Treasures of Ancient Greec
 magnet:?xt=urn:btih:7E8A8142FC615F91DD4BD054BE28A18DDC66CED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ NG: Культ Марии / The Cult of Mary (2015) HDTVRip [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:1C471AC64A885D95CF912153AFDD3DFB83A51568
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

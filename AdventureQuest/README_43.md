@@ -19,6 +19,8 @@ Tex Murphy: Under a Killing Moon (1994) [Multi] (1.01) License GOG
 magnet:?xt=urn:btih:7BEE977EA12231AB6669AB85AF755E65EE02BB7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Star Trek: Judgment Rites, продолжение игры Star Trek: 25th Anniv
 ```bash
 magnet:?xt=urn:btih:ABCB36DFC2A225E59EF0F440CA767C41184C9241
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Tesla Effect: A Tex Murphy Adventure рассказывает о приключ�
 magnet:?xt=urn:btih:366EE537612133B8B1BAE1488817DF79F669E555
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Sally Face (2016) [Ru/Multi] (1.5.44) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:D535CC94DE880F8BFCE7037C4BA93D4EB55429A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Leafing Home - это уютное приключение, которое пер
 magnet:?xt=urn:btih:114B57CCE602B925E6059C64ED08B3311EE484AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Nine Sols (2024) [Ru/Multi] (Build 7c478ba3) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:E3437ED7E76B8A18A9E868B9B5755587B9E627D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ The Secret of Monkey Island: Special Edition [Ru/En] (RePack) 2009 | R.G. Мех
 magnet:?xt=urn:btih:A865979D5F04F94A92942B33B456AFC37686E04E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:A865979D5F04F94A92942B33B456AFC37686E04E
 ```bash
 magnet:?xt=urn:btih:7A5AEC7B32A7EC4D2430D0D06DED48E3E82B18D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:7A5AEC7B32A7EC4D2430D0D06DED48E3E82B18D0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Lost Horizon [Ru] (RePack) 2010 | LandyNP2
 ```bash
 magnet:?xt=urn:btih:E95CD534BB627A99533420D8710697E3CB385341
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:E95CD534BB627A99533420D8710697E3CB385341
 magnet:?xt=urn:btih:B9005F9F920F85C663C5C3EA0E69A894C656ADEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Gabriel Knight 3: Blood of the Sacred, Blood of the Damned / Гэбриэл На
 magnet:?xt=urn:btih:CC357CBD5B6C1671B6BB32AA2E50F9E5E71DA410
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Memento Mori / Memento Mori: Помни о смерти (RePack) [Ru] 2008 | a-l
 ```bash
 magnet:?xt=urn:btih:375C45176D1A705D79A91BFD47F112414A9F39BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (L/Steam-Rip) 2012
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ Torin's Passage / Странствия Торина [Ru] (RePack) 1995 | DosPet
 ```bash
 magnet:?xt=urn:btih:9F576D61D45A3A8FD1CAACECCC0C9809FB047121
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (RePack) 2012 | Fenixx
 magnet:?xt=urn:btih:29E617CB559A1A86FF1E8286F79E08889C1968C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (RePack/1.0.0.1) 2012|
 magnet:?xt=urn:btih:D90C643B5EBA751079661B68A691679C72E0B016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ Back to the Future: The Game Episode 1: It’s About Time / Назад в буд
 ```bash
 magnet:?xt=urn:btih:9EE7DA9E7448DA6777854B8AF59ED929602DE054
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (RePack) 2012 | shidow
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (RePack) 2012 | shidow
 ```bash
 magnet:?xt=urn:btih:C3ADE9FF419AA44092280EA556F3B45B3169F1C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +567,8 @@ To the Moon рассказывает о двух докторах — Dr. Eva Ro
 magnet:?xt=urn:btih:9A8758FB93397488BF632051BDF667E517F37EA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ Gemini Rue - приключенческая инди-игра, разработ�
 ```bash
 magnet:?xt=urn:btih:5BD9371CFD84479BD375C454BF16DE4ECDD3E3D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ Lone Survivor [En] (L) 2012
 ```bash
 magnet:?xt=urn:btih:89BB6F83E08D7F342066444A098615EFE9301AF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +651,8 @@ Yesterday / Yesterday: Печать Люцифера [Ru/En] (RePack) 2012 | R.G
 magnet:?xt=urn:btih:C0EFDEA25DBAE35AC689D2EEBE36E9EC3CA50F00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ Alone in the Dark: The New Nightmare / Alone in The Dark 4: По Ту Сторо
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ Morpheus [Ru] (P) 1998
 ```bash
 magnet:?xt=urn:btih:9F6CDCBA1F130F2931263C867D5C6DDFEA6043CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

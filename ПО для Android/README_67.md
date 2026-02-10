@@ -19,6 +19,8 @@ Snap Camera HDR – Еще одно популярное приложение, �
 magnet:?xt=urn:btih:31E421926EFCE7C8347C05D7E1CECBA3E1C4FBD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Kodi 20.2 (Nexus) for Android [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:65591393126F687496D1A2D0800C0883FA696ECB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Casse-o-player 3.2.3 Jubilee Update Mod by alax1972 + Cassette Pack (Unpacked) [
 magnet:?xt=urn:btih:AC277160EC6DCB5682A18D80634F91AF46CF3EB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ SmartTube Next - неофициальный продукт представля�
 ```bash
 magnet:?xt=urn:btih:BC41B012D9ADBD7234FBDB342FFF46A71AA6E523
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ SD Maid поможет держать Ваше устройство в чист�
 magnet:?xt=urn:btih:577E2FDBF09493EC38C73EB2FCB9F34B78051441
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Titan - Home Workout & Fitness v3.6.7 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:55D7CA054333FC494FE467DBDFFF351D376D2532
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Listen Audiobook Player v5.0.15 [Ru/Multi]
 magnet:?xt=urn:btih:89AD48AFE0D53B4B32B28AA08FED30D597E84F0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:89AD48AFE0D53B4B32B28AA08FED30D597E84F0C
 ```bash
 magnet:?xt=urn:btih:AB7FC7EAA6B1E8A7F4A601ECC35D8D0D099D35C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:AB7FC7EAA6B1E8A7F4A601ECC35D8D0D099D35C4
 magnet:?xt=urn:btih:F755DA0B4EE8DD664CD0A0C05B2A857813E388E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ MX Player Pro v1.68.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:18DCD0670647F0DE20495F96957689FF4E92C4C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ NewPipe v0.25.2 Mod by Alex.Strannik  [Ru/Multi]
 magnet:?xt=urn:btih:5AD50CCBA31BD936E85B5230F4AC7FF79411CA1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ ARuler - лучшее и бесплатное приложение на Android 
 ```bash
 magnet:?xt=urn:btih:4A2ACD8CCC97C2DD8B91AB50CF2EE6255441F8B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:4A2ACD8CCC97C2DD8B91AB50CF2EE6255441F8B1
 magnet:?xt=urn:btih:2CC5E68B71D8C9D446F42354570BA20235FF7A72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ AVG антивирус & Безопасность 23.15.0 Mod by DEXUNPACKER [Ru
 magnet:?xt=urn:btih:0A7F326C48DFF4E13277C31664D40008B725EEA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +382,8 @@ Remini / Улучшение Фото v3.7.314.202248013 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:2E5DEBF3DF065821BFDF0E5044D9A2E39F169E1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:80909196830C10794157F4CF0C678408391B85C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ Hira vpn 1.0.4 b24 Mod by AzadNet[Ru]
 ```bash
 magnet:?xt=urn:btih:1FF901C958D344A6201DFF62A6B26CCA633FBDDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ SnapTube - YouTube Downloader HD Video v7.05.1.7051601 [Ru/Multi]
 magnet:?xt=urn:btih:FAB7091F863422F6D229862C0F854879BA3CE7DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Persona - твоя новая селфи-камера на каждый день
 ```bash
 magnet:?xt=urn:btih:EAE0683A5C6419BE9FC6D3B7CE51A164F8CEB78E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ izi.TRAVEL v7.2.1.510 [Ru/Multi]
 magnet:?xt=urn:btih:B8C5D5F1E264360A0B152407E229E65D70C8D65C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ ESET Mobile Security Antivirus 8.2.8.0-15 Mod by DEXUNPACKER [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EF678D79F9CC0F62EEFB9422617F4E26B725D7E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ Talker ACR - это приложение для записи разговоро�
 magnet:?xt=urn:btih:1D1E6B91762E263F279CCC3668EE17478FECB8AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ ViMu Media Player - это гибкий и удобный медиаплеер �
 ```bash
 magnet:?xt=urn:btih:8B0A17DEC1DB830876BBF7795AD801FEDF033185
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ CapCut - видеоредактор, что понравится поклонн�
 magnet:?xt=urn:btih:B84F05870AA871C869050E94940A97258FFE812A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ Total Commander - Android-версия культового файлового �
 magnet:?xt=urn:btih:357DC1E95B2DB6C1CDFB1CE93AD5649D817EB2EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ X-plore File Manager - продвинутый файловый менеджер 
 ```bash
 magnet:?xt=urn:btih:2D26941ED6FBE8B7F8F56656CA6AF508F843400B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

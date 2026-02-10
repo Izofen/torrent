@@ -1,3 +1,29 @@
+###  Публикация: 1367992   (913696) от 17.03.2020
+
+Матвей Курилкин | Сын лекаря (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иногда, для того чтобы человек изменился, ему недостаточно даже попасть в другой мир. Да и зачем, если жизнь по большому счету осталась прежней? Если дома ты был студентом медицинского вуза, а, попав в другой мир, оказался учеником лучшего в городе лекаря, если в обоих мирах тебе не нужно зарабатывать на кусок хлеба, о каких изменениях идет речь? Всех изменений, (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, ПопаданцыПродолжительность: 11:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0768E4A8F0BFD08D4124DAD8124C210F8DAFBF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1491114   (913719) от 23.08.2021
 
 Сергей Савинов, Антон Емельянов | «Царь зверей» (Книга 3). Тайное становится явным (2021) [MP3, Александр Башков]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:A420DBEC46DC21995291F9B04334AB35C2394157
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +75,8 @@ magnet:?xt=urn:btih:A420DBEC46DC21995291F9B04334AB35C2394157
 magnet:?xt=urn:btih:716785B15FD7412EEBA818518BA266100372C5B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:716785B15FD7412EEBA818518BA266100372C5B3
 ```bash
 magnet:?xt=urn:btih:12067D36B2DCC2C59A5CB799A77513013EE519DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:12067D36B2DCC2C59A5CB799A77513013EE519DA
 magnet:?xt=urn:btih:40A621CAB8188AB0381136A6DF79B3DA75CEBBF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:40A621CAB8188AB0381136A6DF79B3DA75CEBBF1
 ```bash
 magnet:?xt=urn:btih:7146D607B81D27591293CC5B746BB626C0054861
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:7146D607B81D27591293CC5B746BB626C0054861
 magnet:?xt=urn:btih:BDB51902C86F2A8D594EBD843FE20147D3A88F88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:BDB51902C86F2A8D594EBD843FE20147D3A88F88
 ```bash
 magnet:?xt=urn:btih:62BB51266CE0276817CF2DFABB2C79FBFE9BD688
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:62BB51266CE0276817CF2DFABB2C79FBFE9BD688
 magnet:?xt=urn:btih:48D1B673AEAB463F61A6C057C3213990B16C004B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:48D1B673AEAB463F61A6C057C3213990B16C004B
 magnet:?xt=urn:btih:36845F61C2D8F7E6FEA80141F9B0FFCEEAD8988D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:36845F61C2D8F7E6FEA80141F9B0FFCEEAD8988D
 ```bash
 magnet:?xt=urn:btih:ED7A1EB3EE69359BB24C256F874CDDBA3A84E589
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:ED7A1EB3EE69359BB24C256F874CDDBA3A84E589
 magnet:?xt=urn:btih:CD8FAD1DC897379EA383B0CFD36BE0D4A743FA36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:CD8FAD1DC897379EA383B0CFD36BE0D4A743FA36
 magnet:?xt=urn:btih:28DAC2E041F3A91648A61162A87D2D18D0B615A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:28DAC2E041F3A91648A61162A87D2D18D0B615A3
 ```bash
 magnet:?xt=urn:btih:3B4C5E03B80B96283A39D16286727CD0A0BA13A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:3B4C5E03B80B96283A39D16286727CD0A0BA13A6
 magnet:?xt=urn:btih:2EB96A46F1BDC384A56A5E300B5399618D158DE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:2EB96A46F1BDC384A56A5E300B5399618D158DE0
 magnet:?xt=urn:btih:B3FC3E8B47712FC9CFBF051B509F6BBF22B6887E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:B3FC3E8B47712FC9CFBF051B509F6BBF22B6887E
 ```bash
 magnet:?xt=urn:btih:B553F119F9997616D447B0EBB58FE18320F31577
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:B553F119F9997616D447B0EBB58FE18320F31577
 magnet:?xt=urn:btih:4AFF4DC419FD2CDA3A7DDBA74D45841D24B144E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:4AFF4DC419FD2CDA3A7DDBA74D45841D24B144E9
 ```bash
 magnet:?xt=urn:btih:C1F73611C1B47C92F73D1CC7763A404539A6AFA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:C1F73611C1B47C92F73D1CC7763A404539A6AFA0
 magnet:?xt=urn:btih:8C4CD0DB878AF4CFB3753BDA1F96673B5929C7C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:8C4CD0DB878AF4CFB3753BDA1F96673B5929C7C0
 ```bash
 magnet:?xt=urn:btih:7246B5F584C4F71BD07ADC4A2A9F70FF9C0FC525
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:7246B5F584C4F71BD07ADC4A2A9F70FF9C0FC525
 magnet:?xt=urn:btih:B2C7A910BAF544F28CE152D7821B5358C5153A05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:B2C7A910BAF544F28CE152D7821B5358C5153A05
 ```bash
 magnet:?xt=urn:btih:2B77BF574C6D98C15D215DFA563AEC959C8A2D6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:2B77BF574C6D98C15D215DFA563AEC959C8A2D6E
 magnet:?xt=urn:btih:F0420F2159AF8AF21B7BC4356230E762188E5684
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:F0420F2159AF8AF21B7BC4356230E762188E5684
 ```bash
 magnet:?xt=urn:btih:C171F7BAEFF4B699AAFAE0933B4E569695F5A51B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,29 +680,7 @@ magnet:?xt=urn:btih:C171F7BAEFF4B699AAFAE0933B4E569695F5A51B
 magnet:?xt=urn:btih:ED08404978829173017AB0100318BC2C88129739
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289395   (918307) от 31.01.2011
-
-Лайон Спрэг де Камп, Флетчер Прэтт | Математика волшебства (Дипломированный чародей - 2) [2011] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключения психоаналитика Гарольда Ши продолжаются. На этот раз он со своим коллегой, доктором Чалмерсом, оказывается в царстве Фей, мире прекрасных дам и отважных рыцарей с весьма своеобразными представлениями об этикете, мире могущественных колдунов с кучей комплексов и мифических чудовищ с прекрасным аппетитом.Жанр: Юмористическое фэнтези
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1964D25B1DEAD667FC1A60ECCAC3508B240895E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

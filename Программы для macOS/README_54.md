@@ -19,6 +19,8 @@ Adobe Audition 23.5 U2B [Multi]
 magnet:?xt=urn:btih:42D8122EED1D82BEDCF68800230FA19970281942
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Maxon App for Mac 2023.3.0 [En]
 ```bash
 magnet:?xt=urn:btih:CEED1F81263D97867EEBEB647F7C625B1BA391CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Photo Mechanic — фотобраузер и фоторедактор опера
 magnet:?xt=urn:btih:8920FE338E3538ADAAD4576FA49165F06EC9037D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ TRAKTOR PRO Plus — это дополнительная подписка для
 magnet:?xt=urn:btih:F92392B23B4D51BE30FFF4DB6AD826C77C6984C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ ON1 Photo Keyword AI 2023.5 v.17.5.1.14079 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E3A9546F87C4E79F66CE1F535D6ED92DFECEA743
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ PDF Expert - редактор  PDF. Быстрый, мощный и незаме
 magnet:?xt=urn:btih:63CFEA4B9E80EBBC70449082E0A88B9A78C1BF74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ ON1 Resize (ранее известный как Perfect Resize Standard) - эт
 magnet:?xt=urn:btih:CA8169FC188E96F649AE855D80640B5D6D16B449
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ ON1 Portrait AI – новый инструмент обработки порт�
 ```bash
 magnet:?xt=urn:btih:EF23BFEE67A849F796D3862E0B3DF111EE86A096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Nik Complete Collection by DxO 6.1.0 [Multi/Ru]
 magnet:?xt=urn:btih:9B8D0386849F6F38186DD64346D9884B720C98AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Grids переносит лучшее из Instagram на ваш Mac. Grids for 
 ```bash
 magnet:?xt=urn:btih:727D57D603FC9EC24EE951B804D88A44425FA305
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Final Cut Pro включает основные функции аудиомон�
 magnet:?xt=urn:btih:A5C18453158725C9EF65A0B2B59E92192439CA51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Logic Pro — это коллекция передовых инструмент�
 ```bash
 magnet:?xt=urn:btih:B95E08BD1E231F647482C905D460FD949F276DED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ ABBYY FineReader Pro для Mac распознает документы на ( 
 magnet:?xt=urn:btih:E4DB7E0AC417BAE0A9C53ED1264865054E545A0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ LAN Scan — это приложение, разработанное для се
 magnet:?xt=urn:btih:250E449A2859FD6397F264E65570C8558FFC23FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Adobe Substance 3D Sampler 4.1.0 [En]
 ```bash
 magnet:?xt=urn:btih:2316D3B97BCBBEFFE4BA50386E2BA2C9C3620D17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Vidmore Video Converter 2.3.36 [Multi]
 magnet:?xt=urn:btih:66E128B039BE14A00E2270CDF0BCF0CEB7ED83F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ McAfee Endpoint Security for Mac 10.7.8 [Multi]
 ```bash
 magnet:?xt=urn:btih:69F4323F9806E47348366D62DE1AF735ACCBF3E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ iZotope RX 10 Audio Editor Advanced AU, VST3, AAX, STANDALONE 10.4.0 [En]
 magnet:?xt=urn:btih:83FFC5427A9B92AEBA94658BAF09206CCD4AAAA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ MATLAB – это интерактивная среда программиров
 ```bash
 magnet:?xt=urn:btih:50CD2E55E31CE41E9B76CC3D477FC07BA5F4B70A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Adobe Substance 3D Painter 8.3.0 [En]
 magnet:?xt=urn:btih:63E1AB13E357F82062E3A9B60776AE16F67F2A44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ NTFS Disk от Omi - это менеджер дисков NTFS в Mac App Store.
 ```bash
 magnet:?xt=urn:btih:FFA6255069DDCE5F42A09A4D8441E6BA83391893
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ Planner 5D Premium 4.14 [Multi/Ru]
 magnet:?xt=urn:btih:E8291C4EB04CD96D7AE0095FB9370E1D5D2CFC69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Nitro PDF Pro позволяет пользователям легко реда�
 ```bash
 magnet:?xt=urn:btih:2F1C63841000F8FE52BED08543F71BCE3D848703
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ EaseUS Todo Backup - небольшая утилита, которая помо�
 magnet:?xt=urn:btih:EB69F8E52E24C86BCCD54E16B6D5CF8523A648B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ ImageRanger - программа позволит найти все нужные
 magnet:?xt=urn:btih:358AE611ECBAFE7D0D8C08CA5E8C92B35C10BA10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Focusplan - это мощное, полнофункциональное и ги�
 ```bash
 magnet:?xt=urn:btih:6058DC71079AF27489B432C9C32C96BF77C3C36C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

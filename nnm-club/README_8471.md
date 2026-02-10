@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:7B50E3AD7C31EAFF283508995B18347FBA509813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Dont Sleep - утилита, которая временно может откл
 ```bash
 magnet:?xt=urn:btih:7F26E417C9886E6F00B9A7A7E0702A88281E1918
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:7F26E417C9886E6F00B9A7A7E0702A88281E1918
 magnet:?xt=urn:btih:599CD4675E4B8C0D3F45DBC7331CFBC49C69E758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:599CD4675E4B8C0D3F45DBC7331CFBC49C69E758
 magnet:?xt=urn:btih:F0D8341561B7E667B54976CBB33BF96B1D27309A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Bluehole Studio | Артбук по игре TERA / The Art of TERA (2012) [PDF]
 magnet:?xt=urn:btih:D7F9E901E9327B2F9660551A2F9B5D0A05A326DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:D7F9E901E9327B2F9660551A2F9B5D0A05A326DF
 ```bash
 magnet:?xt=urn:btih:C3133BD22DA4AF7512D5AF2DF4F5AC0C5D1C6DBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ Disc 1
 magnet:?xt=urn:btih:C85B8D1E2FBF592B69732C20D17CCCF3E1A3431A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:C85B8D1E2FBF592B69732C20D17CCCF3E1A3431A
 ```bash
 magnet:?xt=urn:btih:F87A62972B7A1DE7159D57198A5E55BDC5DCE606
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ MInstAll v.07.04.2023 By Andreyonohov (ISO) [Ru]
 magnet:?xt=urn:btih:AC41D36A985531BACB39341D12DE05C4723A47FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ Counter-Strike 1.6: Adidas (2015) [Ru/En] (1.1.2.6/pv48/b4554) Repack twileck
 ```bash
 magnet:?xt=urn:btih:8FE6C202AC46BA3452746726CE21E38EE8494218
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ Counter Strike 1.6 от Fnatic (1999-2015) [Ru/En] (1.1.2.6/pv48/b4554) Repack t
 magnet:?xt=urn:btih:F81CACCC29F695F2CEDCE6A0B26F6BF9DC356679
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Natus Vincere, без сомнения, являются самой популя
 ```bash
 magnet:?xt=urn:btih:E9E033507AD193A98226E30C939F820D38BD0B14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:E9E033507AD193A98226E30C939F820D38BD0B14
 magnet:?xt=urn:btih:6B1BF2998401D13F71F4050131989A8ED82B89DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:6B1BF2998401D13F71F4050131989A8ED82B89DF
 ```bash
 magnet:?xt=urn:btih:5BB909DD993E80FC08CF25F1EFB2F055FDED0692
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:5BB909DD993E80FC08CF25F1EFB2F055FDED0692
 magnet:?xt=urn:btih:CD133F494ED175F16A98299993B19359B54FD1F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ Wartales (2021) [Ru/Multi] (1.0.25233) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:3367B05AF5222DEB136FA9DF5B745DC0283F72A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 magnet:?xt=urn:btih:4D03D955523C1C76BF26303B669FC65986379501
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ Isekai Ojisan | Uncle from Another World | Перерождение Дяди [20
 ```bash
 magnet:?xt=urn:btih:79921B8DB9C5BEA8CCC8A17A996A647942CE39C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ Adobe Premiere Pro 2023 - профессиональная программа д
 magnet:?xt=urn:btih:DAA01164E1AC5CFA784BABB3AC4B186651A365BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:DAA01164E1AC5CFA784BABB3AC4B186651A365BE
 ```bash
 magnet:?xt=urn:btih:B61C5AE329F039CBB774BC927E68A4F41C428918
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:B61C5AE329F039CBB774BC927E68A4F41C428918
 magnet:?xt=urn:btih:DBAD85C578A5B26E0AA32582525F4696EBB1EF7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:DBAD85C578A5B26E0AA32582525F4696EBB1EF7F
 ```bash
 magnet:?xt=urn:btih:72D06ABD41CBC1C030EF4B510487A29713CB72B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:72D06ABD41CBC1C030EF4B510487A29713CB72B0
 magnet:?xt=urn:btih:2CFE682BF04C4EAD69575950FBD0D326691194B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:2CFE682BF04C4EAD69575950FBD0D326691194B5
 ```bash
 magnet:?xt=urn:btih:CEFA2BC48BE016EE310B5E7F3ACC54073283C376
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:CEFA2BC48BE016EE310B5E7F3ACC54073283C376
 magnet:?xt=urn:btih:EA07FC703007AECF7350524BE9B9BFB0D733961E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:EA07FC703007AECF7350524BE9B9BFB0D733961E
 ```bash
 magnet:?xt=urn:btih:965C2059A8F786B083D546602AAE6FDF6A03BFBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

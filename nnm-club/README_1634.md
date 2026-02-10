@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:7418BB0968F6FAB1A17978F3E7966695213E7F08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:7418BB0968F6FAB1A17978F3E7966695213E7F08
 ```bash
 magnet:?xt=urn:btih:7D5ABDEED0ABDD93796D66373A4543B430655D2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ All-In-One Offline Maps v3.15d Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:FDB7406B922F59EA314370AB12803E40E625E148
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:FDB7406B922F59EA314370AB12803E40E625E148
 ```bash
 magnet:?xt=urn:btih:54E4C8EC00322FCE415A9A89DABE5AA8F0896991
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:54E4C8EC00322FCE415A9A89DABE5AA8F0896991
 magnet:?xt=urn:btih:B07800A6B6D1BB01311F1A0B66FD0D6049E3EB97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Pirates Journey (2024) [Ru/Multi] (0.1.0.6) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:03B40A8D81BA3F26AC3025FC7FDDD58B39D498E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:03B40A8D81BA3F26AC3025FC7FDDD58B39D498E8
 magnet:?xt=urn:btih:985816F557E35C1373B2784743F8FEBC15C4E16A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Smells Like a Mushroom - научно-фантастический шутер о
 ```bash
 magnet:?xt=urn:btih:2FD72D181863E240456365AE526C8A4B8034BEBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:2FD72D181863E240456365AE526C8A4B8034BEBF
 magnet:?xt=urn:btih:368A81139843AEA46071E6862E75C4B8DE6CD5B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:368A81139843AEA46071E6862E75C4B8DE6CD5B7
 ```bash
 magnet:?xt=urn:btih:ECD94A7CC22454C57414BFC6BBCEC5E75735443B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:ECD94A7CC22454C57414BFC6BBCEC5E75735443B
 magnet:?xt=urn:btih:F6CD1B74D32CBD8B0E2E3AD0DD6CC88DF5B4BC68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:F6CD1B74D32CBD8B0E2E3AD0DD6CC88DF5B4BC68
 magnet:?xt=urn:btih:20B14B7AD0EF8CF6BECB77EEE374858C4B3583A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ magnet:?xt=urn:btih:20B14B7AD0EF8CF6BECB77EEE374858C4B3583A9
 ```bash
 magnet:?xt=urn:btih:A63637B62F0295B5383207744CC69FC83ACA44B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:A63637B62F0295B5383207744CC69FC83ACA44B6
 magnet:?xt=urn:btih:ABDDD13956E9D309A2DAF0461B17FE39975B6669
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:ABDDD13956E9D309A2DAF0461B17FE39975B6669
 ```bash
 magnet:?xt=urn:btih:6F2E9F14EEEF0ACC754F951748D22433980E2508
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ The Gunk - приключенческая игра про космических
 magnet:?xt=urn:btih:86A54CDA405E1A275D27445B93159EB5924A9330
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Scourge of War - Remastered бросает вас с головой в хаос 
 ```bash
 magnet:?xt=urn:btih:AE416B7C396410D315F4CCEF6B7A75AE05F9B4A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Office LTSC 2024 предоставляет привычный набор при
 magnet:?xt=urn:btih:2F1DB6CC46CA6294B39C2AE5765A0C7A416417CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2024.09.20 [Ru]
 ```bash
 magnet:?xt=urn:btih:9FAC88C389B134F4B9E423C43F1ED0F23880374D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:9FAC88C389B134F4B9E423C43F1ED0F23880374D
 magnet:?xt=urn:btih:B4938B2D9D47CE9947C1B511536E91731BEE57D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ STAR WARS Jedi: Survivor продолжит повествование о жиз
 ```bash
 magnet:?xt=urn:btih:0A9A992A768564E7A0534A2F572C61DA3BDE9ACA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:0A9A992A768564E7A0534A2F572C61DA3BDE9ACA
 magnet:?xt=urn:btih:30F415473D45729B59C8715FE3DE24525F61BA00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Frostpunk 2 открывает новые грани жанра выживани
 magnet:?xt=urn:btih:5DD0BB4C8534FAB8E30C02E1977E421C6897971B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ magnet:?xt=urn:btih:5DD0BB4C8534FAB8E30C02E1977E421C6897971B
 ```bash
 magnet:?xt=urn:btih:8AB7E5F19B5CFEBF931694765F0648DDAED40D6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:8AB7E5F19B5CFEBF931694765F0648DDAED40D6C
 magnet:?xt=urn:btih:03ADD3D93133C7DEABA59C3FA0FE4D64EC97DB37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ iZotope - RX 11 Audio Editor Advanced 11.2.0 STANDALONE, VST 3, AAX (x64) RePack
 ```bash
 magnet:?xt=urn:btih:1AC9F4B71E07BA29DF4568C09E69DAAA31540D54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

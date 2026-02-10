@@ -1,3 +1,30 @@
+###  Публикация: 1438075   (1041351) от 07.01.2021
+
+Анастасия Веселко | Девушка с деньгами. Книга о финансах и здравом смысле (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фраза «Я девочка, я не хочу ничего решать» совершенно не про современных девушек, которые хотят и умеют зарабатывать.
+Но почему-то все равно выходит так, что деньги вроде бы есть, но их не хватает на важное. На жизнь достаточно, но сбережений нет. Крупные покупки приходится делать в кредит. Про будущее вообще думать страшно. Дело усугубляют стереотипы: финансы – (   Читать дальше...   )Жанр: Личные финансы, ценные бумаги, инвестицииФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6823BD7531E1C1257A59F4D20DFE2B1BA6EE54D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438139   (1041373) от 07.01.2021
 
 Сигэаки Хинохара | Искусство жить. Секреты долголетия от 105-летнего врача (2019) [EPUB]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:FCC1BFB7E065742B67EF966F6B41ED06F6A72C52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:FCC1BFB7E065742B67EF966F6B41ED06F6A72C52
 magnet:?xt=urn:btih:26D3EA376733EE72394992DA03C6C893D034AFE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:26D3EA376733EE72394992DA03C6C893D034AFE9
 ```bash
 magnet:?xt=urn:btih:2E23C9ED652713C6D3769553AC8BC8C4CA81CB72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +126,8 @@ magnet:?xt=urn:btih:2E23C9ED652713C6D3769553AC8BC8C4CA81CB72
 magnet:?xt=urn:btih:0EBCC32268421DDE0409087266E8268563FFE16B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +151,8 @@ magnet:?xt=urn:btih:0EBCC32268421DDE0409087266E8268563FFE16B
 ```bash
 magnet:?xt=urn:btih:0C2E28764CE5DE126729169F2F5655E20C4889AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +178,8 @@ magnet:?xt=urn:btih:0C2E28764CE5DE126729169F2F5655E20C4889AD
 magnet:?xt=urn:btih:6354358878F37675CF403B297E62E5AD92571798
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +204,8 @@ magnet:?xt=urn:btih:6354358878F37675CF403B297E62E5AD92571798
 magnet:?xt=urn:btih:FB484818A573409F48DC8C502FE64CA20086CA80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +229,8 @@ magnet:?xt=urn:btih:FB484818A573409F48DC8C502FE64CA20086CA80
 ```bash
 magnet:?xt=urn:btih:608F3F0D9466498FB4EA51D0CC48EC544F405E8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:608F3F0D9466498FB4EA51D0CC48EC544F405E8F
 magnet:?xt=urn:btih:4BD4F34D2C13D76DC253517485426E9597A113D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ magnet:?xt=urn:btih:4BD4F34D2C13D76DC253517485426E9597A113D6
 ```bash
 magnet:?xt=urn:btih:397798BB5A8FAD5586C9ADDF68C086CC644510A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +310,8 @@ magnet:?xt=urn:btih:397798BB5A8FAD5586C9ADDF68C086CC644510A3
 magnet:?xt=urn:btih:36F378BB56C85C296401556060079E925BD54CE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +335,8 @@ magnet:?xt=urn:btih:36F378BB56C85C296401556060079E925BD54CE7
 ```bash
 magnet:?xt=urn:btih:A3F1A9ED36FC1EB32A9E350EC686EEB099867FC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +363,8 @@ magnet:?xt=urn:btih:A3F1A9ED36FC1EB32A9E350EC686EEB099867FC4
 magnet:?xt=urn:btih:5E1A567657D07268452BC6479D69B605C7C0A4DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +389,8 @@ magnet:?xt=urn:btih:5E1A567657D07268452BC6479D69B605C7C0A4DF
 ```bash
 magnet:?xt=urn:btih:603A719307EADD1241ED8FD45634DB9D7362A3B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +417,8 @@ magnet:?xt=urn:btih:603A719307EADD1241ED8FD45634DB9D7362A3B7
 magnet:?xt=urn:btih:4F17F47A766087C58303C8A6610055431FE6F395
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +442,8 @@ magnet:?xt=urn:btih:4F17F47A766087C58303C8A6610055431FE6F395
 ```bash
 magnet:?xt=urn:btih:5A35FB3F21D5CD1E0694775384135C932EB2B48C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +471,8 @@ magnet:?xt=urn:btih:5A35FB3F21D5CD1E0694775384135C932EB2B48C
 magnet:?xt=urn:btih:7621692C3A34C4AB8980AC4C2AF7BE2FCDACDB17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +496,8 @@ magnet:?xt=urn:btih:7621692C3A34C4AB8980AC4C2AF7BE2FCDACDB17
 ```bash
 magnet:?xt=urn:btih:12711EABA47D10775AEEF9A3E050DA86584E410D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +523,8 @@ magnet:?xt=urn:btih:12711EABA47D10775AEEF9A3E050DA86584E410D
 magnet:?xt=urn:btih:D53E674C78FB2D91D204920D33764A937DF329DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +548,8 @@ magnet:?xt=urn:btih:D53E674C78FB2D91D204920D33764A937DF329DE
 ```bash
 magnet:?xt=urn:btih:E30DC54DD6CFFC57B18C9DA4A22485B5FE3B6573
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +575,8 @@ magnet:?xt=urn:btih:E30DC54DD6CFFC57B18C9DA4A22485B5FE3B6573
 magnet:?xt=urn:btih:6A7AADD0FE520FE95BCEB0A9518A992869224D93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +600,8 @@ magnet:?xt=urn:btih:6A7AADD0FE520FE95BCEB0A9518A992869224D93
 ```bash
 magnet:?xt=urn:btih:858D160F020245D3DA58DD28BAC65EE74138B4D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +627,8 @@ magnet:?xt=urn:btih:858D160F020245D3DA58DD28BAC65EE74138B4D6
 magnet:?xt=urn:btih:EE9F79BA9FCD1DF1ECA0F035CB5A9185310DA1F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +652,8 @@ magnet:?xt=urn:btih:EE9F79BA9FCD1DF1ECA0F035CB5A9185310DA1F4
 ```bash
 magnet:?xt=urn:btih:13251531EBC6AE750445DBA9DA7627B67CACF5C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,30 +680,7 @@ magnet:?xt=urn:btih:13251531EBC6AE750445DBA9DA7627B67CACF5C7
 magnet:?xt=urn:btih:C2B792B9F5649F728F65CAF63067A58EB2AED8A0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437475   (1041956) от 05.01.2021
-
-Артём Голдман, Алексей Безымянный | Биохакнутый. Как держать здоровье под контролем, чтобы чувствовать себя на 100 % (2021) [EPUB]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Биохакинг как набор стратегий по улучшению качества жизни и ее продолжительности давно вызывает интерес во всем мире. Один из авторов этой книги, российский бизнесмен Артём Голдман, решил проверить действенность этих стратегий на себе и принял участие в полугодовом эксперименте по биохакингу, фиксируя все свои показатели и результаты.
-Врач-терапевт Алексей Безымянный (   Читать дальше...   )Жанр: Здоровье, Популярная и нетрадиционная медицинаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12A6D80C4DA51AEE29E723250E258D5C94F23734
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

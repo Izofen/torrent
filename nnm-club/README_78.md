@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:B77A9BE86B99C7F1E7660753FD30E482626AF4A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:B77A9BE86B99C7F1E7660753FD30E482626AF4A5
 magnet:?xt=urn:btih:7FD113F8CD16F747C641AB09BCAAA3A61C9EDBCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Opera One 122.0.5643.51 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4CA8360DE63950B26032D114640DFB675CB245A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:4CA8360DE63950B26032D114640DFB675CB245A7
 ```bash
 magnet:?xt=urn:btih:A21293F722B4E965FD9295B08C8350DD2B92C38A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:A21293F722B4E965FD9295B08C8350DD2B92C38A
 magnet:?xt=urn:btih:EAD038D1A7B5AC6F6A1F7CA63D9AB319F93E15A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Hikaru ga Shinda Natsu | The Summer Hikaru Died | Лето, когда умер 
 ```bash
 magnet:?xt=urn:btih:B9BAAC16F181DFE70AF1B54261ECB8891DE04EF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:B9BAAC16F181DFE70AF1B54261ECB8891DE04EF0
 magnet:?xt=urn:btih:62D78331C8C3E4843E55DCCC060D79B7AF028B06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:62D78331C8C3E4843E55DCCC060D79B7AF028B06
 ```bash
 magnet:?xt=urn:btih:5BF30C2382E923C2BA426B7F97E91888B880C967
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:5BF30C2382E923C2BA426B7F97E91888B880C967
 magnet:?xt=urn:btih:E7B7960E916CFAB9A838D9D4937EE69A5D50F14F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:E7B7960E916CFAB9A838D9D4937EE69A5D50F14F
 magnet:?xt=urn:btih:795D9A1753D13112EE705770734D959778ACD9D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:795D9A1753D13112EE705770734D959778ACD9D2
 ```bash
 magnet:?xt=urn:btih:D9506B89924E8CB153FB881FEA434C0824874B95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ Knights of the Crusades (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:6DC83D59F8840AB0A44C340339112561600289AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:6DC83D59F8840AB0A44C340339112561600289AE
 ```bash
 magnet:?xt=urn:btih:7E843E2C54FC28B521DC27B32ECED6300239A2E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:7E843E2C54FC28B521DC27B32ECED6300239A2E1
 magnet:?xt=urn:btih:A1ABBD89BFE033DFCA608E3F5DB5FC1EC1D5DD8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ Zappicon — это продуманная и современная библи�
 ```bash
 magnet:?xt=urn:btih:1782B5F636F9039AAEEEFFD0ECF0D1B6F5D5838C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ Lost Skies (2025) [Ru/Multi] (1.0.79-50871/dlc) Repack FitGirl
 magnet:?xt=urn:btih:1995395CA736AF599DC9D44071F5A270FA99D224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:1995395CA736AF599DC9D44071F5A270FA99D224
 ```bash
 magnet:?xt=urn:btih:5D4E150031612FBB885888A49C20BEB6F1618DE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Pink Floyd - История создания альбома "Wish You Were Here"
 magnet:?xt=urn:btih:3DE6E0CE0E954BDFEBB961DAC5DA4B3631C214F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:3DE6E0CE0E954BDFEBB961DAC5DA4B3631C214F9
 ```bash
 magnet:?xt=urn:btih:A5F5763128AB1392996268175574E48146F6C1E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:A5F5763128AB1392996268175574E48146F6C1E1
 magnet:?xt=urn:btih:E46EF80814B23DB070B9DE5D75B4E38BBE1D3AE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:32432F0C3FA4D746A2330AADF5DF30105CF3B692
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ CULTIC (2022) [En] (Build 20024050/dlc) Repack Let'sРlay [Complete Edition]
 magnet:?xt=urn:btih:E6C4274E304A30215A7C38C7D21C7E6A946F721B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:E6C4274E304A30215A7C38C7D21C7E6A946F721B
 ```bash
 magnet:?xt=urn:btih:22FA004A25CD8B0588D8B9C18DB1740CB5B8F8B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ AIDA64 - является мощным средством для идентиф�
 magnet:?xt=urn:btih:0A94E7E1736B50E949FD55BD6AF65618E4FD513C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ MiniTool Partition Wizard Technician - мощный менеджер для ра
 magnet:?xt=urn:btih:F46728E8A9D1204020F688B21B070D630F2CB004
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Clevatess: Majuu no Ou to Akago to Shikabane no Yuusha | Клеватесс: К�
 ```bash
 magnet:?xt=urn:btih:760468B0D0B7C3BE3A3B026267063E26EEF2322D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

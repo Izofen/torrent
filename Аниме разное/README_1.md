@@ -19,6 +19,8 @@ Howl no Ugoku Shiro | Howl's Moving Castle | Ходячий Замок [2004, Mo
 magnet:?xt=urn:btih:4589389CD0A39014F8AA5FAD78779F4E2802E869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Shinigami Bocchan to Kuro Maid | The Duke of Death and His Maid | Смертон
 magnet:?xt=urn:btih:B8E6CD5D34571C2A967428D9A9FAD1290417A373
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Kaze no Tani no Nausicaa | Nausicaa from the Valley of the Wind | Навсика
 ```bash
 magnet:?xt=urn:btih:AA67CD6D106C96BED855E8B16A167C6AA4CAED90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Berserk: Ougon Jidai Hen II - Doldrey Kouryaku | Berserk Golden Age Arc II: The 
 magnet:?xt=urn:btih:B1F2513AD03B008A3FF93529A5D9B1AC2EF62E00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Berserk: Ougon Jidai Hen I - Haou no Tamago | Berserk Golden Age Arc: The Egg of
 magnet:?xt=urn:btih:40033187D7A287E0DE7D06B2AD17D97646BB21FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Girls und Panzer: Saishuushou | Girls und Panzer das Finale | Девушки и 
 ```bash
 magnet:?xt=urn:btih:B3A0C5E039C13FCF055F4AA2DD7CC57044DD55CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Kaze Tachinu | The Wind Rises | Ветер Крепчает [2013, Movie] Blu-ra
 magnet:?xt=urn:btih:560FC7A8D19BC7E30FE5FF8911E4F5FE84C1B4A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Summer Wars | Летние Войны [2009, Movie] Blu-ray 1080p raw+rus
 ```bash
 magnet:?xt=urn:btih:A9F09510C8C4221F354E43E9D1CED5BF0F0DB4BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Evangelion Shin Gekijouban: Ha | Evangelion: 2.0 You Can (Not) Advance | Evangel
 magnet:?xt=urn:btih:024AE91C205802091518C9900EEEBBA7E90D3A73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Sakasama no Patema | Patema Inverted | Патэма наоборот [2013, Movi
 ```bash
 magnet:?xt=urn:btih:96CD7088E4B48FA8F608CBC0DC4E1E65C0C4AD7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Sakasama no Patema | Patema Inverted | Патэма наоборот [2013, Movi
 magnet:?xt=urn:btih:71701D4FD4D7EBA1E26751B455986A502C18D69E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Summer Wars | Летние Войны [2009, Movie] BDRemux 1080p raw+rus
 ```bash
 magnet:?xt=urn:btih:F0E74C7BF543E27A3F954C53349251A502AB63EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Evangelion Shin Gekijouban: Q | Evangelion: 3.33 You Can (Not) Redo | Еванг
 magnet:?xt=urn:btih:6AD19FF7300D7853233E5EEE3FFC6E206197802F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Momo e no Tegami | A Letter to Momo | Письмо для Момо [2011, Movie]
 ```bash
 magnet:?xt=urn:btih:295566CF2F3275B427CF508883C66E4C4205B35A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 magnet:?xt=urn:btih:E70BCE8461114681723D6CCCB3E5E2CC69143730
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Gekijouban Violet Evergarden | Вайолет Эвергарден | Violet Ever
 ```bash
 magnet:?xt=urn:btih:91B8A1D7B4F0B78A91889969D6A946057028B9C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Deca-Dence | Decadence | Декаданс | Дека-Данс [2020, TV, 12 из
 magnet:?xt=urn:btih:44015C1C7380D44EB2628CD261F4AF7612FE3F2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Tenki no Ko | Weathering with You | Дитя Погоды [2019, Movie] BDRemux 
 ```bash
 magnet:?xt=urn:btih:846952ED3EB8BCFF6F349D7A5EEF12505638C2B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Girls und Panzer: Saishuushou | Girls und Panzer das Finale | Девушки и 
 magnet:?xt=urn:btih:A7EAEA8FDC37913DEA33EBD6AF334CD2CF5A15E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Bakemono no Ko | The Boy and the Beast | Ученик Чудовища [2015, Mo
 magnet:?xt=urn:btih:B1CA4FA1E7CCB7A2C45362C252536F82421F4B93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Mushoku Tensei: Isekai Ittara Honki Dasu | Mushoku Tensei: Jobless Reincarnation
 ```bash
 magnet:?xt=urn:btih:F9D34724FBBF3143753DDB74E2406145849F450A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ Grand Blue | Grand Blue Dreaming | Необъятный Океан [2018, TV, 12
 magnet:?xt=urn:btih:5CA4E592494F08E500222D776DEFD94412985A2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Megami-ryou no Ryoubo-kun | Mother of the Goddess Dormitory | Комендант
 ```bash
 magnet:?xt=urn:btih:F310C0EF5617A78BAC8CFE3ED74CDCB8C870C63C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Jibaku Shounen Hanako-kun | Toilet-bound Hanako-kun | Туалетный мал�
 magnet:?xt=urn:btih:DD6B30F53786822F0805F8AFD0A3AB1764C06F90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Kaze Tachinu | The Wind Rises | Ветер Крепчает [2013, Movie] DVDRem
 magnet:?xt=urn:btih:BC3EDF884892E25F56CAA82FB9951F9FE4C27FED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Kage no Jitsuryokusha ni Naritakute! | The Eminence in Shadow | Восхожде
 ```bash
 magnet:?xt=urn:btih:23FB1A76A63DD34F5A7BC8A08B4228C4780FA73A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

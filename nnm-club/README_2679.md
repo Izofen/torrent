@@ -19,6 +19,8 @@ Music Collection - неплохая программа для создания �
 magnet:?xt=urn:btih:C87C26ABFDF840E75B7B85887EE475C0027F68D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C87C26ABFDF840E75B7B85887EE475C0027F68D8
 ```bash
 magnet:?xt=urn:btih:1B390FB08572BA29F4CA0BF1BBCD6E54097500D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ RAR - это консольное приложение, позволяющее �
 magnet:?xt=urn:btih:8555F0B07389EDDE46BB1C6AA5343BD78D5EAEB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Mobius 2024 Autumn - конференция для мобильных разра
 ```bash
 magnet:?xt=urn:btih:CC8E44B93CAA82DD34C77D504ED27D4C009A73E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:CC8E44B93CAA82DD34C77D504ED27D4C009A73E4
 magnet:?xt=urn:btih:D78DD809DF7F356156042F57F7B0EFD7E3CCBAB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:D78DD809DF7F356156042F57F7B0EFD7E3CCBAB7
 ```bash
 magnet:?xt=urn:btih:29777E6AFF7D9F5A3E843D97DA336DE1B0C9B7F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:29777E6AFF7D9F5A3E843D97DA336DE1B0C9B7F6
 magnet:?xt=urn:btih:133B45EF92E53E5A7664D21A00090E8710FBD0DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:133B45EF92E53E5A7664D21A00090E8710FBD0DC
 ```bash
 magnet:?xt=urn:btih:3D828A9162E28DC15D448C6C71D2BE9BE40B26C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ VA - Шансон премьера 2025 февраль (Новые песни. �
 magnet:?xt=urn:btih:BD888900000E9FCEB9392D7EE0C376D4129970E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:BD888900000E9FCEB9392D7EE0C376D4129970E5
 ```bash
 magnet:?xt=urn:btih:2BF693D4906F4684445C804C735576A81CF6C75B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ MusicBrainz Picard - простая в использовании програм
 magnet:?xt=urn:btih:393E44C9DA9DF38F7319E5C6BE6FA2FA172E5E30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Desktop Calendar – бесплатный календарь рабочего с
 ```bash
 magnet:?xt=urn:btih:A0EE49010929F922D0FAFE835DA2963BA87A1C6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ RegCool 2.031 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:5665B469F95AC9094DB0B46C9EA03AEC833FF5D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:5665B469F95AC9094DB0B46C9EA03AEC833FF5D8
 ```bash
 magnet:?xt=urn:btih:92D315037C98FDFB9985AABC84BCB4112FF70ECB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:92D315037C98FDFB9985AABC84BCB4112FF70ECB
 ```bash
 magnet:?xt=urn:btih:F900893FFEDB1D67B02E362B0A5B3991119E2F5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ Sunny Bleau And The Moons - Passion & Regrets (2025) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:530B3510CA20935C42BC8AA530866CE4D0FA7932
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ R.J. Archer & The Painful Memories - The Cost of Loving Crisis (2025) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:F12B5D819231878E35BDB2935023981705DA4CC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ Leo Benmass - Origins (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:923395256A189CD35830C79E58E427A321AF1789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ The Creaking Floorboards - They're Waiting out of Sight (2025) [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:B3408F3EEA6BE6790CEA473C896EAA6FD9B9CBD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ Blues Prescription - The Late Night Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:D86184BB933ED45DF50FBA566D583E87114338A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ Ping Rose - Conjure Man (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:273BD1AF74FD1DF041C47E22D09CD436819A77BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ Murray Kinsley - Eye Of The Storm (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:566AFE9E786CD9B3535509B110D2C72BA024895B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ magnet:?xt=urn:btih:566AFE9E786CD9B3535509B110D2C72BA024895B
 ```bash
 magnet:?xt=urn:btih:895006A1612E433E38A8AB759DF0CE145B9388B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +649,8 @@ magnet:?xt=urn:btih:895006A1612E433E38A8AB759DF0CE145B9388B0
 magnet:?xt=urn:btih:CD4CA97F2BF1438A52E80A4E243C500BE7F4E658
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ Wolfgang Haffner - Silent World (2023) ACT Music [FLAC|Lossless|tracks + .cue] <
 magnet:?xt=urn:btih:FD110E0C43D7E5219749FD2FA8D4C5725613D51F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ Stolen Lives - Luciferův Efekt (2019) [FLAC|Lossless|image + .cue] <Thrash, Har
 ```bash
 magnet:?xt=urn:btih:A0A8E416AE6D33803E1D44AB0F9B28FCA7ECEE40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

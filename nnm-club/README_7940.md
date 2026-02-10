@@ -22,6 +22,8 @@ Throne Of Heresy - Decameron (2017) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 magnet:?xt=urn:btih:927B563460D0EDAE747D10872B75A7608B71375C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Draw.io 21.2.1 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:91ED9A02CC38B6917384B00C53F0C8507ACDCEE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Eon Timer 2.9.8 [Multi/Ru]
 magnet:?xt=urn:btih:853BEE5508B16E38010E915E9FA2848EA9CDAE1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Sandboxie - yтилита для контроля за работой разли
 ```bash
 magnet:?xt=urn:btih:E2592203F2F05C9C4B9C8F8045111F41BEF20A15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:E2592203F2F05C9C4B9C8F8045111F41BEF20A15
 magnet:?xt=urn:btih:031FA9A967D6972790C09C1EABA406FCBC485FCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:77CCCF6FAA796E1E29CB6CD3EF021D1C0E92EF27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Ocean Dark - Hope & Chaos (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy
 magnet:?xt=urn:btih:3AAB5249372D891AF81F1FA69178A575FE502B34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:3AAB5249372D891AF81F1FA69178A575FE502B34
 magnet:?xt=urn:btih:330791C6A8A55BF305A2A36013732E52E03B2BC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ xPlan4 Desktop 4.0.3 [En]
 ```bash
 magnet:?xt=urn:btih:CA1E7E20D5432F1D4244FAA7AECE67D3FE0E3927
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Windows and Office Genuine ISO Verifier - компактная утилита д
 magnet:?xt=urn:btih:A1F3CB8B24F848242C8D476B9C864330BFE82D49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:A1F3CB8B24F848242C8D476B9C864330BFE82D49
 ```bash
 magnet:?xt=urn:btih:8D21B40AEF29C2EE65D50436DAC82B981B404946
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:8D21B40AEF29C2EE65D50436DAC82B981B404946
 magnet:?xt=urn:btih:5485DEE3C49C0AAFCE543C5244DEF28163F94B1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:5485DEE3C49C0AAFCE543C5244DEF28163F94B1C
 ```bash
 magnet:?xt=urn:btih:0FD8871B1D0F6560D6E4E8104A10A43C715580CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ Itinerum - Dream and Fly (2023) [FLAC|Lossless|WEB-DL|tracks] <alternative metal
 magnet:?xt=urn:btih:3426B301867567A5E0082D41A0A9F7C5901C30B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:3426B301867567A5E0082D41A0A9F7C5901C30B0
 magnet:?xt=urn:btih:8238711DCC06638E5AD137A94E064D375ED56946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:8238711DCC06638E5AD137A94E064D375ED56946
 ```bash
 magnet:?xt=urn:btih:84C0E67F6453FE4C3CD8487A8E7C45FEF57364A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ Movist является простым в использовании и мощн
 magnet:?xt=urn:btih:7B3E1226E481539F1624C1C8E58C6AFA8BCF02A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:7B3E1226E481539F1624C1C8E58C6AFA8BCF02A0
 ```bash
 magnet:?xt=urn:btih:FC5A37F2478BB54155C6790AB61218183EA1F381
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:FC5A37F2478BB54155C6790AB61218183EA1F381
 magnet:?xt=urn:btih:69071B8BBD3E6A656D88774D54EE578B8D345390
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ United Front Games | Артбук по игре Sleeping Dogs / Sleeping Dogs: D
 ```bash
 magnet:?xt=urn:btih:2E72AC869FB29B5E92ACBDCFC1E0EFB9A3470ED1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ Majustice - Ancestral Recall (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power
 magnet:?xt=urn:btih:851988CA8E1F435BD52507EF763E206F099F0FAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ Gard Nilssen's Supersonic Orchestra - If You Listen Carefully the Music Is Yours
 magnet:?xt=urn:btih:CB476E328CA452C147482D53301FF1BA9552390C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 ```bash
 magnet:?xt=urn:btih:8C247D15F8A877479EB043156FCA945357A4CE26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ Throne Of Heresy - Antioch (2016) [FLAC|Lossless|WEB-DL|image + .cue] <Death Met
 magnet:?xt=urn:btih:688B7419490880902EED3E0E8E17282165EDE953
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:688B7419490880902EED3E0E8E17282165EDE953
 ```bash
 magnet:?xt=urn:btih:AE30376BA6071F583E28B742A644C7316B89D277
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:AE30376BA6071F583E28B742A644C7316B89D277
 ```bash
 magnet:?xt=urn:btih:B9A258D0D075B9C8D6303E68FF20A8071F52D47A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

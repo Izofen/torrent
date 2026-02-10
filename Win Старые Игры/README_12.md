@@ -19,6 +19,8 @@ Space Rangers 2: Reboot / Космические рейнджеры 2: Доми�
 magnet:?xt=urn:btih:B8B5C3BAA501CD139F4FF991F41749B1C5DC718E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Star Wolves 2 (2006) [Multi] (1.01pl) License GOG
 ```bash
 magnet:?xt=urn:btih:EA00AD5EECB8B985EDF75C666005EE1BCF9E4970
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Instinct рассказывает альтернативную историю с
 magnet:?xt=urn:btih:C356233F224E32901B022AFDC261AB5E6C5C4CFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ FlatOut — динамичная гоночная аркада с видом о�
 ```bash
 magnet:?xt=urn:btih:E284D50E6641452EA277A9E981A239A7E054E4DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Manhunt (2004) [Ru/Multi] (1.1) Repack Necros
 magnet:?xt=urn:btih:8ED421416E1BABB4DD9195D5BA851836F877C14D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Diablo 2 — продолжение легендарного ролевого э
 ```bash
 magnet:?xt=urn:btih:38A0CAEF5CA16DF349BF7373D36CFB2C2A588E39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Neighbours from Hell Dilogy + Remaster (2003-2020) [Ru/Multi] (1.0/1.01/1.2.1) R
 magnet:?xt=urn:btih:1DA12B81B7121AB769B8E5E74E32953C3DA14A92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Manhunt 2 (2009) [Ru/Multi] (1.0) Repack Necros
 ```bash
 magnet:?xt=urn:btih:FB368D1155050C86F533730E05B1ACF8D1759C9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Pilot Down: Behind Enemy Lines / Падение ястреба: В тылу вр
 magnet:?xt=urn:btih:7425F0061B64FD9F71C3163B9ECEDAEBE4B37AD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Icewind Dale 2 (2002) [Ru/Multi] (2.1.0.13/dlc) License GOG [Complete]
 ```bash
 magnet:?xt=urn:btih:DCF88B60B35E991AD819C038760CFCE32D786BAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ FIFA 07 (2006) [Ru/Multi] (1.00) Scene iMMXpC
 magnet:?xt=urn:btih:DA175059B9FC5D3C3B46DD5026DE7CD67ACEB1BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Hell 2 - это тотальная модификация Diablo: HellFire, 
 ```bash
 magnet:?xt=urn:btih:7FA41C7236BC55ECD4188533823B484B32E5D0EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru/En] (2.100.00:739578) Repack Fi
 magnet:?xt=urn:btih:8564AF14244C8DFA1B0657BDFAE878ED7BA26DC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Incredi Beachvolleyball / Улётный пляжный волейбол (2008) 
 ```bash
 magnet:?xt=urn:btih:A4022E81ABE0CF97B81C479D721FCEABDD10D1BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ SimCity 3000 Unlimited (2000) [Ru] (1.0) Unofficial
 magnet:?xt=urn:btih:3F3A2297475B0F1392DACC25E077E0D51FDDF909
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ SimCity 2000 (1995) [En] (1.0) Repack dark_elf2 [Special Edition]
 ```bash
 magnet:?xt=urn:btih:20597FF951750A46B07A8BBDE85C8CF1C1DEC9A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ SimCity Enhanced выполнена в двумерной графике, обз
 magnet:?xt=urn:btih:37F8D9C8E9CEC0E5D6D3B160E8E2CDE8B14D59C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Mythora / Изгнанник. Лезвие Смерти (2004) [Ru] (1.0) Licens
 ```bash
 magnet:?xt=urn:btih:519E01CB8B61CE3ABF2F528825E2A7F6F270539C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Cryostasis: Sleep of Reason (2008) [Ru] (1.0.2.608) License
 magnet:?xt=urn:btih:F791AF542D5635CCC9B4B90F59D36EFB22D15EE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Cryostasis: Sleep of Reason (2008) [Ru/En] (1.0.1.0) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:0C9483337D8D1F21471BD123A0D2EBC7AB55958C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ HIND: The Russian Combat Helicopter Simulation (1996) [En] (1.0) License GOG
 magnet:?xt=urn:btih:B5F2E91B809F278C3D5377EC5301728505AB3FA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ B-17 Flying Fortress: The Mighty 8th / Б-17 Летающая крепость 2
 ```bash
 magnet:?xt=urn:btih:199C43CEEAD3427728DFC7A0693A8458B01F4883
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Fleet Defender: F-14 Tomcat Simulation, замечательный симуля�
 magnet:?xt=urn:btih:D4D43092AE6CE575DFF98F76836A9FA69B040914
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ European Air War - авиасимулятор, действия которого
 ```bash
 magnet:?xt=urn:btih:C62683E4DCAEC3557F28F375BF9174C1DCA94B08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ M1 Tank platoon II дает вам командование взводом из 
 magnet:?xt=urn:btih:C92699C8900C7231A47FCE9F020DB060EABB8C5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Hotel Giant 2 (2008) [Ru/Multi] (1.0.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:85A6311DD9C1B9382CFC2485F180C9BD88CF1AA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

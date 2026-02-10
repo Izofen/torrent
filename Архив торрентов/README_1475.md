@@ -19,6 +19,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 magnet:?xt=urn:btih:B100E749CE78BF4A456F92B36167799233200138
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Boxy SVG 4.10.0 [En]
 ```bash
 magnet:?xt=urn:btih:779DD79D938C91D48191DFE98A43036C8E3624B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ iTubeGo YouTube Downloader Pro for Mac 7.0.3 [Multi]
 magnet:?xt=urn:btih:308D76FCC36CE60DD8BA3419E8D26BCB951C42F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Musify — лучший конвертер YouTube Music, который мож�
 ```bash
 magnet:?xt=urn:btih:E60A670B0F91BB7BF264CB88335C5F49D8669B55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Magic Disk Cleaner находит и удаляет временные файл�
 magnet:?xt=urn:btih:5124E5552AA375635B6062BB8AB71140EA92D731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Luminar Neo 1.6.2.10871 (Repack & Portable) by elchupacabra [Multi]
 magnet:?xt=urn:btih:17AD56DA8B92107415AC56A542FA2D626F57D637
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ YT Saver Video Downloader & Converter for Mac 7.0.3 [Multi]
 ```bash
 magnet:?xt=urn:btih:F5BAC68B755B592698069433CA9BCB3E28CCD144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Cookie - (   Читать дальше...   )Тип издания: macOS Softw
 magnet:?xt=urn:btih:AFFD3F023866B5684C4D8197C5B4AA34C1C9E323
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Navier HUD 3 v3.4.16 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B7FDE855BEA72BD0E7214670FE7E5850243FB660
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ LDPlayer 9 — мощный бесплатный эмулятор устройс
 magnet:?xt=urn:btih:BC24790982F2B4491D73869BFA322AFAFC296DA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Phrasebook - Learn Languages / Разговорник v17.0.0 [Ru/Multi]
 magnet:?xt=urn:btih:35D97B0EFCBFC29DCAC445DBE936DBCC1BF769CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Driver Easy Professional — профессиональная и в тоже в�
 ```bash
 magnet:?xt=urn:btih:1A4CBF3C85E6894EF55C96CC71CCAB7089BB2EA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Ventoy - это инструмент с открытым исходным код
 magnet:?xt=urn:btih:B3B53D01F4B9A4C2AD8FDFF7E4CC92AC7780E5F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ QownNotes – менеджер заметок, позволяющий четко
 ```bash
 magnet:?xt=urn:btih:4F07D14663D95A2A9588729CEC30E2F9A8C9A2DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ AIDA64 - является мощным средством для идентиф�
 magnet:?xt=urn:btih:C54039EC8AF8AC4FE99B00A57F4B5EABE52B83E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Bandicam позволяет записать определенную облас
 ```bash
 magnet:?xt=urn:btih:7EC0F9766AF83F773A91D4F840D660E5D3ABCDE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ MSI Afterburner - утилита для разгона видеокарт люб
 magnet:?xt=urn:btih:95DBEAE190CF54119F0D1DB48F6A2B56BB1B9862
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:98D3A909216DFA7ABEBFE8B55BE881398748514B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ DU Meter - программа для подсчета реального вхо�
 magnet:?xt=urn:btih:189A04FC046B4549B48AEDC586D2FA37AF719090
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Advanced SystemCare PRO - это мощный пакет для оптимиза
 magnet:?xt=urn:btih:CA047FB22AB8F18666D1D9C41246DD341EA1EF12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Media Player Classic Home Cinema – удобный во всех планах �
 ```bash
 magnet:?xt=urn:btih:2DACC8D8AB9FBC9F81C25FB85119D452230D8EEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Little Snitch nightly 5.5 [Multi]
 magnet:?xt=urn:btih:2C08BCD5D7A8FD562613372C832484962AA8D1F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Plus Messenger - неофициальное приложение для обме
 magnet:?xt=urn:btih:8A266C06D42A0D84BAD4BE791BD4E6C6A20DC5A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ MobaXterm - это комплекс утилит, в котором есть в�
 ```bash
 magnet:?xt=urn:btih:87038A6B79E82636A6AD122346CC96C423990CC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ ACDSee Photo Studio 9 v.9.2 [En]
 magnet:?xt=urn:btih:67D0939B9378C9C55972564CD2EE2F16F256F1EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:0D97C3DBD3EA5F05BD391456CAD4A37E7E1B90C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

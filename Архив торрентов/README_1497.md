@@ -21,6 +21,8 @@ AVZ - Бесплатная быстро работающая антивирус�
 magnet:?xt=urn:btih:52697FF14F510B9492B2F670A3182A5B81FA8C95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ DefenderUI - бесплатная программа, являющаяся ал�
 ```bash
 magnet:?xt=urn:btih:A41A8DA8C354C5A6E5F03C35EECB6E2A1C68DE5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ AIMP – проигрыватель, включающий в себя множе
 magnet:?xt=urn:btih:3AAC706B4A0106C0E32FC85C324693D64BE70B1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Imagine - это бесплатный просмотрщик изображен�
 ```bash
 magnet:?xt=urn:btih:F68A32B205FA230E788F9DDD16035CBA4690BFDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Start Everywhere - это программное обеспечение с ме�
 magnet:?xt=urn:btih:3E5BDCB63021F8ACEA8D3569C57470047B9B52E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:A4DC5092C31026545E75EE0BB6C8E121808594D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Multi Commander - мощный многооконный менеджер фай�
 magnet:?xt=urn:btih:7E630F9E68E172E645D64293190ED47B72005AC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Boilsoft Video Splitter - это мощный инструмент для обр
 ```bash
 magnet:?xt=urn:btih:D940A3C141B7BE1286515CDF3993D7C01AB223D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ uTorrent Pack 1.2.3.73 Repack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:B71E275A1696966E1E41ABC4F54F56B015778473
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Corel VideoStudio Ultimate 2022 25.2.0.566 [Multi]
 ```bash
 magnet:?xt=urn:btih:DFB73E3511E3AA0B8F5D5F1E32160321E858C80F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Wondershare UniConverter - простой в использовании виде
 magnet:?xt=urn:btih:B4987C50F5C1E32AEC8C7F6DC779B6E77A2B2168
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Universal USB Installer – портативная программа для с�
 ```bash
 magnet:?xt=urn:btih:3DC8E9F1587DCA54746AB56755841D347197C5B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ ACDSee Photo Studio Ultimate сочетает в себе поддержку с�
 magnet:?xt=urn:btih:42565DDAAD810FEE0EB3CE91E573CCFE34CA7212
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Floorp Browser – это модифицированная версия Firefox,
 ```bash
 magnet:?xt=urn:btih:439BECF7BCFDF823F463400B9A35475DD28300A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ SteerMouse - это драйвер мыши, который позволяет �
 magnet:?xt=urn:btih:45C0DDA58EA86559A05CD92CBD6AB4AB33451240
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Ashampoo® UnInstaller 12 помогает Вам устанавливать, т
 ```bash
 magnet:?xt=urn:btih:75C750934BBDAE251E5F2B0CF2C7C19AB3F50ED3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ YUMI (Your Universal Multiboot Installer) - бесплатная програм�
 magnet:?xt=urn:btih:B86CAC6927EEB64AB0748C7708BDAD451B6FD6CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ NewFileTime 7.07 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5514802889F9FEBC58379978B42B96F03F72779C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ HomeBank можно настраивать полностью под себя, �
 magnet:?xt=urn:btih:94BA2D91D3702843CD6EF57B670C8C2E7220B65B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Rider (   Читать дальше...   )Тип издания: macOS Software
 magnet:?xt=urn:btih:6245BF163AEADC3B5BD9D5B449833E66D2FDAEF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Avidemux - небольшой, простой редактор для работ
 ```bash
 magnet:?xt=urn:btih:0592C062538BC543EFF413FF05DCE992E88D7426
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ LosslessCut — простой видеоредактор для нарезки 
 magnet:?xt=urn:btih:FFD367EE513D13DBCB039393AF75B9DE8ACE8E3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ ImgDrive - простой и надежный эмулятор дисков, п�
 ```bash
 magnet:?xt=urn:btih:F2CD5A38B3993D23626847873AE23A880D749614
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ Opera Crypto Browser 95.0.4635.47 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:66F5994BE832789E814B314A48F797DE4661F33A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Microsoft Edge WebView2 Runtime 1.3.173.45 [Ru]
 magnet:?xt=urn:btih:CEE596E7912DE75FA056C32AB897BE11E7547583
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ PIDKey Lite предназначена для просмотра, обновле
 ```bash
 magnet:?xt=urn:btih:E82236B2A5FE1302AE46585D9F31A3857902F9E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

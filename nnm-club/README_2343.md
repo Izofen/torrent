@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A7B244DEB408D9DEFFA4C0B77607813A7B6CF265
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Resident Evil 2 / Biohazard RE:2 (2019) [Ru/Multi] (11636119/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9EE3FEE2F89DEE0D75C67C80383F9E21A29CD88D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Rick Miller  - 10 Albums (2004 - 2020) [FLAC|Lossless|tracks + .cue] <Progressiv
 magnet:?xt=urn:btih:5FD4916D5A816EF9F12C3D176E0C53A8DFF1AE58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Alone in the Dark (2024) [Ru/Multi] (1.02/dlc) Repack DjDI [Digital Deluxe Editi
 ```bash
 magnet:?xt=urn:btih:ED86AC60DE2A1170DFCD06ECEC5B50BDEE9D6C6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Oroka na Tenshi wa Akuma to Odoru | Глупый ангел пляшет с де
 magnet:?xt=urn:btih:87D0485148AE403EC6CF0A46B8DCB28FD911E433
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:87D0485148AE403EC6CF0A46B8DCB28FD911E433
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Akuyaku Reijou Level 99: Watashi wa Ura Boss Desu ga Maou de wa Arimasen | Зл�
 ```bash
 magnet:?xt=urn:btih:F1F42223E642692859438BE96378F998F5CEF86E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:F1F42223E642692859438BE96378F998F5CEF86E
 magnet:?xt=urn:btih:798486142DE3CF282220FFB5BAD6312CCD1318C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:798486142DE3CF282220FFB5BAD6312CCD1318C8
 ```bash
 magnet:?xt=urn:btih:3D1669C715BA38286F199608DC90B50D9BEDE7F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:3D1669C715BA38286F199608DC90B50D9BEDE7F0
 magnet:?xt=urn:btih:27B91B8F98A279B42F6A815088C503A3441DFBE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Academind Pro, Maximilian Schwarzmüller | ChatGPT - The Complete Guide (2024) W
 magnet:?xt=urn:btih:0900AF8ECAF11A1F3C3303E15567E678D02ED4F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:0900AF8ECAF11A1F3C3303E15567E678D02ED4F1
 ```bash
 magnet:?xt=urn:btih:162E8DCFD0F00BD571D0663B944CF28F042EC8C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:162E8DCFD0F00BD571D0663B944CF28F042EC8C5
 magnet:?xt=urn:btih:2AB4BFD5018413566DE199D64A31547DE5A8F9E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Star Wars: Dark Forces Remaster был воплощен в жизнь коман
 ```bash
 magnet:?xt=urn:btih:6E88F434781506699B739EE93CE27D41D251AC90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:6E88F434781506699B739EE93CE27D41D251AC90
 magnet:?xt=urn:btih:185CBB9075F153C9448CF858F3E8FCF982BA1907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:185CBB9075F153C9448CF858F3E8FCF982BA1907
 ```bash
 magnet:?xt=urn:btih:E1595B1B88327CB98CAD9402EB79B3FD21D041F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:E1595B1B88327CB98CAD9402EB79B3FD21D041F8
 magnet:?xt=urn:btih:45AF8DF5E3A1932D9860E31331B4B26692D85483
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:45AF8DF5E3A1932D9860E31331B4B26692D85483
 ```bash
 magnet:?xt=urn:btih:BA15F6EFCE5A075FF26DAF57C728477C529FFA05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:BA15F6EFCE5A075FF26DAF57C728477C529FFA05
 magnet:?xt=urn:btih:96EBCCB933ECDF90315926F177ABC6A0357C5A88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:96EBCCB933ECDF90315926F177ABC6A0357C5A88
 ```bash
 magnet:?xt=urn:btih:C29DEA59908B69042C77689FE60E8E42A44BFD4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Strange Horticulture (2022) [Ru/Multi] (1.1.26) License GOG
 magnet:?xt=urn:btih:A4EFF5E0E6B032B63528830D25561CD93F41660F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:A4EFF5E0E6B032B63528830D25561CD93F41660F
 ```bash
 magnet:?xt=urn:btih:E82CC954249A52412C53E30D05842FAC0EA266B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Mahou Shoujo ni Akogarete | Вoсхищaясь дeвушкaми-вoлшeбниц
 magnet:?xt=urn:btih:8DA174B8A14E4A3888D0841E2B3921A99CF5A38D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Web Video Caster® позволяет смотреть на вашем ТВ ви
 ```bash
 magnet:?xt=urn:btih:0B0BA7838367EBA3AE2F2AF47FC5A72969E60B49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в од
 magnet:?xt=urn:btih:B4BBB0AF4D02DBE78437630CEB44C9C247017BD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:B4BBB0AF4D02DBE78437630CEB44C9C247017BD9
 ```bash
 magnet:?xt=urn:btih:34E2DF0E66DF19823C6779948F14EFB9FBFC46CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

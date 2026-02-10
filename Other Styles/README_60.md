@@ -22,6 +22,8 @@ VA - Life is Strange: Before the Storm Original Soundtrack (2018) [FLAC|Lossless
 magnet:?xt=urn:btih:B6B9022CB443951BBBCC337F46A8E0AD31A78603
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Enigma - Love Sensuality Devotion: The Greatest Hits & Remixes (2016) Remastered
 ```bash
 magnet:?xt=urn:btih:7F784F6AFCD605F418801F66E1E61ABCEDBE2494
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Gregorian - Live! Masters Of Chant - Final Chapter Tour (2016) [FLAC|Lossless|im
 magnet:?xt=urn:btih:F657DFD3B9A04616CC8BD48141F778D2CAE5C6B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Peder B. Helland - Sunny Mornings (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age,
 ```bash
 magnet:?xt=urn:btih:1B96F1C516940B4CADBECB9650E50F51AE9FFFE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ L'One - 1985 (2017) Из т/с «Чернобыль 2. Зона отчужден
 magnet:?xt=urn:btih:D4727897424319DDB90ABBBCCBD7A231DDEDB352
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Andreas Vollenweider - Quiet Places (2020) [FLAC|Lossless|image + .cue] <New Age
 ```bash
 magnet:?xt=urn:btih:647A3731AA0D2FBCD44272B7C0BECAFE6F3526AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ VA - Арабские ночи (Инструментальная музыка 2 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ Jean Michel Jarre - Waiting For Cousteau (1990) Remastered / 2015, Sony Music / 
 ```bash
 magnet:?xt=urn:btih:0C82A06414613A081F9BE6C25EF1AEBE733570A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +260,8 @@ Various Artists - Rocketman (Music From The Motion Picture) (2019) 2CD / Target 
 magnet:?xt=urn:btih:DEFE4B52B67F5ED9486A5F31DDD219B2EFAE9FC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ VA - Tea Music (Музыка для Чайных Церемоний) - 12 CD (19
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +318,8 @@ VA - Modern Sound Orchestras - Another Day In Paradise (1992) [FLAC|Lossless|ima
 magnet:?xt=urn:btih:2400F6EDE728C6238291D7E117A1DCF239BE8EAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +346,8 @@ Andrey Klimkovsky (Андрей Климковский) - Star Triangle (2001) [
 ```bash
 magnet:?xt=urn:btih:A58EE38E581DCE4FE3A7C76762D8855343AE6CD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +376,8 @@ VA - Lady Bird (2018) [FLAC|Lossless|tracks + .cue] <Soundtrack, Score>
 magnet:?xt=urn:btih:5B2603EC4694D1F20603B26A24653C0C82B440E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +404,8 @@ The Cottars - Forerunner (2006) [FLAC|Lossless|tracks + .cue] <Folk, Celtic>
 ```bash
 magnet:?xt=urn:btih:8ADEF5E69A8BA163B7E38D410770AC51389486A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +434,8 @@ Leo Rojas - Colours of Nature (2022) [MP3|320 Kbps] <New Age, Instrumental, Nati
 magnet:?xt=urn:btih:3E5DF295B8C40CAC6C84EF65C513FEB25370154A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +462,8 @@ Howard Shore - Edge of Darkness (2010) [FLAC|Lossless|tracks + .cue] <Score, Mod
 ```bash
 magnet:?xt=urn:btih:18CDD4CBBEC8DF0493C4048E3BB2E8A05B892E57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +492,8 @@ Gustavo Santaolalla - Last of Us (2013) [FLAC|Lossless|tracks + .cue] <Soundtrac
 magnet:?xt=urn:btih:685733E4C8001A852F10DF93FDBA6446BCF44DA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +520,8 @@ VA - Romantic Collection - Instrumental vol.3 (2000) [APE|image+.cue]<Instrument
 ```bash
 magnet:?xt=urn:btih:895AB3A6198AB1259BB34B470B29E1E650494B63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +550,8 @@ VA - Ultimate Movies: 4CDs Of Great Hits From The Movies (2015) Box Set, 4CD [FL
 magnet:?xt=urn:btih:CC41FEBEC554D14B0C037D6582E2758EE0FC710C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +575,8 @@ Mariah Carey - The Star (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, 
 ```bash
 magnet:?xt=urn:btih:C4E2DFB85231726E15DD733909C371C376452716
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +605,8 @@ VA - The Best Of Me - Original Motion Picture Soundtrack (2015) [FLAC|tracks + .
 magnet:?xt=urn:btih:50BB6C25308F1D01C3417C646EECB44330441E46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +633,8 @@ Rawlins Cross - Reel 'n' Roll (1993) [FLAC|Lossless|tracks + .cue] <Rock, Folk, 
 ```bash
 magnet:?xt=urn:btih:A7F2B0DB75B3082EA3180C67657569CA733D9894
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +663,8 @@ VA - Mannerpension Die Musik Zum Film (1996) Soundtrack [FLAC|Lossless|tracks + 
 magnet:?xt=urn:btih:A3C8FE08D145448FD41E24B0E21CC18B4B23F3F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +691,8 @@ VA - The Elder Scrolls (Collection Original Soundtrack) (1994-2016) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:FCF6BFAFBBF8DCCB7BBEEF20AF0C364DC69ECBDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +721,8 @@ VA - Музыка Экрана. Коллекция Ридерз Дайджест
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ Hans Zimmer - Eclipse (From Dune: Original Motion Picture Soundtrack) [Trailer V
 ```bash
 magnet:?xt=urn:btih:795F54AB66CD149E53EEBD9FED64F05053E76019
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

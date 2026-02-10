@@ -19,6 +19,8 @@ Figo Shiftz — выдающийся редакционный шрифт с за
 magnet:?xt=urn:btih:282507F4DE706A6C2C5F76E3A8A26092F7265DB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ The Hives - The Hives Forever Forever The Hives (2025) [FLAC 24/96|Lossless|WEB-
 magnet:?xt=urn:btih:E476E6F9E21CD599266FD66FDCA1BF7623138C06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:E476E6F9E21CD599266FD66FDCA1BF7623138C06
 ```bash
 magnet:?xt=urn:btih:5EDFD83318A3D9A613F6465FAAA1912CD2112116
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:5EDFD83318A3D9A613F6465FAAA1912CD2112116
 magnet:?xt=urn:btih:CE448586C99256A61C34E04EA69BC948B8776F18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:CE448586C99256A61C34E04EA69BC948B8776F18
 ```bash
 magnet:?xt=urn:btih:E75E8B765DD7277D7D3BEA933FF8AAF37BC4EDD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ VA - Uplifting Only Top 15: August 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <
 magnet:?xt=urn:btih:5FEBBF33930A32E4BF0C19CEBD893C6445E4396D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:5FEBBF33930A32E4BF0C19CEBD893C6445E4396D
 magnet:?xt=urn:btih:5393DE0FDF87F68819D79635B9E4C2605F83EB79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:5393DE0FDF87F68819D79635B9E4C2605F83EB79
 ```bash
 magnet:?xt=urn:btih:6BEE6829EE749E201C779FBB8BF974E2D909491D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Gunslinger - Amped Up (2025) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy Metal,
 magnet:?xt=urn:btih:90D46DF31CCA319B1CCC9FADA2F2CBF2B3251B1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:90D46DF31CCA319B1CCC9FADA2F2CBF2B3251B1A
 ```bash
 magnet:?xt=urn:btih:CC3F6C774A06E5066C2BEDEC8E9AE6C04E371BE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:CC3F6C774A06E5066C2BEDEC8E9AE6C04E371BE6
 magnet:?xt=urn:btih:7DDC89B9FFB29E1FF299C775856173B8F0319C27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:7DDC89B9FFB29E1FF299C775856173B8F0319C27
 ```bash
 magnet:?xt=urn:btih:1A5FE48E12946BE77527BB61A254C7741E5D2BF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:1A5FE48E12946BE77527BB61A254C7741E5D2BF5
 magnet:?xt=urn:btih:0709C356807657C8DA3F049DF1990E3E65C3C967
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:0709C356807657C8DA3F049DF1990E3E65C3C967
 ```bash
 magnet:?xt=urn:btih:353668901C4670A24C9AFBABD084FABF253EE0D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ VA - Dance 360 (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 magnet:?xt=urn:btih:E6EEB708BB75782F0DECCB7E05952714B8EEABFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:E6EEB708BB75782F0DECCB7E05952714B8EEABFF
 ```bash
 magnet:?xt=urn:btih:8CE84C6C0C471E07CEC84734C8C031B1A9579FEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ Smart AudioBook Player Pro v11.5.2 Mod by Kirlif' [Ru/Multi]
 magnet:?xt=urn:btih:DC423E3DA20622731F128A38A7CE6302BE3155C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:DC423E3DA20622731F128A38A7CE6302BE3155C0
 ```bash
 magnet:?xt=urn:btih:482188FEA196295146453774DC3D8C8CE587029C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:482188FEA196295146453774DC3D8C8CE587029C
 magnet:?xt=urn:btih:873F684E4DEBD9A410E09C4CB667B4D662CBF585
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ Photo Editor - уникальная программа для обработки
 magnet:?xt=urn:btih:38035C998BB94F9AD7F12F1D9CB3458A47A83555
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ Linux Magazine - журнал, целиком посвященный опера�
 ```bash
 magnet:?xt=urn:btih:9BDA6D092130F59127255D44A8804F5BCA81FE60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:9BDA6D092130F59127255D44A8804F5BCA81FE60
 magnet:?xt=urn:btih:29F89CD5B51D8F5A94A614A8FE48185C45D9B9DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:29F89CD5B51D8F5A94A614A8FE48185C45D9B9DC
 magnet:?xt=urn:btih:0A1BE7D24DA4D52A4A1F017BF475D4A2B8E9CD18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:0A1BE7D24DA4D52A4A1F017BF475D4A2B8E9CD18
 magnet:?xt=urn:btih:1FC6CE5A71C17DCC958293E4BF25687456A47765
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:1FC6CE5A71C17DCC958293E4BF25687456A47765
 ```bash
 magnet:?xt=urn:btih:2DCA44A4B87903A0C631F7D45BEC9C8381945F3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +693,8 @@ Must read для всех, кто зачитывался историями о �
 ```bash
 magnet:?xt=urn:btih:350E4E50E5DCD4BB2E602676802B39EA757B267B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

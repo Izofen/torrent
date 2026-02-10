@@ -19,6 +19,8 @@ Django - бесплатный и свободно распространяемы
 magnet:?xt=urn:btih:AC70AABB99CE1137AF56F50C01851065AB558BED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Udemy, Bhrugen Patel, Andrei Brizhak | .NET Core Microservices - Полное р
 magnet:?xt=urn:btih:B8F9EC3604A9DB48E6335E20C742790D1937B9EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Udemy, Evgeny Novikov | Создание фреймворка и автомат�
 magnet:?xt=urn:btih:5860DA5AB49F29710DAAE42062E16C8698181AFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Von Glitschka | Лаборатория векторной графики (2016-2
 ```bash
 magnet:?xt=urn:btih:F55E7A27D35C4E718903FC11FC8CCE4CA9DE70FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Mobius — это техническая конференция для кома�
 ```bash
 magnet:?xt=urn:btih:C4F69CEBB5202EE8E4B51DCDA4AC091BB44424AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Udemy, Миша Пискунов | Андроид приложение от ди
 magnet:?xt=urn:btih:B3F3BC7752C1C9F026253C3214AFA787301CFC69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Udemy, Art Studio | Complete Blender Creator: Learn 3D Modelling for Beginners (
 ```bash
 magnet:?xt=urn:btih:A44F95EE5312F480D39C21B9A1CF08E3E369CD5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Create Realistic Looking Desert in Blender(   Читать дальше...   )П
 magnet:?xt=urn:btih:2BAD44EF14EF5592235C670AF3ADFA041544E945
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ Titanic Games, Jaxon | RPG Tutorial Series (2016) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:D9CD6A6049CE0C57048BD69F8611F4DBF628820B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ TechTrain — однодневный бесплатный онлайн-фест�
 magnet:?xt=urn:btih:63617AF3D9CC34CDFF150F0B8431957484E1F805
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Udemy, Mateusz Wendowski | AAA Game 3D Character Art course Module 01 - Body (20
 ```bash
 magnet:?xt=urn:btih:026366492265D8EDF6A006156CDDAD9533999AB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ Udemy, Art Studio | Complete Blender Course for Beginners & Intermediate (2022) 
 magnet:?xt=urn:btih:03BB19794057EA926A493A1108A07738FF69AC72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ Gumroad, Wiktor Öhman | Mastering UE4 - Intro to Cinematic Lighting (2020) PCRe
 ```bash
 magnet:?xt=urn:btih:2310574041BC9780292599BA54F9394B8ED3CD83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ Epic Games, Paul Kind | Studio Lighting (2019) PCRec [RU]
 magnet:?xt=urn:btih:75C3010B48FA1931B80BC0E783C0FC2C3C493007
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:75C3010B48FA1931B80BC0E783C0FC2C3C493007
 ```bash
 magnet:?xt=urn:btih:09D836CEC8580F4A616938601FA0C6E374F38571
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:09D836CEC8580F4A616938601FA0C6E374F38571
 magnet:?xt=urn:btih:C2995B07C95F31B73B4F4360F743CA5969DFA5F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ Udemy, Руслан Брантов | Курс по CorelDRAW: теория, пр
 ```bash
 magnet:?xt=urn:btih:1079BF45027315EA1233E8DBA358AD16BF1404ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ Udemy, Sergey Dragunov | Android Studio и Firebase - "Доска Объявле
 magnet:?xt=urn:btih:E39199B653E46F0D7EF26F592ED994F0EE95055D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ Udemy, Maria Brodskaya | Тестирование ПО для начинающи
 ```bash
 magnet:?xt=urn:btih:7A60541C7B124D528C2DCDC197EE70E72C52721B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ The Gnomon Workshop, Guilherme Rambelli | Creating Assets for Games using Photog
 magnet:?xt=urn:btih:FDF3146EB267C05F9C859E89B20533661B74B063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ Udemy, Andrii Polishchuk | React Hooks в Деталях (2021) WEB-DL [RU]
 magnet:?xt=urn:btih:6B26FEC67687E3FA24EACC6CA5104147EFD944A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ Udemy, Aleksey Zhadan, Лев Мотовских | AWS. Обучение раб�
 ```bash
 magnet:?xt=urn:btih:7FBA68F8AD15D307312166F6A67501FF8F152F99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ FlippedNormals, Emiel Sleegers | Advanced Texturing in Substance Painter (2021) 
 magnet:?xt=urn:btih:43499AAE77592556D9ADBA68B5FD4CA27D60ACBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ Udemy, Imran Nuruhussen | Complete Blender Course: From modelling to a short ani
 magnet:?xt=urn:btih:5C55B2ECFA0AD592F716FB1D1DF8BA19712E649F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ Udemy, Md. A. Barik | LeetCode in Java: Algorithms Coding Interview Questions (2
 magnet:?xt=urn:btih:C27DC56C40F6DA19773940F91E0366066F0148D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ Udemy, Andrei Dumitrescu | Linux Administration: The Complete Linux Bootcamp for
 ```bash
 magnet:?xt=urn:btih:72678F48F92B771CDCB6FC2B12EE078463507532
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1068790   (376109) от 03.11.2016
+
+VA - Musica Popular Brasileira (2016) [MP3|320 Kbps] <Latina, Pop, Popular Brasileira>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lemon- Latin Love
+02. Toto La Momposina - Carmelinar
+03. CNCO - Reggaeton Lento (Bailemos)
+04. Manzanita - Arranca(   Читать дальше...   )Жанр: Latina, Pop, Popular BrasileiraПродолжительность: 01:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:439B5F36FE91675B37E6AA97955B1C6AF3583AC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175715   (376129) от 19.10.2017
 
 VA - Beatport Top 100 Progressive House August (2017) [MP3|192-320 Kbps] <Progressive House>
@@ -21,6 +50,8 @@ VA - Beatport Top 100 Progressive House August (2017) [MP3|192-320 Kbps] <Progre
 ```bash
 magnet:?xt=urn:btih:903E98F434D080D65E0B6AE73B86CF5F7083A87B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +79,8 @@ VA - Men Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:E5B4D41CB4F276ED8492A1312B2877EE6A6FE039
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +115,8 @@ VA - Dub-Pack - Week 11 (2012) [MP3|320 кб/с]<Dub-Step>
 magnet:?xt=urn:btih:43C50B18A95AA9F4B9429D302A311AC0A71618C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -109,6 +144,8 @@ VA - Звездный Хит-Парад Шансона (2016) [MP3|256 Kbps] <Ш
 magnet:?xt=urn:btih:F1A3F71711874CB9181DF08C29E2E31AA60626C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -132,6 +169,8 @@ VA - Lyrical Songs Of From Ovvod7 vol.1-3 (2017) [MP3|320 Kbps]<Rock, Lyrical>О
 ```bash
 magnet:?xt=urn:btih:5EF43E931FC556C797BC8F989B064F91902775AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +199,8 @@ VA - Beautiful Messes: Country Soul (2017) [MP3|320 Kbps] <Folk Blues, Country>
 magnet:?xt=urn:btih:ACC41ABA52AC9C88CAA4217C6860D5256A897420
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +227,8 @@ VA - Ethernal Optimism: Uplifting Trance Mix (2016) [MP3|320 Kbps] <Uplifting, V
 ```bash
 magnet:?xt=urn:btih:824CFA8F9E1F3BC7D4B86CECAF8BAAC195BEEC2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +257,8 @@ VA - Deep House Collection Vol.140 (2017) [MP3|320 Kbps] <Deep House, Club House
 magnet:?xt=urn:btih:35589BFBB4E2B3517E2E1E0FA02FA55C4C0899D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +285,8 @@ VA - The Groove Deep House Project (2017) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:15DD0ADB9F174DF089C1F7772D30D67D1E17C0B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +315,8 @@ VA - Italo & Space Disco (2017) [MP3|320 Kbps] <Italo Disco, Spacesynth, Eurobea
 magnet:?xt=urn:btih:7CC48A5D636D464CD7595446569A5071524EA8C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +343,8 @@ VA - Autumnal Fun Blues (2017) [MP3|320 Kbps] <Blues, Rock Blues>
 ```bash
 magnet:?xt=urn:btih:AAC7CD0BABCD0547F78DFB7311A4205CE8A960C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +373,8 @@ VA - Planet EDM: October Euro Version (2017) [MP3|320 Kbps] <Club, Dance, House,
 magnet:?xt=urn:btih:B94C2AA7FD7DFEECFB602DDBC491EACD02882BEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +401,8 @@ VA - Today Sing The Blues (2020) [MP3|320 Kbps] <Blues, Rock Blues>
 ```bash
 magnet:?xt=urn:btih:929E43AF68ED381D38F581C884093A961CCFC203
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +437,8 @@ VA - Club Dubstep - №18 (2012) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:98B5FFC940C7D90275A5F8155B8D0773B5E8C1A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +472,8 @@ VA - Ibiza Dance Party (2012) [MP3|128 кб/с]<Trance, Dance>
 magnet:?xt=urn:btih:289D23B9275CF96EBDB1F8BBBC410B126834D8BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +501,8 @@ VA - Cosmic Interference (2017) [MP3|320 Kbps] <Techno, Minimal, Electronic>
 magnet:?xt=urn:btih:368FEBCAAD36D5AFDF26558D4166C3CA62F8C380
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +529,8 @@ VA - Radio ParadokS – Vocal Trance (2017) [MP3|256-320 Kbps] <Trance, Vocal Tr
 ```bash
 magnet:?xt=urn:btih:C1D71C06531B26A0DF140DC12D70DA57B0CD44D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +565,8 @@ VA - Soul of Ibiza Volume 46 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Tr
 magnet:?xt=urn:btih:8EADA4311FBC0E37C0FFCA2D4A036E697FEB49B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +596,8 @@ VA - Sense of Vocal Trance Volume 10 (2012)
 ```bash
 magnet:?xt=urn:btih:B67403E65B30D060AFB15E35F1CF96557EFE71A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +632,8 @@ VA - New Club-11 (2012) [MP3|320 кб/с]<Club, Dance>
 magnet:?xt=urn:btih:235FB40355A7C0DA055FACA546DC2492EAA3950A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +660,8 @@ VA - The Waiting Time (2020) [MP3|320 Kbps] <Funk, Soul, Blues, Jazz>
 ```bash
 magnet:?xt=urn:btih:A798BFD1361518E6A2298D280B8706BEF013459A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +690,8 @@ Part 1 (Discoteka)
 magnet:?xt=urn:btih:61127C2AC78DCE43D5E73129ECD102E73723E34A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +718,8 @@ VA - The Best Of Trance 61 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Prog
 ```bash
 magnet:?xt=urn:btih:417DDA57D8EF8437BE88C43933DC3F5EB32CDE79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +748,8 @@ Frank Duval - 25 Best Songs (2012) [MP3|~245 кб/с (V0)]<Instrumental Pop>
 magnet:?xt=urn:btih:A8A215A6AE0C41C8D48E0A636CA23344F3485CCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -700,32 +777,7 @@ magnet:?xt=urn:btih:A8A215A6AE0C41C8D48E0A636CA23344F3485CCD
 magnet:?xt=urn:btih:8F0F47F8104530C0C3BD642C81A29D1505B073D8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415380   (376983) от 12.10.2020
-
-VA - Beatport Goa Trance: Electro Sound Pack #184-1 (2020) [MP3|320 Kbps] <Goa, Psy Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376983.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Owntrip - We Are Going For You
-002. Ph4se - Afrolicious
-003. Nozpera - T.F.G (Original Mix)
-004. Singularity - Virtual Reality(   Читать дальше...   )Жанр: Goa, Psy TranceПродолжительность: 12:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8E86F2034F3DB7BC21222E079354D5F73E3FA7E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

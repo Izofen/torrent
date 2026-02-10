@@ -22,6 +22,8 @@ Logic - Ultra 85 (2024) [MP3|320 Kbps] <Hip-Hop, Rap>
 magnet:?xt=urn:btih:0854CE2643D4DF02C08448609B24A2651789253F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:0854CE2643D4DF02C08448609B24A2651789253F
 ```bash
 magnet:?xt=urn:btih:B8353AEEF4D6BA55BDA72DBB513F67BDB9E52ECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:B8353AEEF4D6BA55BDA72DBB513F67BDB9E52ECD
 magnet:?xt=urn:btih:E019A5EB1E94802362F277692E739551776E7922
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:E019A5EB1E94802362F277692E739551776E7922
 ```bash
 magnet:?xt=urn:btih:DCFBBBBE1D57F38401FF9115C56A1919874BB2CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Geegun - The Best Of (2008) [WavPack|Lossless|image + .cue] <Thug Rap, Gangsta, 
 magnet:?xt=urn:btih:7426D7BE9DFAC58C45BF390DAF2C60C8091A6462
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Chernovik - Космос во мне (2014) [WavPack|Lossless|image + .cue] <Rap
 ```bash
 magnet:?xt=urn:btih:5A5AA3BCFE4646DC8145308442E73EF5976E2F4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Negativ Nein - Negativ Nein (1996) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Hip-H
 magnet:?xt=urn:btih:085A9BE255B996B1880E8BDF6BC88DFC6C07DB73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Infiniti Night Club R&B Collection No. 1 (2006) [WavPack|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:4514FEAF9FBB5D80D19D75BBEEDDC583073F497B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Rapsody - Please Don't Cry (2024) [MP3|320 Kbps] <Hip-Hop, Rap>
 magnet:?xt=urn:btih:1704FA9E2C682F71D15657477E3F0E7759DB6DDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Dino MC47 - Вне Номинаций (2008) [WavPack|Lossless|image + .cue] <Ja
 ```bash
 magnet:?xt=urn:btih:2535FC9B57630E7E49C5E9DC9DCA9A135255710F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ magnet:?xt=urn:btih:2535FC9B57630E7E49C5E9DC9DCA9A135255710F
 magnet:?xt=urn:btih:A0D9475AE843C88D9FC181B73C1504F81F2AE122
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ magnet:?xt=urn:btih:A0D9475AE843C88D9FC181B73C1504F81F2AE122
 ```bash
 magnet:?xt=urn:btih:4D0C555191C5A1F244E05542A3EC46C46091831E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ UB40 - UB45 (2024) Ultimate Edition [FLAC|Lossless|WEB-DL|tracks] <Reggae, Ska>
 magnet:?xt=urn:btih:DC20DB71C7F4468BBCACD36087FC88D50A7D4D4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ magnet:?xt=urn:btih:DC20DB71C7F4468BBCACD36087FC88D50A7D4D4C
 ```bash
 magnet:?xt=urn:btih:98719A0DCEBEC3AE3397223798E487FFACE14CE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ magnet:?xt=urn:btih:98719A0DCEBEC3AE3397223798E487FFACE14CE7
 magnet:?xt=urn:btih:1E7A0F546FC36C70950FB57D7ABD888B3803AE05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ magnet:?xt=urn:btih:1E7A0F546FC36C70950FB57D7ABD888B3803AE05
 ```bash
 magnet:?xt=urn:btih:9EC78EB17105227B29559BCEFAD1FE774C046FEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Chillhop Essentials Spring (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 magnet:?xt=urn:btih:44BA65D7A598CA71BDE5864EB84082809D852A2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ magnet:?xt=urn:btih:44BA65D7A598CA71BDE5864EB84082809D852A2E
 ```bash
 magnet:?xt=urn:btih:0CDECB54B3826EA90290737F532CB40111932608
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ magnet:?xt=urn:btih:0CDECB54B3826EA90290737F532CB40111932608
 magnet:?xt=urn:btih:C66FB81EDE05E9E900127C8B22B5F49AE481FD17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Bob Marley & The Wailers - One Love (Original Motion Picture Soundtrack) (2024) 
 ```bash
 magnet:?xt=urn:btih:EF015636699C691C9258C717D5B7AF4321180F41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Usher - Coming Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Funk, R&B, Soul>
 magnet:?xt=urn:btih:DB29F03CDA94C4CE66F9783E66BA8305B63CF278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ Blacko - Kaf lion (2010) [MP3|160-193 kbps]<Reggae>
 ```bash
 magnet:?xt=urn:btih:9BBFAE2F0266104659511AB9A0D0626ECC91DA62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ Alai Oli - Снег и пепел, Volume 2: ТТП (2023) [MP3|320 Kbps] <Regga
 magnet:?xt=urn:btih:E38F73B8109ADB6E6BD1D27ADCC9A444F687ED5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ magnet:?xt=urn:btih:E38F73B8109ADB6E6BD1D27ADCC9A444F687ED5C
 ```bash
 magnet:?xt=urn:btih:EAA125CDBAB91F0B2C0980CC709EC87AC7FE3636
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ magnet:?xt=urn:btih:EAA125CDBAB91F0B2C0980CC709EC87AC7FE3636
 magnet:?xt=urn:btih:F0DB1A41C96434D867935D400710EEA4F2AC23E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ magnet:?xt=urn:btih:F0DB1A41C96434D867935D400710EEA4F2AC23E9
 ```bash
 magnet:?xt=urn:btih:92AA0DC86EE36B68E39BF0CC0A9B87007FDBED52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

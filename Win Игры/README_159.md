@@ -19,6 +19,8 @@ Space Prison бросает вас в холодную реальность га
 magnet:?xt=urn:btih:613D4C70D3EEE67FEA970E77B3DCD6866197F4CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ My Recycling Center – теперь в вашем распоряжении ес
 ```bash
 magnet:?xt=urn:btih:38BD13F25E46F503DF38DB879568CD0933B36EFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ A Space For The Unbound – игра, выполненная в пиксель-�
 magnet:?xt=urn:btih:188C80A45A7F33C3666448390783B46F8DD41DAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Eternal Escape: castle of shadows (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:92D867C4DD0B0153E9DB3E884B04B90FF25E4D98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ City of Stories 2: The Professor's Secret / Город историй 2: Сек�
 magnet:?xt=urn:btih:E86B2B9A932E8C035D4AE5904DE8A7FE6C464618
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ SteamWorld Heist II (2) (2024) [Ru/Multi] (1.3) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:B5A58E65D5AD2E49D3451415B145B564169B6EF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Cursed Fables 5: A Gilded Rose / Проклятые предания 5: Позо
 magnet:?xt=urn:btih:010F7EB740C12D9BC4F9EE4F5925FB7E9686B711
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ That Time I Got Reincarnated as a Slime ISEKAI Chronicles (2024) [Multi] (1.01/d
 ```bash
 magnet:?xt=urn:btih:25F7700E57F0F891489EA35DE20F1738332F90CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Hot Lap Racing (2024) [Multi] (1.0.3-0cfd3d1de) Repack FitGirl
 magnet:?xt=urn:btih:FACA0D0DBEC68155D4BE300E4F4F7E5207EA1527
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Deathbound - действие игры разворачивается в сре�
 ```bash
 magnet:?xt=urn:btih:B21EB2D092118BB5248EACFFFAD7DDB141924CEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Bo: Path of the Teal Lotus - яркий платформер, предлагаю
 magnet:?xt=urn:btih:83931E2BB1AE0A1C13E4FE89874F48872B79C166
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Wine Hunt: Aim Fidelity (2024) [En] (2.0.1.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:57DEF607E9F873D1CF145022E79EC41177E37CB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Zoo Simulator (2024) [Ru/Multi] (1.00.23) Repack FitGirl
 magnet:?xt=urn:btih:579B45B85105FF6AB5FC3444874E5B0E59C81959
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Atlas Fallen (2023) [Ru/Multi] (1.118888.1721314771/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A9FF34D90847B36F04B6D899A2401A58A2AE5A91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Voltaire: The Vegan Vampire - это фермерский рогалик-экш�
 magnet:?xt=urn:btih:D796D6DB055A13CCE196C3310E514EB00E3A8D82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ VLADiK BRUTAL (2024) [Ru/Multi] (Build 15319585) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:A3CA41F83232824B1541498B9B6AADBBC5C96881
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ mack Studio – окунитесь с головой в достаточно м�
 magnet:?xt=urn:btih:138C1E6C8EE3455B9D961193C7D502A943AFBDAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Taxi Rush (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E1D2FA8E575EE61D58A19754C10DC88834B8A7FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ That Time I Got Reincarnated as a Slime ISEKAI Chronicles (2024) [Multi] (1.01) 
 magnet:?xt=urn:btih:198A87EB17BFD522D9888E392F832D3378EEF93C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Moonless Moon (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:3FAD495A0FE47B2EC898D88EFD06F1E43C5627C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Deathbound - действие игры разворачивается в сре�
 magnet:?xt=urn:btih:3E3C34756C83D6D11A15969387563A19D65407B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ SteamWorld Heist II (2) (2024) [Ru/Multi] (1.3) Scene Tenoke [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:713D87CEB94B5C53AD34CC47DC1BCA6F71DD2B92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Aerial_Knight's We Never Yield - насыщенная напряженным д�
 magnet:?xt=urn:btih:45B3972175751B6F00DBD24CBF75060D12AF6DAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Blacklist Mafia (2024) [Ru/En] (Build 15226435) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:767E3C9B9B54EC870CC430E48A7F1579654A1774
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ S.T.A.R.W.I.E.L.D. (2024) [Ru/En] (1.04) Repack FitGirl
 magnet:?xt=urn:btih:27C5B715A0BB33589C40DB60EE587F3BFCE38E26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Universe For Sale (2023) [Multi] (1.3.0) License GOG
 ```bash
 magnet:?xt=urn:btih:A4CB6A2EE09EB0851923ADCCF04C6CD05F3E891D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1B336468479E460D73D3FF188C4C21F7AACA5565
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - Hyperlandia Night Party (2021) [MP3|320 Kbps] <Club, Dance House, Electro>
 magnet:?xt=urn:btih:8058F5DBB0BF029BFA7F1C782295EE519BAD03F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:8058F5DBB0BF029BFA7F1C782295EE519BAD03F1
 ```bash
 magnet:?xt=urn:btih:D50E857068C9F24F033FD507F787EF4A06A9A873
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Gumroad, Josh Gambrell, Ponte Ryuurui| Полное руководство по 
 ```bash
 magnet:?xt=urn:btih:68EEA59312B8E1E63FDBBB01F381FBBF8CEF5C22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:68EEA59312B8E1E63FDBBB01F381FBBF8CEF5C22
 magnet:?xt=urn:btih:C69A787A53AF8F7DA31A2061162EEF12C66DA7CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Seishun Buta Yarou wa Yumemiru Shoujo no Yume o Minai | Эта глупая св
 ```bash
 magnet:?xt=urn:btih:83DE300E94D2C5746D3C3E8C9AA6999118E1B4C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ Ben Webster Quartet - My Man: Live At Montmartre (1973) 1986, SteepleChase [FLAC
 magnet:?xt=urn:btih:C21EB0B624A555F1A7C048B1A16FE6915FABA816
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ Tom Holkenborg aka Junkie XL - Mortal Engines / Хроники хищных го
 magnet:?xt=urn:btih:A0DEBE8CB2B5D123B78F4EFB9C0FA1D1414543B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:A0DEBE8CB2B5D123B78F4EFB9C0FA1D1414543B0
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:A0DEBE8CB2B5D123B78F4EFB9C0FA1D1414543B0
 magnet:?xt=urn:btih:AF53B19ACD030C6882A188848FA114E6160D0CCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ Topaz Mask AI 1.0.6 RePack (& Portable) by elchupacabra [En]
 ```bash
 magnet:?xt=urn:btih:93ACFEB5619848723D1E0B2997DCC995D065B440
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:93ACFEB5619848723D1E0B2997DCC995D065B440
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ Vatic - Mercer 217 (2022) [MP3|320 Kbps] <Progressive Metalcore, Nu Metalcore>
 magnet:?xt=urn:btih:281CAE61D1B932ABD889F381A917C177CB01FEAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:281CAE61D1B932ABD889F381A917C177CB01FEAF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ Blacksad: Under the Skin (2019) [Multi/Ru] [macOS Native port]
 ```bash
 magnet:?xt=urn:btih:F7A196BEDB8094F14FEC938C0592C2FD39FE2C0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ Assassins Creed 2 (2010) [Ru] [OS X WineSkin]
 magnet:?xt=urn:btih:9942F22D308D045F51EC938AE612B67DA90F89ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ PDF-XChange Editor - программа для просмотра, редакт�
 ```bash
 magnet:?xt=urn:btih:2DC9C3335BB3729E0C36BCB9D86561DDA0682DD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0) License GOG [Episode 1-5]
 magnet:?xt=urn:btih:FC3CCC3A7C5C672D3D67EF66571ABD1905465D5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ Sky Gamblers: Storm Raiders 1.0.2 [5.0+jailbreak]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ Bon Jovi - Bon Jovi (1984) Remastered, 1998, Mercury [OGG Vorbis|480 Kbps] <Rock
 magnet:?xt=urn:btih:69B4B73B23BDB93634B7ADD377A99AC02B8B80C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:69B4B73B23BDB93634B7ADD377A99AC02B8B80C2
 ```bash
 magnet:?xt=urn:btih:C1D631292D5B9817EFDE6FF0897CFE4F4073869F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:C1D631292D5B9817EFDE6FF0897CFE4F4073869F
 magnet:?xt=urn:btih:DD692861C622F3ACBA561172C3EDA009A3FA4D6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ CD1: Music for sleepingЖанр: Классическая музыка для р
 ```bash
 magnet:?xt=urn:btih:1D82A059230A9EA531E174583893D4E4677551D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +641,8 @@ magnet:?xt=urn:btih:1D82A059230A9EA531E174583893D4E4677551D5
 magnet:?xt=urn:btih:30E3BFD41EFA4E0B64CEA7FA1950BF64A3E67E70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ Cabela's Big Game Hunter Pro Hunts – очередная часть в сери
 magnet:?xt=urn:btih:3E969E15BE04B4402D005C94447A73C8EFE093C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:3E969E15BE04B4402D005C94447A73C8EFE093C5
 ```bash
 magnet:?xt=urn:btih:E56E5C39C51D3437CC380857C7B4777DBE1A9B24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ Tecnica Slab Stencil состоит из 8 начертаний. 4 стиля «
 magnet:?xt=urn:btih:D27BC79BE2D2B940D92CC7BD6B7AAE3BEE20D5EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Libre Caslon Condensed - это шрифт с открытым исходным 
 magnet:?xt=urn:btih:45C05DD5A6706AA6C52C4723DF5935D844E659F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:45C05DD5A6706AA6C52C4723DF5935D844E659F0
 ```bash
 magnet:?xt=urn:btih:A9168AC419AF7547DE8A24E0508EB14C5478EB53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Dx Rigraf - новый, свежий и современный гротеск с
 magnet:?xt=urn:btih:249C2855066086FA6980222DB78FE74B64262F1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Greycliff CF — универсальное семейство шрифтов: �
 ```bash
 magnet:?xt=urn:btih:4AA22E7EC0DC1496966210526B2056C6BE3A38F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ GUMBLI - это пузырчатый, пухлый, игривый шрифт, �
 ```bash
 magnet:?xt=urn:btih:AB9E690CF2009691C99915045D5C147FA189349E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:AB9E690CF2009691C99915045D5C147FA189349E
 magnet:?xt=urn:btih:5A9B892BD189102F93BB758581ED0E2ED9F5D702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Organetto - это шрифт, вдохновлённый надписями н�
 magnet:?xt=urn:btih:14F3073C4E8333EB7C71EE1C220A0FD19A32AACF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:14F3073C4E8333EB7C71EE1C220A0FD19A32AACF
 magnet:?xt=urn:btih:9836D248DEF179A7CB44B95936F7DE82318855D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ X-Spacce - это смелый футуристический шрифт, воп
 ```bash
 magnet:?xt=urn:btih:C805FED146411AD976CFAC294EB461E0CBE5C8C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Lalola (первым появился под названием Lola в 1997 г�
 magnet:?xt=urn:btih:50E2F73F7AFFECC743EFFB942F656E300B2D8D11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:50E2F73F7AFFECC743EFFB942F656E300B2D8D11
 ```bash
 magnet:?xt=urn:btih:FFE5233872959ABF6E938F0AFDE28C6E7511EB42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ VanSans - это семейство гуманистических гротес�
 magnet:?xt=urn:btih:DB0FAFFF6DDEC658B3B315A222DB53E55420332B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ VFU (Visionary Font Ultra) - универсальный шрифт с 9 вари
 ```bash
 magnet:?xt=urn:btih:6AFDD4D9E3B7E7ED94F80E1C584C2A6A7AB5FF5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:6AFDD4D9E3B7E7ED94F80E1C584C2A6A7AB5FF5A
 magnet:?xt=urn:btih:E20FB64063A0543D522282370A0B09D14B05909A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:E20FB64063A0543D522282370A0B09D14B05909A
 magnet:?xt=urn:btih:0A8ADCDC84DEADB87819E38969F7E83A391CABC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ Qundeasy - это небрежный и милый рукописный шриф
 magnet:?xt=urn:btih:BCB4AD44D587A227F920F12FF9CBF6D8B2474455
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:BCB4AD44D587A227F920F12FF9CBF6D8B2474455
 ```bash
 magnet:?xt=urn:btih:8872631A197FD1B1BC2099AEC6F6648C6E78C197
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:8872631A197FD1B1BC2099AEC6F6648C6E78C197
 magnet:?xt=urn:btih:71FCB7DDC4631DD9C8825328610540760B02535C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ CD OVUER - сочетание старого и нового. Это элега�
 ```bash
 magnet:?xt=urn:btih:E24A687DC11F05207E46C3B590C7B4021D25C86C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:E24A687DC11F05207E46C3B590C7B4021D25C86C
 magnet:?xt=urn:btih:FDAF76258E412EDBDF2BCC3D5CE497D0B6F1810D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ BLOCKY - это монументальный акцидентный шрифт, 
 ```bash
 magnet:?xt=urn:btih:FCDAD871BF12CA965809D7CFE706C9718BB9EA86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ BLOCKY CIRCLE - это шрифт, созданный на базе самых �
 magnet:?xt=urn:btih:EB193B2D10B8DE822DC4B69CA1CD4FC225ADEF95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:EB193B2D10B8DE822DC4B69CA1CD4FC225ADEF95
 ```bash
 magnet:?xt=urn:btih:430FE50319CB092861FCB2E2E245C849357DCC78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:430FE50319CB092861FCB2E2E245C849357DCC78
 magnet:?xt=urn:btih:D71CB0C60FBC3229890B952BF661ED1DDCF40B75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ magnet:?xt=urn:btih:D71CB0C60FBC3229890B952BF661ED1DDCF40B75
 ```bash
 magnet:?xt=urn:btih:850DD0E3CC9D081A4266CB488BEC197AD4693F89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

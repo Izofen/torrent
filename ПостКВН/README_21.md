@@ -19,6 +19,8 @@ Stand Up (2017.12.17) SATRip (сезон 7, выпуск 12: Даджест)
 magnet:?xt=urn:btih:7B028B7135A28AEDE28DF90A339C9AD5EB5D6866
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:7B028B7135A28AEDE28DF90A339C9AD5EB5D6866
 ```bash
 magnet:?xt=urn:btih:565DA4D6BFF3B18FC538D57714859ACFF04F4448
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:565DA4D6BFF3B18FC538D57714859ACFF04F4448
 magnet:?xt=urn:btih:5C678EEB7B6E8A0D8491144F940838BDA0A435C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:5C678EEB7B6E8A0D8491144F940838BDA0A435C3
 ```bash
 magnet:?xt=urn:btih:A1FCD8C6E43A48BA31DEA1B6C0F74E0996CA6E1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:A1FCD8C6E43A48BA31DEA1B6C0F74E0996CA6E1B
 magnet:?xt=urn:btih:CD333BBC15A066FB1F750F8F110A14A727AB2DBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:CD333BBC15A066FB1F750F8F110A14A727AB2DBD
 ```bash
 magnet:?xt=urn:btih:3A6ACA0E9734E08F956F7D25D2E18D248C0C9B1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:3A6ACA0E9734E08F956F7D25D2E18D248C0C9B1E
 magnet:?xt=urn:btih:1098AFB999717FA1A180CBA647AAFA3A940CE81F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:1098AFB999717FA1A180CBA647AAFA3A940CE81F
 ```bash
 magnet:?xt=urn:btih:9C4FA7BE5C744996F91D416A7C2AFCA4B0A0F114
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Stand Up (2017.12.10) WEB-DL [H.264/720p-LQ] (сезон 7, выпуск 11: Д�
 magnet:?xt=urn:btih:925DBE7386F93848575C6D1045D440621BCBD8EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Stand Up / Концерт Нурлана Сабурова (2018.12.02) HDTV [H.2
 ```bash
 magnet:?xt=urn:btih:9BC770420A0F2B8A02E6DC9EA09DD14BF2F8F3A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:9BC770420A0F2B8A02E6DC9EA09DD14BF2F8F3A5
 magnet:?xt=urn:btih:F71A1B1348578BB9B4D586D79FD25F8F903A68B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:F71A1B1348578BB9B4D586D79FD25F8F903A68B0
 ```bash
 magnet:?xt=urn:btih:6E9049F0C508085602773A8B2B82BA3616822111
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:6E9049F0C508085602773A8B2B82BA3616822111
 magnet:?xt=urn:btih:8B18A31558264BD4BCEAA56176B83D57F31411DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Stand Up / Концерт Нурлана Сабурова (2018.12.02) WEB-DLRip
 ```bash
 magnet:?xt=urn:btih:B1CD58DDE97BC6FC40B2674BB711A6B433142836
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:B1CD58DDE97BC6FC40B2674BB711A6B433142836
 magnet:?xt=urn:btih:FAF29891EB61644BEE7321D56F0C536F6AC9689E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:FAF29891EB61644BEE7321D56F0C536F6AC9689E
 ```bash
 magnet:?xt=urn:btih:69F5675EB134570BA22B663FD90F4D1D65427258
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:69F5675EB134570BA22B663FD90F4D1D65427258
 magnet:?xt=urn:btih:431F752FBFEE81326C247C7B96896BFEBE57B77E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:431F752FBFEE81326C247C7B96896BFEBE57B77E
 ```bash
 magnet:?xt=urn:btih:EA5222C7007707510FA4ACB0AF496A5CFCEC187B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:EA5222C7007707510FA4ACB0AF496A5CFCEC187B
 magnet:?xt=urn:btih:FB3ED70163543C7A1D5A512BE5BD4EB2DD3C9012
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ magnet:?xt=urn:btih:FB3ED70163543C7A1D5A512BE5BD4EB2DD3C9012
 ```bash
 magnet:?xt=urn:btih:6E4094594C62533888983B0349CF6540FBB2936F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Stand Up (2017.12.03) WEB-DL [H.264/720p-LQ] (сезон 7, выпуск 10)
 magnet:?xt=urn:btih:E0565F6EE4A6EB72925B5C5F46A72DC5140CE65E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ magnet:?xt=urn:btih:E0565F6EE4A6EB72925B5C5F46A72DC5140CE65E
 ```bash
 magnet:?xt=urn:btih:248B4CA2C4E39A4C274612CD1928111D9C1711FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Comedy Woman (2017.12.01) WEB-DL [H.264/720p-LQ]
 magnet:?xt=urn:btih:8C654E3987DA93B58BA851E1EC470BFE5BC21C82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ magnet:?xt=urn:btih:8C654E3987DA93B58BA851E1EC470BFE5BC21C82
 ```bash
 magnet:?xt=urn:btih:EF68F97B7E756B909227BCF302C49367785B9C7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ magnet:?xt=urn:btih:EF68F97B7E756B909227BCF302C49367785B9C7C
 magnet:?xt=urn:btih:76C74D41668FF6C29E7D00739150193833A5C4C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ magnet:?xt=urn:btih:76C74D41668FF6C29E7D00739150193833A5C4C2
 ```bash
 magnet:?xt=urn:btih:AF41B34AC6EE9E4043642998F645777100B90074
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - Jay & Silent Bob Reboot / Джей и Молчаливый Боб - Пер�
 magnet:?xt=urn:btih:92F7B220FAA51B573FD4D6CECB7AB59035C087A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:92F7B220FAA51B573FD4D6CECB7AB59035C087A6
 ```bash
 magnet:?xt=urn:btih:B562EDCCCD5ED8350B04E3B6F64FBAC3CC48F617
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ CD1:
 magnet:?xt=urn:btih:C7CF482AECFE5484932FD89BA94B043FD0EC774B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:C7CF482AECFE5484932FD89BA94B043FD0EC774B
 ```bash
 magnet:?xt=urn:btih:3425DD15B48409EEAC02F3C82C706D32BD526824
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:3425DD15B48409EEAC02F3C82C706D32BD526824
 magnet:?xt=urn:btih:64EF45B1F3BB58FB07144BB23ED48618B583A8B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:64EF45B1F3BB58FB07144BB23ED48618B583A8B0
 ```bash
 magnet:?xt=urn:btih:0AB17C713CA8D7232DEDAEA2D417F21FBFE8EDD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ VA - Tech Of Access (2019) [MP3|320 Kbps] <Techno>
 magnet:?xt=urn:btih:0A131FE1A5E6FA8D16B2044414A244A2D14E726D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:44EF5377D04479C1365CF37745752CA1880F8450
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ VA - Natural Order: Progressive Trance Edition (2019) [MP3|320 Kbps] <Trance, Pr
 magnet:?xt=urn:btih:C84BC56E03C08886C2950F43E5622A817D41EAB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ Mandingo - Savage Rite (1977) LP [MP3|320 Kbps] <Funk, Soul, Afrobeat>
 magnet:?xt=urn:btih:7FC4555C1DE0698647A7AD5DB24A523F4336BA39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ New Year Snowflake Countdown  - это красивый проект для Но
 ```bash
 magnet:?xt=urn:btih:0E44227F7D2483900978CA8B32D8FAB6F623674C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ VA - Love Of Lounge Vol 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downte
 magnet:?xt=urn:btih:00321603A67D546FB83139B9B845625C9018A4C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:00321603A67D546FB83139B9B845625C9018A4C4
 ```bash
 magnet:?xt=urn:btih:09083FCB09B2409F8F58CC2BC1E4FF1C65CA7A10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:09083FCB09B2409F8F58CC2BC1E4FF1C65CA7A10
 magnet:?xt=urn:btih:FC25A11727B6FA4E6D4352FBAF9C290163E7EFAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ Trailer Opener - стильный и динамично анимированны
 ```bash
 magnet:?xt=urn:btih:A385B7F8A87A83F4606203E9B7222D3829388B71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ The English Garden - журнал для всех, кто любит краси�
 magnet:?xt=urn:btih:10F200143E08B683A3B851AF27EF3B32380C3A44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:10F200143E08B683A3B851AF27EF3B32380C3A44
 ```bash
 magnet:?xt=urn:btih:5EF8F939E860E39529AF613C3CD974A1535B8BBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ Valentina Studio - это идеальный инструмент управле
 magnet:?xt=urn:btih:94FA1C81652B6428D109B4F9A4C83E3B54DF9EDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ Fast Ford - журнал для владельцев и потенциальны
 ```bash
 magnet:?xt=urn:btih:6B25489817120DCA4366770AAAD62E1398A48821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ Affinity Publisher Beta 1.8.0.502 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E84AB6C3E38E3538533367B8B90BAC1C4C8ED6BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ VA - Pure Winter Bass (2019) [MP3|320 Kbps] <Drum & Bass, Bassline>
 magnet:?xt=urn:btih:BB1CF8A74E958EB6EBED9E275DED20E6DA873ADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ Fast Car - британский автомобильный журнал, осв�
 ```bash
 magnet:?xt=urn:btih:9DD082B981B6125EA7E4AB5020AF863D4CA2CE6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ EdgeView 2 - это новейший просмотрщик изображени
 magnet:?xt=urn:btih:C5D3DE615D73C50365E2E62FB9B75B158FEE7525
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ Fast Car - британский автомобильный журнал, осв�
 magnet:?xt=urn:btih:362D516FBD4B611104D44F94634CA9DEC4A7A6A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ Dash - удобное приложение, включающее в себя б�
 ```bash
 magnet:?xt=urn:btih:82E6EFDB1DCB522483DCA1EAE3A8F71EB544DAEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +693,8 @@ VA - Holiday Of City (2019) [MP3|320 Kbps] <House, Trance, Techno>
 ```bash
 magnet:?xt=urn:btih:A53599B57D67547108EE259A3D6EB123B6B9DBB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

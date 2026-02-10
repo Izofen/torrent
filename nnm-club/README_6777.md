@@ -19,6 +19,8 @@ Dash - очень удобное приложение, включающее в �
 magnet:?xt=urn:btih:EE334CA0097F552682ED80CADA6F97443EA0C92C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:EE334CA0097F552682ED80CADA6F97443EA0C92C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Artstudio Pro 5.1.16 [En]
 ```bash
 magnet:?xt=urn:btih:E27D364507F0F2326D87DD39C17F8B504DEE1492
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Deutsch Online | Большой грамматический интенсив A2
 magnet:?xt=urn:btih:ED14B765CF78CA9859E0F29CA4D7757C6D33BFD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ CaptureGRID - это приложение для работы с цифровы�
 ```bash
 magnet:?xt=urn:btih:D7D472E73383A6C16D0B17CE64389E4ECB29876A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Deutsch Online | Большой грамматический интенсив В
 magnet:?xt=urn:btih:85E34E968DC1F40D540D2B1D97B5AA665E797139
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Softorino YouTube Converter — почти YouTube Red, только беспл�
 magnet:?xt=urn:btih:85C4BC03FF33FC1B71B39615BF15EA2FFF8436CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ AmanVPN - качественное программное решение как 
 ```bash
 magnet:?xt=urn:btih:787CC4AA451B96F525B41A0320F2CF05B0A6EDEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Kairi - My Light, My Flesh (2011) [FLAC|Lossless|image + .cue] <Funeral Doom Met
 magnet:?xt=urn:btih:9DE45F4C284CA7F1BA00A2E65597E7BFABC03F2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:9DE45F4C284CA7F1BA00A2E65597E7BFABC03F2B
 ```bash
 magnet:?xt=urn:btih:0AA2C689937DF5C7C1D96A80A5E583C7D19DB094
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ Keep It 2.2.11 [Multi]
 magnet:?xt=urn:btih:6E82F2A202CA66587E50001156ADC7B2F618983E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:6E82F2A202CA66587E50001156ADC7B2F618983E
 ```bash
 magnet:?xt=urn:btih:9C5508BF6F13BEA672AE9722F893FBE6CBA5ADA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ Kaos Vortex - Seeds of Decay (2015) [FLAC|Lossless|image + .cue] <Death Metal>
 magnet:?xt=urn:btih:5E892FA657A57638E159EC9EBC44B90E3E1A9E44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:5E892FA657A57638E159EC9EBC44B90E3E1A9E44
 ```bash
 magnet:?xt=urn:btih:528293736FE800BEF2E814551CE40BA6FA30E8F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:528293736FE800BEF2E814551CE40BA6FA30E8F7
 magnet:?xt=urn:btih:DA88F79B61D25C1A298F61C302D35C4831BE9BF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ Adobe Media Encoder 2022 - это программа кодирования, к�
 magnet:?xt=urn:btih:692C8D5A1A0AF3779CEA41049CDBF96425240D4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:692C8D5A1A0AF3779CEA41049CDBF96425240D4F
 ```bash
 magnet:?xt=urn:btih:092D110B7B33C6AE387A58DDDF82F8853F0D6D50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:092D110B7B33C6AE387A58DDDF82F8853F0D6D50
 magnet:?xt=urn:btih:C052D43272FBFB92949E3B8B0AA336BF1593F1E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:C052D43272FBFB92949E3B8B0AA336BF1593F1E1
 ```bash
 magnet:?xt=urn:btih:092D9C12B22874CBAB5BFE36E722E20B91C2450A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:092D9C12B22874CBAB5BFE36E722E20B91C2450A
 magnet:?xt=urn:btih:88EE98653444E1357D56B774CBBC9767F2F85B2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:88EE98653444E1357D56B774CBBC9767F2F85B2B
 ```bash
 magnet:?xt=urn:btih:81D4257ED7E3BB2D24D0C889B46FCF3D88AD49B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ magnet:?xt=urn:btih:81D4257ED7E3BB2D24D0C889B46FCF3D88AD49B0
 magnet:?xt=urn:btih:CF367F1FBF3BBD58EF81E4FC053F5D0D06AEC120
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ magnet:?xt=urn:btih:CF367F1FBF3BBD58EF81E4FC053F5D0D06AEC120
 ```bash
 magnet:?xt=urn:btih:F902D8C274B928BBC0A36148D44E3E0E354245D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ LEGO Star Wars: The Skywalker Saga (2022) [PS4] [USA] 5.05 [HEN] [Repack / 1.07 
 magnet:?xt=urn:btih:16BC96C8EEB931453DD449E615462283B958564A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ magnet:?xt=urn:btih:16BC96C8EEB931453DD449E615462283B958564A
 ```bash
 magnet:?xt=urn:btih:B7195DD0E4BBCDAC79CAC3AE2CA3FA9253AF1EA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +687,8 @@ Dato поддерживает все языковые стандарты и яз
 ```bash
 magnet:?xt=urn:btih:849713248AB5D8B8BF6B5FD9825F5701621A8363
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

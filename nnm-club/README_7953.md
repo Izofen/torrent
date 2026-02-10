@@ -22,6 +22,8 @@ Chiliasm - Flesh Over Finite (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Neoclassic
 magnet:?xt=urn:btih:2DA5AE0654BD5C999B6BD615616534DCFB9194D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Timemator 2 v2.7.1 [En]
 ```bash
 magnet:?xt=urn:btih:B8D3C51D8FA9BCCADA0BA47852B66AD650B5F33A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:B8D3C51D8FA9BCCADA0BA47852B66AD650B5F33A
 magnet:?xt=urn:btih:BD6AE48F376F3CED63A7C8BD1FADFD766811164A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Flying Mollusk | Артбук по игре Nevermind / The Art of Nevermind - V
 ```bash
 magnet:?xt=urn:btih:B007340BB05A9BDAA07335826017DBAFAEC14272
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Speakers Corner Quartet - Further Out Than The Edge (2023) [FLAC 24/44.1|Lossles
 magnet:?xt=urn:btih:EFFFB14CCF8F704030A0E71ACCA12F08B2813EAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Koritni - Long Overdue (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:09DBEE93250EAC612D67239253D1C674794D84AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ CD1
 magnet:?xt=urn:btih:53CEC7CC3F3511D4FBC0CDA8BF1387FB2038DAD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ PatterNodes - хорошо продуманный и настраиваемый 
 magnet:?xt=urn:btih:79601165163A2BBAE0647D88657860B4FEF8A76C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:79601165163A2BBAE0647D88657860B4FEF8A76C
 ```bash
 magnet:?xt=urn:btih:DAA439E148ABFC38FF70A2813423680A399DB279
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ DevilDriver - Dealing With Demons, Volume II (2023) [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:75E82D6843AE520BEF1022878F7E4FD464F0A249
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:75E82D6843AE520BEF1022878F7E4FD464F0A249
 ```bash
 magnet:?xt=urn:btih:0E76DA001F96427DE45D5BB0B24F5A2A75BEC972
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ Yate был разработан для людей, которые серьез�
 magnet:?xt=urn:btih:C62BA42158C490CCF1AF4726F332AD1943EB164B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ Insofta Cover Commander позволяет создавать профессио
 ```bash
 magnet:?xt=urn:btih:7662AAE515A9A4244224E552CB1062E53FC4E25C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:7662AAE515A9A4244224E552CB1062E53FC4E25C
 magnet:?xt=urn:btih:D77F8A9DF7FDF1F378A61A9344FB9BEB0BB4DFE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:D77F8A9DF7FDF1F378A61A9344FB9BEB0BB4DFE7
 ```bash
 magnet:?xt=urn:btih:4A564156308CD7A2312DF614822A9D424FE62A63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ Tanya Tucker - Sweet Western Sound (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <C
 magnet:?xt=urn:btih:0E2F30CDE7F8088FFFD7CE9476F3DC3DD4A5FDEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ Hookshot - позволяет привязывать окна с помощью 
 ```bash
 magnet:?xt=urn:btih:1593CE5326799F71288C7789B8602BE3F524E6B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:1593CE5326799F71288C7789B8602BE3F524E6B6
 magnet:?xt=urn:btih:8AF4AE11DED4DB1959D25BFE820C72D5C20361FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ BusyCal - программа на Mac OS X, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:E4A0F29913554C57EA43C7C884150E4A0827C2BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ Unclutter - это новое удобное место на рабочем ст
 magnet:?xt=urn:btih:302D5C2A1EA6891075468D4195DAF69DCF2FC5CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ Kate - это кроссплатформенный текстовый редак
 ```bash
 magnet:?xt=urn:btih:78E5AB9A28E181660D7CC8288236093F51666F6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:78E5AB9A28E181660D7CC8288236093F51666F6D
 magnet:?xt=urn:btih:8B190476DDE0AF5B77CA10AB551D784369EF3AC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ magnet:?xt=urn:btih:8B190476DDE0AF5B77CA10AB551D784369EF3AC2
 magnet:?xt=urn:btih:F78F1179C8A87319F079810856D0A86513BC6D0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ Google заблокировал аккаунт отца, отправившег�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ VA - Favorite Techno (2021) [MP3|320 Kbps] <Techno, Minimal, Electronic>
 magnet:?xt=urn:btih:FC9447F671ABE80FDBE264A7210CFA2AB33FF680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ Coffinborn - Cadaveric Retribution (2023) [MP3|320 Kbps] <Death Metal, Oldschool
 ```bash
 magnet:?xt=urn:btih:C82A3A203E0D35B070616792F28A5DC5BE56BA03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

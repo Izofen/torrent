@@ -22,6 +22,8 @@ Scatman John - Take Your Time (1999) [FLAC|tracks+.cue]<Euro House, Jazzdance, D
 magnet:?xt=urn:btih:4BB78287FB6BD23AB07BB59B5543CC8BB2085569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ VA - Winter Wonderland Lounge, Vol. 1 - Music for the Most Romantic Season (2012
 magnet:?xt=urn:btih:DDAACD1153182C6F2C3339CDAC3FE1044B24B976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -82,6 +86,8 @@ Kruder & Dorfmeister - Discography 18 Releases (1993-2020) Studio !K7, G-Stone [
 magnet:?xt=urn:btih:CFE92A39D9181F09F33C294B1D13103900A3D5ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -105,6 +111,8 @@ Unknown Reality - Discography 51 Releases (2013-2020) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:2A185C8E1D937F2C0020D91E757A1CF9C57D6D82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -133,6 +141,8 @@ VA - Chilling Process Vol.04 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 magnet:?xt=urn:btih:BD71602C6083F42C49388FD0B1259EF0348A4D42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -159,6 +169,8 @@ VA - This Is Chill Out (20 Chill Out, Lounge For Relaxing) (2017) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:5ED7C10C9A0223A9A88C715AC9ACF2DBEB3F476F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +199,8 @@ tokee | Anatoly Grinberg - Discography 20 Releases (2009-2020) DOPE, Raumklang M
 magnet:?xt=urn:btih:F21197E8E528B6BCF60386312A52BC8D098CA99B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +227,8 @@ Ascent - Deep Blue Sea (2020) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Progr
 ```bash
 magnet:?xt=urn:btih:5696ABCE506998A60883F8547480296FA9A0D0DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +257,8 @@ KOAN Sound x Culprate x Asa x Gemini x Reso x Sorrow x Opiuo - The Movember Coll
 magnet:?xt=urn:btih:31877B0029E4395D22F63258B4CCB748E8120592
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Injazero Records - Label-Pack 22 releases (2015-2020) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:B10AA6E61577077B803FCD4424498ECB9D987913
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Treeboga - Circle of Unity (2020) Merkaba Music [FLAC|Lossless|WEB-DL|tracks] <T
 magnet:?xt=urn:btih:A8EE0660EAA8F1A102E8F86CB8C24E9E9C99749A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Steyoyoke Paradigm, Vol. 01-08 (2017-2020) Steyoyoke Recordings [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:1D7B2CA366196E24C3AD326BA1680C4F56525F16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Ana Roxanne - Because Of A Flower (2020) Kranky [FLAC|Lossless|WEB-DL|tracks] <A
 magnet:?xt=urn:btih:F637F25A8DC01BEAD84F4D19E4865897B0CEE32F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Laserdance - Trans Space Express (2018) [MP3|320 Kbps] <Spacesynth>
 ```bash
 magnet:?xt=urn:btih:E4850BCDA7869390565D10C8E8EB78D007826AAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Synthesis - 3 Albums (2005-2017) [MP3|320 Kbps] <Electronic, Synth-pop, Spacesyn
 magnet:?xt=urn:btih:E89FEAEA994D5248DD107D8D93CAD776D52B9533
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Chill Out Train (Smooth Lounge And Ambient Music) (2016) [MP3|320 Kbps] <Do
 ```bash
 magnet:?xt=urn:btih:186E97F3AADB4A9EC8656D3B32D399A2F18FAA48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Bedtime Zone: The Best Chillout Music To End The Day (2016) [MP3|320 Kbps] 
 magnet:?xt=urn:btih:7C9C7A30F65CEBB452F0C55B2B0A25130A89F49C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - Lime and Chill: Cocktail Bar Chillout (2016) [MP3|320 Kbps] <Downtempo, Chi
 ```bash
 magnet:?xt=urn:btih:D84BE282D8F002988D3F1F56EF1DAD3BCCF14471
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - Chill The Stress Away Vol. 2 (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:3FB229816DAA241E9D936E52B5D69D2348303ECF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ C.C. Catch - Super 20 (1989) [FLAC|tracks+.cue]<Synth-pop>
 ```bash
 magnet:?xt=urn:btih:8350A9E78320C331D998607F091FBD5AA3E779A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Koan - Insidious (2018) [MP3|320 Kbps] <Electronic, Downtempo, Ambient>
 magnet:?xt=urn:btih:888FBB363CF67A6F80C9F50620FDC05870EAD910
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ Yuri Sosnin - Space Travel (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
 ```bash
 magnet:?xt=urn:btih:0942956DCBEF2C3A4B6FB4854CF114AF4A6EC24B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ Silicon Dream - Time Machine (1988) [FLAC|tracks+.cue]<Synth-pop>
 magnet:?xt=urn:btih:A3749B07F0CB1FA837A1BCB99CF7155D50B3B422
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ Za Frûmi:(   Читать дальше...   )Жанр: Dark Ambient, Post Apoca
 ```bash
 magnet:?xt=urn:btih:AEDEC4207F09186E86F68896A76BCB669E2E9E99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ VA - Finest NY House 2018 (2018) [MP3|320 Kbps] <House, Nu Disco, Minimal>
 magnet:?xt=urn:btih:78F1B37893A175F75C8E06ED226BFE8460AFF344
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ London Elektricity - Building Better Worlds (2019) [FLAC|Lossless|WEB|tracks] <D
 ```bash
 magnet:?xt=urn:btih:5EADD33D07D1D4A648C929A077C067467E4D40A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

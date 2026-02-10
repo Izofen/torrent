@@ -19,6 +19,8 @@ Movavi Video Editor 5 Plus 5.1.1 [Multi/Ru]
 magnet:?xt=urn:btih:0BD4C155ACACEC6008AA4F4C6D7615FA83B04E7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ SMART Utility - приложение, которое считывает данн
 ```bash
 magnet:?xt=urn:btih:4373C5E606C3640DF518A95B32CA8FF285649C92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ NeoOffice создан на основе офисного пакета OpenOffic
 magnet:?xt=urn:btih:68A66456FD005EEE4FF93F3F6B3C6251CDBD6661
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ iSkysoft Video Converter для пользователей Мак предост
 ```bash
 magnet:?xt=urn:btih:FB38A460D339C495CA7933182D157AB814557F30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Nimble Commander полностью оправдывает своё имя (в �
 magnet:?xt=urn:btih:0EDDC5F996B24AE1D92E6FA4EF0595CD45818C27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Proxifier для Mac позволяет пользователям получа�
 magnet:?xt=urn:btih:D71A43C95AF109B8BC846C0D96A586D0F6B7F578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ MKVToolnix - функциональный набор инструментов д
 ```bash
 magnet:?xt=urn:btih:EF121BD01CA2F72D9EB3A66C1A6EF18BC32CFB5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Liquivid Video Exposure and Effects - это простое в использо�
 magnet:?xt=urn:btih:05CCFE01CC7860DD110417F22E55EFCD32B94A79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Motion 5.4 [Multi]
 magnet:?xt=urn:btih:95729F3A665B3C6B4505204807854E6B688BB5DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Paste 2.5.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1FA8395E61B8407770A1CF49378102A203446ED8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Logic Pro X — самая совершенная версия Logic. Новые
 magnet:?xt=urn:btih:D00F629C77460B229F65A7E2F0585523D0FA6E61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Movavi Photo Manager 2.0.0 [Multi/Ru]
 magnet:?xt=urn:btih:CFD264DDFD5B3A942C5AA3C274A57313C805B997
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ MonthlyCal очень современный и классный календа�
 ```bash
 magnet:?xt=urn:btih:D3844328CBBE7234BD525D475E7406B635523F00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ LRTimelapse — программа предназначена исключите
 magnet:?xt=urn:btih:699CFC93264FF5EA9EA785EBF5FFFBBAA0677F15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ Capo – это музыкальный плейер, но предназначе
 ```bash
 magnet:?xt=urn:btih:555AEEB01993ED369D2651377B8E5C6DBF977FC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:555AEEB01993ED369D2651377B8E5C6DBF977FC0
 magnet:?xt=urn:btih:71E07F41967C836E20A676E18F27C0379F961D0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ Declutter является решением проблемы, с которой 
 ```bash
 magnet:?xt=urn:btih:F2FF991F9B2531BB48E08E92958464C187B328D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ Cookie - (   Читать дальше...   )Тип издания: macOS Softw
 magnet:?xt=urn:btih:0C838E3E602F0671B8BA56DA84CB8C23D3A18513
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ TunesKit Apple Music Converter - программное обеспечение �
 ```bash
 magnet:?xt=urn:btih:10DE9BC52459160A7D4187C13E1FC1FAD2934B7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ Liquid - интегрированные shortcuts для обычных ежед
 magnet:?xt=urn:btih:1528E9960BB4C5FB9845E6D5F9A73FCB420B1610
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ TunesKit Audio Converter 3.2.0 [En]
 ```bash
 magnet:?xt=urn:btih:8F61390898BE3C13C0BF46D27ACE436A8E4AF266
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ Mac, как правило, считается безопасным и наде�
 ```bash
 magnet:?xt=urn:btih:F78ADDF539BAE1538F1D5FBAEF93A920AE243089
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ Micro Snitch 1.3.1 [Multi]
 magnet:?xt=urn:btih:BF7C2C0C00C85DA547387437BECBDC71E8B395C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ PhotoStyler – это небольшое приложение для быстр
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ SoftRAID популярный пакет создания и управлени�
 magnet:?xt=urn:btih:1803E6AF61286F05C5C5FBD9F039511866AE8350
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ Principle — приложение для Mac OS, которое позволя�
 ```bash
 magnet:?xt=urn:btih:F54692CBE81D6346743C1F9F1AAEE672472ABC57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

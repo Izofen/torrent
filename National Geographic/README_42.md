@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:B50B6292940963155F9F498732C9E732EDB87165
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG: Удивительный мир с NAT GEO / NAT GEO Amazing (2010) SATRip [
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NG: Мегазаводы. Суперавтомобили: Мустанг / Megaf
 ```bash
 magnet:?xt=urn:btih:46F1926BA604E686A00C0D0E036E7E9824E575B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:46F1926BA604E686A00C0D0E036E7E9824E575B1
 magnet:?xt=urn:btih:227DBCC6BAEAFE8E2D9DA366FD3A4DBAC5166976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NG. На Марс: история марсохода Персеверанс / Bu
 ```bash
 magnet:?xt=urn:btih:07D50DE41F08C8F334463BC824FFA8F7C8D29C4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ NG. Человек против акулы / Man vs Shark (2019) WEB-DL [H.264/1
 magnet:?xt=urn:btih:F512568C5CDC4EB90B21D79F3BF5CBA56955003A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NG. Огромная акула-молот / Mega Hammerhead (2016) WEB-DL [H.26
 ```bash
 magnet:?xt=urn:btih:C555FD26D3E46119982958337BEE7E183AC9A742
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ NG. Чудесная посадка на Гудзон / Miracle Landing on the H
 magnet:?xt=urn:btih:FDAB369A9651DCE01BFD931330C1125A7FCBEAC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ NG. Человек среди гепардов / Man Among Cheetahs (2017) WEB-D
 ```bash
 magnet:?xt=urn:btih:C2F90DEE1A9FD8EAAA3A23DBDF51CDF369D49DF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ NG: Загадки королевской кобры / Secrets of the King Cobra
 magnet:?xt=urn:btih:3731E2629F0291E28A27E03390B40C299A548F30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ NG: Секреты гробницы Христа: специальный реп�
 ```bash
 magnet:?xt=urn:btih:4A9BB02F0FCC17663586A37CF061422AC0C3E81B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ NG: Нотр Дам: невероятная гонка против ада / Not
 magnet:?xt=urn:btih:DCEA9565B58524F7E272B200AACB19E3F22DB1B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ NG. В погоне за равноденствием / Chasing the Equinox (201
 ```bash
 magnet:?xt=urn:btih:9829A8A2DED8B7961CC49B68F1BBB49E55C0787E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ NG. Спасти Нотр-Дам / Saving Notre-Dame (2020) WEB-DL [H.264/1080p]
 magnet:?xt=urn:btih:5EEFF1F396D99DD3D00A5A7EF489D3A135FCD03F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ NG. Миссия полета к Солнцу / Mission to the Sun (2018) WEB-DL
 ```bash
 magnet:?xt=urn:btih:081E1A293CE3247B2AB5ADFF8BD7383D38277ECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:081E1A293CE3247B2AB5ADFF8BD7383D38277ECD
 magnet:?xt=urn:btih:94EF0FC17488AA6D6CEE4040708D37987C9F1E74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ NG: Последствия: Когда Земля перестанет вращ�
 ```bash
 magnet:?xt=urn:btih:F4FD27ADEB24D02CA56EA0D677641CC6076B2A95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ NGW: Самые смертоносные змеи в мире / World's deadlies
 magnet:?xt=urn:btih:17BF9D7903913510E1ABBCDC6F735B84F4A92540
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ NGW. Змеи-убийцы / Killer snakes (2021) HDTV [H.264/1080i] [hand made 
 ```bash
 magnet:?xt=urn:btih:50858CD57E39607087F3CA26E8055CDDFCFB69AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ NG. Путешествие на край Вселенной / Journey to the Edg
 magnet:?xt=urn:btih:20E33C2EAE6C8596A6BB9F9FD8F5020750026EBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ magnet:?xt=urn:btih:20E33C2EAE6C8596A6BB9F9FD8F5020750026EBE
 ```bash
 magnet:?xt=urn:btih:3EE8EBBB89A8AEA1827DDA9FD5CE3400FD96D32E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:3EE8EBBB89A8AEA1827DDA9FD5CE3400FD96D32E
 magnet:?xt=urn:btih:379FA3C47EC9CFE763A0ADAA42CF0E23BD1EFD1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ NG. Самые лучшие суперкары / Ultimate Supercar (2019) HDTV [
 ```bash
 magnet:?xt=urn:btih:1A1CA17E93A40E211D6CBCD3846D5254088E3C5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ NGW: Удивительные большероты / Incredible Gulpers (2016) H
 magnet:?xt=urn:btih:797663697A40DB1D9670BB4C9FE9B4C5A797BEE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ magnet:?xt=urn:btih:797663697A40DB1D9670BB4C9FE9B4C5A797BEE2
 ```bash
 magnet:?xt=urn:btih:116D977811891B97A352B02A53B7334917AC3D59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

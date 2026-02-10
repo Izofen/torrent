@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:6C91EAC12447AD931E2C80D995D08B8628647C88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:6C91EAC12447AD931E2C80D995D08B8628647C88
 ```bash
 magnet:?xt=urn:btih:C65810AB25DB88EEB045C9DC3EE7CA78EA4EB937
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Novembre — итальянская метал-группа, образован�
 magnet:?xt=urn:btih:70DAD989B45B7FDA08C4C8623FB5255A31B3681A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Concrete Age - Awaken the Gods (2025) [MP3|320 Kbps] <Melodic Death, Thrash Meta
 magnet:?xt=urn:btih:465AE9C894BBECCA750CA529CEBD064D9D1B4191
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Gamaran | Гамаран (2009) [22 тома, 194 главы] [Манга] [Ру
 ```bash
 magnet:?xt=urn:btih:2633D5EF8D17AFF68E4BEB5759C077EA920C79DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ Echosoul - The Time of the Dragon (2025) [MP3|320 Kbps] <Progressive Heavy, Powe
 magnet:?xt=urn:btih:92158817B1D90732BA32A5167CD5E408CA7F0B80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ Running Death - Overdrive (2015) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:6A4D69F4BA82E4BE852E5DF05F6C78E872791D64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ Lewis Nash - Stompin' At The Savoy (2005) M&I Jazz [FLAC|Lossless|tracks + .cue]
 magnet:?xt=urn:btih:0B69BD407C8AF69693B73BE9B006ECD866306A60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -230,6 +246,8 @@ Legacy of Payne - Spawn of Creation (2025) [MP3|320 Kbps] <Thrash Metal>
 magnet:?xt=urn:btih:9CA5ADF1CA29B02B7BDF5D94540E702FE0457532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:9CA5ADF1CA29B02B7BDF5D94540E702FE0457532
 ```bash
 magnet:?xt=urn:btih:E41D73303D567039A90B94375FE891A55189F9A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ B. Ea (19:37)Жанр: Death MetalПродолжительность: 00:40:32
 ```bash
 magnet:?xt=urn:btih:569861649132B22C712BA97C771CBDFE30872D83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +328,8 @@ Shad Shadows - Wunderkammer Desire (2025) [MP3|320 Kbps] <Darkwave, Synthpop>
 magnet:?xt=urn:btih:E0B6D1BA0AB25FE88082CB1F249580EE246667CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +354,8 @@ Darwin's Game | Игра Дарвина (2012) [30 томов, 121 глава + 
 magnet:?xt=urn:btih:244245378DA3EE59EFC104AD4D86C641A48265CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +379,8 @@ GTO - Shonan 14 Days | Крутой Учитель Онидзука: 14 дней
 ```bash
 magnet:?xt=urn:btih:ED4002C7CA9EC3B7883D76F377E488D6F17FCD57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ Majo to Kishi wa Ikinokoru | Ведьма и рыцарь выживают (2021
 magnet:?xt=urn:btih:6894C6B41E0F57C459D4D1067742406859A3A972
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ Shounan Junai Gumi | Крутой учитель Онидзука: Ранние 
 ```bash
 magnet:?xt=urn:btih:64D95A0591B63761E834092DCB410EE04F6C222F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +463,8 @@ Deep Sun - Storyteller (2025) [MP3|320 Kbps] <Symphonic Metal>
 magnet:?xt=urn:btih:55121378CB5D64E56E9CC99ED535E86633D99ABF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +492,8 @@ magnet:?xt=urn:btih:55121378CB5D64E56E9CC99ED535E86633D99ABF
 magnet:?xt=urn:btih:F0DA48A0B0FAC6EB802D1C456462AEAF75A1DC80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ Kaguya-sama wa Kokurasetai: Tensai-tachi no Renai Zunousen | Кагуя: В лю
 ```bash
 magnet:?xt=urn:btih:5F98765A256D9FCA54A2680D235A00E7FEC2F9E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +547,8 @@ Oldschool Union - Herra Ja Hidalgo (2025) [MP3|320 Kbps] <EBM>
 magnet:?xt=urn:btih:843EBD17C350067FD7A101FCEAA2FFAAC683E942
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +574,8 @@ Shonan Seven | Семерка Шонана (2014) [17 томов, 67 глав] [
 ```bash
 magnet:?xt=urn:btih:BDDFDDDACD0195BD659BFE2DA02437201CB75D2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +604,8 @@ Elleven - 8030 (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 magnet:?xt=urn:btih:8C3BC78D3E73489639C7E4D4FC1EDC1860B0F935
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +632,8 @@ Interceptor - Metal Death (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Hea
 ```bash
 magnet:?xt=urn:btih:C07EB6A1D91B513A0472E301C62CD33EEDAD05F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +662,8 @@ Samiarus - Reign Destroyer (2025) EP [FLAC|Lossless|WEB-DL|tracks] <Black, Death
 magnet:?xt=urn:btih:3B348A78C919B9355D1CBFA79FDA27F92BC937E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +687,8 @@ Bad Company | Плохая Компания (1996) [1 том, 10 глав] [Ма
 ```bash
 magnet:?xt=urn:btih:87E5F9319395350D1D829FB915595B2C0BC93A1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -666,6 +716,8 @@ Kami nomi zo Shiru Sekai | Одному лишь Богу ведомый мир 
 ```bash
 magnet:?xt=urn:btih:769F83C372D62B266A27D84EAC65BD92BCD1CE66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

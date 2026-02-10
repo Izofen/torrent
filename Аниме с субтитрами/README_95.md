@@ -1,3 +1,29 @@
+###  Публикация: 1092704   (803014) от 30.03.2017
+
+One Room / Одна комната [2017, TV, 12] WEB-DLRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три истории, случившиеся в одной комнате.Производство: Studio SilverЖанр: приключенияРежиссер: Takashi SakumaПеревод: MikanyaЯзык озвучки: ЯпонскийЯзык субтитров: Русский (отключаемый), Английский (отключаемый)Продолжительность: 12 эп. по 5 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7A51A398EE8BBC9ADA68F03789DA748B6033D3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092750   (803078) от 30.03.2017
 
 Piace: Watashi no Italian / Пьячэволе: Моя итальянская кухня [2017, TV, 12] WEB-DLRip 720p raw
@@ -18,6 +44,8 @@ Piace: Watashi no Italian / Пьячэволе: Моя итальянская к
 ```bash
 magnet:?xt=urn:btih:8AAA681C895FD3040F71A7DDE1033CA8C5C6DDC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:8AAA681C895FD3040F71A7DDE1033CA8C5C6DDC0
 magnet:?xt=urn:btih:517021395A6B948CDD172661934D821881D2EAB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ Uchuu Senkan Yamato 2199: Hoshi-Meguru Hakobune | Odyssey of the Celestial Ark |
 magnet:?xt=urn:btih:1802631D54E99A01232724C065F30208DB50C12F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ Shounen Maid / Парень-горничная [2016, TV, 12 + SP] BDRip 1080p 1
 ```bash
 magnet:?xt=urn:btih:E93D88748A55EDC08F34B820EFCABAEED5162596
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ Tytania | Титания [2008, TV, 26 эп.] BDrip 1080p Hi10P raw
 magnet:?xt=urn:btih:C1C4398B42E1A8492B272616CE7BD11B80D9A1D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ Otaku no Video / Фильм об отаку 1982 и 1985 [1991, OVA, 2 из 2] B
 ```bash
 magnet:?xt=urn:btih:A16DB325FA71750DE2A3D76E0D68DEE660C4DEFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ High Score Girl II | Девчонка не промах [ТВ-2] [2019, TV, 9] B
 magnet:?xt=urn:btih:055337DEEF3041392462CDB5F63573F9C7A1FFA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ Trickster: Edogawa Ranpo "Shounen Tanteidan" yori / Обманщик: Клуб �
 ```bash
 magnet:?xt=urn:btih:A9E922EB1FCEE6A86CFCCE3101F65A1DAAAD9860
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ Chiruran: Nibun no Ichi / Чируран пополам [2017, TV, 12] WEB-DLRip
 magnet:?xt=urn:btih:8E939AD24C5202F2534ED07F8B86E24F081353CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ Magi: The Kingdom of Magic / Magi 2 / Маги 2 [2013, TV, 25 эп.] HDTV 720p 
 magnet:?xt=urn:btih:4867F91D435A89CFE15A599328973A8C7BE2D3FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ Highlander: The Search for Vengeance | Горец: В поисках мести 
 ```bash
 magnet:?xt=urn:btih:62ECD1D3E8808C697CBF121E54EADB1B1C3070D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ Saenai Heroine no Sodatekata | Saekano | Как воспитать из обыч
 magnet:?xt=urn:btih:A1D20A2AFA92C5A02C108DA9169B474FE322086F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ Garo: Honoo no Kokuin | Гаро: Печать пламени [2014, TV, 24] HDT
 ```bash
 magnet:?xt=urn:btih:C1E30F48C47056C4BDE60D51EF379653F3F4E0BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ Nurse Witch Komugi-chan R / Медсестра-волшебница Комуги
 magnet:?xt=urn:btih:9298A52252A92293D4E0E0D047F80DB26431EB34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ Strike the Blood: Kieta Seisou Hen | Удар крови: Потерянное �
 ```bash
 magnet:?xt=urn:btih:2A4B123ED8C455A8AB4EE9D350A0B10F54B62369
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +438,8 @@ Yuuki Yuuna wa Yuusha de Aru: Yuusha no Shou | Yuki Yuna Is a Hero: Hero Chapter
 magnet:?xt=urn:btih:CAE7E3E7C7BDCCC0A85E9202AB7244E364F7BE8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ Eldlive / Эль Драйв [2017, TV, 12] WEB-DLRip 720p raw
 magnet:?xt=urn:btih:38F724F86B7ABEADC4DBA9FA0DBE8171096A55A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +489,8 @@ Love Live! Sunshine!! / Живая любовь! Сияние!! [ТВ-3] [2016, 
 ```bash
 magnet:?xt=urn:btih:32E17AA3BE433F949947CC5251FFF5B6BEB2201F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +517,8 @@ Tenamonya Voyagers / Те еще странники [1999, OVA, 4 ep.] DVDRip Hi
 magnet:?xt=urn:btih:20FCF8CD364F22FBA14403081F1C1146ACBA5B29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +542,8 @@ Nerima Daikon Brothers / Братья Нэрима Дайкон [2006, TV, 12 ep
 ```bash
 magnet:?xt=urn:btih:D9E860AA9CC091E969B780324B7389B144943B3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +569,8 @@ Kono Bijutsubu ni wa Mondai ga Aru! / This Art Club Has a Problem! / У этог
 magnet:?xt=urn:btih:7B16C9157865AA72A88B211F2AF441360FAF5087
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +594,8 @@ Pan de Peace! / Хлеб мира! [2016, TV, 13] BDRip 1080p raw
 ```bash
 magnet:?xt=urn:btih:D41263A9AFEB8B8470160362BAE0A3A293559CA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +621,8 @@ Komori-san wa Kotowarenai! / Komori-san Can't Decline / Безотказная �
 magnet:?xt=urn:btih:A5B82EACEF8DB4003DF3CA5FF19E898ADD38ACF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +646,8 @@ Yuuki Yuuna wa Yuusha de Aru: Washio Sumi no Shou | Yuki Yuna Is a Hero: The Was
 ```bash
 magnet:?xt=urn:btih:64251955A764085B803A4B9450B8AD5E2BCD5B4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,29 +673,7 @@ Kaizoku Oujo | Fena: Pirate Princess | Фена: Принцесса пирато
 magnet:?xt=urn:btih:A86984D494BA8ED421E673AD1F84451ED56AB05D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154288   (809716) от 10.01.2018
-
-Nora to Oujo to Noraneko Heart | Nora, Princess, and Stray Cat | Нора, принцесса и бродячая кошка [2017, TV, 12] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человечество с давних пор задумывалось о секрете бессмертия. Но, как оказалось, у потусторонних сил свои планы на этот счёт. Когда люди наконец-то перестали умирать и зажили полноценной жизнью без страха смерти, в мире мёртвых не на шутку испугались. Ведь если смерти больше нет, то и их мир тоже скоро изживёт себя, станет не нужен людям. Поэтому, чтобы восстановить (   Читать дальше...   )Жанр: приключенияРежиссер: Мории Кэнсиро / Morii Kenshirou / 森井ケンシロウПеревод: Korochun (1-6); Risensteam (7-12)Язык озвучки: ЯпонскийПродолжительность: 12 серий по 5 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F339A218A55F40A711F9EF37B4589465BBF56C2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

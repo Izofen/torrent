@@ -21,6 +21,8 @@ Earth 2150: Escape from the Blue Planet / Земля 2150: Война Миров
 magnet:?xt=urn:btih:9E861296EB6EAE113E813C57199255620ABDCE09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ The Lord of the Rings: War of the Ring / Властелин колец: Войн
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Kingdom at War [En] (RePack) 1992 | RG Games/Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Warcraft III: Reign of Chaos — культовая компьютерная и�
 ```bash
 magnet:?xt=urn:btih:3875BACC531C9F59217107B22EDAC09A4DB0A93D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Total War Battles: SHOGUN – новая стратегическая игра �
 magnet:?xt=urn:btih:8D2E554EE0E12AF3D266F64259E00A5D952571D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Arena Wars 2 предложит игрокам современный графи
 ```bash
 magnet:?xt=urn:btih:E89B56A907F1967CA9377B8238093973D64930E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Star Wolves / Звездные волки (2005) [Ru/En] (1.1) License GOG
 magnet:?xt=urn:btih:98B51ED17E1680D14906009539D331B73E6F789E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Sid Meier's Civilization V (2010-2014) [Ru/Multi] (1.0.3.279/dlc) Repack R.G. Ca
 ```bash
 magnet:?xt=urn:btih:9045D9636D7EF72443E1E21CAA7EFF8544A4BA40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ StarDrive 2 - это захватывающее и увлекательное п
 magnet:?xt=urn:btih:CAE739214766A0A696D26DC4B4AA909A20D0836D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Spellforce 2: Demons Of The Past (2014) [Ru/En] (2.68.5408) License GOG
 ```bash
 magnet:?xt=urn:btih:07C6B07F3E1F10DD096AE4E842503821C84FED69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ MarZ: Tactical Base Defense (2019) [Ru/Multi] (1.0.gogp180619) License GOG
 magnet:?xt=urn:btih:35E2DD8F43080FA7E3D1E123E5460003549E48D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Dungeons 2 (2015) [Ru/Multi] (1.6.1.31/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:EDF87F3F21E76D35492139D30F285559F435A211
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Grand Ages: Medieval (2015) [Ru/Multi] (1.1.2.21069/dlc) Repack R.G. Catalyst
 magnet:?xt=urn:btih:5D3DDCC6B574884DE4AF1B789F25681ED82BC618
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Warlords: BattleCry 3 (2004) [Ru/En] (1.0.3) License GOG
 ```bash
 magnet:?xt=urn:btih:76E6082DDC293DACA78BFAE411D938A91CBB84BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Command & Conquer (2020) [Ru/Multi] (1.153.11.23850) Repack xatab [Remastered Co
 magnet:?xt=urn:btih:86C4E19E3FECEAF2A2CAD968FA2FF230DEE0924D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Aggressors: Ancient Rome (2018) [En] (1.0) License GOG
 magnet:?xt=urn:btih:80FDFFB6C6F985DA17F50EF495853F842D0DA083
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Warlock Dilogy (2012-2014) [Ru/En] (1.4.1.56/2.2.202.24549) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:D83B2E91B5A58BFE18ADB4E701D1FE50F22C41EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Knights of Honor [Ru/En] (Repack/1.05) 2004 | R.G.Механики
 magnet:?xt=urn:btih:974BA30DB09748F91A4CE2C3B2B2FE1CB9B82912
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Endless Legend (2014) [Ru/Multi] (1.5.1.s3/dlc) License HI2U
 ```bash
 magnet:?xt=urn:btih:188F8D735BCA7DECA5F500A438B47821479F2314
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Tiberian Sun продолжает развивать тему противост
 magnet:?xt=urn:btih:5C07A180E63D91AF8A16F23766B81C3EE3F84D0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Othercide (2020) [Ru/En] (6.23/upd8) Repack xatab
 ```bash
 magnet:?xt=urn:btih:74F13DFBCA69F9332D4BC1CDE20A87AAA41EAE61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ Cliff Empire - небольшая экономическая стратегия.
 magnet:?xt=urn:btih:DD5A06F6F4F4ADE6FD19ECBFEAACA9488D8A5AA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ Endless Space / Бесконечный космос (2012) [Ru/Multi] (1.1.58/dl
 ```bash
 magnet:?xt=urn:btih:D88F63F38228F5843B12F4ABFF444D262856A902
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ Blitzkrieg Anthology / Антология Блицкриг (2005) [Ru/En/Ge] (1.
 magnet:?xt=urn:btih:C62CF71A5FB0A2EA8B56E756BD448D26F3C224C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ Armies of Exigo / Armies of Exigo: Хроники великой войны [Ru/
 magnet:?xt=urn:btih:EE7EB9A89DE1C5F051565FAE7ED88C9CC1F63E62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Age of Empires - легендарная стратегия в реальном �
 ```bash
 magnet:?xt=urn:btih:FCCB32FD69952A07EE773E1900EC691CA2D1AB89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1416069   (369242) от 15.10.2020
+
+Александр Башибузук | По ту сторону игры (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все почти банально. Если есть искусственный интеллект, то рано или поздно он сойдет с ума. Искусственный интеллект на то и интеллект, чтобы хоть раз попробовать сыграть в свою игру. А то, что при этом некоторые застряли в чужом теле и в виртуальном пространстве, его не особо волнует. Хотел острых впечатлений – получай по полной. А все началось с того, что внук подарил (   Читать дальше...   )Жанр: Боевая фантастика, Попаданцы, Виртуальные мирыПродолжительность: 09:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:598262865F440F9DA805342211841F76406605A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416064   (369348) от 15.10.2020
 
 Айнур Галин | Иной мир. Морпехи. Книга вторая (2020) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:A7A52B53DF3BBE3763F3E5942DE2B24C9FD11DA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:A7A52B53DF3BBE3763F3E5942DE2B24C9FD11DA3
 ```bash
 magnet:?xt=urn:btih:A5824914183D42478B4CA78F7B619C37074A2DC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:A5824914183D42478B4CA78F7B619C37074A2DC3
 magnet:?xt=urn:btih:E913DC42F398BF99FB1383D66704DF9441E5CAEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:E913DC42F398BF99FB1383D66704DF9441E5CAEF
 ```bash
 magnet:?xt=urn:btih:B20E8BFEDA92B40387331A01860764EE09CA1B81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:B20E8BFEDA92B40387331A01860764EE09CA1B81
 magnet:?xt=urn:btih:3D1EB1D708AD0EE70F00125528DC66B9AD252CE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:3D1EB1D708AD0EE70F00125528DC66B9AD252CE4
 ```bash
 magnet:?xt=urn:btih:14920FFFC1E9F6AB61DACC0F942F4B1857CD6684
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:14920FFFC1E9F6AB61DACC0F942F4B1857CD6684
 magnet:?xt=urn:btih:1DEDE3FCB6F33EE6FA76A0BE080806511177115E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:1DEDE3FCB6F33EE6FA76A0BE080806511177115E
 ```bash
 magnet:?xt=urn:btih:1A18C37534557979297581D74F57113BD85902D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:1A18C37534557979297581D74F57113BD85902D3
 magnet:?xt=urn:btih:4AB30AE5111FCEC27CF0D08D0FF0D55A5A3D033B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:4AB30AE5111FCEC27CF0D08D0FF0D55A5A3D033B
 ```bash
 magnet:?xt=urn:btih:2BA857662C1517158A07CABB7A168DE63E961E98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:2BA857662C1517158A07CABB7A168DE63E961E98
 magnet:?xt=urn:btih:6E29D060B5C0D4E808DFD63FFFDA32C0C091A769
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:6E29D060B5C0D4E808DFD63FFFDA32C0C091A769
 ```bash
 magnet:?xt=urn:btih:75E15E5E20EDE13E600A8A3C173146F3B89C5FDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:75E15E5E20EDE13E600A8A3C173146F3B89C5FDB
 magnet:?xt=urn:btih:CCD68C27DD2E890F3001858D8433953466BE91AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:CCD68C27DD2E890F3001858D8433953466BE91AF
 ```bash
 magnet:?xt=urn:btih:78AAF6B01C0E23A3F37876E006CFB1022CA3882B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:78AAF6B01C0E23A3F37876E006CFB1022CA3882B
 magnet:?xt=urn:btih:84BF8465384C8952F5D7DD65338FD06AD2771C5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:84BF8465384C8952F5D7DD65338FD06AD2771C5B
 magnet:?xt=urn:btih:EDA8D0E27D097E6BE09D8DAEB6AFA563955FD763
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:EDA8D0E27D097E6BE09D8DAEB6AFA563955FD763
 ```bash
 magnet:?xt=urn:btih:2713C77C4A7E6599F25C95F85B25BED2AFB2932F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +493,8 @@ Hauptmann_Grun | О монстрах и пони (2016) [MP3]
 magnet:?xt=urn:btih:CEF312F08B0A10F7440DA79B693850DA13E855DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:CEF312F08B0A10F7440DA79B693850DA13E855DE
 magnet:?xt=urn:btih:C1B79B0A0750E37864EF5415C1CC8AF0D2EA1B45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:C1B79B0A0750E37864EF5415C1CC8AF0D2EA1B45
 ```bash
 magnet:?xt=urn:btih:C4BC4FEF413A00B747008632DB6B7AF5E994CD96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:C4BC4FEF413A00B747008632DB6B7AF5E994CD96
 magnet:?xt=urn:btih:1209263B8C4B60B3080FE2D91F487837D09308BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:1209263B8C4B60B3080FE2D91F487837D09308BD
 ```bash
 magnet:?xt=urn:btih:5BC20E3DEF7D61189D129766238FBA7DC717036B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:5BC20E3DEF7D61189D129766238FBA7DC717036B
 magnet:?xt=urn:btih:A60D546875F019E472B8701BC8F54BD2C79D3B3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:A60D546875F019E472B8701BC8F54BD2C79D3B3B
 ```bash
 magnet:?xt=urn:btih:11142D8B401F26ABAB34BC8C2540ADFD5260843D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,29 +680,7 @@ magnet:?xt=urn:btih:11142D8B401F26ABAB34BC8C2540ADFD5260843D
 magnet:?xt=urn:btih:1CAB2B9A71102E8E494C290F11574BE82842348B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950161   (372319) от 25.10.2015
-
-Никита Аверин, Игорь Вардунас | Противостояние (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ревущие костры инквизиции и грохот копыт по залитой кровью Европе, готовящейся к войне с альбигойской ересью. Таинственный Жеводанский Зверь, наводящий ужас в окрестностях севера Франции и шериф провинциального американского городка Эльдорадо, спустя столетия расследующий серию загадочных убийств в иллинойском заповеднике Шоуни. Что связывает эти события между собой (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 09:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77169A4D9CC19B0117BF9D6F0F0E58E843C3DE49
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

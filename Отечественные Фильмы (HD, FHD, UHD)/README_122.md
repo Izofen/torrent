@@ -1,3 +1,29 @@
+###  Публикация: 983333   (943107) от 06.02.2016
+
+Он – дракон (2015) BDRip [H.264/1080p]
+
+>>След.
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943107.jpg" />
+</div>
+
+
+###  Подробнее
+
+В разгар свадьбы княжну Мирославу похищает дракон, унося в свой замок на острове. В прошлом остались родные, жених, теперь только каменный плен в компании прекрасного Армана… но кто он и как оказался на острове? Мира поймет это слишком поздно: любовь к нему, человеку-дракону, откроет ей горькую истину — любить страшно.Производство: Россия / Базелевс ПродакшнЖанр: фэнтезиРежиссер: Индар ДжендубаевАктеры: Мария Поезжаева, Матвей Лыков, Станислав Любшин, Иева Андреевайте, Петр Романов, Андрей Лебединский, Марта Тимофеева, Иво Господинов, Егор Зубарчук, Виктория РунцоваПеревод: Не требуется (Русский, Лицензия BD RUS)Субтитры: ОтсутствуютПродолжительность: 01:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D426A6C8DFC7DF6CAB50564F3204B7BE19FF46D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983575   (943256) от 06.02.2016
 
 Россия 88 (2009) BDRip [H.264/1080p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:B09BCCBCF3C66A90C106AE79E22A66CD858FB4AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:B09BCCBCF3C66A90C106AE79E22A66CD858FB4AF
 magnet:?xt=urn:btih:85FC717901B533C5A7DEAC7FFDDAF2EECE8386A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:85FC717901B533C5A7DEAC7FFDDAF2EECE8386A5
 ```bash
 magnet:?xt=urn:btih:E2A275D21A5601D5095237ECA37189C3371ED762
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:E2A275D21A5601D5095237ECA37189C3371ED762
 magnet:?xt=urn:btih:D649AD7BF95A74DF6DE14C7701CE3E92C54D5804
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:D649AD7BF95A74DF6DE14C7701CE3E92C54D5804
 ```bash
 magnet:?xt=urn:btih:37E0AFFB7239E90D64F4A2A846D9BFB958D3B218
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:37E0AFFB7239E90D64F4A2A846D9BFB958D3B218
 magnet:?xt=urn:btih:3B9F6B4DF6BE81E4FB89BCF5159EFA8789D23EF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:3B9F6B4DF6BE81E4FB89BCF5159EFA8789D23EF0
 ```bash
 magnet:?xt=urn:btih:4976B8C6866344575C8C6C5BE5EAD32F9FBEFBDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:4976B8C6866344575C8C6C5BE5EAD32F9FBEFBDC
 magnet:?xt=urn:btih:F62454CA4012D31E994131BAE2577BE276A0A87A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:F62454CA4012D31E994131BAE2577BE276A0A87A
 ```bash
 magnet:?xt=urn:btih:394120ECE2E19F3DFA18DC01AC42981C3909E529
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:394120ECE2E19F3DFA18DC01AC42981C3909E529
 magnet:?xt=urn:btih:AD7FB9348CCBC765956F0838A32BF39749B8FCBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:AD7FB9348CCBC765956F0838A32BF39749B8FCBA
 magnet:?xt=urn:btih:C963CF58F9F53080AE0F1EB552A8113E33C18468
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +330,8 @@ magnet:?xt=urn:btih:C963CF58F9F53080AE0F1EB552A8113E33C18468
 ```bash
 magnet:?xt=urn:btih:2C0CE12AB1946CE27F8102051E06C80852BF39E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:2C0CE12AB1946CE27F8102051E06C80852BF39E6
 magnet:?xt=urn:btih:190C5EB2D766F45C658A6D2A58D99DB43D9C67EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:190C5EB2D766F45C658A6D2A58D99DB43D9C67EA
 ```bash
 magnet:?xt=urn:btih:5E193EE7EA9650C598986BB0C8F6906BF8A36878
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:5E193EE7EA9650C598986BB0C8F6906BF8A36878
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:5E193EE7EA9650C598986BB0C8F6906BF8A36878
 ```bash
 magnet:?xt=urn:btih:B6A11E18B42B0FA48443B47F69697292A6DB329D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:B6A11E18B42B0FA48443B47F69697292A6DB329D
 magnet:?xt=urn:btih:8431E8BC0E952FDA5C4C56927F01B2D7097CCB85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:8431E8BC0E952FDA5C4C56927F01B2D7097CCB85
 ```bash
 magnet:?xt=urn:btih:ACDAC8EC15A4A3896EBA61DDF2E7C6E965FC5F97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:ACDAC8EC15A4A3896EBA61DDF2E7C6E965FC5F97
 magnet:?xt=urn:btih:D82DDA8A33EB727E19880396B15DE037D4C4215D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +539,8 @@ magnet:?xt=urn:btih:D82DDA8A33EB727E19880396B15DE037D4C4215D
 ```bash
 magnet:?xt=urn:btih:FB7A2A5FA161CBC4F1C4B5521929B8087C2AEE5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:FB7A2A5FA161CBC4F1C4B5521929B8087C2AEE5B
 magnet:?xt=urn:btih:9134FCEDA64B5143C9A629738CCA33CCE77F9E85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +591,8 @@ magnet:?xt=urn:btih:9134FCEDA64B5143C9A629738CCA33CCE77F9E85
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:9134FCEDA64B5143C9A629738CCA33CCE77F9E85
 magnet:?xt=urn:btih:6141B44489911DF87439864C923388C7D317DBF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +643,8 @@ magnet:?xt=urn:btih:6141B44489911DF87439864C923388C7D317DBF2
 ```bash
 magnet:?xt=urn:btih:1ED02BAA99FC8E7D8ED569EEDEFB2068F90B92E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,29 +670,7 @@ magnet:?xt=urn:btih:1ED02BAA99FC8E7D8ED569EEDEFB2068F90B92E1
 magnet:?xt=urn:btih:0220261A33EEB154C94397EE5AD8CF267CF48156
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089138   (951553) от 03.01.2017
-
-В зоне доступа любви (2016) HDTVRip [H.264/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зимняя сказка о случайной встрече двух незнакомых людей. Анне 35 лет, она отоларинголог, работает в районной поликлинике. Безотказная «врач и нянька всего подъезда» недавно пережила продолжительный и бесперспективный роман с женатым мужчиной. Ее новому избраннику Андрею 38 лет, он бизнесмен средней руки, брутальный, современный, с неудачным браком в прошлом и четко (   Читать дальше...   )Производство: Россия | Кинокомпания "100 фильм"Жанр: Комедия, МелодрамаРежиссер: Вера СторожеваАктеры: Светлана Ходченкова, Дмитрий Дюжев, Светлана Немоляева, Алексей Колган, Сергей Быстров, Ника Анаскина, Тимур Анаскин, Максим Стоянов, Яна ОсиповаПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA5F3BB64B9A0030C9BC471C27D374772BCD793E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

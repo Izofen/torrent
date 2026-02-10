@@ -19,6 +19,8 @@ Christmas Stories 12: The Legend of Toymakers / Рождественские и�
 magnet:?xt=urn:btih:EFE7CA42D8553E0BB6DCABEA0278733706D5DB1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Book Travelers 2: A Royal Story (2023) [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:336F5E8355D24674DC5C075D067297F3603750B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Need For Speed: Shift (2009) [Ru/En] (1.0.2.0/dlc) Repack Decepticon
 magnet:?xt=urn:btih:0E6E68DCD1EEC766BC171E84B311F7B3CA09DFEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Need for Speed Hot Pursuit - это ваш пропуск в новый откр
 ```bash
 magnet:?xt=urn:btih:26C4CEB4778A8D511FF6F48D1868F37CFD44450A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ PARANOID (2023) [Ru/Multi] (1.0) Scene Rune
 magnet:?xt=urn:btih:DEDCD280BD9EB3FE774BE94B3F325954A16CCC24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Divine Journey: The Life of Jesus (2023) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:16AF494B38C19873E705A5A0540022E6D68AA9AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ This Bed We Made (2023) [Multi] (1.0.2) Scene Rune
 magnet:?xt=urn:btih:D6C93BBBFBCBB3587FFA76405B43DA8784EB5132
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Need for Speed: ProStreet (2007) [Ru/En] (1.1) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:AFEE6827D4C0B7A2B20B21C84826B4DAF69F12A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Ready or Not (2023) [Multi] (39903) Repack DjDI [Supporter Edition]
 magnet:?xt=urn:btih:0472126D717BA6F900307CA542F02325701CF8DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Cygnus Enterprises (2023) [Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:6ED9C24D26E84D94F631F4F66CA0BF1A3CCE6713
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ TRAIL OUT (2022) [Ru/Multi] (2.9st/dlc) Repack Other s
 magnet:?xt=urn:btih:544BD38F89808D9CC155F9805EE57784F8F18BF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Legend of Keepers представляет собой хитроумную см�
 ```bash
 magnet:?xt=urn:btih:29E3E52C47EBD6CB78F87A0D05D1E193987F2362
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Banners of Ruin (2021) [Ru/Multi] (1.4.69/dlc) License GOG [Supporter Edition]
 magnet:?xt=urn:btih:AB3CDEA353630CDBC8FCA347CCF0E3C648B71984
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Wo Long: Fallen Dynasty – это ролевой экшен от третьег
 ```bash
 magnet:?xt=urn:btih:B002BBB81B9ECC47DC74BF9EA8F35288A9A41049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Need for Speed: Undercover (2008) [Ru/Multi] (252136/dlc) Repack Decepticon [Col
 magnet:?xt=urn:btih:AF9C385AB2DC99D4401F63A680CD0F558E21A85F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ LEGO 2K Drive предлагает получить уникальный опы�
 ```bash
 magnet:?xt=urn:btih:FFAC80DC91E2950458B4D679807CB5B195544D96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ River Tails: Stronger Together - это яркий и захватывающий
 magnet:?xt=urn:btih:1D1E8BE4AE0A26DA04DD823B5599A1C052EA2205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Viking Brothers 5 / Братья викинги 5 (2023) [Ru] (1.0) Unofficial [
 ```bash
 magnet:?xt=urn:btih:C4ADA969B5A63570868D3F3F1FDAB168ADDE1E08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Christmas Fables 2: The Magic Snowflake (2023) [Multi] (1.0) Unofficial [Collect
 magnet:?xt=urn:btih:56C20ADB441DF58516B48A4244CBE479A31AEEDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Cookie Cutter - жестокая постапокалиптическая 2D-М�
 ```bash
 magnet:?xt=urn:btih:FB92A107323DF0677FD58468DC09F09B950B6E03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ House Flipper 2 (2023) [Ru/Multi] (1.0) Scene Rune
 magnet:?xt=urn:btih:AECC77ED7D48CCD44F01423F92B5E7A7F53CEE9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Need for Speed: Most Wanted (2012) [Ru/En] (1.5.0.0/dlc) Repack Decepticon [Limi
 ```bash
 magnet:?xt=urn:btih:F2B2D05CDFA71FD501013431971ED7175D63E3C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Aliens: Dark Descent (2023) [Ru/Multi] (98246/dlc) Repack Decepticon
 magnet:?xt=urn:btih:24AC4ECE7A933638EF7E76A4C53E80C1B4E581B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Another World: 20th Anniversary Edition (2013) [Ru/Multi] (8516704) Repack dixen
 ```bash
 magnet:?xt=urn:btih:187650C0E6F2C6F2DBA0AC0853884E1B30FE7344
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Grim Tales 24: All Shades of Black / Страшные сказки 24: Все о
 magnet:?xt=urn:btih:5F42CDFAA30056F4EB40F2F30E6AD61502F1997C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Fables of the Kingdom V / Сказочное королевство V (2023) [Ru
 ```bash
 magnet:?xt=urn:btih:2DEBC40A01708CF87464D920F3C570CBECE22BF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ The Living Tombstone - zero one (2020) [MP3|320 Kbps] <Electronic, Dubstep>
 magnet:?xt=urn:btih:5FDEF9C414CDDD4C28D5192C32D5572333FD35E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Balance - One Second (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psychill, Downtemp
 ```bash
 magnet:?xt=urn:btih:2B1C87837AD5F7CB24C6082897546C42C61EEC62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Tricky - Fall to Pieces (2020) [MP3|320 Kbps] <Trip-Hop, E﻿lectronic>
 magnet:?xt=urn:btih:44D6A096AE7A286F36778F043019ED24B7ECC492
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Dhamika - Point of No Return (2020) Dhamika Music [FLAC 2.0|44.1/24|tracks|WEB-D
 ```bash
 magnet:?xt=urn:btih:58DB9FEE6161B51D9EB81495FE6FA8A9C7C515D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ U96 & Wolfgang Flur - Transhuman (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Elec
 magnet:?xt=urn:btih:8E41EC254C355A576C712E1945090B5C96CC53BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Arcturus - Templates (2020) Merkaba Music [FLAC|Lossless|WEB-DL|tracks] <Psychil
 ```bash
 magnet:?xt=urn:btih:493C696B8B232A503F4889141E7F8FCD83FB161B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Black Magnet - Hallucination Scene (2020) [MP3|320 Kbps] <Industrial Metal, Alte
 magnet:?xt=urn:btih:357B5852E943C994144CB2AF7BB78A121A361AAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ VA - Dj Darroo - Harder Trance (2020) [MP3|320 Kbps] <Hard Trance, Trance>
 magnet:?xt=urn:btih:D23ECE10686DC4007A8844595CD20F64E77E12A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +253,8 @@ VA - Bikini Beach, Vol. 4 (2019) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:B936F35B54C44E77093036EABDFDB5395BA3A69A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +288,8 @@ David Guetta - Nothing but the Beat 2.0 (2012)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +316,8 @@ K-Chaos - Let The Heat In (2017) LP [MP3|320 Kbps] <Drum & Bass, Breaks, Techno>
 ```bash
 magnet:?xt=urn:btih:F408D8740A3E78245AEB20B3F574EBD4F84D0E0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +346,8 @@ Blakk Harbor - Madares (2018) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Experimenta
 magnet:?xt=urn:btih:852396ADF0A73962E83BECAF41B2FF32570BFE91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +374,8 @@ VA - Afterdark 001 - Buenos Aires (Mixed & Compiled by Sneijder) (2018) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:E59D6BED48AF3A992790EEE9675CC1B56D84D00F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +410,8 @@ VA - Born To Lounge (25 Chillout Classic Hits Session) (2012) [MP3|320 кб/с]<
 magnet:?xt=urn:btih:C0DFE4E804ED18F7E0CCC73031FAAB0E7C2240B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +445,8 @@ VA - Kiss FM Dance Radio Chart 6 (4 Dance Years) (2006) [MP3|320 кб/с]<House>
 magnet:?xt=urn:btih:20DC8E939AC8F593752776EC45F8307426635BDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +473,8 @@ Hurts - Faith (2020) [MP3|320 Kbps] <Synthpop, Pop>
 ```bash
 magnet:?xt=urn:btih:BDE49FBA5B15BD1DCEBB4C83DA6BB3A94BE628F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +503,8 @@ VA - Workout & Fitness 2020 Motivation Training Music [MP3|320 Kbps] <House, Dan
 magnet:?xt=urn:btih:7A540D82362E1BD057CDD01C7359C0E91E4A15BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +531,8 @@ VA - Refreshing Jazz Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:286C2ACA1B8CCC7CA99A8AD418D9CB0A0AB69EFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +561,8 @@ Priest Of Secret Garden - Ancient Spirit (2020) Mystic Sound Records [FLAC|Lossl
 magnet:?xt=urn:btih:C091224F8FF7F971E4AAF78E6749DA8A6B052875
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +589,8 @@ Unterschicht - Krank: lass mich allein (2020) [MP3|320 Kbps] <Dark Electro, EBM,
 ```bash
 magnet:?xt=urn:btih:718A2589FE900566CA25C509F66B106E4D58EB70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +619,8 @@ Chillout Lounge Relax, Minimal Lounge, Ibiza 2017 - The Lovers Perfect Evening (
 magnet:?xt=urn:btih:352583B2D541D8DD1DE8EA0AF718E05CE2F7E48F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +647,8 @@ Paradis - Recto Verso (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Disco>
 ```bash
 magnet:?xt=urn:btih:E7B0720F6B44DF19B32F727510C08AAC113EBE42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +677,8 @@ Melokind - A Long Way (2020) Fuchsklang [FLAC|Lossless|WEB-DL|tracks] <IDM, Expe
 magnet:?xt=urn:btih:0EB7DEC747D6C4160E09AC89D605A28B9126BB53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +705,8 @@ Christopher Kah - Les Fréquences Interdites (2020) HighWav [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:93EF836C08AE8B3589861572B28ADC27E783DB70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -687,6 +735,8 @@ New Order - Music Complete (2015) [MP3|320 кб/с]<Synthpop, Electronic, New-Wa
 magnet:?xt=urn:btih:805859B19526DBD957D296FA46ED6C7E17CD4985
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -713,6 +763,8 @@ VA - Sweet Love Lounge (Chillout Your Mind) (2019) [MP3|320 Kbps] <Balearic, Dow
 ```bash
 magnet:?xt=urn:btih:CCC175FB9A01C563D39A20A91E10E56D340DB0B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

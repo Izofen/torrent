@@ -19,6 +19,8 @@ John’s Background Switcher это программа периодически 
 magnet:?xt=urn:btih:D33643888255CCF9870A35F35FCD290C9CDBE7A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:D33643888255CCF9870A35F35FCD290C9CDBE7A6
 ```bash
 magnet:?xt=urn:btih:4614DE8B63249A57517E17DD17E7D4893E3C4402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Icecream Photo Editor - лучший бесплатный фоторедакто
 magnet:?xt=urn:btih:9AB623516AB5F41C0C66908033A48325B78CD6E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:9AB623516AB5F41C0C66908033A48325B78CD6E1
 ```bash
 magnet:?xt=urn:btih:36452FFB68F69CC4C20744010CE35A15642C7504
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:929BC865F4814BB0A9246F43D54CA4B44CECDC01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Ocenaudio — аудиоредактор, распространяемый ав�
 ```bash
 magnet:?xt=urn:btih:5F8E80D6CAF9327876BD0629D47002EC08170706
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ MongoDB - самая востребованная "Document Oriented" база �
 magnet:?xt=urn:btih:800841BC524E275F1B32348FAC0BB608D33F834A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Luxion KeyShot Pro — средство для интерактивной фот
 ```bash
 magnet:?xt=urn:btih:8135DF3B0FDEED7CBD5C721D51F47AD5ACCD6F64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Skype - бесплатная программа для текстового, г�
 magnet:?xt=urn:btih:7B31FDB324C659E766497280A18DD1D040E06D30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ YouTube By Click - отличный и удобный в использован�
 ```bash
 magnet:?xt=urn:btih:B57902B1EEC87B064BCE2251702146285A5B7774
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ CCleaner - это самая популярная программа на ПК �
 magnet:?xt=urn:btih:CBD0D0BF53422626D647CB2ABA06C22015FFAF8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Transparent clock & weather / Прозрачные часы и погода 6.15
 ```bash
 magnet:?xt=urn:btih:30885E667CABED3025BD91F156A6EA425B14604E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Victoria 5.31 Portable [Multi/Ru]
 magnet:?xt=urn:btih:87D4027EF52169091D78A0737D7561D14E50E8D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ GeoGebra — мультиплатформенная программное об�
 ```bash
 magnet:?xt=urn:btih:DC76D9420DFD62D2BCD2F7935F33B22F645C5FE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ X-plore File Manager - продвинутый файловый менеджер 
 magnet:?xt=urn:btih:632E51CB6121129155AD295D54DD87A67BC85E8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:AC5CF0033489C0D84CBBF80235C39FA1604DA200
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ QuickMemoryTestOK 4.21 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:BACFC19842526F7DA6D1A34A54337DA3ADB28A16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ UsbTreeView маленькая утилита, реализующая больш
 ```bash
 magnet:?xt=urn:btih:DFB7D0DAD508D482B66C4B24A3AE842D859A7192
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Luminar - это полнофункциональный набор для ред
 magnet:?xt=urn:btih:FAFFB67BEE1793FC9EE51C8CF3EFB42EF1553F41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:FAFFB67BEE1793FC9EE51C8CF3EFB42EF1553F41
 ```bash
 magnet:?xt=urn:btih:D9C30B81250EC4396674A39D68490EA5CD660F0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Monkey's Audio — данная утилита предназначена для
 magnet:?xt=urn:btih:262431E9C9F166F8BBCFAFFBA0C077C6B69721C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ AccuBattery Pro - нужное приложение для всех кто оз�
 ```bash
 magnet:?xt=urn:btih:1102EFD0726B35A30E5A0B0A6B7FD31C90D9A2DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Relax Melodies Premium (Better Sleep) - программа для тех, кто
 magnet:?xt=urn:btih:C1CD4F72E275B25D10CDFDA7B64AE28FFAC23ACF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ Simply Piano - это одно из лучших приложений для о�
 ```bash
 magnet:?xt=urn:btih:90089E066264A338C651B771859226F74367282F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:90089E066264A338C651B771859226F74367282F
 magnet:?xt=urn:btih:99EC9CEFDFDC5B6DAF6748E173DE2341415CAD0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:D2BC4C98FF01E7FAFE3B20633EFAB4A679E10071
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

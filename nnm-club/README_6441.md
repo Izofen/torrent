@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ CD1 - Le Dernier Des Héros (сведение: Франция 1989):
 magnet:?xt=urn:btih:1F65E25287B145078D57C6DFACD518AD7CC68E54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ WhatsApp Messenger - это кроссплатформенное приложе�
 magnet:?xt=urn:btih:1AA0627F2C0C66127A0E9824054CBC758F436601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:1AA0627F2C0C66127A0E9824054CBC758F436601
 ```bash
 magnet:?xt=urn:btih:928EB4B0309C767B9511965A3FB5C19F63C20DC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Jimmy Barnes - 23 Albums (1984 - 2022) 33 CD [FLAC|Lossless|image + .cue|tracks 
 magnet:?xt=urn:btih:19FFA372E2565630EE457E01E2F3B9556BAF1705
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Birdie Wing: Golf Girls' Story (2023) | История гольфисток [Т�
 ```bash
 magnet:?xt=urn:btih:7E51C9D0E2D98C7E8AEE5C79973C642E882DC3E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:7E51C9D0E2D98C7E8AEE5C79973C642E882DC3E6
 magnet:?xt=urn:btih:DA8386D8E02F2A3E22A6A98BFC0F9C598EE0DBE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Yakuza Kiwami 2 (2019) [Multi] (1.004a/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:253EF4DF246D0942B5B4D0589BDFCA10D7FA5219
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:253EF4DF246D0942B5B4D0589BDFCA10D7FA5219
 magnet:?xt=urn:btih:CF802B83E0325C5BEC3D2077F3A10F20A8861B3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Yakuza 3 Remastered – это обновленная игра, ставшая �
 ```bash
 magnet:?xt=urn:btih:4ABDC2D3B16CD52D6F96EA6635CC0362DEC49454
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Kaspersky Plus для Windows – это передовое решение дл�
 magnet:?xt=urn:btih:4A2FF4DC03EA498B595A2125658ED8ED8A2A0D5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:4A2FF4DC03EA498B595A2125658ED8ED8A2A0D5E
 ```bash
 magnet:?xt=urn:btih:F2E5B497837D5A5993589741192825EFC4D87DAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:F2E5B497837D5A5993589741192825EFC4D87DAC
 magnet:?xt=urn:btih:89B6E4DA8A24803FA47D7747F744A1ED9A2B71D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:89B6E4DA8A24803FA47D7747F744A1ED9A2B71D3
 ```bash
 magnet:?xt=urn:btih:AC85F2058687065C89F91BE399262E0B66C36A5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:AC85F2058687065C89F91BE399262E0B66C36A5D
 magnet:?xt=urn:btih:E137E6CF0F5385CF1B31915878A15E5887F1C85A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:E137E6CF0F5385CF1B31915878A15E5887F1C85A
 ```bash
 magnet:?xt=urn:btih:657FB391A68361DD9D895FF7ACB1471F92A70490
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:657FB391A68361DD9D895FF7ACB1471F92A70490
 magnet:?xt=urn:btih:F7E68791396D941128CD86F462D1BF30DAC15C77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:F7E68791396D941128CD86F462D1BF30DAC15C77
 ```bash
 magnet:?xt=urn:btih:D08ED6723FD87DD39135FC4CAAFA2C64648C6447
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Adobe Media Encoder 2023 - это программа кодирования, к�
 magnet:?xt=urn:btih:A857DC2069F8E02E1D0B755D7593EF251CD65FC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:A857DC2069F8E02E1D0B755D7593EF251CD65FC5
 ```bash
 magnet:?xt=urn:btih:A6AA3A59567FD85C0DE5E944F4497A973793B866
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:A6AA3A59567FD85C0DE5E944F4497A973793B866
 magnet:?xt=urn:btih:18D198FE3013D34DE91181ED112706CE24023AEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:18D198FE3013D34DE91181ED112706CE24023AEE
 ```bash
 magnet:?xt=urn:btih:66DF5670BFF0752764D6A5F00639565CE07D33F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:66DF5670BFF0752764D6A5F00639565CE07D33F0
 magnet:?xt=urn:btih:50EDCDF3F4B7B8131A767B983C6B387BDB07D328
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Yakuza 4 Remastered (2021) [Multi] (1.003a) License GOG
 ```bash
 magnet:?xt=urn:btih:44C681C14B025CA8DC68F776DB0C9849EB907C2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:44C681C14B025CA8DC68F776DB0C9849EB907C2E
 magnet:?xt=urn:btih:7F1DD07D4970809513DDE655B263D4D6C7A210FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Adobe Audition 2023 23.5.0.48 RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:28DCC08D02A0DBF2BF9AD6C2B1C503064C60BABC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

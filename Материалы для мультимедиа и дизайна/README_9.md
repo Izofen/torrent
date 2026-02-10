@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:34D8E4B5D56AABC92F8CA8CEF83C1E814625DBF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ VideoLab: SFX Tracks — это обширная библиотека звуко
 ```bash
 magnet:?xt=urn:btih:94D2C5B0408D8EE39315A8CF9DB4F612033DDEF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:94D2C5B0408D8EE39315A8CF9DB4F612033DDEF2
 magnet:?xt=urn:btih:5531D673CD618F9FC2E0E4E4F2E3943E943E1D61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Tondu — это простой акцидентный шрифт, вдохно�
 ```bash
 magnet:?xt=urn:btih:2A3291978FCE470385FB9A4AD50C2A2EBD2BCD15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:2A3291978FCE470385FB9A4AD50C2A2EBD2BCD15
 magnet:?xt=urn:btih:E4473681F4EC10C6350AA5E5A840C51C799C9D92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:E4473681F4EC10C6350AA5E5A840C51C799C9D92
 ```bash
 magnet:?xt=urn:btih:465CFBDAD51BE8A6324B0072E9108E6A2CE9B7F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:465CFBDAD51BE8A6324B0072E9108E6A2CE9B7F8
 magnet:?xt=urn:btih:5E0112C6488EFEE4885D6BE8FFF7A674FDF2F150
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:5E0112C6488EFEE4885D6BE8FFF7A674FDF2F150
 ```bash
 magnet:?xt=urn:btih:B03B0F3DFB33E49FA76CE0A85E4023C20EBEB10A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:B03B0F3DFB33E49FA76CE0A85E4023C20EBEB10A
 magnet:?xt=urn:btih:EE56D1AD6B55EF0E077D72B521DE1F1700759EB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:EE56D1AD6B55EF0E077D72B521DE1F1700759EB6
 magnet:?xt=urn:btih:05FB50A6C55F6779DA747E1EA84581FCA40201E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Ui Kits - UI8 - Lumine - Minimalistic Brand Guidelines [FIG]
 ```bash
 magnet:?xt=urn:btih:3E0D23FF77C40DE028368EDBBEAAD3A43693E712
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:3E0D23FF77C40DE028368EDBBEAAD3A43693E712
 magnet:?xt=urn:btih:BC3FE382A70FBA9AA7B79F0B9225E17C07E39CE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:BC3FE382A70FBA9AA7B79F0B9225E17C07E39CE5
 ```bash
 magnet:?xt=urn:btih:6BA13D5EDB70B8F9F30AF6040F7FF188B90F7414
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Driftune — изысканный шрифт без засечек, сочета
 magnet:?xt=urn:btih:5567728850F97BA6FFFB9EAADD4AEADDD1EFF247
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Newsam родился в долине, которая находится меж�
 ```bash
 magnet:?xt=urn:btih:DCDBF7B2EA24EF5B88B396A69DE9E9F3582AECE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Veliora — изысканный шрифт с длинными засечкам
 magnet:?xt=urn:btih:B315DC1C914BA1F2146A10861D1119F494EF2CE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:B315DC1C914BA1F2146A10861D1119F494EF2CE8
 ```bash
 magnet:?xt=urn:btih:CD2B6706E6BFF56E698C6F732303A9ECBF4F5840
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:CD2B6706E6BFF56E698C6F732303A9ECBF4F5840
 magnet:?xt=urn:btih:4C0222E134E239114301003E191717848EA12D88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:4C0222E134E239114301003E191717848EA12D88
 magnet:?xt=urn:btih:6FC20F183006143BDBDFF16D7E890BE62920FF4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:6FC20F183006143BDBDFF16D7E890BE62920FF4C
 ```bash
 magnet:?xt=urn:btih:7B7FB18E461FA683A257AE7351B8CE8C79744858
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ Neue Machina. Созданный для постчеловеческого су�
 magnet:?xt=urn:btih:5FA79448198D9855420C74AAD0C5C52707535064
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:5FA79448198D9855420C74AAD0C5C52707535064
 magnet:?xt=urn:btih:4EE5F82CEFD78B2C4A88CBE92370546D94B64EA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:4EE5F82CEFD78B2C4A88CBE92370546D94B64EA8
 ```bash
 magnet:?xt=urn:btih:8B0E791981FBE010E5226F2C09C2BA3D98141486
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ Seconda Soft располагает шестнадцатью стилями, о�
 magnet:?xt=urn:btih:4AE0A011ED77FC38D9D22A30B8476AE159D0E034
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Stag сочетает в себе современный вкус к больш�
 magnet:?xt=urn:btih:8E2E8D03D7621FAEAFCDF23D396A7456CB90B39E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Figo Shiftz — выдающийся редакционный шрифт с за
 ```bash
 magnet:?xt=urn:btih:282507F4DE706A6C2C5F76E3A8A26092F7265DB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

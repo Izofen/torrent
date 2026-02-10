@@ -20,6 +20,8 @@ Python — популярный язык программирования выс
 magnet:?xt=urn:btih:55D2E8D4607D0A6CF18A07407B2EE74ACA7D766B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:55D2E8D4607D0A6CF18A07407B2EE74ACA7D766B
 ```bash
 magnet:?xt=urn:btih:25BCB30FC4973E985376865E76D5CB24215A2AA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Alex Libby | Practical Next.js for E-Commerce (2023) [PDF][EN]
 magnet:?xt=urn:btih:5928EDE9436DF57148237A211D371B39A4A9FEC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Doug Farrell | The Well-Grounded Python Developer (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:4FB7E58D59E8DAA0911943C5F9C3C26FC086B891
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ David Matuszek | Quick Java (2023) [PDF][EN]
 magnet:?xt=urn:btih:E5F4267BDA27BAE53845373902A22512CA1DEE85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Morten Barklund, Azat Mardan | React Quickly, 2nd Edition (2023) [PDF][EN]
 magnet:?xt=urn:btih:EDD29D08188E43CA0A60C8008C87A1678DF47EE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Irina Dominte | Web API Development for the Absolute Beginner (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:24B91AADA30759CBB18CF8BA2EDEBC50E203A4FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Alfonso Antolinez Garcia | Hands-on Guide to Apache Spark 3 (2023) [PDF][EN]
 magnet:?xt=urn:btih:01B97A7756160F7B0123D18466516CC3D6DDA33E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Dylan Hildenbrand | SvelteKit Up and Running (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:A98524096AA161235935C2A676FB0792F8C24C26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Avi Tsadok | The Ultimate iOS Interview Playbook (2023) [PDF][EN]
 magnet:?xt=urn:btih:A0EB47AE0684CF62A24FEF9F3536D5E2BCCCC00C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ David Canton Nadales | Build Your Own Metaverse with Unity (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:51B57A50912948FB28AAFC7875BF1AB26B4C6F02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:51B57A50912948FB28AAFC7875BF1AB26B4C6F02
 magnet:?xt=urn:btih:487944D1950EFCF098CC11530B29F5A07A6E274D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Joshua Picolet | Hash Crack Password Cracking Manual v3 - Russian (2023) [PDF]
 ```bash
 magnet:?xt=urn:btih:EA7548F29CD56B5FD41FB2F7F29F5B8B16AF688D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:EA7548F29CD56B5FD41FB2F7F29F5B8B16AF688D
 magnet:?xt=urn:btih:C83997713BD2B79D80A331ED922744CF2B1F1B44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:C83997713BD2B79D80A331ED922744CF2B1F1B44
 ```bash
 magnet:?xt=urn:btih:3491C6D60C43E34784FFD6DCC104F2DB0B39DA84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Packed with clear explanations, visualizations, and examples, the book covers al
 magnet:?xt=urn:btih:7652112F8FB0C6C25A7BD9098ECA0F3FAA04C5F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Milo Yip | A Study Path for Game Programmer / Путь разработчика 
 ```bash
 magnet:?xt=urn:btih:AEDADD2339562E0CF1C2C8FFF918B5B0EF626A8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:AEDADD2339562E0CF1C2C8FFF918B5B0EF626A8B
 magnet:?xt=urn:btih:4703512D051F2B640F81DF33FB154ADC8EDF7275
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:4703512D051F2B640F81DF33FB154ADC8EDF7275
 ```bash
 magnet:?xt=urn:btih:2DB1EB7136DEEC1C82080B20BB49708454B8EA36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:2DB1EB7136DEEC1C82080B20BB49708454B8EA36
 magnet:?xt=urn:btih:6D91100773C4417C220D6DB7078AEF0D645E2407
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Matthew Justice | How Computers Really Work / Как на самом деле р
 ```bash
 magnet:?xt=urn:btih:420CE85424351989996DD51DB90B8D5264599715
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ Data structures deal with how the data is organised and held in the memory, when
 magnet:?xt=urn:btih:F1207B243C3EE150A13BBCFFCE5811EBEDC09137
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:F1207B243C3EE150A13BBCFFCE5811EBEDC09137
 ```bash
 magnet:?xt=urn:btih:51FAB423C48F0093D1F6821B9190BC50EBB6B537
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:51FAB423C48F0093D1F6821B9190BC50EBB6B537
 magnet:?xt=urn:btih:6393571C4E170062828DC71EC3BBC293F1DC6609
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:6393571C4E170062828DC71EC3BBC293F1DC6609
 magnet:?xt=urn:btih:3A07D6D48CCFD213110E98DC19427056251E9DFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:3A07D6D48CCFD213110E98DC19427056251E9DFC
 ```bash
 magnet:?xt=urn:btih:3D2A61EF72AA5C1F2B0C1A85E3094FD9C75C7E3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ DxO ViewPoint — программное решение, посвященное 
 magnet:?xt=urn:btih:7198C2B73CF66B1C46DC01C1AB15B06CAB44E205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ DxO PhotoLab 6 ELITE Edition 6.13.0 [Multi]
 magnet:?xt=urn:btih:325790D61200F80ED21A037AF09B996F082E5479
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ ScrollNavigator - программа, которая поможет вам пр�
 magnet:?xt=urn:btih:A59113EC5BADADFA272C2D2FC08A68416F051892
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:7CAD90CC9B9CA299DEF8A221DBCDED6F8EDE64FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Adobe InCopy  входит в состав Creative Cloud. Поэтому (   �
 magnet:?xt=urn:btih:EF9627FE124E1C1AE87B6D882CD0DA8B993D68AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ DxO PhotoLab 7 ELITE Edition 7.3.0 [Multi]
 magnet:?xt=urn:btih:C40415859F17B49186CCE5F679A78ECC93661AA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 ```bash
 magnet:?xt=urn:btih:47FCFD6D58E4B7445B08BFF5331F8C4251461D42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ VueScan является приложением для работы со ска�
 magnet:?xt=urn:btih:FD8DE1CDB45A9D57330D4593C73D30ADD1563BEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ FBackup — это свободно распространяемое прогр�
 ```bash
 magnet:?xt=urn:btih:2AFEDD617C310EAA333A0B9D1D435846DFABE3DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:418BE22447F06596E9990CEA7A4D75A188682C93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ StaxRip - инструмент для кодирования видео "все-
 magnet:?xt=urn:btih:EC599BB06D1A845D706B3032FD400EDFC73C9105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:3691FFE37572C6906CCCACADDAB7C172E30B5FC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Rhinoceros 8 v.8.3 [Multi/Ru]
 magnet:?xt=urn:btih:8660DBC1FAD3BDCCE1EC0AE53CB47E346FA80F3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ XYplorer – удобный многовкладочный файловый ме
 magnet:?xt=urn:btih:285672124A93F3016DFFED2EE4CE491D47D7BFFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ EarthView — это динамические обои для рабочего �
 ```bash
 magnet:?xt=urn:btih:4C5D44DBAC946D17596CDDA74ACB5CFF0ED8DEF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Malware Hunter - отмеченный наградами продукт, кот�
 magnet:?xt=urn:btih:08B424F0610A7E7AB53C6A0BDC89F25BC4BCD7C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ Media Player Classic Home Cinema - удобный во всех планах м�
 magnet:?xt=urn:btih:00CD58652F87F494BC61307C3F291C00067FA3B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Vov Sticky Notes 8.8 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:37B5A0AA69F4A924404FD064CACC6EE87B10003F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ PLECS® является инструментом для высокоскоро�
 magnet:?xt=urn:btih:6CD102447E1BEB1C016BEF1A0F4A55B597E0C2CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ SMPlayer - мощный мультимедиа проигрыватель, ко�
 magnet:?xt=urn:btih:E277EADE4CA10BF0AE8579EEE8EFF1FB595F37C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Total Bundle - это набор всех плагинов FabFilter. С эти�
 ```bash
 magnet:?xt=urn:btih:2D20574145B56528522EEE8DA417AB81E80EF147
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Media Player Classic Home Cinema – удобный во всех планах �
 magnet:?xt=urn:btih:05D56BEC01439BCA4D6657AED10D2E7016A1A336
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ IconTo Pro 7.3 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:6749B6063659752548E86B572301A71F45D8EACB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:A55DFF98F88415E4C1060F4944AB5319DE5E1589
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ Waves Ultimate 2024.01.10 VST, VST 3, AAX, STANDALONE (x64) RePack by R2R [En]
 magnet:?xt=urn:btih:00D660C801FD04067A01D958B82F71BF9377039A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:00D660C801FD04067A01D958B82F71BF9377039A
 ```bash
 magnet:?xt=urn:btih:9F7CE3A9EBCFE9474A228E485A6EE407E10A7A6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

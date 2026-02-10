@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:7FA9AB51BF96B66B0A1E9750784C6FA1D1CDF7FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:7FA9AB51BF96B66B0A1E9750784C6FA1D1CDF7FC
 ```bash
 magnet:?xt=urn:btih:44F124FC8448D7C6D916F15FC0D9991088BE07FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:44F124FC8448D7C6D916F15FC0D9991088BE07FC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:44F124FC8448D7C6D916F15FC0D9991088BE07FC
 ```bash
 magnet:?xt=urn:btih:934D433E456962A93C8D7C9F09F63D2B4D6A59A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:934D433E456962A93C8D7C9F09F63D2B4D6A59A1
 magnet:?xt=urn:btih:C043FD54C36EBCCBAC4C6BD0997F7845CE767A2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:C043FD54C36EBCCBAC4C6BD0997F7845CE767A2B
 ```bash
 magnet:?xt=urn:btih:BE0D8D07406F48B99A5E1ED5CB297FA75E175C0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:BE0D8D07406F48B99A5E1ED5CB297FA75E175C0C
 magnet:?xt=urn:btih:C90A1A502585877B6A6C293974C7AB8ED0BE5D5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Лучшие хиты из культовых сериалов и кино�
 ```bash
 magnet:?xt=urn:btih:31F8A47FC76F1CF8C3D0D993019ECECA440B0BF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:31F8A47FC76F1CF8C3D0D993019ECECA440B0BF2
 magnet:?xt=urn:btih:8F1FDE44BE7D7C5F31B45DEB89BEDD06B239C54C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:8F1FDE44BE7D7C5F31B45DEB89BEDD06B239C54C
 ```bash
 magnet:?xt=urn:btih:5F5CA77B97859034CEA430D71F01FF3FA935C807
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Muslim Magomayev (Муслим Магомаев) - Arias From Operas (2015) [FLA
 magnet:?xt=urn:btih:52AAAF720EF6E611567E110411EC46DB97AAC06C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ VA - Русская Коллекция. ХИТЫ 60-х Часть I, II (2009) [
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +366,8 @@ VA - Золотой фонд. Кумиры прошлых лет (1995-2001) 19 
 ```bash
 magnet:?xt=urn:btih:6B4392C50A0BF1EA85DD65793F918AC472E3B1F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +402,8 @@ V.A. - Королева красоты (Золотой Фонд) (2000) [FLAC|Lo
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +430,8 @@ V.A. - Королева красоты (Золотой Фонд) (2000) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:B47CE9A1BDD07B93EA600EC8CA4DD30BD0ABCE31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +460,8 @@ magnet:?xt=urn:btih:B47CE9A1BDD07B93EA600EC8CA4DD30BD0ABCE31
 magnet:?xt=urn:btih:EEAB06DBCE63E5147152A01A6F373E4954596B96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +488,8 @@ magnet:?xt=urn:btih:EEAB06DBCE63E5147152A01A6F373E4954596B96
 ```bash
 magnet:?xt=urn:btih:6108543F023EAD3B8A93735D9DED50897A5AB588
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +524,8 @@ VA - Th'is 70's - Disco, Glam & Soul (2011) 3CD[FLAC|Lossless]<Pop / Disco, Glam
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +549,8 @@ VA - Th'is 70's - Disco, Glam & Soul (2011) 3CD[FLAC|Lossless]<Pop / Disco, Glam
 ```bash
 magnet:?xt=urn:btih:215819A2956DD736CEE5CB4125E63ECF9A96ED4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +579,8 @@ magnet:?xt=urn:btih:215819A2956DD736CEE5CB4125E63ECF9A96ED4C
 magnet:?xt=urn:btih:4836D236209E22A44DFEF4D5708853E5B7689DA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +608,8 @@ magnet:?xt=urn:btih:4836D236209E22A44DFEF4D5708853E5B7689DA3
 magnet:?xt=urn:btih:8F1E58B6EF7BBA2A6664A22AA28E929906689E07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +636,8 @@ magnet:?xt=urn:btih:8F1E58B6EF7BBA2A6664A22AA28E929906689E07
 ```bash
 magnet:?xt=urn:btih:B87D647BC0F7E9464913C5E2ABE700D284296C19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +672,8 @@ magnet:?xt=urn:btih:B87D647BC0F7E9464913C5E2ABE700D284296C19
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +700,8 @@ VA – Мой адрес-море (2005) [FLAC|Lossless|image + .cue]<Совет
 ```bash
 magnet:?xt=urn:btih:1F117B9F140F8A0C3F7505DE1B4A67FE64D4D01C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -682,6 +730,8 @@ magnet:?xt=urn:btih:1F117B9F140F8A0C3F7505DE1B4A67FE64D4D01C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -708,6 +758,8 @@ magnet:?xt=urn:btih:1F117B9F140F8A0C3F7505DE1B4A67FE64D4D01C
 ```bash
 magnet:?xt=urn:btih:A62DCE893DA76A4AC7A04249A604C913603D24F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

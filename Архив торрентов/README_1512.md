@@ -19,6 +19,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:69785A9DF2A317B5B33F1DCB911C7EC196090978
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Advanced SystemCare - программный пакет, содержащий м
 ```bash
 magnet:?xt=urn:btih:6CAD63B69C0525D156F79B7C96B1D212A493FC8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Ashampoo Burning Studio - это всё то, о чём Вы просили. О�
 magnet:?xt=urn:btih:BC857C7D6DC72A16B9C6CCD2770EFCFC26F3759E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:846D2B22FFE07E12591754EE86C4B671F2FEBDC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Simple Sticky Notes — простая в понимании программа 
 magnet:?xt=urn:btih:C1AC8D6069D5F13E7DF3BA5A2E6C5441A7A6AF4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ MediaHuman YouTube Downloader 3.9.9.84 (1507) RePack (& Portable) by elchupacabr
 ```bash
 magnet:?xt=urn:btih:F451411C8A1023A0C3FB4057CF882C6894DF3D65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ SRWare Iron 114.0.5800.0 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:F2D1B3B15F561CA82E39D4F2DD9BEAC0F197A5F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Hard Disk Sentinel — отличная программа для монитор
 ```bash
 magnet:?xt=urn:btih:264DEE3407B7129F3F33F4311249A6DC92162872
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ HDCleaner – многофункциональный программный пр
 magnet:?xt=urn:btih:3821FA3B500D694B9A548A007FB255CE7E5B6D22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ DaVinci Resolve — единственное в мире решение для �
 ```bash
 magnet:?xt=urn:btih:947C5E8DDA108783BC59624A2F942BF3D8432128
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ ProfiCAD - программа, которая будет очень полезн
 magnet:?xt=urn:btih:E03B766CBAB3D891BCD1667FF3FD853B607BF028
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ MiniTool Power Data Recovery - это инструмент предназнач�
 magnet:?xt=urn:btih:65391292C50F7B3FAE18AF2C42F3C386B17ACC96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ OnionFruit Connect 2022.907 [En]
 ```bash
 magnet:?xt=urn:btih:67B1F3D1230904BBB5610186A3E2E9369B4455CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Blender - бесплатный редактор трехмерной графи�
 magnet:?xt=urn:btih:06E43819AA0AAEFCAA5E46CEEF6AEC3138779975
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ LibreCAD - одно из лучших бесплатных кросс-платф
 ```bash
 magnet:?xt=urn:btih:6D41B6BB46C087DF3C2BF8A90A08ECCC57045BB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Hetman Internet Spy 3.7 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:610E7ACA6C20A05775113F532BC68B97B9D39F72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ SamDrivers 23.7 LAN [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D8E0701795C61237950B2329F4957620EC221AB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Spotify имеет громадный каталог музыки, поддер�
 magnet:?xt=urn:btih:0855F47849F0C2E230DA9459F3336D5615DFA8B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ SIV (System Information Viewer) - мощнейшая утилита, показ�
 ```bash
 magnet:?xt=urn:btih:867D2F2F168A757D04D36E55363378397D083102
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ LosslessCut — простой видеоредактор для нарезки 
 magnet:?xt=urn:btih:81C01A374115A53EA6D2A803DDCEA8B29A7192CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ DIGI Clock - отличный способ персонализировать в
 ```bash
 magnet:?xt=urn:btih:2B5595C79F91D975493AB42D4BDF737A52C44121
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Malware Hunter - отмеченный наградами продукт, кот�
 magnet:?xt=urn:btih:A7E766725F391385DE4D08D18CDB1D0559FA6AA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Distant Desktop - портативная утилита, которая позв
 magnet:?xt=urn:btih:D2975D494A3554F0487A3A8B0F00EF1F226C5BD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:D2975D494A3554F0487A3A8B0F00EF1F226C5BD2
 ```bash
 magnet:?xt=urn:btih:66A3FA9163146EF1A8A286351DA0858E03E8E356
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ _aug_2022_x64_dvd_d49e4a04.iso
 magnet:?xt=urn:btih:F1E3308AC3393A68329C00CA06A9FD9E5A4368DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:F1E3308AC3393A68329C00CA06A9FD9E5A4368DA
 ```bash
 magnet:?xt=urn:btih:B95577762B1314230BA57A3BDEED19560AA6FE60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

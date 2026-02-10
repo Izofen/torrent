@@ -19,6 +19,8 @@ Not For Broadcast (2022) [Ru/Multi] (2024.09.04b/dlc) Repack FitGirl [Complete E
 magnet:?xt=urn:btih:2F2316818D9EC6E2FB82BDAFF144154B0159F2F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Android (Marc Hartman and Imro van Hetten) - Spaceman's Return (2022) [FLAC|Loss
 magnet:?xt=urn:btih:F8E2B942F279AF691276800D46D84FF6FC4454D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:F8E2B942F279AF691276800D46D84FF6FC4454D2
 magnet:?xt=urn:btih:891D46D38464BFA20AA5F5B053532EEA333DC273
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:891D46D38464BFA20AA5F5B053532EEA333DC273
 ```bash
 magnet:?xt=urn:btih:0577848A4019B151E2813B0B183A04693B20CDE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ U2 - How To Dismantle An Atomic Bomb (Re-Assemble Edition) (2004) Remastered, 20
 magnet:?xt=urn:btih:398426CFBC4103A085D89981645DC71918DD5CC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:398426CFBC4103A085D89981645DC71918DD5CC7
 magnet:?xt=urn:btih:641EBC96EBDB4DF1CA769F618ABECB3D7558BD55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:641EBC96EBDB4DF1CA769F618ABECB3D7558BD55
 ```bash
 magnet:?xt=urn:btih:8F3009A8551564BB849AE3B4BF0E627D29A6AAF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ Soft Jazz Mood - Erotic Daydreaming: Romantic Sexy Relaxation (2024) [FLAC 24/44
 magnet:?xt=urn:btih:C95F7AF0294425AEC544B16ACC465EDA40C75FC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ Die for my Sins - Scream (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Po
 magnet:?xt=urn:btih:C65556F91FE8D78D4C9ED916DFB4AB937FD8C547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:C65556F91FE8D78D4C9ED916DFB4AB937FD8C547
 ```bash
 magnet:?xt=urn:btih:6F891FDEABED86A2B282ADA2C747C92D5AE86285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ Chicago - Live At 55 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:57ED6F69184FB1A5F31E2424DDEAA7F9B2D182A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ Michael Kiwanuka - Small Changes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Sou
 ```bash
 magnet:?xt=urn:btih:42D438E646ECAAAFEDE715E741B1F62E56FA30BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -330,6 +354,8 @@ Samson - Survivors (1979) Japanese Edition, Reissue, 1990, Jimco Records [FLAC|L
 magnet:?xt=urn:btih:149E6359B17C7567442CFE6399379DD6A6062FEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:149E6359B17C7567442CFE6399379DD6A6062FEA
 ```bash
 magnet:?xt=urn:btih:9BCDD80C1059D43E2867454A8FAA2477570E8FF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +409,8 @@ Crossbone Skully - Evil World Machine (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 magnet:?xt=urn:btih:B2E9F1690B90538E7AC16C791D6E3414C959FA82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +438,8 @@ magnet:?xt=urn:btih:B2E9F1690B90538E7AC16C791D6E3414C959FA82
 magnet:?xt=urn:btih:6C0E32A59238993A094A7AA62E6BBEE4F5D15751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ magnet:?xt=urn:btih:6C0E32A59238993A094A7AA62E6BBEE4F5D15751
 ```bash
 magnet:?xt=urn:btih:C6A54C362117F166F6AA79AA6EA72C7F89A6B7D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +491,8 @@ magnet:?xt=urn:btih:C6A54C362117F166F6AA79AA6EA72C7F89A6B7D4
 magnet:?xt=urn:btih:58AF6474D83A6AB9F9DC9C476D7A77B703FD0D20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ magnet:?xt=urn:btih:58AF6474D83A6AB9F9DC9C476D7A77B703FD0D20
 ```bash
 magnet:?xt=urn:btih:D1AE7B7BEFE6A5F15596AE9C5C14C685C441F663
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +543,8 @@ magnet:?xt=urn:btih:D1AE7B7BEFE6A5F15596AE9C5C14C685C441F663
 magnet:?xt=urn:btih:53203918B8FBA72030B2BDA126EB296567E0252A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ magnet:?xt=urn:btih:53203918B8FBA72030B2BDA126EB296567E0252A
 ```bash
 magnet:?xt=urn:btih:880B4A2BBC44464ACB079003BF1105B0E0372FA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:8001D032491E93C1C81D9BA43DD81EFDA9FD2F46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ OneCommander V3 — это современный файловый менедж�
 ```bash
 magnet:?xt=urn:btih:21126B39752CE82D6FFA7D141EC0228FBE1894F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ Boney M. - Christmas With Boney M. (2007) Compilation, Reissue, Remastered [FLAC
 magnet:?xt=urn:btih:A6929F028C5960314B2BCC068E7701417CB8484C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ magnet:?xt=urn:btih:A6929F028C5960314B2BCC068E7701417CB8484C
 magnet:?xt=urn:btih:5573F4E81F576B51AF72463C449A62D67A75860A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:5573F4E81F576B51AF72463C449A62D67A75860A
 ```bash
 magnet:?xt=urn:btih:A8BD33E68140532BF33CEC63FED4DCB03CF6C01E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

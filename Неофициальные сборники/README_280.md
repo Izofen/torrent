@@ -1,3 +1,29 @@
+###  Публикация: 547641   (469544) от 17.09.2012
+
+VA - Инструментальная музыка (2012) vol. № 72 [MP3|320 кб/с] <Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 02:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:210D05178F3A6674800CED49AD351058D43C6D2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 548308   (469545) от 17.09.2012
 
 VA - Инструментальная музыка (2012) vol. № 73 [MP3|320 кб/с]<Instrumental>
@@ -18,6 +44,8 @@ VA - Инструментальная музыка (2012) vol. № 73 [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:B1B54A90DA4461A94ECFBF0F397F22D13F145A91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ VA - Smooth Jazz: Lyric Theatre (2018) [MP3|320 Kbps] <Smooth Jazz>
 magnet:?xt=urn:btih:35E51E4CE0A4DADDF56F446CB8471EA6F2E870AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ VA - Record Superchart #258 (15.09.2012) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:E1711E0006B57C9C9A4A4DEA150292F52190E1DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +135,8 @@ Vlad Cheis - Special Pre-Party a mix for Little Sweet Jamaica 28.01.12 (St. Pete
 magnet:?xt=urn:btih:FC06584D7D1F70EC0BE3A665BB9E80D668730CE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +163,8 @@ VA - Day At The Beach: Popular Dance Music (2018) [MP3|320 Kbps] <Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:7723826C9F644AA18424732ADFBB526ECE038AE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +193,8 @@ VA - Music For Everyone - Dubstep & Drumstep Vol.5 (2017) [MP3|320 Kbps] <Dubste
 magnet:?xt=urn:btih:C0405C305E88962D88BDF53E97F95AA57D8EC84F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +221,8 @@ VA - Ambience Forest (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
 ```bash
 magnet:?xt=urn:btih:5F612553755A8E5C8A91C194C7E36282A977A35C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +257,8 @@ VA - Relax FM (15.09.2012) [MP3|320 кб/с]<Relax, Ballads>
 magnet:?xt=urn:btih:C19AB42DFFED17E375AE6FDD0249CA522EBB5DAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +291,8 @@ VA - Осенний Муз-драйв (2012) [MP3|128-256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:1F757A6E0F55C353685183C2FC10E415EFAE172F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +327,8 @@ VA - XXXL Русский The Best (2012) [MP3|256 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:2CE55AA1BFCEC8F3B65741334ED98600F3FB2443
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +355,8 @@ VA - Factory Techno (2018) [MP3|320 Kbps] <Techno>
 ```bash
 magnet:?xt=urn:btih:65AC32B77760E5E515A392213CE3657E187F493E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +385,8 @@ VA - Techno Vision (2018) [MP3|320 Kbps] <Techno, Minimal, Electro>
 magnet:?xt=urn:btih:E0DC08616BE642D62056479295870E945A3C2AB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +413,8 @@ VA - Rock Indie Night (2022) [MP3|320 Kbps] <Rock, Indie Rock, Alternative>
 ```bash
 magnet:?xt=urn:btih:74832C027CC0E602F495316B4629E9B787F8002A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +449,8 @@ VA - DJ Perfecta - Special Guestmix for Time 2 Bass (Time2Bass) by DJ Tapolsky (
 magnet:?xt=urn:btih:0A00EBF91E270E352822AE49888F3841671BEC7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +477,8 @@ VA - Glamour Bassline Party (2022) [MP3|320 Kbps] <DnB, Bassline, Dub>
 ```bash
 magnet:?xt=urn:btih:E0A58959CFBED1ACF88C96324A581EB43692A73E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +507,8 @@ VA - Color Of The Universe (2015) [MP3|192-320 Kbps] <Spacesynth>
 magnet:?xt=urn:btih:A702C5C5BFCE1FEFDD00BD85F8B82A1E70D59901
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +535,8 @@ VA - 100 Greatest Dinner Party Songs (2020) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:1A5618C6016B8D7222FB00207F3336E14772E02D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +565,8 @@ VA - Top 100 Зайцев.Нет Cентябрь (2015) [MP3|320 кб/с]<Pop, D
 magnet:?xt=urn:btih:D92C0A435FFCC5F4ADA5BBCBFCB14FF2639B2363
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +593,8 @@ VA - Beatport Tech House: Electro Sound Pack #170 (2020) [MP3|320 Kbps] <Tech Ho
 ```bash
 magnet:?xt=urn:btih:AFA4A3853E965AC73C9B36A1AEDA93995086E5B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +623,8 @@ VA - Soft Jazz Best Background Music: Exam Study Music to Help Increase Concentr
 magnet:?xt=urn:btih:C05E3FC2B5EC03361334DB82757EE5BB4243C85E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +651,8 @@ VA - Music for You vol.12 (2020) [MP3|320 Kbps] <Rock, Metal, Other>
 ```bash
 magnet:?xt=urn:btih:EE8D72554128649F1B1AEF1ACB0FCF47981F9457
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +681,8 @@ VA - Summer Vacation: National Pop Music (2020) [MP3|320 Kbps] <Pop, Folk, Ethni
 magnet:?xt=urn:btih:4CD3AEE069E1B59EF053822F8D03D75BE7635C87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +709,8 @@ VA - Top 50 Workout Hits Rhythm (2016) [MP3|175-320 Kbps] <Trance, Euro House, T
 ```bash
 magnet:?xt=urn:btih:FDD19270CC18A33CDBDE8F17EED12D1D516CC3F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +739,8 @@ VA - Осенний Хит на радио Хит FM (2015) [MP3|256 кб/с]<Po
 magnet:?xt=urn:btih:BF296284587193B5AB8B2C0D247351ADD9096015
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,32 +768,7 @@ VA - German Top 100 Single Charts 04.09.2020 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:AF4FD5131C66EF73C6A016548332F1748C9BFDCF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406752   (471000) от 05.09.2020
-
-VA - Alternative World: Indie Pop-Rock Music (2020) [MP3|320 Kbps] <Indie, Alternative, Pop-Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471000.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nolan Potter's - Nightmare Forever
-002. Guise - Brother In Arms
-003. Pleil - Offener Kanal
-004. Honey Cutt - Vacation(   Читать дальше...   )Жанр: Indie, Alternative, Pop-RockПродолжительность: 08:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D191ECCBAFC134196875AF2C1908E7E0D41F9A8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

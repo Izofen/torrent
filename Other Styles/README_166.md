@@ -22,6 +22,8 @@ Brantley Gilbert - The Devil Don't Sleep (2017) [FLAC|Lossless|tracks] <Country>
 magnet:?xt=urn:btih:71187B85BFD473E7A7380F95FB1D728DF7140621
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:4CB12BC2FC077DC3A53B5293D40F8704598E3196
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Space - Magic Fly (1977) Remastered, 1998, Bastien Music [FLAC|Lossless|tracks] 
 magnet:?xt=urn:btih:4E4CB6706315BE7475A57A94EBB3D37E594AEB3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Star Wars Headspace (2016) [FLAC|Lossless|WEB-DL|tracks]<Electronic, Soundt
 ```bash
 magnet:?xt=urn:btih:9497FEE9CAECD09879AAC91F9C7232F08A7A7A66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ OST - Verliefd op Ibiza / Любовь и секс на Ибице (2013) [MP3|2
 magnet:?xt=urn:btih:0928717081A610FB3DB6AB89E89290AC250CACEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ The Hollywood Symphony Orchestra - Native Spirit (2012) 3CD [MP3|192 Kbps] <Nati
 ```bash
 magnet:?xt=urn:btih:B0A7536B92D2E6FF9D3FA871EBE26C325992E0BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Michael Afanasyev - Балканский рубеж (Оригинальный с
 magnet:?xt=urn:btih:E64E1585F33A1CB8C9CD00A6C918881569EF3423
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Michael Afanasyev - Балканский рубеж (Оригинальный с
 ```bash
 magnet:?xt=urn:btih:CA263DEFE40A10B02424BE584213CDD35E06BE46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Isgaard - The Early Days (2015) [MP3|320 кб/с] <New Age, Classical Crossover>
 magnet:?xt=urn:btih:5A31E5D2FF57DA08CFF6C1A42EEFC617B47DC3B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Damien Dubois - Evasion (2015) [MP3|320 кб/с] <New Age, Relaxation>
 ```bash
 magnet:?xt=urn:btih:1AFBD9B19B1C9435F8F0ABFF6F88F2F5B579E0C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Conjure One - 12 albums (2002-2011) [FLAC|Lossless] <Chillout, Ambient, New Age,
 magnet:?xt=urn:btih:D10AE6F67B54B82AE03ED6166AB1932C79C19B1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +339,8 @@ David Sun Productions - Звуки океана для ароматерапии 
 ```bash
 magnet:?xt=urn:btih:B1B8E563891433AEEFD29E302DB982E87E5782E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +369,8 @@ Space – Just Blue (1978) [FLAC|Lossless|tracks] <Electronic>
 magnet:?xt=urn:btih:6FC9D486D29CBB2A5FA87F9B41A3477BCC288DF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +397,8 @@ Jonn Serrie - композитор в жанрах космической муз
 ```bash
 magnet:?xt=urn:btih:057F671B468D957B7FD32E13745E421A49E08900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +427,8 @@ Myrkur - Folkesange (2020) [MP3|320 Kbps] <Dark Folk, Female Vocal>
 magnet:?xt=urn:btih:90F60A21D9F4FE9C567E1C0278BDDAFC0D05098B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +455,8 @@ James Alan Shelton - Blue In The Blue Ridge (1996) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:99221641EEC0942DD8E203231D67F431A85AA17C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +485,8 @@ magnet:?xt=urn:btih:99221641EEC0942DD8E203231D67F431A85AA17C
 magnet:?xt=urn:btih:3ACD54066B72BF9DBB00C7A4152A461507E12E11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +512,8 @@ magnet:?xt=urn:btih:3ACD54066B72BF9DBB00C7A4152A461507E12E11
 ```bash
 magnet:?xt=urn:btih:8C86D9CA7576AAFA637EF285ABE43CAFD889FBD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +542,8 @@ Santiano - 3 альбома (2012 - 2015) [MP3|320 кб/с] <Pop, Rock, Folk>
 magnet:?xt=urn:btih:C6A53BF39D93B679BB4456F805C1DF3F6B992C5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +570,8 @@ VA - Гитарный карнавал. Музыка вокруг света (20
 ```bash
 magnet:?xt=urn:btih:10671A9DFCF89D2CBEC351F7287CB0397C66CE7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +600,8 @@ magnet:?xt=urn:btih:10671A9DFCF89D2CBEC351F7287CB0397C66CE7A
 magnet:?xt=urn:btih:0EC0D19CFA1B1E0B14885641F9CD94565B05779A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +628,8 @@ Celtic Woman - Celebration (2020) [FLAC|Lossless|WEB-DL|tracks] <Celtic, New age
 ```bash
 magnet:?xt=urn:btih:2FF8587B35AD5A0D87719633C151267C7EEA81AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +658,8 @@ Kimberly Haynes - Awaken Me (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Vocal
 magnet:?xt=urn:btih:D2C3D7B5118BEA7312A31974D99FFF1A63EAF731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +686,8 @@ VA - Back To The Future / Назад в будущее (1985) [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:AC2DECA3442B9E0EDC05E3D7C35BDEABDA781D0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,6 +716,8 @@ VA - Любимые песни индийского кино (1,2,3) (2004) [MP3
 magnet:?xt=urn:btih:52FF2DE0A17966C41CA20728155CE4F0882404C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ Shastro - Satsang (2017) [FLAC|Lossless|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:2203AB3F0A22F60DAE51333B31F3A83A45EEA698
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

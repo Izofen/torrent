@@ -22,6 +22,8 @@ Disclosure - Settle (Special Edition) (2014) [FLAC|Lossless|WEB-DL]<House>
 magnet:?xt=urn:btih:D84A0C9DC23769AB05814E6853CE8392C9C0D24C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - EDM 2021 Ibiza Opening Party (2021) [MP3|320 Kbps] <House, Deep House, Prog
 ```bash
 magnet:?xt=urn:btih:1E49D02E15711CD97FFF6C679DECD823439DDE1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Mellow Dreams: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Bal
 magnet:?xt=urn:btih:9EA5EA6D35C56BD8628B324EF82534BAAE305259
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Vladi Strecker - Sax the Night Away - Saxophone Lounge Music & Chillout Grooves 
 ```bash
 magnet:?xt=urn:btih:E7B65DA81AA6819BCB3E7E4588A118E6B7023AF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Solarstone - Electronic Architecture 4 (2021) [FLAC|Lossless|tracks] <Dance, Pro
 magnet:?xt=urn:btih:D878D623D20E7F214FAA5D374CF53C43CDAEDAED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Eggvn - La Era de la Bestia (2021) [MP3|320 Kbps] <Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:509997B06D239B0585EB7402A3C03839CF87C6DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Morcheeba - Blackest Blue (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trip
 magnet:?xt=urn:btih:0DEAE8EE177F0FB78E40317366EA57C278DC9441
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Kontor Festival Sounds 2021.01 - The Awakening (2021) [MP3|320 Kbps] <House
 ```bash
 magnet:?xt=urn:btih:868F21F316820F6075C44715181F10F30B558C69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Hardstyle XXL Megamix 2021 [MP3|320 Kbps] <House, Club House, Progressive>
 magnet:?xt=urn:btih:4986899E54F8533D378130D050AD7B0BEF0F5DE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Korolova - Live @ Kamianets - Podilskyi, Ukraine(2021-05-07) [MP3|320 Kbps] <Pro
 ```bash
 magnet:?xt=urn:btih:A45202C425CCB948EACE9D967DFF22D8B105C83D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Relaxing Afternoon: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:76E2A01EE14AE9D4D1E5F927E8413D90269BC44E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Calming Sea: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balea
 ```bash
 magnet:?xt=urn:btih:0D0834B0262A340E9D5ACE827284C5B1ADC06B34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ SPINNIN' - Best of Tiesto (2021-05-09) [MP3|320 Kbps] <Big Room, Future House, D
 magnet:?xt=urn:btih:FD3DE620DCCC05D7B72F5E6DEFAA49A161754460
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ BCee & Charlotte Haining - Life As We Knew It (2021) [FLAC|Lossless|Web-DL|track
 ```bash
 magnet:?xt=urn:btih:10A8E44B362AA2089A28233E5D11051312D56F5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ ilan Bluestone - Impulse (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Trance>
 magnet:?xt=urn:btih:15E7A06009D1BD4537764F7A7CF293F5CD8528E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - The Mastermix Collection – Chillout (2021) [MP3|320 Kbps] <DJ Sets, Chill
 ```bash
 magnet:?xt=urn:btih:3D9AC472EB5A8232A3B72C1433A73B04BA0ACE5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Part 1
 magnet:?xt=urn:btih:2415D6D4977D4A572F6DED5ABD86E30510EE9D11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Nebulae Records - Label Pack 8 Releases (2018-2021) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:0A0821DBCC9A9B372CC11969FF83DC1E9305958B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ ScAnDroid Experiment's - Necessity of Rest (2021) авторская разда�
 magnet:?xt=urn:btih:47BA66344EF67F7FF75F791F53F938F467D4FCC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ magnet:?xt=urn:btih:47BA66344EF67F7FF75F791F53F938F467D4FCC3
 ```bash
 magnet:?xt=urn:btih:79F97FC04E8632ADB9530BDAEF43C82F070EAA11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Tapage - Recover (2021) Point Source Electronic Arts [FLAC 2.0|48/24|tracks|WEB-
 magnet:?xt=urn:btih:32C7D436882FBE59234479B5D5FDAEF3F3741C89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ The Fade Beta - Bygone Dreams (2021) [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtem
 ```bash
 magnet:?xt=urn:btih:319FB780471033FFB8DDC360B8359DF22D064F9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ Inkipak - Anomaly (2020) Ping Disc [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, 
 magnet:?xt=urn:btih:4F533C52ACC4190DDC1306861D5444B4A29E32A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +689,8 @@ magnet:?xt=urn:btih:4F533C52ACC4190DDC1306861D5444B4A29E32A0
 magnet:?xt=urn:btih:A0699C9CC944FE531D44ED8D03F051E4D8E8D497
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +716,8 @@ Worms Of The Earth - Discography 10 Releases (2006-2021) Disease Foundry, Indust
 ```bash
 magnet:?xt=urn:btih:535C154E3B1C9F3094132AA0B84A1CBB2A977D45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -695,6 +745,8 @@ New Canyons - Heavy Water (2021) [FLAC|Lossless|WEB-DL|tracks] <shoegaze, synthp
 ```bash
 magnet:?xt=urn:btih:409C4E292E83D6069C2D43B84B926E23F8B17BE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

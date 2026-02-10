@@ -22,6 +22,8 @@ The Alan Parsons Project - Vulture Culture (1984) Remaster, 2024, Ariola [FLAC 2
 magnet:?xt=urn:btih:B0CD84DE1B3DF2071362006C89F78D6E7E2B70BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Новые хитовые песни 2024, Часть 7 (2024) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:7111144BFE915F96EB219AA7AC3B8BF14C94A9A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Music News vol.394 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:AAC2DBBB1A0A12FE7677B73577F38F0494908E30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Autorun Organizer - простое в использовании приложе�
 ```bash
 magnet:?xt=urn:btih:29830B24DE39B9938EB72057F6CA7F6543457198
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ VA - Русская 30-ка хитов 6 (Новые русские песни) 
 magnet:?xt=urn:btih:68D2AE0B9353192DDB46C000ABE8061B849D01EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:68D2AE0B9353192DDB46C000ABE8061B849D01EB
 ```bash
 magnet:?xt=urn:btih:4450069587A1950C93BBF0530AD5C58D9E5E16F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:4450069587A1950C93BBF0530AD5C58D9E5E16F5
 magnet:?xt=urn:btih:29133C06698896A6F46972DF760951597E0AC893
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:29133C06698896A6F46972DF760951597E0AC893
 ```bash
 magnet:?xt=urn:btih:21818A76F4D4D0C83F7982D11996280665C6C619
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ Joplin - это бесплатное приложение для создани�
 ```bash
 magnet:?xt=urn:btih:04821A0DDC2810A0D32E2448A66B0AC717C90D4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ Chuck Berry - Greatest Hits (2004) [WavPack|Lossless|image + .cue] <Rock & Roll>
 magnet:?xt=urn:btih:0DDA76869F8226199904A264FA26627D627281E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:67655AACBBB53F1E88315E1807CAD8A2A11E4EBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ Auslogics File Recovery — простая и эффективная в испо
 ```bash
 magnet:?xt=urn:btih:277F471CDA0024D22CC1D0D4AB19D0DB88BC2B14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:277F471CDA0024D22CC1D0D4AB19D0DB88BC2B14
 magnet:?xt=urn:btih:91E8B1503D94BB17FE73F92D7F2946942D8D4D9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ Auslogics Registry Cleaner - поможет вам избавиться от о�
 ```bash
 magnet:?xt=urn:btih:5A1E1BA7EE6F7EDEFD889FC38EA00698F12A6C13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ AOMEI Partition Assistant – мощная программа для работ�
 magnet:?xt=urn:btih:3E124E8E633189545778188011864D7EF464D10E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ Auslogics Driver Updater – программа представляющая с�
 ```bash
 magnet:?xt=urn:btih:D0182180EAF7CD2933D7DC94E325AA38E7BCEFAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:D0182180EAF7CD2933D7DC94E325AA38E7BCEFAF
 magnet:?xt=urn:btih:8A6298C5221EE49C80B3A8512D0C2925A9D5D07A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:8A6298C5221EE49C80B3A8512D0C2925A9D5D07A
 ```bash
 magnet:?xt=urn:btih:9B8469E421BC8A5142DD8A09EE4C0D279B2D03AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ Auslogics Disk Defrag Pro - это профессиональная версия
 magnet:?xt=urn:btih:883E01DA899CFEC497E66D78B1669AB20F1DAC13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:883E01DA899CFEC497E66D78B1669AB20F1DAC13
 ```bash
 magnet:?xt=urn:btih:F93C767028106D6A7D1C04C9D7CE22E28F27D6BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:F93C767028106D6A7D1C04C9D7CE22E28F27D6BF
 magnet:?xt=urn:btih:326B0992FC0DEE2A735AFB0C5ED3FE29E8ED7499
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:326B0992FC0DEE2A735AFB0C5ED3FE29E8ED7499
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:326B0992FC0DEE2A735AFB0C5ED3FE29E8ED7499
 magnet:?xt=urn:btih:3E9127E4D8FFF48A8176DED68577A0D144CB581C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:3E9127E4D8FFF48A8176DED68577A0D144CB581C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:3E9127E4D8FFF48A8176DED68577A0D144CB581C
 ```bash
 magnet:?xt=urn:btih:F25A0BCFB941A43986A40CA2B79BD0A157806D16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +691,8 @@ VA - 50 хитов на дачу (2024) [FLAC|Lossless|WEB-DL|tracks] <Шанс�
 ```bash
 magnet:?xt=urn:btih:3442AB65ED0CC11B4DA70B860E01A75A985F2E46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

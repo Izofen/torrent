@@ -19,6 +19,8 @@ Malloc Privacy & Security VPN 2024.02.140 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:2C79D5CBBAB030AF1A9BB6045DC32EB415A5F570
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Giti VPN, безопасная платформа, дает вам настоя�
 magnet:?xt=urn:btih:8854CC3EAEFCA168AC8326F2FD0422DDE2FD749E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:8854CC3EAEFCA168AC8326F2FD0422DDE2FD749E
 magnet:?xt=urn:btih:8CB4516EEAE4F10511ED320A0C9CE08B3706CA7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ PictureThis - Plant Identification v3.82 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DDD2249542844D8EE5801F53E910EFD367093508
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ BBVpn VPN — это молниеносное приложение, предос
 magnet:?xt=urn:btih:0FE05ACA0619174886B1AF28DA7B9694189DBCE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ VPN.lat — это бесплатный VPN-сервис для Android с се�
 ```bash
 magnet:?xt=urn:btih:A4400BAF00246A617D3DEAD1371E0FD81E7B1472
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ XY VPN — это абсолютно бесплатный VPN! Быстрое и
 magnet:?xt=urn:btih:4F21688DA7C90B7A730C4885737879354250B14B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ AIDA64 2.01 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:616FE6166C8C6FEDE0E628C4113946AB91427A1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:616FE6166C8C6FEDE0E628C4113946AB91427A1E
 magnet:?xt=urn:btih:C0FA5C439AC3269F88E9A5ED5A740652E9532DE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Super Recorder - это мощное приложение для записи г
 ```bash
 magnet:?xt=urn:btih:07A7AEA4B6EA68CF77A9007164E6B95D8E3D7F7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Zaycev.net v8.9.4 Mod by Timozhai, Dymonyxx  [Ru/En]
 magnet:?xt=urn:btih:2FC49C9E78E028A082A1F06D90C8F24CEB8A4D21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:2FC49C9E78E028A082A1F06D90C8F24CEB8A4D21
 ```bash
 magnet:?xt=urn:btih:14B9B01DBE326CBF1CB9EB87DF66CB006AA830F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:14B9B01DBE326CBF1CB9EB87DF66CB006AA830F2
 magnet:?xt=urn:btih:12437FA10913D5477FE1CA9DD2660979E734B080
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Rutube v29.1.3 Mod by vadj [Ru/En]
 ```bash
 magnet:?xt=urn:btih:6323D82265101C72A1E07F5779C07D088632FCA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Filmic Pro - функциональное приложения для веден
 magnet:?xt=urn:btih:ED803EA7BECD1FED9371CEB1E2A381489AB0199F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Cx Проводник - это мощное приложение с интуит
 ```bash
 magnet:?xt=urn:btih:D07AB65B28CD3E9786F9A87E579B0C2B6BE248A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ YouTube ReVanced - это реинкарнация проекта YouTube Vanced
 magnet:?xt=urn:btih:BABD7B5E795429AC345D4D63C6066E1EAA0CF75D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Call of Duty: Strike Team – представитель знаменитой с
 ```bash
 magnet:?xt=urn:btih:B1764D9E48546A99CCF7DCA67654886C81CC0FDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ RS Проводник - запросто поможет вам в управле
 magnet:?xt=urn:btih:CE30FD1005AAA4CD40D92E91FB40A15090DC3657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Lark Player - это удобный и легкий аудио плеер, ко�
 ```bash
 magnet:?xt=urn:btih:C9139AD2573A0CB755CB2C0FB9752FF82EEA3A9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Lightroom - в приложении для мобильных устройств
 magnet:?xt=urn:btih:3FCADCFC7611A103223041433E97AF22F563CBD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Adobe Photoshop Express - ещё одно крайне нужное и поле�
 ```bash
 magnet:?xt=urn:btih:B31E324D9DE12E5530F56524F9008F17E715B27A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:B82BDBD4C59AE20567CA534FFE810623FE6EFD57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ SnapTube - YouTube Downloader VIP v7.17.0.71750910 Final Mod by Balatan [Ru/Mult
 magnet:?xt=urn:btih:7BFF618AA2962EB6A6769D29145EE91BA85B3C73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:7BFF618AA2962EB6A6769D29145EE91BA85B3C73
 ```bash
 magnet:?xt=urn:btih:D6827DAAA707064FA31D9FAE639A534A2A8E79AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ GPS Локер создан для того чтоб не терять фикс�
 ```bash
 magnet:?xt=urn:btih:9728CEF1647F2B63F94EA3F613798450838A4504
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,27 +1,3 @@
-###  Публикация: 573337   (377758) от 11.11.2012
-
-Нити / Strіngs (2004) [H.264/720p-LQ] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трагическая гибель владыки великого Авалона вновь разожгла веками тлевшую вражду между авалонцами и зеритами. Юный сын погибшего государя Хэл Тара озабочен не будущим царствованием, а желанием жестоко отомстить зеритам за смерть отца. Переодевшись в простые одежды и взяв с собой только отцовский меч, Хэл покидает родной замок и отправляется навстречу неизвестности…Жанр: Кукольный, Приключения, Фэнтези, ДрамаРежиссер: Андерс Рённов КларлундПерсонажи: Джеймс МакЭвой, Катрин МакКормак, Джулиан Гловер, Дерек Джекоби, Иэн Харт, Клер Скиннер, Дэвид Хэрвуд, Саманта Бонд, Марина Бурас, Пернилла ХёймаркПеревод: Профессиональный (многоголосый, закадровый) / Авторский (одноголосый, закадровый) Антон КарповскийПродолжительность: 01:31:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:208F6776AE37A6242237D62BD551D456DDFD0CE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175598   (378067) от 18.10.2017
 
 Трио в перьях / Richard the Stork (2017) BDRip [H.264/1080p]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:208F6776AE37A6242237D62BD551D456DDFD0CE8
 ```bash
 magnet:?xt=urn:btih:2B35C91B5E5D25274A7D95063E2FA04F6C6F7853
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:2B35C91B5E5D25274A7D95063E2FA04F6C6F7853
 magnet:?xt=urn:btih:71E9230E7F14C4DBA4C42C38A551E7627C2E0211
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:71E9230E7F14C4DBA4C42C38A551E7627C2E0211
 ```bash
 magnet:?xt=urn:btih:5D7FCC840C584E3389A26A8EB0B8BC3FED282534
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:5D7FCC840C584E3389A26A8EB0B8BC3FED282534
 magnet:?xt=urn:btih:4C7098FE4F9862B7D5521F0104340DFB773342C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:4C7098FE4F9862B7D5521F0104340DFB773342C7
 ```bash
 magnet:?xt=urn:btih:5AB4BFCE7E05253EDEA0B4A2FB4500C5F451DAF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:5AB4BFCE7E05253EDEA0B4A2FB4500C5F451DAF1
 magnet:?xt=urn:btih:1A94CA4C05F59605902DB347026875D5877747E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +177,8 @@ magnet:?xt=urn:btih:1A94CA4C05F59605902DB347026875D5877747E6
 magnet:?xt=urn:btih:33BDEF36CF5540544FF0AF8CF1488D6463BD501C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:33BDEF36CF5540544FF0AF8CF1488D6463BD501C
 ```bash
 magnet:?xt=urn:btih:B6EC068CBB9581385E45ADED5FEC382D2E15DC26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +229,8 @@ magnet:?xt=urn:btih:B6EC068CBB9581385E45ADED5FEC382D2E15DC26
 magnet:?xt=urn:btih:B4D1312B714862E3200909566310301481E6C70B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:B4D1312B714862E3200909566310301481E6C70B
 ```bash
 magnet:?xt=urn:btih:10D8F79E27DB74CD3A69A69547AC24B64735FD02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +281,8 @@ magnet:?xt=urn:btih:10D8F79E27DB74CD3A69A69547AC24B64735FD02
 magnet:?xt=urn:btih:EA2EEDA3907D4C5D7FF380053693DC40B3F40B49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +306,8 @@ magnet:?xt=urn:btih:EA2EEDA3907D4C5D7FF380053693DC40B3F40B49
 ```bash
 magnet:?xt=urn:btih:3EDC5E9B0C4E1A72723964600ADA7BE185FA44A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +333,8 @@ magnet:?xt=urn:btih:3EDC5E9B0C4E1A72723964600ADA7BE185FA44A6
 magnet:?xt=urn:btih:77A7B8B17364B352529DF6BCAEBBC991750E9BC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +358,8 @@ magnet:?xt=urn:btih:77A7B8B17364B352529DF6BCAEBBC991750E9BC6
 ```bash
 magnet:?xt=urn:btih:712AEBAC55749F3F3914AB2E4300256AC1D16F92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +385,8 @@ magnet:?xt=urn:btih:712AEBAC55749F3F3914AB2E4300256AC1D16F92
 magnet:?xt=urn:btih:5FE08B8B8F094A3C5BEDE68F5A2EB8976C8C5D0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +410,8 @@ magnet:?xt=urn:btih:5FE08B8B8F094A3C5BEDE68F5A2EB8976C8C5D0C
 ```bash
 magnet:?xt=urn:btih:FB86A40BA5F524474A17389CF2624AEF2D72932F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +437,8 @@ magnet:?xt=urn:btih:FB86A40BA5F524474A17389CF2624AEF2D72932F
 magnet:?xt=urn:btih:40A0A4EDDA30C28D1F00E3E411512157B155DB89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +462,8 @@ magnet:?xt=urn:btih:40A0A4EDDA30C28D1F00E3E411512157B155DB89
 ```bash
 magnet:?xt=urn:btih:FE5FFA026E90EF0ADF822E433201EA9E8B8858F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +489,8 @@ magnet:?xt=urn:btih:FE5FFA026E90EF0ADF822E433201EA9E8B8858F0
 magnet:?xt=urn:btih:29742E9E19A865A0A930C165328111A4F02F7E33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +514,8 @@ magnet:?xt=urn:btih:29742E9E19A865A0A930C165328111A4F02F7E33
 ```bash
 magnet:?xt=urn:btih:DF821981AC5AECF4A4B46C2E1DA862710C1BA7A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +543,8 @@ magnet:?xt=urn:btih:DF821981AC5AECF4A4B46C2E1DA862710C1BA7A6
 magnet:?xt=urn:btih:5B8E5C2E896128C58D9AAB51368C4A55E842EACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +568,8 @@ magnet:?xt=urn:btih:5B8E5C2E896128C58D9AAB51368C4A55E842EACC
 ```bash
 magnet:?xt=urn:btih:2C09E0B1562AB4132C283B6CCF1900D5CC9CF6CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +595,8 @@ magnet:?xt=urn:btih:2C09E0B1562AB4132C283B6CCF1900D5CC9CF6CC
 magnet:?xt=urn:btih:FB9766191092951F25994DDFC843484E357E1551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +621,8 @@ magnet:?xt=urn:btih:FB9766191092951F25994DDFC843484E357E1551
 magnet:?xt=urn:btih:24362809BBA8EE9AA3BA9D50A3ADD683DF3C60B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +646,35 @@ magnet:?xt=urn:btih:24362809BBA8EE9AA3BA9D50A3ADD683DF3C60B7
 ```bash
 magnet:?xt=urn:btih:6C38A29CD3E4020D8A5FA27A08247F0400E89E97
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574256   (387759) от 04.09.2022
+
+Балто 3: Крылья перемен / Balto III: Wings of Change (2004) HDTVRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дело в том, что сани, которые служили универсальным средством передвижения на севере многие века, вытесняет странное крылатое устройство, которое легко может оставить упряжных собак «без работы». Ведь наступили новые времена! добраться до самых труднодоступных уголков на карте теперь можно при помощи самолёта.
+Однако это совсем не по вкусу нашему старому знакомому (   Читать дальше...   )Производство: США / Universal Cartoon StudiosЖанр: мультфильм, мюзикл, приключенияРежиссер: Фил ВайнштейнПеревод: Дублированный (R5)Субтитры: ОтсутствуютПродолжительность: 01:18:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22B1062D9C6EBA191933070F82B7EF096CFF6F2D
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

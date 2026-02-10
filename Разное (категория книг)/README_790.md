@@ -1,3 +1,31 @@
+###  Публикация: 1441207   (1037927) от 20.01.2021
+
+Harvard Business Review (HBR) | Управление изменениями (2016) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Harvard Business Review – главный деловой журнал в мире. Представляем новый выпуск серии «HBR: 10 лучших статей», посвященный управлению изменениями.
+Если ваша компания переживает серьезные перемены или вам это только предстоит, то эта книга для вас. Из сотен статей журнала, посвященных управлению изменениями, редакторы HBR отобрали самые полезные и актуальные.
+Из (   Читать дальше...   )Жанр: Организационный менеджмент, Управление бизнесомФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E7E34E94D8C6FD7A7A7525171F577F601E290B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441170   (1037943) от 20.01.2021
 
 Карен Тайбер Лиланд, Кит Бейли | Найти баланс. 50 советов о том, как управлять временем и энергией (2021) [FB2]
@@ -19,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:A9C82A74B0127B463709CC50DCCFFA88DA12636A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +77,8 @@ magnet:?xt=urn:btih:A9C82A74B0127B463709CC50DCCFFA88DA12636A
 magnet:?xt=urn:btih:78EA5CD58217840741616263A221128D6E5EFBF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +102,8 @@ magnet:?xt=urn:btih:78EA5CD58217840741616263A221128D6E5EFBF0
 ```bash
 magnet:?xt=urn:btih:64E265CA597096FB20A32D097881F49CCED5C8D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +129,8 @@ magnet:?xt=urn:btih:64E265CA597096FB20A32D097881F49CCED5C8D0
 magnet:?xt=urn:btih:9CD4F97C854D33B9E723CF7D942A62D2A571ABB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +154,8 @@ magnet:?xt=urn:btih:9CD4F97C854D33B9E723CF7D942A62D2A571ABB3
 ```bash
 magnet:?xt=urn:btih:4338CBCF5F87EC35CCDC1F905A7A9E8947BBB032
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +181,8 @@ magnet:?xt=urn:btih:4338CBCF5F87EC35CCDC1F905A7A9E8947BBB032
 magnet:?xt=urn:btih:C4E6B18EBD035F02B1AC5102831DFF212400FB52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +206,8 @@ magnet:?xt=urn:btih:C4E6B18EBD035F02B1AC5102831DFF212400FB52
 ```bash
 magnet:?xt=urn:btih:22F307A3503ED2A14047212B5EB27FC3945758BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +235,8 @@ magnet:?xt=urn:btih:22F307A3503ED2A14047212B5EB27FC3945758BB
 magnet:?xt=urn:btih:19E479E92024015DC41B13FBB91D5129DA94C249
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +262,8 @@ magnet:?xt=urn:btih:19E479E92024015DC41B13FBB91D5129DA94C249
 magnet:?xt=urn:btih:644CD99856D72A332CF77C6742B0281B3DC87468
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +287,8 @@ magnet:?xt=urn:btih:644CD99856D72A332CF77C6742B0281B3DC87468
 ```bash
 magnet:?xt=urn:btih:D55C333CB285E998CCC073D6077CBF97896B1994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +314,8 @@ magnet:?xt=urn:btih:D55C333CB285E998CCC073D6077CBF97896B1994
 magnet:?xt=urn:btih:C7071F0E4D96CB46BCE26FA576E75DD005547B3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +340,8 @@ magnet:?xt=urn:btih:C7071F0E4D96CB46BCE26FA576E75DD005547B3C
 magnet:?xt=urn:btih:1E8C61AF1DF7F3DEFCBE6CA78BE8BCB35CDB564A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +365,8 @@ magnet:?xt=urn:btih:1E8C61AF1DF7F3DEFCBE6CA78BE8BCB35CDB564A
 ```bash
 magnet:?xt=urn:btih:71DA340CD4D75C9056C7CD782848B1ECEA876206
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +393,8 @@ magnet:?xt=urn:btih:71DA340CD4D75C9056C7CD782848B1ECEA876206
 magnet:?xt=urn:btih:9C16376C77FC6FD0E74EF5B068EBC5FE1AFC087B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +419,8 @@ magnet:?xt=urn:btih:9C16376C77FC6FD0E74EF5B068EBC5FE1AFC087B
 magnet:?xt=urn:btih:3C685DA4444770C92974C6C6529BDEE0B0139B21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +444,8 @@ magnet:?xt=urn:btih:3C685DA4444770C92974C6C6529BDEE0B0139B21
 ```bash
 magnet:?xt=urn:btih:2E4FDACAEF797112F4682F3EE9EC92D42F3A2271
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +472,8 @@ magnet:?xt=urn:btih:2E4FDACAEF797112F4682F3EE9EC92D42F3A2271
 magnet:?xt=urn:btih:E1C4F792D5583135C0AC071CDD041D571434149A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +498,8 @@ magnet:?xt=urn:btih:E1C4F792D5583135C0AC071CDD041D571434149A
 ```bash
 magnet:?xt=urn:btih:9C4219C2EC3EE16D8E46FED0DDFE536F4C98F145
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +526,8 @@ magnet:?xt=urn:btih:9C4219C2EC3EE16D8E46FED0DDFE536F4C98F145
 magnet:?xt=urn:btih:611ED71690A1B5E7706B3701B3923A7D228C62EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +551,8 @@ magnet:?xt=urn:btih:611ED71690A1B5E7706B3701B3923A7D228C62EA
 ```bash
 magnet:?xt=urn:btih:7A1EC705B4DEB6A5BF8E150DD8F06A81AD5F0F50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +578,8 @@ magnet:?xt=urn:btih:7A1EC705B4DEB6A5BF8E150DD8F06A81AD5F0F50
 magnet:?xt=urn:btih:D2FA41CBCBBAD0D11DD6047A999C854118CD7D91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +603,8 @@ magnet:?xt=urn:btih:D2FA41CBCBBAD0D11DD6047A999C854118CD7D91
 ```bash
 magnet:?xt=urn:btih:4312E3342351C5659BDA42C3DEBED14D88881AAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +630,8 @@ magnet:?xt=urn:btih:4312E3342351C5659BDA42C3DEBED14D88881AAE
 magnet:?xt=urn:btih:5AEE2D7375EEE47B9CF1C982F44DCD1A1F1E63BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +655,8 @@ magnet:?xt=urn:btih:5AEE2D7375EEE47B9CF1C982F44DCD1A1F1E63BA
 ```bash
 magnet:?xt=urn:btih:55D8E30CAA0CF57292CFECE281358D1F97AD6F75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,32 +682,7 @@ magnet:?xt=urn:btih:55D8E30CAA0CF57292CFECE281358D1F97AD6F75
 magnet:?xt=urn:btih:77D666030DB539215B09421494B639A7F1C35EA6
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 128824   (1038690) от 17.01.2021
-
-Н.А. Бердяев | Путь. Орган русской религиозной мысли (1925-1940) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "Путь" издавался Николаем Бердяевым в Париже как "орган русской религиозной мысли".
-Он стал лучшим религиозно-философским журналом России и таковым и остается. Всего вышел 61 номер.
-Первые номера более объемные, последующие - менее.
-(   Читать дальше...   )Жанр: Философия, религиоведение, история.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F1ECFB617ED414C6C69121E4D3DF0881D4202C7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

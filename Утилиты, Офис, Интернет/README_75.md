@@ -19,6 +19,8 @@ SpeedCommander - файловый менеджер с многочисленны
 magnet:?xt=urn:btih:D305C5DBB62C0656532AF729186D06A27481F92C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Air Live Drive монтирует облачные диски в качеств�
 ```bash
 magnet:?xt=urn:btih:C3A95EAAC8847D9FF97771FBD96936384F0C8E70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Multi Password Recovery - многофункциональное решение 
 magnet:?xt=urn:btih:751C09F1EC35071C2F07A5058C626259663EA247
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Apowersoft Screen Recorder Pro – программа, предназначен�
 ```bash
 magnet:?xt=urn:btih:0D40841D15E45AA1C813E2DE78DCBF1DD38B1F7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ WinPDFEditor — программа для редактирования PDF фа
 magnet:?xt=urn:btih:EA022E6C7BD1DA8199E5F6EFF5D1D55EABE462AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ jv16 PowerTools — набор утилит для оптимизации и у�
 ```bash
 magnet:?xt=urn:btih:4D29A59DBCC86D10F881D28DFF6F35C87C56F4EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ YouTube Downloader - простая и легкая в использовани�
 magnet:?xt=urn:btih:04DCEF9F336095BC084689150EEDC490A12C454E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ WinDjView — лёгкая, но функциональная программа
 ```bash
 magnet:?xt=urn:btih:876393517FC0EC6ECCED09BDA9D859C655639872
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ MOBILedit! - уникальная модульная программа, кот�
 magnet:?xt=urn:btih:F2189918A078AEFE0FF5B9B53E3D23E87127D7D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ PCStitch - профессиональная версия программы дл
 ```bash
 magnet:?xt=urn:btih:59AE2C37E3EF8383625FB8D87B465B9A36D9B411
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ GetDataBack Simple - новый продукт известного разраб
 magnet:?xt=urn:btih:7A215C808B27B0A7EA886EBF105900B69DFC4B68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Recover Keys - это приложение для Windows, созданное д
 magnet:?xt=urn:btih:D50A8E90CD0B695A41FCA8ABC00C635250D39EE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ SoftMaker FlexiPDF 2017 Pro 1.01 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B7917BF5FDC42B09B99FBA73236FA6158280E734
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ MaxProfit 3.0.0.41 [Ru]
 magnet:?xt=urn:btih:A8AEE038A71B94EF696E50DCBF3BC90BE2BE25E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Wondershare Data Recovery - мощная и простая в использов
 ```bash
 magnet:?xt=urn:btih:A28413463D00791B14BBF77094ADC9204DC340E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTM
 magnet:?xt=urn:btih:1EA8E4977684DAA0EB013BBE6FDC3675DEAE091F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ SysLog Collector -программа для удаленного сбора, с�
 ```bash
 magnet:?xt=urn:btih:506D1C7580939146320FEFFC0E28BE1DF255BF3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ NetworkTrafficView - удобный инструмент сетевого мон
 magnet:?xt=urn:btih:3384C05E5EFEDF6E5F51B86BBAF238FEFA8B5122
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ SmartSniff 2.25 Portable + Driver [Ru/En]
 magnet:?xt=urn:btih:9271E65304B8F75C38D25962B175F48CDDA55673
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ CD/DVD shot 3.5.0.1 (x86-x64) [Ru]
 ```bash
 magnet:?xt=urn:btih:33A9C644FF4E3A098D5393370129BA8690E58CA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Android Data Recovery  совместима с Android 2.3 и другими б�
 magnet:?xt=urn:btih:BA60ED586FEE60FBC5B0DA736C07B8D475FD35BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Adobe Reader — программа, предназначенная для пр�
 ```bash
 magnet:?xt=urn:btih:1BD942598994AA2EE2F8D8379F60D4FF66AAD7E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Adobe Reader — программа, предназначенная для пр�
 magnet:?xt=urn:btih:728361215364525DC4AC9ABB75CD13889C64E4E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ PIDKey Lite предназначена для просмотра, обновле
 ```bash
 magnet:?xt=urn:btih:20D25DFB8FAE6E0FD8944B6F2CCB319C7EEA9C5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ Falcon – неплохой комплект курсоров шести цве�
 magnet:?xt=urn:btih:0AD758D071F676675C5C794397EB90773E9663DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ IconPackager это полезная программа для тех кто л�
 ```bash
 magnet:?xt=urn:btih:ACF0AB4A176C31F3923F3D35DC9BD4DF6F115E56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

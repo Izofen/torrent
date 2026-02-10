@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@
 magnet:?xt=urn:btih:81E9A155CADE8605A573B5E15854782A10EA5873
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:81E9A155CADE8605A573B5E15854782A10EA5873
 magnet:?xt=urn:btih:FC86548F4F3332DAC3E0C850ED5D9B7EA7D50651
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:FC86548F4F3332DAC3E0C850ED5D9B7EA7D50651
 ```bash
 magnet:?xt=urn:btih:F5FC6A801EEF298A754BF64931ADD119C338004C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:F5FC6A801EEF298A754BF64931ADD119C338004C
 magnet:?xt=urn:btih:DD7A55F8C4B1F94878EEE503BE43BE3AFB522EE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Dark Light - сай-фай платформер с элементами метр
 ```bash
 magnet:?xt=urn:btih:4609414708BC02A273534D1505E7FF1D167D2217
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Youropa (2018) [Ru/Multi] (2.0.10) License DOGE
 magnet:?xt=urn:btih:0B42E1F8EE8C6E9CACB6A72D582208571AF8A13D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:0B42E1F8EE8C6E9CACB6A72D582208571AF8A13D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ DG Win&Soft предлагает Вашему вниманию полный сб
 magnet:?xt=urn:btih:DEDCDEDB1A4C967B6EBE944B36F79838845D7FB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:DEDCDEDB1A4C967B6EBE944B36F79838845D7FB0
 ```bash
 magnet:?xt=urn:btih:60482FF8EBB9FA3B953B9C5684062BC801F876D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:60482FF8EBB9FA3B953B9C5684062BC801F876D9
 magnet:?xt=urn:btih:EC704E94019D7DC8B763278FD1372ABE2B3CA86D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:EC704E94019D7DC8B763278FD1372ABE2B3CA86D
 ```bash
 magnet:?xt=urn:btih:1A0F3DFB00A14365AA43EEA90A9066650F71B281
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:1A0F3DFB00A14365AA43EEA90A9066650F71B281
 magnet:?xt=urn:btih:FA4F11AC2CC4AB4B77F8D07C201E1AE0E836FC77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:FA4F11AC2CC4AB4B77F8D07C201E1AE0E836FC77
 ```bash
 magnet:?xt=urn:btih:3A2019AF9D97C000FD069653CCF0AC3490582FCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Fade to Silence (2019) [Ru/Multi] (1.0.2025hf) Repack West4it
 magnet:?xt=urn:btih:45C152150D53C0F6B99C688E3160C588139D8F64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:45C152150D53C0F6B99C688E3160C588139D8F64
 ```bash
 magnet:?xt=urn:btih:00824A43C0148CB3A5A7D6A1C6EF203EB7CF2379
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:00824A43C0148CB3A5A7D6A1C6EF203EB7CF2379
 magnet:?xt=urn:btih:8F0932387ABA25C9716F3F4EF070E7B9FCD2C98D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:8F0932387ABA25C9716F3F4EF070E7B9FCD2C98D
 ```bash
 magnet:?xt=urn:btih:1129C997D8C0C6C4CE2343AF342C7544B2E6F1D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:1129C997D8C0C6C4CE2343AF342C7544B2E6F1D9
 magnet:?xt=urn:btih:C83CE739D4F923E5C1DB74AA709F828BB41C90AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:C83CE739D4F923E5C1DB74AA709F828BB41C90AD
 ```bash
 magnet:?xt=urn:btih:E9DCB48C09CB2D2A5EA5CD10AA287FF2EFD83A7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Cупруги Будько и Ковалевы-Берковичи снова в 
 magnet:?xt=urn:btih:5E1CFC5517DA400BD50290D4D94D4BD35E020D14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:5E1CFC5517DA400BD50290D4D94D4BD35E020D14
 ```bash
 magnet:?xt=urn:btih:B2FA2727CFC88F3CFCD4BE9641AE92CBD45F8654
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:B2FA2727CFC88F3CFCD4BE9641AE92CBD45F8654
 magnet:?xt=urn:btih:E81C0039809258D299F097790F044B8372A8A693
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:E81C0039809258D299F097790F044B8372A8A693
 ```bash
 magnet:?xt=urn:btih:625670554E3DF4F653B5529CC7D06392E23E41C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Pathfinder: Wrath of the Righteous – непрямое продолжение �
 magnet:?xt=urn:btih:9E6AFC764A7DAF2724D3AA3D057B2F8289EF564B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Baldur's Gate: Dark Alliance (2021) [Multi] (1.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:0B2386FDB62466D14BA1C510A416AF8D205E5DE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

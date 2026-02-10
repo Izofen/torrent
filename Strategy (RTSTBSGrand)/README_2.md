@@ -19,6 +19,8 @@ Age of Wonders: Planetfall – это новая стратегическая и
 magnet:?xt=urn:btih:402D649388D3A50315A275A14E757D588313600D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Tempest Rising (2025) [Ru/Multi] (1.1.1+43856/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:31171AE996C379BCCA2F5B775556C1E7FCC591F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Imperator: Rome - новая грандиозная стратегия от Para
 magnet:?xt=urn:btih:35BCE3A0850AFD3EE322DBAEDB0C3CCB42B564DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Imperator: Rome - новейшая масштабная стратегия от 
 ```bash
 magnet:?xt=urn:btih:82D03DC0D76851C4FAD81EA2405E4CA873B6D253
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Age of Empires IV (4) (2021) [Ru/En] (13.0.4343.0/dlc) Repack FitGirl [Ultimate 
 magnet:?xt=urn:btih:B510157F5992F84E1A362DDAFC4C67C2C11AC934
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ TFC: The Fertile Crescent показывает геймерам период з�
 ```bash
 magnet:?xt=urn:btih:CF11115BD1534C137C938BCCDA050B1982FB4D31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Age of Empires IV (4) (2021) [Ru/En] (13.0.4343.0/dlc) Repack seleZen [Anniversa
 magnet:?xt=urn:btih:713508954C3F3187B6787A00F8D5C2D7CAD8515E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Imagine Earth это стратегический симулятор разви�
 ```bash
 magnet:?xt=urn:btih:7F3281D0D3B55CA20AAB881A298840E0581B092B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Imagine Earth это стратегический симулятор разви�
 magnet:?xt=urn:btih:D545EFA7D00DF54E3CADC253FE11E6816D20E1C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ War for the Overworld (2015) [Ru/Multi] (2.1.3/dlc) License GOG [Underlord Editi
 ```bash
 magnet:?xt=urn:btih:F376A99123EA2C6B892C6D64A3FE28786CEBE200
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Heroes of Might and Magic IV (4) (2004) [Ru/En] (3.0/dlc) Repack Wanterlude [Com
 magnet:?xt=urn:btih:8275AF1DAF5B0CC3845B2B089DD48835036533CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.04.160.1/dlc) Repack Wanterl
 ```bash
 magnet:?xt=urn:btih:FB61390A0701E5A6E2BEA5FF6EF2877263145604
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ WARNO (2024) [Ru/Multi] (150731/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:94D2C57F39587A7869A361CDAFDF0387CD14DDD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Command & Conquer (2020) [Ru/Multi] (1.153.11.25007) Repack Let'sРlay [Remaster
 ```bash
 magnet:?xt=urn:btih:BE2D8A2D098E0B10756975B8A9E940DAB6D08A2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Warcraft I + II: Remastered (2024) [Ru/Multi] (1.0.0.2198/1.0.1.2242) Repack Dec
 magnet:?xt=urn:btih:6FA6CCB043CD5F2F9CF67920B88E3E4CB841893A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Age of Mythology: Retold - игра от создателей культовой
 ```bash
 magnet:?xt=urn:btih:4AC70D78CD7A606BC525B5F9130EE76C5DFDCA90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Age of Mythology: Retold - игра от создателей культовой
 magnet:?xt=urn:btih:B2E99590431DF6A1F3B83855F8F66F89822016D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Age of Mythology: Retold - игра от создателей культовой
 ```bash
 magnet:?xt=urn:btih:098E164F79D81AC2518C7B3C8EF4F66CE5F3BAFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Hearts of Iron 4 (IV) – отличный военный симулятор, в
 magnet:?xt=urn:btih:BE84124FB6D201A0712942BB2F1236C55A91FEB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Hearts of Iron 4 (IV) – отличный военный симулятор, в
 ```bash
 magnet:?xt=urn:btih:937EA348C460F73E2FD0523F7FA032449E2A4A52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Imperiums: Greek Wars (2020) [Ru/Multi] (1.422/dlc) Repack Let'sРlay [Complete]
 magnet:?xt=urn:btih:CC8DA59AC264853EF91CC614FBCF183FC89290F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ StarCraft: Remastered (2017) [Ru] (1.23.9.10756) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:29B3FC78EC0739935B00AE7CBD3B32D0EE7C8E17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Warcraft 3: The Reign of Chaos (2003) [Ru] (1.26a/dlc) Repack EXROW
 magnet:?xt=urn:btih:1E2C246BA80776DF35DAC22C3155865C31D7D5DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Master of Orion предлагает игрокам исследовать бе�
 ```bash
 magnet:?xt=urn:btih:13B03ABD285E911CF5BBED0F1A12EC5F150A806A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Songs of Silence погружает игроков в фантастически
 magnet:?xt=urn:btih:0807D6281E6C54D78CBEBDB989531A49A662DF54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Headquarters: World War 2, увлекательная пошаговая стр�
 ```bash
 magnet:?xt=urn:btih:5797494F1C69A63F63E29E2CB890ABAFD362A6CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

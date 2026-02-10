@@ -1,3 +1,29 @@
+###  Публикация: 1437192   (1042491) от 03.01.2021
+
+Т.В. Измайлова | Пэчворк. Самое полное и понятное пошаговое руководство по лоскутному шитью для начинающих (2017) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Новейшая энциклопедия пэчворка родилась не случайно! Лоскутное шитье стремительно набирает обороты популярности во всем мире. Мозаика из разноцветных тканей отличается огромным разнообразием возможностей, появляются новые техники и приемы, возрождаются из небытия старые и даже старинные, рождаются новые сочетания и новая стилистика. Именно поэтому в книге вы найдете (   Читать дальше...   )Жанр: Рукоделие, ХоббиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4010649649E53A8CC2320657DB4EBB3DEBA26F2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437198   (1042492) от 03.01.2021
 
 Галина Дубинина | Гимнастика для лица. Практики для сохранения красоты и молодости (2020) [EPUB]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:A4E6B42D037A133A171362866E2BDE17D00882A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:A4E6B42D037A133A171362866E2BDE17D00882A3
 magnet:?xt=urn:btih:AEE1F6CFBD4A5C2AD3692D3B0EDC226650F00439
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:AEE1F6CFBD4A5C2AD3692D3B0EDC226650F00439
 ```bash
 magnet:?xt=urn:btih:8746F89439E868F814C7427352A9F78409CF32D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:8746F89439E868F814C7427352A9F78409CF32D3
 magnet:?xt=urn:btih:78ED28889A63BBB144BD36B5F1B0A9316A3238C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:78ED28889A63BBB144BD36B5F1B0A9316A3238C1
 magnet:?xt=urn:btih:16A4703A0AA718FB477D47FB67225B57775EAAAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:16A4703A0AA718FB477D47FB67225B57775EAAAF
 ```bash
 magnet:?xt=urn:btih:346E817AF93444D5A26B34262F6C8B55F445312A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:346E817AF93444D5A26B34262F6C8B55F445312A
 magnet:?xt=urn:btih:AB8E89A03F7E00A284973D827019C87E38E5051E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:AB8E89A03F7E00A284973D827019C87E38E5051E
 magnet:?xt=urn:btih:760D16FFB02DFFD19F0E23E064656B93A0F51C1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:760D16FFB02DFFD19F0E23E064656B93A0F51C1A
 ```bash
 magnet:?xt=urn:btih:E7118D7307D590EBA3C491078C4053C5A7BA5959
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:E7118D7307D590EBA3C491078C4053C5A7BA5959
 magnet:?xt=urn:btih:DD9912E63F5098DDD4633656A86C93B2FF1EC52C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:DD9912E63F5098DDD4633656A86C93B2FF1EC52C
 ```bash
 magnet:?xt=urn:btih:ED80D0C888D129C5F17527939D8BDC53A6DBC9B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:ED80D0C888D129C5F17527939D8BDC53A6DBC9B3
 magnet:?xt=urn:btih:6569E164231BD533AF21C0B82B9B1E8FC3697E23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +365,8 @@ Silent Hill – горячо любимая многими серия игр в 
 magnet:?xt=urn:btih:D29786100A64921EC28DEE91D7F05683ACA1A978
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:D29786100A64921EC28DEE91D7F05683ACA1A978
 ```bash
 magnet:?xt=urn:btih:532ACE7516853DA3605B2FA1CFEB7DDCD84D5852
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:532ACE7516853DA3605B2FA1CFEB7DDCD84D5852
 ```bash
 magnet:?xt=urn:btih:50FD17EB70A85851717D8E75E0A5A45BB254DE67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +446,8 @@ magnet:?xt=urn:btih:50FD17EB70A85851717D8E75E0A5A45BB254DE67
 magnet:?xt=urn:btih:8F7844827EE72DAEFB8516DB5AEF80AEB480579A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:8F7844827EE72DAEFB8516DB5AEF80AEB480579A
 ```bash
 magnet:?xt=urn:btih:BE89777DF7A5B54EB623CE0733E966E27EEC2A4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +499,8 @@ magnet:?xt=urn:btih:BE89777DF7A5B54EB623CE0733E966E27EEC2A4A
 magnet:?xt=urn:btih:822234A2F2B5A32C120062B9F58B97EB69CBBDCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:822234A2F2B5A32C120062B9F58B97EB69CBBDCA
 magnet:?xt=urn:btih:591C4647C68996956AA9852FB64D5C8513C4DD6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:591C4647C68996956AA9852FB64D5C8513C4DD6F
 ```bash
 magnet:?xt=urn:btih:60EF04A7A2DDA5CD5605C54C21EF9D1DF252ACC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +581,8 @@ magnet:?xt=urn:btih:60EF04A7A2DDA5CD5605C54C21EF9D1DF252ACC3
 magnet:?xt=urn:btih:CDD867480D985748D5A891BF01BD9808800277D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:CDD867480D985748D5A891BF01BD9808800277D1
 ```bash
 magnet:?xt=urn:btih:72D156A9A73DB597C9EE495EA1A20AF571360191
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +634,8 @@ magnet:?xt=urn:btih:72D156A9A73DB597C9EE495EA1A20AF571360191
 magnet:?xt=urn:btih:39EFCF7E5CDBAA2651B14414EBE55E7F64BFADA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +659,8 @@ magnet:?xt=urn:btih:39EFCF7E5CDBAA2651B14414EBE55E7F64BFADA8
 ```bash
 magnet:?xt=urn:btih:C7746399C1BAF36BDB1EAA2D90270C5B8E052ACC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,29 +688,7 @@ magnet:?xt=urn:btih:C7746399C1BAF36BDB1EAA2D90270C5B8E052ACC
 magnet:?xt=urn:btih:F29FEA0EE7EAA90F224180BD00D9F1FBCDFE7DE1
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436578   (1043015) от 01.01.2021
-
-Элияху Голдратт и др. | Я так и знал! Розничная торговля и Теория ограничений (2018) [EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043015.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз речь идет о применении Теории Ограничений не на промышленном предприятии, а в розничной компании. Небольшая семейная торговая сеть Hannah’s Shop испытывает значительные сложности в работе. Управляющий одного из магазинов сети Пол Уайт изо всех сил старается добиться его процветания. Решение внезапно возникших проблем его торговой точки приведет к улучшениям (   Читать дальше...   )Жанр: Просто о бизнесе, Организационный менеджментПеревод: Антон ШириковФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:501EA440569CB3CB1759F6511AEC3D93DA4CC81D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

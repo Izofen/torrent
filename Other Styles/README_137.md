@@ -22,6 +22,8 @@ Deuter - Mirage (2019) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:57804793C46FC70E9F3191FED4777BEA8695102B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:2BE510117F92AEF7D27D94588A5DCA2C8B1CA645
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Cliff Martinez - The Knick / Больница Никербокер: Season 1,2 (
 magnet:?xt=urn:btih:D938E6B25DB78FAB73216483A878FDDA058ED348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Darkher - Realms (2016) [MP3|320 Kbps] <Dark Folk, Gothic, Doom>
 ```bash
 magnet:?xt=urn:btih:8890DFF9443730A26B448887A63479635C83B511
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA, Ilan Eshkeri - Collide / Автобан (Original Soundtrack) + (Original Sc
 magnet:?xt=urn:btih:2DAE367E77C4017A3E9D113CABE731C2835AD206
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Chris Conway & Ajahn Achalo - Three Jewels And A Lotus (2017) [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:1D302C3E60E80DED6BA4F24F88A2EDD80976C219
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Chris Conway & Ajahn Achalo - Three Jewels And A Lotus (2017) [MP3|320 Kbps] <Ne
 magnet:?xt=urn:btih:A3C19711572EEDFE794368392E6124DDEFD5964B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Frank Steiner Jr. - 2 альбома (1996-2004) [APE|Lossless|tracks + .cue] <N
 ```bash
 magnet:?xt=urn:btih:D7CC1E06657E2373CFAE353BCB7402D0F69645EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA, Ilan Eshkeri - Collide / Автобан (Original Soundtrack) + (Original Sc
 magnet:?xt=urn:btih:F0BE5CFB191E8CB9EF052F8E0F19E0466DB921BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Henry Jackman - Первый Мститель Противостояние / Cap
 ```bash
 magnet:?xt=urn:btih:5E4F8E3D13120F8533C7823726593BA90E28B149
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Henry Jackman - Первый мститель Противостояние / Cap
 magnet:?xt=urn:btih:2312EABBB59485A65EDEC90C57AB4B258FB3824F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Marty Robbins - Gunfighter Ballads And Trail Songs (1959) Remastered 1999 [FLAC|
 ```bash
 magnet:?xt=urn:btih:430A788DFD86FCCDB9B9BC3E1856D948C8C2BDAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ The Louvin Brothers - Tragic Songs Of Life (1956) [FLAC|Lossless|tracks] <Countr
 magnet:?xt=urn:btih:DEA39C4557D2D9F7241C19E47CB494EF34C4435B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Spirit & Soul, Vol. 1 (Spiritual Yoga & Meditation Moods) (2017) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:35DE897944C4F47715A374F1531762E0308FBF79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Most Comfort Melodies for Spa: Deep Sleep Sounds for Meditation (2017) [MP3
 magnet:?xt=urn:btih:AE281C1E923A75A42A3F7C7809350A58828F72FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ magnet:?xt=urn:btih:AE281C1E923A75A42A3F7C7809350A58828F72FA
 ```bash
 magnet:?xt=urn:btih:C7FB2F94D9E77DAEA78EE7B529BD9ADD455123F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Roland Romanelli (ex. Space) - Meditations Et Reves (Meditations and Dreams) (19
 magnet:?xt=urn:btih:7B5067B5AB794EE198CFF130D2CD4B221D495F5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Buck Owens And His Buckaroos - I've Got A Tiger By The Tail (1965) Reissue 1995 
 ```bash
 magnet:?xt=urn:btih:6485F00740B3967C0DE7042043577E045C6889FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ John Fluker - 11:11 (2016) [MP3|320 кб/с] <New Age, Neoclassical, Solo Piano>
 magnet:?xt=urn:btih:8C9906B8B007DF3B26D9020DBCFE0B411B060C42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Fred Neil является вторым альбомом от Фреда Нил�
 ```bash
 magnet:?xt=urn:btih:A408C20A973602E3A95E32B2761E516ED16BF0AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Bert Jansch - Bert Jansch (1965) Remastered 2001 [FLAC|Lossless|tracks] <Folk, W
 magnet:?xt=urn:btih:E80A3B7328D0D27DA0E1EFC1E853E91F563DC08D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ Douglas Blue Feather - Cosmic Visions (2016) [MP3|320 кб/с] <New Age, Native 
 ```bash
 magnet:?xt=urn:btih:DAC4FF74D853E8972B0DCEF06234FA10B1D82805
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ Ann Sweeten - Where Butterflies Dance (2016) [MP3|320 кб/с] <New Age, Neoclas
 magnet:?xt=urn:btih:9CE3281A6862E271301A1EE7B84CFDD9B2F54588
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ Simon Sigurdson - The Second Coming (2016) [MP3|320 кб/с] <New Age, Contempor
 ```bash
 magnet:?xt=urn:btih:D00B1729E2B87E1451105AF3AC9436A242F6201B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ Green Crow - Пауза (2017) [MP3|320 Kbps] <Pub Folk, Celtic Punk, Folk Rock>
 magnet:?xt=urn:btih:F492547E72796C9456EFF921B06F1F1D6DF02BE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ Alexandre Desplat - The Shape of Water / Форма воды (Original Motion Pi
 ```bash
 magnet:?xt=urn:btih:0BF56C8910A627DE46B52FCC75451AB4C2CE840A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

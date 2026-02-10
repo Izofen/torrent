@@ -21,6 +21,8 @@ Kikaijikake no Marie | Mechanical Marie | Механическая Мари [202
 magnet:?xt=urn:btih:8BB0ADD171C54AEC119F71A3E2BBA298746D5E59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ SolidWorks является ядром интегрированного комп
 magnet:?xt=urn:btih:E2DA9395B3B3890EF1CACD609BA748DE598917F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Ranma 1/2 (2025) | Ранма 1/2 (2024) [ТВ-2] [2025, TV, 1 из 12] WEBRip 7
 ```bash
 magnet:?xt=urn:btih:61BA1FBAA555A63191958D86EC07564A32D5E588
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:61BA1FBAA555A63191958D86EC07564A32D5E588
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Adobe Media Encoder 2025 25.5.0.13 (x64) Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:019B4BDEBDF7E29107817BA9F0D2FF4D6D04784A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Alma-chan wa Kazoku ni Naritai / Alma-chan Wants to Be a Family! / Альма х
 magnet:?xt=urn:btih:4E709450E82892C18EDB1F7C9BEB33FA53AB729B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:4E709450E82892C18EDB1F7C9BEB33FA53AB729B
 magnet:?xt=urn:btih:61C8E95DDF9FA332817F78354DC77E5D72580048
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:61C8E95DDF9FA332817F78354DC77E5D72580048
 ```bash
 magnet:?xt=urn:btih:AD34236EF1D9BDAD4812505FF777394D898FDE5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Sawaranaide Kotesashi-kun / Don't Touch Kotesashi / Не трогай меня, 
 magnet:?xt=urn:btih:093F684FC386CBE00119082B871F31E8C88BE739
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:093F684FC386CBE00119082B871F31E8C88BE739
 ```bash
 magnet:?xt=urn:btih:DDBCEAB6441AB9E30197A69731CE4B5901D7BC62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Chichi wa Eiyuu, Haha wa Seirei, Musume no Watashi wa Tensei-sha. / Мой от�
 ```bash
 magnet:?xt=urn:btih:17A0EB01FAA0727D1E4C65CB782137757BDD190B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:17A0EB01FAA0727D1E4C65CB782137757BDD190B
 magnet:?xt=urn:btih:D8620F816DC10110CCDC037953EA84CD6C4B6EB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:D8620F816DC10110CCDC037953EA84CD6C4B6EB4
 magnet:?xt=urn:btih:C23F8DA66868F2B3FCECD21D8588231AD0056B51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ Mofa Gongzhu de Xiao Fannao | Who Made me a Princess | Однажды я ста�
 ```bash
 magnet:?xt=urn:btih:BAC5AE05178BF649E14B688583FACCE90EB4C798
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ Gutalax - The Shitpendables (2021) [APE|Lossless|image + .cue] <Goregrind>
 magnet:?xt=urn:btih:75427544473877A1242F807D6C422E470BEC368C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ FxSound (ранее DFX Audio Enhancer) - отличное приложение,
 magnet:?xt=urn:btih:1B41EC8BB0874B12DE92D82C720AE248EDC2AD62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ Shinjite Ita Nakama-tachi ni Dungeon Okuchi de Korosarekaketa ga Gift "Mugen Gac
 ```bash
 magnet:?xt=urn:btih:FAE42DA123226F3CF257A88374FEB116C45E183C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ Dirkschneider & The Old Gang - Babylon (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:1C045E1F8989A3B543DF4CF2F95469BE11874DD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ OTT Navigator IPTV v1.7.3.3 Mod by TryRoom [Ru/Multi]
 magnet:?xt=urn:btih:E32926F23A417B37A6A4CB60E661866255AEB695
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ Smart AudioBook Player Pro v11.5.3 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:64B38EA269FB20DB380A34B1B55361C97B8F48ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ Mikata ga Yowa Sugite Hojo Mahou ni Tesshite Ita Kyuutei Mahoushi, Tsuihou Saret
 magnet:?xt=urn:btih:B985753797995565CC3FFE442E8AB902F15D9A3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:B985753797995565CC3FFE442E8AB902F15D9A3D
 ```bash
 magnet:?xt=urn:btih:7AB20A945360EF29990D42BF04D886991D45C4E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +608,8 @@ magnet:?xt=urn:btih:7AB20A945360EF29990D42BF04D886991D45C4E9
 ```bash
 magnet:?xt=urn:btih:D76DFD8516D732CEA97B38FF8B4C80A696AB4DF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ Coheed And Cambria - The Father of Make Believe (2025) New Entities Edition, Vir
 magnet:?xt=urn:btih:D6533136995172D27DF8223722EB88195F7E82F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ BikeComputer Pro - возможно, одно из лучших приложен
 ```bash
 magnet:?xt=urn:btih:EDD899F7DFDD8DA6A3E1F4B71D64A3F0F4761426
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +692,8 @@ Bad Cop Bad Cop - Lighten Up (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock>
 ```bash
 magnet:?xt=urn:btih:768E3AC806684AF34A7DE71FB8B4C80E13308FA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

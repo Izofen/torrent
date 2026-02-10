@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:27D8567B17090FFA4DA39C5DE80B0579D808C207
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.6/dlc) Repack Other s 
 ```bash
 magnet:?xt=urn:btih:4D9D79C91FBFD527684FC31E4BAA99CD2E74CDCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Riftbreaker (2021) [Ru/Multi] (2.0.55174/dlc) License GOG
 magnet:?xt=urn:btih:B932123AD0AD167622A61F6653D3D40984F38B8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Apple Service Diagnostics (2005-2013) [En]
 ```bash
 magnet:?xt=urn:btih:C45C18F110AA638709418471BF5979337F41DD3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:C45C18F110AA638709418471BF5979337F41DD3C
 magnet:?xt=urn:btih:BDE5957A73958ACAEA59002FA9416BDBF3D43477
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Alaloth: Champions of The Four Kingdoms (2022) [Ru/Multi] (2025.07.14.17f5b0a/dl
 magnet:?xt=urn:btih:AF60B24A4B3DDA1D1ED78D78B3CB42FC22BDD9DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ magnet:?xt=urn:btih:AF60B24A4B3DDA1D1ED78D78B3CB42FC22BDD9DD
 ```bash
 magnet:?xt=urn:btih:14143377009146092ED75CE165F54CCBA75EA34D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:14143377009146092ED75CE165F54CCBA75EA34D
 magnet:?xt=urn:btih:EF193F8F5AAEE936AD53CB543229C36FD93329A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Palworld это приключенческая игра, где вы иссле�
 ```bash
 magnet:?xt=urn:btih:4C8656578274999AE4976DBD0FBEF22654963368
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:4C8656578274999AE4976DBD0FBEF22654963368
 magnet:?xt=urn:btih:2C8B808CC43669A682546382418BA668F77AAFFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Palworld предлагает находить и использовать пр�
 ```bash
 magnet:?xt=urn:btih:161D2CC93F700A83593B223DC36701E8073302A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:161D2CC93F700A83593B223DC36701E8073302A4
 magnet:?xt=urn:btih:05711684B5A96862F6E074A4592C2D57722DAA54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Dying Light: The Beast (2025) [Ru/En] (1.2.2/dlc) Repack Other s [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:EFF80CB43A2033336566103CBF8D1E795986D48B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ The Alters (2025) [Ru/Multi] (550832/dlc) License GOG [Deluxe Edition]
 magnet:?xt=urn:btih:3EE5BF83E8E39C2D00E423546EE0E6856624FB89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:3EE5BF83E8E39C2D00E423546EE0E6856624FB89
 ```bash
 magnet:?xt=urn:btih:7912C60CABE58908382BCB8F85C7C253A6465164
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:7912C60CABE58908382BCB8F85C7C253A6465164
 magnet:?xt=urn:btih:4BA1A8CC1BBC497DA4FB41D4A4F9A1597E377C11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ New Arc Line (2024) [Ru/Multi] (0.250725) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:C4E82D8AA0B7EA883FCC6C8BA77A976485591ADA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:C4E82D8AA0B7EA883FCC6C8BA77A976485591ADA
 magnet:?xt=urn:btih:7F1952D21478CACD252314D8244FE86F8C5EAAFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Warhammer 40,000: Dawn of War (2025) [Ru/Multi] (2.2.1.1) License GOG [Definitiv
 ```bash
 magnet:?xt=urn:btih:5277E19767B6F9774EA37A860C681EB575569DC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:5277E19767B6F9774EA37A860C681EB575569DC8
 magnet:?xt=urn:btih:F6A433A80F514EB463435987F623B130D96F83D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:F6A433A80F514EB463435987F623B130D96F83D8
 ```bash
 magnet:?xt=urn:btih:000FC2E1FA3FDCDA71E40127B8AE96C52643A6C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ MotoGP. Этап 17 из 22. Гран-при Японии. Гонка (28.09.202
 magnet:?xt=urn:btih:C1CD83D24E53031904C07C75CCD8E8D09C3FBE4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ magnet:?xt=urn:btih:C1CD83D24E53031904C07C75CCD8E8D09C3FBE4D
 ```bash
 magnet:?xt=urn:btih:BFA23E81018E85084634F8216A61AEF3DA0278A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ magnet:?xt=urn:btih:BFA23E81018E85084634F8216A61AEF3DA0278A8
 ```bash
 magnet:?xt=urn:btih:BD4B7C1EC8F3BB8CE786DAB0B04E0A30AE27CB05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Fish Hook Smile - Fish Hook Smile (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ha
 magnet:?xt=urn:btih:10E5EC7BB4B098E1A9E936CD55BC33A1E197D639
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Bill Barber & The Holding Cell - Southern Redemption (2025) [FLAC 24/96|Lossless
 ```bash
 magnet:?xt=urn:btih:89884F5C3D0CC22EB6BC611DE3DF804E2128EAA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

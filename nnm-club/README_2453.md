@@ -21,6 +21,8 @@ A-HA - Crying In The Rain (CDM) (1990) 1st German Press [APE|Lossless|image + .c
 magnet:?xt=urn:btih:81AC1C039D0407157A522202846AC1C8C9CD4CA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:81AC1C039D0407157A522202846AC1C8C9CD4CA7
 ```bash
 magnet:?xt=urn:btih:5D14825F306E809107215929BA71DF7050A98654
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:5D14825F306E809107215929BA71DF7050A98654
 ```bash
 magnet:?xt=urn:btih:DC35C89399E1420A536E230121E24D3E6AB2F489
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:DC35C89399E1420A536E230121E24D3E6AB2F489
 magnet:?xt=urn:btih:7AA5506890053FBDAE7B9C0CF53406BCB4270810
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:7AA5506890053FBDAE7B9C0CF53406BCB4270810
 magnet:?xt=urn:btih:A2ED7328B24D8676EFF0206CF199F733597E0FC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:A2ED7328B24D8676EFF0206CF199F733597E0FC0
 ```bash
 magnet:?xt=urn:btih:111984639CF77C19E42F07C50DF4801CD30439FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:111984639CF77C19E42F07C50DF4801CD30439FC
 magnet:?xt=urn:btih:ED8BA3D85574A4EA0B9DEE45E7E43D467BEEBE10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:28F882A9B4DFEEB18C37563E8C51F7FE31A1C9DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:28F882A9B4DFEEB18C37563E8C51F7FE31A1C9DE
 magnet:?xt=urn:btih:8BC0666A4A1EB2C7D44DF7D84293BB0E74F12352
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:8BC0666A4A1EB2C7D44DF7D84293BB0E74F12352
 ```bash
 magnet:?xt=urn:btih:CAD33AFA12CB54C903542C089EEDA49A04995E8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:CAD33AFA12CB54C903542C089EEDA49A04995E8C
 magnet:?xt=urn:btih:1EB3A8FED9EBEA5088B3CCCB82401B8C61589C17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:1EB3A8FED9EBEA5088B3CCCB82401B8C61589C17
 ```bash
 magnet:?xt=urn:btih:2CC353AA864A05E0BD96EB7B4A8D48D6AB43F23A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:2CC353AA864A05E0BD96EB7B4A8D48D6AB43F23A
 magnet:?xt=urn:btih:A491DAAF96DB5B93A192AD18B9F2D1C33E7DEA0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:A491DAAF96DB5B93A192AD18B9F2D1C33E7DEA0F
 ```bash
 magnet:?xt=urn:btih:396BA06742E1586C660650F6B424F9D68FF13580
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:396BA06742E1586C660650F6B424F9D68FF13580
 ```bash
 magnet:?xt=urn:btih:160F10FCF3793B2EBDE065F8BDBFFDEAB98C917B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ Erasure - ABBA-Esque (CDM) (1992) 1st UK Press [APE|Lossless|image + .cue] <Synt
 magnet:?xt=urn:btih:0F45754BD079CF1055BD010B8E091CB5D73D2663
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ La Vania - Singles Collection 5CDs (2000-2004) 1st Italian Press [APE|Lossless|i
 magnet:?xt=urn:btih:166D487639314327D76D225319CB8FAFF97253A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:166D487639314327D76D225319CB8FAFF97253A3
 magnet:?xt=urn:btih:C5D4B0648F95390277C37095281729BDC3732739
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:C5D4B0648F95390277C37095281729BDC3732739
 magnet:?xt=urn:btih:4E690FA32C974DC17CE6E3F9E1A80D087C72539A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:4E690FA32C974DC17CE6E3F9E1A80D087C72539A
 ```bash
 magnet:?xt=urn:btih:1FFFDE09760471F1651D1D6DCB90FDA554F31C52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ Roxette - It Must Have Been Love (CDM) (1990) 1st German Press [APE|Lossless|ima
 magnet:?xt=urn:btih:10B62484503E0A32D9B8F2BD5462D46C74950A7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ iDownerGo – это приложение для загрузки мультим
 ```bash
 magnet:?xt=urn:btih:F6C3E8A11C72D755F766DBC8F138550C5C16D316
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:F6C3E8A11C72D755F766DBC8F138550C5C16D316
 ```bash
 magnet:?xt=urn:btih:CB2084C7FCC04D0D0434CE37E967A6A17E49FC95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:CB2084C7FCC04D0D0434CE37E967A6A17E49FC95
 magnet:?xt=urn:btih:5E55CC58795ACB39AA184306594906951F05FBC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ Genius Art: Image AI Generator v1.4.3 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:2A8D0542F4A09B8CB7335C2A6A16EE86E76EE736
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:2A8D0542F4A09B8CB7335C2A6A16EE86E76EE736
 ```bash
 magnet:?xt=urn:btih:97F69EF0D851C5FFD0D554B738952B169D1CA649
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

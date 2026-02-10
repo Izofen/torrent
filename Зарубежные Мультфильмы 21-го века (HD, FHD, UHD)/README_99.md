@@ -1,27 +1,3 @@
-###  Публикация: 1527667   (736337) от 29.01.2022
-
-Стражи терракоты / Realm of Terracotta (2021) WEBRip [H.264/1080p] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стражи волшебной Терракоты и магические существа Ониксы на протяжении многих столетий ведут войны друг с другом в подземном царстве. Молодой человек Магнус мечтает стать терракотовым воином, а для этого ему необходимо поймать одного из Ониксов. Магнус отправляется на поиски таинственного создания и встречает молодую девушку Джейд, которая также ищет Оникса. Герои (   Читать дальше...   )Производство: Китай / Fantawild AnimationЖанр: мультфильм, фэнтези, боевикРежиссер: Дин Лян, Линь ЮнчанПеревод: Профессиональный, многоголосый (Jaskier)Язык озвучки: русский, китайскийСубтитры: китайские (hardsub)Продолжительность: 01:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03178E6459F2C526C938A3B94408FB67771844B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527099   (736358) от 29.01.2022
 
 Монстрические питомцы / Monster Pets: A Hotel Transylvania (2021) WEBRip [H.264/1080p]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:03178E6459F2C526C938A3B94408FB67771844B5
 ```bash
 magnet:?xt=urn:btih:EED577F25541805B0F2178CE16A2DDD8382A7192
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:EED577F25541805B0F2178CE16A2DDD8382A7192
 magnet:?xt=urn:btih:212BAD6FFDC9850F500D5084BE5346913037E827
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:212BAD6FFDC9850F500D5084BE5346913037E827
 ```bash
 magnet:?xt=urn:btih:29E1785EEBCF62A7DBFBE78D6006E3D5821C9712
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:29E1785EEBCF62A7DBFBE78D6006E3D5821C9712
 magnet:?xt=urn:btih:309AC15C1E698AFAB2A4488310F841FB34DFC598
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:309AC15C1E698AFAB2A4488310F841FB34DFC598
 ```bash
 magnet:?xt=urn:btih:B43BDA090AD6B080F64693FFEA8EB3110D1628CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:B43BDA090AD6B080F64693FFEA8EB3110D1628CC
 magnet:?xt=urn:btih:4D8E03F9369BC2F6200989B361477769F2353512
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:4D8E03F9369BC2F6200989B361477769F2353512
 ```bash
 magnet:?xt=urn:btih:47782ABAEF52B14412123BD560FA090216E2DC41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:47782ABAEF52B14412123BD560FA090216E2DC41
 magnet:?xt=urn:btih:6A59EBE8BFE1DF4E5AAA3C7B64CB3D0C71808C39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:6A59EBE8BFE1DF4E5AAA3C7B64CB3D0C71808C39
 ```bash
 magnet:?xt=urn:btih:80E52D49D2AA2288A71544CF5682AFC7CC1B88C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:80E52D49D2AA2288A71544CF5682AFC7CC1B88C8
 magnet:?xt=urn:btih:8D0D2D3EA3ED384FC90E4876724BD4FB3FB9B611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ magnet:?xt=urn:btih:8D0D2D3EA3ED384FC90E4876724BD4FB3FB9B611
 ```bash
 magnet:?xt=urn:btih:4CDBDE2A935A008DD0D35C5F9356F8F83F5DC544
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:4CDBDE2A935A008DD0D35C5F9356F8F83F5DC544
 magnet:?xt=urn:btih:A7C85CE4ED4ECC346004B47D415020C45BADC549
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ magnet:?xt=urn:btih:A7C85CE4ED4ECC346004B47D415020C45BADC549
 ```bash
 magnet:?xt=urn:btih:4C65F8FC488CA35E821D2688E1B9936C49F7093E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:4C65F8FC488CA35E821D2688E1B9936C49F7093E
 magnet:?xt=urn:btih:2EB07F054A584442AC6640A6F9B0A30085FCC4FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ magnet:?xt=urn:btih:2EB07F054A584442AC6640A6F9B0A30085FCC4FA
 ```bash
 magnet:?xt=urn:btih:BAB6E2F14A1A64A88CDC156F178981C4B6E56C82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ magnet:?xt=urn:btih:BAB6E2F14A1A64A88CDC156F178981C4B6E56C82
 magnet:?xt=urn:btih:74875FDAF1963F7061D646D04B47A4A2993D2D16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +435,8 @@ magnet:?xt=urn:btih:74875FDAF1963F7061D646D04B47A4A2993D2D16
 magnet:?xt=urn:btih:FF830947581DBF9682B8B968120C36F307D0218F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +460,8 @@ magnet:?xt=urn:btih:FF830947581DBF9682B8B968120C36F307D0218F
 ```bash
 magnet:?xt=urn:btih:827F72D55D31AE1B4A6C9E76C4BC4F331D937727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +490,8 @@ magnet:?xt=urn:btih:827F72D55D31AE1B4A6C9E76C4BC4F331D937727
 magnet:?xt=urn:btih:52F3489EB574C25784D911CF1F39D9A711224F71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +515,8 @@ magnet:?xt=urn:btih:52F3489EB574C25784D911CF1F39D9A711224F71
 ```bash
 magnet:?xt=urn:btih:D426A665EBD0A3CDCA90E3F15F7BA371634D4448
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +542,8 @@ magnet:?xt=urn:btih:D426A665EBD0A3CDCA90E3F15F7BA371634D4448
 magnet:?xt=urn:btih:186A163E2EE6A009D8C73C23951529068D1875F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +567,8 @@ magnet:?xt=urn:btih:186A163E2EE6A009D8C73C23951529068D1875F9
 ```bash
 magnet:?xt=urn:btih:24870CC183B7AE821092439F43F41BCCFF9D41E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +596,8 @@ magnet:?xt=urn:btih:24870CC183B7AE821092439F43F41BCCFF9D41E3
 magnet:?xt=urn:btih:E2DF0E4F3E1BDF2DD338F67489A25D9F814924DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +624,8 @@ magnet:?xt=urn:btih:E2DF0E4F3E1BDF2DD338F67489A25D9F814924DB
 magnet:?xt=urn:btih:F4531504E483125CC69FC162F18A87EB7C582285
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +649,34 @@ magnet:?xt=urn:btih:F4531504E483125CC69FC162F18A87EB7C582285
 ```bash
 magnet:?xt=urn:btih:6A46CBCF56C485AF73D42CB070952DA67AC2AAC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 890296   (744371) от 20.04.2015
+
+Книга жизни / The Book of Life (2014) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744371.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мультфильме описывается романтическая история любви на фоне празднования Дня мертвых в Мексике.Производство: США, Twentieth Century FoxЖанр: Фэнтези, Мелодрама, Комедия, Приключения, СемейныйРежиссер: Хорхе Р. ГутьерресАктеры: Диего Луна, Зои Салдана, Ченнинг Татум, Рон Перлман, Кристина Эпплгейт, Айс Кьюб, Кейт дель Кастильо, Гектор Элизондо, Дэнни Трехо, Карлос АласракиПеревод: Дублированный (Лицензия Blu-ray EUR)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, украинский, английскийПродолжительность: 01:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECF55EF475D2053BA7BB1F82969EC39C4E04F45D
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

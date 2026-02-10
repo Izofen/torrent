@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D63422CAA57FD3F18E826A2363D04668DF6B43EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Arknights: Reimei Zensou | Arknights: Prelude to Dawn | Аркнайтс: Пре
 ```bash
 magnet:?xt=urn:btih:35F9E4B85853E9C48BD0ADF80A62F7444E099CBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:35F9E4B85853E9C48BD0ADF80A62F7444E099CBD
 magnet:?xt=urn:btih:A04D55D87A6ECA6E4ABAD370D184E990EDB2B851
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:A04D55D87A6ECA6E4ABAD370D184E990EDB2B851
 ```bash
 magnet:?xt=urn:btih:4915879960BA200918A567AA7169FFDA47E9553F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:4915879960BA200918A567AA7169FFDA47E9553F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:4915879960BA200918A567AA7169FFDA47E9553F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:4915879960BA200918A567AA7169FFDA47E9553F
 magnet:?xt=urn:btih:A97DECB1263CD4B9474CF3D6F74DD07A65F63689
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ IntelliJ IDEA – это ведущая среда быстрой разрабо
 ```bash
 magnet:?xt=urn:btih:766A7033CD37B9D08EE93E58516C3E200EAE3E19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Mahou Tsukai no Yome Season 2 | The Ancient Magus Bride Season 2 | Невест�
 magnet:?xt=urn:btih:B61FDABEE510C2587974B692125B33633529A6E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:B61FDABEE510C2587974B692125B33633529A6E9
 magnet:?xt=urn:btih:0ADC59342674AC413CDA2884C2B2900581C28634
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:0ADC59342674AC413CDA2884C2B2900581C28634
 ```bash
 magnet:?xt=urn:btih:8BA036CCEEF70A520B2660656DD0F3BD961BB9CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:8BA036CCEEF70A520B2660656DD0F3BD961BB9CC
 magnet:?xt=urn:btih:25DD889C2A94C6219AE472C9FB1AF27D1C4C5DA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:25DD889C2A94C6219AE472C9FB1AF27D1C4C5DA1
 ```bash
 magnet:?xt=urn:btih:F31CB79BC687D9DC15C552199801512607E7710A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:F31CB79BC687D9DC15C552199801512607E7710A
 magnet:?xt=urn:btih:31A4307BFEE93A10CC8C18DED1854C153CC58370
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:31A4307BFEE93A10CC8C18DED1854C153CC58370
 ```bash
 magnet:?xt=urn:btih:D4C084DC0AFF6C37C932056676EB3C4FA66E06A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ UFO Robot Grendaizer / Грендайзер [1975, TV, 1-74 из 74] 19xDVD5
 magnet:?xt=urn:btih:A815F0C9CD285B9E8AFE0595DFE392D0CD0DD1B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:A815F0C9CD285B9E8AFE0595DFE392D0CD0DD1B4
 ```bash
 magnet:?xt=urn:btih:A59DF38D128106E35B27EC15F9E73CD67A4AAFB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Another Chance — игра для взрослых о выборе и иску�
 magnet:?xt=urn:btih:86F09365277A654F73F999490D07F05D2682A3DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:86F09365277A654F73F999490D07F05D2682A3DC
 ```bash
 magnet:?xt=urn:btih:555A9508822941953B2BB9FB8EF6D3FE331DC93C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:555A9508822941953B2BB9FB8EF6D3FE331DC93C
 magnet:?xt=urn:btih:F6DE15338302D682709605FD69DCB64D04EAF458
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ S-Rank Musume | Boukensha ni Naritai to Miyako ni Deteitta Musume ga S Rank ni N
 ```bash
 magnet:?xt=urn:btih:2FEFEAA82406CB9F7078FE8EC155CEBD0A457DFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ MF Ghost | MF Призрак [2023, TV, 12 из 12 эп.] WEBRip 720p raw
 magnet:?xt=urn:btih:78B670577930AEB39CBD9D9BC268EF2DB4B1EB55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:78B670577930AEB39CBD9D9BC268EF2DB4B1EB55
 ```bash
 magnet:?xt=urn:btih:BFB74DD25DCF9E093FC04F8521D1076E8CB052C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:BFB74DD25DCF9E093FC04F8521D1076E8CB052C7
 magnet:?xt=urn:btih:83890E2C1DA17A7BC98B8785B928639B7D390CEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Aллeн — мaг-oтшeльник, избeгaющий oбщecтвa людeй �
 magnet:?xt=urn:btih:E8FDFE82430D9837598CA1682D0005DE8121B6C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:E8FDFE82430D9837598CA1682D0005DE8121B6C6
 ```bash
 magnet:?xt=urn:btih:87BAFB4FAAF83F9D101948A377225F5928E6BBED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

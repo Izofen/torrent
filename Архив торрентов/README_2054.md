@@ -22,6 +22,8 @@ Backgrounds 7.3 [En]
 magnet:?xt=urn:btih:F8FB3CB4CF1D3D0F0719BC2C2499C65A79C9366B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:F8FB3CB4CF1D3D0F0719BC2C2499C65A79C9366B
 ```bash
 magnet:?xt=urn:btih:0A864383B0F7E8ED55A0A3F3BBA21572453FE757
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Big Piph (bigpiph) - I Am Not Them: The Legacy Project (2016) [FLAC|Lossless|Web
 magnet:?xt=urn:btih:DEE9148DC869FB7E133190EF9F9479AEBD7E61C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Folx Pro 5.1.13642 [Multi/Ru]
 magnet:?xt=urn:btih:B10B789E56BAD4BD9935B62339112ACA1EF3924C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Elements for iWork — это премиум набор изображений �
 ```bash
 magnet:?xt=urn:btih:3E091A4ECF0CC1B5049B5D536344DD7B91E0D707
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ Mac App Blocker - с помощью этой программы пользова
 magnet:?xt=urn:btih:43891D8FE401A136F5AF01603F85CDB5EF998582
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:43891D8FE401A136F5AF01603F85CDB5EF998582
 ```bash
 magnet:?xt=urn:btih:23D9B537C9F0D799E7538422C8CC21A3650F03E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:23D9B537C9F0D799E7538422C8CC21A3650F03E5
 magnet:?xt=urn:btih:CD221A33CDF1FC422EB69E18ED73DF2E59AD7F37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:CD221A33CDF1FC422EB69E18ED73DF2E59AD7F37
 ```bash
 magnet:?xt=urn:btih:B02DA5D1CACDB86E4CC9612AD66126DA41BD5CC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ Aiseesoft Screen Recorder - это программа, с помощью кот�
 magnet:?xt=urn:btih:BB29858189AA59F73DE23A5DD81C465C2365A134
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ Numi - необычный калькулятор, который "общаетс
 ```bash
 magnet:?xt=urn:btih:9D3D468DD1EDF5BA3EA1F28679795098BA43A5FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ Carbon Copy Cloner - утилита для клонирования дисков
 magnet:?xt=urn:btih:9316DD9220CC9CB9BEFB790345B1F929D44237A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ Screenshot Editor (Редактор скриншотов) поможет вам 
 ```bash
 magnet:?xt=urn:btih:38EA4DFF941F72544877422D30F8792F775F3352
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ Path Finder - один из лучших файловых менеджеров, 
 magnet:?xt=urn:btih:B125B478B5DC14AEAAF3CF85FD867316B2163A34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ GraphicConverter 11 — полнофункциональный графичес�
 magnet:?xt=urn:btih:AAC31F3F23A9E84A37A901A509ECB8DC951A80F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ YouTube By Click - отличный и удобный в использован�
 ```bash
 magnet:?xt=urn:btih:3059DB0CE18C5501387250FC8B2163C9A78C04A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ BusyCal - программа на Mac OS X, которая поможет вам
 magnet:?xt=urn:btih:0F136ED9422D02E8F830DB2445724E05DB1ED6AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ RSS Menu 2.7.3 [En]
 magnet:?xt=urn:btih:45283D683F0825483C3B29612F824BE68E80083E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ Screenpresso - это лёгкая программа, делающая вели
 ```bash
 magnet:?xt=urn:btih:6C5DD5DAA13E9D107B30121C23047060A8527542
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ Script Debugger предлагает пользователям всё, что �
 magnet:?xt=urn:btih:36AC90EDA6DF106BAEABA78CD5F6584FA0F85BCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ BusyContacts приносит в управление контактами те 
 ```bash
 magnet:?xt=urn:btih:38765E5C6F81189A99EC5453016EFADBB496114F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ goPanel - наиболее интуитивное приложение для у
 magnet:?xt=urn:btih:38DBADE2821063E6BB04CA6F763B7995B5957F4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ Amadeus Pro - многотрековый музыкальный редактор
 ```bash
 magnet:?xt=urn:btih:8848A5D187878025824C090598CF1CFF9AAC2F94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ ExactScan – современное решение для сканирован�
 magnet:?xt=urn:btih:16155ED448B78075AD89DF9584AFC9A858644727
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:16155ED448B78075AD89DF9584AFC9A858644727
 magnet:?xt=urn:btih:9410CCDD5D1F1D7448B072AC857567CBC6F357D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:9410CCDD5D1F1D7448B072AC857567CBC6F357D6
 ```bash
 magnet:?xt=urn:btih:C07F08AF489CFB0780DEA6979884AF8C51B0B3BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

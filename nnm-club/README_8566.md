@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Metal Gear Solid - The Twin Snakes (RePack/Emul) [En] 2004 (2012) | MarkusEVO
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Left 4 Dead 2 (RePack/2.1.0.3) [Ru/En] 2009 | R.G. BoxPack
 magnet:?xt=urn:btih:24AE660421D68F577878A95660ADA0B09058092E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:24AE660421D68F577878A95660ADA0B09058092E
 ```bash
 magnet:?xt=urn:btih:6484BE054231D941B4BBB8867002EE735A0DDF4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:6484BE054231D941B4BBB8867002EE735A0DDF4B
 magnet:?xt=urn:btih:392EB8C45C7BACFB0AA4E34D309250CA90244E19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:392EB8C45C7BACFB0AA4E34D309250CA90244E19
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:392EB8C45C7BACFB0AA4E34D309250CA90244E19
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:392EB8C45C7BACFB0AA4E34D309250CA90244E19
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ Torchlight 2/II [En] (RePack/Beta/0.22.82) 2012 | Ali213
 magnet:?xt=urn:btih:4EC7CC1BA2EA6F448AC0A5649E45F8AF868BA40C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:4EC7CC1BA2EA6F448AC0A5649E45F8AF868BA40C
 magnet:?xt=urn:btih:F05CBE63F31916C0ECF3D13AFCB2512F52768199
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:F05CBE63F31916C0ECF3D13AFCB2512F52768199
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:F05CBE63F31916C0ECF3D13AFCB2512F52768199
 magnet:?xt=urn:btih:891AD6918EE661EC57EBF0F094F7EBD224063F48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:891AD6918EE661EC57EBF0F094F7EBD224063F48
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:891AD6918EE661EC57EBF0F094F7EBD224063F48
 magnet:?xt=urn:btih:656FEE5975C98F7A869742FEED9866253965C539
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:656FEE5975C98F7A869742FEED9866253965C539
 ```bash
 magnet:?xt=urn:btih:C0576C5FAA3B1D0DDA13FF58BE2BD3FE7FA4E5F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:C0576C5FAA3B1D0DDA13FF58BE2BD3FE7FA4E5F7
 magnet:?xt=urn:btih:A9AD9AF1DFB71E704D73D905D9309479E5B386D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:A9AD9AF1DFB71E704D73D905D9309479E5B386D9
 ```bash
 magnet:?xt=urn:btih:948E53762322D962CC2CF1A8459572CAFA8CA8ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ BrainBokka - Vortex Implosion (2012) [MP3|~245 кб/с (V0)]<Psychedelic / Full 
 magnet:?xt=urn:btih:A2212C8693DD7F07D43C06C817191D609E4B4984
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ EL-Jay - TranceStoned 032 (24.05.2012) [MP3|256 кб/с]<Trance>
 magnet:?xt=urn:btih:A2852C46969114597FFFF39B583F79B1B036DC37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:A2852C46969114597FFFF39B583F79B1B036DC37
 ```bash
 magnet:?xt=urn:btih:4E711C4FE0AB6AD173D6791769F1C83B34E894E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +594,8 @@ magnet:?xt=urn:btih:4E711C4FE0AB6AD173D6791769F1C83B34E894E5
 magnet:?xt=urn:btih:1B5093D153CB840213CA550F74ED452D806C453E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ Conde Nast Traveller - журнал в котором можно почерпн�
 ```bash
 magnet:?xt=urn:btih:A797DBB921616ED92190FC4F8D4DC899EAF4813B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +655,8 @@ VA - Football Rocks (Rock Meets Soccer) (2012) [MP3|320 кб/с]<Melodic Hard Ro
 magnet:?xt=urn:btih:B472E49E54A71A415972FFFE48674041F8AB8A33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ magnet:?xt=urn:btih:B472E49E54A71A415972FFFE48674041F8AB8A33
 ```bash
 magnet:?xt=urn:btih:C0B016EB1F46CE9EBF8AB367345819B0DCF90230
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -665,6 +715,8 @@ VA - Vocal Passion Vol.28 (2012)
 ```bash
 magnet:?xt=urn:btih:DCB44F8F47CBAAA0764A1AA7C3FEB23166B1F455
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

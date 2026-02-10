@@ -19,6 +19,8 @@ Reflections of Life 12: The Shattered Timeline (2024) [En] (1.0) Unofficial [Col
 magnet:?xt=urn:btih:69FFC2891FC3C86F11257A19D8852F9F80CDBA7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Lunacid относится к жанру Dungeon Crawler. В инди-проек
 ```bash
 magnet:?xt=urn:btih:9A7FB6BD56F58468E7585A7F82E6E70114327B7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Death Stranding (2022) [Ru/Multi] (1.004/dlc) Repack dixen18 [Director's Cut]
 magnet:?xt=urn:btih:3F060E1E7B0884BF7D8B1AA60258294BDBE8019F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ One Military Camp (2023) [Ru/Multi] (1.1.0.26/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:70EDC5F16A79206E322CA74E7E5D236FB98505EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Hidden Object Chronicles: Poisoned Truth (2024) [En] (1.0) Unofficial [Collector
 magnet:?xt=urn:btih:9FD4B562F908F4F2E131A8A27983C14048363E29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Cub (2024) [Ru] (19.01.2024) Unofficial Team RIG [Русификатор]
 ```bash
 magnet:?xt=urn:btih:29E75903EBB877A953D6F96DA5EC55C1E32988C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Cris Tales - прекрасная инди-игра, сделанная с бо�
 magnet:?xt=urn:btih:5092A9A676B3B3C0321BA13FEC2223D802DEBDE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Cub — захватывающий платформер о паркуре, �
 ```bash
 magnet:?xt=urn:btih:4BAB9907533F01CEC6277DFD49E89E7F4CCBE413
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ I'm counting to 6... (2024) [Ru/En] (1.0) Repack Other s
 magnet:?xt=urn:btih:F7A1D428AD3A26DEC8129A79E62D60D344C6896A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Suicide of Rachel Foster (2020) [Ru/Multi] (1.0.9v) License GOG
 ```bash
 magnet:?xt=urn:btih:4D87D002FF66E0204E15896EBFC59A23076D0CDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Ms. Holmes 5: The Milverton Plot / Мисс Холмс 5: Заговор Мил�
 magnet:?xt=urn:btih:515E0A98D93C9DF62E44A3852553E8900AFA6E55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Mahoutsukai no Yoru / Witch on the Holy Night / Ведьма святой ноч
 ```bash
 magnet:?xt=urn:btih:14EA086FFB3EAFC4466625452EEE1F95C34A87E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Star Explorers рассчитана на любителей космоса и п
 magnet:?xt=urn:btih:844A1AA039CD4A94C57F76104187BB232C4E651A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Boyfriend Dungeon - динамичный рогалик с элементами 
 ```bash
 magnet:?xt=urn:btih:C2527DC84C58077466DAB852B6840631F5B2A8E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ GINSHA - это уникальный атмосферный приключенч
 magnet:?xt=urn:btih:6DF8109EF6960987DBDCE20FCE9528F93190E60A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Children of Silentown – приключенческая инди-игра, с �
 ```bash
 magnet:?xt=urn:btih:1A3C3227024E23F55A4D4D5ECFFBE41775B92228
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Last Faith рассказывает о герое, который решил
 magnet:?xt=urn:btih:D9B158B764E50C83783FD832F1EB7D0383ECAB2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Cub (2024) [Multi] (1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:ECB426D7BAECB80DAB028CFD77B081E3C01C2ED8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Noxia Somnia (2024) [En] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:BF8598FF84D7BFF4E0EE884EA1446D78EE54220C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Lil' Guardsman - это восхитительная и увлекательна
 ```bash
 magnet:?xt=urn:btih:E483C0B7FCCE07FF6BBF974696E5DDB46BAAD871
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Bomb Rush Cyberfunk (2023) [Ru/Multi] (1.0.20385) License GOG
 magnet:?xt=urn:btih:441EED8154CB032C0F75EFBECEACB50B5F4B3D9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Inspector Gadget - Mad Time Party / Инспектор Гаджет – Безу
 ```bash
 magnet:?xt=urn:btih:52E70ACB81B57D09511B2BE83BFADA0C0F0A1FAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Train to Nowhere (2024) [Ru/En] (Build 11054454) Repack Other s
 magnet:?xt=urn:btih:2ECD7C969C270022D063C771DE6D54F0C8DB87B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ A Night at the Watermill – внезапно посреди ночи вы пр�
 ```bash
 magnet:?xt=urn:btih:0D57648FF89086C97909DACC6CBD2274713A9734
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Gloomhaven – тактическая пошаговая РПГ с элемен�
 magnet:?xt=urn:btih:CCE7BFB9B61586AF0B8804EAEEF260CA253EBD77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Death of Marionette (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:C7AB006F4C170792CB92DAB503323727B1F2C34E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

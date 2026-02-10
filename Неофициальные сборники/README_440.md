@@ -1,3 +1,32 @@
+###  Публикация: 1220115   (705884) от 18.04.2018
+
+Sandra - Collection от ALEXnROCK (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705884.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли лучшие треки певицы. Весь материал взят с оригинальных CD альбомов, в некоторых на слух наверное есть ремастеринг, хотя и написано что оригиналные CD. Да пребудет с нами качественная музыка! Все лучшее для вас. ALEXnROCK01 Maria Magdalena
+02 The Skin I'm In
+03 We'll Be Together
+04 Forever(   Читать дальше...   )Жанр: PopПродолжительность: 03:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E66C220BF5885ED49BB01A13B7EFE02CAA684F5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220212   (705894) от 18.04.2018
 
 VA - Удачной дороги. Любимые хиты шансона (7) (2018) [MP3|256 Kbps] <Шансон>
@@ -20,6 +49,8 @@ VA - Удачной дороги. Любимые хиты шансона (7) (20
 ```bash
 magnet:?xt=urn:btih:0D30BF0697053685C16DEC86BE641E3F0A56A753
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +79,8 @@ VA - Need For Speed Vol.13 (2018) [MP3|320 Kbps] <Dance, Hands Up>
 magnet:?xt=urn:btih:D0E527E3501EBBCF7AAEC54C84D675E543C2F8B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +107,8 @@ VA - Vocal Trance Collection Vol.11 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:C4DE135E5136EDA1DBCB2CE22B002EE649829B4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +137,8 @@ VA - Summer Time: Fresh Dance Mixtape (2016) [MP3|320 кб/с] <Club, Dance, Ele
 magnet:?xt=urn:btih:0FAE481E15D6641BBE450604EEB49069550CF842
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +165,8 @@ VA - Trip to Ibiza 2014 - House Set For V.I.P (2016) [MP3|256-320 кб/с] <Tech
 ```bash
 magnet:?xt=urn:btih:2251AC19B49988F0BA82BE3CD5F51430C9EB94DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +195,8 @@ VA - Deep House Session (Vol. 2) (2018) [MP3|320 Kbps] <Deep House, Electronic>
 magnet:?xt=urn:btih:C98FD613FEDBFA613211EF163EF845EF002719AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +223,8 @@ VA - Deep House Collection vol.166 (2018) [MP3|320 Kbps] <Deep House, Club House
 ```bash
 magnet:?xt=urn:btih:60CF92D97BCDEF33D250AEB71EA84C9086163EB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +253,8 @@ VA - Happy Easter Dance 2 (2018) [MP3|320 Kbps] <Dance, Hands Up, Dancecore>
 magnet:?xt=urn:btih:83153348C3A5FBF9B615C1C4359586A4B6F69BCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - We Love Eurodance (2018) [MP3|320 Kbps] <Eurodance>
 magnet:?xt=urn:btih:890B490BF710E02FCCAB1302990EB361B0F5C885
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +310,8 @@ VA - Deep Session (2018) [MP3|320 Kbps] <Deep House, Nu Disco>
 ```bash
 magnet:?xt=urn:btih:24614B052425CEDDACD03CE0546FF7429468F06B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +346,8 @@ VA - Лучшая клубная сотня 13 (2011) [MP3|160-320 kbps]<Dance, 
 magnet:?xt=urn:btih:81602BEA5E0931A6382F58D14F347FD6BFD9E937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +374,8 @@ VA - Romantic Deep House (2014) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:7B5A3A4124470340B346F6D11C5039AAECD5A7F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +404,8 @@ VA - Good Feeling 80s (2022) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:917E909521AC0218E2EB92D84BE4B366D18E4479
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +432,8 @@ VA - Я в глазах твоих тону (2019) [MP3|320 Kbps] <Шансон>
 ```bash
 magnet:?xt=urn:btih:29390D378ED3DE2A0817103F3E1960FBDBC2B295
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +462,8 @@ VA - Good Feeling 90s (2022) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:ED3A2163482D6C40CF985C03E196305387C24ECE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +490,8 @@ VA - Good Feeling 70s (2022) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:1FFB81C86DB5794A485812DF4501F6C31ACCC4DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +520,8 @@ VA - Ишь ты, масленица (2019) [MP3|320 Kbps] <Pop, Pop-Folk>
 magnet:?xt=urn:btih:A00FA239DE3E617B936DB8EB3FDAC261E62AD097
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +548,8 @@ VA - Good Feeling 10s (2022) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:C1A3ECE395A34C027359D70267F4CFD54EFB99FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +578,8 @@ VA - Club Dance Ambience Vol.107 (2017) [MP3|256-320 Kbps] <Club House, Vocal Ho
 magnet:?xt=urn:btih:EADF90A90C8A8D84A95062E19401D44CB82CDDB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +606,8 @@ VA - не Громкие новинки недели 3 (2019) [MP3|320 Kbps] <Po
 ```bash
 magnet:?xt=urn:btih:63BFC6549D611BC200462CFC61FAF83BBDADF535
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +636,8 @@ VA - Brooklyn Bounce (2019) [MP3|320 Kbps] <Electro House, Dance, Club>
 magnet:?xt=urn:btih:A3D8013C99A3003D3E896EF7DDA1B81534B97387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +665,8 @@ VA - Partybreaks and Remixes - All In One November 001 (2019) [MP3|320 Kbps] <Di
 magnet:?xt=urn:btih:CB6E71039288104E47D0977DBBE81D17BAACF9DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +693,8 @@ VA - Mastodon (2019) [MP3|320 Kbps] <Hard Rock, Metall>
 ```bash
 magnet:?xt=urn:btih:37E8B75F8C0C1686C75FC8EA7753B5B4ADBD7244
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +724,8 @@ VA - Extra Lounge (episode 8) (2015) [MP3|320 кб/с]<Lounge, Chill Out>
 magnet:?xt=urn:btih:3A005A5FA03ECFEF082A20B9C76B4D92A4245BC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,32 +753,7 @@ VA - Divine Lotys: Psychedelic Trance (2019) [MP3|320 Kbps] <Psychedelic, Goa Tr
 magnet:?xt=urn:btih:A5EF1508554800F9E265F199FD095C5ABAC87690
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287023   (707357) от 05.03.2019
-
-VA - Beach Sound: The Velvet Jungle (2019) [MP3|320 Kbps] <Drum And Bass, Jungle, Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707357.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fishy - Enchanted
-002. Invadhertz - Deep In The Jungle
-003. Sappo - Survival
-004. Calibre - Zee Tone(   Читать дальше...   )Жанр: Drum And Bass, Jungle, BassПродолжительность: 07:58:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC6EE2D0A03EE71623AAC48F5040C4C4A2D6B6F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

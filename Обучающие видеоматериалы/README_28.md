@@ -22,6 +22,8 @@ Swiftbook — это комьюнити и среда, в которой ты б
 magnet:?xt=urn:btih:9A2A4CCA60E585149CE204EAA4F78DEFC2564A86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:9A2A4CCA60E585149CE204EAA4F78DEFC2564A86
 ```bash
 magnet:?xt=urn:btih:646C89B6FE783DEEF0FE5630EBC097FD2DDFF477
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:646C89B6FE783DEEF0FE5630EBC097FD2DDFF477
 magnet:?xt=urn:btih:9087F71582563E2353D962856BA6A0CA6470418E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Garden Group, Иван Шаферов | Благоустройство. Тари
 ```bash
 magnet:?xt=urn:btih:2F385A882032E64BFF6D43DE61A34753304DDAD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Lingerie Design School | Бельевой эксперт. Тариф «Я сам
 magnet:?xt=urn:btih:C3E96EFCD85008DACCD3F49BAC03003DF97D35CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ Flow 2024 Spring — конференция по системному и биз�
 ```bash
 magnet:?xt=urn:btih:1E3B83F4B5969A93FBA24BB4AD9FB69283CB9BAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +192,8 @@ magnet:?xt=urn:btih:1E3B83F4B5969A93FBA24BB4AD9FB69283CB9BAD
 magnet:?xt=urn:btih:D4D6DA0AF1C2B8C01914278FDC8215269800A9E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ Thinknetica Pro, Александр Борисов | Деплой Ruby on Rails 
 magnet:?xt=urn:btih:75ACE4A14BBB2BB23C1A2DE9CEF4F20B5C5A22C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ Austin School of Furniture & Design, Philip Morley | Изготовление м
 ```bash
 magnet:?xt=urn:btih:5EA57BF9CE43A90B70D6DBC05982F029DF75027C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +277,8 @@ magnet:?xt=urn:btih:5EA57BF9CE43A90B70D6DBC05982F029DF75027C
 magnet:?xt=urn:btih:C805A7C253209B8D9E232491BF6F372D745B73CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +306,8 @@ UNIGINE,  Андрей Аксёнов | UNIGINE C++ School 1.1 - Пишем со
 magnet:?xt=urn:btih:4B8EF58385169FADE80515CB600F3180A33BE6CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +331,8 @@ Lynda, Kevin Skoglund | Git Essential Training (2012) PCRec [EN, RU / RU Sub]
 ```bash
 magnet:?xt=urn:btih:CCF0FB2B70E74195EFD2FF4F44DF95C9C80D1E4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +361,8 @@ magnet:?xt=urn:btih:CCF0FB2B70E74195EFD2FF4F44DF95C9C80D1E4D
 magnet:?xt=urn:btih:186AD22B49F6C05B421D6F6C8C9363B65E13E55D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +389,8 @@ Automatic 1111 — мощный и бесплатный инструмент. О
 ```bash
 magnet:?xt=urn:btih:3A3BC482BE5B5EA358F8423B6204947290C580D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +419,8 @@ Udemy, Nikolay Naydenov | Arm and hand anatomy exercises course (2024) PCRec [EN
 magnet:?xt=urn:btih:3467AB3ECBA59AA264F5D3FE623E2DC5352E15C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +447,8 @@ magnet:?xt=urn:btih:3467AB3ECBA59AA264F5D3FE623E2DC5352E15C5
 ```bash
 magnet:?xt=urn:btih:FB3B3443682EF968E1AE12E19BB7AE5983300599
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +477,8 @@ magnet:?xt=urn:btih:FB3B3443682EF968E1AE12E19BB7AE5983300599
 magnet:?xt=urn:btih:6A9A95725DC7937A88964C8EA15DFAEDD74552ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +502,8 @@ magnet:?xt=urn:btih:6A9A95725DC7937A88964C8EA15DFAEDD74552ED
 ```bash
 magnet:?xt=urn:btih:669AFF652303317DCEBA42C2C386BE3EE2483469
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +530,8 @@ magnet:?xt=urn:btih:669AFF652303317DCEBA42C2C386BE3EE2483469
 ```bash
 magnet:?xt=urn:btih:DD58984802CA031E12BA02F7E175A4AC969A9B14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +560,8 @@ Blender Fundamentals Vol. 3 - Texturing and Shading Fundamentals in Blender (4.0
 magnet:?xt=urn:btih:7D9DC38E51FDD65290785DB36512C642B9BF848E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +585,8 @@ magnet:?xt=urn:btih:7D9DC38E51FDD65290785DB36512C642B9BF848E
 ```bash
 magnet:?xt=urn:btih:5CEF710CFD85390E5E624417157F12B65A975B10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +615,8 @@ magnet:?xt=urn:btih:5CEF710CFD85390E5E624417157F12B65A975B10
 magnet:?xt=urn:btih:41715E324BE27AD58303EE110EFA5DA1E905E93A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +641,8 @@ Udemy, Bharat Sharma | Old Stylized Character in Blender (2024) PCRec [EN]
 magnet:?xt=urn:btih:680C8F3D39871A554F1041EEB4ACFC01F0529CC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +666,8 @@ Vueschool | Курсы по Vue3 (2024) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:325C9E81DB384E4AEA67F03C1DBE5B30F9AA2460
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +694,8 @@ Local Flowers, Екатерина Фролова | Школа цветочног
 magnet:?xt=urn:btih:D21EF08DCB1DC1366019B0F8CF3FD40188D7B2FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -671,6 +721,8 @@ Steve Maxwell | Отделка дерева для начинающих (2023) W
 ```bash
 magnet:?xt=urn:btih:83EEA1EB520318ACDDE630309142CDEE75EA6F1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

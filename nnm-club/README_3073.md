@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3673751FDFD88AE0621585751DF0B88C6BFE9638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:3673751FDFD88AE0621585751DF0B88C6BFE9638
 ```bash
 magnet:?xt=urn:btih:5E82824DC928A0D439A7CA131505ED60B29932F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ VA - Гуляй братан! Песни шансона (2012) [MP3|256 кб/с]
 magnet:?xt=urn:btih:D4A8006F4B75D9E463658E927CB8DB8DBE797D17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -110,6 +116,8 @@ Gustav Lundgren - Plays Django Reinhardt (2012) [MP3|256 кб/с]<Gypsy Swing, J
 magnet:?xt=urn:btih:B5069D622380B3105485F9171595D5AE02C6C682
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -133,6 +141,8 @@ magnet:?xt=urn:btih:B5069D622380B3105485F9171595D5AE02C6C682
 ```bash
 magnet:?xt=urn:btih:DF134145653034C8C06617668B2E4FF27D61D9E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +177,8 @@ Georgia Gibbs - The Complete Original Hits Of Georgia Gibbs (2007  (1950-1958)) 
 magnet:?xt=urn:btih:2F4C37046F2FDD534284FBC0672A8A522DF2151F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +202,8 @@ magnet:?xt=urn:btih:2F4C37046F2FDD534284FBC0672A8A522DF2151F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +235,8 @@ At The Ruins - Death Earth Empire (2012) [MP3|320 кб/с]<Post-Hardcore / Elect
 magnet:?xt=urn:btih:52F969D87316FA16EE235C1C6116B9611D1D04A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +262,8 @@ magnet:?xt=urn:btih:52F969D87316FA16EE235C1C6116B9611D1D04A0
 magnet:?xt=urn:btih:324EE763E5BF4F453D402C75FA9E1E1E24C78F94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ magnet:?xt=urn:btih:324EE763E5BF4F453D402C75FA9E1E1E24C78F94
 ```bash
 magnet:?xt=urn:btih:E458773EC71BA97AD0B672CD73F2D537A9B34F49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +324,8 @@ CD1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +349,8 @@ CD1
 ```bash
 magnet:?xt=urn:btih:FF00FC00A42E106BE4DC5ECB405CDA763E44FDE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +376,8 @@ magnet:?xt=urn:btih:FF00FC00A42E106BE4DC5ECB405CDA763E44FDE6
 magnet:?xt=urn:btih:F471DBD711598BFD01C0EF3FF7A5618309FBBE00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +402,8 @@ LibreOffice - новое имя пакета офисных приложений
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +427,8 @@ LibreOffice - новое имя пакета офисных приложений
 ```bash
 magnet:?xt=urn:btih:551512ADF8EF1A2FC0516395679B2FC57AE90617
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +463,8 @@ Vespera - Desert Of The Real (2011) [MP3|320 кб/с]<Gothic / Industrial Metal>
 magnet:?xt=urn:btih:0DA32AC6C7F2D51AEC9003EAFBD128725D7AA833
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +494,8 @@ Obsidian Gate - Colossal Christhunt (2001) [MP3|320 кб/с]<Symphonic Black Met
 magnet:?xt=urn:btih:4E3B38CA242C3ED65AB527745EAE521A321F925C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +520,8 @@ VA - Zen Zone 4 (2011) [MP3|320 кб/с]<New Age, Instrumental>
 magnet:?xt=urn:btih:E0199CDECB85800F32DC74292660B940D129D241
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +545,8 @@ magnet:?xt=urn:btih:E0199CDECB85800F32DC74292660B940D129D241
 ```bash
 magnet:?xt=urn:btih:0881D4A6BAD30FF387833FAB00EC5E473120C302
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +581,8 @@ VA - RU Dj's vol.2 (2012) [MP3|192 kbps]<Club | Dance | House>
 magnet:?xt=urn:btih:00D133CFD4D6151BBB92E57E5618F5DC869FEAA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +615,8 @@ S-O-DA - Не гасить (2011) [MP3|320 кб/с]<acoustic rock>
 magnet:?xt=urn:btih:7A5819EA2FB14FF438EA2B969900E712FFA18057
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +648,8 @@ When Nothing Remains - As All Torn Asunder (2012) [FLAC|Lossless]<Doom / Death M
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +684,8 @@ VA - XXXL Жажда Скорости Весна (2012) [MP3|160-192 kbps]<Club 
 magnet:?xt=urn:btih:D1067C041567D2324C4749E948E440AF5FC0CD5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,6 +719,8 @@ magnet:?xt=urn:btih:D1067C041567D2324C4749E948E440AF5FC0CD5C
 magnet:?xt=urn:btih:9AC2DCA18FBEEE7E4258132BF21E7963C445E10E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -700,6 +748,8 @@ magnet:?xt=urn:btih:9AC2DCA18FBEEE7E4258132BF21E7963C445E10E
 ```bash
 magnet:?xt=urn:btih:5D1730E5BB778DB799F6F895D0B56C7DB188AE09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -733,6 +783,8 @@ VA - Ultimate Clubland A Decade In Dance (2012) [MP3|256 kbps]<Pop | Dance | Clu
 ```bash
 magnet:?xt=urn:btih:414C76CCB763FB8A2892AE5DDE239D03A3543CCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

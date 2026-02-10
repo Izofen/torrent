@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B76E10A747B9A6D1E60F1C3B3078C2E890CCDE99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:B76E10A747B9A6D1E60F1C3B3078C2E890CCDE99
 ```bash
 magnet:?xt=urn:btih:41E0EA0B34C5505BFFF7262464F50C5A13C67BEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:41E0EA0B34C5505BFFF7262464F50C5A13C67BEA
 magnet:?xt=urn:btih:A00DF78FCFC5882F46C0735CAD3517A82CF59016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:A00DF78FCFC5882F46C0735CAD3517A82CF59016
 ```bash
 magnet:?xt=urn:btih:E8B3592E186027AF1E196856AC2FF2BE30B15384
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:E8B3592E186027AF1E196856AC2FF2BE30B15384
 magnet:?xt=urn:btih:8BB9697094A9A9AAF84141AEA3A1DBB0AD69957D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:8BB9697094A9A9AAF84141AEA3A1DBB0AD69957D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:8BB9697094A9A9AAF84141AEA3A1DBB0AD69957D
 magnet:?xt=urn:btih:147F622523A62CBF777EBF9E667BD1C931E76E78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:147F622523A62CBF777EBF9E667BD1C931E76E78
 ```bash
 magnet:?xt=urn:btih:AB08F3FB9BCB085D6AB39F64D01B57C0BC904E81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:AB08F3FB9BCB085D6AB39F64D01B57C0BC904E81
 magnet:?xt=urn:btih:ED3BBAD1038DBD05AD1C6BDF172A26BA2878455A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:ED3BBAD1038DBD05AD1C6BDF172A26BA2878455A
 ```bash
 magnet:?xt=urn:btih:242F4AF49B8B593299870E585B53F5E49A18B782
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Gensou Mangekyou: The Memories of Phantasm | Тохо - Калейдоскоп �
 magnet:?xt=urn:btih:E16F0AAEBF5378AF5D4E8F2604A574AF25E6D09F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Haven Park (2021) [Ru/Multi] (1.2.1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:1350A8683EEA11EF24504E3BDA724C918B4EB9E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:1350A8683EEA11EF24504E3BDA724C918B4EB9E3
 magnet:?xt=urn:btih:FD77A5D25CE1E92E0C2B919016039CA172EB3442
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:FD77A5D25CE1E92E0C2B919016039CA172EB3442
 ```bash
 magnet:?xt=urn:btih:E2696FCA84A91E8DD676F1635392CCC25F53852F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:E2696FCA84A91E8DD676F1635392CCC25F53852F
 magnet:?xt=urn:btih:EDD561EFFB4A5DCC45C68D042E532DF02D88514D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:EDD561EFFB4A5DCC45C68D042E532DF02D88514D
 ```bash
 magnet:?xt=urn:btih:71346AAE5D38D9C2D38A2560646C8938A2CF4314
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ LEGO Indiana Jones: The Original Adventures – аркадная приключ�
 magnet:?xt=urn:btih:AF26CAD63D2E4F108F3224623A3B05AD7DE0C376
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:AF26CAD63D2E4F108F3224623A3B05AD7DE0C376
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:AF26CAD63D2E4F108F3224623A3B05AD7DE0C376
 magnet:?xt=urn:btih:79DF652A9B94D95ACA62FC3641FEBD2FF99D5F59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:79DF652A9B94D95ACA62FC3641FEBD2FF99D5F59
 ```bash
 magnet:?xt=urn:btih:0C1FB438D7AC8B902E3839580ABA0BD386609823
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:0C1FB438D7AC8B902E3839580ABA0BD386609823
 magnet:?xt=urn:btih:73ADE231808CEBF8E41DE8C9B4FF28A5FBE38C1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:73ADE231808CEBF8E41DE8C9B4FF28A5FBE38C1D
 ```bash
 magnet:?xt=urn:btih:6B7E21812DA5BE0E4965C974A5E0A8E4F2EE4384
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:6B7E21812DA5BE0E4965C974A5E0A8E4F2EE4384
 magnet:?xt=urn:btih:8DFF6445D3624FB6B5FA38C20D125DAE3A7DBB87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:8DFF6445D3624FB6B5FA38C20D125DAE3A7DBB87
 ```bash
 magnet:?xt=urn:btih:E3B00A8A25FDB881D31E584549A58B856BD401C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:E3B00A8A25FDB881D31E584549A58B856BD401C7
 magnet:?xt=urn:btih:05ECB59352AF347E8D967855C98E342927ED61CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Machikado Mazoku 2-Choume | The Demon Girl Next Door 2 | Городская дь
 ```bash
 magnet:?xt=urn:btih:279A51E8D99973859E4EF8A4F26A6C7327B5BBD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

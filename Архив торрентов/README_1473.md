@@ -19,6 +19,8 @@ Topaz A.I. Gigapixel — это первое и единственное при�
 magnet:?xt=urn:btih:F2CDA87DA924006894A21382186F35AB33D63362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ GrandTotal прекрасно работает в сочетании с TimeLog.
 magnet:?xt=urn:btih:DD34BEB0534119FA097165F518A52CCCC6A08A95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:0A1F53B135F9700509D9E1CD7D3A6BB036F54B76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Text Editor Pro 27.5.0 + Portable + Bonus [Multi/Ru]
 magnet:?xt=urn:btih:E0893A87545BD44AA9CBC47C032EB4FCA410D699
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:9332C694904CD4CDE1BD01ED468AB67F9664F88C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Waves Complete V14 2023.01.17 VST, VST3, AAX, STANDALONE (x64) RePack by R2R [En
 magnet:?xt=urn:btih:A623B0E77BD084D528E503D5D1C770ECDED6D108
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:4AF8D7BABC98AE222BDB919153E0620F31BC38DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ SimpleMind - это инструмент для построения интел�
 magnet:?xt=urn:btih:01654E56A0351433B118BDB1B4888C1BB1C12F9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ GraphicConverter 11 — полнофункциональный графичес�
 ```bash
 magnet:?xt=urn:btih:ED52000F8E45E88FF4A808C4AED817A87BADAE35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:ED52000F8E45E88FF4A808C4AED817A87BADAE35
 magnet:?xt=urn:btih:DFDB0E756E33D7AB11F1110D1182E3C985E31E5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Topaz A.I. Gigapixel — это первое и единственное при�
 ```bash
 magnet:?xt=urn:btih:CBAABD04D0F335140D47A1E69703091FBAC23850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:C489B8E734823B0AB311E4B2FF77F1E9F14BCA92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ File & Image Uploader - удобная и просто незаменимая п
 ```bash
 magnet:?xt=urn:btih:B1AC50AAC3F7B22D53845434F2765098E7F4AD04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ XYplorer – удобный мультивкладочный файловый м
 magnet:?xt=urn:btih:1512904A2227359FA5E7F357DA38044B0878A171
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ SponsorBlock — это краудсорсинговое расширение д
 ```bash
 magnet:?xt=urn:btih:D728B4773E39BBD067719FCA3D4E40662D54DE8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Q-Dir позволяет получать быстрый доступ к час�
 magnet:?xt=urn:btih:E8B2EA7D01D263AA8B7FB5CB3DB58905CD4452EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:EEC19199D9FF35A8FEC843E8F080AA5F0498DB9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Total Commander является самым мощным и стабильным
 magnet:?xt=urn:btih:C4152CE0E88FDC96B759EFA09D80015292A28813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ GPU Shark - небольшая бесплатная и очень простая
 ```bash
 magnet:?xt=urn:btih:A275FCE8329D781A4F916EAEABC917F8EA65C005
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Windows Update Viewer 0.5.20.0 + Portable [En]
 magnet:?xt=urn:btih:4B5DA16DBFDE8A9BC680EEC2C23575C6255623AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:64F99EE1FF5164328ABA41A7964A9E90A95B2390
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ PDF Extra - универсальное приложение, что обеспе
 magnet:?xt=urn:btih:476AD218EE6D3E5A10E29227F7FEA37B3224AB1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ NewFileTime 7.11 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2D5BBDCF392707715E5B13912F91A9220669647F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:2D5BBDCF392707715E5B13912F91A9220669647F
 magnet:?xt=urn:btih:77C45F141409C8664126393254CD5AC1D8265064
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Waterfox — это браузер, основанный на исходном �
 magnet:?xt=urn:btih:2AAA0B9BE8D30EC931D971FF4B96BB3A7F7BD40A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Macrorit Partition Expert Unlimited Edition – предоставляет мо�
 ```bash
 magnet:?xt=urn:btih:62565019EB09030BCEC8045D9EF08CE230EB4704
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

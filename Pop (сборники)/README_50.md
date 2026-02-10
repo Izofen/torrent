@@ -1,3 +1,38 @@
+###  Публикация: 546316   (474188) от 15.09.2012
+
+VA - Дискотека 50/50 - 2CD (2012) [MP3|128 кб/с]<pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474188.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. NikitA - Авокадо (03:17)
+002.5sta Family - Вместе Мы (03:40)
+003.Adam Lambert - Cuckoo (03:02)
+004.Adam Lambert - Never Close Our Eyes (04:08)
+005.Adriana & Алексей Арабов feat. Stilet - Прости Меня (03:20)
+006.Akcent - I'm Sorry (Original Version) (05:04)
+007.Akon - No One Can Do It Better (03:19)
+008.Akon feat. French Montana - Hurt Somebody (03:56)
+009.Alex Mica - Dalinda (03:25)
+010.Alexander Popov - Elegia (03:51)Жанр: popПродолжительность: 24:07:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69DA818A07E048694C53E7AB5D7AF28314C6A9C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 547230   (474334) от 15.09.2012
 
 VA - Наши Новые Поп Хиты (2012) [MP3|256 кб/с]<Dance, Pop>
@@ -28,6 +63,8 @@ VA - Наши Новые Поп Хиты (2012) [MP3|256 кб/с]<Dance, Pop>
 magnet:?xt=urn:btih:ECF6B5EBEE12E836C3ABADA77430391EFA214703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +91,8 @@ VA - Самые Лучшие Хиты 80-90-х В Современной Обр�
 ```bash
 magnet:?xt=urn:btih:7EC2609302D04372867E0B0AB4A0B74198D3E486
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +121,8 @@ VA - Let The Music Play: Disco-Pop 80s (2016) [MP3|320 Kbps] <Disco-Pop, Italo D
 magnet:?xt=urn:btih:3552B169703F03F6DF5CEEE25A862FF2F2EC695E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +149,8 @@ VA - Summer Break (2020) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:FA703625E582493BFB8A4BE8D0D95F31BD7AC5BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +179,8 @@ VA - Top 100 Твои любимые хиты (2015) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:AA25D6C6A17168C55955B4C971D576F8850E792F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +207,8 @@ VA - Русское Радио. Лучшее 2018 от DON Music (08.2018) [MP3|
 ```bash
 magnet:?xt=urn:btih:4D94AAEBD6E77188CF17854379539DE2323CA878
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +237,8 @@ VA - German Top 100 Single Charts 29.07.2022 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:7957F5F79480AF2A3FEFFDE9F65BDF3CBD062ED8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +265,8 @@ Sofia Carson - Compilation (2022) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:2D8EE14529EEDF6A35714FCECA67937FCD224496
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +295,8 @@ VA - Summer Europop Music (2019) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:260C184FB793ED241BBBCD7CD91F60EEE946F2C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +323,8 @@ VA - Попсовая соточка MTV Сборник 5 (2015) [MP3|256 кб/�
 ```bash
 magnet:?xt=urn:btih:41F568AC743314191554EDA35E9B691E3DCD6F20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +353,8 @@ VA - Дискотека 80-90 годов по-новому (Dj Ikonnikov - E.x.c
 magnet:?xt=urn:btih:7ED07E647431DC25C4E4F611DF3F4234622A8395
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +381,8 @@ VA - Radio DFM Top D-Chart Август 2020 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:763EB2EF160741BC26F7A73B2146179D32E2673A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +411,8 @@ VA - SpaceSynth & ItaloDisco Hits Vol.16 (2016) [MP3|320 Kbps] <Pop, Synthpop, I
 magnet:?xt=urn:btih:5F9EBF80E4BCCF51C3CBDE2B6AE310DF3A5797AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +439,8 @@ VA - Oldies 70's (2017) [MP3|320 Kbps] <Disco, Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:82A851303DDCB205C6A165C1CFF31C96339B5344
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +469,8 @@ VA - German Top 100 Single Charts 31.08.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:A4309CE710B781DD79DE0117B5A8A66ADC03179B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +498,8 @@ Sonic Dream - Compilation (2022) [MP3|320 Kbps] <Pop, Eurodance>
 magnet:?xt=urn:btih:FECF1F582D6B7E065661FDB1694492137DC2E326
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +526,8 @@ VA - Shazam Хит-парад Russia Top 100 Август (2020) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:D0872BF663C48151F10F2D4D126A45053F9D7318
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +562,8 @@ VA - Teenage Idols (1955-1969) (2001) 4CD BoxSet[MP3|320 кб/с]<Pop, Rock, Old
 magnet:?xt=urn:btih:348E61FB8BF48B5A4BD949FE68D7214CE2B396AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +596,8 @@ VA - Попсовый Мега Хит (2012) [MP3|256 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:EB8D2D18A21BBBEB6A144A18E709D3A787DF70DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +632,8 @@ VA - German TOP 100 Single Charts (09.09.2012) [MP3|206-299 кб/с]<Club, Dance
 magnet:?xt=urn:btih:27016A65110F191861EE34DC44E147EEF3FE4351
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +660,8 @@ VA - German Top 100 Single Charts 28.08.2020 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:7CB0F61874A8853676E03E109E436661EEEF2825
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +696,8 @@ VA - Дискотека 90-х: Ты В Ритме Танца (2012) [MP3|128 к�
 magnet:?xt=urn:btih:152CB10706085A5A1A071B582AFCC5A8D44255A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +730,8 @@ VA - Лучшие Из Лучших Русский Осень (2012) [MP3|256 к
 ```bash
 magnet:?xt=urn:btih:DACD2434B1C7656CC3C6165ED8A1BCA10AE8CC8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -685,6 +766,8 @@ VA - Муз-отрыв хитовый взрыв (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:0FA497EAA0518C05006AE6C5F125A1AF83CF0A38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -718,32 +801,7 @@ VA - Русский вулкан хитов (2012) [MP3|128 кб/с]<Pop>
 magnet:?xt=urn:btih:697E177B58C8472038E3BFA749FDD855A269B451
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055811   (485783) от 23.09.2016
-
-DJ BOBO - Mystorial (Deluxe Edition) (2016) [MP3|320 Kbps] <Pop, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mystorial 3:18
-02. Believe 2:56
-03. Hypnotized (Instrumental) 4:11
-04. Now Or Never 3:21(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 01:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93458B4F80E19B9D9D18FFCDE0DA88448E04FADC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

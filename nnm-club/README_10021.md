@@ -1,54 +1,3 @@
-###  Публикация: 957704   (326467) от 18.11.2015
-
-Rammstein - Sehnsucht (1997) [AAC|256 кб/с|WEB]<Metal, Industrial>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sehnsucht (04:06)
- 02. Engel (04:26)
- 03. Tier (03:48)
- 04. Bestrafe Mich (03:38)(   Читать дальше...   )Жанр: Metal, IndustrialПродолжительность: 00:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:180B50BE696342AB96247FB5F005DDADA606D6A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957649   (326468) от 18.11.2015
-
-On1 Photo 10 (10.0.0.2241) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326468.jpg" />
-</div>
-
-
-###  Подробнее
-
-ON1 Photo 10 — набор мощных приложений от известной компании onOne Software, представленный в едином пакете. Включает в себя 6 автономных программ и плагинов для Adobe Photoshop, Lightroom и др.. Он предназначен для профессиональных и продвинутых фотографов и просто любителей фотографии, который предоставит интуитивно понятные инструменты для применения фотографических (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 ноября 2015Разработчик: ON1, Inc.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA8D303A866344E7E994D90CCA71B48A83E41402
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957531   (326469) от 18.11.2015
 
 DFX Audio Enhancer 12.012 [En]
@@ -69,6 +18,8 @@ DFX Audio Enhancer — звуковой плагин для улучшения �
 ```bash
 magnet:?xt=urn:btih:CAD7EA0A54B7A66F2E3F17B5963780D480ADAC35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +44,8 @@ magnet:?xt=urn:btih:CAD7EA0A54B7A66F2E3F17B5963780D480ADAC35
 ```bash
 magnet:?xt=urn:btih:5FA140B734EDB6E82EF35B4C6247CC3C74585405
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +72,8 @@ magnet:?xt=urn:btih:5FA140B734EDB6E82EF35B4C6247CC3C74585405
 magnet:?xt=urn:btih:7C318CA5230139ECDFA514478969F62FDF7F38F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +99,8 @@ magnet:?xt=urn:btih:7C318CA5230139ECDFA514478969F62FDF7F38F2
 magnet:?xt=urn:btih:9468FA23E819F08CA6B248B684DF7C7F263370F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +125,8 @@ DxO Optics Pro — один из лучших RAW конвертеров и ре
 magnet:?xt=urn:btih:71E1183278BDBD6CF239159C216832E21EF31B01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +150,8 @@ PhotoEQ - программное обеспечение для улучшени�
 ```bash
 magnet:?xt=urn:btih:5450872BB1FDD7117E7B9240ECEE8C065B672DC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +178,8 @@ magnet:?xt=urn:btih:5450872BB1FDD7117E7B9240ECEE8C065B672DC5
 magnet:?xt=urn:btih:44E84B11432A76C389152644FBA0C3BB986206D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +203,8 @@ magnet:?xt=urn:btih:44E84B11432A76C389152644FBA0C3BB986206D4
 ```bash
 magnet:?xt=urn:btih:2912F3B8A69F579796EA4E5209316B918548A7FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +230,8 @@ magnet:?xt=urn:btih:2912F3B8A69F579796EA4E5209316B918548A7FA
 magnet:?xt=urn:btih:A1EBB379C46F4778032AA58AB92D156A0DE2FAED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +256,8 @@ magnet:?xt=urn:btih:A1EBB379C46F4778032AA58AB92D156A0DE2FAED
 magnet:?xt=urn:btih:E1278E071CF6E0A81AD951B649072EF9AB0CF7B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +281,8 @@ magnet:?xt=urn:btih:E1278E071CF6E0A81AD951B649072EF9AB0CF7B9
 ```bash
 magnet:?xt=urn:btih:8A7EA1F015D9B4E77CC19FDCD55AD1712ECCDC1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +311,8 @@ Rage - Spreading The Plague (2022) EP [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:B1101472088928D4FE188DC861F21EB7F3EF473E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +339,8 @@ Mephistofeles - Violent Theatre (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych Ston
 ```bash
 magnet:?xt=urn:btih:DF01586467E3B0C841FE6137F1226B119711FD66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +369,8 @@ magnet:?xt=urn:btih:DF01586467E3B0C841FE6137F1226B119711FD66
 magnet:?xt=urn:btih:21AFD63EEF5873034B2EF43B226C38CEE113BB0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +397,8 @@ Krankheit - Gargantua (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Industrial Me
 ```bash
 magnet:?xt=urn:btih:CD94512C3A7932A50B3332404E73193E1840DFB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +427,8 @@ Tomb Of Finland - 3 Albums (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Do
 magnet:?xt=urn:btih:9EA51A8B1482EB6F23152244CE7681F0B4F08794
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +455,8 @@ Creepy Willie - The Creepy Willie Show (2022) [FLAC|Lossless|WEB-DL|tracks] <Exp
 ```bash
 magnet:?xt=urn:btih:B7B84D52B5E51B5FB83F083E6ADD31F1214FCF76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +485,8 @@ Desolate - Sanity Obliterated (2012) Compilation [FLAC|Lossless|tracks] <Death M
 magnet:?xt=urn:btih:0253684058C47E51CB556BC889A2B9BCE5AF8BE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +513,8 @@ Korrosive - Toxic Apokalypse (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:6D984F04FD6CF58D8E53E07BEC2EADE78A3676C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +543,8 @@ Les Enfants de DAGON - De Profundis (2022) [FLAC|Lossless|WEB-DL|tracks] <Black 
 magnet:?xt=urn:btih:D355398C4C4CBFDFD17F05B96E21055FAB12C38A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +571,8 @@ PEDRO DEL MAR IN THE MIX:
 magnet:?xt=urn:btih:D20DBAB298B7E21F4A6116D8AF51BE8B26AC20F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +596,8 @@ magnet:?xt=urn:btih:D20DBAB298B7E21F4A6116D8AF51BE8B26AC20F4
 ```bash
 magnet:?xt=urn:btih:D14B72FCF9562F05D3842D49E31FFE1185E9EBED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +626,8 @@ magnet:?xt=urn:btih:D14B72FCF9562F05D3842D49E31FFE1185E9EBED
 magnet:?xt=urn:btih:E1A1F9D076A502453E0FA9D3E4184D7099B5B93F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +651,61 @@ magnet:?xt=urn:btih:E1A1F9D076A502453E0FA9D3E4184D7099B5B93F
 ```bash
 magnet:?xt=urn:btih:B5B65674B0DF1005E78F7F8FD8F56F88A7B16951
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 843043   (326519) от 20.11.2014
+
+VideoHive - Blue Tunnel [AEP]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект презентации чего угодно на экране виртуальных дисплеев. Кроме основного, есть три различных цветовых решения: красное, жёлтое и зелёное. Требуются плагины Optical Flares и Particular v2. Превью, текстовый файл помощи и чистый муз. трек (128 Кбит/сек) - в раздаче.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:364771504B1756DFFFA7D4163C3CCB845CA716D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957752   (326520) от 18.11.2015
+
+Проекты - Motion Array - Dynamic Slide [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Динамичный проект для создания слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5724E7E72112F86AD1D77355B1AAF3007EBE48B9
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

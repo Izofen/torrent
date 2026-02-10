@@ -24,6 +24,8 @@ Folder scanner - визуально анализирует диск / папку
 magnet:?xt=urn:btih:97CFE61941DD39D111D6C48DEF98BBB3B12121FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Process Lasso Pro - позволяет вручную или автоматич�
 ```bash
 magnet:?xt=urn:btih:2FE1740E6061E8D8BB546987E37799FCB4800C8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -81,6 +85,8 @@ VA - Новогодние чудеса. Праздничный сборник с
 magnet:?xt=urn:btih:5002F4A653C46145DFF71021E446295D381CF00F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -104,6 +110,8 @@ Computer Bild крупнейший в Европе журнал о компью�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +139,8 @@ BELOFF [dp] 2022.12.2
 magnet:?xt=urn:btih:02297170C1BD079DE16C3FBBFF23ED6A7401A474
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ magnet:?xt=urn:btih:02297170C1BD079DE16C3FBBFF23ED6A7401A474
 ```bash
 magnet:?xt=urn:btih:BCFF9FDDA6990E246BF7330F14F340AFEC7198FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Usher - Отличное средство для создания и веден�
 magnet:?xt=urn:btih:025C4D06252009FF8ABED99B449F0AD1DAE3576A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ magnet:?xt=urn:btih:025C4D06252009FF8ABED99B449F0AD1DAE3576A
 ```bash
 magnet:?xt=urn:btih:7B21E7B19CBC54E41C72EAD467890C72BCC1E531
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -231,6 +247,8 @@ magnet:?xt=urn:btih:7B21E7B19CBC54E41C72EAD467890C72BCC1E531
 magnet:?xt=urn:btih:6E6FD3DC8400C43ED1EF381F531A9C0E714C5B4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ Bigasoft Total Video Converter для Mac, профессиональный и �
 magnet:?xt=urn:btih:9C8ED2022BE284F0DD182F73ABFE3E1ABB083D77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ All-Radio - свежая версия удобной программы для �
 ```bash
 magnet:?xt=urn:btih:AA10B0139C97925B7D80C4B07029C79510BD5A73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +328,8 @@ Skip Tunes является простым приложением для Mac OS 
 magnet:?xt=urn:btih:07FE230B36E323FE76879BA8AD5AC7FE0B618B41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ Adobe Illustrator 2022 26.0.2.754 RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B8F383755BC183FC3E4EBFCF4AD34F3249E03640
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +383,8 @@ UFS Explorer Professional Recovery разработан практикующим
 magnet:?xt=urn:btih:073C7FE83A3C6CA82D76631E0BD227684C90083E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ VirtualBox - специальная программа для создания �
 magnet:?xt=urn:btih:29CC5BA7CB2AEAC204C27C7737DA1CCC8CEDCC88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ magnet:?xt=urn:btih:29CC5BA7CB2AEAC204C27C7737DA1CCC8CEDCC88
 ```bash
 magnet:?xt=urn:btih:37D7BD21BD08DD71310DFEAB932E5514A4C8F066
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ Raise Data Recovery for FAT / NTFS - две программы предназн�
 ```bash
 magnet:?xt=urn:btih:DEC3DD8FC1FDF374A97A94B8EADB38422AF9DCA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +492,8 @@ uDesktop NEXT одна из самых больших коллекций обо�
 magnet:?xt=urn:btih:80B209AD6D8FE11534809D294A661D8D069059C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +520,8 @@ magnet:?xt=urn:btih:80B209AD6D8FE11534809D294A661D8D069059C6
 magnet:?xt=urn:btih:6C97E744D5B0C4125C277FB17E8217BCA24A68AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +545,8 @@ magnet:?xt=urn:btih:6C97E744D5B0C4125C277FB17E8217BCA24A68AD
 ```bash
 magnet:?xt=urn:btih:CA95A1FD87B31C53E14D66EEBA9C24DC34235633
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ VCap Downloader (VCapDL) – это универсальное программ�
 magnet:?xt=urn:btih:7E9A7B3BC1CFF02D41054B6048288CF3F347AFE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ WinISO Standard - программа для работы с образами CD 
 ```bash
 magnet:?xt=urn:btih:7F7E68A7EF2F5066A18D723131ED37206D92E9FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +628,8 @@ magnet:?xt=urn:btih:7F7E68A7EF2F5066A18D723131ED37206D92E9FB
 magnet:?xt=urn:btih:1A77079B74A014788C36C0E670AA75AC24F8FB8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +653,8 @@ magnet:?xt=urn:btih:1A77079B74A014788C36C0E670AA75AC24F8FB8F
 ```bash
 magnet:?xt=urn:btih:1017C0816EC027E566BB150C8F4DCA1563BA2A06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +681,8 @@ Pixelmator Pro — это невероятно мощный, красивый и
 magnet:?xt=urn:btih:338B5941BD1A36C1C5008FA12E7590CFCF08EABB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ magnet:?xt=urn:btih:338B5941BD1A36C1C5008FA12E7590CFCF08EABB
 ```bash
 magnet:?xt=urn:btih:5FEACE537FEC1772E8A5EB42D78680AD3D0FA172
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

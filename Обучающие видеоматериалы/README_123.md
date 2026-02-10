@@ -19,6 +19,8 @@ Janathan Daley | Creating Gameplay Systems using Blueprint Features in Unreal En
 magnet:?xt=urn:btih:771479EF4D2924BB550D11191402F6A7DC1D87DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ OK English School, Елена Вогнистая | Стать англогово
 ```bash
 magnet:?xt=urn:btih:3EBCB3B7A3B3DAD44235CC64F381EBFC2C659E63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ EngExpert, Диана Семенычева | Золотые ключи к анг
 magnet:?xt=urn:btih:303BB4B0C6B3BA58B1891EB6B91F8BC726949A11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:303BB4B0C6B3BA58B1891EB6B91F8BC726949A11
 magnet:?xt=urn:btih:A2D083F586FDC0DDA45BD6DE9BCD87D1AE91B84D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Mark Schoen | Современная Камасутра. Увлекательн�
 ```bash
 magnet:?xt=urn:btih:7899312C3B035B1340330FFC4B58E87F2E34A5F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Skillbox, Константин Юрченко | Основы экономиче�
 magnet:?xt=urn:btih:1800EFE11EA2B2220F1280BC4CDE7367C4BE2CF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:1800EFE11EA2B2220F1280BC4CDE7367C4BE2CF0
 ```bash
 magnet:?xt=urn:btih:D93981F392F213C6A83B1FFBA57B3F4A4D869D2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Android (   Читать дальше...   )Производство: UdemyЖа
 ```bash
 magnet:?xt=urn:btih:A6B77D9B80D1DF8680461B613BA44C984C0DE192
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Kantemir Bitokov | Курс по моделингу автомобиля кла�
 magnet:?xt=urn:btih:2804982F0B6296B51716BAEB3303347FF13F7EAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ Ctrl + Paint, Matt Kohr | Digital Sketching 1: Gesture (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:20D3DAFEBD28C62130459922C1AA1D13887A12DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ Ctrl + Paint, Matt Kohr | Digital Sketching 4: Technical Drawing (2016) PCRec [E
 magnet:?xt=urn:btih:5F9401886A4BD285068D56C05F2240665F35CB8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ Ctrl + Paint, Matt Kohr | Creating Realistic Surfaces (2013) PCRec [En, Ru]
 magnet:?xt=urn:btih:3120BF723ADF9D0ECCCAA898F4B36EEECBC52F79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ Ctrl + Paint, Matt Kohr | Digital Sketching 2: Refined Lines (2016) PCRec [En, R
 ```bash
 magnet:?xt=urn:btih:CFD18EDE00F41549298DA3A1DF04F32826B1B1FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:CFD18EDE00F41549298DA3A1DF04F32826B1B1FA
 magnet:?xt=urn:btih:46B616937BEF9AE946D1F4D1B0719CB74D57A7BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ Ctrl + Paint, Matt Kohr | Costume Design (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:CCBA5718719E5A0CB7946465B9C68EDFC84E409C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ Udemy, Neil Bettison | Создание научно-фантастическо�
 magnet:?xt=urn:btih:FE6CD4C8495373CFA95BD9F1D7AACFB3D5BD1BE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ Ctrl + Paint, Matt Kohr | Weapon Design (2016) PCRec [En, Ru]
 magnet:?xt=urn:btih:98EC1E4BEFDC2C3651BC64820C660E4955CB6694
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ Ctrl + Paint, Matt Kohr | Let's Paint (2015) PCRec
 ```bash
 magnet:?xt=urn:btih:32CAFDB30957141964C4D7D46A37E4E2096501F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ Ctrl + Paint, Matt Kohr | Vehicle Design Start To Finish (2014) PCRec [En, Ru]
 magnet:?xt=urn:btih:D83D93E5CA5F4E4367A9026459CB5E791FC55DCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ Ctrl + Paint, Matt Kohr | Custom Brush Design (2014) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:D4590BED42E6177429BFFED446384D4D1C401976
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:D4590BED42E6177429BFFED446384D4D1C401976
 magnet:?xt=urn:btih:26556B70FA22E8C1F95108653A48EFBA3DD01D3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:26556B70FA22E8C1F95108653A48EFBA3DD01D3A
 ```bash
 magnet:?xt=urn:btih:326FEE8EDC99DEB91EDAB36FBBABF98325254140
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:326FEE8EDC99DEB91EDAB36FBBABF98325254140
 magnet:?xt=urn:btih:953DD64CC138CB7EAFD5C623DC955E8C0E922576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ lectoroom, Елена Базанова | Веточки яблони аквар�
 magnet:?xt=urn:btih:F80A21B6FF5B69FF9BFA3A8F04E42DAE3FFF1389
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ Lextorium, Михаил Церковников, Владимир Прохоре�
 magnet:?xt=urn:btih:D17F2791DBBD3D1AC8E3505945E299082099973E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ Enterclass, Илья Ибряев | Мачу-Пикчу (2023) WEB-DL [AD] [RU]
 ```bash
 magnet:?xt=urn:btih:A0D2A9C6FDFBEC68DBB8DBA0184E9850ADC964D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

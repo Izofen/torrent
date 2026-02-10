@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:CB6D63ABF8D2C1B87FF8FB0FE8C9ADCF22DF161D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:CB6D63ABF8D2C1B87FF8FB0FE8C9ADCF22DF161D
 ```bash
 magnet:?xt=urn:btih:C2592C65840D4C0A2EE22A23B784C101690DCFA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:C2592C65840D4C0A2EE22A23B784C101690DCFA6
 magnet:?xt=urn:btih:6F2CE48CA25FBD7C1CA3AF0680DA0199734797D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:6F2CE48CA25FBD7C1CA3AF0680DA0199734797D1
 magnet:?xt=urn:btih:473EA3452449C9068BB15F7FEE2FAE7DF4FAE9F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:473EA3452449C9068BB15F7FEE2FAE7DF4FAE9F7
 ```bash
 magnet:?xt=urn:btih:A54BF0D0B5D0CA4A3B221C9524E6C3E3586B7789
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ VA - Example @ Arena Moscow (GeneticBros Official Mix)(2012) [MP3|320 кб/с] <
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ VA - Example @ Arena Moscow (GeneticBros Official Mix)(2012) [MP3|320 кб/с] <
 ```bash
 magnet:?xt=urn:btih:59E92645E3A2BF5CD4B8F36344CFC2F1F7121D04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:59E92645E3A2BF5CD4B8F36344CFC2F1F7121D04
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:59E92645E3A2BF5CD4B8F36344CFC2F1F7121D04
 magnet:?xt=urn:btih:D52D6B84A70CD50086050B696621D3A3AADD5946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:D52D6B84A70CD50086050B696621D3A3AADD5946
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +297,8 @@ Various Artists - Beavis and Butthead Do America (1996) [APE|Lossless]<rock/pop/
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ Various Artists - Beavis and Butthead Do America (1996) [APE|Lossless]<rock/pop/
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ Various Artists - Beavis and Butthead Do America (1996) [APE|Lossless]<rock/pop/
 magnet:?xt=urn:btih:F91E4096F46F1D3C4A1CD29A23A7643ACDED5138
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:F91E4096F46F1D3C4A1CD29A23A7643ACDED5138
 ```bash
 magnet:?xt=urn:btih:19EFACF6E6383B20A1780C3C524281A529174B04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +411,8 @@ VA - Brain Killer 53 Overkill (2012) [MP3|320 кб/с]<Electro,Electro House>
 magnet:?xt=urn:btih:0A8BEB8F5D589658A1D4F0D1B48044C08D42CD89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ magnet:?xt=urn:btih:0A8BEB8F5D589658A1D4F0D1B48044C08D42CD89
 ```bash
 magnet:?xt=urn:btih:D36C88C595D7CC67A4FC35FC17DB736517343AA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +463,8 @@ magnet:?xt=urn:btih:D36C88C595D7CC67A4FC35FC17DB736517343AA1
 magnet:?xt=urn:btih:3A6A76E9B51918A4448780CEDA75EE326574BC71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ magnet:?xt=urn:btih:3A6A76E9B51918A4448780CEDA75EE326574BC71
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:3A6A76E9B51918A4448780CEDA75EE326574BC71
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:3A6A76E9B51918A4448780CEDA75EE326574BC71
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ magnet:?xt=urn:btih:3A6A76E9B51918A4448780CEDA75EE326574BC71
 ```bash
 magnet:?xt=urn:btih:A72AE32A359965A3DD95FA23026AB1FE5201044F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ magnet:?xt=urn:btih:A72AE32A359965A3DD95FA23026AB1FE5201044F
 magnet:?xt=urn:btih:3C6D0ADAEF14737A6D227FCD414E686163543BA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ Kingdom O'Magic [Ru] (RePack) 1996 | Pilotus
 magnet:?xt=urn:btih:C9A87044008FA030DD5B1FE88D9DAD9EE8750FBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +647,8 @@ Daum PotPlayer - качественный проигрыватель файло�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +681,8 @@ Gunther Gobbel & Christian Greiner - Play For Pleasure. Finest Lounge Music (201
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ Gunther Gobbel & Christian Greiner - Play For Pleasure. Finest Lounge Music (201
 ```bash
 magnet:?xt=urn:btih:9D4D77205C8A1374790A3F9FFA7D236C9A6409B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

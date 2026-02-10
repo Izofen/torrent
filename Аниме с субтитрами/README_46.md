@@ -19,6 +19,8 @@ Karas /  Crow /  Карас  [2005, OVA,  6 эп.] BDRip 1080p raw
 magnet:?xt=urn:btih:643FFB862BC6546FCBA25F6EF703F01713F953B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Natsume Yuujinchou / Тетрадь дружбы Нацумэ (первый се
 magnet:?xt=urn:btih:26F6AC83FD916426058274CD3ACC479130EEEA2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Kiseijuu: Sei no Kakuritsu | Parasyte: The Maxim | Паразит [2015, TV, 24]
 ```bash
 magnet:?xt=urn:btih:4CEDD6935786338F3F07ACE702053648B3CE4F0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Macross Zero | Макросс Зеро [2002, OVA, 5 эп.] BDRip 1080p Hi10P ra
 magnet:?xt=urn:btih:9F4298E43FBDB1B04E0C0F758A792C455FFEAF97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Kidou Keisatsu Patlabor (1990) | Mobile Police Patlabor - The New Files | Пол
 ```bash
 magnet:?xt=urn:btih:78CC49A8F80703D2205E3F89D2A6287CAA85989C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Kimi ni Todoke / Reach You / Дотянуться до тебя [2009, TV, 25 э
 magnet:?xt=urn:btih:DF59568AC0B574BAA5E8EC8193D320D01FD5B8A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Bakuman / Бакуман [ТВ-1] [2010, TV, 25 из 25] BDrip 1080p Hi10p raw
 ```bash
 magnet:?xt=urn:btih:7794308CCB87E2F01BFC13FCA2AC7E678A4A2762
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Sora to Umi no Aida | Space Fish: Between the Sky and Sea | Между небо�
 magnet:?xt=urn:btih:4678D13CD8109502E90E56B2D2678F5CB5089833
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Hyakumannen Chikyuu no Tabi Bander Book | One Million-year Trip: Bander Book | �
 ```bash
 magnet:?xt=urn:btih:26DAA870AC897259D7F741092658A9EC3ABC0B04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Boku no Hero Academia / My Hero Academia / Моя геройская акаде�
 magnet:?xt=urn:btih:DF44F1786F4FE9CAC2E0821AB50F53B181B1E27A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Meitantei Conan | Detective Conan | Детектив Конан [1996, TV, 810-8
 ```bash
 magnet:?xt=urn:btih:2DBA41407986E8B121FCB77F2E0E9CE7F903E158
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Mahou Sensei Negima! | Negima! | Волшебный учитель Нэгима!
 magnet:?xt=urn:btih:BCB7CE98F51F73B7FE3A95F605DF127D23EB2268
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Bessatsu Olympia Kyklos | Экстра Олимпия Киклос | Олимп�
 ```bash
 magnet:?xt=urn:btih:D08CAB9007CF3F964526D270359B9FF0DD86097A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Try Knights | Упорные рыцари [2019, TV, 12] WEBRip 720p raw
 magnet:?xt=urn:btih:240467B260A7571CE866C1ABC97C602EE8CB063A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Machikado Mazoku | The Demon Girl Next Door | Городская дьяволи�
 ```bash
 magnet:?xt=urn:btih:0643A62C3F2A111C2CCB00C574F91DB4C396EFA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Panda Kopanda | Panda! Go, Panda! | Большая панда и маленьк�
 magnet:?xt=urn:btih:CE09660DBAE08AF93ACADB9219BA8E69989931FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Panda Kopanda: Amefuri Circus no Maki | Panda! Go, Panda!: Rainy Day Circus | Б
 ```bash
 magnet:?xt=urn:btih:58AFFFE9FB09F47CEE02A414706256F66D0EED8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Tomie | Томиэ [2018, Special, 2 эп.] WEB-DL 720p raw
 magnet:?xt=urn:btih:3D7A7DFD4857877E8FFD146382A1964447A8BCFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ One Piece 3D2Y: Ace no shi wo Koete! Luffy Nakama Tono Chikai | 3D2Y: Переж
 magnet:?xt=urn:btih:4A8E4E507F5AE335536C41293FB945A74813DE51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Kanokon рассказывает о приключениях возникающ�
 ```bash
 magnet:?xt=urn:btih:802E9F856AE69550F86ADDC6A0BB7B0CC3B1062A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Kingdom 4 / Царство [TB-4] [2022, TV, 26] WEBRip 720p raw
 magnet:?xt=urn:btih:E702120FBE991AA25B24141B097599F1A8A18102
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Aoki Hagane no Arpeggio: Ars Nova | Arpeggio of Blue Steel | Мелодия во
 magnet:?xt=urn:btih:3FE37A2ECF74E7A33CEE356C92F545C5F2CA9972
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Summer Time Render / Summer Time Rendering / Летний рендер / Лет�
 ```bash
 magnet:?xt=urn:btih:9BB3B58246B0D49726FEEAC37BE790CB15F6D561
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ Karakai Jouzu no Takagi-san 3 | Teasing Master Takagi-san 3 | Озорная Т�
 magnet:?xt=urn:btih:9C6368942C98FA2543F7D2B1A77886DA5707803C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Moonlight Mile 2nd Season - Touch down / Лунная миля 2 [2007, TV, 14] 
 magnet:?xt=urn:btih:33B5CE17512BDF3E7942595219722889F4FFFEB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Saiki Kusuo no Sainan S1+S2 | The Disastrous Life of Saiki K. | Ох уж это
 ```bash
 magnet:?xt=urn:btih:18E1764C7B2B3505C5D526B45395978D358E80E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

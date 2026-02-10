@@ -1,3 +1,29 @@
+###  Публикация: 1413884   (407140) от 05.10.2020
+
+И. Савенкова (ред.) | Просим к русскому столу (2012) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благодаря этой книге читатель получит полное общее представление о современной русской кухне. Страницы издания включают в себя обширную коллекцию рецептов с характерными чертами исконной русской кулинарии, знакомят с историей многих традиционных блюд, содержат полезные советы по их приготовлению. Рецепты составлялись лучшими поварами и богато проиллюстрированы.Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C1CEABB95A9D920349D15A57A0BB8F65E553DB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 560348   (407205) от 14.10.2012
 
 Скотт Троп | Учитесь думать как Эйнштейн [2003] [DJVU]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:036B86F1DF9227EEFF1E36724FDC74C5B68EA263
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:036B86F1DF9227EEFF1E36724FDC74C5B68EA263
 magnet:?xt=urn:btih:E3078598882CC4AF265E0D6620D4864A95C8B919
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:E3078598882CC4AF265E0D6620D4864A95C8B919
 ```bash
 magnet:?xt=urn:btih:1E1F7C4DD6F432B845377E1480BC573EF381E8D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:1E1F7C4DD6F432B845377E1480BC573EF381E8D2
 magnet:?xt=urn:btih:03C59C26B8928DEE10B04BD9BBA2418F89E20CDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:03C59C26B8928DEE10B04BD9BBA2418F89E20CDC
 ```bash
 magnet:?xt=urn:btih:606689B02C22ED85CEDB0740BF815CAA454B9A33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:606689B02C22ED85CEDB0740BF815CAA454B9A33
 magnet:?xt=urn:btih:638DD1D116FAD3809C237E413850088708804BEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:638DD1D116FAD3809C237E413850088708804BEC
 ```bash
 magnet:?xt=urn:btih:886F6852BFCB4E40491AEF995ACA779DB7642D59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:886F6852BFCB4E40491AEF995ACA779DB7642D59
 magnet:?xt=urn:btih:5C0648B6B881CA34E6399186289FCB388E88617A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:5C0648B6B881CA34E6399186289FCB388E88617A
 ```bash
 magnet:?xt=urn:btih:B15BB01B19DA0A125F86B9CDA07D0D04C0D6B090
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:B15BB01B19DA0A125F86B9CDA07D0D04C0D6B090
 magnet:?xt=urn:btih:736EC629B2154C3D20B94DADA267C0E2C0CC7139
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:736EC629B2154C3D20B94DADA267C0E2C0CC7139
 ```bash
 magnet:?xt=urn:btih:7B2578D3CBF60514B7B03F502E5EA8BDE4A20235
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:7B2578D3CBF60514B7B03F502E5EA8BDE4A20235
 magnet:?xt=urn:btih:7238D1F4FD638BA499A9FB66286ECA2EC3DE64AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:7238D1F4FD638BA499A9FB66286ECA2EC3DE64AD
 ```bash
 magnet:?xt=urn:btih:01C335E04AD2DAB00886ED899F45CA24B32F6096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:01C335E04AD2DAB00886ED899F45CA24B32F6096
 magnet:?xt=urn:btih:7C67CE9619EDBD2D7D18C25E44A8D2BBB392B0D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:7C67CE9619EDBD2D7D18C25E44A8D2BBB392B0D3
 ```bash
 magnet:?xt=urn:btih:9B5C825807C4FBA612BFE3C238E14DE9FD6225A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:9B5C825807C4FBA612BFE3C238E14DE9FD6225A0
 magnet:?xt=urn:btih:FE0CA5C409EB880A183E6D1DD863448CF51B35DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:FE0CA5C409EB880A183E6D1DD863448CF51B35DE
 magnet:?xt=urn:btih:72775BFABED67B8B23B59298197FE8112FFF8E76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:72775BFABED67B8B23B59298197FE8112FFF8E76
 ```bash
 magnet:?xt=urn:btih:6901C975F942C72777F4A05ECA5A3C2197012996
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:6901C975F942C72777F4A05ECA5A3C2197012996
 magnet:?xt=urn:btih:4F1000756C945F975C86DFC40CFB087EF58AF710
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:4F1000756C945F975C86DFC40CFB087EF58AF710
 ```bash
 magnet:?xt=urn:btih:97E0CCA7AF9E70D6FE8E998B1EB2525AF0E124F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:97E0CCA7AF9E70D6FE8E998B1EB2525AF0E124F8
 magnet:?xt=urn:btih:FD0B2557FAFC96CD9E65CB7B83F59A8C6B2CD5F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:FD0B2557FAFC96CD9E65CB7B83F59A8C6B2CD5F3
 ```bash
 magnet:?xt=urn:btih:DD2650AF463F46BF093DB66204EEA859548C7C05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:DD2650AF463F46BF093DB66204EEA859548C7C05
 magnet:?xt=urn:btih:A59D413AD20E5E27E7535860D2251362F2824A7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:A59D413AD20E5E27E7535860D2251362F2824A7F
 ```bash
 magnet:?xt=urn:btih:4457B64ECBD962733B7A81FD20BE81D44FE6EC25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,29 +681,7 @@ magnet:?xt=urn:btih:4457B64ECBD962733B7A81FD20BE81D44FE6EC25
 magnet:?xt=urn:btih:563A73ABBC36FAD51D51F1B4BC1EE777BADB0CBA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948868   (409032) от 21.10.2015
-
-Брайан Трейси | Убеждение. Уверенное выступление в любой ситуации (2016) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Умение выступать уверенно и проводить убедительные презентации помогает быстрее развивать карьеру, завоевывать уважение и добиваться своих целей. Многие люди не осознают, что стать великолепным оратором может каждый – это такой же развиваемый навык, как вождение автомобиля или езда на велосипеде. Брайан Трейси провел очень серьезный анализ и подробно рассказал в (   Читать дальше...   )Жанр: Практическая психология, достижение успехаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFC6FE6F2D7257B13B23D0FBD549301F0AC2E52B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

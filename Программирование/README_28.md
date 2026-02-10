@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:88F22DF1B2FE819C741C8B6623F17C974651A7F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:88F22DF1B2FE819C741C8B6623F17C974651A7F8
 magnet:?xt=urn:btih:0D7B400FEA2D7865869B55553E199449C1224EEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ C# - мощный язык программирования, который ст
 ```bash
 magnet:?xt=urn:btih:CD2A526670E247FDD8A05700FF925F52DF6B093F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:CD2A526670E247FDD8A05700FF925F52DF6B093F
 magnet:?xt=urn:btih:6D5A6272F10A0FF5E4BB727FC6F34CD1A44A1777
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:6D5A6272F10A0FF5E4BB727FC6F34CD1A44A1777
 ```bash
 magnet:?xt=urn:btih:E7032EA7A9727CEFC53E853E34C48044FE1F3189
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:E7032EA7A9727CEFC53E853E34C48044FE1F3189
 magnet:?xt=urn:btih:E827A628ACEB29C72770EB9D2997071C1965EBFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:E827A628ACEB29C72770EB9D2997071C1965EBFA
 magnet:?xt=urn:btih:2FEA3F8D68A1030786192750074F1D4289EE6C74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:2FEA3F8D68A1030786192750074F1D4289EE6C74
 ```bash
 magnet:?xt=urn:btih:321AD996EBF130D471655179D813823AD97AF105
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Backbone - это javascript-библиотека для тяжелых фрон
 magnet:?xt=urn:btih:CC4B4CFB7FF48AAC2198EF23CE46E49EBA6B7A51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Steve Belovarich | Fullstack Web Components (2020) [PDF, EPUB, MOBI] [EN]
 ```bash
 magnet:?xt=urn:btih:695516846460230B8113727B5B528844E4DA0A0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:695516846460230B8113727B5B528844E4DA0A0F
 magnet:?xt=urn:btih:7320C8D802D63A0DE7E7CAB6F06C0E38BBBEBB3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Raphael Amiard, Gustavo A. Hoffmann | Введение в язык програ�
 ```bash
 magnet:?xt=urn:btih:27D420B08107FE3650870564B4FAC306A6BFE078
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Silverlight 4 Unleashed охватывает весь процесс разра�
 magnet:?xt=urn:btih:495427A18C772E2DD7559B63A7A0162BC2D645C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:495427A18C772E2DD7559B63A7A0162BC2D645C8
 ```bash
 magnet:?xt=urn:btih:7797CC9A0C170CD93257167FFC86DB3EFEEDF34B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Linux Programming Interface – исчерпывающее руководств�
 magnet:?xt=urn:btih:D4224F99CAA3EA3625E051EF4EF19BE9188542A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:D4224F99CAA3EA3625E051EF4EF19BE9188542A5
 ```bash
 magnet:?xt=urn:btih:B361D8A4E2A3BAEA69028F12B5F3A1015097F0C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:B361D8A4E2A3BAEA69028F12B5F3A1015097F0C4
 magnet:?xt=urn:btih:F8397D61567F088CA2A8860B6089723F7F87FFE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:F8397D61567F088CA2A8860B6089723F7F87FFE0
 ```bash
 magnet:?xt=urn:btih:7F419F65CD0F0C5A64E5CD4586CF60B49595ACEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:7F419F65CD0F0C5A64E5CD4586CF60B49595ACEC
 ```bash
 magnet:?xt=urn:btih:941F864D45253AF0CE0C90B2F01FF0A49AE16B6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:941F864D45253AF0CE0C90B2F01FF0A49AE16B6E
 magnet:?xt=urn:btih:94EFA1C79519B1870A19814289633815BD3C0444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:94EFA1C79519B1870A19814289633815BD3C0444
 ```bash
 magnet:?xt=urn:btih:FDB8ED2237028A1FE02070DCBBDB31C846D8465A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ C# 7 - новая мощная и многофункциональная вер�
 magnet:?xt=urn:btih:93359C926B7A7990ED939846DFE185AF39CBD25C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:93359C926B7A7990ED939846DFE185AF39CBD25C
 ```bash
 magnet:?xt=urn:btih:B487D980F272EA12BAF81E4EA1F0F151E9F0DE47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:B487D980F272EA12BAF81E4EA1F0F151E9F0DE47
 magnet:?xt=urn:btih:BE9ED738CBB482D17EB15B8683EC5EF229B52930
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ David Griffiths, Dawn Griffiths | Head First C | Первое знакомств
 magnet:?xt=urn:btih:8FF5839BAA1A885A5635E55E65CF10DDD92504A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:8FF5839BAA1A885A5635E55E65CF10DDD92504A2
 ```bash
 magnet:?xt=urn:btih:E936D57D5E558CB16F157A3F5AA6FA6401B03815
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -24,6 +24,8 @@ Pretty Maids — датская рок-группа, основанная в 198
 magnet:?xt=urn:btih:873528554EF0589C946A6845EDFF0D18AC897748
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:873528554EF0589C946A6845EDFF0D18AC897748
 ```bash
 magnet:?xt=urn:btih:276201B1E44CAA2DB556F8054AE9CCC7DD6C9F93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Udemy, Олег Тимонькин и др. | Курс китайского яз
 magnet:?xt=urn:btih:60BD2B50E61A0290F9D6B13AA6575A9350A8862D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:60BD2B50E61A0290F9D6B13AA6575A9350A8862D
 magnet:?xt=urn:btih:BC7367C202EB8A35613A1268FE7131AC8ED222A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:BC7367C202EB8A35613A1268FE7131AC8ED222A9
 ```bash
 magnet:?xt=urn:btih:2E1DF8C44AE9B23B991FCB6B0CD440D1C139B31B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Joplin - это бесплатное приложение для создани�
 magnet:?xt=urn:btih:F759AEFAF011AFDDF301DCC49AAC90320A27333C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:F759AEFAF011AFDDF301DCC49AAC90320A27333C
 magnet:?xt=urn:btih:F6BFAD6FBE38D5B816FF26A35E8D2C7A788D1D5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:F6BFAD6FBE38D5B816FF26A35E8D2C7A788D1D5C
 ```bash
 magnet:?xt=urn:btih:A2C9837ED9B7232D483189DF4CD35FE30F5C476F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:A2C9837ED9B7232D483189DF4CD35FE30F5C476F
 ```bash
 magnet:?xt=urn:btih:6C12E788A5CB439ECD74A7CFD38F35171A19B7C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ Latter Reign - II (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Hair Metal>
 magnet:?xt=urn:btih:5FBECAD5E4C0C27DF9B37B52FF9AB0FE9D20F07E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ Ventoy - это инструмент с открытым исходным код
 magnet:?xt=urn:btih:412A02B8E2AA0E406B9AE7C8BCD85F578D2D9D37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:412A02B8E2AA0E406B9AE7C8BCD85F578D2D9D37
 ```bash
 magnet:?xt=urn:btih:9414A1B93D0033949276F083D269A8BEF345FC8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ CD - 4 - Part II: Flight Of The Migrator (Instrumentals)(   Читать дал�
 magnet:?xt=urn:btih:118DA451D46B4EA341BA5BBCB8E9EB15B41363A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ Exif Pilot - EXIF редактор используется для просмо�
 ```bash
 magnet:?xt=urn:btih:BC694B4D6450B53F6F914D3E955D5B4B048B5E72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:BC694B4D6450B53F6F914D3E955D5B4B048B5E72
 magnet:?xt=urn:btih:37785AC8067D98AFDDC95B65D437BEA8AF0BCB46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:37785AC8067D98AFDDC95B65D437BEA8AF0BCB46
 ```bash
 magnet:?xt=urn:btih:DC3B49A7476AC96BF1B56AC6344934F7113FF8C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ Slimjet 37.0.2.0 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:79F9B074890CF70218CDF6BE05E3CCD010F1FF6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:79F9B074890CF70218CDF6BE05E3CCD010F1FF6B
 ```bash
 magnet:?xt=urn:btih:31874B4A12329D2636B38A4F3D33EEE2BCE504CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:31874B4A12329D2636B38A4F3D33EEE2BCE504CE
 magnet:?xt=urn:btih:2ACE6540A55058367039B1D119D41531CDDF1E18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:2ACE6540A55058367039B1D119D41531CDDF1E18
 ```bash
 magnet:?xt=urn:btih:84A7E7CFEC8AE55ED42525CDF245FD86CC7D4F81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +555,8 @@ Penthouse: Лед и пламень / Penthouse: Fire and Ice (1997) DVDRip
 magnet:?xt=urn:btih:2421EE202F7254F2F9CA6ABD07175D2695FC150E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ GPU Shark - небольшая бесплатная и очень простая
 ```bash
 magnet:?xt=urn:btih:273A5D9B559AC04226C8B8F88807BEFFBE42EACD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:273A5D9B559AC04226C8B8F88807BEFFBE42EACD
 magnet:?xt=urn:btih:6C1B723E2B87C80CD96352BBCBA1ACEFFDFDE99E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:6C1B723E2B87C80CD96352BBCBA1ACEFFDFDE99E
 ```bash
 magnet:?xt=urn:btih:9B9321EDF10A0157AEC6FDD33D900018EBFB08BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ Udemy, Andrey Sumin | Полный курс Андроид + Java с нуля (2
 magnet:?xt=urn:btih:16D7C4CEBBBBB67120892A557702011DEDDC9B80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:16D7C4CEBBBBB67120892A557702011DEDDC9B80
 ```bash
 magnet:?xt=urn:btih:05FCCF4709DE7D0CBC0DBFD513AFC8C7B7C72300
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

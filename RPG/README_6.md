@@ -19,6 +19,8 @@ LUNAR Remastered Collection (2025) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:D4B7617D4EB2FE718C4B4B48F849ADE4FB68C6DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Union of Gnomes погружает вас в причудливую револю
 ```bash
 magnet:?xt=urn:btih:1185E36E390604E2D4E21095F0079B6945284F18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Caribbean Legend (2024) [Ru/Multi] (1.5.0/dlc) Repack Let'sРlay [Complete Editi
 magnet:?xt=urn:btih:5D5872BE891FA513961CAB401F19E744D8C868CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Sea of ​​Stars стремится модернизировать класс�
 ```bash
 magnet:?xt=urn:btih:1C02E77BA02AAECF501731F821982354C273D0D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Ys VIII: Lacrimosa of Dana - это ролевая игра в жанре JRPG, 
 magnet:?xt=urn:btih:BF7BC11074302E533E69854A16348B654D8484B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ System Shock 2: 25th Anniversary Remaster (2025) [Ru/Multi] (1.0.4258.0) Repack 
 ```bash
 magnet:?xt=urn:btih:61CA64EE7FF47DD46257BFF44CDACE612081B1B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ My Time At Portia (2019) [Ru/Multi] (20250620-1430-141719/dlc) License GOG
 magnet:?xt=urn:btih:62948E91210E53EB3148186B2FFB873007F483C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Yu-Gi-Oh! EARLY DAYS COLLECTION объединяет коллекцию клас
 ```bash
 magnet:?xt=urn:btih:7DC17B18CA37882280D5C7F1112205C2E7F7D9DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Tales of Maj’Eyal – это ролевая игра в стиле roguelike �
 magnet:?xt=urn:btih:62CEB84881376E09D411E21EBFA7A1201CAFE802
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Moonstone Island – это более 100 островов для исслед�
 ```bash
 magnet:?xt=urn:btih:5CAC1136B5E8807A5FA14DC32FBA6A20B2CCD485
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ KARMA: The Dark World (2025) [Ru/Multi] (karma250620) License GOG
 magnet:?xt=urn:btih:1AC8E7D20A73EA977FFDBD40B53541CE8FB4F678
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ DOOMER SIMULATOR погружает игрока в жизнь человека,
 ```bash
 magnet:?xt=urn:btih:755B76B4AB4B85B761C54E424DF88DF06FE5936F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.1.0.6) Repack FitGirl
 magnet:?xt=urn:btih:5D8CEF14F5D98956EECC00638400AEC724F439B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Caribbean Legend - пиратская РПГ с открытым миром по
 ```bash
 magnet:?xt=urn:btih:2A83FCA6FBA3014280AFD276B0C028B359AB9EAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Coridden (2025) [Ru/Multi] (1.3.1/dlc) License GOG
 magnet:?xt=urn:btih:2907D4505CE21B7E13548B57DA606F570616D64D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Sandwalkers – это пошаговый «рогалик», где главн�
 ```bash
 magnet:?xt=urn:btih:9762B02336B3D91B04D63135CD0804DFB7C6BAA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Trident's Tale (2025) [Multi] (20250529 133011 79336) License GOG
 magnet:?xt=urn:btih:DB983BC1ABBAFA35B1CFF6531B59BE4FA54A2E78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Bygone Dreams (2025) [Ru/Multi] (1.0.0.4) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:174CB5E9D7051552AC4691A06D6FED149B7CE173
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Dragons Reef (2025) [Ru/Multi] (1.2) Repack FitGirl
 magnet:?xt=urn:btih:746F05A20A465170FF91545386325803EA03D006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Crown Gambit - сюжетная тактическая игра, в которо
 ```bash
 magnet:?xt=urn:btih:2F4BFA7ED7AB5F9226A72BE7CFB8F1F894315AEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Medieval Dynasty (2020) [Ru/Multi] (2.4.0.3/dlc) Repack FitGirl [Ultimate Editio
 magnet:?xt=urn:btih:17B2361DEB763177EA846059E32A231843198A0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Warhammer 40,000: Space Marine II (2) (2024) [Ru/Multi] (8.0.0.1/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:602D5AAEACC9C27961D44B6CD9E9D41F3CB72DDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Fate Seeker 2 - продолжение первой части слэшера, �
 magnet:?xt=urn:btih:1AF042B4D629FA66C2D4C869E750498E6DEAD0D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ System Shock 2: 25th Anniversary Remaster (2025) [Multi] (Mod HotFix) Scene Rune
 ```bash
 magnet:?xt=urn:btih:04BF66758660DE4E7F28E5A6234E9FE36628ABDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Warhammer 40,000: Rogue Trader – это изометрическая роле�
 magnet:?xt=urn:btih:A181E08EF7EC052DAA40188126B528364DBF9919
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.05/dlc) Repack seleZen [S
 ```bash
 magnet:?xt=urn:btih:F8F86DD11C78E3E0C35C4C145368E5FF5EF77DD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

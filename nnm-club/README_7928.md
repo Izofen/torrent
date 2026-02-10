@@ -19,6 +19,8 @@ CCleaner - утилита для чистки мусора в операцион
 magnet:?xt=urn:btih:654166BDAA7659CAFEB0463E73419DA6F1F38434
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ R-Studio Network 9.0 Build 190312 RePack (& portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:912ED687FAE197570EB12936649A7EFECC91C7F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Blocs - простой способ создания красивых сайто
 ```bash
 magnet:?xt=urn:btih:1BA2BBA2E70B9EC49B4A73A948F31B6861669882
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:1BA2BBA2E70B9EC49B4A73A948F31B6861669882
 magnet:?xt=urn:btih:23969699B895D07EF130D09141F0AA90F2D11250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Rival Sons - Darkfighter (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues 
 magnet:?xt=urn:btih:E9F176C8B6620E85E3605AC3C355958124E96698
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:E9F176C8B6620E85E3605AC3C355958124E96698
 ```bash
 magnet:?xt=urn:btih:71E0E681DDB8EA45B8CF4555A9F0E4BA5734482D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ Theriomorph - Diabolical Bloodswords (2022) [FLAC|Lossless|WEB-DL|tracks] <Black
 magnet:?xt=urn:btih:67D3B5E23C3DDA754BD05C635D052E0C7752A1B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:67D3B5E23C3DDA754BD05C635D052E0C7752A1B3
 magnet:?xt=urn:btih:8479B04C0D2596B7A3E2E5D721F9FB5682D30EDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:8479B04C0D2596B7A3E2E5D721F9FB5682D30EDC
 ```bash
 magnet:?xt=urn:btih:D4FC605FF204518979C7BDC248C4F9D439075EAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:D4FC605FF204518979C7BDC248C4F9D439075EAD
 ```bash
 magnet:?xt=urn:btih:BE4C6BBA3AAF652F6F808F895B99D2C2F773E06D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ Sjotrollet - Relentless Cruelty of Fate (2023) [MP3|320 Kbps] <Apocalypse Black 
 magnet:?xt=urn:btih:F9F893001FF8127AB43E1BF992D1D0549B3D9ACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:F9F893001FF8127AB43E1BF992D1D0549B3D9ACA
 ```bash
 magnet:?xt=urn:btih:394586718700A7698F79D76FC241090F4D80D22E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ VA - Beach Vibes (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 magnet:?xt=urn:btih:CE7517978189194052C3E81ABC673D29A1434DA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ Proprofiling, Алексей Филатов | Нейромаркетинг и п
 ```bash
 magnet:?xt=urn:btih:166919FD4BA720BB21A2AFB00FAC3C87055E1AD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ Stahlkeller - Gefangen im Wahn (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 magnet:?xt=urn:btih:EE18E06057C59B68F3C618CFB20B568020744ADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ Jacky Terrasson - 53 (2019) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, S
 ```bash
 magnet:?xt=urn:btih:E1B7093635E2467A8CC67C2412A69946747C5751
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +464,8 @@ VA - Chill Vibes 2023 (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
 magnet:?xt=urn:btih:829EBDE29BBD2BE37C861CA05DD582B7F73FCB75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ SecuritySpy работает с широким спектром камер, чт
 ```bash
 magnet:?xt=urn:btih:54B0E78592E99D4D7854F051F3A07411DDC4CB79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +516,8 @@ magnet:?xt=urn:btih:54B0E78592E99D4D7854F051F3A07411DDC4CB79
 magnet:?xt=urn:btih:6DB4060435FCD02F53BD3EDA8E6AB3437092D308
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ magnet:?xt=urn:btih:6DB4060435FCD02F53BD3EDA8E6AB3437092D308
 magnet:?xt=urn:btih:CE681A46D1D980D481C5EF0D98A0FD42BCE28048
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:CE681A46D1D980D481C5EF0D98A0FD42BCE28048
 ```bash
 magnet:?xt=urn:btih:B22E8DB0DF2E45BE83613DC786717554FD6A5568
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +597,8 @@ VA - Ablazing Spring Sessions 2023 (2023) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:144172CCC97AE5EB06C6139463658BFA119A7339
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ Dash - очень удобное приложение, включающее в �
 ```bash
 magnet:?xt=urn:btih:6706AFC8216FE155E2C726A01B9B66AC9032310A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ magnet:?xt=urn:btih:6706AFC8216FE155E2C726A01B9B66AC9032310A
 magnet:?xt=urn:btih:6FCB0C0C18DF4FB455411C9C43C298070A0E4BE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ magnet:?xt=urn:btih:6FCB0C0C18DF4FB455411C9C43C298070A0E4BE6
 ```bash
 magnet:?xt=urn:btih:E05D1F353071D0C894C2446148317C8E6F0E119D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +706,8 @@ Stella Rose (Gahan) - Eye Of Glass (2023) [MP3|320 Kbps] <Alternative, Post Punk
 ```bash
 magnet:?xt=urn:btih:F96AB523A0BFB606A7DC78C0153FA4DADA9A848E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Comica v1.41 [En] - превратить фотографии в комиксы 
 magnet:?xt=urn:btih:61CAD905B5D8EABA9FEA9B20A4A5DDEE01A7DAC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Fluenz 2.6.1 [En]
 magnet:?xt=urn:btih:5F80D2DE6A6F3DAFB4E65614F441C2D1926342C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Business English by BEP 1.6 [En]
 ```bash
 magnet:?xt=urn:btih:40B83EC20BE093D08C20FBBA8C38F04FCC911239
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Learn Languages with Music 2.1.3 [En]
 magnet:?xt=urn:btih:44B222D842F62DDDF86C74674101469DE9EB8040
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Barcode Scanner v4.7.4 / Barcode Scanner+ v1.12.2 [Ru/Multi] - Сканер шт
 magnet:?xt=urn:btih:3F84CFB627B0172CE45E96C81AB5308A49A144AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:3F84CFB627B0172CE45E96C81AB5308A49A144AC
 ```bash
 magnet:?xt=urn:btih:E6E7AD365BB40CA14448FD40866BA90B492DFA29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Ace Stream Media 3.1.11.2 [Ru/Multi]
 magnet:?xt=urn:btih:57D5277052BF04581CEB4D9F5655DF6348E9C520
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Boat Browser – это первый браузер который поддер�
 magnet:?xt=urn:btih:57A208EC8C424500AC08D53D62674D8F030FC8E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ InstaSave - приложение для загрузки фото и видео 
 ```bash
 magnet:?xt=urn:btih:7B60B263AD4997901A81FCBCB507108768FD320C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ TikTok – это социальная сеть, в которой вы може
 magnet:?xt=urn:btih:03401AE904A5D0ACBA8BC3BA4A41017621BC3B39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ SkySafari 6 Pro революционизирует ваши астрономич
 ```bash
 magnet:?xt=urn:btih:26197BD3D5DB396B7B1A20D8468746C8D64223F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Manual Camera Pro : DSLR Camera HD Professional v2.9D [Ru/En]
 magnet:?xt=urn:btih:F7045A50184B048BF8536FDD718E216451B15521
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ ImageMeter предоставляет инструменты, которые п�
 ```bash
 magnet:?xt=urn:btih:1C00701421DD36D0E2B049CBF3532C3DC2F64B5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ Prisma превращает ваши фотографии в произведе�
 magnet:?xt=urn:btih:649E14920F5CF2B212CA766CE8FC479EFB39B013
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ OpenVPN v0.7.21 [En/Ru]
 ```bash
 magnet:?xt=urn:btih:1FF448F011B5A0D4DC03028711861EB4138F148B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ ProgTV - простое, но удобное и универсальное пр�
 magnet:?xt=urn:btih:69A8228814458C8CF048D2EAED94B3659E804254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:69A8228814458C8CF048D2EAED94B3659E804254
 ```bash
 magnet:?xt=urn:btih:E5EB003A4515EF127EC8864DE8A8236429C389AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Yokee™ - это караоке-приложение №1, благодаря �
 magnet:?xt=urn:btih:1372C927745BECBE828E01198A925D435542EFBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Radio Garden v2.1.3 [En] - радиостанции мира на интерак
 ```bash
 magnet:?xt=urn:btih:D65D329EA26CD52D66150BFB23DE41A6C9EA9915
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Rotation - Orientation Manager v25.0.2 [Ru/Multi]
 magnet:?xt=urn:btih:CA22B035E00379FB823CF49ADF069ABEB8FB2259
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Maths Formulas v9.6 Paid [Ru/Multi] - Сборник формул и кальк�
 ```bash
 magnet:?xt=urn:btih:A9D9CAF45130E13A185E92B16A2EDABF808E8E00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:A9D9CAF45130E13A185E92B16A2EDABF808E8E00
 magnet:?xt=urn:btih:B15CEED4CE00153258F2B6BFCAAC74FDF2F61373
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ Package Disabler Pro 6.6 [Ru]
 ```bash
 magnet:?xt=urn:btih:2D29CB93FD39FDB52A0538996684E8638AA6BA69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:2D29CB93FD39FDB52A0538996684E8638AA6BA69
 magnet:?xt=urn:btih:AC50C878A3B7A4FE656C493BF6820A88998E820E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Vpn Украина это Быстрый и бесплатный VPN-серви�
 ```bash
 magnet:?xt=urn:btih:6242A1BDBF67C61525D26C10AF03EAB4BEAE1B39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +683,8 @@ Wink Plus Mobile: обновленный мобильный мод. Эта ве�
 ```bash
 magnet:?xt=urn:btih:0A78FB7DD8DB26493D843367F07B812C7C382443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

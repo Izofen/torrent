@@ -1,51 +1,3 @@
-###  Публикация: 1181961   (321303) от 08.11.2017
-
-Шаблоны - Creative Market - Future CD Cover Artwork [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот шаблона обложки компакт-диска предназначен для создания собственного неповторимого альбома.Формат: PSDРазрешение файлов: 1441x1441-1847x1469
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8395C4BBAF0DF7ACB53F5C98A87F840042351BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181799   (321304) от 08.11.2017
-
-Any Video Converter Ultimate 6.2.0 RePack (& Portable) by ZVSRus [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Any Video Converter Ultimate - предоставляет пользователям DVD риппер все-в-одном, конвертер видео и создание DVD, который поможет вам преобразовывать DVD во все популярные видео форматы, включая MP4, AVI, RM, RMVB, QT, MOV, 3GP, 3G2, FLV, MPEG-1, MPEG-2, DVR-MS, VOB, MKV, ASF, DivX, OGM в MP4, AVI, WMV, 3GP, 3G2, FLV, MPG и SWF с быстрой скоростью преобразования (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF9400F6CA8E322D413EDB9808D4E1D10D78246
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181977   (321305) от 08.11.2017
 
 Владимир Высоцкий - Шуточные и сатирические песни (2002) [FLAC|Lossless|image + .cue] <Авторская песня>
@@ -69,6 +21,8 @@ magnet:?xt=urn:btih:CAF9400F6CA8E322D413EDB9808D4E1D10D78246
 ```bash
 magnet:?xt=urn:btih:A6BEA404E02E0D1CD6AB30FBA49C0FC2C189B62A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +51,8 @@ Chris Rea - The Very Best (2001) [FLAC|Lossless|image + .cue] <Blues Rock, Soft-
 magnet:?xt=urn:btih:A71BA12C3660D11FEACC1324CBE9056A78721487
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +76,8 @@ magnet:?xt=urn:btih:A71BA12C3660D11FEACC1324CBE9056A78721487
 ```bash
 magnet:?xt=urn:btih:84D5C93D95FC55109D96FAFF49A809BF3DA19E46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +103,8 @@ GreenBrowser 6.9.1223 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:03302030E4E98A076747BC49C04654D65781D835
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +128,8 @@ magnet:?xt=urn:btih:03302030E4E98A076747BC49C04654D65781D835
 ```bash
 magnet:?xt=urn:btih:B272FC99B5A85069F967A6C808325FC5F18C565A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +156,8 @@ magnet:?xt=urn:btih:B272FC99B5A85069F967A6C808325FC5F18C565A
 magnet:?xt=urn:btih:BFCD535F2D1D7632A10794282DA3EC27B3CDE170
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +181,8 @@ magnet:?xt=urn:btih:BFCD535F2D1D7632A10794282DA3EC27B3CDE170
 ```bash
 magnet:?xt=urn:btih:45776ED52A22EA7C9037FFB24E1EAC0F7F06D1B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +210,8 @@ magnet:?xt=urn:btih:45776ED52A22EA7C9037FFB24E1EAC0F7F06D1B2
 magnet:?xt=urn:btih:321E8D51D5C17FA9D911E4023B1114EBD7E6CCFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +236,8 @@ magnet:?xt=urn:btih:321E8D51D5C17FA9D911E4023B1114EBD7E6CCFA
 magnet:?xt=urn:btih:F451A7206336D18C69A189847A5434021DDD5A35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +261,8 @@ magnet:?xt=urn:btih:F451A7206336D18C69A189847A5434021DDD5A35
 ```bash
 magnet:?xt=urn:btih:978CD396DA5D7A281EDE8B3785AA24BEAD10B1B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +290,8 @@ magnet:?xt=urn:btih:978CD396DA5D7A281EDE8B3785AA24BEAD10B1B1
 magnet:?xt=urn:btih:A40024A9542B893598DEB892AB2C22C982356815
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +317,8 @@ magnet:?xt=urn:btih:A40024A9542B893598DEB892AB2C22C982356815
 magnet:?xt=urn:btih:1F8151F08286C8671B747B60E1D0194DDB27FA82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +342,8 @@ magnet:?xt=urn:btih:1F8151F08286C8671B747B60E1D0194DDB27FA82
 ```bash
 magnet:?xt=urn:btih:D1B2183FB6D6A727116C90B13DB21156D5F0AC29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +369,8 @@ magnet:?xt=urn:btih:D1B2183FB6D6A727116C90B13DB21156D5F0AC29
 magnet:?xt=urn:btih:2ECA73DC4274D07075DB68778E9A5D0231912AF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +394,8 @@ magnet:?xt=urn:btih:2ECA73DC4274D07075DB68778E9A5D0231912AF3
 ```bash
 magnet:?xt=urn:btih:C016C9B7F97CCF5BEF17D5519DFB3275EDD481AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +421,8 @@ magnet:?xt=urn:btih:C016C9B7F97CCF5BEF17D5519DFB3275EDD481AC
 magnet:?xt=urn:btih:A36B1C509A939FF790D4CD36A987C3E72B9E830B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +446,8 @@ magnet:?xt=urn:btih:A36B1C509A939FF790D4CD36A987C3E72B9E830B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +473,8 @@ magnet:?xt=urn:btih:A36B1C509A939FF790D4CD36A987C3E72B9E830B
 magnet:?xt=urn:btih:0EDE796E96BC3216F60D6562E2DDC7369EEC03D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +498,8 @@ magnet:?xt=urn:btih:0EDE796E96BC3216F60D6562E2DDC7369EEC03D5
 ```bash
 magnet:?xt=urn:btih:2564CA93E942DAB26C645B0ACC0213689ED92092
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +525,8 @@ magnet:?xt=urn:btih:2564CA93E942DAB26C645B0ACC0213689ED92092
 magnet:?xt=urn:btih:9F6D6AE16B426953E82B997DA992154C94B05991
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +551,8 @@ magnet:?xt=urn:btih:9F6D6AE16B426953E82B997DA992154C94B05991
 magnet:?xt=urn:btih:7FA7933C2234E9DE0B8BB895AEE0CDB906912D19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +576,8 @@ Wallpapers - Chevrolet Full HD [JPEG]
 ```bash
 magnet:?xt=urn:btih:D2FB1E85084152878BCA8A7CCAA3763BCAF91970
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +606,8 @@ VA - Much Dance 2015 (2014) [MP3|320 кб/с]<Pop, Electronic, Club, Dance>
 magnet:?xt=urn:btih:CBEA40E5AFF9A1DAD53E4B77CD9B55E41C1DB025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +631,60 @@ magnet:?xt=urn:btih:CBEA40E5AFF9A1DAD53E4B77CD9B55E41C1DB025
 ```bash
 magnet:?xt=urn:btih:F913885DEB1ED12E763962A1C1B28A269705D448
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958693   (321361) от 22.11.2015
+
+Ashampoo Burning Studio 16.0.0.25 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ashampoo Burning Studio 16 - это всё то, о чём Вы просили. Откройте простейший способ достичь профессиональных результатов с чрезвычайно интуитивной, компактной, ещё более мощной программой для записи. Видео DVD с полностью анимированными меню, музыкальные CD с собственными обложками, защищённые паролем резервные копии данных и многое другое всего в паре кликов от (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31B5B19240BF6E5DE0C970AC69E904509FC2CA54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958950   (321362) от 22.11.2015
+
+Уральские пельмени. Все лето в шляпе  (2015.11.22) DVB [H.264]
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весёлые парни в мандариновых рубашках не дадут соскучиться и подарят отличное настроение всей семье. У юмора «Уральских пельменей» нет возрастных ограничений, они избегают «шуток ниже пояса» и на их концертах пятилетние дети смеются рядом с 50-ти летними взрослыми. Новое комедийное шоу включает в себя как самостоятельные сценические истории, так и импровизации с (   Читать дальше...   )Телекомпания: СТСЖанр: ЮморПродолжительность: 01:08:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01505947991B7E640F0348A632E2F2E7703915F1
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1849812   (1053569) от 24.01.2026
+
+Владимир Поселягин | Красноармеец (Книга 3). Фронтовик (2024) [MP3, Алексей Воскобойников]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третья книга в серии «Красноармеец»!
+
+Наступаем! Скоро Берлин возьмём, а что дальше? А дальше мирная жизнь. Вот только у Германа не всё так просто…
+(   Читать дальше...   )Жанр: Историческая фантастика, попаданцыИздательство: Аудиокнига (АСТ)Продолжительность: 12:14:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCDE65BD98F4A916000B2B5AFFA0CD4A911D42F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849814   (1053570) от 24.01.2026
 
 Владимир Поселягин | Красноармеец (Книга 4). Одержимый (2024) [MP3, Алексей Воскобойников]
@@ -21,6 +50,8 @@
 ```bash
 magnet:?xt=urn:btih:0F88E5BEC39DFBD0D5E51C1AE4247BFB144C06F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +77,8 @@ magnet:?xt=urn:btih:0F88E5BEC39DFBD0D5E51C1AE4247BFB144C06F5
 magnet:?xt=urn:btih:9089E870296EAD3BC2864CC962976841B1D7F1B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +102,8 @@ magnet:?xt=urn:btih:9089E870296EAD3BC2864CC962976841B1D7F1B9
 ```bash
 magnet:?xt=urn:btih:E9284E8F36077BC48A7007556182BC58D6997C20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +129,8 @@ magnet:?xt=urn:btih:E9284E8F36077BC48A7007556182BC58D6997C20
 magnet:?xt=urn:btih:4A6F44685541CBBFD635E06F49133DEEFD5C27C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +154,8 @@ magnet:?xt=urn:btih:4A6F44685541CBBFD635E06F49133DEEFD5C27C7
 ```bash
 magnet:?xt=urn:btih:1779C435FBA3FC7BE142D2BC5A71AABDAEE880EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +181,8 @@ magnet:?xt=urn:btih:1779C435FBA3FC7BE142D2BC5A71AABDAEE880EA
 magnet:?xt=urn:btih:3E2C06AB2EC0E031D2A0B2121BDFF0EF23F57089
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +206,8 @@ magnet:?xt=urn:btih:3E2C06AB2EC0E031D2A0B2121BDFF0EF23F57089
 ```bash
 magnet:?xt=urn:btih:161EA40B8040F78417B0A26059F52C62F183A494
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +233,8 @@ magnet:?xt=urn:btih:161EA40B8040F78417B0A26059F52C62F183A494
 magnet:?xt=urn:btih:13604E54688B24F8F08714BA5A5DC3A54D3ECB3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +258,8 @@ magnet:?xt=urn:btih:13604E54688B24F8F08714BA5A5DC3A54D3ECB3C
 ```bash
 magnet:?xt=urn:btih:6416BE196C063BD0D2B9056B49EA6374441367AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +285,8 @@ magnet:?xt=urn:btih:6416BE196C063BD0D2B9056B49EA6374441367AA
 ```bash
 magnet:?xt=urn:btih:24CFE5A0663E38DA218D301EE9E509C0C19881F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +314,8 @@ magnet:?xt=urn:btih:24CFE5A0663E38DA218D301EE9E509C0C19881F7
 magnet:?xt=urn:btih:D673027603314F6203B7E5CFE1A949D0E7483D62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +341,8 @@ magnet:?xt=urn:btih:D673027603314F6203B7E5CFE1A949D0E7483D62
 magnet:?xt=urn:btih:C05396E0D3D6DF9763DBEF3D11E1CFA8D1846461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +366,8 @@ magnet:?xt=urn:btih:C05396E0D3D6DF9763DBEF3D11E1CFA8D1846461
 ```bash
 magnet:?xt=urn:btih:C8EEF819DCFBC1280A320D24257B640A5737B665
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +393,8 @@ magnet:?xt=urn:btih:C8EEF819DCFBC1280A320D24257B640A5737B665
 magnet:?xt=urn:btih:FEE5DECEE1438B931FCA686B36F6CF2AE0AE43E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +418,8 @@ magnet:?xt=urn:btih:FEE5DECEE1438B931FCA686B36F6CF2AE0AE43E0
 ```bash
 magnet:?xt=urn:btih:D1D1326E11EED7023E021B186414D67799A8367C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +445,8 @@ magnet:?xt=urn:btih:D1D1326E11EED7023E021B186414D67799A8367C
 magnet:?xt=urn:btih:BA8AF2E046BC238AF39D831D3843E85728C1A14F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +470,8 @@ magnet:?xt=urn:btih:BA8AF2E046BC238AF39D831D3843E85728C1A14F
 ```bash
 magnet:?xt=urn:btih:2D9E217780E822F7CAD34CDC0B50394C7953F9B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +499,8 @@ magnet:?xt=urn:btih:2D9E217780E822F7CAD34CDC0B50394C7953F9B9
 magnet:?xt=urn:btih:64BB96C1BD9D93B913620224C4FD53054C25AA77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +525,8 @@ magnet:?xt=urn:btih:64BB96C1BD9D93B913620224C4FD53054C25AA77
 magnet:?xt=urn:btih:ACA8D76327BC85C5656F0ADAF52E9DB014D18B8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +550,8 @@ D_Kart | Амплерикс (Книга 1). Серый камень (2024) [MP3,
 ```bash
 magnet:?xt=urn:btih:2737911D852D030870CB681CD084EB086532E101
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +578,8 @@ magnet:?xt=urn:btih:2737911D852D030870CB681CD084EB086532E101
 magnet:?xt=urn:btih:90F7D1233414366F3C9F64DF426365A20B3FC5F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +603,8 @@ magnet:?xt=urn:btih:90F7D1233414366F3C9F64DF426365A20B3FC5F5
 ```bash
 magnet:?xt=urn:btih:BE26B451B8555FE38A6DC849EB2077A6F4F8E4E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +633,8 @@ magnet:?xt=urn:btih:BE26B451B8555FE38A6DC849EB2077A6F4F8E4E5
 magnet:?xt=urn:btih:97C61FCC7D2EA1D232626B04C3AE668561272BBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +658,8 @@ magnet:?xt=urn:btih:97C61FCC7D2EA1D232626B04C3AE668561272BBA
 ```bash
 magnet:?xt=urn:btih:C794C1E55F2790C40E61CC3F07F2639BE39B0CEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,31 +685,7 @@ magnet:?xt=urn:btih:C794C1E55F2790C40E61CC3F07F2639BE39B0CEC
 magnet:?xt=urn:btih:730F50B91857E70FB4BFFB1B373168B3B48694B3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849445   (1053786) от 23.01.2026
-
-Джон Демидов | Система компиляции (Книга 2). Становление (2025) [MP3, Алексей Семёнов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053786.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Становление" – роман Джона Демидова, вторая книга цикла «Система компиляции», жанр реалРПГ, литРПГ, героическая фантастика.
-
-Приключения Максима и его друзей продолжаются. Обещание Максима завело его в загребущие ручки той, от кого он старался оказаться как можно дальше. Наш герой благородно пожертвовал собой, чтобы спасти доверившихся ему людей, и сейчас, (   Читать дальше...   )Жанр: фантастика, приключения, РеалРПГИздательство: ИДДКПродолжительность: 07:24:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D90C8D9E8AA4890869040ABC0684B42D75E01BB8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

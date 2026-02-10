@@ -19,6 +19,8 @@ Hellcard выполнен в той же стилистике, что и ори�
 magnet:?xt=urn:btih:2A04DE7E1A5081EBA17AC0BC2D740827108291DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:2A04DE7E1A5081EBA17AC0BC2D740827108291DE
 ```bash
 magnet:?xt=urn:btih:2964BC783FD1F4094C1B01E68FB0E91062B832FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ TeraByte Image for Windows 3.64 + BootCD [Multi/Ru]
 magnet:?xt=urn:btih:49DF766E5F2B9F51B7BE9816E41ED12FBE5F7372
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Gatekeeper (2024) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:2463D61164F019290422A416B205D6F2CA15366C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:2463D61164F019290422A416B205D6F2CA15366C
 magnet:?xt=urn:btih:24790238DF45AF75E3A31F3FD3965C893BDC11DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Bus Flipper: Renovator Simulator ставит игрока на место ре�
 ```bash
 magnet:?xt=urn:btih:C325FF1C4CF20D0A2B943304FC6592D0DEB1D560
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:C325FF1C4CF20D0A2B943304FC6592D0DEB1D560
 magnet:?xt=urn:btih:45232F27A6B49822D91EA505D62373D0ECB25348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:45232F27A6B49822D91EA505D62373D0ECB25348
 magnet:?xt=urn:btih:E62DEF2B5310C4367C0F2719AC7159BEF56BA37F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Ikarus Parkour (2025) [Ru/Multi] (2.7) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:AE38B79CF0E2AA204E6BC35ABB5A726799109BCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ VA - Car Music Mix 7 (2025) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
 magnet:?xt=urn:btih:1AB9EAB0C02295170C6228EE51027CA359AB2436
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:1AB9EAB0C02295170C6228EE51027CA359AB2436
 ```bash
 magnet:?xt=urn:btih:D0BEAE9CE9AEB70BE1BF578254F67939B755B429
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:D0BEAE9CE9AEB70BE1BF578254F67939B755B429
 magnet:?xt=urn:btih:D166F884886C22DFEED2FF92114F6056A9ABED2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:D166F884886C22DFEED2FF92114F6056A9ABED2D
 magnet:?xt=urn:btih:CF74D2601AFD5B5C5BF67F4724408744CC9EFD6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:CF74D2601AFD5B5C5BF67F4724408744CC9EFD6C
 ```bash
 magnet:?xt=urn:btih:039CE4D410F81CC0D694B156BC0C921FEB86E261
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:039CE4D410F81CC0D694B156BC0C921FEB86E261
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:039CE4D410F81CC0D694B156BC0C921FEB86E261
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:039CE4D410F81CC0D694B156BC0C921FEB86E261
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:039CE4D410F81CC0D694B156BC0C921FEB86E261
 magnet:?xt=urn:btih:FB36B85E73DB8EDCE6AFECB978E7ED3EA743D30E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:FB36B85E73DB8EDCE6AFECB978E7ED3EA743D30E
 ```bash
 magnet:?xt=urn:btih:61A66F1CE879049714A947697D7D7CE66D50AB67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:61A66F1CE879049714A947697D7D7CE66D50AB67
 magnet:?xt=urn:btih:C6BD3663ED793AC071E22CC7C550A2277B716DD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:C6BD3663ED793AC071E22CC7C550A2277B716DD4
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ Golden Earring - рок-группа, пожалуй, самая долгоиг�
 magnet:?xt=urn:btih:D085474E4C91E8D5E05020EEAEEA271799BFB8B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:D085474E4C91E8D5E05020EEAEEA271799BFB8B8
 ```bash
 magnet:?xt=urn:btih:55D4FF628A5DF30BC5E36FDDA7D3A2E246135218
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:55D4FF628A5DF30BC5E36FDDA7D3A2E246135218
 magnet:?xt=urn:btih:EA3C3560CEF6D96F94E68DACA282EC4CF11EBA73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:EA3C3560CEF6D96F94E68DACA282EC4CF11EBA73
 ```bash
 magnet:?xt=urn:btih:6DFE54E302DBEA8C32E17D4947722461B89F55BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:6DFE54E302DBEA8C32E17D4947722461B89F55BF
 ```bash
 magnet:?xt=urn:btih:22EDB066B67158147030E1DB91D8632C6509C964
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

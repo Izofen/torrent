@@ -1,3 +1,29 @@
+###  Публикация: 1204272   (784842) от 05.02.2018
+
+Роберт Киган, Лайза Лейхи | Неприятие перемен (2017) [PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современные руководители и их команды зачастую сталкиваются с проблемой крайне тяжелого внедрения перемен в организации. Люди сопротивляются любым изменениям – даже если всем сердцем их поддерживают. Исследования в этой области показывают, что проблема перемен зачастую не является проблемой воли. Основной трудностью становится устранение разрыва между тем, чего мы (   Читать дальше...   )Жанр: Зарубежная деловая литератураФормат: PDF, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1A5F2171C70B335CF9D4A45686C125D2E903C11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203964   (784879) от 05.02.2018
 
 Михаил Чумазов | Предназначение [3-е издание] (2018) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:6CD0A3F3D97FF3023BA6871B44DBD7096E570D5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:6CD0A3F3D97FF3023BA6871B44DBD7096E570D5B
 magnet:?xt=urn:btih:778D447F9550D2B5571C715FFDF39900AD4759F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:778D447F9550D2B5571C715FFDF39900AD4759F1
 ```bash
 magnet:?xt=urn:btih:A3340B9F3A4CCF65CC0AAD8C11FCFE5599A4328C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:A3340B9F3A4CCF65CC0AAD8C11FCFE5599A4328C
 magnet:?xt=urn:btih:3C6E6730951969DB9E61C72F8EC592D824A10419
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:3C6E6730951969DB9E61C72F8EC592D824A10419
 ```bash
 magnet:?xt=urn:btih:547F08B582185CEC390E3325F4F9907C42006621
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:547F08B582185CEC390E3325F4F9907C42006621
 magnet:?xt=urn:btih:EE8AB20181CCE4F35E2D98720598365D5BE138B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:EE8AB20181CCE4F35E2D98720598365D5BE138B3
 magnet:?xt=urn:btih:D2A9B6B657E467382523A296BE05D74A314C82FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:D2A9B6B657E467382523A296BE05D74A314C82FE
 ```bash
 magnet:?xt=urn:btih:55D3269AD0FDE3EAD336C28B4E335772A1C005E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:55D3269AD0FDE3EAD336C28B4E335772A1C005E3
 magnet:?xt=urn:btih:A8B00922E49ACC9D6F7CBC0E9610CAF93CD4476B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:A8B00922E49ACC9D6F7CBC0E9610CAF93CD4476B
 ```bash
 magnet:?xt=urn:btih:9AC2D7A4698FD7C78DFC4FB8C46864DD15801EF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:9AC2D7A4698FD7C78DFC4FB8C46864DD15801EF5
 magnet:?xt=urn:btih:887E7B86B95D1C1B3164466D505810075383B766
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:887E7B86B95D1C1B3164466D505810075383B766
 magnet:?xt=urn:btih:1AE530337959E52C9C4A84CE3F1B3F12DB64F88B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:1AE530337959E52C9C4A84CE3F1B3F12DB64F88B
 ```bash
 magnet:?xt=urn:btih:CB05646E717EB3445055A65030162817C3BA23EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:CB05646E717EB3445055A65030162817C3BA23EB
 ```bash
 magnet:?xt=urn:btih:84AED27A5A21A1772D6DF89E03E577E25402A2A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +421,8 @@ magnet:?xt=urn:btih:84AED27A5A21A1772D6DF89E03E577E25402A2A7
 magnet:?xt=urn:btih:168BCE2ED2716D500CF43ED859C28B5D389CD27A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +448,8 @@ magnet:?xt=urn:btih:168BCE2ED2716D500CF43ED859C28B5D389CD27A
 magnet:?xt=urn:btih:362D443131A7D817C5FAA84DE217114EC2B30F4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:362D443131A7D817C5FAA84DE217114EC2B30F4E
 ```bash
 magnet:?xt=urn:btih:AA41D519DF47878F642ECDD86C0C50E32604DF19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +502,8 @@ magnet:?xt=urn:btih:AA41D519DF47878F642ECDD86C0C50E32604DF19
 magnet:?xt=urn:btih:D871A8E699EED07B0EDD34F8F124C249B12B9CA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +527,8 @@ magnet:?xt=urn:btih:D871A8E699EED07B0EDD34F8F124C249B12B9CA0
 ```bash
 magnet:?xt=urn:btih:7451E1E91D0794A678F260128556D815A4B6C4D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +554,8 @@ magnet:?xt=urn:btih:7451E1E91D0794A678F260128556D815A4B6C4D2
 magnet:?xt=urn:btih:0E1D0308EC2C3422E90E029FC08FBCDC5AC0BB11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:0E1D0308EC2C3422E90E029FC08FBCDC5AC0BB11
 ```bash
 magnet:?xt=urn:btih:6AD2D4404A8B0434F75362A7EC5158DE67F29084
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:6AD2D4404A8B0434F75362A7EC5158DE67F29084
 magnet:?xt=urn:btih:4E71804B24E69110C4C92A2D699EA1ECE397C9F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:4E71804B24E69110C4C92A2D699EA1ECE397C9F7
 ```bash
 magnet:?xt=urn:btih:BA581B9E8CE3E48E84A7A51876BD763027F8506A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:BA581B9E8CE3E48E84A7A51876BD763027F8506A
 magnet:?xt=urn:btih:7B9F1DE1FE83AF6D21F6F7EB87A110F04CE4FF01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,29 +684,7 @@ magnet:?xt=urn:btih:7B9F1DE1FE83AF6D21F6F7EB87A110F04CE4FF01
 magnet:?xt=urn:btih:0698EBD90D4F1D68BAED89A87A60BAD0144A8BC8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124773   (785596) от 12.04.2017
-
-Игорь Добротворский | Переговоры на 100%. Технологии эффективных переговоров (2007) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785596.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: В книге ведущего отечественного эксперта по личностному и профессиональному развитию Игоря Добротворского систематизированы наиболее эффективные методы ведения деловых переговоров, применяемые в современном мире. Исследуются конкретные жизненные ситуации, анализируются ошибки, даются ценные рекомендации по тактике и стратегии успешного партнерства. Также (   Читать дальше...   )Жанр: Презентация. ПереговорыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:320515E78A976C683554B7E66F6B7F0640F64C0D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

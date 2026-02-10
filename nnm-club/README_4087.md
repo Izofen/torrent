@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:18EBC21B5E91DAE3A389D3B924BEE40A97D0438B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:18EBC21B5E91DAE3A389D3B924BEE40A97D0438B
 ```bash
 magnet:?xt=urn:btih:4DDCB7391BDC5981A9AFEBB1F466805AB2F4675E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:4DDCB7391BDC5981A9AFEBB1F466805AB2F4675E
 magnet:?xt=urn:btih:2370E488067BD21490431EE246FD9FF0705C3E4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:2370E488067BD21490431EE246FD9FF0705C3E4F
 magnet:?xt=urn:btih:A838BBC7B9435DCC4CB1CB624E5CA3CF35E55776
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:A838BBC7B9435DCC4CB1CB624E5CA3CF35E55776
 ```bash
 magnet:?xt=urn:btih:EF2AB44C4C4C9AD5BF75A27ADE31DE4AA252B14B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Heartlay - The Alteration (2025) [FLAC 24/44.1, 16/44.1|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:6CAEAE63C5E0DD46676ADD33BE73E78FD1E55165
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:6CAEAE63C5E0DD46676ADD33BE73E78FD1E55165
 ```bash
 magnet:?xt=urn:btih:39C619E5D13536CD73080DA47CABB78700E25715
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:39C619E5D13536CD73080DA47CABB78700E25715
 magnet:?xt=urn:btih:A1AB34AD25764E1788AC2815D7C33663CAD26BE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:A1AB34AD25764E1788AC2815D7C33663CAD26BE3
 ```bash
 magnet:?xt=urn:btih:86F235FE53FF9EF4E1F782491C6D3EE48EC5EE47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Letters Sent Home - Forever Undone (2024) Extended Edition, 2025, SharpTone Reco
 magnet:?xt=urn:btih:7E5EF97DADCBF02A402D0722E5589501CB983B15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:7E5EF97DADCBF02A402D0722E5589501CB983B15
 ```bash
 magnet:?xt=urn:btih:3140F90C3B62298FF9220C2F31809E2BD5281657
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:3140F90C3B62298FF9220C2F31809E2BD5281657
 magnet:?xt=urn:btih:2144F76B2C8C94ED53F2C3A1F4C49E805D150FC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:2144F76B2C8C94ED53F2C3A1F4C49E805D150FC3
 ```bash
 magnet:?xt=urn:btih:E9FE11019FBCB415E1ADF04020973789452DFDCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:E9FE11019FBCB415E1ADF04020973789452DFDCB
 magnet:?xt=urn:btih:6D5C7D10B3C050B386D655C27AA57B6DA0D721EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:6D5C7D10B3C050B386D655C27AA57B6DA0D721EC
 ```bash
 magnet:?xt=urn:btih:F427D0460BDD926FC686BD3960A5B9CB6C3124A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:F427D0460BDD926FC686BD3960A5B9CB6C3124A2
 magnet:?xt=urn:btih:B2F2D5D09E182F626D54C686E414DA3BF7EA46D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Bendy Lone Wolf (2025) [Ru/Multi] (2.0.0) Scene FairLight
 ```bash
 magnet:?xt=urn:btih:99BCF336F6F29D5563DC2D1BF8D3C9F7AC2E91C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Slime Rancher 2 (2025) [Ru/Multi] (1.0.0) Scene Rune
 magnet:?xt=urn:btih:5B0869FB9B6A59F304CCCEEDA5BB8B576F48A36E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:5B0869FB9B6A59F304CCCEEDA5BB8B576F48A36E
 ```bash
 magnet:?xt=urn:btih:33CCD142F09A2C5C60E25289D0D3DCB29B83B0E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:33CCD142F09A2C5C60E25289D0D3DCB29B83B0E1
 magnet:?xt=urn:btih:09BF04DAF171F406C07C7813A697BE3E6399143D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:09BF04DAF171F406C07C7813A697BE3E6399143D
 magnet:?xt=urn:btih:325828FA939369DE871078BD4EC617966508AF7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:325828FA939369DE871078BD4EC617966508AF7E
 ```bash
 magnet:?xt=urn:btih:13F0B42C3B60C42C35DA26D3CE76F79E0EBBB5A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:13F0B42C3B60C42C35DA26D3CE76F79E0EBBB5A6
 magnet:?xt=urn:btih:4352D617DF239AF1E2A7931EC0345F03DAAA46E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:4352D617DF239AF1E2A7931EC0345F03DAAA46E7
 ```bash
 magnet:?xt=urn:btih:FE08AD47E9773505B12582882959F5AA664F6A71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +661,8 @@ A4 Love For Sale(   Читать дальше...   )Жанр: Pop, JazzПрод�
 magnet:?xt=urn:btih:6E590A54D79E5FA1EC404220F1D40D53B54912D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ Callenish Circle - метал-группа из Нидерландов, суще
 ```bash
 magnet:?xt=urn:btih:E204AD3D49AC80699CD216EAB7D77693C1DF9AE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

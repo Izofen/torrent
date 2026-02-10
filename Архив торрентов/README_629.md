@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:2096BF30981C528D1D535FC2CF22B4683390FBF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ VA - Премьера новых хитов (2012) [MP3|256-320 kbps]<Pop, Dance
 magnet:?xt=urn:btih:7A84215CB810EAA5DA1A58B1DFF7C49AD6C48251
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -78,6 +82,8 @@ magnet:?xt=urn:btih:7A84215CB810EAA5DA1A58B1DFF7C49AD6C48251
 magnet:?xt=urn:btih:500DB339B3BE3A68E274648EA52710EC8E32E070
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ magnet:?xt=urn:btih:500DB339B3BE3A68E274648EA52710EC8E32E070
 ```bash
 magnet:?xt=urn:btih:130165D14A7A29E123CA4E9D0FF6B4E83DCF4CC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -135,6 +143,8 @@ VNP - Trance Traveling 22 (2012) [MP3|320 kbps]<Trance>
 magnet:?xt=urn:btih:16B935CB500EE7AAE612D1DA777797AB192C37F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +174,8 @@ magnet:?xt=urn:btih:16B935CB500EE7AAE612D1DA777797AB192C37F5
 magnet:?xt=urn:btih:F9470491AA04BF11713ADBA7411D39E29BC9F661
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +199,8 @@ magnet:?xt=urn:btih:F9470491AA04BF11713ADBA7411D39E29BC9F661
 ```bash
 magnet:?xt=urn:btih:174C5FC083D7099419690253AD8C2F862C3FD913
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +231,8 @@ Interactive Noise - All Ears On (2012) [MP3|320 kbps]<Psychedelic / Progressive>
 magnet:?xt=urn:btih:3157EDB3F190C2698EBBAD4FA165E3589B346B76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +256,8 @@ magnet:?xt=urn:btih:3157EDB3F190C2698EBBAD4FA165E3589B346B76
 ```bash
 magnet:?xt=urn:btih:4CB8C3DF2F531021F47FB86628E222F8E2E3ED12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +283,8 @@ magnet:?xt=urn:btih:4CB8C3DF2F531021F47FB86628E222F8E2E3ED12
 magnet:?xt=urn:btih:B65E805A0506EE5961D522679D6CD5FA50EFD1B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ magnet:?xt=urn:btih:B65E805A0506EE5961D522679D6CD5FA50EFD1B4
 ```bash
 magnet:?xt=urn:btih:E1CF33092AB1C1E6203B6CE5D9F1F8AB246BE1B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +335,8 @@ magnet:?xt=urn:btih:E1CF33092AB1C1E6203B6CE5D9F1F8AB246BE1B0
 magnet:?xt=urn:btih:3DE3D70C5FB67DDB286B066502EC3FC3A3401F82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +360,8 @@ magnet:?xt=urn:btih:3DE3D70C5FB67DDB286B066502EC3FC3A3401F82
 ```bash
 magnet:?xt=urn:btih:A20EEF81481AC8B3E9F6D8ED7F71E14A77E92612
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ Sensogram - Parallel Minds (2012) [MP3|192-320 kbps]<Psychedelic / Progressive>
 magnet:?xt=urn:btih:6650716112DFC8A6E15C8E24D959FAF402ECEB0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +428,8 @@ VA - Drum Time 3 (2012) [MP3|320 kbps]<Drum & Bass>
 magnet:?xt=urn:btih:EBC7321BB411FC1751B11B4886B637E831493884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +457,8 @@ magnet:?xt=urn:btih:EBC7321BB411FC1751B11B4886B637E831493884
 ```bash
 magnet:?xt=urn:btih:55CA3DB0AFDAE611C463357BDC9D920B241BE553
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +493,8 @@ VA - Русский Club (2012) [MP3|224 kbps]<Dance, Club>
 magnet:?xt=urn:btih:1294386AF5B5F38D19B5710A07590AE8C907612C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +518,8 @@ magnet:?xt=urn:btih:1294386AF5B5F38D19B5710A07590AE8C907612C
 ```bash
 magnet:?xt=urn:btih:7D8B5D0AA343961621DAA67977AC2BB4E6491D72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +554,8 @@ VA - Лучшая 100ка хитов радиостанций Зарубежны
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +583,8 @@ VA - Лучшая 100ка хитов радиостанций Зарубежны
 magnet:?xt=urn:btih:ECF1825FFD44395AA8A7A12FA26194127477EBE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +608,8 @@ magnet:?xt=urn:btih:ECF1825FFD44395AA8A7A12FA26194127477EBE0
 ```bash
 magnet:?xt=urn:btih:9AEA4EF42987D7C1B7E0C91F2A0372E25AA46D6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +644,8 @@ Eric Carr - Unfinished Business (2011) [MP3|192 kbps]<Hard-n-Heavy>
 magnet:?xt=urn:btih:6AD7D3C8AE89894AAB764091A540E82DFED34C17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +679,8 @@ VA - VIP Персоны на Европе Плюс (2012) [MP3|256 kbps]<Pop>
 magnet:?xt=urn:btih:915F00807D76BA63A44513A8DE785A74CC6A0466
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +704,8 @@ Media Player Classic HomeCinema – удобный во всех планах м
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -683,6 +731,8 @@ Beverly Hillbillies [En] (RePack) 1993 | Pilotus
 ```bash
 magnet:?xt=urn:btih:1D26B600B32B4588C90DA6C444618712FD68429C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -712,6 +762,8 @@ magnet:?xt=urn:btih:1D26B600B32B4588C90DA6C444618712FD68429C
 ```bash
 magnet:?xt=urn:btih:815797A2377240989F459CD24FD8DAC29381524F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

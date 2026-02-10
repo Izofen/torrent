@@ -20,6 +20,8 @@ Ubuntu*Pack LXDE (Lubuntu) 18.04 (февраль 2020) [amd64, i386] 2xDVD
 magnet:?xt=urn:btih:F2B136B9F78DF74607000D9EA6A3DBE603073ECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Debian Edu, также известный как Skolelinux, является д
 ```bash
 magnet:?xt=urn:btih:EAEF118038A1D78F06C540197BA64759BB4B4DC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Ubuntu*Pack KDE (Kubuntu) 18.04 (февраль 2020) [amd64, i386] 2xDVD
 magnet:?xt=urn:btih:95105D22A79B5D0438D10C7976D4C12A90D5BABE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Ubuntu*Pack MATE 18.04 (февраль 2020) [amd64, i386] 2xDVD
 ```bash
 magnet:?xt=urn:btih:598EDF443F1083705D0807DDDA37D7CF65817936
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Ubuntu*Pack Budgie 18.04 (февраль 2020) [amd64, i386] 2xDVD
 magnet:?xt=urn:btih:06C42BC76E16F040149DA5E59E851A528AC1FE35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Ubuntu*Pack GNOME 18.04 (февраль 2020) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:099CECC826C0E500ECB23907307270C1DE3BBE56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Ubuntu*Pack GNOME Classic 18.04 (февраль 2020) [amd64] 1xDVD
 magnet:?xt=urn:btih:5164EEFA091CD33541C6C9245DAFC7EF174453EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Ubuntu*Pack GNOME Flashback 18.04 (февраль 2020) [amd64] 1xDVD
 magnet:?xt=urn:btih:94AEC876A3956607A6A14C7F0BC2BEB1D82D370B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Debian GNU/Linux 8.7.1 Jessie Live (free + nonfree) [x86-64] 14xDVD
 ```bash
 magnet:?xt=urn:btih:56BFA1699F0A7BD86D84877E80DCB647E8AB2BF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Debian GNU/Linux 8.7.1 Jessie Live (free + nonfree) [i386] 14xDVD
 magnet:?xt=urn:btih:6DAD80DF7D9DF63ED598F8B5D976990C6DD1E1D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Debian GNU/Linux 8.7.1 Jessie [i386] 3xDVD
 ```bash
 magnet:?xt=urn:btih:C1EBD460CC9661858C7B4BB912EE802DDB5462DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ Lubuntu — это свободная операционная система н
 magnet:?xt=urn:btih:8A032D7B67E43AD63919D45C362816F5D0158917
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ Kubuntu 15.04 Vivid Vervet Alpha II [i386, amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:DE884AB14BB0DE43A83BF316BE331BC051A299CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ Ubuntu — это разрабатываемая Canonical, основанная
 magnet:?xt=urn:btih:90E97BD697E1EC7A1E37E322013F4EE53DFBA59E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ Debian GNU/Linux 8.7.1 Jessie [x86-64] 3xDVD
 ```bash
 magnet:?xt=urn:btih:F6A863DDA4C4271066B30BB5ADB42C98706C34F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ Debian GNU/Linux 8.7.0 Jessie [i386] 3xDVD
 magnet:?xt=urn:btih:82CB23BB1ACE9208BEA1B31CF7B88DC613EE38D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ Debian GNU/Linux 8.7.0 Jessie Live (free + nonfree) [i386] 14xDVD
 ```bash
 magnet:?xt=urn:btih:1E7DD4EAD3C5D43E3771353061856474A691E599
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ Ubuntu*Pack 18.04 (февраль 2020) [amd64] 1xDVD
 magnet:?xt=urn:btih:59CF0FE5E5A9B0B03FAC37C4BBC3B8BA86D4A166
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ Debian GNU/Linux 8.7.0 Jessie [x86-64] 3xDVD
 ```bash
 magnet:?xt=urn:btih:24A266A1298277124ED88EF3F03524BCAD0195F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ Dynamic A-D Ports for Applications - addon for gufw - ufw (DAD Ports for App); L
 magnet:?xt=urn:btih:2689B0F37340DF5793ECE1D419003DE211AF64C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ Red Hat Enterprise Linux состоит из свободного ПО с отк
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ Red Hat Enterprise Linux состоит из свободного ПО с отк
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ SystemRescueCd — это спасательной диск в системе Li
 magnet:?xt=urn:btih:C1CB3267D5A1216B465BA1552A89FFD8A41CBA24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ MKVToolnix - функциональный набор инструментов д
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ MKVToolnix - функциональный набор инструментов д
 magnet:?xt=urn:btih:B1A5E590867F21903A96A1F38247427D91E6B0F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ Slackware Linux — один из старейших дистрибутивов 
 ```bash
 magnet:?xt=urn:btih:FC03D5D32B6F317657E5C5A152A9D6D21C9AD67C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

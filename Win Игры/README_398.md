@@ -1,28 +1,3 @@
-###  Публикация: 1045047   (562623) от 21.08.2016
-
-Warhammer 40,000: Space Marine (2012) [Ru/Multi] (1.0.165.0/dlc) License PROPHET [Collection Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562623.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре Warhammer® 40,000® Space Marine® вам отводится роль капитана Титуса, космодесантника ордена Ультрамаринов, закаленного в огне бесчисленных сражений.
-Неисчислимая орда орков вторглась в имперский мир-кузницу - одну из фабрик размером с планету, где делаются машины для непрекращающейся борьбы человечества за выживание. Потерять эту планету недопустимо! Кроме (   Читать дальше...   )Тип издания: LicenseРазработчик: Relic EntertainmentЖанр: Action (Shooter, Slasher), 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:720E4274C3CC52A370F947E18309BBA0B0BDB950
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 923798   (562706) от 01.08.2015
 
 Sea Of Lies 4: Tide Of Treachery (2015) [En] Unofficial [Collector's Edition / Коллекционное издание]
@@ -43,6 +18,8 @@ Sea Of Lies 4: Tide Of Treachery (2015) [En] Unofficial [Collector's Edition / �
 ```bash
 magnet:?xt=urn:btih:32B1224A95C5C4A69CAFDBEB55AEF9912CB5BCC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +45,8 @@ Riptide GP: Renegade (2016) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:57B0727AAE598A1EFABB6209C679B1A3B5157374
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +70,8 @@ Rage of the Battlemage - динамичная hack'n'slash RPG, где вы ок
 ```bash
 magnet:?xt=urn:btih:1D16F459B112B9713D3D6DABB9FCFEEDFA624E82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +98,8 @@ Pilot Brothers 3 / Братья Пилоты 3: Обратная сторона 
 magnet:?xt=urn:btih:B9153754E810F9710653FFB1E106B81175B461CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +123,8 @@ Preston Sterling (2016) [Ru/Multi] (1.1) License HI2U [Episode 1]
 ```bash
 magnet:?xt=urn:btih:1A5F463EE76708AA21142CBEAFC5EE83BB793035
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +150,8 @@ Man O' War: Corsair - Warhammer Naval Battles (2017) [Multi] (1.1.4/dlc) License
 magnet:?xt=urn:btih:0CBE806DE3D318CD83BE7C5559F226492999A41A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +175,8 @@ Dreamfall Chapters - это сюжетно-ориентированная эпи
 ```bash
 magnet:?xt=urn:btih:D0BD216B2130494CA7E0E7B38DFE2AC720A51AD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +202,8 @@ Pilot Brothers 2 / Братья Пилоты 2: Дело о серийном м�
 magnet:?xt=urn:btih:4DD49E9C19EB08E7456CBBDCEEB26E29E9B5E42F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +227,8 @@ Reflecting Fate (2017) [En] (1.0) Repack Covfefe
 ```bash
 magnet:?xt=urn:btih:C70625388EC69381B0D5274BFB61B5D8A0BD39E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +254,8 @@ Painkiller: Resurrection / Painkiller: Воскрешение (2010) [Ru/En] (1.
 magnet:?xt=urn:btih:418FD48758F18B95BDB654AFA86E00B74E51A639
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +279,8 @@ Forge of Empires (2012) [Ru] (1.82) License
 ```bash
 magnet:?xt=urn:btih:6FD9E6FC3710C28E6B32EB7754B8478B9CFFE0B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +306,8 @@ Savage Resurrection – возрождение классического мно
 magnet:?xt=urn:btih:EAA2370F40B80712FC83391B349D3C8F0147079B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +331,8 @@ The Banner Saga 2 продолжает события предыдущей ча�
 ```bash
 magnet:?xt=urn:btih:D09ED55D9542B1B9745CDC6713EB9D632478B6D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +358,8 @@ The Fall of the Dungeon Guardians представляет собой броди
 magnet:?xt=urn:btih:F3C9C075DB065D59DAF03E8D89EF631EDDD1BA74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +383,8 @@ You Deserve - игра в приключенческом жанре. Вы ник
 ```bash
 magnet:?xt=urn:btih:4BA15E81667F96E94D09914C5C4028354CD3E860
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +410,8 @@ Shadow Bug (2017) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:82E314D7137CB6AAF8DFF5187E8CCB5139235A9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +435,8 @@ Last Will - это приключенческая игра в рандомно-�
 ```bash
 magnet:?xt=urn:btih:AFA05DAE2E1B97F47733836BF26CF5AB30804DBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +462,8 @@ Corpse Party: Blood Drive (2019) [Multi] (0.95) License GOG
 magnet:?xt=urn:btih:54A3A235398E460601947E3A8D5B624F271D3C5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +487,8 @@ You Deserve - игра в приключенческом жанре. Вы ник
 ```bash
 magnet:?xt=urn:btih:F45F9B29743C38FA4597FF3D48CEFEF62B19C9BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +514,8 @@ Dollhouse (2019) [Multi] (1.1.1) Repack Other s
 magnet:?xt=urn:btih:48E7893148A7E58BF5C6277E3230DE0B3C8B864A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +539,8 @@ Phantasmat 7: Reign of Shadows / Фантазмат 7: Власть теней (
 ```bash
 magnet:?xt=urn:btih:75F15CE4F9A550FE3908B1BB5F63BEC0A0A1271C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +566,8 @@ Turner (2016) [En/Es] (1.5) Repack Other s
 magnet:?xt=urn:btih:12B56B8872E7EE452037E477E95AE672CDCDAAC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +592,8 @@ Icy - сюжетная survival-RPG, где Вы возьмете на себя 
 magnet:?xt=urn:btih:ACF77E6C68A714D3CAA3CF4F04D1CC59F5EFF255
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +617,8 @@ Feist (2015) [Ru/Multi] (1.0) RePack xGhost
 ```bash
 magnet:?xt=urn:btih:AFC6688DE6283ED181E39984A58254518AC9A619
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +647,34 @@ Wood Land Arcanoid [En] (L) 2012
 ```bash
 magnet:?xt=urn:btih:C55529BF9934FD9CADE7817DA14BBE436CB8C064
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044172   (566411) от 19.08.2016
+
+Warhammer 40,000: Armageddon - Da Orks (2016) [Ru/Multi] (1.0) License SKIDROW
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_566411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Warhammer 40,000: Armageddon: Da Orks - вторая часть в серии варгеймов о войнах за Армагеддон и один из самых знаковых конфликтов во вселенной Warhammer 40,000. В этой гексаганальной пошаговой стратегии, игроку предстоит возглавить Орков в сражениях против Имперских сил Стального Легиона Армагеддона и Космических Десантников из различных Орденов под палящим солнцем (   Читать дальше...   )Тип издания: LicenseРазработчик: Flashback Games и The Lordz Games StudioЖанр: Strategy (Turn-based, Tactical), IsometricЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE997403D2848B33475882975D72F6E01261C197
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

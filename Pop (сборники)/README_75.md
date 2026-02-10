@@ -1,3 +1,29 @@
+###  Публикация: 516507   (651950) от 29.06.2012
+
+VA - Дискотека в ритме Карибских островов (2012) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 04:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA0E65F864ED06FED8F935C999C0C6097012C17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031554   (651999) от 04.07.2016
 
 VA - Русская Дискотека ХХ Века - 23 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
@@ -21,6 +47,8 @@ VA - Русская Дискотека ХХ Века - 23 (2010) [MP3|320 Kbps]<
 ```bash
 magnet:?xt=urn:btih:B9D17F3C2E41047123FF32DA877663F8F5EC6E5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +77,8 @@ VA - Зарубежная Дискотека ХХ Века - 54 (2016) [MP3|320 
 magnet:?xt=urn:btih:C90365BC780DC751B239A13D1973388E2226D90C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +105,8 @@ VA - Русская Дискотека ХХ Века - 22 (2010) [MP3|320 Kbps]<
 ```bash
 magnet:?xt=urn:btih:A62053363924157E615D01E68611610E73394471
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +135,8 @@ VA - Русская Дискотека ХХ Века - 24 (2010) [MP3|320 Kbps]<
 magnet:?xt=urn:btih:DD9FB7A1733AB92934076F728F537B9EED1EE8F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +163,8 @@ VA - Зарубежная Дискотека ХХ Века - 57 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:0E3C25C6377BB9DAD42E6BC7FA06CFBD9F3512A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +193,8 @@ VA - Зарубежная Дискотека ХХ Века - 59 (2016) [MP3|320 
 magnet:?xt=urn:btih:A1CDCC4DE809D72345DF497C990780822A1AAB34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +222,8 @@ VA - Зарубежная Дискотека ХХ Века - 56 (2016) [MP3|320 
 magnet:?xt=urn:btih:C43A1C0EA9A838852B0455055F43051EB2060F9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +250,8 @@ VA - Зарубежная Дискотека ХХ Века - 52 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:3A329A1AE56CED85A890A62F7E5855F2A15F5B82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +286,8 @@ VA - Летний коктейль хитов (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:1F02811E17422A102CC1DC69166E95D6ED706FD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +311,8 @@ VA - Сливки Европы плюс 7 50/50 (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:40872700EBEE78DF28A1CEE062DEAB4C54B665B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +341,8 @@ VA - Зарубежная Дискотека ХХ Века - 55 (2016) [MP3|320 
 magnet:?xt=urn:btih:C87A1D9D1A440DF67AA2D775948592BA0FC1349E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +369,8 @@ VA - Зарубежная Дискотека ХХ Века - 51 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:487B772467ED98FC3CD7776957CE5FC50B55658A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +399,8 @@ VA - Зарубежная Дискотека ХХ Века - 58 (2016) [MP3|320 
 magnet:?xt=urn:btih:3A33188B044E81201803B2DD49B170910A757790
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +427,8 @@ VA - Зарубежная Дискотека ХХ Века - 53 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:A7CB08126D72D6C8917BC0C9F333E1DE7372E6A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +457,8 @@ VA - Empire Records - Retromania 9 (2018) [MP3|320 Kbps] <Pop, Euro-Pop, Eurodis
 magnet:?xt=urn:btih:8AD2E1E14D0E22322DD4E8E8A88959113FADAF78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +485,8 @@ VA - German Top 50 Party Schlager Charts 25.03.2019 (2019) [MP3|320 Kbps] <Pop, 
 ```bash
 magnet:?xt=urn:btih:D9EC2E48372F280816570F021120E27223ABA21B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +521,8 @@ VA - Радио Чарт Energy - Жгучий Танцевальный Сбор
 magnet:?xt=urn:btih:5446CC9046D3254DD93AD633D2281AF0271A7B9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +550,8 @@ VA - Лето в кайф. Сборник 50/50 (2015) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:869588E8F3956154AA96F1EFCFE0420EFBA1B16A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +575,8 @@ VA - Хит парад Союз лето (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:5DC11E924E81E44D58488E6E865B79D184D8FBDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +611,8 @@ VA - Курортный Хит (2012) [MP3|128 kbps]<Pop>
 magnet:?xt=urn:btih:8388D650DFAA88A0145B9B9978B6FDA9AC10665E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +646,8 @@ VA - XXXL Music Box. Выпуск 8 (2012) [MP3|256 kbps]<Pop|Dance>
 magnet:?xt=urn:btih:0E04BB0C74D7E734F903495FFC926B3B5C050161
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +675,8 @@ VA - Hits Cocktail Vol.8 (2017) [MP3|320 Kbps] <Club, Dance>
 magnet:?xt=urn:btih:A4AEE631C6FDBC0A5BDC7E2EFF30F4E5B5481AD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +703,8 @@ VA - Music Live (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:2DBFB630F52015E3461A4DAF2D04207871DC4895
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -662,6 +734,8 @@ VA - Танцевальный рай 24 (2009) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:E84FCA50286ABECB0B78814ABA467C5904E46845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -689,32 +763,7 @@ VA - Новички в попсе Vol 11 (2022) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:A69237EB89FDA664876A617D8ABEF5D4B49BD825
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904215   (655174) от 02.06.2015
-
-VA - Дискотека Nonstop Party №1 (2015) [MP3|320 кб/с]<Pop, Dance, Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655174.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Iowa - Улыбайся
-002. Bass Ace, Albina Mango - This Is Deep (Colin Rouge Remix)
-003. Aronchupa - I'm An Albatraoz
-004. Awolnation - Sail (No Hopes, Misha Klein Remix)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 14:16:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08C261C9AECDA27201C42DA838DA9D108BDC4D39
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

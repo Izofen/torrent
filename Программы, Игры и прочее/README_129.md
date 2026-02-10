@@ -19,6 +19,8 @@ Garmin: NaviGuide Hungary v2016.05 NT beta [Hu]
 magnet:?xt=urn:btih:F4BFBBF815D465733D243BEA30CE73D890AA4A17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Garmin: Taiwan Topo 2016.10 NT [Ch]
 ```bash
 magnet:?xt=urn:btih:9E20F8DDA1357A6F4D0DB8C6B0FCBA9E66624941
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:9E20F8DDA1357A6F4D0DB8C6B0FCBA9E66624941
 magnet:?xt=urn:btih:168B7AD5EA637B5A41177B786DED25136F9E14E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:168B7AD5EA637B5A41177B786DED25136F9E14E0
 ```bash
 magnet:?xt=urn:btih:981AAE2260A6A1E898D5724B24D5F8AA097D6923
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:981AAE2260A6A1E898D5724B24D5F8AA097D6923
 magnet:?xt=urn:btih:14B56766B9C552E2B45DCDAB900524F2B3F493DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:14B56766B9C552E2B45DCDAB900524F2B3F493DB
 ```bash
 magnet:?xt=urn:btih:9F61B069F1AD28B6D6287302EF17B2B171FBED11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Wake me up! - это постоянно улучшаемый умный буди
 magnet:?xt=urn:btih:E3DCBB1DBFCB0AC53E6F602DDD743D43E562C6B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:E3DCBB1DBFCB0AC53E6F602DDD743D43E562C6B3
 ```bash
 magnet:?xt=urn:btih:85A6D85CE4F934CFE23357F6DEDFF1E5698AAF2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:85A6D85CE4F934CFE23357F6DEDFF1E5698AAF2F
 magnet:?xt=urn:btih:A624B553D6AFFAECEAA523C0F876A933073CD0BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:A624B553D6AFFAECEAA523C0F876A933073CD0BC
 ```bash
 magnet:?xt=urn:btih:77F1C3D1116B95DC4D15B873C78FDB2EBF15D337
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:77F1C3D1116B95DC4D15B873C78FDB2EBF15D337
 magnet:?xt=urn:btih:97EDAD0A97020B2E29E20D01330225165A057492
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:97EDAD0A97020B2E29E20D01330225165A057492
 ```bash
 magnet:?xt=urn:btih:CBC5C23EE7C869151F635BB348897C0E48DE0CB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:CBC5C23EE7C869151F635BB348897C0E48DE0CB5
 magnet:?xt=urn:btih:757088C241C243DBEFEA97E9C9D9693DF0407216
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Volume Slider Like Android P Volume Control 3.5 [Ru/En]
 magnet:?xt=urn:btih:63FA6D22E80DD259F856228C750D28976A40CDC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ App Backup & Share Pro - премиум версия полнофункцион�
 ```bash
 magnet:?xt=urn:btih:DA618D4ED4FECC54FE420064223F1A65BE3D08AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:DA618D4ED4FECC54FE420064223F1A65BE3D08AF
 magnet:?xt=urn:btih:29AAD1687FFF771E7CBCE5EF1CD3AC9C0FEA9648
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Home Design 3D v4.0.8 Pro [Ru/Multi] - Создание и персонализ�
 ```bash
 magnet:?xt=urn:btih:DC1FD83EA24BD927537E937CCCCC0EEFDFA26FE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:DC1FD83EA24BD927537E937CCCCC0EEFDFA26FE2
 magnet:?xt=urn:btih:0E1620421BEAA127742317FFBDF7DD3AA87D3F1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Shadowsocks - это бесплатный проект протокола шиф
 magnet:?xt=urn:btih:4D615CC4A9FB287AE62450C91C201FE7717232B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:4D615CC4A9FB287AE62450C91C201FE7717232B8
 ```bash
 magnet:?xt=urn:btih:B0540668BB80D0A9F41EFC3887086C1FDE38116F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:B0540668BB80D0A9F41EFC3887086C1FDE38116F
 magnet:?xt=urn:btih:C96F4BBB433F5C72D601A16B2E4AB6364C183611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Garmin: Topo France v6 Pro [Fr]
 magnet:?xt=urn:btih:9CE0E26D48B3FE31CEC98F0BE53ECC27067A8859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:9CE0E26D48B3FE31CEC98F0BE53ECC27067A8859
 magnet:?xt=urn:btih:C4791867C42790484DE92CF564DD883D9B613CA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Garmin: TOPO Germany v9 PRO [De]
 ```bash
 magnet:?xt=urn:btih:B106A136532BA6A4CB617E775BF27FDB1857F5C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Muscle & Motion - Strength Training 2.2.14 premium [Ru]
 magnet:?xt=urn:btih:43A06336256BA627D39508F627B3C9495DB92763
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Garmin: City Navigator North America NT 2022.20 [En]
 ```bash
 magnet:?xt=urn:btih:CFD922C19311C4DE0E3BFD11AFAB2B8C75E701EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

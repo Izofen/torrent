@@ -22,6 +22,8 @@ Lounge Cafe, Classical Jazz Guitar Club - Hotel Café Guitar Jazz BGM (2024) [FL
 magnet:?xt=urn:btih:70A939B178CF18E2A7FBC3514D580D4CB2B647DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:70A939B178CF18E2A7FBC3514D580D4CB2B647DE
 ```bash
 magnet:?xt=urn:btih:46A9E318BAD1A10E990D1E307B70FC0A52E8A7F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Dash - очень удобное приложение, включающее в �
 magnet:?xt=urn:btih:BA7DD58285044801CA8608A74036648E28479362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:BA7DD58285044801CA8608A74036648E28479362
 ```bash
 magnet:?xt=urn:btih:A8960E3CEAA0DE0A674913C11B948E5723988E9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ VA - Relaxing Carefree Romantic Smooth Jazz Ride (2024) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:B67C05DE429A60925CA9DA37DA99BBAF300B2D27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Jazz Guitar Club, Jazz Guitar Music Zone - Sunset Guitar Session Smooth Guitar J
 ```bash
 magnet:?xt=urn:btih:B8E1009A58993739F60529D7AC73F41443DB89FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Restaurant Jazz Music Collection, Jazz Ambiental para Hotels - Dining in Jazz Ha
 magnet:?xt=urn:btih:23CEBD112FFA7530459A95B60986BFF2063AE6A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ Rhino Bucket — американская хард-рок-группа из Ва
 magnet:?xt=urn:btih:12FCD7D81A5651985721345FE607624644F1DCE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:12FCD7D81A5651985721345FE607624644F1DCE8
 ```bash
 magnet:?xt=urn:btih:654A1073D1D52A36E603333A40F30F24EE2D1069
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ Dawn Of The Rising - Win Lose or Draw (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 magnet:?xt=urn:btih:728B045A13A49B683A2B533D25D663EFBD9B0C4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ Abysmal Grief - Strange Rites of Evil (2015) [FLAC|Lossless|image + .cue] <Doom 
 magnet:?xt=urn:btih:38046D1006827C701618AC7CF4C540982AC19933
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ magnet:?xt=urn:btih:38046D1006827C701618AC7CF4C540982AC19933
 magnet:?xt=urn:btih:8CE351E7D097E3552498945BEECE5DC3AA05C1C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ SecuritySpy работает с широким спектром камер, чт
 ```bash
 magnet:?xt=urn:btih:56627F407876A5DE6BE954FBC032D01F43F8400C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ HiBit Uninstaller - идеальное решение для удаления п
 magnet:?xt=urn:btih:F08A2BBBB57F2B619701D901813AD0758C8F16BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ Waterfox — это браузер, основанный на исходном �
 ```bash
 magnet:?xt=urn:btih:F2809FE0B1AA8DB77A50F73876206C53191C2797
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ magnet:?xt=urn:btih:F2809FE0B1AA8DB77A50F73876206C53191C2797
 magnet:?xt=urn:btih:152DE943E682364830BE69BA1403353102844644
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:152DE943E682364830BE69BA1403353102844644
 ```bash
 magnet:?xt=urn:btih:8027ED7B8CD08A52E199BDEB6F2B2527090EADA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ Ryujin - Ryujin (2024) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal>
 magnet:?xt=urn:btih:02289F145027592019CB96FFCCD3EA2B16370AFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ magnet:?xt=urn:btih:02289F145027592019CB96FFCCD3EA2B16370AFE
 ```bash
 magnet:?xt=urn:btih:963062881CEC78389EA40C3081448DCD3D9D9E78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ Ungoogled Chromium - версия веб-браузера Chromium без инт
 magnet:?xt=urn:btih:FF176E26563A352E4ED10F1C44E35EB5D9DF70BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:FF176E26563A352E4ED10F1C44E35EB5D9DF70BB
 magnet:?xt=urn:btih:4A20356C35AA29B95D56CF916613CEF26D029A54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:4A20356C35AA29B95D56CF916613CEF26D029A54
 ```bash
 magnet:?xt=urn:btih:C0ACD1A71CCA267103A1124908E126F4183A5BD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ Pet Shop Boys - Format (B-Sides And Bonus Tracks 1996–2009) (2012) [OGG Vorbis
 magnet:?xt=urn:btih:D8F2830D8F20669564544EA97BCA4D96B7F258DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +644,8 @@ DevUtils 1.17.0 [En]
 ```bash
 magnet:?xt=urn:btih:61C83B6FD8890D0A1C8E72FF4FAFFFC424F7C75F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ Broke on Payday - Switching Colors (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 magnet:?xt=urn:btih:841EAA2CFB96A8ED4C98E1BFC6561982FDCAFEEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ WizTree - небольшая и полезная утилита для опре�
 ```bash
 magnet:?xt=urn:btih:47B76623C0E0C7769D3E3E3C1215A38F0C03BEB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

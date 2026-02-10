@@ -20,6 +20,8 @@ Prana Breath: Дыши и Медитируй (Пранаяма) v9.5.2_2 Mod by 
 magnet:?xt=urn:btih:8EA5F3A485561B114E8FE09F45C5C066997D74A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:8EA5F3A485561B114E8FE09F45C5C066997D74A1
 ```bash
 magnet:?xt=urn:btih:F0E2C8B8B5DCADFCFE1D9C21708E2DBF8A7AE4A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:F0E2C8B8B5DCADFCFE1D9C21708E2DBF8A7AE4A0
 magnet:?xt=urn:btih:B21CD22E786C63079216A1A806D5F12AB08DDBE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ XMedia Recode - отличная утилита, цель которой - по�
 ```bash
 magnet:?xt=urn:btih:34D4880A1BD93B1372ABBBA5234C24D8B4F5D5D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Superheroes - Speed & Strength – это эксклюзивная коллек�
 magnet:?xt=urn:btih:149532D589341A567F965B1653488F05045811F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:149532D589341A567F965B1653488F05045811F9
 magnet:?xt=urn:btih:72E31EFFAD8C2C8146750C1A5019D9C37F0494DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:72E31EFFAD8C2C8146750C1A5019D9C37F0494DE
 ```bash
 magnet:?xt=urn:btih:A9DD9B41CDBA501DD4B2C0BA81F8D46A81D863E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Synapse Audio - DUNE 3 3.6.4 VSTi, VSTi 3, AAX (x64) [En]
 magnet:?xt=urn:btih:21976A65EE4088A0EFF911954EC0108892857993
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:21976A65EE4088A0EFF911954EC0108892857993
 ```bash
 magnet:?xt=urn:btih:8176DF61E5AC5A9CDDD48CB5330AB5791FA80894
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:8176DF61E5AC5A9CDDD48CB5330AB5791FA80894
 magnet:?xt=urn:btih:B596B566B67BCDE5152903AB4BF111093E7D01E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:B596B566B67BCDE5152903AB4BF111093E7D01E0
 ```bash
 magnet:?xt=urn:btih:C0DC4347B41A56BE41C715AF873F6E782F63E095
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:C0DC4347B41A56BE41C715AF873F6E782F63E095
 magnet:?xt=urn:btih:FC8A556FE5819F7160BE9FD9789110F72B5A2E2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ My Friendly Neighborhood погружает юзеров на роль прос�
 ```bash
 magnet:?xt=urn:btih:0D58C7586050C4B4BC201664127A2BAF86328115
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 magnet:?xt=urn:btih:A707D6EC83936C55CEB19A4AF59982A949E1A9F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:A707D6EC83936C55CEB19A4AF59982A949E1A9F4
 ```bash
 magnet:?xt=urn:btih:5FD01773FCDDD95F20A85CADC19D6BF7E506889A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:5FD01773FCDDD95F20A85CADC19D6BF7E506889A
 magnet:?xt=urn:btih:839CD7F0B475973D9D8A389DAE40CA279726435C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ PictureThis - Plant Identification v5.9.0 Mod by youarefinished [Ru/Multi]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Camtasia захватывает действия и звуки в любой ч�
 magnet:?xt=urn:btih:7C601FC34EE94BB5AEC858AE0C5B6C6BF27A8010
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:7C601FC34EE94BB5AEC858AE0C5B6C6BF27A8010
 ```bash
 magnet:?xt=urn:btih:4F5AB7C586AA2364DB4725098BD28CE32D206D91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ David Coverdale - Voice Of Rock - Compilation (1974-2015) [MP3|320 Kbps] <Hard r
 magnet:?xt=urn:btih:8559F1B39F3056A5FAEF4330AC2EAAB93F7F3C13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:8559F1B39F3056A5FAEF4330AC2EAAB93F7F3C13
 ```bash
 magnet:?xt=urn:btih:94DE0716BC4D71E7C89803FAA5BF23B2172B167A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ VSO ConvertXtoDVD - программа, предназначенная для п
 magnet:?xt=urn:btih:1617ADED1ADA7A38B9793255ADAA3CC66467BFE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Nihon e Youkoso Elf-san. | Welcome to Japan, Ms. Elf! | Добро пожало�
 ```bash
 magnet:?xt=urn:btih:41C13EC3C49A571F4F848886EEB82379488ECDA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:41C13EC3C49A571F4F848886EEB82379488ECDA9
 magnet:?xt=urn:btih:9542484F8C94BC112A33B26DE4AFD976C2B51C65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:9542484F8C94BC112A33B26DE4AFD976C2B51C65
 magnet:?xt=urn:btih:9D9D19AD6EBF8DF7E0DC718D6CAC1450D115D2E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:9D9D19AD6EBF8DF7E0DC718D6CAC1450D115D2E4
 ```bash
 magnet:?xt=urn:btih:023FFD6043AEA41D6780D5285A93F1B783CCC4F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

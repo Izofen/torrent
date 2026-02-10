@@ -19,6 +19,8 @@ Woodsmith PBS | Woodsmith shop (Season 6) (2012) TVRip [EN, RU]
 magnet:?xt=urn:btih:5D3D0568B16FAD772123F5B18552A7DC23022FD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ PurpleSchool, Антон Ларичев, Игорь Орлов | Kubernetes и H
 ```bash
 magnet:?xt=urn:btih:751C8D0FD1E4586A4E32BC965783FA83F614EA21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:751C8D0FD1E4586A4E32BC965783FA83F614EA21
 magnet:?xt=urn:btih:10F9F48A808778508183847A4D357A3AB09D7BBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Dale Barnard | Искусство и Ремесла Стиль Greene & Greene (
 magnet:?xt=urn:btih:3184ED04D389FF739E14DBEE32ACCB38139F0B9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:3184ED04D389FF739E14DBEE32ACCB38139F0B9A
 ```bash
 magnet:?xt=urn:btih:31D686EB750B5E94EDED21A60619F437469E6378
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:31D686EB750B5E94EDED21A60619F437469E6378
 magnet:?xt=urn:btih:39BDA842FBD30E4A49FA4792CCC926DE964C51D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Gumroad, John Grello | IONIC Sketchbook 2019 - Digital Edition (2019) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:C8C42AFCF2A630D94618FDAAEF2449520109FCA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:C8C42AFCF2A630D94618FDAAEF2449520109FCA9
 magnet:?xt=urn:btih:48F87920D7479767FC978176B6BAC6179E9CDEBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:48F87920D7479767FC978176B6BAC6179E9CDEBE
 magnet:?xt=urn:btih:6E471D371E035DE7E57CB6363D40159D13A27038
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ Peter Coulson Photography - In The Garden With Stefania (2024) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:2A65B3EC6993AA36D67CC0F2E3716F6CBCAD0929
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ CG Cookie, Kent Trammell | THE COLLABS COURSE: A Raw Look Into Remote Blender Pr
 magnet:?xt=urn:btih:9903C453B0C8944BBDDC348129AB841AFF2E5367
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ The Gnomon Workshop, Jordan Soler | Realistic Dog Grooming for Production with X
 magnet:?xt=urn:btih:C8B39DC66C3C2409E57EF1F7D466B28AAC79DB40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ CG Cookie, Lucas Falcao | BASEMESH: Create Stylized Characters Quickly with Blen
 ```bash
 magnet:?xt=urn:btih:470AAA564DEC4A56DFA32EE6F1CD95F1F84CDEF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ CG Cookie, Wayne Dixon | RIG: Blender's Character Rigging Playbook (2024) PCRec 
 magnet:?xt=urn:btih:F78B3603F18266B289BEF6B2670D4383B7081CD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ CORE - это основополагающее путешествие из 9 к�
 ```bash
 magnet:?xt=urn:btih:0B44C6BE32F0F06397FF160FD540FB95DB0B03F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ Udemy, Chloe Gendron | Accelerate Your Learning with Master Studies in Pen and I
 magnet:?xt=urn:btih:D9B13CD336EAD79A69E69A2277D4BF84756587DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ Artstation Learning, Enrico Tammekand | Creating a Subsurface Scatter Material i
 ```bash
 magnet:?xt=urn:btih:56C2D32DA778EA35388B51E7CCE86DB10A4F1DD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ Artstation Learning, Javier Perez | Creating a Modular Sci-Fi Environment Using 
 magnet:?xt=urn:btih:6047A795EC3B7ED0806D19897CC4017DA29849B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ Creative Shrimp, Gleb Alexandrov, Aidy Burrows | Photogrammetry Course: Photorea
 ```bash
 magnet:?xt=urn:btih:BA59661CD8513A8D41EA8484286272D30F808E4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ Domestika, Davide Virdis | Intro to 3D Livery Design: Decals for Digital Cars (2
 magnet:?xt=urn:btih:31C35B6E459F98C8D9C21D8D866FB4CCC9F7899B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ Blender - это невероятно универсальное програм�
 ```bash
 magnet:?xt=urn:btih:A485710C74498007934D2705A01F916334A9F050
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:A485710C74498007934D2705A01F916334A9F050
 magnet:?xt=urn:btih:196D9EDA913420D05080339807B7CECE1EE8CD9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ Blender сам по себе является потрясающим беспл�
 ```bash
 magnet:?xt=urn:btih:4DE78F4ADC2820758D1D33F4BAE6AD71902712E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +643,8 @@ ArtStation, Navid Valizadeh | Master Creating Optimized Sci-Fi Space Station Doo
 ```bash
 magnet:?xt=urn:btih:5FFF843C2C7087FEEBB015C684F1C91B5D1E268B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ Udemy, Hamood Mehmood | Beginner Car Rigging & Animation in Blender (2025) PCRec
 magnet:?xt=urn:btih:9FCE1A6B590D41EC064B1FAEADAA16D189D0D3BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ Blender Studio, Simon Thommes | Stylized Rendering with Brushstrokes (2024) PCRe
 ```bash
 magnet:?xt=urn:btih:F4F1945C7D9D64EAC84219C7993C6A7F5CF9F46B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ W.A. Production - BeatQuake 1.0.0 VST, VST3, AAX (x86/x64) [En]
 magnet:?xt=urn:btih:7FC34EAE8270E95A1024776AADAD680C61512DFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Rhodes Anthology 1.0.0 VSTi, VSTi 3, AAX (x64) RePack by R2R [En]
 ```bash
 magnet:?xt=urn:btih:F19B8AD4E953F6B77EEF50B33B1B94B2574C8951
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ KICK 3 позволяет вам без усилий создавать и фо�
 magnet:?xt=urn:btih:02141E28013C57363DEFA368282CD92A12F7A758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Eventide - Ensemble Bundle 2.20.0 VST, VST 3, AAX (x64) RePack by R2R [En]
 ```bash
 magnet:?xt=urn:btih:926FE93B93EF25FC22E7CF5E8852F641DBA86F79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Raising Jake Studios SideMinder Plu-ins 11.2024 VST, VST3, AAX (x64) [En]
 magnet:?xt=urn:btih:F028BC0882DD8DC6849D643AC5B5FBC3F162C6F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Transit 2 — это следующая глава нашего сотрудни
 magnet:?xt=urn:btih:D28670213C98C3771F11CC3A934F8FA0DD020B69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ u-he - Zebra Legacy 2.9.4 VSTi, VSTi 3, AAX (x86/x64) [En]
 ```bash
 magnet:?xt=urn:btih:D09D1D2CA7297CE9C0F1CE4CB8E017F8FA4F11B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ IK Multimedia называет ToneX «полноценной программн
 magnet:?xt=urn:btih:C96BF3480F79A8DCD98B44E0C7ED184A67F1D25E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ FormatFactory - многофункциональный конвертер раз
 ```bash
 magnet:?xt=urn:btih:A88DFD8B79723A24C9CA34E14B822E468975F99F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Audiopunks - Spectra 610 Complimiter 1.0.0 VST 3, AAX (x64) [En]
 magnet:?xt=urn:btih:FA01DA74457DC3209AFBC2F93F8D1F4D275F504C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ The Snail — это высокоточный анализатор частот�
 magnet:?xt=urn:btih:8B07958E4B060A99C71FE2688423309CCD41464E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Plug And Mix - VIP Bundle V4 4.0.0 VST, VST 3, AAX (x64) [En]
 magnet:?xt=urn:btih:C5169706C3F33313F0E4B31B0C8450B1C1861E06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Tux Paint - это бесплатная, отмеченная наградами
 ```bash
 magnet:?xt=urn:btih:BD6096B9FA1DED4E6693E4E5A37AF5FD1E9A2A32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Thenatan - OPR8 1.0.0 VST, VST 3 (x64) [En]
 magnet:?xt=urn:btih:18A972D1D7C9E836C5DA63DDF122D9469F772167
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Steinberg - Retrologue 2 2.4.0 VSTi 3, AAX (x64) + Content [En]
 ```bash
 magnet:?xt=urn:btih:297FF419E80C5F8E771AAB7D1A1A7ABBD0BC2D15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Addictive Drums 2 представляет из себя полноценную 
 magnet:?xt=urn:btih:799CCF4ACDF588B92B423EC7CF76D3C6BB4702CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ iZotope Audiolens 1.4.0 (x64) RePack by R2R [En]
 magnet:?xt=urn:btih:33940101CD58F03753D7BF694C2C5BCA591F7F9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Steinberg - WaveLab 12 Pro 12.0.40 (x64) [Multi]
 ```bash
 magnet:?xt=urn:btih:8661DD4D4AF8C02970E17FA5EB59DA2F4958BD39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Lush 2 по-прежнему является 8-слойным синтезат�
 magnet:?xt=urn:btih:777118EA3233A67DB010126113EBFC0E421476F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ GForce - Oddity3 1.1.0 STANDALONE, VSTi, VSTi 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:6A622137C3754E4D5DEE9B80E1C70C31F3659860
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Wave Alchemy - Tapewave 1.0.0 VST 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:F0CBD4F2699703268FEDFECC774D63869FFC647D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ TAL-G-Verb — музыкальный эффект, способный созд�
 magnet:?xt=urn:btih:A5EB29E863D5F1EB4EAD4FEE10269688C8536640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:ABE5098B7D6361E53F8BC3FCED140903404040CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ Guitar Pro позволяет редактировать партитуры и �
 magnet:?xt=urn:btih:D068D989163555DB510B3F0CAA56DC78B8DEA097
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ Bloom Palette Object объединяет органические one-shots и 
 magnet:?xt=urn:btih:D4E72ED5E15DD4B1A9498BE890B0E4DD9EEB85D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ u-he - Twangstorm 1.0.2 VST, VST 3, AAX (x86/x64) [En]
 ```bash
 magnet:?xt=urn:btih:1081182978BD9E1A2BA81129C9AE21A18E2D1D86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

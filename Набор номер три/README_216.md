@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:66D42FBC19FFC78EDB506237619A076B498853A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MInstAll v.05.11.2020 By Andreyonohov & Leha342 (Unpacked) [Ru]
 ```bash
 magnet:?xt=urn:btih:9B3D1B8C97C5060B3E38C470B6C5C8836609477D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ S.T.A.L.K.E.R.: Зов Припяти – это сиквел к игре S.T.A.
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Deus Ex: Mankind Divided (2016) [Ru] (1.11.616.0/dlc) Repack  xatab [Digital Del
 ```bash
 magnet:?xt=urn:btih:F22C302B719FC719EF1E8403E761C17FF16333C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Call of Duty: Modern Warfare Remastered – переиздание Call of Duty 
 magnet:?xt=urn:btih:620008B0CA2C46162C43EEC329FA6469E56E3FBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Deus Ex: Mankind Divided - новая часть сериала Deus Ex, про�
 ```bash
 magnet:?xt=urn:btih:1A138D4BF50193100A12BA233A29765F7C8FC979
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 magnet:?xt=urn:btih:DA3EE1E394CDFCBB134DEE4813D5255C5B7FC7CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ PowerDirector - самое быстрое и передовое программ
 ```bash
 magnet:?xt=urn:btih:F179203BFCC358B1135DD70CD0FB8FCF72446089
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:F179203BFCC358B1135DD70CD0FB8FCF72446089
 magnet:?xt=urn:btih:398A7952A4946B77A9C7D82821ED2BFCB67D5A77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:398A7952A4946B77A9C7D82821ED2BFCB67D5A77
 ```bash
 magnet:?xt=urn:btih:C48E1FDEA767674E47ACA344D409D06FFAD80DED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Microsoft Office for Mac Standard 2016 v16.16.15 (build 191014) [Multi/Ru]
 magnet:?xt=urn:btih:B87418E991B6BF57CB880EC430FD1124A5530904
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ NKassy 1.4 Portable [Ru] (Авторская раздача)
 ```bash
 magnet:?xt=urn:btih:D5F2EE172E8435D2EF21AECADF62BFAAD75D3C94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:D5F2EE172E8435D2EF21AECADF62BFAAD75D3C94
 magnet:?xt=urn:btih:774C4885DA5BFB99E4023014456EE6756111FE6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:774C4885DA5BFB99E4023014456EE6756111FE6A
 ```bash
 magnet:?xt=urn:btih:B34C885A4881032FA75157114A44B4BC732919CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ Business Calendar Pro 1.5.0.0, Business Calendar 2 v2.2.31.3 [Ru/Multi]
 magnet:?xt=urn:btih:7531E244B906634A047AEC4C363B14154DCEB132
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:7531E244B906634A047AEC4C363B14154DCEB132
 magnet:?xt=urn:btih:5175B7D8897D7CA20D51A21F11AA48BA7A96775D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ Adobe Photoshop CC — программа для обработки растро
 ```bash
 magnet:?xt=urn:btih:10BE8153C81001BF5C64D6D91398AF0197815CF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ NNM-Club - Самый популярный сайт РУнета! + День р�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ Microsoft Office предоставляет удобные и простые с�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ Microsoft Office предоставляет удобные и простые с�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ SHADOWGUN - 2350 год, межгалактические компании на�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ Microsoft Office предоставляет удобные и простые с�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ Microsoft Office предоставляет удобные и простые с�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ Microsoft Office предоставляет удобные и простые с�
 ```bash
 magnet:?xt=urn:btih:3D271B5464188D3DCA6B24E68AD9B14C3A2203D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ Expeditions: Viking (2017) [Ru/Multi] (1.0.7.1/dlc) License CODEX
 magnet:?xt=urn:btih:AC8DB58102A884ADC7D5838E07AD83B9755F6555
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ Skype - бесплатная программа для текстового, г�
 ```bash
 magnet:?xt=urn:btih:D3730C0156FDF3A1D77CBF46FF09DDA0B304C3EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

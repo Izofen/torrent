@@ -1,3 +1,32 @@
+###  Публикация: 912416   (612306) от 25.06.2015
+
+VA - Союз летних хитов от Европа Плюс. Часть 3 (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612306.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Britney Spears & Iggy Azalea - Pretty Girls
+002. Иван Дорн - Весна
+003. Guy Sebastian - Animal In Me
+004. Lx24 - Сегодня Пьяным Буду Вновь(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:300BE17B0CC8B2C01C5391EBB6BD708B9C7C78F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912220   (612395) от 25.06.2015
 
 VA - Лето в кайф. Часть 4 (2015) [MP3|256 кб/с]<Pop>
@@ -21,6 +50,8 @@ VA - Лето в кайф. Часть 4 (2015) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:3C4BEC8EB5D07118E986BD87E64B5DE446BB067D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ magnet:?xt=urn:btih:3C4BEC8EB5D07118E986BD87E64B5DE446BB067D
 magnet:?xt=urn:btih:9451DFA163267FB346BEEA632F73C1584E7D423A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - German Top 100 Single Charts 22.04.2019 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:06C10ED4B3D30DE60C71C4434388421F6B6CE30C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Бомба Года Выпуск 50+50 (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:75F781560F7B2F8C7139DB07FD7E8158BB6BA1EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Ballads for Lovers Vol.1 (2016) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:28BC0FEF1684031557BDE7967E99C3E154AF6D58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ Madonna - Madonna's 40 Biggest Billboard Hits (2015) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:E333AD4035461ADAFD3387586605547AD81B0B8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Music for Car 14 (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:9C02F6EA8DAE3B2F521C890B6D42819AB07A6657
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +260,8 @@ VA - Загорелые Хиты Лета! (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:8D3E13C9FE19DCAF3605010773C897BE382108DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +288,8 @@ VA - Popular European Mix (2019) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:05D85DD23F995C311770585732E049A014D3D4B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +318,8 @@ VA - German Top 50 Party Schlager Charts 15.04.2019 (2019) [MP3|320 Kbps] <Pop, 
 magnet:?xt=urn:btih:532ADFAD8A3165D9E5994C94E8F71C898B99E2D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +346,8 @@ Ebony - The Singles Collection (2018) [MP3|320 Kbps] <Electronic, Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:78576EACF648D17923F955639B01BCF2BEB5AB30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +376,8 @@ VA - Pop Dance Top Selection (2018) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:231B90569F399AAD04E16F628D1365BFD2AEC438
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +404,8 @@ VA - Dance Club 2018.01 (2018) [MP3|320 Kbps] <Dance>
 ```bash
 magnet:?xt=urn:btih:9ED217D808424C1A74A4D6B67CCBED9CF694C71E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +434,8 @@ VA - 100 хитов Москва FM (2015) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:C50EFA53494DBF50690CB4D37B55A5655D9F44DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +462,8 @@ VA - Club Dance Ambience Vol.174 (2019) [MP3|320 Kbps] <Dance, Club, House>
 ```bash
 magnet:?xt=urn:btih:8F68469931800C69DD90796D258E70DDC93AE535
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +507,8 @@ VA - Лучшая русская попса (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:282F95FEE0C3D7750643D6498403C3D0434DEABF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +541,8 @@ VA - Музыка.ру 19 (2012) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:3D0A149BA31018E0CCE7098B211B134D3BF05F4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +577,8 @@ VA - Знойный летний хит (2012) [MP3|256-320 кб/с]<Pop>
 magnet:?xt=urn:btih:DC64C79F849B0E749D82D48DFC1B2DFD5468C3D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +605,8 @@ VA - Italo & Dance: Summer Sale (2018) [MP3|320 Kbps] <Italo-Disco, SpaceSynth>
 ```bash
 magnet:?xt=urn:btih:80B70BFCB257E4B0CC079064E9EAAA4A4A21D978
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +635,8 @@ magnet:?xt=urn:btih:80B70BFCB257E4B0CC079064E9EAAA4A4A21D978
 magnet:?xt=urn:btih:57EBB62309E14AA8B347BD43140E799F8FC8B58C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +663,8 @@ VA - Горячая поп сотня. Версия 50/50 (2016) [MP3|256 Kbps] 
 ```bash
 magnet:?xt=urn:btih:594E5BD016EA793FF396F25C68401B12E1128456
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +699,8 @@ VA - Музыка летнего настроения (2012) [MP3|256-320 кб/�
 magnet:?xt=urn:btih:FDC98A39913B4543B44D3B410890809DB974CEB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +734,8 @@ VA - MAXI. EuroHit от MTV (2012) [MP3|320 кб/с]<Pop,Dance>
 magnet:?xt=urn:btih:27AE553FC5970EDA579762F67890AC5D91F5D9DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -687,6 +762,8 @@ VA - Planet Disco (2017) [MP3|192-320 Kbps] <Disco, Italo-Disco, Eurodance>
 ```bash
 magnet:?xt=urn:btih:A7666C61693D41DE0DA22249C7006C62CBD3393E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -715,38 +792,7 @@ VA - Музыкальные Новости. Июнь (2018) [MP3|320 Kbps] <Pop,
 magnet:?xt=urn:btih:553940A4559C4C4DD1F15C238F9E4704DC2DCAD3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522832   (621064) от 14.07.2012
-
-VA - Ночная летняя вечеринка (2012) [MP3|256-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621064.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Maxima - Алло (Fidel Wicked Mix) (3:38)
-2. Dj Fudge - My Budem Vmeste (3:08)
-3. Magic Deejays - No No (Radio Edit) (3:01)
-4. Dj Smash & Chinkong - Lifemission (Original Mix) (6:58)
-5. Dress Code - Кучерявое Лето (2:49)
-6. Митя Фомин – Хорошие Песни (3:03)
-7. Сергей Жуков И Opium Project - Я Буду С Тобой (4:22)
-8. Юлия Савичева - Сердцебиение (3:39)
-9. Полина Гагарина Вернись Любовь (3:30)
-10. Даша Суворова - До Утра (Поставит Басту) (With Guitar) (3:20)Жанр: PopПродолжительность: 06:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91B5AE912D5B7A15029AC254E3D06096433FE79D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

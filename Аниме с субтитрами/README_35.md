@@ -19,6 +19,8 @@ Overlord IV | Повелитель [ТВ-4] [2022, TV, 13 эп. + 13 SP] BDRip 1
 magnet:?xt=urn:btih:9EDBD672F72E066E5E0C312D3E303E42E286A7BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Fate/strange Fake: Whispers of Dawn | Судьба/странная поддел
 ```bash
 magnet:?xt=urn:btih:47EEBCDE319EFCA3412FB02C57361228A5890F80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Majutsushi Orphen Hagure Tabi: Seiiki Hen | Волшебник-воин Орфе
 magnet:?xt=urn:btih:AA50CAF5D93F7224F6256658A6938F127BF58C00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Atasha Kawajiri Kodama Da yo: Dangerous Lifehacker no Tadareta Seikatsu | I'm Ko
 ```bash
 magnet:?xt=urn:btih:B8A444F906BA78794397EA1A3056A84982857869
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Kaguya-sama wa Kokurasetai: First Kiss wa Owaranai | Kaguya-sama: Love is War - 
 magnet:?xt=urn:btih:84D834AE1FA4FEA709A78E97622CE8E377D805C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Iwa Kakeru! Sport Climbing Girls | Держись крепче! Скалолаз
 ```bash
 magnet:?xt=urn:btih:1A00A63F68EB8E735CC2F9E57D6D3841CA8560BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Ultraman Final | Ультрамен 3 [2023, ONA, 12 эп.] WebRip 720p raw
 magnet:?xt=urn:btih:B23E5D34BAFB29E6C0F44F2C9385735FA61C02FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Ultraman Final | Ультрамен 3 [2023, ONA, 12 эп.] WebRip 1080p raw
 ```bash
 magnet:?xt=urn:btih:4EA9AF404FA5EF89CEE5408621BAB3DC04F6184F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Ginga Senpuu Braiger | Галактический Вихрь Брайгер [198
 magnet:?xt=urn:btih:916B299558EB62C752BF957E2E8A6D25BB6E5E1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Witch Craft Works | Ведьмовство | Ремесло ведьмы [2014, 
 ```bash
 magnet:?xt=urn:btih:211C8D1BD5226756358D102783B88CF4ED7BBB94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Gensou Mangekyou: The Memories of Phantasm | Тохо - Калейдоскоп �
 magnet:?xt=urn:btih:E16F0AAEBF5378AF5D4E8F2604A574AF25E6D09F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Mahou Tsukai Reimeiki | The Dawn of the Witch | Рассвет ведьмы [202
 ```bash
 magnet:?xt=urn:btih:F64F27679B6E9C359EBB5922AB76398747E9FA9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Birdie Wing: Golf Girls Story | Бёрди винг: История гольфи
 magnet:?xt=urn:btih:9EE167D22CB1C9679B681C5C8A6148A47E4624C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Kono Healer, Mendokusai | Don't Hurt Me, My Healer! | Этот хилер мен
 ```bash
 magnet:?xt=urn:btih:A34325154260D1DFE7AD71DBFC9074C7671F98C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Love Live! Nijigasaki Gakuen School Idol Doukoukai 2 / Love Live! Nijigasaki Hig
 magnet:?xt=urn:btih:9FD22B9C8D674841575423D5B15261D0712311B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Komi-san wa, Komyushou Desu. (2022) | Komi Can't Communicate | У Коми пр�
 magnet:?xt=urn:btih:822F2358C785216B320E7708B9EACF05D795D106
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Koi wa Sekai Seifuku no Ato de | Love After World Domination | Любовь по
 ```bash
 magnet:?xt=urn:btih:1AC94AFB5DA9827FF2F906E4B73B5CBEDF8293F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Kaguya-sama wa Kokurasetai: Ultra Romantic / Госпожа Кагуя: В лю�
 magnet:?xt=urn:btih:FC97A51EBB3E5BF76631C7576132E150A3876A3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ Date a Live IV / Рандеву с Жизнью 4 [2022, TV, 12] WEBRip 720p raw
 magnet:?xt=urn:btih:A3E4ADDBE857626543EB748DE99C8C1BF3216986
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ Heroine Taru Mono! Kiraware Heroine to Naisho no Oshigoto | Стать наст�
 ```bash
 magnet:?xt=urn:btih:BDF2258889A5AA45A0B49125D03EC69D9BB02547
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ Shachiku-san wa Youjo Yuurei ni Iyasaretai. | Корпоративная раб�
 magnet:?xt=urn:btih:47CF89FAEEEB1ABD070A3996A570FD94F4BBEBED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Shijou Saikyou no Daimaou, Murabito A ni Tensei Suru / Величайший По
 ```bash
 magnet:?xt=urn:btih:B39F4919FC195A258B3007838CB8B0ECCEB96ECE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ Healer Girl | Девушки-целительницы [2022, TV, 12 эп.] WEBRi
 magnet:?xt=urn:btih:EC90A781BA6443B8295E1749D8ED5D2E21CA9DA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Paripi Koumei | Ya Boy Kongming! | Тусовщик Кунмин [2022, TV, 12 �
 ```bash
 magnet:?xt=urn:btih:01848EFE33A4E55B53D45608477B8A97623AC139
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Yuu Yuu Hakusho | Yu Yu Hakusho: Ghost Files | Отчет о буйстве ду
 magnet:?xt=urn:btih:3AAEB47B9D5ABA89DE3CB6CCE9672461F4CB0B9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Yuu Yuu Hakusho: Meikai Shitou Hen - Honoo no Kizuna | Yu Yu Hakusho: The Movie 
 ```bash
 magnet:?xt=urn:btih:AAD615AC9A56F841C04B4AC87C1FC781992212E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

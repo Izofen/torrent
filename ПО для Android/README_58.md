@@ -19,6 +19,8 @@ jetAudio проигрывает практически все цифровые �
 magnet:?xt=urn:btih:D9B4E5747CC00CB6CC9787007650389DD6C17FD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ CoinSnap - Value Guide v1.2.9 [En]
 ```bash
 magnet:?xt=urn:btih:17B9C0A51B43B97AB32E8845A8FC6D80EC8DF7CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ GuitarTuna — это самый удобный, быстрый и точный 
 magnet:?xt=urn:btih:CDB3258A08BCA4F5AA73316E5C52DA2EF24121E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Zona v2.0.152 Mod by Timozhai [Ru]
 ```bash
 magnet:?xt=urn:btih:CBBE41672A01CD2191C333A37762A8438892ED83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ VoltLab v5.1.4 Pro [Ru/En]
 magnet:?xt=urn:btih:FD867A24541E14D98D913D20D257170E82C79F80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Happy Color™ - раскраска по номерам для взрослых.
 magnet:?xt=urn:btih:C70D567D6E7E026FD5338295720C9300EE7813AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Picsart Photo & Video Editor v21.3.2 Mod by CXVUSER [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1631E6E38327B75A369684BCDCED65C5754650AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:1631E6E38327B75A369684BCDCED65C5754650AA
 magnet:?xt=urn:btih:5C2E948DE3104F7B8DC0E34EFFDE115D94E1A0E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Root Explorer или Root Проводник - это отличное прил�
 ```bash
 magnet:?xt=urn:btih:9F5C73CA127F0318654DEA08B48F811F2DBD6F89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Revo Uninstaller Mobile - полезное приложение для любо�
 magnet:?xt=urn:btih:24DAC67852836AB4C7CCDD444AA5FE9054CAA84C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:5A4ED2D3FECDF1B981CEE7EBEBB2BE271FCB1AEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ Jotr: Quickly Draw & Sketch 4.4.4 Pro [Ru]
 magnet:?xt=urn:btih:23C587D122C6279256E7CB7FE0B9E0B0A85DF926
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ CPU-Z для Android от разработчика CPUID. Отличное пр�
 ```bash
 magnet:?xt=urn:btih:069A3E79D2D0642D715227BCA0A99F4AB6635A00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Enpass Password Manager Pro v6.7.1.572 [Ru/Multi]
 magnet:?xt=urn:btih:872CC153681BFEDAEF04D895A96FCF4A4C8EF68F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ KeePassDX Pro - Приложение позволяет сохранять и и
 ```bash
 magnet:?xt=urn:btih:39D286EA986006F0514C14018BA164F436445024
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:39D286EA986006F0514C14018BA164F436445024
 magnet:?xt=urn:btih:9037986BA997F28F0C24DA862BE8D2E048DC8813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ Kaspersky Internet Security для Android – мобильный антивир
 ```bash
 magnet:?xt=urn:btih:DA22305338E2F5F42FF844514F2BC0F00B9D9FB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:DA22305338E2F5F42FF844514F2BC0F00B9D9FB8
 ```bash
 magnet:?xt=urn:btih:4BCF2743F976701333382BCA99AFC31A791DB8F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ Cookpad - это международная платформа для обмен
 magnet:?xt=urn:btih:D08799FFB6B4CC12666C503B181B2895295BEFCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ CloudBeats - облачный музыкальный проигрыватель.
 ```bash
 magnet:?xt=urn:btih:DF92B35C6587E8192A19D8855494F6EDDC76907F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ Sticker Maker v0.0.3-20 [Ru/Multi]
 magnet:?xt=urn:btih:5874B6EA118F1CB180273BBF58DA022D8F5376C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ Screenshot Touch – это удобное и простое приложени�
 ```bash
 magnet:?xt=urn:btih:7732D4ECDACEDCE899C7B25CD9EABE82C7A6DD01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:7732D4ECDACEDCE899C7B25CD9EABE82C7A6DD01
 magnet:?xt=urn:btih:D8F1D5D889C0DC45FC6F0FB691A515EE2776315F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ Evernote синхронизирует данные между всеми ваш�
 ```bash
 magnet:?xt=urn:btih:B81C9282053B1E12FC71755D3DEC320C05AEBFA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +668,8 @@ AIMP - это легковесный мобильный аудиоплеер п�
 magnet:?xt=urn:btih:6C5ABB309FF5440EE3AAC496BE780BB2C31F13ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ Vivaldi для Android — это новый приватный веб-брау�
 ```bash
 magnet:?xt=urn:btih:6E3D403BFDF065AC1253E085CFD7349472919174
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

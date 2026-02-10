@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:97A01BE3A64A6ABE022EA4638B91E410872182D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Multi Commander - мощный многооконный менеджер фай�
 magnet:?xt=urn:btih:FF99C23C8557A906ADAD7A3AE5CBEC6AE6C0B6EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ SuperАлиби 2 / Alibi.com 2 (2023) BDRip [H.264/1080p] [UKR звук с ТS]
 ```bash
 magnet:?xt=urn:btih:A1C057A237023DEE19FE1482380BCE359CA03175
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:A1C057A237023DEE19FE1482380BCE359CA03175
 ```bash
 magnet:?xt=urn:btih:C9AD901C527DB7E671596B5A86F9065D34F6743B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ MasterClass, Marques Brownlee | Make Compelling Videos That Go Viral (2022) WEB-
 magnet:?xt=urn:btih:6F9DDBADD4782250129A8523B0E5045E0232419D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:6F9DDBADD4782250129A8523B0E5045E0232419D
 magnet:?xt=urn:btih:82706C009B9A8334D54CC722826B98E9E2A85652
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:82706C009B9A8334D54CC722826B98E9E2A85652
 ```bash
 magnet:?xt=urn:btih:B80F322E940A2FEC0F97787E90158871BDCAAB56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:B80F322E940A2FEC0F97787E90158871BDCAAB56
 magnet:?xt=urn:btih:A45D21F67293F86FA2D3CA4FCDB1B9EA93904C07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:A45D21F67293F86FA2D3CA4FCDB1B9EA93904C07
 ```bash
 magnet:?xt=urn:btih:1BC263A01171A6F1049D6DF6A23C879E48DE05CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:1BC263A01171A6F1049D6DF6A23C879E48DE05CA
 magnet:?xt=urn:btih:B3B2EF15433C92380E0A044215C31D0A7E167660
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:B3B2EF15433C92380E0A044215C31D0A7E167660
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:B3B2EF15433C92380E0A044215C31D0A7E167660
 magnet:?xt=urn:btih:0EFEEE22AD4B6535C83D0F318887239B4F7B827D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:0EFEEE22AD4B6535C83D0F318887239B4F7B827D
 ```bash
 magnet:?xt=urn:btih:C61108727763AD91607E5A0F12A3309FB3FE8118
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:C61108727763AD91607E5A0F12A3309FB3FE8118
 magnet:?xt=urn:btih:41E287E46AEAFCFE38068D07131B43AF6602815B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Ardan Labs, Bill Kennedy | Ultimate Go: Software Design with Kubernetes (2023) W
 ```bash
 magnet:?xt=urn:btih:91F59AF494DBD7527BE69AC57E84721C4721293E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:91F59AF494DBD7527BE69AC57E84721C4721293E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:91F59AF494DBD7527BE69AC57E84721C4721293E
 ```bash
 magnet:?xt=urn:btih:F3402439DAF9234EE0A79FAE29CE855EA32F818B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ RX уже давно является популярным пакетом для
 magnet:?xt=urn:btih:CCA592DE49CE96A60291E4EFD06FEA03BC7002A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:CCA592DE49CE96A60291E4EFD06FEA03BC7002A5
 ```bash
 magnet:?xt=urn:btih:48BFD40C9F826A5E835C8F34FD23461A2DCF17AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Google приходится мириться с необычной реакци�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Google приходится мириться с необычной реакци�
 ```bash
 magnet:?xt=urn:btih:9839906CB37CD995955C08FBD0ACB488125851E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:9839906CB37CD995955C08FBD0ACB488125851E2
 magnet:?xt=urn:btih:95315BA78071331C3391A814682BF9FD1AA7FC46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:95315BA78071331C3391A814682BF9FD1AA7FC46
 magnet:?xt=urn:btih:1F8F34F732495247FF9A1A45A69ED3BE41B0A3F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:1F8F34F732495247FF9A1A45A69ED3BE41B0A3F7
 ```bash
 magnet:?xt=urn:btih:F69C3B7201A20F3427CE0136B0137745AF05CAAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:F69C3B7201A20F3427CE0136B0137745AF05CAAB
 magnet:?xt=urn:btih:ECAB6A3A3C5A0E6DBFBDD194A620BE9E684AB00C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:ECAB6A3A3C5A0E6DBFBDD194A620BE9E684AB00C
 ```bash
 magnet:?xt=urn:btih:78DD6FC981D7CA4090163EFE504F762FACA7BBAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

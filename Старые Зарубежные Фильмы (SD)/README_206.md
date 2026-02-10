@@ -1,30 +1,3 @@
-###  Публикация: 288633   (922015) от 29.01.2011
-
-Ордер на смерть / Death Warrant (1990) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ван Дамм в роли офицера Луиса Берка, полицейского детектива, отправляется под видом осужденного в тюрьму "Харрисон", чтобы раскрыть серию убийств заключенных. В стенах тюрьмы он сталкивается с жестокостью сокамерников, с коррумпированными охранниками, со смертью и предательством всех мастей.
-Когда Берк узнает шокирующую тайну тюрьмы, он должен совершить дерзкий побег - его последний шанс вырваться из лап сотен осужденных головорезов, возглавляемых его кровным врагом.Жанр: БоевикРежиссер: Деран Сарафьян / Deran SarafianАктеры: Жан-Клод Ван Дамм /Jean-Claude Van Damme/, Роберт Гийом /Robert Guillaume/, Синтия Гибб /Cynthia Gibb/, Джордж Дикерсон /George Dickerson/, Патрик Килпатрик /Patrick KilpatrickПеревод: Двухголосный (закадровый) - канал НТВ
-Одноголосный (Андрей Гаврилов)
-Оригинал (ENG)Продолжительность: 01:29:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD07E8B35ED2E3604AC12BA15552639CA6B28875
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489998   (922261) от 18.08.2021
 
 Розовый сад / The Rose Garden (1989) SATRip
@@ -45,6 +18,8 @@ magnet:?xt=urn:btih:DD07E8B35ED2E3604AC12BA15552639CA6B28875
 ```bash
 magnet:?xt=urn:btih:8EC611BC5DC8928BE82CCCD51C91F08E37A54CD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +45,8 @@ magnet:?xt=urn:btih:8EC611BC5DC8928BE82CCCD51C91F08E37A54CD6
 magnet:?xt=urn:btih:93BC62D917F1F4129F6F85BB23C161D6F3859853
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +70,8 @@ magnet:?xt=urn:btih:93BC62D917F1F4129F6F85BB23C161D6F3859853
 ```bash
 magnet:?xt=urn:btih:5A8C5A17BF8E8F976029D04AD727979645E2CD8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +98,8 @@ magnet:?xt=urn:btih:5A8C5A17BF8E8F976029D04AD727979645E2CD8D
 magnet:?xt=urn:btih:CE7AE8C54BF24CC31F496434553ADF677EE340CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +123,8 @@ magnet:?xt=urn:btih:CE7AE8C54BF24CC31F496434553ADF677EE340CB
 ```bash
 magnet:?xt=urn:btih:5BEE57CFDA8F72EAF63F25FE9C9085086E2ACE5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +152,8 @@ magnet:?xt=urn:btih:5BEE57CFDA8F72EAF63F25FE9C9085086E2ACE5F
 magnet:?xt=urn:btih:213F955E42F7F68CD325F81D5284A6144BA36FB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +178,8 @@ magnet:?xt=urn:btih:213F955E42F7F68CD325F81D5284A6144BA36FB7
 magnet:?xt=urn:btih:5288B060B04223CD7A387679893DBBEF3FEEAD95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +203,8 @@ magnet:?xt=urn:btih:5288B060B04223CD7A387679893DBBEF3FEEAD95
 ```bash
 magnet:?xt=urn:btih:F7C69F6DC70940D3631C56078280CA2EC1F47111
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +232,8 @@ magnet:?xt=urn:btih:F7C69F6DC70940D3631C56078280CA2EC1F47111
 magnet:?xt=urn:btih:916209359244043828570A709D6241912C36695C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +257,8 @@ magnet:?xt=urn:btih:916209359244043828570A709D6241912C36695C
 ```bash
 magnet:?xt=urn:btih:0EBA243F66EB96923E067636127A4B5319EE9C61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +284,8 @@ magnet:?xt=urn:btih:0EBA243F66EB96923E067636127A4B5319EE9C61
 magnet:?xt=urn:btih:0AB113EB3F5362D51C9EE54FF8F690C6B140F096
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +310,8 @@ magnet:?xt=urn:btih:0AB113EB3F5362D51C9EE54FF8F690C6B140F096
 magnet:?xt=urn:btih:01B8D32ADCAC5502D1705D6510F51F5E0E61B0FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +335,8 @@ magnet:?xt=urn:btih:01B8D32ADCAC5502D1705D6510F51F5E0E61B0FC
 ```bash
 magnet:?xt=urn:btih:6B4A4B59A491A3C745B18E649DBDAFFE862516EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +364,8 @@ magnet:?xt=urn:btih:6B4A4B59A491A3C745B18E649DBDAFFE862516EB
 magnet:?xt=urn:btih:BD3B9C29845E2FCE77B28F8FBAA3044C4BC82136
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +392,8 @@ magnet:?xt=urn:btih:BD3B9C29845E2FCE77B28F8FBAA3044C4BC82136
 magnet:?xt=urn:btih:ADD9D1D30705F26A606883F246703A298312845C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +417,8 @@ magnet:?xt=urn:btih:ADD9D1D30705F26A606883F246703A298312845C
 ```bash
 magnet:?xt=urn:btih:DB33B646559A8188591F8D621C80CF0DDEA502C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +446,8 @@ magnet:?xt=urn:btih:DB33B646559A8188591F8D621C80CF0DDEA502C3
 magnet:?xt=urn:btih:400423ACDAB60DC97B120BE2BA95B24EB6D477E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +471,8 @@ magnet:?xt=urn:btih:400423ACDAB60DC97B120BE2BA95B24EB6D477E2
 ```bash
 magnet:?xt=urn:btih:56C0B6D0FA580082E5D6F8BB718C15A4D268D206
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +498,8 @@ magnet:?xt=urn:btih:56C0B6D0FA580082E5D6F8BB718C15A4D268D206
 magnet:?xt=urn:btih:DB3FD77D7E072BEA0797B8C6413E4719BBB8BAB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +523,8 @@ magnet:?xt=urn:btih:DB3FD77D7E072BEA0797B8C6413E4719BBB8BAB4
 ```bash
 magnet:?xt=urn:btih:96C275031665CDAEEAB3F403E06778F0F5BCB698
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +551,8 @@ magnet:?xt=urn:btih:96C275031665CDAEEAB3F403E06778F0F5BCB698
 magnet:?xt=urn:btih:3A9B79C5834F1C76D7F813EA6162F1E68862DB9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +576,8 @@ magnet:?xt=urn:btih:3A9B79C5834F1C76D7F813EA6162F1E68862DB9F
 ```bash
 magnet:?xt=urn:btih:3DAA5D407CDE564689997DE4E91D4FED1F665C54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +603,8 @@ magnet:?xt=urn:btih:3DAA5D407CDE564689997DE4E91D4FED1F665C54
 magnet:?xt=urn:btih:78EBD04558AA81646C9FB8AEDCB6F560A91AACFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +629,8 @@ magnet:?xt=urn:btih:78EBD04558AA81646C9FB8AEDCB6F560A91AACFA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +654,35 @@ magnet:?xt=urn:btih:78EBD04558AA81646C9FB8AEDCB6F560A91AACFA
 ```bash
 magnet:?xt=urn:btih:C500EA8046D7F2151A06466BFA5AE96A8994D3F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489353   (927223) от 15.08.2021
+
+Прелести охоты / Le delizie della caccia (1910) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кретинетти это такой персонаж актера Андре Дида. Очень популярный. Попадал во всякие неловкие ситуации, как правило по собственной глупости, отсюда и имя персонажа. Как у любого популярного персонажа у него было много подражателей в разных странах. В англосаксонских странах под именем Фулхеда (Дурень), в России - Глупышкин и т.п.
+В этой ленте Кретинетти отправился (   Читать дальше...   )Производство: Италия, Itala filmЖанр: Комедия, короткометражный, немое киноРежиссер: НеизвестенАктеры: Андре Дид, Валентина ФраскаролиПеревод: НемойСубтитры: ОтсутствуютПродолжительность: 00:05:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C93862F9373CF6122012E52D957800C547DDBE05
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

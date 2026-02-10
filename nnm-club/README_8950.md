@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:20735AA5683C20DC2231581608319D4AF45CEEEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Sansibar - Targeted Individuals (2019) FTP [FLAC|Lossless|WEB-DL|tracks] <Electr
 ```bash
 magnet:?xt=urn:btih:59757107369CF977CC370AF5C2FCD41202D5B136
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ Artificial Intelligence - Dreams of Freedom (2016) EP [MP3|320 Kbps] <Drum & Bas
 magnet:?xt=urn:btih:3E83EF9194B586230EE2717BD1D2D9343A264283
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:3E83EF9194B586230EE2717BD1D2D9343A264283
 ```bash
 magnet:?xt=urn:btih:D70F42CC6513475BE13EBF4243FFB5AE37B5D225
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:D70F42CC6513475BE13EBF4243FFB5AE37B5D225
 ```bash
 magnet:?xt=urn:btih:3602DB9A2BA46F458B17A5E34E0BC677C4E6B1DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ The Bigness - Time Traveler (2016) [MP3|320 Kbps] <Indie Rock, Female Vocal>
 magnet:?xt=urn:btih:8BF071B25E1E0AFAB130673DC767AEA6E0332A9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:8BF071B25E1E0AFAB130673DC767AEA6E0332A9A
 ```bash
 magnet:?xt=urn:btih:5C120945FFB8FEA7CFDBB58CA6A782F12B54E3C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:5C120945FFB8FEA7CFDBB58CA6A782F12B54E3C2
 magnet:?xt=urn:btih:C1D63E79D5D74C0501E161A2D669E2E16A64C79E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:C1D63E79D5D74C0501E161A2D669E2E16A64C79E
 ```bash
 magnet:?xt=urn:btih:6EFEED2BC186932C60C74CEF3832FD1B717082DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ DJ Feel - TranceMission (12-12-2016) [MP3|320 Kbps] <Trance, Progressive Trance>
 magnet:?xt=urn:btih:8F8A6734823F8177F35CADF9169EAB178DF078C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:8F8A6734823F8177F35CADF9169EAB178DF078C9
 ```bash
 magnet:?xt=urn:btih:A26E503EF1BACC68841D61AEAC51637B0EF26010
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ VA - Coffee Bar Lounge Vol.3 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:0E94C7130CECBF7D0FF6DBB406970D84B74A505B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ magnet:?xt=urn:btih:0E94C7130CECBF7D0FF6DBB406970D84B74A505B
 magnet:?xt=urn:btih:491D043102D72C2B3A89BD65998C6E9B0A844FF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:491D043102D72C2B3A89BD65998C6E9B0A844FF3
 magnet:?xt=urn:btih:6EA6340FE880AEDF400EB13FFF779DE13E75020F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ magnet:?xt=urn:btih:6EA6340FE880AEDF400EB13FFF779DE13E75020F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +435,8 @@ VA - Tag Und Nacht (2016) Total Black [FLAC|Lossless|WEB-DL|tracks] <Techno, Ind
 magnet:?xt=urn:btih:30D310AB6D1CD337C76328C1622F50221A4A632B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ magnet:?xt=urn:btih:30D310AB6D1CD337C76328C1622F50221A4A632B
 ```bash
 magnet:?xt=urn:btih:13CAB245B33495635E6FF679BCD58B6F69A10F38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +493,8 @@ magnet:?xt=urn:btih:13CAB245B33495635E6FF679BCD58B6F69A10F38
 magnet:?xt=urn:btih:B4F51705BCB938D831468604F624E130DBBAF690
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +520,8 @@ magnet:?xt=urn:btih:B4F51705BCB938D831468604F624E130DBBAF690
 ```bash
 magnet:?xt=urn:btih:B8B269DDDC496010FF2971998239D641F14542BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +550,8 @@ VA - Electric Trance (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:22F30BCC12A45BF875EC98BA3D8C71F02568DA3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +578,8 @@ magnet:?xt=urn:btih:22F30BCC12A45BF875EC98BA3D8C71F02568DA3C
 ```bash
 magnet:?xt=urn:btih:25A562CF312CFE7CD0BD3E48AF66717428A3F218
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +608,8 @@ VA - Deugene Music Winter Selection Vol. 10 (2017) [MP3|320 Kbps] <Trance,Progre
 magnet:?xt=urn:btih:20284D0BFEF5AAC38D5AEB28019959DBDCDA822F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +635,8 @@ magnet:?xt=urn:btih:20284D0BFEF5AAC38D5AEB28019959DBDCDA822F
 ```bash
 magnet:?xt=urn:btih:327170ED02C375D3347F19224CAB9C21C67733AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +664,8 @@ magnet:?xt=urn:btih:327170ED02C375D3347F19224CAB9C21C67733AF
 magnet:?xt=urn:btih:8D9C4C51D8E46D027D318678B609ED6FEB7F4562
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +691,8 @@ magnet:?xt=urn:btih:8D9C4C51D8E46D027D318678B609ED6FEB7F4562
 ```bash
 magnet:?xt=urn:btih:EE6C6B3B08592BBBC6307C012FBA27D40A1CDD6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +720,8 @@ magnet:?xt=urn:btih:EE6C6B3B08592BBBC6307C012FBA27D40A1CDD6F
 ```bash
 magnet:?xt=urn:btih:DDE655CDABC9BF36A076504D54E2319FE53B57C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

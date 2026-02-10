@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:72B2D86FDDE37CC74B7C170AECD142A7DD4E8BE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:72B2D86FDDE37CC74B7C170AECD142A7DD4E8BE8
 ```bash
 magnet:?xt=urn:btih:331B724532A17A634D36FB3A9EA5732E586E71B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:331B724532A17A634D36FB3A9EA5732E586E71B7
 magnet:?xt=urn:btih:18125E65AC5506D251C0B82098D6DE58A4A11139
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:18125E65AC5506D251C0B82098D6DE58A4A11139
 ```bash
 magnet:?xt=urn:btih:2400EA84000E8C0D02881546E37977A1E12B51DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:2400EA84000E8C0D02881546E37977A1E12B51DD
 magnet:?xt=urn:btih:E31A09EE2296E6EE37B136BFFDBBBB93AAE42F94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.1.0a) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:85DD219F011B1F7D3BFD090D6D4F98364BA1F0B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:85DD219F011B1F7D3BFD090D6D4F98364BA1F0B8
 magnet:?xt=urn:btih:04A085F0F3AD811B2BCCFD53B4E8C4AF59E4844D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:04A085F0F3AD811B2BCCFD53B4E8C4AF59E4844D
 ```bash
 magnet:?xt=urn:btih:70AF327F6E0F0D5892434FDA3F67A46289834023
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:70AF327F6E0F0D5892434FDA3F67A46289834023
 magnet:?xt=urn:btih:B92E2866D8789A87A766518E59DF7981A8375C4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:B92E2866D8789A87A766518E59DF7981A8375C4B
 ```bash
 magnet:?xt=urn:btih:8E7F531EC349D805D96CB3DAA815BD95E38C1841
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:8E7F531EC349D805D96CB3DAA815BD95E38C1841
 magnet:?xt=urn:btih:2937147A2FB2CEB99061F8245BE4180699482060
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:2937147A2FB2CEB99061F8245BE4180699482060
 ```bash
 magnet:?xt=urn:btih:28864CFB209DF07360A0955EDFD7126E89682EB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:28864CFB209DF07360A0955EDFD7126E89682EB0
 magnet:?xt=urn:btih:87E696E9CA812D9BC9126971D241D2DFB39A2AB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ FastStone Image Viewer - просмотровщик, редактор и кон�
 magnet:?xt=urn:btih:3BE8A4948779E1A2BBE7EE3D05DAB9F6C430E0EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Cronos: The New Dawn - это новое слово в жанре survival horro
 ```bash
 magnet:?xt=urn:btih:9352D58F4E490E315107A16F6494E7BE1717768E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:9352D58F4E490E315107A16F6494E7BE1717768E
 magnet:?xt=urn:btih:2A32B01709EDCDD0348AD3476C083E2AD70F9A88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:2A32B01709EDCDD0348AD3476C083E2AD70F9A88
 ```bash
 magnet:?xt=urn:btih:DF530829CB5EB0EBBF7DC79A4179B01CF9C42F2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:DF530829CB5EB0EBBF7DC79A4179B01CF9C42F2E
 magnet:?xt=urn:btih:81EDAFFAAC3DEEBE1358C388B9ABAFA1A511DFDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Corsair выплатит пользователям компенсацию в $5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Corsair выплатит пользователям компенсацию в $5
 magnet:?xt=urn:btih:15999D582B933F363C4451D319BC8DAC7647993E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:15999D582B933F363C4451D319BC8DAC7647993E
 ```bash
 magnet:?xt=urn:btih:2B065417E9D4D72EC1BDAED34AA6485DB18EB5F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Factorio – игра, в которой вы строите и обслужив
 magnet:?xt=urn:btih:667D03CC069D5E337213806152AC154CA057E192
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:667D03CC069D5E337213806152AC154CA057E192
 ```bash
 magnet:?xt=urn:btih:83BD479D881F36B728AFEB8612407CED99B2A418
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:83BD479D881F36B728AFEB8612407CED99B2A418
 magnet:?xt=urn:btih:1ED2F80966DE1509D35229073A279370628E2C25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ The Alters - амбициозная научно-фантастическая и
 magnet:?xt=urn:btih:CE9A902A18EFFD558F8C9F95627F4F0CC89E931A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ inZOI - игра в жанре симулятора жизни, в которо�
 ```bash
 magnet:?xt=urn:btih:1BE28C988B87789A9E7670F52609321F5A85F71F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

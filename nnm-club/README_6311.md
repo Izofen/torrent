@@ -22,6 +22,8 @@ Tiamat — шведская группа. Существует с 1989 года,
 magnet:?xt=urn:btih:25F942100F8234A7305D9FEF80789D38C2726AFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:25F942100F8234A7305D9FEF80789D38C2726AFC
 ```bash
 magnet:?xt=urn:btih:290B1EB924283965133F10836FF185B771F180AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Date a Live IV | Рандеву с жизнью [ТВ-4] [2022, TV, 12 эп.] BD
 ```bash
 magnet:?xt=urn:btih:07BB75CFB15D71A5B0A577DF524292114091E4F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ PG Roxette (Per Gessle & Roxette) - Pop-Up Dynamo! (2022) 3CD [FLAC|Lossless|WEB
 magnet:?xt=urn:btih:76E1DCEEFDB8D173D0B15E057FB45C1550707E71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ EssentialPIM - высокофункциональный менеджер пер�
 magnet:?xt=urn:btih:14C493742233D74782E0C17F47A411FF553507CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:14C493742233D74782E0C17F47A411FF553507CF
 ```bash
 magnet:?xt=urn:btih:45285B752584B5CD63995DE2F6268857A66AF0E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ Devin Townsend - Lightwork / Nightwork (2022) Deluxe Edition [FLAC 2.0|48/24|WEB
 magnet:?xt=urn:btih:4513BFB8CB54A26C4F5EF268CBF55DA47291C594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ Udemy, Sebastian Glöckner | Der Komplette Excel Kurs - Vom Anfänger zum Profi 
 ```bash
 magnet:?xt=urn:btih:69363E8658B863ED5B82964F5EB8D215A2610F72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ Lillian Axe - From Womb To Tomb (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 magnet:?xt=urn:btih:94C0DFAD2A805CED7848380FD072DD409E64DA9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:94C0DFAD2A805CED7848380FD072DD409E64DA9B
 ```bash
 magnet:?xt=urn:btih:EF24A2EA7B8894E3A43FEDC821C1964438685142
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +299,8 @@ VA - Rock & Blues Part 9 (2022) [MP3|320 Kbps] <Rock, Blues>
 magnet:?xt=urn:btih:3AED8C347EF59387E7C16B8218241C88F6283411
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:3AED8C347EF59387E7C16B8218241C88F6283411
 magnet:?xt=urn:btih:1B15BC95A9BB613FAA036962E066F5ABD3058DB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:1B15BC95A9BB613FAA036962E066F5ABD3058DB2
 ```bash
 magnet:?xt=urn:btih:46780CE4FE08C6812A685D61056BBEE299863919
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +380,8 @@ VA - В машине с музыкой Vol.314 (2022) MP30 [320 Kbps] <Pop, Danc
 magnet:?xt=urn:btih:C4AA3F457C78CDBA49CDE55C22DD3E040A090E5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ magnet:?xt=urn:btih:C4AA3F457C78CDBA49CDE55C22DD3E040A090E5A
 magnet:?xt=urn:btih:C6E95649C83FF0571B89C52DFFAF9A2EB05454D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ qBittorrent - бесплатный, мощный и удобный в работ
 ```bash
 magnet:?xt=urn:btih:9773CCE85415F2AF9005B8FD4E83680F4A7236A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +464,8 @@ Tequilajazzz - Лучшее (2CD) (2010) [FLAC|Lossless|image + .cue]<Alternativ
 magnet:?xt=urn:btih:545D60A774506357E3308557CD6DCD8183F90B50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ magnet:?xt=urn:btih:545D60A774506357E3308557CD6DCD8183F90B50
 ```bash
 magnet:?xt=urn:btih:4797BFC0150537DC0091327A1F6B56010B34CC51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +516,8 @@ magnet:?xt=urn:btih:4797BFC0150537DC0091327A1F6B56010B34CC51
 magnet:?xt=urn:btih:EE3DD5378F1E59AF1C0FBDBFA1EA17333B382A4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:EE3DD5378F1E59AF1C0FBDBFA1EA17333B382A4B
 ```bash
 magnet:?xt=urn:btih:BDDCEF49FE01E9E671B9C165A0B262E10CF33F04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ Simply Piano - это одно из лучших приложений для о�
 magnet:?xt=urn:btih:D83E92D9BCBEAD5EEA1332E5E58BE5B21D2956D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ magnet:?xt=urn:btih:D83E92D9BCBEAD5EEA1332E5E58BE5B21D2956D5
 ```bash
 magnet:?xt=urn:btih:20B0B6E8079E088DBE7FB6D207D05DFBE4BDA7E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:20B0B6E8079E088DBE7FB6D207D05DFBE4BDA7E0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:20B0B6E8079E088DBE7FB6D207D05DFBE4BDA7E0
 ```bash
 magnet:?xt=urn:btih:94620FCEE1A971420B8CD66BA0016ADA36A769AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ Otomege Sekai wa Mob ni Kibishii Sekai Desu | Trapped in a Dating Sim: The World
 magnet:?xt=urn:btih:EE05EF44C61C3259F2E0C026C07D146058A296CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ magnet:?xt=urn:btih:EE05EF44C61C3259F2E0C026C07D146058A296CF
 ```bash
 magnet:?xt=urn:btih:D19052600A03274AFB3B130B3225E35B88153CE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

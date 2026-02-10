@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:42F732364C05849C2F19857ABC2EA56B7F9A35AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ SkyLab Studio - изменит ваше представление о небе �
 ```bash
 magnet:?xt=urn:btih:AD5CD1738434F9C7C948505F558017165ED2FCCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Nicole Millar - Tremble (2016) EP [MP3|320 Kbps] <Alternative Pop, Indie Dream P
 magnet:?xt=urn:btih:4A4DF1D5BB9619BA3595DF9E77C0E9A455519713
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ CocCoc Browser - браузер, который является продукт�
 magnet:?xt=urn:btih:874DFBC0DFB0CC8F28ABB8B021072A9113DD6E13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:874DFBC0DFB0CC8F28ABB8B021072A9113DD6E13
 ```bash
 magnet:?xt=urn:btih:792603059E2845A49712AB9F162ED7C7265AA644
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ Snakes In Paradise - Step Into The Light (2018) [FLAC|Lossless|WEB-DL|tracks] <H
 magnet:?xt=urn:btih:DED1D5BAA724E76554D44457D08635E2EAF8DFD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:DED1D5BAA724E76554D44457D08635E2EAF8DFD7
 magnet:?xt=urn:btih:E86CA5945086CCCA2E3B206844ACF91845DF6B3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:E86CA5945086CCCA2E3B206844ACF91845DF6B3D
 ```bash
 magnet:?xt=urn:btih:C6EC071CFD97B996055C47FF72578B80E78F628D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ Skyharbor - Sunshine Dust (2018) [FLAC|Lossless|image + .cue] <Progressive Metal
 magnet:?xt=urn:btih:9EAF252518F57792A79F0991E4137D308D2039F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ VA - TranceMission Vol.4 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:D7161AEBF0B0FD921892CC2BCFCA60DF8A3FAF40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +303,8 @@ Lambert & Dekker - We Share Phenomena (Instrumental Version) (2018) [FLAC|Lossle
 magnet:?xt=urn:btih:FCFF0CD013254A86F22F95486DE7E0E0C3AE2BF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +331,8 @@ VA - Trance The Annual 2019 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:B4B1967022698D48B96C202427FF4E21E05A4816
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +361,8 @@ no.9 - Switch of LIFE (2018) Steve* Music [FLAC|Lossless|WEB-DL|tracks] <IDM, Mo
 magnet:?xt=urn:btih:A2EA840EBFE20DE9C4BE8582A6D269735D9D7D4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +389,8 @@ VA - German Top 50 Party Schlager Charts 19.11.2018 (2018) [MP3|320 Kbps] <Pop, 
 ```bash
 magnet:?xt=urn:btih:A5D2D57150C484E8E719A626E1619321E725C1FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +419,8 @@ magnet:?xt=urn:btih:A5D2D57150C484E8E719A626E1619321E725C1FF
 magnet:?xt=urn:btih:6542C51BAFD48B22E81A57165D0C7E6E44C40C1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +448,8 @@ magnet:?xt=urn:btih:6542C51BAFD48B22E81A57165D0C7E6E44C40C1F
 magnet:?xt=urn:btih:2D8AAD4629EE9A2A528E8E3EE712E81671F57126
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +473,8 @@ Wizard Barristers: Benmashi Cecil / Маги в законе [2014, TV, 12 ep] B
 ```bash
 magnet:?xt=urn:btih:6D5846D6B6AA2FE783E3CAA161955DB6C7C551E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +500,8 @@ Lester Young Trio with Nat King Cole and Buddy Rich (1943, 1944, 1946) 1994, Ver
 ```bash
 magnet:?xt=urn:btih:639E26889FD1A8FD5D81D943B47B36DFAD13CB5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +530,8 @@ magnet:?xt=urn:btih:639E26889FD1A8FD5D81D943B47B36DFAD13CB5F
 magnet:?xt=urn:btih:2B4E0E70DFE7FAFC62DD522188D767F6472625EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +558,8 @@ Dave Brubeck - Blue Rondo A La Turk (1982) 2005, Delta Music [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:169B5385B7E7353D4EC8A4F07075738AEA22E3E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +588,8 @@ magnet:?xt=urn:btih:169B5385B7E7353D4EC8A4F07075738AEA22E3E5
 magnet:?xt=urn:btih:D0FA832088B251CB50A391CD85A35C293A5A78A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +616,8 @@ Marcus Printup - Nocturnal Traces (1998) Blue Note [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:D212E96897C076F38163E54DAC7EBB1B32888D1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +646,8 @@ Kyoto Jazz Sextet - Unity (2017) Universal [FLAC|Lossless|tracks + .cue] <Post-B
 magnet:?xt=urn:btih:82E46307CD5976DC60278861C025D29243639BD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +674,8 @@ magnet:?xt=urn:btih:82E46307CD5976DC60278861C025D29243639BD2
 ```bash
 magnet:?xt=urn:btih:1F52237AA8017FFF3B81F5BFD1D7E6E2BEDF59F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +704,8 @@ Alex Riel - Rielatin' (2000) Stunt Records [FLAC|Lossless|tracks + .cue] <Post-B
 magnet:?xt=urn:btih:BBC2CCC0F69B040263C8BDCAD2E4DCE85F0B0C29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -679,6 +729,8 @@ magnet:?xt=urn:btih:BBC2CCC0F69B040263C8BDCAD2E4DCE85F0B0C29
 ```bash
 magnet:?xt=urn:btih:E113EFE56EDADBDE95B03269393BFE0E8BB047E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Sons of Valhalla - приключенческий сайд-скроллер с �
 magnet:?xt=urn:btih:6230695E71D337DED32E6155851784C2252D06D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Barn Finders – это симулятор поиска "сокровищ" в г
 ```bash
 magnet:?xt=urn:btih:6E5EDA9501FD758E9506EAFB4E7124B81F7AB850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ SteamWorld Build является спин-оффом франшизы Стим�
 magnet:?xt=urn:btih:6A2C8B637C2AB8DFD3B0DADE234B629ED9B2A99D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Tempus Rail бросает вас с головой в кошмар Дикого
 ```bash
 magnet:?xt=urn:btih:D1E4925913A7EA55E5FB1822A75FB581EA32E3EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Necrosmith 2 - продолжение знаменитого симулятор�
 magnet:?xt=urn:btih:ABEB6369B0EDFD3AC622B0E96B36219CE636A2DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Immortal Mayor относится к симуляторам бога и ст
 ```bash
 magnet:?xt=urn:btih:BD9B095035965D6D259102710E68D275F8CE3227
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Magical Mixture Mill - это увлекательный симулятор,
 magnet:?xt=urn:btih:A854CFFA11D4B66B87F668B5B7810BD2EB8345EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ CD 2: Trap Master - инновационный геймплей, в которо
 ```bash
 magnet:?xt=urn:btih:BC65165111B791199C564E1CC9F8FF17B9333E14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Millennia - пошаговая стратегическая игра, охват
 magnet:?xt=urn:btih:A1B649B68AF99623FE0300C7A89AAA6A9D521F36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Between the Stars (2019) [Ru/Multi] (1.0.0.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:681BB7A7A43FD523A0D33E1192E6C8B8B6477135
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Between the Stars (2019) [Ru/Multi] (1.0.0.2) Scene Rune
 magnet:?xt=urn:btih:3388EA28D7F0A7B5AED9620455C8FB6734E01F4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ United Penguin Kingdom приглашает вас отправиться в у�
 ```bash
 magnet:?xt=urn:btih:23175E9606B99E8269A4F7B9058D38B3318068A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Beneath the Mountain погружает пользователей в подзе
 magnet:?xt=urn:btih:FA636C8F2D65151F61372A815E70CFB9B8B2FECF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Disco Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0A5FA5497CF9652F3F48CEE1ABC78D20D6BD3723
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Synergy – это градостроительный симулятор в су
 magnet:?xt=urn:btih:D98FE8FDA55CACD6584D1DC25AB67BA8E47776F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Blood Bowl (2012) [Ru/Multi] (3-2-0-0) License GOG [Chaos Edition]
 ```bash
 magnet:?xt=urn:btih:F6F92FDEE6AC54ACEF6C43A44462968E6C40E992
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Sid Meier's Railroads! (RePack) [Ru/En] 2006 | R.G. Catalyst
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Tropico 4: Modern Times [En] (L) 2012 l RELOADED
 magnet:?xt=urn:btih:849C8228F96C73E7BEFFA776B9DDFAD85588A461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Tropico 4
 ```bash
 magnet:?xt=urn:btih:E0AB3A14C9F9D9F9A4597FC917770C022C397FA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Modern Times4
 magnet:?xt=urn:btih:4BBF1D723B1AD15C3A69CFD0A08EE7A150D77F81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Dungeon Keeper 2 {1.7} (RePack) [Ru/En] 1999 | Sash HD
 magnet:?xt=urn:btih:C4EA0C57A3ABEC4FDB3B6DF058B3C0A1B6779B88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Airport Tower Simulator 2012 [En/Ge] (L) 2012
 ```bash
 magnet:?xt=urn:btih:43254B7B40A4BBDB63D3AF919061FFD61E0F711E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ Pole Position 2012 [Multi5-] (L) 2012 | FairLight
 magnet:?xt=urn:btih:63EF4C67BB5E404A27485992A1BFAD8332E3BFD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ SimAnt: The Electronic Ant Colony (RePack) [En] 1991 | Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ SimLife (RePack) [En] 1992 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Arcade Tycoon: Simulation Game (2021) [Ru/Multi] (2.0.3) License GOG
 ```bash
 magnet:?xt=urn:btih:DF6BE43B61A5E2CEF506C0463F02A007AD81606E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

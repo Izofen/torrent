@@ -22,6 +22,8 @@ Phil Woods Quartet - European Tour Live (1980) 2CD, 1995, Red Record [FLAC|Lossl
 magnet:?xt=urn:btih:61E979EF6AF08F63348F18079CA51AB0689576B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ The Steve Miller Band - Your Saving Grace (1969) Reissue, 1987, Capitol [FLAC|Lo
 magnet:?xt=urn:btih:A935C7A23251A174580598235822F25D4417F659
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Uartsy, Ryan Kingslien | Artistic Anatomy in ZBrush (2014) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:1F99221C1809F921ED7DE64D03DE5834F08B4E54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ Bernard Sellam & The Boyz From The Hood - Feelin' So Fine (2023) [FLAC|Lossless|
 magnet:?xt=urn:btih:14CB950B6848BC9569DDD481612AB37E7A58D2CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ VA - Smooth and Sexy - Premium Jazz Grooves (2016) [AAC|~331 Kbps] <Lounge, Chil
 ```bash
 magnet:?xt=urn:btih:468ADC5514BD22C7B8C694B4191143B1A6CA65AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ FontXChange  - приложение для конвертирования шри
 magnet:?xt=urn:btih:273FD7F259D8422158FDD8870B2050CEBBE01753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ VA - Beatport Trance Pack (23.09.) (2016) [MP3|320 Kbps] <Trance, Melodic, Emoti
 ```bash
 magnet:?xt=urn:btih:C640D2FF701E75245FEF8F1AF2EA6A401238E5AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ VA - Like The Old Day (2023) [MP3|320 Kbps] <Disco, Electronic, Synthwave>
 magnet:?xt=urn:btih:F37FB4076AB71C19831057637FB92EF846820593
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +248,8 @@ magnet:?xt=urn:btih:F37FB4076AB71C19831057637FB92EF846820593
 magnet:?xt=urn:btih:E1CB949DF8535CD8EA0D2197527E10E54AED2397
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ magnet:?xt=urn:btih:E1CB949DF8535CD8EA0D2197527E10E54AED2397
 ```bash
 magnet:?xt=urn:btih:1CBC7984DD0019B12D9CD627DE539E1D4B04B36E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +303,8 @@ Obscura - A Valediction (2021) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Me
 magnet:?xt=urn:btih:C56AE7F9B855926CB83E7A70B5880F3DBADBD844
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +331,8 @@ The Teddy Buckner Band - In Concert At The Dixieland Jubilee (1955) 1988, Gnp Cr
 ```bash
 magnet:?xt=urn:btih:F6A5E2BCA9929C292C854B2F2ECE9A0F2F92B83C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +361,8 @@ Black Rabbit - Hypnosomnia (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death M
 magnet:?xt=urn:btih:A815171B2B5E3D92DDD9A52B84664EEA4E16A031
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +386,8 @@ SizeMyPics может помочь вам в преобразовании бол
 ```bash
 magnet:?xt=urn:btih:6C4A2F7C27FB675B20CD7B1F9D30F05C5C43F185
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +415,8 @@ magnet:?xt=urn:btih:6C4A2F7C27FB675B20CD7B1F9D30F05C5C43F185
 magnet:?xt=urn:btih:83A36B2CB20AF3DF10A343E0C4DCB8462E714CC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +440,8 @@ PDF Shaper Professional 13.1 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:57671532BC44A05492AA9F8E28559BE3B9960CF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +470,8 @@ magnet:?xt=urn:btih:57671532BC44A05492AA9F8E28559BE3B9960CF5
 magnet:?xt=urn:btih:BB41F86B8DD2D1484F68526CC8002F10CBC4DB43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +499,8 @@ Jesse Damon - Damon's Rage (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 magnet:?xt=urn:btih:81766192A2DAA116F15128865C28B19111F381AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +524,8 @@ magnet:?xt=urn:btih:81766192A2DAA116F15128865C28B19111F381AF
 ```bash
 magnet:?xt=urn:btih:97644B828E5CDA07B43746CC8BAA024ABBAF1076
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +554,8 @@ Michael Davis - Absolute Trombone (1997) Hip-Bone Music [FLAC|Lossless|tracks + 
 magnet:?xt=urn:btih:65231AEA016DAA75525880EFE0EF9246E50C8879
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +579,8 @@ WebToLayers преобразует веб-сайты в документы Photo
 ```bash
 magnet:?xt=urn:btih:6EEA3B7004F9EA104DFA11ED84D956650BB5F728
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +606,8 @@ magnet:?xt=urn:btih:6EEA3B7004F9EA104DFA11ED84D956650BB5F728
 magnet:?xt=urn:btih:7C9C551A7A01E2FD61ACCD26E1D2D6BDB386334D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +632,8 @@ magnet:?xt=urn:btih:7C9C551A7A01E2FD61ACCD26E1D2D6BDB386334D
 magnet:?xt=urn:btih:3B0F4CDCC123C7B44D7027AD6B2A57F3ED720451
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +657,8 @@ magnet:?xt=urn:btih:3B0F4CDCC123C7B44D7027AD6B2A57F3ED720451
 ```bash
 magnet:?xt=urn:btih:2F7F37291E67007AF41EF45E5FE88A0E545BA9FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +687,8 @@ magnet:?xt=urn:btih:2F7F37291E67007AF41EF45E5FE88A0E545BA9FC
 magnet:?xt=urn:btih:6D1E223BC8A14794BAC330FEA0B2B918740FB889
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +712,8 @@ magnet:?xt=urn:btih:6D1E223BC8A14794BAC330FEA0B2B918740FB889
 ```bash
 magnet:?xt=urn:btih:415A4668B9A0E4CFAA3D5E27E2BA0FB2E1B97738
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

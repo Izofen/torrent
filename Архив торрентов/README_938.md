@@ -19,6 +19,8 @@ WPS Office - очень полезное, офисное приложение д
 magnet:?xt=urn:btih:BEBFD279D6D622DD1A21793C4F2A056AA698A656
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ ASAP Utilities позволяет упростить и автоматизиро
 ```bash
 magnet:?xt=urn:btih:3C937D91AAD53F531F4E6B7BE31434A2516E0DBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ updated_dec_2023_x64_dvd_3045f975.iso
 magnet:?xt=urn:btih:CFC6DBBD613A20F09CED46A4357E1C931FB10AC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ KiCad – уникальный в своем роде программный п�
 magnet:?xt=urn:btih:656F608FC26E87CAE3D79967DD8CDE1E94BE0D6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ MKVToolnix - функциональный набор инструментов д
 ```bash
 magnet:?xt=urn:btih:9DAA9C970DB613816DD0814FBAC3653C0FFED663
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ updated_dec_2023_x64_dvd_3045f975.iso
 magnet:?xt=urn:btih:8D75C840B6E0DFE7B1F1EEE8F23976B98C150E3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Windows 11 Manager - это универсальная утилита специ
 ```bash
 magnet:?xt=urn:btih:0A09101017F2BB1AE89A01BE2010DA5F3FB6E6BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Windows 11 (v23h2) x64 PRO by KulHunter v2 (esd) [En]
 magnet:?xt=urn:btih:335FDAC0277E6270FFE02C708A1EAA5F88C7E2AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ Lumion Pro 2023.4.2.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0A2634E699505A0D6B6BDE0E9A6332943C7F8AC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:0A2634E699505A0D6B6BDE0E9A6332943C7F8AC5
 magnet:?xt=urn:btih:713DFD65794358CF07A03D527B8600685CC0C0CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ PhotoDirector - функциональный, но весьма простой �
 ```bash
 magnet:?xt=urn:btih:64FD26B1F18BFDF67F7DECF5D044AD12C12A4C90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ StaxRip - инструмент для кодирования видео "все-
 magnet:?xt=urn:btih:3FE084D23F3D355A66F84DF28ADFB4F29E567CB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ RegCool 1.353 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FDF20DBF6D407F5905CA37470F3659D5ED5FCAF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ SyMenu это средство позволяющее объединить вс�
 magnet:?xt=urn:btih:25C030FE47882B20C7D5C4294C6BF0420AEA515B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:56D1AE641F74DB6B488ECEA7838B252C5EDEBDB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:CFCB793DD829119EACAFA2AE6F04EED12F478713
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ Reface v4.1.1 Mod by Mixroot [Multi]
 ```bash
 magnet:?xt=urn:btih:A5293FA4B4C8DB96CE575ADEFB4D5F524CE11726
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ Kimetsu no Yaiba: Katanakaji no Sato Hen | Demon Slayer: Swordsmith Village Arc 
 magnet:?xt=urn:btih:A604D31D438A43EB5D98FA88A1165E8B03AA4356
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ Photo Studio — не просто приложение для редактир�
 ```bash
 magnet:?xt=urn:btih:945CCD7C575668BC78313B54F2DF9B54988143C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ InShot - Мощный видеоредактор и фоторедактор н�
 magnet:?xt=urn:btih:3F660F8DD4B802F9B61A78F8D278C7453EECC063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:1471B5CF8D84236339027BD346F4398417FF135F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:E6CCF7E95827286EA9F3C69D40BF47C74303423A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ LibreOffice — мощный офисный пакет, полностью со�
 ```bash
 magnet:?xt=urn:btih:14CCDEB638706EBF0166538D2F1A25AEC23F7A7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ ToonMe 0.6.102 Mod by maxi123444 [Ru/Multi]
 magnet:?xt=urn:btih:3217B5DE6BC2EBC024120DF7860A66E44E276ED6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ Ventusky: Прогноз погоды v30.3 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:C677AB204DFA0FADB750E6AC0B68DEA713CCFBDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ AndroVid Pro представляет собой простой и удобны�
 ```bash
 magnet:?xt=urn:btih:DC39E8E199DC20535FE58AFE66C3BA3ACE1FFFD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

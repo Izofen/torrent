@@ -19,6 +19,8 @@ Halo: The Master Chief Collection (2019) [Ru/Multi] (1.0) License CODEX (обн�
 magnet:?xt=urn:btih:EC4EC6E9B2BC67885A45CFCA0A7A457FD3FDC5AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:410749866BAC2DA162A4BDC3F3A83F080014562B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:410749866BAC2DA162A4BDC3F3A83F080014562B
 magnet:?xt=urn:btih:41DDD22312DAD7E8BDD0992B08A1E068FB18E830
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:41DDD22312DAD7E8BDD0992B08A1E068FB18E830
 ```bash
 magnet:?xt=urn:btih:8649314114A3A0DB3916ACFEDEB4209AD08A1961
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Shadowrun: Hong Kong - это новая пошаговая ролевая иг�
 magnet:?xt=urn:btih:02F139349F18CE754EA5493AEEE0DC6E9CF81C45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:02F139349F18CE754EA5493AEEE0DC6E9CF81C45
 magnet:?xt=urn:btih:6CE7074A6946AC604626F2E1C8496C8C592C1701
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ magnet:?xt=urn:btih:6CE7074A6946AC604626F2E1C8496C8C592C1701
 ```bash
 magnet:?xt=urn:btih:FC7CA0D0987AC2B0D960EE7CD095A37FDECDAB42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Russell Ballantine - Harpo's Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:7F1B19EEE196CF96ADCDD2A22ACF0E43C6795A89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ The Matrix: Path of Neo / Матрица: Путь Нео (2005) [Ru/En] (1.2) R
 ```bash
 magnet:?xt=urn:btih:A629C3D47A710168DBC38E1DB9F5CDADB8A862F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:A629C3D47A710168DBC38E1DB9F5CDADB8A862F6
 magnet:?xt=urn:btih:EA7452348372F28015646495394C47B54F58B000
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:EA7452348372F28015646495394C47B54F58B000
 ```bash
 magnet:?xt=urn:btih:9E72A8EE6524F611AA6BA111A273D769933A03C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Bridge Constructor: The Walking Dead (2020) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:0B4A614DA5E8E327FA35231FEBAADC146079B128
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:0B4A614DA5E8E327FA35231FEBAADC146079B128
 ```bash
 magnet:?xt=urn:btih:C7D8185A1701AF6D273DC60842428ED0C34BAA0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ AnyTrans - файловый менеджер, который отвечает з
 ```bash
 magnet:?xt=urn:btih:C23EED1BA94712487395027FECC8736DCBA7418C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:C23EED1BA94712487395027FECC8736DCBA7418C
 magnet:?xt=urn:btih:F59A5A24FAF90A59A0A0EA2B446F1F0BE8E8EB8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:F59A5A24FAF90A59A0A0EA2B446F1F0BE8E8EB8A
 ```bash
 magnet:?xt=urn:btih:8868287C9900E04879DDD41615BBBAE6F3C31987
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:8868287C9900E04879DDD41615BBBAE6F3C31987
 magnet:?xt=urn:btih:A1C81954BDD4BAAFA22B751B8DCFDA0700C71387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Sidify Music Converter - программа поможет без особых �
 magnet:?xt=urn:btih:8CB128EF7CB098955E096FE13497183760B4F00A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:8CB128EF7CB098955E096FE13497183760B4F00A
 ```bash
 magnet:?xt=urn:btih:6633B2583103FA8DC28DD5B6E1B953F353857C03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ Malkasian - The Macabre (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych,
 magnet:?xt=urn:btih:EF2E47737EE3847885F6AE95C8D2E3D13D56C4DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ CGTarian, Вадим Беседин | CG Generalist (2015) TVRip
 ```bash
 magnet:?xt=urn:btih:A44D41751CB7D9BFB59EDCD747C55A74A38EF49B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:A44D41751CB7D9BFB59EDCD747C55A74A38EF49B
 magnet:?xt=urn:btih:FC9EA96EB8F7789C99AEC44B6DB5ADF05AC35E17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:FC9EA96EB8F7789C99AEC44B6DB5ADF05AC35E17
 magnet:?xt=urn:btih:5FB142B65A1A0E7674B74EB6B77FBCF0DDEA1D37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ Elfen Lied | Эльфийская песнь [2004, TV, 13 из 13 + спешл]
 ```bash
 magnet:?xt=urn:btih:63A054745481B0929BC5B84BCBD7097E38A09D8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:63A054745481B0929BC5B84BCBD7097E38A09D8E
 magnet:?xt=urn:btih:8271302F47121EAE9BB7247BC115401A8A151E1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ SolSuite 2013 - самый крупный в мире сборник карто�
 ```bash
 magnet:?xt=urn:btih:DA657A987B2128BF36AC6DEDA66F8FC77E75548D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

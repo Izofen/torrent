@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:06F0C2A59BE0E9E784A5AB55C04F9B0CBCEA176C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:06F0C2A59BE0E9E784A5AB55C04F9B0CBCEA176C
 magnet:?xt=urn:btih:556FCB20617FDF4CE0195F6C10E8BC62D6A1A0C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ VSD Viewer позволяет просматривать форматы файл
 ```bash
 magnet:?xt=urn:btih:D3E0FC21967ADEF73898300416AC70E661392B30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ VA - High School Music Band - Je T'aime... Moi Non Plus (2018) [MP3|320 Kbps] <E
 magnet:?xt=urn:btih:80293D1FC8DA3DF40AAABF925BF328B0617E4280
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:80293D1FC8DA3DF40AAABF925BF328B0617E4280
 magnet:?xt=urn:btih:A8C6F85A97B7C842BC8A8BA1B9FC17D37B78336A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:A8C6F85A97B7C842BC8A8BA1B9FC17D37B78336A
 magnet:?xt=urn:btih:CA025DC9638137901A34635712EE101D08C95E1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:CA025DC9638137901A34635712EE101D08C95E1D
 ```bash
 magnet:?xt=urn:btih:965167A1FD33BABD5BC4543A337A6A14A8FFF079
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:965167A1FD33BABD5BC4543A337A6A14A8FFF079
 magnet:?xt=urn:btih:00D971FB0AC372199F3705DA838703A6BDEAD0F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Schoolism, Thomas Fluharty | Oil Painting (2016) PCRec [RU]
 ```bash
 magnet:?xt=urn:btih:0A3E85220639428AE9F397AF2369C20EF381A306
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:0A3E85220639428AE9F397AF2369C20EF381A306
 magnet:?xt=urn:btih:6965B2E448952A7E25914E87FE083ECDD37A331B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:6965B2E448952A7E25914E87FE083ECDD37A331B
 ```bash
 magnet:?xt=urn:btih:C7BF6E77E8DC416B0885C1E5A2D022FD6F74293E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:C7BF6E77E8DC416B0885C1E5A2D022FD6F74293E
 magnet:?xt=urn:btih:8D0DA170C18D60725A41C3CBE5F1A15B54BD7272
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:8D0DA170C18D60725A41C3CBE5F1A15B54BD7272
 magnet:?xt=urn:btih:213DB1270C70A7D3FEA7FD5F3EE950CDDEBB6E72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:213DB1270C70A7D3FEA7FD5F3EE950CDDEBB6E72
 ```bash
 magnet:?xt=urn:btih:80351D0947D093F296CF0650D24E71904EFD60D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ The Cure - Seventeen Seconds (1980) Fiction 825 354-2 [FLAC|Lossless|image + .cu
 magnet:?xt=urn:btih:6B87C99A7B4706A59C5CAAFBA0A0CD745A644F34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ Future Faces - Euphoria (2020) [MP3|320 Kbps] <Alternative, EBM, Coldwave, Post-
 ```bash
 magnet:?xt=urn:btih:FE09AE0C2EF3C7376677C19E4E4F11693D3E37FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ Reckless and Blue - Can't Give Me the Blues (2021) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:AF064C9296D4C379FC98D6996FA3272429EC302A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:AF064C9296D4C379FC98D6996FA3272429EC302A
 ```bash
 magnet:?xt=urn:btih:0FEF6C147CACBCE9BCE2E25FF36B22E4BA59E461
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ WhyNotWin11 2.4.3.1 Portable [Ru/En]
 magnet:?xt=urn:btih:61556BF289E6A381452552DAA670A8DB930C1EAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:61556BF289E6A381452552DAA670A8DB930C1EAF
 ```bash
 magnet:?xt=urn:btih:56AD082C802D535BC276F5FD914039F8D199765D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:56AD082C802D535BC276F5FD914039F8D199765D
 magnet:?xt=urn:btih:107AADA7E00AEE717806A8BE5D0F20F32540703E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:107AADA7E00AEE717806A8BE5D0F20F32540703E
 ```bash
 magnet:?xt=urn:btih:C95070B85D661B9DF0FB814AEBE85EDEE6AC8F55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:C95070B85D661B9DF0FB814AEBE85EDEE6AC8F55
 magnet:?xt=urn:btih:E8A14CC2192B09EFFC8C45E69C164029C30B43F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +644,8 @@ High School Music Band - Rock It (2018) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:F0B86E1FDCB358C56A94F657895961138BB964C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ magnet:?xt=urn:btih:F0B86E1FDCB358C56A94F657895961138BB964C5
 ```bash
 magnet:?xt=urn:btih:97D83889433FCFD9F3C648D14FC2D1EC24D16A2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +698,8 @@ Jrago - Disconnect (2022) [MP3|320 Kbps] <Modern Metal>
 ```bash
 magnet:?xt=urn:btih:018BEA29E4992BB3DF904AAFF71718F8E8A1B9E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

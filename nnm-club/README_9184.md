@@ -20,6 +20,8 @@ RightFont - менеджер шрифтов с  красивым интерфе�
 magnet:?xt=urn:btih:EEDCDF85C521BB2C19DE984D9F6745B01CBBF732
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Cookie - Программа для полного удаления cookie-фай
 ```bash
 magnet:?xt=urn:btih:3E525DA3AB43C4CCF735DB082EDD36493C56F3AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:3E525DA3AB43C4CCF735DB082EDD36493C56F3AE
 magnet:?xt=urn:btih:9691D67928DC66BC73FBA24612B99D87D45355CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:9691D67928DC66BC73FBA24612B99D87D45355CC
 ```bash
 magnet:?xt=urn:btih:3E5692CB74A277868916BE6083184DEDDFCC7446
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ Aqualung - Memory Man (2007) Japan Edition [FLAC|Lossless|tracks + .cue] <Pop Ro
 magnet:?xt=urn:btih:4A417DF4447E52A6420DBEC2BD2890775A679FA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:095447294656102932CE81A3CC4551EB30480ABE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +194,8 @@ Missa Mercuria - Missa Mercuria (2002) [FLAC|Lossless|image + .cue] <Progressive
 magnet:?xt=urn:btih:4E17391F7386A78CFFC513DC1058E9E8851EDD5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +220,8 @@ WinSnap - утилита, которая позволяет с легкость�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ WinSnap - утилита, которая позволяет с легкость�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +281,8 @@ WinSnap - утилита, которая позволяет с легкость�
 magnet:?xt=urn:btih:B746C9FD9A81A7725F997DDEAA5764C14C9F1948
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +307,8 @@ magnet:?xt=urn:btih:B746C9FD9A81A7725F997DDEAA5764C14C9F1948
 magnet:?xt=urn:btih:F9B9040BC99B403346B06CEEBEFB6C684CCA1895
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +332,8 @@ magnet:?xt=urn:btih:F9B9040BC99B403346B06CEEBEFB6C684CCA1895
 ```bash
 magnet:?xt=urn:btih:64DD9055DE8586C36554664635E620CF289C266E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +362,8 @@ Sebastian Mullaert - A place called • Inkonst (2019) Kontra Musik [FLAC|Lossle
 magnet:?xt=urn:btih:81F6A3685A8B3E6A86544BB6D8E9BA90157BC211
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +390,8 @@ DREDDD - Pain Deluxe (2019) [FLAC|Lossless|WEB-DL|tracks] <Electro, Minimal>
 ```bash
 magnet:?xt=urn:btih:9F432A6705E5459EE81C846F0C59690238E38F50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +420,8 @@ Circus Brimstone - Live - Brimstoned In Europe (2005) [FLAC|Lossless|image + .cu
 magnet:?xt=urn:btih:79EDDED9717C489859BE2EF0730E4847A65CC36B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +449,8 @@ Centric Jones - The Antikythera Method (2011) [FLAC|Lossless|image + .cue] <Prog
 magnet:?xt=urn:btih:D7E7E71F70E96D5E5BD3F112AE4796BF48E2A410
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +474,8 @@ magnet:?xt=urn:btih:D7E7E71F70E96D5E5BD3F112AE4796BF48E2A410
 ```bash
 magnet:?xt=urn:btih:4698EA8303553CE77F6349E03638DF034EFD8812
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +501,8 @@ magnet:?xt=urn:btih:4698EA8303553CE77F6349E03638DF034EFD8812
 magnet:?xt=urn:btih:B7DE25386CC5148EAE62C0CAF718BE0548DDCD2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +527,8 @@ magnet:?xt=urn:btih:B7DE25386CC5148EAE62C0CAF718BE0548DDCD2B
 magnet:?xt=urn:btih:2DFA4B9D354B4B7E13A4EC67A01534F87BEC8C84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +552,8 @@ magnet:?xt=urn:btih:2DFA4B9D354B4B7E13A4EC67A01534F87BEC8C84
 ```bash
 magnet:?xt=urn:btih:5CF91C0A28039162D709C09384C6F9B988D15EF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +580,8 @@ magnet:?xt=urn:btih:5CF91C0A28039162D709C09384C6F9B988D15EF2
 magnet:?xt=urn:btih:EC6CED695BA1E3FA32C17D1C772F1344DDC97973
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +605,8 @@ magnet:?xt=urn:btih:EC6CED695BA1E3FA32C17D1C772F1344DDC97973
 ```bash
 magnet:?xt=urn:btih:A70E3D4B41F2A641380F34301030ECFC5FA33685
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +635,8 @@ VA - Lingerie Lounge 2 - 30 Top Chillout Tunes (2017) [MP3|320 Kbps] <Downtempo,
 magnet:?xt=urn:btih:FD04A41BB13BB015F2A6A3F7E1686F8739B6345C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +660,8 @@ Hazel – это ваш личный уборщик, который органи
 ```bash
 magnet:?xt=urn:btih:667D2BB13A7EF0C5A68595D385B19575101B1C26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +689,8 @@ PullTube предлагает Вам (   Читать дальше...   )Тип
 magnet:?xt=urn:btih:CAD915FC24FB3C7A26EAD097653FC79A07036185
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +717,8 @@ VA - Junkie XL - Best275z (1997 - 2016) [MP3|320 Kbps] <Breakbeat, House, Electr
 ```bash
 magnet:?xt=urn:btih:21E1611BB1EDB7182C82BFF91D2E062D895DE126
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

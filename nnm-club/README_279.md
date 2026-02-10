@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:69E6DAE09F2DB59A7A432F941CABAB78F47E49E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Senua's Saga: Hellblade 2 - продолжение ролевого экшена
 magnet:?xt=urn:btih:4CB4C0ABE65D3EC7BE10B0D924F7EADAC084D103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NewPipe x SponsorBlock x Return YouTube Dislike v0.28.0 Mod by baalajimaestro  [
 ```bash
 magnet:?xt=urn:btih:69DB33752A5353000BE913F066B96700B46DB13D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ TranslucentTB — это небольшая утилита, позволяюща
 ```bash
 magnet:?xt=urn:btih:49011328BD5B2869DB6F561FED89426E564F82FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:49011328BD5B2869DB6F561FED89426E564F82FE
 magnet:?xt=urn:btih:07E6629C9E4F452EF27D4A55377453A4532A9011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:777110A26C6A38EDEAC450C35DC4CE6A8079CF9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Tales & Tactics – перед вами классический автобат�
 magnet:?xt=urn:btih:D3AD8CC4CC2E17AC12EEF0EEDFB67A7DD153E225
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:D3AD8CC4CC2E17AC12EEF0EEDFB67A7DD153E225
 magnet:?xt=urn:btih:C3FFE0D45277349C2BC7AB1936C7A34E61F8B19C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:C3FFE0D45277349C2BC7AB1936C7A34E61F8B19C
 ```bash
 magnet:?xt=urn:btih:EA8B7E6AAD81E9C146C1F5CB040B7735F382CCFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:EA8B7E6AAD81E9C146C1F5CB040B7735F382CCFE
 magnet:?xt=urn:btih:0FA8F7BC99936272DB7DF6A9B1C6340AEFB2BB56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:0FA8F7BC99936272DB7DF6A9B1C6340AEFB2BB56
 ```bash
 magnet:?xt=urn:btih:739004F63943C9E33192A9D87664D777F095BFE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:739004F63943C9E33192A9D87664D777F095BFE4
 magnet:?xt=urn:btih:5779BC7BA6CC6AF67FC65D22A4A4D88B8E69A0D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:5779BC7BA6CC6AF67FC65D22A4A4D88B8E69A0D2
 ```bash
 magnet:?xt=urn:btih:1BD3EDE398A94DDF53A546FB1673EA7F565B3A04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:1BD3EDE398A94DDF53A546FB1673EA7F565B3A04
 magnet:?xt=urn:btih:5F836D4FE45E9F085580361165F6E01B47944C90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:5F836D4FE45E9F085580361165F6E01B47944C90
 ```bash
 magnet:?xt=urn:btih:400F9D0C934D082840093CCA580CAD291300FD4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:400F9D0C934D082840093CCA580CAD291300FD4B
 magnet:?xt=urn:btih:1648718BCA0FDC10C1C474D892C847E6614EF839
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Deadzone: Rogue - это roguelite-шутер от первого лица, де
 ```bash
 magnet:?xt=urn:btih:21EBB2C680F5F7A9BA8BE3D3C50F81BD14BFB807
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:21EBB2C680F5F7A9BA8BE3D3C50F81BD14BFB807
 magnet:?xt=urn:btih:6D3F6BA0640E4737B25E5B76A26FA0E40E71E225
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ JetBrains PyCharm Professional – это мощная и многофункци
 ```bash
 magnet:?xt=urn:btih:7A53553F90C2D5D970F06D5D4BE425B2B14E43FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:7A53553F90C2D5D970F06D5D4BE425B2B14E43FE
 magnet:?xt=urn:btih:11B5992596F794373696C3C0BC557F28D34D2DF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:11B5992596F794373696C3C0BC557F28D34D2DF7
 ```bash
 magnet:?xt=urn:btih:AF7C52B47168775C16D94E39B14757C53C2EA2BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:AF7C52B47168775C16D94E39B14757C53C2EA2BB
 magnet:?xt=urn:btih:860B7A3F4BCE51B131682EC93FB171DA7D0D85A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ ORDER 13 (2025) [Ru/Multi] (1.12) License GOG
 ```bash
 magnet:?xt=urn:btih:2AF16D49B30995494644552F2DD7DA9A25E1372F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Age of Wonders 4 - пошаговая стратегия с тактически
 magnet:?xt=urn:btih:159ECD04D01A025F12293C7B028B2F59A79A8C12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ ChameleonLab — это мощное и бесплатное приложени�
 ```bash
 magnet:?xt=urn:btih:FD59B2C57EFB695749CBE2E49D671A2EBCAFED8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

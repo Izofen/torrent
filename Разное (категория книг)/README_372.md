@@ -1,3 +1,30 @@
+###  Публикация: 1153650   (556740) от 28.07.2017
+
+А. Колпакиди, Г. Потапов | Николай II. Святой или кровавый? (2017) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556740.jpg" />
+</div>
+
+
+###  Подробнее
+
+О Николае II изданы сотни книг, тысячи статей, сняты десятки художественных и документальных фильмов. В большинстве из них повествуется о семейной идиллии и трагической гибели последнего самодержца, при котором экономика России процветала и росла самыми быстрыми темпами в мире.
+Такой книги, как эта, ещё не было ни в наше, ни в советское время. В ней рассказывается (   Читать дальше...   )Жанр: История, ПублицистикаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7B4DA03A2F4AEBDB2FBE889F1D09D68A40615B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305420   (556826) от 30.05.2019
 
 Вадим Зеланд | Кухня предков. Пища силы (2019) [PDF, FB2]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:0F8B834A555CA976241258E19C99D85BDEE0B3C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +71,8 @@ magnet:?xt=urn:btih:0F8B834A555CA976241258E19C99D85BDEE0B3C9
 ```bash
 magnet:?xt=urn:btih:0CD9032E60A76F9DBE257D3C5E50D5AAAD5639D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:0CD9032E60A76F9DBE257D3C5E50D5AAAD5639D1
 magnet:?xt=urn:btih:2D04F0AA5C8045E3BFE899F96A85E2772F8598F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +126,8 @@ magnet:?xt=urn:btih:2D04F0AA5C8045E3BFE899F96A85E2772F8598F7
 magnet:?xt=urn:btih:761C5D1B39CF2496CC40048A91F8734FB3F2FC71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +152,8 @@ magnet:?xt=urn:btih:761C5D1B39CF2496CC40048A91F8734FB3F2FC71
 ```bash
 magnet:?xt=urn:btih:69E86A48E141582D03D991AB55A6E51BE3FAB7F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +182,8 @@ magnet:?xt=urn:btih:69E86A48E141582D03D991AB55A6E51BE3FAB7F3
 magnet:?xt=urn:btih:71876B871DDECE77F21A5A0205A91BB005202B54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +209,8 @@ magnet:?xt=urn:btih:71876B871DDECE77F21A5A0205A91BB005202B54
 magnet:?xt=urn:btih:48B783FA1C57D3864B236FDA48093C5A85CFB116
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +235,8 @@ magnet:?xt=urn:btih:48B783FA1C57D3864B236FDA48093C5A85CFB116
 magnet:?xt=urn:btih:2E9DE42B5A3BD7DFABE5671FA0C948B85920789E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +260,8 @@ magnet:?xt=urn:btih:2E9DE42B5A3BD7DFABE5671FA0C948B85920789E
 ```bash
 magnet:?xt=urn:btih:ABD0D2BC81C11875B66AFFBC38EABD397EE9B7ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +289,8 @@ magnet:?xt=urn:btih:ABD0D2BC81C11875B66AFFBC38EABD397EE9B7ED
 magnet:?xt=urn:btih:8F3AA6BDDB23C863232197951F4D8E540E24640A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +317,8 @@ magnet:?xt=urn:btih:8F3AA6BDDB23C863232197951F4D8E540E24640A
 magnet:?xt=urn:btih:EFA350E4BABCF1404B43B9693D870D76AF18448E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +342,8 @@ magnet:?xt=urn:btih:EFA350E4BABCF1404B43B9693D870D76AF18448E
 ```bash
 magnet:?xt=urn:btih:B42942FA91D2E04C42DCC09BC17DD836561BCD6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +371,8 @@ magnet:?xt=urn:btih:B42942FA91D2E04C42DCC09BC17DD836561BCD6D
 magnet:?xt=urn:btih:D111F0737A7258B4F6F75E1727EB805D2D6CBFA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ magnet:?xt=urn:btih:D111F0737A7258B4F6F75E1727EB805D2D6CBFA7
 magnet:?xt=urn:btih:961F7AFB841AF2A4A6C6A98254CC11AAF1B6F741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +423,8 @@ magnet:?xt=urn:btih:961F7AFB841AF2A4A6C6A98254CC11AAF1B6F741
 ```bash
 magnet:?xt=urn:btih:8EEFA490C3DBFB147FBB0C35E0D19F3CB762B76B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +450,8 @@ magnet:?xt=urn:btih:8EEFA490C3DBFB147FBB0C35E0D19F3CB762B76B
 magnet:?xt=urn:btih:A175BA6FA07FD4F475EF7108BC5BF9D9F6034638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +476,8 @@ magnet:?xt=urn:btih:A175BA6FA07FD4F475EF7108BC5BF9D9F6034638
 magnet:?xt=urn:btih:7BB0AAF8D18C56AFD084E8C77E8BF88CCDA9DAFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +501,8 @@ magnet:?xt=urn:btih:7BB0AAF8D18C56AFD084E8C77E8BF88CCDA9DAFE
 ```bash
 magnet:?xt=urn:btih:02D23AA36C52E1B22AE335C715BF7B441126BF8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +529,8 @@ magnet:?xt=urn:btih:02D23AA36C52E1B22AE335C715BF7B441126BF8A
 magnet:?xt=urn:btih:CE26A2C90B17FC30301EB60D3C3B75006E264A50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +555,8 @@ magnet:?xt=urn:btih:CE26A2C90B17FC30301EB60D3C3B75006E264A50
 magnet:?xt=urn:btih:067037C8A3C802327F20C297881D74B0E688AC9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +580,8 @@ magnet:?xt=urn:btih:067037C8A3C802327F20C297881D74B0E688AC9C
 ```bash
 magnet:?xt=urn:btih:743D64BBF3FFC2D8E6A7982C58D44B7A286A8631
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +608,8 @@ magnet:?xt=urn:btih:743D64BBF3FFC2D8E6A7982C58D44B7A286A8631
 magnet:?xt=urn:btih:4BE482A1799263CF17A63F8866729E868198A9B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +633,8 @@ magnet:?xt=urn:btih:4BE482A1799263CF17A63F8866729E868198A9B6
 ```bash
 magnet:?xt=urn:btih:09767D64F95EBABBC1F37EF76D1A7623BCFF0EEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +662,8 @@ magnet:?xt=urn:btih:09767D64F95EBABBC1F37EF76D1A7623BCFF0EEB
 magnet:?xt=urn:btih:19A02709459E8CF15FF53E3C7C1882A7FD46246F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,29 +688,7 @@ magnet:?xt=urn:btih:19A02709459E8CF15FF53E3C7C1882A7FD46246F
 magnet:?xt=urn:btih:6AA8E56EE076D2610D496D52F348ACF6C93DCC84
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044871   (557929) от 24.08.2016
-
-Книжная серия | Русской славы имена [5 книг] (2013-2014) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книжная серия посвящена славным именам русской истории. Весь исторический путь России – это борьба государства со смутьянами, которые были движимы самыми разными мотивами: личным стремлением к власти, личной ненавистью к правителям, запросами внешних врагов, вздорными «идеями» и «теориями».Жанр: Военно-историческая литература, отечественная история, биографии и мемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1ADD6F7C8419B1D62888F5132B775E890BFCA19
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

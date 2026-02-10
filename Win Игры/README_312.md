@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B3320995F2D2F440FCC1D7A31A93CB5BACE34521
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Bigfoot Life (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:728E9D080C363BAAA3A0974B085415E4AAEC39A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Radiolight (2025) [Multi] (0.4) License GOG
 magnet:?xt=urn:btih:6E81BAD5D85D229FC8BA1A417F8124B5BBF459E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Constance - это двумерный приключенческий экшен 
 ```bash
 magnet:?xt=urn:btih:311388E1A5EAB2D70816C2C58BC59BE037C98EDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Slyders (2025) [Ru/Multi] (1.0.12) Repack Let'sРlay
 magnet:?xt=urn:btih:80BE9AC0134FD012528A6B8D11E68297EF3D32AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Rue Valley (2025) [Ru/Multi] (1.0.0v2/dlc) License GOG [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:E3B046A0B48DE27A9A82DBA450927A1996D79DE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Rue Valley (2025) [Ru/Multi] (1.0.0v2/dlc) Repack FitGirl [Digital Deluxe Editio
 magnet:?xt=urn:btih:2B518E307F3BDBB0C4435F15CB419BCA9F0F1D20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Of Ash and Steel - ролевая игра от третьего лица с о�
 ```bash
 magnet:?xt=urn:btih:63F738A6108A132615A0C847F7F2BB170C181502
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Chess Tutor это программа для Windows для изучения ш�
 magnet:?xt=urn:btih:BFEA8FD0494904C96DC48F6A04B5F714C9C95114
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Clone Drone in the Danger Zone (2021) [Ru/Multi] (1.6.1.6) Repack Necros
 ```bash
 magnet:?xt=urn:btih:026DD76AFF6698F644FF49EA8B0FC21CB1A145A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ NBA 2K Playgrounds 2 (2018) [Ru/Multi] (1.2.0.0/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:56691AC91F81596286C48D1ECC6A7E14D69ABE09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Phoenix Wright Ace Attorney Trilogy (2019) [Ru/Multi] (Build 20282248) Repack Le
 ```bash
 magnet:?xt=urn:btih:5F2957649378A6A56E2DD10C3925642C576ED01D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Speed Demons 2 - аркадная гоночная игра с уникальн�
 magnet:?xt=urn:btih:6B63048644A88B6AC2FDA56F10598C71641554B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ DGT Chess Trainer (2013) [Ru/Multi] (1.1.1.7/dlc) License
 ```bash
 magnet:?xt=urn:btih:1E7132CB0CF453FDC103651B498388752E8C4C50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Total Chaos (2025) [En] (1.035) Repack Necros
 magnet:?xt=urn:btih:3AB77DC5557878EC029CFE070A9037B1B9FA4B81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Mystery Case Files 28: House That Love Built (2025) [En] (1.0) Unofficial [Colle
 ```bash
 magnet:?xt=urn:btih:204928AE833FDC394B8BC744998D37B4538F3355
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Farthest Frontier (2025) [Ru/Multi] (1.0.5) Repack Necros
 magnet:?xt=urn:btih:192665FE4547DAD0E7ADE9B2A2AB12ACF35404D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Of Ash and Steel - ролевая игра от третьего лица с о�
 ```bash
 magnet:?xt=urn:btih:C8658FE6481603430FF261C2094F1D6979C8511A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Winter Survival сочетает классические игровые мех�
 magnet:?xt=urn:btih:9F70EED26DA82A22D1B2D8F111BB1375D32F077F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Green Hell (2019) [Ru/Multi] (2.9.4) Repack Necros
 ```bash
 magnet:?xt=urn:btih:68E083A201F7E405602E624DA4D23A79A57F49AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Dave the Diver - это казуальная приключенческая RPG 
 magnet:?xt=urn:btih:C39FD203B49100C3B3E65A3A08B2065E3CA4A0DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Goat Simulator 3 (2022) [Ru/Multi] (1.2.0.2_457676/dlc) Repack Necros
 ```bash
 magnet:?xt=urn:btih:4C8D1240EDD7DF8DFC526FC14CF8487AD5A74008
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Tiny Bunny / Зайчик (2021) [Ru/Multi] (19835777) Repack Necros [Early Acce
 magnet:?xt=urn:btih:AB9FAA5E1EA6D289880C8CB4263979C2EE4A306C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ A.I.L.A — хоррор от первого лица в сеттинге нед
 ```bash
 magnet:?xt=urn:btih:E9D8170F5C5040039681E66EE49DBD248C10AABD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Granny Remake — захватывающий хоррор, где ваша це�
 magnet:?xt=urn:btih:B541CA66423EE78684EFD251A239481D2C1E5F6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Hades (2020) [Ru/Multi] (1.38290) Repack Necros
 ```bash
 magnet:?xt=urn:btih:10E93E6DA60510EFED5A1AD5C720F87CC636BF45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

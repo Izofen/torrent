@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:75B679B093229BF0597FB458F5A394685F637A5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:75B679B093229BF0597FB458F5A394685F637A5C
 magnet:?xt=urn:btih:BB4ECA1A1B8C0B2EF7BC0F339AE29683CD96A06F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:BB4ECA1A1B8C0B2EF7BC0F339AE29683CD96A06F
 magnet:?xt=urn:btih:4ADA266ECBDDC4D70F856E21C600A90E4D1D8E61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:4ADA266ECBDDC4D70F856E21C600A90E4D1D8E61
 ```bash
 magnet:?xt=urn:btih:5221E3F3EE8DCCD39C6D8966FB005232A0CA23D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Musa Arda | Hands-On Python / Практический Python (2022) [EPUB] [En]
 magnet:?xt=urn:btih:1F816DAB95E7E85756E1EA72F459E230596E1959
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:1F816DAB95E7E85756E1EA72F459E230596E1959
 ```bash
 magnet:?xt=urn:btih:AC987D74FA63377A06F76AB58D4C509C8BFA9165
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:AC987D74FA63377A06F76AB58D4C509C8BFA9165
 magnet:?xt=urn:btih:8EB52CE2D2BFA3ACABEB626BF33DD68F6DE48AC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ PDF-XChange Pro — универсальное решение для работ�
 ```bash
 magnet:?xt=urn:btih:4A6483320D7B594E385EB715850D24C24EBAAB27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:4A6483320D7B594E385EB715850D24C24EBAAB27
 magnet:?xt=urn:btih:C8BC5E6A60C7FF22518331DD6C8E4AD4F72F317A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:C8BC5E6A60C7FF22518331DD6C8E4AD4F72F317A
 ```bash
 magnet:?xt=urn:btih:008A1FC6E367BDDBE5920F2369FF77C0CA4D375A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:008A1FC6E367BDDBE5920F2369FF77C0CA4D375A
 magnet:?xt=urn:btih:16DD17EBF32855BB67B98539E489216D35B4F2AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Deworker Pro, Дмитрий Елисеев | Техзадание и дизай
 ```bash
 magnet:?xt=urn:btih:F406BFED6E4FD6837B1AF5AEA61CAF2DF7CD5DB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:F406BFED6E4FD6837B1AF5AEA61CAF2DF7CD5DB9
 magnet:?xt=urn:btih:1B1740485439D5832615D18DC13B8156FEC2DFFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ WiFi Analyzer v4.2 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:67116464F4C59BA0000A88BA373AD14E576C2ED4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:67116464F4C59BA0000A88BA373AD14E576C2ED4
 magnet:?xt=urn:btih:361B8B8368BB0D0FFC7385026361F1F1A2811CF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ Deworker Pro, Дмитрий Елисеев | Доменная модель и E
 ```bash
 magnet:?xt=urn:btih:8CFAFAC123C160998835DD9D27AC26D8D6FE4107
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ Total Commander 10.52 (15.11.2022) Portable by MiG [Ru/En]
 magnet:?xt=urn:btih:2585E310986880B6FD7E314E283732E60E6D40DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ PDF-XChange Editor — программа для просмотра, редак�
 ```bash
 magnet:?xt=urn:btih:6ACE5A281BDF37A7CAFCC5DB13E636F03236EB13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ AOMEI Backupper – программа для создания резервно�
 magnet:?xt=urn:btih:2BB170752B00AAE4A51CDCF4DE73AA848A3B7AFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:2BB170752B00AAE4A51CDCF4DE73AA848A3B7AFB
 ```bash
 magnet:?xt=urn:btih:E77990C46027834AE3EFDBDE72A973196AFF5900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:E77990C46027834AE3EFDBDE72A973196AFF5900
 magnet:?xt=urn:btih:0A2DB32345E38291F60EAA090C04C90B2E5054BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:0A2DB32345E38291F60EAA090C04C90B2E5054BC
 magnet:?xt=urn:btih:95F9E2260C699689165CCF4911E5990F8B01B1B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Udemy, Larno Visser | Adobe Firefly Master Class - The Next Step in Generative A
 ```bash
 magnet:?xt=urn:btih:AEAD6F8497A5DE9A534162206730EA62B3359476
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:AEAD6F8497A5DE9A534162206730EA62B3359476
 magnet:?xt=urn:btih:26E5EE7B6F37375345CA9F980307BB7F8B5B20C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ magnet:?xt=urn:btih:26E5EE7B6F37375345CA9F980307BB7F8B5B20C6
 ```bash
 magnet:?xt=urn:btih:D6B288FA8A50BF4A7C17D8CC761F238A86E180C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +683,8 @@ Disc 1 Bob Ludwig 2011 Remaster:
 ```bash
 magnet:?xt=urn:btih:7C0D0526454AAE02687A40EFA5385BAA8A8E56A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

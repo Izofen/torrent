@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:E1732659ED216B4DD7B6443F16C4FD878F7E4A03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:E1732659ED216B4DD7B6443F16C4FD878F7E4A03
 ```bash
 magnet:?xt=urn:btih:FA17CDFD538EF1D8F6BEEAED04E851CBFC0DC32A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ English Club TV Ltd | Basic Lexis - Elementary (A1) — Начальный ур�
 magnet:?xt=urn:btih:254CC96D583B95B3F86132899E49DA33D1448F40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Udemy, Никита Хохлов | Python ООП - С нуля до Профи" 
 magnet:?xt=urn:btih:7FABF3CB3C1DA4CAD476C3A0CDFC192E9D1F41C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Pluralsight, Delano Athias | Rigging Tank Treads in Maya (2013) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:B026D1756E72ABA924A7FA169F36DF7A638BB974
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ e-Legion & Google | Онлайн-школа android-разработчиков (
 magnet:?xt=urn:btih:BE21615CF2C2A13C274EBCCC05E76D221F4A9667
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:BE21615CF2C2A13C274EBCCC05E76D221F4A9667
 magnet:?xt=urn:btih:7A7D5A68B66F2F72EC7D8E3335907B4BC882A7F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:7A7D5A68B66F2F72EC7D8E3335907B4BC882A7F6
 ```bash
 magnet:?xt=urn:btih:504C4ADC549CB128692678E7DC9BEE5CFFBAC823
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Larry Jordan |  Final Cut Pro X Workflow and Editing - Final Cut Pro X Рабо�
 magnet:?xt=urn:btih:5CA0F9775DAFD8A8BDE78149C43612C1D904EA5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ Udemy.Рудь И | Планирование и установка Skype for Bus
 ```bash
 magnet:?xt=urn:btih:A033D5CDB5E99FF155D22AC5C531223BA061C2D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:A033D5CDB5E99FF155D22AC5C531223BA061C2D4
 magnet:?xt=urn:btih:386F71C6D73658D70CE2F31AA13CEC9389B32D81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:386F71C6D73658D70CE2F31AA13CEC9389B32D81
 magnet:?xt=urn:btih:38783393E76B33EFC3FA96C8894EC6CCFE9DD7F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:38783393E76B33EFC3FA96C8894EC6CCFE9DD7F0
 ```bash
 magnet:?xt=urn:btih:A08E1791AE22795C3CCB29160CC3BF23E588ED81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ The Gnomon Workshop, Taylor Whitsett | Character Rigging in Maya for Game Produc
 magnet:?xt=urn:btih:A3F5225EB59C1B880A68956559FB06DD60E797CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ Arno de Bruijn | Online Workshop Off-Camera Flash + MagMod (2022) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:B0B24D0B82DC5578773C2A48AC3D992C55598A5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ Nate Photographic, Nate Johnson | Lightroom Mastery Bundle (2008) PCRec [AD] [EN
 magnet:?xt=urn:btih:68838DFAE124B2AB2475BD6D3EB2BD32AAD5F307
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ Kelly Brown | Newborn Poses Bundle (2020) PCRec [EN]
 magnet:?xt=urn:btih:75E021D2456F2702AE3B79EB8728E412DB5D8820
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ Ultimate Photo Course | The Ultimate Wildlife Photography Bundle (2021) PCRec [A
 ```bash
 magnet:?xt=urn:btih:20C18C9395632486686D9A3A23BB8C937E5C8C44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ Udemy, Aleksandr Ponov | Автоматизация тестирования+П�
 magnet:?xt=urn:btih:7AF4602B3197413FFF4920E95AE5914C0032E9E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ Animsquad, Zach Parrish | Master Class: Animating a Cartoony Shot (2016) PCRec [
 ```bash
 magnet:?xt=urn:btih:42F42EA524A60A51AE4E8ADD3E72522671847ADF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:42F42EA524A60A51AE4E8ADD3E72522671847ADF
 magnet:?xt=urn:btih:3BA7942A4D1F095C135335DDF90024AE00B332BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ AnimSquad, Zach Parrish & Brent Homman | Master Class: Disney's Zach Parrish & B
 magnet:?xt=urn:btih:F09934D3C5A2E48692074051A0B3F3E584416717
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ Geekbrains | Основы программирования (2015) PCRec [H.264/7
 ```bash
 magnet:?xt=urn:btih:C2F2CFF42DDC1C573D6B40321C8AEB85C7BD8D4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ Stepik, Артем Егоров | Объектно-ориентированно�
 magnet:?xt=urn:btih:961879E0B5943C06B9937F14855C4EFA1A0123A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ FlippedNormals, Morten Jaeger | Stylized Character Sculpting in Zbrush - Majora 
 ```bash
 magnet:?xt=urn:btih:166BDDB141D2B1E98D5246F04068C5243B630CCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +690,8 @@ Slurm (Слёрм), Артём Мурадов | Алгоритмы: roadmap дл
 ```bash
 magnet:?xt=urn:btih:259B16DDEC97DC18DA4C840671A18537BC0B2A1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

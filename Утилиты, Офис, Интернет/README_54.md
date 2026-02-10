@@ -19,6 +19,8 @@ DirLister v2 beta 4 Portable [En]
 magnet:?xt=urn:btih:15F5260B2C92346CDDBFB9FA64D08458A843A280
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Keyman 16.0.141 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:37314FFAF68E2833828E995A1C91416CA034662D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ SophiApp — это графический наследник Sophia Script for 
 magnet:?xt=urn:btih:0FC4A2B8B4949EE5ED4BCC3D4D16D747741A117D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Windows 11 Classic Context Menu v1.2 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4DF1065E18BE08E14F9E5E7CE79E378008A37C5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Total Uninstall - утилита, предназначенная для корр
 magnet:?xt=urn:btih:E7C2F29D42E31024E37447C6B4F55693C6A79B24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Ashampoo Burning Studio FREE – это быстрый и удобный спо�
 ```bash
 magnet:?xt=urn:btih:4C152C5BC2A0F6EF35C9E0BB67A3E3AB6AA55793
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Hetman Partition Recovery - программа восстанавливает у
 magnet:?xt=urn:btih:A16659D124EACF356B2420EA2FE82AF94F6BA591
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ UltraISO - одна из лучших программ для работы с о
 ```bash
 magnet:?xt=urn:btih:A7018D0592D8CC5B7207E5B91F1093D49F9B8790
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Windows Slimmer поможет вам в удалении ненужных ко�
 magnet:?xt=urn:btih:6CB93D0A35BF25CC9A88567678E14C10EF7F0D8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:6CB93D0A35BF25CC9A88567678E14C10EF7F0D8B
 magnet:?xt=urn:btih:A5FF86C78B82BCBA6ED5E3B8DAD7FB1D75CA8C15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Files — файловый менеджер для Windows 10 и Windows 11, к�
 ```bash
 magnet:?xt=urn:btih:5E80B298F9E0F78DFE51E1414C137ECC7AB499C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ MyPublicWiFi - бесплатная программа, которая прев�
 magnet:?xt=urn:btih:E55B2369D9E1F03B52C03ACF23CC4D00938282F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Ashampoo Driver Updater обеспечивает обновления для ш�
 ```bash
 magnet:?xt=urn:btih:5C98FB5D9CC6EA368790329A8D3BB4BF5B490D4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Atrise Lutcurve 4.1.1 [En/Ru]
 magnet:?xt=urn:btih:C3730BE06B77776A970F45DB1C5014681932EBD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Epubor Ultimate 3.0.15.425 [En]
 magnet:?xt=urn:btih:1E26EB5DFBD658A94AAC98507738DDE542D2DC61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ KSA Power Supply Calculator WorkStation - программа для расчёт
 ```bash
 magnet:?xt=urn:btih:C26838B856058DFF6AE788BDEA34D35633C7F10E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ iTop Screen Recorder позволяет записывать видео экра
 magnet:?xt=urn:btih:29B7185D575DE0555CFA85E1A021F9CEAD1BB874
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ novaPDF Lite 11.8 сборка 411 [Ru]
 ```bash
 magnet:?xt=urn:btih:A5C81121E2AFE466C5726B52904DD2B0382C19E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Ashampoo Burning Studio 2023 – это мощное программное ре
 magnet:?xt=urn:btih:CA63432FEBFA57C44F4F560A7398E2DAAB18F52E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ GoldMemory - программное обеспечение, работающее
 ```bash
 magnet:?xt=urn:btih:56CBC7A32C5A189DA3A9496C85DE2FDDAD16B821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ S2G - это универсальная программа, использующ
 magnet:?xt=urn:btih:131DA055354BAFB617EDD5057CCBAD33A8A28D27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ AIO Boot NewGen - это мощное программное обеспечен�
 ```bash
 magnet:?xt=urn:btih:267D20D95D20DF8C1B6B32E12F716FC835ACD88A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ ORPALIS PaperScan Professional является универсальной, мо
 magnet:?xt=urn:btih:FFE1E6076C389CC0BAC038439AE4150D53B27132
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Kleptomania — уникальная в своем роде программа .
 magnet:?xt=urn:btih:90912DDCCEBB65A6CE9D2B6D7630121E26DC308C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ BlueLife Hosts editor - бесплатная утилита выступающа
 ```bash
 magnet:?xt=urn:btih:8863EE4CFA24AA0FCB550478E5B65920A04578E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +676,8 @@ SequoiaView - очень полезная программа, которая в�
 ```bash
 magnet:?xt=urn:btih:8FEB77D23A39587CE8E2347E1858FE4E70A7E48D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

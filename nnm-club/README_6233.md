@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:AD6D02AD2EA860ED8E8C35A7F2731BE509D736CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Hell 2 - это тотальная модификация Diablo: HellFire, 
 ```bash
 magnet:?xt=urn:btih:7FA41C7236BC55ECD4188533823B484B32E5D0EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Discord - мессенджер для текстовой, голосовой и 
 magnet:?xt=urn:btih:EA85E98812C7CB715B65B887179ADF6C190E382B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:EA85E98812C7CB715B65B887179ADF6C190E382B
 ```bash
 magnet:?xt=urn:btih:DAF49143ED8D90F6C9A938945ABE62BC99BC054C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ uTorrent (AdFree) 3.5.5 Build 46552 Stable Portable by A1eksandr1 [Ru/En]
 magnet:?xt=urn:btih:8BDF2E446B8F6FDC4537281C4B10B8A2E0ECEB7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:8BDF2E446B8F6FDC4537281C4B10B8A2E0ECEB7B
 ```bash
 magnet:?xt=urn:btih:5FC66B834A65974DDFEDCF907E70BBD394DE7BBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:5FC66B834A65974DDFEDCF907E70BBD394DE7BBF
 magnet:?xt=urn:btih:2B13DB8A4F348A240FF1D8419578FAB872A53429
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:99AE312E35097FB8BADDA628FA7A787D635F1690
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ Tor Browser Bundle 11.5.7 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:AB47EDEA46DD84741716A3AEA62548E49237F4D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:AB47EDEA46DD84741716A3AEA62548E49237F4D8
 magnet:?xt=urn:btih:6994073917E94F5DC178B46A31A5A632DCF077DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Start Menu X 7.33 SpaceX [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2388016BE3CE91B9207E160D16477A1351CE41AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:8AB24CB84B7FABBC4289FB37E038B546DD472B78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:8AB24CB84B7FABBC4289FB37E038B546DD472B78
 magnet:?xt=urn:btih:904B9826EEA26A87801166A619B39B0BEC0D55FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:904B9826EEA26A87801166A619B39B0BEC0D55FA
 ```bash
 magnet:?xt=urn:btih:67F57808138DC0339DB0EE40DEA00F8EB512F1A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:67F57808138DC0339DB0EE40DEA00F8EB512F1A5
 magnet:?xt=urn:btih:E0A63809B363CA36A9BCCB4821B745D1670F3CBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:E0A63809B363CA36A9BCCB4821B745D1670F3CBC
 magnet:?xt=urn:btih:AA89289BB51D1BFB89E5A710CCD6A464F20C36E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Air. Большой прыжок / Air (2023) BDRip [H.264/720p] [MVO]
 ```bash
 magnet:?xt=urn:btih:2098B033C9CC59B94DB91E509A38133B59D3F77E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ XnView MP - мощное многофункциональное приложен
 magnet:?xt=urn:btih:245C0E623331E15E479B96BC53C26768957D532E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:245C0E623331E15E479B96BC53C26768957D532E
 ```bash
 magnet:?xt=urn:btih:022609F6C1E993C0ED711A22A8FDD15D847517F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:022609F6C1E993C0ED711A22A8FDD15D847517F3
 magnet:?xt=urn:btih:DC0A43EC050082616238F9D0C8E07B42EF99A7BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:DC0A43EC050082616238F9D0C8E07B42EF99A7BD
 ```bash
 magnet:?xt=urn:btih:45382C010B3C76F8778EC4BC36541DCFCE3229ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ Air. Большой прыжок / Air (2023) BDRip [H.264] [MVO]
 magnet:?xt=urn:btih:D8D056623D065FDDF2021D34993748932D1A8410
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:D8D056623D065FDDF2021D34993748932D1A8410
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ uTorrent Pro 3.5.5 Build 46552 Stable Portable by A1eksandr1 [Ru/En]
 magnet:?xt=urn:btih:4ECC3E290FB32BBA8E2317B0C1E9481D387F16E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:4ECC3E290FB32BBA8E2317B0C1E9481D387F16E1
 ```bash
 magnet:?xt=urn:btih:3C5F81CD0C386EA87A1EBAFB95D44715825C81E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +674,8 @@ iTubeGo YouTube Downloader 6.5.0 Portable by zeka.k [Ru]
 ```bash
 magnet:?xt=urn:btih:A7172C0F58D32A931478972F2DEE6448F1BED915
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

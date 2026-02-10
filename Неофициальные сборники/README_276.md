@@ -1,3 +1,32 @@
+###  Публикация: 941143   (463011) от 27.09.2015
+
+VA - Ultimate Sexy Beats Vol.3 (2015) [MP3|320 кб/с]<Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Vantigo - Run From Love (Original Mix)
+ 02. Stereo Flight - Mirage (Original Mix)
+ 03. Irvim - Pistol Star (Original Mix)
+ 04. Dmpr - Dark Kitty (Original Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:56:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86CFEA2126C87F3C7FB55A68B01EFE10DF885A44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941484   (463119) от 27.09.2015
 
 VA - Techno Cloud Top September 2015 (Compiled And Mixed By Deeper82) (2015) [MP3|320 кб/с]<Techno, Tech House>
@@ -21,6 +50,8 @@ VA - Techno Cloud Top September 2015 (Compiled And Mixed By Deeper82) (2015) [MP
 ```bash
 magnet:?xt=urn:btih:8E13D4ED19CA979BF09055E8094B3CE4FEC5E3E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -55,6 +86,8 @@ VA - Осенний Сезон Попсы (2012) [MP3|256 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:DC0951F7B49D07072294FCEC7801A9EF0DC054A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -87,6 +120,8 @@ VA - Самый Cвежак Русский Cпецвыпуск 1 (2012) [MP3|256
 ```bash
 magnet:?xt=urn:btih:448FC4B626C67130D40472369C2EF0382CAF4133
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +156,8 @@ VA - Попсовая Ночная Тусовка (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:69FBC241B08C37B5CA057FDF5B14DD11A24EF8C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +190,8 @@ VA - Avto Club September Vol.2 (2012) [MP3|320 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:F7194828588BE1E5CEC15F48549124D4C0B32744
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +226,8 @@ VA - Лучшая 200ка Блатного радио 2 (2011) [MP3|128 kbps]<Ш
 magnet:?xt=urn:btih:AF0055BBE73871848AE3223F681ACF9C53BC3092
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +254,8 @@ VA - 80s Euro Disco Collection (2016) [MP3|320 Kbps] <Space Disco, Italo Disco, 
 ```bash
 magnet:?xt=urn:btih:387AB2AABB29260D417F8B64EF62734B4E9F7362
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +284,8 @@ VA - 50 Golden Stars Songs (2016) [MP3|192-320 Kbps] <Disco, R&B, Classic Rock>
 magnet:?xt=urn:btih:F4F51A53A7E1BE8C03535F91DB3B85283C4CC9FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +312,8 @@ Kelly Clarkson - Compilation (2022) [MP3|320 Kbps] <Pop, Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:115865C38E891740C77FFEC5F5791EC6889CAA80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +342,8 @@ VA - I'm Listening Now 2 (2022) [MP3|320 Kbps] <Club, House, Other>
 magnet:?xt=urn:btih:030C2C0D23811761374CAC9810FE71A3A66FBCC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +370,8 @@ VA - Лучшие новинки сезона Vol.3 (осень 2020) (2020) [MP
 ```bash
 magnet:?xt=urn:btih:D325700E970380416A99D8859DEDF249036B3079
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +406,8 @@ magnet:?xt=urn:btih:D325700E970380416A99D8859DEDF249036B3079
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +434,8 @@ VA - Зайцев нет. Музыка для машины (2015) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:B51DAC8E33100D3E846A9CA77BD65D42EC3FB75D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +464,8 @@ The Beatles - Good Songs (2015) [MP3|128 кб/с]<Rock>
 magnet:?xt=urn:btih:BB6A21520C2E8420BCFC386989996F80EE119647
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +492,8 @@ Underground hard trance.01. Kofie Anon - United Nations 3B (UNITED NATIONS,2003)
 ```bash
 magnet:?xt=urn:btih:99122C8F4B5AE07967C9D5E35E417736AD874A52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +522,8 @@ VA - Beatport Electro House: Sound Pack #171 (2020) [MP3|320 Kbps] <Electro Hous
 magnet:?xt=urn:btih:A5F4A8203A7A2E8068283EA30C42CEC351491ABD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +550,8 @@ VA - Попсовый бум. Часть 9 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:7344BBF8E34E73A8615B0C391DFF48EE34EB2ABC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +580,8 @@ VA - Sunset Chillout Party (2020) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
 magnet:?xt=urn:btih:8CA78665DD8E6A57042F5ECAE7E63588FC147813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +608,8 @@ VA - After Office: Clubbing Techno Set (2020) [MP3|320 Kbps] <Techno, Tech House
 ```bash
 magnet:?xt=urn:btih:C7507080A25794081BD1B4B7DBC2B1D6B3A52DD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +638,8 @@ VA - Summer House Sessions Desire (2016) [MP3|224-320 Kbps] <Funky, Tropical, Tr
 magnet:?xt=urn:btih:D025EB6A025CA234C83C886E62E15068CC7496D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +666,8 @@ VA - Фитнес - Хит (2015) [MP3|320 кб/с]<Dance, EDM, House, Pop>
 ```bash
 magnet:?xt=urn:btih:424B8B65D2EBC0E6457DCB24D5BC203AC26293A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +696,8 @@ VA - 2016 EDM Underground (2016) [MP3|320 Kbps] <House, Funky, Tropical, Indie D
 magnet:?xt=urn:btih:936051AA8A9333F6B34C1B954659084A3C66A5D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +724,8 @@ VA - LUXEmusic: Dance Super Chart Vol.88 (2016) [MP3|320 Kbps] <House, Electro H
 ```bash
 magnet:?xt=urn:btih:57CDAFE058765A119E75010FB709A66BD131C727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -679,6 +754,8 @@ VA - Beatport Trance Pack (02.10.) (2016) [MP3|320 Kbps] <Trance, Melodic, Emoti
 magnet:?xt=urn:btih:D68EC30DBD9CECFE9935799667B529C8AC2D0C77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -706,38 +783,7 @@ VA - 98 Хитов В Дорогу Клубный (2015) [MP3|256 кб/с]<Club,
 magnet:?xt=urn:btih:A2D31CE8DFE817E86C8D5A4084A17F8700900F43
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548862   (464679) от 19.09.2012
-
-VA - Зарубежная Дискотека СССР (2012) [MP3|192 кб/с]<Pop, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Radiohead - Creep
-02 Cb Milton - A Real Love
-03 Kaoma - Lambada
-04 Depeche Mode - I Feel Loved
-05 Intrance - Te Quierro Puta (Original Mix)
-06 Ivan - Fotonovella
-07 Whitney Houston - I Learned From The Best
-08 Maxi Priest - Close To You
-09 White Town - Your Woman
-10 Kellee - My Love(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 08:01:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A101F32AE4348D160DD9805BA8FFF3D0969B52
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

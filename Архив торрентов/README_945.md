@@ -19,6 +19,8 @@ FileZilla Server представляет собой очень простой, 
 magnet:?xt=urn:btih:69C8F1FCB8D1555BB3D3589BD987F0D2F6950129
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ MediaInfoXP - это проект с открытым исходным кодо�
 magnet:?xt=urn:btih:2CBE0235212DA8CBFDC632B5D0F1391ECFCE64D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 magnet:?xt=urn:btih:FD823F3F5D9E34E1C88C6C3C6925DF50173E0354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:D528C89B681CC479E616D8D99201C8121C454D00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ SupRemo 4.10.4.2204 [Multi/Ru]
 magnet:?xt=urn:btih:405C3740841848441BB8654FED75225D8BF76C3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Free Download Manager - кроссплатформенный менеджер з
 magnet:?xt=urn:btih:9713CF84F2A030FC4C930389FEA449C5644AFE07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Opera One 106.0.4998.16 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4687A114BCAA46317ECED3C493457A2FD4B4D1B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ IrfanView - компактная и в то же время мощная про�
 magnet:?xt=urn:btih:F396ACCEFCC1A2B6AA6D97C77C2A01108DAB3AE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ WinContig - простая в использовании автономная п
 ```bash
 magnet:?xt=urn:btih:D8CD78D87014D28D81D75C49C2186AA6D2B6FF54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ WinTools.net – набор инструментов для оптимизаци
 magnet:?xt=urn:btih:4D61071545F485CD3F6CF32A21DFF879C1B15CE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Ashampoo Burning Studio - это всё то, о чём Вы просили. О�
 ```bash
 magnet:?xt=urn:btih:39F612009F9EA1DFDAB6BB89982FBAC8A6012757
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Qalculate! - это многоцелевой кросс-платформенны
 magnet:?xt=urn:btih:618037DC498219A27C86C93B58AF0E6064185538
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ foobar2000 - это аудиоплеер, подкупающий своим ве
 ```bash
 magnet:?xt=urn:btih:524F5E2188649DEC53D837AEA55771986EF81932
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ PC Cleaner - поможет исправить ошибки Windows на ваш�
 magnet:?xt=urn:btih:DF6F7E98978732F23FD86C02CCE39B004F8596DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Media Player Classic Home Cinema – удобный во всех планах �
 ```bash
 magnet:?xt=urn:btih:1BE4821B0BA217E7AA1762B53999DEBBB2312D43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:1BE4821B0BA217E7AA1762B53999DEBBB2312D43
 magnet:?xt=urn:btih:A4F33F5A625CB485CE469320D770D7991A597365
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Nik Collection by DxO – это наиболее полная коллекци�
 ```bash
 magnet:?xt=urn:btih:C3F7CB020EAA1111C2E3388A18556076E295EA25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:0B9D55C29668D36E95598A7B11287AC2C4E30F8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Tor Browser Bundle 13.0.7 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D9CD7623FC5BED1205DCBCB0383D5A877BB46A29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ IrfanView - компактная и в то же время мощная про�
 magnet:?xt=urn:btih:663CD707D9CC34610443C1AC3C6D56BD0D5D8575
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ Wondershare UniConverter - простой в использовании виде
 ```bash
 magnet:?xt=urn:btih:4C21C7DCC0D13EADB5D906391C3BADBE8A34FB86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ Video Pro X – это прежде всего профессиональное 
 magnet:?xt=urn:btih:DAF2B065C66A1C83053049F29B3747D1B3C4C812
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ DxO PhotoLab Elite 7.2.0 build 120 RePack by KpoJIuK [Multi]
 magnet:?xt=urn:btih:3A970F12AD628433FBD78D353D33D1AEE8F1C70C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ Snappy Driver Installer Origin (SDI Origin) - главная ветвь порт
 ```bash
 magnet:?xt=urn:btih:21AE2739C9917C8ED662AF006AEC8374EE8D532D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ CudaText — абсолютно бесплатный мультиплатфор�
 magnet:?xt=urn:btih:ACAC4DCB50B3E8A561FA87E17E4D05BB4A0AD8A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ FreeFileSync - это утилита, которая была разработа
 ```bash
 magnet:?xt=urn:btih:6230A72B3001C02D8470269263C527B6653A4DA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

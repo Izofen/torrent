@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:31AA94A88FBF3B6F21C18AE8727FE4FF3D81BD9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Alfred 4 Powerpack 4.6.2 [En]
 magnet:?xt=urn:btih:D4670C04815EF74FBB00917C0BF6DBCEBD1F961E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Artstudio Pro 4.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:F8219111BBA925F7597354F42AF98A358D026FD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Smooze одушевляет ваш скролл и добавляет функц
 magnet:?xt=urn:btih:1B180825CA065B413FCDF45D2F615293424E4AC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ One Switch - это крошечное приложение, разработа�
 ```bash
 magnet:?xt=urn:btih:2AB55DAAA4646CDCC57B7FCF67BC98B95607CF7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Scherlokk является утилитой для быстрого поиска
 magnet:?xt=urn:btih:D8FA80EC18AD2C3D2F23D8DEDC88C34A2FF15596
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ MarkMyWords предлагает простые функции форматир�
 ```bash
 magnet:?xt=urn:btih:FE1CD0F6B74D0DA8439015F92B696F7E04F37E8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Moss - Ornaments (2012) [MP3|320 кб/с]<Indie, Pop>
 magnet:?xt=urn:btih:0A70970E12AD1CA8F69BAA169940B625D6A25F4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ Dropzone - удобная утилита для автоматизация ру�
 magnet:?xt=urn:btih:CE0078C9C1B1F8862629B8D04B78884FCB346B01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:CE0078C9C1B1F8862629B8D04B78884FCB346B01
 ```bash
 magnet:?xt=urn:btih:6D7A5DF648FCBC64633F69C5B62C17CAE49E6A3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:6D7A5DF648FCBC64633F69C5B62C17CAE49E6A3D
 magnet:?xt=urn:btih:7BE8F7E6F8A6178DA1A27724535638ED7B06E301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:7BE8F7E6F8A6178DA1A27724535638ED7B06E301
 ```bash
 magnet:?xt=urn:btih:983B45558B5D8D53245088FC63A3C4EF9DD056E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ Arc Of Ascent - The Higher Key (2012) [MP3|256 кб/с]<Stoner Doom>
 magnet:?xt=urn:btih:5D8ABD82F89DD03F44BB2A5EA3FDDB7A07B6B7A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ Disfiguring The Goddess - Sleeper (2012) [MP3|320 кб/с]<Brutal Death>
 magnet:?xt=urn:btih:FC5D75A4BC486C7FB1039939EA13657A391D554A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:FC5D75A4BC486C7FB1039939EA13657A391D554A
 ```bash
 magnet:?xt=urn:btih:2EAD8CBB0090F353338053C3D1084247D93D8A31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ PhoneRescue - полезное приложение для восстановл�
 magnet:?xt=urn:btih:95F27C2A837C981CD21D350A8BEF7DCBE97B139A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ SnippetsLab — это простой в использовании менедж
 ```bash
 magnet:?xt=urn:btih:F270D46637263458064C1C1FDDEE9B4173BA3F04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ Heretic Soul - Born Into This Plague (2010) [MP3|~212 кб/с]<Death Metal>
 magnet:?xt=urn:btih:5B26D568A0CBE1F6015F6B6B202FD01082D39B55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:5B26D568A0CBE1F6015F6B6B202FD01082D39B55
 ```bash
 magnet:?xt=urn:btih:5C51D77F54520D7A103DCB33FA98913DA9C31848
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:5C51D77F54520D7A103DCB33FA98913DA9C31848
 magnet:?xt=urn:btih:3D10E81B08E4A54A8E4F0B3E479EA1075F0F87E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:3D10E81B08E4A54A8E4F0B3E479EA1075F0F87E9
 ```bash
 magnet:?xt=urn:btih:D833444DFE814471174B86DF99F0546BB0E8E585
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ Live синхронизирует все и работает в режиме р�
 magnet:?xt=urn:btih:CF5B17C25D751DE6A4DE00357A1D4DBADA4448DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ magnet:?xt=urn:btih:CF5B17C25D751DE6A4DE00357A1D4DBADA4448DC
 ```bash
 magnet:?xt=urn:btih:F80931BF43E3A3FC294F48301A795843A8A41468
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:F80931BF43E3A3FC294F48301A795843A8A41468
 magnet:?xt=urn:btih:AAC060E70E4F05FF9CA93F5C670624172B3EDF81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ Donemax DMmenu 1.5 [En]
 magnet:?xt=urn:btih:6107217A09A68AF01632AAF028A6FF4C3C1AFA4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ magnet:?xt=urn:btih:6107217A09A68AF01632AAF028A6FF4C3C1AFA4A
 ```bash
 magnet:?xt=urn:btih:962669BEC6FA4817AE9C1532C69153483C342EC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

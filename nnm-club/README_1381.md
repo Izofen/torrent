@@ -19,6 +19,8 @@ NG: Конкистадоры: Взлет и падение / Conquistadors: The 
 magnet:?xt=urn:btih:4FE503CDB620999CA9768D0DA2B42F01069D7A58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Side A:
 magnet:?xt=urn:btih:DD77480CC8B9599FF7572FBE9010EF646776E743
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:DD77480CC8B9599FF7572FBE9010EF646776E743
 ```bash
 magnet:?xt=urn:btih:168835A077A0C3D9CDC08544DDE4681EF67013B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ The Last Plague: Blight является симулятором выживани
 magnet:?xt=urn:btih:3CCF203B2A290A96BF93A68601E07F1700EF529F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:3CCF203B2A290A96BF93A68601E07F1700EF529F
 ```bash
 magnet:?xt=urn:btih:1D1DE18FAE3E433423D39BF41A5960CF5716A9D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:1D1DE18FAE3E433423D39BF41A5960CF5716A9D6
 magnet:?xt=urn:btih:878DD5F052619C3E86B32647FDA49D92F93EE6AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Inazuma Eleven | Одиннадцать Молний [2008, TV, 127 эп.] WEB-D
 magnet:?xt=urn:btih:A3AF409F2BF98A8DF5AA1A182AAF94184EE3679B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:A3AF409F2BF98A8DF5AA1A182AAF94184EE3679B
 ```bash
 magnet:?xt=urn:btih:9EB4428DE060F94EC85D4CF85D5B82296D12EBCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:9EB4428DE060F94EC85D4CF85D5B82296D12EBCF
 magnet:?xt=urn:btih:17EA36875A2DC1FAFE482EC82A31FD58C759B58E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:17EA36875A2DC1FAFE482EC82A31FD58C759B58E
 ```bash
 magnet:?xt=urn:btih:0382236B989E548272922E76EAF897EE8AD2CEFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ Windows 10 Pro 22H2 build 19045.5131 by neyroslixs [Ru]
 magnet:?xt=urn:btih:3408BD6095F02F14A03453A2BB5488F582C3BD57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Sniper Ghost Warrior Contracts 2 - самая сложная игра в про�
 ```bash
 magnet:?xt=urn:btih:2CFA11E50A93066DDDC91271D0D4AE65BFB3C885
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:2CFA11E50A93066DDDC91271D0D4AE65BFB3C885
 magnet:?xt=urn:btih:5C0A2F632D15C4BDC2EE99864B5D6A2718EDD38D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:5C0A2F632D15C4BDC2EE99864B5D6A2718EDD38D
 ```bash
 magnet:?xt=urn:btih:998AE54E1FC6B9B0C142123FF2598EFAA04BC471
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:998AE54E1FC6B9B0C142123FF2598EFAA04BC471
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Adobe Photoshop 2025 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:7ED571BB87ABADE41CA29B5B4FE6808E1CC61E6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ updated_nov_2024_x64_dvd_3eeacab9.iso
 magnet:?xt=urn:btih:CABDB5666CC769F3256E1323699145AEE134D19B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:CABDB5666CC769F3256E1323699145AEE134D19B
 ```bash
 magnet:?xt=urn:btih:D7390184343229BD7751F8291B7A76BEAF29020A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:D7390184343229BD7751F8291B7A76BEAF29020A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ PO'ed: Definitive Edition - возвращение легендарного ол
 ```bash
 magnet:?xt=urn:btih:5550DF33A6B92BBE231F413757B6DA3CEF1F6FAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ SoftMaker Office Professional 2024 rev. S1220.1116 RePack (& portable) by KpoJIu
 magnet:?xt=urn:btih:59C744E98E82CBBAF1FB2B034D47765B7D1F6B8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:59C744E98E82CBBAF1FB2B034D47765B7D1F6B8C
 ```bash
 magnet:?xt=urn:btih:A829AA2950EFDE359B32C309622E9C6B171EFF91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:A829AA2950EFDE359B32C309622E9C6B171EFF91
 magnet:?xt=urn:btih:BA7DFF3A9F65175E7511C53A6546682951313F14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:BA7DFF3A9F65175E7511C53A6546682951313F14
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:BA7DFF3A9F65175E7511C53A6546682951313F14
 magnet:?xt=urn:btih:1A9AED254C46EA5F727287057DEE5B50AB6453F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:1A9AED254C46EA5F727287057DEE5B50AB6453F3
 ```bash
 magnet:?xt=urn:btih:A4A126A82F02A34D208DF60AC1463F5CE8796108
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

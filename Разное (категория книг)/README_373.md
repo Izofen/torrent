@@ -1,3 +1,29 @@
+###  Публикация: 1044871   (557929) от 24.08.2016
+
+Книжная серия | Русской славы имена [5 книг] (2013-2014) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книжная серия посвящена славным именам русской истории. Весь исторический путь России – это борьба государства со смутьянами, которые были движимы самыми разными мотивами: личным стремлением к власти, личной ненавистью к правителям, запросами внешних врагов, вздорными «идеями» и «теориями».Жанр: Военно-историческая литература, отечественная история, биографии и мемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1ADD6F7C8419B1D62888F5132B775E890BFCA19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304995   (557947) от 29.05.2019
 
 Николай Журавлев | Руны. Магия влияния на судьбу. Заклинания, талисманы, мудры и гальдор, которые могут все (2019) [PDF]
@@ -21,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:797C1B7F1DA915EAD62D5FC118F9AC9D6E06E35A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +75,8 @@ magnet:?xt=urn:btih:797C1B7F1DA915EAD62D5FC118F9AC9D6E06E35A
 magnet:?xt=urn:btih:D7BCC024E2F792C80A0EC16CF3642797D2371AE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:D7BCC024E2F792C80A0EC16CF3642797D2371AE3
 ```bash
 magnet:?xt=urn:btih:6124CF64B0048F0A1FB5C42459E8AA998969614B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:6124CF64B0048F0A1FB5C42459E8AA998969614B
 magnet:?xt=urn:btih:BEB471075C59628B249C369D61EFD8A1EEF5C49A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ Jonathan L. Portny & Stanley E. Portny | Project Management For Dummies 6th edit
 ```bash
 magnet:?xt=urn:btih:B17E91D060F36971284E31FBA3E34971FD77AE53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:B17E91D060F36971284E31FBA3E34971FD77AE53
 magnet:?xt=urn:btih:5DD2B68B1C26384BD912459677EDBABCD338EAE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:5DD2B68B1C26384BD912459677EDBABCD338EAE5
 ```bash
 magnet:?xt=urn:btih:8593CE0CA7C4C11252242945A17EBFC7F60A6A0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:8593CE0CA7C4C11252242945A17EBFC7F60A6A0F
 magnet:?xt=urn:btih:3B54B9120392C5093A4AEA373780F93A3238BAC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:3B54B9120392C5093A4AEA373780F93A3238BAC8
 ```bash
 magnet:?xt=urn:btih:E54726934F8C026C9ECA6EE40E359F1504B231F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:E54726934F8C026C9ECA6EE40E359F1504B231F9
 magnet:?xt=urn:btih:A2B8DEA85F7447DD5105DD67ED64577BDE141B45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:A2B8DEA85F7447DD5105DD67ED64577BDE141B45
 ```bash
 magnet:?xt=urn:btih:CF5CC1ADA4A15BC73EA24E0EF6BFF794310484EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:CF5CC1ADA4A15BC73EA24E0EF6BFF794310484EC
 magnet:?xt=urn:btih:83A473E1778BEA6C8C3700352C8D91EC24D93578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:83A473E1778BEA6C8C3700352C8D91EC24D93578
 ```bash
 magnet:?xt=urn:btih:165017CF5433C08E4587DCE1F5094616154F87CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:165017CF5433C08E4587DCE1F5094616154F87CE
 magnet:?xt=urn:btih:B30E9959655D32CEE4D2FD735F5E0EF3114FFABC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:B30E9959655D32CEE4D2FD735F5E0EF3114FFABC
 ```bash
 magnet:?xt=urn:btih:BC06F637AA7A4DFF8B002029ABF5E3622F2069FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:BC06F637AA7A4DFF8B002029ABF5E3622F2069FE
 magnet:?xt=urn:btih:D19A5289CAFE4698A4E9FD6E1E0467704AC5EC93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:D19A5289CAFE4698A4E9FD6E1E0467704AC5EC93
 ```bash
 magnet:?xt=urn:btih:88556E590CD9489F5FB51829956AB72C07250280
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:88556E590CD9489F5FB51829956AB72C07250280
 magnet:?xt=urn:btih:57444891A6DCA69DFD3E8A4DBCDA9A4A555E8E8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:57444891A6DCA69DFD3E8A4DBCDA9A4A555E8E8A
 ```bash
 magnet:?xt=urn:btih:4281808B72228C92F5735D1A5ADEEEE506D565A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:4281808B72228C92F5735D1A5ADEEEE506D565A7
 magnet:?xt=urn:btih:B68B8D97644010B701B855786E4EF22129572826
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:B68B8D97644010B701B855786E4EF22129572826
 magnet:?xt=urn:btih:2A6747283642D900101E81528510C261FAD12EE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:2A6747283642D900101E81528510C261FAD12EE2
 ```bash
 magnet:?xt=urn:btih:12E047301F4E2A22E37FD12FD182008D7DF19897
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:12E047301F4E2A22E37FD12FD182008D7DF19897
 magnet:?xt=urn:btih:936DFDD4B933EF462B929562ADE9F2D88EE6B5B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:936DFDD4B933EF462B929562ADE9F2D88EE6B5B8
 ```bash
 magnet:?xt=urn:btih:364591FB856861A56C2F5B76EBA756D724B5B056
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,31 +684,7 @@ magnet:?xt=urn:btih:364591FB856861A56C2F5B76EBA756D724B5B056
 magnet:?xt=urn:btih:6822E730D0A37C9A73C684E585C91EAA3F61D43A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045480   (559555) от 23.08.2016
-
-М. А. Бакунин | Бог и государство (1920) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559555.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Бог и государство" - одна из самых известных литературных работ русского анархиста Михаила Бакунина. Она была написана в период между февралем и мартом 1871 года. Изначально предполагалась как часть большой работы "Кнуто-германская империя и социальная революция".
-
-В этой работе отразилось стремление к свержению государственности как таковой, (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19BA5C89D1EDF8387CFD611DE5FD306CA60282F3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

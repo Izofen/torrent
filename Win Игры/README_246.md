@@ -19,6 +19,8 @@ Test Drive: Ferrari Racing Legends [En] (Lossless Repack) 2012 | R.G. Origami
 magnet:?xt=urn:btih:B4007435DAA09DE5B7FD9165F9B85A7F63AB62C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Disney Classic Games Collection - это новейшая и величайша�
 ```bash
 magnet:?xt=urn:btih:3F09A70EE210C86C3ABCE03E970A84B2C32DF758
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Anno 1503: The New World (2003) [Ru] (1.0) License Новый Диск [Колл
 magnet:?xt=urn:btih:09F23BCCE8A35F6A1DFA8CDEF11424E3648E982E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Sine Mora [En/Multi6] (Steam-Rip/1.0.0.1) 2012 | R.G. Игроманы
 ```bash
 magnet:?xt=urn:btih:0477132487C116DC5E6041DBDA85C8F4824C5A9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Redout - это гоночная аркада, вдохновленная так
 magnet:?xt=urn:btih:BDFE0A38E2B2A0F0F8FAD4CD614B454613AA933E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Human: Fall Flat (2016) [Ru/Multi] (842523) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:C717BF3D83B79AADAD962A7225E4C3FFF87B3853
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Watchmaker (2018) [Ru/Multi] (1.1) License CODEX
 magnet:?xt=urn:btih:94F490D60D3F2A7F5958CB9363BD577167A15A68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The House of Da Vinci 3 (2022) [Multi] (Build 10193115) Repack Other s
 ```bash
 magnet:?xt=urn:btih:582C126011F1094C971162CEAAADE0F07E08E718
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Gunz: The Duel - стартовала в Корее еще в начале 2005-
 magnet:?xt=urn:btih:E11C8C038F1EAC29E3E306A14ED00CB462B1D97B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ ECHO - научно-фантастическая приключенческая 
 ```bash
 magnet:?xt=urn:btih:B9AF7F60B134485599BB861104EC58351696BE97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Lunistice может заинтересовать тех, кто носталь�
 magnet:?xt=urn:btih:E27BF0557BB18B01E4917E8B0840FD0B58114C61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Road 96 (2021) [Ru/Multi] (1.04/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:D0BF07E1A49AFF27D07D5CD7BA11E4A4E917E96D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Secret Government — игра в жанре глобальной стратег
 magnet:?xt=urn:btih:0FE749D7A03F655072E9EA1D61D7998D8F7995B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Christmas Spirit. Trouble in Oz / Дух Рождества: Неприят�
 ```bash
 magnet:?xt=urn:btih:12E1A5EA785520368F1023E5F4FC951AD69E76C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ White Shadows – это кинематографичный платформер
 magnet:?xt=urn:btih:E3CD39C6B2E1DC38B85A62AC710D80230093754D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Redemption Cemetery 11: One Foot In The Grave / Кладбище искупле�
 ```bash
 magnet:?xt=urn:btih:94F2096BA078AC5F2CB306108BE452205F2FE398
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Redemption Cemetery 5: Bitter Frost / Кладбище Обреченных 5: �
 magnet:?xt=urn:btih:2FF27463FFEF095AA861CC53211CE4A27ACBB4FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Phantasmat 12: Death in Hardcover / Фантазмат 12: Смерть в ст�
 ```bash
 magnet:?xt=urn:btih:4C1D0FE860B0A86681290EBC63B5718A2B4E85A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Assetto Corsa – новый гоночный симулятор компани�
 magnet:?xt=urn:btih:83301F0D5556916661F15875F2DD8DD4933B67D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Edge of Reality 6: Mark of Fate (2019) [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:A860B7AE71D03866814E7C27844C226559010B12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Kingdom Rush: Frontiers, новая глава в серии милых и не�
 magnet:?xt=urn:btih:1EB28764339D1F383A2BC4BBCD9A2053C5190D46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Christmas Stories 4: Puss in Boots / Рождественские истории
 ```bash
 magnet:?xt=urn:btih:AFF46F84CD69C40E88811689054F21E6CC8A5702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Shadow Warrior 2 - продолжение ниндзя-шутера Shadow Warri
 magnet:?xt=urn:btih:07F97E61F591A08D7A38B11585725BE396540FDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Secret City 5: Mysterious Collection (2020) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:74950B62892D5811EC0AE99D999705AEFF1BC5E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Phantasmat 5: Behind The Mask (2015) [En] Unofficial [Collector's Edition / Ко
 magnet:?xt=urn:btih:E294E62EF6927478ED06CF98BEBF7FBBA16BC236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Christmas Stories 4: Puss in Boots (2015) [En] Unofficial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:DFA417895F99F0916B818FB98CE88DA2CD91446F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

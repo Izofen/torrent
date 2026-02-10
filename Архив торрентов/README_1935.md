@@ -27,6 +27,8 @@ Side One:
 magnet:?xt=urn:btih:99BCAC7D9F8661F56996326915FC886224B689BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ magnet:?xt=urn:btih:99BCAC7D9F8661F56996326915FC886224B689BA
 ```bash
 magnet:?xt=urn:btih:F3A4BBF79B087253BB461003BABCD8FA1962FCFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -85,6 +89,8 @@ Cranes - Wings Of Joy (1991) [FLAC|Lossless]<Indie Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ Cranes - Wings Of Joy (1991) [FLAC|Lossless]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:D06202173294B38D6B09DCBEF1332CFF43D28783
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -133,6 +141,8 @@ Linkin Park - Burn It Down (2012) [H.264/1080р] WEBRip
 magnet:?xt=urn:btih:AF6DFFE7E33484560FCDBD35D06723779D66282D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:AF6DFFE7E33484560FCDBD35D06723779D66282D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -183,6 +195,8 @@ Easy CD-DA Extractor - программа для преобразования а
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +220,8 @@ Easy CD-DA Extractor - программа для преобразования а
 ```bash
 magnet:?xt=urn:btih:2E1A738F945728C8EF6D0EAF43D1FECB0C1D58AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +249,8 @@ magnet:?xt=urn:btih:2E1A738F945728C8EF6D0EAF43D1FECB0C1D58AD
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -257,6 +275,8 @@ magnet:?xt=urn:btih:2E1A738F945728C8EF6D0EAF43D1FECB0C1D58AD
 magnet:?xt=urn:btih:D99C77B4F28B17FF618D2581021AD23916390A5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ Get Linux 2.0 + Portable [English]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +336,8 @@ Genetic Process - Natural Chimical (2012) [MP3|320 кб/с]<Psychedelic / Full O
 magnet:?xt=urn:btih:D20478A09D20348FB4996CC3597139D4A752B504
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +364,8 @@ Inpaint - позволяет умно удалять нежелательные 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +389,8 @@ Inpaint - позволяет умно удалять нежелательные 
 ```bash
 magnet:?xt=urn:btih:07164C4920BC45F8C9C88DFDC0CFD6B272C81537
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +416,8 @@ magnet:?xt=urn:btih:07164C4920BC45F8C9C88DFDC0CFD6B272C81537
 magnet:?xt=urn:btih:7B721FDA316E3FBC22F5D66C96F9C97148E53DEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +442,8 @@ magnet:?xt=urn:btih:7B721FDA316E3FBC22F5D66C96F9C97148E53DEA
 magnet:?xt=urn:btih:DD4E54B157FC5700154BEAAB8E52EBC71D257FD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +467,8 @@ magnet:?xt=urn:btih:DD4E54B157FC5700154BEAAB8E52EBC71D257FD3
 ```bash
 magnet:?xt=urn:btih:8903A3102F785EAADB752A8FC765C095FDF47D03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +495,8 @@ magnet:?xt=urn:btih:8903A3102F785EAADB752A8FC765C095FDF47D03
 magnet:?xt=urn:btih:90A343AD7D3326CE582858E9A6DA751DB8F70248
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +520,8 @@ magnet:?xt=urn:btih:90A343AD7D3326CE582858E9A6DA751DB8F70248
 ```bash
 magnet:?xt=urn:btih:E97830A27A0FE79AF537C01F4FBB13742120B013
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +550,8 @@ magnet:?xt=urn:btih:E97830A27A0FE79AF537C01F4FBB13742120B013
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +576,8 @@ magnet:?xt=urn:btih:E97830A27A0FE79AF537C01F4FBB13742120B013
 magnet:?xt=urn:btih:907C7F8AD7B7E190C04E4A04073695E8293E8D9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +601,8 @@ magnet:?xt=urn:btih:907C7F8AD7B7E190C04E4A04073695E8293E8D9F
 ```bash
 magnet:?xt=urn:btih:2434AB54FAE5CDDAEC163951E2037E5A903D1651
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +637,8 @@ Ozzy Osbourne - Best Of Ozz (Japanese Edition) (1989) [MP3|320 кб/с]<Heavy Me
 magnet:?xt=urn:btih:0607D8699EF727E3E08AF8CA1932BE2E6029DA58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +662,8 @@ BBC: Книга Страшного суда / Domesday (2010) SATRip
 ```bash
 magnet:?xt=urn:btih:9FDDF7919F03AAFC7B824F9566CF80F92E5A04D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +689,8 @@ Mail.Ru Агент — популярнейшая российская прог�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +714,8 @@ Mail.Ru Агент — популярнейшая российская прог�
 ```bash
 magnet:?xt=urn:btih:043225DA9FE80BFDAE1EF2FBC15FC9F4EFBD7F8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

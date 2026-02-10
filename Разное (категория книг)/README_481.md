@@ -1,3 +1,31 @@
+###  Публикация: 1400501   (718644) от 05.08.2020
+
+Дэн Лайонс | Евангелие от IT. Как на самом деле создаются IT-стартапы (2020) [FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэн Лайонс – экс-редактор Forbes и сценарист комедийного сериала «Кремниевая долина» – прославился как автор пародийного блога «Тайный дневник Стива Джобса». Вот и его бестселлер «Евангелие от IT» похож на сатиру. Только это – реальная история.
+
+Автор описывает свои злоключения в многомиллионном стартапе HubSpot, где ему предложили работать бок о бок с новаторами (   Читать дальше...   )Жанр: Зарубежная деловая литература, Зарубежная публицистика, Стартапы и создание бизнесаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5252EA3B60B25808186DA8AAE303E630D1ED368E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130116   (718694) от 30.04.2017
 
 Валентина Николаевна Кузнецова | Апостол свободы (2012) [PDF, FB2, EPUB, MOBI]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:E1265A573DB919A1FA9B5D88B18355499BEF752F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:E1265A573DB919A1FA9B5D88B18355499BEF752F
 magnet:?xt=urn:btih:855D85420AE457F77F94221BFE16D9EB9DED1E74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +98,8 @@ magnet:?xt=urn:btih:855D85420AE457F77F94221BFE16D9EB9DED1E74
 ```bash
 magnet:?xt=urn:btih:202C85FA8AE164FF42C85CE89D9C04EC3146C163
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +126,8 @@ magnet:?xt=urn:btih:202C85FA8AE164FF42C85CE89D9C04EC3146C163
 magnet:?xt=urn:btih:CE3BDB2E5DF31F774815C3913F1630583593CD8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +151,8 @@ magnet:?xt=urn:btih:CE3BDB2E5DF31F774815C3913F1630583593CD8E
 ```bash
 magnet:?xt=urn:btih:E1AEEA5C6EECF9AB5686BFFCB48FCB72F7C36B74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +181,8 @@ magnet:?xt=urn:btih:E1AEEA5C6EECF9AB5686BFFCB48FCB72F7C36B74
 magnet:?xt=urn:btih:6B9EE3FC702CD3F36EC1777CB6059B8022CAF26C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +209,8 @@ magnet:?xt=urn:btih:6B9EE3FC702CD3F36EC1777CB6059B8022CAF26C
 magnet:?xt=urn:btih:C3368ADA74E74DE20CFC3EF63E1FEB7815631916
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +234,8 @@ magnet:?xt=urn:btih:C3368ADA74E74DE20CFC3EF63E1FEB7815631916
 ```bash
 magnet:?xt=urn:btih:A0C22AE33129E89583E0E0FD2C5C816AF883AE79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +261,8 @@ magnet:?xt=urn:btih:A0C22AE33129E89583E0E0FD2C5C816AF883AE79
 magnet:?xt=urn:btih:4C06BC4AF7112506208B818E34D65EB320A8D837
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +286,8 @@ magnet:?xt=urn:btih:4C06BC4AF7112506208B818E34D65EB320A8D837
 ```bash
 magnet:?xt=urn:btih:86FE3F14B7F5D8176C1D2B8500C445E282F1BEB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +313,8 @@ magnet:?xt=urn:btih:86FE3F14B7F5D8176C1D2B8500C445E282F1BEB7
 magnet:?xt=urn:btih:1A82E7FBB0388CA3687B79D3216338831C12B358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +338,8 @@ magnet:?xt=urn:btih:1A82E7FBB0388CA3687B79D3216338831C12B358
 ```bash
 magnet:?xt=urn:btih:B5F321594C6AA19D65810630D117F0D735770305
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +367,8 @@ magnet:?xt=urn:btih:B5F321594C6AA19D65810630D117F0D735770305
 magnet:?xt=urn:btih:781FF60666435F37DE1E61DE8C1567368039F55F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +392,8 @@ magnet:?xt=urn:btih:781FF60666435F37DE1E61DE8C1567368039F55F
 ```bash
 magnet:?xt=urn:btih:CA3A80ED470A84DF72DB56A8D48D2DA30D0F6B1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +419,8 @@ magnet:?xt=urn:btih:CA3A80ED470A84DF72DB56A8D48D2DA30D0F6B1E
 magnet:?xt=urn:btih:CFB69724F028D3AC6202ECEB519002D9EB0DCC53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +444,8 @@ magnet:?xt=urn:btih:CFB69724F028D3AC6202ECEB519002D9EB0DCC53
 ```bash
 magnet:?xt=urn:btih:B9DC498C00A7FEE58D9A318B7E2C254C38CA9671
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +471,8 @@ magnet:?xt=urn:btih:B9DC498C00A7FEE58D9A318B7E2C254C38CA9671
 magnet:?xt=urn:btih:D02208F119F5A8389235DBAD0D854A7BC4F12302
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +496,8 @@ magnet:?xt=urn:btih:D02208F119F5A8389235DBAD0D854A7BC4F12302
 ```bash
 magnet:?xt=urn:btih:FE2125740B5EB8D85238041C932DA38B8F8AF777
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +523,8 @@ magnet:?xt=urn:btih:FE2125740B5EB8D85238041C932DA38B8F8AF777
 magnet:?xt=urn:btih:B35790A7C4FA1EBC2C6FFFBECD76A446B7C13F8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +549,8 @@ magnet:?xt=urn:btih:B35790A7C4FA1EBC2C6FFFBECD76A446B7C13F8E
 magnet:?xt=urn:btih:317635CA61D41898C66E93F6B13A3765804330DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +574,8 @@ A.A. Кострюков | Русская Зарубежная Церковь в 
 ```bash
 magnet:?xt=urn:btih:DAB5EBFAEFAB0757D5534865980641B0134C0D06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +602,8 @@ magnet:?xt=urn:btih:DAB5EBFAEFAB0757D5534865980641B0134C0D06
 magnet:?xt=urn:btih:7A556B714C275AB96F543FC054017E30DC48C9AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +627,8 @@ magnet:?xt=urn:btih:7A556B714C275AB96F543FC054017E30DC48C9AF
 ```bash
 magnet:?xt=urn:btih:55AC749046B0C3414F2A18051973F74C5C3491FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +654,8 @@ magnet:?xt=urn:btih:55AC749046B0C3414F2A18051973F74C5C3491FE
 magnet:?xt=urn:btih:C2B2C478111BD1EBECC26E62DDE3E31BA92C7185
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,30 +680,7 @@ magnet:?xt=urn:btih:C2B2C478111BD1EBECC26E62DDE3E31BA92C7185
 magnet:?xt=urn:btih:8ACA8BE2787E6D94A8A2F94AE8DC86CFF44EB6E4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400369   (720822) от 04.08.2020
-
-Лиа Каллис | Силовая йога. Энергия. Концентрация. Баланс (2020) [EPUB]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доступная для новичков (и полезная для инструкторов) иллюстрированная книга по йоге с большим количеством упражнений.
-Силовая йога, пауэр-йога – спортивный, динамичный и современный стиль йоги, предполагающий занятия до пота и усталости. Акцент в нем делается на позах, которые улучшают физическую форму и концентрацию, ускоряют метаболизм. В конечном счете вы сможете (   Читать дальше...   )Жанр: ЙогаПеревод: Юлия ЗмееваФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616E7611170B0FD97FE1EECF63E36BAF8A970FDC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

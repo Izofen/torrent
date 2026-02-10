@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:1199CC2B9492386438ED62F77D76981AD3AE1F24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ A4 You Always Saw The Blue Sky(   Читать дальше...   )Жанр: Pop 
 ```bash
 magnet:?xt=urn:btih:8365CF1C85317E9D8A6D3349E2E82AE568F3E24B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:8365CF1C85317E9D8A6D3349E2E82AE568F3E24B
 magnet:?xt=urn:btih:1A286BC7EC7C1FC1FF6F538F985372B748D34FA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ A4. Don't Stop (3:15)(   Читать дальше...   )Жанр: Soft RockПр
 ```bash
 magnet:?xt=urn:btih:B8D21AE3BE8E830387C475552ED04087ED25D739
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ A2 Nancy (With The Laughing Face)
 magnet:?xt=urn:btih:02336EA0A829CF4CFEE91C33486053D831570B8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ A4. The Diary Of Horace Wimp (4:22)(   Читать дальше...   )Прои�
 ```bash
 magnet:?xt=urn:btih:0409C9979B742FE6F320BD4223B7C9C18EDFAF7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Passengers - Casino (1981) [FLAC|96/24|image+.cue|Vinyl-Rip] <Disco>
 magnet:?xt=urn:btih:EC8F9C9C63354292D7A3CC369D8281FCD251AA5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ magnet:?xt=urn:btih:EC8F9C9C63354292D7A3CC369D8281FCD251AA5A
 ```bash
 magnet:?xt=urn:btih:F40BB283B82A4D442549D97DB437185B8B260542
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ A4. It Makes Me Wonder (4:36)(   Читать дальше...   )Произво�
 magnet:?xt=urn:btih:62D7B74C9687207F5BCF687A193EC843CBB9B74C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ VA - The Great Singers Of The Jazz/Големите Вокалисти На Дж
 ```bash
 magnet:?xt=urn:btih:A1E98D6DAB0D5FE1BA5F019FD1F8D46D7635B033
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +310,8 @@ Ken Hensley - Proud Words On A Dusty Shelf (1973) [WavPack|192/32|image+.cue|Vin
 magnet:?xt=urn:btih:D8FD3C6E85140FE239F14BF4C99B443B5DD2EAE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +338,8 @@ VA - RETROспектива, часть XIII. Мелодии и песни из �
 ```bash
 magnet:?xt=urn:btih:0A9A096CFC57AE241C8735C91A2EB5DAA27A2000
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +368,8 @@ Electric Light Orchestra - Time (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<
 magnet:?xt=urn:btih:1E9F84897677346A07E5D1305DA4DE691DA79362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +396,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:D2164BE1D2527B0E031CC974F3F52A392329077D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +426,8 @@ A4 Highway Of Love(   Читать дальше...   )Жанр: Electronic, Synt
 magnet:?xt=urn:btih:1522C03026CBD0E7A02F5FDDDEA04217271C136C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +455,8 @@ magnet:?xt=urn:btih:1522C03026CBD0E7A02F5FDDDEA04217271C136C
 magnet:?xt=urn:btih:CE410BB158A70D41ED3BEE10B877975FBC145B21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +483,8 @@ VA - Музыка РУ 5 (2005) Unofficial Release [FLAC 2.0|48/24|image +.cue|M
 ```bash
 magnet:?xt=urn:btih:D11B1B383658D143701BEA72C5C68C3CE018A6ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +514,8 @@ Cerrone - 3 Album (1976 - 1977) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Disco>
 magnet:?xt=urn:btih:4CE580ACCFFE03490CD71B85B01CBE72DC77DDDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +542,8 @@ VA - RETROспектива, часть XII. Мелодии и песни из к
 ```bash
 magnet:?xt=urn:btih:94D59E8C99EE03292BFCC65957A7E8A6FC76B3E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +573,8 @@ magnet:?xt=urn:btih:94D59E8C99EE03292BFCC65957A7E8A6FC76B3E1
 magnet:?xt=urn:btih:2F091C3FD2E4320C7D6541A4EF792989DE056B6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +603,8 @@ magnet:?xt=urn:btih:2F091C3FD2E4320C7D6541A4EF792989DE056B6C
 magnet:?xt=urn:btih:CA63D0DE881B7B64DB45FD30B105E91A1745D3E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +631,8 @@ A4	A Matter Of Feeling(   Читать дальше...   )Жанр: Synth-popП�
 ```bash
 magnet:?xt=urn:btih:AC6D710DCECA83540E6D5487CFA041AD805349FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +661,8 @@ A3 The Wake 3:45(   Читать дальше...   )Жанр: PopПродолж�
 magnet:?xt=urn:btih:84A8B87831341F03980378CAD74954B95B1EEC13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +689,8 @@ A4. Crossfade (3:41)(   Читать дальше...   )Производство
 ```bash
 magnet:?xt=urn:btih:6438D39027558495235AE58EBC30CBE7229CD865
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -671,6 +719,8 @@ B1. Get Your Rocks Off (2:51)(   Читать дальше...   )Произво�
 magnet:?xt=urn:btih:9BD7F480458F1482862DE7FE14CA7DB2AE2E64B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +747,8 @@ B1. Yours Is An Empty Hope(   Читать дальше...   )Жанр: Symphoni
 ```bash
 magnet:?xt=urn:btih:04FAF093F6150CCE86D55D0F1BB354A025FD6C63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,38 @@
+###  Публикация: 510121   (672692) от 13.06.2012
+
+VA - Deep Line. Erotic Lounge Vol. 2 (2012) [MP3|320 kbps]<Downtempo|Lounge|Chillout>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bageri - Lady Of My Life
+02.Sawa Kobayashi - Patience
+03.Mooli - One Design
+04.The Perfect Backdrop - How Far, How Long
+05.Le Berry - Message In The Botte
+06.Sweet Velvet - Eres Tu - Ibiza Mix
+07.Crystin - Take Me Home
+08.B-Floor Feat. Hilary Costa & Vida Nova - Meu Amor
+09.Jaci Velasquez - Imagine Me Without You
+10.Sherrie Lea - No Ordinary Love (Arnold T Chill Mix)(   Читать дальше...   )2012Жанр: Downtempo|Lounge|ChilloutПродолжительность: 03:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8EF4647B78AAB822319BA647C60B327F7174B54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136526   (672761) от 23.05.2017
 
 VA - Дискотека Хит FM. Любимая музыка выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
@@ -21,6 +56,8 @@ VA - Дискотека Хит FM. Любимая музыка выпуск № 
 ```bash
 magnet:?xt=urn:btih:81A0566AA5FC7EACC803905547CACB33145402FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +86,8 @@ VA - Музыка отличного настроения радио Шансо�
 magnet:?xt=urn:btih:63F6630C4EAA071CCBB15B79079FE8128F5F8AF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +114,8 @@ VA - Beatport Techno: Sound Pack #503 (2022) [MP3|320 Kbps] <Techno, Electro, Mi
 ```bash
 magnet:?xt=urn:btih:EA9973B49B544B501F062F6B0663A64895BCD97F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +150,8 @@ VA - Deep Line. Erotic Lounge (2012) [MP3|320 kbps]<Downtempo|Lounge|Chillout>
 magnet:?xt=urn:btih:A35477E67B98F7323883AF6423C38AFA3342718B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +178,8 @@ VA - Bаss Kіllеr (2017) [MP3|320 Kbps] <Trap , Dubstep , Bass>
 ```bash
 magnet:?xt=urn:btih:31FAC22895FF48F5BC3FA662FC6C03122E1AFF41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +208,8 @@ VA - Best-of-ka Шансона. Версия № 6 (2017) [MP3|256 Kbps] <Шан
 magnet:?xt=urn:btih:9EEC7D9CD4EA678391FA6E0087A77A9A4FF417B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +236,8 @@ VA - Русский шансон на любимой волне выпуск №
 ```bash
 magnet:?xt=urn:btih:5AC0D02E5F6791B7BCEF81051416754A2A420437
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +272,8 @@ VA - Asia Lounge (2012) [MP3|320 кб/с]<Ethnic, Lounge, Relax>
 magnet:?xt=urn:btih:BC90E022A3900DBBF15C4343B4F1E54B21138E3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +300,8 @@ VA - Грешная любовь. ХХХL от радио Шансон выпу�
 ```bash
 magnet:?xt=urn:btih:33598D7E102AA24B628AD9A11C40279EC43CE28C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +330,8 @@ VA - Deep House Collection Vol.122 (2017) [MP3|320 Kbps] <Deep House, Club House
 magnet:?xt=urn:btih:5F30E073271094C7A5DE987E7EB84246A5CAC9BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +358,8 @@ VA - Топовая весенняя сотня выпуск № 8 (2017) [MP3|2
 ```bash
 magnet:?xt=urn:btih:CBEABD28CC02E444D3FD3669359DBCF42D2C4838
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +388,8 @@ VA - Зажигай вместе с Europa Plus. Версия № 5 (2017) [MP3|
 magnet:?xt=urn:btih:9D36B1EA88CCDF067EA9FAE1304CAFF8E2F366F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +416,8 @@ VA - Весенний хит-парад Шансона. Версия № 9 (2017
 ```bash
 magnet:?xt=urn:btih:929BC70DE31D0F6F0BEEE820570C1BE77551F899
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +452,8 @@ VA - World R&B Delux (2012) [MP3|320 кб/с]<R&B, Hip, Rap>
 magnet:?xt=urn:btih:B034A5B3724ED64CF6B13003A94C2F7492110937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +486,8 @@ VA - Зарубежные Новинки Vol.55 from AGR (2012) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:8DE781B85D91968FA88BDB62E84A34EB5EA3C64C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +522,8 @@ VA - Club In Car Summer (2012) [MP3|320 кб/с]<Dance, Club>
 magnet:?xt=urn:btih:2C1D3E3B5B8E2623936E0D2FBD74667B28A98640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +550,8 @@ VA - Звездная тусовочка. Сборник № 12 (2017) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:34BDFED4ED85803B89F0328451AAAAF7C88B8190
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +580,8 @@ VA - Syndrome Butterfly: Techno Party (2017) [MP3|320 Kbps] <Techno, Minimal, Te
 magnet:?xt=urn:btih:C803F323C043FA5139AD31983AED1BF98D25E584
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +608,8 @@ VA - LUXEmusic - Dance Super Chart Vol.118 (2017) [MP3|320 Kbps] <Club House, De
 ```bash
 magnet:?xt=urn:btih:8109D2FFDF1CD6F7576DDDA29C23094BFD233272
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +638,8 @@ VA - Горячая весенняя танцплощадка. Версия № 
 magnet:?xt=urn:btih:535EC3D77870F235B4EE46DB70F96C8278AF4C82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +666,8 @@ VA - Весенний хитовичок молодежный выпуск № 4
 ```bash
 magnet:?xt=urn:btih:C1132F70D2950A5572D6233BFDA66163731787CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +696,8 @@ VA - Club Dance Ambience Vol.109 (2017) [MP3|320 Kbps] <Club House , Vocal House
 magnet:?xt=urn:btih:2470B36DC125BA9352398DC1084DEA8700572706
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +724,8 @@ VA - Dangerous Dance Vol 2 (2017) [MP3|320 Kbps] <Funky, Tech House, Minimal>
 ```bash
 magnet:?xt=urn:btih:D7AB241B449FB7C8874A9A813830D6628EBCF810
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +754,8 @@ VA - Cocktail new music №33 (2018) [MP3|320 Kbps] <Dance, Club, R&B>
 magnet:?xt=urn:btih:30415CE7A0EAF8090F1D7F8F611431414AFEB088
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -700,32 +783,7 @@ VA - German Top 100 Single Charts 04.05.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:F93B511ADE139DD2154A11A9606548C429C47095
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223492   (673465) от 05.05.2018
-
-VA - The Official UK Top 40 Singles Chart 04.05.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris, Dua Lipa - One Kiss
-02. Ariana Grande - No Tears Left to Cry
-03. Drake, Big Freedia, 5thward Weebie - Nice For What
-04. Lil Dicky - Freaky Friday (feat. Chris Brown)(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 02:18:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF6A46B0BCD95D4EC3955EEF8038672C1D88A911
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

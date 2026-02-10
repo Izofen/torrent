@@ -22,6 +22,8 @@ Jasper Bergstrom - A Saxy Lounge Experience (2010) [MP3|320 kbps] <Jazz>
 magnet:?xt=urn:btih:7852CEBD44CF4D35356BE8A93DB18C4306B8693C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Privacy Eraser Free 4.31.0 Build 2421 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1E2564973B4FD0895DD65A2D68ADE64C4679B411
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ oCam - неплохая бесплатная программа для запи�
 magnet:?xt=urn:btih:078073EC52B92C5C19B8535429FFBDF6A413C283
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Cisdem Video Player - это видео и аудиоплеер, который 
 ```bash
 magnet:?xt=urn:btih:4DE074FB0055C5F89A787AE2C2249A1553AA7226
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Aero Royalty by ~PortraitpointЯзык интерфейса: Ru
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Aero Royalty by ~PortraitpointЯзык интерфейса: Ru
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:60E9C467ED8CFD0C8E95449C3A864D6847A5C73E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:60E9C467ED8CFD0C8E95449C3A864D6847A5C73E
 ```bash
 magnet:?xt=urn:btih:7FCABC34C8D59B8DD790FDC11B50C4C5413ED902
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Vivaldi 1.6.689.34 Final [Multi/Ru]
 magnet:?xt=urn:btih:CCEFE1B2F110633BE74A3C232361EDAC919E0C83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:2AFDF5F35C7EAD53CA4F81656F247285544ECEC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ Devaldi - Petrichor (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Lounge>
 magnet:?xt=urn:btih:2B2C679EC6DF9525E53620C79D027663A3406929
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ FileMenu Tools настраивает пункты контекстного ме
 magnet:?xt=urn:btih:E1A5F08582640C493C5F872ED574960D3F1F4918
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ Our Budget Book Pro 5.7 [Ru]
 ```bash
 magnet:?xt=urn:btih:FFB58114FA615D0F395E3095411C7FBC22530938
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ Naibu - Corners (2016) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:C6B5CF4217A95A08B3DE456E184A75A9FBEE4159
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ Pacifist – приложение, которое открывает пакет�
 ```bash
 magnet:?xt=urn:btih:17A376876CB4EC106B9FFD417DA42D1D470B5D2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ VA - Progressive Goa 2017 (2016) [MP3|320 Kbps] <Psychedelic, Goa Trance, PsyTra
 magnet:?xt=urn:btih:9DAC960E05199FF782854B54D06843E6A10E4AFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ Shed - The Final Experiment (2017) [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, Tec
 magnet:?xt=urn:btih:D01C5B9371730F6A9BE39D18552F5780E1D8B010
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:D01C5B9371730F6A9BE39D18552F5780E1D8B010
 ```bash
 magnet:?xt=urn:btih:8DD32B3035AB647CFF335262417F225376F44B7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ iTrash - утилита для удаления приложений с ваше
 magnet:?xt=urn:btih:EBC2BF32B93617135E3FF64F19E0D3E1FE5E4491
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ The American Dollar - Music for Travel (2017) [FLAC|Lossless|WEB-DL|tracks] <Amb
 ```bash
 magnet:?xt=urn:btih:318CD00B6F1DC4DE5B1498862D37038040A55B0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +575,8 @@ UNDERCOVER by CreatorЯзык интерфейса: Ru
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +602,8 @@ Pixelmator Pro предлагает широкий спектр професси
 ```bash
 magnet:?xt=urn:btih:EF6961F2FAAB4CEAB1F242EC89192D9D0A9EC381
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +632,8 @@ Cyanide Grenade - Quintessence Of Death (2017) [FLAC|Lossless|image + .cue] <Thr
 magnet:?xt=urn:btih:EA397B5124D7A262FBA40481C235EC44EB0689AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +657,8 @@ magnet:?xt=urn:btih:EA397B5124D7A262FBA40481C235EC44EB0689AC
 ```bash
 magnet:?xt=urn:btih:7635839E970090C4696D3FB365BC62807091ADA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +685,8 @@ CodeRunner - отличный редактор для программиста �
 magnet:?xt=urn:btih:ACAAEC231278DEEA8CBD244B6BED924E29F58A4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +710,8 @@ magnet:?xt=urn:btih:ACAAEC231278DEEA8CBD244B6BED924E29F58A4E
 ```bash
 magnet:?xt=urn:btih:1EBC47056EB0415CE7A201A1913B49AAEB2FE57D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

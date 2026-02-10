@@ -19,6 +19,8 @@ Hyakuren no Haou to Seiyaku no Valkyria | Повелитель Рагнарёк�
 magnet:?xt=urn:btih:2E9E36DD0263317537C6AF6F2720032E22CAB056
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Watashi ni Tenshi ga Maiorita! Precious Friends | Ангел спустился 
 ```bash
 magnet:?xt=urn:btih:977C82BC8BF2F08CF460487B7E96975B88A899BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Black Fox | Чёрная лиса [2019, Movie] BDRip 1080p raw
 magnet:?xt=urn:btih:E5C9E52FDDC0F54029CE8B5F13A4BE83E187D3B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Fate/Grand Carnival | Судьба: Великий карнавал [2021, OVA, 
 ```bash
 magnet:?xt=urn:btih:F7AEC86EF43FCDB7D087888F3682C43D47A1F23B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Prima Doll / Прима-кукла [2022, TV, 12] BDrip 1080p raw
 magnet:?xt=urn:btih:C4126ACFF33B34E8AFBA3CC3AF862EC6BCCAF2DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Eiga Bakuten!! | Сальто назад! (фильм) [2022, Movie] WEBRip 720p
 magnet:?xt=urn:btih:0A9C127C54091D177BEA45612FF36D132B05CEA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Prima Doll / Прима-кукла [2022, TV, 12] BDrip 720p raw
 ```bash
 magnet:?xt=urn:btih:581F85F813F7CCE0345FF8C89F94E37458653EDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Gensou Sangokushi: Tengen Reishinki | Fantasia Sango: Realm of Legends | Фан�
 magnet:?xt=urn:btih:6AF761FD8AE0CED9ADD1B594BD579B31DA206B39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Akebi-chan no Sailor Fuku | Akebi's Sailor Uniform | Школьная форма
 ```bash
 magnet:?xt=urn:btih:A54D165DF6CE75C5FAA8EF1D765758BFB91481C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Koroshi Ai | Love of Kill | Убийственная любовь [2022, TV, 12 
 magnet:?xt=urn:btih:99D06C08C4427264E41EDFD1AD2E691EEC3437F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ The Marginal Service | Отдел «Рубеж» [2023, TV, 12 эп.] WEBRip 720
 ```bash
 magnet:?xt=urn:btih:3B8ECB3B8AD3CFAB0373FD4A26B0AD13395C3BB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Golden Kamuy (2022) | Золотой Камуй | Золотое божеств�
 magnet:?xt=urn:btih:B673B2B50AD6AEB75020930FB86850525646724E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Yuusha ga Shinda! | The Legendary Hero Is Dead! | Герой сдох! [2023, TV
 magnet:?xt=urn:btih:9E88C900D6F947A241F4D978A6759B01742A9C7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Kimetsu no Yaiba: Katanakaji no Sato Hen | Demon Slayer: Swordsmith Village Arc 
 ```bash
 magnet:?xt=urn:btih:18E2AE8DE4167EDAACE5C792F607512DBBDFF71C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Kujakuou / Peacock King / Spirit Warrior / Заклинатель Кудзяку
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ Onegai Teacher / Пожалуйста! Учитель [2002, TV, 12 + OVA] BDrip
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ Getsuyoubi no Tawawa / Tawawa on Monday / Встречи с Тававой по 
 ```bash
 magnet:?xt=urn:btih:D205835D09EBD079B69BDD58E2C044BCDED4495A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Egao no Daika | The Price of Smiles | Цена улыбки [2019, TV, 12 эп.]
 magnet:?xt=urn:btih:ED8C602F24B6602F6F6782E31028F30577912B26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Boku no Hero Academia 5 | My Hero Academia Season 5 | Моя геройская 
 magnet:?xt=urn:btih:DD585E4E7EADAC5EF4D389819A9C6CA78D144942
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Ryuugajou Nanana no Maizoukin | Nanana's Buried Treasure | Сокровища Н
 ```bash
 magnet:?xt=urn:btih:893F28CBB7A950027F070129787054EA81A0326F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ Dr. Stone: Ryuusui | Доктор Стоун (спэшл) [2022, Special, 1 эп
 magnet:?xt=urn:btih:2FEE17F076C4692F53A4235FEA02FE4A1201292D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Dan Da Dan | Дандадан [ТВ-1] [2024, TV, 12 из 12] BDRip 1080p raw
 ```bash
 magnet:?xt=urn:btih:1F3DCB2EC428DDF5EEE5BBEDA2E313A197E8D3C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ Hayate the Combat Butler! Heaven is a Place on Earth .
 magnet:?xt=urn:btih:216E9CB5CE1ED857A58193900C86DFAB3E7FA2F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ Yahari Ore no Seishun LoveCome wa Machigatte Iru. Kan | OreGairu 3 | Как и �
 magnet:?xt=urn:btih:73258F4E0BA872AD93A9A5BD048968F47836F593
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ Muu no Hakugei | The White Whale of Mu | Белый кит континента 
 magnet:?xt=urn:btih:24678E5EFFE0489390E9230407863D26B7E54A7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ Iria: Zeiram the Animation / Ирия: Зейрам [1994, OVA, 6 ep.] Remastere
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

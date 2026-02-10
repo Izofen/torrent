@@ -19,6 +19,8 @@ Muviz Edge — первое в своем роде приложение, кот�
 magnet:?xt=urn:btih:12F201CEB1575EA2B3E6512880EED22CE7E3500E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:12F201CEB1575EA2B3E6512880EED22CE7E3500E
 ```bash
 magnet:?xt=urn:btih:9ABDB8A5E354E95B7CF0DD08F8997A8B433F6C0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ GPS Data Premium / GPS данные Glonass координаты v2.9.00 Mod by 
 magnet:?xt=urn:btih:91D6C3BFE50A6049F0F05BE4C6087A31277517F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Photomath v8.44.0 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:91141A8AAF04D78E03C9052A9D07369B46A35547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Reanimation Inc. Скорая Помощь - surgeon simulator , играй в �
 ```bash
 magnet:?xt=urn:btih:220AF9A95EB0FAF431D8A5A27F47AF8025ABC2D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Food.ru — это пошаговые рецепты и мобильное пр�
 magnet:?xt=urn:btih:296301B55E5F01DC58D480B6AE46C8AA8DB24B57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:296301B55E5F01DC58D480B6AE46C8AA8DB24B57
 ```bash
 magnet:?xt=urn:btih:776C38D141F7DD60F23F8175EE6349F79A9F12B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ WireGuard – современный и не требовательный к р�
 magnet:?xt=urn:btih:76F3B137F0B8FB77949F8D4C9DC4EB35B6E67599
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Proton VPN — это единственное в мире бесплатное 
 ```bash
 magnet:?xt=urn:btih:73EB4566F9E0FE5A0AEFB28C36931B5DBD7C973E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:73EB4566F9E0FE5A0AEFB28C36931B5DBD7C973E
 magnet:?xt=urn:btih:D92CE298914C0B3DBABD43E64FBD40F28B3F1B24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ ARuler - лучшее и бесплатное приложение на Android 
 ```bash
 magnet:?xt=urn:btih:CBE8345D00C1FA25792D30ABC20A8C53833CA8DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Smart AudioBook Player Pro v11.4.7 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:CA41EEE587E0C8DE459DBEFBF73FB4CF853B54D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:CA41EEE587E0C8DE459DBEFBF73FB4CF853B54D1
 ```bash
 magnet:?xt=urn:btih:FD4DDECFE6370AD6959F6DBFBF978FD9348E2DCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Offline Translator - это автономный переводчик
 magnet:?xt=urn:btih:9A30FE0C8995822E19A9662CE44EC2EDBC453214
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ ToonApp карикатура фоторедактор лучшее прилож�
 ```bash
 magnet:?xt=urn:btih:841CB59E0B50037996D43ABF9BC9DD5943362700
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ ProShot v8.31.5 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:75CC6C0A28B9E9D8C5034E9AA4A3FA616B515D3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ CalcKit это простая и мощная коллекция калькул�
 ```bash
 magnet:?xt=urn:btih:80F275D06BB90E27C011CD8ACB9BDDC7D4C6C7D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Daff Moon Phase (Фазы Луны) v3.48 Mod by shv7net [Ru/En]
 magnet:?xt=urn:btih:6A6938198C8FD052B8A24B6B5DC5234634688AF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ MP3 Cutter and Ringtone Maker / Обрезка музыки, редактор м
 ```bash
 magnet:?xt=urn:btih:5E9E32FEC2398D7EFDA6C58EA0ABDEDD3B5380EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Pencil Photo Sketch - профессиональное приложение дл
 magnet:?xt=urn:btih:3E999785A42FC587EC60A379AA82015BDCA7BC1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ English Galaxy - уникальное приложение для тех, кто
 magnet:?xt=urn:btih:395FE8BE625B5A69AB2EAA6A964667E3955CBB6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Rock Identifier - Stone ID v2.3.55 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D9D58768480ADEC5F2F1842B4C537BFCFBCE9976
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:D9D58768480ADEC5F2F1842B4C537BFCFBCE9976
 magnet:?xt=urn:btih:14D457151FF795C8BBFD8921166985FA8CF9DE36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:14D457151FF795C8BBFD8921166985FA8CF9DE36
 magnet:?xt=urn:btih:BE96CE3679EEA4B60FAB6886F7792DF3A83A6B2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ AR Plan 3D – инновационное приложение, использу
 magnet:?xt=urn:btih:AA24455DDEC1CDB6C97B036978630503013F19F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Garmin: City Navigator North America NT 2026.10 [En]
 ```bash
 magnet:?xt=urn:btih:DA5FFEFF5FEFA908EEAFB69D2FF689A6D13C1D66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

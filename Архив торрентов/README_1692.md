@@ -19,6 +19,8 @@ Etcher – простое и надежное приложение для зап
 magnet:?xt=urn:btih:F788824DDDB225D6D34D0DC798AB07EECD054459
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Boilsoft Video Joiner -  простой и удобный в использов�
 ```bash
 magnet:?xt=urn:btih:F720AD04B22DF160835AB9E33B4FE753B6494A9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Free Hex Editor Neo - бесплатный Редактор Шестнадцат
 magnet:?xt=urn:btih:22165F965AFD40D0D93D8FA7293A8B61A2E90499
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Marked 2 — универсальный превью-инструмент для
 magnet:?xt=urn:btih:2A2DE9772F3D920F73A289FE0D77D2110402AC78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Smart Defrag - дефрагментатор, позволяющий довест
 ```bash
 magnet:?xt=urn:btih:620915EEB4A250329C6C0E32576A9B936F0EC186
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ AOMEI Backupper – программа для создания резервно�
 magnet:?xt=urn:btih:A23419DA02B42060B3EDCF3C426F31F997BC381B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ djay Pro обеспечивает полный инструментарий дл
 ```bash
 magnet:?xt=urn:btih:F3B34858E936DEE349901170AB76E43836A1A98B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Autorun Organizer - простое в использовании приложе�
 magnet:?xt=urn:btih:327CC2918EF0B61CAD71E0164B8B7D462FECB093
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ CloudMounter - это централизованный сервис, котор�
 ```bash
 magnet:?xt=urn:btih:886EA412F85621D7810A7717316B0E0C12D3186C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:B937C8D29501C699AA22239F07F8640CA334CC9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:343C5E2881A5C0BB44736A6E85A31095F3C71E58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Total Commander является самым мощным и стабильным
 magnet:?xt=urn:btih:C76B5A442FBA6DFE37AE2CF939738C5031B23348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Mivo - лучший инструмент для создания музыкал�
 ```bash
 magnet:?xt=urn:btih:ADD1AFF52E8B4A76336D1C8C2940E65EB75D21AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Multitrack Editor: Beat Mixer 1.0.3 [Multi]
 magnet:?xt=urn:btih:73E1637271EF101CDFCA4961EF2FCC19FC7196C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:D276445DEA6B89A4ADC5A29B6C034EAA4F71CF4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Opera 99.0.4788.31 Portable by Cento8 [Ru/En]
 magnet:?xt=urn:btih:13C48306B5F4D4E055CD2E957987A872FB535BFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 ```bash
 magnet:?xt=urn:btih:2017EC4E0DDA04AA5CC7922685894575212CC0F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ PDF-XChange Editor — программа для просмотра, редак�
 magnet:?xt=urn:btih:FC72918C5705EC1D825385AECE724944C876A0BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:910D7F1BF8D212DBDCBFB38D5B474B74381A4401
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ Artstudio Pro 5.1.14 [En]
 magnet:?xt=urn:btih:79009666BD4B6B88FDC07AB80AFB9D12F4991566
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:79009666BD4B6B88FDC07AB80AFB9D12F4991566
 ```bash
 magnet:?xt=urn:btih:63DBA585B7780FEAA996312CC0B27749F2EAF4E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ iStat Menus 6 — лучшее приложение для контроля ра
 magnet:?xt=urn:btih:5A117B22F67C6E1CD5BEB205459BF2B53298AA04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 ```bash
 magnet:?xt=urn:btih:ABC4649C7DE2FC759EA61FBEE11F8C49DB1FAC86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Find Any File не содержит никаких подменю с настр�
 magnet:?xt=urn:btih:609B2188D718F622D4AB0D5201975FA12262A66A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:679ABADAE76165D11E77364050D2F1F75933C649
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +675,8 @@ Athentech Perfectly Clear Video for Mac 4.5.0 [En]
 ```bash
 magnet:?xt=urn:btih:DF37259951D9AE8C14290FE3453B63C920E3D98D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

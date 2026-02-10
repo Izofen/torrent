@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5C0BB8ADDDFF565C48392C06193035C674ED93E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:20B78D554D560451DF0026EA39F33122562B275A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Floorp Browser – это модифицированная версия Firefox,
 magnet:?xt=urn:btih:00C4F3999DAB08047FF9A2D4CF79EB5624865DA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:00C4F3999DAB08047FF9A2D4CF79EB5624865DA9
 ```bash
 magnet:?xt=urn:btih:1B1A087C32DB3352F9C870A7D07055A52A6DB26A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ iSpy - программа, которая с помощью микрофона �
 magnet:?xt=urn:btih:6AF47057D88825F56BD5EB61A1B001C893DD0CE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ AeroAdmin программа удаленного доступа, работаю
 ```bash
 magnet:?xt=urn:btih:2E401B688D55FDFF4DCFA4A6A2325B225DBAA797
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Google Earth Pro 7.3.6.9345 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:FE619F2A38397A750FB8A5D857AF423B3DE5DB7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:ACE7A26F98664F899494950709E7531F15FAAAFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ MAX Desktop 25.14.1 [Ru]
 magnet:?xt=urn:btih:023B4028FA57C402F308F1D340F22B81B38128EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:4BF6521A7BA764333277C8370BAD3B361791A03C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ WirelessConnectionInfo (Portable) — утилита, которая Отобр�
 magnet:?xt=urn:btih:2EFC097C96D2B638EDDADB92553EBC35119F6F02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ cFosSpeed - это сетевой драйвер, который привязы�
 magnet:?xt=urn:btih:E673AD50D23D656705AF0918691084FA34666131
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ MJ Prompt 0.3.0.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:276D07EB6E77F480E9107F8650B1D85BAB021F58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Distant Desktop - портативная утилита, которая позв
 magnet:?xt=urn:btih:6302D4684C55BF324144F26E024B67537ACC379D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ DVDFab StreamFab - это наиболее полное решение для с
 ```bash
 magnet:?xt=urn:btih:73A5614CDA4E4DB6E64F4B1B86E32D9E2F31A742
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ AntispamSniper — это плагин к The Bat! и Voyager, обеспечи�
 magnet:?xt=urn:btih:F31DF7FAE7A4B3FC3CD12ED71AACDC3A7F114A44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:E933D27B55CC445E659964373B44D1F44D6E705E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Tor Browser 15.0 Portable [Multi/Ru]
 magnet:?xt=urn:btih:6215CC6EB855A3442BE9627AD8143AE6FF70A51E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:E56E035F5B9E3A3DFB838C9ECE8F41C2DD164CD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ iTubeGo YouTube Downloader 10.9.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:552847D1E3A0A91EC1F1BA007071B9D30B55AE8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Opera One 123.0.5669.23 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1522E45CBCD19EDB2DD138F86AA3CD35BBFA6EB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:1522E45CBCD19EDB2DD138F86AA3CD35BBFA6EB9
 magnet:?xt=urn:btih:34F7A3160E41C288E83E0FA2825AAC04DF816AA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Zapret-discord-youtube by Flowseal (сборка на базе Zapret) 1.9.0 (29
 ```bash
 magnet:?xt=urn:btih:3E2AD342FA2256D7A09B63BCB8A8AF9FDC980DD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ MyLanViewer — программа для сканирования и монит
 magnet:?xt=urn:btih:60484BDE2CBBA63E0C1F414ABC9A6B1FC1610E6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Google Chrome TOR - веб-браузер с открытым исходным �
 magnet:?xt=urn:btih:C920E382DC3C3F9F7ADE92085EF363CD417713C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ HTTPNetworkSniffer 1.51 Portable + Driver [Ru/En]
 ```bash
 magnet:?xt=urn:btih:1AF0CF6F56CB3A3FD61D45B7E439580D06C0FA85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

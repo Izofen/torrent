@@ -19,6 +19,8 @@ Sabayon 15.07 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 5xDVD
 magnet:?xt=urn:btih:1F45F21A8280145FEC5D8D51A46E63333E670294
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Komodo Edit унаследовал много свойств от коммерч
 magnet:?xt=urn:btih:C5864F42E1681260FD36E5C5F2EABF4CA717E0CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ PDF Studio — мощное приложение для работы с PDF. П�
 ```bash
 magnet:?xt=urn:btih:90FBC5A046F3899EC63DBADAFC2499007ECE8460
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:90FBC5A046F3899EC63DBADAFC2499007ECE8460
 magnet:?xt=urn:btih:4195C48B7F7761AE7368612282131E857BABE03C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Debian GNU/Linux 9.9.0 + nonfree 9.9 [amd64] 2xDLBD
 magnet:?xt=urn:btih:816D822A0CBD9E7A56C97FAEE774CB6758F2D8CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Parrot Security OS  операционная система для специа�
 magnet:?xt=urn:btih:E7ED456C3F74BBD7FDC86962495D489F959291AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ OpenMandriva Lx 2014.2 [i586, x86-64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:1582D02BC92076C1F606933CAD8C2B3C6199112F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Debian GNU/Linux 9.8.0 + nonfree Stretch [i386] 4xDVD
 ```bash
 magnet:?xt=urn:btih:028DAD42ED9BF4ACEC5764C38D071070F3E2D084
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Proxmox Virtual Environment (Proxmox VE) — система виртуализа
 magnet:?xt=urn:btih:556EABFE7E46D8B3ED21C9C2D4CC1F28B44F8ABE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ Ctlos Linux Openbox/i3 v2.1 — iso образ, основанный на Arch L
 magnet:?xt=urn:btih:ED4612324B909D0B589EB8FB6D2514936F4D240A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ Linux Mint — дистрибутив операционной системы Li
 magnet:?xt=urn:btih:0FA6A909E556051920E4C6FD4A5B296B8D623246
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ PCLinuxOS - один из самых популярных на Западе ва
 ```bash
 magnet:?xt=urn:btih:24083F4DAD26D0E158FA073BFF77708FCB892A8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ Firefox и Thunderbird возвращаются в Debian с выпуском St
 magnet:?xt=urn:btih:FBD1538FAC8C87A91529DEF63DF1FEB4A7670E18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ Maplesoft Maple 2017.1a Build 1238644 [x64] (run)
 magnet:?xt=urn:btih:357CDD9D9A67453A98EA06DAC098E79B8A53EE14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ Sabayon 17.07 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 ```bash
 magnet:?xt=urn:btih:CCEE567DE968E1F0530A4C874C9417E7F9237E8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ Solus — независимый Linux дистрибутив, использу�
 magnet:?xt=urn:btih:683995380AC57A54F3960247FAAFB3CF7E851358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ OpenVMS (англ. Open Virtual Memory System, или просто VMS) — пр
 ```bash
 magnet:?xt=urn:btih:72B174624A4DBD417631436B36559F8311B8CCBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ Mageia 5 Cauldron Live [i586, x86-64] 4xDVD, 2xCD
 magnet:?xt=urn:btih:E1367AA770F31AE215398FC1BA563437C0CACFCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ Mageia 5 Cauldron [x86-64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:872DC0B47F1DD854EB2BDA2F9E3BE8F102553F71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ Mageia 5 Cauldron [i586] 1xDVD
 magnet:?xt=urn:btih:21DEE83BCFB324BE4B11BB90D803747A876B57EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ OpenVPN Access Server (OpenVPN-AS) это набор инструментов д
 ```bash
 magnet:?xt=urn:btih:7E2B00F2A2710A0D5D7243C3D70340585B66B833
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ BricsCAD – единственная в мире САПР, которая ис�
 magnet:?xt=urn:btih:01AF0F6A306D47318AD82073DFD3E8FFA4EE72AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ Sabayon 17.06 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 ```bash
 magnet:?xt=urn:btih:AB8EC769781DD786E31D823E08986A10B59394BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ Ubuntu — это разрабатываемая Canonical, основанная
 magnet:?xt=urn:btih:A20131BC824CA58421917EF3F4028EA4435F25BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ Parted Magic — готовое решение для работы с разде
 ```bash
 magnet:?xt=urn:btih:FEF0A01AA12D559FC8953DCD02B2368BE620DF20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +686,8 @@ Autodesk Maya предлагает специалистам набор функ�
 ```bash
 magnet:?xt=urn:btih:9136A42E1FEA28FDCA93564F9AF57B5EEAC14B14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

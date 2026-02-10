@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5C9BC518DCC3930A7B87D0CCA084CD0072AEC9A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:5C9BC518DCC3930A7B87D0CCA084CD0072AEC9A5
 magnet:?xt=urn:btih:90F4E050A1E131159A67D9E97B94F6A4F3D51F3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:90F4E050A1E131159A67D9E97B94F6A4F3D51F3A
 ```bash
 magnet:?xt=urn:btih:16784CFA45937712969253087E70213070453F2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:16784CFA45937712969253087E70213070453F2E
 magnet:?xt=urn:btih:D0B166D600ED9B6DF8450520FF7BFD9A1A2F14A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Flyme OS Update Checker (FUC) v0.4.2 Portable [En]
 magnet:?xt=urn:btih:D831C7F43A055FD12821136DF19388C6657E5F6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Mazetools Soniface 2.51 [En]
 ```bash
 magnet:?xt=urn:btih:2E258315281F3439DB093A3198E7975CAC8AE648
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Math Wiki предоставляет многочисленные упражне
 magnet:?xt=urn:btih:129C3BD0C2CD6400DB2F1480EA423D619EA48F68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ AndFTP — полноценный FTP/SFTP/FTPS клиент для Android с �
 ```bash
 magnet:?xt=urn:btih:2B838C18D4667BC166171CD2D0F99849FB45D197
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Frequency generator / Генератор частоты 4.0 [Ru/En]
 magnet:?xt=urn:btih:63FF70AA8C2B80881E71638B221FBE1F5DA87715
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Bliss - Icon Pack - Отличное приложение, которое сод
 ```bash
 magnet:?xt=urn:btih:C4C1CF188FB62CF11C7ABCD273DD338CF319D723
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Personal Vault - Удобный менеджер паролей предоста
 magnet:?xt=urn:btih:051691FF1E877B2DEACFE3339B0478415CC8B673
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ UFO VPN 2.3.10 [En]
 ```bash
 magnet:?xt=urn:btih:568B4FC21CC2E8D8A63E00C1A81376C80321F67E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:568B4FC21CC2E8D8A63E00C1A81376C80321F67E
 magnet:?xt=urn:btih:901E9EF96DF9356601DF3809C54F97B262534F0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Analog Clock Constructor-7 v4.44 [Ru/Multi] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:444476B14A005C725F96800E026B3C7A8C2ED889
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ PingTools это набор полезных сетевых утилит. Инт
 magnet:?xt=urn:btih:C6B0C4A7692201A8C1C2172B08D565F832A743E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:C6B0C4A7692201A8C1C2172B08D565F832A743E6
 ```bash
 magnet:?xt=urn:btih:2682FAF192A40F47F7459C7FC627E5BEF6DF9F92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Yi Pro - Yi Action Camera 3.3.7 [Ru/En]
 magnet:?xt=urn:btih:33B998086D3752DC97BB11551E453D1F44715593
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Angry Birds Fight! 2.4.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:3081B23E64AC36622CEFFEC0A00485C41EC98630
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Android 12 Clock Widgets v7.2 [Ru/Multi]
 magnet:?xt=urn:btih:E97147FDE81EBD5CCF4A14A40E22610CC26B3771
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:E97147FDE81EBD5CCF4A14A40E22610CC26B3771
 ```bash
 magnet:?xt=urn:btih:F4AFEC8541925C9F5328006ABD77AA1BA7CED84C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:F4AFEC8541925C9F5328006ABD77AA1BA7CED84C
 magnet:?xt=urn:btih:9AF2E0E7CE4BEF53E8F44612F9581A73F9D14E62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ TTDictionary Русский – бесплатный офлайн Толковы
 ```bash
 magnet:?xt=urn:btih:FC5FCE076BBDB5B9D77448A32C6D241C00C1E78A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ TouchRetouch это приложение для качественного и б
 magnet:?xt=urn:btih:80603D8607DE77758C129F4929499C2827CEFF9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ Garmin: City Navigator Middle East and North Africa NT 2022.10 [En]
 ```bash
 magnet:?xt=urn:btih:AD9D5E3B440E34BE7C1DBA88482B835E2AD195B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ magnet:?xt=urn:btih:AD9D5E3B440E34BE7C1DBA88482B835E2AD195B0
 magnet:?xt=urn:btih:5844FAB12308933C1CD8ECC55A4005718DC60E02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:5844FAB12308933C1CD8ECC55A4005718DC60E02
 ```bash
 magnet:?xt=urn:btih:1B6175266E75FBFD0366EC6BF5A81D8D8491E79D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

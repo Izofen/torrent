@@ -1,3 +1,30 @@
+###  Публикация: 1848288   (1052798) от 16.01.2026
+
+Жан-Луи Монсе, Ален Перно, Джонни Ривз | Большая книга Формулы-1. 80 лет шума и ярости (2024) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052798.jpg" />
+</div>
+
+
+###  Подробнее
+
+От Хуана Мануэля Фанхио до Льюиса Хэмилтона и Макса Ферстаппена, вы встретите здесь всех легендарных гонщиков, прислушаетесь к звуку двигателей и переживёте гениальные обгоны, роковые вылеты с трассы и внезапные повороты сюжета.
+Кроме того, вы встретитесь с людьми, находящимися в тени, которые воплощают в жизнь мечту о «Формуле-1»: директорами команд и механиками, (   Читать дальше...   )Жанр: Биография, автогонки, историяИздательство: БомбораФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55A0955B240BFA2718FC9D415E25039D44F6BBC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848292   (1052799) от 16.01.2026
 
 А.А. Аузан | Культурные коды экономики Как ценности влияют на конкуренцию, демократию и благосостояние народа (2022) [FB2]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:1E860A38D5DA2C86518526A2C6029F479AB19D62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +75,8 @@ magnet:?xt=urn:btih:1E860A38D5DA2C86518526A2C6029F479AB19D62
 magnet:?xt=urn:btih:2E421D3ADB86EBE078CEC91005E048671BCF2E7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +100,8 @@ magnet:?xt=urn:btih:2E421D3ADB86EBE078CEC91005E048671BCF2E7F
 ```bash
 magnet:?xt=urn:btih:67E25540E161450F8D7DBD13957B86B525FDA109
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +129,8 @@ magnet:?xt=urn:btih:67E25540E161450F8D7DBD13957B86B525FDA109
 magnet:?xt=urn:btih:308DD96738E6961D5C8A54E3EABC42E1742644FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +154,8 @@ magnet:?xt=urn:btih:308DD96738E6961D5C8A54E3EABC42E1742644FF
 ```bash
 magnet:?xt=urn:btih:2E1BA1602E0BE9E425FCA1493C27467CF2EB6B06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +181,8 @@ magnet:?xt=urn:btih:2E1BA1602E0BE9E425FCA1493C27467CF2EB6B06
 magnet:?xt=urn:btih:07CC319FAE02E3B174BCA65A406FDF85EC84362B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +206,8 @@ magnet:?xt=urn:btih:07CC319FAE02E3B174BCA65A406FDF85EC84362B
 ```bash
 magnet:?xt=urn:btih:527CDFBF9701E3D08639747D130F884774FDF0DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +235,8 @@ magnet:?xt=urn:btih:527CDFBF9701E3D08639747D130F884774FDF0DF
 magnet:?xt=urn:btih:C8E42032B077DCD9AF19529B7C3B270F027C60EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +261,8 @@ magnet:?xt=urn:btih:C8E42032B077DCD9AF19529B7C3B270F027C60EB
 magnet:?xt=urn:btih:3DFDDB236983D347303EAB356CCB8E0056D2FF03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +286,8 @@ magnet:?xt=urn:btih:3DFDDB236983D347303EAB356CCB8E0056D2FF03
 ```bash
 magnet:?xt=urn:btih:A1889F7083B170E280D4BED578BD7BFB70CE2684
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +314,8 @@ magnet:?xt=urn:btih:A1889F7083B170E280D4BED578BD7BFB70CE2684
 ```bash
 magnet:?xt=urn:btih:F6F3BE2D3B6537D8AA0AC982131454A00E53F569
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +344,8 @@ How can you thrive in tomorrow’s workplace? Experts predict that within the ne
 magnet:?xt=urn:btih:6135C9097E736DD62905FDB006DDF78EE5804420
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +371,8 @@ magnet:?xt=urn:btih:6135C9097E736DD62905FDB006DDF78EE5804420
 ```bash
 magnet:?xt=urn:btih:07714437B5F78425B8732AC5EF072BEC4F3E7B07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +400,8 @@ In this contemporary sales bible, serial entrepreneur and master sales expert Ga
 magnet:?xt=urn:btih:2D504C7D62914D2A63FB71213813BDED20BED9E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +426,8 @@ Price is the most significant factor affecting the profitability of every busine
 magnet:?xt=urn:btih:ECE0A7805718CAA87A23156AEE865721E10D43D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +451,8 @@ magnet:?xt=urn:btih:ECE0A7805718CAA87A23156AEE865721E10D43D7
 ```bash
 magnet:?xt=urn:btih:21A3E303DE3BE560992F7B31279640FE00274180
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +480,8 @@ magnet:?xt=urn:btih:21A3E303DE3BE560992F7B31279640FE00274180
 magnet:?xt=urn:btih:AF11123D196507789AF7AF5231D4F326CB74706C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +505,8 @@ magnet:?xt=urn:btih:AF11123D196507789AF7AF5231D4F326CB74706C
 ```bash
 magnet:?xt=urn:btih:7BE0AEFED05CE9BCDF213CB638D946AF6EC90202
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +534,8 @@ magnet:?xt=urn:btih:7BE0AEFED05CE9BCDF213CB638D946AF6EC90202
 magnet:?xt=urn:btih:DA10748292B8824636367D2D43183F96B167C190
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +560,8 @@ magnet:?xt=urn:btih:DA10748292B8824636367D2D43183F96B167C190
 magnet:?xt=urn:btih:A896A22FFF10ED147BB09ACBA096F6BFCBC98E7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +585,8 @@ magnet:?xt=urn:btih:A896A22FFF10ED147BB09ACBA096F6BFCBC98E7F
 ```bash
 magnet:?xt=urn:btih:8598492C18C6C16E3CAB592F8AC11CDF8E2C3C6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +613,8 @@ magnet:?xt=urn:btih:8598492C18C6C16E3CAB592F8AC11CDF8E2C3C6D
 magnet:?xt=urn:btih:C98C2A154493EBBADB63AED47C1B0F1D4CF8BB9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +638,8 @@ magnet:?xt=urn:btih:C98C2A154493EBBADB63AED47C1B0F1D4CF8BB9E
 ```bash
 magnet:?xt=urn:btih:DC412F1E8E15F9531842A1147647D251A29F897B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +666,8 @@ magnet:?xt=urn:btih:DC412F1E8E15F9531842A1147647D251A29F897B
 magnet:?xt=urn:btih:E57FF582A1F6DD34D6BDD95F2AED0B9C8C886081
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,29 +692,7 @@ magnet:?xt=urn:btih:E57FF582A1F6DD34D6BDD95F2AED0B9C8C886081
 magnet:?xt=urn:btih:1CC08B7A69B91A6BD0E4DA5A972F2D2E39A056DE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850407   (1054480) от 
-
-Валентин Ковалев, Александр Ильинский | Зоны тела от «А» до «Я» (2019) [PDF]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Технология, которую мы представляем в данной книге, базируется на диагностике человека по внешнему виду и речи. Знания, положенные в основу данного метода, известны давно. Эта адаптированная для бизнеса, информация об энергетических центрах человека — чакрах. Мы их называем «Зонами тела» соединив новое название энергетического центра с местом его локализации в теле (   Читать дальше...   )Жанр: ЭзотерикаИздательство: Издательство Валентина КовалеваФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2190E9BECC1CB04D5BFC6891709CECECA46AD38E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

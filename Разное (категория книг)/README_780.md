@@ -1,3 +1,29 @@
+###  Публикация: 1453427   (1026965) от 11.03.2021
+
+Александр Богатырев | Рассказы (2012) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Богатырёв - современный русский писатель, в 2004 году на московских Рождественских чтениях ему была присуждена премия «Золотое перо». Написал рассказы о подвижниках, живущих в наше время.Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:255C3021FB84F98F3A168179EB69136EF589A60B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453239   (1027027) от 10.03.2021
 
 Владимир Моженков | Ген директора. 17 правил позитивного менеджмента по-русски (2017) [FB2, EPUB, PDF, MOBI]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:EE5FC01468121D3A8A29E1378013CCA49EC51713
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:EE5FC01468121D3A8A29E1378013CCA49EC51713
 ```bash
 magnet:?xt=urn:btih:F6F6F1BD87291179331D0A30C4B574EE2CFBE839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:F6F6F1BD87291179331D0A30C4B574EE2CFBE839
 magnet:?xt=urn:btih:6410A353B03DFCEAED53432202D582764B63D86D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:6410A353B03DFCEAED53432202D582764B63D86D
 ```bash
 magnet:?xt=urn:btih:0F1D85EEEF24788F1A503EE11DB1EB10495D16A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:0F1D85EEEF24788F1A503EE11DB1EB10495D16A1
 ```bash
 magnet:?xt=urn:btih:35677C487B6D1DBE0EAEB6043B59C47DDF340886
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +181,8 @@ magnet:?xt=urn:btih:35677C487B6D1DBE0EAEB6043B59C47DDF340886
 magnet:?xt=urn:btih:B8ED60CF9E59672C3C83D923CCEAD7A829A20580
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:B8ED60CF9E59672C3C83D923CCEAD7A829A20580
 magnet:?xt=urn:btih:B0C07102196B1313E2EDF9141EE543CFD599F8B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:B0C07102196B1313E2EDF9141EE543CFD599F8B6
 ```bash
 magnet:?xt=urn:btih:2A3233774D8CC2C67F88D38741EC66B3CD04F62F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:2A3233774D8CC2C67F88D38741EC66B3CD04F62F
 magnet:?xt=urn:btih:BB953FC71F28D36FAECFCAF6CACFE338EE7A5D69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:BB953FC71F28D36FAECFCAF6CACFE338EE7A5D69
 ```bash
 magnet:?xt=urn:btih:98324E6DCCADCD3687698B9EDFD00A15C1604BB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +315,8 @@ magnet:?xt=urn:btih:98324E6DCCADCD3687698B9EDFD00A15C1604BB7
 magnet:?xt=urn:btih:3EE289D66EF4E14B0BC8F2D65D23407E75959F5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +342,8 @@ magnet:?xt=urn:btih:3EE289D66EF4E14B0BC8F2D65D23407E75959F5D
 magnet:?xt=urn:btih:8AEC25A8B8649A188D6A0D81126EB93DB843BC84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +368,8 @@ magnet:?xt=urn:btih:8AEC25A8B8649A188D6A0D81126EB93DB843BC84
 magnet:?xt=urn:btih:0631F7744A94152A5F1D1769D3AAC8B3AEB11E72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +393,8 @@ magnet:?xt=urn:btih:0631F7744A94152A5F1D1769D3AAC8B3AEB11E72
 ```bash
 magnet:?xt=urn:btih:E3E6C307E6E1EB7027065D50EA3E590353CA2385
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +421,8 @@ magnet:?xt=urn:btih:E3E6C307E6E1EB7027065D50EA3E590353CA2385
 magnet:?xt=urn:btih:7F8427709DCEA248FB2A4B0215262012511B8B33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +447,8 @@ magnet:?xt=urn:btih:7F8427709DCEA248FB2A4B0215262012511B8B33
 ```bash
 magnet:?xt=urn:btih:D86DF8C56B4F770A1D8980AC7C1B3EA4F0F9EE4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +476,8 @@ magnet:?xt=urn:btih:D86DF8C56B4F770A1D8980AC7C1B3EA4F0F9EE4E
 magnet:?xt=urn:btih:8E2A2142860B7237AED8ACFA5D95D1890A084877
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +503,8 @@ magnet:?xt=urn:btih:8E2A2142860B7237AED8ACFA5D95D1890A084877
 magnet:?xt=urn:btih:7B7E2B0B6BCA597C8360CD54C3A002169F89C2BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +528,8 @@ magnet:?xt=urn:btih:7B7E2B0B6BCA597C8360CD54C3A002169F89C2BE
 ```bash
 magnet:?xt=urn:btih:F4EDEB7ADF365D032FF3014FE38DD9D36349788D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +557,8 @@ X. Шмидт | Самые популярные породы голубей (200
 magnet:?xt=urn:btih:ADCAFDC5BAE34E14D011595AEAF7131563747797
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +584,8 @@ magnet:?xt=urn:btih:ADCAFDC5BAE34E14D011595AEAF7131563747797
 ```bash
 magnet:?xt=urn:btih:B88BA3C1B456BACB4E8AEF9358547A97A4064141
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +613,8 @@ magnet:?xt=urn:btih:B88BA3C1B456BACB4E8AEF9358547A97A4064141
 magnet:?xt=urn:btih:E9FC2B0D256259B3D98BBE176929E1B57128E0AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +640,8 @@ magnet:?xt=urn:btih:E9FC2B0D256259B3D98BBE176929E1B57128E0AB
 ```bash
 magnet:?xt=urn:btih:D735463FC70724E80942E2F27E17EEC816E411DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +669,8 @@ magnet:?xt=urn:btih:D735463FC70724E80942E2F27E17EEC816E411DE
 magnet:?xt=urn:btih:25C5A20B864C8E324502AA3312473A5493D5189F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,29 +695,7 @@ Cергей Милов (сост.) | Таинство Покаяния (2011) [F
 magnet:?xt=urn:btih:15116E3E8E7B63150E6AC6573B7696E402519952
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 578024   (1028992) от 26.02.2021
-
-И.И. Фоглеръ | Руководство къ изученiю шашечной игры (1881) [DJVU]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028992.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге подробно описываются правила игры в русские шашки и поддавки, приведены примеры с диаграммами, а также некоторые партии с комментариями и задачи, дана краткая историческая справка. От автора: "Книжка Петрова* кратка, без диаграмм, нотация в ней цифирная, но она очень хорошо составлена. Говорится в книжке у Петрова мало, но дельно и верно. Вот и всё, (   Читать дальше...   )Жанр: Учебная литература, досуг, раритетФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C45417595C2951EF4CE5A7D1FB380A9BDF0FF10
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

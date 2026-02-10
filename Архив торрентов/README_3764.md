@@ -1,710 +1,732 @@
-###  Публикация: 1139745   (658279) от 04.06.2017
+###  Публикация: 1225951   (657943) от 18.05.2018
 
-Баскетбол. НБА 2016-2017. Восток. 1/2 Финала. 5-й матч. Бостон Селтикс – Вашингтон Уизардс (10.05.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Wise Disk Cleaner 9.7.4.691 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрая, удобная и простая в использовании утилита для очистки жестких дисков от ненужных, временных и неиспользуемых файлов. Определяет более 50 типов мусорных файлов, а также можно самостоятельно добавлять новые форматы. После сканирования системы на наличие нежелательных файлов можно просмотреть подробную информацию о каждом и самостоятельно решить, что удалять.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:874FE420D22524FB53BFAD6A4926FD16FD42A1DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225970   (657946) от 18.05.2018
+
+Хоккей. Чемпионат мира 2018. 1/4 финала. Россия – Канада (17.05.2018) WEB-DL [H.264/720p-LQ]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658279.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657946.jpg" />
 </div>
 
 
 ###  Подробнее
 
-11 мая 2017, четверг. 03:00 МСК
-НБА 2016-2017. Восточная конференция. Плей-офф.
-1/2 Финала. 5-й матч
-Бостон Селтикс – Вашингтон Уизардс(   Читать дальше...   )Телекомпания: Viasat Sport HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:40:28
+17 мая 2018 года, четверг. 17:15 МСК
+82-й Чемпионат мира по хоккею с шайбой 2018 года
+1/4 финала.
+Россия – Канада(   Читать дальше...   )Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:59:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC9103114BEB5969C29C49C71CE15DB439EB6FC6
+magnet:?xt=urn:btih:9CCCB0122EC5F6831EBBF0FAAFF1D500422AF3D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139718   (658280) от 04.06.2017
+###  Публикация: 1225936   (657950) от 18.05.2018
 
-Волейбол. Чемпионат мира среди клубов 2017. Женщины. Группа A. 2-й тур. Хисамицу Спрингс (Япония) — Динамо (Россия) (10.05.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Mozilla Firefox Quantum 60.0.1 Portable by PortableApps [Ru]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658280.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657950.jpg" />
 </div>
 
 
 ###  Подробнее
 
-10 мая 2017 года
-Чемпионат мира среди клубов 2017. Женщины. Предварительный раунд
-Группа A. 2-й тур.
-Хисамицу Спрингс (Кобе, Япония) — Динамо (Москва, Россия)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:23:36
+Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FACF2BDC2DE15450405B594DC95E51F01A5D976
+magnet:?xt=urn:btih:62FFC65416A52672449FCDAB357750FF7CBA456F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139760   (658281) от 04.06.2017
+###  Публикация: 1226010   (657954) от 18.05.2018
 
-Баскетбол. НБА 2016-2017. Восток. 1/2 Финала. 6-й матч. Вашингтон Уизардс – Бостон Селтикс (12.05.2017) IPTV [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658281.jpg" />
-</div>
-
-
-###  Подробнее
-
-13 мая 2017, суббота. 03:00 МСК
-НБА 2016-2017. Восточная конференция. Плей-офф.
-1/2 Финала. 6-й матч
-Вашингтон Уизардс – Бостон Селтикс(   Читать дальше...   )Телекомпания: Viasat Sport HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 02:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75F5E1F4EA22223AE5B2DBE1FDE040F1B6273E1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 513540   (658282) от 24.06.2012
-
-VA - Arisa Audio Goes Ibiza Vol.1 (2012) [MP3|320 кб/с]<Uplifting Trance>
+Crystal Ball - Сrуstаllizеr (2018) Limited Edition [FLAC|Lossless|image + .cue] <Melodic Power Metal, Hard Rock>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658282.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657954.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Evan London - Desire (Domenico Cascarino & Luca Lombardi Chillout Mix)
-02. Tucandeo - Blue Shores (Mango pres Shoreliners remix)
-03. Ciro Visone - Midnight (Type Ibiza Remix)
-04. Vitodito - Napoli (Sunn Jellie Remix)
-05. Total Sound - Temptation
-06. Invisible Sounds - In The Summer
-07. Vitodito - Ancient Whisper (Luiz B Remix)
-08. Sunset - Beautiful Life (Dmitry Bessonov Remix)
-09. Plathysma - Para Siempre (Invisible Sounds Remix)
-10. Ciro Visone - Immenso (Luca Lombard mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 03:19:27
+01. Crystallizer (3:56)
+ 02. Curtain Call (3:33)
+ 03. Alive For Evermore (3:47)
+ 04. S.O.S. (3:58)(   Читать дальше...   )Жанр: Melodic Power Metal, Hard RockПродолжительность: 00:51:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:07F2E5A85C89C3606669A0DD2F2C5A7A192F7969
+magnet:?xt=urn:btih:7946B111DD32BE73E205A2D99C30971DA3FBC076
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 514378   (658283) от 24.06.2012
+###  Публикация: 514787   (657962) от 24.06.2012
 
-DJ Kocmoc - Euphoria Summer Dance vol.1 (9.06.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
+VA - Goa Culture Vol. 6 (2 cd) (2012) [MP3|320 кб/с]<Psychedelic / Progressive, Full On>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658283.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657962.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Linkin Park - What I've Done (Dj Fisun Remix)
- 2. Rihanna - We Found Love Luis Erre Found The Love Klub Mix (Get-Tune.net)
- 3. Avicii - Levels (Sprtn Remix)
- 4. David Guetta - The World Is Mine (Dj Solovey Remix 2012)
- 5. Ian Carey & Rosette Feat. Timbaland & Brasco - Amnesia (Firebeatz Remix)
- 6. Erick Decks, Dj Sign & Felice - Running 2012 (Dj Sign Dirty Bass Mix)
- 7. Daniel Harrison - House Thang (Dave Kurtis Remix)
- 8. Electric Soulside - Somewhere In Nevada (Mike Balance Remix)
- 9. Michel Telo - Ai Se Eu Te Pego (Andre Rizo & Sebastian Crayn Remix)
- 10. Nikola Vujicic - She Was Made For Dancin (Muzikfabrik Remix)(   Читать дальше...   )9.06.2012Жанр: Electro House, Electro ProgressiveПродолжительность: 01:14:52
+CD1
+Продолжительность - 01:13:32
+
+ 01. Zyce & Flegma - Underwatch 7:10
+ 02. Nerso - Desert Oasis 7:24
+ 03. Lyctum - Chance to Change 8:11
+ 04. Zyce - Seconds Minutes Hours 7:52
+ 05. Middle Mode - Age of Change (Sonic Entity rmx) 8:25
+ 06. Timelock - Disconnected (Gameboy rmx) 8:18
+ 07. Man Machine - Vector 7:58(   Читать дальше...   )Жанр: Psychedelic / Progressive, Full OnПродолжительность: 02:29:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DDC6FE3866E5F126640ED9A97FEE1BB04821E1DB
+magnet:?xt=urn:btih:650FCA97F9A5AD5E2475940B70904C5FF916B0C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 514383   (658286) от 24.06.2012
+###  Публикация: 514762   (657963) от 24.06.2012
 
-DJ Kocmoc - Euphoria Summer Dance vol.3 (21.06.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658286.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dj Sergey Fisun - Aura
- 2. Chris Montana Ely Yabu - Rehab (Kutalek Biedermann Remix)
- 3. Alex Tasty - Sweet Truth (Original Mix)
- 4. Jose Uceda - Lost & Alone Song Of Valikirien Feat Lily Day (Original Remastered Mix)
- 5. Jefferson Airplane & Dj Martynoff - Somebody ( Dj Armilov & Dj S-Nike Mash Up )
- 6. Erick Decks - Daft Disco (Brown Sneakers Remix)
- 7. Alen Sforzina - Ur Funk (Original Mix)
- 8. Eddy Wata - I Like The Way (Danny Burn & Sasha Gulin Bootleg Rework)
- 9. Duffy - Well, Well, Well (Artistic Raw Bootleg)
- 10. Denny Berland & Dawn Tallman - Happiness (Club Mix)(   Читать дальше...   )21.06.2012Жанр: Electro House, Electro ProgressiveПродолжительность: 01:04:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6140A8F3674F56AA9A7429199AA44FFE2D7B2287
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514379   (658289) от 24.06.2012
-
-DJ Kocmoc - Euphoria Summer Dance vol.2 (12.06.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658289.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Daddy Yankee vs Dave Kurtis vs Luca Cassani - Everybody Gasolina (CDJ Slider Mash-Up)
- 2. Lowboys - Wind Of Change (Original Mix)
- 3. Adele - Rolling In The Deep (Emelyanov & Stitch Bootleg)
- 4. Daniel Portman & Stanley Ross - The Flow (Original Mix)
- 5. Depeche mode-Enjoy the silence (Dj Martynoff mashup)
- 6. Jennifer Lopez & A-One - Get Right (Dj Shummi Mash-Up)
- 7. Britney Vs. Maison & Dragen - Criminal De Janeiro (Elkana pAz Mash-Up)
- 8. Martin Solveig - Ready 2 Go (Tamudo's ''World'' Mash-up)
- 9. Electro Music Shop - Kinky Girl (Club Mix)
- 10. Erick Decks, DJ Sign & Felice - Running 2012 (Felice House Mix)(   Читать дальше...   )12.06.2012Жанр: Electro House, Electro ProgressiveПродолжительность: 01:00:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17B33B2A0F71FFE3DC8B91460AD2EE5B2B3EA542
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514340   (658290) от 24.06.2012
-
-VA - Зарубежные клубные новинки vol.23 (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Addict DJs feat. Ellenyi - Walk Away (Original Mix) (7:00)
-02. Alfred Rooseniit & Carl Hedstrom - Rise (Original Mix) (5:33)
-03. Andrew Bennett & Strobe - Magnolia (Original Mix) (7:07)
-04. ATB feat. Ramona Nerra - Never Give Up (Club Mix) (6:44)
-05. Audien Ft. Ruby Prophet - These Are The Days (Original Mix) (6:30)
-06. Brown Sugar - Let The Bass Kick (Original Mix) (6:36)
-07. Carita La Nina & Mark Simmons - That Melody (Original Mix) (6:22)
-08. Chuckie & Promise Land feat. Amanda Wilson - Breaking Up (Original Club Mix) (6:18)
-09. Cutee B feat. Jarell Perry - Fantasy (Bob Sinclar Remix) (6:19)
-10. Dimitri Vangelis & Wyman - Russia (Original Mix) (6:26)2012Жанр: Club, DanceПродолжительность: 04:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FACD14430E18F40A108619B8900D3F29FDD3A6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514514   (658292) от 24.06.2012
-
-Байя / Baja (1995) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658292.jpg" />
-</div>
-
-
-###  Подробнее
-
-После сделки с наркодельцами запахло жареным и парочка молодых людей отправляются в бега. Но в небольшом мексиканском городке Баха их настигает хладнокровный наемный убийца и начинается смертельная игра…Жанр: Триллер, Драма, КриминалРежиссер: Курт ВоссАктеры: Молли Рингуолд, Донал Лог, Крис Ширер, Нельсон Лион, Майкл Никлз, Корбин Бернсен, Вейн Дюваль, Карен С. Греган, Лэнс ХенриксенПеревод: Профессиональный (двуголосый, закадровый)Продолжительность: 01:28:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C00284007CB7183CF4D4CE6B8A29FFA63DEE94F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514589   (658295) от 24.06.2012
-
-VA - Trance Desire Volume 21 (2012) (2012) [MP3|320 кб/с]<Vocal Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658295.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Andrew Rayel - 550 Senta (Aether Mix)
-002. Andy Woldman vs. Nicole Ambresi & DJ Leo D feat. Kuku Sky - Always (Shane Cross Remix)
-003. Pedro Del Mar & illitheas - Bahia Del Sol (Illitheas Mix)
-004. Ana Criado - Can't Hold Back The Rain (Stuart Trainer Remix)
-005. Lost Witness vs. Antillas & Dankann feat. Sarah Jane Neild - Chasing Rainbows (Antillas & Dankann Dark Mix)
-006. tyDi feat. Protoculture & Meighan Nealon - Criminal (Album Mix)
-007. ATB feat. Melissa Loretta - If It's Love (Jeziel Quintela, Jquintel & Manufactured Superstars Remix)
-008. Coldplay feat. Raphael Pujol - Paradise (Mike Foyle & X-Vertigo Vocal Mix)
-009. Goldenscan - Sunrise 2011 (Original Mix)
-010. Full Tilt feat. Deirdre McLaughlin - Surrender (Original Mix)2012Жанр: Vocal TranceПродолжительность: 01:08:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C05334E38E03AEB7697F0DEA40C3C5177B3A5329
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514190   (658296) от 24.06.2012
-
-Veronica Falls - Veronica Falls (2011) [MP3|279-310 кб/с]<Indie, Indie Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Found Love In A Graveyard
-02. Right Side Of My Brain
-03. The Fountain
-04. Misery
-05. Bad Feeling
-06. Stephen
-07. Beachy Head
-08. All Eyes On You
-09. The Box
-10. Wedding Day(   Читать дальше...   )Жанр: Indie, Indie PopПродолжительность: 00:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D897E9C5D8967EE9066AEA4356CDA510D1FDE93C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514565   (658298) от 24.06.2012
-
-Газета | Готовим вкусно № 2 [2012] [DJVU]
+Юлий Даниэль | Говорит Москва [2010] [MP3]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658298.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657963.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Готовим вкусно" - газета для тех, кто любит вкусно приготовить, вкусно поесть, вкусно угостить друзей. Красочное издание для радушных хозяек. В нем рассказывается, как принимать гостей и сервировать стол. В каждом номере кулинарные рецепты изысканных и повседневных блюд.2012Формат: DJVU
+Повесть-антиутопия Говорит Москва, рассказывающая о введении в СССР Указом Президиума Верховного Совета Дня открытых убийств, единодушном одобрении инициативы со стороны трудящихся масс и непросто дающемся отдельным гражданам неприятии чудовищного праздника.Жанр: Фантастика, антиутопия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E2084E168FD1A7E7ED220D26FBC0D3A74CAF2D8
+magnet:?xt=urn:btih:F9CE35332F57E4AD2DAA5CDF80E27C235395E42F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 514584   (658299) от 24.06.2012
+###  Публикация: 513486   (657967) от 24.06.2012
 
-VA - TMP: Clear Sky 077 (2012) (2012) [MP3|320 кб/с]<Trance, Vocal Trance>
+Gustaf Hildebrand (+ Lithium & Lacus Somniorum) - 6 albums (2003-2012) [FLAC|Lossless] <Dark Ambient, Drone, Noise, Industrial, Experimental>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658299.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_657967.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Sean Bay - At The End Of The World (Sean Bay Remix)
-002. Steve Brian & Cressida - Cambodia (Original Mix)
-003. Scott Lowe & Duncan Brewer feat. Dan Winter - City Lights (Original Mix)
-004. Soulforge - Ferris Wheel (Original Mix)
-005. Rene Ablaze feat. Synthesia - Inner Touch (Verum Remix)
-006. Rene Martens - Point of No Return
-007. Solarstone - Ultraviolet (Tucandeo Dream Mix)
-008. Ronny K. - Unstoppable (Original Mix)
-009. Richard Durand feat. Progressive Brothers - Veda (Richard Durand vs. the World Collab Mix)
-010. Running Man - Your Rules (Original Mix)2012Жанр: Trance, Vocal TranceПродолжительность: 01:18:36
+01. Cataclysmic Variable (06:26)
+02. Array (05:04)
+03. Nomadic Singularity (06:04)
+04. Heterodyne (05:40)
+05. Manifold (05:06)
+06. Decaying Orbit (05:39)
+07. Nucleus (05:42)
+08. Accretion (06:17)
+09. Vacuum Geometry (06:04)2003-2012Жанр: Dark Ambient, Drone, Noise, Industrial, ExperimentalПродолжительность: 00:52:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:96960CE151F2C6FBB3A85223523B664CD2B17CD2
+нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 341547   (658364) от 28.05.2011
+###  Публикация: 514817   (657972) от 24.06.2012
 
-Pedro Del Mar - Mellomania Deluxe 488 (23-05-2011) [MP3|256 kbps]<Trance>
+Видео-приложение к журналу "Рыбачьте с нами". Выпуск № 35. Июль 2012 (2012) DVDRip
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658364.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657972.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PEDRO DEL MAR IN THE MIX:
-
-01. the 808s - lights out (nick galea remix)Жанр: TranceПродолжительность: 02:01:41
+Очередной выпуск видео-приложения к журналу "Рыбачьте с нами" за Июль 2012 года.
+1. Россия - Чемпион (Польша, май 2012 г.) 2. Ловля фидером с приманкой на волосяной оснастке. 3. Понемногу обо всем. 4. Рыбалка на Кольском-3.5. На горных реках Кавказа. 6. Рыбалка без границ-3 (реки Монголии, таймень, хариус, ленок). 7. Рыболовный магазин на диванеЖанр: Документальный, Видовой, СпортПеревод: Не требуетсяПродолжительность: 01:38:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1DE636F09C6623648F7A7D1DDA0CC81D40A18125
+magnet:?xt=urn:btih:2B3EAC10239B0124B89ED9F88ED3E19A1272AF18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 903216   (658388) от 30.05.2015
+###  Публикация: 514871   (657975) от 24.06.2012
 
-Microsoft Windows 10 Enterprise / Pro / Home Insider Preview 10.0.10130 (esd) [En] + Language Pack [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая версия популярной операционной системы от компании Microsoft получила название Windows 10, хотя предыдущий крупный релиз шел под названием Windows 8. Переход сразу к Windows 10 отражает желание компании дистанцироваться от не очень популярной предыдущей версии. Имено поэтому, как сообщается, была пропущена девятая версия: переход от восьмой сразу к десятой (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1008BB7D279AE6A3D1F826A19C97B84C3F61DC26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903124   (658389) от 30.05.2015
-
-Microsoft Windows 10 Pro / Home Insider Preview 10.0.10130 (esd) [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая версия популярной операционной системы от компании Microsoft получила название Windows 10, хотя предыдущий крупный релиз шел под названием Windows 8. Переход сразу к Windows 10 отражает желание компании дистанцироваться от не очень популярной предыдущей версии. Имено поэтому, как сообщается, была пропущена девятая версия: переход от восьмой сразу к десятой (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38A21D7CE334401BB62026E6C0FE993EDB984207
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 862058   (658390) от 30.05.2015
-
-Audio Hijack 3.1.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audio Hijack 3 - инструмент для записи звука с любых аудиоисточников от компании Rogue Amoeba. Доступное для компьютеров с операционной системой OS X приложение позволяет записывать разговоры в Skype и FaceTime, оцифровывать аналоговые магнитные записи и пластинки, вести запись музыки из iTunes и Safari.
-
-Audio Hijack имеет блочный интерфейс, набор шаблонов для настройки (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29 мая 2015Разработчик: Rogue Amoeba Software, Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F78272A0B8C1988653A4083FC164C49BB6E25F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903157   (658399) от 30.05.2015
-
-Red Giant Magic Bullet Suite 12.0.4 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Magic Bullet Suite 12 - Пакет плагинов, состоящий из семи мощных инструментов финальной редакторской обработки, используемых для профессиональной цветокоррекции, освещения, улучшения и производства фильмов в After Effects, Premiere Pro, Avid и Sony Vegas Pro. В пакет включены следующие плагины: Magic Bullet Looks 3, Magic Bullet Colorista III, Magic Bullet Film, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C65B76BEF64E74B6F60A0AA47A43BC945778B78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 715572   (658416) от 30.05.2015
-
-Lars Leonhard - Discography 23 Releases (2010-2015) [MP3|320 кб/с]<Dub Techno, Progressive House, Deep House, Techno, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burning Clouds (05:38)
- 02. Halos (05:43)
- 03. Northern Lights (07:03)Жанр: Dub Techno, Progressive House, Deep House, Techno, Ambient |Продолжительность: 00:18:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24777C2BD17B41BA63164AF82BA0C1A8B31F64C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903043   (658427) от 30.05.2015
-
-Грешник (2014) SATRip (серии 1-2 из 2)
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда Владу было 5 лет, его мать убили, и в ее смерти всю последующие годы он винит отца. На 20-ую годовщину трагедии юноша решает расставить точки над «i» и собрать всех родственников. В процессе поиска и встреч с ними Влад выясняет факты, которые меняют все…Производство: Россия, Марс МедиаЖанр: драмаРежиссер: Дмитрий КонстантиновАктеры: Андрей Смоляков, Евгений Антропов, Любовь Новикова (II), Дмитрий Куличков, Дарья Урсуляк, Дмитрий Мухамадеев, Мария Болонкина, Владимир Капустин, Владимир Виноградов, Иван Дремач, Александр Городиский и др.Язык субтитров: ивритПродолжительность: ~ 00:47:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C3ABD428220CABF136E9731BE4807D16B6799AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903100   (658443) от 30.05.2015
-
-Гнев / Tokarev (2014) Blu-ray [H.264/1080p]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еще несколько лет назад Пол Магуаер раскаялся в былых преступлениях. Теперь он — честный бизнесмен и заботливый семьянин. Но криминальное прошлое не отпускает его. Однажды неизвестные врываются в дом Магуаера и жестоко убивают его дочь. Месть отца будет беспощадной…Производство: США, Франция, Hannibal Pictures, Marco Polo Production, Patriot Pictures, Tokarev Production, Vocal YokelsЖанр: Боевик, Триллер, КриминалРежиссер: Пако КабесасАктеры: Николас Кейдж, Рэйчел Николс, Петер Стормаре, Дэнни Гловер, Обри Пиплз, Елена Санчес, Майкл МакГрэйди, Павел Личникофф, Доун Хэмил, Макс РайанПеревод: Дублированный (Лицензия BD RUS)Субтитры: ОтсутствуютПродолжительность: 01:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C65961A71AF997DC10FFD14BAEABA870BFFD5388
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903234   (658449) от 30.05.2015
-
-PC-BSD Joule + Virtual machine 10.1.2 [x64] 1xDVD+1xOVA
-
->>Архив торрентов
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658449.jpg" />
-</div>
-
-
-###  Подробнее
-
-PC-BSD — это современная десктоп ориентированная операционная сиситема для компьютеров на архитектуре x86-64, amd64 (включая Opteron™, Athlon™64 и EM64T), ARM. Она основана на FreeBSD(версия UNIX®), созданной в Калифорнийском Университете в Беркли. Она разрабатывается и поддерживается большой командой разработчиков. Поддержка других платформ находится на разных стадиях (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F408DA44E407020B1783488A0055A5AAA0E60A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903094   (658475) от 30.05.2015
-
-Total Commander 8.51a Final MAX-Pack Extended 2015.05.30 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Файловый менеджер Total Commander с лучшими плагинами и отобранными портативными (portable) программами. Популярный файловый менеджер с практически всеми необходимыми для таких программ функциями. Кроме всех функциональностей, характерных для файловых менеджеров, в Total Commander встроены очень удобные просмотрщики для мультимедиа и графических файлов, распаковщики (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76D69E9039BD463B559AF96584D104560C6ABF76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903224   (658489) от 30.05.2015
-
-Ошибка времени / Time Lapse  (2014) BDRip [H.264/1080p] [EN / EN Sub]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трое приятелей - подающий надежды художник и по совместительству управдом Финн, его девушка официантка и писательница Кэлли и их друг Джаспер, помешанный на собачьих гонках, - находят в комнате соседа-ученого странное изобретение - машину, печатающую фотографии из будущего дня. Теперь Джаспер знает, на каких собак нужно ставить, и Финн и Кэлли могут, наконец, посвятить (   Читать дальше...   )Производство: США, Uncooperative Pictures, Veritas ProductionsЖанр: фантастика, триллерРежиссер: Брэдли КингАктеры: Даниэль Панабэйкер, Мэтью О’Лири, Джордж Финн, Джон Рис-Дэвис, Эймин Джозеф, Джейсон Спайсэк, Шэрон Мофан, Дэвид Фильоли, Джудит Дрэйк, Марк С. ХэнсонПеревод: ОтсутствуетЯзык субтитров: английскийПродолжительность: 01:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F57B6261BE07B9CBCE861C6534CC46EDB2CFC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903056   (658490) от 30.05.2015
-
-Уральские пельмени. Корпорация морсов. Часть 2 (2015.05.29) WEB-DLRip [H.264/720p-LQ]
+Рассмеши комика Россия. Сезон №1. Выпуск №8 (2012.06.24) SATRip
 
 >>Архив торрентов
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658490.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657975.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Весёлые парни в мандариновых рубашках не дадут соскучиться и подарят отличное настроение всей семье. У юмора «Уральских пельменей» нет возрастных ограничений, они избегают «шуток ниже пояса» и на их концертах пятилетние дети смеются рядом с 50-ти летними взрослыми. Новое комедийное шоу включает в себя как самостоятельные сценические истории, так и импровизации с (   Читать дальше...   )Телекомпания: СТСЖанр: ЮморПродолжительность: 01:13:25
+Новая развлекательная программа, в которой любой человек, уверенный, что обладает комическим талантом, имеет возможность заработать миллион рублей… за пять минут! Участникам программы предстоит рассмешить не кого-нибудь, а тех, кто всю жизнь шутит профессионально - Максима Галкина и Владимира Зеленского! Игра проходит в пять этапов. Каждый этап длится всего одну минуту. На каждом этапе участник имеет возможность отказаться от дальнейшей борьбы и забрать свой текущий выигрыш в пять, двадцать пять, сто или двести пятьдесят тысяч рублей. Пятая решающая минута стоит миллион!
+Если за это время хотя бы один из комиков не удержится от смеха - выигрыш у участника в кармане! Увильнуть от выплаты заслуженного гонорара у Галкина и Зеленского не получится - за их мимикой внимательно следит хладнокровный рефери Роман Емельянов. От него не утаится ни смех, ни ухмылка, ни даже движение бровей комиков!..Жанр: Тв-Шоу, ЮморПродолжительность: ~ 00:32:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EFBB4FE2D0BDFFF3064101874DCC7CA96E13109D
+magnet:?xt=urn:btih:6A5E1666FFB831D038FC47E6958A502064FD195A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 903273   (658492) от 30.05.2015
+###  Публикация: 903566   (657985) от 31.05.2015
 
-Gekijouban K: Missing Kings / Проект Кей: Пропавшие короли [2014, Movie] BDRip 1080p Raw + rus
+VA - 4:10 am (Compiled by Alex Vilator) (2015) [MP3|320 кб/с]<Future Garage, Bass, Chillstep>
 
 >>Архив торрентов
->>Архив Аниме
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658492.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657985.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Инцидент на Асинаке". Тот трагичный день, когда сошлись пути четырех одиноких Королей... Сколько месяцев минуло с тех пор? Все это время Куро и Нэко продолжали искать своего друга и владыку, Серебряного Короля, Сиро. Однако и самые преданные сторонники нуждаются в добрых новостях, и, не найдя ни малейшей подсказки о местоположении хозяина, Пёс и Кошка (   Читать дальше...   )Производство: Япония, GoHandsЖанр: Приключения, МистикаРежиссер: Судзуки СингоПродолжительность: 1:13:12
+01. Synthetic Epiphany - Rebirth (05:46)
+ 02. VΛCΛNT - Broke (04:00)
+ 03. Manu Shrine - Purna (05:00)
+ 04. Late - Losing You (05:30)(   Читать дальше...   )Жанр: Future Garage, Bass, Chillstep |Продолжительность: 01:30:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9EAA39948887E44F3607A8FA169DF652905719D9
+magnet:?xt=urn:btih:A4154DCAEB06271FEA6C527435D5DCB399D27642
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903463   (657988) от 31.05.2015
+
+Вадим Пеунов | Последнее дело Коршуна (1955) [FB2, EPUB]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие повести Вадима Пеунова происходит осенью-зимой 1952 года в одной из областей Западной Украины. Органам госбезопасности становится известно, что в районе орудует шпионско-террористическая банда. В ходе расследования удается выяснить, что возглавляет преступную группу матерый шпион и диверсант, бывший агент германской разведки по кличке «Коршун»…Жанр: Шпионский детективФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FAE1F8D144E3E200D0E873458E43D134B91045C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903362   (657992) от 31.05.2015
+
+Galaktlan - Sinine Platoo (2002/2013) [FLAC|Lossless|WEB-DL]<Ambient, IDM, Abstract>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foll (01:07)
+02. Sulase Surm (04:35)
+03. -15° (05:30)
+04. Mina Kaheks (06:02)(   Читать дальше...   )Жанр: Ambient, IDM, AbstractПродолжительность: 00:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1C41FBCE8694BB670CA56C2E41EA7D550C74E62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903659   (657994) от 31.05.2015
+
+Вести недели (31.05.2015) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657994.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вести недели» - еженедельная итоговая информационная программа Всероссийской государственной телерадиокомпании, выходящая в эфир по воскресеньям в 20.00, с хронометражем от 1 часа 10 минут до 1 часа 30 минут. Программа «Вести недели» не имеет рубрик, но внутри неё может показываться в кратком виде фрагменты из программы «Специальный корреспондент».Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 01:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44034C605EC806A0D09974BED799D4BB83A28854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140186   (658021) от 04.06.2017
+
+Serial Box 06-2017 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658021.jpg" />
+</div>
+
+
+###  Подробнее
+
+База серийных номеров проекта iSerial по состоянию на июнь 2017 года.
+В ней содержится информация по активации (серийные номера,информация о других методах активации) как для программ платформы PowerPC, так и Intel.
+
+База достаточно объемная и регулярно обновляется, так что Вы, наверняка, найдете в ней то, что ищете!(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: июнь 2017Разработчик: iSerialПоддерживаемая ОС: OS X 10.3.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EB26CC6DBFD3432F2FEACD780DC57378EA54BD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140167   (658027) от 04.06.2017
+
+Icecream Screen Recorder Pro 4.88 RePack (& Portable) by TryRooM  [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Icecream Screen Recorder - программа, позволяющая вести запись видео с экрана Вашего компьютера, а также делать скриншоты как всего окна, так и выбранной области. Приложение обладает полным набором необходимых инструментов для профессионального захвата видео с экрана со звуком, являясь при этом очень понятным и удобным в использовании. Запись игр, Skype, вебинаров (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:302CEDE0549D40D59037B31A29E0F726C4AF810A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139985   (658028) от 04.06.2017
+
+MediaHuman YouTube Downloader 3.9.8.13 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658028.jpg" />
+</div>
+
+
+###  Подробнее
+
+YouTube Downloader - Удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.
+
+Закачка нескольких файлов одновременно
+Сохранение видео целиком, либо только звуковой дорожки(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: май 2017Разработчик: MediaHumanПоддерживаемая ОС: Mac OS X 10.8 +Язык интерфейса: Русский, Английский, Итальянский, и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E39CC9B647CC7CA64E43FF52F84F4797BA9C1801
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140017   (658030) от 04.06.2017
+
+TripMode 2.0.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658030.jpg" />
+</div>
+
+
+###  Подробнее
+
+TripMode  — разделяй и властвуй. Интернетом
+Лимитированные пакеты трафика встречаются сейчас довольно редко, но операторы идут на различные ухищрения, из-за которых следить за трафиком всё равно приходится. Например, мне это нужно делать, чтобы не потерять скорость, «перебрав» суточный объём, или попросту не забивать и без того слабенький канал ненужными в данный (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: май 2017Разработчик: Kundi Networks SASПоддерживаемая ОС: Mac OS X 10.10 +Язык интерфейса: Английский, Итальянский, и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C72F4B4FD9DD3EF75438E649671F2BB7B071DA78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140142   (658031) от 04.06.2017
+
+Swarms - Red Temple Rain (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dubstep>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658031.jpg" />
+</div>
+
+
+###  Подробнее
+
+1/6. Snctry (1:56)
+ 2/6. Chicane (3:23)
+ 3/6. Kyoto (3:53)
+ 4/6. The Grid (3:10)(   Читать дальше...   )Жанр: Ambient, DubstepПродолжительность: 00:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37906C50192C969E57C9DE57E2A194DB0BEF5687
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140192   (658035) от 04.06.2017
+
+КВН-2017. Высшая лига. 1.4 финала. Игра 3 (2017.06.04) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания: "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96DCA810DE4E92A099BCFCC5993CA315ACE4AF9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225863   (658042) от 18.05.2018
+
+Хоккей. НХЛ 2017-2018. Кубок Стэнли. 1/2 финала. Финал - Западной конференции. 2-й матч. Виннипег Джетс – Вегас Голден Найтс (14.05.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658042.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 мая 2018 года, вторник. 03:00 МСК
+НХЛ 2017-2018. Кубок Стэнли. 1/2 финала. Финал - Восток Запад. 2-й матч
+Виннипег Джетс – Вегас Голден Найтс
+Стадион: Белл Эм-Ти-Эс Плэйс (Виннипег, Канада), 15321 зритель (100 % при вместимости 15321)(   Читать дальше...   )Телекомпания: Eurosport GoldЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C57330CC04D31FB416CA040FAC9B2ABC8B77A95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225823   (658044) от 18.05.2018
+
+Хоккей. НХЛ 2017-2018. Кубок Стэнли. 1/2 финала. Финал - Западной конференции. 1-й матч. Виннипег Джетс – Вегас Голден Найтс (12.05.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658044.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 мая 2018 года, воскресенье. 02:00 МСК
+НХЛ 2017-2018. Кубок Стэнли. 1/2 финала. Финал - Запад. 1-й матч
+Виннипег Джетс – Вегас Голден Найтс
+Стадион: Белл Эм-Ти-Эс Плэйс (Виннипег, Канада), 15321 зритель (100 % при вместимости 15321)(   Читать дальше...   )Телекомпания: Eurosport GoldЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE2975FC55C5CE6BA4BA20B10FBD149035E43388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514795   (658049) от 24.06.2012
+
+Мисс Марпл: Разбитое пополам зеркало / Marple: The Mirror Crack'd from Side to Side (2010) SATRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658049.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименному роману Агаты Кристи. На светском приеме в доме известной кинозвезды Марины Грегг убит один из гостей. Похоже, что отравленный напиток был предназначен для самой Марины. Но мисс Марпл подозревает, что не все так просто, как кажется. Она намеревается раскрыть истинного убийцу прежде, чем он сделает следующий шаг.Жанр: Детектив, Драма, КриминалРежиссер: Том Шэнклэнд / Tom ShanklandАктеры: Джулия МакКензи, Лиднсэй Данкан, Джин Гудмэн, Джин Гудмэн, Изабелла Пэррисс, Джонатан Койн, Джоанна Ламли, Найджел Харман, Виктория Смерфит, Бреннан БраунПеревод: Многоголосый закадровыйПродолжительность: 01:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58099594B6EDA354080FB4A22B1F04A5D30FC16F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514229   (658050) от 24.06.2012
+
+Грозовой перевал / Wuthering Heights (2011) DVD9
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_658050.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом фильме рассказывается история двух поколений семейных кланов Эрншо и Линтон, — история о сложном переплетении их жизней и судеб и о роковом проклятии двух возлюбленных — Хитклиффа и Кэти…Жанр: Драма, МелодрамаРежиссер: Андреа АрнольдАктеры: Кая Скоделарио, Никола Берли, Джеймс Хаусон, Оливер Милберн, Стив Эветс, Эми Рен, Джеймс Норткот, Шеннон Бир, Пол Хилтон, Соломон ГлэйвПеревод: Двуголосый закадровыйЯзык субтитров: русскийПродолжительность: 02:08:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514754   (658052) от 24.06.2012
+
+Download Master 5.13.1.1315 [Multi/Rus] RePack & Portable by elchupacabra
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_658052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Download Master эффективно решает 3 главных проблемы возникающих при закачке файлов из Интернет: скорость закачки, продолжение прерванных закачек и управление закачанными файлами. Основными чертами, выделяющими Download Master среди других программ, являются высочайшая эффективность работы и удобный пользовательский интерфейс. Для повышения удобства использования программы, Download Master встраивается в Internet Explorer, Firefox, Google Chrome New!, Mozilla, Opera, Netscape Communicator и другие, заменяя стандартный модуль закачки. Так же, программа следит за буфером обмена, обнаруживая ссылки. Download Master позволяет загружать, сохранять и просматривать видео с таких видеосервисов: YouTube, Google Video, RuTube, Видео@mail.ru, Rambler Vision.Название программы: Download MasterЯзык интерфейса: Multi/Rus
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514797   (658057) от 24.06.2012
+
+VA - Safe Zone (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monolock & Timeless - Desert Trip (07:49)
+ 02. Osher & Avshi - Sub Misson (07:17)
+ 03. Middle Mode - Ancient Aliens (08:28)
+ 04. Mind Spin - I Miss You (07:50)
+ 05. Alion - Free Form (Zane Remix) (07:37)
+ 06. Dual Vision - Euphoric Dream (09:58)
+ 07. Atom Device - Crisis (08:54)
+ 08. Shanko - Set The Controls (08:34)
+ 09. D-Twin - Active Circle (09:19)Жанр: Psychedelic / ProgressiveПродолжительность: 01:15:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C632736D7366853A3B67BD2DDBF036F7675BA840
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514474   (658062) от 24.06.2012
+
+Таинственный Альберт Ноббс / Albert Nobbs (2011) DVD9
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_658062.jpg" />
+</div>
+
+
+###  Подробнее
+
+1898 год, Дублин. В небольшой гостинице Morrison’s живут самые разные люди: сбежавший от жены престарелый доктор Холлоран, французские снобы мадам и мсье Пиго, экономное семейство Мур, не чуждый гомоэротических утех виконт Яррелл и его супруга со схожими сексуальными предпочтениями… И каждому из них стремится услужить официант Альберт Ноббс.
+
+Ему чуть больше сорока, и он успел поработать в лучших заведениях Лондона, Бристоля и Ливерпуля. Личной жизни у него практически нет. Пабам и варьете Ноббс предпочитает тихие вечера в своей каморке и бесконечное пересчитывание сбережений. Коллеги практически не обращают на него внимания, и это ему даже на руку. Ведь на самом деле Альберт — женщина, уже около тридцати лет успешно выдающая себя за представителя сильного пола…Жанр: ДрамаРежиссер: Родриго ГарсияАктеры: Гленн Клоуз, Миа Васиковска, Аарон Джонсон, Джанет МакТир, Брендан Глисон, Джонатан Рис-Майерс, Антония Кэмпбелл-Хьюджес, Полин Коллинз, Мария Дойл Кеннеди, Марк Уильямс, Джеймс Грин, Серена Брабазон, Майкл МакЭлхаттон, Долорес Маллалли, Филлида Ло, Кеннет Коллар, Джуди Донован, Фиби Уоллер-Бридж, Эмиральд Феннел, Джон Лайт, Дэниэл Костильо, Анджелин Болл, Филип О’Салливан, Бренда Фрикер, Марк Доэрти, Брона Галлахер, Энни СтаркПеревод: Многоголосый закадровыйЯзык субтитров: русскийПродолжительность: 01:48:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

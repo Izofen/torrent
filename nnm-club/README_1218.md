@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:BB903743674D57A762D7CDDC766491C1645F38EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Windows 10 Pro 22H2 19045.5247 x64 by SanLex [Lightweight] [Ru/En] (2025.01.03)
 magnet:?xt=urn:btih:D69A3282F7F03DFB059577706761BFC8CEE96849
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ The Elder Scrolls V: Skyrim (2011) [Ru] (1.5.97.0.8) Repack/Mod Аронд [Spec
 ```bash
 magnet:?xt=urn:btih:187C5A2ACCB2E962ED4507D563300B76D8E1DE4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:187C5A2ACCB2E962ED4507D563300B76D8E1DE4D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:187C5A2ACCB2E962ED4507D563300B76D8E1DE4D
 ```bash
 magnet:?xt=urn:btih:C1C4F2956F1E9D28BB8D7F674A3FCF4EDC4F7DB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ VoPN — Быстрый и стабильный VPN
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ VoPN — Быстрый и стабильный VPN
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ Slurm (Слёрм) | Data-инженер (2024) WEB-DL [RU]
 magnet:?xt=urn:btih:DC21F257D02D3408BC33CAFD69FA39AF541D18BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:DC21F257D02D3408BC33CAFD69FA39AF541D18BB
 ```bash
 magnet:?xt=urn:btih:82032C08DA5C65266CC5C4007D9EDDF33801E2FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:82032C08DA5C65266CC5C4007D9EDDF33801E2FC
 magnet:?xt=urn:btih:667458B4E34E96FCA642A971E6B9E43C5025A339
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ BBC: Солнечная система / Solar System (2024) BDRip [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:12262B84E953C1E21BCAE2E4C6CA5B7B0E714F80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:12262B84E953C1E21BCAE2E4C6CA5B7B0E714F80
 magnet:?xt=urn:btih:975BC609546C4C09A92F1A3D81050BEA7CDD2B69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:975BC609546C4C09A92F1A3D81050BEA7CDD2B69
 ```bash
 magnet:?xt=urn:btih:768235AAC39B687D880CC29166819A5A9C339948
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:768235AAC39B687D880CC29166819A5A9C339948
 magnet:?xt=urn:btih:A99B754438BFAE41A6AF4A9D3D332DB639037DAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:A99B754438BFAE41A6AF4A9D3D332DB639037DAA
 ```bash
 magnet:?xt=urn:btih:50FA8919C7D68A86EB725B1818A86F398EA2D121
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ Accept — немецкая рок-группа, играющая в стиле 
 magnet:?xt=urn:btih:0A78E145EA4DE94AFA9F99235D87EEB381B90619
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:0A78E145EA4DE94AFA9F99235D87EEB381B90619
 magnet:?xt=urn:btih:C4B8CA653202A1EB091C17898CFA3172A256583B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:C4B8CA653202A1EB091C17898CFA3172A256583B
 ```bash
 magnet:?xt=urn:btih:23EE7115E5A71A0E506970BC5D30B7B185E0B9BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:23EE7115E5A71A0E506970BC5D30B7B185E0B9BE
 magnet:?xt=urn:btih:04238B29CC3A3B3CAAD8D8A5F286DDD0C5078641
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:04238B29CC3A3B3CAAD8D8A5F286DDD0C5078641
 magnet:?xt=urn:btih:247D92DC62EF7ABD7B1F65C8F744190FFFC1AA23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ magnet:?xt=urn:btih:247D92DC62EF7ABD7B1F65C8F744190FFFC1AA23
 ```bash
 magnet:?xt=urn:btih:796379FAE8B587805A726D0F215C6885C4552703
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ VA - Trance Selected, Vol 2 (2025) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:6E8E3359BC0C6BCC54A4BEEE7722E7FD8366DCC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:6E8E3359BC0C6BCC54A4BEEE7722E7FD8366DCC4
 magnet:?xt=urn:btih:EC29C2650DBB74899ED2917398F8F6EACE35C1B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ Time and Memo / Время и Памятка v0.8.95 Mod by Alex.Strannik [Ru/Mu
 magnet:?xt=urn:btih:B3A0010576C965FE10EE646E95EAA9470275482B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:B3A0010576C965FE10EE646E95EAA9470275482B
 ```bash
 magnet:?xt=urn:btih:D797026DD7FAFC6F4CAD8ADBB7C6398F2537CC5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:D797026DD7FAFC6F4CAD8ADBB7C6398F2537CC5B
 ```bash
 magnet:?xt=urn:btih:C7D254CC10A00BD9F1A788653FA63720EE681740
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

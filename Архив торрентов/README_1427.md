@@ -19,6 +19,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:E9EAA117C73062589C1FA8513A9F157C77E732EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ SIGERSHADERS XS Material Presets Studio - это обновлённая библ
 magnet:?xt=urn:btih:62E2570F82F29EE6017636186A3D59F5C14B8857
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ YouTube ReVanced - это реинкарнация проекта YouTube Vanced
 ```bash
 magnet:?xt=urn:btih:76DE9244CAB9B21B7A44EA0CA0342AD4A9384E52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:2ABCC43DBF64F7F5560C63A03EBA06B024A2C289
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:2ABCC43DBF64F7F5560C63A03EBA06B024A2C289
 ```bash
 magnet:?xt=urn:btih:FE36D1C26D008CC4E378EE0D3E489133E8336F19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ qBittorrent - бесплатный, мощный и удобный в работ
 magnet:?xt=urn:btih:2A0BC84B4C363647BDAF300229A1A4DEC25F66D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Windows 11 (9in1) by Updated Edition (16.06.2023) [Ru]
 magnet:?xt=urn:btih:4806844888CD27E60CE0BD228FEC7568F423385B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Winaero Tweaker - системная утилита для настройки в
 ```bash
 magnet:?xt=urn:btih:09AA0ED1DB176C11502E3C81738F7D8DE6EC17B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Recuva - небольшая, но весьма эффективная утили
 magnet:?xt=urn:btih:ADDCF872D99F16B672BE6C73C39394C5FA221C19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 14.06.2023) [Ru]
 ```bash
 magnet:?xt=urn:btih:99D84556FC9E06AEB4ECBBBB09D8D409ED505469
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7
 magnet:?xt=urn:btih:3A727C0964C76D0F903B8C663456E05B2092D40D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:E23BE011688DD68AD61CF2FD4C6C6008A58933AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Sante DICOM Viewer Pro не является «еще одним средств�
 magnet:?xt=urn:btih:EF8A19E650A1380F21E3F3E45871F03B2A7A9E58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ CPU-Z способен показать различную информацию 
 magnet:?xt=urn:btih:4A92F87F96054830838B24F9A531584C5C3257D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ WhatsApp Messenger - это кроссплатформенное приложе�
 ```bash
 magnet:?xt=urn:btih:CED7CE26C463CA0FEA3C4E5013664F1DF700A0A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ Microsoft Office 2021 for Mac LTSC v16.74 VL [Multi/Ru]
 magnet:?xt=urn:btih:2689620693CDEE083F1E54592F94D85EC4E5A081
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:BE763A21D013377229F33D7F34BE94D784BD403E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Psiphon - это новый инструмент обхода интернет-�
 magnet:?xt=urn:btih:F1B1707B66303A7884E0ED932E6DF865EE7B133C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:29A2F128E65B1BA748768641EB7F91BC70D9905B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ f.lux — полезное приложение для тех, кто прово
 ```bash
 magnet:?xt=urn:btih:B6A6CEBE1D7305FFCA9186519EF9BAD90A270633
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Aiseesoft Data Recovery (   Читать дальше...   )Язык интер
 magnet:?xt=urn:btih:FD4E4E0BD4C4BDCBA8167D9D70A04F8FD937F346
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ AVS Media Player - полнофункциональный программный
 ```bash
 magnet:?xt=urn:btih:5F20770289CF005D239141055542839E894BA56B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ ru-ru_windows_10_business_editions_version_22h2_updated_may_2023_x64_dvd_21973db
 magnet:?xt=urn:btih:A45581422261870857D9A56AFEFFC32935095B33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ ZD Soft Screen Recorder - программа для записи видео с �
 magnet:?xt=urn:btih:3586B2164D395A41A3196F0A19A68107563C58A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 ```bash
 magnet:?xt=urn:btih:CE667B48892263BC787ED05C60BCB9A64086AB9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +683,8 @@ PortableApps.com Platform - это функциональная платформ
 ```bash
 magnet:?xt=urn:btih:AF7AA31D6380EF97B61854B06DA92E6E070FC005
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

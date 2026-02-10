@@ -19,6 +19,8 @@ Tom Clancy's Splinter Cell: Conviction (2010) [Xbox360] [RegionFree] 8955 [FreeB
 magnet:?xt=urn:btih:5DD5942B84EAC0BA36A2D1ACD1227B91C038F6A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ N3: Ninety-Nine Nights II – продолжение масштабного эк
 magnet:?xt=urn:btih:B1525619596360948485AA9D0B3312D424E03A16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:B1525619596360948485AA9D0B3312D424E03A16
 ```bash
 magnet:?xt=urn:btih:02222AAC55B8058F06722A5630FF7685D26F3A00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Call of Duty Modern Warfare 2 [PS3] [EUR] [RUSSOUND] [3.55] [Cobra ODE / E3 ODE 
 magnet:?xt=urn:btih:23A4D3BDC6793BA07CBB37877E6025FA9DB4D6AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Darksiders Genesis (2020) [Switch] [USA] 9.1.0 [NSP] [License / 1.0.1] [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:8D50E21502B569C9D387CC97CAF8AA4ABE3845E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Crysis 3: Hunter Edition [PS3] [RUSSOUND] [4.21/4.30] (2013)
 magnet:?xt=urn:btih:29950812AEDACF947074806FF457AC6B374E6A16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Wall-E [Wii] [PAL] [Русский] (2008)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Michael Jackson: The Experience (2011) [PS3] [EUR] 3.56 [Cobra ODE / E3 ODE PRO 
 magnet:?xt=urn:btih:B70614D2CCDED438C62273B78FBDF149F4272E76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ FAR CRY 4 (2014) [PS3] [EUR] 4.65 [Cobra ODE / E3 ODE PRO ISO] [License] [Ru/En]
 ```bash
 magnet:?xt=urn:btih:999AC2AA1ED0219FB84FD39AC8137BCA5CFC665E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Call of Duty: Black Ops (2010) [PS3] [EUR] 3.40 [Cobra ODE / E3 ODE PRO ISO] [Li
 magnet:?xt=urn:btih:0EE7138E7AA0CEDE9ED3BEAB9C2876CAF35E6BDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Mary Shelley's Frankenstein (1994) [SEGA CD] [NTSC] [Unofficial] [Ru]
 ```bash
 magnet:?xt=urn:btih:3C5ACB6DCA833AAE394740BBC290A5E82367E920
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Twisted Metal [PS3] [Ru/En] [Repack] 2012 | R.G. Inferno
 magnet:?xt=urn:btih:F9D67B48891D29A4CC3A0484C50A7F271A732CAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Cart Kings [Eng] (2013) [PSP]
 ```bash
 magnet:?xt=urn:btih:710D3968E0D7501814AFF215FD5030F1BEB25032
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Spec Ops: The Line сочетает увлекательную сюжетную 
 magnet:?xt=urn:btih:ADCA3E45F700CE564EB17ED82BA340A468760ADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Resident Evil 0 рассказывает всю правду о происшес
 ```bash
 magnet:?xt=urn:btih:71C0C97B46B9BF81838AC75FB83DD88F89E8F61E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Tom Clancy's Ghost Recon: Future Soldier [PS3] [Ru] [Repack] (2012) | R.G. Infer
 ```bash
 magnet:?xt=urn:btih:446AC0D3C892A01F9C8CFD03F762A041237C4815
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Metal Gear Rising: Revengeance - совместный проект легенд�
 magnet:?xt=urn:btih:073FA43E8FC450377A8B74F2DD59B7186BCE1ABA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Zumba Kids: The Ultimate Zumba Dance Party [Wii] [PAL] [Multi 5] (2014)
 ```bash
 magnet:?xt=urn:btih:4FD2457FEF8540FD47A293127B82A8485AAEAF22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Resident Evil Zero HD Remaster (2016) [PS3] [EUR] 4.21+ [PSN / 3 DLC] [En]
 magnet:?xt=urn:btih:3D32F282B1CF5240A47A56DB3E1A772DD9F893EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Zombie Apocalypse: Never Die Alone (2011) [PS3] [EUR] 4.21+ [Repack] [En]
 ```bash
 magnet:?xt=urn:btih:17B0469975AD5916A6F6B3FD10778C4BBEC1FC07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Wanted: Weapons of Fate (2009) [Xbox360] [RegionFree] [Freeboot] [Unofficial] [R
 magnet:?xt=urn:btih:26ACADBB848698ED0A583F3E3645D47CC031B6A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ Zombie Driver HD (2012) [PS3] [USA] 4.21+ [Repack / 1.02 / 3 DLC] [En]
 ```bash
 magnet:?xt=urn:btih:303E55FEE88F9B79652470B351D0D3C6FABA2014
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ Sports Champions 2 / Праздник спорта 2 [PS3] [MOVE] [PAL] [Ru] [4.
 magnet:?xt=urn:btih:BB9CDE71B82477261CFF4B7DE9CE505EF4F567DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ Sonic Unleashed, в Японии известная как Sonic World Adventure
 magnet:?xt=urn:btih:27BCEAD7E23B515AB35F1063831E9C51BBC79345
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ White Knight Chronicles II [PS3] [EUR] [En] [4.21] [Cobra ODE / E3 ODE PRO ISO] 
 ```bash
 magnet:?xt=urn:btih:5A02EF4DDEC01A9262E922420CD40F3F5CEA8DB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +683,8 @@ PayDay 2 – кооперативный шутер на четырех игро�
 ```bash
 magnet:?xt=urn:btih:DC27DC8661B3D0993E28323F51F2F8FCCE03BB86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

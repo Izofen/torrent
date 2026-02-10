@@ -19,6 +19,8 @@ Christmas Ornament Opener — это яркий и сказочный шабло
 magnet:?xt=urn:btih:A2C3E56171B145B5B5063D3603A1A8839B2EDE08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:A2C3E56171B145B5B5063D3603A1A8839B2EDE08
 ```bash
 magnet:?xt=urn:btih:7EF40F73EDD805A632FFB4159EDEA41C3CA7040D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:7EF40F73EDD805A632FFB4159EDEA41C3CA7040D
 magnet:?xt=urn:btih:599452752DC45DCF68884A85EAC828900CB7354A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:599452752DC45DCF68884A85EAC828900CB7354A
 ```bash
 magnet:?xt=urn:btih:3C9020603B50E2D9541E5C8A6ABC50527FD584A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:3C9020603B50E2D9541E5C8A6ABC50527FD584A1
 magnet:?xt=urn:btih:3FECCC4865DEBD2D00BEF74A2F868FB00B449949
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:3FECCC4865DEBD2D00BEF74A2F868FB00B449949
 magnet:?xt=urn:btih:8187226286151EDC06150D9E91B60CE4D1C3E497
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ magnet:?xt=urn:btih:8187226286151EDC06150D9E91B60CE4D1C3E497
 ```bash
 magnet:?xt=urn:btih:5C8618986579232F8D7B409A46226E858540BD42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ VA - National Pop Dance Music Vol.124 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 magnet:?xt=urn:btih:71AB88457295B503969DA3D25BA40C6088EBEB16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ CD1:
 magnet:?xt=urn:btih:A3A9A7730C9099E935C3D57668C4A0795ED747FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:A3A9A7730C9099E935C3D57668C4A0795ED747FB
 ```bash
 magnet:?xt=urn:btih:D90558D9D16E6F27F177D15D86AFD3B9625D22D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ VA - Synthpop Stars (2025) [MP3|320 Kbps] <Pop, Dance, Electronic>
 magnet:?xt=urn:btih:235407469EAE3577815B6E6B5F0BCD547363A927
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Hearts of Iron IV (2016) [Ru/Multi] (1.17.0.1/dlc) Repack Necros
 magnet:?xt=urn:btih:64D71A78718F07E80B5048A22F6CE8C5C652482D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:64D71A78718F07E80B5048A22F6CE8C5C652482D
 ```bash
 magnet:?xt=urn:btih:0DAC92D87B6BE3FBDC38944CE4938757B24314CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:0DAC92D87B6BE3FBDC38944CE4938757B24314CC
 magnet:?xt=urn:btih:B5387B4ABDABAEEF3A5C52E0594FDB62D6BE77F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:B5387B4ABDABAEEF3A5C52E0594FDB62D6BE77F3
 ```bash
 magnet:?xt=urn:btih:BC70C49F80A1E068C7A549D8B6549DBFD2C218C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ Tina Turner - Good Hearted Woman (1979) Remaster, 2025, Explore Rights Managemen
 magnet:?xt=urn:btih:4886857F613013A435C6D35D2A23A42B8C51DF34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:4886857F613013A435C6D35D2A23A42B8C51DF34
 magnet:?xt=urn:btih:0CE67C87BA44CAB250C4AB8119A0114C6C6C3C8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:0CE67C87BA44CAB250C4AB8119A0114C6C6C3C8F
 ```bash
 magnet:?xt=urn:btih:B6AD6B225474DB4443E7FF01F6EC21BC04957521
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:B6AD6B225474DB4443E7FF01F6EC21BC04957521
 magnet:?xt=urn:btih:8BCA775E575BBC26975AA451A922498583CD9369
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:8BCA775E575BBC26975AA451A922498583CD9369
 magnet:?xt=urn:btih:0F37C197038704EEFBD6706068514EDFC41999DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:0F37C197038704EEFBD6706068514EDFC41999DD
 ```bash
 magnet:?xt=urn:btih:D8BF6BC22C5FF5B5E3B38CDABE5A93C2E585FCE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ Boney James - ‘Tis The Season (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sm
 magnet:?xt=urn:btih:80BFDAD0400456E0F8F54F8F1F56E5DC83B87089
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ magnet:?xt=urn:btih:80BFDAD0400456E0F8F54F8F1F56E5DC83B87089
 ```bash
 magnet:?xt=urn:btih:237CC545902BFCFEFCF8F00C5A11AAA4575803CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ Onimusha 2 (2025) [Ru/Multi] (1.0.0.0/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:8D2F9157E43B0F8501A90BE2DAA58C7242EE5805
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:8D2F9157E43B0F8501A90BE2DAA58C7242EE5805
 magnet:?xt=urn:btih:8ED61E5C8F1001D3A6DC09C655F1397F561EA4A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ magnet:?xt=urn:btih:8ED61E5C8F1001D3A6DC09C655F1397F561EA4A0
 ```bash
 magnet:?xt=urn:btih:54117D6036B24914D941BA720AE8D7474FC01F91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

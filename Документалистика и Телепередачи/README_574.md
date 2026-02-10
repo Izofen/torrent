@@ -1,3 +1,29 @@
+###  Публикация: 1205795   (782939) от 12.02.2018
+
+О чем молчал Вячеслав Тихонов (2018) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждая роль — знак качества. Для кого-то он - тракторист Матвей из фильма «Дело было в Пенькове». Для кого-то - благородный князь Болконский. Для кого-то - сдержанный Штирлиц. В жизни Тихонов был абсолютно закрытый. Молчаливый. Скромный. Сдержанный. Фильм — это попытка разобраться, каким же человеком Вячеслав Тихонов был на самом деле. Что его волновало, чем он дорожил, (   Читать дальше...   )Производство: Россия, Первый каналЖанр: Документальный, биографияРежиссер: Георгий АнановЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7E639D1F1ABC1BE9CFC647055A9FF4E429680AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390430   (783039) от 15.06.2020
 
 Цивилизация / Civilization (2019) WEBRip [H.264/2160p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:505C911CECC83210EF988B892D5AA8BCA8E122BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:505C911CECC83210EF988B892D5AA8BCA8E122BA
 magnet:?xt=urn:btih:C11FC221426A7C21F943AB2308F4AE3AC40FAADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:C11FC221426A7C21F943AB2308F4AE3AC40FAADE
 ```bash
 magnet:?xt=urn:btih:D6E8FB897A0FE49C7C08EF5409B29B6BE897528B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:D6E8FB897A0FE49C7C08EF5409B29B6BE897528B
 magnet:?xt=urn:btih:0AA9EAE12EBAE24B076B83E1700AB85B60993675
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:0AA9EAE12EBAE24B076B83E1700AB85B60993675
 ```bash
 magnet:?xt=urn:btih:708B7CACAD29A6016E54EDB3506DC583D9FAA0D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:708B7CACAD29A6016E54EDB3506DC583D9FAA0D7
 magnet:?xt=urn:btih:3842577E17800EF4D2E1AA09809E6D8E7360D635
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:3842577E17800EF4D2E1AA09809E6D8E7360D635
 ```bash
 magnet:?xt=urn:btih:0C06BB8BDD76FD16765FE9632D615515298A0B1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:0C06BB8BDD76FD16765FE9632D615515298A0B1A
 magnet:?xt=urn:btih:CAF307D91E137694A3BBB82DD7E9DE72A70E755E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:CAF307D91E137694A3BBB82DD7E9DE72A70E755E
 ```bash
 magnet:?xt=urn:btih:BABA8AEB267C5CFCB8BA11673CE6CEBB2B30B3CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:BABA8AEB267C5CFCB8BA11673CE6CEBB2B30B3CF
 magnet:?xt=urn:btih:699DB6BFB6CDE0E7FEFE25537E1D3FBB702C8238
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:699DB6BFB6CDE0E7FEFE25537E1D3FBB702C8238
 ```bash
 magnet:?xt=urn:btih:9403DF0154DE19934FBE6E90D41120C2E6527AA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:9403DF0154DE19934FBE6E90D41120C2E6527AA4
 magnet:?xt=urn:btih:1E9B96112357C30D6C6F0FBD1C0EE33266254ADB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:1E9B96112357C30D6C6F0FBD1C0EE33266254ADB
 ```bash
 magnet:?xt=urn:btih:55809DD24D1E7F7076813DC3DC310CD824447ED5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:55809DD24D1E7F7076813DC3DC310CD824447ED5
 magnet:?xt=urn:btih:C59F8FE7C7249EE67792293648A81FAEC1B71A50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:C59F8FE7C7249EE67792293648A81FAEC1B71A50
 ```bash
 magnet:?xt=urn:btih:54E24916AAB5DF17A07279B1BEA6B289C034E216
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:54E24916AAB5DF17A07279B1BEA6B289C034E216
 magnet:?xt=urn:btih:3E466252A34102F43E1BBB3CF1658B677DDAAD49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ magnet:?xt=urn:btih:3E466252A34102F43E1BBB3CF1658B677DDAAD49
 ```bash
 magnet:?xt=urn:btih:52C601B294EDCD5AB5D23CC447F346673940C97B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:52C601B294EDCD5AB5D23CC447F346673940C97B
 magnet:?xt=urn:btih:3E4F589D6B16711B0375D7FEAEBDBBE12D34D71C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +513,8 @@ magnet:?xt=urn:btih:3E4F589D6B16711B0375D7FEAEBDBBE12D34D71C
 ```bash
 magnet:?xt=urn:btih:4AEA5841D318FA603E0CFF7232B9A8C257D5E44C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:4AEA5841D318FA603E0CFF7232B9A8C257D5E44C
 magnet:?xt=urn:btih:1CDB5EFBCE316325508484FD10A89678D71D738C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +565,8 @@ magnet:?xt=urn:btih:1CDB5EFBCE316325508484FD10A89678D71D738C
 ```bash
 magnet:?xt=urn:btih:345CE70C1D2CD760B2CAF61E67B67658DD47E195
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +592,8 @@ magnet:?xt=urn:btih:345CE70C1D2CD760B2CAF61E67B67658DD47E195
 magnet:?xt=urn:btih:685BB1F5C3BF51E47A36998874EB311A1448CDF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +617,8 @@ magnet:?xt=urn:btih:685BB1F5C3BF51E47A36998874EB311A1448CDF7
 ```bash
 magnet:?xt=urn:btih:EF1D9C4E0646FCF614BB315AB3E4891A307617D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +644,8 @@ magnet:?xt=urn:btih:EF1D9C4E0646FCF614BB315AB3E4891A307617D6
 magnet:?xt=urn:btih:1425474D847A25FA3EE89D5027A632A1C650C0E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,29 +670,7 @@ magnet:?xt=urn:btih:1425474D847A25FA3EE89D5027A632A1C650C0E9
 magnet:?xt=urn:btih:250C5DAD3E61B81CD729759DF5B842448229F5DA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204834   (784304) от 07.02.2018
-
-Вечер с Владимиром Соловьевым (06.02.2018) SATRip
-
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тотальная русофобия приводит к паническим атакам и даже видениям. В США обнаружили, что в сговор с Россией вступал не Трамп, а Хиллари Клинтон. Тиллерсон увидел "щупальца" Москвы в Латинской Америке, Латвия испугалась "Искандеров" в Калининграде. МОК отказался выполнять решение спортивного арбитражного суда в Лозанне и предложил реформировать (   Читать дальше...   )Телекомпания: РоссияЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 02:12:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8D5ADBCAD80F1FE62F4A017083D62476BF9B68B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

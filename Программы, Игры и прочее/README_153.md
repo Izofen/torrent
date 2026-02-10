@@ -19,6 +19,8 @@ Easy Text Scanner - это приложение для распознавани�
 magnet:?xt=urn:btih:1124CA51CAF1DB3E0E7110B8444BA9A6D7455287
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:1124CA51CAF1DB3E0E7110B8444BA9A6D7455287
 magnet:?xt=urn:btih:99E0E2E0E2F48982A38AA04F8DED10691981D2C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Scythe: Digital Edition -  мобильная версия успешной на
 ```bash
 magnet:?xt=urn:btih:7800FC5CD32CF9DD12755651306B3877ADA136F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Starman – занимательная головоломка на андрои�
 magnet:?xt=urn:btih:F37628DC3110BB056870D28BC2FAF96617FC20EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:F37628DC3110BB056870D28BC2FAF96617FC20EA
 ```bash
 magnet:?xt=urn:btih:5610B316030183241693597CC41E13D50E3C8C96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:5610B316030183241693597CC41E13D50E3C8C96
 magnet:?xt=urn:btih:6EB1913242BC4F8B7467D413ADA600C4CA6A487F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ WOW Volume Manager v1.6 [En]
 ```bash
 magnet:?xt=urn:btih:5208FC20E48E6580659519DEF07035A4CE38E1A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:5208FC20E48E6580659519DEF07035A4CE38E1A6
 magnet:?xt=urn:btih:CCD6C9F4039EA17D1AD3CAA96868B90F2F5688B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Handy GPS - Настоящий ручной GPS с множество функц
 magnet:?xt=urn:btih:41175347239423C818C8A95F689665BB9875CECF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Cell to Singularity - Evolution Never Ends - игра события котор�
 ```bash
 magnet:?xt=urn:btih:2944C2B925A57EEDAB94DBAD4B20E9C7072000A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ AutoTagger - авто и пакетный редактор тегов v3.3.4 [Ru
 magnet:?xt=urn:btih:EDCE167C473BAB914B425767D0FF6D16D0CB8BCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ SAI это продвинутый установщик APK с поддержко
 ```bash
 magnet:?xt=urn:btih:AF23F21DD6065F8C3257D876045F3569E8464388
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Slay The Spire - игра с элементами традиционной ко�
 magnet:?xt=urn:btih:25827B593407AE75F4036A1D6E3F6237CAB55941
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Jetpack Joyride – ваш герой смельчак по имени Барр�
 ```bash
 magnet:?xt=urn:btih:B467FD7B3B92CAAD7C5410247D90B481A1C5E301
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:B467FD7B3B92CAAD7C5410247D90B481A1C5E301
 magnet:?xt=urn:btih:684C0B817436F4CE6660B071EA7ECC1998E763D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Hungry Dragon – крутая и забавная аркада, где кажд
 ```bash
 magnet:?xt=urn:btih:C5B2F00BC78CD689B16166CD07B401B46E982F2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:C5B2F00BC78CD689B16166CD07B401B46E982F2C
 magnet:?xt=urn:btih:EE0C6ED6EF34747833A22C79FC9752BFB7B2C8E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Queen Rock Tour - песни легенд рока, группы Queen, всег
 ```bash
 magnet:?xt=urn:btih:8D2FA2022C612FD2756008F7AEFF9226FB5391D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:8D2FA2022C612FD2756008F7AEFF9226FB5391D0
 magnet:?xt=urn:btih:691952402AB26B9F962AF8856A871D54A815D2A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Freezer v0.6.9 [Ru]
 ```bash
 magnet:?xt=urn:btih:11C1A0BE831241A71F0ED9E265B2FAC536D7834D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Piano Melody ver.Tokyo Ghoul Fix (200) [En]
 magnet:?xt=urn:btih:A8A8D31F647E117E2BAAB952DBA0EF7CF4CC8A9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Grand Theft Auto: SAMP – простой и удобный лаунчер дл�
 magnet:?xt=urn:btih:4882725E711DD200F0F6DABB8922041B4402F42A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ Plague Inc – Редко, когда мобильные проекты выхо
 ```bash
 magnet:?xt=urn:btih:CDD3FDBB194456D431AF240ED45C17EEC6719DEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ Vector – это посвященная паркуру аркадная игр�
 magnet:?xt=urn:btih:919CE6F5E4C98AF3C5D21FCE5439982AEFF64555
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Calc for Electronics v3.3.4 [Ru]
 ```bash
 magnet:?xt=urn:btih:8E98456B47CEB906A1F62DD854FDCA2652FE3D5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +683,8 @@ magnet:?xt=urn:btih:8E98456B47CEB906A1F62DD854FDCA2652FE3D5A
 ```bash
 magnet:?xt=urn:btih:B9657D92AD658D31C129A74F1C70BE06038C6825
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

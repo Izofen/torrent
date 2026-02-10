@@ -1,3 +1,30 @@
+###  Публикация: 1011325   (795888) от 28.04.2016
+
+Эл Кавадло | Подтянитесь! Уличный фитнес (2016) [PDF]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий накаченный городской атлет-воркаутер очень серьезно относится к подтягиваниям. Ничто не может отвлечь его, — ни окружающий городской шум, ни едущий мимо поток машин, ни играющие рядом дети, — он точно знает, что перекладина — это ключ, который откроет ему дорогу в мир силы и накаченных мышц.
+Эта книга, вероятно, самая важная книга из опубликованных за последние (   Читать дальше...   )Жанр: Здоровье, спорт, фитнесФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE6FF85087A60553A54A79D57A792BB5E733453E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385959   (795923) от 27.05.2020
 
 Архимандрит Наум (Байбородин) | О помощи Пресвятой Богородицы в Великой Отечественной войне: отрывки из проповедей и произведений (2020) [FB2, EPUB]
@@ -20,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:D116ACCD7F65E1EAA6C2C59C2006C4708B96ED83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +75,8 @@ magnet:?xt=urn:btih:D116ACCD7F65E1EAA6C2C59C2006C4708B96ED83
 magnet:?xt=urn:btih:E51BAFFBC714F4EA4ED0CBD416FEB4CCF862823E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +102,8 @@ magnet:?xt=urn:btih:E51BAFFBC714F4EA4ED0CBD416FEB4CCF862823E
 magnet:?xt=urn:btih:E877015D1EC5522BD59C09535E269338BE270886
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +127,8 @@ magnet:?xt=urn:btih:E877015D1EC5522BD59C09535E269338BE270886
 ```bash
 magnet:?xt=urn:btih:2253F2923A53221A7E1AF9122125971A46848A3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +154,8 @@ magnet:?xt=urn:btih:2253F2923A53221A7E1AF9122125971A46848A3A
 magnet:?xt=urn:btih:AACE9E46C248FCFC47B960861B7D039B91D2C601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +179,8 @@ magnet:?xt=urn:btih:AACE9E46C248FCFC47B960861B7D039B91D2C601
 ```bash
 magnet:?xt=urn:btih:FC50591ECC7F413084942C04112509A022D0DF00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +206,8 @@ magnet:?xt=urn:btih:FC50591ECC7F413084942C04112509A022D0DF00
 magnet:?xt=urn:btih:F82E509C2AD23562794EE485AD0FFCA7A7B4A3DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +232,8 @@ magnet:?xt=urn:btih:F82E509C2AD23562794EE485AD0FFCA7A7B4A3DE
 magnet:?xt=urn:btih:090F5E7AA4BAF637C6DF7CF4F63CAF71FB95880C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:090F5E7AA4BAF637C6DF7CF4F63CAF71FB95880C
 ```bash
 magnet:?xt=urn:btih:E4C21E8BBA4F5A8671BD7B11218B029ED51AF49B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +285,8 @@ magnet:?xt=urn:btih:E4C21E8BBA4F5A8671BD7B11218B029ED51AF49B
 magnet:?xt=urn:btih:26987DD346A27BDA803B349C071740D9624B8DC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +312,8 @@ magnet:?xt=urn:btih:26987DD346A27BDA803B349C071740D9624B8DC0
 magnet:?xt=urn:btih:49F69F54906B8707AB2EE197684A0EE5EDC582A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +338,8 @@ magnet:?xt=urn:btih:49F69F54906B8707AB2EE197684A0EE5EDC582A5
 magnet:?xt=urn:btih:098B87C7E86B48FEE9F2C0CD4ECB07D0BEE184FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +363,8 @@ magnet:?xt=urn:btih:098B87C7E86B48FEE9F2C0CD4ECB07D0BEE184FC
 ```bash
 magnet:?xt=urn:btih:5E19D514EC6B73AF9DE09515C84B6331037FB546
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +391,8 @@ magnet:?xt=urn:btih:5E19D514EC6B73AF9DE09515C84B6331037FB546
 magnet:?xt=urn:btih:CC1BF67A8C7D9DFA2C2672BFFA28DCAC5DB5F2C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +418,8 @@ magnet:?xt=urn:btih:CC1BF67A8C7D9DFA2C2672BFFA28DCAC5DB5F2C9
 magnet:?xt=urn:btih:A1080E7C41102D2AE2FD5C57B38200B919A8A554
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +443,8 @@ magnet:?xt=urn:btih:A1080E7C41102D2AE2FD5C57B38200B919A8A554
 ```bash
 magnet:?xt=urn:btih:CDAA5E2519BB5B29A9752D48511F22DCB9CDDE1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +472,8 @@ magnet:?xt=urn:btih:CDAA5E2519BB5B29A9752D48511F22DCB9CDDE1B
 magnet:?xt=urn:btih:832A4A97BEEBA3FA09D7FCFD8013CF030571B3D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +497,8 @@ magnet:?xt=urn:btih:832A4A97BEEBA3FA09D7FCFD8013CF030571B3D3
 ```bash
 magnet:?xt=urn:btih:477BCCFB7EABB68235C379F50DB31A7D761FE6CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +526,8 @@ magnet:?xt=urn:btih:477BCCFB7EABB68235C379F50DB31A7D761FE6CF
 magnet:?xt=urn:btih:74EB3AF1CD25CCAF02F01AD571CD263D9B16AD83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +552,8 @@ magnet:?xt=urn:btih:74EB3AF1CD25CCAF02F01AD571CD263D9B16AD83
 magnet:?xt=urn:btih:1CC10E8677B52C2878055A908502521CD0A13A04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +577,8 @@ magnet:?xt=urn:btih:1CC10E8677B52C2878055A908502521CD0A13A04
 ```bash
 magnet:?xt=urn:btih:B987A04B192C13F7BBCA3011B1777F43CB507A3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +606,8 @@ magnet:?xt=urn:btih:B987A04B192C13F7BBCA3011B1777F43CB507A3E
 magnet:?xt=urn:btih:4BA96CE4C2178A3EB95D509C0952A965483EC676
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +634,8 @@ magnet:?xt=urn:btih:4BA96CE4C2178A3EB95D509C0952A965483EC676
 magnet:?xt=urn:btih:8D22C19CF6FACEA8641F61BB2F773F00AB4C9E73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +659,8 @@ magnet:?xt=urn:btih:8D22C19CF6FACEA8641F61BB2F773F00AB4C9E73
 ```bash
 magnet:?xt=urn:btih:9DBD73C1DC744A0D72D015614A404AD61817DB95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,31 +686,7 @@ magnet:?xt=urn:btih:9DBD73C1DC744A0D72D015614A404AD61817DB95
 magnet:?xt=urn:btih:AF8B64EE7EC40C93280C054E550FBA815C992286
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200070   (796417) от 20.01.2018
-
-Ю. А. Жуков | Из боя в бой. Письма с фронта идеологической борьбы. 1946—1972 (1973) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полемические письма «Из боя в бой» журналиста-международника Юрия Жукова — это живой, основанный на обширных документальных материалах и личных впечатлениях рассказ о современных течениях в литературе и искусстве Запада, в частности Франции, США и Англии.
-
-Автор целеустремленно разоблачает различные формы и методы буржуазной идеологии в литературе и искусстве капиталистических (   Читать дальше...   )Жанр: История, политология, экономика, психология, публицистика, журналистика, литературоведение, искусствоФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C9B907997B6045EE44C019D580F1BE9A903392D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

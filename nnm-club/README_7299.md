@@ -22,6 +22,8 @@ White Ward - Love Exchange Failure (2019) [FLAC|Lossless|Web-DL|tracks] <Black M
 magnet:?xt=urn:btih:28E597B727EF9AAFC696FE705EDD9AD0EE899133
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ P.J. Perry - Worth Waiting For (1991) The Jazz Alliance [FLAC|Lossless|tracks + 
 magnet:?xt=urn:btih:83366AA048F0400FCBAEABC9075B9DA28D67359F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:83366AA048F0400FCBAEABC9075B9DA28D67359F
 magnet:?xt=urn:btih:44D9C8AC43E8EB58E5239F43001A5E655F7023A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:44D9C8AC43E8EB58E5239F43001A5E655F7023A0
 ```bash
 magnet:?xt=urn:btih:8016F80FF910D224B9FF0EE5ECB32C6CE332166D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:8016F80FF910D224B9FF0EE5ECB32C6CE332166D
 magnet:?xt=urn:btih:93CF4011EDBD1DAD722E0CBD39890DBBF7310441
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:93CF4011EDBD1DAD722E0CBD39890DBBF7310441
 ```bash
 magnet:?xt=urn:btih:DFEA9E926F4E15C7B491FF0870C6685319C4C76D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ VA - Trance The Annual 2020 (2019) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:DA22FFC17732DA59959E9CA676124234CC6A66CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -206,6 +220,8 @@ Tina Turner - All The Best (2012) [MP3|320 кб/с]<Pop-Rock>
 magnet:?xt=urn:btih:0A63CBED7E7346C5B7142BA09B289410D468242A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ magnet:?xt=urn:btih:0A63CBED7E7346C5B7142BA09B289410D468242A
 ```bash
 magnet:?xt=urn:btih:B1A76642F68D27E7429D0AC9280D57152DE4796A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +275,8 @@ Woody Herman & His Thundering Herd - Ready-Get Set-Jump (1953 - 1958) 1992, Lase
 magnet:?xt=urn:btih:031658711DB8039BF442BFA8685E4C9C49BBF17A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +304,8 @@ Leaves' Eyes - Black Butterfly (2019) EP [MP3|320 Kbps] <Symphonic Metal>
 magnet:?xt=urn:btih:1754BA7A65EBD6F3B272287F6DA3D9834847A3BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +329,8 @@ magnet:?xt=urn:btih:1754BA7A65EBD6F3B272287F6DA3D9834847A3BB
 ```bash
 magnet:?xt=urn:btih:4D7E69B957BB1038321BEAF68EE1F4936C21C376
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +356,8 @@ magnet:?xt=urn:btih:4D7E69B957BB1038321BEAF68EE1F4936C21C376
 magnet:?xt=urn:btih:0778C9A8E0D19B34325B1C560C119CD94BFA6A95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ magnet:?xt=urn:btih:0778C9A8E0D19B34325B1C560C119CD94BFA6A95
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ magnet:?xt=urn:btih:0778C9A8E0D19B34325B1C560C119CD94BFA6A95
 ```bash
 magnet:?xt=urn:btih:EDCFB5C3EE12AD0FEE165AE4F3FC9D98AC163C3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +437,8 @@ magnet:?xt=urn:btih:EDCFB5C3EE12AD0FEE165AE4F3FC9D98AC163C3D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ magnet:?xt=urn:btih:EDCFB5C3EE12AD0FEE165AE4F3FC9D98AC163C3D
 magnet:?xt=urn:btih:111C4DED13113ECB4762ACC6FDD25533D3C567BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ magnet:?xt=urn:btih:111C4DED13113ECB4762ACC6FDD25533D3C567BE
 ```bash
 magnet:?xt=urn:btih:5FDCA428450895CF06A10E41DAFF88BB08555C37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +516,8 @@ magnet:?xt=urn:btih:5FDCA428450895CF06A10E41DAFF88BB08555C37
 magnet:?xt=urn:btih:10BCEE8EED3CDFD0B19B2A52E9061D3F750952DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:10BCEE8EED3CDFD0B19B2A52E9061D3F750952DE
 ```bash
 magnet:?xt=urn:btih:314371A2E5A41FCF3BEAFC8B9BF9D8CB44E3955B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ magnet:?xt=urn:btih:314371A2E5A41FCF3BEAFC8B9BF9D8CB44E3955B
 magnet:?xt=urn:btih:94CFC393EE10762772DDAA387FB040E1D7B10493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ magnet:?xt=urn:btih:94CFC393EE10762772DDAA387FB040E1D7B10493
 ```bash
 magnet:?xt=urn:btih:590D747CFF53A329E328D616285E1C4BFCF035EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ Jo Berger Myhre & Olafur Bjorn Olafsson (Jo Berger Myhre & Ólafur Björn Ólafs
 magnet:?xt=urn:btih:0A3275F148159C9A3B877D36C078F61408804891
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ magnet:?xt=urn:btih:0A3275F148159C9A3B877D36C078F61408804891
 ```bash
 magnet:?xt=urn:btih:740722D7D8E19F1C8E2AABCBC71A6FB2688FD3C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ magnet:?xt=urn:btih:740722D7D8E19F1C8E2AABCBC71A6FB2688FD3C1
 magnet:?xt=urn:btih:9F70402F2883912A9DD3820A39B45BC207C79E13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ magnet:?xt=urn:btih:9F70402F2883912A9DD3820A39B45BC207C79E13
 ```bash
 magnet:?xt=urn:btih:A1724CAAA42532427874EE263CCB5E786E0C0C2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

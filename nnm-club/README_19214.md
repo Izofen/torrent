@@ -1,660 +1,712 @@
-###  Публикация: 1526457   (738501) от 24.01.2022
+###  Публикация: 1527126   (737397) от 27.01.2022
 
-Viper FTP 6.1.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-клиент для macOS, с поддержкой популярных протоколов - FTP, SFTP, WebDAV и Amazon S3, который позволяет легко получить доступ к различным удаленным серверам для управления, получения/передачи файлов.
-Контекстное меню Viper FTP обеспечивает доступ к многочисленным инструментам и функциям, которые позволяют открыть (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.01.2022Разработчик: © 2022 Naarak-StudioПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91C2BD61ECB59CAA7CC0E1579BAA35207E76B6B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526364   (738502) от 24.01.2022
-
-VA - Electro Swing: The Best of - Freshly Squeezed, Vol. 1 (2015) [AAC|~313 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swing Republic - Crazy in Love (Radio Edit) (3:55)
-02. Nick Hollywood - Deep Henderson (3:41)
-03. The Correspondents - Washington Square (3:34)
-04. JFB - Wobble and Squeak (4:14)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F4EE4C5908535B669175655B3CBD509960E9438
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526462   (738503) от 24.01.2022
-
-Valentina Studio Pro 11.5.3 [Multi/Ru]
+SILKYPIX Developer Studio Pro 11E 11.0.2.0 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738503.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737397.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Valentina Studio - это идеальный инструмент управления данными для администраторов баз данных. Valentina Studio PRO для разблокировки современных инструментов моделирования данных, дизайна и редактирования отчетов и многого другого.Тип издания: macOS SoftwareРелиз состоялся: 23.01.2022Разработчик: © 2021 Paradigma SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+SILKYPIX Developer Studio Pro11 — это последняя версия высококачественного программного обеспечения для обработки RAW из серии SILKYPIX, впервые выпущенная в 2004 году. Этот продукт включает в себя первые в своем роде усовершенствования механизма обработки RAW и включает новую технологию демозаики, которая позволяет выражения разрешения определения. Таким образом, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.01.2022Разработчик: © 2022, Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F9B38C517ABBD38AB0A37B385A6A6029CF662B8
+magnet:?xt=urn:btih:53107055C6FA87982DA3EDB4362F71102010EB94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526360   (738504) от 24.01.2022
+###  Публикация: 1527097   (737398) от 27.01.2022
 
-VA - Sidewalk Bistro, Vol. 1 (2015) [AAC|~343 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Naoki Kenji - Destination Earth (4:27)
-02. The Sushi Club - Hypnosia (7:13)
-03. Castlebed - Gravity (3:29)
-04. Gerrit van der Meer - Freudenberg (Springtime Edit) (5:05)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:03:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B882254B777AD5E2191F03395DDFD76A44B2575
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526412   (738505) от 24.01.2022
-
-SyncBird Pro 3.6.2 [En]
+Ftp-Serv 8.1.1 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738505.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737398.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SyncBird Pro - это файловый менеджер iPhone, который обеспечивает синхронизацию iOS и чистку iTunes. Передавайте музыку, плейлисты, фотографии, видео, книги - все, между вашим iPhone, iPad, iPod и Mac без использования iTunes. Эксклюзивные функции SyncBird под названием PhoneCare и TunesClean созданы для того, чтобы освободить больше свободного места на вашем iPhone (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.01.2022Разработчик: © 2022 MiniCreoПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+Это простое программное обеспечение ftp-сервера для загрузки файлов на ваш Mac или обмена файлами с другими.
+Приложение выполняет три операции:
+1. Вы можете загружать файлы с машины, в которую встроен принтер-сканер, на ваш Mac, если ваш Mac находится в той же локальной сети, что и ваша машина, в которую встроен принтер-сканер
+2. Вы можете обмениваться файлами с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.01.2022Разработчик: © 2021 Renjie. ZhangПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский и Упрощенный китайский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC562EC2CF7DA8D4A7C1149C4EE61EA738799668
+magnet:?xt=urn:btih:297F15325FFB67547C3D91DE1FBDB1B8D87DD5CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526334   (738506) от 24.01.2022
+###  Публикация: 1527066   (737399) от 27.01.2022
 
-Swing Republic - Mo' Electro Swing Republic - Let's Misbehave (Deluxe Version) (2015) [AAC|~332 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
+Allan Thomas - The Journey (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738506.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737399.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Swing Republic, Dolly Dawn & Her Dawn Patrol - How'd Ja Like to Love Me? (3:41)
-02. Swing Republic, Duke Ellington, Ivie Anderson - Truckin' (4:08)
-03. Swing Republic, Karina Kappel - Sing It Back (3:32)
-04. Swing Republic, Benny Goodman, Jimmy Rushing - He Ain't Got Rhythm (4:14)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:49:07
+01. The Journey (4:30)
+02. Van (4:14)
+03. You Never Know (4:12)
+04. It's All Good (3:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D7AFA72F7C2500B833C790C9F4A1559DCB42274
+magnet:?xt=urn:btih:F0C08A036B57CC6ABE6D4A2C6CF332128A94C97D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526404   (738507) от 24.01.2022
+###  Публикация: 1527227   (737400) от 27.01.2022
 
-Money Pro - Personal Finance 2.7.20 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Money Pro сократит расходы и покажет полную картину Ваших финансов. Money Pro - это единая программа для ведения бюджета, отслеживания операций по счетам и напоминания о предстоящих платежах. Money Pro отлично подходит для ведения домашнего бюджета, а также для финансового планирования малого бизнеса.
-Удобная синхронизация (iPhone, iPad, Mac). Money Pro является (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2022Разработчик: © 2015-2019 iBear LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:522A525D9095BA72C8CD3CE987AE315A6476A570
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526362   (738508) от 24.01.2022
-
-VA - Electro Swing: The Best of - Freshly Squeezed, Vol. 2 (2015) [AAC|~332 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swingrowers - That's Right! (Jamie Berry Remix) (3:40)
-02. Swing Republic - No No No (2:21)
-03. Jem Stone - Be-Bop 2 Hip-Hop (4:53)
-04. JFB, Beardyman - Swing Ya Beard (4:32)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4168DE88A6F2A3D4B1D8AB3A12644C676AF6EAA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526327   (738509) от 24.01.2022
-
-Lamuzgueule - Iceberg Club (2021) [AAC|~326 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stracciatella (Intro) (0:32)
-02. Ice Cream (3:28)
-03. Triple Lutz (3:50)
-04. Marshmallow (3:51)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDBE878C7013B12825D2753AE4155FEC38981A2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526425   (738510) от 24.01.2022
-
-XCOrganizer 1.2.0 [En]
+Image Tricks Pro 3.9.5 [Multi]
 
 >>Программы для macOS
->>Утилиты для macOS
+>>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738510.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737400.jpg" />
 </div>
 
 
 ###  Подробнее
 
-XCOrganizer - это инструмент, который позволяет легко найти любой проект на диске. Просматривайте проекты Xcode, рабочие области Xcode, игровые площадки Swift и пакеты Swift, сгруппированные по типам. Назначьте теги в зависимости от целей проекта. Добавляйте все, над чем вы работаете, в избранное.Тип издания: macOS SoftwareРелиз состоялся: 23.01.2022Разработчик: © 2022 Sergii KryvoblotskyiПоддерживаемая ОС: macOS 10.12.2+Язык интерфейса: Английский
+Image Tricks Pro — это мощное приложение для редактирования фотографий, которое использует фильтры Mac OS X Core Image и композиции Quartz для преобразования ваших любимых фото. Image Tricks Pro также содержит мощный генератор изображений для создания случайных картинок, а также фоторамки для дальнейшего украшения ваших изображений.Тип издания: macOS SoftwareРелиз состоялся: 25.01.2022Разработчик: ©2003–2022 BeLight Software Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F34EC766447225BB896EEA7ADD85B6CA29A8EF40
+magnet:?xt=urn:btih:F43D4674FD96F7865ABF4141D9E51704AF919BFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526331   (738511) от 24.01.2022
+###  Публикация: 1527154   (737401) от 27.01.2022
 
-Swing Republic - Electro Swing Republic (2011) [AAC|~309 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On the Downbeat (3:36)
-02. Peas and Rice (3:16)
-03. Scrub Me Mama with a Boogie Beat (3:24)
-04. Any Old Thing (4:33)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:475A9C98571E25E74D9FC3A83CF1FB6A3A4AFE8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526395   (738512) от 24.01.2022
-
-GoodTask 6.9.3 [Multi/Ru]
+Mirror for Philips TV 2.7.3 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738512.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737401.jpg" />
 </div>
 
 
 ###  Подробнее
 
-У многих из нас каждый день настолько плотный график, такое количество важных задач, которые нужно выполнить, что ненароком, можно о чем-то случайно забыть.
-GoodTask — это элегантная и мощная «напоминалка», которая прекрасно взаимодействует со стандартным приложением Reminders и Календарем. Какую бы заметку вы в нем не оставили, она тут же будет отображаться в GoodTask. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2021Разработчик: © 2021 haha interactiveПоддерживаемая ОС: OS X 10.13+Язык интерфейса: Русский, Английский, Немецкий и другие
+Отображение экрана для телевизоров Philips. Приложения для зеркального отображения экрана вашего Мака на любом Smart TV Philips. Никаких проводов и дополнительных аппаратных средств не требуется. Приложение работает на любой модели Smart TV. Philips с 2012 и позже. При использовании приложения, будет возникать задержка в несколько секунд (обычно между 1 и 3 секундами). (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.01.2022Разработчик: © 2022 | AirBeamTV BVПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:591F69BB25792748AAC84B2202763E849F17458E
+magnet:?xt=urn:btih:088B07FE1847EC751454EB277D7506EBBD55263D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526476   (738513) от 24.01.2022
+###  Публикация: 1527130   (737402) от 27.01.2022
 
-Mirror for Toshiba TV 1.1.3 [En]
+Disk PLUS 1.72 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk PLUS - это комплексная многоцелевая дисковая утилита, которую можно использовать как для очистки диска, так и для восстановления пространства. Как «очиститель» диска, он обнаруживает нежелательные данные из различных трудно обнаруживаемых мест, регулярно очищая, что будет поддерживать ваш Mac в оптимальном состоянии и в хорошем состоянии. Как инструмент восстановления (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.01.2022Разработчик: © 2022 SolutionShare Technologies Private LimitedПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71B0B83BBAE811CF881436AA977A981A32C90FC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527081   (737403) от 27.01.2022
+
+Ethereal Shroud - Trisagion (2021) [FLAC|Lossless|image + .cue] <Black Metal, Funeral Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737403.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Chasmal Fires (27:48)
+2. Discarnate (13:55)
+3. Astral Mariner (22:35)
+4. Lanterns (Bonus Track) (13:38)Жанр: Black Metal, Funeral Doom MetalПродолжительность: 01:17:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2206548B2C610FCB193DEE6BF89F4D30466960E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527039   (737404) от 27.01.2022
+
+VA - Audioholic (Groovy Deep-House Tunes), Vol. 1 (2022) [AAC|~326 Kbps] <House, Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jorgee Ochoa - You and Me (Original Mix) (6:38)
+02. Synapsis - Alluring Force (Riccicomoto's Deep Session) (8:04)
+03. Daniel Altadill - Oh My God (Original Mix) (6:16)
+04. Steven Patrick - In the Night (Original Mix) (4:33)(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:58:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:694A17F4DCACBD8980DBE49EA373C3B3FBE72C6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527101   (737405) от 27.01.2022
+
+Ronnie Laws - Mirror Town (1986) [FLAC|Lossless|tracks + .cue] <Soul-Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737405.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Come To Me 4:49
+2 Misled 5:02
+3 Tell Me 3:41
+4 Mirror Town 4:50(   Читать дальше...   )Жанр: Soul-Jazz, SoulПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0863597F116617791FF7054C8AE93480B3CCBCB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527042   (737406) от 27.01.2022
+
+VA - Furniture Lounge Works, Vol. 1 (2022) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 351 Lake Shore Drive, Genius Jane - September Rain (4:03)
+02. Xemplify - I'm Tired (Acoustic) (6:28)
+03. Inventors Of The Sun - Es vedrà (5:17)
+04. Physical Dreams - Forgiven (7:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C4D75B7B33729E3910D7B468E5DB731714291A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527038   (737407) от 27.01.2022
+
+VA - Balearica (Deep-House Grooves) (2022) [AAC|~307 Kbps] <House, Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beach Coffee Ensemble - Bsospicius Area (Original Mix) (3:02)
+02. Fred Limon - Leave This Way (Lovin' Deep Mix) (3:37)
+03. Modell & Mercier - Kinesiology (Bastogi & Liegi Mix) (5:20)
+04. Solid Groove - Together (London 54's Sunset Mix) (3:43)(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC30DD031B2F457DA09DF175F612297EC59E421F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527241   (737408) от 27.01.2022
+
+Bill Express 1.4 [En]
 
 >>Программы для macOS
->>Утилиты для macOS
+>>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738513.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737408.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отображение экрана для телевизоров Toshiba. Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ Toshiba. Никаких проводов и дополнительных аппаратных средств не требуется. Приложение работает на любой модели Смарт-ТВ Toshiba с 2012 и новее. При использовании приложения, будет возникать задержка в несколько секунд (обычно между 1 и 3 секундами). (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2022Разработчик: © 2022 | AirBeamTV BVПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+Bill Express — это простой инструмент для планирования и отслеживания различных типов счетов, которые вы оплачиваете в течение месяца. С помощью этого приложения вы можете создавать списки просроченных платежей, запланированных платежей и проверять, что уже оплачено. Bill Express сделан, чтобы помочь с этими потребностями. Сделайте свое текущее ежемесячное финансовое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.01.2022Разработчик: © 2022 InspiringLifeПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5CD21B1D8236F6A2B1E795AFC2494C83DF0E3C8F
+magnet:?xt=urn:btih:C8119C1513C50BAA4B56A3BD290C9BF30E334503
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526322   (738514) от 24.01.2022
+###  Публикация: 1527129   (737409) от 27.01.2022
 
-Bart&Baker - More Electro Swing Stories (2016) [AAC|~316 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bart&Baker, George Bangable, Sax By C. Sharp - Der Tag (Extra Medium Remix) (4:10)
-02. Bart&Baker, Marcella Puppini - Stop Googling Me! (Bost & Bim Dub Remix) (4:00)
-03. Bart&Baker, David Costa Coehlo - Just Click (Dr Cat Remix) (3:23)
-04. Bart&Baker, Carole Gireaud - Danke Schoen (La Comtesse Remix) (4:30)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 01:08:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B33107D0E4920CBE911164896975F6B672104C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526373   (738515) от 24.01.2022
-
-VA - Sidewalk Bistro, Vol. 4 (2022) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luc Forlorn - That Time Again (4:18)
-02. Taste of dream - En Camino (4:33)
-03. Luc Forlorn - Reckless in Manhattan (6:31)
-04. Peter Pearson - Slow Trip Back (7:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35D6CBFC7902E8AFF0A1892623C8AF9CBC0575A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526321   (738516) от 24.01.2022
-
-Bart&Baker - Electro Swing Stories (2016) [AAC|~325 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bart&Baker, George Bangable, Sax By C. Sharp - Der Tag (Original Version) (6:09)
-02. Bart&Baker, Marcella Puppini - Stop Googling Me! (Bost & Bim Remix) (3:51)
-03. Bart&Baker, David Costa Coehlo - Just Click (Original Version) (3:15)
-04. Bart&Baker, Carole Gireaud - Danke Schoen (Remastered) (5:33)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:58:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12822EFC275E3CAD0B045D8C13F978272470C7D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526410   (738517) от 24.01.2022
-
-Omni Recover 3 v3.1.9 [En]
+Screen Wonders 2.0.0 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738517.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737409.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Omni Recover для macOS позволяет восстанавливать удаленные сообщения, фотографии, чаты WhatsApp и многое другое, независимо от того, на какой стадии ваши данные.
-Не имеет значения по какой причине, но данные iPhone уязвимы для внезапных и случайных бедствий iOS. Например, удаление фотографий на iPhone является постоянным, и когда вы нажимаете для удаления потока (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.01.2022Разработчик: © 2022 MiniCreoПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+Если вам надоели неподвижные картинки на рабочем столе, если вы готовы приветствовать волшебство разных мест по всему миру и даже параллельных вселенных, мы собрали лучшие живые обои в этом приложении. Вам обязательно придется по душе разнообразие тем, времен года и праздничных сцен и это все - Screen Wonders.
+Говорят, красота требует жертв, но вам не о чем беспокоиться, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2022 3PlanesoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C48137FF0E9BEAFF08E2AA825346EE1F65375E2D
+magnet:?xt=urn:btih:A31F0EF81E869006B857B6347C8AAB3A0F499C4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526489   (738518) от 24.01.2022
+###  Публикация: 1527040   (737410) от 27.01.2022
 
-AYBO 1.21.0 [Multi]
+VA - Finest Chill House Tunes (2022) [AAC|~308 Kbps] <House, Chill House, Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gazdabolt - Lucid Dreaming (5:50)
+02. Chiffre 100 - Summer Longing (Radio Mix) (3:48)
+03. Angel Buzz - If You Want To (Instrumental Version) (3:13)
+04. Mono tuned - Sizzling Hot (6:31)(   Читать дальше...   )Жанр: House, Chill House, Deep HouseПродолжительность: 02:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F0BE665A8F12C856EE0419D2AFB298496D9499C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527043   (737411) от 27.01.2022
+
+VA - Exquisit Chillout Taste (2022) [AAC|~295 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wermuth - Intertwining Lives (5:46)
+02. Ace Of Duty - Prerogatives (6:13)
+03. Kodium - Mysterious Essences (5:49)
+04. Eulenspiegel - An Unspoken Thing (5:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75BB0286CB4277401C7D054FB2811118FC1B4989
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527128   (737412) от 27.01.2022
+
+BusyContacts 1.6.4 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738518.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737412.jpg" />
 </div>
 
 
 ###  Подробнее
 
-С AYBO вы можете выполнять любые расчеты, конвертировать единицы измерения, конвертировать валюту, проверять погоду, устанавливать таймеры, строить графики, решать простые уравнения. Вы даже можете создавать свои собственные команды.Тип издания: macOS SoftwareРелиз состоялся: 24.01.2022Разработчик: © 2020-2021 Sergiy LavrykПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский и др.
+BusyContacts является менеджером контактов для OS X, что позволяет создавать, находить и управлять контактами более быстрым и эффективным способом.
+BusyContacts приносит в управление контактами те же возможности, мощность, гибкость, а также обмен ими, что и для пользователей BusyCal в управлении своими календарями. Более того, BusyContacts интегрируется с BusyCal (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.01.2022Разработчик: © 2007-2022 Busy AppsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:383AF694A4D3C7AE6F7A60305FCE0D3463756DC8
+magnet:?xt=urn:btih:9EB39D808B5B5EB3724A87216F2CDABBB1B290AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526369   (738519) от 24.01.2022
+###  Публикация: 1527061   (737413) от 27.01.2022
 
-VA - Sidewalk Bistro, Vol. 3 (2016) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Florito - Nambuco (7:15)
-02. Emelie Christiansson - Sunday Song (3:25)
-03. Urban Phunk Society - Shadow Play (3:11)
-04. Peter Pearson - All Phased Out (5:02)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1328FBB3663BCC0CCA48AF6C70E8BECE35CE729
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526366   (738520) от 24.01.2022
-
-VA - Sidewalk Bistro, Vol. 2 (2015) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steven Solveig - Sealife (3:19)
-02. Florito - 90 Degrees Fahrenheit (3:59)
-03. Beatgroove - La Piazza (5:07)
-04. Ingo Herrmann - Walking Away (4:11)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:02:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:313D7CAD5F6211C16F0D8446BF4E25EDDB53BBED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 678135   (738525) от 12.05.2014
-
-Франклин и Бэш / Компаньоны  / Franklin & Bash (2013) WEB-DLRip (Сезон 3 / Серии 1-10 из 10) To4ka
+NetWorker Pro 8.2.4 [Multi]
 
 >>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738525.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737413.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Двое молодых, уличных адвоката, после выигрыша крупного дела над легендарной юридической фирмой были приняты на работу её основателем, однако из-за его неэтичного поведения адвокаты постоянно оказываются в неприятностях.Жанр: комедияРежиссер: Джейсон Энслер, Стив РобинАктеры: Брекин Мейер, Стефани Карпентьери, Клэр Коффи, Майкл Ковингтон, Карина Родригез, Марк-Пол Госселаар, Рид Даймонд, Дэна Дэвис, Гарсель Бове, Кумэйл Нанджиани и др.Перевод: Многоголосый закадровый, любительский - To4kaОзвучка: Александр Нелюбин, Александр Галушко, Ирина Грачева и Марина КомчаруковаФормат: AVIПродолжительность: ~00:42:00 серия
+NetWorker - это приложение, которое удобно отображает информацию о сети в строке меню. А также имеет окно с дополнительной информацией о текущем активном сетевом адаптере.Тип издания: macOS SoftwareРелиз состоялся: 26.01.2022Разработчик: © 2016-2022 Sascha SimonПоддерживаемая ОС: macOS 11.5+Язык интерфейса: Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:04E774E178C4CCE0A9E182F269EDFECFA90CA113
+magnet:?xt=urn:btih:8A02F6495F715F104914E93663217CA37632A8B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 785511   (738526) от 12.05.2014
+###  Публикация: 1527065   (737414) от 27.01.2022
 
-Горько! (2013) BDRip
-
->>След.
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наташа и Рома решают провести сразу две свадьбы: одну в русской традиции - для консервативных родителей и родных, а вторую в европейском стиле – для себя и друзей. Но по нелепой случайности оба торжества сливаются воедино...Жанр: Комедия, приключенияРежиссер: Жора КрыжовниковАктеры: Сергей Светлаков, Юлия Александрова, Егор Корешков, Ян Цапник, Данила Якушев, Юлия Сулес, Елена Валюшкина, Александр Паль, Сергей Лавыгин, Анастасия Добахова, Валентина Мазунина, Владимир Тебенко, Евгений Кушпель, Василий Кортуков, Максим КазаковПродолжительность: 01:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90F3A91335A54DCE17597F3EF3ADFEBFDBD5CB98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 785918   (738533) от 12.05.2014
-
-Голодные игры: И вспыхнет пламя / The Hunger Games: Catching Fire (2013) BDRip [720p] [IMAX] [hand made 60fps]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сумев выжить на безжалостных Голодных играх, Китнисс Эвердин и Пит Мелларк возвращаются домой. Но теперь они в еще большей опасности,так как своим отказом играть по правилам на Арене бросили вызов Капитолию. По традиции следующие, юбилейные, Голодные игры должны стать особенными, и в этот раз в них участвуют только победители прошлых лет. Китнисс и Пит вынуждены (   Читать дальше...   )Производство: США / Color Force, LionsgateЖанр: Фантастика, Боевик, Триллер, ПриключенияРежиссер: Френсис ЛоуренсАктеры: Дженнифер Лоуренс, Джош Хатчерсон, Сэм Клафлин, Джена Мэлоун, Вуди Харрельсон, Элизабет Бэнкс, Лиам Хемсворт, Дональд Сазерленд, Филип Сеймур Хоффман, Стэнли ТуччиПеревод: Профессиональный (полное дублирование)Язык субтитров: Русский (полные) + Английский (полные)Продолжительность: 02:26:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A42C259EFEE04EFC1F347B04E1D04C9B1DC29130
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 671079   (738534) от 12.05.2014
-
-Особо Опасные Преступления / Особо тяжкие преступления / Major Crimes (2013) WEB-DLRip / HDTVRip (Сезон 2  /  Серии 1-19 из 19) DreamRecords
+System Toolkit 5.2.4 [Multi]
 
 >>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738534.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737414.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Продолжение сериала «Ищейка». После увольнения Бренды Ли Джонсон руководство Отделом особо опасных преступлений полиции Лос-Анджелеса берёт в свои руки капитан Рэйдор. Однако героине предстоит работать в команде, которая заранее испытывает к ней антипатию — ведь антипатию к ней всегда испытывала шеф Джонсон.Жанр: Драма, Криминал, ДетективРежиссер: Дэвид МакУиртер, Стив РобинАктеры: Дж. У. Бейли, Грэхэм Патрик Мартин, Мэри МакДоннелл, Энтони Джон Дэнисон, Майкл Пол Чан, Рэймонд Крус, Филлип П. Кин, Кирран Джованни. Джонатан Дель Арко, Рэнсфорд Доэрти и др.Перевод: Двуголосый закадровый, профессиональный - DreamRecordsОзвучка: Владимир Чистохин, Маргарита РемейкайтеФормат: AVIПродолжительность: ~00:43:00 серия
+System Toolkit - приложение «все-в-одном» для мониторинга информации и профилактики, разработанное для macOS.Тип издания: macOS SoftwareРелиз состоялся: 26.01.2022Разработчик: © 2017-2022 Sascha SimonПоддерживаемая ОС: macOS 11.5 +Язык интерфейса: Английский, Немецкий, Упрощенный Китайский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A14CE47B5D4B23D357037DC5D1223F4AB714748
+magnet:?xt=urn:btih:46CE8C9F7A286BE1EE79B60E10F3120F72E27E5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 785563   (738537) от 12.05.2014
+###  Публикация: 494141   (737415) от 22.07.2020
 
-Горько! (2013) BDRip  [H.264]
+VA - Trance In Motion vol 001-281 (2009-2019) [MP3|~182-320 кб/с]<Trance, Vocal Trance, Progressive Trance>
 
->>Отечественное кино
->>Отечественные Фильмы (SD)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738537.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_737415.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Прогрессивные и талантливые Наташа и Рома мечтают о европейской свадьбе на берегу моря… но у Наташиного отчима заготовлен другой сценарий. Грубый чиновник городской администрации рассматривает торжество как трамплин для собственной карьеры и стремится устроить все «как надо». Молодых ждет незабываемый вечер в ресторане «Золотой» с полным набором занудных обрядов. (   Читать дальше...   )Жанр: Комедия, ПриключенияРежиссер: Жора КрыжовниковАктеры: Сергей Светлаков, Юлия Александрова, Егор Корешков, Ян Цапник, Данила Якушев, Юлия Сулес, Елена Валюшкина, Александр Паль, Сергей Лавыгин, Анастасия Добахова, Валентина Мазунина, Владимир Тебенко, Евгений Кушпель, Василий Кортуков, Максим КазаковПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:40:43
+01. Dirkie Coetzee - Adagio For S'trings (Extended Mix)
+02. Exouler - Maria (Extended Mix)
+03. Driftmoon - New Dawn (Extended Mix)
+04. Shedona - Anubis (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Vocal TranceПродолжительность: 402:59:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5EC2179F73605214AB27E1443935E328A190E597
+нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 785837   (738552) от 12.05.2014
+###  Публикация: 1397715   (737416) от 22.07.2020
 
-Куда уходит любовь (2014) SATRip
+Мой создатель / Archive (2020) WEB-DLRip [H.264]
 
->>Отечественное кино
->>Отечественные Фильмы (SD)
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738552.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737416.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В жизни Натальи царит гармония и благополучие. Героиня работает учительницей в школе, счастливо замужем вторым браком за бизнесменом Стасом, а ее сын Ваня учится в институте.Но за счастливым фасадом кроются тайны, которые не удастся скрывать вечно. Однажды Наталья узнаёт, что муж ведет двойную жизнь и за ее спиной встречается с другой женщиной. Героиня шокирована (   Читать дальше...   )Производство: Россия, кинокомпания «Русское»Жанр: МелодрамаРежиссер: Андрей СеливановАктеры: Мария Куликова, Сергей Астахов, Евгений Сидихин, Илья Коробко, Марина Волкова, Александр Левин (II), Людмила ЧирковаПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:34:42
+2046-ой год. Время невероятных технологических открытий, могущественных корпораций и торжества искусственного интеллекта.
+Молодой ученый в секретной лаборатории занимается поиском вечной жизни для сильных мира сего. Но его истинная цель другая. Он пытается воскресить свою единственную любовь, погибшую несколько лет назад.
+Когда объект перестает выходить на связь, (   Читать дальше...   )Производство: Великобритания, Венгрия, США / Head Gear Films, Hero Squared, IndependentЖанр: фантастикаРежиссер: Гэвин РотериАктеры: Тео Джеймс, Рона Митра, Тоби Джонс, Стэйси Мартин, Питер Фердинандо, Ричард Гловер, Ханс Петерсон, Джереми Вилер, Timea Maday KingaПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: Русские (форс.), английские (Full, SDH)Продолжительность: 01:49:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4678DB710EEB76015F1AD53C1DA9462F6A3C306
+magnet:?xt=urn:btih:CDECC82211FEF0E8F1A862D05AA978F69377AB3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482476   (737417) от 22.07.2020
+
+Земляне / Earthlings (2003/2005) DVDRip [Extended]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_737417.jpg" />
+</div>
+
+
+###  Подробнее
+
+“Земляне” — отмеченный несколькими наградами документальный фильм об эксплуатации животных для получения пищи, одежды, домашних питомцев, развлечений и медицинских экспериментов. Являясь, по мнению многих людей, “самым убедительным документальным фильмом”, “Землян” еще называют “создателем веганов” за его сострадательные съемки сцен из животных приютов, питомников, (   Читать дальше...   )Производство: СШАЖанр: ДокументальныйРежиссер: Шон МонсонПеревод: Одноголосый закадровый, профессиональныйСубтитры: нетПродолжительность: 02:12:05 (новая версия, длиннее почти на 40 минут)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397688   (737418) от 22.07.2020
+
+Мой создатель / Archive (2020) WEB-DLRip [MVO]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_737418.jpg" />
+</div>
+
+
+###  Подробнее
+
+2046-ой год. Время невероятных технологических открытий, могущественных корпораций и торжества искусственного интеллекта.
+Молодой ученый в секретной лаборатории занимается поиском вечной жизни для сильных мира сего. Но его истинная цель другая. Он пытается воскресить свою единственную любовь, погибшую несколько лет назад.
+Когда объект перестает выходить на связь, (   Читать дальше...   )Производство: Великобритания, Венгрия, США / Head Gear Films, Hero Squared, IndependentЖанр: фантастикаРежиссер: Гэвин РотериАктеры: Тео Джеймс, Рона Митра, Тоби Джонс, Стэйси Мартин, Питер Фердинандо, Ричард Гловер, Ханс Петерсон, Джереми Вилер, Timea Maday KingaПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: ОтсутствуютПродолжительность: 01:49:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242953   (737419) от 22.07.2020
+
+Доктор Стрэндж / Doctor Strange (2016) BDRip [H.265/1080p] [10 bit] [PR]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_737419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стивен Стрэндж работает нейрохирургом в районной поликлинике. В течение многих лет он успешно избавляет человеческие тела от ненужных им органов и инородных предметов, вытаскивая людей буквально с того света. В результате страшной автокатастрофы доктор получает травмы, несовместимые с его профессиональной деятельностью. Поиски исцеления приводят его в Непал к могущественному (   Читать дальше...   )Производство: США, Marvel Studios Inc.Жанр: Фантастика, Боевик, ПриключенияРежиссер: Скотт ДерриксонАктеры: Бенедикт Камбербэтч, Тильда Суинтон, Мадс Миккельсен, Чиветел Эджиофор, Рэйчел МакАдамс, Бенедикт Вонг, Майкл Стулбарг, Бенджамин Брэтт, Скотт Эдкинс, Зара ПитианПеревод: Дублированный (Лицензия)Субтитры: Русские (форсированные, полные)Продолжительность: 01:54:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 169964   (737420) от 22.07.2020
+
+Не хлебом единым (2005) DVDRip
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_737420.jpg" />
+</div>
+
+
+###  Подробнее
+
+1947 год. Небольшой промышленный городок, выросший вокруг крупного сталелитейного комбината. Первые послевоенные годы. Они встретились в школе, она преподавала английский язык, он учил детей физике. Она была женой директора комбината генерала Дроздова, он мечтал о том, что построит новую труболитейную машину, такую, какую до него ещё никто не изобретал.
+Она увлекается (   Читать дальше...   )Производство: Россия, МосфильмЖанр: ДрамаРежиссер: Станислав ГоворухинАктеры: Михаил Елисеев, Светлана Ходченкова, Виктор Сухоруков, Алексей Петренко, Валентина Березуцкая, Варвара Шулятьева, Александр Розенбаум, Евгений Гришковец, Владимир Семаго, Виктор БорцовПродолжительность: 01:52:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 657715   (737421) от 22.07.2020
+
+Голубая лагуна / The Blue Lagoon (1980) BDRemux [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Страшное кораблекрушение, счастливое спасение и необитаемый остров положили начало одной из самых красивых и трогательных историй о любви. Долгие годы юная пара живет на прекрасном тропическом острове. Но по мере того, как они взрослеют, в их сердцах зарождается возвышенная, красивая, как окружающий мир, любовь.Производство: США / Columbia PicturesЖанр: Драма, Мелодрама, ПриключенияРежиссер: Рэндал КлайзерАктеры: Брук Шилдс, Кристофер Аткинс, Лео МакКерн, Уильям Дэниелс, Элва Джозефсон, Гленн Коэн, Алан Хопгуд, Гас Мёркюрио, Джефри Клайзер, Брэдли ПрайсПеревод: Дублированный, Многоголосый (3 вида), ОдноголосыйСубтитры: Русские, АнглийскиеПродолжительность: 01:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:136F7F3F3980261FAD48626AFCF06BB867C3C99A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397661   (737422) от 22.07.2020
+
+В России предлагают создать интернет-полицию и интернет-прокуратуру
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_737422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый заместитель председателя Комиссии Общественной палаты по экспертизе общественно значимых законопроектов и иных правовых инициатив Артём Кирьянов предложил создать интернет-прокуратуру и интернет-полицию. Об этом 20 июля сообщает РИА «Новости» .«Во Франции создана специальная должность прокуроров по Интернету. И надо сказать, что мне, в общем, как юристу нравится (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

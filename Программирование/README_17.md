@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8D987C281556C8EF25ABE15C3A13022167156C0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:8D987C281556C8EF25ABE15C3A13022167156C0F
 ```bash
 magnet:?xt=urn:btih:5BC6F0ECC05C49AEEDBEEA45EB141204224E3B4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:5BC6F0ECC05C49AEEDBEEA45EB141204224E3B4E
 magnet:?xt=urn:btih:A1C9703D604A802EA9608FF1C881297A3ADFFDC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:A1C9703D604A802EA9608FF1C881297A3ADFFDC7
 magnet:?xt=urn:btih:F52232B4D3FA04921A22C08FD420A0B8444C237E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:F52232B4D3FA04921A22C08FD420A0B8444C237E
 ```bash
 magnet:?xt=urn:btih:4EC00D40D57FA4CACCD3B75BC33F7830A43B4314
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:4EC00D40D57FA4CACCD3B75BC33F7830A43B4314
 magnet:?xt=urn:btih:22CD75826911DA5191D18BC55D25AEB65866741B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Cliff Sharif | Game Development with Unreal Engine 5 (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:A38774838214CC324FFEB5CEBF19BAC7A5EEAC7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:A38774838214CC324FFEB5CEBF19BAC7A5EEAC7B
 magnet:?xt=urn:btih:B27E4B6916532CAE595E47E4D65D7572109EDC97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Qaifi Khan | ReactJS for Jobseekers: The Only Guide You Need to Learn React and 
 ```bash
 magnet:?xt=urn:btih:A3634F509F99B686630FC1EBC946E92425330E55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Sulekha AloorRavi | Metaprogramming with Python (2022) [PDF][EN]
 magnet:?xt=urn:btih:B0AC413B13B1FFCF5287130AFF7F9C3A32C48531
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ David Tschumperle, и др. | Digital Image Processing with C++ (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:82013087BFBA75C1A63D569140BFAF55FB3E3EE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:82013087BFBA75C1A63D569140BFAF55FB3E3EE6
 magnet:?xt=urn:btih:BF59ADF521C43E04645289BC36A90B48F9DD05BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:BF59ADF521C43E04645289BC36A90B48F9DD05BB
 ```bash
 magnet:?xt=urn:btih:2E60BFD9B13718A59E5EBB459367BA803BDBB807
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:2E60BFD9B13718A59E5EBB459367BA803BDBB807
 magnet:?xt=urn:btih:632E2FE5A8CFE2299B56A299E73939A6B5255A38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:632E2FE5A8CFE2299B56A299E73939A6B5255A38
 ```bash
 magnet:?xt=urn:btih:1CC9011010113C039657405D2E8E83A42BC1A066
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Andreas Wittig | Amazon Web Services in Action, Third Edition: An in-depth guide
 magnet:?xt=urn:btih:FCF5204FFA2D15A2C326236AE1E28E64F26666D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ C++ - это язык, не похожий ни на один другой, уд
 magnet:?xt=urn:btih:4B5E581CAC4FD31ED3A92449737A9DA8433BC831
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Valerio De Sanctis | ASP.NET Core 6 and Angular: Full-stack web development with
 magnet:?xt=urn:btih:E9D37564DF0FD86970A609702331A66498A805BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ An Atypical ASP.NET Core 6 Design Patterns Guide, Second Edition подходи�
 ```bash
 magnet:?xt=urn:btih:91C58A08E72A441F1CC69ED4C578BD5F42FA2EDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Trevoir Williams | Microservices Design Patterns in .NET: Making sense of micros
 magnet:?xt=urn:btih:33C7BE9595D8B452282B1DB306037122DA7B1F9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Malhar Lathkar | High-Performance Web Apps with FastAPI (2023) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:8B970F942688D37BA3FBBA4BEB203B2A3D7DE639
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Blazor - это незаменимый инструмент, если вы хо�
 magnet:?xt=urn:btih:5201FC0A76EF47A6B440B2B2C9347E66FDAD67D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:5201FC0A76EF47A6B440B2B2C9347E66FDAD67D7
 ```bash
 magnet:?xt=urn:btih:E45388AAB55F5166FD3656531B891A31A5C037CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:E45388AAB55F5166FD3656531B891A31A5C037CF
 magnet:?xt=urn:btih:1046A629EBF683F76518E602216F69307CE0A8A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Aristeidis Bampakos | Learning Angular: A no-nonsense guide to building web appl
 magnet:?xt=urn:btih:C9DD7E1F88AB2A6D542EA50B61E4731255F32612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:C9DD7E1F88AB2A6D542EA50B61E4731255F32612
 ```bash
 magnet:?xt=urn:btih:C871CDEEB3EFD55CFC11898B838EAB6F6588AD63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 945032   (436168) от 09.10.2015
+
+Александр Буйнов - Место Встречи на HOROSHEE.FM с Валентином Малюговым (2015) [MP3|128 кб/с]<Поп, Интервью>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436168.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Две жизни
+2. В Париже ночь
+3. А ты мне не даёшь
+4. Нам с тобою по пути(   Читать дальше...   )Жанр: Поп, ИнтервьюПродолжительность: 00:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2D60AF439003F184D2AF3C40C393E1FAE089E1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 554730   (436310) от 01.10.2012
 
 VA - Инструментальная музыка (2012) vol. № 89 [MP3|320 кб/с]<Instrumental>
@@ -28,6 +57,8 @@ VA - Инструментальная музыка (2012) vol. № 89 [MP3|320 �
 magnet:?xt=urn:btih:FF810C555BF7F2EBB516F077A4C587CA4A9AC05D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +85,8 @@ VA - 100 Лучших трэков в стиле Европа Плюс (2017) [M
 ```bash
 magnet:?xt=urn:btih:09D4B487CFA325D3C4F2F7973499A17FE2405526
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -88,6 +121,8 @@ VA - Радио Energy - NRJ HOT30 (30.09.2012) [MP3|320 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:D30248092811B4CB95781407512545B8B84AD9F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +149,8 @@ magnet:?xt=urn:btih:D30248092811B4CB95781407512545B8B84AD9F6
 ```bash
 magnet:?xt=urn:btih:343AA32D8D4FD95218902B4885ACC2AC537B16AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +185,8 @@ VA - 100 пудовый хит. Русский выпуск (2012) [MP3|256 кб
 magnet:?xt=urn:btih:3E60C56242BE874798E0673A7156651FE73AA03B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +219,8 @@ VA - Relax FM (29.09.2012) [MP3|320 кб/с]<Relax, Ballads>
 ```bash
 magnet:?xt=urn:btih:A357856BC62C831C03C5230712AA356436AFE81B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +255,8 @@ VA - Новинки сезона №2 Русский (2012) [MP3|320 кб/с]<Po
 magnet:?xt=urn:btih:AE889EAFF07C1766EFA4250FDA21E282AB51D6C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +290,8 @@ VA - US TOP40 Single Charts (29.09.2012) [MP3|234-320 кб/с]<Pop>
 magnet:?xt=urn:btih:4974598F3CDCF83104934F63480F542E780B88F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +318,8 @@ VA - Любимые песни (2014) [MP3|320 кб/с]<Русский рок, �
 ```bash
 magnet:?xt=urn:btih:F025402F69CBDBC53BE898F8A3A504AB1C738DAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +348,8 @@ VA - Horror Sky: Dub Hardcore Set (2017) [MP3|320 Kbps] <Dub Hardcore, Hard Elec
 magnet:?xt=urn:btih:762E92A8F080DE110127F2663AE490EE0145D5FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +376,8 @@ VA - 100 Soul Jazz (2016) [MP3|320 Kbps] <Jazz, Soul, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:D2E59EC292ACF77167A8A8C5E76E9C71ED973EC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +406,8 @@ VA - Empire Records - Chill Out 12 (2017) [MP3|320 Kbps] <Chillout, Lounge, Down
 magnet:?xt=urn:btih:D90A90E3780D7231BC76AF9DB55CE99615F96AA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +434,8 @@ VA - Beatport Top 100 EDM Songs & DJ Tracks September (2016) [MP3|320 Kbps] <Hou
 ```bash
 magnet:?xt=urn:btih:C582C599D15E78884DD1B96A96A163086F7EE615
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +470,8 @@ VA - Whisper of Consciousness Volume 30 (2012) [MP3|320 кб/с]<Uplifting Tranc
 magnet:?xt=urn:btih:751B01B5A246EE8DBF6BBC50039946520270CC26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +498,8 @@ VA - German Top 100 Single Charts 21.09.2018 (2018) [MP3|320 Kbps] <Pop, Rap>
 ```bash
 magnet:?xt=urn:btih:C517535E09A33BBF0574B831036E15CE82EECD26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +528,8 @@ VA - не Громкие новинки недели 33 (2019) [MP3|320 Kbps] <P
 magnet:?xt=urn:btih:561CD335116FD202150B0DF6D9B1CDC000E1B333
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +556,8 @@ VA - Всё сразу 200 хитов Выпуск 9 (2015) [MP3|128-320 кб/с
 ```bash
 magnet:?xt=urn:btih:E1F4397182B5E983006976F0C6D60729F8E2C864
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +586,8 @@ VA - Super Dance (2014) [MP3|320 кб/с]<Dance, Club, Progressive, House>
 magnet:?xt=urn:btih:22FEAC046F79D8C8DFCCA61A2A3479A1AF8E27A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +614,8 @@ VA - German Top 50 Official Dance Charts 30.08.2019 (2019) [MP3|320 Kbps] <Pop, 
 ```bash
 magnet:?xt=urn:btih:60F5B6BEFA850BCCBE9AE16F7B72793E13F9A555
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +644,8 @@ VA - Italo & Space Disco Vol.1 (2015) [MP3|320 кб/с]<Italo Disco , Syhtnpop>
 magnet:?xt=urn:btih:534F4A53FEBC9FAA66BA9D434BA9675D13F861B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +672,8 @@ VA - Зайцев.нет Лучшие новинки Сентября (2020) [MP
 ```bash
 magnet:?xt=urn:btih:29A518058E55B076970AF66AD27271D282BE40FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +708,8 @@ VA - Лучший шансон: Ты кричи, моя душа 4 (2011) [MP3|1
 magnet:?xt=urn:btih:62B773A768838679E9FBFB0A515A10F0303B43AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +736,8 @@ DJ ICE - Summer The End 2014 Mix (2014) [MP3|320 кб/с]<Deep House, Vocal Hous
 ```bash
 magnet:?xt=urn:btih:72C341098C56E80B3467B06D2FC25233A559B137
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -691,6 +766,8 @@ VA - Deep City Nights Los Angeles 30 Deep House Tunes (2015) [MP3|320 кб/с]<D
 magnet:?xt=urn:btih:A887D863B9256EA95E2D895733AC4C5EDC5EC902
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -718,38 +795,7 @@ VA - Say Love - Finest Chillout & Lounge Music (2015) [MP3|320 кб/с]<Downtemp
 magnet:?xt=urn:btih:5773FCA2BC90A41636F9EE5F030884F10665DEDF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553406   (438485) от 30.09.2012
-
-VA - TOP 100 Зайцев.нет (04.09.2012) [MP3|128 - 320 кб/с]<Pop, Chanson, Rock, Dance, Club, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438485.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alexey Romeo & Smoky Mo aka Mozi - На своей волне (Radio mix) (3:42)
-2. Skrillex feat. Sirah - Bangarang (3:35)
-3. Loreen - Euphoria (3:01)
-4. Семен Слепаков - Чисто гипотетически (5:10)
-5. Подиум - Танцуй пока молодая девочка Рая (3:30)
-6. Oceana - Endless Summer (hymn Euro) (3:15)
-7. Clara Lago - La cama (OST Три метра над уровнем неба 2: Я тебя хочу) (2:53)
-8. Fly Project - Musica (Radio Edit) (3:39)
-9. 5sta Family - Вместе Мы (Prod by T.Y.) (3:40)
-10. Нюша - Воспоминание (3:39)(   Читать дальше...   )Жанр: Pop, Chanson, Rock, Dance, Club, RapПродолжительность: 08:08:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6146FBF6C7C33060DFA09F66B63458305938C6FB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

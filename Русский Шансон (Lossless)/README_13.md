@@ -22,6 +22,8 @@ VA – Три года ночному такси (1997) [FLAC|Lossless|tracks + 
 magnet:?xt=urn:btih:ECCD5842546EED8F9AC468785D340E94862E16C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Чисто за жизнь-сходка 2 (1998) [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:D07CCC495804B26147FEADB5751EA015F0DEB766
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Группа Малолетка - Песни высшей пробы (2010)
 magnet:?xt=urn:btih:8656AFAF92D1B9DF5B40EA7D4938CED1524FBD9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Попутчик (Группа М. Круга) - Песни высшей п
 ```bash
 magnet:?xt=urn:btih:BB25191EE0DB78A0EFCD2423DADC731FB667848C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:BB25191EE0DB78A0EFCD2423DADC731FB667848C
 magnet:?xt=urn:btih:9F9D6AE5D27D99A0DAF428756962B1CFB499B664
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:9F9D6AE5D27D99A0DAF428756962B1CFB499B664
 ```bash
 magnet:?xt=urn:btih:A1D58B6BC900916684F032D078AF9731B0DBC3BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:A1D58B6BC900916684F032D078AF9731B0DBC3BA
 magnet:?xt=urn:btih:72A331ED72739ED8F06FB34D9FC47E4A92B023A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:72A331ED72739ED8F06FB34D9FC47E4A92B023A4
 ```bash
 magnet:?xt=urn:btih:453AD710240CE25D3F5577C9972BFB5962BF3ED0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ CD1
 magnet:?xt=urn:btih:74E5D79132576AB0316F07F9C499F92AE6153501
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:74E5D79132576AB0316F07F9C499F92AE6153501
 ```bash
 magnet:?xt=urn:btih:346C635F2EFF9CB72747E4E0BCA2C033ACAAEB93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ magnet:?xt=urn:btih:346C635F2EFF9CB72747E4E0BCA2C033ACAAEB93
 magnet:?xt=urn:btih:CA76E25BAB60430506A65D20C7E292984F9334CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Балаганчик 2 (2000) [FLAC|Lossless|tracks + .cue]<Шансон>
 ```bash
 magnet:?xt=urn:btih:1E95F234BE1634CC625F179DBBB5740179028801
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ magnet:?xt=urn:btih:1E95F234BE1634CC625F179DBBB5740179028801
 magnet:?xt=urn:btih:79B97AB32E719A5F15D224ACAA2A0992C2357FCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ magnet:?xt=urn:btih:79B97AB32E719A5F15D224ACAA2A0992C2357FCE
 ```bash
 magnet:?xt=urn:btih:D8700B89E8564D873D974B4AF1422C2AE56433A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ magnet:?xt=urn:btih:D8700B89E8564D873D974B4AF1422C2AE56433A4
 magnet:?xt=urn:btih:63198382FF7020B2B642D3DB8589D6FA67529D61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ magnet:?xt=urn:btih:63198382FF7020B2B642D3DB8589D6FA67529D61
 ```bash
 magnet:?xt=urn:btih:7643F1E5DF1E725985C61D220C4E096122FAB5B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Золотые Баллады Шансона (2003)(5CD)[FLAC|Lossless|imag
 magnet:?xt=urn:btih:B8E6D33A6920E6C4BD720392E0A43EB431AD7842
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ magnet:?xt=urn:btih:B8E6D33A6920E6C4BD720392E0A43EB431AD7842
 ```bash
 magnet:?xt=urn:btih:779D47FDAC947F21CE2F4008803C5C6138DB06F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ magnet:?xt=urn:btih:779D47FDAC947F21CE2F4008803C5C6138DB06F9
 magnet:?xt=urn:btih:11D9845B8239B5DDED0341BAD28C2CDDA24D11DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ magnet:?xt=urn:btih:11D9845B8239B5DDED0341BAD28C2CDDA24D11DC
 ```bash
 magnet:?xt=urn:btih:9EDFFF499E8D6564B9AA7268F9DDBAB0198987B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ VA - Шансон блатной (2001) [FLAC|Lossless|tracks + .cue]<Шансо
 magnet:?xt=urn:btih:815045E034993B7357218135885E9C22389BEC26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ magnet:?xt=urn:btih:815045E034993B7357218135885E9C22389BEC26
 ```bash
 magnet:?xt=urn:btih:7601A8A78855A515038E3ECB70F8457B87B7383A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ magnet:?xt=urn:btih:7601A8A78855A515038E3ECB70F8457B87B7383A
 magnet:?xt=urn:btih:888764304E94E6959D5231E20316B0EB5D125515
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ magnet:?xt=urn:btih:888764304E94E6959D5231E20316B0EB5D125515
 ```bash
 magnet:?xt=urn:btih:48CE4C26AE8E42A89CCB7E8FE470EB7F6ACEB3B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ magnet:?xt=urn:btih:48CE4C26AE8E42A89CCB7E8FE470EB7F6ACEB3B8
 magnet:?xt=urn:btih:BCCFB96DEBA4276B4EBA69D591F9D2D757AB7B59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ magnet:?xt=urn:btih:BCCFB96DEBA4276B4EBA69D591F9D2D757AB7B59
 ```bash
 magnet:?xt=urn:btih:D563AA7DFF3E21EA6D28C35D2A1CAE321D1B5329
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1462079   (1021415) от 12.04.2021
+
+Кристофер Раули | Мастер боя (2021) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обедневший аристократ случайно находит древний артефакт, внутри которого обнаруживается нечто живое. Он нанимает молодого ученого Каролину Риз, чтобы разобраться с находкой. Граф не догадывается, что, оживив древнее существо, подписывает смертный приговор и себе, и, возможно, всему человечеству, ибо Мастер Боя – уникальная паразитическая форма жизни – практически (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 11:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8571B492E7193DBDB9097B85F4BB93EEEDFD53F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462008   (1021426) от 12.04.2021
 
 Герман Романов | Линия Сталина. «Колыбель» Победы. Книга 2 (2021) [MP3]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:EC1D0470ABD5F23107CC6F2900D6EDD38C7DC815
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:EC1D0470ABD5F23107CC6F2900D6EDD38C7DC815
 magnet:?xt=urn:btih:0DBECE8E53A6614A5172383C5CAC5C455EF72C76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:0DBECE8E53A6614A5172383C5CAC5C455EF72C76
 magnet:?xt=urn:btih:C18B9830747FF449C4E0170AC2C128D03E47B42F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:C18B9830747FF449C4E0170AC2C128D03E47B42F
 ```bash
 magnet:?xt=urn:btih:4B25034A362AFC96E05F2B0CF375CE217ACD1F4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:4B25034A362AFC96E05F2B0CF375CE217ACD1F4E
 magnet:?xt=urn:btih:D98AC9B3B4433D5C300BAB713204C45CDD6B879E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:D98AC9B3B4433D5C300BAB713204C45CDD6B879E
 magnet:?xt=urn:btih:09E96C94E03662B7E58F9FFC405791DEBE654503
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:09E96C94E03662B7E58F9FFC405791DEBE654503
 ```bash
 magnet:?xt=urn:btih:0EDD6CFE552ECD26B036274CC786E14BF6BA22A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +234,8 @@ magnet:?xt=urn:btih:0EDD6CFE552ECD26B036274CC786E14BF6BA22A4
 magnet:?xt=urn:btih:97E061B2513D54932E1E178787460C4536B9AF74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:97E061B2513D54932E1E178787460C4536B9AF74
 ```bash
 magnet:?xt=urn:btih:4BD2C865C322B9211093F9C292F553EEB12C3D3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +289,8 @@ magnet:?xt=urn:btih:4BD2C865C322B9211093F9C292F553EEB12C3D3E
 magnet:?xt=urn:btih:6620384FBAB4F622CE02C92908D88BE37328D1C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +314,8 @@ magnet:?xt=urn:btih:6620384FBAB4F622CE02C92908D88BE37328D1C8
 ```bash
 magnet:?xt=urn:btih:5DDD67FF6FFB3840CA946480DEAD72CC286B1EAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:5DDD67FF6FFB3840CA946480DEAD72CC286B1EAD
 magnet:?xt=urn:btih:CC1840F7AAC32CC3CF562BA0C9621394588EAABA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +367,8 @@ magnet:?xt=urn:btih:CC1840F7AAC32CC3CF562BA0C9621394588EAABA
 magnet:?xt=urn:btih:53E7830C238CC5F2AFB71B2E50A1FB1B869DF246
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +392,8 @@ magnet:?xt=urn:btih:53E7830C238CC5F2AFB71B2E50A1FB1B869DF246
 ```bash
 magnet:?xt=urn:btih:E412B100F9E78DF138882D1408C7B6A2F3B709E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +421,8 @@ magnet:?xt=urn:btih:E412B100F9E78DF138882D1408C7B6A2F3B709E1
 magnet:?xt=urn:btih:D5C18D8D1B39A95EADE3DA3069E8ED41ABE53117
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +448,8 @@ magnet:?xt=urn:btih:D5C18D8D1B39A95EADE3DA3069E8ED41ABE53117
 magnet:?xt=urn:btih:526E64285924B5DE0107F2DB4A1EA1A1E793BF4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:526E64285924B5DE0107F2DB4A1EA1A1E793BF4A
 ```bash
 magnet:?xt=urn:btih:E006ECA6A1D957531E5BF7DECE9562EEA0F759E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +500,8 @@ magnet:?xt=urn:btih:E006ECA6A1D957531E5BF7DECE9562EEA0F759E0
 magnet:?xt=urn:btih:C33E8EA30932CD7F3880E8280CAF43D048296E85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:C33E8EA30932CD7F3880E8280CAF43D048296E85
 ```bash
 magnet:?xt=urn:btih:621F115F0B55B4C9FCD312474BAAAD56C0F37263
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:621F115F0B55B4C9FCD312474BAAAD56C0F37263
 magnet:?xt=urn:btih:D76FBB906641C3FEAFDFB5816F0D194516B5EB0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:D76FBB906641C3FEAFDFB5816F0D194516B5EB0E
 magnet:?xt=urn:btih:CFDEB4AE873D8343BED2DB86A0ED42E1227A9C5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:CFDEB4AE873D8343BED2DB86A0ED42E1227A9C5F
 ```bash
 magnet:?xt=urn:btih:ECB1F078B8442AE3CF642F59286DD15726342924
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +633,8 @@ magnet:?xt=urn:btih:ECB1F078B8442AE3CF642F59286DD15726342924
 magnet:?xt=urn:btih:760688179DD3955BCDC172639685789E5D2C356B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +661,8 @@ magnet:?xt=urn:btih:760688179DD3955BCDC172639685789E5D2C356B
 magnet:?xt=urn:btih:43B01E2E405F87EAF406A58DFDCD254828D5DD78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,29 +688,7 @@ magnet:?xt=urn:btih:43B01E2E405F87EAF406A58DFDCD254828D5DD78
 magnet:?xt=urn:btih:3120C8914339513B357F45A2B82373F209EC8824
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460696   (1022436) от 06.04.2021
-
-Йон Айвиде Линдквист | Блаженны мертвые (2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мертвые восстали в Стокгольме! Они выбираются из моргов, могил, больниц. Необъяснимо, невозможно. Люди звонят в полицию в шоке и истерике от встреч с усопшими родственниками, с которыми уже простились. Положение катастрофическое. Премьер-министр Швеции отменяет встречу с Нельсоном Манделой и срочно летит домой. Из представителей министерств, полиции и врачей создается (   Читать дальше...   )Жанр: Мистика, триллеры, ужасыПродолжительность: 12:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:268F669E09FDD589DB9842B8CF91A7FD2E423C33
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

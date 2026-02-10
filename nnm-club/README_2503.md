@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:398D7A661ED8DDA0D2CD8A075B9DEAF5A75754E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:398D7A661ED8DDA0D2CD8A075B9DEAF5A75754E5
 magnet:?xt=urn:btih:2A53E2B5A6E898046765E6AF4F02A145EAD6451E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:2A53E2B5A6E898046765E6AF4F02A145EAD6451E
 magnet:?xt=urn:btih:ED8C7137D03A8CDB4B922B24D1D5599A43F6C114
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Sally Face (2016) [Ru/Multi] (1.5.44) Repack EXROW
 magnet:?xt=urn:btih:D535CC94DE880F8BFCE7037C4BA93D4EB55429A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:D535CC94DE880F8BFCE7037C4BA93D4EB55429A2
 ```bash
 magnet:?xt=urn:btih:7D41D86E819152B331057159A0013897700F00F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ VA - Шансон премьера 2025 июнь (Новые песни. Нов�
 magnet:?xt=urn:btih:E138B07E5DBDF3ABB39DBB3E5F63E047F6A761D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:E138B07E5DBDF3ABB39DBB3E5F63E047F6A761D6
 ```bash
 magnet:?xt=urn:btih:AE71235878D3F9656FBD2F7EC9B64AD40752A599
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:AE71235878D3F9656FBD2F7EC9B64AD40752A599
 magnet:?xt=urn:btih:253AE6841B7EB1A7B621FD636B16A9A04E6A52D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Leafing Home - это уютное приключение, которое пер
 ```bash
 magnet:?xt=urn:btih:114B57CCE602B925E6059C64ED08B3311EE484AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:114B57CCE602B925E6059C64ED08B3311EE484AD
 magnet:?xt=urn:btih:198F7B0A06D0F48132EE126B654A0D89DE9FEE37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:198F7B0A06D0F48132EE126B654A0D89DE9FEE37
 ```bash
 magnet:?xt=urn:btih:4DEBBD4947C15A280C13839BF1FD4BEF7974F393
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:4DEBBD4947C15A280C13839BF1FD4BEF7974F393
 magnet:?xt=urn:btih:80FE4DC5B084A3F6B0212033E3FEAD6B5AC8F869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ O&O DiskImage Professional позволяет создавать резервн�
 ```bash
 magnet:?xt=urn:btih:828CCFCF989631492920D58DC875BDA7AE970BF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:828CCFCF989631492920D58DC875BDA7AE970BF5
 ```bash
 magnet:?xt=urn:btih:C066E6162FE41D0CB1E364C34EB4DE78025E532B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:C066E6162FE41D0CB1E364C34EB4DE78025E532B
 magnet:?xt=urn:btih:F0EC37CCABC8F139347522174B853B5D7FDFD264
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:F0EC37CCABC8F139347522174B853B5D7FDFD264
 ```bash
 magnet:?xt=urn:btih:16E0BD73C6E755A5BA1326954BBE5588ED1794B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ Thenighttimeproject - шведский рок-проект, основанный
 ```bash
 magnet:?xt=urn:btih:D7C6CC951258E8DC036D47787F3A7A877157E13D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ Illdisposed - In Chambers Of Sonic Disgust (2024) [FLAC|Lossless|image + .cue] <
 magnet:?xt=urn:btih:916CA83EE47BF97D1620E31862A63B0FEF160582
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:916CA83EE47BF97D1620E31862A63B0FEF160582
 ```bash
 magnet:?xt=urn:btih:5FF7B021CF70ACE2844C6FCBA2F09A7ABDD2626A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:5FF7B021CF70ACE2844C6FCBA2F09A7ABDD2626A
 magnet:?xt=urn:btih:667BB0C95909DCB72E8A7BDC9103851A03867FCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:667BB0C95909DCB72E8A7BDC9103851A03867FCB
 magnet:?xt=urn:btih:0393E61AC2B7F344AD4C671AE8877138FAA5507F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ magnet:?xt=urn:btih:0393E61AC2B7F344AD4C671AE8877138FAA5507F
 ```bash
 magnet:?xt=urn:btih:570B17D437311C7DD0EC4979AAE8BD19055F82F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:570B17D437311C7DD0EC4979AAE8BD19055F82F6
 magnet:?xt=urn:btih:756733FEA08C1470EB9782753988CB2372D61BDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:756733FEA08C1470EB9782753988CB2372D61BDC
 ```bash
 magnet:?xt=urn:btih:F110A8852EB253399B4D0FCFE6795568E8EE34A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ Kiss - Asylum (1985) Remastered, 2014, UMe Direct 2 [FLAC 24/192|Lossless|WEB-DL
 magnet:?xt=urn:btih:7BD151B12E73572BCA4669563CB3EA3AF56C8813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ Sea Breeze & Papik - Go Back (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Sou
 ```bash
 magnet:?xt=urn:btih:2DA59656D8A4506E3CC9DB88860F4569FDDAF1BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

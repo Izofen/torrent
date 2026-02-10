@@ -1,3 +1,29 @@
+###  Публикация: 1020682   (743803) от 27.05.2016
+
+П. Н. Федосеев | Условия материальной жизни общества (1951) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исторический материализм учит, что общественное бытие определяет общественное сознание: изменения в области общественного бытия вызывают соответствующие изменения во всех формах общественного сознания. Но встает вопрос, чем вызываются и определяются изменения в самом общественном бытии, в силу чего само общественное бытие развивается и изменяется, вызывая соответствующие (   Читать дальше...   )Жанр: История, философия, социология, политологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA9F38AD517F42103B6C903BD8BE368645ACF88C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396798   (743966) от 17.07.2020
 
 Макс Ронге | Военный и промышленный шпионаж. Двенадцать лет службы в разведке (2020) [EPUB]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:CF09A80E5F907AD75F1B6A29068232D11B8F1059
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:CF09A80E5F907AD75F1B6A29068232D11B8F1059
 magnet:?xt=urn:btih:3FB8F41CDE69DB4FDC42A5A71DE90293CAFF008B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:3FB8F41CDE69DB4FDC42A5A71DE90293CAFF008B
 ```bash
 magnet:?xt=urn:btih:12BC9C1019197AB7069A62388ACF4A2B24D3A443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:12BC9C1019197AB7069A62388ACF4A2B24D3A443
 magnet:?xt=urn:btih:E70B04FC522CB1110B3E9B2D29802CF98A81E350
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:E70B04FC522CB1110B3E9B2D29802CF98A81E350
 ```bash
 magnet:?xt=urn:btih:1573C6F61B4B29DA6D785B46AFC1B12DCD8BA07F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:1573C6F61B4B29DA6D785B46AFC1B12DCD8BA07F
 magnet:?xt=urn:btih:C2C81935B8B8D39064B84640920329EB8A428F04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:C2C81935B8B8D39064B84640920329EB8A428F04
 ```bash
 magnet:?xt=urn:btih:1231B4A5F4F2F9029544689017CC0D2AC9354685
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:1231B4A5F4F2F9029544689017CC0D2AC9354685
 magnet:?xt=urn:btih:504BD525877218B61C6885DDB1DBE53A59F87A3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,29 +255,7 @@ magnet:?xt=urn:btih:504BD525877218B61C6885DDB1DBE53A59F87A3D
 magnet:?xt=urn:btih:B921C20F3F7BABDCA439EC40C6852C3866D3D99B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 890411   (744817) от 20.04.2015
-
-В. И. Куманин и др. | Дизайн. История, современность, перспективы (2011) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744817.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге изложен новый подход к проблеме развития дизайна, базирующийся не только на художественном поиске, но и на совершенствовании материальной основы - обязательной составляющей дизайна. Этапы развития дизайна увязаны с историей используемых материалов. Приведены достижения основных научных и художественно технологических школ России в современном дизайне. Намечены пути развития художественного и технического дизайна.Жанр: ДизайнФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8739CD79EC8A0B3F70105B585AA5BC0FFBA99AD8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:8739CD79EC8A0B3F70105B585AA5BC0FFBA99AD8
 ```bash
 magnet:?xt=urn:btih:913F00752168C9FC0C90FD96DC7848ED374896AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:913F00752168C9FC0C90FD96DC7848ED374896AB
 magnet:?xt=urn:btih:5CF49CE04E02059369F4336A6214176070759693
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:5CF49CE04E02059369F4336A6214176070759693
 ```bash
 magnet:?xt=urn:btih:23F120E0888C2A2F9CA78E0B6D926EE75C0DC450
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:23F120E0888C2A2F9CA78E0B6D926EE75C0DC450
 magnet:?xt=urn:btih:FDFC0872F761EB40AED438E7282A1BDB2B77AAB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:FDFC0872F761EB40AED438E7282A1BDB2B77AAB3
 ```bash
 magnet:?xt=urn:btih:0448D305BD49D2DE1FA3C18E10E477E08E6FD931
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:0448D305BD49D2DE1FA3C18E10E477E08E6FD931
 magnet:?xt=urn:btih:9D02B08B8F81C2F1607E0C9F3EE66CD91E456015
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:9D02B08B8F81C2F1607E0C9F3EE66CD91E456015
 ```bash
 magnet:?xt=urn:btih:541F2CFEC7A4D98E0C438DB3A4F2565A15C8B761
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:541F2CFEC7A4D98E0C438DB3A4F2565A15C8B761
 magnet:?xt=urn:btih:5AC4491A743FA7EE45E9BA58F7792C8925A23B27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:5AC4491A743FA7EE45E9BA58F7792C8925A23B27
 ```bash
 magnet:?xt=urn:btih:568470936C35AE0222DBD89492B881A3953342A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:568470936C35AE0222DBD89492B881A3953342A6
 magnet:?xt=urn:btih:3964AE74F9ABA8E8F88AE0B185767B9CA3341A14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:3964AE74F9ABA8E8F88AE0B185767B9CA3341A14
 magnet:?xt=urn:btih:1219488850EC3EB647ACC68B11D45D28DE762D82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:1219488850EC3EB647ACC68B11D45D28DE762D82
 ```bash
 magnet:?xt=urn:btih:C4320C7FB79EA2D18066B6928D274A2B3287AB37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:C4320C7FB79EA2D18066B6928D274A2B3287AB37
 magnet:?xt=urn:btih:2C920C5552BAD7538D9C8E7F0258E57F104AA218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:2C920C5552BAD7538D9C8E7F0258E57F104AA218
 ```bash
 magnet:?xt=urn:btih:CC0B314FF1B5EC2890C375EBDBC77E5247422E27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:CC0B314FF1B5EC2890C375EBDBC77E5247422E27
 magnet:?xt=urn:btih:D74D683AEC6C74FE571E5477F25D33914E5A4C6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:D74D683AEC6C74FE571E5477F25D33914E5A4C6A
 ```bash
 magnet:?xt=urn:btih:A1C7927838F9E90F942B9FFE8A657D692AFC0A2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

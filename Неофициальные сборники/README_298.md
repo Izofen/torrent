@@ -1,3 +1,32 @@
+###  Публикация: 1563599   (502601) от 16.07.2022
+
+Shivaree - Compilation (2022) [MP3|320 Kbps] <Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bossa Nova (The Luckiest Girl) (Allskate Mix)
+02. New Casablanca
+03. The Fat Lady Of Limbourg
+04. Rubble(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB56CC0EF961BE41B1ED07D222BD8D9E5B7F18FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934644   (502626) от 05.09.2015
 
 VA - Delicious Deep House Vol 1 (2015) [MP3|320 кб/с]<Deep House>
@@ -21,6 +50,8 @@ VA - Delicious Deep House Vol 1 (2015) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:59F5F22618A99DAE668F8A2634BA39F0DA11D7A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Beautyness of Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:2E2EC097783A4D914F88F302373A7352D90D4647
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - September Wind - Chillout Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillo
 ```bash
 magnet:?xt=urn:btih:F73F441EF876C75F8C3C2B44A6392D0E67781AF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -107,6 +142,8 @@ VA - Trance Eve Volume 40 (2012) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:CF01147AD903D45A987B92BC54D13DD72382D38F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +178,8 @@ VA - XXXL Super Evro Hits (2012) [MP3|256 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:3C2C28C32B58314E888F8265D24BC08A18F37945
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +212,8 @@ VA - Progressive Rock и его романтика (2012) [MP3|320 кб/с]<Hard
 ```bash
 magnet:?xt=urn:btih:9A470E093E0F6AD4DA8471FF79958E196C35DD47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -207,6 +248,8 @@ VA - Русский Avto Club Vol.3 (2012) [MP3|320 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:A6BE07CFD4DBC2F0C307D506679F0202670D3869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -233,6 +276,8 @@ VA - Radio DFM Top D-Chart Июль 2019 [MP3|320 Kbps] <Pop, House, Dance>
 ```bash
 magnet:?xt=urn:btih:F66264B022ABE218F5264DFF6B2E519ED92CE30E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +306,8 @@ VA - Mojo Presents: David Gilmour & Friends (2015) [MP3|320 кб/с]<Rock>
 magnet:?xt=urn:btih:9F3082551D841AEEAF2664AD51895466F484534D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +334,8 @@ VA - Beatport Indie Dance / Nu Disco Top 100 August (2015) [MP3|320 кб/с]<Ind
 ```bash
 magnet:?xt=urn:btih:3C373EE58C52D636FACEE3DD8979B04613F1509D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +370,8 @@ VA - Ночная хитовая дискотека (2012) [MP3|256 кб/с]<Pop
 magnet:?xt=urn:btih:9FF4F66AA7359D1204C60AAD2B7E60636A6B1979
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +398,8 @@ VA - Top 100 Drum & Bass Vol.2 (2019) [MP3|320 Kbps] <Liquid Funk, Drumfunk, Sou
 ```bash
 magnet:?xt=urn:btih:422BCECC51119F942DBD0CB157D5D48DA325FDEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +428,8 @@ VA - Сто Хитов Из Прошлого: Дискотека 80х (2015) [MP
 magnet:?xt=urn:btih:56302A9C780F906C8BD5288BB2107CCF3831839E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +456,8 @@ VA - Record Super Chart 597 (2019) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:A0C682CC64CE17BEF1BCB1BCE4B35A534D7D9E37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +486,8 @@ VA - German Top 100 Single Charts 02.08.2019 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:6914AC6700224E3E461E81E987C792977853D560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +514,8 @@ VA - The Official UK Top 40 Singles Chart 26.07.2019 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:734EDC7DD48DB8F53F759A709CC6841EDFB2B05A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +550,8 @@ VA - Лучшие Русские Рок - Дуэты (2012) [MP3|295-320 кб/с
 magnet:?xt=urn:btih:B0EB8043B3D28863472823BB8A5A41EC5DFB3CB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +584,8 @@ VA - Русский рок - Баллады (vol. 2) (2012) [MP3|320 кб/с]<Ro
 ```bash
 magnet:?xt=urn:btih:AC92BB977E03599E62C0205F097DC7DD2CCFA6F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +620,8 @@ VA - Лучшие Рок - Дуэты (vol.2) (2012) [MP3|320 кб/с]<Hard Rock
 magnet:?xt=urn:btih:1796776FBB038403CE262B251AE394A2CDA66AA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +648,8 @@ VA - Super Hits Of Russian Dance & Club House [Compiled by Zebyte] (2015) [MP3|3
 ```bash
 magnet:?xt=urn:btih:51791D49C9477483C658DEA5332DFD1A67DEF8EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +678,8 @@ VA - Autumn Party (2015) [MP3|320 кб/с]<Trance, Dance, House, Synthpop, Club>
 magnet:?xt=urn:btih:04EE22DCC7B5252CEBC7AFF2C22AC374F7F350AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +706,8 @@ VA - Chill Rock (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:C9AEC88323F8C34ADE9F26684F53E3E47F410D6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -669,6 +742,8 @@ VA - Сборник медленных хитов Vol.11 (2012) [MP3|320 кб/с
 magnet:?xt=urn:btih:FF5314AED9A880E6D3B6300E2B8E0360082DC49A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -701,6 +776,8 @@ VA - Хит Шансона хитов Vol.2 (2012) [MP3|256 кб/с]<Шансо�
 ```bash
 magnet:?xt=urn:btih:23D11AA9703CACFCD26A84505F1713D943530F6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -735,32 +812,7 @@ VA - I love Electro Music vol.1 (2012) [MP3|320 кб/с]<Club, Dance>
 magnet:?xt=urn:btih:219D00CEBE765877F2C61AE83A1FA479D6D1A31C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933603   (505201) от 02.09.2015
-
-VA - Всё сразу. 200 хитов. Выпуск 6 (2015) [MP3|128 - 320 кб/с]<Pop, Dance, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505201.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. HOMIE feat. Андрей Леницкий - Лето как осень
-002. Dan Balan - Chica Bomb (Dj Dan Karim Chill Mix)
-003. Туситов - Последняя песня (kempel prod.)
-004. Thousand Foot Krutch - New Drug(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 12:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C1CEDC9044B60CACFB4CAB81F2C5C6414839F8F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

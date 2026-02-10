@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:71F8059D8D1B31C586C6E89FD58334AFBF2287C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ BEEGEEK, Тимур Гуев | Поколение Python - ООП (2023) [unpack
 magnet:?xt=urn:btih:A43C6BD4467D09E4D68C00B66E700668E02C01EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:A43C6BD4467D09E4D68C00B66E700668E02C01EF
 magnet:?xt=urn:btih:B24AAA40F811F4DA15B743978776EB03F964F6E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:B24AAA40F811F4DA15B743978776EB03F964F6E1
 ```bash
 magnet:?xt=urn:btih:C50961D09959A4C00CCE6CB6F2E8F7DD06DC7518
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:C50961D09959A4C00CCE6CB6F2E8F7DD06DC7518
 magnet:?xt=urn:btih:898795A2C0E0DABEB68852609F2B1094A4E8249A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:898795A2C0E0DABEB68852609F2B1094A4E8249A
 ```bash
 magnet:?xt=urn:btih:6C8818E2DC1D666BA02B8C195B0F3B91F2731D62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:6C8818E2DC1D666BA02B8C195B0F3B91F2731D62
 magnet:?xt=urn:btih:E555A9F74383685CEBDBA46E4B775C53FDD4ED67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Lurkmore | Lurkmore - дамп энциклопедии в ZIM-формате (2
 ```bash
 magnet:?xt=urn:btih:A902937896D8942889EA438252CFEB60B3E57C47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ HTML Academy | Протоколы и сети: веб-безопасность  
 magnet:?xt=urn:btih:F42B966006B76C97D277A2ECBA2F92C426852681
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:F42B966006B76C97D277A2ECBA2F92C426852681
 ```bash
 magnet:?xt=urn:btih:45944E1FF7F1A6515E5D1C6F1FAD908775D0FEA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ HTML Academy | Навык «Вёрстка навигационных элеме
 magnet:?xt=urn:btih:A6E8A80A2CBB1EE6BF71AB222739713F0174305F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:A6E8A80A2CBB1EE6BF71AB222739713F0174305F
 ```bash
 magnet:?xt=urn:btih:173110A0503724C3CB8FA10103CFD072A009C1B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:173110A0503724C3CB8FA10103CFD072A009C1B5
 magnet:?xt=urn:btih:7E4CF90F9BE86DDE1138B7C4E1F247315A99B714
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:7E4CF90F9BE86DDE1138B7C4E1F247315A99B714
 ```bash
 magnet:?xt=urn:btih:26C1439AB78F48CDBAAA5854A9AB9D9296F48598
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:26C1439AB78F48CDBAAA5854A9AB9D9296F48598
 magnet:?xt=urn:btih:2179B3E55D2C778CFE542175DB36A1CF23E49F7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:2179B3E55D2C778CFE542175DB36A1CF23E49F7A
 ```bash
 magnet:?xt=urn:btih:EF370FC832FCD2B960FA6BBD669F8112E20D4F19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:EF370FC832FCD2B960FA6BBD669F8112E20D4F19
 magnet:?xt=urn:btih:9D7CEABD70F86DDE032447F8C4F06045D31BFBDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:9D7CEABD70F86DDE032447F8C4F06045D31BFBDC
 ```bash
 magnet:?xt=urn:btih:A0B98EFBE88238D5BF0844B2F07CC947D535EAA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ WebForMySelf, Бернацкий Андрей | Верстка-Мастер. П�
 magnet:?xt=urn:btih:D12EB16CE27167329818841CECAB902F9427B74F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ DVD приложение к журналу "Хакер" №12 (167), 2012 [unpac
 magnet:?xt=urn:btih:0E27DC99DF363BD2DEE614B593A57D5B7296088F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ video2brain | Creating Composites in Photoshop [2012][En][unpacked]
 ```bash
 magnet:?xt=urn:btih:FC83D4DD020096412DED28481B679AC31D2CCE2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +584,8 @@ Photoshop - удивительная программа, которая помо
 magnet:?xt=urn:btih:8119C89CD5B56C0DD6A3E8B210A408ECEE2FE7B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ Business Result Interactive CD-Rom - диск идущий в комплекте
 magnet:?xt=urn:btih:7914F43B2145781690B54EE84DB61CEB3E1F3754
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ HTML Academy | Паттерны проектирования (2022) [unpacked]
 ```bash
 magnet:?xt=urn:btih:5DCC9D41D213F83042B935AE4AEEC307EBD90030
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:5DCC9D41D213F83042B935AE4AEEC307EBD90030
 magnet:?xt=urn:btih:40236BC1D91681440527573A30A3FCDAD9143F87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:40236BC1D91681440527573A30A3FCDAD9143F87
 ```bash
 magnet:?xt=urn:btih:CE2686B0067838B5C9D1B5A6C416AEE53AEF9BCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

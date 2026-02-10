@@ -19,6 +19,8 @@ Udemy, Nikolay Naydenov | Absolute Beginners ZBrush Course (2020) PCRec [En]
 magnet:?xt=urn:btih:10701AB58AF6E70F14BA5CD2BFCCD6A7FFD80030
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Udemy, Nikolay Naydenov | Super Human Anatomy for Artists Course (2021) PCRec [E
 ```bash
 magnet:?xt=urn:btih:7DA280411CF2F2A4767A7F5DF32991BE56C0A748
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:7DA280411CF2F2A4767A7F5DF32991BE56C0A748
 magnet:?xt=urn:btih:B89A8EDFBEEA5B24E59806E51FC562D1969D9817
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ FreePBX - это самое популярное и широко распрос�
 magnet:?xt=urn:btih:475A7AB7AF445537CB91F1445119631196D86B9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Jillian Michaels | Hard Body (2013) DVDRip [EN]
 ```bash
 magnet:?xt=urn:btih:8BBE21891478E01D8F2FF52ECBF499E434228FF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Udemy, Nikolay Naydenov | Making a Cartoon Character in Zbrush (2021) PCRec [En]
 magnet:?xt=urn:btih:8CC3600CE1F34A24A9111BF7AE327E58139B37CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:8CC3600CE1F34A24A9111BF7AE327E58139B37CE
 ```bash
 magnet:?xt=urn:btih:0A880D9CC1CC435D3E7D3CBC4F23AF51066AC933
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:0A880D9CC1CC435D3E7D3CBC4F23AF51066AC933
 magnet:?xt=urn:btih:1D2FC4C5BC43949AB5F90D3325A7D63D39AD16BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ Digital Tutors, Eddie Russell | Map Baking Techniques for Games in Maya (2015) P
 magnet:?xt=urn:btih:11EBA73EFA0C33485E937855276DB211B6F6FEF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ Digital Tutors, Tanya Wiesner | Automating Tasks Using MAXScript in 3ds Max (201
 ```bash
 magnet:?xt=urn:btih:6C9905904526061DD6A46741797ECBCA9E3EE601
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +297,8 @@ Udemy, Austin Batchelor, Stephen Sorensen | The Digital Painting Mega Course: Be
 magnet:?xt=urn:btih:00CE60BD5546A56DEE84E457A4489CECF29F368B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ Cubebrush, Marc Brunet | Faster Illustration Techniques (2017) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:8BDEDCCCC1038FB0696B0CFD7C2EF9CB11AAC4DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ Udemy, Austin Batchelor | The Digital Painting MEGA Course Beginner to Advanced 
 magnet:?xt=urn:btih:3905C3DB500EDE095BD5B22C5B53EC2D966772FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ FlippedNormals, Emiel Sleegers | Hero Prop Creation in Blender & Substance Paint
 ```bash
 magnet:?xt=urn:btih:2562FB95CA2CFB10A08825CF112140F68D0B5D75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ magnet:?xt=urn:btih:2562FB95CA2CFB10A08825CF112140F68D0B5D75
 magnet:?xt=urn:btih:59DCC9A16F3728473CAA3FB38CD66AD333EAF7E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ ART School, Marc Brunet | ART School for digital artists (2021) WEB-DL [En]
 magnet:?xt=urn:btih:051B9279874728B2E0E989A59815762FDC082B94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ Scott Eaton | Digital Figure Sculpture (2012) PCRec
 magnet:?xt=urn:btih:9B717FD5E061E95BB89A0BE0EFEA1A06ACE3E0CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ Wingfox Studio, Wingfox | Character Painting in Photoshop (2021) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:EEDE5785F2EDBDC7946272DF4A0D017900B1A2EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:EEDE5785F2EDBDC7946272DF4A0D017900B1A2EB
 magnet:?xt=urn:btih:E6D26D1B3E9E5477A6AF5AD53167ADBDEAF0B8AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ Wingfox Studio, Changming Wang | Ultimate Illustration Course Coloring and Light
 ```bash
 magnet:?xt=urn:btih:F3A32FC0365E38F5C6769D2A88A49F7337FABE22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ magnet:?xt=urn:btih:F3A32FC0365E38F5C6769D2A88A49F7337FABE22
 magnet:?xt=urn:btih:EC0132DA4FBB7299151B5EC76B62A295BBE844CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ Skillshare, Nexttut | Blender 3.0 Modelling for Beginners (2022) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:861081D80EE2C033700FC58BA0F22679B80EC56F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:861081D80EE2C033700FC58BA0F22679B80EC56F
 magnet:?xt=urn:btih:475BF6B5A14F3746EDE30B77B65C4B9754241ADB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:475BF6B5A14F3746EDE30B77B65C4B9754241ADB
 ```bash
 magnet:?xt=urn:btih:7F402ED8838514D999C76AB9B42EEC4A76A45DA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +679,8 @@ Udemy, René Fürst | OpenVPN verstehen und einrichten – Sicher im Netzwerk (2
 magnet:?xt=urn:btih:E7713208A011D021C0A3936C0A832E1A649E6B5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ CtrlPaint.com | 3D for illustrators. 3D Paintover Starter Kit (2016) PCRec [H.26
 ```bash
 magnet:?xt=urn:btih:81F8D2A6643C614DC9AB38EDE12A90D2E5E2EB8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

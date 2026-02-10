@@ -1,3 +1,30 @@
+###  Публикация: 764386   (881927) от 08.03.2014
+
+Б.Н. Флоря | Исследования по истории Церкви. Древнерусское и славянское средневековье (2007) [PDF, DOC]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Настоящее издание представляет собой сборник работ члена-корреспондента РАН Б. Н. Флори, посвященный двум важным темам истории христианской Церкви. Первая — взаимоотношения светской власти и Церкви в Древней Руси. Вторая — отношения представителей разных христианских конфессий на славянской почве. В качестве приложения публикуются тексты источников по истории Ферраро-Флорентийского Собора. Книга снабжена указателем имен. Адресована специалистам-историкам и всем, кто интересуются историей христианства.
+ Doc-файл имеет интерактивное оглавление.Формат: PDF, DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBA1C55B403D3FEFF2CC4CB61E65ECAB690C2086
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372973   (881985) от 05.04.2020
 
 Эдриан Ньюи | Как построить машину. Автобиография величайшего конструктора «Формулы-1» (2019) [EPUB]
@@ -19,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:04FB2F564F61A67A5B5F7DDE81C372E43109F300
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:04FB2F564F61A67A5B5F7DDE81C372E43109F300
 ```bash
 magnet:?xt=urn:btih:E5CC8F46133E992E617D9292B031CD922761CEB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +101,8 @@ magnet:?xt=urn:btih:E5CC8F46133E992E617D9292B031CD922761CEB0
 magnet:?xt=urn:btih:498FE71FBBD784D4C3D66DB9F98EB1C93FD53397
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +126,8 @@ magnet:?xt=urn:btih:498FE71FBBD784D4C3D66DB9F98EB1C93FD53397
 ```bash
 magnet:?xt=urn:btih:9B41FF3E55C999180C690DEF44AEF19965918D3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +155,8 @@ magnet:?xt=urn:btih:9B41FF3E55C999180C690DEF44AEF19965918D3B
 magnet:?xt=urn:btih:2F47C8C193C04CA6977BB458F4E025C89635F73A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +183,8 @@ magnet:?xt=urn:btih:2F47C8C193C04CA6977BB458F4E025C89635F73A
 magnet:?xt=urn:btih:980D835D298E70605833DE2341186A2BB618EBF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +208,8 @@ magnet:?xt=urn:btih:980D835D298E70605833DE2341186A2BB618EBF1
 ```bash
 magnet:?xt=urn:btih:6EC692CBEAA5AE1D9AB5E2D45EAE5ED3E56FBBBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +235,8 @@ magnet:?xt=urn:btih:6EC692CBEAA5AE1D9AB5E2D45EAE5ED3E56FBBBF
 magnet:?xt=urn:btih:BF72661DB623C15FC9677E786737C3B772B4F09F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +261,8 @@ magnet:?xt=urn:btih:BF72661DB623C15FC9677E786737C3B772B4F09F
 ```bash
 magnet:?xt=urn:btih:DB1CADBE5475768F76D00136B1692E8F8ED99CCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +291,8 @@ magnet:?xt=urn:btih:DB1CADBE5475768F76D00136B1692E8F8ED99CCB
 magnet:?xt=urn:btih:E15CBBDE3B068AED4F9A04148F17412C82401303
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +316,8 @@ magnet:?xt=urn:btih:E15CBBDE3B068AED4F9A04148F17412C82401303
 ```bash
 magnet:?xt=urn:btih:F3A500D06D2EADCD8B81B0075A7FCEB2D73C2096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +345,8 @@ magnet:?xt=urn:btih:F3A500D06D2EADCD8B81B0075A7FCEB2D73C2096
 magnet:?xt=urn:btih:C0CE74E77F521C06EE85C46BC5666814D19B179C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +370,8 @@ magnet:?xt=urn:btih:C0CE74E77F521C06EE85C46BC5666814D19B179C
 ```bash
 magnet:?xt=urn:btih:B14A612586FEC9963273406F14ED5D41C4856AB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +397,8 @@ magnet:?xt=urn:btih:B14A612586FEC9963273406F14ED5D41C4856AB7
 magnet:?xt=urn:btih:04D734B2C99EE77714429B447926D6F321130719
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +422,8 @@ magnet:?xt=urn:btih:04D734B2C99EE77714429B447926D6F321130719
 ```bash
 magnet:?xt=urn:btih:A8DBD29217BE493FF18274AD3AD7158C45800D2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +450,8 @@ magnet:?xt=urn:btih:A8DBD29217BE493FF18274AD3AD7158C45800D2C
 magnet:?xt=urn:btih:C0F7ACCE638ACE810DC62F82861F4AFF6F69E76B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +475,8 @@ magnet:?xt=urn:btih:C0F7ACCE638ACE810DC62F82861F4AFF6F69E76B
 ```bash
 magnet:?xt=urn:btih:26932C0ACE688C64C2097C4C54A6DEC0F7E84406
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +503,8 @@ magnet:?xt=urn:btih:26932C0ACE688C64C2097C4C54A6DEC0F7E84406
 ```bash
 magnet:?xt=urn:btih:28014C33B9F322F91F6384846A0B1A77D6C0D81D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +537,8 @@ magnet:?xt=urn:btih:28014C33B9F322F91F6384846A0B1A77D6C0D81D
 magnet:?xt=urn:btih:D192BB8E363BD0B6C76D8ADAE4F7448E822D7E62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +562,8 @@ magnet:?xt=urn:btih:D192BB8E363BD0B6C76D8ADAE4F7448E822D7E62
 ```bash
 magnet:?xt=urn:btih:413C3E883CE11429E534741A533F5A64AC62C6EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +591,8 @@ magnet:?xt=urn:btih:413C3E883CE11429E534741A533F5A64AC62C6EA
 magnet:?xt=urn:btih:46BB8534D4F220349A2493218755C65C3511141A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +619,8 @@ magnet:?xt=urn:btih:46BB8534D4F220349A2493218755C65C3511141A
 magnet:?xt=urn:btih:5FB01BF9072A542466B1E9DDF2CFC3C377ACC7F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +644,8 @@ magnet:?xt=urn:btih:5FB01BF9072A542466B1E9DDF2CFC3C377ACC7F1
 ```bash
 magnet:?xt=urn:btih:D8D1D3193303D1D2A0C578631F16967F3BE777D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +672,8 @@ magnet:?xt=urn:btih:D8D1D3193303D1D2A0C578631F16967F3BE777D1
 magnet:?xt=urn:btih:B168C1BEF76BF64CAED06DBF19B92823B15BE503
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,29 +698,7 @@ magnet:?xt=urn:btih:B168C1BEF76BF64CAED06DBF19B92823B15BE503
 magnet:?xt=urn:btih:D4CFB0DCAADF7FD9043E15165480F79CA14763AB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 641753   (882741) от 09.04.2013
-
-Лора  Дэй | Самоучитель по развитию интуиции [2000] [PDF]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Интуиция - великая способность, которой одарила человека природа. Подсознание, разговаривающее с нами языком интуиции, знает ответы на многие волнующие человека вопросы. Нужно только научиться правильно их задавать и уметь расшифровывать ответы, которые интуиция дает в виде образов и символов.Эта книга в легкой и доступной форме, шаг за шагом будет вести вас к овладению этими знаниями и приемами, которые помогут вам поверить в свои силы и добиться успеха в жизни.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA9F58A3620CC68F20BA43BB91248E58119BE8EF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

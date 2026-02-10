@@ -19,6 +19,8 @@ Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer: Mugen Train Arc | Истре�
 magnet:?xt=urn:btih:715DA5474A1058755034AC31C4824941C3518F10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Guin Saga / Сага о Гуине [2009, TV, 26] BDRip 1080p raw
 magnet:?xt=urn:btih:ABD2422EBCEE140B58AA2E9BD792BEE4C43C0E30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Shin Ikkitousen | Истинная сила тысячи [2022, TV, 3 эп.] BDR
 ```bash
 magnet:?xt=urn:btih:B2A03F1839F55EAD20516342FC13D228C5D08124
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Shakugan no Shana Special: Love and Outdoor Hot Spring Tutorial! / Жгучий 
 magnet:?xt=urn:btih:8DAD031F3F6E50FB1EC3AA24927932AF83A00DBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Shakugan no Shana III Final / Жгучий взор Шаны III Финал [TV3
 ```bash
 magnet:?xt=urn:btih:3D31ADB46C864A5143A189937AB6338AD3DB1030
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Shakugan no Shana II / Жгучий взор Шаны [ТВ-2] [2007, TV, 24] BD
 magnet:?xt=urn:btih:1A871AED5836C064A05CEF8B28C1439F5D16C701
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Nanatsu no Taizai Movie 2 Hikari ni Norowareshi Mono-tachi | The Seven Deadly Si
 ```bash
 magnet:?xt=urn:btih:BDBB020AF64AB0A58CCFBA22A7CDE9F5B350984D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Slap Up Party: Arad Senki | Крутая компания: Арадские пр
 magnet:?xt=urn:btih:821E97762E3CD2FE22A6811FFBD7F815ABBFCF39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Aharen-san wa Hakarenai | Непостижимая Ахарэн [2022, TV, 12 э
 ```bash
 magnet:?xt=urn:btih:6C463F5C52E12885A049E3D5D1EEE3085E96889A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Lupin Sansei vs. Meitantei Conan The Movie | Lupin III vs. Detective Conan The M
 magnet:?xt=urn:btih:110CF3315417C5EE4AB98CEA2143A82D9B91B557
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Deji Meets Girl | Девушка встречает дэдзи [2021, TV, 12 э�
 ```bash
 magnet:?xt=urn:btih:A188830A990685CE96D22C0480F9BD1C52D280F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ One Piece: Romance Dawn Story / Ван Пис: Рассвет романтиче
 magnet:?xt=urn:btih:1A0CBA8D6F8C35EC7E0087BC1DD60EF05A813E74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ One Piece: Strong World / Ван Пис: Фильм десятый [2009] BDrip 
 magnet:?xt=urn:btih:460050754DB2A6F100415C7F757E53B1B517CB4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Muteking the Dancing Hero | Герой-танцор Мутэкинг [2021, TV, 
 ```bash
 magnet:?xt=urn:btih:1A36DA9A40F1210A4486A837A11566A32D66BB2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ One Piece TV Special 2:Oounabara ni hirake! Dekkai Dekkai Chichi no Yume / One P
 magnet:?xt=urn:btih:B4FC398833E9006D0785EF8B71B6F1A250FE4F37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ One Piece: Taose! Kaizoku Ganzack / One Piece: Defeat the Pirate Ganzack! / Ва
 ```bash
 magnet:?xt=urn:btih:AD5F0F5DB20A4006956B2D7B0569E4F6B194B60E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ One Piece Jidaigeki Special: Luffy Oyabun Torimonocho / One Piece: The Detective
 magnet:?xt=urn:btih:7A2ABF08D1F58BB17B545B669109099DDF992621
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ One Piece TV Special: Umi no Heso Daiboken hen / One Piece Special: Adventure in
 ```bash
 magnet:?xt=urn:btih:AFAAC04BCC6B2F673157C6AFF2D1F6FEB0018DA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ One Piece TV Special 3:Mamore! Saigo no Daibutai / One Piece: Protect! The Last 
 magnet:?xt=urn:btih:5C60A02A6FF142F36BC9FF82E2918A9CF8EC2878
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Touhou Niji Sousaku Doujin Anime: Musou Kakyou / Touhou: A Summer Day's Dream / 
 ```bash
 magnet:?xt=urn:btih:E1155E995F5FF9A08DDDF7B1D91FAFA644E954B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ Healer Girl | Девушка-целитель [2022, TV, 12 из 12] BDRip 1080p
 magnet:?xt=urn:btih:588A6AD0F42A2A0055E9C85F0735352F61E2363C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ xxxHOLIC Kei | Триплексоголик (второй сезон) [2008 , TV
 magnet:?xt=urn:btih:EE5E0B4DEE579A88DE4A8F587331DBB763BA6628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ One Piece Movie 1 / Ван-Пис: Фильм первый [2000] raw
 ```bash
 magnet:?xt=urn:btih:7AFE6164A5CD5EBC389260A8146D7ED558486454
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ Love Live! Superstar!! 2 / Живая любовь! Суперзвёзды!! 2 [
 magnet:?xt=urn:btih:DEE3D6B5090CFC6B718558B1CCA090EA5C0E986B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ One Piece Movie 6 - Omatsuri Danshaku to Himitsu no Shima / One Piece: Baron Oma
 magnet:?xt=urn:btih:1DFB655A0A215598BC0D3C47664923371C8F02DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ One Piece Movie 5 - Norowareta Seiken / One Piece - The Curse of the Sacred Swor
 ```bash
 magnet:?xt=urn:btih:DEF6972A47B7CBE0199A83E3340CB6EBF9421317
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

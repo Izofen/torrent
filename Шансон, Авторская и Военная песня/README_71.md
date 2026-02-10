@@ -22,6 +22,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@
 magnet:?xt=urn:btih:A54C1A606D6F44B484125BE893A895846E83741E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -87,6 +91,8 @@ magnet:?xt=urn:btih:A54C1A606D6F44B484125BE893A895846E83741E
 magnet:?xt=urn:btih:1F0468D7929B5DF37CFB6EC92F2FD610A16AA5F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -113,6 +119,8 @@ magnet:?xt=urn:btih:1F0468D7929B5DF37CFB6EC92F2FD610A16AA5F6
 ```bash
 magnet:?xt=urn:btih:B279877C43ADD49D3FC6CC64A8C1657638F2FABA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +155,8 @@ VA - Французская эстрада "Избранное" (2000) [MP3|192 
 magnet:?xt=urn:btih:3085F6BA7E8D6FF01224F203297A90B6331C1B35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +180,8 @@ magnet:?xt=urn:btih:3085F6BA7E8D6FF01224F203297A90B6331C1B35
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -204,6 +216,8 @@ magnet:?xt=urn:btih:3085F6BA7E8D6FF01224F203297A90B6331C1B35
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +250,8 @@ Yves Montand - Les 100 plus belles chansons (5 CD) (2006) [MP3|128 kbps]<Chanson
 ```bash
 magnet:?xt=urn:btih:76C425FA88E15EAA08650705A73981AF07B7FA44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +286,8 @@ Alain Souchon - Platinum Collection [3CD] (2004) [MP3|320 kbps]<French Chanson>
 magnet:?xt=urn:btih:FB62B56BE5FA340BED33819E7CD051588AE7843A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +320,8 @@ Georges Brassens — Les 100 Plus Belles Chansons (BoxSet 5 CDs) (2006) [MP3|320
 ```bash
 magnet:?xt=urn:btih:801417A23AACFC1650D8B6AF2EF14D566C5350CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +356,8 @@ VA - La Vie En Rose (2008) [MP3|256 kbps]<French Chanson>
 magnet:?xt=urn:btih:097C53BA32333C36F6A413246D0C7A56BB97334B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +391,8 @@ CD 1:
 magnet:?xt=urn:btih:B4AC39C80477D29710C86C3AAE167C2D757FE124
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +420,8 @@ VА - Эх, дороги... (2008) [FLAC|Lossless]<Ретро, Военная п
 magnet:?xt=urn:btih:51A45444355A82E232EED06E2304842C73A52DD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +448,8 @@ magnet:?xt=urn:btih:51A45444355A82E232EED06E2304842C73A52DD3
 ```bash
 magnet:?xt=urn:btih:EF84CDF688CDAE06BB369DF3158BB79D1A30506C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +481,8 @@ magnet:?xt=urn:btih:EF84CDF688CDAE06BB369DF3158BB79D1A30506C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +506,8 @@ magnet:?xt=urn:btih:EF84CDF688CDAE06BB369DF3158BB79D1A30506C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +542,8 @@ magnet:?xt=urn:btih:EF84CDF688CDAE06BB369DF3158BB79D1A30506C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +576,8 @@ VA - Best of France (5 CD) (1995) [MP3|320 kbps]<Chanson, Pop>
 ```bash
 magnet:?xt=urn:btih:872D14352E36857DE1131858B790CB3703F642EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +612,8 @@ magnet:?xt=urn:btih:872D14352E36857DE1131858B790CB3703F642EB
 magnet:?xt=urn:btih:FA31F088FD359C22FBBDAB5D9C1D8DB6A7B8D1BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +646,8 @@ CD1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +682,8 @@ CD1
 magnet:?xt=urn:btih:1C6901D2F590ED15114CFEEFD58EC360E211B5FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -675,6 +717,8 @@ magnet:?xt=urn:btih:1C6901D2F590ED15114CFEEFD58EC360E211B5FF
 magnet:?xt=urn:btih:D24F5C24E199F8F6EB252BB29652FC289AB764E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +743,8 @@ magnet:?xt=urn:btih:D24F5C24E199F8F6EB252BB29652FC289AB764E7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -722,6 +768,8 @@ magnet:?xt=urn:btih:D24F5C24E199F8F6EB252BB29652FC289AB764E7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -756,6 +804,8 @@ magnet:?xt=urn:btih:D24F5C24E199F8F6EB252BB29652FC289AB764E7
 magnet:?xt=urn:btih:28265678F8011DA4D7C6E4097C40EC0C44443A87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -788,6 +838,8 @@ magnet:?xt=urn:btih:28265678F8011DA4D7C6E4097C40EC0C44443A87
 ```bash
 magnet:?xt=urn:btih:2CA25B30165097D9ECBFE7A3466B6695EE1045CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

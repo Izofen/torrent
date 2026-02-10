@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:4E7EFF30E3E9D41E8535F4634EB01D468466B393
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Last Guest (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:DC95FB57869D8609D853AD134195517F77AD7634
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Scene Rune [Deluxe Edition]
 magnet:?xt=urn:btih:7A19CFB4ACEE50D13FE252160C44B9AAEC9513EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ BMW теперь будет сама  включать поворотники
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ BMW теперь будет сама  включать поворотники
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ BMW теперь будет сама  включать поворотники
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:14833881936EE44AC4131D087800E3A7F52E0DC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Mindseye (2025) [Multi] (4598223/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:1EAC0C2897E732787738978643D96016C4249B9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Repack seleZen [Deluxe Edition]
 magnet:?xt=urn:btih:EE1303DA3D306B76EF9ABB24AA3D50A512313961
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:EE1303DA3D306B76EF9ABB24AA3D50A512313961
 ```bash
 magnet:?xt=urn:btih:138004CAD3AB07D0909BA99B711E58B1F06EAC2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:138004CAD3AB07D0909BA99B711E58B1F06EAC2A
 magnet:?xt=urn:btih:C8C3165C3B82EB4368A9B21F4FF5D955BA7666AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:C8C3165C3B82EB4368A9B21F4FF5D955BA7666AB
 ```bash
 magnet:?xt=urn:btih:D053D2A282D823B32277EC50BD3BF89EC55AC7A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Creatures: Village (2004) [En] (1.11) License GOG
 magnet:?xt=urn:btih:7F5FF802CE6ACB8FC9B5D7A2B7A32DEDA10D8562
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:7F5FF802CE6ACB8FC9B5D7A2B7A32DEDA10D8562
 ```bash
 magnet:?xt=urn:btih:C268BB735F97BB6FBC783AD07457806326E0E80A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:C268BB735F97BB6FBC783AD07457806326E0E80A
 magnet:?xt=urn:btih:66F8779E40ADFDF642066170FEE3C27600A71012
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:66F8779E40ADFDF642066170FEE3C27600A71012
 ```bash
 magnet:?xt=urn:btih:555D0EA08669EA726D07E8CC88E45F68DB352A4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Google опубликовала «мини-отчёт об инциденте» 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ TreeSize Professional - мощное и гибкое средство визуа
 ```bash
 magnet:?xt=urn:btih:14A4948B650CF6155D650C23A222091F644B32BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ Activation Program 1.12 b03  Portable by Ratiborus [En]
 magnet:?xt=urn:btih:7E4F6E2E3C4D0E40718FCF097C110E3EE37DDA2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:7E4F6E2E3C4D0E40718FCF097C110E3EE37DDA2E
 magnet:?xt=urn:btih:B30C828D7E5F7F1CEA24806984C9B0B57EEF6D93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:B30C828D7E5F7F1CEA24806984C9B0B57EEF6D93
 ```bash
 magnet:?xt=urn:btih:4BDD4B4B47E6EBE452DA43DBC84DE558B2567CEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:4BDD4B4B47E6EBE452DA43DBC84DE558B2567CEC
 magnet:?xt=urn:btih:4932CE7C05D1AF863474ED4E4F9E9E4B0C697CA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Roboquest - это динамичный рогалик от первого ли�
 ```bash
 magnet:?xt=urn:btih:99F8800A34386678C4BDAD7033FA2C615B96DA19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:99F8800A34386678C4BDAD7033FA2C615B96DA19
 magnet:?xt=urn:btih:8253BB4019F2D085351B0B94CFC6D20E7C94C4D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ SnowRunner (2020) [Ru/Multi] (37.0/dlc) Scene Rune
 magnet:?xt=urn:btih:5B99305041F8D3357C20719A93F9F5DC0A251142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:5B99305041F8D3357C20719A93F9F5DC0A251142
 ```bash
 magnet:?xt=urn:btih:121D5B7E1A87955DA00E1C98E9A00850A3724BCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Microsoft® Windows® 11 Pro-Home Optim Lite x64 24H2 RU by OVGorskiy 01.2025
 magnet:?xt=urn:btih:405B820A8D59AB5AE537237C569B5B90D49C6B6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:405B820A8D59AB5AE537237C569B5B90D49C6B6F
 ```bash
 magnet:?xt=urn:btih:956601CC5F780B6A31D4EEBD4365A3ACC95AFB22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:956601CC5F780B6A31D4EEBD4365A3ACC95AFB22
 magnet:?xt=urn:btih:7E34E3AAA4D63DAB892CE765496295D482BE282C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:7E34E3AAA4D63DAB892CE765496295D482BE282C
 ```bash
 magnet:?xt=urn:btih:0DC164F3AEEAE80AC5A9E1734E2F5E36578FCCD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:0DC164F3AEEAE80AC5A9E1734E2F5E36578FCCD3
 magnet:?xt=urn:btih:B9D5B58C5DA5C51A64BB8CF589C02AEA06925F25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ DRM-play — приложение для бесплатного просмотр
 ```bash
 magnet:?xt=urn:btih:8EF9F0B35F3CFD59D0A1DC67B9C68AE467BE2302
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:8EF9F0B35F3CFD59D0A1DC67B9C68AE467BE2302
 magnet:?xt=urn:btih:2562F48B54787F278E24EC63ECA88B78DD113454
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Metro Awakening - это разработанный специально для 
 ```bash
 magnet:?xt=urn:btih:09C06B216EF88817FC4E1BFDBAE2629B11C32C9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Car Mechanic Simulator 2021 - симулятор механика, позвол�
 magnet:?xt=urn:btih:648494B8AED1FC596B4D3DB761A01CCD8E28F547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:648494B8AED1FC596B4D3DB761A01CCD8E28F547
 ```bash
 magnet:?xt=urn:btih:5E229339B27AC8A1B12BB30F3FDCFEBF18E644E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:5E229339B27AC8A1B12BB30F3FDCFEBF18E644E8
 magnet:?xt=urn:btih:A97DB0EFAFBC24DD51B97F4B801A7CE337534A7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Skydance's BEHEMOTH - это оригинальная история, дейст
 ```bash
 magnet:?xt=urn:btih:84763FD3D3ECB90C8FA4F3BEF0974486492F4857
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:84763FD3D3ECB90C8FA4F3BEF0974486492F4857
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:84763FD3D3ECB90C8FA4F3BEF0974486492F4857
 ```bash
 magnet:?xt=urn:btih:ECADF8F3380AA13E97299FDEA0B76497484D3EA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:ECADF8F3380AA13E97299FDEA0B76497484D3EA2
 magnet:?xt=urn:btih:9E90B1193ACB6CD62907B3628F985945EAF767C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Airhead отличается от прочих метроидваний тем, 
 ```bash
 magnet:?xt=urn:btih:937AB1F4D69E539798654FA8CDBAF39E404563DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:937AB1F4D69E539798654FA8CDBAF39E404563DF
 magnet:?xt=urn:btih:58016E7074AEAAF351A61B83D3EDD1397445B157
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ magnet:?xt=urn:btih:58016E7074AEAAF351A61B83D3EDD1397445B157
 ```bash
 magnet:?xt=urn:btih:9FEC5C93753967E3AA15B18E119BEE6E44CED9EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:9FEC5C93753967E3AA15B18E119BEE6E44CED9EB
 magnet:?xt=urn:btih:8B16EBFF51491E5A89DEB63112434657484E09CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Atlantis Word Processor 4.4.3.7 Repack (& Portable) by elchupacabra [Ru/En]
 ```bash
 magnet:?xt=urn:btih:9A04D4230B52750096BBFEBA40ED5F4B1ECEA257
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:9A04D4230B52750096BBFEBA40ED5F4B1ECEA257
 magnet:?xt=urn:btih:E05E4BC0118AA1376D798B701D43D66BB1448177
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:85535E70A18DBE0D88BD55226A3E437B63F3E4B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ SplitCam - бесплатная программа способная сущес
 magnet:?xt=urn:btih:C825826DC018B9BCA646F103656F1FC2020A4819
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ magnet:?xt=urn:btih:C825826DC018B9BCA646F103656F1FC2020A4819
 ```bash
 magnet:?xt=urn:btih:9BBB99A5E190690CCA96797D3057E7DAF561FCC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ magnet:?xt=urn:btih:9BBB99A5E190690CCA96797D3057E7DAF561FCC6
 magnet:?xt=urn:btih:15910CE2CAD4743514720014DA08206DE302B311
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ magnet:?xt=urn:btih:15910CE2CAD4743514720014DA08206DE302B311
 ```bash
 magnet:?xt=urn:btih:52F06939B36E7B69085834FCD304B94692AF46C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

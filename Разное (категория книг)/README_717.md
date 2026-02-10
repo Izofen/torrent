@@ -1,3 +1,30 @@
+###  Публикация: 439169   (975224) от 19.01.2012
+
+Sergelin | Мебельных дел мастер. Часть 7 [2012] [PDF]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+В книге вы найдете подробное руководство как изготовить самую нужную мебель в домашних условиях.
+Работа с конкретным заказчиком дает помимо прочего еще и идеи для творчества, причем порой настолько неожиданные, что при самостоятельном рисовании в голову не пришли бы. Что же придумал мебельных дел мастер на этот раз?2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8073DE14CE9FB861FC724521FD742066B2F6649A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 742401   (975238) от 08.01.2014
 
 Моисей | Тора (2005)  [PDF, FB2, MOBI, EPUB, TXT]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:CD6EE78D6B3FEBA4FEFCE973EF06223970965BC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +71,8 @@ magnet:?xt=urn:btih:CD6EE78D6B3FEBA4FEFCE973EF06223970965BC7
 ```bash
 magnet:?xt=urn:btih:7AA226FB7D939C690DD5D55164DD4D36CEAAD969
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +101,8 @@ magnet:?xt=urn:btih:7AA226FB7D939C690DD5D55164DD4D36CEAAD969
 magnet:?xt=urn:btih:3395895F769AE53C3309F2B526C3085CA8D7E5E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +126,8 @@ magnet:?xt=urn:btih:3395895F769AE53C3309F2B526C3085CA8D7E5E9
 ```bash
 magnet:?xt=urn:btih:5A7DCB23C6544985184F2A4387A4483E72297E19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +153,8 @@ magnet:?xt=urn:btih:5A7DCB23C6544985184F2A4387A4483E72297E19
 magnet:?xt=urn:btih:7DD9CE1B57821438B74CAE1A9288243EE26C513D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +178,8 @@ magnet:?xt=urn:btih:7DD9CE1B57821438B74CAE1A9288243EE26C513D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +207,8 @@ magnet:?xt=urn:btih:7DD9CE1B57821438B74CAE1A9288243EE26C513D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +232,8 @@ magnet:?xt=urn:btih:7DD9CE1B57821438B74CAE1A9288243EE26C513D
 ```bash
 magnet:?xt=urn:btih:39ECB4207E70984B873B30254C6A6E662483919E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +261,8 @@ magnet:?xt=urn:btih:39ECB4207E70984B873B30254C6A6E662483919E
 magnet:?xt=urn:btih:44FA31601215994D7D6838E931CA651BC9797685
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +289,8 @@ magnet:?xt=urn:btih:44FA31601215994D7D6838E931CA651BC9797685
 magnet:?xt=urn:btih:0DF4D57A54CDC9A9B1B9A11CC5DD4A6323A8AF77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +314,8 @@ magnet:?xt=urn:btih:0DF4D57A54CDC9A9B1B9A11CC5DD4A6323A8AF77
 ```bash
 magnet:?xt=urn:btih:999A8E17CAADCF7FF41FACD46E3BF83E25DDDD68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +341,8 @@ magnet:?xt=urn:btih:999A8E17CAADCF7FF41FACD46E3BF83E25DDDD68
 magnet:?xt=urn:btih:95BF486F4FC2F0D3A7707F1CD8733AE202F25638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +367,8 @@ magnet:?xt=urn:btih:95BF486F4FC2F0D3A7707F1CD8733AE202F25638
 magnet:?xt=urn:btih:4CDAE5D6ED386A5E9BBF2B78A46DD46C61D1D51D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +392,8 @@ magnet:?xt=urn:btih:4CDAE5D6ED386A5E9BBF2B78A46DD46C61D1D51D
 ```bash
 magnet:?xt=urn:btih:AA76F811D7376E3A19DC9F17A9AC1E0486821E24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +420,8 @@ magnet:?xt=urn:btih:AA76F811D7376E3A19DC9F17A9AC1E0486821E24
 magnet:?xt=urn:btih:8B125AD64673D6F7DCB4D8D5969740F11287ECD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +445,8 @@ magnet:?xt=urn:btih:8B125AD64673D6F7DCB4D8D5969740F11287ECD8
 ```bash
 magnet:?xt=urn:btih:F4DD5DBE49F498A6DEBFFD814B0785BCB3A2B7D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +472,8 @@ magnet:?xt=urn:btih:F4DD5DBE49F498A6DEBFFD814B0785BCB3A2B7D0
 magnet:?xt=urn:btih:14725D6ACB938482AA235DB33CD61C768BF6717A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +497,8 @@ magnet:?xt=urn:btih:14725D6ACB938482AA235DB33CD61C768BF6717A
 ```bash
 magnet:?xt=urn:btih:68ECFF76D6FFD72AFC3046AFA01AA8EFE1DC817B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +524,8 @@ magnet:?xt=urn:btih:68ECFF76D6FFD72AFC3046AFA01AA8EFE1DC817B
 magnet:?xt=urn:btih:B084CC8F1D17FA80D35F1FA2CFB0ACC30D4A7F78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +549,8 @@ magnet:?xt=urn:btih:B084CC8F1D17FA80D35F1FA2CFB0ACC30D4A7F78
 ```bash
 magnet:?xt=urn:btih:734CA092654CB1942F77C52581AE64874CDF8AB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +576,8 @@ magnet:?xt=urn:btih:734CA092654CB1942F77C52581AE64874CDF8AB0
 magnet:?xt=urn:btih:99EF64DD24C9BEE4427596E1BE388F475C85C0F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +602,8 @@ magnet:?xt=urn:btih:99EF64DD24C9BEE4427596E1BE388F475C85C0F9
 magnet:?xt=urn:btih:9A58A713E3D169BFAD16A7C3B8E25DB46A1394A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +627,8 @@ magnet:?xt=urn:btih:9A58A713E3D169BFAD16A7C3B8E25DB46A1394A1
 ```bash
 magnet:?xt=urn:btih:0F9C324CD70239C82953967DBD414C70BB7D2903
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +657,8 @@ magnet:?xt=urn:btih:0F9C324CD70239C82953967DBD414C70BB7D2903
 magnet:?xt=urn:btih:E161C372339A9F8E647FCC28CF9EFDDACE0815F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,30 +684,7 @@ magnet:?xt=urn:btih:E161C372339A9F8E647FCC28CF9EFDDACE0815F9
 magnet:?xt=urn:btih:5E0FC8E7B7D40BDDED8ED32F844BBF58C153B9EE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 743241   (975695) от 08.01.2014
-
-Преподобный Серафим Саровский | Стяжание Духа Святого (2014) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-В книге публикуются труды, наставления и поучения великого русского святого – преподобного Серафима Саровского (1753–1833), чьи идеи и мысли стали одной из духовных вершин русской цивилизации.
- В беседе с учениками старец Серафим учил, что цель христианской жизни состоит в стяжании (обретении) Духа Святого, объяснял условия этого стяжания (трезвление души и духа, чистота плоти) и его средства (пост, молитва, добрые дела). Он говорил о том, что Бог близок каждому и лишь по всеобщей хладности к вере люди утеряли способность видеть Бога и распознавать истинные явления Святого Духа. Он показал одному из своих учеников Н. Мотовилову, что значит пребывать в полноте Духа. Кульминационный пункт беседы наступил тогда, когда по молитве старца Мотовилов телесными глазами узрел происходящее с ним самим и Серафимом чудо преображения – оба они оказались в сиянии Фаворского света.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5AC590D9DCA3A7A708B047385FFF008670EE6A5
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

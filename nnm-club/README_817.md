@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C5416B74C2FE9D6D8DAF5989329115EB3C0F2A07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C5416B74C2FE9D6D8DAF5989329115EB3C0F2A07
 ```bash
 magnet:?xt=urn:btih:3CDEA895B44D0BC8453A37727C63BAA147879E26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:3CDEA895B44D0BC8453A37727C63BAA147879E26
 magnet:?xt=urn:btih:F7E00EE29C0F52A3ABC88738877D1A6333BC92AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:F7E00EE29C0F52A3ABC88738877D1A6333BC92AA
 magnet:?xt=urn:btih:FB60D17E813E1A113934383368A52C7C51050C55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Front Mission 2: Remake - обновленная версия классичес
 ```bash
 magnet:?xt=urn:btih:A16BCF82D9CF7CC0A2DEC542CE88568EE4C1455E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:A16BCF82D9CF7CC0A2DEC542CE88568EE4C1455E
 magnet:?xt=urn:btih:02717E2ED56AEF4919FBFCF176E0EF203DD9D736
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Astrea - игра c уникальными особенностями: здес�
 ```bash
 magnet:?xt=urn:btih:DF63198E3494FDE76647983BC4ED91F80E7C6636
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ FRONT MISSION 2: Remake (2024) [Ru/Multi] (1.0.9) Repack Let'sРlay
 magnet:?xt=urn:btih:49D26C80E2F75E3772B92EC773CABF564A47E164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Sacred Fire - психологическая ролевая игра. Вы бе�
 ```bash
 magnet:?xt=urn:btih:EBF2855AD4FA507C98BCE277EBBEA8BB6F128342
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.7.6 Gold 
 magnet:?xt=urn:btih:BE25937F3E300915FCFA8BD618564C9380644C9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Total CAD Converter - программа для конвертации файл�
 ```bash
 magnet:?xt=urn:btih:C5430A54270D6362C0E1A88E0B079F9EFCC5BD5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Gefestel преодолел первый рубеж, 1000 релизов. Сам
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ FolderSizes 9.7.522 Enterprise [En]
 ```bash
 magnet:?xt=urn:btih:A44FF8F42C8BDA5B4F7D9F5C3F8D3A5ADFD6E281
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:A44FF8F42C8BDA5B4F7D9F5C3F8D3A5ADFD6E281
 magnet:?xt=urn:btih:528B344891786FB57440869244C838CE4BE10CEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.0 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3C0E33DBBFC2BFD001013FFFA17AB223E78A9D05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Monaco 2 (2025) [Ru/Multi] (1.0.0+18962) Repack FitGirl
 magnet:?xt=urn:btih:8E4073D1F66158D83F197F8407CB69C9ECDCACF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ SNOW BROS. 2 SPECIAL - это ремейк Snow Bro. 2, выпущенной TOA
 ```bash
 magnet:?xt=urn:btih:F8AA9A6CA5E3AA566BE06C42780641C0F8A47005
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:F8AA9A6CA5E3AA566BE06C42780641C0F8A47005
 magnet:?xt=urn:btih:02CE3217C47BF28E39ACFE886D3DB7B52142E64A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:02CE3217C47BF28E39ACFE886D3DB7B52142E64A
 ```bash
 magnet:?xt=urn:btih:BF7514745264A01DE81BB4495C9D54796BED43BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:BF7514745264A01DE81BB4495C9D54796BED43BA
 magnet:?xt=urn:btih:98CF4215A0F311FF68EEB98018342B846B5D076A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:98CF4215A0F311FF68EEB98018342B846B5D076A
 ```bash
 magnet:?xt=urn:btih:8C89D8474CBE90337DF964E83D00B40143368514
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:8C89D8474CBE90337DF964E83D00B40143368514
 magnet:?xt=urn:btih:B441B6729D68BB87884483203E031481122B9960
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ AI Photo Editor Pro - Polish v1.633.211 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6986B2F019A489F176FC854787823D4696C00E10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:6986B2F019A489F176FC854787823D4696C00E10
 magnet:?xt=urn:btih:64E7DB43AF34290C3857BCA92406FBA13C1F462D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:64E7DB43AF34290C3857BCA92406FBA13C1F462D
 magnet:?xt=urn:btih:E7357B9353956B9FA255301E76EBFC12F6C81605
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:E7357B9353956B9FA255301E76EBFC12F6C81605
 ```bash
 magnet:?xt=urn:btih:AD246C82D7FCEED5C531F72185EF00EC3E7BE3D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

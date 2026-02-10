@@ -1,27 +1,3 @@
-###  Публикация: 1284625   (727645) от 22.02.2019
-
-Mystery of the Ancients 8: No Escape (2019) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение захватывающей мистической серии игр Mystery of the Ancients. Получив сигнал бедствия, вы отправляетесь в путь - ваши друзья затерялись на какой-то отдаленной проселочной дороге. Заброшенный отель привлекает ваше внимание, однако вы даже не можете себе представить, что ждет вас внутри. Таинственный человек предлагает свою помощь и маленького робота-помощника, (   Читать дальше...   )Тип издания: UnofficialРазработчик: MariaglorumЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB76E9908BF926925C9E9E5806122E21C9F52B4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284598   (727649) от 22.02.2019
 
 Fright Chasers: Dark Exposure (2017) [En] (1.0) Unofficial [Collector's Edition]
@@ -42,6 +18,8 @@ Fright Chasers: Dark Exposure (2017) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:DE9E71AC1CF8B3005EB62C3D83AF5319F49044CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Darkheart: Flight of The Harpies (2017) [En] (1.0) Unofficial [Collector's Editi
 magnet:?xt=urn:btih:0E71F3D37A7182B0B2788A82266E049690EE8B67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Phantasmat 10: Curse of the Mist (2017) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:8876BC4E6C56DB27A0B1D13F0BBDCA0EC53E34DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Dead Island Definitive Edition – переиздание, состоящее и
 magnet:?xt=urn:btih:8D75211D485F064D5BF68E9CC9946B2E459500EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Nancy Drew: Sea of Darkness / Нэнси Дрю: Песнь темных вод 
 ```bash
 magnet:?xt=urn:btih:8AC4834FF203313837B1ED38B6FF44E31B6FB0D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Counter Strike 1.6 от Сахара (1999-2015) [Ru/En] (1.1.2.6/pv48/b4554) Re
 magnet:?xt=urn:btih:3CD632B7AC09F3B7F9760684887DB54FF8392AB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ The Flame in the Flood (2016) [Ru/Multi] (24.04.2017) Repack R.G. Механик
 ```bash
 magnet:?xt=urn:btih:DAA7175D4B02E137F1A9F37291E99E6D82EBFE49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Saints Row IV (2013) [Ru/Multi] (1.0.6.1/dlc) License GOG [Game of the Century E
 magnet:?xt=urn:btih:AF1DAAC4E1B3786322FC3365B7E1C867DE8C83E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ The Disney Afternoon Collection (2017) [Ru/Multi] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:2E5A8EFC2A4E9A7F733AD6BB47B035DDED523321
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Total War: Rome Remastered - улучшенная версия историче�
 magnet:?xt=urn:btih:DB56E52FE62985276694A245D00CF534745F3997
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Hidden Expedition 11: Midgard's End (2016) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:7B7CFC378C70727B270E75AFFF1F7F538E2F4A92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Enchanted Kingdom 4: Fiend of Darkness / Зачарованное королев
 magnet:?xt=urn:btih:6A7A0B77E8786DA35AD1E1944A724612A901F88B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ Wanderlust 4: The Bermuda Secret / Жажда странствий 4: Тайна
 ```bash
 magnet:?xt=urn:btih:B1FDC3A6BF09202B358376C69B3AC5EE49A621A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Medium Detective: Fright from the Past (2017) [En] (1.0) Unofficial [Collector's
 magnet:?xt=urn:btih:2C8E770EF1E782D3605B31BA624D262E38BF3722
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ The Unseen Fears 2: Outlive (2017) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:1F40DA82F43A0245D850F2379BC2D0A71E9549C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ Grim Facade 10: The Message (2017) [En] (1.0) Unofficial [Collector's Edition]
 magnet:?xt=urn:btih:AFDD1F5C13643B9BEE54A82FDBFC3F13D51AE1DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ Cornerstone: The Song of Tyrim – приключенческая игра в о
 ```bash
 magnet:?xt=urn:btih:00164F91B2B0B1AF44A21BBF4E63E0794BACB844
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ Wolfenstein®: The Old Blood – предыстория игры Wolfenstein®: 
 magnet:?xt=urn:btih:ABB018D8A1EEB33B132BDA821A71332FC7A2EFB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +487,8 @@ Dead Island Definitive Edition – переиздание, состоящее и
 magnet:?xt=urn:btih:BE72D12542FE02F34F68AF25A5890A295607C384
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +512,8 @@ Tumbleweed Express – стимппанк аркада, события кото�
 ```bash
 magnet:?xt=urn:btih:347F8C680990E4D2DFC4C3F9A85034ECDA5FEBC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +541,8 @@ Republique разработана ветеранами игровой индус
 magnet:?xt=urn:btih:8ADFDEF7FC9EAE446F7CE7CE7EEDF711625E2883
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +566,8 @@ Halo Wars (2017) [Ru/En] (1.12033.2.0hf) Repack R.G. Revenants [Definitive Editi
 ```bash
 magnet:?xt=urn:btih:AEDB54B86CC891C4F9DD71AC9A6BA4E4E0CF4042
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +593,8 @@ Saints Row: The Third (2011) [Ru/Multi] (1.0.0.1/dlc) License GOG [The Full Pack
 magnet:?xt=urn:btih:EBB0EB662DA805C2774DD70522EE42CE1FE08D36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +619,8 @@ War Mongrels — это изометрическая тактическая иг
 magnet:?xt=urn:btih:4C7B72D1FB4B459A1C14F160CD3C0704CC053587
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +644,34 @@ Yakuza Kiwami (2019) [En/Jp] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:F60098D4C7A8DB2332A914FB8C2EEF9A2DB0525A
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203541   (729458) от 20.02.2019
+
+Remothered: Tormented Fathers (2018) [Ru/Multi] (1.5.1) Repack R.G. Catalyst
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Remothered - кинематографичная трилогия в жанре survival horror, подкупающая исключительно реалистичным геймплеем. История насыщена оригинальными сюжетными поворотами, которые не оставят игрока равнодушным. В “Remothered” психология играет важную роль: герои и злодеи не вписываются в рамки стереотипов, а грань между добром и злом размыта.Тип издания: RepackРазработчик: Stormind Games, Darril ArtsЖанр: Action, Horror, Adventure, Stealth, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6685497879DABF86C6516019A7E8F264C85947D6
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

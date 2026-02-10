@@ -19,6 +19,8 @@ Terminator: Resistance – шутер от первого лица во врем
 magnet:?xt=urn:btih:CACDFDB3D39C1905C35A4F16915C26C7AFCF8F66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Tomb Raider: Underworld (2008) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [R
 ```bash
 magnet:?xt=urn:btih:0AA2A473B0928A76F3E51FD8757AE59CC64FF6EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Until Dawn. Extended Edition / Дожить до рассвета. Расшир�
 magnet:?xt=urn:btih:B58F5A10918CA8EBCB72B684120FA509D50E923A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Fast & Furious: Showdown / Форсаж: Схватка (2013) [PS3] [EUR] 4.40 
 magnet:?xt=urn:btih:8E82D8C13B282BB7CA1FADE94CEA5DE56BBD1C69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Pro Evolution Soccer 2016 продолжает серию футбольных �
 ```bash
 magnet:?xt=urn:btih:BBDF041D1C9A1580F32E4F86A11C61661A5F78AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Supremacy MMA в полной мере демонстрирует на экра�
 magnet:?xt=urn:btih:26A72BE5FD9C965A6F19BAC97F09FA6B62ABB388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Sekiro: Shadows Die Twice (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.04] [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:7A18D12BABCB499C522DC636456C396DEC8251D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Geometry Wars 3: Dimensions Evolved (2015) [PSVita] [EUR] 3.60 [HENkaku] [Licens
 magnet:?xt=urn:btih:062DD1310993E2890A8D9932B6C2092DDCCFF044
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Tom Clancy's H.A.W.X. 2 является продолжением симулят
 ```bash
 magnet:?xt=urn:btih:4C0AE6D2F466EFE651BFE2E08D0FC7D07A2E6B76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Cars Race-O-Rama (2009) [PS3] [EUR] 2.76 [Cobra ODE / E3 ODE PRO ISO] [License] 
 magnet:?xt=urn:btih:75D74540567BBBFD64BED5AC5F82AF0E3DE2AE67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ The Golden Compass – приключенческая игра, основанн
 ```bash
 magnet:?xt=urn:btih:FBF9D39138E50751B6EF5C324577B8DF5E20357E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ SoulCalibur V [PS3] [RUS] [PAL] [3.55 Kmeaw] (2012)
 magnet:?xt=urn:btih:09DE6072D88FEC5EA3BFAB5F5B0CBB2E27C8AD5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Turning Point: Fall of Liberty обыгрывает тему Второй мир
 magnet:?xt=urn:btih:766CE1F23278E7123190A49E746B91F242C79BFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ JASF: Jane's Advanced Strike Fighters (2011) [PS3] [EUR] 3.72 [Cobra ODE / E3 OD
 ```bash
 magnet:?xt=urn:btih:5E986A52CE79BF478E58D65A7E6770749A7FDA9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Ocarina of Time — пятая по счёту игра серии, однако
 magnet:?xt=urn:btih:930FC2415A9FEB64AF277CE8B6A69999863399F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Resistance: Burning Skies (2012) [PSVita] [EUR] 3.60 [HENkaku] [License] [Ru/En]
 ```bash
 magnet:?xt=urn:btih:3D831406D8E8A5BE1799C8A61495D2C00406EE34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Injustice: Gods Among Us — новое слово в мире файтинго�
 magnet:?xt=urn:btih:652FFD5DEEC6300C5395E6B0B458B31929ECEC80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Dead or Alive 5 Plus (2013) [PSVita] [USA] 3.60 [HENkaku] [Repack / 1.01 ] [En]
 magnet:?xt=urn:btih:C74047E8479B963CAD613C8A590EC3172AE9A6AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Divinity: Original Sin 2 - Definitive Edition (2019) [Switch] [USA] 10.1.0 [NSP]
 ```bash
 magnet:?xt=urn:btih:6916C7521C4BF69968AD151F633EEF791E747BAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ The Bluecoats: North vs South (2016) [PS3] [EUR] 4.21 [PSN] [Multi]
 magnet:?xt=urn:btih:EC47B4AB94E532ACB3C10F26F30F7C807F8DADC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Supremacy MMA (2011) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 ```bash
 magnet:?xt=urn:btih:C866E087369AF034ADD4C5EA8E0945C376A328E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Kingdoms of Amalur: Reckoning - ролевая игра с открытым ми
 magnet:?xt=urn:btih:3F202D7F3A681988A235D8BACA3388144E84FF11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ The LEGO Movie Videogame (2014) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 ```bash
 magnet:?xt=urn:btih:67BF5344DB99D0E4179FA3499FDA677A87736DE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ RIDE (2015) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 magnet:?xt=urn:btih:EAAC02BD76BFEE6D8208E99CFFAAE67E35D91B70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Bionic Commando Rearmed представляет легендарную исто
 magnet:?xt=urn:btih:BC842DE666AE9A92F75E5057E32892604D9A98E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Fuel (2009) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 ```bash
 magnet:?xt=urn:btih:A43D120F261706EA9729479580D89EC1A3996667
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

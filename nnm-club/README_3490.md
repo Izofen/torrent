@@ -22,6 +22,8 @@ Amerikan Kaos - Armageddon Boogie (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic 
 magnet:?xt=urn:btih:15AD2F9AC95C9BFAA0A29EE24C68528B96FC5C89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Writhing Squares - Mythology (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Psyched
 magnet:?xt=urn:btih:406C9F1B48184558C0433CBDB1D1A59845F09968
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:406C9F1B48184558C0433CBDB1D1A59845F09968
 ```bash
 magnet:?xt=urn:btih:53DD47874CD0B020B3B760AD9C1570C061E15D0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ CD 1:
 magnet:?xt=urn:btih:A5171772EB7AADBC7874D22BFC970720FECC4910
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:A5171772EB7AADBC7874D22BFC970720FECC4910
 ```bash
 magnet:?xt=urn:btih:F19AC5847095D12C60904F647F0A8BECD8A14E4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:F19AC5847095D12C60904F647F0A8BECD8A14E4B
 magnet:?xt=urn:btih:070735885BB00321CE64DDEB4D9DAD3585B37629
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:070735885BB00321CE64DDEB4D9DAD3585B37629
 magnet:?xt=urn:btih:5912DC27D2C5B68046B99966231155B091DC79B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:5912DC27D2C5B68046B99966231155B091DC79B7
 ```bash
 magnet:?xt=urn:btih:FD7D900175B65792C2AF898B11AA176FA37BCBAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:FD7D900175B65792C2AF898B11AA176FA37BCBAF
 magnet:?xt=urn:btih:700755C2AAB93D03E291861FF603E90A202A7EAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ OsmAnd+ является приложением с открытым исходн
 ```bash
 magnet:?xt=urn:btih:C31531544B38207368A7AE0A4E00CD327DB19186
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:C31531544B38207368A7AE0A4E00CD327DB19186
 magnet:?xt=urn:btih:35D9BBB5BC88C7AE1A46989104B317B558D1D86B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:35D9BBB5BC88C7AE1A46989104B317B558D1D86B
 ```bash
 magnet:?xt=urn:btih:34A8E3E643D9DEFDCC7269D3C419F76878AD1BF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:34A8E3E643D9DEFDCC7269D3C419F76878AD1BF5
 magnet:?xt=urn:btih:0AF7EA43B0E751ABD96C836F1094D43F05C4AA35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:0AF7EA43B0E751ABD96C836F1094D43F05C4AA35
 magnet:?xt=urn:btih:0468220E3C85EFC2BB933CEB3E8BD44E235E7796
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:0468220E3C85EFC2BB933CEB3E8BD44E235E7796
 magnet:?xt=urn:btih:0EA2F0F58A075CBD7AEE2ACC4E21C8B835527809
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ PSP stompDelay — это креативный дилей плагин, разр
 ```bash
 magnet:?xt=urn:btih:BFE393BF2173A0B6D03CE8D78B4EA6C70674DA05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:BFE393BF2173A0B6D03CE8D78B4EA6C70674DA05
 magnet:?xt=urn:btih:D46E6ED10A8EDD8C10EB1933407EE28BBD6FE080
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:D46E6ED10A8EDD8C10EB1933407EE28BBD6FE080
 ```bash
 magnet:?xt=urn:btih:B76B647EF7B49A3DACDF4271B34C5A82FB33EC0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:B76B647EF7B49A3DACDF4271B34C5A82FB33EC0C
 magnet:?xt=urn:btih:5CD395DCE2BD3D0581E03650FBAAF2327AAEA303
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:5CD395DCE2BD3D0581E03650FBAAF2327AAEA303
 ```bash
 magnet:?xt=urn:btih:77E71C64A9C2C334CC2050BD1A0529382CC9AF22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:77E71C64A9C2C334CC2050BD1A0529382CC9AF22
 magnet:?xt=urn:btih:7E7CE198EA5A06FCC102862EDFFB2EFA0B3355C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ Cavern of Dreams (2023) [En] (7.5) License GOG
 ```bash
 magnet:?xt=urn:btih:0A5CC1599D1633F51B0A4FD9FBE387CB48807C4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ Registry Finder - простая в использовании утилита д
 magnet:?xt=urn:btih:95E78BEA0D81C8E032D6F450120549E5D346C9BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:95E78BEA0D81C8E032D6F450120549E5D346C9BB
 ```bash
 magnet:?xt=urn:btih:39BA843D14003B84D17C520BAE6EADB0E60F68F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:39BA843D14003B84D17C520BAE6EADB0E60F68F4
 magnet:?xt=urn:btih:DFBB3BB4698FB3F6A898834CE21BA82D70C5071E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:DFBB3BB4698FB3F6A898834CE21BA82D70C5071E
 ```bash
 magnet:?xt=urn:btih:63E0982BD3E1FDFA31963CAA6CFE32142FCFE839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

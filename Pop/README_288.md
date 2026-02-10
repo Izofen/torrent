@@ -1,3 +1,148 @@
+###  Публикация: 1200650   (794842) от 22.01.2018
+
+VA - Disco 80's vol.1 (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue System - My Bed Is Too Big (3:16)
+02. Fancy - Bolero (Hold Me in Your Arms Again) (5:38)
+03. Den Harrow - Don't Break My Heart 2001 (Soft Radio Mix) (2:59)
+04. Eddy Huntington - U.S.S.R. (5:52)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30B137AAD42A0977493FE25F14B5B5F1DCA57B8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509349   (794887) от 12.11.2021
+
+VA - 13 друзей Билана (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794887.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Дима Билан/Клава Кока - Держи
+2. Artik & Asti - Я так люблю тебя
+3. Руки Вверх! - Полуночное такси
+4. Артур Пирожков - Задыхаюсь(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD6A67FDDB6CC152BDBB155F0C5E597C1AD5FEC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509350   (794890) от 12.11.2021
+
+Ани Лорак - Я Жива (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794890.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Страдаем и любим
+2. Наполовину
+3. Не отпускай меня
+4. Раздетая(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:126C22B8B9AD4359D3BD73EC2898DF108AC56E70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200729   (794911) от 22.01.2018
+
+VA - Euro Disco: The Lost Legends Vol. 15 (2017) [MP3|320 Kbps] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fans - M.A.F.I.A. (3:28)
+02. Tibor Levay - Gipsy Boobie (6:04)
+03. Rock Candy - Teach Me How To Rock (5:53)
+04. Faustein - Salsa Negro (4:59)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:18:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:727831BA9F814C84ADA53374E5AE831E540C609D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200799   (794914) от 22.01.2018
+
+VA - Disco Deutschland Disco (Disco, Funk & Philly Anthems From Germany 1975-1980) (2007) CD [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Su Kramer - You've Got The Power Pt.1 (4:06)
+02. Supermax - Love Machine (8:36)
+03. Amanda Lear - Fashion Pack (Studio 54) (5:12)
+04. Marianne Rosenberg - Wieder Zusammen (4:28)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:16:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C48DD188D1C84036C0FAE64B4E476F960E7F6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200907   (794915) от 22.01.2018
 
 Тина Кароль - Полюс притяжения (2007) [FLAC|Lossless|image + .cue]<Pop>
@@ -21,6 +166,8 @@
 ```bash
 magnet:?xt=urn:btih:3E4EA0FA12BC153A32956C541516962305F68F14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ Marzio - Smoke On The Volcano (1980) LP [MP3|320 Kbps] <Electronic, Space Rock, 
 magnet:?xt=urn:btih:989E11D5CD52A30515DE4AAE9A8FD9DA42CFBACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +224,8 @@ VA - Euro Disco: The Lost Legends Vol. 11 (2017) [MP3|320 Kbps] <Euro-Disco, Syn
 ```bash
 magnet:?xt=urn:btih:698E30B21EDA7C2284681E36729B5A444F0348D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +254,8 @@ VA - Euro Disco: The Lost Legends Vol. 14 (2017) [MP3|320 Kbps] <Euro-Disco>
 magnet:?xt=urn:btih:C1A7745F1E8106FE1480655C859F6BE8C416449F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +282,8 @@ VA - Euro Disco: The Lost Legends Vol. 12 (2017) [MP3|320 Kbps] <Euro-Disco, Syn
 ```bash
 magnet:?xt=urn:btih:1932716BDE8D6F9C7EA001E4A15657E278797E3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +312,8 @@ Signus - Black Hole (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 magnet:?xt=urn:btih:8208F8B0E9CF661D8DC7A56D0122E2F7E9BE8811
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +340,8 @@ VA - Euro Disco: The Lost Legends Vol. 13 (2017) [MP3|320 Kbps] <Euro-Disco>
 ```bash
 magnet:?xt=urn:btih:2B3BB634AA7F5279D36D447F29387166B45536B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +370,8 @@ Mode-One - Коллекция (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
 magnet:?xt=urn:btih:9CA394FCDF694BA2CE237CEEEE68AA54118F3300
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +398,8 @@ Little Mix - LM5 (2018) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop, R&B, 
 ```bash
 magnet:?xt=urn:btih:30F0952F6E3E5BE736258A8F7FF81A394E096E35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +428,8 @@ Black Level - Disco Action (1976) LP [MP3|320 Kbps] <Disco>
 magnet:?xt=urn:btih:8C0BDC7F3BD00D2EC57E7E2D91DF6147581D1358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +456,8 @@ VA - Abriss Ski Hits 2018 - Die XXL Apres Ski Schlager Discofox Hits bis zum Kar
 ```bash
 magnet:?xt=urn:btih:CADC41C4F1DE02DAC80AF0D8C29D498E91C6A68E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +486,8 @@ VA - Best of Hands Up Freaks 2k18 (Deejay Edition) (2018) [MP3|320 Kbps] <Dance>
 magnet:?xt=urn:btih:5D7B62FBAC65CD0606F74486F3F91E00FC4AA440
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +514,8 @@ Lady Gaga - Chromatica (2020) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:34336F56D6620288E60E269C01DEA367D3CC2A73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +544,8 @@ VA - Latin Music Summer Party (2020) [MP3|320 Kbps] <Latin, Pop, Dance>
 magnet:?xt=urn:btih:9BFA7B153EA4E343CF6F6E1B2CB1F4DCF6992B62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +571,8 @@ Giorgio Farina - Discocross (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 ```bash
 magnet:?xt=urn:btih:ED776CC019D42D09B7DE7224AFA7F9B979BACF36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +601,8 @@ Elite - Premiere (1980) LP [MP3|320 Kbps] <Electronic, Disco>
 magnet:?xt=urn:btih:5163A4D3AD417BF3EE9219EE1BA19995949315BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +629,8 @@ VA - Dance Club 2020.02 (2020) Explicit [MP3|320 Kbps] <Dance, Pop, Electronic>
 ```bash
 magnet:?xt=urn:btih:4C462ACF8CF1B7DAA8EEA51BEA519E2D6986A82F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +659,8 @@ Lapsley / Låpsley / - Through Water (2020) [FLAC|Lossless|tracks + .cue] <Indie
 magnet:?xt=urn:btih:D93BCD38BBEC445164D7064131A4B45092790D96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +687,8 @@ Silver Pozzoli - The Original Maxi-Singles Collection (2015) [MP3|320 кб/с] <
 ```bash
 magnet:?xt=urn:btih:DA1D3AF518F5B7AC7FD26F6E7505ED48B0CD209C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +717,8 @@ magnet:?xt=urn:btih:DA1D3AF518F5B7AC7FD26F6E7505ED48B0CD209C
 magnet:?xt=urn:btih:93E9B65FE61E424198A206859E4AC6877AA779CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,140 +746,7 @@ Pentatonix - Evergreen (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:5A6F4957F71887241727B9C56A22B46849406645
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509266   (795551) от 11.11.2021
-
-VA - All The Hits Of Monster Disco Sound (1976) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot Blood - Le Chat (4:22)
-02. Monsieur Goraguer - Sexy Dracula (3:18)
-03. Sweet Exorcist - The Creature From The Freak Lagoon (3:46)
-04. Sweet Exorcist - Zeke The Zombie (3:31)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0596CCED98578DDFCC7FC623E2EF368C76A75CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385927   (795869) от 27.05.2020
-
-VA - Best 80s Hits (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795869.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tears for Fears - Everybody Wants To Rule The World (4:09)
-2. Culture Club - Karma Chameleon (4:00)
-3. The Human League - Don't You Want Me (3:56)
-4. Simple Minds - Don't You (Forget About Me) (4:19)(   Читать дальше...   )Жанр: PopПродолжительность: 02:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6C3E066E0E94AE537837BA0BAF6543D9CC3CA98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011418   (796101) от 28.04.2016
-
-Beyonce - Lemonade (2016) [MP3|320 кб/с] <Pop, Funk & Soul, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pray You Catch Me
-02. Hold Up
-03. Don't Hurt Yourself (feat. Jack White)
-04. Sorry(   Читать дальше...   )Жанр: Pop, Funk & Soul, R&BПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:168C4EBA3C08C31D9AABC50BA4CE5EC801C657C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508897   (796178) от 10.11.2021
-
-ZAZ - Isa (2021) Japan Edition [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Les Jours Heureux
-02. Imagine
-03. De couleurs vives
-04. Ce que tu es dans ma vie(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D86FE2811DD7683836AA86E65A1E692DBBCC53A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200123   (796206) от 20.01.2018
-
-VA - Fitness Hits 2018 [MP3|320 Kbps] <Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katchi ofenbach vs nick waterhouse - Nick Waterhouse
-02. 2u feat justin bieber - David Guetta
-03. Despacito version pop - Luis Fonsi
-04. Hymn for the weekend seeb remix - Coldplay(   Читать дальше...   )Жанр: DanceПродолжительность: 03:07:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC864F36150D002BBC2BBBC251E686C7725EE156
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

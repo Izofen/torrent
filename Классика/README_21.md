@@ -22,6 +22,8 @@ Claudio Constantini, Louiza Hamadi - 20th Century Tango (2020) Ibc classical [FL
 magnet:?xt=urn:btih:2FC7B2285BFB6DC33E8F2E544B1C531B81F3938F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ BrunuhVille - Once Upon A Time (2011) [MP3|320 кб/с]<Neo-Classical, Instrumen
 ```bash
 magnet:?xt=urn:btih:0FA8150C237B00BAD95FB12A0364ECD7D8CB42A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ BrunuhVille - Tales From The Lost Kingdom (2012) [MP3|320 кб/с]<Neo-Classical
 magnet:?xt=urn:btih:C5827051076DE3D6944AEC6584E6280CF26867F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ BrunuhVille - The Eternal Forest (2011) [MP3|320 кб/с]<Neo-Classical, Instrum
 ```bash
 magnet:?xt=urn:btih:CE6FD53F9DB2817A4E344C42AFF26BB4BD4BC603
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Lubomyr Melnyk - Rivers and Streams (2015) [FLAC|Lossless|tracks + .cue] <Classi
 magnet:?xt=urn:btih:0426356E51DC04443F87AC5840CFCDD1B7613F9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Ludwig Van Beethoven - Romantic Classic (1999) [FLAC|Lossless|tracks + .cue] <Cl
 ```bash
 magnet:?xt=urn:btih:8BA0DAB62BCF1E3AA6176D8C42EB158EE3752795
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Wolfgang Amadeus Mozart - Romantic Classic (1999) [FLAC|Lossless|tracks + .cue] 
 magnet:?xt=urn:btih:488BD4A9909E8942BE87372C4D24716E3C29DF50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Arianna Savall - Peiwoh (2009) [FLAC|Lossless|tracks + .cue] <Classical, Vocal M
 ```bash
 magnet:?xt=urn:btih:F623ACCF4500821DAF5D9904B9D7B3AFCA3535E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ David Garrett - Explosive (2015) Deluxe Edition [MP3|320 кб/с]<Classical, Cro
 magnet:?xt=urn:btih:DD7406012F7635D26B0EC79AC6648120A8270F15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ a Johann Strauss weekend(   Читать дальше...   )Жанр: Classical�
 ```bash
 magnet:?xt=urn:btih:2955CF654747B2606B32581F68086808B5395CF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Ludovico Einaudi - Undiscovered (2020) Compilation [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:B5D11E83C8D1546C81DFC4ED07BAFEA910B8D9FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ Winterreise (12), transcription for piano (after Schubert, D. 911), S. 561 (LW A
 magnet:?xt=urn:btih:21649EDEDA03C0489BC4874A103292223E068F10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +369,8 @@ Symphony No. 10 in F sharp major
 ```bash
 magnet:?xt=urn:btih:59EE27787BB94CC4E684CD45645BCA34C622EEDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +405,8 @@ Concerto g-moll BWV 1056
 magnet:?xt=urn:btih:D931AF56A35A08EBE569AD17473B8955137374B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +433,8 @@ Johann Strauss - Romantic Classic (1999) [FLAC|Lossless|tracks + .cue] <Classica
 ```bash
 magnet:?xt=urn:btih:244A8D46385D56C728F856C6D29F03C743B2CF9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +463,8 @@ Annelie - After Midnight (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
 magnet:?xt=urn:btih:F088464272F6247DA36C71EF490A6E8B9564AB74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +491,8 @@ magnet:?xt=urn:btih:F088464272F6247DA36C71EF490A6E8B9564AB74
 ```bash
 magnet:?xt=urn:btih:02A64383A41CFC5888F4EF48A32C9DCB6CE2002B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +521,8 @@ Slava - Ottima Best Of Slava (1999) [MP3|320 Kbps] <Classical, Vocal>
 magnet:?xt=urn:btih:9AD55CF814A05F64FB8F180BD8461EF48A03EBD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +550,8 @@ Renata Tebaldi - The Great Renata Tebaldi (2002)(2CD) [APE|Lossless|image + .cue
 magnet:?xt=urn:btih:26CF07CDF521D5265BE69D24A0946841F637A4F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +578,8 @@ Richard Galliano - Vivaldi (2013) [FLAC|Lossless|image + .cue]<Classical, Accord
 ```bash
 magnet:?xt=urn:btih:FDD683A87897A63157DA9A7EF4089F46CEF7B40A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +609,8 @@ Manfred Symphony, Op. 58
 magnet:?xt=urn:btih:B65390B598938E30E98D3C44AB6A5B834E14439C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +637,8 @@ Craig Armstrong - Piano Works (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Class
 ```bash
 magnet:?xt=urn:btih:B1D521CB9F723E204E0AA2F713C8901954143392
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +667,8 @@ Scene 1
 magnet:?xt=urn:btih:1B20F12F721A8D2910B9C1DB06B245B25B935A47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +695,8 @@ Water Music - Suite in F major, HWV 348
 ```bash
 magnet:?xt=urn:btih:999F37D5CA396176398EFF9A7D672EAC1CE7AD53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -677,6 +725,8 @@ Piano Sonata No. 8 in C minor ("Pathtique"), Op. 13
 magnet:?xt=urn:btih:F9E1035171262EF73A2E87114D4CB4B9A8505B95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -703,6 +753,8 @@ Piano Concerto in D major, Op. 27
 ```bash
 magnet:?xt=urn:btih:A4E83535EF3D24ABB64894AA5F8218BB8C0CE3D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

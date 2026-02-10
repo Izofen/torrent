@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:41CC35EA0F2026827E6362CDCE7097FFEDBCFEE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Adobe Audition 2023 23.6.0.61 RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:33DC1C2865A1E453D1C89693FC5D8AE9F0C17748
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ VMware vCenter Converter Standalone – бесплатное приложени�
 magnet:?xt=urn:btih:DE7CE0899A1BE0B5FEE139BC588CE18A8F195916
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ DaVinci Resolve — единственное в мире решение для �
 ```bash
 magnet:?xt=urn:btih:06703EFCD6234F8F8E03FFF5A90069733F1DC499
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Acrobat Pro — это полностью обновленная настоль�
 magnet:?xt=urn:btih:0AA12B7681CF778747B5CE9D57B605FB9E737039
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Snappy Driver Installer Origin (SDI Origin) - главная ветвь порт
 ```bash
 magnet:?xt=urn:btih:4844AC4747CA5660D903F449A30A591568925506
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:4844AC4747CA5660D903F449A30A591568925506
 magnet:?xt=urn:btih:C0FFD0EDD79D4DD0F1E3F1A061BDCA1974EADB8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ MediaHuman YouTube Downloader 3.9.9.85 (1308) RePack (& Portable) by elchupacabr
 ```bash
 magnet:?xt=urn:btih:68D7964A89239A4C9B3718ED09FE64FE893F8564
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:68D7964A89239A4C9B3718ED09FE64FE893F8564
 magnet:?xt=urn:btih:7A038CF6CD55E4FD59EDD6EDDD4C609D8D59FCCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Punto Switcher — автоматический переключатель ра�
 ```bash
 magnet:?xt=urn:btih:BDFDA776E0505175E91C8A4254BFFD55355EE2F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Microsoft Visual C++ Redistributable Package – это распространя
 magnet:?xt=urn:btih:B768E25288A24B106FD37375C70DD4A7236EE6D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:F3C26455A11F3B51F4DB252F28F1A4F8746F1246
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Adobe Illustrator 2023 27.7.0.421 RePack by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:B70AB80962F63B68DB2AEAB057D8183C13B279E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ ZBrush – это программа для цифровой скульптур�
 ```bash
 magnet:?xt=urn:btih:62BE5E72BC4A23BCBB36732EF0BDD2DCF7C1B71A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 magnet:?xt=urn:btih:537F3E986563A13525B9B3D8E64EF225F4C2B773
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:537F3E986563A13525B9B3D8E64EF225F4C2B773
 ```bash
 magnet:?xt=urn:btih:67B4DD3BA1D201AA652B20A4196FD07D4776586C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ WifiInfoView - небольшая бесплатная утилита, кото�
 magnet:?xt=urn:btih:812E27304AF6F8A0F839301D5EEB9292AF13B300
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ ZWCAD Architecture — это профессиональное программ�
 ```bash
 magnet:?xt=urn:btih:0BA02D01688BEE938A1D4A87D3B5DEC7FDCB4B39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ Nox App Player 7.0.5.8088 [Multi/Ru]
 magnet:?xt=urn:btih:98CFB66539E2E743D6E913D5A90B9DF79C6CBB1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ SIV (System Information Viewer) - мощнейшая утилита, показ�
 ```bash
 magnet:?xt=urn:btih:663DB8009D79A62617866AF28A5052B0396574FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ Notepad++ - бесплатный редактор текстовых файло�
 magnet:?xt=urn:btih:F72CB9FF89408B3DCEE674FEA0916F628E41AF83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ Punto Switcher — автоматический переключатель ра�
 ```bash
 magnet:?xt=urn:btih:33D7C6DD7A8304CD182720F69420CD09C565DCCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ Planet VPN 2.1.19.1 [Multi/Ru]
 magnet:?xt=urn:btih:FE2ECCF4BC4B81DFCDF11975B4F0FFC7039DC4B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ Total Commander 11.00 (12.08.2023) Portable by MiG [Ru/En]
 ```bash
 magnet:?xt=urn:btih:46A42251B19A3C769B1871450DD36FACECEDEC6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 magnet:?xt=urn:btih:A546DD7C19D326E839E24B6B091A67FACC46B732
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Auslogics Disk Defrag Ultimate - это профессиональная вер�
 ```bash
 magnet:?xt=urn:btih:DC4BF65ECD1C359D1694CEA7A1148B2E4FCC1E6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Solid Explorer - это приложение для управления фай�
 magnet:?xt=urn:btih:B5C5280002FFAC0536BF1D520559E6A8F64DCF15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:B5C5280002FFAC0536BF1D520559E6A8F64DCF15
 ```bash
 magnet:?xt=urn:btih:55F9A7796E196CE0B63728C2DBBCD6658E5D123F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:55F9A7796E196CE0B63728C2DBBCD6658E5D123F
 magnet:?xt=urn:btih:53FE94B73483820389D7D6D93FE79989F6A08D14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ SD Card Test Pro v2.7 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:2C8CD55D8D48A505633DE7A9C8C27152463B97A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Magic Eraser - это революционное приложение для р�
 ```bash
 magnet:?xt=urn:btih:9AED5ABFCCA5DC54BDD00C0B7DFD58D67EFB7902
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ Smart AudioBook Player Pro v11.6.3 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:373D7A34D0593115598B615F5C1F803E7D66DF8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ```bash
 magnet:?xt=urn:btih:33AE37AA9F3106EB0C4C8647836C69D2A809F1FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:33AE37AA9F3106EB0C4C8647836C69D2A809F1FD
 magnet:?xt=urn:btih:03849A83443463DBC13F93EF88D31BB89D52645A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ```bash
 magnet:?xt=urn:btih:BCD8291C84149D3CE8A73464F2DC83AB483ADFC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:BCD8291C84149D3CE8A73464F2DC83AB483ADFC3
 magnet:?xt=urn:btih:974745993E738AC61BC499C8E18E57E8AC03B76A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ Taskito - это приложение для управления задачам
 magnet:?xt=urn:btih:15AE60A31241F500E767151C22CC5DFDBED4BF82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ AIDA64 v2.16 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0E9DFA1B53BDA71B9AFCC6A66D0159A5FE23ACB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:0E9DFA1B53BDA71B9AFCC6A66D0159A5FE23ACB7
 magnet:?xt=urn:btih:7044DA36B7B4D7227D0300DAAD6AA52A8EA3AB4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ WaveEditor для Android™ — это профессиональный инс�
 magnet:?xt=urn:btih:2FC3FCBD48A6A3695F9AE69C25F307B5BA930689
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ YouCut - один из самых удобных и оптимальных по 
 ```bash
 magnet:?xt=urn:btih:21B2207044CD120E159766A07FB8CE6A4B04B175
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ Exo Player - Видеоплеер и IPTV v2.1.1 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:C5C572A981E5DAF1D2BACB9CCE75B206246759FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:02C82E1DDC1D63A2CBA86C74A19A71C723650B5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ AirBrush: ИИ Фоторедактор v7.22.0 Mod by PieMods [Ru/Multi]
 magnet:?xt=urn:btih:69AFE3C7B991F60AF61D7AA5B33ECC3B12DEF90F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:69AFE3C7B991F60AF61D7AA5B33ECC3B12DEF90F
 ```bash
 magnet:?xt=urn:btih:9F78E79234E218F14D313F7C9403D45623526361
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 magnet:?xt=urn:btih:6A2C804C5C04FAAEB09A434A8426F727E7BB2C95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ Remini / Улучшение Фото v3.7.1213.202518225 Mod by Mixroot [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:C1ADBEE90322F937A65D24BD1ECF86BEAF86D0C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ Listen Audiobook Player v5.4.0 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:CBEC2EDC53EC17ADD276E26EA1D3EA1594E94C2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:CBEC2EDC53EC17ADD276E26EA1D3EA1594E94C2D
 ```bash
 magnet:?xt=urn:btih:55348FC4F5C78A6BA241748D231A1600C9F33C4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ Moon+reader относится к категории универсальных 
 magnet:?xt=urn:btih:0D2A77DA7BF37C6F83379E71A4B53BD658F7EF4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ MobiOffice - это полнофункциональный офисный пак
 magnet:?xt=urn:btih:1284A7FAB8F1B54AB13A48C0F740D7257232B42E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Truecaller: AI Call Blocker / Oпределитель номера v16.5.6 Mod b
 ```bash
 magnet:?xt=urn:btih:B298667CB340ADB4A709E5CC4C255EDFC54A8E71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

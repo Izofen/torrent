@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:E93510FCFC398A081F90C98A3F4B61947E9D44EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ VA - Dance Party! (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:D40775C0669BBB74E6E7A148EDDCDBA7400EA5B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Tokyo Revengers: Seiya Kessen Hen | Tokyo Revengers: Christmas Showdown Arc | Т
 magnet:?xt=urn:btih:B083D4F20BCC423370AEF6758ADE8CE60BE3D6A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ WhatsApp Messenger - это кроссплатформенное приложе�
 ```bash
 magnet:?xt=urn:btih:5830E56C093E9C8005302AD22335A1396957CA56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:5830E56C093E9C8005302AD22335A1396957CA56
 ```bash
 magnet:?xt=urn:btih:80083AC815AF7A35F08D6D7CF7A94DE04BF6E86C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ VA - TOP Non-Stop 2010-2019 - Dance House Music (2020) [MP3|192-320 Kbps] <Funky
 magnet:?xt=urn:btih:7E7BE9E6F0FB7300333E784B3EB8887BDA727603
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:7E7BE9E6F0FB7300333E784B3EB8887BDA727603
 ```bash
 magnet:?xt=urn:btih:9F50947905F406E48F84F12586AB40EB3FA807C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:9F50947905F406E48F84F12586AB40EB3FA807C8
 magnet:?xt=urn:btih:01D1B707380B49CD23A784C976613BEB72B57F1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:01D1B707380B49CD23A784C976613BEB72B57F1D
 magnet:?xt=urn:btih:83BCBD09E5D888C019CFEB536FB662D63BD0D799
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:83BCBD09E5D888C019CFEB536FB662D63BD0D799
 ```bash
 magnet:?xt=urn:btih:C45B7C53ABE1BFE97FEEB161EAD8EADC0409FFA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:9C9B0FF76C96E14D9AE3C454DA25F2BB9CA81EC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:9C9B0FF76C96E14D9AE3C454DA25F2BB9CA81EC6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:9C9B0FF76C96E14D9AE3C454DA25F2BB9CA81EC6
 magnet:?xt=urn:btih:FF55D1E84E1824654ADA77102079E923DCE53FE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ CCleaner - это самая популярная программа на ПК �
 ```bash
 magnet:?xt=urn:btih:062E128C804BCD1E65FD8BAA9F949E866232827A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ Abelssoft SSD Fresh - если вы счастливый обладатель SS
 magnet:?xt=urn:btih:8F6EBE6B63650F13A7E8BC063DDC8628D579DC4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:8F6EBE6B63650F13A7E8BC063DDC8628D579DC4C
 ```bash
 magnet:?xt=urn:btih:A9BB05CE176E660EE222F84F7C55197949026B50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ PDF-XChange Editor — программа для просмотра, редак�
 magnet:?xt=urn:btih:ABF4B6421CF947310094FCC2D5AD64008543BAD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:053DF3E5CEF0C6FBAFCAA91D8C1C43B0EB030DF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ Dr. Deepali R Vora и др. | Python Machine Learning Projects (2023) [PDF][EN]
 magnet:?xt=urn:btih:899C0FB6D4C28F936D915E10C06A53331AE3EBF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Quantic Dream | Артбук по игре Detroit: Become Human / The Art of De
 ```bash
 magnet:?xt=urn:btih:07B1D81198BD709B2B1C434421D464B573C12822
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:07B1D81198BD709B2B1C434421D464B573C12822
 magnet:?xt=urn:btih:C5BC5A49DA8C9B26F5CAEEA281C9D733A7C527F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:C5BC5A49DA8C9B26F5CAEEA281C9D733A7C527F7
 ```bash
 magnet:?xt=urn:btih:90F31D41CC4F8D7F4ED1423EE0518DFB259224CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ Total Commander Ultima Prime — это набор утилит и разноо�
 magnet:?xt=urn:btih:F8DCA8BE99F2EADB6202D809E004D9FD68D1D124
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Smart Book / Параллельный перевод книг v3.2 Mod by Dymony
 magnet:?xt=urn:btih:66937DA2F2B3C0A8D6A8E03021DB0CA814E28A49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:66937DA2F2B3C0A8D6A8E03021DB0CA814E28A49
 ```bash
 magnet:?xt=urn:btih:134D80768D86270539A853F29ABB72F61B4D0E02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Astarotte no Omocha! | Игрушка Астаротты [ТВ] [2011, TV, 12 + 
 magnet:?xt=urn:btih:D6FADE82F400A763D738222B839D950C1E08ACCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:D6FADE82F400A763D738222B839D950C1E08ACCA
 magnet:?xt=urn:btih:285DF680B39557523B8999EE74E1738C11B2185B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:285DF680B39557523B8999EE74E1738C11B2185B
 magnet:?xt=urn:btih:8683A909174AE98E90E6E78DEC09757569BF6638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Pine: A Story of Loss (2024) [Ru/Multi] (1.4.12853) Repack FitGirl [Collector's 
 magnet:?xt=urn:btih:FA4D5BD47F1D82813AB76209715E6159535A8EE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Auslogics Registry Cleaner поможет вам избавиться от ош�
 ```bash
 magnet:?xt=urn:btih:D16DAFD17E6333654810D1EBFE298F26B2D7ABC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ CareUEyes служит для изменения цветовой темпера
 magnet:?xt=urn:btih:92D79809D31AB05241D88D471CB3D92E0D35FA88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Shotcut - мощное кроссплатформенное приложение
 ```bash
 magnet:?xt=urn:btih:FD4FEB772197CBF4192B6A3A61833854B1B77ED0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Cyberpunk 2077 приключенческая ролевая игра, дейс�
 magnet:?xt=urn:btih:3221A48CD806F313801672F0890DD55AF823CB9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:3221A48CD806F313801672F0890DD55AF823CB9D
 ```bash
 magnet:?xt=urn:btih:C35876FD9AF3EBD9766FAC58CFB61596ED12CE1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Auslogics Disk Defrag Pro - это профессиональная версия
 magnet:?xt=urn:btih:5A2AD08768EECE7D40B294AF773EAE73FC7F616F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Microsoft Windows несовершенна, и в ней нет всех нас�
 ```bash
 magnet:?xt=urn:btih:8C651C551C1534FAA87FAB2B42BAFD8C9E70AEDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:8C651C551C1534FAA87FAB2B42BAFD8C9E70AEDB
 magnet:?xt=urn:btih:EA901CA5C911E3A2225F2A95C0748471CCEB7E47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:379D11076B618AF30A9EC14F96550BA1904D19CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:379D11076B618AF30A9EC14F96550BA1904D19CD
 magnet:?xt=urn:btih:3A523187AB60874268231CA66943713D288846C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Primeval (2020) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:159B355E37B21C9016EF3C9C992FF327270448D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:159B355E37B21C9016EF3C9C992FF327270448D3
 ```bash
 magnet:?xt=urn:btih:1E84A9AAEE9A1051DE1EDD2512FA5494B4319B24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Windows Slimmer поможет вам в удалении ненужных ко�
 magnet:?xt=urn:btih:9B5020B96B43E964502B8AFF29F3EEE41924E7C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Duplicate File Finder Pro 2500 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:088E0E65A36A39982BFE3E8A9CE91423D2A187FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:088E0E65A36A39982BFE3E8A9CE91423D2A187FA
 magnet:?xt=urn:btih:285B019BBBD216742CBC782057324E81B323B9DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ DISORDER (2025) [Ru/Multi] (build 17062976) Repack FitGirl
 magnet:?xt=urn:btih:625DE654909C105BE810B5CEB33A7C53DA038B5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ PlayerPro Music Player - аудиоплеер, что предоставляет
 ```bash
 magnet:?xt=urn:btih:9A4FD1E5E67DD3F33DF007B56B74731581F7AECC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Aiarty Image Enhancer (с генеративным ИИ) — это соврем
 magnet:?xt=urn:btih:9C26D94899A17D34F8E0C4F7ED39C7A46E86BAD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ MediaHuman YouTube Downloader 3.9.9.97 (2501) RePack (& Portable) by elchupacabr
 ```bash
 magnet:?xt=urn:btih:2E9B47623A685467F151391F4E21926D3D8F76F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:2E9B47623A685467F151391F4E21926D3D8F76F4
 magnet:?xt=urn:btih:8420AD558BB412E73D9936AB9407CA86BEA9E079
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:8420AD558BB412E73D9936AB9407CA86BEA9E079
 magnet:?xt=urn:btih:EC911D72461A9B6105B459033198110340AFC723
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ ES File Explorer (File Manager) — это полнофункциональны�
 ```bash
 magnet:?xt=urn:btih:1E3A2B8D5E75097719BA8F4EBF736C9772796E75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

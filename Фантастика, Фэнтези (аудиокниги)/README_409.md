@@ -1,3 +1,29 @@
+###  Публикация: 1541421   (646430) от 02.04.2022
+
+Евгений Южин | Инженер (Книга 6). Четвертый (2022) [MP3, Сергей Уделов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люди любознательны, но не у всякого есть возможность удовлетворить жажду познания. Главному герою повезло, он может получить ответы на многие вопросы, за каждый из которых многие расплачивались годами жизни. Но и его ждет плата. Он еще не знает цену, но уже понимает – пора делать выбор. Что главное в жизни? Для чего нужны знания? И что с ними делать?Жанр: Боевая фантастика, ПопаданцыПродолжительность: 07:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32402C6DC421FCF5BF6ACB6A731F79488F291351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227556   (646497) от 26.05.2018
 
 Василий Сахаров | Наследник Древних (2018) [MP3]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:FBFFD72583A7F6081086D7B919525C34FAD8DFE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:FBFFD72583A7F6081086D7B919525C34FAD8DFE4
 magnet:?xt=urn:btih:8207EC4ED56AF24C68ED54B086C12BCC097A3EC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:8207EC4ED56AF24C68ED54B086C12BCC097A3EC2
 ```bash
 magnet:?xt=urn:btih:306397BCBA845C81414880CA28B0AB88184C2FC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:306397BCBA845C81414880CA28B0AB88184C2FC0
 magnet:?xt=urn:btih:ADA65B5A3263262D960B3551DB4DE96457C2ADB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:ADA65B5A3263262D960B3551DB4DE96457C2ADB5
 ```bash
 magnet:?xt=urn:btih:9CF0D3FF7BF351641E08FA4DA78C2B71352BC7A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:9CF0D3FF7BF351641E08FA4DA78C2B71352BC7A0
 magnet:?xt=urn:btih:6D4E7BD651A0A19AE097A71B29150D39B51AA67D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:6D4E7BD651A0A19AE097A71B29150D39B51AA67D
 ```bash
 magnet:?xt=urn:btih:F6C335185CB19074145973D56B8A4B7D004282F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:F6C335185CB19074145973D56B8A4B7D004282F8
 magnet:?xt=urn:btih:4334AA037A2A552ED06BCDF857F03B2F9A7CD749
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:4334AA037A2A552ED06BCDF857F03B2F9A7CD749
 magnet:?xt=urn:btih:20E06F7A27B2B5BD19C84763984D7C8E7B384127
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:20E06F7A27B2B5BD19C84763984D7C8E7B384127
 ```bash
 magnet:?xt=urn:btih:19729F76BC39B1F2A44CFCA81DA15F5D4DAE61DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:19729F76BC39B1F2A44CFCA81DA15F5D4DAE61DD
 magnet:?xt=urn:btih:509D06D93DC6FCD5538A8742383601343F990C86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:509D06D93DC6FCD5538A8742383601343F990C86
 ```bash
 magnet:?xt=urn:btih:1EF7581DB15B348EEF6F6ED382793EE16D515E67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:1EF7581DB15B348EEF6F6ED382793EE16D515E67
 magnet:?xt=urn:btih:D4AB70B4EECBF183E2E07633F22AB1775BE85EE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:D4AB70B4EECBF183E2E07633F22AB1775BE85EE3
 magnet:?xt=urn:btih:4DCD91F8D1A29B0D05254D35B7D83F17291E7889
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:4DCD91F8D1A29B0D05254D35B7D83F17291E7889
 ```bash
 magnet:?xt=urn:btih:0B278579F0A7978E5E9C5E7A4ADF99027469C68C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:0B278579F0A7978E5E9C5E7A4ADF99027469C68C
 magnet:?xt=urn:btih:E9B43E49945DCC2EFC8CB5A4835A387B235C2DE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:E9B43E49945DCC2EFC8CB5A4835A387B235C2DE9
 ```bash
 magnet:?xt=urn:btih:A39DB76185744D2D3B7D39E94F5AF577ADDF97B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ Bethesda Softworks | Тамриэльские Хроники (2015) [MP3] (12 и
 magnet:?xt=urn:btih:37389EAC46FA0D23C1A59A8273E9F9260D04C228
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:37389EAC46FA0D23C1A59A8273E9F9260D04C228
 ```bash
 magnet:?xt=urn:btih:F14CA4C19B7D6063B6DDA76EB4353A4926C3C9D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:F14CA4C19B7D6063B6DDA76EB4353A4926C3C9D8
 magnet:?xt=urn:btih:FB845AE6B786380F9BCD66E90D8D5D164040E90B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:FB845AE6B786380F9BCD66E90D8D5D164040E90B
 ```bash
 magnet:?xt=urn:btih:84805EF172782E2555B407FE410B78834B633185
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:84805EF172782E2555B407FE410B78834B633185
 magnet:?xt=urn:btih:0C5CBC604A140B60149007B4A8F8E1E44C654164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:0C5CBC604A140B60149007B4A8F8E1E44C654164
 ```bash
 magnet:?xt=urn:btih:B091B62D940163D8AE79C3265BBF11AE311BED22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:B091B62D940163D8AE79C3265BBF11AE311BED22
 magnet:?xt=urn:btih:E311DE0FA1CFA632F0A31075DCBD09BA3BEEA347
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,30 +676,7 @@ magnet:?xt=urn:btih:E311DE0FA1CFA632F0A31075DCBD09BA3BEEA347
 magnet:?xt=urn:btih:EB01A86D98F7E66179D4887C13731FE68EE5A356
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540721   (650358) от 31.03.2022
-
-Вадим Фарг | Система возрождения (Книга 1). Лишний игрок (2022) [MP3, Владислав Горбылев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смерть ещё не конец. Слышали такую фразу? А мне пришлось столкнуться с этим фактом лицом к лицу. Стараясь спасти племянницу, погиб в аварии, но даже смерть не принесла долгожданного спокойствия.
-Некие высшие силы перенесли меня в Лимб – Арену, состоящую из пяти колец. А вместе со мной там оказалась тысяча игроков. Теперь нам приходится выживать, дабы собрать все (   Читать дальше...   )Жанр: Фэнтези, LitRPGПродолжительность: 10:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A6564D13DA5A17B29651746DC8A211ECEC36BA0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

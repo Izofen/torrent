@@ -1,3 +1,31 @@
+###  Публикация: 1535881   (682235) от 08.03.2022
+
+Анатолий Дроздов | «Малахольный экстрасенс» Книга 2. Экстрасенс разбушевался (2022) [MP3, Максим Суслов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анатолий Фёдорович Дроздов – известный писатель-фантаст, пишущий в разных жанрах. Представляем в аудиоформате вторую книгу его новой дилогии о попаданце, который очутился в девяностых годах прошлого века и обрёл экстрасенсорные способности.
+
+После смерти пенсионер оказывается в теле молодого человека, который обладает необычным даром. Как все помнят, в девяностые (   Читать дальше...   )Жанр: Героическая фантастика, Историческая фантастика, ПопаданцыПродолжительность: 10:08:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561FA9F1B9CE425B4FC3A9141CE8EC3FF5046856
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000110   (682333) от 30.04.2018
 
 Роман Злотников, Алексей Махров | Дорога к Вождю (2016) [MP3]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:1C1316106A2153E9F6B1B93E23A330D247F8599F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:1C1316106A2153E9F6B1B93E23A330D247F8599F
 magnet:?xt=urn:btih:483D073175C9B7D78911F0EF1503B5A1E099BCA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +98,8 @@ magnet:?xt=urn:btih:483D073175C9B7D78911F0EF1503B5A1E099BCA2
 ```bash
 magnet:?xt=urn:btih:B7A1BCED91310687B11497232F5342A7F7698EF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +125,8 @@ magnet:?xt=urn:btih:B7A1BCED91310687B11497232F5342A7F7698EF2
 ```bash
 magnet:?xt=urn:btih:FB1BB4DD132CDDF47D20713A33BBD4BAD9700027
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +154,8 @@ magnet:?xt=urn:btih:FB1BB4DD132CDDF47D20713A33BBD4BAD9700027
 magnet:?xt=urn:btih:B54AA9E24B2CA27AC66349DE4A1C9FECA48466A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +179,8 @@ magnet:?xt=urn:btih:B54AA9E24B2CA27AC66349DE4A1C9FECA48466A3
 ```bash
 magnet:?xt=urn:btih:F632941BE858062FBFF398EDABE6F5C0E9C4BE9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +206,8 @@ magnet:?xt=urn:btih:F632941BE858062FBFF398EDABE6F5C0E9C4BE9E
 magnet:?xt=urn:btih:01D7B7B4302E000FE7BE268F7DA9A1BDEB92B013
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +232,8 @@ magnet:?xt=urn:btih:01D7B7B4302E000FE7BE268F7DA9A1BDEB92B013
 magnet:?xt=urn:btih:071E5337934EA83955F367BD7595139E3FCC4D25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +257,8 @@ magnet:?xt=urn:btih:071E5337934EA83955F367BD7595139E3FCC4D25
 ```bash
 magnet:?xt=urn:btih:B2623AF6EB6608ACC8D5DFCE85F030A9816ADC70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +286,8 @@ magnet:?xt=urn:btih:B2623AF6EB6608ACC8D5DFCE85F030A9816ADC70
 magnet:?xt=urn:btih:906AA9967C1E73A21FC0D6EB53DB3FE1392A2F24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +312,8 @@ magnet:?xt=urn:btih:906AA9967C1E73A21FC0D6EB53DB3FE1392A2F24
 magnet:?xt=urn:btih:8A184F156E41AF9CF9EECD6CE3E2C7D42019C738
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +337,8 @@ magnet:?xt=urn:btih:8A184F156E41AF9CF9EECD6CE3E2C7D42019C738
 ```bash
 magnet:?xt=urn:btih:11C28984A7DDFF876C75A03E46AC556FD082B437
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +365,8 @@ magnet:?xt=urn:btih:11C28984A7DDFF876C75A03E46AC556FD082B437
 magnet:?xt=urn:btih:D2D7055547B056658F33A65E702784D74E92F768
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +391,8 @@ magnet:?xt=urn:btih:D2D7055547B056658F33A65E702784D74E92F768
 ```bash
 magnet:?xt=urn:btih:7DCA461DD1B5E9B859CEF5B96C9421C84FE6B400
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +420,8 @@ magnet:?xt=urn:btih:7DCA461DD1B5E9B859CEF5B96C9421C84FE6B400
 magnet:?xt=urn:btih:24BA7F5810737CEDB52CD6E2169B3C2751060A6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +448,8 @@ magnet:?xt=urn:btih:24BA7F5810737CEDB52CD6E2169B3C2751060A6E
 magnet:?xt=urn:btih:A510F7F1FBFC158A117A63D3F9B3E8114FEE5F87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +473,8 @@ magnet:?xt=urn:btih:A510F7F1FBFC158A117A63D3F9B3E8114FEE5F87
 ```bash
 magnet:?xt=urn:btih:7B093B64CB93017AE7A287A2C7B105C5CEEFC22B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +500,8 @@ magnet:?xt=urn:btih:7B093B64CB93017AE7A287A2C7B105C5CEEFC22B
 magnet:?xt=urn:btih:34BF929399D651256827902B90CCF1DDC7229DD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +526,8 @@ magnet:?xt=urn:btih:34BF929399D651256827902B90CCF1DDC7229DD2
 magnet:?xt=urn:btih:B86FE7544EA606547990896368CCCDB07184F912
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +551,8 @@ magnet:?xt=urn:btih:B86FE7544EA606547990896368CCCDB07184F912
 ```bash
 magnet:?xt=urn:btih:444142A0119CBF6EE6D098C63DE2A9B523829912
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +581,8 @@ magnet:?xt=urn:btih:444142A0119CBF6EE6D098C63DE2A9B523829912
 magnet:?xt=urn:btih:63C3BEC30AC4684AE9E8B9934DCE68B6D1A6E605
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +606,8 @@ magnet:?xt=urn:btih:63C3BEC30AC4684AE9E8B9934DCE68B6D1A6E605
 ```bash
 magnet:?xt=urn:btih:5CBEC1AB832C0FCFE5C9519A3895260DAEB04351
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +633,8 @@ magnet:?xt=urn:btih:5CBEC1AB832C0FCFE5C9519A3895260DAEB04351
 magnet:?xt=urn:btih:52EC6EBCDDD7F3EABBB1D7FDAA188D222219A526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +658,8 @@ magnet:?xt=urn:btih:52EC6EBCDDD7F3EABBB1D7FDAA188D222219A526
 ```bash
 magnet:?xt=urn:btih:FCD4277163E9B5B64303C4718961F8BA95EAE9A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,29 +685,7 @@ magnet:?xt=urn:btih:FCD4277163E9B5B64303C4718961F8BA95EAE9A5
 magnet:?xt=urn:btih:1A6F6C38BAB98BCE31E8BC58C6744CF1F1DD1051
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028766   (686480) от 24.06.2016
-
-Людмила Астахова | Честь взаймы (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все маги — коварные негодяи. Эту прописную истину знает в Эльлорской Империи каждый. Перед вероломством и жестокостью чернокнижников не способны устоять ни хрупкая, беззащитная женщина, ни всемогущий Канцлер Империи. У беглой вдовы государственного преступника Фэймрил Эрмаад злобные колдуны отобрали пятнадцать лет жизни, счастье материнства и свободу быть собой, (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 18:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E6267D0C69C95EBF589F5DD0747CD525771DAAE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

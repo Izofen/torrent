@@ -1,3 +1,138 @@
+###  Публикация: 902726   (658568) от 30.05.2015
+
+Сборник - European Capital Landmarks [PSD, AI, EPS, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Европейские столицы. Самые известные здания и сооружения.Формат: PSD, AI, EPS, SVG, CSH, PNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5522DC213B20A2DD3899AA894CD2C5B6FFCD1014
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903286   (658577) от 30.05.2015
+
+Шаблоны - Фотокнига - День Победы [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотокнига - День Победы
+
+Автор:Формат: PSDРазрешение файлов: 4772 x 2398 (разворот), 5386 х 2898 (обложка), 300 dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A5AFD7738AF9A109C2A18456D3A30C0CBDE51C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225807   (658599) от 17.05.2018
+
+Текстуры - Creative Market - 12 Recycled Paper Textures - 34756 [JPG, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бумажные текстуры в RGB и CYMK, по 300 и 72 DPI с инструкциями.
+Автор: everytuesday.Формат: JPG, PATРазрешение файлов: 1024 x 1024
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7613E86A539535B821B66F2C6292010F4252D4E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139622   (658786) от 03.06.2017
+
+Скрипты - VideoHive - Photos Videos Comps To Comps [JSX]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот скрипт After Effects автоматически добавит импортированные элементы (фотографии, видео, слои ...) в выбранные композиции всего за два клика. В раскрывающемся меню выберите желаемую ориентацию экрана в соответствии с выбранными вами композициями (Пейзаж, Портрет или Оригинал).Формат: JSX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD1E8A57F5373BF30CCC13DCBF1594341BED5043
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902864   (659525) от 29.05.2015
+
+Звуковые библиотеки - Sound Ideas - The Great Big Whoosh DVD Combo (2009-2015) [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот DVD включает полное содержание всех пяти дисков популярной серии звуковых эффектов "The Big Whoosh", плюс в качестве бонуса более ста дополнительных свистов и переходов - в общей сложности, более чем 2000 захватывающих звуковых эффектов!
+
+Все элементы записаны в WAV-формате, 44.1kHz/16Bit, и диск также содержит полный перечень треков в Microsoft Excel (   Читать дальше...   )Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C5A94338B476764358E0CC409C484C09B2741E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225623   (659580) от 16.05.2018
 
 Текстуры - Creative Market - 75 Stone & Wood Textures - 1419093 [JPG]
@@ -19,6 +154,8 @@
 ```bash
 magnet:?xt=urn:btih:E1E0A7E00E6483D924FB895BD1321ADFB2966FC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +181,8 @@ magnet:?xt=urn:btih:E1E0A7E00E6483D924FB895BD1321ADFB2966FC1
 magnet:?xt=urn:btih:B45CB0ACE8ED7454B56F93AE83214B995591E035
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +206,8 @@ magnet:?xt=urn:btih:B45CB0ACE8ED7454B56F93AE83214B995591E035
 ```bash
 magnet:?xt=urn:btih:A75B9E37243201FC11C102E83148F632A0331785
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +233,8 @@ magnet:?xt=urn:btih:A75B9E37243201FC11C102E83148F632A0331785
 magnet:?xt=urn:btih:B59AD56A36D710E6B286F95102A08C5E9A8E518B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +259,8 @@ magnet:?xt=urn:btih:B59AD56A36D710E6B286F95102A08C5E9A8E518B
 magnet:?xt=urn:btih:B928C270A7AC703E131118D51D295304FD346346
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +284,8 @@ magnet:?xt=urn:btih:B928C270A7AC703E131118D51D295304FD346346
 ```bash
 magnet:?xt=urn:btih:281B6C0CDB7665CB221B401679C19079728E692C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +312,8 @@ magnet:?xt=urn:btih:281B6C0CDB7665CB221B401679C19079728E692C
 magnet:?xt=urn:btih:3846FEAA03D7079B4C59997D8F6EE2CFCAC2F2F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +338,8 @@ magnet:?xt=urn:btih:3846FEAA03D7079B4C59997D8F6EE2CFCAC2F2F4
 ```bash
 magnet:?xt=urn:btih:35F59E495BBB47A5D2B46DC857125EA309B23157
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +366,8 @@ magnet:?xt=urn:btih:35F59E495BBB47A5D2B46DC857125EA309B23157
 magnet:?xt=urn:btih:ABB87FAA3D368F5883FE9AC4B102C991EB8F2035
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +392,8 @@ magnet:?xt=urn:btih:ABB87FAA3D368F5883FE9AC4B102C991EB8F2035
 magnet:?xt=urn:btih:77ADF8E4C5A03895BD5F2538963C07C7F3FB9EC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +417,8 @@ magnet:?xt=urn:btih:77ADF8E4C5A03895BD5F2538963C07C7F3FB9EC0
 ```bash
 magnet:?xt=urn:btih:B437D4DE968F84C68737A4DDEBD537B6F6242A4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +445,8 @@ magnet:?xt=urn:btih:B437D4DE968F84C68737A4DDEBD537B6F6242A4D
 magnet:?xt=urn:btih:EC3DCCE6A5F56D87C2B9451B34B685C802750199
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +470,8 @@ magnet:?xt=urn:btih:EC3DCCE6A5F56D87C2B9451B34B685C802750199
 ```bash
 magnet:?xt=urn:btih:659F37268AF7E6084776CCCECD9E8DE371E9AAF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +498,8 @@ magnet:?xt=urn:btih:659F37268AF7E6084776CCCECD9E8DE371E9AAF5
 magnet:?xt=urn:btih:C11B8F265F6C38E529EAF2C53452B7FEE7C5C41D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +524,8 @@ magnet:?xt=urn:btih:C11B8F265F6C38E529EAF2C53452B7FEE7C5C41D
 magnet:?xt=urn:btih:8738FB6718499F32B79041E2D755EBDA98B8D9C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +549,8 @@ Sounds of a Different Realm Sound Effects содержит блестящую р
 ```bash
 magnet:?xt=urn:btih:257B2A1A6DA71FBC761E862D939B4371300E6F10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +577,8 @@ magnet:?xt=urn:btih:257B2A1A6DA71FBC761E862D939B4371300E6F10
 magnet:?xt=urn:btih:6ADC137D5CEA6A447F6BFC58DE49475F2701114E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +603,8 @@ magnet:?xt=urn:btih:6ADC137D5CEA6A447F6BFC58DE49475F2701114E
 ```bash
 magnet:?xt=urn:btih:72F1F611922399DC043F8FD60ABB04265598AF4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +631,8 @@ magnet:?xt=urn:btih:72F1F611922399DC043F8FD60ABB04265598AF4A
 magnet:?xt=urn:btih:FB7A9DAB246FECE9F45FFFD7417E9A7C583F117B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +657,8 @@ magnet:?xt=urn:btih:FB7A9DAB246FECE9F45FFFD7417E9A7C583F117B
 ```bash
 magnet:?xt=urn:btih:A36B1289474A83271A8A83FF22DE45A3168A9F46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,129 +685,7 @@ magnet:?xt=urn:btih:A36B1289474A83271A8A83FF22DE45A3168A9F46
 magnet:?xt=urn:btih:6CEA9BEFB099034294EE8BF3AEE5F0AF8021E610
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225106   (661774) от 14.05.2018
-
-Текстуры - Creative Market -  Marble Halftone Pack + Bonus! - 649035 [PNG, AI, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мраморные полутоны -это текстурный пакет, наполненный широким разнообразием текстур полутонов, тщательно изготовленных вручную из мраморных изображений высокого разрешения с дополнениями и официальной документацией.
-Автор: 52NINE GRAPHICSФормат: PNG, AI, EPSРазрешение файлов: 7016 x  9933
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57928CEDDBD87F6F03F5895C0EC3E5C8B9E0B713
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225141   (661777) от 14.05.2018
-
-Фоны - Creative Market - Marble & More Collection - 696830 [JPG, PSD, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мраморные фоны с дополнениями.
-Автор: Feather & Sage Design.Формат: JPG, PSD, PNGРазрешение файлов: 3852 x 2592 - 1660 x 5000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1C29E97EDCC05AC329494994243E8670429A0FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225163   (661782) от 14.05.2018
-
-Текстуры - Photo Libraries - Marble Textures [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мраморные текстуры.Формат: JPGРазрешение файлов: 2048 x 3072
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87035BBC48361F4908C0FB8F6BE3E0CB0C95D9A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225210   (661783) от 14.05.2018
-
-Текстуры - Creative Market - Burgundy foil and glitter - 2337885 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текстуры - бордовая фольга и блеск.
-Автор: Paper FarmsФормат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C3DB8FC7394D2D58029FB1BF4E9C70543BFC99F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225158   (661786) от 14.05.2018
-
-Текстуры - Creative Market  - Set of 30 marbled vector textures - 1742142 [AI, EPS, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мраморные текстуры в векторе и не только, с прозрачным фоном.
-Автор:  MiksKS.Формат: AI, EPS, PNGРазрешение файлов: 6000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC532ACDE09F0142097E43654A42F642F608D08F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

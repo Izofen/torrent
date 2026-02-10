@@ -19,6 +19,8 @@ The House of Da Vinci (2017) [Ru/Multi] (1.0) License SKIDROW
 magnet:?xt=urn:btih:F16A15444D82C456D12F4BA92D4D391E223EA742
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ UFO: Afterlight / UFO: Прозрение (2007) [Ru/En] (1.7) License GOG
 ```bash
 magnet:?xt=urn:btih:7BC271DEC07DCB6494F335B7E32E8616F35243E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Sniper Elite III (2014) [Ru/Multi] (1.15a/dlc) License PLAZA [Ultimate Edition]
 magnet:?xt=urn:btih:FBCFCE33D353B68B3283FC48FAF9F8FF9017271D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Visage (2018) [Ru/Multi] (2.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9207B24ACDE2ABC137639E511D63EDF612CCC57D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Control (2019) [Ru/En] (1.04.02/dlc) Repack R.G. Механики
 magnet:?xt=urn:btih:8DEEE2B1BA7D39C017F0A1AA4E82D3FB2EAA7DF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Surface 10: Virtual Detective  / Внешние пределы 10: Виртуа�
 ```bash
 magnet:?xt=urn:btih:017342D8D24E2424CA4A36D44E4372E0EF06506A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The 9th Gate (2018) [En/Ch] (1.1.0) License PLAZA
 magnet:?xt=urn:btih:56B127AE03860E96538103708445F14F65ED9C01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Haunted Hotel 17: Beyond the Page / Проклятый отель 17: За пр�
 ```bash
 magnet:?xt=urn:btih:3732091985DF3AD60186B3298FDC33858B06F1F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Halloween Stories 3: Horror Movie / Хеллоуинские истории 3: �
 magnet:?xt=urn:btih:0153D8088B41DAD37EE858C71D44AE22D154BED9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Whispered Secrets 10: Dreadful Beauty (2019) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:ED360AFD98D6778629E39DA288B60F024F7A324A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Styx: Master of Shadows — это игра в лазутчика с элеме�
 magnet:?xt=urn:btih:5E3ABD3F661BF5B1DD5C1FAEA994EE507D4281F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Adam Waste (2017) [Ru/Multi] (1.0) License SKIDROW [Episode 1]
 ```bash
 magnet:?xt=urn:btih:8BA024E5B593A3EBB844682C636A66BCFCC34D26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Bureau: XCOM Declassified (2013) [Ru/En] (1.0.0.2177831/dlc) Repack xatab
 magnet:?xt=urn:btih:7EA4A010121AAA37968FA04DC780D907F6C2A423
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Banner Saga (2014) [Ru/Multi] (2.36.03/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:6471FC9700D8C6F65088C5222651FBEB8317E269
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Incredible Adventures of Van Helsing III (2015) [Muli] (1.0.6b) License GOG
 magnet:?xt=urn:btih:685F61A732A34B5CC4AAC0E0723D21C2AB465230
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Beholder (2016) [Ru/Multi] (1.0.20161118) Repack Dok2
 ```bash
 magnet:?xt=urn:btih:4D36ED1025697817910248E9C159E292A8CE3F13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ WRC 8 FIA World Rally Championship (2019) [Ru/Multi] (1.1.0) Repack =nemos=
 magnet:?xt=urn:btih:3F33EF43345D5C8B8A16D2E5A67B758C89E64DD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Republique – затягивающее стелс-экшен приключен
 ```bash
 magnet:?xt=urn:btih:E0A0569151F241A6A560D0B4FE185160C85D662D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Mega Man 11 (2018) [Multi] (1.0.0.1/dlc) Repack Mizantrop1337
 magnet:?xt=urn:btih:7160550A916FC32B117D2E3E8D5FDD025ADC4571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Republique – затягивающее стелс-экшен приключен
 magnet:?xt=urn:btih:D3E8D916D64504DD952B58E3BC7453252F968B38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +538,8 @@ Emily Wants To Play (2015) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:ED7E41F2EDA43994EE9AD083F057367DE0DC73E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ Outlast (2013) [Ru/Multi] (1.0.12046.0/dlc) Repack Other s
 magnet:?xt=urn:btih:B6FFFC922BA0FFEB73920BEA9546C6E298514F95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ Assassin’s Creed Liberation HD (2014) [Ru] (1.0/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:E2CFCECDAF693D58C812F481C1C05417A59B7435
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ Crossbow Warrior — легенда о Вильгельме Телле. Перс
 magnet:?xt=urn:btih:3846BE5F5302B02E2D9F6DAC12986D706E9C835E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ The Outer Worlds — новая однопользовательская нау�
 magnet:?xt=urn:btih:529A3352ACA042B2F50C46F2040BA31339C81109
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Imbroglio - это игра в жанре логическая и приключ
 ```bash
 magnet:?xt=urn:btih:0BA405A4FFEA653F45E45DE8D30C710211BBBECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ NG. Эпические приключения с Берти Грегори / Epi
 magnet:?xt=urn:btih:DEEB1E963B9F32735294E16C26FF59A407567A43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:DEEB1E963B9F32735294E16C26FF59A407567A43
 ```bash
 magnet:?xt=urn:btih:C9DA5C8A89E681197B965BA1E093CE554460DFB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NGW: 700 Акул / 700 Sharks (2018) WEBRip [H.264/1080p]
 magnet:?xt=urn:btih:A1F1D94051C32657623FA6FDB6E97F6B4B8F506C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ History Channel: Злой гений / Evil Genius (2016-2017) HDTVRip (8 сер
 ```bash
 magnet:?xt=urn:btih:AD9D0A589FBD68060496FA49548C1F6876A0B898
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:AD9D0A589FBD68060496FA49548C1F6876A0B898
 magnet:?xt=urn:btih:14E3FD4404F511B4B612DCC8BBD482954C7CB334
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NG: Последствия: Мир без нефти / Aftermath: World without 
 ```bash
 magnet:?xt=urn:btih:BD27E274C1B1AA5C0B10FE21583DB02C891005AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ BBC. Параллельные Вселенные / BBC: Parallel Universes (2002
 magnet:?xt=urn:btih:19DFB7D45623CAC8C3109431B1CE06462E25A709
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NG. С Точки Зрения Науки: Полёт в систему Юпит
 ```bash
 magnet:?xt=urn:btih:65EF533F71F784E4931178A909640E3BB75CEC82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ BBC: Мир природы: Болота. В ад и обратно / The Natura
 magnet:?xt=urn:btih:8A31B83512D2600956372CEA7137C0A188C835C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ BBC. Секреты древних. Каменные головы Ольмеко
 magnet:?xt=urn:btih:69CAF26C29F67D27A9DADDCBEBB472CDBC080A59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ Discovery: Идеальный путеводитель: Змеи / The Ultimate 
 ```bash
 magnet:?xt=urn:btih:6B135905315CE73ED529D8B09FA8CEE39C80FB0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Discovery: Высадка союзников - цветная съемка / D-d
 magnet:?xt=urn:btih:4EE07CA4391A177345BD902E717C9180476E9821
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:4EE07CA4391A177345BD902E717C9180476E9821
 ```bash
 magnet:?xt=urn:btih:BB4F743170D2BF05027FD0FCE97AC3F9666B919D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:BB4F743170D2BF05027FD0FCE97AC3F9666B919D
 magnet:?xt=urn:btih:6CECD9F54D78453976AAEE3F86A2EA2A33F1856A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:6CECD9F54D78453976AAEE3F86A2EA2A33F1856A
 ```bash
 magnet:?xt=urn:btih:B772D881CF4F44717158F2C8483B5D1171520354
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ NG: Чужие миры / Alien Worlds (2009) HDTVRip [720p]
 magnet:?xt=urn:btih:D9A785C95DFE5F7EBFBD67900E33FC398721ECD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ Discovery: Техногенная катастрофа: Японская тра�
 ```bash
 magnet:?xt=urn:btih:E6EBCC24C2E742163C0A43C31F1748092A76C5FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 magnet:?xt=urn:btih:2B7ADC0322673E8EE3FF17BF0F4BC5234A0C8978
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:2B7ADC0322673E8EE3FF17BF0F4BC5234A0C8978
 ```bash
 magnet:?xt=urn:btih:90B00B96167C08F6DC6928F3E8E4887FF9287768
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ BBC: Невероятные приключения температуры / From
 magnet:?xt=urn:btih:99CCEADCB5902E332CC2F4ED079CFF55461EC0EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Discovery: Тайна убийства Наполеона / The Napoleon Murder 
 ```bash
 magnet:?xt=urn:btih:B1B08A96DAD82C352F8767EBF418814C8638C1DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ NG: Момент смерти / Moment of Death (2008) DVDRip
 magnet:?xt=urn:btih:9C39A21FD739CE9EF2EE214DB991B8A6C0C5C9BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ Discovery: Будущее с Джеймсом Вудсом / Futurescape with Ja
 ```bash
 magnet:?xt=urn:btih:4BC133DA8245036DA8E3189707DF2A5AFD35379B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ BBC: Мир природы. Лосось: Серебряный прилив / Th
 magnet:?xt=urn:btih:72A0CB71C8E165EEF6368DD478AA034DBF5F4FEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Discovery. Московская осада / The Moscow Siege (2002) SatRip
 magnet:?xt=urn:btih:A43950421623378A6C71EA3C434FCB97352E1FF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Discovery. Джереми Уэйд: Тайны океана / Mysteries of the D
 ```bash
 magnet:?xt=urn:btih:5A6BA1E2193F895AE374F0B5F82FE306C485E912
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

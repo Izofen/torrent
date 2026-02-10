@@ -19,6 +19,8 @@ Trifox (2022) [Multi] (1.0.0.7) License GOG
 magnet:?xt=urn:btih:126649EDE02E908F9332012CFD77CBEF339EB963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Nyan Cat: Lost In Space (2015) [En] (1.0.1) Unofficial ALiAS
 magnet:?xt=urn:btih:AF06744A12FA72AD1825BA1A825F6BB099B7C4CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.08/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:1930E422B0B62B669C5B1635B1839A6A92E5E3DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Bloodhound (2023) [Ru/Multi] (1.0) Scene Skidrow
 magnet:?xt=urn:btih:439E1237A3549E911F9F0F7E18E71031E85CFEC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Life after Death — это психологический триллер от �
 ```bash
 magnet:?xt=urn:btih:3166ABB4DE64D5D31716E5D35CD1113C471F6AA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Monster Energy Supercross - The Official Videogame - симулятор от Mil
 magnet:?xt=urn:btih:D2AAE4AD00D0E40BEB9FE4512D6285D0D2938536
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ OVERKILL’s The Walking Dead — энергичный кооперативны�
 ```bash
 magnet:?xt=urn:btih:D346586FEA5A67A6A137CBE6340F4B1266FE3482
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ The Game of Life 2 (2020) [Multi] (567387/dlc) License CODEX
 magnet:?xt=urn:btih:5279EA6FB339E8EF071E7389BC9A1CFB836CD045
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Enchanted Kingdom 6: Arcadian Backwoods / Зачарованное Короле�
 ```bash
 magnet:?xt=urn:btih:72A69657C81B8F006C86F7F5D979864AE98CE533
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Paranormal Files 6: The Trap of Truth (2020) [En] (1.0) Unofficial [Collector's 
 magnet:?xt=urn:btih:F482A50724C891E3AADF3EC5AD82E05762CC116D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ My Memory of Us – это воспоминание о дружбе между �
 ```bash
 magnet:?xt=urn:btih:D58F22C94B36E1832F4152795D24F208317AF479
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Time Mysteries: Inheritance / Тайны времени: Наследие (2010)
 magnet:?xt=urn:btih:610EE93AD317D91A989D0B0FC2D3A4E41924CB71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Fran Bow - очень жесткая хоррор-адвенчура о мале
 ```bash
 magnet:?xt=urn:btih:B5D238940B56349917DB64A1C8D684CC613E6AAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Omerta - City of Gangsters – симулятор гангстера, дейст
 magnet:?xt=urn:btih:2136357E1EA725CF292FD4CA57839FCD668C8DB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ SuperPower 3, долгожданная новая игра из серии Super
 ```bash
 magnet:?xt=urn:btih:35D929193C06CA0BD0EE4367B315B19DA364BAD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ CULTIC – ретро-шутер от первого лица, где вы сы�
 magnet:?xt=urn:btih:EF3D6A71F93E576218BB89349466F678DF2D613F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ Mutant Year Zero: Road to Eden — то, что нужно, чтобы удов�
 ```bash
 magnet:?xt=urn:btih:A0C5E0AF64EF954B4FC9BA7A7D2647B625A6FAB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ Forspoken (2023) [Ru/Multi] (1.21/dlc) Scene Rune
 magnet:?xt=urn:btih:4DF8CDF41B5C10AD7D9BF94DE2C9C8B13A2078F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Gloomy Tales: Horrific Show (2022) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:4E20B7200CD92702BF85DEAA95B70F887E02D013
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Ghostrunner — эта жестокая игра-слэшер от первог�
 magnet:?xt=urn:btih:7A2B261EAA4CE0C26F709395887D1448A8EB1C60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Mortal Kombat: Legacy Kollection позволит игрокам узнать и
 ```bash
 magnet:?xt=urn:btih:9323FDE004B5573331A1B026B6C8BA6ED667DFB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ Naruto Shippuden: Ultimate Ninja Storm Revolution PC – игра на комп�
 magnet:?xt=urn:btih:DC43D2A5E2A8AC761261FE186744859CADED207B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ Factorio – игра, в которой вы строите и обслужив
 ```bash
 magnet:?xt=urn:btih:F55155C69514144A73234692068E079D4A583C90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ Escape Simulator 2 - это продолжение самого продавае
 magnet:?xt=urn:btih:8285C6EED219AFD3FABBBC8432DEF51232B96A62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ The Incredible Machine Mega Pack (1993-2001) [En] (2.1.0.24/2.1.0.22/2.1.0.21/2.
 magnet:?xt=urn:btih:AC15E6C6D612A4BE03F77D1A8F7139335A6A0A6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Slime Rancher 2 (2025) [Ru/Multi] (1.0.3) Repack Necros
 ```bash
 magnet:?xt=urn:btih:47DE12F4A5F9F6E09318A72BECE92ED9AEB8338E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

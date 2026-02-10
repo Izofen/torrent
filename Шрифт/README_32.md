@@ -20,6 +20,8 @@ Fluxion - это визуальная метафора несовершенст�
 magnet:?xt=urn:btih:296FBF54CE06A56429901BB1086D380A4AC10446
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:296FBF54CE06A56429901BB1086D380A4AC10446
 magnet:?xt=urn:btih:04E072A4D24A2F0846F864A21D912CA863803FA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ Arnold Böcklin, пожалуй, самый известный шрифт в с�
 magnet:?xt=urn:btih:4DB50B48ECFEC6825AFD3B1F092E51DB1C145984
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:4DB50B48ECFEC6825AFD3B1F092E51DB1C145984
 magnet:?xt=urn:btih:FACCC01B289932BC0391F82E86161BB45B4035BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:FACCC01B289932BC0391F82E86161BB45B4035BB
 ```bash
 magnet:?xt=urn:btih:3B362B53919652933D2E3DBD642B857837AC5A9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Backwash AOE — это шрифт, который я разработал ещ�
 magnet:?xt=urn:btih:0DBE00E63289D1E5F593FF9953E70920191F610E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Cowling Sans AOE — очаровательный архитектурный ш�
 ```bash
 magnet:?xt=urn:btih:743A8DF5C3D1D2F1B9CED5F614B8171356E68DB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:743A8DF5C3D1D2F1B9CED5F614B8171356E68DB8
 magnet:?xt=urn:btih:FD471C8347E1EBF58BC336AF456597F20EBCEA72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Hauora - это полусжатое, чистое, минималистично
 ```bash
 magnet:?xt=urn:btih:864E24341AA905776B5E09368906B848FB12AF60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:864E24341AA905776B5E09368906B848FB12AF60
 magnet:?xt=urn:btih:942F8E2776A431878A3AB676481F2974029AD089
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:942F8E2776A431878A3AB676481F2974029AD089
 magnet:?xt=urn:btih:6C2211473346B090354196A6B11E6CD87A26847F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:6C2211473346B090354196A6B11E6CD87A26847F
 ```bash
 magnet:?xt=urn:btih:DF399F0DEE65EDB1CEC4A251C20B8D233AAA3A2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:DF399F0DEE65EDB1CEC4A251C20B8D233AAA3A2D
 magnet:?xt=urn:btih:A8D22C1ACD114C53FAB32D2CBE4197939C71ABB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ ZERO NEUE — это современное минималистичное се�
 magnet:?xt=urn:btih:348022665C934FEA409E634D62A9A6C3DF1CF258
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ Curve Display — родственный вариант Curve. Это совре
 ```bash
 magnet:?xt=urn:btih:B4A0F58EF57249715BB8266B06E68C6F90CD0B24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ Poltik был вдохновлен дизайном часов 1970-х годо�
 magnet:?xt=urn:btih:BB7162A568BD99EE0859620219300F1CDB49C70C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ Garota Serif — это новое семейство шрифтов, вопло
 magnet:?xt=urn:btih:4F941D1E8FA40CA0B9F35A7FB70EA3DB3CBCEBD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:4F941D1E8FA40CA0B9F35A7FB70EA3DB3CBCEBD9
 ```bash
 magnet:?xt=urn:btih:C02D757DAC41DEE26387B2874EC00DDAFBDFF488
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ Revard - акцидентный шрифт, идеально подходящи�
 ```bash
 magnet:?xt=urn:btih:AC56A6B42AD46CD9C0B6E8072073C6674BE6A482
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:AC56A6B42AD46CD9C0B6E8072073C6674BE6A482
 magnet:?xt=urn:btih:5D05B27169260E3B0F52189369A7017CE9E6854A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ Oxona Caps — это обновлённая и стилизованная ве�
 ```bash
 magnet:?xt=urn:btih:0258BF7D319D5ADE629EF0EBC35F16C76FEECA30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ Garota Sans отличается слегка узкими пропорциям�
 magnet:?xt=urn:btih:D3F53EBC30C135D17BDAEFF646FA5FE01E6E2907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:D3F53EBC30C135D17BDAEFF646FA5FE01E6E2907
 ```bash
 magnet:?xt=urn:btih:DFF70AB28E2B215EDB31475E38C37558FE07FFB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ Skandal - это декоративный шрифт в стиле модерн 
 magnet:?xt=urn:btih:2C4E1FC649C50833D346D108D94FCF43CD606DB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:2C4E1FC649C50833D346D108D94FCF43CD606DB1
 magnet:?xt=urn:btih:4E9EEB2D81B7F4CC2C096171D72BEBD610551FE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:4E9EEB2D81B7F4CC2C096171D72BEBD610551FE5
 ```bash
 magnet:?xt=urn:btih:237F213411FBC5AC37AABFC4FDE0223923F6C69C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

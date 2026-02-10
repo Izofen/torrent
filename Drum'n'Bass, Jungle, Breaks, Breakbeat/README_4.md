@@ -1,30 +1,3 @@
-###  Публикация: 1007789   (819555) от 16.04.2016
-
-VA - Blackout: Best of 2015 (2016) [MP3|320 кб/с] <Drum & Bass, Neurofunk>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Sun Empire - Until the World Ends (feat. PNC) (05:44)
-02. Neonlight & Wintermute - Influx (04:59)
-03. Khronos - The Heavy (04:06)
-04. Telekinesis - Fight Club (feat. Coppa) (04:38)(   Читать дальше...   )Жанр: Drum & Bass, NeurofunkПродолжительность: 02:22:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9D5B645F1C3CA79B78A4E9C2280190EB90C7986
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115518   (826448) от 18.03.2017
 
 The London Elektricity Big Band - Live In The Park (2017) [MP3|320 Kbps] <Drum & Bass>
@@ -48,6 +21,8 @@ The London Elektricity Big Band - Live In The Park (2017) [MP3|320 Kbps] <Drum &
 ```bash
 magnet:?xt=urn:btih:3C35F50848F5E98576A394F1E0B6B2AB168E5E42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +51,8 @@ VA - Padla (2020) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:5AECB4F29775F4D697D76835C29377207CF4EE6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +79,8 @@ VA - Nothing But... Drum & Bass Anthems, Vol. 08 (2020) [MP3|320 Kbps] <Drum & B
 ```bash
 magnet:?xt=urn:btih:C29172996B332A279099114E6A70CA71E1D6B162
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +109,8 @@ Under This - 1 Compilation, 18 Singles (2008 - 2016) [MP3|320 кб/с]<Breaks>
 magnet:?xt=urn:btih:851B91327BDE2204443FDC4845E373B2F1423A8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +137,8 @@ VA - Ten Years of Med School (2016) [MP3|320 кб/с] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:F25D43E4D64A3A8A45852967EBD62F777DFD7DC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +168,8 @@ Skrillex - Дискография (2009-2015) [MP3|320 кб/с]<Dubstep, Brostep
 magnet:?xt=urn:btih:FA9E2840FC55726500AFC5CA62E9E9F9C4ABCAB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +196,8 @@ VA - Med School: Graduation (2020) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:DCB9B4EEADC9BF46149589913FCCD64749839DA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +226,8 @@ VA - All Killers, No Fillers LP Volume 7 (2020) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:C422120AB6BCDFDADB8DF051BAEB535798B1D78E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +254,8 @@ Apollo 440 - 4 Albums (1994 - 2003) [MP3|320 Kbps]<Drum & Bass, Electronic Rock,
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +284,8 @@ Gydra - Unhinged (2017) EP [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:5DE75501746E10F10E69A18161602C671EED8CAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +312,8 @@ magnet:?xt=urn:btih:5DE75501746E10F10E69A18161602C671EED8CAC
 ```bash
 magnet:?xt=urn:btih:0A3C6C5615BA7FCF08DECF5AA020CF1EE7506F20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +342,8 @@ VA -  Drumsterdam (2016) [MP3|320 кб/с] <Drum & Bass>
 magnet:?xt=urn:btih:AB8878F213AF894C01EAE8105C15550926F44C9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +370,8 @@ Msdos - Goes Funky Town (2016) [MP3|320 кб/с] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:A0ADBC33CFF2E2F438D71AB3233587FED62E48C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +400,8 @@ VA - Drum & Bass Selections, Vol. 10 (2020) [MP3|320 Kbps] <Drum & Bass, Jungle>
 magnet:?xt=urn:btih:2543939A268909DB1C6AD044149D301F84354105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +428,8 @@ VA - Astral Existence, Vol. 02 LP (2020) [MP3|320 Kbps] <Drum & Bass, Jungle>
 ```bash
 magnet:?xt=urn:btih:286ADD7CF17D30FADE81A8FA0127EBCF7C7E9625
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +458,8 @@ VA - Astral Existence, Vol. 01 LP (2020) [MP3|320 Kbps] <Drum & Bass, Jungle>
 magnet:?xt=urn:btih:7AAE17C707BF32DD46EDE860A415DD46F93D75BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +486,8 @@ VA - Alien Signals (2020) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:C7D3D597B8A5493C88807144DEAB2948FAF7ABAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +516,8 @@ VA - Mystic (2020) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:0570C89630EC2EAE2C41809EF8AA7CEC3FCC55AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +544,8 @@ VA - 5 Years of Kill Tomorrow, Pt. II (2020) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:A74D220749879FBED6C516171D3F007F82B1AB0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +574,8 @@ Colombo - iBreaks 12th Anniversary Series (2017) [MP3|320 Kbps] <Breaks>
 magnet:?xt=urn:btih:D9AD79EA2D62115BB73AC7002FAC7B1894A844C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +602,8 @@ Malk & StarJam - Elements (2016) [MP3|320 кб/с] <Electronic, Deep Dubstep>
 ```bash
 magnet:?xt=urn:btih:881492AF5FFE3E0F6915030C8F9206AACEC1DAF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +632,8 @@ Funkware - Liquidator (2017) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:D1005E99222D29C0051563252F142ABE42F569BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +661,8 @@ VA - Various Artists LP Vol. 1 (2016) [MP3|320 кб/с] <Drum & Bass>
 magnet:?xt=urn:btih:ADEEEC91AC7B7D47464CFF51F2182180AFC1BC60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +687,8 @@ Technimatic (Technicolour & Komatic) - Дискография (Discography) (200
 ```bash
 magnet:?xt=urn:btih:D739AB54B0AEDDE55E4DA9C0753A84ABE219737E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -695,6 +716,37 @@ The Qemists - Warrior Sound (2016) [MP3|320 кб/с] <Drum & Bass, Alternative, 
 ```bash
 magnet:?xt=urn:btih:94E2D164A364869D08D294B2BCD14A177539AF78
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367684   (915551) от 16.03.2020
+
+VA - Samsara Beats Presents: Detonation (2020) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legal - Holding Back [04:19]
+02. BK - Sleeper Cell [04:30]
+03. Jake Robertz - Guest List [04:37]
+04. B1tyze - International Clash [04:14](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF6BF945C9651AB0882A7082413125401CDEB956
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

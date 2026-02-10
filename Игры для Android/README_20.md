@@ -19,6 +19,8 @@ Jetpack Joyride – ваш герой смельчак по имени Барр�
 magnet:?xt=urn:btih:B467FD7B3B92CAAD7C5410247D90B481A1C5E301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Hungry Dragon – крутая и забавная аркада, где кажд
 ```bash
 magnet:?xt=urn:btih:C5B2F00BC78CD689B16166CD07B401B46E982F2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Queen Rock Tour - песни легенд рока, группы Queen, всег
 magnet:?xt=urn:btih:8D2FA2022C612FD2756008F7AEFF9226FB5391D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Grand Theft Auto: SAMP – простой и удобный лаунчер дл�
 magnet:?xt=urn:btih:4882725E711DD200F0F6DABB8922041B4402F42A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Plague Inc – Редко, когда мобильные проекты выхо
 ```bash
 magnet:?xt=urn:btih:CDD3FDBB194456D431AF240ED45C17EEC6719DEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Vector – это посвященная паркуру аркадная игр�
 magnet:?xt=urn:btih:919CE6F5E4C98AF3C5D21FCE5439982AEFF64555
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Mekorama — головоломка в которой нужно помочь к
 ```bash
 magnet:?xt=urn:btih:55264BF9777074E21FE1C35860CD0692E37E59FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Transit King Tycoon - транспортная стратегия, в котор
 magnet:?xt=urn:btih:ADF3316231CDDC06A7F3E10C6E7F0DA11BF03355
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Bubble Witch 2 Saga - аркада, в которой главными геро�
 ```bash
 magnet:?xt=urn:btih:B2A6322C803CE4933055B7989B5B1E4AD186968D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:B2A6322C803CE4933055B7989B5B1E4AD186968D
 magnet:?xt=urn:btih:6F3CC34B8B4B7B7EF0E032B5CEB6BAA92EBAF6BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Blade Bound: Legendary - экшн-RPG, рассказывающая о борь�
 ```bash
 magnet:?xt=urn:btih:54AAC20054A61C3BE7343FCF7232654E977F2C4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Noblemen: 1896 – игра на андроид, где вы примите св
 magnet:?xt=urn:btih:C7DF4DB91F0A3B8E27CF0A65B687CD94AA713443
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Cafeland - World Kitchen - в этой игре вы сможете создат
 ```bash
 magnet:?xt=urn:btih:E81C782B6C42D757F8BDF19C46685D71E3823C69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Tempest: Pirate Action RPG Premium – приключенческая игра �
 magnet:?xt=urn:btih:4EA83DCEE80AA85703803B336C6D2570048C3216
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Hellrider 3 - третья часть захватывающей экшн арк
 ```bash
 magnet:?xt=urn:btih:1F0E35A120F7CFA8FAABE2AC5399E2DB7355BE9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ The Walking Zombie 2: Zombie shooter – шутер от первого лица
 magnet:?xt=urn:btih:BF06C15C801FA81F2D3F762745BF2D10B421FF6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Sonic Dash 2 - невероятное продолжение ранее попу
 ```bash
 magnet:?xt=urn:btih:7AA5AFFC5888CAEA672EB142B44C2AEA922DAB12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Play Magnus — проверь свои шахматные навыки в пр�
 magnet:?xt=urn:btih:FAA10368A7CD460D90EB5AEBAEB91DA0ECA8A81B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:FAA10368A7CD460D90EB5AEBAEB91DA0ECA8A81B
 ```bash
 magnet:?xt=urn:btih:CEEAF7C04119C5CB83E5FD92C4FD4B35916E568F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ Bubble Shooter Royal Pop / Шарики Игры Королевские v2.3.2.2
 magnet:?xt=urn:btih:87A6E6BD9A4E69B8BEFD74289E32D351ABF7A695
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ Very Little Nightmares - Девочка проснулась в неизвест
 ```bash
 magnet:?xt=urn:btih:3E5A518C601D135EA37A562AE280612899E6CB97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:3E5A518C601D135EA37A562AE280612899E6CB97
 magnet:?xt=urn:btih:9C9764C0B68A6AEF1F6C3AF373E00E4C1615DF8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ Battle of Warships: Морской бой - Отличная игра для л�
 ```bash
 magnet:?xt=urn:btih:D3B7AD5B2C3C134B96E6325FE7D24F23ABF26CCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ Kingdom Rush Vengeance v1.9.10 [Ru/En]
 magnet:?xt=urn:btih:8650A1143B0C4E0A9D682F64C235E29B11A03499
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ Plague M.D. - Вам предстоит превратиться из сумас
 magnet:?xt=urn:btih:C360DA977ACB73DB858D851D02CEEF7946C8A6FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ magnet:?xt=urn:btih:C360DA977ACB73DB858D851D02CEEF7946C8A6FA
 ```bash
 magnet:?xt=urn:btih:2339013D74284E1A362AE0F82EA6460C6466C6BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

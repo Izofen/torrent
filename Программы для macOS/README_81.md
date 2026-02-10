@@ -19,6 +19,8 @@ Affinity Photo переопределяет границы профессион�
 magnet:?xt=urn:btih:806052E66C1F1729A264B8F2034A4486587691F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Affinity Publisher 1.8.6 [Multi/Ru]
 magnet:?xt=urn:btih:0C33713D7EF7175CD82AAF740592DE5C316E0FD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Keymou дает вам полный контроль над указателем
 ```bash
 magnet:?xt=urn:btih:033FFEE9C98DB06E2E694C3BCCF25CCE0A784EEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Templates for Pages - красивые и полезные шаблоны для
 magnet:?xt=urn:btih:E76E0CE2AAA30A9D973CFED794F4DD7969160F4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Spillo имеет красивый современный интерфейс, к
 magnet:?xt=urn:btih:AC72151E80F495FE7BD4CB71163BFB0A16DD55E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Password Vault Manager Enterprise позволяет вам и вашей ком
 magnet:?xt=urn:btih:810D0504A7E33641CFB354E2FD81832A3192C8A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Go64 1.0.5 [En]
 ```bash
 magnet:?xt=urn:btih:83819C9B0CC0F4CC521779F4BEB674D588DDE736
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ EasyPing - это сетевой инструмент для проверки т
 magnet:?xt=urn:btih:077DF84789B2B53FD34F45DB3F08CB5C609F979E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Apple iMovie 10.1.10 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A11DA417802169A2CA4986487F52E987021CD487
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ Metasequoia 4.7.1 [En]
 magnet:?xt=urn:btih:50540AA7D8BE907906302EB936C88773760FBB41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ uTorrent 1.8.7 (43001) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4CDA2187B104B90274826B34D670CA204BCD010E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ Templates for Numbers 4.7 [En]
 ```bash
 magnet:?xt=urn:btih:385471C070240183E014AE951FBFF2F0F2525FBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ Mac App Blocker - с помощью этой программы пользова
 magnet:?xt=urn:btih:32FF099275793C63C1701DA4DF21E5A6BAE97569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ Video Converter Movavi 19 v19.1.0 [Multi/Ru]
 magnet:?xt=urn:btih:51553ED4252BCCFE691CDEF5A340ADBE867B491B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ ON1 Photo 10 — набор мощных приложений от извест�
 ```bash
 magnet:?xt=urn:btih:DC27F2E30981B07A5015B1D9A9408A696A2A9D3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ Tipard Mac Video Converter Ultimate 9.1.20 [En]
 magnet:?xt=urn:btih:31A9F851185A663FEB16ADCDE0070D4DBB943D4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ AnyToISO Pro 3.8.2 [Multi/Ru]
 magnet:?xt=urn:btih:348C81C6ADBCEE982262BD59619A7EF9AAC99712
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ SSH Config Editor Pro 1.11.4 [En]
 ```bash
 magnet:?xt=urn:btih:9E4097A46D49257EAE577B5815562525EE9DB0C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ Forecast Bar - точный прогноз погоды  Forecast.io  прямо
 magnet:?xt=urn:btih:82706FD88BB7C58AD81ACB328EE608D6A7E3040A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ Capture Gif 1.4.4 [En]
 ```bash
 magnet:?xt=urn:btih:CEEFFFDD56DB42E8A4A6F457F9E0EA6AB7B3B093
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ Tyme это простое в использовании приложение д
 magnet:?xt=urn:btih:459DEFFA00A900855DD9F326C8026C71645E7EC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ CursorSense - приложение, позволяющее регулирова�
 magnet:?xt=urn:btih:D99C34021714A0E08AACB36F4A674D968BA9EB38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ Apple iWork Pages 6.3.1, Numbers 4.3.1, Keynote 7.3.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:031C09D2AF5C6DEE111B1A3F9A65CD42AF6B7C7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +643,8 @@ GarageBand 10.2 [Multi/Ru]
 magnet:?xt=urn:btih:FAAF3D31F3E9F60B340AC5B6FF61FD3A40156A46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ Lights Out 3.2 позволяет «горячим углам» усыпить �
 magnet:?xt=urn:btih:CCC1100C2C3BC3F50CF0823B3FE9D9BFF74E2993
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ PhoneRescue - полезное приложение для восстановл�
 ```bash
 magnet:?xt=urn:btih:FC2D1FBDDFEA5C872BF315D696EB7B06B400C6E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

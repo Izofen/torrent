@@ -19,6 +19,8 @@ Zettlr – достаточно продвинутый текстовый ред
 magnet:?xt=urn:btih:D381224B86ACEFC013086A79985059CE17A08DBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:D381224B86ACEFC013086A79985059CE17A08DBC
 ```bash
 magnet:?xt=urn:btih:51972735BDF355EBC646CEC76333450EBAA381D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:F271B5E8BE813C96C0561BAFDF84600E1D25CD35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ AOMEI Backupper – программа для создания резервно�
 ```bash
 magnet:?xt=urn:btih:61DE4126E9612C4F709A3036332B276388E48ADF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ CCleaner - утилита для чистки мусора в операцион
 magnet:?xt=urn:btih:8668D9D3028102488D8610BDF474ED77B2231D30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:A40BF2AA2690AD9F1F25D8A1CB8027BD6A67BE8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Snappy Driver Installer Origin (SDI Origin) - главная ветвь порт
 magnet:?xt=urn:btih:F516C9A17D8887CF62B0A41A01A88C21B66C3B6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Corona Renderer - это популярный рендер-движок для 3
 ```bash
 magnet:?xt=urn:btih:010F2B2DC17995A32D674227F8E9648A9AF26B32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Media Player Classic Home Cinema - удобный во всех планах м�
 magnet:?xt=urn:btih:DF620C29DE80FDA592E3A5DE72D84CD249FBF7FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ WinToUSB — лучший Windows To Go (WTG) Creator, который позво
 magnet:?xt=urn:btih:0E7D30DC63717E13EA1306C1B8711BBBCAF54559
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ Media Player Classic Home Cinema – удобный во всех планах �
 ```bash
 magnet:?xt=urn:btih:86C6CEA6C78AE40D097EBF8405AC9DC2BD0083D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ EssentialPIM - это отмеченное различными наградам
 magnet:?xt=urn:btih:C215B449D24DA264A031D62E241BB40FF1BF9797
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ MediaHuman YouTube Downloader 3.9.9.92 (0629) RePack (& Portable) by TryRooM [Mu
 ```bash
 magnet:?xt=urn:btih:3B2D792C4620BF969548BF6835AC483AEB60B7F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ WinToUSB — лучший Windows To Go (WTG) Creator, который позво
 magnet:?xt=urn:btih:01E3D7266C9FEC363FAAEA2773A60D6EAA522BA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 magnet:?xt=urn:btih:7ACAF9C37ED3CDA95845C615D40BA409A2E9F641
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ CherryTree - функциональная программа, которая п�
 ```bash
 magnet:?xt=urn:btih:DD2FB4B489EB87C30F2C62D7C53224E787E813CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:264EF71B8E7DBFEE0B8979581909DAB2F1B5853D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Opera One 111.0.5168.55 Portable by Cento8 [Ru/En]
 magnet:?xt=urn:btih:8FBE08751B9C35D75FBA2C0E7EE119AC9F8AF853
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ WinX VideoProc Converter - усовершенствованная версия, 
 ```bash
 magnet:?xt=urn:btih:778AE45C1E332491C83B1945DAA4288402EF442F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Winxvideo AI  - это набор инструментов для масштаб
 magnet:?xt=urn:btih:F9CA1A90B04453A07B092E7C5285B8B084463550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:C002690ED90E695614B58A059536E940A459E103
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Fast Video Cutter Joiner - программа 2-в-1 для быстрой ре�
 magnet:?xt=urn:btih:62289D0D9AE2781760B728AE4255E6DD988548AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:FD7B81890CF72ED60A4264BB506399B4E46E4C65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ Antivirus Removal Tool - портативный набор официальны�
 magnet:?xt=urn:btih:3B4D06E1B9B60324F005D4CDFA650E213C823121
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Total Commander 11.03 (18.06.2024) Portable by MiG [Ru/En]
 magnet:?xt=urn:btih:A0DAEDA2F14029DD3502D642E068B45AFB80AB3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:CA54DB218502F2E0EA483518E9B59C78FADCE5A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

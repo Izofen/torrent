@@ -22,6 +22,8 @@ Giovanni Marradi (17.04.1952) родился в Италии, учился в Б
 magnet:?xt=urn:btih:E84C8F3C045B204FC97E030D472585C0EBB29586
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ Alan Silvestri - Ночь в музее / Night At The Museum (Original Motion P
 ```bash
 magnet:?xt=urn:btih:DF96DD822DCA82AEE25D6562E692E502F2A8A9FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -88,6 +92,8 @@ Marsen Jules - Beautyfear (2014) [FLAC|Lossless|WEB-DL]<Ambient>
 magnet:?xt=urn:btih:61C65ED1F5258BFE0660BCD85851753321C75FCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +123,8 @@ Concerto for sitar & orchestra No. 2 ("Raga Mala, a Garland of Ragas")
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +159,8 @@ Can Atilla - Idea: Trance and Lounge (2013) [MP3|320 кб/с]<New Age, Downtempo
 magnet:?xt=urn:btih:4DC647FF5642625F7CB255F8763A7BE0962EF366
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +185,8 @@ Micon - Song For Reiki (1999) [MP3|192 кб/с]<New age, Relax, Healing>
 ```bash
 magnet:?xt=urn:btih:38D2C17198957C460C2822B22E78B33D8584669B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +215,8 @@ Gregorian - Pure Chants (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age,  Ambient,
 magnet:?xt=urn:btih:F4B91E72C693393FD644C7BEE0E1FF0380518F4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -230,6 +244,8 @@ Maury Laws & Jules Bass - Сумасшедшая вечеринка чудови
 magnet:?xt=urn:btih:4A997603CF2DC3A4C615C9D16356B69B0DE25094
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +272,8 @@ Jon Richards - Midwinter (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:0D7FD1F2AD336D65BCB7CBFF6B03E09EB4F64AFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +303,8 @@ VA - Enigmatica (Сборник Качественной Электронной 
 magnet:?xt=urn:btih:6527E78506EAB4A46CB8130FF9D4C3CE9A86B40F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +331,8 @@ David Arkenstone - Native Dreams (2015) [MP3|320 кб/с] <Native american, Ethn
 ```bash
 magnet:?xt=urn:btih:74120E850B00DAAECF2958497499CBCA4B5FB72C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +361,8 @@ Ennio Morricone - The Man And His Music (2002) 2CD, 2005, Warner Classics [MP3|3
 magnet:?xt=urn:btih:CDF08A9588CBE59050B68BF3F497120E0CF41946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +389,8 @@ The Mystic Sound Orchestra - Pharaoh: Sound of Mystery (1998) 2CD [MP3|320 kbps]
 ```bash
 magnet:?xt=urn:btih:1478AE326C24E0D7EA15776C1253ECF8B699A5D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +419,8 @@ Bernward Koch - Silent Star (2011) [APE|Lossless|tracks + .cue] <New Age, Piano>
 magnet:?xt=urn:btih:1A1EB87056A99C6176887AAAD34AF7F1AAE11722
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +447,8 @@ Rainbow Suzy - Nature's Treasures (2015) [MP3|320 кб/с] <New Age>
 ```bash
 magnet:?xt=urn:btih:CCC3D41F209F7E27119AD8D0DAEEE01B7CA85BFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +477,8 @@ Paul Mauriat - Dans Les Yeux D'Emilie (1978) Remastered, 2019, Vocalion [OGG Vor
 magnet:?xt=urn:btih:71675EBC1BBF8D842DC79278ED4CD4EEBF4D9E30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +505,8 @@ Mountain Silence - Harmonia Coeli (Sri Chinmoy, Шри Чинмой) (2008) [FLA
 ```bash
 magnet:?xt=urn:btih:FA5359963BEA59C97876B2C601970AAB8AE4D7AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +535,8 @@ VA - Country Rock Delights (2022) [FLAC|Lossless|WEB-DL|tracks] <Country Rock>
 magnet:?xt=urn:btih:F62EEAB8D50FFA91993DF3C4D94B963C3A539F12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +563,8 @@ Lindsey Stirling (21.09.1986) - американская скрипачка, а�
 ```bash
 magnet:?xt=urn:btih:3576DAE55422C37A6341CED4CD24B13E33F86F4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +593,8 @@ Pasarea Colibri - Cantece de bivuac (1999) [APE|Lossless|image + .cue] <Folk>
 magnet:?xt=urn:btih:3D090BC548F5171377180F749B81B2353DA4E38F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +621,8 @@ Pasărea Colibri - Ciripituri (1996) [APE|Lossless|image + .cue] <Folk>
 ```bash
 magnet:?xt=urn:btih:B2B9602661BE49259FDA09C707D4D2878AF3244F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +651,8 @@ VA - Иисус Христос - Суперзвезда (Театр им. Мос
 magnet:?xt=urn:btih:9E2C1A25EF93045BDD5A94A7E11DC1E4121DA6E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +679,8 @@ VA - Romeo & Juliette (Gerard Presgurvic) (2000) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:44DAD106A6D128F05307B060E79DBD0C8D329BD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -663,6 +709,8 @@ Simon Franglen - Аватар: Путь воды / Avatar: The Way of Water (202
 magnet:?xt=urn:btih:C935D1D845064098381BDE0FB5FB809BE44A855E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +738,8 @@ Bee Celtic - Star Of The County Down (2022) [FLAC|Lossless|image + .cue] <Folk R
 magnet:?xt=urn:btih:EFB8CC9330A17FBA36FBBCABA21D033A60027953
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -716,6 +766,8 @@ Simon Franglen - Аватар: Путь воды / Avatar: The Way of Water (202
 ```bash
 magnet:?xt=urn:btih:104BFB51007CA1B9946ED1846256EBA1950DC93C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

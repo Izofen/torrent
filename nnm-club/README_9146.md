@@ -22,6 +22,8 @@ VA - The Best Of Italo Disco (2016) [MP3|192-320 Kbps] <Italo Disco, Synth-pop, 
 magnet:?xt=urn:btih:6D7EB59FFF8A1E90EDD2E627F7FF68A4D89D6A1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 ```bash
 magnet:?xt=urn:btih:CDB1089E4CCDD445BCEF47396D2710A9F626FB86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:CDB1089E4CCDD445BCEF47396D2710A9F626FB86
 magnet:?xt=urn:btih:8716156090411CC72F04112C2E10868B5871E249
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Tiziano Ferro - Il Mestiere Della Vita (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop
 ```bash
 magnet:?xt=urn:btih:65CBB07BF7D9133897A7F67E15E781BBD9B2CAD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ GonjaSufi - Callus (2016) [FLAC|Lossless|Web-DL|tracks] <Experimental, Lo-Fi, Ab
 magnet:?xt=urn:btih:7D7C9F55A7E1B2B86D90C4ECD2B2529075DA58EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:7D7C9F55A7E1B2B86D90C4ECD2B2529075DA58EF
 ```bash
 magnet:?xt=urn:btih:A94C03BA14A2D1C81CCC0B4307F23B1BE624FC83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ WALTR 2 — революционный способ передачи файло�
 magnet:?xt=urn:btih:0D45B21F518BB679F6195CDACD2093C8A4F6349D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:0D45B21F518BB679F6195CDACD2093C8A4F6349D
 ```bash
 magnet:?xt=urn:btih:D8298289C3ABD99BC460779742380CB556F1B942
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ Solar Fields - Origin #1 (2010) [MP3|320 kbps] <Ambient, Chillout>
 magnet:?xt=urn:btih:6E769D73BE7F4B1648E1BD5AB6C27F758F51DA9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ Voyager 1 достиг области гелиопаузы и готовится
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ VA - Enigmatic I & II (2006) [FLAC (tracks+.cue)|Lossless]<New Age, Enigmatic>
 magnet:?xt=urn:btih:FE2581FBFF95E71FFED2791A5643424320D6A7A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:FE2581FBFF95E71FFED2791A5643424320D6A7A7
 magnet:?xt=urn:btih:E1993DA6A238E1CB72CA37D25AF920E1FBF823F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:E1993DA6A238E1CB72CA37D25AF920E1FBF823F3
 ```bash
 magnet:?xt=urn:btih:C3DF4023A176B117F65BA952E1E0E610E4E64896
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:C3DF4023A176B117F65BA952E1E0E610E4E64896
 magnet:?xt=urn:btih:23C6C18FC95DCE31157C775E1F014C6F5FD47E3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:23C6C18FC95DCE31157C775E1F014C6F5FD47E3F
 ```bash
 magnet:?xt=urn:btih:C2FAD8E353686F50FF719DE8DC6C4BF0FB46B702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:C2FAD8E353686F50FF719DE8DC6C4BF0FB46B702
 magnet:?xt=urn:btih:B0C1A2F6539B7A8AC793B0CF5814588F2E39937E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:B0C1A2F6539B7A8AC793B0CF5814588F2E39937E
 magnet:?xt=urn:btih:8B27F8D8578F49AB0DE4896B810481BDB367E642
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ Men’s Health — самый узнаваемый мужской журналь
 ```bash
 magnet:?xt=urn:btih:C4987800E31811A6DE8EAD9754478F2F46D7DA46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:C4987800E31811A6DE8EAD9754478F2F46D7DA46
 magnet:?xt=urn:btih:91D750AC3A8783D9DD8BECFC05FB0EF25A275FC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:91D750AC3A8783D9DD8BECFC05FB0EF25A275FC0
 magnet:?xt=urn:btih:A61684392993139ED7EF03760F850EEF56DCDDE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ magnet:?xt=urn:btih:A61684392993139ED7EF03760F850EEF56DCDDE9
 ```bash
 magnet:?xt=urn:btih:81E810E66EB2A8E320B4AD6AC9F86FEBF5AF5125
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ VA - Acoustic Winter (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Folk, Acoustic>
 magnet:?xt=urn:btih:4328B58EBB29BD1283C549ECFAC20163D704A5FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ Ethernet Status 1.5 [En]
 magnet:?xt=urn:btih:EB8B0F3F47B8C3107C189A2CF404D2E611C55838
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +647,8 @@ SRWare Iron 70.0.3650.0 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:ECEB735571ECFAE65F270ED275D29EC2CB9041E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +677,8 @@ Parra for Cuva - Paspatou (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chil
 magnet:?xt=urn:btih:AD96C0508B434370F4BE62680EBB747AA2527623
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ VA - Super Club Volume 2 (Compiled by M. Pravda) (2010) [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:AB0F3CCFBB41BD7D467C869BDBD692B035EB2D1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

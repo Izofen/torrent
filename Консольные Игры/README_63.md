@@ -19,6 +19,8 @@ Spider-Man: Web of Shadows (2008) [PS3] [EUR] 2.42 [Cobra ODE / E3 ODE PRO ISO] 
 magnet:?xt=urn:btih:C9DE817829338CB90AE268023E1FE8BAEFD483C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Initial D: Extreme Stage (2008) [PS3] [ASIA] 2.30 [Cobra ODE / E3 ODE PRO ISO] [
 ```bash
 magnet:?xt=urn:btih:F00E49E02A70B7945B655B68060C256FAA85092B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Luftrausers  (2014) [PS3] [USA] 3.40 [Cobra ODE / E3 ODE PRO ISO] [PSN] [En]
 magnet:?xt=urn:btih:996B823931021A14E8263C925302C96BA929D081
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:996B823931021A14E8263C925302C96BA929D081
 magnet:?xt=urn:btih:B2DA41274D49B822204E7CFA5047DB1670B0CE59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Ninja Gaiden 3: Razor's Edge [XBOX360] [Region Free] [En] [LT+3.0] (XGD3 / 16202
 ```bash
 magnet:?xt=urn:btih:2BA28F17F1F024CD2149381D31BBF5630DC9CAFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ DANCE! It's your Stage [Wii] [PAL] [English] (2011)
 magnet:?xt=urn:btih:30225401060896F57CC4160D235AB26AC09005A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Kane & Lynch 2: Dog Days (2010) [PS3] [EUR] 3.30 [Cobra ODE / E3 ODE PRO ISO] [L
 ```bash
 magnet:?xt=urn:btih:82E76C070934B982BF424B72793C8106EE2538C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Star Wars Pinball — никто не думал, что даже пинбол �
 magnet:?xt=urn:btih:0E17555ADF1CE2C48AFB1D218572AB8D2B5B158C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ The Legend of Zelda: A Link Between Worlds продолжает историю �
 ```bash
 magnet:?xt=urn:btih:480652489CF7C203B4A7589DACECBBAB0E1CB1FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ The Legend of Zelda: A Link Between Worlds продолжает историю �
 magnet:?xt=urn:btih:89E33713D662D5EC0F1600AEDB5F71B4C81F3C39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Beyond the Labyrinth (2012) [3DS] [JPN] [CIA] [Unofficial] [En]
 ```bash
 magnet:?xt=urn:btih:25903F6EECE967E8471E6B291880A2767C1F292C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Dragon Quest Monsters: Terry's Wonderland 3D (2012) [3DS] [JPN] [CIA] [Unofficia
 magnet:?xt=urn:btih:24F74575CD15B8D1FCACC884005EADC405429E02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Maplestory 3DS: The Girl of Destiny (2014) [3DS] [JPN] [Gateway] [Unofficial] [E
 ```bash
 magnet:?xt=urn:btih:9D52BA8E736CEAA8F18E497C36BAF2E3BDE6BC78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Dragon Quest Monsters: Terry's Wonderland 3D (2012) [3DS] [JPN] [Gateway] [Unoff
 magnet:?xt=urn:btih:0835ED7C09F83C70D99711CC6D73C3587842EE34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Beyond the Labyrinth (2012) [3DS] [JPN] [Gateway] [Unofficial] [En]
 ```bash
 magnet:?xt=urn:btih:D211E046136C2BC62A698D055CCDBEA99D5DE089
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Bigfoot - King of Crush [Wii] [NTSC] [Multi 3] (2011)
 magnet:?xt=urn:btih:18B21E1748972899C6CF43D805DCB1DC72189DBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Link отправляется в легендарное путешествие �
 magnet:?xt=urn:btih:B44B9E7598E1D1F2E2D39D6157C5DDDF2E20C44C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Link отправляется в легендарное путешествие �
 ```bash
 magnet:?xt=urn:btih:2F3710DC0A9414F23E244CC00CC6B19A82E50BA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Hyperdimension Neptunia Re;Birth1 / Hyperdimension Neptunia Re Birth 1  (2014) [
 magnet:?xt=urn:btih:99D505709776782DAE58BE7FCB1968DCF53C8801
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Maplestory 3DS: The Girl of Destiny (2014) [3DS] [JPN] [CIA] [Unofficial] [En]
 ```bash
 magnet:?xt=urn:btih:2D512DE4769EC64A2BA8F5195FEC1DC1692CED39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Cel Damage HD (2014) [PS3] [USA] 3.40 [Cobra ODE / E3 ODE PRO ISO] [PSN] [En]
 magnet:?xt=urn:btih:C19FE9C566E28B12334A411E596C77A1479F8AEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Toy Story 3 The Video Game (2010) [PS3] [EUR] (3.30) [Cobra ODE / E3 ODE PRO] [L
 magnet:?xt=urn:btih:F4D0B1B3A2D8BEE24178604C8E28409B02DF1D5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Life is Strange - это пятисерийная игра с революцио
 ```bash
 magnet:?xt=urn:btih:CC13DBFE3C46FB968FDC363C4421E9D91BA58B3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Need for Speed: Porsche Unleashed [PS1] [PAL] [RUS] (2000)
 magnet:?xt=urn:btih:E69CDD0FC456B580C8547D9D51E69BC61AAD37AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ BioShock 2 [PS3] [EUR] [RUSSOUND] [3.55] [Cobra ODE / E3 ODE PRO ISO] (2010)
 magnet:?xt=urn:btih:BE29F971F1D6C682494C64BAD73688698146FEA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Tales of Berseria (2016) [PS3] [ASIA] 4.80 [Cobra ODE / E3 ODE PRO ISO] [Repack]
 ```bash
 magnet:?xt=urn:btih:122005323CE5CF3BB79C850FEE4ECD72D408B008
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

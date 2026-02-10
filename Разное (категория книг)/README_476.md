@@ -1,3 +1,30 @@
+###  Публикация: 1025404   (709320) от 12.06.2016
+
+lee | Инструкция к телу (2016) [FB2, PDF, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709320.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Инструкция к телу» — это подробная инструкция к вашему здоровью и долголетию. Вы смотрите на свое тело как на продукт эволюции, как на то, что подвержено влиянию извне? А разве не вы сами его автор?
+Прочтя эту книгу, вы получите шанс узнать истинного себя в физическом облике. Более того, вы сможете начать создавать тело по тому образу и подобию, которое считаете (   Читать дальше...   )Жанр: Публицистика, ЭзотерикаФормат: FB2, PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:321CCAEF9C949245436374343E2A97C66A5E6EAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 894339   (709442) от 01.05.2015
 
 Св. Фома Аквинский | Учение о душе (2004) [DJVU]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:D3C2D1D5699666C1E2A059167DE1C4238FC5C23B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +71,8 @@ magnet:?xt=urn:btih:D3C2D1D5699666C1E2A059167DE1C4238FC5C23B
 ```bash
 magnet:?xt=urn:btih:3591634792D07B552B379BD49CC567DF7201BF02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:3591634792D07B552B379BD49CC567DF7201BF02
 magnet:?xt=urn:btih:CD36F048651B7719CDB32AD088AD862FC7844009
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:CD36F048651B7719CDB32AD088AD862FC7844009
 ```bash
 magnet:?xt=urn:btih:03FC9B3B33BCFFC60C24DDC4E907D4BEBB1B8EF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +153,8 @@ magnet:?xt=urn:btih:03FC9B3B33BCFFC60C24DDC4E907D4BEBB1B8EF9
 magnet:?xt=urn:btih:580E82FA0C5F1E3C2F9CBE4BDDCFA815E06315F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +180,8 @@ magnet:?xt=urn:btih:580E82FA0C5F1E3C2F9CBE4BDDCFA815E06315F6
 magnet:?xt=urn:btih:3B0F4ECBB4FCACCE7CC93DAC44C984E1B7BAA744
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +205,8 @@ magnet:?xt=urn:btih:3B0F4ECBB4FCACCE7CC93DAC44C984E1B7BAA744
 ```bash
 magnet:?xt=urn:btih:0CE528A3C58C64BF39C3A1ED0138A884ECA89BC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +232,8 @@ magnet:?xt=urn:btih:0CE528A3C58C64BF39C3A1ED0138A884ECA89BC3
 magnet:?xt=urn:btih:1F427B2E88DD38C4D46C0F3DAFFF48105BB08E44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:1F427B2E88DD38C4D46C0F3DAFFF48105BB08E44
 ```bash
 magnet:?xt=urn:btih:3DB73BF627B692230D7E05DD3434B7CC4362F3C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +286,8 @@ magnet:?xt=urn:btih:3DB73BF627B692230D7E05DD3434B7CC4362F3C8
 magnet:?xt=urn:btih:0CEA75A8F18F627B3BA246A10D745F4001436A13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +312,8 @@ magnet:?xt=urn:btih:0CEA75A8F18F627B3BA246A10D745F4001436A13
 magnet:?xt=urn:btih:4CB912CC5359BAF56A5A32EA25BE4E60A54D590B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +337,8 @@ magnet:?xt=urn:btih:4CB912CC5359BAF56A5A32EA25BE4E60A54D590B
 ```bash
 magnet:?xt=urn:btih:5037509339459BC6AE1F1B52D78A941E172DE2DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +365,8 @@ magnet:?xt=urn:btih:5037509339459BC6AE1F1B52D78A941E172DE2DE
 magnet:?xt=urn:btih:903A8072B032A4AA851B3F71DC5576C8167845EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +391,8 @@ magnet:?xt=urn:btih:903A8072B032A4AA851B3F71DC5576C8167845EC
 magnet:?xt=urn:btih:77BDA9E88FC9A40EEAE9DB850C1D513A2A8E3532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +416,8 @@ magnet:?xt=urn:btih:77BDA9E88FC9A40EEAE9DB850C1D513A2A8E3532
 ```bash
 magnet:?xt=urn:btih:B718D27DB5E6A9263A48F59E0D456CD4D70097F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +445,8 @@ magnet:?xt=urn:btih:B718D27DB5E6A9263A48F59E0D456CD4D70097F3
 magnet:?xt=urn:btih:9E056E3BA66342A0D67807D77E3FDDAC69936264
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +473,8 @@ magnet:?xt=urn:btih:9E056E3BA66342A0D67807D77E3FDDAC69936264
 magnet:?xt=urn:btih:E8DCCC63E0F56C1A25A93AB6EB7CE58A4790F254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +498,8 @@ magnet:?xt=urn:btih:E8DCCC63E0F56C1A25A93AB6EB7CE58A4790F254
 ```bash
 magnet:?xt=urn:btih:2771FBB7F74DD82582671FD735311B02C3A8E7D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +525,8 @@ magnet:?xt=urn:btih:2771FBB7F74DD82582671FD735311B02C3A8E7D2
 magnet:?xt=urn:btih:18E060A8D9B089CFE72B8CD30460F0051B8D8213
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +550,8 @@ magnet:?xt=urn:btih:18E060A8D9B089CFE72B8CD30460F0051B8D8213
 ```bash
 magnet:?xt=urn:btih:F8D897DBADF3623811311D115D73D1B7263A4053
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +577,8 @@ magnet:?xt=urn:btih:F8D897DBADF3623811311D115D73D1B7263A4053
 magnet:?xt=urn:btih:B327ACFA08C264809E8A652B820C37781DC3DFD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +602,8 @@ magnet:?xt=urn:btih:B327ACFA08C264809E8A652B820C37781DC3DFD0
 ```bash
 magnet:?xt=urn:btih:2BE2811DC9D361AE8F5CF1456DD9E882082792A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +631,8 @@ magnet:?xt=urn:btih:2BE2811DC9D361AE8F5CF1456DD9E882082792A7
 magnet:?xt=urn:btih:28038990BC5CBCF17A1AAB38FAF98E1F286F3C5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +656,8 @@ magnet:?xt=urn:btih:28038990BC5CBCF17A1AAB38FAF98E1F286F3C5B
 ```bash
 magnet:?xt=urn:btih:5FEEFD1BA41CA83494D250FA2A7D1274379D7D99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,29 +683,7 @@ magnet:?xt=urn:btih:5FEEFD1BA41CA83494D250FA2A7D1274379D7D99
 magnet:?xt=urn:btih:92EC08EBA7BE5282931F65BA6612CA0CA66BBC09
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286426   (711150) от 03.03.2019
-
-Алексей Осипов | Жизнь с Евангелием. Комментарии к Евангелию от Матфея (2019) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711150.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Жизнь с Евангелием. Комментарии к Евангелию от Матфея» — уникальная книга. Как говорит ее автор Алексей Ильич Осипов, войти в Церковь — значит жить по евангельским заповедям. И вся святоотеческая традиция двух тысячелетий — осмысление этой жизни, жизни с Евангелием. Эту книгу от многих других отличают ясность и точность изложения. Живым, современным языком профессор (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D6C9BFBDAE9EC9F06511953594407BD06186C34
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

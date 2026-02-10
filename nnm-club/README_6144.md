@@ -19,6 +19,8 @@ Icecream Video Editor - простой редактор видео для Window
 magnet:?xt=urn:btih:A67C4508877CE8A6C1E5359FB44E8127A73FADB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:A67C4508877CE8A6C1E5359FB44E8127A73FADB8
 magnet:?xt=urn:btih:5C43341025C239A821D29EE7CD75EB12EF0916C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:5C43341025C239A821D29EE7CD75EB12EF0916C1
 ```bash
 magnet:?xt=urn:btih:81335C0D18ADE56542AD05EB68C8DA0AEB15BD12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:81335C0D18ADE56542AD05EB68C8DA0AEB15BD12
 magnet:?xt=urn:btih:0221B98A9CB714C0D8DA2B7277391C1EBC3A9393
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:0221B98A9CB714C0D8DA2B7277391C1EBC3A9393
 magnet:?xt=urn:btih:85598CED41A8FED1931424D5C350928A0BA08F75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:85598CED41A8FED1931424D5C350928A0BA08F75
 ```bash
 magnet:?xt=urn:btih:35D077C953CEB7990040FD57B8A0405A64BA3821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Medina Azahara - La Capsula del Tiempo (2022) Compilation [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:525B1A32650FF6432A6996FE7C78E0A3A3DEE08D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:525B1A32650FF6432A6996FE7C78E0A3A3DEE08D
 ```bash
 magnet:?xt=urn:btih:AAE0444CE6E5EC90940DD0447A11880B14FF9A23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:AAE0444CE6E5EC90940DD0447A11880B14FF9A23
 magnet:?xt=urn:btih:5308C0600F5DD6EBB87905CA95ABD60E8F518F93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:5308C0600F5DD6EBB87905CA95ABD60E8F518F93
 magnet:?xt=urn:btih:4C9376CEA365EB1E90B9FC897FFEA2185B7705C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Path Finder - один из лучших файловых менеджеров, 
 ```bash
 magnet:?xt=urn:btih:841BFD3C09AF94475FB422A7510DA069BA73245E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Hostile Breed - 4 Albums (2001-2016) [MP3|320 Kbps] <Metalcore, Thrash Metal>
 magnet:?xt=urn:btih:EBCC5CB72A95BE1DABDCCFB3475946E590786602
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:EBCC5CB72A95BE1DABDCCFB3475946E590786602
 magnet:?xt=urn:btih:5B4E129B0AA61AEAEA4643658CE9DD387A63F7EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:5B4E129B0AA61AEAEA4643658CE9DD387A63F7EE
 ```bash
 magnet:?xt=urn:btih:93376836115DBB4390FC23086A937970E57393CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ The Muddy York Blues Machine - The Muddy York Blues Machine (2022) [FLAC|Lossles
 magnet:?xt=urn:btih:2430A68563936F30716ABF692F9B2E2B20F2512D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ Dirt Forge - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doomy, 
 ```bash
 magnet:?xt=urn:btih:9AE1E7F60AAC42E571D30BA9385F22B8FB3ACAAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ Theicon - Beyond The Universe - Act 1-2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Pr
 magnet:?xt=urn:btih:BF6B71B3A46F6F94096E9D8640447FB4C109B292
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ The Jorgensens - Americana Soul (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Sou
 ```bash
 magnet:?xt=urn:btih:62281D94A9194264B3A59D6FF388F3ABC3DE864D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +509,8 @@ The Victor Lawson Blues Band - Mainstreet Blues (2022) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:88839BD7E3A85EF8CF4F930EF638784718564EB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ Pixelmator Pro — это невероятно мощный, красивый и
 ```bash
 magnet:?xt=urn:btih:5E92B269150F86B11F4C77B093418B46FB83794A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:5E92B269150F86B11F4C77B093418B46FB83794A
 magnet:?xt=urn:btih:F9EF3C9FD6C9CA9D72777B6B8E8C34DA2B7631EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ OpenNumismat является удобным и надежным приложе�
 magnet:?xt=urn:btih:51578C96A1E69568D19F60EC371CB54377185432
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:51578C96A1E69568D19F60EC371CB54377185432
 ```bash
 magnet:?xt=urn:btih:AAFF443B30E30CDD03DD9CE14A6D6B7B4B0195E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ Steve Hackett - Foxtrot at Fifty + Hackett Highlights: Live in Brighton 2022 (20
 magnet:?xt=urn:btih:4EFDF662AC82DBEF8887B2745FE3B75EB7B46454
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ Deseret - Woodlands (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Sl
 magnet:?xt=urn:btih:D694B5865832AF6CAEF8A67C0377A963FD9AA2C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ Holy Dragon - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 ```bash
 magnet:?xt=urn:btih:C842D13491E240147A6D94A5B4772EB6C87181C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

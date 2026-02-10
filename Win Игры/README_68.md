@@ -19,6 +19,8 @@ The Deluxe Edition включает в себя дополнение Talisman of
 magnet:?xt=urn:btih:3540B0F604ADB430F4099E829A37735556474041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Tetris Forever посвящён сорокалетию не имеющей се�
 ```bash
 magnet:?xt=urn:btih:64610FDDBBCC2540DC869AE5610394B467869B55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Red Dead Redemption - компьютерная игра в жанре action-adv
 magnet:?xt=urn:btih:8A68F72E63A9E9E9B683B07627D5EC52D7B92EF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Tempest Rising (2025) [Ru/Multi] (1.1.1+43856/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:31171AE996C379BCCA2F5B775556C1E7FCC591F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ SpellRogue (2024) [Ru/Multi] (1.0.0b70/dlc) Repack FitGirl [Gold Edition]
 magnet:?xt=urn:btih:36AA48EC8B031B0351636A98CA45F1F77FAC62D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Dark City 10: Barcelona / Мрачный город 10: Барселона (2025
 ```bash
 magnet:?xt=urn:btih:43D2DE85E5B6686E3A7D78F5DF9AF5BC0D3455B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Necesse - это приключенческая игра-песочница с �
 magnet:?xt=urn:btih:9D781E493C4722D3D295E0186C24A4F2BA27EA58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Another Crab's Treasure - это увлекательное подводное �
 ```bash
 magnet:?xt=urn:btih:459A47DDCD3106173D5F7C58E6C2C041E0C8F1B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Medieval Blacksmith (2024) [Ru/Multi] (1.6.0) Repack FitGirl
 magnet:?xt=urn:btih:E180E7A924A046CF403AB09CC05EB351EA5DCCD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ In Nightmare - это повествовательная приключенче�
 ```bash
 magnet:?xt=urn:btih:AF6DC6D240E95CEEDF68838D0B7B0AC141ECCE9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Avorion (Аворион) - игра-песочница, где ты будешь
 magnet:?xt=urn:btih:9F3A01863859E7E815444BBADBEB4B827B3B2CCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Ambulance Life: A Paramedic Simulator (2025) [Ru/Multi] (1.4.0/dlc) Repack FitGi
 ```bash
 magnet:?xt=urn:btih:D3AB9DB258251D0D3B23BFED64B987577FA93BA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ True Fear: Forsaken Souls Part 3 завершает популярную три�
 magnet:?xt=urn:btih:0B493DDE02724561BAC601CFECC807C726947744
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Total Conflict: Resistance (2023) [Ru/Multi] (0.96.0/dlc) Repack Let'sРlay [Ear
 ```bash
 magnet:?xt=urn:btih:29C77A969F3AE133617A2EAB86A267A44134C562
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Fabled Lands (2022) [Ru/En] (2.1.3а/dlc) Repack Let'sРlay [Complete Edition]
 magnet:?xt=urn:btih:1102943BAF2D4FBA06C531A97FB6C5F3A5BCAD51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ World of Goo 2 (2024) [Ru/Multi] (13112W) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:D9AE1B4139FB4127EB16897009A3F303D8E541CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Days Gone (2021) [Ru/Multi] (1.08/dlc) Repack FitGirl [Remastered]
 magnet:?xt=urn:btih:43D6CAB71411DA543A628AAFEBA14A3FB0F869A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Firmament - новая игра-приключение с загадками о�
 ```bash
 magnet:?xt=urn:btih:9C900DDEA1036A1B8288B77AF59097645E59E093
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Burial (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:19C88EE88387217E6B609352B5647C9A5573D85B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ CyberCorp - топ-даун шутер, выполненный в сеттинг
 ```bash
 magnet:?xt=urn:btih:58D71A526598421F740FC521A93A1ACD605CDB35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Mega City Police / Mega City Force (2023) [Ru/Multi] (1.092) License GOG [Digita
 magnet:?xt=urn:btih:5E9E9D42C08B027FDCDB6289BA56F12A8455C9D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Sker Ritual – фантастический боевик, который мож
 ```bash
 magnet:?xt=urn:btih:4613408D41636F2D4DFF2149CB6004D1DCA48FF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Stone of Madness – тактическая стелс-игра в реал�
 magnet:?xt=urn:btih:603E8854244588CD7D374FA1ED96039D6ABEEC40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Menace from the Deep - захватывающая карточная игра в
 ```bash
 magnet:?xt=urn:btih:E78DB7D40C176208A719FA5A53894F617D553B68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (56190/dlc) Repack Other s [Deluxe
 magnet:?xt=urn:btih:EF710840FFB2BBB1183077EF961D513E2DFE080E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Riven (2024) [Ru/Multi] (1.7.1) Repack Let'sРlay [The Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:D2AEA7CC6B5FC1FBBB3F5441D6FB980707DC7B83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

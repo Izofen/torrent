@@ -20,6 +20,8 @@ Romanysoft Speed Test -  проверить скорость интернет. �
 magnet:?xt=urn:btih:5E4AE9E121BCF14094248D200F91C76D27647C6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:5E4AE9E121BCF14094248D200F91C76D27647C6D
 magnet:?xt=urn:btih:70D79C8E20B7F66C60762837E26A519BEE5E9AE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:70D79C8E20B7F66C60762837E26A519BEE5E9AE3
 magnet:?xt=urn:btih:68C96D992AEA44D0D7DFAC0B65EA3D6060815C52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ GridinSoft Anti-Malware (ранее Trojan Killer) - антивирусная у
 ```bash
 magnet:?xt=urn:btih:F2673BAD7CA313356E56F2F3E5A674AB09916C85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Junichi Akagawa - Consistency Test (2017) Hz-records [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:2206A930AB5EAA6736CE30CCB32C872B6D95517B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ VA - Enhanced Progressive - Best of 2017 (Mixed by Marcus Santoro) (2017) [MP3|3
 ```bash
 magnet:?xt=urn:btih:BCE3A7A908478B17F34A76DD189A2362E8F6D6DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ File Cabinet Pro  - менеджер документов из строки ме
 magnet:?xt=urn:btih:A376FC79A8CF0F6A378246321BACC60EA32D9D05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ Comedy Woman (22.11.2019) WEB-DLRip (сезон 9, выпуск 10)
 ```bash
 magnet:?xt=urn:btih:4FFD84EB57D4FA4D302F21D0FEA618B4EB2B6442
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ FileOptimizer — бесплатная утилита с открытым исх
 ```bash
 magnet:?xt=urn:btih:5D092DE93579A3845D66F4D759AE2EEA48CB2501
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ magnet:?xt=urn:btih:5D092DE93579A3845D66F4D759AE2EEA48CB2501
 magnet:?xt=urn:btih:40A036C2CED29E2D31D7863550953D7855CC646C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ magnet:?xt=urn:btih:40A036C2CED29E2D31D7863550953D7855CC646C
 magnet:?xt=urn:btih:76F370CEB8B14F5CD4CE2D84DA75629DC65D1BF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +327,8 @@ magnet:?xt=urn:btih:76F370CEB8B14F5CD4CE2D84DA75629DC65D1BF8
 magnet:?xt=urn:btih:89BE5C427D39E1F498ECD5E1E02771322BD13383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +354,8 @@ Wire имеет стандартный набор функций для месс
 magnet:?xt=urn:btih:9BF8A0FA39083619E1222C294803A207043C5D26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +379,8 @@ Subtitle Edit - редактор субтитров. При помощи это�
 ```bash
 magnet:?xt=urn:btih:789BDD1A323271BD26913CC103C2C07EAA9B841C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ AnyTrans for Android - предназначен для быстрой и удо�
 magnet:?xt=urn:btih:21B7F1D713537F8ADB9D2E3B46218D03543C2EA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:21B7F1D713537F8ADB9D2E3B46218D03543C2EA4
 magnet:?xt=urn:btih:D3B9C321E4468146B7A7EACE7D8EB0B099C375C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ DxO FilmPack — это подключаемый модуль для Adobe Photo
 ```bash
 magnet:?xt=urn:btih:61CFE6577DAEE7E1AE9363B1C6F2923DD884D030
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ magnet:?xt=urn:btih:61CFE6577DAEE7E1AE9363B1C6F2923DD884D030
 magnet:?xt=urn:btih:CAAD2E4D096CABEB566E2AE39EEEF7125FDD3866
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ MediaHuman YouTube Downloader - удобное приложение с помо�
 magnet:?xt=urn:btih:AF9E4419906189EFAF7BC91DD99C14BD079C4D7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ Prism - самый стабильный и всеобъемлющий мульт
 ```bash
 magnet:?xt=urn:btih:3DB81B8438FB2405975D5171F77EEF5B6B1DCE47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +567,8 @@ Raez - Collapse Now (2019) EP [FLAC|Lossless|Web-DL|tracks] <Instrumental Hip-Ho
 magnet:?xt=urn:btih:80680DEF1CFF6877098F97E5BF4202F3AB1C41C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ Swift Converter - это утилита для конвертирования в
 ```bash
 magnet:?xt=urn:btih:6D9B3733A084EEFC4336BAC0CE6F9AABF61EC77A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +622,8 @@ Folders Factory — сделай уникальными свои папочки 
 magnet:?xt=urn:btih:0D1FA5534B86D0C81A1019FEB678DE2596E82A26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +647,8 @@ Antivirus Zap - небольшая утилита, которая проскан
 ```bash
 magnet:?xt=urn:btih:65C2334C8297405945A7A84D54271508E536FC50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ magnet:?xt=urn:btih:65C2334C8297405945A7A84D54271508E536FC50
 magnet:?xt=urn:btih:D9D30635538CB87FAA5D201D3568BC74A3912331
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ Movavi Screen Capture Studio - это отличная программа при
 ```bash
 magnet:?xt=urn:btih:A4C76C9587690E083FC79ED3B5C7BECD78B491F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

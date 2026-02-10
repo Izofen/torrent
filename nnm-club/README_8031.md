@@ -22,6 +22,8 @@ Kuba - Albomba (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:30198C7AA4525E6F352E4E57082EECEE7296FAAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ K.S.V. - Цикл (2021) [MP3|320 Kbps] <Hardcore Punk>
 magnet:?xt=urn:btih:E73FA782A3E75BFBE032A981D1E86FC4B9D7424E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:32CA260E79C97B516010E0F197A2D7EDB4299561
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ VA - Disco Fluid Vol. 2 (2023) [MP3|320 Kbps] <Disco, Indie Dance, Funky House, 
 magnet:?xt=urn:btih:1380077601C092431FF89F782F9F7589E12F332C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ VA - Armin van Buuren - A State Of Trance 1118 (2023) [MP3|320 Kbps] <Trance, Pr
 magnet:?xt=urn:btih:8C1E831EB40A7B16C1FB6B4BB7FEB867D500B63E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:8C1E831EB40A7B16C1FB6B4BB7FEB867D500B63E
 magnet:?xt=urn:btih:A729CEB3BBCFBC5B4C9E58F5E3ED111DD167B117
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:A729CEB3BBCFBC5B4C9E58F5E3ED111DD167B117
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ VA - Uplifting Only Top: 15 March (2017) [FLAC|Lossless|WEB|tracks] <Uplifting T
 magnet:?xt=urn:btih:64158EF2A697F360DCFF108CF824A11FFEA5F451
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ Xliff Editor- предоставляет простой способ редак�
 magnet:?xt=urn:btih:17BE189D73A2BF5304B8C26B6924133288C84632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ Juusenshi Gulkeeva | Beast Warrior Galkeeva | Зверовоины Галкее�
 ```bash
 magnet:?xt=urn:btih:CFC0908947F67CB338E454053C707F728AD40C7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +297,8 @@ Omni Recover для macOS позволяет восстанавливать уд
 magnet:?xt=urn:btih:2CAA7368A52DE8AA7EDF458BF6E31CB69F84D45E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:2CAA7368A52DE8AA7EDF458BF6E31CB69F84D45E
 ```bash
 magnet:?xt=urn:btih:537E7F1BCE2B58C945A5765E20B6495FF4D0A56B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:537E7F1BCE2B58C945A5765E20B6495FF4D0A56B
 magnet:?xt=urn:btih:64A149DDEA143B82B30B2DB60900977D40A588E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:64A149DDEA143B82B30B2DB60900977D40A588E5
 ```bash
 magnet:?xt=urn:btih:4823E7E6092E272043E236A301349475FBD02B06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ Atahualpa - Atahualpa Rock (2020) [MP3|320 Kbps] <Native American, Rock, World>
 magnet:?xt=urn:btih:62D5B0AE4946DD078D2115D7AE8318B769F8E595
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:154F23B7717CC678DE89E71CC47F3BFABE284ADB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ Scrutiny проверит ваши изображения, ваши внутре
 magnet:?xt=urn:btih:69254C6AB6DA111B850240C988AE2E35959C935C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:69254C6AB6DA111B850240C988AE2E35959C935C
 ```bash
 magnet:?xt=urn:btih:DDE5C6F9E8E2F8FDC8033692F804F3E5F99314E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ Celestial Season - Forever Scarlet Passion (1993) Remaster, 2020, Burning World 
 magnet:?xt=urn:btih:7EE8A84DC1A340044613E9725642F9C44E2B900A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:7EE8A84DC1A340044613E9725642F9C44E2B900A
 ```bash
 magnet:?xt=urn:btih:6682809F4D1FD5328298EAC41AE2BC7EC5465015
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ Cattac - Deliverance (2023) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark Electro>
 magnet:?xt=urn:btih:9514A92D095C3A332C9A5C6AF2AC6798D317F610
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +600,8 @@ Atomic Annie - Sick Frustrations New Foundations (2023) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:2045B9C34B5B6BF2CAADCC4B37CB00BD1AA5FC59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:2045B9C34B5B6BF2CAADCC4B37CB00BD1AA5FC59
 ```bash
 magnet:?xt=urn:btih:F15007CDC75132DDC1A0C6565ABD8D2B72EA622F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +655,8 @@ Dangermuffin - Heritage (2017) [FLAC|Lossless|tracks + .cue] <Folk Rock, America
 magnet:?xt=urn:btih:A1F649FA0B45DB00987EA20FDE701B8ECB0D03C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +684,8 @@ VA - Soul Hit Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul, Funk>
 magnet:?xt=urn:btih:FF9A3F9508EF7192D203830CD64D4CB45513FB99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ magnet:?xt=urn:btih:FF9A3F9508EF7192D203830CD64D4CB45513FB99
 ```bash
 magnet:?xt=urn:btih:7569D8F4C4E7431106003A92E31271A60A3117E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

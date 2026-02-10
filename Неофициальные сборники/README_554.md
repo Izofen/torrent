@@ -1,3 +1,32 @@
+###  Публикация: 1379506   (839073) от 29.04.2020
+
+Kingdom Come - 100% Kingdom Come (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't Crying for the Moon
+02. Passion Departed
+03. Over You
+04. What Love Can Be(   Читать дальше...   )Жанр: RockПродолжительность: 03:23:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5355AAC6AF7F77F30988EE244ED69CBE215C3CD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 310222   (839112) от 17.03.2011
 
 VA - Мегахит 200 Франция (2011) [MP3|128 kbps]<Pop>
@@ -18,6 +47,8 @@ VA - Мегахит 200 Франция (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:520EC491F1DC10E9350F3AF4AB8A9FA887CBF625
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +77,8 @@ Krokus - 100% Krokus (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
 magnet:?xt=urn:btih:77B0FBE918D92C3455B97A278426D068B7D7ED0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +106,8 @@ VA - Крутые пушки Осень 2021 [MP3|320 Kbps] <Club, Dance, Other>
 magnet:?xt=urn:btih:F94F39C472A5F546FC89199D78CF21A3D1780702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +131,8 @@ Va - СуперДискотЭКА 90-х Русский (2011) [MP3|256 kbps]<Dis
 ```bash
 magnet:?xt=urn:btih:F5819975EC39795A68526C2326F2A8317BACAD5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +161,8 @@ VA - Acoustic Rock vol.7 (2020) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:132A713463356208E5D49A1A4B8E7006AB3FF613
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +189,8 @@ VA - Dancehall Fresh Sounds (2020) [MP3|320 Kbps] <Dancehall, Reggaeton, Latin H
 ```bash
 magnet:?xt=urn:btih:EC6AC4BBA22F69283B1ADF88D8FDE8D8038A263B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +219,8 @@ VA - Beatport Tech House: Electro Sound Pack #71 (2020) [MP3|320 Kbps] <Tech Hou
 magnet:?xt=urn:btih:A7FBA4572C3343CA4FBF094D742A4356FF2FFB96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +247,8 @@ VA - Beatport Electro House: Sound Pack #72 (2020) [MP3|320 Kbps] <Progressive H
 ```bash
 magnet:?xt=urn:btih:F12320F8966727E383576F43742A1D3E69E1344D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +277,8 @@ VA - Acoustic Rock vol.6 (2020) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:1B5A5A61F1A6A999E642EA74BAAFA83C01DF3D0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +305,8 @@ Joe Bonamassa - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:744BF8C4EB1268ACAD6AE96EE00113DEF7808FAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +335,8 @@ CD 01:
 magnet:?xt=urn:btih:3EFEFB5BD6BCB76050EE7367244E9E7E5DBA9C4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +363,8 @@ VA - Beatport Chillout: Electro Sound Pack #70 (2020) [MP3|320 Kbps] <Chillout, 
 ```bash
 magnet:?xt=urn:btih:DAFBFFF7142A3215F0A6AE663CF4DC6C671D89C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +393,8 @@ VA - Pluto Loves You (2020) [MP3|320 Kbps] <Alternative Rock, Rock, Indie Rock, 
 magnet:?xt=urn:btih:31E1836D181783ADEF36290304905AD6200CE75C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +421,8 @@ VA - Jump Urban: Hard Dub Party (2020) [MP3|320 Kbps] <Hard Dance, Hardstyle>
 ```bash
 magnet:?xt=urn:btih:758E1339BAD581D244D79F3B6568304649F41F4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +451,8 @@ Willie May - Moon Blues Positive (2009-2015) Compilation Album [MP3|320 Kbps] <B
 magnet:?xt=urn:btih:E14B940BAA84F36C3CA884842DCDED9E365290BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +479,8 @@ VA - Unknown 80's (part V) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop,
 ```bash
 magnet:?xt=urn:btih:F2662983AEDFDB4AD8B15DBA998AD6C6A2E01577
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +509,8 @@ Keb' Mo' - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
 magnet:?xt=urn:btih:4CB3C32A6FA046227D43257D02A5F096F0A19128
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +537,8 @@ VA - Хиты в тачку. Сборник № 6 (2017) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:9BEBD8D0539318DE6E48787514D156DC252AE4A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +567,8 @@ VA - Дискотека 2017 - Весеннее Настроение 85 хито
 magnet:?xt=urn:btih:A9B68FD136DD46665D0BF7F04114C4B9F5A88130
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +595,8 @@ magnet:?xt=urn:btih:A9B68FD136DD46665D0BF7F04114C4B9F5A88130
 ```bash
 magnet:?xt=urn:btih:999D87C77268354178356C4165FA32999846278A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +625,8 @@ VA - Шальная 100-ка душевных песен (2016) [MP3|256-320 к�
 magnet:?xt=urn:btih:73225A534160D33BDCEF71B70BB250603BBCBEA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +653,8 @@ VA - Лучший русский шансон. Сборник № 4 (2017) [MP3|
 ```bash
 magnet:?xt=urn:btih:C60E2FE640888A6D587365A9F6A2E7B0609F93CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +683,8 @@ VA - Amazing Vocal Future Bass 1 (2017) [MP3|320 Kbps] <Future Bass, Electronic>
 magnet:?xt=urn:btih:4D183821B2E9D579E9DEC80A2F036B9E0DF79299
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +711,8 @@ VA - Танцевальная вечеринка Хит FM. Сборник № 3
 ```bash
 magnet:?xt=urn:btih:00079912C875704B67FBAC4AD30F2EAE675C4830
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,32 +741,7 @@ VA - Hits Collection [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Dance, House, T
 magnet:?xt=urn:btih:A8C7EF03D40C539A47FCBA485FAA6631D052A1D4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112920   (840024) от 10.03.2017
-
-VA - Весна пришла. Лучшие хиты. Версия № 11 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840024.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Виолетта Литвиненко - Найдет 3:00
-002. Oxford (Ox4d) - Тебя Я Больше Не Люблю 3:36
-003. Зара - Без Многоточий 3:36
-004. Supernova - Я И Мои Девочки 3:09(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3727207B5ACC1BDB5335067B7E437ABEE5E19E8E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Detectives United 7: Mission Possible / Лига детективов 7: Мис�
 magnet:?xt=urn:btih:D56686547595B1DD3FC61A9C66672556390BB817
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Maze of Realities 5: Synergy of Worlds / Лабиринт Реальностей
 ```bash
 magnet:?xt=urn:btih:41C007218A204F2B251ABCFD044BD95CF2481558
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Shredder 13 + DeepShredder 13 (2016) [Multi] (13) License
 magnet:?xt=urn:btih:B63DE4C1DBE18743167948F4EAF6120AFE4B2EC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Grim Tales 25: Light in the Darkness / Страшные сказки 25: Све�
 ```bash
 magnet:?xt=urn:btih:A86B456B577ABB921056DCF05A49196C694BF20C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Bridge to Another World 12: The Christmas Curse / Мост в другой ми�
 magnet:?xt=urn:btih:AFE8671F653CC74B674A59F0DFF515FCD90CB929
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ World War Z: Aftermath - кроссплатформенный зомби-шут�
 ```bash
 magnet:?xt=urn:btih:B7EFB1A1726BD38F71AEE50DBDA7B5DAF12280A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Aurora Hills: Chapter 1 / Аврора-Хиллз: Глава 1 (2024) [Ru/Multi
 magnet:?xt=urn:btih:0CC937CBE9356D90D4BD2972F2B66C87CA60C4F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ This War of Mine (2014) [Ru/Multi] (6.0.0/dlc) Repack Let'sРlay [Final Cut]
 ```bash
 magnet:?xt=urn:btih:F2E4E2C6D250E4FB7CFB42CB191009B6F852FFA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Karate Survivor (2024) [Ru/Multi] (1.2.0.277/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:6F184697088CCB611EACFFE8ECA3228F3ABCADC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Twin Mind 5: The Deathly Trick / Двуединое сознание 5: Смер
 ```bash
 magnet:?xt=urn:btih:2408B3D083F6E7479DAFE7245C2BE7FB21FA017D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Strange Investigations 4: Truth Will Out / Удивительные рассле
 magnet:?xt=urn:btih:21457761FCF322083EFDC31DCF7850497AEE14FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Primateria - это карточный рогалик с многогранно�
 ```bash
 magnet:?xt=urn:btih:BA1FC48219EE410B78D63718B5A0A5CE58DD19EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Sun Haven – увлекательный проект, разработанны�
 magnet:?xt=urn:btih:E4ADF56753DEF3F444A55802DC43E41B000A1F60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Chasm (2018) [Multi] (1.093) License GOG
 ```bash
 magnet:?xt=urn:btih:822FE43AAC4017CE3C1B974688C178DD0F19FE6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Hairdresser Simulator (2024) [Ru/Multi] (1.030/dlc) Repack seleZen
 magnet:?xt=urn:btih:1F1F8F42B8B09267ABAF0E17E3817EE9E53C1285
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Railroads Online - это «песочница» в огромном откры�
 ```bash
 magnet:?xt=urn:btih:E8AC0D6613EDC0661E088E66FE61AB39740108C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Blasphemous 2 (2023) [Ru/Multi] (2.2.0-cs57553/dlc) Repack Let'sРlay [Complete 
 magnet:?xt=urn:btih:96B6E5832058DC7C435A5C96701123805702B569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ CONSCRIPT — это новый хоррор на выживание в духе
 ```bash
 magnet:?xt=urn:btih:14D24F5F416FBD0D552859DCF32CFE6EFD7D62F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Blasphemous (2019) [Ru/Multi] (4.0.67/dlc) Repack Let'sРlay [Digital Deluxe Edi
 magnet:?xt=urn:btih:86321BF889ED98542603F926C0371D2EC29AE5D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Outlanders (2023) [Ru/Multi] (Build 16661186/dlc) Repack Let'sРlay [Complete Ed
 ```bash
 magnet:?xt=urn:btih:868396C7A6EFF530ACE642A3F7AB4D11436FFA12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Killing Time: Resurrected (2024) [Multi] (1.1) License GOG
 magnet:?xt=urn:btih:28BE3C9E589FCC026178248BEC2109169D3DF922
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ SPORE Collection (2008) [Ru/Multi] (3.1.0.29/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:0234671DA10873E24430E88508F54AD5584A8A78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Railbound - это удобная игра-головоломка о паре с
 magnet:?xt=urn:btih:221E8FE42CE63EDD06D06DE08869B36531AA1EB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Alder's Blood: Prologue (2020) [En] (1.0.20a) License GOG
 ```bash
 magnet:?xt=urn:btih:A5D1223428E6DA579E82498677A556634E477E0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Ticket to Ride (2023) [Multi] (1.6.0/dlc) Scene Tenoke
 magnet:?xt=urn:btih:6F06A885E3E44FB8A37075C12F6D07AB68571E3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Fatal Midnight (2024) [Ru/Multi] (Build 16185793) Repack Other s
 ```bash
 magnet:?xt=urn:btih:AC8B47C801776D948B969CB610FC6E77EBE021FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

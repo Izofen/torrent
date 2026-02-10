@@ -19,6 +19,8 @@ Infostart, Анна Щепина | Проектирование интерфей
 magnet:?xt=urn:btih:B94CD3886E36400A0BCDA6EE8995E48DDF191EBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:B94CD3886E36400A0BCDA6EE8995E48DDF191EBA
 magnet:?xt=urn:btih:C3BCEB8EB08BD7313D86E9A8F8BEEF6F13D95C32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ Stepik, ImloroYM | Magic Tenses: Полное понимание английс�
 ```bash
 magnet:?xt=urn:btih:A6BE8BDDD8AA13CE15B2922BD9174F823716E4F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ GetAnalyst | Проектирование микросервисов (2024) WEB-
 magnet:?xt=urn:btih:4D2B668C48B1B583B54C7FE3EA2FBD0F6DCEADF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ HolyJS - конференция для всех, кто программируе
 ```bash
 magnet:?xt=urn:btih:7BB46CE37A2FFC0F833E345ADB24AD8727603539
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:7BB46CE37A2FFC0F833E345ADB24AD8727603539
 magnet:?xt=urn:btih:00DB8A415EF915809AB9FE950BAF1BC0AEE79DE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ Michael Dunbar | Заточка режущего инструмента с по�
 ```bash
 magnet:?xt=urn:btih:7B8E108843A7D7DA5971D402EEB2C82DF8136C7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:7B8E108843A7D7DA5971D402EEB2C82DF8136C7B
 ```bash
 magnet:?xt=urn:btih:7F42A2B10B19EAB3F69C71FA7F1E3F2B14D7BC96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:7F42A2B10B19EAB3F69C71FA7F1E3F2B14D7BC96
 magnet:?xt=urn:btih:F135DAD79BB765F0AA828FFD9B42E17265DEC796
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:F135DAD79BB765F0AA828FFD9B42E17265DEC796
 magnet:?xt=urn:btih:75595EFF03E02F46335169DB65E13C4C4436427A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:75595EFF03E02F46335169DB65E13C4C4436427A
 ```bash
 magnet:?xt=urn:btih:0109A395E8EBB67E2EEFDFB86BB232970CFC5245
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ JPoint - конференция для Java-программистов. Одна
 ```bash
 magnet:?xt=urn:btih:5B379F17F9ACDB204C0E4F90713B313F6A75D3EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +355,8 @@ Stepik, Дмитрий Фокеев | Создание сайтов и веб д
 magnet:?xt=urn:btih:CD1FCEBC2F5264232B648C913C28A4FD3CFEE4FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ magnet:?xt=urn:btih:CD1FCEBC2F5264232B648C913C28A4FD3CFEE4FE
 ```bash
 magnet:?xt=urn:btih:A7BAA8DF8FDB5C45704C53B2537549324C5432E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +411,8 @@ Skillbox | Музыкальный менеджер (2024) WEB-DL [AD] [RU]
 magnet:?xt=urn:btih:5D9651153A91DE0EF2E071516A689D856B174E19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +440,8 @@ magnet:?xt=urn:btih:5D9651153A91DE0EF2E071516A689D856B174E19
 magnet:?xt=urn:btih:28822F6CD882B545C5BB482FDAC321A96FF9229C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +465,8 @@ PGConf.Russia – это международный технический фо�
 ```bash
 magnet:?xt=urn:btih:BAE259D225FFA68F547F33308480686BDF2783CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +495,8 @@ SafeCode - конференция, где обсуждают инструмен�
 magnet:?xt=urn:btih:566314D0BD2B0ED1310191B887C9D29C4BF58CBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +522,8 @@ Build a Micro Saas Academy, Jamie Tam | How to Build a Micro SaaS That Makes Mon
 magnet:?xt=urn:btih:8204CA0E35AC39F1906A7D70C4A30945DF95E926
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +547,8 @@ Godnolytika, Влад Князев | Готовимся к собеседова�
 ```bash
 magnet:?xt=urn:btih:5F16B3537CAA0961EE4C85281657F10683267616
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +575,8 @@ Milan Jovanović | Pragmatic Clean Architecture (2024) WEB-DL [EN]
 magnet:?xt=urn:btih:17AA50F2E0473B22BFBDC8CC2B3B65E9BA265FFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +600,8 @@ Geometry Nodes быстро превращается из простой тех�
 ```bash
 magnet:?xt=urn:btih:F3B25DB6DF95D285B254CBABE2FFD1ABCCA2C9D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +630,8 @@ GoFunc - конференция для тех, кто использует Go в
 magnet:?xt=urn:btih:AC9535B84A5E8BEED3A7C6B94B999A7BF7AE18BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +655,8 @@ Pikuma, Gustavo Pezzi | 3D Computer Graphics Programming (2024) WEB-DLRip [EN]
 ```bash
 magnet:?xt=urn:btih:6E58AAF85EC23CAE422ABC3396B4BFAC5FE2BC5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +684,8 @@ JavaScript.Ninja | Учись реальности, Crash Course (Пакет Б�
 magnet:?xt=urn:btih:3AEF7161DC0EA4711F24561E227BFBC354DE728D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +710,8 @@ javascript.ru, Егор Сидоров | Интенсив по "продвину
 ```bash
 magnet:?xt=urn:btih:A1ACD321A8CD8868C6FD8274431E2A63BC82CFE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

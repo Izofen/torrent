@@ -20,6 +20,8 @@ DivFix++ — программа для восстановления битых �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ avast! Rescue CD v.1.0.3 [Multi / Rus]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ avast! Rescue CD v.1.0.3 [Multi / Rus]
 magnet:?xt=urn:btih:64B56FD6060148DB5B3E04E5038C01B1176C5DCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:64B56FD6060148DB5B3E04E5038C01B1176C5DCA
 ```bash
 magnet:?xt=urn:btih:C00CBF245EEB7FEAE32BD32E985E11ACEB56A658
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:C00CBF245EEB7FEAE32BD32E985E11ACEB56A658
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:C00CBF245EEB7FEAE32BD32E985E11ACEB56A658
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Battlefield: Bad Company 2 + DLC Vietnam [Ru] (RePack/795745) 2010 | Naitro
 magnet:?xt=urn:btih:E6F10505F13EA6E253CD4D7B15607C0B3CC5CB2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:E6F10505F13EA6E253CD4D7B15607C0B3CC5CB2C
 magnet:?xt=urn:btih:0F60937345C9FEB36D1026DF5C0B6E22AF781646
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Angry Birds Space - главная особенность новой игры - 
 ```bash
 magnet:?xt=urn:btih:07029AF4C52EC457D31F281A408A75A9FE8FF77F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:07029AF4C52EC457D31F281A408A75A9FE8FF77F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Battlefield Vietnam - полноценное продолжение популя
 ```bash
 magnet:?xt=urn:btih:5765A94715C685A3412E651083A2B07F0AF64487
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (Lossless RePack) 2012
 ```bash
 magnet:?xt=urn:btih:46E52B12021A42D9ADE1C554771284CBA1091EBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ Adobe Reader X 10.0.1, WinRAR 4.01 Rus x32/x64, AIDA64, Mozilla Firefox, Uninsta
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ Q: Загадка женщины / Q (2011) DVDRip
 ```bash
 magnet:?xt=urn:btih:4C18BE756DE12D61988DC8602A47E3A7265C8C31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +412,8 @@ CodeVisionAVR включает в себя следующие компонент
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +437,8 @@ CodeVisionAVR включает в себя следующие компонент
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +465,8 @@ CodeVisionAVR включает в себя следующие компонент
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +495,8 @@ CodeVisionAVR включает в себя следующие компонент
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +524,8 @@ CodeVisionAVR включает в себя следующие компонент
 magnet:?xt=urn:btih:CF8D27ED2ADD7419DB7B3CA4F6EB324B64787197
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +549,8 @@ magnet:?xt=urn:btih:CF8D27ED2ADD7419DB7B3CA4F6EB324B64787197
 ```bash
 magnet:?xt=urn:btih:10024C2FA43979DC154AC351B895A090321897C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +580,8 @@ magnet:?xt=urn:btih:10024C2FA43979DC154AC351B895A090321897C1
 magnet:?xt=urn:btih:1889F3AD2BEF3D771A558AAC07E0AEAF3C76B006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +607,8 @@ magnet:?xt=urn:btih:1889F3AD2BEF3D771A558AAC07E0AEAF3C76B006
 magnet:?xt=urn:btih:BB3839FF1668313302CACC92C7AE6302090EB2D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +632,8 @@ magnet:?xt=urn:btih:BB3839FF1668313302CACC92C7AE6302090EB2D5
 ```bash
 magnet:?xt=urn:btih:96C1BB0A067A252E2163E83AED6BEEBBC975D6A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +668,8 @@ Marcel Loeffler - Source Manouche (2006) [FLAC|Lossless]<Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +703,8 @@ VA - Electro Life 16 (by ZiP) (2012) [MP3|256-320 kbps] <Electro House, Dubstep>
 magnet:?xt=urn:btih:E10A7B5898041023D9D4A8D4C579F36E098F8DA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -687,6 +737,8 @@ VA - Seventy Dubstep - Electronic Essentials (2012) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:FE4B4517D1C78C36EF1B9101042F9A91782CED9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ Udemy, Abhishek CSEPracticals и др. | Part A - Networking Projects - Implemen
 magnet:?xt=urn:btih:0EA238E5906043D284B48E68393355EFF4662B48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ TalkPython, Michael Kennedy | Building Data-Driven Web Apps with Pyramid and SQL
 ```bash
 magnet:?xt=urn:btih:F0DED849F4D566E2A22389665417993171EB8163
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Infostart, Николай Бондаренко | 1С:Предприятие дл
 magnet:?xt=urn:btih:02A3168AE8FC6D51B7801EC49D68C869EF793216
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Udemy, Anton Golosnichenko | Vanilla JavaScript с нуля на практик�
 magnet:?xt=urn:btih:0CA85D8FE83747F3995D642D3FF3175B00031F66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Udemy, Andrei Neagoie и др. | JavaScript Web Projects: 20 Projects to Build Y
 ```bash
 magnet:?xt=urn:btih:DC585E229BE9FDB951DD108551A7063CBD660E40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Udemy, Anton Golosnichenko | Vanilla JavaScript [2021] - создаем клон
 magnet:?xt=urn:btih:E611AC8D80094862555BB853632482ABB9032222
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Udemy, Edwin Diaz | PHP MVC Framework CodeIgniter Tutorial for Beginners Project
 magnet:?xt=urn:btih:0FCB12BF42B14843C5C7A53560360096EEB3F8BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Udemy, Andrei Dumitrescu | Ethical Hacking and Network Security from Scratch 202
 ```bash
 magnet:?xt=urn:btih:3E9F9A4E5895F906EEADFF61295D1E52323FD75F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Udemy, TCM Security, Heath Adams | Practical Ethical Hacking - The Complete Cour
 magnet:?xt=urn:btih:7D6B487706FB3540A637611DBCE42404409DCC03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ Udemy, Andrei Dumitrescu | Linux Administration: Build 5 Hands-On Linux Projects
 ```bash
 magnet:?xt=urn:btih:0CE7806C18BDC3A98A02951CFC2C821F93CE6041
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ UralSOFT | Видеокурс Создание сборки Windows 7 UralSOFT (
 magnet:?xt=urn:btih:7B068E90BDFD6B5BE151B214722716C3F1571724
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ Udemy, Igor Ovchinnikov | Project Management With MS Project - Scheduling Master
 ```bash
 magnet:?xt=urn:btih:A243693D78240B7BEAFAFD079DDB16A4BEF56463
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ UralSOFT | Видеокурс Создание сборки Windows 8 UralSOFT (
 magnet:?xt=urn:btih:7EF5D593DD79AA6EF3635FC605E49BA7FC38A64E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ Udemy, Frank Ako | PHP 5 and 7 & SQL Queries with MySQL database hands on  (2021
 ```bash
 magnet:?xt=urn:btih:1E531CB9D693E519E45EA2D43446CF6848576423
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ Node.js или Node - это среда выполнения для выполн
 magnet:?xt=urn:btih:B8D7694DE2D14C31C825A54EDA1525B5A152D668
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ ProfIT | Степанцев Альберт | Вуду регулярных вы�
 magnet:?xt=urn:btih:5E2C65FF335078ACF89C04C48EB1764DE5978431
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ Laravel — это одно из лучших решений для PHP разр
 magnet:?xt=urn:btih:566AD6D1D72BFFABE2A3499F7DC57300CFD9F160
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ AreaWeb, Михаил Протасевич | PHP — из блондинки в 
 ```bash
 magnet:?xt=urn:btih:4B84677C0F63A07070708F374E55C09B04B4E76B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ Udemy, BackSpace Academy | Amazon Web Services (AWS) Certified - 4 Certification
 magnet:?xt=urn:btih:DE4FEEA4D78813B6E0CE21C356A1F7C2357ED3CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:DE4FEEA4D78813B6E0CE21C356A1F7C2357ED3CD
 ```bash
 magnet:?xt=urn:btih:17A8ED66FBC5E0032D5487501E4C207F9BC7ABC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +565,8 @@ Udemy, Hardware Academy  | The Complete Electronics Course 2020: Analog Hardware
 magnet:?xt=urn:btih:634BEE13165D2B0889BABEE7D280C7453B30DDA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:634BEE13165D2B0889BABEE7D280C7453B30DDA7
 ```bash
 magnet:?xt=urn:btih:1700B8662A700A77D34ABD837D41029547FB17F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ Udemy, Aviral Mishra | Complete Electronics Hardware Design Course 2021  (2021) 
 magnet:?xt=urn:btih:B9CC9C31024BFC1D2048E000E1A1F6A564EF9886
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ Udemy, Maher Haddad | VLAN on MikroTik with LABS (RouterOS & SwOS) (2020) PCRec 
 ```bash
 magnet:?xt=urn:btih:797CEA1142E281390380799096D632D679F5F546
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ Udemy, Ervis Trupja | The Complete Guide to ASP.NET Core (.NET 5) Web API  (2021
 magnet:?xt=urn:btih:D9BDD2A1F0A66733F2796C6F77E590722C19771A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:D9BDD2A1F0A66733F2796C6F77E590722C19771A
 ```bash
 magnet:?xt=urn:btih:AAA101ABFE3A649CBE81DDE2FB5B73EE3CE44708
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

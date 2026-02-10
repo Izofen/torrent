@@ -22,6 +22,8 @@ Quantum Void - Escaping Reality (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 magnet:?xt=urn:btih:CB9C35F24B62014A03C1DC0BD8C2E9349CEA25A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:CB9C35F24B62014A03C1DC0BD8C2E9349CEA25A2
 ```bash
 magnet:?xt=urn:btih:3EDAEC7C12B0E9199356DF384A5EEF9E466C408F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Saltatio Mortis - Erwachen (2004) [FLAC|Lossless|image + .cue] <Folk Metal>
 magnet:?xt=urn:btih:4539953F8E0BDA237279E4D86ACD3B2A369D7BC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ Graveyard of Souls - Todos los caminos llevan a ninguna parte (2016) [FLAC|Lossl
 magnet:?xt=urn:btih:267DCACC5D2A92BC4C8FD0AFC4248AA15E0534D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:267DCACC5D2A92BC4C8FD0AFC4248AA15E0534D8
 ```bash
 magnet:?xt=urn:btih:89A46E4F49AEAA35581EE16B32D42DFE89378C5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +162,8 @@ Graveyard of Souls - Infinitum Nihil (2015) [FLAC|Lossless|image + .cue] <Doom, 
 magnet:?xt=urn:btih:20AE6A53F02F472DFA93E967BB63C2FB02BC75EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:20AE6A53F02F472DFA93E967BB63C2FB02BC75EE
 ```bash
 magnet:?xt=urn:btih:D6FC4D54A2511D25EFB382F7B540348A7B135EF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:D6FC4D54A2511D25EFB382F7B540348A7B135EF2
 magnet:?xt=urn:btih:18D7E37DE25CF3BE09AAB455A1AF665DE34D4D9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ Timemator 2 v2.7.2 [En]
 ```bash
 magnet:?xt=urn:btih:951A7508A44552A3A13113079B7A0536AC3527F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:951A7508A44552A3A13113079B7A0536AC3527F1
 magnet:?xt=urn:btih:4DC6ECA165D70FCF98552043C567DCDA6B46E063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:4DC6ECA165D70FCF98552043C567DCDA6B46E063
 ```bash
 magnet:?xt=urn:btih:1657C27C1630EAED69D9C7FDC601D878A081D785
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ Faronics Power Save управляет энергопотреблением ко
 magnet:?xt=urn:btih:A74906F5A24EC4DA87CF2E1A53AE6297EBABBE4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:A74906F5A24EC4DA87CF2E1A53AE6297EBABBE4B
 ```bash
 magnet:?xt=urn:btih:78A278DDFC14959B3640F4804C673BCFD31BBA4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:78A278DDFC14959B3640F4804C673BCFD31BBA4C
 magnet:?xt=urn:btih:186C6914A2C58F8A50F70F079D4624759C613697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:186C6914A2C58F8A50F70F079D4624759C613697
 ```bash
 magnet:?xt=urn:btih:93D72A6833C86A86BFCE5AC225AC25F4A5C637AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ GrandTotal прекрасно работает в сочетании с TimeLog.
 magnet:?xt=urn:btih:D99363B662BAA05833E1BB5759AA937E2621938D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ Max Net Entertainment | Аэробика без одежды/Totally Nude Aerobi
 ```bash
 magnet:?xt=urn:btih:B507B8F2C2C1D07817CF29E376F31A030709B7E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:B507B8F2C2C1D07817CF29E376F31A030709B7E6
 ```bash
 magnet:?xt=urn:btih:1284113098BB573917CAA8BDC6A76A9C9A15B0FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ VA - Giorgio Moroder - On The Groove Train Volume 1 - 1975 - 1993 - Best Of (201
 magnet:?xt=urn:btih:56E1EDABBC0C98BAFF7FF0C2DAA36B222A0F80D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:56E1EDABBC0C98BAFF7FF0C2DAA36B222A0F80D2
 ```bash
 magnet:?xt=urn:btih:00AA2437999B2B7276551FFE91B9959A1AF9B3FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:00AA2437999B2B7276551FFE91B9959A1AF9B3FA
 magnet:?xt=urn:btih:91E7376198D9CF2624EDAAECE10D8666FA5D5B6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ FurMark - полезная утилита, позволяющая проводи
 ```bash
 magnet:?xt=urn:btih:F9DEC04DC75B68614F6043EE89E88CB6824D1679
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ Batman: Arkham Asylum (2010) [Ru/En] (1.1/dlc) Repack R.G. Catalyst [Game of the
 magnet:?xt=urn:btih:87D266F9600DED9921F977A35632172608B2EAD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:87D266F9600DED9921F977A35632172608B2EAD9
 ```bash
 magnet:?xt=urn:btih:D4A5A6A95DDCE6B8D63E565C55BD81F1092A94C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:D4A5A6A95DDCE6B8D63E565C55BD81F1092A94C4
 magnet:?xt=urn:btih:FBB6A852CE2201DA1548813A055732FB11FE9747
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:FBB6A852CE2201DA1548813A055732FB11FE9747
 ```bash
 magnet:?xt=urn:btih:D29788A0070CFE50496CCA7E3F0924E1F95BA429
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

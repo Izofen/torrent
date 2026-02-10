@@ -1,28 +1,3 @@
-###  Публикация: 1602086   (1046259) от 03.01.2023
-
-Ночь перед Рождеством / Nuit de Noel (1908) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несмотря на название, это вовсе не сказочная рождественская история. А вовсе даже наоборот.
-Молодая женщина провожает своего мужа-моряка в плавание, прямо под самое рождество. Она так расстроена, что даже плачет. Но жизнь продолжается, слезы высохли. Она везет зерно на мельницу, там на нее обращает внимание мельник. Потом они встречаются в церкви на службе, потом (   Читать дальше...   )Производство: Франция, Pathé FrèresЖанр: драма, немое кино, короткометражныйРежиссер: Нет сведенийАктеры: Нет сведенийПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:09:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:842C3E431BF7A839DC8C4A0AA26668C19E443A75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602076   (1046283) от 03.01.2023
 
 Чарли Чейз. Дочь смотрителя / The Caretaker's Daughter (1925) WEBRip [PR]
@@ -43,6 +18,8 @@ magnet:?xt=urn:btih:842C3E431BF7A839DC8C4A0AA26668C19E443A75
 ```bash
 magnet:?xt=urn:btih:E94A022DD7F2924587D72FD02BA64757C8A0D7F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +45,8 @@ magnet:?xt=urn:btih:E94A022DD7F2924587D72FD02BA64757C8A0D7F7
 magnet:?xt=urn:btih:3A1933ED55062ECCB3E31A63BE3A10DA6882FF9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +70,8 @@ magnet:?xt=urn:btih:3A1933ED55062ECCB3E31A63BE3A10DA6882FF9F
 ```bash
 magnet:?xt=urn:btih:E1A3DDCE7E1EB5D1CB3101F52B83913BA0077ED0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +97,8 @@ magnet:?xt=urn:btih:E1A3DDCE7E1EB5D1CB3101F52B83913BA0077ED0
 magnet:?xt=urn:btih:10005866A417DED02D4757BA51DA75DD13990AB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +122,8 @@ magnet:?xt=urn:btih:10005866A417DED02D4757BA51DA75DD13990AB7
 ```bash
 magnet:?xt=urn:btih:8AFB8C4195560E7791A71373D4B821283FF97848
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +149,8 @@ magnet:?xt=urn:btih:8AFB8C4195560E7791A71373D4B821283FF97848
 magnet:?xt=urn:btih:C970E04305990CD66249B405055D8EDB9E5794BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +174,8 @@ magnet:?xt=urn:btih:C970E04305990CD66249B405055D8EDB9E5794BA
 ```bash
 magnet:?xt=urn:btih:CCD503C652875EB4262B6E73DCF4420802B1ED00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +201,8 @@ magnet:?xt=urn:btih:CCD503C652875EB4262B6E73DCF4420802B1ED00
 magnet:?xt=urn:btih:89A59E4BEE73031757F62DB1BDECF9FB65C24653
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +226,8 @@ magnet:?xt=urn:btih:89A59E4BEE73031757F62DB1BDECF9FB65C24653
 ```bash
 magnet:?xt=urn:btih:B1D0EF30530FE8138825524FEBE3A6A09757B2A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +253,8 @@ magnet:?xt=urn:btih:B1D0EF30530FE8138825524FEBE3A6A09757B2A4
 magnet:?xt=urn:btih:E17222860F1568797F4008FCF3A6F8A510DFA89B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +278,8 @@ magnet:?xt=urn:btih:E17222860F1568797F4008FCF3A6F8A510DFA89B
 ```bash
 magnet:?xt=urn:btih:72B69B72C0DE5232C3D0EAF4178AC70347974961
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +305,8 @@ magnet:?xt=urn:btih:72B69B72C0DE5232C3D0EAF4178AC70347974961
 magnet:?xt=urn:btih:B3B71EBEAC174ABF4DE7E77D96CB264538A604CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +330,8 @@ magnet:?xt=urn:btih:B3B71EBEAC174ABF4DE7E77D96CB264538A604CB
 ```bash
 magnet:?xt=urn:btih:0FA56D6A585F5B667782A984AB9824E4B6EC813D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +357,8 @@ magnet:?xt=urn:btih:0FA56D6A585F5B667782A984AB9824E4B6EC813D
 magnet:?xt=urn:btih:E84D0B76E9F9F2D1165D46ABA9DBF9FCA390AC55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +382,8 @@ magnet:?xt=urn:btih:E84D0B76E9F9F2D1165D46ABA9DBF9FCA390AC55
 ```bash
 magnet:?xt=urn:btih:F4ABB072A70FADFED40BCEEAEB42ED984E9F1419
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +410,8 @@ magnet:?xt=urn:btih:F4ABB072A70FADFED40BCEEAEB42ED984E9F1419
 magnet:?xt=urn:btih:E405813EBFB421362FE93DF23A7063CD82A60789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +435,8 @@ magnet:?xt=urn:btih:E405813EBFB421362FE93DF23A7063CD82A60789
 ```bash
 magnet:?xt=urn:btih:2A66E5709B924EB299E2DEC8A221660C248E23B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +462,8 @@ magnet:?xt=urn:btih:2A66E5709B924EB299E2DEC8A221660C248E23B0
 magnet:?xt=urn:btih:9ABD4E3D2682A84CCE9AA41BC4C7469CAE28F4AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +487,8 @@ magnet:?xt=urn:btih:9ABD4E3D2682A84CCE9AA41BC4C7469CAE28F4AE
 ```bash
 magnet:?xt=urn:btih:42007D60D7BFD3990EBE4E9B399C6EEAAC11EE4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +514,8 @@ magnet:?xt=urn:btih:42007D60D7BFD3990EBE4E9B399C6EEAAC11EE4C
 magnet:?xt=urn:btih:D9FEEEAB96895D190DC4FC32EBD92A27B1948D78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +539,8 @@ magnet:?xt=urn:btih:D9FEEEAB96895D190DC4FC32EBD92A27B1948D78
 ```bash
 magnet:?xt=urn:btih:F9FBA5558CAC39484CFE6DC2F311EF7B12F8DFD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +566,8 @@ magnet:?xt=urn:btih:F9FBA5558CAC39484CFE6DC2F311EF7B12F8DFD8
 magnet:?xt=urn:btih:7E909A297B842AD52D57404C298117ADB04F6F09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +591,8 @@ magnet:?xt=urn:btih:7E909A297B842AD52D57404C298117ADB04F6F09
 ```bash
 magnet:?xt=urn:btih:1BAC6760419C7E65C9D4624CEBB0C078C8BA661F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +618,8 @@ magnet:?xt=urn:btih:1BAC6760419C7E65C9D4624CEBB0C078C8BA661F
 magnet:?xt=urn:btih:4F2321D8A59376BEC44738D5796AA5D7AB41CC0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +643,34 @@ magnet:?xt=urn:btih:4F2321D8A59376BEC44738D5796AA5D7AB41CC0F
 ```bash
 magnet:?xt=urn:btih:B621706FC4D14731C280063E75D9820AA5F1CE60
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842372   (1048738) от 18.12.2025
+
+Уютные норки / Pelisky (1999) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комедия о двух соседствующих семьях, главы которых не сходятся в политических взглядах. Наступает новый 1968 год. Молодежь грезит о западном образе жизни, слушает рок-н-ролл и смотрит на проекторе французское кино с Жаном Маре. Тем временем, взрослых не отпускают старые обиды. Националист и ветеран сопротивления собачится с соседом, военным коммунистом, о том, кто (   Читать дальше...   )Производство: Чехия / Ceská Televize, Total HelpArt T.H.A.Жанр: драма, комедияРежиссер: Ян ГржебейкАктеры: Майкл Беран, Мирослав Донутил, Симона Сташова, Кристина Новакова, Иржи Кодет, Ева Голубова, Эмилия Вашариова, Болек Поливка, Ярослав Душек, Стелла ЗазворковаПеревод: профессиональный многоголосый (MVO Eurochannel), любительский одноголосыйЯзык озвучки: русский, чешскийСубтитры: русские, английскиеПродолжительность: 02:00:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFE75BE7F43B04D32E38D4EF847905834E07214B
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ VA - Визбор 85 (К 85-летию Юрия Визбора, Tribute) (2019) 
 ```bash
 magnet:?xt=urn:btih:B41B2EB2D35F6595538219521C8D761C6A195C2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - Tantric ASMR Bliss: Sensual Voice of Passion (Seductive Edition) (2024) [FL
 magnet:?xt=urn:btih:A576EED91DF420EA254D7527A8B732DE5057553D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Linkin Park - A Thousand Suns (2010) U.S., 525480-2, Best Buy Exclusive [FLAC|Lo
 magnet:?xt=urn:btih:8233FA688469DECE7980DC4178F3AFDC82011D3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:8233FA688469DECE7980DC4178F3AFDC82011D3A
 ```bash
 magnet:?xt=urn:btih:CCF8D315915C6F18B45E805BE9006E375FDD2BDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:CCF8D315915C6F18B45E805BE9006E375FDD2BDD
 magnet:?xt=urn:btih:7083261E61A90C7EED79CDE0254859A7F720C675
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:7083261E61A90C7EED79CDE0254859A7F720C675
 ```bash
 magnet:?xt=urn:btih:826944EA29B9D5333D7017D9807685CDA42B0036
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:826944EA29B9D5333D7017D9807685CDA42B0036
 magnet:?xt=urn:btih:7C88E9796B75A92CC8D41620D406B62CD3CDE340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ VA - Soothing Sounds: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 ```bash
 magnet:?xt=urn:btih:64A6DE55E4DAE70D5145A0067C98543F35B2392D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ The Pointer Sisters / The New Cast Recording - Highlights From "Ain't Misbehavin
 magnet:?xt=urn:btih:E2C93070B3256C4332156ED67A32DD674CC3531C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ Linkin Park - Meteora (2003) Brazil, 936248462-2 [FLAC|Lossless|image + .cue] <A
 magnet:?xt=urn:btih:69922A3418F9F06E9008F5E3C929A319E54D9419
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ magnet:?xt=urn:btih:69922A3418F9F06E9008F5E3C929A319E54D9419
 magnet:?xt=urn:btih:2D333F4A18F746FC13C3263208AD139266597276
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:2D333F4A18F746FC13C3263208AD139266597276
 ```bash
 magnet:?xt=urn:btih:DB1E7A0D9DB7ACBCC4831077C68B765ED2055FAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +381,8 @@ Linkin Park - Meteora (2003) China, 7-88018-748-0 [FLAC|Lossless|image + .cue] <
 magnet:?xt=urn:btih:EA0C7F2B46FF8766CD065A3EDD00C01FC77F18BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:EA0C7F2B46FF8766CD065A3EDD00C01FC77F18BD
 ```bash
 magnet:?xt=urn:btih:63BB53B9DDF37C1E6846FCD1FC8DE5941CEBFB95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ VA - The Best Of Suanda Base 2024 (2024) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:B753DC7E0A87B56289571B98EC77F825A20BBFCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ magnet:?xt=urn:btih:B753DC7E0A87B56289571B98EC77F825A20BBFCB
 ```bash
 magnet:?xt=urn:btih:F0920E2C6364BC418D726E4FA4870980C262196E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +491,8 @@ magnet:?xt=urn:btih:F0920E2C6364BC418D726E4FA4870980C262196E
 magnet:?xt=urn:btih:DB24A62414989DFBE2107906977E68A288AFFF18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +520,8 @@ Steve Lawrence & Eydie Gorme - The Best of Steve & Eydie (1990) CD, Compilation 
 magnet:?xt=urn:btih:406A75F777970812DB5C338994C03CC41479D5B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +545,8 @@ magnet:?xt=urn:btih:406A75F777970812DB5C338994C03CC41479D5B0
 ```bash
 magnet:?xt=urn:btih:A4885A9B5E0BE713E6FC186690026CA3262C97A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ magnet:?xt=urn:btih:A4885A9B5E0BE713E6FC186690026CA3262C97A4
 magnet:?xt=urn:btih:C3C44B92921850CB1D7C7C1C8C9FE3F5BFD4849C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ Beyblade Burst Gachi | Beyblade Burst GT | Бейблэйд Взрыв — Сх�
 magnet:?xt=urn:btih:B0DF6B27AE5EB035114B8845773E0E591EBCB2EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ Bug Fables: The Everlasting Sapling – это юмористическая ро
 ```bash
 magnet:?xt=urn:btih:6BA8E999DE8DE5381C701ADAC6E20B7B05576C7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +653,8 @@ VA - Christmas Rock Santa's Secret (2024) [MP3|320 Kbps] <Rock, Pop>
 magnet:?xt=urn:btih:7E8050F4280E3F92715F25451043B238FBC43E5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ magnet:?xt=urn:btih:7E8050F4280E3F92715F25451043B238FBC43E5D
 magnet:?xt=urn:btih:FE6350FDE1FB06F69D8D19F7281FCBD004564A8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +704,8 @@ Qalculate! - это многоцелевой кросс-платформенны
 ```bash
 magnet:?xt=urn:btih:011A04AB12121B05908F22EECCE617E52A271782
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

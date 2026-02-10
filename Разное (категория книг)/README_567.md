@@ -1,3 +1,29 @@
+###  Публикация: 1378031   (848414) от 24.04.2020
+
+С. И. Никишов | Ленин о религии и церкви (1969) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848414.jpg" />
+</div>
+
+
+###  Подробнее
+
+В теоретическом наследии В. И. Ленина не только работы, касающиеся религии, но и все важнейшие философские труды имеют ярко выраженную атеистическую направленность. Они — научная основа политики Коммунистической партии и Советского государства в отношении религии и церкви и в своей совокупности представляют глубоко последовательное учение о путях преодоления религиозных (   Читать дальше...   )Жанр: История, политология, публицистика, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CDADCD0F4C2F71259F1C6C136FD82123C671A8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378005   (848427) от 24.04.2020
 
 Архимандрит Андрей (Конанос) | Хочу создать семью. Беседы о семейной жизни (2019) [FB2, EPUB]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:CC2588EDAA0AC3A0ABFDD3B94235935C129531ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:CC2588EDAA0AC3A0ABFDD3B94235935C129531ED
 ```bash
 magnet:?xt=urn:btih:4E9C934F41B74147889DED69E689BA099BEA389A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +102,8 @@ magnet:?xt=urn:btih:4E9C934F41B74147889DED69E689BA099BEA389A
 magnet:?xt=urn:btih:7254A884843411F2BDF6CFDB995F0944772B8251
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:7254A884843411F2BDF6CFDB995F0944772B8251
 ```bash
 magnet:?xt=urn:btih:78E381041C16FDA5432F6C7FDB81F4A451E269A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:78E381041C16FDA5432F6C7FDB81F4A451E269A9
 magnet:?xt=urn:btih:7985B52C3EED8EEA85ECAC2C30F5AA02469C2D1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:7985B52C3EED8EEA85ECAC2C30F5AA02469C2D1D
 ```bash
 magnet:?xt=urn:btih:B8547D6F533AFDB9CE0BAB5DA383A1F3E857C254
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:B8547D6F533AFDB9CE0BAB5DA383A1F3E857C254
 magnet:?xt=urn:btih:42200BBBD9698BC743B752409411E5012A2E7430
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:42200BBBD9698BC743B752409411E5012A2E7430
 ```bash
 magnet:?xt=urn:btih:EF3AC08E423A145163D025B5FF82D8ACB127D867
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:EF3AC08E423A145163D025B5FF82D8ACB127D867
 magnet:?xt=urn:btih:20E74A8036AC05AC2B4B9E5F66106A3B92265B4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:20E74A8036AC05AC2B4B9E5F66106A3B92265B4D
 ```bash
 magnet:?xt=urn:btih:2E88BBA6E2C68DF6BD4AD1E16EBFA20EFD0D27EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:2E88BBA6E2C68DF6BD4AD1E16EBFA20EFD0D27EC
 magnet:?xt=urn:btih:B631E1946787202F0F09B4E9685D90FA5F22CF32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:B631E1946787202F0F09B4E9685D90FA5F22CF32
 magnet:?xt=urn:btih:49EE1109333A0B39E10D6ADA7173946A1F6C6F6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:49EE1109333A0B39E10D6ADA7173946A1F6C6F6E
 ```bash
 magnet:?xt=urn:btih:1D187005C05E47F410A6BFEB7A42779026D880CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:1D187005C05E47F410A6BFEB7A42779026D880CF
 magnet:?xt=urn:btih:6CB8B8D8F5AB2F84644CF2E8722B16B0952251B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:6CB8B8D8F5AB2F84644CF2E8722B16B0952251B1
 ```bash
 magnet:?xt=urn:btih:71B7E0B0A0D69F653AD281C3A0227B30E201AB66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:71B7E0B0A0D69F653AD281C3A0227B30E201AB66
 ```bash
 magnet:?xt=urn:btih:11B5BD192B0C7D3232778CD951FC1C8EC0F4DD12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:11B5BD192B0C7D3232778CD951FC1C8EC0F4DD12
 magnet:?xt=urn:btih:78615934D1860ADF68FB7A1C7AF964F8EB78035C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:78615934D1860ADF68FB7A1C7AF964F8EB78035C
 magnet:?xt=urn:btih:418228802471E646A794BD0E6CF0F19C46DE4EE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:418228802471E646A794BD0E6CF0F19C46DE4EE0
 ```bash
 magnet:?xt=urn:btih:CE188A7B66C3581A80E89C2C6A51E121D3B940E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:CE188A7B66C3581A80E89C2C6A51E121D3B940E7
 magnet:?xt=urn:btih:D2334B9BDDA427991154178DC2F08375FDF167A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:D2334B9BDDA427991154178DC2F08375FDF167A1
 ```bash
 magnet:?xt=urn:btih:883BE85BE37D25E998491F2D04AA825EC54355E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:883BE85BE37D25E998491F2D04AA825EC54355E5
 magnet:?xt=urn:btih:02FA838EB18A13DA1709875462C0F6A92C20398D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:02FA838EB18A13DA1709875462C0F6A92C20398D
 ```bash
 magnet:?xt=urn:btih:E24E522AC672CF27709C6C530B3CE85736CDE4EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:E24E522AC672CF27709C6C530B3CE85736CDE4EE
 magnet:?xt=urn:btih:9CD728CDA204F2643B4CCB1A61D22440101E5480
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,29 +685,7 @@ magnet:?xt=urn:btih:9CD728CDA204F2643B4CCB1A61D22440101E5480
 magnet:?xt=urn:btih:655F3F709AC38E0C0E9A7F59A49B777634F46003
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377991   (849902) от 23.04.2020
-
-Эван Рэтлифф | Криминальный гений (2019) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что связывает талантливого программиста и создателя открытой системы шифрования TrueCrypt с главой наркокартеля, осуществляющего свою деятельность на просторах даркнета? Пол ле Ру использует свои навыки, чтобы годами укрываться от глаз закона, лишь расширяя зону своего влияния. К тому моменту, как он согласился сотрудничать с Управлением по борьбе с наркотиками, (   Читать дальше...   )Жанр: Биографии и мемуары, ПублицистикаПеревод: Александр МурашовФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06034E7D7F44C2AE944450AECB9EEEA846ADE39D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

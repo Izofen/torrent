@@ -22,6 +22,8 @@ Cruachan - Nine Years of Blood (2018) [FLAC|Lossless|image + .cue] <Irish Folk, 
 magnet:?xt=urn:btih:433C29453F6735C221D908E5F787C6264E6E8FBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Duplicate Photos Sweeper - очень простой и легкий в испо
 ```bash
 magnet:?xt=urn:btih:78BD51930D3AA09E77CA6517FABAE5A902B810E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ CD1:
 magnet:?xt=urn:btih:76423E77E97CAA2B44D8085299CE73001CE50ACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ IconJar 2.7 [En]
 magnet:?xt=urn:btih:27B64FC62D26549CEE0AE2BBDEAD5A777897C058
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 ```bash
 magnet:?xt=urn:btih:F1B8879664D0E60432A5EA03909C0F7D8311AA69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ Nekomata - ...And Then, The Abusement Park Left Town (2022) [FLAC|Lossless|WEB-D
 magnet:?xt=urn:btih:A1217496DFE40A09B97C84B19D42B8D0C1132A43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ My Favorites - невероятно удобное приложение, кот�
 magnet:?xt=urn:btih:962BEAA813B8269924BB8277F9FDAD19AB2E7975
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:962BEAA813B8269924BB8277F9FDAD19AB2E7975
 ```bash
 magnet:?xt=urn:btih:EDEF4A61B0F91E58AFF481724D9C8B08BB71E852
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ Duplicate Files Sweeper помогает вам тщательно сканир�
 magnet:?xt=urn:btih:7DDE7C70E7A875AE0340E0CF58C5E57774E1F2B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ Call of Duty: Modern Warfare 3 (2011) [Ru/En] (2.8.0.4/1.0.111.0/dlc) Rip X-NET
 magnet:?xt=urn:btih:250C9D4B0F2A43CC0AA5072D627FF236E771A949
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ Unlocker - небольшая утилита, которая позволяет 
 ```bash
 magnet:?xt=urn:btih:4905AB06E246F2892CB11DB834FC1713AF95AB9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ Anat Fort Trio - Colour (2019) Sunnyside [FLAC|Lossless|tracks + .cue] <Post-Bop
 magnet:?xt=urn:btih:BB7F848D0DE8EE23D0F4EE547FDFCC5B505A3DD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ Sumatra PDF — мощная, небольшая программа с прос�
 magnet:?xt=urn:btih:A9F451378A91A901FB16A753245D37CA016FB8A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:A9F451378A91A901FB16A753245D37CA016FB8A8
 ```bash
 magnet:?xt=urn:btih:107E5DD773FAF4A9FAFE20153F6D839AF5EAD0E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ Sylvaine - Nova (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock, Post-Black Meta
 magnet:?xt=urn:btih:C3317E8743B9507F98C269142D46DAFF89007E36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:C3317E8743B9507F98C269142D46DAFF89007E36
 magnet:?xt=urn:btih:85071361FA7968F6DB084AFFBFDD6E66F631E4AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:2A94912294B72B9F7CE2F4CDF2C71BFAE6BF91C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ Persuader - Necromancy (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Pow
 magnet:?xt=urn:btih:1661FF900D31CE3E8BF24731F33ECF2A1B2E4012
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ ScAnDroid Experiment's - Mental Solubility (2023) авторская разда�
 ```bash
 magnet:?xt=urn:btih:84560FB2ED5FD1D99F2E1DA2302E4822C0DF2E46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +543,8 @@ ru_windows_10_business_editions_version_20h2_x64_dvd_979d1230
 magnet:?xt=urn:btih:F3C2AF213DAC2BE6685FF61BF16740EDA7B9602E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ PALLEA - Парусник Маака (2022) [FLAC|Lossless|WEB-DL|tracks] <Screa
 magnet:?xt=urn:btih:31D1431CFBF2BA95AAFB62471175943C86368309
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ magnet:?xt=urn:btih:31D1431CFBF2BA95AAFB62471175943C86368309
 ```bash
 magnet:?xt=urn:btih:906127DC4E9C3DE7DFB05D504152F948B8C1D02E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +627,8 @@ VA - Surf Rock Compilation Part 34 (2023) [MP3|320 Kbps] <Surf Rock>
 magnet:?xt=urn:btih:96E9E1141988A45A54F719AC6BB43E79B99C4EA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +655,8 @@ Kurnalcool - The Final Tazz (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Speed M
 ```bash
 magnet:?xt=urn:btih:6E00831854849BFCEBBEAFC14D1FF6858C46194C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +685,8 @@ VA - Ambient Ethereal Dreams (2023) [MP3|320 Kbps] <Ambient, Downtempo, Relax>
 magnet:?xt=urn:btih:11876EDF5AA56B9740E9526D2FE240C3463C7C7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +710,8 @@ magnet:?xt=urn:btih:11876EDF5AA56B9740E9526D2FE240C3463C7C7C
 ```bash
 magnet:?xt=urn:btih:87CABDAB0C6A73B8A35D81731B8312DDDB4ED13C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

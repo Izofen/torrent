@@ -19,6 +19,8 @@ Inertial Drift (2020) [Ru/Multi] (1.0) License SKiDROW
 magnet:?xt=urn:btih:642F0DA19F4CCEB1A7281FF56C0E20101DDBDCD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Father's Day (2022) [Ru/En] (1.6.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F297DB1FC17F732EE2465FC216DE936FA181B77D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Yohane the Parhelion - Blaze in the Deepblue - это 2D-метроидвани�
 magnet:?xt=urn:btih:95EE8414075205EEDCFB586F602318956536CE3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Euro Truck Simulator 2 дарит вам опыт управления самы�
 ```bash
 magnet:?xt=urn:btih:57148B3799CC638D28572ECE3A1C5508794F7402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BioShock 2 идеально сочетает взрывную динамику �
 magnet:?xt=urn:btih:CDF5039B898AF0268A9275F4D6B8D5FAC4BF5BD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Stary (2018) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:32B43D86271F01403257DDCC6BF8F8C7C3C6D048
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Mystery Case Files 26: A Crime in Reflection (2023) [En] (1.0) Unofficial [Colle
 magnet:?xt=urn:btih:DABD852B30E71CFCB8F36B4625EFBA0E86FE3E15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Grim Facade 10: The Message / За гранью жестокости 10: Пис�
 ```bash
 magnet:?xt=urn:btih:3D5F664F3EFA364F17E5DF1CABD07E7FE544E486
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Shadwen (2016) [Ru/Multi] (1.0.0.1356/dlc) Repack R.G. Механики
 magnet:?xt=urn:btih:99773903FA04D902C843C48D31DFB27A021426EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) License GOG [Episodes 1-3
 ```bash
 magnet:?xt=urn:btih:7D808470C123E70B48CA68491EA5AEC9E2E43151
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Mass Effect Dilogy / Mass Effect Дилогия [Ru/En] (RePack) 2008 - 2010 | R
 magnet:?xt=urn:btih:6AF81BB2F3593C948C93EA554C79DF62E53A70E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Haunted Manor 5: Halloween's Uninvited Guest / Призрачная усадьб
 ```bash
 magnet:?xt=urn:btih:C606F52D5B98C2574AE18F8DA0B09FA454975FD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ The Legacy 3: The Tree of Might / Наследие 3: Дерево Силы (201
 magnet:?xt=urn:btih:C4E405AC815E80ADE1FB4555DD13AF010BF9052E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Amnesia: The Dark Descent / Амнезия: Призрак прошлого (201
 ```bash
 magnet:?xt=urn:btih:F8DE54F5CDA097992E93FE8191C2130A4630122C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Vermillion Watch 5: London Howling (2018) [En] (1.0) Unofficial [Collector's Edi
 magnet:?xt=urn:btih:5D44AA0E424D199BCBB1A1DE80C9D7037240AB0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Haunted Hotel 17: Beyond the Page (2018) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:11D82C0C2282797F69786A2BD0C8CD041099BCA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Trine 5: A Clockwork Conspiracy (2023) [Ru/Multi] (1.2a) License GOG
 magnet:?xt=urn:btih:CAC81A33C572860C07897D59BBC02423829E9EBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Demon Hunter 5: Ascendance (2018) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:0DFB0A342804AFDFF35EF9029F8A2ECFA5F34335
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ Terminal Velocity – это выполненный в научно-фантас
 magnet:?xt=urn:btih:D14594D5E330400A3D7C45103E5FC217C1441527
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ Mystery Tales 2: The Twilight World / Загадочные истории 2. С�
 ```bash
 magnet:?xt=urn:btih:5F3D5718637BBAE2D43D5AAD856E7D91DB1E485B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ The Christmas Spirit 3: Grimm Tales / Дух Рождества 3: Сказки 
 magnet:?xt=urn:btih:A758043E88BCEDA97DD50A217D84C6BCDE93CD82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ Fairy Godmother Stories: Cinderella / Сказки Феи Крестной: Зо
 ```bash
 magnet:?xt=urn:btih:F96F4333B122E37BB2BF9B5268C1DCA47CFB589A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ Haunted Hotel 16: Lost Dreams / Проклятый отель 16: Несбывш
 magnet:?xt=urn:btih:ED7430C66D80F92694561C7347377AD89B3E2972
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ FIRSTDATE: LATE TO DATE — это романтически-комедийная
 ```bash
 magnet:?xt=urn:btih:A8DE198637B458215D945D0AF1B930F63079DBB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ Bzzzt - это захватывающий высокоточный платфо�
 magnet:?xt=urn:btih:9D248AD61ECF479A790305F3C89368491F1019A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Barton Lynch Pro Surfing 2022 – спортивный симулятор, пр�
 ```bash
 magnet:?xt=urn:btih:3F0170E84FD7415B3C92D5B2C61017145FA71E10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

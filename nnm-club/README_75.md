@@ -21,6 +21,8 @@ Ravager - метал-группа из Германии, г. Вальсроде,
 magnet:?xt=urn:btih:7A1C5C4D5782ED6180D0FEFF0B2DA2B289BFC3E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Paradise Lost - Ascension (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Deat
 ```bash
 magnet:?xt=urn:btih:F2B470FD597F867B0E01AE917C5EC28EFA7BFC15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ VA - Magic Deep-House, Vol. 3 (2025) [MP3|320 Kbps] <House, Deep House, Dance, C
 magnet:?xt=urn:btih:EAE545BE7A2BD308436A7F2E3338D531C5E88EF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:EAE545BE7A2BD308436A7F2E3338D531C5E88EF4
 ```bash
 magnet:?xt=urn:btih:E1C75DDB0296291D0D93C112BF2524962F78F3D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Aiseesoft Screen Recorder 3.1.36 [Multi/Ru]
 magnet:?xt=urn:btih:F1B78B7AB852C5616BEBA74A5A3C6374FE01FC45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Chaos Vantage 3.0.1 beta [En]
 ```bash
 magnet:?xt=urn:btih:78AF3284E31972CDA0CDB7824F142488607E2BF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:78AF3284E31972CDA0CDB7824F142488607E2BF4
 ```bash
 magnet:?xt=urn:btih:B3F2A638B5EAA5B490988E85114B4271D55D14DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ Novembers Doom - американская дум/дэт-метал группа 
 magnet:?xt=urn:btih:95159EB1D1E266E841D465BC78BFE2EAF3565E05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:95159EB1D1E266E841D465BC78BFE2EAF3565E05
 magnet:?xt=urn:btih:7E27594D39314719877D6AB0147EC522E9159C31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:7E27594D39314719877D6AB0147EC522E9159C31
 ```bash
 magnet:?xt=urn:btih:C84D56404008D7E1298520F898CE8F0A949EFFB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:C84D56404008D7E1298520F898CE8F0A949EFFB8
 magnet:?xt=urn:btih:14F3BA97D55998B2FF67F9B161C3FFC8786FC21C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:14F3BA97D55998B2FF67F9B161C3FFC8786FC21C
 ```bash
 magnet:?xt=urn:btih:191346E8C502140A3130E97882D9110015015F54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ Romantic Dreams - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Disco, Ital
 magnet:?xt=urn:btih:E1F8CDE6E794897F0DC720E0DB097C7FA3342509
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:E1F8CDE6E794897F0DC720E0DB097C7FA3342509
 ```bash
 magnet:?xt=urn:btih:17BF572098D7F7E72CEEF721B00380B5E94F97FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:17BF572098D7F7E72CEEF721B00380B5E94F97FD
 magnet:?xt=urn:btih:C62FFB43DA6D45A17A4603102D6438A448FFF728
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:C62FFB43DA6D45A17A4603102D6438A448FFF728
 ```bash
 magnet:?xt=urn:btih:6E27611F8BF4F2E792CAB68273FD3640E536D9EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:6E27611F8BF4F2E792CAB68273FD3640E536D9EE
 magnet:?xt=urn:btih:FAFF16A5A140752DA6E1731BDB50B41858216824
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:FAFF16A5A140752DA6E1731BDB50B41858216824
 magnet:?xt=urn:btih:1D46B18938FA8F3B4A76B3943A8A613ACD8A053B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:1D46B18938FA8F3B4A76B3943A8A613ACD8A053B
 ```bash
 magnet:?xt=urn:btih:10928850F8AD670A79F18B8DD44C9F35C6839E96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ I Prevail — американская метал-группа, созданна
 magnet:?xt=urn:btih:6DB6C047AEBE1A3FEA74794078084A9B767B0ECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ Xezzo - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:899C118CA0E92EEAA7B21F9886256AC6E8B144E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ VA - Best of Vocal Trance 2025 (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
 magnet:?xt=urn:btih:903FE583C0F6D7172FA6A281968B7DC44FE54AF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ magnet:?xt=urn:btih:903FE583C0F6D7172FA6A281968B7DC44FE54AF8
 magnet:?xt=urn:btih:22D0389DD8CD32775180C89A3A5EC4026AD76584
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ magnet:?xt=urn:btih:22D0389DD8CD32775180C89A3A5EC4026AD76584
 ```bash
 magnet:?xt=urn:btih:B859D63089478207A6AA746FF382110669645AB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ magnet:?xt=urn:btih:B859D63089478207A6AA746FF382110669645AB7
 magnet:?xt=urn:btih:B1ECE60B5C25C42FD839637E60E56EE70281A03C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:B1ECE60B5C25C42FD839637E60E56EE70281A03C
 ```bash
 magnet:?xt=urn:btih:6DC9DF0FCFB9EFD7D805F0BFAA933225FCB72021
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ The End of the Sun - это мистическая приключенческа�
 magnet:?xt=urn:btih:B12B74FA8127A69C9B5481CE166C48BC9EDC4457
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ PPEAK - это совместная игра о восхождении, где �
 ```bash
 magnet:?xt=urn:btih:DD9EFC73E2818AC17E3DC742D72BB00E963E1028
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Estranged: Act I / Estranged: The Departure (2014, 2020) [Ru/Multi] (Build 16907
 magnet:?xt=urn:btih:0E568C9670C5154C2367A0567B4096FAE89F9646
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Dread Flats (2025) [Ru/Multi] (2.10.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2A40EE9B5122B7AA05C06FB43FB38F50CBD15642
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Runway 66 (2025) [Ru/Multi] (build 19368702) Repack FitGirl
 magnet:?xt=urn:btih:BB22F8CBCBDF11FC17A49F61F58463B7CE5B29C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Empyrion - Galactic Survival – это приключение с выживан
 ```bash
 magnet:?xt=urn:btih:3C483885B0D341FF8BA3388FF56F19ACAE5CFDEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Runway 66 (2025) [Ru/Multi] (build 19368702) Repack seleZen
 magnet:?xt=urn:btih:9358CFA95349D06F52FC726548B7EB9F55AF880A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Somerville (2022) [Ru/Multi] (Patch 4 Build 11993672) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C9CF747852D3042D6673275A2ABE27955D675758
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Senua's Saga: Hellblade 2 - продолжение ролевого экшена
 magnet:?xt=urn:btih:4CB4C0ABE65D3EC7BE10B0D924F7EADAC084D103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Darkest Files (2025) [Multi] (1.0.8.1) License GOG
 ```bash
 magnet:?xt=urn:btih:F73D47797C23E4AFA04241757C03E5FF29F84E0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Boxville 2 от Triomatica Games - это следующая часть прик
 magnet:?xt=urn:btih:AABF980F65B9A0AF6BC8F1B63D1384734619ED6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Disaster Report 4: Summer Memories (2020) [Multi] (1.05(a)/dlc) License GOG [Dig
 ```bash
 magnet:?xt=urn:btih:5F1D7D9A526DF707662E28DC36C85042B4E9DAB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Senua's Saga: Hellblade 2 - продолжение ролевого экшена
 magnet:?xt=urn:btih:6960CB74FB8D0E06B9938A06E74421DEB47C53EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Night Loops (2023) [Ru/Multi] (1.4.1) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:3DDA1A7524931A8911F724206EA5FE4833B24FB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The End of the Sun - это мистическая приключенческа�
 magnet:?xt=urn:btih:D6E2B9D56001692E16D547D3DC781EA989BA44AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Labyrinth of the Demon King - это вызывающе сложный данж�
 ```bash
 magnet:?xt=urn:btih:268AB90BA949736E90595E843D648A2064125BA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.08.12.09.11/dlc) Repack Wan
 magnet:?xt=urn:btih:A0C560C51B13BE5023BF5E2E0D254C6E5B318C5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ BROK the InvestiGator (2022) [Ru/Multi] (1.5.3/dlc) Repack Let'sРlay [Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:D80E9B4663D472151823D2BA95B30FD27E44F6B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Kulebra and the Souls of Limbo (2025) [Multi] (1.1.5) License GOG
 magnet:?xt=urn:btih:C72D87B63C9D602B6964BB3EA32B2F3181C30403
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258.834/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:F301152E03740EB4AD9F57BFEF708433C8B50495
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Cabernet - ролевая 2D-игра в антураже Восточной Е�
 magnet:?xt=urn:btih:1FC97676327EB19B5C8458A2ED060D741C50B888
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Out of Sight - атмосферный хоррор, сочетающий пер�
 ```bash
 magnet:?xt=urn:btih:FA56FB91198DB0E16CE59289F8B6DEC770133CFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Senua's Saga: Hellblade 2 - продолжение ролевого экшена
 magnet:?xt=urn:btih:DF44485A7FD7CD7225BEE2F5DA5B86B6E9EA002A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Roottrees are Dead предлагает геймерам погрузить�
 ```bash
 magnet:?xt=urn:btih:79848BB09A4598126156093F50301111A6ABC1A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack Let's
 magnet:?xt=urn:btih:09D5A81410FFEA07B9E245560A7ED6156428F96A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Death Relives (2025) [Ru/Multi] (0.14.68.408) Repack Let'sРlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:601B59384B11AAD225AFAE635781171008CF3850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

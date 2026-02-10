@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3D27B6A14205D8FBCDFEBBF351F4C640192F2E48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - Piano Portraits Lullaby (2009) [MP3|320 kbps]<Детская музыка/ 
 magnet:?xt=urn:btih:528C02715DCA02FEB099CC3EAEA2BDA01BEB461B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:528C02715DCA02FEB099CC3EAEA2BDA01BEB461B
 ```bash
 magnet:?xt=urn:btih:6584A72C9359411F2F157D94FD7A72167B6D2D75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Midori - Sleepy Time (2011) [MP3|320 kbps]<Детская музыка/ Relax>
 ```bash
 magnet:?xt=urn:btih:8DA15CBFB04DAA3A7484148F39CABB2EEE033466
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Bronn Journey - Harp For Baby (2011) [MP3|320 kbps]<Детская музыка/
 magnet:?xt=urn:btih:BB0858ED94BFDA9A23303D4E2F9F20F1B723D780
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Barbara Bailey Hutchison - Bedtime Lullabies From Johnson's (2006) [MP3|320 kbps
 ```bash
 magnet:?xt=urn:btih:4936DD028E133E577AA975B587BC78EA1BB5E35D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:4936DD028E133E577AA975B587BC78EA1BB5E35D
 magnet:?xt=urn:btih:29D222C39C244F2A01C87DE30A76846D3A0037C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ magnet:?xt=urn:btih:29D222C39C244F2A01C87DE30A76846D3A0037C2
 magnet:?xt=urn:btih:3F035B06296583E74C514FC83B1030ACA06A76BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ magnet:?xt=urn:btih:3F035B06296583E74C514FC83B1030ACA06A76BE
 magnet:?xt=urn:btih:13B52661A9C252E4C2DA00DAB5082E2E9EC03C8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ VA - Михаил Казиник - Музыка для мамы, которая 
 ```bash
 magnet:?xt=urn:btih:1B849B3CF35E94E71BE3C763ADDA87A26385C043
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ magnet:?xt=urn:btih:1B849B3CF35E94E71BE3C763ADDA87A26385C043
 magnet:?xt=urn:btih:FE12B955B1C3576D23E3203E5ACBF37EDFA4B350
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ VA - Бибика (2012) [MP3|~202 кб/с]<Детские песенки и м�
 ```bash
 magnet:?xt=urn:btih:AE84B6E37D0D3F42A074EC57ABBEF07F7E047D35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +356,8 @@ magnet:?xt=urn:btih:AE84B6E37D0D3F42A074EC57ABBEF07F7E047D35
 magnet:?xt=urn:btih:C7EB472FF75C884A8D1A89454A64ED54C1C3A592
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +384,8 @@ VA - Песни для детей (2010) [MP3|320 кб/с]<Песни для д�
 ```bash
 magnet:?xt=urn:btih:FEC6DD7A621F0AA8CA0BA3A571BDC9BE5A95ABF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +414,8 @@ Rockabye Baby! - Lullaby Renditions of Red Hot Chili Peppers (2012) [MP3|320 к�
 magnet:?xt=urn:btih:E87C0761E23ADB7336D8AF4373DD3241DB408635
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +443,8 @@ magnet:?xt=urn:btih:E87C0761E23ADB7336D8AF4373DD3241DB408635
 magnet:?xt=urn:btih:88105E3E31BBBB709027CC31165E86AFB1E96E1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +469,8 @@ magnet:?xt=urn:btih:88105E3E31BBBB709027CC31165E86AFB1E96E1C
 ```bash
 magnet:?xt=urn:btih:6742A59A3BD5F173318C8D276C3D77B7DD936636
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +497,8 @@ magnet:?xt=urn:btih:6742A59A3BD5F173318C8D276C3D77B7DD936636
 magnet:?xt=urn:btih:88EDE578EABCF988A521CEB9881F5F2ABB32BCDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +522,8 @@ magnet:?xt=urn:btih:88EDE578EABCF988A521CEB9881F5F2ABB32BCDE
 ```bash
 magnet:?xt=urn:btih:1788DBDF68352CC5447A68C89C6B59FB6B601846
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +553,8 @@ magnet:?xt=urn:btih:1788DBDF68352CC5447A68C89C6B59FB6B601846
 magnet:?xt=urn:btih:834AE7CBBC99017BFF0B34E7A1655D431C9C41FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +578,8 @@ magnet:?xt=urn:btih:834AE7CBBC99017BFF0B34E7A1655D431C9C41FC
 ```bash
 magnet:?xt=urn:btih:72F3635A1210B305987167CDA801F7D9C233D52C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +613,8 @@ VA - Livin'G presents: Musicbox. So In Love With You (2012) [MP3|320 кб/с]<In
 magnet:?xt=urn:btih:6A140507B95642D24295B315DF8B06A075C6BCC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +638,8 @@ magnet:?xt=urn:btih:6A140507B95642D24295B315DF8B06A075C6BCC2
 ```bash
 magnet:?xt=urn:btih:95DE08C1C9E1EA4AB0C4F96DB1F8A8991DA251F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +665,8 @@ magnet:?xt=urn:btih:95DE08C1C9E1EA4AB0C4F96DB1F8A8991DA251F6
 magnet:?xt=urn:btih:408D2E0FC2D8AFE1FF92F7B79BA919ECD4A9FB79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +691,8 @@ magnet:?xt=urn:btih:408D2E0FC2D8AFE1FF92F7B79BA919ECD4A9FB79
 ```bash
 magnet:?xt=urn:btih:F7959D2135C1B3AB46E7E5E316895B1DCC0C6A6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +720,8 @@ magnet:?xt=urn:btih:F7959D2135C1B3AB46E7E5E316895B1DCC0C6A6A
 ```bash
 magnet:?xt=urn:btih:6819CCA76C9FB6B394CAC64CFDD50BB22144E24F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

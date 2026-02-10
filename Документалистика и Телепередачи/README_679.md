@@ -1,3 +1,30 @@
+###  Публикация: 989541   (916902) от 22.02.2016
+
+День космических историй. Кто управляет водой?  (2016.02.22) SATRip
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_916902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день приносит научные сенсации. Порой они опровергают незыблемые истины. Или решают глобальные проблемы, над которыми столетиями бились ученые. Но однозначно - меняют будущее человечества.
+День космических историй - это хит-парад самых новых и интересных научно-популярных программ. Каждый фильм - это увлекательное путешествие в мир сенсационных открытий. Эксклюзивные (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3AEAC6854DDA1F0A5692E6003099FDFFB5CB5C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989314   (916905) от 22.02.2016
 
 Полигон. Танк Т-72БЗ (2015) SATRip
@@ -19,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:402FB3B483C8FEEC963BD1EE357514BEFCB44513
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@ magnet:?xt=urn:btih:402FB3B483C8FEEC963BD1EE357514BEFCB44513
 magnet:?xt=urn:btih:BF514561DCCE47A309D6CE85E521F9C65706B5E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ magnet:?xt=urn:btih:BF514561DCCE47A309D6CE85E521F9C65706B5E0
 ```bash
 magnet:?xt=urn:btih:F31EF197C447F9BE53D2A61116B910D5EADAEE6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:F31EF197C447F9BE53D2A61116B910D5EADAEE6B
 magnet:?xt=urn:btih:3E85C38EAE9C0F50FEBB0E68A38AA01F73E42B77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +150,8 @@ magnet:?xt=urn:btih:3E85C38EAE9C0F50FEBB0E68A38AA01F73E42B77
 ```bash
 magnet:?xt=urn:btih:082D6966F5F112CA4F0FBA0218B7676550BB983B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +179,8 @@ magnet:?xt=urn:btih:082D6966F5F112CA4F0FBA0218B7676550BB983B
 magnet:?xt=urn:btih:9728DE5DEF955E8E60504DB605F3779E6F1A4724
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +204,8 @@ magnet:?xt=urn:btih:9728DE5DEF955E8E60504DB605F3779E6F1A4724
 ```bash
 magnet:?xt=urn:btih:60AADD6F05E58DC9975315BA4EB225F3D50D86C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +231,8 @@ magnet:?xt=urn:btih:60AADD6F05E58DC9975315BA4EB225F3D50D86C0
 magnet:?xt=urn:btih:6461EE046E64972E933EB759DB51E4E926FC8EB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +256,8 @@ magnet:?xt=urn:btih:6461EE046E64972E933EB759DB51E4E926FC8EB8
 ```bash
 magnet:?xt=urn:btih:452D40AB6F0FDCF6935A77E796BCD47A6CC2B460
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +283,8 @@ magnet:?xt=urn:btih:452D40AB6F0FDCF6935A77E796BCD47A6CC2B460
 magnet:?xt=urn:btih:8CC19EAF396EE4BA53DC87A0E3EC4D3033AF1FDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +308,8 @@ magnet:?xt=urn:btih:8CC19EAF396EE4BA53DC87A0E3EC4D3033AF1FDB
 ```bash
 magnet:?xt=urn:btih:6866FD670BA47691B045560644B30C48531EFD7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +335,8 @@ magnet:?xt=urn:btih:6866FD670BA47691B045560644B30C48531EFD7A
 magnet:?xt=urn:btih:C943B065F8572CE2E3A16DC3AF77D6CFD7E57052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +360,8 @@ magnet:?xt=urn:btih:C943B065F8572CE2E3A16DC3AF77D6CFD7E57052
 ```bash
 magnet:?xt=urn:btih:8B42F9F17EE68B9D39D595F524146D4D6916A5E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +388,8 @@ magnet:?xt=urn:btih:8B42F9F17EE68B9D39D595F524146D4D6916A5E4
 magnet:?xt=urn:btih:8FA1D50F49B422AC9ACBC3D74A7ABCF33E5B7E98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +413,8 @@ magnet:?xt=urn:btih:8FA1D50F49B422AC9ACBC3D74A7ABCF33E5B7E98
 ```bash
 magnet:?xt=urn:btih:D9A140A2D8FA363DC67D1F7FC227659ECC982100
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +440,8 @@ magnet:?xt=urn:btih:D9A140A2D8FA363DC67D1F7FC227659ECC982100
 magnet:?xt=urn:btih:410C1C906515974D637DD5160752C20F216DFD1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +465,8 @@ magnet:?xt=urn:btih:410C1C906515974D637DD5160752C20F216DFD1E
 ```bash
 magnet:?xt=urn:btih:86432CDF2C056ADAF7B7CF536D64861C47719CFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +492,8 @@ magnet:?xt=urn:btih:86432CDF2C056ADAF7B7CF536D64861C47719CFE
 magnet:?xt=urn:btih:D6D1876681B894489BBF9DC07EEF645462A14319
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +517,8 @@ magnet:?xt=urn:btih:D6D1876681B894489BBF9DC07EEF645462A14319
 ```bash
 magnet:?xt=urn:btih:B7DBC66C73151DAC7B74C9FABF50B605D7978BAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +544,8 @@ magnet:?xt=urn:btih:B7DBC66C73151DAC7B74C9FABF50B605D7978BAC
 magnet:?xt=urn:btih:8C7633411099C81336DFC48CC291FB0DE8A0EE16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +569,8 @@ magnet:?xt=urn:btih:8C7633411099C81336DFC48CC291FB0DE8A0EE16
 ```bash
 magnet:?xt=urn:btih:D95C78C8281293386B8550F7AD7ABB694C46CEAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +596,8 @@ magnet:?xt=urn:btih:D95C78C8281293386B8550F7AD7ABB694C46CEAA
 magnet:?xt=urn:btih:CC223E5C259087691B5C0E72CC1EC2002EB7F8F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +621,8 @@ magnet:?xt=urn:btih:CC223E5C259087691B5C0E72CC1EC2002EB7F8F3
 ```bash
 magnet:?xt=urn:btih:6C8CEF992A6F2D806121C9D9D5F89D738AF36EEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +648,8 @@ magnet:?xt=urn:btih:6C8CEF992A6F2D806121C9D9D5F89D738AF36EEC
 magnet:?xt=urn:btih:6BC876C9611E7FDCB0D93EB67DA25DDF602F0F10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,30 +674,7 @@ magnet:?xt=urn:btih:6BC876C9611E7FDCB0D93EB67DA25DDF602F0F10
 magnet:?xt=urn:btih:19682AD81E022F59E8EA0623F48DD893B3C075AB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 558080   (918549) от 21.02.2016
-
-Летопись полувека. Год 1968 (1969) SATRip
-
->>Документалистика и Телепередачи
->>Кинолетопись Страны Советской
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уважаемые выросшие дети и внуки, если хотите, можете здесь, за 2000-м, посмотреть, как жили ваши молодые папа с мамой или дедушка с бабушкой. В фильме на удивление мало торжественных заседаний - в основном обычная жизнь обычных людей.
-Помимо этого, в фильме затронуты темы: Вьетнамская война, расовые волнения в США, прокладка кормящей нас и сегодня нефтетрубы, Сорочинская (   Читать дальше...   )Жанр: Документальный, историческая кинохроникаПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BC8DD1ACE39399176C4BA0038558E145B4B6859
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

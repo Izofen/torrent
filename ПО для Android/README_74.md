@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3BC8830758F99C861390A2F3E2E0F77999B91A22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Daylio - Mood Tracker / Дневник - Трекер Настроения v1.53
 ```bash
 magnet:?xt=urn:btih:56A8B600848B5887E1E1F1029324030AE9518E34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Human Anatomy Atlas 2023 v2023.0.09 [En]
 magnet:?xt=urn:btih:DC33895AFF2265F0810238D1CD35AA1937241137
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:DC33895AFF2265F0810238D1CD35AA1937241137
 ```bash
 magnet:?xt=urn:btih:7CFD8C79FDA4DEBDD7E48886F777F326716F1F44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ DjVu Reader & Viewer (читалка дежавю на русском языке
 magnet:?xt=urn:btih:03BF956A0328C2217F00490383DB20072205E722
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:03BF956A0328C2217F00490383DB20072205E722
 ```bash
 magnet:?xt=urn:btih:31912C77C608C8E38AC9774B920D6C100C304DCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Beelinguapp - образовательный проект для изучени�
 magnet:?xt=urn:btih:B9BCAD085880332D2F551C1E40110BA8E0FCAF9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Bazaart: Photo Editor & Graphic Design v1.20.0 [Ru/Multi]
 magnet:?xt=urn:btih:62BB3306A7C4E8758276CFF73925B901F36A5000
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ PlayerPro Music Player - аудиоплеер, что предоставляет
 ```bash
 magnet:?xt=urn:btih:4D7FD2AE299BF252C6C696925F2709F5655CB5B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:4D7FD2AE299BF252C6C696925F2709F5655CB5B3
 magnet:?xt=urn:btih:F027640E4B97D5D09079261A344CE22AED924BAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ AOA: Always on Display - проект по персонализации, что 
 ```bash
 magnet:?xt=urn:btih:D8EFD82209EC6A7EBBD9147CE6FA3105D6D4AB95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Energy Ring - ещё один проект по персонализации, ч
 magnet:?xt=urn:btih:20B28A1F80B8C594D1C96FF3E6643B7B6C7E8231
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Clipboard Pro или Буфер обмена Pro - это приложение, 
 ```bash
 magnet:?xt=urn:btih:6E41EE5DF6210633751CE007586790DE1C1086B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:6E41EE5DF6210633751CE007586790DE1C1086B5
 magnet:?xt=urn:btih:FADA3FC685478C519C0278564DFD38724B36267B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Retouch - весьма и весьма впечатляющая своими о�
 ```bash
 magnet:?xt=urn:btih:B4290400D722A82C85BB0477C0E79AAC34D79AFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Dynamic Island (iOS 16 Notch) - ещё один проект предлагаю�
 magnet:?xt=urn:btih:5FD3AB9D295CB197F78613BD71F48CC808D8A7B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ SnapEdit - фоторедактор предназначенный для быс
 magnet:?xt=urn:btih:9B724613679A5E2B62695B2F38F3D881FFA8295A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ WOT — защита вашего устройства – Будущее без
 ```bash
 magnet:?xt=urn:btih:FD55BE46039FAD1F3439228EF657BE7760EEA5F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ AI Art произвел революцию в создании цифровог�
 magnet:?xt=urn:btih:ECE2966145F321F336AF0CAA4715EE8B28EA37AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ magnet:?xt=urn:btih:ECE2966145F321F336AF0CAA4715EE8B28EA37AA
 ```bash
 magnet:?xt=urn:btih:DFF45CE4A4267BD205B43386383B48C4A4711FE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ AirBrush v5.7.1 Mod by KirillCXV [Ru/Multi]
 magnet:?xt=urn:btih:E17333A887D0225F0288C996D3025BC1C5FFBC23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ Adobe Lightroom - версия известного графического р�
 ```bash
 magnet:?xt=urn:btih:A0BEFC0C67D01A063966FF6FDE3608FE9FD4CC0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ Easy Voice Recorder - Pro / Простой диктофон - Про - Прос�
 magnet:?xt=urn:btih:EB5E4E95A341E0246FDBFFFF2FDB97852F2C7B47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ PixeLeap - приложение, что обязательно стоит опр
 ```bash
 magnet:?xt=urn:btih:846C41933981816B1FD802F1407D6D05EFF78C35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ WhatWeather - Метеостанция 1.18.0-pro [Ru/Multi]
 magnet:?xt=urn:btih:E6FFB2B350669CFC5182CA08867DB887D7B010AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Cool VPN Pro - отличный и из-за этого весьма попул�
 ```bash
 magnet:?xt=urn:btih:E72D00DC729436DED878CC89A6B8AA44BCF239AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

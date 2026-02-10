@@ -28,6 +28,8 @@ Richard Sharp - Bathtime Relaxation (2008) [MP3|320 кб/с]<New age, Relax>
 magnet:?xt=urn:btih:19D784693FC50CC7851089B3EA1070AB308DB596
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -61,6 +63,8 @@ Doudou - The Love Of Piano (2011) [MP3|320 кб/с]<New age, Instrumental>
 magnet:?xt=urn:btih:B8D47CCFB8DA80C29A45312DD8D40D994BA50A04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -88,6 +92,8 @@ VA - Arabesque the Beautyness of India and Asia (2015) [MP3|320 кб/с]<Lounge,
 magnet:?xt=urn:btih:1E1DEB0425ECA008F415C15FB6C1DF64D67AAA72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +120,8 @@ Davis Mitchell - Drummer Boy (1996) [MP3|320 Kbps] <Native American>
 ```bash
 magnet:?xt=urn:btih:B3D3A48F1C5D6C2DE85C6D7F4C05387EC8430094
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +156,8 @@ magnet:?xt=urn:btih:B3D3A48F1C5D6C2DE85C6D7F4C05387EC8430094
 magnet:?xt=urn:btih:24254D12651AC8D84477AC6071D43C413D7686D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +187,8 @@ Perry Wood - Chakra Balancing (2004) [MP3|320 кб/с]<New age, Meditative, Rela
 ```bash
 magnet:?xt=urn:btih:85B45B0D68A23EDF409BDA9AA5DDF3D5D57F96FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +223,8 @@ VA - Music For Modern Yoga (2009) [MP3|320 кб/с]<New age>
 magnet:?xt=urn:btih:22AE69FF159AACF83E31669AAE9387E7BB50B1CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +258,8 @@ Shiva feat. Magdalena - Shivas Dance (1996) [MP3|320 кб/с]<New Age, Relax, El
 magnet:?xt=urn:btih:8E78617A3E99144E58C9A0C04DF9B0B649AFB89F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +287,8 @@ Divine Matrix - Atmospheric Variations (2012) [MP3|320 кб/с]<Electronic, Ambi
 magnet:?xt=urn:btih:23D1082088CFC1BCAD4B122B9DC5BE8186962DDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +312,8 @@ Iasos - 9 albums (1975-2001) [MP3|256-320 кб/с]<New age>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +348,8 @@ David Hicken - 3 albums (2007-2008) [MP3|192, 320 кб/с]<New age, Instrumental
 magnet:?xt=urn:btih:629E9B7E0AC6830E04553DB96DEDAC9D0B265B8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +373,8 @@ VA-New Age Style - Mystic Lounge (2012) [MP3|320 кб/с]<New Age, Tribal, PsyCh
 ```bash
 magnet:?xt=urn:btih:CE5D5426D2892AD9B090933DAD465388BCA0B699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +403,8 @@ The Soul Stirrers - Les Genies du Rock - Peace In The Valley (1995) [MP3|320 к�
 magnet:?xt=urn:btih:D3C2E36CE69D3653D5DFE83CE216FD7AEA6927A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +431,8 @@ DYATHON - Recollection (2019) [MP3|320 Kbps] <Instrumental, Piano>
 ```bash
 magnet:?xt=urn:btih:0AFBE6F8429567D4B7C104371487C6DD78CFF697
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +462,8 @@ Jean Michel Jarre - Magnetic Fields (1981) [FLAC|image + .cue]<Electronic, Ambie
 magnet:?xt=urn:btih:93B2358ACDE8D756757D9B7ECF19491E5BAED9DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +491,8 @@ VA - Modern Sound Orchestras - Melody in Love (1992) [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:BB8B03712A56EBB2D959C2DBAD4802DDC43DBEC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +519,8 @@ VA - Teenage Mutant Ninja Turtles: Shredder's Revenge (Original Game Soundtrack)
 ```bash
 magnet:?xt=urn:btih:79A55F34E7851D276DDB99B7D04EBF1686248F03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +554,8 @@ Bodhi - Trans Ukraine (2006) [MP3|320 kbps]<New age, Flute, Electronic>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +582,8 @@ Christopher Phillips - Piano Chill: Songs of the Beatles (2019) [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:4D50353DFAE0B2AE86EE18D210ECC8BEE87D46F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +612,8 @@ David Osborne - What the World Needs Now: A Piano Tribute to Burt Bacharach (201
 magnet:?xt=urn:btih:F97903AD36F42BA05A302650FFB401E5AE1CAA81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +637,8 @@ Pakarina - Melodies of the heart (2011) [FLAC|Lossless]<Instrumental | Pan Flute
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +667,8 @@ Gheorghe Zamfir - 2 альбома (1986, 1991) [MP3|320 kbps] <Instrumental, Pa
 magnet:?xt=urn:btih:12DB00697B861CC9C72BCB9C2F7C6220FE7E91DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +695,8 @@ David Osborne - What the World Needs Now (2019) [MP3|320 Kbps] <Instrumental, Pi
 ```bash
 magnet:?xt=urn:btih:62381C0CD012CC88C0D4926E942AC7ED63B8414D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -679,6 +725,8 @@ Valefim Planet - India (2015) [MP3|192 Kbps] <New age, Chillout>
 magnet:?xt=urn:btih:1460CDE8A281209113D1AA3353F5C13019D687DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -705,6 +753,8 @@ VA - Modern Sound Orchestras - Ave Maria (1992) [FLAC|Lossless|image + .cue] <In
 ```bash
 magnet:?xt=urn:btih:53A308FED9265DCFDCDA4E44B34F1E245DD69BC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -738,6 +788,8 @@ Jack Convery - Beatles On The Banjo (2009) [MP3|256 кб/с]<Folk-Rock>
 ```bash
 magnet:?xt=urn:btih:470BF2385BF6972C8C53B994BD9306650742AD11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

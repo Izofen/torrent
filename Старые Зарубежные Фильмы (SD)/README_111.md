@@ -1,27 +1,3 @@
-###  Публикация: 1575458   (377203) от 09.09.2022
-
-Эрнст Любич. Ромео и Джульетта в снегу / Romeo und Julia im Schnee (1920) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фарсовая кoмедия по мотивам бессмертной пьесы Шекспира. Действие картины перенесено из Вероны в отдаленную немецкую деревушку.Производство: Германия, Ebner & Co., Maxim-Film GmbHЖанр: комедия, короткометражный, немое киноРежиссер: Эрнст ЛюбичАктеры: Лотта Нойман, Густав фон Вангенхайм, Якоб Тидтке, Марга Колер, Эрнст Рюкерт, Пауль Бинсфельдт, Юлиус Фалькенштайн, Герман Пиха, Йозефина Дора, Пауль Пассарге, ИскадновскийПеревод: Немой с интертитрамиСубтитры: Немецкие интертитры, русские отдельным файломПродолжительность: 00:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEFD4E425EA26C0E9983FF82E2215CA49F17A799
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 573260   (377970) от 11.11.2012
 
 Как победить дороговизну жизни / How to Beat the High Cost of Living (1980) HDTVRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:FEFD4E425EA26C0E9983FF82E2215CA49F17A799
 ```bash
 magnet:?xt=urn:btih:7536AE0A0AA94A0C6E43EB83A5E6F1ECBBE31ACE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -66,6 +44,8 @@ magnet:?xt=urn:btih:7536AE0A0AA94A0C6E43EB83A5E6F1ECBBE31ACE
 ```bash
 magnet:?xt=urn:btih:8673022BD9C73D182FBF889557E694CCA79DC12C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +72,8 @@ magnet:?xt=urn:btih:8673022BD9C73D182FBF889557E694CCA79DC12C
 magnet:?xt=urn:btih:BC8645D706E30D1C06EDE5E734FC5DAEFC848E7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:BC8645D706E30D1C06EDE5E734FC5DAEFC848E7E
 ```bash
 magnet:?xt=urn:btih:3986BAC0D6E15499EF585C78B399743B4CBC4D67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +124,8 @@ magnet:?xt=urn:btih:3986BAC0D6E15499EF585C78B399743B4CBC4D67
 magnet:?xt=urn:btih:EEA079E9C3834A5D696505F9FF7273A239C3C98E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:EEA079E9C3834A5D696505F9FF7273A239C3C98E
 ```bash
 magnet:?xt=urn:btih:48F4F59A8DB435E7F2B1F38F6A77E81A0792732E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +177,8 @@ magnet:?xt=urn:btih:48F4F59A8DB435E7F2B1F38F6A77E81A0792732E
 magnet:?xt=urn:btih:83FE6A596289EAFCB9D19371332D69A3A63F012C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:83FE6A596289EAFCB9D19371332D69A3A63F012C
 ```bash
 magnet:?xt=urn:btih:3613DAE6A9D2EFB5801788A7AD3D574E3CDD1AE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +229,8 @@ magnet:?xt=urn:btih:3613DAE6A9D2EFB5801788A7AD3D574E3CDD1AE9
 magnet:?xt=urn:btih:6740C77B448F579D941C122900A0548802BB0C0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +255,8 @@ magnet:?xt=urn:btih:6740C77B448F579D941C122900A0548802BB0C0C
 ```bash
 magnet:?xt=urn:btih:AD6B29F0B2E5AB02D6C6C8167C59AB139D157B3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +284,8 @@ magnet:?xt=urn:btih:AD6B29F0B2E5AB02D6C6C8167C59AB139D157B3E
 magnet:?xt=urn:btih:106E14E374EB7542ED1FD6C63AF8775A9F737009
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +309,8 @@ magnet:?xt=urn:btih:106E14E374EB7542ED1FD6C63AF8775A9F737009
 ```bash
 magnet:?xt=urn:btih:859DED0230437B5983FE461EBF9B6B6D8DDDCA92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +336,8 @@ magnet:?xt=urn:btih:859DED0230437B5983FE461EBF9B6B6D8DDDCA92
 magnet:?xt=urn:btih:62CBD4DA620B75366C5F1E61A149274209E27FF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +361,8 @@ magnet:?xt=urn:btih:62CBD4DA620B75366C5F1E61A149274209E27FF9
 ```bash
 magnet:?xt=urn:btih:067D3694E981CE9B8A6A7E1DE76DAF36856BFB67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +388,8 @@ magnet:?xt=urn:btih:067D3694E981CE9B8A6A7E1DE76DAF36856BFB67
 magnet:?xt=urn:btih:BCAD5B90C57830286F36F846FEF281293C3A0663
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +413,8 @@ magnet:?xt=urn:btih:BCAD5B90C57830286F36F846FEF281293C3A0663
 ```bash
 magnet:?xt=urn:btih:4111D450F43A084AEBE98A94DC125B8A1934F714
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +440,8 @@ magnet:?xt=urn:btih:4111D450F43A084AEBE98A94DC125B8A1934F714
 magnet:?xt=urn:btih:2C61580F4ECEB1BE1D84A7DFE484B196A130DCB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +465,8 @@ magnet:?xt=urn:btih:2C61580F4ECEB1BE1D84A7DFE484B196A130DCB1
 ```bash
 magnet:?xt=urn:btih:0750E2687AD36D12D7C847469BEB74D05FBC8F4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +492,8 @@ magnet:?xt=urn:btih:0750E2687AD36D12D7C847469BEB74D05FBC8F4B
 magnet:?xt=urn:btih:5708965BA639C445F500BBABE2FCDFE881DB8B7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +518,8 @@ magnet:?xt=urn:btih:5708965BA639C445F500BBABE2FCDFE881DB8B7B
 magnet:?xt=urn:btih:8735F446FB2F84A835F819399BB2BB028F6D40C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +543,8 @@ magnet:?xt=urn:btih:8735F446FB2F84A835F819399BB2BB028F6D40C9
 ```bash
 magnet:?xt=urn:btih:611D7AFBB165B9DA71423F8D78BD3AA60C810113
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +571,8 @@ magnet:?xt=urn:btih:611D7AFBB165B9DA71423F8D78BD3AA60C810113
 magnet:?xt=urn:btih:791F003FAA40CC6CFFAAFCB817845E8E443AE36E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +596,8 @@ magnet:?xt=urn:btih:791F003FAA40CC6CFFAAFCB817845E8E443AE36E
 ```bash
 magnet:?xt=urn:btih:68BEB89E7506C91583C197947940C886F5C5C06B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +623,8 @@ magnet:?xt=urn:btih:68BEB89E7506C91583C197947940C886F5C5C06B
 magnet:?xt=urn:btih:77BE8604F8CE873F9ECEEB99E6F945AF112F47E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +649,35 @@ magnet:?xt=urn:btih:77BE8604F8CE873F9ECEEB99E6F945AF112F47E2
 ```bash
 magnet:?xt=urn:btih:41F1E04FE36715CE82DEC482F72AFB478C0698D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067811   (384903) от 30.10.2016
+
+Всем полицейским экипажам / ...a tutte le auto della polizia... (1975) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_384903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Похищена дочь известного в городе врача Андреа Икарди. В эту же ночь была поднята вся полиция города, но это не дало результата и тогда начинается более тщательное расследование под руководством инспектора Фернандо Солми. Через некоторое время труп девочки с пулей в затылке находят в реке в совсем другой части города. Расследование заходит в тупик.
+А тем временем (   Читать дальше...   )Производство: Италия / Capitol International, Jarama FilmЖанр: Ужасы, Триллер, КриминалРежиссер: Марио КайаноАктеры: Антонио Сабато, Лучана Палуцци, Энрико Мария Салерно, Габриэле Ферцетти, Элио Замуто, Этторе Манни, Марино Мазе, Беди Моратти, Адриана Фиоре, Франко РессельПеревод: Одноголосый закадровый (В.Белов)Субтитры: ОтсутствуютПродолжительность: 01:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:704D9D49F4AB9B48BC3DADC7334EF684D2DBD265
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

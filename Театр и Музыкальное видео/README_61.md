@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B53BDE188E6A935A816FBFCA8CE1DC5C66232901
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:B53BDE188E6A935A816FBFCA8CE1DC5C66232901
 ```bash
 magnet:?xt=urn:btih:F0BF8107E9FCA101CE158C207D4DAD3E3E03F3A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ The Rolling Stones - Voodoo Lounge Uncut 1994 (2018) 2xDVD5 [custom]
 magnet:?xt=urn:btih:A710325C686D2A5BFC6673DB17F179F9BF761192
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:A710325C686D2A5BFC6673DB17F179F9BF761192
 ```bash
 magnet:?xt=urn:btih:D3A02D0C17CBFB6665AEB09E3695E49FFD4BD0AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:D3A02D0C17CBFB6665AEB09E3695E49FFD4BD0AF
 magnet:?xt=urn:btih:454E6EFF15DF75033659D0CAB73D0C8FF7A259E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ Bad Company - In Concert. Merchants of Cool (2005) DVD9
 ```bash
 magnet:?xt=urn:btih:20AA327923E1A50C6BBDCD1558F844303862C8C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +192,8 @@ Extreme - Take Us Alive (2009) DVD9
 magnet:?xt=urn:btih:63C67F18876DED3D3B8200FD166775A7867293A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ magnet:?xt=urn:btih:63C67F18876DED3D3B8200FD166775A7867293A9
 ```bash
 magnet:?xt=urn:btih:2A5B2C89E93EDF9FD7A8E49B57C2106A2F8C6406
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +249,8 @@ Beth Hart - Live At The Royal Albert Hall (2018) DVD5 [custom]
 magnet:?xt=urn:btih:080E9AB255F93D54AFF2A7C7CFD0B9DB96D5589D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +276,8 @@ Slayer: The Repentless Killogy (2019) HDRip
 magnet:?xt=urn:btih:DE85314AFBB7BE2A290E6146A4C13DE45C88014C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +301,8 @@ magnet:?xt=urn:btih:DE85314AFBB7BE2A290E6146A4C13DE45C88014C
 ```bash
 magnet:?xt=urn:btih:ED4055151691B5049098FFE01B0D56E0BCE54C10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +329,8 @@ magnet:?xt=urn:btih:ED4055151691B5049098FFE01B0D56E0BCE54C10
 magnet:?xt=urn:btih:7CE5B33690B93BD7AC6E97B2474C06ECE5498A51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +354,8 @@ magnet:?xt=urn:btih:7CE5B33690B93BD7AC6E97B2474C06ECE5498A51
 ```bash
 magnet:?xt=urn:btih:0046069EE12A94A42E2526D1143C24C53EDB9D67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +385,8 @@ magnet:?xt=urn:btih:0046069EE12A94A42E2526D1143C24C53EDB9D67
 magnet:?xt=urn:btih:EEC40A7B417B8BCADFA07B464FC7E098B128095C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +414,8 @@ Def Leppard - Visualize, Video Archive (2001) DVD9
 magnet:?xt=urn:btih:935E2BDC482C5FBB6E1364623C2A63942CE2DD3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +441,8 @@ magnet:?xt=urn:btih:935E2BDC482C5FBB6E1364623C2A63942CE2DD3A
 magnet:?xt=urn:btih:70E22635D0F70DBA08CE36A9C025B51394B1B5F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +466,8 @@ Adriano Celentano - Adriano Live Il Concerto Arena di Verona - Rock Economy (201
 ```bash
 magnet:?xt=urn:btih:B1BFB5D167166A6FA87F3E3307C495B2491C5A89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +496,8 @@ Part 1 - Accept
 magnet:?xt=urn:btih:7997953D6B31B63E8D69F5D664AB3CC56DC12381
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +521,8 @@ Eric Clapton - Live at Montreux 1986 (2006) DVD9
 ```bash
 magnet:?xt=urn:btih:509C0AC3C4B011B4B863E8FEE16314BF11942C16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +551,8 @@ Sting - Live At The Olympia Paris (2017) BDRip [H.264/1080p]
 magnet:?xt=urn:btih:42AE9D6C4A3E3CD62707FBE6FDD5BF332FAB6453
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +578,8 @@ magnet:?xt=urn:btih:42AE9D6C4A3E3CD62707FBE6FDD5BF332FAB6453
 magnet:?xt=urn:btih:A558F6DDA97C768856B48FFBE63FB19CA52C95C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +603,8 @@ DVD с нового Альбома Веры Брежневой "Любовь с�
 ```bash
 magnet:?xt=urn:btih:4A84B8D42BA9AF192A022CC785F8D088FF2CA3A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +630,8 @@ magnet:?xt=urn:btih:4A84B8D42BA9AF192A022CC785F8D088FF2CA3A6
 magnet:?xt=urn:btih:CA503E61D2C4252D8FBF3495E31911D62D85B3EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +655,8 @@ magnet:?xt=urn:btih:CA503E61D2C4252D8FBF3495E31911D62D85B3EF
 ```bash
 magnet:?xt=urn:btih:D3A66B775B15FCBD01585EC4C6FCA6EA26B22394
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +685,8 @@ magnet:?xt=urn:btih:D3A66B775B15FCBD01585EC4C6FCA6EA26B22394
 magnet:?xt=urn:btih:C81B4823769C70D0F94807918F80538C8AFD4FD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +710,8 @@ magnet:?xt=urn:btih:C81B4823769C70D0F94807918F80538C8AFD4FD2
 ```bash
 magnet:?xt=urn:btih:DE42D571DCD61CFD0B21401A30EC36996765BA62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

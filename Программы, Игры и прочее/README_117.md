@@ -19,6 +19,8 @@ Aquarium Live Wallpaper v1.7 (Mod Ad Free) [En] - Живые обои с акв�
 magnet:?xt=urn:btih:D1ADBD20F1D94D93FC868127DFCD2F93AC4141D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Chess Fusion- настольная игра шахматы на андроид, 
 magnet:?xt=urn:btih:141872E213F2C30A7B0B922E058EB36E82EEB2A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Garmin: Ukraine Topo Map v1.07 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2CB694B6A9EAD5480D5909377D8527FA72BA57AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Isoland - в этой игре вы будете помогать главном
 magnet:?xt=urn:btih:04D50ACDB0AFBB7095F4EC106EDF71A94B74BE04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Garmin: Basarsoft NavCity Turkey 2016 T3 [En]
 ```bash
 magnet:?xt=urn:btih:82271AB4C10310859ABE69851152E145DD216AE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Prince of Persia Classic 2.0.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:C84CADC1B81CCF793D87B4D486417DB544C9AD45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Superuser 3.1.3 [Ru]
 magnet:?xt=urn:btih:D338775D74FC431D1BBEBE812A11585702F7A5F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:D338775D74FC431D1BBEBE812A11585702F7A5F2
 ```bash
 magnet:?xt=urn:btih:EBE4667FF768A1DDC6A872EA3D2F7A48EEEA568F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:EBE4667FF768A1DDC6A872EA3D2F7A48EEEA568F
 magnet:?xt=urn:btih:3E5287DA20627DF722A8E63F5002C54059C21C07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Microsoft Office Mobile 15.0.4220.2300 [Ru]
 ```bash
 magnet:?xt=urn:btih:27F0C020E0EAFAD98A8135C6AC6D41A1BC72FE5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:27F0C020E0EAFAD98A8135C6AC6D41A1BC72FE5D
 magnet:?xt=urn:btih:E6A6904742BCEE40DA10ED62B5B05FD6C8FF1115
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Child Lock "Я сам!" создает безопасную песочницу �
 magnet:?xt=urn:btih:F9F6464C9955A9A54AB58E513ED226F03897B9E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ C лёгкостью успокойте и уложите вашего малы�
 ```bash
 magnet:?xt=urn:btih:EE04263C931D13AE150A8984C8F9B39522A15BB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:EE04263C931D13AE150A8984C8F9B39522A15BB6
 magnet:?xt=urn:btih:A4923D9805A79E55B9E7A40234A3B4B2F7AD1749
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ Hydro Coach - пейте воду 2.9.2 [Ru]
 magnet:?xt=urn:btih:1B351C7782D88EB46F3406D1B45A6A8823BB7E22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ Garmin: TOPO Andes v.4 (2016.10) [En]
 ```bash
 magnet:?xt=urn:btih:9CF2E42C5C0D759D0F283F8A956E160BE25AD11A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:9CF2E42C5C0D759D0F283F8A956E160BE25AD11A
 ```bash
 magnet:?xt=urn:btih:8B4F36C5ED5729BC50249F04D43AF3BC78F74794
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:8B4F36C5ED5729BC50249F04D43AF3BC78F74794
 magnet:?xt=urn:btih:C318B565CC91A16FD518138230ACE8A0AB811514
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:C318B565CC91A16FD518138230ACE8A0AB811514
 magnet:?xt=urn:btih:D177C69E5D3640C0BF2DB4EDA4636629B77C17AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:D177C69E5D3640C0BF2DB4EDA4636629B77C17AD
 magnet:?xt=urn:btih:25E0CF8BD7C4CE69BA1F362D9CC84585661DCE83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:25E0CF8BD7C4CE69BA1F362D9CC84585661DCE83
 ```bash
 magnet:?xt=urn:btih:1A98222959D60E09F22F4D46730F970709873EDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:1A98222959D60E09F22F4D46730F970709873EDA
 magnet:?xt=urn:btih:B3390D73B51BD5EDF2107B3C9DB0F863AB6B2246
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:B3390D73B51BD5EDF2107B3C9DB0F863AB6B2246
 ```bash
 magnet:?xt=urn:btih:DDB2B80641A3C05DADA85A34AA77AED24E620CAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:DDB2B80641A3C05DADA85A34AA77AED24E620CAD
 magnet:?xt=urn:btih:207ABC4ADD0C2E2B0D8F3A0024BBA400DB98A211
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:207ABC4ADD0C2E2B0D8F3A0024BBA400DB98A211
 magnet:?xt=urn:btih:DEAB330B5FEA7D6C12088BA101FE2D7CBF98E326
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ Cказка об удивительной стране, где живут фру
 ```bash
 magnet:?xt=urn:btih:99244E56132FFBA1E9E21F03C879B525DAFEC1CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

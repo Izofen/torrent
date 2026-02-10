@@ -21,6 +21,8 @@ Red Hat Enterprise Linux (RHEL) 6.4, корректирующий релиз к�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Red Hat Enterprise Linux (RHEL) 6.4, корректирующий релиз к�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Parted Magic — готовое решение для работы с разде
 ```bash
 magnet:?xt=urn:btih:3987D9343DEC57615C1F0462D28081EC07396605
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Linux Mint — дистрибутив операционной системы Li
 magnet:?xt=urn:btih:F3752EF428A4EFC327D11BE2F36988FDD87090AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Edubuntu — дистрибутив операционной системы Linu
 magnet:?xt=urn:btih:C42A3650E3FCBD94C0A2C38258D1A4D7A468F1A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Debian GNU/Linux 6.0.7 [i386] (10xDVD)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ Debian GNU/kFreeBSD 6.0.7 [amd64] (3xDVD)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ Tor Browser for Linux - удобная и простая модификация 
 ```bash
 magnet:?xt=urn:btih:82347CDD83613069D23FD4552A28586C43C96650
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ Debian GNU/Linux 8.3.0 Jessie Live [i386] 7xDVD
 magnet:?xt=urn:btih:CED5C8AA47D15763E5A4A1E16E2D1476CBC9076B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ Debian GNU/Linux 6.0.7 [amd64, x86-64] (10xDVD)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ Window Maker Live 0.95.7-2 - Live-дистрибутив на основе Debia
 ```bash
 magnet:?xt=urn:btih:5FE32EA28EE47A11D02C1CE5AF596B208B4C27DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ Debian GNU/Linux 8.3.0 Jessie Live [amd64] 7xDVD
 magnet:?xt=urn:btih:31D8552CEC148FEA68406B08DFB4070778E5CC6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ Tor Browser for Linux - удобная и простая модификация 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +380,8 @@ BackBox Linux 4.5 [Анализ безопасности, хакинг] [i386, a
 magnet:?xt=urn:btih:A73038DB847A4B6EFB9A98E5FBDB07C5D95C6FCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ SolusOS – ориентированный на новичков в Linux нас
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ ROSA Desktop Fresh (KDE + Plasma) R7 [i586] 2xDVD
 magnet:?xt=urn:btih:0CBD9058F06B84116A837DDFD33626969988BEB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +464,8 @@ Debian GNU/Linux 8.3.0 Jessie [amd64] 3xDVD, 2x update DVD, 1x netinstCD
 magnet:?xt=urn:btih:50A183B8E1FB565D26DF09EDC28C131DD54857BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ KNOPPIX 7.6.1 [x32, x64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:3E224D31AD4458DF35CD075D3443F7D8AB8B764A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +518,8 @@ Debian GNU/Linux 8.3.0 Jessie [i386] 3xDVD, 2x updateDVD, 1x netinstCD
 magnet:?xt=urn:btih:FDE1FDC84A1E0D9D965738306F02A4EC30F90B9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +545,8 @@ Q4OS - дистрибутив операционной системы Linux, с�
 ```bash
 magnet:?xt=urn:btih:BBA58488F5C077A6CB5EF2A76346944EA78661DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +580,8 @@ Mageia 4 RC [i586, x86-64] 7xDVD
 magnet:?xt=urn:btih:E5CB2A2DFA767AE8F33D677CEC1D6A9F77C1F46E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +607,8 @@ ArchLinux 2013.02.01 [i686 + x86_64] (1xCD)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +638,8 @@ BackBox Linux 3.13 (Анализ безопасности, хакинг) [i386, 
 magnet:?xt=urn:btih:AD669D46BD20AFC5FA3082B19EB1C197E9721FE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +663,8 @@ magnet:?xt=urn:btih:AD669D46BD20AFC5FA3082B19EB1C197E9721FE0
 ```bash
 magnet:?xt=urn:btih:E98ECEB6B5624AF5E2112BB74D885AA1048007BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +690,8 @@ Microsoft Office – самый популярный в мире пакет оф
 magnet:?xt=urn:btih:9589E6CF3603CC2BF4C2891A616611DE0B4C30DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +715,8 @@ Debian GNU/Linux 10.3.0 + nonfree Buster [amd64] 4xDVD
 ```bash
 magnet:?xt=urn:btih:5F11F04E2D350B26E94085268EC9DE30889CFA54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

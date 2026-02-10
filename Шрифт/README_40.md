@@ -19,6 +19,8 @@ Gora - Многоязычный симпатичный, оригинальный
 magnet:?xt=urn:btih:BB286F04766C38B6F25CD7F6ED73DDEDA150B3A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Bubble Kids - Забавный улыбающийся шрифт, включае
 ```bash
 magnet:?xt=urn:btih:2776F9CF316326D2303946FB23607EBF3532C073
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:2776F9CF316326D2303946FB23607EBF3532C073
 magnet:?xt=urn:btih:193DA934D4BB56C57DA667991558D26F5A6D0878
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Scrimshaw CPC - это шрифт, вдохновленный искусство
 ```bash
 magnet:?xt=urn:btih:BF93415628BCC6F0FBDBF26F820EEE16EDF32FD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:BF93415628BCC6F0FBDBF26F820EEE16EDF32FD6
 magnet:?xt=urn:btih:EE8B66EA3A7AE4237D4DFCAD6621693006C2F42F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Montclar - Стильный и элегантный шрифт для Вашег
 ```bash
 magnet:?xt=urn:btih:F858BC486E0932B2BE3216AB4560130F3BBAB61A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:F858BC486E0932B2BE3216AB4560130F3BBAB61A
 magnet:?xt=urn:btih:113653F3809557250842D5A9A60AC0A5016598A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:113653F3809557250842D5A9A60AC0A5016598A9
 ```bash
 magnet:?xt=urn:btih:027E881EB8C977C31028E29E2082057EBA6EB246
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Pintanina Pro - это дизайн Pintanina 2013, теперь улучшен�
 magnet:?xt=urn:btih:0BAB2165C2E848C0AFB5A5EA2D4A6A6CAA9E8CD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Maika - это рукописный шрифт, выполненный черн�
 ```bash
 magnet:?xt=urn:btih:87FDB9386A10055C4FD73ECDFAC3097BD18E2954
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Kontora - это базовый и универсальный геометрич
 magnet:?xt=urn:btih:D4EDA70A142004A4CA95AF3EB19580268608E0B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Galpón довольно интересный, стильный шрифт, ко
 ```bash
 magnet:?xt=urn:btih:0B9FAEACCACC603D770E8156672FB8C20D209C8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Blacktear харизматичный рукописный шрифт с совр
 magnet:?xt=urn:btih:179544B88AD6E62C162D4DD333268E6F03CFF1B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Cookie - один из первых шрифтов автора, тонкий и
 ```bash
 magnet:?xt=urn:btih:0906A530DBB4EAE788407D77ECD03633B633CE42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Juxta (сокращение от juxtaposition) составляет два со
 magnet:?xt=urn:btih:29FCFAF1E0191D757B1B1150C7A366EB4154E7EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:29FCFAF1E0191D757B1B1150C7A366EB4154E7EE
 ```bash
 magnet:?xt=urn:btih:00769F552B5F375382C499E6025DFA2AAFBD6BBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ La Mona Kids это довольно интересный шрифт, котор
 magnet:?xt=urn:btih:9FA46CFD61066E394338E46EDEC5046DEB88D2AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Croogla 4F это простой шрифт, который хорошо и ст
 ```bash
 magnet:?xt=urn:btih:57B5453AA1810B928B66AA7F8253262DEE7B3457
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ BullyGirl - это два весовых нерегулярных и шумны�
 magnet:?xt=urn:btih:289D952A4E921D229955099DE59A37544BC4CA56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ La Mona Pro (2015-2016) Концепция: La Mona Pro, Mona - это реди�
 ```bash
 magnet:?xt=urn:btih:F21692E5BDB2BCF7363A765DB7FCFB6AE0819CF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ Hela-это высококонтрастный округлый шрифт с и
 magnet:?xt=urn:btih:350FBAB0BA39CA3466CCAECE83014EF9D2AA12E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:350FBAB0BA39CA3466CCAECE83014EF9D2AA12E0
 magnet:?xt=urn:btih:A225E7B0E1488BB8646931BEE4B7662B9D02DD99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:A225E7B0E1488BB8646931BEE4B7662B9D02DD99
 ```bash
 magnet:?xt=urn:btih:3949DE5B10D262BCABA4C73BC9249082BBF7B051
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:3949DE5B10D262BCABA4C73BC9249082BBF7B051
 magnet:?xt=urn:btih:9229E94664455F3200C5684A6E9CFEA5C7B58428
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:9229E94664455F3200C5684A6E9CFEA5C7B58428
 magnet:?xt=urn:btih:6536A0F87D853852BFBC9CEDB7FA675470EF956C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:6536A0F87D853852BFBC9CEDB7FA675470EF956C
 ```bash
 magnet:?xt=urn:btih:98E17AD6E8F50880B6FBDB3483041B7E9CE55638
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

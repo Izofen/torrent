@@ -19,6 +19,8 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2021) 
 magnet:?xt=urn:btih:FA45564CAAD09827D7B258EB148738243B652DF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Discovery. Аляска: Семья из леса / Alaskan Bush People (2021) H
 ```bash
 magnet:?xt=urn:btih:6D3CF67974F60BB8A311835ADB8B7751F3B93B2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC. Брачная Игра / The Mating Game (2021) WEB-DL [H.265/2160p] [4K, 
 magnet:?xt=urn:btih:406C11BC59B634FBEB3F6B9018D8031279BF5074
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ BBC: Серенгети / Serengeti II (2021) WEB-DL [H.264/1080p] (сезон 2
 magnet:?xt=urn:btih:EEE22F84A64CAD6033B8D43975481B0CF3D13C1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ NG: Реальность или фантастика / NG: Is it Real? [19 се�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ NG: Дьяволы морских глубин / Devils of the Deep (2003) DVD5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ NG. Черная мамба: поцелуй смерти / Black Mamba Kiss of D
 ```bash
 magnet:?xt=urn:btih:35054A9468D8488CAFFAA5259C7D29B6710C23A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ PBS Nature: Тайная жизнь леопарда / Revealing the Leopard (20
 magnet:?xt=urn:btih:2644F727E16DEB7BA336B225AA1A1B3E571671FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Animal Planet: Дом для рептилий. Террариум в балий�
 magnet:?xt=urn:btih:D7CD864E0E2AC0452F5E6378B54911F0EC3DC61B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ NGW. Волчьи горы / The Wolf Mountains (2013) HDTV [H.264/1080i-LQ]
 ```bash
 magnet:?xt=urn:btih:37C390AE8396559FF1593805FB8D1BA544A138E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ BBC: Horizon. Что было до Большого взрыва / What Happened
 magnet:?xt=urn:btih:5A8A1C1C92EA43A7DF08EA04A6B554655FD7072E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:5A8A1C1C92EA43A7DF08EA04A6B554655FD7072E
 ```bash
 magnet:?xt=urn:btih:47F8DEE9B7743DA82FD6A9EAB7C512ABB1C658FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Discovery: Разгневанная планета (Бушующая плане�
 magnet:?xt=urn:btih:594F3AE98D3D6239EEED2CC20E2AEB10C5D1D96F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ BBC: Живая Природа. Райские птицы / BBC: Natural World. 
 ```bash
 magnet:?xt=urn:btih:A55152C64EA8ABFE9F40AAC8F9853CD9ECC2B237
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ BBC: Мир природы - Горы тропических дождей  / Nat
 magnet:?xt=urn:btih:855D6705F76BE9571E582CFB15CF5D8543C2B3AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Animal Planet: Загадочные животные острова Джао / T
 ```bash
 magnet:?xt=urn:btih:EE9DCE1536E671A11398DCD3EC9DE9F29D82EFCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Discovery: Природа Ближнего Востока / Wildest Middle East 
 magnet:?xt=urn:btih:5639A112682790ACF5E55DF9DDADDF5D6ACBF812
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 ```bash
 magnet:?xt=urn:btih:2886A7F5D1CFF289F2A7ACA2FDFE5EB24EC4BE75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ BBC: Чудеса живой природы / Nature's Great Events (2005) DVDRi
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ BBC: Антарктическая полярная станция / Ice Station 
 ```bash
 magnet:?xt=urn:btih:6F4DBC23796B0699D8B72C9DD3DBA5311386F56A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ BBC: Тайны тёмной энергии / BBC: The Mysteries of Dark Energy 
 magnet:?xt=urn:btih:8E75E59DA36DF2A3E07F9055BB3A4EACB1D9ED8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 ```bash
 magnet:?xt=urn:btih:6A38F504503EAA58F11D24C35324DE5D1E5FAAC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ NG: Птица-динозавр / Dino-Bird (2017) HDTVRip
 magnet:?xt=urn:btih:7AE84E4F12BDF10B453D83EB81421DAD2225FB11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ magnet:?xt=urn:btih:7AE84E4F12BDF10B453D83EB81421DAD2225FB11
 ```bash
 magnet:?xt=urn:btih:8420FBEB7318CA458292E7AFDE3E24D75501ED0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ BBC: История возникновения лекарств / BBC: Pain, Pus
 magnet:?xt=urn:btih:C742FEB895914038720474F3EFB98AD4C9FEC8F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ magnet:?xt=urn:btih:C742FEB895914038720474F3EFB98AD4C9FEC8F8
 ```bash
 magnet:?xt=urn:btih:9E0BF4A099E35450330A5321B534E6C7595D9659
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

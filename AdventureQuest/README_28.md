@@ -19,6 +19,8 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (Build 1589651
 magnet:?xt=urn:btih:BC5955F3B88D38A19E97F726405BEA5D09BA8F62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Machinika: Atlas (2024) [Ru/Multi] (1.1.2.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A806BA0BE2E2DDE3FAE0234981122B483A8E7553
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (Build 1589651
 magnet:?xt=urn:btih:538B4ED47182BE487658982DAF8BB243B5BCCAE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Satellite odyssey: Рrologue - открывающая часть серии иг
 ```bash
 magnet:?xt=urn:btih:99322182EAAD2451E89EE4AFBFBEE84EFFC4D2FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Psycho Fear - это захватывающая головоломка-квес�
 magnet:?xt=urn:btih:E5C7E45219DBDE0011BE46FC37D46C73C3449ADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Beyond Hanwell - это насыщенная, детальная и атмосф
 ```bash
 magnet:?xt=urn:btih:C8E37F4321015A64A584470579F369D4126601F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ AMEDAMA - это приключенческая адвенчура в жанре
 magnet:?xt=urn:btih:2BA2DA0BD4CFD98896765B5CE781F9FE046996DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Prison Alone (2024) [Ru/Multi] (1.0.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:CFACF0BCCD0200126DB45083DFB9656B29A026DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Prison Alone (2024) [Ru/Multi] (1.0.2) Scene Tenoke
 magnet:?xt=urn:btih:8279CBFD6F411B0AE62D8CEDB3778251571DD03E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Invincible представляет собой приключенческу�
 ```bash
 magnet:?xt=urn:btih:E06287E658DDE9E373B090691E1C0D3E0F54A4B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ DreadHaunt (2023) [Ru/Multi] (1.0.0.20) Repack FitGirl
 magnet:?xt=urn:btih:9C69B734C1BC968D274499FBE4F3318D85594403
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Murder On Space Station 52 - это остросюжетное мистичес�
 ```bash
 magnet:?xt=urn:btih:F720DEF5AE6EFD4E2A995C8C19EB7F8280845910
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Resolutiion - это динамичная игра в жанре action-adventur
 magnet:?xt=urn:btih:B6B5E0F64E407F9F05AC4DCB915C0F88677DE6B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Trap for the Heir – что вы скажете насчет исследова
 ```bash
 magnet:?xt=urn:btih:5F9C34D49C4FF27497A08FF179CBEB75CA209D53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Batbarian: Testament of the Primordials (2020) [Ru/Multi] (1.4.4) License GOG
 magnet:?xt=urn:btih:EB26D982FCD545334A0CA6EEFF7801A66D0B2279
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Isles of Sea and Sky – стратегическое приключение с 
 ```bash
 magnet:?xt=urn:btih:C11A60A22986B4BF800B59CAB964CB1963292FA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Paper Ghost Stories: Third Eye Open - это сверхъестественно�
 magnet:?xt=urn:btih:55C7568405D2E1D76F19D22EC24D82A88A4FFAC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Farewell North - приключение, направленное на иссл�
 ```bash
 magnet:?xt=urn:btih:6131F1F654FCCFFAE20537F7AE3965793027943B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Broken Sword 4: The Angel of Death / Сломанный меч 4: Ангел с�
 magnet:?xt=urn:btih:579D2558D258786E5C5F7E667BF62E8667ABCF49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Creatures of Ava - это не типичная адвенчура по ловл
 ```bash
 magnet:?xt=urn:btih:C3A2C149EF1CEC21B3A39400AF6C5A91ADC0265E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15770319/dlc) Repack Decepti
 magnet:?xt=urn:btih:B5494AE54CE72FA0C6059B24FDA7DD7C2F0DFFA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Broken Sword 5: The Serpent's Curse (2014) [Ru/Multi] (3.0.5) License GOG [Episo
 ```bash
 magnet:?xt=urn:btih:F6D068CFF42A3D62D2736DC300E27992B0B57754
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ DreadHaunt (2023) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:027F5F96AA2B782DE47924DAB20096ABBA13CFA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Three Alpha One Nine – это сложный и одновременно ул�
 ```bash
 magnet:?xt=urn:btih:BBFBCAD01DA8C08E8EE76E4E4BAA1634540DDE45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Abnormal1999:The Compass and the Sand - это загадочная голово
 magnet:?xt=urn:btih:C465A2E7ED2C74A69CACF01C908D946851BC2E85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Copycat (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C45DB335420E1DC40454C62BE061F22D6273914F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

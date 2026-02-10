@@ -19,6 +19,8 @@ Yuu Yuu Hakusho (1993) | Yu Yu Hakusho: The Movie | Отчет о буйстве
 magnet:?xt=urn:btih:DCDF192AFD18AADCF2F1C9C60A58B4820F9B8BEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Souten no Ken: Regenesis 2 | Кулак синих небес: Перерожд�
 magnet:?xt=urn:btih:240DAEA502455DECE1ABB2F478F567FA7034AE3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Mahou Tsukai Reimeiki | The Dawn of the Witch | Рассвет ведьмы [202
 ```bash
 magnet:?xt=urn:btih:3E02D33C8E87FA019DFEE0D2E27BFBDCF459F031
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Galaxy Angel Z | Галактические ангелы Z [ТВ-2] [2002, TV, 1
 magnet:?xt=urn:btih:D787E8275B3224387C17142CA3420BE74690BBED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Cannon Busters | Приятели с пушками | Пушечные ядра 
 ```bash
 magnet:?xt=urn:btih:779CB37B0918FEA1540F913EBCAAA8CC057D1AFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Galaxy Angel | Галактические ангелы [ТВ-1] [2001, TV, 24 э
 magnet:?xt=urn:btih:3642943F8BF8506680F5526EE8EF4C2BA58A9A5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Gundam-san | Гандам-сан [2014, TV, 13 из 13] HDTV 720p 10-bit raw
 ```bash
 magnet:?xt=urn:btih:EFA118453AC4AFDD50DD3329F931CD93BE88D07F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Dragon Ball Z / Dragonball Z / Драгонболл Зет [1989, TV, 291 + 2 SP
 ```bash
 magnet:?xt=urn:btih:9BB82CCAB8F80FEA2CBEEB3EF981A986F93A5A91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Dragon Ball / Dragonball / Драгонболл [1986, TV, 153] DVDRip 540p Raw
 magnet:?xt=urn:btih:20121A9AC6B8B6DDCB79332AA866979381886C03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ Dragon Ball GT / Dragonball GT / Драгонболл ГТ [1996, TV, 64 + sp] D
 magnet:?xt=urn:btih:27D0FBBFA5117F18BFC3C94C0E3DF9A0D5E2BBDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ Angel Densetsu | Angel Legend | Легенда об Ангеле [1996, OVA, 2 �
 ```bash
 magnet:?xt=urn:btih:3BEA470722854D52842FF2BD29E6BED29FDBF8C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ Mirai Nikki (2011) | The Future Diary | Дневник будущего [ТВ] [
 magnet:?xt=urn:btih:53D1886131DC3996B8EF7729139E41F77A344A85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ Yuukai Anna | Anna (Kidnapper) | Анна-похитительница [2018, Mo
 ```bash
 magnet:?xt=urn:btih:C6794A6AB55279DAC3414FB14F5A1959538440C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ The Big O | Большой О [1999, TV, 26 из 26] BDRip 1080p raw
 magnet:?xt=urn:btih:1FEAC4D93FB3817A2775E660344665524F391A32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ Bloodivores | Кровопийцы [2016, TV, 12] HDTV 720p raw
 magnet:?xt=urn:btih:723C036CC4AE02B8B9170DFD4052010721002DBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ Bungou Stray Dogs (2016) | Великий из бродячих псов [ТВ-2
 ```bash
 magnet:?xt=urn:btih:EDB48DE772BA51F464178056F0D11CA1F5557147
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ Ninja Collection / Коллекция ниндзя [2020, TV, 13] WEBRip 720p ra
 magnet:?xt=urn:btih:D23A054E2E267494E257FA0E158D3FB4DC4E20DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ Mahou Shoujo Ore | Magical Girl Ore | Как я стала мальчиком-в
 magnet:?xt=urn:btih:6C849AAB7C4539777D74D0D65D3F6745A47E82B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ Seishun Buta Yarou wa Yumemiru Shoujo no Yume o Minai | Эта глупая св
 ```bash
 magnet:?xt=urn:btih:83DE300E94D2C5746D3C3E8C9AA6999118E1B4C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ Maou-sama, Retry! | Demon Lord, Retry! | Король демонов, попыт
 magnet:?xt=urn:btih:394D407648589F712C375A0DE3A1D15F5FDEA750
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ Hakumei to Mikochi | Хакумэй и Микоти [2018, TV, 12 эп. + OVA] B
 ```bash
 magnet:?xt=urn:btih:505CF218813FB84C0103D92553F58FBE0AF15D65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ Levius | Левиус [2019, ONA, 12 эп.] WebRip 720p raw
 magnet:?xt=urn:btih:B36FCDEB616CC76FBAC06A3193B79CA82375B291
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ Hajimari no Boukensha-tachi: Legend of Crystania | Legend of Crystania: The Moti
 ```bash
 magnet:?xt=urn:btih:65864D4AF4F124008EFF552ED70F37895E82B39D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ Tiger & Bunny 2 | Тигр и Кролик 2 [2022, Web, 25 эп.] WEBRip 1080p 
 magnet:?xt=urn:btih:9DA76045943A748CA09898B4EC7C0EAE06C715C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ Sounan Desuka? | Are You Lost? | Бедствие ли это? [2019, TV, 12 э�
 ```bash
 magnet:?xt=urn:btih:42B2F320091A95CB2A3E7A10B29E25CF54437EFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +685,8 @@ One Punch Man: Road to Hero / Ванпанчмен: Путь к становле
 ```bash
 magnet:?xt=urn:btih:3072871032981E381DF470BAD2274F85FFB442C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

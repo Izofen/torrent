@@ -1,3 +1,30 @@
+###  Публикация: 1498827   (854275) от 28.09.2021
+
+Анатолий Дроздов | «Изумруд Люцифера» Книга 2. Золотые апостолы (2021) [MP3, Вадим Пугачев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_854275.jpg" />
+</div>
+
+
+###  Подробнее
+
+В небольшом городке бытует легенда о призраке, который обосновался в старинной башне. Чтобы опровергнуть это суеверие, сюда приезжает молодой историк Аким. Однако герой сталкивается с действительно странными и ужасными происшествиями.
+Недалеко от башни находят убитых женщин; одну из жертв Акиму чудом удаётся спасти. Маргарита помогает своему спасителю в начатом расследовании; (   Читать дальше...   )Жанр: Мистика, Современные детективы, ТриллерыПродолжительность: 06:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1206B71A53F56A9DE8E025E621B5107B74ED531B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498764   (854289) от 28.09.2021
 
 Сергей Пефтеев | «Легенды Ангелов» Книга 2.  Легенды ангелов 2. Падшие с небес (2021) [MP3, Андрей Новокрещенов]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:65EF9E53AAB15A03AE16D55E69DD2895B630266D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:65EF9E53AAB15A03AE16D55E69DD2895B630266D
 ```bash
 magnet:?xt=urn:btih:AD34BD971DB411FDC171745CD0B3D7A25FA22955
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +102,8 @@ magnet:?xt=urn:btih:AD34BD971DB411FDC171745CD0B3D7A25FA22955
 magnet:?xt=urn:btih:936D0AA40A74152860416EF325BF099308DE5D02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +130,8 @@ magnet:?xt=urn:btih:936D0AA40A74152860416EF325BF099308DE5D02
 magnet:?xt=urn:btih:0B49542A9318FF6E51E8BEC598AF61DA78BC725E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +157,8 @@ magnet:?xt=urn:btih:0B49542A9318FF6E51E8BEC598AF61DA78BC725E
 magnet:?xt=urn:btih:F4F42C7406C9C669376FAAF9ED0ABE81600D2C70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +183,8 @@ magnet:?xt=urn:btih:F4F42C7406C9C669376FAAF9ED0ABE81600D2C70
 ```bash
 magnet:?xt=urn:btih:D23E5B8FC64242C0777634CFA777F666345364CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +212,8 @@ magnet:?xt=urn:btih:D23E5B8FC64242C0777634CFA777F666345364CC
 magnet:?xt=urn:btih:6EBEC9347A062D896D7593E54059E6C790998301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +237,8 @@ magnet:?xt=urn:btih:6EBEC9347A062D896D7593E54059E6C790998301
 ```bash
 magnet:?xt=urn:btih:A3B1ADA355221F9DD9BC9417E00976B9FF3227B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +264,8 @@ magnet:?xt=urn:btih:A3B1ADA355221F9DD9BC9417E00976B9FF3227B9
 magnet:?xt=urn:btih:65D9ACC7BB4D037A27108B54CD27E26778F5DA05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +289,8 @@ magnet:?xt=urn:btih:65D9ACC7BB4D037A27108B54CD27E26778F5DA05
 ```bash
 magnet:?xt=urn:btih:91F140D724431984C16E18D5C11185053D27C6A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +316,8 @@ magnet:?xt=urn:btih:91F140D724431984C16E18D5C11185053D27C6A8
 magnet:?xt=urn:btih:59CA71EA516011CD65A8B6FEE3A6A71138BCD4C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +341,8 @@ magnet:?xt=urn:btih:59CA71EA516011CD65A8B6FEE3A6A71138BCD4C7
 ```bash
 magnet:?xt=urn:btih:6E1E918601EF28205FAA5AB0870E6E83A6E75249
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +369,8 @@ magnet:?xt=urn:btih:6E1E918601EF28205FAA5AB0870E6E83A6E75249
 magnet:?xt=urn:btih:BCC19C62C25F0E542E70DAF0F9EBE4F6A7AEC403
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +395,8 @@ magnet:?xt=urn:btih:BCC19C62C25F0E542E70DAF0F9EBE4F6A7AEC403
 ```bash
 magnet:?xt=urn:btih:82F7FB0D078C053A103C6588A26FC415FF7C7B9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +423,8 @@ magnet:?xt=urn:btih:82F7FB0D078C053A103C6588A26FC415FF7C7B9A
 magnet:?xt=urn:btih:92C72CDA769789BC40CEBAD3CC74A129A92E7083
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +448,8 @@ magnet:?xt=urn:btih:92C72CDA769789BC40CEBAD3CC74A129A92E7083
 ```bash
 magnet:?xt=urn:btih:3EED28E0247E1C1BE82ACB00228162EA05F09421
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +477,8 @@ magnet:?xt=urn:btih:3EED28E0247E1C1BE82ACB00228162EA05F09421
 magnet:?xt=urn:btih:466336B2231651B6CA2A289C04F6C312FF75AD4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +504,8 @@ magnet:?xt=urn:btih:466336B2231651B6CA2A289C04F6C312FF75AD4A
 magnet:?xt=urn:btih:51D71F14392C287A6BC7A0A4F5948B54642674D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +529,8 @@ magnet:?xt=urn:btih:51D71F14392C287A6BC7A0A4F5948B54642674D6
 ```bash
 magnet:?xt=urn:btih:401B83711EB4FDCCB06B29D27AB0F7987A119017
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +556,8 @@ magnet:?xt=urn:btih:401B83711EB4FDCCB06B29D27AB0F7987A119017
 magnet:?xt=urn:btih:8D66B02251AD3ADB4C46DE2CE2CD5835B591E8A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +582,8 @@ magnet:?xt=urn:btih:8D66B02251AD3ADB4C46DE2CE2CD5835B591E8A3
 magnet:?xt=urn:btih:418FA1B3DF2C69AE250A84A0CCF87D148A341AE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +607,8 @@ magnet:?xt=urn:btih:418FA1B3DF2C69AE250A84A0CCF87D148A341AE7
 ```bash
 magnet:?xt=urn:btih:DB50DD8B1F2AC579A8BCDB750A88AD3DA849DE8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +636,8 @@ magnet:?xt=urn:btih:DB50DD8B1F2AC579A8BCDB750A88AD3DA849DE8D
 magnet:?xt=urn:btih:242477799F67F3459ACE76908CA98CDCF1252807
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +663,8 @@ magnet:?xt=urn:btih:242477799F67F3459ACE76908CA98CDCF1252807
 magnet:?xt=urn:btih:FD5985AA1D51E1982F1149F6F1F12DFDBF197DF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,29 +689,7 @@ magnet:?xt=urn:btih:FD5985AA1D51E1982F1149F6F1F12DFDBF197DF8
 magnet:?xt=urn:btih:9A18796591A97269B39624556E16C4ED427C6C24
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376899   (856666) от 19.04.2020
-
-Альфред Бестер | Путевой дневник (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сбылась великая мечта  человечества – космические корабли бороздят просторы вселенной. И это уже не хрупкие скорлупки отважных первопроходцев, нет, это комфортабельные лайнеры, перевозящие сотни и тысячи пассажиров. И каждый из пассажиров видит вселенную по-своему…Жанр: фантастикаПродолжительность: 00:11:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8DB412AEF75578F1FC0451FC297813C75253AA3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

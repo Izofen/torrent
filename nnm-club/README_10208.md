@@ -1,157 +1,3 @@
-###  Публикация: 1330821   (336602) от 12.10.2019
-
-Научное расследование Сергея Малозёмова. Еда живая и мертвая (12.10.2019) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336602.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом выпуске программы "Еда живая и мёртвая"  расскажет о соках — апельсиновом, яблочном и томатном: как они влияют на наше здоровье и правда ли, что всего за пару дней "на этих напитках" можно очистить организм от шлаков и токсинов. Из рубрики "За что такие деньги?" зрители узнают, почему походная еда может стоить как блюдо в ресторане (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE0AA4624478B40BCB1575B6864705A88CC23DE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330887   (336603) от 12.10.2019
-
-Scrivener 3 v3.1.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scrivener — это текстовый процессор и инструмент управления проектами, предназначенный для людей, которым приходится работать с большими объемами текста.
-Scrivener сочетает в себе возможности текстового редактора с функциями органайзера и средствами для управления проектом. Все ваши записи в виде отдельного текста, фотографий и идей будут удобно организованы и всегда (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.10.2019Разработчик: Literature & Latte LtdПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:152C0D22B55289607D76D9B6E1F49D402504E5D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330620   (336604) от 12.10.2019
-
-VA - High Energy Melodic Trance: Uplifting Trance Party (2019) [MP3|320 Kbps] <Uplifting Trance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336604.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bassnova & Ciicii - Fighter
-002. In The Moonlight - Eurydice (Physical Vibes Remix)
-003. Dj Xquizit - Nadi Sunrise Remix
-004. Blue Serigala - Alpha Sextantis(   Читать дальше...   )Жанр: Uplifting Trance, ElectroПродолжительность: 10:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE706D02E6285EECD9B081D81B08F7281DA285E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330922   (336605) от 12.10.2019
-
-Librarian Pro 5 v5.0.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для каталогизации и систематизации различных вещей: книг, журналов, музыкальных, видео и игровых дисков и прочее. Вся создаваемая база сортируется отдельно по каждому типу вещей и содержит множество полей для максимального описания. Поля можно заполнить автоматически, скачивая необходимую информацию из интернета, поскольку программа поддерживает тесную (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.10.2019Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7F3F1F6C8F3041DC7BC2F7D03F8769F295E5CD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330943   (336606) от 12.10.2019
-
-VA - Record Super Chart 608 (2019) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336606.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Shawn Mendes & Camila Cabello - Senorita (Qodes Remix) (3:25)
-2.C-BooL - Catch You (3:13)
-3.Tones and I - Dance Monkey (Remix) (3:32)
-4.Slider & Magnit - Morze (3:10)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D66A216D6D5B1FA90EC5390259FA9C9A6E07858F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579105   (336607) от 27.09.2022
-
-Strom - Strom (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiden sjunger [00:04:08]
-02. Katapult [00:03:22]
-03. Ta mig tillbaks [00:04:08]
-04. Vass tunga [00:04:32](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7053785EF67D44FD63E375AB85507B8F926EF7EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579263   (336608) от 27.09.2022
 
 Eye of Void - Eye of Void (2022) [Mp3|320 kbps] <Stoner Doom Metal>
@@ -175,6 +21,8 @@ Eye of Void - Eye of Void (2022) [Mp3|320 kbps] <Stoner Doom Metal>
 ```bash
 magnet:?xt=urn:btih:64FFB4516EBDD67BF3BE0C16204C938BBA4B918C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +51,8 @@ Breed Machine - Asura (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Metalc
 magnet:?xt=urn:btih:914E14128CAB3D2AE2FAA95E05224C7ECA8C4E13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +79,8 @@ Damon Smith - Skeletons Skeletons Skeletons (2022) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:4A0028B3CED67BBDBFFA754036C116565D2EA1F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +109,8 @@ VoidOath - 2 Albums (2020-2022) [MP3|320 Kbps] <Doom, Death, Sludge Metal>
 magnet:?xt=urn:btih:F53760E3AE7ACAFDF25F7753D639783142A621CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +137,8 @@ Spellbook -  Magick & Mischief (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock,
 ```bash
 magnet:?xt=urn:btih:24C09E6CF558C021F9A9C3EF3A8A5F03E9D83899
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +167,8 @@ Brainless - Brainless World (1992) Remastered, 2017, Battle Cry Records [FLAC|Lo
 magnet:?xt=urn:btih:50F4FAA951AA0EFB11D79AC087AD36E91C649856
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +195,8 @@ Atrophia Red Sun - Fears (1997) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Dea
 ```bash
 magnet:?xt=urn:btih:06CE2ED73E4B6047BDE56D03C89DE7BF4DFDF1D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +225,8 @@ Band of Spice - 5 Albums (2010-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, 
 magnet:?xt=urn:btih:D7B5D12A71B8C81D43877C27F32A5862EAB44F27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +253,8 @@ Howard Rumsey's Lighthouse All-Stars - Music For Lighthousekeeping (1956) 1991, 
 ```bash
 magnet:?xt=urn:btih:E92544E27BD56CFCB9CE7D0E00A55734044572D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +283,8 @@ Bridg3s - Aria; Asunder (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern, Melodic Me
 magnet:?xt=urn:btih:FBF8FDE95EE59821A667623B363BFF2A19235F09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +311,8 @@ Carnal Ruin - Soulless I Remain (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 ```bash
 magnet:?xt=urn:btih:A5977D37BFB5DC9074C1C4AD29FFE2E3620AEA16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +341,8 @@ Conflagration - Destructive Generation (2011) Re-recorded Version 2022 [FLAC|Los
 magnet:?xt=urn:btih:FD74290CDD55892CFA30C8546291153C36377A08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +369,8 @@ Brainless - Ruler Of Everthing (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 ```bash
 magnet:?xt=urn:btih:38FDFA7225CAC3DBF6BBB8789C61639A160D4E3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +399,8 @@ magnet:?xt=urn:btih:38FDFA7225CAC3DBF6BBB8789C61639A160D4E3C
 magnet:?xt=urn:btih:4C71DD72472D8F8CABF6AAEA5E5BE3ABBAAC9A2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +427,8 @@ VA - Equilibrium In The Cosmos (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:262A87CAAFE55F0C84D59DA455FF3BEBA764C13E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +457,8 @@ magnet:?xt=urn:btih:262A87CAAFE55F0C84D59DA455FF3BEBA764C13E
 magnet:?xt=urn:btih:70F5A81EAEFDE5CDC63AAF41E3A101497B94C014
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +482,8 @@ magnet:?xt=urn:btih:70F5A81EAEFDE5CDC63AAF41E3A101497B94C014
 ```bash
 magnet:?xt=urn:btih:D22A885232529534C1333A5A4695C601ED994FBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +512,8 @@ VA - Discofox Megahits Vol.4 (2018) [MP3|320 Kbps] <Schlager>
 magnet:?xt=urn:btih:ABA1C7B2B15C377B958F455F823F1069331445D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +541,8 @@ magnet:?xt=urn:btih:ABA1C7B2B15C377B958F455F823F1069331445D0
 magnet:?xt=urn:btih:C449CBCEB0E11BFFF50F50217687A73A01D74606
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -685,6 +569,177 @@ magnet:?xt=urn:btih:C449CBCEB0E11BFFF50F50217687A73A01D74606
 ```bash
 magnet:?xt=urn:btih:E7539F716F5AF11F41DE250D37AEBB2597EEDAE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258460   (336648) от 30.10.2018
+
+VA - Style Hard Techno (2018) [MP3|320 Kbps] <Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336648.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Scooter - Foreplay
+002. End 519 - Ma·ri·hu·a·na
+003. Sub Sonik & Alee - Execution
+004. Fckn Gamm - Mantis (Original Mix)(   Читать дальше...   )Жанр: TechnoПродолжительность: 10:31:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:847E77454A995B0024AF7A9CCF7308F18E8D84F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258570   (336649) от 30.10.2018
+
+VA - Trance Autumn Essentials (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sound Quelle - Badoor (Extended Mix)
+02. Lessov - Kami (Original Mix)
+03. Johan Vilborg - Swetro (Original Mix)
+04. Mango & Astroleaf - We Tried (Talamanca Dub Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:760493E73FCB7C371C173A68EFF0A48E9B298DDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258515   (336650) от 30.10.2018
+
+Barney Kessel - It's A Blue World (1968 - 1973) 1990, Jazz Hour [APE|Lossless|image + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On a Clear Day, You Can See Forever [4:44]
+02. Aquarius [5:03]
+03. The Look of Love [4:06]
+04. Honeysuckle Rose [6:20](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 01:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13FE91C39BB99071C2A20E5222C4F58B621D7001
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258539   (336651) от 30.10.2018
+
+Oi Va Voi - Laughter Through Tears (2003) [FLAC|Lossless|tracks + .cue] <Leftfield, Dub, Future Jazz>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Refugee (3:38)
+ 02. Yesterday's Mistakes (4:40)
+ 03. Od Yeshoma (4:55)
+ 04. A Csitári Hegyek Alatt (4:15)(   Читать дальше...   )Жанр: Leftfield, Dub, Future Jazz, DowntempoПродолжительность: 00:53:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85271BE7B5D226F60E23939E2ED50204F3A8B166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954832   (336652) от 09.11.2015
+
+Вредитель / Wrecker (2015) WEB-DL [H.264/720p-LQ] [VO]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда у Эмили с подругой ломается в машине навигатор, они сворачивают не туда и становятся мишенью беспощадного и сумасшедшего эвакуаторщика, который начинает играть с ними в смертельную игру кошки-мышки.Производство: Канада, IW Wrecker ProductionsЖанр: ТриллерРежиссер: Майкл БафароАктеры: Анна Хатчисон, Андреа Уитберн, Дженнифер Кениг, Дон Нодел, Майкл Диксон, Кертис Магвайр, Лори Уотт, Селия РидПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: Хихикающий доктор / Марла Z, EnigmaЯзык субтитров: АнглийскийПродолжительность: 01:23:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8B7A73FE020270B13D45BC36D34541FB658C76B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954873   (336653) от 09.11.2015
+
+PDFCreator 2.2.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336653.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDFCreator - программа для создания PDF-файлов. При помощи этой бесплатной программы вы сможете создавать PDF-документы в любом приложении, например, в Word’е или даже в Блокноте. PDFCreator умеет создавать документы и файлы в следующих форматах: Portable Document Format (PDF), Postscript (PS), Encapsulated Postscript (EPS), PNG, JPEG, BMP, PCX и TIFF...
+PDFCreator (   Читать дальше...   )Язык интерфейса: Русский, английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773B0E69AD2E2A2C46E2E1D89508F9224EB807CB
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

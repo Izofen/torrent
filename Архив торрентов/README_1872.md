@@ -28,6 +28,8 @@ Marc Streitenfeld & Harry Gregson-Williams - Prometheus (2012) [MP3|320 кб/с]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ Marc Streitenfeld & Harry Gregson-Williams - Prometheus (2012) [MP3|320 кб/с]
 magnet:?xt=urn:btih:A50F1D3305D26CDF2284781B752D3FFC5F52F5B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -77,6 +81,8 @@ magnet:?xt=urn:btih:A50F1D3305D26CDF2284781B752D3FFC5F52F5B6
 ```bash
 magnet:?xt=urn:btih:4D0B3618D8DC0CC05801BE90059D7ADD9CD8AA00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -111,6 +117,8 @@ Slash - Apocalyptic Love (2012) Scene [FLAC|Lossless]<Hard Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +152,8 @@ CD1: (00:57:44)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +177,8 @@ CD1: (00:57:44)
 ```bash
 magnet:?xt=urn:btih:6CE414AB374B8BEC3105BEF6351258EC16CDBA37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +205,8 @@ magnet:?xt=urn:btih:6CE414AB374B8BEC3105BEF6351258EC16CDBA37
 magnet:?xt=urn:btih:B8AE14DBD0E692036011A67A495162DEC3D5DBF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +231,8 @@ magnet:?xt=urn:btih:B8AE14DBD0E692036011A67A495162DEC3D5DBF7
 magnet:?xt=urn:btih:ADAA4C672BBE07AB3320ABCB06368CF33F0DBF9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +256,8 @@ magnet:?xt=urn:btih:ADAA4C672BBE07AB3320ABCB06368CF33F0DBF9E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +292,8 @@ Joy Peters - Back To Joy (2012) [MP3|320 кб/с]<Italo Disco, Pop>
 magnet:?xt=urn:btih:FB0591D14F85002520257976F834A356EC448763
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +325,8 @@ Concerto No. 4 in D minor
 magnet:?xt=urn:btih:C989301D0614FCB42C7A4FDF5EE8444A902C0301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +350,8 @@ magnet:?xt=urn:btih:C989301D0614FCB42C7A4FDF5EE8444A902C0301
 ```bash
 magnet:?xt=urn:btih:DEB33AB19BB2488FF685245B5B8FE15E7246CED1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +386,8 @@ Mike Batt With The London Philharmonic Orchestra - OST "Caravans"(Soundtracks ) 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +413,8 @@ STDU Viewer – программа для просмотра DjVu, PDF и TIFF �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +438,8 @@ STDU Viewer – программа для просмотра DjVu, PDF и TIFF �
 ```bash
 magnet:?xt=urn:btih:3367E0C2B2D2960DD13477E6BD265D84A7B64312
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +466,8 @@ magnet:?xt=urn:btih:3367E0C2B2D2960DD13477E6BD265D84A7B64312
 magnet:?xt=urn:btih:132507C8178E5B5811872E6FC67B58F1105FDBBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +491,8 @@ magnet:?xt=urn:btih:132507C8178E5B5811872E6FC67B58F1105FDBBD
 ```bash
 magnet:?xt=urn:btih:985BD6EE13AF19885D58E1D87B3BE02D8AD1871A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +518,8 @@ AI Roboform Pro - программа, являющаяся менеджером 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +543,8 @@ AI Roboform Pro - программа, являющаяся менеджером 
 ```bash
 magnet:?xt=urn:btih:6D7403E0494AFD0CD050A6C7B980028B2E521B77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +570,8 @@ Dolphin является открытым исходным кодом Nintendo G
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +596,8 @@ Dolphin является открытым исходным кодом Nintendo G
 magnet:?xt=urn:btih:AD8456BC884A31657155E34FC0B5D1B83593338C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +621,8 @@ RAW (среди фанатов известная как Monday Night Raw или
 ```bash
 magnet:?xt=urn:btih:C2F273794792E88C6595920AC76E7DB25A875810
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +650,8 @@ magnet:?xt=urn:btih:C2F273794792E88C6595920AC76E7DB25A875810
 magnet:?xt=urn:btih:DC58016CD3F06071072D758B50342E9F8E7CAED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +675,8 @@ Warhammer 40.000: Space Marine (RePack/1.0.156.0) + 13 DLC [Ru] 2011 l UltraISO
 ```bash
 magnet:?xt=urn:btih:9C6EE7AE965BCA516F01360A2361B3F7B5828ACC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -657,6 +705,8 @@ magnet:?xt=urn:btih:9C6EE7AE965BCA516F01360A2361B3F7B5828ACC
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -688,6 +738,8 @@ Crysonic Spectra C2 - профессиональный широкополосн�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

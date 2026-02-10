@@ -21,6 +21,8 @@ Where's My Perry / Где же Перри? 1.7.0 [Ru]
 magnet:?xt=urn:btih:2C18687517A8A2A1B18BC6423D8A9551BD2DD180
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ DuckTales: Remastered / Утиные истории 1.0.2 + Mod [Money] [Ru]
 magnet:?xt=urn:btih:91B608C811AAC7687C5418965CC914D568B4DE50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Chicken Invaders ставит вас на передней край битвы �
 ```bash
 magnet:?xt=urn:btih:8A69884E03EB1D1F4E5952B73DF27CCA2D198E44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Knights of Pen & Paper 2 v2.5.30 [Ru/Multi]
 magnet:?xt=urn:btih:670F94C28D71CA498B9A949AC3565315D68E4E52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:670F94C28D71CA498B9A949AC3565315D68E4E52
 ```bash
 magnet:?xt=urn:btih:7E84FF813D92909EABD2FD1E4A3DC652824D8C76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ Holiday Gift объединяет в себе потрясающую физик�
 magnet:?xt=urn:btih:1722B454F87A3B4792C191739D2DDBD4F0AEC5E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ GTA: Chinatown Wars 1.01 [En]
 magnet:?xt=urn:btih:9D498BE6457381119C2C865BEBA10CA9A8384E32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Stupid Zombies 3 - продолжение интересного проекта 
 magnet:?xt=urn:btih:34761E2EED398AE27631E55505C1B0F6623F368E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Magnus Trainer PREMIUM v1.4.17 [Ru/Мульти]
 ```bash
 magnet:?xt=urn:btih:760B9BD1E0AC9976117403EE32FC7210F52423F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ P.S. Данное приложение стоит рассматривать к�
 ```bash
 magnet:?xt=urn:btih:F497CE86A0036B1788A7A0EFD8678102BA5A1653
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ Battletoads Double Dragon - The Revenge это продолжение знаме
 magnet:?xt=urn:btih:263986A083AD588FE6568874FC1C1ABB0101D22E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:263986A083AD588FE6568874FC1C1ABB0101D22E
 magnet:?xt=urn:btih:394466219CDCDEF6DE0410E30CA46ECBE9E455AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ The Room: Old Sins 1.0.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:30E512F87FEE0D86671AA720F55E6B3E74A79071
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:30E512F87FEE0D86671AA720F55E6B3E74A79071
 magnet:?xt=urn:btih:51AEFE89E5D9A6FC96F5396ADFB7B1514A4821E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:51AEFE89E5D9A6FC96F5396ADFB7B1514A4821E6
 ```bash
 magnet:?xt=urn:btih:D9308039303C40526FB711B18AC797E93F8FC886
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:D9308039303C40526FB711B18AC797E93F8FC886
 magnet:?xt=urn:btih:D427BC56408E6296AC0DB6ABD10574858AA2A570
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ Talking Tom Gold Run - неизвестная глава из жизни все�
 ```bash
 magnet:?xt=urn:btih:D5F94E2D76D1FD86C68B985A2E1773C2F86397D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ Space Pinball – популярная, аркадная игра в котор�
 magnet:?xt=urn:btih:15DBC4255BF531C96F43AA1477078E35D2C6D381
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ Harmony: Музыка и Ноты – это игра-головоломка о�
 ```bash
 magnet:?xt=urn:btih:15312011776C66EC3C84EBB500CAD3F4F448A651
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ Lichess 5.5.0 [Ru/Multi]
 magnet:?xt=urn:btih:F59DDEFAF91EFE7F69B5F7481FB4900870C6CEFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ magnet:?xt=urn:btih:F59DDEFAF91EFE7F69B5F7481FB4900870C6CEFC
 ```bash
 magnet:?xt=urn:btih:551D61532E3E26337F6DC199AEBCD22216126E20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ Subway Surfers - игра из жанра раннер для андроид. в
 magnet:?xt=urn:btih:73D67450A04772766585C13FD9767BBBCD13BF19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:73D67450A04772766585C13FD9767BBBCD13BF19
 magnet:?xt=urn:btih:1822573B96B802CC0A9A2C677629BA83D44A8AA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ magnet:?xt=urn:btih:1822573B96B802CC0A9A2C677629BA83D44A8AA5
 ```bash
 magnet:?xt=urn:btih:29210F7344D23CB4A7D63E0ACD5D0C83AFF90E22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ ProPilkko 2.7 [Ru/Multi] - Мультиплеерный online симулято�
 magnet:?xt=urn:btih:6DF70FB624562C7D7900DC7AB93456416E605793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ Piggly v1.10ggl + Mod [En/De]
 ```bash
 magnet:?xt=urn:btih:84025FDEB1C1DE3E296D14EE112EFB146C9D0A66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

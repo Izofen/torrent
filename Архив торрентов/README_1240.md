@@ -20,6 +20,8 @@ Mailbird - это простой, удобный и главное быстры�
 magnet:?xt=urn:btih:D54521A03DF14E0D88B5E831C4E8F85DE2CE25DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Kontakt - стандарт в мире семплеров. Native Instruments Ko
 ```bash
 magnet:?xt=urn:btih:D75489DE71B0E4EC211F13FB76B0E477DBED2690
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Calibre - простая и удобная программа для управ�
 magnet:?xt=urn:btih:D5C9829F134AF454D1AAA0B4E17CA74EA41F8A06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Hetman Partition Recovery - программа восстанавливает д
 ```bash
 magnet:?xt=urn:btih:D838077D691DE9658E6A74B4F78BA9D7E1D10FAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Transcend SSD Scope - удобное приложение для работы с
 magnet:?xt=urn:btih:F5BB1190246A7434FAB306269A49882F5D809B67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Camtasia Studio - мощная утилита для записи изображ
 ```bash
 magnet:?xt=urn:btih:B17EF9B81B075F7D7BB9F052271D86326689ACE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Light Image Resizer - программа для изменения размер�
 magnet:?xt=urn:btih:3E84780EC8C1A7F085A859A527BFE4A119631C3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Logic Pro X — самая совершенная версия Logic. Мощны
 ```bash
 magnet:?xt=urn:btih:B7F63358D12FBEE0397CC33CCFB9B89A3B6F344D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Movavi Video Converter - конвертер видео и аудио файло�
 magnet:?xt=urn:btih:3E1B33EDE8DEF9F5C239AEDB0794D04271B24ECD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ O&O DiskImage позволяет создавать резервные копи�
 ```bash
 magnet:?xt=urn:btih:42D0AF7296D076FCF191CA5F101E29C20D4E3547
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 magnet:?xt=urn:btih:5E30B4993F696FD0F82826D0DA8C509B66624437
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Reg Organizer 8.40 Final + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0AF3AF9DE26694C9828AFD162213CBB82AF87F76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ DxO FilmPack — это подключаемый модуль для Adobe Photo
 magnet:?xt=urn:btih:2C55799BBF35C4AD9D78224E5230240D2711F40A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:F3652E1A44ACBB2ADB8C8062CF8B0930FB473279
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Magic Uneraser Commercial / Office / Home / Unlimited Edition 6.5 RePack (& Port
 magnet:?xt=urn:btih:930A46EEE5487A9CD95713311481761774E9848D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ FanControl – свободно распространяемый продукт,
 magnet:?xt=urn:btih:37E54FB560283FACB6756248311F9B5F2890A02F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ DesktopOK - небольшая бесплатная и портативная (�
 ```bash
 magnet:?xt=urn:btih:05ADF6B33E8D547EE4A4EAFE56F40CD3DD49E1A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ NIUBI Partition Editor (Repack & Portable) – программа для про�
 magnet:?xt=urn:btih:008D49A9C07F69011773B380F303410115B48C99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ FireAlpaca - это достаточно простой, но удобный г�
 ```bash
 magnet:?xt=urn:btih:6607406FFA3401D35C6E0196B9EA74A70AA11B20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ VideoProc включает 4 модуля: Видео-конвертер, DVD Р
 magnet:?xt=urn:btih:316590BF9F3C46ACF96F37FB03AC6B63F747BD0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Waterfox — это браузер, основанный на исходном �
 ```bash
 magnet:?xt=urn:btih:2501725F5A07A6226209ED341BC16AE9DF5151E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Helix® Native: реализует в плагине мощную и тонал�
 magnet:?xt=urn:btih:7C42F88F019A7A7A301AE1668C27C78D9DC018D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ VPN Russia - VPN сервера в России 1.176 Mod by FreeApkexe [Ru/En]
 ```bash
 magnet:?xt=urn:btih:238C0BA1C5BE672F8A71B352AC74B30D1A75274A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ The Bat! – общепризнанная система обработки эл
 magnet:?xt=urn:btih:AC948D1501726697DBEBA7268CF84860BE43B711
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ AVS Media Player - полнофункциональный программный
 magnet:?xt=urn:btih:193237FA51826F7E9BD1423A4F6436D368E710E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Total Commander 11.01 (27.10.2023) Portable by MiG [Ru/En]
 ```bash
 magnet:?xt=urn:btih:D1DE5C5C41657EDEBF9F6A3453DD1433897D2DE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

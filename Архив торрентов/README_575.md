@@ -20,6 +20,8 @@ Space Tanks / Танкистадоры (L) [Ru] 2004
 magnet:?xt=urn:btih:90AA8444A7373ED220A033F360F035ECBCDDA199
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:90AA8444A7373ED220A033F360F035ECBCDDA199
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:90AA8444A7373ED220A033F360F035ECBCDDA199
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Pestretsov Dead Pixel Test 1.0.0 [Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ Dino MC 47 - Среда обитания (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
 magnet:?xt=urn:btih:90A117C57F298223E0346B72FB01170FB8A8DACD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ AIDA64 (старое название Everest) - утилита является
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ Navicat Premium – мощная графическая утилита для у
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ Navicat Premium – мощная графическая утилита для у
 ```bash
 magnet:?xt=urn:btih:C9FC84AB7D907BDF7E467E982941B215E9960544
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:C9FC84AB7D907BDF7E467E982941B215E9960544
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:C9FC84AB7D907BDF7E467E982941B215E9960544
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +299,8 @@ Running Wild - Shadowmaker (2012) [FLAC|Lossless]<Heavy Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ BitTorrent - клиентская программа пиринговой сет
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +358,8 @@ Kreuzweg Ost - 3 albums (2001-2012) [FLAC|Lossless] <Martial Industrial, Neoclas
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +394,8 @@ Alpha Kawu - Cryogenic time (2011) [FLAC|Lossless]<Ambient / Experimental / IDM>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +419,8 @@ Alpha Kawu - Cryogenic time (2011) [FLAC|Lossless]<Ambient / Experimental / IDM>
 ```bash
 magnet:?xt=urn:btih:EAD7A20268F0757BAE9C44E9BDC5C2EF9029775E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +446,8 @@ magnet:?xt=urn:btih:EAD7A20268F0757BAE9C44E9BDC5C2EF9029775E
 magnet:?xt=urn:btih:AA3F7BC619FC3E992E29E65E6C143CA179483F27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +471,8 @@ LeaderTask - это Планировщик + ПИМ + Календарь + Ад�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +507,8 @@ LeaderTask - это Планировщик + ПИМ + Календарь + Ад�
 magnet:?xt=urn:btih:E6EFB67462255F2A9735AB7FEDC04E9FF4EAD5D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +533,8 @@ magnet:?xt=urn:btih:E6EFB67462255F2A9735AB7FEDC04E9FF4EAD5D7
 magnet:?xt=urn:btih:EC7B6758C3FCDBA4A60A821CDA039314B86E94EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +558,8 @@ magnet:?xt=urn:btih:EC7B6758C3FCDBA4A60A821CDA039314B86E94EE
 ```bash
 magnet:?xt=urn:btih:9C839EFB28FAE8AEEAF452F0441B3A77B2EEF507
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +594,8 @@ magnet:?xt=urn:btih:9C839EFB28FAE8AEEAF452F0441B3A77B2EEF507
 magnet:?xt=urn:btih:0CF7A91F0F8C927EEA4486DE7AD7A96807D5FF3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +619,8 @@ magnet:?xt=urn:btih:0CF7A91F0F8C927EEA4486DE7AD7A96807D5FF3F
 ```bash
 magnet:?xt=urn:btih:C0B45C9232CD7DD1C96CC3338AF9EA6E0295C311
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +655,8 @@ magnet:?xt=urn:btih:C0B45C9232CD7DD1C96CC3338AF9EA6E0295C311
 magnet:?xt=urn:btih:72258E3770BBD421D2FA8ED493E560E8EF8A0811
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ Kyoto - Astraverta (2012)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +714,8 @@ Fantasy wallpapers 001
 magnet:?xt=urn:btih:CE3134C89DDC99421EFB4F25F601D000C8A80C28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -689,6 +739,8 @@ magnet:?xt=urn:btih:CE3134C89DDC99421EFB4F25F601D000C8A80C28
 ```bash
 magnet:?xt=urn:btih:657E7EB6D5C2967D480138A3ED82BB6C41557CB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,27 +1,3 @@
-###  Публикация: 1476340   (1011558) от 11.06.2021
-
-Thief (2014) [Ru/Multi] (1.7) License GOG [Definitive Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Thief является четвёртой игрой в легендарной стэлс-экшен серии Thief. Вам вновь предстоит выступить в роли знаменитого вора Гарретта, от рук которого не скрыть ни одно сокровище. В Городе, где происходят события, назревает конфликт между его жителями и тираном-правителем Бароном.Тип издания: LicenseРазработчик: Eidos-MontrealЖанр: Action, Adventure, Horror, StealthЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3313D64498BE093360DB045D42CDCB045CAD1F9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1476338   (1011563) от 11.06.2021
 
 DRIFT21 (2021) [Ru/Multi] (6845677) License CODEX
@@ -42,6 +18,8 @@ DRIFT21 (2021) [Ru/Multi] (6845677) License CODEX
 ```bash
 magnet:?xt=urn:btih:5EC38417AC96A22A4042D481B45E5AAB2E518E97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Demons Age (2017) [Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:331DC1DE3EB4A29B63C04032ADBF4EF5F8B49C4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Ninja Gaiden 3: Razor's Edge (2021) [Multi] (1.0) License CODEX [Master Collecti
 ```bash
 magnet:?xt=urn:btih:0C543B0DCAFB82658BBA5D369FC57804E5736A8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Ninja Gaiden Σ (Sigma) 2 (2021) [Multi] (1.0) License CODEX [Master Collection]
 magnet:?xt=urn:btih:D5817FA46FA12E56B30335CDA8C2176A85D01146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Ninja Gaiden Σ (Sigma) (2021) [Multi] (1.0) License CODEX [Master Collection]
 ```bash
 magnet:?xt=urn:btih:346C76CD5C20D74CE735903F538C3B6EF7DF617F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Edge of Eternity – японская ролевая игра, события к
 magnet:?xt=urn:btih:19D79C0EE2534E554913A29DA9900EC4A016AC5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Hollow Knight (2017) [Ru/Multi] (1.5.68.11808/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:CE725946F57F2DF2F96933399A0F92B1E0589B69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Backbone - это постнуарная детективная RPG, где Ва
 magnet:?xt=urn:btih:3279D1FB88374DD3A73E294F955296FBD418FCB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Margrave 4: The Blacksmith's Daughter / Маргрейв 4: Дочь кузне�
 ```bash
 magnet:?xt=urn:btih:954A7A76D3DE696B19DF1F69A9ABB5C94183AD23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Tunguska: The Visitation (2021) [En] (1.0) License Fairlight
 magnet:?xt=urn:btih:62D58391A92AC642312CD20CF69C0121BB405DE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Last Kids on Earth and the Staff of Doom (2021) [Multi] (1.0) License Fairlight
 ```bash
 magnet:?xt=urn:btih:499ECEF1F22C313A221D619F429EBB49E5A39BE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Living Legends 9: Voice of the Sea (2021) [En] (1.0) Unofficial [Collector's Edi
 magnet:?xt=urn:btih:7CB2894143D225F7933B8BF48BA98633235E851D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ Sludge Life (2021) [Ru/Multi] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:EECEBF3D165441A75219A6A81BE5DBC825227C60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Röki пропитана духом скандинавского фолькло�
 magnet:?xt=urn:btih:9E1B16017048A8DC118082733FFD3F5812687FF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ Wing of Darkness (2021) [Multi] (1.0) License DOGE
 ```bash
 magnet:?xt=urn:btih:22E39039BF3871DFA75A5B2D36E3FD60BA1B4575
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ Sockventure - это история о ребёнке, чей любимый н�
 magnet:?xt=urn:btih:0ECD4FCB159C42E2A4BBA05A36219672564049D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ Roguelite-игра с карточными элементами, в которо
 ```bash
 magnet:?xt=urn:btih:3B505904C14404CB987CD0CDA0735FC31A828AF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ Rusty Lake: Roots (2016) [Ru/Multi] (1.0) License GOG
 magnet:?xt=urn:btih:E5F14CBBDB80A310539AE66C976B884B2CE48AAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ Cube Escape Collection (2020) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:1A4B210D8D2A62DF86530C50FE6008E22249A11F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Rusty Lake Hotel (2016) [Ru/Multi] (1.0) License GOG
 magnet:?xt=urn:btih:34F7F6D14E3A21204B2C7EE4AD249A5A97409C45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ Rusty Lake Paradise (2018) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:E10529E9ECEC3D6BE684CC7B700D7969A6A6335A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ Ghosts 'n Goblins Resurrection (2021) [Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:5329C372AB62A9970BABFBD2482AF5C9A3F4BB38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ Ultreïa / Ultreia (2021) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:D820BDBF55652D21261191F8AB6B1EC62566F8B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ magnet:?xt=urn:btih:D820BDBF55652D21261191F8AB6B1EC62566F8B4
 magnet:?xt=urn:btih:D65F0C306CF8C4B33F1076D6FD042477A9937907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ Room 54 (2021) [Multi] (1.0) License DOGE
 ```bash
 magnet:?xt=urn:btih:C0705B67CF40A7AB7CDDD45DCC3A810DEC8F2760
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473955   (1013305) от 31.05.2021
+
+One Step From Eden (2020) [Ru/Multi] (1.6.2/dlc) License GOG
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра оригинально комбинирует приёмы классической карточной стратегии и боевого "рогалика", предоставляя Вам самим выбрать, по какому пути направить персонажа: добра и милосердия – или ярости и разрушения. Играйте соло или позовите на помощь друга, используйте мощные заклинания, побеждайте врагов, которые с каждым разом становятся всё сильнее, и находите (   Читать дальше...   )Тип издания: LicenseРазработчик: Thomas Moon KangЖанр: Card Game, Roguelike, StrategyЯзык субтитров: Русский, Английский, Испанский, Корейский и другиеЯзык интерфейса: Русский, Английский, Испанский, Корейский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C40229D794C84DE662605773629B55CF24463B7
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

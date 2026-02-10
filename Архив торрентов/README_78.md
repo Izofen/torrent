@@ -19,6 +19,8 @@ GeoGebra — мультиплатформенная программное об�
 magnet:?xt=urn:btih:791368879DCAE63A07A3A7DCF9E8FCD334F92585
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:2898B646CF8FFCA057E2DFEFF650E520377B923B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:2898B646CF8FFCA057E2DFEFF650E520377B923B
 magnet:?xt=urn:btih:0ED9DEBD94BAD87401D9865D757009DEC9B8E828
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Ocenaudio — аудиоредактор, распространяемый ав�
 magnet:?xt=urn:btih:138D78C62B6C33A1E483DBE2C323E594DAE38108
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Soft Organizer Pro 10.10 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8FF26648478AEF92F62F8E108C71D7F78554F668
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Open Server Panel 6 — это обновлённая версия популя�
 magnet:?xt=urn:btih:EAB355076DF1B6E3D170F284F20A72107FF74751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:D106AF015AFCF5C17C8901EA284A8D0C68E76CCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ AAF Optimus DCH Audio Driver Realtek Mod аудио драйвер — всё в
 magnet:?xt=urn:btih:190D62025D4F82C935EF3D5AB54850BC311AB7EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Mi Home - это приложение для управления умным д�
 ```bash
 magnet:?xt=urn:btih:F5F88F2DFD765C2BBD00962A3D1F38271E4B5AF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ OpenVPN – мощная программа для работы с частны�
 magnet:?xt=urn:btih:71A027030574B0C419BC8806DEA21D11EED37AB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ MAGIX Vegas PRO — профессиональная программа для �
 ```bash
 magnet:?xt=urn:btih:3836FAF47BB66CAC4C7062930695D4E0C11AC8E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:923F7EC7B715984DCEF7B4A8A8A86FD9B8A612C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ SketchUP Pro - является профессиональной версией 
 ```bash
 magnet:?xt=urn:btih:298AA59E5CB4575D13E369A307F77DF7E634D27C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 magnet:?xt=urn:btih:FD2A122475600C3F92310272E29C2CD438837594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Sandboxie - yтилита для контроля за работой разли
 ```bash
 magnet:?xt=urn:btih:92072CD04D8D46A45AF11FE0D98313FA3DEE5B10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ MyLanViewer — программа для сканирования и монит
 magnet:?xt=urn:btih:7B251595B04D4FFA34619A53623EED44349A70F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ MediaHuman YouTube Downloader 3.9.10.0 (1604) RePack (& Portable) by elchupacabr
 ```bash
 magnet:?xt=urn:btih:8430A3C0E9C7F6D0C3B3AA783C95813E776D33DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ MediaHuman YouTube to MP3 Converter 3.9.10.0 (1604) RePack (& Portable) by elchu
 magnet:?xt=urn:btih:74EC62343264E38B0A795B623A04C918FA8D6319
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Tor Browser Bundle 14.5 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AD17F8FFAD767D38EAE0F981393619890B2FEAE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Windows 11 PRO 24H2 26100.3775 Update 14 by Ghost Spectre [En]
 magnet:?xt=urn:btih:83A42FC2121EB377A08E806EC95C1FB95AD5A685
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:AADF95C38D3A159505CD5D91221580FFB6F1C843
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ Adobe Bridge предоставит вам централизованный до
 magnet:?xt=urn:btih:9B99FC2B63E8DAF0B5BC9CC3DD604A74DA7150A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ After Effects — это ведущая в отрасли программа д�
 magnet:?xt=urn:btih:4E4E093AD1C6316D13651ED8251D69AB486E7186
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:D569D3CFAD6AC16066D217AF2056DE7ED552B8F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Windows 11 PRO 23H2 22631.5189 Update 18 by Ghost Spectre [En]
 magnet:?xt=urn:btih:7D2A18227189744193663AF3413D8EA10F3163F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Tablacus Explorer - удобный в работе и простой в испо
 ```bash
 magnet:?xt=urn:btih:F216174040C0A58F231BC3AFEFE5A2BD870470F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

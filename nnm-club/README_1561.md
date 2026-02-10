@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:1ED06E57ADC196630C9D8DA43266A3445A70D811
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:1ED06E57ADC196630C9D8DA43266A3445A70D811
 ```bash
 magnet:?xt=urn:btih:6DD4A9A21AB36E30765629F9FAF41BF8113AB8A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ X Typewriter - это моноширинный шрифт под пишущую 
 magnet:?xt=urn:btih:EEB7919D8E0656E33EB3819F78C507B14A2DA1F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Kurland - это нарисованный от руки шрифт. Содерж
 ```bash
 magnet:?xt=urn:btih:B6B3D9059B610ED7B87A7FF5334C011862DA2CBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:B6B3D9059B610ED7B87A7FF5334C011862DA2CBC
 magnet:?xt=urn:btih:1575F79D27ECEEF4EABEEDCB4C97D937959321D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ Artavion Mono — современный моноширинный шрифт, п
 ```bash
 magnet:?xt=urn:btih:EE184D28F0EFDA880B5280B975834512790D8F05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ magnet:?xt=urn:btih:EE184D28F0EFDA880B5280B975834512790D8F05
 magnet:?xt=urn:btih:905598D48404C787E2271C350536A524EBA382C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:905598D48404C787E2271C350536A524EBA382C3
 ```bash
 magnet:?xt=urn:btih:F6FAC109082ACB6C10E2DB3A418F1727AF9684EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ magnet:?xt=urn:btih:F6FAC109082ACB6C10E2DB3A418F1727AF9684EE
 magnet:?xt=urn:btih:BEAC8ED5C0448492AC82CB323CEF51418CB01807
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:BEAC8ED5C0448492AC82CB323CEF51418CB01807
 ```bash
 magnet:?xt=urn:btih:CA852A6EED46AE797BE5AB68D3448B85FB8FC62E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:CA852A6EED46AE797BE5AB68D3448B85FB8FC62E
 magnet:?xt=urn:btih:6982F05DE2FB23FC1A20809D7D6E3542222C41B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:6982F05DE2FB23FC1A20809D7D6E3542222C41B6
 ```bash
 magnet:?xt=urn:btih:8681B54F38BE39C211EB2D8811991F0053A1E813
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:8681B54F38BE39C211EB2D8811991F0053A1E813
 magnet:?xt=urn:btih:1C9FE139B28C216673CBCC24000D11EE7EE5EB1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:1C9FE139B28C216673CBCC24000D11EE7EE5EB1D
 ```bash
 magnet:?xt=urn:btih:9227111B50D9A96D7ADC3FD65EBA4E5411135FDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:9227111B50D9A96D7ADC3FD65EBA4E5411135FDA
 magnet:?xt=urn:btih:5E9618FF6F5224B79241F50D7EFF1CC8F5296961
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:5E9618FF6F5224B79241F50D7EFF1CC8F5296961
 ```bash
 magnet:?xt=urn:btih:947021BB5D8E51E09C9A224BF3EF520A024FD030
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:947021BB5D8E51E09C9A224BF3EF520A024FD030
 magnet:?xt=urn:btih:A05714204B441F90F10480C26E94A8B1C433F32E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:A05714204B441F90F10480C26E94A8B1C433F32E
 ```bash
 magnet:?xt=urn:btih:F78701F243D512CEB9666FFB5F87AA7EA28EFEB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:F78701F243D512CEB9666FFB5F87AA7EA28EFEB6
 magnet:?xt=urn:btih:CBBFB89A2333AB1B79B16E7E24E9CD71C471365A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:CBBFB89A2333AB1B79B16E7E24E9CD71C471365A
 ```bash
 magnet:?xt=urn:btih:147DFD86410FE5A8D2F9567C098B3C027F27BFBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ Drowning Pool — американская рок-группа из Даллас
 magnet:?xt=urn:btih:D4678C39DE13D135B7F6D5CC8E578198CFC092F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ Bal-Sagoth — английская группа, играющая в жанре
 magnet:?xt=urn:btih:3C8936449B0F7493FC1146813EAB6EE5EFE99884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ Kaze Tachinu | The Wind Rises | Ветер Крепчает [2013, Movie] DVDRem
 ```bash
 magnet:?xt=urn:btih:BC3EDF884892E25F56CAA82FB9951F9FE4C27FED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +641,8 @@ Yano-kun no Futsuu no Hibi | Yano-kun's Ordinary Days | Обыкновенные
 magnet:?xt=urn:btih:07D9776361AC45A91BBEA8A0C01D3578726F8CFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ DameWare Remote Support & DameWare Mini Remote Control 12.3.2.5 [En]
 magnet:?xt=urn:btih:025463E40E4CF6BC6A4DE8ACC19146686B946B2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:39B4366F97DDC65FF79FEFAED506C97E748CE0CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

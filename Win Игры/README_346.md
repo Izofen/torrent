@@ -19,6 +19,8 @@ The Conjuring House (2018) [Ru/Multi] (1.0.4) Repack Other s
 magnet:?xt=urn:btih:F4D7EF7A5FB8B70C55151453CC97944F79F3F1AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ The Hunt for Red Panda / Охота за Красной Пандой (2015) [Ru/
 magnet:?xt=urn:btih:E217AFDDE6A9383E29DDA139540A98800CDB0B26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Lost Lands 6: Mistakes of the Past / Затерянные земли 6: Ошиб
 ```bash
 magnet:?xt=urn:btih:D45DCB95B5D24506974A2657111337EF744A22C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Deadlight [Ru/En] (Repack/1.0.9249.u.1) 2012 | R.G. Catalyst
 magnet:?xt=urn:btih:4DA68E6877793D468E190E10BC6C607FC3F844D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Dungeon of the Endless - это приключенческий "рогалик" 
 ```bash
 magnet:?xt=urn:btih:9772C7A60E68F2139DCF549AFB0F109611F40BA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:9772C7A60E68F2139DCF549AFB0F109611F40BA7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ The Train / Поезд (2013) [Ru/En] (1.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:8F5896455347024D270D59B680BE5AEDD591FC9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Resident Evil Revelations 2 (2015) [Ru/En] (5.0/dlc) Repack xatab [Episodes 1-4]
 magnet:?xt=urn:btih:A88680DD5C114C68805A6E574ACB1969C864ABB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Rogue Trooper Redux (2017) [Multi] (5560) License CODEX
 ```bash
 magnet:?xt=urn:btih:109BC399ABC5907A0047CB1239A81C4417A7B263
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ MotoGP™20 (2020) [Multi] (1.0/dlc) Repaсk R.G. Механики
 magnet:?xt=urn:btih:A8192006835E8294C249318EB044A0EAC3E17B0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ B A S E M E N T (2017) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:73EBFF6C3D3BF7EF846996E58CA10C20614D4CD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Train Sim World 3 (2022) [Ru/Multi] (1.0.16/dlc) Repack Other s
 magnet:?xt=urn:btih:E3D74947369C6998C13AB628D43F9C702F7C4F74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ The Sin (2021) [Ru/En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:6A97A265A8B5459652E33CE19EC22118243B24AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Red Alliance - атмосферная однопользовательская �
 magnet:?xt=urn:btih:40CB72C7EA88F972262D03088683B961A4D9592C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Space Hulk: Tactics – новый взгляд на старую добрую �
 ```bash
 magnet:?xt=urn:btih:3A8DCC80B8E5AB32FDB58012ED1C02890AEFF578
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Red Alliance - атмосферная однопользовательская �
 magnet:?xt=urn:btih:12AAC6A429063599B907DCE3E2585E3949EF917E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Valthirian Arc Hero School Story (2018) [Ru/Multi] (1.0) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:479D32F4D1D539B259A37033EC278BC53234C3D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ X-Morph: Defense (2017) [Ru/Multi] (1.12/dlc) Repack R.G. Catalyst
 magnet:?xt=urn:btih:0838CA211390208F161954E63DDF6AF3B1CA4E46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Grim Facade 12: The Black Cube / За гранью жестокости 12: Чё
 ```bash
 magnet:?xt=urn:btih:CFFCC01E8A00208E79A19488B88133282009EB79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Starpoint Gemini 2 увлечет игроков в захватывающее �
 magnet:?xt=urn:btih:362B858D39DCBB6F1644CF88A5F82150C4C90235
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Franchise Hockey Manager 3 (2016) [En] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:6970128D5C83F28B931964C0C9C2CE232B861033
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Swag and Sorcery (2019) [Ru/Multi] (1.52) License GOG
 magnet:?xt=urn:btih:3A7357B19AE4BD9E0BE3918F08F8A17EB0349E30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Loco Parentis — сюрреалистичный survival-horror, где вам 
 ```bash
 magnet:?xt=urn:btih:C7C351E39BF0B5C026D597BBA445143CA9F872B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Halloween Stories 4: Defying Death (2020) [En] (1.0) Unofficial [Collector's Edi
 magnet:?xt=urn:btih:E4C39660897FD6D606B3BD7E5340FAC79FE23FB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ The Amazing Spider Man 2 / Новый Человек-паук (2014) [Ru/Multi] 
 magnet:?xt=urn:btih:04305F544CB2AAF6FD167D46B401F62B243C0E05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ The Conjuring House (2018) [Ru/Multi] (1.0.4) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:AC5D8026A965606844F57BF9D4C280BA354F3CD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

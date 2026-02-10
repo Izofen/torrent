@@ -1,3 +1,29 @@
+###  Публикация: 1454928   (1025972) от 17.03.2021
+
+Баварские пейзажи / Bavarian Landscapes (2021) WEBRip [H.264/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в другой мир и откройте для себя уникальные культурные ландшафты Баварии в этом удивительном видео. Здесь вы можете увидеть различные пейзажи, от захватывающих горных пейзажей и пышных зелёных лугов весной и летом до захватывающих дух нетронутых природных красот зимой, таких как озёра, водопады и горные вершины. Баварцы изо всех сил стараются ухаживать (   Читать дальше...   )Производство: БаварияЖанр: Документальный, видовойРежиссер: Амир КуладжилкПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A9ADD6F8A3C164D3739193AD7E2F9C4C8D2A632
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454919   (1025978) от 17.03.2021
 
 В тёмном месте / In A Dark Place (2021) WEBRip [H.264/2160p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:00FF34DADBE5B49F94C6F520D28937E76008942E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:00FF34DADBE5B49F94C6F520D28937E76008942E
 magnet:?xt=urn:btih:D0AEE5DDF5C7B46DAE90E6428865D5FE718EEE50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:D0AEE5DDF5C7B46DAE90E6428865D5FE718EEE50
 ```bash
 magnet:?xt=urn:btih:BF798DA3FA33DAADAF50C3399F69E85ECE5B318D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:BF798DA3FA33DAADAF50C3399F69E85ECE5B318D
 magnet:?xt=urn:btih:2C9658C6B5C078FF6F0AC9F4DEDB30AE87FC80DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:2C9658C6B5C078FF6F0AC9F4DEDB30AE87FC80DF
 ```bash
 magnet:?xt=urn:btih:E2C5778A41D16A4ACB392FE8EBD3AB1EE6625D10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:E2C5778A41D16A4ACB392FE8EBD3AB1EE6625D10
 magnet:?xt=urn:btih:D087E5F9C21C74B52A7E44D6186681552FF8461C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:D087E5F9C21C74B52A7E44D6186681552FF8461C
 ```bash
 magnet:?xt=urn:btih:2B7A89B134CF61DF6C0BD9B53D302B631170B78B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:2B7A89B134CF61DF6C0BD9B53D302B631170B78B
 magnet:?xt=urn:btih:2F57277D67F1D633843D5C0058DD6A2DC3C44BDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:2F57277D67F1D633843D5C0058DD6A2DC3C44BDE
 ```bash
 magnet:?xt=urn:btih:03BF18EDCAD6DB92A61B214CCED3936C5C15703D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:03BF18EDCAD6DB92A61B214CCED3936C5C15703D
 magnet:?xt=urn:btih:87E1FEFD851EE45727D00D043FAFD28E7FCF5DC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:87E1FEFD851EE45727D00D043FAFD28E7FCF5DC5
 ```bash
 magnet:?xt=urn:btih:3CAB2D19030587943E9B9AC820DACDCE963A47A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:3CAB2D19030587943E9B9AC820DACDCE963A47A7
 magnet:?xt=urn:btih:42E54E788B3320D834D56937390095060C50194A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:42E54E788B3320D834D56937390095060C50194A
 ```bash
 magnet:?xt=urn:btih:05BBE78F5A7E4A5D985BDA79AF2B3719F6732997
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:05BBE78F5A7E4A5D985BDA79AF2B3719F6732997
 magnet:?xt=urn:btih:4B99178F2F84BBF346B67AF6E2DF687828458AC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:4B99178F2F84BBF346B67AF6E2DF687828458AC9
 ```bash
 magnet:?xt=urn:btih:A34194225F7163326830B5203774EB85275F09BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:A34194225F7163326830B5203774EB85275F09BC
 magnet:?xt=urn:btih:8B127437D7D3E7096994DA9318D7E0C20355740E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ magnet:?xt=urn:btih:8B127437D7D3E7096994DA9318D7E0C20355740E
 ```bash
 magnet:?xt=urn:btih:447DBD0DBBB9EC5946D961339C3BB1A07E97F2BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:447DBD0DBBB9EC5946D961339C3BB1A07E97F2BD
 magnet:?xt=urn:btih:261575AC198D245E96E10EE8DCD518FC1FE6A07E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +513,8 @@ Notorious B.I.G.: моя история / Biggie: I Got a Story to Tell (2021) W
 ```bash
 magnet:?xt=urn:btih:51748A6C370F8780F549D385ED66AAD2D3FEE7C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:51748A6C370F8780F549D385ED66AAD2D3FEE7C4
 magnet:?xt=urn:btih:DCB7982B1A05F4FD1B924450BB6FA702855E0837
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +565,8 @@ magnet:?xt=urn:btih:DCB7982B1A05F4FD1B924450BB6FA702855E0837
 ```bash
 magnet:?xt=urn:btih:E99892948F5681D46AA5EBAFAD50BA33051514DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +592,8 @@ magnet:?xt=urn:btih:E99892948F5681D46AA5EBAFAD50BA33051514DF
 magnet:?xt=urn:btih:B720C9CCE09C4FFA2487D8A30F6106FE80F60513
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +617,8 @@ magnet:?xt=urn:btih:B720C9CCE09C4FFA2487D8A30F6106FE80F60513
 ```bash
 magnet:?xt=urn:btih:E2256C4C89CB60FBD054CBE4FE78FAE06712504E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +644,8 @@ magnet:?xt=urn:btih:E2256C4C89CB60FBD054CBE4FE78FAE06712504E
 magnet:?xt=urn:btih:942CD140F4A815DB8BA02F17656EFB0FDAEDD0B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,29 +670,7 @@ magnet:?xt=urn:btih:942CD140F4A815DB8BA02F17656EFB0FDAEDD0B0
 magnet:?xt=urn:btih:712F5A57B6BAAAA95ED73B16614735A55C51FE23
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453956   (1026615) от 13.03.2021
-
-Сердце островов / Hjarta Islands (2020) WEBRip [H.264/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026615.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Исландии обсуждаются планы создания национального парка в центральной части Хайленда. Я уверен, что мы сможем найти хороший баланс между сохранением нетронутой природы и свободой путешествий.Производство: ИсландияЖанр: Документальный, видовойРежиссер: Олафур Мар БьорнссонПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8397A68FA827915FD1F4D1A7D7FAF6F945E0DAE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

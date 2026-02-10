@@ -1,3 +1,29 @@
+###  Публикация: 1495329   (882392) от 11.09.2021
+
+Вьетнамский праздник Тет: по следам прошлого / Vietnam, fete du Tet, le passe retrouve (2019) HDTVRip [H.264] [FR/RU Sub]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы попасть на праздник Тет - вьетнамский Новый год по лунно-солнечному календарю, Мей-Чен Шале вместе с племянницей Дельфиной Энри отправляется в страну своих предков. Из Ханоя они начинают путешествие по реке Хыонг (Ароматной реке). Это возможность рассказать о трагедиях Индокитайской войны и заново открыть для себя прошлое семьи.Производство: Франция, TV5MONDE Europe HDЖанр: Документальный, история, путешествияРежиссер: Антуан ЛассеньПеревод: отсутствуетСубтитры: Русские (неотключаемые, Hiventy)Продолжительность: 00:52:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B043A07C36726801EA8A7C69CA734510FC6BDD53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495347   (882394) от 11.09.2021
 
 Мысли и чувства Жамеля Деббуза / Dans la tete de Jamel Debbouze (2018) HDTVRip [H.264] [FR/RU Sub]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:D3A8FB915AD006A04B87B28EC71B67071069CD2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:D3A8FB915AD006A04B87B28EC71B67071069CD2F
 magnet:?xt=urn:btih:3BC8DEE913B63B510EA3A8C0623988BF8923F6D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:3BC8DEE913B63B510EA3A8C0623988BF8923F6D0
 magnet:?xt=urn:btih:9BE9B863D29CBBB1D77085A5B925AFD932C72D0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:9BE9B863D29CBBB1D77085A5B925AFD932C72D0B
 ```bash
 magnet:?xt=urn:btih:C67F4274260EE7E67134D878AE4AB12963A438CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:C67F4274260EE7E67134D878AE4AB12963A438CE
 magnet:?xt=urn:btih:7B3580D566D49F38CF12BB1D251F5BE4D231C71E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:7B3580D566D49F38CF12BB1D251F5BE4D231C71E
 ```bash
 magnet:?xt=urn:btih:C74F3480FBF4105BF91122AC690BAFBD2A7E1A14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:C74F3480FBF4105BF91122AC690BAFBD2A7E1A14
 magnet:?xt=urn:btih:1CA4DFAB0079437DB4D7E8FEC1339F1D7950B82E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:1CA4DFAB0079437DB4D7E8FEC1339F1D7950B82E
 ```bash
 magnet:?xt=urn:btih:DD0559CD54B3FB79925DC8930721BB67452BA526
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:DD0559CD54B3FB79925DC8930721BB67452BA526
 magnet:?xt=urn:btih:71C78AECA496D8919431D1C3D50CF7D53C490214
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:71C78AECA496D8919431D1C3D50CF7D53C490214
 ```bash
 magnet:?xt=urn:btih:735336D5E413CC4EC4684C33D7377FD229145EAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:735336D5E413CC4EC4684C33D7377FD229145EAD
 magnet:?xt=urn:btih:641E527E551B909C1B63BE69FC45EC33968AF7CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:641E527E551B909C1B63BE69FC45EC33968AF7CD
 ```bash
 magnet:?xt=urn:btih:36D4493F3B8B6AAB66816C7168D26E0720DA711E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:36D4493F3B8B6AAB66816C7168D26E0720DA711E
 magnet:?xt=urn:btih:8CC406B3F7EDAEED18B079240A6D21CB1B6D642B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:8CC406B3F7EDAEED18B079240A6D21CB1B6D642B
 ```bash
 magnet:?xt=urn:btih:9420C00B39973558274D35FEFA23A2307CB8C1CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:9420C00B39973558274D35FEFA23A2307CB8C1CD
 magnet:?xt=urn:btih:A94FD20B7F7C417E30134DFE08CEAB530BEE8179
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:A94FD20B7F7C417E30134DFE08CEAB530BEE8179
 ```bash
 magnet:?xt=urn:btih:0411EBA89054B9A508D257D47C42D7E5AAF17DDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:0411EBA89054B9A508D257D47C42D7E5AAF17DDC
 magnet:?xt=urn:btih:05E736CF43FA85B70EFBC1A96F1534C05828BDA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:05E736CF43FA85B70EFBC1A96F1534C05828BDA0
 ```bash
 magnet:?xt=urn:btih:7A17D49FE76A9889269B9760465A955C35D5DC32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:7A17D49FE76A9889269B9760465A955C35D5DC32
 magnet:?xt=urn:btih:17531B515E17EA38A2C1CE7C6AC8109B7DF0791D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:17531B515E17EA38A2C1CE7C6AC8109B7DF0791D
 magnet:?xt=urn:btih:2E2AFD5B96D652CA2D194BCA589735163683ED02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:2E2AFD5B96D652CA2D194BCA589735163683ED02
 ```bash
 magnet:?xt=urn:btih:6077595065C1ACEF542BD889DAEF627D97A06B9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:6077595065C1ACEF542BD889DAEF627D97A06B9F
 magnet:?xt=urn:btih:64F5BE239C07E1F884D2D8C6C0ED13AB8FF92B92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:64F5BE239C07E1F884D2D8C6C0ED13AB8FF92B92
 ```bash
 magnet:?xt=urn:btih:F68216B76A2364D8BDCF5973426E1C6704C38463
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:F68216B76A2364D8BDCF5973426E1C6704C38463
 magnet:?xt=urn:btih:0BCC86D88F1A81140D4619E275D4B6D437ABBF1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,29 +673,7 @@ magnet:?xt=urn:btih:0BCC86D88F1A81140D4619E275D4B6D437ABBF1F
 magnet:?xt=urn:btih:0A681642F74C0E930DADE5952674A5F68402FA8D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447950   (883704) от 10.09.2021
-
-Секретные материалы (2011-2021) DVB (выпуски 1-220 из ?) (Обновляемая)
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все тайное становится явным! Хотите узнать правду? Понять, что на самом деле происходит в мире? Сенсационные разоблачения и тайны элиты. Парадоксы истории и зашифрованные открытия. Мы знаем истинную подоплеку событий!Телекомпания: Россия / МТРК «Мир»Жанр: Документальный, Тележурналистика, ИсторияРежиссер: Алла ДерюгинаСубтитры: отсутствуютПродолжительность: ~00:26:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39887D3D9CD0918C20BAA49906173C85E984FB99
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ ByClick Downloader (бывший YouTube By Click) - отличный и удо�
 magnet:?xt=urn:btih:2AB92A75A720BAC839088D9EAA1E02F9B8B3EAB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Dynamic Wallpaper Engine позволяет использовать живые 
 ```bash
 magnet:?xt=urn:btih:194F4B0F6035256C5D0F6B33F513406EC5F6D729
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Textify — это крошечная утилита, позволяющая с�
 magnet:?xt=urn:btih:020DFB6AAFD368FA0829D58D854A849F87361B4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ ImageRanger - программа позволит найти все нужные
 ```bash
 magnet:?xt=urn:btih:33FD92F6F08058949EA54FADAE93E1E3CDD750D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Studies - это приложение, чтобы помочь вам освои
 magnet:?xt=urn:btih:2F21536E029F6B57F9ECF7179C1C768A1CC59B31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Visual Studio Enterprise 2019 - Интегрированное комплекс�
 magnet:?xt=urn:btih:CEEC9FC25F8BC8D5BCAD73A7F34404B894B2398C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Macrorit Partition Expert Unlimited Edition – предоставляет мо�
 ```bash
 magnet:?xt=urn:btih:2A86A932BB9B4F8E29C6571D1834CE3EEEA7406D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:2A86A932BB9B4F8E29C6571D1834CE3EEEA7406D
 magnet:?xt=urn:btih:3764556E069CC01EF794EEBCE9B890D17AE91D2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ QLPro Studio инструмент управления базами данных
 ```bash
 magnet:?xt=urn:btih:AA74F446B9B3B433EA70301C954746D353218EB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Reg Organizer® - это многофункциональная программ
 magnet:?xt=urn:btih:C5C02859281E09F8F8E3A2E044284F37F15C1394
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 ```bash
 magnet:?xt=urn:btih:B84D5F83607C02BA5A19C5CF8FE6E907D8566FCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:B84D5F83607C02BA5A19C5CF8FE6E907D8566FCB
 magnet:?xt=urn:btih:45CD9344038EA149D189FB7A8A161698001DBF63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ Duplicate File Finder - утилита, которая находит дубли
 magnet:?xt=urn:btih:511971D4952D3576B22C24D1CCAC72169AA31BDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 ```bash
 magnet:?xt=urn:btih:6F28A8C2BD26C9B5216FBCA719C0C63A0A93C708
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Alfred 4 Powerpack 4.6.1 [En]
 magnet:?xt=urn:btih:4392914E0C5B853B4B3584D302F88F5CC56CD62B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ NIUBI Partition Editor (Repack & Portable) – программа для про�
 magnet:?xt=urn:btih:87F720E60903C0A6AFB1CD4177D07AA93FAA16CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:87F720E60903C0A6AFB1CD4177D07AA93FAA16CB
 ```bash
 magnet:?xt=urn:btih:4BAA81352C4B664864EF576B0E86836FDC42DE44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:0098E4043598C406B56FE367EF150DA6ED95A007
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ QownNotes – менеджер заметок, позволяющий четко
 ```bash
 magnet:?xt=urn:btih:467C59619779D6DE77FE9534221CCFC718BDDB74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:467C59619779D6DE77FE9534221CCFC718BDDB74
 magnet:?xt=urn:btih:6D3600B20EC2166610D7EAFB92A2AEC68489BCBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ OmniPlayer Pro для Mac - это универсальный медиаплее
 magnet:?xt=urn:btih:98A746A455A351F8A7D8F068B82FE8958989AC15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ Aomei Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:6FDD9849829B94F346148277F635B28B975243AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ Dato поддерживает все языковые стандарты и яз
 magnet:?xt=urn:btih:25B0478F81382F691112B36C362FC92457F9713F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ Permute - очень простой видео конвертер с миним�
 ```bash
 magnet:?xt=urn:btih:69FF8C3755D4FBDBD6247A686709A650B90031FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +660,8 @@ HomeBank можно настраивать полностью под себя, �
 magnet:?xt=urn:btih:A253073A96C80CA14C426C631C2C1AB97E893F3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:A253073A96C80CA14C426C631C2C1AB97E893F3D
 ```bash
 magnet:?xt=urn:btih:1CF57FCC7DC102D1D97705699D2B8DAFB34318F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

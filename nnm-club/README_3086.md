@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:009553A4085F1F856F5172BE0ADB0DB617E5718B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ VA - Erotic Feelings: 30 Sexy Lounge Tracks For Passionated Moments (2012) [MP3|
 ```bash
 magnet:?xt=urn:btih:43673DE6E75892DEFD9731D0E52851FF65489B73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -85,6 +89,8 @@ magnet:?xt=urn:btih:43673DE6E75892DEFD9731D0E52851FF65489B73
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +121,8 @@ VA - 20 Progressive House Tunes Vol.2 (2012)
 ```bash
 magnet:?xt=urn:btih:161AC159D9C65E8A64CDD02EF5B79BBE588D5774
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +157,8 @@ The Aether Tree - Esperanza (2011) [MP3|320 кб/с]<Avant-Garde Metal / World J
 magnet:?xt=urn:btih:83447A05CCF0A0A685D9319087018F72FA406965
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +192,8 @@ DJ Kocmoc - Red Station vol.3 (31.03.2012) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:23D176E320C92D2709582BEDF48E97069BBAAA2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +224,8 @@ VA - Trance Maniacs Party: Progressive Session #35 (2012)Год: 2012
 ```bash
 magnet:?xt=urn:btih:0EA8F210B8A62DBEE3CD957A731954FE4BDCEAFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +260,8 @@ VA - Trance Ministry 2CD (2012) [MP3|320 кб/с]<Trance, Hard Trance>
 magnet:?xt=urn:btih:A4F109C7FB79AA18299CD622EE1D83B9B0BCC612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +295,8 @@ VA - Klubnye novinki Vol.60 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
 magnet:?xt=urn:btih:C664652BB3BFD26E81FA809A50262DC6A9733DF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +327,8 @@ Dj VoJo - CLUB DESIRE vol.11: Spring Mood (27.03.2012)
 ```bash
 magnet:?xt=urn:btih:5E6FDC235DD9B1351D3AAC1CACC1BC9130078662
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +363,8 @@ VA - House Vip (23.03.2012) [MP3|320 кб/с]<Electro House>
 magnet:?xt=urn:btih:228029AA41FAC340D27E99AC17CD8DDD493D68D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +397,8 @@ VA - HouseVip (22.03.12) [MP3|320 кб/с]<Electro House>
 ```bash
 magnet:?xt=urn:btih:CA64F19B724799C08378DC63E47A3D62D07470F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +433,8 @@ Cause For Effect - Progressive And Minimalist Recording (2010) [MP3|320 кб/с]
 magnet:?xt=urn:btih:D2C3B5BA047D13D26DB98FC8041FB71DDC1288AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +468,8 @@ VA - Avto Club April (2012) [MP3|320 kbps]<Club | Dance>
 magnet:?xt=urn:btih:5E780DD63FE456BA4EDFD24C2D450FA062CDE79D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +498,8 @@ Continuo Renacer - The Great Escape (2011) [MP3|320 кб/с]<Progressive Technic
 magnet:?xt=urn:btih:70D5E572B2F7330351BF705B9FD6EC3BB51DB4FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +523,8 @@ magnet:?xt=urn:btih:70D5E572B2F7330351BF705B9FD6EC3BB51DB4FC
 ```bash
 magnet:?xt=urn:btih:8E9DCAC6BC80C33E0329CF68676668B37E014514
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +559,8 @@ CD1
 magnet:?xt=urn:btih:7C54B97E9B1F5B997B2E3A81C07A574F9A55AFD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +593,8 @@ Burzum - Umskiptar (2012) [MP3|192 кб/с]<Black Metal, Ambient>
 ```bash
 magnet:?xt=urn:btih:68DDD8DBB695DB75DF541DAAE2707EFBDBEE2721
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +629,8 @@ VA - Klubnye novinki Vol.58 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
 magnet:?xt=urn:btih:9C5769EB2853CDDDDF3FB6A2BF514D55C9587F37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +664,8 @@ VA - Head Over Dancing (27.03.2012) [MP3|~200-320 кб/с]<Dance, House>
 magnet:?xt=urn:btih:3878ED0CF877911E9E251B176EC2E43FB0C81170
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +692,8 @@ magnet:?xt=urn:btih:3878ED0CF877911E9E251B176EC2E43FB0C81170
 ```bash
 magnet:?xt=urn:btih:87C58AE5B0F0FEBD6D19C8916EC849DDB2D41376
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -680,6 +722,8 @@ magnet:?xt=urn:btih:87C58AE5B0F0FEBD6D19C8916EC849DDB2D41376
 magnet:?xt=urn:btih:3AAFD6A7EE3F63B76B8FE439662BF8BD48171F18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -703,6 +747,8 @@ magnet:?xt=urn:btih:3AAFD6A7EE3F63B76B8FE439662BF8BD48171F18
 ```bash
 magnet:?xt=urn:btih:DF1FF481C059B76E34BDEDC25329E864D682C876
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -736,6 +782,8 @@ Gorod - A Perfect Absolution (2012) [FLAC|Lossless]<Technical Death Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -759,6 +807,8 @@ Gorod - A Perfect Absolution (2012) [FLAC|Lossless]<Technical Death Metal>
 ```bash
 magnet:?xt=urn:btih:7D1A6FDD411805DAE7ADD7E5BA969E35C185D3CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -792,6 +842,8 @@ VA - Trance Mutation Vol.1 (Best of Top Trance Killer) (2012) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:BF141DD1FCD3753628C3E02B577AD70A308A77F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:456F063C092A8B8EC5E8A1D19388CF3377CB2C60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Chip — первый компьютерный журнал в Европе, с�
 ```bash
 magnet:?xt=urn:btih:BF2DC879BA8672B1785E9E452D609C371FFC3AB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:BF2DC879BA8672B1785E9E452D609C371FFC3AB7
 magnet:?xt=urn:btih:B29C25FAEFF6F6944D0B8500804388BC941C6F73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Chip — первый компьютерный журнал в Европе, с�
 ```bash
 magnet:?xt=urn:btih:B98A4D372794E21052B8028812C7994313FD4F8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ UPgrade – журнал о компьютерах и компьютерных �
 magnet:?xt=urn:btih:3DD67B2A2C4C21C0B931D75F3ED9D7EC09A66DCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:3DD67B2A2C4C21C0B931D75F3ED9D7EC09A66DCD
 ```bash
 magnet:?xt=urn:btih:8AFC787BA233A76D7132B40DC2024CE347DD00DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:8AFC787BA233A76D7132B40DC2024CE347DD00DB
 magnet:?xt=urn:btih:C9AFC09EC2A961DAD0BD1D284E97BE434491365F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:C9AFC09EC2A961DAD0BD1D284E97BE434491365F
 ```bash
 magnet:?xt=urn:btih:4BB183E9FDAFDA8BBFBC5C3EF344607A039F4594
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:4BB183E9FDAFDA8BBFBC5C3EF344607A039F4594
 magnet:?xt=urn:btih:FC91DA1A64AA2C43A3340BAFF151DDECFA83DF2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:FC91DA1A64AA2C43A3340BAFF151DDECFA83DF2D
 ```bash
 magnet:?xt=urn:btih:4BE61600EDD0F76F61A245D5EA8A5909A58D4246
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:4BE61600EDD0F76F61A245D5EA8A5909A58D4246
 magnet:?xt=urn:btih:8B17B3244DB96A382D518816B0C127E87BF0CB72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:8B17B3244DB96A382D518816B0C127E87BF0CB72
 ```bash
 magnet:?xt=urn:btih:64E05B06E60F49628D8269780A5A440BDF1BCDE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:64E05B06E60F49628D8269780A5A440BDF1BCDE4
 magnet:?xt=urn:btih:B1F103A5A89AB770F10825D6CEC69E83096928F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ UPgrade – журнал о компьютерах и компьютерных �
 ```bash
 magnet:?xt=urn:btih:3B9A9BAB610C67889F5DDCD36BEDB314AE551726
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ InfoCity - Азербайджанский ежемесячный журнал о
 magnet:?xt=urn:btih:6DFE3FF3F3C251ED98417E402C31AA8C833B16EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:6DFE3FF3F3C251ED98417E402C31AA8C833B16EA
 ```bash
 magnet:?xt=urn:btih:7693DE6EF3214A3B1E38C6987EF4827B3ECCBB84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:7693DE6EF3214A3B1E38C6987EF4827B3ECCBB84
 magnet:?xt=urn:btih:6777A07524FF342DB26C85AFCA6FBE8B693AAF13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ IT Expert - журнал для профессионалов в области I
 ```bash
 magnet:?xt=urn:btih:0AE1FB562D534EF80C6CD889281EDE9F08A2C1D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ IT Expert - журнал для профессионалов в области I
 magnet:?xt=urn:btih:4655D1CA61901CC6A5A17FB24B1F07F72FB059AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ IT Expert - журнал для профессионалов в области I
 ```bash
 magnet:?xt=urn:btih:4472AFD57D7A325FBC9576372C99A921828A00F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ Linux Format — первый ежемесячный журнал, целико�
 magnet:?xt=urn:btih:1D7C37003BF1B6DA1CCD61853CED245A76B1B02C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ Linux Format — первый ежемесячный журнал, целико�
 ```bash
 magnet:?xt=urn:btih:EEDEC4DA800216DC73C6FD2CA63A1D343BD53394
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ Linux Format — первый ежемесячный журнал, целико�
 magnet:?xt=urn:btih:AC9A3956C2ADD876D62CB8302784FCFC4A07FFFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ Linux Format — первый ежемесячный журнал, целико�
 ```bash
 magnet:?xt=urn:btih:4379F7943FE2BB6477FA871C53AD05BEB651B289
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ Linux Format — первый ежемесячный журнал, целико�
 magnet:?xt=urn:btih:C264C8F6CC0006B8715CD18F085416C3D3DE295A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Linux Format — первый ежемесячный журнал, целико�
 ```bash
 magnet:?xt=urn:btih:ED004A69A55004A8E59302FF402516D4C20FD287
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

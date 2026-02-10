@@ -1,28 +1,3 @@
-###  Публикация: 1024813   (713238) от 10.06.2016
-
-Кунг-фу Панда 3 / Kung Fu Panda 3 (2016) BDRip [H.264/720p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Воссоединившись со своим давно потерянным отцом, По отправляется в тайный рай для панд, где его ожидает встреча с множеством веселых сородичей. Однако вскоре злодей Кай начинает зачистку — он уничтожает кунг-фу мастеров по всему Китаю.
-По предстоит сделать невозможное — обучить боевому искусству деревню, полную его веселых, неуклюжих собратьев, и тем самым превратить (   Читать дальше...   )Производство: Китай, США |  China Film Co., DreamWorks Animation, Oriental DreamWorksЖанр: Боевик, Комедия, Приключения, СемейныйРежиссер: Алессандро Карлони, Дженнифер ЮПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27991C88EF90FF06F912C59AF053EB33A541317D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1532452   (714409) от 19.02.2022
 
 Литл Гром / Якари: необычная судьба / Yakari, le film / Yakari, a Spectacular Journey (2020) BDRip [H.264/1080p]
@@ -43,6 +18,8 @@ magnet:?xt=urn:btih:27991C88EF90FF06F912C59AF053EB33A541317D
 ```bash
 magnet:?xt=urn:btih:BDD3059D83AB5A7F5477BEC8C979BFAF6F871002
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +45,8 @@ magnet:?xt=urn:btih:BDD3059D83AB5A7F5477BEC8C979BFAF6F871002
 magnet:?xt=urn:btih:0DD77CD518E4FA37369E9C7079749CCC6AE49ECA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +70,8 @@ magnet:?xt=urn:btih:0DD77CD518E4FA37369E9C7079749CCC6AE49ECA
 ```bash
 magnet:?xt=urn:btih:5D3A985AD9753BDE265B5C34CF1D4FD3C3F3945D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +99,8 @@ magnet:?xt=urn:btih:5D3A985AD9753BDE265B5C34CF1D4FD3C3F3945D
 magnet:?xt=urn:btih:3F4E5E13AE551975F864A5741B6FD87D58433778
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +124,8 @@ magnet:?xt=urn:btih:3F4E5E13AE551975F864A5741B6FD87D58433778
 ```bash
 magnet:?xt=urn:btih:E6F88D4FF77787F0FEED0D4CF1AA197D7FE43E9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +151,8 @@ magnet:?xt=urn:btih:E6F88D4FF77787F0FEED0D4CF1AA197D7FE43E9A
 magnet:?xt=urn:btih:07B0092805D8085FD6EAA12537967F12F9610BFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +176,8 @@ magnet:?xt=urn:btih:07B0092805D8085FD6EAA12537967F12F9610BFC
 ```bash
 magnet:?xt=urn:btih:3B935C025E9E6B038CDDA584C54F2760E40AD15C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +203,8 @@ magnet:?xt=urn:btih:3B935C025E9E6B038CDDA584C54F2760E40AD15C
 magnet:?xt=urn:btih:912464D03ADD31A0523EC1A19C0EA67DC3C02DB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +229,8 @@ magnet:?xt=urn:btih:912464D03ADD31A0523EC1A19C0EA67DC3C02DB4
 magnet:?xt=urn:btih:3F02DC6C1D10235E90D19133AA35525C3104848F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +254,8 @@ magnet:?xt=urn:btih:3F02DC6C1D10235E90D19133AA35525C3104848F
 ```bash
 magnet:?xt=urn:btih:1372C9DA9D55C0E8E14A9A05A0B77952527D20FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +283,8 @@ magnet:?xt=urn:btih:1372C9DA9D55C0E8E14A9A05A0B77952527D20FA
 magnet:?xt=urn:btih:82976D7AB2D6695A09DC8729E20D3C03E2AFBF64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +308,8 @@ magnet:?xt=urn:btih:82976D7AB2D6695A09DC8729E20D3C03E2AFBF64
 ```bash
 magnet:?xt=urn:btih:ED1070764B76799855A57868D66BF0AB237F24ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +335,8 @@ magnet:?xt=urn:btih:ED1070764B76799855A57868D66BF0AB237F24ED
 magnet:?xt=urn:btih:76056C5E8F9D4EE61E816FA5105D7815F047B4BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +360,8 @@ magnet:?xt=urn:btih:76056C5E8F9D4EE61E816FA5105D7815F047B4BC
 ```bash
 magnet:?xt=urn:btih:FDD142700BE9F1F1315422B14C4DE48BE742D285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +387,8 @@ magnet:?xt=urn:btih:FDD142700BE9F1F1315422B14C4DE48BE742D285
 magnet:?xt=urn:btih:74B09C7CA4D0841863102D31565EB7CCE69B77EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +412,8 @@ magnet:?xt=urn:btih:74B09C7CA4D0841863102D31565EB7CCE69B77EF
 ```bash
 magnet:?xt=urn:btih:A1D43C01FBBC1843F10473368529B7F7EFC0A5DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +439,8 @@ magnet:?xt=urn:btih:A1D43C01FBBC1843F10473368529B7F7EFC0A5DD
 magnet:?xt=urn:btih:D4FD39AEDDED06A026A83A63E8250646BF7374D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +464,8 @@ magnet:?xt=urn:btih:D4FD39AEDDED06A026A83A63E8250646BF7374D4
 ```bash
 magnet:?xt=urn:btih:2B4CE61EF60FCF630F231031C39BB13CD3C03436
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +491,8 @@ magnet:?xt=urn:btih:2B4CE61EF60FCF630F231031C39BB13CD3C03436
 magnet:?xt=urn:btih:89B566000DF73A23F4D1148B3EBB5C42B6AA1CBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +516,8 @@ magnet:?xt=urn:btih:89B566000DF73A23F4D1148B3EBB5C42B6AA1CBE
 ```bash
 magnet:?xt=urn:btih:845EF293C98CF9DA20E577A529AE8820641FD237
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +543,8 @@ magnet:?xt=urn:btih:845EF293C98CF9DA20E577A529AE8820641FD237
 magnet:?xt=urn:btih:06C86D8FF5A6E2F42D4CCD5D03B8E56E970FCBD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +568,8 @@ magnet:?xt=urn:btih:06C86D8FF5A6E2F42D4CCD5D03B8E56E970FCBD7
 ```bash
 magnet:?xt=urn:btih:E0D8BCF02590D2830E781DF8E4C90EB335C0AF38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +595,8 @@ magnet:?xt=urn:btih:E0D8BCF02590D2830E781DF8E4C90EB335C0AF38
 magnet:?xt=urn:btih:F4121CC0F83D6E3FEC5A3DAF16544753CF25CCD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +620,8 @@ magnet:?xt=urn:btih:F4121CC0F83D6E3FEC5A3DAF16544753CF25CCD1
 ```bash
 magnet:?xt=urn:btih:C486F504F29D5CCE4DAB122FB9BDBF910C965BC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +647,34 @@ magnet:?xt=urn:btih:C486F504F29D5CCE4DAB122FB9BDBF910C965BC7
 ```bash
 magnet:?xt=urn:btih:7D0A875F40DBC03542D15661A022416DCF2F8011
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285187   (722430) от 25.02.2019
+
+Ральф против интернета / Ralph Breaks the Internet (2018) UHD BDRip [H.265/2160p-LQ] [10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722430.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз Ральф и Ванилопа фон Кекс выйдут за пределы зала игровых автоматов и отправятся покорять бескрайние просторы Интернета, который может и не выдержать сокрушительного обаяния громилы.Производство: США, Walt Disney Animation Studios, Walt Disney PicturesЖанр: Мультфильм, Приключения, Комедия, Семейный, ФентезиРежиссер: Фил Джонстон, Рич МурПеревод: Дублированный (iTunes)Субтитры: Русские(Forced, Full), английские(Full,SDH)Продолжительность: 01:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AE6521E9A91FC28393758CAB8B6EE32C617D258
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

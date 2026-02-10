@@ -27,6 +27,8 @@ Black Box - Dreamland (1990) [APE|Lossless]<Euro House>
 magnet:?xt=urn:btih:80CA9BC7EADCD91128BF782FFBB8784ADA26E9A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -53,6 +55,8 @@ magnet:?xt=urn:btih:80CA9BC7EADCD91128BF782FFBB8784ADA26E9A4
 ```bash
 magnet:?xt=urn:btih:A5559EB02784EC440EADED53435DEAA0BAB8BE82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -87,6 +91,8 @@ Hot Chocolate - Their Greatest Hits (1993) [FLAC|Lossless]<Pop Rock, Ballad, Dis
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -110,6 +116,8 @@ Hot Chocolate - Their Greatest Hits (1993) [FLAC|Lossless]<Pop Rock, Ballad, Dis
 ```bash
 magnet:?xt=urn:btih:D490F287C7B0B2A40D01B5E18A9557E778B30CAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -137,6 +145,8 @@ magnet:?xt=urn:btih:D490F287C7B0B2A40D01B5E18A9557E778B30CAC
 magnet:?xt=urn:btih:73EF3F74FC638BA6761C9305FAC4275D5B1F073F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -160,6 +170,8 @@ magnet:?xt=urn:btih:73EF3F74FC638BA6761C9305FAC4275D5B1F073F
 ```bash
 magnet:?xt=urn:btih:79D304186B67E44010108967C1F67D6B26FB769D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +206,8 @@ Marica Hiraga with Manhattan Jazz Quintet - Close to Bacharach (2008) [MP3|320 �
 magnet:?xt=urn:btih:003744F62434AAFE62C9D9ED7DE4A66E38DF620D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +232,8 @@ magnet:?xt=urn:btih:003744F62434AAFE62C9D9ED7DE4A66E38DF620D
 magnet:?xt=urn:btih:94DC5270F55925B6D8620EF4856F380597218ACB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +257,8 @@ magnet:?xt=urn:btih:94DC5270F55925B6D8620EF4856F380597218ACB
 ```bash
 magnet:?xt=urn:btih:1FD4D5B67B78081769B7D533E35BD990406F17A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +286,8 @@ magnet:?xt=urn:btih:1FD4D5B67B78081769B7D533E35BD990406F17A3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +312,8 @@ magnet:?xt=urn:btih:1FD4D5B67B78081769B7D533E35BD990406F17A3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ magnet:?xt=urn:btih:1FD4D5B67B78081769B7D533E35BD990406F17A3
 ```bash
 magnet:?xt=urn:btih:66984FC3C07CF03AE39BB1E153D98776597D3791
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +373,8 @@ Sunny Crimea & Physical Illusion - Soulful Nights LP (2012) [MP3|320 кб/с]<Dr
 magnet:?xt=urn:btih:D591D99421B391351D4C4033ACD43F431D45E9B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +408,8 @@ Volkerball - Weichen Und Zunder (2012) [MP3|224 кб/с]<Industrial Metal>
 magnet:?xt=urn:btih:47B2CA35806D19C41B39E92BB5A4D98A3F2A676C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +433,8 @@ magnet:?xt=urn:btih:47B2CA35806D19C41B39E92BB5A4D98A3F2A676C
 ```bash
 magnet:?xt=urn:btih:4A326604057C89DE8562A80B7FA78CDDCF3CC730
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +469,8 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #81 (10.04.2012) [MP3|320 кб/с
 magnet:?xt=urn:btih:4CEB73B36D68C727157C57E67842E778D6BB735F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +497,8 @@ Pelican - Ataraxia/Taraxis (2012) [MP3|320 кб/с]<Instrumental Sludge / Post-M
 ```bash
 magnet:?xt=urn:btih:9564230BC0E89FA2BFFFBA280E285FC929D3E65D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +533,8 @@ Hugh Coltman - Stories From The Safe House (2008) [FLAC|Lossless]<Acoustic, Pop 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +559,8 @@ VA - Хиты на радио клубнячек и попса vol.3 (2012) [MP3
 ```bash
 magnet:?xt=urn:btih:DE9011DDB762F9325AF8FA35383F3512BF9D70CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +589,8 @@ magnet:?xt=urn:btih:DE9011DDB762F9325AF8FA35383F3512BF9D70CB
 ```bash
 magnet:?xt=urn:btih:E6267521005DE107F1D8F12E55A7E34D3D842A28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +625,8 @@ VA - Хиты на радио клубнячек и попса vol.4 (2012) [MP3
 magnet:?xt=urn:btih:96FC54D4FA477278E80AF18CD46A69DF3F264271
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +650,8 @@ magnet:?xt=urn:btih:96FC54D4FA477278E80AF18CD46A69DF3F264271
 ```bash
 magnet:?xt=urn:btih:3F316618C859C78AE6D55E4B5FD2BBC9E35131DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +677,8 @@ magnet:?xt=urn:btih:3F316618C859C78AE6D55E4B5FD2BBC9E35131DC
 magnet:?xt=urn:btih:3D468344EAB640FDD4C905B8E3C236F533212055
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +702,8 @@ magnet:?xt=urn:btih:3D468344EAB640FDD4C905B8E3C236F533212055
 ```bash
 magnet:?xt=urn:btih:11529345C6B18FCB6ADDCD00AD3A8678EC355A0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -690,6 +738,8 @@ magnet:?xt=urn:btih:11529345C6B18FCB6ADDCD00AD3A8678EC355A0B
 magnet:?xt=urn:btih:C25A8FC1DEE3BCEC8744D9872923DEE8883AF927
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -722,6 +772,8 @@ VA - Звездный клубный драйв (2012) [MP3|160-256 кб/с]<Dan
 ```bash
 magnet:?xt=urn:btih:CD70FB350582EFDFDB0A23252ADB9851AE164058
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

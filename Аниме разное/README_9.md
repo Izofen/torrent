@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1622848DF24850B3A53AFA75680A23AC048545F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Noir | Нуар [2001, TV, 26] BDRip 1080p raw(в данной раздаче Т
 magnet:?xt=urn:btih:CF650777CD6D1501F449AA1A2DDD61F44F23A02A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:CF650777CD6D1501F449AA1A2DDD61F44F23A02A
 ```bash
 magnet:?xt=urn:btih:453FF2043EE14ADDA0EE21FE75BD0906C5DA471A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ Kotonoha no Niwa / The Garden of Words / Сад изящных слов [2013, M
 magnet:?xt=urn:btih:B4131C8E7AE6A402406F8DD643A0250901A392F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Macross XX | Macross 20th | Макросс ХХ [2002, OVA, 1 из 1] DVDRip 480
 ```bash
 magnet:?xt=urn:btih:120091B3E055142CFB2DED10087F895470AE8C0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:120091B3E055142CFB2DED10087F895470AE8C0F
 magnet:?xt=urn:btih:A984D8EE8A02C607572466D3475912ACD23943C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:A984D8EE8A02C607572466D3475912ACD23943C0
 ```bash
 magnet:?xt=urn:btih:E4104C85D62CD2C0B73D890C589CFC81EAA6247F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:E4104C85D62CD2C0B73D890C589CFC81EAA6247F
 magnet:?xt=urn:btih:C172720CFC0BCEDAC80C57E1312A5EA2E4610D7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:C172720CFC0BCEDAC80C57E1312A5EA2E4610D7B
 ```bash
 magnet:?xt=urn:btih:F8DD89F7F92C120508D5D5B9035B18DFC7CC22AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:F8DD89F7F92C120508D5D5B9035B18DFC7CC22AE
 magnet:?xt=urn:btih:689FC1D87D8AC8A3EFB68808A4EEBF76CBCD47B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:689FC1D87D8AC8A3EFB68808A4EEBF76CBCD47B3
 ```bash
 magnet:?xt=urn:btih:8355F2DB5548F85BE8526CF3CE67314A448F4718
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:8355F2DB5548F85BE8526CF3CE67314A448F4718
 magnet:?xt=urn:btih:FDCF7DBF5FF11AC2B326969ACC9D3FBB0BE7B0EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:FDCF7DBF5FF11AC2B326969ACC9D3FBB0BE7B0EB
 ```bash
 magnet:?xt=urn:btih:EAB906D17733EE96C6D625F6BF125B46E904CF7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ Mnemosyne: Mnemosyne no Musume-tachi / Rin: Daughters of Mnemosyne / Дочер�
 magnet:?xt=urn:btih:7022D7FAF70835B720019CAE1498DDF300C5C932
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:7022D7FAF70835B720019CAE1498DDF300C5C932
 ```bash
 magnet:?xt=urn:btih:6127930F21244ECA87AE2FC349CCD3C959C67D54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ Krokodil Gena / Крокодил Гена [1969,OVA]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ Haibane Renmei / Charcoal Feathers Federation / Союз Серокрылых [2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ Eiga Koe no Katachi | A Silent Voice | Форма голоса [2016, Movie] BDR
 ```bash
 magnet:?xt=urn:btih:79BFB4DA929384190D062AFD0FB5B2E32AA16327
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ Trinity Blood | Кровь Триединства [2010, TV, 24] BDRip 1080p Hi1
 magnet:?xt=urn:btih:4D1E0BD9C17E27FB83431EE93151478D5483F5C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ Koukaku Kidoutai / Ghost in the Shell / Призрак в доспехах [1995
 ```bash
 magnet:?xt=urn:btih:91AAA3D58587687E3C87FEF3BE328A13C6A5B74F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ Serial Experiments Lain / Эксперименты Лэйн [1998 TV, 13 из 13
 magnet:?xt=urn:btih:37030E69D8403B79209E945B7747480B4D611FB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ Ling Jian Zun | Spirit Sword Sovereign | Владыка духовного ме�
 ```bash
 magnet:?xt=urn:btih:5ABB0627601A7C3BB47E760735B50D53B98723B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ Gekijouban Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer the Movie: Mugen Tr
 magnet:?xt=urn:btih:2BD384675A2BF969B38FD8B3D3E4C5351A13C60B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ Da Shen Xian | Wo Shi Da Shenxian | I Am A Great God | I'm immortal! | Я вел
 ```bash
 magnet:?xt=urn:btih:0D6057A9E71CE7BDC589A80616CE32648BA76645
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ Shan He Jian Xin | Thousand Autumns | Душа меча Гор и Рек | Ме�
 magnet:?xt=urn:btih:392F490A1DCC6CBC21E5B21DF004DA66C82B9ECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ Ajin OVA | Полулюди OVA [2016, OVA, 3 из 3] BDRemux 1080p raw
 ```bash
 magnet:?xt=urn:btih:801778F58FAD630E0E7DB790B9179DC619E3F3A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

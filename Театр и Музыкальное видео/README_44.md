@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Michael Jackson - Remember The Time (1992) DVDRip [720p]
 magnet:?xt=urn:btih:FA72E3A32D328F04F23B5A698F461765E9E6214C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Download Festival — это ежегодный трехдневный рок-ф
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ The Who - Tommy: Live With Special Guests 1989 (2006) DVDRip
 magnet:?xt=urn:btih:564FE3B06341288B259DD8C4944FF51FAE01F8B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ VA - Зимний марафон № 215: Новогоднее Веселье (2
 magnet:?xt=urn:btih:E85FEA54984787CFCF455FC5976F77CD24B54BAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:E85FEA54984787CFCF455FC5976F77CD24B54BAC
 magnet:?xt=urn:btih:FA958615FFC50B8B872D4001C6CCA48417FDA7E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ Cat Music - основной игрок в румынской музыкальн
 ```bash
 magnet:?xt=urn:btih:F4FE240FD699D810D2DB62C129B8839C13639161
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -204,6 +218,8 @@ Within Temptation — нидерландская симфоник-метал-г�
 ```bash
 magnet:?xt=urn:btih:8DC7C9662600525ACF37B56A4DD7C550653FC457
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Erik Truffaz Quartet / El tiempo de la Revolucion (2012) DVD5
 magnet:?xt=urn:btih:956A286ECD8C76EA22A0D91ECB816453EF329A04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:956A286ECD8C76EA22A0D91ECB816453EF329A04
 ```bash
 magnet:?xt=urn:btih:9F3A733CEF9D9CCD7D53CE92E3DC4EBC79D0AD10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +315,8 @@ HammerFall — группа из Швеции, играющая в стилях 
 magnet:?xt=urn:btih:55F80ACDF9BD02D819A5274DACA14A9EBAB19B1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +346,8 @@ Unheilig (читается «унха́йлихь», с нем. — «неч
 ```bash
 magnet:?xt=urn:btih:6BCD9EE9825E10121791BBFD517B848BC8806334
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +382,8 @@ Psychomania - представляет собой редкий и уникаль
 magnet:?xt=urn:btih:576A8FF5B4DACBC827D1564482272A4C949C1E26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +407,8 @@ magnet:?xt=urn:btih:576A8FF5B4DACBC827D1564482272A4C949C1E26
 ```bash
 magnet:?xt=urn:btih:7C7499B651361459C05098AE5611F59BCE953A84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +441,8 @@ magnet:?xt=urn:btih:7C7499B651361459C05098AE5611F59BCE953A84
 magnet:?xt=urn:btih:A5EF941A38047D1D1A17B85FE945CF17035EF368
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +467,8 @@ magnet:?xt=urn:btih:A5EF941A38047D1D1A17B85FE945CF17035EF368
 magnet:?xt=urn:btih:EE541757C916E3988FBB04FC0EFDE1373D4A6CDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +492,8 @@ magnet:?xt=urn:btih:EE541757C916E3988FBB04FC0EFDE1373D4A6CDC
 ```bash
 magnet:?xt=urn:btih:72BC80F321C4FEADF4DF5133CB512998BE123C34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +529,8 @@ magnet:?xt=urn:btih:72BC80F321C4FEADF4DF5133CB512998BE123C34
 magnet:?xt=urn:btih:DBC7BDE6362DFE159C623A22CD2D099ADFA5168E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +556,8 @@ magnet:?xt=urn:btih:DBC7BDE6362DFE159C623A22CD2D099ADFA5168E
 magnet:?xt=urn:btih:7E718B8E3185BED405FA7F5495EA07915B5E0322
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +582,8 @@ magnet:?xt=urn:btih:7E718B8E3185BED405FA7F5495EA07915B5E0322
 ```bash
 magnet:?xt=urn:btih:7F56C4451713B9E60051F19BF33015483F561692
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +612,8 @@ Top Of The Pops 70s (vol.3) (2009) DVDRip
 magnet:?xt=urn:btih:EDAB02754E1747B42CC5D0175CA9DD0AA9634088
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +637,8 @@ Gregorian - Pure Chants (2021) BDRip [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:11D20ABD93AB1902BCFEB521F632098930C8F946
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +667,8 @@ VA - Зимний марафон № 214: Дискотека Уходящего 
 magnet:?xt=urn:btih:AC6EF2C37BD5550041D728025EF14ABB146DC593
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +693,8 @@ magnet:?xt=urn:btih:AC6EF2C37BD5550041D728025EF14ABB146DC593
 magnet:?xt=urn:btih:A25C5A30EEACCE75D3881335EAAAD4D85760157A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,6 +718,8 @@ magnet:?xt=urn:btih:A25C5A30EEACCE75D3881335EAAAD4D85760157A
 ```bash
 magnet:?xt=urn:btih:1570F3E7C4166A43B989E38364E5074F6BFEF748
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -700,6 +750,8 @@ HammerFall — группа из Швеции, играющая в стилях 
 ```bash
 magnet:?xt=urn:btih:32E3012457584CC6012E58C555A399E1849362D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

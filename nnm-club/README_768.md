@@ -19,6 +19,8 @@ Imperator: Rome - новая грандиозная стратегия от Para
 magnet:?xt=urn:btih:35BCE3A0850AFD3EE322DBAEDB0C3CCB42B564DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:35BCE3A0850AFD3EE322DBAEDB0C3CCB42B564DA
 ```bash
 magnet:?xt=urn:btih:DFA230508A03D85C79C0CB86FF506811B47F078D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Days Gone (2021) [Ru/Multi] (1.08/dlc) Repack seleZen [Remastered]
 magnet:?xt=urn:btih:74AB2D8805347DC73F494F1C924CF326BBDC15D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:74AB2D8805347DC73F494F1C924CF326BBDC15D6
 ```bash
 magnet:?xt=urn:btih:03275951CAB753D187344912D5C0FA3A40E3A8E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ South of Midnight (2025) [Ru/Multi] (1.2.0 185 531) Repack Decepticon
 magnet:?xt=urn:btih:42065530C951CAE36AEBB9D594A57D22257726C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:42065530C951CAE36AEBB9D594A57D22257726C9
 ```bash
 magnet:?xt=urn:btih:F9BB07748D07308A613AEAC4FB6E7FBCCC0BDB2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:F9BB07748D07308A613AEAC4FB6E7FBCCC0BDB2B
 magnet:?xt=urn:btih:42E788C2C350D2DC5F1C77655A437647809B4255
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:42E788C2C350D2DC5F1C77655A437647809B4255
 ```bash
 magnet:?xt=urn:btih:4C9E2F503ECC2840C68960B57A0F3D4EA9F8DAAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.37915) License GOG [Digita
 magnet:?xt=urn:btih:5B4BD5622E5A88BEEB05D13BE8A544A7955CBC80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:5B4BD5622E5A88BEEB05D13BE8A544A7955CBC80
 ```bash
 magnet:?xt=urn:btih:EF020918DD5234C3D6A46312C659E2D7B3282F01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:EF020918DD5234C3D6A46312C659E2D7B3282F01
 magnet:?xt=urn:btih:71F72277A37626E9E6CCB638A94B2FA26A21B79A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ BIOMORPH (2024) [Ru/Multi] (2.0.27583) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:2DD8391894EC20890AD25142FFC00562D98CB609
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:2DD8391894EC20890AD25142FFC00562D98CB609
 magnet:?xt=urn:btih:E3FA0AC57B0EE0E29BCEEB14A85325517541F41E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:E3FA0AC57B0EE0E29BCEEB14A85325517541F41E
 ```bash
 magnet:?xt=urn:btih:042A954C5DB352109B2B9B92B25D0B6C75721FCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:042A954C5DB352109B2B9B92B25D0B6C75721FCB
 magnet:?xt=urn:btih:49BB3F6C8A41B6F515FA59078AA9049FBCCF0C68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Udemy, Christ Raharja | Cloning Yourself with AI: Create AI Version of Yourself 
 ```bash
 magnet:?xt=urn:btih:36BFE729984BFB6ABF46527984619011D138EA1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ IPTV Pro v9.0.15 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:29A2FBF17CC348D6F1E00474B40766F1BB9A9FBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ magnet:?xt=urn:btih:29A2FBF17CC348D6F1E00474B40766F1BB9A9FBA
 ```bash
 magnet:?xt=urn:btih:826DDB834760860B8B6FBA9D932E4D417225DE54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Capture One - один из лучших профессиональных кон
 magnet:?xt=urn:btih:819FA83DF644EDD515954647A45D32BCBDF625E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ magnet:?xt=urn:btih:819FA83DF644EDD515954647A45D32BCBDF625E6
 ```bash
 magnet:?xt=urn:btih:D7F2D5B45058D1927F265EECEB5173E2241CEB0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Imperator: Rome - новейшая масштабная стратегия от 
 magnet:?xt=urn:btih:82D03DC0D76851C4FAD81EA2405E4CA873B6D253
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ magnet:?xt=urn:btih:82D03DC0D76851C4FAD81EA2405E4CA873B6D253
 ```bash
 magnet:?xt=urn:btih:03462B96716622C9CAC3EC89C7C2E0F0EF644441
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:03462B96716622C9CAC3EC89C7C2E0F0EF644441
 magnet:?xt=urn:btih:24F8175F1122C4D6C5EE87A668EF68D3B4482981
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ magnet:?xt=urn:btih:24F8175F1122C4D6C5EE87A668EF68D3B4482981
 ```bash
 magnet:?xt=urn:btih:E5E41FE5D03F4F8124835A445D86565811600DE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ magnet:?xt=urn:btih:E5E41FE5D03F4F8124835A445D86565811600DE4
 magnet:?xt=urn:btih:EC41F2127203E14CDCFD2F4CFBEB823ABA581054
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ magnet:?xt=urn:btih:EC41F2127203E14CDCFD2F4CFBEB823ABA581054
 ```bash
 magnet:?xt=urn:btih:E365A49D726B264ABA5FF016E600174AF19B8A78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

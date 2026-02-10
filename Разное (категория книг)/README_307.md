@@ -1,3 +1,29 @@
+###  Публикация: 1248093   (444515) от 19.09.2018
+
+В.Г. Горбачёва (сост.) и др. | О духовной жизни и молитве Иисусовой (2017) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444515.jpg" />
+</div>
+
+
+###  Подробнее
+
+В предлагаемом читателю сборнике собраны письма святителя Феофана Затворника, написанные им к схиигумену Герману (Гомзину) и к валаамскому схимонаху Агапию (Молодяшину), а также письма о. Агапия к о. Герману и наставления «О молитве Иисусовой, словесно, умно и сердечно совершаемой», составленные схимонахом Агапием и его сподвижниками, просмотренные и исправленные (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A17FB83373242AC767855436CD760A5DEDDA7175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943522   (444612) от 05.10.2015
 
 Игорь Прокопенко | Теории заговоров. Кто правит миром? (2015) [FB2]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:66CB8C9302DBE69E91B6E810C8C84D781F5D0CA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:66CB8C9302DBE69E91B6E810C8C84D781F5D0CA7
 magnet:?xt=urn:btih:DEB674631D2DC9AC1F2955A549F5A866CFE3E7BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:DEB674631D2DC9AC1F2955A549F5A866CFE3E7BB
 ```bash
 magnet:?xt=urn:btih:7215EA6F8A1969FD43870E6314133B3106437DD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +128,8 @@ magnet:?xt=urn:btih:7215EA6F8A1969FD43870E6314133B3106437DD1
 magnet:?xt=urn:btih:6276A4DA34AD2A1CC1172D44723B6EE1457CBCD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:6276A4DA34AD2A1CC1172D44723B6EE1457CBCD9
 ```bash
 magnet:?xt=urn:btih:7940A3EB10DB50472DFB530FFC09049A0020276A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:7940A3EB10DB50472DFB530FFC09049A0020276A
 magnet:?xt=urn:btih:8BD116F17C6CC31DF70A7EFDEDC3B46152112570
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:8BD116F17C6CC31DF70A7EFDEDC3B46152112570
 ```bash
 magnet:?xt=urn:btih:4B76A846A6A154F9CE1DB2F82F6CFE5C44FB9419
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:4B76A846A6A154F9CE1DB2F82F6CFE5C44FB9419
 magnet:?xt=urn:btih:084B9764052A10C30FCF52F004D24874ED6F40C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:084B9764052A10C30FCF52F004D24874ED6F40C2
 ```bash
 magnet:?xt=urn:btih:174DC8415DF0197D426256DF317906DCBC8AEB95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:174DC8415DF0197D426256DF317906DCBC8AEB95
 magnet:?xt=urn:btih:F43C730C1B2E21DA769E5FDA54C7F4F3D341BDBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:F43C730C1B2E21DA769E5FDA54C7F4F3D341BDBE
 ```bash
 magnet:?xt=urn:btih:BBE240831C20423766A772AF979C9E51FFD532F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:BBE240831C20423766A772AF979C9E51FFD532F6
 magnet:?xt=urn:btih:CADD41C4E299C117A144C651A7A8F6E09E88CA19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:CADD41C4E299C117A144C651A7A8F6E09E88CA19
 ```bash
 magnet:?xt=urn:btih:7D622915E2F863DDD5E3218D2FF7237AF8F21873
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:7D622915E2F863DDD5E3218D2FF7237AF8F21873
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:7D622915E2F863DDD5E3218D2FF7237AF8F21873
 ```bash
 magnet:?xt=urn:btih:AC252A61C01D53CDDCC8E154DB82A859ECD5CD14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:AC252A61C01D53CDDCC8E154DB82A859ECD5CD14
 magnet:?xt=urn:btih:8BFF03B943444B77C5061F162E4EFC03A0FF770A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:8BFF03B943444B77C5061F162E4EFC03A0FF770A
 magnet:?xt=urn:btih:C9286A7236FB423BF459257FA2133E615A4B3ED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:C9286A7236FB423BF459257FA2133E615A4B3ED1
 ```bash
 magnet:?xt=urn:btih:5984077232087D06C612263DC8DE49F1D1F053ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +524,8 @@ magnet:?xt=urn:btih:5984077232087D06C612263DC8DE49F1D1F053ED
 magnet:?xt=urn:btih:E7AA70DE460579AF6CCBCD13CC1ABED2D2D450D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:E7AA70DE460579AF6CCBCD13CC1ABED2D2D450D4
 magnet:?xt=urn:btih:1DFC86A4CC32E0718C288D50B5399EC871329072
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:1DFC86A4CC32E0718C288D50B5399EC871329072
 ```bash
 magnet:?xt=urn:btih:A7BA0BA0D458F09001DBB7D2B35E377EA5EAC990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:A7BA0BA0D458F09001DBB7D2B35E377EA5EAC990
 magnet:?xt=urn:btih:B1A65FCFD6FC34C86064B4F19251C4BE370CF2F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:B1A65FCFD6FC34C86064B4F19251C4BE370CF2F1
 ```bash
 magnet:?xt=urn:btih:30E573B48EA554C482BADD6925DE53CE4339B35F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:30E573B48EA554C482BADD6925DE53CE4339B35F
 magnet:?xt=urn:btih:6C983D8BC3150473BA182771AE5FDC1BCA3C3DF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,29 +683,7 @@ magnet:?xt=urn:btih:6C983D8BC3150473BA182771AE5FDC1BCA3C3DF0
 magnet:?xt=urn:btih:9E9D10EDD2B74677AE4574869F1B9A434A7281E3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943584   (446643) от 04.10.2015
-
-Джон Кехо | Практический курс счастья (2015) [FB2]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Счастье — одна из главных потребностей человека, но как же мало мы знаем о нем! Что представляет собой это состояние? Чем оно вызывается? От чего оно пропадает? Можно ли пребывать в нем всегда? Вопросов масса, но почти никто не знает ответов на них и универсального рецепта счастья. В своей новой книге, полной реальных историй из жизни, автор бестселлера «Подсознание (   Читать дальше...   )Жанр: ЭзотерикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C62AD4DE9BDC3F0EC34FE1F84C788280D8AF50AB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

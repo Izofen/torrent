@@ -22,6 +22,8 @@ The Too Bad Jims - Over the Hill (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:BAC10307C7300079C4237943458D213D943A0F45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Todd Shuffler - Stoned and Lonesome (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:8DE58355613BE765ECD378A2BF2B45DB2973711E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:8DE58355613BE765ECD378A2BF2B45DB2973711E
 magnet:?xt=urn:btih:D7F513DD7B1B21B471CDA9729DF5FCE997C3A35C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:D7F513DD7B1B21B471CDA9729DF5FCE997C3A35C
 ```bash
 magnet:?xt=urn:btih:88A17599721A2C0991D00F3BBD175B38AD1D8B3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:88A17599721A2C0991D00F3BBD175B38AD1D8B3E
 magnet:?xt=urn:btih:840B79CC420CCC0E7952EA53B53AEF351912F0A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ HiPER Calc Pro v11.1.1 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A829A66496DB0ACFDA65B468B4FBF3B654B6A995
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:A829A66496DB0ACFDA65B468B4FBF3B654B6A995
 magnet:?xt=urn:btih:DA77A5484D7E36722F854F96751A46CE9CB32514
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ File & Image Uploader - удобная и просто незаменимая п
 magnet:?xt=urn:btih:90A198DD53F9D72F71C91CE2279A3B93C21C3739
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Quest 12 LXCQ предлагает вам современный взгляд н
 ```bash
 magnet:?xt=urn:btih:938ED68616098E1868CEDC45E674919A1D3B2EA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ CD 1. «Задержите Поезд», 1997
 magnet:?xt=urn:btih:2F3DEC2749EB197F59658BF183160D1C3634A991
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:2F3DEC2749EB197F59658BF183160D1C3634A991
 ```bash
 magnet:?xt=urn:btih:2081AB4F05E750F4884E3B4FD715DF58C7FB8926
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:2081AB4F05E750F4884E3B4FD715DF58C7FB8926
 magnet:?xt=urn:btih:FC6C2DD3EDC1311797195C5C780833039CD94791
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:FC6C2DD3EDC1311797195C5C780833039CD94791
 ```bash
 magnet:?xt=urn:btih:8CE7613E2EE654629BF658D74D4E2FDE2B0EAD99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:8CE7613E2EE654629BF658D74D4E2FDE2B0EAD99
 magnet:?xt=urn:btih:3C91F099E5D7697140E1025775460A948E232245
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ QownNotes – менеджер заметок, позволяющий четко
 magnet:?xt=urn:btih:2D4EA1A4A22EE4A94A373300AA1BDF990E70313B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:2D4EA1A4A22EE4A94A373300AA1BDF990E70313B
 ```bash
 magnet:?xt=urn:btih:8B44625299C92AD948A674EEC96EA434CC3762E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ VA - Flashback Anthology Vol. 3 (2022) [OGG Vorbis|480 Kbps] <Electronic, Italo-
 magnet:?xt=urn:btih:C59274E77667F0FAE30F5E7491FCEBC8466C1AB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:C59274E77667F0FAE30F5E7491FCEBC8466C1AB6
 ```bash
 magnet:?xt=urn:btih:BE44CEEBCF5E3EA52027DB2796FB7896605C937D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ Arthemis - Blood Fury Domination (2017) Japanese Edition [FLAC|Lossless|image + 
 magnet:?xt=urn:btih:6908AB9742036FA085D6FE355667975321E12A52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ Enrico Pieranunzi - The Complete Remastered Recordings On Black Saint & Soul Not
 ```bash
 magnet:?xt=urn:btih:4BAC4313405B94896F1C8D535CC8C10708760495
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +566,8 @@ Nomy - Saviour (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:0D7EC94C270C2E6BE7E12E13B14FFE1FF1DECFB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ Nothing More - CARNAL (Deluxe) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 ```bash
 magnet:?xt=urn:btih:4CA6E0CBDE8ED7D9DC7B29D3B7D297C025FDD8E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ magnet:?xt=urn:btih:4CA6E0CBDE8ED7D9DC7B29D3B7D297C025FDD8E5
 magnet:?xt=urn:btih:0C1F548A5F6F1B92094F32188C038C1AECF4F0A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +652,8 @@ Mumford & Sons - Rushmere (2025) [FLAC 16,24/44,1,96|Lossless|WEB-DL|tracks] <Fo
 ```bash
 magnet:?xt=urn:btih:75AD847C6CAFC2EFEFD27BC4546653266F230C35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +682,8 @@ Chamber Mage - By Light Of Emerald Gods (2025) [FLAC|Lossless|WEB-DL|tracks] <He
 magnet:?xt=urn:btih:1FA04973AFD16F95A7CC5E2277595827D7B2AC30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +710,8 @@ Janiva Magness - Back For Me (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:9D3DA68B7A16E64078F5FFFC153060B11193B73D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

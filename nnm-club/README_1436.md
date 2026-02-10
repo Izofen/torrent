@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Cozy Magnifier & Microscope Plus v6.4.1 Mod by derrin [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9DA7336C728E53E860079E221CA5F9FBA7684268
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Shadow Corridor 2 (2024) [Multi] (1.14.1) Scene Tenoke
 magnet:?xt=urn:btih:3C63A5C0AADAB0A331F62083393E0EDF519D45C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Easy Red 2 - шутер от первого лица с элементами с�
 ```bash
 magnet:?xt=urn:btih:0FD53D570C0A985C5A42EA6BF73E36834681A951
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ DNS Changer - это интуитивно понятное и удобное п�
 magnet:?xt=urn:btih:9B5890A693939D6CB32A716D6490BDF145F7EB9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Two Falls (Nishu Takuatshina) (2024) [Multi] (1.0) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:CB09AC80E04B70D89A843544288B9D904CEA86B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:CB09AC80E04B70D89A843544288B9D904CEA86B8
 magnet:?xt=urn:btih:78BA273CDAA7AC159D010D9430B123DE7CF404D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ The Life and Suffering of Sir Brante – это нарративная роле�
 ```bash
 magnet:?xt=urn:btih:DD509499F53F839A47E7644CD75F44C9B33A1568
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:DD509499F53F839A47E7644CD75F44C9B33A1568
 magnet:?xt=urn:btih:B16A893A6E830E6108B12440B60EAFD9F5115CEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2024.11.08 [Ru]
 ```bash
 magnet:?xt=urn:btih:B7933CDA2181A70A39B6C89002CF3801B5AA3E90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:B7933CDA2181A70A39B6C89002CF3801B5AA3E90
 magnet:?xt=urn:btih:66D91B8D303578FAF0A4DBABE6A336077E1E3D3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Chicken Police - это приключение с рассказами, слож
 magnet:?xt=urn:btih:C251A58EB0AB4FB314C63694B5988CF613246AF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:C251A58EB0AB4FB314C63694B5988CF613246AF7
 ```bash
 magnet:?xt=urn:btih:5B0FFC99014230013C67A1BCBA951B6F15C75C39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ GoodbyeDPI 0.2.3rc3 Launcher 9.2 [Ru/En]
 magnet:?xt=urn:btih:695C02A51E873F08CD7CD4CE5F81AA30DFFADF7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Shadowsocks – это сетевой протокол шифрования пе
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Shadowsocks – это сетевой протокол шифрования пе
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Tomb Raider 1-3 Remastered Starring Lara Croft - ностальгический 
 ```bash
 magnet:?xt=urn:btih:1A2C6EFB74E241D1015663DB1BD457E6FDC96B99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:1A2C6EFB74E241D1015663DB1BD457E6FDC96B99
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:1A2C6EFB74E241D1015663DB1BD457E6FDC96B99
 ```bash
 magnet:?xt=urn:btih:0B8F9E7F249BB2B408396D745A18D21B2FF0C1F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Kaspersky Free – это обновление бесплатной версии
 magnet:?xt=urn:btih:40B856F0314209FB281D7044E4BD158796321179
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:40B856F0314209FB281D7044E4BD158796321179
 ```bash
 magnet:?xt=urn:btih:165653A24E8CA8FFEA0D0BADEB2B00D76C44ECE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Obtainium позволяет вам устанавливать и обновля
 magnet:?xt=urn:btih:893E26AC2B7F6B3FCC6F900E2C4B972F993518D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ NG: Затерянные сокровища Египта / Lost Treasures of Egy
 ```bash
 magnet:?xt=urn:btih:A4E83868FC673C3FF162A39A6305DE104ADEDB92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:A4E83868FC673C3FF162A39A6305DE104ADEDB92
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:A1ABCDD827BA7A6504A72DD63F42393C39C85B53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:A1ABCDD827BA7A6504A72DD63F42393C39C85B53
 ```bash
 magnet:?xt=urn:btih:9C36888F22148D962C1BE2ED46F46826C9C129F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:738F54A68E1D7B523968A21C01076DA48FB839AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:738F54A68E1D7B523968A21C01076DA48FB839AD
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:738F54A68E1D7B523968A21C01076DA48FB839AD
 magnet:?xt=urn:btih:2FB2003A98E27CF517D43CA8EDE8826AAF3B209F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Film Transition Pack добавляет классическое, кинемат
 ```bash
 magnet:?xt=urn:btih:32E6E8D96140FD06E77DE3C7FEFBCECF21FF0C34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Adobe Illustrator — это принятое в качестве отрасле
 magnet:?xt=urn:btih:7EEAA0FB32D5A0F776BC42B26267D9765CD1FF4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:7EEAA0FB32D5A0F776BC42B26267D9765CD1FF4C
 ```bash
 magnet:?xt=urn:btih:88C2F4BE82619B06B49B1001E19C71D79878A8B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Valheim – динамичный и увлекательный приключе�
 magnet:?xt=urn:btih:3757B184F46E57C16E81AE84B83FD73D70068EFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Black Geyser: Couriers of Darkness (2021) [Ru/Multi] (1.2.67) License GOG
 ```bash
 magnet:?xt=urn:btih:F4B357FD90F753DB8AEF96C24E8C7F415FAFA656
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:F4B357FD90F753DB8AEF96C24E8C7F415FAFA656
 magnet:?xt=urn:btih:3E62C66581EEE630B3C694118E3F181EC6790B1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:3E62C66581EEE630B3C694118E3F181EC6790B1A
 ```bash
 magnet:?xt=urn:btih:0F684700761E0F10A67DD80D6CB45A0915A23505
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:0F684700761E0F10A67DD80D6CB45A0915A23505
 magnet:?xt=urn:btih:14764B9341F5FE7B4B0807DD25E04A0D4E9BECD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:14764B9341F5FE7B4B0807DD25E04A0D4E9BECD4
 ```bash
 magnet:?xt=urn:btih:88DAE600E73EECEB3F743E64ECF951BA107CECBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Satisfactory - это игра от первого лица в открытом 
 magnet:?xt=urn:btih:4B4F247EEFA5FF0BFD4E0EEE7C9441C9DFCC6154
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:4B4F247EEFA5FF0BFD4E0EEE7C9441C9DFCC6154
 ```bash
 magnet:?xt=urn:btih:6020EC10AAD5BC1A9FB624EC70C31143866B138F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:6020EC10AAD5BC1A9FB624EC70C31143866B138F
 magnet:?xt=urn:btih:3792F04A7D3B26D07747BD6922D91C1146710060
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:3792F04A7D3B26D07747BD6922D91C1146710060
 ```bash
 magnet:?xt=urn:btih:06AD071A996BD3AFD3DA07B1AFBEF4125C055593
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:06AD071A996BD3AFD3DA07B1AFBEF4125C055593
 magnet:?xt=urn:btih:B40765C16B8FD398B9495A96968191F5EFE23835
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ CarX Street (2024) [Ru/Multi] (1.8.0/dlc) Repack Let'sРlay [Deluxe edition]
 ```bash
 magnet:?xt=urn:btih:67CCF6587CA48278681C2139D2702EBE8F4D12A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Metal Gear Solid Delta: Snake Eater (2025) [Ru/Multi] (1.1.3/dlc) Repack Wanterl
 magnet:?xt=urn:btih:C0A37E5DC808F9F0B7281E90327561CF28982BE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ magnet:?xt=urn:btih:C0A37E5DC808F9F0B7281E90327561CF28982BE4
 ```bash
 magnet:?xt=urn:btih:0F4DACE07574CD6874F8D925F70F9A8E4F281DA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:0F4DACE07574CD6874F8D925F70F9A8E4F281DA2
 magnet:?xt=urn:btih:8186574B38E8CAE7655320152F5694C836FF1091
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ MX vs ATV Legends (2022) [Ru/Multi] (4.9/dlc) Repack Let'sРlay [Ultimate Editio
 ```bash
 magnet:?xt=urn:btih:0501A03AC35734034317671E6F34C76240181411
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Hollow Knight (2018) [Switch] [USA] 20.1.5 [NSZ] [License / DLC / 1.4.3.2b] [Ru/
 magnet:?xt=urn:btih:FFA30AA364AB75994C8128B97133A81EB811621D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ magnet:?xt=urn:btih:FFA30AA364AB75994C8128B97133A81EB811621D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ magnet:?xt=urn:btih:FFA30AA364AB75994C8128B97133A81EB811621D
 magnet:?xt=urn:btih:7085C33D8E8439FC07D293F71C00D4B26FC88C07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ magnet:?xt=urn:btih:7085C33D8E8439FC07D293F71C00D4B26FC88C07
 ```bash
 magnet:?xt=urn:btih:E2048FF5B8AAF7BBBA199636DD52EA52A6A434A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

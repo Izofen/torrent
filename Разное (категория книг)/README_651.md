@@ -1,3 +1,30 @@
+###  Публикация: 991561   (905850) от 28.02.2016
+
+Ольга Сорокина | Почему мы болеем. Откровенный разговор биолога с верующими и неверующими (2015) [FB2]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все мы хотим жить долго и не болеть, но наше тело рано или поздно требует ремонта и обновления. Считается, что изначально человек был создан без изъянов и болезней. Можно ли сейчас приблизиться к совершенству и как?
+Эта неожиданная книга написана ученым, научным редактором доктора Мясникова и многих других выдающихся врачей. Через увлекательные сюжеты, узнаваемые (   Читать дальше...   )Жанр: Вера и здоровьеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0EEF0297775129DD5A79849326FB8C32C257F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 636114   (905873) от 28.03.2013
 
 В.И. Щеблыкин | Петровская кухня [1991] [PDF]
@@ -19,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:7C84130486AB8D16353A1C01DB50E31D37DC823B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:7C84130486AB8D16353A1C01DB50E31D37DC823B
 ```bash
 magnet:?xt=urn:btih:12BF966483C9C7CF743EC44D20FC49A79E636249
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +100,8 @@ magnet:?xt=urn:btih:12BF966483C9C7CF743EC44D20FC49A79E636249
 magnet:?xt=urn:btih:F8CBDA33D3AE772BC0F47B99E532AF62BD71D6F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:F8CBDA33D3AE772BC0F47B99E532AF62BD71D6F3
 ```bash
 magnet:?xt=urn:btih:8AAEF123F3077D6EC1B351884C6DECA7A2D9D110
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +154,8 @@ magnet:?xt=urn:btih:8AAEF123F3077D6EC1B351884C6DECA7A2D9D110
 magnet:?xt=urn:btih:9D5F85952FBE03AD2AD83DE08A52921EBF5792AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +180,8 @@ magnet:?xt=urn:btih:9D5F85952FBE03AD2AD83DE08A52921EBF5792AF
 magnet:?xt=urn:btih:90F261F268D6FED76F06946EBF56B3DC584A7CB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +205,8 @@ magnet:?xt=urn:btih:90F261F268D6FED76F06946EBF56B3DC584A7CB7
 ```bash
 magnet:?xt=urn:btih:9E49CD607E50E9DDA841D6DE63595F2BF411471A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +233,8 @@ magnet:?xt=urn:btih:9E49CD607E50E9DDA841D6DE63595F2BF411471A
 magnet:?xt=urn:btih:F2A853DD863B62E081B05FB23C0A5D4DB5E20025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +258,8 @@ magnet:?xt=urn:btih:F2A853DD863B62E081B05FB23C0A5D4DB5E20025
 ```bash
 magnet:?xt=urn:btih:64D759D6DCADD03B80E3C5416F9209D986212BA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +285,8 @@ magnet:?xt=urn:btih:64D759D6DCADD03B80E3C5416F9209D986212BA9
 magnet:?xt=urn:btih:FF072F487699B5F7F1E640C6667EC46F457AD722
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +310,8 @@ magnet:?xt=urn:btih:FF072F487699B5F7F1E640C6667EC46F457AD722
 ```bash
 magnet:?xt=urn:btih:8D81ECE353CFE1D9835AAEF590F6DBA5CAF85B5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +337,8 @@ magnet:?xt=urn:btih:8D81ECE353CFE1D9835AAEF590F6DBA5CAF85B5D
 magnet:?xt=urn:btih:FABD77D6919353F2CF88334CDA8D0AB8C29D4BF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +362,8 @@ magnet:?xt=urn:btih:FABD77D6919353F2CF88334CDA8D0AB8C29D4BF7
 ```bash
 magnet:?xt=urn:btih:BE846F7D4A7732746E5905CA80EA19E406F24583
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +389,8 @@ magnet:?xt=urn:btih:BE846F7D4A7732746E5905CA80EA19E406F24583
 magnet:?xt=urn:btih:F122CF581EDD1B526EF0BF8EF037C824CE6C124F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +414,8 @@ magnet:?xt=urn:btih:F122CF581EDD1B526EF0BF8EF037C824CE6C124F
 ```bash
 magnet:?xt=urn:btih:2DE10CEEAD50155B48D1FEEA6A1F2C0305C6F8B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +441,8 @@ magnet:?xt=urn:btih:2DE10CEEAD50155B48D1FEEA6A1F2C0305C6F8B2
 ```bash
 magnet:?xt=urn:btih:0C62E2ED09B715F40E9E26C819900F9127A2FB35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +470,8 @@ Smart Reading | Год полезных привычек. Полный курс 
 magnet:?xt=urn:btih:0CB5F1A9E7AA89ACCABF14B31DF475403E3E3A69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +496,8 @@ magnet:?xt=urn:btih:0CB5F1A9E7AA89ACCABF14B31DF475403E3E3A69
 magnet:?xt=urn:btih:F920516B17A387FCDAF3085111D100A4A29E9A02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +521,8 @@ magnet:?xt=urn:btih:F920516B17A387FCDAF3085111D100A4A29E9A02
 ```bash
 magnet:?xt=urn:btih:7DA429C43D9993D114FF47836CC23C8C8A751E57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +549,8 @@ magnet:?xt=urn:btih:7DA429C43D9993D114FF47836CC23C8C8A751E57
 magnet:?xt=urn:btih:0891F2866A9A7B4E3CBE174B368A6DCD8F80F4FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +574,8 @@ magnet:?xt=urn:btih:0891F2866A9A7B4E3CBE174B368A6DCD8F80F4FF
 ```bash
 magnet:?xt=urn:btih:723F435E552557BCA17509D1AC6DDC64DE74405F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +601,8 @@ magnet:?xt=urn:btih:723F435E552557BCA17509D1AC6DDC64DE74405F
 magnet:?xt=urn:btih:322333DB6068B7CB50AA649B50321F918118E50D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +627,8 @@ magnet:?xt=urn:btih:322333DB6068B7CB50AA649B50321F918118E50D
 ```bash
 magnet:?xt=urn:btih:5B63A5B29A1988EBEF1D7EB51C8563AC19D1B199
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +656,8 @@ magnet:?xt=urn:btih:5B63A5B29A1988EBEF1D7EB51C8563AC19D1B199
 magnet:?xt=urn:btih:34C2C666E56BFBA17B44956F686870742084A341
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,29 +682,7 @@ magnet:?xt=urn:btih:34C2C666E56BFBA17B44956F686870742084A341
 magnet:?xt=urn:btih:EB83BCB33C7FBF6774D2ABE83936E2CC9A147DEF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635624   (907109) от 27.03.2013
-
-Александр Латса | Мифы о России. От Грозного до Путина. Мы глазами иностранцев [2013] [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Латса, француз, осознанно предпочел жить и работать в России. Он написал удивительную и очень русскую книгу о нашей стране. Своеобразный угол зрения на наш быт, привычки, историю и мысли позволяет по-другому взглянуть на нас самих. Пора перестать заниматься столь любимым самобичеванием и уничижением. Поверьте, после этой смешной, острой и мудрой книги, (   Читать дальше...   )Издательство: АстрельФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14B4326C5CDBD62CD2B86F88BADEE9A08D495231
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

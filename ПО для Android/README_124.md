@@ -21,6 +21,8 @@ Photographer's companion v1.9.0 Pro [Ru/Multi]
 magnet:?xt=urn:btih:1CB1D977B9232333AF509A7064FB1CC49560182B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Picture Insect v2.2 [Ru/Multi] - Bug Identifier
 ```bash
 magnet:?xt=urn:btih:2E41C28E1BE16C407C1CE23C85A56C45098670D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:2E41C28E1BE16C407C1CE23C85A56C45098670D6
 magnet:?xt=urn:btih:D4E9C8543C4524891F032930756870F57FAE7E64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:D4E9C8543C4524891F032930756870F57FAE7E64
 ```bash
 magnet:?xt=urn:btih:009F05F9D1FD67C1B93967470D76CB754821A4A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:009F05F9D1FD67C1B93967470D76CB754821A4A9
 magnet:?xt=urn:btih:45C354F33D4282BF525BCAA0B2349BB3EBF02F9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:45C354F33D4282BF525BCAA0B2349BB3EBF02F9B
 magnet:?xt=urn:btih:B5C673670AAB22DAC149F2B7C4538E268846E84C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:B5C673670AAB22DAC149F2B7C4538E268846E84C
 ```bash
 magnet:?xt=urn:btih:DAF24330021D5875B14F12B2228870C1D143474D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:DAF24330021D5875B14F12B2228870C1D143474D
 magnet:?xt=urn:btih:B95FB802CCEF00EB11B9D358B4746BAECFA8A807
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Avee music player – это новейший музыкальный плеер,
 ```bash
 magnet:?xt=urn:btih:D4CA0947F3556D6A55F31AE7178798742737F222
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:D4CA0947F3556D6A55F31AE7178798742737F222
 magnet:?xt=urn:btih:B9472091DEEB093944D9839E2D979E9E05CF1830
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Polaris Office - мобильное офисное приложение, поз�
 ```bash
 magnet:?xt=urn:btih:1781A453E4473CB5679335F83AA360BFBC412458
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ nPlayer Pro 1.7.7.7_191219 [Ru/En]
 magnet:?xt=urn:btih:16C910980879A9AC661476934079D4F5369D142F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ GIF Maker Pro 1.7.66 [En]
 ```bash
 magnet:?xt=urn:btih:BC4CA9026D8853D8C1B093B444B4A404AED6868A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ BZ Напоминания и Дни Рождения v3.1.4 [Ru/Multi]
 magnet:?xt=urn:btih:3434FD4E2501F0DD25D1BDDCABBF9EEF02994BD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:3434FD4E2501F0DD25D1BDDCABBF9EEF02994BD2
 ```bash
 magnet:?xt=urn:btih:370B4D6C162F079F032316E35C0DF41D22F373B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:370B4D6C162F079F032316E35C0DF41D22F373B4
 magnet:?xt=urn:btih:53CC134B3DCBE28CB85EA01B19B667C3C3FA9ECE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:53CC134B3DCBE28CB85EA01B19B667C3C3FA9ECE
 magnet:?xt=urn:btih:AF72FF9015140D1DB1B61B53D1F5536B543707EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ MediSafe Meds & Pill Reminder Premium   v9.09.10574 [Ru/Multi] - Напомин�
 ```bash
 magnet:?xt=urn:btih:45AEFF90A23B0BC9658999AA9A1C8B1EB079DD41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Stellio — продвинутый плеер, с мощным звуком, п�
 magnet:?xt=urn:btih:BD96E20D49F2D15425E6E169F9D9147B4C4D643A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:BD96E20D49F2D15425E6E169F9D9147B4C4D643A
 ```bash
 magnet:?xt=urn:btih:E4E979A2285DFC1839BD00D647F99B49D195CF2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:E4E979A2285DFC1839BD00D647F99B49D195CF2C
 magnet:?xt=urn:btih:C5A8458C5717AB8F6C37263C67CF2A21734C30BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:C5A8458C5717AB8F6C37263C67CF2A21734C30BA
 ```bash
 magnet:?xt=urn:btih:E813473F17D0EAEA326B632714E77AEDC17AFB40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ Audials твой радио плеер с более чем 63 000 потоко�
 magnet:?xt=urn:btih:581F384B6A8A9AC2D1D87388ED73F02BD3D48CFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Cloud Radio Pro - это онлайн радио для устройств по�
 magnet:?xt=urn:btih:774636D3C448AF65390C1C5511FF59DB282189C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ XiiaLive™ Pro - Internet Radio v3.3.3.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:259EA9F1743ECD385BAA632E255D6954BEC6E7A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ radio.net PRIME — радиоплеер без рекламных видеор�
 ```bash
 magnet:?xt=urn:btih:8DF6C7CF3D7FE51A0BB2C4CD8547A2BFE35C7549
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

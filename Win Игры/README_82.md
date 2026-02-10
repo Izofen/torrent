@@ -19,6 +19,8 @@ Them and Us - классический хоррор на выживание с �
 magnet:?xt=urn:btih:949C251ABE6A59E5D82E3E9BAAF513DC90491851
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Easy Red 2 - шутер от первого лица с элементами с�
 ```bash
 magnet:?xt=urn:btih:76C565DDCE3189687C29D419A30D79ED376ECF05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Kaiserpunk (2025) [Ru/Multi] (1.00.002/dlc) Repack dixen18 [Supporter Edition]
 magnet:?xt=urn:btih:EFFC6C5411AAEEB8772FBB9AFF31CECBC671E110
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Wanderstop – уютное повествование о переменах и 
 ```bash
 magnet:?xt=urn:btih:0EE9145933EB5B2783C0E3955686662E89A280C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Lumencraft (2022) [Ru/Multi] (9257) License GOG
 magnet:?xt=urn:btih:8BCEDDA9A54A0F59520A978B2794259182543DB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Wonder Ball (2024) [Ru/Multi] (1.03) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9288F7D0BECC0DA396DD908DAF41CE38CA939905
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Starground отбрасывает все правила. Это игра с ви
 magnet:?xt=urn:btih:4BD74B61CC32650B61EAB0CDBA34D47173410E48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Scene Investigators (2023) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:F95341449C3CD4660A99E32C22679B27FF83E538
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The LEGO NINJAGO Movie Video Game (2017) [Ru/Multi] (1.0) License GOG
 magnet:?xt=urn:btih:420F8DDBE8309F0B3D63AD011873B28D792E7C0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Ale and Tale Tavern - это кооперативный фэнтезийный �
 ```bash
 magnet:?xt=urn:btih:6F38D53DE843DD136FC863D3531562304A9528D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Kaiserpunk (2025) [Ru/Multi] (1.00.002/dlc) Repack FitGirl [Supporter Edition]
 magnet:?xt=urn:btih:94AEE4DB6BFFECF3408B8DD1E56AB005EBC93DA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ A Game About Digging A Hole (2025) [Ru/Multi] (Build 17793684) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B948B5B1ED681644040277F5A366A981FD94068C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Bears In Space - это динамичный шутер от первого ли
 magnet:?xt=urn:btih:A2E7557A4BCF57DDF55CFEB64A43D9362511624A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Bаttlеfіеld 4 – это определяющий для жанра, пол�
 ```bash
 magnet:?xt=urn:btih:E463833E645C25D4C1C91ECB9E7161C6AD6E2DD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Witcher / Ведьмак (2007) [Ru/Multi] (1.5) Repack Wanterlude [Enhanced
 magnet:?xt=urn:btih:C37B257FDF79C4B24637D616C55522E5AB3AAA6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (1.03/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FF9ECE7BBD02B4ABC7658B9DC1D185DC63FB2743
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы короле�
 magnet:?xt=urn:btih:F31093C42E7CB398CEF2CED579E96C72DC96492F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Contraband Police - симулятор пограничника от перво�
 ```bash
 magnet:?xt=urn:btih:970EADE8D8C87302749CD4646B2E9D241D884BD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Rogue Waters - это тактическая пошаговая игра в ду
 magnet:?xt=urn:btih:ED6037F0C7034C6D8A6B08BBD2D57315E5AB131A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ StarCrawlers Chimera (2021) [En] (1.3.1) License GOG
 ```bash
 magnet:?xt=urn:btih:CD10E4DFA511E47C47421107083EBC922FCAF2E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ SpaceBourne II (2) (2023) [Multi] (5.2.4) License GOG [Early Access]
 magnet:?xt=urn:btih:867092ED0D5FE10CC4F5965106BBEE935C32A60B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Sims Legacy Collection (2025) [Ru/En] (1.0.0.139/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:B01D9E0216CB2729EB3A06F79BC8DF1264D08685
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Myst (2021) [Ru/Multi] (3.0.1) Repack seleZen [VR]
 magnet:?xt=urn:btih:6A7C510F9ED14D3DB97A140CBA49B45E08B824FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Cataclismo вводит игроков в роль лидера, ответст�
 ```bash
 magnet:?xt=urn:btih:F587BC521EF204E421CD54B8350DB3159CB67576
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Bass Defense - игра, где музыка становится оружием
 magnet:?xt=urn:btih:D52442167AC5995F8B2F77E4FE07A1C9F3813B0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Avium (2023) [Ru/Multi] (Build 17756139) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:71765E9B5B540DF7C78E5EA539F824115D456FBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

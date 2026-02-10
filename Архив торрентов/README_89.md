@@ -19,6 +19,8 @@ GPS АнтиРадар v48.1 Mod by СМАРТОС [Ru]
 magnet:?xt=urn:btih:C583FE299FCED04AC54157690DB505FD12224F02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ MassTube Plus — очень простая в использовании про
 magnet:?xt=urn:btih:B09BDF2C590D9C7ED4191A4A110CEAC19289F0B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ IPTV Pro v9.0.13 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:84CA05ABFFD228FC0641A78DDC1F9D3C5AC25A5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ AdGuard — уникальный блокировщик рекламы без ro
 magnet:?xt=urn:btih:9C26803C0EEF0F23FDB08A3EFCA82FE03CEA1A7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ MediaHuman YouTube Downloader 3.9.9.98 (2603) RePack (& Portable) by Dodakaedr [
 ```bash
 magnet:?xt=urn:btih:86BAB57CA9C9D77A2897A88E297A062E4900A18C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Youtube Downloader HD - бесплатная и предельно проста�
 magnet:?xt=urn:btih:B8F60A3E09456FB45548FDACC98BACB81B7CA844
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ WinToUSB — лучший Windows To Go (WTG) Creator, который позво
 magnet:?xt=urn:btih:52897ADEDD1AC86719C57CA204121BA6801BCC03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ MassTube Ultra — очень простая в использовании пр�
 ```bash
 magnet:?xt=urn:btih:4689A9E2FB47A25F6C8345BA54B654883F514735
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ HeadUp Display (HUD) – это возможность использовать 
 magnet:?xt=urn:btih:DF6F9AAE6A654A5FA94E31F40BA66F62C6FB7748
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Adobe Photoshop 2025 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:97450AF6BE95D1DBC85B5ACF745530EE645BA9F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:97450AF6BE95D1DBC85B5ACF745530EE645BA9F6
 magnet:?xt=urn:btih:EFA60ACE43BB75F41DEA58E9BA075D0C0D09F703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:95D81F6364CD2B0D70183F77C1651AE557C734C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ OBS Студия - бесплатное программное обеспече�
 magnet:?xt=urn:btih:2E860B5C88C2CC7171183D92905E683BD19522FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Adobe Photoshop 2025 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:26CAD36CE9A2666C8492A4D479908ED5E38C96ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Adobe Illustrator — это принятое в качестве отрасле
 magnet:?xt=urn:btih:BD526388AD5587917BC7263AE3DEB4798F2F4ADA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Activation Program 1.08 Portable by Ratiborus [En]
 magnet:?xt=urn:btih:D8DE69441322BC454C6BE85BBD6770464CA0092D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:D8DE69441322BC454C6BE85BBD6770464CA0092D
 ```bash
 magnet:?xt=urn:btih:690709F399376B24F5F30C2C116FFA874FD94DA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Mp3tag предоставляет пользователям мощный и п�
 magnet:?xt=urn:btih:201DD9557E469EC5B36A8E58D8C00355C6A1F48C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:300B2B60029353B49AB1C7F860D1C6E7EF68F939
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ EF Commander  — замечательный двухпанельный файл
 magnet:?xt=urn:btih:0FB93E7692C86AB0F3E9DE751B3C024229BA8E63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Vivaldi 7.3.3635.4 include standalone [Multi/Ru]
 magnet:?xt=urn:btih:A71ECDE19089BB0C05509138B0FA761D62F256CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:9B9B2D8849A05540B618A0D1E17E91F9F77F3617
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Free Download Manager - кроссплатформенный менеджер з
 magnet:?xt=urn:btih:75998752D2026480B29E306493B0394A96FBF0ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Tor Browser Bundle 14.0.8 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:06F7C440AAD6B631211371BE8BA475A1FEE6FA46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Topaz A.I. Gigapixel — это приложение, использующее �
 magnet:?xt=urn:btih:50C21B2C1E5F30FA6E4CD428AB2FD4A75FFA6921
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ XnView MP - мощное многофункциональное приложен
 ```bash
 magnet:?xt=urn:btih:C0C2DB5A0C94E9D78E7E1C10F3CD4F11F064BF7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

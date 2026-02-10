@@ -1,3 +1,30 @@
+###  Публикация: 1372051   (886913) от 02.04.2020
+
+Лора Лейн | MICROSOFT. Как революционные идеи приводят к успеху (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Apple, Facebook, Microsoft, Samsung, Amazon, Google… Эти компании плотно вошли в нашу жизнь. Мы гуглим все и вся, выстраиваемся в бешеные очереди за яблочными новинками, пропадаем в недрах амазона, лайкаем и репостим на фейсбуке. Технологические компании играют все большую роль в нашей жизни, поглощая умы, время, деньги и человеческие ресурсы.
+В серии «Титаны Успеха» (   Читать дальше...   )Жанр: Просто о бизнесе, Истории успехаПеревод: Д.Е. КасянчукФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC23133D18E3A074B964ECD307C7CC570789FBE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372176   (886984) от 02.04.2020
 
 А. Ткаченко | Снежные чувства. Психологические этюды о семейной жизни (2020) [FB2]
@@ -20,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:6F61438FEBE25E23E033B1C763BA4822920F7FC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@ magnet:?xt=urn:btih:6F61438FEBE25E23E033B1C763BA4822920F7FC2
 ```bash
 magnet:?xt=urn:btih:BF59BECD9867BBA6694A415ADA3559FF18E9788D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +101,8 @@ magnet:?xt=urn:btih:BF59BECD9867BBA6694A415ADA3559FF18E9788D
 magnet:?xt=urn:btih:41DCBCABC6642B13ADDD122D204D616B80AC2F46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +126,8 @@ magnet:?xt=urn:btih:41DCBCABC6642B13ADDD122D204D616B80AC2F46
 ```bash
 magnet:?xt=urn:btih:D3A29E7588F3B78A5E962F7FAA58414405FA72CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +154,8 @@ magnet:?xt=urn:btih:D3A29E7588F3B78A5E962F7FAA58414405FA72CB
 magnet:?xt=urn:btih:28ACB0634AC4D31B6A8A88169A33EB09D1328C34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +179,8 @@ magnet:?xt=urn:btih:28ACB0634AC4D31B6A8A88169A33EB09D1328C34
 ```bash
 magnet:?xt=urn:btih:5DE91D3CBE89EC0048BB46C30537AE3D875FCD1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +207,8 @@ magnet:?xt=urn:btih:5DE91D3CBE89EC0048BB46C30537AE3D875FCD1D
 magnet:?xt=urn:btih:2FC099A906F0252BE322AB9F911EB2B235E766B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +232,8 @@ magnet:?xt=urn:btih:2FC099A906F0252BE322AB9F911EB2B235E766B3
 ```bash
 magnet:?xt=urn:btih:1EB8AA41ADC72BD33D4E8E1B3A5C69EBC7178E10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +261,8 @@ magnet:?xt=urn:btih:1EB8AA41ADC72BD33D4E8E1B3A5C69EBC7178E10
 magnet:?xt=urn:btih:1F60279B9750AE2CF29F7FACFEAB72566362931C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +288,8 @@ magnet:?xt=urn:btih:1F60279B9750AE2CF29F7FACFEAB72566362931C
 magnet:?xt=urn:btih:724581A1A17EF3151BF97EB579C10EE175DD2B81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +313,8 @@ magnet:?xt=urn:btih:724581A1A17EF3151BF97EB579C10EE175DD2B81
 ```bash
 magnet:?xt=urn:btih:FA1AF30A88F6354C0E702299C281C0EFB592C010
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +341,8 @@ magnet:?xt=urn:btih:FA1AF30A88F6354C0E702299C281C0EFB592C010
 magnet:?xt=urn:btih:B1FC0A4CBF3831CCD4381E2EDD08102FB3A2946C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +367,8 @@ John Montroll, Robert Harbin | ORIGAMI I Monster Pack [1985] [PDF]
 magnet:?xt=urn:btih:49A334C10B88EB58034383C980D6DE714107E3DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +392,8 @@ magnet:?xt=urn:btih:49A334C10B88EB58034383C980D6DE714107E3DF
 ```bash
 magnet:?xt=urn:btih:8DA70881DC30D57232A1D1A8FB8B05F3663A06B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +420,8 @@ magnet:?xt=urn:btih:8DA70881DC30D57232A1D1A8FB8B05F3663A06B5
 magnet:?xt=urn:btih:844A8827A140C61FB999154DBCB7FF82EDB90920
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +446,8 @@ magnet:?xt=urn:btih:844A8827A140C61FB999154DBCB7FF82EDB90920
 ```bash
 magnet:?xt=urn:btih:3EF4A2170A9BA7AA96769281E2C307506CEA98F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +474,8 @@ magnet:?xt=urn:btih:3EF4A2170A9BA7AA96769281E2C307506CEA98F8
 magnet:?xt=urn:btih:AE4B4293000EB22453D12D4F8C8B23BAB8DB007F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +499,8 @@ magnet:?xt=urn:btih:AE4B4293000EB22453D12D4F8C8B23BAB8DB007F
 ```bash
 magnet:?xt=urn:btih:9A39C234E1B2A172C36BBFE34B821E6C865E55E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +527,8 @@ magnet:?xt=urn:btih:9A39C234E1B2A172C36BBFE34B821E6C865E55E3
 ```bash
 magnet:?xt=urn:btih:B263A074972657D3B02EEFA63D0267EFAE5A02AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +559,8 @@ magnet:?xt=urn:btih:B263A074972657D3B02EEFA63D0267EFAE5A02AB
 magnet:?xt=urn:btih:31BD5EF372BA779CD41985AEFEF51467A3927FF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +586,8 @@ magnet:?xt=urn:btih:31BD5EF372BA779CD41985AEFEF51467A3927FF0
 ```bash
 magnet:?xt=urn:btih:08645D31CB4C15F744D452BB0C3F54C6EAB841D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +617,8 @@ magnet:?xt=urn:btih:08645D31CB4C15F744D452BB0C3F54C6EAB841D6
 magnet:?xt=urn:btih:983A2412AF8DA9D961B3F7870F547610C457EFCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +643,8 @@ magnet:?xt=urn:btih:983A2412AF8DA9D961B3F7870F547610C457EFCE
 magnet:?xt=urn:btih:D28679905155CD4101CD1FD2AA8959BEB746C292
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +668,8 @@ magnet:?xt=urn:btih:D28679905155CD4101CD1FD2AA8959BEB746C292
 ```bash
 magnet:?xt=urn:btih:B07708453B4CABBAA3CDF0FD4932500841B3CD24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,31 +696,7 @@ magnet:?xt=urn:btih:B07708453B4CABBAA3CDF0FD4932500841B3CD24
 magnet:?xt=urn:btih:83CC127DDED23CAE95CE1E97311050B62D495895
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994680   (887558) от 09.03.2016
-
-Саймон Синек | Лидеры едят последними. Как создать команду мечты (2015) [FB2, DOCX]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Саймон Синек, автор бестселлера New York Times, бизнес-тренер и выдающийся спикер TED, отвечает на вопрос, почему только некоторым компаниям удается создать атмосферу доверия, поддержки и безопасности. Ту атмосферу, которая воспитывает команду уверенных в себе и довольных своей работой людей, готовых решать самые сложные задачи.
-
-Почему одним это удается, а другим (   Читать дальше...   )Жанр: Бизнес, ПсихологияФормат: FB2, DOCX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C4B7C8845CC99809E7FBE6BBD36DFF59C208A96
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

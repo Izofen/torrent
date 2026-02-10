@@ -20,6 +20,8 @@ Autopano Giga - программа, позволяющая объединять 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Autopano Giga - программа, позволяющая объединять 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ Phil Collins: Live At Montreux (2004/2012) [1080i] Blu-ray
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -104,6 +110,8 @@ Phil Collins: Live At Montreux (2004/2012) [1080i] Blu-ray
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ Nancy Drew: The Final Scene / Нэнси Дрю похищение в театр
 ```bash
 magnet:?xt=urn:btih:671FCCD7A0C4BE18689E0717FE666BB3CF666852
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -161,6 +171,8 @@ Endels (New Denwer Local Server, аббревиатура читается ка�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +198,8 @@ Punto Switcher — автоматический переключатель ра�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Punto Switcher — автоматический переключатель ра�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -233,6 +249,8 @@ avast! Rescue CD v.1.0.3 [Multi / Rus]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +285,8 @@ Adobe Reader X 10.0.1, WinRAR 4.01 Rus x32/x64, AIDA64, Mozilla Firefox, Uninsta
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +310,8 @@ Xenon Антология [En] (RePack) 1988-1989 | Pilotus
 ```bash
 magnet:?xt=urn:btih:97B446C129B82C46450CA040BA976DD203F0FADF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +337,8 @@ AIDA64 Extreme - утилита является очень мощным инс�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +362,8 @@ AIDA64 Extreme - утилита является очень мощным инс�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +389,8 @@ AIDA64 Extreme - утилита является очень мощным инс�
 ```bash
 magnet:?xt=urn:btih:BB3839FF1668313302CACC92C7AE6302090EB2D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +418,8 @@ magnet:?xt=urn:btih:BB3839FF1668313302CACC92C7AE6302090EB2D5
 magnet:?xt=urn:btih:7AD39858D07DBEBE6907BEF1C418E5A065352B8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +443,8 @@ Kronolog: The Nazi Paradox [En] (RePack) 1993 | Pilotus
 ```bash
 magnet:?xt=urn:btih:4A1C5A8C1AC3F45D2E779531B5D0E14B009711A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +470,8 @@ magnet:?xt=urn:btih:4A1C5A8C1AC3F45D2E779531B5D0E14B009711A9
 magnet:?xt=urn:btih:96C1BB0A067A252E2163E83AED6BEEBBC975D6A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +496,8 @@ Peter Luts - Everyday (2012) [H.264/1080р] WEBRip
 magnet:?xt=urn:btih:EA9F431C6838B42EFF11A0E9FB6E6BB75E0832DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +521,8 @@ magnet:?xt=urn:btih:EA9F431C6838B42EFF11A0E9FB6E6BB75E0832DF
 ```bash
 magnet:?xt=urn:btih:CCAC3024CE6E069D5CD1323A4981BA6212C61BB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +557,8 @@ VA - Seventy Dubstep - Electronic Essentials (2012) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:FE4B4517D1C78C36EF1B9101042F9A91782CED9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +584,8 @@ magnet:?xt=urn:btih:FE4B4517D1C78C36EF1B9101042F9A91782CED9C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +619,8 @@ Ritmo - Archive 9 (2009) [FLAC|Lossless]<Psychedelic / Progressive>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +652,8 @@ VA - Trance Top 100 Vol 12 (2012)
 magnet:?xt=urn:btih:82DB8FA2B8F8E2B01474F20871C420B2DFEC1C83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +677,8 @@ magnet:?xt=urn:btih:82DB8FA2B8F8E2B01474F20871C420B2DFEC1C83
 ```bash
 magnet:?xt=urn:btih:A7549A5FA951DD5E45E53A4BC1A41BE960F895A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +704,8 @@ LS · Счет-фактура 2.00 от 21.03.2012 [Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -689,6 +739,8 @@ VA - Progressive House. The Best World Club Music (2012) [MP3|192 кб/с]<Progr
 ```bash
 magnet:?xt=urn:btih:839094FDF92C20875AF9B58A046865EE07857CCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

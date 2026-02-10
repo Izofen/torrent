@@ -22,6 +22,8 @@ Deep Purple 1972/1973 Copenhagen - New-York (2005) DVD9
 magnet:?xt=urn:btih:207CECD633C1CE4C8FB27C1133F800BA6A92A22C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:207CECD633C1CE4C8FB27C1133F800BA6A92A22C
 ```bash
 magnet:?xt=urn:btih:93B62A3F7EAA65A0998576B3E0129BC20BC773DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:93B62A3F7EAA65A0998576B3E0129BC20BC773DD
 magnet:?xt=urn:btih:FD1D609D91F92000F60E7493AA0672C6D0E93724
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 ```bash
 magnet:?xt=urn:btih:DFA0587CBBDE5ADA1E0D3340F948C89BE3B2A897
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:DFA0587CBBDE5ADA1E0D3340F948C89BE3B2A897
 magnet:?xt=urn:btih:9684B94DCC7C7766852E4B9BB36CE361DFE4474D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ GOM Player Plus - мультимедийный плеер со множеств�
 ```bash
 magnet:?xt=urn:btih:1C27FA138A3977424FC66F01E80213518647EAC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Paul McCartney,Bryan Adams, Keith Airley, Atomic Kitten, Shirley Bassey, Tony Be
 magnet:?xt=urn:btih:3CAE5843BAF648FFA10C2F7B843D53407E9135EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Selene's Unbearable Night (2023) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:02F50CC7DBD98308D12FE70A891BAFF84C544023
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Elemental Exiles / Странники стихий (2024) [Ru/Multi] (1.0) Scene
 magnet:?xt=urn:btih:2C909E1D268766182FE99D04EEF9F749082A8A3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:2C909E1D268766182FE99D04EEF9F749082A8A3E
 ```bash
 magnet:?xt=urn:btih:334402FB281A006135FD8047DBCE20E96E3BFD15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ MetaProducts Offline Explorer Enterprise — мощнейшая программ
 magnet:?xt=urn:btih:4D1778650622EA9D7C1AABE9EF57199698F90670
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:4D1778650622EA9D7C1AABE9EF57199698F90670
 ```bash
 magnet:?xt=urn:btih:61FC87431D9BC7911AD5FC2470A973F3A8D3D511
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:61FC87431D9BC7911AD5FC2470A973F3A8D3D511
 magnet:?xt=urn:btih:A1012FC33CD84F3DFA962BD89EAE8005EDF5ACC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Yohane the Parhelion - NUMAZU in the MIRAGE - (2024) [Multi] (1.0.14/dlc) Scene 
 ```bash
 magnet:?xt=urn:btih:41A7EB231CB28B45D1C1AA11BC12A64986762AEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Stardock Start11 – новая версия приложения для нас�
 magnet:?xt=urn:btih:5ABC844693103CAE649B0F49BA3BC7C27D2591CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:5ABC844693103CAE649B0F49BA3BC7C27D2591CF
 ```bash
 magnet:?xt=urn:btih:981B890B339614841FE2892952A2C31BB061A1A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ GOM Player Plus - мультимедийный плеер со множеств�
 magnet:?xt=urn:btih:A6ACF3F8FC91AFE88E558F9C1F977E2E5CA6B673
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Harvest Island - приключенческий экшен с элементам
 magnet:?xt=urn:btih:251D765E8209BBD98D6BEDB2EDF5BA27EA95B597
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Crypt of the NecroDancer – популярная и хардкорная рит
 ```bash
 magnet:?xt=urn:btih:1BA9103FF536C2EAB73E38E6384ED2451A11922F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ GoodbyeDPI 0.2.3rc1 Launcher 8.3 [Ru/En] (Разблокировка YouTube)
 magnet:?xt=urn:btih:0C0571E6F54FE34347A2ADDADFDB351FC97C18ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:0C0571E6F54FE34347A2ADDADFDB351FC97C18ED
 ```bash
 magnet:?xt=urn:btih:C087D3E908BF385419964BF2D181C86D24475038
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.4.3b) License GOG
 magnet:?xt=urn:btih:05AA619521E12988627D57ECD3C10BA3AEE91CAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:05AA619521E12988627D57ECD3C10BA3AEE91CAF
 ```bash
 magnet:?xt=urn:btih:B5BBA698CDC9EEEE95BEF56C7068F70A7E3C7D1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:B5BBA698CDC9EEEE95BEF56C7068F70A7E3C7D1B
 magnet:?xt=urn:btih:14892400676EC749AE8B38041E487882348C4D50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:14892400676EC749AE8B38041E487882348C4D50
 ```bash
 magnet:?xt=urn:btih:579B68C743BD05AC44E12D8B840137C863E2AB22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:579B68C743BD05AC44E12D8B840137C863E2AB22
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

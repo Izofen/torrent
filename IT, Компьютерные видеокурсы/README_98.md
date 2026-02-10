@@ -22,6 +22,8 @@ Rachel Andrew - CSS Grid(   Читать дальше...   )Жанр: Прогр
 magnet:?xt=urn:btih:0F6EBC55A510DC09E24F181C16068C0A29DFD8DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Local Database Cache with REST API(   Читать дальше...   )Произ
 magnet:?xt=urn:btih:E67A4046143A9BBC62AFD0FF30F91F8E40A71298
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Laravel предлагает несколько вариантов аутент�
 ```bash
 magnet:?xt=urn:btih:F007DC5646E59F4AEA6F9150FA073774DCDE10F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ HTML & Pug
 magnet:?xt=urn:btih:AEE19D94BBEDC68E4EB05B24E5F1649BC522C1D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:AEE19D94BBEDC68E4EB05B24E5F1649BC522C1D3
 ```bash
 magnet:?xt=urn:btih:8A5CAF13D3C6920BBF098467466D1B54CC80D5DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ Skillbox, Илья Мещеряков | SQL для анализа данных (
 magnet:?xt=urn:btih:5A95AFA062DBF6539903934CAA2B6F1755C996DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ JavaScript – это самый популярный язык программ�
 ```bash
 magnet:?xt=urn:btih:36CAD53D4CC93C18391357556FC927420C54EFEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ Stepik, Глеб Кушедов и др. | Flask с нуля на практик
 magnet:?xt=urn:btih:A0406E85964AF3E3369F292D90F028615EBD5D72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ Udemy, Lev Gorfel | Java - учимся на практике (2021) PCRec
 ```bash
 magnet:?xt=urn:btih:B982B37C0E3CF1D81FE68A8BCEBC457BC8AA0BF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ ITVDN, Владислав Шевченко | UX/UI Design мобильных п�
 magnet:?xt=urn:btih:95F89034E66DBB905F5E7A495B14AEAD9F4ABFE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ ITDVN, Цыганков Никита | ASP.NET Core Web API. Практичес�
 ```bash
 magnet:?xt=urn:btih:F557E885605621120E63A316066C6B80A4217459
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ ITVDN, Анна Маргина | Основы использования Git (20
 magnet:?xt=urn:btih:01D416D4D9FF7BC8EFEC870D0853FCA703FFC64A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ ITVDN, Лазорык Михаил | Django Базовый (2021) PCRec
 magnet:?xt=urn:btih:31D0EE41699D77CBE0D271EDA6FD462F2B85972C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ ITVDN, Евгений Кушвид  | Ruby on Rails (2021) PCRec
 ```bash
 magnet:?xt=urn:btih:8E4B5E438672D30147EE19B1B74A07F99C8F74FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ Spring Security – это Java фреймворк, спроектированн
 magnet:?xt=urn:btih:D2D497AAA98C382DBC1D8ECC8D62E1CE47CF93DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ Laracasts | Course collection (2020) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:C8FC77B6934F88DD7EE7976596E244E8D43CB496
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ C# (   Читать дальше...   )Производство: IamTimCoreyЖ�
 magnet:?xt=urn:btih:C149DCA62880F82B7E1FAFE8069C5D6158D662AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ Yassin Marco | Deep Web - The complete Introduction to the hidden web (2020) PCR
 ```bash
 magnet:?xt=urn:btih:5B792D0FE2E2C69EB705B66028D723BC532AE131
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ OTUS, Андрей Смирнов  | Flutter Mobile Developer [Части 1-3 и
 magnet:?xt=urn:btih:4B987032F16745E8D4A8B06917A88F705DCEE215
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:4B987032F16745E8D4A8B06917A88F705DCEE215
 ```bash
 magnet:?xt=urn:btih:6DF90AFFA7A911310A452E6EA9C03D9B6B195240
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +570,8 @@ Egghead - Build a Corgi Up-boop Web App with Netlify (   Читать даль�
 magnet:?xt=urn:btih:8AB5E2A0EE90BCAA291F69E68F7B02B7FB59FB88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ Udemy, Musa Arda | Python Hands-On 40 Hours, 210 Exercises, 5 Projects, 2 Exams 
 magnet:?xt=urn:btih:0F1EAC6AA3CA3ED2B876F861513FE982FEBC44C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ Golang Lambda, Gourav Kumar | Golang + Lambda Masterclass: Build Microservices, 
 ```bash
 magnet:?xt=urn:btih:ECA18E3EA8854584BD20B2EAEF8026C9D2ED4ECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +651,8 @@ Flexbox - замечательный инструмент, который отк
 ```bash
 magnet:?xt=urn:btih:389B0276A87A86C59B139922A0D1D1D75160776E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +681,8 @@ Udemy, Dr. Mostafa Saad Ibrahim | Mastering 4 critical SKILLS using C++ 17  (202
 magnet:?xt=urn:btih:D6D8997E27D6E52EAAA2467B460FA36C159CE31F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ Javascript поддерживает 95% веб-сайтов в Интернет�
 ```bash
 magnet:?xt=urn:btih:4BABC5AB9352B8A6D1981157736DAD5BE15197C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

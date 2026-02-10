@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4FDB27B687305A9C91F6114439FF9AB6AEBD46B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ TwistedBrush Studio - приложение предоставляющее ода
 ```bash
 magnet:?xt=urn:btih:D81D04312B6F3C19551B233EAC5CCAD33239D609
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ DS-10 это транзиент-шейпер, разработанный спе�
 magnet:?xt=urn:btih:85632DD11F3C14EFB192DB4C32EB273B2D7A5DEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ CoolUtils Total Image Converter - преобразует изображения 
 ```bash
 magnet:?xt=urn:btih:386ADCDAB062FFB989C60247B5C09DCFCFDD0107
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Stigmatized Productions - Stigmatized Drummer v1.0 [En]
 magnet:?xt=urn:btih:B561373DF521FB7171DF6BC3CF388FDE6680FC6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Boris FX Mocha Pro – эффективный профессиональный �
 ```bash
 magnet:?xt=urn:btih:F0EF25B7797B2E9527D187DD992DC8B81777E7B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Labeljoy — программа, разработанная для создан�
 magnet:?xt=urn:btih:262E416F2CC0085556A66543862CC4A63459EE9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ EZ Meta Tag Editor 2.2.5.1 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:98873535B44004614C2787B20DB2F3D2523BB0BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ ThunderSoft GIF to Video Converter является программным об�
 magnet:?xt=urn:btih:CC417A6D1EE672BD9EB7F9D740136D1994D9B1E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Picosmos Tools - редактор и вьювер изображений. Сод
 ```bash
 magnet:?xt=urn:btih:9B6C77C971B6DBE8516B2B7FE4820F1B48FF3650
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Red Giant Effects Suite — набор из 9 инструментов, кото
 magnet:?xt=urn:btih:499CC28AA40BBA00B735597BD4BF7F385D9C555E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ PhotoDiva - программа для ретуши портретных фото
 magnet:?xt=urn:btih:7C04EAC1E0F2477B8EB15C1A721A7EB98009FFA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Unfiltered Audio вернулись со своим самым мощным пл
 ```bash
 magnet:?xt=urn:btih:5033C4D9717D060BCFB2A49EF924F13B20893516
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Triad - новый многоканальный процессор на базе
 magnet:?xt=urn:btih:19DE54AFC10438B24F1731CFA04BAB8573500DF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ NVIDIA Mental Ray v.3.14.3.31 for Maya 2017 [En]
 ```bash
 magnet:?xt=urn:btih:D4CA2104E04C5BE180044B24C1CF6487DC0A32E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Camera Raw: 3fr, arw, cr2, crw, dcr, dng, erf, kdc, mef, mos, mrw, nef, nrw, orf
 magnet:?xt=urn:btih:34477D1B8FB88B62112AA296BE941EE849517ED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Unfiltered Audio G8 выводит динамическое формирован
 magnet:?xt=urn:btih:93E69770CA9A7F1B926FCEA7C0DF3AB53317264A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Nero Video 2016 17.0.13000 RePack by MKN [Ru/En]
 ```bash
 magnet:?xt=urn:btih:72C811F0006EB03C86989CB49953C21C4E0CDC26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Luminar - это полнофункциональный набор для ред
 magnet:?xt=urn:btih:CAA8F86DF3C75BBD9C1DC46CF43E48CD7BA0731F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ ThunderSoft Video to GIF Converter – удобный инструмент дл�
 ```bash
 magnet:?xt=urn:btih:D171E66BF9637918DF0B0CAB58F6DE01E0BB4D71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ ThunderSoft Flash to Video Converter — это профессиональный
 magnet:?xt=urn:btih:B2D1C336AE36D055E81D0EB89A4E1B42D6100C48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ jBridge - приложение использует межпроцессные �
 ```bash
 magnet:?xt=urn:btih:7FE97F005C276DC6D4AA3B59E9DB4819D2255494
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Sibelius является бестселлером в мире программ�
 magnet:?xt=urn:btih:DEDC2822502CE1B8BF19CD80BA095CC1564288A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ OpenText Brava! DWG Viewer - бесплатный просмотрщик CAD-ф�
 ```bash
 magnet:?xt=urn:btih:81815476FAF724F36F7FC4062738E85826C00356
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Luminar - это полнофункциональный набор для ред
 magnet:?xt=urn:btih:0ABCC33EDFDA4112D62CD817D81BFBFBC50FB9D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Focus Photoeditor - мощный и легкий в использовании �
 ```bash
 magnet:?xt=urn:btih:F941BF726BA62CD607B6368701AE526658E967C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

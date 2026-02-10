@@ -22,6 +22,8 @@ Arthur Brown - Dance (1975) Expanded Edition, 2023, Esoteric [FLAC|Lossless|WEB-
 magnet:?xt=urn:btih:0B084D0FFCF71AF92CE9F6950881AB528A1C610A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - Winter Lounge 2021 (2021) [AAC|~330 Kbps] <Lo-Fi, Lounge, Chill Out>
 magnet:?xt=urn:btih:066CA4E5796D2666C27EFAE76004A3A4F93D9EBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ Librarian Pro 6 v6.0.3 [En]
 magnet:?xt=urn:btih:6ED9CA26CD97A39E8199F7F46A8B73CB0174570C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:6ED9CA26CD97A39E8199F7F46A8B73CB0174570C
 ```bash
 magnet:?xt=urn:btih:0B18CF830C0B9CD488AC5BC29710F51989790A42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7
 magnet:?xt=urn:btih:6400411A7812D0253A1D58FC9786FEF62AD3A735
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ Solarcycles - Lunar (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Folk / Pagan
 magnet:?xt=urn:btih:4E59F6B3E2E885A0F23FA9ED42D284983949A79C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ RSS Button for Safari 1.6.2 [En]
 ```bash
 magnet:?xt=urn:btih:33E593DCEE1F6E24BE0BA1F50BD17C6EDD4D3DD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ Ex Deo - The Thirteen Years Of Nero (2021) [FLAC|Lossless|image + .cue] <Melodic
 magnet:?xt=urn:btih:A30525BB640703B4F4EC2517B0D4C70C4320A636
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ HistoryHound 2.3.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:35330F3E084D1752B34F7D17EA456613A4643C9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ Doctor Smoke - Dreamers and the Dead (2021) [FLAC|Lossless|image + .cue] <Doom M
 magnet:?xt=urn:btih:74C149762DF4A638808FC4C973152FA3BCE6A45E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:74C149762DF4A638808FC4C973152FA3BCE6A45E
 ```bash
 magnet:?xt=urn:btih:0CE08D5892B076BB50DF93957CC05C6BC63DA3C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:0CE08D5892B076BB50DF93957CC05C6BC63DA3C6
 magnet:?xt=urn:btih:9002FF62C281F89D05009FF0E8F992947DC500A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ Tempomate - умный и красивый метроном.Тип издани�
 ```bash
 magnet:?xt=urn:btih:2C3A50BEF0F96D193A04BF422ED211D68CF6B542
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:2C3A50BEF0F96D193A04BF422ED211D68CF6B542
 magnet:?xt=urn:btih:DE75AEE64C602691EFACE434547A001676768B6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:DE75AEE64C602691EFACE434547A001676768B6C
 ```bash
 magnet:?xt=urn:btih:78B43AE07E0EFF4B43D22E1F1FC24C3044ED85DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:78B43AE07E0EFF4B43D22E1F1FC24C3044ED85DC
 magnet:?xt=urn:btih:8372E4C44AF09B53317501EE00D4C299287E3C70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:8372E4C44AF09B53317501EE00D4C299287E3C70
 ```bash
 magnet:?xt=urn:btih:E2597F0262350119FE280C4ED5812FDCB4DF7377
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ MacPilot 12 v12.0.4 [En]
 ```bash
 magnet:?xt=urn:btih:7464ED37DA55EC7C5E57DE984876BFE3BB7FE2A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +510,8 @@ Domestika, Mattey | Cinema 4D Создавайте яркие 3D иллюстр�
 magnet:?xt=urn:btih:D6A8FE7069EF8BD6917F7A08CEF240E29CD83F2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:D6A8FE7069EF8BD6917F7A08CEF240E29CD83F2D
 magnet:?xt=urn:btih:5B1E9D4A1E0D3E05EBB1803AD405C5E193AA6E0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ Data Guardian 6 v.6.0.3 [En]
 ```bash
 magnet:?xt=urn:btih:06E80E7D72D03AC763F8F1CD7EB015059D0CD237
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +589,8 @@ Mimestream сочетает в себе мощь macOS с расширенным
 magnet:?xt=urn:btih:BD865F22B9F78DB8CD80335DFB5BE54463FDCE58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:BD865F22B9F78DB8CD80335DFB5BE54463FDCE58
 ```bash
 magnet:?xt=urn:btih:EF2507F01CDC202331DE45F75ABA01D09AC66D54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:EF2507F01CDC202331DE45F75ABA01D09AC66D54
 magnet:?xt=urn:btih:05638AD63993E27B3CAAD4EFFACCBEFA92C3BBB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ Nero Burning ROM 2020 - позволяет записывать диски CD, D
 magnet:?xt=urn:btih:7B4FD5719FB55B7E1D9DD628A5801C6710033919
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ Icecream Screen Recorder - программа, позволяющая вести
 ```bash
 magnet:?xt=urn:btih:22ADE2D8F35B76A760CDF4234BBBD7C015334D46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

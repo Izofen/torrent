@@ -1,3 +1,29 @@
+###  Публикация: 1127810   (730975) от 22.04.2017
+
+Территория заблуждений с Игорем Прокопенко (2017.04.22) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день приносит научные сенсации, которые противоречат нашим привычным знаниям. Невероятные находки археологов опровергают учебники истории. Новейшие открытия астрономов начисто ломают знания о жизни Вселенной. А последние исследования медиков - рушат, казалось бы, незыблемые истины даже о жизни и смерти. В результате даже ученые все чаще приходят к неутешительному (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 01:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:381A30F426F641509937EF81DAB033CBB8891577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126813   (730977) от 22.04.2017
 
 History Channel: Поворот наворот / Counting Cars (2013) HDTV [H.264/1080i-LQ] (сезон 2, серии 1-26 из 26)
@@ -18,6 +44,8 @@ History Channel: Поворот наворот / Counting Cars (2013) HDTV [H.26
 ```bash
 magnet:?xt=urn:btih:C63DB8CA5D48D7937A0510E44BCC13C8C9126128
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ History Channel: Поворот наворот / Counting Cars (2014) HDTV [H.26
 ```bash
 magnet:?xt=urn:btih:77CA27A602D81DE4E12B2F31DFF72736A49D332E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:77CA27A602D81DE4E12B2F31DFF72736A49D332E
 magnet:?xt=urn:btih:926C694CB8D27215633A6E03960922220CC8DAAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:926C694CB8D27215633A6E03960922220CC8DAAE
 ```bash
 magnet:?xt=urn:btih:5F527693B987FCF96FAEFECB4E0B77E7D952D91A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ Mount Rainier National Park — национальный парк США, рас
 magnet:?xt=urn:btih:5D05009D36366C873AA4C78BEB60CB6C9FEBA7E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:5D05009D36366C873AA4C78BEB60CB6C9FEBA7E4
 ```bash
 magnet:?xt=urn:btih:90DA7003CD432FA2F321139F67C76900A4D18DAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:90DA7003CD432FA2F321139F67C76900A4D18DAB
 magnet:?xt=urn:btih:82652B7957D476796DF084520D1DD1E60C8E2A69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:82652B7957D476796DF084520D1DD1E60C8E2A69
 ```bash
 magnet:?xt=urn:btih:FA0A1D56AB4E3977D2635B01970913E4ACC736C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:FA0A1D56AB4E3977D2635B01970913E4ACC736C3
 magnet:?xt=urn:btih:4DB56CA0A98D352582CB0848C87853919C0843C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:4DB56CA0A98D352582CB0848C87853919C0843C7
 ```bash
 magnet:?xt=urn:btih:33B2771A5C0E8544634B243EF44437A4DF209EEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:33B2771A5C0E8544634B243EF44437A4DF209EEC
 magnet:?xt=urn:btih:14CD8D72F0F92C3843E99182FE87AA07E7FEE9D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:14CD8D72F0F92C3843E99182FE87AA07E7FEE9D5
 ```bash
 magnet:?xt=urn:btih:EFA437F23A759B621FCF8AEC9185A25AC8AB2ECB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:EFA437F23A759B621FCF8AEC9185A25AC8AB2ECB
 magnet:?xt=urn:btih:815E87D5398574F4209660B33ADD1340F063DB38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:815E87D5398574F4209660B33ADD1340F063DB38
 ```bash
 magnet:?xt=urn:btih:5D209212FBB1B3F418E07B25CBD875E707E5DD1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:5D209212FBB1B3F418E07B25CBD875E707E5DD1C
 magnet:?xt=urn:btih:21943E348182496E6F0D2B796BDBA1805D8BA39D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:21943E348182496E6F0D2B796BDBA1805D8BA39D
 ```bash
 magnet:?xt=urn:btih:489023E71AA7BC20D6626120A3D1B3BE9733780B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:489023E71AA7BC20D6626120A3D1B3BE9733780B
 magnet:?xt=urn:btih:A1C6C13DFCA39570DF4EAC205D90B2C6108C7225
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:A1C6C13DFCA39570DF4EAC205D90B2C6108C7225
 ```bash
 magnet:?xt=urn:btih:FAE5F50B9494F03871FFCAE5AEA1A0575B503F04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +514,8 @@ Discovery: Братья Дизель / Diesel Brothers (2017) HDTVRip [H.264/720
 magnet:?xt=urn:btih:66E5A9ED133835F20F411A4571C23BED6F38A8B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +539,8 @@ magnet:?xt=urn:btih:66E5A9ED133835F20F411A4571C23BED6F38A8B0
 ```bash
 magnet:?xt=urn:btih:93DA6A3AD2DD1F23EABC9883DB22290A19F83250
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:93DA6A3AD2DD1F23EABC9883DB22290A19F83250
 magnet:?xt=urn:btih:991E1C0757A1EADE3849051E029918C1392767B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +591,8 @@ magnet:?xt=urn:btih:991E1C0757A1EADE3849051E029918C1392767B3
 ```bash
 magnet:?xt=urn:btih:7F132DBE225491100C77A3B19CF97E188315CD43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:7F132DBE225491100C77A3B19CF97E188315CD43
 magnet:?xt=urn:btih:1DA9415DD0B5EA6E675E73A6404E237BA7722F16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +643,8 @@ magnet:?xt=urn:btih:1DA9415DD0B5EA6E675E73A6404E237BA7722F16
 ```bash
 magnet:?xt=urn:btih:7ED9399DEAA46CF9485CE9BAADB2E8FF060F5BDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,29 +670,7 @@ magnet:?xt=urn:btih:7ED9399DEAA46CF9485CE9BAADB2E8FF060F5BDD
 magnet:?xt=urn:btih:E324B753CD75FEF986C391F789266E0277D73EF9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 711232   (732465) от 29.05.2016
-
-Мир коралловых рифов / Alien Reefs (2013) HDTVRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коралловые рифы насчитывают самое большое количество видов среди всех представителей флоры и фауны. Рифы, находящиеся в теплых водах Тихого океана и Карибского бассейна хорошо всем известны, но известно ли вам, что рифы также произрастают и в холодной воде. Образованные айсбергами глубоководные рифы становятся идеальным основанием для образования там кораллов. Скрытые (   Читать дальше...   )Жанр: Документальный, видовой, природаПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BC1E89033230C854A6D074C75B30FD84A0CA708
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Cледуя традиции первой части боевика, идет н
 magnet:?xt=urn:btih:FF9DE4D2E4AE3035A8ED06439A4500B717CE938F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ PixelJunk Monsters Deluxe – это новый остров с 11 зонами 
 magnet:?xt=urn:btih:CD5A24300013FC195C4A1EA2B1E17D0E795B6386
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Metal Gear Solid V: Ground Zeroes является прологом к игре 
 ```bash
 magnet:?xt=urn:btih:08333A414B417EE34278F6199AD3B307C3A7F290
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Sports Connection (2012) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Ru/Multi]
 magnet:?xt=urn:btih:6EB35B8F6C2714AFF51B8429C72748E37BFB6214
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Just Dance 4 – игра, которую подарил нам 2012 год, –
 ```bash
 magnet:?xt=urn:btih:28B651844EA952C0BD146166B659DA5C9450E18A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Your Shape: Fitness Evolved 2013 (2012) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Licen
 ```bash
 magnet:?xt=urn:btih:F1E42611C399C2374A2BA7586A9D55D99178E392
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:F1E42611C399C2374A2BA7586A9D55D99178E392
 magnet:?xt=urn:btih:3C4A4B33D57029B6112604FD351B418D01304549
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ My Friend Pedro — это жестокая смесь дружбы, фанта�
 ```bash
 magnet:?xt=urn:btih:42AABB8C259AE76E78DAFC7B400B25B956B7D438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Majin and the Forsaken Kingdom / Мадзин. Забытое королевст
 magnet:?xt=urn:btih:3527E28713DE0AE79DD069C0B6A9B7D15F57E609
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ A Plague Tale: Innocence (2019) [PS4] [EUR] 9.0 [HEN] [License / 1.09 / DLC] [Ru
 ```bash
 magnet:?xt=urn:btih:E8B182AE846B773BDDD1B051C2EE304D9AE40BAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ SAW II: Flesh and Blood (2010) [PS3] [EUR] 3.41 [Cobra ODE / E3 ODE PRO] [Unoffi
 magnet:?xt=urn:btih:97988A39B7B0F0E1A030023BA3C270B36D4E3E77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ ARK: Survival Evolved (2017) [PS4] [EUR] 6.72 [HEN] [License / 2.77 / DLC] [Ru/M
 magnet:?xt=urn:btih:E81F3AC5B0AF8849811D616EB3689E465B0A3134
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ Car Mechanic Simulator предлагает игрокам ремонтиров�
 ```bash
 magnet:?xt=urn:btih:FEE4C73D1B3361A4B3C79DA7DE4E12736608294B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:FEE4C73D1B3361A4B3C79DA7DE4E12736608294B
 magnet:?xt=urn:btih:3E1CBFDF609662F2E9F2E959D80FC16F685DBD73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ Steins;Gate (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [E
 ```bash
 magnet:?xt=urn:btih:046567CC6B124EE161F22E9A5C72F455F10B25BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ The Chronicles of Riddick: Assault on Dark Athena (2009) [PS3] [USA] 2.60 [Cobra
 ```bash
 magnet:?xt=urn:btih:9413D43D8E15B9758C4A97C1E2A1B4ECC1D9124C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ Free McBoot это метод запуска приложений напряму
 magnet:?xt=urn:btih:6947ECF5B54DA52A927B6C3A06C9704910ED5F2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ Quantum Theory (2010) [PS3] [EUR] 3.41 [Cobra ODE / E3 ODE PRO ISO] [License] [E
 magnet:?xt=urn:btih:962665DB5AA03D405FCC187166EC43382F617562
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ Cabela's Adventure Camp (2011) [PS3][PS MOVE][EUR] 3.72 [Cobra ODE / E3 ODE PRO 
 ```bash
 magnet:?xt=urn:btih:84F957C2192A5EDC300D6FF6B8D6C33809D4A53D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ Anarchy Reigns – зубодробительный боевик от студи
 magnet:?xt=urn:btih:37303FA63E179EB5A1C4B0999E8CC7768BCF7AEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ Mafia III: Definitive Edition (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.12 / DL
 ```bash
 magnet:?xt=urn:btih:18096DED5153B07B4A188D0E7CE9139F0B876215
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ Tomb Raider: Underworld (2008) [PS3] [USA] 2.42 [Cobra ODE / E3 ODE PRO ISO] [Li
 magnet:?xt=urn:btih:F371894EB2851B4B424D825700672E3583A04320
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ Sushi Striker: The Way of Sushido (2018) [3DS] [EUR] 11.7 [CIA] [Unofficial] [En
 ```bash
 magnet:?xt=urn:btih:45A3310B44B6149D09D22180C6777BD8E6EA7AA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ The Club (2008) [PS3] [EUR] 2.01 [Cobra ODE / E3 ODE PRO ISO] [License] [Ru]
 magnet:?xt=urn:btih:D078FE098CF7AD83CC6CEE39831F26C6706CBF4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ Just Dance 2019 Mod (2019) [PS3] [USA] 3.30 [HEN] [Cobra ODE / E3 ODE PRO ISO] [
 magnet:?xt=urn:btih:B122D632D2C64D8980B74F316ABD09EC42880224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:B122D632D2C64D8980B74F316ABD09EC42880224
 ```bash
 magnet:?xt=urn:btih:9C1077482CE768955DB15A0482B268F8CB787126
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

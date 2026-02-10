@@ -19,6 +19,8 @@ Octopath Traveler (2019) [Ru/Multi] (Update 1) Repack xatab
 magnet:?xt=urn:btih:E7762F1B70F793014B2CBFD6C4FD4A24D8162B94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Hitman 2 (2018) [Ru/Multi] (2.72.0hf/dlc) Repack xatab [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:21F88F6EC2EDC767E140D420A23E6B3DE2EAACEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Oxygen Cocktail - это адвенчура в жанре визуального
 magnet:?xt=urn:btih:EDD93B31EFFB029A7E4EE4EEE96BE6A7E9CC785B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ March of Shrooms (2023) [En] (m309e) License GOG
 ```bash
 magnet:?xt=urn:btih:026794B5D52F2EB71C0F2E67C93B9A1BAD5CBECF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Hidden Expedition 17: The Altar of Lies / Секретная экспедици�
 magnet:?xt=urn:btih:8CD325750045E041335499B682AC454CB818A657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ PuppetShow 15: Porcelain Smile (2018) [En] (Beta) Unofficial
 ```bash
 magnet:?xt=urn:btih:74A01FC9E0EB8F03A938BCA442E8CD01DF2E3750
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Mystery of the Ancients 8: No Escape (2018) [En] (Beta) Unofficial
 magnet:?xt=urn:btih:512EDE08C3AD70FC5A1C79F808638DE7C16F330A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Waking Mars [En] (L) 2012 | -JAGUAR-
 ```bash
 magnet:?xt=urn:btih:E496CC8A4DFBF9D59DCBEA77147DE2BA34DCCFFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Ms. Holmes 3: The Adventure of the McKirk Ritual (2021) [En] (1.0) Unofficial [C
 magnet:?xt=urn:btih:4FB679A1E84FBD740A8B6347C8653F313BA55040
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Super Meat Boy Forever (2020) [Ru/Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:F6A94271CF641C4E0BD7065ECE8324AB4197A8A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ The Seven Chambers (2018) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:48BD21649DD49A81567630263A463C12F7AC9F04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Air Conflicts: Pacific Carriers / Асы Тихого океана [Ru/En/Multi6
 ```bash
 magnet:?xt=urn:btih:BA69C26A660484CA11798A623478B271A85E3997
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Galaxy on Fire 2 Full HD [Ru/En/Multi11] (Steam-Rip/1.0.3) 2012 | R.G. Игро�
 magnet:?xt=urn:btih:F656FB631DE2C18149F27FB77465FDA12548D820
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Red Faction Anthology (2001-2011) [Ru/En] Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:2929FBB2123ABBCEA7B54A3E0D7F571F584987CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Rock of Ages [Ru/En/Multi7] (Steam-Rip/1.10c) 2011 | R.G. Игроманы
 magnet:?xt=urn:btih:AD1D6C513212BA0178BC87643EA6A28575B3B693
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Hand of Fate (2014) [Ru/Multi] (1.3.14/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:345FED82EA50D50F5D49CEF4514FD86B45BCA98C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Champions of Anteria – тактическая стратегия, расска
 magnet:?xt=urn:btih:80D4C6AB4DE8780AEA8A231F44107C09AC0F144B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Champions of Anteria – тактическая стратегия, расска
 ```bash
 magnet:?xt=urn:btih:631D03DD4DB7E3CEA46C243170D303EA7BA79F15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Hundred Days - Winemaking Simulator (2021) [Ru/Multi] (1.3.1/dlc) Repack Other s
 magnet:?xt=urn:btih:32F6551C4766D4352C140FC90C4C8BD4B32D8E41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Stray Blade – это мрачное фентези, в котором игро
 ```bash
 magnet:?xt=urn:btih:461F92F9FFEFF1D089F89596FFA14B06EDC14285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Celeste (2018) [Ru/Multi] (1.2.5.1) License SKIDROW
 magnet:?xt=urn:btih:03A30CB4C1624EFA0A3C4C913CF84B75877C037A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Christmas Adventures 2: A Winter Night's Dream / Рождественское п
 ```bash
 magnet:?xt=urn:btih:2B9C6F7C56A55F36F97A31EAF915D71E24723BB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ Word of the Law: Death Mask (2021) [Ru] (1.0) Unofficial [Collector's Edition]
 magnet:?xt=urn:btih:D53158F7623D516FC676479DEEAE4696EC17301E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Hydrofoil Generation перенесет вас в мир парусного сп
 ```bash
 magnet:?xt=urn:btih:792EAB3CFD608157FC799AEC3A612F8EE06C25BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ Flashback 2 отправляет геймеров в умопомрачител�
 magnet:?xt=urn:btih:716A37578CE115C43026C93A0E1E04A40A2824F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Chimeras 10: The Price of Greed / Химеры 10. Цена алчности (20
 ```bash
 magnet:?xt=urn:btih:35003BD14B52CB63C60BF50D7F61ED2CFB6A86A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

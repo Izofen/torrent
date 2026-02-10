@@ -20,6 +20,8 @@ MEmu позволит играть в любимые игры на персон�
 magnet:?xt=urn:btih:5E6F5BA2D370441727E07D1AECDA4E487B18E482
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ AI Photo for Mac 1.12 [Multi]
 ```bash
 magnet:?xt=urn:btih:D7C08AD23D1F74AF4CA3B57FFAA82AA7A455EF9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ MetaVideo 1.0.6 [Multi]
 magnet:?xt=urn:btih:7696A9504FDB72CE35222909E3C49E2F4C5D1EAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ System Toolkit - приложение «все-в-одном» для монит
 ```bash
 magnet:?xt=urn:btih:09EFA2FAF13B9E1918FF0082BB5462DF033CA694
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ MetaImage - это идеальный инструмент для чтения, 
 magnet:?xt=urn:btih:D17FEDB19BD2CD8D2F8A670C20B260AEB75FB187
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Total Commander является самым мощным и стабильным
 magnet:?xt=urn:btih:2F494058085CCABCA1827AAB9675BE6BD4B68718
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Windows хороша, но всегда есть, что улучшить. Во�
 ```bash
 magnet:?xt=urn:btih:0D0CEC04EEE7B6C8A08C9D97C920807C97C451B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Windows 11 PE x64 by Xemom1 (30.05.23) [Ru]
 magnet:?xt=urn:btih:44A78E474F519973FA35435BA28B07A4E65DD6E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ WinToHDD - простая в использовании программа дл�
 magnet:?xt=urn:btih:019CE3FFCDFF66931809D45758560BB9F785CC88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Speedtest - это приложение предназначено для опр
 ```bash
 magnet:?xt=urn:btih:4BC06F213BEAB2F009365696E6E9CCE108E71E49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ NetLimiter - программа, решающая проблему контро�
 magnet:?xt=urn:btih:6228B0E49348775C62B9EA4356D75513CDA4E504
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ AI Transcription 1.7 [Multi]
 magnet:?xt=urn:btih:554EED019013583079307657A5E1AE92E8B7A197
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Magic Disk Cleaner находит и удаляет временные файл�
 ```bash
 magnet:?xt=urn:btih:A9D6CBBF8AECCF3B0EC72D40C95AE020E0EFDFB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ NIUBI Partition Editor (Repack & Portable) – программа для про�
 magnet:?xt=urn:btih:E83B146FFEBB0E2F633B45565B1DE075AEC386C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ XnView MP - мощное многофункциональное приложен
 ```bash
 magnet:?xt=urn:btih:8F1692B4FA766F652045FC7FB2DDB1AABEC6BBA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ FontLab - профессиональный редактор шрифтов. Пр
 magnet:?xt=urn:btih:3AEAE02B4BF97A90F7916DB1F3CB01381A4C761F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 ```bash
 magnet:?xt=urn:btih:289F06EE4E6DF9BAE6E130F83E4B2641BA9781DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Wondershare UniConverter - простой в использовании виде
 magnet:?xt=urn:btih:8B39698E78121A87F7A095E051D4FD177A731D86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ MediaHuman YouTube Downloader 3.9.9.84 (2007) RePack (& Portable) by TryRooM [Mu
 ```bash
 magnet:?xt=urn:btih:583BF1104DD2B5D9A0349A5AA79E7BDF0549B731
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 magnet:?xt=urn:btih:4B9D51D9CE68F45A4C537D1EB47C169F1E4C958E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ OmniReader - полифункциональное приложение для ч
 ```bash
 magnet:?xt=urn:btih:E482A85EEB2BDB63EC0CC81CB18A4FD895EC7720
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ WhyNotWin11 2.5.0.5 Portable [Multi/Ru]
 magnet:?xt=urn:btih:09554BC20C75D5E254A1F175EA6BF1F3A949479A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ FinePrint - многофункциональный драйвер для при�
 ```bash
 magnet:?xt=urn:btih:7BB24078A5278DC3207B9852E9BB64E3FA8019F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:7BB24078A5278DC3207B9852E9BB64E3FA8019F5
 magnet:?xt=urn:btih:B87F70B6781E2387293273CD86F69DEAD4342222
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:939BECFEF09DCC904740E10740AA02848BB6FBAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +676,8 @@ WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавля�
 ```bash
 magnet:?xt=urn:btih:4580083EDA5802902D313185B518B72EDDBB9E99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

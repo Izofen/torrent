@@ -19,6 +19,8 @@ Family Island – Приключения на ферме – захватыва�
 magnet:?xt=urn:btih:8E25364D54E354B226F3FBD6781B62007F3436FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Hockey All Stars – игра, которая станет пропуском в
 ```bash
 magnet:?xt=urn:btih:820522AA0AAD0C34F89679C3AFFC500BA99D35CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Brain Test 2: Хитрые рассказы v0.155 [Ru/Multi] (обновляе�
 magnet:?xt=urn:btih:79D607D6B2272CD6CF0B77D56B9D25510A434B11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Mindustry – захватывающая игра на андроид, где в
 ```bash
 magnet:?xt=urn:btih:661A2AE7621519890E3B47864AEE9FD110DD3229
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Galaxy Genome - нападения с космоса на Землю начал�
 magnet:?xt=urn:btih:2F668196F93D939F9559D7D9BA19C693099203DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ FRACTER - оригинальная логическая игра для Андр
 ```bash
 magnet:?xt=urn:btih:222A287517AA3D62DE4BC9167BFC0330C179AABA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Hill Climb Racing 2 - студия разработчик Fingersoft за вре
 magnet:?xt=urn:btih:FCC671415544E33852ED2024B7B8146D4DB720D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Drive Ahead! – экстремальные гонки, основанные н�
 ```bash
 magnet:?xt=urn:btih:D9011BE2D89C2CAD90F416217E5BB7A4376A5298
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Constellation Eleven – выбирайте персонажа и отправл
 magnet:?xt=urn:btih:D4720E686608B7BF9E3795C98CA8F6DC69577FC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Baldur's Gate Enhanced Edition - легендарная игра на андро
 ```bash
 magnet:?xt=urn:btih:0156850E89C9791D3899757C06D16B03FAD709D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ FPSE способен отображать все PSOne игры в высоко
 magnet:?xt=urn:btih:D2D41B486D2EAD23213A6CF2B90E1B379DECD5BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ PPSSPP Gold - PSP emulator v1.10.3 [Ru]
 ```bash
 magnet:?xt=urn:btih:769AFCFD99C8025B8011448C749E189943432445
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ ePSXe для Android - это эмулятор консоли Sony PlayStation (
 magnet:?xt=urn:btih:0160798B1DDD48431EAA17CE8059CD899844A7DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Crimsonland HD – быстро развивающийся шутер на ан�
 ```bash
 magnet:?xt=urn:btih:7C6A41C910F8C19F39CC13DEDE48435325B5E85D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Another World - это квест-головоломка, которую оче�
 magnet:?xt=urn:btih:91C73BADD87CC2DB584F2FFA0CB849F2348ADF08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Angry Birds Journey - команда отважных птичек вновь о
 ```bash
 magnet:?xt=urn:btih:6412A7F2DCDDAD322160574C1E6AC453AD5249AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Dark Days: Survival Horror - симулятор выживания от трет
 magnet:?xt=urn:btih:1303793CA754A836C90204734098A52F22FC9182
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:1303793CA754A836C90204734098A52F22FC9182
 ```bash
 magnet:?xt=urn:btih:C74156B2D3B7FD5119934E5D9E67360C347FB1A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:C74156B2D3B7FD5119934E5D9E67360C347FB1A6
 magnet:?xt=urn:btih:083C0928FF3FF55A399B4C9E6F3DF4EBA5CD3355
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:083C0928FF3FF55A399B4C9E6F3DF4EBA5CD3355
 ```bash
 magnet:?xt=urn:btih:F96FABB153E7E8673B2A6C856A3F0C49BD93F214
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:F96FABB153E7E8673B2A6C856A3F0C49BD93F214
 magnet:?xt=urn:btih:13F8408E6DB821C040DF7ED3CFC09178467CA0F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ Ace Squadron: WW II Air Conflicts - симулятор управления ис
 magnet:?xt=urn:btih:2E640186AC21F4E553FEDAC38E1613C5D6ECAF85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Firefight – военная стратегия с видом сверху на 
 ```bash
 magnet:?xt=urn:btih:061BF63A9540999B9D9B0B7495E2520A46B714EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:061BF63A9540999B9D9B0B7495E2520A46B714EA
 magnet:?xt=urn:btih:CEE61A1E39043C0293878E3B86E9EC5BA94B6C04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Clash of Robots - настоящие роботизированные глади
 magnet:?xt=urn:btih:083932371F481DEC4784FAC0C979391FB13E4884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Vengeance RPG – одиночная ролевая игра на андроид
 ```bash
 magnet:?xt=urn:btih:F45250CA518CB6B5301851D4E13018280F374BB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

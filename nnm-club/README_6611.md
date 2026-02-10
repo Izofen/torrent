@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:FA576FD6E1468902FC13C1704DE778FA1D1A3974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:FA576FD6E1468902FC13C1704DE778FA1D1A3974
 magnet:?xt=urn:btih:A2DF3842BEAAC06DDA334268BBE3763955719F78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:A2DF3842BEAAC06DDA334268BBE3763955719F78
 ```bash
 magnet:?xt=urn:btih:CBF0A58FAA711C98E21881E74658F6F8F0DD326B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ ArtiGood, Николай Солодов | Акварельный курс «Зи
 magnet:?xt=urn:btih:44A3E357F31B119A4E733A9796131AECD4F5D0EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:44A3E357F31B119A4E733A9796131AECD4F5D0EE
 ```bash
 magnet:?xt=urn:btih:D5380E3C5F62E0B5975FBF8E99900CE71F7AFB26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:D5380E3C5F62E0B5975FBF8E99900CE71F7AFB26
 magnet:?xt=urn:btih:4A58FB47F2426DCA1B9A063FFDE5D74A28ED86C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:4A58FB47F2426DCA1B9A063FFDE5D74A28ED86C4
 ```bash
 magnet:?xt=urn:btih:34703C6E5C7B6B2FF3A26B0AE9D59366D1CD1633
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Sarah Guthals | GitHub For Dummies, 2nd Edition (2023) [PDF][EN]
 magnet:?xt=urn:btih:0D1BE2FB81B368C518C56B2B29CB1D04C62D6D1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Rufus - небольшая утилита помогает отформатир�
 magnet:?xt=urn:btih:71A7732072679A42CC80C89FB2536D6A015BC7DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:71A7732072679A42CC80C89FB2536D6A015BC7DD
 ```bash
 magnet:?xt=urn:btih:7AC60A8E90E609A1752DCD22B25288B1900A2A1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:7AC60A8E90E609A1752DCD22B25288B1900A2A1F
 magnet:?xt=urn:btih:0CB731047434EEBD8735EFEB60736AFE50573EE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ HitPaw Video Converter позволяет пользователям редак�
 ```bash
 magnet:?xt=urn:btih:F06DCD2A7C9F1D937EE5DB78822F05794F23B320
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:F06DCD2A7C9F1D937EE5DB78822F05794F23B320
 magnet:?xt=urn:btih:7A7B299F1293C313CE0D75B0239A5500F8E5A006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:7A7B299F1293C313CE0D75B0239A5500F8E5A006
 ```bash
 magnet:?xt=urn:btih:FC1BDF321386BFF9B2EED2A5C11055684FA4CAC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:FC1BDF321386BFF9B2EED2A5C11055684FA4CAC6
 magnet:?xt=urn:btih:F0B0BD4C32481F7C6D102030E02A3146005E4930
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:F0B0BD4C32481F7C6D102030E02A3146005E4930
 ```bash
 magnet:?xt=urn:btih:5E7A5B48F1984B5D08C901BFC2A538A8FB0B48D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Mirillis Action! 4.31.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:A0D6B2990AEBF7A0C79324401FA2B1CEFBEDC470
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Luminar Neo 1.7.1.11148 (Repack & Portable) by elchupacabra [Multi]
 magnet:?xt=urn:btih:45EC898E61846329E5CD9D6D6EDF44402C343317
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ HitPaw Watermark Remover предоставит возможность вам у
 ```bash
 magnet:?xt=urn:btih:8F5EEB109CE99C0E8703CFF4B79A459C73EC0919
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ B.B. King - Reflections (2003) Reissue, 2015, Universal Music [FLAC 2.0|192/24|W
 magnet:?xt=urn:btih:6CBB4C63741F1B2BBE86875D2A39C158A4A16197
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ Exit Eden - Rhapsodies in Black (2017) [FLAC|lossless|image + .cue] <Symphonic M
 magnet:?xt=urn:btih:F815AB9083ECBFDDBFFE2B67FCDDC7D6D568EF25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:F815AB9083ECBFDDBFFE2B67FCDDC7D6D568EF25
 magnet:?xt=urn:btih:1F59C0DFE06D8383099CAE2F6A02DD35A360ACC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:1F59C0DFE06D8383099CAE2F6A02DD35A360ACC5
 ```bash
 magnet:?xt=urn:btih:89EA126219FADB54707CD32CDB7235935E714F3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:89EA126219FADB54707CD32CDB7235935E714F3A
 magnet:?xt=urn:btih:40E52D4FFB6392A9E4D85A81F4D7EA5F74661F95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:40E52D4FFB6392A9E4D85A81F4D7EA5F74661F95
 magnet:?xt=urn:btih:E5BEFE2D1C651522BE3876678EACB66EFEAB2B82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:E5BEFE2D1C651522BE3876678EACB66EFEAB2B82
 ```bash
 magnet:?xt=urn:btih:9F65926DBA3571065FB41AD4EB8DD9DD403BC9A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

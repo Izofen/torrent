@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ XnView - утилита, предназначенная для просмотр�
 ```bash
 magnet:?xt=urn:btih:3043B2429D3250A129C810B992D934D167D132E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:3043B2429D3250A129C810B992D934D167D132E3
 magnet:?xt=urn:btih:970C0690ECD3414FBB75F6E7D8F157263998D931
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Darkest Tales (2022) [Ru/Multi] (1.05.1) License GOG
 ```bash
 magnet:?xt=urn:btih:6E96C17CB03EC3FD00813F8BE143C47FC4130B28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Advanced SystemCare PRO - это мощный пакет для оптимиза
 magnet:?xt=urn:btih:8F450587FE5EC70CA10AABA11E00CACD218A8484
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:8F450587FE5EC70CA10AABA11E00CACD218A8484
 ```bash
 magnet:?xt=urn:btih:099E7D0A74C8C5B910EF278A1430F2EE1100DD30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:099E7D0A74C8C5B910EF278A1430F2EE1100DD30
 magnet:?xt=urn:btih:F96980DF2DB8D5AE4C2966BEA7DAA990DBAE3369
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Lovecraft’s Untold Stories 2 – ролевой экшен с элемента
 ```bash
 magnet:?xt=urn:btih:329C3C79331B2BA90D8872D568261D0E86FC225C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:329C3C79331B2BA90D8872D568261D0E86FC225C
 magnet:?xt=urn:btih:C3F4853B06FB312760F705AFA395D3F43D108349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:C3F4853B06FB312760F705AFA395D3F43D108349
 ```bash
 magnet:?xt=urn:btih:DDD6664EE5EE0D9DD48B869DE2EE937B03C40CB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Discovery: Последние тайны "Титаника" / Last Mysteries of 
 magnet:?xt=urn:btih:BD21786C16A529E375FAEE71409A3FC751345C33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ SIGNALIS (2022) [Ru/Multi] (1.0) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:B289F5F351A668178E41A7D4518E15CD196E60A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:B289F5F351A668178E41A7D4518E15CD196E60A3
 magnet:?xt=urn:btih:EAAD61521C1DC69E2261A869688FAF0A7021937C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ ACDSee Photo Studio Ultimate сочетает в себе поддержку с�
 ```bash
 magnet:?xt=urn:btih:B8A5CFACD7C2DA8CE99EF8BC57236CF2C8B5B85E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ XnView Shell Extension 4.1.9  + Standalone  [Multi/Ru]
 magnet:?xt=urn:btih:9A8DD0D85573A019CEE94C0B68400C628BC25859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:9A8DD0D85573A019CEE94C0B68400C628BC25859
 ```bash
 magnet:?xt=urn:btih:E78901AA390F7031F12C318A0F83E400906911F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:E78901AA390F7031F12C318A0F83E400906911F9
 magnet:?xt=urn:btih:A455A04797482399460CE4871F7FED905E330A12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Sonic Frontiers (2022) [Switch] [US] 14.1.2 [eShop] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:54FE847C30C26890144500DA64558FB195F756C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:54FE847C30C26890144500DA64558FB195F756C4
 magnet:?xt=urn:btih:46A1506A15A7FAE6374C7A8A4A98C9C42DEA889F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:46A1506A15A7FAE6374C7A8A4A98C9C42DEA889F
 ```bash
 magnet:?xt=urn:btih:4E40606B7542AA22B62B3A620E90ECDF354B60DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Alfred Hitchcock: Vertigo (2021) [Ru/Multi] (2022093001/dlc) License GOG [Digita
 magnet:?xt=urn:btih:66F07DE408657593D2B3BE324E3E1613EB7EDC93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:66F07DE408657593D2B3BE324E3E1613EB7EDC93
 ```bash
 magnet:?xt=urn:btih:B29B1279325E310DA7140087927DD76ED2E40A49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:B29B1279325E310DA7140087927DD76ED2E40A49
 magnet:?xt=urn:btih:3710ACA5BAA2F32E5AC4B5E7603707526428CCC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:3710ACA5BAA2F32E5AC4B5E7603707526428CCC1
 ```bash
 magnet:?xt=urn:btih:C5CB979C0A523D1269364FF4D688AD82B3E7008F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:C5CB979C0A523D1269364FF4D688AD82B3E7008F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:C5CB979C0A523D1269364FF4D688AD82B3E7008F
 ```bash
 magnet:?xt=urn:btih:A900B3AD717C72EEC6DE7715D2E261B47523E257
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

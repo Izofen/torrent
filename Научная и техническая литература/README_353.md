@@ -1,3 +1,56 @@
+###  Публикация: 1300014   (594959) от 04.05.2019
+
+М.Ю. Полевая, Э.Ф. Телень | Английский язык. Пособие для поступающих в ВУЗы (1997) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель пособия - помочь абитуриентам самостоятельно или на подготовительных курсах подготовиться к экзамену по английскому языку при поступлении в вуз.
+В первой части пособия отрабатывается навык ознакомительного чтения и перевода текстов разной тематики, а также развития коммуникативных навыков. Во вторую часть включены тексты с заданиями, близкие тем, которые используются (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43BE4B027E7A4E0E6F48C37D80FF7ED6D8F8C12F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299935   (594962) от 04.05.2019
+
+П.А. Фаворов | Англо-русский кораблестроительный словарь (1967) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Словарь содержит около 30 000 терминов, сокращений и условных обозначений по конструкции корабля, судовым системам и устройствам, механизмам и электрооборудованию, вооружению и специальному оборудованию кораблей и судов, системам живучести и боевой защите корабля, строительной механике, теории корабля и технологии кораблестроения. В словарь включена новейшая терминология (   Читать дальше...   )Жанр: СловарьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFDBF8AB4484E33DD691BE3FB662D8C1B975DEBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915200   (595041) от 04.07.2015
 
 А. Шепелев | Horten 229: Призрак Тюрингии (2002) [PDF]
@@ -18,6 +71,8 @@
 ```bash
 magnet:?xt=urn:btih:C7CB00906AAB9EA4EF1EA3C99BD53C72F1E0D8CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +99,8 @@ magnet:?xt=urn:btih:C7CB00906AAB9EA4EF1EA3C99BD53C72F1E0D8CF
 magnet:?xt=urn:btih:7FD647E446AFC5C33BDC79D7D614F97BA10662FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +124,8 @@ magnet:?xt=urn:btih:7FD647E446AFC5C33BDC79D7D614F97BA10662FA
 ```bash
 magnet:?xt=urn:btih:F4556B8F9D8E03FF02D54391D8A5F27DE375FB42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +153,8 @@ magnet:?xt=urn:btih:F4556B8F9D8E03FF02D54391D8A5F27DE375FB42
 magnet:?xt=urn:btih:5D51E6A2A74F328CC197ACDB626532CCD4AFA2C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +178,8 @@ magnet:?xt=urn:btih:5D51E6A2A74F328CC197ACDB626532CCD4AFA2C4
 ```bash
 magnet:?xt=urn:btih:C975FEC0848D6F048626656514958BE594044AEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +206,8 @@ magnet:?xt=urn:btih:C975FEC0848D6F048626656514958BE594044AEB
 ```bash
 magnet:?xt=urn:btih:C6CC562A77C16169DF0744BB9B9446D61ACDA4E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +236,8 @@ magnet:?xt=urn:btih:C6CC562A77C16169DF0744BB9B9446D61ACDA4E2
 magnet:?xt=urn:btih:5C88212A46FE19ACE3B6246A931230D1B4C1011D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +261,8 @@ magnet:?xt=urn:btih:5C88212A46FE19ACE3B6246A931230D1B4C1011D
 ```bash
 magnet:?xt=urn:btih:222EACDD93E121C424B72718287D3FBB7940B6B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +288,8 @@ magnet:?xt=urn:btih:222EACDD93E121C424B72718287D3FBB7940B6B0
 magnet:?xt=urn:btih:B4367B198DC17A8F31F32223610359CFB223272B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +313,8 @@ magnet:?xt=urn:btih:B4367B198DC17A8F31F32223610359CFB223272B
 ```bash
 magnet:?xt=urn:btih:B2272E0048D84B40215E481EEC0385734AAF1632
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +340,8 @@ magnet:?xt=urn:btih:B2272E0048D84B40215E481EEC0385734AAF1632
 magnet:?xt=urn:btih:172C2F4E1879A0252081AA5441F4723AB389CE51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +365,8 @@ magnet:?xt=urn:btih:172C2F4E1879A0252081AA5441F4723AB389CE51
 ```bash
 magnet:?xt=urn:btih:C106FAA07B3DCAFB12F4705AB77F243E48EAB05C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +392,8 @@ magnet:?xt=urn:btih:C106FAA07B3DCAFB12F4705AB77F243E48EAB05C
 magnet:?xt=urn:btih:8039DF4E7A5A79DDAE6A81E361A58A5AA7FE905F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +417,8 @@ magnet:?xt=urn:btih:8039DF4E7A5A79DDAE6A81E361A58A5AA7FE905F
 ```bash
 magnet:?xt=urn:btih:88C7CD956687B1628B89961FC73FDE91D2883E4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +445,8 @@ magnet:?xt=urn:btih:88C7CD956687B1628B89961FC73FDE91D2883E4B
 ```bash
 magnet:?xt=urn:btih:6F7E84583F12FFB7796B7943DB3533A29D1476CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +475,8 @@ magnet:?xt=urn:btih:6F7E84583F12FFB7796B7943DB3533A29D1476CF
 magnet:?xt=urn:btih:837EEAE1E4E84F75F0BE8A3DE40BA5AABD6D3E7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +500,8 @@ magnet:?xt=urn:btih:837EEAE1E4E84F75F0BE8A3DE40BA5AABD6D3E7B
 ```bash
 magnet:?xt=urn:btih:304559F825744DABB00FCE626A7F025A69E7DF24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +530,8 @@ magnet:?xt=urn:btih:304559F825744DABB00FCE626A7F025A69E7DF24
 magnet:?xt=urn:btih:A57286CA0EB63BB2B14763A521A3C1D27EF93B01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +556,8 @@ magnet:?xt=urn:btih:A57286CA0EB63BB2B14763A521A3C1D27EF93B01
 magnet:?xt=urn:btih:EE8DBBDBD2B8B844E71B405BDC564C5E4A8F4DF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +581,8 @@ magnet:?xt=urn:btih:EE8DBBDBD2B8B844E71B405BDC564C5E4A8F4DF2
 ```bash
 magnet:?xt=urn:btih:CB7EF7C02DB461E4054300DF99BAF29D028F2A22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +609,8 @@ magnet:?xt=urn:btih:CB7EF7C02DB461E4054300DF99BAF29D028F2A22
 magnet:?xt=urn:btih:B8BB0C4C40C7324A167F05B4924EAD23E4435FE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +634,8 @@ magnet:?xt=urn:btih:B8BB0C4C40C7324A167F05B4924EAD23E4435FE2
 ```bash
 magnet:?xt=urn:btih:E7FDF3E5B429D912A732801708BB3DE849BE5FFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +662,8 @@ magnet:?xt=urn:btih:E7FDF3E5B429D912A732801708BB3DE849BE5FFC
 magnet:?xt=urn:btih:FB5304951546E743CDFCBFBBE64020D43A91CEE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,53 +688,7 @@ magnet:?xt=urn:btih:FB5304951546E743CDFCBFBBE64020D43A91CEE5
 magnet:?xt=urn:btih:CB9A538B12F8743C8AEBD0E156F814DF54C32AC9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913859   (595851) от 03.07.2015
-
-Книжная серия | Оружие [34 тома] (2007-2010) [FB2, PDF, DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595851.jpg" />
-</div>
-
-
-###  Подробнее
-
-В серии Оружие издательства "Центрполиграф" всё о воинах, их экипировке и вооружении с древнейших времен до наших дней. Книги серии Оружие богато иллюстрированы.Жанр: История оружияФормат: FB2, PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41F4C69330E16E7BA08877D54E0FECA1D94DDC2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039258   (595901) от 01.08.2016
-
-Р.М. Малинин | Питание радиоаппаратуры от электросети (1970) [PDF, DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595901.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге приводятся практические схемы выпрямителей и стабилизаторов напряжения различных типов, излагаются принципы их работы, даются расчеты этих устройств. Описываются конструкции трансформаторов и автотрансформаторов питания и дросселей сглаживающих фильтров.Жанр: Электроника, радиотехникаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D36C96E27C98F6DAF5CBEF3FFDB2C8AB7006F9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Heidevolk - Wederkeer (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Black-metal, Folk-m
 magnet:?xt=urn:btih:90B8AE87B89A50E9B28E705CE63E4997B08D3F82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Top Country Soul of a Nation (2023) [MP3|320 Kbps] <Country>
 ```bash
 magnet:?xt=urn:btih:2B758E35CB45F1E6986B2F38DF0B74F48449AB3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:2B758E35CB45F1E6986B2F38DF0B74F48449AB3A
 magnet:?xt=urn:btih:B704D5C58141D77EAC98276B0B4AD0CDC13728ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Soul, Original Motion Picture Soundtrack - (2020) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:7A34FADD5C1C316D5BCBCEF8CDE91D67BA28CB73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Super Djata Band - 2022 - Authentique 80Жанр: World MusicПродолжит�
 magnet:?xt=urn:btih:5C1442C35A1DE844FE71E40E4E8C313B073F048A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Richard Clayderman - The Music of Love (1984) [FLAC|Lossless|WEB-DL|tracks] <Ins
 ```bash
 magnet:?xt=urn:btih:2FC32FE2231F428D19BB916A5331E52EC9A39191
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ John Weider - Intervals In Sunlight (1987) [FLAC|Lossless|tracks + .cue] <New Ag
 magnet:?xt=urn:btih:B231530C7C6AF2AAEC6D7966E7BB3E5C25ADA860
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Offerings to the Ganges - Spiritual Tantric Energy: Enjoy Valentines Day (2023) 
 ```bash
 magnet:?xt=urn:btih:F82CBB7E7D9B23EBBA0ACFC666FB7C54725FF2A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Jim Brickman - The Ultimate Valentine's Day (2021) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:57D96D6F0A9E1862418FEBDC0EB11038E501F177
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Indian Spirit - Discography (2009 - 2020)  6 Releases [MP3|320 Kbps] <Native Ame
 ```bash
 magnet:?xt=urn:btih:1D78D540F1B3ED8BCCD8F0FEED70A650A04DE68E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ CD ONE:
 magnet:?xt=urn:btih:16382E1975297FA8AC101913413F3F566671ED75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Ennio Morricone - Love Songs & Romantic Scores (2023) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:585ED2BBA3A8DA9AA9A42A4B1D6476386FB352A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Oota Dabun - Ani Kuni (2011) [MP3|320 Kbps] <Native American, New Age>
 magnet:?xt=urn:btih:D320D5E19582393546B7BE6822808806C32D3E7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Шедевры цыганской музыки, 4 Альбома (2000) [MP
 ```bash
 magnet:?xt=urn:btih:3B8A5E85C813FC6C251AB95D56E48E52D603B054
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ magnet:?xt=urn:btih:3B8A5E85C813FC6C251AB95D56E48E52D603B054
 magnet:?xt=urn:btih:4F37EB59B9AD5F7E74541ACC01553196C91C0D01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Era - The Very Best Of (2004) [OGG Vorbis|480 Kbps] <Rock, Pop, Classical>
 ```bash
 magnet:?xt=urn:btih:97B6CFB194865C537A764E426E974E68A23FB07D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Le Grand Orchestre De Paul Mauriat - Penelope (1971) Reissue, Remastered, 1997, 
 magnet:?xt=urn:btih:BBC39788461998D311D464F4E3F6097F7F13CF29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ magnet:?xt=urn:btih:BBC39788461998D311D464F4E3F6097F7F13CF29
 ```bash
 magnet:?xt=urn:btih:2798118184ED172AC0DDB5126716B6967E1EE947
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ Deep Forest - Deep Forest / Comparsa (1998) Reissue, 2001, Epic Records Group [O
 magnet:?xt=urn:btih:4F1685FC19B7389D3ED0A634769EA57D66F51A20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ magnet:?xt=urn:btih:4F1685FC19B7389D3ED0A634769EA57D66F51A20
 ```bash
 magnet:?xt=urn:btih:3D1066E2642F367CE76DD5FECF51DBD55DBAF625
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +599,8 @@ Ted Hammond Orchestra - Hammond Evergreens (2022) Vol. 1, 2 [MP3|320 Kbps] <Hamm
 magnet:?xt=urn:btih:CFB6EC5F84FD07AC93F30E5578607A324BB12561
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +628,8 @@ Ambra - Honour & Glory (2003) [OGG Vorbis|470 Kbps] <Electronic, New Age, Downte
 magnet:?xt=urn:btih:4F9E07AAEC25E5D1E683F5A964A5D87B0C7AF149
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +654,8 @@ Blackmore's Night - Spirit of the Sea (Ritchie & Candice Anniversary Home Sessio
 ```bash
 magnet:?xt=urn:btih:88F68AA2BB34926E41CF2F36179FDDEA527574B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +684,8 @@ Peruquois & Praful - Breathing Love (2009) [FLAC|Lossless|tracks + .cue] <New Ag
 magnet:?xt=urn:btih:B9999685D1EB8A093DB2DFB415CBE113CC0EAA13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +713,8 @@ VA - Night Time Yoga, Asana One (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Y
 magnet:?xt=urn:btih:B1A7CC24F722AA6E4A3FCFC0C371FFF4198A6D90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -691,6 +741,8 @@ magnet:?xt=urn:btih:B1A7CC24F722AA6E4A3FCFC0C371FFF4198A6D90
 ```bash
 magnet:?xt=urn:btih:B76A954BC1BF53B878EA20FC26D9BDAEBA708994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

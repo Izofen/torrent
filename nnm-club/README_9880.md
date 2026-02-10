@@ -1,57 +1,3 @@
-###  Публикация: 1582744   (318921) от 11.10.2022
-
-Thomas Datt - Trance Pioneers 003 (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Datt - Still Alone (Original Mix)
-02. Thomas Datt - Long Distance (Original Mix)
-03. Thomas Datt - Mass Effect (Original Mix)
-04. Thomas Datt - Evaporate (Part 2) (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59D49D3D1BC42C16E908B1D1633481AF12C12DF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582704   (318922) от 11.10.2022
-
-Mariah Carey - Music Box (1993) [OGG Vorbis|480 Kbps] <Electronic, Funk / Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamlover
-02. Hero
-03. Anytime You Need a Friend
-04. Music Box(   Читать дальше...   )Жанр: Electronic, Funk / SoulПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ECEB34BA7C5BC7C29236DCCBB9A4B76ED31154E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 417349   (318923) от 30.11.2011
 
 Эта - дурацкая - любовь / Crazy, Stupid, Love. (2011) DVD5
@@ -72,6 +18,8 @@ magnet:?xt=urn:btih:6ECEB34BA7C5BC7C29236DCCBB9A4B76ED31154E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +48,8 @@ Fallujah - Empyrean (2022) [FLAC|Lossless|image + .cue] <Technical Death Metal>
 magnet:?xt=urn:btih:EB178A32C164046E606E7992E5AB273F127AADDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +76,8 @@ VA - Chapter 1 Uplifting Trance (2022) [MP3|320 Kbps] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:1E6400F4AC8CF026F8C15FCC8031869DA4BE481A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +106,8 @@ Trick Or Treat - Creepy Symphonies (2022) [FLAC|Lossless|image + .cue] <Power Me
 magnet:?xt=urn:btih:1D6A5658BE1388F1C2F5F2590C594A8BFBB816E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +134,8 @@ Magical Heart - Heartsonic (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:98DAE8F4230A2025E6F1229B4479916092A23A66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +164,8 @@ magnet:?xt=urn:btih:98DAE8F4230A2025E6F1229B4479916092A23A66
 magnet:?xt=urn:btih:B491D7E065CDE0CB2B453C7E858BE21F3A7CB80D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +192,8 @@ Egoist - Наследие (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Dea
 ```bash
 magnet:?xt=urn:btih:266059872614539965008F6413425B4966BAF6BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +222,8 @@ Charles Mingus - Presents Charles Mingus (1960) 2022, Candid [FLAC|Lossless|trac
 magnet:?xt=urn:btih:89768A455EDD4AA53C9B6CD75E4BC46D4411DF63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +250,8 @@ Them - Return To Hemmersmoor (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:4B564FF760CFB0033842CC82877ECE1881C1CD42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +280,8 @@ Amaurot - ...to Tread the Ancient Waters (2022) [FLAC|Lossless|WEB-DL|tracks] <G
 magnet:?xt=urn:btih:1D8DF728C2D381CB8817F514E367463FBFA7322B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +308,8 @@ EldersThrone - 1978 (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:E0FA8AE5CAA8BA63010AF7BD984F02144FE0D569
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +338,8 @@ magnet:?xt=urn:btih:E0FA8AE5CAA8BA63010AF7BD984F02144FE0D569
 magnet:?xt=urn:btih:317DCA8A206742DCA9A3678FD8FCE030D1FFDEEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +366,8 @@ Too Mutz Blues Band - Collection (2017-2018) 2CD [MP3|320 Kbps] <Blues, Blues Ro
 ```bash
 magnet:?xt=urn:btih:CFBBB67B898EC45327D5E0894455B55D57DC36B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +396,8 @@ magnet:?xt=urn:btih:CFBBB67B898EC45327D5E0894455B55D57DC36B9
 magnet:?xt=urn:btih:1FF0979579EB1F456BB3333A2346C9A489AADD8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +423,8 @@ TG Pro — контроль температуры и вентиляторов �
 magnet:?xt=urn:btih:71ECED1A596954D429092582C6EB779F2284C5DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +448,8 @@ magnet:?xt=urn:btih:71ECED1A596954D429092582C6EB779F2284C5DB
 ```bash
 magnet:?xt=urn:btih:8389452A5BF27705CEF1BB8083A0D1B7A875B102
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +478,8 @@ magnet:?xt=urn:btih:8389452A5BF27705CEF1BB8083A0D1B7A875B102
 magnet:?xt=urn:btih:B5B3AF8934440777C72DE9385E4F0A15944F4869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +507,8 @@ magnet:?xt=urn:btih:B5B3AF8934440777C72DE9385E4F0A15944F4869
 magnet:?xt=urn:btih:3455EA9F0CCA38A6B12DA6D98DA67255695CAD80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +532,8 @@ magnet:?xt=urn:btih:3455EA9F0CCA38A6B12DA6D98DA67255695CAD80
 ```bash
 magnet:?xt=urn:btih:AA3BFC614DAFD04B57F314279ACD659C3C989B78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +559,8 @@ magnet:?xt=urn:btih:AA3BFC614DAFD04B57F314279ACD659C3C989B78
 magnet:?xt=urn:btih:0242791C206AE18F8EE8A505DEBADAED5DABBB77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +584,8 @@ magnet:?xt=urn:btih:0242791C206AE18F8EE8A505DEBADAED5DABBB77
 ```bash
 magnet:?xt=urn:btih:80FA9D36931AD782ACFC70884A88784158D462D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +613,8 @@ magnet:?xt=urn:btih:80FA9D36931AD782ACFC70884A88784158D462D6
 magnet:?xt=urn:btih:5D62440CCE1C9F6D7D9B0012B4ECF13F3BB93897
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +638,8 @@ magnet:?xt=urn:btih:5D62440CCE1C9F6D7D9B0012B4ECF13F3BB93897
 ```bash
 magnet:?xt=urn:btih:BAC55B137E7C523EBE910F82FE83714D4C9CCAD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +665,63 @@ Future Bound - The Ephemeris (1997) Timeless Recordings [FLAC|Lossless|Vinyl|tra
 ```bash
 magnet:?xt=urn:btih:51425A5F8EACDD05F6DAE8A6238CDF4718FFF48A
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259596   (318949) от 04.11.2018
+
+Светлана Лазарева | Офисный планктон или РУсалки тоже плачут (2018) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Истории про русалок, волей судьбы умудрившихся угодить на людские территории, давно не редкость. Каждая уважающая себя русалка мечтает о побеге, приключениях и жизни в королевстве Моравия, где обитают только люди — существа своенравные, слабые, но главное… недалекие!
+Я — сельдь Солярия Ульса — не была исключением. Да-да, и как все романтичные фрейлины при морском (   Читать дальше...   )Жанр: Любовное фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7BA358F7E3BEA411A37D19E14227008515BBA25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259658   (318950) от 04.11.2018
+
+Шеннон Макгвайр | В каждом сердце – дверь (2018) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая часть трилогии «Трудные дети» (Wayward Children).
+
+В дебрях глухих лесов расположена частная школа Элеанор Уэст для трудных подростков. Вот только их «трудности» далеки от привычных проблем: каждый воспитанник побывал в ином мире, который считает своим подлинным домом и мечтает туда вернуться. Главное – успеть отыскать свою «дверь» до того, как станешь слишком (   Читать дальше...   )Жанр: Городское фэнтези, Зарубежное фэнтези, ПовестьФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84DCDFC905F7D3E673CEA72051FD85D2DB70E240
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

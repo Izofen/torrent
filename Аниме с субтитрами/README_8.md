@@ -19,6 +19,8 @@ Oбщeизвecтнo, чтo лyчшe вceгo cтaнoвитьcя aвaнтюpиcтo
 magnet:?xt=urn:btih:45707C4EA8D7FBD6F71D6F1F6BFCB582B1EF0FD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ VTuber Nanda ga Haishin Kiriwasuretara Densetsu ni Natteta / Легенда о �
 magnet:?xt=urn:btih:09DEBFA2189890EDCA1DE8794DB173693CD23797
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Nanare Hananare / Narenare: Cheer for You! / Слушайте Хананарэ [
 ```bash
 magnet:?xt=urn:btih:4689AF3735B7BBF9AB3C6B1EAB536AA0C620367F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Karasu wa Aruji o Erabanai | Yatagarasu: The Raven Does Not Choose Its Master | 
 magnet:?xt=urn:btih:A54894EA4F6C368D1CBB38C807436BECA050B4BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Madougushi Dahlia wa Utsumukanai / Dahlia in Bloom: Crafting a Fresh Start With 
 ```bash
 magnet:?xt=urn:btih:1632119C51AB484463BFCABD9EC45DB2D177167B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Ore wa Subete o Parry Suru: Gyaku Kanchigai no Sekai Saikyou wa Boukensha ni Nar
 magnet:?xt=urn:btih:821B300830F7100F3C09DD50D1123B6C4EEB6D75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Giji Harem | Pseudo Harem | Псевдогарем [2024, TV, 12 из 12] WEBRip
 magnet:?xt=urn:btih:13B9F31E559C1D982FCCE339AA438E8AD1909495
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Gimai Seikatsu / Days with My Stepsister / Жизнь со сводной сес
 ```bash
 magnet:?xt=urn:btih:2F7A1FF3B237CC4C73695F30FC4DBC854C2CB1AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Megami no Cafe Terrace 2 / The Cafe Terrace and Its Goddesses 2 / Терраса
 magnet:?xt=urn:btih:F8C98419F288586D0C3F092F80271EEF61E08348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Mob kara Hajimaru Tansaku Eiyuutan / A Nobody's Way Up to an Exploration Hero / 
 ```bash
 magnet:?xt=urn:btih:867D3E0D9C4F462E19A4BA2D1AE3F89929B97225
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Bye Bye, Earth / Пока, Земля [2024, TV, 10] WEBRip 720p raw
 magnet:?xt=urn:btih:D15CE858FA87C43329960B5B383099CED3370B5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Isekai Suicide Squad | Отряд самоубийц в другом мире [2
 ```bash
 magnet:?xt=urn:btih:C4182662046564E2A724DDD0810F515BA779B9E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Mato Seihei no Slave | Chained Soldier | Раб спецотряда [ТВ-1] [2
 magnet:?xt=urn:btih:79F5BBA285DCF522BB31943852ECED3BC5A42AE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Lv2 kara Cheat datta Moto Yuusha Kouho no Mattari Isekai Life | Chillin' in Anot
 ```bash
 magnet:?xt=urn:btih:F6FE4F07AFE1871592B23A4DA4B7FC0C13EF25F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Bofuri | Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu. 2 |
 magnet:?xt=urn:btih:258D32466B60B35F36F468E4E20E1178CBDF2B61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Kusuriya no Hitorigoto | The Apothecary Diaries | Записки аптекар�
 magnet:?xt=urn:btih:29430D65FE2295A8759AF3EFF8760D03DBFC2D97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ Sousou no Frieren | Frieren: Beyond Journey's End | Провожающая в п
 magnet:?xt=urn:btih:E98AF453F4FA960CDBF9A57EB325A66638DEC115
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Maou Gakuin no Futekigousha II | The Misfit of Demon King Academy II | Непр�
 ```bash
 magnet:?xt=urn:btih:7CF26384D52455AF76919FC51F88B9096ED3DDBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Isekai Cheat Magician | Маг-обманщик из другого мира [20
 magnet:?xt=urn:btih:E66E4512206A6E66037D552A518419AAC46819F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Boukyaku Battery | Oblivion Battery | Забвение баттери [2024, TV,
 ```bash
 magnet:?xt=urn:btih:E909B084CE93D4FCF4C69F6CBEFEFEC9EB9C0A26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ Hibike! Euphonium 3 | Sound! Euphonium 3 | Играй, эуфониум! [ТВ-3
 magnet:?xt=urn:btih:59AB288178AE6EE707EF4443DDC7B2AAB121E420
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ Tonari no Youkai-san | Ёкаи по соседству [2024, TV, 13 эп.] Web
 ```bash
 magnet:?xt=urn:btih:CA26F6515AAB3AD2155177542AC37CF4B90AC7CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ The New Gate | Новые врата [2024, TV, 12 эп.] WEBRip 720 raw
 magnet:?xt=urn:btih:37F265D4B4BED4108F9A934711BC8D5D7794EEF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ Mahouka Koukou no Rettousei (2024) | Непутевый ученик в школ
 ```bash
 magnet:?xt=urn:btih:16515813EA7F0B9E707289F1C6182A0B94A78775
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ Wind Breaker | Ветролом [2024, TV, 13 эп.] WEBRip 720 raw
 magnet:?xt=urn:btih:D6A22AF536EB1D19118717481EE26BF014539428
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Kenka Dokugaku | Viral Hit | Борьба в прямом эфире [2024, TV, 
 ```bash
 magnet:?xt=urn:btih:5173AA3590EA92B0DD5216A7FDF743F3DA76CB14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

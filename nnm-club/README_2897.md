@@ -28,6 +28,8 @@ VA - Сборник медленных хитов Vol.4 (2012) [MP3|320 kbps]<Po
 magnet:?xt=urn:btih:596D0B181C4EB738C5175D0E426EEB5525999CB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -53,6 +55,8 @@ magnet:?xt=urn:btih:596D0B181C4EB738C5175D0E426EEB5525999CB3
 magnet:?xt=urn:btih:54BACE1799B1710D980BEC21A87E2FFE44C5A440
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:54BACE1799B1710D980BEC21A87E2FFE44C5A440
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -110,6 +116,8 @@ Macy Gray - Covered (2012) [MP3|320 кб/с]<Soul>
 magnet:?xt=urn:btih:D20748694B3B8EC21C053BBDA97AA37DFB7B7FCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +143,8 @@ magnet:?xt=urn:btih:D20748694B3B8EC21C053BBDA97AA37DFB7B7FCE
 magnet:?xt=urn:btih:EED35EDAE2BDFE441BD987C9B79C2A13368FA399
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -159,6 +169,8 @@ magnet:?xt=urn:btih:EED35EDAE2BDFE441BD987C9B79C2A13368FA399
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ magnet:?xt=urn:btih:EED35EDAE2BDFE441BD987C9B79C2A13368FA399
 ```bash
 magnet:?xt=urn:btih:CBC7DDCA76C11FA6FA660B91930DE9882B803B0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +238,8 @@ Sequentia
 magnet:?xt=urn:btih:39756A4D56C587AB1872A31D5054C923DB22F00A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +263,8 @@ magnet:?xt=urn:btih:39756A4D56C587AB1872A31D5054C923DB22F00A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +290,8 @@ magnet:?xt=urn:btih:39756A4D56C587AB1872A31D5054C923DB22F00A
 magnet:?xt=urn:btih:C5191D2F923B67AD34D69BF7EF862919DA112497
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +316,8 @@ BBC. Horizon: Тайная жизнь собак / The secret life of the dog (2
 magnet:?xt=urn:btih:ADF872D29E015CA816BB18161CF8A5DC8D7382B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ magnet:?xt=urn:btih:ADF872D29E015CA816BB18161CF8A5DC8D7382B8
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +377,8 @@ magnet:?xt=urn:btih:ADF872D29E015CA816BB18161CF8A5DC8D7382B8
 magnet:?xt=urn:btih:6FCC3B5E1D35DFE4738A71F44A965B2719E0E93E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +402,8 @@ magnet:?xt=urn:btih:6FCC3B5E1D35DFE4738A71F44A965B2719E0E93E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +438,8 @@ The organ the Church of Our Lady of Sorrows, Toronto
 magnet:?xt=urn:btih:65B42396879703F5B2ABDB2A041C54883F01E0A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +464,8 @@ magnet:?xt=urn:btih:65B42396879703F5B2ABDB2A041C54883F01E0A6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +492,8 @@ magnet:?xt=urn:btih:65B42396879703F5B2ABDB2A041C54883F01E0A6
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +517,8 @@ magnet:?xt=urn:btih:65B42396879703F5B2ABDB2A041C54883F01E0A6
 ```bash
 magnet:?xt=urn:btih:60F74EF12BB82DDD808D018A2C9961482F35AEF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ magnet:?xt=urn:btih:60F74EF12BB82DDD808D018A2C9961482F35AEF9
 magnet:?xt=urn:btih:2B72ED0EDEC7E98C923D96E2ED16712D67B20A38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ OSGeo-Live — это «живой» диск в виде DVD, образа дл
 ```bash
 magnet:?xt=urn:btih:6CC5623FE115F3DA427C4DF4A50F81B802360ACE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +596,8 @@ magnet:?xt=urn:btih:6CC5623FE115F3DA427C4DF4A50F81B802360ACE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +622,8 @@ magnet:?xt=urn:btih:6CC5623FE115F3DA427C4DF4A50F81B802360ACE
 ```bash
 magnet:?xt=urn:btih:9DA18785805E9B6FA2158129AA2E7402E6FFCB79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +651,8 @@ magnet:?xt=urn:btih:9DA18785805E9B6FA2158129AA2E7402E6FFCB79
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +679,8 @@ magnet:?xt=urn:btih:9DA18785805E9B6FA2158129AA2E7402E6FFCB79
 magnet:?xt=urn:btih:C399A20B5395A3C8FC6D1789E1DC466D882A570B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +704,8 @@ magnet:?xt=urn:btih:C399A20B5395A3C8FC6D1789E1DC466D882A570B
 ```bash
 magnet:?xt=urn:btih:05B4C5E6E9BA1662C70717A8E310122A1DFD75EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -698,6 +748,8 @@ CD 1: (01:17:35)
 ```bash
 magnet:?xt=urn:btih:E976CF41E150E035823D074028F574E0A5B4EA0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Rift of the NecroDancer (2025) [Ru/Multi] (1.5.0/dlc) Repack FitGirl [Ultimate P
 magnet:?xt=urn:btih:26E890450D06627E801ECDE466BAD99305DFF002
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:26E890450D06627E801ECDE466BAD99305DFF002
 magnet:?xt=urn:btih:31D3D22C8F3800D4B74B29464873E9A669D8C295
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Relive: Бег, Заезд, Поход v5.65.0 Mod by victorovich31 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DC7F6CD682A272B617EF512857ED8C35097582AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Metallica - Load (1996) Remastered Expanded Edition, 2025, Blackened [FLAC|Lossl
 magnet:?xt=urn:btih:FF56AB8D8E1F5B419C49A3B6E4C7DF928F257339
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:FF56AB8D8E1F5B419C49A3B6E4C7DF928F257339
 ```bash
 magnet:?xt=urn:btih:22E92E026656CD7583BC3F980D5BADB677558B0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:22E92E026656CD7583BC3F980D5BADB677558B0E
 ```bash
 magnet:?xt=urn:btih:F41016DBC86FAD09EA73A8AF8190E67608FFBB92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ VA - Assorted Compilation Part 10 (2025) [MP3|320 Kbps] <Electronic, Instrumenta
 magnet:?xt=urn:btih:73D714904E94E605B1516CB460726407B10D21A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ ELO - Balance of Power (1986) 2007 Remastered + 7 Bonus Tracks, Sony BMG [FLAC|L
 magnet:?xt=urn:btih:1F2067340579330A45991E7142FA85E91241976B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:1F2067340579330A45991E7142FA85E91241976B
 ```bash
 magnet:?xt=urn:btih:2D8B8B6446A738B6D03778394402BA78C3267D90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ Mix DRUMS — это интуитивно понятный плагин, пре�
 magnet:?xt=urn:btih:27270F859D459924ACBA8AB7BD2BA38EFCFEFB8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:27270F859D459924ACBA8AB7BD2BA38EFCFEFB8D
 magnet:?xt=urn:btih:B18A8B940CEA97F6D8EA68031A63A60A259B03E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Smart AudioBook Player Pro v11.4.7 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1CBFCED14841806FE4C85632E78091803F1D87AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ VA - Если б не было войны (2025) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:855A31A0E4FCE3275855FDF4D9117E8ECF945BBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:855A31A0E4FCE3275855FDF4D9117E8ECF945BBA
 magnet:?xt=urn:btih:90A68EA361A33845753A9FD0DDD4382D65A74DD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:90A68EA361A33845753A9FD0DDD4382D65A74DD7
 magnet:?xt=urn:btih:BC9BFF24F5371E349B6B2027E76EE95B2BBB23B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ Kitty Collapse (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7BD28956170A02876869B1ADE47FED15AE2B02CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:7BD28956170A02876869B1ADE47FED15AE2B02CB
 magnet:?xt=urn:btih:90172E4FDF1F824D7935501DA935661388302A69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:90172E4FDF1F824D7935501DA935661388302A69
 ```bash
 magnet:?xt=urn:btih:9244161665F79F3BF7C874239EF9ADA8E88CD460
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:9244161665F79F3BF7C874239EF9ADA8E88CD460
 magnet:?xt=urn:btih:43AC19545D9591BC2576B7E6827EEC7E96EDAEB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:43AC19545D9591BC2576B7E6827EEC7E96EDAEB0
 ```bash
 magnet:?xt=urn:btih:E8F3C7AAA2E5F3104314A6F61FC64911C8B10833
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ Beyond Compare — мощнейшая программа для сравнени
 magnet:?xt=urn:btih:7C0AE6898BB011E5703CAD1B68944A9EA6751E43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:7C0AE6898BB011E5703CAD1B68944A9EA6751E43
 ```bash
 magnet:?xt=urn:btih:4C92BC81756906A22590E6BCCC6C5604743B46EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 magnet:?xt=urn:btih:F9EE098030C2B4A65637D8B1EC5CC26E8238A8C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:F9EE098030C2B4A65637D8B1EC5CC26E8238A8C0
 ```bash
 magnet:?xt=urn:btih:BAEAFBA531632D8D3D081C31D341083A8854FE8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:BAEAFBA531632D8D3D081C31D341083A8854FE8E
 magnet:?xt=urn:btih:8FA4BFD7E83B284A0C3CE76C03BA44EDB26DAF97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Warhammer 40000: Rites of War сильно отличается от други�
 ```bash
 magnet:?xt=urn:btih:9EEDC1659ED9263EBC8E1BE15381D2E4146A3252
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

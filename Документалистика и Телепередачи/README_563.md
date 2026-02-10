@@ -1,3 +1,30 @@
+###  Публикация: 608295   (771437) от 25.01.2019
+
+Владимир Высоцкий. Письмо Уоррену Битти (2013) SATRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771437.jpg" />
+</div>
+
+
+###  Подробнее
+
+При жизни Владимира Высоцкого по Центральному телевидению СССР не было показано ни одного его концертного выступления или интервью. В фильме - уникальные кадры, изначально предназначались для одного-единственного зрителя.
+В мае 1979 года Владимиром Высоцким было записано видеописьмо, адресованное американскому актёру Уоррену Битти. Предполагалось, что в результате (   Читать дальше...   )Жанр: Документальный, биография, история, культура, искусство, авторская песняРежиссер: Александр Ковановский, Игорь РахмановПродолжительность: 00:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFC1F51D9E8C53EF8EC7F993833F1EB135242E32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016273   (771460) от 13.05.2016
 
 Вечер с Владимиром Соловьевым (2016.05.13) SATRip
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:AC4FBF5648870171A03E2885652AB0C005DCE14A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +71,8 @@ magnet:?xt=urn:btih:AC4FBF5648870171A03E2885652AB0C005DCE14A
 ```bash
 magnet:?xt=urn:btih:47896D017DCE63088761DA1C76AEB3AFEA0AC491
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +101,8 @@ magnet:?xt=urn:btih:47896D017DCE63088761DA1C76AEB3AFEA0AC491
 magnet:?xt=urn:btih:1D5B7D4FDF157A5EF527C7D4B9C386C9537D737D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +126,8 @@ magnet:?xt=urn:btih:1D5B7D4FDF157A5EF527C7D4B9C386C9537D737D
 ```bash
 magnet:?xt=urn:btih:6FD680DD12E2548C128FF18569FDFC84224CCAC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +153,8 @@ magnet:?xt=urn:btih:6FD680DD12E2548C128FF18569FDFC84224CCAC6
 magnet:?xt=urn:btih:660A1199D84BC057930E7A2946B161C6F5C1FD21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +178,8 @@ magnet:?xt=urn:btih:660A1199D84BC057930E7A2946B161C6F5C1FD21
 ```bash
 magnet:?xt=urn:btih:30EDE39848722DBBE6F6D2ACADAB79AE4F95162D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +205,8 @@ magnet:?xt=urn:btih:30EDE39848722DBBE6F6D2ACADAB79AE4F95162D
 magnet:?xt=urn:btih:8E9619F18DA6707EB642AE6D9493334D5037B9A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +230,8 @@ magnet:?xt=urn:btih:8E9619F18DA6707EB642AE6D9493334D5037B9A9
 ```bash
 magnet:?xt=urn:btih:23CEEBF3570CFFF0D7345DACCB0E39017E376BC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:23CEEBF3570CFFF0D7345DACCB0E39017E376BC0
 magnet:?xt=urn:btih:D74496761BBC0FF1B151C74B204955A7D943A583
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ magnet:?xt=urn:btih:D74496761BBC0FF1B151C74B204955A7D943A583
 ```bash
 magnet:?xt=urn:btih:9D54866CAE8693CDEDC954F641ACBDAB5998F097
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +310,8 @@ magnet:?xt=urn:btih:9D54866CAE8693CDEDC954F641ACBDAB5998F097
 magnet:?xt=urn:btih:D386548752C0DD5AD6923B4B3A794E8280C5F119
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +335,8 @@ magnet:?xt=urn:btih:D386548752C0DD5AD6923B4B3A794E8280C5F119
 ```bash
 magnet:?xt=urn:btih:CAFDFA9BDBECB9A9502812F226B52A868D80CF24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +362,8 @@ magnet:?xt=urn:btih:CAFDFA9BDBECB9A9502812F226B52A868D80CF24
 magnet:?xt=urn:btih:B5EAB3C082C40D599F3503CBF89C5DDE6EB4B177
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +387,8 @@ magnet:?xt=urn:btih:B5EAB3C082C40D599F3503CBF89C5DDE6EB4B177
 ```bash
 magnet:?xt=urn:btih:ACA872E53185736552CDBCA34DD79D0D67500D22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +414,8 @@ magnet:?xt=urn:btih:ACA872E53185736552CDBCA34DD79D0D67500D22
 magnet:?xt=urn:btih:62D0FC54BE3B81362F125AEA2C4AADFA5196943E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +439,8 @@ magnet:?xt=urn:btih:62D0FC54BE3B81362F125AEA2C4AADFA5196943E
 ```bash
 magnet:?xt=urn:btih:B06CE650F752021FA7CCDF07498E86A60A4DCE2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +466,8 @@ magnet:?xt=urn:btih:B06CE650F752021FA7CCDF07498E86A60A4DCE2D
 magnet:?xt=urn:btih:0F48C1421B6A31F267D4EBFA1203F96FB27AF146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +491,8 @@ magnet:?xt=urn:btih:0F48C1421B6A31F267D4EBFA1203F96FB27AF146
 ```bash
 magnet:?xt=urn:btih:106F4273370ACB726A1400BD19A4D68B3100941C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +518,8 @@ magnet:?xt=urn:btih:106F4273370ACB726A1400BD19A4D68B3100941C
 magnet:?xt=urn:btih:98745CC2910F3CB6010C3182F3B810FA8C7506B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +543,8 @@ magnet:?xt=urn:btih:98745CC2910F3CB6010C3182F3B810FA8C7506B9
 ```bash
 magnet:?xt=urn:btih:1083F34A681254DC22398EC3EDF97A0A834D500A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +571,8 @@ magnet:?xt=urn:btih:1083F34A681254DC22398EC3EDF97A0A834D500A
 magnet:?xt=urn:btih:EE9518BF37C6374F8CE9A4B6900D3ABF7F8B944D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +596,8 @@ magnet:?xt=urn:btih:EE9518BF37C6374F8CE9A4B6900D3ABF7F8B944D
 ```bash
 magnet:?xt=urn:btih:5FDAE3E79190D9901960D77AAB5889F3BBF6080F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +624,8 @@ magnet:?xt=urn:btih:5FDAE3E79190D9901960D77AAB5889F3BBF6080F
 magnet:?xt=urn:btih:751071900BC1F83AFFC6BFC73FEEC8882234303B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +649,8 @@ magnet:?xt=urn:btih:751071900BC1F83AFFC6BFC73FEEC8882234303B
 ```bash
 magnet:?xt=urn:btih:7ED3E5A97D76F5B8791FF57FB49850845EA1CE5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,29 +676,7 @@ magnet:?xt=urn:btih:7ED3E5A97D76F5B8791FF57FB49850845EA1CE5E
 magnet:?xt=urn:btih:83EC66248E251494F08922C04D3FE1FA1C3117F3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015852   (773158) от 12.05.2016
-
-Вечерний Ургант (2016.05.10) SATRip (cезон 9, выпуск 63)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:30:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DCA0472AAE3C051765137E2AA5F8368630EC049
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 944297   (442952) от 06.10.2015
+
+Научный детектив.Чужие рядом (2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они могут убивать и лечить. Они заставляют нас есть фаст-фуд и даже меняют мысли. Они - бессмертны. Новое научное расследование на телеканале «Звезда» о невидимых глазу, всемогущих существах - микробах. Вы увидите эксклюзивное интервью американского учёного, который ради собственных микробов не принимает душ 12 лет. А российский ученый впервые расскажет, как бактерия, (   Читать дальше...   )Телекомпания: Россия, ТРК ЗвездаЖанр: Документальный, ТелепередачаПродолжительность: 00:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09E397D77CF9478296858BEF41F75755DD2C13DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409652   (443012) от 18.09.2020
 
 О чем молчат львы (2017) WEB-DLRip (фильмы 1-4 из 4)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:A4073F906488C879398F10FFB62710320AC823DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:A4073F906488C879398F10FFB62710320AC823DB
 ```bash
 magnet:?xt=urn:btih:5ED85EE6A1F98A5A6DBC449F1772651ECB2070BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:5ED85EE6A1F98A5A6DBC449F1772651ECB2070BF
 magnet:?xt=urn:btih:E7DB8A915EA75EC3F0B57E69A2621DF928B538BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:E7DB8A915EA75EC3F0B57E69A2621DF928B538BE
 magnet:?xt=urn:btih:07AFFF6A02899396B0924775F2E088BE860A3F3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:07AFFF6A02899396B0924775F2E088BE860A3F3E
 magnet:?xt=urn:btih:54EFB7FA9098F4352AD18CC4B4E11BC336A29FF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:54EFB7FA9098F4352AD18CC4B4E11BC336A29FF5
 ```bash
 magnet:?xt=urn:btih:361D256A4545057523BE2CCF58C61E074914A2C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:361D256A4545057523BE2CCF58C61E074914A2C6
 magnet:?xt=urn:btih:1CB576DC93E40330F6108FF578467960DED8D6F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:1CB576DC93E40330F6108FF578467960DED8D6F7
 ```bash
 magnet:?xt=urn:btih:F15177534CAD4B49477BD916561A42AF53AE35E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:F15177534CAD4B49477BD916561A42AF53AE35E6
 magnet:?xt=urn:btih:BF74691740D0829798523ADC2AC5A44650CE50A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:BF74691740D0829798523ADC2AC5A44650CE50A2
 ```bash
 magnet:?xt=urn:btih:DD872CE684FAE54ADE8475E6D2149925EF085C1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ CNN: Шестидесятые / The Sixties (2013) SATRip (1-10 серий из 
 magnet:?xt=urn:btih:69903F19131D44C8A85AE8DCF14D6C7EDDEAD8D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:69903F19131D44C8A85AE8DCF14D6C7EDDEAD8D4
 ```bash
 magnet:?xt=urn:btih:9EA100602D26C876DAF20E7B3B55F13136D29813
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:9EA100602D26C876DAF20E7B3B55F13136D29813
 magnet:?xt=urn:btih:A3C6F57BC14E12F10A715F100AEF0B4CF66A4FA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:A3C6F57BC14E12F10A715F100AEF0B4CF66A4FA0
 ```bash
 magnet:?xt=urn:btih:EAF2CA4444F1A988CAD21B7F48C7963BCAC8D672
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:EAF2CA4444F1A988CAD21B7F48C7963BCAC8D672
 magnet:?xt=urn:btih:7C18D84FC637B31E8186A4A366EE933EFB34E553
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:7C18D84FC637B31E8186A4A366EE933EFB34E553
 ```bash
 magnet:?xt=urn:btih:A357EFEA324ADA0B148402CFA6BA32CF603F9355
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:A357EFEA324ADA0B148402CFA6BA32CF603F9355
 magnet:?xt=urn:btih:C7CDB1BC814E01D2B2BB4562EF9D8664004CCDD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:C7CDB1BC814E01D2B2BB4562EF9D8664004CCDD6
 ```bash
 magnet:?xt=urn:btih:FFFF982FED3F477FB498D94CB82B7AA43FD6326D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:FFFF982FED3F477FB498D94CB82B7AA43FD6326D
 magnet:?xt=urn:btih:E63CE2E61162980EEF883F4F620BAEF09DCDD0C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:E63CE2E61162980EEF883F4F620BAEF09DCDD0C8
 ```bash
 magnet:?xt=urn:btih:7CAB290B003997DAED37A00B245C84B62ADA7ACE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:7CAB290B003997DAED37A00B245C84B62ADA7ACE
 magnet:?xt=urn:btih:405E79DDF257D1D68AC0A2A08B14414994A5F984
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:405E79DDF257D1D68AC0A2A08B14414994A5F984
 ```bash
 magnet:?xt=urn:btih:1A4292AF24F2B624885ABC7C6EEE186B86CE7516
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:1A4292AF24F2B624885ABC7C6EEE186B86CE7516
 magnet:?xt=urn:btih:17CA75EFC376A2F32C40589AF14CFEAF9D6EBCF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:17CA75EFC376A2F32C40589AF14CFEAF9D6EBCF8
 ```bash
 magnet:?xt=urn:btih:0EFFD0499B9C03D7BC9261EBAE9D2AD215323E90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,29 +673,7 @@ magnet:?xt=urn:btih:0EFFD0499B9C03D7BC9261EBAE9D2AD215323E90
 magnet:?xt=urn:btih:5EE32A95A05A81666ECED83902D47EEA8C608CAD
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062174   (444632) от 12.10.2016
-
-Место встречи. Украиночка с выходом?! (12.10.2016) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый день по будням гости в студии вместе с ведущими будут в прямом эфире разбирать наиболее актуальные темы, которые подбрасывает сама жизнь. Все, что волнует зрителей, — от сезонных эпидемий до военной операции в Сирии — может стать поводом для обсуждения.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 01:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9472282FAB2D46FB4A98A0EBAA86C68E98D1259
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

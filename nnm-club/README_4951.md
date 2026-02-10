@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:92F8157093146CB6513956BD5D78DBEFE8926DA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ VA - Jazz Moods Volume 1 (1993) Jazz World[FLAC|Lossless|image + .cue] <Swing, B
 ```bash
 magnet:?xt=urn:btih:293548DF310BC5B54507304D03EF36D0FF51BF1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Oniblu - Play The Blues (2020) [MP3|320 Kbps] <Blues>
 magnet:?xt=urn:btih:0E6510F3A34B98EB3F0E89C624CB053CC2D31F63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Wallpapers Sexy Girls (13.12.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:C536021DD5BC53578775E4B8C2222512145121E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:C536021DD5BC53578775E4B8C2222512145121E1
 magnet:?xt=urn:btih:6FEC79B8AC19E63C5019094A3EA3B10B355B557F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Halloween Chronicles 2: Evil Behind a Mask / Хроники Хэллоуина 2
 ```bash
 magnet:?xt=urn:btih:C4A3713AE0E3F5A7C669FDAF611E69A15A1A7C9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:C4A3713AE0E3F5A7C669FDAF611E69A15A1A7C9F
 magnet:?xt=urn:btih:FE4FED2F6913350FD936FA320544BFD679D87D6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:FE4FED2F6913350FD936FA320544BFD679D87D6A
 ```bash
 magnet:?xt=urn:btih:5ADA549183A4808DD12C2708C563A34754D14317
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:5ADA549183A4808DD12C2708C563A34754D14317
 magnet:?xt=urn:btih:30C893DD8E76393A6E00F9F60CD2B9902D70D39D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:30C893DD8E76393A6E00F9F60CD2B9902D70D39D
 ```bash
 magnet:?xt=urn:btih:3445E3BFAFC0EB62DED55CDF60BF3CBABC069A03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:3445E3BFAFC0EB62DED55CDF60BF3CBABC069A03
 magnet:?xt=urn:btih:AD40DC063C985CA29EB57B5519FA4B866F291720
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:AD40DC063C985CA29EB57B5519FA4B866F291720
 ```bash
 magnet:?xt=urn:btih:41C228882E6AB13B5E0618CADF3186E1F4EB4517
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:41C228882E6AB13B5E0618CADF3186E1F4EB4517
 magnet:?xt=urn:btih:1D0966085D330C72F9ECCF1AD4256EE3E4CC032E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ Yummy - это приложение для загрузки видео или м
 ```bash
 magnet:?xt=urn:btih:FD4534BF9B9E66912BE7C8C41F2F3DCF69BA3B2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ Poisonblack - Nothing Else Remains (2CD) (2020) Japanese Edition [MP3|320 Kbps] 
 magnet:?xt=urn:btih:7F9AF6992489FAE1A56DE7C091E057010882639C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:7F9AF6992489FAE1A56DE7C091E057010882639C
 ```bash
 magnet:?xt=urn:btih:63994CEA86C6EEC0A7E85FB4D9E09FF75D7A6901
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ Rocío Jurado - Canciones de Am♡ r Love Songs (2012) [FLAC|Lossless|tracks] <L
 magnet:?xt=urn:btih:A32250836F3A7F1415FF5A32E895ABF1813875F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ Terry Gibbs And His Big Band - Swing Is Here! (1960) 2009, Universal[FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:F16A5D8259BA9CC005C03E96532F79A4562E6940
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ VA - HGM: Move With The Beat (2020) [MP3|320 Kbps] <Vocal House>
 magnet:?xt=urn:btih:DC001002BAC658027B8C5F1523822607D65E3DED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ The Trombones, Inc. - The Trombones, Inc. (1958) Remaster, 2013, Warner[FLAC|Los
 ```bash
 magnet:?xt=urn:btih:7AC4362BF7EA291588D5A1F70AC017678FD37192
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ VA - Blues Harmonica (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:D074818F7A987006DCF9BF2B798E630D61756F4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +600,8 @@ Voodoo Room - Tension City Blues (2020) [FLAC|Lossless|image + .cue] <Blues Rock
 ```bash
 magnet:?xt=urn:btih:EB785D25DF8E1FDA4A72EC4B842AD286AC661825
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +630,8 @@ Murphy Road - No Business (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:5FD9C881461C9A1A44B4B549709BBF4F354E5ABA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +659,8 @@ Dizzy Reece - Blues In Trinity (1958) 2005, Toshiba-EMI [FLAC|Lossless|tracks + 
 magnet:?xt=urn:btih:B2D8E00AAA3652335FA2BDD00110AB7A6C033230
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +685,8 @@ NCH WavePad Masters Edition 11.49 [En]
 magnet:?xt=urn:btih:DB5A2A56C1C0306944CE7BDDE9BC2D9F601B47A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +710,8 @@ magnet:?xt=urn:btih:DB5A2A56C1C0306944CE7BDDE9BC2D9F601B47A8
 ```bash
 magnet:?xt=urn:btih:B0A6D4265FC536BE17DC032FC0D4AE7E7BD84AA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

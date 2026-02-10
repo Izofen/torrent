@@ -22,6 +22,8 @@ Chris Rosander - The Monster Inside (2023) [FLAC|Lossless|image + .cue] <Melodic
 magnet:?xt=urn:btih:708DD41A73C5C9BAF5F171D4F5D848B8409C1EA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:708DD41A73C5C9BAF5F171D4F5D848B8409C1EA6
 ```bash
 magnet:?xt=urn:btih:C567BAEFDD4726DC8DCD1894737178DD72CBDF69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Assault Squad 2: Men of War Origins, современное переиздани
 magnet:?xt=urn:btih:46D03B6CFED18D78D11C09E434EA49F16505F8E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:46D03B6CFED18D78D11C09E434EA49F16505F8E2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:46D03B6CFED18D78D11C09E434EA49F16505F8E2
 magnet:?xt=urn:btih:A5CD0FA7799CAC073EF00E36DDB874CAC89C4EB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:A5CD0FA7799CAC073EF00E36DDB874CAC89C4EB7
 ```bash
 magnet:?xt=urn:btih:B7015CF3B001D71E5B836E17C28398DC39FCBA54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:B7015CF3B001D71E5B836E17C28398DC39FCBA54
 magnet:?xt=urn:btih:AA98A98727F946BF10F3172A5C460AA850191087
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:AA98A98727F946BF10F3172A5C460AA850191087
 ```bash
 magnet:?xt=urn:btih:03079BFDEFBC3047ABA75E19FA4F491210AD6544
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ The Punisher / Каратель (2005) [Ru/En] (1.0) Repack R.G. Catalyst
 magnet:?xt=urn:btih:4A0651D5B6910F1233DEA5D3AB726AA7DDABFBBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ PyCharm – это самая интеллектуальная Python IDE с п�
 ```bash
 magnet:?xt=urn:btih:C1A016232AAF6B8626BF70ED319CE2B88E2D22DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:C1A016232AAF6B8626BF70ED319CE2B88E2D22DA
 magnet:?xt=urn:btih:763AFF8807F3D357C8D7D3C5A38CF6CB69B9B75A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ IntelliJ IDEA — самая умная среда разработки для J
 ```bash
 magnet:?xt=urn:btih:E2609143C6973FB218BE46267D41F6D36CDCFD71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Lumion Pro 12.5 [Multi/Ru]
 magnet:?xt=urn:btih:14B31C1545FAC2895EF71E27E2A29F79F763D42A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:14B31C1545FAC2895EF71E27E2A29F79F763D42A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ PhpStorm – это интегрированная среда разработк
 magnet:?xt=urn:btih:FCE77101FA0ED69371DFD8D6832F81AB19A035A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Beyond Contact – это симулятор выживания в открыт�
 ```bash
 magnet:?xt=urn:btih:51A8DD934416FD9ED6423000BE251B9D22146124
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ PTC Mathcad Prime - мощная система автоматизированн
 magnet:?xt=urn:btih:59E63F1B4596DA95DB4E90DF1078A1C5C7F4320F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Everspace 2 (2021) [Ru/Multi] (1.0.33479) Repack DjDI
 magnet:?xt=urn:btih:5D997AD84F0FC92EBB482C319D69D1B576A2FE87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ WebStorm - Легкий, но мощный IDE, прекрасно оборуд�
 ```bash
 magnet:?xt=urn:btih:06AE3F1D146DBBEBB173B8F420E24C8C1B4AC8E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Rider (   Читать дальше...   )Язык интерфейса: Анг
 magnet:?xt=urn:btih:8142F31203D63CE07583AA9CC329DAE07ED29532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Pathfinder: Wrath of the Righteous v.2.1.2e.526 (2021) [Multi/Ru] [macOS Native 
 ```bash
 magnet:?xt=urn:btih:B0BBC417CBD36BF2D589415BFAF38C68C6A39554
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:B0BBC417CBD36BF2D589415BFAF38C68C6A39554
 magnet:?xt=urn:btih:E3DCCC42C551AC5B8B0458935DCE9F638BC608A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:E3DCCC42C551AC5B8B0458935DCE9F638BC608A6
 magnet:?xt=urn:btih:4C157A2C2897B00A2CEA740AE3F8F90F0758221A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ WinUtilities - системный набор для настройки ваше�
 ```bash
 magnet:?xt=urn:btih:5D4D5120485E0CBCCEE239DA15B7A0C3558EB1FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Final Selection - Siren’s Call (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 magnet:?xt=urn:btih:8B8CFFE0DE26385BA1FF736BE763EC3EFA4A641A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:8B8CFFE0DE26385BA1FF736BE763EC3EFA4A641A
 ```bash
 magnet:?xt=urn:btih:8C3A5C9CD4EF9185452FE901599028A7F64FEE26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

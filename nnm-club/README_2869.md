@@ -26,6 +26,8 @@ VA - Trance Top 100 Vol 12 (2012)
 magnet:?xt=urn:btih:82DB8FA2B8F8E2B01474F20871C420B2DFEC1C83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:82DB8FA2B8F8E2B01474F20871C420B2DFEC1C83
 ```bash
 magnet:?xt=urn:btih:A7549A5FA951DD5E45E53A4BC1A41BE960F895A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -83,6 +87,8 @@ VA - Progressive House. The Best World Club Music (2012) [MP3|192 кб/с]<Progr
 magnet:?xt=urn:btih:839094FDF92C20875AF9B58A046865EE07857CCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ magnet:?xt=urn:btih:839094FDF92C20875AF9B58A046865EE07857CCF
 magnet:?xt=urn:btih:5F2D32CFA50A60F7D3A297A20DDFB7EA650B8855
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -131,6 +139,8 @@ magnet:?xt=urn:btih:5F2D32CFA50A60F7D3A297A20DDFB7EA650B8855
 ```bash
 magnet:?xt=urn:btih:93BD89A6A0419CF692E34B2F0DE6D8914ABFB4ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:93BD89A6A0419CF692E34B2F0DE6D8914ABFB4ED
 magnet:?xt=urn:btih:A88C705C9A4012FEA73B6F37C79C4CB06A6296C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ magnet:?xt=urn:btih:A88C705C9A4012FEA73B6F37C79C4CB06A6296C5
 ```bash
 magnet:?xt=urn:btih:1ED5D0B9DFDD1D9A87934A30F121F51091145E69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +227,8 @@ Roxette - Travelling (2012) [MP3|~224~283 кб/с]<Rock>
 magnet:?xt=urn:btih:EF0ED73EBFEA516960A78A25ECAAAA56964EA6D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +262,8 @@ VA-Hard Dance Awards 2012 (Mixed by Kutski, Zatox & Steve Hil) (2012) [MP3|320 �
 magnet:?xt=urn:btih:3690E5E3283726F522198F89D407DD6D3434EF3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +289,8 @@ magnet:?xt=urn:btih:3690E5E3283726F522198F89D407DD6D3434EF3C
 magnet:?xt=urn:btih:E1CA26AF8B2B04925B3E7DCAA71AA0B84D1E0A26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +314,8 @@ Phenomenon: City of Cyan (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:B1142BF1125465B4568CA5DF6AE48582B9D30B55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +344,8 @@ magnet:?xt=urn:btih:B1142BF1125465B4568CA5DF6AE48582B9D30B55
 ```bash
 magnet:?xt=urn:btih:21E70B03BAD980BC17AAD47C75B430290030B8EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +380,8 @@ ACT 1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +405,8 @@ NG: Кладбище воинов. Ожившие самураи / Warrior Grave
 ```bash
 magnet:?xt=urn:btih:44532A986DFF3D1C6C9E12469C97BD7D32C4732C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +433,8 @@ magnet:?xt=urn:btih:44532A986DFF3D1C6C9E12469C97BD7D32C4732C
 magnet:?xt=urn:btih:BA00C7770D3423FE2AB266F1C4014C3CEAB69F62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +458,8 @@ magnet:?xt=urn:btih:BA00C7770D3423FE2AB266F1C4014C3CEAB69F62
 ```bash
 magnet:?xt=urn:btih:208D240B7E36E1ABA7EC706D2658881D0ECC5B94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +485,8 @@ magnet:?xt=urn:btih:208D240B7E36E1ABA7EC706D2658881D0ECC5B94
 magnet:?xt=urn:btih:FEAEE1813C4550DB300093FBE180F52581610A28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +510,8 @@ magnet:?xt=urn:btih:FEAEE1813C4550DB300093FBE180F52581610A28
 ```bash
 magnet:?xt=urn:btih:D18CBCA6D02286AB15DA4C77402A51DD8CEEE570
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +537,8 @@ magnet:?xt=urn:btih:D18CBCA6D02286AB15DA4C77402A51DD8CEEE570
 ```bash
 magnet:?xt=urn:btih:D9218126CFCC681DEAAC16512E779BFB44DDA86B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +566,8 @@ magnet:?xt=urn:btih:D9218126CFCC681DEAAC16512E779BFB44DDA86B
 magnet:?xt=urn:btih:0F7623CD826AC69AA9ECC5B16934EB01FF5E8491
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +591,8 @@ magnet:?xt=urn:btih:0F7623CD826AC69AA9ECC5B16934EB01FF5E8491
 ```bash
 magnet:?xt=urn:btih:24D9915770410DD700950771317E88BFF81795D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +621,8 @@ magnet:?xt=urn:btih:24D9915770410DD700950771317E88BFF81795D4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +647,8 @@ Easter Eggztravaganza  / Пасха "eggztravaganza". Поиск яиц (P) [Ru]
 magnet:?xt=urn:btih:060D5943625D23AF2F4F738ED649D19DEBB22EED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +672,8 @@ magnet:?xt=urn:btih:060D5943625D23AF2F4F738ED649D19DEBB22EED
 ```bash
 magnet:?xt=urn:btih:E627B636B950E8A0497976FD87CEDF49EA1B4B13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +701,8 @@ magnet:?xt=urn:btih:E627B636B950E8A0497976FD87CEDF49EA1B4B13
 magnet:?xt=urn:btih:3DE32CC7F9A7938CB6AE1169015ABF0D84FD20D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,6 +726,8 @@ magnet:?xt=urn:btih:3DE32CC7F9A7938CB6AE1169015ABF0D84FD20D1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

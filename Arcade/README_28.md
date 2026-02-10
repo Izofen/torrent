@@ -19,6 +19,8 @@ A Building Full of Cats 2 помещает игрока внутрь много�
 magnet:?xt=urn:btih:FDC9498061CFC13B76027E37C6F05ED9DBE07230
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Police Stories – это история о двух полицейских: Д�
 magnet:?xt=urn:btih:3CB0B58F926FBD7832F0A7F304754218026E6D16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Mortal Kombat Trilogy - это файтинг-сборник 1996 года, ко
 ```bash
 magnet:?xt=urn:btih:48B4C8E0B3D05F6398FB6DCCBC454625BA63075C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Steg the Slug [En] (RePack) 1993 | RG Games (Pilotus)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Fire and Ice [En] (RePack) 1994 | RG Games (Pilotus)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Rampart [En] (RePack) 1992 | RG Games (Pilotus)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ OlliOlli World – это новый лихой экшен-платформер 
 ```bash
 magnet:?xt=urn:btih:D22A75A7E6D466286131B7B6793ABF356C2F61CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Trolls [En] (Repack) 1992 | RG Games (Pilotus)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Clone Drone in the Danger Zone (2021) [Ru/Multi] (1.6.1.6) Repack Necros
 ```bash
 magnet:?xt=urn:btih:026DD76AFF6698F644FF49EA8B0FC21CB1A145A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ LEGO Marvel Super Heroes 2 (2017) [Ru/Multi] (1.0.0.13948/dlc) Repack xatab
 magnet:?xt=urn:btih:BE2B94C9BA2CC06D446341EB79BFF049939A65FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Star Wars: Starfighter (2002) [En/Sp/It] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:D8B9240510D0C550288AAD0E6CDCF7641E68AE2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Alien Shooter + Expansions / Alien Shooter: Начало вторжения (200
 magnet:?xt=urn:btih:0374B143083DC115C6F2A1F6E4136902EBE7ECF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Trine Anthology (2009-2015) [Ru/Multi] (1.09/2.12/2.01/1.11) Repack R.G. Мех�
 ```bash
 magnet:?xt=urn:btih:6A753E7F6A9700646DE535BED96094FD5D8929B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Okami была высшей точкой эры PS2, совмещающей эк
 magnet:?xt=urn:btih:F76D9BD4415769164824EAC561C84AC55E3F4E2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Masters of Anima - это оригинальная приключенческа�
 ```bash
 magnet:?xt=urn:btih:33702B2C42355E934E5A6CD964BD8CC012E4A043
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Beat Cop (2017) [Ru/Multi] (1.1.744) License GOG
 magnet:?xt=urn:btih:F563EAF2214A2653E8C767B717BD64FA75466FE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ Rocket League - это аркадный проект, который сочет�
 ```bash
 magnet:?xt=urn:btih:CF8427E8ED4817EDEDC41233EBA123BC3B87B63D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ Double Dragon: Neon (2014) [Ru/En] (1.0) Repack R.G. Catalyst
 magnet:?xt=urn:btih:F8120D0DF055B07B673DA4E27E3070164A54AB39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ D1896 — это платформер приключенческого боев�
 ```bash
 magnet:?xt=urn:btih:2901BF93A5ABD27FCDD6CF692FA5A2FB4ABF077D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Flashback™ возвращается! Когда-то этот ставший �
 magnet:?xt=urn:btih:7C80B4797E1688C76A674FA1F858E74BA05EB588
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Nex Machina (2017) [Ru/Multi] (1.06 0073) License GOG
 ```bash
 magnet:?xt=urn:btih:AB3232A814A2A6AA8C9C9D72DB845723A33DDC1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ Super Lucky’s Tale — весёлая и увлекательная платф
 magnet:?xt=urn:btih:60EEBFEB634F6804C7D9CE2CE6DA7A3152569887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ Asterix & Obelix XXL 2 (2018) [Ru/Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:DB22CD84E1142B596C361103F932942B8CFBE69D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ SYNTHETIK - это беспощадный шутер-рогалик в мире,
 magnet:?xt=urn:btih:EDD3215DAB2194CEE8A7B5321A27625C642CD2EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ Asterix & Obelix XXL 2 (2018) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:00481BD3CB74A562F380325D14C3234AD8441867
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ RUINER - суровый и жестокий экшн, действие кото�
 ```bash
 magnet:?xt=urn:btih:DF0A2F3259889EB9351811EF966B7BCA5C434CDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

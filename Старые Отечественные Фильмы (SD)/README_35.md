@@ -1,3 +1,29 @@
+###  Публикация: 720025   (381583) от 07.11.2013
+
+Звезды и солдаты / Красное и белое/ Csillagosok, katonak / The Red and the White (1967) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_381583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Об участии венгерских красногвардейцев в гражданской войне в России. Разбит один из венгерских отрядов. Молодому бойцу Ласло удается бежать в монастырь, где расположились венгры. Но врывается отряд белых и расстреливает борцов за революцию. Однако татарину Чингизу, венграм Ласло и Андрашу, а также русскому матросу удается вырваться за пределы города…Жанр: Драма, ВоенныйРежиссер: Миклош ЯнчоАктеры: Андраш Козак, Тибор Мольнар, Болот Бейшеналиев, Татьяна Конюхова, Йожеф Мадараш, Анатолий Яббаров, Кристина Миколаевска, Яцинт Юхас, Виктор Авдюшко, Владимир ПрокофьевПеревод: ДублированныйЯзык субтитров: АнглийскиеПродолжительность: 01:30:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E8B7BF5C5330AEFCB26E9961BE6479F840C150E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 719747   (382031) от 07.11.2013
 
 ПКП / Пилсудский купил Петлюру (1926) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:470F07460B07FC07407DD2496A5328762CAE3C0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:470F07460B07FC07407DD2496A5328762CAE3C0B
 magnet:?xt=urn:btih:C965B8B5803F8C4FDBA61A9318272E2F0B05260A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:C965B8B5803F8C4FDBA61A9318272E2F0B05260A
 ```bash
 magnet:?xt=urn:btih:5DD5795E8EB05E4D3D37C4962EFF3481415F1272
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:5DD5795E8EB05E4D3D37C4962EFF3481415F1272
 magnet:?xt=urn:btih:B4F9893FDC20E9A7D7FA6CE503410061C35538D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:B4F9893FDC20E9A7D7FA6CE503410061C35538D4
 magnet:?xt=urn:btih:70875C03C2C3109D76CBF67AA473F9A24393F606
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:70875C03C2C3109D76CBF67AA473F9A24393F606
 ```bash
 magnet:?xt=urn:btih:9FCD5EB7BADC6D80773F65869E565A59637ECEAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:9FCD5EB7BADC6D80773F65869E565A59637ECEAD
 magnet:?xt=urn:btih:07856C4058BEC2FCD98FE5E7F480DB58EAAAAC29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:07856C4058BEC2FCD98FE5E7F480DB58EAAAAC29
 ```bash
 magnet:?xt=urn:btih:85D9C6209DC2DBA887B11B67A560529A3DE00B6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:85D9C6209DC2DBA887B11B67A560529A3DE00B6C
 magnet:?xt=urn:btih:F15207A09F7AC9D6FAEB5E0FBF6C4F11F94C61EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:F15207A09F7AC9D6FAEB5E0FBF6C4F11F94C61EE
 ```bash
 magnet:?xt=urn:btih:FEC43F04B9E7CB9633F378B397EA44703A577AE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:FEC43F04B9E7CB9633F378B397EA44703A577AE9
 magnet:?xt=urn:btih:32DC8703FB7DF57EE53107F974BEF7BED87F4B2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:32DC8703FB7DF57EE53107F974BEF7BED87F4B2B
 ```bash
 magnet:?xt=urn:btih:4FC3F4A66CCEA1F6041EB7CB4A0B2C247D2F07D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:4FC3F4A66CCEA1F6041EB7CB4A0B2C247D2F07D3
 magnet:?xt=urn:btih:EF8C762C5ACA0A42FCCA13A798BF8A274E84F86D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:EF8C762C5ACA0A42FCCA13A798BF8A274E84F86D
 ```bash
 magnet:?xt=urn:btih:78ACC522D0982C3A00964ACA71EB2D463AF76A42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:78ACC522D0982C3A00964ACA71EB2D463AF76A42
 magnet:?xt=urn:btih:70E97B6294B4E5960C7D4545922730C104F14FFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:70E97B6294B4E5960C7D4545922730C104F14FFF
 ```bash
 magnet:?xt=urn:btih:874EAB150693519E7D9043CE78724D21859F43A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:874EAB150693519E7D9043CE78724D21859F43A9
 magnet:?xt=urn:btih:0319B4A9BB82222727FF1E29358995A764ACE42A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:0319B4A9BB82222727FF1E29358995A764ACE42A
 ```bash
 magnet:?xt=urn:btih:8787D9E4CC3372B981811EB9FE405C9444CE52FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:8787D9E4CC3372B981811EB9FE405C9444CE52FB
 magnet:?xt=urn:btih:27623DB012ABC2D9ACC7DFA965D662BED33EFB95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:27623DB012ABC2D9ACC7DFA965D662BED33EFB95
 ```bash
 magnet:?xt=urn:btih:A672F116BBF187A816E9EDE214ABE19292DFF1F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:A672F116BBF187A816E9EDE214ABE19292DFF1F8
 magnet:?xt=urn:btih:A559B8F10BF2A5EA6A1A764B53491E978464BE9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:A559B8F10BF2A5EA6A1A764B53491E978464BE9A
 ```bash
 magnet:?xt=urn:btih:DFE2824AB783C877D66F19A85AFC23F1401F6AD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:DFE2824AB783C877D66F19A85AFC23F1401F6AD3
 magnet:?xt=urn:btih:97F34D01EEE0C41317332CA08ABEF774E9B24D86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:97F34D01EEE0C41317332CA08ABEF774E9B24D86
 ```bash
 magnet:?xt=urn:btih:E071100E4E9D3537FF89905226F01E80A1021FE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,29 +673,7 @@ magnet:?xt=urn:btih:E071100E4E9D3537FF89905226F01E80A1021FE4
 magnet:?xt=urn:btih:A208F13FC0B8B9C0982193CF97DCE264D5CAB518
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574368   (387757) от 04.09.2022
-
-Лев Толстой (1984) WEBRip (2 серии)
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-хроника состоит из двух частей - «Бессонница» и «Уход». Зритель встречается с великим русским писателем в последние годы его жизни (1908-1910), однако воспоминания Льва Толстого возвращают нас и к событиям его молодости, и к поре решительного и страстного перелома в его взглядах. Финал - трагический уход из Ясной Поляны и смерть, ставшая началом бессмертия.Производство: СССР, Чехословакия / Киностудия им. М. Горького, SFT Koliba, СовинфильмЖанр: драма, биографияРежиссер: Сергей ГерасимовАктеры: Сергей Герасимов, Тамара Макарова, Борживой Навратил, Алексей Петренко, Екатерина Васильева, Виктор Проскурин, Николай Ерёменко мл., Алексей Шмаринов, Вячеслав Баранов, Марина ГаврилкоСубтитры: русские (отдельно)Продолжительность: 01:17:50 + 01:22:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AB65BEFDFD5FD86EC1DF417AC31C9529628F046
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

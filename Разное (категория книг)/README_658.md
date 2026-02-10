@@ -1,3 +1,30 @@
+###  Публикация: 1095269   (915694) от 26.01.2017
+
+К Исламу (ред.) | Основы имана (2017) [PDF, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит необходимый минимум знаний основ исламского вероучения и разъяснение каждого из них.
+Рассчитана на широкий круг читателей, интересующихся мусульманским вероучением, в частности, рекомендуется в качестве учебного пособия для вечерних курсов основ Ислама в мечетях и медресе.Жанр: ИсламФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:721D798B7D1F632F3DAE7194CEA3A018E8D1A5FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367500   (915803) от 16.03.2020
 
 Елена Стрельникова | Ферапонтовские посиделки (2007) [PDF, DJVU]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:BCF8D3980BF3CCDDC6D7DE99BD37D848E5B70952
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +71,8 @@ magnet:?xt=urn:btih:BCF8D3980BF3CCDDC6D7DE99BD37D848E5B70952
 ```bash
 magnet:?xt=urn:btih:C948E4B51FC43DA21068972D998F31FFC448B40C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +101,8 @@ magnet:?xt=urn:btih:C948E4B51FC43DA21068972D998F31FFC448B40C
 magnet:?xt=urn:btih:E9EDC6B38F7BE31F2BD0E5F0D5854DD7124602CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +129,8 @@ magnet:?xt=urn:btih:E9EDC6B38F7BE31F2BD0E5F0D5854DD7124602CC
 magnet:?xt=urn:btih:B13FE41A57B898A056499FF6502FEAC8CA72DA5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +154,8 @@ magnet:?xt=urn:btih:B13FE41A57B898A056499FF6502FEAC8CA72DA5D
 ```bash
 magnet:?xt=urn:btih:0A5314ECD9CADE7A96DFA637ED1948E3AE959066
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +181,8 @@ magnet:?xt=urn:btih:0A5314ECD9CADE7A96DFA637ED1948E3AE959066
 magnet:?xt=urn:btih:068E401BB24B11F470A61A845E9AB183EA27F655
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +206,8 @@ magnet:?xt=urn:btih:068E401BB24B11F470A61A845E9AB183EA27F655
 ```bash
 magnet:?xt=urn:btih:F538CF894B35DA2C6B828E23078999C74E9D4A8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +233,8 @@ magnet:?xt=urn:btih:F538CF894B35DA2C6B828E23078999C74E9D4A8F
 magnet:?xt=urn:btih:715AD64CF650F442EDFE17834F5971B41B52F54A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +258,8 @@ magnet:?xt=urn:btih:715AD64CF650F442EDFE17834F5971B41B52F54A
 ```bash
 magnet:?xt=urn:btih:AC0AA518871F11A2A2440235E22CE4DA737F61E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +285,8 @@ magnet:?xt=urn:btih:AC0AA518871F11A2A2440235E22CE4DA737F61E8
 magnet:?xt=urn:btih:7458F6050C1C5F3AC5CACAB88152F8DF3E2D3A19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +311,8 @@ magnet:?xt=urn:btih:7458F6050C1C5F3AC5CACAB88152F8DF3E2D3A19
 magnet:?xt=urn:btih:2680B32DB18332E6848A5040CA8DC751537063E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +336,8 @@ magnet:?xt=urn:btih:2680B32DB18332E6848A5040CA8DC751537063E9
 ```bash
 magnet:?xt=urn:btih:A46B8265C61DB5D84332FF4FB1E05E06FF0253B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +365,8 @@ magnet:?xt=urn:btih:A46B8265C61DB5D84332FF4FB1E05E06FF0253B2
 magnet:?xt=urn:btih:5C9636136DE45FDAF762445F10191AB8B6F34E85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +392,8 @@ magnet:?xt=urn:btih:5C9636136DE45FDAF762445F10191AB8B6F34E85
 magnet:?xt=urn:btih:7D1BA1AD047893EA1F8A09D29E26D1FD6D31492A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +417,8 @@ magnet:?xt=urn:btih:7D1BA1AD047893EA1F8A09D29E26D1FD6D31492A
 ```bash
 magnet:?xt=urn:btih:83EB5915F83F80A4E92F42527A82F951AC6239BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +444,8 @@ magnet:?xt=urn:btih:83EB5915F83F80A4E92F42527A82F951AC6239BB
 magnet:?xt=urn:btih:CF019E4D352BEB4C744E21264B62990ED5E54742
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +469,8 @@ magnet:?xt=urn:btih:CF019E4D352BEB4C744E21264B62990ED5E54742
 ```bash
 magnet:?xt=urn:btih:8D3B7162D1478AF64CE02AC23AB070B898BAAE44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +496,8 @@ magnet:?xt=urn:btih:8D3B7162D1478AF64CE02AC23AB070B898BAAE44
 magnet:?xt=urn:btih:2A7C64234EE52527F5BD147EC82203F2470D25D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +521,8 @@ magnet:?xt=urn:btih:2A7C64234EE52527F5BD147EC82203F2470D25D5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +548,8 @@ magnet:?xt=urn:btih:2A7C64234EE52527F5BD147EC82203F2470D25D5
 magnet:?xt=urn:btih:3BF26302E97C67BF164C9FC12F71966C46BBB6D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +573,8 @@ magnet:?xt=urn:btih:3BF26302E97C67BF164C9FC12F71966C46BBB6D7
 ```bash
 magnet:?xt=urn:btih:3A1B35274628834F8FD7CC1D0390AE3DA1915A85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +600,8 @@ magnet:?xt=urn:btih:3A1B35274628834F8FD7CC1D0390AE3DA1915A85
 magnet:?xt=urn:btih:08DFB208477BF54732B3FC11F6F8E274390638ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +625,8 @@ magnet:?xt=urn:btih:08DFB208477BF54732B3FC11F6F8E274390638ED
 ```bash
 magnet:?xt=urn:btih:253D4EBDDCE89DFA13F5B28ED45C6446AB5238CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +652,8 @@ magnet:?xt=urn:btih:253D4EBDDCE89DFA13F5B28ED45C6446AB5238CE
 magnet:?xt=urn:btih:E6A99FE8433AC2906C56C9C09C2D26C2B603361F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,30 +678,7 @@ magnet:?xt=urn:btih:E6A99FE8433AC2906C56C9C09C2D26C2B603361F
 magnet:?xt=urn:btih:90F48E81754188A06E7A3CD2D0C4711397B4DFF5
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367292   (917114) от 15.03.2020
-
-Игорь Антонов | Личный бренд в Инстаграме. Как создать мощнейший бренд, развить его и заработать миллион (2020) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга предназначена не только для тех, кто решил создать свой личный бренд с нуля, она будет полезна и тем, кто уже предпринял шаги по основанию собственного бренда, но возникли сложности с дальнейшим позиционированием, появились мучительные вопросы, куда двигаться, что делать и многие другие.
-На страницах книги «Личный бренд» вы найдете полезные инструменты продвижения, (   Читать дальше...   )Жанр: БизнесФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D090ACA2ABB7224C8FC9037372BF5084A66FC7E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

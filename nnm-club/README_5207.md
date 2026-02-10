@@ -22,6 +22,8 @@ VA - My Playlist - Hammond organ blues, soul, jazz & funk music (2023) [MP3|320 
 magnet:?xt=urn:btih:F93255D85B953280A3A530FA64D4ACA7776C9910
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ NetLimiter - программа, решающая проблему контро�
 magnet:?xt=urn:btih:AC3E3202A0D83322D6976A4C5E766F507A56A534
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:AC3E3202A0D83322D6976A4C5E766F507A56A534
 ```bash
 magnet:?xt=urn:btih:DAFEA6FD9BF6D42AD479B8F708ECE07BC8F3B818
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:DAFEA6FD9BF6D42AD479B8F708ECE07BC8F3B818
 magnet:?xt=urn:btih:003C7811E892B9A28136ADDC56F8A3A966D09F55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ RarmaRadio - программа для прослушивания и запис�
 magnet:?xt=urn:btih:CF10506A95617B9AD696E091A083BCBDB88B8E73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Six months later, just after their induction in the Rock and Roll Hall of Fame, 
 ```bash
 magnet:?xt=urn:btih:64C97F9EF52FBE2A56590937179F8F990AFDA3CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Opera Crypto Browser 104.0.4944.36 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:0B65EE3E2121194D7983B5AE839096AB8FA6816F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ FabFilter TotalBundle - содержит коллекцию последних �
 ```bash
 magnet:?xt=urn:btih:F1A43A919563EBADC61BD57796C397A65754A84C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:F1A43A919563EBADC61BD57796C397A65754A84C
 magnet:?xt=urn:btih:263300003A1FC8D040E1AB81B0C38383620A9C3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:263300003A1FC8D040E1AB81B0C38383620A9C3A
 magnet:?xt=urn:btih:662192D9553F5B42E25151B98F01D60098E07BE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Busuu - популярный и востребованный проект для
 ```bash
 magnet:?xt=urn:btih:66473F0EE05544EB111E896B9BC9EC3140A26929
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:66473F0EE05544EB111E896B9BC9EC3140A26929
 magnet:?xt=urn:btih:5F80AC8247D793A5EAF2731B2E8F30B952917CB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:5F80AC8247D793A5EAF2731B2E8F30B952917CB7
 ```bash
 magnet:?xt=urn:btih:B17458061D95A13B9594CD23CC9B03CD09312357
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Little Snitch 5.7.1 [Multi]
 magnet:?xt=urn:btih:C498AF36474E8EA72994E92C817C920E0B865E41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Psycho Diver: Mashou Bosatsu | Psycho Diver: Soul Siren | Психо-нырял�
 ```bash
 magnet:?xt=urn:btih:35537BF81C15F29D30B279701E86E121AF283573
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:35537BF81C15F29D30B279701E86E121AF283573
 ```bash
 magnet:?xt=urn:btih:59CBE46602CCFFD9F1485CF4EDDF93CD905B9050
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ VA - Restaurant & Bar Best Ambience Music (2023) [MP3|320 Kbps] <Lounge, Chillou
 magnet:?xt=urn:btih:051D5FB73C04359A6C89BA1407C039D5755C57C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ VA - Liquicity Autumn (2023) [FLAC|Lossless|WEB-DL|tracks] <Drum & Base>
 ```bash
 magnet:?xt=urn:btih:0688D3E62D344ED1F8FE59678C5BA5D85C47644D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ Shihaisha no Tasogare | Twilight of the Dark Master | Сумерки Повел�
 ```bash
 magnet:?xt=urn:btih:1C6F842A0A554E503D82679CDD02B5CDCBF54BFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ Darude - Together (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trance, Danc
 magnet:?xt=urn:btih:99BECBC5C0F18C7916E5ECE30F264E12AF952308
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:99BECBC5C0F18C7916E5ECE30F264E12AF952308
 ```bash
 magnet:?xt=urn:btih:5B1CD842E12D5ACA477D48130AA06B3D71EC3F28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ TapinRadio - интернет радио от компании RaimerSoft (ра�
 ```bash
 magnet:?xt=urn:btih:C14F50AEA117237251D8D90232F82530BCC0E034
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ VA - Kontor Top of the Clubs Vol. 98 (2023) [MP3|~266 Kbps (V0)] <Electronic, Da
 magnet:?xt=urn:btih:B7C9B8E41F2484BA76C1DC3A47749CCDAA8C4724
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:B7C9B8E41F2484BA76C1DC3A47749CCDAA8C4724
 ```bash
 magnet:?xt=urn:btih:DD2FE88F649AF79D5D2FA86CA3806E0A7B7B8B59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ HDCleaner – многофункциональный программный пр
 magnet:?xt=urn:btih:D49B74C03091AAAE93CAEA54FC8FD6CC321E126B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:D49B74C03091AAAE93CAEA54FC8FD6CC321E126B
 ```bash
 magnet:?xt=urn:btih:40C4E194DD545236EBFE4B490A6433C428D4FE8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

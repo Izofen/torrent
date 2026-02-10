@@ -22,6 +22,8 @@ Nick Brignola - What It Takes (1991) Reservoir [FLAC|Lossless|tracks + .cue] <Ha
 magnet:?xt=urn:btih:AE5C3CD97F5DC0150895B1DF3ABC3A4B63D47497
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:AE5C3CD97F5DC0150895B1DF3ABC3A4B63D47497
 ```bash
 magnet:?xt=urn:btih:B53BDE188E6A935A816FBFCA8CE1DC5C66232901
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Coral Candle - Aspen Foxes (2019) [MP3|320 Kbps] <Electro>
 magnet:?xt=urn:btih:6C449D01D825A4E19A44D74D60F296CB2A1207A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:6C449D01D825A4E19A44D74D60F296CB2A1207A9
 ```bash
 magnet:?xt=urn:btih:89B065B7649C31CAB455AE654E80C48ABE6309D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Opera Babes ‎ - Beyond Imagination (2002) [FLAC|Lossless|image + .cue] <Classi
 magnet:?xt=urn:btih:AB4FB9999F292314950AAC208EABD35D6B6EC5F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:AB4FB9999F292314950AAC208EABD35D6B6EC5F8
 ```bash
 magnet:?xt=urn:btih:28A82C8A481A79F73F9A57014554B7292A6B3EC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:28A82C8A481A79F73F9A57014554B7292A6B3EC5
 magnet:?xt=urn:btih:20F797DCE8CA46F5F68D150767C4BA80FFECA65B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ ClipGrab - программа для скачивания и конвертир�
 magnet:?xt=urn:btih:2E3180D6AE38D5C718CC9C4C289CD0691B16271A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:F90B1A928C8D55EE3EE5BDFFB11A14FFE2C49775
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ Unclutter - это новое удобное место на рабочем ст
 ```bash
 magnet:?xt=urn:btih:49F0CE309EF56EAC73DF3380E588F597A2FE3318
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ VA - Ultimate Synth-Pop Anthems Vol.02 (2018) [MP3|320 Kbps] <Syntpop, Pop, Danc
 magnet:?xt=urn:btih:2DCADAB287A37EA2703EEF096CBEB8306AAA1946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ VA - Welcome Aboard: Advanced Rock Box (2019) [MP3|320 Kbps] <Rock, Alternative>
 magnet:?xt=urn:btih:743EDC05477724DAF856F8AD7BACCC4DF7DEBEB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:743EDC05477724DAF856F8AD7BACCC4DF7DEBEB2
 magnet:?xt=urn:btih:B9A313B93EE1492C100AC1DE6D86BDBC06C921AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ UltimateDefrag - дефрагментатор и оптимизатор разм
 ```bash
 magnet:?xt=urn:btih:AAFD9EBA7178AC4DF7BB375961443E9986FA8477
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ CrossOver 19.0 beta 1 (build 32154) [Multi/Ru]
 magnet:?xt=urn:btih:1564A3995CBAE18D6E0A96317D124442DDA6FF05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:1564A3995CBAE18D6E0A96317D124442DDA6FF05
 magnet:?xt=urn:btih:13A0EB96B6BE256C4DD3AF95D211DE325205BDBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 ```bash
 magnet:?xt=urn:btih:83955A29B2AF9C3B8D071D165030657153E9CB00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ SoftRAID популярный пакет создания и управлени�
 magnet:?xt=urn:btih:1803E6AF61286F05C5C5FBD9F039511866AE8350
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:1803E6AF61286F05C5C5FBD9F039511866AE8350
 ```bash
 magnet:?xt=urn:btih:BE74162CA1218C10242BED3F3D130A74142C043A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:BE74162CA1218C10242BED3F3D130A74142C043A
 magnet:?xt=urn:btih:5F942567B02B6D49D798E8F6F656DDABF95BC0E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:5F942567B02B6D49D798E8F6F656DDABF95BC0E2
 magnet:?xt=urn:btih:17691EB2B43E7EFF7456B5932F58E8D3AE9F9CD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:17691EB2B43E7EFF7456B5932F58E8D3AE9F9CD6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +617,8 @@ VA - Best tracks of Transitions by John Digweed on Kiss 100. 2007 Volume 4 (2019
 magnet:?xt=urn:btih:34310948CA883CB31FC918D3C68C8025242B0F21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:34310948CA883CB31FC918D3C68C8025242B0F21
 magnet:?xt=urn:btih:FF010BA817A8BA6DF3B48EFD9A71F1A8620715BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ magnet:?xt=urn:btih:FF010BA817A8BA6DF3B48EFD9A71F1A8620715BE
 ```bash
 magnet:?xt=urn:btih:E1F70ABBB6D08C7A834C31E9FD0C0CB8404EA37E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +697,8 @@ VA - ЕвроХит Топ 40 Europa Plus 15.11.2019 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:3BE5AF84E0D82822E58D3E7E59DC91D3784F1E7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

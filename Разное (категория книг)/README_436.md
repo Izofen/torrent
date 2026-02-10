@@ -1,3 +1,29 @@
+###  Публикация: 1292929   (641171) от 01.04.2019
+
+Питер Сингер | О вещах действительно важных. Моральные вызовы двадцать первого века (2019) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Питера Сингера часто называют самым влиятельным философом в мире. И он же является одним из самых противоречивых. Будучи автором таких важных книг, как "Освобождение животных" и "Практическая этика", он защищает права животных, поддерживает альтруистические движения и способствует развитию биоэтики. В своей новой книге "О вещах действительно (   Читать дальше...   )Жанр: Общество, ЭтикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E16ACC889DCDC565FAD91C84D5C8CE0626CCF4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293085   (641276) от 01.04.2019
 
 Ричард Хаас | Мировой беспорядок (2019) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:24AF66B68BDB0899E56A5EDB56D2B5D2C81AC66A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:24AF66B68BDB0899E56A5EDB56D2B5D2C81AC66A
 magnet:?xt=urn:btih:66B3CA343945424A45BCF3D8708D7A2BF4C37FB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:66B3CA343945424A45BCF3D8708D7A2BF4C37FB2
 magnet:?xt=urn:btih:935B09B5522FC9006F079281FCE461C5A7566380
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:935B09B5522FC9006F079281FCE461C5A7566380
 ```bash
 magnet:?xt=urn:btih:5A1C077999DBC516AEC5BA0FCF057F97174F7453
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:5A1C077999DBC516AEC5BA0FCF057F97174F7453
 magnet:?xt=urn:btih:B548A60FECF603D884C4C92E3173EE8F8E07771C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:B548A60FECF603D884C4C92E3173EE8F8E07771C
 magnet:?xt=urn:btih:D5F6B03C7FFD6597B876CB2519B760E327578793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:D5F6B03C7FFD6597B876CB2519B760E327578793
 ```bash
 magnet:?xt=urn:btih:6F16AC00BB100497DDEBFED9A02D7FE4FA203AFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:6F16AC00BB100497DDEBFED9A02D7FE4FA203AFB
 magnet:?xt=urn:btih:7AFA7FB9293A088A59BDE3A960F99F848861A9F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:7AFA7FB9293A088A59BDE3A960F99F848861A9F3
 ```bash
 magnet:?xt=urn:btih:B97B2130E8AFDB0FF1E82046EBDD7CFC0A6747B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:B97B2130E8AFDB0FF1E82046EBDD7CFC0A6747B6
 magnet:?xt=urn:btih:56367CEB3FFC61DFE10E2AC27BC3F17065F2B474
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:56367CEB3FFC61DFE10E2AC27BC3F17065F2B474
 ```bash
 magnet:?xt=urn:btih:E95DF935312D6ED960920893166D43BA67D459DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:E95DF935312D6ED960920893166D43BA67D459DD
 magnet:?xt=urn:btih:77F4F4327589F421AD3165996F6FAB439C1C6D7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:77F4F4327589F421AD3165996F6FAB439C1C6D7E
 ```bash
 magnet:?xt=urn:btih:103B7885E793E0F4243C5F4D3457B4E245EF0790
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:103B7885E793E0F4243C5F4D3457B4E245EF0790
 magnet:?xt=urn:btih:5852AC3099F6B5B523BD763F6929E31784CB8B6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:5852AC3099F6B5B523BD763F6929E31784CB8B6B
 ```bash
 magnet:?xt=urn:btih:7DF20A9AA34B7291E71A3A8CB796C241151AAD72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:7DF20A9AA34B7291E71A3A8CB796C241151AAD72
 magnet:?xt=urn:btih:700E7DE0A7577754DB84837720D718F4E878AB73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:700E7DE0A7577754DB84837720D718F4E878AB73
 magnet:?xt=urn:btih:02F8AEF380BA9F49BAE2A9AF1D0039C4D55A18B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:02F8AEF380BA9F49BAE2A9AF1D0039C4D55A18B5
 ```bash
 magnet:?xt=urn:btih:959F08DC1528589775FDFF789F968708D7AB846E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:959F08DC1528589775FDFF789F968708D7AB846E
 magnet:?xt=urn:btih:D628A786971ECDBDC39EF80AC9BA3F7883A26155
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:D628A786971ECDBDC39EF80AC9BA3F7883A26155
 ```bash
 magnet:?xt=urn:btih:3A310D5B07FF8F4AC88662DCFA793B248B41FA95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:3A310D5B07FF8F4AC88662DCFA793B248B41FA95
 magnet:?xt=urn:btih:1994DA6F58FCB2D729DB5C9418F98D4453574353
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:1994DA6F58FCB2D729DB5C9418F98D4453574353
 ```bash
 magnet:?xt=urn:btih:2571B14A6059C0426DF03194F9DC954F9D75E60C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:2571B14A6059C0426DF03194F9DC954F9D75E60C
 magnet:?xt=urn:btih:E1D8EB873368DFC07F52B54B919543BA6A7F6448
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:E1D8EB873368DFC07F52B54B919543BA6A7F6448
 ```bash
 magnet:?xt=urn:btih:308183ADD38E212B4EF9406EC9665AA8A9D9C19B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,30 +682,7 @@ magnet:?xt=urn:btih:308183ADD38E212B4EF9406EC9665AA8A9D9C19B
 magnet:?xt=urn:btih:80E7BB5E75C1A0FD0E810F0D122C1C7936B97549
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292632   (642809) от 31.03.2019
-
-Венди Бернард | Японское вязание на спицах (2019) [PDF]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Японские узоры сейчас на волне популярности среди вязальщиц во всем мире. Но есть одно «но»: насколько они привлекательны, настолько же и сложны! С изящной японской схемой справится не всякая мастерица, а начинающие и вовсе теряются при виде сложных и незнакомых обозначений на схемах.
-Эта инновационная книга дает вязальщицам самого разного уровня ключ к чтению японских (   Читать дальше...   )Жанр: Домоводство, рукоделиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB39A92DEDDBA9C6DA1D9878EAE15C58C6D09308
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

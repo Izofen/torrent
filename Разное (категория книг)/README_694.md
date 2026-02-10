@@ -1,3 +1,29 @@
+###  Публикация: 982362   (948277) от 03.02.2016
+
+Руслан Исаев | Лечение алкоголизма. Руководство к трезвости (2015) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известного врача-нарколога Руслана Николаевича Исаева предназначена для всех, кому небезразлична судьба пьющего близкого человека. Прочитав книгу, вы разработаете четкий план, будете знать каждый свой последующий шаг, избежите "подводных камней" и в конечном итоге поможете своему близкому обрести трезвую жизнь.Жанр: Популярная и нетрадиционная медицина. АлкоголизмФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:622ECF097947F13134761A5FCD6EAA22B1991AC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089135   (948535) от 05.01.2017
 
 Gavin Holmes / Гэвин Холмс | Trading In the Shadow of the Smart Money  / Трейдинг в тени умных денег (2011) [PDF] [En]
@@ -18,6 +44,8 @@ Gavin Holmes / Гэвин Холмс | Trading In the Shadow of the Smart Money 
 ```bash
 magnet:?xt=urn:btih:0E0B8D99A2BD3A02AB7B5DA526F66B1540ADC043
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:0E0B8D99A2BD3A02AB7B5DA526F66B1540ADC043
 magnet:?xt=urn:btih:98E4B0F3E6186E96DCCEAA782C5C7F18F1238153
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:98E4B0F3E6186E96DCCEAA782C5C7F18F1238153
 ```bash
 magnet:?xt=urn:btih:BE2CC00F216C221427D35F497E63EEF9E06C61FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:BE2CC00F216C221427D35F497E63EEF9E06C61FE
 magnet:?xt=urn:btih:88157748CD2D4D44CAA30F89EB526CF2DE253410
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:88157748CD2D4D44CAA30F89EB526CF2DE253410
 ```bash
 magnet:?xt=urn:btih:8317CE3EF3AF60EC49EA20306DD14A9939EDBD1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:8317CE3EF3AF60EC49EA20306DD14A9939EDBD1E
 magnet:?xt=urn:btih:3332651476A634DA17F0E0698F7B73AAE81396F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:3332651476A634DA17F0E0698F7B73AAE81396F7
 ```bash
 magnet:?xt=urn:btih:3B15A8AFEDEBB196A7B3C29832C98719DD5396FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:3B15A8AFEDEBB196A7B3C29832C98719DD5396FA
 magnet:?xt=urn:btih:6917A57657E0CAE6B54ACA5D70B10CC3E1EF1619
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:6917A57657E0CAE6B54ACA5D70B10CC3E1EF1619
 ```bash
 magnet:?xt=urn:btih:CF6B0F0550FB1275BEDAD704C6D30061D1C83D68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:CF6B0F0550FB1275BEDAD704C6D30061D1C83D68
 magnet:?xt=urn:btih:F9B78D3C46E95EE3B7D4B3E8C411F14328F5EE36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:F9B78D3C46E95EE3B7D4B3E8C411F14328F5EE36
 magnet:?xt=urn:btih:31D970E5738434D2AACCCD9FF979107BEA0AC1FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:31D970E5738434D2AACCCD9FF979107BEA0AC1FC
 ```bash
 magnet:?xt=urn:btih:A11B8BBB38E9FDDC5B11FB79EAE5CD7DE5C7E378
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:A11B8BBB38E9FDDC5B11FB79EAE5CD7DE5C7E378
 magnet:?xt=urn:btih:03541CCFF1B791A16CE081E5626054305A91AE5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:03541CCFF1B791A16CE081E5626054305A91AE5B
 magnet:?xt=urn:btih:D9D37A5A32963D8A30086756A191C0C40665919D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:D9D37A5A32963D8A30086756A191C0C40665919D
 magnet:?xt=urn:btih:C273972E416FD66CDABC7263AA8532A625E8B364
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:C273972E416FD66CDABC7263AA8532A625E8B364
 ```bash
 magnet:?xt=urn:btih:93CE01DB7266CC56939CF537FD48D2B356C7A733
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:93CE01DB7266CC56939CF537FD48D2B356C7A733
 magnet:?xt=urn:btih:C1B20B5780F316C971412571A8562355CC7261DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:C1B20B5780F316C971412571A8562355CC7261DE
 ```bash
 magnet:?xt=urn:btih:93247680BA67FCE41DC646B25ADB1A35F4974427
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:93247680BA67FCE41DC646B25ADB1A35F4974427
 magnet:?xt=urn:btih:D9F42AE5F7DB3D018F0097297271F4C0DFEA4ADD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:D9F42AE5F7DB3D018F0097297271F4C0DFEA4ADD
 magnet:?xt=urn:btih:D51301D952DDDB462B459C0EC9B0EC2D58C547CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:D51301D952DDDB462B459C0EC9B0EC2D58C547CC
 ```bash
 magnet:?xt=urn:btih:A41191873ECC3753B54858C03FEA620C6A35A46B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:A41191873ECC3753B54858C03FEA620C6A35A46B
 magnet:?xt=urn:btih:7215F992977A1119A614DE7DA9B9DC0CBB630C9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:7215F992977A1119A614DE7DA9B9DC0CBB630C9E
 magnet:?xt=urn:btih:5B9E820EFCFB720AEC57C6C76904F4B6E1F1D2B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:5B9E820EFCFB720AEC57C6C76904F4B6E1F1D2B9
 ```bash
 magnet:?xt=urn:btih:49A0071C3D4D82D4D976C42D0B93FEBB49383842
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,29 +682,7 @@ magnet:?xt=urn:btih:49A0071C3D4D82D4D976C42D0B93FEBB49383842
 magnet:?xt=urn:btih:BB1D5730001686EAEFEDCCFB4D28CE7C71DB8467
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089801   (950403) от 04.01.2017
-
-Лариса Шалагинова | Самоменеджмент. Практическое руководство (2012) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950403.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Книга посвящена профессиональному саморазвитию человека. В ней представлены техники формирования навыков тайм-менеджмента, принятия эффективных решений, управления поведением сотрудников в коллективе, командообразования, развития коммуникативных способностей. Даны практические рекомендации по формированию мотивации труда. Издание предназначено для менеджеров-практиков, (   Читать дальше...   )Жанр: Самоменеджмент. Сделай себя самФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BC6EEFFA8E44DAD417C57279A2E479070B4A8A0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

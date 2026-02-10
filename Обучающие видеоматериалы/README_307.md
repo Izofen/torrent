@@ -19,6 +19,8 @@ CGMA, Vidya Vinnakota др. | Intro to Production Modeling (2019) PCRec [En, Ru]
 magnet:?xt=urn:btih:608D14FF5A5A5592F93281BC3C8DA1A1F464F5C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:608D14FF5A5A5592F93281BC3C8DA1A1F464F5C9
 magnet:?xt=urn:btih:903A4EF2E57F59732A8B026FB21399BFFBD485B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Udemy, Hamza Sheikh | Network Ethical Hacking for beginners (Kali 2020 - Hands-o
 ```bash
 magnet:?xt=urn:btih:96EA043E315167B902C30C23EA07E8156B72AEE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ Sean Fowler | Zbrush 4R8: Hard Surface Sculpting for all Levels (2017) PCRec
 magnet:?xt=urn:btih:1781AF9610550934780DFBF81A61B4D74E21FE69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Udemy, Davis Jones и др. | Career Hacking: Резюме, LinkedIn, Интер
 magnet:?xt=urn:btih:64256155708FEF7AD3FA7007F4300137CF0E488C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:64256155708FEF7AD3FA7007F4300137CF0E488C
 ```bash
 magnet:?xt=urn:btih:351723861DF72B383D342BDF3562A9A215C705EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Udemy, Samuel Boylan-Sajous | Deep Learning Course with Flutter & Python - Build
 ```bash
 magnet:?xt=urn:btih:53BDD581BB70B8A0E6A4C3CDD26EC21E1030807A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ Udemy, Musab Zayadneh | Python For Ethical Hackers 2021 (2020) PCRec [En / En Su
 magnet:?xt=urn:btih:FBC1931E7B6690086B50FD8ECA8A69EACD47FE5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ UVW mapping - это метод сопоставления координат, �
 ```bash
 magnet:?xt=urn:btih:A1507A2CCF31A3E870BF16FB94A95F08E2512610
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:A1507A2CCF31A3E870BF16FB94A95F08E2512610
 magnet:?xt=urn:btih:169B2A6C84DDAE3F4BEEFA818CD0DB06AC9E1837
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ Udemy, Tim Buchalka's Learn Programming Academy и др. | Освойте CI/CD 
 ```bash
 magnet:?xt=urn:btih:14594FD5AE5F0359A384915584AA861EC9652DC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ Udemy, Colt Steele | The Modern Python 3 Bootcamp (2020) PCRec [En / En Sub]
 magnet:?xt=urn:btih:ADBE392E4559CF57BC5D9E940FDFD6A97C2A1A08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ Udemy, John Dunning | Python MultiTrack - beginners and professionals - zero to 
 ```bash
 magnet:?xt=urn:btih:104D397C19AE6AE4DA992E3174BA065DF4CDCB86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:104D397C19AE6AE4DA992E3174BA065DF4CDCB86
 magnet:?xt=urn:btih:EA67354C76AF10C95376C0ED79A8F5482799E4BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ Ben Tate | An Introduction To UVMapping In 3d Studio Max Using The Unwrap UVW Mo
 ```bash
 magnet:?xt=urn:btih:94DD9D757E0D872E1B499BE73B423EE303640D94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ Udemy, YouAccel Training | Internet and Web Development Fundamentals (2019) PCRe
 magnet:?xt=urn:btih:4FDA0BEEF57D7E5CC7CC24B55334545EE2266C2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ SkillFactory | Deep Learning и Нейронные сети (2019) WEB-DL
 ```bash
 magnet:?xt=urn:btih:35B7306AE40FC9443616B57CB2124BC87E42F956
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:35B7306AE40FC9443616B57CB2124BC87E42F956
 magnet:?xt=urn:btih:4C8B084AD9096C6AD468E1C8BF8050C2CD59A51E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ Udemy, Samuel Girma | Программирование на Go (Golang): Bootcam
 magnet:?xt=urn:btih:1071A5F27EB4D81E47D5AB9A51B0FD1511501F95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ Udemy, Александр Дронин | Управление личными ф�
 ```bash
 magnet:?xt=urn:btih:4405C841E75D14390867C65282CB5E020DFAAB60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:4405C841E75D14390867C65282CB5E020DFAAB60
 magnet:?xt=urn:btih:B46398CEB3658DDF39FDCCF68A9FA2B888244F36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ Michael Pavlovich | Photogrammetry Basics (2018) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:DC5D0F1FC95E9F1D8C181582749C346147AD1213
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ Brain Recktenwald | Environment Art Lookdev Using Unreal & Photogrammetry (2017)
 ```bash
 magnet:?xt=urn:btih:C3C103FCAE9098BC085352E0D6DDC72E84C28858
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:C3C103FCAE9098BC085352E0D6DDC72E84C28858
 magnet:?xt=urn:btih:238A17BFFED00E4245A1858F20AD6D0B0EC69DB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ Tim Bergholz | MACE Tutorial – COMPLETE EDITION (2019) PCRec
 ```bash
 magnet:?xt=urn:btih:291342B73BC526D78A40A587178218FCC05630B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:291342B73BC526D78A40A587178218FCC05630B5
 ```bash
 magnet:?xt=urn:btih:D927CBD413D273A06F032CD73C9EC9295A4C058D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

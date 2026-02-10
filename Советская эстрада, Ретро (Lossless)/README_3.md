@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:F93BA6F5C98623FFC3F221E2622049FCD0368F26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:F93BA6F5C98623FFC3F221E2622049FCD0368F26
 ```bash
 magnet:?xt=urn:btih:37C05C73CF4769C82862E8D2BD7BE23D186272F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Старая танцплощадка. Незабываемые имена 
 magnet:?xt=urn:btih:EC1CD3D3CDDE2170F17859A891B5AA417B7E8883
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ CD 1Жанр: RetroПродолжительность: 00:49:00
 ```bash
 magnet:?xt=urn:btih:4674D4D77930EF0E82F6C39013990C3F7B5295C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +144,8 @@ VA - Кружатся диски. Хиты 70-х (2002) CD № 1-2 [APE|Lossless
 magnet:?xt=urn:btih:D487DFF400A9A84A2991F8F844694E1311C60D3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +172,8 @@ magnet:?xt=urn:btih:D487DFF400A9A84A2991F8F844694E1311C60D3E
 ```bash
 magnet:?xt=urn:btih:F5E3840F4E60FC439D0DB7F777407F5604751C03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ magnet:?xt=urn:btih:F5E3840F4E60FC439D0DB7F777407F5604751C03
 magnet:?xt=urn:btih:A7B7D73B76D845E2D848C55D0CF110D1E2DBAEB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ VA - Песни 70-х (2 CD) (2005) [FLAC|Lossless]<Retro>
 ```bash
 magnet:?xt=urn:btih:908E4E2FD83E0248ED5BD15CE6D9E3D652E1626F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +260,8 @@ VA - Мелодии и ритмы советской эстрады (2003) (Вы
 magnet:?xt=urn:btih:C2823BC5845CE0D63902B341D1B9C299C5CB9A1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ magnet:?xt=urn:btih:C2823BC5845CE0D63902B341D1B9C299C5CB9A1D
 ```bash
 magnet:?xt=urn:btih:CDB0AED91C6C6CFDB6C63D315B55F773B1743591
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +318,8 @@ magnet:?xt=urn:btih:CDB0AED91C6C6CFDB6C63D315B55F773B1743591
 magnet:?xt=urn:btih:AB6E658AB677CC8A6B90CE458A9AD9E3E759F4BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +346,8 @@ magnet:?xt=urn:btih:AB6E658AB677CC8A6B90CE458A9AD9E3E759F4BC
 ```bash
 magnet:?xt=urn:btih:1A86A46627E491049AD8BF4B2419939AC13A3C62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +376,8 @@ magnet:?xt=urn:btih:1A86A46627E491049AD8BF4B2419939AC13A3C62
 magnet:?xt=urn:btih:F07D2F6C6274DDBCCA9FBE374514E652960FA841
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +404,8 @@ VA - В русском ресторане. Оригинальные записи
 ```bash
 magnet:?xt=urn:btih:29B6EAD3840B2438C9D28A5733D715174D40026D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +440,8 @@ VA - Кружатся диски. Хиты 70-х (2002) CD № 1 [FLAC|Lossless]
 magnet:?xt=urn:btih:F5B542B237EF6E44D55ACCBE02DE55D8D039560F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +468,8 @@ magnet:?xt=urn:btih:F5B542B237EF6E44D55ACCBE02DE55D8D039560F
 ```bash
 magnet:?xt=urn:btih:EAC471C2DD032EE8BFC947FEE787E00A3B466BE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +498,8 @@ magnet:?xt=urn:btih:EAC471C2DD032EE8BFC947FEE787E00A3B466BE7
 magnet:?xt=urn:btih:00366344BF84B3485FBCE1F28CD0D2E811838FE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +523,8 @@ magnet:?xt=urn:btih:00366344BF84B3485FBCE1F28CD0D2E811838FE3
 ```bash
 magnet:?xt=urn:btih:5C7B3736910B53D54B0EA7082578A6FF7F517846
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +553,8 @@ magnet:?xt=urn:btih:5C7B3736910B53D54B0EA7082578A6FF7F517846
 magnet:?xt=urn:btih:089F5C0D9F5130B81D0F1C300E53C94914DDC143
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +582,8 @@ V.A. - В русском ресторане - Романсы (Выпуск 2) (2
 magnet:?xt=urn:btih:D276A11B3393B647C02D10FB4F774C334B350C69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +607,8 @@ magnet:?xt=urn:btih:D276A11B3393B647C02D10FB4F774C334B350C69
 ```bash
 magnet:?xt=urn:btih:02C15A8A3C8B94DAE2611E87E94D4F7D0D04B09C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +637,8 @@ magnet:?xt=urn:btih:02C15A8A3C8B94DAE2611E87E94D4F7D0D04B09C
 magnet:?xt=urn:btih:63B7841E993BC3E437DC24088A64BF012CC7D17D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +665,8 @@ magnet:?xt=urn:btih:63B7841E993BC3E437DC24088A64BF012CC7D17D
 ```bash
 magnet:?xt=urn:btih:641292A96ED375A75BD1848961D35D0B807251A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +695,8 @@ magnet:?xt=urn:btih:641292A96ED375A75BD1848961D35D0B807251A5
 magnet:?xt=urn:btih:349302FC4129717B8CFE34FEA825792F71BA0C0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,6 +724,8 @@ magnet:?xt=urn:btih:349302FC4129717B8CFE34FEA825792F71BA0C0E
 magnet:?xt=urn:btih:0CB0E5B02350F452A6221AAAD80356A90726E333
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -702,6 +752,8 @@ VA - Незабытые танго (2010) [APE|Lossless]<Retro>
 ```bash
 magnet:?xt=urn:btih:D888CE025ACB37DA05BA7D04D4062CADE2B99F8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Aomei Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:697CF3C295A1601DAD97F0C1C030E389F8A7BA84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:CFBB0291E0ED469154FF44F758F8F48C47A0C072
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ ArchiCAD - это мощное приложение моделирования, 
 ```bash
 magnet:?xt=urn:btih:D05F33469DE443EB2F39D1888FE23C3893E6C4BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Photo Sherlock v1.127 Mod by Mixroot  [Ru/Multi]
 magnet:?xt=urn:btih:3718FDC281332EE686DE292F5081DE2DFA46BC55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:3718FDC281332EE686DE292F5081DE2DFA46BC55
 ```bash
 magnet:?xt=urn:btih:A5D0CC03DC2629C34605F345B453BC34EF251472
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Mp3tag предоставляет пользователям мощный и п�
 magnet:?xt=urn:btih:05CEB1370CC8AC52D01091D9027006262CF540B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ ES File Explorer (File Manager) — это полнофункциональны�
 ```bash
 magnet:?xt=urn:btih:64AAFB0DE156843D77596696A88227AE1E415C6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ VIMAGE - AI Photo Animation v5.1.3 Mod by PieMods [Ru/Multi]
 magnet:?xt=urn:btih:4A12610D2323972F9C480070181EF1204C73C8DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ GPU-Z - бесплатная программа от TechPowerUp для отоб
 magnet:?xt=urn:btih:752FEFD5448AF44EF0508827E4F2DC1F6BEFBD93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ R-Studio Network 9.5 Build 191510 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5F2FBD2A8EA1D93465681D68DC0D2A0CDE6BAC6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ AdGuard — уникальный блокировщик рекламы без п
 magnet:?xt=urn:btih:B92E5EEC92DEE0D9D0585F11DFE047F9BB01300B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:B92E5EEC92DEE0D9D0585F11DFE047F9BB01300B
 ```bash
 magnet:?xt=urn:btih:2AC505AB76EDE9F1632459766109C8387B5EE77D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:2AC505AB76EDE9F1632459766109C8387B5EE77D
 magnet:?xt=urn:btih:AFD5650EA71D47FC1C3270B4CEED787438ADBCC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Microsoft Visual C++ Redistributable Package – это распространя
 ```bash
 magnet:?xt=urn:btih:62EF396B82D1173B17FA6B8474E7672BACDDCF1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Defender Remover Portable 12.8.3 [En]
 magnet:?xt=urn:btih:DD11C2ED2D94BE57CE23A92F766EF82F8EA10D5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:DD11C2ED2D94BE57CE23A92F766EF82F8EA10D5C
 ```bash
 magnet:?xt=urn:btih:85522BD1E5580CDD2EB06402DAE7B2860DF42C2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.14.400 Mo
 magnet:?xt=urn:btih:ACE8794F9D4AB032601E3F7F25D8D76B578C189F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:5315C76BE5BE8A5ECDFC4F7A3AD8D17EDC0B818D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ OTT Онлайн прямое телевидение, в котором вы н�
 magnet:?xt=urn:btih:586019F213AF0F0FCB96519FE2D96D7621CDCDED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ XnView MP - мощное многофункциональное приложен
 ```bash
 magnet:?xt=urn:btih:E4680BEE8E7CCDFC01371E0FCB0F1E4E1EA5DF82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ TreeSize Professional - мощное и гибкое средство визуа
 magnet:?xt=urn:btih:E64F4976496FA418A2A1F24D36DAECD136A1F99C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ WinCHM - небольшая утилита для создания файлов 
 ```bash
 magnet:?xt=urn:btih:B257119C18111047DE288BDD8772730272306F9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ R-Studio Network 9.5 Build 191510 RePack (& Portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:7247395B8E746E7864AFC4E7FAB7E0C2E1D5BF85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ Allavsoft Video Downloader Converter - это мощный видео загру
 magnet:?xt=urn:btih:702BCFB09F5B6779EC221A8BCD3D2923BCB233B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Media Player Classic Home Cinema – удобный во всех планах �
 ```bash
 magnet:?xt=urn:btih:7254D6FF1634288083A11D2CB3F7C7AA23C08D01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,31 @@
+###  Публикация: 1130357   (716041) от 01.05.2017
+
+С.Л. Корякин-Черняк, А.А. Маркин | Справочник дачного мастера. Вода, газ, электричество, отопление, охрана и не только... (2010) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга создана для того, чтобы научить миллионы дачников, владельцев загородных домов быть счастливыми, безопасно жить, работать и отдыхать за городом. Рассматриваются в комплексе вопросы защиты дома как от посягательств злоумышленников, так и от вредных природных факторов: огня, молнии, холода, влаги, грязи, диких животных, насекомых, птиц, сорняков.
+
+ Вода будет (   Читать дальше...   )Жанр: Умелые рукиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F7007900FBD18F4BCD94E4B52683008DFAB6F28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129680   (716240) от 01.05.2017
 
 Alan & Gill Bridgewater | Building Wooden Machines: Gears and Gadgets for the Adventurous Woodworker (2012) [PDF] [En]
@@ -20,6 +48,8 @@ Alan & Gill Bridgewater | Building Wooden Machines: Gears and Gadgets for the Ad
 ```bash
 magnet:?xt=urn:btih:7ABAB5D328C1246CBB5070E01445573ADA345842
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +75,8 @@ magnet:?xt=urn:btih:7ABAB5D328C1246CBB5070E01445573ADA345842
 magnet:?xt=urn:btih:7761CD633CCBF39D80C654ECBBC309007BB606BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +101,8 @@ magnet:?xt=urn:btih:7761CD633CCBF39D80C654ECBBC309007BB606BA
 magnet:?xt=urn:btih:0DD7A714D5AACDB393D9323DB0BCE1E3CD10A661
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +126,8 @@ magnet:?xt=urn:btih:0DD7A714D5AACDB393D9323DB0BCE1E3CD10A661
 ```bash
 magnet:?xt=urn:btih:F44B093B75752E5BAEA0526A82763BE2AE826BFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +155,8 @@ magnet:?xt=urn:btih:F44B093B75752E5BAEA0526A82763BE2AE826BFB
 magnet:?xt=urn:btih:928C83E2BB61577C6D69BDBB4253D4C6C137996A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +180,8 @@ magnet:?xt=urn:btih:928C83E2BB61577C6D69BDBB4253D4C6C137996A
 ```bash
 magnet:?xt=urn:btih:F20FB8E31FBF57E19CFBD7ABE5B01F70EF5B203B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +207,8 @@ magnet:?xt=urn:btih:F20FB8E31FBF57E19CFBD7ABE5B01F70EF5B203B
 magnet:?xt=urn:btih:DFC3F0DAE6E26BE7F8C52AE9D7B61165BA5357D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +232,8 @@ magnet:?xt=urn:btih:DFC3F0DAE6E26BE7F8C52AE9D7B61165BA5357D5
 ```bash
 magnet:?xt=urn:btih:C8CE74EBA0B8144C05191CA0C4C4779B28DE7412
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +259,8 @@ magnet:?xt=urn:btih:C8CE74EBA0B8144C05191CA0C4C4779B28DE7412
 magnet:?xt=urn:btih:3F66E701EA87213D33B9568D50B0A7EEECA66265
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +284,8 @@ magnet:?xt=urn:btih:3F66E701EA87213D33B9568D50B0A7EEECA66265
 ```bash
 magnet:?xt=urn:btih:971980A1D0102D01EC0B8CB3A176740D3A58EB9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +311,8 @@ magnet:?xt=urn:btih:971980A1D0102D01EC0B8CB3A176740D3A58EB9D
 magnet:?xt=urn:btih:A4933B1FE187A4EBCCD67F020938F4031B8BBF2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +336,8 @@ magnet:?xt=urn:btih:A4933B1FE187A4EBCCD67F020938F4031B8BBF2A
 ```bash
 magnet:?xt=urn:btih:E6CBAD6805C2F46C54A3E38555F5B0AEB10E9894
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +363,8 @@ magnet:?xt=urn:btih:E6CBAD6805C2F46C54A3E38555F5B0AEB10E9894
 magnet:?xt=urn:btih:1CEED225EA502D7E95C2653047933EFCF01F2D72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +388,8 @@ magnet:?xt=urn:btih:1CEED225EA502D7E95C2653047933EFCF01F2D72
 ```bash
 magnet:?xt=urn:btih:7FBEA9333BF4B1135A05FBDAE0474329619AE364
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +417,8 @@ magnet:?xt=urn:btih:7FBEA9333BF4B1135A05FBDAE0474329619AE364
 magnet:?xt=urn:btih:E9D0121709D70CCBB6A41DFA02BC2FD82DAAA934
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +442,8 @@ magnet:?xt=urn:btih:E9D0121709D70CCBB6A41DFA02BC2FD82DAAA934
 ```bash
 magnet:?xt=urn:btih:6429A0707FD5A43381140F1FA6EBF65169C6FEAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +471,8 @@ magnet:?xt=urn:btih:6429A0707FD5A43381140F1FA6EBF65169C6FEAA
 magnet:?xt=urn:btih:F81D923CC61A59571C4BA2F0293C4C201C6F8DCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +499,8 @@ magnet:?xt=urn:btih:F81D923CC61A59571C4BA2F0293C4C201C6F8DCB
 magnet:?xt=urn:btih:BBE888650A097B5B37C994F423BEA1BB4CA35BF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +524,8 @@ magnet:?xt=urn:btih:BBE888650A097B5B37C994F423BEA1BB4CA35BF6
 ```bash
 magnet:?xt=urn:btih:95AF7C7484C86100FE6D0ED02914E474D74470B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +551,8 @@ magnet:?xt=urn:btih:95AF7C7484C86100FE6D0ED02914E474D74470B1
 magnet:?xt=urn:btih:811A30964465BD2DCF08094E0B855E9A249B8CA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +576,8 @@ magnet:?xt=urn:btih:811A30964465BD2DCF08094E0B855E9A249B8CA9
 ```bash
 magnet:?xt=urn:btih:B24E407792294C3162224C6D027F79D371B10092
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +603,8 @@ magnet:?xt=urn:btih:B24E407792294C3162224C6D027F79D371B10092
 magnet:?xt=urn:btih:E4958437A0459030D6700ED595446FF9EDCC2536
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +628,8 @@ magnet:?xt=urn:btih:E4958437A0459030D6700ED595446FF9EDCC2536
 ```bash
 magnet:?xt=urn:btih:FFE997B115C3C281CF05A0FFC2A1C57E4F7BC566
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +655,8 @@ magnet:?xt=urn:btih:FFE997B115C3C281CF05A0FFC2A1C57E4F7BC566
 magnet:?xt=urn:btih:DA5B764BB3D7422DEEE779A520E6A2EF813B777A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,31 +681,7 @@ magnet:?xt=urn:btih:DA5B764BB3D7422DEEE779A520E6A2EF813B777A
 magnet:?xt=urn:btih:90004E62CE4E8D6919EF614DBF3C65CB294C14F0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400501   (718644) от 05.08.2020
-
-Дэн Лайонс | Евангелие от IT. Как на самом деле создаются IT-стартапы (2020) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэн Лайонс – экс-редактор Forbes и сценарист комедийного сериала «Кремниевая долина» – прославился как автор пародийного блога «Тайный дневник Стива Джобса». Вот и его бестселлер «Евангелие от IT» похож на сатиру. Только это – реальная история.
-
-Автор описывает свои злоключения в многомиллионном стартапе HubSpot, где ему предложили работать бок о бок с новаторами (   Читать дальше...   )Жанр: Зарубежная деловая литература, Зарубежная публицистика, Стартапы и создание бизнесаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5252EA3B60B25808186DA8AAE303E630D1ED368E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

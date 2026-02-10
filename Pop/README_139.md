@@ -22,6 +22,8 @@ Dean Martin - Greatest Hits (2013) [FLAC|Lossless|tracks + .cue] <Vocal Pop>
 magnet:?xt=urn:btih:FD56CF7C058C52DB034E350D2B885EF3B2576E49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Dance Mission - Italo Disco Chapter 80ies (2018) [MP3|320 Kbps] <Euro-Pop, Italo
 ```bash
 magnet:?xt=urn:btih:A33D6B24A9B3CC4F4483E97336D336CAEFA80D4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Mylene Farmer - Interstellaires (2015) [APE|Image+cue]<Pop>
 magnet:?xt=urn:btih:75845C558B25BC7A34C6335784BC36475EEAADC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - BRAVO Dance 2015 (2015) [FLAC|tracks|WEB-DL]<Top 40, Pop, Electronic, Dance
 ```bash
 magnet:?xt=urn:btih:C89294FD2C9A0C5667DC5AE1FAEF37E78B55BBB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Amy Macdonald - The Human Demands (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Alt
 magnet:?xt=urn:btih:F9B04870157A44C95A23D940CFB2960B7F15278C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Roxette - Bag Of Trix Vol. 1 (Music From The Roxette Vaults) (2020) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:9C0EA0F33A3DA3CD05CC14CBCD774E2BAD7D3291
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:9C0EA0F33A3DA3CD05CC14CBCD774E2BAD7D3291
 magnet:?xt=urn:btih:37F8A63475E270FED4F681E908784A4C39DD1C36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Intercity Sound Association - Philly Sound (1976) LP [MP3|320 Kbps] <Space-Age, 
 ```bash
 magnet:?xt=urn:btih:8F484DD83911FB27A3CA3ACEFE9726610669E3B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Hits From The Dancefloor (2018) [MP3|320 Kbps] <Funky, Vocal, Club, Nu Disc
 magnet:?xt=urn:btih:CE0AE880AC5B4248EF284022BF03D8CC124CA6BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Zinc - Street Level (1982) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco, Boog
 ```bash
 magnet:?xt=urn:btih:3900FEB4DF4C1F0E301BC94685868A2B52A5F36F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Ian Mitchell Band - Lonely Nites (1979) LP [MP3|320 Kbps] <Pop, Pop Rock>
 magnet:?xt=urn:btih:F9B08FD98F59ACE359C76970D27B4E931406B8B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ Bus Connection - Superdance (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul, Dis
 magnet:?xt=urn:btih:1DF6F2ACBD179562CE69A51D6AFB8509ED771A04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +367,8 @@ Mylene Farmer & Sting - Stolen Car (2015) Single [FLAC|image+.cue]<Pop>
 ```bash
 magnet:?xt=urn:btih:134F1C880EA91E8E5ED9ED4D4F32823CBFDA0881
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +397,8 @@ Madonna - Enigmatica (2015) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:E36D7C9A0EDB872C94306E1C99802F6110AAD8C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +425,8 @@ Grimes - Art Angels (2015) [OGG| 454-526 кб/с]<Synthpop, Indie Pop, Dream Pop
 ```bash
 magnet:?xt=urn:btih:056BC0F4993D589A56394DCAC97E9058D65EB288
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +455,8 @@ Teach In - Disco Collection (2002) [MP3|320 кб/с]<Pop, Disco, Retro>
 magnet:?xt=urn:btih:6FE8C3C625674219225820875D9B435D99E32D5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +483,8 @@ magnet:?xt=urn:btih:6FE8C3C625674219225820875D9B435D99E32D5B
 ```bash
 magnet:?xt=urn:btih:D67D76E7F54B264EC33C22E14121ED070AC04C4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +513,8 @@ CD1:
 magnet:?xt=urn:btih:2266EBEC9A4F94FBA503F86FC4F609F8420B3A80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +541,8 @@ magnet:?xt=urn:btih:2266EBEC9A4F94FBA503F86FC4F609F8420B3A80
 ```bash
 magnet:?xt=urn:btih:4DFFE7851253305F440B4B4C59B29785B9B9B4CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +571,8 @@ Bravo - Bravo (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 magnet:?xt=urn:btih:589D48F4FFEC2ED1E910351E15BB7BEF12D7D44A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +599,8 @@ Emin - Love Is A Deadly Game (2016) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:0F5B23E209D8428EE4662192B67EC09EB01C5297
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +629,8 @@ Roxette - Look Sharp! (30th Anniversary Edition) (2018) 2CD, RE. RM. Parlophone 
 magnet:?xt=urn:btih:6095E47F3BA264BEB206905C81C36F6166D14460
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +657,8 @@ VA - Pop Rock Greats (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:B437A16DAF0FBBA6479CA0EB85E9BF1BE6877BF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +687,8 @@ V.A. - Italo Disco 80's (Best Of Collection) (2016) [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:7B8241B0673799A799AFAEACEEDFD38AB1757CD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +716,8 @@ CD01:
 magnet:?xt=urn:btih:78E0EBA0B81C14B1798EAC1E9187D7DD28C69019
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ VA – Популярная радиодвадцатка 3 (2005) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:EADE26AB5535EE534E99C5FDF3A8EAC17E68729D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

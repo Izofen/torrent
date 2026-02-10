@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:4FCBB18C6FCD2FF68F54DE54BC4D9577AC32D9E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ NG. Суперсооружения Третьего рейха / Nazi Megastruct
 ```bash
 magnet:?xt=urn:btih:9F2E8AB89507241BD8D70C289E90D808244EE76D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ NG: Фото-ковчег / Photo Ark (2017) HDTVRip (3 серии из 3) [H.26
 magnet:?xt=urn:btih:052214CFC9A37A3DDEDB1EC975721CD722F961B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:052214CFC9A37A3DDEDB1EC975721CD722F961B3
 ```bash
 magnet:?xt=urn:btih:155CFD683F454CFDAF1C198875EDB3E220DCD381
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:155CFD683F454CFDAF1C198875EDB3E220DCD381
 magnet:?xt=urn:btih:BAF357BB06E8EAFD318F4E8E3F940EB859705C88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ NGW: Самые опасные животные. Безумные акулы / W
 ```bash
 magnet:?xt=urn:btih:E805F427FBE78BD300AD791B2FA2908108E3B9DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ NGW: Кровавые соперники: гиппопотамы против л
 magnet:?xt=urn:btih:CFA7A9C60FBE0E727F4ACA2EAA322DD0F453D41F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ NG: Самые страшные стихийные бедствия: Торна�
 ```bash
 magnet:?xt=urn:btih:C6E77D3E0998157B8B99CDB486F40304BEC7018A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ NG: 1989: Год, сотворивший современный мир / 1989: T
 magnet:?xt=urn:btih:F517F75DD817755313DC9DC514CA8E06EA62ED84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:F517F75DD817755313DC9DC514CA8E06EA62ED84
 ```bash
 magnet:?xt=urn:btih:DE851A08E9FB75266D8082107F46420DFD896B22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ NGW: Дикие маленькие кошки / Wild little cats (2017) HDTV [H.
 magnet:?xt=urn:btih:19CA276B45D58AE5DB0F1D8C377D551528D1E73E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ NGW: Супер-белки / Super Squirrel (2014) HDTV [H.264/1080i-LQ]
 ```bash
 magnet:?xt=urn:btih:729C435A98A3ADBD116A0681C297EB57597DCB8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ NGW: Город выдр / Otter town (2016) HDTV [H.264/1080i-LQ]
 magnet:?xt=urn:btih:5A78DC74AA39126585BFC22447F58CDC35F5F6A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ NGW: Переменчивые животные. Брачные игры / Moody 
 ```bash
 magnet:?xt=urn:btih:016DFC51E5BC7698F8E69D9CD0E94478EE6D14AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ NGW: Дикая природа Дальнего Востока / Wild Far East (
 magnet:?xt=urn:btih:816D9F408B166C757D52B5F857695D650AC7BB2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ NGW: Переменчивые животные. Подростковые кош�
 ```bash
 magnet:?xt=urn:btih:C241C83008D6AA6CE78110E43073DA0301A17175
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ NGW: Африканская суперзмея / Africa's super snake (2017) HDT
 magnet:?xt=urn:btih:5E07370D10CF0A11B307653C61AA44C128FA8171
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ NGW: Выживание в Серенгети / Surviving the Serengeti (2015) H
 ```bash
 magnet:?xt=urn:btih:B8340A15562CBC5B0747ADC2D1D441B73383A360
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ NG. Десятка лучших фотографий National Geographic / Nat G
 magnet:?xt=urn:btih:3190352084009F65B2EC2A5FA6D69C13325D489C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ NG: Мафия кобры / Cobra Mafia (2014) HDTV [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:CDCAC103D4E27624B914AB8E7C63C39828C4D0A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ NG. Вдоль Великой Китайской стены / Trekking The Great
 magnet:?xt=urn:btih:C0283BDAE028944A7F7184351C9C6EAEC028E822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ magnet:?xt=urn:btih:C0283BDAE028944A7F7184351C9C6EAEC028E822
 ```bash
 magnet:?xt=urn:btih:2006FD4FF9C912C200FB902143E1C68904CB7C67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ NGW: Власть царицы / Regime of the Queen (2018) HDTV [H.264/1080i-LQ
 magnet:?xt=urn:btih:5BC89040DB0F0DADC0FA4C5CB1CD5FEA7895443B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ NGW. Человек против пумы / Man vs. Puma (2018) HDTV [H.264/1080
 ```bash
 magnet:?xt=urn:btih:12444079820FCDB86F47C62E76529A6BD336E86E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ NGW: Переменчивые животные. Свирепые семьи / Mo
 magnet:?xt=urn:btih:6D2BA68C962D5B7A03550D6833AADEA5D041950E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ NGW: Смертельная игра. Великий побег / Deadly game. E
 ```bash
 magnet:?xt=urn:btih:1EE07A2A1B15AC53C05CF0C0F35FE0AF553F9F8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

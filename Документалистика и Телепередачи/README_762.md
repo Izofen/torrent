@@ -1,3 +1,29 @@
+###  Публикация: 1617196   (1035565) от 05.03.2023
+
+Дзига Вертов. Киноглаз (1924) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Кинолетопись Страны Советской
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм о новом государстве — СССР. Представляет собой сборник небольших эпизодов о жизни Советского Союза, объединенных в серию «Жизнь врасплох». Большое внимание уделено детям и их пионерской организации. Также показаны кооперативы того времени, слон, борьба с туберкулезом, скорая медицинская помощь, сумасшедший дом, занятия по физике для рабочих... (   Читать дальше...   )Производство: СССР, Культкино, ГоскиноЖанр: документальный, историяРежиссер: Дзига ВертовЯзык озвучки: немойСубтитры: Русские (интертитры)Продолжительность: 01:18:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8C52F561ABCF8A8A1052659E480AAC33F235B72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617205   (1035568) от 05.03.2023
 
 Царство крокодилов / Crocodile Kingdom (2020) HDTVRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:5B3029D1826B5156288C91D3B3537270AAFEE078
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:5B3029D1826B5156288C91D3B3537270AAFEE078
 ```bash
 magnet:?xt=urn:btih:C00EFED51328D4262A8ACF564BB13FD7FC3DFAE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:C00EFED51328D4262A8ACF564BB13FD7FC3DFAE2
 magnet:?xt=urn:btih:00503432D35FB3E4DCEBE60D48A644F1498250A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:00503432D35FB3E4DCEBE60D48A644F1498250A4
 ```bash
 magnet:?xt=urn:btih:307D08AEDC54C7274D216702EF7C779CBA0239B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:307D08AEDC54C7274D216702EF7C779CBA0239B1
 magnet:?xt=urn:btih:FC8A4C4284DA44151DE55484F835BFFF72440CD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:FC8A4C4284DA44151DE55484F835BFFF72440CD9
 ```bash
 magnet:?xt=urn:btih:8806E72630DF014149518124206F452B7636A460
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:8806E72630DF014149518124206F452B7636A460
 magnet:?xt=urn:btih:5DD3FAC3482BF1BDDF65D81D81AC1FAC9A6FA7B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:5DD3FAC3482BF1BDDF65D81D81AC1FAC9A6FA7B8
 ```bash
 magnet:?xt=urn:btih:C7C71F18D3C11FD578B7F753F29D4D87E942EA63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:C7C71F18D3C11FD578B7F753F29D4D87E942EA63
 magnet:?xt=urn:btih:553BE3F037B2A5BC363AC509A0C4B60510FA10B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:553BE3F037B2A5BC363AC509A0C4B60510FA10B0
 ```bash
 magnet:?xt=urn:btih:7F6550620007A5BF45AEEDAB0AEF270E027B5038
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:7F6550620007A5BF45AEEDAB0AEF270E027B5038
 magnet:?xt=urn:btih:28058CC01A6716D9FB9BE3CDD5F171003EA8D3A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:28058CC01A6716D9FB9BE3CDD5F171003EA8D3A9
 ```bash
 magnet:?xt=urn:btih:705DED68AF351D23360012AEFE07756D3DDE8D65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:705DED68AF351D23360012AEFE07756D3DDE8D65
 magnet:?xt=urn:btih:4A4DBF273CD413C1D22A2C1224CF29BA37422071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:4A4DBF273CD413C1D22A2C1224CF29BA37422071
 magnet:?xt=urn:btih:D2B5A9C749D29A6DA1450695EEEF2876245D105B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:D2B5A9C749D29A6DA1450695EEEF2876245D105B
 ```bash
 magnet:?xt=urn:btih:3B9BB05BABAC4439660185026A6800B3FF8FB0DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:3B9BB05BABAC4439660185026A6800B3FF8FB0DD
 magnet:?xt=urn:btih:C31731B6132D42B90815B85DEE75EC8D7BACF71F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:C31731B6132D42B90815B85DEE75EC8D7BACF71F
 ```bash
 magnet:?xt=urn:btih:710D107F5E4BA7401E6807E1134AE48899C82367
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:710D107F5E4BA7401E6807E1134AE48899C82367
 magnet:?xt=urn:btih:49BA254858D80012048E2C81724BD923D051D9D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:49BA254858D80012048E2C81724BD923D051D9D4
 magnet:?xt=urn:btih:CDDD88CB8B6008EB32D6546FDF39F6B4FC621A9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:CDDD88CB8B6008EB32D6546FDF39F6B4FC621A9C
 ```bash
 magnet:?xt=urn:btih:F1F82DE06821D3B0236B446B6F146ABD9C42F065
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:F1F82DE06821D3B0236B446B6F146ABD9C42F065
 magnet:?xt=urn:btih:334A5A6AB6BA223316A142A96F9DBF306CE54467
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:334A5A6AB6BA223316A142A96F9DBF306CE54467
 ```bash
 magnet:?xt=urn:btih:A286BCFA4337DB080673B07A7B887BC44BA4109F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:A286BCFA4337DB080673B07A7B887BC44BA4109F
 magnet:?xt=urn:btih:BAA3AE6F11613AD0EEB09959DCF6AA6A40803F55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:BAA3AE6F11613AD0EEB09959DCF6AA6A40803F55
 ```bash
 magnet:?xt=urn:btih:BB18D4C283A6BE3ADA975F0C65DD251C5A901EA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:BB18D4C283A6BE3ADA975F0C65DD251C5A901EA0
 magnet:?xt=urn:btih:42F3FA08A0BFCDCE60AE63C369E011BA3FEBCF3A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443052   (1035974) от 27.01.2021
-
-Иду на Неву (2018) WEB-DLRip [H.264]
-
->>Документалистика и Телепередачи
->>Авиация
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летом 1963 года в Северной столице могла произойти одна из страшнейших катастроф века. Пассажирский лайнер Ту-124 терпел крушение прямо над городом, но рискованные и героические действия пилотов спасли сотни жизней. Как лётчикам удалось совершить посадку? И почему впоследствии самолёты этой серии стали хитом советского авиастроения?Производство: Россия / Санкт-Петербургский филиал МТРК "Мир"Жанр: ДокументальныйРежиссер: Мария СмелковаЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5465AB77553D478E20DD7B6A62B7DC6F2A885F66
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ CyberCorp - топ-даун шутер, выполненный в сеттинг
 magnet:?xt=urn:btih:58D71A526598421F740FC521A93A1ACD605CDB35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Stone of Madness – тактическая стелс-игра в реал�
 ```bash
 magnet:?xt=urn:btih:603E8854244588CD7D374FA1ED96039D6ABEEC40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (56190/dlc) Repack Other s [Deluxe
 magnet:?xt=urn:btih:EF710840FFB2BBB1183077EF961D513E2DFE080E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Last Spell (2023) [Ru/Multi] (1.2.18.3.s.de/dlc) Repack FitGirl [Complete Th
 ```bash
 magnet:?xt=urn:btih:6BF314FF18C1B6E6C1FA97E9DEF4CC85D7103EF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (56180/dlc) Repack FitGirl [Deluxe
 magnet:?xt=urn:btih:EBF2058B52A2FAA9CC6BA774DE07F134E96A8ECA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Lords of the Fallen приглашает игроков в мрачный мир
 ```bash
 magnet:?xt=urn:btih:FEAA69C9C15941282DBA3E1967B11D566A1D4F02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Elder Scrolls IV: Oblivion Remastered представляет собой п
 magnet:?xt=urn:btih:CF81A29091D4C77BEFA637B7B29F1A6BD3EA757D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Elder Scrolls IV: Oblivion Remastered представляет собой п
 ```bash
 magnet:?xt=urn:btih:4D3FFA0D5F7F69D03E28471D0971B029350F6009
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Echoes of Yi : Samsara - это мрачная игра в жанре боевы
 magnet:?xt=urn:btih:0A010C7432D30D1C2A9439B9629DE925E3E46072
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.7.0) License GOG [Soundtrack Bundl
 ```bash
 magnet:?xt=urn:btih:B3F98798C17C6C32704E5A22CB7FE29843C86471
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 17120566) Repack Let'sРlay
 magnet:?xt=urn:btih:B28C27B11AA04E35AB3F400C7F73700873045073
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Fool's Apprentice - это симулятор магической школ�
 ```bash
 magnet:?xt=urn:btih:61BCA8F2E5824E79B9F5A15002D8D8CF049379AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Fool's Apprentice - это симулятор магической школ�
 magnet:?xt=urn:btih:8BF15AA56313D81AEEF45EDF6453E4F72DCC9689
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6758295/dlc) Repack FitGirl [Digi
 ```bash
 magnet:?xt=urn:btih:2B6969FF5A3703E5BADC64B443D981610946DFEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Crashlands 2 (2025) [Ru/Multi] (1.0.5) Repack FitGirl
 magnet:?xt=urn:btih:048E94C440EA9B0DCC6D9CAEDEDE49A311A670C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Echoes of Yi : Samsara - это мрачная игра в жанре боевы
 ```bash
 magnet:?xt=urn:btih:B0C458F581463460D1C0BB59EEA03913C7925A8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 magnet:?xt=urn:btih:2719DE838948F139EB29359EB99CD0419EE814CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 ```bash
 magnet:?xt=urn:btih:20F97DB63ADBD63605CC13D4EFFC0F337C421F20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 magnet:?xt=urn:btih:D100C0F2FA634B10AFA45F5CE4F6ED9DB155247E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Slime Heroes (2025) [Ru/Multi] (1.0.0.5) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:5C884055847D1E80095B4E9614C14D642A8A61C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Coridden (2025) [Ru/Multi] (1.2.3/dlc) Repack FitGirl [Deluxe Edition]
 magnet:?xt=urn:btih:7B1FA102009D81B9AE225D2DD82062187FA94A4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ ArkCraft: The Rebirth of the World / ArkCraft: Возрождение мира (
 ```bash
 magnet:?xt=urn:btih:48644AA0C069D02BD9876E4034E219EB6D9FDA3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (7.0.0.1/dlc) Repack dixen18
 magnet:?xt=urn:btih:3BD69771841AF13F5C81B38E9E12655ADD45C3B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.7.0) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:445F6ABD6170CDC106A860414C66F39F8A204054
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6758295/dlc) Repack seleZen [Digi
 magnet:?xt=urn:btih:CEA399C3DD166B93E4F7E5AE9D7F81217D35C1BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Sweep (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:936521D8F949AB4469D7B2F068395C3B1FB66C5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

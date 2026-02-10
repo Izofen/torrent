@@ -1,647 +1,688 @@
-###  Публикация: 1849405   (1053771) от 23.01.2026
+###  Публикация: 1850974   (1054883) от 
 
-В.Ф. Чудесенко | Сборник заданий по специальным курсам высшей математики (1983) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие написано в соответствии с действующей программой по курсу высшей математики. Оно содержит типовые расчеты по теории функций комплексного переменного, операционному исчислению, уравнениям математической физики, теории вероятностей и математической статистике. Задачи представлены 31 вариантом. Типовые расчеты содержат также теоретические вопросы, упражнения (   Читать дальше...   )Жанр: МатематикаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A7C44ED310EB4D806EA89D6AD14692AF3BB84E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849408   (1053772) от 23.01.2026
-
-Pam J. Crabtree, Peter I. Bogucki | Ancient Europe. 8000 B.C. to A.D. 1000. An Encyclopedia of the Barbarian World. 2 Volume set (2004) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053772.jpg" />
-</div>
-
-
-###  Подробнее
-
-This detailed encyclopedia is the first to explore the many peoples of early European civilization. Viewed as barbarian through the lens of ancient Greece and Rome, these civilizations were responsible for such accomplishments as the rise of farming in the Neolithic era and the building of Stonehenge. Coverage extends from prehistoric origins through the early Middle (   Читать дальше...   )Жанр: Энциклопедии, ИсторияЯзык: АнглийскийИздательство: Charles Scribner & SonsФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90597DB78F22D7275C9494673CB5FF1F3B9109B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849410   (1053773) от 23.01.2026
-
-Lucy Morrison, Staci L. Stone | A Mary Shelley Encyclopedia (2003) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Frankenstein is one of the most popular classroom texts in high school and college, and Shelley's other works are attracting renewed attention. This reference is a comprehensive guide to her life and career. Included are hundreds of alphabetically arranged entries about her works, friends, relatives, residences, fictional characters, allusions, and more.
-
-Mary Shelley (   Читать дальше...   )Жанр: Энциклопедии, БиблиографииЯзык: АнглийскийИздательство: GreenwoodФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F64029704CCCA1EAE8A88CACE281C5B40F56687F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849412   (1053775) от 23.01.2026
-
-William Schweiker, Maria Antonaccio, Elizabeth Bucar | Encyclopedia of Religious Ethics. 3 Volume Set (2022) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Encompassing three comprehensive volumes, the Encyclopedia of Religious Ethics introduces fundamental issues in moral inquiry, explores the world’s major moral traditions, and surveys specific moral issues across a wide range of human experiences. This landmark work defines the meaning, task, and various forms of religious ethics to guide readers through critical (   Читать дальше...   )Жанр: Энциклопедии, РелигияЯзык: АнглийскийИздательство: Wiley-BlackwellФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C88CE8B0D8C0193573551FFD23BF579AFD4DA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849414   (1053776) от 23.01.2026
-
-I. McNeil | An Encyclopedia of the History of Technology (2002) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dr Johnson wrote, ‘A man may turn over half a library to make one book’. In the present case around a score of writers have turned over about as many libraries to make this Encyclopaedia. The Book of Proverbs states, ‘God hath made man upright; but they have sought out many inventions’. Whatever one may think about Charles Darwin’s ‘Descent of Man’, it is a fact (   Читать дальше...   )Жанр: Энциклопедии, История, ТехнологииЯзык: АнглийскийИздательство: Taylor & Francis e-LibraryФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:756C5842B25BA20B1EF3F6ACDBC879D4BDAAF1DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849415   (1053777) от 23.01.2026
-
-Mathew Klickstein | The Little Encyclopedia of Jewish Culture/ 101 People, Places, Things (and Foods) Every Jew Should Know (2022) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Celebrate Jewish culture with this fun collection of facts and stories!
-
-Jewish traditions aren't just something they sing about in Fiddler on the Roof. Explore them all with this delightful book of essential Jewish foods, philosophers, pop culture, and more. It's sure to be way more satisfying than the typical encyclopedia—but probably not as exciting as finding (   Читать дальше...   )Жанр: Энциклопедии, Традиции народовЯзык: АнглийскийИздательство: CallistoФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023E9339C39F1EBCD5A28480C9050ECA8F69A217
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849364   (1053791) от 23.01.2026
-
-Jay H. Lehr, Jack Keeley | Alternative Energy and Shale Gas Encyclopedia (2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053791.jpg" />
-</div>
-
-
-###  Подробнее
-
-A comprehensive depository of all information relating to the scientific and technological aspects of Shale Gas and Alternative Energy.
-Conveniently arranged by energy type including Shale Gas, Wind, Geothermal, Solar, and Hydropower.
-Perfect first-stop reference for any scientist, engineer, or student looking for practical and applied energy information.
-Emphasizes (   Читать дальше...   )Жанр: Энциклопедии, ГидроэнергетикаЯзык: АнглийскийИздательство: John Wiley & SonsФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:812B47F2A176FB4CE2298F46FF19DD3211F9655F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849375   (1053792) от 23.01.2026
-
-BradyGames | Capcom 30th Anniversary Character Encyclopedia (2013) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Established in 1983, Capcom is one of the world's most well-known video game publishers and is recognized for creating many important game franchises, such as Mega Man™, Resident Evil™, and Street Fighter™.
-Full of facts, statistics, and historical information, the Capcom 30th Anniversary Character Encyclopedia will offer any fan of Capcom's illustrious library of (   Читать дальше...   )Жанр: Энциклопедии, ИгрыЯзык: АнглийскийИздательство: DKФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:502DC2AA051A9D903844AD98AF6B051B9E2A7DBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849376   (1053793) от 23.01.2026
-
-Lilia Fernández | 50 Events That Shaped Latino History. An Encyclopedia of the American Mosaic (2018) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Which historical events were key to shaping Latino culture? This book provides coverage of the 50 most pivotal developments over 500 years that have shaped the Latino experience, offering primary sources, biographies of notable figures, and suggested readings for inquiry.
-
-Latinos—people of European, Indigenous, and African descent—have had a presence in North America (   Читать дальше...   )Жанр: Энциклопедии, Латинская АмерикаЯзык: АнглийскийИздательство: GreenwoodФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB599AFF561F7C943C4CB303642E02E7550C24EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849420   (1053796) от 23.01.2026
-
-Philip M. Peek, Kwesi Yankah | African Folklore. An Encyclopedia (2004) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Written by an international team of experts, this is the first work of its kind to offer comprehensive coverage of folklore throughout the African continent. Over 300 entries provide in-depth examinations of individual African countries, ethnic groups, religious practices, artistic genres, and numerous other concepts related to folklore. Featuring original field (   Читать дальше...   )Жанр: Энциклопедии, История, Мифология, ФольклорЯзык: АнглийскийИздательство: RoutledgeФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54696353725CDC91CD8F8EABB496483FF29D8037
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849421   (1053797) от 23.01.2026
-
-Manju Jaidka, Tej N. Dhar | The Routledge Encyclopedia of Indian Writing in English (2023) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Today, Indian writing in English is a fi eld of study that cannot be overlooked. Whereas at the turn of the 20th century, writers from India who chose to write in English were either unheeded or underrated, with time the literary world has been forced to recognize and accept their contribution to the corpus of world literatures in English. Showcasing the burgeoning (   Читать дальше...   )Жанр: Энциклопедии, История, ЛитературоведениеЯзык: АнглийскийИздательство: RoutledgeФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:586A088F63D1EFC186DC1DEE9312B1F9726BDABE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849422   (1053798) от 23.01.2026
-
-Anthony C. Thiselton | A Concise Encyclopedia of the Philosophy of Religion (2002) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Covering thinkers from Plato to Freud, offering detailed explanations of key themes such as evil, and outlining clear definitions of complex ideas like‘the doctrine of analogy,’ this is a comprehensive reference tool for all those studying, or interested in, the philosophy of religion.Жанр: Энциклопедии, РелигииЯзык: АнглийскийИздательство: Oneworld PublicationsФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3CFF0340FE8C112F9C08492877F5683AAB67FFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849425   (1053799) от 23.01.2026
-
-Marek Golebiowski | An Encyclopedia of American Culture (2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053799.jpg" />
-</div>
-
-
-###  Подробнее
-
-This encyclopedia aims to provide a ready reference to various aspects of American culture. The time frame is from the colonial period to the end of the 20th century. The areas covered are fine arts (painting, sculpture, photography); performing arts (music, ballet, theatre, film); architecture; literature; and various non-artistic forms of culture (symbolic, material, (   Читать дальше...   )Жанр: Энциклопедии, Культура, АмерикаЯзык: АнглийскийИздательство: Peter Lang GmbH, Internationaler Verlag der WissenschaftenФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65F23D21E0C0921CBE1623CF5E0C151D61390056
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849418   (1053831) от 23.01.2026
-
-Игорь Семенов | О этих паразитах надо знать! (2025) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущие паразитологи мира утверждают, что каждый человек в течении жизни может быть заражен паразитами! Это ценное пособие станет надежным помощником каждому, кто хочет защитить себя и свою семью от неприятных последствий контакта с паразитами. В произведении описаны самые эффективные природные растения, которые выводят паразитов! Эта книга необходима каждому современному (   Читать дальше...   )Жанр: Здоровье и медицинаИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA560A6E2FEBA1B4E85C55DC5641CF226448CEC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849438   (1053832) от 23.01.2026
-
-Анна Большакова, Анна Чичина | Секреты здоровья кожи. Советы профессионала о том, как предотвратить обострения хронических заболеваний и построить уход, который избавит кожу от воспалений (2025) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кожа часто зудит и появляются покраснения? Не можете избавиться от сыпи и угрей даже с помощью дорогих кремов? Сколько раз вы покупали крем «наугад», надеясь, что он подойдёт именно вам? Шелушения не исчезают, несмотря на тщательный уход?
-
-Ваша кожа не «капризная» и не «привередливая», на самом деле ей просто необходим грамотный подход. В этой книге практикующий (   Читать дальше...   )Жанр: Здоровье и медицинаИздательство: ЭксмоФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76045B9AD91B32687F7378F50B23B4A05837CA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849441   (1053833) от 23.01.2026
-
-Н.В. Чубарь | Пропаганда здорового образа жизни (2025) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное учебное пособие подготовлено в соответствии с требованиями профессиональных стандартов для специалистов со средним медицинским образованием.
-
-Целью данного пособия является повышение уровня знаний слушателей по вопросам пропаганды здорового образа жизни.
-(   Читать дальше...   )Жанр: Учебно-методические пособияИздательство: МиниТайпФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C68B1566F55E84EE6AF6A931818E9667FEF8DE44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849984   (1053936) от 
-
-Ю.А. Жук | Патроны. Иллюстрированная энциклопедия (2023) [DJVU, PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта богато иллюстрированная энциклопедия, написанная известным оружиеведом, экспертом-криминалистом Ю.А. Жуком, - первое в России фундаментальное издание о боеприпасах к ручному огнестрельному оружию, рассчитанное не только на военнослужащих, сотрудников правоохранительных органов, военных историков, коллекционеров, но и на обычных читателей, интересующихся развитием (   Читать дальше...   )Жанр: энциклопедияИздательство: Яуза-прессФормат: DJVU, PDFКачество: Обработанный скан, OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CFF11DF93C60A2EA9C3D052C6621F0DD094B531
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850073   (1053999) от 
-
-А.В. Погорелов | Аналитическая геометрия (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классический учебник по аналитической геометрии выдающегося ученого-математика с мировым именем А.В. Погорелова выдержал уже много изданий. За прошедший период книга совсем не устарела и остается лучшим и основным учебником. В предлагаемом курсе лекций излагаются основы метода аналитической геометрии в применении к простейшим геометрическим объектам. Учебник отличается (   Читать дальше...   )Жанр: МатематикаИздательство: Регулярная и хаотическая динамикаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D42CABC9CD9942C9E488BF4D789424CFE66A70A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850025   (1054041) от 
-
-Aleksandr Ovsianikov, James Yoo, Vladimir Mironov | 3D Printing and Biofabrication (Reference Series in Biomedical Engineering) (2018) [PDF, EPUB] [EN]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054041.jpg" />
-</div>
-
-
-###  Подробнее
-
-This volume provides an in-depth introduction to 3D printing and biofabrication and covers the recent advances in additive manufacturing for tissue engineering. The book is divided into two parts, the first part on 3D printing discusses conventional approaches in additive manufacturing aimed at fabrication of structures, which are seeded with cells in a subsequent (   Читать дальше...   )Жанр: Биоинженерия, 3D-печать и биопроизводствоЯзык: АнглийскийИздательство: SpringerФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23B43C263470586FC0EA98EAAD782C6AE4E9101F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850018   (1054044) от 
-
-Dietrich Orlow | A History of Modern Germany. 1871 to Present. 9th Edition (2025) [EPUB] [EN]
+Евгений Торчинов | Философия китайского буддизма (2023) [PDF, FB2, EPUB, RTF]
 
 >>Научная и техническая литература
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054044.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054883.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Now in its ninth edition, A History of Modern Germany provides the most up-to-date and comprehensive survey of this complex country’s history, beginning in 1871 and ending in the present day.
-
-Orlow tells the story of Germany’s troubled past―Prusso-German authoritarianism, the Nazi dictatorship, and the Holocaust―whilst also uncovering the long-standing (   Читать дальше...   )Жанр: История, ГерманияЯзык: АнглийскийИздательство: RoutledgeФормат: EPUBКачество: Изначально электронное (ebook)
+Книга, подготовленная известным китаеведом и буддологом Е. А. Торчиновым, содержит три основополагающих текста, относящихся к VI–IX векам, без которых невозможно адекватное понимание всей дальневосточной буддийской традиции. В нее вошли важнейшие философские трактаты: «Трактат о пробуждении веры в Махаяну», трактат Цзун-ми «О началах человека» и трактат пятого чаньского (   Читать дальше...   )Жанр: Восточная философия, ИсторияИздательство: Азбука-АттикусФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:915B1B880AADB96E80BA6EFACB33DA4E4123AA57
+magnet:?xt=urn:btih:6DFAFA6818C350D89E55BDA60EC4D2058BC51C99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849396   (1054080) от 
+###  Публикация: 1850978   (1054884) от 
 
-Технические нормы и правила (обновления) [01.01.2026] (2026) [HTML]
+Лао-Цзы | Книга о Пути Жизни. Дао-Дэ цзин (2018) [PDF, FB2, EPUB, RTF]
 
 >>Научная и техническая литература
->>Техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054080.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054884.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обновления электронной базы документов "Технические нормы и правила" (01.01.2026)
-
-Данная сборка представляет собой структурированный архив нормативных и правовых документов, предназначенный для удобного офлайн-доступа, хранения и поиска информации.
-Для использования нужно открыть файл cat.html в директории prod.Жанр: Нормативные документыФормат: HTMLКачество: Изначально электронное (ebook)
+«Книга о пути жизни» Лао-цзы, называемая по-китайски «Дао-Дэ цзин», занимает после Библии второе место в мире по числу иностранных переводов. Происхождение этой книги и личность ее автора окутаны множеством легенд, о которых известный переводчик Владимир Малявин подробно рассказывает в своем предисловии. Само слово «дао» означает путь, и притом одновременно путь (   Читать дальше...   )Жанр: Восточная философия, ИсторияИздательство: АСТФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D1CF40D83BBB50E500F895E4C1396ED76B273A2
+magnet:?xt=urn:btih:89C4860249EA2A54D5145D76E176962E694755DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850268   (1054143) от 
+###  Публикация: 1850979   (1054885) от 
 
-Andreas Meister | Numerical Methods for Linear Systems of Equations. An Introduction to Modern Methods With MATLAB® Implementations by C. Vomel (2026) [PDF] [EN]
+Херли Крил | Философская мысль Китая. От Конфуция до Мао Цзэдуна (2017) [PDF, FB2, EPUB, RTF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хёрли Крил - выдающийся американский синолог, автор научных трудов, посвященных истории, государственному устройству, философским и религиозным течениям Китая. В настоящей книге, предназначенной для широкой читательской аудитории, ученый рассматривает главные этапы формирования философской системы Поднебесной со времен династии Шан (ХV-ХIII вв. до н. э.) до провозглашения (   Читать дальше...   )Жанр: Восточная философия, ИсторияИздательство: ЦентрполиграфФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1AF79F4CB56B70AE8B57121884B4670D4A1F5F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850980   (1054886) от 
+
+Е. Торчинов, Ю. Щуцкий | Ицзин. Книга Перемен (2023) [PDF, FB2, EPUB, RTF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054886.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ицзин» («Книга Перемен») – одна из древнейших книг китайской цивилизации и, пожалуй, одна из самых знаменитых. В основе ее лежат 64 гексаграммы, особые символы, призванные очертить определенные жизненные ситуации и раскрыть вопрошающему их дальнейшее развитие. Однако значение и смысл «Книги Перемен» выходят далеко за рамки «предсказателя судьбы». Своей мудростью (   Читать дальше...   )Жанр: Восточная философия, ИсторияПеревод: Е. Торчинов, Ю. ЩуцкийИздательство: Азбука-АттикусФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6512CD895EB59E70E63FE2BAF129830F985B9FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850982   (1054887) от 
+
+Татьяна Ермакова, Елена Островская, Валерий Рудой | Классическая буддийская философия (2021) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учение Будды Шакьямуни о вступлении в Нирвану, его теоретическая интерпретация в текстах постканонической традиции считаются среди большинства специалистов предметом слишком сложным и в силу этого едва ли способным увлечь читающую публику. Но выходящие на эту тему книги неизменно привлекают широкое внимание. Работа, написанная ведущими буддологами России, посвящена (   Читать дальше...   )Жанр: Восточная философия, ИсторияИздательство: Академический ПроектФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:935BB81E3D7FD4D2787257B607BB2DFA0E876037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850984   (1054888) от 
+
+Александр Пятигорский | Буддийская философия мысли (2020) [PDF, FB2, EPUB, RTF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Моисеевич Пятигорский (1929–2009) – выдающийся мыслитель, востоковед, писатель, автор философских и буддологических монографий, романов, а также многочисленных философских работ и эссе. Эта книга была написана Александром Пятигорским на английском языке («The Buddhist Philosophy of Thought», 1984) и, таким образом, впервые публикуется на русском языке. (   Читать дальше...   )Жанр: Восточная философия, ИсторияИздательство: КоЛибриФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC1067F919AE2676886B0E7175C30EE8AD795C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850985   (1054889) от 
+
+А.А. Матвеева, М.А. Беляева | Пусть соперничают сто школ. О философах древности и первых царствах на территории Китая (2022) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каким был Древний Китай до того, как стать единой Империей?
+Периоды Чуньцю и Чжаньго были неспокойным временем для Поднебесной – многочисленные царства десятилетиями вели кровопролитные воины за гегемонию на Великой китайской равнине. Тем не менее, в историю эта эпоха вошла не как век военных, а как век философов.
+Это было время Конфуция, Лао-цзы, Мэн-цзы и множества (   Читать дальше...   )Жанр: Восточная философия, ИсторияИздательство: ШансФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00CABAFA2418E186757DBAF1D6588BEE6BFFED2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850987   (1054890) от 
+
+Генрих Жомини | Наполеон как полководец. Опыт военного искусства (2025) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Генрих Жомини (1779 — 1869) — бригадный генерал на французской службе, генерал от инфантерии на русской службе, — один из крупнейших военных теоретиков ХIХ века (наряду с Клаузевицем).
+Принципы ведения войны Генрих Жомини вывел из рассмотрения походов Наполеона, которому посвятил отдельную книгу. Кроме того, Жомини является автором ряда работ по военному искусству, (   Читать дальше...   )Жанр: ИсторияИздательство: РодинаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78349B496A82C2D2B8244738093DD802B4E819A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850992   (1054891) от 
+
+А.Н. Лобин | Пушки первых Романовых. Русская артиллерия 1619–1676 гг (2022) [PDF, FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054891.jpg" />
+</div>
+
+
+###  Подробнее
+
+От автора бестселлеров «Артиллерия Ивана Грозного» и «Пушки Смуты»!
+«Русская артиллерия, которая весьма хороша и эффективна, состоит не только из обычных, принятых у нас различных типов картовертов, полевых и полковых пушек, шлангов, мортир и пр. Кроме того, они имеют свои пушки и мортиры и другие маленькие изобретения…» – так в 1674 г. о военной мощи Русского государства (   Читать дальше...   )Жанр: История, ЭнциклопедииИздательство: ЭксмоФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD0246B236AACFE0FA18BB397EFB86069C32704A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851000   (1054892) от 
+
+А.Е. Писарев | Московские стрельцы. Второй половины XVII – начала XVIII века. Из самопалов стрелять ловки (2021) [PDF, FB2, EPUB]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054892.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Из самопалов стрелять ловки» – так формулировалось одно из профессиональных требований к боеспособности московских стрельцов, включавшее в себя умение быстро и метко вести огонь. Несмотря на это, стрельцы от дореволюционных и советских историков надолго получили ярлык «отсталых», «утративших боеспособность» войск. «Отсталость» определялась принадлежностью стрелецкого (   Читать дальше...   )Жанр: История, ЭнциклопедииИздательство: ЭксмоФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E250562C5927B7BA8F9C7F39BD9A5AB0CF6EE49A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851001   (1054893) от 
+
+А.Н. Лобин | Артиллерия Петра Великого. В начале славных дел (2023) [PDF, FB2, EPUB]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известного историка, кандидата исторических наук А.Н. Лобина завершает серию исследований по истории русской артиллерии XIV—XVII вв., охватывая период 1676—1702 гг.: от царствования Федора Алексеевича до кардинальных Петровских реформ в области военного дела после поражения под Нарвой в ходе Северной войны. Обнаруженные автором новые архивные данные Пушкарского (   Читать дальше...   )Жанр: Энциклопедии, ИсторияИздательство: ЭксмоФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E56D532A3F958BD403EC3A8DE4EB4A288DCD6D22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851002   (1054894) от 
+
+А.Н. Лобин | Пушки Смуты. Русская артиллерия 1584–1618 (2021) [PDF, FB2, EPUB]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054894.jpg" />
+</div>
+
+
+###  Подробнее
+
+После Ливонской войны в Российском государстве начался стремительный рост производства артиллерии. В царствование Федора Ивановича, помимо легендарной «Царь-пушки», было отлито большое количество именных пищалей: «Скоропея», «Троил», «Аспид», «Свиток», «Лев», «Медведь» и других настоящих шедевров русского оружейного искусства. «Трудно вообразить, какое бесчисленное (   Читать дальше...   )Жанр: Энциклопедии, ИсторияИздательство: ЭксмоФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84D5DFECF8EBDD3C45C62D02472B30822E311750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851257   (1055024) от 
+
+В.К. Варлих | Полная иллюстрированная энциклопедия лекарственных растений России (2008) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это уникальное классическое издание, написанное знаменитым петербургским профессором Вольдемаром Варлихом, представляет собой наиболее полный иллюстрированный реестр русских лекарственных растений с указанием мест распространения, лечебного применения и целительных свойств. Книга является лучшим на сегодняшний день пособием для врачей, фармацевтов и всех, кто всерьез (   Читать дальше...   )Жанр: ЭнциклопедииИздательство: РИПОЛ классикФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA99E708371072B1013506B0C6D3B06EA9F6869A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851256   (1055038) от 
+
+Д.З. Гордевский, А.С. Лейбин | Популярное введение в многомерную геометрию (1964) [DJVU]
 
 >>Научная и техническая литература
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054143.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055038.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The aim of this book is to provide a comprehensive introduction to solving large systems of equations.
-
-In addition to direct algorithms, it presents a wide range of classical and modern solvers – from splitting methods and multigrid techniques to current Krylov subspace methods (CG, GMRES, BiCGSTAB, etc.). These methods are discussed both mathematically and in terms (   Читать дальше...   )Жанр: МатематикаЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+Геометрия многомерного пространства уже давно стала рабочим аппаратом в физике, механике и в самой математике. В последнее время она с успехом применяется в других науках, например, в химии. Несмотря на это, наша популярная математическая литература весьма бедна сведениями по многомерной геометрии. В предлагаемой книге делается попытка в известной мере восполнить (   Читать дальше...   )Жанр: МатематикаИздательство: Издательство Харьковского Государственного УниверситетаФормат: DJVUКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:77BAE95C5FF96D54AB419C91DC5E104D5ACABDB2
+magnet:?xt=urn:btih:E58F0C9303E096360945A28E2B1D2656886603A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850265   (1054144) от 
+###  Публикация: 1851255   (1055039) от 
 
-Alberto Debernardi Pinos, Elijah Liflyand, Sergey Tikhonov и др. | Single and Multiple Number Series (2026) [PDF] [EN]
+The Diagram Group | Musical Instruments of the World. An Illustrated Encyclopedia with more than 4000 original drawings (1976) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055039.jpg" />
+</div>
+
+
+###  Подробнее
+
+"One of the nicest things.is that you don't have to be a musician to love it. It's a browser's delight."--The New York Times
+
+It's the best-looking musical encyclopedia ever! Using a completely visual approach, this ultimate reference has over 4,000 drawings showcasing the evolution of instruments--and music--from primitive whistles to electric guitars (   Читать дальше...   )Жанр: Энциклопедии, МузыкаЯзык: АнглийскийИздательство: Facts On File PublicationsФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67405E7E7BCEF08D7B69EA16295B2CB45FE4CC5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851254   (1055040) от 
+
+Г.С.М. Кокстер | Введение в геометрию (1966) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055040.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Введение в геометрию» представляет собой популярное изложение основ почти всех разделов геометрии.
+Кинга состоит из четырех частей, отражающих содержание основных курсов, читающихся в наших педагогических институтах: элементарной геометрии; аналитической геометрии; так называемой высшей геометрии, включающей в себя элементы оснований геометрии, аффинной, проективной (   Читать дальше...   )Жанр: МатематикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62DC32285BC86769F462144211F5ED74733FF3CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851253   (1055041) от 
+
+М. Куценко | Насекомые. Иллюстрированная энциклопедия начинающего энтомолога (2021) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055041.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой подробной иллюстрированной энциклопедии описаны более 240 видов насекомых, обитающих на территории России: их классификация и систематика, анатомия, физиология, ареал обитания и жизненный цикл. Подробнейшие характеристики каждого вида и великолепные иллюстрации помогут не только научиться отличать один вид от другого, но и узнать все о жизни этих удивительных (   Читать дальше...   )Жанр: ЭнциклопедииИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07757332133A7ECBA33D2A5D3224BC83656DFEC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851251   (1055042) от 
+
+А. Яскевич (сост.) | Большая иллюстрированная энциклопедия. Искусство Японии (2024) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Энциклопедия включает более 800 статей, расположенных в алфавитном порядке. Они рассказывают о различных школах, направлениях, техниках, стилях, жанрах и видах японского искусства. Книга прекрасно иллюстрирована; в ней несколько сотен цветных фотографий и репродукций, что делает ее поистине уникальным изданием такого рода. Энциклопедия адресована всем, кто интересуется (   Читать дальше...   )Жанр: ЭнциклопедииИздательство: СЗКЭОФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F07040264E14728B8F1DAD2BD4CB732836CA9692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851250   (1055043) от 
+
+И.В. Мельников, С.А. Сидоров | Рыбалка. Иллюстрированная энциклопедия (2010) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рыбалка – отличный вид отдыха и поэтому достаточно распространенное занятие для многих. Но результат, как правило, определяется массой объективных факторов, из которых не последнее место занимают умение и опыт рыболова.
+
+В настоящем издании представлена информация, которая поможет добиться успеха как начинающему рыболову, так и уже имеющему опыт. Это – и характеристики (   Читать дальше...   )Жанр: ЭнциклопедииИздательство: ХарвестФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:957C989367BCD532F1E5BFE445266A73074AAD02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851249   (1055044) от 
+
+Альфред Брем | Жизнь животных. Большая иллюстрированная энциклопедия (2022) [PDF, FB2, EPUB, RTF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055044.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом издании легендарных трудов Альфреда Брема собраны самые популярные виды млекопитающих, птиц, рыб, пресмыкающихся, земноводных, членистоногих и моллюскообразных. Вы откроете для себя неизведанный мир фауны, найдете множество интересных фактов и историй из жизни представителей животного мира со всех уголков нашей планеты. Популярные классы животных разбиты по (   Читать дальше...   )Жанр: Энциклопедии, ЖивотныеИздательство: ЭксмоФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD89EB8791B7CBA149BAE165A79E7D1189BE0992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851248   (1055045) от 
+
+Лидия  Клёс | Узоры для вязания на спицах. Большая иллюстрированная энциклопедия (2019) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая большая энциклопедия по вязанию на спицах от самого авторитетного немецкого издательства ТОРР! На этот раз вы найдете в книге обширную и удивительно разнообразную коллекцию из 500 узоров для вязания на спицах всех видов. Классические, современные, инновационные. Каждый узор снабжен детальным описанием и понятной четкой схемой.
+
+Ажурные и плотные, фактуры и (   Читать дальше...   )Жанр: ЭнциклопедииИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8198474A5A81284C9F352EF305D71C8ABAF94153
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851240   (1055046) от 
+
+П.К. Рашевский | Курс дифференциальной геометрии (1938) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс дифференциальной геометрии» П.К. Рашевского, выпущенный в 1938 году издательством ГОНТИ НКТП СССР и является классическим учебником для вузов. Книга охватывает теорию кривых (плоских и пространственных) и поверхностей, и была написана автором в период активного преподавания на мехмате МГУ.Жанр: МатематикаИздательство: ГОНТИ НКТП СССРФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF8FF90ADC6D06D479EDC89FE79D5C7F88A7D8BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851242   (1055047) от 
+
+П.К. Рашевский | Курс дифференциальной геометрии (1956) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит кривые на плоскости, дифференциальные и векторные функции, линейчатые и развёртывающиеся поверхности, внутренняя геометрия поверхности.Жанр: МатематикаИздательство: Государственное издательство технико-теоретической литературыФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB6403B648ADA227D03273AB57C44D65C3825E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851239   (1055048) от 
+
+В.Н. Шунков, В.В. Ликсо, А.Н. виноградов | Охота. Иллюстрированная энциклопедия (2015) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еще с древнейших времен человек занимался охотой с целью прокормить себя. Сегодня охота – это еще и разумный отдых, который сплачивает человека с природой. Настоящее издание по праву можно назвать энциклопедией охотничьего дела. На ее страницах рассказывается о правилах охоты на некоторых животных и птиц, о том, как правильно организовать и провести коллективную (   Читать дальше...   )Жанр: Энциклопедии, ОхотаИздательство: ХарвестФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F44CF801E391079F1353CD07A33A412801049486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851238   (1055049) от 
+
+Александр Дашьян, Андрей Чаплыгин | Вторая мировая война на море. Полная иллюстрированная энциклопедия (2019) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая мировая война охватила не только сушу. С самого начала войны боевые действия развернулись и на море.
+Уже 14 октября 1939 г. немецкая подводная лодка смогла прямо в базе потопить английский линкор «Ройял Оук», а 13 лекабря 1939 г. у берегов. Аргентины развернулось одно из первых морских сражений Второй мировой войны, в результате которого был потоплен немецкий (   Читать дальше...   )Жанр: Энциклопедии, ИсторияИздательство: Яуза, ЭксмоФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31894B26F69C6664CF47C535F5408E798645A553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851237   (1055050) от 
+
+В.И. Глебов, С.Я. Криволапов | Практикум по математической статистике. Проверка гипотез с использованием Excel, MatCalc, R и Python (2019) [PDF]
 
 >>Научная и техническая литература
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054144.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055050.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Addressing a significant gap in the study of number series, this book presents an in-depth theory of multiple number series and an exhaustive examination of one-dimensional series. It incorporates overlooked yet essential results alongside recent research advancements. Much of the text is based on the authors' original contributions, particularly in the development (   Читать дальше...   )Жанр: МатематикаЯзык: АнглийскийИздательство: Cambridge University PressФормат: PDFКачество: Обработанный скан
+В пособии приведено около 100 задач, посвященных проверке статистических гипотез. Представлены темы: 1) общие свойства (статистика критерия, мощность критерия, Р-значение); 2) критерии случайности, независимости, однородности; 3) критерии согласия (простые гипотезы); 4) критерии согласия (сложные гипотезы); 5) параметрические гипотезы.
+Разобраны примеры решения задач (   Читать дальше...   )Жанр: Компьютерная литература, МатематикаИздательство: ПрометейФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B485114794B9F1A9C9FFCFACF6FF876F5D3062FA
+magnet:?xt=urn:btih:2B710ED35D4380AB1174BA9D4799781C9509DFF7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850264   (1054145) от 
-
-Musarrat Husain Warsi , Rishabha Malviya | Biopolymers. Green and Sustainable Approaches for Drug Delivery, Food Products and Packaging (Materials Horizons. From Nature to Nanomaterials) (2026) [PD ...
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054145.jpg" />
-</div>
-
-
-###  Подробнее
-
-This book presents an in-depth exploration of biopolymers in biomedical engineering, spanning 15 chapters. Each chapter delves into different aspects of biopolymers, including their origins, development, potential, and sustainable sources, as well as advanced eco-friendly production methods. The text covers a wide range of applications, from advanced drug delivery (   Читать дальше...   )Жанр: БиополимерыЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E4639AE809A8AA36D6A2CD3F1F31BC261564A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850247   (1054162) от 
-
-Джон Ронсон | Самовлюбленные, бессовестные и неутомимые. Захватывающие путешествия в мир психопатов (2022) [PDF, EPUB]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уэльский журналист Джон Ронсон берется за расследование мистификации, связавшей ведущих ученых по всему миру, и это решение становится отправной точкой для путешествия в мир безумия.
-
-Пытаясь понять, на чьей стороне истина, журналист реконструирует историю изучения психопатов. Он встречается с саентологами, убежденными в безнравственности психиатров и занимающимися (   Читать дальше...   )Жанр: ПсихиатрияИздательство: ЭксмоФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D2C7B45DA795264C7C2286434DA52ED6B6DF247
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850214   (1054242) от 
-
-Руслан Назаров | Как выучить много иностранных языков? Диалектический подход (2025) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054242.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге схема изучения для пяти языков: английский, немецкий, итальянский, французский, испанский. Отдельно — русский, если его изучает иностранец. Основа метода: научиться понимать предложение, как оно формируется, из чего состоит. Суть метода: мы усваиваем то, из чего развивается, «произрастает» язык. Элементарная «единица» предложения — это не слово, буква, а (   Читать дальше...   )Жанр: Языкознание, обучениеИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A28410379CB1A2B78C4AC9B02ADD705211C482A8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

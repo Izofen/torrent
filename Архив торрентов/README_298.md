@@ -19,6 +19,8 @@ CorelDRAW Graphics Suite 2024 25.0.0.230 (x64) Portable by conservator [Ru/En]
 magnet:?xt=urn:btih:B13C38D43755A124F11644D72ED8C656759F241A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ VMware Workstation Pro™ позволяет техническим специа
 ```bash
 magnet:?xt=urn:btih:B5EA9CCEB5AFF23671FDCEF904F101CA791B5CB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Windows 10 PRO AIO 20H1 / 20H2 / 21H1 / 21H2 /22H2 by Ghost Spectre 1904X.4046 x
 magnet:?xt=urn:btih:65529AB51C9FC60B8A05FF72A426708D8FEA25BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Hard Disk Sentinel Pro — отличная программа для монит
 magnet:?xt=urn:btih:6A3C0FBA62F555D468C82A804B3F8EC263D8C380
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Adobe Illustrator for Mac 2024 v.28.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8D987A5F2FB949B9787DF2BFAF5E4CA8AB9D9EB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ HiBit Uninstaller - идеальное решение для удаления п
 magnet:?xt=urn:btih:526082E2E37F8D762C71DF3C8D27F553DCB71282
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:EBEDC081824A2F77E0976DC8FC7E8F32A31C3F64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Music Collection - неплохая программа для создания �
 ```bash
 magnet:?xt=urn:btih:FCAB9CCE8495BD0C1CA0099D9B768C95864735F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:0CF3DFCA5E941977AA27886004552A4D6776AAF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ Supermium форк Chromium для Windows - современный браузе
 magnet:?xt=urn:btih:2B2F259D6CA1533959AEA381EFC75453676B4F49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ MediaHuman YouTube Downloader 3.9.9.89 (0309) RePack (& Portable) by elchupacabr
 ```bash
 magnet:?xt=urn:btih:BBE24A43CCE0241BCDBB623A16D1DF942DCD71FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:BF88D19623BF24C7F1D0AEF2E11AD2B15A55115A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ TrustViewer - это комплексное решение для удаленн
 magnet:?xt=urn:btih:7D21F9DF05903FD5CB544AEB6414A468E4690EA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Defender Remover Portable 12.7.2 [En]
 ```bash
 magnet:?xt=urn:btih:A0A85B94FD32D3613117C7F685C795283B96AAB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ updated_feb_2024_x64_dvd_9665512b.iso.
 magnet:?xt=urn:btih:9339F44189F279FE8E47C95E4C547A79FEB21D10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ MobaXterm - это комплекс утилит, в котором есть в�
 ```bash
 magnet:?xt=urn:btih:ADC26D0C8F6028228993C0F4825DE017D3463D72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:ADC26D0C8F6028228993C0F4825DE017D3463D72
 magnet:?xt=urn:btih:BF423BCA5B57A0DC97A85A0EDF7A620DB0B2575A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ CyberLink PowerDVD - один из самых мощных на данный м�
 ```bash
 magnet:?xt=urn:btih:FA188C843980410F9A3D0E280CB6A5FB8D0A9BD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ updated_feb_2024_x64_dvd_9665512b.iso.
 magnet:?xt=urn:btih:D888E27B3F75B20E30CD02DF47F701ED3393A746
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ FileMenu Tools настраивает пункты контекстного ме
 ```bash
 magnet:?xt=urn:btih:B5FEDE8AB71930670271E4E17A4959FEDD97A2AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +555,8 @@ FileMenu Tools настраивает пункты контекстного ме
 magnet:?xt=urn:btih:9AC8C8A7101168F1AD1B930634F63D6AA268A0CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ Textra SMS v4.71 Pro Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:03EF7ED12A69C0F4B5BCEC2649E64194C93D2018
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ TuneIn объединяет спортивные события, музыку, �
 magnet:?xt=urn:btih:A3635FC94A91D4E2F6AB95C463E6F86EE3843BF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ FinePrint - многофункциональный драйвер для при�
 ```bash
 magnet:?xt=urn:btih:E8845717882CEBEE9645D63AFA7BEAF59BBF1A51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +661,8 @@ Reface v4.6.1 Mod by Mixroot [Multi]
 magnet:?xt=urn:btih:5C79BB0909B4BEDC158CC55D9095B1A3EAAACB86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ Duplicate File Finder Pro 2401 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5667B2917EA81FAE1C89A97982C151A48C0C3F67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

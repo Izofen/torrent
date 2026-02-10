@@ -1,27 +1,3 @@
-###  Публикация: 1313727   (522706) от 10.07.2019
-
-Dungeon Of Dragon Knight (2019) [Ru/Multi] (1.0001/dlc) License HOODLUM
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522706.jpg" />
-</div>
-
-
-###  Подробнее
-
-На ваш родной город напали орки и вы находите себе компанию из троих таких же героев. Вы прячетесь в неизвестном лесу. Вдруг перед вами появляется колдунья, показывает дом неподалеку и утверждает, будто может дать вам еду, воду и кров. Однако, когда вы оказываетесь внутри, она исчезает. Перед входом вы замечаете, что на самом деле это пещера. Затем вы узнаете, что (   Читать дальше...   )Тип издания: LicenseРазработчик: HexGameStudioЖанр: Adventure, RPG, Strategy, 3DЯзык озвучки: Английский, КитайскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:260B0626BCBA692ABE303E6DC4D5B8CAAD4C42BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1313720   (522713) от 10.07.2019
 
 Monsters of Little Haven (2019) [Ru/En] (1.0) Repack Other s
@@ -42,6 +18,8 @@ Monsters of Little Haven (2019) [Ru/En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:5B47CD6135F00781BFDABBD12A64F434E8AFCA96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Pike and Shot Campaigns 1494-1698 - ожидаемое расширение дл
 magnet:?xt=urn:btih:554EF53BE2E36E47E5B61A6E5821463A0953D051
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Fairy Fencer F (2015) [En] (1.0/dlc/u2) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:5C01767C9F8D372774189BB0B87342865CA3B2C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Royal Bounty HD - приятный подарок для поклонников 
 magnet:?xt=urn:btih:276930BC8B5012383B219317BB5D5FDCB2B956F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Attrition Nuclear Domination (2015) [En] (5.0.2.721524) License PLAZA
 ```bash
 magnet:?xt=urn:btih:2CDFB3B406EB1904B08079B1EEA30D7562C61BB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Haunted Train 2: Frozen in Time / Поезд привидений 2: Замор�
 magnet:?xt=urn:btih:C7F77CEF43F444C3ABA0748B94235CF88823F72D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Irony Curtain: From Matryoshka with Love (2019) [Multi] (1.0.5) License GOG [Rev
 ```bash
 magnet:?xt=urn:btih:44637285130C58F7A3B1D1CDEC637EC36EAC0160
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Detectives United: Origins / Детективное агенство: Исток
 magnet:?xt=urn:btih:B5A3213112F93BC10B31703E1204E756072CB238
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Assassin's Creed: Brotherhood / Assassin's Creed: Братство крови [R
 ```bash
 magnet:?xt=urn:btih:24531F73D9DAFF0DDA4F8B0995D86C95616FDCD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Dark Tales 15: Edgar Allan Poe's. Speaking with the Dead / Тёмные исто
 magnet:?xt=urn:btih:ABE97328B1E7CFD624EE241021B2F2E708A191E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Guild of Dungeoneering (2015) [En] (1.02) Repack CPY
 ```bash
 magnet:?xt=urn:btih:8B9A39C25071B7AC01B177A6B445ABEF6AD43398
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ The Surge (2017) [Ru/Multi] (1.0/dlc) Repack R.G. Revenants
 magnet:?xt=urn:btih:C771E89E3FADD9457E5620EF40F3C0DF9A157582
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ Black The Fall (2017) [Ru/En/Ge] (5.5.2) Repack xatab
 ```bash
 magnet:?xt=urn:btih:BBDB7494F3355EF00A892144B31B4017C310109C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Phantom Trigger (2017) [Ru/Multi] (02082017) License GOG
 magnet:?xt=urn:btih:3575C68DFF7595918FC490826CB60280C39D94E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ Mystery Case Files 12: Key To Ravenhearst / За семью печатями 12:
 ```bash
 magnet:?xt=urn:btih:12B0ABDF7C0E02A4BB7F12774EBA802066462366
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ Crusader Kings II открывает перед игроками один из �
 magnet:?xt=urn:btih:A3E7289D26B95C19F86198817F68260946585E09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ Myths of the World 12. Fire of Olympus [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:495CE1CAFB8A8BDA0796DFF9218AC1EEE4AF3E7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ Maze 3: Nightmare Realm (2017) [En] (1.0) Unofficial [Collector's Edition / Ко
 magnet:?xt=urn:btih:F12B5751B5D1ECD5115D0B2C560D31118669033B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ Off the Record 4: Liberty Stone / Не для печати 4: Камень св�
 ```bash
 magnet:?xt=urn:btih:5972A61D138815B78ABA835FF73DE0744FFDBA67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Nevertales 6. Forgotten Pages (2017) [En] (1.0) Unofficial [Collector's Edition 
 magnet:?xt=urn:btih:00A7030BD49128A0B0BC9678F17540D1A8E1B322
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ The King Of Attention / Король внимания (2011) [Ru] (1.0.1) Licens
 ```bash
 magnet:?xt=urn:btih:AAAA02E6020CB9906D1B39688AABD2094721B60A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ Deltaplan Simulator (2017) [En] (1.0) License PLAZA
 magnet:?xt=urn:btih:4B4BFD85FDE35BE7BEC80C00785D8473FA71B6BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ Queen's Quest 2: Stories of Forgotten Past / Королевский квест 2
 ```bash
 magnet:?xt=urn:btih:9FC1949753F48CAAD10AD2028E0934EA871401B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +618,8 @@ Sea of Lies 5: Beneath the Surface / Море лжи 5: Тайны глубин 
 magnet:?xt=urn:btih:8294EAB89608FEF0B144CAD9CCA15B7AE28F727B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +643,34 @@ The Myth Seekers: The Legacy of Vulcan / Искатели мифов: Насле
 ```bash
 magnet:?xt=urn:btih:E74444C016F071A44FD928C295E7AEC05158BC93
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157276   (525795) от 10.08.2017
+
+From Shadows (2017) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525795.jpg" />
+</div>
+
+
+###  Подробнее
+
+From Shadows - это приключенческий экшен-платформер, в котором игроки выбирают одного из двух персонажей - вампира Хредерика или оборотня Георга - и отправляются в свой личный крестовый поход, уничтожая всех, кто встает у них на пути. Основной особенностью игры является смена дня и ночи, которая существенно влияет на персонажей и их противников. Игроки вольны проходить (   Читать дальше...   )Тип издания: RepackРазработчик: Revolt and RebelЖанр: Action (Platform), ArcadeЯзык субтитров: Русский, Английский, ПольскийЯзык интерфейса: Русский, Английский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD21610BA28AB6E951ABF9AE0787322AE0CDAF86
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

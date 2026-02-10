@@ -19,6 +19,8 @@ Kingdom Two Crowns является новым этапом развития э�
 magnet:?xt=urn:btih:D39A1E08EE9E597C5FEF580A28F8D4939BE2D27B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack FitGirl [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:1E158A30F4AE99448B18B3DD5D2C0192C29DAEE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ PowerWash Simulator (2022) [Ru/Multi] (1.10.0/dlc) Scene Tenoke
 magnet:?xt=urn:btih:EC74D5360D49A28B50B6E94DA9DDC334C6441ADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Knights in Tight Spaces (2025) [Ru/Multi] (1.0.18525) Repack FitGirl [Collector'
 ```bash
 magnet:?xt=urn:btih:5169FF73A75685C20B3E8A29D12444EAA4F54C87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Scene Tenoke
 magnet:?xt=urn:btih:9388FF962F7B094AF605F3B5EA87F1D84A22E35B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Pegasus Expedition - это сюжетная глобальная страт
 ```bash
 magnet:?xt=urn:btih:484F06B9FA65A6B86A3ECEFFE369670A44F4CADD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Slay the Princess (2023) [Ru/Multi] (1.4a) License GOG [The Pristine Cut]
 magnet:?xt=urn:btih:DCB8ECED3F546EBE738B64DB81114DD9B326642A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Broken Roads создана командой настоящих энтузиас
 ```bash
 magnet:?xt=urn:btih:A01A8092E3AFD5DF7B2AE559CF8935B71503D687
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Builders of Egypt - это экономическая градостроител
 magnet:?xt=urn:btih:4EB34A5B60D892CED63A1D292AE7033CD896B013
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Age of Mythology: Retold - игра от создателей культовой
 ```bash
 magnet:?xt=urn:btih:B2E99590431DF6A1F3B83855F8F66F89822016D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Age of Mythology: Retold - игра от создателей культовой
 magnet:?xt=urn:btih:098E164F79D81AC2518C7B3C8EF4F66CE5F3BAFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Jсновное внимание уделяется управлению раз�
 ```bash
 magnet:?xt=urn:btih:0A749A788CA6D1D0EB2B7E350B62A61DED7A5B04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ PowerWash Simulator (2022) [Ru/Multi] (1.10.0/dlc) Repack seleZen
 magnet:?xt=urn:btih:BA67A6A699B1A1C1416109070D3D7229448B8FFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Hearts of Iron 4 (IV) – отличный военный симулятор, в
 ```bash
 magnet:?xt=urn:btih:BE84124FB6D201A0712942BB2F1236C55A91FEB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Pacific Drive - это атмосферное автомобильное при�
 magnet:?xt=urn:btih:71B92B8CE4D705BD2D1A7B1BC8CDD93F86E1BF91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:E1318A5A06FD78C52B9C670664F9C587ADA4BD06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack Decepticon
 magnet:?xt=urn:btih:6C31974B0DC6EDD6AE8326CA7408E32B4FEB0788
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Hearts of Iron 4 (IV) – отличный военный симулятор, в
 ```bash
 magnet:?xt=urn:btih:937EA348C460F73E2FD0523F7FA032449E2A4A52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ RRogue Samurai — это интенсивная roguelite игра в жанр�
 magnet:?xt=urn:btih:34D9BED74DC2B66D3C8B32189C6E97C19EDF287B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ One Military Camp (2023) [Ru/Multi] (1.1.0.38/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:FE50D10F9F2E101B45F8F4F572AC467C37D6B06B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ RRogue Samurai - это интенсивная roguelite игра в жанре 
 magnet:?xt=urn:btih:9A6A177EE0A2AF240E0B97E32C2213A35E6E54FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Shift’n Slay – пошаговый тактический рогалик на
 ```bash
 magnet:?xt=urn:btih:B14B874C7F188BADAE6C0D4F703DFB83D5961F18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Old World - это историческая стратегия, в которо�
 magnet:?xt=urn:btih:48DB76FCF63549EC788590F2FB5FE9F0683311FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Eiyuden Chronicle: Hundred Heroes – это увлекательный фент
 ```bash
 magnet:?xt=urn:btih:462C318156C41627A98A18A529907F4857672C1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ The Rangers in the South — это pixelart action roguelike rpg, действ�
 magnet:?xt=urn:btih:F02B7136742F461BF8EFDD22F4A1FBA567BE6BA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Subverse (2024) [Ru/En] (1.0.2/dlc) Repack Let'sРlay [18+]
 ```bash
 magnet:?xt=urn:btih:838D356BA9605549306E486E09C4BD1770312D27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

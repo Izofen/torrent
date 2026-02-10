@@ -19,6 +19,8 @@ Animal Planet: Живой или вымерший. Флоридский черн
 magnet:?xt=urn:btih:64A6358BBE9EA3657CB77B68C0C64519C7E72B79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Animal Planet: Жуткие, настоящие и странные / Weird, Tru
 ```bash
 magnet:?xt=urn:btih:596274ED5FB7EA4DCEC5AB6F6F6189C80C628F1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Animal Planet: Заповедная Аляска / Into Alaska (2018) HDTV [H.26
 magnet:?xt=urn:btih:5FF1606FEA45DB0200B3588C138840760A2BF4F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:5FF1606FEA45DB0200B3588C138840760A2BF4F0
 ```bash
 magnet:?xt=urn:btih:E80B1CC0EBB3AFD845813B8763470F28960C78BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ BBC: Век эгоизма. Часть 2 – Конструирование со
 magnet:?xt=urn:btih:8D6F93839082039765350811EBF4264EF1F3BDB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Nat Geo Wild: Возвращение дымчатых леопардов / Retur
 ```bash
 magnet:?xt=urn:btih:81F82E3B08EA03CCF836396973EB1D6C48FB40E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Nat Geo Wild: Болотные львы / Swamp Lions (2011) HDTVRip [720p]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 ```bash
 magnet:?xt=urn:btih:0F5EC8528E27AE033CC9BB31863E0AEBD2860E49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ National Geographic Special: Суперкошки / National Geographic Special:
 magnet:?xt=urn:btih:9B6B29E5E69C746968AA065AC03635C277B8E083
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:9B6B29E5E69C746968AA065AC03635C277B8E083
 magnet:?xt=urn:btih:BC127DA67DBB4FE0029903C11EF794E98BA137E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ BBC: Величайшие явления природы / Nature's Great Events 
 ```bash
 magnet:?xt=urn:btih:648AB158A756618050E1BDF23664031AF20D9610
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:648AB158A756618050E1BDF23664031AF20D9610
 magnet:?xt=urn:btih:4DD4A6CB0F063106D341B91D17EE7929FD67A337
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ NG: Суперсооружения: Мегазаводы. Суперавтомо
 ```bash
 magnet:?xt=urn:btih:004211061CE72CBA8F5D932FF11188F438A947EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:004211061CE72CBA8F5D932FF11188F438A947EB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:004211061CE72CBA8F5D932FF11188F438A947EB
 magnet:?xt=urn:btih:E66BFA6C0A9F69BE20115BAD420F0126329365DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:E66BFA6C0A9F69BE20115BAD420F0126329365DE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ BBC: Век эгоизма. Часть 3 – В твоей голове сиди
 magnet:?xt=urn:btih:5B60C287C8CB69D518AB8667FE375F778E70EF9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ Animal Planet: Нашествие саранчи: Насекомые, сожра
 ```bash
 magnet:?xt=urn:btih:009C902FEB3EB46DD2EA2708A8EC66330BC4B5D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ BBC: Загадки истории. Век полетов: Легенды мир
 magnet:?xt=urn:btih:943E395A335EA2F211E75FA22CF1F4C6E09532CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:943E395A335EA2F211E75FA22CF1F4C6E09532CD
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ NG: Гибель морского монстра / Death of a Sea Monster (2010)
 magnet:?xt=urn:btih:2F4D8BD01415AE83814682FE57861A9B286D482D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:2F4D8BD01415AE83814682FE57861A9B286D482D
 ```bash
 magnet:?xt=urn:btih:95B0B330BD7142BC247F005C43A1EB2806F9C818
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:95B0B330BD7142BC247F005C43A1EB2806F9C818
 magnet:?xt=urn:btih:722E0501B6B7B1C560387C4D843C7121F932397C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ BBC. Horizon: Тайная жизнь собак / The secret life of the dog (2
 ```bash
 magnet:?xt=urn:btih:ADF872D29E015CA816BB18161CF8A5DC8D7382B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:ADF872D29E015CA816BB18161CF8A5DC8D7382B8
 magnet:?xt=urn:btih:40644FDD790E6EC01EF06E47DAB0CB42B89DB965
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ NG: Забытый соперник Египта / Egypt's lost rival (2010) IPT
 ```bash
 magnet:?xt=urn:btih:A0736B788E8666F06B7C1E8BAAA8E108B82C1396
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

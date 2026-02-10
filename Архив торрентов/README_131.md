@@ -19,6 +19,8 @@ AnyDesk 9.0.2 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:FCA9BC8535B3331CFE6361472B5B38053BDEC301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ uTorrent Pro 3.6.0 Build 47178 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:85AA1280DEBD91180D0AFC098D5AD141ACE50479
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:85AA1280DEBD91180D0AFC098D5AD141ACE50479
 magnet:?xt=urn:btih:7CFE7DDF120F8D6D00D68602455EB48F41945867
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Dr.Web CureIt! определяет и удаляет почтовые и сет
 ```bash
 magnet:?xt=urn:btih:F34DDF7B61290B2C1E042D5F04130AE2A3A23B2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7.iso
 magnet:?xt=urn:btih:3EC8E20B1C12920DD43BFA92F24F7F7A8F476D80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Magic Eraser - это революционное приложение для р�
 ```bash
 magnet:?xt=urn:btih:5D6E1CFAD4D15DB7E981CDC17EF4C52A640668A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ RESIZE ФОТО - Копир.изобр - Обрезка изображения 
 magnet:?xt=urn:btih:94DB89DC2F6058FE353348ADF82C105ADEB0814A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ KiCad – уникальный в своем роде программный п�
 ```bash
 magnet:?xt=urn:btih:00ECDD50909A8B0AAE38893EA930C9707E038E06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Jigsawscapes® - Пазлы v3.7.2 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:D41DE956A1157DEEDE0562DC27003BF99A08B34F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:A20E97E3887E0C07B4287E9AAFA93E7F2DF1B42D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Ocenaudio — аудиоредактор, распространяемый ав�
 magnet:?xt=urn:btih:A603E11E37D7379712942297F6C84B7793E66649
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Umagic AI / ИИ Рисует v1.7.3 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B83F72830AC128271C18C6646DA6E481C5CF7B26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ EZ CD Audio Converter - утилита для преобразования ау�
 magnet:?xt=urn:btih:4ACF7DCED0513FA62E217237A1484D9C10D5A052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:2FD3CDDA73D1B13BB1D4871DDF0C6C63991238E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Aiarty Image Enhancer (с генеративным ИИ) — это соврем
 magnet:?xt=urn:btih:F2E9EEA78828A43E6637C76E2B02192917681A0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Wise Care 365 – программный пакет, предназначенн�
 magnet:?xt=urn:btih:835E504DBF029D82545A8272A06D358A93B50800
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:835E504DBF029D82545A8272A06D358A93B50800
 ```bash
 magnet:?xt=urn:btih:B6CA132BD78BDA68E2369A1827B7D824F8D0E797
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Topaz A.I. Gigapixel — это приложение, использующее �
 magnet:?xt=urn:btih:FF01A804CA00B6F3ED789F45DA0160EDE40081EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ FastStone Capture - мощная и многофункциональная пр
 ```bash
 magnet:?xt=urn:btih:C415FFF76EB118DF3AEFC523A25C58B153487378
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:BEBE50D8FB66D2A56BDEC787901EC6DA16C19C6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:EF8E1C5737522A09E10188FF955C8A9195DD9DE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Tor Browser Bundle 14.0.4 [Multi/Ru]
 magnet:?xt=urn:btih:AFAA6083A70994400A09647DD2CBF6155CBE9969
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ FastStone Capture представляет собой довольно мощн�
 ```bash
 magnet:?xt=urn:btih:3BEEA52ACFA3905A435E27F87CC648BD3C0CE74E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Revo Uninstaller Pro 5.3.5 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:DAA013DAC428E1B07F8A6812900851F8C3132D4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Wise Care 365 – программный пакет, предназначенн�
 magnet:?xt=urn:btih:3C19A13E4B5884BF06418390D6ED71E7B1894350
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:E5AAD6F43C5110AD60658D7617EA46142EF1C4C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

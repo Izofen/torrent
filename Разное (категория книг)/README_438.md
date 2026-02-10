@@ -1,3 +1,29 @@
+###  Публикация: 680054   (644382) от 16.07.2013
+
+Луи Буйе | О Библии и Евангелии (1988) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644382.jpg" />
+</div>
+
+
+###  Подробнее
+
+"О Библии и Евангелии" Луи Буйе - краткая, но значительная работа по библейскому богословию. Позволяет увидеть Библию как единое целое и проследить этапы Библейского Откровения.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93D9287370E375B5E1DA991E4C30810E1BE88E85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292196   (644578) от 30.03.2019
 
 О.Ю. Захаров | Тренировочная система. Построение техники индивидуальных физических тренировок (2018) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:B99F54ABAD6E79553EFA39FD90D0F6D96B85C1DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:B99F54ABAD6E79553EFA39FD90D0F6D96B85C1DA
 magnet:?xt=urn:btih:7E671B12F89C7F66FD3AF0112226FB310D752F2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:7E671B12F89C7F66FD3AF0112226FB310D752F2E
 ```bash
 magnet:?xt=urn:btih:E56B7866D5151F4809DFA1A24130D98019E45DBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:E56B7866D5151F4809DFA1A24130D98019E45DBA
 magnet:?xt=urn:btih:61263B2C7E0BE09FD7B4DB1C5D4DE798CFC3364F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:61263B2C7E0BE09FD7B4DB1C5D4DE798CFC3364F
 magnet:?xt=urn:btih:3D1989A41C26B834799E97ADCFF6BD36DB9539D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:3D1989A41C26B834799E97ADCFF6BD36DB9539D3
 magnet:?xt=urn:btih:BEF308DB5AF0E0F2CDACDCEC9EEA4FED81CFB6FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:BEF308DB5AF0E0F2CDACDCEC9EEA4FED81CFB6FB
 ```bash
 magnet:?xt=urn:btih:62D896F3C5D85859CDD069CD729CE40F0B971F7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:62D896F3C5D85859CDD069CD729CE40F0B971F7B
 magnet:?xt=urn:btih:D19FFB2CCE7DA8F99CCCA8F78D990297914180E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:D19FFB2CCE7DA8F99CCCA8F78D990297914180E0
 ```bash
 magnet:?xt=urn:btih:01F1889BFDAAB4AE1733712FE2208794518671F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +289,8 @@ magnet:?xt=urn:btih:01F1889BFDAAB4AE1733712FE2208794518671F9
 magnet:?xt=urn:btih:CD950848E5D24CC108FCFFCB130207460338A013
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +315,8 @@ magnet:?xt=urn:btih:CD950848E5D24CC108FCFFCB130207460338A013
 magnet:?xt=urn:btih:3E50F412FF8096462A5EEBBB628D834CEE3647FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +340,8 @@ magnet:?xt=urn:btih:3E50F412FF8096462A5EEBBB628D834CEE3647FD
 ```bash
 magnet:?xt=urn:btih:3E69DC3545878F7CECA4FD9D2C4B47A3C50C33D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +369,8 @@ magnet:?xt=urn:btih:3E69DC3545878F7CECA4FD9D2C4B47A3C50C33D3
 magnet:?xt=urn:btih:22B7DB99D21B32FB69660209B5A73769C13114C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:22B7DB99D21B32FB69660209B5A73769C13114C7
 ```bash
 magnet:?xt=urn:btih:18333E08601B8F664C2DA0BDE074A2165270600D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +423,8 @@ magnet:?xt=urn:btih:18333E08601B8F664C2DA0BDE074A2165270600D
 magnet:?xt=urn:btih:0D17498143B07333DAD175E10C2B28CBB4D0CD5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +448,8 @@ magnet:?xt=urn:btih:0D17498143B07333DAD175E10C2B28CBB4D0CD5D
 ```bash
 magnet:?xt=urn:btih:78D28667A264EC41E4CC6D8A9054B4F874B4EDCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +476,8 @@ magnet:?xt=urn:btih:78D28667A264EC41E4CC6D8A9054B4F874B4EDCE
 magnet:?xt=urn:btih:D49ACDAA474C1E134F9D362CBFF1A9FAE102BEF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +501,8 @@ magnet:?xt=urn:btih:D49ACDAA474C1E134F9D362CBFF1A9FAE102BEF9
 ```bash
 magnet:?xt=urn:btih:2ECDB24FDBB996709F6497A7F12A429883E7FBFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +529,8 @@ magnet:?xt=urn:btih:2ECDB24FDBB996709F6497A7F12A429883E7FBFF
 magnet:?xt=urn:btih:CA6227981F7CEE7E3DBDD198C7AFC83943BB9B7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +555,8 @@ magnet:?xt=urn:btih:CA6227981F7CEE7E3DBDD198C7AFC83943BB9B7F
 magnet:?xt=urn:btih:46A8E3D2D85BDBE45AF1D764468387B27F69ED4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +580,8 @@ magnet:?xt=urn:btih:46A8E3D2D85BDBE45AF1D764468387B27F69ED4A
 ```bash
 magnet:?xt=urn:btih:7D791F96A31A7D4D9126CBCADBE7F12CB3833062
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +609,8 @@ magnet:?xt=urn:btih:7D791F96A31A7D4D9126CBCADBE7F12CB3833062
 magnet:?xt=urn:btih:3978772B9708068F2B61E977A523559D271D3C82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +634,8 @@ magnet:?xt=urn:btih:3978772B9708068F2B61E977A523559D271D3C82
 ```bash
 magnet:?xt=urn:btih:34A6ED2F1BADEE4B64C33956A136D2360D5EF2E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +661,8 @@ magnet:?xt=urn:btih:34A6ED2F1BADEE4B64C33956A136D2360D5EF2E3
 magnet:?xt=urn:btih:14CFF91C978C767AB0C5717418BA97DB58600529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,29 +687,7 @@ magnet:?xt=urn:btih:14CFF91C978C767AB0C5717418BA97DB58600529
 magnet:?xt=urn:btih:242799635054B2B09754B0DDBF2F3763826F85D4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031529   (645157) от 07.07.2016
-
-Бенджамин Грэм | Разумный инвестор: Полное руководство по стоимостному инвестированию (2014) [EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645157.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Разумный инвестор: Полное руководство по стоимостному инвестированию" (англ. The Intelligent Investor The Definitive Book On Value Investing) — книга Бенджамина Грэма, известного американского экономиста и профессионального инвестора, которого часто называют «отцом стоимостного инвестирования» (англ. value investing). Книга, впервые изданная в 1949 году, (   Читать дальше...   )Жанр: Деловая литература, финансыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4AE82B9B59EBD1B76820C1E328943D18BA34E32
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ SIV (System Information Viewer) - мощнейшая утилита, показ�
 magnet:?xt=urn:btih:2E039DC4BFF8D04CF46A7CEBFD6206567E56C59B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ EZ CD Audio Converter - утилита для преобразования ау�
 magnet:?xt=urn:btih:41B01FD3F52F5A0ED1E850B83F1240743CBE4F59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ CPU-Z способен показать различную информацию 
 ```bash
 magnet:?xt=urn:btih:A2F53CA2351A6FEB0F934EA23739DAFD54B4FBDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ TranslucentTB — это небольшая утилита, позволяюща
 magnet:?xt=urn:btih:3066E86CAF710FB798E904AF5F68E7BE6C0B6891
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ VMware Workstation — популярная программа для созда
 ```bash
 magnet:?xt=urn:btih:5E6700F42ECC6AE5C14BE74BD83A6D5F203F15FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ WiFi Analyzer v6.0 (b98) Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:669AC9C93E143850DA4EF6D4CEDBB4961D883FD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Revo Uninstaller Pro 5.3.7 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EDF4FDB2D726E6522483CDE4D6E1CB228B1661ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:421C1EB22322068BAE76FB76B3B732CD4CA64558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ My TTS: Text-to-Speech v1.5.0 Mod by Alex.Strannik [En]
 magnet:?xt=urn:btih:68AED8D9486536439B5E123A521DDD12361B3559
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:6366120833A69DDB08D847BEFF3A7509E4C6FCB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Dashcam Viewer - это современный и продвинутый мен�
 magnet:?xt=urn:btih:2F51DC9DE01A229A11205CEA113B3C8E9C11A5FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Perfectly Clear — приложение, которое позволяет вс
 magnet:?xt=urn:btih:6C35744F1D12437992A8AA091A2CABB30812279B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:6C35744F1D12437992A8AA091A2CABB30812279B
 ```bash
 magnet:?xt=urn:btih:BF30E303C6A4DB909AC2F993C1007A2BDE1DBFA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ AIMP – проигрыватель, включающий в себя множе
 magnet:?xt=urn:btih:63BD3BCF4B02BCBE0052A7237B4FFAB37631D3BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ MKVToolnix - функциональный набор инструментов д
 ```bash
 magnet:?xt=urn:btih:646F4FE9EF2EA87890DC4C25C9421D15AE2525C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:646F4FE9EF2EA87890DC4C25C9421D15AE2525C9
 magnet:?xt=urn:btih:DF40A681C1DCF738119C5217C88ABC3138F74043
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ MiniOS — это лёгкий и быстрый модульный дистри
 ```bash
 magnet:?xt=urn:btih:0C6FAAC8EFC72BD791F96607DC541E93D6530D67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ NetLimiter - программа, решающая проблему контро�
 magnet:?xt=urn:btih:0D6B742C6C22EEBA638D19A7D98FFB9597CCB389
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Clip Studio Paint EX (ранее Manga Studio EX) - это ведущее в м�
 ```bash
 magnet:?xt=urn:btih:3F4A6906FF76E844F071465246941F1C503B131A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ Microsoft Office 2021 — новый офисный пакет от корпор
 magnet:?xt=urn:btih:D35AA319A662F530BC4907CA008084C49DD72CBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:D35AA319A662F530BC4907CA008084C49DD72CBF
 ```bash
 magnet:?xt=urn:btih:D4230886754A22870174588DE9FC07E6D9A1CE84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ DjVu Reader & Viewer (читалка дежавю на русском языке
 magnet:?xt=urn:btih:8559C848A4D597A1F7FAE72368F47085453F1DA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Ventusky: Прогноз погоды v41.0 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:01A44D53A275DF9330DB4F1D805D079E73B09607
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:01A44D53A275DF9330DB4F1D805D079E73B09607
 magnet:?xt=urn:btih:5E139591C235CC4E2B3DA2A018DFA1468CF3BDC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ ES File Explorer (File Manager) — это полнофункциональны�
 magnet:?xt=urn:btih:E61BDDB24599D603EF24F378B74B5934265CB8F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:92536976D9FC3CD2AAAEDEFED9E1C676332CFA1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

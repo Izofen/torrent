@@ -1,3 +1,29 @@
+###  Публикация: 1298254   (601868) от 27.04.2019
+
+Василий Орехов, Сергей Осипов  | Клеймо Зоны. [S.T.A.L.K.E.R.] (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ксанта Леженда и её друг, бывший морпех Денис Кузнец, прибыли в Чернобыльскую Зону отчуждения, чтобы разыскать брата Ксанты, сталкера Мута, бесследно исчезнувшего в районе Четвертого энергоблока атомной электростанции. Опытные проводники Москит и Пифа берутся сопровождать их за Периметр. Однако долго держать в тайне секретную спасательную операцию не удается: Мут (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 10:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55452AD0BB13B2BACFB9D4DDF344920330A112BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297932   (601879) от 27.04.2019
 
 Сергей Недоруб | Шестая ступень (S.T.A.L.K.E.R.) (2018) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:0503E8A991A31E4EA65D5B582650746C0EE0605D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:0503E8A991A31E4EA65D5B582650746C0EE0605D
 magnet:?xt=urn:btih:F5E79BC0A4519D72A88ED292AAF514F615438F77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:F5E79BC0A4519D72A88ED292AAF514F615438F77
 magnet:?xt=urn:btih:DDE300ED3BD123478650D51D6B64A2539DD19C1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:DDE300ED3BD123478650D51D6B64A2539DD19C1F
 ```bash
 magnet:?xt=urn:btih:28387FA34E8848F6689ECC0CD63018338CD12C5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:28387FA34E8848F6689ECC0CD63018338CD12C5A
 magnet:?xt=urn:btih:01B44E7C1644BC0F40E8FDAC25DDB86BACFD9FB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:01B44E7C1644BC0F40E8FDAC25DDB86BACFD9FB5
 ```bash
 magnet:?xt=urn:btih:9E1E0D60055A4E1103AFC203483A511CBB03D653
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:9E1E0D60055A4E1103AFC203483A511CBB03D653
 magnet:?xt=urn:btih:D64814B12130D671A67B9AAADBC0BCD94B30CC70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:D64814B12130D671A67B9AAADBC0BCD94B30CC70
 ```bash
 magnet:?xt=urn:btih:FB49E7575402FCAB8839BFA142D6E630ADDBEB4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:FB49E7575402FCAB8839BFA142D6E630ADDBEB4A
 magnet:?xt=urn:btih:80772EDD433953D1142A9E969B5799634AFB1B24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:80772EDD433953D1142A9E969B5799634AFB1B24
 magnet:?xt=urn:btih:C22D9338FD5BF9B6BAFAEBD017334FAC4F2D2D8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:C22D9338FD5BF9B6BAFAEBD017334FAC4F2D2D8E
 ```bash
 magnet:?xt=urn:btih:73C5031452B5AB9A4A75CB2A3078707D6ABE832D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:73C5031452B5AB9A4A75CB2A3078707D6ABE832D
 magnet:?xt=urn:btih:6AAD11149FABF649499C887CBF0F8729AE598B7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:6AAD11149FABF649499C887CBF0F8729AE598B7E
 ```bash
 magnet:?xt=urn:btih:DA93248547CD6B7062C757AAB5A3902711079286
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:DA93248547CD6B7062C757AAB5A3902711079286
 magnet:?xt=urn:btih:99C8B8B464E96E2C44B3445DBC192BFE0F7060A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:99C8B8B464E96E2C44B3445DBC192BFE0F7060A0
 ```bash
 magnet:?xt=urn:btih:B6DA13922284F5769A965CD828FB700C696DA169
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:B6DA13922284F5769A965CD828FB700C696DA169
 magnet:?xt=urn:btih:54CE47D9FC4CF21A7B766DD8287DD2C74E5BF8B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:54CE47D9FC4CF21A7B766DD8287DD2C74E5BF8B0
 ```bash
 magnet:?xt=urn:btih:E48A8B51E0181425BC2564EC23CD2AA4487E7955
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:E48A8B51E0181425BC2564EC23CD2AA4487E7955
 magnet:?xt=urn:btih:1384698CADD1408621A1B8B2C98A4DEF4E49A948
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:1384698CADD1408621A1B8B2C98A4DEF4E49A948
 magnet:?xt=urn:btih:071F1A638E03D30C160AADD2EDDFAB38FE211278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:071F1A638E03D30C160AADD2EDDFAB38FE211278
 ```bash
 magnet:?xt=urn:btih:C7D5FBD3DE898A56645CBAA84F3983ED316DEBDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:C7D5FBD3DE898A56645CBAA84F3983ED316DEBDF
 magnet:?xt=urn:btih:FBA1E52178FF2244417C630EB1049AC4BE1C88AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:FBA1E52178FF2244417C630EB1049AC4BE1C88AE
 ```bash
 magnet:?xt=urn:btih:58173E5CBB69A677364FB2EB259300C1C843C67C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:58173E5CBB69A677364FB2EB259300C1C843C67C
 magnet:?xt=urn:btih:B6509BA7DDB5B7489802B99E59C4A4426B17CBB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:B6509BA7DDB5B7489802B99E59C4A4426B17CBB6
 ```bash
 magnet:?xt=urn:btih:59B4D81518F62E86AED51AE20F6CC75BD45DDE58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:59B4D81518F62E86AED51AE20F6CC75BD45DDE58
 magnet:?xt=urn:btih:D2AFD0A082E2DC300B469C9BB9705B26CE59FEB7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297719   (603055) от 24.04.2019
-
-Евгений Красницкий | Внук сотника (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая аудиокнига из серии «Отрок» от одного из лучших авторов отечественной фантастики. XII век. Убей или убьют тебя. Как выжить в этих условиях тому, чье мировоззрение формировалось во второй половине ХХ столетия? Принять правила игры и идти по трупам? Не принимать? И быть убитым или стать рабом? Попытаться что-то изменить? Для этого все равно нужна сила. А если (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыПродолжительность: 12:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7201933713A4F0DE86C00A000B1305601703EBA8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

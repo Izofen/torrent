@@ -1,3 +1,141 @@
+###  Публикация: 1309819   (549610) от 21.06.2019
+
+Векторный клипарт - Vector Berry Collection #16 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Ягода
+25 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FC3D6A665DDDC48AF9D0E213FA29A4A9819C6CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309820   (549611) от 21.06.2019
+
+Векторный клипарт - Vector Berry Collection #17 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Ягода
+50 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BA4BBFF91294119D51033255087966728BAAF71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047131   (549800) от 29.08.2016
+
+3D модели - Evermotion - Archmodels vol. 5 for C4D [C4D]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной сборник 3d моделей от Evermotion!
+
+В данный сборник вошли 38 транспортных средств.Формат: *.c4d
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE1324E1F72967A002D5D69E5B06599D85A5243C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047145   (549839) от 29.08.2016
+
+Шаблоны - Garage Sale V1 Flyer PSD Template + Facebook Cover [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Флаер и Facebook Cover для Вашего творчества.
+Многие оценят их по достоинству.Формат: PSDРазрешение файлов: 2625x3375 / 3546х1313 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF45E50EFD8D7A85E67924D706B18E63DEEABED3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045506   (549846) от 29.08.2016
+
+Растровый клипарт - День Знаний, в школу нам пора [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор png кластеров для фотошопа со школьными принадлежностями, прозрачный фон. 14 PNG файла.
+Автор:Формат: PNGРазрешение файлов: 4500х4500 pix
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:251C511434E7CA230239749EA354F9BF4B98CC5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045518   (549889) от 29.08.2016
 
 Рамки - Children frame - Came the academic year [PSD]
@@ -20,6 +158,8 @@
 ```bash
 magnet:?xt=urn:btih:26CBAC968D1F1CF852B0A542A2C5761A3193EB94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +186,8 @@ magnet:?xt=urn:btih:26CBAC968D1F1CF852B0A542A2C5761A3193EB94
 magnet:?xt=urn:btih:345D5699BF78431638C3C5B451B7BCF03BE85F17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +212,8 @@ magnet:?xt=urn:btih:345D5699BF78431638C3C5B451B7BCF03BE85F17
 ```bash
 magnet:?xt=urn:btih:EA5488FA9CB17F1D3C50EC9D608C46E9368ED24F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +240,8 @@ magnet:?xt=urn:btih:EA5488FA9CB17F1D3C50EC9D608C46E9368ED24F
 magnet:?xt=urn:btih:506E883DBC3185F08443008C9699119A91E508D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +265,8 @@ magnet:?xt=urn:btih:506E883DBC3185F08443008C9699119A91E508D7
 ```bash
 magnet:?xt=urn:btih:78F4D139C6864BF574353D69601812D07F466358
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +294,8 @@ magnet:?xt=urn:btih:78F4D139C6864BF574353D69601812D07F466358
 magnet:?xt=urn:btih:C84338058C907CD907C0FD3FA7B2F454F6CF4D6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +322,8 @@ magnet:?xt=urn:btih:C84338058C907CD907C0FD3FA7B2F454F6CF4D6E
 magnet:?xt=urn:btih:157F59BA0105804F9673F2E401B68F0875A7B46E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +347,8 @@ magnet:?xt=urn:btih:157F59BA0105804F9673F2E401B68F0875A7B46E
 ```bash
 magnet:?xt=urn:btih:B40D0DC825F2B9CD546F9FD8C978361CCA81430F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +374,8 @@ magnet:?xt=urn:btih:B40D0DC825F2B9CD546F9FD8C978361CCA81430F
 magnet:?xt=urn:btih:FEC044044D9FF4B8A401EA8BC1B1787085E38841
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +399,8 @@ magnet:?xt=urn:btih:FEC044044D9FF4B8A401EA8BC1B1787085E38841
 ```bash
 magnet:?xt=urn:btih:A727E3973EE043A2BFC92FF66A0E2C15B969E87E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +426,8 @@ magnet:?xt=urn:btih:A727E3973EE043A2BFC92FF66A0E2C15B969E87E
 magnet:?xt=urn:btih:E2628B2218E7E868C98579D59FA9F267EE6C5907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +451,8 @@ magnet:?xt=urn:btih:E2628B2218E7E868C98579D59FA9F267EE6C5907
 ```bash
 magnet:?xt=urn:btih:ACDF8F1FB827E239EF05A7BB4F146A1D66289F52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +478,8 @@ magnet:?xt=urn:btih:ACDF8F1FB827E239EF05A7BB4F146A1D66289F52
 magnet:?xt=urn:btih:549CD1ED3884992DC8A3F70F91E0283A48FD9619
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +504,8 @@ magnet:?xt=urn:btih:549CD1ED3884992DC8A3F70F91E0283A48FD9619
 magnet:?xt=urn:btih:171AA90EC20600986447E13E366383C90B57C8E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +529,8 @@ magnet:?xt=urn:btih:171AA90EC20600986447E13E366383C90B57C8E7
 ```bash
 magnet:?xt=urn:btih:F62E4714ABDFBD0ADA8324C7B30B983F2D75D607
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +557,8 @@ magnet:?xt=urn:btih:F62E4714ABDFBD0ADA8324C7B30B983F2D75D607
 magnet:?xt=urn:btih:1B48515399B5728F3A6C54160DF24E18077564E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +582,8 @@ magnet:?xt=urn:btih:1B48515399B5728F3A6C54160DF24E18077564E8
 ```bash
 magnet:?xt=urn:btih:998178848AE61E85B396DCB96472971955A13EE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +609,8 @@ magnet:?xt=urn:btih:998178848AE61E85B396DCB96472971955A13EE7
 magnet:?xt=urn:btih:707108AC886FAAF3A800364AF27FB255CE920DBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +635,8 @@ magnet:?xt=urn:btih:707108AC886FAAF3A800364AF27FB255CE920DBB
 magnet:?xt=urn:btih:EE7D414E73A22506B7D99C0DDFA2E4E8AFC0661A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +660,8 @@ magnet:?xt=urn:btih:EE7D414E73A22506B7D99C0DDFA2E4E8AFC0661A
 ```bash
 magnet:?xt=urn:btih:D8DA6EAEB7436897BB5A11DC7889AD52BCD665BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,132 +689,7 @@ magnet:?xt=urn:btih:D8DA6EAEB7436897BB5A11DC7889AD52BCD665BF
 magnet:?xt=urn:btih:F0CE9E1AB378CA493FB9650AA49AE4AE71C86342
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309578   (550352) от 20.06.2019
-
-Векторный клипарт - Vector Sport Collection #39 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Спорт
-50 AI + PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E0E918431B3F3F3F57AE851C1F387BAE1179629
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237687   (550381) от 25.07.2018
-
-3D модели - Cubebrush - Crimson Desert Landscape -Full package UE4 and FBX [UASSET, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полный пакет UE4 и FBX из нашей окружающей среды Багровой пустыни, содержащий более 30 модульных деталей. Стилизованные, и готовые к игре сетки и материалы, от скал, валунов до травяного и кустарникового кластера с различными типами деревьев и многое другое.
-Вы получите:Формат: UASSET, FBX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C34397F5E4C373C19529BDE2B5A8AC0F3612D7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309573   (550435) от 20.06.2019
-
-Векторный клипарт - Vector Children Collection #31 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Дети
-50 AI + PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA1DB41D880BB55F0114561A6F05995040000648
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309711   (550438) от 20.06.2019
-
-Растровый клипарт - Home Farm #07 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт домашняя ферма для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 140x100-7897x4628
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92939A59DC8BB0A1D490B672091F89F1710BD9AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309574   (550449) от 20.06.2019
-
-Векторный клипарт - Vector Pets Collection #13 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Домашние животные
-50 AI + PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD6C6E57DC18CF42F894751BB5B8044DF02AFE9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

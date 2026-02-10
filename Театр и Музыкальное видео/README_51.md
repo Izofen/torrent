@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:6136A331BF96EFA39F28C4486F543BC17B233F78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:6136A331BF96EFA39F28C4486F543BC17B233F78
 ```bash
 magnet:?xt=urn:btih:A69140B865CD8ABF0C5E6458DC9FAFF8C226A416
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ eRa - The Live Experience 2019 (2022) CamRip [H.264/1080p]
 magnet:?xt=urn:btih:3EFD4B8E5C9FA7642C0097AAB37C52650CBF068C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Bollywood: новогодний киноконцерт / Bollywood Mix Video (20
 ```bash
 magnet:?xt=urn:btih:8D9A21E845A2FE8B8051CBE540DAC2CC174F6FE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Zero People — это сайд-проект музыкантов популяр
 magnet:?xt=urn:btih:E457D138C7D53D8D222AFB530BFE455CC74AD7D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:E457D138C7D53D8D222AFB530BFE455CC74AD7D5
 ```bash
 magnet:?xt=urn:btih:C3D6A5D1040F3367C2DF2D4FB8EDDC965253A6C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +191,8 @@ magnet:?xt=urn:btih:C3D6A5D1040F3367C2DF2D4FB8EDDC965253A6C2
 magnet:?xt=urn:btih:03B9B513EB0C5807406F60FE8CBFAF4BB55EC051
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ magnet:?xt=urn:btih:03B9B513EB0C5807406F60FE8CBFAF4BB55EC051
 ```bash
 magnet:?xt=urn:btih:FF15FFAE870DC477E988F5757F547D43B2BBAFD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +249,8 @@ Precious(   Читать дальше...   )Производство: Венгр
 magnet:?xt=urn:btih:032145114B9D48DF161CD893194DD5E84543DCDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +277,8 @@ Blue Сheer (читается Блю Чир) — американская рок
 ```bash
 magnet:?xt=urn:btih:6782A80AA18309996DFB2BC0FA043E0A02E79FCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +307,8 @@ Bonnie Tyler - Live In Germany (1993/2011) DVD5 <Pop Rock>
 magnet:?xt=urn:btih:3771428156CE16E80DCA0515E85836901F9C0AF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +332,8 @@ THE JEFF HEALEY BAND «SEE THE LIGHT» (1989) DVD-5
 ```bash
 magnet:?xt=urn:btih:2EBAD445AFD799B10566F3E669E0CFF9BA547B2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +362,8 @@ Gary Moore. Live at Monsters of Rock (2003) DVD9
 magnet:?xt=urn:btih:3ABA7EA8CB5ADDC826CB12BAC04AA0079772FBDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +388,8 @@ Eminem & Snoop Dogg - From The D 2 The LBC (2022) WEB-DL [H.264/1080p] <Alternat
 ```bash
 magnet:?xt=urn:btih:620EA253FB3828E6FEC38DF5C3B0424DB883640C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +418,8 @@ magnet:?xt=urn:btih:620EA253FB3828E6FEC38DF5C3B0424DB883640C
 magnet:?xt=urn:btih:9D7F4B229E32693CB2B022F85444A7137390727F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +446,8 @@ Bиктор Цой исполнил хиты, на которых выросло
 ```bash
 magnet:?xt=urn:btih:C8AD6A6F81A5BCD8E14B4B93352C941A6BCB19AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +476,8 @@ magnet:?xt=urn:btih:C8AD6A6F81A5BCD8E14B4B93352C941A6BCB19AC
 magnet:?xt=urn:btih:1E390FA4816508DF2C208FBE0009785D814BC011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +501,8 @@ aespa - Live Tour Synk Parallel Line in Tokyo Dome [Special Edition] (2025) [H.2
 ```bash
 magnet:?xt=urn:btih:2AC825FC449C504B81014DEDEA19CEB25D8B64DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +528,8 @@ Winter (aespa) - Spark (2024) WEBRip [H.265/2160p]
 magnet:?xt=urn:btih:16D3185F76B2FE624335DDF3C2922EBD3C3DD464
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +553,8 @@ Song HaYea - Why did you love me (2025) WEBRip [H.265/2160p]
 ```bash
 magnet:?xt=urn:btih:6823238861F36C4BA400B95CB1D3FB12CE3E8ADF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +580,8 @@ SooRin - Sure Thing (2025) WEBRip [H.265/2160p]
 magnet:?xt=urn:btih:BBD68A12C2B3D549089CEC156AE8EA891DDE30E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +605,8 @@ Miyeon - Sky Walking (Special) (2025) WEBRip [H.265/2160p]
 ```bash
 magnet:?xt=urn:btih:9E3701A49AC5B5679C04469CF2AE285719C54035
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +632,8 @@ JinSoul - Ring of Chaos [4K 60fps 24bit BagsUpZ] 2025 (2025) WEBRip [H.265/2160p
 magnet:?xt=urn:btih:2DB95918EA5DA90DF0785AEFD2EB9463569F9F6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +658,8 @@ magnet:?xt=urn:btih:2DB95918EA5DA90DF0785AEFD2EB9463569F9F6B
 magnet:?xt=urn:btih:940F52AB7E62DDCCE9940A3D6C9271F9911D606E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +683,8 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRip [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:D8256B06A12C302711BF47A833EEA0EB40EED2A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -662,6 +712,8 @@ Extreme: Pornograffitti Live 25 / Metal Meltdown (2016) BDRip [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:943DBE19E8F7E1897C856A4D4F64429536631E44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

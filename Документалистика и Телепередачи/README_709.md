@@ -1,3 +1,29 @@
+###  Публикация: 978828   (962295) от 24.01.2016
+
+Вести недели (24.01.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962295.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вести недели» - еженедельная итоговая информационная программа Всероссийской государственной телерадиокомпании, выходящая в эфир по воскресеньям в 20.00, с хронометражем от 1 часа 10 минут до 1 часа 30 минут. Программа «Вести недели» не имеет рубрик, но внутри неё может показываться в кратком виде фрагменты из программы «Специальный корреспондент».Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 01:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B73BC7049AE6D18BE92A0185984EA9AF9704FED2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 977852   (962298) от 24.01.2016
 
 Обложка. Звезды без макияжа (2016) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:E54835CCED0DCAC6DB92BD100FEC5FD444C563F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:E54835CCED0DCAC6DB92BD100FEC5FD444C563F8
 magnet:?xt=urn:btih:BCCBC59169B89DE2038AE12DDB9CD502E9D251FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:BCCBC59169B89DE2038AE12DDB9CD502E9D251FF
 ```bash
 magnet:?xt=urn:btih:E07FF33C75F275A0C7291638CFC81161744E9348
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:E07FF33C75F275A0C7291638CFC81161744E9348
 magnet:?xt=urn:btih:13B7129B244194BFF85AD7ED6365889476CD4525
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:13B7129B244194BFF85AD7ED6365889476CD4525
 ```bash
 magnet:?xt=urn:btih:EE1C7A0A8A0A99B2861EBF3670000685CF2E19B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:EE1C7A0A8A0A99B2861EBF3670000685CF2E19B1
 magnet:?xt=urn:btih:6C54ACB851BCEB5CFCDFBB2F2B4C170D168D7E32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:6C54ACB851BCEB5CFCDFBB2F2B4C170D168D7E32
 ```bash
 magnet:?xt=urn:btih:5AFB0FC2E7562BB5D0932A8FC821D1562C313DDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:5AFB0FC2E7562BB5D0932A8FC821D1562C313DDF
 magnet:?xt=urn:btih:CE40143AF5B754AB6F9C2546A8D7E39B3C0A8F29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:CE40143AF5B754AB6F9C2546A8D7E39B3C0A8F29
 ```bash
 magnet:?xt=urn:btih:39D24E183B45752A5AD88D9A5733FB20E91F4B2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:39D24E183B45752A5AD88D9A5733FB20E91F4B2F
 ```bash
 magnet:?xt=urn:btih:B0E816360A801AE5ACC0ADFA772718C5504B0AF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:B0E816360A801AE5ACC0ADFA772718C5504B0AF9
 magnet:?xt=urn:btih:E0B02FA013A5CE63CD170BEB1CCA0CA9608F9183
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:E0B02FA013A5CE63CD170BEB1CCA0CA9608F9183
 ```bash
 magnet:?xt=urn:btih:FC87DED9B3F288F77165A7490D246E2D04470493
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:FC87DED9B3F288F77165A7490D246E2D04470493
 magnet:?xt=urn:btih:EF61C1A772D203A46CDE338183C50A01AA6FBF38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:EF61C1A772D203A46CDE338183C50A01AA6FBF38
 ```bash
 magnet:?xt=urn:btih:6D42518D89E71ED4D9A1EB53DFE75FC96F739940
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:6D42518D89E71ED4D9A1EB53DFE75FC96F739940
 magnet:?xt=urn:btih:7B1C6B0E1C09F59A07CF3AD78F8E5FD89DFEFFCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:7B1C6B0E1C09F59A07CF3AD78F8E5FD89DFEFFCD
 ```bash
 magnet:?xt=urn:btih:17678DB92A9A0054B18FAC529A43156C73E7197E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:17678DB92A9A0054B18FAC529A43156C73E7197E
 magnet:?xt=urn:btih:645D7455F154A253CC12BCB443C127BA560D5CB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:645D7455F154A253CC12BCB443C127BA560D5CB2
 ```bash
 magnet:?xt=urn:btih:B91D4B589C799B53FDE6EE1AF6247351C3DC0A9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:B91D4B589C799B53FDE6EE1AF6247351C3DC0A9A
 magnet:?xt=urn:btih:4577525ACACA9B96CB751AC916B4F6E4EE38DE61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:4577525ACACA9B96CB751AC916B4F6E4EE38DE61
 ```bash
 magnet:?xt=urn:btih:AEE9EF6B59E2F5043D83F75C80FBE28F1B06DD15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:AEE9EF6B59E2F5043D83F75C80FBE28F1B06DD15
 magnet:?xt=urn:btih:FEF538E517E6D40E49CA27DF12734B8E051B3FA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:FEF538E517E6D40E49CA27DF12734B8E051B3FA0
 magnet:?xt=urn:btih:67F4389C10CAE8B9951A21E3DA0E291E0C19FE6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:67F4389C10CAE8B9951A21E3DA0E291E0C19FE6E
 ```bash
 magnet:?xt=urn:btih:DBE4F378D576E188D7195727A898CDE0096B3A7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:DBE4F378D576E188D7195727A898CDE0096B3A7C
 magnet:?xt=urn:btih:B06D0C5DB8A144AC53DBDB6D8AE4929AE5E9CE7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:B06D0C5DB8A144AC53DBDB6D8AE4929AE5E9CE7D
 magnet:?xt=urn:btih:7DF6DA41C6A9A6D393C4892D067CB74AF04C90AE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978453   (963637) от 23.01.2016
-
-Право знать! (23.01.2016) SATRip
-
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963637.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Право знать!" – общественно-политическое ток-шоу без купюр и без протокола, о людях и событиях, которые меняют нашу жизнь.В этом выпуске: Падение курса рубля! Как Россия будет жить без сверхприбылей от экспорта энергоресурсов?Телекомпания: ТВ-ЦентрЖанр: ТелепередачаПродолжительность: 01:07:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:089D1937E30E036207A5338190449B462126B428
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

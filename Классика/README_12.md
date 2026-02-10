@@ -22,6 +22,8 @@ Jennifer Thomas - Illumination (2012) [FLAC|Lossless|WEB-DL|tracks] <Classical C
 magnet:?xt=urn:btih:A4F5B4A97A673CDA13DDEB142A931FF9CA5C0A72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ New London Chorale - Viva Verdi (2012) [FLAC|Lossless|image + .cue] <Classical C
 ```bash
 magnet:?xt=urn:btih:54B07AEC89E4DF63A05C6A93567AB906B8C09AB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Stabat Mater, hymn for voice, strings & continuo in F minor, RV 621:
 magnet:?xt=urn:btih:38E3E7D55F2CF284607931F4F22F0EA7A1725B42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Canti Gregoriani – Adorate Deum…in Sanctis Eius (1999-2001) 2001 TACTUS [FLA
 ```bash
 magnet:?xt=urn:btih:71BE2043916C6CC8AFAF47BA46EC2E154B3EDA0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Divna Ljubojeviс / Дивна Любоевич - Divna - In Concert - Théâtre
 magnet:?xt=urn:btih:A90D661613945BA7146D939AC0E24E9FA816D044
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:A90D661613945BA7146D939AC0E24E9FA816D044
 ```bash
 magnet:?xt=urn:btih:A2C37A05BACEE13D44E1AE0E3215D296B95D8771
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ The Piano Guys - Limitless (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 magnet:?xt=urn:btih:ACCEDA5A3FA4FA287103DEED026FF53C15FEB5FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Mozart, Herbert von Karajan, Berliner Philharmoniker - Requiem (1961) 1989 Deuts
 ```bash
 magnet:?xt=urn:btih:51E1ED3DF45EC4FC52A5741607024AB116F875E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Julian Bream - Lute Music from the Royal Courts of Europe (volume 2) (1966-76) 1
 magnet:?xt=urn:btih:2143220DA0782A87275468A7F5CA8A55B1628006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Joshua Bell - For the Love of Brahms (2016) [FLAC|Lossless|WEB-DL|tracks] <Class
 ```bash
 magnet:?xt=urn:btih:212671FD5F31F6E9DD666D5FE2A82EA901189F8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Antonio Vivaldi - The Four Seasons: Concerto in E major, op. 8 no. 1-4
 magnet:?xt=urn:btih:0AD1EDDBB83A134D8557C19D887E5A1FF84A49F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Vadim Brodsky ( Вадим Бродский ) - Beatles Symphony (1986) Reissue,
 ```bash
 magnet:?xt=urn:btih:D392D5CF1C21BDC33CAC533E087B4C9CE5EC8388
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Jackie Evancho - Someday at Christmas (2016) [FLAC|Lossless|WEB-DL|tracks] <Clas
 magnet:?xt=urn:btih:F31B2CA6881E4CF16D8864C7DDC9597264FDB391
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Symphony No. 2 in F Minor
 ```bash
 magnet:?xt=urn:btih:D9672723CBF96365989C5D195DF8D70C7F9029E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Florian Christl - Episodes (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Classica
 magnet:?xt=urn:btih:7A57FAF7E2EC421EF29E75E04E8000E43A0DD7C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Act Two
 ```bash
 magnet:?xt=urn:btih:628B0EEE7BC2EE0D2DBC35FAC1A9010EE49A7430
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Symphony no.26 in C minor, op.41, G.519
 magnet:?xt=urn:btih:8EF96A9BA0AC9048B26E10D803CE6CA6295CA783
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Piano Concerto No. 1 in B-flat minor, Op. 23:
 ```bash
 magnet:?xt=urn:btih:5C62515B62C6EB56DE6B0FBF7A399A7FBFB773D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ Symphonie Fantastique
 magnet:?xt=urn:btih:E83D9CC5BFA0E397CC0A6B03B06AD2AFAEC9BCF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Piano Concerto no.5 in E flat major op.73 "Emperor"
 ```bash
 magnet:?xt=urn:btih:3FE1F02E39A33989A577348DC49208AC031710A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Wiener Volksopern Orchester, dirigent Hans Hagen. - Strausswaltzer (~1967) [FLAC
 magnet:?xt=urn:btih:5061D388E18BAE25B23BA7D194AD771D80C95F3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ Naoko Yoshino - Baroque Harp (1998) Philips Classics 1999 [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:8160578BB168684BB71493F8B199A2CFA71A4433
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ Symphony in C:
 magnet:?xt=urn:btih:5B7246307AB1B0D5EF869D412C2281F05819FCD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ Handel - Messiah (highlights) (1967) 1997 EMI Classics [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:09DE7BDA75167AB74876E4049B745C2D2B043F45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ Wayne Gratz - 16 альбомов (1989 - 2011) [MP3|192-320 кб/с]<Instrument
 magnet:?xt=urn:btih:F3DBF806766F708E036254CEC01AC8F4600AA165
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ VA - 100 Christmas Masterworks (2018) [MP3|320 Kbps] <Classical>
 ```bash
 magnet:?xt=urn:btih:4A6EB8235336C0927D97ED7504A9950127361EE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

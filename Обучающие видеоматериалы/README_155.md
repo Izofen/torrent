@@ -19,6 +19,8 @@ David Jack | Spartacus Workouts (2016) DVDRip [H.264] [EN]
 magnet:?xt=urn:btih:1B8AD776287E2DC398446149583B264377EDBC7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ BJ Gaddour | 10 Minute Torchers Workout (2013) DVDRip [H.264] [EN]
 magnet:?xt=urn:btih:C09A8A750C7989E8B8E9F3FB78A5E5338B458BCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Sanity - это платформа для структурированного �
 ```bash
 magnet:?xt=urn:btih:0D22759D618DCFAC3E4385630BF7FCBB30153943
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Swagger, OpenAPI & JSON-LD + Hydra: (   Читать дальше...   )Про�
 magnet:?xt=urn:btih:7EC818407CE847DD396C90D43A2F479052FCC00F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:7EC818407CE847DD396C90D43A2F479052FCC00F
 ```bash
 magnet:?xt=urn:btih:EB8A67066808F98336249E46DA41B46AEFF6B466
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Lynda.com | Photoshop CC 2019 Essential Training: The Basics (2018) PCRec [H.264
 magnet:?xt=urn:btih:A4552A8193EE4FF6411138C96F7C9EE710E22392
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Photoshop CC 2019 имеет инструменты и функции, кото�
 ```bash
 magnet:?xt=urn:btih:A80741286F0925923E4B173E3488239755E5E635
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Udemy, Grim Future Studio | Unreal Engine 5. Базовый курс №1 - с �
 magnet:?xt=urn:btih:A4F36DFE1665AFC14566C7A5C689A641EF3F5BA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Udemy | Посадка верстки и создание тем на CMS WordPr
 magnet:?xt=urn:btih:18318F1CE79BDFCC6B0AD3D44FA5E6FC0B21EC38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:18318F1CE79BDFCC6B0AD3D44FA5E6FC0B21EC38
 ```bash
 magnet:?xt=urn:btih:08F2460C20B84058058F5060EB184E21A9E87FF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:08F2460C20B84058058F5060EB184E21A9E87FF9
 magnet:?xt=urn:btih:C9FC272B9254A630DF55616AAAC9760A4B3CA553
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:C9FC272B9254A630DF55616AAAC9760A4B3CA553
 ```bash
 magnet:?xt=urn:btih:0C0C529E19C23F88186926E7D536A3F5256A14AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:0C0C529E19C23F88186926E7D536A3F5256A14AD
 magnet:?xt=urn:btih:63E8017B4279BA10F6B30283201B320A870D1223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:63E8017B4279BA10F6B30283201B320A870D1223
 magnet:?xt=urn:btih:91472933C2F0241FA07DCA77E3F9A24EBEA2B188
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:91472933C2F0241FA07DCA77E3F9A24EBEA2B188
 ```bash
 magnet:?xt=urn:btih:C3FF954B46DCC8AF92E9AAF2DE41E9883E31A8A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:C3FF954B46DCC8AF92E9AAF2DE41E9883E31A8A7
 magnet:?xt=urn:btih:2270E0D594EC1536E3D2C9CC273488D39857DECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ FilmeditingPRO | Искусство монтажа трейлеров / The Art 
 magnet:?xt=urn:btih:BB11603B77010AADEA3D6DCEB2F12072A69E3F5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Cody Storey | Kettlebells DBK (2017) WEBRip [H.264] [EN]
 ```bash
 magnet:?xt=urn:btih:BFCB75EEED5A112D72B04E52864DFE2C8E2C0AFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ BJ Gaddour | The 21 Day MetaShred (2017) DVDRip [H.264] [EN]
 magnet:?xt=urn:btih:09DB9174E737C176BB2518E421E4A4455F852BCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Profileschool | Введение в предметную съемку (2014) PCR
 magnet:?xt=urn:btih:16925B689F470885E7B2EBB1CF5484B459DBEE39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Andy Speer | The Anarchy Workout (2015) DVDRip [H.264] [EN]
 ```bash
 magnet:?xt=urn:btih:6EBD9F6A4FE41912350C171C1386E67C02CA5CEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:6EBD9F6A4FE41912350C171C1386E67C02CA5CEA
 ```bash
 magnet:?xt=urn:btih:0240F3BD047AA2B9847D8D0A3E52FD5882BF2A45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:0240F3BD047AA2B9847D8D0A3E52FD5882BF2A45
 magnet:?xt=urn:btih:38A8F91ED76D094C068019829937C5AB37442EA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +633,8 @@ Udemy, Darrin Lile | Blender 2.8 Создание игрового персон�
 magnet:?xt=urn:btih:7A76FA0B65C049B8F90F857757B255C33FF027E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:7A76FA0B65C049B8F90F857757B255C33FF027E1
 ```bash
 magnet:?xt=urn:btih:7FCF504F928DF30BF931ADE9C9F3D29F53F91BFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +685,8 @@ HTML Academy  | Онлайн курс HTML и CSS. Профессиональн�
 ```bash
 magnet:?xt=urn:btih:6010E85A38100D381DAA88A8102E5197AD12EAC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

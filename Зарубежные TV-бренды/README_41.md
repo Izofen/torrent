@@ -19,6 +19,8 @@ Discovery: В поисках суперлюдей (серии 1-5 из ?) / Disc
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Discovery: В поисках суперлюдей (серии 1-5 из ?) / Disc
 ```bash
 magnet:?xt=urn:btih:6F6B19FA398CC2D50AFF82399B1633CADD96104A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC: Коронация (Коронация с ее Величеством Ко�
 magnet:?xt=urn:btih:D52987DF58D1D7BF3B4DD183A60FDA2DB3105D2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NG. Шаньдун: страна Конфуция / Shandong. Land of Confucius 
 ```bash
 magnet:?xt=urn:btih:ACFFA59EE63A7E5229F8A42263AC27067EBB6620
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ NGW: История одной гиеновой собаки / A Wild Dog's Tale
 magnet:?xt=urn:btih:56F5231025CD67D961777EC527D00FE1F1098914
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ NGW: Когда акулы нападают / When sharks attack (2017) HDTV [H.
 ```bash
 magnet:?xt=urn:btih:63E1A5D9AAC78879B19E0AC30D54EFBA63363D3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:63E1A5D9AAC78879B19E0AC30D54EFBA63363D3D
 magnet:?xt=urn:btih:2935367BD00AB6251A4AB56F3258BF8DBA174184
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:2935367BD00AB6251A4AB56F3258BF8DBA174184
 ```bash
 magnet:?xt=urn:btih:6F4857FD0D8E43B057DA0869D995C42B0B8F0675
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ NG: Ловец комет: Миссия "Розетта" (Розетта: пос
 magnet:?xt=urn:btih:35A9996542E91B0C8D633C19AC77E4F4C039D8A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Discovery: Аляска: Семья из леса / Alaskan Bush People (2014-20
 ```bash
 magnet:?xt=urn:btih:C6E1921BE194F8113380D0E0B224E18A13753215
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ NGW: Дикие болота / Wild Swamplands (2013) HDTVRip [H.264/720p-LQ] (�
 magnet:?xt=urn:btih:BD7719E24C6349F5AD8CCDD03F60188CC6EC2875
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:BD7719E24C6349F5AD8CCDD03F60188CC6EC2875
 ```bash
 magnet:?xt=urn:btih:F5EC27B34AEAAF4EAD725564748DCD83223DD13A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Discovery: Демонтаж (сезон 1-2, серии 1-26 из 26  ) / Decons
 magnet:?xt=urn:btih:A3E0FF3E8B10A1866889BEB06D5CA707E17E1C2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Discovery: Фантасты-предсказатели (Пророки науч�
 ```bash
 magnet:?xt=urn:btih:4AB828CFA35B04473857346A7E6EB9E3EBDDE2DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Discovery: Аляска: Семья из леса / Alaskan Bush People (2017) H
 magnet:?xt=urn:btih:4C53EC92C5B0CF03AA36DDD794405BDD211C2ECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ History Channel: История далекого прошлого / Deep Time Hi
 ```bash
 magnet:?xt=urn:btih:D30D64A6E6EA5BAAF119D3B523DDE344B6ACF5D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ BBC: Уникальные способности животных / Animal Super
 magnet:?xt=urn:btih:E57B9CC9E692CD2DD693B6A13B93BA1D6E48A63B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:E57B9CC9E692CD2DD693B6A13B93BA1D6E48A63B
 ```bash
 magnet:?xt=urn:btih:DA36C8DB0C3F513DC5EC349FC08CB5AE83107C80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ NG: Жизнь в других мирах. Голубая луна / Extraterres
 magnet:?xt=urn:btih:6039D3CE26C485FD51B368EEE240EFE01FC47E63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ BBC: Тайная жизнь близнецов / The Secret Life of Twins (2015
 ```bash
 magnet:?xt=urn:btih:2A3727A4E8A41EFBE1363EB546D8D1846DFCA672
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ NG: Жизнь в других мирах. Аурелия / Extraterrestrial. Au
 magnet:?xt=urn:btih:01EA6064E0FABADCF6E3FE41FE294C1C345879BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:01EA6064E0FABADCF6E3FE41FE294C1C345879BF
 magnet:?xt=urn:btih:A2A58A903C2293B75A7BD3E37578DCD1A0696CAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:A2A58A903C2293B75A7BD3E37578DCD1A0696CAA
 ```bash
 magnet:?xt=urn:btih:FCF650CC62868F1727AF5ABC4CBD20D3BC7EC0E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:FCF650CC62868F1727AF5ABC4CBD20D3BC7EC0E9
 magnet:?xt=urn:btih:4ABCCA21B95AA1C2A807C6346ED024FDCC825B7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Discovery: Мистический мир: Необъяснимое.Неведо�
 magnet:?xt=urn:btih:9CAA68E0AD090681026CC8AD4423FF9AD337054C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:9CAA68E0AD090681026CC8AD4423FF9AD337054C
 ```bash
 magnet:?xt=urn:btih:2F096EB3E999A9A79F841870DF869861ED7CC2D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

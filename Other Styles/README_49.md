@@ -22,6 +22,8 @@ Sander van Zanten - Deliver Us the Moon (Original Game Soundtrack) (2019) [MP3|3
 magnet:?xt=urn:btih:B299F023BDE4C5E79BF110645DB86ACA6C528D5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ VA - Midnight Club 3 DUB Edition Remix Soundtrack (2006) [MP3|~245 кб/с (V0)]
 magnet:?xt=urn:btih:FFFD49B7111A95752AAF3480E8BEAFD79C95B8D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +85,8 @@ Thomas Barquee - Missa (2002) [FLAC|Lossless|tracks + .cue] <Chants, World>
 ```bash
 magnet:?xt=urn:btih:030BA877F83BBB5C8F7471F0E1A34767C831191C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ Harlow Monroe - Piano Christmas (2016) [MP3|320 Kbps] <Instrumental, Jazz, Easy 
 magnet:?xt=urn:btih:96BD4A63FEE01471B573143A2AE0C759144CC26F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +143,8 @@ Kris Kristofferson - Live At The Big Sur Folk Festival (2016) [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:D680430182903BD13C16A335AF033929829815EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +173,8 @@ magnet:?xt=urn:btih:D680430182903BD13C16A335AF033929829815EC
 magnet:?xt=urn:btih:A0C4CDC835E86E32D38618BD2079B4147E3A3943
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +201,8 @@ magnet:?xt=urn:btih:A0C4CDC835E86E32D38618BD2079B4147E3A3943
 ```bash
 magnet:?xt=urn:btih:1F4B4C3BA9A65F2923FA39AB4B1EE974DB7041BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +231,8 @@ magnet:?xt=urn:btih:1F4B4C3BA9A65F2923FA39AB4B1EE974DB7041BC
 magnet:?xt=urn:btih:96AB133D2C2A464069014FB5FC645D4C6C2415B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +259,8 @@ Hans Zimmer & Lorne Balfe - The Journey: Champions (Original Soundtrack) (2018) 
 ```bash
 magnet:?xt=urn:btih:25443468D9DEE7A04B123BCD9C35155D2310BF91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +289,8 @@ Hans Zimmer & Lorne Balfe - The Journey: Champions (Original Soundtrack) (2018) 
 magnet:?xt=urn:btih:12DB4A7488C9F62C18DEFD0B92947ED27F4A7467
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +317,8 @@ The O'Neill Brothers - Calming Piano for Comfort (2019) [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:E49C8E1FE328362F7AF3B7DD9445F62E35ED4EE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +347,8 @@ Bernward Koch - Touched by Love (2016) Compilation [FLAC|Lossless|tracks + .cue]
 magnet:?xt=urn:btih:72AA7E88FBA3EADF0175ADDEDC4C0F8C2BAFF437
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +375,8 @@ Hans Zimmer & Lorne Balfe - The Journey: Champions (Original Soundtrack) (2018) 
 ```bash
 magnet:?xt=urn:btih:101A71656D2EEA8D706B7B0A0796AFB5AAB80C26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +405,8 @@ magnet:?xt=urn:btih:101A71656D2EEA8D706B7B0A0796AFB5AAB80C26
 magnet:?xt=urn:btih:57007165F3CDD8FC3D9CA842A3AC87D44CA8D469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +433,8 @@ Brian Crain - A Change of Seasons (1998) [FLAC|Lossless|tracks + .cue] <New Age,
 ```bash
 magnet:?xt=urn:btih:D50A1ACB3F0173F4B3863CB233EFBCCCA9158E28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +463,8 @@ Kathryn Louderback - Christmas Piano (2018) [FLAC|Lossless|WEB-DL|tracks] <Instr
 magnet:?xt=urn:btih:5B585CCC408924E264E7294C078F0F84652A9E2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +491,8 @@ Olga Stankevich (Ольга Станкевич) - Alone with the City (2014) [FL
 ```bash
 magnet:?xt=urn:btih:CB27711524DE823DBBE91FC5654A1129DE59FA97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +521,8 @@ Delerium - Mythologie (2016) [FLAC|Lossless|image + .cue] <New Age, Ambient>
 magnet:?xt=urn:btih:E72189C6852BF311F7900FFFEF987434FE2D091A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +549,8 @@ Sarah Schachner - Call of Duty: Modern Warfare (Original Game Soundtrack) (2019)
 ```bash
 magnet:?xt=urn:btih:D417652B9660B10B1C04C8A3DEE412FB0549DBCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +579,8 @@ VA - 50 Awaited Peace of Mind: Music for Meditation (2016) [MP3|320 Kbps] <New A
 magnet:?xt=urn:btih:D75A449D24B5DD4F55C5B3472FA3A055FCABD754
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +607,8 @@ Sarah Schachner - Call of Duty: Modern Warfare (Original Game Soundtrack) (2019)
 ```bash
 magnet:?xt=urn:btih:851D71AD95554174E2C6FD79654A46D202A21213
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +637,8 @@ Carolyn Southworth - By the Sea (2016) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:2C67C392913BA6B961A4F77DE62180E0D4630AE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +665,8 @@ magnet:?xt=urn:btih:2C67C392913BA6B961A4F77DE62180E0D4630AE1
 ```bash
 magnet:?xt=urn:btih:A265DABABDCE4B4935707729C794A82E45A3D1B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +695,8 @@ David Arkenstone - Emotional Piano Vol.1 (2019) [FLAC|Lossless|WEB-DL|tracks] <N
 magnet:?xt=urn:btih:3B0CB06F6328942E9ABB8598A3EBE623D34FF168
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,6 +724,8 @@ Lee Ann Womack - The Lonely, The Lonesome & The Gone (2017) [FLAC|Lossless|track
 magnet:?xt=urn:btih:3A7D169093A6E1897F39FBECAAC8F81E637CBAA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -702,6 +752,8 @@ Dori Freeman - Letters Never Read (2017) [FLAC|Lossless|tracks] <Country>
 ```bash
 magnet:?xt=urn:btih:93D58347AC9BCF3C80A1D332D890E28F8CADDC54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

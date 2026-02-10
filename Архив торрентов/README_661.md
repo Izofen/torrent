@@ -23,6 +23,8 @@
 magnet:?xt=urn:btih:6FAF06681E372B919AECDA77FED85A863AA9D090
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -56,6 +58,8 @@ VA - 10 Full Moons (2012) [MP3|320 кб/с]<Psychedelic / Full On>
 magnet:?xt=urn:btih:07B511F179D9E6581F8B6BE5330A46F9B4CFF1BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -79,6 +83,8 @@ magnet:?xt=urn:btih:07B511F179D9E6581F8B6BE5330A46F9B4CFF1BA
 ```bash
 magnet:?xt=urn:btih:114498F8B691105C5672234864ECF638030CB1E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -104,6 +110,8 @@ magnet:?xt=urn:btih:114498F8B691105C5672234864ECF638030CB1E4
 magnet:?xt=urn:btih:103577E09D3DC0893CBD4146581E52A8580CFE7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:103577E09D3DC0893CBD4146581E52A8580CFE7E
 ```bash
 magnet:?xt=urn:btih:238D27F193393FEAE2513F037112361E1607AFAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -161,6 +171,8 @@ ASM - Platypus Funk (2010) [MP3|192-320 kbps]<Hip Hop / Funky Breaks / Reggae>
 magnet:?xt=urn:btih:B291C0D1D571685A6BC470AF62E596D8C36D28C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:B291C0D1D571685A6BC470AF62E596D8C36D28C6
 ```bash
 magnet:?xt=urn:btih:BFED48993AEF4A8BF553AC4920059DC14563A0B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:BFED48993AEF4A8BF553AC4920059DC14563A0B2
 ```bash
 magnet:?xt=urn:btih:FE4F905F1D8EBA64CA0E4D9FA601F2B66AA5970F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +255,8 @@ magnet:?xt=urn:btih:FE4F905F1D8EBA64CA0E4D9FA601F2B66AA5970F
 magnet:?xt=urn:btih:BD43FA20CD8148B722CDCB22D398884BBBC55460
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ magnet:?xt=urn:btih:BD43FA20CD8148B722CDCB22D398884BBBC55460
 ```bash
 magnet:?xt=urn:btih:4E257625B54878F8016A7999D18F9599142D529E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +316,8 @@ CD1 :
 magnet:?xt=urn:btih:5A99090431420AA5D76BA67D6BF7D878F5041EF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +345,8 @@ Dort lernt er Katja kennen...
 magnet:?xt=urn:btih:2C5233922999A2609D7BE44FEF5C764A93223620
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +370,8 @@ magnet:?xt=urn:btih:2C5233922999A2609D7BE44FEF5C764A93223620
 ```bash
 magnet:?xt=urn:btih:E4EBCBAB964F0E952D6992C5E4058BDAEEB2975A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +406,8 @@ magnet:?xt=urn:btih:E4EBCBAB964F0E952D6992C5E4058BDAEEB2975A
 magnet:?xt=urn:btih:27B2F8B87E5A5445F95D338B7C9F17253811480B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +431,8 @@ magnet:?xt=urn:btih:27B2F8B87E5A5445F95D338B7C9F17253811480B
 ```bash
 magnet:?xt=urn:btih:1CC78A99957A6B3A0E1DCC82DB3FC8FE8A95951F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +467,8 @@ Armen Chakmakian - Caravans (2004) [FLAC|Lossless]<Contemporary Jazz, New Age, F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +493,8 @@ Armen Chakmakian - Caravans (2004) [FLAC|Lossless]<Contemporary Jazz, New Age, F
 ```bash
 magnet:?xt=urn:btih:8D05BE2CB942BCA1B10E697E86CB8F784BE02CC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +528,8 @@ magnet:?xt=urn:btih:8D05BE2CB942BCA1B10E697E86CB8F784BE02CC5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +557,8 @@ magnet:?xt=urn:btih:8D05BE2CB942BCA1B10E697E86CB8F784BE02CC5
 ```bash
 magnet:?xt=urn:btih:06911469B57FC50D39752DB7C74A9B07CE4D4B17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +593,8 @@ Darkthrone - Sempiternal Past - The Darkthrone Demos (2012) [FLAC|Lossless]<Blac
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +618,8 @@ Toolwiz Care - бесплатный набор инструментов, пре�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +645,8 @@ Toolwiz Care - бесплатный набор инструментов, пре�
 magnet:?xt=urn:btih:5702F0426940AD4D969C7EC9C311392F70E8C77F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +670,8 @@ magnet:?xt=urn:btih:5702F0426940AD4D969C7EC9C311392F70E8C77F
 ```bash
 magnet:?xt=urn:btih:E71AA5EF33FB220DC17E5EFAD7951C379F208306
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +697,8 @@ Yesterday Live - это наш шутливый ответ америкнско�
 magnet:?xt=urn:btih:8D11716756569830FC84296952D875C8A6F06689
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -675,6 +723,8 @@ magnet:?xt=urn:btih:8D11716756569830FC84296952D875C8A6F06689
 magnet:?xt=urn:btih:D6DA2DF01E5D76D474BDD0AC10E81931B8E8E5C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -698,6 +748,8 @@ magnet:?xt=urn:btih:D6DA2DF01E5D76D474BDD0AC10E81931B8E8E5C0
 ```bash
 magnet:?xt=urn:btih:97CE1BC94AB922B5F392BB029A83040C020DC204
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

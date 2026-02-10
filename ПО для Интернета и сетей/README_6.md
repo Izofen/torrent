@@ -19,6 +19,8 @@ VCap Downloader (VCapDL) – это универсальное программ�
 magnet:?xt=urn:btih:86BC73726BC34A963BFD92FA1A0585710CFCBF36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ F-Secure VPN 19.5 (online installation) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8EF9F41168596F65F63729F58C6E851A399D2BBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Waterfox — это браузер, основанный на исходном �
 magnet:?xt=urn:btih:D62A71D21D35936DC34B39527A172AEAFA5A1BA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:D62A71D21D35936DC34B39527A172AEAFA5A1BA2
 ```bash
 magnet:?xt=urn:btih:1DE363B59BF77CB0DA4562C04C2E874C73C182C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Change MAC Address – программа, с помощью которой мо
 magnet:?xt=urn:btih:A923C249856AA845291130690E04D066E98FAB9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Ungoogled Chromium - версия веб-браузера Chromium без инт
 ```bash
 magnet:?xt=urn:btih:C4B6B12DC1F3FA7B588324F7AAD2780061F0E4FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:C4B6B12DC1F3FA7B588324F7AAD2780061F0E4FE
 magnet:?xt=urn:btih:461930AE6D1817899692EED9502D6D9375DA511E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ cFosSpeed - высокопроизводительный сетевой драй
 ```bash
 magnet:?xt=urn:btih:5E1E9FB761904ABA632D17D1BC9FCA02B46085B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Transmission, в отличие от многих других BitTorrent кли
 magnet:?xt=urn:btih:4CD0CBF79743AEEA8D4BF4AF917817859503A252
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Pale Moon - веб-браузер, созданный на базе популя
 ```bash
 magnet:?xt=urn:btih:9CC68051D3D717D3C9A234240F126DBDB7346CAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ EzPing 2.1 Portable [En]
 magnet:?xt=urn:btih:9BC1BDEE8802975F6B1343860ED394CC183C8040
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Air Explorer Pro — один из лучших файловых менедже�
 ```bash
 magnet:?xt=urn:btih:76696C40A5A98EF1FC3F4480EC004F944870F59D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Air Live Drive — программа, позволяющая подключат
 magnet:?xt=urn:btih:8D469BD2C9B318B626742128310F8707FCEC747F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ TrustViewer - это комплексное решение для удаленн
 magnet:?xt=urn:btih:D3301699834CD725E77D4D74F78D55DBD80B1679
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ MetaProducts Offline Explorer Enterprise — мощнейшая программ
 ```bash
 magnet:?xt=urn:btih:E213C76B0BD213819FFD22505E3DF232FB1FC342
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Supermium форк Chromium для Windows - современный браузе
 magnet:?xt=urn:btih:1E6DB8FDD58225324AC95F63F6E229FF2B1050F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Midori – легкий и быстрый веб-браузер для Windows �
 ```bash
 magnet:?xt=urn:btih:7236F40B449AFF2DE4F9F1CADFE93C44CB6078ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ FrostWire - это мощный и простой в использовании 
 magnet:?xt=urn:btih:40002EFC5B6A89566312A21B4C95719B345E22C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Microsoft Edge – кроссплатформенный веб-браузер н
 ```bash
 magnet:?xt=urn:btih:84A479EB86E4D3AAA6C2F3F7306D2AF57BE55AE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ iTubeGo YouTube Downloader 7.6.2 Portable by zeka.k [Multi/Ru]
 magnet:?xt=urn:btih:5BC2BCD67CC629E0BDFE741516FBCC6E6DBD05EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Auslogics Video Grabber - быстрый и простой инструмент,
 ```bash
 magnet:?xt=urn:btih:BF36BBF2CF4FF71712F23ACBFEBAEC2DBF659F6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ WireVPN — превосходное приложение, которое отл
 magnet:?xt=urn:btih:71D0DF3DAE2ABFF0C4EE790AABBC1EC2664B9A56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:71D0DF3DAE2ABFF0C4EE790AABBC1EC2664B9A56
 magnet:?xt=urn:btih:139A7DC8DAB759746FC1886AD1A1EAE737002C73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Sleipnir - быстрый и надежный браузер на базе дв�
 ```bash
 magnet:?xt=urn:btih:80B18053269F50B426EBB33A42EA8DACAC79ED86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Opera Crypto Browser 108.0.5067.28 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:3B68E2D7623CBFCB5AF79D50659D0D847843B78D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Cyberduck — программа представляет собой беспл�
 ```bash
 magnet:?xt=urn:btih:715847D1A40BE570CDB75C9D882BBE4D017A8C82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

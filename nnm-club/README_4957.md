@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:8DFD6319F6CD20239E40C9852C5828AF0FEE36D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:8DFD6319F6CD20239E40C9852C5828AF0FEE36D0
 magnet:?xt=urn:btih:075374DD8C67EF775B7BFF2E3DBB8522C5D42168
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:075374DD8C67EF775B7BFF2E3DBB8522C5D42168
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:075374DD8C67EF775B7BFF2E3DBB8522C5D42168
 ```bash
 magnet:?xt=urn:btih:8DF8F217F0A0E239D0989278D150E94A1AC66F19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:8DF8F217F0A0E239D0989278D150E94A1AC66F19
 magnet:?xt=urn:btih:04AFBED233E8377B88CD200180640577C3A3D402
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:04AFBED233E8377B88CD200180640577C3A3D402
 magnet:?xt=urn:btih:90250D5E991D45DF57DF6A5EB3682C95902D2319
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:90250D5E991D45DF57DF6A5EB3682C95902D2319
 ```bash
 magnet:?xt=urn:btih:671BFA815E6210B3BE89EB0F304770D3E8E84F1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Microsoft .NET 6.0.12 Runtime [Ru/En]
 magnet:?xt=urn:btih:F4D501D210B62711E97062CBDF2A6496E373774A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:F4D501D210B62711E97062CBDF2A6496E373774A
 magnet:?xt=urn:btih:FCDB13641C771D8E149E123B8B6259639454972C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Reface v3.54.0 Mod by Mixroot [Multi]
 ```bash
 magnet:?xt=urn:btih:F5021DAC836005FD56D07B9E84F03B9D80D8848E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ Stepik, Александр Бондарев | Revit 2024: Создание се�
 magnet:?xt=urn:btih:4B52E103D887F1AC8B92BFB2E14EE4B06B8BB3AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:4B52E103D887F1AC8B92BFB2E14EE4B06B8BB3AE
 ```bash
 magnet:?xt=urn:btih:E2197BFF6632FAEC94F531CA73AE50C8F4692ABB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ ODIS (Offboard Diagnostic Information System)
 magnet:?xt=urn:btih:6101F5CEFA8966F101D34CEDAC4BCC70862FDBE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:6101F5CEFA8966F101D34CEDAC4BCC70862FDBE1
 ```bash
 magnet:?xt=urn:btih:09203B8CA2F3339452745D63A762B30474983AD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:09203B8CA2F3339452745D63A762B30474983AD3
 magnet:?xt=urn:btih:818CF97933814DAFBDB6129FB20D8A2D6EE1ECC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ PDF-XChange Editor — программа для просмотра, редак�
 ```bash
 magnet:?xt=urn:btih:0DC93B960B45336C4208ADDF9E5767B9CFC0CBBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:0DC93B960B45336C4208ADDF9E5767B9CFC0CBBF
 magnet:?xt=urn:btih:C9C5045F5F17C61D7A7CAA104334403D1479584E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:C9C5045F5F17C61D7A7CAA104334403D1479584E
 ```bash
 magnet:?xt=urn:btih:D9A08672B641C1C0D0CBB4D578B3B634B8589B3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:D9A08672B641C1C0D0CBB4D578B3B634B8589B3A
 magnet:?xt=urn:btih:83D9DB639CC6D5D71EB7A90FEFAE1300600C30DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ Lighting calculations / Расчеты освещения v5.3.1 Mod by vedsereg
 ```bash
 magnet:?xt=urn:btih:E8409FC9FD700FD1009892B86FF452B988EBDB6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:E8409FC9FD700FD1009892B86FF452B988EBDB6E
 magnet:?xt=urn:btih:68CC78CB461C697ECED3E1C1B3853C60883FF585
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ Veeam® Endpoint Backup™ FREE — простое решение для рез�
 magnet:?xt=urn:btih:17BBF27C6F05F57A0C568D1C0C38B53848FFB4C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ Rider позволяет разрабатывать приложения для 
 ```bash
 magnet:?xt=urn:btih:C1C85F65C87BE6D042031E4D2B8494300DB6E847
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ magnet:?xt=urn:btih:C1C85F65C87BE6D042031E4D2B8494300DB6E847
 magnet:?xt=urn:btih:6ADD0BD106FA83A4171D4FFC10469CBC3B298522
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:92D4FC41C8A7415520D696450D85B98D741F4C30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

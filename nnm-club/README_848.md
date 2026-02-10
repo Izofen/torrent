@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A60A9F08B0F7DB80A9EFAF52BEC917585547D646
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:A60A9F08B0F7DB80A9EFAF52BEC917585547D646
 ```bash
 magnet:?xt=urn:btih:0044E5490B21672AE8FEFC2467B36EADC985FAE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ AdGuard — уникальный блокировщик рекламы без п
 magnet:?xt=urn:btih:1135DDF67E0E172DB239B30BB8EC47ABF0832F96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ I Am Your Beast - это FPS в обертке триллера о мести, �
 ```bash
 magnet:?xt=urn:btih:6E9C47F65F550F5C6BD83C6A3A19211AF534AC78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:6E9C47F65F550F5C6BD83C6A3A19211AF534AC78
 magnet:?xt=urn:btih:5B7C9F9A1EBD79248CA2D7C300F52AAED27421EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:5B7C9F9A1EBD79248CA2D7C300F52AAED27421EA
 ```bash
 magnet:?xt=urn:btih:0728F92E0A7FDD7EF7F4299A4291772E419A0743
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Legacy of Kain Soul Reaver 1-2 Remastered (2024) [Ru/Multi] (1.01 patch 2) Licen
 magnet:?xt=urn:btih:4B63A980534E0026C802BCBAE0C7F6E952838BA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:4B63A980534E0026C802BCBAE0C7F6E952838BA8
 ```bash
 magnet:?xt=urn:btih:A4692DCE9621A6A8891CD8F9A31B69FBC0FB79A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ ProfIT | XDebug: полезное расширение для каждого р�
 magnet:?xt=urn:btih:6DB9B3BCA8CEF0A78EE38C453B390D007F8A9383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:6DB9B3BCA8CEF0A78EE38C453B390D007F8A9383
 ```bash
 magnet:?xt=urn:btih:3BA0D20F3A872E75CBAD7A9AB693F69DD9DC03C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Arafou Otoko no Isekai Tsuuhan | The Daily Life of a Middle-Aged Online Shopper 
 magnet:?xt=urn:btih:EDE2A1D95D3084126F9EBE58D6BBC86B3BF6928F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:EDE2A1D95D3084126F9EBE58D6BBC86B3BF6928F
 ```bash
 magnet:?xt=urn:btih:E9F39B4E1148D9E63E78E84D6FBFBE252A6CF414
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:E9F39B4E1148D9E63E78E84D6FBFBE252A6CF414
 magnet:?xt=urn:btih:C986968D280DD01FE2B7BE6A8EF7E1C636AA865B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ MediaHuman YouTube Downloader 3.9.9.99 (2903) RePack (& Portable) by elchupacabr
 ```bash
 magnet:?xt=urn:btih:203CCBBA43C818D2D35A392CA09D86C314E8BA5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:203CCBBA43C818D2D35A392CA09D86C314E8BA5A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:203CCBBA43C818D2D35A392CA09D86C314E8BA5A
 ```bash
 magnet:?xt=urn:btih:A8A690B819EA10DC14C627D6F50799C063702993
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Hosts File Editor - небольшая бесплатная утилита, ко
 magnet:?xt=urn:btih:D950B87820183F35A4F14AD8C95D72B9E14D19AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Devil May Cry (2025) | И дьявол может плакать (2025) [2025, W
 ```bash
 magnet:?xt=urn:btih:DD57E085802148EFEB2F574F749BD8358E349B3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:DD57E085802148EFEB2F574F749BD8358E349B3D
 magnet:?xt=urn:btih:BD7B390DB00D9852291A6699878B03A820661909
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ South of Midnight (2025) [Ru/Multi] (1.1.0 184977) Repack FitGirl [Premium Editi
 ```bash
 magnet:?xt=urn:btih:21F3912CF0F54250EE4873B056B074CA8FEC778B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:21F3912CF0F54250EE4873B056B074CA8FEC778B
 magnet:?xt=urn:btih:07E8781855373451DCEDE79EBD72194BF21852C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:ED5CF95FA577474A9FE868464A820F6F9FFA6A3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ IZON. (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:15EEAC2EBF5547F66B70972E00ABCC490353D078
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ Windows 10 Pro 22H2 19045.5608 x64 by SanLex [Lightweight] [Ru/En] (2025.04.04)
 magnet:?xt=urn:btih:A3BDFB8BEA0EA3347D1F106015F11702523DF21F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:A3BDFB8BEA0EA3347D1F106015F11702523DF21F
 magnet:?xt=urn:btih:CDB851BD91D52DD173BA493E5E18B16143B1CE08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:CDB851BD91D52DD173BA493E5E18B16143B1CE08
 ```bash
 magnet:?xt=urn:btih:ADEB6AEEE4EF1273C731A7C3AF54B81D01E41E2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

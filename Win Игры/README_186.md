@@ -19,6 +19,8 @@ Car For Sale Simulator 23 - это в основном игра по покуп�
 magnet:?xt=urn:btih:E0C178C3202957EE1D5AD5DCDDBC3C4EABEDB613
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Nocturnal (2023) [Multi] (1.2.1.748) License GOG
 ```bash
 magnet:?xt=urn:btih:3BD76C343395E42FC240EB3C9D5E101C82425FC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Regency Solitaire II (2024) [En] (1.04) License GOG
 magnet:?xt=urn:btih:990ACDF85C2A79D6D251CA53CD491B567EE4EB75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Regency Solitaire является карточной игрой, которая
 ```bash
 magnet:?xt=urn:btih:DD50918FF43A2EB7F6CD2A03A2549C9990157BEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Hauntii - приключенческая игра, предлагающая ва
 magnet:?xt=urn:btih:BFC877D0EBD588005170B7FA629EF5C226CF3A2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Tennis Manager 2024 – как насчет того, чтобы покорит�
 ```bash
 magnet:?xt=urn:btih:EE5E77DADD1E58D0659013B84286832953D0D93F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Venture to the Vile переносит геймеров в загадочный 
 magnet:?xt=urn:btih:C294A0F87386BA198F4652E92621F9AC1362AD13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Senua's Saga: Hellblade 2 - продолжение ролевого экшена
 ```bash
 magnet:?xt=urn:btih:F674766F7FBA353A89B729F37719CEC4885A350B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Kubikon 3D (2024) [Multi] (1.0.12) License GOG
 magnet:?xt=urn:btih:A0FEECBF992C69C281F2FC7F2C37A672D1D40F03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Senua's Saga: Hellblade 2 - продолжение ролевого экшена
 ```bash
 magnet:?xt=urn:btih:44D2EB6B42C01F258807F36A9E1C020D0EB7693A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ RKGK переносит игроков в мрачный нео-бруталис
 magnet:?xt=urn:btih:4FBE8BD95E812EA1D6485CF8DB19E32B35CF3018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Turnip Boy Robs a Bank - это забавный двухмерный прикл
 ```bash
 magnet:?xt=urn:btih:09E63453AE5EEA27E2B96A71C8B92AF90138674C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ RKGK переносит игроков в мрачный нео-бруталис
 magnet:?xt=urn:btih:6EBE3876316C236AFED9EBC471B1CEBAA20C4530
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Journey of AutUmn – перед вами традиционное прик�
 ```bash
 magnet:?xt=urn:btih:AD49EA612065E7D5FEE10E41091A23330468746E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Besiege - это основанная на физике игра, в котор�
 magnet:?xt=urn:btih:1B977AF05AFA049E28F3CFD46CC87AD6EE7730C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Crown Wars: The Black Prince - пошаговая стратегия, дейст
 ```bash
 magnet:?xt=urn:btih:4F9CE0A4BACA551B186F7F44645F71DCED2B8EF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:4F9CE0A4BACA551B186F7F44645F71DCED2B8EF3
 magnet:?xt=urn:btih:44BF099B8E3896B579EFE8E2879F49CAA70EE299
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Instruments of Destruction (2024) [Ru/Multi] (1.03B) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:6E51B19011E7EB658880BBD543B2412F81117DC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ System Shock 2023 - ремейк легендарного иммерсив-си�
 magnet:?xt=urn:btih:870963B05F15E3B4E522D7355AD9FB94E63AA315
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Vanishing of Ethan Carter - бродилка от первого лица, �
 ```bash
 magnet:?xt=urn:btih:69926BF04D358515CE484334904629B28A77888C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ CONSORTIUM – приключенческая игра в научно-фант�
 magnet:?xt=urn:btih:A770D02E143B950741AEF5430CFCA2505FC051A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ ASTLIBRA Revision погружает пользователей в фэнтез�
 ```bash
 magnet:?xt=urn:btih:5EC40FE045D48FDA0607DE756BBF70E4D991362B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ WARNO (2024) [Ru/Multi] (1.0/dlc) Repack seleZen
 magnet:?xt=urn:btih:728A40E5998C77C98095FDB40AD4BFD2F067A570
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Bloody Heaven 2 – в основе сюжета заложена популяр
 ```bash
 magnet:?xt=urn:btih:5D4EAB995EBBA071EB80CE7A443CC52C44A5CFFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ The Vanishing of Ethan Carter Redux – это улучшенная версия
 magnet:?xt=urn:btih:E7721CED9042CC21F930E417BC40244980E618BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Crown Wars: The Black Prince - пошаговая стратегия, дейст
 ```bash
 magnet:?xt=urn:btih:00F2C63629CC36746398EBDC6930FD5A7A38AA66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

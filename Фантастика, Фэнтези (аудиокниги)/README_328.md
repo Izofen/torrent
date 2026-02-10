@@ -1,3 +1,29 @@
+###  Публикация: 568663   (393681) от 01.11.2012
+
+Роджер Желязны | Тоскливой октябрьской ночью... [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393681.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Night in the Lonesome October (русские переводы: "Тоскливой октябрьской ночью...", "Ночь в тоскливом октябре" или "Ночь в одиноком октябре") - последний роман американского мэтра фантастики Роджера Джозефа Желязны, опубликованный в 1993 году. Книга написана от имени умного и дельного пса Нюха в виде дневника, каждая из глав которого (   Читать дальше...   )Жанр: фэнтези
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1B0DF3F65890C7CCB6FA1BF936E6820D8C5A85F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1172060   (393882) от 07.10.2017
 
 Алекс Нагорный | Тимкиллеры (2017) [MP3]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:5254286C284030DC3B4E455641C7651308732CC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:5254286C284030DC3B4E455641C7651308732CC2
 magnet:?xt=urn:btih:4D165D157EE358DF421C1CC002416D2367F8A18E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:4D165D157EE358DF421C1CC002416D2367F8A18E
 ```bash
 magnet:?xt=urn:btih:5B77FC7443AB66FC5CEE423406195399AD4ECC35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +128,8 @@ magnet:?xt=urn:btih:5B77FC7443AB66FC5CEE423406195399AD4ECC35
 magnet:?xt=urn:btih:2DCF1A08240F4B2193F35911733262E6D33B7A5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +155,8 @@ magnet:?xt=urn:btih:2DCF1A08240F4B2193F35911733262E6D33B7A5F
 magnet:?xt=urn:btih:B3EF20EEBC48F8D6BA24018357E5AC4F19F389E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:B3EF20EEBC48F8D6BA24018357E5AC4F19F389E3
 ```bash
 magnet:?xt=urn:btih:DF20F0E0E09C59DDFF3AE7674EEEDB5375C8137C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:DF20F0E0E09C59DDFF3AE7674EEEDB5375C8137C
 magnet:?xt=urn:btih:882B6166BCB6EA192F990B76F9A1CC68EF4B1116
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:882B6166BCB6EA192F990B76F9A1CC68EF4B1116
 ```bash
 magnet:?xt=urn:btih:3DE75D2EC080C985BFC8FF2DE6CB93EEC53CABA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:3DE75D2EC080C985BFC8FF2DE6CB93EEC53CABA8
 magnet:?xt=urn:btih:082B296D5A1DC13EA5CF14AFB5F4DBC1773B75FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:082B296D5A1DC13EA5CF14AFB5F4DBC1773B75FD
 magnet:?xt=urn:btih:603B3494733A431B3C343A3C96296CB18F19ABF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:603B3494733A431B3C343A3C96296CB18F19ABF7
 ```bash
 magnet:?xt=urn:btih:4973FE535A05C6FC6AFDF953198EB7B9746D92BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:4973FE535A05C6FC6AFDF953198EB7B9746D92BF
 magnet:?xt=urn:btih:61A431267A2705B70EFC2650369AA19DE041F953
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:61A431267A2705B70EFC2650369AA19DE041F953
 magnet:?xt=urn:btih:2B3E300EA1C9A4B526F635585713054A31324766
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:2B3E300EA1C9A4B526F635585713054A31324766
 magnet:?xt=urn:btih:F9E27BABA77CEEB9F1C0D0B723B0A18E4BE37C6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:F9E27BABA77CEEB9F1C0D0B723B0A18E4BE37C6A
 ```bash
 magnet:?xt=urn:btih:F03C8EAEDBB5AD59D7E6705750F68B741B73E0EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:F03C8EAEDBB5AD59D7E6705750F68B741B73E0EC
 magnet:?xt=urn:btih:89AB352ADC26C9F060E09AD3DE82B49F0C20B659
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:89AB352ADC26C9F060E09AD3DE82B49F0C20B659
 ```bash
 magnet:?xt=urn:btih:9BA6B802C06ABBEEDF7CD9608FAF36A8FE355EDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:9BA6B802C06ABBEEDF7CD9608FAF36A8FE355EDF
 magnet:?xt=urn:btih:BAD35ED5A461DEA53EC43C2B4E5620885E50F723
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:BAD35ED5A461DEA53EC43C2B4E5620885E50F723
 ```bash
 magnet:?xt=urn:btih:10E58489F616AD26ECF0B0005A23E1CFE77ABFBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:10E58489F616AD26ECF0B0005A23E1CFE77ABFBA
 magnet:?xt=urn:btih:0585374C60D019CC884CC93E2DF239042CC631E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:0585374C60D019CC884CC93E2DF239042CC631E4
 ```bash
 magnet:?xt=urn:btih:EFFCDF21210EABE0F4AF14990352143471C3ACE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:EFFCDF21210EABE0F4AF14990352143471C3ACE5
 magnet:?xt=urn:btih:5C74781DF205B48713B94E32A7837D2CE328A28E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:5C74781DF205B48713B94E32A7837D2CE328A28E
 ```bash
 magnet:?xt=urn:btih:83529EBC30D07F0CD3416E7FB7E38C036D76C289
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:83529EBC30D07F0CD3416E7FB7E38C036D76C289
 magnet:?xt=urn:btih:094CB24F167EE31784B196BFF2F1F9F680B84B87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:094CB24F167EE31784B196BFF2F1F9F680B84B87
 magnet:?xt=urn:btih:89A268CBECBFA341350F7A8A473AE6EFC1ED757B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 398768   (401937) от 11.10.2011
-
-Сергей Палий | Безымянка [Сергей Кузнецов] [2011] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это роман мистический и приключенческий, любовный и героический. История постъядерной Самары, тайны сталинских бункеров и законсервированных советских секретных объектов, отчаянная романтика беспризорников и страсть, за которые платят жизнью, – в "Безымянке" Сергея Палия все сплелось, все смешалось. Хорошо и умело написанная, с душой придуманная... Нет, (   Читать дальше...   )Жанр: Фантастика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26C22E6BD36C12D9D15EBF51A168BCD6360F5DD4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

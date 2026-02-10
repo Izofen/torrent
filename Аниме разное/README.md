@@ -20,6 +20,8 @@ Kaijuu no Kodomo | Children of the Sea | The Sea Monster's Children | Дети �
 magnet:?xt=urn:btih:C6360CBE726995C6633F4C5252CE6C198DCE0103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Da Yu Hai Tang | Big Fish & Begonia | По ту сторону океана [201
 ```bash
 magnet:?xt=urn:btih:BDD798FE6F7782E3F13DE2DC2C77D665360A012F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Ookami Kodomo no Ame to Yuki | Wolf Children | Волчьи дети Амэ и �
 magnet:?xt=urn:btih:585EDEE1170917830CBFDE34DE16BF030A5C9077
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Kaijuu no Kodomo | Children of the Sea | The Sea Monster's Children | Дети �
 ```bash
 magnet:?xt=urn:btih:7B17854451CA556E2B2A666F59B9C5C1AEC4C981
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Kaze Tachinu | The Wind Rises | Ветер Крепчает [2013, Movie] DVD9 5
 magnet:?xt=urn:btih:8BECC11BA6F02C66B81B57AB964674D60A24396E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Da Yu Hai Tang | Big Fish & Begonia | По ту сторону океана [201
 ```bash
 magnet:?xt=urn:btih:6802845A36344AD259BEAB02A3E822C6D8DA9BD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Fermat no Ryouri | Fermat Kitchen | Готовка Ферма [2025, TV, 11 из
 magnet:?xt=urn:btih:5AC5E87C1EE29298CD13B0B55DF23D40043BCAB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Kaizoku Oujo | Fena: Pirate Princess | Фена: Принцесса пирато
 ```bash
 magnet:?xt=urn:btih:4269E1D8EA48E340D485CED6130740E00D364668
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Kotonoha no Niwa | Сад слов | The Garden of Words | Сад изящных
 magnet:?xt=urn:btih:759AA18AF77A6F24901A1AABC1EA42D72A096705
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Kotonoha no Niwa | Сад слов | The Garden of Words | Сад изящных
 ```bash
 magnet:?xt=urn:btih:68EFB10A6A64A7D19C89505241EB9B7218AA4D86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Hoshi o Ou Kodomo | Children Who Chase Lost Voices from Deep Below | Ловцы 
 magnet:?xt=urn:btih:6FBC2899B123718D5EBF6BBD3FE9F294E34C0D5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Hoshi o Ou Kodomo | Children Who Chase Lost Voices from Deep Below | Ловцы 
 ```bash
 magnet:?xt=urn:btih:AD529F488B8FF530203746DD8B8508AE4EC29C51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Toki o Kakeru Shoujo | The Girl Who Leapt Through Time | Девочка, пок�
 magnet:?xt=urn:btih:A33A324D3C7022FFA36F0BFEC16A3344C3DA985E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Summer Wars | Летние Войны [2009, Movie] DVDRemux 480p raw+rus
 ```bash
 magnet:?xt=urn:btih:FA486416A2B63A521268AA94ED4E32DCA9E54F64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Byousoku 5 Centimeter | 5 Centimeters per Second | Пять сантиметро
 magnet:?xt=urn:btih:8C01A06E0199F7C403545113E66D259412C53B46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Summer Wars | Летние Войны [2009, Movie] DVD9 480p raw+rus
 ```bash
 magnet:?xt=urn:btih:2C862A7CA8830C75868644780BE0D4573989145D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Evangelion Shin Gekijouban: Ha | Evangelion: 2.0 You Can (Not) Advance | Evangel
 magnet:?xt=urn:btih:B2E9B8094D70BCF5A963611174D8B153F59F61C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Toki o Kakeru Shoujo | The Girl Who Leapt Through Time | Девочка, пок�
 ```bash
 magnet:?xt=urn:btih:222ACAEA0E1D5D66D14A241AE800EC44C4AFA200
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Byousoku 5 Centimeter | 5 сантиметров в секунду | 5 Centimete
 magnet:?xt=urn:btih:86626E664804D98098BF9B196503A2DB0ACF3279
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Evangelion Shin Gekijouban: Jo | Evangelion: 1.0 You Are (Not) Alone | Evangelio
 ```bash
 magnet:?xt=urn:btih:D79F0DE3D77277CA2C732458B62E3C0453D5A53B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Evangelion Shin Gekijouban: Jo | Evangelion: 1.0 You Are (Not) Alone | Evangelio
 magnet:?xt=urn:btih:8759036FBA56A3CD8246028E3DF4C8751A32DBAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ Evangelion Shin Gekijouban: Q | Evangelion: 3.0 You Can (Not) Redo | Evangelion 
 ```bash
 magnet:?xt=urn:btih:AE5F7AA99845A0EA438C29188570715493CD5430
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Evangelion Shin Gekijouban: Q | Evangelion: 3.0 You Can (Not) Redo | Evangelion 
 magnet:?xt=urn:btih:7D38F55E2D97AEAFDA286F8998285D10738F20C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ Zuori Qing Kong | Crystal Sky of Yesterday | Хрустальное небо в�
 ```bash
 magnet:?xt=urn:btih:69F7BDB4867E70DFC67900743E8D105E9153F89F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Berserk: Ougon Jidai Hen - Memorial Edition | Berserk: The Golden Age Arc - Memo
 magnet:?xt=urn:btih:FD99922B8EAC05B15E424679C51248C5718FF359
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Zuori Qing Kong | Crystal Sky of Yesterday | Хрустальное небо в�
 ```bash
 magnet:?xt=urn:btih:BD8AC88DC51FE998A790162FD0FC5E1C12709882
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1572793   (419459) от 28.08.2022
+
+Марина Ефиминюк | Цикл: Алмерия (Книга 1-2) (2022) [MP3, Ольга Иванова]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419459.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. В городе, где тесно переплетаются магия и интриги, неприятности поджидают на каждом шагу, но неунывающая, бойкая газетчица Катарина Войнич ради карьеры готова рискнуть головой.
+Судьба подбрасывает ей уникальный шанс добиться успеха и написать статью о загадочном ночном курьере-маге. Теперь бесстрашной газетчице придется использовать все таланты, чтобы разгадать (   Читать дальше...   )Жанр: Городское фэнтези, Любовное фэнтезиПродолжительность: 16:16:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99FBCAB0BD14E40F4E627D1DADB77F85A439FBE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251283   (419477) от 30.09.2018
 
 Дмитрий Нелин | Охотник на читеров (2018) [MP3]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:50E72F05E527835F03F04F8B32877A2FBA7510FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:50E72F05E527835F03F04F8B32877A2FBA7510FD
 magnet:?xt=urn:btih:48C67637ED5E4465BBE3B76394491FC2287D678D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:48C67637ED5E4465BBE3B76394491FC2287D678D
 ```bash
 magnet:?xt=urn:btih:5EC037F3B4023F6910806BAC74BD06B68F86DEA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:5EC037F3B4023F6910806BAC74BD06B68F86DEA1
 magnet:?xt=urn:btih:E79EE8488F349E56964122D71F2F7A1928240A57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +149,8 @@ magnet:?xt=urn:btih:E79EE8488F349E56964122D71F2F7A1928240A57
 ```bash
 magnet:?xt=urn:btih:C5221955C0F383FE59DCAB26A30EF884127389B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +178,8 @@ magnet:?xt=urn:btih:C5221955C0F383FE59DCAB26A30EF884127389B0
 magnet:?xt=urn:btih:E6472CA5420A549F3A2591A249B55A5989A4B8FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +203,8 @@ magnet:?xt=urn:btih:E6472CA5420A549F3A2591A249B55A5989A4B8FD
 ```bash
 magnet:?xt=urn:btih:DBD1404EBCE2AC4961521A38975C44AF5B862CC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +232,8 @@ magnet:?xt=urn:btih:DBD1404EBCE2AC4961521A38975C44AF5B862CC7
 magnet:?xt=urn:btih:8072755B712B16D6ACB2889AD91B2C7BC1D54389
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +259,8 @@ magnet:?xt=urn:btih:8072755B712B16D6ACB2889AD91B2C7BC1D54389
 magnet:?xt=urn:btih:4341D633A5D060D490AC53F40880E4283E33ED20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +284,8 @@ magnet:?xt=urn:btih:4341D633A5D060D490AC53F40880E4283E33ED20
 ```bash
 magnet:?xt=urn:btih:C30DA72CBDEAE02C9E4D062925927A8258B3B6D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +313,8 @@ magnet:?xt=urn:btih:C30DA72CBDEAE02C9E4D062925927A8258B3B6D0
 magnet:?xt=urn:btih:242A020325E77721AB5EF74EA6F9DC1949B0D146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +338,8 @@ magnet:?xt=urn:btih:242A020325E77721AB5EF74EA6F9DC1949B0D146
 ```bash
 magnet:?xt=urn:btih:663C0ABC6B56592DEDBFBCDB3B5481D67494355F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +365,8 @@ magnet:?xt=urn:btih:663C0ABC6B56592DEDBFBCDB3B5481D67494355F
 magnet:?xt=urn:btih:0191E5BB7C1B79FA56778051D7FC5E0F0FA0E2CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +390,8 @@ magnet:?xt=urn:btih:0191E5BB7C1B79FA56778051D7FC5E0F0FA0E2CF
 ```bash
 magnet:?xt=urn:btih:2276131A2F0A8B077CD12FF20EA35973864B23DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +419,8 @@ magnet:?xt=urn:btih:2276131A2F0A8B077CD12FF20EA35973864B23DA
 magnet:?xt=urn:btih:275C13D0D041A32D4B629925CD3DFC7775755890
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +444,8 @@ magnet:?xt=urn:btih:275C13D0D041A32D4B629925CD3DFC7775755890
 ```bash
 magnet:?xt=urn:btih:F66FD8AF72B5F2F05A7645AC77A39B4A8EE91796
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +471,8 @@ magnet:?xt=urn:btih:F66FD8AF72B5F2F05A7645AC77A39B4A8EE91796
 magnet:?xt=urn:btih:D6FB957396B25901C7C0174E0E2AACB9CBED9D48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +496,8 @@ magnet:?xt=urn:btih:D6FB957396B25901C7C0174E0E2AACB9CBED9D48
 ```bash
 magnet:?xt=urn:btih:82B35C9D8F8B6EB362DE889861C83D3109FA7D0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +524,8 @@ magnet:?xt=urn:btih:82B35C9D8F8B6EB362DE889861C83D3109FA7D0F
 magnet:?xt=urn:btih:1B4FD2F0C61CBFE0BE3A84BEC8E15225E1C6590A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +551,8 @@ magnet:?xt=urn:btih:1B4FD2F0C61CBFE0BE3A84BEC8E15225E1C6590A
 magnet:?xt=urn:btih:20340ABE965B4162D9CB3B06A720827C7BAF453B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +576,8 @@ magnet:?xt=urn:btih:20340ABE965B4162D9CB3B06A720827C7BAF453B
 ```bash
 magnet:?xt=urn:btih:3A1F1DF43190DED57C0E403DB59DC8E5A46C1102
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +603,8 @@ magnet:?xt=urn:btih:3A1F1DF43190DED57C0E403DB59DC8E5A46C1102
 magnet:?xt=urn:btih:A47BB74C32B22E6CB4A135680D94997AE9B1B0CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +628,8 @@ magnet:?xt=urn:btih:A47BB74C32B22E6CB4A135680D94997AE9B1B0CF
 ```bash
 magnet:?xt=urn:btih:1F047656C4526F0B0EA72990C6A187E15F084C7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +655,8 @@ magnet:?xt=urn:btih:1F047656C4526F0B0EA72990C6A187E15F084C7A
 magnet:?xt=urn:btih:56183E2C6AAE319CA69443C60640F10019ABE79D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,29 +681,7 @@ magnet:?xt=urn:btih:56183E2C6AAE319CA69443C60640F10019ABE79D
 magnet:?xt=urn:btih:5AFDCF45DEDF4087A6E0AEFCD1AB54A870A9FD9D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572590   (421206) от 27.08.2022
-
-Алекс Анжело | Мир Дэвлата (Книга 1). Сон и Пепел (2021) [MP3, Марина Тропина]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда Люций Моран открыл на материке новый портал в Серый мир, это стало катастрофой – энергия тьмы снова вырвалась наружу. С тех пор прошло больше четверти века. Дэвлат изменился: его земли заполонила нечисть, а великие королевства стоят на пороге войны. В это время, в сердце леса, студентка Академии Снов, пропавшая двадцать семь лет назад и считавшаяся погибшей, (   Читать дальше...   )Жанр: Героическое фэнтези, Магические академииПродолжительность: 10:08:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5565B9BADC3642590DA17DE59C7E6D1EBAC839BF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

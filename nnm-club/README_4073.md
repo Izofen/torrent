@@ -19,6 +19,8 @@ Adguard – интернет-фильтр для защиты пользоват
 magnet:?xt=urn:btih:B97D5EB254B26E0E23202D5DB28F08323DA90274
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:B97D5EB254B26E0E23202D5DB28F08323DA90274
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Paradox Development Studio предлагает вам построить иде
 magnet:?xt=urn:btih:9969463814A8B9955BBA0C726A80B9FB76C6947C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:9969463814A8B9955BBA0C726A80B9FB76C6947C
 ```bash
 magnet:?xt=urn:btih:C873530BA23C94B2EFA05FEA4DFDDB83C5ADE9D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:C873530BA23C94B2EFA05FEA4DFDDB83C5ADE9D8
 magnet:?xt=urn:btih:B99047E74BEBBECF644EF2DE0F3D42C334374C7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:B99047E74BEBBECF644EF2DE0F3D42C334374C7B
 ```bash
 magnet:?xt=urn:btih:DAD3D99D12012F72047510F2D8455CDDF5482491
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:DAD3D99D12012F72047510F2D8455CDDF5482491
 magnet:?xt=urn:btih:F9DCA42BC825569DF3A47C5E74CAFC71F611EB8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:F9DCA42BC825569DF3A47C5E74CAFC71F611EB8C
 ```bash
 magnet:?xt=urn:btih:C36AB81959B6F9FDCACCE9A7636C96AC36D14C42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:C36AB81959B6F9FDCACCE9A7636C96AC36D14C42
 magnet:?xt=urn:btih:525A1B9B81FFDE6C1A2077CB9AE9BC1F0FC52AB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:525A1B9B81FFDE6C1A2077CB9AE9BC1F0FC52AB2
 magnet:?xt=urn:btih:29FE328FB05C53F39884FD4BA6D600E417C5E5E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:29FE328FB05C53F39884FD4BA6D600E417C5E5E9
 ```bash
 magnet:?xt=urn:btih:940C27028BF1F706CC7723F23661CB5BD5191810
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ Neil Levin - The SoCal Sound Sessions With Neil Levin (2023) [FLAC|Lossless|WEB-
 magnet:?xt=urn:btih:B8DE187CEEB121BCBEEC0774028F6CE66F6A926E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ La Blues Band de Granada - The Jumping Boogie (2023) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:05F0FA74FBDD4818E9F43D67C71F2E045F533F0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:05F0FA74FBDD4818E9F43D67C71F2E045F533F0C
 ```bash
 magnet:?xt=urn:btih:AF03751A614A3CC89E8E31CE0B484B4B28E4AB05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:AF03751A614A3CC89E8E31CE0B484B4B28E4AB05
 magnet:?xt=urn:btih:8A2DE43130848893DB110D2B0EC2CF341C258974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ Joakim Tinderholt & His Band - Deadlines (2023) [FLAC|Lossless|WEB-DL|tracks] <B
 ```bash
 magnet:?xt=urn:btih:6A565B9EB667F2C990BFC979DA4A56F985CA560E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ Frank Morgan - Gene Norman Presents Frank Morgan (1955) 1989, Fresh Sound Record
 magnet:?xt=urn:btih:1F6FA3C37A54368F4807E55BD90BFEFAE6F6B2F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:1F6FA3C37A54368F4807E55BD90BFEFAE6F6B2F9
 ```bash
 magnet:?xt=urn:btih:48FEDD8F7B50124A629F3F8586FB00E970A2BA4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ John Hicks - Piece For My Peace (1996) Landmark Records [FLAC|Lossless|tracks + 
 magnet:?xt=urn:btih:DBC023784FD2888CD895CA5018CFB33B05E6E73F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:DBC023784FD2888CD895CA5018CFB33B05E6E73F
 ```bash
 magnet:?xt=urn:btih:A272F6ABC3A3705071D7ECC76091D4B56A65C60E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ Kadjo - NewEra (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Deathcore>
 magnet:?xt=urn:btih:CE4069114CC3BE1BB4B006E06BB6842FAAB6AF16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ magnet:?xt=urn:btih:CE4069114CC3BE1BB4B006E06BB6842FAAB6AF16
 ```bash
 magnet:?xt=urn:btih:C1804FF28FF97EF51A1F64FE40078059BF085281
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +621,8 @@ magnet:?xt=urn:btih:C1804FF28FF97EF51A1F64FE40078059BF085281
 magnet:?xt=urn:btih:1D2E0BE95C86025069BBDC3E20399097F830648C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ magnet:?xt=urn:btih:1D2E0BE95C86025069BBDC3E20399097F830648C
 ```bash
 magnet:?xt=urn:btih:C0E9A9CE6DB789E46E49D6B0D1F1A4BA3B631F20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ Nemo Blues Band - In the Land of the Blues (2023) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:4437C8278C228D1950408FAC7A99F84C132201CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ Charred Walls of the Damned — американская хэви-метал с�
 ```bash
 magnet:?xt=urn:btih:870A070C4D4C2174F4599C9EEC5D64EA683D07CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

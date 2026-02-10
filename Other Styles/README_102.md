@@ -22,6 +22,8 @@ Jesse Cook - One World (2015) [FLAC|Lossless|WEB-DL]<Flamenco, New Age, World mu
 magnet:?xt=urn:btih:4D471CC896BAD3BE1DCADADDC863B3990653BD3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Messer Chups - The Incredible Crocotiger (2015) [MP3|320 кб/с]<Surf, Psychobi
 ```bash
 magnet:?xt=urn:btih:08E65F8FC0B6004EE564A6F1EB323D0A4C9BF866
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ David Wright - Beyond the Airwaves Vol. 1 (2014) [MP3|320 кб/с]<Electronic, N
 magnet:?xt=urn:btih:FA2547FCAF8D71925BF85491BE527A98D1E0852F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:FA2547FCAF8D71925BF85491BE527A98D1E0852F
 ```bash
 magnet:?xt=urn:btih:B78F19AB00D523D45CA6AFBE69AC19F41C7FE4F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Argishty - Трубка мира (2018) [MP3|320 Kbps] <Instrumental Folk, World
 magnet:?xt=urn:btih:291492038645F5E7FE0B30D973A6FA8473A47297
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Alexandre Desplat - The Secret Life of Pets / Тайная жизнь домаш
 ```bash
 magnet:?xt=urn:btih:660C307FC484DAA18162AF4C0D1364FB2BBF540C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ John Debney - Ice Age: Collision Course  / Ледниковый период С�
 magnet:?xt=urn:btih:3A2B48D290EA2990D389CBAAA1C411D0B4EF0D50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Theodore Shapiro - Ghostbusters / Охотники за привидениями
 ```bash
 magnet:?xt=urn:btih:8298977E7235136BAA32490DEDB31A7D60567247
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ John Debney - Ice Age: Collision Course  / Ледниковый период С�
 magnet:?xt=urn:btih:FB39DF0787B2AF995AF0684A7301D3FB35A01C6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Elise Lebec - Heart Song (2014) [MP3|320 Kbps] <New Age, Piano>
 ```bash
 magnet:?xt=urn:btih:B491C9588D7248210D23B3AD2C0C17A62319CA79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +318,8 @@ Wonder - Far Off the Beaten Path (2012) [MP3|192 кб/с]<New age,Enigmatic>
 magnet:?xt=urn:btih:502ECBD17C8B788117FD76EC92573866D3CC7FDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +346,8 @@ Ramin Djawadi - Игра престолов / Game of Thrones (Music from the HB
 ```bash
 magnet:?xt=urn:btih:4E7CC80107C8CF2AA2D3415802A0EC47091AA3A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +376,8 @@ Karushanti - Celtic New Age  (2017) [MP3|320 Kbps] <New Age, Celtic>
 magnet:?xt=urn:btih:755932F28AE7ECD769D06CD824DFC7434279839E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +404,8 @@ magnet:?xt=urn:btih:755932F28AE7ECD769D06CD824DFC7434279839E
 ```bash
 magnet:?xt=urn:btih:581A08D9F63DBDA47D7544FD258EEF5EBFD278FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +434,8 @@ Emily Jane White - Alluvion (2022) [FLAC|Lossless|WEB-DL|tracks] <Neo-Folk>
 magnet:?xt=urn:btih:06CB7AFC912438FAF7CA6B32CB247BBD009EDBFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +462,8 @@ Boy Howdy - Welcome to Howdywood (1992) [FLAC|Lossless|tracks + .cue] <Country>
 ```bash
 magnet:?xt=urn:btih:E3E1A7BF68028AB8FED47D2F3B85FFC76DBD3315
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +492,8 @@ Angela Little - Chocolate Oyster (2018) OST [MP3|320 Kbps] <Easy Listening, Prog
 magnet:?xt=urn:btih:080D8D2C1246B71BE6E959269C5AF181AB5F817A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +521,8 @@ Douglas Spotted Eagle - Voices (1999) [MP3|320 Kbps] <Native American, Folk, Wor
 magnet:?xt=urn:btih:E2BF6758CEE50B14BCB1C099842CF16A21D9DEF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +549,8 @@ Theodore Shapiro - Ghostbusters / Охотники за привидениями
 ```bash
 magnet:?xt=urn:btih:518A925E9B5B0ED57CD82D72AAA64CA1C338EEFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +585,8 @@ Great American Taxi - Paradise Lost (2011) [FLAC|Lossless]<Americana, Blues, Cou
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +619,8 @@ James Newton Howard - Snow White & The Huntsman / Белоснежка И Охо
 ```bash
 magnet:?xt=urn:btih:6B43303172450363364AC7C0618B255D0E29F1EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +655,8 @@ Quentin Tarantino's - Inglourious Basterds / Бесславные ублюдки
 magnet:?xt=urn:btih:E7F72BADB649F4FC3DF02816317A600D43412ADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +690,8 @@ VA - Romantic Guitar (2002) [MP3|320 кб/с]<Instrumental>
 magnet:?xt=urn:btih:DB0B54C97F9C397E2E04E55CDDA8E1DD0C99B3E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +718,8 @@ Oliver Scheffner - Traum vom endlosen Himmel (2017) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:5E6C1D6BFA9A09A22E380BEDCEAF7FDA19AE9519
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -700,6 +748,8 @@ Disc 1
 magnet:?xt=urn:btih:114ADBEC23D15614F3CCBA115358CD22248A2C53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -723,6 +773,8 @@ Steve Grossman - Standards (1985) [MP3|224 kbps]<Instrumental,Saxophone Jazz>
 ```bash
 magnet:?xt=urn:btih:7F811CA289070C9D33F4287F64E1462F5CA5C648
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

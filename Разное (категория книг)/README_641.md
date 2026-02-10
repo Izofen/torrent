@@ -1,3 +1,29 @@
+###  Публикация: 1100850   (897136) от 05.02.2017
+
+Джо Манганьелло | Эволюция. Как сломать ментальные стены и построить совершенное тело (2017) [PDF]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джо Манганьелло - известный голливудский актер ("Настоящая кровь", "Супер Майк"), обладающий мускулатурой, которой завидуют мужчины и восхищаются женщины. Стивен Содерберг называет Джо "ходячим спецэффектом". Его потрясающая физическая форма - результат занятий по специально разработанной им методике, о которой знают не только в Голливуде, (   Читать дальше...   )Жанр: Фитнес, бодибилдингФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FB79BAFE9B6F2EE3C7BF243D08E5574C5F6DF63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993062   (897145) от 04.03.2016
 
 Лиллиан Гласс | Все лгут. Как выявить обман по мимике и жестам (2014) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:A424BC9C0CD1155DE7870C35022F85C1A7FF6E00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:A424BC9C0CD1155DE7870C35022F85C1A7FF6E00
 ```bash
 magnet:?xt=urn:btih:94CCC577CF130723F3F11311C978FEE08C7F5F89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:94CCC577CF130723F3F11311C978FEE08C7F5F89
 magnet:?xt=urn:btih:467C746CE9B8CD5EFBB6FA78334EA4F61C1E6283
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:467C746CE9B8CD5EFBB6FA78334EA4F61C1E6283
 magnet:?xt=urn:btih:E52947FA19935D5B63C3C2108EB58D07B179F647
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:E52947FA19935D5B63C3C2108EB58D07B179F647
 ```bash
 magnet:?xt=urn:btih:DCC1F90FA438B1131D057DF395F0CE0B35C7F073
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +183,8 @@ magnet:?xt=urn:btih:DCC1F90FA438B1131D057DF395F0CE0B35C7F073
 magnet:?xt=urn:btih:964441FA870EA5320EEEB0F204F2DEEA05D952AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +208,8 @@ magnet:?xt=urn:btih:964441FA870EA5320EEEB0F204F2DEEA05D952AE
 ```bash
 magnet:?xt=urn:btih:ED4634BFBF592512AD789581F5F8A9F7D0E6563A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +235,8 @@ magnet:?xt=urn:btih:ED4634BFBF592512AD789581F5F8A9F7D0E6563A
 magnet:?xt=urn:btih:4BA30F29BEF00EA8B2276C6C8FDC4B0D7F1D6B11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +261,8 @@ magnet:?xt=urn:btih:4BA30F29BEF00EA8B2276C6C8FDC4B0D7F1D6B11
 magnet:?xt=urn:btih:4BEAC5BC51DE5AAE5CAD049BA53B0FA8C1BA0FB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:4BEAC5BC51DE5AAE5CAD049BA53B0FA8C1BA0FB7
 ```bash
 magnet:?xt=urn:btih:889295A563C6E811D2D6B4C31A42024693816494
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +317,8 @@ magnet:?xt=urn:btih:889295A563C6E811D2D6B4C31A42024693816494
 magnet:?xt=urn:btih:736F0FB68593A50343ED7545CC8791EA4ADD680E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +342,8 @@ magnet:?xt=urn:btih:736F0FB68593A50343ED7545CC8791EA4ADD680E
 ```bash
 magnet:?xt=urn:btih:EA35E7DF5ADAD5728B155304CFFA3B9AAA1C95C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +373,8 @@ magnet:?xt=urn:btih:EA35E7DF5ADAD5728B155304CFFA3B9AAA1C95C4
 magnet:?xt=urn:btih:1D3BDDD492839317839E187BB64014A13A91EF64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +398,8 @@ magnet:?xt=urn:btih:1D3BDDD492839317839E187BB64014A13A91EF64
 ```bash
 magnet:?xt=urn:btih:924EEA3E839AF204BE851AD9984B0F29ABDF688E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +426,8 @@ magnet:?xt=urn:btih:924EEA3E839AF204BE851AD9984B0F29ABDF688E
 magnet:?xt=urn:btih:DC0EDD60B57A9267F4C616A0671EE431E9C52CCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +451,8 @@ magnet:?xt=urn:btih:DC0EDD60B57A9267F4C616A0671EE431E9C52CCF
 ```bash
 magnet:?xt=urn:btih:51C602FB8E18DCA696E389C4B9D8B149A4B33502
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +478,8 @@ magnet:?xt=urn:btih:51C602FB8E18DCA696E389C4B9D8B149A4B33502
 magnet:?xt=urn:btih:1C302B7508A4189D658CD76328F72E03B8F0891C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +503,8 @@ magnet:?xt=urn:btih:1C302B7508A4189D658CD76328F72E03B8F0891C
 ```bash
 magnet:?xt=urn:btih:DEE810E8B44C38A0C196A39949E13D5FF12F9F89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +530,8 @@ magnet:?xt=urn:btih:DEE810E8B44C38A0C196A39949E13D5FF12F9F89
 ```bash
 magnet:?xt=urn:btih:9AD2746079ED9093A699AF7EF05FE05B070C6798
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +559,8 @@ magnet:?xt=urn:btih:9AD2746079ED9093A699AF7EF05FE05B070C6798
 magnet:?xt=urn:btih:122BABA3042DE2B7553BC4C3BA9B335575AA8EDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +584,8 @@ magnet:?xt=urn:btih:122BABA3042DE2B7553BC4C3BA9B335575AA8EDA
 ```bash
 magnet:?xt=urn:btih:438BFA1B7F2BCA831D155B0135A0D6687B305F95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +612,8 @@ magnet:?xt=urn:btih:438BFA1B7F2BCA831D155B0135A0D6687B305F95
 magnet:?xt=urn:btih:623D42EB68FF45CECB1097C823935340D4698E4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +637,8 @@ magnet:?xt=urn:btih:623D42EB68FF45CECB1097C823935340D4698E4B
 ```bash
 magnet:?xt=urn:btih:1FE8E2782FF012CA2F6067AA004B896C525DC9CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +664,8 @@ magnet:?xt=urn:btih:1FE8E2782FF012CA2F6067AA004B896C525DC9CC
 magnet:?xt=urn:btih:6ED0AB6143EA7334A46270A55A6C68466DEA6E9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,30 +690,7 @@ magnet:?xt=urn:btih:6ED0AB6143EA7334A46270A55A6C68466DEA6E9C
 magnet:?xt=urn:btih:4A4E8C3E4542BCF6014362087CE4D2231F2AB2AF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992705   (898598) от 03.03.2016
-
-Игорь Лядов | Минимум работы, максимум урожая! Метод Игоря Лядова для любой почвы (2015) [FB2]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярность метода Игоря Лядова – очень большая. И растет день ото дня! Огородники по всей России сажают, удобряют, делают грядки «по Лядову». Ролик на Youtube Игоря Лядова набрал уже более 300 тысяч просмотров. В чем секрет?
-Игорь Лядов живет на Дальнем Востоке – местности с непредсказуемым климатом и скудными почвами, а выезжает на свои сотки только по выходным. (   Читать дальше...   )Жанр: Сад и огородФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37BDB345B5C44E48A1F98AB2E173E3736C24D3BA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

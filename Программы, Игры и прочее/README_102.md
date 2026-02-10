@@ -22,6 +22,8 @@ Defense zone 2 HD 1.5.1 [Ru/Multi] + mod
 magnet:?xt=urn:btih:A5855128E513FE8914BF5FCFC5C3936F55438FE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:A5855128E513FE8914BF5FCFC5C3936F55438FE3
 ```bash
 magnet:?xt=urn:btih:610EA904330B94D16C2A3F68CE2073B4BF6E587A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:610EA904330B94D16C2A3F68CE2073B4BF6E587A
 magnet:?xt=urn:btih:A340B304F37DC25E67D9E76F3456B51A2A65AC21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:A340B304F37DC25E67D9E76F3456B51A2A65AC21
 ```bash
 magnet:?xt=urn:btih:F1E27D9977A45655DAD469608B430DBF17480BCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ En16 - это простой и эффективный способ изучит
 magnet:?xt=urn:btih:4B1FAF507C3BE2B4E537CAD4A9ACBA7C949292C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ zetaTorrent Pro 3.7.9 [Ru/Multi]
 magnet:?xt=urn:btih:2ACA5373376AE3ADFE39D15ACA938CE101B2E7E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Five Nights at Freddy’s: HW v1.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:A6870859F21D770E04085E6AEE5A0E897FA8C1E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ AR Plan 3D - инновационное приложение для измере
 magnet:?xt=urn:btih:10076252EE79178087E585227CC941F28A4FD72B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Deep Town: Шахтерская фабрика - кликер для Android-у�
 ```bash
 magnet:?xt=urn:btih:34827E5AA058DC4FD44027C4E413FAD73B24D7DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Path of Giants v2.2.0 [Ru]
 magnet:?xt=urn:btih:AC28AAD2573D9BD12F34BD90206112E88605BECA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Cover Fire 1.17.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:AB0D4F5BB1535DFA0D6CA4757DA711FEA2A66916
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:AB0D4F5BB1535DFA0D6CA4757DA711FEA2A66916
 magnet:?xt=urn:btih:83915A110031DB0A116310CED4E273134A54C56A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:83915A110031DB0A116310CED4E273134A54C56A
 ```bash
 magnet:?xt=urn:btih:A2AEF3200D4F1525AF8F51301D79E55FAC9463AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Check Engine 1.3.0.19 [Ru]
 magnet:?xt=urn:btih:8C9C5B3A12369A407AEC9FFE7855A548C7B5B82B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Meditopia помогает снять стресс, улучшить сон и �
 ```bash
 magnet:?xt=urn:btih:C0E46BD9B3A59C0EE7E9AB5BB8016FC48CA00052
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ Forvo Pronunciation Guide 4.1.0 [En]
 magnet:?xt=urn:btih:9F211E117C0CB5965142956BCC279AD107686ACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ Earthworm Jim Eternity 1.3 [En]
 ```bash
 magnet:?xt=urn:btih:E8FEC04AD90EB366AD2A236D430434EBA6BC6886
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Garmin: City Navigator Japan NT 2015.10 M All [Jp]
 magnet:?xt=urn:btih:B38C2CB14A21C7F60A464D9BDB5227CF33BCF912
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:B38C2CB14A21C7F60A464D9BDB5227CF33BCF912
 ```bash
 magnet:?xt=urn:btih:C14CC467B6A39E5365E6F3A5375C484958F50949
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ Comica v1.41 [En] - превратить фотографии в комиксы 
 magnet:?xt=urn:btih:61CAD905B5D8EABA9FEA9B20A4A5DDEE01A7DAC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Sonic Back In Time 1.0 [En]
 ```bash
 magnet:?xt=urn:btih:5A1DF762992C224092CB5604DD30AAAB0BE20833
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ SimpleRockets 2 - полностью трехмерный космический
 magnet:?xt=urn:btih:4C73C7E87C240720B1B1666C3B2569FA6D48EBE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Fluenz 2.6.1 [En]
 magnet:?xt=urn:btih:5F80D2DE6A6F3DAFB4E65614F441C2D1926342C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ Business English by BEP 1.6 [En]
 ```bash
 magnet:?xt=urn:btih:40B83EC20BE093D08C20FBBA8C38F04FCC911239
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ Learn Languages with Music 2.1.3 [En]
 magnet:?xt=urn:btih:44B222D842F62DDDF86C74674101469DE9EB8040
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Barcode Scanner v4.7.4 / Barcode Scanner+ v1.12.2 [Ru/Multi] - Сканер шт
 ```bash
 magnet:?xt=urn:btih:3F84CFB627B0172CE45E96C81AB5308A49A144AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

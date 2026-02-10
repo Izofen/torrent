@@ -19,6 +19,8 @@ The MagPi - о различных поделках и экспериментах
 magnet:?xt=urn:btih:F0FA071B78E75235F36C83C6160B2EFCF091ACC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The MagPi - о различных поделках и экспериментах
 ```bash
 magnet:?xt=urn:btih:0ED824C6FD97C96D02D70BA5E34D8A604D0F1A05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Greg L. Turnquist | Learning Spring Boot 3.0, 3rd Edition (2022) [PDF][EN]
 magnet:?xt=urn:btih:789F9948E0C0B5CBAA63B80B0E942465E5BA8A24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Hairizuan Bin Noorazman | Golang for Jobseekers (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:A64A0B1833BAFAB3A25CBCE96D8E18FEE3255572
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Shalabh Aggarwal | Flask Framework Cookbook, 3rd Edition (2023) [PDF][EN]
 magnet:?xt=urn:btih:149C145973E01FA9E28CF43225C844B0C11A7FAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Bernhard Steppan | Getting Started With Java Using Eclipse (2023) [PDF][EN]
 magnet:?xt=urn:btih:AD1CCFFE91D6868EC70B28D1DB6EA900E7850EF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Dr. Harsh Bhasin | Data Structures with Python (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:1941FDF97A8527785B0E33BEAF93A42448E89382
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Vishwanathan Narayanan | SQL and NoSQL Interview Questions (2023) [PDF][EN]
 magnet:?xt=urn:btih:B571E02D1C58CAFD4181345E25B90CEE0C2E63FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Python является наиболее популярным языком пр�
 magnet:?xt=urn:btih:00451CFD578726FA2203B86A9865204C13CD4E9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Pinakin Ashok Chaubal | Mastering MEAN Stack (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:1FEE12FCD1B524EF5042BB0C38C6004A9AF792B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:1FEE12FCD1B524EF5042BB0C38C6004A9AF792B5
 magnet:?xt=urn:btih:4FD70095CE24BCCF678EF4289E8001910ADC4BBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ NGINX – это высокопроизводительный веб-серве�
 ```bash
 magnet:?xt=urn:btih:F209B674C7DFF8D50940D4E7209A47DF8F9E0BE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:F209B674C7DFF8D50940D4E7209A47DF8F9E0BE0
 magnet:?xt=urn:btih:DA8FA234B5BAAAA43617D538D5505BF6B66A2B19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:DA8FA234B5BAAAA43617D538D5505BF6B66A2B19
 ```bash
 magnet:?xt=urn:btih:BBE3C49439B67C115DE3019771E0D1CDFDC58E70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:BBE3C49439B67C115DE3019771E0D1CDFDC58E70
 magnet:?xt=urn:btih:81F1AA62D69CDF64C0F6CBA4E08FEDC0CA095B50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Carlos Santana Roldan | React 18 Design Patterns and Best Practices, 4th Edition
 ```bash
 magnet:?xt=urn:btih:9F9A1DB8ECDEF050ACFD9A8FAB534C94D2AAEAB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Ajay Reddy Yeruva, Vivek Basavegowda Ramu | End-to-End Observability with Grafan
 magnet:?xt=urn:btih:AE114AAA614611F9500BD195A0A6A1C80DB03AC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Fedor G. Pikus | Hands-On Design Patterns with C++, 2nd Edition (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:519AF27A7BE4B2BF2EC456D33823728FFB248D84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Elías F. Combarro, Samuel González-Castillo | A Practical Guide to Quantum Mac
 magnet:?xt=urn:btih:73EE27B77E3B2F66B8D97C24EDE9D83BF9E5560B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:73EE27B77E3B2F66B8D97C24EDE9D83BF9E5560B
 ```bash
 magnet:?xt=urn:btih:A44BA8D8EF6B69CB0806218836AF4D83C8607B63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:A44BA8D8EF6B69CB0806218836AF4D83C8607B63
 ```bash
 magnet:?xt=urn:btih:40E4E0F3C683153973938CDA03FC754BEF6712F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Download code from (   Читать дальше...   )Жанр: Програм
 magnet:?xt=urn:btih:7819BCCB0FA0E2A90E4A639D3599CAAB878C82D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:7819BCCB0FA0E2A90E4A639D3599CAAB878C82D6
 ```bash
 magnet:?xt=urn:btih:4652149268276289817EDA2E162DECEC8E13F852
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Gregory Walters | Python GUI Programming with PAGE (2023) [PDF][EN]
 magnet:?xt=urn:btih:D1F84DF5354D4A642935390EFCA2A041C4E9DF44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:D1F84DF5354D4A642935390EFCA2A041C4E9DF44
 ```bash
 magnet:?xt=urn:btih:D78974150451FA1CA71D00A68FD13927D9FE8D6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:D78974150451FA1CA71D00A68FD13927D9FE8D6B
 ```bash
 magnet:?xt=urn:btih:B7415E2B44A24272AD05A2627826980114C21A72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

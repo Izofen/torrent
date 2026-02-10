@@ -1,3 +1,145 @@
+###  Публикация: 908847   (628344) от 17.06.2015
+
+Monarchy - 3 Albums + 2 EP + 5 CDM + Singles (2010-2015) [MP3|162-320 кб/с]<Electropop, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628344.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Космос для нас — это большой холст, который позволяет нам выражать свои эмоции. Люди всегда использовали пространство и будущее, чтобы попытаться открыть и понять своё предназначение на земле. Таким же образом и мы используем пространство, чтобы понять, что происходит внутри нас, наши эмоции, отношение друг к другу. К тому же это захватывает, это бегство от повседневности, (   Читать дальше...   )Жанр: Electropop, SynthpopПродолжительность: 07:29:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0605242C25E0F4E69BB1BAB7F7BA8F69C2365A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909445   (628350) от 17.06.2015
+
+Банума - По венам моим - океаны (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. По венам моим - океаны (04:22)
+02. With u (При уч. Кот Балу) (03:45)
+03. Стоп мысли (04:38)
+04. Не хватает фраз (03:13)(   Читать дальше...   )Жанр: PopПродолжительность: 00:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E024F049A05968AD3BF7B31B9D372F8DF235A7B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294512   (628361) от 08.04.2019
+
+Lena - Only Love, L (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. dear L
+02. thank you
+03. private thoughts
+04. scared(   Читать дальше...   )Жанр: Pop, Indie PopПродолжительность: 00:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40901233AD7C2311037FD84C2A3A9F3EAD3E4F4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294535   (628368) от 08.04.2019
+
+Captain & Tennille - Love Will Keep Us Together (1975) CD, Album, Remastered, 2005, Universal Music Special Markets [MP3|320 Kbps] <Pop, Soft Rock, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Will Keep Us Together
+02. Disney Girls
+03. The Way I Want To Touch You
+04. Cuddle Up(   Читать дальше...   )Жанр: Pop, Soft Rock, Female VocalПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC4B082442565C9794C02FE8E144BBE2E8C1F310
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294492   (628373) от 08.04.2019
+
+VA - Ballermann XXL (Die besten Mallorca Party Schlager Hits zum Opening 2019 im Mallorcastyle) (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628373.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Robin - Cordula Grün
+002. DJ Malle - Helikopter 117 (Mach' den Hub Hub Hub)
+003. Axel Fischer - Bella Ciao (Eric van Dust Mix)
+004. Ingo ohne Flamingo - Saufen morgens, mittags, abends(   Читать дальше...   )Жанр: PopПродолжительность: 06:31:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3A6B7312034858E00712D96D4129A780A82FA2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294476   (628376) от 08.04.2019
 
 Lou & Hollywood Bananas - Meet The Ska All Stars: Greatest Hits (1980) LP [MP3|320 Kbps] <Pop, Disco, Ska>
@@ -21,6 +163,8 @@ Lou & Hollywood Bananas - Meet The Ska All Stars: Greatest Hits (1980) LP [MP3|3
 ```bash
 magnet:?xt=urn:btih:B38256E09B5A8AEF24FC507AF2C3A8A5053D6CB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +193,8 @@ magnet:?xt=urn:btih:B38256E09B5A8AEF24FC507AF2C3A8A5053D6CB7
 magnet:?xt=urn:btih:55C59087CA6BB751E5716C0C70B7023780AF20AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +218,8 @@ Britney Spears feat. G-Eazy - Make Me (2016) Single [FLAC|Lossless|WEB-DL|track]
 ```bash
 magnet:?xt=urn:btih:1264EE03FD48E4EA2F89233B33E689B4025FD14D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +248,8 @@ VA - Come and Get It: The Best of Apple Records (2010) Remaster [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:31EF3B31EFEA66F5DEA51D6C606A129E9DD9F0B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -134,6 +284,8 @@ magnet:?xt=urn:btih:31EF3B31EFEA66F5DEA51D6C606A129E9DD9F0B9
 magnet:?xt=urn:btih:530B92DF2AF51AE9A9D5F78E0326F14013EB7EC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -160,6 +312,8 @@ Kany Garcia - Limonada (2016) [FLAC|Lossless|WEB-DL|tracks] <Latin Pop>
 ```bash
 magnet:?xt=urn:btih:29D0D3EBBD2C78E10AE47B6F3B1A0C8EF7BEF092
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +342,8 @@ ESTRADARADA - 3 Singles (2015-2016) [FLAC|Lossless|WEB|tracks] <Pop>
 magnet:?xt=urn:btih:ACE397A8559D2C5A5C2A75DFD17B6077FA4EA37B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +370,8 @@ VA - Summer Wedding 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:EFE1E268727F5E49B0DC0FB7E061251020670EBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +400,8 @@ magnet:?xt=urn:btih:EFE1E268727F5E49B0DC0FB7E061251020670EBB
 magnet:?xt=urn:btih:F364F01E1D2573246512A5541A7C518543E7A963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +428,8 @@ Kim Wilde - The Singles Collection 1981-1993 (1993) Japan Edition [FLAC|image + 
 ```bash
 magnet:?xt=urn:btih:CB0D88065C92D95FBFCCACB952FA18C4A43A7E74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +458,8 @@ CD1
 magnet:?xt=urn:btih:3107373CD3269321FB72CA6DB3326356D09902F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +486,8 @@ CD 01:
 ```bash
 magnet:?xt=urn:btih:999AF2F5DF08471375D4B067116D46261D62B36C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +516,8 @@ CD 01:
 magnet:?xt=urn:btih:BCDB85D50D1FBC062590E8DC65ACFE6E0116F711
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +544,8 @@ Two Man Sound - 2 Albums (1977, 1980) LP [MP3|320 Kbps] <Electronic, Disco, Lati
 ```bash
 magnet:?xt=urn:btih:2D1CAFC73584F3640743BF999E7A4B5A401A71DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +574,8 @@ The Hornettes - девичья группа из Германии - была о�
 magnet:?xt=urn:btih:F21556033E9FC862E85979A7738503506664D132
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +602,8 @@ CD 01:
 ```bash
 magnet:?xt=urn:btih:0BD340D008E915E0BE93E1D409DEC05AF91D6ADB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +632,8 @@ Reba McEntire - Stronger Than The Truth (2019) [MP3|320 Kbps] <Country>
 magnet:?xt=urn:btih:3C8921E281E9A043AC767BB1D794F82D0B1A6699
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +660,8 @@ M People - Best Of (Unknown Year) Unofficial Release [APE|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:A9D054936C41571B8C2B92F2935EDBE25C9CE6E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +690,8 @@ Bananarama - The Greatest Hits Collection (1999) [MP3|320 Kbps] <Europop, Euro H
 magnet:?xt=urn:btih:BE075337903DE1252871C6837D986DEB52EEDE8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +718,8 @@ magnet:?xt=urn:btih:BE075337903DE1252871C6837D986DEB52EEDE8B
 ```bash
 magnet:?xt=urn:btih:E3D7D54AACAC8A01141EE32091B3E049F3000B6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,146 +754,7 @@ Gusttavo Lima - E Voce (2011)(Live) [MP3|320 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:A4D01583042BB518012D4A56E19381FD552052B7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520565   (631435) от 09.07.2012
-
-Medina - Forever (2012) [MP3|320 кб/с]<Pop, Dance, House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever (03:31)
-02. Butterflies (03:41)
-03. Scars (03:39)
-04. Happening 04:03)
-05. Boring (04:02)
-06. Hotels (03:29)
-07. Good To You (04:02)
-08. Close To Nothing 03:52)
-09. Keep Me Hangin' (03:20)
-10. Black Lights(03:45)(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 00:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C43FA30E071F123A49EA8528C00891A150E79F7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143998   (631486) от 20.06.2017
-
-VA - Venti Compilation 3 (2014) 2CD, Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Hi NRG, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Hooker - Nobody Loves Me (Iventi Remix)
-02. Ken Laszlo - S.O.S.(Vocal Version)
-03. Miko Mission - Universal Feeling (Vocal Mix)
-04. Victor Ark - Coming Back (80s Remix)(   Читать дальше...   )Жанр: Italo-Disco, Hi NRG, Synth-popПродолжительность: 02:25:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFAAE7B626D8A2E7FED32C56918DEB7325BBC235
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143992   (631491) от 20.06.2017
-
-Группа Крестьяне.RU - 2 альбома (1999-2000) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Судьба-разлучница (3:48)
-02. Бывшая любимая (3:52)
-03. Маленькая хулиганка (3:54)
-04. Туман (4:14)(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:551EE29E1021A86C21794BF283CC2078A9994654
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908744   (631570) от 15.06.2015
-
-Modern Talking - Greatest Hits Mix (1988) [MP3|320 кб/с]<Euro Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mix 1:
-01. Brother Louie
-02. Geronimos Cadillac
-03. You Can Win If You Want(   Читать дальше...   )Жанр: Euro Disco, PopПродолжительность: 00:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49ADE29541BE8E72555277DBF455164512980028
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143930   (631630) от 20.06.2017
-
-Supersempfft & Roboterwerke - 3 Albums (1979, 1981) LP [MP3|320 Kbps] <Electronic, Space Rock, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Состав: Dieter Kolb, Franz Aumuller.  Вдохновленные веяниями электронной музыки тех лет (Kraftwerk, Telex..), но не потерявшие своей оригинальной изюминки выпустили в одном и том-же составе предлагаемые три примечательных альбома. Последний вышел под новым названием группы, аналогичному названию их первого альбома - RoboterwerkeСписок альбомов:
-1. Supersempfft - 1979 - Roboterwerke
-2. Supersempfft - 1981 - Metaluna
-3. Roboterwerke - 1981 - Futurist(   Читать дальше...   )Жанр: Electronic, Space Rock, Synth-pop, DiscoПродолжительность: 01:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97AC1DFD37A86C96099618BE2D76E746F48047FE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

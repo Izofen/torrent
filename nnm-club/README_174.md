@@ -19,6 +19,8 @@ Relic Hunters Legend - это быстрая RPG в жанре looter-shooter, �
 magnet:?xt=urn:btih:1623ED38B4D93EEE73C0CDCD4791B83F175AA50F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Opera One 121.0.5600.50 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0D7B283D122A8874C03416DB11965BD0A55AD2D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:0D7B283D122A8874C03416DB11965BD0A55AD2D0
 magnet:?xt=urn:btih:0A08AB2F24DEA9E2C32D4FBFC5D149693C952C39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Media Player Classic Home Cinema – удобный во всех планах �
 ```bash
 magnet:?xt=urn:btih:F088268B9AB3B1533BDFE6CB2B11AE65467C3308
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ VA - Hot 20s Big Hits 100 Songs (2025) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:0CA2E2E093734384FEB102C8B8883B21A4E312EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ UsbTreeView - маленькая портативная утилита, реал
 ```bash
 magnet:?xt=urn:btih:9255A5360AE4DF743B17205E9FAB3BF9A94CDD1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:9255A5360AE4DF743B17205E9FAB3BF9A94CDD1E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ AIMP 5.40.2693 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:183A168ED1C1399877F69F88F6707BC70D21992E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:183A168ED1C1399877F69F88F6707BC70D21992E
 magnet:?xt=urn:btih:4F3A76E608C04A452B591EB643DCCAFDF01904A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:4F3A76E608C04A452B591EB643DCCAFDF01904A8
 ```bash
 magnet:?xt=urn:btih:67CD329B9C468B256B78B4411AE75F1F6408B193
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:67CD329B9C468B256B78B4411AE75F1F6408B193
 magnet:?xt=urn:btih:B8B0EB1D2CDDB6914F96E953E12FCA97A7700F10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:B8B0EB1D2CDDB6914F96E953E12FCA97A7700F10
 ```bash
 magnet:?xt=urn:btih:EDC35AD682BD5A07BB81D758E2142A0291C98DB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:EDC35AD682BD5A07BB81D758E2142A0291C98DB1
 magnet:?xt=urn:btih:E22B43833068611A9AF058372CF1FE44842E45A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Linux Mint 22: поддержка до 2029 года, обновленное я�
 ```bash
 magnet:?xt=urn:btih:DC9C592EC0485315EA0BBC06F3AD310528E3C785
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:DC9C592EC0485315EA0BBC06F3AD310528E3C785
 magnet:?xt=urn:btih:88F8FE4B427CF546D9D000F61686370FEA426C49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:88F8FE4B427CF546D9D000F61686370FEA426C49
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Secrets of Grindea – интересная игра-приключение, в 
 magnet:?xt=urn:btih:DBBDF7BA369163B743F90BD81137650D1A98C455
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:EB0D7F3AD240A0EE878BB415882CCC8552F4F729
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Zoochosis (2024) [Ru/Multi] (1.6.8) Repack FitGirl
 magnet:?xt=urn:btih:3420FB314F38658AE517A63EB4C5FCEEDC5456DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ BlazBlue Entropy Effect - двухмерная приключенческая и
 ```bash
 magnet:?xt=urn:btih:C7938472C9C50F3BD0132A451D32A5B8EE2AC18F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:C7938472C9C50F3BD0132A451D32A5B8EE2AC18F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:C7938472C9C50F3BD0132A451D32A5B8EE2AC18F
 ```bash
 magnet:?xt=urn:btih:27FE610B9B4DDD2C0D75D6288B4F47BCB97096FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ Deliver At All Costs – захватывающий экшен, где разр�
 magnet:?xt=urn:btih:CD8D127B10B224608EAF3F4D18981120E0024CF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ magnet:?xt=urn:btih:CD8D127B10B224608EAF3F4D18981120E0024CF6
 ```bash
 magnet:?xt=urn:btih:9AA17C6359C688CE62B862747D6F1FA8428560F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ magnet:?xt=urn:btih:9AA17C6359C688CE62B862747D6F1FA8428560F2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Hell is Us - это приключенческий экшен от третье�
 ```bash
 magnet:?xt=urn:btih:CB573B03BAC9CD4FB21C0F1111B59D4BDF2C3853
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:41541DC25553E2103A8AAAA57DFF047ED0587905
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Angel - Risen (2019) [FLAC|Lossless|image + .cue] <Classic rock>
 magnet:?xt=urn:btih:B0371E5644AE49851B6A24AC235240C276C1AF8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:B0371E5644AE49851B6A24AC235240C276C1AF8B
 ```bash
 magnet:?xt=urn:btih:8FE1A05529AE6B10C07A9E3EC3B5D4A313EEC660
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Ramin Djawadi - Gears 5 (Original Soundtrack) (2019) [MP3|320 кб/с]<Soundtrac
 magnet:?xt=urn:btih:8A087964F5B9963BF193923267D40A955961349C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ VA - Pure Running Hits 2019 Session [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:CA8330466F5345C82CBA55257623D6B58A1ADBD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -153,6 +163,8 @@ The Presidents of the United States of America - II (1996) Japan, 1998 [FLAC|Los
 magnet:?xt=urn:btih:27F6156A9BF9CED68F47B9EEC91BE93443C1B8D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ VA - Ultimate ADE (2019) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:AFC2B7DBC7279F58BA8418E30A630695A9E7FC72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -207,6 +221,8 @@ subtractiveLAD - The Echo and the Man (2019) Stephen Hummel Recordings [FLAC|Los
 magnet:?xt=urn:btih:F5F7E444F0D88723266B32941B54884FCA8DF279
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -233,6 +249,8 @@ Mob Rules - Beast Over Europe (2019) [FLAC|Lossless|image + .cue] <Hard 'n' Heav
 ```bash
 magnet:?xt=urn:btih:BA4478880B0E77CF9DFC84D57B88FE50E7C7BCC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +279,8 @@ Villagers - The Art of Pretending to Swim (2018) [FLAC|Lossless|tracks + .cue] <
 magnet:?xt=urn:btih:394E14284919211973852A7EF3262236B2270D5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +307,8 @@ Herman Frank - Rare Metal (Unreleased Collection) (2019) [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:F47A4B2D297CCD0CFC3B16B9B23417E4B71406A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +337,8 @@ VA - From Disko to Disko (Winter 2018 Compilation) (2018) [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:8247198AF9A5EE6D3B351F8F18E35F1B88BBCE78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ Caecilie Norby - Sisters in Jazz (2019) [FLAC|Lossless|tracks + .cue] <Vocal Jaz
 magnet:?xt=urn:btih:8D5D43541E712DF831947BD39DA2DE22599C0B3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +391,8 @@ SuperDuper! - Утилита для клонирования жесткого д
 ```bash
 magnet:?xt=urn:btih:A04B239CDC433BDA99E2115A70A23FF49748D7E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +421,8 @@ Turnover - Altogether (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 magnet:?xt=urn:btih:A820A6F92B66E0938916F7110E70C0493A4F7BE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +446,8 @@ magnet:?xt=urn:btih:A820A6F92B66E0938916F7110E70C0493A4F7BE2
 ```bash
 magnet:?xt=urn:btih:7375658BF4B11DBA17F48F8BC0D9C71811B8292C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +473,8 @@ QLPro Studio инструмент управления базами данных
 magnet:?xt=urn:btih:DC21FDD147ECEAD7BBD06402B986AB4AAAF9A561
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +498,8 @@ magnet:?xt=urn:btih:DC21FDD147ECEAD7BBD06402B986AB4AAAF9A561
 ```bash
 magnet:?xt=urn:btih:A11F84B732DA010E023453C1A5F4BEFE29A9E6F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +525,8 @@ magnet:?xt=urn:btih:A11F84B732DA010E023453C1A5F4BEFE29A9E6F4
 magnet:?xt=urn:btih:C6A42463D01E0F13C2ED2FE3271F7E2E59E0683D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +550,8 @@ magnet:?xt=urn:btih:C6A42463D01E0F13C2ED2FE3271F7E2E59E0683D
 ```bash
 magnet:?xt=urn:btih:DD4097F05BFB0EF0E38D3D37DC0A3C798C34D5B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +578,8 @@ MediaInfo - программа для получения подробной те
 ```bash
 magnet:?xt=urn:btih:D22F9AFEB2AA571AD73866FF8B68330DB2FA6B49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +608,8 @@ Machine - 2 Albums (1979, 1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 magnet:?xt=urn:btih:8C43438798BEA615EDA1F7C870945F68CECD57BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +636,8 @@ VA - Русская зима. С Новым годом (2016) [MP3|256-320 Kbps]
 ```bash
 magnet:?xt=urn:btih:14CBF8A4B8098726100A2330E1BE37AF4EB0DA02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +666,8 @@ VA - Death In Vegas - Best275z (1997 - 2016) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:8E0272755D23FFBD66208F09258423CC2EED5644
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +691,8 @@ magnet:?xt=urn:btih:8E0272755D23FFBD66208F09258423CC2EED5644
 ```bash
 magnet:?xt=urn:btih:8D88237B1CBBDF90BFAEA6B9E9D0924C05FBE40E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +720,8 @@ VA - Y.S.E. In The Box Vol.9 (2016) [MP3|320 Kbps] <Trance, Goa Trance, Psychede
 ```bash
 magnet:?xt=urn:btih:5C96AE13F5B75179CBCCF3B60B64D9C689E0C337
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

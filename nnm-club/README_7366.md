@@ -22,6 +22,8 @@ Mark Pontin Group - Kaleidoscope (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues, Bl
 magnet:?xt=urn:btih:58A3AC2A17877513FC3E99E97133BBAE2599D4A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:58A3AC2A17877513FC3E99E97133BBAE2599D4A9
 magnet:?xt=urn:btih:0D1700279FAFB7699ABF05A63B4A9DCF3CF8BEE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Waxworks (1992) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:FF2B4DE245A2D6C057BB2AE73E8502069904997E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:FF2B4DE245A2D6C057BB2AE73E8502069904997E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Woodsmith — журнал по столярному делу представл
 ```bash
 magnet:?xt=urn:btih:05B3FC7B201816578D1C341648F2340C92DA9303
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:05B3FC7B201816578D1C341648F2340C92DA9303
 ```bash
 magnet:?xt=urn:btih:76EE5BFA9E06851A25E7BAF4FA2D2B46FF12C94C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ Kaj Pousar - Nine Lives (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 magnet:?xt=urn:btih:B31422815EBA3257CB1F990BEB3C27B147DBB43D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:B31422815EBA3257CB1F990BEB3C27B147DBB43D
 ```bash
 magnet:?xt=urn:btih:54021CF41ACBBD825C4E2C501C53B11A9C6B600C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ Vince Salerno & Gerald McClendon - Blues from All Points (2021) [FLAC|Lossless|W
 magnet:?xt=urn:btih:0068E4C4F16DCE862133FF53AD3B3FCFE00F92F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:0068E4C4F16DCE862133FF53AD3B3FCFE00F92F4
 magnet:?xt=urn:btih:7997D3FC5A20AB3DC0759B43C822F9ADDBAC9FE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:7997D3FC5A20AB3DC0759B43C822F9ADDBAC9FE1
 magnet:?xt=urn:btih:B9B37C61FF145E92528D276FABA8970ACC480083
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ Icecream Screen Recorder - программа, позволяющая вести
 ```bash
 magnet:?xt=urn:btih:C90E94B7CC88F21518E728E752B7E472DC4C1259
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:C90E94B7CC88F21518E728E752B7E472DC4C1259
 magnet:?xt=urn:btih:B85C9FF5F0B142A56617D4CBA96AE9DFB51BC9BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:B85C9FF5F0B142A56617D4CBA96AE9DFB51BC9BD
 magnet:?xt=urn:btih:BBA54AAAC389A18FCE9B7F1B3AD49508DBF87DA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:BBA54AAAC389A18FCE9B7F1B3AD49508DBF87DA5
 magnet:?xt=urn:btih:2F39B77517E6C0B339B7DEE9C8D1F413AA685004
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:2F39B77517E6C0B339B7DEE9C8D1F413AA685004
 ```bash
 magnet:?xt=urn:btih:C8E8474FCE99CA8060160F00E3A13BB4F2696891
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ Twinky - Dead Generation (2023) [MP3|320 Kbps] <Alternative Rock>
 magnet:?xt=urn:btih:1A33222563D1AC1E6907D80260C5C6C745B1ACEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ BluffTitler - программа для создания красивых тек
 ```bash
 magnet:?xt=urn:btih:E735191E9C6C194428118733F24141C2D0039383
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:E735191E9C6C194428118733F24141C2D0039383
 magnet:?xt=urn:btih:C9FC33EDDACC8A4941416CCA13F0CCD5F4C9E658
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:C9FC33EDDACC8A4941416CCA13F0CCD5F4C9E658
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:C9FC33EDDACC8A4941416CCA13F0CCD5F4C9E658
 ```bash
 magnet:?xt=urn:btih:738460D9F2D798E0B282CF207610EA0CDD11D7C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:738460D9F2D798E0B282CF207610EA0CDD11D7C6
 magnet:?xt=urn:btih:C2C4938DB2DC5E4D38FFCD70682FE79853FCB1DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:C2C4938DB2DC5E4D38FFCD70682FE79853FCB1DD
 ```bash
 magnet:?xt=urn:btih:9133AFD94EDDD2E22E3E9F9452276EE35FD1DD91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ Ellereve - Reminiscence (2023) [FLAC|Lossless|WEB-DL|tracks] <indie rock, altern
 magnet:?xt=urn:btih:D5CDC14E05F3A11170C23EE88BFCB5B2D91F4E64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:D5CDC14E05F3A11170C23EE88BFCB5B2D91F4E64
 ```bash
 magnet:?xt=urn:btih:195C612314855350C4B4CA42767F988CBB3BFDC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:195C612314855350C4B4CA42767F988CBB3BFDC6
 ```bash
 magnet:?xt=urn:btih:14CD2D98F27DCC2D6C1778E9730F2C66B410E919
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:C69FE6AD3568BF3A45BB027D9A863FBE8038A45F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ MediaInfo — программа для получения подробной т
 ```bash
 magnet:?xt=urn:btih:023A8F8F90BE2E63450CEE7741BF4A42FA22FF26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:023A8F8F90BE2E63450CEE7741BF4A42FA22FF26
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:023A8F8F90BE2E63450CEE7741BF4A42FA22FF26
 ```bash
 magnet:?xt=urn:btih:C8E8F936013E257673464548CDC3055E734EEB9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ n-Track Studio Suite 10.0..0 Intel/ARM [Multi/Ru]
 magnet:?xt=urn:btih:9597A4635DE0E2F5C0C4CAD3B9175130B63B325D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:9597A4635DE0E2F5C0C4CAD3B9175130B63B325D
 magnet:?xt=urn:btih:B5388C1D6F202DF9F9A8712737C5063F0AAC088D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ GPU-Z - бесплатная программа от TechPowerUp для отоб
 magnet:?xt=urn:btih:9CA501AA41474214A1C02DC2DEDD820BFD8B46CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:9CA501AA41474214A1C02DC2DEDD820BFD8B46CE
 ```bash
 magnet:?xt=urn:btih:853A529475FEDEF003C8E1EA6AA4F9ACFFDBA001
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Resistance - Skulls Of My Enemy (2022) [FLAC|Lossless|image + .cue] <Power, Thra
 magnet:?xt=urn:btih:7B756C8D88070206765803329BF7628414463EF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ Every Ray Charles album post-1960 is represented here, along with singles not av
 magnet:?xt=urn:btih:893BADE8258144D89AAB6A7EB2EFD3D3E7781985
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ Valentina Studio - это идеальный инструмент управле
 magnet:?xt=urn:btih:264457B60F5E97FCEB5E33BDF90EDC869795B784
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Disney | Раскраски для детей от Disney (2010) [Сборник
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ Ofyr - Disconnected (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Roc
 magnet:?xt=urn:btih:0E88A2228662AE53EF85B7D51680F9314B635DDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ OTUS, Павел Пархомец и др. | Безопасность веб-п�
 ```bash
 magnet:?xt=urn:btih:CC3FC060BB78C50E73CE3679FD82EB3693F1DB83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ Extrema - Tension At The Seams (2007) 30th Anniversary Edition, 2023, Extrematea
 magnet:?xt=urn:btih:E9160494F048B6CFDC085E757413253A458F97D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ Clubhouse Games: 51 Worldwide Classics (2020) [Switch] [USA] 10.2.0 [NSP] [Licen
 ```bash
 magnet:?xt=urn:btih:144C4BEC9DE697B0F5E61545A22358451B6EC606
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ iNet показывает устройства, подключенные к ва
 magnet:?xt=urn:btih:76A260DAA3FAF259940EEC9C1076B29E048DD4E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ Codim.online, Денис Голиков | Программирование Minec
 ```bash
 magnet:?xt=urn:btih:9EC3DCF6872A3A1C1B6FFA6D7CDAC363CBC58043
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ Dismember - Death Metal (1997) Remaster, 2023, Nuclear Blast Records [FLAC 24/44
 magnet:?xt=urn:btih:D43C1811093839ABBC69D686A85EE086A91DB282
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ VA - Не спи за баранкой 3 (Музыка в машину) (2020) [
 magnet:?xt=urn:btih:441C44A2E598E7AF97298D89D5A13A9BE56123ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ Dash - очень удобное приложение, включающее в �
 ```bash
 magnet:?xt=urn:btih:FABFA056A90C16053C72EC0F65273C81A5AAD979
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ magnet:?xt=urn:btih:FABFA056A90C16053C72EC0F65273C81A5AAD979
 magnet:?xt=urn:btih:FA530FE9A3E784A0D72112322266D47776EA5694
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ GraphicConverter 11 — полнофункциональный графичес�
 ```bash
 magnet:?xt=urn:btih:B1CD3F955BB68E48223977B682924C98A711F265
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ VA - Music News vol.229 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:C254C454F5358061CADC77980781B7CA877724C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:C254C454F5358061CADC77980781B7CA877724C5
 ```bash
 magnet:?xt=urn:btih:FFDA42ED78BA24F54B9D5DF498977D6E5080C4B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +700,8 @@ magnet:?xt=urn:btih:FFDA42ED78BA24F54B9D5DF498977D6E5080C4B1
 ```bash
 magnet:?xt=urn:btih:65A04B93699058F8508633E064D636D1C21A63E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

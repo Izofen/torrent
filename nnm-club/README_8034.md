@@ -20,6 +20,8 @@ Text Workflow 1.0.7 [En]
 magnet:?xt=urn:btih:D0F595507A3EE21E86FC11B67E7B5F6CE8025143
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ VA - Coldharbour Miami 2017 Exclusive Sampler (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:B34BCCC2E126AD59962C6E4A99BC1745141909F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:B34BCCC2E126AD59962C6E4A99BC1745141909F0
 ```bash
 magnet:?xt=urn:btih:BF803770A65136601641A185426E1360BC9372DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ VA - German Top 100 Single Charts 24.04.2020 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:3E4B4CE173C7589170351B1484AA949BFAF17360
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ Ellie Goulding - Higher Than Heaven (2023) [FLAC|Lossless|tracks + .cue] <Pop>
 magnet:?xt=urn:btih:B210575377F1F55FF84739CEB23B214233897590
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:B210575377F1F55FF84739CEB23B214233897590
 ```bash
 magnet:?xt=urn:btih:ECA790D39C17682C043FEDF3166103DEFEB43FAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ WonderPen - приложение для как для профессиональ
 magnet:?xt=urn:btih:E7E5BCB3B53E477D9969A80A130CF21C645AB130
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:E7E5BCB3B53E477D9969A80A130CF21C645AB130
 ```bash
 magnet:?xt=urn:btih:3B203E0EC8E3D1D975F6DBEC34A996095EE3FEEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ VA - TFB Records Best of 2016 Part 2 (Mixed by J-Host) (2017) [MP3|320 Kbps] <Tr
 magnet:?xt=urn:btih:3D16A739218FB913B4868A6AC8A5C8A51FE2DC0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:3D16A739218FB913B4868A6AC8A5C8A51FE2DC0C
 magnet:?xt=urn:btih:ADEBFCA4F635EEA646DD855684670B481800A3EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:ADEBFCA4F635EEA646DD855684670B481800A3EC
 ```bash
 magnet:?xt=urn:btih:406FC4FC639B5F5CBDD525502DB05978F1336493
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ Mondocane - Project One (1990) Remastered, 2013 [FLAC|Lossless|image + .cue] <Th
 magnet:?xt=urn:btih:B7DF2194B5DA05CAC6E3A8B9D3A333A1F67383F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:B7DF2194B5DA05CAC6E3A8B9D3A333A1F67383F8
 magnet:?xt=urn:btih:2E2DF872A6A9EC0CDD603DDB62AE0EC8EE68D1D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:2E2DF872A6A9EC0CDD603DDB62AE0EC8EE68D1D9
 magnet:?xt=urn:btih:75037E032C622C251F7B3477FE2E300BA475579A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:75037E032C622C251F7B3477FE2E300BA475579A
 ```bash
 magnet:?xt=urn:btih:13FA6EE289621FD6B00F4A6D808015E6522EEF9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ CD - 1 - Sudden Impact (Expanded):
 magnet:?xt=urn:btih:08B2B19D0311C89BCEC7529A3E17CCF63528491B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ Hollow Knight 1.0 (Unofficial port) Mod by Dan Cooper [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:76575621C5FA527A94D3014415FC6A7F0B2CBFD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:76575621C5FA527A94D3014415FC6A7F0B2CBFD3
 magnet:?xt=urn:btih:21D798762F5F5EE97B4C7BDE3441512B6CBBB332
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ Super PhotoCut интерактивный инструмент для вырез
 ```bash
 magnet:?xt=urn:btih:D4A0AA6377D1C9D498EBCD432B6B94E039FFBB39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ magnet:?xt=urn:btih:D4A0AA6377D1C9D498EBCD432B6B94E039FFBB39
 magnet:?xt=urn:btih:21EE6B12B4056E733DA62EDFD5649EF022E3B772
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:21EE6B12B4056E733DA62EDFD5649EF022E3B772
 ```bash
 magnet:?xt=urn:btih:197323D6193746F8A67A1DA9E01C2348CFAB4647
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:197323D6193746F8A67A1DA9E01C2348CFAB4647
 magnet:?xt=urn:btih:81C92F91A68A5B4B0102D185C8918117F12E0FB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:81C92F91A68A5B4B0102D185C8918117F12E0FB5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:81C92F91A68A5B4B0102D185C8918117F12E0FB5
 ```bash
 magnet:?xt=urn:btih:DF294E3E13C7301A4F2EBACFC6A60D163406856A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ Ulcerate - Stare Into Death And Be Still (2020) [FLAC|Lossless|tracks + .cue] <T
 magnet:?xt=urn:btih:5D195192857018986690CAFD6E355A74444DC8AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ Rezn - Solace (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych Stoner Doom>
 ```bash
 magnet:?xt=urn:btih:A52039580711EFAA48DB2EDE048A1B7874C2A8DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

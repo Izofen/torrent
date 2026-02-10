@@ -19,6 +19,8 @@ Wrap House Simulator ставит игроков во главе их собст
 magnet:?xt=urn:btih:29F0431F924349C3C3E4FC45300E90BE2694BD26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:29F0431F924349C3C3E4FC45300E90BE2694BD26
 ```bash
 magnet:?xt=urn:btih:B8E66EB4AAA237D6BC25B3E7BC757B6BF7FBF831
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ RarmaRadio - программа для прослушивания и запис�
 magnet:?xt=urn:btih:B765F7C40666F84137988638BBAB8E79A07CE243
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:B765F7C40666F84137988638BBAB8E79A07CE243
 ```bash
 magnet:?xt=urn:btih:DF290A66981967BA6EEF130D151A53789470F630
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:DF290A66981967BA6EEF130D151A53789470F630
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:DF290A66981967BA6EEF130D151A53789470F630
 magnet:?xt=urn:btih:188567D25C57D17A2AA87B06EA40299C101614F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ magnet:?xt=urn:btih:188567D25C57D17A2AA87B06EA40299C101614F4
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Futurephonic - Rhythmizer Fusion 1.0.2 CLAP, VSTi 3 (x64) RePack by TCD [En]
 magnet:?xt=urn:btih:27C535B071AF574D8036F619CD56098E5D92CE9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ TikTok - социальное приложение для тех кто пред
 magnet:?xt=urn:btih:8AEB390C1D47F05D763A679D987BB15691EB68DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:8AEB390C1D47F05D763A679D987BB15691EB68DF
 ```bash
 magnet:?xt=urn:btih:03F83378DEF9A2B11BB934A52F8245469A916C22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:03F83378DEF9A2B11BB934A52F8245469A916C22
 magnet:?xt=urn:btih:BAF0CAA66C7A35DD102249F3546E6FE12D5827B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:BAF0CAA66C7A35DD102249F3546E6FE12D5827B3
 ```bash
 magnet:?xt=urn:btih:098B032D4178BE1662BDC7675928AE455C24C799
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:098B032D4178BE1662BDC7675928AE455C24C799
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Fable Hospital (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3E0F92D4C2E6F07C0DF2C287B29D50B756EB13D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ BBC: Млекопитающие / Mammals (2024) WEBRip [H.264/1080p] (сезо�
 magnet:?xt=urn:btih:212D12E1F7A24872CDCA5FCC2992899A1A7B54C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:212D12E1F7A24872CDCA5FCC2992899A1A7B54C9
 magnet:?xt=urn:btih:73B1CF2702790E081E59094973A3B490F03832AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Adobe Audition - Программа для работы с аудио-данны
 ```bash
 magnet:?xt=urn:btih:C2DD498048C44C49255C829145813B2F77283A02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:C2DD498048C44C49255C829145813B2F77283A02
 magnet:?xt=urn:btih:1FF741D3432C63A59EA5F1398F70CEECAA1723DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:1FF741D3432C63A59EA5F1398F70CEECAA1723DE
 ```bash
 magnet:?xt=urn:btih:6D4830FA863C1FA5EED47DCC427851839B4B6B71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:6D4830FA863C1FA5EED47DCC427851839B4B6B71
 magnet:?xt=urn:btih:C949CEFE023D41B68A941C16DEDEF378C8FB7D09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:C949CEFE023D41B68A941C16DEDEF378C8FB7D09
 ```bash
 magnet:?xt=urn:btih:56981491DBCC66DF8A7D7F1B725A2625004F53BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ VA - Motivation Mix 9 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:B983085694F08ABFB0EE5832AC0D693AC7BE2D6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:B983085694F08ABFB0EE5832AC0D693AC7BE2D6D
 magnet:?xt=urn:btih:9B58BCF47DC9AEA78056B869D07474222CBFAD88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:9B58BCF47DC9AEA78056B869D07474222CBFAD88
 ```bash
 magnet:?xt=urn:btih:87A48A37BFC31A15EE61B7D372E9D7ED0EE362AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ magnet:?xt=urn:btih:87A48A37BFC31A15EE61B7D372E9D7ED0EE362AE
 magnet:?xt=urn:btih:E00F282F2EFBAEC4E73B028640ADD884A0EFF662
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Astro Colony – симулятор с элементами песочницы, 
 ```bash
 magnet:?xt=urn:btih:30994CB11EC03898651143C34B28BE0922583285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

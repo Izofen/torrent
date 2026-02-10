@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:2AAF70346BA0C8B4E1F22EC95B5336432FFABB5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:2AAF70346BA0C8B4E1F22EC95B5336432FFABB5C
 ```bash
 magnet:?xt=urn:btih:F14913016B16DEF7A57DFB36C485970A95F3AD00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Night of the Dead - выживастик от третьего лица в от�
 magnet:?xt=urn:btih:D0C6EA15841931B4F378C29E0988209F7D9495A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:D0C6EA15841931B4F378C29E0988209F7D9495A2
 ```bash
 magnet:?xt=urn:btih:9C4ED3AE859207CE758B7E3979409C9902811B4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Jujutsu Kaisen (2023) | Jujutsu Kaisen Season 2 | Магическая битв�
 magnet:?xt=urn:btih:48E33A0634CD80AD078E586BA8BEB2A8E96170A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:48E33A0634CD80AD078E586BA8BEB2A8E96170A8
 ```bash
 magnet:?xt=urn:btih:5C86888519A3CB6C3783B3CEC1189053EAE64CDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:5C86888519A3CB6C3783B3CEC1189053EAE64CDA
 magnet:?xt=urn:btih:22C0D618ABAB0B3EA0FC282FBF93797709B2247D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:22C0D618ABAB0B3EA0FC282FBF93797709B2247D
 ```bash
 magnet:?xt=urn:btih:5C1A7A0DDAF25AC765E4FAE2E86BA27762E36D99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ With Head First Python, you’ll quickly grasp Python’s fundamentals, working 
 magnet:?xt=urn:btih:D709CBC5FE019F9E9A49CF134C08740868A1CE27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Venatrix (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3AF72B20611B7890B60E34D7A28FB688A49CBEF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:3AF72B20611B7890B60E34D7A28FB688A49CBEF6
 magnet:?xt=urn:btih:8B0ABD93ED8D1DBBE7853142F8509AEB4B21D96F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ PSIM - программа для проектирования и моделир�
 ```bash
 magnet:?xt=urn:btih:C8F8E77C77B2332113CB6335495B4FFBDE2C5C6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:C8F8E77C77B2332113CB6335495B4FFBDE2C5C6E
 magnet:?xt=urn:btih:FCEB31DD56B784FEA4D97DF2D55B15FE3946FD3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Thriving City: Song предлагает перенестись в прошло�
 ```bash
 magnet:?xt=urn:btih:F27BC690C7743B5B1D10571D39C8D17F51E18221
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:F27BC690C7743B5B1D10571D39C8D17F51E18221
 magnet:?xt=urn:btih:BF317C7C958849F2DB6DFD24862485D1D2995FE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Little-Known Galaxy - приключенческая RPG с элементами
 ```bash
 magnet:?xt=urn:btih:CCFD2ED81007EA6EF01A74B518198E5D2D9F21A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:CCFD2ED81007EA6EF01A74B518198E5D2D9F21A3
 magnet:?xt=urn:btih:330FD776C6E389B60ABB497EFBA7CB15BA74D390
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:330FD776C6E389B60ABB497EFBA7CB15BA74D390
 ```bash
 magnet:?xt=urn:btih:41E90D3192AF51492F23DC3308708B16510D2F95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:41E90D3192AF51492F23DC3308708B16510D2F95
 magnet:?xt=urn:btih:B983788314C0788AA4585315C25F951969862A2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ FBReader Premium v3.7.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6FCB3E274F0A359EE1D9DB993108EF09A78EE5C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ Cent Browser является усовершенствованной верси�
 magnet:?xt=urn:btih:7A1FED890B9F7CDDF31D103B814C27C0BCC1F553
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ Esports Godfather (2024) [Multi] (1.0.10) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A99C7EF309EE8C1CEE99752B8996A9E074D5284A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ magnet:?xt=urn:btih:A99C7EF309EE8C1CEE99752B8996A9E074D5284A
 magnet:?xt=urn:btih:E7ACF6FB188BD3C65A97D489619442E8D7632522
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ Lesson Learned – вы, будучи школьником, переносите
 ```bash
 magnet:?xt=urn:btih:2BE9096D050D633B4DD34DD0B7FDB26F554F84C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ Echoes (2024) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:43996294F446E1AF560D50D6063B02BD6D29F091
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ magnet:?xt=urn:btih:43996294F446E1AF560D50D6063B02BD6D29F091
 ```bash
 magnet:?xt=urn:btih:8A9508F7D1235F9BFA5E1872D1E9BF785362124A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

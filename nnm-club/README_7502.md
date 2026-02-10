@@ -19,6 +19,8 @@ Ctrl + Paint, Matt Kohr | Costume Design (2016) PCRec [En, Ru]
 magnet:?xt=urn:btih:CCBA5718719E5A0CB7946465B9C68EDFC84E409C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:CCBA5718719E5A0CB7946465B9C68EDFC84E409C
 magnet:?xt=urn:btih:1A844D9BB1DA18F800DE2CA55DFCA357F052B84D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:1A844D9BB1DA18F800DE2CA55DFCA357F052B84D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Bryndin (Брындин) - 4 Albums (2018-2022) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:ECAA0577686A15627CF215B34BE90B144CE095B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:ECAA0577686A15627CF215B34BE90B144CE095B4
 ```bash
 magnet:?xt=urn:btih:D1586651FF3F6FC6E732E24F6746711C54C42AF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Topaz Video Enhance AI – это совершенное новое решени
 magnet:?xt=urn:btih:B7D451B6FCD8798E79A74567C64DFC559FC8D2FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:B7D451B6FCD8798E79A74567C64DFC559FC8D2FE
 ```bash
 magnet:?xt=urn:btih:868DFE9D66F7B6C3E2FA23D4DE91A40E2FE1C2EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Movavi Video Editor Plus 2020 v20.0.1 [Multi/Ru]
 magnet:?xt=urn:btih:834032AFF73A21932C8B2B96926CDB957DF86EDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:834032AFF73A21932C8B2B96926CDB957DF86EDB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ The Dead Daisies - Radiance (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 magnet:?xt=urn:btih:02EBAB8912FA37C763A0BA493580BE3E640F67C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ PhotosRevive автоматически раскрашивает ваши ста
 magnet:?xt=urn:btih:97AEADE9DAFF0DAAC77E3A2ABA167AEF9F79B101
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:97AEADE9DAFF0DAAC77E3A2ABA167AEF9F79B101
 ```bash
 magnet:?xt=urn:btih:1975334BA9ED2EDB3B0687B1B3A51F97998EC22B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Square Home - Launcher: Windows style
 magnet:?xt=urn:btih:A0A19D785771D37BE3D1B8FFFF7BDDE9B28660EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:A0A19D785771D37BE3D1B8FFFF7BDDE9B28660EB
 ```bash
 magnet:?xt=urn:btih:2DF095C1488823493B8D906E660CC0B2CEAA61FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ The Samurai Of Prog - The Spaghetti Epic 4 (2022) [MP3|320 Kbps] <Progressive Ro
 magnet:?xt=urn:btih:8AFDE0FA4DF9AAF45C3884D338069D3238A36DF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ Seal Fur Peeling - Daggers Predacious (2023) [FLAC|Lossless|WEB-DL|tracks] <Deat
 magnet:?xt=urn:btih:682BE6DF10EA66526FBDEC621A9B3E4452A969F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ Stereo & Video первым встречает и представляет са�
 ```bash
 magnet:?xt=urn:btih:6C39A2DEFFA6A254B9E72D69A48B494BE2C49EFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ XnView MP - мощное многофункциональное приложен
 magnet:?xt=urn:btih:5C34C1EDB5D77D44AB728E1971A746E1334C9062
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ Malwarebytes Anti-Exploit защищает от известных и неизв
 ```bash
 magnet:?xt=urn:btih:3B757DF804FD6685E292C94FBD3F68180A4D25E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:3B757DF804FD6685E292C94FBD3F68180A4D25E6
 magnet:?xt=urn:btih:FEF13B91B4DC18C08E23C4B9D5DA17C244D1F682
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ Colibri поддерживает воспроизведение всех поп�
 ```bash
 magnet:?xt=urn:btih:CBFDDE8FFB9DE5CF57C6DB5FD23E34B805BA2F5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ DaisyDisk - утилита которая весьма необычным обр
 ```bash
 magnet:?xt=urn:btih:43FD92DB8EB6445FEBE9B734E312BF7A859D5DC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ The Sextape - Prelude (2022) [MP3|320 Kbps] <Garage Rock>
 magnet:?xt=urn:btih:A869F2797D542F03C488E918CE41A89F85E35233
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:A869F2797D542F03C488E918CE41A89F85E35233
 ```bash
 magnet:?xt=urn:btih:34612E5C6B3B6939DDC9F74F8270DBEAD95AEEA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +664,8 @@ Udemy, Neil Bettison | Создание научно-фантастическо�
 magnet:?xt=urn:btih:FE6CD4C8495373CFA95BD9F1D7AACFB3D5BD1BE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ SponsorBlock — это краудсорсинговое расширение д
 ```bash
 magnet:?xt=urn:btih:661C574BAF40FFC73FB440675A76936079EBAEFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

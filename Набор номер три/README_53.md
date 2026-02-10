@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Microsoft® Windows® 10 Enterprise LTSC 2021 x86-x64 21H2 RU by OVGorskiy 08.20
 magnet:?xt=urn:btih:C2772EB47FD76C13A3D02641E7AC3CC8F0112E72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:C2772EB47FD76C13A3D02641E7AC3CC8F0112E72
 ```bash
 magnet:?xt=urn:btih:125C4080CB9E7849D796E6E07E1900B382BBB0FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ GoodbyeDPI 0.2.3rc1 Launcher 8.2 [Ru/En]
 magnet:?xt=urn:btih:381BF1618E6F790C505D2CD274976240A1A8834B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Rutube запустил сервис для «переезда» из YouTube
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ DiskStation Manager 7.2.1 - это оптимизированный пользо
 magnet:?xt=urn:btih:39A2B915A9276B415EA76D454E34076E4239D755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Microsoft сняла ограничение на максимальный раз
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Mount & Blade II: Bannerlord представляет собой долгожд�
 magnet:?xt=urn:btih:50C0259F395B2A0AAF745138ECA2FC24C53C5C42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:50C0259F395B2A0AAF745138ECA2FC24C53C5C42
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:50C0259F395B2A0AAF745138ECA2FC24C53C5C42
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Google могут разделить: Минюст США думает, как �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Google могут разделить: Минюст США думает, как �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Google могут разделить: Минюст США думает, как �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ ByeDPI for Android 1.0.2 [En]
 magnet:?xt=urn:btih:9EA918C421F067A4608F31857B3CB257772FD48C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Ghost of Tsushima (2024) [Ru/Multi] (1053.7.0809.1937/dlc) Repack Decepticon [Di
 ```bash
 magnet:?xt=urn:btih:4DA8A6DA614EF8EF5E6FC1DA1F0E45ED6B9A1241
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ ru-ru_windows_11_business_editions_version_23h2_updated_june_2024_x64_dvd_2e9bed
 magnet:?xt=urn:btih:973E6FD7E4B45F53EF9AA6FD512DF3085491805C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:973E6FD7E4B45F53EF9AA6FD512DF3085491805C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Google полностью отключил монетизацию для рос�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Google полностью отключил монетизацию для рос�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ MultiBoot USB by Gamida 2024 (11.08.2024) [Ru/En] (авторская обнов
 magnet:?xt=urn:btih:F817D8E0A62A4F88E3C16ED3444EFDC858F150CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:F817D8E0A62A4F88E3C16ED3444EFDC858F150CF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:F817D8E0A62A4F88E3C16ED3444EFDC858F150CF
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:F817D8E0A62A4F88E3C16ED3444EFDC858F150CF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:F817D8E0A62A4F88E3C16ED3444EFDC858F150CF
 ```bash
 magnet:?xt=urn:btih:B6C667936B7D5B53F74A536EBAEC3786E8DF2357
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ GoodbyeDPI 0.2.3rc1 Launcher 8.1 [Ru/En]
 magnet:?xt=urn:btih:93BA050E23E7C82D2C4AD11BEA6E9F0B20275A19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:93BA050E23E7C82D2C4AD11BEA6E9F0B20275A19
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

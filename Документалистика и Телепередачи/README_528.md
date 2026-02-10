@@ -1,3 +1,29 @@
+###  Публикация: 1530184   (729804) от 10.02.2022
+
+Водаабе - пастухи солнца / Wodaabe - Die Hirten der Sonne (1989) DVDRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о племени кочевников водаабе с южного края пустыни Сахары. У водаабе почти нет материальных ценностей, кроме коров, коз и вьючных животных. В прошлом яркий и самобытный народ ныне ведет практически нищенское существование, перебиваясь случайными заработками и выживая за счет разведения домашнего скота. Но даже такой низкий уровень жизни не смог разрушить культуру (   Читать дальше...   )Производство: Германия, Франция, Arion Productions, Canal+, France 2, Les Films Ariane, Süddeutscher Rundfunk (SDR), Werner Herzog FilmproduktionЖанр: документальный, познавательныйРежиссер: Вернер ХерцогПеревод: одноголосый авторский (Антон Алексеев)Субтитры: русские, английскиеПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE368FF023180C2590E4A3E44F0BBA59CE9720AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283935   (729816) от 20.02.2019
 
 Дорога к звёздам (1957) WEB-DLRip [H.264]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:EF95C9B7DDE94F24774AD82BE44F7766EB624443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:EF95C9B7DDE94F24774AD82BE44F7766EB624443
 magnet:?xt=urn:btih:11BED1EB929B9E12E4087229570B48878D84493C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:11BED1EB929B9E12E4087229570B48878D84493C
 ```bash
 magnet:?xt=urn:btih:9F900EAEC609809ABEAF6555AC132E96175EFD2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:9F900EAEC609809ABEAF6555AC132E96175EFD2F
 magnet:?xt=urn:btih:8EE930CB65BF525A652DC1F538338585FB9D910C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:8EE930CB65BF525A652DC1F538338585FB9D910C
 ```bash
 magnet:?xt=urn:btih:DE22FCCA08F5FB1C311CB391CDAD3378BFFABAFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:DE22FCCA08F5FB1C311CB391CDAD3378BFFABAFB
 magnet:?xt=urn:btih:D428E81C51776A8A4718F1BBB2667A336531D623
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:D428E81C51776A8A4718F1BBB2667A336531D623
 magnet:?xt=urn:btih:C89991009655A73576F46E1EE91967AA7017A15A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:C89991009655A73576F46E1EE91967AA7017A15A
 ```bash
 magnet:?xt=urn:btih:1E702197FBCF8E21E1076E2CFBE25B3ADC3C0B08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:1E702197FBCF8E21E1076E2CFBE25B3ADC3C0B08
 magnet:?xt=urn:btih:3E2EAC6908B4F121B8474F4451D03119AC2379FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:3E2EAC6908B4F121B8474F4451D03119AC2379FA
 ```bash
 magnet:?xt=urn:btih:E9F995959AC0FF5477365520B25C8EFB03EFE8A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:E9F995959AC0FF5477365520B25C8EFB03EFE8A7
 magnet:?xt=urn:btih:279FD51AE160A2129E4784BEB29A49A094C838D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:279FD51AE160A2129E4784BEB29A49A094C838D8
 ```bash
 magnet:?xt=urn:btih:C13F87FBDAC8E4BEE9568C47B61FE18BAE574735
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:C13F87FBDAC8E4BEE9568C47B61FE18BAE574735
 magnet:?xt=urn:btih:5610CDE2C1A65CED2B030325F23B949432E32EE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:5610CDE2C1A65CED2B030325F23B949432E32EE8
 ```bash
 magnet:?xt=urn:btih:072607DB974FF3AAF8C4737C73817893AC18C318
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:072607DB974FF3AAF8C4737C73817893AC18C318
 magnet:?xt=urn:btih:DCD8512B7FD633D4192CE870357FA9F8437EE21B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:DCD8512B7FD633D4192CE870357FA9F8437EE21B
 ```bash
 magnet:?xt=urn:btih:9633C9EE1B59286511481633895F95A1F18130D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:9633C9EE1B59286511481633895F95A1F18130D9
 magnet:?xt=urn:btih:B04447D424E6A02C6FCC20CACE62C4610AF5730A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:B04447D424E6A02C6FCC20CACE62C4610AF5730A
 ```bash
 magnet:?xt=urn:btih:934142F042F4BB82C4986FA57A0C4375A18312B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:934142F042F4BB82C4986FA57A0C4375A18312B6
 magnet:?xt=urn:btih:FF965577EE1BD3926A2B40E509FF4CB0F7EBF0FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:FF965577EE1BD3926A2B40E509FF4CB0F7EBF0FC
 ```bash
 magnet:?xt=urn:btih:972F09D09A866D70321130A065618A365855D8E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:972F09D09A866D70321130A065618A365855D8E3
 magnet:?xt=urn:btih:CAFFC26B29DF2E4DE5060B1A8B9402F25662463A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:CAFFC26B29DF2E4DE5060B1A8B9402F25662463A
 ```bash
 magnet:?xt=urn:btih:5F68D88D990878479FCCEF1A78C34C57969AE560
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:5F68D88D990878479FCCEF1A78C34C57969AE560
 magnet:?xt=urn:btih:A24F9028A0159D45637C6339B06F4D7BC4A3CE57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:A24F9028A0159D45637C6339B06F4D7BC4A3CE57
 ```bash
 magnet:?xt=urn:btih:29CAADA575163DC3CDF75A93F2DAE2E793D91FB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,29 +673,7 @@ magnet:?xt=urn:btih:29CAADA575163DC3CDF75A93F2DAE2E793D91FB1
 magnet:?xt=urn:btih:DFF96BC7004DE1574630678BD303EFDE6303C811
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128206   (730037) от 23.04.2017
-
-Звезды сошлись (2017.04.23) SATRip (выпуск 1)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждую неделю по воскресеньям в центре дискуссии нового остро-звездного проекта НТВ может оказаться все, кроме политики. То, о чем вся страна говорит на кухне, спорит на форуме или судачит на скамейке у дома — от новой фотосессии известной балерины до неожиданного рождения детей от суррогатной матери у очередного артиста, от скандала в Instagram до свадьбы или развода (   Читать дальше...   )Производство: НТВЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:27:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2B7D65BA7F419EAC04CE89B9CB12BA611822B3D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

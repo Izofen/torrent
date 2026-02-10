@@ -19,6 +19,8 @@ Windows 10, Version 20H2 with Update [19042.685] AIO 64in2 (x86-x64) by adguard 
 magnet:?xt=urn:btih:14A739EA8D6D307B1951B831935DFBF48672FA09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Windows 10 Enterprise 2019 LTSC with Update [17763.1637] AIO 4in2 (x86-x64) by a
 ```bash
 magnet:?xt=urn:btih:9868A69275B83131F70B4F67EB865C4C3AD213D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Windows 11 - это серия операционных систем, разра
 magnet:?xt=urn:btih:231235E12576F169F4D25426F22503398F964946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Windows 10/11 x64 (18in1) by Updated Edition (18.10.2023) [Ru]
 ```bash
 magnet:?xt=urn:btih:414B06E35B0E269165D5084F78C7EA437CD770BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Windows 10 2022 Update (под кодовым названием "22H2") это 
 magnet:?xt=urn:btih:989125DB9C18B8DB3F3506DA957BB918EFFD3B76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Windows Server 2022 впервые обеспечивает расширенну
 ```bash
 magnet:?xt=urn:btih:221EF143001556763D315B4A4760CAE8C2ED27AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Windows 10 2022 Update (под кодовым названием "22H2") это 
 magnet:?xt=urn:btih:FD431996A2C6B83552BAE4BBB732C9B804BE2593
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:2209FAFA4D4BBFA860B3BE6E083B3AAC98D12ED6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Windows 11 (9in1) by Updated Edition (12.10.2023) [Ru]
 magnet:?xt=urn:btih:0DB421731E0EABF16110BAAA9EF002A91A212C4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Windows 11 - это серия операционных систем, разра
 magnet:?xt=urn:btih:99FF08F9E56F006FB5BCA9B498544BC67941B330
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:4116D845CCCA294494E25F2BD4BACA65C3C11DA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Microsoft Windows 10.0.19041.630 Version 2004 (Updated November 2020) - Ориг
 magnet:?xt=urn:btih:B15BF95F3902B3405F9042EA2A1AF416C2AF2DDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ Microsoft Windows 10.0.19042.631 Version 20H2 (Updated November 2020) - Ориг
 magnet:?xt=urn:btih:C605EC3A64EE273AD073243CAE7A3A57E3B60B62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ Windows 10 IoT Корпоративная — это полная версия W
 magnet:?xt=urn:btih:F8679C6D5ED3F0ABB2772E0338731D491E5D4D33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Windows Server SAC - канал Semi-Annual Channel идеально подхо�
 ```bash
 magnet:?xt=urn:btih:554D72F8B657B628F2347A106AD65945668D8F9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ Microsoft Windows 10.0.19042.631 Version 20H2 (Updated November 2020) - Ориг
 magnet:?xt=urn:btih:0E6BCFA1B4B2DF2B6AB0EEA2BA6F2D3FE93804C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ Windows 10 Enterprise LTSC 2021 основана на Windows 10 Pro верси�
 ```bash
 magnet:?xt=urn:btih:3604300C14C0CA3DD9EC81FCC74521AA9AAA5907
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ Microsoft Windows 11 Insider Preview, Version 23H2 [10.0.22631.2361] - Ориг�
 magnet:?xt=urn:btih:DD9A34620ECDE85136B018827F179B7891DD9818
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ Windows 11 PRO 24H2 26100.6899 Update 20 by Ghost Spectre [En]
 ```bash
 magnet:?xt=urn:btih:06C899269EC03C5443D6953A93D83025C06D148A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ windows11_business_editions_version_23h2_updated_sep_2025_x64_dvd_59189188.iso.(
 magnet:?xt=urn:btih:29F4907D913C49CFA879A8866243BB25AE2B47E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:870C3FD409854F7C4B6E0FB5D641BDE9B28CAF0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ Windows 10 2022 Update (под кодовым названием "22H2") это 
 magnet:?xt=urn:btih:2902D654ABD596C762F631AED3658AB9C11D2494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ Windows 10 2022 Update (под кодовым названием "22H2") это 
 magnet:?xt=urn:btih:8D4702B599A4628F9EDCC16489859A27C7A89340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ Windows Server 2022 впервые обеспечивает расширенну
 ```bash
 magnet:?xt=urn:btih:CE3CCC04C2DE7E8ECBA6D26D75884E958D524670
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ Windows 11 - это серия операционных систем, разра
 magnet:?xt=urn:btih:BECA5520CFC421D6903F40A590BA76DEE6F19077
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:B1A6D48E7DA13AEE6791357FAC41AF38D5F2D86E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

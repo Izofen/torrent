@@ -20,6 +20,8 @@ Perfectly Clear — приложение, которое позволяет вс
 magnet:?xt=urn:btih:5B688E63F35A3F90F12781E8F43458B4FFE1919A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ RegCool 2.035 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2F6C98DACCEDEEA61054A20C9543D1E594ED875A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:2F6C98DACCEDEEA61054A20C9543D1E594ED875A
 magnet:?xt=urn:btih:A5BAA1EA3DF40ECA413BB463FF99567189F9AEF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ AnyDesk 9.5.9 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2CDBE90F5EC27495AC4DB5BBFC351741678833AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:2CDBE90F5EC27495AC4DB5BBFC351741678833AC
 magnet:?xt=urn:btih:76109AFB9D4EBB36ADF4D1C026368413169ECB43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:76109AFB9D4EBB36ADF4D1C026368413169ECB43
 ```bash
 magnet:?xt=urn:btih:21FB901D4E7D6AB2D53BB5E8F08DA161B4EC420D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ TikTok - социальное приложение для тех кто пред
 magnet:?xt=urn:btih:953C87C31F5B97EC849A36385CAE207BADB7C1DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:93974436D0FC86B6BB4503A7C2DA8AF8319EC222
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Vanced — это модифицированная версия YT, котора
 magnet:?xt=urn:btih:0865F4A4F09A6352BBBF6E821459E69B7AD5749C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:0865F4A4F09A6352BBBF6E821459E69B7AD5749C
 ```bash
 magnet:?xt=urn:btih:5E7813CC16056712EF42EFF788586DA32692C140
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ ByeByeDPI v1.6.1 [Ru/Multi]
 magnet:?xt=urn:btih:4649FA6E83ACB5638F5D6B311006212A5DCC3A1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:3898A3937EDBC4C80D9E1B4C3F5B450DF5BAB54C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ ByClick Downloader (бывший YouTube By Click) - отличный и удо�
 magnet:?xt=urn:btih:BAE4570D92191DE725BEDA3D76D4288EF85A1BC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ AnyDesk 9.5.8 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:52DD55988166AE8C5F2096F2A13E96ADF5A0FCEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:52DD55988166AE8C5F2096F2A13E96ADF5A0FCEE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:27AC0B6B4322428F0E6CFE87AB81C71AA7F01536
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ Purvpn 7.9 [En/Farsi]
 magnet:?xt=urn:btih:003275B89F740C6F8BD0703DEB99DDF963545398
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Aomei Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:8243D2B5DF624E40CA82481AEE4E0DD39B576C8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:8243D2B5DF624E40CA82481AEE4E0DD39B576C8D
 magnet:?xt=urn:btih:29B88B435C73D780F58CD825397631E03A884DE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:29B88B435C73D780F58CD825397631E03A884DE4
 ```bash
 magnet:?xt=urn:btih:970AD40F0EFBCD5E2714BE91D4A85E78B78FF1C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:970AD40F0EFBCD5E2714BE91D4A85E78B78FF1C4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:970AD40F0EFBCD5E2714BE91D4A85E78B78FF1C4
 ```bash
 magnet:?xt=urn:btih:C84E85310361549B1F52CDEE24BFB23D65CA523D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:C84E85310361549B1F52CDEE24BFB23D65CA523D
 magnet:?xt=urn:btih:F2E9D59C55F2D56C9563CE3D64F8B3CF6BA188E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:F2E9D59C55F2D56C9563CE3D64F8B3CF6BA188E0
 magnet:?xt=urn:btih:FC951C2984162D0EE262506C04204CD04F9141E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:FC951C2984162D0EE262506C04204CD04F9141E8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Apowersoft Video Download Capture 6.5.9.1 RePack by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BE440CE7F903A61473A5293244A8DAA85C40683B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

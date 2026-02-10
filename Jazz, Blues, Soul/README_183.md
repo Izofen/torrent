@@ -22,6 +22,8 @@ Eddie Higgins Trio - Jazz Standards Essential Best (2009) Venus Records [FLAC|Lo
 magnet:?xt=urn:btih:E093C78D14DAC8D5C19C617915C0778A4F192D87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ VA - Luxury soul (2013) [MP3|320 кб/с]<Soul, Lounge>
 magnet:?xt=urn:btih:6C0B1BFF578BF70A199051643F5E58C055A6F21B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -86,6 +90,8 @@ Duke Ellington - Plays Tchaikovsky Nutcracker (1999) [FLAC|Lossless]<Jazz, Swing
 ```bash
 magnet:?xt=urn:btih:5DED27AC46BA02A26132D2EC20C564858FB07EB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +126,8 @@ Koko Taylor - The Queen Of Chicago Blues (2014) [MP3|320 кб/с]<Chicago Blues>
 magnet:?xt=urn:btih:C03D342E6D350CCEEDD4EC3EEB23F478E56BF944
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +161,8 @@ VA - Luxury Soul (2012) [MP3|320 кб/с]<Soul, Classic R&B>
 magnet:?xt=urn:btih:00AB0AB4A59B8A0C5A62B599CC899AEB9A545624
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +189,8 @@ Astrud Gilberto - The Silver Collection (1965 - 1970) 1991, Verve [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:5E22625E0118964D677A63789B9D098F464CD07D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +228,8 @@ CD2 (01:08:30)
 magnet:?xt=urn:btih:0622299448343D3C30ABA3BB0D4DDAD69046A976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +256,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:9D09C2EB5E1709D5A843B4CBB692E75E36679D5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +286,8 @@ Black Art Jazz Collective - Armor Of Pride (2018) HighNote [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:118CB2DFDEC0D8E7B47C7730AFF7543B12C8EE3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +314,8 @@ P.J. Perry - My Ideal (1989) Unity Records [FLAC|Lossless|tracks + .cue] <Hard B
 ```bash
 magnet:?xt=urn:btih:3288C0F2EAB8FB1B347859529E6D82935C82F211
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +344,8 @@ Fourplay - Best of Fourplay (1997) 2020 Remastered [FLAC|24/44.1|Lossless|WEB-DL
 magnet:?xt=urn:btih:CE0CC164969025D81B7228634B09DDE489F0D0E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +372,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:3E0B6B49086AC3E87A75E5B538B404FB006E3C5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +402,8 @@ Jimmy Forrest - Out Of The Forrest (1961) 1994, Original Jazz Classics [APE|Loss
 magnet:?xt=urn:btih:CE56BE59341AAD6A59EC66928BA57F785B08E915
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +431,8 @@ P.J. Perry - Worth Waiting For (1991) The Jazz Alliance [FLAC|Lossless|tracks + 
 magnet:?xt=urn:btih:83366AA048F0400FCBAEABC9075B9DA28D67359F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +459,8 @@ Woody Herman & His Thundering Herd - Ready-Get Set-Jump (1953 - 1958) 1992, Lase
 ```bash
 magnet:?xt=urn:btih:031658711DB8039BF442BFA8685E4C9C49BBF17A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +495,8 @@ Beth Hart - Bang Bang Boom Boom (2012) [WavPack|Lossless]<Blues Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +523,8 @@ Hampton Hawes - The Sermon (1958) 2002, Original Jazz Classics [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:0C384191AF0A4101B4EFEC55D492727C963568B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +553,8 @@ Alessio Menconi - Standard Trio (2005) Abeat Records [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:55CDB5A8DC7E313AEFB75E918CABCFABA9AD4C81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +581,8 @@ Joe Bonamassa - Road To Redemption (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, 
 ```bash
 magnet:?xt=urn:btih:430FDBD0CC40F0444AF1E4B14EB04DE759157848
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +611,8 @@ Low Kick Collective - Coma Berenices (2022) [FLAC|Lossless|Web-DL|tracks] <Dark 
 magnet:?xt=urn:btih:3C3659028865F2DEA4DA4D51D99DA4016A91680C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +639,8 @@ Sergio Mendes & Bossa Rio - Voce Ainda Nao Ouviu Nada! (1964) 2002, Dubas Musica
 ```bash
 magnet:?xt=urn:btih:D2A883D29DEBA3E77CB8EBBFF09CE86460D34DCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +669,8 @@ Marian McPartland - On 52nd Street (1953) 2002, Savoy Jazz [FLAC|Lossless|image 
 magnet:?xt=urn:btih:AB255E8969CE6FABAD511B3A24AF705C324512B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +697,8 @@ Bill Evans - Trio 64 (1963) 1997, Verve Records [FLAC|Lossless|tracks + .cue] <M
 ```bash
 magnet:?xt=urn:btih:717991350B802487AC86DE5CEFE808EB5765831B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -681,6 +727,8 @@ CD1:
 magnet:?xt=urn:btih:845357079A4F27B165B1312280AAA7D66368DB1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -708,6 +756,8 @@ Babylon Circus - La Belle Etoile (2009) [WavPack|Lossless|tracks + .cue] <Ska-Ja
 magnet:?xt=urn:btih:8CEE1B2F65D167883B65AF2970E13A04C08A07B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -734,6 +784,8 @@ Mr Blues - Ain't No Saint (2019) [MP3|320 Kbps] <Blues, Chicago Blues>
 ```bash
 magnet:?xt=urn:btih:22BE2893450ED313395FCED43346ACE689590716
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
